@@ -1,3 +1,7 @@
+**The U.N.’s top court will issue an interim ruling in a case involving Germany’s weapons sales to Israel.**\
+`By Marlise Simons`\
+https://nytimes.com/live/2024/04/30/world/israel-gaza-war-hamas/the-uns-top-court-will-issue-an-interim-ruling-in-a-case-involving-germanys-weapons-sales-to-israel
+
 **Stream These 10 Movies Before They Leave Netflix in May**\
 `Magic Mike’s finale, M. Night Shyamalan’s patient with 23 personalities, Baz Luhrmann’s “Gatsby” and a copstravaganza with a serious coda after the belly laughs.`\
 https://nytimes.com/2024/04/30/movies/movies-leaving-netflix-may.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/30/podcasts/a-poem-about-you-for-you.html
 **That Strange Piece of Metal Origami Embodies All Elon Musk’s Flaws**\
 `The Cybertruck looks edgy, that’s for sure, but it has serious problems.`\
 https://nytimes.com/2024/04/30/opinion/elon-musk-tesla-problems.html
-
-**Are You Screaming for a Free Streaming Choice? Try Shout! TV.**\
-`Among the free streaming services, few are as enjoyable and reliable as this one.`\
-https://nytimes.com/2024/04/30/movies/shout-tv-streaming-netflix-alternative.html
 
