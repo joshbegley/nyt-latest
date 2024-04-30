@@ -1,4 +1,8 @@
 **The occupation of a building at Columbia is at least the second across the country.**\
+`By Eryn Davis, Sharon Otterman, Sarah Maslin Nir and Liset Cruz`\
+https://nytimes.com/live/2024/04/30/nyregion/columbia-protests-college/the-occupation-of-a-building-at-columbia-is-at-least-the-second-across-the-country
+
+**The occupation of a building at Columbia is at least the second across the country.**\
 `By Eryn Davis, Sharon Otterman and Sarah Maslin Nir`\
 https://nytimes.com/live/2024/04/30/nyregion/columbia-protests-college/the-occupation-of-a-building-at-columbia-is-at-least-the-second-across-the-country
 
