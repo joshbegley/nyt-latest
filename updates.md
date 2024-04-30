@@ -1,3 +1,7 @@
+**Ilhan Omar Plunges Into Democrats’ Political Storm Over War in Gaza**\
+`Suggesting that some Jewish students are “pro-genocide,” the Minnesota congresswoman seemed to further polarize an already polarizing debate.`\
+https://nytimes.com/2024/04/29/us/politics/ilhan-omar-protests-gaza.html
+
 **A Small Campus in the Redwoods Has the Nation’s Most Entrenched Protest**\
 `Pro-Palestinian protesters have occupied the administration building at California State Polytechnic University, Humboldt for the past week and forced a campus closure until May 10.`\
 https://nytimes.com/2024/04/29/us/humboldt-protest-cal-poly.html
