@@ -31,7 +31,7 @@ https://nytimes.com/2024/04/30/magazine/jackfruit-taco-recipe.html
 https://nytimes.com/2024/04/30/us/politics/biden-columbia-protests-israel-antisemitism.html
 
 **Wednesday Briefing: Clashes Escalate on U.S. Campuses**\
-`Also, a judge fined Donald Trump for breaking a gag owner.`\
+`Also, a judge fined Donald Trump for breaking a gag order.`\
 https://nytimes.com/2024/04/30/world/asia/columbia-explusion-trump-broadway-asia.html
 
 **House Republicans, Seeking Political Edge Amid College Protests, Spotlight Antisemitism**\
