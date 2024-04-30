@@ -1,3 +1,7 @@
+**At U.C.L.A., Israel Supporters Make Themselves Known**\
+`Counterprotests have become a daily occurrence at the University of California, Los Angeles, and altercations have happened at the campus.`\
+https://nytimes.com/live/2024/04/30/nyregion/columbia-protests-college/ucla-encampment-protests
+
 **Same-Store Sales at Starbucks Drop, Pushing Revenue Down 1.8%**\
 `After the chain’s quarterly earnings missed Wall Street’s estimates, its shares fell more than 12 percent in after-hours trading.`\
 https://nytimes.com/2024/04/30/business/starbucks-earnings-first-quarter.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/24/opinion/thepoint/stormy-daniels-trump-trial
 **At Brown, a Rare Agreement Between Administrators and Protesters**\
 `Brown students took down their tents on campus after the university in Rhode Island agreed to discuss their demands for divestment from support for the Israeli military.`\
 https://nytimes.com/2024/04/30/us/brown-divestment-deal.html
-
-**Judge Who Brawled With Neighbors Will Remain on N.Y. Bench**\
-`A state panel voted to censure Mark J. Grisanti, a former Republican state senator, but said he would not be removed for the incident, in which he shoved a police officer.`\
-https://nytimes.com/2024/04/30/nyregion/grisanti-judge-censure-buffalo.html
 

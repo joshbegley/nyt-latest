@@ -1,3 +1,7 @@
+**At U.C.L.A., Israel Supporters Make Themselves Known**\
+`Counterprotests have become a daily occurrence at the University of California, Los Angeles, and altercations have happened at the campus.`\
+https://nytimes.com/live/2024/04/30/nyregion/columbia-protests-college/ucla-encampment-protests
+
 **Same-Store Sales at Starbucks Drop, Pushing Revenue Down 1.8%**\
 `After the chain’s quarterly earnings missed Wall Street’s estimates, its shares fell more than 12 percent in after-hours trading.`\
 https://nytimes.com/2024/04/30/business/starbucks-earnings-first-quarter.html
