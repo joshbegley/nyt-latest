@@ -1,3 +1,11 @@
+**Alicia Keys on ‘Hell’s Kitchen’ nod: I’m in ‘a deep state of freaking out’**\
+`By Michael Paulson`\
+https://nytimes.com/live/2024/04/30/theater/tony-nominations/alicia-keys-on-hells-kitchen-nod-im-in-a-deep-state-of-freaking-out
+
+**Goodbye, Gas. The Future of New York City’s Pizza Is Electric.**\
+`And just in time for a new city ordinance regulating pollution emitted by wood- and coal-fired ovens.`\
+https://nytimes.com/2024/04/30/dining/new-york-pizza-electric-ovens.html
+
 **Here’s where campus protesters have been arrested over the past day.**\
 `Officers at Virginia Commonwealth University in Richmond used riot gear and pepper spray.`\
 https://nytimes.com/live/2024/04/30/nyregion/columbia-protests-college/heres-where-campus-protesters-have-been-arrested-over-the-past-day
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/30/theater/tony-nominations/jessica-lange-mothe
 **Jeff Zucker Abandons Telegraph Bid, Putting London Paper Back Into Play**\
 `RedBird IMI said it had withdrawn its attempt to acquire the storied newspaper after a revolt from Conservative Party leaders.`\
 https://nytimes.com/2024/04/30/business/media/jeff-zucker-telegraph-redbird.html
-
-**Columbia suspends a student negotiator representing the protest encampment.**\
-`By Sharon Otterman`\
-https://nytimes.com/live/2024/04/30/nyregion/columbia-protests-college/columbia-suspends-a-student-negotiator-representing-the-protest-encampment
-
-**Trump Finally Pays a Cash Price for His Threats**\
-`If a few thousand dollars doesn’t rein in Trump, the judge said he had harsher penalties at his disposal.`\
-https://nytimes.com/live/2024/04/24/opinion/thepoint/trump-contempt-jail
 
