@@ -1,3 +1,7 @@
+**Campus Police Arrest Protesters at Cal Poly Humboldt**\
+`Protesters had occupied a building for over a week, leading the university to shut down the campus.`\
+https://nytimes.com/2024/04/30/nyregion/california-poly-humboldt-protests-arrests.html
+
 **Getir, a Rapid Grocery-Delivery Service, Exits the U.S. and Europe**\
 `The company had expanded quickly to keep ahead of rivals, but like other pandemic darlings, its business lost steam after lockdowns were eased.`\
 https://nytimes.com/2024/04/30/business/getir-grocery-delivery-europe-us.html
