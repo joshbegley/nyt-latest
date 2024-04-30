@@ -1,3 +1,23 @@
+**Justice Dept. Plans to Recommend Easing Restrictions on Marijuana**\
+`The move would kick off a lengthy rule-making process and would amount to a major change in federal policy.`\
+https://nytimes.com/2024/04/30/us/politics/justice-department-reclassify-marijuana.html
+
+**Binance Founder Sentenced to Four Months in Prison**\
+`Changpeng Zhao, the founder and former chief executive of the Binance cryptocurrency exchange, had pleaded guilty to a money-laundering violation.`\
+https://nytimes.com/2024/04/30/technology/binance-founder-changpeng-zhao-sentenced.html
+
+**Nine Rescued in Atlantic After Days on Wreckage of Migrant Boat**\
+`The survivors told Spanish authorities that about 60 people had been aboard when their vessel set out for the Canary Islands from Senegal.`\
+https://nytimes.com/2024/04/30/world/europe/migrant-boat-rescue.html
+
+**Tiny Love Stories: ‘The Schoolhouse Taught Me What Marriage Didn’t’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/04/30/style/tiny-modern-love-stories-the-schoolhouse-taught-me-what-marriage-didnt.html
+
+**Russia Strikes Civilian Center in Odesa, Killing Five**\
+`Ukraine quickly accused Russia of using a deadly cluster weapon in a civilian area. Moscow has increasingly targeted urban centers in recent weeks.`\
+https://nytimes.com/2024/04/30/world/europe/russia-ukraine-missile-airstrike.html
+
 **Ex-N.S.A. Employee Who Tried to Sell U.S. Secrets to Russia Gets 22 Years**\
 `The Colorado man, who held a top security clearance, told an undercover F.B.I. employee posing as a Russian agent that he needed to pay nearly $84,000 in student loan and credit card debt.`\
 https://nytimes.com/2024/04/30/us/nsa-espionage-colorado-sentence.html
@@ -17,24 +37,4 @@ https://nytimes.com/live/2024/04/30/theater/tony-nominations/what-happens-next-h
 **Can Supplements Really Help Thinning Hair?**\
 `Skeptics share their experience with a clinically tested supplement that helps with hair health and fullness — after trying an exhaustive list of fixes.`\
 https://nytimes.com/paidpost/nutrafol/can-supplements-really-help-thinning-hair.html
-
-**What’s up next on Broadway? Plenty.**\
-`By Michael Paulson`\
-https://nytimes.com/live/2024/04/30/theater/tony-nominations/broadway-upcoming
-
-**Alicia Keys on ‘Hell’s Kitchen’ Nods: I’m in ‘a Deep State of Freaking Out’**\
-`She had been working on the semi-autobiographical musical for 13 years, and it earned 13 nominations.`\
-https://nytimes.com/2024/04/30/theater/alicia-keys-on-hells-kitchen-nod-im-in-a-deep-state-of-freaking-out.html
-
-**Goodbye, Gas. The Future of New York City’s Pizza Is Electric.**\
-`And just in time for a new city ordinance regulating pollution emitted by wood- and coal-fired ovens.`\
-https://nytimes.com/2024/04/30/dining/new-york-pizza-electric-ovens.html
-
-**Here’s where campus protesters have been arrested over the past day.**\
-`Officers at Virginia Commonwealth University in Richmond used riot gear and pepper spray.`\
-https://nytimes.com/live/2024/04/30/nyregion/columbia-protests-college/heres-where-campus-protesters-have-been-arrested-over-the-past-day
-
-**I Let TikTok Tell Me Where to Eat. Here’s What I Learned.**\
-`A food editor documents the high, the low and the mid from a week’s worth of influencer restaurant suggestions.`\
-https://nytimes.com/2024/04/30/dining/tiktok-fyp-restaurant-recommendations.html
 

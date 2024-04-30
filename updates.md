@@ -1,3 +1,23 @@
+**Justice Dept. Plans to Recommend Easing Restrictions on Marijuana**\
+`The move would kick off a lengthy rule-making process and would amount to a major change in federal policy.`\
+https://nytimes.com/2024/04/30/us/politics/justice-department-reclassify-marijuana.html
+
+**Binance Founder Sentenced to Four Months in Prison**\
+`Changpeng Zhao, the founder and former chief executive of the Binance cryptocurrency exchange, had pleaded guilty to a money-laundering violation.`\
+https://nytimes.com/2024/04/30/technology/binance-founder-changpeng-zhao-sentenced.html
+
+**Nine Rescued in Atlantic After Days on Wreckage of Migrant Boat**\
+`The survivors told Spanish authorities that about 60 people had been aboard when their vessel set out for the Canary Islands from Senegal.`\
+https://nytimes.com/2024/04/30/world/europe/migrant-boat-rescue.html
+
+**Tiny Love Stories: ‘The Schoolhouse Taught Me What Marriage Didn’t’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/04/30/style/tiny-modern-love-stories-the-schoolhouse-taught-me-what-marriage-didnt.html
+
+**Russia Strikes Civilian Center in Odesa, Killing Five**\
+`Ukraine quickly accused Russia of using a deadly cluster weapon in a civilian area. Moscow has increasingly targeted urban centers in recent weeks.`\
+https://nytimes.com/2024/04/30/world/europe/russia-ukraine-missile-airstrike.html
+
 **Alicia Keys on ‘Hell’s Kitchen’ Nods: I’m in ‘a Deep State of Freaking Out’**\
 `She had been working on the semi-autobiographical musical for 13 years, and it earned 13 nominations.`\
 https://nytimes.com/2024/04/30/theater/alicia-keys-on-hells-kitchen-nod-im-in-a-deep-state-of-freaking-out.html
