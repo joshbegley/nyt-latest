@@ -1,3 +1,7 @@
+**Text of April 30 Letter From Columbia’s President to N.Y.P.D.**\
+`Dozens of pro-Palestinian demonstrators at Columbia University in Manhattan were arrested Tuesday night by hundreds of police officers in riot gear after Columbia’s president, Nemat Shafik, requested police intervention.`\
+https://nytimes.com/2024/04/30/nyregion/columbia-nypd-letter-text.html
+
 **Columbia Asks N.Y.P.D. to Stay on Campus Through Middle of May**\
 `The university released the letter after police entered Hamilton Hall, a building that was occupied by dozens of demonstrators. Columbia’s commencement is currently scheduled for May 15.`\
 https://nytimes.com/2024/04/30/nyregion/columbia-shafik-protests-police.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/30/us/politics/trump-lawyers-delgado.html
 **Even Celebrities Don’t Know How to Ask Their Friends About Ozempic**\
 `When Barbra Streisand posted a comment on social media about the actress Melissa McCarthy, it prompted a public conversation.`\
 https://nytimes.com/2024/04/30/style/ozempic-barbra-streisand-melissa-mccarthy.html
-
-**What Happened at the Trump Trial on Tuesday**\
-`Donald Trump was fined and warned of jail time after he violated a gag order in his criminal trial. Prosecutors have argued that his statements threaten the trial. Jonah Bromwich, a criminal justice reporter at The New York Times, gives his takeaways.`\
-https://nytimes.com/video/nyregion/100000009441949/judge-holds-trump-in-contempt.html
 
