@@ -1,3 +1,7 @@
+**Mountain Goats Are Not Avalanche-Proof**\
+`The scene ends badly, as you might imagine.`\
+https://nytimes.com/2024/05/01/science/avalanche-mountain-goats.html
+
 **Arizona Voted to Repeal Its Abortion Ban**\
 `Also, the Fed eyes a longer period of high rates. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/05/01/briefing/arizona-abortion-ban-campus-protests.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/01/us/politics/marjorie-taylor-greene-congress.html
 **Harris Blasts Trump Over Florida Abortion Ban**\
 `On the day that Florida began to enforce its six-week abortion ban, Vice President Kamala Harris delivered a searing attack on former President Donald J. Trump in Jacksonville, Fla., calling the measure “another Trump abortion ban.”`\
 https://nytimes.com/video/us/politics/100000009443287/harris-trump-abortion.html
-
-**Olga Fikotova Connolly, Olympian in a Cold War Romance, Dies at 91**\
-`She was from Czechoslovakia. He was from the U.S. And after meeting at the 1956 Games and winning gold medals, they married. Love had breached the iron curtain.`\
-https://nytimes.com/2024/05/01/sports/olympics/olga-fikotova-connolly-dead.html
 

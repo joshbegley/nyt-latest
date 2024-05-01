@@ -1,3 +1,7 @@
+**Mountain Goats Are Not Avalanche-Proof**\
+`The scene ends badly, as you might imagine.`\
+https://nytimes.com/2024/05/01/science/avalanche-mountain-goats.html
+
 **Arizona Voted to Repeal Its Abortion Ban**\
 `Also, the Fed eyes a longer period of high rates. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/05/01/briefing/arizona-abortion-ban-campus-protests.html
