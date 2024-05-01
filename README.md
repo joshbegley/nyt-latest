@@ -1,4 +1,4 @@
-**For College Protesters, Risking Arrest Is Part of a Global Struggle**\
+**It’s Not Just Gaza: Student Protesters See Links to a Global Struggle**\
 `In many students’ eyes, the war in Gaza is linked to other issues, such as policing, mistreatment of Indigenous people, racism and the impact of climate change.`\
 https://nytimes.com/2024/05/01/us/pro-palestinian-college-protests.html
 
