@@ -1,3 +1,7 @@
+**Giant Pandas Are Returning to San Diego, China Announces**\
+`“Panda diplomacy” has represented an area of cooperation between the United States and China despite tension over weighty issues of trade and national security.`\
+https://nytimes.com/2024/05/01/us/pandas-china-san-diego-zoo.html
+
 **Veteran Collected Benefits After Lying About Purple Heart, U.S. Says**\
 `Sharon Toney-Finch, who served in Iraq in 2010, was charged with fraudulently claiming to have a Purple Heart and with defrauding the Department of Veterans Affairs.`\
 https://nytimes.com/2024/05/01/nyregion/veteran-charged-purple-heart-fraud.html
