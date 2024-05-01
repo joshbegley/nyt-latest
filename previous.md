@@ -1,3 +1,7 @@
+**Police Officers Respond as Clashes Erupt at U.C.L.A. Encampment**\
+`The university called in law enforcement officers to help after “horrific acts of violence” occurred on campus Tuesday night, an official said.`\
+https://nytimes.com/2024/05/01/nyregion/ucla-protests.html
+
 **India’s Master of Nostalgia Takes His Sweeping Vision to Netflix**\
 `Sanjay Leela Bhansali’s films are known for splendor, grandiosity and obsessive attention to light and detail. Will that translate to mobile screens?`\
 https://nytimes.com/2024/05/01/world/asia/netflix-heeramandi-bhansali.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/01/nyregion/harvey-weinstein-ny-court-hearing.html
 **The Connections Companion No. 325**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/05/01/crosswords/connections-companion.html
-
-**Today’s Wordle Review No. 1,047**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/01/crosswords/wordle-review.html
 
