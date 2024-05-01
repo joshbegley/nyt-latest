@@ -1,3 +1,7 @@
+**The Cannabis Industry Hopes for New Highs**\
+`The Justice Department’s recommendation that restrictions on marijuana be lifted have revived expectations for a business that has waited years for such a change.`\
+https://nytimes.com/2024/05/01/business/dealbook/cannabis-business-law.html
+
 **Will Hamas Say No?**\
 `We explain why a cease-fire hasn’t happened.`\
 https://nytimes.com/2024/05/01/briefing/ceasefire.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/01/opinion/biden-younger-voters-gender.html
 **Hey, A.I. Let’s Talk**\
 `Meta, Google and others are driving a renaissance for voice assistants, but people have found the technology uncool for more than a decade.`\
 https://nytimes.com/2024/05/01/technology/personaltech/ai-voice-assistants.html
-
-**One Party Has a Serious Foreign Policy. The Other Has a Tantrum.**\
-`Trump’s Republican Party no longer feels a sense of a responsibility to U.S. allies.`\
-https://nytimes.com/live/2024/04/24/opinion/thepoint/trump-republican-foreign-policy-nato
 
