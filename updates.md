@@ -1,3 +1,11 @@
+**14 Protesters Are Arrested at Tulane After Police Clear Encampment**\
+`Two students were among those arrested early Wednesday, the university said. Officers from three law enforcement agencies moved in after ordering the group to disperse.`\
+https://nytimes.com/2024/05/01/nyregion/tulane-university-protests.html
+
+**The Treadmill Desk Might Really Be Worth It**\
+`Research shows they can indeed deliver fitness benefits while you work — but only if you use them wisely.`\
+https://nytimes.com/2024/05/01/well/move/treadmill-desk-standing.html
+
 **Biden Cancels $6.1 Billion in Debt for Former Art Institute Students**\
 `The announcement covers 317,000 former students and marks another step in the administration’s student loan relief efforts.`\
 https://nytimes.com/2024/05/01/us/politics/biden-cancels-6-1-billion-in-debt-for-former-art-institute-students.html
