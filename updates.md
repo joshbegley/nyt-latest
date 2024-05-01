@@ -1,3 +1,11 @@
+**NASCAR and Its Race Teams Fight Over the Sport’s Future**\
+`Team owners said they needed to share in racing’s financial success, putting them at odds with the privately held business that runs the sport.`\
+https://nytimes.com/2024/05/01/business/nascar-racing-teams-charters.html
+
+**Trump to address Libertarian Party, new report focuses on threats to election officials and more.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/05/01/us/biden-trump-election-news/trump-to-address-libertarian-party-new-report-focuses-on-threats-to-election-officials-and-more
+
 **Johnson & Johnson Proposes $6.5 Billion in New Talc Settlement Offer**\
 `The offer is the company’s third attempt to resolve tens of thousands of claims that its baby powder caused ovarian cancer and mesothelioma.`\
 https://nytimes.com/2024/05/01/business/johnson-johnson-talc-settlement.html
