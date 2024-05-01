@@ -1,3 +1,7 @@
+**Veteran Collected Benefits After Lying About Purple Heart, U.S. Says**\
+`Sharon Toney-Finch, who served in Iraq in 2010, was charged with fraudulently claiming to have a Purple Heart and with defrauding the Department of Veterans Affairs.`\
+https://nytimes.com/2024/05/01/nyregion/veteran-charged-purple-heart-fraud.html
+
 **‘Lack of Further Progress’ on Inflation Keeps Interest Rates High**\
 `Jerome H. Powell, the Fed chair, said that the central bank needs “greater confidence” that inflation is coming down before it decides to cut interest rates, which are at a two-decade high.`\
 https://nytimes.com/video/business/economy/100000009443617/powell-interest-rates-inflation.html

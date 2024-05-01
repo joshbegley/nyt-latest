@@ -1,3 +1,7 @@
+**Veteran Collected Benefits After Lying About Purple Heart, U.S. Says**\
+`Sharon Toney-Finch, who served in Iraq in 2010, was charged with fraudulently claiming to have a Purple Heart and with defrauding the Department of Veterans Affairs.`\
+https://nytimes.com/2024/05/01/nyregion/veteran-charged-purple-heart-fraud.html
+
 **‘Lack of Further Progress’ on Inflation Keeps Interest Rates High**\
 `Jerome H. Powell, the Fed chair, said that the central bank needs “greater confidence” that inflation is coming down before it decides to cut interest rates, which are at a two-decade high.`\
 https://nytimes.com/video/business/economy/100000009443617/powell-interest-rates-inflation.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/01/world/asia/protest-ucla-columbia-china-asia.html
 **What to know about the Fed’s rate decision.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/05/01/business/fed-meeting-interest-rates/what-to-know-about-the-feds-rate-decision
-
-**Colombia to Sever Ties With Israel Over Gaza War**\
-`Gustavo Petro, Colombia’s first leftist president, made the announcement in front of cheering crowds in the capital that had gathered for International Workers’ Day.`\
-https://nytimes.com/2024/05/01/world/middleeast/colombia-israel-relations.html
 
