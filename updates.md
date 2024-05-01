@@ -1,3 +1,11 @@
+**The Best Movies and TV Shows Coming to Amazon, Disney+, Hulu, Apple TV+ and More in May**\
+`“The Idea of You,” “Scrublands,” “The Big Cigar” and “Hacks” are streaming.`\
+https://nytimes.com/2024/05/01/arts/television/may-streaming-movies-tv-shows.html
+
+**Greene Says She Will Demand Vote Next Week to Remove Johnson**\
+`Representative Marjorie Taylor Greene, the right-wing Republican from Georgia, excoriated the House speaker for working with Democrats to push through major bills. She said she would move ahead despite all but certain defeat.`\
+https://nytimes.com/2024/05/01/us/politics/marjorie-taylor-greene-mike-johnson-speaker.html
+
 **14 Protesters Are Arrested at Tulane After Police Clear Encampment**\
 `Two students were among those arrested early Wednesday, the university said. Officers from three law enforcement agencies moved in after ordering the group to disperse.`\
 https://nytimes.com/2024/05/01/nyregion/tulane-university-protests.html

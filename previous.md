@@ -1,3 +1,7 @@
+**The Best Movies and TV Shows Coming to Amazon, Disney+, Hulu, Apple TV+ and More in May**\
+`“The Idea of You,” “Scrublands,” “The Big Cigar” and “Hacks” are streaming.`\
+https://nytimes.com/2024/05/01/arts/television/may-streaming-movies-tv-shows.html
+
 **14 Protesters Are Arrested at Tulane After Police Clear Encampment**\
 `Two students were among those arrested early Wednesday, the university said. Officers from three law enforcement agencies moved in after ordering the group to disperse.`\
 https://nytimes.com/2024/05/01/nyregion/tulane-university-protests.html
@@ -10,7 +14,7 @@ https://nytimes.com/2024/05/01/well/move/treadmill-desk-standing.html
 `The announcement covers 317,000 former students and marks another step in the administration’s student loan relief efforts.`\
 https://nytimes.com/2024/05/01/us/politics/biden-cancels-6-1-billion-in-debt-for-former-art-institute-students.html
 
-**Greene Says She Will Demand Vote Next Week to Vacate Johnson**\
+**Greene Says She Will Demand Vote Next Week to Remove Johnson**\
 `Representative Marjorie Taylor Greene, the right-wing Republican from Georgia, excoriated the House speaker for working with Democrats to push through major bills. She said she would move ahead despite all but certain defeat.`\
 https://nytimes.com/2024/05/01/us/politics/marjorie-taylor-greene-mike-johnson-speaker.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/01/world/israel-gaza-war-hamas/hamas-has-not-ye
 **In a Portland Library, Activists Fortify for a Standoff**\
 `With wood pallets piled at the entrance, dozens of pro-Palestinian activists are holed up in the Portland State University library. Here’s a look inside the makeshift fortress.`\
 https://nytimes.com/2024/05/01/us/portland-state-university-library-protest.html
-
-**What Is the American Independent Party, Anyway?**\
-`Robert F. Kennedy Jr. will be on the November ballot in California after securing a presidential nomination from the American Independent Party.`\
-https://nytimes.com/2024/05/01/us/rfk-american-independent-party.html
 
