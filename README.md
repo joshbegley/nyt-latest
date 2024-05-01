@@ -1,3 +1,7 @@
+**Trump is heading to two Midwest battlegrounds, his first major campaign events since his criminal trial began.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/05/01/us/biden-trump-campaign/trump-is-heading-to-two-midwest-battlegrounds-his-first-major-campaign-events-since-his-criminal-trial-began
+
 **Paul Auster’s Best Books: A Guide**\
 `The novelist played with reality and chance in tales of solitary narrators and mutable identities. Here’s an overview of his work.`\
 https://nytimes.com/2024/05/01/books/paul-auster-essentials.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/01/briefing/ceasefire.html
 **Chinese Scientist Who Shared Covid Sequence Protests Lab Closure**\
 `Professor Zhang Yongzhen had flouted a government ban by disclosing the genome of the Covid virus soon after it emerged in Wuhan in 2020.`\
 https://nytimes.com/2024/05/01/world/asia/china-scientist-covid-lab.html
-
-**Expressway Collapses in Southern China Amid Heavy Rains, Killing 24**\
-`The road gave way in the early morning in an apparent landslide. At least 30 other people were injured, many of them seriously.`\
-https://nytimes.com/2024/05/01/world/asia/highway-collapses-china.html
 
