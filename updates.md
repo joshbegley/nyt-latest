@@ -1,3 +1,7 @@
+**A group of House Democrats was among those urging Columbia to crack down.**\
+`By Minho Kim and Luke Broadwater`\
+https://nytimes.com/live/2024/04/30/nyregion/columbia-protests-college/a-group-of-house-democrats-was-among-those-urging-columbia-to-crack-down
+
 **Drought That Snarled Panama Canal Was Linked to El Niño, Study Finds**\
 `The low water levels that choked cargo traffic were more closely tied to the natural climate cycle than to human-caused warming, a team of scientists has concluded.`\
 https://nytimes.com/2024/05/01/climate/panama-canal-drought.html

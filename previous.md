@@ -1,3 +1,7 @@
+**A group of House Democrats was among those urging Columbia to crack down.**\
+`By Minho Kim and Luke Broadwater`\
+https://nytimes.com/live/2024/04/30/nyregion/columbia-protests-college/a-group-of-house-democrats-was-among-those-urging-columbia-to-crack-down
+
 **Drought That Snarled Panama Canal Was Linked to El Niño, Study Finds**\
 `The low water levels that choked cargo traffic were more closely tied to the natural climate cycle than to human-caused warming, a team of scientists has concluded.`\
 https://nytimes.com/2024/05/01/climate/panama-canal-drought.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/01/world/europe/uk-election-mayor-ben-houchen.html
 **China’s Electric Cars Keep Improving, a Worry for Rivals Elsewhere**\
 `More capable autonomous driving is just one way Chinese automakers are threatening to pull ahead — their E.V.s are also becoming bigger and roomier.`\
 https://nytimes.com/2024/05/01/business/china-electric-vehicles.html
-
-**Paul Auster’s New York Tragedy**\
-`A complicated, generous life yielded a body of work of staggering scope and variety.`\
-https://nytimes.com/2024/04/30/books/review/paul-auster-appreciation.html
 
