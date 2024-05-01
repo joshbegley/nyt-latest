@@ -1,3 +1,7 @@
+**Dan Schneider Sues ‘Quiet on Set’ Creators, Saying Series Defamed Him**\
+`In the suit, lawyers for the former Nickelodeon producer called the documentary a “hit job” that had falsely painted him as a “child sexual abuser.”`\
+https://nytimes.com/2024/05/01/arts/television/quiet-on-set-creators-sued.html
+
 **Sept. 11 Trial Plea Negotiations Still Underway at Guantánamo Bay**\
 `The lead prosecutor briefed the judge on the talks in an effort to fend off a claim that members of Congress had unlawfully meddled in the negotiations.`\
 https://nytimes.com/2024/05/01/us/politics/sept11-case-plea-negotiations.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/01/us/politics/trump-rally-campus-protests.html
 **Biden to Address Holocaust Remembrance While Still Quiet on Campus Unrest**\
 `The president has largely left it to aides to respond to anti-Israel protests at colleges across the country, but he is planning a speech next week at an event sponsored by the U.S. Holocaust Memorial Museum.`\
 https://nytimes.com/2024/05/01/us/politics/biden-speech-campus-protests.html
-
-**Mountain Goats Are Not Avalanche-Proof**\
-`The scene ends badly, as you might imagine.`\
-https://nytimes.com/2024/05/01/science/avalanche-mountain-goats.html
 
