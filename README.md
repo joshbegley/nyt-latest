@@ -1,3 +1,11 @@
+**Florida Abortion Ban Takes Effect, and Trump Gets Fined**\
+`Plus, a possible shift on marijuana policy.`\
+https://nytimes.com/2024/05/01/podcasts/abortion-ban-trumps.html
+
+**The New Abortion Fight Before the Supreme Court**\
+`The Biden administration is arguing that Idaho’s near-total abortion ban violates a federal law on emergency treatment.`\
+https://nytimes.com/2024/05/01/podcasts/the-daily/abortion-supreme-court-emtala.html
+
 **Florida’s Abortion Ban Will Reach Well Beyond Florida**\
 `Seven hundred miles to the nearest clinic: how one ban will reshape access in the South.`\
 https://nytimes.com/interactive/2024/05/01/upshot/florida-abortion-ban.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/01/learning/what-small-wins-have-you-had-recently.ht
 **Biden Is Still Losing. His Campaign Should Stop Acting Like He Isn’t.**\
 `It’s good to have a reality check every few months.`\
 https://nytimes.com/2024/05/01/opinion/biden-trump-election.html
-
-**The Fed Tries to Steer Clear of Politics, But Election Year Is Making It Tough**\
-`Economists are wondering whether political developments could play into both the Fed’s near-term decisions and its long-term independence.`\
-https://nytimes.com/2024/05/01/business/economy/federal-reserve-presidential-election.html
-
-**Who Are the Hosts of the Met Gala?**\
-`Which brother is Chris Hemsworth, again? Meet the co-chairs of the party of the year.`\
-https://nytimes.com/2024/05/01/fashion/met-gala-hosts-co-chairs.html
 
