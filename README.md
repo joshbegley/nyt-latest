@@ -1,3 +1,7 @@
+**In Bid to Oust Johnson, Greene Tries to Reclaim a Powerful Perch on the Fringe**\
+`The Georgia Republican’s doomed push to remove the speaker has placed her at odds with most in her party, but it has brought her back to her roots as a norm-busting provocateur.`\
+https://nytimes.com/2024/05/01/us/politics/marjorie-taylor-greene-congress.html
+
 **Harris Blasts Trump Over Florida Abortion Ban**\
 `On the day that Florida began to enforce its six-week abortion ban, Vice President Kamala Harris delivered a searing attack on former President Donald J. Trump in Jacksonville, calling the measure “another Trump abortion ban.”`\
 https://nytimes.com/video/us/politics/100000009443287/harris-trump-abortion.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/01/business/walnuts-recall-ecoli-whole-foods.html
 **The Words That Have Defined This Week in Donald J. Trump’s Trial**\
 `Witnesses discussed the salacious and the banal, and the judge warned the defendant he could go to jail.`\
 https://nytimes.com/2024/05/01/nyregion/trump-trial-witnesses-moments.html
-
-**When Banks Fail, Why Do We Keep Bailing Out Uninsured Depositors?**\
-`In routinely making the uninsured whole, the F.D.I.C. isn’t doing its job, an N.Y.U. professor argues.`\
-https://nytimes.com/2024/05/01/opinion/fdic-insurance-banks.html
 
