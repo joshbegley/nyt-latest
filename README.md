@@ -1,8 +1,12 @@
+**Chinese Scientist Who Shared Covid Sequence Protests Lab Closure**\
+`Professor Zhang Yongzhen had flouted a government ban by disclosing the genome of the Covid virus soon after it emerged in Wuhan in 2020.`\
+https://nytimes.com/2024/05/01/world/asia/china-scientist-covid-lab.html
+
 **Expressway Collapses in Southern China Amid Heavy Rains, Killing 24**\
 `The road gave way in the early morning in an apparent landslide. At least 30 other people were injured, many of them seriously.`\
 https://nytimes.com/2024/05/01/world/asia/highway-collapses-china.html
 
-**Florida Abortion Ban Takes Effect, and Trump Gets Fined**\
+**Florida Abortion Ban Takes Effect, and U.C.L.A. Calls in Police**\
 `Plus, a possible shift on marijuana policy.`\
 https://nytimes.com/2024/05/01/podcasts/abortion-ban-trumps.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/24/opinion/thepoint/trump-republican-foreign-po
 **In Children’s TV, Dads Get to Have All the Fun**\
 `Our critic on the paternal fantasy of “Bluey” and more.`\
 https://nytimes.com/2024/05/01/podcasts/in-childrens-tv-dads-get-to-have-all-the-fun.html
-
-**What Small Wins Have You Had Recently?**\
-`Experts say that keeping track of your tiny victories can boost your motivation and morale. What have you succeeded in lately?`\
-https://nytimes.com/2024/05/01/learning/what-small-wins-have-you-had-recently.html
 

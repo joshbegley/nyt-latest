@@ -1,3 +1,7 @@
+**Expressway Collapses in Southern China Amid Heavy Rains, Killing 24**\
+`The road gave way in the early morning in an apparent landslide. At least 30 other people were injured, many of them seriously.`\
+https://nytimes.com/2024/05/01/world/asia/highway-collapses-china.html
+
 **Florida Abortion Ban Takes Effect, and Trump Gets Fined**\
 `Plus, a possible shift on marijuana policy.`\
 https://nytimes.com/2024/05/01/podcasts/abortion-ban-trumps.html
