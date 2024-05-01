@@ -1,3 +1,7 @@
+**Wall Street is worried about the cost of government debt.**\
+`By Joe Rennison`\
+https://nytimes.com/live/2024/05/01/business/fed-meeting-interest-rates/wall-street-is-worried-about-the-cost-of-government-debt
+
 **United Methodist Church Reverses Ban on Gay Clergy**\
 `In a meeting on Wednesday, church leaders also voted to allow L.G.B.T.Q. weddings.`\
 https://nytimes.com/2024/05/01/us/methodist-church-gay-ban-lgbtq.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/01/us/united-airlines-passenger-diverted-flight.html
 **Should I Lie So That My Cousin Can Have a Catholic Wedding?**\
 `The magazine’s Ethicist columnist on whether to fib for a relative, especially when you don’t think the ends justify the means.`\
 https://nytimes.com/2024/05/01/magazine/catholic-cousin-annulment-ethics.html
-
-**Counterprotesters Storm U.C.L.A. Pro-Palestinian Encampment**\
-`Violence broke out as counterprotesters attempted to pull down barricades at a pro-Palestinian encampment at the University of California, Los Angeles.`\
-https://nytimes.com/video/us/100000009442577/ucla-campus-protest-clashes-gaza-israel.html
 
