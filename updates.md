@@ -1,3 +1,15 @@
+**As Protests Grow, Universities Choose Different Ways to End Unrest**\
+`Columbia has taken the spotlight after twice asking the police to quell pro-Palestinian demonstrations on campus. Brown University chose a different path.`\
+https://nytimes.com/2024/05/01/nyregion/college-protests-divestment-columbia-brown.html
+
+**What’s in Our Queue? ‘Atomic Blonde’ and More**\
+`I report on Hollywood for the Business and Culture desks. Here are five I’ve watched recently.`\
+https://nytimes.com/interactive/2024/05/01/arts/editors-recommendations-atomicblonde.html
+
+**The Latest Campus Battleground Is the Flagpole.**\
+`Demonstrators have raised Palestinian flags in place of American flags on several campus, and drawn an angry response.`\
+https://nytimes.com/2024/05/01/us/college-protest-palestinian-flag.html
+
 **The latest campus battleground is the flagpole.**\
 `By Nicholas Bogel-Burroughs`\
 https://nytimes.com/live/2024/05/01/nyregion/columbia-university-protests/the-latest-campus-battleground-is-the-flagpole

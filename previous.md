@@ -1,6 +1,14 @@
-**The latest campus battleground is the flagpole.**\
-`By Nicholas Bogel-Burroughs`\
-https://nytimes.com/live/2024/05/01/nyregion/columbia-university-protests/the-latest-campus-battleground-is-the-flagpole
+**As Protests Grow, Universities Choose Different Ways to End Unrest**\
+`Columbia has taken the spotlight after twice asking the police to quell pro-Palestinian demonstrations on campus. Brown University chose a different path.`\
+https://nytimes.com/2024/05/01/nyregion/college-protests-divestment-columbia-brown.html
+
+**What’s in Our Queue? ‘Atomic Blonde’ and More**\
+`I report on Hollywood for the Business and Culture desks. Here are five I’ve watched recently.`\
+https://nytimes.com/interactive/2024/05/01/arts/editors-recommendations-atomicblonde.html
+
+**The Latest Campus Battleground Is the Flagpole.**\
+`Demonstrators have raised Palestinian flags in place of American flags on several campus, and drawn an angry response.`\
+https://nytimes.com/2024/05/01/us/college-protest-palestinian-flag.html
 
 **Spring Art Fairs Kick Off for Buyers and Browsers Alike**\
 `With Frieze comes a buffet of art in New York City, whether you’re looking for blue-chip galleries or emerging artists.`\
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/05/01/nyregion/trump-hush-money-trial-trans
 **Handcuffs and Barricades at Columbia, but No Reporters**\
 `By restricting media access, the N.Y.P.D. prevented the public from knowing the full details of its campus raid.`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/columbia-protests-raid-reporters
-
-**Frustration and accusations follow a violent night at U.C.L.A.**\
-`Administrators said in an email on Wednesday that all classes were canceled and that police officers would remain stationed throughout campus.`\
-https://nytimes.com/2024/05/01/us/ucla-classes-protests.html
-
-**Transcript of Trump Manhattan Trial, April 25, 2024**\
-`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
-https://nytimes.com/interactive/2024/05/01/nyregion/trump-hush-money-trial-transcript-april-25.html
 
