@@ -1,3 +1,7 @@
+**Republicans Step Up Attacks on Scientist at Heart of Lab Leak Theory**\
+`A heated hearing produced no new evidence that Peter Daszak or his nonprofit, EcoHealth Alliance, were implicated in the Covid outbreak.`\
+https://nytimes.com/2024/05/01/science/covid-lab-leak-ecohealth-nih.html
+
 **Senate Democrats Reintroduce Legislation to Legalize Marijuana**\
 `The bill, which reflects growing support for legalization, would end the federal prohibition on cannabis. But it is unlikely to pass in an election year and a divided government.`\
 https://nytimes.com/2024/05/01/us/politics/senate-democrats-marijuana-biden.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/01/us/politics/six-week-abortion-bans.html
 **Read Transcripts From Trump’s Manhattan Criminal Trial**\
 `The New York Times is publishing the court system’s transcripts from the Manhattan criminal trial of Donald J. Trump, who is charged with 34 felonies in the case.`\
 https://nytimes.com/article/trump-hush-money-trial-transcripts.html
-
-**Blinken Turns Up Pressure on Hamas to Accept Gaza Cease-Fire Deal**\
-`“The time is now,” Secretary of State Antony J. Blinken declared, urging Hamas to accept the terms of a proposed truce. He also made clear that he expected more from Israel.`\
-https://nytimes.com/2024/05/01/world/middleeast/blinken-hamas-israel-gaza-cease-fire.html
 
