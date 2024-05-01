@@ -1,3 +1,7 @@
+**Hamas has not yet issued an official response to the latest Israeli proposal.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/05/01/world/israel-gaza-war-hamas/hamas-has-not-yet-issued-an-official-response-to-the-latest-israeli-proposal
+
 **In a Portland Library, Activists Fortify for a Standoff**\
 `With wood pallets piled at the entrance, dozens of pro-Palestinian activists are holed up in the Portland State University library. Here’s a look inside the makeshift fortress.`\
 https://nytimes.com/2024/05/01/us/portland-state-university-library-protest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/01/world/asia/highway-collapses-china.html
 **Florida Abortion Ban Takes Effect, and U.C.L.A. Calls in Police**\
 `Plus, a possible shift on marijuana policy.`\
 https://nytimes.com/2024/05/01/podcasts/abortion-ban-trumps.html
-
-**The New Abortion Fight Before the Supreme Court**\
-`The Biden administration is arguing that Idaho’s near-total abortion ban violates a federal law on emergency treatment.`\
-https://nytimes.com/2024/05/01/podcasts/the-daily/abortion-supreme-court-emtala.html
 
