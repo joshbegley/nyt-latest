@@ -1,3 +1,7 @@
+**Paul Auster’s Best Books: A Guide**\
+`The novelist played with reality and chance in tales of solitary narrators and mutable identities. Here’s an overview of his work.`\
+https://nytimes.com/2024/05/01/books/paul-auster-essentials.html
+
 **Hamas has not yet issued an official response to the latest Israeli proposal.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/05/01/world/israel-gaza-war-hamas/hamas-has-not-yet-issued-an-official-response-to-the-latest-israeli-proposal
