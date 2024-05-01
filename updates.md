@@ -1,3 +1,7 @@
+**What to know about the Fed’s rate decision.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/05/01/business/fed-meeting-interest-rates/what-to-know-about-the-feds-rate-decision
+
 **Colombia’s president says the country will sever ties with Israel, calling its government ‘genocidal.’**\
 `President Gustavo Petro announced on Wednesday that the South American nation planned to break diplomatic ties with Israel.`\
 https://nytimes.com/live/2024/05/01/world/israel-gaza-war-hamas/colombias-president-says-the-country-will-sever-ties-with-israel-calling-its-government-genocidal
