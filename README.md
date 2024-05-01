@@ -11,7 +11,7 @@ https://nytimes.com/2024/05/01/pageoneplus/quotation-of-the-day-delicious-wherev
 https://nytimes.com/interactive/2024/05/01/us/louisiana-congressional-map-ruling.html
 
 **Police Arrest Protesters at City College in Harlem**\
-`The arrests came after of pro-Palestinian protesters tried to take over an administrative building at City College. Earlier, the police cleared a building that had been occupied at nearby Columbia University.`\
+`The arrests came after pro-Palestinian protesters tried to take over an administrative building at City College. Earlier, the police cleared a building that had been occupied at nearby Columbia University.`\
 https://nytimes.com/2024/04/30/nyregion/city-college-harlem-arrests.html
 
 **Swimming Beneath Sand, It’s ‘the Hardest of All Animals to Find’**\
