@@ -1,3 +1,11 @@
+**What to See During New York’s Design Festival**\
+`These are the highlights of what to do and where to go during a busy week of design topics.`\
+https://nytimes.com/2024/05/01/arts/design/new-york-design-festival.html
+
+**Senators Slam UnitedHealth’s C.E.O. Over Cyberattack**\
+`Several lawmakers questioned whether the company had become so large — with tentacles in every aspect of the nation’s medical care — that the effects of the hack were outsize.`\
+https://nytimes.com/2024/05/01/health/united-health-cyberattack-senate.html
+
 **Zwirner Anchors Los Angeles Art Neighborhood With New Gallery**\
 `Its flagship will open with a 30th-anniversary exhibition featuring works by all of the gallery’s 80 artists.`\
 https://nytimes.com/2024/05/01/arts/design/zwirner-los-angeles-art-melrose.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/01/business/economy/jolts-job-openings-hires-quits.h
 **His Book Was Repeatedly Banned. Fighting For It Shaped His Life.**\
 `“The Chocolate War,” published 50 years ago, became one of the country’s most challenged books. Its author, Robert Cormier, spent years fighting attempts to ban it — like many authors today.`\
 https://nytimes.com/2024/05/01/books/booksupdate/book-ban-chocolate-war-cormier-.html
-
-**Eric Adams Seizes Role as Face of the Crackdown on Student Protests**\
-`Mayor Eric Adams defended the arrests of nearly 300 protesters and said he would not allow the protests to disrupt the city.`\
-https://nytimes.com/2024/05/01/nyregion/eric-adams-columbia-protests.html
-
-**Chicken katsu, weeknight rescue**\
-`Kay Chun’s recipe cleverly shallow-fries the cutlets so they emerge golden and crispy, ready for rice, tonkatsu sauce and a shaggy mound of shredded cabbage.`\
-https://nytimes.com/2024/05/01/dining/chicken-katsu-weeknight-rescue.html
 

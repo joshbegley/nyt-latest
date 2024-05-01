@@ -1,3 +1,11 @@
+**What to See During New York’s Design Festival**\
+`These are the highlights of what to do and where to go during a busy week of design topics.`\
+https://nytimes.com/2024/05/01/arts/design/new-york-design-festival.html
+
+**Senators Slam UnitedHealth’s C.E.O. Over Cyberattack**\
+`Several lawmakers questioned whether the company had become so large — with tentacles in every aspect of the nation’s medical care — that the effects of the hack were outsize.`\
+https://nytimes.com/2024/05/01/health/united-health-cyberattack-senate.html
+
 **Zwirner Anchors Los Angeles Art Neighborhood With New Gallery**\
 `Its flagship will open with a 30th-anniversary exhibition featuring works by all of the gallery’s 80 artists.`\
 https://nytimes.com/2024/05/01/arts/design/zwirner-los-angeles-art-melrose.html
