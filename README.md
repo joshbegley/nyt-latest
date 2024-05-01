@@ -15,8 +15,8 @@ https://nytimes.com/video/business/economy/100000009443617/powell-interest-rates
 https://nytimes.com/2024/05/01/us/politics/florida-abortion-harris-trump.html
 
 **Fordham students, inspired by Columbia protests, brace for police crackdown.**\
-`By Olivia Bensimon and Lola Fadulu`\
-https://nytimes.com/live/2024/05/01/nyregion/columbia-university-protests/fordham-university-protests
+`Students who erected tents inside an academic building appeared undeterred the day after nearly 300 people were arrested elsewhere in Manhattan at Columbia University and City College of New York.`\
+https://nytimes.com/2024/05/01/nyregion/fordham-university-protest-police.html
 
 **In Bid to Oust Johnson, Greene Tries to Reclaim a Powerful Perch on the Fringe**\
 `The Georgia Republican’s doomed push to remove the speaker has placed her at odds with most in her party, but it has brought her back to her roots as a norm-busting provocateur.`\
