@@ -1,3 +1,7 @@
+**Arizona Voted to Repeal Its Abortion Ban**\
+`Also, the Fed eyes a longer period of high rates. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/05/01/briefing/arizona-abortion-ban-campus-protests.html
+
 **Giant Pandas Are Returning to San Diego, China Announces**\
 `“Panda diplomacy” has represented an area of cooperation between the United States and China despite tension over weighty issues of trade and national security.`\
 https://nytimes.com/2024/05/01/us/pandas-china-san-diego-zoo.html
@@ -14,9 +18,9 @@ https://nytimes.com/video/business/economy/100000009443617/powell-interest-rates
 `The vice president sought to tie former President Donald J. Trump to the state’s six-week abortion ban, which took effect on Wednesday.`\
 https://nytimes.com/2024/05/01/us/politics/florida-abortion-harris-trump.html
 
-**Fordham students, inspired by Columbia protests, brace for police crackdown.**\
-`By Olivia Bensimon and Lola Fadulu`\
-https://nytimes.com/live/2024/05/01/nyregion/columbia-university-protests/fordham-university-protests
+**Fordham Students, Inspired by Columbia Protests, Brace for Police Crackdown**\
+`Students who erected tents inside an academic building appeared undeterred the day after nearly 300 people were arrested elsewhere in Manhattan at Columbia University and City College of New York.`\
+https://nytimes.com/2024/05/01/nyregion/fordham-university-protest-police.html
 
 **In Bid to Oust Johnson, Greene Tries to Reclaim a Powerful Perch on the Fringe**\
 `The Georgia Republican’s doomed push to remove the speaker has placed her at odds with most in her party, but it has brought her back to her roots as a norm-busting provocateur.`\
@@ -29,8 +33,4 @@ https://nytimes.com/video/us/politics/100000009443287/harris-trump-abortion.html
 **Olga Fikotova Connolly, Olympian in a Cold War Romance, Dies at 91**\
 `She was from Czechoslovakia. He was from the U.S. And after meeting at the 1956 Games and winning gold medals, they married. Love had breached the iron curtain.`\
 https://nytimes.com/2024/05/01/sports/olympics/olga-fikotova-connolly-dead.html
-
-**Thursday Briefing: Police Deployed at U.S. Campuses**\
-`Also, China’s surging electric car market and a new Netflix series from India.`\
-https://nytimes.com/2024/05/01/world/asia/protest-ucla-columbia-china-asia.html
 

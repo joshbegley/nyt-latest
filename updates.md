@@ -1,3 +1,11 @@
+**Arizona Voted to Repeal Its Abortion Ban**\
+`Also, the Fed eyes a longer period of high rates. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/05/01/briefing/arizona-abortion-ban-campus-protests.html
+
+**Fordham Students, Inspired by Columbia Protests, Brace for Police Crackdown**\
+`Students who erected tents inside an academic building appeared undeterred the day after nearly 300 people were arrested elsewhere in Manhattan at Columbia University and City College of New York.`\
+https://nytimes.com/2024/05/01/nyregion/fordham-university-protest-police.html
+
 **Giant Pandas Are Returning to San Diego, China Announces**\
 `“Panda diplomacy” has represented an area of cooperation between the United States and China despite tension over weighty issues of trade and national security.`\
 https://nytimes.com/2024/05/01/us/pandas-china-san-diego-zoo.html
