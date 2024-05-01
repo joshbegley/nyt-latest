@@ -1,3 +1,7 @@
+**Columbia Asks N.Y.P.D. to Stay on Campus Through Middle of May**\
+`The university released the letter after police entered Hamilton Hall, a building that was occupied by dozens of demonstrators. Columbia’s commencement is currently scheduled for May 15.`\
+https://nytimes.com/2024/04/30/nyregion/columbia-shafik-protests-police.html
+
 **Tornado Destroys Homes, Kills at Least One in Kansas**\
 `A powerful tornado ripped through a community in northeastern Kansas on Tuesday afternoon, destroying dozens of homes and structures and killing at least one person, officials said.`\
 https://nytimes.com/2024/04/30/us/kansas-tornado-storms-weather.html
