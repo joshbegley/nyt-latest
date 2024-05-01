@@ -1,3 +1,7 @@
+**Paul Auster’s New York Tragedy**\
+`A complicated, generous life yielded a body of work of staggering scope and variety.`\
+https://nytimes.com/2024/04/30/books/review/paul-auster-appreciation.html
+
 **Paul Auster, Prolific Author and Brooklyn Literary Star, Dies at 77**\
 `With critically lauded works like “The New York Trilogy,” the charismatic author and patron saint of his adopted borough drew worldwide acclaim.`\
 https://nytimes.com/2024/04/30/books/paul-auster-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/30/us/prom-drag-show-high-school-nm.html
 **Transcript: Ezra Klein Interviews Hannah Ritchie**\
 `The April 30, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/04/30/podcasts/transcript-ezra-klein-interviews-hannah-ritchie.html
-
-**Law Firm Defending Trump Seeks to Withdraw From a Long-Running Case**\
-`The firm, LaRocca Hornik, has represented Donald Trump’s political operation in numerous suits dating to his first presidential run, including a pregnancy discrimination case in New York.`\
-https://nytimes.com/2024/04/30/us/politics/trump-lawyers-delgado.html
 
