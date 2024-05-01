@@ -1,3 +1,7 @@
+**In Florida, Harris Looks to Make Trump the Face of the State’s Abortion Ban**\
+`The vice president sought to tie former President Donald J. Trump to the state’s six-week abortion ban, which took effect on Wednesday.`\
+https://nytimes.com/2024/05/01/us/politics/florida-abotion-harris-trump.html
+
 **Fordham students, inspired by Columbia protests, brace for police crackdown.**\
 `By Olivia Bensimon and Lola Fadulu`\
 https://nytimes.com/live/2024/05/01/nyregion/columbia-university-protests/fordham-university-protests
@@ -7,7 +11,7 @@ https://nytimes.com/live/2024/05/01/nyregion/columbia-university-protests/fordha
 https://nytimes.com/2024/05/01/us/politics/marjorie-taylor-greene-congress.html
 
 **Harris Blasts Trump Over Florida Abortion Ban**\
-`On the day that Florida began to enforce its six-week abortion ban, Vice President Kamala Harris delivered a searing attack on former President Donald J. Trump in Jacksonville, calling the measure “another Trump abortion ban.”`\
+`On the day that Florida began to enforce its six-week abortion ban, Vice President Kamala Harris delivered a searing attack on former President Donald J. Trump in Jacksonville, Fla., calling the measure “another Trump abortion ban.”`\
 https://nytimes.com/video/us/politics/100000009443287/harris-trump-abortion.html
 
 **Olga Fikotova Connolly, Olympian in a Cold War Romance, Dies at 91**\
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/05/01/world/israel-gaza-war-hamas/colombias-presid
 **Kim Noltemy, Orchestra Veteran, Is Tapped to Lead L.A. Philharmonic**\
 `Noltemy, the Dallas Symphony Orchestra’s chief executive, will take the helm of the Philharmonic as it searches for its next music director.`\
 https://nytimes.com/2024/05/01/arts/music/kim-noltemy-los-angeles-philharmonic.html
-
-**Walnuts Recalled From Natural Food Stores After E. Coli Outbreak**\
-`The outbreak linked to shelled organic walnuts distributed by Gibson Farms has sickened 12 people and hospitalized seven in California and Washington State, federal officials said.`\
-https://nytimes.com/2024/05/01/business/walnuts-recall-ecoli-whole-foods.html
 
