@@ -1,3 +1,7 @@
+**Police Arrest Columbia Protesters Occupying Hamilton Hall**\
+`Officers entered the building through a second-floor window using a bridge on top of an emergency service vehicle.`\
+https://nytimes.com/video/us/100000009442290/columbia-protest-police-new-york.html
+
 **Student Orchestra**\
 `A youth ensemble in New York City had an extraordinary opportunity. Would you want to be a part of a school orchestra or band?`\
 https://nytimes.com/2024/05/01/learning/student-orchestra.html

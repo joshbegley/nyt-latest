@@ -1,3 +1,7 @@
+**Police Arrest Columbia Protesters Occupying Hamilton Hall**\
+`Officers entered the building through a second-floor window using a bridge on top of an emergency service vehicle.`\
+https://nytimes.com/video/us/100000009442290/columbia-protest-police-new-york.html
+
 **Student Orchestra**\
 `A youth ensemble in New York City had an extraordinary opportunity. Would you want to be a part of a school orchestra or band?`\
 https://nytimes.com/2024/05/01/learning/student-orchestra.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/01/world/asia/korea-doctors-strike-yoon.html
 **Word of the Day: pigeonhole**\
 `This word has appeared in 15 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/05/01/learning/word-of-the-day-pigeonhole.html
-
-**Blinken seeks to avert Israeli offensive while getting Hamas support for a deal.**\
-`President Biden is pushing Hamas to release some hostages for a six-week cease-fire, but Prime Minister Benjamin Netanyahu says he will do a major assault in Rafah “with or without” a deal.`\
-https://nytimes.com/live/2024/05/01/world/israel-gaza-war-hamas/blinken-seeks-to-avert-israeli-offensive-while-getting-hamas-support-for-a-deal
 
