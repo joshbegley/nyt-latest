@@ -1,3 +1,15 @@
+**Record Number of Writers Were Jailed Globally in 2023, PEN America Says**\
+`For the first time, China has more than 100 incarcerated writers, and Israel and Russia entered the list of the 10 countries with the most imprisoned writers.`\
+https://nytimes.com/2024/05/01/world/jailed-writers-pen-index.html
+
+**Unruly Passenger Must Pay United Airlines $20,638 for Disrupting Flight**\
+`The man had been “verbally and physically aggressive” on a United flight from London to Newark, prompting the plane to land in Bangor, Maine, prosecutors said.`\
+https://nytimes.com/2024/05/01/us/united-airlines-passenger-diverted-flight.html
+
+**Should I Lie So That My Cousin Can Have a Catholic Wedding?**\
+`The magazine’s Ethicist columnist on whether to fib for a relative, especially when you don’t think the ends justify the means.`\
+https://nytimes.com/2024/05/01/magazine/catholic-cousin-annulment-ethics.html
+
 **Counterprotesters Storm U.C.L.A. Pro-Palestinian Encampment**\
 `Violence broke out as counterprotesters attempted to pull down barricades at a pro-Palestinian encampment at the University of California, Los Angeles.`\
 https://nytimes.com/video/us/100000009442577/ucla-campus-protest-clashes-gaza-israel.html
