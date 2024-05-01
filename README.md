@@ -1,3 +1,7 @@
+**Duane Eddy, Whose Twang Changed Rock ’n’ Roll, Dies at 86**\
+`A self-taught electric guitar virtuoso, he influenced a generation of musicians. One of them, John Fogerty, called him rock’s first guitar god.`\
+https://nytimes.com/2024/05/01/arts/music/duane-eddy-dead.html
+
 **Popcast (Deluxe): Sabrina Carpenter, Chappell Roan + Editing Taylor Swift**\
 `Picking the best songs from “The Tortured Poets Department” one week later. Plus: the rise of a pair of pop’s middle-class stars.`\
 https://nytimes.com/2024/05/01/arts/music/sabrina-carpenter-taylor-swift-popcast.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/01/us/pro-palestinian-college-protests.html
 **The 63-Year-Old Career Activist Among the Protesters at Columbia**\
 `Videos show Lisa Fithian, whom the police called a “professional agitator,” working alongside protesters who stormed Hamilton Hall.`\
 https://nytimes.com/2024/05/01/nyregion/columbia-university-protest-consultant-lisa-fithian.html
-
-**Transcript of Trump Manhattan Trial, April 26, 2024**\
-`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
-https://nytimes.com/interactive/2024/05/01/nyregion/trump-hush-money-trial-transcript-april-26.html
 

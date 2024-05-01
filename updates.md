@@ -1,3 +1,7 @@
+**The 63-Year-Old Career Activist Among the Protesters at Columbia**\
+`Videos show Lisa Fithian, whom the police called a “professional agitator,” working alongside protesters who stormed Hamilton Hall.`\
+https://nytimes.com/2024/05/01/nyregion/columbia-university-protest-consultant-lisa-fithian.html
+
 **nThe 63-Year-Old Career Activist Among the Protesters at Columbia**\
 `Videos show Lisa Fithian, whom the police called a “professional agitator,” working alongside protesters who stormed Hamilton Hall.`\
 https://nytimes.com/2024/05/01/nyregion/columbia-university-protest-consultant-lisa-fithian.html
