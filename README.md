@@ -1,3 +1,7 @@
+**Eric Adams Seizes Role as Face of the Crackdown on Student Protests**\
+`Mayor Eric Adams defended the arrests of nearly 300 protesters and said he would not allow the protests to disrupt the city.`\
+https://nytimes.com/2024/05/01/nyregion/eric-adams-columbia-protests.html
+
 **Chicken katsu, weeknight rescue**\
 `Kay Chun’s recipe cleverly shallow-fries the cutlets so they emerge golden and crispy, ready for rice, tonkatsu sauce and a shaggy mound of shredded cabbage.`\
 https://nytimes.com/2024/05/01/dining/chicken-katsu-weeknight-rescue.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/01/us/politics/biden-cancels-6-1-billion-in-debt-for
 **Greene Says She Will Demand Vote Next Week on Removing Johnson**\
 `Representative Marjorie Taylor Greene, the right-wing Republican from Georgia, excoriated the House speaker for working with Democrats to push through major bills. She said she would move ahead despite all but certain defeat.`\
 https://nytimes.com/2024/05/01/us/politics/marjorie-taylor-greene-mike-johnson-speaker.html
-
-**Some Gazans Say U.S. Campus Protests Give Them ‘Hope’**\
-`The protests have come at a fearful time for Palestinians in Rafah, with Prime Minister Benjamin Netanyahu of Israel vowing to launch a ground invasion of the city.`\
-https://nytimes.com/2024/05/01/world/middleeast/us-college-protests-gaza-palestinians.html
 
