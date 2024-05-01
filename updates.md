@@ -1,3 +1,11 @@
+**Blinken seeks to avert Israeli offensive while getting Hamas support for a deal.**\
+`President Biden is pushing Hamas to release some hostages for a six-week ceasefire, but Prime Minister Benjamin Netanyahu says he will do a major assault in Rafah “with or without” a deal.`\
+https://nytimes.com/live/2024/05/01/world/israel-gaza-war-hamas/blinken-seeks-to-avert-israeli-offensive-while-getting-hamas-support-for-a-deal
+
+**01mideast-crisis**\
+`Blinken Meets With Israeli Leaders as Netanyahu Promises Assault on Rafah`\
+https://nytimes.com/live/2024/05/01/world/israel-gaza-war-hamas
+
 **A group of House Democrats was among those urging Columbia to crack down.**\
 `By Minho Kim and Luke Broadwater`\
 https://nytimes.com/live/2024/04/30/nyregion/columbia-protests-college/a-group-of-house-democrats-was-among-those-urging-columbia-to-crack-down
