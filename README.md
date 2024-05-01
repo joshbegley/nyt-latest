@@ -1,3 +1,7 @@
+**Trump Praises Police Crackdowns on Campus Protests**\
+`The former president called protesters “raging lunatics” and suggested, without evidence, that they were hired to draw attention away from border crossings.`\
+https://nytimes.com/2024/05/01/us/politics/trump-rally-campus-protests.html
+
 **Biden to Address Holocaust Remembrance While Still Quiet on Campus Unrest**\
 `The president has largely left it to aides to respond to anti-Israel protests at colleges across the country, but he is planning a speech next week at an event sponsored by the U.S. Holocaust Memorial Museum.`\
 https://nytimes.com/2024/05/01/us/politics/biden-speech-campus-protests.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/01/us/politics/florida-abortion-harris-trump.html
 **Fordham Students, Inspired by Columbia Protests, Brace for Police Crackdown**\
 `Students who erected tents inside an academic building appeared undeterred the day after nearly 300 people were arrested elsewhere in Manhattan at Columbia University and City College of New York.`\
 https://nytimes.com/2024/05/01/nyregion/fordham-university-protest-police.html
-
-**In Bid to Oust Johnson, Greene Tries to Reclaim a Powerful Perch on the Fringe**\
-`The Georgia Republican’s doomed push to remove the speaker has placed her at odds with most in her party, but it has brought her back to her roots as a norm-busting provocateur.`\
-https://nytimes.com/2024/05/01/us/politics/marjorie-taylor-greene-congress.html
 

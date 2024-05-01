@@ -1,3 +1,11 @@
+**Biden to Address Holocaust Remembrance While Still Quiet on Campus Unrest**\
+`The president has largely left it to aides to respond to anti-Israel protests at colleges across the country, but he is planning a speech next week at an event sponsored by the U.S. Holocaust Memorial Museum.`\
+https://nytimes.com/2024/05/01/us/politics/biden-speech-campus-protests.html
+
+**‘Lack of Further Progress’ on Inflation Keeps Interest Rates High**\
+`Jerome H. Powell, the Fed chair, said that the central bank needed “greater confidence” that inflation was coming down before it decided to cut interest rates, which are at a two-decade high.`\
+https://nytimes.com/video/business/economy/100000009443617/powell-interest-rates-inflation.html
+
 **Mountain Goats Are Not Avalanche-Proof**\
 `The scene ends badly, as you might imagine.`\
 https://nytimes.com/2024/05/01/science/avalanche-mountain-goats.html
