@@ -1,3 +1,15 @@
+**Pasteurized Dairy Foods Free of Live Bird Flu, Federal Tests Confirm**\
+`But the scope of the outbreak among cattle remains uncertain, and little human testing has been done.`\
+https://nytimes.com/2024/05/01/health/bird-flu-milk-cows.html
+
+**‘Active Shooter’ Is ‘Neutralized’ Near Wisconsin Middle School, Officials Say**\
+`School officials in Mount Horeb, Wis., southwest of Madison, said that no one else was harmed and that schools were placed on lockdown.`\
+https://nytimes.com/2024/05/01/us/wisconsin-mount-horeb-active-shooter.html
+
+**How Six-Week Abortion Bans Went From Fringe to Reality**\
+`Even opponents of abortion saw such curbs as too controversial just over a decade ago. Times have changed.`\
+https://nytimes.com/2024/05/01/us/politics/six-week-abortion-bans.html
+
 **Read Transcripts From Trump’s Manhattan Criminal Trial**\
 `The New York Times is publishing the court system’s transcripts from the Manhattan criminal trial of Donald J. Trump, who is charged with 34 felonies in the case.`\
 https://nytimes.com/article/trump-hush-money-trial-transcripts.html

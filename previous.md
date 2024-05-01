@@ -1,3 +1,15 @@
+**Pasteurized Dairy Foods Free of Live Bird Flu, Federal Tests Confirm**\
+`But the scope of the outbreak among cattle remains uncertain, and little human testing has been done.`\
+https://nytimes.com/2024/05/01/health/bird-flu-milk-cows.html
+
+**‘Active Shooter’ Is ‘Neutralized’ Near Wisconsin Middle School, Officials Say**\
+`School officials in Mount Horeb, Wis., southwest of Madison, said that no one else was harmed and that schools were placed on lockdown.`\
+https://nytimes.com/2024/05/01/us/wisconsin-mount-horeb-active-shooter.html
+
+**How Six-Week Abortion Bans Went From Fringe to Reality**\
+`Even opponents of abortion saw such curbs as too controversial just over a decade ago. Times have changed.`\
+https://nytimes.com/2024/05/01/us/politics/six-week-abortion-bans.html
+
 **Read Transcripts From Trump’s Manhattan Criminal Trial**\
 `The New York Times is publishing the court system’s transcripts from the Manhattan criminal trial of Donald J. Trump, who is charged with 34 felonies in the case.`\
 https://nytimes.com/article/trump-hush-money-trial-transcripts.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/05/01/science/avalanche-mountain-goats.html
 **Arizona Voted to Repeal Its Abortion Ban**\
 `Also, the Fed eyes a longer period of high rates. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/05/01/briefing/arizona-abortion-ban-campus-protests.html
-
-**Giant Pandas Are Returning to San Diego, China Announces**\
-`“Panda diplomacy” has represented an area of cooperation between the United States and China despite tension over weighty issues of trade and national security.`\
-https://nytimes.com/2024/05/01/us/pandas-china-san-diego-zoo.html
-
-**Veteran Collected Benefits After Lying About Purple Heart, U.S. Says**\
-`Sharon Toney-Finch, who served in Iraq, was charged with fraudulently claiming to have a Purple Heart and with defrauding the Department of Veterans Affairs.`\
-https://nytimes.com/2024/05/01/nyregion/veteran-charged-purple-heart-fraud.html
-
-**‘Lack of Further Progress’ on Inflation Keeps Interest Rates High**\
-`Jerome H. Powell, the Fed chair, said that the central bank needed “greater confidence” that inflation was coming down before it decided to cut interest rates, which are at a two-decade high.`\
-https://nytimes.com/video/business/economy/100000009443617/powell-interest-rates-inflation.html
 
