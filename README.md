@@ -1,3 +1,7 @@
+**Democrats Win New York Special House Election, Narrowing G.O.P. Majority**\
+`The victory by Timothy Kennedy, a Democratic state senator, was not a surprise. But it will make Republicans’ lives more difficult in Washington.`\
+https://nytimes.com/2024/04/30/nyregion/timohy-kennedy-special-election.html
+
 **Albuquerque School’s Staff on Leave After Drag Show at Prom**\
 `Albuquerque Public Schools in New Mexico also installed an acting principal as it investigates a high school prom.`\
 https://nytimes.com/2024/04/30/us/prom-drag-show-high-school-nm.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/30/us/politics/nsa-warrantless-surveillance-american
 **‘Staff Meal’ Review: The Last Course for Doomsday Diners and Dates**\
 `Restaurant patrons and staff members are oblivious to the impending apocalypse in Abe Koogler’s new show at Playwrights Horizons.`\
 https://nytimes.com/2024/04/30/theater/staff-meal-review-abe-koogler.html
-
-**Netanyahu Vows to Invade Rafah ‘With or Without’ Cease-Fire Deal**\
-`As mediators pressed for a truce and Secretary of State Antony J. Blinken toured the region, a ground incursion into the southern Gazan city loomed.`\
-https://nytimes.com/2024/04/30/world/middleeast/netanyahu-invasion-rafah-cease-fire.html
 
