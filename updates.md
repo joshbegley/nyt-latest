@@ -1,3 +1,7 @@
+**When Banks Fail, Why Do We Keep Bailing Out Uninsured Depositors?**\
+`In routinely making the uninsured whole, the F.D.I.C. isn’t doing its job, an N.Y.U. professor argues.`\
+https://nytimes.com/2024/05/01/opinion/fdic-insurance-banks.html
+
 **Duane Eddy, Whose Twang Changed Rock ’n’ Roll, Dies at 86**\
 `A self-taught electric guitar virtuoso, he influenced a generation of musicians. One of them, John Fogerty, called him rock’s first guitar god.`\
 https://nytimes.com/2024/05/01/arts/music/duane-eddy-dead.html
