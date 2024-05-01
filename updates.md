@@ -1,3 +1,7 @@
+**Text of April 30 Letter From Columbia’s President to N.Y.P.D.**\
+`Dozens of pro-Palestinian demonstrators at Columbia University in Manhattan were arrested Tuesday night by hundreds of police officers in riot gear after Columbia’s president, Nemat Shafik, requested police intervention.`\
+https://nytimes.com/2024/04/30/nyregion/columbia-nypd-letter-text.html
+
 **Columbia Asks N.Y.P.D. to Stay on Campus Through Middle of May**\
 `The university released the letter after police entered Hamilton Hall, a building that was occupied by dozens of demonstrators. Columbia’s commencement is currently scheduled for May 15.`\
 https://nytimes.com/2024/04/30/nyregion/columbia-shafik-protests-police.html
