@@ -8,7 +8,7 @@ https://nytimes.com/2024/05/01/briefing/columbia-protest-arrest-trump-contempt.h
 
 **He Won by a Landslide. Why Is He Fighting for His Political Life?**\
 `Ben Houchen, a regional mayor in the north of England, faces a close re-election race, partly thanks to the broader troubles of Britain’s Conservative Party.`\
-https://nytimes.com/2024/05/01/world/europe/he-won-by-a-landslide-why-is-he-fighting-for-his-political-life.html
+https://nytimes.com/2024/05/01/world/europe/uk-election-mayor-ben-houchen.html
 
 **China’s Electric Cars Keep Improving, a Worry for Rivals Elsewhere**\
 `More capable autonomous driving is just one way Chinese automakers are threatening to pull ahead — their E.V.s are also becoming bigger and roomier.`\
