@@ -1,3 +1,11 @@
+**Senate Democrats Reintroduce Legislation to Legalize Marijuana**\
+`The bill, which reflects growing support for legalization, would end the federal prohibition on cannabis. But it is unlikely to pass in an election year and a divided government.`\
+https://nytimes.com/2024/05/01/us/politics/senate-democrats-marijuana-biden.html
+
+**Republicans Call on NPR’s C.E.O. to Testify About Political Bias**\
+`Katherine Maher, the radio network’s new chief executive, has been in the spotlight since an editor published an essay accusing the organization of leftward-leaning bias.`\
+https://nytimes.com/2024/05/01/business/media/npr-republican-bias-ceo-katherine-maher.html
+
 **Dan Schneider Sues ‘Quiet on Set’ Creators, Saying Series Defamed Him**\
 `In the suit, lawyers for the former Nickelodeon producer called the documentary a “hit job” that had falsely painted him as a “child sexual abuser.”`\
 https://nytimes.com/2024/05/01/arts/television/quiet-on-set-creators-sued.html
@@ -25,12 +33,4 @@ https://nytimes.com/article/trump-hush-money-trial-transcripts.html
 **Blinken Turns Up Pressure on Hamas to Accept Gaza Cease-Fire Deal**\
 `“The time is now,” Secretary of State Antony J. Blinken declared, urging Hamas to accept the terms of a proposed truce. He also made clear that he expected more from Israel.`\
 https://nytimes.com/2024/05/01/world/middleeast/blinken-hamas-israel-gaza-cease-fire.html
-
-**Trump Praises Police Crackdowns on Campus Protests**\
-`The former president called protesters “raging lunatics” and suggested, without evidence, that they were hired to draw attention away from border crossings.`\
-https://nytimes.com/2024/05/01/us/politics/trump-rally-campus-protests.html
-
-**Biden to Address Holocaust Remembrance While Still Quiet on Campus Unrest**\
-`The president has largely left it to aides to respond to anti-Israel protests at colleges across the country, but he is planning a speech next week at an event sponsored by the U.S. Holocaust Memorial Museum.`\
-https://nytimes.com/2024/05/01/us/politics/biden-speech-campus-protests.html
 
