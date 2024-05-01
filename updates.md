@@ -1,3 +1,7 @@
+**Veteran Collected Benefits After Lying About Purple Heart, U.S. Says**\
+`Sharon Toney-Finch, who served in Iraq, was charged with fraudulently claiming to have a Purple Heart and with defrauding the Department of Veterans Affairs.`\
+https://nytimes.com/2024/05/01/nyregion/veteran-charged-purple-heart-fraud.html
+
 **Trump Praises Police Crackdowns on Campus Protests**\
 `The former president called protesters “raging lunatics” and suggested, without evidence, that they were hired to draw attention away from border crossings.`\
 https://nytimes.com/2024/05/01/us/politics/trump-rally-campus-protests.html
