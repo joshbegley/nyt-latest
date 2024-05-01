@@ -1,3 +1,7 @@
+**Columbia Said It Had ‘No Choice’ but to Call the Police**\
+`Columbia’s president expressed regret about calling in the police to clear a previous protest. On Tuesday, she said she had “no choice” after protesters occupied a building on campus.`\
+https://nytimes.com/2024/05/01/nyregion/columbia-university-protests-arrests.html
+
 **Here are the latest developments.**\
 `By Mike Ives`\
 https://nytimes.com/live/2024/05/01/nyregion/columbia-university-protests/here-are-the-latest-developments
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/01/crosswords/wordle-review.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/05/01/crosswords/spelling-bee-forum.html
-
-**Late Night Weighs In on Donald Trump’s $9,000 Fine**\
-`“I know $9,000 might not seem like a lot to a successful businessman, but what about to Trump?” Colbert said of the court-imposed penalty for violating a gag order.`\
-https://nytimes.com/2024/05/01/arts/television/late-night-trump-contempt.html
 
