@@ -1,3 +1,11 @@
+**Johnson & Johnson Proposes $6.5 Billion in New Talc Settlement Offer**\
+`The offer is the company’s third attempt to resolve tens of thousands of claims that its baby powder caused ovarian cancer and mesothelioma.`\
+https://nytimes.com/2024/05/01/business/johnson-johnson-talc-settlement.html
+
+**Why haven’t higher rates crushed economic growth?**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/05/01/business/fed-meeting-interest-rates/why-havent-higher-rates-crushed-economic-growth
+
 **What the First Amendment Means for Campus Protests**\
 `Encampments? Occupying buildings? Demonstrators cite their right to free expression, but the issues are thorny.`\
 https://nytimes.com/2024/05/01/us/free-speech-campus-protests.html
