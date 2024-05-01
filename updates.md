@@ -1,3 +1,7 @@
+**Kim Noltemy, Orchestra Veteran, Is Tapped to Lead L.A. Philharmonic**\
+`Noltemy, the Dallas Symphony Orchestra’s chief executive, will take the helm of the Philharmonic as it searches for its next music director.`\
+https://nytimes.com/2024/05/01/arts/music/kim-noltemy-los-angeles-philharmonic.html
+
 **Walnuts Recalled From Natural Food Stores After E. Coli Outbreak**\
 `The outbreak linked to shelled organic walnuts distributed by Gibson Farms has sickened 12 people and hospitalized seven in California and Washington State, federal officials said.`\
 https://nytimes.com/2024/05/01/business/walnuts-recall-ecoli-whole-foods.html

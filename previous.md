@@ -1,3 +1,7 @@
+**Kim Noltemy, Orchestra Veteran, Is Tapped to Lead L.A. Philharmonic**\
+`Noltemy, the Dallas Symphony Orchestra’s chief executive, will take the helm of the Philharmonic as it searches for its next music director.`\
+https://nytimes.com/2024/05/01/arts/music/kim-noltemy-los-angeles-philharmonic.html
+
 **Walnuts Recalled From Natural Food Stores After E. Coli Outbreak**\
 `The outbreak linked to shelled organic walnuts distributed by Gibson Farms has sickened 12 people and hospitalized seven in California and Washington State, federal officials said.`\
 https://nytimes.com/2024/05/01/business/walnuts-recall-ecoli-whole-foods.html
@@ -29,12 +33,4 @@ https://nytimes.com/interactive/2024/05/01/arts/editors-recommendations-atomicbl
 **The Latest Campus Battleground Is the Flagpole**\
 `Demonstrators have raised Palestinian flags in place of American flags on several campus, and drawn an angry response.`\
 https://nytimes.com/2024/05/01/us/college-protest-palestinian-flag.html
-
-**Spring Art Fairs Kick Off for Buyers and Browsers Alike**\
-`With Frieze comes a buffet of art in New York City, whether you’re looking for blue-chip galleries or emerging artists.`\
-https://nytimes.com/2024/05/01/arts/design/spring-art-fairs-new-york.html
-
-**In Bankruptcy, Giuliani Set a $43,000 Monthly Budget. Creditors Are Skeptical.**\
-`The former New York mayor and Trump lawyer actually spent nearly $120,000 in January, and his creditors say he is still not turning over required financial information.`\
-https://nytimes.com/2024/05/01/us/politics/bankruptcy-giuliani-spending.html
 

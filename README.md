@@ -1,3 +1,7 @@
+**Colombia’s president says the country will sever ties with Israel, calling its government ‘genocidal.’**\
+`President Gustavo Petro announced on Wednesday that the South American nation planned to break diplomatic ties with Israel.`\
+https://nytimes.com/live/2024/05/01/world/israel-gaza-war-hamas/colombias-president-says-the-country-will-sever-ties-with-israel-calling-its-government-genocidal
+
 **Kim Noltemy, Orchestra Veteran, Is Tapped to Lead L.A. Philharmonic**\
 `Noltemy, the Dallas Symphony Orchestra’s chief executive, will take the helm of the Philharmonic as it searches for its next music director.`\
 https://nytimes.com/2024/05/01/arts/music/kim-noltemy-los-angeles-philharmonic.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/01/nyregion/college-protests-divestment-columbia-bro
 **What’s in Our Queue? ‘Atomic Blonde’ and More**\
 `I report on Hollywood for the Business and Culture desks. Here are five I’ve watched recently.`\
 https://nytimes.com/interactive/2024/05/01/arts/editors-recommendations-atomicblonde.html
-
-**The Latest Campus Battleground Is the Flagpole**\
-`Demonstrators have raised Palestinian flags in place of American flags on several campus, and drawn an angry response.`\
-https://nytimes.com/2024/05/01/us/college-protest-palestinian-flag.html
 
