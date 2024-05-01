@@ -1,3 +1,7 @@
+**Blinken seeks to avert Israeli offensive while getting Hamas support for a deal.**\
+`President Biden is pushing Hamas to release some hostages for a six-week cease-fire, but Prime Minister Benjamin Netanyahu says he will do a major assault in Rafah “with or without” a deal.`\
+https://nytimes.com/live/2024/05/01/world/israel-gaza-war-hamas/blinken-seeks-to-avert-israeli-offensive-while-getting-hamas-support-for-a-deal
+
 **Late Night Weighs In on Donald Trump’s $9,000 Fine**\
 `“I know $9,000 might not seem like a lot to a successful businessman, but what about to Trump?” Colbert said of the court-imposed penalty for violating a gag order.`\
 https://nytimes.com/2024/05/01/arts/television/late-night-trump-contempt.html

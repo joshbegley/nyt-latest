@@ -11,7 +11,7 @@ https://nytimes.com/2024/05/01/world/asia/korea-doctors-strike-yoon.html
 https://nytimes.com/2024/05/01/learning/word-of-the-day-pigeonhole.html
 
 **Blinken seeks to avert Israeli offensive while getting Hamas support for a deal.**\
-`President Biden is pushing Hamas to release some hostages for a six-week ceasefire, but Prime Minister Benjamin Netanyahu says he will do a major assault in Rafah “with or without” a deal.`\
+`President Biden is pushing Hamas to release some hostages for a six-week cease-fire, but Prime Minister Benjamin Netanyahu says he will do a major assault in Rafah “with or without” a deal.`\
 https://nytimes.com/live/2024/05/01/world/israel-gaza-war-hamas/blinken-seeks-to-avert-israeli-offensive-while-getting-hamas-support-for-a-deal
 
 **01mideast-crisis**\
