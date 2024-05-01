@@ -1,3 +1,7 @@
+**Counterprotesters Storm U.C.L.A. Pro-Palestinian Encampment**\
+`Violence broke out as counterprotesters attempted to pull down barricades at a pro-Palestinian encampment at the University of California, Los Angeles.`\
+https://nytimes.com/video/us/100000009442577/ucla-campus-protest-clashes-gaza-israel.html
+
 **Aspirin Can Prevent a Deadly Pregnancy Complication. Why Aren’t Women Told?**\
 `Women at risk for extreme high blood pressure should take a daily baby aspirin. But their doctors don’t always tell them.`\
 https://nytimes.com/2024/05/01/health/pregnancy-preeclampsia-aspirin.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/01/us/politics/california-house-races-pac.html
 **The Best Movies and TV Shows Coming to Amazon, Disney+, Hulu, Apple TV+ and More in May**\
 `“The Idea of You,” “Scrublands,” “The Big Cigar” and “Hacks” are streaming.`\
 https://nytimes.com/2024/05/01/arts/television/may-streaming-movies-tv-shows.html
-
-**14 Protesters Are Arrested at Tulane After Police Clear Encampment**\
-`Two students were among those arrested early Wednesday, the university said. Officers from three law enforcement agencies moved in after ordering the group to disperse.`\
-https://nytimes.com/2024/05/01/nyregion/tulane-university-protests.html
 
