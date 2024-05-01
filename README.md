@@ -1,3 +1,7 @@
+**Paul Auster’s Best Books: A Guide**\
+`The novelist played with reality and chance in tales of solitary narrators and mutable identities. Here’s an overview of his work.`\
+https://nytimes.com/2024/05/01/books/paul-auster-essentials.html
+
 **Hamas has not yet issued an official response to the latest Israeli proposal.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/05/01/world/israel-gaza-war-hamas/hamas-has-not-yet-issued-an-official-response-to-the-latest-israeli-proposal
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/01/world/asia/china-scientist-covid-lab.html
 **Expressway Collapses in Southern China Amid Heavy Rains, Killing 24**\
 `The road gave way in the early morning in an apparent landslide. At least 30 other people were injured, many of them seriously.`\
 https://nytimes.com/2024/05/01/world/asia/highway-collapses-china.html
-
-**Florida Abortion Ban Takes Effect, and U.C.L.A. Calls in Police**\
-`Plus, a possible shift on marijuana policy.`\
-https://nytimes.com/2024/05/01/podcasts/abortion-ban-trumps.html
 
