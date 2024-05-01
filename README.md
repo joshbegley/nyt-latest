@@ -7,7 +7,7 @@ https://nytimes.com/2024/05/01/nyregion/columbia-university-protests-arrests.htm
 https://nytimes.com/live/2024/05/01/nyregion/columbia-university-protests/here-are-the-latest-developments
 
 **01campus-protests**\
-`Live Updates: Tensions Rise At U.S. Campuses as Police Clear Protests`\
+`Live Updates: U.C.L.A. Calls in Police as Clashes Escalate at Campuses`\
 https://nytimes.com/live/2024/05/01/nyregion/columbia-university-protests
 
 **Police Arrest Columbia Protesters Occupying Hamilton Hall**\
