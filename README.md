@@ -1,3 +1,7 @@
+**After a tense night with over 100 arrests, Columbia’s campus remains closed.**\
+`By Lola Fadulu and Santul Nerkar`\
+https://nytimes.com/live/2024/05/01/nyregion/columbia-university-protests/columbia-city-college-arrests-protests
+
 **What to See During New York’s Design Festival**\
 `These are the highlights of what to do and where to go during a busy week of design topics.`\
 https://nytimes.com/2024/05/01/arts/design/new-york-design-festival.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/01/health/pregnancy-preeclampsia-aspirin.html
 **Job Openings and Hiring Are at a 3-Year Ebb**\
 `March data showed a cooling labor market, but layoffs remain low. The overall trend is likely to be welcomed by Federal Reserve policymakers.`\
 https://nytimes.com/2024/05/01/business/economy/jolts-job-openings-hires-quits.html
-
-**His Book Was Repeatedly Banned. Fighting For It Shaped His Life.**\
-`“The Chocolate War,” published 50 years ago, became one of the country’s most challenged books. Its author, Robert Cormier, spent years fighting attempts to ban it — like many authors today.`\
-https://nytimes.com/2024/05/01/books/booksupdate/book-ban-chocolate-war-cormier-.html
 
