@@ -1,3 +1,7 @@
+**When Banks Fail, Why Do We Keep Bailing Out Uninsured Depositors?**\
+`In routinely making the uninsured whole, the F.D.I.C. isn’t doing its job, an N.Y.U. professor argues.`\
+https://nytimes.com/2024/05/01/opinion/fdic-insurance-banks.html
+
 **Duane Eddy, Whose Twang Changed Rock ’n’ Roll, Dies at 86**\
 `A self-taught electric guitar virtuoso, he influenced a generation of musicians. One of them, John Fogerty, called him rock’s first guitar god.`\
 https://nytimes.com/2024/05/01/arts/music/duane-eddy-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/01/business/airbnb-up-house-shrek-listings.html
 **It’s Not Just Gaza: Student Protesters See Links to a Global Struggle**\
 `In many students’ eyes, the war in Gaza is linked to other issues, such as policing, mistreatment of Indigenous people, racism and the impact of climate change.`\
 https://nytimes.com/2024/05/01/us/pro-palestinian-college-protests.html
-
-**The 63-Year-Old Career Activist Among the Protesters at Columbia**\
-`Videos show Lisa Fithian, whom the police called a “professional agitator,” working alongside protesters who stormed Hamilton Hall.`\
-https://nytimes.com/2024/05/01/nyregion/columbia-university-protest-consultant-lisa-fithian.html
 
