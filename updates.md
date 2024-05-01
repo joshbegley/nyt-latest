@@ -1,3 +1,7 @@
+**What the First Amendment Means for Campus Protests**\
+`Encampments? Occupying buildings? Demonstrators cite their right to free expression, but the issues are thorny.`\
+https://nytimes.com/2024/05/01/us/free-speech-campus-protests.html
+
 **Wall Street is worried about the cost of government debt.**\
 `By Joe Rennison`\
 https://nytimes.com/live/2024/05/01/business/fed-meeting-interest-rates/wall-street-is-worried-about-the-cost-of-government-debt
