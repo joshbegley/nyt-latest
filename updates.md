@@ -1,3 +1,7 @@
+**Late Night Weighs In on Donald Trump’s $9,000 Fine**\
+`“I know $9,000 might not seem like a lot to a successful businessman, but what about to Trump?” Colbert said of the court-imposed penalty for violating a gag order.`\
+https://nytimes.com/2024/05/01/arts/television/late-night-trump-contempt.html
+
 **Frustrated South Koreans Blame President in Standoff With Doctors**\
 `A walkout by physicians has dragged on for weeks, as they protest a plan by President Yoon Suk Yeol’s government to increase medical school enrollment.`\
 https://nytimes.com/2024/05/01/world/asia/korea-doctors-strike-yoon.html
