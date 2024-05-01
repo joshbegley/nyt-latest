@@ -1,3 +1,7 @@
+**Paul Auster, Prolific Author and Brooklyn Literary Star, Dies at 77**\
+`With critically lauded works like “The New York Trilogy,” the charismatic author and patron saint of his adopted borough drew worldwide acclaim.`\
+https://nytimes.com/2024/04/30/books/paul-auster-dead.html
+
 **Text of April 30 Letter From Columbia’s President to N.Y.P.D.**\
 `Dozens of pro-Palestinian demonstrators at Columbia University in Manhattan were arrested Tuesday night by hundreds of police officers in riot gear after Columbia’s president, Nemat Shafik, requested police intervention.`\
 https://nytimes.com/2024/04/30/nyregion/columbia-nypd-letter-text.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/30/podcasts/transcript-ezra-klein-interviews-hannah-
 **Law Firm Defending Trump Seeks to Withdraw From a Long-Running Case**\
 `The firm, LaRocca Hornik, has represented Donald Trump’s political operation in numerous suits dating to his first presidential run, including a pregnancy discrimination case in New York.`\
 https://nytimes.com/2024/04/30/us/politics/trump-lawyers-delgado.html
-
-**Even Celebrities Don’t Know How to Ask Their Friends About Ozempic**\
-`When Barbra Streisand posted a comment on social media about the actress Melissa McCarthy, it prompted a public conversation.`\
-https://nytimes.com/2024/04/30/style/ozempic-barbra-streisand-melissa-mccarthy.html
 
