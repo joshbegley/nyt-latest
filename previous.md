@@ -1,3 +1,31 @@
+**Collusion in Health Care Pricing? Regulators Are Asked to Investigate**\
+`A data analytics firm has helped big health insurers cut payments to doctors, raising concerns about possible price fixing.`\
+https://nytimes.com/2024/05/01/us/multiplan-health-insurance-price-fixing.html
+
+**U.S. Imposes Sanctions on Chinese Companies for Aiding Russia’s War Effort**\
+`The penalties came after top Biden administration officials warned China not to help Moscow restock its arsenal to attack Ukraine.`\
+https://nytimes.com/2024/05/01/us/politics/us-sanctions-china-russia.html
+
+**Some Democrats are urging Biden to put pressure on the Fed.**\
+`By Jim Tankersley and Jeanna Smialek`\
+https://nytimes.com/live/2024/05/01/business/fed-meeting-interest-rates/some-democrats-are-urging-biden-to-put-pressure-on-the-fed
+
+**Transcript of Trump Manhattan Trial, April 23, 2024**\
+`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
+https://nytimes.com/interactive/2024/05/01/nyregion/trump-hush-money-trial-transcript-april-23.html
+
+**The Best Movies and TV Shows Coming to Netflix in May**\
+`Highlights this month include an adaptation of Tom Wolfe’s “A Man in Full” and Jerry Seinfeld’s directorial debut.`\
+https://nytimes.com/2024/05/01/arts/television/netflix-new-movies-shows-may.html
+
+**Truth Social Co-Founder Says Trump Nearly Derailed Deal That Led to Market Windfall**\
+`Andy Litinsky, who helped start the former president’s social media company, revealed Mr. Trump’s last-minute doubts about an agreement that made them all very wealthy.`\
+https://nytimes.com/2024/05/01/business/truth-social-trump-media-trial.html
+
+**From Florida to Arizona, Abortion Politics Dominate the 2024 Race**\
+`As a six-week ban takes effect in Florida, and Arizona legislators move to repeal their 1864 law restricting the procedure, Democrats hope the issue will help carry them through a tough political environment.`\
+https://nytimes.com/2024/05/01/us/politics/abortion-politics-2024-race.html
+
 **Bird Flu Highlights Concerns Around Raw Milk**\
 `Testing suggests that pasteurization inactivates the virus. But what about raw milk and cheese?`\
 https://nytimes.com/2024/05/01/well/eat/bird-flu-milk-raw.html
@@ -9,32 +37,4 @@ https://nytimes.com/live/2024/05/01/world/israel-gaza-war-hamas/blinken-calls-on
 **Why Is ‘Baby Reindeer’ Such a Hit? It’s All in the Ending.**\
 `The Netflix stalker series combines the appeal of a twisty thriller with a deep sense of empathy. The conclusion illustrates why it’s become one of the most-discussed shows of the year.`\
 https://nytimes.com/2024/05/01/arts/television/baby-reindeer-netflix-finale.html
-
-**Transcript of Trump Manhattan Trial, April 22, 2024**\
-`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
-https://nytimes.com/interactive/2024/05/01/nyregion/trump-hush-money-trial-transcript-april-22.html
-
-**Eric Adams Says ‘Outside Agitators’ Co-opted Campus Protests in N.Y.C.**\
-`Without providing evidence, Mayor Eric Adams said that the protests on campuses in New York City had been infiltrated by “outside agitators” seeking to sow chaos.`\
-https://nytimes.com/video/nyregion/100000009442999/eric-adams-college-protests.html
-
-**High interest rates have made the dollar stronger.**\
-`By Joe Rennison and Karl Russell`\
-https://nytimes.com/live/2024/05/01/business/fed-meeting-interest-rates/high-interest-rates-have-made-the-dollar-stronger
-
-**Flooding in a Kenyan Natural Reserve Forces Tourist Evacuation**\
-`The heavy rains that have pounded East Africa for weeks, killing hundreds, have now spilled into the Masai Mara, one of Africa’s greatest wildlife national reserves.`\
-https://nytimes.com/2024/05/01/world/africa/kenya-flooding.html
-
-**Judging the Justices on the Presidential Immunity Case**\
-`Responses to articles about the case before the Supreme Court. Also: Perspectives on the campus protests; how children value trees as homes for animals.`\
-https://nytimes.com/2024/05/01/opinion/supreme-court-presidential-immunity.html
-
-**Pet Alligator Is Mistakenly Released Into the Wild, Owner Says**\
-`Wally, an emotional support alligator, was apparently kidnapped, found and dropped in a swamp.`\
-https://nytimes.com/2024/05/01/us/alligator-kidnapping-georgia.html
-
-**NASCAR and Its Race Teams Fight Over the Sport’s Future**\
-`Team owners said they needed to share in racing’s financial success, putting them at odds with the privately held business that runs the sport.`\
-https://nytimes.com/2024/05/01/business/nascar-racing-teams-charters.html
 
