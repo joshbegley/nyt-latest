@@ -1,3 +1,19 @@
+**Transcript of Trump Manhattan Trial, April 25, 2024**\
+`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
+https://nytimes.com/interactive/2024/05/01/nyregion/trump-hush-money-trial-transcript-april-25.html
+
+**How to Make an Easy Picnic That Transports You to France**\
+`A pepper-crusted flank steak and French potato salad anchor this summery menu from David Tanis.`\
+https://nytimes.com/2024/05/01/dining/easy-picnic-recipes.html
+
+**The Police Clear Pro-Palestinian Protest at Tulane University**\
+`More than a dozen people were arrested at an encampment on the campus of Tulane University in New Orleans, the university said.`\
+https://nytimes.com/video/us/100000009443036/tulane-university-new-orleans-protest-israel-gaza.html
+
+**Are Smartphones Driving Our Teens to Depression?**\
+`The evidence reveals a more complicated reality than the conventional wisdom would have you believe.`\
+https://nytimes.com/2024/05/01/opinion/smartphones-social-media-mental-health-teens.html
+
 **Met Museum Reaches Fund-Raising Goal for New Modern Wing**\
 `The museum achieves a milestone, but still faces a complex public approval process for its Tang Wing, which is on city land.`\
 https://nytimes.com/2024/05/01/arts/design/met-museum-fund-raising-modern-wing.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/05/01/business/fed-meeting-interest-rates/some-dem
 **Transcript of Trump Manhattan Trial, April 23, 2024**\
 `New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
 https://nytimes.com/interactive/2024/05/01/nyregion/trump-hush-money-trial-transcript-april-23.html
-
-**The Best Movies and TV Shows Coming to Netflix in May**\
-`Highlights this month include an adaptation of Tom Wolfe’s “A Man in Full” and Jerry Seinfeld’s directorial debut.`\
-https://nytimes.com/2024/05/01/arts/television/netflix-new-movies-shows-may.html
-
-**Truth Social Co-Founder Says Trump Nearly Derailed Deal That Led to Market Windfall**\
-`Andy Litinsky, who helped start the former president’s social media company, revealed Mr. Trump’s last-minute doubts about an agreement that made them all very wealthy.`\
-https://nytimes.com/2024/05/01/business/truth-social-trump-media-trial.html
-
-**From Florida to Arizona, Abortion Politics Dominate the 2024 Race**\
-`As a six-week ban takes effect in Florida, and Arizona legislators move to repeal their 1864 law restricting the procedure, Democrats hope the issue will help carry them through a tough political environment.`\
-https://nytimes.com/2024/05/01/us/politics/abortion-politics-2024-race.html
-
-**Bird Flu Highlights Concerns Around Raw Milk**\
-`Testing suggests that pasteurization inactivates the virus. But what about raw milk and cheese?`\
-https://nytimes.com/2024/05/01/well/eat/bird-flu-milk-raw.html
 
