@@ -1,3 +1,7 @@
+**What’s in Our Queue? ‘Atomic Blonde’ and More**\
+`I report on Hollywood for the Business and Culture desks. Here are five I’ve watched recently. `\
+https://nytimes.com/interactive/2024/05/01/arts/editors-recommendations-atomicblonde.html
+
 **What to know about the Fed’s rate decision.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/05/01/business/fed-meeting-interest-rates/what-to-know-about-the-feds-rate-decision
