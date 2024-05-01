@@ -1,3 +1,7 @@
+**Trump Praises Police Crackdowns on Campus Protests**\
+`The former president called protesters “raging lunatics” and suggested, without evidence, that they were hired to draw attention away from border crossings.`\
+https://nytimes.com/2024/05/01/us/politics/trump-rally-campus-protests.html
+
 **Biden to Address Holocaust Remembrance While Still Quiet on Campus Unrest**\
 `The president has largely left it to aides to respond to anti-Israel protests at colleges across the country, but he is planning a speech next week at an event sponsored by the U.S. Holocaust Memorial Museum.`\
 https://nytimes.com/2024/05/01/us/politics/biden-speech-campus-protests.html
