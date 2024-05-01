@@ -1,3 +1,7 @@
+**India’s Master of Nostalgia Takes His Sweeping Vision to Netflix**\
+`Sanjay Leela Bhansali’s films are known for splendor, grandiosity and obsessive attention to light and detail. Will that translate to mobile screens?`\
+https://nytimes.com/2024/05/01/world/asia/netflix-heeramandi-bhansali.html
+
 **Here are the latest developments.**\
 `By Mike Ives and John Yoon`\
 https://nytimes.com/live/2024/05/01/nyregion/columbia-university-protests/here-are-the-latest-developments
