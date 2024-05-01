@@ -1,40 +1,40 @@
-**Police Officers Respond as Clashes Erupt at U.C.L.A. Encampment**\
-`The university called in law enforcement officers to help after “horrific acts of violence” occurred on campus Tuesday night, an official said.`\
-https://nytimes.com/2024/05/01/nyregion/ucla-protests.html
+**When My Mom Got Sick, This TV Show Kept Us Going**\
+`“Indian Idol,” the Hindi version of “American Idol,” is a pleasant distraction from life’s more trying predicaments.`\
+https://nytimes.com/2024/05/01/magazine/indian-idol-cancer.html
 
-**India’s Master of Nostalgia Takes His Sweeping Vision to Netflix**\
-`Sanjay Leela Bhansali’s films are known for splendor, grandiosity and obsessive attention to light and detail. Will that translate to mobile screens?`\
-https://nytimes.com/2024/05/01/world/asia/netflix-heeramandi-bhansali.html
+**Florida’s Six-Week Abortion Ban Is Now Law, With Political Implications**\
+`The ban, which took effect on Wednesday, was part of Gov. Ron DeSantis’s push into cultural conservatism. But Florida politics is rarely that simple.`\
+https://nytimes.com/2024/05/01/us/abortion-ban-florida.html
 
-**Columbia Said It Had ‘No Choice’ but to Call the Police**\
-`Columbia’s president expressed regret about calling in the police to clear a previous protest. On Tuesday, she said she had “no choice” after protesters occupied a building on campus.`\
-https://nytimes.com/2024/05/01/nyregion/columbia-university-protests-arrests.html
+**The Year That Broke College Admissions**\
+`Applicants have more anxiety than ever. Elite schools have more power than ever. Something had to give.`\
+https://nytimes.com/2024/05/01/opinion/college-admissions-applications.html
 
-**Here are the latest developments.**\
-`By Mike Ives and John Yoon`\
-https://nytimes.com/live/2024/05/01/nyregion/columbia-university-protests/here-are-the-latest-developments
+**Why Are Movies so Bad at Making Civil War Look Scary?**\
+`The filmmaker has made it clear that “Civil War” is a warning. Instead, the ugliness of war comes across as comforting thrills.`\
+https://nytimes.com/2024/05/01/magazine/civil-war-movies.html
 
-**01campus-protests**\
-`Live Updates: U.C.L.A. Calls in Police as Clashes Escalate at Campuses`\
-https://nytimes.com/live/2024/05/01/nyregion/columbia-university-protests
+**Federal Money Is All Over Milwaukee. Biden Hopes Voters Will Notice.**\
+`White House officials have barnstormed Wisconsin to make the connection between big changes and their signature laws.`\
+https://nytimes.com/2024/05/01/business/economy/federal-money-milwaukee-biden.html
 
-**Police Arrest Columbia Protesters Occupying Hamilton Hall**\
-`Officers entered the building through a second-floor window using a bridge on top of an emergency service vehicle.`\
-https://nytimes.com/video/us/100000009442290/columbia-protest-police-new-york.html
+**Emily Ratajkowski Can Take Care of Herself, But a Little Help Would Be Nice**\
+`Why the model and writer wants to blow up gender roles in dating, without chivalry having to die.`\
+https://nytimes.com/2024/05/01/style/emily-ratajkowski-can-take-care-of-herself.html
 
-**Student Orchestra**\
-`A youth ensemble in New York City had an extraordinary opportunity. Would you want to be a part of a school orchestra or band?`\
-https://nytimes.com/2024/05/01/learning/student-orchestra.html
+**Nixon, Trump and What Justice for All Means in America**\
+`Here we are, watching the narrow, tawdry version of the trial the nation ought to have had 50 years ago.`\
+https://nytimes.com/2024/05/01/opinion/trump-nixon-trial-america.html
 
-**The Most Decorated Battleship in U.S. History Gets an Overdue Face-Lift**\
-`It has been 34 years since the Battleship New Jersey was last pulled out of the water for maintenance.`\
-https://nytimes.com/2024/05/01/nyregion/battleship-new-jersey-repairs.html
+**5 Minutes That Will Make You Love Jazz Bass**\
+`Writers, scholars, radio hosts and musicians, including the bassist Ron Carter, share songs that shine a light on an instrument that lays the foundation of jazz.`\
+https://nytimes.com/2024/05/01/arts/music/jazz-bass-music.html
 
-**Weinstein to Appear in Court for First Time Since Conviction Overturned**\
-`Harvey Weinstein, the disgraced former Hollywood producer, is set to appear in a Manhattan court Wednesday in what could be the first step toward a new sex crimes trial.`\
-https://nytimes.com/2024/05/01/nyregion/harvey-weinstein-ny-court-hearing.html
+**She Wrote ‘The History of White People.’ She Has a Lot More to Say.**\
+`“I Just Keep Talking,” a collection of essays and artwork by the historian Nell Irvin Painter, captures her wide-ranging interests and original mind.`\
+https://nytimes.com/2024/05/01/books/review/i-just-keep-talking-nell-irvin-painter.html
 
-**The Connections Companion No. 325**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/01/crosswords/connections-companion.html
+**$2.1 Million Homes in Massachusetts, Texas and South Carolina**\
+`An early 19th-century Cape Cod-style home with a writing studio in Provincetown, a 1939 cottage in Austin and an 1840 house in Charleston.`\
+https://nytimes.com/2024/05/01/realestate/2-million-dollar-homes-massachusetts-texas-south-carolina.html
 
