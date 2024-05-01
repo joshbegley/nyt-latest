@@ -1,3 +1,11 @@
+**Florida Abortion Ban Takes Effect, and Trump Gets Fined**\
+`Plus, a possible shift on marijuana policy.`\
+https://nytimes.com/2024/05/01/podcasts/abortion-ban-trumps.html
+
+**The New Abortion Fight Before the Supreme Court**\
+`The Biden administration is arguing that Idaho’s near-total abortion ban violates a federal law on emergency treatment.`\
+https://nytimes.com/2024/05/01/podcasts/the-daily/abortion-supreme-court-emtala.html
+
 **Florida’s Abortion Ban Will Reach Well Beyond Florida**\
 `Seven hundred miles to the nearest clinic: how one ban will reshape access in the South.`\
 https://nytimes.com/interactive/2024/05/01/upshot/florida-abortion-ban.html
