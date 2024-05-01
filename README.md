@@ -1,3 +1,11 @@
+**Johnson & Johnson Proposes $6.5 Billion in New Talc Settlement Offer**\
+`The offer is the company’s third attempt to resolve tens of thousands of claims that its baby powder caused ovarian cancer and mesothelioma.`\
+https://nytimes.com/2024/05/01/business/johnson-johnson-talc-settlement.html
+
+**Why haven’t higher rates crushed economic growth?**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/05/01/business/fed-meeting-interest-rates/why-havent-higher-rates-crushed-economic-growth
+
 **What the First Amendment Means for Campus Protests**\
 `Encampments? Occupying buildings? Demonstrators cite their right to free expression, but the issues are thorny.`\
 https://nytimes.com/2024/05/01/us/free-speech-campus-protests.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/01/health/united-health-cyberattack-senate.html
 **Zwirner Anchors Los Angeles Art Neighborhood With New Gallery**\
 `Its flagship will open with a 30th-anniversary exhibition featuring works by all of the gallery’s 80 artists.`\
 https://nytimes.com/2024/05/01/arts/design/zwirner-los-angeles-art-melrose.html
-
-**Record Number of Writers Were Jailed Globally in 2023, PEN America Says**\
-`For the first time, China has more than 100 incarcerated writers, and Israel and Russia entered the list of the 10 countries with the most imprisoned writers.`\
-https://nytimes.com/2024/05/01/world/asia/jailed-writers-pen-index.html
-
-**Unruly Passenger Must Pay United Airlines $20,638 for Disrupting Flight**\
-`The man had been “verbally and physically aggressive” on a United flight from London to Newark, prompting the plane to land in Bangor, Maine, prosecutors said.`\
-https://nytimes.com/2024/05/01/us/united-airlines-passenger-diverted-flight.html
 
