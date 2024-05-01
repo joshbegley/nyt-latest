@@ -1,3 +1,7 @@
+**After a tense night with over 100 arrests, Columbia’s campus remains closed.**\
+`By Lola Fadulu and Santul Nerkar`\
+https://nytimes.com/live/2024/05/01/nyregion/columbia-university-protests/columbia-city-college-arrests-protests
+
 **What to See During New York’s Design Festival**\
 `These are the highlights of what to do and where to go during a busy week of design topics.`\
 https://nytimes.com/2024/05/01/arts/design/new-york-design-festival.html
