@@ -1,3 +1,7 @@
+**Blinken’s visit to the Kerem Shalom crossing puts aid for Gaza front and center.**\
+`Here’s a look at where Israel’s aid efforts to Gaza stand as humanitarian organizations say more is urgently needed to alleviate the suffering in the enclave.`\
+https://nytimes.com/live/2024/05/01/world/israel-gaza-war-hamas/gaza-aid-blinken
+
 **Collusion in Health Care Pricing? Regulators Are Asked to Investigate**\
 `A data analytics firm has helped big health insurers cut payments to doctors, raising concerns about possible price fixing.`\
 https://nytimes.com/2024/05/01/us/multiplan-health-insurance-price-fixing.html

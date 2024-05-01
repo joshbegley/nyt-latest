@@ -1,3 +1,7 @@
+**Blinken’s visit to the Kerem Shalom crossing puts aid for Gaza front and center.**\
+`Here’s a look at where Israel’s aid efforts to Gaza stand as humanitarian organizations say more is urgently needed to alleviate the suffering in the enclave.`\
+https://nytimes.com/live/2024/05/01/world/israel-gaza-war-hamas/gaza-aid-blinken
+
 **Collusion in Health Care Pricing? Regulators Are Asked to Investigate**\
 `A data analytics firm has helped big health insurers cut payments to doctors, raising concerns about possible price fixing.`\
 https://nytimes.com/2024/05/01/us/multiplan-health-insurance-price-fixing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/01/well/eat/bird-flu-milk-raw.html
 **Blinken calls on Hamas to take cease-fire deal that the United States and Israel support.**\
 `The U.S. secretary of state put the onus on Hamas, stressing on his visit to Israel that Israeli leaders have agreed to terms for a deal that would save Palestinian lives.`\
 https://nytimes.com/live/2024/05/01/world/israel-gaza-war-hamas/blinken-calls-on-hamas-to-take-cease-fire-deal-that-the-united-states-and-israel-support
-
-**Why Is ‘Baby Reindeer’ Such a Hit? It’s All in the Ending.**\
-`The Netflix stalker series combines the appeal of a twisty thriller with a deep sense of empathy. The conclusion illustrates why it’s become one of the most-discussed shows of the year.`\
-https://nytimes.com/2024/05/01/arts/television/baby-reindeer-netflix-finale.html
 
