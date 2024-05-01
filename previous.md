@@ -26,9 +26,9 @@ https://nytimes.com/2024/05/01/world/asia/protest-ucla-columbia-china-asia.html
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/05/01/business/fed-meeting-interest-rates/what-to-know-about-the-feds-rate-decision
 
-**Colombia’s president says the country will sever ties with Israel, calling its government ‘genocidal.’**\
-`President Gustavo Petro announced on Wednesday that the South American nation planned to break diplomatic ties with Israel.`\
-https://nytimes.com/live/2024/05/01/world/israel-gaza-war-hamas/colombias-president-says-the-country-will-sever-ties-with-israel-calling-its-government-genocidal
+**Colombia to Sever Ties With Israel Over Gaza War**\
+`Gustavo Petro, Colombia’s first leftist president, made the announcement in front of cheering crowds in the capital that had gathered for International Workers’ Day.`\
+https://nytimes.com/2024/05/01/world/middleeast/colombia-israel-relations.html
 
 **Kim Noltemy, Orchestra Veteran, Is Tapped to Lead L.A. Philharmonic**\
 `Noltemy, the Dallas Symphony Orchestra’s chief executive, will take the helm of the Philharmonic as it searches for its next music director.`\
