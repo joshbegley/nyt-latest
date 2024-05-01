@@ -1,3 +1,7 @@
+**Biden to Address Holocaust Remembrance While Still Quiet on Campus Unrest**\
+`The president has largely left it to aides to respond to anti-Israel protests at colleges across the country, but he is planning a speech next week at an event sponsored by the U.S. Holocaust Memorial Museum.`\
+https://nytimes.com/2024/05/01/us/politics/biden-speech-campus-protests.html
+
 **Mountain Goats Are Not Avalanche-Proof**\
 `The scene ends badly, as you might imagine.`\
 https://nytimes.com/2024/05/01/science/avalanche-mountain-goats.html
@@ -15,7 +19,7 @@ https://nytimes.com/2024/05/01/us/pandas-china-san-diego-zoo.html
 https://nytimes.com/2024/05/01/nyregion/veteran-charged-purple-heart-fraud.html
 
 **‘Lack of Further Progress’ on Inflation Keeps Interest Rates High**\
-`Jerome H. Powell, the Fed chair, said that the central bank needs “greater confidence” that inflation is coming down before it decides to cut interest rates, which are at a two-decade high.`\
+`Jerome H. Powell, the Fed chair, said that the central bank needed “greater confidence” that inflation was coming down before it decided to cut interest rates, which are at a two-decade high.`\
 https://nytimes.com/video/business/economy/100000009443617/powell-interest-rates-inflation.html
 
 **In Florida, Harris Looks to Make Trump the Face of the State’s Abortion Ban**\
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/01/nyregion/fordham-university-protest-police.html
 **In Bid to Oust Johnson, Greene Tries to Reclaim a Powerful Perch on the Fringe**\
 `The Georgia Republican’s doomed push to remove the speaker has placed her at odds with most in her party, but it has brought her back to her roots as a norm-busting provocateur.`\
 https://nytimes.com/2024/05/01/us/politics/marjorie-taylor-greene-congress.html
-
-**Harris Blasts Trump Over Florida Abortion Ban**\
-`On the day that Florida began to enforce its six-week abortion ban, Vice President Kamala Harris delivered a searing attack on former President Donald J. Trump in Jacksonville, Fla., calling the measure “another Trump abortion ban.”`\
-https://nytimes.com/video/us/politics/100000009443287/harris-trump-abortion.html
 
