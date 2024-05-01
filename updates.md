@@ -1,3 +1,7 @@
+**nThe 63-Year-Old Career Activist Among the Protesters at Columbia**\
+`Videos show Lisa Fithian, whom the police called a “professional agitator,” working alongside protesters who stormed Hamilton Hall.`\
+https://nytimes.com/2024/05/01/nyregion/columbia-university-protest-consultant-lisa-fithian.html
+
 **Popcast (Deluxe): Sabrina Carpenter, Chappell Roan + Editing Taylor Swift**\
 `Picking the best songs from “The Tortured Poets Department” one week later. Plus: the rise of a pair of pop’s middle-class stars.`\
 https://nytimes.com/2024/05/01/arts/music/sabrina-carpenter-taylor-swift-popcast.html
