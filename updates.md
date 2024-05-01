@@ -1,3 +1,19 @@
+**Harris Blasts Trump Over Florida Abortion Ban**\
+`On the day that Florida began to enforce its six-week abortion ban, Vice President Kamala Harris delivered a searing attack on former President Donald J. Trump in Jacksonville, calling the measure “another Trump abortion ban.”`\
+https://nytimes.com/video/us/politics/100000009443287/harris-trump-abortion.html
+
+**Olga Fikotova Connolly, Olympian in a Cold War Romance, Dies at 91**\
+`She was from Czechoslovakia. He was from the U.S. And after meeting at the 1956 Games and winning gold medals, they married. Love had breached the iron curtain.`\
+https://nytimes.com/2024/05/01/sports/olympics/olga-fikotova-connolly-dead.html
+
+**Thursday Briefing: Police Deployed at U.S. Campuses**\
+`Also, China’s surging electric car market and a new Netflix series from India.`\
+https://nytimes.com/2024/05/01/world/asia/protest-ucla-columbia-china-asia.html
+
+**What to know about the Fed’s rate decision.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/05/01/business/fed-meeting-interest-rates/what-to-know-about-the-feds-rate-decision
+
 **What’s in Our Queue? ‘Atomic Blonde’ and More**\
 `I report on Hollywood for the Business and Culture desks. Here are five I’ve watched recently. `\
 https://nytimes.com/interactive/2024/05/01/arts/editors-recommendations-atomicblonde.html
