@@ -1,3 +1,7 @@
+**Handcuffs and Barricades at Columbia, but No Reporters**\
+`By restricting media access, the N.Y.P.D. prevented the public from knowing the full details of its campus raid.`\
+https://nytimes.com/live/2024/04/24/opinion/thepoint/columbia-protests-raid-reporters
+
 **Frustration and accusations follow a violent night at U.C.L.A.**\
 `Administrators said in an email on Wednesday that all classes were canceled and that police officers would remain stationed throughout campus.`\
 https://nytimes.com/2024/05/01/us/ucla-classes-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/01/us/multiplan-health-insurance-price-fixing.html
 **U.S. Imposes Sanctions on Chinese Companies for Aiding Russia’s War Effort**\
 `The penalties came after top Biden administration officials warned China not to help Moscow restock its arsenal to attack Ukraine.`\
 https://nytimes.com/2024/05/01/us/politics/us-sanctions-china-russia.html
-
-**Some Democrats are urging Biden to put pressure on the Fed.**\
-`By Jim Tankersley and Jeanna Smialek`\
-https://nytimes.com/live/2024/05/01/business/fed-meeting-interest-rates/some-democrats-are-urging-biden-to-put-pressure-on-the-fed
 

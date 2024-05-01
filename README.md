@@ -1,3 +1,15 @@
+**For College Protesters, Risking Arrest Is Part of a Global Struggle**\
+`In many students’ eyes, the war in Gaza is linked to other issues, such as policing, mistreatment of Indigenous people, racism and the impact of climate change.`\
+https://nytimes.com/2024/05/01/us/pro-palestinian-college-protests.html
+
+**The 63-Year-Old Career Activist Among the Protesters at Columbia**\
+`Videos show Lisa Fithian, whom the police called a “professional agitator,” working alongside protesters who stormed Hamilton Hall.`\
+https://nytimes.com/2024/05/01/nyregion/columbia-university-protest-consultant-lisa-fithian.html
+
+**Transcript of Trump Manhattan Trial, April 26, 2024**\
+`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
+https://nytimes.com/interactive/2024/05/01/nyregion/trump-hush-money-trial-transcript-april-26.html
+
 **Handcuffs and Barricades at Columbia, but No Reporters**\
 `By restricting media access, the N.Y.P.D. prevented the public from knowing the full details of its campus raid.`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/columbia-protests-raid-reporters
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/01/opinion/smartphones-social-media-mental-health-te
 **Met Museum Reaches Fund-Raising Goal for New Modern Wing**\
 `The museum achieves a milestone, but still faces a complex public approval process for its Tang Wing, which is on city land.`\
 https://nytimes.com/2024/05/01/arts/design/met-museum-fund-raising-modern-wing.html
-
-**Blinken’s visit to the Kerem Shalom crossing puts aid for Gaza front and center.**\
-`Here’s a look at where Israel’s aid efforts to Gaza stand as humanitarian organizations say more is urgently needed to alleviate the suffering in the enclave.`\
-https://nytimes.com/live/2024/05/01/world/israel-gaza-war-hamas/gaza-aid-blinken
-
-**Collusion in Health Care Pricing? Regulators Are Asked to Investigate**\
-`A data analytics firm has helped big health insurers cut payments to doctors, raising concerns about possible price fixing.`\
-https://nytimes.com/2024/05/01/us/multiplan-health-insurance-price-fixing.html
-
-**U.S. Imposes Sanctions on Chinese Companies for Aiding Russia’s War Effort**\
-`The penalties came after top Biden administration officials warned China not to help Moscow restock its arsenal to attack Ukraine.`\
-https://nytimes.com/2024/05/01/us/politics/us-sanctions-china-russia.html
 

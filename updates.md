@@ -1,3 +1,7 @@
+**Handcuffs and Barricades at Columbia, but No Reporters**\
+`By restricting media access, the N.Y.P.D. prevented the public from knowing the full details of its campus raid.`\
+https://nytimes.com/live/2024/04/24/opinion/thepoint/columbia-protests-raid-reporters
+
 **Frustration and accusations follow a violent night at U.C.L.A.**\
 `Administrators said in an email on Wednesday that all classes were canceled and that police officers would remain stationed throughout campus.`\
 https://nytimes.com/2024/05/01/us/ucla-classes-protests.html
