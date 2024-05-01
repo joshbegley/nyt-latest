@@ -1,3 +1,7 @@
+**Paul Auster’s New York Tragedy**\
+`A complicated, generous life yielded a body of work of staggering scope and variety.`\
+https://nytimes.com/2024/04/30/books/review/paul-auster-appreciation.html
+
 **Paul Auster, Prolific Author and Brooklyn Literary Star, Dies at 77**\
 `With critically lauded works like “The New York Trilogy,” the charismatic author and patron saint of his adopted borough drew worldwide acclaim.`\
 https://nytimes.com/2024/04/30/books/paul-auster-dead.html
