@@ -1,6 +1,6 @@
 **Trump is heading to two Midwest battlegrounds, his first major campaign events since his criminal trial began.**\
 `By Chris Cameron`\
-https://nytimes.com/live/2024/05/01/us/biden-trump-campaign/trump-is-heading-to-two-midwest-battlegrounds-his-first-major-campaign-events-since-his-criminal-trial-began
+https://nytimes.com/live/2024/05/01/us/biden-trump-election-news/trump-is-heading-to-two-midwest-battlegrounds-his-first-major-campaign-events-since-his-criminal-trial-began
 
 **Paul Auster’s Best Books: A Guide**\
 `The novelist played with reality and chance in tales of solitary narrators and mutable identities. Here’s an overview of his work.`\
