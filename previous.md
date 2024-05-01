@@ -1,3 +1,15 @@
+**Aspirin Can Prevent a Deadly Pregnancy Complication. Why Aren’t Women Told?**\
+`Women at risk for extreme high blood pressure should take a daily baby aspirin. But their doctors don’t always tell them.`\
+https://nytimes.com/2024/05/01/health/pregnancy-preeclampsia-aspirin.html
+
+**Job Openings and Hiring Are at a 3-Year Ebb**\
+`March data showed a cooling labor market, but layoffs remain low. The overall trend is likely to be welcomed by Federal Reserve policymakers.`\
+https://nytimes.com/2024/05/01/business/economy/jolts-job-openings-hires-quits.html
+
+**His Book Was Repeatedly Banned. Fighting For It Shaped His Life.**\
+`“The Chocolate War,” published 50 years ago, became one of the country’s most challenged books. Its author, Robert Cormier, spent years fighting attempts to ban it — like many authors today.`\
+https://nytimes.com/2024/05/01/books/booksupdate/book-ban-chocolate-war-cormier-.html
+
 **Eric Adams Seizes Role as Face of the Crackdown on Student Protests**\
 `Mayor Eric Adams defended the arrests of nearly 300 protesters and said he would not allow the protests to disrupt the city.`\
 https://nytimes.com/2024/05/01/nyregion/eric-adams-columbia-protests.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/01/arts/television/may-streaming-movies-tv-shows.htm
 **14 Protesters Are Arrested at Tulane After Police Clear Encampment**\
 `Two students were among those arrested early Wednesday, the university said. Officers from three law enforcement agencies moved in after ordering the group to disperse.`\
 https://nytimes.com/2024/05/01/nyregion/tulane-university-protests.html
-
-**The Treadmill Desk Might Really Be Worth It**\
-`Research shows they can indeed deliver fitness benefits while you work — but only if you use them wisely.`\
-https://nytimes.com/2024/05/01/well/move/treadmill-desk-standing.html
-
-**Biden Cancels $6.1 Billion in Debt for Former Art Institute Students**\
-`The announcement covers 317,000 former students and marks another step in the administration’s student loan relief efforts.`\
-https://nytimes.com/2024/05/01/us/politics/biden-cancels-6-1-billion-in-debt-for-former-art-institute-students.html
-
-**Greene Says She Will Demand Vote Next Week on Removing Johnson**\
-`Representative Marjorie Taylor Greene, the right-wing Republican from Georgia, excoriated the House speaker for working with Democrats to push through major bills. She said she would move ahead despite all but certain defeat.`\
-https://nytimes.com/2024/05/01/us/politics/marjorie-taylor-greene-mike-johnson-speaker.html
 
