@@ -1,3 +1,7 @@
+**New Progressive PAC Targets 8 Key House Races in California**\
+`The super PAC, Battleground California, said it would drive turnout among voters of color to try to flip seats that are seen as crucial to winning control of the House this fall.`\
+https://nytimes.com/2024/05/01/us/politics/california-house-races-pac.html
+
 **The Best Movies and TV Shows Coming to Amazon, Disney+, Hulu, Apple TV+ and More in May**\
 `“The Idea of You,” “Scrublands,” “The Big Cigar” and “Hacks” are streaming.`\
 https://nytimes.com/2024/05/01/arts/television/may-streaming-movies-tv-shows.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/01/books/paul-auster-essentials.html
 **Hamas has not yet issued an official response to the latest Israeli proposal.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/05/01/world/israel-gaza-war-hamas/hamas-has-not-yet-issued-an-official-response-to-the-latest-israeli-proposal
-
-**In a Portland Library, Activists Fortify for a Standoff**\
-`With wood pallets piled at the entrance, dozens of pro-Palestinian activists are holed up in the Portland State University library. Here’s a look inside the makeshift fortress.`\
-https://nytimes.com/2024/05/01/us/portland-state-university-library-protest.html
 

@@ -1,3 +1,7 @@
+**New Progressive PAC Targets 8 Key House Races in California**\
+`The super PAC, Battleground California, said it would drive turnout among voters of color to try to flip seats that are seen as crucial to winning control of the House this fall.`\
+https://nytimes.com/2024/05/01/us/politics/california-house-races-pac.html
+
 **Greene Says She Will Demand Vote Next Week on Removing Johnson**\
 `Representative Marjorie Taylor Greene, the right-wing Republican from Georgia, excoriated the House speaker for working with Democrats to push through major bills. She said she would move ahead despite all but certain defeat.`\
 https://nytimes.com/2024/05/01/us/politics/marjorie-taylor-greene-mike-johnson-speaker.html
