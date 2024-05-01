@@ -1,3 +1,11 @@
+**Chicken katsu, weeknight rescue**\
+`Kay Chun’s recipe cleverly shallow-fries the cutlets so they emerge golden and crispy, ready for rice, tonkatsu sauce and a shaggy mound of shredded cabbage.`\
+https://nytimes.com/2024/05/01/dining/chicken-katsu-weeknight-rescue.html
+
+**What Makes a Society More Resilient? Frequent Hardship.**\
+`Comparing 30,000 years of human history, researchers found that surviving famine, war or climate change helps groups recover more quickly from future shocks.`\
+https://nytimes.com/2024/05/01/science/resilient-societies-climate-change.html
+
 **Vaccine Acceptance Is Far More Common Than You Might Think**\
 `Even so, some concerns about hesitance are legitimate.`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/vaccine-uptake-survey

@@ -1,3 +1,11 @@
+**Chicken katsu, weeknight rescue**\
+`Kay Chun’s recipe cleverly shallow-fries the cutlets so they emerge golden and crispy, ready for rice, tonkatsu sauce and a shaggy mound of shredded cabbage.`\
+https://nytimes.com/2024/05/01/dining/chicken-katsu-weeknight-rescue.html
+
+**What Makes a Society More Resilient? Frequent Hardship.**\
+`Comparing 30,000 years of human history, researchers found that surviving famine, war or climate change helps groups recover more quickly from future shocks.`\
+https://nytimes.com/2024/05/01/science/resilient-societies-climate-change.html
+
 **Vaccine Acceptance Is Far More Common Than You Might Think**\
 `Even so, some concerns about hesitance are legitimate.`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/vaccine-uptake-survey
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/01/us/politics/marjorie-taylor-greene-mike-johnson-s
 **Some Gazans Say U.S. Campus Protests Give Them ‘Hope’**\
 `The protests have come at a fearful time for Palestinians in Rafah, with Prime Minister Benjamin Netanyahu of Israel vowing to launch a ground invasion of the city.`\
 https://nytimes.com/2024/05/01/world/middleeast/us-college-protests-gaza-palestinians.html
-
-**Trump is heading to two Midwest battlegrounds, his first major campaign events since his criminal trial began.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/05/01/us/biden-trump-election-news/trump-is-heading-to-two-midwest-battlegrounds-his-first-major-campaign-events-since-his-criminal-trial-began
-
-**Paul Auster’s Best Books: A Guide**\
-`The novelist played with reality and chance in tales of solitary narrators and mutable identities. Here’s an overview of his work.`\
-https://nytimes.com/2024/05/01/books/paul-auster-essentials.html
 
