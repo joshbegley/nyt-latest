@@ -1,3 +1,7 @@
+**Federal Judges Block Newly Drawn Louisiana Congressional Map**\
+`In a 2-to-1 decision, the panel sided with challengers who argued that the map that created a second Black majority district was an “impermissible racial gerrymander.”`\
+https://nytimes.com/2024/04/30/us/louisiana-congressional-map-ruling.html
+
 **Bit in a Bar**\
 `Juliana Tringali Golden nips our worries in the bud.`\
 https://nytimes.com/2024/04/30/crosswords/daily-puzzle-2024-05-01.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/30/nyregion/columbia-protests-college/ucla-enca
 **Same-Store Sales at Starbucks Drop, Pushing Revenue Down 1.8%**\
 `After the chain’s quarterly earnings missed Wall Street’s estimates, its shares fell more than 12 percent in after-hours trading.`\
 https://nytimes.com/2024/04/30/business/starbucks-earnings-first-quarter.html
-
-**N.S.A. Disclosure of U.S. Identities in Surveillance Reports Nearly Tripled in 2023**\
-`The sharp increase of so-called unmaskings, to more than 31,300 times, arose from attempts by foreign hackers to infiltrate the computer systems of critical infrastructure.`\
-https://nytimes.com/2024/04/30/us/politics/nsa-warrantless-surveillance-americans.html
 
