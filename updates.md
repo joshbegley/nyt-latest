@@ -1,3 +1,11 @@
+**Pet Alligator Is Mistakenly Released Into the Wild, Owner Says**\
+`Wally, an emotional support alligator, was apparently kidnapped, found and dropped in a swamp.`\
+https://nytimes.com/2024/05/01/us/alligator-kidnapping-georgia.html
+
+**Trump to address Libertarian Party, new report focuses on threats to election officials and more.**\
+`By Shane Goldmacher, Neil Vigdor and Nicholas Nehamas`\
+https://nytimes.com/live/2024/05/01/us/biden-trump-election-news/trump-to-address-libertarian-party-new-report-focuses-on-threats-to-election-officials-and-more
+
 **NASCAR and Its Race Teams Fight Over the Sport’s Future**\
 `Team owners said they needed to share in racing’s financial success, putting them at odds with the privately held business that runs the sport.`\
 https://nytimes.com/2024/05/01/business/nascar-racing-teams-charters.html
