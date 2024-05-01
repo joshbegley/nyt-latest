@@ -1,3 +1,7 @@
+**Greene Says She Will Demand Vote Next Week on Removing Johnson**\
+`Representative Marjorie Taylor Greene, the right-wing Republican from Georgia, excoriated the House speaker for working with Democrats to push through major bills. She said she would move ahead despite all but certain defeat.`\
+https://nytimes.com/2024/05/01/us/politics/marjorie-taylor-greene-mike-johnson-speaker.html
+
 **The Best Movies and TV Shows Coming to Amazon, Disney+, Hulu, Apple TV+ and More in May**\
 `“The Idea of You,” “Scrublands,” “The Big Cigar” and “Hacks” are streaming.`\
 https://nytimes.com/2024/05/01/arts/television/may-streaming-movies-tv-shows.html

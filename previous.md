@@ -14,7 +14,7 @@ https://nytimes.com/2024/05/01/well/move/treadmill-desk-standing.html
 `The announcement covers 317,000 former students and marks another step in the administration’s student loan relief efforts.`\
 https://nytimes.com/2024/05/01/us/politics/biden-cancels-6-1-billion-in-debt-for-former-art-institute-students.html
 
-**Greene Says She Will Demand Vote Next Week to Remove Johnson**\
+**Greene Says She Will Demand Vote Next Week on Removing Johnson**\
 `Representative Marjorie Taylor Greene, the right-wing Republican from Georgia, excoriated the House speaker for working with Democrats to push through major bills. She said she would move ahead despite all but certain defeat.`\
 https://nytimes.com/2024/05/01/us/politics/marjorie-taylor-greene-mike-johnson-speaker.html
 
