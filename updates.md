@@ -1,3 +1,7 @@
+**Drought That Snarled Panama Canal Was Linked to El Niño, Study Finds**\
+`The low water levels that choked cargo traffic were more closely tied to the natural climate cycle than to human-caused warming, a team of scientists has concluded.`\
+https://nytimes.com/2024/05/01/climate/panama-canal-drought.html
+
 **Police Arrest Protesters at City College in Harlem**\
 `The arrests came after pro-Palestinian protesters tried to take over an administrative building at City College. Earlier, the police cleared a building that had been occupied at nearby Columbia University.`\
 https://nytimes.com/2024/04/30/nyregion/city-college-harlem-arrests.html

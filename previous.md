@@ -1,3 +1,7 @@
+**Drought That Snarled Panama Canal Was Linked to El Niño, Study Finds**\
+`The low water levels that choked cargo traffic were more closely tied to the natural climate cycle than to human-caused warming, a team of scientists has concluded.`\
+https://nytimes.com/2024/05/01/climate/panama-canal-drought.html
+
 **Corrections: May 1, 2024**\
 `Corrections that appeared in print on Wednesday, May 1, 2024.`\
 https://nytimes.com/2024/05/01/pageoneplus/corrections-may-1-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/01/business/china-electric-vehicles.html
 **Paul Auster’s New York Tragedy**\
 `A complicated, generous life yielded a body of work of staggering scope and variety.`\
 https://nytimes.com/2024/04/30/books/review/paul-auster-appreciation.html
-
-**Paul Auster, Prolific Author and Brooklyn Literary Star, Dies at 77**\
-`With critically lauded works like “The New York Trilogy,” the charismatic author and patron saint of his adopted borough drew worldwide acclaim.`\
-https://nytimes.com/2024/04/30/books/paul-auster-dead.html
 
