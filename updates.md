@@ -1,3 +1,7 @@
+**Sept. 11 Trial Plea Negotiations Still Underway at Guantánamo Bay**\
+`The lead prosecutor briefed the judge on the talks in an effort to fend off a claim that members of Congress had unlawfully meddled in the negotiations.`\
+https://nytimes.com/2024/05/01/us/politics/sept11-case-plea-negotiations.html
+
 **Pasteurized Dairy Foods Free of Live Bird Flu, Federal Tests Confirm**\
 `But the scope of the outbreak among cattle remains uncertain, and little human testing has been done.`\
 https://nytimes.com/2024/05/01/health/bird-flu-milk-cows.html
