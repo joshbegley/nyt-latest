@@ -1,3 +1,7 @@
+**Frustrated South Koreans Blame President in Standoff With Doctors**\
+`A walkout by physicians has dragged on for weeks, as they protest a plan by President Yoon Suk Yeol’s government to increase medical school enrollment.`\
+https://nytimes.com/2024/05/01/world/asia/korea-doctors-strike-yoon.html
+
 **Word of the Day: pigeonhole**\
 `This word has appeared in 15 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/05/01/learning/word-of-the-day-pigeonhole.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/05/01/us/louisiana-congressional-map-ruling
 **Police Arrest Protesters at City College in Harlem**\
 `The arrests came after pro-Palestinian protesters tried to take over an administrative building at City College. Earlier, the police cleared a building that had been occupied at nearby Columbia University.`\
 https://nytimes.com/2024/04/30/nyregion/city-college-harlem-arrests.html
-
-**Swimming Beneath Sand, It’s ‘the Hardest of All Animals to Find’**\
-`Indigenous rangers in Australia’s Western Desert got a rare close-up with the northern marsupial mole, which is tiny, light-colored and blind, and almost never comes to the surface.`\
-https://nytimes.com/2024/05/01/science/northern-marsupial-mole-australia.html
 
