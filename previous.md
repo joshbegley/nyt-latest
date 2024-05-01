@@ -1,3 +1,11 @@
+**Spring Art Fairs Kick Off for Buyers and Browsers Alike**\
+`With Frieze comes a buffet of art in New York City, whether you’re looking for blue-chip galleries or emerging artists.`\
+https://nytimes.com/2024/05/01/arts/design/spring-art-fairs-new-york.html
+
+**In Bankruptcy, Giuliani Set a $43,000 Monthly Budget. Creditors Are Skeptical.**\
+`The former New York mayor and Trump lawyer actually spent nearly $120,000 in January, and his creditors say he is still not turning over required financial information.`\
+https://nytimes.com/2024/05/01/us/politics/bankruptcy-giuliani-spending.html
+
 **In Latest Stunt, Airbnb Lists the ‘Up’ House. It Floats.**\
 `The company announced a new category of outlandish stays in partnership with brands and celebrities, building on the success of gimmicks like the Barbie Malibu DreamHouse.`\
 https://nytimes.com/2024/05/01/business/airbnb-up-house-shrek-listings.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/05/01/nyregion/trump-hush-money-trial-trans
 **How to Make an Easy Picnic That Transports You to France**\
 `A pepper-crusted flank steak and French potato salad anchor this summery menu from David Tanis.`\
 https://nytimes.com/2024/05/01/dining/easy-picnic-recipes.html
-
-**The Police Clear Pro-Palestinian Protest at Tulane University**\
-`More than a dozen people were arrested at an encampment on the campus of Tulane University in New Orleans, the university said.`\
-https://nytimes.com/video/us/100000009443036/tulane-university-new-orleans-protest-israel-gaza.html
-
-**Are Smartphones Driving Our Teens to Depression?**\
-`The evidence reveals a more complicated reality than the conventional wisdom would have you believe.`\
-https://nytimes.com/2024/05/01/opinion/smartphones-social-media-mental-health-teens.html
 
