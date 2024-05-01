@@ -1,3 +1,11 @@
+**Read Transcripts From Trump’s Manhattan Criminal Trial**\
+`The New York Times is publishing the court system’s transcripts from the Manhattan criminal trial of Donald J. Trump, who is charged with 34 felonies in the case.`\
+https://nytimes.com/article/trump-hush-money-trial-transcripts.html
+
+**Blinken Turns Up Pressure on Hamas to Accept Gaza Cease-Fire Deal**\
+`“The time is now,” Secretary of State Antony J. Blinken declared, urging Hamas to accept the terms of a proposed truce. He also made clear that he expected more from Israel.`\
+https://nytimes.com/2024/05/01/world/middleeast/blinken-hamas-israel-gaza-cease-fire.html
+
 **Trump Praises Police Crackdowns on Campus Protests**\
 `The former president called protesters “raging lunatics” and suggested, without evidence, that they were hired to draw attention away from border crossings.`\
 https://nytimes.com/2024/05/01/us/politics/trump-rally-campus-protests.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/01/nyregion/veteran-charged-purple-heart-fraud.html
 **‘Lack of Further Progress’ on Inflation Keeps Interest Rates High**\
 `Jerome H. Powell, the Fed chair, said that the central bank needed “greater confidence” that inflation was coming down before it decided to cut interest rates, which are at a two-decade high.`\
 https://nytimes.com/video/business/economy/100000009443617/powell-interest-rates-inflation.html
-
-**In Florida, Harris Looks to Make Trump the Face of the State’s Abortion Ban**\
-`The vice president sought to tie former President Donald J. Trump to the state’s six-week abortion ban, which took effect on Wednesday.`\
-https://nytimes.com/2024/05/01/us/politics/florida-abortion-harris-trump.html
-
-**Fordham Students, Inspired by Columbia Protests, Brace for Police Crackdown**\
-`Students who erected tents inside an academic building appeared undeterred the day after nearly 300 people were arrested elsewhere in Manhattan at Columbia University and City College of New York.`\
-https://nytimes.com/2024/05/01/nyregion/fordham-university-protest-police.html
 
