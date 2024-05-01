@@ -1,3 +1,15 @@
+**Record Number of Writers Were Jailed Globally in 2023, PEN America Says**\
+`For the first time, China has more than 100 incarcerated writers, and Israel and Russia entered the list of the 10 countries with the most imprisoned writers.`\
+https://nytimes.com/2024/05/01/world/jailed-writers-pen-index.html
+
+**Unruly Passenger Must Pay United Airlines $20,638 for Disrupting Flight**\
+`The man had been “verbally and physically aggressive” on a United flight from London to Newark, prompting the plane to land in Bangor, Maine, prosecutors said.`\
+https://nytimes.com/2024/05/01/us/united-airlines-passenger-diverted-flight.html
+
+**Should I Lie So That My Cousin Can Have a Catholic Wedding?**\
+`The magazine’s Ethicist columnist on whether to fib for a relative, especially when you don’t think the ends justify the means.`\
+https://nytimes.com/2024/05/01/magazine/catholic-cousin-annulment-ethics.html
+
 **Counterprotesters Storm U.C.L.A. Pro-Palestinian Encampment**\
 `Violence broke out as counterprotesters attempted to pull down barricades at a pro-Palestinian encampment at the University of California, Los Angeles.`\
 https://nytimes.com/video/us/100000009442577/ucla-campus-protest-clashes-gaza-israel.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/01/dining/chicken-katsu-weeknight-rescue.html
 **What Makes a Society More Resilient? Frequent Hardship.**\
 `Comparing 30,000 years of human history, researchers found that surviving famine, war or climate change helps groups recover more quickly from future shocks.`\
 https://nytimes.com/2024/05/01/science/resilient-societies-climate-change.html
-
-**Vaccine Acceptance Is Far More Common Than You Might Think**\
-`Even so, some concerns about hesitance are legitimate.`\
-https://nytimes.com/live/2024/04/24/opinion/thepoint/vaccine-uptake-survey
-
-**New Progressive PAC Targets 8 Key House Races in California**\
-`The super PAC, Battleground California, said it would drive turnout among voters of color to try to flip seats that are seen as crucial to winning control of the House this fall.`\
-https://nytimes.com/2024/05/01/us/politics/california-house-races-pac.html
-
-**The Best Movies and TV Shows Coming to Amazon, Disney+, Hulu, Apple TV+ and More in May**\
-`“The Idea of You,” “Scrublands,” “The Big Cigar” and “Hacks” are streaming.`\
-https://nytimes.com/2024/05/01/arts/television/may-streaming-movies-tv-shows.html
 

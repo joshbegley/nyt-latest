@@ -1,3 +1,7 @@
+**Counterprotesters Storm U.C.L.A. Pro-Palestinian Encampment**\
+`Violence broke out as counterprotesters attempted to pull down barricades at a pro-Palestinian encampment at the University of California, Los Angeles.`\
+https://nytimes.com/video/us/100000009442577/ucla-campus-protest-clashes-gaza-israel.html
+
 **Aspirin Can Prevent a Deadly Pregnancy Complication. Why Aren’t Women Told?**\
 `Women at risk for extreme high blood pressure should take a daily baby aspirin. But their doctors don’t always tell them.`\
 https://nytimes.com/2024/05/01/health/pregnancy-preeclampsia-aspirin.html
