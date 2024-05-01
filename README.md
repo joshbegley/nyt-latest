@@ -1,3 +1,15 @@
+**High interest rates have made the dollar stronger.**\
+`By Joe Rennison and Karl Russell`\
+https://nytimes.com/live/2024/05/01/business/fed-meeting-interest-rates/high-interest-rates-have-made-the-dollar-stronger
+
+**Flooding in a Kenyan Natural Reserve Forces Tourist Evacuation**\
+`The heavy rains that have pounded East Africa for weeks, killing hundreds, have now spilled into the Masai Mara, one of Africa’s greatest wildlife national reserves.`\
+https://nytimes.com/2024/05/01/world/africa/kenya-flooding.html
+
+**Judging the Justices on the Presidential Immunity Case**\
+`Responses to articles about the case before the Supreme Court. Also: Perspectives on the campus protests; how children value trees as homes for animals.`\
+https://nytimes.com/2024/05/01/opinion/supreme-court-presidential-immunity.html
+
 **Pet Alligator Is Mistakenly Released Into the Wild, Owner Says**\
 `Wally, an emotional support alligator, was apparently kidnapped, found and dropped in a swamp.`\
 https://nytimes.com/2024/05/01/us/alligator-kidnapping-georgia.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/01/us/free-speech-campus-protests.html
 **Wall Street is worried about the cost of government debt.**\
 `By Joe Rennison`\
 https://nytimes.com/live/2024/05/01/business/fed-meeting-interest-rates/wall-street-is-worried-about-the-cost-of-government-debt
-
-**United Methodist Church Reverses Ban on Gay Clergy**\
-`In a meeting on Wednesday, church leaders also voted to allow L.G.B.T.Q. weddings.`\
-https://nytimes.com/2024/05/01/us/methodist-church-gay-ban-lgbtq.html
-
-**What the Fed’s Moves Mean for Mortgages, Credit Cards and More**\
-`Higher rates benefit those who can save, but for borrowers falling rates would reduce bills on credit cards, home equity loans and other forms of debt.`\
-https://nytimes.com/2024/05/01/business/interest-rates-mortgages-credit-cards-student-loans.html
-
-**After a tense night with over 100 arrests, Columbia’s campus remains closed.**\
-`By Lola Fadulu and Santul Nerkar`\
-https://nytimes.com/live/2024/05/01/nyregion/columbia-university-protests/columbia-city-college-arrests-protests
 
