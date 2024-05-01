@@ -1,3 +1,7 @@
+**Fordham students, inspired by Columbia protests, brace for police crackdown.**\
+`By Olivia Bensimon and Lola Fadulu`\
+https://nytimes.com/live/2024/05/01/nyregion/columbia-university-protests/fordham-university-protests
+
 **In Bid to Oust Johnson, Greene Tries to Reclaim a Powerful Perch on the Fringe**\
 `The Georgia Republican’s doomed push to remove the speaker has placed her at odds with most in her party, but it has brought her back to her roots as a norm-busting provocateur.`\
 https://nytimes.com/2024/05/01/us/politics/marjorie-taylor-greene-congress.html
