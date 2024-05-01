@@ -1,3 +1,15 @@
+**High interest rates have made the dollar stronger.**\
+`By Joe Rennison and Karl Russell`\
+https://nytimes.com/live/2024/05/01/business/fed-meeting-interest-rates/high-interest-rates-have-made-the-dollar-stronger
+
+**Flooding in a Kenyan Natural Reserve Forces Tourist Evacuation**\
+`The heavy rains that have pounded East Africa for weeks, killing hundreds, have now spilled into the Masai Mara, one of Africa’s greatest wildlife national reserves.`\
+https://nytimes.com/2024/05/01/world/africa/kenya-flooding.html
+
+**Judging the Justices on the Presidential Immunity Case**\
+`Responses to articles about the case before the Supreme Court. Also: Perspectives on the campus protests; how children value trees as homes for animals.`\
+https://nytimes.com/2024/05/01/opinion/supreme-court-presidential-immunity.html
+
 **Pet Alligator Is Mistakenly Released Into the Wild, Owner Says**\
 `Wally, an emotional support alligator, was apparently kidnapped, found and dropped in a swamp.`\
 https://nytimes.com/2024/05/01/us/alligator-kidnapping-georgia.html
