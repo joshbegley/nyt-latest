@@ -1,3 +1,7 @@
+**Word of the Day: pigeonhole**\
+`This word has appeared in 15 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/01/learning/word-of-the-day-pigeonhole.html
+
 **Blinken seeks to avert Israeli offensive while getting Hamas support for a deal.**\
 `President Biden is pushing Hamas to release some hostages for a six-week ceasefire, but Prime Minister Benjamin Netanyahu says he will do a major assault in Rafah “with or without” a deal.`\
 https://nytimes.com/live/2024/05/01/world/israel-gaza-war-hamas/blinken-seeks-to-avert-israeli-offensive-while-getting-hamas-support-for-a-deal
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/30/nyregion/city-college-harlem-arrests.html
 **Swimming Beneath Sand, It’s ‘the Hardest of All Animals to Find’**\
 `Indigenous rangers in Australia’s Western Desert got a rare close-up with the northern marsupial mole, which is tiny, light-colored and blind, and almost never comes to the surface.`\
 https://nytimes.com/2024/05/01/science/northern-marsupial-mole-australia.html
-
-**Wednesday Briefing**\
-`Demonstrations disrupt U.S. colleges.`\
-https://nytimes.com/2024/05/01/briefing/columbia-protest-arrest-trump-contempt.html
 
