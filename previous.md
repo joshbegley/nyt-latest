@@ -3,7 +3,7 @@
 https://nytimes.com/2024/05/01/nyregion/columbia-university-protests-arrests.html
 
 **Here are the latest developments.**\
-`By Mike Ives`\
+`By Mike Ives and John Yoon`\
 https://nytimes.com/live/2024/05/01/nyregion/columbia-university-protests/here-are-the-latest-developments
 
 **01campus-protests**\
