@@ -1,3 +1,7 @@
+**Frustration and accusations follow a violent night at U.C.L.A.**\
+`Administrators said in an email on Wednesday that all classes were canceled and that police officers would remain stationed throughout campus.`\
+https://nytimes.com/live/2024/05/01/nyregion/columbia-university-protests/ucla-classes-protests
+
 **Transcript of Trump Manhattan Trial, April 25, 2024**\
 `New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
 https://nytimes.com/interactive/2024/05/01/nyregion/trump-hush-money-trial-transcript-april-25.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/01/us/politics/us-sanctions-china-russia.html
 **Some Democrats are urging Biden to put pressure on the Fed.**\
 `By Jim Tankersley and Jeanna Smialek`\
 https://nytimes.com/live/2024/05/01/business/fed-meeting-interest-rates/some-democrats-are-urging-biden-to-put-pressure-on-the-fed
-
-**Transcript of Trump Manhattan Trial, April 23, 2024**\
-`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
-https://nytimes.com/interactive/2024/05/01/nyregion/trump-hush-money-trial-transcript-april-23.html
 
