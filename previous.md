@@ -1,3 +1,7 @@
+**Even Celebrities Don’t Know How to Ask Their Friends About Ozempic**\
+`When Barbra Streisand posted a comment on social media about the actress Melissa McCarthy, it prompted a public conversation.`\
+https://nytimes.com/2024/04/30/style/ozempic-barbra-streisand-melissa-mccarthy.html
+
 **Judge Holds Trump in Contempt Over Gag Order**\
 `Donald Trump was fined and warned of jail time after he violated a gag order in his criminal trial. Prosecutors have argued that his statements threaten the trial. Jonah Bromwich, a criminal justice reporter at The New York Times, gives his takeaways.`\
 https://nytimes.com/video/nyregion/100000009441949/judge-holds-trump-in-contempt.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/30/business/pge-kkr-stake.html
 **In Charlotte, a City Mourns Its Officers, and Asks What Went Wrong**\
 `The killing of the four officers in a usually quiet neighborhood, where a running gun battle left people scrambling for cover, stunned residents and brought anguish across the city.`\
 https://nytimes.com/2024/04/30/us/charlotte-officers-killed-aftermath.html
-
-**Karen McDougal Almost Went on ABC News, but Then Trump’s Team Paid Her**\
-`Prosecutors begin to prepare the way for Michael Cohen’s crucial testimony.`\
-https://nytimes.com/live/2024/04/24/opinion/thepoint/stormy-daniels-trump-trial
 
