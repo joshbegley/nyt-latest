@@ -1,3 +1,7 @@
+**The Words That Have Defined This Week in Donald J. Trump’s Trial**\
+`Witnesses discussed the salacious and the banal, and the judge warned the defendant he could go to jail.`\
+https://nytimes.com/2024/05/01/nyregion/trump-trial-witnesses-moments.html
+
 **When Banks Fail, Why Do We Keep Bailing Out Uninsured Depositors?**\
 `In routinely making the uninsured whole, the F.D.I.C. isn’t doing its job, an N.Y.U. professor argues.`\
 https://nytimes.com/2024/05/01/opinion/fdic-insurance-banks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/01/us/politics/bankruptcy-giuliani-spending.html
 **In Latest Stunt, Airbnb Lists the ‘Up’ House. It Floats.**\
 `The company announced a new category of outlandish stays in partnership with brands and celebrities, building on the success of gimmicks like the Barbie Malibu DreamHouse.`\
 https://nytimes.com/2024/05/01/business/airbnb-up-house-shrek-listings.html
-
-**It’s Not Just Gaza: Student Protesters See Links to a Global Struggle**\
-`In many students’ eyes, the war in Gaza is linked to other issues, such as policing, mistreatment of Indigenous people, racism and the impact of climate change.`\
-https://nytimes.com/2024/05/01/us/pro-palestinian-college-protests.html
 

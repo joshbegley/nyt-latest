@@ -1,3 +1,7 @@
+**The Words That Have Defined This Week in Donald J. Trump’s Trial**\
+`Witnesses discussed the salacious and the banal, and the judge warned the defendant he could go to jail.`\
+https://nytimes.com/2024/05/01/nyregion/trump-trial-witnesses-moments.html
+
 **When Banks Fail, Why Do We Keep Bailing Out Uninsured Depositors?**\
 `In routinely making the uninsured whole, the F.D.I.C. isn’t doing its job, an N.Y.U. professor argues.`\
 https://nytimes.com/2024/05/01/opinion/fdic-insurance-banks.html
