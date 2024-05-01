@@ -1,6 +1,6 @@
 **The latest campus battleground is the flagpole.**\
 `By Nicholas Bogel-Burroughs`\
-https://nytimes.com/live/2024/05/01/nyregion/columbia-university-protests/the-latest-campus-battleground-is-the-flagpole
+https://nytimes.com/2024/05/01/us/the-latest-campus-battleground-is-the-flagpole.html
 
 **Spring Art Fairs Kick Off for Buyers and Browsers Alike**\
 `With Frieze comes a buffet of art in New York City, whether you’re looking for blue-chip galleries or emerging artists.`\
