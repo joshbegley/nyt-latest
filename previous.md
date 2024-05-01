@@ -1,3 +1,7 @@
+**Tornado Destroys Homes, Kills at Least One in Kansas**\
+`A powerful tornado ripped through a community in northeastern Kansas on Tuesday afternoon, destroying dozens of homes and structures and killing at least one person, officials said.`\
+https://nytimes.com/2024/04/30/us/kansas-tornado-storms-weather.html
+
 **Federal Judges Block Newly Drawn Louisiana Congressional Map**\
 `In a 2-to-1 decision, the panel sided with challengers who argued that the map that created a second Black majority district was an “impermissible racial gerrymander.”`\
 https://nytimes.com/2024/04/30/us/louisiana-congressional-map-ruling.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/nyregion/100000009441949/judge-holds-trump-in-contempt
 **At U.C.L.A., Israel supporters are making themselves known.**\
 `Counterprotests have become a daily occurrence at the University of California, Los Angeles, and altercations have happened at the campus.`\
 https://nytimes.com/live/2024/04/30/nyregion/columbia-protests-college/ucla-encampment-protests
-
-**Same-Store Sales at Starbucks Drop, Pushing Revenue Down 1.8%**\
-`After the chain’s quarterly earnings missed Wall Street’s estimates, its shares fell more than 12 percent in after-hours trading.`\
-https://nytimes.com/2024/04/30/business/starbucks-earnings-first-quarter.html
 

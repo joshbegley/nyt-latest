@@ -1,3 +1,7 @@
+**Tornado Destroys Homes, Kills at Least One in Kansas**\
+`A powerful tornado ripped through a community in northeastern Kansas on Tuesday afternoon, destroying dozens of homes and structures and killing at least one person, officials said.`\
+https://nytimes.com/2024/04/30/us/kansas-tornado-storms-weather.html
+
 **Federal Judges Block Newly Drawn Louisiana Congressional Map**\
 `In a 2-to-1 decision, the panel sided with challengers who argued that the map that created a second Black majority district was an “impermissible racial gerrymander.”`\
 https://nytimes.com/2024/04/30/us/louisiana-congressional-map-ruling.html
