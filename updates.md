@@ -1,3 +1,11 @@
+**Popcast (Deluxe): Sabrina Carpenter, Chappell Roan + Editing Taylor Swift**\
+`Picking the best songs from “The Tortured Poets Department” one week later. Plus: the rise of a pair of pop’s middle-class stars.`\
+https://nytimes.com/2024/05/01/arts/music/sabrina-carpenter-taylor-swift-popcast.html
+
+**The Latest Campus Battleground Is the Flagpole**\
+`Demonstrators have raised Palestinian flags in place of American flags on several campus, and drawn an angry response.`\
+https://nytimes.com/2024/05/01/us/college-protest-palestinian-flag.html
+
 **As Protests Grow, Universities Choose Different Ways to End Unrest**\
 `Columbia has taken the spotlight after twice asking the police to quell pro-Palestinian demonstrations on campus. Brown University chose a different path.`\
 https://nytimes.com/2024/05/01/nyregion/college-protests-divestment-columbia-brown.html
