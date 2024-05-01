@@ -1,3 +1,7 @@
+**Bit in a Bar**\
+`Juliana Tringali Golden nips our worries in the bud.`\
+https://nytimes.com/2024/04/30/crosswords/daily-puzzle-2024-05-01.html
+
 **Democrats Win New York Special House Election, Narrowing G.O.P. Majority**\
 `The victory by Timothy Kennedy, a Democratic state senator, was not a surprise. But it will make Republicans’ lives more difficult in Washington.`\
 https://nytimes.com/2024/04/30/nyregion/timothy-kennedy-special-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/30/business/starbucks-earnings-first-quarter.html
 **N.S.A. Disclosure of U.S. Identities in Surveillance Reports Nearly Tripled in 2023**\
 `The sharp increase of so-called unmaskings, to more than 31,300 times, arose from attempts by foreign hackers to infiltrate the computer systems of critical infrastructure.`\
 https://nytimes.com/2024/04/30/us/politics/nsa-warrantless-surveillance-americans.html
-
-**‘Staff Meal’ Review: The Last Course for Doomsday Diners and Dates**\
-`Restaurant patrons and staff members are oblivious to the impending apocalypse in Abe Koogler’s new show at Playwrights Horizons.`\
-https://nytimes.com/2024/04/30/theater/staff-meal-review-abe-koogler.html
 

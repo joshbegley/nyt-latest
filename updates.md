@@ -1,3 +1,7 @@
+**Bit in a Bar**\
+`Juliana Tringali Golden nips our worries in the bud.`\
+https://nytimes.com/2024/04/30/crosswords/daily-puzzle-2024-05-01.html
+
 **Democrats Win New York Special House Election, Narrowing G.O.P. Majority**\
 `The victory by Timothy Kennedy, a Democratic state senator, was not a surprise. But it will make Republicans’ lives more difficult in Washington.`\
 https://nytimes.com/2024/04/30/nyregion/timothy-kennedy-special-election.html
