@@ -1,3 +1,15 @@
+**It’s Not Just Gaza: Student Protesters See Links to a Global Struggle**\
+`In many students’ eyes, the war in Gaza is linked to other issues, such as policing, mistreatment of Indigenous people, racism and the impact of climate change.`\
+https://nytimes.com/2024/05/01/us/pro-palestinian-college-protests.html
+
+**The 63-Year-Old Career Activist Among the Protesters at Columbia**\
+`Videos show Lisa Fithian, whom the police called a “professional agitator,” working alongside protesters who stormed Hamilton Hall.`\
+https://nytimes.com/2024/05/01/nyregion/columbia-university-protest-consultant-lisa-fithian.html
+
+**Transcript of Trump Manhattan Trial, April 26, 2024**\
+`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
+https://nytimes.com/interactive/2024/05/01/nyregion/trump-hush-money-trial-transcript-april-26.html
+
 **Handcuffs and Barricades at Columbia, but No Reporters**\
 `By restricting media access, the N.Y.P.D. prevented the public from knowing the full details of its campus raid.`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/columbia-protests-raid-reporters
