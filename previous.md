@@ -1,3 +1,11 @@
+**Greene Says She Will Demand Vote Next Week to Vacate Johnson**\
+`Representative Marjorie Taylor Greene, the right-wing Republican from Georgia, excoriated the House speaker for working with Democrats to push through major bills. She said she would move ahead despite all but certain defeat.`\
+https://nytimes.com/2024/05/01/us/politics/marjorie-taylor-greene-mike-johnson-speaker.html
+
+**Some Gazans Say U.S. Campus Protests Give Them ‘Hope’**\
+`The protests have come at a fearful time for Palestinians in Rafah, with Prime Minister Benjamin Netanyahu of Israel vowing to launch a ground invasion of the city.`\
+https://nytimes.com/2024/05/01/world/middleeast/us-college-protests-gaza-palestinians.html
+
 **Trump is heading to two Midwest battlegrounds, his first major campaign events since his criminal trial began.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/05/01/us/biden-trump-election-news/trump-is-heading-to-two-midwest-battlegrounds-his-first-major-campaign-events-since-his-criminal-trial-began
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/01/style/sibling-only-dinners.html
 **The Cannabis Industry Hopes for New Highs**\
 `The Justice Department’s recommendation that restrictions on marijuana be lifted have revived expectations for a business that has waited years for such a change.`\
 https://nytimes.com/2024/05/01/business/dealbook/cannabis-business-law.html
-
-**Will Hamas Say No?**\
-`We explain why a cease-fire hasn’t happened.`\
-https://nytimes.com/2024/05/01/briefing/ceasefire.html
-
-**Chinese Scientist Who Shared Covid Sequence Protests Lab Closure**\
-`Professor Zhang Yongzhen had flouted a government ban by disclosing the genome of the Covid virus soon after it emerged in Wuhan in 2020.`\
-https://nytimes.com/2024/05/01/world/asia/china-scientist-covid-lab.html
 
