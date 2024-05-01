@@ -1,3 +1,11 @@
+**Kamala Harris Isn’t Americans’ ‘Momala.’ She’s Our Vice President.**\
+`In her conversation with the vice president, Drew Barrymore allowed informality to veer into disrespect.`\
+https://nytimes.com/2024/05/01/opinion/drew-barrymore-kamala-harris.html
+
+**How Protesters Can Actually Help Palestinians**\
+`I worry that the more aggressive demonstrators may be hurting the Gazans they’re trying to support.`\
+https://nytimes.com/2024/05/01/opinion/student-protests-gaza.html
+
 **Republicans Step Up Attacks on Scientist at Heart of Lab Leak Theory**\
 `A heated hearing produced no new evidence that Peter Daszak or his nonprofit, EcoHealth Alliance, were implicated in the Covid outbreak.`\
 https://nytimes.com/2024/05/01/science/covid-lab-leak-ecohealth-nih.html
@@ -6,7 +14,7 @@ https://nytimes.com/2024/05/01/science/covid-lab-leak-ecohealth-nih.html
 `The bill, which reflects growing support for legalization, would end the federal prohibition on cannabis. But it is unlikely to pass in an election year and a divided government.`\
 https://nytimes.com/2024/05/01/us/politics/senate-democrats-marijuana-biden.html
 
-**Republicans Call on NPR’s C.E.O. to Testify About Political Bias**\
+**Republicans Call on NPR’s C.E.O. to Testify About Political Bias Accusations**\
 `Katherine Maher, the radio network’s new chief executive, has been in the spotlight since an editor published an essay accusing the organization of leftward-leaning bias.`\
 https://nytimes.com/2024/05/01/business/media/npr-republican-bias-ceo-katherine-maher.html
 
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/01/health/bird-flu-milk-cows.html
 **‘Active Shooter’ Is ‘Neutralized’ Near Wisconsin Middle School, Officials Say**\
 `School officials in Mount Horeb, Wis., southwest of Madison, said that no one else was harmed and that schools were placed on lockdown.`\
 https://nytimes.com/2024/05/01/us/wisconsin-mount-horeb-active-shooter.html
-
-**How Six-Week Abortion Bans Went From Fringe to Reality**\
-`Even opponents of abortion saw such curbs as too controversial just over a decade ago. Times have changed.`\
-https://nytimes.com/2024/05/01/us/politics/six-week-abortion-bans.html
-
-**Read Transcripts From Trump’s Manhattan Criminal Trial**\
-`The New York Times is publishing the court system’s transcripts from the Manhattan criminal trial of Donald J. Trump, who is charged with 34 felonies in the case.`\
-https://nytimes.com/article/trump-hush-money-trial-transcripts.html
 

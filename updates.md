@@ -1,3 +1,15 @@
+**Kamala Harris Isn’t Americans’ ‘Momala.’ She’s Our Vice President.**\
+`In her conversation with the vice president, Drew Barrymore allowed informality to veer into disrespect.`\
+https://nytimes.com/2024/05/01/opinion/drew-barrymore-kamala-harris.html
+
+**How Protesters Can Actually Help Palestinians**\
+`I worry that the more aggressive demonstrators may be hurting the Gazans they’re trying to support.`\
+https://nytimes.com/2024/05/01/opinion/student-protests-gaza.html
+
+**Republicans Call on NPR’s C.E.O. to Testify About Political Bias Accusations**\
+`Katherine Maher, the radio network’s new chief executive, has been in the spotlight since an editor published an essay accusing the organization of leftward-leaning bias.`\
+https://nytimes.com/2024/05/01/business/media/npr-republican-bias-ceo-katherine-maher.html
+
 **Republicans Step Up Attacks on Scientist at Heart of Lab Leak Theory**\
 `A heated hearing produced no new evidence that Peter Daszak or his nonprofit, EcoHealth Alliance, were implicated in the Covid outbreak.`\
 https://nytimes.com/2024/05/01/science/covid-lab-leak-ecohealth-nih.html
