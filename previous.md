@@ -1,3 +1,15 @@
+**Albuquerque School’s Staff on Leave After Drag Show at Prom**\
+`Albuquerque Public Schools in New Mexico also installed an acting principal as it investigates a high school prom.`\
+https://nytimes.com/2024/04/30/us/prom-drag-show-high-school-nm.html
+
+**Transcript: Ezra Klein Interviews Hannah Ritchie**\
+`The April 30, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/04/30/podcasts/transcript-ezra-klein-interviews-hannah-ritchie.html
+
+**Law Firm Defending Trump Seeks to Withdraw From a Long-Running Case**\
+`The firm, LaRocca Hornik, has represented Donald Trump’s political operation in numerous suits dating to his first presidential run, including a pregnancy discrimination case in New York.`\
+https://nytimes.com/2024/04/30/us/politics/trump-lawyers-delgado.html
+
 **Even Celebrities Don’t Know How to Ask Their Friends About Ozempic**\
 `When Barbra Streisand posted a comment on social media about the actress Melissa McCarthy, it prompted a public conversation.`\
 https://nytimes.com/2024/04/30/style/ozempic-barbra-streisand-melissa-mccarthy.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/30/theater/staff-meal-review-abe-koogler.html
 **Netanyahu Vows to Invade Rafah ‘With or Without’ Cease-Fire Deal**\
 `As mediators pressed for a truce and Secretary of State Antony J. Blinken toured the region, a ground incursion into the southern Gazan city loomed.`\
 https://nytimes.com/2024/04/30/world/middleeast/netanyahu-invasion-rafah-cease-fire.html
-
-**Sheryl Sandberg Screams Back at the Silence**\
-`A powerful new documentary gives voice to the rape victims of Oct 7.`\
-https://nytimes.com/2024/04/30/opinion/screams-before-silence-sheryl-sandberg.html
-
-**PG&E Seeks Approval to Sell Stake in Its Power Operations**\
-`California’s largest utility said its proposed deal with the global investment firm KKR could reduce customer rates by $100 million over 20 years.`\
-https://nytimes.com/2024/04/30/business/pge-kkr-stake.html
-
-**In Charlotte, a City Mourns Its Officers, and Asks What Went Wrong**\
-`The killing of the four officers in a usually quiet neighborhood, where a running gun battle left people scrambling for cover, stunned residents and brought anguish across the city.`\
-https://nytimes.com/2024/04/30/us/charlotte-officers-killed-aftermath.html
 

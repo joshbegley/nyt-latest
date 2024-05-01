@@ -1,3 +1,15 @@
+**Albuquerque School’s Staff on Leave After Drag Show at Prom**\
+`Albuquerque Public Schools in New Mexico also installed an acting principal as it investigates a high school prom.`\
+https://nytimes.com/2024/04/30/us/prom-drag-show-high-school-nm.html
+
+**Transcript: Ezra Klein Interviews Hannah Ritchie**\
+`The April 30, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/04/30/podcasts/transcript-ezra-klein-interviews-hannah-ritchie.html
+
+**Law Firm Defending Trump Seeks to Withdraw From a Long-Running Case**\
+`The firm, LaRocca Hornik, has represented Donald Trump’s political operation in numerous suits dating to his first presidential run, including a pregnancy discrimination case in New York.`\
+https://nytimes.com/2024/04/30/us/politics/trump-lawyers-delgado.html
+
 **What Happened at the Trump Trial on Tuesday**\
 `Donald Trump was fined and warned of jail time after he violated a gag order in his criminal trial. Prosecutors have argued that his statements threaten the trial. Jonah Bromwich, a criminal justice reporter at The New York Times, gives his takeaways.`\
 https://nytimes.com/video/nyregion/100000009441949/judge-holds-trump-in-contempt.html
