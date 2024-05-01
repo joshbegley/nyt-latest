@@ -1,3 +1,7 @@
+**The Cannabis Industry Hopes for New Highs**\
+`The Justice Department’s recommendation that restrictions on marijuana be lifted have revived expectations for a business that has waited years for such a change.`\
+https://nytimes.com/2024/05/01/business/dealbook/cannabis-business-law.html
+
 **Will Hamas Say No?**\
 `We explain why a cease-fire hasn’t happened.`\
 https://nytimes.com/2024/05/01/briefing/ceasefire.html
