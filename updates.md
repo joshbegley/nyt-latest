@@ -1,3 +1,7 @@
+**Met Museum Reaches Fund-raising Goal for New Modern Wing**\
+`The museum achieves a milestone, but still faces a complex public approval process for its Tang Wing, which is on city land.`\
+https://nytimes.com/2024/05/01/arts/design/met-museum-fund-raising-modern-wing.html
+
 **Blinken calls on Hamas to take cease-fire deal that the United States and Israel support.**\
 `The U.S. secretary of state put the onus on Hamas, stressing on his visit to Israel that Israeli leaders have agreed to terms for a deal that would save Palestinian lives.`\
 https://nytimes.com/live/2024/05/01/world/israel-gaza-war-hamas/blinken-hamas-israel-cease-fire
