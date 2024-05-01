@@ -1,3 +1,27 @@
+**Student Orchestra**\
+`A youth ensemble in New York City had an extraordinary opportunity. Would you want to be a part of a school orchestra or band?`\
+https://nytimes.com/2024/05/01/learning/student-orchestra.html
+
+**The Most Decorated Battleship in U.S. History Gets an Overdue Face-Lift**\
+`It has been 34 years since the Battleship New Jersey was last pulled out of the water for maintenance.`\
+https://nytimes.com/2024/05/01/nyregion/battleship-new-jersey-repairs.html
+
+**Weinstein to Appear in Court for First Time Since Conviction Overturned**\
+`Harvey Weinstein, the disgraced former Hollywood producer, is set to appear in a Manhattan court Wednesday in what could be the first step toward a new sex crimes trial.`\
+https://nytimes.com/2024/05/01/nyregion/harvey-weinstein-ny-court-hearing.html
+
+**The Connections Companion No. 325**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/01/crosswords/connections-companion.html
+
+**Today’s Wordle Review No. 1,047**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/01/crosswords/wordle-review.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/05/01/crosswords/spelling-bee-forum.html
+
 **Late Night Weighs In on Donald Trump’s $9,000 Fine**\
 `“I know $9,000 might not seem like a lot to a successful businessman, but what about to Trump?” Colbert said of the court-imposed penalty for violating a gag order.`\
 https://nytimes.com/2024/05/01/arts/television/late-night-trump-contempt.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/05/01/learning/word-of-the-day-pigeonhole.html
 **Blinken seeks to avert Israeli offensive while getting Hamas support for a deal.**\
 `President Biden is pushing Hamas to release some hostages for a six-week cease-fire, but Prime Minister Benjamin Netanyahu says he will do a major assault in Rafah “with or without” a deal.`\
 https://nytimes.com/live/2024/05/01/world/israel-gaza-war-hamas/blinken-seeks-to-avert-israeli-offensive-while-getting-hamas-support-for-a-deal
-
-**01mideast-crisis**\
-`Blinken Meets With Israeli Leaders as Netanyahu Promises Assault on Rafah`\
-https://nytimes.com/live/2024/05/01/world/israel-gaza-war-hamas
-
-**A group of House Democrats was among those urging Columbia to crack down.**\
-`By Minho Kim and Luke Broadwater`\
-https://nytimes.com/live/2024/04/30/nyregion/columbia-protests-college/a-group-of-house-democrats-was-among-those-urging-columbia-to-crack-down
-
-**Drought That Snarled Panama Canal Was Linked to El Niño, Study Finds**\
-`The low water levels that choked cargo traffic were more closely tied to the natural climate cycle than to human-caused warming, a team of scientists has concluded.`\
-https://nytimes.com/2024/05/01/climate/panama-canal-drought.html
-
-**Corrections: May 1, 2024**\
-`Corrections that appeared in print on Wednesday, May 1, 2024.`\
-https://nytimes.com/2024/05/01/pageoneplus/corrections-may-1-2024.html
-
-**Quotation of the Day: Delicious Wherever You Are**\
-`Quotation of the Day for Wednesday, May 1, 2024.`\
-https://nytimes.com/2024/05/01/pageoneplus/quotation-of-the-day-delicious-wherever-you-are.html
-
-**Read the Federal Judges’ Ruling**\
-`A newly drawn congressional map in Louisiana was struck down on Tuesday by a panel of federal judges who found that the new boundaries, which form a second majority Black district in the state, amounted to an “impermissible racial gerrymander” that violated the Equal Protection Clause of the U.`\
-https://nytimes.com/interactive/2024/05/01/us/louisiana-congressional-map-ruling.html
 
