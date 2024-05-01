@@ -1,3 +1,7 @@
+**Vaccine Acceptance Is Far More Common Than You Might Think**\
+`Even so, some concerns about hesitance are legitimate.`\
+https://nytimes.com/live/2024/04/24/opinion/thepoint/vaccine-uptake-survey
+
 **New Progressive PAC Targets 8 Key House Races in California**\
 `The super PAC, Battleground California, said it would drive turnout among voters of color to try to flip seats that are seen as crucial to winning control of the House this fall.`\
 https://nytimes.com/2024/05/01/us/politics/california-house-races-pac.html
