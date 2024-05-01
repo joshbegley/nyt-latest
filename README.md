@@ -1,3 +1,19 @@
+**Swimming Beneath Sand, It’s ‘the Hardest of All Animals to Find’**\
+`Indigenous rangers in Australia’s Western Desert got a rare close-up with the northern marsupial mole, which is tiny, light-colored and blind, and almost never comes to the surface.`\
+https://nytimes.com/2024/05/01/science/northern-marsupial-mole-australia.html
+
+**Wednesday Briefing**\
+`Demonstrations disrupt U.S. colleges.`\
+https://nytimes.com/2024/05/01/briefing/columbia-protest-arrest-trump-contempt.html
+
+**He Won by a Landslide. Why Is He Fighting for His Political Life?**\
+`Ben Houchen, a regional mayor in the north of England, faces a close re-election race, partly thanks to the broader troubles of Britain’s Conservative Party.`\
+https://nytimes.com/2024/05/01/world/europe/he-won-by-a-landslide-why-is-he-fighting-for-his-political-life.html
+
+**China’s Electric Cars Keep Improving, a Worry for Rivals Elsewhere**\
+`More capable autonomous driving is just one way Chinese automakers are threatening to pull ahead — their E.V.s are also becoming bigger and roomier.`\
+https://nytimes.com/2024/05/01/business/china-electric-vehicles.html
+
 **Paul Auster’s New York Tragedy**\
 `A complicated, generous life yielded a body of work of staggering scope and variety.`\
 https://nytimes.com/2024/04/30/books/review/paul-auster-appreciation.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/04/30/us/kansas-tornado-storms-weather.html
 **Federal Judges Block Newly Drawn Louisiana Congressional Map**\
 `In a 2-to-1 decision, the panel sided with challengers who argued that the map that created a second Black majority district was an “impermissible racial gerrymander.”`\
 https://nytimes.com/2024/04/30/us/louisiana-congressional-map-ruling.html
-
-**Bit in a Bar**\
-`Juliana Tringali Golden nips our worries in the bud.`\
-https://nytimes.com/2024/04/30/crosswords/daily-puzzle-2024-05-01.html
-
-**Democrats Win New York Special House Election, Narrowing G.O.P. Majority**\
-`The victory by Timothy Kennedy, a Democratic state senator, was not a surprise. But it will make Republicans’ lives more difficult in Washington.`\
-https://nytimes.com/2024/04/30/nyregion/timothy-kennedy-special-election.html
-
-**Albuquerque School’s Staff on Leave After Drag Show at Prom**\
-`Albuquerque Public Schools in New Mexico also installed an acting principal as it investigates a high school prom.`\
-https://nytimes.com/2024/04/30/us/prom-drag-show-high-school-nm.html
-
-**Transcript: Ezra Klein Interviews Hannah Ritchie**\
-`The April 30, 2024, episode of “The Ezra Klein Show.”`\
-https://nytimes.com/2024/04/30/podcasts/transcript-ezra-klein-interviews-hannah-ritchie.html
 
