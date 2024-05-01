@@ -36,5 +36,5 @@ https://nytimes.com/2024/05/01/well/eat/bird-flu-milk-raw.html
 
 **Blinken calls on Hamas to take cease-fire deal that the United States and Israel support.**\
 `The U.S. secretary of state put the onus on Hamas, stressing on his visit to Israel that Israeli leaders have agreed to terms for a deal that would save Palestinian lives.`\
-https://nytimes.com/live/2024/05/01/world/israel-gaza-war-hamas/blinken-calls-on-hamas-to-take-cease-fire-deal-that-the-united-states-and-israel-support
+https://nytimes.com/live/2024/05/01/world/israel-gaza-war-hamas/blinken-hamas-israel-cease-fire
 
