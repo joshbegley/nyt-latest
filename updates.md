@@ -1,3 +1,7 @@
+**At U.C.L.A., Israel supporters are making themselves known.**\
+`Counterprotests have become a daily occurrence at the University of California, Los Angeles, and altercations have happened at the campus.`\
+https://nytimes.com/live/2024/04/30/nyregion/columbia-protests-college/ucla-encampment-protests
+
 **Even Celebrities Don’t Know How to Ask Their Friends About Ozempic**\
 `When Barbra Streisand posted a comment on social media about the actress Melissa McCarthy, it prompted a public conversation.`\
 https://nytimes.com/2024/04/30/style/ozempic-barbra-streisand-melissa-mccarthy.html
