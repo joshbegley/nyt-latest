@@ -6,9 +6,9 @@ https://nytimes.com/2024/05/01/nyregion/college-protests-divestment-columbia-bro
 `I report on Hollywood for the Business and Culture desks. Here are five I’ve watched recently.`\
 https://nytimes.com/interactive/2024/05/01/arts/editors-recommendations-atomicblonde.html
 
-**The latest campus battleground is the flagpole.**\
-`By Nicholas Bogel-Burroughs`\
-https://nytimes.com/2024/05/01/us/the-latest-campus-battleground-is-the-flagpole.html
+**The Latest Campus Battleground Is the Flagpole.**\
+`Demonstrators have raised Palestinian flags in place of American flags on several campus, and drawn an angry response.`\
+https://nytimes.com/2024/05/01/us/college-protest-palestinian-flag.html
 
 **Spring Art Fairs Kick Off for Buyers and Browsers Alike**\
 `With Frieze comes a buffet of art in New York City, whether you’re looking for blue-chip galleries or emerging artists.`\
