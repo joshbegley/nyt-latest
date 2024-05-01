@@ -1,9 +1,13 @@
+**Pet Alligator Is Mistakenly Released Into the Wild, Owner Says**\
+`Wally, an emotional support alligator, was apparently kidnapped, found and dropped in a swamp.`\
+https://nytimes.com/2024/05/01/us/alligator-kidnapping-georgia.html
+
 **NASCAR and Its Race Teams Fight Over the Sport’s Future**\
 `Team owners said they needed to share in racing’s financial success, putting them at odds with the privately held business that runs the sport.`\
 https://nytimes.com/2024/05/01/business/nascar-racing-teams-charters.html
 
 **Trump to address Libertarian Party, new report focuses on threats to election officials and more.**\
-`By The New York Times`\
+`By Shane Goldmacher, Neil Vigdor and Nicholas Nehamas`\
 https://nytimes.com/live/2024/05/01/us/biden-trump-election-news/trump-to-address-libertarian-party-new-report-focuses-on-threats-to-election-officials-and-more
 
 **Johnson & Johnson Proposes $6.5 Billion in New Talc Settlement Offer**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/01/business/interest-rates-mortgages-credit-cards-st
 **After a tense night with over 100 arrests, Columbia’s campus remains closed.**\
 `By Lola Fadulu and Santul Nerkar`\
 https://nytimes.com/live/2024/05/01/nyregion/columbia-university-protests/columbia-city-college-arrests-protests
-
-**What to See in New York During a Month-Long Celebration of Design**\
-`These are the highlights of what to do and where to go in May if you’re interested in design topics.`\
-https://nytimes.com/2024/05/01/arts/design/new-york-design-festival.html
 
