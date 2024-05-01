@@ -1,3 +1,7 @@
+**What the First Amendment Means for Campus Protests**\
+`Encampments? Occupying buildings? Demonstrators cite their right to free expression, but the issues are thorny.`\
+https://nytimes.com/2024/05/01/us/free-speech-campus-protests.html
+
 **Wall Street is worried about the cost of government debt.**\
 `By Joe Rennison`\
 https://nytimes.com/live/2024/05/01/business/fed-meeting-interest-rates/wall-street-is-worried-about-the-cost-of-government-debt
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/01/world/asia/jailed-writers-pen-index.html
 **Unruly Passenger Must Pay United Airlines $20,638 for Disrupting Flight**\
 `The man had been “verbally and physically aggressive” on a United flight from London to Newark, prompting the plane to land in Bangor, Maine, prosecutors said.`\
 https://nytimes.com/2024/05/01/us/united-airlines-passenger-diverted-flight.html
-
-**Should I Lie So That My Cousin Can Have a Catholic Wedding?**\
-`The magazine’s Ethicist columnist on whether to fib for a relative, especially when you don’t think the ends justify the means.`\
-https://nytimes.com/2024/05/01/magazine/catholic-cousin-annulment-ethics.html
 
