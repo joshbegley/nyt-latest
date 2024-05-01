@@ -1,5 +1,9 @@
 **Frustration and accusations follow a violent night at U.C.L.A.**\
 `Administrators said in an email on Wednesday that all classes were canceled and that police officers would remain stationed throughout campus.`\
+https://nytimes.com/2024/05/01/us/ucla-classes-protests.html
+
+**Frustration and accusations follow a violent night at U.C.L.A.**\
+`Administrators said in an email on Wednesday that all classes were canceled and that police officers would remain stationed throughout campus.`\
 https://nytimes.com/live/2024/05/01/nyregion/columbia-university-protests/ucla-classes-protests
 
 **Transcript of Trump Manhattan Trial, April 25, 2024**\
