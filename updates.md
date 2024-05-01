@@ -1,3 +1,7 @@
+**Duane Eddy, Whose Twang Changed Rock ’n’ Roll, Dies at 86**\
+`A self-taught electric guitar virtuoso, he influenced a generation of musicians. One of them, John Fogerty, called him rock’s first guitar god.`\
+https://nytimes.com/2024/05/01/arts/music/duane-eddy-dead.html
+
 **The 63-Year-Old Career Activist Among the Protesters at Columbia**\
 `Videos show Lisa Fithian, whom the police called a “professional agitator,” working alongside protesters who stormed Hamilton Hall.`\
 https://nytimes.com/2024/05/01/nyregion/columbia-university-protest-consultant-lisa-fithian.html
