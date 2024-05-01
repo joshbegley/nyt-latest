@@ -1,3 +1,11 @@
+**Blinken seeks to avert Israeli offensive while getting Hamas support for a deal.**\
+`President Biden is pushing Hamas to release some hostages for a six-week ceasefire, but Prime Minister Benjamin Netanyahu says he will do a major assault in Rafah “with or without” a deal.`\
+https://nytimes.com/live/2024/05/01/world/israel-gaza-war-hamas/blinken-seeks-to-avert-israeli-offensive-while-getting-hamas-support-for-a-deal
+
+**01mideast-crisis**\
+`Blinken Meets With Israeli Leaders as Netanyahu Promises Assault on Rafah`\
+https://nytimes.com/live/2024/05/01/world/israel-gaza-war-hamas
+
 **A group of House Democrats was among those urging Columbia to crack down.**\
 `By Minho Kim and Luke Broadwater`\
 https://nytimes.com/live/2024/04/30/nyregion/columbia-protests-college/a-group-of-house-democrats-was-among-those-urging-columbia-to-crack-down
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/01/science/northern-marsupial-mole-australia.html
 **Wednesday Briefing**\
 `Demonstrations disrupt U.S. colleges.`\
 https://nytimes.com/2024/05/01/briefing/columbia-protest-arrest-trump-contempt.html
-
-**He Won by a Landslide. Why Is He Fighting for His Political Life?**\
-`Ben Houchen, a regional mayor in the north of England, faces a close re-election race, partly thanks to the broader troubles of Britain’s Conservative Party.`\
-https://nytimes.com/2024/05/01/world/europe/uk-election-mayor-ben-houchen.html
-
-**China’s Electric Cars Keep Improving, a Worry for Rivals Elsewhere**\
-`More capable autonomous driving is just one way Chinese automakers are threatening to pull ahead — their E.V.s are also becoming bigger and roomier.`\
-https://nytimes.com/2024/05/01/business/china-electric-vehicles.html
 
