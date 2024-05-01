@@ -1,3 +1,15 @@
+**Bird Flu Highlights Concerns Around Raw Milk**\
+`Testing suggests that pasteurization inactivates the virus. But what about raw milk and cheese?`\
+https://nytimes.com/2024/05/01/well/eat/bird-flu-milk-raw.html
+
+**Blinken calls on Hamas to take cease-fire deal that the United States and Israel support.**\
+`The U.S. secretary of state put the onus on Hamas, stressing on his visit to Israel that Israeli leaders have agreed to terms for a deal that would save Palestinian lives.`\
+https://nytimes.com/live/2024/05/01/world/israel-gaza-war-hamas/blinken-calls-on-hamas-to-take-cease-fire-deal-that-the-united-states-and-israel-support
+
+**Why Is ‘Baby Reindeer’ Such a Hit? It’s All in the Ending.**\
+`The Netflix stalker series combines the appeal of a twisty thriller with a deep sense of empathy. The conclusion illustrates why it’s become one of the most-discussed shows of the year.`\
+https://nytimes.com/2024/05/01/arts/television/baby-reindeer-netflix-finale.html
+
 **Transcript of Trump Manhattan Trial, April 22, 2024**\
 `New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
 https://nytimes.com/interactive/2024/05/01/nyregion/trump-hush-money-trial-transcript-april-22.html
