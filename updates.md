@@ -1,3 +1,7 @@
+**Eric Adams Seizes Role as Face of the Crackdown on Student Protests**\
+`Mayor Eric Adams defended the arrests of nearly 300 protesters and said he would not allow the protests to disrupt the city.`\
+https://nytimes.com/2024/05/01/nyregion/eric-adams-columbia-protests.html
+
 **Chicken katsu, weeknight rescue**\
 `Kay Chun’s recipe cleverly shallow-fries the cutlets so they emerge golden and crispy, ready for rice, tonkatsu sauce and a shaggy mound of shredded cabbage.`\
 https://nytimes.com/2024/05/01/dining/chicken-katsu-weeknight-rescue.html
