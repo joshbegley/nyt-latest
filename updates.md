@@ -1,3 +1,7 @@
+**01campus-protests**\
+`Live Updates: U.C.L.A. Calls in Police as Clashes Escalate at Campuses`\
+https://nytimes.com/live/2024/05/01/nyregion/columbia-university-protests
+
 **Columbia Said It Had ‘No Choice’ but to Call the Police**\
 `Columbia’s president expressed regret about calling in the police to clear a previous protest. On Tuesday, she said she had “no choice” after protesters occupied a building on campus.`\
 https://nytimes.com/2024/05/01/nyregion/columbia-university-protests-arrests.html
