@@ -1,3 +1,11 @@
+**Transcript of Trump Manhattan Trial, April 22, 2024**\
+`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
+https://nytimes.com/interactive/2024/05/01/nyregion/trump-hush-money-trial-transcript-april-22.html
+
+**Eric Adams Says ‘Outside Agitators’ Co-opted Campus Protests in N.Y.C.**\
+`Without providing evidence, Mayor Eric Adams said that the protests on campuses in New York City had been infiltrated by “outside agitators” seeking to sow chaos.`\
+https://nytimes.com/video/nyregion/100000009442999/eric-adams-college-protests.html
+
 **High interest rates have made the dollar stronger.**\
 `By Joe Rennison and Karl Russell`\
 https://nytimes.com/live/2024/05/01/business/fed-meeting-interest-rates/high-interest-rates-have-made-the-dollar-stronger
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/01/business/johnson-johnson-talc-settlement.html
 **Why haven’t higher rates crushed economic growth?**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/05/01/business/fed-meeting-interest-rates/why-havent-higher-rates-crushed-economic-growth
-
-**What the First Amendment Means for Campus Protests**\
-`Encampments? Occupying buildings? Demonstrators cite their right to free expression, but the issues are thorny.`\
-https://nytimes.com/2024/05/01/us/free-speech-campus-protests.html
-
-**Wall Street is worried about the cost of government debt.**\
-`By Joe Rennison`\
-https://nytimes.com/live/2024/05/01/business/fed-meeting-interest-rates/wall-street-is-worried-about-the-cost-of-government-debt
 
