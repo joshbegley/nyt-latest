@@ -1,3 +1,7 @@
+**Biden Cancels $6.1 Billion in Debt for Former Art Institute Students**\
+`The announcement covers 317,000 former students and marks another step in the administration’s student loan relief efforts.`\
+https://nytimes.com/2024/05/01/us/politics/biden-cancels-6-1-billion-in-debt-for-former-art-institute-students.html
+
 **Greene Says She Will Demand Vote Next Week to Vacate Johnson**\
 `Representative Marjorie Taylor Greene, the right-wing Republican from Georgia, excoriated the House speaker for working with Democrats to push through major bills. She said she would move ahead despite all but certain defeat.`\
 https://nytimes.com/2024/05/01/us/politics/marjorie-taylor-greene-mike-johnson-speaker.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/01/opinion/equivalents-radcliffe.html
 **Why Does My Husband Exclude Me From Dinners With His Siblings?**\
 `A reader has been feeling left out by her husband’s siblings-only dinners — and never more so than when her brother-in-law crashed a recent get-together.`\
 https://nytimes.com/2024/05/01/style/sibling-only-dinners.html
-
-**The Cannabis Industry Hopes for New Highs**\
-`The Justice Department’s recommendation that restrictions on marijuana be lifted have revived expectations for a business that has waited years for such a change.`\
-https://nytimes.com/2024/05/01/business/dealbook/cannabis-business-law.html
 
