@@ -1,6 +1,10 @@
+**‘Lack of Further Progress’ on Inflation Keeps Interest Rates High**\
+`Jerome H. Powell, the Fed chair, said that the central bank needs “greater confidence” that inflation is coming down before it decides to cut interest rates, which are at a two-decade high.`\
+https://nytimes.com/video/business/economy/100000009443617/powell-interest-rates-inflation.html
+
 **In Florida, Harris Looks to Make Trump the Face of the State’s Abortion Ban**\
 `The vice president sought to tie former President Donald J. Trump to the state’s six-week abortion ban, which took effect on Wednesday.`\
-https://nytimes.com/2024/05/01/us/politics/florida-abotion-harris-trump.html
+https://nytimes.com/2024/05/01/us/politics/florida-abortion-harris-trump.html
 
 **Fordham students, inspired by Columbia protests, brace for police crackdown.**\
 `By Olivia Bensimon and Lola Fadulu`\
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/05/01/business/fed-meeting-interest-rates/what-to-
 **Colombia to Sever Ties With Israel Over Gaza War**\
 `Gustavo Petro, Colombia’s first leftist president, made the announcement in front of cheering crowds in the capital that had gathered for International Workers’ Day.`\
 https://nytimes.com/2024/05/01/world/middleeast/colombia-israel-relations.html
-
-**Kim Noltemy, Orchestra Veteran, Is Tapped to Lead L.A. Philharmonic**\
-`Noltemy, the Dallas Symphony Orchestra’s chief executive, will take the helm of the Philharmonic as it searches for its next music director.`\
-https://nytimes.com/2024/05/01/arts/music/kim-noltemy-los-angeles-philharmonic.html
 
