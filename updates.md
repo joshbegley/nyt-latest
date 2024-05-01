@@ -1,3 +1,11 @@
+**Read Transcripts From Trump’s Manhattan Criminal Trial**\
+`The New York Times is publishing the court system’s transcripts from the Manhattan criminal trial of Donald J. Trump, who is charged with 34 felonies in the case.`\
+https://nytimes.com/article/trump-hush-money-trial-transcripts.html
+
+**Blinken Turns Up Pressure on Hamas to Accept Gaza Cease-Fire Deal**\
+`“The time is now,” Secretary of State Antony J. Blinken declared, urging Hamas to accept the terms of a proposed truce. He also made clear that he expected more from Israel.`\
+https://nytimes.com/2024/05/01/world/middleeast/blinken-hamas-israel-gaza-cease-fire.html
+
 **Veteran Collected Benefits After Lying About Purple Heart, U.S. Says**\
 `Sharon Toney-Finch, who served in Iraq, was charged with fraudulently claiming to have a Purple Heart and with defrauding the Department of Veterans Affairs.`\
 https://nytimes.com/2024/05/01/nyregion/veteran-charged-purple-heart-fraud.html
