@@ -1,6 +1,10 @@
+**Zwirner Anchors Los Angeles Art Neighborhood With New Gallery**\
+`Its flagship will open with a 30th-anniversary exhibition featuring works by all of the gallery’s 80 artists.`\
+https://nytimes.com/2024/05/01/arts/design/zwirner-los-angeles-art-melrose.html
+
 **Record Number of Writers Were Jailed Globally in 2023, PEN America Says**\
 `For the first time, China has more than 100 incarcerated writers, and Israel and Russia entered the list of the 10 countries with the most imprisoned writers.`\
-https://nytimes.com/2024/05/01/world/jailed-writers-pen-index.html
+https://nytimes.com/2024/05/01/world/asia/jailed-writers-pen-index.html
 
 **Unruly Passenger Must Pay United Airlines $20,638 for Disrupting Flight**\
 `The man had been “verbally and physically aggressive” on a United flight from London to Newark, prompting the plane to land in Bangor, Maine, prosecutors said.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/01/nyregion/eric-adams-columbia-protests.html
 **Chicken katsu, weeknight rescue**\
 `Kay Chun’s recipe cleverly shallow-fries the cutlets so they emerge golden and crispy, ready for rice, tonkatsu sauce and a shaggy mound of shredded cabbage.`\
 https://nytimes.com/2024/05/01/dining/chicken-katsu-weeknight-rescue.html
-
-**What Makes a Society More Resilient? Frequent Hardship.**\
-`Comparing 30,000 years of human history, researchers found that surviving famine, war or climate change helps groups recover more quickly from future shocks.`\
-https://nytimes.com/2024/05/01/science/resilient-societies-climate-change.html
 

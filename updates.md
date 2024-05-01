@@ -1,3 +1,11 @@
+**Zwirner Anchors Los Angeles Art Neighborhood With New Gallery**\
+`Its flagship will open with a 30th-anniversary exhibition featuring works by all of the gallery’s 80 artists.`\
+https://nytimes.com/2024/05/01/arts/design/zwirner-los-angeles-art-melrose.html
+
+**Record Number of Writers Were Jailed Globally in 2023, PEN America Says**\
+`For the first time, China has more than 100 incarcerated writers, and Israel and Russia entered the list of the 10 countries with the most imprisoned writers.`\
+https://nytimes.com/2024/05/01/world/asia/jailed-writers-pen-index.html
+
 **Record Number of Writers Were Jailed Globally in 2023, PEN America Says**\
 `For the first time, China has more than 100 incarcerated writers, and Israel and Russia entered the list of the 10 countries with the most imprisoned writers.`\
 https://nytimes.com/2024/05/01/world/jailed-writers-pen-index.html
