@@ -1,3 +1,7 @@
+**The latest campus battleground is the flagpole.**\
+`By Nicholas Bogel-Burroughs`\
+https://nytimes.com/live/2024/05/01/nyregion/columbia-university-protests/the-latest-campus-battleground-is-the-flagpole
+
 **Spring Art Fairs Kick Off for Buyers and Browsers Alike**\
 `With Frieze comes a buffet of art in New York City, whether you’re looking for blue-chip galleries or emerging artists.`\
 https://nytimes.com/2024/05/01/arts/design/spring-art-fairs-new-york.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/01/us/ucla-classes-protests.html
 **Transcript of Trump Manhattan Trial, April 25, 2024**\
 `New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
 https://nytimes.com/interactive/2024/05/01/nyregion/trump-hush-money-trial-transcript-april-25.html
-
-**How to Make an Easy Picnic That Transports You to France**\
-`A pepper-crusted flank steak and French potato salad anchor this summery menu from David Tanis.`\
-https://nytimes.com/2024/05/01/dining/easy-picnic-recipes.html
 
