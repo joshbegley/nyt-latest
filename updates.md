@@ -1,3 +1,15 @@
+**Israeli settlers attacked aid trucks headed to Gaza, Jordan says.**\
+`By Anushka Patil and Johnatan Reiss`\
+https://nytimes.com/live/2024/05/01/world/israel-gaza-war-hamas/israeli-settlers-attacked-aid-trucks-headed-to-gaza-jordan-says
+
+**An agreement between Northwestern and pro-Palestinian demonstrators ends an encampment but draws criticism.**\
+`The deal included a promise by the university to be more financially transparent. Jewish leaders have expressed outrage.`\
+https://nytimes.com/live/2024/05/01/nyregion/columbia-university-protests/northwestern-pro-palestinian-demonstrators-agreement
+
+**Trump Acknowledges He Wanted to Go to the Capitol on Jan. 6**\
+`The former president recalled a key detail central to testimony before the Jan. 6 committee during a campaign event in Wisconsin.`\
+https://nytimes.com/2024/05/01/us/politics/trump-capitol-jan-6.html
+
 **Dan Schneider Sues ‘Quiet on Set’ Creators, Saying Series Defamed Him**\
 `In the suit, lawyers for the former Nickelodeon producer called the documentary a “hit job” that had falsely painted him as a “child sexual abuser.”`\
 https://nytimes.com/2024/05/01/arts/television/dan-schneider-quiet-on-set-defamation.html

@@ -1,3 +1,15 @@
+**Israeli settlers attacked aid trucks headed to Gaza, Jordan says.**\
+`By Anushka Patil and Johnatan Reiss`\
+https://nytimes.com/live/2024/05/01/world/israel-gaza-war-hamas/israeli-settlers-attacked-aid-trucks-headed-to-gaza-jordan-says
+
+**An agreement between Northwestern and pro-Palestinian demonstrators ends an encampment but draws criticism.**\
+`The deal included a promise by the university to be more financially transparent. Jewish leaders have expressed outrage.`\
+https://nytimes.com/live/2024/05/01/nyregion/columbia-university-protests/northwestern-pro-palestinian-demonstrators-agreement
+
+**Trump Acknowledges He Wanted to Go to the Capitol on Jan. 6**\
+`The former president recalled a key detail central to testimony before the Jan. 6 committee during a campaign event in Wisconsin.`\
+https://nytimes.com/2024/05/01/us/politics/trump-capitol-jan-6.html
+
 **Kamala Harris Isn’t Americans’ ‘Momala.’ She’s Our Vice President.**\
 `In her conversation with the vice president, Drew Barrymore allowed informality to veer into disrespect.`\
 https://nytimes.com/2024/05/01/opinion/drew-barrymore-kamala-harris.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/05/01/business/media/npr-republican-bias-ceo-katherine-
 **Dan Schneider Sues ‘Quiet on Set’ Creators, Saying Series Defamed Him**\
 `In the suit, lawyers for the former Nickelodeon producer called the documentary a “hit job” that had falsely painted him as a “child sexual abuser.”`\
 https://nytimes.com/2024/05/01/arts/television/dan-schneider-quiet-on-set-defamation.html
-
-**Sept. 11 Trial Plea Negotiations Still Underway at Guantánamo Bay**\
-`The lead prosecutor briefed the judge on the talks in an effort to fend off a claim that members of Congress had unlawfully meddled in the negotiations.`\
-https://nytimes.com/2024/05/01/us/politics/sept11-case-plea-negotiations.html
-
-**Pasteurized Dairy Foods Free of Live Bird Flu, Federal Tests Confirm**\
-`But the scope of the outbreak among cattle remains uncertain, and little human testing has been done.`\
-https://nytimes.com/2024/05/01/health/bird-flu-milk-cows.html
-
-**‘Active Shooter’ Is ‘Neutralized’ Near Wisconsin Middle School, Officials Say**\
-`School officials in Mount Horeb, Wis., southwest of Madison, said that no one else was harmed and that schools were placed on lockdown.`\
-https://nytimes.com/2024/05/01/us/wisconsin-mount-horeb-active-shooter.html
 
