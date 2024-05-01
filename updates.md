@@ -1,3 +1,7 @@
+**Dan Schneider Sues ‘Quiet on Set’ Creators, Saying Series Defamed Him**\
+`In the suit, lawyers for the former Nickelodeon producer called the documentary a “hit job” that had falsely painted him as a “child sexual abuser.”`\
+https://nytimes.com/2024/05/01/arts/television/dan-schneider-quiet-on-set-defamation.html
+
 **Kamala Harris Isn’t Americans’ ‘Momala.’ She’s Our Vice President.**\
 `In her conversation with the vice president, Drew Barrymore allowed informality to veer into disrespect.`\
 https://nytimes.com/2024/05/01/opinion/drew-barrymore-kamala-harris.html
