@@ -1,3 +1,11 @@
+**Senate Democrats Reintroduce Legislation to Legalize Marijuana**\
+`The bill, which reflects growing support for legalization, would end the federal prohibition on cannabis. But it is unlikely to pass in an election year and a divided government.`\
+https://nytimes.com/2024/05/01/us/politics/senate-democrats-marijuana-biden.html
+
+**Republicans Call on NPR’s C.E.O. to Testify About Political Bias**\
+`Katherine Maher, the radio network’s new chief executive, has been in the spotlight since an editor published an essay accusing the organization of leftward-leaning bias.`\
+https://nytimes.com/2024/05/01/business/media/npr-republican-bias-ceo-katherine-maher.html
+
 **Dan Schneider Sues ‘Quiet on Set’ Creators, Saying Series Defamed Him**\
 `In the suit, lawyers for the former Nickelodeon producer called the documentary a “hit job” that had falsely painted him as a “child sexual abuser.”`\
 https://nytimes.com/2024/05/01/arts/television/quiet-on-set-creators-sued.html
