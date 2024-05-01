@@ -1,3 +1,7 @@
+**Will Hamas Say No?**\
+`We explain why a cease-fire hasn’t happened.`\
+https://nytimes.com/2024/05/01/briefing/ceasefire.html
+
 **Chinese Scientist Who Shared Covid Sequence Protests Lab Closure**\
 `Professor Zhang Yongzhen had flouted a government ban by disclosing the genome of the Covid virus soon after it emerged in Wuhan in 2020.`\
 https://nytimes.com/2024/05/01/world/asia/china-scientist-covid-lab.html
@@ -18,13 +22,13 @@ https://nytimes.com/2024/05/01/podcasts/the-daily/abortion-supreme-court-emtala.
 `Seven hundred miles to the nearest clinic: how one ban will reshape access in the South.`\
 https://nytimes.com/interactive/2024/05/01/upshot/florida-abortion-ban.html
 
-**The Oldest President Is in Big Trouble With the Youngest Voters**\
-`Can Biden win them back?`\
-https://nytimes.com/2024/05/01/opinion/biden-younger-voters-gender.html
-
 **Arizona Legislature Will Consider Repeal of 1864 Abortion Law**\
 `Two Republican state senators have said they support scrapping the law, enough to ensure final passage of repeal.`\
 https://nytimes.com/2024/05/01/us/arizona-abortion-repeal.html
+
+**A Huge Gender Gap Is Emerging Among Young Voters**\
+`Can Biden win them back?`\
+https://nytimes.com/2024/05/01/opinion/biden-younger-voters-gender.html
 
 **Hey, A.I. Let’s Talk**\
 `Meta, Google and others are driving a renaissance for voice assistants, but people have found the technology uncool for more than a decade.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/01/technology/personaltech/ai-voice-assistants.html
 **One Party Has a Serious Foreign Policy. The Other Has a Tantrum.**\
 `Trump’s Republican Party no longer feels a sense of a responsibility to U.S. allies.`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/trump-republican-foreign-policy-nato
-
-**In Children’s TV, Dads Get to Have All the Fun**\
-`Our critic on the paternal fantasy of “Bluey” and more.`\
-https://nytimes.com/2024/05/01/podcasts/in-childrens-tv-dads-get-to-have-all-the-fun.html
 

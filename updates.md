@@ -1,3 +1,11 @@
+**Will Hamas Say No?**\
+`We explain why a cease-fire hasn’t happened.`\
+https://nytimes.com/2024/05/01/briefing/ceasefire.html
+
+**A Huge Gender Gap Is Emerging Among Young Voters**\
+`Can Biden win them back?`\
+https://nytimes.com/2024/05/01/opinion/biden-younger-voters-gender.html
+
 **Chinese Scientist Who Shared Covid Sequence Protests Lab Closure**\
 `Professor Zhang Yongzhen had flouted a government ban by disclosing the genome of the Covid virus soon after it emerged in Wuhan in 2020.`\
 https://nytimes.com/2024/05/01/world/asia/china-scientist-covid-lab.html
