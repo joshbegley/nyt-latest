@@ -1,3 +1,11 @@
+**What the Fed’s Moves Mean for Mortgages, Credit Cards and More**\
+`Higher rates benefit those who can save, but for borrowers falling rates would reduce bills on credit cards, home equity loans and other forms of debt.`\
+https://nytimes.com/2024/05/01/business/interest-rates-mortgages-credit-cards-student-loans.html
+
+**What to See in New York During a Month-Long Celebration of Design**\
+`These are the highlights of what to do and where to go in May if you’re interested in design topics.`\
+https://nytimes.com/2024/05/01/arts/design/new-york-design-festival.html
+
 **After a tense night with over 100 arrests, Columbia’s campus remains closed.**\
 `By Lola Fadulu and Santul Nerkar`\
 https://nytimes.com/live/2024/05/01/nyregion/columbia-university-protests/columbia-city-college-arrests-protests
