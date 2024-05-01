@@ -1,3 +1,7 @@
+**Late Night Weighs In on Donald Trump’s $9,000 Fine**\
+`“I know $9,000 might not seem like a lot to a successful businessman, but what about to Trump?” Colbert said of the court-imposed penalty for violating a gag order.`\
+https://nytimes.com/2024/05/01/arts/television/late-night-trump-contempt.html
+
 **Frustrated South Koreans Blame President in Standoff With Doctors**\
 `A walkout by physicians has dragged on for weeks, as they protest a plan by President Yoon Suk Yeol’s government to increase medical school enrollment.`\
 https://nytimes.com/2024/05/01/world/asia/korea-doctors-strike-yoon.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/01/pageoneplus/quotation-of-the-day-delicious-wherev
 **Read the Federal Judges’ Ruling**\
 `A newly drawn congressional map in Louisiana was struck down on Tuesday by a panel of federal judges who found that the new boundaries, which form a second majority Black district in the state, amounted to an “impermissible racial gerrymander” that violated the Equal Protection Clause of the U.`\
 https://nytimes.com/interactive/2024/05/01/us/louisiana-congressional-map-ruling.html
-
-**Police Arrest Protesters at City College in Harlem**\
-`The arrests came after pro-Palestinian protesters tried to take over an administrative building at City College. Earlier, the police cleared a building that had been occupied at nearby Columbia University.`\
-https://nytimes.com/2024/04/30/nyregion/city-college-harlem-arrests.html
 

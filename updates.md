@@ -1,3 +1,7 @@
+**Frustrated South Koreans Blame President in Standoff With Doctors**\
+`A walkout by physicians has dragged on for weeks, as they protest a plan by President Yoon Suk Yeol’s government to increase medical school enrollment.`\
+https://nytimes.com/2024/05/01/world/asia/korea-doctors-strike-yoon.html
+
 **Word of the Day: pigeonhole**\
 `This word has appeared in 15 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/05/01/learning/word-of-the-day-pigeonhole.html
