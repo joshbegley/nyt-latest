@@ -1,3 +1,7 @@
+**In Latest Stunt, Airbnb Lists the ‘Up’ House. It Floats.**\
+`The company announced a new category of outlandish stays in partnership with brands and celebrities, building on the success of gimmicks like the Barbie Malibu DreamHouse.`\
+https://nytimes.com/2024/05/01/business/airbnb-up-house-shrek-listings.html
+
 **It’s Not Just Gaza: Student Protesters See Links to a Global Struggle**\
 `In many students’ eyes, the war in Gaza is linked to other issues, such as policing, mistreatment of Indigenous people, racism and the impact of climate change.`\
 https://nytimes.com/2024/05/01/us/pro-palestinian-college-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000009443036/tulane-university-new-orleans-prote
 **Are Smartphones Driving Our Teens to Depression?**\
 `The evidence reveals a more complicated reality than the conventional wisdom would have you believe.`\
 https://nytimes.com/2024/05/01/opinion/smartphones-social-media-mental-health-teens.html
-
-**Met Museum Reaches Fund-Raising Goal for New Modern Wing**\
-`The museum achieves a milestone, but still faces a complex public approval process for its Tang Wing, which is on city land.`\
-https://nytimes.com/2024/05/01/arts/design/met-museum-fund-raising-modern-wing.html
 

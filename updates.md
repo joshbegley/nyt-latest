@@ -1,3 +1,7 @@
+**In Latest Stunt, Airbnb Lists the ‘Up’ House. It Floats.**\
+`The company announced a new category of outlandish stays in partnership with brands and celebrities, building on the success of gimmicks like the Barbie Malibu DreamHouse.`\
+https://nytimes.com/2024/05/01/business/airbnb-up-house-shrek-listings.html
+
 **It’s Not Just Gaza: Student Protesters See Links to a Global Struggle**\
 `In many students’ eyes, the war in Gaza is linked to other issues, such as policing, mistreatment of Indigenous people, racism and the impact of climate change.`\
 https://nytimes.com/2024/05/01/us/pro-palestinian-college-protests.html
