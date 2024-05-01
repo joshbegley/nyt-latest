@@ -1,6 +1,6 @@
 **Democrats Win New York Special House Election, Narrowing G.O.P. Majority**\
 `The victory by Timothy Kennedy, a Democratic state senator, was not a surprise. But it will make Republicans’ lives more difficult in Washington.`\
-https://nytimes.com/2024/04/30/nyregion/timohy-kennedy-special-election.html
+https://nytimes.com/2024/04/30/nyregion/timothy-kennedy-special-election.html
 
 **Albuquerque School’s Staff on Leave After Drag Show at Prom**\
 `Albuquerque Public Schools in New Mexico also installed an acting principal as it investigates a high school prom.`\
