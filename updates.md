@@ -1,3 +1,7 @@
+**Federal Judges Block Newly Drawn Louisiana Congressional Map**\
+`In a 2-to-1 decision, the panel sided with challengers who argued that the map that created a second Black majority district was an “impermissible racial gerrymander.”`\
+https://nytimes.com/2024/04/30/us/louisiana-congressional-map-ruling.html
+
 **Bit in a Bar**\
 `Juliana Tringali Golden nips our worries in the bud.`\
 https://nytimes.com/2024/04/30/crosswords/daily-puzzle-2024-05-01.html
