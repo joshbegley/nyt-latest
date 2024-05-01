@@ -1,3 +1,7 @@
+**Met Museum Reaches Fund-Raising Goal for New Modern Wing**\
+`The museum achieves a milestone, but still faces a complex public approval process for its Tang Wing, which is on city land.`\
+https://nytimes.com/2024/05/01/arts/design/met-museum-fund-raising-modern-wing.html
+
 **Met Museum Reaches Fund-raising Goal for New Modern Wing**\
 `The museum achieves a milestone, but still faces a complex public approval process for its Tang Wing, which is on city land.`\
 https://nytimes.com/2024/05/01/arts/design/met-museum-fund-raising-modern-wing.html
