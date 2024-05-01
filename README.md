@@ -1,3 +1,7 @@
+**What to know about the Fed’s rate decision.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/05/01/business/fed-meeting-interest-rates/what-to-know-about-the-feds-rate-decision
+
 **Colombia’s president says the country will sever ties with Israel, calling its government ‘genocidal.’**\
 `President Gustavo Petro announced on Wednesday that the South American nation planned to break diplomatic ties with Israel.`\
 https://nytimes.com/live/2024/05/01/world/israel-gaza-war-hamas/colombias-president-says-the-country-will-sever-ties-with-israel-calling-its-government-genocidal
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/01/arts/music/sabrina-carpenter-taylor-swift-popcast
 **As Protests Grow, Universities Choose Different Ways to End Unrest**\
 `Columbia has taken the spotlight after twice asking the police to quell pro-Palestinian demonstrations on campus. Brown University chose a different path.`\
 https://nytimes.com/2024/05/01/nyregion/college-protests-divestment-columbia-brown.html
-
-**What’s in Our Queue? ‘Atomic Blonde’ and More**\
-`I report on Hollywood for the Business and Culture desks. Here are five I’ve watched recently.`\
-https://nytimes.com/interactive/2024/05/01/arts/editors-recommendations-atomicblonde.html
 
