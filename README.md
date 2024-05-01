@@ -1,3 +1,7 @@
+**Walnuts Recalled From Natural Food Stores After E. Coli Outbreak**\
+`The outbreak linked to shelled organic walnuts distributed by Gibson Farms has sickened 12 people and hospitalized seven in California and Washington State, federal officials said.`\
+https://nytimes.com/2024/05/01/business/walnuts-recall-ecoli-whole-foods.html
+
 **The Words That Have Defined This Week in Donald J. Trump’s Trial**\
 `Witnesses discussed the salacious and the banal, and the judge warned the defendant he could go to jail.`\
 https://nytimes.com/2024/05/01/nyregion/trump-trial-witnesses-moments.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/01/arts/design/spring-art-fairs-new-york.html
 **In Bankruptcy, Giuliani Set a $43,000 Monthly Budget. Creditors Are Skeptical.**\
 `The former New York mayor and Trump lawyer actually spent nearly $120,000 in January, and his creditors say he is still not turning over required financial information.`\
 https://nytimes.com/2024/05/01/us/politics/bankruptcy-giuliani-spending.html
-
-**In Latest Stunt, Airbnb Lists the ‘Up’ House. It Floats.**\
-`The company announced a new category of outlandish stays in partnership with brands and celebrities, building on the success of gimmicks like the Barbie Malibu DreamHouse.`\
-https://nytimes.com/2024/05/01/business/airbnb-up-house-shrek-listings.html
 
