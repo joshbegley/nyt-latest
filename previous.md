@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Mike Ives`\
+https://nytimes.com/live/2024/05/01/nyregion/columbia-university-protests/here-are-the-latest-developments
+
+**01campus-protests**\
+`Live Updates: Tensions Rise At U.S. Campuses as Police Clear Protests`\
+https://nytimes.com/live/2024/05/01/nyregion/columbia-university-protests
+
 **Police Arrest Columbia Protesters Occupying Hamilton Hall**\
 `Officers entered the building through a second-floor window using a bridge on top of an emergency service vehicle.`\
 https://nytimes.com/video/us/100000009442290/columbia-protest-police-new-york.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/01/crosswords/spelling-bee-forum.html
 **Late Night Weighs In on Donald Trump’s $9,000 Fine**\
 `“I know $9,000 might not seem like a lot to a successful businessman, but what about to Trump?” Colbert said of the court-imposed penalty for violating a gag order.`\
 https://nytimes.com/2024/05/01/arts/television/late-night-trump-contempt.html
-
-**Frustrated South Koreans Blame President in Standoff With Doctors**\
-`A walkout by physicians has dragged on for weeks, as they protest a plan by President Yoon Suk Yeol’s government to increase medical school enrollment.`\
-https://nytimes.com/2024/05/01/world/asia/korea-doctors-strike-yoon.html
-
-**Word of the Day: pigeonhole**\
-`This word has appeared in 15 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/05/01/learning/word-of-the-day-pigeonhole.html
 

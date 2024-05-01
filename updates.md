@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Mike Ives`\
+https://nytimes.com/live/2024/05/01/nyregion/columbia-university-protests/here-are-the-latest-developments
+
+**01campus-protests**\
+`Live Updates: Tensions Rise At U.S. Campuses as Police Clear Protests`\
+https://nytimes.com/live/2024/05/01/nyregion/columbia-university-protests
+
 **Police Arrest Columbia Protesters Occupying Hamilton Hall**\
 `Officers entered the building through a second-floor window using a bridge on top of an emergency service vehicle.`\
 https://nytimes.com/video/us/100000009442290/columbia-protest-police-new-york.html
