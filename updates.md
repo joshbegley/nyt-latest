@@ -1,3 +1,7 @@
+**Taking Cues From Students, U.C.L.A. Faculty Members Join the Protests**\
+`At U.C.L.A., a few professors helped negotiate with the university. At Columbia, they guarded the encampment. But not all faculty members are on board.`\
+https://nytimes.com/2024/05/02/us/columbia-protests-professors-support.html
+
 **Rutgers protesters end three-day encampment after striking deal with administrators.**\
 `A student protest organizer said that the university had accepted many of the protesters’ demands, and had agreed to continue negotiating over their main request: divestment.`\
 https://nytimes.com/live/2024/05/02/us/ucla-protests-college-campus/rutgers-protests-encampment-deal
