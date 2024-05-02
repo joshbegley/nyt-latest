@@ -1,3 +1,7 @@
+**‘Lempicka’ to End Broadway Run a Month After Opening**\
+`The first show to fall in the wake of the Tony nominations on Tuesday, this musical about an art world individualist was years in the making.`\
+https://nytimes.com/2024/05/02/theater/lempicka-broadway-closing.html
+
 **U.N. report says rebuilding all the homes destroyed in Gaza could take 80 years.**\
 `The projection didn’t take into account the time it would take to repair the homes that were damaged but not destroyed.`\
 https://nytimes.com/2024/05/02/world/middleeast/gaza-homes-rebuild-un-report.html
