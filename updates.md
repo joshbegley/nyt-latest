@@ -1,3 +1,11 @@
+**President Biden Addresses Campus Protests**\
+`President Biden defended the right of demonstrators to protest peacefully, but condemned the “chaos” that has prevailed at many colleges nationwide.`\
+https://nytimes.com/video/us/100000009444990/biden-campus-protests.html
+
+**He Survived an Airstrike in Rafah. His Family Has Nowhere Else to Go.**\
+`Mohammed Abu Youssef and his children narrowly survived an airstrike in Rafah, in southern Gaza. They’re among more than a million Palestinians taking shelter in the city, as Israel prepares for a possible ground invasion.`\
+https://nytimes.com/video/world/middleeast/100000009442635/rafah-gaza-airstrike-family.html
+
 **Chris Christie and Bill Barr Have Some Explaining to Do**\
 `Supposedly principled Republicans can’t reconcile condemnation of Trump with refusal to back Biden.`\
 https://nytimes.com/2024/05/02/opinion/chris-christie-republicans-trump.html
