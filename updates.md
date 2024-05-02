@@ -1,3 +1,7 @@
+**The Best Headwear at the Central Park Hat Lunch**\
+`Attendees at the annual Frederick Law Olmsted Awards wore their finest fascinators, headbands and bird hats to raise money for the jewel of New York.`\
+https://nytimes.com/2024/05/02/style/central-park-hat-luncheon.html
+
 **Three Choices for World-Class Art and a Nosh**\
 `Think vegan lobster rolls and the Swizz Beats and Alicia Keys collection at Brooklyn Museum.`\
 https://nytimes.com/2024/05/02/dining/three-choices-for-world-class-art-and-a-nosh.html
