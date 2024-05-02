@@ -1,3 +1,7 @@
+**The Turkish president has strongly criticized the Israeli bombardment of Gaza.**\
+`The Turkish Trade Ministry said all imports and exports with Israel would pause until an adequate supply of aid was allowed into Gaza.`\
+https://nytimes.com/live/2024/05/02/world/israel-gaza-war-hamas/turkey-israel-trade-ties
+
 **Turkey halts trade with Israel, amid deteriorating relations between the two nations.**\
 `The Turkish Trade Ministry said all imports and exports with Israel would pause until an adequate supply of aid was allowed into Gaza.`\
 https://nytimes.com/live/2024/05/02/world/israel-gaza-war-hamas/turkey-israel-trade-ties
