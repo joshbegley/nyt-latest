@@ -1,3 +1,7 @@
+**How Technology Has Outpaced the Law**\
+`Abortions in the U.S. have risen slightly since Roe was struck down. One factor: pills ordered online.`\
+https://nytimes.com/2024/05/02/briefing/abortion-pills-online.html
+
 **U.S. Accuses Russia of Using Chemical Weapons in Ukraine**\
 `The State Department said Russia had used chloropicrin, a poison gas widely used during World War I against Ukrainian forces, an act that would violate a global ban signed by Moscow.`\
 https://nytimes.com/2024/05/02/world/europe/us-russia-chemical-weapons-ukraine.html

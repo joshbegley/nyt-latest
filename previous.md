@@ -1,3 +1,7 @@
+**How Technology Has Outpaced the Law**\
+`Abortions in the U.S. have risen slightly since Roe was struck down. One factor: pills ordered online.`\
+https://nytimes.com/2024/05/02/briefing/abortion-pills-online.html
+
 **U.S. Accuses Russia of Using Chemical Weapons in Ukraine**\
 `The State Department said Russia had used chloropicrin, a poison gas widely used during World War I against Ukrainian forces, an act that would violate a global ban signed by Moscow.`\
 https://nytimes.com/2024/05/02/world/europe/us-russia-chemical-weapons-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/02/arts/television/kelli-ohara-met-opera.html
 **Biden Will Expand Two National Monuments in California**\
 `As part of his plan to conserve the nation’s land and waters, Mr. Biden is enlarging the San Gabriel Mountains National Monument and the Berryessa Snow Mountain National Monument.`\
 https://nytimes.com/2024/05/02/climate/biden-national-monuments-california-expansion.html
-
-**When Closing a Very Small Campus Is a Very Big Deal**\
-`The Staten Island branch of St. John’s University is more than just a school.`\
-https://nytimes.com/2024/05/02/opinion/staten-island-campus-st-johns.html
 
