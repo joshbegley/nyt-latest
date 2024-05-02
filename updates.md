@@ -1,3 +1,15 @@
+**F.T.C. Clears Exxon Mobil’s Acquisition of Pioneer Natural Resources**\
+`The Federal Trade Commission will bar Pioneer’s chief executive, Scott Sheffield, from joining Exxon’s board, saying he colluded with OPEC to reduce oil production.`\
+https://nytimes.com/2024/05/02/business/energy-environment/exxon-mobil-pioneer-scott-sheffield-ftc.html
+
+**Review: A Conductor Surprises by Embracing the Ordinary**\
+`Esa-Pekka Salonen is known for unusual, ambitious projects. But at the New York Philharmonic this week, he succeeded with standard repertory works.`\
+https://nytimes.com/2024/05/02/arts/music/esa-pekka-salonen-new-york-philharmonic.html
+
+**Palestinian Flags Fly at Protests Worldwide. They Won’t Be at Eurovision.**\
+`The organizers of the glitzy singing contest said that attendees would be allowed to wave only the flags of participating nations — including Israel’s.`\
+https://nytimes.com/2024/05/02/arts/music/eurovision-palestinian-flags.html
+
 **Petrit Halilaj Takes Flight**\
 `After a childhood marked by war and exile, the artist from Kosovo has become one of his generation’s great talents.`\
 https://nytimes.com/2024/05/02/arts/design/petrit-halilaj-kosovo-met-roof.html
