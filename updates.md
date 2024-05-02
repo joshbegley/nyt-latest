@@ -1,3 +1,7 @@
+**After Large Rallies, Trump Is Greeted at Courthouse by a Single Fan**\
+`Donald J. Trump has complained that his supporters have not been allowed closer to the Lower Manhattan courthouse.`\
+https://nytimes.com/2024/05/02/nyregion/trump-trial-supporters.html
+
 **Universal Music Artists Will Return to TikTok**\
 `The two companies reached a new licensing deal, ending a three-month stalemate that kept some of pop’s biggest stars off the platform.`\
 https://nytimes.com/2024/05/02/arts/music/tiktok-universal-music-deal.html
