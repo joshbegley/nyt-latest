@@ -1,3 +1,7 @@
+**Chris Christie and Bill Barr Have Some Explaining to Do**\
+`Supposedly principled Republicans can’t reconcile condemnation of Trump with refusal to back Biden.`\
+https://nytimes.com/2024/05/02/opinion/chris-christie-republicans-trump.html
+
 **Watch the Eta Aquarid Meteor Shower Reach Its Peak**\
 `The event will be active when the moon is just a sliver in the sky, but it is less easy to see in the Northern Hemisphere than other meteor showers.`\
 https://nytimes.com/2024/05/02/science/eta-aquarid-meteor-shower-time-peak.html
