@@ -1,3 +1,7 @@
+**Body of Fifth Victim in Baltimore Bridge Collapse Is Recovered**\
+`The body of Miguel Angel Luna Gonzalez, one of the six workers who went missing in the collapse, was recovered on Wednesday. One more remains unaccounted for.`\
+https://nytimes.com/2024/05/02/us/baltimore-bridge-collapse-victim-found.html
+
 **At Last, Washington Realizes the Obvious Truth About Marijuana**\
 `It was never among the most dangerous drugs on earth, and the Biden administration is finally doing something about it.`\
 https://nytimes.com/2024/05/02/opinion/biden-marijuana-crime.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/02/style/vanessa-williams-legs-keep-dancing-song.htm
 **Mother’s Day Gift Guide: Nostalgic Beach Supplies, Egg Cups and More**\
 `The whimsical housewares and artisanal tools that T Magazine’s editors and contributors are eyeing for our maternal figures.`\
 https://nytimes.com/2024/05/02/t-magazine/mothers-day-gift-guide.html
-
-**Esther, a New Art Fair With Northern European Style**\
-`At the debut of this alternative fair, dealers from Oslo to Estonia have teamed up, turning a private club into a total work of art.`\
-https://nytimes.com/2024/05/02/arts/design/esther-art-fair-estonia-new-york.html
 

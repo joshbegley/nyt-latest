@@ -1,3 +1,7 @@
+**Body of Fifth Victim in Baltimore Bridge Collapse Is Recovered**\
+`The body of Miguel Angel Luna Gonzalez, one of the six workers who went missing in the collapse, was recovered on Wednesday. One more remains unaccounted for.`\
+https://nytimes.com/2024/05/02/us/baltimore-bridge-collapse-victim-found.html
+
 **At Last, Washington Realizes the Obvious Truth About Marijuana**\
 `It was never among the most dangerous drugs on earth, and the Biden administration is finally doing something about it.`\
 https://nytimes.com/2024/05/02/opinion/biden-marijuana-crime.html
