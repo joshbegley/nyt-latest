@@ -1,3 +1,7 @@
+**2 Players Sue Philharmonic, Saying They Were Wrongfully Suspended**\
+`Matthew Muckey and Liang Wang said they were sidelined without cause by the New York Philharmonic after a recent magazine article detailed allegations of misconduct against them.`\
+https://nytimes.com/2024/05/01/arts/music/players-ny-philharmonic.html
+
 **Israeli settlers attacked aid trucks headed to Gaza, Jordan says.**\
 `By Anushka Patil and Johnatan Reiss`\
 https://nytimes.com/live/2024/05/01/world/israel-gaza-war-hamas/israeli-settlers-attacked-aid-trucks-headed-to-gaza-jordan-says
