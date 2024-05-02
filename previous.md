@@ -22,6 +22,10 @@ https://nytimes.com/2024/05/02/arts/music/song-copyright-sheet-music-ed-sheeran-
 `The Bay Lights installation, spanning 1.8 miles on the region’s workhorse bridge, has been off since March 2023. A bigger version will take its place.`\
 https://nytimes.com/2024/05/02/us/bay-bridge-lights.html
 
+**02trump-trial**\
+`Live Updates: Trump Trial Judge Reviews More Potential Gag Order Violations`\
+https://nytimes.com/live/2024/05/02/nyregion/trump-hush-money-trial
+
 **What Will It Take for the Fed to Lower Rates?**\
 `Stubbornly high inflation has scrambled the central bank’s outlook. Wall Street is now shifting focus to Friday’s jobs report for clues on its next move.`\
 https://nytimes.com/2024/05/02/business/dealbook/fed-powell-interest-rates.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/02/world/europe/georgia-protests.html
 **‘Catching Fire’ Review: How the Stones’ Muse Rolled**\
 `Subtitled “The Story of Anita Pallenberg,” this documentary gives the life of the actress and model a thorough downer of a treatment.`\
 https://nytimes.com/2024/05/02/movies/catching-fire-review-how-the-stones-muse-rolled.html
-
-**How Technology Has Outpaced the Law**\
-`Abortions in the U.S. have risen slightly since Roe was struck down. One factor: pills ordered online.`\
-https://nytimes.com/2024/05/02/briefing/abortion-pills-online.html
 

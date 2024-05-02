@@ -1,3 +1,7 @@
+**02trump-trial**\
+`Live Updates: Trump Trial Judge Reviews More Potential Gag Order Violations`\
+https://nytimes.com/live/2024/05/02/nyregion/trump-hush-money-trial
+
 **Global Growth Forecast Is Lifted but Risks Loom, O.E.C.D. Says**\
 `The global economy has proved resilient and inflation has declined, but any widening of the conflict in the Middle East could increase price pressures and dampen growth.`\
 https://nytimes.com/2024/05/02/business/global-economy-inflation.html
