@@ -1,3 +1,11 @@
+**Corrections: May 2, 2024**\
+`Corrections that appeared in print on Thursday, May 2, 2024.`\
+https://nytimes.com/2024/05/02/pageoneplus/corrections-may-2-2024.html
+
+**Word of the Day: rapport**\
+`This word has appeared in 111 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/02/learning/word-of-the-day-rapport.html
+
 **Menendez Lawyers Cite ‘Traumatic’ History to Explain His Cash Stockpile**\
 `Senator Robert Menendez’s attorneys want a psychiatrist to testify at his corruption trial about the impact of his father’s death by suicide. Prosecutors are objecting.`\
 https://nytimes.com/2024/05/02/nyregion/menendez-psychiatrist-cash-stockpile.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/02/world/middleeast/us-israel-gaza-blinken-netanyahu
 **‘I Will Never Forget Any of It’: Brittney Griner Is Ready to Talk**\
 `In an interview, the basketball star reveals her humiliation — and friendships — in Russian prison, and her path to recovery.`\
 https://nytimes.com/2024/05/02/magazine/brittney-griner-book-russia-interview.html
-
-**England’s Local Elections and Their Wider Significance, Explained**\
-`Voters choose local officials in England and Wales this week. Their verdicts could be an important clue to the shape of Britain’s looming general election.`\
-https://nytimes.com/2024/05/02/world/europe/englands-local-elections-and-their-wider-significance-explained.html
-
-**Richard Tandy, Keyboardist for Electric Light Orchestra, Dies at 76**\
-`He helped shape the band’s futuristic sound, which blended Beatles-esque pop with orchestral arrangements.`\
-https://nytimes.com/2024/05/01/arts/music/richard-tandy-dead.html
 

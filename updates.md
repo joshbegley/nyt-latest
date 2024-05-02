@@ -1,3 +1,11 @@
+**Corrections: May 2, 2024**\
+`Corrections that appeared in print on Thursday, May 2, 2024.`\
+https://nytimes.com/2024/05/02/pageoneplus/corrections-may-2-2024.html
+
+**Word of the Day: rapport**\
+`This word has appeared in 111 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/02/learning/word-of-the-day-rapport.html
+
 **Menendez Lawyers Cite ‘Traumatic’ History to Explain His Cash Stockpile**\
 `Senator Robert Menendez’s attorneys want a psychiatrist to testify at his corruption trial about the impact of his father’s death by suicide. Prosecutors are objecting.`\
 https://nytimes.com/2024/05/02/nyregion/menendez-psychiatrist-cash-stockpile.html
