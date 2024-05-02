@@ -1,3 +1,19 @@
+**U.N. report says rebuilding all the homes destroyed in Gaza could take 80 years.**\
+`The projection didn’t take into account the time it would take to repair the homes that were damaged but not destroyed.`\
+https://nytimes.com/2024/05/02/world/middleeast/gaza-homes-rebuild-un-report.html
+
+**How many protesters arrested in New York were ‘outside agitators’?**\
+`By Chelsia Rose Marcius and Sharon Otterman`\
+https://nytimes.com/live/2024/05/02/us/ucla-protests-college-campus/how-many-protesters-arrested-in-new-york-were-outside-agitators
+
+**Why the Protests Help Trump**\
+`The excesses of social protest movements can play into the hands of candidates who promise to restore order.`\
+https://nytimes.com/2024/05/02/opinion/student-protests-trump.html
+
+**The Peculiar Persistence of Trump-stalgia**\
+`Are you better off than you were four years ago? Yes.`\
+https://nytimes.com/2024/05/02/opinion/trump-biden-economy.html
+
 **The Tawdry Tabloid World in Which Trump Lived**\
 `Jurors are forced to listen to a swamp of sleazy evidence.`\
 https://nytimes.com/2024/05/01/opinion/trump-trial-tabloid.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/05/02/us/ucla-tries-to-reconcile-a-week-of-turbulent-ev
 **Tapes Take Trump Jurors Into the Heart of Hush-Money Deals: 5 Takeaways**\
 `Stormy Daniels’s former lawyer faced a tough cross-examination as Donald J. Trump’s team tried to paint him as a shakedown artist.`\
 https://nytimes.com/2024/05/02/nyregion/trump-hush-money-stormy-daniels-takeaways.html
-
-**Woman Who Sold Misbranded Ozempic on TikTok Faces Smuggling Charge**\
-`Federal prosecutors said the woman from Shirley, N.Y., was not licensed to administer medication and was selling drugs brought from abroad that were not authorized by the Food and Drug Administration.`\
-https://nytimes.com/2024/05/02/nyregion/new-york-woman-charged-ozempic-tiktok.html
-
-**Hopes rise among relatives of hostages as signs of progress in talks are reported.**\
-`By Johnatan Reiss`\
-https://nytimes.com/live/2024/05/02/world/israel-gaza-war-hamas/hopes-rise-among-relatives-of-hostages-as-signs-of-progress-in-talks-are-reported
-
-**The Magic Constitutionalism of Donald Trump**\
-`There is no originalist case for presidential immunity.`\
-https://nytimes.com/2024/05/02/opinion/trump-immunity-constitution-originalist.html
-
-**The Defense Turns Up the Heat**\
-`Donald Trump’s lawyers played hardball, questioning Stormy Daniels’s lawyer’s history of profiting from celebrities in embarrassing situations.`\
-https://nytimes.com/2024/05/02/us/politics/trump-trial-defense-analysis-gag-order.html
 
