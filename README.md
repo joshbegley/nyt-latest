@@ -1,3 +1,7 @@
+**How Police Took Down the U.C.L.A. Protest Camp**\
+`Police officers dismantled a pro-Palestinian encampment and made arrests after a tense hourslong standoff overnight with demonstrators on the campus.`\
+https://nytimes.com/2024/05/02/nyregion/ucla-protest-what-happened.html
+
 **Prosecutors Ask Judge to Hold Trump in Contempt for a Second Time**\
 `Justice Juan M. Merchan will consider punishing Donald J. Trump for recent attacks on witnesses and jurors, some of which occurred outside the courtroom.`\
 https://nytimes.com/2024/05/02/nyregion/trump-contempt-gag-order-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/02/business/global-economy-inflation.html
 **Dave & Buster’s to Allow Betting on Arcade Games**\
 `A software company announced it had teamed up with the arcade and restaurant chain to allow betting in the future through the Dave & Buster’s app.`\
 https://nytimes.com/2024/05/02/business/dave-busters-arcade-betting.html
-
-**Michael Cohen Hasn’t Testified at Trump’s Trial. But He’s Been a Focus.**\
-`It is not Donald J. Trump who has come in for sustained criticism from witnesses. It is his former fixer, who paid the hush money at the heart of the case.`\
-https://nytimes.com/2024/05/02/nyregion/michael-cohen-trump-trial.html
 
