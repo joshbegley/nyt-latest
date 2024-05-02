@@ -22,7 +22,7 @@ https://nytimes.com/2024/05/02/nyregion/trump-trial-keith-davidson-stormy-daniel
 `Heather Pressdee, 41, admitted to trying to kill 19 patients by administering excessive amounts of insulin, prosecutors said. She pleaded guilty to three counts of murder and other charges.`\
 https://nytimes.com/2024/05/02/us/pennsylvania-nurse-insulin-pleads-guilty.html
 
-**Flooding in East Texas Leads to Evacuations; More Rain Is Expected**\
+**Flooding in East Texas Leads to Evacuation as More Rain Is Expected**\
 `Over half a foot of rain fell across portions of East Texas on Thursday morning.`\
 https://nytimes.com/2024/05/02/us/texas-rain-flooding-polk-county-houston.html
 
