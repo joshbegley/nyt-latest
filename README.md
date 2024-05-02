@@ -1,3 +1,7 @@
+**Standouts at NADA New York, the Fair for Up-and-Comers**\
+`The most exciting part of this fair for younger galleries is the chance for viewers to see art from out of town.`\
+https://nytimes.com/2024/05/02/arts/nada-new-york-fair-standouts.html
+
 **Peggy Mellon Hitchcock, Who Helped Timothy Leary Turn On, Dies at 90**\
 `She was an enthusiastic supporter of the counterculture. And when she suggested that her brothers rent Mr. Leary a mansion, she made psychedelic history.`\
 https://nytimes.com/2024/05/02/us/peggy-mellon-hitchcock-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/02/arts/television/big-door-prize.html
 **‘Evil Does Not Exist’ Review: Nature vs. Nurture**\
 `Ryusuke Hamaguchi follows up his sublime drama “Drive My Car” with a parable about a rural Japanese village and the resort developer eyeing its land.`\
 https://nytimes.com/2024/05/02/movies/evil-does-not-exist-review-ryusuke-hamaguchi.html
-
-**Frieze New York Brings a Rich, Cross-Cultural Mix**\
-`The Shed welcomes an international survey of painting, textiles and collage to its galleries. Our critic picks his 23 favorite booths.`\
-https://nytimes.com/2024/05/02/arts/design/frieze-new-york-art-fair-shed.html
 
