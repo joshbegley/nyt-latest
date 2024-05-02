@@ -1,3 +1,11 @@
+**Biden Loosens Up on Weed**\
+`The U.S. government has recommended easing federal restrictions on the drug that have been in place for decades.`\
+https://nytimes.com/2024/05/02/podcasts/the-daily/biden-marijuana.html
+
+**Inside the U.C.L.A. Protests, and Trump Holds Rallies Amid Trial**\
+`Plus, tracking killer asteroids.`\
+https://nytimes.com/2024/05/02/podcasts/inside-the-ucla-protests-and-trump-holds-rallies-amid-trial.html
+
 **Body of Fifth Victim in Baltimore Bridge Collapse Is Recovered**\
 `The body of Miguel Angel Luna Gonzalez, one of the six workers who went missing in the collapse, was recovered on Wednesday. One more remains unaccounted for.`\
 https://nytimes.com/2024/05/02/us/baltimore-bridge-collapse-victim-found.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/02/opinion/staten-island-campus-st-johns.html
 **The Democrats’ New Chance in Wisconsin**\
 `What redrawn maps might mean in November.`\
 https://nytimes.com/2024/05/02/podcasts/the-democrats-new-chance-in-wisconsin.html
-
-**These Legs Were Made for Fashion**\
-`Vanessa Williams’s many ensembles in a music video for her new song, “Legs (Keep Dancing),” evoke her knack for portraying a diva with style.`\
-https://nytimes.com/2024/05/02/style/vanessa-williams-legs-keep-dancing-song.html
-
-**Mother’s Day Gift Guide: Nostalgic Beach Supplies, Egg Cups and More**\
-`The whimsical housewares and artisanal tools that T Magazine’s editors and contributors are eyeing for our maternal figures.`\
-https://nytimes.com/2024/05/02/t-magazine/mothers-day-gift-guide.html
 
