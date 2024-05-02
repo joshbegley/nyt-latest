@@ -1,3 +1,7 @@
+**How Police Took Down the U.C.L.A. Protest Camp**\
+`Police officers dismantled a pro-Palestinian encampment and made arrests after a tense hourslong standoff overnight with demonstrators on the campus.`\
+https://nytimes.com/2024/05/02/nyregion/ucla-protest-what-happened.html
+
 **Prosecutors Ask Judge to Hold Trump in Contempt for a Second Time**\
 `Justice Juan M. Merchan will consider punishing Donald J. Trump for recent attacks on witnesses and jurors, some of which occurred outside the courtroom.`\
 https://nytimes.com/2024/05/02/nyregion/trump-contempt-gag-order-trial.html
