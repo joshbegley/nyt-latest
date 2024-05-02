@@ -1,3 +1,7 @@
+**Making flying cleaner**\
+`New guidelines attempt to make the aviation cleaner by relying on corn-based ethanol, but experts divided on the fuel’s environmental benefits.`\
+https://nytimes.com/2024/05/02/climate/jet-fuel-ethanol-flying.html
+
 **Robert Oxnam, China Scholar Beset by Multiple Personalities, Dies at 81**\
 `Through psychotherapy, recounted in a memoir, he learned that he had 11 personalities, or fractured parts of his identity. One of them told of childhood abuse.`\
 https://nytimes.com/2024/05/02/health/robert-b-oxnam-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/02/sports/autoracing/f1-alpine.html
 **Biden Calls Japan and India ‘Xenophobic’ in Defending U.S. Immigration**\
 `President Biden also referred to Russia and China, saying they “don’t want immigrants.” A spokesman said the president was trying to make a comment about America’s immigrant “DNA,” not insult other countries.`\
 https://nytimes.com/2024/05/02/us/politics/biden-japan-india-immigration.html
-
-**Andrettis Keep Fighting to Enter F1**\
-`The sport just rejected their offer to create the 11th team, but Michael Andretti said they were not going away.`\
-https://nytimes.com/2024/05/02/sports/autoracing/f1-andretti.html
 

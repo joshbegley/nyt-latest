@@ -1,3 +1,7 @@
+**Making flying cleaner**\
+`New guidelines attempt to make the aviation cleaner by relying on corn-based ethanol, but experts divided on the fuel’s environmental benefits.`\
+https://nytimes.com/2024/05/02/climate/jet-fuel-ethanol-flying.html
+
 **Robert Oxnam, China Scholar Beset by Multiple Personalities, Dies at 81**\
 `Through psychotherapy, recounted in a memoir, he learned that he had 11 personalities, or fractured parts of his identity. One of them told of childhood abuse.`\
 https://nytimes.com/2024/05/02/health/robert-b-oxnam-dead.html
