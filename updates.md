@@ -1,3 +1,7 @@
+**Richard Tandy, Keyboardist for Electric Light Orchestra, Dies at 76**\
+`He helped shape the band’s futuristic sound, which blended Beatles-esque pop with orchestral arrangements.`\
+https://nytimes.com/2024/05/01/arts/music/richard-tandy-dead.html
+
 **Trump, Repeating 2020 Election Lies, Will Not Commit to Accepting 2024 Results**\
 `“If everything’s honest, I’ll gladly accept the results. I don’t change on that,” Donald Trump told The Milwaukee Journal Sentinel. “If it’s not, you have to fight for the right of the country.”`\
 https://nytimes.com/2024/05/01/us/politics/trump-accept-2024-election-results.html
