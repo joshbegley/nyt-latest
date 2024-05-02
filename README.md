@@ -1,3 +1,7 @@
+**U.S. Accuses Russia of Using Chemical Weapons in Ukraine**\
+`The State Department said Russia had used chloropicrin, a poison gas widely used during World War I against Ukrainian forces, an act that would violate a global ban signed by Moscow.`\
+https://nytimes.com/2024/05/02/world/europe/us-russia-chemical-weapons-ukraine.html
+
 **Biden Loosens Up on Weed**\
 `The U.S. government has recommended easing federal restrictions on the drug that have been in place for decades.`\
 https://nytimes.com/2024/05/02/podcasts/the-daily/biden-marijuana.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/02/climate/biden-national-monuments-california-expan
 **When Closing a Very Small Campus Is a Very Big Deal**\
 `The Staten Island branch of St. John’s University is more than just a school.`\
 https://nytimes.com/2024/05/02/opinion/staten-island-campus-st-johns.html
-
-**The Democrats’ New Chance in Wisconsin**\
-`What redrawn maps might mean in November.`\
-https://nytimes.com/2024/05/02/podcasts/the-democrats-new-chance-in-wisconsin.html
 
