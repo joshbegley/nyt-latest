@@ -1,3 +1,11 @@
+**Court Allows Case Challenging Segregation in N.Y.C. Schools to Advance**\
+`The lawsuit calls out “pernicious racial inequality” in the nation’s largest school district. If successful, it could lead to changes to gifted and selective programs, or even their elimination.`\
+https://nytimes.com/2024/05/02/nyregion/nyc-schools-segregation.html
+
+**Sony and Apollo Express Interest in Buying Paramount in $26 Billion Deal**\
+`Paramount has been exploring a potential deal for months, talking to suitors including Skydance, producer of “Top Gun: Maverick.”`\
+https://nytimes.com/2024/05/02/business/media/sony-and-apollo-paramount-deal.html
+
 **Judge Grills U.S. and Google on Antitrust Claims**\
 `Judge Amit P. Mehta tried poking holes in the closing arguments of a landmark monopoly case as he weighs a ruling that could reshape tech.`\
 https://nytimes.com/2024/05/02/technology/judge-mehta-google-antitrust-closing-arguments.html
