@@ -1,3 +1,11 @@
+**Here is the latest on campus protests.**\
+`By Jonathan Wolfe and Mike Ives`\
+https://nytimes.com/live/2024/05/02/nyregion/college-campus-protests/here-is-the-latest-on-campus-protests
+
+**02campus-protests**\
+`Live Updates: Police Enter U.C.L.A. Encampment After Warnings`\
+https://nytimes.com/live/2024/05/02/nyregion/college-campus-protests
+
 **Trump Trial to Resume With Stormy Daniels’s Lawyer on the Stand**\
 `Earlier testimony by the porn star’s lawyer, Keith Davidson, offered a rare window into the behind-the-scenes negotiations to buy his client’s silence before the 2016 election.`\
 https://nytimes.com/2024/05/02/nyregion/trump-trial-keith-davidson-testimony.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/05/02/world/israel-gaza-war-hamas/the-return-of-ci
 **02mideast-crisis**\
 `Hopes for Cease-Fire Remain, Despite Hamas’s Resistance to Latest Offer`\
 https://nytimes.com/live/2024/05/02/world/israel-gaza-war-hamas
-
-**Seth Meyers Mocks Donald Trump for Appearing to Nod Off in Court**\
-`“Does he even wear suits to court or just footie pajamas and a nightcap?” Meyers joked on Wednesday.`\
-https://nytimes.com/2024/05/02/arts/television/seth-meyers-donald-trump-sleep.html
-
-**Corrections: May 2, 2024**\
-`Corrections that appeared in print on Thursday, May 2, 2024.`\
-https://nytimes.com/2024/05/02/pageoneplus/corrections-may-2-2024.html
 
