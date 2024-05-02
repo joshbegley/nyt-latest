@@ -1,3 +1,7 @@
+**Trump, Repeating 2020 Election Lies, Will Not Commit to Accepting 2024 Results**\
+`“If everything’s honest, I’ll gladly accept the results. I don’t change on that,” Donald Trump told The Milwaukee Journal Sentinel. “If it’s not, you have to fight for the right of the country.”`\
+https://nytimes.com/2024/05/01/us/politics/trump-accept-2024-election-results.html
+
 **Made It to the Big Leagues**\
 `Brandon Koppy predicts our futures.`\
 https://nytimes.com/2024/05/01/crosswords/daily-puzzle-2024-05-02.html
