@@ -1,3 +1,7 @@
+**Michael Cohen Hasn’t Testified at Trump’s Trial. But He’s Been a Focus.**\
+`It is not Donald J. Trump who has come in for sustained criticism from witnesses. It is his former fixer, who paid the hush money at the heart of the case.`\
+https://nytimes.com/2024/05/02/nyregion/michael-cohen-trump-trial.html
+
 **‘Jeanne du Barry’ Review: A Versailles Scandal at Its Snooziest**\
 `Maïwenn wrote, directed and stars in the film, playing opposite Johnny Depp, who is Louis XV. Though he declares he loves her, their chemistry is weak.`\
 https://nytimes.com/2024/05/02/movies/jeanne-du-barry-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/02/world/europe/us-russia-chemical-weapons-ukraine.h
 **Biden Loosens Up on Weed**\
 `The U.S. government has recommended easing federal restrictions on the drug that have been in place for decades.`\
 https://nytimes.com/2024/05/02/podcasts/the-daily/biden-marijuana.html
-
-**Inside the U.C.L.A. Protests, and Trump Holds Rallies Amid Trial**\
-`Plus, tracking killer asteroids.`\
-https://nytimes.com/2024/05/02/podcasts/inside-the-ucla-protests-and-trump-holds-rallies-amid-trial.html
 
