@@ -1,3 +1,11 @@
+**California Boat Captain Is Sentenced to 4 Years in Fire That Killed 34**\
+`Jerry Nehl Boylan was found guilty last year of “seaman’s manslaughter” for abandoning his commercial diving ship when it caught fire in 2019. The fire killed 33 passengers and one crew member.`\
+https://nytimes.com/2024/05/02/us/california-captain-sentenced-dive-boat-fire-deaths.html
+
+**Biden Condemned Violent Campus Protests**\
+`Also, the U.S. accused Russia of using chemical weapons. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/05/02/briefing/biden-campus-protests-google-trial.html
+
 **Biden Appeals to North Carolina With Program to Replace Lead Pipes**\
 `In a stop in Wilmington, N.C., the president announced $3 billion in new spending to upgrade water systems around the country.`\
 https://nytimes.com/2024/05/02/us/politics/biden-north-carolina-lead-pipes.html
@@ -16,7 +24,7 @@ https://nytimes.com/2024/05/02/nyregion/new-york-woman-charged-ozempic-tiktok.ht
 
 **Hopes rise among relatives of hostages as signs of progress in talks are reported.**\
 `By Johnatan Reiss`\
-https://nytimes.com/2024/05/02/world/middleeast/hopes-rise-among-relatives-of-hostages-as-signs-of-progress-in-talks-are-reported.html
+https://nytimes.com/live/2024/05/02/world/israel-gaza-war-hamas/hopes-rise-among-relatives-of-hostages-as-signs-of-progress-in-talks-are-reported
 
 **The Magic Constitutionalism of Donald Trump**\
 `There is no originalist case for presidential immunity.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/02/us/politics/trump-trial-defense-analysis-gag-orde
 **Friday Briefing: Hamas Considers Israel’s Proposal**\
 `Also, the U.S. accused Russia of using chemical weapons.`\
 https://nytimes.com/2024/05/02/world/asia/hamas-israel-proposal-russia-asia.html
-
-**Apple Reports Decline in Sales and Profit Amid iPhone Struggles in China**\
-`The company continues to lean on customers’ appetite for apps and services, as demand for its devices weakens.`\
-https://nytimes.com/2024/05/02/technology/apple-earnings-china.html
-
-**Hamas Studies a Gaza Cease-Fire Offer From Israel, and Hints at Progress**\
-`Ismail Haniyeh, the leader of Hamas’ political wing, said the group was reviewing the latest proposal in a “positive spirit,” and would send representatives to Cairo to continue negotiations.`\
-https://nytimes.com/2024/05/02/world/middleeast/hamas-israel-gaza-ceasefire.html
 

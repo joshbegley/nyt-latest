@@ -1,3 +1,15 @@
+**California Boat Captain Is Sentenced to 4 Years in Fire That Killed 34**\
+`Jerry Nehl Boylan was found guilty last year of “seaman’s manslaughter” for abandoning his commercial diving ship when it caught fire in 2019. The fire killed 33 passengers and one crew member.`\
+https://nytimes.com/2024/05/02/us/california-captain-sentenced-dive-boat-fire-deaths.html
+
+**Biden Condemned Violent Campus Protests**\
+`Also, the U.S. accused Russia of using chemical weapons. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/05/02/briefing/biden-campus-protests-google-trial.html
+
+**Hopes rise among relatives of hostages as signs of progress in talks are reported.**\
+`By Johnatan Reiss`\
+https://nytimes.com/live/2024/05/02/world/israel-gaza-war-hamas/hopes-rise-among-relatives-of-hostages-as-signs-of-progress-in-talks-are-reported
+
 **Biden Appeals to North Carolina With Program to Replace Lead Pipes**\
 `In a stop in Wilmington, N.C., the president announced $3 billion in new spending to upgrade water systems around the country.`\
 https://nytimes.com/2024/05/02/us/politics/biden-north-carolina-lead-pipes.html
