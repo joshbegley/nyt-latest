@@ -1,3 +1,7 @@
+**The Miami Grand Prix Matures**\
+`The Miami race had a rocky first year, but organizers learned from their rookie mistakes.`\
+https://nytimes.com/2024/05/02/sports/autoracing/f1-miami-grand-prix-matures.html
+
 **Sony and Apollo Express Interest in Buying Paramount in $26 Billion Deal**\
 `Paramount has been exploring a potential deal for months, talking to suitors including Skydance, producer of “Top Gun: Maverick.”`\
 https://nytimes.com/2024/05/02/business/media/sony-apollo-paramount-deal.html

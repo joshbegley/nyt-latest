@@ -1,3 +1,7 @@
+**The Miami Grand Prix Matures**\
+`The Miami race had a rocky first year, but organizers learned from their rookie mistakes.`\
+https://nytimes.com/2024/05/02/sports/autoracing/f1-miami-grand-prix-matures.html
+
 **A Party for the Haters**\
 `The writers behind Hate Reads, a pop-up newsletter for airing grievances and pet peeves, got up on their soap boxes.`\
 https://nytimes.com/2024/05/02/style/hate-reads-party.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/02/us/peggy-mellon-hitchcock-dead.html
 **Campus Protests Give Russia, China and Iran Fuel to Exploit U.S. Divide**\
 `America’s adversaries have mounted online campaigns to amplify the social and political conflicts over Gaza flaring at universities, researchers say.`\
 https://nytimes.com/2024/05/02/business/media/campus-protests-russia-china-iran-us.html
-
-**‘Message in a Bottle’ Review: Sending Out an S.O.S., Dancing to Sting**\
-`With choreography by Kate Prince and 27 songs by Sting, this story of refugees has impressive dance moments, but handles narrative and emotion tritely.`\
-https://nytimes.com/2024/05/02/arts/dance/review-sting-message-in-a-bottle.html
 
