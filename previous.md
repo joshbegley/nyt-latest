@@ -1,3 +1,7 @@
+**Where Protesters on U.S. Campuses Have Been Arrested or Detained**\
+`A crackdown on demonstrators at Columbia University in New York spawned a wave of activism at universities across the country, with more than 2,000 arrests or detainments.`\
+https://nytimes.com/interactive/2024/us/pro-palestinian-college-protests-encampments.html
+
 **Former Police Officer Who Protected Sex Traffickers Gets 3-Year Sentence**\
 `Wayne Peiffer, who was an officer in Brewster, N.Y., warned a sex trafficking organization about law enforcement activity in exchange for sexual services, federal prosecutors said.`\
 https://nytimes.com/2024/05/02/nyregion/police-officer-sex-trafficking-sentence.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/02/nyregion/trump-trial-celebrity-hush-money.html
 **Court Allows Case Challenging Segregation in N.Y.C. Schools to Advance**\
 `The lawsuit calls out “pernicious racial inequality” in the nation’s largest school district. If successful, it could lead to changes to gifted and selective programs, or even their elimination.`\
 https://nytimes.com/2024/05/02/nyregion/nyc-schools-segregation.html
-
-**Sony and Apollo Express Interest in Buying Paramount in $26 Billion Deal**\
-`Paramount has been exploring a potential deal for months, talking to suitors including Skydance, producer of “Top Gun: Maverick.”`\
-https://nytimes.com/2024/05/02/business/media/sony-apollo-paramount-deal.html
 

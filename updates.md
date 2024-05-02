@@ -1,3 +1,7 @@
+**Where Protesters on U.S. Campuses Have Been Arrested or Detained**\
+`A crackdown on demonstrators at Columbia University in New York spawned a wave of activism at universities across the country, with more than 2,000 arrests or detainments.`\
+https://nytimes.com/interactive/2024/us/pro-palestinian-college-protests-encampments.html
+
 **Former Police Officer Who Protected Sex Traffickers Gets 3-Year Sentence**\
 `Wayne Peiffer, who was an officer in Brewster, N.Y., warned a sex trafficking organization about law enforcement activity in exchange for sexual services, federal prosecutors said.`\
 https://nytimes.com/2024/05/02/nyregion/police-officer-sex-trafficking-sentence.html
