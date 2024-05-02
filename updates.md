@@ -1,3 +1,7 @@
+**Made It to the Big Leagues**\
+`Brandon Koppy predicts our futures.`\
+https://nytimes.com/2024/05/01/crosswords/daily-puzzle-2024-05-02.html
+
 **Transcript of Trump Manhattan Trial, April 30, 2024**\
 `New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
 https://nytimes.com/interactive/2024/05/01/nyregion/trump-hush-money-trial-transcript-april-30.html
