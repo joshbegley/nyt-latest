@@ -1,3 +1,11 @@
+**Hopes rise among relatives of hostages as signs of progress in talks are reported.**\
+`By Johnatan Reiss`\
+https://nytimes.com/live/2024/05/02/world/israel-gaza-war-hamas/hopes-rise-among-relatives-of-hostages-as-signs-of-progress-in-talks-are-reported
+
+**The Magic Constitutionalism of Donald Trump**\
+`There is no originalist case for presidential immunity.`\
+https://nytimes.com/2024/05/02/opinion/trump-immunity-constitution-originalist.html
+
 **The Turkish president has strongly criticized the Israeli bombardment of Gaza.**\
 `The Turkish Trade Ministry said all imports and exports with Israel would pause until an adequate supply of aid was allowed into Gaza.`\
 https://nytimes.com/live/2024/05/02/world/israel-gaza-war-hamas/turkey-israel-trade-ties

@@ -1,3 +1,11 @@
+**Hopes rise among relatives of hostages as signs of progress in talks are reported.**\
+`By Johnatan Reiss`\
+https://nytimes.com/live/2024/05/02/world/israel-gaza-war-hamas/hopes-rise-among-relatives-of-hostages-as-signs-of-progress-in-talks-are-reported
+
+**The Magic Constitutionalism of Donald Trump**\
+`There is no originalist case for presidential immunity.`\
+https://nytimes.com/2024/05/02/opinion/trump-immunity-constitution-originalist.html
+
 **The Defense Turns Up the Heat**\
 `Donald Trump’s lawyers played hardball, questioning Stormy Daniels’s lawyer’s history of profiting from celebrities in embarrassing situations.`\
 https://nytimes.com/2024/05/02/us/politics/trump-trial-defense-analysis-gag-order.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/05/02/world/israel-gaza-war-hamas/turkey-israel-tr
 **Locks, Chains, Diversions: How Columbia Students Seized Hamilton Hall**\
 `Some of those arrested during the pro-Palestinian protest were outsiders, not students or others who appeared to be affiliated with the school, according to an analysis of Police Department data.`\
 https://nytimes.com/2024/05/02/nyregion/columbia-students-hamilton-hall.html
-
-**What to See in N.Y.C. Galleries in May**\
-`Martha Schwendener covers Tamiko Nishimura’s arresting black-and-white photographs, Tanya Merrill’s playful portraits and Enrique Martínez Celaya’s link to a Spanish master.`\
-https://nytimes.com/2024/05/02/arts/design/what-to-see-nyc-galleries-may.html
-
-**In Los Angeles, a Hilltop Garden Party With a Tower of Crudités**\
-`Sara Kramer and Sarah Hymanson — the chef-owners of the restaurant Kismet — hosted a Mediterranean and Middle Eastern feast to celebrate their first cookbook.`\
-https://nytimes.com/2024/05/02/t-magazine/kismet-los-angeles-garden-party.html
 
