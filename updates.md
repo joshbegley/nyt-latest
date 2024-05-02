@@ -1,3 +1,7 @@
+**Seth Meyers Mocks Donald Trump for Appearing to Nod Off in Court**\
+`“Does he even wear suits to court or just footie pajamas and a nightcap?” Meyers joked on Wednesday.`\
+https://nytimes.com/2024/05/02/arts/television/seth-meyers-donald-trump-sleep.html
+
 **Here is the latest on campus protests.**\
 `By Jonathan Wolfe and Mike Ives`\
 https://nytimes.com/live/2024/05/02/nyregion/college-campus-protests/here-is-the-latest-on-campus-protests
