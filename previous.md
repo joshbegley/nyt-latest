@@ -1,3 +1,7 @@
+**Transcript of Trump Manhattan Trial, April 30, 2024**\
+`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
+https://nytimes.com/interactive/2024/05/01/nyregion/trump-hush-money-trial-transcript-april-30.html
+
 **2 Players Sue Philharmonic, Saying They Were Wrongfully Suspended**\
 `Matthew Muckey and Liang Wang said they were sidelined without cause by the New York Philharmonic after a recent magazine article detailed allegations of misconduct against them.`\
 https://nytimes.com/2024/05/01/arts/music/players-ny-philharmonic.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/01/science/covid-lab-leak-ecohealth-nih.html
 **Senate Democrats Reintroduce Legislation to Legalize Marijuana**\
 `The bill, which reflects growing support for legalization, would end the federal prohibition on cannabis. But it is unlikely to pass in an election year and a divided government.`\
 https://nytimes.com/2024/05/01/us/politics/senate-democrats-marijuana-biden.html
-
-**Republicans Call on NPR’s C.E.O. to Testify About Political Bias Accusations**\
-`Katherine Maher, the radio network’s new chief executive, has been in the spotlight since an editor published an essay accusing the organization of leftward-leaning bias.`\
-https://nytimes.com/2024/05/01/business/media/npr-republican-bias-ceo-katherine-maher.html
 

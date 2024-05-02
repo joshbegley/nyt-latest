@@ -1,3 +1,7 @@
+**Transcript of Trump Manhattan Trial, April 30, 2024**\
+`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
+https://nytimes.com/interactive/2024/05/01/nyregion/trump-hush-money-trial-transcript-april-30.html
+
 **2 Players Sue Philharmonic, Saying They Were Wrongfully Suspended**\
 `Matthew Muckey and Liang Wang said they were sidelined without cause by the New York Philharmonic after a recent magazine article detailed allegations of misconduct against them.`\
 https://nytimes.com/2024/05/01/arts/music/players-ny-philharmonic.html
