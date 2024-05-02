@@ -24,7 +24,7 @@ https://nytimes.com/2024/05/02/nyregion/new-york-woman-charged-ozempic-tiktok.ht
 
 **Hopes rise among relatives of hostages as signs of progress in talks are reported.**\
 `By Johnatan Reiss`\
-https://nytimes.com/2024/05/02/world/middleeast/hopes-rise-among-relatives-of-hostages-as-signs-of-progress-in-talks-are-reported.html
+https://nytimes.com/live/2024/05/02/world/israel-gaza-war-hamas/hopes-rise-among-relatives-of-hostages-as-signs-of-progress-in-talks-are-reported
 
 **The Magic Constitutionalism of Donald Trump**\
 `There is no originalist case for presidential immunity.`\
