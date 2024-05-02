@@ -1,3 +1,7 @@
+**Seth Meyers Mocks Donald Trump for Appearing to Nod Off in Court**\
+`“Does he even wear suits to court or just footie pajamas and a nightcap?” Meyers joked on Wednesday.`\
+https://nytimes.com/2024/05/02/arts/television/seth-meyers-donald-trump-sleep.html
+
 **Corrections: May 2, 2024**\
 `Corrections that appeared in print on Thursday, May 2, 2024.`\
 https://nytimes.com/2024/05/02/pageoneplus/corrections-may-2-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/02/world/europe/uk-local-elections-conservatives.htm
 **U.S. and Israel Struggle With Clashing Visions on Ending Gaza War**\
 `The Biden administration wants to focus on a cease-fire and rebuilding Gaza, but Israel’s leader is pushing a new offensive.`\
 https://nytimes.com/2024/05/02/world/middleeast/us-israel-gaza-blinken-netanyahu.html
-
-**‘I Will Never Forget Any of It’: Brittney Griner Is Ready to Talk**\
-`In an interview, the basketball star reveals her humiliation — and friendships — in Russian prison, and her path to recovery.`\
-https://nytimes.com/2024/05/02/magazine/brittney-griner-book-russia-interview.html
 
