@@ -1,3 +1,7 @@
+**Flooding in East Texas Leads to Evacuation as More Rain Is Expected**\
+`Over half a foot of rain fell across portions of East Texas on Thursday morning.`\
+https://nytimes.com/2024/05/02/us/texas-rain-flooding-polk-county-houston.html
+
 **What to See in N.Y.C. Galleries in May**\
 `Martha Schwendener covers Tamiko Nishimura’s arresting black-and-white photographs, Tanya Merrill’s playful portraits and Enrique Martínez Celaya’s link to a Spanish master.`\
 https://nytimes.com/2024/05/02/arts/design/what-to-see-nyc-galleries-may.html
