@@ -1,3 +1,7 @@
+**Jury in Federal Lawsuit Deadlocks on Abu Ghraib Torture Allegations**\
+`Three Iraqi men sued a Virginia contractor that supplied interrogators to the U.S. military after the 2003 invasion of Iraq.`\
+https://nytimes.com/2024/05/02/us/abu-ghraib-torture-lawsuit-mistrial.html
+
 **‘Lempicka’ to End Broadway Run a Month After Opening**\
 `The first show to fall in the wake of the Tony nominations on Tuesday, this musical about an art world individualist was years in the making.`\
 https://nytimes.com/2024/05/02/theater/lempicka-broadway-closing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/02/briefing/biden-campus-protests-google-trial.html
 **Biden Appeals to North Carolina With Program to Replace Lead Pipes**\
 `In a stop in Wilmington, N.C., the president announced $3 billion in new spending to upgrade water systems around the country.`\
 https://nytimes.com/2024/05/02/us/politics/biden-north-carolina-lead-pipes.html
-
-**U.C.L.A. Tries to Reconcile a Week of Turbulent Events**\
-`As crews cleared the remnants of an encampment, students and faculty members wondered how the university could have handled protests over the war in Gaza so badly.`\
-https://nytimes.com/2024/05/02/us/ucla-tries-to-reconcile-a-week-of-turbulent-events.html
 
