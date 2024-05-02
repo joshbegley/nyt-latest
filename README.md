@@ -1,3 +1,11 @@
+**Apple Reports Decline in Sales and Profit Amid iPhone Struggles in China**\
+`The company continues to lean on customers’ appetite for apps and services, as demand for its devices weakens.`\
+https://nytimes.com/2024/05/02/technology/apple-earnings-china.html
+
+**Hamas Studies a Gaza Cease-Fire Offer From Israel, and Hints at Progress**\
+`Ismail Haniyeh, the leader of Hamas’ political wing, said the group was reviewing the latest proposal in a “positive spirit,” and would send representatives to Cairo to continue negotiations.`\
+https://nytimes.com/2024/05/02/world/middleeast/hamas-israel-gaza-ceasefire.html
+
 **Bill to Combat Antisemitism on Campuses Prompts Backlash From the Right**\
 `Representative Marjorie Taylor Greene, Republican of Georgia, said the legislation could make it illegal to assert that Jews killed Jesus, punishing Christians for “believing the Gospel.”`\
 https://nytimes.com/2024/05/02/us/politics/antisemitism-jews-republicans-democrats-congress.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/02/style/central-park-hat-luncheon.html
 **Three Choices for World-Class Art and a Nosh**\
 `Think vegan lobster rolls and the Swizz Beats and Alicia Keys collection at Brooklyn Museum.`\
 https://nytimes.com/2024/05/02/dining/three-choices-for-world-class-art-and-a-nosh.html
-
-**Trump’s Team Paints Stormy Daniels’s Ex-Lawyer as a Shakedown Artist**\
-`During his testimony in the former president’s criminal trial, Keith Davidson described a lucrative legal niche keeping embarrassing stories out of print.`\
-https://nytimes.com/2024/05/02/nyregion/trump-trial-keith-davidson-stormy-daniels.html
-
-**Former Pennsylvania Nurse Gets Life Sentence in Insulin Deaths**\
-`Heather Pressdee, 41, admitted to trying to kill 19 patients by administering excessive amounts of insulin, prosecutors said. She pleaded guilty to three counts of murder and other charges.`\
-https://nytimes.com/2024/05/02/us/pennsylvania-nurse-insulin-pleads-guilty.html
 
