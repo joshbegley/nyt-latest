@@ -1,3 +1,7 @@
+**Jury in Federal Lawsuit Deadlocks on Abu Ghraib Torture Allegations**\
+`Three Iraqi men sued a Virginia contractor that supplied interrogators to the U.S. military after the 2003 invasion of Iraq.`\
+https://nytimes.com/2024/05/02/us/abu-ghraib-torture-lawsuit-mistrial.html
+
 **‘Lempicka’ to End Broadway Run a Month After Opening**\
 `The first show to fall in the wake of the Tony nominations on Tuesday, this musical about an art world individualist was years in the making.`\
 https://nytimes.com/2024/05/02/theater/lempicka-broadway-closing.html
