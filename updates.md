@@ -1,3 +1,7 @@
+**Sony and Apollo Express Interest in Buying Paramount in $26 Billion Deal**\
+`Paramount has been exploring a potential deal for months, talking to suitors including Skydance, producer of “Top Gun: Maverick.”`\
+https://nytimes.com/2024/05/02/business/media/sony-apollo-paramount-deal.html
+
 **A Party for the Haters**\
 `The writers behind Hate Reads, a pop-up newsletter for airing grievances and pet peeves, got up on their soap boxes.`\
 https://nytimes.com/2024/05/02/style/hate-reads-party.html
