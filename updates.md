@@ -1,3 +1,7 @@
+**Turkey halts trade with Israel, amid deteriorating relations between the two nations.**\
+`The Turkish Trade Ministry said all imports and exports with Israel would pause until an adequate supply of aid was allowed into Gaza.`\
+https://nytimes.com/live/2024/05/02/world/israel-gaza-war-hamas/turkey-israel-trade-ties
+
 **The Defense Turns Up the Heat**\
 `Donald Trump’s lawyers played hardball, questioning Stormy Daniels’s lawyer’s history of profiting from celebrities in embarrassing situations.`\
 https://nytimes.com/2024/05/02/us/politics/trump-trial-defense-analysis-gag-order.html
