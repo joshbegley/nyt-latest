@@ -1,3 +1,7 @@
+**A Party for the Haters**\
+`The writers behind Hate Reads, a pop-up newsletter for airing grievances and pet peeves, got up on their soap boxes.`\
+https://nytimes.com/2024/05/02/style/hate-reads-party.html
+
 **At Trump’s Trial, a Decade’s Worth of Celebrity Sleaze Is Exhumed**\
 `Donald J. Trump’s lawyers tried to paint Keith Davidson, the man who helped broker a hush-money payment for Stormy Daniels, as a specialist in extracting money from the famous.`\
 https://nytimes.com/2024/05/02/nyregion/trump-trial-celebrity-hush-money.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/02/business/media/campus-protests-russia-china-iran-
 **‘Message in a Bottle’ Review: Sending Out an S.O.S., Dancing to Sting**\
 `With choreography by Kate Prince and 27 songs by Sting, this story of refugees has impressive dance moments, but handles narrative and emotion tritely.`\
 https://nytimes.com/2024/05/02/arts/dance/review-sting-message-in-a-bottle.html
-
-**Torrential Rains Leave at Least 13 Dead and More Missing in Brazil**\
-`Four days of pounding rain have inundated many parts of a southern state, cutting off towns and leaving people trapped as they await rescue by helicopters.`\
-https://nytimes.com/2024/05/02/world/americas/brazil-rain-floods.html
 
