@@ -1,3 +1,7 @@
+**The Tawdry Tabloid World in Which Trump Lived**\
+`Jurors are forced to listen to a swamp of sleazy evidence.`\
+https://nytimes.com/2024/05/01/opinion/trump-trial-tabloid.html
+
 **California Boat Captain Is Sentenced to 4 Years in Fire That Killed 34**\
 `Jerry Nehl Boylan was found guilty last year of “seaman’s manslaughter” for abandoning his commercial diving ship when it caught fire in 2019. The fire killed 33 passengers and one crew member.`\
 https://nytimes.com/2024/05/02/us/california-captain-sentenced-dive-boat-fire-deaths.html
