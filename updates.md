@@ -1,3 +1,7 @@
+**U.S. Accuses Russia of Using Chemical Weapons in Ukraine**\
+`The State Department said Russia had used chloropicrin, a poison gas widely used during World War I, against Ukrainian forces, an act that would violate a global ban signed by Moscow.`\
+https://nytimes.com/2024/05/02/world/europe/us-russia-chemical-weapons-ukraine.html
+
 **What Will It Take for the Fed to Lower Rates?**\
 `Stubbornly high inflation has scrambled the central bank’s outlook. Wall Street is now shifting focus to Friday’s jobs report for clues on its next move.`\
 https://nytimes.com/2024/05/02/business/dealbook/fed-powell-interest-rates.html

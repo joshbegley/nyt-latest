@@ -15,7 +15,7 @@ https://nytimes.com/2024/05/02/movies/catching-fire-review-how-the-stones-muse-r
 https://nytimes.com/2024/05/02/briefing/abortion-pills-online.html
 
 **U.S. Accuses Russia of Using Chemical Weapons in Ukraine**\
-`The State Department said Russia had used chloropicrin, a poison gas widely used during World War I against Ukrainian forces, an act that would violate a global ban signed by Moscow.`\
+`The State Department said Russia had used chloropicrin, a poison gas widely used during World War I, against Ukrainian forces, an act that would violate a global ban signed by Moscow.`\
 https://nytimes.com/2024/05/02/world/europe/us-russia-chemical-weapons-ukraine.html
 
 **Biden Loosens Up on Weed**\
