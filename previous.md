@@ -1,6 +1,6 @@
 **Petrit Halilaj Takes Flight**\
 `After a childhood marked by war and exile, the artist from Kosovo has become one of his generation’s great talents.`\
-https://nytimes.com/2024/05/02/arts/design/02petrit-halilaj-kosovo-met-roof.html
+https://nytimes.com/2024/05/02/arts/design/petrit-halilaj-kosovo-met-roof.html
 
 **The Voice of a Hundred Faces: Dee Bradley Baker’s ‘Star Wars’ Journey**\
 `With “The Bad Batch” ending this week on Disney+, the man who has voiced hundreds of “Star Wars” characters over the past two decades looks back on his run.`\
@@ -22,7 +22,7 @@ https://nytimes.com/2024/05/02/learning/whats-going-on-in-this-graph-may-8-2024.
 `Soldiers exposed to thousands of low-level blasts from firing weapons like mortars say that they wind up with debilitating symptoms of traumatic brain injury — but no diagnosis.`\
 https://nytimes.com/2024/05/02/us/blast-mortar-brain-injury-military.html
 
-**How Police Took Down the U.C.L.A. Protest Camp**\
+**How Police Cleared the U.C.L.A. Protest Camp**\
 `Police officers dismantled a pro-Palestinian encampment and made arrests after a tense hourslong standoff overnight with demonstrators on the campus.`\
 https://nytimes.com/2024/05/02/us/ucla-protest-what-happened.html
 

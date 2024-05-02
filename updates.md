@@ -1,5 +1,13 @@
 **Petrit Halilaj Takes Flight**\
 `After a childhood marked by war and exile, the artist from Kosovo has become one of his generation’s great talents.`\
+https://nytimes.com/2024/05/02/arts/design/petrit-halilaj-kosovo-met-roof.html
+
+**How Police Cleared the U.C.L.A. Protest Camp**\
+`Police officers dismantled a pro-Palestinian encampment and made arrests after a tense hourslong standoff overnight with demonstrators on the campus.`\
+https://nytimes.com/2024/05/02/us/ucla-protest-what-happened.html
+
+**Petrit Halilaj Takes Flight**\
+`After a childhood marked by war and exile, the artist from Kosovo has become one of his generation’s great talents.`\
 https://nytimes.com/2024/05/02/arts/design/02petrit-halilaj-kosovo-met-roof.html
 
 **The Voice of a Hundred Faces: Dee Bradley Baker’s ‘Star Wars’ Journey**\
