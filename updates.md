@@ -1,3 +1,7 @@
+**The Army Sees Mortars as Safe. Troops Report Signs of Brain Injury.**\
+`Soldiers exposed to thousands of low-level blasts from firing weapons like mortars say that they wind up with debilitating symptoms of traumatic brain injury — but no diagnosis.`\
+https://nytimes.com/2024/05/02/us/blast-mortar-brain-injury-military.html
+
 **How Police Took Down the U.C.L.A. Protest Camp**\
 `Police officers dismantled a pro-Palestinian encampment and made arrests after a tense hourslong standoff overnight with demonstrators on the campus.`\
 https://nytimes.com/2024/05/02/nyregion/ucla-protest-what-happened.html

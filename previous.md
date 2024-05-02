@@ -1,3 +1,7 @@
+**The Army Sees Mortars as Safe. Troops Report Signs of Brain Injury.**\
+`Soldiers exposed to thousands of low-level blasts from firing weapons like mortars say that they wind up with debilitating symptoms of traumatic brain injury — but no diagnosis.`\
+https://nytimes.com/2024/05/02/us/blast-mortar-brain-injury-military.html
+
 **How Police Took Down the U.C.L.A. Protest Camp**\
 `Police officers dismantled a pro-Palestinian encampment and made arrests after a tense hourslong standoff overnight with demonstrators on the campus.`\
 https://nytimes.com/2024/05/02/nyregion/ucla-protest-what-happened.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/02/movies/slow-review.html
 **Global Growth Forecast Is Lifted but Risks Loom, O.E.C.D. Says**\
 `The global economy has proved resilient and inflation has declined, but any widening of the conflict in the Middle East could increase price pressures and dampen growth.`\
 https://nytimes.com/2024/05/02/business/global-economy-inflation.html
-
-**Dave & Buster’s to Allow Betting on Arcade Games**\
-`A software company announced it had teamed up with the arcade and restaurant chain to allow betting in the future through the Dave & Buster’s app.`\
-https://nytimes.com/2024/05/02/business/dave-busters-arcade-betting.html
 
