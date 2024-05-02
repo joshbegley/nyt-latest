@@ -1,3 +1,15 @@
+**Scotland’s Governing S.N.P. Looks to a Stalwart After Its Leader Quits**\
+`Amid a political crisis, John Swinney, who led the Scottish National Party two decades ago, is in line to become Scotland’s first minister.`\
+https://nytimes.com/2024/05/02/world/europe/scotland-snp-first-minister.html
+
+**A father in Rafah whose family survived an airstrike asks, ‘What should we do?’**\
+`By Hiba Yazbek`\
+https://nytimes.com/live/2024/05/02/world/israel-gaza-war-hamas/a-father-in-rafah-whose-family-survived-an-airstrike-asks-what-should-we-do
+
+**After the 2016 Election, Porn Star’s Lawyer Lamented a Hush-Money Deal**\
+`“What have we done?” Keith Davidson texted to a tabloid editor on election night, testifying on Thursday that it had been gallows humor.`\
+https://nytimes.com/2024/05/02/nyregion/trump-trial-keith-davidson-stormy-daniels-hush-money.html
+
 **President Biden Addresses Campus Protests**\
 `President Biden defended the right of demonstrators to protest peacefully, but condemned the “chaos” that has prevailed at many colleges nationwide.`\
 https://nytimes.com/video/us/100000009444990/biden-campus-protests.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/02/us/politics/biden-campus-protests.html
 **Can a ‘Not Charlotte’ Recipe Revive a Region?**\
 `North Carolina’s Triad was built on tobacco, textiles and furniture. Now it’s trying to forge a new economy from more highly skilled manufacturing.`\
 https://nytimes.com/2024/05/02/business/economy/north-carolina-triad-economy.html
-
-**F.T.C. Clears Exxon Mobil’s Acquisition of Pioneer Natural Resources**\
-`The Federal Trade Commission will bar Pioneer’s chief executive, Scott Sheffield, from joining Exxon’s board, saying he colluded with OPEC to reduce oil production.`\
-https://nytimes.com/2024/05/02/business/energy-environment/exxon-mobil-pioneer-scott-sheffield-ftc.html
-
-**Review: A Conductor Surprises by Embracing the Ordinary**\
-`Esa-Pekka Salonen is known for unusual, ambitious projects. But at the New York Philharmonic this week, he succeeded with standard repertory works.`\
-https://nytimes.com/2024/05/02/arts/music/esa-pekka-salonen-new-york-philharmonic.html
-
-**Palestinian Flags Fly at Protests Worldwide. They Won’t Be at Eurovision.**\
-`The organizers of the glitzy singing contest said that attendees would be allowed to wave only the flags of participating nations — including Israel’s.`\
-https://nytimes.com/2024/05/02/arts/music/eurovision-palestinian-flags.html
 
