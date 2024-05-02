@@ -1,3 +1,7 @@
+**‘Lempicka’ to End Broadway Run a Month After Opening**\
+`The first show to fall in the wake of the Tony nominations on Tuesday, this musical about an art world individualist was years in the making.`\
+https://nytimes.com/2024/05/02/theater/lempicka-broadway-closing.html
+
 **U.N. report says rebuilding all the homes destroyed in Gaza could take 80 years.**\
 `The projection didn’t take into account the time it would take to repair the homes that were damaged but not destroyed.`\
 https://nytimes.com/2024/05/02/world/middleeast/gaza-homes-rebuild-un-report.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/02/us/politics/biden-north-carolina-lead-pipes.html
 **U.C.L.A. Tries to Reconcile a Week of Turbulent Events**\
 `As crews cleared the remnants of an encampment, students and faculty members wondered how the university could have handled protests over the war in Gaza so badly.`\
 https://nytimes.com/2024/05/02/us/ucla-tries-to-reconcile-a-week-of-turbulent-events.html
-
-**Tapes Take Trump Jurors Into the Heart of Hush-Money Deals: 5 Takeaways**\
-`Stormy Daniels’s former lawyer faced a tough cross-examination as Donald J. Trump’s team tried to paint him as a shakedown artist.`\
-https://nytimes.com/2024/05/02/nyregion/trump-hush-money-stormy-daniels-takeaways.html
 
