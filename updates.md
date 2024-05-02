@@ -1,3 +1,11 @@
+**‘Evil Does Not Exist’ Review: Nature vs. Nurture**\
+`Ryusuke Hamaguchi follows up his sublime drama “Drive My Car” with a parable about a rural Japanese village and the resort developer eyeing its land.`\
+https://nytimes.com/2024/05/02/movies/evil-does-not-exist-review-ryusuke-hamaguchi.html
+
+**Frieze New York Brings a Rich, Cross-Cultural Mix**\
+`The Shed welcomes an international survey of painting, textiles and collage to its galleries. Our critic picks his 23 favorite booths.`\
+https://nytimes.com/2024/05/02/arts/design/frieze-new-york-art-fair-shed.html
+
 **Scotland’s Governing S.N.P. Looks to a Stalwart After Its Leader Quits**\
 `Amid a political crisis, John Swinney, who led the Scottish National Party two decades ago, is in line to become Scotland’s first minister.`\
 https://nytimes.com/2024/05/02/world/europe/scotland-snp-first-minister.html
