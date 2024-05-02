@@ -1,3 +1,11 @@
+**Apple Reports Decline in Sales and Profit Amid iPhone Struggles in China**\
+`The company continues to lean on customers’ appetite for apps and services, as demand for its devices weakens.`\
+https://nytimes.com/2024/05/02/technology/apple-earnings-china.html
+
+**Hamas Studies a Gaza Cease-Fire Offer From Israel, and Hints at Progress**\
+`Ismail Haniyeh, the leader of Hamas’ political wing, said the group was reviewing the latest proposal in a “positive spirit,” and would send representatives to Cairo to continue negotiations.`\
+https://nytimes.com/2024/05/02/world/middleeast/hamas-israel-gaza-ceasefire.html
+
 **Bill to Combat Antisemitism on Campuses Prompts Backlash From the Right**\
 `Representative Marjorie Taylor Greene, Republican of Georgia, said the legislation could make it illegal to assert that Jews killed Jesus, punishing Christians for “believing the Gospel.”`\
 https://nytimes.com/2024/05/02/us/politics/antisemitism-jews-republicans-democrats-congress.html
