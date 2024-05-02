@@ -1,3 +1,11 @@
+**Global Growth Forecast Is Lifted but Risks Loom, O.E.C.D. Says**\
+`The global economy has proved resilient and inflation has declined, but any widening of the conflict in the Middle East could increase price pressures and dampen growth.`\
+https://nytimes.com/2024/05/02/business/global-economy-inflation.html
+
+**Dave & Buster’s to Allow Betting on Arcade Games**\
+`A software company announced it had teamed up with the arcade and restaurant chain to allow betting in the future through the Dave & Buster’s app.`\
+https://nytimes.com/2024/05/02/business/dave-busters-arcade-betting.html
+
 **Michael Cohen Hasn’t Testified at Trump’s Trial. But He’s Been a Focus.**\
 `It is not Donald J. Trump who has come in for sustained criticism from witnesses. It is his former fixer, who paid the hush money at the heart of the case.`\
 https://nytimes.com/2024/05/02/nyregion/michael-cohen-trump-trial.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/02/movies/catching-fire-review-how-the-stones-muse-r
 **How Technology Has Outpaced the Law**\
 `Abortions in the U.S. have risen slightly since Roe was struck down. One factor: pills ordered online.`\
 https://nytimes.com/2024/05/02/briefing/abortion-pills-online.html
-
-**U.S. Accuses Russia of Using Chemical Weapons in Ukraine**\
-`The State Department said Russia had used chloropicrin, a poison gas widely used during World War I, against Ukrainian forces, an act that would violate a global ban signed by Moscow.`\
-https://nytimes.com/2024/05/02/world/europe/us-russia-chemical-weapons-ukraine.html
-
-**Biden Loosens Up on Weed**\
-`The U.S. government has recommended easing federal restrictions on the drug that have been in place for decades.`\
-https://nytimes.com/2024/05/02/podcasts/the-daily/biden-marijuana.html
 

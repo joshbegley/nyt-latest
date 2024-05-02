@@ -1,3 +1,11 @@
+**Global Growth Forecast Is Lifted but Risks Loom, O.E.C.D. Says**\
+`The global economy has proved resilient and inflation has declined, but any widening of the conflict in the Middle East could increase price pressures and dampen growth.`\
+https://nytimes.com/2024/05/02/business/global-economy-inflation.html
+
+**Dave & Buster’s to Allow Betting on Arcade Games**\
+`A software company announced it had teamed up with the arcade and restaurant chain to allow betting in the future through the Dave & Buster’s app.`\
+https://nytimes.com/2024/05/02/business/dave-busters-arcade-betting.html
+
 **Michael Cohen Hasn’t Testified at Trump’s Trial. But He’s Been a Focus.**\
 `It is not Donald J. Trump who has come in for sustained criticism from witnesses. It is his former fixer, who paid the hush money at the heart of the case.`\
 https://nytimes.com/2024/05/02/nyregion/michael-cohen-trump-trial.html
