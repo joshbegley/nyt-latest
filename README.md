@@ -22,7 +22,7 @@ https://nytimes.com/2024/05/02/us/politics/antisemitism-jews-republicans-democra
 `The middle of the road may be the correct place to be, but it’s never a popular spot.`\
 https://nytimes.com/2024/05/01/opinion/biden-campus-protests.html
 
-**Turkey halts trade with Israel, amid deteriorating relations between the two nations.**\
+**The Turkish president has strongly criticized the Israeli bombardment of Gaza.**\
 `The Turkish Trade Ministry said all imports and exports with Israel would pause until an adequate supply of aid was allowed into Gaza.`\
 https://nytimes.com/live/2024/05/02/world/israel-gaza-war-hamas/turkey-israel-trade-ties
 
