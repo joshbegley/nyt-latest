@@ -1,3 +1,7 @@
+**Taking Cues From Students, U.C.L.A. Faculty Members Join the Protests**\
+`At U.C.L.A., a few professors helped negotiate with the university. At Columbia, they guarded the encampment. But not all faculty members are on board.`\
+https://nytimes.com/2024/05/02/us/columbia-protests-professors-support.html
+
 **Rutgers protesters end three-day encampment after striking deal with administrators.**\
 `A student protest organizer said that the university had accepted many of the protesters’ demands, and had agreed to continue negotiating over their main request: divestment.`\
 https://nytimes.com/live/2024/05/02/us/ucla-protests-college-campus/rutgers-protests-encampment-deal
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/01/opinion/trump-trial-tabloid.html
 **California Boat Captain Is Sentenced to 4 Years in Fire That Killed 34**\
 `Jerry Nehl Boylan was found guilty last year of “seaman’s manslaughter” for abandoning his commercial diving ship when it caught fire in 2019. The fire killed 33 passengers and one crew member.`\
 https://nytimes.com/2024/05/02/us/california-captain-sentenced-dive-boat-fire-deaths.html
-
-**Biden Condemned Violent Campus Protests**\
-`Also, the U.S. accused Russia of using chemical weapons. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2024/05/02/briefing/biden-campus-protests-google-trial.html
 
