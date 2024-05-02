@@ -1,3 +1,7 @@
+**The Defense Turns Up the Heat**\
+`Donald Trump’s lawyers played hardball, questioning Stormy Daniels’s lawyer’s history of profiting from celebrities in embarrassing situations.`\
+https://nytimes.com/2024/05/02/us/politics/trump-trial-defense-analysis-gag-order.html
+
 **Friday Briefing: Hamas Considers Israel’s Proposal**\
 `Also, the U.S. accused Russia of using chemical weapons.`\
 https://nytimes.com/2024/05/02/world/asia/hamas-israel-proposal-russia-asia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/02/arts/design/what-to-see-nyc-galleries-may.html
 **In Los Angeles, a Hilltop Garden Party With a Tower of Crudités**\
 `Sara Kramer and Sarah Hymanson — the chef-owners of the restaurant Kismet — hosted a Mediterranean and Middle Eastern feast to celebrate their first cookbook.`\
 https://nytimes.com/2024/05/02/t-magazine/kismet-los-angeles-garden-party.html
-
-**The Best Headwear at the Central Park Hat Lunch**\
-`Attendees at the annual Frederick Law Olmsted Awards wore their finest fascinators, headbands and bird hats to raise money for the jewel of New York.`\
-https://nytimes.com/2024/05/02/style/central-park-hat-luncheon.html
 

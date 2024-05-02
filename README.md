@@ -22,9 +22,9 @@ https://nytimes.com/2024/05/02/us/politics/antisemitism-jews-republicans-democra
 `The middle of the road may be the correct place to be, but it’s never a popular spot.`\
 https://nytimes.com/2024/05/01/opinion/biden-campus-protests.html
 
-**Turkey Halts Trade With Israel, Amid Deteriorating Ties Between the Two Nations**\
+**Turkey halts trade with Israel, amid deteriorating relations between the two nations.**\
 `The Turkish Trade Ministry said all imports and exports with Israel would pause until an adequate supply of aid was allowed into Gaza.`\
-https://nytimes.com/2024/05/02/world/middleeast/turkey-israel-trade-ties.html
+https://nytimes.com/live/2024/05/02/world/israel-gaza-war-hamas/turkey-israel-trade-ties
 
 **Locks, Chains, Diversions: How Columbia Students Seized Hamilton Hall**\
 `Some of those arrested during the pro-Palestinian protest were outsiders, not students or others who appeared to be affiliated with the school, according to an analysis of Police Department data.`\

@@ -1,3 +1,7 @@
+**The Defense Turns Up the Heat**\
+`Donald Trump’s lawyers played hardball, questioning Stormy Daniels’s lawyer’s history of profiting from celebrities in embarrassing situations.`\
+https://nytimes.com/2024/05/02/us/politics/trump-trial-defense-analysis-gag-order.html
+
 **Friday Briefing: Hamas Considers Israel’s Proposal**\
 `Also, the U.S. accused Russia of using chemical weapons.`\
 https://nytimes.com/2024/05/02/world/asia/hamas-israel-proposal-russia-asia.html
