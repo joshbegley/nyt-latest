@@ -1,3 +1,11 @@
+**Watch the Eta Aquarid Meteor Shower Reach Its Peak**\
+`The event will be active when the moon is just a sliver in the sky, but it is less easy to see in the Northern Hemisphere than other meteor showers.`\
+https://nytimes.com/2024/05/02/science/eta-aquarid-meteor-shower-time-peak.html
+
+**In the Bard’s Hometown, a Challenge for New Theater Leaders**\
+`The Royal Shakespeare Company’s co-artistic directors have put together a challenging debut season. But many visitors come to Stratford-upon-Avon seeking something more traditional.`\
+https://nytimes.com/2024/05/02/theater/royal-shakespeare-company-new-leaders.html
+
 **Biden Denounces Violence on Campus, Breaking Silence After Rash of Arrests**\
 `President Biden defended the right to dissent but made clear that he believed too many of the demonstrations had gone beyond the bounds of free speech.`\
 https://nytimes.com/2024/05/02/us/politics/biden-campus-protests.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/02/arts/television/star-wars-the-bad-batch.html
 **Sheet Pan Your Sandwich**\
 `Salami, red onions and pepperoncini are caramelized in a hot oven and tossed in an oregano-garlic vinaigrette in this sheet-pan Italian sub dinner.`\
 https://nytimes.com/2024/05/02/dining/sheet-pan-your-sandwich.html
-
-**Orangutan, Heal Thyself**\
-`For the first time, scientists observed a primate in the wild treating a wound with a plant that has medicinal properties.`\
-https://nytimes.com/2024/05/02/science/orangutan-wound-plant-treatment.html
-
-**What’s Going On in This Graph? | May 8, 2024**\
-`How have average summer land temperatures across the Northern Hemisphere changed over the past 72 years?`\
-https://nytimes.com/2024/05/02/learning/whats-going-on-in-this-graph-may-8-2024.html
 
