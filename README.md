@@ -1,3 +1,7 @@
+**Trump, Repeating 2020 Election Lies, Will Not Commit to Accepting 2024 Results**\
+`“If everything’s honest, I’ll gladly accept the results. I don’t change on that,” Donald Trump told The Milwaukee Journal Sentinel. “If it’s not, you have to fight for the right of the country.”`\
+https://nytimes.com/2024/05/01/us/politics/trump-accept-2024-election-results.html
+
 **Made It to the Big Leagues**\
 `Brandon Koppy predicts our futures.`\
 https://nytimes.com/2024/05/01/crosswords/daily-puzzle-2024-05-02.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/01/opinion/drew-barrymore-kamala-harris.html
 **How Protesters Can Actually Help Palestinians**\
 `I worry that the more aggressive demonstrators may be hurting the Gazans they’re trying to support.`\
 https://nytimes.com/2024/05/01/opinion/student-protests-gaza.html
-
-**Republicans Step Up Attacks on Scientist at Heart of Lab Leak Theory**\
-`A heated hearing produced no new evidence that Peter Daszak or his nonprofit, EcoHealth Alliance, were implicated in the Covid outbreak.`\
-https://nytimes.com/2024/05/01/science/covid-lab-leak-ecohealth-nih.html
 
