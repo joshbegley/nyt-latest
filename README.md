@@ -1,3 +1,19 @@
+**Peggy Mellon Hitchcock, Who Helped Timothy Leary Turn On, Dies at 90**\
+`She was an enthusiastic supporter of the counterculture. And when she suggested that her brothers rent Mr. Leary a mansion, she made psychedelic history.`\
+https://nytimes.com/2024/05/02/us/peggy-mellon-hitchcock-dead.html
+
+**Campus Protests Give Russia, China and Iran Fuel to Exploit U.S. Divide**\
+`America’s adversaries have mounted online campaigns to amplify the social and political conflicts over Gaza flaring at universities, researchers say.`\
+https://nytimes.com/2024/05/02/business/media/campus-protests-russia-china-iran-us.html
+
+**‘Message in a Bottle’ Review: Sending Out an S.O.S., Dancing to Sting**\
+`With choreography by Kate Prince and 27 songs by Sting, this story of refugees has impressive dance moments, but handles narrative and emotion tritely.`\
+https://nytimes.com/2024/05/02/arts/dance/review-sting-message-in-a-bottle.html
+
+**Torrential Rains Leave at Least 13 Dead and More Missing in Brazil**\
+`Four days of pounding rain have inundated many parts of a southern state, cutting off towns and leaving people trapped as they await rescue by helicopters.`\
+https://nytimes.com/2024/05/02/world/americas/brazil-rain-floods.html
+
 **Advice to Protesters, and History’s Echoes**\
 `Responses to news and opinion articles about the campus protests. Also: Trump logic; pondering another civil war; lessons in the classroom.`\
 https://nytimes.com/2024/05/02/opinion/campus-protests-israel-gaza.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/05/02/movies/evil-does-not-exist-review-ryusuke-hamaguc
 **Frieze New York Brings a Rich, Cross-Cultural Mix**\
 `The Shed welcomes an international survey of painting, textiles and collage to its galleries. Our critic picks his 23 favorite booths.`\
 https://nytimes.com/2024/05/02/arts/design/frieze-new-york-art-fair-shed.html
-
-**Scotland’s Governing S.N.P. Looks to a Stalwart After Its Leader Quits**\
-`Amid a political crisis, John Swinney, who led the Scottish National Party two decades ago, is in line to become Scotland’s first minister.`\
-https://nytimes.com/2024/05/02/world/europe/scotland-snp-first-minister.html
-
-**A father in Rafah whose family survived an airstrike asks, ‘What should we do?’**\
-`By Hiba Yazbek`\
-https://nytimes.com/live/2024/05/02/world/israel-gaza-war-hamas/a-father-in-rafah-whose-family-survived-an-airstrike-asks-what-should-we-do
-
-**After the 2016 Election, Porn Star’s Lawyer Lamented a Hush-Money Deal**\
-`“What have we done?” Keith Davidson texted to a tabloid editor on election night, testifying on Thursday that it had been gallows humor.`\
-https://nytimes.com/2024/05/02/nyregion/trump-trial-keith-davidson-stormy-daniels-hush-money.html
-
-**President Biden Addresses Campus Protests**\
-`President Biden defended the right of demonstrators to protest peacefully, but condemned the “chaos” that has prevailed at many colleges nationwide.`\
-https://nytimes.com/video/us/100000009444990/biden-campus-protests.html
 

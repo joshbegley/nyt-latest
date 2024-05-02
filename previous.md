@@ -1,3 +1,11 @@
+**Advice to Protesters, and History’s Echoes**\
+`Responses to news and opinion articles about the campus protests. Also: Trump logic; pondering another civil war; lessons in the classroom.`\
+https://nytimes.com/2024/05/02/opinion/campus-protests-israel-gaza.html
+
+**Welcome to the Mushroomhouse**\
+`It’s steakhouse night in America — hold the steak.`\
+https://nytimes.com/2024/05/02/dining/welcome-to-the-mushroomhouse.html
+
 **What Is ‘Queer Food’? A Conference Explores (and Tastes) Some Answers.**\
 `At Boston University, scholars, students and writers gathered to share thoughts on the role of gender and sexuality in the food space. Snacks were plentiful.`\
 https://nytimes.com/2024/05/02/dining/queer-food-conference.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/02/nyregion/trump-trial-keith-davidson-stormy-daniel
 **President Biden Addresses Campus Protests**\
 `President Biden defended the right of demonstrators to protest peacefully, but condemned the “chaos” that has prevailed at many colleges nationwide.`\
 https://nytimes.com/video/us/100000009444990/biden-campus-protests.html
-
-**He Survived an Airstrike in Rafah. His Family Has Nowhere Else to Go.**\
-`Mohammed Abu Youssef and his children narrowly survived an airstrike in Rafah, in southern Gaza. They’re among more than a million Palestinians taking shelter in the city, as Israel prepares for a possible ground invasion.`\
-https://nytimes.com/video/world/middleeast/100000009442635/rafah-gaza-airstrike-family.html
-
-**Chris Christie and Bill Barr Have Some Explaining to Do**\
-`Supposedly principled Republicans can’t reconcile condemnation of Trump with refusal to back Biden.`\
-https://nytimes.com/2024/05/02/opinion/chris-christie-republicans-trump.html
 

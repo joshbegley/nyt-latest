@@ -1,3 +1,11 @@
+**Advice to Protesters, and History’s Echoes**\
+`Responses to news and opinion articles about the campus protests. Also: Trump logic; pondering another civil war; lessons in the classroom.`\
+https://nytimes.com/2024/05/02/opinion/campus-protests-israel-gaza.html
+
+**Welcome to the Mushroomhouse**\
+`It’s steakhouse night in America — hold the steak.`\
+https://nytimes.com/2024/05/02/dining/welcome-to-the-mushroomhouse.html
+
 **What Is ‘Queer Food’? A Conference Explores (and Tastes) Some Answers.**\
 `At Boston University, scholars, students and writers gathered to share thoughts on the role of gender and sexuality in the food space. Snacks were plentiful.`\
 https://nytimes.com/2024/05/02/dining/queer-food-conference.html
