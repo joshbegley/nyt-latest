@@ -8,7 +8,7 @@ https://nytimes.com/2024/05/01/opinion/biden-campus-protests.html
 
 **Turkey halts trade with Israel, amid deteriorating relations between the two nations.**\
 `By Gulsin Harman and Ben Hubbard`\
-https://nytimes.com/live/2024/05/02/world/israel-gaza-war-hamas/turkey-trade-ties
+https://nytimes.com/2024/05/02/world/middleeast/turkey-israel-trade-ties.html
 
 **Locks, Chains, Diversions: How Columbia Students Seized Hamilton Hall**\
 `Some of those arrested during the pro-Palestinian protest were outsiders, not students or others who appeared to be affiliated with the school, according to an analysis of Police Department data.`\
