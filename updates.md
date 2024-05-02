@@ -1,3 +1,7 @@
+**What Will It Take for the Fed to Lower Rates?**\
+`Stubbornly high inflation has scrambled the central bank’s outlook. Wall Street is now shifting focus to Friday’s jobs report for clues on its next move.`\
+https://nytimes.com/2024/05/02/business/dealbook/fed-powell-interest-rates.html
+
 **Protests Swell in Georgia Over ‘Foreign Interests’ Bill**\
 `The authorities in the Eastern European nation said security forces had used water cannons and tear gas as demonstrators took to the streets over divisive legislation advanced by Parliament.`\
 https://nytimes.com/2024/05/02/world/europe/georgia-protests.html

@@ -1,3 +1,7 @@
+**What Will It Take for the Fed to Lower Rates?**\
+`Stubbornly high inflation has scrambled the central bank’s outlook. Wall Street is now shifting focus to Friday’s jobs report for clues on its next move.`\
+https://nytimes.com/2024/05/02/business/dealbook/fed-powell-interest-rates.html
+
 **Protests Swell in Georgia Over ‘Foreign Interests’ Bill**\
 `The authorities in the Eastern European nation said security forces had used water cannons and tear gas as demonstrators took to the streets over divisive legislation advanced by Parliament.`\
 https://nytimes.com/2024/05/02/world/europe/georgia-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/02/opinion/biden-marijuana-crime.html
 **What Are the Best, and Worst, Recommendations You’ve Gotten From Social Media?**\
 `What have you bought, watched, listened to, read, made, eaten or tried out because someone on TikTok, Instagram or X suggested you should?`\
 https://nytimes.com/2024/05/02/learning/what-are-the-best-and-worst-recommendations-youve-gotten-from-social-media.html
-
-**She Wanted a Brooklyn One-Bedroom for Less Than $500,000. But Where?**\
-`When the bathroom leak in her Bed-Stuy rental became too much to bear, an Alabama native looked around Prospect Heights, Williamsburg and Crown Heights for something she could afford to buy.`\
-https://nytimes.com/interactive/2024/05/02/realestate/brooklyn-one-bedroom-home-sale.html
 
