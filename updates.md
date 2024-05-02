@@ -1,3 +1,7 @@
+**The Cruel Spectacle of British Asylum Policy**\
+`The plan to deport asylum seekers to Rwanda promises to be an exercise in cruelty.`\
+https://nytimes.com/2024/05/02/opinion/immigration-britain-rwanda.html
+
 **Thursday Briefing**\
 `Arrests at U.S. campus protests.`\
 https://nytimes.com/2024/05/02/briefing/campus-protest-arrest-britain-elections.html
