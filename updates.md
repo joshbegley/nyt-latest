@@ -1,3 +1,11 @@
+**What Is a Song?**\
+`Is it simply the music flowing out of your earphones? According to the law, the answer is a bit more complicated.`\
+https://nytimes.com/2024/05/02/arts/music/song-copyright-sheet-music-ed-sheeran-marvin-gaye.html
+
+**After a Long Stretch of Darkness, the Bay Bridge Lights Are Returning**\
+`The Bay Lights installation, spanning 1.8 miles on the region’s workhorse bridge, has been off since March 2023. A bigger version will take its place.`\
+https://nytimes.com/2024/05/02/us/bay-bridge-lights.html
+
 **U.S. Accuses Russia of Using Chemical Weapons in Ukraine**\
 `The State Department said Russia had used chloropicrin, a poison gas widely used during World War I, against Ukrainian forces, an act that would violate a global ban signed by Moscow.`\
 https://nytimes.com/2024/05/02/world/europe/us-russia-chemical-weapons-ukraine.html

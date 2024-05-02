@@ -1,3 +1,11 @@
+**What Is a Song?**\
+`Is it simply the music flowing out of your earphones? According to the law, the answer is a bit more complicated.`\
+https://nytimes.com/2024/05/02/arts/music/song-copyright-sheet-music-ed-sheeran-marvin-gaye.html
+
+**After a Long Stretch of Darkness, the Bay Bridge Lights Are Returning**\
+`The Bay Lights installation, spanning 1.8 miles on the region’s workhorse bridge, has been off since March 2023. A bigger version will take its place.`\
+https://nytimes.com/2024/05/02/us/bay-bridge-lights.html
+
 **What Will It Take for the Fed to Lower Rates?**\
 `Stubbornly high inflation has scrambled the central bank’s outlook. Wall Street is now shifting focus to Friday’s jobs report for clues on its next move.`\
 https://nytimes.com/2024/05/02/business/dealbook/fed-powell-interest-rates.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/02/podcasts/inside-the-ucla-protests-and-trump-holds
 **Body of Fifth Victim in Baltimore Bridge Collapse Is Recovered**\
 `The body of Miguel Angel Luna Gonzalez, one of the six workers who went missing in the collapse, was recovered on Wednesday. One more remains unaccounted for.`\
 https://nytimes.com/2024/05/02/us/baltimore-bridge-collapse-victim-found.html
-
-**At Last, Washington Realizes the Obvious Truth About Marijuana**\
-`It was never among the most dangerous drugs on earth, and the Biden administration is finally doing something about it.`\
-https://nytimes.com/2024/05/02/opinion/biden-marijuana-crime.html
-
-**What Are the Best, and Worst, Recommendations You’ve Gotten From Social Media?**\
-`What have you bought, watched, listened to, read, made, eaten or tried out because someone on TikTok, Instagram or X suggested you should?`\
-https://nytimes.com/2024/05/02/learning/what-are-the-best-and-worst-recommendations-youve-gotten-from-social-media.html
 
