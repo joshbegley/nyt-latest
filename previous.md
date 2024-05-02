@@ -1,3 +1,7 @@
+**What Is ‘Queer Food’? A Conference Explores (and Tastes) Some Answers.**\
+`At Boston University, scholars, students and writers gathered to share thoughts on the role of gender and sexuality in the food space. Snacks were plentiful.`\
+https://nytimes.com/2024/05/02/dining/queer-food-conference.html
+
 **What to Watch This Weekend: A Supernatural Dramedy**\
 `“The Big Door Prize” returns for another season of charming small-town folks grappling with their fates.`\
 https://nytimes.com/2024/05/02/arts/television/big-door-prize.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009442635/rafah-gaza-airstrike-
 **Chris Christie and Bill Barr Have Some Explaining to Do**\
 `Supposedly principled Republicans can’t reconcile condemnation of Trump with refusal to back Biden.`\
 https://nytimes.com/2024/05/02/opinion/chris-christie-republicans-trump.html
-
-**Watch the Eta Aquarid Meteor Shower Reach Its Peak**\
-`The event will be active when the moon is just a sliver in the sky, but it is less easy to see in the Northern Hemisphere than other meteor showers.`\
-https://nytimes.com/2024/05/02/science/eta-aquarid-meteor-shower-time-peak.html
 

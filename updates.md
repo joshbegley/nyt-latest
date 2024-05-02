@@ -1,3 +1,7 @@
+**What Is ‘Queer Food’? A Conference Explores (and Tastes) Some Answers.**\
+`At Boston University, scholars, students and writers gathered to share thoughts on the role of gender and sexuality in the food space. Snacks were plentiful.`\
+https://nytimes.com/2024/05/02/dining/queer-food-conference.html
+
 **What to Watch This Weekend: A Supernatural Dramedy**\
 `“The Big Door Prize” returns for another season of charming small-town folks grappling with their fates.`\
 https://nytimes.com/2024/05/02/arts/television/big-door-prize.html
