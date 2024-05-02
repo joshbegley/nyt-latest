@@ -1,40 +1,40 @@
-**Here is the latest on campus protests.**\
-`By Jonathan Wolfe and Mike Ives`\
-https://nytimes.com/live/2024/05/02/nyregion/college-campus-protests/here-is-the-latest-on-campus-protests
+**This Common Condition Can Damage Joints Long Before It’s Detected**\
+`Nearly 33 million Americans have osteoarthritis. Experts explain how it affects the body, and why it’s so hard to diagnose.`\
+https://nytimes.com/2024/05/02/well/osteoarthritis-diagnosis-symptoms.html
 
-**Trump Trial to Resume With Stormy Daniels’s Lawyer on the Stand**\
-`Earlier testimony by the porn star’s lawyer, Keith Davidson, offered a rare window into the behind-the-scenes negotiations to buy his client’s silence before the 2016 election.`\
-https://nytimes.com/2024/05/02/nyregion/trump-trial-keith-davidson-testimony.html
+**After a Breakup, Does an Ex Get to Stay on Your Grid?**\
+`Addressing the very 21st-century question of whether to archive or memorialize past relationships on your Instagram account.`\
+https://nytimes.com/2024/05/02/style/breakup-dating-delete-instagram-photos.html
 
-**In an Online World, a New Generation of Protesters Chooses Anonymity**\
-`Doxxing and other consequences have led many student protesters on college campuses to hide their identities. That choice has been polarizing.`\
-https://nytimes.com/2024/05/02/nyregion/college-campus-protests-anonymity.html
+**At TEFAF New York, These Rooms Come With a View**\
+`The period rooms in the Park Avenue Armory offer benefits, and challenges, to the exhibitors setting up their booths for the art fair.`\
+https://nytimes.com/2024/05/02/arts/design/tefaf-park-avenue-armory-rooms.html
 
-**Underwear on a Statue**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2024/05/02/learning/underwear-on-a-statue.html
+**This Pie Maximizes the Best Part of Spanakopita**\
+`A welcome addition to the Greek Orthodox table at Easter, striftopites get their extra-satisfying bite from a high phyllo-to-filling ratio.`\
+https://nytimes.com/2024/05/02/dining/greek-orthodox-easter-striftopites.html
 
-**Today’s Wordle Review No. 1,048**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/02/crosswords/wordle-review.html
+**Textile Artists Bring New Life to an 18th-Century Building**\
+`An exhibition in South Street Seaport fills a former warehouse with fiber art and makes its old machinery, including a 12-foot wheel, part of the show.`\
+https://nytimes.com/2024/05/02/arts/design/textiles-south-street-seaport.html
 
-**The Connections Companion No. 326**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/02/crosswords/connections-companion.html
+**Trump Embraces Lawlessness, but in the Name of a Higher Law**\
+`When authorities are seen as corrupt, we celebrate those who defy them.`\
+https://nytimes.com/2024/05/02/opinion/trump-trial-2024-election.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/05/02/crosswords/spelling-bee-forum.html
+**‘Presentation is Everything’: Inside the World of Art Fair Booth Design**\
+`For gallery directors, including those at TEFAF New York, no detail is too trivial, and every millimeter matters.`\
+https://nytimes.com/2024/05/02/arts/design/tefaf-new-york-booths-fair.html
 
-**The return of civilians to the northern part of Gaza is part of the cease-fire proposal.**\
-`By Adam Rasgon, Hwaida Saad, Edward Wong and Damien Cave`\
-https://nytimes.com/live/2024/05/02/world/israel-gaza-war-hamas/the-return-of-civilians-to-the-northern-part-of-gaza-is-part-of-the-cease-fire-proposal
+**In the Arts, Is It Breaking Big, or Selling Out?**\
+`The boundaries between art, fashion and luxury seem to be melting away. That’s great for brands, but what about artists — and the art?`\
+https://nytimes.com/2024/05/02/arts/art-fashion-luxury-overlap.html
 
-**02mideast-crisis**\
-`Hopes for Cease-Fire Remain, Despite Hamas’s Resistance to Latest Offer`\
-https://nytimes.com/live/2024/05/02/world/israel-gaza-war-hamas
+**Where Are Young Art Collectors and Museum Donors?**\
+`The art world is concerned about where the next generation of buyers and supporters is going to come from.`\
+https://nytimes.com/2024/05/02/arts/design/young-collectors-museum-donors.html
 
-**Seth Meyers Mocks Donald Trump for Appearing to Nod Off in Court**\
-`“Does he even wear suits to court or just footie pajamas and a nightcap?” Meyers joked on Wednesday.`\
-https://nytimes.com/2024/05/02/arts/television/seth-meyers-donald-trump-sleep.html
+**Gardens of Good and Evil**\
+`These spaces have historically been tied to exclusion and injustice, but we can cultivate them to be ethical and environmentally beneficial.`\
+https://nytimes.com/2024/05/02/opinion/gardening-privilege-ethics.html
 
