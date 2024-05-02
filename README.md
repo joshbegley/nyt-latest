@@ -1,6 +1,6 @@
 **Petrit Halilaj Takes Flight**\
 `After a childhood marked by war and exile, the artist from Kosovo has become one of his generation’s great talents.`\
-https://nytimes.com/2024/05/02/arts/design/02petrit-halilaj-kosovo-met-roof.html
+https://nytimes.com/2024/05/02/arts/design/petrit-halilaj-kosovo-met-roof.html
 
 **The Voice of a Hundred Faces: Dee Bradley Baker’s ‘Star Wars’ Journey**\
 `With “The Bad Batch” ending this week on Disney+, the man who has voiced hundreds of “Star Wars” characters over the past two decades looks back on his run.`\
