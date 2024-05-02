@@ -1,3 +1,7 @@
+**Protests Swell in Georgia Over ‘Foreign Interests’ Bill**\
+`The authorities in the Eastern European nation said security forces had used water cannons and tear gas as demonstrators took to the streets over divisive legislation advanced by Parliament.`\
+https://nytimes.com/2024/05/02/world/europe/georgia-protests.html
+
 **‘Catching Fire’ Review: How the Stones’ Muse Rolled**\
 `Subtitled “The Story of Anita Pallenberg,” this documentary gives the life of the actress and model a thorough downer of a treatment.`\
 https://nytimes.com/2024/05/02/movies/catching-fire-review-how-the-stones-muse-rolled.html
