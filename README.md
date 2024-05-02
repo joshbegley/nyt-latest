@@ -1,3 +1,7 @@
+**At Trump’s Trial, a Decade’s Worth of Celebrity Sleaze Is Exhumed**\
+`Donald J. Trump’s lawyers tried to paint Keith Davidson, the man who helped broker a hush-money payment for Stormy Daniels, as a specialist in extracting money from the famous.`\
+https://nytimes.com/2024/05/02/nyregion/trump-trial-celebrity-hush-money.html
+
 **Court Allows Case Challenging Segregation in N.Y.C. Schools to Advance**\
 `The lawsuit calls out “pernicious racial inequality” in the nation’s largest school district. If successful, it could lead to changes to gifted and selective programs, or even their elimination.`\
 https://nytimes.com/2024/05/02/nyregion/nyc-schools-segregation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/02/arts/dance/review-sting-message-in-a-bottle.html
 **Torrential Rains Leave at Least 13 Dead and More Missing in Brazil**\
 `Four days of pounding rain have inundated many parts of a southern state, cutting off towns and leaving people trapped as they await rescue by helicopters.`\
 https://nytimes.com/2024/05/02/world/americas/brazil-rain-floods.html
-
-**Advice to Protesters, and History’s Echoes**\
-`Responses to news and opinion articles about the campus protests. Also: Trump logic; pondering another civil war; lessons in the classroom.`\
-https://nytimes.com/2024/05/02/opinion/campus-protests-israel-gaza.html
 
