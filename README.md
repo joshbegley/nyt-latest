@@ -1,3 +1,15 @@
+**Bill to Combat Antisemitism on Campuses Prompts Backlash From the Right**\
+`Representative Marjorie Taylor Greene, Republican of Georgia, said the legislation could make it illegal to assert that Jews killed Jesus, punishing Christians for “believing the Gospel.”`\
+https://nytimes.com/2024/05/02/us/politics/antisemitism-jews-republicans-democrats-congress.html
+
+**Biden Said the Right Thing on Campus Protests. Will It Matter?**\
+`The middle of the road may be the correct place to be, but it’s never a popular spot.`\
+https://nytimes.com/2024/05/01/opinion/biden-campus-protests.html
+
+**Turkey halts trade with Israel, amid deteriorating relations between the two nations.**\
+`By Gulsin Harman and Ben Hubbard`\
+https://nytimes.com/live/2024/05/02/world/israel-gaza-war-hamas/turkey-trade-ties
+
 **Locks, Chains, Diversions: How Columbia Students Seized Hamilton Hall**\
 `Some of those arrested during the pro-Palestinian protest were outsiders, not students or others who appeared to be affiliated with the school, according to an analysis of Police Department data.`\
 https://nytimes.com/2024/05/02/nyregion/columbia-students-hamilton-hall.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/02/nyregion/trump-trial-keith-davidson-stormy-daniel
 **Former Pennsylvania Nurse Gets Life Sentence in Insulin Deaths**\
 `Heather Pressdee, 41, admitted to trying to kill 19 patients by administering excessive amounts of insulin, prosecutors said. She pleaded guilty to three counts of murder and other charges.`\
 https://nytimes.com/2024/05/02/us/pennsylvania-nurse-insulin-pleads-guilty.html
-
-**Flooding in East Texas Leads to Evacuation as More Rain Is Expected**\
-`Over half a foot of rain fell across portions of East Texas on Thursday morning.`\
-https://nytimes.com/2024/05/02/us/texas-rain-flooding-polk-county-houston.html
-
-**Larry Young, Who Studied the Chemistry of Love, Dies at 56**\
-`Professor Young’s experiments with prairie voles revealed what poets never could: how the brain processes that fluttering feeling in the heart.`\
-https://nytimes.com/2024/05/02/science/larry-young-dead.html
-
-**Trump’s Contempt for His Court Is So Pervasive It Has Become Routine**\
-`With any other president, a contempt citation would mean banner headlines.`\
-https://nytimes.com/2024/05/01/opinion/trump-trial-contempt.html
 
