@@ -1,3 +1,7 @@
+**Menendez Lawyers Cite ‘Traumatic’ History to Explain His Cash Stockpile**\
+`Senator Robert Menendez’s attorneys want a psychiatrist to testify at his corruption trial about the impact of his father’s death by suicide. Prosecutors are objecting.`\
+https://nytimes.com/2024/05/02/nyregion/menendez-psychiatrist-cash-stockpile.html
+
 **Quotation of the Day: More Writers Imprisoned Worldwide, Report Finds**\
 `Quotation of the Day for Thursday, May 2, 2024.`\
 https://nytimes.com/2024/05/02/pageoneplus/quotation-of-the-day-more-writers-imprisoned-worldwide-report-finds.html
