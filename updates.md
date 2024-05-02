@@ -1,3 +1,15 @@
+**Bill to Combat Antisemitism on Campuses Prompts Backlash From the Right**\
+`Representative Marjorie Taylor Greene, Republican of Georgia, said the legislation could make it illegal to assert that Jews killed Jesus, punishing Christians for “believing the Gospel.”`\
+https://nytimes.com/2024/05/02/us/politics/antisemitism-jews-republicans-democrats-congress.html
+
+**Biden Said the Right Thing on Campus Protests. Will It Matter?**\
+`The middle of the road may be the correct place to be, but it’s never a popular spot.`\
+https://nytimes.com/2024/05/01/opinion/biden-campus-protests.html
+
+**Turkey halts trade with Israel, amid deteriorating relations between the two nations.**\
+`By Gulsin Harman and Ben Hubbard`\
+https://nytimes.com/2024/05/02/world/middleeast/turkey-israel-trade-ties.html
+
 **Locks, Chains, Diversions: How Columbia Students Seized Hamilton Hall**\
 `Some of those arrested during the pro-Palestinian protest were outsiders, not students or others who appeared to be affiliated with the school, according to an analysis of Police Department data.`\
 https://nytimes.com/2024/05/02/nyregion/columbia-students-hamilton-hall.html
