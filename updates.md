@@ -1,3 +1,11 @@
+**U.C.L.A. Tries to Reconcile a Week of Turbulent Events**\
+`As crews cleared the remnants of an encampment, students and faculty members wondered how the university could have handled protests over the war in Gaza so badly.`\
+https://nytimes.com/2024/05/02/us/ucla-tries-to-reconcile-a-week-of-turbulent-events.html
+
+**Hopes rise among relatives of hostages as signs of progress in talks are reported.**\
+`By Johnatan Reiss`\
+https://nytimes.com/2024/05/02/world/middleeast/hopes-rise-among-relatives-of-hostages-as-signs-of-progress-in-talks-are-reported.html
+
 **Tapes Take Trump Jurors Into the Heart of Hush-Money Deals: 5 Takeaways**\
 `Stormy Daniels’s former lawyer faced a tough cross-examination as Donald J. Trump’s team tried to paint him as a shakedown artist.`\
 https://nytimes.com/2024/05/02/nyregion/trump-hush-money-stormy-daniels-takeaways.html

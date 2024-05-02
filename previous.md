@@ -1,3 +1,7 @@
+**U.C.L.A. Tries to Reconcile a Week of Turbulent Events**\
+`As crews cleared the remnants of an encampment, students and faculty members wondered how the university could have handled protests over the war in Gaza so badly.`\
+https://nytimes.com/2024/05/02/us/ucla-tries-to-reconcile-a-week-of-turbulent-events.html
+
 **Tapes Take Trump Jurors Into the Heart of Hush-Money Deals: 5 Takeaways**\
 `Stormy Daniels’s former lawyer faced a tough cross-examination as Donald J. Trump’s team tried to paint him as a shakedown artist.`\
 https://nytimes.com/2024/05/02/nyregion/trump-hush-money-stormy-daniels-takeaways.html
@@ -8,7 +12,7 @@ https://nytimes.com/2024/05/02/nyregion/new-york-woman-charged-ozempic-tiktok.ht
 
 **Hopes rise among relatives of hostages as signs of progress in talks are reported.**\
 `By Johnatan Reiss`\
-https://nytimes.com/live/2024/05/02/world/israel-gaza-war-hamas/hopes-rise-among-relatives-of-hostages-as-signs-of-progress-in-talks-are-reported
+https://nytimes.com/2024/05/02/world/middleeast/hopes-rise-among-relatives-of-hostages-as-signs-of-progress-in-talks-are-reported.html
 
 **The Magic Constitutionalism of Donald Trump**\
 `There is no originalist case for presidential immunity.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/02/world/middleeast/hamas-israel-gaza-ceasefire.html
 **Bill to Combat Antisemitism on Campuses Prompts Backlash From the Right**\
 `Representative Marjorie Taylor Greene, Republican of Georgia, said the legislation could make it illegal to assert that Jews killed Jesus, punishing Christians for “believing the Gospel.”`\
 https://nytimes.com/2024/05/02/us/politics/antisemitism-jews-republicans-democrats-congress.html
-
-**Biden Said the Right Thing on Campus Protests. Will It Matter?**\
-`The middle of the road may be the correct place to be, but it’s never a popular spot.`\
-https://nytimes.com/2024/05/01/opinion/biden-campus-protests.html
 
