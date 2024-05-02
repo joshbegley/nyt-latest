@@ -1,3 +1,11 @@
+**Three Choices for World-Class Art and a Nosh**\
+`Think vegan lobster rolls and the Swizz Beats and Alicia Keys collection at Brooklyn Museum.`\
+https://nytimes.com/2024/05/02/dining/three-choices-for-world-class-art-and-a-nosh.html
+
+**Trump’s Team Paints Stormy Daniels’s Ex-Lawyer as a Shakedown Artist**\
+`During his testimony in the former president’s criminal trial, Keith Davidson described a lucrative legal niche keeping embarrassing stories out of print.`\
+https://nytimes.com/2024/05/02/nyregion/trump-trial-keith-davidson-stormy-daniels.html
+
 **Former Pennsylvania Nurse Gets Life Sentence in Insulin Deaths**\
 `Heather Pressdee, 41, admitted to trying to kill 19 patients by administering excessive amounts of insulin, prosecutors said. She pleaded guilty to three counts of murder and other charges.`\
 https://nytimes.com/2024/05/02/us/pennsylvania-nurse-insulin-pleads-guilty.html
