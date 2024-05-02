@@ -1,3 +1,11 @@
+**‘Evil Does Not Exist’ Review: Nature vs. Nurture**\
+`Ryusuke Hamaguchi follows up his sublime drama “Drive My Car” with a parable about a rural Japanese village and the resort developer eyeing its land.`\
+https://nytimes.com/2024/05/02/movies/evil-does-not-exist-review-ryusuke-hamaguchi.html
+
+**Frieze New York Brings a Rich, Cross-Cultural Mix**\
+`The Shed welcomes an international survey of painting, textiles and collage to its galleries. Our critic picks his 23 favorite booths.`\
+https://nytimes.com/2024/05/02/arts/design/frieze-new-york-art-fair-shed.html
+
 **Scotland’s Governing S.N.P. Looks to a Stalwart After Its Leader Quits**\
 `Amid a political crisis, John Swinney, who led the Scottish National Party two decades ago, is in line to become Scotland’s first minister.`\
 https://nytimes.com/2024/05/02/world/europe/scotland-snp-first-minister.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/02/science/eta-aquarid-meteor-shower-time-peak.html
 **In the Bard’s Hometown, a Challenge for New Theater Leaders**\
 `The Royal Shakespeare Company’s co-artistic directors have put together a challenging debut season. But many visitors come to Stratford-upon-Avon seeking something more traditional.`\
 https://nytimes.com/2024/05/02/theater/royal-shakespeare-company-new-leaders.html
-
-**Biden Denounces Violence on Campus, Breaking Silence After Rash of Arrests**\
-`President Biden defended the right to dissent but made clear that he believed too many of the demonstrations had gone beyond the bounds of free speech.`\
-https://nytimes.com/2024/05/02/us/politics/biden-campus-protests.html
-
-**Can a ‘Not Charlotte’ Recipe Revive a Region?**\
-`North Carolina’s Triad was built on tobacco, textiles and furniture. Now it’s trying to forge a new economy from more highly skilled manufacturing.`\
-https://nytimes.com/2024/05/02/business/economy/north-carolina-triad-economy.html
 
