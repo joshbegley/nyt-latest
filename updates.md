@@ -1,3 +1,11 @@
+**Former Pennsylvania Nurse Gets Life Sentence in Insulin Deaths**\
+`Heather Pressdee, 41, admitted to trying to kill 19 patients by administering excessive amounts of insulin, prosecutors said. She pleaded guilty to three counts of murder and other charges.`\
+https://nytimes.com/2024/05/02/us/pennsylvania-nurse-insulin-pleads-guilty.html
+
+**Flooding in East Texas Leads to Evacuations; More Rain Is Expected**\
+`Over half a foot of rain fell across portions of East Texas on Thursday morning.`\
+https://nytimes.com/2024/05/02/us/texas-rain-flooding-polk-county-houston.html
+
 **Larry Young, Who Studied the Chemistry of Love, Dies at 56**\
 `Professor Young’s experiments with prairie voles revealed what poets never could: how the brain processes that fluttering feeling in the heart.`\
 https://nytimes.com/2024/05/02/science/larry-young-dead.html
