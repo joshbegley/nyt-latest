@@ -1,3 +1,7 @@
+**Quotation of the Day: More Writers Imprisoned Worldwide, Report Finds**\
+`Quotation of the Day for Thursday, May 2, 2024.`\
+https://nytimes.com/2024/05/02/pageoneplus/quotation-of-the-day-more-writers-imprisoned-worldwide-report-finds.html
+
 **The Cruel Spectacle of British Asylum Policy**\
 `The plan to deport asylum seekers to Rwanda promises to be an exercise in cruelty.`\
 https://nytimes.com/2024/05/02/opinion/immigration-britain-rwanda.html

@@ -1,3 +1,7 @@
+**Quotation of the Day: More Writers Imprisoned Worldwide, Report Finds**\
+`Quotation of the Day for Thursday, May 2, 2024.`\
+https://nytimes.com/2024/05/02/pageoneplus/quotation-of-the-day-more-writers-imprisoned-worldwide-report-finds.html
+
 **The Cruel Spectacle of British Asylum Policy**\
 `The plan to deport asylum seekers to Rwanda promises to be an exercise in cruelty.`\
 https://nytimes.com/2024/05/02/opinion/immigration-britain-rwanda.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/01/arts/music/richard-tandy-dead.html
 **Trump, Repeating 2020 Election Lies, Will Not Commit to Accepting 2024 Results**\
 `“If everything’s honest, I’ll gladly accept the results. I don’t change on that,” Donald Trump told The Milwaukee Journal Sentinel. “If it’s not, you have to fight for the right of the country.”`\
 https://nytimes.com/2024/05/01/us/politics/trump-accept-2024-election-results.html
-
-**Made It to the Big Leagues**\
-`Brandon Koppy predicts our futures.`\
-https://nytimes.com/2024/05/01/crosswords/daily-puzzle-2024-05-02.html
 
