@@ -2,7 +2,7 @@
 `Think vegan lobster rolls and the Swizz Beats and Alicia Keys collection at Brooklyn Museum.`\
 https://nytimes.com/2024/05/02/dining/three-choices-for-world-class-art-and-a-nosh.html
 
-**Trump’s Team Paints Stormy Daniels’s Ex- Lawyer as a Shakedown Artist**\
+**Trump’s Team Paints Stormy Daniels’s Ex-Lawyer as a Shakedown Artist**\
 `During his testimony in the former president’s criminal trial, Keith Davidson described a lucrative legal niche keeping embarrassing stories out of print.`\
 https://nytimes.com/2024/05/02/nyregion/trump-trial-keith-davidson-stormy-daniels.html
 
