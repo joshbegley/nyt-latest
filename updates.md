@@ -1,3 +1,11 @@
+**What to See in N.Y.C. Galleries in May**\
+`Martha Schwendener covers Tamiko Nishimura’s arresting black-and-white photographs, Tanya Merrill’s playful portraits and Enrique Martínez Celaya’s link to a Spanish master.`\
+https://nytimes.com/2024/05/02/arts/design/what-to-see-nyc-galleries-may.html
+
+**In Los Angeles, a Hilltop Garden Party With a Tower of Crudités**\
+`Sara Kramer and Sarah Hymanson — the chef-owners of the restaurant Kismet — hosted a Mediterranean and Middle Eastern feast to celebrate their first cookbook.`\
+https://nytimes.com/2024/05/02/t-magazine/kismet-los-angeles-garden-party.html
+
 **The Best Headwear at the Central Park Hat Lunch**\
 `Attendees at the annual Frederick Law Olmsted Awards wore their finest fascinators, headbands and bird hats to raise money for the jewel of New York.`\
 https://nytimes.com/2024/05/02/style/central-park-hat-luncheon.html

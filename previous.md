@@ -1,3 +1,11 @@
+**What to See in N.Y.C. Galleries in May**\
+`Martha Schwendener covers Tamiko Nishimura’s arresting black-and-white photographs, Tanya Merrill’s playful portraits and Enrique Martínez Celaya’s link to a Spanish master.`\
+https://nytimes.com/2024/05/02/arts/design/what-to-see-nyc-galleries-may.html
+
+**In Los Angeles, a Hilltop Garden Party With a Tower of Crudités**\
+`Sara Kramer and Sarah Hymanson — the chef-owners of the restaurant Kismet — hosted a Mediterranean and Middle Eastern feast to celebrate their first cookbook.`\
+https://nytimes.com/2024/05/02/t-magazine/kismet-los-angeles-garden-party.html
+
 **The Best Headwear at the Central Park Hat Lunch**\
 `Attendees at the annual Frederick Law Olmsted Awards wore their finest fascinators, headbands and bird hats to raise money for the jewel of New York.`\
 https://nytimes.com/2024/05/02/style/central-park-hat-luncheon.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/01/opinion/trump-trial-contempt.html
 **Making flying cleaner**\
 `New guidelines attempt to make the aviation cleaner by relying on corn-based ethanol, but experts divided on the fuel’s environmental benefits.`\
 https://nytimes.com/2024/05/02/climate/jet-fuel-ethanol-flying.html
-
-**Robert Oxnam, China Scholar Beset by Multiple Personalities, Dies at 81**\
-`Through psychotherapy, recounted in a memoir, he learned that he had 11 personalities, or fractured parts of his identity. One of them told of childhood abuse.`\
-https://nytimes.com/2024/05/02/health/robert-b-oxnam-dead.html
-
-**Court Says Italy Is Rightful Owner of Bronze Held by Getty Museum**\
-`The European Court of Human Rights has found that Italy’s claims to a contested Greek statue are legitimate. But the museum says its continued possession is appropriate and lawful.`\
-https://nytimes.com/2024/05/02/arts/design/getty-museum-bronze-greek-statue.html
 
