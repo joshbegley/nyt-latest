@@ -1,3 +1,7 @@
+**Can a ‘Not Charlotte’ Recipe Revive a Region?**\
+`North Carolina’s Triad was built on tobacco, textiles and furniture. Now it’s trying to forge a new economy from more highly skilled manufacturing.`\
+https://nytimes.com/2024/05/02/business/economy/north-carolina-triad-economy.html
+
 **An Artist From Kosovo Takes Flight**\
 `After a childhood marked by war and exile, Petrit Halilaj has become one of his generation’s great talents.`\
 https://nytimes.com/2024/05/02/arts/design/petrit-halilaj-kosovo-met-roof.html
