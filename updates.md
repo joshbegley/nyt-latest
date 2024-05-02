@@ -1,3 +1,7 @@
+**Robert Oxnam, China Scholar Beset by Multiple Personalities, Dies at 81**\
+`Through psychotherapy, recounted in a memoir, he learned that he had 11 personalities, or fractured parts of his identity. One of them told of childhood abuse.`\
+https://nytimes.com/2024/05/02/health/robert-b-oxnam-dead.html
+
 **Court Says Italy Is Rightful Owner of Bronze Held by Getty Museum**\
 `The European Court of Human Rights has found that Italy’s claims to a contested Greek statue are legitimate. But the museum says its continued possession is appropriate and lawful.`\
 https://nytimes.com/2024/05/02/arts/design/getty-museum-bronze-greek-statue.html
