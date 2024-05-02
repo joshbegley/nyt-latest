@@ -1,3 +1,7 @@
+**Chris Christie and Bill Barr Have Some Explaining to Do**\
+`Supposedly principled Republicans can’t reconcile condemnation of Trump with refusal to back Biden.`\
+https://nytimes.com/2024/05/02/opinion/chris-christie-republicans-trump.html
+
 **Watch the Eta Aquarid Meteor Shower Reach Its Peak**\
 `The event will be active when the moon is just a sliver in the sky, but it is less easy to see in the Northern Hemisphere than other meteor showers.`\
 https://nytimes.com/2024/05/02/science/eta-aquarid-meteor-shower-time-peak.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/02/arts/design/petrit-halilaj-kosovo-met-roof.html
 **The Voice of a Hundred Faces: Dee Bradley Baker’s ‘Star Wars’ Journey**\
 `With “The Bad Batch” ending this week on Disney+, the man who has voiced hundreds of “Star Wars” characters over the past two decades looks back on his run.`\
 https://nytimes.com/2024/05/02/arts/television/star-wars-the-bad-batch.html
-
-**Sheet Pan Your Sandwich**\
-`Salami, red onions and pepperoncini are caramelized in a hot oven and tossed in an oregano-garlic vinaigrette in this sheet-pan Italian sub dinner.`\
-https://nytimes.com/2024/05/02/dining/sheet-pan-your-sandwich.html
 
