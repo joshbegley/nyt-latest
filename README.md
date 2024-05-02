@@ -1,40 +1,40 @@
-**This Common Condition Can Damage Joints Long Before It’s Detected**\
-`Nearly 33 million Americans have osteoarthritis. Experts explain how it affects the body, and why it’s so hard to diagnose.`\
-https://nytimes.com/2024/05/02/well/osteoarthritis-diagnosis-symptoms.html
+**As Kentucky Derby Nears, Last Year’s Deaths Cast Long Shadow**\
+`The breakdown of 12 horses in the days surrounding the celebrated race a year ago has led to existential questions about the sport and its future.`\
+https://nytimes.com/2024/05/02/business/horse-racing-deaths-kentucky-derby.html
 
-**After a Breakup, Does an Ex Get to Stay on Your Grid?**\
-`Addressing the very 21st-century question of whether to archive or memorialize past relationships on your Instagram account.`\
-https://nytimes.com/2024/05/02/style/breakup-dating-delete-instagram-photos.html
+**Campus Protests Aren’t Going Away. Colleges Need to Draw Lines.**\
+`TK`\
+https://nytimes.com/2024/05/02/opinion/campus-protests-free-speech.html
 
-**At TEFAF New York, These Rooms Come With a View**\
-`The period rooms in the Park Avenue Armory offer benefits, and challenges, to the exhibitors setting up their booths for the art fair.`\
-https://nytimes.com/2024/05/02/arts/design/tefaf-park-avenue-armory-rooms.html
+**36 Hours in Minneapolis**\
+`Springtime is best for exploring this Midwestern city’s lakeside trails, robust arts scene and top-notch restaurants.`\
+https://nytimes.com/interactive/2024/05/02/travel/things-to-do-minneapolis.html
 
-**This Pie Maximizes the Best Part of Spanakopita**\
-`A welcome addition to the Greek Orthodox table at Easter, striftopites get their extra-satisfying bite from a high phyllo-to-filling ratio.`\
-https://nytimes.com/2024/05/02/dining/greek-orthodox-easter-striftopites.html
+**The Biden Campaign’s High-Powered Effort to Define R.F.K. Jr.**\
+`Why Democrats have a big team tracking every third-party candidate.`\
+https://nytimes.com/2024/05/02/opinion/rfk-jr-biden-democrats.html
 
-**Textile Artists Bring New Life to an 18th-Century Building**\
-`An exhibition in South Street Seaport fills a former warehouse with fiber art and makes its old machinery, including a 12-foot wheel, part of the show.`\
-https://nytimes.com/2024/05/02/arts/design/textiles-south-street-seaport.html
+**Tech Industry Braces as Google Antitrust Trial Closes**\
+`The first tech monopoly trial of the modern internet era is concluding. The judge’s ruling is likely to weigh heavily on a pipeline of similar antitrust cases.`\
+https://nytimes.com/2024/05/02/technology/google-antitrust-trial-closing-arguments.html
 
-**Trump Embraces Lawlessness, but in the Name of a Higher Law**\
-`When authorities are seen as corrupt, we celebrate those who defy them.`\
-https://nytimes.com/2024/05/02/opinion/trump-trial-2024-election.html
+**How Hudson Yards Went From Bust to Boom**\
+`The planned neighborhood in the far west of Manhattan has rebounded, at least in terms of leasing office space.`\
+https://nytimes.com/2024/05/02/nyregion/how-hudson-yards-went-from-bust-to-boom.html
 
-**‘Presentation is Everything’: Inside the World of Art Fair Booth Design**\
-`For gallery directors, including those at TEFAF New York, no detail is too trivial, and every millimeter matters.`\
-https://nytimes.com/2024/05/02/arts/design/tefaf-new-york-booths-fair.html
+**Will Shoppers Ever Care About the Destruction of the Planet?**\
+`Tactics to convince people to buy less aren’t working. A quirky new documentary by Patagonia takes a different approach.`\
+https://nytimes.com/2024/05/02/style/patagonia-documentary-sustainability.html
 
-**In the Arts, Is It Breaking Big, or Selling Out?**\
-`The boundaries between art, fashion and luxury seem to be melting away. That’s great for brands, but what about artists — and the art?`\
-https://nytimes.com/2024/05/02/arts/art-fashion-luxury-overlap.html
+**Homes for Sale in New York and New Jersey**\
+`This week’s properties are a five-bedroom in Port Washington and a`\
+https://nytimes.com/2024/05/02/realestate/homes-for-sale-in-new-york-and-new-jersey.html
 
-**Where Are Young Art Collectors and Museum Donors?**\
-`The art world is concerned about where the next generation of buyers and supporters is going to come from.`\
-https://nytimes.com/2024/05/02/arts/design/young-collectors-museum-donors.html
+**Homes for Sale in Manhattan and Brooklyn**\
+`This week’s properties are on Central Park West, in Chelsea and Bedford-Stuyvesant.`\
+https://nytimes.com/2024/05/02/realestate/homes-for-sale-in-manhattan-and-brooklyn.html
 
-**Gardens of Good and Evil**\
-`These spaces have historically been tied to exclusion and injustice, but we can cultivate them to be ethical and environmentally beneficial.`\
-https://nytimes.com/2024/05/02/opinion/gardening-privilege-ethics.html
+**When Your Neighbor Renovates, How Do You Protect Your Home?**\
+`A law exists to balance the interests of people who renovate their properties with the interests of their neighbors.`\
+https://nytimes.com/2024/05/02/realestate/renovations-next-door-damage.html
 
