@@ -1,3 +1,11 @@
+**Larry Young, Who Studied the Chemistry of Love, Dies at 56**\
+`Professor Young’s experiments with prairie voles revealed what poets never could: how the brain processes that fluttering feeling in the heart.`\
+https://nytimes.com/2024/05/02/science/larry-young-dead.html
+
+**Trump’s Contempt for His Court Is So Pervasive It Has Become Routine**\
+`With any other president, a contempt citation would mean banner headlines.`\
+https://nytimes.com/2024/05/01/opinion/trump-trial-contempt.html
+
 **Making flying cleaner**\
 `New guidelines attempt to make the aviation cleaner by relying on corn-based ethanol, but experts divided on the fuel’s environmental benefits.`\
 https://nytimes.com/2024/05/02/climate/jet-fuel-ethanol-flying.html
