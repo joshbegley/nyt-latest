@@ -1,3 +1,7 @@
+**Judge Grills U.S. and Google on Antitrust Claims**\
+`Judge Amit P. Mehta tried poking holes in the closing arguments of a landmark monopoly case as he weighs a ruling that could reshape tech.`\
+https://nytimes.com/2024/05/02/technology/judge-mehta-google-antitrust-closing-arguments.html
+
 **The Fed Is Eyeing the Job Market, but It’s Difficult to Read**\
 `Fed officials are watching labor trends as they contemplate when to cut rates. But different measures are telling different stories.`\
 https://nytimes.com/2024/05/02/business/economy/the-fed-job-market.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/02/dining/welcome-to-the-mushroomhouse.html
 **What Is ‘Queer Food’? A Conference Explores (and Tastes) Some Answers.**\
 `At Boston University, scholars, students and writers gathered to share thoughts on the role of gender and sexuality in the food space. Snacks were plentiful.`\
 https://nytimes.com/2024/05/02/dining/queer-food-conference.html
-
-**What to Watch This Weekend: A Supernatural Dramedy**\
-`“The Big Door Prize” returns for another season of charming small-town folks grappling with their fates.`\
-https://nytimes.com/2024/05/02/arts/television/big-door-prize.html
 

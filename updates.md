@@ -1,3 +1,7 @@
+**Judge Grills U.S. and Google on Antitrust Claims**\
+`Judge Amit P. Mehta tried poking holes in the closing arguments of a landmark monopoly case as he weighs a ruling that could reshape tech.`\
+https://nytimes.com/2024/05/02/technology/judge-mehta-google-antitrust-closing-arguments.html
+
 **The Fed Is Eyeing the Job Market, but It’s Difficult to Read**\
 `Fed officials are watching labor trends as they contemplate when to cut rates. But different measures are telling different stories.`\
 https://nytimes.com/2024/05/02/business/economy/the-fed-job-market.html
