@@ -1,3 +1,7 @@
+**The Fed Is Eyeing the Job Market, but It’s Difficult to Read**\
+`Fed officials are watching labor trends as they contemplate when to cut rates. But different measures are telling different stories.`\
+https://nytimes.com/2024/05/02/business/economy/the-fed-job-market.html
+
 **Standouts at NADA New York, the Fair for Up-and-Comers**\
 `The most exciting part of this fair for younger galleries is the chance for viewers to see art from out of town.`\
 https://nytimes.com/2024/05/02/arts/nada-new-york-fair-standouts.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/02/dining/queer-food-conference.html
 **What to Watch This Weekend: A Supernatural Dramedy**\
 `“The Big Door Prize” returns for another season of charming small-town folks grappling with their fates.`\
 https://nytimes.com/2024/05/02/arts/television/big-door-prize.html
-
-**‘Evil Does Not Exist’ Review: Nature vs. Nurture**\
-`Ryusuke Hamaguchi follows up his sublime drama “Drive My Car” with a parable about a rural Japanese village and the resort developer eyeing its land.`\
-https://nytimes.com/2024/05/02/movies/evil-does-not-exist-review-ryusuke-hamaguchi.html
 

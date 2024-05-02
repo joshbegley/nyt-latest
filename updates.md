@@ -1,3 +1,7 @@
+**The Fed Is Eyeing the Job Market, but It’s Difficult to Read**\
+`Fed officials are watching labor trends as they contemplate when to cut rates. But different measures are telling different stories.`\
+https://nytimes.com/2024/05/02/business/economy/the-fed-job-market.html
+
 **Standouts at NADA New York, the Fair for Up-and-Comers**\
 `The most exciting part of this fair for younger galleries is the chance for viewers to see art from out of town.`\
 https://nytimes.com/2024/05/02/arts/nada-new-york-fair-standouts.html
