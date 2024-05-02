@@ -1,3 +1,11 @@
+**The return of civilians to the northern part of Gaza is part of the cease-fire proposal.**\
+`By Adam Rasgon, Hwaida Saad, Edward Wong and Damien Cave`\
+https://nytimes.com/live/2024/05/02/world/israel-gaza-war-hamas/the-return-of-civilians-to-the-northern-part-of-gaza-is-part-of-the-cease-fire-proposal
+
+**02mideast-crisis**\
+`Hopes for Cease-Fire Remain, Despite Hamas’s Resistance to Latest Offer`\
+https://nytimes.com/live/2024/05/02/world/israel-gaza-war-hamas
+
 **Seth Meyers Mocks Donald Trump for Appearing to Nod Off in Court**\
 `“Does he even wear suits to court or just footie pajamas and a nightcap?” Meyers joked on Wednesday.`\
 https://nytimes.com/2024/05/02/arts/television/seth-meyers-donald-trump-sleep.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/02/briefing/campus-protest-arrest-britain-elections.
 **5 Takeaways From the Times Interview of Brittney Griner**\
 `Highlights from a Times Magazine profile of the basketball star.`\
 https://nytimes.com/2024/05/02/magazine/nyt-interview-brittney-griner.html
-
-**U.K. Conservatives Hold Their Breath: How Bad Will Local Elections Be?**\
-`Voters in England and Wales will choose local officials on Thursday. The results could demonstrate whether the governing party’s dire poll ratings are reliable, analysts say.`\
-https://nytimes.com/2024/05/02/world/europe/uk-local-elections-conservatives.html
-
-**U.S. and Israel Struggle With Clashing Visions on Ending Gaza War**\
-`The Biden administration wants to focus on a cease-fire and rebuilding Gaza, but Israel’s leader is pushing a new offensive.`\
-https://nytimes.com/2024/05/02/world/middleeast/us-israel-gaza-blinken-netanyahu.html
 

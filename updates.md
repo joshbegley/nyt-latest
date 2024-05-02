@@ -1,3 +1,11 @@
+**The return of civilians to the northern part of Gaza is part of the cease-fire proposal.**\
+`By Adam Rasgon, Hwaida Saad, Edward Wong and Damien Cave`\
+https://nytimes.com/live/2024/05/02/world/israel-gaza-war-hamas/the-return-of-civilians-to-the-northern-part-of-gaza-is-part-of-the-cease-fire-proposal
+
+**02mideast-crisis**\
+`Hopes for Cease-Fire Remain, Despite Hamas’s Resistance to Latest Offer`\
+https://nytimes.com/live/2024/05/02/world/israel-gaza-war-hamas
+
 **Seth Meyers Mocks Donald Trump for Appearing to Nod Off in Court**\
 `“Does he even wear suits to court or just footie pajamas and a nightcap?” Meyers joked on Wednesday.`\
 https://nytimes.com/2024/05/02/arts/television/seth-meyers-donald-trump-sleep.html
