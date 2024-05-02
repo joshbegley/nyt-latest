@@ -1,3 +1,15 @@
+**Alpine Is Trying, It Really Is, to Win in Formula 1**\
+`The team keeps making changes, to its cars and to its team, but continues to struggle.`\
+https://nytimes.com/2024/05/02/sports/autoracing/f1-alpine.html
+
+**Biden Calls Japan and India ‘Xenophobic’ in Defending U.S. Immigration**\
+`President Biden also referred to Russia and China, saying they “don’t want immigrants.” A spokesman said the president was trying to make a comment about America’s immigrant “DNA,” not insult other countries.`\
+https://nytimes.com/2024/05/02/us/politics/biden-japan-india-immigration.html
+
+**Andrettis Keep Fighting to Enter F1**\
+`The sport just rejected their offer to create the 11th team, but Michael Andretti said they were not going away.`\
+https://nytimes.com/2024/05/02/sports/autoracing/f1-andretti.html
+
 **The Miami Grand Prix Matures**\
 `The Miami race had a rocky first year, but organizers learned from their rookie mistakes.`\
 https://nytimes.com/2024/05/02/sports/autoracing/f1-miami-grand-prix-matures.html

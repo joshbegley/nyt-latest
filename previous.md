@@ -1,3 +1,15 @@
+**Alpine Is Trying, It Really Is, to Win in Formula 1**\
+`The team keeps making changes, to its cars and to its team, but continues to struggle.`\
+https://nytimes.com/2024/05/02/sports/autoracing/f1-alpine.html
+
+**Biden Calls Japan and India ‘Xenophobic’ in Defending U.S. Immigration**\
+`President Biden also referred to Russia and China, saying they “don’t want immigrants.” A spokesman said the president was trying to make a comment about America’s immigrant “DNA,” not insult other countries.`\
+https://nytimes.com/2024/05/02/us/politics/biden-japan-india-immigration.html
+
+**Andrettis Keep Fighting to Enter F1**\
+`The sport just rejected their offer to create the 11th team, but Michael Andretti said they were not going away.`\
+https://nytimes.com/2024/05/02/sports/autoracing/f1-andretti.html
+
 **The Miami Grand Prix Matures**\
 `The Miami race had a rocky first year, but organizers learned from their rookie mistakes.`\
 https://nytimes.com/2024/05/02/sports/autoracing/f1-miami-grand-prix-matures.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/02/technology/judge-mehta-google-antitrust-closing-a
 **The Fed Is Eyeing the Job Market, but It’s Difficult to Read**\
 `Fed officials are watching labor trends as they contemplate when to cut rates. But different measures are telling different stories.`\
 https://nytimes.com/2024/05/02/business/economy/the-fed-job-market.html
-
-**Standouts at NADA New York, the Fair for Up-and-Comers**\
-`The most exciting part of this fair for younger galleries is the chance for viewers to see art from out of town.`\
-https://nytimes.com/2024/05/02/arts/nada-new-york-fair-standouts.html
-
-**Peggy Mellon Hitchcock, Who Helped Timothy Leary Turn On, Dies at 90**\
-`She was an enthusiastic supporter of the counterculture. And when she suggested that her brothers rent Mr. Leary a mansion, she made psychedelic history.`\
-https://nytimes.com/2024/05/02/us/peggy-mellon-hitchcock-dead.html
-
-**Campus Protests Give Russia, China and Iran Fuel to Exploit U.S. Divide**\
-`America’s adversaries have mounted online campaigns to amplify the social and political conflicts over Gaza flaring at universities, researchers say.`\
-https://nytimes.com/2024/05/02/business/media/campus-protests-russia-china-iran-us.html
 
