@@ -1,3 +1,11 @@
+**Court Allows Case Challenging Segregation in N.Y.C. Schools to Advance**\
+`The lawsuit calls out “pernicious racial inequality” in the nation’s largest school district. If successful, it could lead to changes to gifted and selective programs, or even their elimination.`\
+https://nytimes.com/2024/05/02/nyregion/nyc-schools-segregation.html
+
+**Sony and Apollo Express Interest in Buying Paramount in $26 Billion Deal**\
+`Paramount has been exploring a potential deal for months, talking to suitors including Skydance, producer of “Top Gun: Maverick.”`\
+https://nytimes.com/2024/05/02/business/media/sony-and-apollo-paramount-deal.html
+
 **Judge Grills U.S. and Google on Antitrust Claims**\
 `Judge Amit P. Mehta tried poking holes in the closing arguments of a landmark monopoly case as he weighs a ruling that could reshape tech.`\
 https://nytimes.com/2024/05/02/technology/judge-mehta-google-antitrust-closing-arguments.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/02/world/americas/brazil-rain-floods.html
 **Advice to Protesters, and History’s Echoes**\
 `Responses to news and opinion articles about the campus protests. Also: Trump logic; pondering another civil war; lessons in the classroom.`\
 https://nytimes.com/2024/05/02/opinion/campus-protests-israel-gaza.html
-
-**Welcome to the Mushroomhouse**\
-`It’s steakhouse night in America — hold the steak.`\
-https://nytimes.com/2024/05/02/dining/welcome-to-the-mushroomhouse.html
-
-**What Is ‘Queer Food’? A Conference Explores (and Tastes) Some Answers.**\
-`At Boston University, scholars, students and writers gathered to share thoughts on the role of gender and sexuality in the food space. Snacks were plentiful.`\
-https://nytimes.com/2024/05/02/dining/queer-food-conference.html
 
