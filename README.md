@@ -1,3 +1,11 @@
+**Three Choices for World-Class Art and a Nosh**\
+`Think vegan lobster rolls and the Swizz Beats and Alicia Keys collection at Brooklyn Museum.`\
+https://nytimes.com/2024/05/02/dining/three-choices-for-world-class-art-and-a-nosh.html
+
+**Trump’s Team Paints Stormy Daniels’s Ex- Lawyer as a Shakedown Artist**\
+`During his testimony in the former president’s criminal trial, Keith Davidson described a lucrative legal niche keeping embarrassing stories out of print.`\
+https://nytimes.com/2024/05/02/nyregion/trump-trial-keith-davidson-stormy-daniels.html
+
 **Former Pennsylvania Nurse Gets Life Sentence in Insulin Deaths**\
 `Heather Pressdee, 41, admitted to trying to kill 19 patients by administering excessive amounts of insulin, prosecutors said. She pleaded guilty to three counts of murder and other charges.`\
 https://nytimes.com/2024/05/02/us/pennsylvania-nurse-insulin-pleads-guilty.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/02/arts/design/getty-museum-bronze-greek-statue.html
 **The lead negotiator for Hamas is the deputy to Yahya Sinwar, the group’s leader in Gaza.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/05/02/world/israel-gaza-war-hamas/the-lead-negotiator-for-hamas-is-the-deputy-to-yahya-sinwar-the-groups-leader-in-gaza
-
-**‘Baby Reindeer’: What to Know About the True-ish Netflix Hit**\
-`The mini-series, based on the star’s experiences, has viewers wondering how much of it is real. Here’s the back story.`\
-https://nytimes.com/2024/05/02/arts/television/baby-reindeer-true-story.html
-
-**Where Protesters on U.S. Campuses Have Been Arrested or Detained**\
-`A crackdown on demonstrators at Columbia University in New York spawned a wave of activism at universities across the country, with more than 2,000 arrests or detainments.`\
-https://nytimes.com/interactive/2024/us/pro-palestinian-college-protests-encampments.html
 
