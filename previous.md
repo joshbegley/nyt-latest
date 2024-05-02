@@ -1,3 +1,27 @@
+**Trump Trial to Resume With Stormy Daniels’s Lawyer on the Stand**\
+`Earlier testimony by the porn star’s lawyer, Keith Davidson, offered a rare window into the behind-the-scenes negotiations to buy his client’s silence before the 2016 election.`\
+https://nytimes.com/2024/05/02/nyregion/trump-trial-keith-davidson-testimony.html
+
+**In an Online World, a New Generation of Protesters Chooses Anonymity**\
+`Doxxing and other consequences have led many student protesters on college campuses to hide their identities. That choice has been polarizing.`\
+https://nytimes.com/2024/05/02/nyregion/college-campus-protests-anonymity.html
+
+**Underwear on a Statue**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2024/05/02/learning/underwear-on-a-statue.html
+
+**Today’s Wordle Review No. 1,048**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/02/crosswords/wordle-review.html
+
+**The Connections Companion No. 326**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/02/crosswords/connections-companion.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/05/02/crosswords/spelling-bee-forum.html
+
 **The return of civilians to the northern part of Gaza is part of the cease-fire proposal.**\
 `By Adam Rasgon, Hwaida Saad, Edward Wong and Damien Cave`\
 https://nytimes.com/live/2024/05/02/world/israel-gaza-war-hamas/the-return-of-civilians-to-the-northern-part-of-gaza-is-part-of-the-cease-fire-proposal
@@ -13,28 +37,4 @@ https://nytimes.com/2024/05/02/arts/television/seth-meyers-donald-trump-sleep.ht
 **Corrections: May 2, 2024**\
 `Corrections that appeared in print on Thursday, May 2, 2024.`\
 https://nytimes.com/2024/05/02/pageoneplus/corrections-may-2-2024.html
-
-**Word of the Day: rapport**\
-`This word has appeared in 111 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/05/02/learning/word-of-the-day-rapport.html
-
-**Menendez Lawyers Cite ‘Traumatic’ History to Explain His Cash Stockpile**\
-`Senator Robert Menendez’s attorneys want a psychiatrist to testify at his corruption trial about the impact of his father’s death by suicide. Prosecutors are objecting.`\
-https://nytimes.com/2024/05/02/nyregion/menendez-psychiatrist-cash-stockpile.html
-
-**Quotation of the Day: More Writers Imprisoned Worldwide, Report Finds**\
-`Quotation of the Day for Thursday, May 2, 2024.`\
-https://nytimes.com/2024/05/02/pageoneplus/quotation-of-the-day-more-writers-imprisoned-worldwide-report-finds.html
-
-**The Cruel Spectacle of British Asylum Policy**\
-`The plan to deport asylum seekers to Rwanda promises to be an exercise in cruelty.`\
-https://nytimes.com/2024/05/02/opinion/immigration-britain-rwanda.html
-
-**Thursday Briefing**\
-`Arrests at U.S. campus protests.`\
-https://nytimes.com/2024/05/02/briefing/campus-protest-arrest-britain-elections.html
-
-**5 Takeaways From the Times Interview of Brittney Griner**\
-`Highlights from a Times Magazine profile of the basketball star.`\
-https://nytimes.com/2024/05/02/magazine/nyt-interview-brittney-griner.html
 
