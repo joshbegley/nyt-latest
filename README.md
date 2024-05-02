@@ -1,3 +1,7 @@
+**Robert Oxnam, China Scholar Beset by Multiple Personalities, Dies at 81**\
+`Through psychotherapy, recounted in a memoir, he learned that he had 11 personalities, or fractured parts of his identity. One of them told of childhood abuse.`\
+https://nytimes.com/2024/05/02/health/robert-b-oxnam-dead.html
+
 **Court Says Italy Is Rightful Owner of Bronze Held by Getty Museum**\
 `The European Court of Human Rights has found that Italy’s claims to a contested Greek statue are legitimate. But the museum says its continued possession is appropriate and lawful.`\
 https://nytimes.com/2024/05/02/arts/design/getty-museum-bronze-greek-statue.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/02/us/politics/biden-japan-india-immigration.html
 **Andrettis Keep Fighting to Enter F1**\
 `The sport just rejected their offer to create the 11th team, but Michael Andretti said they were not going away.`\
 https://nytimes.com/2024/05/02/sports/autoracing/f1-andretti.html
-
-**The Miami Grand Prix Matures**\
-`The Miami race had a rocky first year, but organizers learned from their rookie mistakes.`\
-https://nytimes.com/2024/05/02/sports/autoracing/f1-miami-grand-prix-matures.html
 
