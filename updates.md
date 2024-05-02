@@ -1,3 +1,11 @@
+**Former Police Officer Who Protected Sex Traffickers Gets 3-Year Sentence**\
+`Wayne Peiffer, who was an officer in Brewster, N.Y., warned a sex trafficking organization about law enforcement activity in exchange for sexual services, federal prosecutors said.`\
+https://nytimes.com/2024/05/02/nyregion/police-officer-sex-trafficking-sentence.html
+
+**Frank Wakefield, Who Expanded the Mandolin’s Range, Dies at 89**\
+`A bluegrass innovator, he recorded numerous albums as a leader, and his list of collaborators included both Leonard Bernstein and Jerry Garcia.`\
+https://nytimes.com/2024/05/02/arts/music/frank-wakefield-dead.html
+
 **Alpine Is Trying, It Really Is, to Win in Formula 1**\
 `The team keeps making changes, to its cars and to its team, but continues to struggle.`\
 https://nytimes.com/2024/05/02/sports/autoracing/f1-alpine.html

@@ -1,3 +1,11 @@
+**Former Police Officer Who Protected Sex Traffickers Gets 3-Year Sentence**\
+`Wayne Peiffer, who was an officer in Brewster, N.Y., warned a sex trafficking organization about law enforcement activity in exchange for sexual services, federal prosecutors said.`\
+https://nytimes.com/2024/05/02/nyregion/police-officer-sex-trafficking-sentence.html
+
+**Frank Wakefield, Who Expanded the Mandolin’s Range, Dies at 89**\
+`A bluegrass innovator, he recorded numerous albums as a leader, and his list of collaborators included both Leonard Bernstein and Jerry Garcia.`\
+https://nytimes.com/2024/05/02/arts/music/frank-wakefield-dead.html
+
 **Alpine Is Trying, It Really Is, to Win in Formula 1**\
 `The team keeps making changes, to its cars and to its team, but continues to struggle.`\
 https://nytimes.com/2024/05/02/sports/autoracing/f1-alpine.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/02/nyregion/nyc-schools-segregation.html
 **Sony and Apollo Express Interest in Buying Paramount in $26 Billion Deal**\
 `Paramount has been exploring a potential deal for months, talking to suitors including Skydance, producer of “Top Gun: Maverick.”`\
 https://nytimes.com/2024/05/02/business/media/sony-apollo-paramount-deal.html
-
-**Judge Grills U.S. and Google on Antitrust Claims**\
-`Judge Amit P. Mehta tried poking holes in the closing arguments of a landmark monopoly case as he weighs a ruling that could reshape tech.`\
-https://nytimes.com/2024/05/02/technology/judge-mehta-google-antitrust-closing-arguments.html
-
-**The Fed Is Eyeing the Job Market, but It’s Difficult to Read**\
-`Fed officials are watching labor trends as they contemplate when to cut rates. But different measures are telling different stories.`\
-https://nytimes.com/2024/05/02/business/economy/the-fed-job-market.html
 
