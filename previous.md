@@ -1,3 +1,11 @@
+**Tapes Take Trump Jurors Into the Heart of Hush-Money Deals: 5 Takeaways**\
+`Stormy Daniels’s former lawyer faced a tough cross-examination as Donald J. Trump’s team tried to paint him as a shakedown artist.`\
+https://nytimes.com/2024/05/02/nyregion/trump-hush-money-stormy-daniels-takeaways.html
+
+**Woman Who Sold Misbranded Ozempic on TikTok Faces Smuggling Charge**\
+`Federal prosecutors said the woman from Shirley, N.Y., was not licensed to administer medication and was selling drugs brought from abroad that were not authorized by the Food and Drug Administration.`\
+https://nytimes.com/2024/05/02/nyregion/new-york-woman-charged-ozempic-tiktok.html
+
 **Hopes rise among relatives of hostages as signs of progress in talks are reported.**\
 `By Johnatan Reiss`\
 https://nytimes.com/live/2024/05/02/world/israel-gaza-war-hamas/hopes-rise-among-relatives-of-hostages-as-signs-of-progress-in-talks-are-reported
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/02/us/politics/antisemitism-jews-republicans-democra
 **Biden Said the Right Thing on Campus Protests. Will It Matter?**\
 `The middle of the road may be the correct place to be, but it’s never a popular spot.`\
 https://nytimes.com/2024/05/01/opinion/biden-campus-protests.html
-
-**The Turkish president has strongly criticized the Israeli bombardment of Gaza.**\
-`The Turkish Trade Ministry said all imports and exports with Israel would pause until an adequate supply of aid was allowed into Gaza.`\
-https://nytimes.com/live/2024/05/02/world/israel-gaza-war-hamas/turkey-israel-trade-ties
-
-**Locks, Chains, Diversions: How Columbia Students Seized Hamilton Hall**\
-`Some of those arrested during the pro-Palestinian protest were outsiders, not students or others who appeared to be affiliated with the school, according to an analysis of Police Department data.`\
-https://nytimes.com/2024/05/02/nyregion/columbia-students-hamilton-hall.html
 

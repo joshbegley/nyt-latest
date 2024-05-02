@@ -1,3 +1,11 @@
+**Tapes Take Trump Jurors Into the Heart of Hush-Money Deals: 5 Takeaways**\
+`Stormy Daniels’s former lawyer faced a tough cross-examination as Donald J. Trump’s team tried to paint him as a shakedown artist.`\
+https://nytimes.com/2024/05/02/nyregion/trump-hush-money-stormy-daniels-takeaways.html
+
+**Woman Who Sold Misbranded Ozempic on TikTok Faces Smuggling Charge**\
+`Federal prosecutors said the woman from Shirley, N.Y., was not licensed to administer medication and was selling drugs brought from abroad that were not authorized by the Food and Drug Administration.`\
+https://nytimes.com/2024/05/02/nyregion/new-york-woman-charged-ozempic-tiktok.html
+
 **Hopes rise among relatives of hostages as signs of progress in talks are reported.**\
 `By Johnatan Reiss`\
 https://nytimes.com/live/2024/05/02/world/israel-gaza-war-hamas/hopes-rise-among-relatives-of-hostages-as-signs-of-progress-in-talks-are-reported
