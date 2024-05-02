@@ -1,3 +1,19 @@
+**U.N. report says rebuilding all the homes destroyed in Gaza could take 80 years.**\
+`The projection didn’t take into account the time it would take to repair the homes that were damaged but not destroyed.`\
+https://nytimes.com/2024/05/02/world/middleeast/gaza-homes-rebuild-un-report.html
+
+**Many protesters arrested in New York were not students, faculty or staff. But are they ‘outside agitators’?**\
+`By Chelsia Rose Marcius and Sharon Otterman`\
+https://nytimes.com/live/2024/05/02/us/ucla-protests-college-campus/how-many-protesters-arrested-in-new-york-were-outside-agitators
+
+**Why the Protests Help Trump**\
+`The excesses of social protest movements can play into the hands of candidates who promise to restore order.`\
+https://nytimes.com/2024/05/02/opinion/student-protests-trump.html
+
+**The Peculiar Persistence of Trump-stalgia**\
+`Are you better off than you were four years ago? Yes.`\
+https://nytimes.com/2024/05/02/opinion/trump-biden-economy.html
+
 **The Tawdry Tabloid World in Which Trump Lived**\
 `Jurors are forced to listen to a swamp of sleazy evidence.`\
 https://nytimes.com/2024/05/01/opinion/trump-trial-tabloid.html
