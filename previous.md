@@ -1,3 +1,7 @@
+**Locks, Chains, Diversions: How Columbia Students Seized Hamilton Hall**\
+`Some of those arrested during the pro-Palestinian protest were outsiders, not students or others who appeared to be affiliated with the school, according to an analysis of Police Department data.`\
+https://nytimes.com/2024/05/02/nyregion/columbia-students-hamilton-hall.html
+
 **What to See in N.Y.C. Galleries in May**\
 `Martha Schwendener covers Tamiko Nishimura’s arresting black-and-white photographs, Tanya Merrill’s playful portraits and Enrique Martínez Celaya’s link to a Spanish master.`\
 https://nytimes.com/2024/05/02/arts/design/what-to-see-nyc-galleries-may.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/02/science/larry-young-dead.html
 **Trump’s Contempt for His Court Is So Pervasive It Has Become Routine**\
 `With any other president, a contempt citation would mean banner headlines.`\
 https://nytimes.com/2024/05/01/opinion/trump-trial-contempt.html
-
-**Making flying cleaner**\
-`New guidelines attempt to make the aviation cleaner by relying on corn-based ethanol, but experts divided on the fuel’s environmental benefits.`\
-https://nytimes.com/2024/05/02/climate/jet-fuel-ethanol-flying.html
 

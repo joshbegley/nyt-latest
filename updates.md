@@ -1,3 +1,7 @@
+**Locks, Chains, Diversions: How Columbia Students Seized Hamilton Hall**\
+`Some of those arrested during the pro-Palestinian protest were outsiders, not students or others who appeared to be affiliated with the school, according to an analysis of Police Department data.`\
+https://nytimes.com/2024/05/02/nyregion/columbia-students-hamilton-hall.html
+
 **Flooding in East Texas Leads to Evacuation as More Rain Is Expected**\
 `Over half a foot of rain fell across portions of East Texas on Thursday morning.`\
 https://nytimes.com/2024/05/02/us/texas-rain-flooding-polk-county-houston.html
