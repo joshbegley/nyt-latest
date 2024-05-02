@@ -1,3 +1,11 @@
+**Court Says Italy Is Rightful Owner of Bronze Held by Getty Museum**\
+`The European Court of Human Rights has found that Italy’s claims to a contested Greek statue are legitimate. But the museum says its continued possession is appropriate and lawful.`\
+https://nytimes.com/2024/05/02/arts/design/getty-museum-bronze-greek-statue.html
+
+**The lead negotiator for Hamas is the deputy to Yahya Sinwar, the group’s leader in Gaza.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/05/02/world/israel-gaza-war-hamas/the-lead-negotiator-for-hamas-is-the-deputy-to-yahya-sinwar-the-groups-leader-in-gaza
+
 **‘Baby Reindeer’: What to Know About the True-ish Netflix Hit**\
 `The mini-series, based on the star’s experiences, has viewers wondering how much of it is real. Here’s the back story.`\
 https://nytimes.com/2024/05/02/arts/television/baby-reindeer-true-story.html
