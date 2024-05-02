@@ -1,3 +1,7 @@
+**‘Baby Reindeer’: What to Know About the True-ish Netflix Hit**\
+`The mini-series, based on the star’s experiences, has viewers wondering how much of it is real. Here’s the back story.`\
+https://nytimes.com/2024/05/02/arts/television/baby-reindeer-true-story.html
+
 **Where Protesters on U.S. Campuses Have Been Arrested or Detained**\
 `A crackdown on demonstrators at Columbia University in New York spawned a wave of activism at universities across the country, with more than 2,000 arrests or detainments.`\
 https://nytimes.com/interactive/2024/us/pro-palestinian-college-protests-encampments.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/02/style/hate-reads-party.html
 **At Trump’s Trial, a Decade’s Worth of Celebrity Sleaze Is Exhumed**\
 `Donald J. Trump’s lawyers tried to paint Keith Davidson, the man who helped broker a hush-money payment for Stormy Daniels, as a specialist in extracting money from the famous.`\
 https://nytimes.com/2024/05/02/nyregion/trump-trial-celebrity-hush-money.html
-
-**Court Allows Case Challenging Segregation in N.Y.C. Schools to Advance**\
-`The lawsuit calls out “pernicious racial inequality” in the nation’s largest school district. If successful, it could lead to changes to gifted and selective programs, or even their elimination.`\
-https://nytimes.com/2024/05/02/nyregion/nyc-schools-segregation.html
 

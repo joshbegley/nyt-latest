@@ -1,3 +1,7 @@
+**‘Baby Reindeer’: What to Know About the True-ish Netflix Hit**\
+`The mini-series, based on the star’s experiences, has viewers wondering how much of it is real. Here’s the back story.`\
+https://nytimes.com/2024/05/02/arts/television/baby-reindeer-true-story.html
+
 **Where Protesters on U.S. Campuses Have Been Arrested or Detained**\
 `A crackdown on demonstrators at Columbia University in New York spawned a wave of activism at universities across the country, with more than 2,000 arrests or detainments.`\
 https://nytimes.com/interactive/2024/us/pro-palestinian-college-protests-encampments.html
