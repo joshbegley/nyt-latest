@@ -1,3 +1,7 @@
+**‘Slow’ Review: We Don’t Have to Take Our Clothes Off**\
+`The second feature by the Lithuanian filmmaker Marija Kavtaradze asks what a relationship looks like when you factor out the sex.`\
+https://nytimes.com/2024/05/02/movies/slow-review.html
+
 **02trump-trial**\
 `Live Updates: Trump Trial Judge Reviews More Potential Gag Order Violations`\
 https://nytimes.com/live/2024/05/02/nyregion/trump-hush-money-trial

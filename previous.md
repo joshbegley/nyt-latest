@@ -1,3 +1,7 @@
+**‘Slow’ Review: We Don’t Have to Take Our Clothes Off**\
+`The second feature by the Lithuanian filmmaker Marija Kavtaradze asks what a relationship looks like when you factor out the sex.`\
+https://nytimes.com/2024/05/02/movies/slow-review.html
+
 **Global Growth Forecast Is Lifted but Risks Loom, O.E.C.D. Says**\
 `The global economy has proved resilient and inflation has declined, but any widening of the conflict in the Middle East could increase price pressures and dampen growth.`\
 https://nytimes.com/2024/05/02/business/global-economy-inflation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/02/business/dealbook/fed-powell-interest-rates.html
 **Protests Swell in Georgia Over ‘Foreign Interests’ Bill**\
 `The authorities in the Eastern European nation said security forces had used water cannons and tear gas as demonstrators took to the streets over divisive legislation advanced by Parliament.`\
 https://nytimes.com/2024/05/02/world/europe/georgia-protests.html
-
-**‘Catching Fire’ Review: How the Stones’ Muse Rolled**\
-`Subtitled “The Story of Anita Pallenberg,” this documentary gives the life of the actress and model a thorough downer of a treatment.`\
-https://nytimes.com/2024/05/02/movies/catching-fire-review-how-the-stones-muse-rolled.html
 
