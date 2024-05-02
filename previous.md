@@ -1,3 +1,7 @@
+**Prosecutors Ask Judge to Hold Trump in Contempt for a Second Time**\
+`Justice Juan M. Merchan will consider punishing Donald J. Trump for recent attacks on witnesses and jurors, some of which occurred outside the courtroom.`\
+https://nytimes.com/2024/05/02/nyregion/trump-contempt-gag-order-trial.html
+
 **After Large Rallies, Trump Is Greeted at Courthouse by a Single Fan**\
 `Donald J. Trump has complained that his supporters have not been allowed closer to the Lower Manhattan courthouse.`\
 https://nytimes.com/2024/05/02/nyregion/trump-trial-supporters.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/02/business/dave-busters-arcade-betting.html
 **Michael Cohen Hasn’t Testified at Trump’s Trial. But He’s Been a Focus.**\
 `It is not Donald J. Trump who has come in for sustained criticism from witnesses. It is his former fixer, who paid the hush money at the heart of the case.`\
 https://nytimes.com/2024/05/02/nyregion/michael-cohen-trump-trial.html
-
-**‘Jeanne du Barry’ Review: A Versailles Scandal at Its Snooziest**\
-`Maïwenn wrote, directed and stars in the film, playing opposite Johnny Depp, who is Louis XV. Though he declares he loves her, their chemistry is weak.`\
-https://nytimes.com/2024/05/02/movies/jeanne-du-barry-review.html
 

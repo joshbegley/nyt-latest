@@ -1,3 +1,7 @@
+**Prosecutors Ask Judge to Hold Trump in Contempt for a Second Time**\
+`Justice Juan M. Merchan will consider punishing Donald J. Trump for recent attacks on witnesses and jurors, some of which occurred outside the courtroom.`\
+https://nytimes.com/2024/05/02/nyregion/trump-contempt-gag-order-trial.html
+
 **After Large Rallies, Trump Is Greeted at Courthouse by a Single Fan**\
 `Donald J. Trump has complained that his supporters have not been allowed closer to the Lower Manhattan courthouse.`\
 https://nytimes.com/2024/05/02/nyregion/trump-trial-supporters.html
