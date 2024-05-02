@@ -1,3 +1,7 @@
+**Biden Denounces Violence on Campus, Breaking Silence After Rash of Arrests**\
+`President Biden defended the right to dissent but made clear that he believed too many of the demonstrations had gone beyond the bounds of free speech.`\
+https://nytimes.com/2024/05/02/us/politics/biden-campus-protests.html
+
 **Can a ‘Not Charlotte’ Recipe Revive a Region?**\
 `North Carolina’s Triad was built on tobacco, textiles and furniture. Now it’s trying to forge a new economy from more highly skilled manufacturing.`\
 https://nytimes.com/2024/05/02/business/economy/north-carolina-triad-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/02/science/orangutan-wound-plant-treatment.html
 **What’s Going On in This Graph? | May 8, 2024**\
 `How have average summer land temperatures across the Northern Hemisphere changed over the past 72 years?`\
 https://nytimes.com/2024/05/02/learning/whats-going-on-in-this-graph-may-8-2024.html
-
-**The Army Sees Mortars as Safe. Troops Report Signs of Brain Injury.**\
-`Soldiers exposed to thousands of low-level blasts from firing weapons like mortars say that they wind up with debilitating symptoms of traumatic brain injury — but no diagnosis.`\
-https://nytimes.com/2024/05/02/us/blast-mortar-brain-injury-military.html
 
