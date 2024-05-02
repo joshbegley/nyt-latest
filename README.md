@@ -1,3 +1,19 @@
+**Universal Music Artists Will Return to TikTok**\
+`The two companies reached a new licensing deal, ending a three-month stalemate that kept some of pop’s biggest stars off the platform.`\
+https://nytimes.com/2024/05/02/arts/music/tiktok-universal-music-deal.html
+
+**Why Yes-or-No Questions on Abortion Rights Could Be a Key to 2024**\
+`In states that will help decide control of the White House and Congress, Democrats are campaigning furiously alongside ballot measures to protect abortion rights, putting Republicans on their heels.`\
+https://nytimes.com/2024/05/02/us/politics/abortion-ballot-measures-2024.html
+
+**Peloton Chief Executive Steps Down as Company Cuts 15% of Staff**\
+`Barry McCarthy took over as C.E.O. in February 2022 to revive Peloton from its late-pandemic slump, but the company has struggled to become profitable.`\
+https://nytimes.com/2024/05/02/business/peloton-barry-mccarthy-layoffs.html
+
+**Patti LuPone and Mia Farrow to Star in ‘The Roommate’ on Broadway**\
+`The production is to begin performances Aug. 29 at the Booth Theater.`\
+https://nytimes.com/2024/05/02/theater/patti-lupone-mia-farrow-broadway.html
+
 **‘Slow’ Review: We Don’t Have to Take Our Clothes Off**\
 `The second feature by the Lithuanian filmmaker Marija Kavtaradze asks what a relationship looks like when you factor out the sex.`\
 https://nytimes.com/2024/05/02/movies/slow-review.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/05/02/movies/jeanne-du-barry-review.html
 **What Is a Song?**\
 `Is it simply the music flowing out of your earphones? According to the law, the answer is a bit more complicated.`\
 https://nytimes.com/2024/05/02/arts/music/song-copyright-sheet-music-ed-sheeran-marvin-gaye.html
-
-**After a Long Stretch of Darkness, the Bay Bridge Lights Are Returning**\
-`The Bay Lights installation, spanning 1.8 miles on the region’s workhorse bridge, has been off since March 2023. A bigger version will take its place.`\
-https://nytimes.com/2024/05/02/us/bay-bridge-lights.html
-
-**02trump-trial**\
-`Live Updates: Trump Trial Judge Reviews More Potential Gag Order Violations`\
-https://nytimes.com/live/2024/05/02/nyregion/trump-hush-money-trial
-
-**What Will It Take for the Fed to Lower Rates?**\
-`Stubbornly high inflation has scrambled the central bank’s outlook. Wall Street is now shifting focus to Friday’s jobs report for clues on its next move.`\
-https://nytimes.com/2024/05/02/business/dealbook/fed-powell-interest-rates.html
-
-**Protests Swell in Georgia Over ‘Foreign Interests’ Bill**\
-`The authorities in the Eastern European nation said security forces had used water cannons and tear gas as demonstrators took to the streets over divisive legislation advanced by Parliament.`\
-https://nytimes.com/2024/05/02/world/europe/georgia-protests.html
 
