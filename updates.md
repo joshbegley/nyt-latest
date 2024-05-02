@@ -1,3 +1,7 @@
+**Thursday Briefing**\
+`Arrests at U.S. campus protests.`\
+https://nytimes.com/2024/05/02/briefing/campus-protest-arrest-britain-elections.html
+
 **5 Takeaways From the Times Interview of Brittney Griner**\
 `Highlights from a Times Magazine profile of the basketball star.`\
 https://nytimes.com/2024/05/02/magazine/nyt-interview-brittney-griner.html
