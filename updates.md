@@ -1,3 +1,7 @@
+**‘Jeanne du Barry’ Review: A Versailles Scandal at Its Snooziest**\
+`Maïwenn wrote, directed and stars in the film, playing opposite Johnny Depp, who is Louis XV. Though he declares he loves her, their chemistry is weak.`\
+https://nytimes.com/2024/05/02/movies/jeanne-du-barry-review.html
+
 **What Is a Song?**\
 `Is it simply the music flowing out of your earphones? According to the law, the answer is a bit more complicated.`\
 https://nytimes.com/2024/05/02/arts/music/song-copyright-sheet-music-ed-sheeran-marvin-gaye.html
