@@ -1,3 +1,7 @@
+**‘Jeanne du Barry’ Review: A Versailles Scandal at Its Snooziest**\
+`Maïwenn wrote, directed and stars in the film, playing opposite Johnny Depp, who is Louis XV. Though he declares he loves her, their chemistry is weak.`\
+https://nytimes.com/2024/05/02/movies/jeanne-du-barry-review.html
+
 **What Is a Song?**\
 `Is it simply the music flowing out of your earphones? According to the law, the answer is a bit more complicated.`\
 https://nytimes.com/2024/05/02/arts/music/song-copyright-sheet-music-ed-sheeran-marvin-gaye.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/02/podcasts/the-daily/biden-marijuana.html
 **Inside the U.C.L.A. Protests, and Trump Holds Rallies Amid Trial**\
 `Plus, tracking killer asteroids.`\
 https://nytimes.com/2024/05/02/podcasts/inside-the-ucla-protests-and-trump-holds-rallies-amid-trial.html
-
-**Body of Fifth Victim in Baltimore Bridge Collapse Is Recovered**\
-`The body of Miguel Angel Luna Gonzalez, one of the six workers who went missing in the collapse, was recovered on Wednesday. One more remains unaccounted for.`\
-https://nytimes.com/2024/05/02/us/baltimore-bridge-collapse-victim-found.html
 
