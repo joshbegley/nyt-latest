@@ -1,3 +1,7 @@
+**2 Players Sue Philharmonic, Saying They Were Wrongfully Suspended**\
+`Matthew Muckey and Liang Wang said they were sidelined without cause by the New York Philharmonic after a recent magazine article detailed allegations of misconduct against them.`\
+https://nytimes.com/2024/05/01/arts/music/players-ny-philharmonic.html
+
 **Israeli settlers attacked aid trucks headed to Gaza, Jordan says.**\
 `By Anushka Patil and Johnatan Reiss`\
 https://nytimes.com/live/2024/05/01/world/israel-gaza-war-hamas/israeli-settlers-attacked-aid-trucks-headed-to-gaza-jordan-says
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/01/us/politics/senate-democrats-marijuana-biden.html
 **Republicans Call on NPR’s C.E.O. to Testify About Political Bias Accusations**\
 `Katherine Maher, the radio network’s new chief executive, has been in the spotlight since an editor published an essay accusing the organization of leftward-leaning bias.`\
 https://nytimes.com/2024/05/01/business/media/npr-republican-bias-ceo-katherine-maher.html
-
-**Dan Schneider Sues ‘Quiet on Set’ Creators, Saying Series Defamed Him**\
-`In the suit, lawyers for the former Nickelodeon producer called the documentary a “hit job” that had falsely painted him as a “child sexual abuser.”`\
-https://nytimes.com/2024/05/01/arts/television/dan-schneider-quiet-on-set-defamation.html
 
