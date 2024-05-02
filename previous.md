@@ -1,3 +1,7 @@
+**‘Catching Fire’ Review: How the Stones’ Muse Rolled**\
+`Subtitled “The Story of Anita Pallenberg,” this documentary gives the life of the actress and model a thorough downer of a treatment.`\
+https://nytimes.com/2024/05/02/movies/catching-fire-review-how-the-stones-muse-rolled.html
+
 **How Technology Has Outpaced the Law**\
 `Abortions in the U.S. have risen slightly since Roe was struck down. One factor: pills ordered online.`\
 https://nytimes.com/2024/05/02/briefing/abortion-pills-online.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/05/02/realestate/brooklyn-one-bedroom-home-
 **Kelli O’Hara’s Ties to Opera, From ‘The Gilded Age’ to the Met Stage**\
 `O’Hara is an unusual kind of triple threat: a star of Broadway and television who is appearing at the Metropolitan Opera in a revival of “The Hours.”`\
 https://nytimes.com/2024/05/02/arts/television/kelli-ohara-met-opera.html
-
-**Biden Will Expand Two National Monuments in California**\
-`As part of his plan to conserve the nation’s land and waters, Mr. Biden is enlarging the San Gabriel Mountains National Monument and the Berryessa Snow Mountain National Monument.`\
-https://nytimes.com/2024/05/02/climate/biden-national-monuments-california-expansion.html
 

@@ -1,3 +1,7 @@
+**‘Catching Fire’ Review: How the Stones’ Muse Rolled**\
+`Subtitled “The Story of Anita Pallenberg,” this documentary gives the life of the actress and model a thorough downer of a treatment.`\
+https://nytimes.com/2024/05/02/movies/catching-fire-review-how-the-stones-muse-rolled.html
+
 **How Technology Has Outpaced the Law**\
 `Abortions in the U.S. have risen slightly since Roe was struck down. One factor: pills ordered online.`\
 https://nytimes.com/2024/05/02/briefing/abortion-pills-online.html
