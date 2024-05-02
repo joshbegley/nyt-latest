@@ -1,3 +1,7 @@
+**What to Watch This Weekend: A Supernatural Dramedy**\
+`“The Big Door Prize” returns for another season of charming small-town folks grappling with their fates.`\
+https://nytimes.com/2024/05/02/arts/television/big-door-prize.html
+
 **‘Evil Does Not Exist’ Review: Nature vs. Nurture**\
 `Ryusuke Hamaguchi follows up his sublime drama “Drive My Car” with a parable about a rural Japanese village and the resort developer eyeing its land.`\
 https://nytimes.com/2024/05/02/movies/evil-does-not-exist-review-ryusuke-hamaguchi.html

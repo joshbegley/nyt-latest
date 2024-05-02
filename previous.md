@@ -1,3 +1,7 @@
+**What to Watch This Weekend: A Supernatural Dramedy**\
+`“The Big Door Prize” returns for another season of charming small-town folks grappling with their fates.`\
+https://nytimes.com/2024/05/02/arts/television/big-door-prize.html
+
 **‘Evil Does Not Exist’ Review: Nature vs. Nurture**\
 `Ryusuke Hamaguchi follows up his sublime drama “Drive My Car” with a parable about a rural Japanese village and the resort developer eyeing its land.`\
 https://nytimes.com/2024/05/02/movies/evil-does-not-exist-review-ryusuke-hamaguchi.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/02/opinion/chris-christie-republicans-trump.html
 **Watch the Eta Aquarid Meteor Shower Reach Its Peak**\
 `The event will be active when the moon is just a sliver in the sky, but it is less easy to see in the Northern Hemisphere than other meteor showers.`\
 https://nytimes.com/2024/05/02/science/eta-aquarid-meteor-shower-time-peak.html
-
-**In the Bard’s Hometown, a Challenge for New Theater Leaders**\
-`The Royal Shakespeare Company’s co-artistic directors have put together a challenging debut season. But many visitors come to Stratford-upon-Avon seeking something more traditional.`\
-https://nytimes.com/2024/05/02/theater/royal-shakespeare-company-new-leaders.html
 
