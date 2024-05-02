@@ -1,3 +1,11 @@
+**Former Pennsylvania Nurse Gets Life Sentence in Insulin Deaths**\
+`Heather Pressdee, 41, admitted to trying to kill 19 patients by administering excessive amounts of insulin, prosecutors said. She pleaded guilty to three counts of murder and other charges.`\
+https://nytimes.com/2024/05/02/us/pennsylvania-nurse-insulin-pleads-guilty.html
+
+**Flooding in East Texas Leads to Evacuations; More Rain Is Expected**\
+`Over half a foot of rain fell across portions of East Texas on Thursday morning.`\
+https://nytimes.com/2024/05/02/us/texas-rain-flooding-polk-county-houston.html
+
 **Larry Young, Who Studied the Chemistry of Love, Dies at 56**\
 `Professor Young’s experiments with prairie voles revealed what poets never could: how the brain processes that fluttering feeling in the heart.`\
 https://nytimes.com/2024/05/02/science/larry-young-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/02/arts/television/baby-reindeer-true-story.html
 **Where Protesters on U.S. Campuses Have Been Arrested or Detained**\
 `A crackdown on demonstrators at Columbia University in New York spawned a wave of activism at universities across the country, with more than 2,000 arrests or detainments.`\
 https://nytimes.com/interactive/2024/us/pro-palestinian-college-protests-encampments.html
-
-**Former Police Officer Who Protected Sex Traffickers Gets 3-Year Sentence**\
-`Wayne Peiffer, who was an officer in Brewster, N.Y., warned a sex trafficking organization about law enforcement activity in exchange for sexual services, federal prosecutors said.`\
-https://nytimes.com/2024/05/02/nyregion/police-officer-sex-trafficking-sentence.html
-
-**Frank Wakefield, Who Expanded the Mandolin’s Range, Dies at 89**\
-`A bluegrass innovator, he recorded numerous albums as a leader, and his list of collaborators included both Leonard Bernstein and Jerry Garcia.`\
-https://nytimes.com/2024/05/02/arts/music/frank-wakefield-dead.html
 
