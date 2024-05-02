@@ -1,3 +1,11 @@
+**Friday Briefing: Hamas Considers Israel’s Proposal**\
+`Also, the U.S. accused Russia of using chemical weapons.`\
+https://nytimes.com/2024/05/02/world/asia/hamas-israel-proposal-russia-asia.html
+
+**Turkey Halts Trade With Israel, Amid Deteriorating Ties Between the Two Nations**\
+`The Turkish Trade Ministry said all imports and exports with Israel would pause until an adequate supply of aid was allowed into Gaza.`\
+https://nytimes.com/2024/05/02/world/middleeast/turkey-israel-trade-ties.html
+
 **Apple Reports Decline in Sales and Profit Amid iPhone Struggles in China**\
 `The company continues to lean on customers’ appetite for apps and services, as demand for its devices weakens.`\
 https://nytimes.com/2024/05/02/technology/apple-earnings-china.html

@@ -1,3 +1,7 @@
+**Friday Briefing: Hamas Considers Israel’s Proposal**\
+`Also, the U.S. accused Russia of using chemical weapons.`\
+https://nytimes.com/2024/05/02/world/asia/hamas-israel-proposal-russia-asia.html
+
 **Apple Reports Decline in Sales and Profit Amid iPhone Struggles in China**\
 `The company continues to lean on customers’ appetite for apps and services, as demand for its devices weakens.`\
 https://nytimes.com/2024/05/02/technology/apple-earnings-china.html
@@ -14,8 +18,8 @@ https://nytimes.com/2024/05/02/us/politics/antisemitism-jews-republicans-democra
 `The middle of the road may be the correct place to be, but it’s never a popular spot.`\
 https://nytimes.com/2024/05/01/opinion/biden-campus-protests.html
 
-**Turkey halts trade with Israel, amid deteriorating relations between the two nations.**\
-`By Gulsin Harman and Ben Hubbard`\
+**Turkey Halts Trade With Israel, Amid Deteriorating Ties Between the Two Nations**\
+`The Turkish Trade Ministry said all imports and exports with Israel would pause until an adequate supply of aid was allowed into Gaza.`\
 https://nytimes.com/2024/05/02/world/middleeast/turkey-israel-trade-ties.html
 
 **Locks, Chains, Diversions: How Columbia Students Seized Hamilton Hall**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/02/t-magazine/kismet-los-angeles-garden-party.html
 **The Best Headwear at the Central Park Hat Lunch**\
 `Attendees at the annual Frederick Law Olmsted Awards wore their finest fascinators, headbands and bird hats to raise money for the jewel of New York.`\
 https://nytimes.com/2024/05/02/style/central-park-hat-luncheon.html
-
-**Three Choices for World-Class Art and a Nosh**\
-`Think vegan lobster rolls and the Swizz Beats and Alicia Keys collection at Brooklyn Museum.`\
-https://nytimes.com/2024/05/02/dining/three-choices-for-world-class-art-and-a-nosh.html
 
