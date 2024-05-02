@@ -1,3 +1,7 @@
+**Rutgers protesters end three-day encampment after striking deal with administrators.**\
+`A student protest organizer said that the university had accepted many of the protesters’ demands, and had agreed to continue negotiating over their main request: divestment.`\
+https://nytimes.com/live/2024/05/02/us/ucla-protests-college-campus/rutgers-protests-encampment-deal
+
 **Jury in Federal Lawsuit Deadlocks on Abu Ghraib Torture Allegations**\
 `Three Iraqi men sued a Virginia contractor that supplied interrogators to the U.S. military after the 2003 invasion of Iraq.`\
 https://nytimes.com/2024/05/02/us/abu-ghraib-torture-lawsuit-mistrial.html

@@ -1,3 +1,7 @@
+**Rutgers protesters end three-day encampment after striking deal with administrators.**\
+`A student protest organizer said that the university had accepted many of the protesters’ demands, and had agreed to continue negotiating over their main request: divestment.`\
+https://nytimes.com/live/2024/05/02/us/ucla-protests-college-campus/rutgers-protests-encampment-deal
+
 **Jury in Federal Lawsuit Deadlocks on Abu Ghraib Torture Allegations**\
 `Three Iraqi men sued a Virginia contractor that supplied interrogators to the U.S. military after the 2003 invasion of Iraq.`\
 https://nytimes.com/2024/05/02/us/abu-ghraib-torture-lawsuit-mistrial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/02/us/california-captain-sentenced-dive-boat-fire-de
 **Biden Condemned Violent Campus Protests**\
 `Also, the U.S. accused Russia of using chemical weapons. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/05/02/briefing/biden-campus-protests-google-trial.html
-
-**Biden Appeals to North Carolina With Program to Replace Lead Pipes**\
-`In a stop in Wilmington, N.C., the president announced $3 billion in new spending to upgrade water systems around the country.`\
-https://nytimes.com/2024/05/02/us/politics/biden-north-carolina-lead-pipes.html
 
