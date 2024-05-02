@@ -1,3 +1,7 @@
+**The lead negotiator for Hamas is the deputy to Yahya Sinwar, the group’s leader in Gaza.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/05/02/world/israel-gaza-war-hamas/the-lead-negotiator-for-hamas-is-the-deputy-to-yahya-sinwar-the-groups-leader-in-gaza
+
 **‘Baby Reindeer’: What to Know About the True-ish Netflix Hit**\
 `The mini-series, based on the star’s experiences, has viewers wondering how much of it is real. Here’s the back story.`\
 https://nytimes.com/2024/05/02/arts/television/baby-reindeer-true-story.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/02/sports/autoracing/f1-miami-grand-prix-matures.htm
 **A Party for the Haters**\
 `The writers behind Hate Reads, a pop-up newsletter for airing grievances and pet peeves, got up on their soap boxes.`\
 https://nytimes.com/2024/05/02/style/hate-reads-party.html
-
-**At Trump’s Trial, a Decade’s Worth of Celebrity Sleaze Is Exhumed**\
-`Donald J. Trump’s lawyers tried to paint Keith Davidson, the man who helped broker a hush-money payment for Stormy Daniels, as a specialist in extracting money from the famous.`\
-https://nytimes.com/2024/05/02/nyregion/trump-trial-celebrity-hush-money.html
 
