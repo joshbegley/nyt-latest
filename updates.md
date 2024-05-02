@@ -1,3 +1,7 @@
+**At Trump’s Trial, a Decade’s Worth of Celebrity Sleaze Is Exhumed**\
+`Donald J. Trump’s lawyers tried to paint Keith Davidson, the man who helped broker a hush-money payment for Stormy Daniels, as a specialist in extracting money from the famous.`\
+https://nytimes.com/2024/05/02/nyregion/trump-trial-celebrity-hush-money.html
+
 **Court Allows Case Challenging Segregation in N.Y.C. Schools to Advance**\
 `The lawsuit calls out “pernicious racial inequality” in the nation’s largest school district. If successful, it could lead to changes to gifted and selective programs, or even their elimination.`\
 https://nytimes.com/2024/05/02/nyregion/nyc-schools-segregation.html
