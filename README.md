@@ -1,3 +1,7 @@
+**Can a ‘Not Charlotte’ Recipe Revive a Region?**\
+`North Carolina’s Triad was built on tobacco, textiles and furniture. Now it’s trying to forge a new economy from more highly skilled manufacturing.`\
+https://nytimes.com/2024/05/02/business/economy/north-carolina-triad-economy.html
+
 **F.T.C. Clears Exxon Mobil’s Acquisition of Pioneer Natural Resources**\
 `The Federal Trade Commission will bar Pioneer’s chief executive, Scott Sheffield, from joining Exxon’s board, saying he colluded with OPEC to reduce oil production.`\
 https://nytimes.com/2024/05/02/business/energy-environment/exxon-mobil-pioneer-scott-sheffield-ftc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/02/learning/whats-going-on-in-this-graph-may-8-2024.
 **The Army Sees Mortars as Safe. Troops Report Signs of Brain Injury.**\
 `Soldiers exposed to thousands of low-level blasts from firing weapons like mortars say that they wind up with debilitating symptoms of traumatic brain injury — but no diagnosis.`\
 https://nytimes.com/2024/05/02/us/blast-mortar-brain-injury-military.html
-
-**How Police Cleared the U.C.L.A. Protest Camp**\
-`Police officers dismantled a pro-Palestinian encampment and made arrests after a tense hourslong standoff overnight with demonstrators on the campus.`\
-https://nytimes.com/2024/05/02/us/ucla-protest-what-happened.html
 

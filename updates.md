@@ -1,3 +1,7 @@
+**An Artist From Kosovo Takes Flight**\
+`After a childhood marked by war and exile, Petrit Halilaj has become one of his generation’s great talents.`\
+https://nytimes.com/2024/05/02/arts/design/petrit-halilaj-kosovo-met-roof.html
+
 **F.T.C. Clears Exxon Mobil’s Acquisition of Pioneer Natural Resources**\
 `The Federal Trade Commission will bar Pioneer’s chief executive, Scott Sheffield, from joining Exxon’s board, saying he colluded with OPEC to reduce oil production.`\
 https://nytimes.com/2024/05/02/business/energy-environment/exxon-mobil-pioneer-scott-sheffield-ftc.html

@@ -10,8 +10,8 @@ https://nytimes.com/2024/05/02/arts/music/esa-pekka-salonen-new-york-philharmoni
 `The organizers of the glitzy singing contest said that attendees would be allowed to wave only the flags of participating nations — including Israel’s.`\
 https://nytimes.com/2024/05/02/arts/music/eurovision-palestinian-flags.html
 
-**Petrit Halilaj Takes Flight**\
-`After a childhood marked by war and exile, the artist from Kosovo has become one of his generation’s great talents.`\
+**An Artist From Kosovo Takes Flight**\
+`After a childhood marked by war and exile, Petrit Halilaj has become one of his generation’s great talents.`\
 https://nytimes.com/2024/05/02/arts/design/petrit-halilaj-kosovo-met-roof.html
 
 **The Voice of a Hundred Faces: Dee Bradley Baker’s ‘Star Wars’ Journey**\
