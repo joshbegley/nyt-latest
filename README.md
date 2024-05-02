@@ -1,40 +1,40 @@
-**As Kentucky Derby Nears, Last Year’s Deaths Cast Long Shadow**\
-`The breakdown of 12 horses in the days surrounding the celebrated race a year ago has led to existential questions about the sport and its future.`\
-https://nytimes.com/2024/05/02/business/horse-racing-deaths-kentucky-derby.html
+**At Last, Washington Realizes the Obvious Truth About Marijuana**\
+`It was never among the most dangerous drugs on earth, and the Biden administration is finally doing something about it.`\
+https://nytimes.com/2024/05/02/opinion/biden-marijuana-crime.html
 
-**Campus Protests Aren’t Going Away. Colleges Need to Draw Lines.**\
-`TK`\
-https://nytimes.com/2024/05/02/opinion/campus-protests-free-speech.html
+**What Are the Best, and Worst, Recommendations You’ve Gotten From Social Media?**\
+`What have you bought, watched, listened to, read, made, eaten or tried out because someone on TikTok, Instagram or X suggested you should?`\
+https://nytimes.com/2024/05/02/learning/what-are-the-best-and-worst-recommendations-youve-gotten-from-social-media.html
 
-**36 Hours in Minneapolis**\
-`Springtime is best for exploring this Midwestern city’s lakeside trails, robust arts scene and top-notch restaurants.`\
-https://nytimes.com/interactive/2024/05/02/travel/things-to-do-minneapolis.html
+**She Wanted a Brooklyn One-Bedroom for Less Than $500,000. But Where?**\
+`When the bathroom leak in her Bed-Stuy rental became too much to bear, an Alabama native looked around Prospect Heights, Williamsburg and Crown Heights for something she could afford to buy.`\
+https://nytimes.com/interactive/2024/05/02/realestate/brooklyn-one-bedroom-home-sale.html
 
-**The Biden Campaign’s High-Powered Effort to Define R.F.K. Jr.**\
-`Why Democrats have a big team tracking every third-party candidate.`\
-https://nytimes.com/2024/05/02/opinion/rfk-jr-biden-democrats.html
+**Kelli O’Hara’s Ties to Opera, From ‘The Gilded Age’ to the Met Stage**\
+`O’Hara is an unusual kind of triple threat: a star of Broadway and television who is appearing at the Metropolitan Opera in a revival of “The Hours.”`\
+https://nytimes.com/2024/05/02/arts/television/kelli-ohara-met-opera.html
 
-**Tech Industry Braces as Google Antitrust Trial Closes**\
-`The first tech monopoly trial of the modern internet era is concluding. The judge’s ruling is likely to weigh heavily on a pipeline of similar antitrust cases.`\
-https://nytimes.com/2024/05/02/technology/google-antitrust-trial-closing-arguments.html
+**Biden Will Expand Two National Monuments in California**\
+`As part of his plan to conserve the nation’s land and waters, Mr. Biden is enlarging the San Gabriel Mountains National Monument and the Berryessa Snow Mountain National Monument.`\
+https://nytimes.com/2024/05/02/climate/biden-national-monuments-california-expansion.html
 
-**How Hudson Yards Went From Bust to Boom**\
-`The planned neighborhood in the far west of Manhattan has rebounded, at least in terms of leasing office space.`\
-https://nytimes.com/2024/05/02/nyregion/how-hudson-yards-went-from-bust-to-boom.html
+**When Closing a Very Small Campus Is a Very Big Deal**\
+`The Staten Island branch of St. John’s University is more than just a school.`\
+https://nytimes.com/2024/05/02/opinion/staten-island-campus-st-johns.html
 
-**Will Shoppers Ever Care About the Destruction of the Planet?**\
-`Tactics to convince people to buy less aren’t working. A quirky new documentary by Patagonia takes a different approach.`\
-https://nytimes.com/2024/05/02/style/patagonia-documentary-sustainability.html
+**The Democrats’ New Chance in Wisconsin**\
+`What redrawn maps might mean in November.`\
+https://nytimes.com/2024/05/02/podcasts/the-democrats-new-chance-in-wisconsin.html
 
-**Homes for Sale in New York and New Jersey**\
-`This week’s properties are a five-bedroom in Port Washington and a`\
-https://nytimes.com/2024/05/02/realestate/homes-for-sale-in-new-york-and-new-jersey.html
+**These Legs Were Made for Fashion**\
+`Vanessa Williams’s many ensembles in a music video for her new song, “Legs (Keep Dancing),” evoke her knack for portraying a diva with style.`\
+https://nytimes.com/2024/05/02/style/vanessa-williams-legs-keep-dancing-song.html
 
-**Homes for Sale in Manhattan and Brooklyn**\
-`This week’s properties are on Central Park West, in Chelsea and Bedford-Stuyvesant.`\
-https://nytimes.com/2024/05/02/realestate/homes-for-sale-in-manhattan-and-brooklyn.html
+**Mother’s Day Gift Guide: Nostalgic Beach Supplies, Egg Cups and More**\
+`The whimsical housewares and artisanal tools that T Magazine’s editors and contributors are eyeing for our maternal figures.`\
+https://nytimes.com/2024/05/02/t-magazine/mothers-day-gift-guide.html
 
-**When Your Neighbor Renovates, How Do You Protect Your Home?**\
-`A law exists to balance the interests of people who renovate their properties with the interests of their neighbors.`\
-https://nytimes.com/2024/05/02/realestate/renovations-next-door-damage.html
+**Esther, a New Art Fair With Northern European Style**\
+`At the debut of this alternative fair, dealers from Oslo to Estonia have teamed up, turning a private club into a total work of art.`\
+https://nytimes.com/2024/05/02/arts/design/esther-art-fair-estonia-new-york.html
 
