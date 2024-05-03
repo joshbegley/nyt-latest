@@ -1,3 +1,19 @@
+**Data shows a healthy economy, but consumers feel gloomy.**\
+`By J. Edward Moreno`\
+https://nytimes.com/live/2024/05/03/business/jobs-report-april-economy/data-shows-a-healthy-economy-but-consumers-feel-gloomy
+
+**For the Federal Reserve, unemployment and wages are in focus.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/05/03/business/jobs-report-april-economy/for-the-federal-reserve-unemployment-and-wages-are-in-focus
+
+**‘The Contestant’: Traumatic Isolation Played for Laughs**\
+`A new Hulu documentary looks back on a Japanese reality show starring a man, Nasubi, who didn’t know he was on TV. In an interview, he discusses why he’s sharing his story.`\
+https://nytimes.com/2024/05/03/arts/the-contestant-hulu.html
+
+**5 Children’s Movies to Stream Now**\
+`This month’s picks include a nature documentary filmed in the Indian wilderness and an animated family adventure from the studio behind “Despicable Me.”`\
+https://nytimes.com/2024/05/03/movies/kids-movies-streaming.html
+
 **What to watch today in the April jobs report.**\
 `Economists expect another strong month for job creation, even as other indicators of labor demand weaken.`\
 https://nytimes.com/live/2024/05/03/business/jobs-report-april-economy/jobs-report-april-2024
