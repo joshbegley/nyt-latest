@@ -1,3 +1,7 @@
+**Officer Accidentally Fired a Gun at Columbia University, N.Y.P.D. Says**\
+`The police said a sergeant unintentionally fired his gun into an empty room of Hamilton Hall while officers were removing pro-Palestinian protesters from the building.`\
+https://nytimes.com/video/nyregion/100000009447113/columbia-nypd-gun-hamilton-hall-protest.html
+
 **Kendrick Lamar Gets Inspired (by Drake), and 9 More New Songs**\
 `Hear tracks by Miranda Lambert, Illuminati Hotties, Mabe Fratti and others.`\
 https://nytimes.com/2024/05/03/arts/music/playlist-kendrick-lamar-miranda-lambert.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/03/business/jobs-report-april-economy/us-employ
 **8 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/05/03/books/review/new-books-recommendations.html
-
-**Biden and Trump tussle over the economy with the new jobs report.**\
-`polls show voters continue to be displeased with prices and the overall economy.`\
-https://nytimes.com/live/2024/04/28/us/biden-trump-campaign/biden-trump-jobs-report
 
