@@ -1,3 +1,7 @@
+**Biden to Honor Prominent Democrats With Presidential Medal of Freedom**\
+`Six months before the election, the president selected a list of awardees heavy with political allies like Nancy Pelosi, James E. Clyburn and John F. Kerry.`\
+https://nytimes.com/2024/05/03/us/politics/biden-to-honor-prominent-democrats-with-presidential-medal-of-freedom.html
+
 **Israel is under pressure to bring an end to the war in Gaza.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/05/03/world/israel-gaza-war-hamas/israel-is-under-pressure-to-bring-an-end-to-the-war-in-gaza
