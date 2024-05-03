@@ -27,7 +27,7 @@ https://nytimes.com/2024/05/03/us/usc-ucla-criticism-campus-protests.html
 https://nytimes.com/2024/05/03/business/federal-reserve-markets-turmoil.html
 
 **03trump-trial**\
-`Trump Trial Live Updates: Witness Who Extracted Secret Recordings to Return to the Stand`\
+`Trump Trial Live Updates: Testimony of Witness Who Extracted Secret Recordings Resumes`\
 https://nytimes.com/live/2024/05/03/nyregion/trump-hush-money-trial
 
 **Biden to Honor Prominent Democrats With Presidential Medal of Freedom**\
