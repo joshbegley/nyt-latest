@@ -1,3 +1,7 @@
+**How Rebel ‘Star Wars’ Fans Saved the Original Movies**\
+`George Lucas wants them to fade into oblivion. But some fans spent more than a decade digitally restoring the original “Star Wars” trilogy, preserving the movies as they were shown in theaters.`\
+https://nytimes.com/2024/05/03/arts/star-wars-films-george-lucas.html
+
 **Overlooked No More: Min Matheson, Labor Leader Who Faced Down Mobsters**\
 `As director of the International Ladies’ Garment Workers’ Union, she fought for better working wages and conditions while wresting control from the mob.`\
 https://nytimes.com/2024/05/03/business/min-matheson-overlooked.html

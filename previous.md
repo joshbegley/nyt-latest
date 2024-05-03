@@ -34,7 +34,7 @@ https://nytimes.com/2024/05/03/us/nancy-schuster-dead.html
 `A reading list outside the progressive box.`\
 https://nytimes.com/2024/05/03/opinion/columbia-core.html
 
-**How ‘Star Wars’ Fans Saved the Original Movies**\
-`George Lucas wants them to fade into oblivion. But some rebel fans spent more than a decade digitally restoring the original “Star Wars” trilogy, preserving the movies as they were shown in theaters.`\
+**How Rebel ‘Star Wars’ Fans Saved the Original Movies**\
+`George Lucas wants them to fade into oblivion. But some fans spent more than a decade digitally restoring the original “Star Wars” trilogy, preserving the movies as they were shown in theaters.`\
 https://nytimes.com/2024/05/03/arts/star-wars-films-george-lucas.html
 
