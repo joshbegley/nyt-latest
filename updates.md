@@ -1,3 +1,15 @@
+**Good Luck Isn’t Good Enough to Fight Bird Flu**\
+`It took a pair of alert veterinarians to tell the world about H5N1 in cows.`\
+https://nytimes.com/live/2024/05/01/opinion/thepoint/bird-flu-cows-texas
+
+**A Conversation With Colm Tóibín**\
+`The Irish author discusses “Long Island,” the sequel to his 2009 novel “Brooklyn.”`\
+https://nytimes.com/2024/05/03/books/review/a-conversation-with-colm-toibin.html
+
+**New Mutations Identified in Bird Flu Virus**\
+`A genetic analysis sheds light on when the outbreak began, how the virus spread and where it may be going.`\
+https://nytimes.com/2024/05/03/health/bird-flu-cows-mutations.html
+
 **How Rebel ‘Star Wars’ Fans Saved the Original Movies**\
 `George Lucas wants them to fade into oblivion. But some fans spent more than a decade digitally restoring the original “Star Wars” trilogy, preserving the movies as they were shown in theaters.`\
 https://nytimes.com/2024/05/03/arts/star-wars-films-george-lucas.html
