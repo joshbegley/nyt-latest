@@ -1,3 +1,7 @@
+**A Race the Whole World Is Watching**\
+`A three-team race is deciding this year’s Premier League champion. The competition’s global reach means a significant portion of the world’s population is following along.`\
+https://nytimes.com/2024/05/03/world/europe/a-race-the-whole-world-is-watching.html
+
 **U.K. Conservatives Suffer Sharp Setbacks in Early Results of Local Elections**\
 `The scale of the losses suffered by Prime Minister Rishi Sunak’s party sent an ominous message about its chances in an upcoming general election.`\
 https://nytimes.com/2024/05/03/world/europe/uk-elections-labour-conservatives.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/03/arts/television/jimmy-kimmel-donald-trump-trial.h
 **‘Dead Poets Society’ Has Some Distinctly Australian Relevance**\
 `Brought to life by the Australian director Peter Weir, the movie’s conflict reflects a collective cultural trait his fellow citizens can relate to.`\
 https://nytimes.com/2024/05/03/world/australia/dead-poets-society.html
-
-**Word of the Day: rueful**\
-`This word has appeared in 34 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/05/03/learning/word-of-the-day-rueful.html
 
