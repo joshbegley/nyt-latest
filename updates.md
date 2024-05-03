@@ -1,3 +1,15 @@
+**Pro-Palestinian Encampments Spread to Campuses in Other Countries**\
+`Student activists in Australia, Britain, France and elsewhere are challenging their universities’ stances on the war in Gaza and ties to Israel.`\
+https://nytimes.com/2024/05/03/world/palestinian-protests-france-australia-uk.html
+
+**Still No Stag and Not Much Flation**\
+`Most of the bad news about the economy is just noise.`\
+https://nytimes.com/2024/05/03/opinion/krugman-inflation-jobs-economy.html
+
+**03trump-trial**\
+`Trump Trial Live Updates: Testimony of Witness Who Extracted Secret Recordings Resumes`\
+https://nytimes.com/live/2024/05/03/nyregion/trump-hush-money-trial
+
 **8 New Movies Our Critics Are Talking About This Week**\
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
 https://nytimes.com/2024/05/03/movies/new-movies-this-week-critics.html
