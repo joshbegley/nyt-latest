@@ -1,3 +1,7 @@
+**What Will Warren Buffett Bet on Next?**\
+`Berkshire Hathaway shareholders will gather in Omaha for the conglomerate’s annual meeting on Saturday, with questions about the company’s future.`\
+https://nytimes.com/2024/05/03/business/dealbook/warren-buffett-berkshire-hathaway-agm.html
+
 **Data shows a healthy economy, but consumers feel gloomy.**\
 `By J. Edward Moreno`\
 https://nytimes.com/live/2024/05/03/business/jobs-report-april-economy/data-shows-a-healthy-economy-but-consumers-feel-gloomy
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/03/nyregion/what-happened-when-the-skating-coaches-w
 **The Secret Recording Played at Trump’s Trial, and the Latest Cease-Fire Negotiations**\
 `Plus, the shadow over the Kentucky Derby.`\
 https://nytimes.com/2024/05/03/podcasts/the-secret-recording-played-at-trumps-trial-and-the-latest-cease-fire-negotiations.html
-
-**The Protesters and the President**\
-`Over the past week, thousands of students protesting the war in Gaza have been arrested.`\
-https://nytimes.com/2024/05/03/podcasts/the-daily/university-protestest.html
 
