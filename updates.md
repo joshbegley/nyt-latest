@@ -1,3 +1,7 @@
+**As Turkey Cuts Trade Ties, Israel’s Isolation Grows**\
+`Turkey said it would not resume trade with Israel until a “permanent cease-fire” in Gaza. The move came after a number of countries cut diplomatic ties with Israel.`\
+https://nytimes.com/2024/05/03/world/middleeast/turkey-israel-gaza-cease-fire.html
+
 **Hope Hicks Takes the Stand: 5 Takeaways From Trump’s Criminal Trial**\
 `In a riveted courtroom, Ms. Hicks, the former spokeswoman for Donald J. Trump, testified how she and her former boss managed one scandal after another.`\
 https://nytimes.com/2024/05/03/nyregion/trump-trial-hope-hicks-takeaways.html
