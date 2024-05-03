@@ -1,3 +1,7 @@
+**Some workers in the University of California system could strike over U.C.L.A. treatment.**\
+`A union representing academic workers said it would file unfair labor charges against the University of California, Los Angeles, and potentially walk out over the handling of protests this week.`\
+https://nytimes.com/live/2024/05/02/us/ucla-protests-college-campus/some-workers-in-the-university-of-california-system-could-strike-over-ucla-treatment
+
 **Israel and Saudi Arabia Are Trading Places**\
 `Netanyahu is making his nation more like the worst of the old kingdom, and the crown prince is making his kingdom more like the best of the old Jewish state.`\
 https://nytimes.com/2024/05/02/opinion/israel-saudi-arabia.html
