@@ -1,3 +1,11 @@
+**Review: At New York City Ballet’s Gala, the Usual With a Twist**\
+`The two premieres — one by Justin Peck, one by Amy Hall Garner — were gala-style pieces that felt more fresh than rote.`\
+https://nytimes.com/2024/05/03/arts/dance/review-city-ballet-gala-justin-peck-amy-hall-garner.html
+
+**‘Access Hollywood’ Tape Rattled Trump’s Campaign, Hicks Recalls in Testimony**\
+`Hope Hicks, Donald J. Trump’s campaign press secretary in 2016 testified about the infamous recording, which captured him bragging about grabbing women’s genitals. It was published by The Washington Post a month before the election.`\
+https://nytimes.com/2024/05/03/nyregion/access-hollywood-tape-trump-trial.html
+
 **Nuclear Power as a Clean Energy Tool?**\
 `Readers discuss an Opinion guest essay calling that a fantasy. Also: Quality at Boeing; a toilet sign; running, fast and slow.`\
 https://nytimes.com/2024/05/03/opinion/nuclear-power-energy.html
