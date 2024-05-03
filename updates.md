@@ -1,3 +1,15 @@
+**U.S.C. Announces New Commencement Plans After Canceling its Main Ceremony**\
+`The university said it would hold a celebration at the Los Angeles Memorial Coliseum. More than 100 school-specific graduations and smaller receptions will also take place with tighter security.`\
+https://nytimes.com/2024/05/03/us/usc-graduation-campus-protests.html
+
+**Mississippi’s First Serious Bid to Expand Medicaid Collapses**\
+`State lawmakers failed to reach a compromise, dashing hopes of extending largely free health care to most low-income residents and supporting struggling rural hospitals.`\
+https://nytimes.com/2024/05/03/us/mississippi-medicaid-expansion.html
+
+**Latino Advocacy Groups Call Trump’s Deportation Plans a Danger to Democracy**\
+`The political arms of five organizations are coordinating their efforts to mobilize Hispanic Democrats, saying that defeating the former president is their top goal.`\
+https://nytimes.com/2024/05/03/us/politics/latino-groups-oppose-trump.html
+
 **What Would Happen if the U.S. Suddenly Seemed Like a Risky Investment?**\
 `The American economy has long been a safe haven, but it might not be forever.`\
 https://nytimes.com/2024/05/03/opinion/american-economy-global-investors.html
