@@ -1,40 +1,40 @@
-**At Venice Biennale, Artists Make a Case for Returning Looted Artifacts**\
-`For years, activists and politicians have led discussions about whether disputed museum objects should go back to their countries of origin. At this year’s Biennale, artists are entering the fray.`\
-https://nytimes.com/2024/05/03/arts/design/venice-biennale-restitution.html
+**$850,000 Homes in Lisbon, Portugal**\
+`A townhouse in Belém, an apartment with a balcony in Santos and an apartment on a plaza in Alfama.`\
+https://nytimes.com/2024/05/03/realestate/850000-homes-in-lisbon-portugal.html
 
-**A Race the Whole World Is Watching**\
-`A three-team race is deciding this year’s Premier League champion. The competition’s global reach means a significant portion of the world’s population is following along.`\
-https://nytimes.com/2024/05/03/world/europe/a-race-the-whole-world-is-watching.html
+**Haiti’s Police Are ‘Begging for Help’ in Battle Against Ruthless Gangs**\
+`The United States is rushing support to Haiti’s depleted police force, which is awaiting international help as it tries to restore order and quell violence.`\
+https://nytimes.com/2024/05/03/world/americas/haiti-police-gangs-port-au-prince.html
 
-**U.K. Conservatives Suffer Sharp Setbacks in Early Results of Local Elections**\
-`The scale of the losses suffered by Prime Minister Rishi Sunak’s party sent an ominous message about its chances in an upcoming general election.`\
-https://nytimes.com/2024/05/03/world/europe/uk-elections-labour-conservatives.html
+**On Dua Lipa’s ‘Radical Optimism,’ Romance Is Everything**\
+`The English singer and songwriter’s third album, featuring production from Danny L Harle and Tame Impala’s Kevin Parker, is nonstop ear candy.`\
+https://nytimes.com/2024/05/03/arts/music/dua-lipa-radical-optimism-review.html
 
-**Witness Who Extracted Secret Tape of Trump Will Return to the Stand**\
-`Douglas Daus, a forensic analyst in the Manhattan district attorney’s office, obtained the audio from the phones of Michael D. Cohen, Mr. Trump’s former fixer.`\
-https://nytimes.com/2024/05/03/nyregion/trump-trial-cohen-tape-testimony.html
+**10 New York Destinations for Design Lovers**\
+`This month, art and design fairs draw aesthetes to the city. But there’s interesting design aplenty outside the fairs. Here’s where to find it.`\
+https://nytimes.com/2024/05/03/arts/design/new-york-design-destinations.html
 
-**Shadowy Figures**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2024/05/03/learning/shadowy-figures.html
+**They Found a Rare Species in the Wild: an Original Bolt-Together House**\
+`The tiny cabin, one of the few extant examples of a popular 1970s design, had no heat or toilet. But it was theirs for $65,000.`\
+https://nytimes.com/2024/05/03/realestate/tiny-house-catskills-bolt-together-jeffrey-milstein.html
 
-**How a ‘Hidden’ $1.4 Billion Tax Will Make N.Y.C. Water Bills Rise**\
-`Mayor Eric Adams is resurrecting a budget gimmick and charging rent to the city’s Water Board, which will pass on the costs to ratepayers.`\
-https://nytimes.com/2024/05/03/nyregion/water-bills-nyc.html
+**Going to TEFAF New York? Here are 4 Shows You Can Walk to.**\
+`These exhibitions are all within a 10-minute walk from the Park Avenue Armory, so you can take your time and enjoy the spring weather.`\
+https://nytimes.com/2024/05/03/arts/design/tefaf-new-york-walking-tour.html
 
-**The Connections Companion No. 327**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/03/crosswords/connections-companion.html
+**Covid Vaccine Side Effects: 4 Takeaways From Our Investigation**\
+`Thousands of Americans believe they experienced rare but serious side effects. But confirming a link is a difficult task.`\
+https://nytimes.com/2024/05/03/health/covid-vaccine-side-effects-takeaways.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/05/03/crosswords/spelling-bee-forum.html
+**A 1970s Office Building’s New Life as a Rental**\
+`Pearl House, at 160 Water Street, is designed to bring personality to its neighborhood — whether you think that’s FiDi or the Seaport.`\
+https://nytimes.com/2024/05/03/realestate/build-office-conversion-condo-manhattan.html
 
-**Today’s Wordle Review No. 1,049**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/03/crosswords/wordle-review.html
+**In Taiwan, an Ancient Deity Draws Young Soul-Searchers**\
+`On an island whose religious diversity is part of its democratic identity, many of the faithful participating in a pilgrimage for Mazu, Goddess of the Sea, were in their 20s and teens.`\
+https://nytimes.com/2024/05/03/world/asia/taiwan-religion-mazu-pilgrimage.html
 
-**Jimmy Kimmel Wants to Testify at Donald Trump’s Criminal Trial**\
-`“I think I can keep Trump awake during the trial,” Kimmel said after learning that text messages about his talk show were entered as evidence in the case.`\
-https://nytimes.com/2024/05/03/arts/television/jimmy-kimmel-donald-trump-trial.html
+**The London Design Gallery That Is ‘Nonstop Exploring, Experimenting’**\
+`Carpenters Workshop Gallery has long pushed the limits of design. Now, they’ve made a bold bet on a new space in North Kensington. Will it pay off?`\
+https://nytimes.com/2024/05/03/arts/design/carpenters-workshop-gallery-ladbroke-hall.html
 
