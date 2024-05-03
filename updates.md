@@ -1,3 +1,7 @@
+**‘Dead Poets Society’ Has Some Distinctly Australian Relevance**\
+`Brought to life by the Australian director Peter Weir, the movie’s conflict reflects a collective cultural trait his fellow citizens can relate to.`\
+https://nytimes.com/2024/05/03/world/australia/dead-poets-society.html
+
 **Word of the Day: rueful**\
 `This word has appeared in 34 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/05/03/learning/word-of-the-day-rueful.html

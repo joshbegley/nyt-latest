@@ -1,3 +1,7 @@
+**‘Dead Poets Society’ Has Some Distinctly Australian Relevance**\
+`Brought to life by the Australian director Peter Weir, the movie’s conflict reflects a collective cultural trait his fellow citizens can relate to.`\
+https://nytimes.com/2024/05/03/world/australia/dead-poets-society.html
+
 **Word of the Day: rueful**\
 `This word has appeared in 34 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/05/03/learning/word-of-the-day-rueful.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/03/science/china-moon-launch-watch.html
 **How a One-Month Fitness Pass Turned Into a Lifetime Commitment**\
 `Andrew Matt met Kayla Dye six years ago at an indoor cycling studio in Dallas after signing up for a class she was teaching. Both instructor and student were immediately smitten.`\
 https://nytimes.com/2024/05/03/style/kayla-dye-andrew-matt-wedding.html
-
-**Quotation of the Day: A Tale of Geopolitics, Forgery, and Vanishing Russian Literature**\
-`Quotation of the Day for Friday, May 3, 2024.`\
-https://nytimes.com/2024/05/03/pageoneplus/quotation-of-the-day-a-tale-of-geopolitics-forgery-and-vanishing-russian-literature.html
 
