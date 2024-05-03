@@ -1,3 +1,7 @@
+**Word of the Day: rueful**\
+`This word has appeared in 34 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/03/learning/word-of-the-day-rueful.html
+
 **I-95 Closed in Connecticut After Fiery Truck Crash**\
 `A gasoline tanker crashed on the highway, causing a fire that damaged a bridge in Norwalk, Conn. The highway was expected to be closed at least until Monday.`\
 https://nytimes.com/2024/05/03/nyregion/i-95-tanker-fire-connecticut.html
