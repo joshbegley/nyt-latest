@@ -1,40 +1,40 @@
-**$850,000 Homes in Lisbon, Portugal**\
-`A townhouse in Belém, an apartment with a balcony in Santos and an apartment on a plaza in Alfama.`\
-https://nytimes.com/2024/05/03/realestate/850000-homes-in-lisbon-portugal.html
+**A.I. at Your Jobs + Hank Green Talks TikTok + Deepfake High School**\
+`A synthetic chief executive, a bot trained on employees’ personalities, and a regular duel with ChatGPT — our listeners brought us their stories.`\
+https://nytimes.com/2024/05/03/podcasts/hard-fork-work-hank-green-deepfake.html
 
-**Haiti’s Police Are ‘Begging for Help’ in Battle Against Ruthless Gangs**\
-`The United States is rushing support to Haiti’s depleted police force, which is awaiting international help as it tries to restore order and quell violence.`\
-https://nytimes.com/2024/05/03/world/americas/haiti-police-gangs-port-au-prince.html
+**Immigrants With DACA Protections Will Be Eligible for Obamacare**\
+`Thousands of immigrants in the Deferred Action for Childhood Arrivals program could obtain federal health coverage later this year under a new Biden administration rule.`\
+https://nytimes.com/2024/05/03/us/politics/immigrants-daca-health-care.html
 
-**On Dua Lipa’s ‘Radical Optimism,’ Romance Is Everything**\
-`The English singer and songwriter’s third album, featuring production from Danny L Harle and Tame Impala’s Kevin Parker, is nonstop ear candy.`\
-https://nytimes.com/2024/05/03/arts/music/dua-lipa-radical-optimism-review.html
+**How to Survive Your High School Reunion**\
+`Step one: Manage your expectations.`\
+https://nytimes.com/2024/05/03/well/live/high-school-reunion.html
 
-**10 New York Destinations for Design Lovers**\
-`This month, art and design fairs draw aesthetes to the city. But there’s interesting design aplenty outside the fairs. Here’s where to find it.`\
-https://nytimes.com/2024/05/03/arts/design/new-york-design-destinations.html
+**5 Things to Do This Weekend**\
+`Selections from the Weekend section, including a review of Jane Schoenbrun’s “I Saw the TV Glow.”`\
+https://nytimes.com/interactive/2024/05/03/arts/weekend-editors-picks-i-saw-the-tv-glow.html
 
-**They Found a Rare Species in the Wild: an Original Bolt-Together House**\
-`The tiny cabin, one of the few extant examples of a popular 1970s design, had no heat or toilet. But it was theirs for $65,000.`\
-https://nytimes.com/2024/05/03/realestate/tiny-house-catskills-bolt-together-jeffrey-milstein.html
+**Protect Journalists, Everywhere**\
+`On World Press Freedom Day, a reminder of how many journalists are not free to do their vital work.`\
+https://nytimes.com/2024/05/03/opinion/press-freedom-global.html
 
-**Going to TEFAF New York? Here are 4 Shows You Can Walk to.**\
-`These exhibitions are all within a 10-minute walk from the Park Avenue Armory, so you can take your time and enjoy the spring weather.`\
-https://nytimes.com/2024/05/03/arts/design/tefaf-new-york-walking-tour.html
+**MAGA Is Demoting the Pro-Life Forces It Once Coddled**\
+`Swing-state Republicans are running from the anti-abortion movement.`\
+https://nytimes.com/2024/05/03/opinion/kari-lake-abortion.html
 
-**Covid Vaccine Side Effects: 4 Takeaways From Our Investigation**\
-`Thousands of Americans believe they experienced rare but serious side effects. But confirming a link is a difficult task.`\
-https://nytimes.com/2024/05/03/health/covid-vaccine-side-effects-takeaways.html
+**The New York Times News Quiz, May 3, 2024**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2024/05/03/briefing/ucla-protests-hells-kitchen-trump-quiz.html
 
-**A 1970s Office Building’s New Life as a Rental**\
-`Pearl House, at 160 Water Street, is designed to bring personality to its neighborhood — whether you think that’s FiDi or the Seaport.`\
-https://nytimes.com/2024/05/03/realestate/build-office-conversion-condo-manhattan.html
+**U.S. Antitrust Case Against Google Is Just the Start**\
+`As the Justice Department’s case against Google nears an end, the federal government has more suits in the pipeline trying to rein in Big Tech.`\
+https://nytimes.com/2024/05/03/technology/google-apple-amazon-meta-antitrust.html
 
-**In Taiwan, an Ancient Deity Draws Young Soul-Searchers**\
-`On an island whose religious diversity is part of its democratic identity, many of the faithful participating in a pilgrimage for Mazu, Goddess of the Sea, were in their 20s and teens.`\
-https://nytimes.com/2024/05/03/world/asia/taiwan-religion-mazu-pilgrimage.html
+**A New Issue Flares in the 2024 Race: Campus Protests**\
+`With tensions escalating and Republicans pouncing, President Biden finally weighed in and sought to increase the distance between himself and some of the more radical activism on colleges.`\
+https://nytimes.com/2024/05/03/us/politics/biden-trump-campus-protests.html
 
-**The London Design Gallery That Is ‘Nonstop Exploring, Experimenting’**\
-`Carpenters Workshop Gallery has long pushed the limits of design. Now, they’ve made a bold bet on a new space in North Kensington. Will it pay off?`\
-https://nytimes.com/2024/05/03/arts/design/carpenters-workshop-gallery-ladbroke-hall.html
+**Big Ticket: N.Y.’s Top Sales and Listings in April**\
+`April's top sales include a $22 million row house bought by the founder of the beauty brand Glossier.`\
+https://nytimes.com/interactive/2024/05/03/realestate/luxury/new-york-home-sales.html
 
