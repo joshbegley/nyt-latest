@@ -1,3 +1,7 @@
+**The Death of a Treaty Could Be a Lifesaver for Taiwan**\
+`Since pulling out of an arms-limitation agreement with Russia in 2019, the U.S. has quickly developed new weapons that could be used to stop a Chinese invasion force.`\
+https://nytimes.com/2024/05/03/us/politics/china-taiwan-inf-treaty.html
+
 **Horse Racing’s Loudest Critic Is Favored in Its Biggest Race**\
 `The brash owner Mike Repole will take a break from tweaking horse racing’s powers when his colt Fierceness runs in the Kentucky Derby on Saturday.`\
 https://nytimes.com/2024/05/03/business/kentucky-derby-mike-repole-fierceness.html
