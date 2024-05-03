@@ -1,3 +1,7 @@
+**Campus Protests in U.S. Are a Rorschach Test for the World**\
+`Abroad, some have praised the demonstrations. Others call the crackdowns evidence of American hypocrisy, or of a nation coming apart.`\
+https://nytimes.com/2024/05/03/world/europe/campus-protests-rorschach-test.html
+
 **Paramount Will Let Exclusive Talks With Skydance Lapse, Imperiling Deal**\
 `Negotiations are now likely to focus on another suitor, Sony, which has teamed up with the private equity giant Apollo on a $26 billion bid.`\
 https://nytimes.com/2024/05/03/business/media/paramount-skydance-exclusive-talks-lapse.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/03/nyregion/trump-trial-hope-hicks-testimony.html
 **Police Treatment of a Dartmouth Professor Stirs Anger and Debate**\
 `A video showing Annelise Orleck, 65, being taken to the ground intensified criticism of the decision by the college’s president to call in officers.`\
 https://nytimes.com/2024/05/03/us/dartmouth-professor-police-protests.html
-
-**Campus Protests Over Gaza Spotlight the Work of Student Journalists**\
-`Columbia University’s radio station and other student-led news outlets have provided some of the most detailed coverage of the turmoil engulfing university campuses.`\
-https://nytimes.com/2024/05/03/business/media/campus-protests-columbia-student-media-gaza.html
 
