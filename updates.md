@@ -1,3 +1,7 @@
+**Overlooked No More: Min Matheson, Labor Leader Who Faced Down Mobsters**\
+`As director of the International Ladies’ Garment Workers’ Union, she fought for better working wages and conditions while wresting control from the mob.`\
+https://nytimes.com/2024/05/03/business/min-matheson-overlooked.html
+
 **U.S.C. Announces New Commencement Plans After Canceling its Main Ceremony**\
 `The university said it would hold a celebration at the Los Angeles Memorial Coliseum. More than 100 school-specific graduations and smaller receptions will also take place with tighter security.`\
 https://nytimes.com/2024/05/03/us/usc-graduation-campus-protests.html
