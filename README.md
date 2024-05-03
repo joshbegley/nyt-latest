@@ -1,4 +1,4 @@
-**Voters Turn to Labour in English Local Elections: Key Takeaways**\
+**Voters Swing to Labour in English Local Elections: Key Takeaways**\
 `While the ballots were still being counted on Friday, big losses for the Conservative Party could signal a difficult general election later this year.`\
 https://nytimes.com/2024/05/03/world/europe/voters-england-elections-takeaways.html
 
