@@ -1,3 +1,7 @@
+**What Will Warren Buffett Bet on Next?**\
+`Berkshire Hathaway shareholders will gather in Omaha for the conglomerate’s annual meeting on Saturday, with questions about the company’s future.`\
+https://nytimes.com/2024/05/03/business/dealbook/warren-buffett-berkshire-hathaway-agm.html
+
 **Data shows a healthy economy, but consumers feel gloomy.**\
 `By J. Edward Moreno`\
 https://nytimes.com/live/2024/05/03/business/jobs-report-april-economy/data-shows-a-healthy-economy-but-consumers-feel-gloomy
