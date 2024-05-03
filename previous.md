@@ -1,3 +1,7 @@
+**The Side Effects of Covid Vaccines**\
+`Thousands of Americans have filed vaccine-injury claims with the federal government.`\
+https://nytimes.com/2024/05/03/briefing/covid-vaccine-side-effects.html
+
 **What to Watch Today in the April Jobs Report**\
 `Economists expect another strong month for job creation, even as other indicators of labor demand weaken.`\
 https://nytimes.com/2024/05/03/business/economy/jobs-report-april-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/03/well/live/high-school-reunion.html
 **5 Things to Do This Weekend**\
 `Selections from the Weekend section, including a review of Jane Schoenbrun’s “I Saw the TV Glow.”`\
 https://nytimes.com/interactive/2024/05/03/arts/weekend-editors-picks-i-saw-the-tv-glow.html
-
-**Protect Journalists, Everywhere**\
-`On World Press Freedom Day, a reminder of how many journalists are not free to do their vital work.`\
-https://nytimes.com/2024/05/03/opinion/press-freedom-global.html
 

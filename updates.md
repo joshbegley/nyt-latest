@@ -1,3 +1,7 @@
+**The Side Effects of Covid Vaccines**\
+`Thousands of Americans have filed vaccine-injury claims with the federal government.`\
+https://nytimes.com/2024/05/03/briefing/covid-vaccine-side-effects.html
+
 **What to Watch Today in the April Jobs Report**\
 `Economists expect another strong month for job creation, even as other indicators of labor demand weaken.`\
 https://nytimes.com/2024/05/03/business/economy/jobs-report-april-2024.html
