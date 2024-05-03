@@ -1,3 +1,11 @@
+**Biden and Trump tussle over the economy with the new jobs report.**\
+`polls show voters continue to be displeased with prices and the overall economy.`\
+https://nytimes.com/2024/05/03/us/politics/biden-and-trump-tussle-over-the-economy-with-the-new-jobs-report.html
+
+**Biden vs. Trump, through the prism of the campus protests.**\
+`By Chris Cameron`\
+https://nytimes.com/2024/05/03/us/politics/biden-vs-trump-through-the-prism-of-the-campus-protests.html
+
 **Auditor That Works for Trump Media Charged With Fraud**\
 `Regulators said BF Borgers failed to abide by accounting rules that its public company clients are required to follow.`\
 https://nytimes.com/2024/05/03/business/auditor-trump-media-fraud.html
