@@ -1,3 +1,7 @@
+**Henry Cuellar Indicted Over Bribery Scheme**\
+`Mr. Cuellar, who has maintained his innocence, and his wife are accused of accepting bribes from a bank in Mexico City and from an oil and gas company owned by Azerbaijan.`\
+https://nytimes.com/2024/05/03/us/henry-cuellar-indictment.html
+
 **Outside court, high-volume debate and a paper crown.**\
 `By Nate Schweber`\
 https://nytimes.com/live/2024/05/03/nyregion/trump-hush-money-trial/outside-court-high-volume-debate-and-a-paper-crown
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/03/world/europe/voters-england-elections-takeaways.h
 **Georgia Bucks Bail Reform, but at What Cost?**\
 `It’s an unfortunate moment for the state to virtually eliminate the repeat posting of bail.`\
 https://nytimes.com/live/2024/05/01/opinion/thepoint/georgia-bail-reform
-
-**The Actor Who Played Jar Jar Binks Is Proud of His ‘Star Wars’ Legacy**\
-`Ahmed Best recalls the painful backlash to the “Phantom Menace” character that was considered a racial stereotype at the time, but is now embraced by fans.`\
-https://nytimes.com/2024/05/03/movies/jar-jar-binks-actor-star-wars-ahmed-best.html
 
