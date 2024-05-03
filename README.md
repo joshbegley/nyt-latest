@@ -1,3 +1,7 @@
+**Hope Hicks Takes the Stand: 5 Takeaways From Trump’s Criminal Trial**\
+`In a riveted courtroom, Ms. Hicks, the former spokeswoman for Donald J. Trump, testified how she and her former boss managed one scandal after another.`\
+https://nytimes.com/2024/05/03/nyregion/trump-trial-hope-hicks-takeaways.html
+
 **From Hope Hicks, the Tears of Truth**\
 `It sunk in that her testimony was hurting the man she still admires.`\
 https://nytimes.com/2024/05/01/opinion/trump-trial-hope-hicks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/03/business/jobs-report-april-market-reaction.html
 **Small Bedroom Ideas: The Best Ways to Maximize Your Tiny Space**\
 `How to store and decorate in a modest room.`\
 https://nytimes.com/interactive/2024/05/03/smarter-living/wirecutter/small-bedroom-ideas.html
-
-**Canadian Police Arrest 3 in Slaying of Sikh Leader**\
-`The killing of Hardeep Singh Nijjar, a Sikh nationalist who led a temple in British Columbia, set off diplomatic skirmishes between Canada and India.`\
-https://nytimes.com/2024/05/03/world/canada/arrests-hardeep-singh-nijjar-india.html
 
