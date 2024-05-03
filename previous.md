@@ -1,3 +1,11 @@
+**I-95 Closed in Connecticut After Fiery Truck Crash**\
+`A gasoline tanker crashed on the highway, causing a fire that damaged a bridge in Norwalk, Conn. The highway was expected to be closed at least until Monday.`\
+https://nytimes.com/2024/05/03/nyregion/i-95-tanker-fire-connecticut.html
+
+**Tanker Fire Shuts Down I-95**\
+`Traffic stopped on the highway as firefighters worked to extinguish the flames in Norwalk, Conn.`\
+https://nytimes.com/video/us/100000009446475/tanker-fire-shuts-down-i-95.html
+
 **N.Y.P.D. Says Police Officer Accidentally Fired Gun Inside Columbia Building**\
 `Footage of the shooting was captured on the officer’s body camera and provided to the Manhattan district attorney. The officer was on the first floor of Hamilton Hall when his gun went off.`\
 https://nytimes.com/2024/05/03/nyregion/nypd-columbia-shooting-hamilton.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/03/pageoneplus/quotation-of-the-day-a-tale-of-geopol
 **The Two-Week Sublet That Led to Love**\
 `Wiktor Freifeld lived in Tusia Dabrowska’s apartment when she left Warsaw for New York. A deep friendship soon followed.`\
 https://nytimes.com/2024/05/03/style/tusia-dabrowska-wiktor-freifeld-wedding.html
-
-**Mapping a Life Together Through Movies**\
-`Maddie Whittle and Charles Bramesco met through the New York film scene, connecting over a shared sensibility (and an affinity for the horror genre).`\
-https://nytimes.com/2024/05/03/style/maddie-whittle-charles-bramesco-wedding.html
-
-**We Didn’t Know It Was the Last Time**\
-`My daughter and I looked at a book together, posed for a picture, and then she left. Forever.`\
-https://nytimes.com/2024/05/03/style/modern-love-we-didnt-know-it-was-the-last-time.html
 

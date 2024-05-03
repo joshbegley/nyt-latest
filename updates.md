@@ -1,3 +1,11 @@
+**I-95 Closed in Connecticut After Fiery Truck Crash**\
+`A gasoline tanker crashed on the highway, causing a fire that damaged a bridge in Norwalk, Conn. The highway was expected to be closed at least until Monday.`\
+https://nytimes.com/2024/05/03/nyregion/i-95-tanker-fire-connecticut.html
+
+**Tanker Fire Shuts Down I-95**\
+`Traffic stopped on the highway as firefighters worked to extinguish the flames in Norwalk, Conn.`\
+https://nytimes.com/video/us/100000009446475/tanker-fire-shuts-down-i-95.html
+
 **N.Y.P.D. Says Police Officer Accidentally Fired Gun Inside Columbia Building**\
 `Footage of the shooting was captured on the officer’s body camera and provided to the Manhattan district attorney. The officer was on the first floor of Hamilton Hall when his gun went off.`\
 https://nytimes.com/2024/05/03/nyregion/nypd-columbia-shooting-hamilton.html
