@@ -1,3 +1,11 @@
+**The Music of Luca Guadagnino’s Cinematic Universe**\
+`Hear songs from “Challengers,” “Call Me by Your Name” and more.`\
+https://nytimes.com/2024/05/03/arts/music/amplifer-newsletter-luca-guadagninos-soundtracks.html
+
+**Gas Stove Pollution Risk Is Greatest in Smaller Homes, Study Finds**\
+`Gas-burning ranges, a significant contributor to indoor pollution, can produce and spread particularly high levels of some pollutants in smaller spaces.`\
+https://nytimes.com/2024/05/03/climate/gas-stove-indoor-pollution.html
+
 **University of Chicago President Says ‘Encampment Cannot Continue’**\
 `The university is home to the Chicago statement, a framework for free expression that has been embraced by other colleges.`\
 https://nytimes.com/2024/05/03/us/university-of-chicago-protest.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/03/style/met-gala-shou-chew-tiktok.html
 **How I Reported on the Columbia Student Protests … in 1996**\
 `Nearly three decades ago, a young reporter slept on the floor of Columbia’s Hamilton Hall for several nights to file an article for The Village Voice.`\
 https://nytimes.com/2024/05/03/insider/columbia-student-protests-1996.html
-
-**Political Furor Over U.S. Steel Bid Puts Investment Panel in Spotlight**\
-`Backlash over the deal has echoes of the 1980s when Nippon Steel tried and failed to buy another American metal company.`\
-https://nytimes.com/2024/05/03/us/politics/us-steel-nippon-steel-biden-cfius.html
-
-**Officer Accidentally Fired a Gun at Columbia University, N.Y.P.D. Says**\
-`The police said a sergeant unintentionally fired his gun into an empty room of Hamilton Hall while officers were removing pro-Palestinian protesters from the building.`\
-https://nytimes.com/video/nyregion/100000009447113/columbia-nypd-gun-hamilton-hall-protest.html
 

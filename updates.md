@@ -1,3 +1,11 @@
+**The Music of Luca Guadagnino’s Cinematic Universe**\
+`Hear songs from “Challengers,” “Call Me by Your Name” and more.`\
+https://nytimes.com/2024/05/03/arts/music/amplifer-newsletter-luca-guadagninos-soundtracks.html
+
+**Gas Stove Pollution Risk Is Greatest in Smaller Homes, Study Finds**\
+`Gas-burning ranges, a significant contributor to indoor pollution, can produce and spread particularly high levels of some pollutants in smaller spaces.`\
+https://nytimes.com/2024/05/03/climate/gas-stove-indoor-pollution.html
+
 **University of Chicago President Says ‘Encampment Cannot Continue’**\
 `The university is home to the Chicago statement, a framework for free expression that has been embraced by other colleges.`\
 https://nytimes.com/2024/05/03/us/university-of-chicago-protest.html
