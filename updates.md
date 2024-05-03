@@ -1,3 +1,7 @@
+**When Your Job Is 80 Miles Out at Sea, Getting There Is Half the Battle**\
+`Oil platform crews work long days for weeks at a time. But the flight to the platform is so risky that they must take a survival course. `\
+https://nytimes.com/card/2024/05/03/business/energy-environment/shell-oil-platform-training
+
 **An Online Radio Station Where Everything Is Eclectic**\
 `Music played by D.J.s like Flo Dill on NTS encompasses obscure ambient tracks and timeworn dad rock. The approach has won it fans far beyond its London home.`\
 https://nytimes.com/2024/05/03/arts/music/nts-radio-flo-dill.html
