@@ -1,3 +1,7 @@
+**Officer Accidentally Fired a Gun at Columbia University, N.Y.P.D. Says**\
+`The police said a sergeant unintentionally fired his gun into an empty room of Hamilton Hall while officers were removing pro-Palestinian protesters from the building.`\
+https://nytimes.com/video/nyregion/100000009447113/columbia-nypd-gun-hamilton-hall-protest.html
+
 **‘Access Hollywood’ Tape Rattled Trump’s Campaign, Hicks Recalls in Testimony**\
 `Hope Hicks, Donald J. Trump’s campaign press secretary in 2016, testified about the infamous recording, which captured him bragging about grabbing women’s genitals. It was revealed by The Washington Post a month before the election.`\
 https://nytimes.com/2024/05/03/nyregion/access-hollywood-tape-trump-trial.html
