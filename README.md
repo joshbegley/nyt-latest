@@ -1,3 +1,7 @@
+**U.S.C. Announces New Commencement Plans After Canceling its Main Ceremony**\
+`The university said it would hold a celebration at the Los Angeles Memorial Coliseum. More than 100 school-specific graduations and smaller receptions will also take place with tighter security.`\
+https://nytimes.com/2024/05/03/us/usc-graduation-campus-protests.html
+
 **Mississippi’s First Serious Bid to Expand Medicaid Collapses**\
 `State lawmakers failed to reach a compromise, dashing hopes of extending largely free health care to most low-income residents and supporting struggling rural hospitals.`\
 https://nytimes.com/2024/05/03/us/mississippi-medicaid-expansion.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/03/arts/star-wars-films-george-lucas.html
 **Two hostages, initially thought to be missing, are confirmed dead by the Israeli military.**\
 `By Gaya Gupta`\
 https://nytimes.com/live/2024/05/03/world/israel-gaza-war-hamas/two-hostages-initially-thought-to-be-missing-are-confirmed-dead-by-the-israeli-military
-
-**Henry Cuellar Indicted Over Bribery Scheme**\
-`Mr. Cuellar and his wife are accused of accepting bribes from a bank in Mexico City and from an oil and gas company owned by Azerbaijan. He has maintained they are innocent.`\
-https://nytimes.com/2024/05/03/us/politics/henry-cuellar-indictment.html
 
