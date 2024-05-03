@@ -1,3 +1,11 @@
+**Small Bedroom Ideas: The Best Ways to Maximize Your Tiny Space**\
+`How to store and decorate in a modest room.`\
+https://nytimes.com/interactive/2024/05/03/smarter-living/wirecutter/small-bedroom-ideas.html
+
+**Canadian Police Arrest 3 in Slaying of Sikh Leader**\
+`The killing of Hardeep Singh Nijjar, a Sikh nationalist who led a temple in British Columbia, set off diplomatic skirmishes between Canada and India.`\
+https://nytimes.com/2024/05/03/world/canada/arrests-hardeep-singh-nijjar-india.html
+
 **Good Luck Isn’t Good Enough to Fight Bird Flu**\
 `It took a pair of alert veterinarians to tell the world about H5N1 in cows.`\
 https://nytimes.com/live/2024/05/01/opinion/thepoint/bird-flu-cows-texas
