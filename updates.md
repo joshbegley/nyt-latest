@@ -1,3 +1,11 @@
+**Kendrick Lamar Gets Inspired (by Drake), and 9 More New Songs**\
+`Hear tracks by Miranda Lambert, Illuminati Hotties, Mabe Fratti and others.`\
+https://nytimes.com/2024/05/03/arts/music/playlist-kendrick-lamar-miranda-lambert.html
+
+**Liberia Moves to Create War Crimes Court, Decades After Civil Wars Ended**\
+`Until now, key players had blocked the establishment of a court that could hold them accountable for atrocities like murder, rape and torture.`\
+https://nytimes.com/2024/05/03/world/africa/liberia-court-war-crimes.html
+
 **U.S. employers added 175,000 jobs in April.**\
 `By Lydia DePillis`\
 https://nytimes.com/live/2024/05/03/business/jobs-report-april-economy/us-employers-added-175000-jobs-in-april
