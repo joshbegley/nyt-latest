@@ -1,3 +1,7 @@
+**Adams Administration and N.Y. City Council Trade Harassment Accusations**\
+`The Council speaker requested an investigation of police officials’ use of social media to attack critics. The mayor’s office asked for an inquiry into a councilman’s behavior.`\
+https://nytimes.com/2024/05/03/nyregion/police-critics-social-media.html
+
 **Trump and His One-Time Confidante Meet Again, This Time in a Courtroom**\
 `Hope Hicks, once a spokeswoman for Donald J. Trump, broke down in tears on the witness stand as she talked about their time together.`\
 https://nytimes.com/2024/05/03/nyregion/trump-trial-hope-hicks-testimony.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/01/opinion/thepoint/bird-flu-cows-texas
 **A Conversation With Colm Tóibín**\
 `The Irish author discusses “Long Island,” the sequel to his 2009 novel “Brooklyn.”`\
 https://nytimes.com/2024/05/03/books/review/a-conversation-with-colm-toibin.html
-
-**New Mutations Identified in Bird Flu Virus**\
-`A genetic analysis sheds light on when the outbreak began, how the virus spread and where it may be going.`\
-https://nytimes.com/2024/05/03/health/bird-flu-cows-mutations.html
 
