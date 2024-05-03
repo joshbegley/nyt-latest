@@ -1,3 +1,7 @@
+**Iran Says It Released Crew of Israel-Linked Ship It Detained**\
+`Iranian forces seized the Portuguese-flagged ship, the MSC Aries, as tensions between Iran and Israel were rising.`\
+https://nytimes.com/2024/05/03/world/middleeast/iran-israel-ship-crew.html
+
 **The Side Effects of Covid Vaccines**\
 `Thousands of Americans have filed vaccine-injury claims with the federal government.`\
 https://nytimes.com/2024/05/03/briefing/covid-vaccine-side-effects.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/03/us/politics/immigrants-daca-health-care.html
 **How to Survive Your High School Reunion**\
 `Step one: Manage your expectations.`\
 https://nytimes.com/2024/05/03/well/live/high-school-reunion.html
-
-**5 Things to Do This Weekend**\
-`Selections from the Weekend section, including a review of Jane Schoenbrun’s “I Saw the TV Glow.”`\
-https://nytimes.com/interactive/2024/05/03/arts/weekend-editors-picks-i-saw-the-tv-glow.html
 

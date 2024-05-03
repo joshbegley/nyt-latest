@@ -1,3 +1,7 @@
+**Iran Says It Released Crew of Israel-Linked Ship It Detained**\
+`Iranian forces seized the Portuguese-flagged ship, the MSC Aries, as tensions between Iran and Israel were rising.`\
+https://nytimes.com/2024/05/03/world/middleeast/iran-israel-ship-crew.html
+
 **The Side Effects of Covid Vaccines**\
 `Thousands of Americans have filed vaccine-injury claims with the federal government.`\
 https://nytimes.com/2024/05/03/briefing/covid-vaccine-side-effects.html
