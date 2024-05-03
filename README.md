@@ -1,3 +1,7 @@
+**U.S. Seeks to Build World Pressure on Russia Over Space Nuclear Weapon**\
+`An American official said the United States had information undermining Russia’s claim that a device it is developing is for peaceful scientific research.`\
+https://nytimes.com/2024/05/03/us/politics/russia-space-nuclear-weapon.html
+
 **C.J. Sansom, Mystery Novelist Drawn to Tudor England, Dies at 71**\
 `He wrote a popular series of books revolving around a hunchbacked detective, Shardlake, whose troubles echo the author’s experiences of childhood bullying.`\
 https://nytimes.com/2024/05/03/books/cj-sansom-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/03/business/media/paramount-skydance-exclusive-talks
 **Kristi Noem’s New Book Falsely Says She Met Kim Jong-un**\
 `“I’m sure he underestimated me,” Ms. Noem writes of the North Korean leader in her forthcoming book. A spokesman said the error would be corrected.`\
 https://nytimes.com/2024/05/03/us/politics/kristi-noem-book-kim-jong-un.html
-
-**As Turkey Cuts Trade Ties, Israel’s Isolation Grows**\
-`Turkey said it would not resume trade with Israel until a “permanent cease-fire” in Gaza. The move came after a number of countries cut diplomatic ties with Israel.`\
-https://nytimes.com/2024/05/03/world/middleeast/turkey-israel-gaza-cease-fire.html
 
