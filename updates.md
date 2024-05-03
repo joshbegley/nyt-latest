@@ -1,3 +1,7 @@
+**Georgia Bucks Bail Reform, but at What Cost?**\
+`It’s an unfortunate moment for the state to virtually eliminate the repeat posting of bail.`\
+https://nytimes.com/live/2024/05/01/opinion/thepoint/georgia-bail-reform
+
 **The Actor Who Played Jar Jar Binks Is Proud of His ‘Star Wars’ Legacy**\
 `Ahmed Best recalls the painful backlash to the “Phantom Menace” character that was considered a racial stereotype at the time, but is now embraced by fans.`\
 https://nytimes.com/2024/05/03/movies/jar-jar-binks-actor-star-wars-ahmed-best.html
