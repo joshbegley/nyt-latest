@@ -1,3 +1,7 @@
+**The Fed gets evidence that the job market is cooling, including slower wage gains.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/05/03/business/jobs-report-april-economy/the-fed-gets-evidence-that-the-job-market-is-cooling-including-slower-wage-gains
+
 **Medical Debt Shows Up Less Often on Credit Reports**\
 `But the Consumer Financial Protection Bureau said 15 million people still had medical bills in their files, which can make it hard to qualify for loans.`\
 https://nytimes.com/2024/05/03/your-money/medical-debt-credit-reports.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/03/business/jobs-report-april-economy/data-show
 **For the Federal Reserve, unemployment and wages are in focus.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/05/03/business/jobs-report-april-economy/for-the-federal-reserve-unemployment-and-wages-are-in-focus
-
-**03jobs-report**\
-`Live Updates: U.S. Job Growth Slows`\
-https://nytimes.com/live/2024/05/03/business/jobs-report-april-economy
 
