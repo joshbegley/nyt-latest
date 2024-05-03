@@ -1,3 +1,7 @@
+**Review: At New York City Ballet’s Gala, the Usual With a Twist**\
+`The two premieres — one by Justin Peck, one by Amy Hall Garner — were gala-style pieces that felt more fresh than rote.`\
+https://nytimes.com/2024/05/03/arts/dance/review-city-ballet-gala-justin-peck-amy-hall-garner.html
+
 **Nuclear Power as a Clean Energy Tool?**\
 `Readers discuss an Opinion guest essay calling that a fantasy. Also: Quality at Boeing; a toilet sign; running, fast and slow.`\
 https://nytimes.com/2024/05/03/opinion/nuclear-power-energy.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/28/us/biden-trump-campaign/biden-trump-jobs-rep
 **Biden vs. Trump, through the prism of the campus protests.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/04/28/us/biden-trump-campaign/biden-vs-trump-through-the-prism-of-the-campus-protests
-
-**Auditor That Works for Trump Media Is Charged With Fraud**\
-`Regulators said BF Borgers failed to abide by accounting rules that its public company clients are required to follow.`\
-https://nytimes.com/2024/05/03/business/auditor-trump-media-fraud.html
 
