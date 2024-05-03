@@ -6,9 +6,9 @@ https://nytimes.com/2024/05/03/arts/dance/review-city-ballet-gala-justin-peck-am
 `Readers discuss an Opinion guest essay calling that a fantasy. Also: Quality at Boeing; a toilet sign; running, fast and slow.`\
 https://nytimes.com/2024/05/03/opinion/nuclear-power-energy.html
 
-**What is the ‘Access Hollywood’ tape?**\
-`By Jesse McKinley`\
-https://nytimes.com/live/2024/05/03/nyregion/trump-hush-money-trial/what-is-the-access-hollywood-tape
+**The ‘Access Hollywood’ tape rattled Trump’s campaign, a former aide says.**\
+`The aide, Hope Hicks, was Donald J. Trump’s campaign press secretary in 2016. The recording, which captured him bragging about grabbing women’s genitals, was published by The Washington Post a month before the election.`\
+https://nytimes.com/2024/05/03/nyregion/access-hollywood-tape-trump-trial.html
 
 **15-Year-Old Girl Charged With Murder in Stabbing Death of Bronx Teenager**\
 `The victim, identified by the police as Emery Mizell, 17, was attacked at an apartment building in the Soundview neighborhood of the Bronx.`\
