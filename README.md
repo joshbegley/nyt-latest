@@ -1,3 +1,11 @@
+**Winners and Losers of the Columbia Protests? History Will Tell.**\
+`Activism often lands on the right side of history. But history also shows that tactical mistakes — and smashing windows — can weaken protests’ effectiveness.`\
+https://nytimes.com/2024/05/03/nyregion/columbia-protests-new-york.html
+
+**Who is Hope Hicks, Once One of Trump’s Most Trusted Advisers?**\
+`Ms. Hicks, testifying in Donald J. Trump’s criminal trial, is expected to be asked about the hush money payment at the center of the case against him.`\
+https://nytimes.com/2024/05/03/nyregion/hope-hicks-trump-trial.html
+
 **TikTok Tells Advertisers: ‘We Are Not Backing Down’**\
 `Hundreds of marketers and ad agency types flocked to TikTok’s annual sales presentation after a new law put its future in question.`\
 https://nytimes.com/2024/05/03/business/media/tiktok-advertisers.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/03/t-magazine/philip-johnson-brick-house.html
 **At Frieze, Photographer of Gay Life Seeks ‘a Place in the Sunshine’**\
 `Stanley Stellar  has documented gay New York, on the streets and in his studio, for decades. Now he steps onto his biggest stage.`\
 https://nytimes.com/2024/05/03/arts/design/stanley-stellar-frieze-photography.html
-
-**Punchy, Potent Tuna Puttanesca**\
-`Don’t stint on the anchovies.`\
-https://nytimes.com/2024/05/03/dining/punchy-potent-tuna-puttanesca.html
-
-**Five International Movies to Stream Now**\
-`This month’s picks include a Mexican family drama, a Palestinian coming-of-age tale, a high-school movie from Ukraine and more.`\
-https://nytimes.com/2024/05/03/movies/five-international-movies-to-stream-now.html
 
