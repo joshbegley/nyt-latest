@@ -1,3 +1,7 @@
+**Sam Ash Music Stores to Close After 100 Years in Business**\
+`The chain, which started with a single shop in Brooklyn in 1924, said it would close all 42 of its locations by the end of July, citing competition from online retailers.`\
+https://nytimes.com/2024/05/03/business/sam-ash-music-closing-stores.html
+
 **U.S. Seeks to Build World Pressure on Russia Over Space Nuclear Weapon**\
 `An American official said the United States had information undermining Russia’s claim that a device it is developing is for peaceful scientific research.`\
 https://nytimes.com/2024/05/03/us/politics/russia-space-nuclear-weapon.html

@@ -14,7 +14,7 @@ https://nytimes.com/2024/05/03/nyregion/hope-hicks-testimony-trump-trial.html
 `The New York Times used videos filmed by journalists, witnesses and protesters to analyze hours of clashes — and a delayed police response — at a pro-Palestinian encampment on Tuesday.`\
 https://nytimes.com/interactive/2024/05/03/us/ucla-protests-encampment-violence.html
 
-**Sam Ash Music Stores to Close After 100 Years In Business**\
+**Sam Ash Music Stores to Close After 100 Years in Business**\
 `The chain, which started with a single shop in Brooklyn in 1924, said it would close all 42 of its locations by the end of July, citing competition from online retailers.`\
 https://nytimes.com/2024/05/03/business/sam-ash-music-closing-stores.html
 
