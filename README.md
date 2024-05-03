@@ -1,6 +1,14 @@
+**How ‘Star Wars’ Fans Saved the Original Movies**\
+`George Lucas wants them to fade into oblivion. But some rebel fans spent more than a decade digitally restoring the original “Star Wars” trilogy, preserving the movies as they were shown in theaters.`\
+https://nytimes.com/2024/05/03/arts/star-wars-films-george-lucas.html
+
+**Two hostages, initially thought to be missing, are confirmed dead by the Israeli military.**\
+`By Gaya Gupta`\
+https://nytimes.com/live/2024/05/03/world/israel-gaza-war-hamas/two-hostages-initially-thought-to-be-missing-are-confirmed-dead-by-the-israeli-military
+
 **Henry Cuellar Indicted Over Bribery Scheme**\
-`Mr. Cuellar, who has maintained his innocence, and his wife are accused of accepting bribes from a bank in Mexico City and from an oil and gas company owned by Azerbaijan.`\
-https://nytimes.com/2024/05/03/us/henry-cuellar-indictment.html
+`Mr. Cuellar and his wife are accused of accepting bribes from a bank in Mexico City and from an oil and gas company owned by Azerbaijan. He has maintained they are innocent.`\
+https://nytimes.com/2024/05/03/us/politics/henry-cuellar-indictment.html
 
 **Outside court, high-volume debate and a paper crown.**\
 `By Nate Schweber`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/03/us/university-of-chicago-protest.html
 **The Best of Late Night This Week**\
 `This week, the hosts discussed a revelation from the South Dakota governor, Kristi Noem, as well as former President Trump’s apparent inability to stay awake in his Manhattan criminal trial. Here’s what they had to say.`\
 https://nytimes.com/interactive/2024/05/03/arts/television/best-of-late-night-kristi-noem.html
-
-**Voters Swing to Labour in English Local Elections: Key Takeaways**\
-`While the ballots were still being counted on Friday, big losses for the Conservative Party could signal a difficult general election later this year.`\
-https://nytimes.com/2024/05/03/world/europe/voters-england-elections-takeaways.html
-
-**Georgia Bucks Bail Reform, but at What Cost?**\
-`It’s an unfortunate moment for the state to virtually eliminate the repeat posting of bail.`\
-https://nytimes.com/live/2024/05/01/opinion/thepoint/georgia-bail-reform
 
