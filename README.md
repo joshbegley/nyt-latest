@@ -1,3 +1,7 @@
+**Ballot-Access Consultant for R.F.K. Jr. Was Arrested on Assault Charges**\
+`The consultant, Trent Pool, was arrested at a Manhattan hotel last weekend after a woman said he had assaulted her, according to the police.`\
+https://nytimes.com/2024/05/03/us/politics/rfk-jr-operative-assault.html
+
 **Review: At New York City Ballet’s Gala, the Usual With a Twist**\
 `The two premieres — one by Justin Peck, one by Amy Hall Garner — were gala-style pieces that felt more fresh than rote.`\
 https://nytimes.com/2024/05/03/arts/dance/review-city-ballet-gala-justin-peck-amy-hall-garner.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/03/books/review/new-books-recommendations.html
 **Biden and Trump tussle over the economy with the new jobs report.**\
 `polls show voters continue to be displeased with prices and the overall economy.`\
 https://nytimes.com/live/2024/04/28/us/biden-trump-campaign/biden-trump-jobs-report
-
-**Biden vs. Trump, through the prism of the campus protests.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/04/28/us/biden-trump-campaign/biden-vs-trump-through-the-prism-of-the-campus-protests
 
