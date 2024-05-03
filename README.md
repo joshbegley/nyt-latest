@@ -1,3 +1,11 @@
+**Biden and Trump tussle over the economy with the new jobs report.**\
+`polls show voters continue to be displeased with prices and the overall economy.`\
+https://nytimes.com/2024/05/03/us/politics/biden-and-trump-tussle-over-the-economy-with-the-new-jobs-report.html
+
+**Biden vs. Trump, through the prism of the campus protests.**\
+`By Chris Cameron`\
+https://nytimes.com/2024/05/03/us/politics/biden-vs-trump-through-the-prism-of-the-campus-protests.html
+
 **Auditor That Works for Trump Media Charged With Fraud**\
 `Regulators said BF Borgers failed to abide by accounting rules that its public company clients are required to follow.`\
 https://nytimes.com/2024/05/03/business/auditor-trump-media-fraud.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/03/world/europe/champions-league-dortmund-bayern.htm
 **Watch Ryan Gosling Perform His Own Stunt in ‘The Fall Guy’**\
 `The director David Leitch narrates a sequence from the film featuring Gosling and Emily Blunt.`\
 https://nytimes.com/2024/05/03/movies/the-fall-guy-scene.html
-
-**Police Remove Dozens of Protesters from Sciences Po University in Paris**\
-`Student demonstrators had been occupying a campus building in central Paris, in protest over the war in Gaza. French police cleared the building on Friday.`\
-https://nytimes.com/video/world/middleeast/100000009446756/police-remove-dozens-of-protesters-from-sciences-po-university-in-paris.html
-
-**‘The Fall Guy’ | Anatomy of a Scene**\
-`The director David Leitch narrates a sequence from his film featuring Ryan Gosling and Emily Blunt.`\
-https://nytimes.com/video/movies/100000009444739/the-fall-guy-scene.html
 
