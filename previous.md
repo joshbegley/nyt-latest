@@ -1,3 +1,15 @@
+**Nuclear Power as a Clean Energy Tool?**\
+`Readers discuss an Opinion guest essay calling that a fantasy. Also: Quality at Boeing; a toilet sign; running, fast and slow.`\
+https://nytimes.com/2024/05/03/opinion/nuclear-power-energy.html
+
+**What is the ‘Access Hollywood’ tape?**\
+`By Jesse McKinley`\
+https://nytimes.com/live/2024/05/03/nyregion/trump-hush-money-trial/what-is-the-access-hollywood-tape
+
+**15-Year-Old Girl Charged With Murder in Stabbing Death of Bronx Teenager**\
+`The victim, identified by the police as Emery Mizell, 17, was attacked at an apartment building in the Soundview neighborhood of the Bronx.`\
+https://nytimes.com/2024/05/03/nyregion/teenager-stabbing-murder-bronx.html
+
 **Kendrick Lamar Gets Inspired (by Drake), and 9 More New Songs**\
 `Hear tracks by Miranda Lambert, Illuminati Hotties, Mabe Fratti and others.`\
 https://nytimes.com/2024/05/03/arts/music/playlist-kendrick-lamar-miranda-lambert.html
@@ -22,19 +34,7 @@ https://nytimes.com/live/2024/04/28/us/biden-trump-campaign/biden-trump-jobs-rep
 `By Chris Cameron`\
 https://nytimes.com/live/2024/04/28/us/biden-trump-campaign/biden-vs-trump-through-the-prism-of-the-campus-protests
 
-**Auditor That Works for Trump Media Charged With Fraud**\
+**Auditor That Works for Trump Media Is Charged With Fraud**\
 `Regulators said BF Borgers failed to abide by accounting rules that its public company clients are required to follow.`\
 https://nytimes.com/2024/05/03/business/auditor-trump-media-fraud.html
-
-**Police Clear Tents and Arrest N.Y.U. and New School Protesters**\
-`Protesters had been camped out for days, demanding that their schools end financial ties with Israel.`\
-https://nytimes.com/2024/05/03/us/nyu-new-school-protest-arrests.html
-
-**Winners and Losers of the Columbia Protests? History Will Tell.**\
-`Activism often lands on the right side of history. But history also shows that tactical mistakes — and smashing windows — can weaken protests’ effectiveness.`\
-https://nytimes.com/2024/05/03/nyregion/columbia-protests-new-york.html
-
-**Who is Hope Hicks, Once One of Trump’s Most Trusted Advisers?**\
-`Ms. Hicks, testifying in Donald J. Trump’s criminal trial, is expected to be asked about the hush money payment at the center of the case against him.`\
-https://nytimes.com/2024/05/03/nyregion/hope-hicks-trump-trial.html
 

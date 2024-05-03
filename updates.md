@@ -1,3 +1,19 @@
+**Nuclear Power as a Clean Energy Tool?**\
+`Readers discuss an Opinion guest essay calling that a fantasy. Also: Quality at Boeing; a toilet sign; running, fast and slow.`\
+https://nytimes.com/2024/05/03/opinion/nuclear-power-energy.html
+
+**What is the ‘Access Hollywood’ tape?**\
+`By Jesse McKinley`\
+https://nytimes.com/live/2024/05/03/nyregion/trump-hush-money-trial/what-is-the-access-hollywood-tape
+
+**15-Year-Old Girl Charged With Murder in Stabbing Death of Bronx Teenager**\
+`The victim, identified by the police as Emery Mizell, 17, was attacked at an apartment building in the Soundview neighborhood of the Bronx.`\
+https://nytimes.com/2024/05/03/nyregion/teenager-stabbing-murder-bronx.html
+
+**Auditor That Works for Trump Media Is Charged With Fraud**\
+`Regulators said BF Borgers failed to abide by accounting rules that its public company clients are required to follow.`\
+https://nytimes.com/2024/05/03/business/auditor-trump-media-fraud.html
+
 **Kendrick Lamar Gets Inspired (by Drake), and 9 More New Songs**\
 `Hear tracks by Miranda Lambert, Illuminati Hotties, Mabe Fratti and others.`\
 https://nytimes.com/2024/05/03/arts/music/playlist-kendrick-lamar-miranda-lambert.html
