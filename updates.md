@@ -1,3 +1,7 @@
+**Police Treatment of a Dartmouth Professor Stirs Anger and Debate**\
+`A video showing Annelise Orleck, 65, being taken to the ground intensified criticism of the decision by the college’s president to call in officers.`\
+https://nytimes.com/2024/05/03/us/dartmouth-professor-police-protests.html
+
 **Campus Protests Over Gaza Spotlight the Work of Student Journalists**\
 `Columbia University’s radio station and other student-led news outlets have provided some of the most detailed coverage of the turmoil engulfing university campuses.`\
 https://nytimes.com/2024/05/03/business/media/campus-protests-columbia-student-media-gaza.html
