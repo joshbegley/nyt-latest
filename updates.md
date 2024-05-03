@@ -1,3 +1,7 @@
+**Jill Biden Hosts Gala, With Teachers as the Honored Dignitaries**\
+`The first lady commended the winner of the National Teacher of the Year award during an event evoking formal state dinners.`\
+https://nytimes.com/2024/05/02/us/politics/jill-biden-teacher-awards.html
+
 **Some workers in the University of California system could strike over U.C.L.A. treatment.**\
 `A union representing academic workers said it would file unfair labor charges against the University of California, Los Angeles, and potentially walk out over the handling of protests this week.`\
 https://nytimes.com/live/2024/05/02/us/ucla-protests-college-campus/some-workers-in-the-university-of-california-system-could-strike-over-ucla-treatment
