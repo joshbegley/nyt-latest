@@ -1,3 +1,7 @@
+**Israel is under pressure to bring an end to the war in Gaza.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/05/03/world/israel-gaza-war-hamas/israel-is-under-pressure-to-bring-an-end-to-the-war-in-gaza
+
 **What Will Warren Buffett Bet on Next?**\
 `Berkshire Hathaway shareholders will gather in Omaha for the conglomerate’s annual meeting on Saturday, with questions about the company’s future.`\
 https://nytimes.com/2024/05/03/business/dealbook/warren-buffett-berkshire-hathaway-agm.html
