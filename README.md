@@ -1,3 +1,11 @@
+**Mississippi’s First Serious Bid to Expand Medicaid Collapses**\
+`State lawmakers failed to reach a compromise, dashing hopes of extending largely free health care to most low-income residents and supporting struggling rural hospitals.`\
+https://nytimes.com/2024/05/03/us/mississippi-medicaid-expansion.html
+
+**Latino Advocacy Groups Call Trump’s Deportation Plans a Danger to Democracy**\
+`The political arms of five organizations are coordinating their efforts to mobilize Hispanic Democrats, saying that defeating the former president is their top goal.`\
+https://nytimes.com/2024/05/03/us/politics/latino-groups-oppose-trump.html
+
 **What Would Happen if the U.S. Suddenly Seemed Like a Risky Investment?**\
 `The American economy has long been a safe haven, but it might not be forever.`\
 https://nytimes.com/2024/05/03/opinion/american-economy-global-investors.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/05/03/world/israel-gaza-war-hamas/two-hostages-ini
 **Henry Cuellar Indicted Over Bribery Scheme**\
 `Mr. Cuellar and his wife are accused of accepting bribes from a bank in Mexico City and from an oil and gas company owned by Azerbaijan. He has maintained they are innocent.`\
 https://nytimes.com/2024/05/03/us/politics/henry-cuellar-indictment.html
-
-**Outside court, high-volume debate and a paper crown.**\
-`By Nate Schweber`\
-https://nytimes.com/live/2024/05/03/nyregion/trump-hush-money-trial/outside-court-high-volume-debate-and-a-paper-crown
-
-**As Rains Lash South Texas, Residents Brace for More Flooding**\
-`More than 800,000 people were under flash flood warnings in the Houston area and other parts of South Texas on Friday.`\
-https://nytimes.com/2024/05/03/us/texas-rain-flooding-houston.html
 
