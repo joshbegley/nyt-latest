@@ -1,3 +1,7 @@
+**Campus Protests Over Gaza Spotlight the Work of Student Journalists**\
+`Columbia University’s radio station and other student-led news outlets have provided some of the most detailed coverage of the turmoil engulfing university campuses.`\
+https://nytimes.com/2024/05/03/business/media/campus-protests-columbia-student-media-gaza.html
+
 **‘We Will Save Our Beef’: Florida Bans Lab-Grown Meat**\
 `Other states have also considered restrictions, citing concerns about farmers’ livelihoods and food safety, though the product isn’t expected to be widely available for years.`\
 https://nytimes.com/2024/05/03/climate/florida-lab-grown-meat-ban.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/03/business/min-matheson-overlooked.html
 **U.S.C. Announces New Commencement Plans After Canceling its Main Ceremony**\
 `The university said it would hold a celebration at the Los Angeles Memorial Coliseum. More than 100 school-specific graduations and smaller receptions will also take place with tighter security.`\
 https://nytimes.com/2024/05/03/us/usc-graduation-campus-protests.html
-
-**Mississippi’s First Serious Bid to Expand Medicaid Collapses**\
-`State lawmakers failed to reach a compromise, dashing hopes of extending largely free health care to most low-income residents and supporting struggling rural hospitals.`\
-https://nytimes.com/2024/05/03/us/mississippi-medicaid-expansion.html
 
