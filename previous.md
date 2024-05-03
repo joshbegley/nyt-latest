@@ -1,3 +1,7 @@
+**Horse Racing’s Loudest Critic Is Favored in Its Biggest Race**\
+`The brash owner Mike Repole will take a break from tweaking horse racing’s powers when his colt Fierceness runs in the Kentucky Derby on Saturday.`\
+https://nytimes.com/2024/05/03/business/kentucky-derby-mike-repole-fierceness.html
+
 **Pro-Palestinian Encampments Spread to Campuses in Other Countries**\
 `Student activists in Australia, Britain, France and elsewhere are challenging their universities’ stances on the war in Gaza and ties to Israel.`\
 https://nytimes.com/2024/05/03/world/palestinian-protests-france-australia-uk.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/03/nyregion/trump-hush-money-trial
 **Biden to Honor Prominent Democrats With Presidential Medal of Freedom**\
 `Six months before the election, the president selected a list of awardees heavy with political allies like Nancy Pelosi, James E. Clyburn and John F. Kerry.`\
 https://nytimes.com/2024/05/03/us/politics/biden-presidential-medal-freedom.html
-
-**Israel is under pressure to bring an end to the war in Gaza.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/05/03/world/israel-gaza-war-hamas/israel-is-under-pressure-to-bring-an-end-to-the-war-in-gaza
 

@@ -1,3 +1,7 @@
+**Horse Racing’s Loudest Critic Is Favored in Its Biggest Race**\
+`The brash owner Mike Repole will take a break from tweaking horse racing’s powers when his colt Fierceness runs in the Kentucky Derby on Saturday.`\
+https://nytimes.com/2024/05/03/business/kentucky-derby-mike-repole-fierceness.html
+
 **Pro-Palestinian Encampments Spread to Campuses in Other Countries**\
 `Student activists in Australia, Britain, France and elsewhere are challenging their universities’ stances on the war in Gaza and ties to Israel.`\
 https://nytimes.com/2024/05/03/world/palestinian-protests-france-australia-uk.html
