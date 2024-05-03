@@ -1,3 +1,7 @@
+**Jobs Data Revives Wall Street’s Hopes for a Rate Cut**\
+`A cooler-than-expected jobs report for April shifted the tone on Wall Street, rekindling investors’ expectations that the Federal Reserve may cut rates soon.`\
+https://nytimes.com/2024/05/03/business/jobs-report-april-market-reaction.html
+
 **Small Bedroom Ideas: The Best Ways to Maximize Your Tiny Space**\
 `How to store and decorate in a modest room.`\
 https://nytimes.com/interactive/2024/05/03/smarter-living/wirecutter/small-bedroom-ideas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/03/us/mississippi-medicaid-expansion.html
 **Latino Advocacy Groups Call Trump’s Deportation Plans a Danger to Democracy**\
 `The political arms of five organizations are coordinating their efforts to mobilize Hispanic Democrats, saying that defeating the former president is their top goal.`\
 https://nytimes.com/2024/05/03/us/politics/latino-groups-oppose-trump.html
-
-**What Would Happen if the U.S. Suddenly Seemed Like a Risky Investment?**\
-`The American economy has long been a safe haven, but it might not be forever.`\
-https://nytimes.com/2024/05/03/opinion/american-economy-global-investors.html
 

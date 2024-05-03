@@ -1,3 +1,7 @@
+**Jobs Data Revives Wall Street’s Hopes for a Rate Cut**\
+`A cooler-than-expected jobs report for April shifted the tone on Wall Street, rekindling investors’ expectations that the Federal Reserve may cut rates soon.`\
+https://nytimes.com/2024/05/03/business/jobs-report-april-market-reaction.html
+
 **Small Bedroom Ideas: The Best Ways to Maximize Your Tiny Space**\
 `How to store and decorate in a modest room.`\
 https://nytimes.com/interactive/2024/05/03/smarter-living/wirecutter/small-bedroom-ideas.html
