@@ -1,3 +1,7 @@
+**University of Chicago President Says ‘Encampment Cannot Continue’**\
+`The university is home to the Chicago statement, a framework for free expression that has been embraced by other colleges.`\
+https://nytimes.com/2024/05/03/us/university-of-chicago-protest.html
+
 **The Best of Late Night This Week**\
 `This week, the hosts discussed a revelation from the South Dakota governor, Kristi Noem, as well as former President Trump’s apparent inability to stay awake in his Manhattan criminal trial. Here’s what they had to say.`\
 https://nytimes.com/interactive/2024/05/03/arts/television/best-of-late-night-kristi-noem.html
