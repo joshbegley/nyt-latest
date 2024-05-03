@@ -1,3 +1,7 @@
+**Friday Briefing**\
+`Hamas considers a cease-fire.`\
+https://nytimes.com/2024/05/03/briefing/hamas-ceasefire-russia-chemical-weapons.html
+
 **When Your Job Is 80 Miles Out at Sea, Getting There Is Half the Battle**\
 `Oil platform crews work long days for weeks at a time. But the flight to the platform is so risky that they must take a survival course. `\
 https://nytimes.com/card/2024/05/03/business/energy-environment/shell-oil-platform-training
