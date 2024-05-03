@@ -1,3 +1,11 @@
+**Paramount Will Let Exclusive Talks With Skydance Lapse, Imperiling Deal**\
+`Negotiations are now likely to focus on another suitor, Sony, which has teamed up with the private equity giant Apollo on a $26 billion bid.`\
+https://nytimes.com/2024/05/03/business/media/paramount-skydance-exclusive-talks-lapse.html
+
+**Kristi Noem’s New Book Falsely Says She Met Kim Jong-un**\
+`“I’m sure he underestimated me,” Ms. Noem writes of the North Korean leader in her forthcoming book. A spokesman said the error would be corrected.`\
+https://nytimes.com/2024/05/03/us/politics/kristi-noem-book-kim-jong-un.html
+
 **As Turkey Cuts Trade Ties, Israel’s Isolation Grows**\
 `Turkey said it would not resume trade with Israel until a “permanent cease-fire” in Gaza. The move came after a number of countries cut diplomatic ties with Israel.`\
 https://nytimes.com/2024/05/03/world/middleeast/turkey-israel-gaza-cease-fire.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/03/us/dartmouth-professor-police-protests.html
 **Campus Protests Over Gaza Spotlight the Work of Student Journalists**\
 `Columbia University’s radio station and other student-led news outlets have provided some of the most detailed coverage of the turmoil engulfing university campuses.`\
 https://nytimes.com/2024/05/03/business/media/campus-protests-columbia-student-media-gaza.html
-
-**‘We Will Save Our Beef’: Florida Bans Lab-Grown Meat**\
-`Other states have also considered restrictions, citing concerns about farmers’ livelihoods and food safety, though the product isn’t expected to be widely available for years.`\
-https://nytimes.com/2024/05/03/climate/florida-lab-grown-meat-ban.html
-
-**Jobs Data Revives Wall Street’s Hopes for a Rate Cut**\
-`A cooler-than-expected jobs report for April shifted the tone on Wall Street, rekindling investors’ expectations that the Federal Reserve may cut rates soon.`\
-https://nytimes.com/2024/05/03/business/jobs-report-april-market-reaction.html
 

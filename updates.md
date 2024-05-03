@@ -1,3 +1,11 @@
+**Paramount Will Let Exclusive Talks With Skydance Lapse, Imperiling Deal**\
+`Negotiations are now likely to focus on another suitor, Sony, which has teamed up with the private equity giant Apollo on a $26 billion bid.`\
+https://nytimes.com/2024/05/03/business/media/paramount-skydance-exclusive-talks-lapse.html
+
+**Kristi Noem’s New Book Falsely Says She Met Kim Jong-un**\
+`“I’m sure he underestimated me,” Ms. Noem writes of the North Korean leader in her forthcoming book. A spokesman said the error would be corrected.`\
+https://nytimes.com/2024/05/03/us/politics/kristi-noem-book-kim-jong-un.html
+
 **As Turkey Cuts Trade Ties, Israel’s Isolation Grows**\
 `Turkey said it would not resume trade with Israel until a “permanent cease-fire” in Gaza. The move came after a number of countries cut diplomatic ties with Israel.`\
 https://nytimes.com/2024/05/03/world/middleeast/turkey-israel-gaza-cease-fire.html
