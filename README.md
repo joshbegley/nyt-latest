@@ -1,3 +1,7 @@
+**The Best of Late Night This Week**\
+`This week, the hosts discussed a revelation from the South Dakota governor, Kristi Noem, as well as former President Trump’s apparent inability to stay awake in his Manhattan criminal trial. Here’s what they had to say.`\
+https://nytimes.com/interactive/2024/05/03/arts/television/best-of-late-night-kristi-noem.html
+
 **Voters Swing to Labour in English Local Elections: Key Takeaways**\
 `While the ballots were still being counted on Friday, big losses for the Conservative Party could signal a difficult general election later this year.`\
 https://nytimes.com/2024/05/03/world/europe/voters-england-elections-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/nyregion/100000009447113/columbia-nypd-gun-hamilton-ha
 **Kendrick Lamar Gets Inspired (by Drake), and 9 More New Songs**\
 `Hear tracks by Miranda Lambert, Illuminati Hotties, Mabe Fratti and others.`\
 https://nytimes.com/2024/05/03/arts/music/playlist-kendrick-lamar-miranda-lambert.html
-
-**Ballot-Access Consultant for R.F.K. Jr. Was Arrested on Assault Charges**\
-`The consultant, Trent Pool, was arrested at a Manhattan hotel last weekend after a woman said he had assaulted her, according to the police.`\
-https://nytimes.com/2024/05/03/us/politics/rfk-jr-operative-assault.html
 
