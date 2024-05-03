@@ -14,9 +14,9 @@ https://nytimes.com/2024/05/02/movies/unfrosted-review.html
 `The first lady commended the winner of the National Teacher of the Year award during an event evoking formal state dinners.`\
 https://nytimes.com/2024/05/02/us/politics/jill-biden-teacher-awards.html
 
-**Some workers in the University of California system could strike over U.C.L.A. treatment.**\
+**University of California Workers May Strike After UCLA Raid**\
 `A union representing academic workers said it would file unfair labor charges against the University of California, Los Angeles, and potentially walk out over the handling of protests this week.`\
-https://nytimes.com/2024/05/02/us/some-workers-in-the-university-of-california-system-could-strike-over-ucla-treatment.html
+https://nytimes.com/2024/05/02/us/university-california-ucla-strike.html
 
 **Israel and Saudi Arabia Are Trading Places**\
 `Netanyahu is making his nation more like the worst of the old kingdom, and the crown prince is making his kingdom more like the best of the old Jewish state.`\

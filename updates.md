@@ -1,3 +1,7 @@
+**University of California Workers May Strike After UCLA Raid**\
+`A union representing academic workers said it would file unfair labor charges against the University of California, Los Angeles, and potentially walk out over the handling of protests this week.`\
+https://nytimes.com/2024/05/02/us/university-california-ucla-strike.html
+
 **Some workers in the University of California system could strike over U.C.L.A. treatment.**\
 `A union representing academic workers said it would file unfair labor charges against the University of California, Los Angeles, and potentially walk out over the handling of protests this week.`\
 https://nytimes.com/2024/05/02/us/some-workers-in-the-university-of-california-system-could-strike-over-ucla-treatment.html
