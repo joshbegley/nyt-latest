@@ -1,3 +1,7 @@
+**‘We Will Save Our Beef’: Florida Bans Lab-Grown Meat**\
+`Other states have also considered restrictions, citing concerns about farmers’ livelihoods and food safety, though the product isn’t expected to be widely available for years.`\
+https://nytimes.com/2024/05/03/climate/florida-lab-grown-meat-ban.html
+
 **Jobs Data Revives Wall Street’s Hopes for a Rate Cut**\
 `A cooler-than-expected jobs report for April shifted the tone on Wall Street, rekindling investors’ expectations that the Federal Reserve may cut rates soon.`\
 https://nytimes.com/2024/05/03/business/jobs-report-april-market-reaction.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/03/us/usc-graduation-campus-protests.html
 **Mississippi’s First Serious Bid to Expand Medicaid Collapses**\
 `State lawmakers failed to reach a compromise, dashing hopes of extending largely free health care to most low-income residents and supporting struggling rural hospitals.`\
 https://nytimes.com/2024/05/03/us/mississippi-medicaid-expansion.html
-
-**Latino Advocacy Groups Call Trump’s Deportation Plans a Danger to Democracy**\
-`The political arms of five organizations are coordinating their efforts to mobilize Hispanic Democrats, saying that defeating the former president is their top goal.`\
-https://nytimes.com/2024/05/03/us/politics/latino-groups-oppose-trump.html
 

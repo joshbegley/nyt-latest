@@ -1,3 +1,7 @@
+**‘We Will Save Our Beef’: Florida Bans Lab-Grown Meat**\
+`Other states have also considered restrictions, citing concerns about farmers’ livelihoods and food safety, though the product isn’t expected to be widely available for years.`\
+https://nytimes.com/2024/05/03/climate/florida-lab-grown-meat-ban.html
+
 **Jobs Data Revives Wall Street’s Hopes for a Rate Cut**\
 `A cooler-than-expected jobs report for April shifted the tone on Wall Street, rekindling investors’ expectations that the Federal Reserve may cut rates soon.`\
 https://nytimes.com/2024/05/03/business/jobs-report-april-market-reaction.html
