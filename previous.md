@@ -1,3 +1,11 @@
+**The Secret Recording Played at Trump’s Trial, and the Latest Cease-Fire Negotiations**\
+`Plus, the shadow over the Kentucky Derby.`\
+https://nytimes.com/2024/05/03/podcasts/the-secret-recording-played-at-trumps-trial-and-the-latest-cease-fire-negotiations.html
+
+**The Protesters and the President**\
+`Over the past week, thousands of students protesting the war in Gaza have been arrested.`\
+https://nytimes.com/2024/05/03/podcasts/the-daily/university-protestest.html
+
 **Here is the latest on campus protests.**\
 `By John Yoon`\
 https://nytimes.com/live/2024/05/03/us/college-campus-protests/here-is-the-latest-on-campus-protests
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/03/opinion/kari-lake-abortion.html
 **The New York Times News Quiz, May 3, 2024**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2024/05/03/briefing/ucla-protests-hells-kitchen-trump-quiz.html
-
-**U.S. Antitrust Case Against Google Is Just the Start**\
-`As the Justice Department’s case against Google nears an end, the federal government has more suits in the pipeline trying to rein in Big Tech.`\
-https://nytimes.com/2024/05/03/technology/google-apple-amazon-meta-antitrust.html
-
-**A New Issue Flares in the 2024 Race: Campus Protests**\
-`With tensions escalating and Republicans pouncing, President Biden finally weighed in and sought to increase the distance between himself and some of the more radical activism on colleges.`\
-https://nytimes.com/2024/05/03/us/politics/biden-trump-campus-protests.html
 

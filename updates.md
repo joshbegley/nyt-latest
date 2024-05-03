@@ -1,3 +1,11 @@
+**The Secret Recording Played at Trump’s Trial, and the Latest Cease-Fire Negotiations**\
+`Plus, the shadow over the Kentucky Derby.`\
+https://nytimes.com/2024/05/03/podcasts/the-secret-recording-played-at-trumps-trial-and-the-latest-cease-fire-negotiations.html
+
+**The Protesters and the President**\
+`Over the past week, thousands of students protesting the war in Gaza have been arrested.`\
+https://nytimes.com/2024/05/03/podcasts/the-daily/university-protestest.html
+
 **Here is the latest on campus protests.**\
 `By John Yoon`\
 https://nytimes.com/live/2024/05/03/us/college-campus-protests/here-is-the-latest-on-campus-protests
