@@ -1,3 +1,7 @@
+**When Your Job Is 80 Miles Out at Sea, Getting There Is Half the Battle**\
+`Oil platform crews work long days for weeks at a time. But the flight to the platform is so risky that they must take a survival course. `\
+https://nytimes.com/card/2024/05/03/business/energy-environment/shell-oil-platform-training
+
 **An Online Radio Station Where Everything Is Eclectic**\
 `Music played by D.J.s like Flo Dill on NTS encompasses obscure ambient tracks and timeworn dad rock. The approach has won it fans far beyond its London home.`\
 https://nytimes.com/2024/05/03/arts/music/nts-radio-flo-dill.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/nyregion/100000009446422/jury-hears-tape-of-trump-and-
 **Cool-Down Stretches**\
 `Eli Cotham makes his New York Times Crossword debut.`\
 https://nytimes.com/2024/05/02/crosswords/daily-puzzle-2024-05-03.html
-
-**‘Unfrosted’ Review: What’s the Deal With Pop-Tarts?**\
-`Starring Jerry Seinfeld in his feature directing debut, “Unfrosted: The Pop-Tarts Story” is the only corporate saga whose main ingredient is high-fructose sarcasm.`\
-https://nytimes.com/2024/05/02/movies/unfrosted-review.html
 
