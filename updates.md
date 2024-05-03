@@ -1,3 +1,7 @@
+**‘The Miser’ Review: Updating Molière, but Missing a Key Ingredient**\
+`This Molière in the Park production doesn’t have the sharp satirical bite of the original.`\
+https://nytimes.com/2024/05/03/theater/the-miser-review-brooklyn.html
+
 **How Counterprotesters at U.C.L.A. Provoked Violence, Unchecked for Hours**\
 `The New York Times used videos filmed by journalists, witnesses and protesters to analyze hours of clashes — and a delayed police response — at a pro-Palestinian encampment on Tuesday.`\
 https://nytimes.com/interactive/2024/05/03/us/ucla-protests-encampment-violence.html
