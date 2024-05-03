@@ -1,3 +1,11 @@
+**What to Watch Today in the April Jobs Report**\
+`Economists expect another strong month for job creation, even as other indicators of labor demand weaken.`\
+https://nytimes.com/2024/05/03/business/economy/jobs-report-april-2024.html
+
+**What Happened When the Skating Coaches Wanted a Union**\
+`A group of figure skating coaches at Chelsea Piers in Manhattan, many of whom earn less than $40,000 a year, sought to bargain their contracts collectively. Two were fired.`\
+https://nytimes.com/2024/05/03/nyregion/what-happened-when-the-skating-coaches-wanted-a-union.html
+
 **The Secret Recording Played at Trump’s Trial, and the Latest Cease-Fire Negotiations**\
 `Plus, the shadow over the Kentucky Derby.`\
 https://nytimes.com/2024/05/03/podcasts/the-secret-recording-played-at-trumps-trial-and-the-latest-cease-fire-negotiations.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/05/03/arts/weekend-editors-picks-i-saw-the-
 **Protect Journalists, Everywhere**\
 `On World Press Freedom Day, a reminder of how many journalists are not free to do their vital work.`\
 https://nytimes.com/2024/05/03/opinion/press-freedom-global.html
-
-**MAGA Is Demoting the Pro-Life Forces It Once Coddled**\
-`Swing-state Republicans are running from the anti-abortion movement.`\
-https://nytimes.com/2024/05/03/opinion/kari-lake-abortion.html
-
-**The New York Times News Quiz, May 3, 2024**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2024/05/03/briefing/ucla-protests-hells-kitchen-trump-quiz.html
 
