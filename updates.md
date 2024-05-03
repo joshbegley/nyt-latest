@@ -1,3 +1,19 @@
+**An Opaque Philip Johnson House Reopens After 15 Years**\
+`Following an extensive restoration, the Brick House, the other half of the architect’s famous Glass House, is once again receiving visitors.`\
+https://nytimes.com/2024/05/03/t-magazine/philip-johnson-brick-house.html
+
+**At Frieze, Photographer of Gay Life Seeks ‘a Place in the Sunshine’**\
+`Stanley Stellar  has documented gay New York, on the streets and in his studio, for decades. Now he steps onto his biggest stage.`\
+https://nytimes.com/2024/05/03/arts/design/stanley-stellar-frieze-photography.html
+
+**Punchy, Potent Tuna Puttanesca**\
+`Don’t stint on the anchovies.`\
+https://nytimes.com/2024/05/03/dining/punchy-potent-tuna-puttanesca.html
+
+**Five International Movies to Stream Now**\
+`This month’s picks include a Mexican family drama, a Palestinian coming-of-age tale, a high-school movie from Ukraine and more.`\
+https://nytimes.com/2024/05/03/movies/five-international-movies-to-stream-now.html
+
 **Sexually Transmitted Infections Have Surged, and Age Is No Barrier**\
 `Older daters are not getting adequate screening and protection from S.T.I.s. Here’s how to be a safer sexually active senior.`\
 https://nytimes.com/2024/05/03/well/live/sti-seniors-chlamydia-syphilis.html

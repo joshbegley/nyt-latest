@@ -1,3 +1,19 @@
+**An Opaque Philip Johnson House Reopens After 15 Years**\
+`Following an extensive restoration, the Brick House, the other half of the architect’s famous Glass House, is once again receiving visitors.`\
+https://nytimes.com/2024/05/03/t-magazine/philip-johnson-brick-house.html
+
+**At Frieze, Photographer of Gay Life Seeks ‘a Place in the Sunshine’**\
+`Stanley Stellar  has documented gay New York, on the streets and in his studio, for decades. Now he steps onto his biggest stage.`\
+https://nytimes.com/2024/05/03/arts/design/stanley-stellar-frieze-photography.html
+
+**Punchy, Potent Tuna Puttanesca**\
+`Don’t stint on the anchovies.`\
+https://nytimes.com/2024/05/03/dining/punchy-potent-tuna-puttanesca.html
+
+**Five International Movies to Stream Now**\
+`This month’s picks include a Mexican family drama, a Palestinian coming-of-age tale, a high-school movie from Ukraine and more.`\
+https://nytimes.com/2024/05/03/movies/five-international-movies-to-stream-now.html
+
 **Sexually Transmitted Infections Have Surged, and Age Is No Barrier**\
 `Older daters are not getting adequate screening and protection from S.T.I.s. Here’s how to be a safer sexually active senior.`\
 https://nytimes.com/2024/05/03/well/live/sti-seniors-chlamydia-syphilis.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/05/03/world/palestinian-protests-france-australia-uk.ht
 **Still No Stag and Not Much Flation**\
 `Most of the bad news about the economy is just noise.`\
 https://nytimes.com/2024/05/03/opinion/krugman-inflation-jobs-economy.html
-
-**The Fed Is Looking for a Job Market Cool-Down. It Just Got One.**\
-`Wage growth and hiring slowed in April, evidence of the job market slowdown that Federal Reserve officials have been waiting on.`\
-https://nytimes.com/2024/05/03/business/the-fed-gets-evidence-that-the-job-market-is-cooling-including-slower-wage-gains.html
-
-**8 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://nytimes.com/2024/05/03/movies/new-movies-this-week-critics.html
-
-**Medical Debt Shows Up Less Often on Credit Reports**\
-`But the Consumer Financial Protection Bureau said 15 million people still had medical bills in their files, which can make it hard to qualify for loans.`\
-https://nytimes.com/2024/05/03/your-money/medical-debt-credit-reports.html
-
-**Crosstown Rivals Publicly Criticized Over Campus Protests**\
-`As U.S.C. and U.C.L.A. pick up the pieces, the two universities present dueling case studies in crisis management.`\
-https://nytimes.com/2024/05/03/us/usc-ucla-criticism-campus-protests.html
 
