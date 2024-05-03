@@ -1,3 +1,7 @@
+**Jury Hears Tape of Trump and Cohen Discussing Hush-Money Deal**\
+`The tape, played at the former president’s criminal trial, captured Michael Cohen, the former fixer of Donald Trump, telling him about a payment to a former Playboy model. Jonah Bromwich, who covers criminal justice for The New York Times, gives a summary.`\
+https://nytimes.com/video/nyregion/100000009446422/jury-hears-tape-of-trump-and-cohen.html
+
 **Cool-Down Stretches**\
 `Eli Cotham makes his New York Times Crossword debut.`\
 https://nytimes.com/2024/05/02/crosswords/daily-puzzle-2024-05-03.html
