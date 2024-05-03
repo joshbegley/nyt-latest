@@ -1,3 +1,7 @@
+**Trump and His One-Time Confidante Meet Again, This Time in a Courtroom**\
+`Hope Hicks, once a spokeswoman for Donald J. Trump, broke down in tears on the witness stand as she talked about their time together.`\
+https://nytimes.com/2024/05/03/nyregion/trump-trial-hope-hicks-testimony.html
+
 **Police Treatment of a Dartmouth Professor Stirs Anger and Debate**\
 `A video showing Annelise Orleck, 65, being taken to the ground intensified criticism of the decision by the college’s president to call in officers.`\
 https://nytimes.com/2024/05/03/us/dartmouth-professor-police-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/03/books/review/a-conversation-with-colm-toibin.html
 **New Mutations Identified in Bird Flu Virus**\
 `A genetic analysis sheds light on when the outbreak began, how the virus spread and where it may be going.`\
 https://nytimes.com/2024/05/03/health/bird-flu-cows-mutations.html
-
-**Overlooked No More: Min Matheson, Labor Leader Who Faced Down Mobsters**\
-`As director of the International Ladies’ Garment Workers’ Union, she fought for better working wages and conditions while wresting control from the mob.`\
-https://nytimes.com/2024/05/03/business/min-matheson-overlooked.html
 
