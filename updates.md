@@ -1,3 +1,7 @@
+**What to watch today in the April jobs report.**\
+`Economists expect another strong month for job creation, even as other indicators of labor demand weaken.`\
+https://nytimes.com/live/2024/05/03/business/jobs-report-april-economy/jobs-report-april-2024
+
 **Iran Says It Released Crew of Israel-Linked Ship It Detained**\
 `Iranian forces seized the Portuguese-flagged ship, the MSC Aries, as tensions between Iran and Israel were rising.`\
 https://nytimes.com/2024/05/03/world/middleeast/iran-israel-ship-crew.html

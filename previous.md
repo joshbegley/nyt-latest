@@ -6,9 +6,9 @@ https://nytimes.com/2024/05/03/world/middleeast/iran-israel-ship-crew.html
 `Thousands of Americans have filed vaccine-injury claims with the federal government.`\
 https://nytimes.com/2024/05/03/briefing/covid-vaccine-side-effects.html
 
-**What to Watch Today in the April Jobs Report**\
+**What to watch today in the April jobs report.**\
 `Economists expect another strong month for job creation, even as other indicators of labor demand weaken.`\
-https://nytimes.com/2024/05/03/business/economy/jobs-report-april-2024.html
+https://nytimes.com/live/2024/05/03/business/jobs-report-april-economy/jobs-report-april-2024
 
 **What Happened When the Skating Coaches Wanted a Union**\
 `A group of figure skating coaches at Chelsea Piers in Manhattan, many of whom earn less than $40,000 a year, sought to bargain their contracts collectively. Two were fired.`\
