@@ -1,7 +1,3 @@
-**Police Treatment of a Dartmouth Professor Stirs Anger and Debate**\
-`A video showing Annelise Orleck, 65, being taken to the ground intensified criticism of the decision by the college’s president to call in officers.`\
-https://nytimes.com/2024/05/03/us/dartmouth-professor-police-protests.html
-
 **Campus Protests Over Gaza Spotlight the Work of Student Journalists**\
 `Columbia University’s radio station and other student-led news outlets have provided some of the most detailed coverage of the turmoil engulfing university campuses.`\
 https://nytimes.com/2024/05/03/business/media/campus-protests-columbia-student-media-gaza.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/05/03/health/bird-flu-cows-mutations.html
 **Overlooked No More: Min Matheson, Labor Leader Who Faced Down Mobsters**\
 `As director of the International Ladies’ Garment Workers’ Union, she fought for better working wages and conditions while wresting control from the mob.`\
 https://nytimes.com/2024/05/03/business/min-matheson-overlooked.html
+
+**U.S.C. Announces New Commencement Plans After Canceling its Main Ceremony**\
+`The university said it would hold a celebration at the Los Angeles Memorial Coliseum. More than 100 school-specific graduations and smaller receptions will also take place with tighter security.`\
+https://nytimes.com/2024/05/03/us/usc-graduation-campus-protests.html
 
