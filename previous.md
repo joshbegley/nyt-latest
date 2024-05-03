@@ -1,3 +1,7 @@
+**TikTok Tells Advertisers: ‘We Are Not Backing Down’**\
+`Hundreds of marketers and ad agency types flocked to TikTok’s annual sales presentation after a new law put its future in question.`\
+https://nytimes.com/2024/05/03/business/media/tiktok-advertisers.html
+
 **‘The Cherry Orchard’ Review: Chekhov in the Fun Zone**\
 `Benedict Andrews’s production in London offers perfectly pitched comedy where other directors find somber tragedy.`\
 https://nytimes.com/2024/05/03/theater/the-cherry-tree-nina-hoss-donmar-warehouse.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/03/dining/punchy-potent-tuna-puttanesca.html
 **Five International Movies to Stream Now**\
 `This month’s picks include a Mexican family drama, a Palestinian coming-of-age tale, a high-school movie from Ukraine and more.`\
 https://nytimes.com/2024/05/03/movies/five-international-movies-to-stream-now.html
-
-**Sexually Transmitted Infections Have Surged, and Age Is No Barrier**\
-`Older daters are not getting adequate screening and protection from S.T.I.s. Here’s how to be a safer sexually active senior.`\
-https://nytimes.com/2024/05/03/well/live/sti-seniors-chlamydia-syphilis.html
 

@@ -1,3 +1,7 @@
+**TikTok Tells Advertisers: ‘We Are Not Backing Down’**\
+`Hundreds of marketers and ad agency types flocked to TikTok’s annual sales presentation after a new law put its future in question.`\
+https://nytimes.com/2024/05/03/business/media/tiktok-advertisers.html
+
 **‘The Cherry Orchard’ Review: Chekhov in the Fun Zone**\
 `Benedict Andrews’s production in London offers perfectly pitched comedy where other directors find somber tragedy.`\
 https://nytimes.com/2024/05/03/theater/the-cherry-tree-nina-hoss-donmar-warehouse.html
