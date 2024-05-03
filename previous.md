@@ -7,7 +7,7 @@ https://nytimes.com/2024/05/03/arts/dance/review-city-ballet-gala-justin-peck-am
 https://nytimes.com/2024/05/03/opinion/nuclear-power-energy.html
 
 **‘Access Hollywood’ Tape Rattled Trump’s Campaign, Hicks Recalls in Testimony**\
-`Hope Hicks, Donald J. Trump’s campaign press secretary in 2016 testified about the infamous recording, which captured him bragging about grabbing women’s genitals. It was published by The Washington Post a month before the election.`\
+`Hope Hicks, Donald J. Trump’s campaign press secretary in 2016, testified about the infamous recording, which captured him bragging about grabbing women’s genitals. It was published by The Washington Post a month before the election.`\
 https://nytimes.com/2024/05/03/nyregion/access-hollywood-tape-trump-trial.html
 
 **15-Year-Old Girl Charged With Murder in Stabbing Death of Bronx Teenager**\
