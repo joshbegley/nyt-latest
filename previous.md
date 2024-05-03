@@ -1,6 +1,14 @@
+**The Actor Who Played Jar Jar Binks Is Proud of His ‘Star Wars’ Legacy**\
+`Ahmed Best recalls the painful backlash to the “Phantom Menace” character that was considered a racial stereotype at the time, but is now embraced by fans.`\
+https://nytimes.com/2024/05/03/movies/jar-jar-binks-actor-star-wars-ahmed-best.html
+
+**When Failure Is the Only Senate Option**\
+`Members of the upper chamber are regularly holding votes on amendments that, by design, have no chance whatsoever of passage.`\
+https://nytimes.com/2024/05/03/us/senate-amendments.html
+
 **TikTok’s Boss Goes From Reserved Tech Exec to Met Gala Chair**\
 `With the company facing a ban in the U.S., Shou Chew is expected to join Zendaya, Bad Bunny and Anna Wintour on the red carpet.`\
-https://nytimes.com/2024/05/03/style/tiktoks-boss-goes-from-reserved-tech-exec-to-met-gala-chair.html
+https://nytimes.com/2024/05/03/style/met-gala-shou-chew-tiktok.html
 
 **How I Reported on the Columbia Student Protests … in 1996**\
 `Nearly three decades ago, a young reporter slept on the floor of Columbia’s Hamilton Hall for several nights to file an article for The Village Voice.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/03/arts/dance/review-city-ballet-gala-justin-peck-am
 **Nuclear Power as a Clean Energy Tool?**\
 `Readers discuss an Opinion guest essay calling that a fantasy. Also: Quality at Boeing; a toilet sign; running, fast and slow.`\
 https://nytimes.com/2024/05/03/opinion/nuclear-power-energy.html
-
-**‘Access Hollywood’ Tape Rattled Trump’s Campaign, Hicks Recalls in Testimony**\
-`Hope Hicks, Donald J. Trump’s campaign press secretary in 2016, testified about the infamous recording, which captured him bragging about grabbing women’s genitals. It was revealed by The Washington Post a month before the election.`\
-https://nytimes.com/2024/05/03/nyregion/access-hollywood-tape-trump-trial.html
-
-**15-Year-Old Girl Charged With Murder in Stabbing Death of Bronx Teenager**\
-`The victim, identified by the police as Emery Mizell, 17, was attacked at an apartment building in the Soundview neighborhood of the Bronx.`\
-https://nytimes.com/2024/05/03/nyregion/teenager-stabbing-murder-bronx.html
 
