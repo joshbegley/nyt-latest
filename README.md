@@ -1,3 +1,11 @@
+**Nancy Schuster, Crossword Champion, Creator and Editor, Dies at 90**\
+`A dedicated cruciverbalist, she won the first American Crossword Puzzle Tournament in 1978. She went on to test and proofread puzzles for The New York Times.`\
+https://nytimes.com/2024/05/03/us/nancy-schuster-dead.html
+
+**What I’d Assign to Today’s College Students**\
+`A reading list outside the progressive box.`\
+https://nytimes.com/2024/05/03/opinion/columbia-core.html
+
 **How ‘Star Wars’ Fans Saved the Original Movies**\
 `George Lucas wants them to fade into oblivion. But some rebel fans spent more than a decade digitally restoring the original “Star Wars” trilogy, preserving the movies as they were shown in theaters.`\
 https://nytimes.com/2024/05/03/arts/star-wars-films-george-lucas.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/03/arts/music/amplifer-newsletter-luca-guadagninos-s
 **Gas Stove Pollution Risk Is Greatest in Smaller Homes, Study Finds**\
 `Gas-burning ranges, a significant contributor to indoor pollution, can produce and spread particularly high levels of some pollutants in smaller spaces.`\
 https://nytimes.com/2024/05/03/climate/gas-stove-indoor-pollution.html
-
-**University of Chicago President Says ‘Encampment Cannot Continue’**\
-`The university is home to the Chicago statement, a framework for free expression that has been embraced by other colleges.`\
-https://nytimes.com/2024/05/03/us/university-of-chicago-protest.html
-
-**The Best of Late Night This Week**\
-`This week, the hosts discussed a revelation from the South Dakota governor, Kristi Noem, as well as former President Trump’s apparent inability to stay awake in his Manhattan criminal trial. Here’s what they had to say.`\
-https://nytimes.com/interactive/2024/05/03/arts/television/best-of-late-night-kristi-noem.html
 
