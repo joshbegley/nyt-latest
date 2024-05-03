@@ -1,3 +1,7 @@
+**‘The Miser’ Review: Updating Molière, but Missing a Key Ingredient**\
+`This Molière in the Park production doesn’t have the sharp satirical bite of the original.`\
+https://nytimes.com/2024/05/03/theater/the-miser-review-brooklyn.html
+
 **Joe Biden, Pot President?**\
 `The president’s allies say the Justice Department’s chill take on marijuana has a political upside.`\
 https://nytimes.com/2024/05/03/us/politics/marijuana-reclassification-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000009447899/pro-palestinian-protests-at-the-uni
 **Final Arguments in Google Antitrust Trial Conclude, Setting Up Landmark Ruling**\
 `Judge Amit P. Mehta must now decide whether Google violated the law, potentially setting a precedent for a series of tech monopoly cases.`\
 https://nytimes.com/2024/05/03/technology/google-antitrust-trial.html
-
-**Campus Protests in U.S. Are a Rorschach Test for the World**\
-`Abroad, some have praised the demonstrations. Others call the crackdowns evidence of American hypocrisy, or of a nation coming apart.`\
-https://nytimes.com/2024/05/03/world/europe/campus-protests-rorschach-test.html
 
