@@ -1,3 +1,15 @@
+**What Would Happen if the U.S. Suddenly Seemed Like a Risky Investment?**\
+`The American economy has long been a safe haven, but it might not be forever.`\
+https://nytimes.com/2024/05/03/opinion/american-economy-global-investors.html
+
+**The Columbia Protests Made the Same Mistake the Civil Rights Movement Did**\
+`Passion counts for a lot, but the bottom line should be results. The protests seem to be headed in a different direction.`\
+https://nytimes.com/2024/05/03/opinion/columbia-protests-civil-rights.html
+
+**Joel Conarroe, ‘Hub of the New York Literary Wheel,’ Dies at 89**\
+`An influential arts administrator and educator, he was a trusted confidant to countless writers, notably Philip Roth.`\
+https://nytimes.com/2024/05/03/books/joel-conarroe-dead.html
+
 **Nancy Schuster, Crossword Champion, Creator and Editor, Dies at 90**\
 `A dedicated cruciverbalist, she won the first American Crossword Puzzle Tournament in 1978. She went on to test and proofread puzzles for The New York Times.`\
 https://nytimes.com/2024/05/03/us/nancy-schuster-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/05/03/nyregion/trump-hush-money-trial/outside-cour
 **As Rains Lash South Texas, Residents Brace for More Flooding**\
 `More than 800,000 people were under flash flood warnings in the Houston area and other parts of South Texas on Friday.`\
 https://nytimes.com/2024/05/03/us/texas-rain-flooding-houston.html
-
-**A Gaza Doctor Has Died in Israeli Custody, Palestinian Groups Say**\
-`Israel has not offered an explanation for the death of Dr. Adnan Ahmad Albursh, chief of orthopedics at Al-Shifa hospital, four months after he was first detained.`\
-https://nytimes.com/2024/05/03/world/middleeast/doctor-died-israeli-detention.html
-
-**The Music of Luca Guadagnino’s Cinematic Universe**\
-`Hear songs from “Challengers,” “Call Me by Your Name” and more.`\
-https://nytimes.com/2024/05/03/arts/music/amplifer-newsletter-luca-guadagninos-soundtracks.html
-
-**Gas Stove Pollution Risk Is Greatest in Smaller Homes, Study Finds**\
-`Gas-burning ranges, a significant contributor to indoor pollution, can produce and spread particularly high levels of some pollutants in smaller spaces.`\
-https://nytimes.com/2024/05/03/climate/gas-stove-indoor-pollution.html
 
