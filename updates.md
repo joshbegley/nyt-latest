@@ -1,3 +1,7 @@
+**Israel and Saudi Arabia Are Trading Places**\
+`Netanyahu is making his nation more like the worst of the old kingdom, and the crown prince is making his kingdom more like the best of the old Jewish state.`\
+https://nytimes.com/2024/05/02/opinion/israel-saudi-arabia.html
+
 **Taking Cues From Students, U.C.L.A. Faculty Members Join the Protests**\
 `At U.C.L.A., a few professors helped negotiate with the university. At Columbia, they guarded the encampment. But not all faculty members are on board.`\
 https://nytimes.com/2024/05/02/us/columbia-protests-professors-support.html
