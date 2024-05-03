@@ -1,3 +1,7 @@
+**Here is the latest on campus protests.**\
+`By John Yoon`\
+https://nytimes.com/live/2024/05/03/us/college-campus-protests/here-is-the-latest-on-campus-protests
+
 **A.I. at Your Jobs + Hank Green Talks TikTok + Deepfake High School**\
 `A synthetic chief executive, a bot trained on employees’ personalities, and a regular duel with ChatGPT — our listeners brought us their stories.`\
 https://nytimes.com/2024/05/03/podcasts/hard-fork-work-hank-green-deepfake.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/03/technology/google-apple-amazon-meta-antitrust.htm
 **A New Issue Flares in the 2024 Race: Campus Protests**\
 `With tensions escalating and Republicans pouncing, President Biden finally weighed in and sought to increase the distance between himself and some of the more radical activism on colleges.`\
 https://nytimes.com/2024/05/03/us/politics/biden-trump-campus-protests.html
-
-**Big Ticket: N.Y.’s Top Sales and Listings in April**\
-`April's top sales include a $22 million row house bought by the founder of the beauty brand Glossier.`\
-https://nytimes.com/interactive/2024/05/03/realestate/luxury/new-york-home-sales.html
 
