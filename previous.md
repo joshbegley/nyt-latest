@@ -1,3 +1,11 @@
+**Pro-Palestinian Protests At the University of Chicago Test Free Speech Policies**\
+`The president of the University of Chicago said on Friday that the pro-Palestinian encampment on his campus’s quad “cannot continue,” a position that was being closely watched in higher education because the university has long held itself up as a national model for free expression.`\
+https://nytimes.com/video/us/100000009447899/pro-palestinian-protests-at-the-university-of-chicago-test-free-speech-policies.html
+
+**Final Arguments in Google Antitrust Trial Conclude, Setting Up Landmark Ruling**\
+`Judge Amit P. Mehta must now decide whether Google violated the law, potentially setting a precedent for a series of tech monopoly cases.`\
+https://nytimes.com/2024/05/03/technology/google-antitrust-trial.html
+
 **Campus Protests in U.S. Are a Rorschach Test for the World**\
 `Abroad, some have praised the demonstrations. Others call the crackdowns evidence of American hypocrisy, or of a nation coming apart.`\
 https://nytimes.com/2024/05/03/world/europe/campus-protests-rorschach-test.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/03/briefing/jobs-report-campus-protests-pop-tarts.ht
 **N.Y.P.D. Social Media Attacks Prompt City Council to Seek Investigation**\
 `The Council speaker requested an investigation of police officials’ use of social media to attack critics. The mayor’s office asked for an inquiry into a councilman’s behavior.`\
 https://nytimes.com/2024/05/03/nyregion/police-critics-social-media.html
-
-**Trump and His One-Time Confidante Meet Again, This Time in a Courtroom**\
-`Hope Hicks, once a spokeswoman for Donald J. Trump, broke down in tears on the witness stand as she talked about their time together.`\
-https://nytimes.com/2024/05/03/nyregion/trump-trial-hope-hicks-testimony.html
-
-**Police Treatment of a Dartmouth Professor Stirs Anger and Debate**\
-`A video showing Annelise Orleck, 65, being taken to the ground intensified criticism of the decision by the college’s president to call in officers.`\
-https://nytimes.com/2024/05/03/us/dartmouth-professor-police-protests.html
 
