@@ -1,3 +1,7 @@
+**Campus Protests Over Gaza Spotlight the Work of Student Journalists**\
+`Columbia University’s radio station and other student-led news outlets have provided some of the most detailed coverage of the turmoil engulfing university campuses.`\
+https://nytimes.com/2024/05/03/business/media/campus-protests-columbia-student-media-gaza.html
+
 **‘We Will Save Our Beef’: Florida Bans Lab-Grown Meat**\
 `Other states have also considered restrictions, citing concerns about farmers’ livelihoods and food safety, though the product isn’t expected to be widely available for years.`\
 https://nytimes.com/2024/05/03/climate/florida-lab-grown-meat-ban.html
