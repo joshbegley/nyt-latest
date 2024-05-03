@@ -1,3 +1,7 @@
+**Here is the latest on campus protests.**\
+`By John Yoon`\
+https://nytimes.com/live/2024/05/03/us/college-campus-protests/here-is-the-latest-on-campus-protests
+
 **A.I. at Your Jobs + Hank Green Talks TikTok + Deepfake High School**\
 `A synthetic chief executive, a bot trained on employees’ personalities, and a regular duel with ChatGPT — our listeners brought us their stories.`\
 https://nytimes.com/2024/05/03/podcasts/hard-fork-work-hank-green-deepfake.html
