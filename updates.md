@@ -1,3 +1,15 @@
+**03trump-trial**\
+`Trump Trial Live Updates: Witness Who Extracted Secret Recordings to Return to the Stand`\
+https://nytimes.com/live/2024/05/03/nyregion/trump-hush-money-trial
+
+**Biden to Honor Prominent Democrats With Presidential Medal of Freedom**\
+`Six months before the election, the president selected a list of awardees heavy with political allies like Nancy Pelosi, James E. Clyburn and John F. Kerry.`\
+https://nytimes.com/2024/05/03/us/politics/biden-presidential-medal-freedom.html
+
+**03jobs-report**\
+`Live Updates: U.S. Job Growth Slows`\
+https://nytimes.com/live/2024/05/03/business/jobs-report-april-economy
+
 **U.S. employers added 175,000 jobs in April.**\
 `Economists expect another strong month for job creation, even as other indicators of labor demand weaken.`\
 https://nytimes.com/live/2024/05/03/business/jobs-report-april-economy/jobs-report-april-2024
