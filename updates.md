@@ -1,3 +1,11 @@
+**Nancy Schuster, Crossword Champion, Creator and Editor, Dies at 90**\
+`A dedicated cruciverbalist, she won the first American Crossword Puzzle Tournament in 1978. She went on to test and proofread puzzles for The New York Times.`\
+https://nytimes.com/2024/05/03/us/nancy-schuster-dead.html
+
+**What I’d Assign to Today’s College Students**\
+`A reading list outside the progressive box.`\
+https://nytimes.com/2024/05/03/opinion/columbia-core.html
+
 **How ‘Star Wars’ Fans Saved the Original Movies**\
 `George Lucas wants them to fade into oblivion. But some rebel fans spent more than a decade digitally restoring the original “Star Wars” trilogy, preserving the movies as they were shown in theaters.`\
 https://nytimes.com/2024/05/03/arts/star-wars-films-george-lucas.html
