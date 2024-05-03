@@ -1,3 +1,11 @@
+**Small Bedroom Ideas: The Best Ways to Maximize Your Tiny Space**\
+`How to store and decorate in a modest room.`\
+https://nytimes.com/interactive/2024/05/03/smarter-living/wirecutter/small-bedroom-ideas.html
+
+**Canadian Police Arrest 3 in Slaying of Sikh Leader**\
+`The killing of Hardeep Singh Nijjar, a Sikh nationalist who led a temple in British Columbia, set off diplomatic skirmishes between Canada and India.`\
+https://nytimes.com/2024/05/03/world/canada/arrests-hardeep-singh-nijjar-india.html
+
 **Good Luck Isn’t Good Enough to Fight Bird Flu**\
 `It took a pair of alert veterinarians to tell the world about H5N1 in cows.`\
 https://nytimes.com/live/2024/05/01/opinion/thepoint/bird-flu-cows-texas
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/03/us/politics/latino-groups-oppose-trump.html
 **What Would Happen if the U.S. Suddenly Seemed Like a Risky Investment?**\
 `The American economy has long been a safe haven, but it might not be forever.`\
 https://nytimes.com/2024/05/03/opinion/american-economy-global-investors.html
-
-**The Columbia Protests Made the Same Mistake the Civil Rights Movement Did**\
-`Passion counts for a lot, but the bottom line should be results. The protests seem to be headed in a different direction.`\
-https://nytimes.com/2024/05/03/opinion/columbia-protests-civil-rights.html
-
-**Joel Conarroe, ‘Hub of the New York Literary Wheel,’ Dies at 89**\
-`An influential arts administrator and educator, he was a trusted confidant to countless writers, notably Philip Roth.`\
-https://nytimes.com/2024/05/03/books/joel-conarroe-dead.html
 
