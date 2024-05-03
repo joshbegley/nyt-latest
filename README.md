@@ -1,3 +1,7 @@
+**Voters Turn to Labour in English Local Elections: Key Takeaways**\
+`While the ballots were still being counted on Friday, big losses for the Conservative Party could signal a difficult general election later this year.`\
+https://nytimes.com/2024/05/03/world/europe/voters-england-elections-takeaways.html
+
 **Georgia Bucks Bail Reform, but at What Cost?**\
 `It’s an unfortunate moment for the state to virtually eliminate the repeat posting of bail.`\
 https://nytimes.com/live/2024/05/01/opinion/thepoint/georgia-bail-reform
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/03/arts/music/playlist-kendrick-lamar-miranda-lamber
 **Ballot-Access Consultant for R.F.K. Jr. Was Arrested on Assault Charges**\
 `The consultant, Trent Pool, was arrested at a Manhattan hotel last weekend after a woman said he had assaulted her, according to the police.`\
 https://nytimes.com/2024/05/03/us/politics/rfk-jr-operative-assault.html
-
-**Review: At New York City Ballet’s Gala, the Usual With a Twist**\
-`The two premieres — one by Justin Peck, one by Amy Hall Garner — were gala-style pieces that felt more fresh than rote.`\
-https://nytimes.com/2024/05/03/arts/dance/review-city-ballet-gala-justin-peck-amy-hall-garner.html
 
