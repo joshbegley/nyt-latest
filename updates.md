@@ -1,3 +1,7 @@
+**Trump and His One-Time Confidante Meet Again, This Time in a Courtroom**\
+`Hope Hicks, once a spokeswoman for Donald J. Trump, broke down in tears on the witness stand as she talked about their time together.`\
+https://nytimes.com/2024/05/03/nyregion/trump-trial-hope-hicks-testimony.html
+
 **Police Treatment of a Dartmouth Professor Stirs Anger and Debate**\
 `A video showing Annelise Orleck, 65, being taken to the ground intensified criticism of the decision by the college’s president to call in officers.`\
 https://nytimes.com/2024/05/03/us/dartmouth-professor-police-protests.html
