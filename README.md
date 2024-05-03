@@ -1,3 +1,7 @@
+**At Venice Biennale, Artists Make a Case for Returning Looted Artifacts**\
+`For years, activists and politicians have led discussions about whether disputed museum objects should go back to their countries of origin. At this year’s Biennale, artists are entering the fray.`\
+https://nytimes.com/2024/05/03/arts/design/venice-biennale-restitution.html
+
 **A Race the Whole World Is Watching**\
 `A three-team race is deciding this year’s Premier League champion. The competition’s global reach means a significant portion of the world’s population is following along.`\
 https://nytimes.com/2024/05/03/world/europe/a-race-the-whole-world-is-watching.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/03/crosswords/wordle-review.html
 **Jimmy Kimmel Wants to Testify at Donald Trump’s Criminal Trial**\
 `“I think I can keep Trump awake during the trial,” Kimmel said after learning that text messages about his talk show were entered as evidence in the case.`\
 https://nytimes.com/2024/05/03/arts/television/jimmy-kimmel-donald-trump-trial.html
-
-**‘Dead Poets Society’ Has Some Distinctly Australian Relevance**\
-`Brought to life by the Australian director Peter Weir, the movie’s conflict reflects a collective cultural trait his fellow citizens can relate to.`\
-https://nytimes.com/2024/05/03/world/australia/dead-poets-society.html
 
