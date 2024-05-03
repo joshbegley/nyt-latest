@@ -1,3 +1,7 @@
+**Missouri and South Dakota Move Toward Abortion Rights Ballot Questions**\
+`Both states are reliably Republican and have abortion bans that are among the strictest in the nation.`\
+https://nytimes.com/2024/05/03/us/abortion-rights-missouri-south-dakota.html
+
 **The Death of a Treaty Could Be a Lifesaver for Taiwan**\
 `Since pulling out of an arms-limitation agreement with Russia in 2019, the U.S. has quickly developed new weapons that could be used to stop a Chinese invasion force.`\
 https://nytimes.com/2024/05/03/us/politics/china-taiwan-inf-treaty.html
@@ -16,7 +20,7 @@ https://nytimes.com/2024/05/03/opinion/krugman-inflation-jobs-economy.html
 
 **The Fed gets evidence that the job market is cooling, including slower wage gains.**\
 `By Jeanna Smialek`\
-https://nytimes.com/live/2024/05/03/business/jobs-report-april-economy/the-fed-gets-evidence-that-the-job-market-is-cooling-including-slower-wage-gains
+https://nytimes.com/2024/05/03/business/the-fed-gets-evidence-that-the-job-market-is-cooling-including-slower-wage-gains.html
 
 **8 New Movies Our Critics Are Talking About This Week**\
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/03/us/usc-ucla-criticism-campus-protests.html
 **The Perils of the Fed’s Vast Bond Holdings**\
 `The Federal Reserve is shedding assets at a glacial pace, exposing the financial system to continuing risks, our columnist says.`\
 https://nytimes.com/2024/05/03/business/federal-reserve-markets-turmoil.html
-
-**03trump-trial**\
-`Trump Trial Live Updates: Testimony of Witness Who Extracted Secret Recordings Resumes`\
-https://nytimes.com/live/2024/05/03/nyregion/trump-hush-money-trial
 
