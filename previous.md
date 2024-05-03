@@ -1,3 +1,7 @@
+**Joe Biden, Pot President?**\
+`The president’s allies say the Justice Department’s chill take on marijuana has a political upside.`\
+https://nytimes.com/2024/05/03/us/politics/marijuana-reclassification-biden.html
+
 **Billionaire Donor Assails Brown’s ‘Unconscionable’ Deal With Protesters**\
 `Real estate mogul Barry Sternlicht’s scathing criticism of his alma mater is the most immediate blowback against the school’s deal to end protests on campus.`\
 https://nytimes.com/2024/05/03/business/sterlicht-brown-university-donor.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/03/technology/google-antitrust-trial.html
 **Campus Protests in U.S. Are a Rorschach Test for the World**\
 `Abroad, some have praised the demonstrations. Others call the crackdowns evidence of American hypocrisy, or of a nation coming apart.`\
 https://nytimes.com/2024/05/03/world/europe/campus-protests-rorschach-test.html
-
-**Paramount Will Let Exclusive Talks With Skydance Lapse, Imperiling Deal**\
-`Negotiations are now likely to focus on another suitor, Sony, which has teamed up with the private equity giant Apollo on a $26 billion bid.`\
-https://nytimes.com/2024/05/03/business/media/paramount-skydance-exclusive-talks-lapse.html
 
