@@ -1,5 +1,5 @@
 **U.K. Conservatives Suffer Sharp Setbacks in Early Results of Local Elections**\
-`The governing Conservative Party trails badly in national opinion polls. The municipal races offer a clue to its fate in an upcoming general election.`\
+`The scale of the losses suffered by Prime Minister Rishi Sunak’s party sent an ominous message about its chances in an upcoming general election.`\
 https://nytimes.com/2024/05/03/world/europe/uk-elections-labour-conservatives.html
 
 **Witness Who Extracted Secret Tape of Trump Will Return to the Stand**\
