@@ -1,3 +1,15 @@
+**‘The Cherry Orchard’ Review: Chekhov in the Fun Zone**\
+`Benedict Andrews’s production in London offers perfectly pitched comedy where other directors find somber tragedy.`\
+https://nytimes.com/2024/05/03/theater/the-cherry-tree-nina-hoss-donmar-warehouse.html
+
+**Dortmund, Bayern Munich and the Siren Song of Yesterday**\
+`Change comes neither easily nor naturally at Germany’s two most successful clubs. Will success in the Champions League delay it again?`\
+https://nytimes.com/2024/05/03/world/europe/champions-league-dortmund-bayern.html
+
+**Watch Ryan Gosling Perform His Own Stunt in ‘The Fall Guy’**\
+`The director David Leitch narrates a sequence from the film featuring Gosling and Emily Blunt.`\
+https://nytimes.com/2024/05/03/movies/the-fall-guy-scene.html
+
 **Police Remove Dozens of Protesters from Sciences Po University in Paris**\
 `Student demonstrators had been occupying a campus building in central Paris, in protest over the war in Gaza. French police cleared the building on Friday.`\
 https://nytimes.com/video/world/middleeast/100000009446756/police-remove-dozens-of-protesters-from-sciences-po-university-in-paris.html
