@@ -1,3 +1,7 @@
+**Sexually Transmitted Infections Have Surged, and Age Is No Barrier**\
+`Older daters are not getting adequate screening and protection from S.T.I.s. Here’s how to be a safer sexually active senior.`\
+https://nytimes.com/2024/05/03/well/live/sti-seniors-chlamydia-syphilis.html
+
 **Missouri and South Dakota Move Toward Abortion Rights Ballot Questions**\
 `Both states are reliably Republican and have abortion bans that are among the strictest in the nation.`\
 https://nytimes.com/2024/05/03/us/abortion-rights-missouri-south-dakota.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/03/your-money/medical-debt-credit-reports.html
 **Crosstown Rivals Publicly Criticized Over Campus Protests**\
 `As U.S.C. and U.C.L.A. pick up the pieces, the two universities present dueling case studies in crisis management.`\
 https://nytimes.com/2024/05/03/us/usc-ucla-criticism-campus-protests.html
-
-**The Perils of the Fed’s Vast Bond Holdings**\
-`The Federal Reserve is shedding assets at a glacial pace, exposing the financial system to continuing risks, our columnist says.`\
-https://nytimes.com/2024/05/03/business/federal-reserve-markets-turmoil.html
 
