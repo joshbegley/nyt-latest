@@ -1,11 +1,3 @@
-**Police Remove Dozens of Protesters from Sciences Po University in Paris**\
-`Student demonstrators had been occupying a campus building in central Paris, in protest over the war in Gaza. French police cleared the building on Friday.`\
-https://nytimes.com/video/world/middleeast/100000009446756/police-remove-dozens-of-protesters-from-sciences-po-university-in-paris.html
-
-**‘The Fall Guy’ | Anatomy of a Scene**\
-`The director David Leitch narrates a sequence from his film featuring Ryan Gosling and Emily Blunt.`\
-https://nytimes.com/video/movies/100000009444739/the-fall-guy-scene.html
-
 **An Opaque Philip Johnson House Reopens After 15 Years**\
 `Following an extensive restoration, the Brick House, the other half of the architect’s famous Glass House, is once again receiving visitors.`\
 https://nytimes.com/2024/05/03/t-magazine/philip-johnson-brick-house.html
@@ -37,4 +29,12 @@ https://nytimes.com/2024/05/03/us/politics/china-taiwan-inf-treaty.html
 **Horse Racing’s Loudest Critic Is Favored in Its Biggest Race**\
 `The brash owner Mike Repole will take a break from tweaking horse racing’s powers when his colt Fierceness runs in the Kentucky Derby on Saturday.`\
 https://nytimes.com/2024/05/03/business/kentucky-derby-mike-repole-fierceness.html
+
+**Pro-Palestinian Encampments Spread to Campuses in Other Countries**\
+`Student activists in Australia, Britain, France and elsewhere are challenging their universities’ stances on the war in Gaza and ties to Israel.`\
+https://nytimes.com/2024/05/03/world/palestinian-protests-france-australia-uk.html
+
+**Still No Stag and Not Much Flation**\
+`Most of the bad news about the economy is just noise.`\
+https://nytimes.com/2024/05/03/opinion/krugman-inflation-jobs-economy.html
 

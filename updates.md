@@ -1,3 +1,11 @@
+**Police Remove Dozens of Protesters from Sciences Po University in Paris**\
+`Student demonstrators had been occupying a campus building in central Paris, in protest over the war in Gaza. French police cleared the building on Friday.`\
+https://nytimes.com/video/world/middleeast/100000009446756/police-remove-dozens-of-protesters-from-sciences-po-university-in-paris.html
+
+**‘The Fall Guy’ | Anatomy of a Scene**\
+`The director David Leitch narrates a sequence from his film featuring Ryan Gosling and Emily Blunt.`\
+https://nytimes.com/video/movies/100000009444739/the-fall-guy-scene.html
+
 **An Opaque Philip Johnson House Reopens After 15 Years**\
 `Following an extensive restoration, the Brick House, the other half of the architect’s famous Glass House, is once again receiving visitors.`\
 https://nytimes.com/2024/05/03/t-magazine/philip-johnson-brick-house.html
