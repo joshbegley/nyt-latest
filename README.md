@@ -1,3 +1,7 @@
+**8 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://nytimes.com/2024/05/03/movies/new-movies-this-week-critics.html
+
 **The Fed gets evidence that the job market is cooling, including slower wage gains.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/05/03/business/jobs-report-april-economy/the-fed-gets-evidence-that-the-job-market-is-cooling-including-slower-wage-gains
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/03/business/dealbook/warren-buffett-berkshire-hathaw
 **Data shows a healthy economy, but consumers feel gloomy.**\
 `By J. Edward Moreno`\
 https://nytimes.com/live/2024/05/03/business/jobs-report-april-economy/data-shows-a-healthy-economy-but-consumers-feel-gloomy
-
-**For the Federal Reserve, unemployment and wages are in focus.**\
-`By Jeanna Smialek`\
-https://nytimes.com/live/2024/05/03/business/jobs-report-april-economy/for-the-federal-reserve-unemployment-and-wages-are-in-focus
 
