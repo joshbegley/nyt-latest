@@ -1,3 +1,7 @@
+**N.Y.P.D. Says Police Officer Accidentally Fired Gun Inside Columbia Building**\
+`Footage of the shooting was captured on the officer’s body camera and provided to the Manhattan district attorney. The officer was on the first floor of Hamilton Hall when his gun went off.`\
+https://nytimes.com/2024/05/03/nyregion/nypd-columbia-shooting-hamilton.html
+
 **Friday Briefing**\
 `Hamas considers a cease-fire.`\
 https://nytimes.com/2024/05/03/briefing/hamas-ceasefire-russia-chemical-weapons.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/03/style/maddie-whittle-charles-bramesco-wedding.htm
 **We Didn’t Know It Was the Last Time**\
 `My daughter and I looked at a book together, posed for a picture, and then she left. Forever.`\
 https://nytimes.com/2024/05/03/style/modern-love-we-didnt-know-it-was-the-last-time.html
-
-**Jury Hears Tape of Trump and Cohen Discussing Hush-Money Deal**\
-`The tape, played at the former president’s criminal trial, captured Michael Cohen, the former fixer of Donald Trump, telling him about a payment to a former Playboy model. Jonah Bromwich, who covers criminal justice for The New York Times, gives a summary.`\
-https://nytimes.com/video/nyregion/100000009446422/jury-hears-tape-of-trump-and-cohen.html
 

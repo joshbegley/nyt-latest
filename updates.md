@@ -1,3 +1,7 @@
+**N.Y.P.D. Says Police Officer Accidentally Fired Gun Inside Columbia Building**\
+`Footage of the shooting was captured on the officer’s body camera and provided to the Manhattan district attorney. The officer was on the first floor of Hamilton Hall when his gun went off.`\
+https://nytimes.com/2024/05/03/nyregion/nypd-columbia-shooting-hamilton.html
+
 **Friday Briefing**\
 `Hamas considers a cease-fire.`\
 https://nytimes.com/2024/05/03/briefing/hamas-ceasefire-russia-chemical-weapons.html
