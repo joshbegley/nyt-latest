@@ -4,7 +4,7 @@ https://nytimes.com/2024/05/03/books/review/new-books-recommendations.html
 
 **Biden and Trump tussle over the economy with the new jobs report.**\
 `polls show voters continue to be displeased with prices and the overall economy.`\
-https://nytimes.com/live/2024/04/28/us/biden-trump-campaign/biden-and-trump-tussle-over-the-economy-with-the-new-jobs-report
+https://nytimes.com/live/2024/04/28/us/biden-trump-campaign/biden-trump-jobs-report
 
 **Biden vs. Trump, through the prism of the campus protests.**\
 `By Chris Cameron`\
