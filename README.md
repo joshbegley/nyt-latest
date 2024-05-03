@@ -1,10 +1,14 @@
+**8 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/05/03/books/review/new-books-recommendations.html
+
 **Biden and Trump tussle over the economy with the new jobs report.**\
 `polls show voters continue to be displeased with prices and the overall economy.`\
-https://nytimes.com/2024/05/03/us/politics/biden-and-trump-tussle-over-the-economy-with-the-new-jobs-report.html
+https://nytimes.com/live/2024/04/28/us/biden-trump-campaign/biden-and-trump-tussle-over-the-economy-with-the-new-jobs-report
 
 **Biden vs. Trump, through the prism of the campus protests.**\
 `By Chris Cameron`\
-https://nytimes.com/2024/05/03/us/politics/biden-vs-trump-through-the-prism-of-the-campus-protests.html
+https://nytimes.com/live/2024/04/28/us/biden-trump-campaign/biden-vs-trump-through-the-prism-of-the-campus-protests
 
 **Auditor That Works for Trump Media Charged With Fraud**\
 `Regulators said BF Borgers failed to abide by accounting rules that its public company clients are required to follow.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/03/theater/the-cherry-tree-nina-hoss-donmar-warehous
 **Dortmund, Bayern Munich and the Siren Song of Yesterday**\
 `Change comes neither easily nor naturally at Germany’s two most successful clubs. Will success in the Champions League delay it again?`\
 https://nytimes.com/2024/05/03/world/europe/champions-league-dortmund-bayern.html
-
-**Watch Ryan Gosling Perform His Own Stunt in ‘The Fall Guy’**\
-`The director David Leitch narrates a sequence from the film featuring Gosling and Emily Blunt.`\
-https://nytimes.com/2024/05/03/movies/the-fall-guy-scene.html
 
