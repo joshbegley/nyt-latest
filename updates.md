@@ -1,3 +1,7 @@
+**The Fed Is Looking for a Job Market Cool-Down. It Just Got One.**\
+`Wage growth and hiring slowed in April, evidence of the job market slowdown that Federal Reserve officials have been waiting on.`\
+https://nytimes.com/2024/05/03/business/the-fed-gets-evidence-that-the-job-market-is-cooling-including-slower-wage-gains.html
+
 **Missouri and South Dakota Move Toward Abortion Rights Ballot Questions**\
 `Both states are reliably Republican and have abortion bans that are among the strictest in the nation.`\
 https://nytimes.com/2024/05/03/us/abortion-rights-missouri-south-dakota.html
