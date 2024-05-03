@@ -1,3 +1,7 @@
+**Henry Cuellar Indicted Over Bribery Scheme**\
+`Mr. Cuellar, who has maintained his innocence, and his wife are accused of accepting bribes from a bank in Mexico City and from an oil and gas company owned by Azerbaijan.`\
+https://nytimes.com/2024/05/03/us/henry-cuellar-indictment.html
+
 **Outside court, high-volume debate and a paper crown.**\
 `By Nate Schweber`\
 https://nytimes.com/live/2024/05/03/nyregion/trump-hush-money-trial/outside-court-high-volume-debate-and-a-paper-crown
