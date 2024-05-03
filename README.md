@@ -1,3 +1,7 @@
+**U.S. employers added 175,000 jobs in April.**\
+`By Lydia DePillis`\
+https://nytimes.com/live/2024/05/03/business/jobs-report-april-economy/us-employers-added-175000-jobs-in-april
+
 **8 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/05/03/books/review/new-books-recommendations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/03/business/media/tiktok-advertisers.html
 **‘The Cherry Orchard’ Review: Chekhov in the Fun Zone**\
 `Benedict Andrews’s production in London offers perfectly pitched comedy where other directors find somber tragedy.`\
 https://nytimes.com/2024/05/03/theater/the-cherry-tree-nina-hoss-donmar-warehouse.html
-
-**Dortmund, Bayern Munich and the Siren Song of Yesterday**\
-`Change comes neither easily nor naturally at Germany’s two most successful clubs. Will success in the Champions League delay it again?`\
-https://nytimes.com/2024/05/03/world/europe/champions-league-dortmund-bayern.html
 
