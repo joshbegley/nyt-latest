@@ -1,3 +1,7 @@
+**Auditor That Works for Trump Media Charged With Fraud**\
+`Regulators said BF Borgers failed to abide by accounting rules that its public company clients are required to follow.`\
+https://nytimes.com/2024/05/03/business/auditor-trump-media-fraud.html
+
 **Police Clear Tents and Arrest N.Y.U. and New School Protesters**\
 `Protesters had been camped out for days, demanding that their schools end financial ties with Israel.`\
 https://nytimes.com/2024/05/03/us/nyu-new-school-protest-arrests.html
