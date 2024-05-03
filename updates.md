@@ -1,3 +1,11 @@
+**Cool-Down Stretches**\
+`Eli Cotham makes his New York Times Crossword debut.`\
+https://nytimes.com/2024/05/02/crosswords/daily-puzzle-2024-05-03.html
+
+**‘Unfrosted’ Review: What’s the Deal With Pop-Tarts?**\
+`Starring Jerry Seinfeld in his feature directing debut, “Unfrosted: The Pop-Tarts Story” is the only corporate saga whose main ingredient is high-fructose sarcasm.`\
+https://nytimes.com/2024/05/02/movies/unfrosted-review.html
+
 **Jill Biden Hosts Gala, With Teachers as the Honored Dignitaries**\
 `The first lady commended the winner of the National Teacher of the Year award during an event evoking formal state dinners.`\
 https://nytimes.com/2024/05/02/us/politics/jill-biden-teacher-awards.html

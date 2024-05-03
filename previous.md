@@ -1,3 +1,11 @@
+**Cool-Down Stretches**\
+`Eli Cotham makes his New York Times Crossword debut.`\
+https://nytimes.com/2024/05/02/crosswords/daily-puzzle-2024-05-03.html
+
+**‘Unfrosted’ Review: What’s the Deal With Pop-Tarts?**\
+`Starring Jerry Seinfeld in his feature directing debut, “Unfrosted: The Pop-Tarts Story” is the only corporate saga whose main ingredient is high-fructose sarcasm.`\
+https://nytimes.com/2024/05/02/movies/unfrosted-review.html
+
 **Jill Biden Hosts Gala, With Teachers as the Honored Dignitaries**\
 `The first lady commended the winner of the National Teacher of the Year award during an event evoking formal state dinners.`\
 https://nytimes.com/2024/05/02/us/politics/jill-biden-teacher-awards.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/02/theater/lempicka-broadway-closing.html
 **U.N. report says rebuilding all the homes destroyed in Gaza could take 80 years.**\
 `The projection didn’t take into account the time it would take to repair the homes that were damaged but not destroyed.`\
 https://nytimes.com/2024/05/02/world/middleeast/gaza-homes-rebuild-un-report.html
-
-**Many protesters arrested in New York were not students, faculty or staff. But are they ‘outside agitators’?**\
-`By Chelsia Rose Marcius and Sharon Otterman`\
-https://nytimes.com/live/2024/05/02/us/ucla-protests-college-campus/how-many-protesters-arrested-in-new-york-were-outside-agitators
-
-**Why the Protests Help Trump**\
-`The excesses of social protest movements can play into the hands of candidates who promise to restore order.`\
-https://nytimes.com/2024/05/02/opinion/student-protests-trump.html
 
