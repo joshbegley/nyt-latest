@@ -1,3 +1,15 @@
+**Outside court, high-volume debate and a paper crown.**\
+`By Nate Schweber`\
+https://nytimes.com/live/2024/05/03/nyregion/trump-hush-money-trial/outside-court-high-volume-debate-and-a-paper-crown
+
+**As Rains Lash South Texas, Residents Brace for More Flooding**\
+`More than 800,000 people were under flash flood warnings in the Houston area and other parts of South Texas on Friday.`\
+https://nytimes.com/2024/05/03/us/texas-rain-flooding-houston.html
+
+**A Gaza Doctor Has Died in Israeli Custody, Palestinian Groups Say**\
+`Israel has not offered an explanation for the death of Dr. Adnan Ahmad Albursh, chief of orthopedics at Al-Shifa hospital, four months after he was first detained.`\
+https://nytimes.com/2024/05/03/world/middleeast/doctor-died-israeli-detention.html
+
 **The Music of Luca Guadagnino’s Cinematic Universe**\
 `Hear songs from “Challengers,” “Call Me by Your Name” and more.`\
 https://nytimes.com/2024/05/03/arts/music/amplifer-newsletter-luca-guadagninos-soundtracks.html
