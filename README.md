@@ -22,13 +22,13 @@ https://nytimes.com/2024/05/03/briefing/hamas-ceasefire-russia-chemical-weapons.
 `Oil platform crews work long days for weeks at a time. But the flight to the platform is so risky that they must take a survival course. `\
 https://nytimes.com/card/2024/05/03/business/energy-environment/shell-oil-platform-training
 
-**How to Watch China’s Launch to the Far Side of the Moon**\
-`If successful, the Chang’e-6 mission will be the first in history to return a sample from a part of the moon that we never get to see from Earth.`\
-https://nytimes.com/2024/05/03/science/china-moon-launch-watch.html
-
 **An Online Radio Station Where Everything Is Eclectic**\
 `Music played by D.J.s like Flo Dill on NTS encompasses obscure ambient tracks and timeworn dad rock. The approach has won it fans far beyond its London home.`\
 https://nytimes.com/2024/05/03/arts/music/nts-radio-flo-dill.html
+
+**How to Watch China’s Launch to the Far Side of the Moon**\
+`If successful, the Chang’e-6 mission will be the first in history to return a sample from a part of the moon that we never get to see from Earth.`\
+https://nytimes.com/2024/05/03/science/china-moon-launch-watch.html
 
 **How a One-Month Fitness Pass Turned Into a Lifetime Commitment**\
 `Andrew Matt met Kayla Dye six years ago at an indoor cycling studio in Dallas after signing up for a class she was teaching. Both instructor and student were immediately smitten.`\
