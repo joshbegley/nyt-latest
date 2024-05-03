@@ -1,3 +1,7 @@
+**‘Access Hollywood’ Tape Rattled Trump’s Campaign, Hicks Recalls in Testimony**\
+`Hope Hicks, Donald J. Trump’s campaign press secretary in 2016, testified about the infamous recording, which captured him bragging about grabbing women’s genitals. It was revealed by The Washington Post a month before the election.`\
+https://nytimes.com/2024/05/03/nyregion/access-hollywood-tape-trump-trial.html
+
 **Ballot-Access Consultant for R.F.K. Jr. Was Arrested on Assault Charges**\
 `The consultant, Trent Pool, was arrested at a Manhattan hotel last weekend after a woman said he had assaulted her, according to the police.`\
 https://nytimes.com/2024/05/03/us/politics/rfk-jr-operative-assault.html
