@@ -18,7 +18,7 @@ https://nytimes.com/2024/05/03/books/cj-sansom-dead.html
 `The dramatic appearance of Ms. Hicks, once one of Donald J. Trump’s closest aides, riveted the audience. During her testimony, she blinked back tears.`\
 https://nytimes.com/2024/05/03/nyregion/hope-hicks-testimony-trump-trial.html
 
-**How Counterprotesters at U.C.L.A. Provoked Violence, Unchecked For Hours**\
+**How Counterprotesters at U.C.L.A. Provoked Violence, Unchecked for Hours**\
 `The New York Times used videos filmed by journalists, witnesses and protesters to analyze hours of clashes — and a delayed police response — at a pro-Palestinian encampment on Tuesday.`\
 https://nytimes.com/interactive/2024/05/03/us/ucla-protests-encampment-violence.html
 
