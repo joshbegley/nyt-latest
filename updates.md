@@ -1,3 +1,7 @@
+**Sexually Transmitted Infections Have Surged, and Age Is No Barrier**\
+`Older daters are not getting adequate screening and protection from S.T.I.s. Here’s how to be a safer sexually active senior.`\
+https://nytimes.com/2024/05/03/well/live/sti-seniors-chlamydia-syphilis.html
+
 **The Fed Is Looking for a Job Market Cool-Down. It Just Got One.**\
 `Wage growth and hiring slowed in April, evidence of the job market slowdown that Federal Reserve officials have been waiting on.`\
 https://nytimes.com/2024/05/03/business/the-fed-gets-evidence-that-the-job-market-is-cooling-including-slower-wage-gains.html
