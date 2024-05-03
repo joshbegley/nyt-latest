@@ -1,3 +1,7 @@
+**Billionaire Donor Assails Brown’s ‘Unconscionable’ Deal With Protesters**\
+`Real estate mogul Barry Sternlicht’s scathing criticism of his alma mater is the most immediate blowback against the school’s deal to end protests on campus.`\
+https://nytimes.com/2024/05/03/business/sterlicht-brown-university-donor.html
+
 **U.S. Seeks to Build World Pressure on Russia Over Space Nuclear Weapon**\
 `An American official said the United States had information undermining Russia’s claim that a device it is developing is for peaceful scientific research.`\
 https://nytimes.com/2024/05/03/us/politics/russia-space-nuclear-weapon.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/03/world/europe/campus-protests-rorschach-test.html
 **Paramount Will Let Exclusive Talks With Skydance Lapse, Imperiling Deal**\
 `Negotiations are now likely to focus on another suitor, Sony, which has teamed up with the private equity giant Apollo on a $26 billion bid.`\
 https://nytimes.com/2024/05/03/business/media/paramount-skydance-exclusive-talks-lapse.html
-
-**Kristi Noem’s New Book Falsely Says She Met Kim Jong-un**\
-`“I’m sure he underestimated me,” Ms. Noem writes of the North Korean leader in her forthcoming book. A spokesman said the error would be corrected.`\
-https://nytimes.com/2024/05/03/us/politics/kristi-noem-book-kim-jong-un.html
 
