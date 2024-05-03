@@ -1,3 +1,7 @@
+**Georgia Bucks Bail Reform, but at What Cost?**\
+`It’s an unfortunate moment for the state to virtually eliminate the repeat posting of bail.`\
+https://nytimes.com/live/2024/05/01/opinion/thepoint/georgia-bail-reform
+
 **The Actor Who Played Jar Jar Binks Is Proud of His ‘Star Wars’ Legacy**\
 `Ahmed Best recalls the painful backlash to the “Phantom Menace” character that was considered a racial stereotype at the time, but is now embraced by fans.`\
 https://nytimes.com/2024/05/03/movies/jar-jar-binks-actor-star-wars-ahmed-best.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/03/us/politics/rfk-jr-operative-assault.html
 **Review: At New York City Ballet’s Gala, the Usual With a Twist**\
 `The two premieres — one by Justin Peck, one by Amy Hall Garner — were gala-style pieces that felt more fresh than rote.`\
 https://nytimes.com/2024/05/03/arts/dance/review-city-ballet-gala-justin-peck-amy-hall-garner.html
-
-**Nuclear Power as a Clean Energy Tool?**\
-`Readers discuss an Opinion guest essay calling that a fantasy. Also: Quality at Boeing; a toilet sign; running, fast and slow.`\
-https://nytimes.com/2024/05/03/opinion/nuclear-power-energy.html
 
