@@ -1,3 +1,15 @@
+**TikTok’s Boss Goes From Reserved Tech Exec to Met Gala Chair**\
+`With the company facing a ban in the U.S., Shou Chew is expected to join Zendaya, Bad Bunny and Anna Wintour on the red carpet.`\
+https://nytimes.com/2024/05/03/style/tiktoks-boss-goes-from-reserved-tech-exec-to-met-gala-chair.html
+
+**How I Reported on the Columbia Student Protests … in 1996**\
+`Nearly three decades ago, a young reporter slept on the floor of Columbia’s Hamilton Hall for several nights to file an article for The Village Voice.`\
+https://nytimes.com/2024/05/03/insider/columbia-student-protests-1996.html
+
+**Political Furor Over U.S. Steel Bid Puts Investment Panel in Spotlight**\
+`Backlash over the deal has echoes of the 1980s when Nippon Steel tried and failed to buy another American metal company.`\
+https://nytimes.com/2024/05/03/us/politics/us-steel-nippon-steel-biden-cfius.html
+
 **Officer Accidentally Fired a Gun at Columbia University, N.Y.P.D. Says**\
 `The police said a sergeant unintentionally fired his gun into an empty room of Hamilton Hall while officers were removing pro-Palestinian protesters from the building.`\
 https://nytimes.com/video/nyregion/100000009447113/columbia-nypd-gun-hamilton-hall-protest.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/03/nyregion/access-hollywood-tape-trump-trial.html
 **15-Year-Old Girl Charged With Murder in Stabbing Death of Bronx Teenager**\
 `The victim, identified by the police as Emery Mizell, 17, was attacked at an apartment building in the Soundview neighborhood of the Bronx.`\
 https://nytimes.com/2024/05/03/nyregion/teenager-stabbing-murder-bronx.html
-
-**Liberia Moves to Create War Crimes Court, Decades After Civil Wars Ended**\
-`Until now, key players had blocked the establishment of a court that could hold them accountable for atrocities like murder, rape and torture.`\
-https://nytimes.com/2024/05/03/world/africa/liberia-court-war-crimes.html
-
-**U.S. employers added 175,000 jobs in April.**\
-`By Lydia DePillis`\
-https://nytimes.com/live/2024/05/03/business/jobs-report-april-economy/us-employers-added-175000-jobs-in-april
-
-**8 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2024/05/03/books/review/new-books-recommendations.html
 
