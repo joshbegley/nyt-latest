@@ -1,3 +1,11 @@
+**From Hope Hicks, the Tears of Truth**\
+`It sunk in that her testimony was hurting the man she still admires.`\
+https://nytimes.com/2024/05/01/opinion/trump-trial-hope-hicks.html
+
+**The Job Market Shifted Into Lower Gear**\
+`Also, a congressman from Texas was indicted. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/05/03/briefing/jobs-report-campus-protests-pop-tarts.html
+
 **Adams Administration and N.Y. City Council Trade Harassment Accusations**\
 `The Council speaker requested an investigation of police officials’ use of social media to attack critics. The mayor’s office asked for an inquiry into a councilman’s behavior.`\
 https://nytimes.com/2024/05/03/nyregion/police-critics-social-media.html

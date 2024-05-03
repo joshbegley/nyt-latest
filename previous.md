@@ -1,3 +1,11 @@
+**From Hope Hicks, the Tears of Truth**\
+`It sunk in that her testimony was hurting the man she still admires.`\
+https://nytimes.com/2024/05/01/opinion/trump-trial-hope-hicks.html
+
+**The Job Market Shifted Into Lower Gear**\
+`Also, a congressman from Texas was indicted. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/05/03/briefing/jobs-report-campus-protests-pop-tarts.html
+
 **Adams Administration and N.Y. City Council Trade Harassment Accusations**\
 `The Council speaker requested an investigation of police officials’ use of social media to attack critics. The mayor’s office asked for an inquiry into a councilman’s behavior.`\
 https://nytimes.com/2024/05/03/nyregion/police-critics-social-media.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/05/03/smarter-living/wirecutter/small-bedro
 **Canadian Police Arrest 3 in Slaying of Sikh Leader**\
 `The killing of Hardeep Singh Nijjar, a Sikh nationalist who led a temple in British Columbia, set off diplomatic skirmishes between Canada and India.`\
 https://nytimes.com/2024/05/03/world/canada/arrests-hardeep-singh-nijjar-india.html
-
-**Good Luck Isn’t Good Enough to Fight Bird Flu**\
-`It took a pair of alert veterinarians to tell the world about H5N1 in cows.`\
-https://nytimes.com/live/2024/05/01/opinion/thepoint/bird-flu-cows-texas
-
-**A Conversation With Colm Tóibín**\
-`The Irish author discusses “Long Island,” the sequel to his 2009 novel “Brooklyn.”`\
-https://nytimes.com/2024/05/03/books/review/a-conversation-with-colm-toibin.html
 
