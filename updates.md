@@ -1,3 +1,11 @@
+**What to Watch Today in the April Jobs Report**\
+`Economists expect another strong month for job creation, even as other indicators of labor demand weaken.`\
+https://nytimes.com/2024/05/03/business/economy/jobs-report-april-2024.html
+
+**What Happened When the Skating Coaches Wanted a Union**\
+`A group of figure skating coaches at Chelsea Piers in Manhattan, many of whom earn less than $40,000 a year, sought to bargain their contracts collectively. Two were fired.`\
+https://nytimes.com/2024/05/03/nyregion/what-happened-when-the-skating-coaches-wanted-a-union.html
+
 **The Secret Recording Played at Trump’s Trial, and the Latest Cease-Fire Negotiations**\
 `Plus, the shadow over the Kentucky Derby.`\
 https://nytimes.com/2024/05/03/podcasts/the-secret-recording-played-at-trumps-trial-and-the-latest-cease-fire-negotiations.html
