@@ -1,3 +1,11 @@
+**Hope Hicks Takes the Stand: 5 Takeaways From Trump’s Criminal Trial**\
+`In a riveted courtroom, Ms. Hicks, the former spokeswoman for Donald J. Trump, testified how she and her former boss managed one scandal after another.`\
+https://nytimes.com/2024/05/03/nyregion/trump-trial-hope-hicks-takeaways.html
+
+**N.Y.P.D. Social Media Attacks Prompt City Council to Seek Investigation**\
+`The Council speaker requested an investigation of police officials’ use of social media to attack critics. The mayor’s office asked for an inquiry into a councilman’s behavior.`\
+https://nytimes.com/2024/05/03/nyregion/police-critics-social-media.html
+
 **From Hope Hicks, the Tears of Truth**\
 `It sunk in that her testimony was hurting the man she still admires.`\
 https://nytimes.com/2024/05/01/opinion/trump-trial-hope-hicks.html
