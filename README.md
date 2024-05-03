@@ -1,3 +1,7 @@
+**Auditor That Works for Trump Media Charged With Fraud**\
+`Regulators said BF Borgers failed to abide by accounting rules that its public company clients are required to follow.`\
+https://nytimes.com/2024/05/03/business/auditor-trump-media-fraud.html
+
 **Police Clear Tents and Arrest N.Y.U. and New School Protesters**\
 `Protesters had been camped out for days, demanding that their schools end financial ties with Israel.`\
 https://nytimes.com/2024/05/03/us/nyu-new-school-protest-arrests.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009446756/police-remove-dozens-
 **‘The Fall Guy’ | Anatomy of a Scene**\
 `The director David Leitch narrates a sequence from his film featuring Ryan Gosling and Emily Blunt.`\
 https://nytimes.com/video/movies/100000009444739/the-fall-guy-scene.html
-
-**An Opaque Philip Johnson House Reopens After 15 Years**\
-`Following an extensive restoration, the Brick House, the other half of the architect’s famous Glass House, is once again receiving visitors.`\
-https://nytimes.com/2024/05/03/t-magazine/philip-johnson-brick-house.html
 
