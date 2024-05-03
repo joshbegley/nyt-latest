@@ -1,3 +1,7 @@
+**Some workers in the University of California system could strike over U.C.L.A. treatment.**\
+`A union representing academic workers said it would file unfair labor charges against the University of California, Los Angeles, and potentially walk out over the handling of protests this week.`\
+https://nytimes.com/2024/05/02/us/some-workers-in-the-university-of-california-system-could-strike-over-ucla-treatment.html
+
 **Jury Hears Tape of Trump and Cohen Discussing Hush-Money Deal**\
 `The tape, played at the former president’s criminal trial, captured Michael Cohen, the former fixer of Donald Trump, telling him about a payment to a former Playboy model. Jonah Bromwich, who covers criminal justice for The New York Times, gives a summary.`\
 https://nytimes.com/video/nyregion/100000009446422/jury-hears-tape-of-trump-and-cohen.html
