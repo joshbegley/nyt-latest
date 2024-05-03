@@ -1,3 +1,15 @@
+**‘The Cherry Orchard’ Review: Chekhov in the Fun Zone**\
+`Benedict Andrews’s production in London offers perfectly pitched comedy where other directors find somber tragedy.`\
+https://nytimes.com/2024/05/03/theater/the-cherry-tree-nina-hoss-donmar-warehouse.html
+
+**Dortmund, Bayern Munich and the Siren Song of Yesterday**\
+`Change comes neither easily nor naturally at Germany’s two most successful clubs. Will success in the Champions League delay it again?`\
+https://nytimes.com/2024/05/03/world/europe/champions-league-dortmund-bayern.html
+
+**Watch Ryan Gosling Perform His Own Stunt in ‘The Fall Guy’**\
+`The director David Leitch narrates a sequence from the film featuring Gosling and Emily Blunt.`\
+https://nytimes.com/2024/05/03/movies/the-fall-guy-scene.html
+
 **Police Remove Dozens of Protesters from Sciences Po University in Paris**\
 `Student demonstrators had been occupying a campus building in central Paris, in protest over the war in Gaza. French police cleared the building on Friday.`\
 https://nytimes.com/video/world/middleeast/100000009446756/police-remove-dozens-of-protesters-from-sciences-po-university-in-paris.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/03/movies/five-international-movies-to-stream-now.ht
 **Sexually Transmitted Infections Have Surged, and Age Is No Barrier**\
 `Older daters are not getting adequate screening and protection from S.T.I.s. Here’s how to be a safer sexually active senior.`\
 https://nytimes.com/2024/05/03/well/live/sti-seniors-chlamydia-syphilis.html
-
-**Missouri and South Dakota Move Toward Abortion Rights Ballot Questions**\
-`Both states are reliably Republican and have abortion bans that are among the strictest in the nation.`\
-https://nytimes.com/2024/05/03/us/abortion-rights-missouri-south-dakota.html
-
-**The Death of a Treaty Could Be a Lifesaver for Taiwan**\
-`Since pulling out of an arms-limitation agreement with Russia in 2019, the U.S. has quickly developed new weapons that could be used to stop a Chinese invasion force.`\
-https://nytimes.com/2024/05/03/us/politics/china-taiwan-inf-treaty.html
-
-**Horse Racing’s Loudest Critic Is Favored in Its Biggest Race**\
-`The brash owner Mike Repole will take a break from tweaking horse racing’s powers when his colt Fierceness runs in the Kentucky Derby on Saturday.`\
-https://nytimes.com/2024/05/03/business/kentucky-derby-mike-repole-fierceness.html
 
