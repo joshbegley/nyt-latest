@@ -1,3 +1,7 @@
+**U.S. employers added 175,000 jobs in April.**\
+`By Lydia DePillis`\
+https://nytimes.com/live/2024/05/03/business/jobs-report-april-economy/us-employers-added-175000-jobs-in-april
+
 **Biden and Trump tussle over the economy with the new jobs report.**\
 `polls show voters continue to be displeased with prices and the overall economy.`\
 https://nytimes.com/live/2024/04/28/us/biden-trump-campaign/biden-trump-jobs-report
