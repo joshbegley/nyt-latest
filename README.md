@@ -18,8 +18,8 @@ https://nytimes.com/2024/05/03/world/palestinian-protests-france-australia-uk.ht
 `Most of the bad news about the economy is just noise.`\
 https://nytimes.com/2024/05/03/opinion/krugman-inflation-jobs-economy.html
 
-**The Fed gets evidence that the job market is cooling, including slower wage gains.**\
-`By Jeanna Smialek`\
+**The Fed Is Looking for a Job Market Cool-Down. It Just Got One.**\
+`Wage growth and hiring slowed in April, evidence of the job market slowdown that Federal Reserve officials have been waiting on.`\
 https://nytimes.com/2024/05/03/business/the-fed-gets-evidence-that-the-job-market-is-cooling-including-slower-wage-gains.html
 
 **8 New Movies Our Critics Are Talking About This Week**\
