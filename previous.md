@@ -1,3 +1,7 @@
+**Jimmy Kimmel Wants to Testify at Donald Trump’s Criminal Trial**\
+`“I think I can keep Trump awake during the trial,” Kimmel said after learning that text messages about his talk show were entered as evidence in the case.`\
+https://nytimes.com/2024/05/03/arts/television/jimmy-kimmel-donald-trump-trial.html
+
 **‘Dead Poets Society’ Has Some Distinctly Australian Relevance**\
 `Brought to life by the Australian director Peter Weir, the movie’s conflict reflects a collective cultural trait his fellow citizens can relate to.`\
 https://nytimes.com/2024/05/03/world/australia/dead-poets-society.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/03/arts/music/nts-radio-flo-dill.html
 **How to Watch China’s Launch to the Far Side of the Moon**\
 `If successful, the Chang’e-6 mission will be the first in history to return a sample from a part of the moon that we never get to see from Earth.`\
 https://nytimes.com/2024/05/03/science/china-moon-launch-watch.html
-
-**How a One-Month Fitness Pass Turned Into a Lifetime Commitment**\
-`Andrew Matt met Kayla Dye six years ago at an indoor cycling studio in Dallas after signing up for a class she was teaching. Both instructor and student were immediately smitten.`\
-https://nytimes.com/2024/05/03/style/kayla-dye-andrew-matt-wedding.html
 

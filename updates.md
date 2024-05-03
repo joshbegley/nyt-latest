@@ -1,3 +1,7 @@
+**Jimmy Kimmel Wants to Testify at Donald Trump’s Criminal Trial**\
+`“I think I can keep Trump awake during the trial,” Kimmel said after learning that text messages about his talk show were entered as evidence in the case.`\
+https://nytimes.com/2024/05/03/arts/television/jimmy-kimmel-donald-trump-trial.html
+
 **‘Dead Poets Society’ Has Some Distinctly Australian Relevance**\
 `Brought to life by the Australian director Peter Weir, the movie’s conflict reflects a collective cultural trait his fellow citizens can relate to.`\
 https://nytimes.com/2024/05/03/world/australia/dead-poets-society.html
