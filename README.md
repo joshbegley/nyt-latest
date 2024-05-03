@@ -1,3 +1,7 @@
+**University of Chicago President Says ‘Encampment Cannot Continue’**\
+`The university is home to the Chicago statement, a framework for free expression that has been embraced by other colleges.`\
+https://nytimes.com/2024/05/03/us/university-of-chicago-protest.html
+
 **The Best of Late Night This Week**\
 `This week, the hosts discussed a revelation from the South Dakota governor, Kristi Noem, as well as former President Trump’s apparent inability to stay awake in his Manhattan criminal trial. Here’s what they had to say.`\
 https://nytimes.com/interactive/2024/05/03/arts/television/best-of-late-night-kristi-noem.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/03/us/politics/us-steel-nippon-steel-biden-cfius.htm
 **Officer Accidentally Fired a Gun at Columbia University, N.Y.P.D. Says**\
 `The police said a sergeant unintentionally fired his gun into an empty room of Hamilton Hall while officers were removing pro-Palestinian protesters from the building.`\
 https://nytimes.com/video/nyregion/100000009447113/columbia-nypd-gun-hamilton-hall-protest.html
-
-**Kendrick Lamar Gets Inspired (by Drake), and 9 More New Songs**\
-`Hear tracks by Miranda Lambert, Illuminati Hotties, Mabe Fratti and others.`\
-https://nytimes.com/2024/05/03/arts/music/playlist-kendrick-lamar-miranda-lambert.html
 
