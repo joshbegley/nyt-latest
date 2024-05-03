@@ -1,3 +1,15 @@
+**U.S. Seeks to Build World Pressure on Russia Over Space Nuclear Weapon**\
+`An American official said the United States had information undermining Russia’s claim that a device it is developing is for peaceful scientific research.`\
+https://nytimes.com/2024/05/03/us/politics/russia-space-nuclear-weapon.html
+
+**C.J. Sansom, Mystery Novelist Drawn to Tudor England, Dies at 71**\
+`He wrote a popular series of books revolving around a hunchbacked detective, Shardlake, whose troubles echo the author’s experiences of childhood bullying.`\
+https://nytimes.com/2024/05/03/books/cj-sansom-dead.html
+
+**Hope Hicks Reluctantly Confronts the Man She ‘Totally Understands’ in Court**\
+`The dramatic appearance of Ms. Hicks, once one of Donald J. Trump’s closest aides, riveted the audience. During her testimony, she blinked back tears.`\
+https://nytimes.com/2024/05/03/nyregion/hope-hicks-testimony-trump-trial.html
+
 **How Counterprotesters at U.C.L.A. Provoked Violence, Unchecked For Hours**\
 `The New York Times used videos filmed by journalists, witnesses and protesters to analyze hours of clashes — and a delayed police response — at a pro-Palestinian encampment on Tuesday.`\
 https://nytimes.com/interactive/2024/05/03/us/ucla-protests-encampment-violence.html
