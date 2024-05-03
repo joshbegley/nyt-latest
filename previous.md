@@ -18,7 +18,7 @@ https://nytimes.com/2024/05/03/books/cj-sansom-dead.html
 `The dramatic appearance of Ms. Hicks, once one of Donald J. Trump’s closest aides, riveted the audience. During her testimony, she blinked back tears.`\
 https://nytimes.com/2024/05/03/nyregion/hope-hicks-testimony-trump-trial.html
 
-**How Counterprotesters at U.C.L.A. Provoked Violence, Unchecked For Hours**\
+**How Counterprotesters at U.C.L.A. Provoked Violence, Unchecked for Hours**\
 `The New York Times used videos filmed by journalists, witnesses and protesters to analyze hours of clashes — and a delayed police response — at a pro-Palestinian encampment on Tuesday.`\
 https://nytimes.com/interactive/2024/05/03/us/ucla-protests-encampment-violence.html
 
@@ -26,7 +26,7 @@ https://nytimes.com/interactive/2024/05/03/us/ucla-protests-encampment-violence.
 `The chain, which started with a single shop in Brooklyn in 1924, said it would close all 42 of its locations by the end of July, citing competition from online retailers.`\
 https://nytimes.com/2024/05/03/business/sam-ash-music-closing-stores.html
 
-**Pro-Palestinian Protests At the University of Chicago Test Free Speech Policies**\
+**University of Chicago President Says Pro-Palestinian Encampment ‘Cannot Continue’**\
 `The president of the University of Chicago said on Friday that the pro-Palestinian encampment on his campus’s quad “cannot continue,” a position that was being closely watched in higher education because the university has long held itself up as a national model for free expression.`\
 https://nytimes.com/video/us/100000009447899/pro-palestinian-protests-at-the-university-of-chicago-test-free-speech-policies.html
 

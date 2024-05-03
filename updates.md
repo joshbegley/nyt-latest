@@ -1,3 +1,11 @@
+**How Counterprotesters at U.C.L.A. Provoked Violence, Unchecked for Hours**\
+`The New York Times used videos filmed by journalists, witnesses and protesters to analyze hours of clashes — and a delayed police response — at a pro-Palestinian encampment on Tuesday.`\
+https://nytimes.com/interactive/2024/05/03/us/ucla-protests-encampment-violence.html
+
+**University of Chicago President Says Pro-Palestinian Encampment ‘Cannot Continue’**\
+`The president of the University of Chicago said on Friday that the pro-Palestinian encampment on his campus’s quad “cannot continue,” a position that was being closely watched in higher education because the university has long held itself up as a national model for free expression.`\
+https://nytimes.com/video/us/100000009447899/pro-palestinian-protests-at-the-university-of-chicago-test-free-speech-policies.html
+
 **Joe Biden, Pot President?**\
 `The president’s allies say the Justice Department’s chill take on marijuana has a political upside.`\
 https://nytimes.com/2024/05/03/us/politics/marijuana-reclassification-biden.html
