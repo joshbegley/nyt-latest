@@ -1,3 +1,7 @@
+**Police Clear Tents and Arrest N.Y.U. and New School Protesters**\
+`Protesters had been camped out for days, demanding that their schools end financial ties with Israel.`\
+https://nytimes.com/2024/05/03/us/nyu-new-school-protest-arrests.html
+
 **Winners and Losers of the Columbia Protests? History Will Tell.**\
 `Activism often lands on the right side of history. But history also shows that tactical mistakes — and smashing windows — can weaken protests’ effectiveness.`\
 https://nytimes.com/2024/05/03/nyregion/columbia-protests-new-york.html

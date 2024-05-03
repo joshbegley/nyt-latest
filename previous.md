@@ -1,3 +1,7 @@
+**Police Clear Tents and Arrest N.Y.U. and New School Protesters**\
+`Protesters had been camped out for days, demanding that their schools end financial ties with Israel.`\
+https://nytimes.com/2024/05/03/us/nyu-new-school-protest-arrests.html
+
 **Winners and Losers of the Columbia Protests? History Will Tell.**\
 `Activism often lands on the right side of history. But history also shows that tactical mistakes — and smashing windows — can weaken protests’ effectiveness.`\
 https://nytimes.com/2024/05/03/nyregion/columbia-protests-new-york.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/movies/100000009444739/the-fall-guy-scene.html
 **An Opaque Philip Johnson House Reopens After 15 Years**\
 `Following an extensive restoration, the Brick House, the other half of the architect’s famous Glass House, is once again receiving visitors.`\
 https://nytimes.com/2024/05/03/t-magazine/philip-johnson-brick-house.html
-
-**At Frieze, Photographer of Gay Life Seeks ‘a Place in the Sunshine’**\
-`Stanley Stellar  has documented gay New York, on the streets and in his studio, for decades. Now he steps onto his biggest stage.`\
-https://nytimes.com/2024/05/03/arts/design/stanley-stellar-frieze-photography.html
 
