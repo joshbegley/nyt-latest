@@ -1,3 +1,15 @@
+**How ‘Star Wars’ Fans Saved the Original Movies**\
+`George Lucas wants them to fade into oblivion. But some rebel fans spent more than a decade digitally restoring the original “Star Wars” trilogy, preserving the movies as they were shown in theaters.`\
+https://nytimes.com/2024/05/03/arts/star-wars-films-george-lucas.html
+
+**Two hostages, initially thought to be missing, are confirmed dead by the Israeli military.**\
+`By Gaya Gupta`\
+https://nytimes.com/live/2024/05/03/world/israel-gaza-war-hamas/two-hostages-initially-thought-to-be-missing-are-confirmed-dead-by-the-israeli-military
+
+**Henry Cuellar Indicted Over Bribery Scheme**\
+`Mr. Cuellar and his wife are accused of accepting bribes from a bank in Mexico City and from an oil and gas company owned by Azerbaijan. He has maintained they are innocent.`\
+https://nytimes.com/2024/05/03/us/politics/henry-cuellar-indictment.html
+
 **Henry Cuellar Indicted Over Bribery Scheme**\
 `Mr. Cuellar, who has maintained his innocence, and his wife are accused of accepting bribes from a bank in Mexico City and from an oil and gas company owned by Azerbaijan.`\
 https://nytimes.com/2024/05/03/us/henry-cuellar-indictment.html
