@@ -1,3 +1,7 @@
+**Billionaire Donor Assails Brown’s ‘Unconscionable’ Deal With Protesters**\
+`Real estate mogul Barry Sternlicht’s scathing criticism of his alma mater is the most immediate blowback against the school’s deal to end protests on campus.`\
+https://nytimes.com/2024/05/03/business/sterlicht-brown-university-donor.html
+
 **U.S. Seeks to Build World Pressure on Russia Over Space Nuclear Weapon**\
 `An American official said the United States had information undermining Russia’s claim that a device it is developing is for peaceful scientific research.`\
 https://nytimes.com/2024/05/03/us/politics/russia-space-nuclear-weapon.html
@@ -14,7 +18,7 @@ https://nytimes.com/2024/05/03/nyregion/hope-hicks-testimony-trump-trial.html
 `The New York Times used videos filmed by journalists, witnesses and protesters to analyze hours of clashes — and a delayed police response — at a pro-Palestinian encampment on Tuesday.`\
 https://nytimes.com/interactive/2024/05/03/us/ucla-protests-encampment-violence.html
 
-**Sam Ash Music Stores to Close After 100 Years In Business**\
+**Sam Ash Music Stores to Close After 100 Years in Business**\
 `The chain, which started with a single shop in Brooklyn in 1924, said it would close all 42 of its locations by the end of July, citing competition from online retailers.`\
 https://nytimes.com/2024/05/03/business/sam-ash-music-closing-stores.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/03/world/europe/campus-protests-rorschach-test.html
 **Paramount Will Let Exclusive Talks With Skydance Lapse, Imperiling Deal**\
 `Negotiations are now likely to focus on another suitor, Sony, which has teamed up with the private equity giant Apollo on a $26 billion bid.`\
 https://nytimes.com/2024/05/03/business/media/paramount-skydance-exclusive-talks-lapse.html
-
-**Kristi Noem’s New Book Falsely Says She Met Kim Jong-un**\
-`“I’m sure he underestimated me,” Ms. Noem writes of the North Korean leader in her forthcoming book. A spokesman said the error would be corrected.`\
-https://nytimes.com/2024/05/03/us/politics/kristi-noem-book-kim-jong-un.html
 
