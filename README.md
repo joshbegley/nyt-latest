@@ -34,7 +34,7 @@ https://nytimes.com/2024/05/03/world/middleeast/iran-israel-ship-crew.html
 `Thousands of Americans have filed vaccine-injury claims with the federal government.`\
 https://nytimes.com/2024/05/03/briefing/covid-vaccine-side-effects.html
 
-**What to watch today in the April jobs report.**\
+**U.S. employers added 175,000 jobs in April.**\
 `Economists expect another strong month for job creation, even as other indicators of labor demand weaken.`\
 https://nytimes.com/live/2024/05/03/business/jobs-report-april-economy/jobs-report-april-2024
 
