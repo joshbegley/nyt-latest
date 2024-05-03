@@ -1,3 +1,11 @@
+**Kendrick Lamar Gets Inspired (by Drake), and 9 More New Songs**\
+`Hear tracks by Miranda Lambert, Illuminati Hotties, Mabe Fratti and others.`\
+https://nytimes.com/2024/05/03/arts/music/playlist-kendrick-lamar-miranda-lambert.html
+
+**Liberia Moves to Create War Crimes Court, Decades After Civil Wars Ended**\
+`Until now, key players had blocked the establishment of a court that could hold them accountable for atrocities like murder, rape and torture.`\
+https://nytimes.com/2024/05/03/world/africa/liberia-court-war-crimes.html
+
 **U.S. employers added 175,000 jobs in April.**\
 `By Lydia DePillis`\
 https://nytimes.com/live/2024/05/03/business/jobs-report-april-economy/us-employers-added-175000-jobs-in-april
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/03/nyregion/columbia-protests-new-york.html
 **Who is Hope Hicks, Once One of Trump’s Most Trusted Advisers?**\
 `Ms. Hicks, testifying in Donald J. Trump’s criminal trial, is expected to be asked about the hush money payment at the center of the case against him.`\
 https://nytimes.com/2024/05/03/nyregion/hope-hicks-trump-trial.html
-
-**TikTok Tells Advertisers: ‘We Are Not Backing Down’**\
-`Hundreds of marketers and ad agency types flocked to TikTok’s annual sales presentation after a new law put its future in question.`\
-https://nytimes.com/2024/05/03/business/media/tiktok-advertisers.html
-
-**‘The Cherry Orchard’ Review: Chekhov in the Fun Zone**\
-`Benedict Andrews’s production in London offers perfectly pitched comedy where other directors find somber tragedy.`\
-https://nytimes.com/2024/05/03/theater/the-cherry-tree-nina-hoss-donmar-warehouse.html
 
