@@ -1,3 +1,7 @@
+**Billionaire Donor Assails Brown’s ‘Unconscionable’ Deal With Protesters**\
+`Real estate mogul Barry Sternlicht’s scathing criticism of his alma mater is the most immediate blowback against the school’s deal to end protests on campus.`\
+https://nytimes.com/2024/05/03/business/sterlicht-brown-university-donor.html
+
 **Sam Ash Music Stores to Close After 100 Years in Business**\
 `The chain, which started with a single shop in Brooklyn in 1924, said it would close all 42 of its locations by the end of July, citing competition from online retailers.`\
 https://nytimes.com/2024/05/03/business/sam-ash-music-closing-stores.html
