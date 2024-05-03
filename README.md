@@ -1,3 +1,7 @@
+**Word of the Day: rueful**\
+`This word has appeared in 34 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/03/learning/word-of-the-day-rueful.html
+
 **I-95 Closed in Connecticut After Fiery Truck Crash**\
 `A gasoline tanker crashed on the highway, causing a fire that damaged a bridge in Norwalk, Conn. The highway was expected to be closed at least until Monday.`\
 https://nytimes.com/2024/05/03/nyregion/i-95-tanker-fire-connecticut.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/03/style/kayla-dye-andrew-matt-wedding.html
 **Quotation of the Day: A Tale of Geopolitics, Forgery, and Vanishing Russian Literature**\
 `Quotation of the Day for Friday, May 3, 2024.`\
 https://nytimes.com/2024/05/03/pageoneplus/quotation-of-the-day-a-tale-of-geopolitics-forgery-and-vanishing-russian-literature.html
-
-**The Two-Week Sublet That Led to Love**\
-`Wiktor Freifeld lived in Tusia Dabrowska’s apartment when she left Warsaw for New York. A deep friendship soon followed.`\
-https://nytimes.com/2024/05/03/style/tusia-dabrowska-wiktor-freifeld-wedding.html
 
