@@ -1,3 +1,7 @@
+**After 3 Tourists Go Missing, Bodies Are Found in Baja California**\
+`Mexican authorities recovered the three bodies as a search went on for two Australian tourists and a U.S. citizen who disappeared while on vacation.`\
+https://nytimes.com/2024/05/03/world/americas/mexico-missing-surfers.html
+
 **Drones Changed This Civil War, and Linked Rebels to the World**\
 `Consumer technologies are altering the course of the battle in Myanmar, and rebel drone units are taking notes on Ukraine and other conflicts.`\
 https://nytimes.com/2024/05/04/world/asia/myanmar-war-drones.html
