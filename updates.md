@@ -1,3 +1,7 @@
+**Family Values or Fighting Valor? Russia Grapples With Women’s Wartime Role.**\
+`Russian military efforts to recruit women from prisons and civilian life have clashed with President Vladimir V. Putin’s conservative agenda.`\
+https://nytimes.com/2024/05/04/world/europe/russia-soldiers-women.html
+
 **Trump’s Scandals Captivate the Courtroom, but Case Hangs on Dry Details**\
 `Prosecutors started their criminal case against Donald J. Trump with eye-catching and lurid stories, but the heart of the matter is invoices and ledger entries.`\
 https://nytimes.com/2024/05/04/nyregion/trump-trial-scandals-testimony.html

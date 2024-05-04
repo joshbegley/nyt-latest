@@ -1,3 +1,7 @@
+**Family Values or Fighting Valor? Russia Grapples With Women’s Wartime Role.**\
+`Russian military efforts to recruit women from prisons and civilian life have clashed with President Vladimir V. Putin’s conservative agenda.`\
+https://nytimes.com/2024/05/04/world/europe/russia-soldiers-women.html
+
 **Trump’s Scandals Captivate the Courtroom, but Case Hangs on Dry Details**\
 `Prosecutors started their criminal case against Donald J. Trump with eye-catching and lurid stories, but the heart of the matter is invoices and ledger entries.`\
 https://nytimes.com/2024/05/04/nyregion/trump-trial-scandals-testimony.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/04/nyregion/dylan-lauren-candy-bar.html
 **When a Bunch of Bloody Yanks Came for English Soccer**\
 `American investors are gobbling up the storied teams of the English Premier League — and changing the stadium experience in ways that soccer fans resent.`\
 https://nytimes.com/2024/05/04/magazine/english-soccer-american-owners.html
-
-**Drones Changed This Civil War, and Linked Rebels to the World**\
-`Consumer technologies are altering the course of the battle in Myanmar, and rebel drone units are taking notes on Ukraine and other conflicts.`\
-https://nytimes.com/2024/05/04/world/asia/myanmar-war-drones.html
 
