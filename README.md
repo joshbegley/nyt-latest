@@ -1,3 +1,7 @@
+**Charges Against a Congressman Lay Bare Foreign Government Influence Attempts**\
+`Federal prosecutors say Representative Henry Cuellar tried to shape policy for Azerbaijan in exchange for bribes. The country has spent millions in the past decade lobbying Washington.`\
+https://nytimes.com/2024/05/04/us/politics/azerbaijan-cuellar-lobbying-armenia.html
+
 **Parts of Gaza in ‘Full-Blown Famine,’ U.N. Aid Official Says**\
 `Cindy McCain, the director of the World Food Program, said starvation is entrenched in northern Gaza and is “moving its way south.”`\
 https://nytimes.com/2024/05/04/world/middleeast/gaza-famine-mccain-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/04/style/kentucky-derby-2024-hats.html
 **Southeast Texas Expects More Rain After Days of Flooding**\
 `Several rivers north of Houston were forecast to reach or exceed their floods of record, the authorities said. Evacuation orders were in place for some areas.`\
 https://nytimes.com/2024/05/04/us/houston-texas-flood.html
-
-**At Michigan, commencement is briefly interrupted by dozens of pro-Palestinian graduates.**\
-`By Ryan Patrick Hooper`\
-https://nytimes.com/2024/05/04/us/at-michigan-commencement-is-interrupted-by-dozens-of-pro-palestinian-graduates.html
 
