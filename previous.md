@@ -1,3 +1,7 @@
+**Parts of Gaza Are in Famine, World Food Program Chief Says**\
+`The remarks by Cindy McCain do not constitute an official declaration of famine, but she said the assessment was based on “what we have seen” on the ground.`\
+https://nytimes.com/2024/05/04/world/middleeast/cindy-mccain-gaza-famine.html
+
 **Prom**\
 `Tornadoes, parades, speeches and more stories from high school’s big night.`\
 https://nytimes.com/2024/05/04/podcasts/this-american-life-prom-nyt-audio.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/04/books/review/mauro-javier-cardenas-american-abduc
 **Moving Target**\
 `A recent study offers some suggestions on the best time of day to exercise. But optimizing a routine requires having a routine to begin with.`\
 https://nytimes.com/2024/05/04/briefing/moving-target.html
-
-**Lessons From the Front Lines of Canada’s Fentanyl Crisis**\
-`In a visit supported by the U.S. government, a group of Mexican experts came to British Columbia to discuss ways of responding to rampant opioid deaths.`\
-https://nytimes.com/2024/05/04/world/canada/vancouver-fentanyl-opioid-crisis.html
 
