@@ -1,3 +1,7 @@
+**The Realities of Family Separation, Told in Surreal Terms**\
+`The novel “American Abductions” captures the effects of U.S. immigration policy with the expansive reach of art.`\
+https://nytimes.com/2024/05/04/books/review/mauro-javier-cardenas-american-abductions.html
+
 **Moving Target**\
 `A recent study offers some suggestions on the best time of day to exercise. But optimizing a routine requires having a routine to begin with.`\
 https://nytimes.com/2024/05/04/briefing/moving-target.html
