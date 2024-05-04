@@ -1,3 +1,7 @@
+**2 Books for Rebels**\
+`A maid resists her employers; citizens resist their country.`\
+https://nytimes.com/2024/05/04/books/read-like-wind-recommendations.html
+
 **Parts of Gaza Are in Famine, World Food Program Chief Says**\
 `The remarks by Cindy McCain do not constitute an official declaration of famine, but she said the assessment was based on “what we have seen” on the ground.`\
 https://nytimes.com/2024/05/04/world/middleeast/cindy-mccain-gaza-famine.html
