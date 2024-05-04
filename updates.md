@@ -1,3 +1,19 @@
+**Lessons From the Front Lines of Canada’s Fentanyl Crisis**\
+`In a visit supported by the U.S. government, a group of Mexican experts came to British Columbia to discuss ways of responding to rampant opioid deaths.`\
+https://nytimes.com/2024/05/04/world/canada/vancouver-fentanyl-opioid-crisis.html
+
+**Here is the latest on campus protests.**\
+`By John Yoon and Emily Cochrane`\
+https://nytimes.com/live/2024/05/04/us/college-campus-protests/here-is-the-latest-on-campus-protests
+
+**A Hamas delegation is expected in Cairo for cease-fire talks.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/05/04/world/israel-gaza-war-hamas/a-hamas-delegation-is-expected-in-cairo-for-cease-fire-talks
+
+**04mideast-crisis**\
+`Israel and Hamas Face Growing Pressure for a Cease-Fire Deal`\
+https://nytimes.com/live/2024/05/04/world/israel-gaza-war-hamas
+
 **Kate Moss Turns Out for King Charles, and Pharrell Shuts Down a City Street**\
 `This week, after the British monarch returned to official duties, celebrities helped raise money for the trust he founded, and Pharrell hosted a car auction.`\
 https://nytimes.com/2024/05/04/style/ny-fashion-kings-trust-gala-pharrell.html
