@@ -10,8 +10,8 @@ https://nytimes.com/2024/05/04/dining/pimento-cheese-and-glazed-meatballs-roaste
 `By Gaya Gupta`\
 https://nytimes.com/live/2024/05/04/world/israel-gaza-war-hamas/what-is-a-famine-and-who-declares-one
 
-**Sadiq Khan Heads for 3rd Term as London Mayor**\
-`Initial results showed the mayor, representing the center-left opposition Labour Party, gaining ground against a right-wing rival who focused on crime and cars.`\
+**Sadiq Khan Re-Elected Mayor of London in Latest Win for Labour Party**\
+`Mr. Khan defeated a right-wing rival who focused on crime and cars, becoming the first politician to win three consecutive terms in the post.`\
 https://nytimes.com/2024/05/04/world/europe/sadiq-khan-london-mayor-results.html
 
 **Berkshire Reports Strong Earnings and Formidable Cash Stockpile**\

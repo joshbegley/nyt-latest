@@ -1,3 +1,7 @@
+**Sadiq Khan Re-Elected Mayor of London in Latest Win for Labour Party**\
+`Mr. Khan defeated a right-wing rival who focused on crime and cars, becoming the first politician to win three consecutive terms in the post.`\
+https://nytimes.com/2024/05/04/world/europe/sadiq-khan-london-mayor-results.html
+
 **Lawsuit Accuses Everton Bidder 777 Partners of $600 Million Fraud**\
 `In a suit filed in federal court in New York, a firm that provided hundreds of millions of dollars to 777 accused the company of double-pledging its collateral to other investors.`\
 https://nytimes.com/2024/05/04/world/europe/everton-777-partners-lawsuit.html
