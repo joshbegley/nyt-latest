@@ -1,3 +1,7 @@
+**3 People Found Dead in Baja California**\
+`Mexican authorities recovered three bodies as a search went on for two Australian tourists and a U.S. citizen who disappeared while on vacation.`\
+https://nytimes.com/2024/05/03/world/americas/mexico-missing-surfers.html
+
 **Columbia’s President Urges University to ‘Rebuild Community’ in Video**\
 `After President Nemat Shafik called the police to arrest protesters on campus earlier this week, she asked the school community to “show empathy and compassion for one another.”`\
 https://nytimes.com/2024/05/03/us/columbia-nemat-shafik-video.html
