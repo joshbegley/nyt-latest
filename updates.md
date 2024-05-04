@@ -1,3 +1,7 @@
+**At Michigan, commencement is interrupted by dozens of pro-Palestinian graduates.**\
+`By Ryan Patrick Hooper`\
+https://nytimes.com/live/2024/05/04/us/college-campus-protests/at-michigan-commencement-is-interrupted-by-dozens-of-pro-palestinian-graduates
+
 **Sadiq Khan Re-elected Mayor of London in Latest Win for Labour Party**\
 `Mr. Khan defeated a right-wing rival who focused on crime and cars, his victory another ominous sign for Britain’s ruling Conservatives ahead of a general election.`\
 https://nytimes.com/2024/05/04/world/europe/sadiq-khan-london-mayor-results.html
