@@ -20,7 +20,7 @@ https://nytimes.com/2024/05/04/us/houston-texas-flood.html
 
 **At Michigan, commencement is briefly interrupted by dozens of pro-Palestinian graduates.**\
 `By Ryan Patrick Hooper`\
-https://nytimes.com/live/2024/05/04/us/college-campus-protests/at-michigan-commencement-is-interrupted-by-dozens-of-pro-palestinian-graduates
+https://nytimes.com/2024/05/04/us/at-michigan-commencement-is-interrupted-by-dozens-of-pro-palestinian-graduates.html
 
 **Do You Know the Origin of the Word ‘Quiz’?**\
 `OK, so this is actually a trick question …`\
