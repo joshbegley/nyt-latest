@@ -1,3 +1,7 @@
+**Charges Against a Congressman Lay Bare Foreign Government Influence Attempts**\
+`Federal prosecutors say Representative Henry Cuellar tried to shape policy for Azerbaijan in exchange for bribes. The country has spent millions in the past decade lobbying Washington.`\
+https://nytimes.com/2024/05/04/us/politics/azerbaijan-cuellar-lobbying-armenia.html
+
 **Parts of Gaza in ‘Full-Blown Famine,’ U.N. Aid Official Says**\
 `Cindy McCain, the director of the World Food Program, said starvation is entrenched in northern Gaza and is “moving its way south.”`\
 https://nytimes.com/2024/05/04/world/middleeast/gaza-famine-mccain-israel.html
