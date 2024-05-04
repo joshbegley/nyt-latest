@@ -1,3 +1,7 @@
+**At Michigan, commencement is interrupted by dozens of pro-Palestinian graduates.**\
+`By Ryan Patrick Hooper`\
+https://nytimes.com/live/2024/05/04/us/college-campus-protests/at-michigan-commencement-is-interrupted-by-dozens-of-pro-palestinian-graduates
+
 **Do You Know the Origin of the Word ‘Quiz’?**\
 `OK, so this is actually a trick question …`\
 https://nytimes.com/2024/05/04/insider/do-you-know-the-origin-of-the-word-quiz.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/04/business/is-it-good-to-go-exclusive.html
 **2 Books for Rebels**\
 `A maid resists her employers; citizens resist their country.`\
 https://nytimes.com/2024/05/04/books/read-like-wind-recommendations.html
-
-**Parts of Gaza Are in Famine, World Food Program Chief Says**\
-`The remarks by Cindy McCain do not constitute an official declaration of famine, but she said the assessment was based on “what we have seen” on the ground.`\
-https://nytimes.com/2024/05/04/world/middleeast/cindy-mccain-gaza-famine.html
 
