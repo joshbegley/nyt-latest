@@ -1,3 +1,7 @@
+**Rishi Sunak’s Dismal Task: Leading U.K. Conservatives to Likely Defeat**\
+`After 14 years of Conservative government, Britain’s voters appear hungry for change. And Prime Minister Rishi Sunak seems unable to persuade them otherwise.`\
+https://nytimes.com/2024/05/04/world/europe/uk-rishi-sunak-conservatives-elections.html
+
 **Is It Good to Go Exclusive?**\
 `The exclusive period for Paramount’s potential merger with Skydance expired without a deal, highlighting the long-debated question of whether exclusivity is a waste of time.`\
 https://nytimes.com/2024/05/04/business/is-it-good-to-go-exclusive.html
