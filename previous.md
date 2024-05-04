@@ -1,3 +1,7 @@
+**Canadian Arrests Highlight Alleged Gang Role in India’s Intelligence Operations**\
+`India’s external spy agency, the Research and Analysis Wing, has long been accused of tapping into criminal networks to carry out operations in South Asia. Is the agency now doing similar operations in the West?`\
+https://nytimes.com/2024/05/04/world/asia/canada-india-sikh-arrests-gangs.html
+
 **Transcript of Trump Manhattan Trial, May 2, 2024**\
 `New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
 https://nytimes.com/interactive/2024/05/04/nyregion/trump-hush-money-trial-transcript-may-2.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/04/us/at-michigan-commencement-is-interrupted-by-doz
 **Do You Know the Origin of the Word ‘Quiz’?**\
 `OK, so this is actually a trick question …`\
 https://nytimes.com/2024/05/04/insider/do-you-know-the-origin-of-the-word-quiz.html
-
-**Lawsuit Accuses Everton Bidder 777 Partners of $600 Million Fraud**\
-`In a suit filed in federal court in New York, a firm that provided hundreds of millions of dollars to 777 accused the company of double-pledging its collateral to other investors.`\
-https://nytimes.com/2024/05/04/world/europe/everton-777-partners-lawsuit.html
 
