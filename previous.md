@@ -6,7 +6,7 @@ https://nytimes.com/2024/05/04/style/kentucky-derby-2024-hats.html
 `Several rivers north of Houston were forecast to reach or exceed their floods of record, the authorities said. Evacuation orders were in place for some areas.`\
 https://nytimes.com/2024/05/04/us/houston-texas-flood.html
 
-**At Michigan, commencement is interrupted by dozens of pro-Palestinian graduates.**\
+**At Michigan, commencement is briefly interrupted by dozens of pro-Palestinian graduates.**\
 `By Ryan Patrick Hooper`\
 https://nytimes.com/live/2024/05/04/us/college-campus-protests/at-michigan-commencement-is-interrupted-by-dozens-of-pro-palestinian-graduates
 

@@ -1,3 +1,7 @@
+**At Michigan, commencement is briefly interrupted by dozens of pro-Palestinian graduates.**\
+`By Ryan Patrick Hooper`\
+https://nytimes.com/live/2024/05/04/us/college-campus-protests/at-michigan-commencement-is-interrupted-by-dozens-of-pro-palestinian-graduates
+
 **Hats on and Off at the 150th Kentucky Derby**\
 `America’s most famous horse race may be celebrating a big anniversary this year, but the hats are the real stars of the show.`\
 https://nytimes.com/2024/05/04/style/kentucky-derby-2024-hats.html
