@@ -1,3 +1,7 @@
+**Lawsuit Accuses Everton Bidder 777 Partners of $600 Million Fraud**\
+`In a suit filed in federal court in New York, a firm that provided hundreds of millions of dollars to 777 accused the company of double-pledging its collateral to other investors.`\
+https://nytimes.com/2024/05/04/world/europe/everton-777-partners-lawsuit.html
+
 **Pimento Cheese and Glazed Meatballs, Roasted Green Vegetables and No-Bake Cheesecake**\
 `Spring is a time for superb snacking and cheerful meals.`\
 https://nytimes.com/2024/05/04/dining/pimento-cheese-and-glazed-meatballs-roasted-green-vegetables-and-no-bake-cheesecake.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/04/world/middleeast/cindy-mccain-gaza-famine.html
 **Prom**\
 `Tornadoes, parades, speeches and more stories from high school’s big night.`\
 https://nytimes.com/2024/05/04/podcasts/this-american-life-prom-nyt-audio.html
-
-**The Three Faces of Don**\
-`Looking at who Trump was, is and would be.`\
-https://nytimes.com/2024/05/04/opinion/donald-trump-time-magazine.html
 
