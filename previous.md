@@ -1,3 +1,7 @@
+**Columbia’s President Urges University to ‘Rebuild Community’ in Video**\
+`After President Nemat Shafik called the police to arrest protesters on campus earlier this week, she asked the school community to “show empathy and compassion for one another.”`\
+https://nytimes.com/2024/05/03/us/columbia-nemat-shafik-video.html
+
 **‘The Miser’ Review: Updating Molière, but Missing a Key Ingredient**\
 `This Molière in the Park production doesn’t have the sharp satirical bite of the original.`\
 https://nytimes.com/2024/05/03/theater/the-miser-review-brooklyn.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/03/business/sam-ash-music-closing-stores.html
 **University of Chicago President Says Pro-Palestinian Encampment ‘Cannot Continue’**\
 `The president of the University of Chicago said on Friday that the pro-Palestinian encampment on his campus’s quad “cannot continue,” a position that was being closely watched in higher education because the university has long held itself up as a national model for free expression.`\
 https://nytimes.com/video/us/100000009447899/pro-palestinian-protests-at-the-university-of-chicago-test-free-speech-policies.html
-
-**Final Arguments in Google Antitrust Trial Conclude, Setting Up Landmark Ruling**\
-`Judge Amit P. Mehta must now decide whether Google violated the law, potentially setting a precedent for a series of tech monopoly cases.`\
-https://nytimes.com/2024/05/03/technology/google-antitrust-trial.html
 
