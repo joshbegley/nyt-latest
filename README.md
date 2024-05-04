@@ -1,3 +1,11 @@
+**Trump and Hope Hicks Meet Again as She Testifies in Hush-Money Trial**\
+`Hope Hicks, the former spokeswoman for Donald Trump, testified about how she and Trump managed one scandal after another in the 2016 campaign. Jonah Bromwich, a criminal justice reporter at The New York Times, gives his takeaways.`\
+https://nytimes.com/video/nyregion/100000009447569/trump-and-hope-hicks-meet-again-as-she-testifies-in-hush-money-trial.html
+
+**Hotfooted It**\
+`Jacob McDermott goes for it with a fast-paced Saturday debut.`\
+https://nytimes.com/2024/05/03/crosswords/daily-puzzle-2024-05-04.html
+
 **3 People Found Dead in Baja California**\
 `Mexican authorities recovered three bodies as a search went on for two Australian tourists and a U.S. citizen who disappeared while on vacation.`\
 https://nytimes.com/2024/05/03/world/americas/mexico-missing-surfers.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/03/books/cj-sansom-dead.html
 **Hope Hicks Reluctantly Confronts the Man She ‘Totally Understands’ in Court**\
 `The dramatic appearance of Ms. Hicks, once one of Donald J. Trump’s closest aides, riveted the audience. During her testimony, she blinked back tears.`\
 https://nytimes.com/2024/05/03/nyregion/hope-hicks-testimony-trump-trial.html
-
-**How Counterprotesters at U.C.L.A. Provoked Violence, Unchecked for Hours**\
-`The New York Times used videos filmed by journalists, witnesses and protesters to analyze hours of clashes — and a delayed police response — at a pro-Palestinian encampment on Tuesday.`\
-https://nytimes.com/interactive/2024/05/03/us/ucla-protests-encampment-violence.html
-
-**Sam Ash Music Stores to Close After 100 Years in Business**\
-`The chain, which started with a single shop in Brooklyn in 1924, said it would close all 42 of its locations by the end of July, citing competition from online retailers.`\
-https://nytimes.com/2024/05/03/business/sam-ash-music-closing-stores.html
 
