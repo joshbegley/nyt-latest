@@ -1,3 +1,7 @@
+**At Michigan, commencement is briefly interrupted by dozens of pro-Palestinian graduates.**\
+`By Ryan Patrick Hooper`\
+https://nytimes.com/2024/05/04/us/at-michigan-commencement-is-interrupted-by-dozens-of-pro-palestinian-graduates.html
+
 **Last of Escaped Zebras Captured With White Bread, Oats and ‘Positivity’**\
 `A zebra named Sugar was captured on Friday after being on the loose in Washington State for nearly a week.`\
 https://nytimes.com/2024/05/04/us/zebra-washington-state-highway-captured.html
