@@ -1,3 +1,7 @@
+**Moving Target**\
+`A recent study offers some suggestions on the best time of day to exercise. But optimizing a routine requires having a routine to begin with.`\
+https://nytimes.com/2024/05/04/briefing/moving-target.html
+
 **Lessons From the Front Lines of Canada’s Fentanyl Crisis**\
 `In a visit supported by the U.S. government, a group of Mexican experts came to British Columbia to discuss ways of responding to rampant opioid deaths.`\
 https://nytimes.com/2024/05/04/world/canada/vancouver-fentanyl-opioid-crisis.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/04/podcasts/fashions-biggest-night-your-guide-to-thi
 **Tesla Pullback Puts Onus on Others to Build Electric Vehicle Chargers**\
 `The automaker led by Elon Musk is no longer planning to take the lead in expanding the number of places to fuel electric vehicles. It’s not clear how quickly other companies will fill the gap.`\
 https://nytimes.com/2024/05/04/business/energy-environment/tesla-electric-vehicles-supercharger.html
-
-**The Colorful Anticipation of Hearing 3 Short Words: ‘And They’re Off’**\
-`Photos of the Kentucky Derby, which is marking its 150th anniversary.`\
-https://nytimes.com/2024/05/04/us/kentucky-derby-race-photos.html
 
