@@ -1,3 +1,11 @@
+**Drones Changed This Civil War, and Linked Rebels to the World**\
+`Consumer technologies are altering the course of the battle in Myanmar, and rebel drone units are taking notes on Ukraine and other conflicts.`\
+https://nytimes.com/2024/05/04/world/asia/myanmar-war-drones.html
+
+**Israel, Gaza and the Law on Starvation in War**\
+`A complex legal question became more pressing after a statement from the U.N. human rights chief.`\
+https://nytimes.com/2024/05/04/world/middleeast/israel-gaza-starvation-icc.html
+
 **Body Cameras Show Police Fatally Shooting Queens Man Holding Scissors**\
 `The man, Win Rozario, 19, had called 911 and seemed to be in mental distress, officials and his family said. The police appeared to shoot him at least four times.`\
 https://nytimes.com/2024/05/03/nyregion/win-rozario-shooting-body-camera-nypd.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/03/us/politics/marijuana-reclassification-biden.html
 **Billionaire Donor Assails Brown’s ‘Unconscionable’ Deal With Protesters**\
 `The real estate mogul Barry Sternlicht’s scathing criticism of his alma mater is the most immediate blowback against the school’s deal to end protests on campus.`\
 https://nytimes.com/2024/05/03/business/sterlicht-brown-university-donor.html
-
-**U.S. Seeks to Build World Pressure on Russia Over Space Nuclear Weapon**\
-`An American official said the United States had information undermining Russia’s claim that a device it is developing is for peaceful scientific research.`\
-https://nytimes.com/2024/05/03/us/politics/russia-space-nuclear-weapon.html
-
-**C.J. Sansom, Mystery Novelist Drawn to Tudor England, Dies at 71**\
-`He wrote a popular series of books revolving around a hunchbacked detective, Shardlake, whose troubles echo the author’s experiences of childhood bullying.`\
-https://nytimes.com/2024/05/03/books/cj-sansom-dead.html
 

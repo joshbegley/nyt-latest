@@ -1,3 +1,11 @@
+**Drones Changed This Civil War, and Linked Rebels to the World**\
+`Consumer technologies are altering the course of the battle in Myanmar, and rebel drone units are taking notes on Ukraine and other conflicts.`\
+https://nytimes.com/2024/05/04/world/asia/myanmar-war-drones.html
+
+**Israel, Gaza and the Law on Starvation in War**\
+`A complex legal question became more pressing after a statement from the U.N. human rights chief.`\
+https://nytimes.com/2024/05/04/world/middleeast/israel-gaza-starvation-icc.html
+
 **Body Cameras Show Police Fatally Shooting Queens Man Holding Scissors**\
 `The man, Win Rozario, 19, had called 911 and seemed to be in mental distress, officials and his family said. The police appeared to shoot him at least four times.`\
 https://nytimes.com/2024/05/03/nyregion/win-rozario-shooting-body-camera-nypd.html
