@@ -1,3 +1,7 @@
+**Billionaire Donor Assails Brown’s ‘Unconscionable’ Deal With Protesters**\
+`The real estate mogul Barry Sternlicht’s scathing criticism of his alma mater is the most immediate blowback against the school’s deal to end protests on campus.`\
+https://nytimes.com/2024/05/03/business/sterlicht-brown-university-donor.html
+
 **‘The Miser’ Review: Updating Molière, but Missing a Key Ingredient**\
 `This Molière in the Park production doesn’t have the sharp satirical bite of the original.`\
 https://nytimes.com/2024/05/03/theater/the-miser-review-brooklyn.html
