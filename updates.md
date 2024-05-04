@@ -1,3 +1,7 @@
+**Trump Campaign Tells Donors It Raised $76 Million in April**\
+`Senior advisers to the former president highlighted the numbers at an R.N.C. event in Florida and said they are looking to expand the electoral map.`\
+https://nytimes.com/2024/05/04/us/politics/trump-donors.html
+
 **At Michigan, commencement is briefly interrupted by dozens of pro-Palestinian graduates.**\
 `By Ryan Patrick Hooper`\
 https://nytimes.com/live/2024/05/04/us/college-campus-protests/at-michigan-commencement-is-interrupted-by-dozens-of-pro-palestinian-graduates
