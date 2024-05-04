@@ -1,3 +1,7 @@
+**Parts of Gaza in ‘Full-Blown Famine,’ U.N. Aid Official Says**\
+`Cindy McCain, the director of the World Food Program, said starvation is entrenched in northern Gaza and is “moving its way south.”`\
+https://nytimes.com/2024/05/04/world/middleeast/gaza-famine-mccain-israel.html
+
 **Canadian Arrests Highlight Alleged Gang Role in India’s Intelligence Operations**\
 `India’s external spy agency, the Research and Analysis Wing, has long been accused of tapping into criminal networks to carry out operations in South Asia. Is the agency now doing similar operations in the West?`\
 https://nytimes.com/2024/05/04/world/asia/canada-india-sikh-arrests-gangs.html

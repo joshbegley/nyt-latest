@@ -1,3 +1,7 @@
+**Parts of Gaza in ‘Full-Blown Famine,’ U.N. Aid Official Says**\
+`Cindy McCain, the director of the World Food Program, said starvation is entrenched in northern Gaza and is “moving its way south.”`\
+https://nytimes.com/2024/05/04/world/middleeast/gaza-famine-mccain-israel.html
+
 **Canadian Arrests Highlight Alleged Gang Role in India’s Intelligence Operations**\
 `India’s external spy agency, the Research and Analysis Wing, has long been accused of tapping into criminal networks to carry out operations in South Asia. Is the agency now doing similar operations in the West?`\
 https://nytimes.com/2024/05/04/world/asia/canada-india-sikh-arrests-gangs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/04/us/houston-texas-flood.html
 **At Michigan, commencement is briefly interrupted by dozens of pro-Palestinian graduates.**\
 `By Ryan Patrick Hooper`\
 https://nytimes.com/2024/05/04/us/at-michigan-commencement-is-interrupted-by-dozens-of-pro-palestinian-graduates.html
-
-**Do You Know the Origin of the Word ‘Quiz’?**\
-`OK, so this is actually a trick question …`\
-https://nytimes.com/2024/05/04/insider/do-you-know-the-origin-of-the-word-quiz.html
 
