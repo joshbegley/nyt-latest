@@ -7,7 +7,7 @@ https://nytimes.com/2024/05/03/theater/the-miser-review-brooklyn.html
 https://nytimes.com/2024/05/03/us/politics/marijuana-reclassification-biden.html
 
 **Billionaire Donor Assails Brown’s ‘Unconscionable’ Deal With Protesters**\
-`Real estate mogul Barry Sternlicht’s scathing criticism of his alma mater is the most immediate blowback against the school’s deal to end protests on campus.`\
+`The real estate mogul Barry Sternlicht’s scathing criticism of his alma mater is the most immediate blowback against the school’s deal to end protests on campus.`\
 https://nytimes.com/2024/05/03/business/sterlicht-brown-university-donor.html
 
 **U.S. Seeks to Build World Pressure on Russia Over Space Nuclear Weapon**\
