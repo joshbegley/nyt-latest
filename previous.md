@@ -1,3 +1,7 @@
+**Southeast Texas Expects More Rain After Days of Flooding**\
+`Several rivers north of Houston were forecast to reach or exceed their floods of record, the authorities said. Evacuation orders were in place for some areas.`\
+https://nytimes.com/2024/05/04/us/houston-texas-flood.html
+
 **At Michigan, commencement is interrupted by dozens of pro-Palestinian graduates.**\
 `By Ryan Patrick Hooper`\
 https://nytimes.com/live/2024/05/04/us/college-campus-protests/at-michigan-commencement-is-interrupted-by-dozens-of-pro-palestinian-graduates
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/04/world/europe/uk-rishi-sunak-conservatives-electio
 **Is It Good to Go Exclusive?**\
 `The exclusive period for Paramount’s potential merger with Skydance expired without a deal, highlighting the long-debated question of whether exclusivity is a waste of time.`\
 https://nytimes.com/2024/05/04/business/is-it-good-to-go-exclusive.html
-
-**2 Books for Rebels**\
-`A maid resists her employers; citizens resist their country.`\
-https://nytimes.com/2024/05/04/books/read-like-wind-recommendations.html
 
