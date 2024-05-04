@@ -1,3 +1,7 @@
+**Encampment ends at U.C. Riverside after protesters and school officials reach a deal.**\
+`By Anna Betts`\
+https://nytimes.com/live/2024/05/04/us/college-campus-protests/encampment-ends-at-uc-riverside-after-protesters-and-school-officials-reach-a-deal
+
 **From the Astronaut’s Logbook**\
 `Daniel Bodily’s Sunday puzzle is out of this world.`\
 https://nytimes.com/2024/05/04/crosswords/daily-puzzle-2024-05-05.html

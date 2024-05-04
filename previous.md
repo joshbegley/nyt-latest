@@ -1,3 +1,7 @@
+**Encampment ends at U.C. Riverside after protesters and school officials reach a deal.**\
+`By Anna Betts`\
+https://nytimes.com/live/2024/05/04/us/college-campus-protests/encampment-ends-at-uc-riverside-after-protesters-and-school-officials-reach-a-deal
+
 **From the Astronaut’s Logbook**\
 `Daniel Bodily’s Sunday puzzle is out of this world.`\
 https://nytimes.com/2024/05/04/crosswords/daily-puzzle-2024-05-05.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/04/us/zebra-washington-state-highway-captured.html
 **Widening Racial Disparities Underlie Rise in Child Deaths in the U.S.**\
 `New research finds that the death rate among Black youths soared by 37 percent, and among Native American youths by 22 percent, between 2014 and 2020, compared with less than 5 percent for white youths.`\
 https://nytimes.com/2024/05/04/health/child-deaths-us-race.html
-
-**Trump Campaign Tells Donors It Raised $76 Million in April**\
-`Senior advisers to the former president highlighted the numbers at an R.N.C. event in Florida and said they are looking to expand the electoral map.`\
-https://nytimes.com/2024/05/04/us/politics/trump-donors.html
 
