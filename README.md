@@ -1,3 +1,7 @@
+**At least one student at Ole Miss is being investigated after racist counterprotest.**\
+`Glenn F. Boyce, the university chancellor, said that statements made in the confrontation were “offensive, hurtful and unacceptable.”`\
+https://nytimes.com/live/2024/05/04/us/college-campus-protests/at-least-one-student-at-ole-miss-is-being-investigated-after-racist-counterprotest
+
 **Encampment ends at U.C. Riverside after protesters and school officials reach a deal.**\
 `By Anna Betts`\
 https://nytimes.com/live/2024/05/04/us/college-campus-protests/encampment-ends-at-uc-riverside-after-protesters-and-school-officials-reach-a-deal
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/04/arts/frank-stella-dead.html
 **Last of Escaped Zebras Captured With White Bread, Oats and ‘Positivity’**\
 `A zebra named Sugar was captured on Friday after being on the loose in Washington State for nearly a week.`\
 https://nytimes.com/2024/05/04/us/zebra-washington-state-highway-captured.html
-
-**Widening Racial Disparities Underlie Rise in Child Deaths in the U.S.**\
-`New research finds that the death rate among Black youths soared by 37 percent, and among Native American youths by 22 percent, between 2014 and 2020, compared with less than 5 percent for white youths.`\
-https://nytimes.com/2024/05/04/health/child-deaths-us-race.html
 
