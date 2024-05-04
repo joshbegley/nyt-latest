@@ -1,3 +1,7 @@
+**Is It Good to Go Exclusive?**\
+`The exclusive period for Paramount’s potential merger with Skydance expired without a deal, highlighting the long-debated question of whether exclusivity is a waste of time.`\
+https://nytimes.com/2024/05/04/business/is-it-good-to-go-exclusive.html
+
 **2 Books for Rebels**\
 `A maid resists her employers; citizens resist their country.`\
 https://nytimes.com/2024/05/04/books/read-like-wind-recommendations.html
