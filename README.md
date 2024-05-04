@@ -18,8 +18,8 @@ https://nytimes.com/video/nyregion/100000009447569/trump-and-hope-hicks-meet-aga
 `Jacob McDermott goes for it with a fast-paced Saturday debut.`\
 https://nytimes.com/2024/05/03/crosswords/daily-puzzle-2024-05-04.html
 
-**3 People Found Dead in Baja California**\
-`Mexican authorities recovered three bodies as a search went on for two Australian tourists and a U.S. citizen who disappeared while on vacation.`\
+**After 3 Tourists Go Missing, Bodies Are Found in Baja California**\
+`Mexican authorities recovered the three bodies as a search went on for two Australian tourists and a U.S. citizen who disappeared while on vacation.`\
 https://nytimes.com/2024/05/03/world/americas/mexico-missing-surfers.html
 
 **Columbia’s President Urges University to ‘Rebuild Community’ in Video**\
