@@ -1,3 +1,7 @@
+**Sadiq Khan, London Mayor Trump Called ‘Loser,’ Heads for a 3rd Term**\
+`Initial results showed the mayor, representing the center-left opposition Labour Party, gaining ground against a right-wing rival who focused on crime and cars.`\
+https://nytimes.com/2024/05/04/world/europe/sadiq-khan-london-mayor-results.html
+
 **Berkshire Reports Drop in Profits but Formidable Cash Stockpile**\
 `The company’s first-quarter earnings were released before its annual investor meeting in Omaha.`\
 https://nytimes.com/2024/05/04/business/dealbook/berkshire-hathaway-buffett.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/04/opinion/gaza-child-deaths.html
 **What Medical Stories Do We Trust?**\
 `How vaccine injuries and long Covid test our partisan beliefs.`\
 https://nytimes.com/2024/05/04/opinion/chronic-illness-vaccines-long-covid.html
-
-**The Food and Life Choices of a ‘Fat Activist’**\
-`Readers discuss the “freedom to be fat” and related health and parenting issues.`\
-https://nytimes.com/2024/05/04/opinion/fat-activist-freedom-health.html
 
