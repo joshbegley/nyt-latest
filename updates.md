@@ -1,3 +1,11 @@
+**Trump and Hope Hicks Meet Again as She Testifies in Hush-Money Trial**\
+`Hope Hicks, the former spokeswoman for Donald Trump, testified about how she and Trump managed one scandal after another in the 2016 campaign. Jonah Bromwich, a criminal justice reporter at The New York Times, gives his takeaways.`\
+https://nytimes.com/video/nyregion/100000009447569/trump-and-hope-hicks-meet-again-as-she-testifies-in-hush-money-trial.html
+
+**Hotfooted It**\
+`Jacob McDermott goes for it with a fast-paced Saturday debut.`\
+https://nytimes.com/2024/05/03/crosswords/daily-puzzle-2024-05-04.html
+
 **3 People Found Dead in Baja California**\
 `Mexican authorities recovered three bodies as a search went on for two Australian tourists and a U.S. citizen who disappeared while on vacation.`\
 https://nytimes.com/2024/05/03/world/americas/mexico-missing-surfers.html
