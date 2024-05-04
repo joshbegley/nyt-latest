@@ -1,3 +1,7 @@
+**When a Bunch of Bloody Yanks Came for English Soccer**\
+`American investors are gobbling up the storied teams of the English Premier League — and changing the stadium experience in ways that soccer fans resent.`\
+https://nytimes.com/2024/05/04/magazine/english-soccer-american-owners.html
+
 **Drones Changed This Civil War, and Linked Rebels to the World**\
 `Consumer technologies are altering the course of the battle in Myanmar, and rebel drone units are taking notes on Ukraine and other conflicts.`\
 https://nytimes.com/2024/05/04/world/asia/myanmar-war-drones.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/03/theater/the-miser-review-brooklyn.html
 **Joe Biden, Pot President?**\
 `The president’s allies say the Justice Department’s chill take on marijuana has a political upside.`\
 https://nytimes.com/2024/05/03/us/politics/marijuana-reclassification-biden.html
-
-**Billionaire Donor Assails Brown’s ‘Unconscionable’ Deal With Protesters**\
-`The real estate mogul Barry Sternlicht’s scathing criticism of his alma mater is the most immediate blowback against the school’s deal to end protests on campus.`\
-https://nytimes.com/2024/05/03/business/sterlicht-brown-university-donor.html
 
