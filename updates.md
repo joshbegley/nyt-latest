@@ -1,3 +1,11 @@
+**Pimento Cheese and Glazed Meatballs, Roasted Green Vegetables and No-Bake Cheesecake**\
+`Spring is a time for superb snacking and cheerful meals.`\
+https://nytimes.com/2024/05/04/dining/pimento-cheese-and-glazed-meatballs-roasted-green-vegetables-and-no-bake-cheesecake.html
+
+**Berkshire Reports Strong Earnings and Formidable Cash Stockpile**\
+`The company also disclosed in its first-quarter earnings that it had trimmed its stake in Apple, but Warren Buffett, its C.E.O., said he remained a fan of Apple.`\
+https://nytimes.com/2024/05/04/business/dealbook/berkshire-hathaway-buffett.html
+
 **What is a famine and who declares one?**\
 `By Gaya Gupta`\
 https://nytimes.com/live/2024/05/04/world/israel-gaza-war-hamas/what-is-a-famine-and-who-declares-one
