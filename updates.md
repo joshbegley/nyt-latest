@@ -1,3 +1,7 @@
+**At least one student at Ole Miss is being investigated after racist counterprotest.**\
+`Glenn F. Boyce, the university chancellor, said that statements made in the confrontation were “offensive, hurtful and unacceptable.”`\
+https://nytimes.com/live/2024/05/04/us/college-campus-protests/at-least-one-student-at-ole-miss-is-being-investigated-after-racist-counterprotest
+
 **Encampment ends at U.C. Riverside after protesters and school officials reach a deal.**\
 `By Anna Betts`\
 https://nytimes.com/live/2024/05/04/us/college-campus-protests/encampment-ends-at-uc-riverside-after-protesters-and-school-officials-reach-a-deal
