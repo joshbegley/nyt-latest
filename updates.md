@@ -1,3 +1,7 @@
+**What is a famine and who declares one?**\
+`By Gaya Gupta`\
+https://nytimes.com/live/2024/05/04/world/israel-gaza-war-hamas/what-is-a-famine-and-who-declares-one
+
 **Sadiq Khan Heads for 3rd Term as London Mayor**\
 `Initial results showed the mayor, representing the center-left opposition Labour Party, gaining ground against a right-wing rival who focused on crime and cars.`\
 https://nytimes.com/2024/05/04/world/europe/sadiq-khan-london-mayor-results.html

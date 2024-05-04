@@ -1,3 +1,7 @@
+**What is a famine and who declares one?**\
+`By Gaya Gupta`\
+https://nytimes.com/live/2024/05/04/world/israel-gaza-war-hamas/what-is-a-famine-and-who-declares-one
+
 **Sadiq Khan Heads for 3rd Term as London Mayor**\
 `Initial results showed the mayor, representing the center-left opposition Labour Party, gaining ground against a right-wing rival who focused on crime and cars.`\
 https://nytimes.com/2024/05/04/world/europe/sadiq-khan-london-mayor-results.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/04/opinion/donald-trump-time-magazine.html
 **One Photo That Captures the Loss in Gaza**\
 `Every death of a child from the war in Gaza is a preventable tragedy.`\
 https://nytimes.com/2024/05/04/opinion/gaza-child-deaths.html
-
-**What Medical Stories Do We Trust?**\
-`How vaccine injuries and long Covid test our partisan beliefs.`\
-https://nytimes.com/2024/05/04/opinion/chronic-illness-vaccines-long-covid.html
 
