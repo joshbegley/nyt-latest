@@ -1,3 +1,7 @@
+**Pimento Cheese and Glazed Meatballs, Roasted Green Vegetables and No-Bake Cheesecake**\
+`Spring is a time for superb snacking and cheerful meals.`\
+https://nytimes.com/2024/05/04/dining/pimento-cheese-and-glazed-meatballs-roasted-green-vegetables-and-no-bake-cheesecake.html
+
 **What is a famine and who declares one?**\
 `By Gaya Gupta`\
 https://nytimes.com/live/2024/05/04/world/israel-gaza-war-hamas/what-is-a-famine-and-who-declares-one
@@ -6,8 +10,8 @@ https://nytimes.com/live/2024/05/04/world/israel-gaza-war-hamas/what-is-a-famine
 `Initial results showed the mayor, representing the center-left opposition Labour Party, gaining ground against a right-wing rival who focused on crime and cars.`\
 https://nytimes.com/2024/05/04/world/europe/sadiq-khan-london-mayor-results.html
 
-**Berkshire Reports Drop in Profits but Formidable Cash Stockpile**\
-`The company’s first-quarter earnings were released before its annual investor meeting in Omaha.`\
+**Berkshire Reports Strong Earnings and Formidable Cash Stockpile**\
+`The company also disclosed in its first-quarter earnings that it had trimmed its stake in Apple, but Warren Buffett, its C.E.O., said he remained a fan of Apple.`\
 https://nytimes.com/2024/05/04/business/dealbook/berkshire-hathaway-buffett.html
 
 **Rishi Sunak’s Dismal Task: Leading U.K. Conservatives to Likely Defeat**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/04/podcasts/this-american-life-prom-nyt-audio.html
 **The Three Faces of Don**\
 `Looking at who Trump was, is and would be.`\
 https://nytimes.com/2024/05/04/opinion/donald-trump-time-magazine.html
-
-**One Photo That Captures the Loss in Gaza**\
-`Every death of a child from the war in Gaza is a preventable tragedy.`\
-https://nytimes.com/2024/05/04/opinion/gaza-child-deaths.html
 
