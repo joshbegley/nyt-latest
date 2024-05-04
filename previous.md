@@ -1,3 +1,11 @@
+**From the Astronaut’s Logbook**\
+`Daniel Bodily’s Sunday puzzle is out of this world.`\
+https://nytimes.com/2024/05/04/crosswords/daily-puzzle-2024-05-05.html
+
+**Barbara O. Jones, Actress Who Brought Black Cinema to Life, Dies at 82**\
+`Her arresting roles in movies like “Bush Mama” and “Daughters of the Dust” helped shape a generation of independent filmmakers.`\
+https://nytimes.com/2024/05/04/movies/barbara-o-jones-dead.html
+
 **Charges Against a Congressman Lay Bare Foreign Government Influence Attempts**\
 `Federal prosecutors say Representative Henry Cuellar tried to shape policy for Azerbaijan in exchange for bribes. The country has spent millions in the past decade lobbying Washington.`\
 https://nytimes.com/2024/05/04/us/politics/azerbaijan-cuellar-lobbying-armenia.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/04/health/child-deaths-us-race.html
 **Trump Campaign Tells Donors It Raised $76 Million in April**\
 `Senior advisers to the former president highlighted the numbers at an R.N.C. event in Florida and said they are looking to expand the electoral map.`\
 https://nytimes.com/2024/05/04/us/politics/trump-donors.html
-
-**Hats on and Off at the 150th Kentucky Derby**\
-`America’s most famous horse race may be celebrating a milestone this year, but the hats are the real stars of the show.`\
-https://nytimes.com/2024/05/04/style/kentucky-derby-2024-hats.html
-
-**Southeast Texas Expects More Rain After Days of Flooding**\
-`Several rivers north of Houston were forecast to reach or exceed their floods of record, the authorities said. Evacuation orders were in place for some areas.`\
-https://nytimes.com/2024/05/04/us/houston-texas-flood.html
 
