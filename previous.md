@@ -1,3 +1,11 @@
+**Transcript of Trump Manhattan Trial, May 2, 2024**\
+`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
+https://nytimes.com/interactive/2024/05/04/nyregion/trump-hush-money-trial-transcript-may-2.html
+
+**Frank Stella, Towering Artist and Master of Reinvention, Dies at 87**\
+`He moved American art away from Abstract Expressionism toward cool minimalism. His explorations of color and form were endlessly discussed and constantly on exhibit.`\
+https://nytimes.com/2024/05/04/arts/frank-stella-dead.html
+
 **Last of Escaped Zebras Captured With White Bread, Oats and ‘Positivity’**\
 `A zebra named Sugar was captured on Friday after being on the loose in Washington State for nearly a week.`\
 https://nytimes.com/2024/05/04/us/zebra-washington-state-highway-captured.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/04/insider/do-you-know-the-origin-of-the-word-quiz.h
 **Lawsuit Accuses Everton Bidder 777 Partners of $600 Million Fraud**\
 `In a suit filed in federal court in New York, a firm that provided hundreds of millions of dollars to 777 accused the company of double-pledging its collateral to other investors.`\
 https://nytimes.com/2024/05/04/world/europe/everton-777-partners-lawsuit.html
-
-**Pimento Cheese and Glazed Meatballs, Roasted Green Vegetables and No-Bake Cheesecake**\
-`Spring is a time for superb snacking and cheerful meals.`\
-https://nytimes.com/2024/05/04/dining/pimento-cheese-and-glazed-meatballs-roasted-green-vegetables-and-no-bake-cheesecake.html
-
-**What is a famine and who declares one?**\
-`By Gaya Gupta`\
-https://nytimes.com/live/2024/05/04/world/israel-gaza-war-hamas/what-is-a-famine-and-who-declares-one
 

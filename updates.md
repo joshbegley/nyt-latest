@@ -1,3 +1,11 @@
+**Transcript of Trump Manhattan Trial, May 2, 2024**\
+`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
+https://nytimes.com/interactive/2024/05/04/nyregion/trump-hush-money-trial-transcript-may-2.html
+
+**Frank Stella, Towering Artist and Master of Reinvention, Dies at 87**\
+`He moved American art away from Abstract Expressionism toward cool minimalism. His explorations of color and form were endlessly discussed and constantly on exhibit.`\
+https://nytimes.com/2024/05/04/arts/frank-stella-dead.html
+
 **At Michigan, commencement is briefly interrupted by dozens of pro-Palestinian graduates.**\
 `By Ryan Patrick Hooper`\
 https://nytimes.com/2024/05/04/us/at-michigan-commencement-is-interrupted-by-dozens-of-pro-palestinian-graduates.html
