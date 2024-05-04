@@ -1,3 +1,7 @@
+**Rishi Sunak’s Dismal Task: Leading U.K. Conservatives to Likely Defeat**\
+`After 14 years of Conservative government, Britain’s voters appear hungry for change. And Prime Minister Rishi Sunak seems unable to persuade them otherwise.`\
+https://nytimes.com/2024/05/04/world/europe/uk-rishi-sunak-conservatives-elections.html
+
 **Is It Good to Go Exclusive?**\
 `The exclusive period for Paramount’s potential merger with Skydance expired without a deal, highlighting the long-debated question of whether exclusivity is a waste of time.`\
 https://nytimes.com/2024/05/04/business/is-it-good-to-go-exclusive.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/04/opinion/fat-activist-freedom-health.html
 **The Alexandria Ocasio-Cortez You Don’t Know**\
 `Three terms in, she’s exiting her political adolescence and coming into her own as a veteran operator.`\
 https://nytimes.com/2024/05/04/opinion/alexandria-ocasio-cortez.html
-
-**The Deep, Tangled Roots of American Illiberalism**\
-`Our biggest mistake would be to believe that Trumpism is a historical exception.`\
-https://nytimes.com/2024/05/04/opinion/trump-second-term-illiberalism.html
 
