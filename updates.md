@@ -1,3 +1,7 @@
+**Hats on and Off at the 150th Kentucky Derby**\
+`America’s most famous horse race may be celebrating a milestone this year, but the hats are the real stars of the show.`\
+https://nytimes.com/2024/05/04/style/kentucky-derby-2024-hats.html
+
 **Widening Racial Disparities Underlie Rise in Child Deaths in the U.S.**\
 `New research finds that the death rate among Black youths soared by 37 percent, and among Native American youths by 22 percent, between 2014 and 2020, compared with less than 5 percent for white youths.`\
 https://nytimes.com/2024/05/04/health/child-deaths-us-race.html
