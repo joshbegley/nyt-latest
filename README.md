@@ -1,3 +1,7 @@
+**3 People Found Dead in Baja California**\
+`Mexican authorities recovered three bodies as a search went on for two Australian tourists and a U.S. citizen who disappeared while on vacation.`\
+https://nytimes.com/2024/05/03/world/americas/mexico-missing-surfers.html
+
 **Columbia’s President Urges University to ‘Rebuild Community’ in Video**\
 `After President Nemat Shafik called the police to arrest protesters on campus earlier this week, she asked the school community to “show empathy and compassion for one another.”`\
 https://nytimes.com/2024/05/03/us/columbia-nemat-shafik-video.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/05/03/us/ucla-protests-encampment-violence.
 **Sam Ash Music Stores to Close After 100 Years in Business**\
 `The chain, which started with a single shop in Brooklyn in 1924, said it would close all 42 of its locations by the end of July, citing competition from online retailers.`\
 https://nytimes.com/2024/05/03/business/sam-ash-music-closing-stores.html
-
-**University of Chicago President Says Pro-Palestinian Encampment ‘Cannot Continue’**\
-`The president of the University of Chicago said on Friday that the pro-Palestinian encampment on his campus’s quad “cannot continue,” a position that was being closely watched in higher education because the university has long held itself up as a national model for free expression.`\
-https://nytimes.com/video/us/100000009447899/pro-palestinian-protests-at-the-university-of-chicago-test-free-speech-policies.html
 
