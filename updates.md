@@ -1,3 +1,7 @@
+**Body Cameras Show Police Fatally Shooting Queens Man Holding Scissors**\
+`The man, Win Rozario, 19, had called 911 and seemed to be in mental distress, officials and his family said. The police appeared to shoot him at least four times.`\
+https://nytimes.com/2024/05/03/nyregion/win-rozario-shooting-body-camera-nypd.html
+
 **Trump and Hope Hicks Meet Again as She Testifies in Hush-Money Trial**\
 `Hope Hicks, the former spokeswoman for Donald Trump, testified about how she and Trump managed one scandal after another in the 2016 campaign. Jonah Bromwich, a criminal justice reporter at The New York Times, gives his takeaways.`\
 https://nytimes.com/video/nyregion/100000009447569/trump-and-hope-hicks-meet-again-as-she-testifies-in-hush-money-trial.html

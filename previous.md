@@ -1,3 +1,7 @@
+**Body Cameras Show Police Fatally Shooting Queens Man Holding Scissors**\
+`The man, Win Rozario, 19, had called 911 and seemed to be in mental distress, officials and his family said. The police appeared to shoot him at least four times.`\
+https://nytimes.com/2024/05/03/nyregion/win-rozario-shooting-body-camera-nypd.html
+
 **Trump and Hope Hicks Meet Again as She Testifies in Hush-Money Trial**\
 `Hope Hicks, the former spokeswoman for Donald Trump, testified about how she and Trump managed one scandal after another in the 2016 campaign. Jonah Bromwich, a criminal justice reporter at The New York Times, gives his takeaways.`\
 https://nytimes.com/video/nyregion/100000009447569/trump-and-hope-hicks-meet-again-as-she-testifies-in-hush-money-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/03/us/politics/russia-space-nuclear-weapon.html
 **C.J. Sansom, Mystery Novelist Drawn to Tudor England, Dies at 71**\
 `He wrote a popular series of books revolving around a hunchbacked detective, Shardlake, whose troubles echo the author’s experiences of childhood bullying.`\
 https://nytimes.com/2024/05/03/books/cj-sansom-dead.html
-
-**Hope Hicks Reluctantly Confronts the Man She ‘Totally Understands’ in Court**\
-`The dramatic appearance of Ms. Hicks, once one of Donald J. Trump’s closest aides, riveted the audience. During her testimony, she blinked back tears.`\
-https://nytimes.com/2024/05/03/nyregion/hope-hicks-testimony-trump-trial.html
 
