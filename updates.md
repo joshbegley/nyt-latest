@@ -1,3 +1,7 @@
+**Moving Target**\
+`A recent study offers some suggestions on the best time of day to exercise. But optimizing a routine requires having a routine to begin with.`\
+https://nytimes.com/2024/05/04/briefing/moving-target.html
+
 **Lessons From the Front Lines of Canada’s Fentanyl Crisis**\
 `In a visit supported by the U.S. government, a group of Mexican experts came to British Columbia to discuss ways of responding to rampant opioid deaths.`\
 https://nytimes.com/2024/05/04/world/canada/vancouver-fentanyl-opioid-crisis.html
