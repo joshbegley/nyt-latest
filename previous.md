@@ -1,3 +1,7 @@
+**Last of Escaped Zebras Captured With White Bread, Oats and ‘Positivity’**\
+`A zebra named Sugar was captured on Friday after being on the loose in Washington State for nearly a week.`\
+https://nytimes.com/2024/05/04/us/zebra-washington-state-highway-captured.html
+
 **Widening Racial Disparities Underlie Rise in Child Deaths in the U.S.**\
 `New research finds that the death rate among Black youths soared by 37 percent, and among Native American youths by 22 percent, between 2014 and 2020, compared with less than 5 percent for white youths.`\
 https://nytimes.com/2024/05/04/health/child-deaths-us-race.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/04/dining/pimento-cheese-and-glazed-meatballs-roaste
 **What is a famine and who declares one?**\
 `By Gaya Gupta`\
 https://nytimes.com/live/2024/05/04/world/israel-gaza-war-hamas/what-is-a-famine-and-who-declares-one
-
-**Sadiq Khan Re-elected Mayor of London in Latest Win for Labour Party**\
-`Mr. Khan defeated a right-wing rival who focused on crime and cars, his victory another ominous sign for Britain’s ruling Conservatives ahead of a general election.`\
-https://nytimes.com/2024/05/04/world/europe/sadiq-khan-london-mayor-results.html
 

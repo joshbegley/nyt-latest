@@ -1,3 +1,7 @@
+**Last of Escaped Zebras Captured With White Bread, Oats and ‘Positivity’**\
+`A zebra named Sugar was captured on Friday after being on the loose in Washington State for nearly a week.`\
+https://nytimes.com/2024/05/04/us/zebra-washington-state-highway-captured.html
+
 **Hats on and Off at the 150th Kentucky Derby**\
 `America’s most famous horse race may be celebrating a milestone this year, but the hats are the real stars of the show.`\
 https://nytimes.com/2024/05/04/style/kentucky-derby-2024-hats.html
