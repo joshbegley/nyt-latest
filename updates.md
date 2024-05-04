@@ -1,3 +1,11 @@
+**Do You Know the Origin of the Word ‘Quiz’?**\
+`OK, so this is actually a trick question …`\
+https://nytimes.com/2024/05/04/insider/do-you-know-the-origin-of-the-word-quiz.html
+
+**Sadiq Khan Re-Elected Mayor of London in Latest Win for Labour Party**\
+`Mr. Khan defeated a right-wing rival who focused on crime and cars, his victory another ominous sign for Britain’s ruling Conservatives ahead of a general election.`\
+https://nytimes.com/2024/05/04/world/europe/sadiq-khan-london-mayor-results.html
+
 **Sadiq Khan Re-Elected Mayor of London in Latest Win for Labour Party**\
 `Mr. Khan defeated a right-wing rival who focused on crime and cars, becoming the first politician to win three consecutive terms in the post.`\
 https://nytimes.com/2024/05/04/world/europe/sadiq-khan-london-mayor-results.html
