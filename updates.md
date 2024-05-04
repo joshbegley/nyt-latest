@@ -1,3 +1,7 @@
+**When a Bunch of Bloody Yanks Came for English Soccer**\
+`American investors are gobbling up the storied teams of the English Premier League — and changing the stadium experience in ways that soccer fans resent.`\
+https://nytimes.com/2024/05/04/magazine/english-soccer-american-owners.html
+
 **After 3 Tourists Go Missing, Bodies Are Found in Baja California**\
 `Mexican authorities recovered the three bodies as a search went on for two Australian tourists and a U.S. citizen who disappeared while on vacation.`\
 https://nytimes.com/2024/05/03/world/americas/mexico-missing-surfers.html
