@@ -1,3 +1,7 @@
+**Hats on and Off at the 150th Kentucky Derby**\
+`America’s most famous horse race may be celebrating a big anniversary this year, but the hats are the real stars of the show.`\
+https://nytimes.com/2024/05/04/style/kentucky-derby-2024-hats.html
+
 **Southeast Texas Expects More Rain After Days of Flooding**\
 `Several rivers north of Houston were forecast to reach or exceed their floods of record, the authorities said. Evacuation orders were in place for some areas.`\
 https://nytimes.com/2024/05/04/us/houston-texas-flood.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/04/business/dealbook/berkshire-hathaway-buffett.html
 **Rishi Sunak’s Dismal Task: Leading U.K. Conservatives to Likely Defeat**\
 `After 14 years of Conservative government, Britain’s voters appear hungry for change. And Prime Minister Rishi Sunak seems unable to persuade them otherwise.`\
 https://nytimes.com/2024/05/04/world/europe/uk-rishi-sunak-conservatives-elections.html
-
-**Is It Good to Go Exclusive?**\
-`The exclusive period for Paramount’s potential merger with Skydance expired without a deal, highlighting the long-debated question of whether exclusivity is a waste of time.`\
-https://nytimes.com/2024/05/04/business/is-it-good-to-go-exclusive.html
 
