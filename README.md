@@ -1,3 +1,7 @@
+**2 Books for Rebels**\
+`A maid resists her employers; citizens resist their country.`\
+https://nytimes.com/2024/05/04/books/read-like-wind-recommendations.html
+
 **Parts of Gaza Are in Famine, World Food Program Chief Says**\
 `The remarks by Cindy McCain do not constitute an official declaration of famine, but she said the assessment was based on “what we have seen” on the ground.`\
 https://nytimes.com/2024/05/04/world/middleeast/cindy-mccain-gaza-famine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/04/opinion/trump-second-term-illiberalism.html
 **The Realities of Family Separation, Told in Surreal Terms**\
 `The novel “American Abductions” captures the effects of U.S. immigration policy with the expansive reach of art.`\
 https://nytimes.com/2024/05/04/books/review/mauro-javier-cardenas-american-abductions.html
-
-**Moving Target**\
-`A recent study offers some suggestions on the best time of day to exercise. But optimizing a routine requires having a routine to begin with.`\
-https://nytimes.com/2024/05/04/briefing/moving-target.html
 
