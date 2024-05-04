@@ -1,3 +1,7 @@
+**Prom**\
+`Tornadoes, parades, speeches and more stories from high school’s big night.`\
+https://nytimes.com/2024/05/04/podcasts/this-american-life-prom-nyt-audio.html
+
 **The Three Faces of Don**\
 `Looking at who Trump was, is and would be.`\
 https://nytimes.com/2024/05/04/opinion/donald-trump-time-magazine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/04/briefing/moving-target.html
 **Lessons From the Front Lines of Canada’s Fentanyl Crisis**\
 `In a visit supported by the U.S. government, a group of Mexican experts came to British Columbia to discuss ways of responding to rampant opioid deaths.`\
 https://nytimes.com/2024/05/04/world/canada/vancouver-fentanyl-opioid-crisis.html
-
-**Here is the latest on campus protests.**\
-`By John Yoon and Emily Cochrane`\
-https://nytimes.com/live/2024/05/04/us/college-campus-protests/here-is-the-latest-on-campus-protests
 
