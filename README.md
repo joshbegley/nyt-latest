@@ -1,3 +1,19 @@
+**Lessons From the Front Lines of Canada’s Fentanyl Crisis**\
+`In a visit supported by the U.S. government, a group of Mexican experts came to British Columbia to discuss ways of responding to rampant opioid deaths.`\
+https://nytimes.com/2024/05/04/world/canada/vancouver-fentanyl-opioid-crisis.html
+
+**Here is the latest on campus protests.**\
+`By John Yoon and Emily Cochrane`\
+https://nytimes.com/live/2024/05/04/us/college-campus-protests/here-is-the-latest-on-campus-protests
+
+**A Hamas delegation is expected in Cairo for cease-fire talks.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/05/04/world/israel-gaza-war-hamas/a-hamas-delegation-is-expected-in-cairo-for-cease-fire-talks
+
+**04mideast-crisis**\
+`Israel and Hamas Face Growing Pressure for a Cease-Fire Deal`\
+https://nytimes.com/live/2024/05/04/world/israel-gaza-war-hamas
+
 **Kate Moss Turns Out for King Charles, and Pharrell Shuts Down a City Street**\
 `This week, after the British monarch returned to official duties, celebrities helped raise money for the trust he founded, and Pharrell hosted a car auction.`\
 https://nytimes.com/2024/05/04/style/ny-fashion-kings-trust-gala-pharrell.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/05/04/business/energy-environment/tesla-electric-vehicl
 **The Colorful Anticipation of Hearing 3 Short Words: ‘And They’re Off’**\
 `Photos of the Kentucky Derby, which is marking its 150th anniversary.`\
 https://nytimes.com/2024/05/04/us/kentucky-derby-race-photos.html
-
-**The Mayor Called Them Outside Agitators. Many of Them Beg to Differ.**\
-`City officials have blamed “external actors” for escalating demonstrations at Columbia University and elsewhere, but student protesters reject the claim.`\
-https://nytimes.com/2024/05/04/nyregion/columbia-protests-arrest-agitators-israel.html
-
-**From Free Speech to Free Palestine: Six Decades of Student Protest**\
-`The protests against Israel’s war in Gaza are merely the latest in a tradition of student-led, left-leaning activism dating back at least to the civil rights and anti-Vietnam War protests of the 1960s.`\
-https://nytimes.com/2024/05/04/us/college-protests-free-speech.html
-
-**Graduation season gets underway amid tensions on campus with ongoing protests.**\
-`Ohio State, Indiana University and Northeastern have graduation ceremonies this weekend, all happening on the heels of clashes between protesters and the police.`\
-https://nytimes.com/2024/05/04/us/graduation-season-gets-underway-amid-tensions-on-campus-with-ongoing-protests.html
-
-**As States Resist Federal Gender Rules, Schools Are Caught in the Middle**\
-`Conservative state governments are forbidding school districts from doing what the Department of Education says they must, under new Title IX regulations on students’ gender identity.`\
-https://nytimes.com/2024/05/04/us/title-nine-schools-transgender.html
 
