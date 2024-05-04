@@ -1,3 +1,7 @@
+**Berkshire Reports Drop in Profits but Formidable Cash Stockpile**\
+`The company’s first-quarter earnings were released before its annual investor meeting in Omaha.`\
+https://nytimes.com/2024/05/04/business/dealbook/berkshire-hathaway-buffett.html
+
 **Rishi Sunak’s Dismal Task: Leading U.K. Conservatives to Likely Defeat**\
 `After 14 years of Conservative government, Britain’s voters appear hungry for change. And Prime Minister Rishi Sunak seems unable to persuade them otherwise.`\
 https://nytimes.com/2024/05/04/world/europe/uk-rishi-sunak-conservatives-elections.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/04/opinion/chronic-illness-vaccines-long-covid.html
 **The Food and Life Choices of a ‘Fat Activist’**\
 `Readers discuss the “freedom to be fat” and related health and parenting issues.`\
 https://nytimes.com/2024/05/04/opinion/fat-activist-freedom-health.html
-
-**The Alexandria Ocasio-Cortez You Don’t Know**\
-`Three terms in, she’s exiting her political adolescence and coming into her own as a veteran operator.`\
-https://nytimes.com/2024/05/04/opinion/alexandria-ocasio-cortez.html
 
