@@ -1,3 +1,7 @@
+**Candidates for Federal Office Can Raise Unlimited Funds for Ballot Measures**\
+`A decision by the Federal Election Commission would allow the Biden and Trump campaigns to raise money for outside groups pushing ballot measures.`\
+https://nytimes.com/2024/05/05/us/politics/election-funds-ballot-measures.html
+
 **Monday Briefing: Xi Jinping Visits Europe**\
 `Also, Israel cracks down on Al Jazeera and Myanmar’s rebels get creative with drones.`\
 https://nytimes.com/2024/05/05/world/asia/xi-jinping-france-israel-jazeera-asia.html
