@@ -1,3 +1,7 @@
+**What’s Going On in This Picture? | May 6, 2024**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2024/05/05/learning/whats-going-on-in-this-picture-may-6-2024.html
+
 **Israeli statements raise concerns about Netanyahu’s commitment to a deal.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/05/05/world/israel-gaza-war-hamas/israeli-statements-raise-concerns-about-netanyahus-commitment-to-a-deal
