@@ -1,5 +1,5 @@
 **Interstate 95 Reopens After Damaged Bridge Is Demolished**\
-`The highway, a crucial link between Connecticut and New York City, had closed on Thursday when fuel from a burning tanker ignited an overpass.`\
+`A section of the highway, a crucial link between Connecticut and New York City, had closed on Thursday when fuel from a burning tanker ignited an overpass.`\
 https://nytimes.com/2024/05/05/nyregion/interstate-95-reopens-ct-nyc.html
 
 **Madonna Brings Massive Free Concert to Rio, Capping Celebration Tour**\
