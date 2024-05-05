@@ -24,7 +24,7 @@ https://nytimes.com/live/2024/05/05/world/israel-gaza-war-hamas/after-a-un-offic
 
 **Dozens Are Arrested in Pro-Palestinian Protest at Art Institute of Chicago**\
 `The Chicago police said that 68 people had been arrested and charged with trespassing.`\
-https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests/art-institute-chicago-protests-arrests
+https://nytimes.com/2024/05/05/us/art-institute-chicago-protests-arrests.html
 
 **What’s Going On in This Picture? | May 6, 2024**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
