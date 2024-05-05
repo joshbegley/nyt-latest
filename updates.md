@@ -1,3 +1,7 @@
+**Set to reopen classes, U.C.L.A. announces a new campus security office.**\
+`By Jonathan Wolfe`\
+https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests/set-to-reopen-classes-ucla-announces-a-new-campus-security-office
+
 **Commencement events proceed largely as planned, with some interruptions.**\
 `By Matthew Eadie and Rachel Richardson`\
 https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests/northeastern-graduation-protests
