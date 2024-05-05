@@ -1,3 +1,7 @@
+**Corrections: May 5, 2024**\
+`Corrections that appeared in print on Sunday, May 5, 2024.`\
+https://nytimes.com/2024/05/05/pageoneplus/corrections-may-5-2024.html
+
 **Quotation of the Day: As 2 Cicada Broods Emerge at Once, Illinois Prepares to Hear the Loudest Roar**\
 `Quotation of the Day for Sunday, May 5, 2024.`\
 https://nytimes.com/2024/05/05/pageoneplus/quotation-of-the-day-as-2-cicada-broods-emerge-at-once-illinois-prepares-to-hear-the-loudest-roar.html
