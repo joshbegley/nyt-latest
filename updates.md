@@ -1,3 +1,7 @@
+**Teenager Fatally Shot by Australian Police After He Stabbed a Man**\
+`The episode occurred just weeks after two major stabbing attacks in the country. The teen had been under monitoring for having extremist tendencies.`\
+https://nytimes.com/2024/05/05/world/australia/perth-stabbing-teen-shot.html
+
 **‘Saturday Night Live’ Welcomes Dua Lipa and Jerry Seinfeld**\
 `The pop star hosted and performed as the musical guest. The comedian poked fun at the abundant promotion he has been doing for his Netflix movie.`\
 https://nytimes.com/2024/05/05/arts/television/saturday-night-live-jerry-seinfeld-dua-lipa.html
