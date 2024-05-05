@@ -1,3 +1,7 @@
+**The police arrest dozens of people at the Art Institute of Chicago.**\
+`By Yan Zhuang`\
+https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests/the-police-arrest-dozens-of-people-at-the-art-institute-of-chicago
+
 **What’s Going On in This Picture? | May 6, 2024**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2024/05/05/learning/whats-going-on-in-this-picture-may-6-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/05/opinion/college-choice-admissions-wesleyan.html
 **05campus-protests**\
 `University Graduations Are Flashpoints for Protests Over Gaza`\
 https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests
-
-**Here is the latest on campus protests.**\
-`By Emily Cochrane and Yan Zhuang`\
-https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests/here-is-the-latest-on-campus-protests
 
