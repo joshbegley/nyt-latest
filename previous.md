@@ -1,3 +1,7 @@
+**Chief Counsel at R.N.C. Pushed Out After Two Months on the Job**\
+`Charlie Spies, a veteran election-law lawyer, had been under attack since soon after he joined the Republican National Committee in March.`\
+https://nytimes.com/2024/05/05/us/politics/spies-rnc-lawyer.html
+
 **Xi Visits Europe, Seeking Strategic Opportunity**\
 `The Chinese leader has carefully chosen three countries — France, Serbia and Hungary — that to varying degrees embrace Beijing’s push for a new global order.`\
 https://nytimes.com/2024/05/05/world/europe/xi-visits-europe-strategic-opportunity.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/04/us/college-campus-protests/encampment-ends-a
 **From the Astronaut’s Logbook**\
 `Daniel Bodily’s Sunday puzzle is out of this world.`\
 https://nytimes.com/2024/05/04/crosswords/daily-puzzle-2024-05-05.html
-
-**Barbara O. Jones, Actress Who Brought Black Cinema to Life, Dies at 82**\
-`Her arresting roles in movies like “Bush Mama” and “Daughters of the Dust” helped shape a generation of independent filmmakers.`\
-https://nytimes.com/2024/05/04/movies/barbara-o-jones-dead.html
 
