@@ -1,3 +1,7 @@
+**Hamas claims responsibility for a rocket attack that closes a crossing between Israel and Gaza.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/05/05/world/israel-gaza-war-hamas/hamas-claims-responsibility-for-a-rocket-attack-that-closes-a-crossing-between-israel-and-gaza
+
 **Netanyahu says his cabinet has voted to shut Al Jazeera’s operations in Israel.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/05/05/world/israel-gaza-war-hamas/israels-prime-minister-has-had-a-tense-relationship-with-the-network
