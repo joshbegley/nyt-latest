@@ -1,3 +1,7 @@
+**Police aggressively push U.Va. protesters off a campus lawn and arrest 25 people.**\
+`By Jackson Landers, Hawes Spencer and Emily Cochrane`\
+https://nytimes.com/live/2024/05/04/us/college-campus-protests/protests-uva
+
 **At least one student at Ole Miss is being investigated after racist counterprotest.**\
 `Glenn F. Boyce, the university chancellor, said that statements made in the confrontation were “offensive, hurtful and unacceptable.”`\
 https://nytimes.com/live/2024/05/04/us/college-campus-protests/at-least-one-student-at-ole-miss-is-being-investigated-after-racist-counterprotest
