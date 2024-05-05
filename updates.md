@@ -1,3 +1,7 @@
+**How Humans Failed Racehorses**\
+`An exploration of the troubled state of horse racing in the U.S.`\
+https://nytimes.com/2024/05/05/briefing/kentucky-derby-race-horses.html
+
 **Israel’s prime minister has had a tense relationship with the network.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/05/05/world/israel-gaza-war-hamas/israels-prime-minister-has-had-a-tense-relationship-with-the-network
