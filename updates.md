@@ -1,3 +1,7 @@
+**Madonna Brings Massive Free Concert to Rio, Capping Celebration Tour**\
+`The pop superstar performed a final date on her global trek marking four decades of hits: a set on Copacabana Beach before the largest live crowd of her career.`\
+https://nytimes.com/2024/05/05/arts/music/madonna-free-celebration-concert-rio-brazil.html
+
 **Dozens Are Arrested in Pro-Palestinian Protest at Art Institute of Chicago**\
 `The Chicago police said that 68 people had been arrested and charged with trespassing.`\
 https://nytimes.com/2024/05/05/us/art-institute-chicago-protests-arrests.html
