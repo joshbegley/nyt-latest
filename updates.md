@@ -1,3 +1,7 @@
+**How to Know When a Good Dog Has Gone Bad**\
+`Gov. Kristi Noem suggested that President Biden should have euthanized the family dog, as she did. Animal experts said that such an option should be a last resort.`\
+https://nytimes.com/2024/05/05/science/dogs-aggression-euthanasia.html
+
 **Bernard Hill, Actor in ‘Titanic’ and ‘Lord of the Rings,’ Dies at 79**\
 `With a stout frame, bushy whiskers and a weathered visage, he embodied men of authority facing down danger with weary stoicism.`\
 https://nytimes.com/2024/05/05/obituaries/bernard-hill-dead.html
