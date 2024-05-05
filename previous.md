@@ -1,3 +1,11 @@
+**Commencement events proceed largely as planned, with some interruptions.**\
+`By Matthew Eadie and Rachel Richardson`\
+https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests/northeastern-graduation-protests
+
+**R.F.K. Jr. Claims Censorship After Facebook and Instagram Briefly Block New Ad**\
+`The ad, a sleek 30-minute production, was blocked for several hours on Friday and Saturday. Meta, which owns both platforms, said the link had been incorrectly flagged as spam.`\
+https://nytimes.com/2024/05/05/us/politics/rfk-jr-facebook-instagram-ad.html
+
 **How to Know When a Good Dog Has Gone Bad**\
 `Gov. Kristi Noem suggested that President Biden should have euthanized the family dog, as she did. Animal experts said that such an option should be a last resort.`\
 https://nytimes.com/2024/05/05/science/dogs-aggression-euthanasia.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/05/05/world/israel-gaza-war-hamas/media-experts-co
 **An encampment remains at the University of Chicago as students negotiate disbanding.**\
 `By Robert Chiarito and Colbi Edmonds`\
 https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests/an-encampment-remains-at-the-university-of-chicago-as-students-negotiate-disbanding
-
-**Laurent Cantet, Whose Films Explored France’s Undersides, Dies at 63**\
-`His acclaimed “The Class” walked a provocative line between documentary and fiction. In that film and others, he explored the inescapable traps of late-stage capitalism.`\
-https://nytimes.com/2024/05/05/movies/laurent-cantet-dead.html
-
-**Cease-Fire Talks Between Israel and Hamas Again at an Impasse**\
-`There had been signs the two sides were inching closer to an agreement, but talks in Cairo stalled and a Hamas delegation left the city.`\
-https://nytimes.com/2024/05/05/world/middleeast/cease-fire-talks-israel-hamas.html
 
