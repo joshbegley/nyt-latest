@@ -1,5 +1,9 @@
 **Kristi Noem Suggests Biden’s Dog Should Have Been Killed, Too**\
 `The South Dakota governor, defending her tale of shooting and killing her family’s dog, suggested that President Biden’s German shepherd, Commander, had merited a similar fate.`\
+https://nytimes.com/2024/05/05/us/politics/kristi-noem-biden-dog.html
+
+**Kristi Noem Suggests Biden’s Dog Should Have Been Killed, Too**\
+`The South Dakota governor, defending her tale of shooting and killing her family’s dog, suggested that President Biden’s German shepherd, Commander, had merited a similar fate.`\
 https://nytimes.com/2024/05/05/us/politics/kristi-noem-suggests-bidens-dog-should-have-been-killed-too.html
 
 **Peter Oosterhuis, British Golfer Turned Broadcaster, Dies at 75**\
