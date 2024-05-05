@@ -1,3 +1,7 @@
+**Media experts condemn Israel’s move against Al Jazeera.**\
+`By Steve Lohr`\
+https://nytimes.com/live/2024/05/05/world/israel-gaza-war-hamas/media-experts-condemn-israels-move-against-al-jazeera
+
 **An encampment remains at the University of Chicago as students negotiate disbanding.**\
 `By Robert Chiarito and Colbi Edmonds`\
 https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests/an-encampment-remains-at-the-university-of-chicago-as-students-negotiate-disbanding
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/05/us/houston-texas-flood-rain.html
 **Kristi Noem Suggests Biden’s Dog Should Have Been Killed, Too**\
 `The South Dakota governor, defending her tale of shooting and killing her family’s dog, suggested that President Biden’s German shepherd, Commander, had merited a similar fate.`\
 https://nytimes.com/2024/05/05/us/politics/kristi-noem-biden-dog.html
-
-**Peter Oosterhuis, British Golfer Turned Broadcaster, Dies at 75**\
-`He won 20 tournaments before moving into TV. “He explained the game that was going out in front of him in a very relaxed manner,” a former CBS producer said.`\
-https://nytimes.com/2024/05/05/sports/golf/peter-oosterhuis-dead.html
 
