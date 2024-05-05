@@ -34,7 +34,7 @@ https://nytimes.com/2024/05/05/us/politics/white-house-car-crash-biden.html
 `The university has been in turmoil following the decision not to allow its valedictorian, who is Muslim, to speak at graduation.`\
 https://nytimes.com/2024/05/05/us/usc-pro-palestinian-encampment.html
 
-**Hamas claims responsibility for a rocket attack that closes a crossing between Israel and Gaza.**\
-`The Israeli military said that about 10 rockets were fired toward the crossing, a conduit for aid into Gaza. Several people were injured, Israel’s public broadcaster said.`\
+**Hamas Claims Rocket Attack That Closes Key Crossing Between Israel and Gaza**\
+`The Israeli military said that about 10 rockets were fired toward Kerem Shalom, a conduit for aid into Gaza. Several people were injured, Israel’s public broadcaster said.`\
 https://nytimes.com/2024/05/05/world/middleeast/hamas-rocket-kerem-shalom-israel.html
 
