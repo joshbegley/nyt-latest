@@ -1,3 +1,7 @@
+**Madonna Brings Massive Free Concert to Rio, Capping Celebration Tour**\
+`The pop superstar performed a final date on her global trek marking four decades of hits: a set on Copacabana Beach before the largest live crowd of her career.`\
+https://nytimes.com/2024/05/05/arts/music/madonna-free-celebration-concert-rio-brazil.html
+
 **Are E.V.s Too Quiet and ‘Boring’?**\
 `Readers discuss a guest essay that argued they are both. Also: College roommates; tech in school; truths about Russia; water and politics.`\
 https://nytimes.com/2024/05/05/opinion/electric-vehicles-cars.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/05/learning/whats-going-on-in-this-picture-may-6-202
 **Israeli statements raise concerns about Netanyahu’s commitment to a deal.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/05/05/world/israel-gaza-war-hamas/israeli-statements-raise-concerns-about-netanyahus-commitment-to-a-deal
-
-**How Humans Failed Racehorses**\
-`An exploration of the troubled state of horse racing in the U.S.`\
-https://nytimes.com/2024/05/05/briefing/kentucky-derby-race-horses.html
 
