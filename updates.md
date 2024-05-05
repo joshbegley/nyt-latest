@@ -1,3 +1,7 @@
+**After a U.N. official says there is famine in northern Gaza, Israel pushes back.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/05/05/world/israel-gaza-war-hamas/after-a-un-official-says-there-is-famine-in-northern-gaza-israel-pushes-back
+
 **The police arrest dozens of people at the Art Institute of Chicago.**\
 `By Yan Zhuang`\
 https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests/the-police-arrest-dozens-of-people-at-the-art-institute-of-chicago
