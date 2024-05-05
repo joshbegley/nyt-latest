@@ -1,3 +1,7 @@
+**‘The Fall Guy’ Fizzles With $28 Million in Ticket Sales**\
+`While enough for No. 1, the big-budget original movie gave Hollywood its lowest start to its summer box office season since 1995.`\
+https://nytimes.com/2024/05/05/business/fall-guy-ticket-sales-movies.html
+
 **Sony and Apollo in Talks to Acquire Paramount**\
 `After letting exclusive talks with the movie studio Skydance lapse, Paramount’s directors met over the weekend and decided to negotiate with all the suitors.`\
 https://nytimes.com/2024/05/05/business/media/sony-apollo-paramount.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/05/opinion/electric-vehicles-cars.html
 **Sweet Tea-Brined Roast Chicken for Sunday Supper**\
 `With horseradish-Cheddar tuna melts and vegan tantanmen for the coming week.`\
 https://nytimes.com/2024/05/05/dining/sweet-tea-brined-roast-chicken-for-sunday-supper.html
-
-**Driver Dies After Crashing Into Barrier Near the White House**\
-`The Secret Service said the incident posed no threat to the public, and President Biden was in Delaware at the time of the crash.`\
-https://nytimes.com/2024/05/05/us/politics/white-house-car-crash-biden.html
 

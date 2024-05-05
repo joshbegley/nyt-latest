@@ -1,3 +1,7 @@
+**‘The Fall Guy’ Fizzles With $28 Million in Ticket Sales**\
+`While enough for No. 1, the big-budget original movie gave Hollywood its lowest start to its summer box office season since 1995.`\
+https://nytimes.com/2024/05/05/business/fall-guy-ticket-sales-movies.html
+
 **Sony and Apollo in Talks to Acquire Paramount**\
 `After letting exclusive talks with the movie studio Skydance lapse, Paramount’s directors met over the weekend and decided to negotiate with all the suitors.`\
 https://nytimes.com/2024/05/05/business/media/sony-apollo-paramount.html
