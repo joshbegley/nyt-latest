@@ -1,3 +1,7 @@
+**Trump’s V.P. contenders defend, and audition for, the former president.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/05/05/us/biden-trump-campaign/trumps-vp-contenders-defend-and-audition-for-the-former-president
+
 **More Flooding Expected in Houston as Rain Drenches Texas**\
 `Rivers in Southeast Texas could be swollen for days or weeks, forecasters said, as multiple rounds of heavy rainfall continued on Sunday.`\
 https://nytimes.com/2024/05/05/us/houston-texas-flood-rain.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/05/us/politics/white-house-car-crash-biden.html
 **Police Again Clear Pro-Palestinian Encampment at U.S.C.**\
 `The university has been in turmoil following the decision not to allow its valedictorian, who is Muslim, to speak at graduation.`\
 https://nytimes.com/2024/05/05/us/usc-pro-palestinian-encampment.html
-
-**Hamas Claims Rocket Attack That Closes Key Crossing Between Israel and Gaza**\
-`The Israeli military said that about 10 rockets were fired toward Kerem Shalom, a conduit for aid into Gaza. Several people were injured, Israel’s public broadcaster said.`\
-https://nytimes.com/2024/05/05/world/middleeast/hamas-rocket-kerem-shalom-israel.html
 

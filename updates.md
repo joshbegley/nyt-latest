@@ -1,3 +1,7 @@
+**Trump’s V.P. contenders defend, and audition for, the former president.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/05/05/us/biden-trump-campaign/trumps-vp-contenders-defend-and-audition-for-the-former-president
+
 **More Flooding Expected in Houston as Rain Drenches Texas**\
 `Rivers in Southeast Texas could be swollen for days or weeks, forecasters said, as multiple rounds of heavy rainfall continued on Sunday.`\
 https://nytimes.com/2024/05/05/us/houston-texas-flood-rain.html
