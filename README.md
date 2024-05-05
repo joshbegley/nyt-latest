@@ -1,3 +1,7 @@
+**Set to reopen classes, U.C.L.A. announces a new campus security office.**\
+`By Jonathan Wolfe`\
+https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests/set-to-reopen-classes-ucla-announces-a-new-campus-security-office
+
 **Commencement events proceed largely as planned, with some interruptions.**\
 `By Matthew Eadie and Rachel Richardson`\
 https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests/northeastern-graduation-protests
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/05/world/asia/xi-jinping-france-israel-jazeera-asia.
 **Media experts condemn Israel’s move against Al Jazeera.**\
 `By Steve Lohr`\
 https://nytimes.com/live/2024/05/05/world/israel-gaza-war-hamas/media-experts-condemn-israels-move-against-al-jazeera
-
-**An encampment remains at the University of Chicago as students negotiate disbanding.**\
-`By Robert Chiarito and Colbi Edmonds`\
-https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests/an-encampment-remains-at-the-university-of-chicago-as-students-negotiate-disbanding
 
