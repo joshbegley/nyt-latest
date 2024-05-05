@@ -1,3 +1,7 @@
+**Jerome Rothenberg, Who Expanded the Sphere of Poetry, Dies at 92**\
+`His anthology “Technicians of the Sacred” included a range of non-Western work and was beloved by, among others, rock stars like Jim Morrison and Nick Cave.`\
+https://nytimes.com/2024/05/05/books/jerome-rothenberg-dead.html
+
 **‘The Fall Guy’ Fizzles With $28 Million in Ticket Sales**\
 `While enough for No. 1, the big-budget original movie gave Hollywood its lowest start to its summer box office season since 1995.`\
 https://nytimes.com/2024/05/05/business/fall-guy-ticket-sales-movies.html
