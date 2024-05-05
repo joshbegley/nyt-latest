@@ -1,3 +1,7 @@
+**Echoing Vietnam War protests, demonstrators at Kent State University call for the university to divest.**\
+`By Patrick Cooley`\
+https://nytimes.com/live/2024/05/04/us/college-campus-protests/echoing-vietnam-war-protests-demonstrators-at-kent-state-university-call-for-the-university-to-divest
+
 **Police aggressively push U.Va. protesters off a campus lawn and arrest 25 people.**\
 `By Jackson Landers, Hawes Spencer and Emily Cochrane`\
 https://nytimes.com/live/2024/05/04/us/college-campus-protests/protests-uva
