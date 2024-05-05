@@ -1,3 +1,7 @@
+**Interstate 95 Reopens After Damaged Bridge Is Demolished**\
+`The highway, a crucial link between Connecticut and New York City, had closed on Thursday when fuel from a burning tanker ignited an overpass.`\
+https://nytimes.com/2024/05/05/nyregion/interstate-95-reopens-ct-nyc.html
+
 **Madonna Brings Massive Free Concert to Rio, Capping Celebration Tour**\
 `The pop superstar performed a final date on her global trek marking four decades of hits: a set on Copacabana Beach before the largest live crowd of her career.`\
 https://nytimes.com/2024/05/05/arts/music/madonna-free-celebration-concert-rio-brazil.html
