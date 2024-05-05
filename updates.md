@@ -1,3 +1,7 @@
+**Dozens of Indiana University graduates walked out in protest during commencement.**\
+`By Kevin Williams`\
+https://nytimes.com/live/2024/05/04/us/college-campus-protests/dozens-of-indiana-university-graduates-walked-out-in-protest-during-commencement
+
 **Vassar protesters removed their tents after the college agreed to review its investments.**\
 `By Erin Nolan`\
 https://nytimes.com/live/2024/05/04/us/college-campus-protests/vassar-protesters-remove-their-tents-after-the-college-agreed-to-review-its-investments
