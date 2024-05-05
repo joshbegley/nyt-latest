@@ -1,3 +1,7 @@
+**Peter Oosterhuis, British Golfer Turned Broadcaster, Dies at 75**\
+`He won 20 tournaments before moving into TV. “He explained the game that was going out in front of him in a very relaxed manner,” a former CBS producer said.`\
+https://nytimes.com/2024/05/05/sports/golf/peter-oosterhuis-dead.html
+
 **Interstate 95 Reopens After Damaged Bridge Is Demolished**\
 `A section of the highway, a crucial link between Connecticut and New York City, had closed on Thursday when fuel from a burning tanker ignited an overpass.`\
 https://nytimes.com/2024/05/05/nyregion/interstate-95-reopens-ct-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/05/world/israel-gaza-war-hamas/after-a-un-offic
 **Dozens Are Arrested in Pro-Palestinian Protest at Art Institute of Chicago**\
 `The Chicago police said that 68 people had been arrested and charged with trespassing.`\
 https://nytimes.com/2024/05/05/us/art-institute-chicago-protests-arrests.html
-
-**What’s Going On in This Picture? | May 6, 2024**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2024/05/05/learning/whats-going-on-in-this-picture-may-6-2024.html
 
