@@ -1,40 +1,40 @@
-**Corrections: May 5, 2024**\
-`Corrections that appeared in print on Sunday, May 5, 2024.`\
-https://nytimes.com/2024/05/05/pageoneplus/corrections-may-5-2024.html
+**Most Prominent Voice in Panama’s Election Isn’t on the Ballot**\
+`The Central American nation heads to the polls on Sunday to elect a new leader after a campaign influenced by a convicted former president who has sought refuge in Nicaragua’s Embassy.`\
+https://nytimes.com/2024/05/05/world/americas/panama-presidential-election-mulino.html
 
-**Quotation of the Day: As 2 Cicada Broods Emerge at Once, Illinois Prepares to Hear the Loudest Roar**\
-`Quotation of the Day for Sunday, May 5, 2024.`\
-https://nytimes.com/2024/05/05/pageoneplus/quotation-of-the-day-as-2-cicada-broods-emerge-at-once-illinois-prepares-to-hear-the-loudest-roar.html
+**These Couples Survived a Lot. Then Came Retirement.**\
+`For many relationships, life after work brings an unexpected set of challenges.`\
+https://nytimes.com/2024/05/05/magazine/retirement-couples.html
 
-**In the Comments Section, Writerly Discourse Awaits**\
-`A critic for the Book Review finds joy — and inspiration — in engaging with readers via the comments forums on his articles.`\
-https://nytimes.com/2024/05/05/insider/book-review-comments-section-readers.html
+**Gallows Humor and Talk of Escape: Trump’s Possible Return Rattles Capital**\
+`At Washington dinner parties, dark jokes abound about where to go into exile if the former president reclaims the White House.`\
+https://nytimes.com/2024/05/05/us/politics/trump-biden-election-dc.html
 
-**Miranda July Is Ready to Get ‘Maximum Weird’**\
-`In “All Fours,” her first novel in almost 10 years, the writer, artist and filmmaker considers freedom — sexual and otherwise.`\
-https://nytimes.com/2024/05/05/style/miranda-july-all-fours-profile.html
+**The Sprinter Van’s Glamorous Turn**\
+`Famous actors, singers, athletes and housewives are fans of the Mercedes-Benz van, which has become a staple in streets outside events like the Met Gala.`\
+https://nytimes.com/2024/05/05/style/sprinter-van-mercedes-met-gala.html
 
-**The Connections Companion No. 329**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/05/crosswords/connections-companion.html
+**Steve Gleason’s Unflinching Memoir of Living With A.L.S.**\
+`In “A Life Impossible,” the former N.F.L. player opens up about outliving his life expectancy — the challenges, loneliness and moments of joy.`\
+https://nytimes.com/2024/05/05/books/review/a-life-impossible-steve-gleason.html
 
-**Today’s Wordle Review No. 1,051**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/05/crosswords/wordle-review.html
+**Does a Small Cough Make You Think the Worst? Here’s a Book for You.**\
+`Caroline Crampton shares her own worries in “A Body Made of Glass,” a history of hypochondria that wonders whether newfangled technology drives us crazier.`\
+https://nytimes.com/2024/05/05/books/review/body-made-of-glass-caroline-crampton.html
 
-**On Queens Soccer Fields, Immigrants Find Each Other and a Sense of Home**\
-`For generations of immigrants, Sunday soccer at Flushing Meadows Corona Park is more than a game.`\
-https://nytimes.com/2024/05/05/nyregion/soccer-migrants-corona-queens.html
+**How One Latino Pastor Became a Foot Soldier for Trump**\
+`Republicans have spent years drawing Latino evangelicals into their fold. At one growing church in the Las Vegas suburbs, Donald J. Trump is reaping the benefits.`\
+https://nytimes.com/2024/05/05/us/politics/latino-evangelicals-trump.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/05/05/crosswords/spelling-bee-forum.html
+**Hundreds of Bahraini Political Prisoners Freed in ‘Bittersweet’ Royal Pardon**\
+`Amid deepening tensions in the Middle East, Bahraini activists said that the mass pardon, while welcome, was incomplete, and called for the release of several jailed opposition leaders.`\
+https://nytimes.com/2024/05/05/world/middleeast/bahrain-political-prisoners-freed-pardon.html
 
-**‘Horrified, I Watched the Beads Come Off and Bounce Onto the Asphalt’**\
-`A beloved necklace breaks in Midtown, an overheard snippet and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2024/05/05/nyregion/metropolitan-diary.html
+**Organizers Hope Music Puts the Miami in the Miami Grand Prix**\
+`The entertainment lineup for this weekend’s Formula 1 race has been infused with Latin music and nightclub-like electronic beats.`\
+https://nytimes.com/2024/05/05/arts/music/miami-grand-prix-formula-1-music.html
 
-**Teenager Fatally Shot by Australian Police After He Stabbed a Man**\
-`The episode occurred just weeks after two major stabbing attacks in the country. The teen had been under monitoring for having extremist tendencies.`\
-https://nytimes.com/2024/05/05/world/australia/perth-stabbing-teen-shot.html
+**A Small Island, a Big Mammal and One Girl’s Awakening**\
+`Set in a remote Welsh enclave on the cusp of World War II, Elizabeth O’Connor’s “Whale Fall” finds fresh resonance for a coming-of-age debut.`\
+https://nytimes.com/2024/05/05/books/review/whale-fall-elizabeth-oconnor.html
 
