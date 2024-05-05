@@ -1,3 +1,7 @@
+**Hamas claims responsibility for a rocket attack that closes a crossing between Israel and Gaza.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/05/05/world/israel-gaza-war-hamas/hamas-claims-responsibility-for-a-rocket-attack-that-closes-a-crossing-between-israel-and-gaza
+
 **After a U.N. official says there is famine in northern Gaza, Israel pushes back.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/05/05/world/israel-gaza-war-hamas/after-a-un-official-says-there-is-famine-in-northern-gaza-israel-pushes-back
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/05/opinion/marjorie-taylor-greene-mike-johnson.html
 **I Love Facebook. That’s Why I’m Suing Meta.**\
 `We must be able to create a more civic-minded internet, with tools that would empower users to better control what they see.`\
 https://nytimes.com/2024/05/05/opinion/facebook-court-internet-meta.html
-
-**The Best College Is One Where You Don’t Fit In**\
-`Have you heard the advice to go where you can see yourself? Ignore it.`\
-https://nytimes.com/2024/05/05/opinion/college-choice-admissions-wesleyan.html
 
