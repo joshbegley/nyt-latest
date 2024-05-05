@@ -1,3 +1,7 @@
+**Netanyahu says his cabinet has voted to shut Al Jazeera’s operations in Israel.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/05/05/world/israel-gaza-war-hamas/israels-prime-minister-has-had-a-tense-relationship-with-the-network
+
 **After a U.N. official says there is famine in northern Gaza, Israel pushes back.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/05/05/world/israel-gaza-war-hamas/after-a-un-official-says-there-is-famine-in-northern-gaza-israel-pushes-back
