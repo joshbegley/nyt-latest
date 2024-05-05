@@ -1,3 +1,15 @@
+**Marjorie Taylor Greene Is Not as Powerful as She Thinks She Is**\
+`The uproars that don’t seem to touch Trump at all can still bring down other Republicans.`\
+https://nytimes.com/2024/05/05/opinion/marjorie-taylor-greene-mike-johnson.html
+
+**I Love Facebook. That’s Why I’m Suing Meta.**\
+`We must be able to create a more civic-minded internet, with tools that would empower users to better control what they see.`\
+https://nytimes.com/2024/05/05/opinion/facebook-court-internet-meta.html
+
+**The Best College Is One Where You Don’t Fit In**\
+`Have you heard the advice to go where you can see yourself? Ignore it.`\
+https://nytimes.com/2024/05/05/opinion/college-choice-admissions-wesleyan.html
+
 **05campus-protests**\
 `University Graduations Are Flashpoints for Protests Over Gaza`\
 https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests
