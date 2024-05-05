@@ -1,3 +1,15 @@
+**Marjorie Taylor Greene Is Not as Powerful as She Thinks She Is**\
+`The uproars that don’t seem to touch Trump at all can still bring down other Republicans.`\
+https://nytimes.com/2024/05/05/opinion/marjorie-taylor-greene-mike-johnson.html
+
+**I Love Facebook. That’s Why I’m Suing Meta.**\
+`We must be able to create a more civic-minded internet, with tools that would empower users to better control what they see.`\
+https://nytimes.com/2024/05/05/opinion/facebook-court-internet-meta.html
+
+**The Best College Is One Where You Don’t Fit In**\
+`Have you heard the advice to go where you can see yourself? Ignore it.`\
+https://nytimes.com/2024/05/05/opinion/college-choice-admissions-wesleyan.html
+
 **05campus-protests**\
 `University Graduations Are Flashpoints for Protests Over Gaza`\
 https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/05/style/sprinter-van-mercedes-met-gala.html
 **Steve Gleason’s Unflinching Memoir of Living With A.L.S.**\
 `In “A Life Impossible,” the former N.F.L. player opens up about outliving his life expectancy — the challenges, loneliness and moments of joy.`\
 https://nytimes.com/2024/05/05/books/review/a-life-impossible-steve-gleason.html
-
-**Does a Small Cough Make You Think the Worst? Here’s a Book for You.**\
-`Caroline Crampton shares her own worries in “A Body Made of Glass,” a history of hypochondria that wonders whether newfangled technology drives us crazier.`\
-https://nytimes.com/2024/05/05/books/review/body-made-of-glass-caroline-crampton.html
-
-**How One Latino Pastor Became a Foot Soldier for Trump**\
-`Republicans have spent years drawing Latino evangelicals into their fold. At one growing church in the Las Vegas suburbs, Donald J. Trump is reaping the benefits.`\
-https://nytimes.com/2024/05/05/us/politics/latino-evangelicals-trump.html
-
-**Hundreds of Bahraini Political Prisoners Freed in ‘Bittersweet’ Royal Pardon**\
-`Amid deepening tensions in the Middle East, Bahraini activists said that the mass pardon, while welcome, was incomplete, and called for the release of several jailed opposition leaders.`\
-https://nytimes.com/2024/05/05/world/middleeast/bahrain-political-prisoners-freed-pardon.html
 
