@@ -1,3 +1,7 @@
+**‘Saturday Night Live’ Welcomed Dua Lipa and Jerry Seinfeld**\
+`The pop star hosted and performed as the musical guest. The comedian poked fun at the abundant promotion he has been doing for his Netflix movie.`\
+https://nytimes.com/2024/05/05/arts/television/saturday-night-live-jerry-seinfeld-dua-lipa.html
+
 **Dozens of Indiana University graduates walked out in protest during commencement.**\
 `By Kevin Williams`\
 https://nytimes.com/live/2024/05/04/us/college-campus-protests/dozens-of-indiana-university-graduates-walked-out-in-protest-during-commencement
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/04/us/college-campus-protests/echoing-vietnam-w
 **Police aggressively push U.Va. protesters off a campus lawn and arrest 25 people.**\
 `By Jackson Landers, Hawes Spencer and Emily Cochrane`\
 https://nytimes.com/live/2024/05/04/us/college-campus-protests/protests-uva
-
-**At least one student at Ole Miss is being investigated after racist counterprotest.**\
-`Glenn F. Boyce, the university chancellor, said that statements made in the confrontation were “offensive, hurtful and unacceptable.”`\
-https://nytimes.com/live/2024/05/04/us/college-campus-protests/at-least-one-student-at-ole-miss-is-being-investigated-after-racist-counterprotest
 
