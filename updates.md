@@ -1,3 +1,11 @@
+**Monday Briefing: Xi Jinping Visits Europe**\
+`Also, Israel cracks down on Al Jazeera and Myanmar’s rebels get creative with drones.`\
+https://nytimes.com/2024/05/05/world/asia/xi-jinping-france-israel-jazeera-asia.html
+
+**Media experts condemn Israel’s move against Al Jazeera.**\
+`By Steve Lohr`\
+https://nytimes.com/live/2024/05/05/world/israel-gaza-war-hamas/media-experts-condemn-israels-move-against-al-jazeera
+
 **An encampment remains at the University of Chicago as students negotiate disbanding.**\
 `By Robert Chiarito and Colbi Edmonds`\
 https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests/an-encampment-remains-at-the-university-of-chicago-as-students-negotiate-disbanding
