@@ -1,3 +1,11 @@
+**Israel’s prime minister has had a tense relationship with the network.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/05/05/world/israel-gaza-war-hamas/israels-prime-minister-has-had-a-tense-relationship-with-the-network
+
+**05mideast-crisis**\
+`Israeli Cabinet Votes to Shut Down Al Jazeera’s Operations in the Country`\
+https://nytimes.com/live/2024/05/05/world/israel-gaza-war-hamas
+
 **Marjorie Taylor Greene Is Not as Powerful as She Thinks She Is**\
 `The uproars that don’t seem to touch Trump at all can still bring down other Republicans.`\
 https://nytimes.com/2024/05/05/opinion/marjorie-taylor-greene-mike-johnson.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/05/magazine/retirement-couples.html
 **Gallows Humor and Talk of Escape: Trump’s Possible Return Rattles Capital**\
 `At Washington dinner parties, dark jokes abound about where to go into exile if the former president reclaims the White House.`\
 https://nytimes.com/2024/05/05/us/politics/trump-biden-election-dc.html
-
-**The Sprinter Van’s Glamorous Turn**\
-`Famous actors, singers, athletes and housewives are fans of the Mercedes-Benz van, which has become a staple in streets outside events like the Met Gala.`\
-https://nytimes.com/2024/05/05/style/sprinter-van-mercedes-met-gala.html
-
-**Steve Gleason’s Unflinching Memoir of Living With A.L.S.**\
-`In “A Life Impossible,” the former N.F.L. player opens up about outliving his life expectancy — the challenges, loneliness and moments of joy.`\
-https://nytimes.com/2024/05/05/books/review/a-life-impossible-steve-gleason.html
 
