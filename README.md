@@ -1,3 +1,7 @@
+**Jerome Rothenberg, Who Expanded the Sphere of Poetry, Dies at 92**\
+`His anthology “Technicians of the Sacred” included a range of non-Western work and was beloved by, among others, rock stars like Jim Morrison and Nick Cave.`\
+https://nytimes.com/2024/05/05/books/jerome-rothenberg-dead.html
+
 **‘The Fall Guy’ Fizzles With $28 Million in Ticket Sales**\
 `While enough for No. 1, the big-budget original movie gave Hollywood its lowest start to its summer box office season since 1995.`\
 https://nytimes.com/2024/05/05/business/fall-guy-ticket-sales-movies.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/05/arts/music/madonna-free-celebration-concert-rio-b
 **Are E.V.s Too Quiet and ‘Boring’?**\
 `Readers discuss a guest essay that argued they are both. Also: College roommates; tech in school; truths about Russia; water and politics.`\
 https://nytimes.com/2024/05/05/opinion/electric-vehicles-cars.html
-
-**Sweet Tea-Brined Roast Chicken for Sunday Supper**\
-`With horseradish-Cheddar tuna melts and vegan tantanmen for the coming week.`\
-https://nytimes.com/2024/05/05/dining/sweet-tea-brined-roast-chicken-for-sunday-supper.html
 
