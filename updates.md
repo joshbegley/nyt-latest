@@ -1,3 +1,7 @@
+**‘Saturday Night Live’ Welcomes Dua Lipa and Jerry Seinfeld**\
+`The pop star hosted and performed as the musical guest. The comedian poked fun at the abundant promotion he has been doing for his Netflix movie.`\
+https://nytimes.com/2024/05/05/arts/television/saturday-night-live-jerry-seinfeld-dua-lipa.html
+
 **‘Saturday Night Live’ Welcomed Dua Lipa and Jerry Seinfeld**\
 `The pop star hosted and performed as the musical guest. The comedian poked fun at the abundant promotion he has been doing for his Netflix movie.`\
 https://nytimes.com/2024/05/05/arts/television/saturday-night-live-jerry-seinfeld-dua-lipa.html
