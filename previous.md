@@ -1,3 +1,31 @@
+**In the Comments Section, Writerly Discourse Awaits**\
+`A critic for the Book Review finds joy — and inspiration — in engaging with readers via the comments forums on his articles.`\
+https://nytimes.com/2024/05/05/insider/book-review-comments-section-readers.html
+
+**Miranda July Is Ready to Get ‘Maximum Weird’**\
+`In “All Fours,” her first novel in almost 10 years, the writer, artist and filmmaker considers freedom — sexual and otherwise.`\
+https://nytimes.com/2024/05/05/style/miranda-july-all-fours-profile.html
+
+**The Connections Companion No. 329**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/05/crosswords/connections-companion.html
+
+**Today’s Wordle Review No. 1,051**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/05/crosswords/wordle-review.html
+
+**On Queens Soccer Fields, Immigrants Find Each Other and a Sense of Home**\
+`For generations of immigrants, Sunday soccer at Flushing Meadows Corona Park is more than a game.`\
+https://nytimes.com/2024/05/05/nyregion/soccer-migrants-corona-queens.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/05/05/crosswords/spelling-bee-forum.html
+
+**‘Horrified, I Watched the Beads Come Off and Bounce Onto the Asphalt’**\
+`A beloved necklace breaks in Midtown, an overheard snippet and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2024/05/05/nyregion/metropolitan-diary.html
+
 **Teenager Fatally Shot by Australian Police After He Stabbed a Man**\
 `The episode occurred just weeks after two major stabbing attacks in the country. The teen had been under monitoring for having extremist tendencies.`\
 https://nytimes.com/2024/05/05/world/australia/perth-stabbing-teen-shot.html
@@ -9,32 +37,4 @@ https://nytimes.com/2024/05/05/arts/television/saturday-night-live-jerry-seinfel
 **Dozens of Indiana University graduates walked out in protest during commencement.**\
 `By Kevin Williams`\
 https://nytimes.com/live/2024/05/04/us/college-campus-protests/dozens-of-indiana-university-graduates-walked-out-in-protest-during-commencement
-
-**Vassar protesters removed their tents after the college agreed to review its investments.**\
-`By Erin Nolan`\
-https://nytimes.com/live/2024/05/04/us/college-campus-protests/vassar-protesters-remove-their-tents-after-the-college-agreed-to-review-its-investments
-
-**Chief Counsel at R.N.C. Pushed Out After Two Months on the Job**\
-`Charlie Spies, a veteran election-law lawyer, had been under attack since soon after he joined the Republican National Committee in March.`\
-https://nytimes.com/2024/05/05/us/politics/spies-rnc-lawyer.html
-
-**Xi Visits Europe, Seeking Strategic Opportunity**\
-`The Chinese leader has carefully chosen three countries — France, Serbia and Hungary — that to varying degrees embrace Beijing’s push for a new global order.`\
-https://nytimes.com/2024/05/05/world/europe/xi-visits-europe-strategic-opportunity.html
-
-**His Skull Was Taken From Congo as a War Trophy. Will Belgium Finally Return It?**\
-`For decades, Belgium failed to return the remains of hundreds of people taken by force from former colonies. A draft law could change that, but critics say it is not going far enough.`\
-https://nytimes.com/2024/05/05/world/europe/human-skull-africa-belgium.html
-
-**Just How Dangerous Is Europe’s Rising Far Right?**\
-`Anti-immigration parties with fascist roots — and an uncertain commitment to democracy — are now mainstream.`\
-https://nytimes.com/2024/05/05/world/europe/europe-far-right.html
-
-**China Is Buying Gold Like There’s No Tomorrow**\
-`The global price of gold has reached its highest levels as Chinese investors and consumers, wary of real estate and stocks, buy the metal at a record pace.`\
-https://nytimes.com/2024/05/05/business/china-gold-price.html
-
-**Echoing Vietnam War protests, demonstrators at Kent State University call for the university to divest.**\
-`By Patrick Cooley`\
-https://nytimes.com/live/2024/05/04/us/college-campus-protests/echoing-vietnam-war-protests-demonstrators-at-kent-state-university-call-for-the-university-to-divest
 
