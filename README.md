@@ -1,3 +1,7 @@
+**How Humans Failed Racehorses**\
+`An exploration of the troubled state of horse racing in the U.S.`\
+https://nytimes.com/2024/05/05/briefing/kentucky-derby-race-horses.html
+
 **Israel’s prime minister has had a tense relationship with the network.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/05/05/world/israel-gaza-war-hamas/israels-prime-minister-has-had-a-tense-relationship-with-the-network
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/05/world/americas/panama-presidential-election-mulin
 **These Couples Survived a Lot. Then Came Retirement.**\
 `For many relationships, life after work brings an unexpected set of challenges.`\
 https://nytimes.com/2024/05/05/magazine/retirement-couples.html
-
-**Gallows Humor and Talk of Escape: Trump’s Possible Return Rattles Capital**\
-`At Washington dinner parties, dark jokes abound about where to go into exile if the former president reclaims the White House.`\
-https://nytimes.com/2024/05/05/us/politics/trump-biden-election-dc.html
 
