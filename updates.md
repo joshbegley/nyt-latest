@@ -1,3 +1,7 @@
+**Israeli statements raise concerns about Netanyahu’s commitment to a deal.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/05/05/world/israel-gaza-war-hamas/israeli-statements-raise-concerns-about-netanyahus-commitment-to-a-deal
+
 **How Humans Failed Racehorses**\
 `An exploration of the troubled state of horse racing in the U.S.`\
 https://nytimes.com/2024/05/05/briefing/kentucky-derby-race-horses.html

@@ -1,3 +1,7 @@
+**Israeli statements raise concerns about Netanyahu’s commitment to a deal.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/05/05/world/israel-gaza-war-hamas/israeli-statements-raise-concerns-about-netanyahus-commitment-to-a-deal
+
 **How Humans Failed Racehorses**\
 `An exploration of the troubled state of horse racing in the U.S.`\
 https://nytimes.com/2024/05/05/briefing/kentucky-derby-race-horses.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests/here-i
 **Most Prominent Voice in Panama’s Election Isn’t on the Ballot**\
 `The Central American nation heads to the polls on Sunday to elect a new leader after a campaign influenced by a convicted former president who has sought refuge in Nicaragua’s Embassy.`\
 https://nytimes.com/2024/05/05/world/americas/panama-presidential-election-mulino.html
-
-**These Couples Survived a Lot. Then Came Retirement.**\
-`For many relationships, life after work brings an unexpected set of challenges.`\
-https://nytimes.com/2024/05/05/magazine/retirement-couples.html
 
