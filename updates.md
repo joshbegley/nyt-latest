@@ -1,3 +1,7 @@
+**Dozens Are Arrested in Pro-Palestinian Protest at Art Institute of Chicago**\
+`The Chicago police said that 68 people had been arrested and charged with trespassing.`\
+https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests/art-institute-chicago-protests-arrests
+
 **Hamas claims responsibility for a rocket attack that closes a crossing between Israel and Gaza.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/05/05/world/israel-gaza-war-hamas/hamas-claims-responsibility-for-a-rocket-attack-that-closes-a-crossing-between-israel-and-gaza

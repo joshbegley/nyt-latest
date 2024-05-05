@@ -6,9 +6,9 @@ https://nytimes.com/live/2024/05/05/world/israel-gaza-war-hamas/hamas-claims-res
 `By Liam Stack`\
 https://nytimes.com/live/2024/05/05/world/israel-gaza-war-hamas/after-a-un-official-says-there-is-famine-in-northern-gaza-israel-pushes-back
 
-**The police arrest dozens of people at the Art Institute of Chicago.**\
-`By Yan Zhuang`\
-https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests/the-police-arrest-dozens-of-people-at-the-art-institute-of-chicago
+**Dozens Are Arrested in Pro-Palestinian Protest at Art Institute of Chicago**\
+`The Chicago police said that 68 people had been arrested and charged with trespassing.`\
+https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests/art-institute-chicago-protests-arrests
 
 **What’s Going On in This Picture? | May 6, 2024**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
