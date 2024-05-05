@@ -1,3 +1,11 @@
+**05campus-protests**\
+`University Graduations Are Flashpoints for Protests Over Gaza`\
+https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests
+
+**Here is the latest on campus protests.**\
+`By Emily Cochrane and Yan Zhuang`\
+https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests/here-is-the-latest-on-campus-protests
+
 **Most Prominent Voice in Panama’s Election Isn’t on the Ballot**\
 `The Central American nation heads to the polls on Sunday to elect a new leader after a campaign influenced by a convicted former president who has sought refuge in Nicaragua’s Embassy.`\
 https://nytimes.com/2024/05/05/world/americas/panama-presidential-election-mulino.html

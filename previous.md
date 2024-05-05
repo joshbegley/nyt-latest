@@ -1,3 +1,11 @@
+**05campus-protests**\
+`University Graduations Are Flashpoints for Protests Over Gaza`\
+https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests
+
+**Here is the latest on campus protests.**\
+`By Emily Cochrane and Yan Zhuang`\
+https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests/here-is-the-latest-on-campus-protests
+
 **Most Prominent Voice in Panama’s Election Isn’t on the Ballot**\
 `The Central American nation heads to the polls on Sunday to elect a new leader after a campaign influenced by a convicted former president who has sought refuge in Nicaragua’s Embassy.`\
 https://nytimes.com/2024/05/05/world/americas/panama-presidential-election-mulino.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/05/us/politics/latino-evangelicals-trump.html
 **Hundreds of Bahraini Political Prisoners Freed in ‘Bittersweet’ Royal Pardon**\
 `Amid deepening tensions in the Middle East, Bahraini activists said that the mass pardon, while welcome, was incomplete, and called for the release of several jailed opposition leaders.`\
 https://nytimes.com/2024/05/05/world/middleeast/bahrain-political-prisoners-freed-pardon.html
-
-**Organizers Hope Music Puts the Miami in the Miami Grand Prix**\
-`The entertainment lineup for this weekend’s Formula 1 race has been infused with Latin music and nightclub-like electronic beats.`\
-https://nytimes.com/2024/05/05/arts/music/miami-grand-prix-formula-1-music.html
-
-**A Small Island, a Big Mammal and One Girl’s Awakening**\
-`Set in a remote Welsh enclave on the cusp of World War II, Elizabeth O’Connor’s “Whale Fall” finds fresh resonance for a coming-of-age debut.`\
-https://nytimes.com/2024/05/05/books/review/whale-fall-elizabeth-oconnor.html
 
