@@ -1,3 +1,7 @@
+**How to Know When a Good Dog Has Gone Bad**\
+`Gov. Kristi Noem suggested that President Biden should have euthanized the family dog, as she did. Animal experts said that such an option should be a last resort.`\
+https://nytimes.com/2024/05/05/science/dogs-aggression-euthanasia.html
+
 **Bernard Hill, Actor in ‘Titanic’ and ‘Lord of the Rings,’ Dies at 79**\
 `With a stout frame, bushy whiskers and a weathered visage, he embodied men of authority facing down danger with weary stoicism.`\
 https://nytimes.com/2024/05/05/obituaries/bernard-hill-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/05/movies/laurent-cantet-dead.html
 **Cease-Fire Talks Between Israel and Hamas Again at an Impasse**\
 `There had been signs the two sides were inching closer to an agreement, but talks in Cairo stalled and a Hamas delegation left the city.`\
 https://nytimes.com/2024/05/05/world/middleeast/cease-fire-talks-israel-hamas.html
-
-**Jerome Rothenberg, Who Expanded the Sphere of Poetry, Dies at 92**\
-`His anthology “Technicians of the Sacred” included a range of non-Western work and was beloved by, among others, rock stars like Jim Morrison and Nick Cave.`\
-https://nytimes.com/2024/05/05/books/jerome-rothenberg-dead.html
 
