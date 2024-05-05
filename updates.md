@@ -1,3 +1,11 @@
+**More Flooding Expected in Houston as Rain Drenches Texas**\
+`Rivers in Southeast Texas could be swollen for days or weeks, forecasters said, as multiple rounds of heavy rainfall continued on Sunday.`\
+https://nytimes.com/2024/05/05/us/houston-texas-flood-rain.html
+
+**Hamas Claims Rocket Attack That Closes Key Crossing Between Israel and Gaza**\
+`The Israeli military said that about 10 rockets were fired toward Kerem Shalom, a conduit for aid into Gaza. Several people were injured, Israel’s public broadcaster said.`\
+https://nytimes.com/2024/05/05/world/middleeast/hamas-rocket-kerem-shalom-israel.html
+
 **Kristi Noem Suggests Biden’s Dog Should Have Been Killed, Too**\
 `The South Dakota governor, defending her tale of shooting and killing her family’s dog, suggested that President Biden’s German shepherd, Commander, had merited a similar fate.`\
 https://nytimes.com/2024/05/05/us/politics/kristi-noem-biden-dog.html
