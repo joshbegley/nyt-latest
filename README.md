@@ -1,3 +1,31 @@
+**Organizers Hope Music Puts the Miami in the Miami Grand Prix**\
+`The entertainment lineup for this weekend’s Formula 1 race has been infused with Latin music and nightclub-like electronic beats.`\
+https://nytimes.com/2024/05/05/arts/music/miami-grand-prix-formula-1-music.html
+
+**A Small Island, a Big Mammal and One Girl’s Awakening**\
+`Set in a remote Welsh enclave on the cusp of World War II, Elizabeth O’Connor’s “Whale Fall” finds fresh resonance for a coming-of-age debut.`\
+https://nytimes.com/2024/05/05/books/review/whale-fall-elizabeth-oconnor.html
+
+**A FAFSA Fiasco Has Students Still Asking: Which College Can They Afford?**\
+`The new application for federal tuition aid was meant to be simpler. High school seniors say it has been anything but, and some are still unsure of their plans after graduation.`\
+https://nytimes.com/2024/05/05/us/fafsa-college-financial-aid.html
+
+**DNA Tests and Stranded Bodies: Ukraine’s Struggle to Name Its Dead**\
+`Families of some soldiers say they have spent months trying to get official confirmation of their loved one’s death, adding to their anguish.`\
+https://nytimes.com/2024/05/05/world/europe/ukraine-soldiers-mia-russia.html
+
+**Three Lives Entwined by Tragedy — and a Love of Literature**\
+`In Monica Wood’s rich new novel, “How to Read a Book,” death, prison and poetry become the catalyst for new beginnings.`\
+https://nytimes.com/2024/05/05/books/review/how-to-read-a-book-monica-wood.html
+
+**When Prison and Mental Illness Amount to a Death Sentence**\
+`The downward spiral of one inmate, Markus Johnson, shows the larger failures of the nation’s prisons to care for the mentally ill.`\
+https://nytimes.com/2024/05/05/us/politics/prison-mental-health-care.html
+
+**Frank Stella Went From Bauhaus to Fun House**\
+`He was consumed with abstract painting and determined to keep it alive even when it became an unpopular cause among younger artists.`\
+https://nytimes.com/2024/05/05/arts/design/frank-stella-abstract-artist-appraisal.html
+
 **Corrections: May 5, 2024**\
 `Corrections that appeared in print on Sunday, May 5, 2024.`\
 https://nytimes.com/2024/05/05/pageoneplus/corrections-may-5-2024.html
@@ -9,32 +37,4 @@ https://nytimes.com/2024/05/05/pageoneplus/quotation-of-the-day-as-2-cicada-broo
 **In the Comments Section, Writerly Discourse Awaits**\
 `A critic for the Book Review finds joy — and inspiration — in engaging with readers via the comments forums on his articles.`\
 https://nytimes.com/2024/05/05/insider/book-review-comments-section-readers.html
-
-**Miranda July Is Ready to Get ‘Maximum Weird’**\
-`In “All Fours,” her first novel in almost 10 years, the writer, artist and filmmaker considers freedom — sexual and otherwise.`\
-https://nytimes.com/2024/05/05/style/miranda-july-all-fours-profile.html
-
-**The Connections Companion No. 329**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/05/crosswords/connections-companion.html
-
-**Today’s Wordle Review No. 1,051**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/05/crosswords/wordle-review.html
-
-**On Queens Soccer Fields, Immigrants Find Each Other and a Sense of Home**\
-`For generations of immigrants, Sunday soccer at Flushing Meadows Corona Park is more than a game.`\
-https://nytimes.com/2024/05/05/nyregion/soccer-migrants-corona-queens.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/05/05/crosswords/spelling-bee-forum.html
-
-**‘Horrified, I Watched the Beads Come Off and Bounce Onto the Asphalt’**\
-`A beloved necklace breaks in Midtown, an overheard snippet and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2024/05/05/nyregion/metropolitan-diary.html
-
-**Teenager Fatally Shot by Australian Police After He Stabbed a Man**\
-`The episode occurred just weeks after two major stabbing attacks in the country. The teen had been under monitoring for having extremist tendencies.`\
-https://nytimes.com/2024/05/05/world/australia/perth-stabbing-teen-shot.html
 
