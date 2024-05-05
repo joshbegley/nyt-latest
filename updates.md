@@ -1,3 +1,7 @@
+**Quotation of the Day: As 2 Cicada Broods Emerge at Once, Illinois Prepares to Hear the Loudest Roar**\
+`Quotation of the Day for Sunday, May 5, 2024.`\
+https://nytimes.com/2024/05/05/pageoneplus/quotation-of-the-day-as-2-cicada-broods-emerge-at-once-illinois-prepares-to-hear-the-loudest-roar.html
+
 **In the Comments Section, Writerly Discourse Awaits**\
 `A critic for the Book Review finds joy — and inspiration — in engaging with readers via the comments forums on his articles.`\
 https://nytimes.com/2024/05/05/insider/book-review-comments-section-readers.html
