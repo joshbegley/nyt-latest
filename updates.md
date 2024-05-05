@@ -1,3 +1,7 @@
+**Laurent Cantet, Whose Films Explored France’s Undersides, Dies at 63**\
+`His acclaimed “The Class” walked a provocative line between documentary and fiction. In that film and others, he explored the inescapable traps of late-stage capitalism.`\
+https://nytimes.com/2024/05/05/movies/laurent-cantet-dead.html
+
 **Cease-Fire Talks Between Israel and Hamas Said to Again Be at an Impasse**\
 `There had been signs the two sides were inching closer to an agreement, but talks in Cairo stalled and a Hamas delegation left the city.`\
 https://nytimes.com/2024/05/05/world/middleeast/cease-fire-talks-israel-hamas.html
