@@ -1,3 +1,7 @@
+**Vassar protesters removed their tents after the college agreed to review its investments.**\
+`By Erin Nolan`\
+https://nytimes.com/live/2024/05/04/us/college-campus-protests/vassar-protesters-remove-their-tents-after-the-college-agreed-to-review-its-investments
+
 **Chief Counsel at R.N.C. Pushed Out After Two Months on the Job**\
 `Charlie Spies, a veteran election-law lawyer, had been under attack since soon after he joined the Republican National Committee in March.`\
 https://nytimes.com/2024/05/05/us/politics/spies-rnc-lawyer.html

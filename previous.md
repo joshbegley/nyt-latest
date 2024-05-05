@@ -1,3 +1,7 @@
+**Vassar protesters removed their tents after the college agreed to review its investments.**\
+`By Erin Nolan`\
+https://nytimes.com/live/2024/05/04/us/college-campus-protests/vassar-protesters-remove-their-tents-after-the-college-agreed-to-review-its-investments
+
 **Chief Counsel at R.N.C. Pushed Out After Two Months on the Job**\
 `Charlie Spies, a veteran election-law lawyer, had been under attack since soon after he joined the Republican National Committee in March.`\
 https://nytimes.com/2024/05/05/us/politics/spies-rnc-lawyer.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/04/us/college-campus-protests/at-least-one-stud
 **Encampment ends at U.C. Riverside after protesters and school officials reach a deal.**\
 `By Anna Betts`\
 https://nytimes.com/live/2024/05/04/us/college-campus-protests/encampment-ends-at-uc-riverside-after-protesters-and-school-officials-reach-a-deal
-
-**From the Astronaut’s Logbook**\
-`Daniel Bodily’s Sunday puzzle is out of this world.`\
-https://nytimes.com/2024/05/04/crosswords/daily-puzzle-2024-05-05.html
 
