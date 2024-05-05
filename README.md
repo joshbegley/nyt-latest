@@ -1,3 +1,7 @@
+**Police aggressively push U.Va. protesters off a campus lawn and arrest 25 people.**\
+`By Jackson Landers, Hawes Spencer and Emily Cochrane`\
+https://nytimes.com/live/2024/05/04/us/college-campus-protests/protests-uva
+
 **At least one student at Ole Miss is being investigated after racist counterprotest.**\
 `Glenn F. Boyce, the university chancellor, said that statements made in the confrontation were “offensive, hurtful and unacceptable.”`\
 https://nytimes.com/live/2024/05/04/us/college-campus-protests/at-least-one-student-at-ole-miss-is-being-investigated-after-racist-counterprotest
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/05/04/nyregion/trump-hush-money-trial-trans
 **Frank Stella, Towering Artist and Master of Reinvention, Dies at 87**\
 `He moved American art away from Abstract Expressionism toward cool minimalism. His explorations of color and form were endlessly discussed and constantly on exhibit.`\
 https://nytimes.com/2024/05/04/arts/frank-stella-dead.html
-
-**Last of Escaped Zebras Captured With White Bread, Oats and ‘Positivity’**\
-`A zebra named Sugar was captured on Friday after being on the loose in Washington State for nearly a week.`\
-https://nytimes.com/2024/05/04/us/zebra-washington-state-highway-captured.html
 
