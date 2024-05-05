@@ -1,3 +1,7 @@
+**Police Again Clear Pro-Palestinian Encampment at U.S.C.**\
+`The university has been in turmoil following the decision not to allow its valedictorian, who is Muslim, to speak at graduation.`\
+https://nytimes.com/2024/05/05/us/usc-pro-palestinian-encampment.html
+
 **Hamas claims responsibility for a rocket attack that closes a crossing between Israel and Gaza.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/05/05/world/israel-gaza-war-hamas/hamas-claims-responsibility-for-a-rocket-attack-that-closes-a-crossing-between-israel-and-gaza
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/05/world/israel-gaza-war-hamas
 **Marjorie Taylor Greene Is Not as Powerful as She Thinks She Is**\
 `The uproars that don’t seem to touch Trump at all can still bring down other Republicans.`\
 https://nytimes.com/2024/05/05/opinion/marjorie-taylor-greene-mike-johnson.html
-
-**I Love Facebook. That’s Why I’m Suing Meta.**\
-`We must be able to create a more civic-minded internet, with tools that would empower users to better control what they see.`\
-https://nytimes.com/2024/05/05/opinion/facebook-court-internet-meta.html
 
