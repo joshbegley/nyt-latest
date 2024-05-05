@@ -1,3 +1,11 @@
+**Bernard Hill, Actor in ‘Titanic’ and ‘Lord of the Rings,’ Dies at 79**\
+`With a stout frame, bushy whiskers and a weathered visage, he embodied men of authority facing down danger with weary stoicism.`\
+https://nytimes.com/2024/05/05/obituaries/bernard-hill-dead.html
+
+**4 Children From Gaza Arrive in U.S. for Medical Treatment**\
+`The children, who were injured or suffered malnutrition, were greeted at Kennedy Airport with toys and balloons. “These are their first memories here,” one supporter said.`\
+https://nytimes.com/2024/05/05/nyregion/gaza-children-us-hospitals.html
+
 **Flies High**\
 `Malaika Handa takes her turn.`\
 https://nytimes.com/2024/05/05/crosswords/daily-puzzle-2024-05-06.html
