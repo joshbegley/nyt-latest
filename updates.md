@@ -1,3 +1,7 @@
+**An encampment remains at the University of Chicago as students negotiate disbanding.**\
+`By Robert Chiarito and Colbi Edmonds`\
+https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests/an-encampment-remains-at-the-university-of-chicago-as-students-negotiate-disbanding
+
 **Cease-Fire Talks Between Israel and Hamas Again at an Impasse**\
 `There had been signs the two sides were inching closer to an agreement, but talks in Cairo stalled and a Hamas delegation left the city.`\
 https://nytimes.com/2024/05/05/world/middleeast/cease-fire-talks-israel-hamas.html
