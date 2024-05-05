@@ -1,3 +1,7 @@
+**Sony and Apollo in Talks to Acquire Paramount**\
+`After letting exclusive talks with the movie studio Skydance lapse, Paramount’s directors met over the weekend and decided to negotiate with all the suitors.`\
+https://nytimes.com/2024/05/05/business/media/sony-apollo-paramount.html
+
 **Trump’s V.P. contenders defend, and audition for, the former president.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/05/05/us/biden-trump-campaign/trumps-vp-contenders-defend-and-audition-for-the-former-president

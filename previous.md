@@ -1,3 +1,7 @@
+**Sony and Apollo in Talks to Acquire Paramount**\
+`After letting exclusive talks with the movie studio Skydance lapse, Paramount’s directors met over the weekend and decided to negotiate with all the suitors.`\
+https://nytimes.com/2024/05/05/business/media/sony-apollo-paramount.html
+
 **Trump’s V.P. contenders defend, and audition for, the former president.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/05/05/us/biden-trump-campaign/trumps-vp-contenders-defend-and-audition-for-the-former-president
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/05/dining/sweet-tea-brined-roast-chicken-for-sunday-
 **Driver Dies After Crashing Into Barrier Near the White House**\
 `The Secret Service said the incident posed no threat to the public, and President Biden was in Delaware at the time of the crash.`\
 https://nytimes.com/2024/05/05/us/politics/white-house-car-crash-biden.html
-
-**Police Again Clear Pro-Palestinian Encampment at U.S.C.**\
-`The university has been in turmoil following the decision not to allow its valedictorian, who is Muslim, to speak at graduation.`\
-https://nytimes.com/2024/05/05/us/usc-pro-palestinian-encampment.html
 
