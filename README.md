@@ -1,3 +1,7 @@
+**Quotation of the Day: As 2 Cicada Broods Emerge at Once, Illinois Prepares to Hear the Loudest Roar**\
+`Quotation of the Day for Sunday, May 5, 2024.`\
+https://nytimes.com/2024/05/05/pageoneplus/quotation-of-the-day-as-2-cicada-broods-emerge-at-once-illinois-prepares-to-hear-the-loudest-roar.html
+
 **In the Comments Section, Writerly Discourse Awaits**\
 `A critic for the Book Review finds joy — and inspiration — in engaging with readers via the comments forums on his articles.`\
 https://nytimes.com/2024/05/05/insider/book-review-comments-section-readers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/05/world/australia/perth-stabbing-teen-shot.html
 **‘Saturday Night Live’ Welcomes Dua Lipa and Jerry Seinfeld**\
 `The pop star hosted and performed as the musical guest. The comedian poked fun at the abundant promotion he has been doing for his Netflix movie.`\
 https://nytimes.com/2024/05/05/arts/television/saturday-night-live-jerry-seinfeld-dua-lipa.html
-
-**Dozens of Indiana University graduates walked out in protest during commencement.**\
-`By Kevin Williams`\
-https://nytimes.com/live/2024/05/04/us/college-campus-protests/dozens-of-indiana-university-graduates-walked-out-in-protest-during-commencement
 
