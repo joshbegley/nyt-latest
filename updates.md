@@ -1,3 +1,11 @@
+**Israel’s prime minister has had a tense relationship with the network.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/05/05/world/israel-gaza-war-hamas/israels-prime-minister-has-had-a-tense-relationship-with-the-network
+
+**05mideast-crisis**\
+`Israeli Cabinet Votes to Shut Down Al Jazeera’s Operations in the Country`\
+https://nytimes.com/live/2024/05/05/world/israel-gaza-war-hamas
+
 **Marjorie Taylor Greene Is Not as Powerful as She Thinks She Is**\
 `The uproars that don’t seem to touch Trump at all can still bring down other Republicans.`\
 https://nytimes.com/2024/05/05/opinion/marjorie-taylor-greene-mike-johnson.html
