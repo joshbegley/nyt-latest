@@ -1,3 +1,7 @@
+**Police Again Clear Pro-Palestinian Encampment at U.S.C.**\
+`The university has been in turmoil following the decision not to allow its valedictorian, who is Muslim, to speak at graduation.`\
+https://nytimes.com/2024/05/05/us/usc-pro-palestinian-encampment.html
+
 **Dozens Are Arrested in Pro-Palestinian Protest at Art Institute of Chicago**\
 `The Chicago police said that 68 people had been arrested and charged with trespassing.`\
 https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests/art-institute-chicago-protests-arrests
