@@ -1,3 +1,11 @@
+**Peter Oosterhuis, British Golfer Turned Broadcaster, Dies at 75**\
+`He won 20 tournaments before moving into TV. “He explained the game that was going out in front of him in a very relaxed manner,” a former CBS producer said.`\
+https://nytimes.com/2024/05/05/sports/golf/peter-oosterhuis-dead.html
+
+**Interstate 95 Reopens After Damaged Bridge Is Demolished**\
+`A section of the highway, a crucial link between Connecticut and New York City, had closed on Thursday when fuel from a burning tanker ignited an overpass.`\
+https://nytimes.com/2024/05/05/nyregion/interstate-95-reopens-ct-nyc.html
+
 **Interstate 95 Reopens After Damaged Bridge Is Demolished**\
 `The highway, a crucial link between Connecticut and New York City, had closed on Thursday when fuel from a burning tanker ignited an overpass.`\
 https://nytimes.com/2024/05/05/nyregion/interstate-95-reopens-ct-nyc.html
