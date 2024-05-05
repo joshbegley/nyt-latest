@@ -1,3 +1,7 @@
+**Cease-Fire Talks Between Israel and Hamas Said to Again Be at an Impasse**\
+`There had been signs the two sides were inching closer to an agreement, but talks in Cairo stalled and a Hamas delegation left the city.`\
+https://nytimes.com/2024/05/05/world/middleeast/cease-fire-talks-israel-hamas.html
+
 **Jerome Rothenberg, Who Expanded the Sphere of Poetry, Dies at 92**\
 `His anthology “Technicians of the Sacred” included a range of non-Western work and was beloved by, among others, rock stars like Jim Morrison and Nick Cave.`\
 https://nytimes.com/2024/05/05/books/jerome-rothenberg-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/05/nyregion/interstate-95-reopens-ct-nyc.html
 **Madonna Brings Massive Free Concert to Rio, Capping Celebration Tour**\
 `The pop superstar performed a final date on her global trek marking four decades of hits: a set on Copacabana Beach before the largest live crowd of her career.`\
 https://nytimes.com/2024/05/05/arts/music/madonna-free-celebration-concert-rio-brazil.html
-
-**Are E.V.s Too Quiet and ‘Boring’?**\
-`Readers discuss a guest essay that argued they are both. Also: College roommates; tech in school; truths about Russia; water and politics.`\
-https://nytimes.com/2024/05/05/opinion/electric-vehicles-cars.html
 
