@@ -1,3 +1,7 @@
+**Flies High**\
+`Malaika Handa takes her turn.`\
+https://nytimes.com/2024/05/05/crosswords/daily-puzzle-2024-05-06.html
+
 **Candidates for Federal Office Can Raise Unlimited Funds for Ballot Measures**\
 `A decision by the Federal Election Commission would allow the Biden and Trump campaigns to raise money for outside groups pushing ballot measures.`\
 https://nytimes.com/2024/05/05/us/politics/election-funds-ballot-measures.html
