@@ -1,3 +1,7 @@
+**An encampment remains at the University of Chicago as students negotiate disbanding.**\
+`By Robert Chiarito and Colbi Edmonds`\
+https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests/an-encampment-remains-at-the-university-of-chicago-as-students-negotiate-disbanding
+
 **Laurent Cantet, Whose Films Explored France’s Undersides, Dies at 63**\
 `His acclaimed “The Class” walked a provocative line between documentary and fiction. In that film and others, he explored the inescapable traps of late-stage capitalism.`\
 https://nytimes.com/2024/05/05/movies/laurent-cantet-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/05/us/politics/kristi-noem-biden-dog.html
 **Peter Oosterhuis, British Golfer Turned Broadcaster, Dies at 75**\
 `He won 20 tournaments before moving into TV. “He explained the game that was going out in front of him in a very relaxed manner,” a former CBS producer said.`\
 https://nytimes.com/2024/05/05/sports/golf/peter-oosterhuis-dead.html
-
-**Interstate 95 Reopens After Damaged Bridge Is Demolished**\
-`A section of the highway, a crucial link between Connecticut and New York City, had closed on Thursday when fuel from a burning tanker ignited an overpass.`\
-https://nytimes.com/2024/05/05/nyregion/interstate-95-reopens-ct-nyc.html
 
