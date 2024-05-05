@@ -1,3 +1,7 @@
+**Laurent Cantet, Whose Films Explored France’s Undersides, Dies at 63**\
+`His acclaimed “The Class” walked a provocative line between documentary and fiction. In that film and others, he explored the inescapable traps of late-stage capitalism.`\
+https://nytimes.com/2024/05/05/movies/laurent-cantet-dead.html
+
 **Cease-Fire Talks Between Israel and Hamas Said to Again Be at an Impasse**\
 `There had been signs the two sides were inching closer to an agreement, but talks in Cairo stalled and a Hamas delegation left the city.`\
 https://nytimes.com/2024/05/05/world/middleeast/cease-fire-talks-israel-hamas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/05/sports/golf/peter-oosterhuis-dead.html
 **Interstate 95 Reopens After Damaged Bridge Is Demolished**\
 `A section of the highway, a crucial link between Connecticut and New York City, had closed on Thursday when fuel from a burning tanker ignited an overpass.`\
 https://nytimes.com/2024/05/05/nyregion/interstate-95-reopens-ct-nyc.html
-
-**Madonna Brings Massive Free Concert to Rio, Capping Celebration Tour**\
-`The pop superstar performed a final date on her global trek marking four decades of hits: a set on Copacabana Beach before the largest live crowd of her career.`\
-https://nytimes.com/2024/05/05/arts/music/madonna-free-celebration-concert-rio-brazil.html
 
