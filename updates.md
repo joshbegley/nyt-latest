@@ -1,3 +1,11 @@
+**Are E.V.s Too Quiet and ‘Boring’?**\
+`Readers discuss a guest essay that argued they are both. Also: College roommates; tech in school; truths about Russia; water and politics.`\
+https://nytimes.com/2024/05/05/opinion/electric-vehicles-cars.html
+
+**Sweet Tea-Brined Roast Chicken for Sunday Supper**\
+`With horseradish-Cheddar tuna melts and vegan tantanmen for the coming week.`\
+https://nytimes.com/2024/05/05/dining/sweet-tea-brined-roast-chicken-for-sunday-supper.html
+
 **Driver Dies After Crashing Into Barrier Near the White House**\
 `The Secret Service said the incident posed no threat to the public, and President Biden was in Delaware at the time of the crash.`\
 https://nytimes.com/2024/05/05/us/politics/white-house-car-crash-biden.html
