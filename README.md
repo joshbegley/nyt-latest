@@ -1,3 +1,7 @@
+**Flies High**\
+`Malaika Handa takes her turn.`\
+https://nytimes.com/2024/05/05/crosswords/daily-puzzle-2024-05-06.html
+
 **Candidates for Federal Office Can Raise Unlimited Funds for Ballot Measures**\
 `A decision by the Federal Election Commission would allow the Biden and Trump campaigns to raise money for outside groups pushing ballot measures.`\
 https://nytimes.com/2024/05/05/us/politics/election-funds-ballot-measures.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/05/business/fall-guy-ticket-sales-movies.html
 **Sony and Apollo in Talks to Acquire Paramount**\
 `After letting exclusive talks with the movie studio Skydance lapse, Paramount’s directors met over the weekend and decided to negotiate with all the suitors.`\
 https://nytimes.com/2024/05/05/business/media/sony-apollo-paramount.html
-
-**Trump’s V.P. contenders defend, and audition for, the former president.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/05/05/us/biden-trump-campaign/trumps-vp-contenders-defend-and-audition-for-the-former-president
 
