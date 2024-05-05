@@ -1,3 +1,7 @@
+**Kristi Noem Suggests Biden’s Dog Should Have Been Killed, Too**\
+`The South Dakota governor, defending her tale of shooting and killing her family’s dog, suggested that President Biden’s German shepherd, Commander, had merited a similar fate.`\
+https://nytimes.com/2024/05/05/us/politics/kristi-noem-suggests-bidens-dog-should-have-been-killed-too.html
+
 **Peter Oosterhuis, British Golfer Turned Broadcaster, Dies at 75**\
 `He won 20 tournaments before moving into TV. “He explained the game that was going out in front of him in a very relaxed manner,” a former CBS producer said.`\
 https://nytimes.com/2024/05/05/sports/golf/peter-oosterhuis-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/05/world/israel-gaza-war-hamas/hamas-claims-res
 **After a U.N. official says there is famine in northern Gaza, Israel pushes back.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/05/05/world/israel-gaza-war-hamas/after-a-un-official-says-there-is-famine-in-northern-gaza-israel-pushes-back
-
-**Dozens Are Arrested in Pro-Palestinian Protest at Art Institute of Chicago**\
-`The Chicago police said that 68 people had been arrested and charged with trespassing.`\
-https://nytimes.com/2024/05/05/us/art-institute-chicago-protests-arrests.html
 
