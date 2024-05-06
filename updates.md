@@ -1,3 +1,7 @@
+**It’s the first Monday in May: Fashion’s biggest night has come to the Met.**\
+`By Louis Lucero II`\
+https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/its-the-first-monday-in-may-the-met-gala-is-here
+
 **It’s the first Monday in May: The Met Gala is here.**\
 `By Louis Lucero II`\
 https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/its-the-first-monday-in-may-the-met-gala-is-here
