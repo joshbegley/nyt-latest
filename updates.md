@@ -1,3 +1,15 @@
+**Right-Wing Nonprofit Paid Millions to Companies With Ties to Insiders**\
+`The Conservative Partnership Institute’s three highest-paid contractors had connections to the group’s leaders or their relatives, raising concerns about self-dealing.`\
+https://nytimes.com/2024/05/06/us/politics/trump-conservative-partnership-institute-funds.html
+
+**The Conservative Partnership Institute’s 2022 Annual Filing With the I.R.S.**\
+`This document shows that the nonprofit’s three highest-paid vendors were Compass Legal, Compass Professional and Compass Property Management. All three were connected to insiders at the nonprofit.`\
+https://nytimes.com/interactive/2024/05/06/us/conservative-partnership-institute-2022-filing.html
+
+**The Conservative Partnership Institute’s 2021 Annual Filing With the I.R.S.**\
+`The filing shows a sharp increase in the institute’s funding, during a year when it sought to become a nerve center for President Donald J. Trump’s allies in Washington.`\
+https://nytimes.com/interactive/2024/05/06/us/irs-filing-conservative-institute.html
+
 **Compass Direct LLC’s 2024 Registration in North Carolina**\
 `Compass Direct LLC is run by Patrick Corrigan, the brother of Edward Corrigan, the president of Conservative Partnership Institute.`\
 https://nytimes.com/interactive/2024/05/06/us/compass-direct-llc-north-carolina.html
