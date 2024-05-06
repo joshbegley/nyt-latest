@@ -1,3 +1,7 @@
+**Police Raid U.C. San Diego Encampment and Arrest 64 Protesters**\
+`Videos from the scene showed police officers wearing helmets and carrying batons as they handcuffed protesters and led them away from the tents.`\
+https://nytimes.com/2024/05/06/us/ucsd-campus-protests-arrests.html
+
 **Why Does Trump Face Felony Charges? Prosecutors Say He Was Hiding Other Crimes.**\
 `Donald J. Trump faces 34 felony counts in his Manhattan trial, but none involve the other misconduct that prosecutors say he engaged in.`\
 https://nytimes.com/2024/05/06/nyregion/trump-charges-felonies.html
