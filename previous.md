@@ -1,3 +1,15 @@
+**What’s on TV This Week: Met Gala and ‘Wedding Crashers’**\
+`E! covers all the looks of the first Monday in May. And Paramount airs the classic buddy movie.`\
+https://nytimes.com/2024/05/06/arts/television/whats-on-tv-this-week-met-gala-and-wedding-crashers.html
+
+**Barenboim: What Beethoven’s Ninth Teaches Us**\
+`The conductor Daniel Barenboim explores the political and spiritual power of what many consider the greatest symphony.`\
+https://nytimes.com/2024/05/06/opinion/daniel-barenboim-beethoven-ninth-symphony.html
+
+**Let’s All Take a Deep Breath About China**\
+`Anxiety about China is making American policymakers react in paranoid, repressive ways.`\
+https://nytimes.com/2024/05/06/opinion/china-anxiety-us-policy.html
+
 **Monday Briefing**\
 `Cease-fire talks stall.`\
 https://nytimes.com/2024/05/06/briefing/ceasefire-talks-xi-jinping-europe.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests/set-to
 **Commencement events proceed largely as planned, with some interruptions.**\
 `By Matthew Eadie and Rachel Richardson`\
 https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests/northeastern-graduation-protests
-
-**R.F.K. Jr. Claims Censorship After Facebook and Instagram Briefly Block New Ad**\
-`The ad, a sleek 30-minute production, was blocked for several hours on Friday and Saturday. Meta, which owns both platforms, said the link had been incorrectly flagged as spam.`\
-https://nytimes.com/2024/05/05/us/politics/rfk-jr-facebook-instagram-ad.html
-
-**How to Know When a Good Dog Has Gone Bad**\
-`Gov. Kristi Noem suggested that President Biden should have euthanized the family dog, as she did. Animal experts said that such an option should be a last resort.`\
-https://nytimes.com/2024/05/05/science/dogs-aggression-euthanasia.html
-
-**Bernard Hill, Actor in ‘Titanic’ and ‘Lord of the Rings,’ Dies at 79**\
-`With a stout frame, bushy whiskers and a weathered visage, he embodied men of authority facing down danger with weary stoicism.`\
-https://nytimes.com/2024/05/05/obituaries/bernard-hill-dead.html
 

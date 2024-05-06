@@ -1,3 +1,15 @@
+**What’s on TV This Week: Met Gala and ‘Wedding Crashers’**\
+`E! covers all the looks of the first Monday in May. And Paramount airs the classic buddy movie.`\
+https://nytimes.com/2024/05/06/arts/television/whats-on-tv-this-week-met-gala-and-wedding-crashers.html
+
+**Barenboim: What Beethoven’s Ninth Teaches Us**\
+`The conductor Daniel Barenboim explores the political and spiritual power of what many consider the greatest symphony.`\
+https://nytimes.com/2024/05/06/opinion/daniel-barenboim-beethoven-ninth-symphony.html
+
+**Let’s All Take a Deep Breath About China**\
+`Anxiety about China is making American policymakers react in paranoid, repressive ways.`\
+https://nytimes.com/2024/05/06/opinion/china-anxiety-us-policy.html
+
 **Monday Briefing**\
 `Cease-fire talks stall.`\
 https://nytimes.com/2024/05/06/briefing/ceasefire-talks-xi-jinping-europe.html
