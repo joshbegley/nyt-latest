@@ -1,6 +1,6 @@
 **3 Bodies Found in Baja California Are Identified as Missing Tourists’**\
 `Family members confirmed the identities of two Australian brothers and their American friend, who were found killed by gunshots after going missing last month.`\
-https://nytimes.com/2024/05/05/world/americas/mexico-baja-bodies-identified.html
+https://nytimes.com/2024/05/05/world/americas/bodies-found-baja-california.html
 
 **A letter signed by at least three dozen U.Va. professors condemned school leaders over a police response.**\
 `By Emily Cochrane`\
