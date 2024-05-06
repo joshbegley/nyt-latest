@@ -1,3 +1,7 @@
+**Police Raid U.C. San Diego Encampment and Arrest Protesters**\
+`Videos from the scene showed police officers wearing helmets and carrying batons as they handcuffed protesters and led them away from the tents.`\
+https://nytimes.com/2024/05/06/us/ucsd-campus-protests-arrests.html
+
 **Coming Soon to Little Island: An Arts Festival With Powerful Backers**\
 `The mogul Barry Diller, who paid for the park, will finance a summer season of music, dance, theater and more, shaped in part by the Broadway producer Scott Rudin.`\
 https://nytimes.com/2024/05/06/arts/music/little-island-festival-barry-diller-scott-rudin-twyla-tharp.html
