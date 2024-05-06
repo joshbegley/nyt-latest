@@ -1,3 +1,11 @@
+**The Israeli military tells civilians in eastern Rafah to move to a humanitarian zone.**\
+`By Vivek Shankar`\
+https://nytimes.com/live/2024/05/06/world/israel-gaza-war-hamas/the-israeli-military-tells-civilians-in-eastern-rafah-to-move-to-a-humanitarian-zone
+
+**06mideast-crisis**\
+`Israeli Military Warns Thousands in Rafah to Evacuate`\
+https://nytimes.com/live/2024/05/06/world/israel-gaza-war-hamas
+
 **Word of the Day: etymology**\
 `This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/05/06/learning/word-of-the-day-etymology.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/06/business/shanghai-china-feminism.html
 **3 Bodies Found in Baja California Are Identified as Missing Tourists’**\
 `Family members confirmed the identities of two Australian brothers and their American friend, who were found shot to death after going missing last month.`\
 https://nytimes.com/2024/05/05/world/americas/bodies-found-baja-california.html
-
-**A letter signed by at least three dozen U.Va. professors condemned school leaders over a police response.**\
-`By Emily Cochrane`\
-https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests/a-letter-signed-by-at-least-three-dozen-uva-professors-condemned-school-leaders-over-a-police-response
-
-**ABC News’ President, Kim Godwin, to Step Down**\
-`The first Black woman to run a broadcast news division, Ms. Godwin had a rocky tenure defined by infighting and damaging leaks.`\
-https://nytimes.com/2024/05/05/business/media/abc-news-president-kim-godwin-to-step-down.html
 

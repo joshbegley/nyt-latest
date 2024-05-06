@@ -1,3 +1,11 @@
+**The Israeli military tells civilians in eastern Rafah to move to a humanitarian zone.**\
+`By Vivek Shankar`\
+https://nytimes.com/live/2024/05/06/world/israel-gaza-war-hamas/the-israeli-military-tells-civilians-in-eastern-rafah-to-move-to-a-humanitarian-zone
+
+**06mideast-crisis**\
+`Israeli Military Warns Thousands in Rafah to Evacuate`\
+https://nytimes.com/live/2024/05/06/world/israel-gaza-war-hamas
+
 **Word of the Day: etymology**\
 `This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/05/06/learning/word-of-the-day-etymology.html
