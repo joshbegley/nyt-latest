@@ -1,3 +1,7 @@
+**A Fresh Approach to a Crisis**\
+`A group of researchers posited another explanation for the youth mental health crisis: Too much discussion.`\
+https://nytimes.com/2024/05/06/briefing/youth-mental-health-crisis.html
+
 **Today’s Wordle Review No. 1,052**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/05/06/crosswords/wordle-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/opinion/biden-trump-campus-protests-trial.html
 **Trump Is Rallying in New Jersey and Boasting of New States. Is It a PsyOp?**\
 `And he continues to cross new lines with wild language about Democrats.`\
 https://nytimes.com/2024/05/06/opinion/trump-is-rallying-in-new-jersey-and-boasting-of-new-states-is-it-a-psyop.html
-
-**Zendaya, Bad Bunny and a Threat of a Picket Line at the 2024 Met Gala**\
-`Who will show up? How will invitees interpret this year’s “Garden of Time” theme? Fashion’s biggest red carpet is finally here.`\
-https://nytimes.com/2024/05/06/fashion/met-gala-what-to-expect.html
 
