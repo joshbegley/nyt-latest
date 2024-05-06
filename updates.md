@@ -1,3 +1,11 @@
+**It’s the first Monday in May: The Met Gala is here.**\
+`By Louis Lucero II`\
+https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/its-the-first-monday-in-may-the-met-gala-is-here
+
+**Kris Hallenga, Advocate for Breast Cancer Awareness Among the Young, Dies at 38**\
+`After being diagnosed with advanced breast cancer when she was 23, she became determined to educate other young people about early detection.`\
+https://nytimes.com/2024/05/06/health/kris-hallenga-dead.html
+
 **University of Chicago Professors Say They Will Risk Arrest at Protest**\
 `A group of faculty members called on administrators to resume negotiations with pro-Palestinian student protesters.`\
 https://nytimes.com/2024/05/06/us/uchicago-faculty-protest-encampment.html
