@@ -1,3 +1,7 @@
+**Police Raid U.C. San Diego Encampment and Arrest Protesters**\
+`Videos from the scene showed police officers wearing helmets and carrying batons as they handcuffed protesters and led them away from the tents.`\
+https://nytimes.com/2024/05/06/us/ucsd-campus-protests-arrests.html
+
 **Coming Soon to Little Island: An Arts Festival With Powerful Backers**\
 `The mogul Barry Diller, who paid for the park, will finance a summer season of music, dance, theater and more, shaped in part by the Broadway producer Scott Rudin.`\
 https://nytimes.com/2024/05/06/arts/music/little-island-festival-barry-diller-scott-rudin-twyla-tharp.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/us/politics/trump-conservative-partnership-instit
 **Compass Direct LLC’s 2024 Registration in North Carolina**\
 `Compass Direct LLC is run by Patrick Corrigan, the brother of Edward Corrigan, the president of Conservative Partnership Institute.`\
 https://nytimes.com/interactive/2024/05/06/us/compass-direct-llc-north-carolina.html
-
-**Conservative Partnership Institute’s Registration to Fundraise in North Carolina**\
-`This document shows that the Conservative Partnership Institute hired a fundraising company called Compass Direct LLC. That company was run by the brother of the nonprofit’s president. Its contract paid $15,000 per month.`\
-https://nytimes.com/interactive/2024/05/06/us/conservative-partnership-institute-north-carolina.html
 
