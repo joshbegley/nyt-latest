@@ -1,3 +1,7 @@
+**Read Your Way Through Montreal**\
+`Montreal is a city as appealing for its beauty as for its shadows. Here, the novelist Mona Awad recommends books that are “both dreamy and uncompromising.”`\
+https://nytimes.com/2024/05/06/books/books-montreal-canada.html
+
 **What to Know About Xi Jinping’s Trip to Europe**\
 `The Chinese president this week will be visiting France, Serbia and Hungary. His trip comes at a time of tensions with many European countries over trade and accusations of Chinese espionage.`\
 https://nytimes.com/2024/05/06/world/europe/xi-jinping-europe-china.html
