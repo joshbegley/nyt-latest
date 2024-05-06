@@ -1,7 +1,3 @@
-**Judge Holds Trump in Contempt for Violating Gag Order, and Warns of Jail**\
-`Donald J. Trump again broke a gag order meant to bar him from attacking participants in his criminal trial, Justice Juan M. Merchan ruled.`\
-https://nytimes.com/2024/05/06/nyregion/trump-trial-gag-order-contempt.html
-
 **Kendrick Lamar vs. Drake Beef Goes Nuclear: What to Know**\
 `The two rappers had circled one another for more than a decade, but their attacks turned relentless and very personal in a slew of tracks released over the weekend.`\
 https://nytimes.com/2024/05/06/arts/music/kendrick-lamar-drake-explainer.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/05/06/world/europe/russia-tactical-nuclear-weapons-dril
 **First Patient Begins Newly Approved Sickle Cell Gene Therapy**\
 `A 12-year-old boy in the Washington, D.C., area faces months of procedures to remedy his disease. “I want to be cured,” he said.`\
 https://nytimes.com/2024/05/06/health/sickle-cell-cure-first.html
+
+**UChicago Says Free Speech Is Sacred. Some Students See Hypocrisy.**\
+`The president has allowed protest encampments. But they have also disrupted campus life, and he wants the tents down.`\
+https://nytimes.com/2024/05/06/us/university-of-chicago-protests-encampment.html
 
