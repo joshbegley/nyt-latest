@@ -26,9 +26,9 @@ https://nytimes.com/live/2024/05/06/us/campus-protests/harvard-president-says-pr
 `Mortgages that offer portability for a fee could help thaw the housing market.`\
 https://nytimes.com/2024/05/06/opinion/portable-mortgage-loans-housing.html
 
-**Geoff Duncan, Georgia Republican, says he will vote for Biden.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/05/06/us/biden-trump-campaign/geoff-duncan-georgia-republican-says-he-will-vote-for-biden
+**Geoff Duncan, Georgia’s Republican Former Lt. Gov., Says He Will Vote for Biden**\
+`“I am voting for a decent person I disagree with on policy over a criminal defendant without a moral compass,” wrote Mr. Duncan, who was in office during the 2020 election.`\
+https://nytimes.com/2024/05/06/us/politics/geoff-duncan-biden.html
 
 **Assaults on German Politicians Raise Election-Year Worries**\
 `Recent attacks came to a head on Friday when a victim was left with broken bones. Chancellor Olaf Scholz, whose Social Democrats have been a target, denounced the attacks as a threat to democracy.`\
