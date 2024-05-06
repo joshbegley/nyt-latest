@@ -1,3 +1,11 @@
+**Kendrick Lamar vs. Drake Beef Goes Nuclear: What to Know**\
+`The two rappers had circled one another for more than a decade, but their attacks turned relentless and very personal in a slew of tracks released over the weekend.`\
+https://nytimes.com/2024/05/06/arts/music/kendrick-lamar-drake-explainer.html
+
+**06trump-trial**\
+`Live Updates: Trump Held in Contempt Again as His Criminal Trial Speeds Along`\
+https://nytimes.com/live/2024/05/06/nyregion/trump-trial-hush-money
+
 **Corrections: May 4, 2024**\
 `Corrections that appeared in print on Saturday, May 4, 2024.`\
 https://nytimes.com/2024/05/06/pageoneplus/corrections-may-4-2024.html
