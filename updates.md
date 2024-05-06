@@ -1,3 +1,11 @@
+**Meat, Freedom and Ron DeSantis**\
+`A full plate of culture war and conspiracy theories.`\
+https://nytimes.com/2024/05/06/opinion/ron-desantis-cultured-meat.html
+
+**Lauren Sánchez Plays Grande Dame in Oscar de la Renta**\
+`At the Met Gala, the future Mrs. Bezos tries out a new look.`\
+https://nytimes.com/2024/05/06/fashion/lauren-sanchez-met-gala-oscar-de-la-renta.html
+
 **The Met Gala’s Strange but Fitting Literary Inspiration**\
 `In 1962, J.G. Ballard published “The Garden of Time,” a short story about aristocrats overrun by “an immense rabble.” Now it’s the dress-code theme for the year’s most lavish ball.`\
 https://nytimes.com/2024/05/06/fashion/garden-of-time-jg-ballard-story.html
