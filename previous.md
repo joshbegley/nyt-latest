@@ -1,3 +1,15 @@
+**F.A.A. Is Investigating Boeing Over 787 Dreamliner Inspections**\
+`The agency said Boeing had disclosed last month that it might have skipped some required inspections of the wide-body jet.`\
+https://nytimes.com/2024/05/06/business/faa-boeing-787-dreamliner-inspections.html
+
+**Gaza Isn’t Root of Biden’s Struggles With Young Voters, Polls Show**\
+`Young voters are far more likely than other Americans to support Palestinians. But few cite the conflict as a top source of discontent with the president.`\
+https://nytimes.com/2024/05/06/us/politics/biden-trump-gaza-college-protests.html
+
+**Israel Orders Partial Evacuation of Rafah, Fueling Fears of New Offensive**\
+`Hamas says it has agreed to a cease-fire plan that Israel said did not meet its demands, the latest in a long series of negotiating stumbles.`\
+https://nytimes.com/2024/05/06/world/middleeast/israel-rafah-hamas-ceasefire.html
+
 **Before the big ball, there was the anti-Met Gala.**\
 `In Brooklyn, a D.I.Y. benefit for people with heavy medical debt parodied the celebrity-studded red-carpet affair.`\
 https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/before-the-big-ball-there-was-the-anti-met-gala
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/06/us/politics/labor-market-social-security-medicare
 **Jurors in Trump Trial Hear Witness Tie the President to the Payment**\
 `Before prosecutors began presenting crucial records, the judge held Donald J. Trump in contempt, saying his complaints about the jury were “a direct attack on the rule of law.”`\
 https://nytimes.com/2024/05/06/nyregion/trump-trial-gag-order-hush-money.html
-
-**Pulitzer Prizes: 2024 Winners List**\
-`Here is the full list of winners and finalists.`\
-https://nytimes.com/2024/05/06/business/pulitzer-prize-winners.html
-
-**The New York Times and The Washington Post Win 3 Pulitzers Each**\
-`The prize for public service went to ProPublica for coverage of the Supreme Court. The Pulitzer board also issued a special citation for journalists covering the Middle East.`\
-https://nytimes.com/2024/05/06/business/media/pulitzer-prizes.html
-
-**With talks stalled and a Rafah attack looming, Netanyahu tilts at an elusive victory.**\
-`By Isabel Kershner`\
-https://nytimes.com/live/2024/05/06/world/israel-gaza-war-hamas/with-talks-stalled-and-a-rafah-attack-looming-netanyahu-tilts-at-an-elusive-victory
 

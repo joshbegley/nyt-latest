@@ -1,3 +1,15 @@
+**F.A.A. Is Investigating Boeing Over 787 Dreamliner Inspections**\
+`The agency said Boeing had disclosed last month that it might have skipped some required inspections of the wide-body jet.`\
+https://nytimes.com/2024/05/06/business/faa-boeing-787-dreamliner-inspections.html
+
+**Gaza Isn’t Root of Biden’s Struggles With Young Voters, Polls Show**\
+`Young voters are far more likely than other Americans to support Palestinians. But few cite the conflict as a top source of discontent with the president.`\
+https://nytimes.com/2024/05/06/us/politics/biden-trump-gaza-college-protests.html
+
+**Israel Orders Partial Evacuation of Rafah, Fueling Fears of New Offensive**\
+`Hamas says it has agreed to a cease-fire plan that Israel said did not meet its demands, the latest in a long series of negotiating stumbles.`\
+https://nytimes.com/2024/05/06/world/middleeast/israel-rafah-hamas-ceasefire.html
+
 **Before the big ball, there was the anti-Met Gala.**\
 `In Brooklyn, a D.I.Y. benefit for people with heavy medical debt parodied the celebrity-studded red-carpet affair.`\
 https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/before-the-big-ball-there-was-the-anti-met-gala

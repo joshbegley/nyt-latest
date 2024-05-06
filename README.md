@@ -1,3 +1,7 @@
+**After a five-year hiatus, Zendaya will return to the Met Gala red carpet.**\
+`Many of the star’s biggest recent fashion splashes have been in service of promoting movie projects.`\
+https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/after-a-five-year-hiatus-zendaya-will-return-to-the-met-gala-red-carpet
+
 **F.A.A. Is Investigating Boeing Over 787 Dreamliner Inspections**\
 `The agency said Boeing had disclosed last month that it might have skipped some required inspections of the wide-body jet.`\
 https://nytimes.com/2024/05/06/business/faa-boeing-787-dreamliner-inspections.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/us/uchicago-faculty-protest-encampment.html
 **U.S. Labor Market Strength Steadies Social Security and Medicare Funds**\
 `The social safety net programs continue to face long-term shortfalls as lawmakers wrestle over reforms.`\
 https://nytimes.com/2024/05/06/us/politics/labor-market-social-security-medicare.html
-
-**Jurors in Trump Trial Hear Witness Tie the President to the Payment**\
-`Before prosecutors began presenting crucial records, the judge held Donald J. Trump in contempt, saying his complaints about the jury were “a direct attack on the rule of law.”`\
-https://nytimes.com/2024/05/06/nyregion/trump-trial-gag-order-hush-money.html
 
