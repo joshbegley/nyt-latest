@@ -1,3 +1,15 @@
+**Jennifer Lopez goes sheer and sculptural on the Met Gala red carpet.**\
+`By Callie Holtermann`\
+https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/jennifer-lopez-met-gala
+
+**Why Kristi Noem Is in the Doghouse**\
+`Americans like their politicians to be dog people. Gov. Noem broke the mold.`\
+https://nytimes.com/2024/05/06/books/review/kristi-noem-president-pet-dogs.html
+
+**Lawsuit Claims Widespread Sex Abuse at Illinois Youth Detention Centers**\
+`Dozens of former juvenile inmates, now adults, say they were abused by Illinois correctional workers. Lawsuits in other states have made similar claims.`\
+https://nytimes.com/2024/05/06/us/illinois-youth-prison-abuse.html
+
 **Will Rebecca Ferguson Win the Met Gala ‘Mother’-Off?**\
 `The story behind her sequin, bird-covered dress.`\
 https://nytimes.com/2024/05/06/fashion/rebecca-ferguson-met-gala-thom-browne.html

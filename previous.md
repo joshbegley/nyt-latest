@@ -1,3 +1,15 @@
+**Jennifer Lopez goes sheer and sculptural on the Met Gala red carpet.**\
+`By Callie Holtermann`\
+https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/jennifer-lopez-met-gala
+
+**Why Kristi Noem Is in the Doghouse**\
+`Americans like their politicians to be dog people. Gov. Noem broke the mold.`\
+https://nytimes.com/2024/05/06/books/review/kristi-noem-president-pet-dogs.html
+
+**Lawsuit Claims Widespread Sex Abuse at Illinois Youth Detention Centers**\
+`Dozens of former juvenile inmates, now adults, say they were abused by Illinois correctional workers. Lawsuits in other states have made similar claims.`\
+https://nytimes.com/2024/05/06/us/illinois-youth-prison-abuse.html
+
 **Will Rebecca Ferguson Win the Met Gala ‘Mother’-Off?**\
 `The story behind her sequin, bird-covered dress.`\
 https://nytimes.com/2024/05/06/fashion/rebecca-ferguson-met-gala-thom-browne.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/06/world/asia/israel-rafah-hamas-russia-asia.html
 **M.I.T. Will No Longer Require Diversity Statements for Hiring Faculty**\
 `Applicants were required to explain how they would enhance diversity. Free-speech advocates and others said that requirement enforced groupthink.`\
 https://nytimes.com/2024/05/06/us/mit-diversity-statements-faculty-hiring.html
-
-**Before stepping into the Met Gala, many guests step out of this van.**\
-`The boxy Mercedes-Benz Sprinter has become the carriage of choice for many celebrities.`\
-https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/before-stepping-into-the-met-gala-many-guests-step-out-of-this-van
-
-**After a five-year hiatus, Zendaya will return to the Met Gala red carpet.**\
-`Many of the star’s biggest recent fashion splashes have been in service of promoting movie projects.`\
-https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/after-a-five-year-hiatus-zendaya-will-return-to-the-met-gala-red-carpet
-
-**F.A.A. Is Investigating Boeing Over 787 Dreamliner Inspections**\
-`The agency said Boeing had disclosed last month that it might have skipped some required inspections of the wide-body jet.`\
-https://nytimes.com/2024/05/06/business/faa-boeing-787-dreamliner-inspections.html
 

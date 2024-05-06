@@ -1,3 +1,11 @@
+**Israel Said Hamas’s Cease-Fire Proposal Fell Short**\
+`Also, intense tornadoes are expected in Oklahoma and Kansas. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/05/06/briefing/israel-hamas-war-rafah-met-gala.html
+
+**Gayle McKinney-Griffith, Dance Theater of Harlem Star, Dies at 74**\
+`A founding dancer with the groundbreaking company, she served not only as a principal dancer but also as its first ballet mistress.`\
+https://nytimes.com/2024/05/06/arts/dance/gayle-mckinney-griffith-dead.html
+
 **Jennifer Lopez goes sheer and sculptural on the Met Gala red carpet.**\
 `By Callie Holtermann`\
 https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/jennifer-lopez-met-gala
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/06/nyregion/trump-trial-takeaways-mcconney-tarasoff.
 **2024 Met Gala: Red Carpet Roundup**\
 `See the looks from fashion’s biggest night.`\
 https://nytimes.com/2024/05/06/fashion/met-gala-photos-red-carpet.html
-
-**Tuesday Briefing: Israel Orders Rafah Evacuations**\
-`Also, Russia plans for nuclear drills.`\
-https://nytimes.com/2024/05/06/world/asia/israel-rafah-hamas-russia-asia.html
-
-**M.I.T. Will No Longer Require Diversity Statements for Hiring Faculty**\
-`Applicants were required to explain how they would enhance diversity. Free-speech advocates and others said that requirement enforced groupthink.`\
-https://nytimes.com/2024/05/06/us/mit-diversity-statements-faculty-hiring.html
 
