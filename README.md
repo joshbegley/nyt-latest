@@ -1,3 +1,7 @@
+**Pulitzer Prizes 2024: A Guide to the Winning Books and Finalists**\
+`Jayne Anne Phillips won the fiction award for “Night Watch,” while Jonathan Eig and Ilyon Woo shared the biography prize.`\
+https://nytimes.com/2024/05/06/books/booksupdate/pulitzer-prize-books-winners-finalists.html
+
 **Israel Said Hamas’s Cease-Fire Proposal Fell Short**\
 `Also, intense tornadoes are expected in Oklahoma and Kansas. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/05/06/briefing/israel-hamas-war-rafah-met-gala.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/health/beethoven-deaf-lead-hair.html
 **Trump Is Threatened With Jail at His Criminal Trial: 5 Takeaways**\
 `Prosecutors on Monday took the jury deep into the Trump Organization’s ledgers as the state’s case proceeds at speed.`\
 https://nytimes.com/2024/05/06/nyregion/trump-trial-takeaways-mcconney-tarasoff.html
-
-**2024 Met Gala: Red Carpet Roundup**\
-`See the looks from fashion’s biggest night.`\
-https://nytimes.com/2024/05/06/fashion/met-gala-photos-red-carpet.html
 
