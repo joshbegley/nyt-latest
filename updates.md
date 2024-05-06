@@ -1,3 +1,7 @@
+**Monday Briefing**\
+`Cease-fire talks stall.`\
+https://nytimes.com/2024/05/06/briefing/ceasefire-talks-xi-jinping-europe.html
+
 **In China, Ruled by Men, Women Quietly Find a Powerful Voice**\
 `Women in Shanghai gather in bars, salons and bookstores to reclaim their identities as the country’s leader calls for China to adopt a “childbearing culture.”`\
 https://nytimes.com/2024/05/06/business/shanghai-china-feminism.html
