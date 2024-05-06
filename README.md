@@ -22,7 +22,7 @@ https://nytimes.com/2024/05/06/nyregion/jeffrey-mcconney-stormy-daniels.html
 `The red carpet featured noncelebrity guests in homemade costumes. “This is a better function, with a better message,” one guest said.`\
 https://nytimes.com/2024/05/06/fashion/debt-ball-met-gala.html
 
-**Judge Holds Trump in Contempt for Violating Gag Order, and Warns of Jail**\
+**Judge Cites Trump for Contempt, and Says He Is Attacking the Rule of Law**\
 `Donald J. Trump again broke a gag order meant to bar him from attacking participants in his criminal trial, Justice Juan M. Merchan ruled.`\
 https://nytimes.com/2024/05/06/nyregion/trump-trial-gag-order-contempt.html
 
