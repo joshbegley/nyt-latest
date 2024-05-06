@@ -1,3 +1,7 @@
+**Word of the Day: etymology**\
+`This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/06/learning/word-of-the-day-etymology.html
+
 **Quotation of the Day: She’ll Have an Orange Juice on the Rocks. Hold the Sippy Cup.**\
 `Quotation of the Day for Monday, May 6, 2024.`\
 https://nytimes.com/2024/05/06/pageoneplus/quotation-of-the-day-shell-have-an-orange-juice-on-the-rocks-hold-the-sippy-cup.html
