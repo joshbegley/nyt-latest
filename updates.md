@@ -1,3 +1,7 @@
+**Allen Weisselberg had a major role in Stormy Daniels’s hush deal, witness says.**\
+`By Matthew Haag`\
+https://nytimes.com/2024/05/06/nyregion/allen-weisselberg-had-a-major-role-in-stormy-danielss-hush-deal-witness-says.html
+
 **Taylor Swift’s ‘Tortured Poets’ Posts a Huge Second Week on the Chart**\
 `After a blockbuster opening, the singer’s new album earned the biggest second-week totals since 2015, nearly doubling the rest of the Top 5 combined.`\
 https://nytimes.com/2024/05/06/arts/music/taylor-swift-tortured-poets-second-week-billboard-chart.html

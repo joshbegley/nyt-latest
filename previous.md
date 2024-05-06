@@ -1,3 +1,7 @@
+**Allen Weisselberg had a major role in Stormy Daniels’s hush deal, witness says.**\
+`By Matthew Haag`\
+https://nytimes.com/2024/05/06/nyregion/allen-weisselberg-had-a-major-role-in-stormy-danielss-hush-deal-witness-says.html
+
 **Taylor Swift’s ‘Tortured Poets’ Posts a Huge Second Week on the Chart**\
 `After a blockbuster opening, the singer’s new album earned the biggest second-week totals since 2015, nearly doubling the rest of the Top 5 combined.`\
 https://nytimes.com/2024/05/06/arts/music/taylor-swift-tortured-poets-second-week-billboard-chart.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/01/opinion/thepoint/carbon-dioxide-monoxide-cli
 **The Conservative Partnership Institute’s 2021 Annual Filing With the I.R.S.**\
 `The filing shows a sharp increase in the institute’s funding, during a year when it sought to become a nerve center for President Donald J. Trump’s allies in Washington.`\
 https://nytimes.com/interactive/2024/05/06/us/irs-filing-conservative-institute.html
-
-**A Master of ‘Subtle Dazzle’ and a Quiet Force in Downtown Dance**\
-`Carol Mullins, who has been lighting boundary-pushing shows at Danspace Project since the 1970s, will be honored at its 50th anniversary.`\
-https://nytimes.com/2024/05/06/arts/dance/carol-mullins-light-designer-danspace.html
 
