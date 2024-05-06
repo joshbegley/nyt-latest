@@ -1,3 +1,7 @@
+**Inquiry Into Johannesburg Fire Blames City Officials for Deadly Conditions**\
+`Although a resident confessed to setting the August 2023 blaze that killed 76 people in a dilapidated building, a report found that officials had ignored warning signs for years.`\
+https://nytimes.com/2024/05/06/world/africa/south-africa-johannesburg-fire-inquiry.html
+
 **Judge Cites Trump for Contempt, and Says He Is Attacking the Rule of Law**\
 `Donald J. Trump again broke a gag order meant to bar him from attacking participants in his criminal trial, Justice Juan M. Merchan ruled.`\
 https://nytimes.com/2024/05/06/nyregion/trump-trial-gag-order-contempt.html
