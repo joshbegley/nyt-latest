@@ -1,3 +1,7 @@
+**Airline Agrees to Pay $79 Million After Selling Tickets for Canceled Flights**\
+`Qantas, Australia’s national carrier, apologized and said it would pay a fine and compensation to settle a suit brought by a consumer watchdog.`\
+https://nytimes.com/2024/05/06/world/australia/qantas-fine-canceled-flights-australia.html
+
 **The Israeli military tells civilians in eastern Rafah to move to a humanitarian zone.**\
 `By Vivek Shankar`\
 https://nytimes.com/live/2024/05/06/world/israel-gaza-war-hamas/the-israeli-military-tells-civilians-in-eastern-rafah-to-move-to-a-humanitarian-zone
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/briefing/ceasefire-talks-xi-jinping-europe.html
 **In China, Ruled by Men, Women Quietly Find a Powerful Voice**\
 `Women in Shanghai gather in bars, salons and bookstores to reclaim their identities as the country’s leader calls for China to adopt a “childbearing culture.”`\
 https://nytimes.com/2024/05/06/business/shanghai-china-feminism.html
-
-**3 Bodies Found in Baja California Are Identified as Missing Tourists’**\
-`Family members confirmed the identities of two Australian brothers and their American friend, who were found shot to death after going missing last month.`\
-https://nytimes.com/2024/05/05/world/americas/bodies-found-baja-california.html
 

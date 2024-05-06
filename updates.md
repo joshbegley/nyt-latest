@@ -1,3 +1,7 @@
+**Airline Agrees to Pay $79 Million After Selling Tickets for Canceled Flights**\
+`Qantas, Australia’s national carrier, apologized and said it would pay a fine and compensation to settle a suit brought by a consumer watchdog.`\
+https://nytimes.com/2024/05/06/world/australia/qantas-fine-canceled-flights-australia.html
+
 **The Israeli military tells civilians in eastern Rafah to move to a humanitarian zone.**\
 `By Vivek Shankar`\
 https://nytimes.com/live/2024/05/06/world/israel-gaza-war-hamas/the-israeli-military-tells-civilians-in-eastern-rafah-to-move-to-a-humanitarian-zone
