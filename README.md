@@ -1,3 +1,15 @@
+**Christian Cowan and Sam Smith’s Met Gala Debut as a Couple**\
+`They made a statement about their relationship with matching rose clasps on their suit jackets.`\
+https://nytimes.com/2024/05/06/fashion/sam-smith-christian-cowan-met-gala.html
+
+**Wayve, an A.I. Start-Up for Autonomous Driving, Raises $1 Billion**\
+`The London-based developer of artificial intelligence systems for self-driving vehicles raised the funding from SoftBank, Nvidia, Microsoft and others.`\
+https://nytimes.com/2024/05/06/technology/wayve-an-ai-start-up-for-autonomous-driving-raises-1-billion.html
+
+**Who are the astronauts on the Starliner flight?**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2024/05/06/science/boeing-starliner-launch/who-are-the-astronauts-on-the-starliner-flight
+
 **Meat, Freedom and Ron DeSantis**\
 `A full plate of culture war and conspiracy theories.`\
 https://nytimes.com/2024/05/06/opinion/ron-desantis-cultured-meat.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/06/opinion/trump-trial-documents.html
 **Trump, Who Has Celebrated Violent Protests, Cheers Campus Crackdowns**\
 `The former president’s calls for order in college unrest contrast with how he talks about Jan. 6.`\
 https://nytimes.com/2024/05/06/us/politics/trump-college-protests-jan-6.html
-
-**What is Boeing’s Starliner spacecraft?**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2024/05/06/science/boeing-starliner-launch/boeing-starliner
-
-**A Who’s Who of L.A.’s Art World Bids Farewell to a Champion**\
-`Artists, collectors and Hollywood stars toasted the Hammer Museum’s outgoing director, Ann Philbin, who remade the institution during 25 years at the helm.`\
-https://nytimes.com/2024/05/06/arts/design/hammer-museum-ann-philbin.html
-
-**Staten Island’s Roller Rink Celebrated Its Last Dance**\
-`Roller Jam USA closed for good after almost two decades.`\
-https://nytimes.com/2024/05/06/style/staten-island-roller-skating-rink-close.html
 
