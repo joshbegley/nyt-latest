@@ -1,3 +1,7 @@
+**Judge Cites Trump for Contempt, and Says He Is Attacking the Rule of Law**\
+`Donald J. Trump again broke a gag order meant to bar him from attacking participants in his criminal trial, Justice Juan M. Merchan ruled.`\
+https://nytimes.com/2024/05/06/nyregion/trump-trial-gag-order-contempt.html
+
 **Review: ‘The Hours’ Returns to the Met Opera With Its Stars**\
 `Renée Fleming, Kelli O’Hara and Joyce DiDonato reprised their roles in Kevin Puts’s adaptation of the award-winning novel and film.`\
 https://nytimes.com/2024/05/06/arts/music/the-hours-met-opera-review.html
