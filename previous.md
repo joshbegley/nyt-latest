@@ -1,3 +1,7 @@
+**University of Chicago Professors Say They Will Risk Arrest at Protest**\
+`A group of faculty members called on administrators to resume negotiations with pro-Palestinian student protesters.`\
+https://nytimes.com/2024/05/06/us/uchicago-faculty-protest-encampment.html
+
 **U.S. Labor Market Strength Steadies Social Security and Medicare Funds**\
 `The social safety net programs continue to face long-term shortfalls as lawmakers wrestle over reforms.`\
 https://nytimes.com/2024/05/06/us/politics/labor-market-social-security-medicare.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/06/us/campus-protests/harvard-president-says-pr
 **The Case for Letting Mortgages Move With Us**\
 `Mortgages that offer portability for a fee could help thaw the housing market.`\
 https://nytimes.com/2024/05/06/opinion/portable-mortgage-loans-housing.html
-
-**Geoff Duncan, Georgia’s Republican Former Lt. Gov., Says He Will Vote for Biden**\
-`“I am voting for a decent person I disagree with on policy over a criminal defendant without a moral compass,” wrote Mr. Duncan, who was in office during the 2020 election.`\
-https://nytimes.com/2024/05/06/us/politics/geoff-duncan-biden.html
 

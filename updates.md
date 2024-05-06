@@ -1,3 +1,7 @@
+**University of Chicago Professors Say They Will Risk Arrest at Protest**\
+`A group of faculty members called on administrators to resume negotiations with pro-Palestinian student protesters.`\
+https://nytimes.com/2024/05/06/us/uchicago-faculty-protest-encampment.html
+
 **U.S. Labor Market Strength Steadies Social Security and Medicare Funds**\
 `The social safety net programs continue to face long-term shortfalls as lawmakers wrestle over reforms.`\
 https://nytimes.com/2024/05/06/us/politics/labor-market-social-security-medicare.html

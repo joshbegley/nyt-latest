@@ -1,3 +1,7 @@
+**Kris Hallenga, Advocate for Breast Cancer Awareness Among the Young, Dies at 38**\
+`After being diagnosed with advanced breast cancer when she was 23, she became determined to educate other young people about early detection.`\
+https://nytimes.com/2024/05/06/health/kris-hallenga-dead.html
+
 **University of Chicago Professors Say They Will Risk Arrest at Protest**\
 `A group of faculty members called on administrators to resume negotiations with pro-Palestinian student protesters.`\
 https://nytimes.com/2024/05/06/us/uchicago-faculty-protest-encampment.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/world/middleeast/israel-hamas-gaza-ceasefire-talk
 **Harvard president says protesters who remain in an encampment may be kicked out of campus housing.**\
 `By Nicholas Bogel-Burroughs`\
 https://nytimes.com/live/2024/05/06/us/campus-protests/harvard-president-says-protesters-who-remain-in-an-encampment-may-be-kicked-out-of-campus-housing
-
-**The Case for Letting Mortgages Move With Us**\
-`Mortgages that offer portability for a fee could help thaw the housing market.`\
-https://nytimes.com/2024/05/06/opinion/portable-mortgage-loans-housing.html
 
