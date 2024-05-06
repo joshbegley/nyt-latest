@@ -1,3 +1,15 @@
+**Tyla Whips Up a Sandstorm on the Met Carpet**\
+`The South African singer and songwriter accessorized with a literal hourglass.`\
+https://nytimes.com/2024/05/06/fashion/tyla-met-gala-balmain.html
+
+**Does NASA need two rides to the space station? Elon Musk says no.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2024/05/06/science/boeing-starliner-launch/spacex-nasa-orbit
+
+**How a Tiny Chicago News Organization Won 2 Pulitzers**\
+`The Invisible Institute, a nonprofit newsroom with roughly a dozen journalists, was recognized for local and audio reporting.`\
+https://nytimes.com/2024/05/06/business/media/invisible-institute-two-pulitzer-prizes.html
+
 **Emily Ratajkowski Was 10 When Her Met Gala Dress Was Made**\
 `The story behind the archival red-carpet look.`\
 https://nytimes.com/2024/05/06/fashion/emily-ratajkowski-met-gala-versace.html
