@@ -1,3 +1,7 @@
+**Geoff Duncan, Georgia Republican, says he will vote for Biden.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/05/06/us/biden-trump-campaign/geoff-duncan-georgia-republican-says-he-will-vote-for-biden
+
 **Assaults on German Politicians Raise Election-Year Worries**\
 `Recent attacks came to a head on Friday when a victim was left with broken bones. Chancellor Olaf Scholz, whose Social Democrats have been a target, denounced the attacks as a threat to democracy.`\
 https://nytimes.com/2024/05/06/world/europe/germany-political-assaults.html
