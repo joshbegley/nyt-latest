@@ -1,3 +1,7 @@
+**Jail for the Chief? There’s a Better Punishment.**\
+`Trump shouldn’t be allowed to use his punishment to play the martyr.`\
+https://nytimes.com/2024/05/06/opinion/trump-contempt-jail-punishment.html
+
 **Police Raid U.C. San Diego Encampment and Arrest Protesters**\
 `Videos from the scene showed police officers wearing helmets and carrying batons as they handcuffed protesters and led them away from the tents.`\
 https://nytimes.com/2024/05/06/us/ucsd-campus-protests-arrests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/world/europe/worlds-longest-baguette-france.html
 **Right-Wing Nonprofit Paid Millions to Companies With Ties to Insiders**\
 `The Conservative Partnership Institute’s three highest-paid contractors had connections to the group’s leaders or their relatives, raising concerns about self-dealing.`\
 https://nytimes.com/2024/05/06/us/politics/trump-conservative-partnership-institute-funds.html
-
-**Compass Direct LLC’s 2024 Registration in North Carolina**\
-`Compass Direct LLC is run by Patrick Corrigan, the brother of Edward Corrigan, the president of Conservative Partnership Institute.`\
-https://nytimes.com/interactive/2024/05/06/us/compass-direct-llc-north-carolina.html
 

@@ -1,3 +1,7 @@
+**Jail for the Chief? There’s a Better Punishment.**\
+`Trump shouldn’t be allowed to use his punishment to play the martyr.`\
+https://nytimes.com/2024/05/06/opinion/trump-contempt-jail-punishment.html
+
 **Police Raid U.C. San Diego Encampment and Arrest Protesters**\
 `Videos from the scene showed police officers wearing helmets and carrying batons as they handcuffed protesters and led them away from the tents.`\
 https://nytimes.com/2024/05/06/us/ucsd-campus-protests-arrests.html
