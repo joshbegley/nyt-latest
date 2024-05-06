@@ -1,3 +1,7 @@
+**Sniffing walls and toasting A.I. at a preview of the exhibition.**\
+`The Metropolitan Museum of Art invited visitors to take an early look at its spring 2024 Costume Institute show.`\
+https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/sniffing-walls-and-toasting-ai-at-a-preview-of-the-exhibition
+
 **It’s the first Monday in May: Fashion’s biggest night has come to the Met.**\
 `By Louis Lucero II`\
 https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/its-the-first-monday-in-may-the-met-gala-is-here

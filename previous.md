@@ -1,3 +1,7 @@
+**Sniffing walls and toasting A.I. at a preview of the exhibition.**\
+`The Metropolitan Museum of Art invited visitors to take an early look at its spring 2024 Costume Institute show.`\
+https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/sniffing-walls-and-toasting-ai-at-a-preview-of-the-exhibition
+
 **It’s the first Monday in May: Fashion’s biggest night has come to the Met.**\
 `By Louis Lucero II`\
 https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/its-the-first-monday-in-may-the-met-gala-is-here
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/06/world/israel-gaza-war-hamas/with-talks-stall
 **5 Dead After Inhaling Hazardous Gas at a Water Plant in Sicily**\
 `An official said the workers were killed by hydrogen sulfide, which is toxic in high concentrations. Italian officials and unions repeated urgent calls for better workplace safety.`\
 https://nytimes.com/2024/05/06/world/europe/sicily-deaths-water-plant-gas.html
-
-**Hamas’s announcement adds to the uncertainty of the cease-fire talks**\
-`The terms Hamas had agreed to were not immediately clear, but a senior Israeli official quickly said that the terms were not those that Israel had agreed to.`\
-https://nytimes.com/2024/05/06/world/middleeast/israel-hamas-gaza-ceasefire-talks.html
 
