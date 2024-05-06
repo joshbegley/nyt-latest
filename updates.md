@@ -1,3 +1,7 @@
+**The Conservative Partnership Institute’s 2021 Annual Filing With the I.R.S.**\
+`The filing shows a sharp increase in the institute’s funding, during a year in which it sought to become a nerve center for Donald J. Trump’s allies in Washington.`\
+https://nytimes.com/interactive/2024/05/06/us/irs-filing-conservative-institute.html
+
 **A Master of ‘Subtle Dazzle’ and a Quiet Force in Downtown Dance**\
 `Carol Mullins, who has been lighting boundary-pushing shows at Danspace Project since the 1970s, will be honored at its 50th anniversary.`\
 https://nytimes.com/2024/05/06/arts/dance/carol-mullins-light-designer-danspace.html
