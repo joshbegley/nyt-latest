@@ -1,3 +1,7 @@
+**First Patient Begins Newly Approved Sickle Cell Gene Therapy**\
+`A 12-year-old boy in the Washington, D.C., area faces months of procedures to remedy his disease. “I want to be cured,” he said.`\
+https://nytimes.com/2024/05/06/health/sickle-cell-cure-first.html
+
 **UChicago Says Free Speech Is Sacred. Some Students Sees Hypocrisy.**\
 `The president has allowed protest encampments. But they have also disrupted campus life, and he wants the tents down.`\
 https://nytimes.com/2024/05/06/us/university-of-chicago-protests-encampment.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/arts/music/conchita-wurst.html
 **Here is the latest on the campus protests.**\
 `By Yan Zhuang`\
 https://nytimes.com/live/2024/05/06/us/campus-protests/here-is-the-latest-on-the-campus-protests
-
-**America Is Being Tested in So Many Ways Right Now**\
-`It’s not only Trump who’s on trial.`\
-https://nytimes.com/2024/05/06/opinion/biden-trump-campus-protests-trial.html
 

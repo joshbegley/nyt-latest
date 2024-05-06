@@ -1,3 +1,7 @@
+**First Patient Begins Newly Approved Sickle Cell Gene Therapy**\
+`A 12-year-old boy in the Washington, D.C., area faces months of procedures to remedy his disease. “I want to be cured,” he said.`\
+https://nytimes.com/2024/05/06/health/sickle-cell-cure-first.html
+
 **UChicago Says Free Speech Is Sacred. Some Students Sees Hypocrisy.**\
 `The president has allowed protest encampments. But they have also disrupted campus life, and he wants the tents down.`\
 https://nytimes.com/2024/05/06/us/university-of-chicago-protests-encampment.html
