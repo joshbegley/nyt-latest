@@ -8,7 +8,7 @@ https://nytimes.com/interactive/2024/05/06/us/conservative-partnership-institute
 
 **The Conservative Partnership Institute’s 2022 Annual Filing With the I.R.S.**\
 `This document shows that the nonprofit’s three highest-paid vendors were Compass Legal, Compass Professional and Compass Property Management. All three were connected to insiders at the nonprofit.`\
-https://nytimes.com/interactive/2024/05/06/us/3678ee18-81a1-429d-b53a-8749929b94c5.html
+https://nytimes.com/interactive/2024/05/06/us/conservative-partnership-institute-2022-filing.html
 
 **A Little More Carbon Monoxide Might Really Help the Planet**\
 `A new scientific process breaks down climate-warming carbon dioxide into something more useful.`\
