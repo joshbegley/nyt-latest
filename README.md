@@ -1,3 +1,15 @@
+**Taylor Swift’s ‘Tortured Poets’ Posts a Huge Second Week on the Chart**\
+`After a blockbuster opening, the singer’s new album earned the biggest second-week totals since 2015, nearly doubling the rest of the Top 5 combined.`\
+https://nytimes.com/2024/05/06/arts/music/taylor-swift-tortured-poets-second-week-billboard-chart.html
+
+**Congestion Pricing and Confusion**\
+`Readers discuss the congestion pricing plan for New York. Also: Kristi Noem, Tim Scott and the truth; an immunity amendment to the Constitution.`\
+https://nytimes.com/2024/05/06/opinion/congestion-pricing-new-york.html
+
+**A Baguette Is Baked in France**\
+`Whoops, we left out this part: It was almost 500 feet long, beating out a loaf baked in Italy in 2019.`\
+https://nytimes.com/2024/05/06/world/europe/worlds-longest-baguette-france.html
+
 **Right-Wing Nonprofit Paid Millions to Companies With Ties to Insiders**\
 `The Conservative Partnership Institute’s three highest-paid contractors had connections to the group’s leaders or their relatives, raising concerns about self-dealing.`\
 https://nytimes.com/2024/05/06/us/politics/trump-conservative-partnership-institute-funds.html
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2024/05/06/us/irs-filing-conservative-institute.
 **A Master of ‘Subtle Dazzle’ and a Quiet Force in Downtown Dance**\
 `Carol Mullins, who has been lighting boundary-pushing shows at Danspace Project since the 1970s, will be honored at its 50th anniversary.`\
 https://nytimes.com/2024/05/06/arts/dance/carol-mullins-light-designer-danspace.html
-
-**Fears, and prices, soar in Rafah after Israel’s evacuation order.**\
-`By Liam Stack, Bilal Shbair and Adam Rasgon`\
-https://nytimes.com/live/2024/05/06/world/israel-gaza-war-hamas/fears-and-prices-soar-in-rafah-after-israels-evacuation-order
-
-**Jeff Bezos, Doja Cat and Pamela Anderson Pregame the Met Gala**\
-`Designers, athletes and celebrities swapped stories on dress fittings and gala prep routines on the eve of fashion’s biggest party.`\
-https://nytimes.com/2024/05/06/style/met-gala-pre-parties.html
-
-**Nancy Pelosi, on Reforms to Reinforce Democracy**\
-`The former House speaker, responding to an Opinion essay, points to legislation pending in Congress.`\
-https://nytimes.com/2024/05/06/opinion/letters/nancy-pelosi-democracy-reforms.html
 
