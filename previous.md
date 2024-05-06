@@ -1,3 +1,11 @@
+**Why Does Trump Face Felony Charges? Prosecutors Say He Was Hiding Other Crimes.**\
+`Donald J. Trump faces 34 felony counts in his Manhattan trial, but none involve the other misconduct that prosecutors say he engaged in.`\
+https://nytimes.com/2024/05/06/nyregion/trump-charges-felonies.html
+
+**Biden will meet with Jordan’s king, a key Mideast ally.**\
+`By Erica L. Green`\
+https://nytimes.com/live/2024/05/06/world/israel-gaza-war-hamas/biden-will-meet-with-jordans-king-a-key-mideast-ally
+
 **More Pro-Palestinian Protesters Arrested at U.C.L.A.**\
 `A campus police officer said 43 people were charged on Monday with conspiracy to attempt burglary.`\
 https://nytimes.com/2024/05/06/us/protesters-arrested-ucla.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/06/business/shell-total-stock-listing-london-new-yor
 **Trump Firm’s Ex-Finance Chief Was Key to Hush-Money Deal, Witness Says**\
 `Allen H. Weisselberg instructed Jeffrey S. McConney to send reimbursements to Donald J. Trump’s former fixer, Mr. McConney testified.`\
 https://nytimes.com/2024/05/06/nyregion/allen-weisselberg-trump-trial.html
-
-**Taylor Swift’s ‘Tortured Poets’ Posts a Huge Second Week on the Chart**\
-`After a blockbuster opening, the singer’s new album earned the biggest second-week totals since 2015, nearly doubling the rest of the Top 5 combined.`\
-https://nytimes.com/2024/05/06/arts/music/taylor-swift-tortured-poets-second-week-billboard-chart.html
-
-**Congestion Pricing and Confusion**\
-`Readers discuss the congestion pricing plan for New York. Also: Kristi Noem, Tim Scott and the truth; an immunity amendment to the Constitution.`\
-https://nytimes.com/2024/05/06/opinion/congestion-pricing-new-york.html
 

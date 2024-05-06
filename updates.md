@@ -1,3 +1,11 @@
+**Why Does Trump Face Felony Charges? Prosecutors Say He Was Hiding Other Crimes.**\
+`Donald J. Trump faces 34 felony counts in his Manhattan trial, but none involve the other misconduct that prosecutors say he engaged in.`\
+https://nytimes.com/2024/05/06/nyregion/trump-charges-felonies.html
+
+**Biden will meet with Jordan’s king, a key Mideast ally.**\
+`By Erica L. Green`\
+https://nytimes.com/live/2024/05/06/world/israel-gaza-war-hamas/biden-will-meet-with-jordans-king-a-key-mideast-ally
+
 **More Pro-Palestinian Protesters Arrested at U.C.L.A.**\
 `A campus police officer said 43 people were charged on Monday with conspiracy to attempt burglary.`\
 https://nytimes.com/2024/05/06/us/protesters-arrested-ucla.html
