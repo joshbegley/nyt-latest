@@ -1,3 +1,23 @@
+**Jeff Bezos, Doja Cat and Pamela Anderson Pregame the Met Gala**\
+`Designers, athletes and celebrities swapped stories on dress fittings and gala prep routines on the eve of fashion’s biggest party.`\
+https://nytimes.com/2024/05/06/style/met-gala-pre-parties.html
+
+**Nancy Pelosi, on Reforms to Reinforce Democracy**\
+`The former House speaker, responding to an Opinion essay, points to legislation pending in Congress.`\
+https://nytimes.com/2024/05/06/opinion/letters/nancy-pelosi-democracy-reforms.html
+
+**Study Suggests Genetic Cause (Not Just Risk) for Some Alzheimer’s Cases**\
+`People with two copies of the gene variant APOE4 are almost certain to get Alzheimer’s, say researchers, who proposed a framework under which such patients could be diagnosed years before symptoms.`\
+https://nytimes.com/2024/05/06/health/alzheimers-cause-gene-apoe4.html
+
+**Can You Recognize This Novel From a One-Line Description?**\
+`Try this short quiz to see how many books you can identify based on an extremely brief plot summary.`\
+https://nytimes.com/interactive/2024/05/06/books/review/novel-plot-quiz.html
+
+**Crispy, Speedy, Over the Top**\
+`Respectively: mushroom smash burgers; pantry-friendly baked salmon; seis leches cake.`\
+https://nytimes.com/2024/05/06/dining/crispy-speedy-over-the-top.html
+
 **Maersk Says Expanded Houthi Attacks Are Forcing More Delays**\
 `The shipping company said the militia had recently tried to attack ships further from the shores of Yemen, putting more strain on logistics.`\
 https://nytimes.com/2024/05/06/business/maersk-houthi-red-sea-shipping.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/05/06/world/europe/xi-macron-europe-trade-war.html
 **Will a carbon market happen?**\
 `An enormous amount of work is underway to remove carbon from the atmosphere, but who will pay for it?`\
 https://nytimes.com/2024/05/06/headway/will-a-carbon-market-happen.html
-
-**Six months before Election Day, here is where the race stands.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/05/06/us/biden-trump-campaign/trump-biden-election
-
-**Trial Witness Says Some Hush Money Came From Trump’s Personal Bank Account**\
-`The reimbursement to Michael D. Cohen, the former Trump fixer who paid $130,000 in hush money to Stormy Daniels, is at the center of the criminal case against the former president.`\
-https://nytimes.com/2024/05/06/nyregion/jeffrey-mcconney-stormy-daniels.html
-
-**In Brooklyn, the Anti-Met Gala Raises Funds for Medical Debt**\
-`The red carpet featured noncelebrity guests in homemade costumes. “This is a better function, with a better message,” one guest said.`\
-https://nytimes.com/2024/05/06/fashion/debt-ball-met-gala.html
-
-**Judge Cites Trump for Contempt, and Says He Is Attacking the Rule of Law**\
-`Donald J. Trump again broke a gag order meant to bar him from attacking participants in his criminal trial, Justice Juan M. Merchan ruled.`\
-https://nytimes.com/2024/05/06/nyregion/trump-trial-gag-order-contempt.html
-
-**Kendrick Lamar vs. Drake Beef Goes Nuclear: What to Know**\
-`The two rappers had circled one another for more than a decade, but their attacks turned relentless and very personal in a slew of tracks released over the weekend.`\
-https://nytimes.com/2024/05/06/arts/music/kendrick-lamar-drake-explainer.html
 
