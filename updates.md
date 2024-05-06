@@ -1,3 +1,15 @@
+**Taylor Swift’s ‘Tortured Poets’ Posts a Huge Second Week on the Chart**\
+`After a blockbuster opening, the singer’s new album earned the biggest second-week totals since 2015, nearly doubling the rest of the Top 5 combined.`\
+https://nytimes.com/2024/05/06/arts/music/taylor-swift-tortured-poets-second-week-billboard-chart.html
+
+**Congestion Pricing and Confusion**\
+`Readers discuss the congestion pricing plan for New York. Also: Kristi Noem, Tim Scott and the truth; an immunity amendment to the Constitution.`\
+https://nytimes.com/2024/05/06/opinion/congestion-pricing-new-york.html
+
+**A Baguette Is Baked in France**\
+`Whoops, we left out this part: It was almost 500 feet long, beating out a loaf baked in Italy in 2019.`\
+https://nytimes.com/2024/05/06/world/europe/worlds-longest-baguette-france.html
+
 **Right-Wing Nonprofit Paid Millions to Companies With Ties to Insiders**\
 `The Conservative Partnership Institute’s three highest-paid contractors had connections to the group’s leaders or their relatives, raising concerns about self-dealing.`\
 https://nytimes.com/2024/05/06/us/politics/trump-conservative-partnership-institute-funds.html
