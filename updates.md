@@ -1,3 +1,11 @@
+**European Oil Giants Consider Shifting Their Listings to the U.S.**\
+`TotalEnergies and Shell are contemplating the advantages of listing shares in the United States to strengthen what they say are low market valuations.`\
+https://nytimes.com/2024/05/06/business/shell-total-stock-listing-london-new-york.html
+
+**Trump Firm’s Ex-Finance Chief Was Key to Hush-Money Deal, Witness Says**\
+`Allen H. Weisselberg instructed Jeffrey S. McConney to send reimbursements to Donald J. Trump’s former fixer, Mr. McConney testified.`\
+https://nytimes.com/2024/05/06/nyregion/allen-weisselberg-trump-trial.html
+
 **Allen Weisselberg had a major role in Stormy Daniels’s hush deal, witness says.**\
 `By Matthew Haag`\
 https://nytimes.com/2024/05/06/nyregion/allen-weisselberg-had-a-major-role-in-stormy-danielss-hush-deal-witness-says.html
