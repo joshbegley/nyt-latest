@@ -1,3 +1,7 @@
+**Will Rebecca Ferguson Win the Met Gala ‘Mother’-Off?**\
+`The story behind her sequin, bird-covered dress.`\
+https://nytimes.com/2024/05/06/fashion/rebecca-ferguson-met-gala-thom-browne.html
+
 **Bad Bunny steps out in Maison Margiela on the Met Gala red carpet.**\
 `By Callie Holtermann`\
 https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/bad-bunny-met-gala-margiela

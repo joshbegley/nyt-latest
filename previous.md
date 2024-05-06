@@ -1,3 +1,7 @@
+**Will Rebecca Ferguson Win the Met Gala ‘Mother’-Off?**\
+`The story behind her sequin, bird-covered dress.`\
+https://nytimes.com/2024/05/06/fashion/rebecca-ferguson-met-gala-thom-browne.html
+
 **Bad Bunny steps out in Maison Margiela on the Met Gala red carpet.**\
 `By Callie Holtermann`\
 https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/bad-bunny-met-gala-margiela
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/after-a-five-year-hiat
 **F.A.A. Is Investigating Boeing Over 787 Dreamliner Inspections**\
 `The agency said Boeing had disclosed last month that it might have skipped some required inspections of the wide-body jet.`\
 https://nytimes.com/2024/05/06/business/faa-boeing-787-dreamliner-inspections.html
-
-**Gaza Isn’t Root of Biden’s Struggles With Young Voters, Polls Show**\
-`Young voters are far more likely than other Americans to support Palestinians. But few cite the conflict as a top source of discontent with the president.`\
-https://nytimes.com/2024/05/06/us/politics/biden-trump-gaza-college-protests.html
 
