@@ -6,7 +6,7 @@ https://nytimes.com/2024/05/06/style/met-gala-pre-parties.html
 `The former House speaker, responding to an Opinion essay, points to legislation pending in Congress.`\
 https://nytimes.com/2024/05/06/opinion/letters/nancy-pelosi-democracy-reforms.html
 
-**Study Suggests Genetic Cause (Not Just Risk) for Some Alzheimer’s Cases**\
+**Study Suggests Genetics as a Cause, Not Just a Risk, for Some Alzheimers**\
 `People with two copies of the gene variant APOE4 are almost certain to get Alzheimer’s, say researchers, who proposed a framework under which such patients could be diagnosed years before symptoms.`\
 https://nytimes.com/2024/05/06/health/alzheimers-cause-gene-apoe4.html
 
