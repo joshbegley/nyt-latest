@@ -1,3 +1,7 @@
+**Kendrick Lamar vs. Drake Beef Goes Nuclear: What to Know**\
+`The two rappers had circled one another for more than a decade, but their attacks turned relentless and very personal in a slew of tracks released over the weekend.`\
+https://nytimes.com/2024/05/06/arts/music/kendrick-lamar-drake-explainer.html
+
 **Corrections: May 4, 2024**\
 `Corrections that appeared in print on Saturday, May 4, 2024.`\
 https://nytimes.com/2024/05/06/pageoneplus/corrections-may-4-2024.html
@@ -14,6 +18,10 @@ https://nytimes.com/2024/05/06/us/california-owls.html
 `Montreal is a city as appealing for its beauty as for its shadows. Here, the novelist Mona Awad recommends books that are “both dreamy and uncompromising.”`\
 https://nytimes.com/2024/05/06/books/books-montreal-canada.html
 
+**06trump-trial**\
+`Live Updates: Trump Held in Contempt Again as His Criminal Trial Speeds Along`\
+https://nytimes.com/live/2024/05/06/nyregion/trump-trial-hush-money
+
 **How Bad Is A.I. for the Climate?**\
 `Tech giants are building power-hungry data centers to run their artificial intelligence tools. The costs of that demand surge are becoming clearer.`\
 https://nytimes.com/2024/05/06/business/dealbook/ai-power-energy-climate.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/06/health/sickle-cell-cure-first.html
 **UChicago Says Free Speech Is Sacred. Some Students See Hypocrisy.**\
 `The president has allowed protest encampments. But they have also disrupted campus life, and he wants the tents down.`\
 https://nytimes.com/2024/05/06/us/university-of-chicago-protests-encampment.html
-
-**A Fresh Approach to a Crisis**\
-`A group of researchers posited another explanation for the youth mental health crisis: too much discussion.`\
-https://nytimes.com/2024/05/06/briefing/youth-mental-health-crisis.html
-
-**Today’s Wordle Review No. 1,052**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/06/crosswords/wordle-review.html
 
