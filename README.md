@@ -1,3 +1,7 @@
+**A Plan to Save One Kind of Owl Calls for Killing Another**\
+`The writer Franz Linz explores a federal plan to protect the spotted owl.`\
+https://nytimes.com/2024/05/06/us/california-owls.html
+
 **Read Your Way Through Montreal**\
 `Montreal is a city as appealing for its beauty as for its shadows. Here, the novelist Mona Awad recommends books that are “both dreamy and uncompromising.”`\
 https://nytimes.com/2024/05/06/books/books-montreal-canada.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/podcasts/israel-rafah-stormy-daniels.html
 **R.F.K. Jr.’s Battle to Get on the Ballot**\
 `The independent presidential candidate’s ballot access fight has already cost millions, federal campaign finance records show.`\
 https://nytimes.com/2024/05/06/podcasts/the-daily/rfk-jrs-independent-ballot.html
-
-**What to Know About Xi Jinping’s Trip to Europe**\
-`The Chinese president this week will be visiting France, Serbia and Hungary. His trip comes at a time of tensions with many European countries over trade and accusations of Chinese espionage.`\
-https://nytimes.com/2024/05/06/world/europe/xi-jinping-europe-china.html
 
