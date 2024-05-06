@@ -1,3 +1,23 @@
+**A Chinese Restaurant Is Winning the Kendrick Lamar-Drake Beef**\
+`New Ho King, open since 1976 in Toronto, has become an unlikely pop-culture battleground after being featured in songs from both rappers.`\
+https://nytimes.com/2024/05/06/dining/drake-kendrick-lamar-chinese-restaurant-toronto.html
+
+**TV News Can’t Sidestep Turbulence as Election Approaches**\
+`ABC, NBC, CBS and CNN all face questions about their future, just as one of the toughest journalistic assignments looms.`\
+https://nytimes.com/2024/05/06/business/media/tv-news-turbulence-election.html
+
+**What to know about NASA’s latest ride to orbit.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2024/05/06/science/boeing-starliner-launch/what-to-know-about-nasas-latest-ride-to-orbit
+
+**The Baffling Theme of This Year’s Met Gala**\
+`The commentary the theme provokes gives the gala its enduring cultural relevance.`\
+https://nytimes.com/2024/05/06/opinion/met-gala-theme.html
+
+**Pamela Anderson on Her Met Gala Debut: ‘I Am Playing Me’**\
+`Meet her new incarnation: dress by Oscar de la Renta; makeup by Pat McGrath; hair by Orlando Pita.`\
+https://nytimes.com/2024/05/06/fashion/pamela-anderson-met-gala-oscar-de-la-renta.html
+
 **Bad Bunny steps out in Maison Margiela on the Met Gala red carpet.**\
 `By Callie Holtermann`\
 https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/bad-bunny-met-gala-margiela
