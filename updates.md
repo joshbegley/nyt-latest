@@ -1,3 +1,7 @@
+**Dan Levy’s Met Gala Swerve**\
+`The actor went simple but playful with Loewe.`\
+https://nytimes.com/2024/05/06/fashion/dan-levy-met-gala-loewe.html
+
 **The Boring Documents That May Be Devastating to Trump**\
 `In a case about falsified records, it’s the records themselves that count the most.`\
 https://nytimes.com/2024/05/06/opinion/trump-trial-documents.html

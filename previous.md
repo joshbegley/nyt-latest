@@ -1,3 +1,7 @@
+**Dan Levy’s Met Gala Swerve**\
+`The actor went simple but playful with Loewe.`\
+https://nytimes.com/2024/05/06/fashion/dan-levy-met-gala-loewe.html
+
 **The Boring Documents That May Be Devastating to Trump**\
 `In a case about falsified records, it’s the records themselves that count the most.`\
 https://nytimes.com/2024/05/06/opinion/trump-trial-documents.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/06/science/boeing-starliner-launch/what-to-know
 **The Baffling Theme of This Year’s Met Gala**\
 `The commentary the theme provokes gives the gala its enduring cultural relevance.`\
 https://nytimes.com/2024/05/06/opinion/met-gala-theme.html
-
-**Pamela Anderson on Her Met Gala Debut: ‘I Am Playing Me’**\
-`Meet her new incarnation: dress by Oscar de la Renta; makeup by Pat McGrath; hair by Orlando Pita.`\
-https://nytimes.com/2024/05/06/fashion/pamela-anderson-met-gala-oscar-de-la-renta.html
 
