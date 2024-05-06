@@ -1,3 +1,11 @@
+**A Who’s Who of L.A.’s Art World Bids Farewell to a Champion**\
+`Artists, collectors and Hollywood stars toasted the Hammer Museum’s outgoing director, Ann Philbin, who remade the institution during 25 years at the helm.`\
+https://nytimes.com/2024/05/06/arts/design/hammer-museum-ann-philbin.html
+
+**Staten Island’s Roller Rink Celebrated Its Last Dance**\
+`Roller Jam USA closed for good after almost two decades.`\
+https://nytimes.com/2024/05/06/style/staten-island-roller-skating-rink-close.html
+
 **A Chinese Restaurant Is Winning the Kendrick Lamar-Drake Beef**\
 `New Ho King, open since 1976 in Toronto, has become an unlikely pop-culture battleground after being featured in songs from both rappers.`\
 https://nytimes.com/2024/05/06/dining/drake-kendrick-lamar-chinese-restaurant-toronto.html
