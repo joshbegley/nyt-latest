@@ -1,3 +1,7 @@
+**In China, Ruled by Men, Women Quietly Find a Powerful Voice**\
+`Women in Shanghai gather in bars, salons and bookstores to reclaim their identities as the country’s leader calls for China to adopt a “childbearing culture.”`\
+https://nytimes.com/2024/05/06/business/shanghai-china-feminish.html
+
 **3 Bodies Found in Baja California Are Identified as Missing Tourists’**\
 `Family members confirmed the identities of two Australian brothers and their American friend, who were found shot to death after going missing last month.`\
 https://nytimes.com/2024/05/05/world/americas/bodies-found-baja-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/05/obituaries/bernard-hill-dead.html
 **4 Children From Gaza Arrive in U.S. for Medical Treatment**\
 `The children, who were injured or suffered malnutrition, were greeted at Kennedy Airport with toys and balloons. “These are their first memories here,” one supporter said.`\
 https://nytimes.com/2024/05/05/nyregion/gaza-children-us-hospitals.html
-
-**Flies High**\
-`Malaika Handa takes her turn.`\
-https://nytimes.com/2024/05/05/crosswords/daily-puzzle-2024-05-06.html
 
