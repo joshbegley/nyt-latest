@@ -1,3 +1,7 @@
+**Quotation of the Day: She’ll Have an Orange Juice on the Rocks. Hold the Sippy Cup.**\
+`Quotation of the Day for Monday, May 6, 2024.`\
+https://nytimes.com/2024/05/06/pageoneplus/quotation-of-the-day-shell-have-an-orange-juice-on-the-rocks-hold-the-sippy-cup.html
+
 **What’s on TV This Week: Met Gala and ‘Wedding Crashers’**\
 `E! covers all the looks of the first Monday in May. And Paramount airs the classic buddy movie.`\
 https://nytimes.com/2024/05/06/arts/television/whats-on-tv-this-week-met-gala-and-wedding-crashers.html
