@@ -1,3 +1,7 @@
+**Right-Wing Nonprofit Paid Millions to Companies With Ties to Insiders**\
+`The Conservative Partnership Institute’s three highest-paid contractors had connections to the group’s leaders or their relatives, raising concerns about self-dealing.`\
+https://nytimes.com/2024/05/06/us/politics/trump-conservative-partnership-institute-funds.html
+
 **Compass Direct LLC’s 2024 Registration in North Carolina**\
 `Compass Direct LLC is run by Patrick Corrigan, the brother of Edward Corrigan, the president of Conservative Partnership Institute.`\
 https://nytimes.com/interactive/2024/05/06/us/compass-direct-llc-north-carolina.html
@@ -15,7 +19,7 @@ https://nytimes.com/interactive/2024/05/06/us/conservative-partnership-institute
 https://nytimes.com/live/2024/05/01/opinion/thepoint/carbon-dioxide-monoxide-climate
 
 **The Conservative Partnership Institute’s 2021 Annual Filing With the I.R.S.**\
-`The filing shows a sharp increase in the institute’s funding, during a year in which it sought to become a nerve center for Donald J. Trump’s allies in Washington.`\
+`The filing shows a sharp increase in the institute’s funding, during a year when it sought to become a nerve center for President Donald J. Trump’s allies in Washington.`\
 https://nytimes.com/interactive/2024/05/06/us/irs-filing-conservative-institute.html
 
 **A Master of ‘Subtle Dazzle’ and a Quiet Force in Downtown Dance**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/style/met-gala-pre-parties.html
 **Nancy Pelosi, on Reforms to Reinforce Democracy**\
 `The former House speaker, responding to an Opinion essay, points to legislation pending in Congress.`\
 https://nytimes.com/2024/05/06/opinion/letters/nancy-pelosi-democracy-reforms.html
-
-**Study Suggests Genetics as a Cause, Not Just a Risk, for Some Alzheimers**\
-`People with two copies of the gene variant APOE4 are almost certain to get Alzheimer’s, say researchers, who proposed a framework under which such patients could be diagnosed years before symptoms.`\
-https://nytimes.com/2024/05/06/health/alzheimers-cause-gene-apoe4.html
 
