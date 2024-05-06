@@ -1,3 +1,7 @@
+**What is Boeing’s Starliner spacecraft?**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2024/05/06/science/boeing-starliner-launch/boeing-starliner
+
 **A Who’s Who of L.A.’s Art World Bids Farewell to a Champion**\
 `Artists, collectors and Hollywood stars toasted the Hammer Museum’s outgoing director, Ann Philbin, who remade the institution during 25 years at the helm.`\
 https://nytimes.com/2024/05/06/arts/design/hammer-museum-ann-philbin.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/books/booksupdate/pulitzer-prize-books-winners-fi
 **Israel Said Hamas’s Cease-Fire Proposal Fell Short**\
 `Also, intense tornadoes are expected in Oklahoma and Kansas. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/05/06/briefing/israel-hamas-war-rafah-met-gala.html
-
-**Gayle McKinney-Griffith, Dance Theater of Harlem Star, Dies at 74**\
-`A founding dancer with the groundbreaking company, she served not only as a principal dancer but also as its first ballet mistress.`\
-https://nytimes.com/2024/05/06/arts/dance/gayle-mckinney-griffith-dead.html
 
