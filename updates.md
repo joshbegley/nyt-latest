@@ -1,3 +1,11 @@
+**A Plan to Save One Kind of Owl Calls for Killing Another**\
+`The writer Franz Linz explores a federal plan to protect the spotted owl.`\
+https://nytimes.com/2024/05/06/us/california-owls.html
+
+**A Fresh Approach to a Crisis**\
+`A group of researchers posited another explanation for the youth mental health crisis: too much discussion.`\
+https://nytimes.com/2024/05/06/briefing/youth-mental-health-crisis.html
+
 **Read Your Way Through Montreal**\
 `Montreal is a city as appealing for its beauty as for its shadows. Here, the novelist Mona Awad recommends books that are “both dreamy and uncompromising.”`\
 https://nytimes.com/2024/05/06/books/books-montreal-canada.html
