@@ -1,3 +1,7 @@
+**After a five-year hiatus, Zendaya will return to the Met Gala red carpet.**\
+`Many of the star’s biggest recent fashion splashes have been in service of promoting movie projects.`\
+https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/after-a-five-year-hiatus-zendaya-will-return-to-the-met-gala-red-carpet
+
 **F.A.A. Is Investigating Boeing Over 787 Dreamliner Inspections**\
 `The agency said Boeing had disclosed last month that it might have skipped some required inspections of the wide-body jet.`\
 https://nytimes.com/2024/05/06/business/faa-boeing-787-dreamliner-inspections.html
