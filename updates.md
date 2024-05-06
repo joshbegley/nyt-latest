@@ -1,3 +1,7 @@
+**Study Suggests Genetics as a Cause, Not Just a Risk, for Some Alzheimers**\
+`People with two copies of the gene variant APOE4 are almost certain to get Alzheimer’s, say researchers, who proposed a framework under which such patients could be diagnosed years before symptoms.`\
+https://nytimes.com/2024/05/06/health/alzheimers-cause-gene-apoe4.html
+
 **Jeff Bezos, Doja Cat and Pamela Anderson Pregame the Met Gala**\
 `Designers, athletes and celebrities swapped stories on dress fittings and gala prep routines on the eve of fashion’s biggest party.`\
 https://nytimes.com/2024/05/06/style/met-gala-pre-parties.html
