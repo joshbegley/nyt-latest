@@ -1,3 +1,7 @@
+**Corrections: May 4, 2024**\
+`Corrections that appeared in print on Saturday, May 4, 2024.`\
+https://nytimes.com/2024/05/06/pageoneplus/corrections-may-4-2024.html
+
 **After Weeks of Protests, Columbia Cancels Main Commencement Ceremony**\
 `Columbia’s president had earlier said that she did not want to deprive students of an in-person celebration after many graduated high school during the pandemic.`\
 https://nytimes.com/2024/05/06/nyregion/columbia-commencement-cancel-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/briefing/youth-mental-health-crisis.html
 **Today’s Wordle Review No. 1,052**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/05/06/crosswords/wordle-review.html
-
-**Israel Warns Thousands to Evacuate Rafah, and Hollywood’s Summer Gets Off to a Rocky Start**\
-`Plus, Stormy Daniels is expected to testify.`\
-https://nytimes.com/2024/05/06/podcasts/israel-rafah-stormy-daniels.html
 
