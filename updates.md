@@ -1,3 +1,7 @@
+**What to Know About Xi Jinping’s Trip to Europe**\
+`The Chinese president this week will be visiting France, Serbia and Hungary. His trip comes at a time of tensions with many European countries over trade and accusations of Chinese espionage.`\
+https://nytimes.com/2024/05/06/world/europe/what-to-know-xi-jinping-europe.html
+
 **Oklahoma and Kansas at High Risk of Extreme Storms and Tornadoes**\
 `Severe thunderstorms could bring large hail, damaging winds and powerful tornadoes to the Southern and Central Plains on Monday, forecasters said.`\
 https://nytimes.com/2024/05/06/us/severe-weather-great-plains.html
