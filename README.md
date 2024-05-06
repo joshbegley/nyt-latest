@@ -1,40 +1,40 @@
-**‘Tits Up’ Aims to Show Breasts a Respect Long Overdue**\
-`The sociologist Sarah Thornton visits strip clubs, milk banks and cosmetic surgeons with the goal of shoring up appreciation for women’s breasts.`\
-https://nytimes.com/2024/05/06/books/review/tits-up-sarah-thornton.html
+**America Is Being Tested in So Many Ways Right Now**\
+`It’s not only Trump who’s on trial.`\
+https://nytimes.com/2024/05/06/opinion/biden-trump-campus-protests-trial.html
 
-**Netanyahu Asserts Israel’s Right to Fight Its Enemies in Defiant Speech**\
-`Prime Minister Benjamin Netanyahu has been steadfast in his goal of destroying Hamas. On Sunday, he defended Israel’s right to defend itself at a Holocaust remembrance event.`\
-https://nytimes.com/2024/05/06/world/middleeast/netanyahu-holocaust-gaza-yad-vashem.html
+**Trump Is Rallying in New Jersey and Boasting of New States. Is It a PsyOp?**\
+`And he continues to cross new lines with wild language about Democrats.`\
+https://nytimes.com/2024/05/06/opinion/trump-is-rallying-in-new-jersey-and-boasting-of-new-states-is-it-a-psyop.html
 
-**Trump’s Criminal Trial Speeds Along, With Few Key Witnesses Remaining**\
-`The trial is entering its third week of testimony, and Stormy Daniels, the porn star at the center of it, could soon take the stand.`\
-https://nytimes.com/2024/05/06/nyregion/trump-trial-stormy-daniels.html
+**Zendaya, Bad Bunny and a Threat of a Picket Line at the 2024 Met Gala**\
+`Who will show up? How will invitees interpret this year’s “Garden of Time” theme? Fashion’s biggest red carpet is finally here.`\
+https://nytimes.com/2024/05/06/fashion/met-gala-what-to-expect.html
 
-**Congestion Pricing’s Billions to Pay for Nuts and Bolts of Subway System**\
-`The $15 billion expected from new traffic tolls is earmarked for modernizing old infrastructure but is threatened by a raft of lawsuits.`\
-https://nytimes.com/2024/05/06/nyregion/congestion-pricing-tolls-mta.html
+**Condé Nast Employees Threaten to Walk Off Job on Eve of Met Gala**\
+`Unionized Condé Nast employees said they were willing to disrupt Anna Wintour’s carefully laid plans over stalled contract negotiations.`\
+https://nytimes.com/2024/05/06/fashion/conde-nast-union-vogue-met-gala.html
 
-**The Connections Companion No. 330**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/06/crosswords/connections-companion.html
+**How Do I Know if My Untucked Shirt Is Too Long?**\
+`A reader wants to let his button-ups hang loose, without getting swallowed up by unsightly shirttails.`\
+https://nytimes.com/2024/05/06/style/untucked-shirt-hemline.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/05/06/crosswords/spelling-bee-forum.html
+**The Cicadas Are Here, Singing a Song for the Future**\
+`In the fractured, misunderstood world outside our windows, a cicada emergence is a gift, a reminder that we have not yet destroyed it all.`\
+https://nytimes.com/2024/05/06/opinion/cicadas-brood-emergence-nature.html
 
-**Airline Agrees to Pay $79 Million After Selling Tickets for Canceled Flights**\
-`Qantas, Australia’s national carrier, apologized and said it would pay a fine and compensation to settle a suit brought by a consumer watchdog.`\
-https://nytimes.com/2024/05/06/world/australia/qantas-fine-canceled-flights-australia.html
+**A Trillion Cicadas, They’re What’s for Dinner**\
+`For enthusiasts of edible bugs, this year’s emergence presents an opportunity to cook up these noisy lobsters of the trees.`\
+https://nytimes.com/2024/05/06/dining/eating-cicadas.html
 
-**The Israeli military tells civilians in eastern Rafah to move to a humanitarian zone.**\
-`By Vivek Shankar`\
-https://nytimes.com/live/2024/05/06/world/israel-gaza-war-hamas/the-israeli-military-tells-civilians-in-eastern-rafah-to-move-to-a-humanitarian-zone
+**Getting Back to Basics on Free Speech**\
+`Amid campus protests and the Trump years, free speech debates are charged. Jane Coaston interviews Greg Lukianoff about getting back to basics on the First Amendment.`\
+https://nytimes.com/2024/05/06/opinion/greg-lukianoff-campus-speech.html
 
-**06mideast-crisis**\
-`Israeli Military Warns Thousands in Rafah to Evacuate`\
-https://nytimes.com/live/2024/05/06/world/israel-gaza-war-hamas
+**I’m a Doctor. I Was Unprepared When I Got This Disease.**\
+`Our medical systems are not adequately equipped to diagnose tropical diseases, and in a warming climate, that’s a problem.`\
+https://nytimes.com/2024/05/06/opinion/dengue-climate-change.html
 
-**Word of the Day: etymology**\
-`This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/05/06/learning/word-of-the-day-etymology.html
+**A Portrait of the Art World Elite, Painted With a Heavy Hand**\
+`Hari Kunzru examines the ties between art and wealth in a new novel, “Blue Ruin.”`\
+https://nytimes.com/2024/05/06/books/review/hari-kunzru-blue-ruin.html
 
