@@ -1,3 +1,7 @@
+**Police Make Arrests While Trying to Contain Protests**\
+`As expected, protesters gathered near the Met Gala to protest the war in Gaza, creating an atmosphere far different from the one inside the event.`\
+https://nytimes.com/2024/05/06/fashion/protests-met-gala-arrests.html
+
 **Da’Vine Joy Randolph’s Gown Represents Two Debuts in One**\
 `The story behind the Oscar winner’s all-denim look.`\
 https://nytimes.com/2024/05/06/style/davine-joy-randolph-met-gala-zac-posen.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/fashion/sam-smith-christian-cowan-met-gala.html
 **Wayve, an A.I. Start-Up for Autonomous Driving, Raises $1 Billion**\
 `The London-based developer of artificial intelligence systems for self-driving vehicles raised the funding from SoftBank, Nvidia, Microsoft and others.`\
 https://nytimes.com/2024/05/06/technology/wayve-ai-self-driving-vehicles.html
-
-**Who are the astronauts on the Starliner flight?**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2024/05/06/science/boeing-starliner-launch/who-are-the-astronauts-on-the-starliner-flight
 
