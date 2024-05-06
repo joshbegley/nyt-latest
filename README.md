@@ -1,3 +1,7 @@
+**UChicago Says Free Speech Is Sacred. Some Students Sees Hypocrisy.**\
+`The president has allowed protest encampments. But they have also disrupted campus life, and he wants the tents down.`\
+https://nytimes.com/2024/05/06/us/university-of-chicago-protests-encampment.html
+
 **A Fresh Approach to a Crisis**\
 `A group of researchers posited another explanation for the youth mental health crisis: Too much discussion.`\
 https://nytimes.com/2024/05/06/briefing/youth-mental-health-crisis.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/06/us/campus-protests/here-is-the-latest-on-the
 **America Is Being Tested in So Many Ways Right Now**\
 `It’s not only Trump who’s on trial.`\
 https://nytimes.com/2024/05/06/opinion/biden-trump-campus-protests-trial.html
-
-**Trump Is Rallying in New Jersey and Boasting of New States. Is It a PsyOp?**\
-`And he continues to cross new lines with wild language about Democrats.`\
-https://nytimes.com/2024/05/06/opinion/trump-is-rallying-in-new-jersey-and-boasting-of-new-states-is-it-a-psyop.html
 
