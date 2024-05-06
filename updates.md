@@ -1,3 +1,7 @@
+**After Weeks of Protests, Columbia Cancels Main Commencement Ceremony**\
+`Columbia’s president had earlier said that she did not want to deprive students of an in-person celebration after many graduated high school during the pandemic.`\
+https://nytimes.com/2024/05/06/nyregion/columbia-commencement-cancel-protests.html
+
 **A Plan to Save One Kind of Owl Calls for Killing Another**\
 `The writer Franz Linz explores a federal plan to protect the spotted owl.`\
 https://nytimes.com/2024/05/06/us/california-owls.html
