@@ -1,3 +1,7 @@
+**Fears, and prices, soar in Rafah after Israel’s evacuation order.**\
+`By Liam Stack, Bilal Shbair and Adam Rasgon`\
+https://nytimes.com/live/2024/05/06/world/israel-gaza-war-hamas/fears-and-prices-soar-in-rafah-after-israels-evacuation-order
+
 **Jeff Bezos, Doja Cat and Pamela Anderson Pregame the Met Gala**\
 `Designers, athletes and celebrities swapped stories on dress fittings and gala prep routines on the eve of fashion’s biggest party.`\
 https://nytimes.com/2024/05/06/style/met-gala-pre-parties.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/arts/music/the-hours-met-opera-review.html
 **In Meeting With Xi, E.U. Leader Takes Tough Line on Ukraine War**\
 `Ursula Von der Leyen, the European Commission president, pushed Beijing to help rein in Russia’s war in Ukraine after meeting with the Chinese and French leaders in Paris.`\
 https://nytimes.com/2024/05/06/world/europe/xi-macron-europe-trade-war.html
-
-**Will a carbon market happen?**\
-`An enormous amount of work is underway to remove carbon from the atmosphere, but who will pay for it?`\
-https://nytimes.com/2024/05/06/headway/will-a-carbon-market-happen.html
 

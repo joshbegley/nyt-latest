@@ -1,3 +1,7 @@
+**Fears, and prices, soar in Rafah after Israel’s evacuation order.**\
+`By Liam Stack, Bilal Shbair and Adam Rasgon`\
+https://nytimes.com/live/2024/05/06/world/israel-gaza-war-hamas/fears-and-prices-soar-in-rafah-after-israels-evacuation-order
+
 **Study Suggests Genetics as a Cause, Not Just a Risk, for Some Alzheimers**\
 `People with two copies of the gene variant APOE4 are almost certain to get Alzheimer’s, say researchers, who proposed a framework under which such patients could be diagnosed years before symptoms.`\
 https://nytimes.com/2024/05/06/health/alzheimers-cause-gene-apoe4.html
