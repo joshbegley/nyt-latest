@@ -1,3 +1,7 @@
+**‘They Are So Triggered by Me’: Conchita Wurst’s 10-Year Roller-Coaster Ride**\
+`Since winning the Eurovision Song Contest in 2014, the bearded drag queen has been celebrated and condemned. For her creator, Tom Neuwirth, it has been a journey.`\
+https://nytimes.com/2024/05/06/arts/music/conchita-wurst.html
+
 **Here is the latest on the campus protests.**\
 `By Yan Zhuang`\
 https://nytimes.com/live/2024/05/06/us/campus-protests/here-is-the-latest-on-the-campus-protests
