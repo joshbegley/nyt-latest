@@ -1,3 +1,19 @@
+**Trump Is Threatened With Jail at His Criminal Trial: 5 Takeaways**\
+`Prosecutors on Monday took the jury deep into the Trump Organization’s ledgers as the state’s case proceeds at speed.`\
+https://nytimes.com/2024/05/06/nyregion/trump-trial-takeaways-mcconney-tarasoff.html
+
+**2024 Met Gala: Red Carpet Roundup**\
+`See the looks from fashion’s biggest night.`\
+https://nytimes.com/2024/05/06/fashion/met-gala-photos-red-carpet.html
+
+**Tuesday Briefing: Israel Orders Rafah Evacuations**\
+`Also, Russia plans for nuclear drills.`\
+https://nytimes.com/2024/05/06/world/asia/israel-rafah-hamas-russia-asia.html
+
+**M.I.T. Will No Longer Require Diversity Statements for Hiring Faculty**\
+`Applicants were required to explain how they would enhance diversity. Free-speech advocates and others said that requirement enforced groupthink.`\
+https://nytimes.com/2024/05/06/us/mit-diversity-statements-faculty-hiring.html
+
 **Before stepping into the Met Gala, many guests step out of this van.**\
 `The boxy Mercedes-Benz Sprinter has become the carriage of choice for many celebrities.`\
 https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/before-stepping-into-the-met-gala-many-guests-step-out-of-this-van
@@ -21,20 +37,4 @@ https://nytimes.com/2024/05/06/world/middleeast/israel-rafah-hamas-ceasefire.htm
 **Before the big ball, there was the anti-Met Gala.**\
 `In Brooklyn, a D.I.Y. benefit for people with heavy medical debt parodied the celebrity-studded red-carpet affair.`\
 https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/before-the-big-ball-there-was-the-anti-met-gala
-
-**Sniffing walls and toasting A.I. at a preview of the exhibition.**\
-`The Metropolitan Museum of Art invited visitors to take an early look at its spring 2024 Costume Institute show.`\
-https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/sniffing-walls-and-toasting-ai-at-a-preview-of-the-exhibition
-
-**It’s the first Monday in May: Fashion’s biggest night has come to the Met.**\
-`By Louis Lucero II`\
-https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/its-the-first-monday-in-may-the-met-gala-is-here
-
-**Kris Hallenga, Advocate for Breast Cancer Awareness Among the Young, Dies at 38**\
-`After being diagnosed with advanced breast cancer when she was 23, she became determined to educate other young people about early detection.`\
-https://nytimes.com/2024/05/06/health/kris-hallenga-dead.html
-
-**University of Chicago Professors Say They Will Risk Arrest at Protest**\
-`A group of faculty members called on administrators to resume negotiations with pro-Palestinian student protesters.`\
-https://nytimes.com/2024/05/06/us/uchicago-faculty-protest-encampment.html
 
