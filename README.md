@@ -1,3 +1,7 @@
+**Bernie Sanders to Run for Re-Election, Seeking a Fourth Senate Term**\
+`The 82-year-old Vermont independent, a leading progressive in Washington, cast November’s elections as a fight for democracy.`\
+https://nytimes.com/2024/05/06/us/politics/bernie-sanders-re-election-senate.html
+
 **European Oil Giants Consider Shifting Their Listings to the U.S.**\
 `TotalEnergies and Shell are contemplating the advantages of listing shares in the United States to strengthen what they say are low market valuations.`\
 https://nytimes.com/2024/05/06/business/shell-total-stock-listing-london-new-york.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/05/06/us/conservative-partnership-institute
 **The Conservative Partnership Institute’s 2022 Annual Filing With the I.R.S.**\
 `This document shows that the nonprofit’s three highest-paid vendors were Compass Legal, Compass Professional and Compass Property Management. All three were connected to insiders at the nonprofit.`\
 https://nytimes.com/interactive/2024/05/06/us/conservative-partnership-institute-2022-filing.html
-
-**A Little More Carbon Monoxide Might Really Help the Planet**\
-`A new scientific process breaks down climate-warming carbon dioxide into something more useful.`\
-https://nytimes.com/live/2024/05/01/opinion/thepoint/carbon-dioxide-monoxide-climate
 
