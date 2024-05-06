@@ -1,3 +1,7 @@
+**Wayve, an A.I. Start-Up for Autonomous Driving, Raises $1 Billion**\
+`The London-based developer of artificial intelligence systems for self-driving vehicles raised the funding from SoftBank, Nvidia, Microsoft and others.`\
+https://nytimes.com/2024/05/06/technology/wayve-ai-self-driving-vehicles.html
+
 **Christian Cowan and Sam Smith’s Met Gala Debut as a Couple**\
 `They made a statement about their relationship with matching rose clasps on their suit jackets.`\
 https://nytimes.com/2024/05/06/fashion/sam-smith-christian-cowan-met-gala.html
