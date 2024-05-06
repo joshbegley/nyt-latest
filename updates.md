@@ -1,3 +1,11 @@
+**The Boring Documents That May Be Devastating to Trump**\
+`In a case about falsified records, it’s the records themselves that count the most.`\
+https://nytimes.com/2024/05/06/opinion/trump-trial-documents.html
+
+**Trump, Who Has Celebrated Violent Protests, Cheers Campus Crackdowns**\
+`The former president’s calls for order in college unrest contrast with how he talks about Jan. 6.`\
+https://nytimes.com/2024/05/06/us/politics/trump-college-protests-jan-6.html
+
 **What is Boeing’s Starliner spacecraft?**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/05/06/science/boeing-starliner-launch/boeing-starliner
