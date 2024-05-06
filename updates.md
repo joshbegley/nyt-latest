@@ -1,3 +1,7 @@
+**Coming Soon to Little Island: An Arts Festival With Powerful Backers**\
+`The mogul Barry Diller, who paid for the park, will finance a summer season of music, dance, theater and more, shaped in part by the Broadway producer Scott Rudin.`\
+https://nytimes.com/2024/05/06/arts/music/little-island-festival-barry-diller-scott-rudin-twyla-tharp.html
+
 **Bernie Sanders to Run for Re-Election, Seeking a Fourth Senate Term**\
 `The 82-year-old Vermont independent, a leading progressive in Washington, cast November’s elections as a fight for democracy.`\
 https://nytimes.com/2024/05/06/us/politics/bernie-sanders-re-election-senate.html

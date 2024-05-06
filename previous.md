@@ -1,3 +1,7 @@
+**Coming Soon to Little Island: An Arts Festival With Powerful Backers**\
+`The mogul Barry Diller, who paid for the park, will finance a summer season of music, dance, theater and more, shaped in part by the Broadway producer Scott Rudin.`\
+https://nytimes.com/2024/05/06/arts/music/little-island-festival-barry-diller-scott-rudin-twyla-tharp.html
+
 **Bernie Sanders to Run for Re-Election, Seeking a Fourth Senate Term**\
 `The 82-year-old Vermont independent, a leading progressive in Washington, cast November’s elections as a fight for democracy.`\
 https://nytimes.com/2024/05/06/us/politics/bernie-sanders-re-election-senate.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/05/06/us/compass-direct-llc-north-carolina.
 **Conservative Partnership Institute’s Registration to Fundraise in North Carolina**\
 `This document shows that the Conservative Partnership Institute hired a fundraising company called Compass Direct LLC. That company was run by the brother of the nonprofit’s president. Its contract paid $15,000 per month.`\
 https://nytimes.com/interactive/2024/05/06/us/conservative-partnership-institute-north-carolina.html
-
-**The Conservative Partnership Institute’s 2022 Annual Filing With the I.R.S.**\
-`This document shows that the nonprofit’s three highest-paid vendors were Compass Legal, Compass Professional and Compass Property Management. All three were connected to insiders at the nonprofit.`\
-https://nytimes.com/interactive/2024/05/06/us/conservative-partnership-institute-2022-filing.html
 
