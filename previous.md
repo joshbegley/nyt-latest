@@ -1,3 +1,7 @@
+**‘Tits Up’ Aims to Show Breasts a Respect Long Overdue**\
+`The sociologist Sarah Thornton visits strip clubs, milk banks and cosmetic surgeons with the goal of shoring up appreciation for women’s breasts.`\
+https://nytimes.com/2024/05/06/books/review/tits-up-sarah-thornton.html
+
 **Netanyahu Asserts Israel’s Right to Fight Its Enemies in Defiant Speech**\
 `Prime Minister Benjamin Netanyahu has been steadfast in his goal of destroying Hamas. On Sunday, he defended Israel’s right to defend itself at a Holocaust remembrance event.`\
 https://nytimes.com/2024/05/06/world/middleeast/netanyahu-holocaust-gaza-yad-vashem.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/06/world/israel-gaza-war-hamas
 **Word of the Day: etymology**\
 `This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/05/06/learning/word-of-the-day-etymology.html
-
-**Quotation of the Day: She’ll Have an Orange Juice on the Rocks. Hold the Sippy Cup.**\
-`Quotation of the Day for Monday, May 6, 2024.`\
-https://nytimes.com/2024/05/06/pageoneplus/quotation-of-the-day-shell-have-an-orange-juice-on-the-rocks-hold-the-sippy-cup.html
 

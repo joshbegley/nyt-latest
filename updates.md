@@ -1,3 +1,7 @@
+**‘Tits Up’ Aims to Show Breasts a Respect Long Overdue**\
+`The sociologist Sarah Thornton visits strip clubs, milk banks and cosmetic surgeons with the goal of shoring up appreciation for women’s breasts.`\
+https://nytimes.com/2024/05/06/books/review/tits-up-sarah-thornton.html
+
 **Netanyahu Asserts Israel’s Right to Fight Its Enemies in Defiant Speech**\
 `Prime Minister Benjamin Netanyahu has been steadfast in his goal of destroying Hamas. On Sunday, he defended Israel’s right to defend itself at a Holocaust remembrance event.`\
 https://nytimes.com/2024/05/06/world/middleeast/netanyahu-holocaust-gaza-yad-vashem.html
