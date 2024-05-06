@@ -1,3 +1,15 @@
+**Tyla Whips Up a Sandstorm on the Met Carpet**\
+`The South African singer and songwriter accessorized with a literal hourglass.`\
+https://nytimes.com/2024/05/06/fashion/tyla-met-gala-balmain.html
+
+**Does NASA need two rides to the space station? Elon Musk says no.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2024/05/06/science/boeing-starliner-launch/spacex-nasa-orbit
+
+**How a Tiny Chicago News Organization Won 2 Pulitzers**\
+`The Invisible Institute, a nonprofit newsroom with roughly a dozen journalists, was recognized for local and audio reporting.`\
+https://nytimes.com/2024/05/06/business/media/invisible-institute-two-pulitzer-prizes.html
+
 **Emily Ratajkowski Was 10 When Her Met Gala Dress Was Made**\
 `The story behind the archival red-carpet look.`\
 https://nytimes.com/2024/05/06/fashion/emily-ratajkowski-met-gala-versace.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/05/06/science/boeing-starliner-launch/who-are-the-
 **Meat, Freedom and Ron DeSantis**\
 `A full plate of culture war and conspiracy theories.`\
 https://nytimes.com/2024/05/06/opinion/ron-desantis-cultured-meat.html
-
-**Lauren Sánchez Plays Grande Dame in Oscar de la Renta**\
-`At the Met Gala, the future Mrs. Bezos tries out a new look.`\
-https://nytimes.com/2024/05/06/fashion/lauren-sanchez-met-gala-oscar-de-la-renta.html
-
-**The Met Gala’s Strange but Fitting Literary Inspiration**\
-`In 1962, J.G. Ballard published “The Garden of Time,” a short story about aristocrats overrun by “an immense rabble.” Now it’s the dress-code theme for the year’s most lavish ball.`\
-https://nytimes.com/2024/05/06/fashion/garden-of-time-jg-ballard-story.html
-
-**Eboni Booth on Winning the Drama Pulitzer for ‘Primary Trust’**\
-`This play about a lonely, emotionally damaged man resonated with audiences returning to the theater after the pandemic.`\
-https://nytimes.com/2024/05/06/theater/eboni-booth-drama-pulitzer.html
 
