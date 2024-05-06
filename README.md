@@ -1,3 +1,7 @@
+**What to Know About Xi Jinping’s Trip to Europe**\
+`The Chinese president this week will be visiting France, Serbia and Hungary. His trip comes at a time of tensions with many European countries over trade and accusations of Chinese espionage.`\
+https://nytimes.com/2024/05/06/world/europe/what-to-know-xi-jinping-europe.html
+
 **Oklahoma and Kansas at High Risk of Extreme Storms and Tornadoes**\
 `Severe thunderstorms could bring large hail, damaging winds and powerful tornadoes to the Southern and Central Plains on Monday, forecasters said.`\
 https://nytimes.com/2024/05/06/us/severe-weather-great-plains.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/style/untucked-shirt-hemline.html
 **The Cicadas Are Here, Singing a Song for the Future**\
 `In the fractured, misunderstood world outside our windows, a cicada emergence is a gift, a reminder that we have not yet destroyed it all.`\
 https://nytimes.com/2024/05/06/opinion/cicadas-brood-emergence-nature.html
-
-**A Trillion Cicadas, They’re What’s for Dinner**\
-`For enthusiasts of edible bugs, this year’s emergence presents an opportunity to cook up these noisy lobsters of the trees.`\
-https://nytimes.com/2024/05/06/dining/eating-cicadas.html
 
