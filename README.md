@@ -1,3 +1,7 @@
+**Word of the Day: etymology**\
+`This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/06/learning/word-of-the-day-etymology.html
+
 **Quotation of the Day: She’ll Have an Orange Juice on the Rocks. Hold the Sippy Cup.**\
 `Quotation of the Day for Monday, May 6, 2024.`\
 https://nytimes.com/2024/05/06/pageoneplus/quotation-of-the-day-shell-have-an-orange-juice-on-the-rocks-hold-the-sippy-cup.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests/a-lett
 **ABC News’ President, Kim Godwin, to Step Down**\
 `The first Black woman to run a broadcast news division, Ms. Godwin had a rocky tenure defined by infighting and damaging leaks.`\
 https://nytimes.com/2024/05/05/business/media/abc-news-president-kim-godwin-to-step-down.html
-
-**Set to reopen classes, U.C.L.A. announces a new campus security office.**\
-`By Jonathan Wolfe`\
-https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests/set-to-reopen-classes-ucla-announces-a-new-campus-security-office
 
