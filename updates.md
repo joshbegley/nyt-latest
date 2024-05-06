@@ -1,3 +1,7 @@
+**How Bad Is A.I. for the Climate?**\
+`Tech giants are building power-hungry data centers to run their artificial intelligence tools. The costs of that demand surge are becoming clearer.`\
+https://nytimes.com/2024/05/06/business/dealbook/ai-power-energy-climate.html
+
 **Russia to Hold Drills on Tactical Nuclear Weapons in New Tensions With West**\
 `Russian officials claimed the order was in response to comments from the West about the possibility of more direct Western involvement in the war in Ukraine.`\
 https://nytimes.com/2024/05/06/world/europe/russia-tactical-nuclear-weapons-drills.html
