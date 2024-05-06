@@ -1,3 +1,11 @@
+**In Meeting With Xi, E.U. Leader Takes Tough Line on Ukraine War**\
+`Ursula Von der Leyen, the European Commission president, pushed Beijing to help rein in Russia’s war in Ukraine after meeting with the Chinese and French leaders in Paris.`\
+https://nytimes.com/2024/05/06/world/europe/xi-macron-europe-trade-war.html
+
+**Will a carbon market happen?**\
+`An enormous amount of work is underway to remove carbon from the atmosphere, but who will pay for it?`\
+https://nytimes.com/2024/05/06/headway/will-a-carbon-market-happen.html
+
 **Six months before Election Day, here is where the race stands.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/05/06/us/biden-trump-campaign/trump-biden-election
