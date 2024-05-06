@@ -1,3 +1,7 @@
+**Will a carbon market happen?**\
+`An enormous amount of work is underway to remove carbon from the atmosphere, but who will pay for it?`\
+https://nytimes.com/2024/05/06/headway/will-a-carbon-market-happen.html
+
 **Six months before Election Day, here is where the race stands.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/05/06/us/biden-trump-campaign/trump-biden-election
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/us/california-owls.html
 **Read Your Way Through Montreal**\
 `Montreal is a city as appealing for its beauty as for its shadows. Here, the novelist Mona Awad recommends books that are “both dreamy and uncompromising.”`\
 https://nytimes.com/2024/05/06/books/books-montreal-canada.html
-
-**How Bad Is A.I. for the Climate?**\
-`Tech giants are building power-hungry data centers to run their artificial intelligence tools. The costs of that demand surge are becoming clearer.`\
-https://nytimes.com/2024/05/06/business/dealbook/ai-power-energy-climate.html
 
