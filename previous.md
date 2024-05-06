@@ -1,3 +1,15 @@
+**Mayor Adams to Meet With Pope Francis in Rome**\
+`The meeting is expected to happen on the sidelines of a larger event, the World Meeting on Human Fraternity, attended by Nobel laureates, artists, athletes and other politicians.`\
+https://nytimes.com/2024/05/06/nyregion/mayor-eric-adams-pope.html
+
+**Sign Up for Your Money’s Financial Boot Camp for 20-Somethings**\
+`We want to help you get your money in shape.`\
+https://nytimes.com/2024/05/06/business/your-money-boot-camp.html
+
+**Deborah Tarasoff, Trump Trial Witness, Was Linked to Stormy Daniels Deal**\
+`Ms. Tarasoff, a former employee of the accounting department at the Trump Organization, is thought to have helped reimburse Michael D. Cohen for the hush-money payment at the center of Donald J. Trump’s trial.`\
+https://nytimes.com/2024/05/06/nyregion/deborah-tarasoff-trump-trial-stormy-daniels.html
+
 **Why Does Trump Face Felony Charges? Prosecutors Say He Was Hiding Other Crimes.**\
 `Donald J. Trump faces 34 felony counts in his Manhattan trial, but none involve the other misconduct that prosecutors say he engaged in.`\
 https://nytimes.com/2024/05/06/nyregion/trump-charges-felonies.html
@@ -10,7 +22,7 @@ https://nytimes.com/live/2024/05/06/world/israel-gaza-war-hamas/biden-will-meet-
 `A campus police officer said 43 people were charged on Monday with conspiracy to attempt burglary.`\
 https://nytimes.com/2024/05/06/us/protesters-arrested-ucla.html
 
-**Hamas says it has agreed to a cease-fire proposal.**\
+**Israel and the U.S. say they are reviewing Hamas’s response.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/05/06/world/israel-gaza-war-hamas/hamas-says-it-has-agreed-to-a-cease-fire-proposal
 
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/06/us/ucsd-campus-protests-arrests.html
 **Coming Soon to Little Island: An Arts Festival With Powerful Backers**\
 `The mogul Barry Diller, who paid for the park, will finance a summer season of music, dance, theater and more, shaped in part by the Broadway producer Scott Rudin.`\
 https://nytimes.com/2024/05/06/arts/music/little-island-festival-barry-diller-scott-rudin-twyla-tharp.html
-
-**Bernie Sanders to Run for Re-Election, Seeking a Fourth Senate Term**\
-`The 82-year-old Vermont independent, a leading progressive in Washington, cast November’s elections as a fight for democracy.`\
-https://nytimes.com/2024/05/06/us/politics/bernie-sanders-re-election-senate.html
-
-**European Oil Giants Consider Shifting Their Listings to the U.S.**\
-`TotalEnergies and Shell are contemplating the advantages of listing shares in the United States to strengthen what they say are low market valuations.`\
-https://nytimes.com/2024/05/06/business/shell-total-stock-listing-london-new-york.html
-
-**Trump Firm’s Ex-Finance Chief Was Key to Hush-Money Deal, Witness Says**\
-`Allen H. Weisselberg instructed Jeffrey S. McConney to send reimbursements to Donald J. Trump’s former fixer, Mr. McConney testified.`\
-https://nytimes.com/2024/05/06/nyregion/allen-weisselberg-trump-trial.html
 

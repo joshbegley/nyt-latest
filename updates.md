@@ -1,3 +1,19 @@
+**Mayor Adams to Meet With Pope Francis in Rome**\
+`The meeting is expected to happen on the sidelines of a larger event, the World Meeting on Human Fraternity, attended by Nobel laureates, artists, athletes and other politicians.`\
+https://nytimes.com/2024/05/06/nyregion/mayor-eric-adams-pope.html
+
+**Sign Up for Your Money’s Financial Boot Camp for 20-Somethings**\
+`We want to help you get your money in shape.`\
+https://nytimes.com/2024/05/06/business/your-money-boot-camp.html
+
+**Deborah Tarasoff, Trump Trial Witness, Was Linked to Stormy Daniels Deal**\
+`Ms. Tarasoff, a former employee of the accounting department at the Trump Organization, is thought to have helped reimburse Michael D. Cohen for the hush-money payment at the center of Donald J. Trump’s trial.`\
+https://nytimes.com/2024/05/06/nyregion/deborah-tarasoff-trump-trial-stormy-daniels.html
+
+**Israel and the U.S. say they are reviewing Hamas’s response.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/05/06/world/israel-gaza-war-hamas/hamas-says-it-has-agreed-to-a-cease-fire-proposal
+
 **Police Raid U.C. San Diego Encampment and Arrest 64 Protesters**\
 `Videos from the scene showed police officers wearing helmets and carrying batons as they handcuffed protesters and led them away from the tents.`\
 https://nytimes.com/2024/05/06/us/ucsd-campus-protests-arrests.html
