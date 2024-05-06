@@ -1,3 +1,11 @@
+**Pulitzer Prizes: 2024 Winners List**\
+`Here is the full list of winners and finalists.`\
+https://nytimes.com/2024/05/06/business/pulitzer-prize-winners.html
+
+**The New York Times and The Washington Post Win 3 Pulitzers Each**\
+`The prize for public service went to ProPublica for coverage of the Supreme Court. The Pulitzer board also issued a special citation for journalists covering the Middle East.`\
+https://nytimes.com/2024/05/06/business/media/pulitzer-prizes.html
+
 **With talks stalled and a Rafah attack looming, Netanyahu tilts at an elusive victory.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/05/06/world/israel-gaza-war-hamas/with-talks-stalled-and-a-rafah-attack-looming-netanyahu-tilts-at-an-elusive-victory
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/06/world/europe/germany-political-assaults.html
 **Mayor Adams to Meet With Pope Francis in Rome**\
 `The meeting is expected to happen on the sidelines of a larger event, the World Meeting on Human Fraternity, attended by Nobel laureates, artists, athletes and other politicians.`\
 https://nytimes.com/2024/05/06/nyregion/mayor-eric-adams-pope.html
-
-**Sign Up for Your Money’s Financial Boot Camp for 20-Somethings**\
-`We want to help you get your money in shape.`\
-https://nytimes.com/2024/05/06/business/your-money-boot-camp.html
-
-**Deborah Tarasoff, Trump Trial Witness, Was Linked to Stormy Daniels Deal**\
-`Ms. Tarasoff, a former employee of the accounting department at the Trump Organization, helped reimburse Michael D. Cohen for the hush-money payment at the center of Donald J. Trump’s trial.`\
-https://nytimes.com/2024/05/06/nyregion/deborah-tarasoff-trump-trial-stormy-daniels.html
 
