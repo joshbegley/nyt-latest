@@ -1,3 +1,15 @@
+**Pulitzer Prizes: 2024 Winners List**\
+`Here is the full list of winners and finalists.`\
+https://nytimes.com/2024/05/06/business/pulitzer-prize-winners.html
+
+**The New York Times and The Washington Post Win 3 Pulitzers Each**\
+`The prize for public service went to ProPublica for coverage of the Supreme Court. The Pulitzer board also issued a special citation for journalists covering the Middle East.`\
+https://nytimes.com/2024/05/06/business/media/pulitzer-prizes.html
+
+**Geoff Duncan, Georgia’s Republican Former Lt. Gov., Says He Will Vote for Biden**\
+`“I am voting for a decent person I disagree with on policy over a criminal defendant without a moral compass,” wrote Mr. Duncan, who was in office during the 2020 election.`\
+https://nytimes.com/2024/05/06/us/politics/geoff-duncan-biden.html
+
 **With talks stalled and a Rafah attack looming, Netanyahu tilts at an elusive victory.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/05/06/world/israel-gaza-war-hamas/with-talks-stalled-and-a-rafah-attack-looming-netanyahu-tilts-at-an-elusive-victory
