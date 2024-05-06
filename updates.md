@@ -1,3 +1,11 @@
+**Conservative Partnership Institute’s Registration to Fundraise in North Carolina**\
+`This document shows that the Conservative Partnership Institute hired a fundraising company called Compass Direct LLC. That company was run by the brother of the nonprofit’s president. Its contract paid $15,000 per month.`\
+https://nytimes.com/interactive/2024/05/06/us/conservative-partnership-institute-north-carolina.html
+
+**The Conservative Partnership Institute’s 2022 Annual Filing With the I.R.S.**\
+`This document shows that the nonprofit’s three highest-paid vendors were Compass Legal, Compass Professional and Compass Property Management. All three were connected to insiders at the nonprofit.`\
+https://nytimes.com/interactive/2024/05/06/us/3678ee18-81a1-429d-b53a-8749929b94c5.html
+
 **A Little More Carbon Monoxide Might Really Help the Planet**\
 `A new scientific process breaks down climate-warming carbon dioxide into something more useful.`\
 https://nytimes.com/live/2024/05/01/opinion/thepoint/carbon-dioxide-monoxide-climate
