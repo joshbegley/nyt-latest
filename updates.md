@@ -1,3 +1,7 @@
+**A Fresh Approach to a Crisis**\
+`A group of researchers posited another explanation for the youth mental health crisis: Too much discussion.`\
+https://nytimes.com/2024/05/06/briefing/youth-mental-health-crisis.html
+
 **Today’s Wordle Review No. 1,052**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/05/06/crosswords/wordle-review.html
