@@ -1,5 +1,9 @@
 **In China, Ruled by Men, Women Quietly Find a Powerful Voice**\
 `Women in Shanghai gather in bars, salons and bookstores to reclaim their identities as the country’s leader calls for China to adopt a “childbearing culture.”`\
+https://nytimes.com/2024/05/06/business/shanghai-china-feminism.html
+
+**In China, Ruled by Men, Women Quietly Find a Powerful Voice**\
+`Women in Shanghai gather in bars, salons and bookstores to reclaim their identities as the country’s leader calls for China to adopt a “childbearing culture.”`\
 https://nytimes.com/2024/05/06/business/shanghai-china-feminish.html
 
 **3 Bodies Found in Baja California Are Identified as Missing Tourists’**\
