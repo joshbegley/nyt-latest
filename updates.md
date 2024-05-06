@@ -1,3 +1,7 @@
+**Corrections: May 4, 2024**\
+`Corrections that appeared in print on Saturday, May 4, 2024.`\
+https://nytimes.com/2024/05/06/pageoneplus/corrections-may-4-2024.html
+
 **After Weeks of Protests, Columbia Cancels Main Commencement Ceremony**\
 `Columbia’s president had earlier said that she did not want to deprive students of an in-person celebration after many graduated high school during the pandemic.`\
 https://nytimes.com/2024/05/06/nyregion/columbia-commencement-cancel-protests.html
