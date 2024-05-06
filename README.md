@@ -1,3 +1,11 @@
+**The Boring Documents That May Be Devastating to Trump**\
+`In a case about falsified records, it’s the records themselves that count the most.`\
+https://nytimes.com/2024/05/06/opinion/trump-trial-documents.html
+
+**Trump, Who Has Celebrated Violent Protests, Cheers Campus Crackdowns**\
+`The former president’s calls for order in college unrest contrast with how he talks about Jan. 6.`\
+https://nytimes.com/2024/05/06/us/politics/trump-college-protests-jan-6.html
+
 **What is Boeing’s Starliner spacecraft?**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/05/06/science/boeing-starliner-launch/boeing-starliner
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/06/opinion/met-gala-theme.html
 **Pamela Anderson on Her Met Gala Debut: ‘I Am Playing Me’**\
 `Meet her new incarnation: dress by Oscar de la Renta; makeup by Pat McGrath; hair by Orlando Pita.`\
 https://nytimes.com/2024/05/06/fashion/pamela-anderson-met-gala-oscar-de-la-renta.html
-
-**Pulitzer Prizes 2024: A Guide to the Winning Books and Finalists**\
-`Jayne Anne Phillips won the fiction award for “Night Watch,” while Jonathan Eig and Ilyon Woo shared the biography prize.`\
-https://nytimes.com/2024/05/06/books/booksupdate/pulitzer-prize-books-winners-finalists.html
-
-**Israel Said Hamas’s Cease-Fire Proposal Fell Short**\
-`Also, intense tornadoes are expected in Oklahoma and Kansas. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2024/05/06/briefing/israel-hamas-war-rafah-met-gala.html
 
