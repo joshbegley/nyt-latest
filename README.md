@@ -1,3 +1,7 @@
+**How Bad Is A.I. for the Climate?**\
+`Tech giants are building power-hungry data centers to run their artificial intelligence tools. The costs of that demand surge are becoming clearer.`\
+https://nytimes.com/2024/05/06/business/dealbook/ai-power-energy-climate.html
+
 **Russia to Hold Drills on Tactical Nuclear Weapons in New Tensions With West**\
 `Russian officials claimed the order was in response to comments from the West about the possibility of more direct Western involvement in the war in Ukraine.`\
 https://nytimes.com/2024/05/06/world/europe/russia-tactical-nuclear-weapons-drills.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/world/europe/what-to-know-xi-jinping-europe.html
 **Oklahoma and Kansas at High Risk of Extreme Storms and Tornadoes**\
 `Severe thunderstorms could bring large hail, damaging winds and powerful tornadoes to the Southern and Central Plains on Monday, forecasters said.`\
 https://nytimes.com/2024/05/06/us/severe-weather-great-plains.html
-
-**‘They Are So Triggered by Me’: Conchita Wurst’s 10-Year Roller-Coaster Ride**\
-`Since winning the Eurovision Song Contest in 2014, the bearded drag queen has been celebrated and condemned. For her creator, Tom Neuwirth, it has been a journey.`\
-https://nytimes.com/2024/05/06/arts/music/conchita-wurst.html
 
