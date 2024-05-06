@@ -1,3 +1,7 @@
+**After Weeks of Protests, Columbia Cancels Main Commencement Ceremony**\
+`Columbia’s president had earlier said that she did not want to deprive students of an in-person celebration after many graduated high school during the pandemic.`\
+https://nytimes.com/2024/05/06/nyregion/columbia-commencement-cancel-protests.html
+
 **A Plan to Save One Kind of Owl Calls for Killing Another**\
 `The writer Franz Linz explores a federal plan to protect the spotted owl.`\
 https://nytimes.com/2024/05/06/us/california-owls.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/crosswords/wordle-review.html
 **Israel Warns Thousands to Evacuate Rafah, and Hollywood’s Summer Gets Off to a Rocky Start**\
 `Plus, Stormy Daniels is expected to testify.`\
 https://nytimes.com/2024/05/06/podcasts/israel-rafah-stormy-daniels.html
-
-**R.F.K. Jr.’s Battle to Get on the Ballot**\
-`The independent presidential candidate’s ballot access fight has already cost millions, federal campaign finance records show.`\
-https://nytimes.com/2024/05/06/podcasts/the-daily/rfk-jrs-independent-ballot.html
 
