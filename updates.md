@@ -1,3 +1,15 @@
+**Emily Ratajkowski Was 10 When Her Met Gala Dress Was Made**\
+`The story behind the archival red-carpet look.`\
+https://nytimes.com/2024/05/06/fashion/emily-ratajkowski-met-gala-versace.html
+
+**Where 3 Dead Tourists Were Found Fast, Thousands Remain Missing**\
+`In Mexico, where tens of thousands of people have disappeared, the robust operation to quickly find the remains of three foreigners, from Australia and the United States, felt like a rare exception.`\
+https://nytimes.com/2024/05/06/world/americas/mexico-killed-tourists-baja-california.html
+
+**Tyshawn Sorey Wins Pulitzer for Composing an ‘Anti-Concerto’**\
+`The composer and instrumentalist was honored for “Adagio (For Wadada Leo Smith),” an unconventional concerto written for saxophone and orchestra.`\
+https://nytimes.com/2024/05/06/arts/music/tyshawn-sorey-pulitzer-music.html
+
 **Wayve, an A.I. Start-Up for Autonomous Driving, Raises $1 Billion**\
 `The London-based developer of artificial intelligence systems for self-driving vehicles raised the funding from SoftBank, Nvidia, Microsoft and others.`\
 https://nytimes.com/2024/05/06/technology/wayve-ai-self-driving-vehicles.html
