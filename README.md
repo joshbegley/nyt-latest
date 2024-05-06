@@ -1,3 +1,7 @@
+**Oklahoma and Kansas at High Risk of Extreme Storms and Tornadoes**\
+`Severe thunderstorms could bring large hail, damaging winds and powerful tornadoes to the Southern and Central Plains on Monday, forecasters said.`\
+https://nytimes.com/2024/05/06/us/severe-weather-great-plains.html
+
 **‘They Are So Triggered by Me’: Conchita Wurst’s 10-Year Roller-Coaster Ride**\
 `Since winning the Eurovision Song Contest in 2014, the bearded drag queen has been celebrated and condemned. For her creator, Tom Neuwirth, it has been a journey.`\
 https://nytimes.com/2024/05/06/arts/music/conchita-wurst.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/opinion/cicadas-brood-emergence-nature.html
 **A Trillion Cicadas, They’re What’s for Dinner**\
 `For enthusiasts of edible bugs, this year’s emergence presents an opportunity to cook up these noisy lobsters of the trees.`\
 https://nytimes.com/2024/05/06/dining/eating-cicadas.html
-
-**Getting Back to Basics on Free Speech**\
-`Amid campus protests and the Trump years, free speech debates are charged. Jane Coaston interviews Greg Lukianoff about getting back to basics on the First Amendment.`\
-https://nytimes.com/2024/05/06/opinion/greg-lukianoff-campus-speech.html
 
