@@ -1,3 +1,7 @@
+**Today’s Wordle Review No. 1,052**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/06/crosswords/wordle-review.html
+
 **Israel Warns Thousands to Evacuate Rafah, and Hollywood’s Summer Gets Off to a Rocky Start**\
 `Plus, Stormy Daniels is expected to testify.`\
 https://nytimes.com/2024/05/06/podcasts/israel-rafah-stormy-daniels.html
