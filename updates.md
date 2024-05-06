@@ -1,3 +1,15 @@
+**Hamas’s announcement adds to the uncertainty of the cease-fire talks**\
+`The terms Hamas had agreed to were not immediately clear, but a senior Israeli official quickly said that the terms were not those that Israel had agreed to.`\
+https://nytimes.com/2024/05/06/world/middleeast/israel-hamas-gaza-ceasefire-talks.html
+
+**Harvard president says protesters who remain in an encampment may be kicked out of campus housing.**\
+`By Nicholas Bogel-Burroughs`\
+https://nytimes.com/live/2024/05/06/us/campus-protests/harvard-president-says-protesters-who-remain-in-an-encampment-may-be-kicked-out-of-campus-housing
+
+**Deborah Tarasoff, Trump Trial Witness, Was Linked to Stormy Daniels Deal**\
+`Ms. Tarasoff, a former employee of the accounting department at the Trump Organization, helped reimburse Michael D. Cohen for the hush-money payment at the center of Donald J. Trump’s trial.`\
+https://nytimes.com/2024/05/06/nyregion/deborah-tarasoff-trump-trial-stormy-daniels.html
+
 **The Case for Letting Mortgages Move With Us**\
 `Mortgages that offer portability for a fee could help thaw the housing market.`\
 https://nytimes.com/2024/05/06/opinion/portable-mortgage-loans-housing.html
