@@ -1,3 +1,7 @@
+**Eboni Booth on Winning the Drama Pulitzer for ‘Primary Trust’**\
+`This play about a lonely, emotionally damaged man resonated with audiences returning to the theater after the pandemic.`\
+https://nytimes.com/2024/05/06/theater/eboni-booth-drama-pulitzer.html
+
 **Dan Levy’s Met Gala Swerve**\
 `The actor went simple but playful with Loewe.`\
 https://nytimes.com/2024/05/06/fashion/dan-levy-met-gala-loewe.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/business/media/tv-news-turbulence-election.html
 **What to know about NASA’s latest ride to orbit.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/05/06/science/boeing-starliner-launch/what-to-know-about-nasas-latest-ride-to-orbit
-
-**The Baffling Theme of This Year’s Met Gala**\
-`The commentary the theme provokes gives the gala its enduring cultural relevance.`\
-https://nytimes.com/2024/05/06/opinion/met-gala-theme.html
 
