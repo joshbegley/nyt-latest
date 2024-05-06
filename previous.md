@@ -1,3 +1,19 @@
+**Trump’s Criminal Trial Speeds Along, With Few Key Witnesses Remaining**\
+`The trial is entering its third week of testimony, and Stormy Daniels, the porn star at the center of it, could soon take the stand.`\
+https://nytimes.com/2024/05/06/nyregion/trump-trial-stormy-daniels.html
+
+**Congestion Pricing’s Billions to Pay for Nuts and Bolts of Subway System**\
+`The $15 billion expected from new traffic tolls is earmarked for modernizing old infrastructure but is threatened by a raft of lawsuits.`\
+https://nytimes.com/2024/05/06/nyregion/congestion-pricing-tolls-mta.html
+
+**The Connections Companion No. 330**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/06/crosswords/connections-companion.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/05/06/crosswords/spelling-bee-forum.html
+
 **Airline Agrees to Pay $79 Million After Selling Tickets for Canceled Flights**\
 `Qantas, Australia’s national carrier, apologized and said it would pay a fine and compensation to settle a suit brought by a consumer watchdog.`\
 https://nytimes.com/2024/05/06/world/australia/qantas-fine-canceled-flights-australia.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/05/06/pageoneplus/quotation-of-the-day-shell-have-an-or
 **What’s on TV This Week: Met Gala and ‘Wedding Crashers’**\
 `E! covers all the looks of the first Monday in May. And Paramount airs the classic buddy movie.`\
 https://nytimes.com/2024/05/06/arts/television/whats-on-tv-this-week-met-gala-and-wedding-crashers.html
-
-**Barenboim: What Beethoven’s Ninth Teaches Us**\
-`The conductor Daniel Barenboim explores the political and spiritual power of what many consider the greatest symphony.`\
-https://nytimes.com/2024/05/06/opinion/daniel-barenboim-beethoven-ninth-symphony.html
-
-**Let’s All Take a Deep Breath About China**\
-`Anxiety about China is making American policymakers react in paranoid, repressive ways.`\
-https://nytimes.com/2024/05/06/opinion/china-anxiety-us-policy.html
-
-**Monday Briefing**\
-`Cease-fire talks stall.`\
-https://nytimes.com/2024/05/06/briefing/ceasefire-talks-xi-jinping-europe.html
-
-**In China, Ruled by Men, Women Quietly Find a Powerful Voice**\
-`Women in Shanghai gather in bars, salons and bookstores to reclaim their identities as the country’s leader calls for China to adopt a “childbearing culture.”`\
-https://nytimes.com/2024/05/06/business/shanghai-china-feminism.html
 
