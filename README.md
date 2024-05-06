@@ -22,7 +22,7 @@ https://nytimes.com/2024/05/06/headway/will-a-carbon-market-happen.html
 `By Maggie Astor`\
 https://nytimes.com/live/2024/05/06/us/biden-trump-campaign/trump-biden-election
 
-**Jeffrey McConney, Trump Trial Witness, Helped Arrange Cohen’s Reimbursement**\
+**Trial Witness Says Some Hush Money Came From Trump’s Personal Bank Account**\
 `The reimbursement to Michael D. Cohen, the former Trump fixer who paid $130,000 in hush money to Stormy Daniels, is at the center of the criminal case against the former president.`\
 https://nytimes.com/2024/05/06/nyregion/jeffrey-mcconney-stormy-daniels.html
 
