@@ -1,3 +1,7 @@
+**With talks stalled and a Rafah attack looming, Netanyahu tilts at an elusive victory.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/05/06/world/israel-gaza-war-hamas/with-talks-stalled-and-a-rafah-attack-looming-netanyahu-tilts-at-an-elusive-victory
+
 **5 Dead After Inhaling Hazardous Gas at a Water Plant in Sicily**\
 `An official said the workers were killed by hydrogen sulfide, which is toxic in high concentrations. Italian officials and unions repeated urgent calls for better workplace safety.`\
 https://nytimes.com/2024/05/06/world/europe/sicily-deaths-water-plant-gas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/business/your-money-boot-camp.html
 **Deborah Tarasoff, Trump Trial Witness, Was Linked to Stormy Daniels Deal**\
 `Ms. Tarasoff, a former employee of the accounting department at the Trump Organization, helped reimburse Michael D. Cohen for the hush-money payment at the center of Donald J. Trump’s trial.`\
 https://nytimes.com/2024/05/06/nyregion/deborah-tarasoff-trump-trial-stormy-daniels.html
-
-**Why Does Trump Face Felony Charges? Prosecutors Say He Was Hiding Other Crimes.**\
-`Donald J. Trump faces 34 felony counts in his Manhattan trial, but none involve the other misconduct that prosecutors say he engaged in.`\
-https://nytimes.com/2024/05/06/nyregion/trump-charges-felonies.html
 

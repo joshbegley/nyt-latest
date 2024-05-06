@@ -1,3 +1,7 @@
+**With talks stalled and a Rafah attack looming, Netanyahu tilts at an elusive victory.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/05/06/world/israel-gaza-war-hamas/with-talks-stalled-and-a-rafah-attack-looming-netanyahu-tilts-at-an-elusive-victory
+
 **5 Dead After Inhaling Hazardous Gas at a Water Plant in Sicily**\
 `An official said the workers were killed by hydrogen sulfide, which is toxic in high concentrations. Italian officials and unions repeated urgent calls for better workplace safety.`\
 https://nytimes.com/2024/05/06/world/europe/sicily-deaths-water-plant-gas.html
