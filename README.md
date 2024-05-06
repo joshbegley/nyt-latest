@@ -19,7 +19,7 @@ https://nytimes.com/2024/05/06/health/sickle-cell-cure-first.html
 https://nytimes.com/2024/05/06/us/university-of-chicago-protests-encampment.html
 
 **A Fresh Approach to a Crisis**\
-`A group of researchers posited another explanation for the youth mental health crisis: Too much discussion.`\
+`A group of researchers posited another explanation for the youth mental health crisis: too much discussion.`\
 https://nytimes.com/2024/05/06/briefing/youth-mental-health-crisis.html
 
 **Today’s Wordle Review No. 1,052**\
