@@ -1,3 +1,7 @@
+**3 Bodies Found in Baja California Are Identified as Missing Tourists’**\
+`Family members confirmed the identity of two Australian brothers and their American friend, all found killed by gunshots after going missing weeks ago.`\
+https://nytimes.com/2024/05/05/world/americas/mexico-baja-bodies-identified.html
+
 **A letter signed by at least three dozen U.Va. professors condemned school leaders over a police response.**\
 `By Emily Cochrane`\
 https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests/a-letter-signed-by-at-least-three-dozen-uva-professors-condemned-school-leaders-over-a-police-response
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/05/nyregion/gaza-children-us-hospitals.html
 **Flies High**\
 `Malaika Handa takes her turn.`\
 https://nytimes.com/2024/05/05/crosswords/daily-puzzle-2024-05-06.html
-
-**Candidates for Federal Office Can Raise Unlimited Funds for Ballot Measures**\
-`A decision by the Federal Election Commission would allow the Biden and Trump campaigns to raise money for outside groups pushing ballot measures.`\
-https://nytimes.com/2024/05/05/us/politics/election-funds-ballot-measures.html
 
