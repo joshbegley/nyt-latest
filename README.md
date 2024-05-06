@@ -1,3 +1,11 @@
+**Meat, Freedom and Ron DeSantis**\
+`A full plate of culture war and conspiracy theories.`\
+https://nytimes.com/2024/05/06/opinion/ron-desantis-cultured-meat.html
+
+**Lauren Sánchez Plays Grande Dame in Oscar de la Renta**\
+`At the Met Gala, the future Mrs. Bezos tries out a new look.`\
+https://nytimes.com/2024/05/06/fashion/lauren-sanchez-met-gala-oscar-de-la-renta.html
+
 **The Met Gala’s Strange but Fitting Literary Inspiration**\
 `In 1962, J.G. Ballard published “The Garden of Time,” a short story about aristocrats overrun by “an immense rabble.” Now it’s the dress-code theme for the year’s most lavish ball.`\
 https://nytimes.com/2024/05/06/fashion/garden-of-time-jg-ballard-story.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/06/arts/design/hammer-museum-ann-philbin.html
 **Staten Island’s Roller Rink Celebrated Its Last Dance**\
 `Roller Jam USA closed for good after almost two decades.`\
 https://nytimes.com/2024/05/06/style/staten-island-roller-skating-rink-close.html
-
-**A Chinese Restaurant Is Winning the Kendrick Lamar-Drake Beef**\
-`New Ho King, open since 1976 in Toronto, has become an unlikely pop-culture battleground after being featured in songs from both rappers.`\
-https://nytimes.com/2024/05/06/dining/drake-kendrick-lamar-chinese-restaurant-toronto.html
-
-**TV News Can’t Sidestep Turbulence as Election Approaches**\
-`ABC, NBC, CBS and CNN all face questions about their future, just as one of the toughest journalistic assignments looms.`\
-https://nytimes.com/2024/05/06/business/media/tv-news-turbulence-election.html
 
