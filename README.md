@@ -1,3 +1,7 @@
+**In Brooklyn, the Anti-Met Gala Raises Funds for Medical Debt**\
+`The red carpet featured noncelebrity guests in homemade costumes. “This is a better function, with a better message,” one guest said.`\
+https://nytimes.com/2024/05/06/fashion/debt-ball-met-gala.html
+
 **Judge Holds Trump in Contempt for Violating Gag Order, and Warns of Jail**\
 `Donald J. Trump again broke a gag order meant to bar him from attacking participants in his criminal trial, Justice Juan M. Merchan ruled.`\
 https://nytimes.com/2024/05/06/nyregion/trump-trial-gag-order-contempt.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/business/dealbook/ai-power-energy-climate.html
 **Russia to Hold Drills on Tactical Nuclear Weapons in New Tensions With West**\
 `Russian officials claimed the order was in response to comments from the West about the possibility of more direct Western involvement in the war in Ukraine.`\
 https://nytimes.com/2024/05/06/world/europe/russia-tactical-nuclear-weapons-drills.html
-
-**First Patient Begins Newly Approved Sickle Cell Gene Therapy**\
-`A 12-year-old boy in the Washington, D.C., area faces months of procedures to remedy his disease. “I want to be cured,” he said.`\
-https://nytimes.com/2024/05/06/health/sickle-cell-cure-first.html
 
