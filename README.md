@@ -1,3 +1,7 @@
+**The Conservative Partnership Institute’s 2021 Annual Filing With the I.R.S.**\
+`The filing shows a sharp increase in the institute’s funding, during a year in which it sought to become a nerve center for Donald J. Trump’s allies in Washington.`\
+https://nytimes.com/interactive/2024/05/06/us/irs-filing-conservative-institute.html
+
 **A Master of ‘Subtle Dazzle’ and a Quiet Force in Downtown Dance**\
 `Carol Mullins, who has been lighting boundary-pushing shows at Danspace Project since the 1970s, will be honored at its 50th anniversary.`\
 https://nytimes.com/2024/05/06/arts/dance/carol-mullins-light-designer-danspace.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/business/maersk-houthi-red-sea-shipping.html
 **Inquiry Into Johannesburg Fire Blames City Officials for Deadly Conditions**\
 `Although a resident confessed to setting the August 2023 blaze that killed 76 people in a dilapidated building, a report found that officials had ignored warning signs for years.`\
 https://nytimes.com/2024/05/06/world/africa/south-africa-johannesburg-fire-inquiry.html
-
-**Review: ‘The Hours’ Returns to the Met Opera With Its Stars**\
-`Renée Fleming, Kelli O’Hara and Joyce DiDonato reprised their roles in Kevin Puts’s adaptation of the award-winning novel and film.`\
-https://nytimes.com/2024/05/06/arts/music/the-hours-met-opera-review.html
 
