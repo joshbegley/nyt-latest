@@ -1,3 +1,7 @@
+**The Case for Letting Mortgages Move With Us**\
+`Mortgages that offer portability for a fee could help thaw the housing market.`\
+https://nytimes.com/2024/05/06/opinion/portable-mortgage-loans-housing.html
+
 **Geoff Duncan, Georgia Republican, says he will vote for Biden.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/05/06/us/biden-trump-campaign/geoff-duncan-georgia-republican-says-he-will-vote-for-biden

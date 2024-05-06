@@ -1,3 +1,7 @@
+**The Case for Letting Mortgages Move With Us**\
+`Mortgages that offer portability for a fee could help thaw the housing market.`\
+https://nytimes.com/2024/05/06/opinion/portable-mortgage-loans-housing.html
+
 **Geoff Duncan, Georgia Republican, says he will vote for Biden.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/05/06/us/biden-trump-campaign/geoff-duncan-georgia-republican-says-he-will-vote-for-biden
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/us/protesters-arrested-ucla.html
 **Israel and the U.S. say they are reviewing Hamas’s response.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/05/06/world/israel-gaza-war-hamas/hamas-says-it-has-agreed-to-a-cease-fire-proposal
-
-**Jail for the Chief? There’s a Better Punishment.**\
-`Trump shouldn’t be allowed to use his punishment to play the martyr.`\
-https://nytimes.com/2024/05/06/opinion/trump-contempt-jail-punishment.html
 
