@@ -1,3 +1,7 @@
+**Locks of Beethoven’s Hair Offer New Clues to the Mystery of His Deafness**\
+`Using powerful technologies, scientists found staggering amounts of lead and other toxic substances in the composer’s hair that may have come from wine, or other sources.`\
+https://nytimes.com/2024/05/06/health/beethoven-deaf-lead-hair.html
+
 **Trump Is Threatened With Jail at His Criminal Trial: 5 Takeaways**\
 `Prosecutors on Monday took the jury deep into the Trump Organization’s ledgers as the state’s case proceeds at speed.`\
 https://nytimes.com/2024/05/06/nyregion/trump-trial-takeaways-mcconney-tarasoff.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/us/politics/biden-trump-gaza-college-protests.htm
 **Israel Orders Partial Evacuation of Rafah, Fueling Fears of New Offensive**\
 `Hamas says it has agreed to a cease-fire plan that Israel said did not meet its demands, the latest in a long series of negotiating stumbles.`\
 https://nytimes.com/2024/05/06/world/middleeast/israel-rafah-hamas-ceasefire.html
-
-**Before the big ball, there was the anti-Met Gala.**\
-`In Brooklyn, a D.I.Y. benefit for people with heavy medical debt parodied the celebrity-studded red-carpet affair.`\
-https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/before-the-big-ball-there-was-the-anti-met-gala
 
