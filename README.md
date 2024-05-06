@@ -1,3 +1,7 @@
+**Here is the latest on the campus protests.**\
+`By Yan Zhuang`\
+https://nytimes.com/live/2024/05/06/us/campus-protests/here-is-the-latest-on-the-campus-protests
+
 **America Is Being Tested in So Many Ways Right Now**\
 `It’s not only Trump who’s on trial.`\
 https://nytimes.com/2024/05/06/opinion/biden-trump-campus-protests-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/opinion/greg-lukianoff-campus-speech.html
 **I’m a Doctor. I Was Unprepared When I Got This Disease.**\
 `Our medical systems are not adequately equipped to diagnose tropical diseases, and in a warming climate, that’s a problem.`\
 https://nytimes.com/2024/05/06/opinion/dengue-climate-change.html
-
-**A Portrait of the Art World Elite, Painted With a Heavy Hand**\
-`Hari Kunzru examines the ties between art and wealth in a new novel, “Blue Ruin.”`\
-https://nytimes.com/2024/05/06/books/review/hari-kunzru-blue-ruin.html
 
