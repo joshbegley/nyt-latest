@@ -1,3 +1,7 @@
+**Mayor Adams to Meet With Pope Francis in Rome**\
+`The meeting is expected to happen on the sidelines of a larger event, the World Meeting on Human Fraternity, attended by Nobel laureates, artists, athletes and other politicians.`\
+https://nytimes.com/2024/05/06/nyregion/mayor-eric-adams-pope.html
+
 **Sign Up for Your Money’s Financial Boot Camp for 20-Somethings**\
 `We want to help you get your money in shape.`\
 https://nytimes.com/2024/05/06/business/your-money-boot-camp.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/us/ucsd-campus-protests-arrests.html
 **Coming Soon to Little Island: An Arts Festival With Powerful Backers**\
 `The mogul Barry Diller, who paid for the park, will finance a summer season of music, dance, theater and more, shaped in part by the Broadway producer Scott Rudin.`\
 https://nytimes.com/2024/05/06/arts/music/little-island-festival-barry-diller-scott-rudin-twyla-tharp.html
-
-**Bernie Sanders to Run for Re-Election, Seeking a Fourth Senate Term**\
-`The 82-year-old Vermont independent, a leading progressive in Washington, cast November’s elections as a fight for democracy.`\
-https://nytimes.com/2024/05/06/us/politics/bernie-sanders-re-election-senate.html
 
