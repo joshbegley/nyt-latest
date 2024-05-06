@@ -1,3 +1,7 @@
+**Police Make Arrests While Trying to Contain Protests**\
+`As expected, protesters gathered near the Met Gala to protest the war in Gaza, creating an atmosphere far different from the one inside the event.`\
+https://nytimes.com/2024/05/06/fashion/protests-met-gala-arrests.html
+
 **Da’Vine Joy Randolph’s Gown Represents Two Debuts in One**\
 `The story behind the Oscar winner’s all-denim look.`\
 https://nytimes.com/2024/05/06/style/davine-joy-randolph-met-gala-zac-posen.html
