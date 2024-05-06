@@ -1,3 +1,7 @@
+**More Pro-Palestinian Protesters Arrested at U.C.L.A.**\
+`A campus police officer said 43 people were charged on Monday with conspiracy to attempt burglary.`\
+https://nytimes.com/2024/05/06/us/protesters-arrested-ucla.html
+
 **Hamas says it has agreed to a cease-fire proposal.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/05/06/world/israel-gaza-war-hamas/hamas-says-it-has-agreed-to-a-cease-fire-proposal

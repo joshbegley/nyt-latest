@@ -1,3 +1,7 @@
+**More Pro-Palestinian Protesters Arrested at U.C.L.A.**\
+`A campus police officer said 43 people were charged on Monday with conspiracy to attempt burglary.`\
+https://nytimes.com/2024/05/06/us/protesters-arrested-ucla.html
+
 **Hamas says it has agreed to a cease-fire proposal.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/05/06/world/israel-gaza-war-hamas/hamas-says-it-has-agreed-to-a-cease-fire-proposal
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/arts/music/taylor-swift-tortured-poets-second-wee
 **Congestion Pricing and Confusion**\
 `Readers discuss the congestion pricing plan for New York. Also: Kristi Noem, Tim Scott and the truth; an immunity amendment to the Constitution.`\
 https://nytimes.com/2024/05/06/opinion/congestion-pricing-new-york.html
-
-**A Baguette Is Baked in France**\
-`Whoops, we left out this part: It was almost 500 feet long, beating out a loaf baked in Italy in 2019.`\
-https://nytimes.com/2024/05/06/world/europe/worlds-longest-baguette-france.html
 
