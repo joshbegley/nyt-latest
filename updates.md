@@ -1,3 +1,15 @@
+**Christian Cowan and Sam Smith’s Met Gala Debut as a Couple**\
+`They made a statement about their relationship with matching rose clasps on their suit jackets.`\
+https://nytimes.com/2024/05/06/fashion/sam-smith-christian-cowan-met-gala.html
+
+**Wayve, an A.I. Start-Up for Autonomous Driving, Raises $1 Billion**\
+`The London-based developer of artificial intelligence systems for self-driving vehicles raised the funding from SoftBank, Nvidia, Microsoft and others.`\
+https://nytimes.com/2024/05/06/technology/wayve-an-ai-start-up-for-autonomous-driving-raises-1-billion.html
+
+**Who are the astronauts on the Starliner flight?**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2024/05/06/science/boeing-starliner-launch/who-are-the-astronauts-on-the-starliner-flight
+
 **Meat, Freedom and Ron DeSantis**\
 `A full plate of culture war and conspiracy theories.`\
 https://nytimes.com/2024/05/06/opinion/ron-desantis-cultured-meat.html
