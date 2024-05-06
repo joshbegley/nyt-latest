@@ -1,3 +1,7 @@
+**Hamas says it has agreed to a cease-fire proposal.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/05/06/world/israel-gaza-war-hamas/hamas-says-it-has-agreed-to-a-cease-fire-proposal
+
 **Pro-Trump Nonprofit Pays Its Own Leaders’ Companies Millions**\
 `The Conservative Partnership Institute’s three highest-paid contractors had connections to the group’s leaders or their relatives, raising concerns about self-dealing.`\
 https://nytimes.com/2024/05/06/us/politics/trump-conservative-partnership-institute-funds.html

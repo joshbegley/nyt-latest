@@ -1,3 +1,7 @@
+**Hamas says it has agreed to a cease-fire proposal.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/05/06/world/israel-gaza-war-hamas/hamas-says-it-has-agreed-to-a-cease-fire-proposal
+
 **Jail for the Chief? There’s a Better Punishment.**\
 `Trump shouldn’t be allowed to use his punishment to play the martyr.`\
 https://nytimes.com/2024/05/06/opinion/trump-contempt-jail-punishment.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/opinion/congestion-pricing-new-york.html
 **A Baguette Is Baked in France**\
 `Whoops, we left out this part: It was almost 500 feet long, beating out a loaf baked in Italy in 2019.`\
 https://nytimes.com/2024/05/06/world/europe/worlds-longest-baguette-france.html
-
-**Pro-Trump Nonprofit Pays Its Own Leaders’ Companies Millions**\
-`The Conservative Partnership Institute’s three highest-paid contractors had connections to the group’s leaders or their relatives, raising concerns about self-dealing.`\
-https://nytimes.com/2024/05/06/us/politics/trump-conservative-partnership-institute-funds.html
 
