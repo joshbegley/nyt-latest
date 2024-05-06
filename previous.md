@@ -34,7 +34,7 @@ https://nytimes.com/2024/05/06/opinion/congestion-pricing-new-york.html
 `Whoops, we left out this part: It was almost 500 feet long, beating out a loaf baked in Italy in 2019.`\
 https://nytimes.com/2024/05/06/world/europe/worlds-longest-baguette-france.html
 
-**Right-Wing Nonprofit Paid Millions to Companies With Ties to Insiders**\
+**Pro-Trump Nonprofit Pays Its Own Leaders’ Companies Millions**\
 `The Conservative Partnership Institute’s three highest-paid contractors had connections to the group’s leaders or their relatives, raising concerns about self-dealing.`\
 https://nytimes.com/2024/05/06/us/politics/trump-conservative-partnership-institute-funds.html
 

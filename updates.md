@@ -1,3 +1,7 @@
+**Pro-Trump Nonprofit Pays Its Own Leaders’ Companies Millions**\
+`The Conservative Partnership Institute’s three highest-paid contractors had connections to the group’s leaders or their relatives, raising concerns about self-dealing.`\
+https://nytimes.com/2024/05/06/us/politics/trump-conservative-partnership-institute-funds.html
+
 **Jail for the Chief? There’s a Better Punishment.**\
 `Trump shouldn’t be allowed to use his punishment to play the martyr.`\
 https://nytimes.com/2024/05/06/opinion/trump-contempt-jail-punishment.html
