@@ -1,6 +1,6 @@
 **Conservative Partnership Institute’s Registration to Fundraise in North Carolina**\
 `This document shows that the Conservative Partnership Institute hired a fundraising company called Compass Direct LLC. That company was run by the brother of the nonprofit’s president. Its contract paid $15,000 per month.`\
-https://nytimes.com/interactive/2024/05/06/us/c518751b-f522-4b22-8e5c-6d406b4e029f.html
+https://nytimes.com/interactive/2024/05/06/us/conservative-partnership-institute-north-carolina.html
 
 **The Conservative Partnership Institute’s 2022 Annual Filing With the I.R.S.**\
 `This document shows that the nonprofit’s three highest-paid vendors were Compass Legal, Compass Professional and Compass Property Management. All three were connected to insiders at the nonprofit.`\
