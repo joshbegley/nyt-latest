@@ -1,7 +1,3 @@
-**Tyshawn Sorey Wins Pulitzer for Composing an ‘Anti-Concerto’**\
-`The composer and instrumentalist was honored for “Adagio (For Wadada Leo Smith),” an unconventional concerto written for saxophone and orchestra.`\
-https://nytimes.com/2024/05/06/arts/music/tyshawn-sorey-pulitzer-music.html
-
 **Christian Cowan and Sam Smith’s Met Gala Debut as a Couple**\
 `They made a statement about their relationship with matching rose clasps on their suit jackets.`\
 https://nytimes.com/2024/05/06/fashion/sam-smith-christian-cowan-met-gala.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/05/06/fashion/dan-levy-met-gala-loewe.html
 **The Boring Documents That May Be Devastating to Trump**\
 `In a case about falsified records, it’s the records themselves that count the most.`\
 https://nytimes.com/2024/05/06/opinion/trump-trial-documents.html
+
+**Trump, Who Has Celebrated Violent Protests, Cheers Campus Crackdowns**\
+`The former president’s calls for order in college unrest contrast with how he talks about Jan. 6.`\
+https://nytimes.com/2024/05/06/us/politics/trump-college-protests-jan-6.html
 
