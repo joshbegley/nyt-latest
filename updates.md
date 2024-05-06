@@ -1,3 +1,11 @@
+**Israel Warns Thousands to Evacuate Rafah, and Hollywood’s Summer Gets Off to a Rocky Start**\
+`Plus, Stormy Daniels is expected to testify.`\
+https://nytimes.com/2024/05/06/podcasts/israel-rafah-stormy-daniels.html
+
+**R.F.K. Jr.’s Battle to Get on the Ballot**\
+`The independent presidential candidate’s ballot access fight has already cost millions, federal campaign finance records show.`\
+https://nytimes.com/2024/05/06/podcasts/the-daily/rfk-jrs-independent-ballot.html
+
 **What to Know About Xi Jinping’s Trip to Europe**\
 `The Chinese president this week will be visiting France, Serbia and Hungary. His trip comes at a time of tensions with many European countries over trade and accusations of Chinese espionage.`\
 https://nytimes.com/2024/05/06/world/europe/what-to-know-xi-jinping-europe.html
