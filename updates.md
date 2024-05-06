@@ -1,3 +1,7 @@
+**A letter signed by at least three dozen U.Va. professors condemned school leaders over a police response.**\
+`By Emily Cochrane`\
+https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests/a-letter-signed-by-at-least-three-dozen-uva-professors-condemned-school-leaders-over-a-police-response
+
 **ABC News’ President, Kim Godwin, to Step Down**\
 `The first Black woman to run a broadcast news division, Ms. Godwin had a rocky tenure defined by infighting and damaging leaks.`\
 https://nytimes.com/2024/05/05/business/media/abc-news-president-kim-godwin-to-step-down.html

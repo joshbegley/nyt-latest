@@ -1,3 +1,7 @@
+**A letter signed by at least three dozen U.Va. professors condemned school leaders over a police response.**\
+`By Emily Cochrane`\
+https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests/a-letter-signed-by-at-least-three-dozen-uva-professors-condemned-school-leaders-over-a-police-response
+
 **ABC News’ President, Kim Godwin, to Step Down**\
 `The first Black woman to run a broadcast news division, Ms. Godwin had a rocky tenure defined by infighting and damaging leaks.`\
 https://nytimes.com/2024/05/05/business/media/abc-news-president-kim-godwin-to-step-down.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/05/crosswords/daily-puzzle-2024-05-06.html
 **Candidates for Federal Office Can Raise Unlimited Funds for Ballot Measures**\
 `A decision by the Federal Election Commission would allow the Biden and Trump campaigns to raise money for outside groups pushing ballot measures.`\
 https://nytimes.com/2024/05/05/us/politics/election-funds-ballot-measures.html
-
-**Monday Briefing: Xi Jinping Visits Europe**\
-`Also, Israel cracks down on Al Jazeera and Myanmar’s rebels get creative with drones.`\
-https://nytimes.com/2024/05/05/world/asia/xi-jinping-france-israel-jazeera-asia.html
 
