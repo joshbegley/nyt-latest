@@ -1,3 +1,7 @@
+**Bad Bunny steps out in Maison Margiela on the Met Gala red carpet.**\
+`By Callie Holtermann`\
+https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/bad-bunny-met-gala-margiela
+
 **Locks of Beethoven’s Hair Offer New Clues to the Mystery of His Deafness**\
 `Using powerful technologies, scientists found staggering amounts of lead and other toxic substances in the composer’s hair that may have come from wine, or other sources.`\
 https://nytimes.com/2024/05/06/health/beethoven-deaf-lead-hair.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/business/faa-boeing-787-dreamliner-inspections.ht
 **Gaza Isn’t Root of Biden’s Struggles With Young Voters, Polls Show**\
 `Young voters are far more likely than other Americans to support Palestinians. But few cite the conflict as a top source of discontent with the president.`\
 https://nytimes.com/2024/05/06/us/politics/biden-trump-gaza-college-protests.html
-
-**Israel Orders Partial Evacuation of Rafah, Fueling Fears of New Offensive**\
-`Hamas says it has agreed to a cease-fire plan that Israel said did not meet its demands, the latest in a long series of negotiating stumbles.`\
-https://nytimes.com/2024/05/06/world/middleeast/israel-rafah-hamas-ceasefire.html
 
