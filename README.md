@@ -1,3 +1,7 @@
+**Da’Vine Joy Randolph’s Gown Represents Two Debuts in One**\
+`The story behind the Oscar winner’s all-denim look.`\
+https://nytimes.com/2024/05/06/style/davine-joy-randolph-met-gala-zac-posen.html
+
 **Tyla Whips Up a Sandstorm on the Met Carpet**\
 `The South African singer and songwriter accessorized with a literal hourglass.`\
 https://nytimes.com/2024/05/06/fashion/tyla-met-gala-balmain.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/technology/wayve-ai-self-driving-vehicles.html
 **Who are the astronauts on the Starliner flight?**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/05/06/science/boeing-starliner-launch/who-are-the-astronauts-on-the-starliner-flight
-
-**Meat, Freedom and Ron DeSantis**\
-`A full plate of culture war and conspiracy theories.`\
-https://nytimes.com/2024/05/06/opinion/ron-desantis-cultured-meat.html
 
