@@ -1,3 +1,7 @@
+**Russia to Hold Drills on Tactical Nuclear Weapons in New Tensions With West**\
+`Russian officials claimed the order was in response to comments from the West about the possibility of more direct Western involvement in the war in Ukraine.`\
+https://nytimes.com/2024/05/06/world/europe/russia-tactical-nuclear-weapons-drills.html
+
 **First Patient Begins Newly Approved Sickle Cell Gene Therapy**\
 `A 12-year-old boy in the Washington, D.C., area faces months of procedures to remedy his disease. “I want to be cured,” he said.`\
 https://nytimes.com/2024/05/06/health/sickle-cell-cure-first.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/us/severe-weather-great-plains.html
 **‘They Are So Triggered by Me’: Conchita Wurst’s 10-Year Roller-Coaster Ride**\
 `Since winning the Eurovision Song Contest in 2014, the bearded drag queen has been celebrated and condemned. For her creator, Tom Neuwirth, it has been a journey.`\
 https://nytimes.com/2024/05/06/arts/music/conchita-wurst.html
-
-**Here is the latest on the campus protests.**\
-`By Yan Zhuang`\
-https://nytimes.com/live/2024/05/06/us/campus-protests/here-is-the-latest-on-the-campus-protests
 

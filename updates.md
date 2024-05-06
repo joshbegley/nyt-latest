@@ -1,3 +1,7 @@
+**Russia to Hold Drills on Tactical Nuclear Weapons in New Tensions With West**\
+`Russian officials claimed the order was in response to comments from the West about the possibility of more direct Western involvement in the war in Ukraine.`\
+https://nytimes.com/2024/05/06/world/europe/russia-tactical-nuclear-weapons-drills.html
+
 **UChicago Says Free Speech Is Sacred. Some Students See Hypocrisy.**\
 `The president has allowed protest encampments. But they have also disrupted campus life, and he wants the tents down.`\
 https://nytimes.com/2024/05/06/us/university-of-chicago-protests-encampment.html
