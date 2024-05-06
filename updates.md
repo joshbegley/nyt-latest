@@ -1,3 +1,11 @@
+**Maersk Says Expanded Houthi Attacks Are Forcing More Delays**\
+`The shipping company said the militia had recently tried to attack ships further from the shores of Yemen, putting more strain on logistics.`\
+https://nytimes.com/2024/05/06/business/maersk-houthi-red-sea-shipping.html
+
+**Trial Witness Says Some Hush Money Came From Trump’s Personal Bank Account**\
+`The reimbursement to Michael D. Cohen, the former Trump fixer who paid $130,000 in hush money to Stormy Daniels, is at the center of the criminal case against the former president.`\
+https://nytimes.com/2024/05/06/nyregion/jeffrey-mcconney-stormy-daniels.html
+
 **Inquiry Into Johannesburg Fire Blames City Officials for Deadly Conditions**\
 `Although a resident confessed to setting the August 2023 blaze that killed 76 people in a dilapidated building, a report found that officials had ignored warning signs for years.`\
 https://nytimes.com/2024/05/06/world/africa/south-africa-johannesburg-fire-inquiry.html
