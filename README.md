@@ -1,3 +1,7 @@
+**Today’s Wordle Review No. 1,052**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/06/crosswords/wordle-review.html
+
 **Israel Warns Thousands to Evacuate Rafah, and Hollywood’s Summer Gets Off to a Rocky Start**\
 `Plus, Stormy Daniels is expected to testify.`\
 https://nytimes.com/2024/05/06/podcasts/israel-rafah-stormy-daniels.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/opinion/trump-is-rallying-in-new-jersey-and-boast
 **Zendaya, Bad Bunny and a Threat of a Picket Line at the 2024 Met Gala**\
 `Who will show up? How will invitees interpret this year’s “Garden of Time” theme? Fashion’s biggest red carpet is finally here.`\
 https://nytimes.com/2024/05/06/fashion/met-gala-what-to-expect.html
-
-**Condé Nast Employees Threaten to Walk Off Job on Eve of Met Gala**\
-`Unionized Condé Nast employees said they were willing to disrupt Anna Wintour’s carefully laid plans over stalled contract negotiations.`\
-https://nytimes.com/2024/05/06/fashion/conde-nast-union-vogue-met-gala.html
 
