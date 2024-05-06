@@ -1,3 +1,7 @@
+**Before the big ball, there was the anti-Met Gala.**\
+`In Brooklyn, a D.I.Y. benefit for people with heavy medical debt parodied the celebrity-studded red-carpet affair.`\
+https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/before-the-big-ball-there-was-the-anti-met-gala
+
 **Sniffing walls and toasting A.I. at a preview of the exhibition.**\
 `The Metropolitan Museum of Art invited visitors to take an early look at its spring 2024 Costume Institute show.`\
 https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/sniffing-walls-and-toasting-ai-at-a-preview-of-the-exhibition

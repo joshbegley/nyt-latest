@@ -1,3 +1,7 @@
+**Before the big ball, there was the anti-Met Gala.**\
+`In Brooklyn, a D.I.Y. benefit for people with heavy medical debt parodied the celebrity-studded red-carpet affair.`\
+https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/before-the-big-ball-there-was-the-anti-met-gala
+
 **Sniffing walls and toasting A.I. at a preview of the exhibition.**\
 `The Metropolitan Museum of Art invited visitors to take an early look at its spring 2024 Costume Institute show.`\
 https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/sniffing-walls-and-toasting-ai-at-a-preview-of-the-exhibition
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/business/media/pulitzer-prizes.html
 **With talks stalled and a Rafah attack looming, Netanyahu tilts at an elusive victory.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/05/06/world/israel-gaza-war-hamas/with-talks-stalled-and-a-rafah-attack-looming-netanyahu-tilts-at-an-elusive-victory
-
-**5 Dead After Inhaling Hazardous Gas at a Water Plant in Sicily**\
-`An official said the workers were killed by hydrogen sulfide, which is toxic in high concentrations. Italian officials and unions repeated urgent calls for better workplace safety.`\
-https://nytimes.com/2024/05/06/world/europe/sicily-deaths-water-plant-gas.html
 
