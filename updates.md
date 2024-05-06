@@ -1,3 +1,11 @@
+**U.S. Labor Market Strength Steadies Social Security and Medicare Funds**\
+`The social safety net programs continue to face long-term shortfalls as lawmakers wrestle over reforms.`\
+https://nytimes.com/2024/05/06/us/politics/labor-market-social-security-medicare.html
+
+**Jurors in Trump Trial Hear Witness Tie the President to the Payment**\
+`Before prosecutors began presenting crucial records, the judge held Donald J. Trump in contempt, saying his complaints about the jury were “a direct attack on the rule of law.”`\
+https://nytimes.com/2024/05/06/nyregion/trump-trial-gag-order-hush-money.html
+
 **Pulitzer Prizes: 2024 Winners List**\
 `Here is the full list of winners and finalists.`\
 https://nytimes.com/2024/05/06/business/pulitzer-prize-winners.html

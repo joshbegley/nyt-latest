@@ -1,3 +1,11 @@
+**U.S. Labor Market Strength Steadies Social Security and Medicare Funds**\
+`The social safety net programs continue to face long-term shortfalls as lawmakers wrestle over reforms.`\
+https://nytimes.com/2024/05/06/us/politics/labor-market-social-security-medicare.html
+
+**Jurors in Trump Trial Hear Witness Tie the President to the Payment**\
+`Before prosecutors began presenting crucial records, the judge held Donald J. Trump in contempt, saying his complaints about the jury were “a direct attack on the rule of law.”`\
+https://nytimes.com/2024/05/06/nyregion/trump-trial-gag-order-hush-money.html
+
 **Pulitzer Prizes: 2024 Winners List**\
 `Here is the full list of winners and finalists.`\
 https://nytimes.com/2024/05/06/business/pulitzer-prize-winners.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/06/opinion/portable-mortgage-loans-housing.html
 **Geoff Duncan, Georgia’s Republican Former Lt. Gov., Says He Will Vote for Biden**\
 `“I am voting for a decent person I disagree with on policy over a criminal defendant without a moral compass,” wrote Mr. Duncan, who was in office during the 2020 election.`\
 https://nytimes.com/2024/05/06/us/politics/geoff-duncan-biden.html
-
-**Assaults on German Politicians Raise Election-Year Worries**\
-`Recent attacks came to a head on Friday when a victim was left with broken bones. Chancellor Olaf Scholz, whose Social Democrats have been a target, denounced the attacks as a threat to democracy.`\
-https://nytimes.com/2024/05/06/world/europe/germany-political-assaults.html
-
-**Mayor Adams to Meet With Pope Francis in Rome**\
-`The meeting is expected to happen on the sidelines of a larger event, the World Meeting on Human Fraternity, attended by Nobel laureates, artists, athletes and other politicians.`\
-https://nytimes.com/2024/05/06/nyregion/mayor-eric-adams-pope.html
 
