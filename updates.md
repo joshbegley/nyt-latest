@@ -1,3 +1,7 @@
+**Assaults on German Politicians Raise Election-Year Worries**\
+`Recent attacks came to a head on Friday when a victim was left with broken bones. Chancellor Olaf Scholz, whose Social Democrats have been a target, denounced the attacks as a threat to democracy.`\
+https://nytimes.com/2024/05/06/world/europe/germany-political-assaults.html
+
 **Mayor Adams to Meet With Pope Francis in Rome**\
 `The meeting is expected to happen on the sidelines of a larger event, the World Meeting on Human Fraternity, attended by Nobel laureates, artists, athletes and other politicians.`\
 https://nytimes.com/2024/05/06/nyregion/mayor-eric-adams-pope.html

@@ -1,3 +1,7 @@
+**Geoff Duncan, Georgia Republican, says he will vote for Biden.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/05/06/us/biden-trump-campaign/geoff-duncan-georgia-republican-says-he-will-vote-for-biden
+
 **Assaults on German Politicians Raise Election-Year Worries**\
 `Recent attacks came to a head on Friday when a victim was left with broken bones. Chancellor Olaf Scholz, whose Social Democrats have been a target, denounced the attacks as a threat to democracy.`\
 https://nytimes.com/2024/05/06/world/europe/germany-political-assaults.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/06/world/israel-gaza-war-hamas/hamas-says-it-ha
 **Jail for the Chief? There’s a Better Punishment.**\
 `Trump shouldn’t be allowed to use his punishment to play the martyr.`\
 https://nytimes.com/2024/05/06/opinion/trump-contempt-jail-punishment.html
-
-**Police Raid U.C. San Diego Encampment and Arrest 64 Protesters**\
-`Videos from the scene showed police officers wearing helmets and carrying batons as they handcuffed protesters and led them away from the tents.`\
-https://nytimes.com/2024/05/06/us/ucsd-campus-protests-arrests.html
 

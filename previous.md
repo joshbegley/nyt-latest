@@ -1,3 +1,7 @@
+**Assaults on German Politicians Raise Election-Year Worries**\
+`Recent attacks came to a head on Friday when a victim was left with broken bones. Chancellor Olaf Scholz, whose Social Democrats have been a target, denounced the attacks as a threat to democracy.`\
+https://nytimes.com/2024/05/06/world/europe/germany-political-assaults.html
+
 **Mayor Adams to Meet With Pope Francis in Rome**\
 `The meeting is expected to happen on the sidelines of a larger event, the World Meeting on Human Fraternity, attended by Nobel laureates, artists, athletes and other politicians.`\
 https://nytimes.com/2024/05/06/nyregion/mayor-eric-adams-pope.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/opinion/trump-contempt-jail-punishment.html
 **Police Raid U.C. San Diego Encampment and Arrest 64 Protesters**\
 `Videos from the scene showed police officers wearing helmets and carrying batons as they handcuffed protesters and led them away from the tents.`\
 https://nytimes.com/2024/05/06/us/ucsd-campus-protests-arrests.html
-
-**Coming Soon to Little Island: An Arts Festival With Powerful Backers**\
-`The mogul Barry Diller, who paid for the park, will finance a summer season of music, dance, theater and more, shaped in part by the Broadway producer Scott Rudin.`\
-https://nytimes.com/2024/05/06/arts/music/little-island-festival-barry-diller-scott-rudin-twyla-tharp.html
 
