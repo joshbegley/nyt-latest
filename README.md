@@ -1,3 +1,7 @@
+**5 Dead After Inhaling Hazardous Gas at a Water Plant in Sicily**\
+`An official said the workers were killed by hydrogen sulfide, which is toxic in high concentrations. Italian officials and unions repeated urgent calls for better workplace safety.`\
+https://nytimes.com/2024/05/06/world/europe/sicily-deaths-water-plant-gas.html
+
 **Hamas’s announcement adds to the uncertainty of the cease-fire talks**\
 `The terms Hamas had agreed to were not immediately clear, but a senior Israeli official quickly said that the terms were not those that Israel had agreed to.`\
 https://nytimes.com/2024/05/06/world/middleeast/israel-hamas-gaza-ceasefire-talks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/nyregion/deborah-tarasoff-trump-trial-stormy-dani
 **Why Does Trump Face Felony Charges? Prosecutors Say He Was Hiding Other Crimes.**\
 `Donald J. Trump faces 34 felony counts in his Manhattan trial, but none involve the other misconduct that prosecutors say he engaged in.`\
 https://nytimes.com/2024/05/06/nyregion/trump-charges-felonies.html
-
-**Biden will meet with Jordan’s king, a key Mideast ally.**\
-`By Erica L. Green`\
-https://nytimes.com/live/2024/05/06/world/israel-gaza-war-hamas/biden-will-meet-with-jordans-king-a-key-mideast-ally
 
