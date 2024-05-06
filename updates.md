@@ -1,3 +1,7 @@
+**What to Know About Xi Jinping’s Trip to Europe**\
+`The Chinese president this week will be visiting France, Serbia and Hungary. His trip comes at a time of tensions with many European countries over trade and accusations of Chinese espionage.`\
+https://nytimes.com/2024/05/06/world/europe/xi-jinping-europe-china.html
+
 **How Bad Is A.I. for the Climate?**\
 `Tech giants are building power-hungry data centers to run their artificial intelligence tools. The costs of that demand surge are becoming clearer.`\
 https://nytimes.com/2024/05/06/business/dealbook/ai-power-energy-climate.html
