@@ -1,3 +1,7 @@
+**Bernie Sanders to Run for Re-Election, Seeking a Fourth Senate Term**\
+`The 82-year-old Vermont independent, a leading progressive in Washington, cast November’s elections as a fight for democracy.`\
+https://nytimes.com/2024/05/06/us/politics/bernie-sanders-re-election-senate.html
+
 **European Oil Giants Consider Shifting Their Listings to the U.S.**\
 `TotalEnergies and Shell are contemplating the advantages of listing shares in the United States to strengthen what they say are low market valuations.`\
 https://nytimes.com/2024/05/06/business/shell-total-stock-listing-london-new-york.html
