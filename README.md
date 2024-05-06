@@ -1,6 +1,10 @@
-**Allen Weisselberg had a major role in Stormy Daniels’s hush deal, witness says.**\
-`By Matthew Haag`\
-https://nytimes.com/2024/05/06/nyregion/allen-weisselberg-had-a-major-role-in-stormy-danielss-hush-deal-witness-says.html
+**European Oil Giants Consider Shifting Their Listings to the U.S.**\
+`TotalEnergies and Shell are contemplating the advantages of listing shares in the United States to strengthen what they say are low market valuations.`\
+https://nytimes.com/2024/05/06/business/shell-total-stock-listing-london-new-york.html
+
+**Trump Firm’s Ex-Finance Chief Was Key to Hush-Money Deal, Witness Says**\
+`Allen H. Weisselberg instructed Jeffrey S. McConney to send reimbursements to Donald J. Trump’s former fixer, Mr. McConney testified.`\
+https://nytimes.com/2024/05/06/nyregion/allen-weisselberg-trump-trial.html
 
 **Taylor Swift’s ‘Tortured Poets’ Posts a Huge Second Week on the Chart**\
 `After a blockbuster opening, the singer’s new album earned the biggest second-week totals since 2015, nearly doubling the rest of the Top 5 combined.`\
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/05/06/us/conservative-partnership-institute
 **A Little More Carbon Monoxide Might Really Help the Planet**\
 `A new scientific process breaks down climate-warming carbon dioxide into something more useful.`\
 https://nytimes.com/live/2024/05/01/opinion/thepoint/carbon-dioxide-monoxide-climate
-
-**The Conservative Partnership Institute’s 2021 Annual Filing With the I.R.S.**\
-`The filing shows a sharp increase in the institute’s funding, during a year when it sought to become a nerve center for President Donald J. Trump’s allies in Washington.`\
-https://nytimes.com/interactive/2024/05/06/us/irs-filing-conservative-institute.html
 
