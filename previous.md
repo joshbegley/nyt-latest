@@ -1,3 +1,7 @@
+**A Master of ‘Subtle Dazzle’ and a Quiet Force in Downtown Dance**\
+`Carol Mullins, who has been lighting boundary-pushing shows at Danspace Project since the 1970s, will be honored at its 50th anniversary.`\
+https://nytimes.com/2024/05/06/arts/dance/carol-mullins-light-designer-danspace.html
+
 **Fears, and prices, soar in Rafah after Israel’s evacuation order.**\
 `By Liam Stack, Bilal Shbair and Adam Rasgon`\
 https://nytimes.com/live/2024/05/06/world/israel-gaza-war-hamas/fears-and-prices-soar-in-rafah-after-israels-evacuation-order
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/world/africa/south-africa-johannesburg-fire-inqui
 **Review: ‘The Hours’ Returns to the Met Opera With Its Stars**\
 `Renée Fleming, Kelli O’Hara and Joyce DiDonato reprised their roles in Kevin Puts’s adaptation of the award-winning novel and film.`\
 https://nytimes.com/2024/05/06/arts/music/the-hours-met-opera-review.html
-
-**In Meeting With Xi, E.U. Leader Takes Tough Line on Ukraine War**\
-`Ursula Von der Leyen, the European Commission president, pushed Beijing to help rein in Russia’s war in Ukraine after meeting with the Chinese and French leaders in Paris.`\
-https://nytimes.com/2024/05/06/world/europe/xi-macron-europe-trade-war.html
 
