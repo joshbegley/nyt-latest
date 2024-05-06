@@ -1,3 +1,7 @@
+**ABC News’ President, Kim Godwin, to Step Down**\
+`The first Black woman to run a broadcast news division, Ms. Godwin had a rocky tenure defined by infighting and damaging leaks.`\
+https://nytimes.com/2024/05/05/business/media/abc-news-president-kim-godwin-to-step-down.html
+
 **Set to reopen classes, U.C.L.A. announces a new campus security office.**\
 `By Jonathan Wolfe`\
 https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests/set-to-reopen-classes-ucla-announces-a-new-campus-security-office
