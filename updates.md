@@ -1,3 +1,7 @@
+**5 Dead After Inhaling Hazardous Gas at a Water Plant in Sicily**\
+`An official said the workers were killed by hydrogen sulfide, which is toxic in high concentrations. Italian officials and unions repeated urgent calls for better workplace safety.`\
+https://nytimes.com/2024/05/06/world/europe/sicily-deaths-water-plant-gas.html
+
 **Hamas’s announcement adds to the uncertainty of the cease-fire talks**\
 `The terms Hamas had agreed to were not immediately clear, but a senior Israeli official quickly said that the terms were not those that Israel had agreed to.`\
 https://nytimes.com/2024/05/06/world/middleeast/israel-hamas-gaza-ceasefire-talks.html
