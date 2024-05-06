@@ -1,3 +1,7 @@
+**The Met Gala’s Strange but Fitting Literary Inspiration**\
+`In 1962, J.G. Ballard published “The Garden of Time,” a short story about aristocrats overrun by “an immense rabble.” Now it’s the dress-code theme for the year’s most lavish ball.`\
+https://nytimes.com/2024/05/06/fashion/garden-of-time-jg-ballard-story.html
+
 **Eboni Booth on Winning the Drama Pulitzer for ‘Primary Trust’**\
 `This play about a lonely, emotionally damaged man resonated with audiences returning to the theater after the pandemic.`\
 https://nytimes.com/2024/05/06/theater/eboni-booth-drama-pulitzer.html

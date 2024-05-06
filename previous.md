@@ -1,3 +1,7 @@
+**The Met Gala’s Strange but Fitting Literary Inspiration**\
+`In 1962, J.G. Ballard published “The Garden of Time,” a short story about aristocrats overrun by “an immense rabble.” Now it’s the dress-code theme for the year’s most lavish ball.`\
+https://nytimes.com/2024/05/06/fashion/garden-of-time-jg-ballard-story.html
+
 **Eboni Booth on Winning the Drama Pulitzer for ‘Primary Trust’**\
 `This play about a lonely, emotionally damaged man resonated with audiences returning to the theater after the pandemic.`\
 https://nytimes.com/2024/05/06/theater/eboni-booth-drama-pulitzer.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/dining/drake-kendrick-lamar-chinese-restaurant-to
 **TV News Can’t Sidestep Turbulence as Election Approaches**\
 `ABC, NBC, CBS and CNN all face questions about their future, just as one of the toughest journalistic assignments looms.`\
 https://nytimes.com/2024/05/06/business/media/tv-news-turbulence-election.html
-
-**What to know about NASA’s latest ride to orbit.**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2024/05/06/science/boeing-starliner-launch/what-to-know-about-nasas-latest-ride-to-orbit
 
