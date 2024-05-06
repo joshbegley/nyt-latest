@@ -1,3 +1,7 @@
+**UChicago Says Free Speech Is Sacred. Some Students Sees Hypocrisy.**\
+`The president has allowed protest encampments. But they have also disrupted campus life, and he wants the tents down.`\
+https://nytimes.com/2024/05/06/us/university-of-chicago-protests-encampment.html
+
 **A Fresh Approach to a Crisis**\
 `A group of researchers posited another explanation for the youth mental health crisis: Too much discussion.`\
 https://nytimes.com/2024/05/06/briefing/youth-mental-health-crisis.html
