@@ -1,3 +1,7 @@
+**ABC News’ President, Kim Godwin, to Step Down**\
+`The first Black woman to run a broadcast news division, Ms. Godwin had a rocky tenure defined by infighting and damaging leaks.`\
+https://nytimes.com/2024/05/05/business/media/abc-news-president-kim-godwin-to-step-down.html
+
 **Set to reopen classes, U.C.L.A. announces a new campus security office.**\
 `By Jonathan Wolfe`\
 https://nytimes.com/live/2024/05/05/us/college-graduation-campus-protests/set-to-reopen-classes-ucla-announces-a-new-campus-security-office
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/05/us/politics/election-funds-ballot-measures.html
 **Monday Briefing: Xi Jinping Visits Europe**\
 `Also, Israel cracks down on Al Jazeera and Myanmar’s rebels get creative with drones.`\
 https://nytimes.com/2024/05/05/world/asia/xi-jinping-france-israel-jazeera-asia.html
-
-**Media experts condemn Israel’s move against Al Jazeera.**\
-`By Steve Lohr`\
-https://nytimes.com/live/2024/05/05/world/israel-gaza-war-hamas/media-experts-condemn-israels-move-against-al-jazeera
 
