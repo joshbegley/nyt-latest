@@ -1,3 +1,7 @@
+**Monday Briefing**\
+`Cease-fire talks stall.`\
+https://nytimes.com/2024/05/06/briefing/ceasefire-talks-xi-jinping-europe.html
+
 **In China, Ruled by Men, Women Quietly Find a Powerful Voice**\
 `Women in Shanghai gather in bars, salons and bookstores to reclaim their identities as the country’s leader calls for China to adopt a “childbearing culture.”`\
 https://nytimes.com/2024/05/06/business/shanghai-china-feminism.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/05/science/dogs-aggression-euthanasia.html
 **Bernard Hill, Actor in ‘Titanic’ and ‘Lord of the Rings,’ Dies at 79**\
 `With a stout frame, bushy whiskers and a weathered visage, he embodied men of authority facing down danger with weary stoicism.`\
 https://nytimes.com/2024/05/05/obituaries/bernard-hill-dead.html
-
-**4 Children From Gaza Arrive in U.S. for Medical Treatment**\
-`The children, who were injured or suffered malnutrition, were greeted at Kennedy Airport with toys and balloons. “These are their first memories here,” one supporter said.`\
-https://nytimes.com/2024/05/05/nyregion/gaza-children-us-hospitals.html
 
