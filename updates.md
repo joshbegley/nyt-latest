@@ -1,3 +1,7 @@
+**Before stepping into the Met Gala, many guests step out of this van.**\
+`The boxy Mercedes-Benz Sprinter has become the carriage of choice for many celebrities.`\
+https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/before-stepping-into-the-met-gala-many-guests-step-out-of-this-van
+
 **After a five-year hiatus, Zendaya will return to the Met Gala red carpet.**\
 `Many of the star’s biggest recent fashion splashes have been in service of promoting movie projects.`\
 https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/after-a-five-year-hiatus-zendaya-will-return-to-the-met-gala-red-carpet

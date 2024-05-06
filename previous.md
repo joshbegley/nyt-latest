@@ -1,3 +1,7 @@
+**Before stepping into the Met Gala, many guests step out of this van.**\
+`The boxy Mercedes-Benz Sprinter has become the carriage of choice for many celebrities.`\
+https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/before-stepping-into-the-met-gala-many-guests-step-out-of-this-van
+
 **After a five-year hiatus, Zendaya will return to the Met Gala red carpet.**\
 `Many of the star’s biggest recent fashion splashes have been in service of promoting movie projects.`\
 https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/after-a-five-year-hiatus-zendaya-will-return-to-the-met-gala-red-carpet
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/health/kris-hallenga-dead.html
 **University of Chicago Professors Say They Will Risk Arrest at Protest**\
 `A group of faculty members called on administrators to resume negotiations with pro-Palestinian student protesters.`\
 https://nytimes.com/2024/05/06/us/uchicago-faculty-protest-encampment.html
-
-**U.S. Labor Market Strength Steadies Social Security and Medicare Funds**\
-`The social safety net programs continue to face long-term shortfalls as lawmakers wrestle over reforms.`\
-https://nytimes.com/2024/05/06/us/politics/labor-market-social-security-medicare.html
 
