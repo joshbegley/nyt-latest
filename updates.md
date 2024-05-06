@@ -1,3 +1,15 @@
+**Bad Bunny steps out in Maison Margiela on the Met Gala red carpet.**\
+`By Callie Holtermann`\
+https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/bad-bunny-met-gala-margiela
+
+**Locks of Beethoven’s Hair Offer New Clues to the Mystery of His Deafness**\
+`Using powerful technologies, scientists found staggering amounts of lead and other toxic substances in the composer’s hair that may have come from wine, or other sources.`\
+https://nytimes.com/2024/05/06/health/beethoven-deaf-lead-hair.html
+
+**Trump Is Threatened With Jail at His Criminal Trial: 5 Takeaways**\
+`Prosecutors on Monday took the jury deep into the Trump Organization’s ledgers as the state’s case proceeds at speed.`\
+https://nytimes.com/2024/05/06/nyregion/trump-trial-takeaways-mcconney-tarasoff.html
+
 **What to know about NASA’s latest ride to orbit.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/05/06/science/boeing-starliner-launch/what-to-know-about-nasas-latest-ride-to-orbit
