@@ -1,3 +1,7 @@
+**Netanyahu Asserts Israel’s Right to Fight Its Enemies in Defiant Speech**\
+`Prime Minister Benjamin Netanyahu has been steadfast in his goal of destroying Hamas. On Sunday, he defended Israel’s right to defend itself at a Holocaust remembrance event.`\
+https://nytimes.com/2024/05/06/world/middleeast/netanyahu-holocaust-gaza-yad-vashem.html
+
 **Trump’s Criminal Trial Speeds Along, With Few Key Witnesses Remaining**\
 `The trial is entering its third week of testimony, and Stormy Daniels, the porn star at the center of it, could soon take the stand.`\
 https://nytimes.com/2024/05/06/nyregion/trump-trial-stormy-daniels.html
