@@ -1,3 +1,7 @@
+**Inquiry Into Johannesburg Fire Blames City Officials for Deadly Conditions**\
+`Although a resident confessed to setting the August 2023 blaze that killed 76 people in a dilapidated building, a report found that officials had ignored warning signs for years.`\
+https://nytimes.com/2024/05/06/world/africa/south-africa-johannesburg-fire-inquiry.html
+
 **Review: ‘The Hours’ Returns to the Met Opera With Its Stars**\
 `Renée Fleming, Kelli O’Hara and Joyce DiDonato reprised their roles in Kevin Puts’s adaptation of the award-winning novel and film.`\
 https://nytimes.com/2024/05/06/arts/music/the-hours-met-opera-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/arts/music/kendrick-lamar-drake-explainer.html
 **Corrections: May 4, 2024**\
 `Corrections that appeared in print on Saturday, May 4, 2024.`\
 https://nytimes.com/2024/05/06/pageoneplus/corrections-may-4-2024.html
-
-**After Weeks of Protests, Columbia Cancels Main Commencement Ceremony**\
-`Columbia’s president had earlier said that she did not want to deprive students of an in-person celebration after many graduated high school during the pandemic.`\
-https://nytimes.com/2024/05/06/nyregion/columbia-commencement-cancel-protests.html
 
