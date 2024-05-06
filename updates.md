@@ -1,3 +1,7 @@
+**Compass Direct LLC’s 2024 Registration in North Carolina**\
+`Compass Direct LLC is run by Patrick Corrigan, the brother of Edward Corrigan, the president of Conservative Partnership Institute.`\
+https://nytimes.com/interactive/2024/05/06/us/compass-direct-llc-north-carolina.html
+
 **Conservative Partnership Institute’s Registration to Fundraise in North Carolina**\
 `This document shows that the Conservative Partnership Institute hired a fundraising company called Compass Direct LLC. That company was run by the brother of the nonprofit’s president. Its contract paid $15,000 per month.`\
 https://nytimes.com/interactive/2024/05/06/us/conservative-partnership-institute-north-carolina.html

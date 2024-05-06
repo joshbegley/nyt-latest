@@ -1,3 +1,7 @@
+**Compass Direct LLC’s 2024 Registration in North Carolina**\
+`Compass Direct LLC is run by Patrick Corrigan, the brother of Edward Corrigan, the president of Conservative Partnership Institute.`\
+https://nytimes.com/interactive/2024/05/06/us/compass-direct-llc-north-carolina.html
+
 **Conservative Partnership Institute’s Registration to Fundraise in North Carolina**\
 `This document shows that the Conservative Partnership Institute hired a fundraising company called Compass Direct LLC. That company was run by the brother of the nonprofit’s president. Its contract paid $15,000 per month.`\
 https://nytimes.com/interactive/2024/05/06/us/conservative-partnership-institute-north-carolina.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/opinion/letters/nancy-pelosi-democracy-reforms.ht
 **Study Suggests Genetics as a Cause, Not Just a Risk, for Some Alzheimers**\
 `People with two copies of the gene variant APOE4 are almost certain to get Alzheimer’s, say researchers, who proposed a framework under which such patients could be diagnosed years before symptoms.`\
 https://nytimes.com/2024/05/06/health/alzheimers-cause-gene-apoe4.html
-
-**Can You Recognize This Novel From a One-Line Description?**\
-`Try this short quiz to see how many books you can identify based on an extremely brief plot summary.`\
-https://nytimes.com/interactive/2024/05/06/books/review/novel-plot-quiz.html
 
