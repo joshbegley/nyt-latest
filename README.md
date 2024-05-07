@@ -1,3 +1,7 @@
+**In a Surprise, Disney+ Becomes Profitable**\
+`The streaming service added 6 million subscriptions and made $47 million in its latest quarter, helping Disney deliver stronger-than-expected earnings.`\
+https://nytimes.com/2024/05/07/business/media/disney-quarterly-earnings.html
+
 **Xi to Head for Friendly Ports in an Eastern Europe Disenchanted With China**\
 `After leaving France later Tuesday, the Chinese leader will visit Serbia and Hungary, whose authoritarian leaders offer a haven for China as tensions grow over the war in Ukraine.`\
 https://nytimes.com/2024/05/07/world/europe/xi-serbia-hungary-europe.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/07/world/asia/china-hospital-knife-stabbing-attack.h
 **The One Thing Trump Knows He Wants in a Running Mate**\
 `When election denialism is a prerequisite.`\
 https://nytimes.com/2024/05/07/opinion/trump-running-mate-election.html
-
-**Israel Shutters One of Its Few Links to the Arab World**\
-`Al Jazeera did important reporting in Gaza and could have helped communicate terms of a cease-fire.`\
-https://nytimes.com/2024/05/07/opinion/israel-shutters-al-jazeera.html
 
