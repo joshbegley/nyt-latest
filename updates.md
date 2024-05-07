@@ -1,3 +1,7 @@
+**Shots, Shots, Shots! Why Tiny Drinks Are on the Rise.**\
+`Bartenders are shrinking their pours with variety and festivity in mind.`\
+https://nytimes.com/2024/05/07/t-magazine/tiny-drinks-cocktails-shots.html
+
 **U.S. Tightens Rules on Risky Virus Research**\
 `A long-awaited new policy broadens the type of regulated viruses, bacteria, fungi and toxins, including those that could threaten crops and livestock.`\
 https://nytimes.com/2024/05/07/science/covid-lab-leak-biosafety-rules-virus-research.html

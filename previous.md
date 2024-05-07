@@ -1,3 +1,7 @@
+**Shots, Shots, Shots! Why Tiny Drinks Are on the Rise.**\
+`Bartenders are shrinking their pours with variety and festivity in mind.`\
+https://nytimes.com/2024/05/07/t-magazine/tiny-drinks-cocktails-shots.html
+
 **U.S. Tightens Rules on Risky Virus Research**\
 `A long-awaited new policy broadens the type of regulated viruses, bacteria, fungi and toxins, including those that could threaten crops and livestock.`\
 https://nytimes.com/2024/05/07/science/covid-lab-leak-biosafety-rules-virus-research.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/07/fashion/met-gala-parties-boom-boom-room.html
 **In Europe, Police Arrest Protesters and Clear Encampments at Universities**\
 `Many European students’ demands parallel those of U.S. students, including for universities to disclose their investment streams and divest from those supporting Israel in the war in Gaza.`\
 https://nytimes.com/2024/05/07/us/europe-universities-protesters-encampments.html
-
-**E. Coli Has Been Found in Ground Beef and Walnuts. Here’s What to Know.**\
-`The bacteria sickens an estimated 265,000 Americans each year.`\
-https://nytimes.com/2024/05/07/well/live/ecoli-food-poisoning-beef-walnuts.html
 
