@@ -1,23 +1,3 @@
-**‘People are going to continue to die’: Israel’s operation in Rafah has left doctors scrambling.**\
-`By Anushka Patil and Iyad Abuheweila`\
-https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/people-are-going-to-continue-to-die-israels-operation-in-rafah-has-left-doctors-scrambling
-
-**Senator Mike Braun Clinches G.O.P. Nomination for Indiana Governor**\
-`Mr. Braun, a first-term senator, will enter the general election as the strong favorite in his reliably conservative state.`\
-https://nytimes.com/2024/05/07/us/indiana-governor-primary.html
-
-**When These Snakes Play Dead, Soiling Themselves Is Part of the Act**\
-`Dice snakes found on an island in southeastern Europe fully commit themselves to the role of ex-reptile.`\
-https://nytimes.com/2024/05/07/science/snakes-playing-dead.html
-
-**Stormy Daniels Delivers Intense Testimony in Trump’s Trial: 5 Takeaways**\
-`A long day on the stand put Ms. Daniels’s credibility to the test as defense lawyers challenged her motives.`\
-https://nytimes.com/2024/05/07/nyregion/stormy-daniels-trump-hush-money.html
-
-**Israeli Tanks Enter Rafah as Cease-Fire Talks Resume in Cairo**\
-`An Israeli incursion into the southern Gaza city did not appear to be the long-anticipated, full-scale invasion of the city, home to about a million displaced Palestinians.`\
-https://nytimes.com/2024/05/07/world/middleeast/israeli-rafah-gaza-ceasefire.html
-
 **Sanitation Company Fined $649,000 for Hiring Children in Slaughterhouses**\
 `Fayette Janitorial Service was also ordered to change practices that the Labor Department said had led to the hiring of at least two dozen children in dangerous slaughterhouses and meatpacking facilities.`\
 https://nytimes.com/2024/05/07/us/slaughterhouse-fine-children-clean.html
@@ -37,4 +17,24 @@ https://nytimes.com/2024/05/07/us/politics/trump-documents-trial-postponed.html
 **Stormy Daniels Testified About Core Details in Trump’s Trial**\
 `Also, TikTok sued the U.S. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/05/07/briefing/stormy-daniels-testimony-israel-hamas-rafah.html
+
+**White House Condemns Taunting of a Black Student at Ole Miss**\
+`In a widely shared video, one white male student at the University of Mississippi appeared to make monkey gestures at a Black pro-Palestinian protester, as others jeered.`\
+https://nytimes.com/2024/05/07/us/ole-miss-protests-video.html
+
+**Trump, Biden and a Split Screen Made for This Moment**\
+`President Biden gave a speech on Holocaust remembrance. Former President Trump was in court with Stormy Daniels. The day captured the sometimes unreal reality of a presidential race like none before it.`\
+https://nytimes.com/2024/05/07/us/politics/trump-trial-biden-speech-holocaust.html
+
+**Consultants to Examine Police Response to Attack at U.C.L.A.**\
+`The University of California system said it would bring in a police consulting firm to investigate why the attack on pro-Palestinian demonstrators was allowed to continue for hours.`\
+https://nytimes.com/2024/05/07/us/ucla-protests-police-investigation.html
+
+**Stormy Daniels, Unfiltered, Takes the Stand**\
+`The porn star at the center of Donald Trump’s criminal trial testified, at times in graphic detail, about the sexual encounter she said she had with Trump in 2006.`\
+https://nytimes.com/2024/05/07/us/politics/trump-trial-stormy-daniels-unfiltered-takes-stand.html
+
+**How Much Money Did This Year’s Met Gala Raise?**\
+`Ticket prices to the event have sharply risen, making it a fund-raising bonanza for the Metropolitan Museum of Art’s Costume Institute.`\
+https://nytimes.com/2024/05/07/style/met-gala-money-fund-raising.html
 
