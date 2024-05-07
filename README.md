@@ -1,3 +1,7 @@
+**Amanda Seyfried Asked for a ‘Sustainable’ Met Gala Dress**\
+`The story behind her semi-recycled red-carpet look.`\
+https://nytimes.com/2024/05/06/style/amanda-seyfried-met-gala-prada.html
+
 **Hochul Apologizes for Saying ‘Black Kids’ Don’t Know the Word ‘Computer’**\
 `As Gov. Kathy Hochul urged business leaders to make technology widely accessible, a comment she made about Bronx children raised eyebrows.`\
 https://nytimes.com/2024/05/06/nyregion/hochul-black-kids-computer.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/06/science/boeing-starliner-launch/spacex-nasa-
 **How a Tiny Chicago News Organization Won 2 Pulitzers**\
 `The Invisible Institute, a nonprofit newsroom with roughly a dozen journalists, was recognized for local and audio reporting.`\
 https://nytimes.com/2024/05/06/business/media/invisible-institute-two-pulitzer-prizes.html
-
-**Emily Ratajkowski Was 10 When Her Met Gala Dress Was Made**\
-`The story behind the archival red-carpet look.`\
-https://nytimes.com/2024/05/06/fashion/emily-ratajkowski-met-gala-versace.html
 
