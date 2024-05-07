@@ -1,3 +1,7 @@
+**With or Without Tesla, More E.V. Chargers Are Coming**\
+`Experts say that a new wave of electric vehicle charging stations are coming soon, even after Tesla gutted its charger team.`\
+https://nytimes.com/2024/05/07/climate/new-ev-charging-stations-tesla.html
+
 **A Thank-You Note to the Campus Protesters**\
 `You are my daily reminder of what my Zionism is for, about and against.`\
 https://nytimes.com/2024/05/07/opinion/a-thank-you-note-to-the-campus-protesters.html
