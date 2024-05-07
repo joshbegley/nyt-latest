@@ -1,3 +1,7 @@
+**2 French Toast Recipes to Make Mother’s Day Brunch Unforgettable**\
+`Variations have been around since bread was invented, but these new takes show it off simply and stunningly.`\
+https://nytimes.com/2024/05/07/dining/mothers-day-brunch-french-toast-recipes.html
+
 **Stormy Daniels Tells of Her Encounter With Trump in Tahoe**\
 `The porn star met the future president at a golf tournament, and she said she was invited to his suite. Her account of what happened next eventually resulted in Donald J. Trump’s criminal trial.`\
 https://nytimes.com/2024/05/07/nyregion/stormy-daniels-trump-tahoe.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/07/us/politics/kristi-noem-book-cricket-kim.html
 **Tadhana Showcases Filipino Cuisine With a 16-Course Tasting Menu**\
 `Inday serves fast-casual Indian American fare, Summer at the Rink Rock Center provides al fresco dining and more restaurant news.`\
 https://nytimes.com/2024/05/07/dining/nyc-restaurant-news.html
-
-**‘Every Dollar Counts’: Prosecutors Use Quotes From Trump’s Books Against Him**\
-`Donald J. Trump’s books provided prosecutors with passages they believe can help their case, as they argue that he knew that his company falsified business records to cover up a hush-money payment to Stormy Daniels.`\
-https://nytimes.com/2024/05/07/nyregion/sally-franklin-books-trump-trial.html
 

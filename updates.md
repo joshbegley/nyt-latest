@@ -1,3 +1,7 @@
+**2 French Toast Recipes to Make Mother’s Day Brunch Unforgettable**\
+`Variations have been around since bread was invented, but these new takes show it off simply and stunningly.`\
+https://nytimes.com/2024/05/07/dining/mothers-day-brunch-french-toast-recipes.html
+
 **Stormy Daniels Tells of Her Encounter With Trump in Tahoe**\
 `The porn star met the future president at a golf tournament, and she said she was invited to his suite. Her account of what happened next eventually resulted in Donald J. Trump’s criminal trial.`\
 https://nytimes.com/2024/05/07/nyregion/stormy-daniels-trump-tahoe.html
