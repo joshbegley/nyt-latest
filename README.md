@@ -1,10 +1,10 @@
+**Weekly Student New Quiz: Abortion, Campus Protests, Kentucky Derby**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2024/05/07/learning/07StudentNewsQuiz.html
+
 **Sweetgreen Is Introducing Steak. What About Its Climate Goals?**\
 `The fast-casual chain aims to be climate neutral by 2027, but beef is a big contributor to climate change.`\
 https://nytimes.com/2024/05/07/dining/sweetgreen-steak.html
-
-**07trump-trial**\
-`Live Updates: In Trump Trial, the Next Major Witness Is a Mystery`\
-https://nytimes.com/live/2024/05/07/nyregion/trump-trial-hush-money-stormy-daniels
 
 **Met Gala**\
 `What were your favorite and least favorite looks at this year’s show?`\
