@@ -1,3 +1,11 @@
+**Outage Causes Delays at U.K. Airports’ Immigration Checkpoints**\
+`Airport officials said that a system outage affecting the Border Force’s immigration gates was causing long waits for passengers arriving in Britain.`\
+https://nytimes.com/2024/05/07/world/europe/uk-airport-outage-e-gates.html
+
+**Judge Postpones Start of Trump Documents Trial Without New Date**\
+`Judge Aileen Cannon had previously made clear that the trial would not start as scheduled this month but she declined to set a new timetable, saying many pretrial issues still have to be resolved.`\
+https://nytimes.com/2024/05/07/us/politics/trump-documents-trial-postponed.html
+
 **Stormy Daniels Testified About Core Details in Trump’s Trial**\
 `Also, TikTok sued the U.S. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/05/07/briefing/stormy-daniels-testimony-israel-hamas-rafah.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/07/world/asia/rafah-talks-cairo-stormy-trump-asia.ht
 **Early-rising members of the public witnessed a courtroom spectacle.**\
 `By Nate Schweber`\
 https://nytimes.com/live/2024/05/07/nyregion/trump-trial-hush-money-stormy-daniels/early-rising-members-of-the-public-witnessed-a-courtroom-spectacle
-
-**Inquiry Finds a Toxic Culture at the F.D.I.C., and Takes Aim at Its Leader**\
-`Bad workplace behavior was pervasive at the bank regulator, according to an investigation that questioned whether things can improve without a change in leadership.`\
-https://nytimes.com/2024/05/07/business/fdic-inquiry-workplace-culture.html
-
-**Transcript: Ezra Klein Interviews Ari Shavit**\
-`The May 7, 2024, episode of “The Ezra Klein Show.”`\
-https://nytimes.com/2024/05/07/podcasts/transcript-ezra-klein-interviews-ari-shavit.html
 
