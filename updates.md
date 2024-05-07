@@ -1,3 +1,7 @@
+**Pro-Palestinian Protesters Resist Order to Clear Encampment at M.I.T.**\
+`The police were an increasing presence around the edges of the protest as evening fell, including state troopers with tactical gear and zip ties.`\
+https://nytimes.com/2024/05/06/us/mit-protests-encampment.html
+
 **Sound of Enlightenment**\
 `Justin Werfel makes his debut in the New York Times Crossword.`\
 https://nytimes.com/2024/05/06/crosswords/daily-puzzle-2024-05-07.html
