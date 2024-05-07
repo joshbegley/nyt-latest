@@ -1,3 +1,11 @@
+**Tuesday Briefing**\
+`Israel’s strikes on Rafah.`\
+https://nytimes.com/2024/05/07/world/europe/rafah-strikes-russia-ukraine.html
+
+**20 Unforgettable Looks at the Met Gala**\
+`At an event where fashion is the focus, these ensembles stood out more than most.`\
+https://nytimes.com/2024/05/07/fashion/met-gala-fashion-photos-zendaya-kim-kardashian.html
+
 **It Took Decades, but Japan’s Working Women Are Making Progress**\
 `Employers have taken steps to change a male-dominated workplace culture. But women still struggle to balance their careers with domestic obligations.`\
 https://nytimes.com/2024/05/07/world/asia/japan-working-women.html
