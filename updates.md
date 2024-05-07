@@ -1,3 +1,7 @@
+**Industries Fortify STEM Workforce by Investing in Youth Robotics**\
+`Companies are investing in youth robotics to create a groundswell of science and technology interest among Gen Z and Gen Alpha `\
+https://nytimes.com/paidpost/first-robotics/first-robotics-headstand/industries-fortify-stem-workforce-by-investing-in-youth-robotics.html
+
 **Man Killed His Wife Because He Couldn’t Pay Her Medical Bills, He Tells Police**\
 `Ronnie Wiggs, of Independence, Mo., was charged with second-degree murder in the strangling death of his wife, who was in the hospital for dialysis treatment, records show.`\
 https://nytimes.com/2024/05/07/us/missouri-wife-murder.html
