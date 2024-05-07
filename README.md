@@ -1,3 +1,7 @@
+**Panera Will Discontinue Charged Lemonade Drinks**\
+`The highly caffeinated line of Charged drinks at Panera Bread was the subject of two wrongful-death lawsuits.`\
+https://nytimes.com/2024/05/07/us/panera-charged-lemonade-discontinued.html
+
 **A U.S. lawmaker urged an international court to issue an arrest warrant for Netanyahu.**\
 `By Robert Jimison`\
 https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/a-us-lawmaker-urged-an-international-court-to-issue-an-arrest-warrant-for-netanyahu
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/07/nyregion/stormy-daniels-trump-defamation.html
 **Tornado Damages Homes in Oklahoma Town**\
 `The tornado, which was up to two miles wide, ripped through Barnsdall, Okla., a town about 40 miles northwest of Tulsa.`\
 https://nytimes.com/video/us/100000009456122/tornado-damage-plains.html
-
-**Biden Condemns Antisemitism at Holocaust Remembrance Ceremony**\
-`The president used the Oct. 7 Hamas attack on Israel to underscore the threat that Jewish people still face after the Holocaust.`\
-https://nytimes.com/video/us/politics/100000009455976/biden-holocaust.html
 
