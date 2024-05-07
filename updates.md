@@ -1,3 +1,11 @@
+**Stormy Daniels and Trump Have Met in Court Before, to Her Detriment**\
+`Stormy Daniels sued Donald J. Trump for defamation and lost. Her lawyer wound up in prison for stealing from her.`\
+https://nytimes.com/2024/05/07/nyregion/stormy-daniels-trump-defamation.html
+
+**Speaker Mike Johnson Says U.S. Universities Are ‘Hostile’ to Jews**\
+`At a Holocaust Remembrance Ceremony, the Louisiana Republican compared the protests on U.S. campuses to what happened at institutions of higher learning in Germany during World War II.`\
+https://nytimes.com/2024/05/07/us/politics/holocaust-mike-johnson.html
+
 **Gaza War Puts New Pressures on U.S. Arms Transfer Policies**\
 `The Biden administration is due to release a report this week on whether it believes assurances from Israel on its use of U.S. arms and protection of civilians.`\
 https://nytimes.com/2024/05/07/us/politics/israel-gaza-us-weapons.html
