@@ -1,3 +1,11 @@
+**Quotation of the Day: Trump Warned of Jail, Again, for His Attacks**\
+`Quotation of the Day for Tuesday, May 7, 2024.`\
+https://nytimes.com/2024/05/06/pageoneplus/quotation-of-the-day-trump-warned-of-jail-again-for-his-attacks.html
+
+**Judge Pushes Back Critical Filing Deadline in Trump Documents Case**\
+`Judge Aileen M. Cannon did not immediately set a new date, but the delay increases the chance that the trial will not happen before the November election.`\
+https://nytimes.com/2024/05/06/us/politics/trump-classified-documents-trial-delay.html
+
 **Jury Sees Trump’s Checks in Hush-Money Case**\
 `Before prosecutors began presenting crucial records, the judge held Donald J. Trump in contempt, saying his complaints about the jury were “a direct attack on the rule of law.” Jonah Bromwich, a criminal justice reporter at The New York Times, gives his takeaways.`\
 https://nytimes.com/video/nyregion/100000009450974/jury-sees-trumps-checks-in-hush-money-case.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/06/fashion/zendaya-met-gala-vintage-givenchy-gallian
 **‘Naked’ Trend Hits Big at the Met Gala**\
 `What better way to distinguish oneself from hundreds of well-dressed competitors than to wear almost nothing at all?`\
 https://nytimes.com/2024/05/06/fashion/met-gala-naked-doja-cat-rita-ora.html
-
-**Officials Describe Pact Hamas Has Embraced as U.S.-Israel Proposal With Small Changes**\
-`The C.I.A. director, William J. Burns, was consulted on the changes, the officials say. The proposal uses the term “sustainable calm,” wording that Israel had earlier agreed earlier to, but whose definition may be a point of friction.`\
-https://nytimes.com/2024/05/06/world/middleeast/burns-cease-fire-hamas.html
-
-**Pro-Palestinian Protesters Resist Order to Clear Encampment at M.I.T.**\
-`The police were an increasing presence around the edges of the protest as evening fell, including state troopers with tactical gear and zip ties.`\
-https://nytimes.com/2024/05/06/us/mit-protests-encampment.html
 
