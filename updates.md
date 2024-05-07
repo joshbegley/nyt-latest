@@ -1,3 +1,11 @@
+**With or without Tesla, more E.V. chargers are coming**\
+`Experts say that a new wave of electric vehicle charging stations are coming soon, even after Tesla gutted its charger team.`\
+https://nytimes.com/2024/05/07/climate/new-ev-charging-stations-tesla.html
+
+**‘Maybe the Best Breakfast I’ve Ever Made’**\
+`Huevos rancheros, coffee cake and more reader-favorite recipes for Mother’s Day. (Which, by the way, is this Sunday.)`\
+https://nytimes.com/2024/05/07/dining/best-mothers-day-breakfast-ideas.html
+
 **Tiny Love Stories: ‘A Rarity in Paris’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/05/07/style/tiny-modern-love-stories-a-rarity-in-paris.html
