@@ -1,3 +1,7 @@
+**Speaker Mike Johnson Says U.S. Universities Are ‘Hostile’ to Jews**\
+`At a Holocaust Remembrance Ceremony, the Louisiana Republican compared the protests on U.S. campuses to what happened at institutions of higher learning in Germany during World War II.`\
+https://nytimes.com/2024/05/07/us/politics/holocaust-mike-johnson.html
+
 **Gaza War Puts New Pressures on U.S. Arms Transfer Policies**\
 `The Biden administration is due to release a report this week on whether it believes assurances from Israel on its use of U.S. arms and protection of civilians.`\
 https://nytimes.com/2024/05/07/us/politics/israel-gaza-us-weapons.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/07/arts/design/hot-dog-in-the-city-sculpture-times-s
 **‘Challengers’ and That Ending: Our Critics Have Thoughts**\
 `The tennis movie comes to an abrupt stop midmatch, so we don’t know who won. Does that matter?`\
 https://nytimes.com/2024/05/07/movies/challengers-ending-zendaya.html
-
-**Miss USA Resigns From Title, Citing Mental Health**\
-`Noelia Voigt, who represented Utah as she won the 2023 competition said in a statement that relinquishing her title was a “tough decision.”`\
-https://nytimes.com/2024/05/07/us/noelia-voigt-miss-usa-resign.html
 
