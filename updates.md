@@ -1,3 +1,7 @@
+**Hochul Regrets Saying Some ‘Black Kids’ Don’t Know the Word ‘Computer’**\
+`As Gov. Kathy Hochul urged business leaders to make technology widely accessible, a comment she made about Bronx children raised eyebrows.`\
+https://nytimes.com/2024/05/06/nyregion/hochul-black-kids-computer.html
+
 **The Starliner project has cost Boeing $1.4 billion more than it planned to spend.**\
 `By Niraj Chokshi`\
 https://nytimes.com/live/2024/05/06/science/boeing-starliner-launch/the-starliner-project-has-cost-boeing-1-4-billion-more-than-it-planned-to-spend
