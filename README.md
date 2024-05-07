@@ -1,3 +1,19 @@
+**The Scramble to Broker a Gaza Deal, and More Questions for Boeing**\
+`Plus, Trump is threatened with jail.`\
+https://nytimes.com/2024/05/07/podcasts/gaza-boeing.html
+
+**How Changing Ocean Temperatures Could Upend Life on Earth**\
+`Is the world’s climate close to a tipping point?`\
+https://nytimes.com/2024/05/07/podcasts/the-daily/ocean-temperature-climate.html
+
+**OpenAI Releases ‘Deepfake’ Detector to Disinformation Researchers**\
+`The prominent A.I. start-up is also joining an industrywide effort to spot content made with artificial intelligence.`\
+https://nytimes.com/2024/05/07/technology/openai-deepfake-detector.html
+
+**Nearly 13 Million in Midwest Brace for More Storms After Tornado Kills 1**\
+`Severe weather moving east on Tuesday will bring frequent lightning, strong winds and the possibility of tornadoes to parts of Indiana, Kentucky and Ohio.`\
+https://nytimes.com/2024/05/07/us/storms-tornadoes-weather-plains-midwest.html
+
 **At Least 2 Dead in Hospital Knife Attack in China**\
 `At least 21 other people were injured during the stabbing rampage in the southwestern province of Yunnan, the police said. A suspect was arrested.`\
 https://nytimes.com/2024/05/07/world/asia/china-hospital-knife-stabbing-attack.html
@@ -21,20 +37,4 @@ https://nytimes.com/interactive/2024/05/07/climate/battery-electricity-solar-cal
 **Which Toy Would You Want to Help Design or Update?**\
 `A Lego set, Hot Wheels car or Barbie doll? A new board or video game? A favorite childhood plaything reimagined for today?`\
 https://nytimes.com/2024/05/07/learning/which-toy-would-you-want-to-help-design-or-update.html
-
-**Watching the Protests From Israel**\
-`The Israeli writer Ari Shavit discusses the tensions between the demands of campus activists and how Israelis see the war.`\
-https://nytimes.com/2024/05/07/opinion/ezra-klein-podcast-ari-shavit.html
-
-**In Berkeley Public Schools, a War Gives Rise to Unusual Tensions**\
-`Accusations of antisemitism in K-12 schools have fractured a city long known for its progressive ideals and inclusiveness.`\
-https://nytimes.com/2024/05/07/us/berkeley-schools-israel-hamas-war.html
-
-**Netflix Gives Comedy the Live Treatment. The Results Are Chaotic.**\
-`Sometimes that’s a good thing, as with John Mulaney’s variety show “Everybody’s in L.A.” But the Katt Williams special and Tom Brady roast were more uneven.`\
-https://nytimes.com/2024/05/07/arts/television/netflix-livestreaming-comedy-tom-brady-katt-williams.html
-
-**The Fall Guy Steps Into the Spotlight**\
-`The director David Leitch on the unsung artistry of stunt performers.`\
-https://nytimes.com/2024/05/07/podcasts/the-fall-guy-steps-into-the-spotlight.html
 
