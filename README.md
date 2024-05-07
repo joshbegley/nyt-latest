@@ -1,3 +1,7 @@
+**The Starliner project has cost Boeing $1.4 billion more than it planned to spend.**\
+`By Niraj Chokshi`\
+https://nytimes.com/live/2024/05/06/science/boeing-starliner-launch/the-starliner-project-has-cost-boeing-1-4-billion-more-than-it-planned-to-spend
+
 **A New Diplomatic Strategy Emerges as Artificial Intelligence Grows**\
 `The new U.S. approach to cyberthreats comes as early optimism about a “global internet” connecting the world has been shattered.`\
 https://nytimes.com/2024/05/06/us/politics/diplomatic-strategy-artificial-intelligence.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/fashion/protests-met-gala-arrests.html
 **Da’Vine Joy Randolph’s Gown Represents Two Debuts in One**\
 `The story behind the Oscar winner’s all-denim look.`\
 https://nytimes.com/2024/05/06/style/davine-joy-randolph-met-gala-zac-posen.html
-
-**Tyla Whips Up a Sandstorm on the Met Carpet**\
-`The South African singer and songwriter accessorized with a literal hourglass.`\
-https://nytimes.com/2024/05/06/fashion/tyla-met-gala-balmain.html
 
