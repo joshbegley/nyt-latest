@@ -1,4 +1,4 @@
-**Weekly Student New Quiz: Abortion, Campus Protests, Kentucky Derby**\
+**Weekly Student New Quiz: Myanmar, Campus Protests, 'Hell's Kitchen'**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2024/05/07/learning/07StudentNewsQuiz.html
 
