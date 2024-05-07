@@ -1,3 +1,11 @@
+**Macron Adds a Personal Touch to His Diplomacy With China**\
+`The French president took Xi Jinping to his childhood haunts high in the Pyrenees, hoping to forge a bond. If only the weather would have cooperated.`\
+https://nytimes.com/2024/05/07/world/europe/macron-xi-china-france.html
+
+**The Darker Side of Stormy Daniels’s Testimony**\
+`She has never accused Donald Trump of anything but a payoff, but their encounter sounds a lot murkier than before.`\
+https://nytimes.com/2024/05/07/opinion/stormy-daniels-trump-trial.html
+
 **Police Tackle and Arrest Anti-Trump Protester Outside Courthouse**\
 `Officers have enforced a ban on amplification and on Tuesday grappled with a man who had been chanting into a microphone.`\
 https://nytimes.com/2024/05/07/nyregion/trump-trial-protester-arrest.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/07/world/americas/brazil-politics-elon-musk-republic
 **Industries Fortify STEM Workforce by Investing in Youth Robotics**\
 `Companies are investing in youth robotics to create a groundswell of science and technology interest among Gen Z and Gen Alpha `\
 https://nytimes.com/paidpost/first-robotics/first-robotics-headstand/industries-fortify-stem-workforce-by-investing-in-youth-robotics.html
-
-**Man Killed His Wife Because He Couldn’t Pay Her Medical Bills, He Tells Police**\
-`Ronnie Wiggs, of Independence, Mo., was charged with second-degree murder in the strangling death of his wife, who was in the hospital for dialysis treatment, records show.`\
-https://nytimes.com/2024/05/07/us/missouri-wife-murder.html
-
-**Adams Says Rikers, Staffed by ‘Professionals,’ Is Ready for Trump**\
-`The judge in Donald J. Trump’s criminal case has threatened him with jail if continues violating the terms of a gag order.`\
-https://nytimes.com/2024/05/07/nyregion/adams-trump-rikers.html
 
