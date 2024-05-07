@@ -1,3 +1,11 @@
+**Read TikTok’s legal challenge**\
+`TikTok filed a challenge to a law forcing its parent company, ByteDance, to sell the app or face its ban in the United States.`\
+https://nytimes.com/interactive/2024/05/07/technology/07tiktok-document.html
+
+**Transcript: Read Biden’s Remarks at a Holocaust Remembrance Ceremony**\
+`Here is the president’s complete speech, which lasted about 16 minutes.`\
+https://nytimes.com/2024/05/07/us/politics/biden-holocaust-speech-antisemitism.html
+
 **Satellite photos show far fewer aid trucks after Israel ordered evacuations in Rafah.**\
 `By Lauren Leatherby`\
 https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/satellite-photos-show-far-fewer-aid-trucks-after-israel-ordered-evacuations-in-rafah
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000009455976/biden-holocaust.html
 **Speaker Mike Johnson Says U.S. Universities Are ‘Hostile’ to Jews**\
 `At a Holocaust Remembrance Ceremony, the Louisiana Republican compared the protests on U.S. campuses to what happened at institutions of higher learning in Germany during World War II.`\
 https://nytimes.com/2024/05/07/us/politics/holocaust-mike-johnson.html
-
-**Gaza War Puts New Pressures on U.S. Arms Transfer Policies**\
-`The Biden administration is due to release a report this week on whether it believes assurances from Israel on its use of U.S. arms and protection of civilians.`\
-https://nytimes.com/2024/05/07/us/politics/israel-gaza-us-weapons.html
-
-**What Does ‘Post-Emerging’ Look Like in Today’s Dance Landscape?**\
-`Fresh Tracks, at New York Live Arts, showcases early-career dance makers. This year’s talented crop wonders about next steps.`\
-https://nytimes.com/2024/05/07/arts/dance/fresh-tracks-new-york-live-arts-bill-t-jones.html
 

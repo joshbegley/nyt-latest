@@ -1,3 +1,11 @@
+**Read TikTok’s legal challenge**\
+`TikTok filed a challenge to a law forcing its parent company, ByteDance, to sell the app or face its ban in the United States.`\
+https://nytimes.com/interactive/2024/05/07/technology/07tiktok-document.html
+
+**Transcript: Read Biden’s Remarks at a Holocaust Remembrance Ceremony**\
+`Here is the president’s complete speech, which lasted about 16 minutes.`\
+https://nytimes.com/2024/05/07/us/politics/biden-holocaust-speech-antisemitism.html
+
 **Satellite photos show far fewer aid trucks after Israel ordered evacuations in Rafah.**\
 `By Lauren Leatherby`\
 https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/satellite-photos-show-far-fewer-aid-trucks-after-israel-ordered-evacuations-in-rafah
