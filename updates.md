@@ -1,3 +1,7 @@
+**U.S. Repatriates 11 American Citizens From ISIS War Camps in Syria**\
+`The group — the largest set of Americans retrieved from the war zone — was joined by a 9-year-old noncitizen whose brother is an American.`\
+https://nytimes.com/2024/05/07/us/politics/americans-repatriated-syria-war-camps.html
+
 **The Big Questions Hanging Over a Blackstone Fund**\
 `Wall Street has been debating how the investment giant’s $59 billion real estate fund has managed to outperform virtually all its rivals.`\
 https://nytimes.com/2024/05/07/business/dealbook/blackstone-breit-fund-debate.html
