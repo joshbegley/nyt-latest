@@ -1,3 +1,15 @@
+**Officials Describe Pact Hamas Has Embraced as U.S.-Israel Proposal With Small Changes**\
+`The C.I.A. director, William J. Burns, was consulted on the changes, the officials say. The proposal uses the term “sustainable calm,” wording that Israel had earlier agreed earlier to, but whose definition may be a point of friction.`\
+https://nytimes.com/2024/05/06/world/middleeast/burns-cease-fire-hamas.html
+
+**Pro-Palestinian protesters resist an order to clear an encampment at M.I.T.**\
+`By Matthew Eadie and Jenna Russell`\
+https://nytimes.com/live/2024/05/06/us/campus-protests/pro-palestinian-protesters-resist-an-order-to-clear-an-encampment-at-mit
+
+**Kim Kardashian Stuns in Breathtaking Corset That Leaves Little Room to Breathe**\
+`Viewers online immediately took notice of the cinched waistline.`\
+https://nytimes.com/2024/05/06/fashion/kim-kardashian-met-gala.html
+
 **U.S. Army Soldier Is Detained in Russia**\
 `The soldier was apprehended in Vladivostok on charges of criminal misconduct, in a case that is likely to aggravate the contentious relationship between Moscow and Washington.`\
 https://nytimes.com/2024/05/06/us/us-soldier-detained-russia.html
