@@ -1,3 +1,7 @@
+**The Big Questions Hanging Over a Blackstone Fund**\
+`Wall Street has been debating how the investment giant’s $59 billion real estate fund has managed to outperform virtually all its rivals.`\
+https://nytimes.com/2024/05/07/business/dealbook/blackstone-breit-fund-debate.html
+
 **Police Remove Protest Encampment at University of Chicago**\
 `The university has presented itself as a national model for free expression on campus. Its president said that the encampment “cannot continue.”`\
 https://nytimes.com/2024/05/07/us/university-chicago-encampment-protests.html

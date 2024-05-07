@@ -1,3 +1,7 @@
+**The Big Questions Hanging Over a Blackstone Fund**\
+`Wall Street has been debating how the investment giant’s $59 billion real estate fund has managed to outperform virtually all its rivals.`\
+https://nytimes.com/2024/05/07/business/dealbook/blackstone-breit-fund-debate.html
+
 **Police Remove Protest Encampment at University of Chicago**\
 `The university has presented itself as a national model for free expression on campus. Its president said that the encampment “cannot continue.”`\
 https://nytimes.com/2024/05/07/us/university-chicago-encampment-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/07/podcasts/gaza-boeing.html
 **How Changing Ocean Temperatures Could Upend Life on Earth**\
 `Is the world’s climate close to a tipping point?`\
 https://nytimes.com/2024/05/07/podcasts/the-daily/ocean-temperature-climate.html
-
-**OpenAI Releases ‘Deepfake’ Detector to Disinformation Researchers**\
-`The prominent A.I. start-up is also joining an industrywide effort to spot content made with artificial intelligence.`\
-https://nytimes.com/2024/05/07/technology/openai-deepfake-detector.html
 
