@@ -1,3 +1,7 @@
+**Sound of Enlightenment**\
+`Justin Werfel makes his debut in the New York Times Crossword.`\
+https://nytimes.com/2024/05/06/crosswords/daily-puzzle-2024-05-07.html
+
 **U.C. Santa Cruz protesters want the school to cut ties with Hillel.**\
 `By Heather Knight`\
 https://nytimes.com/live/2024/05/06/us/campus-protests/uc-santa-cruz-protesters-want-the-school-to-cut-ties-with-hillel
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/fashion/kim-kardashian-met-gala.html
 **U.S. Army Soldier Is Detained in Russia**\
 `The soldier was apprehended in Vladivostok on charges of criminal misconduct, in a case that is likely to aggravate the contentious relationship between Moscow and Washington.`\
 https://nytimes.com/2024/05/06/us/us-soldier-detained-russia.html
-
-**The Starliner project has cost Boeing $1.4 billion more than it planned to spend.**\
-`By Niraj Chokshi`\
-https://nytimes.com/live/2024/05/06/science/boeing-starliner-launch/the-starliner-project-has-cost-boeing-1-4-billion-more-than-it-planned-to-spend
 
