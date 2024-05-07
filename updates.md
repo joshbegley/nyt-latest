@@ -1,3 +1,7 @@
+**Panera Will Discontinue Charged Lemonade Drinks**\
+`The highly caffeinated line of Charged drinks at Panera Bread was the subject of two wrongful-death lawsuits.`\
+https://nytimes.com/2024/05/07/us/panera-charged-lemonade-discontinued.html
+
 **A U.S. lawmaker urged an international court to issue an arrest warrant for Netanyahu.**\
 `By Robert Jimison`\
 https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/a-us-lawmaker-urged-an-international-court-to-issue-an-arrest-warrant-for-netanyahu
