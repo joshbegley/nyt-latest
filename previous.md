@@ -26,9 +26,9 @@ https://nytimes.com/2024/05/07/world/africa/haiti-security-force.html
 `The Ukrainian security services arrested two Ukrainian colonels and accused them of spying for Russia. They said the plot also targeted top Ukrainian intelligence officials.`\
 https://nytimes.com/2024/05/07/world/europe/ukraine-russia-zelensky-plot.html
 
-**A doctor in Rafah says more than two dozen bodies were brought to his hospital.**\
-`By Liam Stack and Rawan Sheikh Ahmad`\
-https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/a-doctor-in-rafah-says-more-than-two-dozen-bodies-were-brought-to-his-hospital
+**Two Dozen Bodies Brought to Rafah Hospital, Doctor Says**\
+`The head of Kuwait Hospital in Rafah said the situation at the facility amid the Israeli military incursion was “catastrophic in every sense of the word.”`\
+https://nytimes.com/2024/05/07/world/middleeast/rafah-gaza-hospital-bodies.html
 
 **Don’t Be Fooled by A.I. Katy Perry Didn’t Attend the Met.**\
 `Images of the pop star were convincing enough to trick plenty of people. on social media, including Ms. Perry’s own mother.`\

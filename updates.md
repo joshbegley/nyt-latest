@@ -1,3 +1,7 @@
+**Two Dozen Bodies Brought to Rafah Hospital, Doctor Says**\
+`The head of Kuwait Hospital in Rafah said the situation at the facility amid the Israeli military incursion was “catastrophic in every sense of the word.”`\
+https://nytimes.com/2024/05/07/world/middleeast/rafah-gaza-hospital-bodies.html
+
 **Tadhana Showcases Filipino Cuisine With a 16-Course Tasting Menu**\
 `Inday serves fast-casual Indian American fare, Summer at the Rink Rock Center provides al fresco dining and more restaurant news.`\
 https://nytimes.com/2024/05/07/dining/nyc-restaurant-news.html
