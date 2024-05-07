@@ -1,3 +1,7 @@
+**U.S. Army Soldier Is Detained in Russia**\
+`The soldier was apprehended in Vladivostok on charges of criminal misconduct, in a case that is likely to aggravate the contentious relationship between Moscow and Washington.`\
+https://nytimes.com/2024/05/06/us/us-soldier-detained-russia.html
+
 **The Starliner project has cost Boeing $1.4 billion more than it planned to spend.**\
 `By Niraj Chokshi`\
 https://nytimes.com/live/2024/05/06/science/boeing-starliner-launch/the-starliner-project-has-cost-boeing-1-4-billion-more-than-it-planned-to-spend
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/world/middleeast/gaza-cease-fire-talks-timeline.h
 **Police Make Arrests While Trying to Contain Protests**\
 `As expected, protesters gathered near the Met Gala to protest the war in Gaza, creating an atmosphere far different from the one inside the event.`\
 https://nytimes.com/2024/05/06/fashion/protests-met-gala-arrests.html
-
-**Da’Vine Joy Randolph’s Gown Represents Two Debuts in One**\
-`The story behind the Oscar winner’s all-denim look.`\
-https://nytimes.com/2024/05/06/style/davine-joy-randolph-met-gala-zac-posen.html
 
