@@ -1,3 +1,7 @@
+**Don’t Be Fooled by A.I. Katy Perry Didn’t Attend the Met.**\
+`Images of the pop star were convincing enough to trick plenty of people. on social media, including Ms. Perry’s own mother.`\
+https://nytimes.com/2024/05/07/style/katy-perry-met-gala-ai.html
+
 **Is the Met Gala Protest-Proof?**\
 `Despite a rich, class-based theme and calls to disrupt the fashion extravaganza of the year, politics proved no match for the power of the spectacle.`\
 https://nytimes.com/2024/05/07/style/met-gala-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/07/business/dealbook/blackstone-breit-fund-debate.ht
 **The University of Chicago initially took a permissive stance, but removed the camp on Tuesday.**\
 `The university has presented itself as a national model for free expression on campus. Its president said that the encampment “cannot continue.”`\
 https://nytimes.com/live/2024/05/07/us/campus-protests/university-chicago-encampment-protests
-
-**The Met Gala, in Photos**\
-`Times critic Vanessa Friedman on the biggest night in fashion.`\
-https://nytimes.com/2024/05/07/briefing/met-gala-2024-photos.html
 
