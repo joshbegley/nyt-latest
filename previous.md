@@ -1,3 +1,11 @@
+**The Boy Scouts of America Will Be Renamed Scouting America**\
+`The organization, which is battling bankruptcy and sexual abuse claims, said the rebrand was part of an effort to be more inclusive and welcome all members of America’s youth.`\
+https://nytimes.com/2024/05/07/us/boy-scouts-name-change.html
+
+**Stormy Daniels Tells a Story of Sex With Trump as He Listens in Disgust**\
+`The porn star at the center of the former president’s criminal trial testified about their encounter at a celebrity golf tournament in 2006, a meeting that could shape American history.`\
+https://nytimes.com/2024/05/07/nyregion/trump-trial-stormy-daniels-testimony.html
+
 **Redfin Agrees to Share Data and Pay $9.25 Million to Settle Lawsuit**\
 `In addition to paying the fine, the online brokerage would give a group of home sellers access to a nationwide database of commissions paid to real estate agents, pending court approval.`\
 https://nytimes.com/2024/05/07/realestate/redfin-settlement-commission-lawsuit.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/07/opinion/college-protests-war-israel.html
 **Macron Adds a Personal Touch to His Diplomacy With China**\
 `The French president took Xi Jinping to his childhood haunts high in the Pyrenees, hoping to forge a bond. If only the weather would have cooperated.`\
 https://nytimes.com/2024/05/07/world/europe/macron-xi-china-france.html
-
-**The Darker Side of Stormy Daniels’s Testimony**\
-`She has never accused Donald Trump of anything but a payoff, but their encounter sounds a lot murkier than before.`\
-https://nytimes.com/2024/05/07/opinion/stormy-daniels-trump-trial.html
-
-**Police Tackle and Arrest Anti-Trump Protester Outside Courthouse**\
-`Officers have enforced a ban on amplification and on Tuesday grappled with a man who had been chanting into a microphone.`\
-https://nytimes.com/2024/05/07/nyregion/trump-trial-protester-arrest.html
 
