@@ -1,6 +1,6 @@
 **Read TikTok’s legal challenge**\
 `TikTok filed a challenge to a law forcing its parent company, ByteDance, to sell the app or face its ban in the United States.`\
-https://nytimes.com/interactive/2024/05/07/technology/07tiktok-document.html
+https://nytimes.com/interactive/2024/05/07/technology/tiktok-lawsuit-appeal.html
 
 **Transcript: Read Biden’s Remarks at a Holocaust Remembrance Ceremony**\
 `Here is the president’s complete speech, which lasted about 16 minutes.`\
