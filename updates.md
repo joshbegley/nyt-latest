@@ -1,3 +1,11 @@
+**White House Condemns Taunting of a Black Student at Ole Miss**\
+`In a widely shared video, one white male student at the University of Mississippi appeared to make monkey gestures at a Black pro-Palestinian protester, as others jeered.`\
+https://nytimes.com/2024/05/07/us/ole-miss-protests-video.html
+
+**Trump, Biden and a Split Screen Made for This Moment**\
+`President Biden gave a speech on Holocaust remembrance. Former President Trump was in court with Stormy Daniels. The day captured the sometimes unreal reality of a presidential race like none before it.`\
+https://nytimes.com/2024/05/07/us/politics/trump-trial-biden-speech-holocaust.html
+
 **Consultants to Examine Police Response to Attack at U.C.L.A.**\
 `The University of California system said it would bring in a police consulting firm to investigate why the attack on pro-Palestinian demonstrators was allowed to continue for hours.`\
 https://nytimes.com/2024/05/07/us/ucla-protests-police-investigation.html
