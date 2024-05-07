@@ -1,3 +1,7 @@
+**Miss USA Resigns From Title, Citing Mental Health**\
+`Noelia Voigt, who represented Utah as she won the 2023 competition said in a statement that relinquishing her title was a “tough decision.”`\
+https://nytimes.com/2024/05/07/us/noelia-voigt-miss-usa-resign.html
+
 **Robert Downey Jr. to Make Broadway Debut in Ayad Akhtar Play**\
 `The Oscar-winning actor will star as an A.I.-curious author in “McNeal,” starting performances in September at Lincoln Center Theater.`\
 https://nytimes.com/2024/05/07/theater/robert-downey-jr-ayad-akhtar-broadway.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/07/dining/mothers-day-brunch-french-toast-recipes.ht
 **Stormy Daniels Tells of Her Encounter With Trump in Tahoe**\
 `The porn star met the future president at a golf tournament, and she said she was invited to his suite. Her account of what happened next eventually resulted in Donald J. Trump’s criminal trial.`\
 https://nytimes.com/2024/05/07/nyregion/stormy-daniels-trump-tahoe.html
-
-**A House committee will examine reports of antisemitism in K-12 schools.**\
-`After helping topple two college presidents, lawmakers will grill school district leaders from New York City; Berkeley, Calif.; and Montgomery County in Maryland.`\
-https://nytimes.com/live/2024/05/07/us/biden-holocaust/a-house-committee-will-examine-reports-of-antisemitism-in-k-12-schools
 
