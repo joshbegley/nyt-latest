@@ -1,3 +1,7 @@
+**U.C. Santa Cruz protesters want the school to cut ties with Hillel.**\
+`By Heather Knight`\
+https://nytimes.com/live/2024/05/06/us/campus-protests/uc-santa-cruz-protesters-want-the-school-to-cut-ties-with-hillel
+
 **Inside the White House Scramble to Broker a Deal in Gaza**\
 `The flurry of actions underscores how fluid the situation in the region is as President Biden and his team try to ultimately end the war that has devastated Gaza.`\
 https://nytimes.com/2024/05/06/us/politics/biden-cease-fire-gaza.html
