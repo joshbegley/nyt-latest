@@ -1,3 +1,15 @@
+**It Took Decades, but Japan’s Working Women Are Making Progress**\
+`Employers have taken steps to change a male-dominated workplace culture. But women still struggle to balance their careers with domestic obligations.`\
+https://nytimes.com/2024/05/07/world/asia/japan-working-women.html
+
+**A Week of Pomp to Project Putin’s Confidence**\
+`The Russian president’s inauguration for a fifth term and the annual Victory Day parade will highlight his grip on the country’s politics and his resolve to capture Ukraine.`\
+https://nytimes.com/2024/05/07/world/europe/a-week-of-pomp-to-project-putins-confidence.html
+
+**Protesters Occupy Building at Rhode Island School of Design**\
+`The takeover escalated protests that began outside the building last week. It’s one of the few schools where students have occupied a building.`\
+https://nytimes.com/2024/05/06/us/risd-protests-occupy-building.html
+
 **Corrections: May 7, 2024**\
 `Corrections that appeared in print on Tuesday, May 7, 2024.`\
 https://nytimes.com/2024/05/06/pageoneplus/corrections-may-7-2024.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/06/crosswords/daily-puzzle-2024-05-07.html
 **U.C. Santa Cruz protesters want the school to cut ties with Hillel.**\
 `By Heather Knight`\
 https://nytimes.com/live/2024/05/06/us/campus-protests/uc-santa-cruz-protesters-want-the-school-to-cut-ties-with-hillel
-
-**Inside the White House Scramble to Broker a Deal in Gaza**\
-`The flurry of actions underscores how fluid the situation in the region is as President Biden and his team try to ultimately end the war that has devastated Gaza.`\
-https://nytimes.com/2024/05/06/us/politics/biden-cease-fire-gaza.html
-
-**Senators Need to Stop the Anti-Semitism Awareness Act**\
-`The panic over pro-Palestinian protesters fuels illiberal legislation.`\
-https://nytimes.com/2024/05/06/opinion/antisemitism-act-free-speech.html
-
-**Zendaya, a Star So Big She Makes Two Arrivals**\
-`The actress’s second dress, vintage Givenchy couture by John Galliano, was made the year she was born.`\
-https://nytimes.com/2024/05/06/fashion/zendaya-met-gala-vintage-givenchy-galliano.html
 
