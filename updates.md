@@ -1,3 +1,7 @@
+**Sound of Enlightenment**\
+`Justin Werfel makes his debut in the New York Times Crossword.`\
+https://nytimes.com/2024/05/06/crosswords/daily-puzzle-2024-05-07.html
+
 **U.C. Santa Cruz protesters want the school to cut ties with Hillel.**\
 `By Heather Knight`\
 https://nytimes.com/live/2024/05/06/us/campus-protests/uc-santa-cruz-protesters-want-the-school-to-cut-ties-with-hillel
