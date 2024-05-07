@@ -1,3 +1,7 @@
+**Police Tackle and Arrest Anti-Trump Protester Outside Courthouse**\
+`Officers have enforced a ban on amplification and on Tuesday grappled with a man who had been chanting into a microphone.`\
+https://nytimes.com/2024/05/07/nyregion/trump-trial-protester-arrest.html
+
 **With or without Tesla, more E.V. chargers are coming**\
 `Experts say that a new wave of electric vehicle charging stations are coming soon, even after Tesla gutted its charger team.`\
 https://nytimes.com/2024/05/07/climate/new-ev-charging-stations-tesla.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/07/us/missouri-wife-murder.html
 **Adams Says Rikers, Staffed by ‘Professionals,’ Is Ready for Trump**\
 `The judge in Donald J. Trump’s criminal case has threatened him with jail if continues violating the terms of a gag order.`\
 https://nytimes.com/2024/05/07/nyregion/adams-trump-rikers.html
-
-**Panera Will Discontinue Charged Lemonade Drinks**\
-`The highly caffeinated line of Charged drinks at Panera Bread was the subject of two wrongful-death lawsuits.`\
-https://nytimes.com/2024/05/07/us/panera-charged-lemonade-discontinued.html
 
