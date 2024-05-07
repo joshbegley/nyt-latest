@@ -1,3 +1,19 @@
+**E. Coli Has Been Found in Ground Beef and Walnuts. Here’s What to Know.**\
+`The bacteria sickens an estimated 265,000 Americans each year.`\
+https://nytimes.com/2024/05/07/well/live/ecoli-food-poisoning-beef-walnuts.html
+
+**Scientists Find an ‘Alphabet’ in Whale Songs**\
+`Sperm whales rattle off pulses of clicks while swimming together, raising the possibility that they’re communicating in a complex language.`\
+https://nytimes.com/2024/05/07/science/whale-song-alphabet.html
+
+**Creamy Noodles Drizzled With Chile Crisp, Chicken Fajitas in Soft Flour Tortillas**\
+`This week’s round of fast, easy dinners leans into cravings.`\
+https://nytimes.com/2024/05/07/dining/creamy-noodles-drizzled-with-chile-crisp-chicken-fajitas-in-soft-flour-tortillas.html
+
+**From a Dead Dog to a Made-Up Meeting: Takeaways From Kristi Noem’s Book**\
+`After a rough start to the rollout of her memoir, the South Dakota governor has continued to defend shooting her dog and to deflect on a false story about meeting Kim Jong-un.`\
+https://nytimes.com/2024/05/07/us/politics/kristi-noem-book-cricket-kim.html
+
 **‘Every Dollar Counts’: Prosecutors Use Quotes From Trump’s Books Against Him**\
 `Donald J. Trump’s books provided prosecutors with passages they believe can help their case, as they argue that he knew that his company falsified business records to cover up a hush-money payment to Stormy Daniels.`\
 https://nytimes.com/2024/05/07/nyregion/sally-franklin-books-trump-trial.html
