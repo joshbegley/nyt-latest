@@ -1,3 +1,7 @@
+**Israel’s seizure of the Rafah crossing strands a teenager who was set to have surgery in Egypt.**\
+`By Liam Stack and Abu Bakr Bashir`\
+https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/israels-seizure-of-the-rafah-crossing-strands-a-teenager-who-was-set-to-have-surgery-in-egypt
+
 **Wearing Masks During the Gaza Protests**\
 `Readers criticize protesters who try to maintain their anonymity. Also: Money and politics; protecting oceans; possible exiles if Donald Trump wins.`\
 https://nytimes.com/2024/05/07/opinion/gaza-protests-masks.html
@@ -6,7 +10,7 @@ https://nytimes.com/2024/05/07/opinion/gaza-protests-masks.html
 `To connect with a parent who awes (and occasionally intimidates) everyone around her, the Times reporter Priya Krishna spends time with her in the kitchen.`\
 https://nytimes.com/2024/05/07/dining/cooking-mothers-day.html
 
-**The U.S. Must Keep the Rafah Invasion from Turning Into a Starvation Crisis**\
+**The U.S. Must Keep the Rafah Invasion From Turning Into a Starvation Crisis**\
 `Israel’s latest move aggravates a desperate situation.`\
 https://nytimes.com/live/2024/05/01/opinion/thepoint/rafah-border-aid-starvation
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/07/business/tiktok-ban-appeal.html
 **Shots, Shots, Shots! Why Tiny Drinks Are on the Rise.**\
 `Bartenders are shrinking their pours with variety and festivity in mind.`\
 https://nytimes.com/2024/05/07/t-magazine/tiny-drinks-cocktails-shots.html
-
-**U.S. Tightens Rules on Risky Virus Research**\
-`A long-awaited new policy broadens the type of regulated viruses, bacteria, fungi and toxins, including those that could threaten crops and livestock.`\
-https://nytimes.com/2024/05/07/science/covid-lab-leak-biosafety-rules-virus-research.html
 

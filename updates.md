@@ -1,3 +1,11 @@
+**Israel’s seizure of the Rafah crossing strands a teenager who was set to have surgery in Egypt.**\
+`By Liam Stack and Abu Bakr Bashir`\
+https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/israels-seizure-of-the-rafah-crossing-strands-a-teenager-who-was-set-to-have-surgery-in-egypt
+
+**The U.S. Must Keep the Rafah Invasion From Turning Into a Starvation Crisis**\
+`Israel’s latest move aggravates a desperate situation.`\
+https://nytimes.com/live/2024/05/01/opinion/thepoint/rafah-border-aid-starvation
+
 **Wearing Masks During the Gaza Protests**\
 `Readers criticize protesters who try to maintain their anonymity. Also: Money and politics; protecting oceans; possible exiles if Donald Trump wins.`\
 https://nytimes.com/2024/05/07/opinion/gaza-protests-masks.html
