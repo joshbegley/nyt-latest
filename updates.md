@@ -1,3 +1,7 @@
+**Word of the Day: masquerade**\
+`This word has appeared in 25 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/07/learning/word-of-the-day-masquerade.html
+
 **Here are the latest developments.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/rafah-invasion-israel-hamas
