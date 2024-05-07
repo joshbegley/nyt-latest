@@ -1,3 +1,15 @@
+**Senators Need to Stop the Anti-Semitism Awareness Act**\
+`The panic over pro-Palestinian protesters fuels illiberal legislation.`\
+https://nytimes.com/2024/05/06/opinion/antisemitism-act-free-speech.html
+
+**Zendaya, a Star So Big She Makes Two Arrivals**\
+`The actress’s second dress, vintage Givenchy couture by John Galliano, was made the year she was born.`\
+https://nytimes.com/2024/05/06/fashion/zendaya-met-gala-vintage-givenchy-galliano.html
+
+**‘Naked’ Trend Hits Big at the Met Gala**\
+`What better way to distinguish oneself from hundreds of well-dressed competitors than to wear almost nothing at all?`\
+https://nytimes.com/2024/05/06/fashion/met-gala-naked-doja-cat-rita-ora.html
+
 **Officials Describe Pact Hamas Has Embraced as U.S.-Israel Proposal With Small Changes**\
 `The C.I.A. director, William J. Burns, was consulted on the changes, the officials say. The proposal uses the term “sustainable calm,” wording that Israel had earlier agreed earlier to, but whose definition may be a point of friction.`\
 https://nytimes.com/2024/05/06/world/middleeast/burns-cease-fire-hamas.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/06/us/politics/diplomatic-strategy-artificial-intell
 **Isabelle Huppert’s Balenciaga dress pays homage to her ancestors.**\
 `By Vanessa Friedman`\
 https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/isabelle-huppert-balenciaga-met-gala
-
-**Amanda Seyfried Asked for a ‘Sustainable’ Met Gala Dress**\
-`The story behind her semi-recycled red-carpet look.`\
-https://nytimes.com/2024/05/06/style/amanda-seyfried-met-gala-prada.html
-
-**Hochul Regrets Saying Some ‘Black Kids’ Don’t Know the Word ‘Computer’**\
-`As Gov. Kathy Hochul urged business leaders to make technology widely accessible, a comment she made about Bronx children raised eyebrows.`\
-https://nytimes.com/2024/05/06/nyregion/hochul-black-kids-computer.html
-
-**Transcript of Trump Manhattan Trial, May 3, 2024**\
-`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
-https://nytimes.com/interactive/2024/05/06/nyregion/trump-hush-money-trial-transcript-may-3.html
 
