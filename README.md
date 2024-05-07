@@ -1,3 +1,15 @@
+**What to Know About the Gaps Between Israel and Hamas on the Cease-Fire Proposal**\
+`Hamas said it had accepted the terms of a cease-fire proposed by Arab mediators, but Prime Minister Benjamin Netanyahu said it was “very far from Israel’s core demands.”`\
+https://nytimes.com/2024/05/07/world/middleeast/israel-hamas-ceasefire-proposal.html
+
+**07pol-swiper**\
+`Election Updates: R.F.K. Jr. challenges Trump to a debate at the Libertarian Party convention.`\
+https://nytimes.com/live/2024/05/07/us/biden-trump-election
+
+**R.F.K. Jr., Invited to Libertarian Convention, Seeks Trump Debate**\
+`Both presidential candidates are scheduled to address a Libertarian gathering this month in Washington.`\
+https://nytimes.com/2024/05/07/us/politics/rfk-trump-debate.html
+
 **The Boy Scouts of America Will Be Renamed Scouting America**\
 `The organization, which is battling bankruptcy and sexual abuse claims, said the rebrand was part of an effort to be more inclusive and welcome all members of America’s youth.`\
 https://nytimes.com/2024/05/07/us/boy-scouts-name-change.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/07/nyregion/stormy-daniels-donald-trump-timeline.htm
 **A Romantic New Clothing Line With Hidden Quirks**\
 `The designer Meruert Tolegen started out making children’s wear. Her pieces for adults combine precise construction with a playful spirit.`\
 https://nytimes.com/2024/05/07/t-magazine/meruert-tolegen-fashion.html
-
-**Stormy Daniels Was Entertaining, but Did She Make a Real Impact?**\
-`Jurors may believe she and Trump had a tryst, but not necessarily her entire testimony.`\
-https://nytimes.com/2024/05/07/opinion/trump-trial-stormy-impact.html
-
-**A Thank-You Note to the Campus Protesters**\
-`You are my daily reminder of what my Zionism is for, about and against.`\
-https://nytimes.com/2024/05/07/opinion/college-protests-war-israel.html
-
-**Macron Adds a Personal Touch to His Diplomacy With China**\
-`The French president took Xi Jinping to his childhood haunts high in the Pyrenees, hoping to forge a bond. If only the weather would have cooperated.`\
-https://nytimes.com/2024/05/07/world/europe/macron-xi-china-france.html
 
