@@ -1,3 +1,23 @@
+**Tiny Love Stories: ‘A Rarity in Paris’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/05/07/style/tiny-modern-love-stories-a-rarity-in-paris.html
+
+**‘Maybe the Best Breakfast I’ve Ever Made’**\
+`Huevos rancheros, coffee cake and more reader-favorite recipes for Mother’s Day. (Which, by the way, is this Sunday.)`\
+https://nytimes.com/2024/05/07/dining/maybe-the-best-breakfast-ive-ever-made.html
+
+**Netanyahu dismisses Hamas’s latest proposal on a cease-fire as insincere.**\
+`By Gaya Gupta`\
+https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/netanyahu-dismisses-hamass-latest-proposal-on-a-cease-fire-as-insincere
+
+**If it Bleeds it Leads, Inflation Edition**\
+`How negativity bias affects economic perceptions.`\
+https://nytimes.com/2024/05/07/opinion/inflation-news-coverage.html
+
+**The New Players in Brazilian Politics? Elon Musk and Republicans.**\
+`The billionaire businessman and House Republicans have given new life to former President Jair Bolsonaro by attacking Brazil’s Supreme Court.`\
+https://nytimes.com/2024/05/07/world/americas/brazil-politics-elon-musk-republicans.html
+
 **Industries Fortify STEM Workforce by Investing in Youth Robotics**\
 `Companies are investing in youth robotics to create a groundswell of science and technology interest among Gen Z and Gen Alpha `\
 https://nytimes.com/paidpost/first-robotics/first-robotics-headstand/industries-fortify-stem-workforce-by-investing-in-youth-robotics.html
