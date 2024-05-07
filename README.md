@@ -14,7 +14,7 @@ https://nytimes.com/2024/05/07/opinion/stormy-daniels-trump-trial.html
 `Officers have enforced a ban on amplification and on Tuesday grappled with a man who had been chanting into a microphone.`\
 https://nytimes.com/2024/05/07/nyregion/trump-trial-protester-arrest.html
 
-**With or without Tesla, more E.V. chargers are coming**\
+**With or Without Tesla, More E.V. Chargers Are Coming**\
 `Experts say that a new wave of electric vehicle charging stations are coming soon, even after Tesla gutted its charger team.`\
 https://nytimes.com/2024/05/07/climate/new-ev-charging-stations-tesla.html
 
