@@ -1,3 +1,7 @@
+**Late Night Can’t Get Enough of Trump Being Held in Contempt (Again)**\
+`Jimmy Kimmel joked that Donald Trump will likely end up in jail “because he can’t stop talking about the case. It’s like trying to get a dog to stop licking itself.”`\
+https://nytimes.com/2024/05/07/arts/television/late-night-trump-contempt.html
+
 **In Trump Trial, the Next Major Witness Is a Mystery**\
 `After a day in which witnesses talked about ledgers and records, only a few major figures remain for prosecutors to call.`\
 https://nytimes.com/2024/05/07/nyregion/trump-trial-hush-money-witness.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah
 **Europe Is About to Drown in the River of the Radical Right**\
 `It does not have to be this way.`\
 https://nytimes.com/2024/05/07/opinion/europe-elections-macron-machiavelli.html
-
-**Hamas’s Offer to Hand Over 33 Hostages Includes Some Who Are Dead**\
-`It was not clear whether Hamas revealed in the cease-fire negotiations with Israel how many of the 33 who would be freed in the first phase of the proposed deal are still alive and how many are dead.`\
-https://nytimes.com/2024/05/07/us/politics/israel-hamas-hostages-dead.html
 
