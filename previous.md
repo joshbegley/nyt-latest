@@ -1,3 +1,7 @@
+**Inside the White House Scramble to Broker a Deal in Gaza**\
+`The flurry of actions underscores how fluid the situation in the region is as President Biden and his team try to ultimately end the war that has devastated Gaza.`\
+https://nytimes.com/2024/05/06/us/politics/biden-cease-fire-gaza.html
+
 **Senators Need to Stop the Anti-Semitism Awareness Act**\
 `The panic over pro-Palestinian protesters fuels illiberal legislation.`\
 https://nytimes.com/2024/05/06/opinion/antisemitism-act-free-speech.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/06/science/boeing-starliner-launch/the-starline
 **A New Diplomatic Strategy Emerges as Artificial Intelligence Grows**\
 `The new U.S. approach to cyberthreats comes as early optimism about a “global internet” connecting the world has been shattered.`\
 https://nytimes.com/2024/05/06/us/politics/diplomatic-strategy-artificial-intelligence.html
-
-**Isabelle Huppert’s Balenciaga dress pays homage to her ancestors.**\
-`By Vanessa Friedman`\
-https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/isabelle-huppert-balenciaga-met-gala
 
