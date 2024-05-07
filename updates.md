@@ -1,3 +1,11 @@
+**‘Challengers’ and That Ending: Our Critics Have Thoughts**\
+`The tennis movie comes to an abrupt stop midmatch, so we don’t know who won. Does that matter?`\
+https://nytimes.com/2024/05/07/movies/challengers-ending-zendaya.html
+
+**Miss USA Resigns From Title, Citing Mental Health**\
+`Noelia Voigt, who represented Utah as she won the 2023 competition said in a statement that relinquishing her title was a “tough decision.”`\
+https://nytimes.com/2024/05/07/us/noelia-voigt-miss-usa-resign.html
+
 **Robert Downey Jr. to Make Broadway Debut in Ayad Akhtar Play**\
 `The Oscar-winning actor will star as an A.I.-curious author in “McNeal,” starting performances in September at Lincoln Center Theater.`\
 https://nytimes.com/2024/05/07/theater/robert-downey-jr-ayad-akhtar-broadway.html
