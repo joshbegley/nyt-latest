@@ -1,3 +1,7 @@
+**20 Unforgettable Looks at the Met Gala**\
+`At an event where fashion is the focus, these ensembles stood out more than most.`\
+https://nytimes.com/2024/05/07/fashion/met-gala-fashion-photos-zendaya-kim-kardashian.html
+
 **It Took Decades, but Japan’s Working Women Are Making Progress**\
 `Employers have taken steps to change a male-dominated workplace culture. But women still struggle to balance their careers with domestic obligations.`\
 https://nytimes.com/2024/05/07/world/asia/japan-working-women.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/fashion/met-gala-rihanna-beyonce-taylor-swift.htm
 **Sound of Enlightenment**\
 `Justin Werfel makes his debut in the New York Times Crossword.`\
 https://nytimes.com/2024/05/06/crosswords/daily-puzzle-2024-05-07.html
-
-**U.C. Santa Cruz protesters want the school to cut ties with Hillel.**\
-`By Heather Knight`\
-https://nytimes.com/live/2024/05/06/us/campus-protests/uc-santa-cruz-protesters-want-the-school-to-cut-ties-with-hillel
 
