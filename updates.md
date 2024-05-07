@@ -1,3 +1,15 @@
+**Is the Met Gala Protest-Proof?**\
+`Despite a rich, class-based theme and calls to disrupt the fashion extravaganza of the year, politics proved no match for the power of the spectacle.`\
+https://nytimes.com/2024/05/07/style/met-gala-protests.html
+
+**California Is Rebranding**\
+`Why the state’s tourism agency ditched its “Dream Big” slogan after more than a decade.`\
+https://nytimes.com/2024/05/07/us/california-tourism-campaign.html
+
+**The University of Chicago initially took a permissive stance, but removed the camp on Tuesday.**\
+`The university has presented itself as a national model for free expression on campus. Its president said that the encampment “cannot continue.”`\
+https://nytimes.com/live/2024/05/07/us/campus-protests/university-chicago-encampment-protests
+
 **Weekly Student New Quiz: Myanmar, Campus Protests, 'Hell's Kitchen'**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2024/05/07/learning/07StudentNewsQuiz.html
