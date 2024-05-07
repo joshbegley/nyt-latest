@@ -28,7 +28,7 @@ https://nytimes.com/2024/05/06/world/middleeast/burns-cease-fire-hamas.html
 
 **Pro-Palestinian protesters resist an order to clear an encampment at M.I.T.**\
 `By Matthew Eadie and Jenna Russell`\
-https://nytimes.com/live/2024/05/06/us/campus-protests/pro-palestinian-protesters-resist-an-order-to-clear-an-encampment-at-mit
+https://nytimes.com/2024/05/06/us/pro-palestinian-protesters-resist-an-order-to-clear-an-encampment-at-mit.html
 
 **Kim Kardashian Stuns in Breathtaking Corset That Leaves Little Room to Breathe**\
 `Viewers online immediately took notice of the cinched waistline.`\
