@@ -1,3 +1,7 @@
+**Preparations Ramp Up for Global Security Force to Quell Haitian Violence**\
+`More than half a dozen nations have pledged personnel to a multinational effort to stabilize Haiti, where gangs have taken over much of the capital, setting off a major humanitarian crisis.`\
+https://nytimes.com/2024/05/07/world/africa/haiti-security-force.html
+
 **Is the Met Gala Protest-Proof?**\
 `Despite a rich, class-based theme and calls to disrupt the fashion extravaganza of the year, politics proved no match for the power of the spectacle.`\
 https://nytimes.com/2024/05/07/fashion/met-gala-protests.html
