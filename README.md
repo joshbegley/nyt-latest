@@ -1,3 +1,7 @@
+**With or without Tesla, more E.V. chargers are coming**\
+`Experts say that a new wave of electric vehicle charging stations are coming soon, even after Tesla gutted its charger team.`\
+https://nytimes.com/2024/05/07/climate/new-ev-charging-stations-tesla.html
+
 **Tiny Love Stories: ‘A Rarity in Paris’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/05/07/style/tiny-modern-love-stories-a-rarity-in-paris.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/07/nyregion/adams-trump-rikers.html
 **Panera Will Discontinue Charged Lemonade Drinks**\
 `The highly caffeinated line of Charged drinks at Panera Bread was the subject of two wrongful-death lawsuits.`\
 https://nytimes.com/2024/05/07/us/panera-charged-lemonade-discontinued.html
-
-**A U.S. lawmaker urged an international court to issue an arrest warrant for Netanyahu.**\
-`By Robert Jimison`\
-https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/a-us-lawmaker-urged-an-international-court-to-issue-an-arrest-warrant-for-netanyahu
 
