@@ -4,7 +4,7 @@ https://nytimes.com/2024/05/07/fashion/met-gala-parties-boom-boom-room.html
 
 **In Europe, the police are also arresting protesters and clearing encampments.**\
 `By Ali Watkins`\
-https://nytimes.com/live/2024/05/07/us/campus-protests/in-europe-the-police-are-also-arresting-protesters-and-clearing-encampments
+https://nytimes.com/2024/05/07/us/europe-universities-protesters-encampments.html
 
 **E. Coli Has Been Found in Ground Beef and Walnuts. Here’s What to Know.**\
 `The bacteria sickens an estimated 265,000 Americans each year.`\
