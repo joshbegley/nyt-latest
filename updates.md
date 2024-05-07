@@ -1,3 +1,11 @@
+**Robert Downey Jr. to Make Broadway Debut in Ayad Akhtar Play**\
+`The Oscar-winning actor will star as an A.I.-curious author in “McNeal,” starting performances in September at Lincoln Center Theater.`\
+https://nytimes.com/2024/05/07/theater/robert-downey-jr-ayad-akhtar-broadway.html
+
+**TikTok Sues U.S. Government Over Law Forcing Sale or Ban**\
+`The social media company and its Chinese parent, ByteDance, sued to challenge the new law, saying it violated users’ First Amendment rights.`\
+https://nytimes.com/2024/05/07/business/tiktok-ban-appeal.html
+
 **Shots, Shots, Shots! Why Tiny Drinks Are on the Rise.**\
 `Bartenders are shrinking their pours with variety and festivity in mind.`\
 https://nytimes.com/2024/05/07/t-magazine/tiny-drinks-cocktails-shots.html

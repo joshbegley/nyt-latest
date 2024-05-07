@@ -1,3 +1,11 @@
+**Robert Downey Jr. to Make Broadway Debut in Ayad Akhtar Play**\
+`The Oscar-winning actor will star as an A.I.-curious author in “McNeal,” starting performances in September at Lincoln Center Theater.`\
+https://nytimes.com/2024/05/07/theater/robert-downey-jr-ayad-akhtar-broadway.html
+
+**TikTok Sues U.S. Government Over Law Forcing Sale or Ban**\
+`The social media company and its Chinese parent, ByteDance, sued to challenge the new law, saying it violated users’ First Amendment rights.`\
+https://nytimes.com/2024/05/07/business/tiktok-ban-appeal.html
+
 **Shots, Shots, Shots! Why Tiny Drinks Are on the Rise.**\
 `Bartenders are shrinking their pours with variety and festivity in mind.`\
 https://nytimes.com/2024/05/07/t-magazine/tiny-drinks-cocktails-shots.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/07/nyregion/stormy-daniels-trump-tahoe.html
 **A House committee will examine reports of antisemitism in K-12 schools.**\
 `After helping topple two college presidents, lawmakers will grill school district leaders from New York City; Berkeley, Calif.; and Montgomery County in Maryland.`\
 https://nytimes.com/live/2024/05/07/us/biden-holocaust/a-house-committee-will-examine-reports-of-antisemitism-in-k-12-schools
-
-**After the Met Gala, the Parties Lasted All Night**\
-`Usher, Jeff Bezos, Serena Williams, Erykah Badu, Janelle Monáe and other celebrities kept going into the wee hours.`\
-https://nytimes.com/2024/05/07/fashion/met-gala-parties-boom-boom-room.html
-
-**In Europe, Police Arrest Protesters and Clear Encampments at Universities**\
-`Many European students’ demands parallel those of U.S. students, including for universities to disclose their investment streams and divest from those supporting Israel in the war in Gaza.`\
-https://nytimes.com/2024/05/07/us/europe-universities-protesters-encampments.html
 
