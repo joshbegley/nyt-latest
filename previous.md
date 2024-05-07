@@ -1,6 +1,22 @@
+**Garrick Club of London Votes to Accept Female Members for First Time**\
+`The move ended a decades-long dispute that had divided the opulent private club and generated multiple conflicting legal arguments.`\
+https://nytimes.com/2024/05/07/world/europe/garrick-club-london-female-members.html
+
+**A Timeline of the History Between Stormy Daniels and Donald Trump**\
+`Nearly two decades after they met in Nevada, Daniels and Trump met face to face again in a Lower Manhattan courtroom in the first criminal trial against a former United States president.`\
+https://nytimes.com/2024/05/07/nyregion/stormy-daniels-donald-trump-timeline.html
+
+**A Romantic New Clothing Line With Hidden Quirks**\
+`The designer Meruert Tolegen started out making children’s wear. Her pieces for adults combine precise construction with a playful spirit.`\
+https://nytimes.com/2024/05/07/t-magazine/meruert-tolegen-fashion.html
+
+**Stormy Daniels Was Entertaining, but Did She Make a Real Impact?**\
+`Jurors may believe she and Trump had a tryst, but not necessarily her entire testimony.`\
+https://nytimes.com/2024/05/07/opinion/trump-trial-stormy-impact.html
+
 **A Thank-You Note to the Campus Protesters**\
 `You are my daily reminder of what my Zionism is for, about and against.`\
-https://nytimes.com/2024/05/07/opinion/a-thank-you-note-to-the-campus-protesters.html
+https://nytimes.com/2024/05/07/opinion/college-protests-war-israel.html
 
 **Macron Adds a Personal Touch to His Diplomacy With China**\
 `The French president took Xi Jinping to his childhood haunts high in the Pyrenees, hoping to forge a bond. If only the weather would have cooperated.`\
@@ -21,20 +37,4 @@ https://nytimes.com/2024/05/07/climate/new-ev-charging-stations-tesla.html
 **Tiny Love Stories: ‘A Rarity in Paris’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/05/07/style/tiny-modern-love-stories-a-rarity-in-paris.html
-
-**‘Maybe the Best Breakfast I’ve Ever Made’**\
-`Huevos rancheros, coffee cake and more reader-favorite recipes for Mother’s Day. (Which, by the way, is this Sunday.)`\
-https://nytimes.com/2024/05/07/dining/best-mothers-day-breakfast-ideas.html
-
-**Netanyahu dismisses Hamas’s latest proposal on a cease-fire as insincere.**\
-`By Gaya Gupta`\
-https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/netanyahu-dismisses-hamass-latest-proposal-on-a-cease-fire-as-insincere
-
-**If it Bleeds it Leads, Inflation Edition**\
-`How negativity bias affects economic perceptions.`\
-https://nytimes.com/2024/05/07/opinion/inflation-news-coverage.html
-
-**The New Players in Brazilian Politics? Elon Musk and Republicans.**\
-`The billionaire businessman and House Republicans have given new life to former President Jair Bolsonaro by attacking Brazil’s Supreme Court.`\
-https://nytimes.com/2024/05/07/world/americas/brazil-politics-elon-musk-republicans.html
 
