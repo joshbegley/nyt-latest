@@ -1,3 +1,11 @@
+**In a Surprise, Disney+ Becomes Profitable**\
+`The streaming service added 6 million subscriptions and made $47 million in its latest quarter, helping Disney deliver stronger-than-expected earnings.`\
+https://nytimes.com/2024/05/07/business/media/disney-quarterly-earnings.html
+
+**Xi to Head for Friendly Ports in an Eastern Europe Disenchanted With China**\
+`After leaving France later Tuesday, the Chinese leader will visit Serbia and Hungary, whose authoritarian leaders offer a haven for China as tensions grow over the war in Ukraine.`\
+https://nytimes.com/2024/05/07/world/europe/xi-serbia-hungary-europe.html
+
 **Russia Will Keep U.S. Soldier in Custody for Months, Local Media Reports**\
 `The American soldier, Staff Sgt. Gordon Black, was detained last week. He was traveling home after being stationed in South Korea, according to the U.S. authorities.`\
 https://nytimes.com/2024/05/07/world/europe/us-soldier-detained-russia.html
