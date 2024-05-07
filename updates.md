@@ -1,3 +1,7 @@
+**A U.S. lawmaker urged an international court to issue an arrest warrant for Netanyahu.**\
+`By Robert Jimison`\
+https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/a-us-lawmaker-urged-an-international-court-to-issue-an-arrest-warrant-for-netanyahu
+
 **Read TikTok’s legal challenge**\
 `TikTok filed a challenge to a law forcing its parent company, ByteDance, to sell the app or face its ban in the United States.`\
 https://nytimes.com/interactive/2024/05/07/technology/tiktok-lawsuit-appeal.html
