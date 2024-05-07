@@ -1,3 +1,7 @@
+**Corrections: May 7, 2024**\
+`Corrections that appeared in print on Tuesday, May 7, 2024.`\
+https://nytimes.com/2024/05/06/pageoneplus/corrections-may-7-2024.html
+
 **Quotation of the Day: Trump Warned of Jail, Again, for His Attacks**\
 `Quotation of the Day for Tuesday, May 7, 2024.`\
 https://nytimes.com/2024/05/06/pageoneplus/quotation-of-the-day-trump-warned-of-jail-again-for-his-attacks.html
