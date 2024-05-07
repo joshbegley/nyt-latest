@@ -1,3 +1,11 @@
+**Redfin Agrees to Share Data and Pay $9.25 Million to Settle Lawsuit**\
+`In addition to paying the fine, the online brokerage would give a group of home sellers access to a nationwide database of commissions paid to real estate agents, pending court approval.`\
+https://nytimes.com/2024/05/07/realestate/redfin-settlement-commission-lawsuit.html
+
+**Reddit Posts $575 Million Loss Tied to I.P.O. but Also Strong Growth**\
+`Reddit’s first earnings report as a public company showed a loss from expenses related to its initial public offering, along with leaps in users and advertising revenue.`\
+https://nytimes.com/2024/05/07/technology/reddit-quarterly-earnings-report.html
+
 **Garrick Club of London Votes to Accept Female Members for First Time**\
 `The move ended a decades-long dispute that had divided the opulent private club and generated multiple conflicting legal arguments.`\
 https://nytimes.com/2024/05/07/world/europe/garrick-club-london-female-members.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/07/opinion/stormy-daniels-trump-trial.html
 **Police Tackle and Arrest Anti-Trump Protester Outside Courthouse**\
 `Officers have enforced a ban on amplification and on Tuesday grappled with a man who had been chanting into a microphone.`\
 https://nytimes.com/2024/05/07/nyregion/trump-trial-protester-arrest.html
-
-**With or Without Tesla, More E.V. Chargers Are Coming**\
-`Experts say that a new wave of electric vehicle charging stations are coming soon, even after Tesla gutted its charger team.`\
-https://nytimes.com/2024/05/07/climate/new-ev-charging-stations-tesla.html
-
-**Tiny Love Stories: ‘A Rarity in Paris’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2024/05/07/style/tiny-modern-love-stories-a-rarity-in-paris.html
 
