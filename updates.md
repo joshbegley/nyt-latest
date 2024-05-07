@@ -1,4 +1,8 @@
 **Body of Final Victim in Baltimore Bridge Collapse Is Found**\
+`The victim, José Mynor López, was a member of a work crew that had been filling potholes on the bridge when it was struck in March by a container ship.`\
+https://nytimes.com/2024/05/07/us/baltimore-bridge-victim-body-recovered.html
+
+**Body of Final Victim in Baltimore Bridge Collapse Is Found**\
 `The victim, José Mynor López, 37, was a member of a work crew that had been filling potholes on the bridge when it was struck in March by a container ship.`\
 https://nytimes.com/2024/05/07/us/baltimore-bridge-victim-body-recovered.html
 
