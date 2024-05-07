@@ -8,7 +8,7 @@ https://nytimes.com/live/2024/05/06/science/boeing-starliner-launch/this-has-bee
 
 **Here is a timeline of the recent twists and turns in the cease-fire talks.**\
 `By Eric Nagourney and Aaron Boxerman`\
-https://nytimes.com/live/2024/05/06/world/israel-gaza-war-hamas/here-is-a-timeline-of-the-recent-twists-and-turns-in-the-cease-fire-talks
+https://nytimes.com/2024/05/06/world/middleeast/here-is-a-timeline-of-the-recent-twists-and-turns-in-the-cease-fire-talks.html
 
 **Police Make Arrests While Trying to Contain Protests**\
 `As expected, protesters gathered near the Met Gala to protest the war in Gaza, creating an atmosphere far different from the one inside the event.`\
