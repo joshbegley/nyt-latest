@@ -12,7 +12,7 @@ https://nytimes.com/2024/05/07/style/katy-perry-met-gala-ai.html
 
 **Is the Met Gala Protest-Proof?**\
 `Despite a rich, class-based theme and calls to disrupt the fashion extravaganza of the year, politics proved no match for the power of the spectacle.`\
-https://nytimes.com/2024/05/07/style/met-gala-protests.html
+https://nytimes.com/2024/05/07/fashion/met-gala-protests.html
 
 **California Is Rebranding**\
 `Why the state’s tourism agency ditched its “Dream Big” slogan after more than a decade.`\
