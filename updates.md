@@ -1,3 +1,11 @@
+**Canada Re-Criminalizes Public Drug Use in British Columbia**\
+`A province that was a global pioneer in harm reduction took a step back after a political backlash.`\
+https://nytimes.com/2024/05/07/world/canada/british-columbia-public-drug-use.html
+
+**Transcript of Trump Manhattan Trial, May 6, 2024**\
+`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
+https://nytimes.com/interactive/2024/05/07/nyregion/trump-hush-money-trial-transcript-may-6.html
+
 **Body of Final Victim in Baltimore Bridge Collapse Is Found**\
 `The victim, José Mynor López, was a member of a work crew that had been filling potholes on the bridge when it was struck in March by a container ship.`\
 https://nytimes.com/2024/05/07/us/baltimore-bridge-victim-body-recovered.html

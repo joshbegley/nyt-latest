@@ -1,3 +1,11 @@
+**Canada Re-Criminalizes Public Drug Use in British Columbia**\
+`A province that was a global pioneer in harm reduction took a step back after a political backlash.`\
+https://nytimes.com/2024/05/07/world/canada/british-columbia-public-drug-use.html
+
+**Transcript of Trump Manhattan Trial, May 6, 2024**\
+`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
+https://nytimes.com/interactive/2024/05/07/nyregion/trump-hush-money-trial-transcript-may-6.html
+
 **Body of Final Victim in Baltimore Bridge Collapse Is Found**\
 `The victim, José Mynor López, was a member of a work crew that had been filling potholes on the bridge when it was struck in March by a container ship.`\
 https://nytimes.com/2024/05/07/us/baltimore-bridge-victim-body-recovered.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/07/world/middleeast/israeli-rafah-gaza-ceasefire.htm
 **Sanitation Company Fined $649,000 for Hiring Children in Slaughterhouses**\
 `Fayette Janitorial Service was also ordered to change practices that the Labor Department said had led to the hiring of at least two dozen children in dangerous slaughterhouses and meatpacking facilities.`\
 https://nytimes.com/2024/05/07/us/slaughterhouse-fine-children-clean.html
-
-**Stormy Daniels Stood Up Well to the Taunts of Trump’s Lawyer**\
-`She had explanations — some more convincing than others — for zig-zagging in interviews.`\
-https://nytimes.com/2024/05/07/opinion/trump-trial-stormy-daniels.html
-
-**Outage Causes Delays at U.K. Airports’ Immigration Checkpoints**\
-`Airport officials said that a system outage affecting the Border Force’s immigration gates was causing long waits for passengers arriving in Britain.`\
-https://nytimes.com/2024/05/07/world/europe/uk-airport-outage-heathrow.html
 
