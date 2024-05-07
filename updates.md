@@ -1,3 +1,11 @@
+**The Met Gala, in Photos**\
+`Times critic Vanessa Friedman on the biggest night in fashion.`\
+https://nytimes.com/2024/05/07/briefing/met-gala-2024-photos.html
+
+**Closures of two Gaza border crossings prompt alarm over humanitarian aid.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/closures-of-two-gaza-border-crossings-prompt-alarm-over-humanitarian-aid
+
 **In a Surprise, Disney+ Becomes Profitable**\
 `The streaming service added 6 million subscriptions and made $47 million in its latest quarter, helping Disney deliver stronger-than-expected earnings.`\
 https://nytimes.com/2024/05/07/business/media/disney-quarterly-earnings.html
