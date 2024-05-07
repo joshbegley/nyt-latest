@@ -2,8 +2,8 @@
 `Usher, Jeff Bezos, Serena Williams, Erykah Badu, Janelle Monáe and other celebrities kept going into the wee hours.`\
 https://nytimes.com/2024/05/07/fashion/met-gala-parties-boom-boom-room.html
 
-**In Europe, the police are also arresting protesters and clearing encampments.**\
-`By Ali Watkins`\
+**In Europe, Police Arrest Protesters and Clear Encampments at Universities**\
+`Many European students’ demands parallel those of U.S. students, including for universities to disclose their investment streams and divest from those supporting Israel in the war in Gaza.`\
 https://nytimes.com/2024/05/07/us/europe-universities-protesters-encampments.html
 
 **E. Coli Has Been Found in Ground Beef and Walnuts. Here’s What to Know.**\
