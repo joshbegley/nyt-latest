@@ -2,8 +2,8 @@
 `Inday serves fast-casual Indian American fare, Summer at the Rink Rock Center provides al fresco dining and more restaurant news.`\
 https://nytimes.com/2024/05/07/dining/nyc-restaurant-news.html
 
-**Prosecutors Mine Trump’s Books for Quotes to Use Against Him**\
-`“When somebody hurts you, just go after them as viciously and as violently as you can,” Donald J. Trump wrote.`\
+**‘Every Dollar Counts’: Prosecutors Use Quotes From Trump’s Books Against Him**\
+`Donald J. Trump’s books provided prosecutors with passages they believe can help their case, as they argue that he knew that his company falsified business records to cover up a hush-money payment to Stormy Daniels.`\
 https://nytimes.com/2024/05/07/nyregion/sally-franklin-books-trump-trial.html
 
 **On college campuses, pro-Palestinian protesters urge supporters to rally nationwide.**\
