@@ -1,10 +1,14 @@
+**A Romantic New Clothing Line With Hidden Quirks**\
+`The designer Meruert Tolegen started out making children’s wear. Her pieces for adults combine precise construction with a playful spirit.`\
+https://nytimes.com/2024/05/07/t-magazine/meruert-tolegen-fashion.html
+
 **Stormy Daniels Was Entertaining, but Did She Make a Real Impact?**\
 `Jurors may believe she and Trump had a tryst, but not necessarily her entire testimony.`\
 https://nytimes.com/2024/05/07/opinion/trump-trial-stormy-impact.html
 
 **A Thank-You Note to the Campus Protesters**\
 `You are my daily reminder of what my Zionism is for, about and against.`\
-https://nytimes.com/2024/05/07/opinion/a-thank-you-note-to-the-campus-protesters.html
+https://nytimes.com/2024/05/07/opinion/college-protests-war-israel.html
 
 **Macron Adds a Personal Touch to His Diplomacy With China**\
 `The French president took Xi Jinping to his childhood haunts high in the Pyrenees, hoping to forge a bond. If only the weather would have cooperated.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/07/dining/best-mothers-day-breakfast-ideas.html
 **Netanyahu dismisses Hamas’s latest proposal on a cease-fire as insincere.**\
 `By Gaya Gupta`\
 https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/netanyahu-dismisses-hamass-latest-proposal-on-a-cease-fire-as-insincere
-
-**If it Bleeds it Leads, Inflation Edition**\
-`How negativity bias affects economic perceptions.`\
-https://nytimes.com/2024/05/07/opinion/inflation-news-coverage.html
 
