@@ -1,3 +1,7 @@
+**07trump-trial**\
+`Live Updates: In Trump Trial, the Next Major Witness Is a Mystery`\
+https://nytimes.com/live/2024/05/07/nyregion/trump-trial-hush-money-stormy-daniels
+
 **Met Gala**\
 `What were your favorite and least favorite looks at this year’s show?`\
 https://nytimes.com/2024/05/07/learning/met-gala.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/07/business/media/disney-quarterly-earnings.html
 **Xi to Head for Friendly Ports in an Eastern Europe Disenchanted With China**\
 `After leaving France later Tuesday, the Chinese leader will visit Serbia and Hungary, whose authoritarian leaders offer a haven for China as tensions grow over the war in Ukraine.`\
 https://nytimes.com/2024/05/07/world/europe/xi-serbia-hungary-europe.html
-
-**Russia Will Keep U.S. Soldier in Custody for Months, Local Media Reports**\
-`The American soldier, Staff Sgt. Gordon Black, was detained last week. He was traveling home after being stationed in South Korea, according to the U.S. authorities.`\
-https://nytimes.com/2024/05/07/world/europe/us-soldier-detained-russia.html
 
