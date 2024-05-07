@@ -1,3 +1,11 @@
+**Is the Met Gala Protest-Proof?**\
+`Despite a rich, class-based theme and calls to disrupt the fashion extravaganza of the year, politics proved no match for the power of the spectacle.`\
+https://nytimes.com/2024/05/07/style/met-gala-protests.html
+
+**California Is Rebranding**\
+`Why the state’s tourism agency ditched its “Dream Big” slogan after more than a decade.`\
+https://nytimes.com/2024/05/07/us/california-tourism-campaign.html
+
 **Weekly Student New Quiz: Myanmar, Campus Protests, 'Hell's Kitchen'**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2024/05/07/learning/07StudentNewsQuiz.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/05/07/us/campus-protests/university-chicago-encamp
 **The Met Gala, in Photos**\
 `Times critic Vanessa Friedman on the biggest night in fashion.`\
 https://nytimes.com/2024/05/07/briefing/met-gala-2024-photos.html
-
-**Closures of two Gaza border crossings prompt alarm over humanitarian aid.**\
-`By Cassandra Vinograd`\
-https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/closures-of-two-gaza-border-crossings-prompt-alarm-over-humanitarian-aid
-
-**In a Surprise, Disney+ Becomes Profitable**\
-`The streaming service added 6 million subscriptions and made $47 million in its latest quarter, helping Disney deliver stronger-than-expected earnings.`\
-https://nytimes.com/2024/05/07/business/media/disney-quarterly-earnings.html
 
