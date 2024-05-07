@@ -8,7 +8,7 @@ https://nytimes.com/2024/05/07/style/tiny-modern-love-stories-a-rarity-in-paris.
 
 **‘Maybe the Best Breakfast I’ve Ever Made’**\
 `Huevos rancheros, coffee cake and more reader-favorite recipes for Mother’s Day. (Which, by the way, is this Sunday.)`\
-https://nytimes.com/2024/05/07/dining/maybe-the-best-breakfast-ive-ever-made.html
+https://nytimes.com/2024/05/07/dining/best-mothers-day-breakfast-ideas.html
 
 **Netanyahu dismisses Hamas’s latest proposal on a cease-fire as insincere.**\
 `By Gaya Gupta`\
