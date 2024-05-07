@@ -1,3 +1,11 @@
+**Security Guard Injured in Shooting Outside Drake’s Home in Toronto**\
+`The police said that they did not know whether the shooting was related to the recent exchange of increasingly personal diss tracks traded between Drake and Kendrick Lamar.`\
+https://nytimes.com/2024/05/07/arts/music/drake-shooting-security-guard-toronto.html
+
+**A bill could withhold funding for schools that fail to restrict antisemitism on campus.**\
+`By Annie Karni`\
+https://nytimes.com/live/2024/05/07/us/biden-holocaust/a-bill-could-withhold-funding-for-schools-that-fail-to-restrict-antisemitism-on-campus
+
 **Blinken Holds Regional Talks on Migration in Latin America**\
 `Secretary of State Antony J. Blinken’s trip to Guatemala comes as the United States tries to get countries in the region to ramp up enforcement of their borders.`\
 https://nytimes.com/2024/05/07/us/politics/blinken-migrants-guatemala-border.html

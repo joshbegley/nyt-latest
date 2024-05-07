@@ -1,3 +1,7 @@
+**U.S. Tightens Rules on Risky Virus Research**\
+`A long-awaited new policy broadens the type of regulated viruses, bacteria, fungi and toxins, including those that could threaten crops and livestock.`\
+https://nytimes.com/2024/05/07/science/covid-lab-leak-biosafety-rules-virus-research.html
+
 **Security Guard Injured in Shooting Outside Drake’s Home in Toronto**\
 `The police said that they did not know whether the shooting was related to the recent exchange of increasingly personal diss tracks traded between Drake and Kendrick Lamar.`\
 https://nytimes.com/2024/05/07/arts/music/drake-shooting-security-guard-toronto.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/07/us/europe-universities-protesters-encampments.htm
 **E. Coli Has Been Found in Ground Beef and Walnuts. Here’s What to Know.**\
 `The bacteria sickens an estimated 265,000 Americans each year.`\
 https://nytimes.com/2024/05/07/well/live/ecoli-food-poisoning-beef-walnuts.html
-
-**Scientists Find an ‘Alphabet’ in Whale Songs**\
-`Sperm whales rattle off pulses of clicks while swimming together, raising the possibility that they’re communicating in a complex language.`\
-https://nytimes.com/2024/05/07/science/whale-song-alphabet.html
 
