@@ -14,7 +14,7 @@ https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/isabelle-huppert-balen
 `The story behind her semi-recycled red-carpet look.`\
 https://nytimes.com/2024/05/06/style/amanda-seyfried-met-gala-prada.html
 
-**Hochul Apologizes for Saying ‘Black Kids’ Don’t Know the Word ‘Computer’**\
+**Hochul Regrets Saying Some ‘Black Kids’ Don’t Know the Word ‘Computer’**\
 `As Gov. Kathy Hochul urged business leaders to make technology widely accessible, a comment she made about Bronx children raised eyebrows.`\
 https://nytimes.com/2024/05/06/nyregion/hochul-black-kids-computer.html
 
