@@ -1,3 +1,7 @@
+**Stormy Daniels Was Entertaining, but Did She Make a Real Impact?**\
+`Jurors may believe she and Trump had a tryst, but not necessarily her entire testimony.`\
+https://nytimes.com/2024/05/07/opinion/trump-trial-stormy-impact.html
+
 **A Thank-You Note to the Campus Protesters**\
 `You are my daily reminder of what my Zionism is for, about and against.`\
 https://nytimes.com/2024/05/07/opinion/a-thank-you-note-to-the-campus-protesters.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/netanyahu-
 **If it Bleeds it Leads, Inflation Edition**\
 `How negativity bias affects economic perceptions.`\
 https://nytimes.com/2024/05/07/opinion/inflation-news-coverage.html
-
-**The New Players in Brazilian Politics? Elon Musk and Republicans.**\
-`The billionaire businessman and House Republicans have given new life to former President Jair Bolsonaro by attacking Brazil’s Supreme Court.`\
-https://nytimes.com/2024/05/07/world/americas/brazil-politics-elon-musk-republicans.html
 
