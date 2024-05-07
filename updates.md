@@ -1,3 +1,7 @@
+**U.S. Army Soldier Is Detained in Russia**\
+`The soldier was apprehended in Vladivostok on charges of criminal misconduct, in a case that is likely to aggravate the contentious relationship between Moscow and Washington.`\
+https://nytimes.com/2024/05/06/us/us-soldier-detained-russia.html
+
 **Hochul Regrets Saying Some ‘Black Kids’ Don’t Know the Word ‘Computer’**\
 `As Gov. Kathy Hochul urged business leaders to make technology widely accessible, a comment she made about Bronx children raised eyebrows.`\
 https://nytimes.com/2024/05/06/nyregion/hochul-black-kids-computer.html
