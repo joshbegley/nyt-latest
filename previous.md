@@ -1,3 +1,15 @@
+**Wearing Masks During the Gaza Protests**\
+`Readers criticize protesters who try to maintain their anonymity. Also: Money and politics; protecting oceans; possible exiles if Donald Trump wins.`\
+https://nytimes.com/2024/05/07/opinion/gaza-protests-masks.html
+
+**I Didn’t Truly Know My Mother Until I Cooked With Her**\
+`To connect with a parent who awes (and occasionally intimidates) everyone around her, the Times reporter Priya Krishna spends time with her in the kitchen.`\
+https://nytimes.com/2024/05/07/dining/cooking-mothers-day.html
+
+**The U.S. Must Keep the Rafah Invasion from Turning Into a Starvation Crisis**\
+`Israel’s latest move aggravates a desperate situation.`\
+https://nytimes.com/live/2024/05/01/opinion/thepoint/rafah-border-aid-starvation
+
 **They Put a 65-Foot Hot Dog in Times Square, and It’s a Blast**\
 `With “Hot Dog in the City,” the artists Jen Catron and Paul Outlaw question the lore and lure of American culture (and condiments).`\
 https://nytimes.com/2024/05/07/arts/design/hot-dog-in-the-city-sculpture-times-square.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/07/t-magazine/tiny-drinks-cocktails-shots.html
 **U.S. Tightens Rules on Risky Virus Research**\
 `A long-awaited new policy broadens the type of regulated viruses, bacteria, fungi and toxins, including those that could threaten crops and livestock.`\
 https://nytimes.com/2024/05/07/science/covid-lab-leak-biosafety-rules-virus-research.html
-
-**Security Guard Injured in Shooting Outside Drake’s Home in Toronto**\
-`The police said that they did not know whether the shooting was related to the recent exchange of increasingly personal diss tracks traded between Drake and Kendrick Lamar.`\
-https://nytimes.com/2024/05/07/arts/music/drake-shooting-security-guard-toronto.html
-
-**A bill could withhold funding for schools that fail to restrict antisemitism on campus.**\
-`By Annie Karni`\
-https://nytimes.com/live/2024/05/07/us/biden-holocaust/a-bill-could-withhold-funding-for-schools-that-fail-to-restrict-antisemitism-on-campus
-
-**Blinken Holds Regional Talks on Migration in Latin America**\
-`Secretary of State Antony J. Blinken’s trip to Guatemala comes as the United States tries to get countries in the region to ramp up enforcement of their borders.`\
-https://nytimes.com/2024/05/07/us/politics/blinken-migrants-guatemala-border.html
 

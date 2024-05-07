@@ -1,3 +1,15 @@
+**Wearing Masks During the Gaza Protests**\
+`Readers criticize protesters who try to maintain their anonymity. Also: Money and politics; protecting oceans; possible exiles if Donald Trump wins.`\
+https://nytimes.com/2024/05/07/opinion/gaza-protests-masks.html
+
+**I Didn’t Truly Know My Mother Until I Cooked With Her**\
+`To connect with a parent who awes (and occasionally intimidates) everyone around her, the Times reporter Priya Krishna spends time with her in the kitchen.`\
+https://nytimes.com/2024/05/07/dining/cooking-mothers-day.html
+
+**The U.S. Must Keep the Rafah Invasion from Turning Into a Starvation Crisis**\
+`Israel’s latest move aggravates a desperate situation.`\
+https://nytimes.com/live/2024/05/01/opinion/thepoint/rafah-border-aid-starvation
+
 **They Put a 65-Foot Hot Dog in Times Square, and It’s a Blast**\
 `With “Hot Dog in the City,” the artists Jen Catron and Paul Outlaw question the lore and lure of American culture (and condiments).`\
 https://nytimes.com/2024/05/07/arts/design/hot-dog-in-the-city-sculpture-times-square.html
