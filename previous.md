@@ -1,5 +1,5 @@
 **Isolated From West, Putin Projects Domestic Power at Inauguration**\
-`Mr. Putin, who claimed his fifth term in March in a rubber-stamp election, repeated a call for talks to end the war in Ukraine that critics see as a demand for capitulation by the West.`\
+`The event for Mr. Putin, who claimed his fifth term in a rubber-stamp election, included a church service that underscored efforts to give a religious sheen to his rule.`\
 https://nytimes.com/2024/05/07/world/europe/putin-inauguration-russia.html
 
 **The Scramble to Broker a Gaza Deal, and More Questions for Boeing**\
