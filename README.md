@@ -1,3 +1,11 @@
+**‘People are going to continue to die’: Israel’s operation in Rafah has left doctors scrambling.**\
+`By Anushka Patil and Iyad Abuheweila`\
+https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/people-are-going-to-continue-to-die-israels-operation-in-rafah-has-left-doctors-scrambling
+
+**Senator Mike Braun Clinches G.O.P. Nomination for Indiana Governor**\
+`Mr. Braun, a first-term senator, will enter the general election as the strong favorite in his reliably conservative state.`\
+https://nytimes.com/2024/05/07/us/indiana-governor-primary.html
+
 **When These Snakes Play Dead, Soiling Themselves Is Part of the Act**\
 `Dice snakes found on an island in southeastern Europe fully commit themselves to the role of ex-reptile.`\
 https://nytimes.com/2024/05/07/science/snakes-playing-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/07/us/politics/trump-documents-trial-postponed.html
 **Stormy Daniels Testified About Core Details in Trump’s Trial**\
 `Also, TikTok sued the U.S. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/05/07/briefing/stormy-daniels-testimony-israel-hamas-rafah.html
-
-**White House Condemns Taunting of a Black Student at Ole Miss**\
-`In a widely shared video, one white male student at the University of Mississippi appeared to make monkey gestures at a Black pro-Palestinian protester, as others jeered.`\
-https://nytimes.com/2024/05/07/us/ole-miss-protests-video.html
-
-**Trump, Biden and a Split Screen Made for This Moment**\
-`President Biden gave a speech on Holocaust remembrance. Former President Trump was in court with Stormy Daniels. The day captured the sometimes unreal reality of a presidential race like none before it.`\
-https://nytimes.com/2024/05/07/us/politics/trump-trial-biden-speech-holocaust.html
 
