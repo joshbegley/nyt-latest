@@ -1,3 +1,7 @@
+**Consultants to Examine Police Response to Attack at U.C.L.A.**\
+`The University of California system said it would bring in a police consulting firm to investigate why the attack on pro-Palestinian demonstrators was allowed to continue for hours.`\
+https://nytimes.com/2024/05/07/us/ucla-protests-police-investigation.html
+
 **Stormy Daniels, Unfiltered, Takes the Stand**\
 `The porn star at the center of Donald Trump’s criminal trial testified, at times in graphic detail, about the sexual encounter she said she had with Trump in 2006.`\
 https://nytimes.com/2024/05/07/us/politics/trump-trial-stormy-daniels-unfiltered-takes-stand.html
