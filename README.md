@@ -1,3 +1,7 @@
+**Behind Nigeria’s Arrest of Binance Employee, Claims of a Bribe Request**\
+`A compliance officer for the cryptocurrency exchange told senior executives and Nigerian contacts that the company had been asked to pay $150 million in crypto.`\
+https://nytimes.com/2024/05/07/technology/binance-nigeria-tigran-gambaryan.html
+
 **Cocktail Hour at the Met Gala: What Comes After the Carpet**\
 `How Jeff Bezos, Sarah Jessica Parker, Kris Jenner and other A-listers spent their night in the museum. (Hint: Cucumber margaritas were involved.)`\
 https://nytimes.com/2024/05/07/fashion/met-gala-cocktail-party.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/07/learning/word-of-the-day-masquerade.html
 **Here are the latest developments.**\
 `By Isabel Kershner and Andrés R. Martínez`\
 https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/rafah-invasion-israel-hamas
-
-**07mideast-crisis**\
-`Live Updates: Israeli Tanks Enter Rafah and Take Control of Border Crossing`\
-https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah
 
