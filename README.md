@@ -11,7 +11,7 @@ https://nytimes.com/2024/05/07/podcasts/transcript-ezra-klein-interviews-ari-sha
 https://nytimes.com/2024/05/07/nyregion/college-protests-parents.html
 
 **At the Met Gala, Celebrities Are Nearly Nude. Are We Not Aroused?**\
-`In an era of sexual decline, more celebrities are going nearly nude. But no one seems to be enjoying it very much.`\
+`In an era of sexual decline, celebrities are dressing up in outfits that are barely there. But no one seems to be enjoying it much.`\
 https://nytimes.com/2024/05/07/opinion/met-gala-celebrities-nude.html
 
 **Lesley Hazleton, Writer Who Tackled Religion and Fast Cars, Dies at 78**\

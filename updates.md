@@ -1,3 +1,15 @@
+**Inquiry Finds a Toxic Culture at the F.D.I.C., and Takes Aim at Its Leader**\
+`Bad workplace behavior was pervasive at the bank regulator, according to an investigation that questioned whether things can improve without a change in leadership.`\
+https://nytimes.com/2024/05/07/business/fdic-inquiry-workplace-culture.html
+
+**Transcript: Ezra Klein Interviews Ari Shavit**\
+`The May 7, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/05/07/podcasts/transcript-ezra-klein-interviews-ari-shavit.html
+
+**How Parents of College Seniors Are Reacting to Campus Disruptions**\
+`No matter their opinions on pro-Palestinian demonstrations on campus, many parents are angry that final semesters and graduations have been upended.`\
+https://nytimes.com/2024/05/07/nyregion/college-protests-parents.html
+
 **At the Met Gala, Celebrities Are Nearly Nude. Are We Not Aroused?**\
 `In an era of sexual decline, more celebrities are going nearly nude. But no one seems to be enjoying it very much.`\
 https://nytimes.com/2024/05/07/opinion/met-gala-celebrities-nude.html
