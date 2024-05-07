@@ -1,3 +1,7 @@
+**Hochul Apologizes for Saying ‘Black Kids’ Don’t Know the Word ‘Computer’**\
+`As Gov. Kathy Hochul urged business leaders to make technology widely accessible, a comment she made about Bronx children raised eyebrows.`\
+https://nytimes.com/2024/05/06/nyregion/hochul-black-kids-computer.html
+
 **Timeline of Recent Twists and Turns in Gaza Cease-fire Talks**\
 `Hopes for an agreement to halt the fighting and free hostages have risen and fallen repeatedly in recent days.`\
 https://nytimes.com/2024/05/06/world/middleeast/gaza-cease-fire-talks-timeline.html

@@ -1,3 +1,7 @@
+**Hochul Apologizes for Saying ‘Black Kids’ Don’t Know the Word ‘Computer’**\
+`As Gov. Kathy Hochul urged business leaders to make technology widely accessible, a comment she made about Bronx children raised eyebrows.`\
+https://nytimes.com/2024/05/06/nyregion/hochul-black-kids-computer.html
+
 **Transcript of Trump Manhattan Trial, May 3, 2024**\
 `New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
 https://nytimes.com/interactive/2024/05/06/nyregion/trump-hush-money-trial-transcript-may-3.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/business/media/invisible-institute-two-pulitzer-p
 **Emily Ratajkowski Was 10 When Her Met Gala Dress Was Made**\
 `The story behind the archival red-carpet look.`\
 https://nytimes.com/2024/05/06/fashion/emily-ratajkowski-met-gala-versace.html
-
-**Where 3 Dead Tourists Were Found Fast, Thousands Remain Missing**\
-`In Mexico, where tens of thousands of people have disappeared, the robust operation to quickly find the remains of three foreigners, from Australia and the United States, felt like a rare exception.`\
-https://nytimes.com/2024/05/06/world/americas/mexico-killed-tourists-baja-california.html
 
