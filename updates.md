@@ -1,3 +1,11 @@
+**Met Gala**\
+`What were your favorite and least favorite looks at this year’s show?`\
+https://nytimes.com/2024/05/07/learning/met-gala.html
+
+**U.K. Armed Forces’ Data Stolen by State-Linked Hackers, Lawmakers Say**\
+`A payroll system used by Britain’s Ministry of Defense was targeted in a significant cyberattack, senior British politicians said.`\
+https://nytimes.com/2024/05/07/world/europe/uk-armed-forces-data-hack.html
+
 **The University of Chicago protest encampment drew attention to free speech standards.**\
 `The university has presented itself as a national model for free expression on campus. Its president said that the encampment “cannot continue.”`\
 https://nytimes.com/live/2024/05/07/us/campus-protests/university-chicago-encampment-protests
