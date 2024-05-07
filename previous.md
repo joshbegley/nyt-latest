@@ -1,3 +1,11 @@
+**After the Met Gala, the Parties Lasted All Night**\
+`Usher, Jeff Bezos, Serena Williams, Erykah Badu, Janelle Monáe and other celebrities kept going into the wee hours.`\
+https://nytimes.com/2024/05/07/fashion/met-gala-parties-boom-boom-room.html
+
+**In Europe, Police Arrest Protesters and Clear Encampments at Universities**\
+`Many European students’ demands parallel those of U.S. students, including for universities to disclose their investment streams and divest from those supporting Israel in the war in Gaza.`\
+https://nytimes.com/2024/05/07/us/europe-universities-protesters-encampments.html
+
 **E. Coli Has Been Found in Ground Beef and Walnuts. Here’s What to Know.**\
 `The bacteria sickens an estimated 265,000 Americans each year.`\
 https://nytimes.com/2024/05/07/well/live/ecoli-food-poisoning-beef-walnuts.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/05/07/us/biden-holocaust/on-college-campuses-pro-p
 **An official warns of ‘staggeringly’ bad conditions in the so-called safe zones in Rafah.**\
 `By Nick Cumming-Bruce`\
 https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/the-so-called-safe-zones-for-rafah-evacuees-have-staggeringly-bad-conditions-officials-say
-
-**Stormy Daniels, Porn Star Who Says She Had Sex With Trump, Testifies at Trial**\
-`She says she met the former president at a golf tournament and they wound up in his suite. He denies the encounter.`\
-https://nytimes.com/2024/05/07/nyregion/stormy-daniels-trump-trial.html
-
-**Preparations Ramp Up for Global Security Force to Quell Haitian Violence**\
-`More than half a dozen nations have pledged personnel to a multinational effort to stabilize Haiti, where gangs have taken over much of the capital, setting off a major humanitarian crisis.`\
-https://nytimes.com/2024/05/07/world/africa/haiti-security-force.html
 
