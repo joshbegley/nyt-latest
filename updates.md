@@ -1,3 +1,15 @@
+**What to Know About the Gaps Between Israel and Hamas on the Cease-Fire Proposal**\
+`Hamas said it had accepted the terms of a cease-fire proposed by Arab mediators, but Prime Minister Benjamin Netanyahu said it was “very far from Israel’s core demands.”`\
+https://nytimes.com/2024/05/07/world/middleeast/israel-hamas-ceasefire-proposal.html
+
+**07pol-swiper**\
+`Election Updates: R.F.K. Jr. challenges Trump to a debate at the Libertarian Party convention.`\
+https://nytimes.com/live/2024/05/07/us/biden-trump-election
+
+**R.F.K. Jr., Invited to Libertarian Convention, Seeks Trump Debate**\
+`Both presidential candidates are scheduled to address a Libertarian gathering this month in Washington.`\
+https://nytimes.com/2024/05/07/us/politics/rfk-trump-debate.html
+
 **The Boy Scouts of America Will Be Renamed Scouting America**\
 `The organization, which is battling bankruptcy and sexual abuse claims, said the rebrand was part of an effort to be more inclusive and welcome all members of America’s youth.`\
 https://nytimes.com/2024/05/07/us/boy-scouts-name-change.html
