@@ -1,40 +1,40 @@
-**Here are the latest developments on campus protests.**\
-`By Yan Zhuang`\
-https://nytimes.com/live/2024/05/07/us/campus-protests/here-are-the-latest-developments-on-campus-protests
+**At Least 2 Dead in Hospital Knife Attack in China**\
+`At least 21 other people were injured during the stabbing rampage in the southwestern province of Yunnan, the police said. A suspect was arrested.`\
+https://nytimes.com/2024/05/07/world/asia/china-hospital-knife-stabbing-attack.html
 
-**Will You Look at Me**\
-`When a young Chinese filmmaker returns to his hometown in search of himself, a long-due conversation with his mother dives the two of them into a quest for acceptance and love.`\
-https://nytimes.com/video/opinion/100000009295710/will-you-look-at-me.html
+**The One Thing Trump Knows He Wants in a Running Mate**\
+`When election denialism is a prerequisite.`\
+https://nytimes.com/2024/05/07/opinion/trump-running-mate-election.html
 
-**Behind Nigeria’s Arrest of Binance Employee, Claims of a Bribe Request**\
-`A compliance officer for the cryptocurrency exchange told senior executives and Nigerian contacts that the company had been asked to pay $150 million in crypto.`\
-https://nytimes.com/2024/05/07/technology/binance-nigeria-tigran-gambaryan.html
+**Israel Shutters One of Its Few Links to the Arab World**\
+`Al Jazeera did important reporting in Gaza and could have helped communicate terms of a cease-fire.`\
+https://nytimes.com/2024/05/07/opinion/israel-shutters-al-jazeera.html
 
-**Cocktail Hour at the Met Gala: What Comes After the Carpet**\
-`How Jeff Bezos, Sarah Jessica Parker, Kris Jenner and other A-listers spent their night in the museum. (Hint: Cucumber margaritas were involved.)`\
-https://nytimes.com/2024/05/07/fashion/met-gala-cocktail-party.html
+**Biden to Condemn Antisemitism at Holocaust Remembrance Ceremony**\
+`President Biden’s address from Capitol Hill comes during weeks of protests on American college campuses against Israel’s war in Gaza.`\
+https://nytimes.com/2024/05/07/us/politics/biden-antisemitism-holocaust-remembrance-ceremony.html
 
-**Late Night Can’t Get Enough of Trump Being Held in Contempt (Again)**\
-`Jimmy Kimmel joked that Donald Trump will likely end up in jail “because he can’t stop talking about the case. It’s like trying to get a dog to stop licking itself.”`\
-https://nytimes.com/2024/05/07/arts/television/late-night-trump-contempt.html
+**Giant Batteries Are Transforming the Way the U.S. Uses Electricity**\
+`They’re delivering solar power after dark in California and helping to stabilize grids in other states. And the technology is expanding rapidly.`\
+https://nytimes.com/interactive/2024/05/07/climate/battery-electricity-solar-california-texas.html
 
-**In Trump Trial, the Next Major Witness Is a Mystery**\
-`After a day in which witnesses talked about ledgers and records, only a few major figures remain for prosecutors to call.`\
-https://nytimes.com/2024/05/07/nyregion/trump-trial-hush-money-witness.html
+**Which Toy Would You Want to Help Design or Update?**\
+`A Lego set, Hot Wheels car or Barbie doll? A new board or video game? A favorite childhood plaything reimagined for today?`\
+https://nytimes.com/2024/05/07/learning/which-toy-would-you-want-to-help-design-or-update.html
 
-**Stormy Daniels, Once Paid to Keep Quiet, Could Testify Against Trump**\
-`Ms. Daniels could take the stand this week, allowing jurors to see and hear from the person at the center of the criminal case against the former president.`\
-https://nytimes.com/2024/05/07/nyregion/stormy-daniels-trump-witness.html
+**Watching the Protests From Israel**\
+`The Israeli writer Ari Shavit discusses the tensions between the demands of campus activists and how Israelis see the war.`\
+https://nytimes.com/2024/05/07/opinion/ezra-klein-podcast-ari-shavit.html
 
-**Today’s Wordle Review No. 1,053**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/07/crosswords/wordle-review.html
+**In Berkeley Public Schools, a War Gives Rise to Unusual Tensions**\
+`Accusations of antisemitism in K-12 schools have fractured a city long known for its progressive ideals and inclusiveness.`\
+https://nytimes.com/2024/05/07/us/berkeley-schools-israel-hamas-war.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/05/07/crosswords/spelling-bee-forum.html
+**Netflix Gives Comedy the Live Treatment. The Results Are Chaotic.**\
+`Sometimes that’s a good thing, as with John Mulaney’s variety show “Everybody’s in L.A.” But the Katt Williams special and Tom Brady roast were more uneven.`\
+https://nytimes.com/2024/05/07/arts/television/netflix-livestreaming-comedy-tom-brady-katt-williams.html
 
-**The Connections Companion No. 331**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/07/crosswords/connections-companion.html
+**The Fall Guy Steps Into the Spotlight**\
+`The director David Leitch on the unsung artistry of stunt performers.`\
+https://nytimes.com/2024/05/07/podcasts/the-fall-guy-steps-into-the-spotlight.html
 
