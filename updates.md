@@ -1,3 +1,11 @@
+**Outage Causes Delays at U.K. Airports’ Immigration Checkpoints**\
+`Airport officials said that a system outage affecting the Border Force’s immigration gates was causing long waits for passengers arriving in Britain.`\
+https://nytimes.com/2024/05/07/world/europe/uk-airport-outage-e-gates.html
+
+**Judge Postpones Start of Trump Documents Trial Without New Date**\
+`Judge Aileen Cannon had previously made clear that the trial would not start as scheduled this month but she declined to set a new timetable, saying many pretrial issues still have to be resolved.`\
+https://nytimes.com/2024/05/07/us/politics/trump-documents-trial-postponed.html
+
 **Stormy Daniels Testified About Core Details in Trump’s Trial**\
 `Also, TikTok sued the U.S. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/05/07/briefing/stormy-daniels-testimony-israel-hamas-rafah.html
