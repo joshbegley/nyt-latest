@@ -1,3 +1,7 @@
+**Stormy Daniels, Unfiltered, Takes the Stand**\
+`The porn star at the center of Donald Trump’s criminal trial testified, at times in graphic detail, about the sexual encounter she said she had with Trump in 2006.`\
+https://nytimes.com/2024/05/07/us/politics/trump-trial-stormy-daniels-unfiltered-takes-stand.html
+
 **How Much Money Did This Year’s Met Gala Raise?**\
 `Ticket prices to the event have sharply risen, making it a fund-raising bonanza for the Metropolitan Museum of Art’s Costume Institute.`\
 https://nytimes.com/2024/05/07/style/met-gala-money-fund-raising.html
