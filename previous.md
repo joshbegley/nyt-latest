@@ -1,3 +1,15 @@
+**Transcript of Trump Manhattan Trial, May 3, 2024**\
+`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
+https://nytimes.com/interactive/2024/05/06/nyregion/trump-hush-money-trial-transcript-may-3.html
+
+**This has been a trying year for Boeing.**\
+`By Niraj Chokshi`\
+https://nytimes.com/live/2024/05/06/science/boeing-starliner-launch/this-has-been-a-trying-year-for-boeing
+
+**Here is a timeline of the recent twists and turns in the cease-fire talks.**\
+`By Eric Nagourney and Aaron Boxerman`\
+https://nytimes.com/2024/05/06/world/middleeast/here-is-a-timeline-of-the-recent-twists-and-turns-in-the-cease-fire-talks.html
+
 **Police Make Arrests While Trying to Contain Protests**\
 `As expected, protesters gathered near the Met Gala to protest the war in Gaza, creating an atmosphere far different from the one inside the event.`\
 https://nytimes.com/2024/05/06/fashion/protests-met-gala-arrests.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/06/fashion/emily-ratajkowski-met-gala-versace.html
 **Where 3 Dead Tourists Were Found Fast, Thousands Remain Missing**\
 `In Mexico, where tens of thousands of people have disappeared, the robust operation to quickly find the remains of three foreigners, from Australia and the United States, felt like a rare exception.`\
 https://nytimes.com/2024/05/06/world/americas/mexico-killed-tourists-baja-california.html
-
-**Tyshawn Sorey Wins Pulitzer for Composing an ‘Anti-Concerto’**\
-`The composer and instrumentalist was honored for “Adagio (For Wadada Leo Smith),” an unconventional concerto written for saxophone and orchestra.`\
-https://nytimes.com/2024/05/06/arts/music/tyshawn-sorey-pulitzer-music.html
-
-**Christian Cowan and Sam Smith’s Met Gala Debut as a Couple**\
-`They made a statement about their relationship with matching rose clasps on their suit jackets.`\
-https://nytimes.com/2024/05/06/fashion/sam-smith-christian-cowan-met-gala.html
-
-**Wayve, an A.I. Start-Up for Autonomous Driving, Raises $1 Billion**\
-`The London-based developer of artificial intelligence systems for self-driving vehicles raised the funding from SoftBank, Nvidia, Microsoft and others.`\
-https://nytimes.com/2024/05/06/technology/wayve-ai-self-driving-vehicles.html
 

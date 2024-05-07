@@ -1,3 +1,15 @@
+**Transcript of Trump Manhattan Trial, May 3, 2024**\
+`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
+https://nytimes.com/interactive/2024/05/06/nyregion/trump-hush-money-trial-transcript-may-3.html
+
+**This has been a trying year for Boeing.**\
+`By Niraj Chokshi`\
+https://nytimes.com/live/2024/05/06/science/boeing-starliner-launch/this-has-been-a-trying-year-for-boeing
+
+**Here is a timeline of the recent twists and turns in the cease-fire talks.**\
+`By Eric Nagourney and Aaron Boxerman`\
+https://nytimes.com/2024/05/06/world/middleeast/here-is-a-timeline-of-the-recent-twists-and-turns-in-the-cease-fire-talks.html
+
 **Police Make Arrests While Trying to Contain Protests**\
 `As expected, protesters gathered near the Met Gala to protest the war in Gaza, creating an atmosphere far different from the one inside the event.`\
 https://nytimes.com/2024/05/06/fashion/protests-met-gala-arrests.html
