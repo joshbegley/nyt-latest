@@ -1,3 +1,11 @@
+**Man Killed His Wife Because He Couldn’t Pay Her Medical Bills, He Tells Police**\
+`Ronnie Wiggs, of Independence, Mo., was charged with second-degree murder in the strangling death of his wife, who was in the hospital for dialysis treatment, records show.`\
+https://nytimes.com/2024/05/07/us/missouri-wife-murder.html
+
+**Adams Says Rikers, Staffed by ‘Professionals,’ Is Ready for Trump**\
+`The judge in Donald J. Trump’s criminal case has threatened him with jail if continues violating the terms of a gag order.`\
+https://nytimes.com/2024/05/07/nyregion/adams-trump-rikers.html
+
 **Panera Will Discontinue Charged Lemonade Drinks**\
 `The highly caffeinated line of Charged drinks at Panera Bread was the subject of two wrongful-death lawsuits.`\
 https://nytimes.com/2024/05/07/us/panera-charged-lemonade-discontinued.html
