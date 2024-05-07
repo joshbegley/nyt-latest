@@ -1,3 +1,7 @@
+**Consultants to Examine Police Response to Attack at U.C.L.A.**\
+`The University of California system said it would bring in a police consulting firm to investigate why the attack on pro-Palestinian demonstrators was allowed to continue for hours.`\
+https://nytimes.com/2024/05/07/us/ucla-protests-police-investigation.html
+
 **Stormy Daniels, Unfiltered, Takes the Stand**\
 `The porn star at the center of Donald Trump’s criminal trial testified, at times in graphic detail, about the sexual encounter she said she had with Trump in 2006.`\
 https://nytimes.com/2024/05/07/us/politics/trump-trial-stormy-daniels-unfiltered-takes-stand.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/07/opinion/met-gala-celebrities-nude.html
 **Lesley Hazleton, Writer Who Tackled Religion and Fast Cars, Dies at 78**\
 `Born in England and raised Jewish, she became agnostic, writing books about her own lack of faith, the prophet Muhammad and her time as a car columnist.`\
 https://nytimes.com/2024/05/07/books/lesley-hazleton-dead.html
-
-**What to Know About the Gaps Between Israel and Hamas on the Cease-Fire Proposal**\
-`Hamas said it had accepted the terms of a cease-fire proposed by Arab mediators, but Prime Minister Benjamin Netanyahu said it was “very far from Israel’s core demands.”`\
-https://nytimes.com/2024/05/07/world/middleeast/israel-hamas-ceasefire-proposal.html
 
