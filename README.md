@@ -1,3 +1,7 @@
+**Here are the latest developments.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/rafah-invasion-israel-hamas
+
 **Europe Is About to Drown in the River of the Radical Right**\
 `It does not have to be this way.`\
 https://nytimes.com/2024/05/07/opinion/europe-elections-macron-machiavelli.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/pageoneplus/corrections-may-7-2024.html
 **Quotation of the Day: Trump Warned of Jail, Again, for His Attacks**\
 `Quotation of the Day for Tuesday, May 7, 2024.`\
 https://nytimes.com/2024/05/06/pageoneplus/quotation-of-the-day-trump-warned-of-jail-again-for-his-attacks.html
-
-**Judge Pushes Back Critical Filing Deadline in Trump Documents Case**\
-`Judge Aileen M. Cannon did not immediately set a new date, but the delay increases the chance that the trial will not happen before the November election.`\
-https://nytimes.com/2024/05/06/us/politics/trump-classified-documents-trial-delay.html
 
