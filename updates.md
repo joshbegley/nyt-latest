@@ -1,3 +1,15 @@
+**It Took Decades, but Japan’s Working Women Are Making Progress**\
+`Employers have taken steps to change a male-dominated workplace culture. But women still struggle to balance their careers with domestic obligations.`\
+https://nytimes.com/2024/05/07/world/asia/japan-working-women.html
+
+**A Week of Pomp to Project Putin’s Confidence**\
+`The Russian president’s inauguration for a fifth term and the annual Victory Day parade will highlight his grip on the country’s politics and his resolve to capture Ukraine.`\
+https://nytimes.com/2024/05/07/world/europe/a-week-of-pomp-to-project-putins-confidence.html
+
+**Protesters Occupy Building at Rhode Island School of Design**\
+`The takeover escalated protests that began outside the building last week. It’s one of the few schools where students have occupied a building.`\
+https://nytimes.com/2024/05/06/us/risd-protests-occupy-building.html
+
 **Corrections: May 7, 2024**\
 `Corrections that appeared in print on Tuesday, May 7, 2024.`\
 https://nytimes.com/2024/05/06/pageoneplus/corrections-may-7-2024.html
