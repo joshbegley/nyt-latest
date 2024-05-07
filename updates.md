@@ -1,3 +1,11 @@
+**‘Every Dollar Counts’: Prosecutors Use Quotes From Trump’s Books Against Him**\
+`Donald J. Trump’s books provided prosecutors with passages they believe can help their case, as they argue that he knew that his company falsified business records to cover up a hush-money payment to Stormy Daniels.`\
+https://nytimes.com/2024/05/07/nyregion/sally-franklin-books-trump-trial.html
+
+**An official warns of ‘staggeringly’ bad conditions in the so-called safe zones in Rafah.**\
+`By Nick Cumming-Bruce`\
+https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/the-so-called-safe-zones-for-rafah-evacuees-have-staggeringly-bad-conditions-officials-say
+
 **Two Dozen Bodies Brought to Rafah Hospital, Doctor Says**\
 `The head of Kuwait Hospital in Rafah said the situation at the facility amid the Israeli military incursion was “catastrophic in every sense of the word.”`\
 https://nytimes.com/2024/05/07/world/middleeast/rafah-gaza-hospital-bodies.html
