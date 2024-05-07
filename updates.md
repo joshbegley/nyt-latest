@@ -1,3 +1,11 @@
+**Gaza War Puts New Pressures on U.S. Arms Transfer Policies**\
+`The Biden administration is due to release a report this week on whether it believes assurances from Israel on its use of U.S. arms and protection of civilians.`\
+https://nytimes.com/2024/05/07/us/politics/israel-gaza-us-weapons.html
+
+**What Does ‘Post-Emerging’ Look Like in Today’s Dance Landscape?**\
+`Fresh Tracks, at New York Live Arts, showcases early-career dance makers. This year’s talented crop wonders about next steps.`\
+https://nytimes.com/2024/05/07/arts/dance/fresh-tracks-new-york-live-arts-bill-t-jones.html
+
 **Senators Seek to Curb Facial Recognition at Airports, Citing Privacy Concerns**\
 `A bipartisan group of lawmakers is pushing to add language to the reauthorization of the Federal Aviation Administration that would halt expansion of the technology.`\
 https://nytimes.com/2024/05/07/us/politics/airport-facial-recognition-technology-congress.html
