@@ -1,3 +1,7 @@
+**The University of Chicago protest encampment drew attention to free speech standards.**\
+`The university has presented itself as a national model for free expression on campus. Its president said that the encampment “cannot continue.”`\
+https://nytimes.com/live/2024/05/07/us/campus-protests/university-chicago-encampment-protests
+
 **U.S. Repatriates 11 American Citizens From ISIS War Camps in Syria**\
 `The group — the largest set of Americans retrieved from the war zone — was joined by a 9-year-old noncitizen whose brother is an American.`\
 https://nytimes.com/2024/05/07/us/politics/americans-repatriated-syria-war-camps.html
