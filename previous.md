@@ -1,3 +1,7 @@
+**Stormy Daniels and Trump Have Met in Court Before, to Her Detriment**\
+`Stormy Daniels sued Donald J. Trump for defamation and lost. Her lawyer wound up in prison for stealing from her.`\
+https://nytimes.com/2024/05/07/nyregion/stormy-daniels-trump-defamation.html
+
 **Tornado Damages Homes in Oklahoma Town**\
 `The tornado, which was up to two miles wide, ripped through Barnsdall, Okla., a town about 40 miles northwest of Tulsa.`\
 https://nytimes.com/video/us/100000009456122/tornado-damage-plains.html
@@ -5,10 +9,6 @@ https://nytimes.com/video/us/100000009456122/tornado-damage-plains.html
 **Biden Condemns Antisemitism at Holocaust Remembrance Ceremony**\
 `The president used the Oct. 7 Hamas attack on Israel to underscore the threat that Jewish people still face after the Holocaust.`\
 https://nytimes.com/video/us/politics/100000009455976/biden-holocaust.html
-
-**Stormy Daniels and Trump Have Met in Court Before, to Her Detriment**\
-`Stormy Daniels sued Donald J. Trump for defamation and lost. Her lawyer wound up in prison for stealing from her.`\
-https://nytimes.com/2024/05/07/nyregion/stormy-daniels-trump-defamation.html
 
 **Speaker Mike Johnson Says U.S. Universities Are ‘Hostile’ to Jews**\
 `At a Holocaust Remembrance Ceremony, the Louisiana Republican compared the protests on U.S. campuses to what happened at institutions of higher learning in Germany during World War II.`\
