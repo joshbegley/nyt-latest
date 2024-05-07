@@ -1,3 +1,7 @@
+**Biden Condemns Antisemitism at Holocaust Remembrance Ceremony**\
+`The president used the Oct. 7 Hamas attack on Israel to underscore the threat that Jewish people still face after the Holocaust.`\
+https://nytimes.com/video/us/politics/100000009455976/biden-holocaust.html
+
 **Stormy Daniels and Trump Have Met in Court Before, to Her Detriment**\
 `Stormy Daniels sued Donald J. Trump for defamation and lost. Her lawyer wound up in prison for stealing from her.`\
 https://nytimes.com/2024/05/07/nyregion/stormy-daniels-trump-defamation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/07/dining/cooking-mothers-day.html
 **The U.S. Must Keep the Rafah Invasion From Turning Into a Starvation Crisis**\
 `Israel’s latest move aggravates a desperate situation.`\
 https://nytimes.com/live/2024/05/01/opinion/thepoint/rafah-border-aid-starvation
-
-**They Put a 65-Foot Hot Dog in Times Square, and It’s a Blast**\
-`With “Hot Dog in the City,” the artists Jen Catron and Paul Outlaw question the lore and lure of American culture (and condiments).`\
-https://nytimes.com/2024/05/07/arts/design/hot-dog-in-the-city-sculpture-times-square.html
 
