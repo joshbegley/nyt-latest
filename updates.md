@@ -1,3 +1,15 @@
+**Macron Adds a Personal Touch to His Diplomacy With China**\
+`The French president took Xi Jinping to his childhood haunts high in the Pyrenees, hoping to forge a bond. If only the weather would have cooperated.`\
+https://nytimes.com/2024/05/07/world/europe/macron-xi-china-france.html
+
+**The Darker Side of Stormy Daniels’s Testimony**\
+`She has never accused Donald Trump of anything but a payoff, but their encounter sounds a lot murkier than before.`\
+https://nytimes.com/2024/05/07/opinion/stormy-daniels-trump-trial.html
+
+**Police Tackle and Arrest Anti-Trump Protester Outside Courthouse**\
+`Officers have enforced a ban on amplification and on Tuesday grappled with a man who had been chanting into a microphone.`\
+https://nytimes.com/2024/05/07/nyregion/trump-trial-protester-arrest.html
+
 **With or without Tesla, more E.V. chargers are coming**\
 `Experts say that a new wave of electric vehicle charging stations are coming soon, even after Tesla gutted its charger team.`\
 https://nytimes.com/2024/05/07/climate/new-ev-charging-stations-tesla.html
