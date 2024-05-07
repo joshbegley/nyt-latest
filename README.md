@@ -1,3 +1,11 @@
+**Man Killed His Wife Because He Couldn’t Pay Her Medical Bills, He Tells Police**\
+`Ronnie Wiggs, of Independence, Mo., was charged with second-degree murder in the strangling death of his wife, who was in the hospital for dialysis treatment, records show.`\
+https://nytimes.com/2024/05/07/us/missouri-wife-murder.html
+
+**Adams Says Rikers, Staffed by ‘Professionals,’ Is Ready for Trump**\
+`The judge in Donald J. Trump’s criminal case has threatened him with jail if continues violating the terms of a gag order.`\
+https://nytimes.com/2024/05/07/nyregion/adams-trump-rikers.html
+
 **Panera Will Discontinue Charged Lemonade Drinks**\
 `The highly caffeinated line of Charged drinks at Panera Bread was the subject of two wrongful-death lawsuits.`\
 https://nytimes.com/2024/05/07/us/panera-charged-lemonade-discontinued.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/07/well/live/equinox-40000-optimize-longevity-member
 **The Dangers in Putting Stormy Daniels on the Stand**\
 `She can confirm the tryst happened, but has changed her story over the years.`\
 https://nytimes.com/2024/05/01/opinion/trump-stormy-daniels-strategy.html
-
-**Stormy Daniels and Trump Have Met in Court Before, to Her Detriment**\
-`Stormy Daniels sued Donald J. Trump for defamation and lost. Her lawyer wound up in prison for stealing from her.`\
-https://nytimes.com/2024/05/07/nyregion/stormy-daniels-trump-defamation.html
-
-**Tornado Damages Homes in Oklahoma Town**\
-`The tornado, which was up to two miles wide, ripped through Barnsdall, Okla., a town about 40 miles northwest of Tulsa.`\
-https://nytimes.com/video/us/100000009456122/tornado-damage-plains.html
 
