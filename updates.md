@@ -1,3 +1,11 @@
+**Quotation of the Day: Trump Warned of Jail, Again, for His Attacks**\
+`Quotation of the Day for Tuesday, May 7, 2024.`\
+https://nytimes.com/2024/05/06/pageoneplus/quotation-of-the-day-trump-warned-of-jail-again-for-his-attacks.html
+
+**Judge Pushes Back Critical Filing Deadline in Trump Documents Case**\
+`Judge Aileen M. Cannon did not immediately set a new date, but the delay increases the chance that the trial will not happen before the November election.`\
+https://nytimes.com/2024/05/06/us/politics/trump-classified-documents-trial-delay.html
+
 **Jury Sees Trump’s Checks in Hush-Money Case**\
 `Before prosecutors began presenting crucial records, the judge held Donald J. Trump in contempt, saying his complaints about the jury were “a direct attack on the rule of law.” Jonah Bromwich, a criminal justice reporter at The New York Times, gives his takeaways.`\
 https://nytimes.com/video/nyregion/100000009450974/jury-sees-trumps-checks-in-hush-money-case.html
