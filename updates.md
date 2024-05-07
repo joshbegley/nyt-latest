@@ -1,3 +1,7 @@
+**Ukraine Says It Foiled Russian Plot to Kill Zelensky**\
+`The Ukrainian security services arrested two Ukrainian colonels and accused them of spying for Russia. They said the plot also targeted top Ukrainian intelligence officials.`\
+https://nytimes.com/2024/05/07/world/europe/ukraine-russia-zelensky-plot.html
+
 **A doctor in Rafah says more than two dozen bodies were brought to his hospital.**\
 `By Liam Stack and Rawan Sheikh Ahmad`\
 https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/a-doctor-in-rafah-says-more-than-two-dozen-bodies-were-brought-to-his-hospital
