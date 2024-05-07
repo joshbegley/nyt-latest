@@ -1,3 +1,11 @@
+**At the Met Gala, Celebrities Are Nearly Nude. Are We Not Aroused?**\
+`In an era of sexual decline, more celebrities are going nearly nude. But no one seems to be enjoying it very much.`\
+https://nytimes.com/2024/05/07/opinion/met-gala-celebrities-nude.html
+
+**Lesley Hazleton, Writer Who Tackled Religion and Fast Cars, Dies at 78**\
+`Born in England and raised Jewish, she became agnostic, writing books about her own lack of faith, the prophet Muhammad and her time as a car columnist.`\
+https://nytimes.com/2024/05/07/books/lesley-hazleton-dead.html
+
 **What to Know About the Gaps Between Israel and Hamas on the Cease-Fire Proposal**\
 `Hamas said it had accepted the terms of a cease-fire proposed by Arab mediators, but Prime Minister Benjamin Netanyahu said it was “very far from Israel’s core demands.”`\
 https://nytimes.com/2024/05/07/world/middleeast/israel-hamas-ceasefire-proposal.html
