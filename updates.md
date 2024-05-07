@@ -1,3 +1,7 @@
+**Senators Seek to Curb Facial Recognition at Airports, Citing Privacy Concerns**\
+`A bipartisan group of lawmakers is pushing to add language to the reauthorization of the Federal Aviation Administration that would halt expansion of the technology.`\
+https://nytimes.com/2024/05/07/us/politics/airport-facial-recognition-technology-congress.html
+
 **Israel’s seizure of the Rafah crossing strands a teenager who was set to have surgery in Egypt.**\
 `By Liam Stack and Abu Bakr Bashir`\
 https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/israels-seizure-of-the-rafah-crossing-strands-a-teenager-who-was-set-to-have-surgery-in-egypt
