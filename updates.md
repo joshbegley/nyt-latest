@@ -1,3 +1,7 @@
+**Rihanna, Beyoncé and Taylor Swift Missed the Met Gala**\
+`Fashion’s biggest night had to go on without some of the its scene-stealing stars from previous years.`\
+https://nytimes.com/2024/05/06/fashion/met-gala-rihanna-beyonce-taylor-swift.html
+
 **Pro-Palestinian Protesters Resist Order to Clear Encampment at M.I.T.**\
 `The police were an increasing presence around the edges of the protest as evening fell, including state troopers with tactical gear and zip ties.`\
 https://nytimes.com/2024/05/06/us/mit-protests-encampment.html

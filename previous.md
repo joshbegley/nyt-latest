@@ -1,3 +1,7 @@
+**Rihanna, Beyoncé and Taylor Swift Missed the Met Gala**\
+`Fashion’s biggest night had to go on without some of the its scene-stealing stars from previous years.`\
+https://nytimes.com/2024/05/06/fashion/met-gala-rihanna-beyonce-taylor-swift.html
+
 **Sound of Enlightenment**\
 `Justin Werfel makes his debut in the New York Times Crossword.`\
 https://nytimes.com/2024/05/06/crosswords/daily-puzzle-2024-05-07.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/us/mit-protests-encampment.html
 **Kim Kardashian Stuns in Breathtaking Corset That Leaves Little Room to Breathe**\
 `Viewers online immediately took notice of the cinched waistline.`\
 https://nytimes.com/2024/05/06/fashion/kim-kardashian-met-gala.html
-
-**U.S. Army Soldier Is Detained in Russia**\
-`The soldier was apprehended in Vladivostok on charges of criminal misconduct, in a case that is likely to aggravate the contentious relationship between Moscow and Washington.`\
-https://nytimes.com/2024/05/06/us/us-soldier-detained-russia.html
 
