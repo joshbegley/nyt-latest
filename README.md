@@ -1,3 +1,15 @@
+**Inquiry Finds a Toxic Culture at the F.D.I.C., and Takes Aim at Its Leader**\
+`Bad workplace behavior was pervasive at the bank regulator, according to an investigation that questioned whether things can improve without a change in leadership.`\
+https://nytimes.com/2024/05/07/business/fdic-inquiry-workplace-culture.html
+
+**Transcript: Ezra Klein Interviews Ari Shavit**\
+`The May 7, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/05/07/podcasts/transcript-ezra-klein-interviews-ari-shavit.html
+
+**How Parents of College Seniors Are Reacting to Campus Disruptions**\
+`No matter their opinions on pro-Palestinian demonstrations on campus, many parents are angry that final semesters and graduations have been upended.`\
+https://nytimes.com/2024/05/07/nyregion/college-protests-parents.html
+
 **At the Met Gala, Celebrities Are Nearly Nude. Are We Not Aroused?**\
 `In an era of sexual decline, more celebrities are going nearly nude. But no one seems to be enjoying it very much.`\
 https://nytimes.com/2024/05/07/opinion/met-gala-celebrities-nude.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/07/us/boy-scouts-name-change.html
 **Stormy Daniels Tells a Story of Sex With Trump as He Listens in Disgust**\
 `The porn star at the center of the former president’s criminal trial testified about their encounter at a celebrity golf tournament in 2006, a meeting that could shape American history.`\
 https://nytimes.com/2024/05/07/nyregion/trump-trial-stormy-daniels-testimony.html
-
-**Redfin Agrees to Share Data and Pay $9.25 Million to Settle Lawsuit**\
-`In addition to paying the fine, the online brokerage would give a group of home sellers access to a nationwide database of commissions paid to real estate agents, pending court approval.`\
-https://nytimes.com/2024/05/07/realestate/redfin-settlement-commission-lawsuit.html
-
-**Reddit Posts $575 Million Loss Tied to I.P.O. but Also Strong Growth**\
-`Reddit’s first earnings report as a public company showed a loss from expenses related to its initial public offering, along with leaps in users and advertising revenue.`\
-https://nytimes.com/2024/05/07/technology/reddit-quarterly-earnings-report.html
-
-**Garrick Club of London Votes to Accept Female Members for First Time**\
-`The move ended a decades-long dispute that had divided the opulent private club and generated multiple conflicting legal arguments.`\
-https://nytimes.com/2024/05/07/world/europe/garrick-club-london-female-members.html
 
