@@ -1,3 +1,7 @@
+**Cocktail Hour at the Met Gala: What Comes After the Carpet**\
+`How Jeff Bezos, Sarah Jessica Parker, Kris Jenner and other A-listers spent their night in the museum. (Hint: Cucumber margaritas were involved.)`\
+https://nytimes.com/2024/05/07/fashion/met-gala-cocktail-party.html
+
 **Late Night Can’t Get Enough of Trump Being Held in Contempt (Again)**\
 `Jimmy Kimmel joked that Donald Trump will likely end up in jail “because he can’t stop talking about the case. It’s like trying to get a dog to stop licking itself.”`\
 https://nytimes.com/2024/05/07/arts/television/late-night-trump-contempt.html

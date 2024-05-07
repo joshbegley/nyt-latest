@@ -1,3 +1,7 @@
+**Cocktail Hour at the Met Gala: What Comes After the Carpet**\
+`How Jeff Bezos, Sarah Jessica Parker, Kris Jenner and other A-listers spent their night in the museum. (Hint: Cucumber margaritas were involved.)`\
+https://nytimes.com/2024/05/07/fashion/met-gala-cocktail-party.html
+
 **Late Night Can’t Get Enough of Trump Being Held in Contempt (Again)**\
 `Jimmy Kimmel joked that Donald Trump will likely end up in jail “because he can’t stop talking about the case. It’s like trying to get a dog to stop licking itself.”`\
 https://nytimes.com/2024/05/07/arts/television/late-night-trump-contempt.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/rafah-inva
 **07mideast-crisis**\
 `Live Updates: Israeli Tanks Enter Rafah and Take Control of Border Crossing`\
 https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah
-
-**Europe Is About to Drown in the River of the Radical Right**\
-`It does not have to be this way.`\
-https://nytimes.com/2024/05/07/opinion/europe-elections-macron-machiavelli.html
 
