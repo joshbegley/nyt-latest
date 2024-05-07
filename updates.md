@@ -1,3 +1,7 @@
+**The Dangers in Putting Stormy Daniels on the Stand**\
+`She can confirm the tryst happened, but has changed her story over the years.`\
+https://nytimes.com/2024/05/01/opinion/trump-stormy-daniels-strategy.html
+
 **Tornado Damages Homes in Oklahoma Town**\
 `The tornado, which was up to two miles wide, ripped through Barnsdall, Okla., a town about 40 miles northwest of Tulsa.`\
 https://nytimes.com/video/us/100000009456122/tornado-damage-plains.html

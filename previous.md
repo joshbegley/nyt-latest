@@ -1,3 +1,7 @@
+**The Dangers in Putting Stormy Daniels on the Stand**\
+`She can confirm the tryst happened, but has changed her story over the years.`\
+https://nytimes.com/2024/05/01/opinion/trump-stormy-daniels-strategy.html
+
 **Stormy Daniels and Trump Have Met in Court Before, to Her Detriment**\
 `Stormy Daniels sued Donald J. Trump for defamation and lost. Her lawyer wound up in prison for stealing from her.`\
 https://nytimes.com/2024/05/07/nyregion/stormy-daniels-trump-defamation.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/israels-se
 **Wearing Masks During the Gaza Protests**\
 `Readers criticize protesters who try to maintain their anonymity. Also: Money and politics; protecting oceans; possible exiles if Donald Trump wins.`\
 https://nytimes.com/2024/05/07/opinion/gaza-protests-masks.html
-
-**I Didn’t Truly Know My Mother Until I Cooked With Her**\
-`To connect with a parent who awes (and occasionally intimidates) everyone around her, the Times reporter Priya Krishna spends time with her in the kitchen.`\
-https://nytimes.com/2024/05/07/dining/cooking-mothers-day.html
 
