@@ -1,6 +1,10 @@
-**07trump-trial**\
-`Live Updates: In Trump Trial, the Next Major Witness Is a Mystery`\
-https://nytimes.com/live/2024/05/07/nyregion/trump-trial-hush-money-stormy-daniels
+**Weekly Student New Quiz: Abortion, Campus Protests, Kentucky Derby**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2024/05/07/learning/07StudentNewsQuiz.html
+
+**Sweetgreen Is Introducing Steak. What About Its Climate Goals?**\
+`The fast-casual chain aims to be climate neutral by 2027, but beef is a big contributor to climate change.`\
+https://nytimes.com/2024/05/07/dining/sweetgreen-steak.html
 
 **Met Gala**\
 `What were your favorite and least favorite looks at this year’s show?`\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/closures-o
 **In a Surprise, Disney+ Becomes Profitable**\
 `The streaming service added 6 million subscriptions and made $47 million in its latest quarter, helping Disney deliver stronger-than-expected earnings.`\
 https://nytimes.com/2024/05/07/business/media/disney-quarterly-earnings.html
-
-**Xi to Head for Friendly Ports in an Eastern Europe Disenchanted With China**\
-`After leaving France later Tuesday, the Chinese leader will visit Serbia and Hungary, whose authoritarian leaders offer a haven for China as tensions grow over the war in Ukraine.`\
-https://nytimes.com/2024/05/07/world/europe/xi-serbia-hungary-europe.html
 
