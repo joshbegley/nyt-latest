@@ -1,3 +1,15 @@
+**Today’s Wordle Review No. 1,053**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/07/crosswords/wordle-review.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/05/07/crosswords/spelling-bee-forum.html
+
+**The Connections Companion No. 331**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/07/crosswords/connections-companion.html
+
 **07mideast-crisis**\
 `Live Updates: Israeli Tanks Enter Rafah and Take Control of Border Crossing`\
 https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah
