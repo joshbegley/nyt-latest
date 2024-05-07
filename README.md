@@ -1,3 +1,11 @@
+**Gaza War Puts New Pressures on U.S. Arms Transfer Policies**\
+`A Biden administration report is due this week on whether it believes Israel’s assurances on its use of U.S. arms and the protection of civilians.`\
+https://nytimes.com/2024/05/07/us/politics/israel-gaza-us-weapons.html
+
+**What Does ‘Post-Emerging’ Look Like in Today’s Dance Landscape?**\
+`Fresh Tracks, at New York Live Arts, showcases early-career dance makers. This year’s talented crop wonders about next steps.`\
+https://nytimes.com/2024/05/07/arts/dance/fresh-tracks-new-york-live-arts-bill-t-jones.html
+
 **Senators Seek to Curb Facial Recognition at Airports, Citing Privacy Concerns**\
 `A bipartisan group of lawmakers is pushing to add language to the reauthorization of the Federal Aviation Administration that would halt expansion of the technology.`\
 https://nytimes.com/2024/05/07/us/politics/airport-facial-recognition-technology-congress.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/07/movies/challengers-ending-zendaya.html
 **Miss USA Resigns From Title, Citing Mental Health**\
 `Noelia Voigt, who represented Utah as she won the 2023 competition said in a statement that relinquishing her title was a “tough decision.”`\
 https://nytimes.com/2024/05/07/us/noelia-voigt-miss-usa-resign.html
-
-**Robert Downey Jr. to Make Broadway Debut in Ayad Akhtar Play**\
-`The Oscar-winning actor will star as an A.I.-curious author in “McNeal,” starting performances in September at Lincoln Center Theater.`\
-https://nytimes.com/2024/05/07/theater/robert-downey-jr-ayad-akhtar-broadway.html
-
-**TikTok Sues U.S. Government Over Law Forcing Sale or Ban**\
-`The social media company and its Chinese parent, ByteDance, sued to challenge the new law, saying it violated users’ First Amendment rights.`\
-https://nytimes.com/2024/05/07/business/tiktok-ban-appeal.html
 
