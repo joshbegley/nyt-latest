@@ -6,6 +6,10 @@ https://nytimes.com/2024/05/07/learning/word-of-the-day-masquerade.html
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/rafah-invasion-israel-hamas
 
+**07mideast-crisis**\
+`Live Updates: Israeli Tanks Enter Rafah and Take Control of Border Crossing`\
+https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah
+
 **Europe Is About to Drown in the River of the Radical Right**\
 `It does not have to be this way.`\
 https://nytimes.com/2024/05/07/opinion/europe-elections-macron-machiavelli.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/07/world/europe/a-week-of-pomp-to-project-putins-con
 **Protesters Occupy Building at Rhode Island School of Design**\
 `The takeover escalated protests that began outside the building last week. It’s one of the few schools where students have occupied a building.`\
 https://nytimes.com/2024/05/06/us/risd-protests-occupy-building.html
-
-**Corrections: May 7, 2024**\
-`Corrections that appeared in print on Tuesday, May 7, 2024.`\
-https://nytimes.com/2024/05/06/pageoneplus/corrections-may-7-2024.html
 
