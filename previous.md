@@ -1,3 +1,7 @@
+**Isabelle Huppert’s Balenciaga dress pays homage to her ancestors.**\
+`By Vanessa Friedman`\
+https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/isabelle-huppert-balenciaga-met-gala
+
 **Amanda Seyfried Asked for a ‘Sustainable’ Met Gala Dress**\
 `The story behind her semi-recycled red-carpet look.`\
 https://nytimes.com/2024/05/06/style/amanda-seyfried-met-gala-prada.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/fashion/tyla-met-gala-balmain.html
 **Does NASA need two rides to the space station? Elon Musk says no.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/05/06/science/boeing-starliner-launch/spacex-nasa-orbit
-
-**How a Tiny Chicago News Organization Won 2 Pulitzers**\
-`The Invisible Institute, a nonprofit newsroom with roughly a dozen journalists, was recognized for local and audio reporting.`\
-https://nytimes.com/2024/05/06/business/media/invisible-institute-two-pulitzer-prizes.html
 
