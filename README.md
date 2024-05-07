@@ -1,3 +1,11 @@
+**The so-called safe zones for Rafah evacuees have ‘staggeringly’ bad conditions, officials say.**\
+`By Nick Cumming-Bruce`\
+https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/the-so-called-safe-zones-for-rafah-evacuees-have-staggeringly-bad-conditions-officials-say
+
+**Stormy Daniels, Porn Star Who Says She Had Sex With Trump, Testifies at Trial**\
+`She says she met the former president at a golf tournament and they wound up in his suite. He denies the encounter.`\
+https://nytimes.com/2024/05/07/nyregion/stormy-daniels-trump-trial.html
+
 **Preparations Ramp Up for Global Security Force to Quell Haitian Violence**\
 `More than half a dozen nations have pledged personnel to a multinational effort to stabilize Haiti, where gangs have taken over much of the capital, setting off a major humanitarian crisis.`\
 https://nytimes.com/2024/05/07/world/africa/haiti-security-force.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/05/07/learning/07StudentNewsQuiz.html
 **Sweetgreen Is Introducing Steak. What About Its Climate Goals?**\
 `The fast-casual chain aims to be climate neutral by 2027, but beef is a big contributor to climate change.`\
 https://nytimes.com/2024/05/07/dining/sweetgreen-steak.html
-
-**Met Gala**\
-`What were your favorite and least favorite looks at this year’s show?`\
-https://nytimes.com/2024/05/07/learning/met-gala.html
-
-**U.K. Armed Forces’ Data Stolen by State-Linked Hackers, Lawmakers Say**\
-`A payroll system used by Britain’s Ministry of Defense was targeted in a significant cyberattack, senior British politicians said.`\
-https://nytimes.com/2024/05/07/world/europe/uk-armed-forces-data-hack.html
 
