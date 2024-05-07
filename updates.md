@@ -1,3 +1,11 @@
+**Stormy Daniels Tells of Her Encounter With Trump in Tahoe**\
+`The porn star met the future president at a golf tournament, and she said she was invited to his suite. Her account of what happened next eventually resulted in Donald J. Trump’s criminal trial.`\
+https://nytimes.com/2024/05/07/nyregion/stormy-daniels-trump-tahoe.html
+
+**A House committee will examine reports of antisemitism in K-12 schools.**\
+`After helping topple two college presidents, lawmakers will grill school district leaders from New York City; Berkeley, Calif.; and Montgomery County in Maryland.`\
+https://nytimes.com/live/2024/05/07/us/biden-holocaust/a-house-committee-will-examine-reports-of-antisemitism-in-k-12-schools
+
 **After the Met Gala, the Parties Lasted All Night**\
 `Usher, Jeff Bezos, Serena Williams, Erykah Badu, Janelle Monáe and other celebrities kept going into the wee hours.`\
 https://nytimes.com/2024/05/07/fashion/met-gala-parties-boom-boom-room.html
