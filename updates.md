@@ -1,3 +1,7 @@
+**Here are the latest developments.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/rafah-invasion-israel-hamas
+
 **Europe Is About to Drown in the River of the Radical Right**\
 `It does not have to be this way.`\
 https://nytimes.com/2024/05/07/opinion/europe-elections-macron-machiavelli.html
