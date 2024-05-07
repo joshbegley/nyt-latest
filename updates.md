@@ -1,3 +1,11 @@
+**Sanitation Company Fined $649,000 for Hiring Children in Slaughterhouses**\
+`Fayette Janitorial Service was also ordered to change practices that the Labor Department said had led to the hiring of at least two dozen children in dangerous slaughterhouses and meatpacking facilities.`\
+https://nytimes.com/2024/05/07/us/slaughterhouse-fine-children-clean.html
+
+**Stormy Daniels Stood Up Well to the Taunts of Trump’s Lawyer**\
+`She had explanations — some more convincing than others — for zig-zagging in interviews.`\
+https://nytimes.com/2024/05/07/opinion/trump-trial-stormy-daniels.html
+
 **Outage Causes Delays at U.K. Airports’ Immigration Checkpoints**\
 `Airport officials said that a system outage affecting the Border Force’s immigration gates was causing long waits for passengers arriving in Britain.`\
 https://nytimes.com/2024/05/07/world/europe/uk-airport-outage-heathrow.html
