@@ -1,3 +1,7 @@
+**Word of the Day: masquerade**\
+`This word has appeared in 25 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/07/learning/word-of-the-day-masquerade.html
+
 **Here are the latest developments.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/rafah-invasion-israel-hamas
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/us/risd-protests-occupy-building.html
 **Corrections: May 7, 2024**\
 `Corrections that appeared in print on Tuesday, May 7, 2024.`\
 https://nytimes.com/2024/05/06/pageoneplus/corrections-may-7-2024.html
-
-**Quotation of the Day: Trump Warned of Jail, Again, for His Attacks**\
-`Quotation of the Day for Tuesday, May 7, 2024.`\
-https://nytimes.com/2024/05/06/pageoneplus/quotation-of-the-day-trump-warned-of-jail-again-for-his-attacks.html
 
