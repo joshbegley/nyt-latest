@@ -1,3 +1,7 @@
+**Tornado Damages Homes in Oklahoma Town**\
+`The tornado, which was up to two miles wide, ripped through Barnsdall, Okla., a town about 40 miles northwest of Tulsa.`\
+https://nytimes.com/video/us/100000009456122/tornado-damage-plains.html
+
 **Biden Condemns Antisemitism at Holocaust Remembrance Ceremony**\
 `The president used the Oct. 7 Hamas attack on Israel to underscore the threat that Jewish people still face after the Holocaust.`\
 https://nytimes.com/video/us/politics/100000009455976/biden-holocaust.html
