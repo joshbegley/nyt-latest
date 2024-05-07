@@ -1,7 +1,3 @@
-**Police Remove Protest Encampment at University of Chicago**\
-`The university has presented itself as a national model for free expression on campus. Its president said that the encampment “cannot continue.”`\
-https://nytimes.com/2024/05/07/us/university-chicago-encampment-protests.html
-
 **The Met Gala, in Photos**\
 `Times critic Vanessa Friedman on the biggest night in fashion.`\
 https://nytimes.com/2024/05/07/briefing/met-gala-2024-photos.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/05/07/podcasts/the-daily/ocean-temperature-climate.html
 **OpenAI Releases ‘Deepfake’ Detector to Disinformation Researchers**\
 `The prominent A.I. start-up is also joining an industrywide effort to spot content made with artificial intelligence.`\
 https://nytimes.com/2024/05/07/technology/openai-deepfake-detector.html
+
+**Nearly 13 Million in Midwest Brace for More Storms After Tornado Kills 1**\
+`Severe weather moving east on Tuesday will bring frequent lightning, strong winds and the possibility of tornadoes to parts of Indiana, Kentucky and Ohio.`\
+https://nytimes.com/2024/05/07/us/storms-tornadoes-weather-plains-midwest.html
 
