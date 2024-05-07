@@ -1,3 +1,7 @@
+**A doctor in Rafah says more than two dozen bodies were brought to his hospital.**\
+`By Liam Stack and Rawan Sheikh Ahmad`\
+https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/a-doctor-in-rafah-says-more-than-two-dozen-bodies-were-brought-to-his-hospital
+
 **Don’t Be Fooled by A.I. Katy Perry Didn’t Attend the Met.**\
 `Images of the pop star were convincing enough to trick plenty of people. on social media, including Ms. Perry’s own mother.`\
 https://nytimes.com/2024/05/07/style/katy-perry-met-gala-ai.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/07/us/politics/americans-repatriated-syria-war-camps
 **The Big Questions Hanging Over a Blackstone Fund**\
 `Wall Street has been debating how the investment giant’s $59 billion real estate fund has managed to outperform virtually all its rivals.`\
 https://nytimes.com/2024/05/07/business/dealbook/blackstone-breit-fund-debate.html
-
-**The University of Chicago initially took a permissive stance, but removed the camp on Tuesday.**\
-`The university has presented itself as a national model for free expression on campus. Its president said that the encampment “cannot continue.”`\
-https://nytimes.com/live/2024/05/07/us/campus-protests/university-chicago-encampment-protests
 

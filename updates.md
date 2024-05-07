@@ -1,3 +1,7 @@
+**A doctor in Rafah says more than two dozen bodies were brought to his hospital.**\
+`By Liam Stack and Rawan Sheikh Ahmad`\
+https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/a-doctor-in-rafah-says-more-than-two-dozen-bodies-were-brought-to-his-hospital
+
 **Don’t Be Fooled by A.I. Katy Perry Didn’t Attend the Met.**\
 `Images of the pop star were convincing enough to trick plenty of people. on social media, including Ms. Perry’s own mother.`\
 https://nytimes.com/2024/05/07/style/katy-perry-met-gala-ai.html
