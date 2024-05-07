@@ -1,3 +1,7 @@
+**A Thank-You Note to the Campus Protesters**\
+`You are my daily reminder of what my Zionism is for, about and against.`\
+https://nytimes.com/2024/05/07/opinion/a-thank-you-note-to-the-campus-protesters.html
+
 **Macron Adds a Personal Touch to His Diplomacy With China**\
 `The French president took Xi Jinping to his childhood haunts high in the Pyrenees, hoping to forge a bond. If only the weather would have cooperated.`\
 https://nytimes.com/2024/05/07/world/europe/macron-xi-china-france.html

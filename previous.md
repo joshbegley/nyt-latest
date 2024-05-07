@@ -1,3 +1,7 @@
+**A Thank-You Note to the Campus Protesters**\
+`You are my daily reminder of what my Zionism is for, about and against.`\
+https://nytimes.com/2024/05/07/opinion/a-thank-you-note-to-the-campus-protesters.html
+
 **Macron Adds a Personal Touch to His Diplomacy With China**\
 `The French president took Xi Jinping to his childhood haunts high in the Pyrenees, hoping to forge a bond. If only the weather would have cooperated.`\
 https://nytimes.com/2024/05/07/world/europe/macron-xi-china-france.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/07/opinion/inflation-news-coverage.html
 **The New Players in Brazilian Politics? Elon Musk and Republicans.**\
 `The billionaire businessman and House Republicans have given new life to former President Jair Bolsonaro by attacking Brazil’s Supreme Court.`\
 https://nytimes.com/2024/05/07/world/americas/brazil-politics-elon-musk-republicans.html
-
-**Industries Fortify STEM Workforce by Investing in Youth Robotics**\
-`Companies are investing in youth robotics to create a groundswell of science and technology interest among Gen Z and Gen Alpha `\
-https://nytimes.com/paidpost/first-robotics/first-robotics-headstand/industries-fortify-stem-workforce-by-investing-in-youth-robotics.html
 
