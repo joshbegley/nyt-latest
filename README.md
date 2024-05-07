@@ -1,3 +1,7 @@
+**Corrections: May 7, 2024**\
+`Corrections that appeared in print on Tuesday, May 7, 2024.`\
+https://nytimes.com/2024/05/06/pageoneplus/corrections-may-7-2024.html
+
 **Quotation of the Day: Trump Warned of Jail, Again, for His Attacks**\
 `Quotation of the Day for Tuesday, May 7, 2024.`\
 https://nytimes.com/2024/05/06/pageoneplus/quotation-of-the-day-trump-warned-of-jail-again-for-his-attacks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/opinion/antisemitism-act-free-speech.html
 **Zendaya, a Star So Big She Makes Two Arrivals**\
 `The actress’s second dress, vintage Givenchy couture by John Galliano, was made the year she was born.`\
 https://nytimes.com/2024/05/06/fashion/zendaya-met-gala-vintage-givenchy-galliano.html
-
-**‘Naked’ Trend Hits Big at the Met Gala**\
-`What better way to distinguish oneself from hundreds of well-dressed competitors than to wear almost nothing at all?`\
-https://nytimes.com/2024/05/06/fashion/met-gala-naked-doja-cat-rita-ora.html
 
