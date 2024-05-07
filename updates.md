@@ -1,3 +1,15 @@
+**Wednesday Briefing: Israel in Rafah; Negotiators in Cairo**\
+`Also, Stormy Daniels testified in Donald Trump’s trial.`\
+https://nytimes.com/2024/05/07/world/asia/rafah-talks-cairo-stormy-trump-asia.html
+
+**Early-rising members of the public witnessed a courtroom spectacle.**\
+`By Nate Schweber`\
+https://nytimes.com/live/2024/05/07/nyregion/trump-trial-hush-money-stormy-daniels/early-rising-members-of-the-public-witnessed-a-courtroom-spectacle
+
+**At the Met Gala, Celebrities Are Nearly Nude. Are We Not Aroused?**\
+`In an era of sexual decline, celebrities are dressing up in outfits that are barely there. But no one seems to be enjoying it much.`\
+https://nytimes.com/2024/05/07/opinion/met-gala-celebrities-nude.html
+
 **Inquiry Finds a Toxic Culture at the F.D.I.C., and Takes Aim at Its Leader**\
 `Bad workplace behavior was pervasive at the bank regulator, according to an investigation that questioned whether things can improve without a change in leadership.`\
 https://nytimes.com/2024/05/07/business/fdic-inquiry-workplace-culture.html

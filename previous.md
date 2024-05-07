@@ -1,3 +1,11 @@
+**Wednesday Briefing: Israel in Rafah; Negotiators in Cairo**\
+`Also, Stormy Daniels testified in Donald Trump’s trial.`\
+https://nytimes.com/2024/05/07/world/asia/rafah-talks-cairo-stormy-trump-asia.html
+
+**Early-rising members of the public witnessed a courtroom spectacle.**\
+`By Nate Schweber`\
+https://nytimes.com/live/2024/05/07/nyregion/trump-trial-hush-money-stormy-daniels/early-rising-members-of-the-public-witnessed-a-courtroom-spectacle
+
 **Inquiry Finds a Toxic Culture at the F.D.I.C., and Takes Aim at Its Leader**\
 `Bad workplace behavior was pervasive at the bank regulator, according to an investigation that questioned whether things can improve without a change in leadership.`\
 https://nytimes.com/2024/05/07/business/fdic-inquiry-workplace-culture.html
@@ -11,7 +19,7 @@ https://nytimes.com/2024/05/07/podcasts/transcript-ezra-klein-interviews-ari-sha
 https://nytimes.com/2024/05/07/nyregion/college-protests-parents.html
 
 **At the Met Gala, Celebrities Are Nearly Nude. Are We Not Aroused?**\
-`In an era of sexual decline, more celebrities are going nearly nude. But no one seems to be enjoying it very much.`\
+`In an era of sexual decline, celebrities are dressing up in outfits that are barely there. But no one seems to be enjoying it much.`\
 https://nytimes.com/2024/05/07/opinion/met-gala-celebrities-nude.html
 
 **Lesley Hazleton, Writer Who Tackled Religion and Fast Cars, Dies at 78**\
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/05/07/us/biden-trump-election
 **R.F.K. Jr., Invited to Libertarian Convention, Seeks Trump Debate**\
 `Both presidential candidates are scheduled to address a Libertarian gathering this month in Washington.`\
 https://nytimes.com/2024/05/07/us/politics/rfk-trump-debate.html
-
-**The Boy Scouts of America Will Be Renamed Scouting America**\
-`The organization, which is battling bankruptcy and sexual abuse claims, said the rebrand was part of an effort to be more inclusive and welcome all members of America’s youth.`\
-https://nytimes.com/2024/05/07/us/boy-scouts-name-change.html
-
-**Stormy Daniels Tells a Story of Sex With Trump as He Listens in Disgust**\
-`The porn star at the center of the former president’s criminal trial testified about their encounter at a celebrity golf tournament in 2006, a meeting that could shape American history.`\
-https://nytimes.com/2024/05/07/nyregion/trump-trial-stormy-daniels-testimony.html
 
