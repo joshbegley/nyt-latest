@@ -1,3 +1,11 @@
+**Garrick Club of London Votes to Accept Female Members for First Time**\
+`The move ended a decades-long dispute that had divided the opulent private club and generated multiple conflicting legal arguments.`\
+https://nytimes.com/2024/05/07/world/europe/garrick-club-london-female-members.html
+
+**A Timeline of the History Between Stormy Daniels and Donald Trump**\
+`Nearly two decades after they met in Nevada, Daniels and Trump met face to face again in a Lower Manhattan courtroom in the first criminal trial against a former United States president.`\
+https://nytimes.com/2024/05/07/nyregion/stormy-daniels-donald-trump-timeline.html
+
 **A Romantic New Clothing Line With Hidden Quirks**\
 `The designer Meruert Tolegen started out making children’s wear. Her pieces for adults combine precise construction with a playful spirit.`\
 https://nytimes.com/2024/05/07/t-magazine/meruert-tolegen-fashion.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/07/climate/new-ev-charging-stations-tesla.html
 **Tiny Love Stories: ‘A Rarity in Paris’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/05/07/style/tiny-modern-love-stories-a-rarity-in-paris.html
-
-**‘Maybe the Best Breakfast I’ve Ever Made’**\
-`Huevos rancheros, coffee cake and more reader-favorite recipes for Mother’s Day. (Which, by the way, is this Sunday.)`\
-https://nytimes.com/2024/05/07/dining/best-mothers-day-breakfast-ideas.html
-
-**Netanyahu dismisses Hamas’s latest proposal on a cease-fire as insincere.**\
-`By Gaya Gupta`\
-https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/netanyahu-dismisses-hamass-latest-proposal-on-a-cease-fire-as-insincere
 
