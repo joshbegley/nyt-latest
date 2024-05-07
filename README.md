@@ -1,3 +1,7 @@
+**Tornado Damages Homes in Oklahoma Town**\
+`The tornado, which was up to two miles wide, ripped through Barnsdall, Okla., a town about 40 miles northwest of Tulsa.`\
+https://nytimes.com/video/us/100000009456122/tornado-damage-plains.html
+
 **Biden Condemns Antisemitism at Holocaust Remembrance Ceremony**\
 `The president used the Oct. 7 Hamas attack on Israel to underscore the threat that Jewish people still face after the Holocaust.`\
 https://nytimes.com/video/us/politics/100000009455976/biden-holocaust.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/07/opinion/gaza-protests-masks.html
 **I Didn’t Truly Know My Mother Until I Cooked With Her**\
 `To connect with a parent who awes (and occasionally intimidates) everyone around her, the Times reporter Priya Krishna spends time with her in the kitchen.`\
 https://nytimes.com/2024/05/07/dining/cooking-mothers-day.html
-
-**The U.S. Must Keep the Rafah Invasion From Turning Into a Starvation Crisis**\
-`Israel’s latest move aggravates a desperate situation.`\
-https://nytimes.com/live/2024/05/01/opinion/thepoint/rafah-border-aid-starvation
 
