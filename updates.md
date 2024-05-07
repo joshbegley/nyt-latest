@@ -1,3 +1,7 @@
+**07trump-trial**\
+`Live Updates: In Trump Trial, the Next Major Witness Is a Mystery`\
+https://nytimes.com/live/2024/05/07/nyregion/trump-trial-hush-money-stormy-daniels
+
 **Met Gala**\
 `What were your favorite and least favorite looks at this year’s show?`\
 https://nytimes.com/2024/05/07/learning/met-gala.html
