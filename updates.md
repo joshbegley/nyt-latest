@@ -1,3 +1,23 @@
+**White House Condemns Taunting of a Black Student at Ole Miss**\
+`In a widely shared video, one white male student at the University of Mississippi appeared to make monkey gestures at a Black pro-Palestinian protester, as others jeered.`\
+https://nytimes.com/2024/05/07/us/ole-miss-protests-video.html
+
+**Trump, Biden and a Split Screen Made for This Moment**\
+`President Biden gave a speech on Holocaust remembrance. Former President Trump was in court with Stormy Daniels. The day captured the sometimes unreal reality of a presidential race like none before it.`\
+https://nytimes.com/2024/05/07/us/politics/trump-trial-biden-speech-holocaust.html
+
+**Consultants to Examine Police Response to Attack at U.C.L.A.**\
+`The University of California system said it would bring in a police consulting firm to investigate why the attack on pro-Palestinian demonstrators was allowed to continue for hours.`\
+https://nytimes.com/2024/05/07/us/ucla-protests-police-investigation.html
+
+**Stormy Daniels, Unfiltered, Takes the Stand**\
+`The porn star at the center of Donald Trump’s criminal trial testified, at times in graphic detail, about the sexual encounter she said she had with Trump in 2006.`\
+https://nytimes.com/2024/05/07/us/politics/trump-trial-stormy-daniels-unfiltered-takes-stand.html
+
+**How Much Money Did This Year’s Met Gala Raise?**\
+`Ticket prices to the event have sharply risen, making it a fund-raising bonanza for the Metropolitan Museum of Art’s Costume Institute.`\
+https://nytimes.com/2024/05/07/style/met-gala-money-fund-raising.html
+
 **‘People are going to continue to die’: Israel’s operation in Rafah has left doctors scrambling.**\
 `By Anushka Patil and Iyad Abuheweila`\
 https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/people-are-going-to-continue-to-die-israels-operation-in-rafah-has-left-doctors-scrambling
