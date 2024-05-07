@@ -1,3 +1,7 @@
+**Hamas’s Offer to Hand Over 33 Hostages Includes Some Who Are Dead**\
+`It was not clear whether Hamas revealed in the cease-fire negotiations with Israel how many of the 33 who would be freed in the first phase of the proposed deal are still alive and how many are dead.`\
+https://nytimes.com/2024/05/07/us/politics/israel-hamas-hostages-dead.html
+
 **Tuesday Briefing**\
 `Israel’s strikes on Rafah.`\
 https://nytimes.com/2024/05/07/world/europe/rafah-strikes-russia-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/us/politics/trump-classified-documents-trial-dela
 **Jury Sees Trump’s Checks in Hush-Money Case**\
 `Before prosecutors began presenting crucial records, the judge held Donald J. Trump in contempt, saying his complaints about the jury were “a direct attack on the rule of law.” Jonah Bromwich, a criminal justice reporter at The New York Times, gives his takeaways.`\
 https://nytimes.com/video/nyregion/100000009450974/jury-sees-trumps-checks-in-hush-money-case.html
-
-**Rihanna, Beyoncé and Taylor Swift Missed the Met Gala**\
-`Fashion’s biggest night had to go on without some of the its scene-stealing stars from previous years.`\
-https://nytimes.com/2024/05/06/fashion/met-gala-rihanna-beyonce-taylor-swift.html
 

@@ -1,3 +1,7 @@
+**Hamas’s Offer to Hand Over 33 Hostages Includes Some Who Are Dead**\
+`It was not clear whether Hamas revealed in the cease-fire negotiations with Israel how many of the 33 who would be freed in the first phase of the proposed deal are still alive and how many are dead.`\
+https://nytimes.com/2024/05/07/us/politics/israel-hamas-hostages-dead.html
+
 **Tuesday Briefing**\
 `Israel’s strikes on Rafah.`\
 https://nytimes.com/2024/05/07/world/europe/rafah-strikes-russia-ukraine.html
