@@ -1,3 +1,15 @@
+**Satellite photos show far fewer aid trucks after Israel ordered evacuations in Rafah.**\
+`By Lauren Leatherby`\
+https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/satellite-photos-show-far-fewer-aid-trucks-after-israel-ordered-evacuations-in-rafah
+
+**Madonna’s Hits-Filled Celebration Tour, Dissected**\
+`Hear five standouts from the set, and six we wish she’d played.`\
+https://nytimes.com/2024/05/07/arts/music/amplifier-newsletter-madonna-celebration-tour.html
+
+**Could Equinox’s New $40,000 Membership Really Help You Live Longer?**\
+`Blood tests and ‘biodata’ have entered the fitness space.`\
+https://nytimes.com/2024/05/07/well/live/equinox-40000-optimize-longevity-membership.html
+
 **The Dangers in Putting Stormy Daniels on the Stand**\
 `She can confirm the tryst happened, but has changed her story over the years.`\
 https://nytimes.com/2024/05/01/opinion/trump-stormy-daniels-strategy.html

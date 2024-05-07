@@ -1,3 +1,15 @@
+**Satellite photos show far fewer aid trucks after Israel ordered evacuations in Rafah.**\
+`By Lauren Leatherby`\
+https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/satellite-photos-show-far-fewer-aid-trucks-after-israel-ordered-evacuations-in-rafah
+
+**Madonna’s Hits-Filled Celebration Tour, Dissected**\
+`Hear five standouts from the set, and six we wish she’d played.`\
+https://nytimes.com/2024/05/07/arts/music/amplifier-newsletter-madonna-celebration-tour.html
+
+**Could Equinox’s New $40,000 Membership Really Help You Live Longer?**\
+`Blood tests and ‘biodata’ have entered the fitness space.`\
+https://nytimes.com/2024/05/07/well/live/equinox-40000-optimize-longevity-membership.html
+
 **The Dangers in Putting Stormy Daniels on the Stand**\
 `She can confirm the tryst happened, but has changed her story over the years.`\
 https://nytimes.com/2024/05/01/opinion/trump-stormy-daniels-strategy.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/07/us/politics/israel-gaza-us-weapons.html
 **What Does ‘Post-Emerging’ Look Like in Today’s Dance Landscape?**\
 `Fresh Tracks, at New York Live Arts, showcases early-career dance makers. This year’s talented crop wonders about next steps.`\
 https://nytimes.com/2024/05/07/arts/dance/fresh-tracks-new-york-live-arts-bill-t-jones.html
-
-**Senators Seek to Curb Facial Recognition at Airports, Citing Privacy Concerns**\
-`A bipartisan group of lawmakers is pushing to add language to the reauthorization of the Federal Aviation Administration that would halt expansion of the technology.`\
-https://nytimes.com/2024/05/07/us/politics/airport-facial-recognition-technology-congress.html
-
-**Israel’s seizure of the Rafah crossing strands a teenager who was set to have surgery in Egypt.**\
-`By Liam Stack and Abu Bakr Bashir`\
-https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/israels-seizure-of-the-rafah-crossing-strands-a-teenager-who-was-set-to-have-surgery-in-egypt
-
-**Wearing Masks During the Gaza Protests**\
-`Readers criticize protesters who try to maintain their anonymity. Also: Money and politics; protecting oceans; possible exiles if Donald Trump wins.`\
-https://nytimes.com/2024/05/07/opinion/gaza-protests-masks.html
 
