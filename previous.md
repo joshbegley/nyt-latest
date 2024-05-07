@@ -1,3 +1,7 @@
+**A New Diplomatic Strategy Emerges as Artificial Intelligence Grows**\
+`The new U.S. approach to cyberthreats comes as early optimism about a “global internet” connecting the world has been shattered.`\
+https://nytimes.com/2024/05/06/us/politics/diplomatic-strategy-artificial-intelligence.html
+
 **Isabelle Huppert’s Balenciaga dress pays homage to her ancestors.**\
 `By Vanessa Friedman`\
 https://nytimes.com/live/2024/05/06/fashion/met-gala-2024/isabelle-huppert-balenciaga-met-gala
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/06/style/davine-joy-randolph-met-gala-zac-posen.html
 **Tyla Whips Up a Sandstorm on the Met Carpet**\
 `The South African singer and songwriter accessorized with a literal hourglass.`\
 https://nytimes.com/2024/05/06/fashion/tyla-met-gala-balmain.html
-
-**Does NASA need two rides to the space station? Elon Musk says no.**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2024/05/06/science/boeing-starliner-launch/spacex-nasa-orbit
 
