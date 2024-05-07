@@ -1,3 +1,7 @@
+**How Much Money Did This Year’s Met Gala Raise?**\
+`Ticket prices to the event have sharply risen, making it a fund-raising bonanza for the Metropolitan Museum of Art’s Costume Institute.`\
+https://nytimes.com/2024/05/07/style/met-gala-money-fund-raising.html
+
 **Wednesday Briefing: Israel in Rafah; Negotiators in Cairo**\
 `Also, Stormy Daniels testified in Donald Trump’s trial.`\
 https://nytimes.com/2024/05/07/world/asia/rafah-talks-cairo-stormy-trump-asia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/07/world/middleeast/israel-hamas-ceasefire-proposal.
 **07pol-swiper**\
 `Election Updates: R.F.K. Jr. challenges Trump to a debate at the Libertarian Party convention.`\
 https://nytimes.com/live/2024/05/07/us/biden-trump-election
-
-**R.F.K. Jr., Invited to Libertarian Convention, Seeks Trump Debate**\
-`Both presidential candidates are scheduled to address a Libertarian gathering this month in Washington.`\
-https://nytimes.com/2024/05/07/us/politics/rfk-trump-debate.html
 

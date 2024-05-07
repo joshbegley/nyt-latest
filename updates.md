@@ -1,3 +1,7 @@
+**How Much Money Did This Year’s Met Gala Raise?**\
+`Ticket prices to the event have sharply risen, making it a fund-raising bonanza for the Metropolitan Museum of Art’s Costume Institute.`\
+https://nytimes.com/2024/05/07/style/met-gala-money-fund-raising.html
+
 **Wednesday Briefing: Israel in Rafah; Negotiators in Cairo**\
 `Also, Stormy Daniels testified in Donald Trump’s trial.`\
 https://nytimes.com/2024/05/07/world/asia/rafah-talks-cairo-stormy-trump-asia.html
