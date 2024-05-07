@@ -1,3 +1,7 @@
+**Russia Will Keep U.S. Soldier in Custody for Months, Local Media Reports**\
+`The American soldier, Staff Sgt. Gordon Black, was detained last week. He was traveling home after being stationed in South Korea, according to the U.S. authorities.`\
+https://nytimes.com/2024/05/07/world/europe/us-soldier-detained-russia.html
+
 **Isolated From West, Putin Projects Domestic Power at Inauguration**\
 `The event for Mr. Putin, who claimed his fifth term in a rubber-stamp election, included a church service that underscored efforts to give a religious sheen to his rule.`\
 https://nytimes.com/2024/05/07/world/europe/putin-inauguration-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/07/opinion/israel-shutters-al-jazeera.html
 **Biden to Condemn Antisemitism at Holocaust Remembrance Ceremony**\
 `President Biden’s address from Capitol Hill comes during weeks of protests on American college campuses against Israel’s war in Gaza.`\
 https://nytimes.com/2024/05/07/us/politics/biden-antisemitism-holocaust-remembrance-ceremony.html
-
-**Giant Batteries Are Transforming the Way the U.S. Uses Electricity**\
-`They’re delivering solar power after dark in California and helping to stabilize grids in other states. And the technology is expanding rapidly.`\
-https://nytimes.com/interactive/2024/05/07/climate/battery-electricity-solar-california-texas.html
 
