@@ -1,3 +1,7 @@
+**Stormy Daniels Testified About Core Details in Trump’s Trial**\
+`Also, TikTok sued the U.S. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/05/07/briefing/stormy-daniels-testimony-israel-hamas-rafah.html
+
 **White House Condemns Taunting of a Black Student at Ole Miss**\
 `In a widely shared video, one white male student at the University of Mississippi appeared to make monkey gestures at a Black pro-Palestinian protester, as others jeered.`\
 https://nytimes.com/2024/05/07/us/ole-miss-protests-video.html
