@@ -1,3 +1,11 @@
+**White House Condemns Taunting of a Black Student at Ole Miss**\
+`In a widely shared video, one white male student at the University of Mississippi appeared to make monkey gestures at a Black pro-Palestinian protester, as others jeered.`\
+https://nytimes.com/2024/05/07/us/ole-miss-protests-video.html
+
+**Trump, Biden and a Split Screen Made for This Moment**\
+`President Biden gave a speech on Holocaust remembrance. Former President Trump was in court with Stormy Daniels. The day captured the sometimes unreal reality of a presidential race like none before it.`\
+https://nytimes.com/2024/05/07/us/politics/trump-trial-biden-speech-holocaust.html
+
 **Consultants to Examine Police Response to Attack at U.C.L.A.**\
 `The University of California system said it would bring in a police consulting firm to investigate why the attack on pro-Palestinian demonstrators was allowed to continue for hours.`\
 https://nytimes.com/2024/05/07/us/ucla-protests-police-investigation.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/07/podcasts/transcript-ezra-klein-interviews-ari-sha
 **How Parents of College Seniors Are Reacting to Campus Disruptions**\
 `No matter their opinions on pro-Palestinian demonstrations on campus, many parents are angry that final semesters and graduations have been upended.`\
 https://nytimes.com/2024/05/07/nyregion/college-protests-parents.html
-
-**At the Met Gala, Celebrities Are Nearly Nude. Are We Not Aroused?**\
-`In an era of sexual decline, celebrities are dressing up in outfits that are barely there. But no one seems to be enjoying it much.`\
-https://nytimes.com/2024/05/07/opinion/met-gala-celebrities-nude.html
-
-**Lesley Hazleton, Writer Who Tackled Religion and Fast Cars, Dies at 78**\
-`Born in England and raised Jewish, she became agnostic, writing books about her own lack of faith, the prophet Muhammad and her time as a car columnist.`\
-https://nytimes.com/2024/05/07/books/lesley-hazleton-dead.html
 
