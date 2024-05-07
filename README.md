@@ -1,3 +1,11 @@
+**Stormy Daniels Tells of Her Encounter With Trump in Tahoe**\
+`The porn star met the future president at a golf tournament, and she said she was invited to his suite. Her account of what happened next eventually resulted in Donald J. Trump’s criminal trial.`\
+https://nytimes.com/2024/05/07/nyregion/stormy-daniels-trump-tahoe.html
+
+**A House committee will examine reports of antisemitism in K-12 schools.**\
+`After helping topple two college presidents, lawmakers will grill school district leaders from New York City; Berkeley, Calif.; and Montgomery County in Maryland.`\
+https://nytimes.com/live/2024/05/07/us/biden-holocaust/a-house-committee-will-examine-reports-of-antisemitism-in-k-12-schools
+
 **After the Met Gala, the Parties Lasted All Night**\
 `Usher, Jeff Bezos, Serena Williams, Erykah Badu, Janelle Monáe and other celebrities kept going into the wee hours.`\
 https://nytimes.com/2024/05/07/fashion/met-gala-parties-boom-boom-room.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/07/dining/nyc-restaurant-news.html
 **‘Every Dollar Counts’: Prosecutors Use Quotes From Trump’s Books Against Him**\
 `Donald J. Trump’s books provided prosecutors with passages they believe can help their case, as they argue that he knew that his company falsified business records to cover up a hush-money payment to Stormy Daniels.`\
 https://nytimes.com/2024/05/07/nyregion/sally-franklin-books-trump-trial.html
-
-**On college campuses, pro-Palestinian protesters urge supporters to rally nationwide.**\
-`By Mitch Smith, Jamie Kelter Davis and Yan Zhuang`\
-https://nytimes.com/live/2024/05/07/us/biden-holocaust/on-college-campuses-pro-palestinian-protesters-urge-supporters-to-rally-nationwide
-
-**An official warns of ‘staggeringly’ bad conditions in the so-called safe zones in Rafah.**\
-`By Nick Cumming-Bruce`\
-https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/the-so-called-safe-zones-for-rafah-evacuees-have-staggeringly-bad-conditions-officials-say
 
