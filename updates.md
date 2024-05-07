@@ -1,3 +1,11 @@
+**The so-called safe zones for Rafah evacuees have ‘staggeringly’ bad conditions, officials say.**\
+`By Nick Cumming-Bruce`\
+https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/the-so-called-safe-zones-for-rafah-evacuees-have-staggeringly-bad-conditions-officials-say
+
+**Stormy Daniels, Porn Star Who Says She Had Sex With Trump, Testifies at Trial**\
+`She says she met the former president at a golf tournament and they wound up in his suite. He denies the encounter.`\
+https://nytimes.com/2024/05/07/nyregion/stormy-daniels-trump-trial.html
+
 **Preparations Ramp Up for Global Security Force to Quell Haitian Violence**\
 `More than half a dozen nations have pledged personnel to a multinational effort to stabilize Haiti, where gangs have taken over much of the capital, setting off a major humanitarian crisis.`\
 https://nytimes.com/2024/05/07/world/africa/haiti-security-force.html
