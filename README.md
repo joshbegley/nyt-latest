@@ -1,3 +1,11 @@
+**At the Met Gala, Celebrities Are Nearly Nude. Are We Not Aroused?**\
+`In an era of sexual decline, more celebrities are going nearly nude. But no one seems to be enjoying it very much.`\
+https://nytimes.com/2024/05/07/opinion/met-gala-celebrities-nude.html
+
+**Lesley Hazleton, Writer Who Tackled Religion and Fast Cars, Dies at 78**\
+`Born in England and raised Jewish, she became agnostic, writing books about her own lack of faith, the prophet Muhammad and her time as a car columnist.`\
+https://nytimes.com/2024/05/07/books/lesley-hazleton-dead.html
+
 **What to Know About the Gaps Between Israel and Hamas on the Cease-Fire Proposal**\
 `Hamas said it had accepted the terms of a cease-fire proposed by Arab mediators, but Prime Minister Benjamin Netanyahu said it was “very far from Israel’s core demands.”`\
 https://nytimes.com/2024/05/07/world/middleeast/israel-hamas-ceasefire-proposal.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/07/technology/reddit-quarterly-earnings-report.html
 **Garrick Club of London Votes to Accept Female Members for First Time**\
 `The move ended a decades-long dispute that had divided the opulent private club and generated multiple conflicting legal arguments.`\
 https://nytimes.com/2024/05/07/world/europe/garrick-club-london-female-members.html
-
-**A Timeline of the History Between Stormy Daniels and Donald Trump**\
-`Nearly two decades after they met in Nevada, Daniels and Trump met face to face again in a Lower Manhattan courtroom in the first criminal trial against a former United States president.`\
-https://nytimes.com/2024/05/07/nyregion/stormy-daniels-donald-trump-timeline.html
-
-**A Romantic New Clothing Line With Hidden Quirks**\
-`The designer Meruert Tolegen started out making children’s wear. Her pieces for adults combine precise construction with a playful spirit.`\
-https://nytimes.com/2024/05/07/t-magazine/meruert-tolegen-fashion.html
 
