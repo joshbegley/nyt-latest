@@ -1,3 +1,7 @@
+**Blinken Holds Regional Talks on Migration in Latin America**\
+`Secretary of State Antony J. Blinken’s trip to Guatemala comes as the United States tries to get countries in the region to ramp up enforcement of their borders.`\
+https://nytimes.com/2024/05/07/us/politics/blinken-migrants-guatemala-border.html
+
 **2 French Toast Recipes to Make Mother’s Day Brunch Unforgettable**\
 `Variations have been around since bread was invented, but these new takes show it off simply and stunningly.`\
 https://nytimes.com/2024/05/07/dining/mothers-day-brunch-french-toast-recipes.html
