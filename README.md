@@ -1,3 +1,11 @@
+**The Met Gala, in Photos**\
+`Times critic Vanessa Friedman on the biggest night in fashion.`\
+https://nytimes.com/2024/05/07/briefing/met-gala-2024-photos.html
+
+**Closures of two Gaza border crossings prompt alarm over humanitarian aid.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/closures-of-two-gaza-border-crossings-prompt-alarm-over-humanitarian-aid
+
 **In a Surprise, Disney+ Becomes Profitable**\
 `The streaming service added 6 million subscriptions and made $47 million in its latest quarter, helping Disney deliver stronger-than-expected earnings.`\
 https://nytimes.com/2024/05/07/business/media/disney-quarterly-earnings.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/07/technology/openai-deepfake-detector.html
 **Nearly 13 Million in Midwest Brace for More Storms After Tornado Kills 1**\
 `Severe weather moving east on Tuesday will bring frequent lightning, strong winds and the possibility of tornadoes to parts of Indiana, Kentucky and Ohio.`\
 https://nytimes.com/2024/05/07/us/storms-tornadoes-weather-plains-midwest.html
-
-**At Least 2 Dead in Hospital Knife Attack in China**\
-`At least 21 other people were injured during the stabbing rampage in the southwestern province of Yunnan, the police said. A suspect was arrested.`\
-https://nytimes.com/2024/05/07/world/asia/china-hospital-knife-stabbing-attack.html
-
-**The One Thing Trump Knows He Wants in a Running Mate**\
-`When election denialism is a prerequisite.`\
-https://nytimes.com/2024/05/07/opinion/trump-running-mate-election.html
 
