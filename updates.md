@@ -1,3 +1,7 @@
+**Behind Nigeria’s Arrest of Binance Employee, Claims of a Bribe Request**\
+`A compliance officer for the cryptocurrency exchange told senior executives and Nigerian contacts that the company had been asked to pay $150 million in crypto.`\
+https://nytimes.com/2024/05/07/technology/binance-nigeria-tigran-gambaryan.html
+
 **Cocktail Hour at the Met Gala: What Comes After the Carpet**\
 `How Jeff Bezos, Sarah Jessica Parker, Kris Jenner and other A-listers spent their night in the museum. (Hint: Cucumber margaritas were involved.)`\
 https://nytimes.com/2024/05/07/fashion/met-gala-cocktail-party.html
