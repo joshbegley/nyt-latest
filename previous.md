@@ -1,3 +1,7 @@
+**Body of Final Victim in Baltimore Bridge Collapse Is Found**\
+`The victim, José Mynor López, 37, was a member of a work crew that had been filling potholes on the bridge when it was struck in March by a container ship.`\
+https://nytimes.com/2024/05/07/us/baltimore-bridge-victim-body-recovered.html
+
 **A Land Artist’s Work Evades Demolition**\
 `A federal judge granted a temporary restraining order protecting a work by Mary Miss. A Des Moines museum wanted to destroy it, citing safety concerns.`\
 https://nytimes.com/2024/05/07/arts/design/temporary-injunction-iowa-artwork.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/07/opinion/trump-trial-stormy-daniels.html
 **Outage Causes Delays at U.K. Airports’ Immigration Checkpoints**\
 `Airport officials said that a system outage affecting the Border Force’s immigration gates was causing long waits for passengers arriving in Britain.`\
 https://nytimes.com/2024/05/07/world/europe/uk-airport-outage-heathrow.html
-
-**Judge Postpones Start of Trump Documents Trial Without New Date**\
-`Judge Aileen Cannon had previously made clear that the trial would not start as scheduled this month but she declined to set a new timetable, saying many pretrial issues still have to be resolved.`\
-https://nytimes.com/2024/05/07/us/politics/trump-documents-trial-postponed.html
 
