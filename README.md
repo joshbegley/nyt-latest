@@ -1,3 +1,7 @@
+**Tuesday Briefing**\
+`Israel’s strikes on Rafah.`\
+https://nytimes.com/2024/05/07/world/europe/rafah-strikes-russia-ukraine.html
+
 **20 Unforgettable Looks at the Met Gala**\
 `At an event where fashion is the focus, these ensembles stood out more than most.`\
 https://nytimes.com/2024/05/07/fashion/met-gala-fashion-photos-zendaya-kim-kardashian.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/nyregion/100000009450974/jury-sees-trumps-checks-in-hu
 **Rihanna, Beyoncé and Taylor Swift Missed the Met Gala**\
 `Fashion’s biggest night had to go on without some of the its scene-stealing stars from previous years.`\
 https://nytimes.com/2024/05/06/fashion/met-gala-rihanna-beyonce-taylor-swift.html
-
-**Sound of Enlightenment**\
-`Justin Werfel makes his debut in the New York Times Crossword.`\
-https://nytimes.com/2024/05/06/crosswords/daily-puzzle-2024-05-07.html
 
