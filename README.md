@@ -1,5 +1,5 @@
 **Gaza War Puts New Pressures on U.S. Arms Transfer Policies**\
-`A Biden administration report is due this week on whether it believes Israel’s assurances on its use of U.S. arms and the protection of civilians.`\
+`The Biden administration is due to release a report this week on whether it believes assurances from Israel on its use of U.S. arms and protection of civilians.`\
 https://nytimes.com/2024/05/07/us/politics/israel-gaza-us-weapons.html
 
 **What Does ‘Post-Emerging’ Look Like in Today’s Dance Landscape?**\
