@@ -1,3 +1,7 @@
+**Timeline of Recent Twists and Turns in Gaza Cease-fire Talks**\
+`Hopes for an agreement to halt the fighting and free hostages have risen and fallen repeatedly in recent days.`\
+https://nytimes.com/2024/05/06/world/middleeast/gaza-cease-fire-talks-timeline.html
+
 **Transcript of Trump Manhattan Trial, May 3, 2024**\
 `New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
 https://nytimes.com/interactive/2024/05/06/nyregion/trump-hush-money-trial-transcript-may-3.html

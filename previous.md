@@ -6,9 +6,9 @@ https://nytimes.com/interactive/2024/05/06/nyregion/trump-hush-money-trial-trans
 `By Niraj Chokshi`\
 https://nytimes.com/live/2024/05/06/science/boeing-starliner-launch/this-has-been-a-trying-year-for-boeing
 
-**Here is a timeline of the recent twists and turns in the cease-fire talks.**\
-`By Eric Nagourney and Aaron Boxerman`\
-https://nytimes.com/2024/05/06/world/middleeast/here-is-a-timeline-of-the-recent-twists-and-turns-in-the-cease-fire-talks.html
+**Timeline of Recent Twists and Turns in Gaza Cease-fire Talks**\
+`Hopes for an agreement to halt the fighting and free hostages have risen and fallen repeatedly in recent days.`\
+https://nytimes.com/2024/05/06/world/middleeast/gaza-cease-fire-talks-timeline.html
 
 **Police Make Arrests While Trying to Contain Protests**\
 `As expected, protesters gathered near the Met Gala to protest the war in Gaza, creating an atmosphere far different from the one inside the event.`\
