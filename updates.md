@@ -1,3 +1,7 @@
+**Amanda Seyfried Asked for a ‘Sustainable’ Met Gala Dress**\
+`The story behind her semi-recycled red-carpet look.`\
+https://nytimes.com/2024/05/06/style/amanda-seyfried-met-gala-prada.html
+
 **Hochul Apologizes for Saying ‘Black Kids’ Don’t Know the Word ‘Computer’**\
 `As Gov. Kathy Hochul urged business leaders to make technology widely accessible, a comment she made about Bronx children raised eyebrows.`\
 https://nytimes.com/2024/05/06/nyregion/hochul-black-kids-computer.html
