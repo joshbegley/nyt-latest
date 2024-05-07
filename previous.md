@@ -1,3 +1,11 @@
+**Here are the latest developments on campus protests.**\
+`By Yan Zhuang`\
+https://nytimes.com/live/2024/05/07/us/campus-protests/here-are-the-latest-developments-on-campus-protests
+
+**Will You Look at Me**\
+`When a young Chinese filmmaker returns to his hometown in search of himself, a long-due conversation with his mother dives the two of them into a quest for acceptance and love.`\
+https://nytimes.com/video/opinion/100000009295710/will-you-look-at-me.html
+
 **Behind Nigeria’s Arrest of Binance Employee, Claims of a Bribe Request**\
 `A compliance officer for the cryptocurrency exchange told senior executives and Nigerian contacts that the company had been asked to pay $150 million in crypto.`\
 https://nytimes.com/2024/05/07/technology/binance-nigeria-tigran-gambaryan.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/07/crosswords/spelling-bee-forum.html
 **The Connections Companion No. 331**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/05/07/crosswords/connections-companion.html
-
-**Word of the Day: masquerade**\
-`This word has appeared in 25 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/05/07/learning/word-of-the-day-masquerade.html
-
-**Here are the latest developments.**\
-`By Isabel Kershner and Andrés R. Martínez`\
-https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/rafah-invasion-israel-hamas
 
