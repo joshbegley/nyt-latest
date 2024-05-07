@@ -22,7 +22,7 @@ https://nytimes.com/2024/05/07/us/politics/americans-repatriated-syria-war-camps
 `Wall Street has been debating how the investment giant’s $59 billion real estate fund has managed to outperform virtually all its rivals.`\
 https://nytimes.com/2024/05/07/business/dealbook/blackstone-breit-fund-debate.html
 
-**The University of Chicago protest encampment drew attention to free speech standards.**\
+**The University of Chicago initially took a permissive stance, but removed the camp on Tuesday.**\
 `The university has presented itself as a national model for free expression on campus. Its president said that the encampment “cannot continue.”`\
 https://nytimes.com/live/2024/05/07/us/campus-protests/university-chicago-encampment-protests
 
