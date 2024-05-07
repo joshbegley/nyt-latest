@@ -1,3 +1,7 @@
+**Isolated From West, Putin Projects Domestic Power at Inauguration**\
+`Mr. Putin, who claimed his fifth term in March in a rubber-stamp election, repeated a call for talks to end the war in Ukraine that critics see as a demand for capitulation by the West.`\
+https://nytimes.com/2024/05/07/world/europe/putin-inauguration-russia.html
+
 **The Scramble to Broker a Gaza Deal, and More Questions for Boeing**\
 `Plus, Trump is threatened with jail.`\
 https://nytimes.com/2024/05/07/podcasts/gaza-boeing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/07/us/politics/biden-antisemitism-holocaust-remembra
 **Giant Batteries Are Transforming the Way the U.S. Uses Electricity**\
 `They’re delivering solar power after dark in California and helping to stabilize grids in other states. And the technology is expanding rapidly.`\
 https://nytimes.com/interactive/2024/05/07/climate/battery-electricity-solar-california-texas.html
-
-**Which Toy Would You Want to Help Design or Update?**\
-`A Lego set, Hot Wheels car or Barbie doll? A new board or video game? A favorite childhood plaything reimagined for today?`\
-https://nytimes.com/2024/05/07/learning/which-toy-would-you-want-to-help-design-or-update.html
 

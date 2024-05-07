@@ -1,3 +1,7 @@
+**Isolated From West, Putin Projects Domestic Power at Inauguration**\
+`Mr. Putin, who claimed his fifth term in March in a rubber-stamp election, repeated a call for talks to end the war in Ukraine that critics see as a demand for capitulation by the West.`\
+https://nytimes.com/2024/05/07/world/europe/putin-inauguration-russia.html
+
 **The Scramble to Broker a Gaza Deal, and More Questions for Boeing**\
 `Plus, Trump is threatened with jail.`\
 https://nytimes.com/2024/05/07/podcasts/gaza-boeing.html
