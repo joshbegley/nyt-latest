@@ -10,7 +10,7 @@ https://nytimes.com/2024/05/07/nyregion/sally-franklin-books-trump-trial.html
 `By Mitch Smith, Jamie Kelter Davis and Yan Zhuang`\
 https://nytimes.com/live/2024/05/07/us/biden-holocaust/on-college-campuses-pro-palestinian-protesters-urge-supporters-to-rally-nationwide
 
-**The so-called safe zones for Rafah evacuees have ‘staggeringly’ bad conditions, officials say.**\
+**An official warns of ‘staggeringly’ bad conditions in the so-called safe zones in Rafah.**\
 `By Nick Cumming-Bruce`\
 https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/the-so-called-safe-zones-for-rafah-evacuees-have-staggeringly-bad-conditions-officials-say
 
