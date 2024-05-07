@@ -1,3 +1,7 @@
+**They Put a 65-Foot Hot Dog in Times Square, and It’s a Blast**\
+`With “Hot Dog in the City,” the artists Jen Catron and Paul Outlaw question the lore and lure of American culture (and condiments).`\
+https://nytimes.com/2024/05/07/arts/design/hot-dog-in-the-city-sculpture-times-square.html
+
 **‘Challengers’ and That Ending: Our Critics Have Thoughts**\
 `The tennis movie comes to an abrupt stop midmatch, so we don’t know who won. Does that matter?`\
 https://nytimes.com/2024/05/07/movies/challengers-ending-zendaya.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/07/us/biden-holocaust/a-bill-could-withhold-fun
 **Blinken Holds Regional Talks on Migration in Latin America**\
 `Secretary of State Antony J. Blinken’s trip to Guatemala comes as the United States tries to get countries in the region to ramp up enforcement of their borders.`\
 https://nytimes.com/2024/05/07/us/politics/blinken-migrants-guatemala-border.html
-
-**2 French Toast Recipes to Make Mother’s Day Brunch Unforgettable**\
-`Variations have been around since bread was invented, but these new takes show it off simply and stunningly.`\
-https://nytimes.com/2024/05/07/dining/mothers-day-brunch-french-toast-recipes.html
 

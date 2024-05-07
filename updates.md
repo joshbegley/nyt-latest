@@ -1,3 +1,7 @@
+**They Put a 65-Foot Hot Dog in Times Square, and It’s a Blast**\
+`With “Hot Dog in the City,” the artists Jen Catron and Paul Outlaw question the lore and lure of American culture (and condiments).`\
+https://nytimes.com/2024/05/07/arts/design/hot-dog-in-the-city-sculpture-times-square.html
+
 **‘Challengers’ and That Ending: Our Critics Have Thoughts**\
 `The tennis movie comes to an abrupt stop midmatch, so we don’t know who won. Does that matter?`\
 https://nytimes.com/2024/05/07/movies/challengers-ending-zendaya.html
