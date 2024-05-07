@@ -1,3 +1,7 @@
+**Blinken Holds Regional Talks on Migration in Latin America**\
+`Secretary of State Antony J. Blinken’s trip to Guatemala comes as the United States tries to get countries in the region to ramp up enforcement of their borders.`\
+https://nytimes.com/2024/05/07/us/politics/blinken-migrants-guatemala-border.html
+
 **2 French Toast Recipes to Make Mother’s Day Brunch Unforgettable**\
 `Variations have been around since bread was invented, but these new takes show it off simply and stunningly.`\
 https://nytimes.com/2024/05/07/dining/mothers-day-brunch-french-toast-recipes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/07/dining/creamy-noodles-drizzled-with-chile-crisp-c
 **From a Dead Dog to a Made-Up Meeting: Takeaways From Kristi Noem’s Book**\
 `After a rough start to the rollout of her memoir, the South Dakota governor has continued to defend shooting her dog and to deflect on a false story about meeting Kim Jong-un.`\
 https://nytimes.com/2024/05/07/us/politics/kristi-noem-book-cricket-kim.html
-
-**Tadhana Showcases Filipino Cuisine With a 16-Course Tasting Menu**\
-`Inday serves fast-casual Indian American fare, Summer at the Rink Rock Center provides al fresco dining and more restaurant news.`\
-https://nytimes.com/2024/05/07/dining/nyc-restaurant-news.html
 
