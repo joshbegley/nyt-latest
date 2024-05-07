@@ -1,5 +1,9 @@
 **Outage Causes Delays at U.K. Airports’ Immigration Checkpoints**\
 `Airport officials said that a system outage affecting the Border Force’s immigration gates was causing long waits for passengers arriving in Britain.`\
+https://nytimes.com/2024/05/07/world/europe/uk-airport-outage-heathrow.html
+
+**Outage Causes Delays at U.K. Airports’ Immigration Checkpoints**\
+`Airport officials said that a system outage affecting the Border Force’s immigration gates was causing long waits for passengers arriving in Britain.`\
 https://nytimes.com/2024/05/07/world/europe/uk-airport-outage-e-gates.html
 
 **Judge Postpones Start of Trump Documents Trial Without New Date**\
