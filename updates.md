@@ -1,3 +1,27 @@
+**A Land Artist’s Work Evades Demolition**\
+`A federal judge granted a temporary restraining order protecting a work by Mary Miss. A Des Moines museum wanted to destroy it, citing safety concerns.`\
+https://nytimes.com/2024/05/07/arts/design/temporary-injunction-iowa-artwork.html
+
+**‘People are going to continue to die’: Israel’s operation in Rafah has left doctors scrambling.**\
+`By Anushka Patil and Iyad Abuheweila`\
+https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/people-are-going-to-continue-to-die-israels-operation-in-rafah-has-left-doctors-scrambling
+
+**Senator Mike Braun Clinches G.O.P. Nomination for Indiana Governor**\
+`Mr. Braun, a first-term senator, will enter the general election as the strong favorite in his reliably conservative state.`\
+https://nytimes.com/2024/05/07/us/indiana-governor-primary.html
+
+**When These Snakes Play Dead, Soiling Themselves Is Part of the Act**\
+`Dice snakes found on an island in southeastern Europe fully commit themselves to the role of ex-reptile.`\
+https://nytimes.com/2024/05/07/science/snakes-playing-dead.html
+
+**Stormy Daniels Delivers Intense Testimony in Trump’s Trial: 5 Takeaways**\
+`A long day on the stand put Ms. Daniels’s credibility to the test as defense lawyers challenged her motives.`\
+https://nytimes.com/2024/05/07/nyregion/stormy-daniels-trump-hush-money.html
+
+**Israeli Tanks Enter Rafah as Cease-Fire Talks Resume in Cairo**\
+`An Israeli incursion into the southern Gaza city did not appear to be the long-anticipated, full-scale invasion of the city, home to about a million displaced Palestinians.`\
+https://nytimes.com/2024/05/07/world/middleeast/israeli-rafah-gaza-ceasefire.html
+
 **White House Condemns Taunting of a Black Student at Ole Miss**\
 `In a widely shared video, one white male student at the University of Mississippi appeared to make monkey gestures at a Black pro-Palestinian protester, as others jeered.`\
 https://nytimes.com/2024/05/07/us/ole-miss-protests-video.html
