@@ -6,9 +6,9 @@ https://nytimes.com/2024/05/07/us/politics/americans-repatriated-syria-war-camps
 `Wall Street has been debating how the investment giant’s $59 billion real estate fund has managed to outperform virtually all its rivals.`\
 https://nytimes.com/2024/05/07/business/dealbook/blackstone-breit-fund-debate.html
 
-**Police Remove Protest Encampment at University of Chicago**\
+**The University of Chicago protest encampment drew attention to free speech standards.**\
 `The university has presented itself as a national model for free expression on campus. Its president said that the encampment “cannot continue.”`\
-https://nytimes.com/2024/05/07/us/university-chicago-encampment-protests.html
+https://nytimes.com/live/2024/05/07/us/campus-protests/university-chicago-encampment-protests
 
 **The Met Gala, in Photos**\
 `Times critic Vanessa Friedman on the biggest night in fashion.`\
