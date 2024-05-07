@@ -1,3 +1,15 @@
+**Tadhana Showcases Filipino Cuisine With a 16-Course Tasting Menu**\
+`Inday serves fast-casual Indian American fare, Summer at the Rink Rock Center provides al fresco dining and more restaurant news.`\
+https://nytimes.com/2024/05/07/dining/nyc-restaurant-news.html
+
+**Prosecutors Mine Trump’s Books for Quotes to Use Against Him**\
+`“When somebody hurts you, just go after them as viciously and as violently as you can,” Donald J. Trump wrote.`\
+https://nytimes.com/2024/05/07/nyregion/sally-franklin-books-trump-trial.html
+
+**On college campuses, pro-Palestinian protesters urge supporters to rally nationwide.**\
+`By Mitch Smith, Jamie Kelter Davis and Yan Zhuang`\
+https://nytimes.com/live/2024/05/07/us/biden-holocaust/on-college-campuses-pro-palestinian-protesters-urge-supporters-to-rally-nationwide
+
 **The so-called safe zones for Rafah evacuees have ‘staggeringly’ bad conditions, officials say.**\
 `By Nick Cumming-Bruce`\
 https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/the-so-called-safe-zones-for-rafah-evacuees-have-staggeringly-bad-conditions-officials-say

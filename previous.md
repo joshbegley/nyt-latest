@@ -1,3 +1,15 @@
+**Tadhana Showcases Filipino Cuisine With a 16-Course Tasting Menu**\
+`Inday serves fast-casual Indian American fare, Summer at the Rink Rock Center provides al fresco dining and more restaurant news.`\
+https://nytimes.com/2024/05/07/dining/nyc-restaurant-news.html
+
+**Prosecutors Mine Trump’s Books for Quotes to Use Against Him**\
+`“When somebody hurts you, just go after them as viciously and as violently as you can,” Donald J. Trump wrote.`\
+https://nytimes.com/2024/05/07/nyregion/sally-franklin-books-trump-trial.html
+
+**On college campuses, pro-Palestinian protesters urge supporters to rally nationwide.**\
+`By Mitch Smith, Jamie Kelter Davis and Yan Zhuang`\
+https://nytimes.com/live/2024/05/07/us/biden-holocaust/on-college-campuses-pro-palestinian-protesters-urge-supporters-to-rally-nationwide
+
 **The so-called safe zones for Rafah evacuees have ‘staggeringly’ bad conditions, officials say.**\
 `By Nick Cumming-Bruce`\
 https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/the-so-called-safe-zones-for-rafah-evacuees-have-staggeringly-bad-conditions-officials-say
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/07/style/katy-perry-met-gala-ai.html
 **Is the Met Gala Protest-Proof?**\
 `Despite a rich, class-based theme and calls to disrupt the fashion extravaganza of the year, politics proved no match for the power of the spectacle.`\
 https://nytimes.com/2024/05/07/fashion/met-gala-protests.html
-
-**California Is Rebranding**\
-`Why the state’s tourism agency ditched its “Dream Big” slogan after more than a decade.`\
-https://nytimes.com/2024/05/07/us/california-tourism-campaign.html
-
-**Weekly Student New Quiz: Myanmar, Campus Protests, 'Hell's Kitchen'**\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2024/05/07/learning/07StudentNewsQuiz.html
-
-**Sweetgreen Is Introducing Steak. What About Its Climate Goals?**\
-`The fast-casual chain aims to be climate neutral by 2027, but beef is a big contributor to climate change.`\
-https://nytimes.com/2024/05/07/dining/sweetgreen-steak.html
 
