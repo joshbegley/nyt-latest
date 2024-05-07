@@ -1,3 +1,7 @@
+**The Starliner project has cost Boeing $1.4 billion more than it planned to spend.**\
+`By Niraj Chokshi`\
+https://nytimes.com/live/2024/05/06/science/boeing-starliner-launch/the-starliner-project-has-cost-boeing-1-4-billion-more-than-it-planned-to-spend
+
 **A New Diplomatic Strategy Emerges as Artificial Intelligence Grows**\
 `The new U.S. approach to cyberthreats comes as early optimism about a “global internet” connecting the world has been shattered.`\
 https://nytimes.com/2024/05/06/us/politics/diplomatic-strategy-artificial-intelligence.html
