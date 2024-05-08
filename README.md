@@ -1,3 +1,31 @@
+**A pro-Israel teacher was targeted in a raucous protest at a Queens school.**\
+`By Troy Closson`\
+https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/a-pro-israel-teacher-was-targeted-in-a-raucous-protest-at-a-queens-school
+
+**Uber Slips on Rising Legal Costs and Weaker Ride Demand**\
+`The company has racked up bills after long-running legal fights with regulators and cabdrivers.`\
+https://nytimes.com/2024/05/08/business/uber-earnings-first-quarter.html
+
+**Chicken So Good It Was Kept Secret**\
+`What to cook with the kids: shahi toast, salmon onigiri and the garlic-ginger chicken that was a Krishna family secret.`\
+https://nytimes.com/2024/05/08/dining/chicken-so-good-it-was-kept-secret.html
+
+**Google Unveils A.I. for Predicting Behavior of Human Molecules**\
+`The system, AlphaFold3, could accelerate efforts to understand the human body and fight disease.`\
+https://nytimes.com/2024/05/08/technology/google-ai-molecules-alphafold3.html
+
+**Environmental Changes Are Fueling Human, Animal and Plant Diseases, Study Finds**\
+`Biodiversity loss, global warming, pollution and the spread of invasive species are making infectious diseases more dangerous to organisms around the world.`\
+https://nytimes.com/2024/05/08/health/environment-climate-health.html
+
+**Checking in With an Airline Reporter**\
+`To cover the bustling world of aviation, Christine Chung considers the plights and predicaments of readers.`\
+https://nytimes.com/2024/05/08/insider/airline-beat-reporter.html
+
+**‘Kingdom of the Planet of the Apes’ Review: Hail, Caesar**\
+`The latest installment in an excellent trilogy finds mythology turning into power.`\
+https://nytimes.com/2024/05/08/movies/kingdom-of-the-planet-of-the-apes-review.html
+
 **Four teachers were suspended at Montgomery County schools.**\
 `By Campbell Robertson`\
 https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/four-teachers-were-suspended-at-montgomery-county-schools
@@ -9,32 +37,4 @@ https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/new-
 **In Serbia, Xi Underlines Close Ties With Ally That Shares Wariness of U.S.**\
 `Visiting friendly leaders in Eastern Europe, the Chinese president commemorated the 25th anniversary of a misdirected U.S. airstrike that destroyed China’s embassy in Belgrade.`\
 https://nytimes.com/2024/05/08/world/europe/xi-jinping-china-serbia-visit.html
-
-**Who is Enikia Ford Morthel?**\
-`By Heather Knight`\
-https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/who-is-enikia-ford-morthel
-
-**Israel shrugs off a U.S. hold on an arms delivery, but some see a new fracture in ties.**\
-`By Damien Cave`\
-https://nytimes.com/live/2024/05/08/world/israel-gaza-war-hamas-rafah/israel-shrugs-off-a-us-hold-on-an-arms-delivery-but-some-see-a-new-fracture-in-ties
-
-**An immigrant from Guatemala, Karla Silvestre has experience in education and local government.**\
-`By Campbell Robertson`\
-https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/an-immigrant-from-guatemala-karla-silvestre-has-experience-in-education-and-local-government
-
-**David Banks has an extensive education portfolio, and an activist spirit.**\
-`By Troy Closson`\
-https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/david-banks-has-an-extensive-education-portfolio-and-an-activist-spirit
-
-**Georgia Court Will Hear Appeal of Ruling That Kept Prosecutor on Trump Case**\
-`The decision to hear the appeal reopens the possibility that Fani T. Willis, the Fulton County district attorney, could be disqualified from prosecuting Donald Trump and 14 allies over efforts to overturn the 2020 election.`\
-https://nytimes.com/2024/05/08/us/trump-fani-willis-appeals-court.html
-
-**The Fizzled Rebellion of the House Extremists**\
-`Marjorie Taylor Greene never had enough juice to oust Speaker Mike Johnson.`\
-https://nytimes.com/2024/05/07/opinion/greene-johnson-fizzled-rebellion.html
-
-**China Is Way Ahead in Green Energy. Here’s Why That’s Risky for the U.S.**\
-`Beijing’s dominance raises economic and security concerns, and tensions will be on full display as top climate diplomats meet this week.`\
-https://nytimes.com/2024/05/08/climate/china-us-podesta-liu.html
 
