@@ -1,3 +1,11 @@
+**A Paused Arms Shipment to Israel, and R.F.K. Jr.’s Health Record**\
+`Plus, Stormy Daniels unfiltered.`\
+https://nytimes.com/2024/05/08/podcasts/israel-arms-rfk-jr-brain-parasite.html
+
+**A Plan to Remake the Middle East**\
+`While talks for a cease-fire between Israel and Hamas continue, another set of negotiations is happening behind the scenes.`\
+https://nytimes.com/2024/05/08/podcasts/the-daily/israel-gaza-middle-east-plan.html
+
 **With Speakers Missing and Security High, U.S.C. Tries to Save Its Graduation**\
 `The university is known for going all out on the ceremonies, but this year, after protests and arrests, the gloss is gone. Families are not happy.`\
 https://nytimes.com/2024/05/08/us/usc-graduation-protests.html

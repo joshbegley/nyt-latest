@@ -1,3 +1,11 @@
+**A Paused Arms Shipment to Israel, and R.F.K. Jr.’s Health Record**\
+`Plus, Stormy Daniels unfiltered.`\
+https://nytimes.com/2024/05/08/podcasts/israel-arms-rfk-jr-brain-parasite.html
+
+**A Plan to Remake the Middle East**\
+`While talks for a cease-fire between Israel and Hamas continue, another set of negotiations is happening behind the scenes.`\
+https://nytimes.com/2024/05/08/podcasts/the-daily/israel-gaza-middle-east-plan.html
+
 **With Speakers Missing and Security High, U.S.C. Tries to Save Its Graduation**\
 `The university is known for going all out on the ceremonies, but this year, after protests and arrests, the gloss is gone. Families are not happy.`\
 https://nytimes.com/2024/05/08/us/usc-graduation-protests.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/08/opinion/campus-protests-gaza.html
 **What Amazes You Most About Animals?**\
 `Cheetahs can reach speeds of 58 m.p.h. or more. Bats use echolocation to fly in the dark. What do you find extraordinary about animals?`\
 https://nytimes.com/2024/05/08/learning/what-amazes-you-most-about-animals.html
-
-**Why Having Kennedy on the Ballot in Texas May Worry Ted Cruz**\
-`Robert F. Kennedy Jr., who expects to be on the ballot in Texas, could prove to be a wild card in the U.S. Senate race, which Ted Cruz had appeared likely to win.`\
-https://nytimes.com/2024/05/08/us/robert-kennedy-texas-cruz.html
-
-**Why Biden and Harris Are So Busy on Wednesdays, When Trump Isn’t in Court**\
-`The president and vice president have been keeping up a busy schedule in the middle of each week, just as Donald Trump takes a break from his trial in New York.`\
-https://nytimes.com/2024/05/08/us/politics/biden-harris-trump-wednesdays.html
 
