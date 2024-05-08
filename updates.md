@@ -1,3 +1,11 @@
+**G.M. Will Retire the Chevrolet Malibu to Make More Electric Cars**\
+`The gasoline-powered Malibu was the last affordable sedan sold by Chevrolet, the General Motors brand, in the United States.`\
+https://nytimes.com/2024/05/08/business/general-motors-chevy-malibu-electric-vehicles.html
+
+**The Words That Defined This Week in Donald J. Trump’s Trial**\
+`Stormy Daniels, Hope Hicks and the defendant himself uttered memorable phrases in the last week of testimony.`\
+https://nytimes.com/2024/05/08/nyregion/trump-hush-money-trial-key-moments.html
+
 **Tornadoes Are Coming in Bunches. Scientists Are Trying to Figure Out Why.**\
 `The number of tornadoes so far in the United States this year is just above average. But their distribution is changing.`\
 https://nytimes.com/2024/05/08/climate/tornadoes-cluster-climate-change.html
