@@ -23,7 +23,7 @@ https://nytimes.com/2024/05/08/health/environment-climate-health.html
 https://nytimes.com/2024/05/08/insider/airline-beat-reporter.html
 
 **‘Kingdom of the Planet of the Apes’ Review: Hail, Caesar**\
-`The latest installment in an excellent trilogy finds mythology turning into power.`\
+`The latest installment in an excellent series finds mythology turning into power.`\
 https://nytimes.com/2024/05/08/movies/kingdom-of-the-planet-of-the-apes-review.html
 
 **Four teachers were suspended at Montgomery County schools.**\
