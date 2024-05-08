@@ -1,3 +1,7 @@
+**An Overlooked War**\
+`In Myanmar, poets, doctors and lawyers have traded life in the cities for jungle warfare.`\
+https://nytimes.com/2024/05/08/briefing/myanmar-civil-war.html
+
 **Kim Ki-Nam, Chief Propagandist in North Korea for Decades, Dies at 94**\
 `Mr. Kim, who served under all three generations of the country’s ruling family, was likened to Joseph Goebbels, Nazi Germany’s propaganda minister.`\
 https://nytimes.com/2024/05/08/world/asia/north-korea-propagandist-goebbels.html

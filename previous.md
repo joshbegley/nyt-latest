@@ -1,3 +1,7 @@
+**An Overlooked War**\
+`In Myanmar, poets, doctors and lawyers have traded life in the cities for jungle warfare.`\
+https://nytimes.com/2024/05/08/briefing/myanmar-civil-war.html
+
 **Kim Ki-Nam, Chief Propagandist in North Korea for Decades, Dies at 94**\
 `Mr. Kim, who served under all three generations of the country’s ruling family, was likened to Joseph Goebbels, Nazi Germany’s propaganda minister.`\
 https://nytimes.com/2024/05/08/world/asia/north-korea-propagandist-goebbels.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/08/magazine/401k-retirement-crisis.html
 **How the New York City Chancellor Prepared for a Congressional Grilling**\
 `As David C. Banks prepares to testify about antisemitism in the New York City schools, he said he wasn’t intimidated by congressional Republicans.`\
 https://nytimes.com/2024/05/08/us/nyc-chancellor-prepared-congressional-hearing.html
-
-**Three Reasons the Campus Protests Are Part of the Problem**\
-`I don’t think the protests are antisemitic. But they undercut the only fair and just solution to the war.`\
-https://nytimes.com/2024/05/08/opinion/campus-protests-gaza.html
 
