@@ -1,3 +1,7 @@
+**Police Break Up Protest Encampment at George Washington University**\
+`The action, with 33 arrests, came a few hours before Mayor Muriel Bowers of Washington was scheduled to testify on Capitol Hill about the city’s handling of the protest. The hearing was canceled.`\
+https://nytimes.com/2024/05/08/us/george-washington-university-pro-palestinian-protest.html
+
 **To protest the war in Gaza, Berkeley students staged walkouts from classes.**\
 `By Kurt Streeter`\
 https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/to-protest-the-war-in-gaza-berkeley-students-staged-walkouts-from-classes

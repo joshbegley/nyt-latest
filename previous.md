@@ -1,3 +1,7 @@
+**Police Break Up Protest Encampment at George Washington University**\
+`The action, with 33 arrests, came a few hours before Mayor Muriel Bowers of Washington was scheduled to testify on Capitol Hill about the city’s handling of the protest. The hearing was canceled.`\
+https://nytimes.com/2024/05/08/us/george-washington-university-pro-palestinian-protest.html
+
 **To protest the war in Gaza, Berkeley students staged walkouts from classes.**\
 `By Kurt Streeter`\
 https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/to-protest-the-war-in-gaza-berkeley-students-staged-walkouts-from-classes
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/08/world/asia/thailand-cannabis-narcotic-law.html
 **‘Bodkin’ Review: Crime in a Small Town? Send in the Podcasters**\
 `This Netflix series is about a true-crime podcast but plays more like a mopey murder show.`\
 https://nytimes.com/2024/05/08/arts/television/bodkin-review.html
-
-**Israel’s Eurovision Entrant Faces Down Her Critics**\
-`Campaigners have unsuccessfully urged the Eurovision Song Contest to ban Eden Golan because of her country’s war in Gaza. “I won’t let anything break me,” she said.`\
-https://nytimes.com/2024/05/08/arts/music/eurovision-israel-eden-golan-hurricane.html
 
