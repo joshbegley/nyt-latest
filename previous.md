@@ -1,3 +1,7 @@
+**Stormy Daniels Tells Her Story of Sex With Trump**\
+`Stormy Daniels, the porn star at the center of former President Donald J. Trump’s criminal trial, testified about their encounter at a celebrity golf tournament in 2006.`\
+https://nytimes.com/video/nyregion/100000009451007/stormy-daniels-tells-her-story-of-sex-with-trump.html
+
 **Canada Re-Criminalizes Public Drug Use in British Columbia**\
 `A province that was a global pioneer in harm reduction took a step back after a political backlash.`\
 https://nytimes.com/2024/05/07/world/canada/british-columbia-public-drug-use.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/07/nyregion/stormy-daniels-trump-hush-money.html
 **Israeli Tanks Enter Rafah as Cease-Fire Talks Resume in Cairo**\
 `An Israeli incursion into the southern Gaza city did not appear to be the long-anticipated, full-scale invasion of the city, home to about a million displaced Palestinians.`\
 https://nytimes.com/2024/05/07/world/middleeast/israeli-rafah-gaza-ceasefire.html
-
-**Sanitation Company Fined $649,000 for Hiring Children in Slaughterhouses**\
-`Fayette Janitorial Service was also ordered to change practices that the Labor Department said had led to the hiring of at least two dozen children in dangerous slaughterhouses and meatpacking facilities.`\
-https://nytimes.com/2024/05/07/us/slaughterhouse-fine-children-clean.html
 

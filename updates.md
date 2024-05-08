@@ -1,3 +1,7 @@
+**Stormy Daniels Tells Her Story of Sex With Trump**\
+`Stormy Daniels, the porn star at the center of former President Donald J. Trump’s criminal trial, testified about their encounter at a celebrity golf tournament in 2006.`\
+https://nytimes.com/video/nyregion/100000009451007/stormy-daniels-tells-her-story-of-sex-with-trump.html
+
 **Stormy Daniels Delivers Intense Testimony in Trump’s Trial: 6 Takeaways**\
 `A long day on the stand put Ms. Daniels’s credibility to the test as defense lawyers challenged her motives.`\
 https://nytimes.com/2024/05/07/nyregion/stormy-daniels-trump-hush-money.html
