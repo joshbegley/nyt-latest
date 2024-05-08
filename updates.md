@@ -1,3 +1,7 @@
+**Judge’s Decisions in Documents Case Play Into Trump’s Delay Strategy**\
+`Judge Aileen Cannon has given sober consideration to arguments that some experts say should have been promptly dispensed with, leaving a backlog of pretrial issues without a trial date in sight.`\
+https://nytimes.com/2024/05/08/us/politics/trump-documents-judge-cannon.html
+
 **G.M. Will Retire the Chevrolet Malibu to Make More Electric Cars**\
 `The gasoline-powered Malibu was the last affordable sedan sold by Chevrolet, the General Motors brand, in the United States.`\
 https://nytimes.com/2024/05/08/business/general-motors-chevy-malibu-electric-vehicles.html

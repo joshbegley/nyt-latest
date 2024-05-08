@@ -1,3 +1,7 @@
+**Judge’s Decisions in Documents Case Play Into Trump’s Delay Strategy**\
+`Judge Aileen Cannon has given sober consideration to arguments that some experts say should have been promptly dispensed with, leaving a backlog of pretrial issues without a trial date in sight.`\
+https://nytimes.com/2024/05/08/us/politics/trump-documents-judge-cannon.html
+
 **G.M. Will Retire the Chevrolet Malibu to Make More Electric Cars**\
 `The gasoline-powered Malibu was the last affordable sedan sold by Chevrolet, the General Motors brand, in the United States.`\
 https://nytimes.com/2024/05/08/business/general-motors-chevy-malibu-electric-vehicles.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/08/arts/music/drake-kendrick-rap-lyrics-genius.html
 **‘It Feels Like I Am Screaming Into the Void With Each Application’**\
 `For many new college graduates, the job market is bleak even though the unemployment rate is low.`\
 https://nytimes.com/2024/05/08/opinion/college-graduates-job-market.html
-
-**A Satellite View of Israel’s New Front in Gaza**\
-`Widespread damage, flattened structures and clusters of Israeli tanks were seen in eastern Rafah after Israel’s incursion.`\
-https://nytimes.com/interactive/2024/05/08/world/middleeast/israel-incursion-rafah-satellite-image-map.html
 
