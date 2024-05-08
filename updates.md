@@ -1,3 +1,7 @@
+**David Banks has an extensive education portfolio, and an activist spirit.**\
+`By Troy Closson`\
+https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/david-banks-has-an-extensive-education-portfolio-and-an-activist-spirit
+
 **Georgia Court Will Hear Appeal of Ruling That Kept Prosecutor on Trump Case**\
 `The decision to hear the appeal reopens the possibility that Fani T. Willis, the Fulton County district attorney, could be disqualified from prosecuting Donald Trump and 14 allies over efforts to overturn the 2020 election.`\
 https://nytimes.com/2024/05/08/us/trump-fani-willis-appeals-court.html
