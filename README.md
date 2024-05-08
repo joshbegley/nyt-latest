@@ -1,40 +1,40 @@
-**Major gaps with Hamas remain, Israeli officials say.**\
-`By Isabel Kershner`\
-https://nytimes.com/live/2024/05/08/world/israel-gaza-war-hamas-rafah/major-gaps-with-hamas-remain-israeli-officials-say
+**Chicago Would Like Everyone to Stop Talking About 1968**\
+`As the city prepares to host the Democratic National Convention, it wants to shed memories of chaos from half a century ago even as protests are growing.`\
+https://nytimes.com/2024/05/08/us/chicago-dnc-1968-protests.html
 
-**Israel reopens one of two Gaza crossings it had closed.**\
-`By Cassandra Vinograd and Erin Mendell`\
-https://nytimes.com/live/2024/05/08/world/israel-gaza-war-hamas-rafah/israel-reopens-one-of-two-gaza-crossings-it-had-closed
+**For Her Broadway Debut, She Sings Alicia Keys’s Story**\
+`Maleah Joi Moon almost gave up on theater. Now, in her first professional role, the “Hell’s Kitchen” star is a Tony nominee.`\
+https://nytimes.com/2024/05/08/theater/maleah-joi-moon-hells-kitchen-alicia-keys.html
 
-**Rolling Blackouts Hit Several Cities as Heat Wave Scorches Mexico**\
-`Cities were plunged into darkness as scorching temperatures strained the national energy grid.`\
-https://nytimes.com/2024/05/08/world/americas/mexico-blackout-heat-wave.html
+**The Constant Work to Keep a Family Connected Has a Name**\
+`“Kinkeeping” plays a crucial role in a family’s health and well-being, and it’s still predominantly done by women.`\
+https://nytimes.com/2024/05/08/well/family/kinkeeping-families.html
 
-**The Knicks Are Finally Good Again. And New York City Loves Them for It.**\
-`Fifty years since the Knicks last won a championship, a freshly promising team led by star point guard Jalen Brunson has captivated their hometown.`\
-https://nytimes.com/2024/05/08/nyregion/the-knicks-are-finally-good-again-and-new-york-city-loves-them-for-it.html
+**The Teenage Witches Are Growing Up**\
+`New books by H.A. Clarke, Robert Jackson Bennett and Micaiah Johnson.`\
+https://nytimes.com/2024/05/08/books/review/clarke-bennett-johnson.html
 
-**Cicadas for Dinner**\
-`Would you eat a cicada — or any other type of bug? If so, how would you like it cooked?`\
-https://nytimes.com/2024/05/08/learning/cicadas-for-dinner.html
+**Billions in Chips Grants Are Expected to Fuel Industry Growth, Report Finds**\
+`The United States will triple its domestic chip manufacturing capacity by 2032, the largest increase in the world, according to a report from the Semiconductor Industry Association.`\
+https://nytimes.com/2024/05/08/us/politics/chips-grants-fuel-industry-growth.html
 
-**Today’s Wordle Review No. 1,054**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/08/crosswords/wordle-review.html
+**A Piano From the Titanic’s Sister Ship Awaits Its Next Audience**\
+`A gilt-trimmed upright Steinway piano commissioned in 1912 for the ocean liner Olympic is on dry land and ready to be heard again.`\
+https://nytimes.com/2024/05/08/style/titanic-piano.html
 
-**N.Y. Prisons Holding Mentally Ill People in Solitary, Lawsuit Says**\
-`A complaint filed by the Legal Aid Society and others accuses the state prison system of holding mentally ill and disabled people in isolation despite a law against the practice.`\
-https://nytimes.com/2024/05/08/nyregion/ny-prisons-solitary-confinement.html
+**A Serene Oasis for Making Music**\
+`Aaron Dessner’s Long Pond recording studio breaks a lot of design rules. It’s why musicians like Taylor Swift have put it on the map.`\
+https://nytimes.com/2024/05/08/style/long-pond-studio-hudson-valley.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/05/08/crosswords/spelling-bee-forum.html
+**A Star Is Born. She Looks a Bit Like Amy Winehouse.**\
+`Marisa Abela was not widely known before being cast as the troubled singer-songwriter in “Back to Black.” That’s over now.`\
+https://nytimes.com/2024/05/08/style/marisa-abela-amy-winehouse-back-to-black.html
 
-**The Connections Companion No. 332**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/08/crosswords/connections-companion.html
+**Close Friends, Competing for Coveted Olympic Spots. Who Would Make It?**\
+`Conner Mantz and Clayton Young had run side by side for more than 10,000 miles. Both vied for a place in the marathon at the Paris Games.`\
+https://nytimes.com/2024/05/08/well/live/clayton-young-conner-mantz-paris-olympics.html
 
-**Word of the Day: accolade**\
-`This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/05/08/learning/word-of-the-day-accolade.html
+**France Says It Built the Olympics Safely. Migrant Workers Don’t Count.**\
+`Undocumented workers played a larger and more dangerous role in delivering the Games than the Macron administration acknowledges.`\
+https://nytimes.com/2024/05/08/world/europe/olympics-france-migrant-labor.html
 
