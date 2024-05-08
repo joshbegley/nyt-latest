@@ -1,3 +1,7 @@
+**Why Did Camille Charrière Pick a Fight With Kim Kardashian?**\
+`A fashion influencer stirred things up — not necessarily in a good way — by comparing her work to a collection by Skims. She’d rather talk about sustainability.`\
+https://nytimes.com/2024/05/08/style/camille-charriere-kim-kardashian-skims.html
+
 **In Combative Hearing, New York School Chief Turns Tables on Republicans**\
 `Under aggressive, rapid-fire questioning, David C. Banks, the chancellor of New York City schools, pushed back hard on accusations that the district had allowed antisemitism to fester.`\
 https://nytimes.com/2024/05/08/nyregion/banks-responses-combative-hearing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/08/opinion/trump-gag-order.html
 **Tim Scott Fund-Raiser Includes Trump-Resistant Donors as V.P. Race Heats Up**\
 `The South Carolina senator is said to be high on Donald Trump’s list of potential running mates, and his fund-raising ability could lift his chances of being selected.`\
 https://nytimes.com/2024/05/08/us/politics/tim-scott-trump-fundraiser.html
-
-**What’s in Our Queue? ‘Ripley’ and More**\
-`I’m a movie critic at The New York Times, reviewing new releases and writing about broader film trends. Here are five things I’ve enjoyed recently.`\
-https://nytimes.com/interactive/2024/05/08/arts/editors-recommendations-ripley.html
 
