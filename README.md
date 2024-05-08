@@ -1,3 +1,11 @@
+**When There’s Nowhere for Your Children to Be Safe**\
+`The near-impossible challenge of parenting an adult with severe mental illness.`\
+https://nytimes.com/2024/05/08/opinion/adult-children-mental-illness.html
+
+**Should I Push My Husband to Ask for More of His Mother’s Estate?**\
+`When a woman tries to remedy a relative’s unequal generosity to her children using her own estate, her daughter-in-law wonders whether her husband is being shortchanged.`\
+https://nytimes.com/2024/05/08/style/in-laws-estate-inheritance.html
+
 **More Storms and Tornadoes Expected to Threaten Eastern U.S.**\
 `Severe weather over an expansive area including Tennessee, Illinois and Missouri was expected to bring threats of tornadoes, large hail and damaging winds.`\
 https://nytimes.com/2024/05/08/us/tornadoes-storms-missouri-illinois-tennessee.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/08/world/europe/russia-ukraine-power-plants-attack.h
 **An Overlooked War**\
 `In Myanmar, poets, doctors and lawyers have traded life in the cities for jungle warfare.`\
 https://nytimes.com/2024/05/08/briefing/myanmar-civil-war.html
-
-**Kim Ki-Nam, Chief Propagandist in North Korea for Decades, Dies at 94**\
-`Mr. Kim, who served under all three generations of the country’s ruling family, was likened to Joseph Goebbels, Nazi Germany’s propaganda minister.`\
-https://nytimes.com/2024/05/08/world/asia/north-korea-propagandist-goebbels.html
-
-**A Paused Arms Shipment to Israel, and R.F.K. Jr.’s Health Record**\
-`Plus, Stormy Daniels unfiltered.`\
-https://nytimes.com/2024/05/08/podcasts/israel-arms-rfk-jr-brain-parasite.html
 
