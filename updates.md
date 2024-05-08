@@ -1,3 +1,11 @@
+**Tim Scott Fund-Raiser Includes Trump-Resistant Donors as V.P. Race Heats Up**\
+`The South Carolina senator is said to be high on Donald Trump’s list of potential running mates, and his fund-raising ability could lift his chances of being selected.`\
+https://nytimes.com/2024/05/08/us/politics/tim-scott-trump-fundraiser.html
+
+**What’s in Our Queue? ‘Ripley’ and More**\
+`I’m a movie critic at The New York Times, reviewing new releases and writing about broader film trends. Here are five things I’ve enjoyed recently.`\
+https://nytimes.com/interactive/2024/05/08/arts/editors-recommendations-ripley.html
+
 **The Tawdry Decade of Trump Could Desensitize Any Juror**\
 `If everything is just a tabloid joke, can Trump be found guilty of a real crime?`\
 https://nytimes.com/2024/05/08/opinion/the-tawdry-decade-of-trump-could-desensitize-any-juror.html
