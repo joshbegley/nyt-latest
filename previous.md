@@ -1,3 +1,23 @@
+**César Luis Menotti, Who Coached Argentina to a World Cup, Dies at 85**\
+`He led the national team to a championship in 1978 but was convinced that it didn’t get the recognition it deserved in the shadow of the country’s dictatorship.`\
+https://nytimes.com/2024/05/08/sports/soccer/cesar-luis-menotti-dead.html
+
+**Barbara Stauffacher Solomon, Pioneer of Supergraphics, Dies at 95**\
+`Trained as a ballet dancer, painter and graphic designer, she was at the forefront of a movement that upended design and architecture with bold graphics.`\
+https://nytimes.com/2024/05/08/arts/design/barbara-stauffacher-solomon-dead.html
+
+**Turning Point or Breaking Point? Biden’s Pause on Weapons Tests Ties to Israel**\
+`President Biden hopes the decision to withhold the delivery of 3,500 bombs will prompt Israel to change course in its war in Gaza.`\
+https://nytimes.com/2024/05/08/us/politics/biden-bombs-israel.html
+
+**Greene Moves to Oust Johnson, Teeing Up Another Historic Vote**\
+`The right-wing Republican from Georgia made her long-threatened move despite little chance of success in removing the speaker, given that Democrats have said they would work with the G.O.P. to block it.`\
+https://nytimes.com/2024/05/08/us/politics/greene-johnson-vacate.html
+
+**Miss Teen USA Resigns From Her Post, Following Miss USA**\
+`UmaSofia Srivastava, who won the title in September while representing New Jersey, said that her views no longer fully aligned with those of the organization.`\
+https://nytimes.com/2024/05/08/us/miss-teen-usa-resign-umasofia-srivastava.html
+
 **Thursday Briefing: Biden Pressures Israel**\
 `Also, the U.S. and China held climate talks.`\
 https://nytimes.com/2024/05/08/world/asia/biden-israel-rafah-china-asia.html
@@ -17,24 +37,4 @@ https://nytimes.com/video/us/100000009458677/george-washington-university-protes
 **Pete McCloskey, Republican Who Tried to Unseat Nixon, Is Dead at 96**\
 `A liberal, antiwar California congressman, he had defeated Shirley Temple Black in a special election before launching a long-shot bid for the 1972 G.O.P. nomination.`\
 https://nytimes.com/2024/05/08/us/politics/pete-mccloskey-dead.html
-
-**Suspect in Laken Riley’s Killing Indicted on Murder and Other Charges**\
-`The suspect is an undocumented immigrant from Venezuela. The murder of Ms. Riley, a nursing student whose body was found on the University of Georgia campus, became a political flashpoint.`\
-https://nytimes.com/2024/05/08/us/laken-riley-uga-suspect-indicted.html
-
-**Houston Police Chief Departs Amid Inquiry Into Suspended Cases**\
-`The abrupt retirement of Chief Troy Finner followed months of scrutiny into 260,000 crime reports, including for sexual assault, that were suspended for a “lack of resources.”`\
-https://nytimes.com/2024/05/08/us/houston-police-chief-troy-finner.html
-
-**House Republicans Clash With Leaders of Public Schools Over Antisemitism Claims**\
-`Politicians said educators had not done enough. But the New York chancellor said members were trying to elicit “gotcha moments” rather than stop antisemitism.`\
-https://nytimes.com/2024/05/08/us/house-gop-public-school-leaders-antisemitism.html
-
-**Ukraine’s Parliament Passes Bill Allowing Some Convicts to Serve in the Army**\
-`The measure, which must still be signed into law, echoes a practice used by Russia, which has drafted tens of thousands of inmates into the war.`\
-https://nytimes.com/2024/05/08/world/europe/ukraines-convicts-army.html
-
-**Israel’s Incursion Into Rafah Could Be a Costly Mistake**\
-`Judging by the war’s conduct to date, it’s more likely that in the end, the operation will do more damage to Israel.`\
-https://nytimes.com/2024/05/08/opinion/israel-incursion-rafah-hamas-netanhyahu.html
 

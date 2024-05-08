@@ -1,3 +1,23 @@
+**César Luis Menotti, Who Coached Argentina to a World Cup, Dies at 85**\
+`He led the national team to a championship in 1978 but was convinced that it didn’t get the recognition it deserved in the shadow of the country’s dictatorship.`\
+https://nytimes.com/2024/05/08/sports/soccer/cesar-luis-menotti-dead.html
+
+**Barbara Stauffacher Solomon, Pioneer of Supergraphics, Dies at 95**\
+`Trained as a ballet dancer, painter and graphic designer, she was at the forefront of a movement that upended design and architecture with bold graphics.`\
+https://nytimes.com/2024/05/08/arts/design/barbara-stauffacher-solomon-dead.html
+
+**Turning Point or Breaking Point? Biden’s Pause on Weapons Tests Ties to Israel**\
+`President Biden hopes the decision to withhold the delivery of 3,500 bombs will prompt Israel to change course in its war in Gaza.`\
+https://nytimes.com/2024/05/08/us/politics/biden-bombs-israel.html
+
+**Greene Moves to Oust Johnson, Teeing Up Another Historic Vote**\
+`The right-wing Republican from Georgia made her long-threatened move despite little chance of success in removing the speaker, given that Democrats have said they would work with the G.O.P. to block it.`\
+https://nytimes.com/2024/05/08/us/politics/greene-johnson-vacate.html
+
+**Miss Teen USA Resigns From Her Post, Following Miss USA**\
+`UmaSofia Srivastava, who won the title in September while representing New Jersey, said that her views no longer fully aligned with those of the organization.`\
+https://nytimes.com/2024/05/08/us/miss-teen-usa-resign-umasofia-srivastava.html
+
 **Suspect in Laken Riley’s Killing Indicted on Murder and Other Charges**\
 `The suspect is an undocumented immigrant from Venezuela. The murder of Ms. Riley, a nursing student whose body was found on the University of Georgia campus, became a political flashpoint.`\
 https://nytimes.com/2024/05/08/us/laken-riley-uga-suspect-indicted.html
