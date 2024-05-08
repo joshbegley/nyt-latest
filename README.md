@@ -1,3 +1,7 @@
+**The U.S. Increased Its Pressure on Israel to Reach a Truce**\
+`Also, Biden and Harris hit the campaign trail. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/05/08/briefing/us-israel-weapons-biden-harris-campaign.html
+
 **Betye Saar Remains Guided by the Spirit**\
 `The 97-year-old artist’s newest works reflect her decades-long interest in cultural artifacts and self-emancipation.`\
 https://nytimes.com/2024/05/08/t-magazine/betye-saar-huntington-roberts-projects.html
@@ -18,8 +22,8 @@ https://nytimes.com/2024/05/08/arts/design/barbara-stauffacher-solomon-dead.html
 `President Biden hopes the decision to withhold the delivery of 3,500 bombs will prompt Israel to change course in its war in Gaza.`\
 https://nytimes.com/2024/05/08/us/politics/biden-bombs-israel.html
 
-**Greene Moves to Oust Johnson, Teeing Up Another Historic Vote**\
-`The right-wing Republican from Georgia made her long-threatened move despite little chance of success in removing the speaker, given that Democrats have said they would work with the G.O.P. to block it.`\
+**Johnson Survives Greene’s Ouster Attempt as Democrats Join G.O.P. to Kill It**\
+`Republicans and Democrats banded together to block a motion by the right-wing Georgia congresswoman to remove the speaker.`\
 https://nytimes.com/2024/05/08/us/politics/greene-johnson-vacate.html
 
 **Miss Teen USA Resigns From Her Post, Following Miss USA**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/08/world/asia/biden-israel-rafah-china-asia.html
 **Most Wrongful Death Lawsuits Tied to Astroworld Festival Are Settled**\
 `The rapper Travis Scott and the concert promoter Live Nation faced 10 suits after the 2021 tragedy. One case from the family of a 9-year-old victim is pending.`\
 https://nytimes.com/2024/05/08/arts/music/astroworld-settlements-live-nation-travis-scott.html
-
-**Biden Pressures Israel to Reach a Cease-Fire in Gaza, Straining Ties**\
-`The president’s threat to withhold some weapons unless the Israelis also limit civilian casualties and increase humanitarian aid has widened cracks in the relationship.`\
-https://nytimes.com/2024/05/08/world/middleeast/israel-hamas-rafah-ceasefire.html
 
