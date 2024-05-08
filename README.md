@@ -23,7 +23,7 @@ https://nytimes.com/2024/05/08/opinion/iran-israel-middle-east.html
 https://nytimes.com/2024/05/08/arts/television/ian-gelder-dead.html
 
 **Using Cartoonish Accents, J.F.K.’s Grandson Insults and Mocks Robert F. Kennedy Jr.**\
-`In an escalation of the family feud, the son of Caroline Kennedy suggested that his cousin, the presidential candidate, is on steroids, not too smart and a liar.`\
+`In an escalation of the family feud, the son of Caroline Kennedy portrayed heavily accented characters who suggested that his cousin, the presidential candidate, was on steroids, not too smart and a liar.`\
 https://nytimes.com/2024/05/08/us/politics/rfk-jr-jack-schlossberg.html
 
 **Wednesday Briefing**\
