@@ -1,3 +1,15 @@
+**Pete McCloskey, Republican Who Tried to Unseat Nixon, Is Dead at 96**\
+`A liberal, antiwar California congressman, he had defeated Shirley Temple Black in a special election before launching a long-shot bid for the 1972 G.O.P. nomination.`\
+https://nytimes.com/2024/05/08/us/politics/pete-mccloskey-dead.html
+
+**Suspect in Laken Riley’s Killing Indicted on Murder and Other Charges**\
+`The suspect is an undocumented immigrant from Venezuela. The murder of Ms. Riley, a nursing student whose body was found on the University of Georgia campus, became a political flashpoint.`\
+https://nytimes.com/2024/05/08/us/laken-riley-suspect-indicted.html
+
+**Houston Police Chief Departs Amid Inquiry Into Suspended Cases**\
+`The abrupt retirement of Chief Troy Finner followed months of scrutiny into 260,000 crime reports, including for sexual assault, that were suspended for a “lack of resources.”`\
+https://nytimes.com/2024/05/08/us/houston-police-chief-troy-finner.html
+
 **House Republicans Clash With Leaders of Public Schools Over Antisemitism Claims**\
 `Politicians said educators had not done enough. But the New York chancellor said members were trying to elicit “gotcha moments” rather than stop antisemitism.`\
 https://nytimes.com/2024/05/08/us/house-gop-public-school-leaders-antisemitism.html

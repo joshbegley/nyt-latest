@@ -1,3 +1,15 @@
+**Pete McCloskey, Republican Who Tried to Unseat Nixon, Is Dead at 96**\
+`A liberal, antiwar California congressman, he had defeated Shirley Temple Black in a special election before launching a long-shot bid for the 1972 G.O.P. nomination.`\
+https://nytimes.com/2024/05/08/us/politics/pete-mccloskey-dead.html
+
+**Suspect in Laken Riley’s Killing Indicted on Murder and Other Charges**\
+`The suspect is an undocumented immigrant from Venezuela. The murder of Ms. Riley, a nursing student whose body was found on the University of Georgia campus, became a political flashpoint.`\
+https://nytimes.com/2024/05/08/us/laken-riley-suspect-indicted.html
+
+**Houston Police Chief Departs Amid Inquiry Into Suspended Cases**\
+`The abrupt retirement of Chief Troy Finner followed months of scrutiny into 260,000 crime reports, including for sexual assault, that were suspended for a “lack of resources.”`\
+https://nytimes.com/2024/05/08/us/houston-police-chief-troy-finner.html
+
 **House Republicans Clash With Leaders of Public Schools Over Antisemitism Claims**\
 `Politicians said educators had not done enough. But the New York chancellor said members were trying to elicit “gotcha moments” rather than stop antisemitism.`\
 https://nytimes.com/2024/05/08/us/house-gop-public-school-leaders-antisemitism.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/08/nyregion/trump-hush-money-trial-key-moments.html
 **Tornadoes Are Coming in Bunches. Scientists Are Trying to Figure Out Why.**\
 `The number of tornadoes so far in the United States this year is just above average. But their distribution is changing.`\
 https://nytimes.com/2024/05/08/climate/tornadoes-cluster-climate-change.html
-
-**Britain to Expel Russian Defense Attaché and Close Some Diplomatic Sites**\
-`The British home secretary, James Cleverly, accused Russia’s foreign intelligence service of a pattern of “malign activity” in Britain and Europe.`\
-https://nytimes.com/2024/05/08/world/europe/britain-russia-defense-attache-moscow.html
-
-**Homeowners Who Planned to Demolish Marilyn Monroe House Sue Los Angeles**\
-`The owners of the property where the actress lived and died accuse the city of engaging in “backroom machinations” to landmark her home and save it from demolition.`\
-https://nytimes.com/2024/05/08/us/marilyn-monroe-house-lawsuit-los-angeles.html
-
-**Images of a Brazilian City Underwater**\
-`Torrential rains have caused one of Brazil’s worst floods in modern history, leaving at least 100 dead and nearly an entire state submerged.`\
-https://nytimes.com/2024/05/08/world/americas/brazil-flooding-photos.html
 
