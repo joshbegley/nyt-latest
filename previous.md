@@ -1,3 +1,7 @@
+**Biden Puts Arms Shipment to Israel on Hold Amid Dispute Over Rafah Attack**\
+`The United States withheld 3,500 bombs last week out of concern that they might be used in a major assault against the southern Gaza city over the objections of American officials.`\
+https://nytimes.com/2024/05/07/us/politics/israel-biden-arms.html
+
 **Quotation of the Day:Facing Labor Shortages, Japan Moves to Advance Working Women**\
 `Quotation of the Day for Wednesday, May 8, 2024.`\
 https://nytimes.com/2024/05/07/pageoneplus/quotation-of-the-dayfacing-labor-shortages-japan-moves-to-advance-working-women.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/05/07/nyregion/trump-hush-money-trial-trans
 **Body of Final Victim in Baltimore Bridge Collapse Is Found**\
 `The victim, José Mynor López, was a member of a work crew that had been filling potholes on the bridge when it was struck in March by a container ship.`\
 https://nytimes.com/2024/05/07/us/baltimore-bridge-victim-body-recovered.html
-
-**A Land Artist’s Work Evades Demolition**\
-`A federal judge granted a temporary restraining order protecting a work by Mary Miss. A Des Moines museum wanted to destroy it, citing safety concerns.`\
-https://nytimes.com/2024/05/07/arts/design/temporary-injunction-iowa-artwork.html
 

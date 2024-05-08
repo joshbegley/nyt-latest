@@ -1,3 +1,7 @@
+**Biden Puts Arms Shipment to Israel on Hold Amid Dispute Over Rafah Attack**\
+`The United States withheld 3,500 bombs last week out of concern that they might be used in a major assault against the southern Gaza city over the objections of American officials.`\
+https://nytimes.com/2024/05/07/us/politics/israel-biden-arms.html
+
 **Quotation of the Day:Facing Labor Shortages, Japan Moves to Advance Working Women**\
 `Quotation of the Day for Wednesday, May 8, 2024.`\
 https://nytimes.com/2024/05/07/pageoneplus/quotation-of-the-dayfacing-labor-shortages-japan-moves-to-advance-working-women.html
