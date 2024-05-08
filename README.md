@@ -1,7 +1,3 @@
-**Apple’s New iPad Ad Leaves Its Creative Audience … Flat**\
-`An ad meant to show how the updated device can do many things has become a metaphor for a community’s fears of the technology industry.`\
-https://nytimes.com/2024/05/08/business/apple-ipad-crush-ad.html
-
 **2 Sentenced to Decades in Prison in 1-Year-Old Brooklyn Boy’s Killing**\
 `Davell Gardner was in his stroller at a nighttime cookout in July 2020 when he was hit by a stray bullet fired amid a bloody gang rivalry, prosecutors said.`\
 https://nytimes.com/2024/05/08/nyregion/davell-gardner-shooting-brooklyn.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/05/08/opinion/biden-young-voters-gaza.html
 **Disney, Hulu and Max Streaming Bundle Will Soon Become Available**\
 `The offering from Disney and Warner Bros. Discovery shows how rival companies are willing to work together to navigate an uncertain entertainment landscape.`\
 https://nytimes.com/2024/05/08/business/media/disney-plus-max-streaming-bundle.html
+
+**‘Someone’s Going to End Up Dead’: Settlements Over Fatal Astroworld Concert**\
+`A trial had been set to hear evidence that organizers of a 2021 Travis Scott concert knew the crowd was too large and ignored pleas to stop it as 10 people were crushed.`\
+https://nytimes.com/2024/05/08/us/astroworld-travis-scott-concert-deaths.html
 
