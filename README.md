@@ -1,3 +1,27 @@
+**The Happiness Gap Between Left and Right Isn’t Closing**\
+`Why is it that a substantial body of social science research finds that conservatives are happier than liberals?`\
+https://nytimes.com/2024/05/08/opinion/conservatives-liberals-depression-anxiety.html
+
+**Activist Investor Seeks to Force Out Norfolk Southern’s Management**\
+`A year after a derailment in Ohio raised questions about rail safety, an investment firm is seeking to install new management in an effort to increase profits.`\
+https://nytimes.com/2024/05/08/business/norfolk-southern-activist-investor.html
+
+**Was the 401(k) a Mistake?**\
+`How an obscure, 45-year old tax change transformed retirement and left so many Americans out in the cold.`\
+https://nytimes.com/2024/05/08/magazine/401k-retirement-crisis.html
+
+**How the New York City Chancellor Prepared for a Congressional Grilling**\
+`As David C. Banks prepares to testify about antisemitism in the New York City schools, he said he wasn’t intimidated by congressional Republicans.`\
+https://nytimes.com/2024/05/08/us/nyc-chancellor-prepared-congressional-hearing.html
+
+**Three Reasons the Campus Protests Are Part of the Problem**\
+`I don’t think the protests are antisemitic. But they undercut the only fair and just solution to the war.`\
+https://nytimes.com/2024/05/08/opinion/campus-protests-gaza.html
+
+**What Amazes You Most About Animals?**\
+`Cheetahs can reach speeds of 58 m.p.h. or more. Bats use echolocation to fly in the dark. What do you find extraordinary about animals?`\
+https://nytimes.com/2024/05/08/learning/what-amazes-you-most-about-animals.html
+
 **Why Having Kennedy on the Ballot in Texas May Worry Ted Cruz**\
 `Robert F. Kennedy Jr., who expects to be on the ballot in Texas, could prove to be a wild card in the U.S. Senate race, which Ted Cruz had appeared likely to win.`\
 https://nytimes.com/2024/05/08/us/robert-kennedy-texas-cruz.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/05/08/opinion/pope-francis-catholic-church.html
 **House Republicans to Examine K-12 Schools in Latest Antisemitism Hearing**\
 `After focusing on universities, a House subcommittee will question school district leaders from New York City, Berkeley, Calif., and Montgomery County in Maryland.`\
 https://nytimes.com/2024/05/08/us/antisemitism-hearing-house-schools.html
-
-**Balloons Harm Wildlife. Florida Is Set to Ban Their Release**\
-`In an effort to curb microplastics and marine pollution, lawmakers in the Sunshine State voted overwhelmingly to make it illegal to intentionally let a balloon fly away.`\
-https://nytimes.com/2024/05/08/climate/florida-balloons-outdoors-ban.html
-
-**Second Democrat Emerges to Cloud Mayor Adams’s Path to Re-Election**\
-`Zellnor Myrie, a left-leaning state senator from Brooklyn, is moving to run against Mayor Eric Adams in the Democratic primary next June.`\
-https://nytimes.com/2024/05/08/nyregion/zellnor-myrie-nyc-mayor-election.html
-
-**$900,000 Homes in Illinois, North Carolina and Arizona**\
-`A Frank Lloyd Wright house in Wilmette, an 1897 Italianate home in Wilmington and a renovated midcentury house in Scottsdale.`\
-https://nytimes.com/2024/05/08/realestate/900000-dollar-homes-illinois-north-carolina-arizona.html
-
-**An Abandoned School Becomes a Canvas for Art Galleries**\
-`Six galleries bought a 22-acre property in upstate New York that they are calling the Campus. Its first exhibition begins June 29.`\
-https://nytimes.com/2024/05/08/arts/design/campus-galleries-opening-upstate.html
-
-**He Knows It’s Important to Admit Mistakes. He’s Made Many.**\
-`In an age of judgmentalism, Glenn Loury holds himself to account.`\
-https://nytimes.com/2024/05/08/opinion/glenn-loury-book-conservative.html
-
-**R.F.K. Jr. Says Doctors Found a Dead Worm in His Brain**\
-`The presidential candidate has faced previously undisclosed health issues, including a parasite that he said ate part of his brain.`\
-https://nytimes.com/2024/05/08/us/rfk-jr-brain-health-memory-loss.html
 
