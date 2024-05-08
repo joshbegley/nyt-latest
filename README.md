@@ -1,3 +1,7 @@
+**Cartoon Frames**\
+`Michael Schlossberg sugarcoats the truth.`\
+https://nytimes.com/2024/05/07/crosswords/daily-puzzle-2024-05-08.html
+
 **For American Jews, Biden’s Speech on Antisemitism Offers Recognition and Healing**\
 `While his message resonated with many Jewish leaders, the president’s remarks drew criticism from Republicans and supporters of Palestinians on the left.`\
 https://nytimes.com/2024/05/07/us/politics/biden-antisemitism-speech-reactions.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/people-are
 **Senator Mike Braun Clinches G.O.P. Nomination for Indiana Governor**\
 `Mr. Braun, a first-term senator, will enter the general election as the strong favorite in his reliably conservative state.`\
 https://nytimes.com/2024/05/07/us/indiana-governor-primary.html
-
-**When These Snakes Play Dead, Soiling Themselves Is Part of the Act**\
-`Dice snakes found on an island in southeastern Europe fully commit themselves to the role of ex-reptile.`\
-https://nytimes.com/2024/05/07/science/snakes-playing-dead.html
 
