@@ -1,3 +1,7 @@
+**Former Soldier Convicted in Killing of Pregnant Army Private Two Decades Ago**\
+`A federal jury found the former soldier, Shannon L. Wilkerson, 43, guilty of second-degree murder in the death of Pvt. Amanda Gonzales on Nov. 3, 2001.`\
+https://nytimes.com/2024/05/07/us/amanda-gonzales-murder-army-soldier.html
+
 **Cartoon Frames**\
 `Michael Schlossberg sugarcoats the truth.`\
 https://nytimes.com/2024/05/07/crosswords/daily-puzzle-2024-05-08.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/07/arts/design/temporary-injunction-iowa-artwork.htm
 **‘People are going to continue to die’: Israel’s operation in Rafah has left doctors scrambling.**\
 `By Anushka Patil and Iyad Abuheweila`\
 https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/people-are-going-to-continue-to-die-israels-operation-in-rafah-has-left-doctors-scrambling
-
-**Senator Mike Braun Clinches G.O.P. Nomination for Indiana Governor**\
-`Mr. Braun, a first-term senator, will enter the general election as the strong favorite in his reliably conservative state.`\
-https://nytimes.com/2024/05/07/us/indiana-governor-primary.html
 
