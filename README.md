@@ -1,3 +1,7 @@
+**More Storms and Tornadoes Expected to Threaten Eastern U.S.**\
+`Severe weather over an expansive area including Tennessee, Illinois and Missouri was expected to bring threats of tornadoes, large hail and damaging winds.`\
+https://nytimes.com/2024/05/08/us/tornadoes-storms-missouri-illinois-tennessee.html
+
 **Bill Hwang, Whose Firm Archegos Collapsed in 2021, Is About to Go on Trial**\
 `The hedge fund is accused of borrowing money from banks to buy stocks.`\
 https://nytimes.com/2024/05/08/business/bill-hwang-archegos-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/08/world/asia/north-korea-propagandist-goebbels.html
 **A Paused Arms Shipment to Israel, and R.F.K. Jr.’s Health Record**\
 `Plus, Stormy Daniels unfiltered.`\
 https://nytimes.com/2024/05/08/podcasts/israel-arms-rfk-jr-brain-parasite.html
-
-**A Plan to Remake the Middle East**\
-`While talks for a cease-fire between Israel and Hamas continue, another set of negotiations is happening behind the scenes.`\
-https://nytimes.com/2024/05/08/podcasts/the-daily/israel-gaza-middle-east-plan.html
 
