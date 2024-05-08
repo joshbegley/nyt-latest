@@ -1,3 +1,11 @@
+**The Campus Protests Signal the End of an Era for the Democrats**\
+`The alliance of the elite establishment and progressives is showing signs of fraying.`\
+https://nytimes.com/2024/05/08/opinion/campus-protest-election-gaza-democrats.html
+
+**Steve Albini, Influential Producer of ’90s Rock and Beyond, Dies at 61**\
+`A musician and audio engineer, he helped define the sound of alternative rock while becoming an outspoken critic of the music industry.`\
+https://nytimes.com/2024/05/08/arts/music/steve-albini-dead.html
+
 **Police Break Up Protest Encampment at George Washington University**\
 `The action, with 33 arrests, came a few hours before Mayor Muriel Bowers of Washington was scheduled to testify on Capitol Hill about the city’s handling of the protest. The hearing was canceled.`\
 https://nytimes.com/2024/05/08/us/george-washington-university-pro-palestinian-protest.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/elis
 **Popcast (Deluxe): How Kendrick Lamar Out-Drake’d Drake**\
 `Breaking down the heavyweight rap battle between Lamar and Drake after a weekend of dramatic diss tracks.`\
 https://nytimes.com/2024/05/08/arts/music/kendrick-lamar-drake-beef-popcast.html
-
-**Thailand Prime Minister Seeks to Criminalize Weed in Reversal**\
-`Thailand had decriminalized marijuana in 2022, but the country’s new government is pushing for stricter drug laws.`\
-https://nytimes.com/2024/05/08/world/asia/thailand-cannabis-narcotic-law.html
-
-**‘Bodkin’ Review: Crime in a Small Town? Send in the Podcasters**\
-`This Netflix series is about a true-crime podcast but plays more like a mopey murder show.`\
-https://nytimes.com/2024/05/08/arts/television/bodkin-review.html
 
