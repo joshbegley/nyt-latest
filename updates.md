@@ -1,3 +1,7 @@
+**Cartoon Frames**\
+`Michael Schlossberg sugarcoats the truth.`\
+https://nytimes.com/2024/05/07/crosswords/daily-puzzle-2024-05-08.html
+
 **For American Jews, Biden’s Speech on Antisemitism Offers Recognition and Healing**\
 `While his message resonated with many Jewish leaders, the president’s remarks drew criticism from Republicans and supporters of Palestinians on the left.`\
 https://nytimes.com/2024/05/07/us/politics/biden-antisemitism-speech-reactions.html
