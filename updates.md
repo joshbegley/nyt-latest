@@ -1,3 +1,7 @@
+**The Tawdry Decade of Trump Could Desensitize Any Juror**\
+`If everything is just a tabloid joke, can Trump be found guilty of a real crime?`\
+https://nytimes.com/2024/05/08/opinion/the-tawdry-decade-of-trump-could-desensitize-any-juror.html
+
 **AstraZeneca Is Withdrawing Its Covid Vaccine Worldwide, Citing Low Demand**\
 `The shot is no longer being manufactured or supplied, and it is no longer authorized for use in Europe.`\
 https://nytimes.com/2024/05/08/business/astrazeneca-withdraws-covid-vaccine.html
