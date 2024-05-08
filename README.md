@@ -1,3 +1,15 @@
+**AstraZeneca Is Withdrawing Its Covid Vaccine Worldwide, Citing Low Demand**\
+`The shot is no longer being manufactured or supplied, and it is no longer authorized for use in Europe.`\
+https://nytimes.com/2024/05/08/business/astrazeneca-withdraws-covid-vaccine.html
+
+**E.U. employees in Brussels demand a cease-fire and protest the bloc’s stance on the war.**\
+`By Sarah Hurtes`\
+https://nytimes.com/live/2024/05/08/world/israel-gaza-war-hamas-rafah/eu-employees-in-brussels-demand-a-cease-fire-and-protest-the-blocs-stance-on-the-war
+
+**Hot Honey Has Us in Its Sticky Grip**\
+`Once little more than a lively garnish for pizzas, the sweet-and-spicy condiment has squeezed its way into ice creams, fast-casual bowls and espresso martinis.`\
+https://nytimes.com/2024/05/08/dining/hot-honey.html
+
 **The Campus Protests Signal the End of an Era for the Democrats**\
 `The alliance of the elite establishment and progressives is showing signs of fraying.`\
 https://nytimes.com/2024/05/08/opinion/campus-protest-election-gaza-democrats.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/what
 **Virginia Foxx’s Focus on Antisemitism on College Campuses Has Raised Her Profile**\
 `The House member from North Carolina attributes her blunt conservative politics to her pulled-herself-up-by-her-bootstraps life.`\
 https://nytimes.com/2024/05/08/us/virginia-foxx-antisemitism.html
-
-**A lawsuit in Brooklyn over antisemitism has raised many questions.**\
-`By Troy Closson`\
-https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/a-lawsuit-in-brooklyn-over-antisemitism-has-raised-many-questions
-
-**Elise Stefanik has gained widespread attention in recent antisemitism hearings.**\
-`By Nicholas Fandos`\
-https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/elise-stefanik-has-gained-widespread-attention-in-recent-antisemitism-hearings
-
-**Popcast (Deluxe): How Kendrick Lamar Out-Drake’d Drake**\
-`Breaking down the heavyweight rap battle between Lamar and Drake after a weekend of dramatic diss tracks.`\
-https://nytimes.com/2024/05/08/arts/music/kendrick-lamar-drake-beef-popcast.html
 
