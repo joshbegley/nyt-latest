@@ -1,3 +1,11 @@
+**In Combative Hearing, New York School Chief Turns Tables on Republicans**\
+`Under aggressive, rapid-fire questioning, David C. Banks, the chancellor of New York City schools, pushed back hard on accusations that the district had allowed antisemitism to fester.`\
+https://nytimes.com/2024/05/08/nyregion/banks-responses-combative-hearing.html
+
+**An Inside Look at the Student Takeover of Columbia’s Hamilton Hall**\
+`Maintenance workers had a firsthand view of how protesters seized the building, and wondered why the university failed to stop it.`\
+https://nytimes.com/2024/05/08/nyregion/columbia-hamilton-hall-protests.html
+
 **Milton Diamond, Sexologist and Advocate for Intersex Babies, Dies at 90**\
 `He pushed back against doctors who recommended surgery on infants born with ambiguous genitalia, arguing for acceptance of diversity.`\
 https://nytimes.com/2024/05/08/health/milton-diamond-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/08/us/politics/tim-scott-trump-fundraiser.html
 **What’s in Our Queue? ‘Ripley’ and More**\
 `I’m a movie critic at The New York Times, reviewing new releases and writing about broader film trends. Here are five things I’ve enjoyed recently.`\
 https://nytimes.com/interactive/2024/05/08/arts/editors-recommendations-ripley.html
-
-**The Tawdry Decade of Trump Could Desensitize Any Juror**\
-`If everything is just a tabloid joke, can Trump be found guilty of a real crime?`\
-https://nytimes.com/2024/05/08/opinion/the-tawdry-decade-of-trump-could-desensitize-any-juror.html
-
-**AstraZeneca Is Withdrawing Its Covid Vaccine Worldwide, Citing Low Demand**\
-`The shot is no longer being manufactured or supplied, and it is no longer authorized for use in Europe.`\
-https://nytimes.com/2024/05/08/business/astrazeneca-withdraws-covid-vaccine.html
 

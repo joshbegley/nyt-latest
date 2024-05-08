@@ -1,3 +1,11 @@
+**In Combative Hearing, New York School Chief Turns Tables on Republicans**\
+`Under aggressive, rapid-fire questioning, David C. Banks, the chancellor of New York City schools, pushed back hard on accusations that the district had allowed antisemitism to fester.`\
+https://nytimes.com/2024/05/08/nyregion/banks-responses-combative-hearing.html
+
+**An Inside Look at the Student Takeover of Columbia’s Hamilton Hall**\
+`Maintenance workers had a firsthand view of how protesters seized the building, and wondered why the university failed to stop it.`\
+https://nytimes.com/2024/05/08/nyregion/columbia-hamilton-hall-protests.html
+
 **Milton Diamond, Sexologist and Advocate for Intersex Babies, Dies at 90**\
 `He pushed back against doctors who recommended surgery on infants born with ambiguous genitalia, arguing for acceptance of diversity.`\
 https://nytimes.com/2024/05/08/health/milton-diamond-dead.html
