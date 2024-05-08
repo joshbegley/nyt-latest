@@ -1,3 +1,7 @@
+**New York Times Adds 210,000 Digital Subscribers in Quarter**\
+`Adjusted operating profit was $76.1 million, an increase of about 41 percent from a year earlier.`\
+https://nytimes.com/2024/05/08/business/media/new-york-times-earnings.html
+
 **Russia Hits Ukrainian Power Plants, Further Straining Energy System**\
 `The assault, a day after Vladimir V. Putin was sworn in for a fifth term as Russian president, is part of a wider campaign to cut off power to Ukraine’s civilians.`\
 https://nytimes.com/2024/05/08/world/europe/russia-ukraine-power-plants-attack.html
