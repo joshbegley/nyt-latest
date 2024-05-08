@@ -26,7 +26,7 @@ https://nytimes.com/2024/05/07/us/indiana-governor-primary.html
 `Dice snakes found on an island in southeastern Europe fully commit themselves to the role of ex-reptile.`\
 https://nytimes.com/2024/05/07/science/snakes-playing-dead.html
 
-**Stormy Daniels Delivers Intense Testimony in Trump’s Trial: 5 Takeaways**\
+**Stormy Daniels Delivers Intense Testimony in Trump’s Trial: 6 Takeaways**\
 `A long day on the stand put Ms. Daniels’s credibility to the test as defense lawyers challenged her motives.`\
 https://nytimes.com/2024/05/07/nyregion/stormy-daniels-trump-hush-money.html
 

@@ -1,3 +1,7 @@
+**Stormy Daniels Delivers Intense Testimony in Trump’s Trial: 6 Takeaways**\
+`A long day on the stand put Ms. Daniels’s credibility to the test as defense lawyers challenged her motives.`\
+https://nytimes.com/2024/05/07/nyregion/stormy-daniels-trump-hush-money.html
+
 **Canada Re-Criminalizes Public Drug Use in British Columbia**\
 `A province that was a global pioneer in harm reduction took a step back after a political backlash.`\
 https://nytimes.com/2024/05/07/world/canada/british-columbia-public-drug-use.html
