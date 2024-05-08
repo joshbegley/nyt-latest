@@ -1,3 +1,7 @@
+**Biden Pressures Israel to Reach a Cease-Fire in Gaza, Straining Ties**\
+`The president’s threat to withhold some weapons unless the Israelis also limit civilian casualties and increase humanitarian aid has widened cracks in the relationship.`\
+https://nytimes.com/2024/05/08/world/middleeast/israel-hamas-rafah-ceasefire.html
+
 **Police Use Pepper Spray on Protesters on G.W.U.’s Campus**\
 `Police officers arrested 33 pro-Palestinian protesters and cleared a tent encampment on the campus of George Washingon University.`\
 https://nytimes.com/video/us/100000009458677/george-washington-university-protest.html
