@@ -1,3 +1,15 @@
+**Israel’s Eurovision Entrant Faces Down Her Critics**\
+`Campaigners have unsuccessfully urged the Eurovision Song Contest to ban Eden Golan because of her country’s war in Gaza. “I won’t let anything break me,” she said.`\
+https://nytimes.com/2024/05/08/arts/music/eurovision-israel-eden-golan-hurricane.html
+
+**We’re Together. Just Not in Pictures.**\
+`A buzzy couple’s separate arrivals on the Met Gala red carpet offer a reminder of the value of a solo photo op.`\
+https://nytimes.com/2024/05/08/style/sabrina-carpenter-barry-keoghan-met-gala.html
+
+**In a Poem, Just Who Is ‘the Speaker,’ Anyway?**\
+`Critics and readers love the term, but it can be awfully slippery to pin down. That’s what makes it so fun to try.`\
+https://nytimes.com/2024/05/08/books/review/on-poetry-who-is-the-speaker.html
+
 **In Berkeley, anti-Israel lesson plans have stirred a debate.**\
 `By Dana Goldstein`\
 https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/in-berkeley-anti-israel-lesson-plans-have-stirred-a-debate
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/08/health/environment-climate-health.html
 **‘Kingdom of the Planet of the Apes’ Review: Hail, Caesar**\
 `The latest installment in an excellent series finds mythology turning into power.`\
 https://nytimes.com/2024/05/08/movies/kingdom-of-the-planet-of-the-apes-review.html
-
-**Checking in With an Airline Reporter**\
-`To cover the bustling world of aviation, Christine Chung considers the plights and predicaments of readers.`\
-https://nytimes.com/2024/05/08/insider/airline-beat-reporter.html
-
-**Four teachers were suspended at Montgomery County schools.**\
-`By Campbell Robertson`\
-https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/four-teachers-were-suspended-at-montgomery-county-schools
-
-**New York teachers have faced backlash over their response to the war.**\
-`By Troy Closson`\
-https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/new-york-teachers-have-faced-backlash-over-their-response-to-the-war
 
