@@ -1,3 +1,7 @@
+**Testifying in Congress can be a minefield. So why do it?**\
+`By Annie Karni`\
+https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/testifying-in-congress-can-be-a-minefield-so-why-do-it
+
 **How to Define ‘Antisemitism’ Is a Subject of Bitter Debate.**\
 `Activists, university officials and political leaders are deeply divided over what, precisely, constitutes antisemitism.`\
 https://nytimes.com/2024/05/08/us/antisemitism-definition-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/08/sports/judy-devlin-hashman-dead.html
 **TikTok’s Legal Bet on the First Amendment**\
 `The popular video-sharing app faces uncertain odds as it takes its fight to court to turn back a potential ban in the United States.`\
 https://nytimes.com/2024/05/08/business/dealbook/tiktok-lawsuit-first-amendment.html
-
-**A Cicada’s Guide to Periodical Romance**\
-`It may sound like a mosh pit out there. But to the participants, mating is a delicate, sonorous affair, fraught with potential missteps — and fungal zombies.`\
-https://nytimes.com/2024/05/08/science/periodical-cicadas-mating.html
 
