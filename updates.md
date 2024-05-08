@@ -1,3 +1,7 @@
+**Betye Saar Remains Guided by the Spirit**\
+`The 97-year-old artist’s newest works reflect her decades-long interest in cultural artifacts and self-emancipation.`\
+https://nytimes.com/2024/05/08/t-magazine/betye-saar-huntington-roberts-projects.html
+
 **But How Does the Worm Get in Your Brain?**\
 `And other questions about parasites.`\
 https://nytimes.com/2024/05/08/well/live/brain-worm-parasites-rfk-jr.html
