@@ -1,3 +1,11 @@
+**In Serbia, Xi Underlines Close Ties With Ally That Shares Wariness of U.S.**\
+`Visiting friendly leaders in Eastern Europe, the Chinese president commemorated the 25th anniversary of a misdirected U.S. airstrike that destroyed China’s embassy in Belgrade.`\
+https://nytimes.com/2024/05/08/world/europe/xi-jinping-china-serbia-visit.html
+
+**Who is Enikia Ford Morthel?**\
+`By Heather Knight`\
+https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/who-is-enikia-ford-morthel
+
 **Israel shrugs off a U.S. hold on an arms delivery, but some see a new fracture in ties.**\
 `By Damien Cave`\
 https://nytimes.com/live/2024/05/08/world/israel-gaza-war-hamas-rafah/israel-shrugs-off-a-us-hold-on-an-arms-delivery-but-some-see-a-new-fracture-in-ties
