@@ -1,3 +1,15 @@
+**Popcast (Deluxe): How Kendrick Lamar Out-Drake’d Drake**\
+`Breaking down the heavyweight rap battle between Lamar and Drake after a weekend of dramatic diss tracks.`\
+https://nytimes.com/2024/05/08/arts/music/kendrick-lamar-drake-beef-popcast.html
+
+**Thailand Prime Minister Seeks to Criminalize Weed in Reversal**\
+`Thailand had decriminalized marijuana in 2022, but the country’s new government is pushing for stricter drug laws.`\
+https://nytimes.com/2024/05/08/world/asia/thailand-cannabis-narcotic-law.html
+
+**‘Bodkin’ Review: Crime in a Small Town? Send in the Podcasters**\
+`This Netflix series is about a true-crime podcast but plays more like a mopey murder show.`\
+https://nytimes.com/2024/05/08/arts/television/bodkin-review.html
+
 **Israel’s Eurovision Entrant Faces Down Her Critics**\
 `Campaigners have unsuccessfully urged the Eurovision Song Contest to ban Eden Golan because of her country’s war in Gaza. “I won’t let anything break me,” she said.`\
 https://nytimes.com/2024/05/08/arts/music/eurovision-israel-eden-golan-hurricane.html

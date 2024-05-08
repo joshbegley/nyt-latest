@@ -1,3 +1,15 @@
+**Popcast (Deluxe): How Kendrick Lamar Out-Drake’d Drake**\
+`Breaking down the heavyweight rap battle between Lamar and Drake after a weekend of dramatic diss tracks.`\
+https://nytimes.com/2024/05/08/arts/music/kendrick-lamar-drake-beef-popcast.html
+
+**Thailand Prime Minister Seeks to Criminalize Weed in Reversal**\
+`Thailand had decriminalized marijuana in 2022, but the country’s new government is pushing for stricter drug laws.`\
+https://nytimes.com/2024/05/08/world/asia/thailand-cannabis-narcotic-law.html
+
+**‘Bodkin’ Review: Crime in a Small Town? Send in the Podcasters**\
+`This Netflix series is about a true-crime podcast but plays more like a mopey murder show.`\
+https://nytimes.com/2024/05/08/arts/television/bodkin-review.html
+
 **Israel’s Eurovision Entrant Faces Down Her Critics**\
 `Campaigners have unsuccessfully urged the Eurovision Song Contest to ban Eden Golan because of her country’s war in Gaza. “I won’t let anything break me,” she said.`\
 https://nytimes.com/2024/05/08/arts/music/eurovision-israel-eden-golan-hurricane.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/08/business/uber-earnings-first-quarter.html
 **Chicken So Good It Was Kept Secret**\
 `What to cook with the kids: shahi toast, salmon onigiri and the garlic-ginger chicken that was a Krishna family secret.`\
 https://nytimes.com/2024/05/08/dining/chicken-so-good-it-was-kept-secret.html
-
-**Google Unveils A.I. for Predicting Behavior of Human Molecules**\
-`The system, AlphaFold3, could accelerate efforts to understand the human body and fight disease.`\
-https://nytimes.com/2024/05/08/technology/google-ai-molecules-alphafold3.html
-
-**Environmental Changes Are Fueling Human, Animal and Plant Diseases, Study Finds**\
-`Biodiversity loss, global warming, pollution and the spread of invasive species are making infectious diseases more dangerous to organisms around the world.`\
-https://nytimes.com/2024/05/08/health/environment-climate-health.html
-
-**‘Kingdom of the Planet of the Apes’ Review: Hail, Caesar**\
-`The latest installment in an excellent series finds mythology turning into power.`\
-https://nytimes.com/2024/05/08/movies/kingdom-of-the-planet-of-the-apes-review.html
 
