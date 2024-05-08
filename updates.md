@@ -1,3 +1,7 @@
+**But How Does the Worm Get in Your Brain?**\
+`And other questions about parasites.`\
+https://nytimes.com/2024/05/08/well/live/brain-worm-parasites-rfk-jr.html
+
 **César Luis Menotti, Who Coached Argentina to a World Cup, Dies at 85**\
 `He led the national team to a championship in 1978 but was convinced that it didn’t get the recognition it deserved in the shadow of the country’s dictatorship.`\
 https://nytimes.com/2024/05/08/sports/soccer/cesar-luis-menotti-dead.html
