@@ -1,3 +1,15 @@
+**Biden Says the U.S. Will Not Supply Israel With Weapons to Attack Rafah**\
+`The president’s remarks underscore the growing rift between the United States and its closest Middle East ally over the war in Gaza.`\
+https://nytimes.com/2024/05/08/us/politics/biden-israel-weapons-rafah.html
+
+**‘If they go into Rafah, I’m not going to be supplying the weapons,’ Biden says.**\
+`By Reid J. Epstein`\
+https://nytimes.com/live/2024/05/08/world/israel-gaza-war-hamas-rafah/if-they-go-into-rafah-im-not-going-to-be-supplying-the-weapons-biden-says
+
+**Sunak to Urge University Leaders to Protect Jewish Students on Campus**\
+`Prime Minister Rishi Sunak will meet with a group of British university leaders on Thursday to discuss ways to tackle antisemitism, as pro-Palestinian protests on campuses spread.`\
+https://nytimes.com/2024/05/08/world/europe/sunak-uk-university-campus-protests.html
+
 **Sony and Apollo’s Plan for Paramount: Break It Up**\
 `CBS and other well-known properties would be sold if Sony and Apollo are able to buy Paramount. But the new owners would keep the movie studio.`\
 https://nytimes.com/2024/05/08/business/media/sony-apollo-paramount-plan.html
