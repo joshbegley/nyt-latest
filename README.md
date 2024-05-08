@@ -1,3 +1,7 @@
+**But How Does the Worm Get in Your Brain?**\
+`And other questions about parasites.`\
+https://nytimes.com/2024/05/08/well/live/brain-worm-parasites-rfk-jr.html
+
 **César Luis Menotti, Who Coached Argentina to a World Cup, Dies at 85**\
 `He led the national team to a championship in 1978 but was convinced that it didn’t get the recognition it deserved in the shadow of the country’s dictatorship.`\
 https://nytimes.com/2024/05/08/sports/soccer/cesar-luis-menotti-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/08/world/middleeast/israel-hamas-rafah-ceasefire.htm
 **Police Use Pepper Spray on Protesters on G.W.U.’s Campus**\
 `Police officers arrested 33 pro-Palestinian protesters and cleared a tent encampment on the campus of George Washingon University.`\
 https://nytimes.com/video/us/100000009458677/george-washington-university-protest.html
-
-**Pete McCloskey, Republican Who Tried to Unseat Nixon, Is Dead at 96**\
-`A liberal, antiwar California congressman, he had defeated Shirley Temple Black in a special election before launching a long-shot bid for the 1972 G.O.P. nomination.`\
-https://nytimes.com/2024/05/08/us/politics/pete-mccloskey-dead.html
 
