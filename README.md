@@ -1,3 +1,7 @@
+**Kai Cenat Resolves Union Square Melee Charges With Apology, Officials Say**\
+`The social media superstar known for marathon streaming sessions was charged with inciting a riot after a video game console giveaway erupted in mayhem last summer.`\
+https://nytimes.com/2024/05/07/nyregion/kai-cenat-union-square-charges.html
+
 **Stormy Daniels Tells Her Story of Sex With Trump**\
 `Stormy Daniels, the porn star at the center of former President Donald J. Trump’s criminal trial, testified about their encounter at a celebrity golf tournament in 2006.`\
 https://nytimes.com/video/nyregion/100000009451007/stormy-daniels-tells-her-story-of-sex-with-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/07/science/snakes-playing-dead.html
 **Stormy Daniels Delivers Intense Testimony in Trump’s Trial: 6 Takeaways**\
 `A long day on the stand put Ms. Daniels’s credibility to the test as defense lawyers challenged her motives.`\
 https://nytimes.com/2024/05/07/nyregion/stormy-daniels-trump-hush-money.html
-
-**Israeli Tanks Enter Rafah as Cease-Fire Talks Resume in Cairo**\
-`An Israeli incursion into the southern Gaza city did not appear to be the long-anticipated, full-scale invasion of the city, home to about a million displaced Palestinians.`\
-https://nytimes.com/2024/05/07/world/middleeast/israeli-rafah-gaza-ceasefire.html
 
