@@ -1,3 +1,7 @@
+**FTX Customers Poised to Recover All Funds Lost in Collapse**\
+`Bankruptcy lawyers for FTX said that customers of the cryptocurrency exchange were set to get all their money back, plus interest.`\
+https://nytimes.com/2024/05/08/business/ftx-bankruptcy-recovery.html
+
 **Corrections: May 8, 2024**\
 `Corrections that appeared in print on Wednesday, May 8, 2024.`\
 https://nytimes.com/2024/05/08/pageoneplus/corrections-may-8-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/07/pageoneplus/quotation-of-the-dayfacing-labor-shor
 **Former Soldier Convicted in Killing of Pregnant Army Private Two Decades Ago**\
 `A federal jury found the former soldier, Shannon L. Wilkerson, 43, guilty of second-degree murder in the death of Pvt. Amanda Gonzales on Nov. 3, 2001.`\
 https://nytimes.com/2024/05/07/us/amanda-gonzales-murder-army-soldier.html
-
-**Cartoon Frames**\
-`Michael Schlossberg sugarcoats the truth.`\
-https://nytimes.com/2024/05/07/crosswords/daily-puzzle-2024-05-08.html
 

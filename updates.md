@@ -1,3 +1,7 @@
+**FTX Customers Poised to Recover All Funds Lost in Collapse**\
+`Bankruptcy lawyers for FTX said that customers of the cryptocurrency exchange were set to get all their money back, plus interest.`\
+https://nytimes.com/2024/05/08/business/ftx-bankruptcy-recovery.html
+
 **Corrections: May 8, 2024**\
 `Corrections that appeared in print on Wednesday, May 8, 2024.`\
 https://nytimes.com/2024/05/08/pageoneplus/corrections-may-8-2024.html
