@@ -1,3 +1,11 @@
+**A lawsuit in Brooklyn over antisemitism has raised many questions.**\
+`By Troy Closson`\
+https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/a-lawsuit-in-brooklyn-over-antisemitism-has-raised-many-questions
+
+**Elise Stefanik has gained widespread attention in recent antisemitism hearings.**\
+`By Nicholas Fandos`\
+https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/elise-stefanik-has-gained-widespread-attention-in-recent-antisemitism-hearings
+
 **Popcast (Deluxe): How Kendrick Lamar Out-Drake’d Drake**\
 `Breaking down the heavyweight rap battle between Lamar and Drake after a weekend of dramatic diss tracks.`\
 https://nytimes.com/2024/05/08/arts/music/kendrick-lamar-drake-beef-popcast.html
