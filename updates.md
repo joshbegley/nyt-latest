@@ -1,3 +1,7 @@
+**An immigrant from Guatemala, Karla Silvestre has experience in education and local government.**\
+`By Campbell Robertson`\
+https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/an-immigrant-from-guatemala-karla-silvestre-has-experience-in-education-and-local-government
+
 **David Banks has an extensive education portfolio, and an activist spirit.**\
 `By Troy Closson`\
 https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/david-banks-has-an-extensive-education-portfolio-and-an-activist-spirit
