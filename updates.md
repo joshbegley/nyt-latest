@@ -1,3 +1,7 @@
+**Israel shrugs off a U.S. hold on an arms delivery, but some see a new fracture in ties.**\
+`By Damien Cave`\
+https://nytimes.com/live/2024/05/08/world/israel-gaza-war-hamas-rafah/israel-shrugs-off-a-us-hold-on-an-arms-delivery-but-some-see-a-new-fracture-in-ties
+
 **An immigrant from Guatemala, Karla Silvestre has experience in education and local government.**\
 `By Campbell Robertson`\
 https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/an-immigrant-from-guatemala-karla-silvestre-has-experience-in-education-and-local-government

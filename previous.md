@@ -1,3 +1,7 @@
+**Israel shrugs off a U.S. hold on an arms delivery, but some see a new fracture in ties.**\
+`By Damien Cave`\
+https://nytimes.com/live/2024/05/08/world/israel-gaza-war-hamas-rafah/israel-shrugs-off-a-us-hold-on-an-arms-delivery-but-some-see-a-new-fracture-in-ties
+
 **An immigrant from Guatemala, Karla Silvestre has experience in education and local government.**\
 `By Campbell Robertson`\
 https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/an-immigrant-from-guatemala-karla-silvestre-has-experience-in-education-and-local-government
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/how-
 **Biden Looks to Thwart Surge of Chinese Imports**\
 `The president has proposed new barriers to Chinese electric vehicles, steel and other goods that could undermine his manufacturing agenda.`\
 https://nytimes.com/2024/05/08/us/politics/biden-china-imports.html
-
-**Israel presses on with its operation near the Rafah crossing as Gazan officials warn of a rising death toll.**\
-`By Liam Stack and Abu Bakr Bashir`\
-https://nytimes.com/live/2024/05/08/world/israel-gaza-war-hamas-rafah/israel-presses-on-with-its-operation-near-the-rafah-crossing-as-gazan-officials-warn-of-a-rising-death-toll
 
