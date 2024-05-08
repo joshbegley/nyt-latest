@@ -1,3 +1,7 @@
+**Bill Hwang, Whose Firm Archegos Collapsed in 2021, Is About to Go on Trial**\
+`The hedge fund is accused of borrowing money from banks to buy stocks.`\
+https://nytimes.com/2024/05/08/business/bill-hwang-archegos-trial.html
+
 **Judy Devlin Hashman, Record-Holding Badminton Champion, Dies at 88**\
 `She won 10 singles titles at the prestigious all-England championships.`\
 https://nytimes.com/2024/05/08/sports/judy-devlin-hashman-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/08/podcasts/israel-arms-rfk-jr-brain-parasite.html
 **A Plan to Remake the Middle East**\
 `While talks for a cease-fire between Israel and Hamas continue, another set of negotiations is happening behind the scenes.`\
 https://nytimes.com/2024/05/08/podcasts/the-daily/israel-gaza-middle-east-plan.html
-
-**U.S.C. Tries to Manage ‘Train Wreck’ of a Graduation**\
-`The university is known for going all out on the ceremonies, but this year, after protests and arrests, the gloss is gone. Families are not happy.`\
-https://nytimes.com/2024/05/08/us/usc-graduation-protests.html
 
