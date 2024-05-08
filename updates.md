@@ -1,3 +1,7 @@
+**Suspect in Laken Riley’s Killing Indicted on Murder and Other Charges**\
+`The suspect is an undocumented immigrant from Venezuela. The murder of Ms. Riley, a nursing student whose body was found on the University of Georgia campus, became a political flashpoint.`\
+https://nytimes.com/2024/05/08/us/laken-riley-uga-suspect-indicted.html
+
 **Thursday Briefing: Biden Pressures Israel**\
 `Also, the U.S. and China held climate talks.`\
 https://nytimes.com/2024/05/08/world/asia/biden-israel-rafah-china-asia.html

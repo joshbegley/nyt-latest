@@ -20,7 +20,7 @@ https://nytimes.com/2024/05/08/us/politics/pete-mccloskey-dead.html
 
 **Suspect in Laken Riley’s Killing Indicted on Murder and Other Charges**\
 `The suspect is an undocumented immigrant from Venezuela. The murder of Ms. Riley, a nursing student whose body was found on the University of Georgia campus, became a political flashpoint.`\
-https://nytimes.com/2024/05/08/us/laken-riley-suspect-indicted.html
+https://nytimes.com/2024/05/08/us/laken-riley-uga-suspect-indicted.html
 
 **Houston Police Chief Departs Amid Inquiry Into Suspended Cases**\
 `The abrupt retirement of Chief Troy Finner followed months of scrutiny into 260,000 crime reports, including for sexual assault, that were suspended for a “lack of resources.”`\
