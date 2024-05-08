@@ -1,3 +1,15 @@
+**How is this hearing different from ones on antisemitism on college campuses?**\
+`By Dana Goldstein`\
+https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/how-is-this-hearing-different-from-ones-on-antisemitism-on-college-campuses
+
+**Biden Looks to Thwart Surge of Chinese Imports**\
+`The president has proposed new barriers to Chinese electric vehicles, steel and other goods that could undermine his manufacturing agenda.`\
+https://nytimes.com/2024/05/08/us/politics/biden-china-imports.html
+
+**Israel presses on with its operation near the Rafah crossing as Gazan officials warn of a rising death toll.**\
+`By Liam Stack and Abu Bakr Bashir`\
+https://nytimes.com/live/2024/05/08/world/israel-gaza-war-hamas-rafah/israel-presses-on-with-its-operation-near-the-rafah-crossing-as-gazan-officials-warn-of-a-rising-death-toll
+
 **Neil Portnow Accuser Asks Court to Dismiss Her Sexual Assault Lawsuit**\
 `The woman, who sued the former head of the Grammy Awards anonymously, expressed concern that her identity would be revealed in the proceedings.`\
 https://nytimes.com/2024/05/08/arts/music/neil-portnow-accuser-dismiss-sexual-assault-lawsuit.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/08/opinion/adult-children-mental-illness.html
 **Should I Push My Husband to Ask for More of His Mother’s Estate?**\
 `When a woman tries to remedy a relative’s unequal generosity to her children using her own estate, her daughter-in-law wonders whether her husband is being shortchanged.`\
 https://nytimes.com/2024/05/08/style/in-laws-estate-inheritance.html
-
-**More Storms and Tornadoes Expected to Threaten Eastern U.S.**\
-`Severe weather over an expansive area including Tennessee, Illinois and Missouri was expected to bring threats of tornadoes, large hail and damaging winds.`\
-https://nytimes.com/2024/05/08/us/tornadoes-storms-missouri-illinois-tennessee.html
-
-**Bill Hwang, Whose Firm Archegos Collapsed in 2021, Is About to Go on Trial**\
-`The hedge fund is accused of borrowing money from banks to buy stocks.`\
-https://nytimes.com/2024/05/08/business/bill-hwang-archegos-trial.html
-
-**Judy Devlin Hashman, Record-Holding Badminton Champion, Dies at 88**\
-`She won 10 singles titles at the prestigious all-England championships.`\
-https://nytimes.com/2024/05/08/sports/judy-devlin-hashman-dead.html
 
