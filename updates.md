@@ -1,3 +1,7 @@
+**Using Cartoonish Accents, J.F.K.’s Grandson Insults and Mocks Robert F. Kennedy Jr.**\
+`In an escalation of the family feud, the son of Caroline Kennedy portrayed heavily accented characters who suggested that his cousin, the presidential candidate, was on steroids, not too smart and a liar.`\
+https://nytimes.com/2024/05/08/us/politics/rfk-jr-jack-schlossberg.html
+
 **Word of the Day: accolade**\
 `This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/05/08/learning/word-of-the-day-accolade.html
