@@ -1,3 +1,7 @@
+**In Berkeley, anti-Israel lesson plans have stirred a debate.**\
+`By Dana Goldstein`\
+https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/in-berkeley-anti-israel-lesson-plans-have-stirred-a-debate
+
 **A pro-Israel teacher was targeted in a raucous protest at a Queens school.**\
 `By Troy Closson`\
 https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/a-pro-israel-teacher-was-targeted-in-a-raucous-protest-at-a-queens-school
