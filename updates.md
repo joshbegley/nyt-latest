@@ -1,3 +1,7 @@
+**Judy Devlin Hashman, Record-Holding Badminton Champion, Dies at 88**\
+`She won 10 singles titles at the prestigious all-England championships.`\
+https://nytimes.com/2024/05/08/sports/judy-devlin-hashman-dead.html
+
 **TikTok’s Legal Bet on the First Amendment**\
 `The popular video-sharing app faces uncertain odds as it takes its fight to court to turn back a potential ban in the United States.`\
 https://nytimes.com/2024/05/08/business/dealbook/tiktok-lawsuit-first-amendment.html

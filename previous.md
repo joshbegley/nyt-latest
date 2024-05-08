@@ -1,3 +1,7 @@
+**Judy Devlin Hashman, Record-Holding Badminton Champion, Dies at 88**\
+`She won 10 singles titles at the prestigious all-England championships.`\
+https://nytimes.com/2024/05/08/sports/judy-devlin-hashman-dead.html
+
 **TikTok’s Legal Bet on the First Amendment**\
 `The popular video-sharing app faces uncertain odds as it takes its fight to court to turn back a potential ban in the United States.`\
 https://nytimes.com/2024/05/08/business/dealbook/tiktok-lawsuit-first-amendment.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/08/podcasts/the-daily/israel-gaza-middle-east-plan.h
 **U.S.C. Tries to Manage ‘Train Wreck’ of a Graduation**\
 `The university is known for going all out on the ceremonies, but this year, after protests and arrests, the gloss is gone. Families are not happy.`\
 https://nytimes.com/2024/05/08/us/usc-graduation-protests.html
-
-**Biden to Announce A.I. Center in Wisconsin as Part of Economic Agenda**\
-`The president’s visit will highlight the investment by Microsoft and point to a failed Foxconn project negotiated by Donald J. Trump.`\
-https://nytimes.com/2024/05/08/us/politics/biden-data-center-wisconsin.html
 
