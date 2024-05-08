@@ -1,3 +1,15 @@
+**Sony and Apollo’s Plan for Paramount: Break It Up**\
+`CBS and other well-known properties would be sold if Sony and Apollo are able to buy Paramount. But the new owners would keep the movie studio.`\
+https://nytimes.com/2024/05/08/business/media/sony-apollo-paramount-plan.html
+
+**Young Voters Aren’t Happy With Biden. But Will They Abandon Him?**\
+`The president’s complicated relationship with a key demographic.`\
+https://nytimes.com/2024/05/08/opinion/biden-young-voters-gaza.html
+
+**Disney, Hulu and Max Streaming Bundle Will Soon Become Available**\
+`The offering from Disney and Warner Bros. Discovery shows how rival companies are willing to work together to navigate an uncertain entertainment landscape.`\
+https://nytimes.com/2024/05/08/business/media/disney-plus-max-streaming-bundle.html
+
 **‘Someone’s Going to End Up Dead’: Settlements Over Fatal Astroworld Concert**\
 `A trial had been set to hear evidence that organizers of a 2021 Travis Scott concert knew the crowd was too large and ignored pleas to stop it as 10 people were crushed.`\
 https://nytimes.com/2024/05/08/us/astroworld-travis-scott-concert-deaths.html
