@@ -1,3 +1,7 @@
+**Former Soldier Convicted in Killing of Pregnant Army Private Two Decades Ago**\
+`A federal jury found the former soldier, Shannon L. Wilkerson, 43, guilty of second-degree murder in the death of Pvt. Amanda Gonzales on Nov. 3, 2001.`\
+https://nytimes.com/2024/05/07/us/amanda-gonzales-murder-army-soldier.html
+
 **Cartoon Frames**\
 `Michael Schlossberg sugarcoats the truth.`\
 https://nytimes.com/2024/05/07/crosswords/daily-puzzle-2024-05-08.html
