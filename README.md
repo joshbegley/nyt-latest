@@ -3,7 +3,7 @@
 https://nytimes.com/2024/05/08/arts/music/eurovision-israel-eden-golan-hurricane.html
 
 **We’re Together. Just Not in Pictures.**\
-`A buzzy couple’s separate arrivals on the Met Gala red carpet offers a reminder of the value of a solo photo op.`\
+`A buzzy couple’s separate arrivals on the Met Gala red carpet offer a reminder of the value of a solo photo op.`\
 https://nytimes.com/2024/05/08/style/sabrina-carpenter-barry-keoghan-met-gala.html
 
 **In a Poem, Just Who Is ‘the Speaker,’ Anyway?**\
