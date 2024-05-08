@@ -1,3 +1,11 @@
+**The U.S. Increased Its Pressure on Israel to Reach a Truce**\
+`Also, Biden and Harris hit the campaign trail. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/05/08/briefing/us-israel-weapons-biden-harris-campaign.html
+
+**Johnson Survives Greene’s Ouster Attempt as Democrats Join G.O.P. to Kill It**\
+`Republicans and Democrats banded together to block a motion by the right-wing Georgia congresswoman to remove the speaker.`\
+https://nytimes.com/2024/05/08/us/politics/greene-johnson-vacate.html
+
 **Betye Saar Remains Guided by the Spirit**\
 `The 97-year-old artist’s newest works reflect her decades-long interest in cultural artifacts and self-emancipation.`\
 https://nytimes.com/2024/05/08/t-magazine/betye-saar-huntington-roberts-projects.html
