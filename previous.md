@@ -1,3 +1,11 @@
+**The Kendrick Lamar-Drake Feud Was ‘Like the N.B.A. Finals’ for This Lyrics Website**\
+`The furious exchange of diss tracks and the rush to interpret each song briefly overwhelmed Genius, where users can annotate lyrics to songs.`\
+https://nytimes.com/2024/05/08/arts/music/drake-kendrick-rap-lyrics-genius.html
+
+**‘It Feels Like I Am Screaming Into the Void With Each Application’**\
+`For many new college graduates, the job market is bleak even though the unemployment rate is low.`\
+https://nytimes.com/2024/05/08/opinion/college-graduates-job-market.html
+
 **A Satellite View of Israel’s New Front in Gaza**\
 `Widespread damage, flattened structures and clusters of Israeli tanks were seen in eastern Rafah after Israel’s incursion.`\
 https://nytimes.com/interactive/2024/05/08/world/middleeast/israel-incursion-rafah-satellite-image-map.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/08/health/milton-diamond-dead.html
 **Review: Need Good Dances? Try Tharp**\
 `The Gibney Company’s program at the Joyce Theater includes two Twyla Tharp dances from the 1970s.`\
 https://nytimes.com/2024/05/08/arts/dance/review-gibney-company-tharp.html
-
-**What Happens Next for Kendrick Lamar and Drake? Let’s Discuss.**\
-`After a week of bitter diss tracks, a conversation about how the rap battle played out for the chart-topping rappers and how their personas and careers might be affected.`\
-https://nytimes.com/2024/05/08/arts/music/kendrick-lamar-drake-beef.html
-
-**Why Britain Keeps Giving Classic Movies New Ratings**\
-`As the attitudes of moviegoers evolve, so do the guidelines of the ratings board, which has reclassified dozens of films including “Mary Poppins” and “Rocky.”`\
-https://nytimes.com/2024/05/08/movies/movie-ratings-britain-bbfc-cara-mpa.html
 
