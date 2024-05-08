@@ -1,3 +1,7 @@
+**Quotation of the Day:Facing Labor Shortages, Japan Moves to Advance Working Women**\
+`Quotation of the Day for Wednesday, May 8, 2024.`\
+https://nytimes.com/2024/05/07/pageoneplus/quotation-of-the-dayfacing-labor-shortages-japan-moves-to-advance-working-women.html
+
 **Former Soldier Convicted in Killing of Pregnant Army Private Two Decades Ago**\
 `A federal jury found the former soldier, Shannon L. Wilkerson, 43, guilty of second-degree murder in the death of Pvt. Amanda Gonzales on Nov. 3, 2001.`\
 https://nytimes.com/2024/05/07/us/amanda-gonzales-murder-army-soldier.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/07/us/baltimore-bridge-victim-body-recovered.html
 **A Land Artist’s Work Evades Demolition**\
 `A federal judge granted a temporary restraining order protecting a work by Mary Miss. A Des Moines museum wanted to destroy it, citing safety concerns.`\
 https://nytimes.com/2024/05/07/arts/design/temporary-injunction-iowa-artwork.html
-
-**‘People are going to continue to die’: Israel’s operation in Rafah has left doctors scrambling.**\
-`By Anushka Patil and Iyad Abuheweila`\
-https://nytimes.com/live/2024/05/07/world/israel-gaza-war-hamas-rafah/people-are-going-to-continue-to-die-israels-operation-in-rafah-has-left-doctors-scrambling
 
