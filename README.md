@@ -1,3 +1,7 @@
+**The Tawdry Decade of Trump Could Desensitize Any Juror**\
+`If everything is just a tabloid joke, can Trump be found guilty of a real crime?`\
+https://nytimes.com/2024/05/08/opinion/the-tawdry-decade-of-trump-could-desensitize-any-juror.html
+
 **AstraZeneca Is Withdrawing Its Covid Vaccine Worldwide, Citing Low Demand**\
 `The shot is no longer being manufactured or supplied, and it is no longer authorized for use in Europe.`\
 https://nytimes.com/2024/05/08/business/astrazeneca-withdraws-covid-vaccine.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/repo
 **What are the demands being made to the school districts?**\
 `By Dana Goldstein`\
 https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/what-are-the-demands-being-made-to-the-school-districts
-
-**Virginia Foxx’s Focus on Antisemitism on College Campuses Has Raised Her Profile**\
-`The House member from North Carolina attributes her blunt conservative politics to her pulled-herself-up-by-her-bootstraps life.`\
-https://nytimes.com/2024/05/08/us/virginia-foxx-antisemitism.html
 
