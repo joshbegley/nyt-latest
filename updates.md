@@ -1,3 +1,7 @@
+**08k12-antisemitism**\
+`Live Updates: House Examining K-12 Schools in Latest Antisemitism Hearing`\
+https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education
+
 **Man Is Charged After Hitting Protester With His Car Near Columbia**\
 `Two demonstrators whom the driver, Reuven Kahane, was arguing with were also arrested and charged.`\
 https://nytimes.com/2024/05/08/nyregion/columbia-driver-arrested-pro-palestinian-protesters.html
