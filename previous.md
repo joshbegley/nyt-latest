@@ -1,3 +1,7 @@
+**Police Use Pepper Spray on Protesters on G.W.U.’s Campus**\
+`Police officers arrested 33 pro-Palestinian protesters and cleared a tent encampment on the campus of George Washingon University.`\
+https://nytimes.com/video/us/100000009458677/george-washington-university-protest.html
+
 **Pete McCloskey, Republican Who Tried to Unseat Nixon, Is Dead at 96**\
 `A liberal, antiwar California congressman, he had defeated Shirley Temple Black in a special election before launching a long-shot bid for the 1972 G.O.P. nomination.`\
 https://nytimes.com/2024/05/08/us/politics/pete-mccloskey-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/08/business/general-motors-chevy-malibu-electric-veh
 **The Words That Defined This Week in Donald J. Trump’s Trial**\
 `Stormy Daniels, Hope Hicks and the defendant himself uttered memorable phrases in the last week of testimony.`\
 https://nytimes.com/2024/05/08/nyregion/trump-hush-money-trial-key-moments.html
-
-**Tornadoes Are Coming in Bunches. Scientists Are Trying to Figure Out Why.**\
-`The number of tornadoes so far in the United States this year is just above average. But their distribution is changing.`\
-https://nytimes.com/2024/05/08/climate/tornadoes-cluster-climate-change.html
 
