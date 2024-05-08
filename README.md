@@ -1,3 +1,11 @@
+**G.M. Will Retire the Chevrolet Malibu to Make More Electric Cars**\
+`The gasoline-powered Malibu was the last affordable sedan sold by Chevrolet, the General Motors brand, in the United States.`\
+https://nytimes.com/2024/05/08/business/general-motors-chevy-malibu-electric-vehicles.html
+
+**The Words That Defined This Week in Donald J. Trump’s Trial**\
+`Stormy Daniels, Hope Hicks and the defendant himself uttered memorable phrases in the last week of testimony.`\
+https://nytimes.com/2024/05/08/nyregion/trump-hush-money-trial-key-moments.html
+
 **Tornadoes Are Coming in Bunches. Scientists Are Trying to Figure Out Why.**\
 `The number of tornadoes so far in the United States this year is just above average. But their distribution is changing.`\
 https://nytimes.com/2024/05/08/climate/tornadoes-cluster-climate-change.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/08/opinion/college-graduates-job-market.html
 **A Satellite View of Israel’s New Front in Gaza**\
 `Widespread damage, flattened structures and clusters of Israeli tanks were seen in eastern Rafah after Israel’s incursion.`\
 https://nytimes.com/interactive/2024/05/08/world/middleeast/israel-incursion-rafah-satellite-image-map.html
-
-**What we know about the weapons the U.S. sends to Israel.**\
-`By Emma Bubola`\
-https://nytimes.com/live/2024/05/08/world/israel-gaza-war-hamas-rafah/us-israel-weapons
-
-**Grover Cleveland Didn’t Lie About His Sex Scandal**\
-`“Ma, ma, where’s my pa?”`\
-https://nytimes.com/2024/05/08/opinion/trump-sex-scandal-grover-cleveland.html
 
