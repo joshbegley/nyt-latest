@@ -1,3 +1,7 @@
+**‘Someone’s Going to End Up Dead’: Settlements Over Fatal Astroworld Concert**\
+`A trial had been set to hear evidence that organizers of a 2021 Travis Scott concert knew the crowd was too large and ignored pleas to stop it as 10 people were crushed.`\
+https://nytimes.com/2024/05/08/us/astroworld-travis-scott-concert-deaths.html
+
 **I Asked South Dakota Dog Trainers About Kristi Noem**\
 `The governor defends her story of killing her dog, but not everyone in her home state does.`\
 https://nytimes.com/2024/05/08/us/politics/dog-trainers-kristi-noem.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/08/us/politics/biden-bombs-israel.html
 **Johnson Survives Greene’s Ouster Attempt as Democrats Join G.O.P. to Kill It**\
 `Republicans and Democrats banded together to block a motion by the right-wing Georgia congresswoman to remove the speaker.`\
 https://nytimes.com/2024/05/08/us/politics/greene-johnson-vacate.html
-
-**Miss Teen USA Resigns From Her Post, Following Miss USA**\
-`UmaSofia Srivastava, who won the title in September while representing New Jersey, said that her views no longer fully aligned with those of the organization.`\
-https://nytimes.com/2024/05/08/us/miss-teen-usa-resign-umasofia-srivastava.html
 
