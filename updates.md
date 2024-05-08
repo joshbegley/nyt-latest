@@ -1,3 +1,7 @@
+**Let the Party Begin! Olympic Flame Arrives in Marseille**\
+`The flame will be carried on a 79-day journey across France and its territories, culminating in Paris with the start of the Olympic Games on July 26.`\
+https://nytimes.com/2024/05/08/world/europe/olympic-torch-france-marseille.html
+
 **A Judge’s Dilemma: How to Punish Trump for Gag Order Violations**\
 `Readers discuss Justice Juan Merchan’s options. Also: If there’s a Trump conviction; TikTok and China; abortion exceptions; saving the bees.`\
 https://nytimes.com/2024/05/08/opinion/trump-gag-order.html

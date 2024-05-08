@@ -1,3 +1,7 @@
+**Let the Party Begin! Olympic Flame Arrives in Marseille**\
+`The flame will be carried on a 79-day journey across France and its territories, culminating in Paris with the start of the Olympic Games on July 26.`\
+https://nytimes.com/2024/05/08/world/europe/olympic-torch-france-marseille.html
+
 **A Judge’s Dilemma: How to Punish Trump for Gag Order Violations**\
 `Readers discuss Justice Juan Merchan’s options. Also: If there’s a Trump conviction; TikTok and China; abortion exceptions; saving the bees.`\
 https://nytimes.com/2024/05/08/opinion/trump-gag-order.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/08/opinion/campus-protest-election-gaza-democrats.ht
 **Steve Albini, Influential Producer of ’90s Rock and Beyond, Dies at 61**\
 `A musician and audio engineer, he helped define the sound of alternative rock while becoming an outspoken critic of the music industry.`\
 https://nytimes.com/2024/05/08/arts/music/steve-albini-dead.html
-
-**Police Break Up Protest Encampment at George Washington University**\
-`The action, with 33 arrests, came a few hours before Mayor Muriel Bowers of Washington was scheduled to testify on Capitol Hill about the city’s handling of the protest. The hearing was canceled.`\
-https://nytimes.com/2024/05/08/us/george-washington-university-pro-palestinian-protest.html
 
