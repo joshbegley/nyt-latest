@@ -1,3 +1,11 @@
+**Ukraine’s Parliament Passes Bill Allowing Some Convicts to Serve in the Army**\
+`The measure, which must still be signed into law, echoes a practice used by Russia, which has drafted tens of thousands of inmates into the war.`\
+https://nytimes.com/2024/05/08/world/europe/ukraines-convicts-army.html
+
+**Israel’s Incursion Into Rafah Could Be a Costly Mistake**\
+`Judging by the war’s conduct to date, it’s more likely that in the end, the operation will do more damage to Israel.`\
+https://nytimes.com/2024/05/08/opinion/israel-incursion-rafah-hamas-netanhyahu.html
+
 **Judge’s Decisions in Documents Case Play Into Trump’s Delay Strategy**\
 `Judge Aileen Cannon has given sober consideration to arguments that some experts say should have been promptly dispensed with, leaving a backlog of pretrial issues without a trial date in sight.`\
 https://nytimes.com/2024/05/08/us/politics/trump-documents-judge-cannon.html
