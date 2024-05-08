@@ -1,3 +1,7 @@
+**New York Times Adds 210,000 Digital Subscribers in Quarter**\
+`Adjusted operating profit was $76.1 million, an increase of about 41 percent from a year earlier.`\
+https://nytimes.com/2024/05/08/business/media/new-york-times-earnings.html
+
 **Russia Hits Ukrainian Power Plants, Further Straining Energy System**\
 `The assault, a day after Vladimir V. Putin was sworn in for a fifth term as Russian president, is part of a wider campaign to cut off power to Ukraine’s civilians.`\
 https://nytimes.com/2024/05/08/world/europe/russia-ukraine-power-plants-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/08/opinion/conservatives-liberals-depression-anxiety
 **Activist Investor Seeks to Force Out Norfolk Southern’s Management**\
 `A year after a derailment in Ohio raised questions about rail safety, an investment firm is seeking to install new management in an effort to increase profits.`\
 https://nytimes.com/2024/05/08/business/norfolk-southern-activist-investor.html
-
-**Was the 401(k) a Mistake?**\
-`How an obscure, 45-year old tax change transformed retirement and left so many Americans out in the cold.`\
-https://nytimes.com/2024/05/08/magazine/401k-retirement-crisis.html
 
