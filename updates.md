@@ -1,3 +1,11 @@
+**To protest the war in Gaza, Berkeley students staged walkouts from classes.**\
+`By Kurt Streeter`\
+https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/to-protest-the-war-in-gaza-berkeley-students-staged-walkouts-from-classes
+
+**Reported antisemitism in Montgomery County included swastikas and ‘Jews Not Welcome’ graffiti.**\
+`Montgomery County, a suburb of Washington D.C., is about 10 per`\
+https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/reported-antisemitism-in-montgomery-county-included-swastikas-and-jews-not-welcome-graffiti
+
 **What are the demands being made to the school districts?**\
 `By Dana Goldstein`\
 https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/what-are-the-demands-being-made-to-the-school-districts
