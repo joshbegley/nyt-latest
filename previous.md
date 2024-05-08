@@ -1,3 +1,7 @@
+**House Republicans Clash With Leaders of Public Schools Over Antisemitism Claims**\
+`Politicians said educators had not done enough. But the New York chancellor said members were trying to elicit “gotcha moments” rather than stop antisemitism.`\
+https://nytimes.com/2024/05/08/us/ny.html
+
 **Ukraine’s Parliament Passes Bill Allowing Some Convicts to Serve in the Army**\
 `The measure, which must still be signed into law, echoes a practice used by Russia, which has drafted tens of thousands of inmates into the war.`\
 https://nytimes.com/2024/05/08/world/europe/ukraines-convicts-army.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/08/us/marilyn-monroe-house-lawsuit-los-angeles.html
 **Images of a Brazilian City Underwater**\
 `Torrential rains have caused one of Brazil’s worst floods in modern history, leaving at least 100 dead and nearly an entire state submerged.`\
 https://nytimes.com/2024/05/08/world/americas/brazil-flooding-photos.html
-
-**Dick Rutan, Who Flew Around the World Without Refueling, Dies at 85**\
-`His nine-day voyage, in a plane designed by his brother that resembled a child’s glider but had wings longer than a Boeing 727’s, made aviation history.`\
-https://nytimes.com/2024/05/08/us/dick-rutan-dead.html
 
