@@ -1,3 +1,11 @@
+**A Satellite View of Israel’s New Front in Gaza**\
+`Widespread damage, flattened structures and clusters of Israeli tanks were seen in eastern Rafah after Israel’s incursion.`\
+https://nytimes.com/interactive/2024/05/08/world/middleeast/israel-incursion-rafah-satellite-image-map.html
+
+**What we know about the weapons the U.S. sends to Israel.**\
+`By Emma Bubola`\
+https://nytimes.com/live/2024/05/08/world/israel-gaza-war-hamas-rafah/us-israel-weapons
+
 **Grover Cleveland Didn’t Lie About His Sex Scandal**\
 `“Ma, ma, where’s my pa?”`\
 https://nytimes.com/2024/05/08/opinion/trump-sex-scandal-grover-cleveland.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/08/arts/music/kendrick-lamar-drake-beef.html
 **Why Britain Keeps Giving Classic Movies New Ratings**\
 `As the attitudes of moviegoers evolve, so do the guidelines of the ratings board, which has reclassified dozens of films including “Mary Poppins” and “Rocky.”`\
 https://nytimes.com/2024/05/08/movies/movie-ratings-britain-bbfc-cara-mpa.html
-
-**Let the Party Begin! Olympic Flame Arrives in Marseille.**\
-`The flame will be carried on a 79-day journey across France and its territories, culminating in Paris with the start of the Olympic Games on July 26.`\
-https://nytimes.com/2024/05/08/world/europe/olympic-torch-france-marseille.html
-
-**A Judge’s Dilemma: How to Punish Trump for Gag Order Violations**\
-`Readers discuss Justice Juan Merchan’s options. Also: If there’s a Trump conviction; TikTok and China; abortion exceptions; saving the bees.`\
-https://nytimes.com/2024/05/08/opinion/trump-gag-order.html
 
