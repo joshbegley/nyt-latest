@@ -1,3 +1,11 @@
+**When There’s Nowhere for Your Children to Be Safe**\
+`The near-impossible challenge of parenting an adult with severe mental illness.`\
+https://nytimes.com/2024/05/08/opinion/adult-children-mental-illness.html
+
+**Should I Push My Husband to Ask for More of His Mother’s Estate?**\
+`When a woman tries to remedy a relative’s unequal generosity to her children using her own estate, her daughter-in-law wonders whether her husband is being shortchanged.`\
+https://nytimes.com/2024/05/08/style/in-laws-estate-inheritance.html
+
 **More Storms and Tornadoes Expected to Threaten Eastern U.S.**\
 `Severe weather over an expansive area including Tennessee, Illinois and Missouri was expected to bring threats of tornadoes, large hail and damaging winds.`\
 https://nytimes.com/2024/05/08/us/tornadoes-storms-missouri-illinois-tennessee.html
