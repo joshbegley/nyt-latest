@@ -1,3 +1,11 @@
+**Milton Diamond, Sexologist and Advocate for Intersex Babies, Dies at 90**\
+`He pushed back against doctors who recommended surgery on infants born with ambiguous genitalia, arguing for acceptance of diversity.`\
+https://nytimes.com/2024/05/08/health/milton-diamond-dead.html
+
+**Review: Need Good Dances? Try Tharp**\
+`The Gibney Company’s program at the Joyce Theater includes two Twyla Tharp dances from the 1970s.`\
+https://nytimes.com/2024/05/08/arts/dance/review-gibney-company-tharp.html
+
 **What Happens Next for Kendrick Lamar and Drake? Let’s Discuss.**\
 `After a week of bitter diss tracks, a conversation about how the rap battle played out for the chart-topping rappers and how their personas and careers might be affected.`\
 https://nytimes.com/2024/05/08/arts/music/kendrick-lamar-drake-beef.html
