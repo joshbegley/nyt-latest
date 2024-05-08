@@ -1,3 +1,11 @@
+**China Is Way Ahead in Green Energy. Here’s Why That’s Risky for the U.S.**\
+`Beijing’s dominance raises economic and security concerns, and tensions will be on full display as top climate diplomats meet this week.`\
+https://nytimes.com/2024/05/08/climate/china-us-podesta-liu.html
+
+**What power does Congress have over K-12 schools?**\
+`By Dana Goldstein`\
+https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/what-power-does-congress-have-over-k-12-schools
+
 **Man Is Charged After Hitting Protester With His Car Near Columbia**\
 `Two demonstrators whom the driver, Reuven Kahane, was arguing with were also arrested and charged.`\
 https://nytimes.com/2024/05/08/nyregion/columbia-driver-arrested-pro-palestinian-protesters.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/08/us/antisemitism-definition-debate.html
 **Berkeley Schools Superintendent to Testify Today on Capitol Hill**\
 `Three leaders of major public school systems will appear before members of a House committee looking into claims of antisemitism in schools.`\
 https://nytimes.com/2024/05/08/us/berkeley-superintendent-congress-antisemitism.html
-
-**08k12-antisemitism**\
-`Live Updates: House Examining K-12 Schools in Latest Antisemitism Hearing`\
-https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education
-
-**When There’s Nowhere for Your Children to Be Safe**\
-`The near-impossible challenge of parenting an adult with severe mental illness.`\
-https://nytimes.com/2024/05/08/opinion/adult-children-mental-illness.html
 

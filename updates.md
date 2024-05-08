@@ -1,3 +1,11 @@
+**China Is Way Ahead in Green Energy. Here’s Why That’s Risky for the U.S.**\
+`Beijing’s dominance raises economic and security concerns, and tensions will be on full display as top climate diplomats meet this week.`\
+https://nytimes.com/2024/05/08/climate/china-us-podesta-liu.html
+
+**What power does Congress have over K-12 schools?**\
+`By Dana Goldstein`\
+https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/what-power-does-congress-have-over-k-12-schools
+
 **08k12-antisemitism**\
 `Live Updates: House Examining K-12 Schools in Latest Antisemitism Hearing`\
 https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education
