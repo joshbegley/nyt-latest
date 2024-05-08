@@ -1,3 +1,7 @@
+**Ex-Soccer Chief in Spain to Stand Trial on Sexual Assault Charge**\
+`Luis Rubiales, the former head of Spanish soccer, is charged with two different counts in connection with the unsolicited kiss of a star player.`\
+https://nytimes.com/2024/05/08/world/europe/spain-soccer-luis-rubiales-sexual-assault.html
+
 **Fighting in Rafah and Closure of Gaza Crossings Threaten Aid Operation, U.N. Says**\
 `No trucks have entered the Gaza Strip since Sunday, according to the U.N.`\
 https://nytimes.com/2024/05/08/world/middleeast/rafah-gaza-aid-israel-un.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/08/us/astroworld-travis-scott-concert-deaths.html
 **I Asked South Dakota Dog Trainers About Kristi Noem**\
 `The governor defends her story of killing her dog, but not everyone in her home state does.`\
 https://nytimes.com/2024/05/08/us/politics/dog-trainers-kristi-noem.html
-
-**Antiwar Protest Camp in Dublin Is Dismantled After College Agrees to Divest**\
-`Students against the war in Gaza began taking down the camp after Trinity College Dublin said it would divest from three Israeli companies.`\
-https://nytimes.com/2024/05/08/world/europe/ireland-trinity-college-protests.html
 
