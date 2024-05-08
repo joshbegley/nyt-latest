@@ -1,3 +1,11 @@
+**Milton Diamond, Sexologist and Advocate for Intersex Babies, Dies at 90**\
+`He pushed back against doctors who recommended surgery on infants born with ambiguous genitalia, arguing for acceptance of diversity.`\
+https://nytimes.com/2024/05/08/health/milton-diamond-dead.html
+
+**Review: Need Good Dances? Try Tharp**\
+`The Gibney Company’s program at the Joyce Theater includes two Twyla Tharp dances from the 1970s.`\
+https://nytimes.com/2024/05/08/arts/dance/review-gibney-company-tharp.html
+
 **What Happens Next for Kendrick Lamar and Drake? Let’s Discuss.**\
 `After a week of bitter diss tracks, a conversation about how the rap battle played out for the chart-topping rappers and how their personas and careers might be affected.`\
 https://nytimes.com/2024/05/08/arts/music/kendrick-lamar-drake-beef.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/08/opinion/the-tawdry-decade-of-trump-could-desensit
 **AstraZeneca Is Withdrawing Its Covid Vaccine Worldwide, Citing Low Demand**\
 `The shot is no longer being manufactured or supplied, and it is no longer authorized for use in Europe.`\
 https://nytimes.com/2024/05/08/business/astrazeneca-withdraws-covid-vaccine.html
-
-**E.U. employees in Brussels demand a cease-fire and protest the bloc’s stance on the war.**\
-`By Sarah Hurtes`\
-https://nytimes.com/live/2024/05/08/world/israel-gaza-war-hamas-rafah/eu-employees-in-brussels-demand-a-cease-fire-and-protest-the-blocs-stance-on-the-war
-
-**Hot Honey Has Us in Its Sticky Grip**\
-`Once little more than a lively garnish for pizzas, the sweet-and-spicy condiment has squeezed its way into ice creams, fast-casual bowls and espresso martinis.`\
-https://nytimes.com/2024/05/08/dining/hot-honey.html
 
