@@ -1,3 +1,11 @@
+**A lawsuit in Brooklyn over antisemitism has raised many questions.**\
+`By Troy Closson`\
+https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/a-lawsuit-in-brooklyn-over-antisemitism-has-raised-many-questions
+
+**Elise Stefanik has gained widespread attention in recent antisemitism hearings.**\
+`By Nicholas Fandos`\
+https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/elise-stefanik-has-gained-widespread-attention-in-recent-antisemitism-hearings
+
 **Popcast (Deluxe): How Kendrick Lamar Out-Drake’d Drake**\
 `Breaking down the heavyweight rap battle between Lamar and Drake after a weekend of dramatic diss tracks.`\
 https://nytimes.com/2024/05/08/arts/music/kendrick-lamar-drake-beef-popcast.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/in-b
 **A pro-Israel teacher was targeted in a raucous protest at a Queens school.**\
 `By Troy Closson`\
 https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/a-pro-israel-teacher-was-targeted-in-a-raucous-protest-at-a-queens-school
-
-**Uber Slips on Rising Legal Costs and Weaker Ride Demand**\
-`The company has racked up bills after long-running legal fights with regulators and cabdrivers.`\
-https://nytimes.com/2024/05/08/business/uber-earnings-first-quarter.html
-
-**Chicken So Good It Was Kept Secret**\
-`What to cook with the kids: shahi toast, salmon onigiri and the garlic-ginger chicken that was a Krishna family secret.`\
-https://nytimes.com/2024/05/08/dining/chicken-so-good-it-was-kept-secret.html
 
