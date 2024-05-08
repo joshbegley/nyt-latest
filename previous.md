@@ -18,13 +18,13 @@ https://nytimes.com/2024/05/08/technology/google-ai-molecules-alphafold3.html
 `Biodiversity loss, global warming, pollution and the spread of invasive species are making infectious diseases more dangerous to organisms around the world.`\
 https://nytimes.com/2024/05/08/health/environment-climate-health.html
 
-**Checking in With an Airline Reporter**\
-`To cover the bustling world of aviation, Christine Chung considers the plights and predicaments of readers.`\
-https://nytimes.com/2024/05/08/insider/airline-beat-reporter.html
-
 **‘Kingdom of the Planet of the Apes’ Review: Hail, Caesar**\
 `The latest installment in an excellent series finds mythology turning into power.`\
 https://nytimes.com/2024/05/08/movies/kingdom-of-the-planet-of-the-apes-review.html
+
+**Checking in With an Airline Reporter**\
+`To cover the bustling world of aviation, Christine Chung considers the plights and predicaments of readers.`\
+https://nytimes.com/2024/05/08/insider/airline-beat-reporter.html
 
 **Four teachers were suspended at Montgomery County schools.**\
 `By Campbell Robertson`\
