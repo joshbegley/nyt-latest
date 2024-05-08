@@ -1,3 +1,7 @@
+**Virginia Foxx’s Focus on Antisemitism on College Campuses Has Raised Her Profile**\
+`The House member from North Carolina attributes her blunt conservative politics to her pulled-herself-up-by-her-bootstraps life.`\
+https://nytimes.com/2024/05/08/us/virginia-foxx-antisemitism.html
+
 **A lawsuit in Brooklyn over antisemitism has raised many questions.**\
 `By Troy Closson`\
 https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/a-lawsuit-in-brooklyn-over-antisemitism-has-raised-many-questions
