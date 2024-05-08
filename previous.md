@@ -1,4 +1,4 @@
-**Tornadoes Are Coming in Bunches. Scientists Are Trying to Figure Out Why**\
+**Tornadoes Are Coming in Bunches. Scientists Are Trying to Figure Out Why.**\
 `The number of tornadoes so far in the United States this year is just above average. But their distribution is changing.`\
 https://nytimes.com/2024/05/08/climate/tornadoes-cluster-climate-change.html
 
