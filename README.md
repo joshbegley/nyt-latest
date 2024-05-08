@@ -1,3 +1,11 @@
+**Major gaps with Hamas remain, Israeli officials say.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/05/08/world/israel-gaza-war-hamas-rafah/major-gaps-with-hamas-remain-israeli-officials-say
+
+**Israel reopens one of two Gaza crossings it had closed.**\
+`By Cassandra Vinograd and Erin Mendell`\
+https://nytimes.com/live/2024/05/08/world/israel-gaza-war-hamas-rafah/israel-reopens-one-of-two-gaza-crossings-it-had-closed
+
 **Rolling Blackouts Hit Several Cities as Heat Wave Scorches Mexico**\
 `Cities were plunged into darkness as scorching temperatures strained the national energy grid.`\
 https://nytimes.com/2024/05/08/world/americas/mexico-blackout-heat-wave.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/08/crosswords/connections-companion.html
 **Word of the Day: accolade**\
 `This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/05/08/learning/word-of-the-day-accolade.html
-
-**Jimmy Kimmel Wants the Dirty Details From Stormy Daniels**\
-`The host disagreed with a judge who said Daniels could skip some of the specifics of her encounter with Donald Trump. “Some of us are trying to host a show here, OK?”`\
-https://nytimes.com/2024/05/08/arts/television/jimmy-kimmel-stormy-daniels-trump.html
-
-**FTX Customers Poised to Recover All Funds Lost in Collapse**\
-`Bankruptcy lawyers for FTX said that customers of the cryptocurrency exchange were set to get all their money back, plus interest.`\
-https://nytimes.com/2024/05/08/business/ftx-bankruptcy-recovery.html
 
