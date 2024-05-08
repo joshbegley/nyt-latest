@@ -1,3 +1,11 @@
+**Thursday Briefing: Biden Pressures Israel**\
+`Also, the U.S. and China held climate talks.`\
+https://nytimes.com/2024/05/08/world/asia/biden-israel-rafah-china-asia.html
+
+**Most Wrongful Death Lawsuits Tied to Astroworld Festival Are Settled**\
+`The rapper Travis Scott and the concert promoter Live Nation faced 10 suits after the 2021 tragedy. One case from the family of a 9-year-old victim is pending.`\
+https://nytimes.com/2024/05/08/arts/music/astroworld-settlements-live-nation-travis-scott.html
+
 **Biden Pressures Israel to Reach a Cease-Fire in Gaza, Straining Ties**\
 `The president’s threat to withhold some weapons unless the Israelis also limit civilian casualties and increase humanitarian aid has widened cracks in the relationship.`\
 https://nytimes.com/2024/05/08/world/middleeast/israel-hamas-rafah-ceasefire.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/08/world/europe/ukraines-convicts-army.html
 **Israel’s Incursion Into Rafah Could Be a Costly Mistake**\
 `Judging by the war’s conduct to date, it’s more likely that in the end, the operation will do more damage to Israel.`\
 https://nytimes.com/2024/05/08/opinion/israel-incursion-rafah-hamas-netanhyahu.html
-
-**Judge’s Decisions in Documents Case Play Into Trump’s Delay Strategy**\
-`Judge Aileen Cannon has given sober consideration to arguments that some experts say should have been promptly dispensed with, leaving a backlog of pretrial issues without a trial date in sight.`\
-https://nytimes.com/2024/05/08/us/politics/trump-documents-judge-cannon.html
-
-**G.M. Will Retire the Chevrolet Malibu to Make More Electric Cars**\
-`The gasoline-powered Malibu was the last affordable sedan sold by Chevrolet, the General Motors brand, in the United States.`\
-https://nytimes.com/2024/05/08/business/general-motors-chevy-malibu-electric-vehicles.html
 

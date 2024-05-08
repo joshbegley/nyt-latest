@@ -1,3 +1,11 @@
+**Thursday Briefing: Biden Pressures Israel**\
+`Also, the U.S. and China held climate talks.`\
+https://nytimes.com/2024/05/08/world/asia/biden-israel-rafah-china-asia.html
+
+**Most Wrongful Death Lawsuits Tied to Astroworld Festival Are Settled**\
+`The rapper Travis Scott and the concert promoter Live Nation faced 10 suits after the 2021 tragedy. One case from the family of a 9-year-old victim is pending.`\
+https://nytimes.com/2024/05/08/arts/music/astroworld-settlements-live-nation-travis-scott.html
+
 **Biden Pressures Israel to Reach a Cease-Fire in Gaza, Straining Ties**\
 `The president’s threat to withhold some weapons unless the Israelis also limit civilian casualties and increase humanitarian aid has widened cracks in the relationship.`\
 https://nytimes.com/2024/05/08/world/middleeast/israel-hamas-rafah-ceasefire.html
