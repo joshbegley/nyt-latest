@@ -1,3 +1,7 @@
+**Russia Hits Ukrainian Power Plants, Further Straining Energy System**\
+`The assault, a day after Vladimir V. Putin was sworn in for a fifth term as Russian president, is part of a wider campaign to cut off power to Ukraine’s civilians.`\
+https://nytimes.com/2024/05/08/world/europe/russia-ukraine-power-plants-attack.html
+
 **An Overlooked War**\
 `In Myanmar, poets, doctors and lawyers have traded life in the cities for jungle warfare.`\
 https://nytimes.com/2024/05/08/briefing/myanmar-civil-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/08/business/norfolk-southern-activist-investor.html
 **Was the 401(k) a Mistake?**\
 `How an obscure, 45-year old tax change transformed retirement and left so many Americans out in the cold.`\
 https://nytimes.com/2024/05/08/magazine/401k-retirement-crisis.html
-
-**How the New York City Chancellor Prepared for a Congressional Grilling**\
-`As David C. Banks prepares to testify about antisemitism in the New York City schools, he said he wasn’t intimidated by congressional Republicans.`\
-https://nytimes.com/2024/05/08/us/nyc-chancellor-prepared-congressional-hearing.html
 
