@@ -1,3 +1,7 @@
+**What Happens Next for Kendrick Lamar and Drake? Let’s Discuss.**\
+`After a week of bitter diss tracks, a conversation about how the rap battle played out for the chart-topping rappers and how their personas and careers might be affected.`\
+https://nytimes.com/2024/05/08/arts/music/kendrick-lamar-drake-beef.html
+
 **Let the Party Begin! Olympic Flame Arrives in Marseille.**\
 `The flame will be carried on a 79-day journey across France and its territories, culminating in Paris with the start of the Olympic Games on July 26.`\
 https://nytimes.com/2024/05/08/world/europe/olympic-torch-france-marseille.html

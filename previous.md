@@ -1,3 +1,7 @@
+**What Happens Next for Kendrick Lamar and Drake? Let’s Discuss.**\
+`After a week of bitter diss tracks, a conversation about how the rap battle played out for the chart-topping rappers and how their personas and careers might be affected.`\
+https://nytimes.com/2024/05/08/arts/music/kendrick-lamar-drake-beef.html
+
 **Why Britain Keeps Giving Classic Movies New Ratings**\
 `As the attitudes of moviegoers evolve, so do the guidelines of the ratings board, which has reclassified dozens of films including “Mary Poppins” and “Rocky.”`\
 https://nytimes.com/2024/05/08/movies/movie-ratings-britain-bbfc-cara-mpa.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/08/world/israel-gaza-war-hamas-rafah/eu-employe
 **Hot Honey Has Us in Its Sticky Grip**\
 `Once little more than a lively garnish for pizzas, the sweet-and-spicy condiment has squeezed its way into ice creams, fast-casual bowls and espresso martinis.`\
 https://nytimes.com/2024/05/08/dining/hot-honey.html
-
-**The Campus Protests Signal the End of an Era for the Democrats**\
-`The alliance of the elite establishment and progressives is showing signs of fraying.`\
-https://nytimes.com/2024/05/08/opinion/campus-protest-election-gaza-democrats.html
 
