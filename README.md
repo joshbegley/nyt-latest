@@ -1,3 +1,7 @@
+**Tornadoes Are Coming in Bunches. Scientists Are Trying to Figure Out Why.**\
+`The number of tornadoes so far in the United States this year is just above average. But their distribution is changing.`\
+https://nytimes.com/2024/05/08/climate/tornadoes-cluster-climate-change.html
+
 **Britain to Expel Russian Defense Attaché and Close Some Diplomatic Sites**\
 `The British home secretary, James Cleverly, accused Russia’s foreign intelligence service of a pattern of “malign activity” in Britain and Europe.`\
 https://nytimes.com/2024/05/08/world/europe/britain-russia-defense-attache-moscow.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/08/world/israel-gaza-war-hamas-rafah/us-israel-
 **Grover Cleveland Didn’t Lie About His Sex Scandal**\
 `“Ma, ma, where’s my pa?”`\
 https://nytimes.com/2024/05/08/opinion/trump-sex-scandal-grover-cleveland.html
-
-**Why Did Camille Charrière Pick a Fight With Kim Kardashian?**\
-`A fashion influencer stirred things up — not necessarily in a good way — by comparing her work to a collection by Skims. She’d rather talk about sustainability.`\
-https://nytimes.com/2024/05/08/style/camille-charriere-kim-kardashian-skims.html
 
