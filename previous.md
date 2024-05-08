@@ -1,3 +1,11 @@
+**I Asked South Dakota Dog Trainers About Kristi Noem**\
+`The governor defends her story of killing her dog, but not everyone in her home state does.`\
+https://nytimes.com/2024/05/08/us/politics/dog-trainers-kristi-noem.html
+
+**Antiwar Protest Camp in Dublin Is Dismantled After College Agrees to Divest**\
+`Students against the war in Gaza began taking down the camp after Trinity College Dublin said it would divest from three Israeli companies.`\
+https://nytimes.com/2024/05/08/world/europe/ireland-trinity-college-protests.html
+
 **The U.S. Increased Its Pressure on Israel to Reach a Truce**\
 `Also, Biden and Harris hit the campaign trail. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/05/08/briefing/us-israel-weapons-biden-harris-campaign.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/08/us/politics/greene-johnson-vacate.html
 **Miss Teen USA Resigns From Her Post, Following Miss USA**\
 `UmaSofia Srivastava, who won the title in September while representing New Jersey, said that her views no longer fully aligned with those of the organization.`\
 https://nytimes.com/2024/05/08/us/miss-teen-usa-resign-umasofia-srivastava.html
-
-**Thursday Briefing: Biden Pressures Israel**\
-`Also, the U.S. and China held climate talks.`\
-https://nytimes.com/2024/05/08/world/asia/biden-israel-rafah-china-asia.html
-
-**Most Wrongful Death Lawsuits Tied to Astroworld Festival Are Settled**\
-`The rapper Travis Scott and the concert promoter Live Nation faced 10 suits after the 2021 tragedy. One case from the family of a 9-year-old victim is pending.`\
-https://nytimes.com/2024/05/08/arts/music/astroworld-settlements-live-nation-travis-scott.html
 

@@ -1,3 +1,11 @@
+**I Asked South Dakota Dog Trainers About Kristi Noem**\
+`The governor defends her story of killing her dog, but not everyone in her home state does.`\
+https://nytimes.com/2024/05/08/us/politics/dog-trainers-kristi-noem.html
+
+**Antiwar Protest Camp in Dublin Is Dismantled After College Agrees to Divest**\
+`Students against the war in Gaza began taking down the camp after Trinity College Dublin said it would divest from three Israeli companies.`\
+https://nytimes.com/2024/05/08/world/europe/ireland-trinity-college-protests.html
+
 **The U.S. Increased Its Pressure on Israel to Reach a Truce**\
 `Also, Biden and Harris hit the campaign trail. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/05/08/briefing/us-israel-weapons-biden-harris-campaign.html
