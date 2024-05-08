@@ -1,3 +1,15 @@
+**How to Define ‘Antisemitism’ Is a Subject of Bitter Debate.**\
+`Activists, university officials and political leaders are deeply divided over what, precisely, constitutes antisemitism.`\
+https://nytimes.com/2024/05/08/us/antisemitism-definition-debate.html
+
+**Berkeley Schools Superintendent to Testify Today on Capitol Hill**\
+`Three leaders of major public school systems will appear before members of a House committee looking into claims of antisemitism in schools.`\
+https://nytimes.com/2024/05/08/us/berkeley-superintendent-congress-antisemitism.html
+
+**08k12-antisemitism**\
+`Live Updates: House to Examine K-12 Schools in Latest Antisemitism Hearing`\
+https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education
+
 **When There’s Nowhere for Your Children to Be Safe**\
 `The near-impossible challenge of parenting an adult with severe mental illness.`\
 https://nytimes.com/2024/05/08/opinion/adult-children-mental-illness.html
