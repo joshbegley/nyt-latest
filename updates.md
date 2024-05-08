@@ -1,3 +1,7 @@
+**TikTok’s Legal Bet on the First Amendment**\
+`The popular video-sharing app faces uncertain odds as it takes its fight to court to turn back a potential ban in the United States.`\
+https://nytimes.com/2024/05/08/business/dealbook/tiktok-lawsuit-first-amendment.html
+
 **A Cicada’s Guide to Periodical Romance**\
 `It may sound like a mosh pit out there. But to the participants, mating is a delicate, sonorous affair, fraught with potential missteps — and fungal zombies.`\
 https://nytimes.com/2024/05/08/science/periodical-cicadas-mating.html
