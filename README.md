@@ -1,3 +1,7 @@
+**What are the demands being made to the school districts?**\
+`By Dana Goldstein`\
+https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/what-are-the-demands-being-made-to-the-school-districts
+
 **Virginia Foxx’s Focus on Antisemitism on College Campuses Has Raised Her Profile**\
 `The House member from North Carolina attributes her blunt conservative politics to her pulled-herself-up-by-her-bootstraps life.`\
 https://nytimes.com/2024/05/08/us/virginia-foxx-antisemitism.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/08/style/sabrina-carpenter-barry-keoghan-met-gala.ht
 **In a Poem, Just Who Is ‘the Speaker,’ Anyway?**\
 `Critics and readers love the term, but it can be awfully slippery to pin down. That’s what makes it so fun to try.`\
 https://nytimes.com/2024/05/08/books/review/on-poetry-who-is-the-speaker.html
-
-**In Berkeley, anti-Israel lesson plans have stirred a debate.**\
-`By Dana Goldstein`\
-https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/in-berkeley-anti-israel-lesson-plans-have-stirred-a-debate
 
