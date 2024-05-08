@@ -1,3 +1,7 @@
+**Why Britain Keeps Giving Classic Movies New Ratings**\
+`As the attitudes of moviegoers evolve, so do the guidelines of the ratings board, which has reclassified dozens of films including “Mary Poppins” and “Rocky.”`\
+https://nytimes.com/2024/05/08/movies/movie-ratings-britain-bbfc-cara-mpa.html
+
 **Let the Party Begin! Olympic Flame Arrives in Marseille**\
 `The flame will be carried on a 79-day journey across France and its territories, culminating in Paris with the start of the Olympic Games on July 26.`\
 https://nytimes.com/2024/05/08/world/europe/olympic-torch-france-marseille.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/08/dining/hot-honey.html
 **The Campus Protests Signal the End of an Era for the Democrats**\
 `The alliance of the elite establishment and progressives is showing signs of fraying.`\
 https://nytimes.com/2024/05/08/opinion/campus-protest-election-gaza-democrats.html
-
-**Steve Albini, Influential Producer of ’90s Rock and Beyond, Dies at 61**\
-`A musician and audio engineer, he helped define the sound of alternative rock while becoming an outspoken critic of the music industry.`\
-https://nytimes.com/2024/05/08/arts/music/steve-albini-dead.html
 
