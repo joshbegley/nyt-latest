@@ -1,3 +1,7 @@
+**A Cicada’s Guide to Periodical Romance**\
+`It may sound like a mosh pit out there. But to the participants, mating is a delicate, sonorous affair, fraught with potential missteps — and fungal zombies.`\
+https://nytimes.com/2024/05/08/science/periodical-cicadas-mating.html
+
 **New York Times Adds 210,000 Digital Subscribers in Quarter**\
 `Adjusted operating profit was $76.1 million, an increase of about 41 percent from a year earlier.`\
 https://nytimes.com/2024/05/08/business/media/new-york-times-earnings.html
@@ -22,7 +26,7 @@ https://nytimes.com/2024/05/08/podcasts/israel-arms-rfk-jr-brain-parasite.html
 `While talks for a cease-fire between Israel and Hamas continue, another set of negotiations is happening behind the scenes.`\
 https://nytimes.com/2024/05/08/podcasts/the-daily/israel-gaza-middle-east-plan.html
 
-**With Speakers Missing and Security High, U.S.C. Tries to Save Its Graduation**\
+**U.S.C. Tries to Manage ‘Train Wreck’ of a Graduation**\
 `The university is known for going all out on the ceremonies, but this year, after protests and arrests, the gloss is gone. Families are not happy.`\
 https://nytimes.com/2024/05/08/us/usc-graduation-protests.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/08/us/politics/biden-data-center-wisconsin.html
 **The Happiness Gap Between Left and Right Isn’t Closing**\
 `Why is it that a substantial body of social science research finds that conservatives are happier than liberals?`\
 https://nytimes.com/2024/05/08/opinion/conservatives-liberals-depression-anxiety.html
-
-**Activist Investor Seeks to Force Out Norfolk Southern’s Management**\
-`A year after a derailment in Ohio raised questions about rail safety, an investment firm is seeking to install new management in an effort to increase profits.`\
-https://nytimes.com/2024/05/08/business/norfolk-southern-activist-investor.html
 
