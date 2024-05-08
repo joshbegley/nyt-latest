@@ -1,3 +1,7 @@
+**Fighting in Rafah and Closure of Gaza Crossings Threaten Aid Operation, U.N. Says**\
+`No trucks have entered the Gaza Strip since Sunday, according to the U.N.`\
+https://nytimes.com/2024/05/08/world/middleeast/rafah-gaza-aid-israel-un.html
+
 **Biden Says the U.S. Will Not Supply Israel With Weapons to Attack Rafah**\
 `The president’s remarks underscore the growing rift between the United States and its closest Middle East ally over the war in Gaza.`\
 https://nytimes.com/2024/05/08/us/politics/biden-israel-weapons-rafah.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/08/us/politics/dog-trainers-kristi-noem.html
 **Antiwar Protest Camp in Dublin Is Dismantled After College Agrees to Divest**\
 `Students against the war in Gaza began taking down the camp after Trinity College Dublin said it would divest from three Israeli companies.`\
 https://nytimes.com/2024/05/08/world/europe/ireland-trinity-college-protests.html
-
-**The U.S. Increased Its Pressure on Israel to Reach a Truce**\
-`Also, Biden and Harris hit the campaign trail. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2024/05/08/briefing/us-israel-weapons-biden-harris-campaign.html
 
