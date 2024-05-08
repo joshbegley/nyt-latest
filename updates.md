@@ -1,3 +1,7 @@
+**Homeowners Who Planned to Demolish Marilyn Monroe House Sue Los Angeles**\
+`The owners of the property where the actress lived and died accuse the city of engaging in “backroom machinations” to landmark her home and save it from demolition.`\
+https://nytimes.com/2024/05/08/us/marilyn-monroe-house-lawsuit-los-angeles.html
+
 **Images of a Brazilian City Underwater**\
 `Torrential rains have caused one of Brazil’s worst floods in modern history, leaving at least 100 dead and nearly an entire state submerged.`\
 https://nytimes.com/2024/05/08/world/americas/brazil-flooding-photos.html
