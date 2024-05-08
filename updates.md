@@ -1,3 +1,7 @@
+**Why Did Camille Charrière Pick a Fight With Kim Kardashian?**\
+`A fashion influencer stirred things up — not necessarily in a good way — by comparing her work to a collection by Skims. She’d rather talk about sustainability.`\
+https://nytimes.com/2024/05/08/style/camille-charriere-kim-kardashian-skims.html
+
 **In Combative Hearing, New York School Chief Turns Tables on Republicans**\
 `Under aggressive, rapid-fire questioning, David C. Banks, the chancellor of New York City schools, pushed back hard on accusations that the district had allowed antisemitism to fester.`\
 https://nytimes.com/2024/05/08/nyregion/banks-responses-combative-hearing.html
