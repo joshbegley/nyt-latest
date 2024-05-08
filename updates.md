@@ -1,3 +1,7 @@
+**With a Gaza Cease-Fire in the Balance, Netanyahu Maneuvers to Keep Power**\
+`The Israeli prime minister, under pressure from all sides, is trying to reassure his many domestic, military and diplomatic critics. Here’s a look at what he is confronting.`\
+https://nytimes.com/2024/05/08/world/europe/netanyahu-israel-gaza-ceasefire.html
+
 **Biden Puts Arms Shipment to Israel on Hold Amid Dispute Over Rafah Attack**\
 `The United States withheld 3,500 bombs last week out of concern that they might be used in a major assault against the southern Gaza city over the objections of American officials.`\
 https://nytimes.com/2024/05/07/us/politics/israel-biden-arms.html
