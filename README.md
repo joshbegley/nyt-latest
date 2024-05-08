@@ -1,3 +1,7 @@
+**‘Bodkin’ Review: Crime in a Small Town? Send in the Podcasters**\
+`This Netflix series is about a true-crime podcast but plays more like a mopey murder show.`\
+https://nytimes.com/2024/05/08/arts/television/bodkin-review.html
+
 **Israel’s Eurovision Entrant Faces Down Her Critics**\
 `Campaigners have unsuccessfully urged the Eurovision Song Contest to ban Eden Golan because of her country’s war in Gaza. “I won’t let anything break me,” she said.`\
 https://nytimes.com/2024/05/08/arts/music/eurovision-israel-eden-golan-hurricane.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/08/technology/google-ai-molecules-alphafold3.html
 **Environmental Changes Are Fueling Human, Animal and Plant Diseases, Study Finds**\
 `Biodiversity loss, global warming, pollution and the spread of invasive species are making infectious diseases more dangerous to organisms around the world.`\
 https://nytimes.com/2024/05/08/health/environment-climate-health.html
-
-**‘Kingdom of the Planet of the Apes’ Review: Hail, Caesar**\
-`The latest installment in an excellent series finds mythology turning into power.`\
-https://nytimes.com/2024/05/08/movies/kingdom-of-the-planet-of-the-apes-review.html
 
