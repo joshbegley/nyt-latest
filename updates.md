@@ -1,3 +1,7 @@
+**Apple’s New iPad Ad Leaves Its Creative Audience Feeling … Flat**\
+`An ad meant to show how the updated device can do many things has become a metaphor for a community’s fears of the technology industry.`\
+https://nytimes.com/2024/05/08/business/apple-ipad-crush-ad.html
+
 **2 Sentenced to Decades in Prison in 1-Year-Old Brooklyn Boy’s Killing**\
 `Davell Gardner was in his stroller at a nighttime cookout in July 2020 when he was hit by a stray bullet fired amid a bloody gang rivalry, prosecutors said.`\
 https://nytimes.com/2024/05/08/nyregion/davell-gardner-shooting-brooklyn.html
