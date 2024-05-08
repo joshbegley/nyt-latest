@@ -1,3 +1,11 @@
+**How is this hearing different from ones on antisemitism on college campuses?**\
+`By Dana Goldstein`\
+https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/how-is-this-hearing-different-from-ones-on-antisemitism-on-college-campuses
+
+**Biden Looks to Thwart Surge of Chinese Imports**\
+`The president has proposed new barriers to Chinese electric vehicles, steel and other goods that could undermine his manufacturing agenda.`\
+https://nytimes.com/2024/05/08/us/politics/biden-china-imports.html
+
 **Israel presses on with its operation near the Rafah crossing as Gazan officials warn of a rising death toll.**\
 `By Liam Stack and Abu Bakr Bashir`\
 https://nytimes.com/live/2024/05/08/world/israel-gaza-war-hamas-rafah/israel-presses-on-with-its-operation-near-the-rafah-crossing-as-gazan-officials-warn-of-a-rising-death-toll
