@@ -1,3 +1,7 @@
+**TikTok’s Legal Bet on the First Amendment**\
+`The popular video-sharing app faces uncertain odds as it takes its fight to court to turn back a potential ban in the United States.`\
+https://nytimes.com/2024/05/08/business/dealbook/tiktok-lawsuit-first-amendment.html
+
 **A Cicada’s Guide to Periodical Romance**\
 `It may sound like a mosh pit out there. But to the participants, mating is a delicate, sonorous affair, fraught with potential missteps — and fungal zombies.`\
 https://nytimes.com/2024/05/08/science/periodical-cicadas-mating.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/08/us/usc-graduation-protests.html
 **Biden to Announce A.I. Center in Wisconsin as Part of Economic Agenda**\
 `The president’s visit will highlight the investment by Microsoft and point to a failed Foxconn project negotiated by Donald J. Trump.`\
 https://nytimes.com/2024/05/08/us/politics/biden-data-center-wisconsin.html
-
-**The Happiness Gap Between Left and Right Isn’t Closing**\
-`Why is it that a substantial body of social science research finds that conservatives are happier than liberals?`\
-https://nytimes.com/2024/05/08/opinion/conservatives-liberals-depression-anxiety.html
 
