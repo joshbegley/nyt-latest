@@ -1,3 +1,7 @@
+**In Berkeley, anti-Israel lesson plans have stirred a debate.**\
+`By Dana Goldstein`\
+https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/in-berkeley-anti-israel-lesson-plans-have-stirred-a-debate
+
 **A pro-Israel teacher was targeted in a raucous protest at a Queens school.**\
 `By Troy Closson`\
 https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/a-pro-israel-teacher-was-targeted-in-a-raucous-protest-at-a-queens-school
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/four
 **New York teachers have faced backlash over their response to the war.**\
 `By Troy Closson`\
 https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/new-york-teachers-have-faced-backlash-over-their-response-to-the-war
-
-**In Serbia, Xi Underlines Close Ties With Ally That Shares Wariness of U.S.**\
-`Visiting friendly leaders in Eastern Europe, the Chinese president commemorated the 25th anniversary of a misdirected U.S. airstrike that destroyed China’s embassy in Belgrade.`\
-https://nytimes.com/2024/05/08/world/europe/xi-jinping-china-serbia-visit.html
 
