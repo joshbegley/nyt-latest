@@ -1,3 +1,7 @@
+**Russia Hits Ukrainian Power Plants, Further Straining Energy System**\
+`The assault, a day after Vladimir V. Putin was sworn in for a fifth term as Russian president, is part of a wider campaign to cut off power to Ukraine’s civilians.`\
+https://nytimes.com/2024/05/08/world/europe/russia-ukraine-power-plants-attack.html
+
 **An Overlooked War**\
 `In Myanmar, poets, doctors and lawyers have traded life in the cities for jungle warfare.`\
 https://nytimes.com/2024/05/08/briefing/myanmar-civil-war.html
