@@ -1,3 +1,11 @@
+**Neil Portnow Accuser Asks Court to Dismiss Her Sexual Assault Lawsuit**\
+`The woman, who sued the former head of the Grammy Awards anonymously, expressed concern that her identity would be revealed in the proceedings.`\
+https://nytimes.com/2024/05/08/arts/music/neil-portnow-accuser-dismiss-sexual-assault-lawsuit.html
+
+**Testifying in Congress can be a minefield. So why do it?**\
+`By Annie Karni`\
+https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/testifying-in-congress-can-be-a-minefield-so-why-do-it
+
 **How to Define ‘Antisemitism’ Is a Subject of Bitter Debate.**\
 `Activists, university officials and political leaders are deeply divided over what, precisely, constitutes antisemitism.`\
 https://nytimes.com/2024/05/08/us/antisemitism-definition-debate.html

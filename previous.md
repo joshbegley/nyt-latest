@@ -1,3 +1,11 @@
+**Neil Portnow Accuser Asks Court to Dismiss Her Sexual Assault Lawsuit**\
+`The woman, who sued the former head of the Grammy Awards anonymously, expressed concern that her identity would be revealed in the proceedings.`\
+https://nytimes.com/2024/05/08/arts/music/neil-portnow-accuser-dismiss-sexual-assault-lawsuit.html
+
+**Testifying in Congress can be a minefield. So why do it?**\
+`By Annie Karni`\
+https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/testifying-in-congress-can-be-a-minefield-so-why-do-it
+
 **How to Define ‘Antisemitism’ Is a Subject of Bitter Debate.**\
 `Activists, university officials and political leaders are deeply divided over what, precisely, constitutes antisemitism.`\
 https://nytimes.com/2024/05/08/us/antisemitism-definition-debate.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/08/business/bill-hwang-archegos-trial.html
 **Judy Devlin Hashman, Record-Holding Badminton Champion, Dies at 88**\
 `She won 10 singles titles at the prestigious all-England championships.`\
 https://nytimes.com/2024/05/08/sports/judy-devlin-hashman-dead.html
-
-**TikTok’s Legal Bet on the First Amendment**\
-`The popular video-sharing app faces uncertain odds as it takes its fight to court to turn back a potential ban in the United States.`\
-https://nytimes.com/2024/05/08/business/dealbook/tiktok-lawsuit-first-amendment.html
-
-**A Cicada’s Guide to Periodical Romance**\
-`It may sound like a mosh pit out there. But to the participants, mating is a delicate, sonorous affair, fraught with potential missteps — and fungal zombies.`\
-https://nytimes.com/2024/05/08/science/periodical-cicadas-mating.html
 
