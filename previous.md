@@ -1,3 +1,11 @@
+**Four teachers were suspended at Montgomery County schools.**\
+`By Campbell Robertson`\
+https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/four-teachers-were-suspended-at-montgomery-county-schools
+
+**New York teachers have faced backlash over their response to the war.**\
+`By Troy Closson`\
+https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/new-york-teachers-have-faced-backlash-over-their-response-to-the-war
+
 **In Serbia, Xi Underlines Close Ties With Ally That Shares Wariness of U.S.**\
 `Visiting friendly leaders in Eastern Europe, the Chinese president commemorated the 25th anniversary of a misdirected U.S. airstrike that destroyed China’s embassy in Belgrade.`\
 https://nytimes.com/2024/05/08/world/europe/xi-jinping-china-serbia-visit.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/07/opinion/greene-johnson-fizzled-rebellion.html
 **China Is Way Ahead in Green Energy. Here’s Why That’s Risky for the U.S.**\
 `Beijing’s dominance raises economic and security concerns, and tensions will be on full display as top climate diplomats meet this week.`\
 https://nytimes.com/2024/05/08/climate/china-us-podesta-liu.html
-
-**What power does Congress have over K-12 schools?**\
-`By Dana Goldstein`\
-https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/what-power-does-congress-have-over-k-12-schools
-
-**Man Is Charged After Hitting Protester With His Car Near Columbia**\
-`Two demonstrators whom the driver, Reuven Kahane, was arguing with were also arrested and charged.`\
-https://nytimes.com/2024/05/08/nyregion/columbia-driver-arrested-pro-palestinian-protesters.html
 
