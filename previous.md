@@ -1,3 +1,11 @@
+**Georgia Court Will Hear Appeal of Ruling That Kept Prosecutor on Trump Case**\
+`The decision to hear the appeal reopens the possibility that Fani T. Willis, the Fulton County district attorney, could be disqualified from prosecuting Donald Trump and 14 allies over efforts to overturn the 2020 election.`\
+https://nytimes.com/2024/05/08/us/trump-fani-willis-appeals-court.html
+
+**The Fizzled Rebellion of the House Extremists**\
+`Marjorie Taylor Greene never had enough juice to oust Speaker Mike Johnson.`\
+https://nytimes.com/2024/05/07/opinion/greene-johnson-fizzled-rebellion.html
+
 **China Is Way Ahead in Green Energy. Here’s Why That’s Risky for the U.S.**\
 `Beijing’s dominance raises economic and security concerns, and tensions will be on full display as top climate diplomats meet this week.`\
 https://nytimes.com/2024/05/08/climate/china-us-podesta-liu.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/08/arts/music/neil-portnow-accuser-dismiss-sexual-as
 **Testifying in Congress can be a minefield. So why do it?**\
 `By Annie Karni`\
 https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/testifying-in-congress-can-be-a-minefield-so-why-do-it
-
-**How to Define ‘Antisemitism’ Is a Subject of Bitter Debate.**\
-`Activists, university officials and political leaders are deeply divided over what, precisely, constitutes antisemitism.`\
-https://nytimes.com/2024/05/08/us/antisemitism-definition-debate.html
-
-**Berkeley Schools Superintendent to Testify Today on Capitol Hill**\
-`Three leaders of major public school systems will appear before members of a House committee looking into claims of antisemitism in schools.`\
-https://nytimes.com/2024/05/08/us/berkeley-superintendent-congress-antisemitism.html
 

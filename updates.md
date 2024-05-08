@@ -1,3 +1,11 @@
+**Georgia Court Will Hear Appeal of Ruling That Kept Prosecutor on Trump Case**\
+`The decision to hear the appeal reopens the possibility that Fani T. Willis, the Fulton County district attorney, could be disqualified from prosecuting Donald Trump and 14 allies over efforts to overturn the 2020 election.`\
+https://nytimes.com/2024/05/08/us/trump-fani-willis-appeals-court.html
+
+**The Fizzled Rebellion of the House Extremists**\
+`Marjorie Taylor Greene never had enough juice to oust Speaker Mike Johnson.`\
+https://nytimes.com/2024/05/07/opinion/greene-johnson-fizzled-rebellion.html
+
 **China Is Way Ahead in Green Energy. Here’s Why That’s Risky for the U.S.**\
 `Beijing’s dominance raises economic and security concerns, and tensions will be on full display as top climate diplomats meet this week.`\
 https://nytimes.com/2024/05/08/climate/china-us-podesta-liu.html
