@@ -1,3 +1,11 @@
+**Major gaps with Hamas remain, Israeli officials say.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/05/08/world/israel-gaza-war-hamas-rafah/major-gaps-with-hamas-remain-israeli-officials-say
+
+**Israel reopens one of two Gaza crossings it had closed.**\
+`By Cassandra Vinograd and Erin Mendell`\
+https://nytimes.com/live/2024/05/08/world/israel-gaza-war-hamas-rafah/israel-reopens-one-of-two-gaza-crossings-it-had-closed
+
 **Rolling Blackouts Hit Several Cities as Heat Wave Scorches Mexico**\
 `Cities were plunged into darkness as scorching temperatures strained the national energy grid.`\
 https://nytimes.com/2024/05/08/world/americas/mexico-blackout-heat-wave.html
