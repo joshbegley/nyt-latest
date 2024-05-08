@@ -1,3 +1,11 @@
+**Word of the Day: accolade**\
+`This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/08/learning/word-of-the-day-accolade.html
+
+**Jimmy Kimmel Wants the Dirty Details From Stormy Daniels**\
+`The host disagreed with a judge who said Daniels could skip some of the specifics of her encounter with Donald Trump. “Some of us are trying to host a show here, OK?”`\
+https://nytimes.com/2024/05/08/arts/television/jimmy-kimmel-stormy-daniels-trump.html
+
 **FTX Customers Poised to Recover All Funds Lost in Collapse**\
 `Bankruptcy lawyers for FTX said that customers of the cryptocurrency exchange were set to get all their money back, plus interest.`\
 https://nytimes.com/2024/05/08/business/ftx-bankruptcy-recovery.html

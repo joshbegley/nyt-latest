@@ -1,3 +1,11 @@
+**Word of the Day: accolade**\
+`This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/08/learning/word-of-the-day-accolade.html
+
+**Jimmy Kimmel Wants the Dirty Details From Stormy Daniels**\
+`The host disagreed with a judge who said Daniels could skip some of the specifics of her encounter with Donald Trump. “Some of us are trying to host a show here, OK?”`\
+https://nytimes.com/2024/05/08/arts/television/jimmy-kimmel-stormy-daniels-trump.html
+
 **FTX Customers Poised to Recover All Funds Lost in Collapse**\
 `Bankruptcy lawyers for FTX said that customers of the cryptocurrency exchange were set to get all their money back, plus interest.`\
 https://nytimes.com/2024/05/08/business/ftx-bankruptcy-recovery.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/08/world/europe/netanyahu-israel-gaza-ceasefire.html
 **Biden Puts Arms Shipment to Israel on Hold Amid Dispute Over Rafah Attack**\
 `The United States withheld 3,500 bombs last week out of concern that they might be used in a major assault against the southern Gaza city, officials said.`\
 https://nytimes.com/2024/05/07/us/politics/israel-biden-arms.html
-
-**Quotation of the Day:Facing Labor Shortages, Japan Moves to Advance Working Women**\
-`Quotation of the Day for Wednesday, May 8, 2024.`\
-https://nytimes.com/2024/05/07/pageoneplus/quotation-of-the-dayfacing-labor-shortages-japan-moves-to-advance-working-women.html
-
-**Former Soldier Convicted in Killing of Pregnant Army Private Two Decades Ago**\
-`A federal jury found the former soldier, Shannon L. Wilkerson, 43, guilty of second-degree murder in the death of Pvt. Amanda Gonzales on Nov. 3, 2001.`\
-https://nytimes.com/2024/05/07/us/amanda-gonzales-murder-army-soldier.html
 
