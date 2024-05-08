@@ -1,3 +1,15 @@
+**Sony and Apollo’s Plan for Paramount: Break It Up**\
+`CBS and other well-known properties would be sold if Sony and Apollo are able to buy Paramount. But the new owners would keep the movie studio.`\
+https://nytimes.com/2024/05/08/business/media/sony-apollo-paramount-plan.html
+
+**Young Voters Aren’t Happy With Biden. But Will They Abandon Him?**\
+`The president’s complicated relationship with a key demographic.`\
+https://nytimes.com/2024/05/08/opinion/biden-young-voters-gaza.html
+
+**Disney, Hulu and Max Streaming Bundle Will Soon Become Available**\
+`The offering from Disney and Warner Bros. Discovery shows how rival companies are willing to work together to navigate an uncertain entertainment landscape.`\
+https://nytimes.com/2024/05/08/business/media/disney-plus-max-streaming-bundle.html
+
 **‘Someone’s Going to End Up Dead’: Settlements Over Fatal Astroworld Concert**\
 `A trial had been set to hear evidence that organizers of a 2021 Travis Scott concert knew the crowd was too large and ignored pleas to stop it as 10 people were crushed.`\
 https://nytimes.com/2024/05/08/us/astroworld-travis-scott-concert-deaths.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/08/well/live/brain-worm-parasites-rfk-jr.html
 **César Luis Menotti, Who Coached Argentina to a World Cup, Dies at 85**\
 `He led the national team to a championship in 1978 but was convinced that it didn’t get the recognition it deserved in the shadow of the country’s dictatorship.`\
 https://nytimes.com/2024/05/08/sports/soccer/cesar-luis-menotti-dead.html
-
-**Barbara Stauffacher Solomon, Pioneer of Supergraphics, Dies at 95**\
-`Trained as a ballet dancer, painter and graphic designer, she was at the forefront of a movement that upended design and architecture with bold graphics.`\
-https://nytimes.com/2024/05/08/arts/design/barbara-stauffacher-solomon-dead.html
-
-**Turning Point or Breaking Point? Biden’s Pause on Weapons Tests Ties to Israel**\
-`President Biden hopes the decision to withhold the delivery of 3,500 bombs will prompt Israel to change course in its war in Gaza.`\
-https://nytimes.com/2024/05/08/us/politics/biden-bombs-israel.html
-
-**Johnson Survives Greene’s Ouster Attempt as Democrats Join G.O.P. to Kill It**\
-`Republicans and Democrats banded together to block a motion by the right-wing Georgia congresswoman to remove the speaker.`\
-https://nytimes.com/2024/05/08/us/politics/greene-johnson-vacate.html
 
