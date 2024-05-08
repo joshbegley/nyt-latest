@@ -1,3 +1,7 @@
+**Kim Ki-Nam, Chief Propagandist in North Korea for Decades, Dies at 94**\
+`Mr. Kim, who served under all three generations of the country’s ruling family, was likened to Joseph Goebbels, Nazi Germany’s propaganda minister.`\
+https://nytimes.com/2024/05/08/world/asia/north-korea-propagandist-goebbels.html
+
 **A Paused Arms Shipment to Israel, and R.F.K. Jr.’s Health Record**\
 `Plus, Stormy Daniels unfiltered.`\
 https://nytimes.com/2024/05/08/podcasts/israel-arms-rfk-jr-brain-parasite.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/08/us/nyc-chancellor-prepared-congressional-hearing.
 **Three Reasons the Campus Protests Are Part of the Problem**\
 `I don’t think the protests are antisemitic. But they undercut the only fair and just solution to the war.`\
 https://nytimes.com/2024/05/08/opinion/campus-protests-gaza.html
-
-**What Amazes You Most About Animals?**\
-`Cheetahs can reach speeds of 58 m.p.h. or more. Bats use echolocation to fly in the dark. What do you find extraordinary about animals?`\
-https://nytimes.com/2024/05/08/learning/what-amazes-you-most-about-animals.html
 
