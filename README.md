@@ -1,3 +1,7 @@
+**Homeowners Who Planned to Demolish Marilyn Monroe House Sue Los Angeles**\
+`The owners of the property where the actress lived and died accuse the city of engaging in “backroom machinations” to landmark her home and save it from demolition.`\
+https://nytimes.com/2024/05/08/us/marilyn-monroe-house-lawsuit-los-angeles.html
+
 **Images of a Brazilian City Underwater**\
 `Torrential rains have caused one of Brazil’s worst floods in modern history, leaving at least 100 dead and nearly an entire state submerged.`\
 https://nytimes.com/2024/05/08/world/americas/brazil-flooding-photos.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/08/style/camille-charriere-kim-kardashian-skims.html
 **In Combative Hearing, New York School Chief Turns Tables on Republicans**\
 `Under aggressive, rapid-fire questioning, David C. Banks, the chancellor of New York City schools, pushed back hard on accusations that the district had allowed antisemitism to fester.`\
 https://nytimes.com/2024/05/08/nyregion/banks-responses-combative-hearing.html
-
-**An Inside Look at the Student Takeover of Columbia’s Hamilton Hall**\
-`Maintenance workers had a firsthand view of how protesters seized the building, and wondered why the university failed to stop it.`\
-https://nytimes.com/2024/05/08/nyregion/columbia-hamilton-hall-protests.html
 
