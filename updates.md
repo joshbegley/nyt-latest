@@ -1,3 +1,15 @@
+**Iran and Israel Weren’t Always Enemies**\
+`As long as Iran is ruled by a government that puts ideology before its national interest, the Middle East will never know meaningful stability.`\
+https://nytimes.com/2024/05/08/opinion/iran-israel-middle-east.html
+
+**Ian Gelder, ‘Game of Thrones’ Actor, Dies at 74**\
+`He played Kevan Lannister, the brother of feared patriarch Tywin, and was diagnosed with bile duct cancer five months ago.`\
+https://nytimes.com/2024/05/08/arts/television/ian-gelder-dead.html
+
+**Using Cartoonish Accents, J.F.K.’s Grandson Insults and Mocks Robert F. Kennedy Jr.**\
+`In an escalation of the family feud, the son of Caroline Kennedy suggested that his cousin, the presidential candidate, is on steroids, not too smart and a liar.`\
+https://nytimes.com/2024/05/08/us/politics/rfk-jr-jack-schlossberg.html
+
 **Wednesday Briefing**\
 `Israel’s incursion into Rafah.`\
 https://nytimes.com/2024/05/08/briefing/rafah-incursion-stormy-daniels.html
