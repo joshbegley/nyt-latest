@@ -1,3 +1,7 @@
+**Wednesday Briefing**\
+`Israel’s incursion into Rafah.`\
+https://nytimes.com/2024/05/08/briefing/rafah-incursion-stormy-daniels.html
+
 **With a Gaza Cease-Fire in the Balance, Netanyahu Maneuvers to Keep Power**\
 `The Israeli prime minister, under pressure from all sides, is trying to reassure his many domestic, military and diplomatic critics. Here’s a look at what he is confronting.`\
 https://nytimes.com/2024/05/08/world/europe/netanyahu-israel-gaza-ceasefire.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/nyregion/100000009451007/stormy-daniels-tells-her-stor
 **Canada Re-Criminalizes Public Drug Use in British Columbia**\
 `A province that was a global pioneer in harm reduction took a step back after a political backlash.`\
 https://nytimes.com/2024/05/07/world/canada/british-columbia-public-drug-use.html
-
-**Transcript of Trump Manhattan Trial, May 6, 2024**\
-`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
-https://nytimes.com/interactive/2024/05/07/nyregion/trump-hush-money-trial-transcript-may-6.html
 
