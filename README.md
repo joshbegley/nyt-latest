@@ -1,3 +1,7 @@
+**Britain to Expel Russian Defense Attaché and Close Some Diplomatic Sites**\
+`The British home secretary, James Cleverly, accused Russia’s foreign intelligence service of a pattern of “malign activity” in Britain and Europe.`\
+https://nytimes.com/2024/05/08/world/europe/britain-russia-defense-attache-moscow.html
+
 **Homeowners Who Planned to Demolish Marilyn Monroe House Sue Los Angeles**\
 `The owners of the property where the actress lived and died accuse the city of engaging in “backroom machinations” to landmark her home and save it from demolition.`\
 https://nytimes.com/2024/05/08/us/marilyn-monroe-house-lawsuit-los-angeles.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/08/opinion/trump-sex-scandal-grover-cleveland.html
 **Why Did Camille Charrière Pick a Fight With Kim Kardashian?**\
 `A fashion influencer stirred things up — not necessarily in a good way — by comparing her work to a collection by Skims. She’d rather talk about sustainability.`\
 https://nytimes.com/2024/05/08/style/camille-charriere-kim-kardashian-skims.html
-
-**In Combative Hearing, New York School Chief Turns Tables on Republicans**\
-`Under aggressive, rapid-fire questioning, David C. Banks, the chancellor of New York City schools, pushed back hard on accusations that the district had allowed antisemitism to fester.`\
-https://nytimes.com/2024/05/08/nyregion/banks-responses-combative-hearing.html
 
