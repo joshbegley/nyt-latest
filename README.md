@@ -1,7 +1,3 @@
-**08k12-antisemitism**\
-`Live Updates: House to Examine K-12 Schools in Latest Antisemitism Hearing`\
-https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education
-
 **When There’s Nowhere for Your Children to Be Safe**\
 `The near-impossible challenge of parenting an adult with severe mental illness.`\
 https://nytimes.com/2024/05/08/opinion/adult-children-mental-illness.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/05/08/business/media/new-york-times-earnings.html
 **Russia Hits Ukrainian Power Plants, Further Straining Energy System**\
 `The assault, a day after Vladimir V. Putin was sworn in for a fifth term as Russian president, is part of a wider campaign to cut off power to Ukraine’s civilians.`\
 https://nytimes.com/2024/05/08/world/europe/russia-ukraine-power-plants-attack.html
+
+**An Overlooked War**\
+`In Myanmar, poets, doctors and lawyers have traded life in the cities for jungle warfare.`\
+https://nytimes.com/2024/05/08/briefing/myanmar-civil-war.html
 
