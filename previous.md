@@ -1,3 +1,7 @@
+**Grover Cleveland Didn’t Lie About His Sex Scandal**\
+`“Ma, ma, where’s my pa?”`\
+https://nytimes.com/2024/05/08/opinion/trump-sex-scandal-grover-cleveland.html
+
 **Why Did Camille Charrière Pick a Fight With Kim Kardashian?**\
 `A fashion influencer stirred things up — not necessarily in a good way — by comparing her work to a collection by Skims. She’d rather talk about sustainability.`\
 https://nytimes.com/2024/05/08/style/camille-charriere-kim-kardashian-skims.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/08/world/europe/olympic-torch-france-marseille.html
 **A Judge’s Dilemma: How to Punish Trump for Gag Order Violations**\
 `Readers discuss Justice Juan Merchan’s options. Also: If there’s a Trump conviction; TikTok and China; abortion exceptions; saving the bees.`\
 https://nytimes.com/2024/05/08/opinion/trump-gag-order.html
-
-**Tim Scott Fund-Raiser Includes Trump-Resistant Donors as V.P. Race Heats Up**\
-`The South Carolina senator is said to be high on Donald Trump’s list of potential running mates, and his fund-raising ability could lift his chances of being selected.`\
-https://nytimes.com/2024/05/08/us/politics/tim-scott-trump-fundraiser.html
 

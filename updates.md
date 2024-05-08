@@ -1,3 +1,7 @@
+**Grover Cleveland Didn’t Lie About His Sex Scandal**\
+`“Ma, ma, where’s my pa?”`\
+https://nytimes.com/2024/05/08/opinion/trump-sex-scandal-grover-cleveland.html
+
 **Why Did Camille Charrière Pick a Fight With Kim Kardashian?**\
 `A fashion influencer stirred things up — not necessarily in a good way — by comparing her work to a collection by Skims. She’d rather talk about sustainability.`\
 https://nytimes.com/2024/05/08/style/camille-charriere-kim-kardashian-skims.html
