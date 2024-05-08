@@ -1,3 +1,7 @@
+**Bill Hwang, Whose Firm Archegos Collapsed in 2021, Is About to Go on Trial**\
+`The hedge fund is accused of borrowing money from banks to buy stocks.`\
+https://nytimes.com/2024/05/08/business/bill-hwang-archegos-trial.html
+
 **Judy Devlin Hashman, Record-Holding Badminton Champion, Dies at 88**\
 `She won 10 singles titles at the prestigious all-England championships.`\
 https://nytimes.com/2024/05/08/sports/judy-devlin-hashman-dead.html
