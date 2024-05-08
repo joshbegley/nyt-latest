@@ -31,7 +31,7 @@ https://nytimes.com/2024/05/08/us/antisemitism-definition-debate.html
 https://nytimes.com/2024/05/08/us/berkeley-superintendent-congress-antisemitism.html
 
 **08k12-antisemitism**\
-`Live Updates: House to Examine K-12 Schools in Latest Antisemitism Hearing`\
+`Live Updates: House Examining K-12 Schools in Latest Antisemitism Hearing`\
 https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education
 
 **When There’s Nowhere for Your Children to Be Safe**\
