@@ -1,3 +1,7 @@
+**Britain to Expel Russian Defense Attaché and Close Some Diplomatic Sites**\
+`The British home secretary, James Cleverly, accused Russia’s foreign intelligence service of a pattern of “malign activity” in Britain and Europe.`\
+https://nytimes.com/2024/05/08/world/europe/britain-russia-defense-attache-moscow.html
+
 **Homeowners Who Planned to Demolish Marilyn Monroe House Sue Los Angeles**\
 `The owners of the property where the actress lived and died accuse the city of engaging in “backroom machinations” to landmark her home and save it from demolition.`\
 https://nytimes.com/2024/05/08/us/marilyn-monroe-house-lawsuit-los-angeles.html
