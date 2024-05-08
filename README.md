@@ -1,3 +1,15 @@
+**Biden Says the U.S. Will Not Supply Israel With Weapons to Attack Rafah**\
+`The president’s remarks underscore the growing rift between the United States and its closest Middle East ally over the war in Gaza.`\
+https://nytimes.com/2024/05/08/us/politics/biden-israel-weapons-rafah.html
+
+**‘If they go into Rafah, I’m not going to be supplying the weapons,’ Biden says.**\
+`By Reid J. Epstein`\
+https://nytimes.com/live/2024/05/08/world/israel-gaza-war-hamas-rafah/if-they-go-into-rafah-im-not-going-to-be-supplying-the-weapons-biden-says
+
+**Sunak to Urge University Leaders to Protect Jewish Students on Campus**\
+`Prime Minister Rishi Sunak will meet with a group of British university leaders on Thursday to discuss ways to tackle antisemitism, as pro-Palestinian protests on campuses spread.`\
+https://nytimes.com/2024/05/08/world/europe/sunak-uk-university-campus-protests.html
+
 **Sony and Apollo’s Plan for Paramount: Break It Up**\
 `CBS and other well-known properties would be sold if Sony and Apollo are able to buy Paramount. But the new owners would keep the movie studio.`\
 https://nytimes.com/2024/05/08/business/media/sony-apollo-paramount-plan.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/08/world/europe/ireland-trinity-college-protests.htm
 **The U.S. Increased Its Pressure on Israel to Reach a Truce**\
 `Also, Biden and Harris hit the campaign trail. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/05/08/briefing/us-israel-weapons-biden-harris-campaign.html
-
-**Betye Saar Remains Guided by the Spirit**\
-`The 97-year-old artist’s newest works reflect her decades-long interest in cultural artifacts and self-emancipation.`\
-https://nytimes.com/2024/05/08/t-magazine/betye-saar-huntington-roberts-projects.html
-
-**But How Does the Worm Get in Your Brain?**\
-`And other questions about parasites.`\
-https://nytimes.com/2024/05/08/well/live/brain-worm-parasites-rfk-jr.html
-
-**César Luis Menotti, Who Coached Argentina to a World Cup, Dies at 85**\
-`He led the national team to a championship in 1978 but was convinced that it didn’t get the recognition it deserved in the shadow of the country’s dictatorship.`\
-https://nytimes.com/2024/05/08/sports/soccer/cesar-luis-menotti-dead.html
 
