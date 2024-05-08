@@ -1,3 +1,11 @@
+**To protest the war in Gaza, Berkeley students staged walkouts from classes.**\
+`By Kurt Streeter`\
+https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/to-protest-the-war-in-gaza-berkeley-students-staged-walkouts-from-classes
+
+**Reported antisemitism in Montgomery County included swastikas and ‘Jews Not Welcome’ graffiti.**\
+`Montgomery County, a suburb of Washington D.C., is about 10 per`\
+https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/reported-antisemitism-in-montgomery-county-included-swastikas-and-jews-not-welcome-graffiti
+
 **What are the demands being made to the school districts?**\
 `By Dana Goldstein`\
 https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/what-are-the-demands-being-made-to-the-school-districts
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/08/arts/television/bodkin-review.html
 **Israel’s Eurovision Entrant Faces Down Her Critics**\
 `Campaigners have unsuccessfully urged the Eurovision Song Contest to ban Eden Golan because of her country’s war in Gaza. “I won’t let anything break me,” she said.`\
 https://nytimes.com/2024/05/08/arts/music/eurovision-israel-eden-golan-hurricane.html
-
-**We’re Together. Just Not in Pictures.**\
-`A buzzy couple’s separate arrivals on the Met Gala red carpet offer a reminder of the value of a solo photo op.`\
-https://nytimes.com/2024/05/08/style/sabrina-carpenter-barry-keoghan-met-gala.html
-
-**In a Poem, Just Who Is ‘the Speaker,’ Anyway?**\
-`Critics and readers love the term, but it can be awfully slippery to pin down. That’s what makes it so fun to try.`\
-https://nytimes.com/2024/05/08/books/review/on-poetry-who-is-the-speaker.html
 
