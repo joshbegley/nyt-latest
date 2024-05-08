@@ -1,3 +1,7 @@
+**For American Jews, Biden’s Speech on Antisemitism Offers Recognition and Healing**\
+`While his message resonated with many Jewish leaders, the president’s remarks drew criticism from Republicans and supporters of Palestinians on the left.`\
+https://nytimes.com/2024/05/07/us/politics/biden-antisemitism-speech-reactions.html
+
 **Kai Cenat Resolves Union Square Melee Charges With Apology, Officials Say**\
 `The social media superstar known for marathon streaming sessions was charged with inciting a riot after a video game console giveaway erupted in mayhem last summer.`\
 https://nytimes.com/2024/05/07/nyregion/kai-cenat-union-square-charges.html

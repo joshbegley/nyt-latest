@@ -1,3 +1,7 @@
+**For American Jews, Biden’s Speech on Antisemitism Offers Recognition and Healing**\
+`While his message resonated with many Jewish leaders, the president’s remarks drew criticism from Republicans and supporters of Palestinians on the left.`\
+https://nytimes.com/2024/05/07/us/politics/biden-antisemitism-speech-reactions.html
+
 **Kai Cenat Resolves Union Square Melee Charges With Apology, Officials Say**\
 `The social media superstar known for marathon streaming sessions was charged with inciting a riot after a video game console giveaway erupted in mayhem last summer.`\
 https://nytimes.com/2024/05/07/nyregion/kai-cenat-union-square-charges.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/07/us/indiana-governor-primary.html
 **When These Snakes Play Dead, Soiling Themselves Is Part of the Act**\
 `Dice snakes found on an island in southeastern Europe fully commit themselves to the role of ex-reptile.`\
 https://nytimes.com/2024/05/07/science/snakes-playing-dead.html
-
-**Stormy Daniels Delivers Intense Testimony in Trump’s Trial: 6 Takeaways**\
-`A long day on the stand put Ms. Daniels’s credibility to the test as defense lawyers challenged her motives.`\
-https://nytimes.com/2024/05/07/nyregion/stormy-daniels-trump-hush-money.html
 
