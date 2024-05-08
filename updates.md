@@ -1,3 +1,7 @@
+**Israel presses on with its operation near the Rafah crossing as Gazan officials warn of a rising death toll.**\
+`By Liam Stack and Abu Bakr Bashir`\
+https://nytimes.com/live/2024/05/08/world/israel-gaza-war-hamas-rafah/israel-presses-on-with-its-operation-near-the-rafah-crossing-as-gazan-officials-warn-of-a-rising-death-toll
+
 **Neil Portnow Accuser Asks Court to Dismiss Her Sexual Assault Lawsuit**\
 `The woman, who sued the former head of the Grammy Awards anonymously, expressed concern that her identity would be revealed in the proceedings.`\
 https://nytimes.com/2024/05/08/arts/music/neil-portnow-accuser-dismiss-sexual-assault-lawsuit.html
