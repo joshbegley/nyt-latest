@@ -1,3 +1,7 @@
+**A Judge’s Dilemma: How to Punish Trump for Gag Order Violations**\
+`Readers discuss Justice Juan Merchan’s options. Also: If there’s a Trump conviction; TikTok and China; abortion exceptions; saving the bees.`\
+https://nytimes.com/2024/05/08/opinion/trump-gag-order.html
+
 **Tim Scott Fund-Raiser Includes Trump-Resistant Donors as V.P. Race Heats Up**\
 `The South Carolina senator is said to be high on Donald Trump’s list of potential running mates, and his fund-raising ability could lift his chances of being selected.`\
 https://nytimes.com/2024/05/08/us/politics/tim-scott-trump-fundraiser.html
