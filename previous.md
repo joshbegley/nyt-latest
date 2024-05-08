@@ -1,40 +1,40 @@
-**Chicago Would Like Everyone to Stop Talking About 1968**\
-`As the city prepares to host the Democratic National Convention, it wants to shed memories of chaos from half a century ago even as protests are growing.`\
-https://nytimes.com/2024/05/08/us/chicago-dnc-1968-protests.html
+**The Happiness Gap Between Left and Right Isn’t Closing**\
+`Why is it that a substantial body of social science research finds that conservatives are happier than liberals?`\
+https://nytimes.com/2024/05/08/opinion/conservatives-liberals-depression-anxiety.html
 
-**For Her Broadway Debut, She Sings Alicia Keys’s Story**\
-`Maleah Joi Moon almost gave up on theater. Now, in her first professional role, the “Hell’s Kitchen” star is a Tony nominee.`\
-https://nytimes.com/2024/05/08/theater/maleah-joi-moon-hells-kitchen-alicia-keys.html
+**Activist Investor Seeks to Force Out Norfolk Southern’s Management**\
+`A year after a derailment in Ohio raised questions about rail safety, an investment firm is seeking to install new management in an effort to increase profits.`\
+https://nytimes.com/2024/05/08/business/norfolk-southern-activist-investor.html
 
-**The Constant Work to Keep a Family Connected Has a Name**\
-`“Kinkeeping” plays a crucial role in a family’s health and well-being, and it’s still predominantly done by women.`\
-https://nytimes.com/2024/05/08/well/family/kinkeeping-families.html
+**Was the 401(k) a Mistake?**\
+`How an obscure, 45-year old tax change transformed retirement and left so many Americans out in the cold.`\
+https://nytimes.com/2024/05/08/magazine/401k-retirement-crisis.html
 
-**The Teenage Witches Are Growing Up**\
-`New books by H.A. Clarke, Robert Jackson Bennett and Micaiah Johnson.`\
-https://nytimes.com/2024/05/08/books/review/clarke-bennett-johnson.html
+**How the New York City Chancellor Prepared for a Congressional Grilling**\
+`As David C. Banks prepares to testify about antisemitism in the New York City schools, he said he wasn’t intimidated by congressional Republicans.`\
+https://nytimes.com/2024/05/08/us/nyc-chancellor-prepared-congressional-hearing.html
 
-**Billions in Chips Grants Are Expected to Fuel Industry Growth, Report Finds**\
-`The United States will triple its domestic chip manufacturing capacity by 2032, the largest increase in the world, according to a report from the Semiconductor Industry Association.`\
-https://nytimes.com/2024/05/08/us/politics/chips-grants-fuel-industry-growth.html
+**Three Reasons the Campus Protests Are Part of the Problem**\
+`I don’t think the protests are antisemitic. But they undercut the only fair and just solution to the war.`\
+https://nytimes.com/2024/05/08/opinion/campus-protests-gaza.html
 
-**A Piano From the Titanic’s Sister Ship Awaits Its Next Audience**\
-`A gilt-trimmed upright Steinway piano commissioned in 1912 for the ocean liner Olympic is on dry land and ready to be heard again.`\
-https://nytimes.com/2024/05/08/style/titanic-piano.html
+**What Amazes You Most About Animals?**\
+`Cheetahs can reach speeds of 58 m.p.h. or more. Bats use echolocation to fly in the dark. What do you find extraordinary about animals?`\
+https://nytimes.com/2024/05/08/learning/what-amazes-you-most-about-animals.html
 
-**A Serene Oasis for Making Music**\
-`Aaron Dessner’s Long Pond recording studio breaks a lot of design rules. It’s why musicians like Taylor Swift have put it on the map.`\
-https://nytimes.com/2024/05/08/style/long-pond-studio-hudson-valley.html
+**Why Having Kennedy on the Ballot in Texas May Worry Ted Cruz**\
+`Robert F. Kennedy Jr., who expects to be on the ballot in Texas, could prove to be a wild card in the U.S. Senate race, which Ted Cruz had appeared likely to win.`\
+https://nytimes.com/2024/05/08/us/robert-kennedy-texas-cruz.html
 
-**A Star Is Born. She Looks a Bit Like Amy Winehouse.**\
-`Marisa Abela was not widely known before being cast as the troubled singer-songwriter in “Back to Black.” That’s over now.`\
-https://nytimes.com/2024/05/08/style/marisa-abela-amy-winehouse-back-to-black.html
+**Why Biden and Harris Are So Busy on Wednesdays, When Trump Isn’t in Court**\
+`The president and vice president have been keeping up a busy schedule in the middle of each week, just as Donald Trump takes a break from his trial in New York.`\
+https://nytimes.com/2024/05/08/us/politics/biden-harris-trump-wednesdays.html
 
-**Close Friends, Competing for Coveted Olympic Spots. Who Would Make It?**\
-`Conner Mantz and Clayton Young had run side by side for more than 10,000 miles. Both vied for a place in the marathon at the Paris Games.`\
-https://nytimes.com/2024/05/08/well/live/clayton-young-conner-mantz-paris-olympics.html
+**Why Conservative and Liberal Catholics Can’t Escape One Another**\
+`A conservative future for the church will still sustain a liberal faction.`\
+https://nytimes.com/2024/05/08/opinion/pope-francis-catholic-church.html
 
-**France Says It Built the Olympics Safely. Migrant Workers Don’t Count.**\
-`Undocumented workers played a larger and more dangerous role in delivering the Games than the Macron administration acknowledges.`\
-https://nytimes.com/2024/05/08/world/europe/olympics-france-migrant-labor.html
+**House Republicans to Examine K-12 Schools in Latest Antisemitism Hearing**\
+`After focusing on universities, a House subcommittee will question school district leaders from New York City, Berkeley, Calif., and Montgomery County in Maryland.`\
+https://nytimes.com/2024/05/08/us/antisemitism-hearing-house-schools.html
 
