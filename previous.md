@@ -1,6 +1,6 @@
 **House Republicans Clash With Leaders of Public Schools Over Antisemitism Claims**\
 `Politicians said educators had not done enough. But the New York chancellor said members were trying to elicit “gotcha moments” rather than stop antisemitism.`\
-https://nytimes.com/2024/05/08/us/ny.html
+https://nytimes.com/2024/05/08/us/house-gop-public-school-leaders-antisemitism.html
 
 **Ukraine’s Parliament Passes Bill Allowing Some Convicts to Serve in the Army**\
 `The measure, which must still be signed into law, echoes a practice used by Russia, which has drafted tens of thousands of inmates into the war.`\
