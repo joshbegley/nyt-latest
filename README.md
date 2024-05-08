@@ -1,3 +1,7 @@
+**Israel presses on with its operation near the Rafah crossing as Gazan officials warn of a rising death toll.**\
+`By Liam Stack and Abu Bakr Bashir`\
+https://nytimes.com/live/2024/05/08/world/israel-gaza-war-hamas-rafah/israel-presses-on-with-its-operation-near-the-rafah-crossing-as-gazan-officials-warn-of-a-rising-death-toll
+
 **Neil Portnow Accuser Asks Court to Dismiss Her Sexual Assault Lawsuit**\
 `The woman, who sued the former head of the Grammy Awards anonymously, expressed concern that her identity would be revealed in the proceedings.`\
 https://nytimes.com/2024/05/08/arts/music/neil-portnow-accuser-dismiss-sexual-assault-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/08/us/tornadoes-storms-missouri-illinois-tennessee.h
 **Bill Hwang, Whose Firm Archegos Collapsed in 2021, Is About to Go on Trial**\
 `The hedge fund is accused of borrowing money from banks to buy stocks.`\
 https://nytimes.com/2024/05/08/business/bill-hwang-archegos-trial.html
-
-**Judy Devlin Hashman, Record-Holding Badminton Champion, Dies at 88**\
-`She won 10 singles titles at the prestigious all-England championships.`\
-https://nytimes.com/2024/05/08/sports/judy-devlin-hashman-dead.html
 
