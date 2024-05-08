@@ -1,3 +1,11 @@
+**Images of a Brazilian City Underwater**\
+`Torrential rains have caused one of Brazil’s worst floods in modern history, leaving at least 100 dead and nearly an entire state submerged.`\
+https://nytimes.com/2024/05/08/world/americas/brazil-flooding-photos.html
+
+**Dick Rutan, Who Flew Around the World Without Refueling, Dies at 85**\
+`His nine-day voyage, in a plane designed by his brother that resembled a child’s glider but had wings longer than a Boeing 727’s, made aviation history.`\
+https://nytimes.com/2024/05/08/us/dick-rutan-dead.html
+
 **The Kendrick Lamar-Drake Feud Was ‘Like the N.B.A. Finals’ for This Lyrics Website**\
 `The furious exchange of diss tracks and the rush to interpret each song briefly overwhelmed Genius, where users can annotate lyrics to songs.`\
 https://nytimes.com/2024/05/08/arts/music/drake-kendrick-rap-lyrics-genius.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/08/nyregion/banks-responses-combative-hearing.html
 **An Inside Look at the Student Takeover of Columbia’s Hamilton Hall**\
 `Maintenance workers had a firsthand view of how protesters seized the building, and wondered why the university failed to stop it.`\
 https://nytimes.com/2024/05/08/nyregion/columbia-hamilton-hall-protests.html
-
-**Milton Diamond, Sexologist and Advocate for Intersex Babies, Dies at 90**\
-`He pushed back against doctors who recommended surgery on infants born with ambiguous genitalia, arguing for acceptance of diversity.`\
-https://nytimes.com/2024/05/08/health/milton-diamond-dead.html
-
-**Review: Need Good Dances? Try Tharp**\
-`The Gibney Company’s program at the Joyce Theater includes two Twyla Tharp dances from the 1970s.`\
-https://nytimes.com/2024/05/08/arts/dance/review-gibney-company-tharp.html
 
