@@ -1,3 +1,7 @@
+**Fighting in Rafah and Closure of Gaza Crossings Threaten Aid Operation, U.N. Says**\
+`No trucks have entered the Gaza Strip since Sunday, according to the U.N.`\
+https://nytimes.com/2024/05/08/world/middleeast/rafah-gaza-aid-israel-un.html
+
 **Biden Says the U.S. Will Not Supply Israel With Weapons to Attack Rafah**\
 `The president’s remarks underscore the growing rift between the United States and its closest Middle East ally over the war in Gaza.`\
 https://nytimes.com/2024/05/08/us/politics/biden-israel-weapons-rafah.html
