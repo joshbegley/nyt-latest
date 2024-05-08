@@ -1,3 +1,7 @@
+**Man Is Charged After Hitting Protester With His Car Near Columbia**\
+`Two demonstrators whom the driver, Reuven Kahane, was arguing with were also arrested and charged.`\
+https://nytimes.com/2024/05/08/nyregion/columbia-driver-arrested-pro-palestinian-protesters.html
+
 **How is this hearing different from ones on antisemitism on college campuses?**\
 `By Dana Goldstein`\
 https://nytimes.com/live/2024/05/08/us/antisemitism-house-hearing-education/how-is-this-hearing-different-from-ones-on-antisemitism-on-college-campuses
