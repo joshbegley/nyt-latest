@@ -23,7 +23,7 @@ https://nytimes.com/2024/05/08/briefing/rafah-incursion-stormy-daniels.html
 https://nytimes.com/2024/05/08/world/europe/netanyahu-israel-gaza-ceasefire.html
 
 **Biden Puts Arms Shipment to Israel on Hold Amid Dispute Over Rafah Attack**\
-`The United States withheld 3,500 bombs last week out of concern that they might be used in a major assault against the southern Gaza city over the objections of American officials.`\
+`The United States withheld 3,500 bombs last week out of concern that they might be used in a major assault against the southern Gaza city, officials said.`\
 https://nytimes.com/2024/05/07/us/politics/israel-biden-arms.html
 
 **Quotation of the Day:Facing Labor Shortages, Japan Moves to Advance Working Women**\
