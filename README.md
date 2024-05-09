@@ -24,7 +24,7 @@ https://nytimes.com/interactive/2024/05/09/us/supreme-court-major-cases-2024.htm
 
 **Norfolk Southern Investors Reject Plan to Oust Its Management**\
 `An activist investment firm failed to replace the railroad’s top executive and all its directors, but did win three seats on its board.`\
-https://nytimes.com/2024/05/09/business/norfolk-southern-activist-investor.html
+https://nytimes.com/2024/05/09/business/norfolk-southern-activist-ancora-alan-shaw.html
 
 **Review: Impressed, but Not Transported, by ‘Spirited Away’**\
 `A stage production of the beloved Studio Ghibli movie is big on spectacle, but rarely grabs the heart.`\
