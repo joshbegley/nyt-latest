@@ -1,3 +1,7 @@
+**Biden’s warning on weapons highlights the widening U.S. rift with Israel.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/05/09/world/israel-gaza-war-hamas-rafah/bidens-warning-on-weapons-highlights-the-widening-us-rift-with-israel
+
 **One Strongman, One Billion Voters, and the Future of India**\
 `Narendra Modi has proved one of India’s most consequential leaders. But he has drawn criticism for anti-democratic practices and charges of religious persecution.`\
 https://nytimes.com/2024/05/09/podcasts/the-daily/india-election-modi.html
