@@ -1,3 +1,7 @@
+**Months Late, Biden Uses His Leverage on Israel**\
+`He’s finally applying leverage.`\
+https://nytimes.com/live/2024/05/07/opinion/thepoint/biden-israel-arms-transfer
+
 **Ramón Fonseca, Cofounder of Law Firm at Center of Panama Papers, Dies**\
 `Mr. Fonseca died while awaiting the verdict in his trial for money laundering tied to the 2016 scandal exposed by a massive leak of documents from his firm.`\
 https://nytimes.com/2024/05/09/world/americas/ramon-fonseca-panama-papers-dies.html
