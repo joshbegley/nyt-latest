@@ -1,3 +1,11 @@
+**Apple Says Destructive iPad Ad ‘Missed the Mark’**\
+`People in the creative world widely panned a commercial showing a giant hydraulic press squishing objects ranging from paint cans to a piano.`\
+https://nytimes.com/2024/05/09/technology/apple-ipad-ad-crush-apology.html
+
+**Breach Grows Between Biden and Israel’s Leaders Over Rafah Invasion**\
+`Defiant Israelis have vowed to do “whatever is necessary” in the Gaza Strip despite the American president’s threat to withhold weapons.`\
+https://nytimes.com/2024/05/09/world/middleeast/biden-israel-gaza-rafah-invasion.html
+
 **Are R.F.K. Jr. Signature Gatherers Misleading New Yorkers for Ballot Access?**\
 `More than half a dozen New York City residents described encounters with people seeking their signature who did not make clear that their aim was to place the independent 2024 candidate on the ballot.`\
 https://nytimes.com/2024/05/09/us/politics/rfk-signatures-ny.html
