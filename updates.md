@@ -1,3 +1,7 @@
+**Rafah’s hospitals are running out of fuel as Israeli forces move in, the W.H.O. says.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2024/05/09/world/israel-gaza-war-hamas-rafah/rafahs-hospitals-are-running-out-of-fuel-as-israeli-forces-move-in-the-who-says
+
 **Word of the Day: haughty**\
 `This word has appeared in 29 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/05/09/learning/word-of-the-day-haughty.html
