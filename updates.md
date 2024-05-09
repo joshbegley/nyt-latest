@@ -1,3 +1,15 @@
+**How Poor Tracking of Bird Flu Leaves Dairy Workers at Risk**\
+`Farmworkers have been exposed to milk infected with the bird flu virus. But there has virtually been no testing on farms, and health officials know little about who may be infected.`\
+https://nytimes.com/2024/05/09/health/bird-flu-diaries-farmworkers.html
+
+**09campus-protests**\
+`Penn Encampment Expands as Tense U.S.C. Graduation Arrives`\
+https://nytimes.com/live/2024/05/09/us/college-campus-protests
+
+**Here’s the latest on campus protests.**\
+`By Shawn Hubler, Mattathias Schwartz and Julian Roberts-Grmela`\
+https://nytimes.com/live/2024/05/09/us/college-campus-protests/heres-the-latest-on-campus-protests
+
 **New ‘Lord of the Rings’ Movie Will Put Gollum Center Stage**\
 `Andy Serkis, who played the creature in the trilogy, will direct and star in “The Hunt for Gollum,” an expansion of the fantasy epic scheduled for 2026.`\
 https://nytimes.com/2024/05/09/arts/lord-of-the-rings-gollum-andy-serkis.html
