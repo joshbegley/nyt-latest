@@ -1,3 +1,7 @@
+**The Major Supreme Court Cases of 2024**\
+`No Supreme Court term in recent memory has featured so many cases with the potential to transform American society.`\
+https://nytimes.com/interactive/2024/05/09/us/supreme-court-major-cases-2024.html
+
 **Norfolk Southern Investors Reject Plan to Oust Its Management**\
 `An activist investment firm failed to replace the railroad’s top executive and all its directors, but did win three seats on its board.`\
 https://nytimes.com/2024/05/09/business/norfolk-southern-activist-investor.html
@@ -15,7 +19,7 @@ https://nytimes.com/2024/05/09/t-magazine/scarlett-johansson-beauty-skin-care-ma
 https://nytimes.com/2024/05/09/us/california-love-letters.html
 
 **09trump-trial**\
-`Live Updates: Stormy Daniels Returns to Stand in Trump Trial`\
+`Live Updates: Stormy Daniels Is Grilled by Trump’s Lawyers in His Criminal Trial`\
 https://nytimes.com/live/2024/05/09/nyregion/trump-trial-stormy-daniels
 
 **09pol-swiper**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/09/us/politics/barron-trump-gop-national-convention.
 **At Victory Day Parade, Putin Seeks to Keep Ukraine in the Distance**\
 `A fighter fly-past returned to Russia’s World War II commemorations, where President Vladimir V. Putin permitted himself a single reference to his “special military operation.”`\
 https://nytimes.com/2024/05/09/world/europe/russia-putin-victory-day.html
-
-**Southern States Brace for Severe Weather After 3 Days of Deadly Storms**\
-`Heavy rain and winds are expected on Thursday from Central Texas toward the Georgia coast. More than 12 million people were under a tornado watch.`\
-https://nytimes.com/2024/05/09/us/storms-weather-tornado-south.html
 

@@ -1,3 +1,11 @@
+**The Major Supreme Court Cases of 2024**\
+`No Supreme Court term in recent memory has featured so many cases with the potential to transform American society.`\
+https://nytimes.com/interactive/2024/05/09/us/supreme-court-major-cases-2024.html
+
+**09trump-trial**\
+`Live Updates: Stormy Daniels Is Grilled by Trump’s Lawyers in His Criminal Trial`\
+https://nytimes.com/live/2024/05/09/nyregion/trump-trial-stormy-daniels
+
 **09trump-trial**\
 `Live Updates: Stormy Daniels Returns to Stand in Trump Trial`\
 https://nytimes.com/live/2024/05/09/nyregion/trump-trial-stormy-daniels
