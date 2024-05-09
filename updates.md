@@ -1,3 +1,7 @@
+**A Defiant Stormy Daniels Survives a Difficult Cross-Examination**\
+`Trump’s lawyer tried to pepper her with minor inconsistencies but didn’t land a real blow.`\
+https://nytimes.com/live/2024/05/07/opinion/thepoint/stormy-daniels-trump-cross-examination
+
 **The doom vs. optimism debate**\
 `How to reconcile two new reports that seem to tell very different stories about the state of climate change.`\
 https://nytimes.com/2024/05/09/climate/the-doom-vs-optimism-debate.html
