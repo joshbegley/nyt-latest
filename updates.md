@@ -1,3 +1,7 @@
+**Norfolk Southern Investors Reject Plan to Oust Its Management**\
+`An activist investment firm failed to replace the railroad’s top executive and all its directors, but did win three seats on its board.`\
+https://nytimes.com/2024/05/09/business/norfolk-southern-activist-ancora-alan-shaw.html
+
 **A Pithy YouTube Celebrity’s Plea: Buy This Video Game**\
 `After a decade of humorously reviewing games, the man known as Dunkey began a publishing company to support indie projects, starting with the mazelike Animal Well.`\
 https://nytimes.com/2024/05/09/arts/dunkey-animal-well-bigmode.html
