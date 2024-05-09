@@ -1,3 +1,7 @@
+**Stormy Daniels Fights Back**\
+`Facing intense questioning from Donald Trump’s lawyers, Daniels responded at times with sharp retorts.`\
+https://nytimes.com/2024/05/09/us/politics/trump-trial-stormy-daniels-fights-back.html
+
 **Chinese Magnate in Straw Donor Scheme Agrees to Leave U.S. in Plea Deal**\
 `Hui Qin pleaded guilty to giving more than $10,000 in illegal political campaign donations to three candidates, including Mayor Eric Adams.`\
 https://nytimes.com/2024/05/09/nyregion/hui-qin-straw-donor.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/09/us/politics/marjorie-taylor-greene-johnson.html
 **She Wanted to Help Strangers. Would They Take Her Up on It?**\
 `Bianca Giaever wasn’t feeling very helpful in her daily life, so she tried to do small favors for passers-by in Union Square. It got complicated.`\
 https://nytimes.com/2024/05/09/style/bianca-giaever-free-help-union-square.html
-
-**Ex-Nebraska Lawmaker Faces New Charges in Campaign Finance Case**\
-`The indictment of Jeff Fortenberry, a Republican, renewed a case in which he was convicted of lying to federal agents but that an appeals court later overturned.`\
-https://nytimes.com/2024/05/09/us/politics/jeff-fortenberry-nebraska-charges.html
 
