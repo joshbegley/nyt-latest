@@ -1,3 +1,7 @@
+**Tuna Crabs, Neither Tuna Nor Crabs, Are Swarming Near San Diego**\
+`Divers and marine biologists are getting a window into the lives of a red crustacean most often found in the guts of other species.`\
+https://nytimes.com/2024/05/09/science/tuna-crabs-san-diego.html
+
 **In Budapest, Xi Hails a ‘Deep Friendship’ With Hungary**\
 `The Chinese leader met with Viktor Orban, the Hungarian prime minister, one of China’s most fervent admirers and protectors in Europe.`\
 https://nytimes.com/2024/05/09/world/europe/xi-jinping-china-hungary-orban.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/05/09/nyregion/trump-hush-money-trial-trans
 **Review: ‘Black Twitter’ Looks at Who Gave the Platform Its Voice**\
 `Hulu’s docuseries on a social-media subculture doubles as a serious snapshot of recent history.`\
 https://nytimes.com/2024/05/09/arts/television/review-black-twitter.html
-
-**Judi Dench’s Eyesight Keeps Her From Reading, but Not From Books**\
-`“They’re snapshots of the past: first-night gifts, holidays abroad, memories of lost friends and loved ones,” the award-winning actress says. Her latest, written with Brendan O’Hea, is “Shakespeare: The Man Who Pays the Rent.”`\
-https://nytimes.com/2024/05/09/books/review/judi-dench-shakespeare-the-man-who-pays-the-rent.html
 
