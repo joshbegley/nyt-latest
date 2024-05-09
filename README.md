@@ -1,3 +1,15 @@
+**How Poor Tracking of Bird Flu Leaves Dairy Workers at Risk**\
+`Farmworkers have been exposed to milk infected with the bird flu virus. But there has virtually been no testing on farms, and health officials know little about who may be infected.`\
+https://nytimes.com/2024/05/09/health/bird-flu-diaries-farmworkers.html
+
+**09campus-protests**\
+`Penn Encampment Expands as Tense U.S.C. Graduation Arrives`\
+https://nytimes.com/live/2024/05/09/us/college-campus-protests
+
+**Here’s the latest on campus protests.**\
+`By Shawn Hubler, Mattathias Schwartz and Julian Roberts-Grmela`\
+https://nytimes.com/live/2024/05/09/us/college-campus-protests/heres-the-latest-on-campus-protests
+
 **New ‘Lord of the Rings’ Movie Will Put Gollum Center Stage**\
 `Andy Serkis, who played the creature in the trilogy, will direct and star in “The Hunt for Gollum,” an expansion of the fantasy epic scheduled for 2026.`\
 https://nytimes.com/2024/05/09/arts/lord-of-the-rings-gollum-andy-serkis.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/09/business/dwac-trump-media-insider-trading-trial.h
 **An Embarrassment of Style at the Independent**\
 `This year’s fair is in overdrive, with exhibitors taking big swings in dozens of directions. Use our critic’s personal playlist to find your way around the floor.`\
 https://nytimes.com/2024/05/09/arts/design/independent-art-fair-review.html
-
-**A Beginner’s Guide to a Spicy Pantry**\
-`Whole dried chiles, crushed chile flakes and spicy pastes get to work in chilaquiles, arrabbiata sauce and gochujang-glazed eggplant.`\
-https://nytimes.com/2024/05/09/dining/a-beginners-guide-to-a-spicy-pantry.html
-
-**In Letter, 540 Jewish Columbia Students Defend Zionism, Condemn Protests**\
-`The students wrote that “Zionism remains a pillar of our Jewish identities” and argued that many classmates do not understand its meaning.`\
-https://nytimes.com/2024/05/09/nyregion/columbia-university-jewish-students-letter.html
-
-**At a Dinner, Trump Assailed Climate Rules and Asked $1 Billion From Big Oil**\
-`At a private meeting at Mar-a-Lago, the former president said fossil fuel companies should donate to help him beat President Biden.`\
-https://nytimes.com/2024/05/09/climate/trump-oil-gas-mar-a-lago.html
 
