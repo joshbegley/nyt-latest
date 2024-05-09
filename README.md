@@ -1,3 +1,7 @@
+**New ‘Lord of the Rings’ Movie Will Put Gollum Center Stage**\
+`Andy Serkis, who played the creature in the trilogy, will direct and star in “The Hunt for Gollum,” an expansion of the fantasy epic scheduled for 2026.`\
+https://nytimes.com/2024/05/09/arts/lord-of-the-rings-gollum-andy-serkis.html
+
 **Reality Show Contestants Compete for an Authoritarian’s Campaign Jingle**\
 `The program is one way President Nicolás Maduro of Venezuela is trying portray himself and his allies as joyful, colorful characters determined to save the nation.`\
 https://nytimes.com/2024/05/09/world/americas/venezuela-maduro-m-factor-show.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/09/nyregion/columbia-university-jewish-students-lett
 **At a Dinner, Trump Assailed Climate Rules and Asked $1 Billion From Big Oil**\
 `At a private meeting at Mar-a-Lago, the former president said fossil fuel companies should donate to help him beat President Biden.`\
 https://nytimes.com/2024/05/09/climate/trump-oil-gas-mar-a-lago.html
-
-**Tuna Crabs, Neither Tuna Nor Crabs, Are Swarming Near San Diego**\
-`Divers and marine biologists are getting a window into the lives of a red crustacean most often found in the guts of other species.`\
-https://nytimes.com/2024/05/09/science/tuna-crabs-san-diego.html
 
