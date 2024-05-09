@@ -1,3 +1,7 @@
+**Lawyer Calls Daniels Transactional. ‘Not Unlike Mr. Trump,’ She Replies.**\
+`Defense lawyers for Donald J. Trump, who has sold branded water, mattresses and steak, pressed Stormy Daniels about how she has capitalized on her account of a liaison with him.`\
+https://nytimes.com/2024/05/09/nyregion/stormy-daniels-merchandise-trump-trial.html
+
 **Senate Races to Pass Bill to Reauthorize F.A.A. and Improve Air Travel**\
 `The legislation is due by Friday, but regional conflicts and demands for votes on unrelated provisions have slowed its progress.`\
 https://nytimes.com/2024/05/09/us/politics/senate-faa-air-travel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/09/us/politics/mike-johnson-speaker-vote.html
 **The Major Supreme Court Cases of 2024**\
 `No Supreme Court term in recent memory has featured so many cases with the potential to transform American society.`\
 https://nytimes.com/interactive/2024/05/09/us/supreme-court-major-cases-2024.html
-
-**Norfolk Southern Investors Reject Plan to Oust Its Management**\
-`An activist investment firm failed to replace the railroad’s top executive and all its directors, but did win three seats on its board.`\
-https://nytimes.com/2024/05/09/business/norfolk-southern-activist-ancora-alan-shaw.html
 
