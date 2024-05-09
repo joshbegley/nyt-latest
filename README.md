@@ -1,40 +1,40 @@
-**Late Night Reacts to the Worm in R.F.K. Jr.’s Brain**\
-`“This explains everything, and nothing,” Stephen Colbert said about the presidential hopeful’s newly reported parasite.`\
-https://nytimes.com/2024/05/09/arts/television/late-night-rfk-jr-worm.html
+**9 Home Designs That Evoke the Flow of Water**\
+`Symbolizing tranquillity and clarity, water is the inspiration behind many brands’ creations.`\
+https://nytimes.com/2024/05/09/style/home-furnishings-design-water.html
 
-**Stormy Daniels Returns to the Stand**\
-`Ms. Daniels testified for about five hours on Tuesday and will return on Thursday for further cross-examination by Donald J. Trump’s lawyers.`\
-https://nytimes.com/2024/05/09/nyregion/stormy-daniels-testifies-trump-trial.html
+**Lawns Draw Scorn, but Some See Room for Compromise**\
+`Conventional turf lawns have come under attack. Landscape designers are using water-wise and native plants to balance green with “green.”`\
+https://nytimes.com/2024/05/09/style/landscaping-lawn-green-alternatives.html
 
-**A Recap of Stormy Daniels’s Testimony So Far in Trump’s Hush-Money Trial**\
-`Prosecutors have argued that Ms. Daniels’s efforts to sell her story of a sexual encounter with Donald J. Trump supplied the motive for his alleged crimes.`\
-https://nytimes.com/2024/05/09/nyregion/stormy-daniels-testimony-trump-trial.html
+**If You Want to Get Stronger, Routine Is the Enemy**\
+`To get the most out of your strength training, try progressive overload.`\
+https://nytimes.com/2024/05/09/well/move/weight-lifting-strength-training-progressive-overload.html
 
-**A Plan to Help Harlem Students Build Wealth: Start Them Off With $10,000**\
-`The Harlem Children’s Zone is investing millions of dollars to create savings plans for students in its charter schools and, eventually, nationwide.`\
-https://nytimes.com/2024/05/09/nyregion/harlem-childrens-zone-students-invest.html
+**These Boots Were Made for Walking (Down the Aisle)**\
+`Move over stilettos and slingbacks, there’s a new bridal shoe trend in town: the cowboy boot. Brides are pairing them with relaxed silhouetted dresses for an elegant western look.`\
+https://nytimes.com/2024/05/09/style/these-boots-were-made-for-walking-down-the-aisle.html
 
-**Today’s Wordle Review No. 1,055**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/09/crosswords/wordle-review.html
+**In Mexico, a House That Returns to the Well**\
+`An architecture studio in water-stressed Mexico City follows the examples of ancient builders who harvested rain.`\
+https://nytimes.com/2024/05/09/style/design-house-mexico-water-wise.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/05/09/crosswords/spelling-bee-forum.html
+**A Former Guantánamo Prisoner’s New Life**\
+`In a quick but eventful year since his release, Majid Khan reunited with his wife, met his daughter who was born after his capture and added to his family with a baby son.`\
+https://nytimes.com/2024/05/09/us/politics/guantanamo-prisoner-released-belize.html
 
-**The Connections Companion No. 333**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/09/crosswords/connections-companion.html
+**Eugene Levy’s Toronto**\
+`The Canadian comedian, known for “American Pie,” “Schitt’s Creek” and now, “The Reluctant Traveler,” isn’t at all reluctant to share what he loves about his hometown.`\
+https://nytimes.com/2024/05/09/travel/eugene-levy-toronto.html
 
-**Rafah’s hospitals are running out of fuel as Israeli forces move in, the W.H.O. says.**\
-`By Anushka Patil`\
-https://nytimes.com/live/2024/05/09/world/israel-gaza-war-hamas-rafah/rafahs-hospitals-are-running-out-of-fuel-as-israeli-forces-move-in-the-who-says
+**A New Civil Rights Exhibit Asks: Honestly, What Would You Have Done?**\
+`An exhibit at a synagogue in Birmingham, Ala., argues that listening to people who stay on the periphery can deepen our understanding of the past, and the present.`\
+https://nytimes.com/2024/05/09/us/civil-rights-exhibit-alabama-synagogue.html
 
-**Word of the Day: haughty**\
-`This word has appeared in 29 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/05/09/learning/word-of-the-day-haughty.html
+**When the Alternative to Foster Care Is an Unsafe Home, There Is Only One Right Choice**\
+`We need to rethink the policy of preserving families, seemingly at all costs.`\
+https://nytimes.com/2024/05/09/opinion/child-abuse-foster-care.html
 
-**The Oldest, Most Successful Party in Europe Is Headed for a Wipeout**\
-`The Conservative Party is in crisis.`\
-https://nytimes.com/2024/05/09/opinion/britain-conservative-party-elections.html
+**What Does a Lonely Brain Look Like?**\
+`Feeling chronically disconnected from others can affect the brain’s structure and function, and it raises the risk for neurodegenerative diseases.`\
+https://nytimes.com/2024/05/09/well/mind/loneliness-brain-dementia-isolation.html
 
