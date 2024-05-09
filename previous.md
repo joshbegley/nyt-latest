@@ -1,3 +1,7 @@
+**Artificial Intelligence ‘Friends’**\
+`What Times tech columnist Kevin Roose learned about digital companionship.`\
+https://nytimes.com/2024/05/09/briefing/artificial-intelligence-chatbots.html
+
 **Tens of Thousands Have Fled Rafah Since Monday, U.N. Says**\
 `Israeli forces had called for the evacuation of about 110,000 people from the eastern part of the Gazan city and seized the Gaza side of a border crossing with Egypt in an incursion this week.`\
 https://nytimes.com/2024/05/09/world/middleeast/israel-rafah-evacuation-gaza-un.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/09/realestate/the-cities-with-the-most-dog-friendly-
 **How Republicans Echo Antisemitic Tropes Despite Declaring Support for Israel**\
 `Prominent Republicans have seized on campus protests to assail what they say is antisemitism on the left. But for years they have mainstreamed anti-Jewish rhetoric.`\
 https://nytimes.com/2024/05/09/us/antisemitism-republicans-trump.html
-
-**Homes for Sale in Manhattan and the Bronx**\
-`This week’s properties are on Riverside Drive, in Chelsea and in the South Bronx.`\
-https://nytimes.com/2024/05/09/realestate/housing-market-nyc.html
 

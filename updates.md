@@ -1,3 +1,7 @@
+**Artificial Intelligence ‘Friends’**\
+`What Times tech columnist Kevin Roose learned about digital companionship.`\
+https://nytimes.com/2024/05/09/briefing/artificial-intelligence-chatbots.html
+
 **Tens of Thousands Have Fled Rafah Since Monday, U.N. Says**\
 `Israeli forces had called for the evacuation of about 110,000 people from the eastern part of the Gazan city and seized the Gaza side of a border crossing with Egypt in an incursion this week.`\
 https://nytimes.com/2024/05/09/world/middleeast/israel-rafah-evacuation-gaza-un.html
