@@ -1,3 +1,11 @@
+**Merchan, Denying a Mistrial, Chides Trump’s Lawyers for Their Missteps**\
+`Justice Juan M. Merchan issued a blistering ruling in Donald J. Trump’s trial on Thursday, displaying anger beyond what he showed after rejecting a previous request for a mistrial.`\
+https://nytimes.com/2024/05/09/nyregion/trump-mistrial-judge-merchan.html
+
+**As Gaza Talks Falter, Negotiators Look for a Deal or a Scapegoat**\
+`President Biden’s decision to withhold offensive weapons if Israel attacks Rafah has scrambled cease-fire talks. But much of the various sides’ recriminations may be to gain advantage — or shift blame.`\
+https://nytimes.com/2024/05/09/us/politics/gaza-israel-biden-hamas.html
+
 **Apple Says Destructive iPad Ad ‘Missed the Mark’**\
 `People in the creative world widely panned a commercial showing a giant hydraulic press squishing objects ranging from paint cans to a piano.`\
 https://nytimes.com/2024/05/09/technology/apple-ipad-ad-crush-apology.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/africa/100000009461193/south-africa-building-col
 **White House Warns Israel Against Rafah Attack**\
 `John F. Kirby, a White House national security spokesman, said President Biden is concerned that an Israeli assault on Rafah would strengthen Hamas.`\
 https://nytimes.com/video/us/politics/100000009461123/biden-israel-rafah.html
-
-**Those Who Mother Us Are Not Always Our Parents**\
-`A tribute to our other mothers.`\
-https://nytimes.com/interactive/2024/05/09/well/family/mothers-day-mom-figures.html
-
-**Woman Who Says She Inspired ‘Baby Reindeer’ Character Denies Stalking**\
-`The show, a surprise Netflix hit that says it is based on real events, had inspired viewers to try to uncover the real identities of the characters depicted onscreen.`\
-https://nytimes.com/2024/05/09/arts/television/baby-reindeer-fiona-harvey-stalking.html
 
