@@ -1,3 +1,19 @@
+**Stormy Daniels Fights Back**\
+`Facing intense questioning from Donald Trump’s lawyers, Daniels responded at times with sharp retorts.`\
+https://nytimes.com/2024/05/09/us/politics/trump-trial-stormy-daniels-fights-back.html
+
+**Chinese Magnate in Straw Donor Scheme Agrees to Leave U.S. in Plea Deal**\
+`Hui Qin pleaded guilty to giving more than $10,000 in illegal political campaign donations to three candidates, including Mayor Eric Adams.`\
+https://nytimes.com/2024/05/09/nyregion/hui-qin-straw-donor.html
+
+**How to Make Retirement Less Scary**\
+`A Times financial columnist and an illustrator share an exercise that can prepare you for life after work.`\
+https://nytimes.com/interactive/2024/05/09/magazine/retirement-mission-statement.html
+
+**Eric Adams’s Brother Has a New Gig: Black-Tie Philanthropy**\
+`Bernard Adams has joined forces with a former model to start an organization that aims to improve New York City children’s access to arts and culture.`\
+https://nytimes.com/2024/05/09/nyregion/eric-adams-brother.html
+
 **Paging Senator Schumer …**\
 `There is a simple way to fix the Antisemitism Awareness Act.`\
 https://nytimes.com/2024/05/09/opinion/anti-semitism-awareness-act-fix.html

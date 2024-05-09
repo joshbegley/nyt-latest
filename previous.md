@@ -1,3 +1,19 @@
+**Stormy Daniels Fights Back**\
+`Facing intense questioning from Donald Trump’s lawyers, Daniels responded at times with sharp retorts.`\
+https://nytimes.com/2024/05/09/us/politics/trump-trial-stormy-daniels-fights-back.html
+
+**Chinese Magnate in Straw Donor Scheme Agrees to Leave U.S. in Plea Deal**\
+`Hui Qin pleaded guilty to giving more than $10,000 in illegal political campaign donations to three candidates, including Mayor Eric Adams.`\
+https://nytimes.com/2024/05/09/nyregion/hui-qin-straw-donor.html
+
+**How to Make Retirement Less Scary**\
+`A Times financial columnist and an illustrator share an exercise that can prepare you for life after work.`\
+https://nytimes.com/interactive/2024/05/09/magazine/retirement-mission-statement.html
+
+**Eric Adams’s Brother Has a New Gig: Black-Tie Philanthropy**\
+`Bernard Adams has joined forces with a former model to start an organization that aims to improve New York City children’s access to arts and culture.`\
+https://nytimes.com/2024/05/09/nyregion/eric-adams-brother.html
+
 **Paging Senator Schumer …**\
 `There is a simple way to fix the Antisemitism Awareness Act.`\
 https://nytimes.com/2024/05/09/opinion/anti-semitism-awareness-act-fix.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/05/09/us/politics/marjorie-taylor-greene-johnson.html
 **She Wanted to Help Strangers. Would They Take Her Up on It?**\
 `Bianca Giaever wasn’t feeling very helpful in her daily life, so she tried to do small favors for passers-by in Union Square. It got complicated.`\
 https://nytimes.com/2024/05/09/style/bianca-giaever-free-help-union-square.html
-
-**Ex-Nebraska Lawmaker Faces New Charges in Campaign Finance Case**\
-`The indictment of Jeff Fortenberry, a Republican, renewed a case in which he was convicted of lying to federal agents but that an appeals court later overturned.`\
-https://nytimes.com/2024/05/09/us/politics/jeff-fortenberry-nebraska-charges.html
-
-**Stormy Daniels, Echoing Trump’s Style, Pushes Back at Lawyer’s Attacks**\
-`In a second day of cross-examination, Ms. Daniels resisted the implication she had tried to shake down Donald J. Trump by selling her story of a sexual liaison.`\
-https://nytimes.com/2024/05/09/nyregion/trump-trial-stormy-daniels-hush-money.html
-
-**6 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2024/05/09/books/review/new-books-recommendations.html
-
-**In a Surprise, Cornell’s President Resigns**\
-`Martha E. Pollack said she would remain in office until July 1 and that the decision was “mine and mine alone.”`\
-https://nytimes.com/2024/05/09/us/cornell-president-resigns-martha-pollack.html
 
