@@ -1,3 +1,11 @@
+**Scarlett Johansson Shares Her Beauty Regimen**\
+`Plus: a new hotel in Oxford, England, door knobs with personality and more recommendations.`\
+https://nytimes.com/2024/05/09/t-magazine/scarlett-johansson-beauty-skin-care-makeup.html
+
+**Readers Share Why They Love Living in the Golden State**\
+`The view from Richmond, the diversity of Los Angeles and the stunningly green hills in spring are a few reasons to call California home, readers say.`\
+https://nytimes.com/2024/05/09/us/california-love-letters.html
+
 **09trump-trial**\
 `Live Updates: Stormy Daniels Will Return to Stand in Trump Trial`\
 https://nytimes.com/live/2024/05/09/nyregion/trump-trial-stormy-daniels
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/09/business/dealbook/sony-apollo-plan-split-paramoun
 **Bank of England Holds Interest Rates Steady, but Signals Cuts**\
 `A rate cut could come as soon as this summer as the central bank forecast that inflation would drop to its 2 percent target.`\
 https://nytimes.com/2024/05/09/business/bank-of-england-interest-rates.html
-
-**‘Aisha’ Review: Seeking Asylum in Ireland**\
-`The “Black Panther” star Letitia Wright shows understated vulnerability in this immigrant drama by Frank Berry. Josh O’Connor (“Challengers”) also stars.`\
-https://nytimes.com/2024/05/09/movies/aisha-review.html
-
-**‘Aggro Dr1ft’ Review: Glow-Stick Dreams and Thermal Nightmares**\
-`Harmony Korine (“Spring Breakers”) parties too hard in this fusion of feature filmmaking and video game.`\
-https://nytimes.com/2024/05/09/movies/aggro-dr1ft-review.html
 
