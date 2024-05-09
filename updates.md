@@ -1,3 +1,7 @@
+**Woman Who Says She Inspired ‘Baby Reindeer’ Character Denies Stalking**\
+`The show, a surprise Netflix hit that says it is based on real events, had inspired viewers to try to uncover the real identities of the characters depicted onscreen.`\
+https://nytimes.com/2024/05/09/arts/television/baby-reindeer-fiona-harvey-stalking.html
+
 **Another Sriracha Shortage May Be on the Horizon. What Happened?**\
 `Huy Fong Foods, the producer of the most popular variety of Sriracha sauce, has faced several supply glitches over the years.`\
 https://nytimes.com/2024/05/09/dining/huy-fong-sriracha-shortage.html
