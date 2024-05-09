@@ -1,3 +1,7 @@
+**Bank of England Holds Interest Rates Steady, but Signals Cuts**\
+`A rate cut could come as soon as this summer as the central bank forecast that inflation would drop to its 2 percent target.`\
+https://nytimes.com/2024/05/09/business/bank-of-england-interest-rates.html
+
 **‘Aisha’ Review: Seeking Asylum in Ireland**\
 `The “Black Panther” star Letitia Wright shows understated vulnerability in this immigrant drama by Frank Berry. Josh O’Connor (“Challengers”) also stars.`\
 https://nytimes.com/2024/05/09/movies/aisha-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/09/podcasts/the-daily/india-election-modi.html
 **Stormy Daniels Faces Trump’s Lawyers, and Biden Blocks Weapons for Use in Rafah**\
 `Plus, Putin’s parade.`\
 https://nytimes.com/2024/05/09/podcasts/stormy-daniels-biden-rafah.html
-
-**Israel’s Shutdown of Al Jazeera Highlights Long-Running Tensions**\
-`The network will keep covering the war in Gaza, but it will be harder for Israelis to watch. Israel calls the network a security threat, while Al Jazeera says Israel wants to conceal its brutality.`\
-https://nytimes.com/2024/05/09/world/middleeast/al-jazeera-israel-shutdown.html
 

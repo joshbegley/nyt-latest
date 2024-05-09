@@ -1,3 +1,7 @@
+**Bank of England Holds Interest Rates Steady, but Signals Cuts**\
+`A rate cut could come as soon as this summer as the central bank forecast that inflation would drop to its 2 percent target.`\
+https://nytimes.com/2024/05/09/business/bank-of-england-interest-rates.html
+
 **‘Aisha’ Review: Seeking Asylum in Ireland**\
 `The “Black Panther” star Letitia Wright shows understated vulnerability in this immigrant drama by Frank Berry. Josh O’Connor (“Challengers”) also stars.`\
 https://nytimes.com/2024/05/09/movies/aisha-review.html
