@@ -1,3 +1,7 @@
+**09trump-trial**\
+`Live Updates: Stormy Daniels Returns to Stand in Trump Trial`\
+https://nytimes.com/live/2024/05/09/nyregion/trump-trial-stormy-daniels
+
 **Norfolk Southern Investors Reject Plan to Oust Its Management**\
 `An activist investment firm failed to replace the railroad’s top executive and all its directors, but did win three seats on its board.`\
 https://nytimes.com/2024/05/09/business/norfolk-southern-activist-investor.html
