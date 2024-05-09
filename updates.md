@@ -1,3 +1,7 @@
+**Chad’s Military Ruler Is Announced as Winner of Disputed Election**\
+`The Central African country’s incumbent president and his prime minister both ran. Shortly after the prime minister claimed victory, the president was declared the winner.`\
+https://nytimes.com/2024/05/09/world/africa/chad-election.html
+
 **In Sex Crimes Cases, New York Weighs Allowing Evidence of Prior Bad Acts**\
 `The overturning of Harvey Weinstein’s conviction has prompted New York lawmakers to introduce bills that would allow prosecutors to bring up a defendant’s past in sex crimes cases.`\
 https://nytimes.com/2024/05/09/nyregion/weinstein-testimony-victims.html
