@@ -1,3 +1,7 @@
+**Thursday Briefing**\
+`A turning point in U.S.-Israel relations.`\
+https://nytimes.com/2024/05/09/briefing/israel-weapons-ukraine-dublin-gaza.html
+
 **Fencing Rattled by Suspensions and Accusations Ahead of Olympics**\
 `Concerns about refereeing integrity and preferential treatment for top saber competitors have cast a shadow over a sport decided by the finest of margins.`\
 https://nytimes.com/2024/05/09/world/europe/fencing-olympics-turmoil.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/08/arts/music/steve-albini-songs.html
 **Always Ready to Order**\
 `Joe DiPietro takes us back to old Rome.`\
 https://nytimes.com/2024/05/08/crosswords/daily-puzzle-2024-05-09.html
-
-**Pro-Trump PAC Joins TikTok Amid Fight Over Its Chinese Ownership**\
-`President Biden, whose presidential campaign uses the app, signed a law in April that would force a sale of TikTok by ByteDance.`\
-https://nytimes.com/2024/05/08/us/politics/trump-pac-tiktok.html
 
