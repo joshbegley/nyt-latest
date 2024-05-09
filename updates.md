@@ -1,3 +1,11 @@
+**Financier Found Guilty in Trump Media Insider Trading Trial**\
+`Bruce Garelick was convicted of securities fraud for leaking confidential information about a merger involving the parent company of Truth Social, Donald Trump’s social media site.`\
+https://nytimes.com/2024/05/09/business/dwac-trump-media-insider-trading-trial.html
+
+**An Embarrassment of Style at the Independent**\
+`This year’s fair is in overdrive, with exhibitors taking big swings in dozens of directions. Use our critic’s personal playlist to find your way around the floor.`\
+https://nytimes.com/2024/05/09/arts/design/independent-art-fair-review.html
+
 **A Beginner’s Guide to a Spicy Pantry**\
 `Whole dried chiles, crushed chile flakes and spicy pastes get to work in chilaquiles, arrabbiata sauce and gochujang-glazed eggplant.`\
 https://nytimes.com/2024/05/09/dining/a-beginners-guide-to-a-spicy-pantry.html

@@ -1,3 +1,11 @@
+**Financier Found Guilty in Trump Media Insider Trading Trial**\
+`Bruce Garelick was convicted of securities fraud for leaking confidential information about a merger involving the parent company of Truth Social, Donald Trump’s social media site.`\
+https://nytimes.com/2024/05/09/business/dwac-trump-media-insider-trading-trial.html
+
+**An Embarrassment of Style at the Independent**\
+`This year’s fair is in overdrive, with exhibitors taking big swings in dozens of directions. Use our critic’s personal playlist to find your way around the floor.`\
+https://nytimes.com/2024/05/09/arts/design/independent-art-fair-review.html
+
 **A Beginner’s Guide to a Spicy Pantry**\
 `Whole dried chiles, crushed chile flakes and spicy pastes get to work in chilaquiles, arrabbiata sauce and gochujang-glazed eggplant.`\
 https://nytimes.com/2024/05/09/dining/a-beginners-guide-to-a-spicy-pantry.html
@@ -29,12 +37,4 @@ https://nytimes.com/paidpost/gsk/the-power-of-lifelong-prevention.html
 **‘Time, Patience, Cold Blood’: Mexico Prepares for a Potential Trump Win**\
 `Mexican officials and aides are planning for a drastic shift in U.S. relations should Donald Trump win in November.`\
 https://nytimes.com/2024/05/09/world/americas/trump-mexico-2024-election.html
-
-**Supreme Court Rules Against Women Whose Cars Were Seized by the Police**\
-`Two Alabama women spent more than a year trying to reclaim vehicles they owned, which the police had confiscated after arresting their drivers on drug charges.`\
-https://nytimes.com/2024/05/09/us/politics/supreme-court-alabama-police-seized-cars.html
-
-**Surrealism Reigns at Tefaf Art Fair**\
-`Objects made under the influence of the art movement have inspired many contemporary and modern dealers at the 10th edition of Tefaf New York.`\
-https://nytimes.com/2024/05/09/arts/design/tefaf-art-fair-armory.html
 
