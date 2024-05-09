@@ -1,3 +1,7 @@
+**Review: Impressed, but Not Transported, by ‘Spirited Away’**\
+`A stage production of the beloved Studio Ghibli movie is big on spectacle, but rarely grabs the heart.`\
+https://nytimes.com/2024/05/09/theater/spirited-away-london-coliseum.html
+
 **Scarlett Johansson Shares Her Beauty Regimen**\
 `Plus: a new hotel in Oxford, England, door knobs with personality and more recommendations.`\
 https://nytimes.com/2024/05/09/t-magazine/scarlett-johansson-beauty-skin-care-makeup.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/09/us/storms-weather-tornado-south.html
 **A Plan to Break up Paramount**\
 `If Sony and Apollo Global win the fight to buy the media company, they plan to keep the studio business and sell everything else.`\
 https://nytimes.com/2024/05/09/business/dealbook/sony-apollo-plan-split-paramount.html
-
-**Bank of England Holds Interest Rates Steady, but Signals Cuts**\
-`A rate cut could come as soon as this summer as the central bank forecast that inflation would drop to its 2 percent target.`\
-https://nytimes.com/2024/05/09/business/bank-of-england-interest-rates.html
 
