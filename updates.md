@@ -1,3 +1,7 @@
+**In Sex Crimes Cases, New York Weighs Allowing Evidence of Prior Bad Acts**\
+`The overturning of Harvey Weinstein’s conviction has prompted New York lawmakers to introduce bills that would allow prosecutors to bring up a defendant’s past in sex crimes cases.`\
+https://nytimes.com/2024/05/09/nyregion/weinstein-testimony-victims.html
+
 **President Biden’s Biggest Blunder**\
 `The consequences of Biden’s decision to withhold munitions from Israel could be the opposite of what he intends.`\
 https://nytimes.com/2024/05/09/opinion/president-bidens-biggest-blunder.html
