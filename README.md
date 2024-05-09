@@ -1,3 +1,15 @@
+**Herbert Pardes, Who Steered the Growth of a Giant Hospital, Dies at 89**\
+`A psychiatrist, he ran New York-Presbyterian after a merger, improving patient care, finances and fund-raising to expand its footprint across the region.`\
+https://nytimes.com/2024/05/09/health/herbert-pardes-dead.html
+
+**Grabbing a Water Bottle Gets a Marathon Winner Disqualified**\
+`The winner of the Orange County Marathon in California improperly took a bottle from a man on a bicycle, race officials said.`\
+https://nytimes.com/2024/05/09/sports/marathon-winner-disqualified-water-dad.html
+
+**Stormy Daniels as We Had Never Seen Her**\
+`During her time on the stand in former President Donald J. Trump’s criminal trial, the adult entertainer dressed for history — and a jury.`\
+https://nytimes.com/2024/05/09/style/stormy-daniels-trump-trial.html
+
 **The Chevy Malibu Was So Uncool It Was Cool**\
 `An unassuming car had a surprisingly large cultural footprint.`\
 https://nytimes.com/2024/05/09/style/chevy-malibu-culture-cool.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/09/health/bird-flu-diaries-farmworkers.html
 **09campus-protests**\
 `Penn Encampment Expands as Tense U.S.C. Graduation Arrives`\
 https://nytimes.com/live/2024/05/09/us/college-campus-protests
-
-**Here’s the latest on campus protests.**\
-`By Shawn Hubler, Mattathias Schwartz and Julian Roberts-Grmela`\
-https://nytimes.com/live/2024/05/09/us/college-campus-protests/heres-the-latest-on-campus-protests
-
-**New ‘Lord of the Rings’ Movie Will Put Gollum Center Stage**\
-`Andy Serkis, who played the creature in the trilogy, will direct and star in “The Hunt for Gollum,” an expansion of the fantasy epic scheduled for 2026.`\
-https://nytimes.com/2024/05/09/arts/lord-of-the-rings-gollum-andy-serkis.html
-
-**Reality Show Contestants Compete for an Authoritarian’s Campaign Jingle**\
-`The program is one way President Nicolás Maduro of Venezuela is trying portray himself and his allies as joyful, colorful characters determined to save the nation.`\
-https://nytimes.com/2024/05/09/world/americas/venezuela-maduro-m-factor-show.html
 
