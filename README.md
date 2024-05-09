@@ -1,3 +1,11 @@
+**A Biden aide warns Israel against ‘smashing into Rafah.’**\
+`The president has grown increasingly wary of a major assault in the densely populated city in southern Gaza.`\
+https://nytimes.com/2024/05/09/us/politics/biden-kirby-israel-hamas-rafah.html
+
+**Boeing Locks Out Firefighters in Contract Dispute, and Biden Weighs In**\
+`The aircraft manufacturer and a union representing 125 firefighters are at odds over pay at the company’s plants in the Seattle area.`\
+https://nytimes.com/2024/05/09/business/boeing-lockout-firefighters-union-biden.html
+
 **In a surprise, Cornell’s president resigns.**\
 `By Stephanie Saul`\
 https://nytimes.com/live/2024/05/09/us/college-campus-protests/cornell-president-resigns-martha-pollack
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/09/nyregion/madeleine-westerhout-trump-trial.html
 **Passengers Escape Burning Boeing Plane at Airport in Senegal**\
 `At least 10 people were injured when a Boeing 737 passenger plane overran the runway at Blaise Diagne International Airport and caught fire, authorities said.`\
 https://nytimes.com/video/world/africa/100000009460445/boeing-senegal-plane-fire.html
-
-**Crews Searching for 2 Skiers After Avalanche in Utah**\
-`Another skier was rescued by helicopter after an avalanche of snow near Lone Peak on Thursday morning, the authorities said.`\
-https://nytimes.com/2024/05/09/us/avalanche-lone-peak-utah.html
-
-**Herbert Pardes, Who Steered the Growth of a Giant Hospital, Dies at 89**\
-`A psychiatrist, he ran New York-Presbyterian after a landmark merger, improving its patient care and finances and raising money to expand its footprint across the region.`\
-https://nytimes.com/2024/05/09/health/herbert-pardes-dead.html
 
