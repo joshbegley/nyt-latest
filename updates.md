@@ -1,3 +1,11 @@
+**In a Surprise, Cornell’s President Resigns**\
+`Martha E. Pollack said she would remain in office until July 1 and that the decision was “mine and mine alone.”`\
+https://nytimes.com/2024/05/09/us/cornell-president-resigns-martha-pollack.html
+
+**The Doom vs. Optimism Debate**\
+`How to reconcile two new reports that seem to tell very different stories about the state of climate change.`\
+https://nytimes.com/2024/05/09/climate/the-doom-vs-optimism-debate.html
+
 **Stormy Daniels, Echoing Trump’s Style, Pushes Back at Lawyer’s Attacks**\
 `In a second day of cross-examination, Ms. Daniels resisted the implication she had tried to shake down Donald J. Trump by selling her story of a sexual liaison.`\
 https://nytimes.com/2024/05/09/nyregion/trump-trial-stormy-daniels-hush-money.html
