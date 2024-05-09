@@ -1,3 +1,7 @@
+**Should Sporting Events Be Free?**\
+`A Paris soccer team made its tickets free. Should others follow suit, or at least make prices a lot cheaper?`\
+https://nytimes.com/2024/05/09/learning/should-sporting-events-be-free.html
+
 **Barron Trump Is Picked to Be Delegate at the Republican Convention**\
 `In his most political role to date, Donald J. Trump’s youngest son will serve as a delegate from Florida just a few months after graduating from high school.`\
 https://nytimes.com/2024/05/09/us/politics/barron-trump-gop-national-convention.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/09/movies/a-prince-review.html
 **Why You Can Hear the Temperature of Water**\
 `A science video maker in China couldn’t find a good explanation for why hot and cold water sound different, so he did his own research and published it.`\
 https://nytimes.com/2024/05/09/science/hot-water-sound-cold.html
-
-**Artificial Intelligence ‘Friends’**\
-`What Times tech columnist Kevin Roose learned about digital companionship.`\
-https://nytimes.com/2024/05/09/briefing/artificial-intelligence-chatbots.html
 
