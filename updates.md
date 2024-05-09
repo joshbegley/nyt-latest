@@ -1,3 +1,11 @@
+**Man Who Attacked Police Officers With Machete Sentenced to 27 Years**\
+`Prosecutors said Trevor Bickford had come to New York from Maine to carry out an attack “in the name of jihad” on New Year’s Eve in 2022.`\
+https://nytimes.com/2024/05/09/nyregion/trevor-bickford-machete-nypd-attack.html
+
+**White House Aide Warns Israel Against ‘Smashing Into Rafah’**\
+`The president has grown increasingly wary of a major assault in the densely populated city in southern Gaza.`\
+https://nytimes.com/2024/05/09/us/politics/biden-kirby-israel-hamas-rafah.html
+
 **Why Was This Treasure of Musical Theater All but Lost to the Ages?**\
 `It was one of the best Black musicals ever to make it to Broadway, and you’ve probably never heard of it.`\
 https://nytimes.com/2024/05/09/opinion/musical-raisin-broadway-black.html
