@@ -1,3 +1,15 @@
+**A Pithy YouTube Celebrity’s Plea: Buy This Video Game**\
+`After a decade of humorously reviewing games, the man known as Dunkey began a publishing company to support indie projects, starting with the mazelike Animal Well.`\
+https://nytimes.com/2024/05/09/arts/dunkey-animal-well-bigmode.html
+
+**Make Yourself a Meatloaf**\
+`Do it for the sandwiches.`\
+https://nytimes.com/2024/05/09/dining/meatloaf.html
+
+**What Students Are Saying About Tech in the Classroom**\
+`Does technology help students be more organized, efficient and prepared for the future? Or is it just a distraction?`\
+https://nytimes.com/2024/05/09/learning/what-students-are-saying-about-tech-in-the-classroom.html
+
 **09trump-trial**\
 `Live Updates: A Defiant Stormy Daniels Is Grilled by Trump’s Lawyers`\
 https://nytimes.com/live/2024/05/09/nyregion/trump-trial-stormy-daniels
