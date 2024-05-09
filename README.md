@@ -1,3 +1,7 @@
+**The Power of Lifelong Prevention**\
+`After years of finding ways to combat deadly diseases, a scientist and a doctor discover their new callings. `\
+https://nytimes.com/paidpost/gsk/the-power-of-lifelong-prevention.html
+
 **‘Time, Patience, Cold Blood’: Mexico Prepares for a Potential Trump Win**\
 `Mexican officials and aides are planning for a drastic shift in U.S. relations should Donald Trump win in November.`\
 https://nytimes.com/2024/05/09/world/americas/trump-mexico-2024-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/09/opinion/stormy-daniels-donald-trump.html
 **10 Terrific 2022 Beaujolais to Drink Now, or in a Few Years**\
 `Beaujolais, and its prices, are not what they used to be. Instead of bemoaning what has been lost, the wines today ought to be celebrated.`\
 https://nytimes.com/2024/05/09/dining/drinks/best-beaujolais.html
-
-**Teaching and Learning About the Pro-Palestinian Student Protests on College Campuses**\
-`A collection of resources and critical-thinking questions to help students better understand the protest movement and consider the complex issues it raises.`\
-https://nytimes.com/2024/05/09/learning/lesson-plans/teaching-and-learning-about-the-pro-palestinian-student-protests-on-college-campuses.html
 
