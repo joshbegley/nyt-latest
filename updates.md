@@ -1,3 +1,7 @@
+**The Chevy Malibu Was So Uncool It Was Cool**\
+`An unassuming car had a surprisingly large cultural footprint.`\
+https://nytimes.com/2024/05/09/style/chevy-malibu-culture-cool.html
+
 **Boeing Plane Goes Off Runway in Senegal, Leaving at Least 10 Injured**\
 `The authorities in Senegal said the incident involving the aircraft, a Boeing 737 that was flying to Mali, was under investigation.`\
 https://nytimes.com/2024/05/09/world/africa/boeing-plane-runway-senegal.html
