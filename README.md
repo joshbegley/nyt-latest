@@ -1,3 +1,7 @@
+**The doom vs. optimism debate**\
+`How to reconcile two new reports that seem to tell very different stories about the state of climate change.`\
+https://nytimes.com/2024/05/09/climate/the-doom-vs-optimism-debate.html
+
 **Madeleine Westerhout, Trump White House Gatekeeper, Takes Stand in Trial**\
 `Ms. Westerhout could confirm a key event in a hush-payment deal: Michael Cohen’s meeting with Donald J. Trump in the Oval Office.`\
 https://nytimes.com/2024/05/09/nyregion/madeleine-westerhout-trump-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/09/world/africa/boeing-plane-runway-senegal.html
 **Ukraine Strikes More Russian Oil Facilities in a Bid to Disrupt Military Logistics**\
 `Analysts say Ukraine is trying to disrupt the Russian military’s logistical routes and combat operations by targeting the facilities that supply fuel for its tanks, ships and fighter jets.`\
 https://nytimes.com/2024/05/09/world/europe/ukraine-strikes-russia-oil-refineries.html
-
-**Trump Summons Entourage for Moral Support During Mortifying Testimony**\
-`A rotating cast of supporters has come to Donald J. Trump’s criminal trial, including an aide nicknamed “the human printer,” who hands him hard copies of praise to bolster his morale.`\
-https://nytimes.com/2024/05/09/nyregion/trump-hush-money-trial-allies.html
 
