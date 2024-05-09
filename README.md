@@ -4,7 +4,7 @@ https://nytimes.com/2024/05/09/world/europe/russia-putin-victory-day.html
 
 **Southern States Brace for Severe Weather After 3 Days of Deadly Storms**\
 `Heavy rain and winds are expected on Thursday from Central Texas toward the Georgia coast. More than 12 million people were under a tornado watch.`\
-https://nytimes.com/2024/05/09/us/storms-weather-tornado-south-us.html
+https://nytimes.com/2024/05/09/us/storms-weather-tornado-south.html
 
 **A Plan to Break up Paramount**\
 `If Sony and Apollo Global win the fight to buy the media company, they plan to keep the studio business and sell everything else.`\
