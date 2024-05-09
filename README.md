@@ -1,3 +1,7 @@
+**Paging Senator Schumer …**\
+`There is a simple way to fix the Antisemitism Awareness Act.`\
+https://nytimes.com/2024/05/09/opinion/anti-semitism-awareness-act-fix.html
+
 **Friday Briefing: Stormy Daniels, Day Two**\
 `Also, Israel-Hamas talks falter again.`\
 https://nytimes.com/2024/05/09/world/asia/stormy-trump-israel-rafah-asia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/09/books/review/new-books-recommendations.html
 **In a Surprise, Cornell’s President Resigns**\
 `Martha E. Pollack said she would remain in office until July 1 and that the decision was “mine and mine alone.”`\
 https://nytimes.com/2024/05/09/us/cornell-president-resigns-martha-pollack.html
-
-**Embrace the Hot Restaurant Dupe**\
-`You don’t have to wait hours for a seat when there are similarly excellent restaurants throughout the city.`\
-https://nytimes.com/2024/05/09/dining/embrace-the-hot-restaurant-dupe.html
 
