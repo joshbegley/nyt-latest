@@ -1,3 +1,15 @@
+**Senate Races to Pass Bill to Reauthorize F.A.A. and Improve Air Travel**\
+`The legislation is due by Friday, but regional conflicts and demands for votes on unrelated provisions have slowed its progress.`\
+https://nytimes.com/2024/05/09/us/politics/senate-faa-air-travel.html
+
+**‘Mother of the Bride’ Review: An Old Flame in a Tropical Locale**\
+`Brooke Shields plays a single mother who comes face to face with her college ex-boyfriend at her daughter’s destination wedding in this tired romantic comedy.`\
+https://nytimes.com/2024/05/09/movies/mother-of-the-bride-review.html
+
+**Review: An Absent Player in the Spotlight at the Philharmonic**\
+`This week’s program was supposed to feature the orchestra’s principal oboe, but he and another player have been suspended amid misconduct allegations.`\
+https://nytimes.com/2024/05/09/arts/music/new-york-philharmonic-mozart-music.html
+
 **A Pithy YouTube Celebrity’s Plea: Buy This Video Game**\
 `After a decade of humorously reviewing games, the man known as Dunkey began a publishing company to support indie projects, starting with the mazelike Animal Well.`\
 https://nytimes.com/2024/05/09/arts/dunkey-animal-well-bigmode.html
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2024/05/09/us/supreme-court-major-cases-2024.htm
 **Norfolk Southern Investors Reject Plan to Oust Its Management**\
 `An activist investment firm failed to replace the railroad’s top executive and all its directors, but did win three seats on its board.`\
 https://nytimes.com/2024/05/09/business/norfolk-southern-activist-ancora-alan-shaw.html
-
-**Review: Impressed, but Not Transported, by ‘Spirited Away’**\
-`A stage production of the beloved Studio Ghibli movie is big on spectacle, but rarely grabs the heart.`\
-https://nytimes.com/2024/05/09/theater/spirited-away-london-coliseum.html
-
-**Scarlett Johansson Shares Her Beauty Regimen**\
-`Plus: a new hotel in Oxford, England, door knobs with personality and more recommendations.`\
-https://nytimes.com/2024/05/09/t-magazine/scarlett-johansson-beauty-skin-care-makeup.html
-
-**Readers Share Why They Love Living in the Golden State**\
-`The view from Richmond, the diversity of Los Angeles and the stunningly green hills in spring are a few reasons to call California home, readers say.`\
-https://nytimes.com/2024/05/09/us/california-love-letters.html
 

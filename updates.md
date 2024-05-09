@@ -1,3 +1,15 @@
+**Senate Races to Pass Bill to Reauthorize F.A.A. and Improve Air Travel**\
+`The legislation is due by Friday, but regional conflicts and demands for votes on unrelated provisions have slowed its progress.`\
+https://nytimes.com/2024/05/09/us/politics/senate-faa-air-travel.html
+
+**‘Mother of the Bride’ Review: An Old Flame in a Tropical Locale**\
+`Brooke Shields plays a single mother who comes face to face with her college ex-boyfriend at her daughter’s destination wedding in this tired romantic comedy.`\
+https://nytimes.com/2024/05/09/movies/mother-of-the-bride-review.html
+
+**Review: An Absent Player in the Spotlight at the Philharmonic**\
+`This week’s program was supposed to feature the orchestra’s principal oboe, but he and another player have been suspended amid misconduct allegations.`\
+https://nytimes.com/2024/05/09/arts/music/new-york-philharmonic-mozart-music.html
+
 **Norfolk Southern Investors Reject Plan to Oust Its Management**\
 `An activist investment firm failed to replace the railroad’s top executive and all its directors, but did win three seats on its board.`\
 https://nytimes.com/2024/05/09/business/norfolk-southern-activist-ancora-alan-shaw.html
