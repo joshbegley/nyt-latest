@@ -1,3 +1,7 @@
+**Southern States Brace for Severe Weather After 3 Days of Deadly Storms**\
+`Heavy rain and winds are expected on Thursday from Central Texas toward the Georgia coast. More than 12 million people were under a tornado watch.`\
+https://nytimes.com/2024/05/09/us/storms-weather-tornado-south.html
+
 **At Victory Day Parade, Putin Seeks to Keep Ukraine in the Distance**\
 `A fighter fly-past returned to Russia’s World War II commemorations, where President Vladimir V. Putin permitted himself a single reference to his “special military operation.”`\
 https://nytimes.com/2024/05/09/world/europe/russia-putin-victory-day.html
