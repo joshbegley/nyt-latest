@@ -1,3 +1,7 @@
+**6 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/05/09/books/review/new-books-recommendations.html
+
 **Embrace the Hot Restaurant Dupe**\
 `You don’t have to wait hours for a seat when there are similarly excellent restaurants throughout the city.`\
 https://nytimes.com/2024/05/09/dining/embrace-the-hot-restaurant-dupe.html

@@ -1,3 +1,11 @@
+**6 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/05/09/books/review/new-books-recommendations.html
+
+**In a surprise, Cornell’s president resigns.**\
+`By Stephanie Saul`\
+https://nytimes.com/live/2024/05/09/us/college-campus-protests/cornell-president-resigns-martha-pollack
+
 **Embrace the Hot Restaurant Dupe**\
 `You don’t have to wait hours for a seat when there are similarly excellent restaurants throughout the city.`\
 https://nytimes.com/2024/05/09/dining/embrace-the-hot-restaurant-dupe.html
@@ -9,10 +17,6 @@ https://nytimes.com/2024/05/09/us/politics/biden-kirby-israel-hamas-rafah.html
 **Boeing Locks Out Firefighters in Contract Dispute, and Biden Weighs In**\
 `The aircraft manufacturer and a union representing 125 firefighters are at odds over pay at the company’s plants in the Seattle area.`\
 https://nytimes.com/2024/05/09/business/boeing-lockout-firefighters-union-biden.html
-
-**In a surprise, Cornell’s president resigns.**\
-`By Stephanie Saul`\
-https://nytimes.com/live/2024/05/09/us/college-campus-protests/cornell-president-resigns-martha-pollack
 
 **N.Y. Ethics Panel Violates State Constitution, Appeals Court Rules**\
 `In a victory for former Gov. Andrew Cuomo, the court upheld a lower-court ruling against the ethics commission, created by Gov. Kathy Hochul. The state promised to appeal again.`\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/07/opinion/thepoint/stormy-daniels-trump-cross-
 **The Doom vs. Optimism Debate**\
 `How to reconcile two new reports that seem to tell very different stories about the state of climate change.`\
 https://nytimes.com/2024/05/09/climate/the-doom-vs-optimism-debate.html
-
-**Madeleine Westerhout, Trump White House Gatekeeper, Takes Stand in Trial**\
-`Ms. Westerhout could confirm a key event in a hush-payment deal: Michael Cohen’s meeting with Donald J. Trump in the Oval Office.`\
-https://nytimes.com/2024/05/09/nyregion/madeleine-westerhout-trump-trial.html
 
