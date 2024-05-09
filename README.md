@@ -1,3 +1,11 @@
+**Massive Fossil Donation Helps Brazil’s National Museum Rise From the Ashes**\
+`A gift from abroad of more than 1,100 Brazilian fossils aims to step up efforts to rebuild the country’s National Museum, which suffered major fire damage in 2018.`\
+https://nytimes.com/2024/05/09/science/brazil-fossils-museum-donation.html
+
+**Mike Johnson Becomes the Speaker of the Whole House. For Now.**\
+`Democrats saved the speaker but want to oust him at the ballot box in November, while his standing in his own party remains in serious question.`\
+https://nytimes.com/2024/05/09/us/politics/mike-johnson-speaker-vote.html
+
 **The Major Supreme Court Cases of 2024**\
 `No Supreme Court term in recent memory has featured so many cases with the potential to transform American society.`\
 https://nytimes.com/interactive/2024/05/09/us/supreme-court-major-cases-2024.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/05/09/us/biden-trump-election
 **Should Sporting Events Be Free?**\
 `A Paris soccer team made its tickets free. Should others follow suit, or at least make prices a lot cheaper?`\
 https://nytimes.com/2024/05/09/learning/should-sporting-events-be-free.html
-
-**Barron Trump Is Picked to Be Delegate at the Republican Convention**\
-`In his most political role to date, Donald J. Trump’s youngest son will serve as a delegate from Florida just a few months after graduating from high school.`\
-https://nytimes.com/2024/05/09/us/politics/barron-trump-gop-national-convention.html
-
-**At Victory Day Parade, Putin Seeks to Keep Ukraine in the Distance**\
-`A fighter fly-past returned to Russia’s World War II commemorations, where President Vladimir V. Putin permitted himself a single reference to his “special military operation.”`\
-https://nytimes.com/2024/05/09/world/europe/russia-putin-victory-day.html
 
