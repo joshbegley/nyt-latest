@@ -1,3 +1,11 @@
+**Healing the American Soul**\
+`It starts with keeping our humanity and recognizing it in others.`\
+https://nytimes.com/2024/05/09/opinion/polarization-biden-america.html
+
+**Give Me Laundry Liberty or Give Me Death!**\
+`MAGA Republicans’ obsession with woke washing machines.`\
+https://nytimes.com/2024/05/09/opinion/republicans-home-appliances.html
+
 **Chad’s Military Ruler Is Announced as Winner of Disputed Election**\
 `The Central African country’s incumbent president and his prime minister both ran. Shortly after the prime minister claimed victory, the president was declared the winner.`\
 https://nytimes.com/2024/05/09/world/africa/chad-election.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/09/us/politics/biden-asylum-immigration.html
 **Stormy Daniels Is Steady on the Stand: 5 Takeaways From Trump’s Trial**\
 `In a grueling day of cross-examination, Ms. Daniels sparred with Donald J. Trump’s lawyers, showing steely humor, but also vulnerability.`\
 https://nytimes.com/2024/05/09/nyregion/trump-trial-stormy-daniels-takeaways.html
-
-**Merchan, Denying a Mistrial, Chides Trump’s Lawyers for Their Missteps**\
-`Justice Juan M. Merchan issued a blistering ruling in Donald J. Trump’s trial on Thursday, displaying frustration beyond what he showed after rejecting a previous request for a mistrial.`\
-https://nytimes.com/2024/05/09/nyregion/trump-mistrial-judge-merchan.html
-
-**As Gaza Talks Falter, Negotiators Look for a Deal or a Scapegoat**\
-`President Biden’s decision to withhold offensive weapons if Israel attacks Rafah has scrambled cease-fire talks. But much of the various sides’ recriminations may be to gain advantage — or shift blame.`\
-https://nytimes.com/2024/05/09/us/politics/gaza-israel-biden-hamas.html
 
