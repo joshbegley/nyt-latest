@@ -1,3 +1,7 @@
+**Barron Trump Is Picked to Be Delegate at the Republican Convention**\
+`In his most political role to date, Donald J. Trump’s youngest son will serve as a delegate from Florida just a few months after graduating from high school.`\
+https://nytimes.com/2024/05/09/us/politics/barron-trump-republican-national-convention.html
+
 **At Victory Day Parade, Putin Seeks to Keep Ukraine in the Distance**\
 `A fighter fly-past returned to Russia’s World War II commemorations, where President Vladimir V. Putin permitted himself a single reference to his “special military operation.”`\
 https://nytimes.com/2024/05/09/world/europe/russia-putin-victory-day.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/09/science/hot-water-sound-cold.html
 **Artificial Intelligence ‘Friends’**\
 `What Times tech columnist Kevin Roose learned about digital companionship.`\
 https://nytimes.com/2024/05/09/briefing/artificial-intelligence-chatbots.html
-
-**Tens of Thousands Have Fled Rafah Since Monday, U.N. Says**\
-`Israeli forces had called for the evacuation of about 110,000 people from the eastern part of the Gazan city and seized the Gaza side of a border crossing with Egypt in an incursion this week.`\
-https://nytimes.com/2024/05/09/world/middleeast/israel-rafah-evacuation-gaza-un.html
 
