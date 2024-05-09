@@ -2,7 +2,7 @@
 `The Chinese leader met with Viktor Orban, the Hungarian prime minister, one of China’s most fervent admirers and protectors in Europe.`\
 https://nytimes.com/2024/05/09/world/europe/xi-jinping-china-hungary-orban.html
 
-**Cease-fire talks are put on hold as tempers flare over Israeli actions in Rafah.**\
+**The halt in talks is a setback amid hopes for an agreement to free hostages.**\
 `By Julian E. Barnes, Vivian Yee, Aaron Boxerman and Adam Rasgon`\
 https://nytimes.com/live/2024/05/09/world/israel-gaza-war-hamas-rafah/cease-fire-talks-are-put-on-hold-as-tempers-flare-over-israeli-actions-in-rafah
 
