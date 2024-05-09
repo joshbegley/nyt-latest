@@ -1,3 +1,11 @@
+**One Strongman, One Billion Voters, and the Future of India**\
+`Narendra Modi has proved one of India’s most consequential leaders. But he has drawn criticism for anti-democratic practices and charges of religious persecution.`\
+https://nytimes.com/2024/05/09/podcasts/the-daily/india-election-modi.html
+
+**Stormy Daniels Faces Trump’s Lawyers, and Biden Blocks Weapons for Use in Rafah**\
+`Plus, Putin’s parade.`\
+https://nytimes.com/2024/05/09/podcasts/stormy-daniels-biden-rafah.html
+
 **Israel’s Shutdown of Al Jazeera Highlights Long-Running Tensions**\
 `The network will keep covering the war in Gaza, but it will be harder for Israelis to watch. Israel calls the network a security threat, while Al Jazeera says Israel wants to conceal its brutality.`\
 https://nytimes.com/2024/05/09/world/middleeast/al-jazeera-israel-shutdown.html

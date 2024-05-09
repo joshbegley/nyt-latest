@@ -1,3 +1,11 @@
+**One Strongman, One Billion Voters, and the Future of India**\
+`Narendra Modi has proved one of India’s most consequential leaders. But he has drawn criticism for anti-democratic practices and charges of religious persecution.`\
+https://nytimes.com/2024/05/09/podcasts/the-daily/india-election-modi.html
+
+**Stormy Daniels Faces Trump’s Lawyers, and Biden Blocks Weapons for Use in Rafah**\
+`Plus, Putin’s parade.`\
+https://nytimes.com/2024/05/09/podcasts/stormy-daniels-biden-rafah.html
+
 **Israel’s Shutdown of Al Jazeera Highlights Long-Running Tensions**\
 `The network will keep covering the war in Gaza, but it will be harder for Israelis to watch. Israel calls the network a security threat, while Al Jazeera says Israel wants to conceal its brutality.`\
 https://nytimes.com/2024/05/09/world/middleeast/al-jazeera-israel-shutdown.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/09/realestate/housing-market-near-nyc.html
 **How Andy Serkis Gave Owen Teague the Keys to the ‘Planet’**\
 `A conversation with Serkis, the star of the earlier films in the “Planet of the Apes” franchise, and Teague, the lead of the latest film, “Kingdom of the Planet of the Apes.”`\
 https://nytimes.com/2024/05/09/movies/andy-serkis-owen-teague-planet-of-the-apes.html
-
-**10 Big Biden Environmental Rules, and What They Mean**\
-`Asbestos, “forever” chemicals, E.V.s and endangered species. Here’s what 10 new rules cover, and why the administration has been churning them out.`\
-https://nytimes.com/2024/05/09/climate/biden-environmental-rules-epa.html
-
-**‘Gasoline Rainbow’ Review: We’re on a Ride to Nowhere**\
-`This semi-fictional tale of a road trip for weirdos is full of joy.`\
-https://nytimes.com/2024/05/09/movies/gasoline-rainbow-review.html
 
