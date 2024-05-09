@@ -1,3 +1,7 @@
+**The Chevy Malibu Was So Uncool It Was Cool**\
+`An unassuming car had a surprisingly large cultural footprint.`\
+https://nytimes.com/2024/05/09/style/chevy-malibu-culture-cool.html
+
 **Boeing Plane Goes Off Runway in Senegal, Leaving at Least 10 Injured**\
 `The authorities in Senegal said the incident involving the aircraft, a Boeing 737 that was flying to Mali, was under investigation.`\
 https://nytimes.com/2024/05/09/world/africa/boeing-plane-runway-senegal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/09/arts/lord-of-the-rings-gollum-andy-serkis.html
 **Reality Show Contestants Compete for an Authoritarian’s Campaign Jingle**\
 `The program is one way President Nicolás Maduro of Venezuela is trying portray himself and his allies as joyful, colorful characters determined to save the nation.`\
 https://nytimes.com/2024/05/09/world/americas/venezuela-maduro-m-factor-show.html
-
-**Months Late, Biden Uses His Leverage on Israel**\
-`He’s finally applying leverage.`\
-https://nytimes.com/live/2024/05/07/opinion/thepoint/biden-israel-arms-transfer
 
