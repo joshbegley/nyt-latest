@@ -1,3 +1,11 @@
+**Are R.F.K. Jr. Signature Gatherers Misleading New Yorkers for Ballot Access?**\
+`More than half a dozen New York City residents described encounters with people seeking their signature who did not make clear that their aim was to place the independent 2024 candidate on the ballot.`\
+https://nytimes.com/2024/05/09/us/politics/rfk-signatures-ny.html
+
+**Why Higher Fed Rates Are Not Totally Off the Table**\
+`Fed officials still think their next move will be to cut rates, but they are not entirely ruling out the possibility that they might have to raise them.`\
+https://nytimes.com/2024/05/09/business/economy/federal-reserve-powell-raise-interest-rates.html
+
 **Donald Trump’s Lawyer Pressed Stormy Daniels**\
 `Also, a setback in Gaza cease-fire talks. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/05/09/briefing/trump-trial-stormy-daniels-gaza-cease-fire-talks.html
