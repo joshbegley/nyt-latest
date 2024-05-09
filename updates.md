@@ -1,3 +1,11 @@
+**Healing the American Soul**\
+`It starts with keeping our humanity and recognizing it in others.`\
+https://nytimes.com/2024/05/09/opinion/polarization-biden-america.html
+
+**Give Me Laundry Liberty or Give Me Death!**\
+`MAGA Republicans’ obsession with woke washing machines.`\
+https://nytimes.com/2024/05/09/opinion/republicans-home-appliances.html
+
 **Chad’s Military Ruler Is Announced as Winner of Disputed Election**\
 `The Central African country’s incumbent president and his prime minister both ran. Shortly after the prime minister claimed victory, the president was declared the winner.`\
 https://nytimes.com/2024/05/09/world/africa/chad-election.html
