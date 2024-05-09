@@ -1,3 +1,7 @@
+**A Defiant Stormy Daniels Survives a Difficult Cross-Examination**\
+`Trump’s lawyer tried to pepper her with minor inconsistencies but didn’t land a real blow.`\
+https://nytimes.com/live/2024/05/07/opinion/thepoint/stormy-daniels-trump-cross-examination
+
 **The doom vs. optimism debate**\
 `How to reconcile two new reports that seem to tell very different stories about the state of climate change.`\
 https://nytimes.com/2024/05/09/climate/the-doom-vs-optimism-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/09/style/chevy-malibu-culture-cool.html
 **Boeing Plane Goes Off Runway in Senegal, Leaving at Least 10 Injured**\
 `The authorities in Senegal said the incident involving the aircraft, a Boeing 737 that was flying to Mali, was under investigation.`\
 https://nytimes.com/2024/05/09/world/africa/boeing-plane-runway-senegal.html
-
-**Ukraine Strikes More Russian Oil Facilities in a Bid to Disrupt Military Logistics**\
-`Analysts say Ukraine is trying to disrupt the Russian military’s logistical routes and combat operations by targeting the facilities that supply fuel for its tanks, ships and fighter jets.`\
-https://nytimes.com/2024/05/09/world/europe/ukraine-strikes-russia-oil-refineries.html
 
