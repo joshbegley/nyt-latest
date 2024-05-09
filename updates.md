@@ -1,3 +1,7 @@
+**At a Dinner, Trump Assailed Climate Rules and Asked $1 Billion From Big Oil**\
+`At a private meeting at Mar-a-Lago, the former president said fossil fuel companies should donate to help him beat President Biden.`\
+https://nytimes.com/2024/05/09/climate/trump-oil-gas-mar-a-lago.html
+
 **Tuna Crabs, Neither Tuna Nor Crabs, Are Swarming Near San Diego**\
 `Divers and marine biologists are getting a window into the lives of a red crustacean most often found in the guts of other species.`\
 https://nytimes.com/2024/05/09/science/tuna-crabs-san-diego.html

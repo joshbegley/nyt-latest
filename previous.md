@@ -1,3 +1,7 @@
+**At a Dinner, Trump Assailed Climate Rules and Asked $1 Billion From Big Oil**\
+`At a private meeting at Mar-a-Lago, the former president said fossil fuel companies should donate to help him beat President Biden.`\
+https://nytimes.com/2024/05/09/climate/trump-oil-gas-mar-a-lago.html
+
 **Tuna Crabs, Neither Tuna Nor Crabs, Are Swarming Near San Diego**\
 `Divers and marine biologists are getting a window into the lives of a red crustacean most often found in the guts of other species.`\
 https://nytimes.com/2024/05/09/science/tuna-crabs-san-diego.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/09/business/low-rate-assumable-mortgage.html
 **Transcript of Trump Manhattan Trial, May 7, 2024**\
 `New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
 https://nytimes.com/interactive/2024/05/09/nyregion/trump-hush-money-trial-transcript-may-7.html
-
-**Review: ‘Black Twitter’ Looks at Who Gave the Platform Its Voice**\
-`Hulu’s docuseries on a social-media subculture doubles as a serious snapshot of recent history.`\
-https://nytimes.com/2024/05/09/arts/television/review-black-twitter.html
 
