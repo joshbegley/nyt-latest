@@ -1,3 +1,11 @@
+**Tuna Crabs, Neither Tuna Nor Crabs, Are Swarming Near San Diego**\
+`Divers and marine biologists are getting a window into the lives of a red crustacean most often found in the guts of other species.`\
+https://nytimes.com/2024/05/09/science/tuna-crabs-san-diego.html
+
+**The halt in talks is a setback amid hopes for an agreement to free hostages.**\
+`By Julian E. Barnes, Vivian Yee, Aaron Boxerman and Adam Rasgon`\
+https://nytimes.com/live/2024/05/09/world/israel-gaza-war-hamas-rafah/cease-fire-talks-are-put-on-hold-as-tempers-flare-over-israeli-actions-in-rafah
+
 **In Budapest, Xi Hails a ‘Deep Friendship’ With Hungary**\
 `The Chinese leader met with Viktor Orban, the Hungarian prime minister, one of China’s most fervent admirers and protectors in Europe.`\
 https://nytimes.com/2024/05/09/world/europe/xi-jinping-china-hungary-orban.html
