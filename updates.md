@@ -1,3 +1,19 @@
+**Madeleine Westerhout, Trump White House Gatekeeper, Takes Stand in Trial**\
+`Ms. Westerhout could confirm a key event in a hush-payment deal: Michael Cohen’s meeting with Donald J. Trump in the Oval Office.`\
+https://nytimes.com/2024/05/09/nyregion/madeleine-westerhout-trump-trial.html
+
+**Passengers Escape Burning Boeing Plane at Airport in Senegal**\
+`At least 10 people were injured when a Boeing 737 passenger plane overran the runway at Blaise Diagne International Airport and caught fire, authorities said.`\
+https://nytimes.com/video/world/africa/100000009460445/boeing-senegal-plane-fire.html
+
+**Crews Searching for 2 Skiers After Avalanche in Utah**\
+`Another skier was rescued by helicopter after an avalanche of snow near Lone Peak on Thursday morning, the authorities said.`\
+https://nytimes.com/2024/05/09/us/avalanche-lone-peak-utah.html
+
+**Herbert Pardes, Who Steered the Growth of a Giant Hospital, Dies at 89**\
+`A psychiatrist, he ran New York-Presbyterian after a landmark merger, improving its patient care and finances and raising money to expand its footprint across the region.`\
+https://nytimes.com/2024/05/09/health/herbert-pardes-dead.html
+
 **Herbert Pardes, Who Steered the Growth of a Giant Hospital, Dies at 89**\
 `A psychiatrist, he ran New York-Presbyterian after a merger, improving patient care, finances and fund-raising to expand its footprint across the region.`\
 https://nytimes.com/2024/05/09/health/herbert-pardes-dead.html
