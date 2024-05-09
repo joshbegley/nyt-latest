@@ -1,3 +1,15 @@
+**House Vote Count: How Speaker Mike Johnson Survived Motion on Ousting**\
+`Republicans and Democrats voted Wednesday to block a motion that sought to remove the speaker of the House.`\
+https://nytimes.com/interactive/2024/05/08/us/politics/house-vote-speaker-johnson.html
+
+**U.C.L.A. Protesters Had Metal Pipes and ‘Occupation Guide,’ Police Say**\
+`More than 40 people were arrested Monday on suspicion of conspiracy to commit a crime, according to the police department at the University of California, Los Angeles.`\
+https://nytimes.com/2024/05/08/us/ucla-activist-arrest-pipes.html
+
+**Man Sentenced to 25 Years in Stabbings of 3 Homeless Men in Manhattan**\
+`Trevon Murphy, who a family member said had a history of mental health problems, killed one man and injured two others.`\
+https://nytimes.com/2024/05/08/nyregion/trevon-murphy-stabbings-sentence.html
+
 **Apple’s New iPad Ad Leaves Its Creative Audience Feeling … Flat**\
 `An ad meant to show how the updated device can do many things has become a metaphor for a community’s fears of the technology industry.`\
 https://nytimes.com/2024/05/08/business/apple-ipad-crush-ad.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/05/08/world/israel-gaza-war-hamas-rafah/if-they-go
 **Sunak to Urge University Leaders to Protect Jewish Students on Campus**\
 `Prime Minister Rishi Sunak will meet with a group of British university leaders on Thursday to discuss ways to tackle antisemitism, as pro-Palestinian protests on campuses spread.`\
 https://nytimes.com/2024/05/08/world/europe/sunak-uk-university-campus-protests.html
-
-**Sony and Apollo’s Plan for Paramount: Break It Up**\
-`CBS and other well-known properties would be sold if Sony and Apollo are able to buy Paramount. But the new owners would keep the movie studio.`\
-https://nytimes.com/2024/05/08/business/media/sony-apollo-paramount-plan.html
-
-**Young Voters Aren’t Happy With Biden. But Will They Abandon Him?**\
-`The president’s complicated relationship with a key demographic.`\
-https://nytimes.com/2024/05/08/opinion/biden-young-voters-gaza.html
-
-**Disney, Hulu and Max Streaming Bundle Will Soon Become Available**\
-`The offering from Disney and Warner Bros. Discovery shows how rival companies are willing to work together to navigate an uncertain entertainment landscape.`\
-https://nytimes.com/2024/05/08/business/media/disney-plus-max-streaming-bundle.html
 

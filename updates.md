@@ -1,3 +1,15 @@
+**House Vote Count: How Speaker Mike Johnson Survived Motion on Ousting**\
+`Republicans and Democrats voted Wednesday to block a motion that sought to remove the speaker of the House.`\
+https://nytimes.com/interactive/2024/05/08/us/politics/house-vote-speaker-johnson.html
+
+**U.C.L.A. Protesters Had Metal Pipes and ‘Occupation Guide,’ Police Say**\
+`More than 40 people were arrested Monday on suspicion of conspiracy to commit a crime, according to the police department at the University of California, Los Angeles.`\
+https://nytimes.com/2024/05/08/us/ucla-activist-arrest-pipes.html
+
+**Man Sentenced to 25 Years in Stabbings of 3 Homeless Men in Manhattan**\
+`Trevon Murphy, who a family member said had a history of mental health problems, killed one man and injured two others.`\
+https://nytimes.com/2024/05/08/nyregion/trevon-murphy-stabbings-sentence.html
+
 **Apple’s New iPad Ad Leaves Its Creative Audience Feeling … Flat**\
 `An ad meant to show how the updated device can do many things has become a metaphor for a community’s fears of the technology industry.`\
 https://nytimes.com/2024/05/08/business/apple-ipad-crush-ad.html
