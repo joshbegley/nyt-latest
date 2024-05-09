@@ -1,3 +1,11 @@
+**Why Was This Treasure of Musical Theater All but Lost to the Ages?**\
+`It was one of the best Black musicals ever to make it to Broadway, and you’ve probably never heard of it.`\
+https://nytimes.com/2024/05/09/opinion/musical-raisin-broadway-black.html
+
+**Fresh Off Defeat in Speaker Fight, Greene Is ‘Thrilled’ With the Chaos She Wrought**\
+`The hard-right congresswoman from Georgia said she got exactly what she wanted when she failed to depose Speaker Mike Johnson: proof that he had been co-opted by Democrats and the G.O.P. was complicit.`\
+https://nytimes.com/2024/05/09/us/politics/marjorie-taylor-greene-johnson.html
+
 **She Wanted to Help Strangers. Would They Take Her Up on It?**\
 `Bianca Giaever wasn’t feeling very helpful in her daily life, so she tried to do small favors for passers-by in Union Square. It got complicated.`\
 https://nytimes.com/2024/05/09/style/bianca-giaever-free-help-union-square.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/09/us/politics/biden-kirby-israel-hamas-rafah.html
 **Boeing Locks Out Firefighters in Contract Dispute, and Biden Weighs In**\
 `The aircraft manufacturer and a union representing 125 firefighters are at odds over pay at the company’s plants in the Seattle area.`\
 https://nytimes.com/2024/05/09/business/boeing-lockout-firefighters-union-biden.html
-
-**N.Y. Ethics Panel Violates State Constitution, Appeals Court Rules**\
-`In a victory for former Gov. Andrew Cuomo, the court upheld a lower-court ruling against the ethics commission, created by Gov. Kathy Hochul. The state promised to appeal again.`\
-https://nytimes.com/2024/05/09/nyregion/cuomo-lawsuit-ethics.html
-
-**Biden’s decision to block bomb shipments isn’t the first time the U.S. has withheld weapons from Israel.**\
-`By Neil MacFarquhar`\
-https://nytimes.com/live/2024/05/09/world/israel-gaza-war-hamas-rafah/bidens-decision-to-block-bomb-shipments-isnt-the-first-time-the-us-has-withheld-weapons-from-israel
 
