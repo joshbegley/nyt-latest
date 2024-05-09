@@ -1,3 +1,15 @@
+**U.S. Judge Backs U.K. Request to Extradite ‘Irish Heiress’ Who Swindled Producer**\
+`Marianne Smyth served a U.S. sentence for stealing thousands. On Thursday, a judge agreed she should be extradited to Northern Ireland on separate fraud and theft charges.`\
+https://nytimes.com/2024/05/09/us/marianne-smyth-irish-heiress-con.html
+
+**Biden Aims to Speed Up Asylum Screenings in Certain Cases**\
+`As President Biden considers sweeping changes to the U.S. asylum system, he is also taking smaller steps to try to control the backlogs.`\
+https://nytimes.com/2024/05/09/us/politics/biden-asylum-immigration.html
+
+**Stormy Daniels Is Steady on the Stand: 5 Takeaways From Trump’s Trial**\
+`In a grueling day of cross-examination, Ms. Daniels sparred with Donald J. Trump’s lawyers, showing steely humor, but also vulnerability.`\
+https://nytimes.com/2024/05/09/nyregion/trump-trial-stormy-daniels-takeaways.html
+
 **Merchan, Denying a Mistrial, Chides Trump’s Lawyers for Their Missteps**\
 `Justice Juan M. Merchan issued a blistering ruling in Donald J. Trump’s trial on Thursday, displaying frustration beyond what he showed after rejecting a previous request for a mistrial.`\
 https://nytimes.com/2024/05/09/nyregion/trump-mistrial-judge-merchan.html
