@@ -1,3 +1,7 @@
+**Why You Can Hear the Temperature of Water**\
+`A science video maker in China couldn’t find a good explanation for why hot and cold water sound different, so he did his own research and published it.`\
+https://nytimes.com/2024/05/09/science/hot-water-sound-cold.html
+
 **Artificial Intelligence ‘Friends’**\
 `What Times tech columnist Kevin Roose learned about digital companionship.`\
 https://nytimes.com/2024/05/09/briefing/artificial-intelligence-chatbots.html
