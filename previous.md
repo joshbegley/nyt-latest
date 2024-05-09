@@ -1,10 +1,14 @@
+**Stormy Daniels, Echoing Trump’s Style, Pushes Back at Lawyer’s Attacks**\
+`In a second day of cross-examination, Ms. Daniels resisted the implication she had tried to shake down Donald J. Trump by selling her story of a sexual liaison.`\
+https://nytimes.com/2024/05/09/nyregion/trump-trial-stormy-daniels-hush-money.html
+
 **6 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/05/09/books/review/new-books-recommendations.html
 
 **In a surprise, Cornell’s president resigns.**\
-`By Stephanie Saul`\
-https://nytimes.com/live/2024/05/09/us/college-campus-protests/cornell-president-resigns-martha-pollack
+`Martha E. Pollack said she would remain in office until July 1 and that the decision was “mine and mine alone.”`\
+https://nytimes.com/2024/05/09/us/cornell-president-resigns-martha-pollack.html
 
 **Embrace the Hot Restaurant Dupe**\
 `You don’t have to wait hours for a seat when there are similarly excellent restaurants throughout the city.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/09/arts/design/egon-schiele-nazi-loot-court-case.htm
 **A Defiant Stormy Daniels Survives a Difficult Cross-Examination**\
 `Trump’s lawyer tried to pepper her with minor inconsistencies but didn’t land a real blow.`\
 https://nytimes.com/live/2024/05/07/opinion/thepoint/stormy-daniels-trump-cross-examination
-
-**The Doom vs. Optimism Debate**\
-`How to reconcile two new reports that seem to tell very different stories about the state of climate change.`\
-https://nytimes.com/2024/05/09/climate/the-doom-vs-optimism-debate.html
 

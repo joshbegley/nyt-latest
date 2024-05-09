@@ -1,3 +1,11 @@
+**Stormy Daniels, Echoing Trump’s Style, Pushes Back at Lawyer’s Attacks**\
+`In a second day of cross-examination, Ms. Daniels resisted the implication she had tried to shake down Donald J. Trump by selling her story of a sexual liaison.`\
+https://nytimes.com/2024/05/09/nyregion/trump-trial-stormy-daniels-hush-money.html
+
+**In a surprise, Cornell’s president resigns.**\
+`Martha E. Pollack said she would remain in office until July 1 and that the decision was “mine and mine alone.”`\
+https://nytimes.com/2024/05/09/us/cornell-president-resigns-martha-pollack.html
+
 **6 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/05/09/books/review/new-books-recommendations.html
