@@ -1,3 +1,7 @@
+**In Sex Crimes Cases, New York Weighs Allowing Evidence of Prior Bad Acts**\
+`The overturning of Harvey Weinstein’s conviction has prompted New York lawmakers to introduce bills that would allow prosecutors to bring up a defendant’s past in sex crimes cases.`\
+https://nytimes.com/2024/05/09/nyregion/weinstein-testimony-victims.html
+
 **President Biden’s Biggest Blunder**\
 `The consequences of Biden’s decision to withhold munitions from Israel could be the opposite of what he intends.`\
 https://nytimes.com/2024/05/09/opinion/president-bidens-biggest-blunder.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/09/us/politics/gaza-israel-biden-hamas.html
 **Apple Says Destructive iPad Ad ‘Missed the Mark’**\
 `People in the creative world widely panned a commercial showing a giant hydraulic press squishing objects ranging from paint cans to a piano.`\
 https://nytimes.com/2024/05/09/technology/apple-ipad-ad-crush-apology.html
-
-**Are R.F.K. Jr. Signature Gatherers Misleading New Yorkers for Ballot Access?**\
-`More than half a dozen New York City residents described encounters with people seeking their signature who did not make clear that their aim was to place the independent 2024 candidate on the ballot.`\
-https://nytimes.com/2024/05/09/us/politics/rfk-signatures-ny.html
 
