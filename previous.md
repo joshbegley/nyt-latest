@@ -1,40 +1,40 @@
-**Late Night Reacts to the Worm in R.F.K. Jr.’s Brain**\
-`“This explains everything, and nothing,” Stephen Colbert said about the presidential hopeful’s newly reported parasite.`\
-https://nytimes.com/2024/05/09/arts/television/late-night-rfk-jr-worm.html
+**The C.E.O.s Who Just Won’t Quit**\
+`What happens to a company — and the economy — when the boss refuses to retire?`\
+https://nytimes.com/2024/05/09/magazine/forever-ceos.html
 
-**Stormy Daniels Returns to the Stand**\
-`Ms. Daniels testified for about five hours on Tuesday and will return on Thursday for further cross-examination by Donald J. Trump’s lawyers.`\
-https://nytimes.com/2024/05/09/nyregion/stormy-daniels-testifies-trump-trial.html
+**Divesting From Israel Is Impractical and Illogical**\
+`Colleges cannot accede to student protesters’ demands that they jettison investments because of the war in Gaza.`\
+https://nytimes.com/2024/05/09/opinion/divest-campus-protest-israel.html
 
-**A Recap of Stormy Daniels’s Testimony So Far in Trump’s Hush-Money Trial**\
-`Prosecutors have argued that Ms. Daniels’s efforts to sell her story of a sexual encounter with Donald J. Trump supplied the motive for his alleged crimes.`\
-https://nytimes.com/2024/05/09/nyregion/stormy-daniels-testimony-trump-trial.html
+**The Cities With the Most Dog-Friendly Rentals**\
+`And the most popular breed and dog name in each.`\
+https://nytimes.com/2024/05/09/realestate/the-cities-with-the-most-dog-friendly-rentals.html
 
-**A Plan to Help Harlem Students Build Wealth: Start Them Off With $10,000**\
-`The Harlem Children’s Zone is investing millions of dollars to create savings plans for students in its charter schools and, eventually, nationwide.`\
-https://nytimes.com/2024/05/09/nyregion/harlem-childrens-zone-students-invest.html
+**How Republicans Echo Antisemitic Tropes Despite Declaring Support for Israel**\
+`Prominent Republicans have seized on campus protests to assail what they say is antisemitism on the left. But for years they have mainstreamed anti-Jewish rhetoric.`\
+https://nytimes.com/2024/05/09/us/antisemitism-republicans-trump.html
 
-**Today’s Wordle Review No. 1,055**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/09/crosswords/wordle-review.html
+**Homes for Sale in Manhattan and the Bronx**\
+`This week’s properties are on Riverside Drive, in Chelsea and in the South Bronx.`\
+https://nytimes.com/2024/05/09/realestate/housing-market-nyc.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/05/09/crosswords/spelling-bee-forum.html
+**Homes for Sale in New York and Connecticut**\
+`This week’s properties are three-bedroom homes in Croton-on-Hudson, N.Y., and Redding, Conn.`\
+https://nytimes.com/2024/05/09/realestate/housing-market-near-nyc.html
 
-**The Connections Companion No. 333**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/09/crosswords/connections-companion.html
+**How Andy Serkis Gave Owen Teague the Keys to the ‘Planet’**\
+`A conversation with Serkis, the star of the earlier films in the “Planet of the Apes” franchise, and Teague, the lead of the latest film, “Kingdom of the Planet of the Apes.”`\
+https://nytimes.com/2024/05/09/movies/andy-serkis-owen-teague-planet-of-the-apes.html
 
-**Rafah’s hospitals are running out of fuel as Israeli forces move in, the W.H.O. says.**\
-`By Anushka Patil`\
-https://nytimes.com/live/2024/05/09/world/israel-gaza-war-hamas-rafah/rafahs-hospitals-are-running-out-of-fuel-as-israeli-forces-move-in-the-who-says
+**10 Big Biden Environmental Rules, and What They Mean**\
+`Asbestos, “forever” chemicals, E.V.s and endangered species. Here’s what 10 new rules cover, and why the administration has been churning them out.`\
+https://nytimes.com/2024/05/09/climate/biden-environmental-rules-epa.html
 
-**Word of the Day: haughty**\
-`This word has appeared in 29 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/05/09/learning/word-of-the-day-haughty.html
+**‘Gasoline Rainbow’ Review: We’re on a Ride to Nowhere**\
+`This semi-fictional tale of a road trip for weirdos is full of joy.`\
+https://nytimes.com/2024/05/09/movies/gasoline-rainbow-review.html
 
-**The Oldest, Most Successful Party in Europe Is Headed for a Wipeout**\
-`The Conservative Party is in crisis.`\
-https://nytimes.com/2024/05/09/opinion/britain-conservative-party-elections.html
+**Harris Warns of Supreme Court’s Future Rulings: ‘I Worry About Fundamental Freedoms’**\
+`In an interview with The Times, Vice President Kamala Harris deepened her criticism of the conservative justices who overturned Roe and singled out Clarence Thomas’s views on other settled cases.`\
+https://nytimes.com/2024/05/09/us/politics/kamala-harris-interview.html
 
