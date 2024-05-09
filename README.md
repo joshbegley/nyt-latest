@@ -7,8 +7,8 @@ https://nytimes.com/2024/05/09/nyregion/trump-trial-stormy-daniels-hush-money.ht
 https://nytimes.com/2024/05/09/books/review/new-books-recommendations.html
 
 **In a surprise, Cornell’s president resigns.**\
-`By Stephanie Saul`\
-https://nytimes.com/live/2024/05/09/us/college-campus-protests/cornell-president-resigns-martha-pollack
+`Martha E. Pollack said she would remain in office until July 1 and that the decision was “mine and mine alone.”`\
+https://nytimes.com/2024/05/09/us/cornell-president-resigns-martha-pollack.html
 
 **Embrace the Hot Restaurant Dupe**\
 `You don’t have to wait hours for a seat when there are similarly excellent restaurants throughout the city.`\
