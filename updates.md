@@ -1,3 +1,7 @@
+**The doom vs. optimism debate**\
+`How to reconcile two new reports that seem to tell very different stories about the state of climate change.`\
+https://nytimes.com/2024/05/09/climate/the-doom-vs-optimism-debate.html
+
 **Madeleine Westerhout, Trump White House Gatekeeper, Takes Stand in Trial**\
 `Ms. Westerhout could confirm a key event in a hush-payment deal: Michael Cohen’s meeting with Donald J. Trump in the Oval Office.`\
 https://nytimes.com/2024/05/09/nyregion/madeleine-westerhout-trump-trial.html
