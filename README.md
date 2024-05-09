@@ -1,3 +1,11 @@
+**N.Y. Ethics Panel Violates State Constitution, Appeals Court Rules**\
+`In a victory for former Gov. Andrew Cuomo, the court upheld a lower-court ruling against the ethics commission, created by Gov. Kathy Hochul. The state promised to appeal again.`\
+https://nytimes.com/2024/05/09/nyregion/cuomo-lawsuit-ethics.html
+
+**Biden’s decision to block bomb shipments isn’t the first time the U.S. has withheld weapons from Israel.**\
+`By Neil MacFarquhar`\
+https://nytimes.com/live/2024/05/09/world/israel-gaza-war-hamas-rafah/bidens-decision-to-block-bomb-shipments-isnt-the-first-time-the-us-has-withheld-weapons-from-israel
+
 **Who Owns a Drawing That May Be Nazi Loot? A Judge Will Decide.**\
 `A drawing Egon Schiele made of his wife is the focus of a dispute among a Lehman foundation and heirs of two Jewish art collectors.`\
 https://nytimes.com/2024/05/09/arts/design/egon-schiele-nazi-loot-court-case.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/09/health/herbert-pardes-dead.html
 **Grabbing a Water Bottle Gets a Marathon Winner Disqualified**\
 `The winner of the Orange County Marathon in California improperly took a bottle from a man on a bicycle, race officials said.`\
 https://nytimes.com/2024/05/09/sports/marathon-winner-disqualified-water-dad.html
-
-**Stormy Daniels as We Had Never Seen Her**\
-`During her time on the stand in former President Donald J. Trump’s criminal trial, the adult entertainer dressed for history — and a jury.`\
-https://nytimes.com/2024/05/09/style/stormy-daniels-trump-trial.html
-
-**The Chevy Malibu Was So Uncool It Was Cool**\
-`An unassuming car had a surprisingly large cultural footprint.`\
-https://nytimes.com/2024/05/09/style/chevy-malibu-culture-cool.html
 
