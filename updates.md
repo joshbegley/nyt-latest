@@ -1,3 +1,11 @@
+**A Beginner’s Guide to a Spicy Pantry**\
+`Whole dried chiles, crushed chile flakes and spicy pastes get to work in chilaquiles, arrabbiata sauce and gochujang-glazed eggplant.`\
+https://nytimes.com/2024/05/09/dining/a-beginners-guide-to-a-spicy-pantry.html
+
+**In Letter, 540 Jewish Columbia Students Defend Zionism, Condemn Protests**\
+`The students wrote that “Zionism remains a pillar of our Jewish identities” and argued that many classmates do not understand its meaning.`\
+https://nytimes.com/2024/05/09/nyregion/columbia-university-jewish-students-letter.html
+
 **At a Dinner, Trump Assailed Climate Rules and Asked $1 Billion From Big Oil**\
 `At a private meeting at Mar-a-Lago, the former president said fossil fuel companies should donate to help him beat President Biden.`\
 https://nytimes.com/2024/05/09/climate/trump-oil-gas-mar-a-lago.html
