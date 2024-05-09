@@ -1,3 +1,7 @@
+**Pro-Trump PAC Joins TikTok Amid Fight Over Its Chinese Ownership**\
+`President Biden, whose presidential campaign uses the app, signed a law in April that would force a sale of TikTok by ByteDance.`\
+https://nytimes.com/2024/05/08/us/politics/trump-pac-tiktok.html
+
 **Doctor Is Found Guilty of Sexual Abuse of Patients, Including 5 Minors**\
 `Darius Paduch, who worked at several leading New York hospitals, has been accused of molesting hundreds of patients over 17 years.`\
 https://nytimes.com/2024/05/08/nyregion/doctor-sex-abuse-paduch.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/08/world/europe/spain-soccer-luis-rubiales-sexual-as
 **Fighting in Rafah and Closure of Gaza Crossings Threaten Aid Operation, U.N. Says**\
 `No trucks have entered the Gaza Strip since Sunday, according to the U.N.`\
 https://nytimes.com/2024/05/08/world/middleeast/rafah-gaza-aid-israel-un.html
-
-**Biden Says the U.S. Will Not Supply Israel With Weapons to Attack Rafah**\
-`The president’s remarks underscore the growing rift between the United States and its closest Middle East ally over the war in Gaza.`\
-https://nytimes.com/2024/05/08/us/politics/biden-israel-weapons-rafah.html
 

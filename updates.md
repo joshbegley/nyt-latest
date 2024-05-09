@@ -1,3 +1,7 @@
+**Pro-Trump PAC Joins TikTok Amid Fight Over Its Chinese Ownership**\
+`President Biden, whose presidential campaign uses the app, signed a law in April that would force a sale of TikTok by ByteDance.`\
+https://nytimes.com/2024/05/08/us/politics/trump-pac-tiktok.html
+
 **Doctor Is Found Guilty of Sexual Abuse of Patients, Including 5 Minors**\
 `Darius Paduch, who worked at several leading New York hospitals, has been accused of molesting hundreds of patients over 17 years.`\
 https://nytimes.com/2024/05/08/nyregion/doctor-sex-abuse-paduch.html
