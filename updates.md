@@ -1,3 +1,11 @@
+**Surrealism Reigns at Tefaf Art Fair**\
+`Objects made under the influence of the art movement have inspired many contemporary and modern dealers at the 10th edition of Tefaf New York.`\
+https://nytimes.com/2024/05/09/arts/design/tefaf-art-fair-armory.html
+
+**A Way to Beat High Mortgage Rates? Take Over Someone Else’s Loan.**\
+`Assumable mortgages — or low-rate mortgages that home buyers can take over from home sellers — are making a comeback. The process can be challenging.`\
+https://nytimes.com/2024/05/09/business/low-rate-assumable-mortgage.html
+
 **Transcript of Trump Manhattan Trial, May 7, 2024**\
 `New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
 https://nytimes.com/interactive/2024/05/09/nyregion/trump-hush-money-trial-transcript-may-7.html
