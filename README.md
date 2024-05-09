@@ -1,3 +1,27 @@
+**Stormy Daniels Returns to the Stand**\
+`Ms. Daniels testified for about five hours on Tuesday and will return on Thursday for further cross-examination by Donald J. Trump’s lawyers.`\
+https://nytimes.com/2024/05/09/nyregion/stormy-daniels-testifies-trump-trial.html
+
+**A Recap of Stormy Daniels’s Testimony So Far in Trump’s Hush-Money Trial**\
+`Prosecutors have argued that Ms. Daniels’s efforts to sell her story of a sexual encounter with Donald J. Trump supplied the motive for his alleged crimes.`\
+https://nytimes.com/2024/05/09/nyregion/stormy-daniels-testimony-trump-trial.html
+
+**A Plan to Help Harlem Students Build Wealth: Start Them Off With $10,000**\
+`The Harlem Children’s Zone is investing millions of dollars to create savings plans for students in its charter schools and, eventually, nationwide.`\
+https://nytimes.com/2024/05/09/nyregion/harlem-childrens-zone-students-invest.html
+
+**Today’s Wordle Review No. 1,055**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/09/crosswords/wordle-review.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/05/09/crosswords/spelling-bee-forum.html
+
+**The Connections Companion No. 333**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/09/crosswords/connections-companion.html
+
 **Rafah’s hospitals are running out of fuel as Israeli forces move in, the W.H.O. says.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2024/05/09/world/israel-gaza-war-hamas-rafah/rafahs-hospitals-are-running-out-of-fuel-as-israeli-forces-move-in-the-who-says
@@ -13,28 +37,4 @@ https://nytimes.com/2024/05/09/opinion/britain-conservative-party-elections.html
 **Thursday Briefing**\
 `A turning point in U.S.-Israel relations.`\
 https://nytimes.com/2024/05/09/briefing/israel-weapons-ukraine-dublin-gaza.html
-
-**Fencing Rattled by Suspensions and Accusations Ahead of Olympics**\
-`Concerns about refereeing integrity and preferential treatment for top saber competitors have cast a shadow over a sport decided by the finest of margins.`\
-https://nytimes.com/2024/05/09/world/europe/fencing-olympics-turmoil.html
-
-**What Happens When a Happening Place Becomes Too Hot**\
-`City officials worked to make Milan attractive to visitors, but now that some neighborhoods are overwhelmed by rowdy crowds and noise, they’re trying to scale back.`\
-https://nytimes.com/2024/05/09/world/europe/milan-nightlife-crowd-control.html
-
-**A Guide to Eurovision 2024**\
-`This year’s edition of the international song competition takes place in Sweden. The run-up has been overshadowed by the conflict in Gaza.`\
-https://nytimes.com/2024/05/09/arts/music/eurovision-how-to-watch.html
-
-**The Tiny Nation at the Vanguard of Mining the Ocean Floor**\
-`Below the waters of the Cook Islands, population 15,000, lie minerals used to power electric cars. Extracting them could bring riches, but many say it’s a bad idea.`\
-https://nytimes.com/2024/05/09/world/asia/cook-islands-seabed-mining.html
-
-**Corrections: May 9, 2024**\
-`Corrections that appeared in print on Thursday, May 9, 2024.`\
-https://nytimes.com/2024/05/08/pageoneplus/corrections-may-9-2024.html
-
-**Quotation of the Day: Haitian Gangs Force 360,000 to Flee Homes**\
-`Quotation of the Day for Thursday, May 9, 2024.`\
-https://nytimes.com/2024/05/08/pageoneplus/quotation-of-the-day-haitian-gangs-force-360000-to-flee-homes.html
 
