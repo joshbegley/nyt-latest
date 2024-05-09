@@ -1,3 +1,7 @@
+**President Biden Just Made His Biggest Blunder**\
+`The consequences of Biden’s decision to withhold munitions from Israel could be the opposite of what he intends.`\
+https://nytimes.com/2024/05/09/opinion/president-bidens-biggest-blunder.html
+
 **A Furious Trump Is Denied His Mistrial**\
 `The judge admonished Trump’s lawyers for their missteps.`\
 https://nytimes.com/live/2024/05/07/opinion/thepoint/trump-stormy-daniels-mistrial
