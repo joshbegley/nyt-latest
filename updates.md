@@ -1,3 +1,7 @@
+**Israel’s Shutdown of Al Jazeera Highlights Long-Running Tensions**\
+`The network will keep covering the war in Gaza, but it will be harder for Israelis to watch. Israel calls the network a security threat, while Al Jazeera says Israel wants to conceal its brutality.`\
+https://nytimes.com/2024/05/09/world/middleeast/al-jazeera-israel-shutdown.html
+
 **The C.E.O.s Who Just Won’t Quit**\
 `What happens to a company — and the economy — when the boss refuses to retire?`\
 https://nytimes.com/2024/05/09/magazine/forever-ceos.html
