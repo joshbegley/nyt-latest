@@ -1,3 +1,7 @@
+**Rafah’s hospitals are running out of fuel as Israeli forces move in, the W.H.O. says.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2024/05/09/world/israel-gaza-war-hamas-rafah/rafahs-hospitals-are-running-out-of-fuel-as-israeli-forces-move-in-the-who-says
+
 **Word of the Day: haughty**\
 `This word has appeared in 29 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/05/09/learning/word-of-the-day-haughty.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/08/pageoneplus/corrections-may-9-2024.html
 **Quotation of the Day: Haitian Gangs Force 360,000 to Flee Homes**\
 `Quotation of the Day for Thursday, May 9, 2024.`\
 https://nytimes.com/2024/05/08/pageoneplus/quotation-of-the-day-haitian-gangs-force-360000-to-flee-homes.html
-
-**U.S.C. President Censured by Academic Senate After Weeks of Turmoil**\
-`Carol Folt had been under fire for canceling a valedictorian’s speech and calling in the police, who cleared an encampment arrested dozens of protesters.`\
-https://nytimes.com/2024/05/08/us/university-of-southern-california-carol-folt-censure.html
 
