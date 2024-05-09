@@ -1,3 +1,7 @@
+**Review: Impressed, but Not Transported, by ‘Spirited Away’**\
+`A stage production of the beloved Studio Ghibli movie is big on spectacle, but rarely grabs the heart.`\
+https://nytimes.com/2024/05/09/theater/spirited-away-london-coliseum.html
+
 **Scarlett Johansson Shares Her Beauty Regimen**\
 `Plus: a new hotel in Oxford, England, door knobs with personality and more recommendations.`\
 https://nytimes.com/2024/05/09/t-magazine/scarlett-johansson-beauty-skin-care-makeup.html
