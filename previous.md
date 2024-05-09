@@ -1,3 +1,7 @@
+**White House Warns Israel Against Rafah Attack**\
+`John F. Kirby, a White House national security spokesman, said President Biden is concerned that an Israeli assault on Rafah would strengthen Hamas.`\
+https://nytimes.com/video/us/politics/100000009461123/biden-israel-rafah.html
+
 **Those Who Mother Us Are Not Always Our Parents**\
 `A tribute to our other mothers.`\
 https://nytimes.com/interactive/2024/05/09/well/family/mothers-day-mom-figures.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/09/opinion/anti-semitism-awareness-act-fix.html
 **Friday Briefing: Stormy Daniels, Day Two**\
 `Also, Israel-Hamas talks falter again.`\
 https://nytimes.com/2024/05/09/world/asia/stormy-trump-israel-rafah-asia.html
-
-**Man Who Attacked Police Officers With Machete Sentenced to 27 Years**\
-`Prosecutors said Trevor Bickford had come to New York from Maine to carry out an attack “in the name of jihad” on New Year’s Eve in 2022.`\
-https://nytimes.com/2024/05/09/nyregion/trevor-bickford-machete-nypd-attack.html
 
