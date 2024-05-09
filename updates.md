@@ -1,3 +1,15 @@
+**She Wanted to Help Strangers. Would They Take Her Up on It?**\
+`Bianca Giaever wasn’t feeling very helpful in her daily life, so she tried to do small favors for passers-by in Union Square. It got complicated.`\
+https://nytimes.com/2024/05/09/style/bianca-giaever-free-help-union-square.html
+
+**Ex-Nebraska Lawmaker Faces New Charges in Campaign Finance Case**\
+`The indictment of Jeff Fortenberry, a Republican, renewed a case in which he was convicted of lying to federal agents but that an appeals court later overturned.`\
+https://nytimes.com/2024/05/09/us/politics/jeff-fortenberry-nebraska-charges.html
+
+**Stormy Daniels, Echoing Trump’s Style, Pushes Back at Lawyer’s Attacks**\
+`In a second day of cross-examination, Ms. Daniels resisted the implication she had tried to shake down Donald J. Trump by selling her story of a sexual liaison.`\
+https://nytimes.com/2024/05/09/nyregion/trump-trial-stormy-daniels-hush-money.html
+
 **In a Surprise, Cornell’s President Resigns**\
 `Martha E. Pollack said she would remain in office until July 1 and that the decision was “mine and mine alone.”`\
 https://nytimes.com/2024/05/09/us/cornell-president-resigns-martha-pollack.html
