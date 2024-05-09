@@ -1,3 +1,7 @@
+**Friday Briefing: Stormy Daniels, Day Two**\
+`Also, Israel-Hamas talks falter again.`\
+https://nytimes.com/2024/05/09/world/asia/stormy-trump-israel-rafah-asia.html
+
 **Man Who Attacked Police Officers With Machete Sentenced to 27 Years**\
 `Prosecutors said Trevor Bickford had come to New York from Maine to carry out an attack “in the name of jihad” on New Year’s Eve in 2022.`\
 https://nytimes.com/2024/05/09/nyregion/trevor-bickford-machete-nypd-attack.html
