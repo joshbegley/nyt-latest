@@ -35,6 +35,6 @@ https://nytimes.com/2024/05/09/nyregion/weinstein-testimony-victims.html
 https://nytimes.com/2024/05/09/opinion/president-bidens-biggest-blunder.html
 
 **Pro-Palestinian Encampment at Penn Grows as Commencement Nears**\
-`A post on social media by an account associated with the encampment said the expansion was in response to “the administration’s continued bad-faith negotiations.”`\
+`When asked about the protests, Gov. Josh Shapiro of Pennsylvania said on Thursday that it was “past time” for Penn’s administration to clear the encampment.`\
 https://nytimes.com/2024/05/09/us/penn-palestinian-encampment.html
 
