@@ -1,3 +1,7 @@
+**At Victory Day Parade, Putin Seeks to Keep Ukraine in the Distance**\
+`A fighter fly-past returned to Russia’s World War II commemorations, where President Vladimir V. Putin permitted himself a single reference to his “special military operation.”`\
+https://nytimes.com/2024/05/09/world/europe/russia-putin-victory-day.html
+
 **Southern States Brace for Severe Weather After 3 Days of Deadly Storms**\
 `Heavy rain and winds are expected on Thursday from Central Texas toward the Georgia coast. More than 12 million people were under a tornado watch.`\
 https://nytimes.com/2024/05/09/us/storms-weather-tornado-south-us.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/09/briefing/artificial-intelligence-chatbots.html
 **Tens of Thousands Have Fled Rafah Since Monday, U.N. Says**\
 `Israeli forces had called for the evacuation of about 110,000 people from the eastern part of the Gazan city and seized the Gaza side of a border crossing with Egypt in an incursion this week.`\
 https://nytimes.com/2024/05/09/world/middleeast/israel-rafah-evacuation-gaza-un.html
-
-**Biden’s warning on weapons highlights the widening U.S. rift with Israel.**\
-`By Adam Rasgon`\
-https://nytimes.com/live/2024/05/09/world/israel-gaza-war-hamas-rafah/bidens-warning-on-weapons-highlights-the-widening-us-rift-with-israel
 
