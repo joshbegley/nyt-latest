@@ -1,4 +1,8 @@
 **U.S.C. President Censured by Academic Senate After Weeks of Turmoil**\
+`Carol Folt had been under fire for canceling a valedictorian’s speech and calling in the police, who cleared an encampment arrested dozens of protesters.`\
+https://nytimes.com/2024/05/08/us/university-of-southern-california-carol-folt-censure.html
+
+**U.S.C. President Censured by Academic Senate After Weeks of Turmoil**\
 `Carol Folt, the president, has been under fire for canceling a valedictorian’s speech, calling in police to clear an encampment and arresting dozens of protesters.`\
 https://nytimes.com/2024/05/08/us/university-of-southern-california-carol-folt-censure.html
 
