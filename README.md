@@ -1,3 +1,11 @@
+**Corrections: May 9, 2024**\
+`Corrections that appeared in print on Thursday, May 9, 2024.`\
+https://nytimes.com/2024/05/08/pageoneplus/corrections-may-9-2024.html
+
+**Quotation of the Day: Haitian Gangs Force 360,000 to Flee Homes**\
+`Quotation of the Day for Thursday, May 9, 2024.`\
+https://nytimes.com/2024/05/08/pageoneplus/quotation-of-the-day-haitian-gangs-force-360000-to-flee-homes.html
+
 **U.S.C. President Censured by Academic Senate After Weeks of Turmoil**\
 `Carol Folt had been under fire for canceling a valedictorian’s speech and calling in the police, who cleared an encampment arrested dozens of protesters.`\
 https://nytimes.com/2024/05/08/us/university-of-southern-california-carol-folt-censure.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/05/08/us/politics/house-vote-speaker-johnso
 **U.C.L.A. Protesters Had Metal Pipes and ‘Occupation Guide,’ Police Say**\
 `More than 40 people were arrested Monday on suspicion of conspiracy to commit a crime, according to the police department at the University of California, Los Angeles.`\
 https://nytimes.com/2024/05/08/us/ucla-activist-arrest-pipes.html
-
-**Man Sentenced to 25 Years in Stabbings of 3 Homeless Men in Manhattan**\
-`Trevon Murphy, who a family member said had a history of mental health problems, killed one man and injured two others.`\
-https://nytimes.com/2024/05/08/nyregion/trevon-murphy-stabbings-sentence.html
-
-**Apple’s New iPad Ad Leaves Its Creative Audience Feeling … Flat**\
-`An ad meant to show how the updated device can do many things has become a metaphor for a community’s fears of the technology industry.`\
-https://nytimes.com/2024/05/08/business/apple-ipad-crush-ad.html
 
