@@ -1,3 +1,15 @@
+**Donald Trump’s Lawyer Pressed Stormy Daniels**\
+`Also, a setback in Gaza cease-fire talks. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/05/09/briefing/trump-trial-stormy-daniels-gaza-cease-fire-talks.html
+
+**Breach Grows Between Biden and Israel’s Leaders Over Rafah Invasion**\
+`Defiant Israelis have vowed to do “whatever is necessary” in the Gaza Strip despite the American president’s threat to withhold weapons.`\
+https://nytimes.com/2024/05/09/world/middleeast/breach-grows-between-biden-and-israels-leaders-over-rafah-invasion.html
+
+**Trump Again, and Repeatedly, Denounces Jews Who Support Biden**\
+`Former President Donald J. Trump made three different statements on Thursday suggesting that Jews who support President Biden were betraying their religious and cultural identities.`\
+https://nytimes.com/2024/05/09/us/politics/trump-biden-jews.html
+
 **Rescue Efforts Continue After South Africa Building Collapse**\
 `The four-story building under construction collapsed on Monday, killing at least eight people and leaving dozens of others missing.`\
 https://nytimes.com/video/world/africa/100000009461193/south-africa-building-collapse.html

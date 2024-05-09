@@ -1,3 +1,15 @@
+**Donald Trump’s Lawyer Pressed Stormy Daniels**\
+`Also, a setback in Gaza cease-fire talks. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/05/09/briefing/trump-trial-stormy-daniels-gaza-cease-fire-talks.html
+
+**Breach Grows Between Biden and Israel’s Leaders Over Rafah Invasion**\
+`Defiant Israelis have vowed to do “whatever is necessary” in the Gaza Strip despite the American president’s threat to withhold weapons.`\
+https://nytimes.com/2024/05/09/world/middleeast/breach-grows-between-biden-and-israels-leaders-over-rafah-invasion.html
+
+**Trump Again, and Repeatedly, Denounces Jews Who Support Biden**\
+`Former President Donald J. Trump made three different statements on Thursday suggesting that Jews who support President Biden were betraying their religious and cultural identities.`\
+https://nytimes.com/2024/05/09/us/politics/trump-biden-jews.html
+
 **Rescue Efforts Continue After South Africa Building Collapse**\
 `The four-story building under construction collapsed on Monday, killing at least eight people and leaving dozens of others missing.`\
 https://nytimes.com/video/world/africa/100000009461193/south-africa-building-collapse.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/09/us/politics/trump-trial-stormy-daniels-fights-bac
 **Chinese Magnate in Straw Donor Scheme Agrees to Leave U.S. in Plea Deal**\
 `Hui Qin pleaded guilty to giving more than $10,000 in illegal political campaign donations to three candidates, including Mayor Eric Adams.`\
 https://nytimes.com/2024/05/09/nyregion/hui-qin-straw-donor.html
-
-**How to Make Retirement Less Scary**\
-`A Times financial columnist and an illustrator share an exercise that can prepare you for life after work.`\
-https://nytimes.com/interactive/2024/05/09/magazine/retirement-mission-statement.html
-
-**Eric Adams’s Brother Has a New Gig: Black-Tie Philanthropy**\
-`Bernard Adams has joined forces with a former model to start an organization that aims to improve New York City children’s access to arts and culture.`\
-https://nytimes.com/2024/05/09/nyregion/eric-adams-brother.html
-
-**Paging Senator Schumer …**\
-`There is a simple way to fix the Antisemitism Awareness Act.`\
-https://nytimes.com/2024/05/09/opinion/anti-semitism-awareness-act-fix.html
 
