@@ -1,5 +1,5 @@
 **Herbert Pardes, Who Steered the Growth of a Giant Hospital, Dies at 89**\
-`A psychiatrist, he ran New York-Presbyterian after a merger, improving patient care, finances and fund-raising to expand its footprint across the region.`\
+`A psychiatrist, he ran New York-Presbyterian after a landmark merger, improving its patient care and finances and raising money to expand its footprint across the region.`\
 https://nytimes.com/2024/05/09/health/herbert-pardes-dead.html
 
 **Grabbing a Water Bottle Gets a Marathon Winner Disqualified**\
