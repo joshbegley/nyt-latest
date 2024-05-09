@@ -1,3 +1,7 @@
+**Word of the Day: haughty**\
+`This word has appeared in 29 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/09/learning/word-of-the-day-haughty.html
+
 **The Oldest, Most Successful Party in Europe Is Headed for a Wipeout**\
 `The Conservative Party is in crisis.`\
 https://nytimes.com/2024/05/09/opinion/britain-conservative-party-elections.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/08/pageoneplus/quotation-of-the-day-haitian-gangs-fo
 **U.S.C. President Censured by Academic Senate After Weeks of Turmoil**\
 `Carol Folt had been under fire for canceling a valedictorian’s speech and calling in the police, who cleared an encampment arrested dozens of protesters.`\
 https://nytimes.com/2024/05/08/us/university-of-southern-california-carol-folt-censure.html
-
-**Steve Albini’s 10 Essential Recordings**\
-`The musician and audio engineer, who died on Tuesday at 61, gave artists including Nirvana and PJ Harvey an authentic representation of their work at a reasonable price.`\
-https://nytimes.com/2024/05/08/arts/music/steve-albini-songs.html
 

@@ -1,3 +1,7 @@
+**Word of the Day: haughty**\
+`This word has appeared in 29 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/09/learning/word-of-the-day-haughty.html
+
 **The Oldest, Most Successful Party in Europe Is Headed for a Wipeout**\
 `The Conservative Party is in crisis.`\
 https://nytimes.com/2024/05/09/opinion/britain-conservative-party-elections.html
