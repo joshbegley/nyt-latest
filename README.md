@@ -12,7 +12,7 @@ https://nytimes.com/2024/05/09/briefing/trump-trial-stormy-daniels-gaza-cease-fi
 
 **Breach Grows Between Biden and Israel’s Leaders Over Rafah Invasion**\
 `Defiant Israelis have vowed to do “whatever is necessary” in the Gaza Strip despite the American president’s threat to withhold weapons.`\
-https://nytimes.com/2024/05/09/world/middleeast/breach-grows-between-biden-and-israels-leaders-over-rafah-invasion.html
+https://nytimes.com/2024/05/09/world/middleeast/biden-israel-gaza-rafah-invasion.html
 
 **Trump Again, and Repeatedly, Denounces Jews Who Support Biden**\
 `Former President Donald J. Trump made three different statements on Thursday suggesting that Jews who support President Biden were betraying their religious and cultural identities.`\
