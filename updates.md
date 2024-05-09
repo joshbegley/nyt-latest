@@ -1,3 +1,11 @@
+**Massive Fossil Donation Helps Brazil’s National Museum Rise From the Ashes**\
+`A gift from abroad of more than 1,100 Brazilian fossils aims to step up efforts to rebuild the country’s National Museum, which suffered major fire damage in 2018.`\
+https://nytimes.com/2024/05/09/science/brazil-fossils-museum-donation.html
+
+**Mike Johnson Becomes the Speaker of the Whole House. For Now.**\
+`Democrats saved the speaker but want to oust him at the ballot box in November, while his standing in his own party remains in serious question.`\
+https://nytimes.com/2024/05/09/us/politics/mike-johnson-speaker-vote.html
+
 **The Major Supreme Court Cases of 2024**\
 `No Supreme Court term in recent memory has featured so many cases with the potential to transform American society.`\
 https://nytimes.com/interactive/2024/05/09/us/supreme-court-major-cases-2024.html
