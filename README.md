@@ -1,3 +1,7 @@
+**44-Foot Whale Found Dead on Bow of Cruise Ship Coming Into New York**\
+`The endangered sei whale, usually found in deep waters, was discovered on the bow of a cruise ship as it arrived at the Brooklyn Cruise Terminal, marine authorities said.`\
+https://nytimes.com/2024/05/08/us/dead-whale-cruise-ship-port-brooklyn.html
+
 **House Vote Count: How Speaker Mike Johnson Survived Motion on Ousting**\
 `Republicans and Democrats voted Wednesday to block a motion that sought to remove the speaker of the House.`\
 https://nytimes.com/interactive/2024/05/08/us/politics/house-vote-speaker-johnson.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/08/us/politics/biden-israel-weapons-rafah.html
 **‘If they go into Rafah, I’m not going to be supplying the weapons,’ Biden says.**\
 `By Reid J. Epstein`\
 https://nytimes.com/live/2024/05/08/world/israel-gaza-war-hamas-rafah/if-they-go-into-rafah-im-not-going-to-be-supplying-the-weapons-biden-says
-
-**Sunak to Urge University Leaders to Protect Jewish Students on Campus**\
-`Prime Minister Rishi Sunak will meet with a group of British university leaders on Thursday to discuss ways to tackle antisemitism, as pro-Palestinian protests on campuses spread.`\
-https://nytimes.com/2024/05/08/world/europe/sunak-uk-university-campus-protests.html
 
