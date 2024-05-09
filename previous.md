@@ -1,3 +1,7 @@
+**Another Sriracha Shortage May Be on the Horizon. What Happened?**\
+`Huy Fong Foods, the producer of the most popular variety of Sriracha sauce, has faced several supply glitches over the years.`\
+https://nytimes.com/2024/05/09/dining/huy-fong-sriracha-shortage.html
+
 **Stormy Daniels Fights Back**\
 `Facing intense questioning from Donald Trump’s lawyers, Daniels responded at times with sharp retorts.`\
 https://nytimes.com/2024/05/09/us/politics/trump-trial-stormy-daniels-fights-back.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/09/opinion/musical-raisin-broadway-black.html
 **Fresh Off Defeat in Speaker Fight, Greene Is ‘Thrilled’ With the Chaos She Wrought**\
 `The hard-right congresswoman from Georgia said she got exactly what she wanted when she failed to depose Speaker Mike Johnson: proof that he had been co-opted by Democrats and the G.O.P. was complicit.`\
 https://nytimes.com/2024/05/09/us/politics/marjorie-taylor-greene-johnson.html
-
-**She Wanted to Help Strangers. Would They Take Her Up on It?**\
-`Bianca Giaever wasn’t feeling very helpful in her daily life, so she tried to do small favors for passers-by in Union Square. It got complicated.`\
-https://nytimes.com/2024/05/09/style/bianca-giaever-free-help-union-square.html
 
