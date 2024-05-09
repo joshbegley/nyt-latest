@@ -1,3 +1,11 @@
+**Corrections: May 9, 2024**\
+`Corrections that appeared in print on Thursday, May 9, 2024.`\
+https://nytimes.com/2024/05/08/pageoneplus/corrections-may-9-2024.html
+
+**Quotation of the Day: Haitian Gangs Force 360,000 to Flee Homes**\
+`Quotation of the Day for Thursday, May 9, 2024.`\
+https://nytimes.com/2024/05/08/pageoneplus/quotation-of-the-day-haitian-gangs-force-360000-to-flee-homes.html
+
 **U.S.C. President Censured by Academic Senate After Weeks of Turmoil**\
 `Carol Folt had been under fire for canceling a valedictorian’s speech and calling in the police, who cleared an encampment arrested dozens of protesters.`\
 https://nytimes.com/2024/05/08/us/university-of-southern-california-carol-folt-censure.html
