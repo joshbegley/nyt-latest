@@ -1,3 +1,11 @@
+**Ramón Fonseca, Cofounder of Law Firm at Center of Panama Papers, Dies**\
+`Mr. Fonseca died while awaiting the verdict in his trial for money laundering tied to the 2016 scandal exposed by a massive leak of documents from his firm.`\
+https://nytimes.com/2024/05/09/world/americas/ramon-fonseca-panama-papers-dies.html
+
+**‘We Still Have Hope’: Rescuers Race to Find Dozens Missing in South Africa Building Collapse**\
+`Three days after the collapse of a four-story building that was under construction, rescuers were still combing through some 3,000 tons of concrete rubble even as signs of life faded.`\
+https://nytimes.com/2024/05/09/world/africa/south-africa-george-collapse.html
+
 **Financier Found Guilty in Trump Media Insider Trading Trial**\
 `Bruce Garelick was convicted of securities fraud for leaking confidential information about a merger involving the parent company of Truth Social, Donald Trump’s social media site.`\
 https://nytimes.com/2024/05/09/business/dwac-trump-media-insider-trading-trial.html
