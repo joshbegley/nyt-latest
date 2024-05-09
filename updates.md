@@ -1,3 +1,11 @@
+**Scarlett Johansson Shares Her Beauty Regimen**\
+`Plus: a new hotel in Oxford, England, door knobs with personality and more recommendations.`\
+https://nytimes.com/2024/05/09/t-magazine/scarlett-johansson-beauty-skin-care-makeup.html
+
+**Readers Share Why They Love Living in the Golden State**\
+`The view from Richmond, the diversity of Los Angeles and the stunningly green hills in spring are a few reasons to call California home, readers say.`\
+https://nytimes.com/2024/05/09/us/california-love-letters.html
+
 **09trump-trial**\
 `Live Updates: Stormy Daniels Will Return to Stand in Trump Trial`\
 https://nytimes.com/live/2024/05/09/nyregion/trump-trial-stormy-daniels
