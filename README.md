@@ -1,3 +1,7 @@
+**Biden’s warning on weapons highlights the widening U.S. rift with Israel.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/05/09/world/israel-gaza-war-hamas-rafah/bidens-warning-on-weapons-highlights-the-widening-us-rift-with-israel
+
 **One Strongman, One Billion Voters, and the Future of India**\
 `Narendra Modi has proved one of India’s most consequential leaders. But he has drawn criticism for anti-democratic practices and charges of religious persecution.`\
 https://nytimes.com/2024/05/09/podcasts/the-daily/india-election-modi.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/09/realestate/housing-market-nyc.html
 **Homes for Sale in New York and Connecticut**\
 `This week’s properties are three-bedroom homes in Croton-on-Hudson, N.Y., and Redding, Conn.`\
 https://nytimes.com/2024/05/09/realestate/housing-market-near-nyc.html
-
-**How Andy Serkis Gave Owen Teague the Keys to the ‘Planet’**\
-`A conversation with Serkis, the star of the earlier films in the “Planet of the Apes” franchise, and Teague, the lead of the latest film, “Kingdom of the Planet of the Apes.”`\
-https://nytimes.com/2024/05/09/movies/andy-serkis-owen-teague-planet-of-the-apes.html
 
