@@ -1,3 +1,11 @@
+**In Budapest, Xi Hails a ‘Deep Friendship’ With Hungary**\
+`The Chinese leader met with Viktor Orban, the Hungarian prime minister, one of China’s most fervent admirers and protectors in Europe.`\
+https://nytimes.com/2024/05/09/world/europe/xi-jinping-china-hungary-orban.html
+
+**Cease-fire talks are put on hold as tempers flare over Israeli actions in Rafah.**\
+`By Julian E. Barnes, Vivian Yee, Aaron Boxerman and Adam Rasgon`\
+https://nytimes.com/live/2024/05/09/world/israel-gaza-war-hamas-rafah/cease-fire-talks-are-put-on-hold-as-tempers-flare-over-israeli-actions-in-rafah
+
 **The Power of Lifelong Prevention**\
 `After years of finding ways to combat deadly diseases, a scientist and a doctor discover their new callings. `\
 https://nytimes.com/paidpost/gsk/the-power-of-lifelong-prevention.html
