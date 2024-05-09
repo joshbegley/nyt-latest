@@ -1,3 +1,15 @@
+**In a surprise, Cornell’s president resigns.**\
+`By Stephanie Saul`\
+https://nytimes.com/live/2024/05/09/us/college-campus-protests/cornell-president-resigns-martha-pollack
+
+**N.Y. Ethics Panel Violates State Constitution, Appeals Court Rules**\
+`In a victory for former Gov. Andrew Cuomo, the court upheld a lower-court ruling against the ethics commission, created by Gov. Kathy Hochul. The state promised to appeal again.`\
+https://nytimes.com/2024/05/09/nyregion/cuomo-lawsuit-ethics.html
+
+**Biden’s decision to block bomb shipments isn’t the first time the U.S. has withheld weapons from Israel.**\
+`By Neil MacFarquhar`\
+https://nytimes.com/live/2024/05/09/world/israel-gaza-war-hamas-rafah/bidens-decision-to-block-bomb-shipments-isnt-the-first-time-the-us-has-withheld-weapons-from-israel
+
 **Who Owns a Drawing That May Be Nazi Loot? A Judge Will Decide.**\
 `A drawing Egon Schiele made of his wife is the focus of a dispute among a Lehman foundation and heirs of two Jewish art collectors.`\
 https://nytimes.com/2024/05/09/arts/design/egon-schiele-nazi-loot-court-case.html
