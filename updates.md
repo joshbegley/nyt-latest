@@ -1,3 +1,7 @@
+**Effort to Keep Biden on the Ballot in Ohio Stalls Out Ahead of Deadline**\
+`Ohio’s Republican secretary of state said the Legislature had until Thursday to fix a procedural issue with President Biden’s nomination.`\
+https://nytimes.com/2024/05/09/us/politics/biden-ohio-ballot.html
+
 **President Biden Just Made His Biggest Blunder**\
 `The consequences of Biden’s decision to withhold munitions from Israel could be the opposite of what he intends.`\
 https://nytimes.com/2024/05/09/opinion/president-bidens-biggest-blunder.html

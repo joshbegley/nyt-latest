@@ -1,3 +1,7 @@
+**Effort to Keep Biden on the Ballot in Ohio Stalls Out Ahead of Deadline**\
+`Ohio’s Republican secretary of state said the Legislature had until Thursday to fix a procedural issue with President Biden’s nomination.`\
+https://nytimes.com/2024/05/09/us/politics/biden-ohio-ballot.html
+
 **A Furious Trump Is Denied His Mistrial**\
 `The judge admonished Trump’s lawyers for their missteps.`\
 https://nytimes.com/live/2024/05/07/opinion/thepoint/trump-stormy-daniels-mistrial
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/09/opinion/president-bidens-biggest-blunder.html
 **Pro-Palestinian Encampment at Penn Grows as Commencement Nears**\
 `A post on social media by an account associated with the encampment said the expansion was in response to “the administration’s continued bad-faith negotiations.”`\
 https://nytimes.com/2024/05/09/us/penn-palestinian-encampment.html
-
-**Bernard Pivot, Host of Influential French TV Show on Books, Dies at 89**\
-`For 15 years, French viewers watched Mr. Pivot on his weekly show, “Apostrophes,” to decide what to read next.`\
-https://nytimes.com/2024/05/09/world/europe/bernard-pivot-dead.html
 
