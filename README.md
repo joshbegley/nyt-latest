@@ -1,3 +1,7 @@
+**Embrace the Hot Restaurant Dupe**\
+`You don’t have to wait hours for a seat when there are similarly excellent restaurants throughout the city.`\
+https://nytimes.com/2024/05/09/dining/embrace-the-hot-restaurant-dupe.html
+
 **Biden Aide Warns Israel Against ‘Smashing Into Rafah’**\
 `The president has grown increasingly wary of a major assault in the densely populated city in southern Gaza.`\
 https://nytimes.com/2024/05/09/us/politics/biden-kirby-israel-hamas-rafah.html
@@ -26,15 +30,11 @@ https://nytimes.com/2024/05/09/arts/design/egon-schiele-nazi-loot-court-case.htm
 `Trump’s lawyer tried to pepper her with minor inconsistencies but didn’t land a real blow.`\
 https://nytimes.com/live/2024/05/07/opinion/thepoint/stormy-daniels-trump-cross-examination
 
-**The doom vs. optimism debate**\
+**The Doom vs. Optimism Debate**\
 `How to reconcile two new reports that seem to tell very different stories about the state of climate change.`\
 https://nytimes.com/2024/05/09/climate/the-doom-vs-optimism-debate.html
 
 **Madeleine Westerhout, Trump White House Gatekeeper, Takes Stand in Trial**\
 `Ms. Westerhout could confirm a key event in a hush-payment deal: Michael Cohen’s meeting with Donald J. Trump in the Oval Office.`\
 https://nytimes.com/2024/05/09/nyregion/madeleine-westerhout-trump-trial.html
-
-**Passengers Escape Burning Boeing Plane at Airport in Senegal**\
-`At least 10 people were injured when a Boeing 737 passenger plane overran the runway at Blaise Diagne International Airport and caught fire, authorities said.`\
-https://nytimes.com/video/world/africa/100000009460445/boeing-senegal-plane-fire.html
 
