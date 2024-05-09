@@ -1,7 +1,3 @@
-**What Students Are Saying About Tech in the Classroom**\
-`Does technology help students be more organized, efficient and prepared for the future? Or is it just a distraction?`\
-https://nytimes.com/2024/05/09/learning/what-students-are-saying-about-tech-in-the-classroom.html
-
 **Massive Fossil Donation Helps Brazil’s National Museum Rise From the Ashes**\
 `A gift from abroad of more than 1,100 Brazilian fossils aims to step up efforts to rebuild the country’s National Museum, which suffered major fire damage in 2018.`\
 https://nytimes.com/2024/05/09/science/brazil-fossils-museum-donation.html
@@ -37,4 +33,8 @@ https://nytimes.com/live/2024/05/09/nyregion/trump-trial-stormy-daniels
 **09pol-swiper**\
 `Election Updates: Barron Trump will be a delegate at the Republican Convention.`\
 https://nytimes.com/live/2024/05/09/us/biden-trump-election
+
+**Should Sporting Events Be Free?**\
+`A Paris soccer team made its tickets free. Should others follow suit, or at least make prices a lot cheaper?`\
+https://nytimes.com/2024/05/09/learning/should-sporting-events-be-free.html
 
