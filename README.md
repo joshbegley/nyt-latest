@@ -1,6 +1,6 @@
 **Barron Trump Is Picked to Be Delegate at the Republican Convention**\
 `In his most political role to date, Donald J. Trump’s youngest son will serve as a delegate from Florida just a few months after graduating from high school.`\
-https://nytimes.com/2024/05/09/us/politics/barron-trump-republican-national-convention.html
+https://nytimes.com/2024/05/09/us/politics/barron-trump-gop-national-convention.html
 
 **At Victory Day Parade, Putin Seeks to Keep Ukraine in the Distance**\
 `A fighter fly-past returned to Russia’s World War II commemorations, where President Vladimir V. Putin permitted himself a single reference to his “special military operation.”`\
