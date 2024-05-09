@@ -1,3 +1,7 @@
+**Supreme Court Rules Against Women Whose Cars Were Seized by the Police**\
+`Two Alabama women spent more than a year trying to reclaim vehicles they owned, which the police had confiscated after arresting their drivers on drug charges.`\
+https://nytimes.com/2024/05/09/us/politics/supreme-court-alabama-police-seized-cars.html
+
 **Surrealism Reigns at Tefaf Art Fair**\
 `Objects made under the influence of the art movement have inspired many contemporary and modern dealers at the 10th edition of Tefaf New York.`\
 https://nytimes.com/2024/05/09/arts/design/tefaf-art-fair-armory.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/09/learning/lesson-plans/teaching-and-learning-about
 **Lawyer Calls Daniels Transactional. ‘Not Unlike Mr. Trump,’ She Replies.**\
 `Defense lawyers for Donald J. Trump, who has sold branded water, mattresses and steak, pressed Stormy Daniels about how she has capitalized on her account of a liaison with him.`\
 https://nytimes.com/2024/05/09/nyregion/stormy-daniels-trump-meeting.html
-
-**Senate Races to Pass Bill to Reauthorize F.A.A. and Improve Air Travel**\
-`The legislation is due by Friday, but regional conflicts and demands for votes on unrelated provisions have slowed its progress.`\
-https://nytimes.com/2024/05/09/us/politics/senate-faa-air-travel.html
 

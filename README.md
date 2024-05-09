@@ -1,3 +1,7 @@
+**‘Time, Patience, Cold Blood’: Mexico Prepares for a Potential Trump Win**\
+`Mexican officials and aides are planning for a drastic shift in U.S. relations should Donald Trump win in November.`\
+https://nytimes.com/2024/05/09/world/americas/trump-mexico-2024-election.html
+
 **Supreme Court Rules Against Women Whose Cars Were Seized by the Police**\
 `Two Alabama women spent more than a year trying to reclaim vehicles they owned, which the police had confiscated after arresting their drivers on drug charges.`\
 https://nytimes.com/2024/05/09/us/politics/supreme-court-alabama-police-seized-cars.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/09/dining/drinks/best-beaujolais.html
 **Teaching and Learning About the Pro-Palestinian Student Protests on College Campuses**\
 `A collection of resources and critical-thinking questions to help students better understand the protest movement and consider the complex issues it raises.`\
 https://nytimes.com/2024/05/09/learning/lesson-plans/teaching-and-learning-about-the-pro-palestinian-student-protests-on-college-campuses.html
-
-**Lawyer Calls Daniels Transactional. ‘Not Unlike Mr. Trump,’ She Replies.**\
-`Defense lawyers for Donald J. Trump, who has sold branded water, mattresses and steak, pressed Stormy Daniels about how she has capitalized on her account of a liaison with him.`\
-https://nytimes.com/2024/05/09/nyregion/stormy-daniels-trump-meeting.html
 
