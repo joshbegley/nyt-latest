@@ -1,3 +1,7 @@
+**Apple Says Destructive iPad Ad ‘Missed the Mark’**\
+`People in the creative world widely panned a commercial showing a giant hydraulic press squishing objects ranging from paint cans to a piano.`\
+https://nytimes.com/2024/05/09/technology/apple-ipad-ad-crush-apology.html
+
 **Are R.F.K. Jr. Signature Gatherers Misleading New Yorkers for Ballot Access?**\
 `More than half a dozen New York City residents described encounters with people seeking their signature who did not make clear that their aim was to place the independent 2024 candidate on the ballot.`\
 https://nytimes.com/2024/05/09/us/politics/rfk-signatures-ny.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/05/09/well/family/mothers-day-mom-figures.h
 **Woman Who Says She Inspired ‘Baby Reindeer’ Character Denies Stalking**\
 `The show, a surprise Netflix hit that says it is based on real events, had inspired viewers to try to uncover the real identities of the characters depicted onscreen.`\
 https://nytimes.com/2024/05/09/arts/television/baby-reindeer-fiona-harvey-stalking.html
-
-**Another Sriracha Shortage May Be on the Horizon. What Happened?**\
-`Huy Fong Foods, the producer of the most popular variety of Sriracha sauce, has faced several supply glitches over the years.`\
-https://nytimes.com/2024/05/09/dining/huy-fong-sriracha-shortage.html
 
