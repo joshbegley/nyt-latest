@@ -1,3 +1,11 @@
+**Judi Dench’s Eyesight Keeps Her From Reading, but Not From Books**\
+`“They’re snapshots of the past: first-night gifts, holidays abroad, memories of lost friends and loved ones,” the award-winning actress says. Her latest, written with Brendan O’Hea, is “Shakespeare: The Man Who Pays the Rent.”`\
+https://nytimes.com/2024/05/09/books/review/judi-dench-shakespeare-the-man-who-pays-the-rent.html
+
+**Stormy Daniels vs. Donald Trump**\
+`Readers discuss her testimony, urge live TV coverage and cite a parable. Also: A judge’s bias; Marjorie Taylor Greene; R.F.K. Jr.; teen depression and smartphones.`\
+https://nytimes.com/2024/05/09/opinion/stormy-daniels-donald-trump.html
+
 **10 Terrific 2022 Beaujolais to Drink Now, or in a Few Years**\
 `Beaujolais, and its prices, are not what they used to be. Instead of bemoaning what has been lost, the wines today ought to be celebrated.`\
 https://nytimes.com/2024/05/09/dining/drinks/best-beaujolais.html
