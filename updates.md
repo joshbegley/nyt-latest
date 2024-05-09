@@ -1,3 +1,7 @@
+**Paging Senator Schumer …**\
+`There is a simple way to fix the Antisemitism Awareness Act.`\
+https://nytimes.com/2024/05/09/opinion/anti-semitism-awareness-act-fix.html
+
 **Friday Briefing: Stormy Daniels, Day Two**\
 `Also, Israel-Hamas talks falter again.`\
 https://nytimes.com/2024/05/09/world/asia/stormy-trump-israel-rafah-asia.html
