@@ -1,3 +1,7 @@
+**Reality Show Contestants Compete for an Authoritarian’s Campaign Jingle**\
+`The program is one way President Nicolás Maduro of Venezuela is trying portray himself and his allies as joyful, colorful characters determined to save the nation.`\
+https://nytimes.com/2024/05/09/world/americas/venezuela-maduro-m-factor-show.html
+
 **Months Late, Biden Uses His Leverage on Israel**\
 `He’s finally applying leverage.`\
 https://nytimes.com/live/2024/05/07/opinion/thepoint/biden-israel-arms-transfer
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/09/climate/trump-oil-gas-mar-a-lago.html
 **Tuna Crabs, Neither Tuna Nor Crabs, Are Swarming Near San Diego**\
 `Divers and marine biologists are getting a window into the lives of a red crustacean most often found in the guts of other species.`\
 https://nytimes.com/2024/05/09/science/tuna-crabs-san-diego.html
-
-**In Budapest, Xi Hails a ‘Deep Friendship’ With Hungary**\
-`The Chinese leader met with Viktor Orban, the Hungarian prime minister, one of China’s most fervent admirers and protectors in Europe.`\
-https://nytimes.com/2024/05/09/world/europe/xi-jinping-china-hungary-orban.html
 
