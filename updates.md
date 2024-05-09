@@ -1,3 +1,15 @@
+**A Furious Trump Is Denied His Mistrial**\
+`The judge admonished Trump’s lawyers for their missteps.`\
+https://nytimes.com/live/2024/05/07/opinion/thepoint/trump-stormy-daniels-mistrial
+
+**Sheriff Releases Body Camera Footage in Police Killing of Airman in His Home**\
+`The footage shows that the airman was holding a gun when he opened his door to a deputy, who then began firing. The airman’s family has called the killing unjustified.`\
+https://nytimes.com/2024/05/09/us/roger-fortson-police-shooting-florida.html
+
+**Japanese American Civil Rights Group Pushes for Gaza Cease-Fire**\
+`The call for a truce followed months of pressure from younger members who believed the group had a duty to stand up for Palestinians.`\
+https://nytimes.com/2024/05/09/world/middleeast/jacl-israel-gaza-cease-fire.html
+
 **Healing the American Soul**\
 `It starts with keeping our humanity and recognizing it in others.`\
 https://nytimes.com/2024/05/09/opinion/polarization-biden-america.html
