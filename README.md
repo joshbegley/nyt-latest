@@ -1,3 +1,7 @@
+**Southern States Brace for Severe Weather After 3 Days of Deadly Storms**\
+`Heavy rain and winds are expected on Thursday from Central Texas toward the Georgia coast. More than 12 million people were under a tornado watch.`\
+https://nytimes.com/2024/05/09/us/storms-weather-tornado-south-us.html
+
 **A Plan to Break up Paramount**\
 `If Sony and Apollo Global win the fight to buy the media company, they plan to keep the studio business and sell everything else.`\
 https://nytimes.com/2024/05/09/business/dealbook/sony-apollo-plan-split-paramount.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/09/world/middleeast/israel-rafah-evacuation-gaza-un.
 **Biden’s warning on weapons highlights the widening U.S. rift with Israel.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/05/09/world/israel-gaza-war-hamas-rafah/bidens-warning-on-weapons-highlights-the-widening-us-rift-with-israel
-
-**One Strongman, One Billion Voters, and the Future of India**\
-`Narendra Modi has proved one of India’s most consequential leaders. But he has drawn criticism for anti-democratic practices and charges of religious persecution.`\
-https://nytimes.com/2024/05/09/podcasts/the-daily/india-election-modi.html
 
