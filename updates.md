@@ -1,3 +1,7 @@
+**44-Foot Whale Found Dead on Bow of Cruise Ship Coming Into New York**\
+`The endangered sei whale, usually found in deep waters, was discovered on the bow of a cruise ship as it arrived at the Brooklyn Cruise Terminal, marine authorities said.`\
+https://nytimes.com/2024/05/08/us/dead-whale-cruise-ship-port-brooklyn.html
+
 **House Vote Count: How Speaker Mike Johnson Survived Motion on Ousting**\
 `Republicans and Democrats voted Wednesday to block a motion that sought to remove the speaker of the House.`\
 https://nytimes.com/interactive/2024/05/08/us/politics/house-vote-speaker-johnson.html
