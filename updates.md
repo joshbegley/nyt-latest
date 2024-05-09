@@ -1,3 +1,7 @@
+**Doctor Is Found Guilty of Sexual Abuse of Patients, Including 5 Minors**\
+`Darius Paduch, who worked at several leading New York hospitals, has been accused of molesting hundreds of patients over 17 years.`\
+https://nytimes.com/2024/05/08/nyregion/doctor-sex-abuse-paduch.html
+
 **44-Foot Whale Found Dead on Bow of Cruise Ship Coming Into New York**\
 `The endangered sei whale, usually found in deep waters, was discovered on the bow of a cruise ship as it arrived at the Brooklyn Cruise Terminal, marine authorities said.`\
 https://nytimes.com/2024/05/08/us/dead-whale-cruise-ship-port-brooklyn.html

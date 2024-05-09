@@ -1,3 +1,7 @@
+**Doctor Is Found Guilty of Sexual Abuse of Patients, Including 5 Minors**\
+`Darius Paduch, who worked at several leading New York hospitals, has been accused of molesting hundreds of patients over 17 years.`\
+https://nytimes.com/2024/05/08/nyregion/doctor-sex-abuse-paduch.html
+
 **44-Foot Whale Found Dead on Bow of Cruise Ship Coming Into New York**\
 `The endangered sei whale, usually found in deep waters, was discovered on the bow of a cruise ship as it arrived at the Brooklyn Cruise Terminal, marine authorities said.`\
 https://nytimes.com/2024/05/08/us/dead-whale-cruise-ship-port-brooklyn.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/08/world/middleeast/rafah-gaza-aid-israel-un.html
 **Biden Says the U.S. Will Not Supply Israel With Weapons to Attack Rafah**\
 `The president’s remarks underscore the growing rift between the United States and its closest Middle East ally over the war in Gaza.`\
 https://nytimes.com/2024/05/08/us/politics/biden-israel-weapons-rafah.html
-
-**‘If they go into Rafah, I’m not going to be supplying the weapons,’ Biden says.**\
-`By Reid J. Epstein`\
-https://nytimes.com/live/2024/05/08/world/israel-gaza-war-hamas-rafah/if-they-go-into-rafah-im-not-going-to-be-supplying-the-weapons-biden-says
 
