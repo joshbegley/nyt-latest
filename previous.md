@@ -1,3 +1,7 @@
+**Who Owns a Drawing That May Be Nazi Loot? A Judge Will Decide.**\
+`A drawing Egon Schiele made of his wife is the focus of a dispute among a Lehman foundation and heirs of two Jewish art collectors.`\
+https://nytimes.com/2024/05/09/arts/design/egon-schiele-nazi-loot-court-case.html
+
 **A Defiant Stormy Daniels Survives a Difficult Cross-Examination**\
 `Trump’s lawyer tried to pepper her with minor inconsistencies but didn’t land a real blow.`\
 https://nytimes.com/live/2024/05/07/opinion/thepoint/stormy-daniels-trump-cross-examination
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/09/style/stormy-daniels-trump-trial.html
 **The Chevy Malibu Was So Uncool It Was Cool**\
 `An unassuming car had a surprisingly large cultural footprint.`\
 https://nytimes.com/2024/05/09/style/chevy-malibu-culture-cool.html
-
-**Boeing Plane Goes Off Runway in Senegal, Leaving at Least 10 Injured**\
-`The authorities in Senegal said the incident involving the aircraft, a Boeing 737 that was flying to Mali, was under investigation.`\
-https://nytimes.com/2024/05/09/world/africa/boeing-plane-runway-senegal.html
 

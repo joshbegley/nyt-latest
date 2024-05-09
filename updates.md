@@ -1,3 +1,7 @@
+**Who Owns a Drawing That May Be Nazi Loot? A Judge Will Decide.**\
+`A drawing Egon Schiele made of his wife is the focus of a dispute among a Lehman foundation and heirs of two Jewish art collectors.`\
+https://nytimes.com/2024/05/09/arts/design/egon-schiele-nazi-loot-court-case.html
+
 **A Defiant Stormy Daniels Survives a Difficult Cross-Examination**\
 `Trump’s lawyer tried to pepper her with minor inconsistencies but didn’t land a real blow.`\
 https://nytimes.com/live/2024/05/07/opinion/thepoint/stormy-daniels-trump-cross-examination
