@@ -1,3 +1,7 @@
+**Late Night Reacts to the Worm in R.F.K. Jr.’s Brain**\
+`“This explains everything, and nothing,” Stephen Colbert said about the presidential hopeful’s newly reported parasite.`\
+https://nytimes.com/2024/05/09/arts/television/late-night-rfk-jr-worm.html
+
 **Stormy Daniels Returns to the Stand**\
 `Ms. Daniels testified for about five hours on Tuesday and will return on Thursday for further cross-examination by Donald J. Trump’s lawyers.`\
 https://nytimes.com/2024/05/09/nyregion/stormy-daniels-testifies-trump-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/09/learning/word-of-the-day-haughty.html
 **The Oldest, Most Successful Party in Europe Is Headed for a Wipeout**\
 `The Conservative Party is in crisis.`\
 https://nytimes.com/2024/05/09/opinion/britain-conservative-party-elections.html
-
-**Thursday Briefing**\
-`A turning point in U.S.-Israel relations.`\
-https://nytimes.com/2024/05/09/briefing/israel-weapons-ukraine-dublin-gaza.html
 
