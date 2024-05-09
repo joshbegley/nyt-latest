@@ -1,3 +1,7 @@
+**Tens of Thousands Have Fled Rafah Since Monday, U.N. Says**\
+`Israeli forces had called for the evacuation of about 110,000 people from the eastern part of the Gazan city and seized the Gaza side of a border crossing with Egypt in an incursion this week.`\
+https://nytimes.com/2024/05/09/world/middleeast/israel-rafah-evacuation-gaza-un.html
+
 **Biden’s warning on weapons highlights the widening U.S. rift with Israel.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/05/09/world/israel-gaza-war-hamas-rafah/bidens-warning-on-weapons-highlights-the-widening-us-rift-with-israel

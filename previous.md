@@ -1,3 +1,7 @@
+**Tens of Thousands Have Fled Rafah Since Monday, U.N. Says**\
+`Israeli forces had called for the evacuation of about 110,000 people from the eastern part of the Gazan city and seized the Gaza side of a border crossing with Egypt in an incursion this week.`\
+https://nytimes.com/2024/05/09/world/middleeast/israel-rafah-evacuation-gaza-un.html
+
 **Biden’s warning on weapons highlights the widening U.S. rift with Israel.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/05/09/world/israel-gaza-war-hamas-rafah/bidens-warning-on-weapons-highlights-the-widening-us-rift-with-israel
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/09/us/antisemitism-republicans-trump.html
 **Homes for Sale in Manhattan and the Bronx**\
 `This week’s properties are on Riverside Drive, in Chelsea and in the South Bronx.`\
 https://nytimes.com/2024/05/09/realestate/housing-market-nyc.html
-
-**Homes for Sale in New York and Connecticut**\
-`This week’s properties are three-bedroom homes in Croton-on-Hudson, N.Y., and Redding, Conn.`\
-https://nytimes.com/2024/05/09/realestate/housing-market-near-nyc.html
 
