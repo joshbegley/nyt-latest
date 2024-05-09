@@ -1,3 +1,11 @@
+**A Biden aide warns Israel against ‘smashing into Rafah.’**\
+`The president has grown increasingly wary of a major assault in the densely populated city in southern Gaza.`\
+https://nytimes.com/2024/05/09/us/politics/biden-kirby-israel-hamas-rafah.html
+
+**Boeing Locks Out Firefighters in Contract Dispute, and Biden Weighs In**\
+`The aircraft manufacturer and a union representing 125 firefighters are at odds over pay at the company’s plants in the Seattle area.`\
+https://nytimes.com/2024/05/09/business/boeing-lockout-firefighters-union-biden.html
+
 **In a surprise, Cornell’s president resigns.**\
 `By Stephanie Saul`\
 https://nytimes.com/live/2024/05/09/us/college-campus-protests/cornell-president-resigns-martha-pollack
