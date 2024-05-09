@@ -1,3 +1,11 @@
+**09trump-trial**\
+`Live Updates: Stormy Daniels Will Return to Stand in Trump Trial`\
+https://nytimes.com/live/2024/05/09/nyregion/trump-trial-stormy-daniels
+
+**09pol-swiper**\
+`Election Updates: Barron Trump will be a delegate at the Republican Convention.`\
+https://nytimes.com/live/2024/05/09/us/biden-trump-election
+
 **Should Sporting Events Be Free?**\
 `A Paris soccer team made its tickets free. Should others follow suit, or at least make prices a lot cheaper?`\
 https://nytimes.com/2024/05/09/learning/should-sporting-events-be-free.html
