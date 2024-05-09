@@ -1,3 +1,7 @@
+**Israel’s Shutdown of Al Jazeera Highlights Long-Running Tensions**\
+`The network will keep covering the war in Gaza, but it will be harder for Israelis to watch. Israel calls the network a security threat, while Al Jazeera says Israel wants to conceal its brutality.`\
+https://nytimes.com/2024/05/09/world/middleeast/al-jazeera-israel-shutdown.html
+
 **The C.E.O.s Who Just Won’t Quit**\
 `What happens to a company — and the economy — when the boss refuses to retire?`\
 https://nytimes.com/2024/05/09/magazine/forever-ceos.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/09/climate/biden-environmental-rules-epa.html
 **‘Gasoline Rainbow’ Review: We’re on a Ride to Nowhere**\
 `This semi-fictional tale of a road trip for weirdos is full of joy.`\
 https://nytimes.com/2024/05/09/movies/gasoline-rainbow-review.html
-
-**Harris Warns of Supreme Court’s Future Rulings: ‘I Worry About Fundamental Freedoms’**\
-`In an interview with The Times, Vice President Kamala Harris deepened her criticism of the conservative justices who overturned Roe and singled out Clarence Thomas’s views on other settled cases.`\
-https://nytimes.com/2024/05/09/us/politics/kamala-harris-interview.html
 
