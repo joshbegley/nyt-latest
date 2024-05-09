@@ -1,5 +1,5 @@
 **Merchan, Denying a Mistrial, Chides Trump’s Lawyers for Their Missteps**\
-`Justice Juan M. Merchan issued a blistering ruling in Donald J. Trump’s trial on Thursday, displaying anger beyond what he showed after rejecting a previous request for a mistrial.`\
+`Justice Juan M. Merchan issued a blistering ruling in Donald J. Trump’s trial on Thursday, displaying frustration beyond what he showed after rejecting a previous request for a mistrial.`\
 https://nytimes.com/2024/05/09/nyregion/trump-mistrial-judge-merchan.html
 
 **As Gaza Talks Falter, Negotiators Look for a Deal or a Scapegoat**\
