@@ -1,3 +1,11 @@
+**Ramón Fonseca, Cofounder of Law Firm at Center of Panama Papers, Dies**\
+`Mr. Fonseca died while awaiting the verdict in his trial for money laundering tied to the 2016 scandal exposed by a massive leak of documents from his firm.`\
+https://nytimes.com/2024/05/09/world/americas/ramon-fonseca-panama-papers-dies.html
+
+**‘We Still Have Hope’: Rescuers Race to Find Dozens Missing in South Africa Building Collapse**\
+`Three days after the collapse of a four-story building that was under construction, rescuers were still combing through some 3,000 tons of concrete rubble even as signs of life faded.`\
+https://nytimes.com/2024/05/09/world/africa/south-africa-george-collapse.html
+
 **Financier Found Guilty in Trump Media Insider Trading Trial**\
 `Bruce Garelick was convicted of securities fraud for leaking confidential information about a merger involving the parent company of Truth Social, Donald Trump’s social media site.`\
 https://nytimes.com/2024/05/09/business/dwac-trump-media-insider-trading-trial.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/09/world/europe/xi-jinping-china-hungary-orban.html
 **The halt in talks is a setback amid hopes for an agreement to free hostages.**\
 `By Julian E. Barnes, Vivian Yee, Aaron Boxerman and Adam Rasgon`\
 https://nytimes.com/live/2024/05/09/world/israel-gaza-war-hamas-rafah/cease-fire-talks-are-put-on-hold-as-tempers-flare-over-israeli-actions-in-rafah
-
-**The Power of Lifelong Prevention**\
-`After years of finding ways to combat deadly diseases, a scientist and a doctor discover their new callings. `\
-https://nytimes.com/paidpost/gsk/the-power-of-lifelong-prevention.html
-
-**‘Time, Patience, Cold Blood’: Mexico Prepares for a Potential Trump Win**\
-`Mexican officials and aides are planning for a drastic shift in U.S. relations should Donald Trump win in November.`\
-https://nytimes.com/2024/05/09/world/americas/trump-mexico-2024-election.html
 
