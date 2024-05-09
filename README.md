@@ -1,3 +1,7 @@
+**Why You Can Hear the Temperature of Water**\
+`A science video maker in China couldn’t find a good explanation for why hot and cold water sound different, so he did his own research and published it.`\
+https://nytimes.com/2024/05/09/science/hot-water-sound-cold.html
+
 **Artificial Intelligence ‘Friends’**\
 `What Times tech columnist Kevin Roose learned about digital companionship.`\
 https://nytimes.com/2024/05/09/briefing/artificial-intelligence-chatbots.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/09/opinion/divest-campus-protest-israel.html
 **The Cities With the Most Dog-Friendly Rentals**\
 `And the most popular breed and dog name in each.`\
 https://nytimes.com/2024/05/09/realestate/the-cities-with-the-most-dog-friendly-rentals.html
-
-**How Republicans Echo Antisemitic Tropes Despite Declaring Support for Israel**\
-`Prominent Republicans have seized on campus protests to assail what they say is antisemitism on the left. But for years they have mainstreamed anti-Jewish rhetoric.`\
-https://nytimes.com/2024/05/09/us/antisemitism-republicans-trump.html
 
