@@ -1,3 +1,7 @@
+**A Plan to Break up Paramount**\
+`If Sony and Apollo Global win the fight to buy the media company, they plan to keep the studio business and sell everything else.`\
+https://nytimes.com/2024/05/09/business/dealbook/sony-apollo-plan-split-paramount.html
+
 **Bank of England Holds Interest Rates Steady, but Signals Cuts**\
 `A rate cut could come as soon as this summer as the central bank forecast that inflation would drop to its 2 percent target.`\
 https://nytimes.com/2024/05/09/business/bank-of-england-interest-rates.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/09/world/israel-gaza-war-hamas-rafah/bidens-war
 **One Strongman, One Billion Voters, and the Future of India**\
 `Narendra Modi has proved one of India’s most consequential leaders. But he has drawn criticism for anti-democratic practices and charges of religious persecution.`\
 https://nytimes.com/2024/05/09/podcasts/the-daily/india-election-modi.html
-
-**Stormy Daniels Faces Trump’s Lawyers, and Biden Blocks Weapons for Use in Rafah**\
-`Plus, Putin’s parade.`\
-https://nytimes.com/2024/05/09/podcasts/stormy-daniels-biden-rafah.html
 

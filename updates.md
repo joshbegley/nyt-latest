@@ -1,3 +1,7 @@
+**A Plan to Break up Paramount**\
+`If Sony and Apollo Global win the fight to buy the media company, they plan to keep the studio business and sell everything else.`\
+https://nytimes.com/2024/05/09/business/dealbook/sony-apollo-plan-split-paramount.html
+
 **Bank of England Holds Interest Rates Steady, but Signals Cuts**\
 `A rate cut could come as soon as this summer as the central bank forecast that inflation would drop to its 2 percent target.`\
 https://nytimes.com/2024/05/09/business/bank-of-england-interest-rates.html
