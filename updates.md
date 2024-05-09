@@ -1,3 +1,11 @@
+**Transcript of Trump Manhattan Trial, May 7, 2024**\
+`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
+https://nytimes.com/interactive/2024/05/09/nyregion/trump-hush-money-trial-transcript-may-7.html
+
+**Review: ‘Black Twitter’ Looks at Who Gave the Platform Its Voice**\
+`Hulu’s docuseries on a social-media subculture doubles as a serious snapshot of recent history.`\
+https://nytimes.com/2024/05/09/arts/television/review-black-twitter.html
+
 **Judi Dench’s Eyesight Keeps Her From Reading, but Not From Books**\
 `“They’re snapshots of the past: first-night gifts, holidays abroad, memories of lost friends and loved ones,” the award-winning actress says. Her latest, written with Brendan O’Hea, is “Shakespeare: The Man Who Pays the Rent.”`\
 https://nytimes.com/2024/05/09/books/review/judi-dench-shakespeare-the-man-who-pays-the-rent.html
