@@ -1,3 +1,7 @@
+**‘Time, Patience, Cold Blood’: Mexico Prepares for a Potential Trump Win**\
+`Mexican officials and aides are planning for a drastic shift in U.S. relations should Donald Trump win in November.`\
+https://nytimes.com/2024/05/09/world/americas/trump-mexico-2024-election.html
+
 **Supreme Court Rules Against Women Whose Cars Were Seized by the Police**\
 `Two Alabama women spent more than a year trying to reclaim vehicles they owned, which the police had confiscated after arresting their drivers on drug charges.`\
 https://nytimes.com/2024/05/09/us/politics/supreme-court-alabama-police-seized-cars.html
