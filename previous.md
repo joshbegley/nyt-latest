@@ -27,7 +27,7 @@ https://nytimes.com/2024/05/09/t-magazine/scarlett-johansson-beauty-skin-care-ma
 https://nytimes.com/2024/05/09/us/california-love-letters.html
 
 **09trump-trial**\
-`Live Updates: Stormy Daniels Is Grilled by Trump’s Lawyers in His Criminal Trial`\
+`Live Updates: A Defiant Stormy Daniels Is Grilled by Trump’s Lawyers`\
 https://nytimes.com/live/2024/05/09/nyregion/trump-trial-stormy-daniels
 
 **09pol-swiper**\

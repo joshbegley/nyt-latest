@@ -1,3 +1,7 @@
+**09trump-trial**\
+`Live Updates: A Defiant Stormy Daniels Is Grilled by Trump’s Lawyers`\
+https://nytimes.com/live/2024/05/09/nyregion/trump-trial-stormy-daniels
+
 **Massive Fossil Donation Helps Brazil’s National Museum Rise From the Ashes**\
 `A gift from abroad of more than 1,100 Brazilian fossils aims to step up efforts to rebuild the country’s National Museum, which suffered major fire damage in 2018.`\
 https://nytimes.com/2024/05/09/science/brazil-fossils-museum-donation.html
