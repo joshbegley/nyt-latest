@@ -1,3 +1,7 @@
+**Rescue Efforts Continue After South Africa Building Collapse**\
+`The four-story building under construction collapsed on Monday, killing at least eight people and leaving dozens of others missing.`\
+https://nytimes.com/video/world/africa/100000009461193/south-africa-building-collapse.html
+
 **White House Warns Israel Against Rafah Attack**\
 `John F. Kirby, a White House national security spokesman, said President Biden is concerned that an Israeli assault on Rafah would strengthen Hamas.`\
 https://nytimes.com/video/us/politics/100000009461123/biden-israel-rafah.html
