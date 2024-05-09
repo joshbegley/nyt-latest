@@ -1,3 +1,7 @@
+**New ‘Lord of the Rings’ Movie Will Put Gollum Center Stage**\
+`Andy Serkis, who played the creature in the trilogy, will direct and star in “The Hunt for Gollum,” an expansion of the fantasy epic scheduled for 2026.`\
+https://nytimes.com/2024/05/09/arts/lord-of-the-rings-gollum-andy-serkis.html
+
 **Reality Show Contestants Compete for an Authoritarian’s Campaign Jingle**\
 `The program is one way President Nicolás Maduro of Venezuela is trying portray himself and his allies as joyful, colorful characters determined to save the nation.`\
 https://nytimes.com/2024/05/09/world/americas/venezuela-maduro-m-factor-show.html
