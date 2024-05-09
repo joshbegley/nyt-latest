@@ -1,3 +1,7 @@
+**Barron Trump Is Picked to Be Delegate at the Republican Convention**\
+`In his most political role to date, Donald J. Trump’s youngest son will serve as a delegate from Florida just a few months after graduating from high school.`\
+https://nytimes.com/2024/05/09/us/politics/barron-trump-gop-national-convention.html
+
 **Southern States Brace for Severe Weather After 3 Days of Deadly Storms**\
 `Heavy rain and winds are expected on Thursday from Central Texas toward the Georgia coast. More than 12 million people were under a tornado watch.`\
 https://nytimes.com/2024/05/09/us/storms-weather-tornado-south.html
