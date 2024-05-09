@@ -1,3 +1,7 @@
+**Friday Briefing: Stormy Daniels, Day Two**\
+`Also, Israel-Hamas talks falter again.`\
+https://nytimes.com/2024/05/09/world/asia/stormy-trump-israel-rafah-asia.html
+
 **Man Who Attacked Police Officers With Machete Sentenced to 27 Years**\
 `Prosecutors said Trevor Bickford had come to New York from Maine to carry out an attack “in the name of jihad” on New Year’s Eve in 2022.`\
 https://nytimes.com/2024/05/09/nyregion/trevor-bickford-machete-nypd-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/09/us/cornell-president-resigns-martha-pollack.html
 **Embrace the Hot Restaurant Dupe**\
 `You don’t have to wait hours for a seat when there are similarly excellent restaurants throughout the city.`\
 https://nytimes.com/2024/05/09/dining/embrace-the-hot-restaurant-dupe.html
-
-**White House Aide Warns Israel Against ‘Smashing Into Rafah’**\
-`The president has grown increasingly wary of a major assault in the densely populated city in southern Gaza.`\
-https://nytimes.com/2024/05/09/us/politics/biden-kirby-israel-hamas-rafah.html
 
