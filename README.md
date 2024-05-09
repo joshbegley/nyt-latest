@@ -1,6 +1,6 @@
 **Lawyer Calls Daniels Transactional. ‘Not Unlike Mr. Trump,’ She Replies.**\
 `Defense lawyers for Donald J. Trump, who has sold branded water, mattresses and steak, pressed Stormy Daniels about how she has capitalized on her account of a liaison with him.`\
-https://nytimes.com/2024/05/09/nyregion/stormy-daniels-merchandise-trump-trial.html
+https://nytimes.com/2024/05/09/nyregion/stormy-daniels-trump-meeting.html
 
 **Senate Races to Pass Bill to Reauthorize F.A.A. and Improve Air Travel**\
 `The legislation is due by Friday, but regional conflicts and demands for votes on unrelated provisions have slowed its progress.`\
