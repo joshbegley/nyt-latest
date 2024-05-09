@@ -1,3 +1,11 @@
+**Boeing Plane Goes Off Runway in Senegal, Leaving at Least 10 Injured**\
+`The authorities in Senegal said the incident involving the aircraft, a Boeing 737 that was flying to Mali, was under investigation.`\
+https://nytimes.com/2024/05/09/world/africa/boeing-plane-runway-senegal.html
+
+**Ukraine Strikes More Russian Oil Facilities in a Bid to Disrupt Military Logistics**\
+`Analysts say Ukraine is trying to disrupt the Russian military’s logistical routes and combat operations by targeting the facilities that supply fuel for its tanks, ships and fighter jets.`\
+https://nytimes.com/2024/05/09/world/europe/ukraine-strikes-russia-oil-refineries.html
+
 **Trump Summons Entourage for Moral Support During Mortifying Testimony**\
 `A rotating cast of supporters has come to Donald J. Trump’s criminal trial, including an aide nicknamed “the human printer,” who hands him hard copies of praise to bolster his morale.`\
 https://nytimes.com/2024/05/09/nyregion/trump-hush-money-trial-allies.html
