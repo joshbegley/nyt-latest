@@ -1,3 +1,11 @@
+**Merchan, Denying a Mistrial, Chides Trump’s Lawyers for Their Missteps**\
+`Justice Juan M. Merchan issued a blistering ruling in Donald J. Trump’s trial on Thursday, displaying frustration beyond what he showed after rejecting a previous request for a mistrial.`\
+https://nytimes.com/2024/05/09/nyregion/trump-mistrial-judge-merchan.html
+
+**As Gaza Talks Falter, Negotiators Look for a Deal or a Scapegoat**\
+`President Biden’s decision to withhold offensive weapons if Israel attacks Rafah has scrambled cease-fire talks. But much of the various sides’ recriminations may be to gain advantage — or shift blame.`\
+https://nytimes.com/2024/05/09/us/politics/gaza-israel-biden-hamas.html
+
 **Apple Says Destructive iPad Ad ‘Missed the Mark’**\
 `People in the creative world widely panned a commercial showing a giant hydraulic press squishing objects ranging from paint cans to a piano.`\
 https://nytimes.com/2024/05/09/technology/apple-ipad-ad-crush-apology.html
