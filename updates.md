@@ -1,3 +1,7 @@
+**The Oldest, Most Successful Party in Europe Is Headed for a Wipeout**\
+`The Conservative Party is in crisis.`\
+https://nytimes.com/2024/05/09/opinion/britain-conservative-party-elections.html
+
 **Thursday Briefing**\
 `A turning point in U.S.-Israel relations.`\
 https://nytimes.com/2024/05/09/briefing/israel-weapons-ukraine-dublin-gaza.html
