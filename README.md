@@ -1,3 +1,7 @@
+**The Oldest, Most Successful Party in Europe Is Headed for a Wipeout**\
+`The Conservative Party is in crisis.`\
+https://nytimes.com/2024/05/09/opinion/britain-conservative-party-elections.html
+
 **Thursday Briefing**\
 `A turning point in U.S.-Israel relations.`\
 https://nytimes.com/2024/05/09/briefing/israel-weapons-ukraine-dublin-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/08/us/university-of-southern-california-carol-folt-c
 **Steve Albini’s 10 Essential Recordings**\
 `The musician and audio engineer, who died on Tuesday at 61, gave artists including Nirvana and PJ Harvey an authentic representation of their work at a reasonable price.`\
 https://nytimes.com/2024/05/08/arts/music/steve-albini-songs.html
-
-**Always Ready to Order**\
-`Joe DiPietro takes us back to old Rome.`\
-https://nytimes.com/2024/05/08/crosswords/daily-puzzle-2024-05-09.html
 
