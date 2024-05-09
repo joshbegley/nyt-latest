@@ -1,3 +1,11 @@
+**Why Was This Treasure of Musical Theater All but Lost to the Ages?**\
+`It was one of the best Black musicals ever to make it to Broadway, and you’ve probably never heard of it.`\
+https://nytimes.com/2024/05/09/opinion/musical-raisin-broadway-black.html
+
+**Fresh Off Defeat in Speaker Fight, Greene Is ‘Thrilled’ With the Chaos She Wrought**\
+`The hard-right congresswoman from Georgia said she got exactly what she wanted when she failed to depose Speaker Mike Johnson: proof that he had been co-opted by Democrats and the G.O.P. was complicit.`\
+https://nytimes.com/2024/05/09/us/politics/marjorie-taylor-greene-johnson.html
+
 **She Wanted to Help Strangers. Would They Take Her Up on It?**\
 `Bianca Giaever wasn’t feeling very helpful in her daily life, so she tried to do small favors for passers-by in Union Square. It got complicated.`\
 https://nytimes.com/2024/05/09/style/bianca-giaever-free-help-union-square.html
