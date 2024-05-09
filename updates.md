@@ -1,3 +1,11 @@
+**Trump Summons Entourage for Moral Support During Mortifying Testimony**\
+`A rotating cast of supporters has come to Donald J. Trump’s criminal trial, including an aide nicknamed “the human printer,” who hands him hard copies of praise to bolster his morale.`\
+https://nytimes.com/2024/05/09/nyregion/trump-hush-money-trial-allies.html
+
+**Maggie Goodlander, Former White House Adviser, to Run for Congress in New Hampshire**\
+`Ms. Goodlander, who has worked in the White House and the Justice Department under President Biden, announced her candidacy in New Hampshire’s Second Congressional District.`\
+https://nytimes.com/2024/05/09/us/politics/maggie-goodlander-new-hampshire.html
+
 **How Poor Tracking of Bird Flu Leaves Dairy Workers at Risk**\
 `Farmworkers have been exposed to milk infected with the bird flu virus. But there has virtually been no testing on farms, and health officials know little about who may be infected.`\
 https://nytimes.com/2024/05/09/health/bird-flu-diaries-farmworkers.html

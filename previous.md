@@ -1,3 +1,11 @@
+**Trump Summons Entourage for Moral Support During Mortifying Testimony**\
+`A rotating cast of supporters has come to Donald J. Trump’s criminal trial, including an aide nicknamed “the human printer,” who hands him hard copies of praise to bolster his morale.`\
+https://nytimes.com/2024/05/09/nyregion/trump-hush-money-trial-allies.html
+
+**Maggie Goodlander, Former White House Adviser, to Run for Congress in New Hampshire**\
+`Ms. Goodlander, who has worked in the White House and the Justice Department under President Biden, announced her candidacy in New Hampshire’s Second Congressional District.`\
+https://nytimes.com/2024/05/09/us/politics/maggie-goodlander-new-hampshire.html
+
 **How Poor Tracking of Bird Flu Leaves Dairy Workers at Risk**\
 `Farmworkers have been exposed to milk infected with the bird flu virus. But there has virtually been no testing on farms, and health officials know little about who may be infected.`\
 https://nytimes.com/2024/05/09/health/bird-flu-diaries-farmworkers.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/09/world/americas/ramon-fonseca-panama-papers-dies.h
 **‘We Still Have Hope’: Rescuers Race to Find Dozens Missing in South Africa Building Collapse**\
 `Three days after the collapse of a four-story building that was under construction, rescuers were still combing through some 3,000 tons of concrete rubble even as signs of life faded.`\
 https://nytimes.com/2024/05/09/world/africa/south-africa-george-collapse.html
-
-**Financier Found Guilty in Trump Media Insider Trading Trial**\
-`Bruce Garelick was convicted of securities fraud for leaking confidential information about a merger involving the parent company of Truth Social, Donald Trump’s social media site.`\
-https://nytimes.com/2024/05/09/business/dwac-trump-media-insider-trading-trial.html
-
-**An Embarrassment of Style at the Independent**\
-`This year’s fair is in overdrive, with exhibitors taking big swings in dozens of directions. Use our critic’s personal playlist to find your way around the floor.`\
-https://nytimes.com/2024/05/09/arts/design/independent-art-fair-review.html
 
