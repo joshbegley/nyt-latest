@@ -1,3 +1,15 @@
+**President Biden’s Biggest Blunder**\
+`The consequences of Biden’s decision to withhold munitions from Israel could be the opposite of what he intends.`\
+https://nytimes.com/2024/05/09/opinion/president-bidens-biggest-blunder.html
+
+**Pro-Palestinian Encampment at Penn Grows as Commencement Nears**\
+`A post on social media by an account associated with the encampment said the expansion was in response to “the administration’s continued bad-faith negotiations.”`\
+https://nytimes.com/2024/05/09/us/penn-palestinian-encampment.html
+
+**Bernard Pivot, Host of Influential French TV Show on Books, Dies at 89**\
+`For 15 years, French viewers watched Mr. Pivot on his weekly show, “Apostrophes,” to decide what to read next.`\
+https://nytimes.com/2024/05/09/world/europe/bernard-pivot-dead.html
+
 **U.S. Judge Backs U.K. Request to Extradite ‘Irish Heiress’ Who Swindled Producer**\
 `Marianne Smyth served a U.S. sentence for stealing thousands. On Thursday, a judge agreed she should be extradited to Northern Ireland on separate fraud and theft charges.`\
 https://nytimes.com/2024/05/09/us/marianne-smyth-irish-heiress-con.html

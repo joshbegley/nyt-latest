@@ -1,3 +1,15 @@
+**President Biden’s Biggest Blunder**\
+`The consequences of Biden’s decision to withhold munitions from Israel could be the opposite of what he intends.`\
+https://nytimes.com/2024/05/09/opinion/president-bidens-biggest-blunder.html
+
+**Pro-Palestinian Encampment at Penn Grows as Commencement Nears**\
+`A post on social media by an account associated with the encampment said the expansion was in response to “the administration’s continued bad-faith negotiations.”`\
+https://nytimes.com/2024/05/09/us/penn-palestinian-encampment.html
+
+**Bernard Pivot, Host of Influential French TV Show on Books, Dies at 89**\
+`For 15 years, French viewers watched Mr. Pivot on his weekly show, “Apostrophes,” to decide what to read next.`\
+https://nytimes.com/2024/05/09/world/europe/bernard-pivot-dead.html
+
 **U.S. Judge Backs U.K. Request to Extradite ‘Irish Heiress’ Who Swindled Producer**\
 `Marianne Smyth served a U.S. sentence for stealing thousands. On Thursday, a judge agreed she should be extradited to Northern Ireland on separate fraud and theft charges.`\
 https://nytimes.com/2024/05/09/us/marianne-smyth-irish-heiress-con.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/09/technology/apple-ipad-ad-crush-apology.html
 **Are R.F.K. Jr. Signature Gatherers Misleading New Yorkers for Ballot Access?**\
 `More than half a dozen New York City residents described encounters with people seeking their signature who did not make clear that their aim was to place the independent 2024 candidate on the ballot.`\
 https://nytimes.com/2024/05/09/us/politics/rfk-signatures-ny.html
-
-**Why Higher Fed Rates Are Not Totally Off the Table**\
-`Fed officials still think their next move will be to cut rates, but they are not entirely ruling out the possibility that they might have to raise them.`\
-https://nytimes.com/2024/05/09/business/economy/federal-reserve-powell-raise-interest-rates.html
-
-**Donald Trump’s Lawyer Pressed Stormy Daniels**\
-`Also, a setback in Gaza cease-fire talks. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2024/05/09/briefing/trump-trial-stormy-daniels-gaza-cease-fire-talks.html
-
-**Breach Grows Between Biden and Israel’s Leaders Over Rafah Invasion**\
-`Defiant Israelis have vowed to do “whatever is necessary” in the Gaza Strip despite the American president’s threat to withhold weapons.`\
-https://nytimes.com/2024/05/09/world/middleeast/biden-israel-gaza-rafah-invasion.html
 
