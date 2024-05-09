@@ -1,3 +1,11 @@
+**A Beginner’s Guide to a Spicy Pantry**\
+`Whole dried chiles, crushed chile flakes and spicy pastes get to work in chilaquiles, arrabbiata sauce and gochujang-glazed eggplant.`\
+https://nytimes.com/2024/05/09/dining/a-beginners-guide-to-a-spicy-pantry.html
+
+**In Letter, 540 Jewish Columbia Students Defend Zionism, Condemn Protests**\
+`The students wrote that “Zionism remains a pillar of our Jewish identities” and argued that many classmates do not understand its meaning.`\
+https://nytimes.com/2024/05/09/nyregion/columbia-university-jewish-students-letter.html
+
 **At a Dinner, Trump Assailed Climate Rules and Asked $1 Billion From Big Oil**\
 `At a private meeting at Mar-a-Lago, the former president said fossil fuel companies should donate to help him beat President Biden.`\
 https://nytimes.com/2024/05/09/climate/trump-oil-gas-mar-a-lago.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/09/us/politics/supreme-court-alabama-police-seized-c
 **Surrealism Reigns at Tefaf Art Fair**\
 `Objects made under the influence of the art movement have inspired many contemporary and modern dealers at the 10th edition of Tefaf New York.`\
 https://nytimes.com/2024/05/09/arts/design/tefaf-art-fair-armory.html
-
-**A Way to Beat High Mortgage Rates? Take Over Someone Else’s Loan.**\
-`Assumable mortgages — or low-rate mortgages that home buyers can take over from home sellers — are making a comeback. The process can be challenging.`\
-https://nytimes.com/2024/05/09/business/low-rate-assumable-mortgage.html
-
-**Transcript of Trump Manhattan Trial, May 7, 2024**\
-`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
-https://nytimes.com/interactive/2024/05/09/nyregion/trump-hush-money-trial-transcript-may-7.html
 
