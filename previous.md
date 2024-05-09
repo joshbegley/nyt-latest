@@ -1,3 +1,7 @@
+**Norfolk Southern Investors Reject Plan to Oust Its Management**\
+`An activist investment firm failed to replace the railroad’s top executive and all its directors, but did win three seats on its board.`\
+https://nytimes.com/2024/05/09/business/norfolk-southern-activist-investor.html
+
 **Review: Impressed, but Not Transported, by ‘Spirited Away’**\
 `A stage production of the beloved Studio Ghibli movie is big on spectacle, but rarely grabs the heart.`\
 https://nytimes.com/2024/05/09/theater/spirited-away-london-coliseum.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/09/world/europe/russia-putin-victory-day.html
 **Southern States Brace for Severe Weather After 3 Days of Deadly Storms**\
 `Heavy rain and winds are expected on Thursday from Central Texas toward the Georgia coast. More than 12 million people were under a tornado watch.`\
 https://nytimes.com/2024/05/09/us/storms-weather-tornado-south.html
-
-**A Plan to Break up Paramount**\
-`If Sony and Apollo Global win the fight to buy the media company, they plan to keep the studio business and sell everything else.`\
-https://nytimes.com/2024/05/09/business/dealbook/sony-apollo-plan-split-paramount.html
 

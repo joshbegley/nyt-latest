@@ -1,3 +1,7 @@
+**Norfolk Southern Investors Reject Plan to Oust Its Management**\
+`An activist investment firm failed to replace the railroad’s top executive and all its directors, but did win three seats on its board.`\
+https://nytimes.com/2024/05/09/business/norfolk-southern-activist-investor.html
+
 **Review: Impressed, but Not Transported, by ‘Spirited Away’**\
 `A stage production of the beloved Studio Ghibli movie is big on spectacle, but rarely grabs the heart.`\
 https://nytimes.com/2024/05/09/theater/spirited-away-london-coliseum.html
