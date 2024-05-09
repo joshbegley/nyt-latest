@@ -1,3 +1,7 @@
+**U.S.C. President Censured by Academic Senate After Weeks of Turmoil**\
+`Carol Folt, the president, has been under fire for canceling a valedictorian’s speech, calling in police to clear an encampment and arresting dozens of protesters.`\
+https://nytimes.com/2024/05/08/us/university-of-southern-california-carol-folt-censure.html
+
 **Steve Albini’s 10 Essential Recordings**\
 `The musician and audio engineer, who died on Tuesday at 61, gave artists including Nirvana and PJ Harvey an authentic representation of their work at a reasonable price.`\
 https://nytimes.com/2024/05/08/arts/music/steve-albini-songs.html
