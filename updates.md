@@ -1,3 +1,7 @@
+**Thursday Briefing**\
+`A turning point in U.S.-Israel relations.`\
+https://nytimes.com/2024/05/09/briefing/israel-weapons-ukraine-dublin-gaza.html
+
 **Fencing Rattled by Suspensions and Accusations Ahead of Olympics**\
 `Concerns about refereeing integrity and preferential treatment for top saber competitors have cast a shadow over a sport decided by the finest of margins.`\
 https://nytimes.com/2024/05/09/world/europe/fencing-olympics-turmoil.html
