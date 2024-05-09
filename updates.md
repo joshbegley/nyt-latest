@@ -1,3 +1,7 @@
+**The Power of Lifelong Prevention**\
+`After years of finding ways to combat deadly diseases, a scientist and a doctor discover their new callings. `\
+https://nytimes.com/paidpost/gsk/the-power-of-lifelong-prevention.html
+
 **‘Time, Patience, Cold Blood’: Mexico Prepares for a Potential Trump Win**\
 `Mexican officials and aides are planning for a drastic shift in U.S. relations should Donald Trump win in November.`\
 https://nytimes.com/2024/05/09/world/americas/trump-mexico-2024-election.html
