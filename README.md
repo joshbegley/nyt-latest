@@ -1,3 +1,15 @@
+**U.S. Judge Backs U.K. Request to Extradite ‘Irish Heiress’ Who Swindled Producer**\
+`Marianne Smyth served a U.S. sentence for stealing thousands. On Thursday, a judge agreed she should be extradited to Northern Ireland on separate fraud and theft charges.`\
+https://nytimes.com/2024/05/09/us/marianne-smyth-irish-heiress-con.html
+
+**Biden Aims to Speed Up Asylum Screenings in Certain Cases**\
+`As President Biden considers sweeping changes to the U.S. asylum system, he is also taking smaller steps to try to control the backlogs.`\
+https://nytimes.com/2024/05/09/us/politics/biden-asylum-immigration.html
+
+**Stormy Daniels Is Steady on the Stand: 5 Takeaways From Trump’s Trial**\
+`In a grueling day of cross-examination, Ms. Daniels sparred with Donald J. Trump’s lawyers, showing steely humor, but also vulnerability.`\
+https://nytimes.com/2024/05/09/nyregion/trump-trial-stormy-daniels-takeaways.html
+
 **Merchan, Denying a Mistrial, Chides Trump’s Lawyers for Their Missteps**\
 `Justice Juan M. Merchan issued a blistering ruling in Donald J. Trump’s trial on Thursday, displaying frustration beyond what he showed after rejecting a previous request for a mistrial.`\
 https://nytimes.com/2024/05/09/nyregion/trump-mistrial-judge-merchan.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/09/briefing/trump-trial-stormy-daniels-gaza-cease-fi
 **Breach Grows Between Biden and Israel’s Leaders Over Rafah Invasion**\
 `Defiant Israelis have vowed to do “whatever is necessary” in the Gaza Strip despite the American president’s threat to withhold weapons.`\
 https://nytimes.com/2024/05/09/world/middleeast/biden-israel-gaza-rafah-invasion.html
-
-**Trump Again, and Repeatedly, Denounces Jews Who Support Biden**\
-`Former President Donald J. Trump made three different statements on Thursday suggesting that Jews who support President Biden were betraying their religious and cultural identities.`\
-https://nytimes.com/2024/05/09/us/politics/trump-biden-jews.html
-
-**Rescue Efforts Continue After South Africa Building Collapse**\
-`The four-story building under construction collapsed on Monday, killing at least eight people and leaving dozens of others missing.`\
-https://nytimes.com/video/world/africa/100000009461193/south-africa-building-collapse.html
-
-**White House Warns Israel Against Rafah Attack**\
-`John F. Kirby, a White House national security spokesman, said President Biden is concerned that an Israeli assault on Rafah would strengthen Hamas.`\
-https://nytimes.com/video/us/politics/100000009461123/biden-israel-rafah.html
 
