@@ -1,3 +1,15 @@
+**‘Aisha’ Review: Seeking Asylum in Ireland**\
+`The “Black Panther” star Letitia Wright shows understated vulnerability in this immigrant drama by Frank Berry. Josh O’Connor (“Challengers”) also stars.`\
+https://nytimes.com/2024/05/09/movies/aisha-review.html
+
+**‘Aggro Dr1ft’ Review: Glow-Stick Dreams and Thermal Nightmares**\
+`Harmony Korine (“Spring Breakers”) parties too hard in this fusion of feature filmmaking and video game.`\
+https://nytimes.com/2024/05/09/movies/aggro-dr1ft-review.html
+
+**‘A Prince’ Review: Let New Passions Bloom**\
+`Sex, death and domination fuel this beautifully enigmatic pastoral drama from France, which presents the gay coming-of-age of an apprentice gardener.`\
+https://nytimes.com/2024/05/09/movies/a-prince-review.html
+
 **Why You Can Hear the Temperature of Water**\
 `A science video maker in China couldn’t find a good explanation for why hot and cold water sound different, so he did his own research and published it.`\
 https://nytimes.com/2024/05/09/science/hot-water-sound-cold.html

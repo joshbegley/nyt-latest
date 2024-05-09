@@ -1,3 +1,15 @@
+**‘Aisha’ Review: Seeking Asylum in Ireland**\
+`The “Black Panther” star Letitia Wright shows understated vulnerability in this immigrant drama by Frank Berry. Josh O’Connor (“Challengers”) also stars.`\
+https://nytimes.com/2024/05/09/movies/aisha-review.html
+
+**‘Aggro Dr1ft’ Review: Glow-Stick Dreams and Thermal Nightmares**\
+`Harmony Korine (“Spring Breakers”) parties too hard in this fusion of feature filmmaking and video game.`\
+https://nytimes.com/2024/05/09/movies/aggro-dr1ft-review.html
+
+**‘A Prince’ Review: Let New Passions Bloom**\
+`Sex, death and domination fuel this beautifully enigmatic pastoral drama from France, which presents the gay coming-of-age of an apprentice gardener.`\
+https://nytimes.com/2024/05/09/movies/a-prince-review.html
+
 **Why You Can Hear the Temperature of Water**\
 `A science video maker in China couldn’t find a good explanation for why hot and cold water sound different, so he did his own research and published it.`\
 https://nytimes.com/2024/05/09/science/hot-water-sound-cold.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/09/podcasts/stormy-daniels-biden-rafah.html
 **Israel’s Shutdown of Al Jazeera Highlights Long-Running Tensions**\
 `The network will keep covering the war in Gaza, but it will be harder for Israelis to watch. Israel calls the network a security threat, while Al Jazeera says Israel wants to conceal its brutality.`\
 https://nytimes.com/2024/05/09/world/middleeast/al-jazeera-israel-shutdown.html
-
-**The C.E.O.s Who Just Won’t Quit**\
-`What happens to a company — and the economy — when the boss refuses to retire?`\
-https://nytimes.com/2024/05/09/magazine/forever-ceos.html
-
-**Divesting From Israel Is Impractical and Illogical**\
-`Colleges cannot accede to student protesters’ demands that they jettison investments because of the war in Gaza.`\
-https://nytimes.com/2024/05/09/opinion/divest-campus-protest-israel.html
-
-**The Cities With the Most Dog-Friendly Rentals**\
-`And the most popular breed and dog name in each.`\
-https://nytimes.com/2024/05/09/realestate/the-cities-with-the-most-dog-friendly-rentals.html
 
