@@ -1,3 +1,7 @@
+**Police Clear Protesters From University of Arizona**\
+`The move came hours before the school’s graduation ceremony was going to be held.`\
+https://nytimes.com/2024/05/10/us/police-clear-protesters-from-university-of-arizona.html
+
 **The U.N. General Assembly adopts a resolution in support of Palestinian statehood.**\
 `The vote comes after the United States vetoed a Security Council measure granting full U.N. membership last month to a Palestinian state.`\
 https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/un-resolution-palestinian-vote
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/theater/suzan-lori-parks-sally-hemings-sally-and-
 **After Student Encampment Ends, New School Professors Set Up Their Own**\
 `At The New School in Manhattan, a university with a long history of left-leaning politics, the faculty set up an pro-Palestinian encampment in a building lobby.`\
 https://nytimes.com/2024/05/10/nyregion/new-school-faculty-protest-encampment.html
-
-**Biden Looks to Raise Tax Revenue When Trump Cuts Expire Next Year**\
-`Lael Brainard, the director of the National Economic Council, said lawmakers should raise taxes on companies and the wealthiest while extending the 2017 cuts for those making less than $400,000.`\
-https://nytimes.com/2024/05/10/us/politics/biden-trump-tax-cuts.html
 

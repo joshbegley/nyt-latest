@@ -1,3 +1,7 @@
+**Police Clear Protesters From University of Arizona**\
+`The move came hours before the school’s graduation ceremony was going to be held.`\
+https://nytimes.com/2024/05/10/us/police-clear-protesters-from-university-of-arizona.html
+
 **The U.N. General Assembly adopts a resolution in support of Palestinian statehood.**\
 `The vote comes after the United States vetoed a Security Council measure granting full U.N. membership last month to a Palestinian state.`\
 https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/un-resolution-palestinian-vote
