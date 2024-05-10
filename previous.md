@@ -1,3 +1,7 @@
+**U.S.C. Valedictorian Graduates Without a Speech, but With Cheers**\
+`Asna Tabassum, whose speech was canceled by University of Southern California administrators, received plenty of support at an engineering school ceremony.`\
+https://nytimes.com/2024/05/10/us/usc-valedictorian-speech-graduation.html
+
 **Green Party candidates for Senate in Arizona draw suspicion of being plants.**\
 `Party leaders accused Mike Norton and Arturo Hernandez of entering the primary to help Democrat Ruben Gallego and Republican Kari Lake tip the nationally-watched contest.`\
 https://nytimes.com/live/2024/05/10/us/biden-trump-election/green-party-arizona-senate
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/us/politics/trump-court-jury-duty.html
 **Aiming for Rosier Ties, Xi Wraps Up Europe Visit**\
 `The red carpet receptions China’s leader received in France, Serbia and Hungary helped recast a strained relationship with the continent.`\
 https://nytimes.com/2024/05/10/world/europe/xi-europe-diplomacy.html
-
-**Is It Better to Rent or Buy?**\
-`Our calculator takes the most important costs associated with buying or renting and compares the two options.`\
-https://nytimes.com/interactive/2024/upshot/buy-rent-calculator.html
 
