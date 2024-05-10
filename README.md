@@ -1,3 +1,7 @@
+**Cannabis Rollout Hampered by Inexperienced Leadership, N.Y. Report Finds**\
+`A New York State review of problems in the Office of Cannabis Management found that 90 percent of applicants for marijuana businesses failed to get licenses.`\
+https://nytimes.com/2024/05/10/nyregion/cannabis-agency-ny-report.html
+
 **Why Companies Are Nervous About the Consumer**\
 `On earnings calls, dozens of corporate executives have cited a slowdown in spending to explain why sales are slipping.`\
 https://nytimes.com/2024/05/10/business/dealbook/companies-nervous-consumer-profit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/podcasts/the-daily/stormy-daniels-trump.html
 **How Pro-Palestinian Students Pushed Trinity College Dublin to Divest**\
 `A surge of attention hit Ireland’s most prestigious university over protests that involved Israel, Gaza and the famed medieval Book of Kells.`\
 https://nytimes.com/2024/05/10/world/europe/ireland-trinity-dublin-palestinian-protests-divest.html
-
-**How Should an Amy Winehouse Movie Be?**\
-`Several depictions of the singer’s life have explored her tense relationship with fame. The new biopic “Back to Black” instead centers her romantic life.`\
-https://nytimes.com/2024/05/10/movies/back-to-black-amy-winehouse.html
 
