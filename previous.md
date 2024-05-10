@@ -1,3 +1,7 @@
+**American Aid Ship Heads to Gaza, but the System for Unloading It Still Isn’t in Place**\
+`A Pentagon spokesman said bad weather had made it impossible to install a new floating pier and causeway.`\
+https://nytimes.com/2024/05/09/world/middleeast/gaza-aid-us-ship.html
+
 **U.N. agency that helps Palestinians says it has closed its headquarters in East Jerusalem after attacks and fire.**\
 `The leader of the agency said Israeli residents had set the fire, which caused extensive damage, but that no staff had been injured.`\
 https://nytimes.com/2024/05/09/world/middleeast/unrwa-headquarters-jerusalem-arson.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/09/opinion/republicans-home-appliances.html
 **Chad’s Military Ruler Is Announced as Winner of Disputed Election**\
 `The Central African country’s incumbent president and his prime minister both ran. Shortly after the prime minister claimed victory, the president was declared the winner.`\
 https://nytimes.com/2024/05/09/world/africa/chad-election.html
-
-**In Sex Crimes Cases, New York Weighs Allowing Evidence of Prior Bad Acts**\
-`The overturning of Harvey Weinstein’s conviction has prompted New York lawmakers to introduce bills that would allow prosecutors to bring up a defendant’s past in sex crimes cases.`\
-https://nytimes.com/2024/05/09/nyregion/weinstein-testimony-victims.html
 

@@ -1,3 +1,7 @@
+**American Aid Ship Heads to Gaza, but the System for Unloading It Still Isn’t in Place**\
+`A Pentagon spokesman said bad weather had made it impossible to install a new floating pier and causeway.`\
+https://nytimes.com/2024/05/09/world/middleeast/gaza-aid-us-ship.html
+
 **How to Create a Society That Prizes Decency**\
 `It starts with keeping our humanity and recognizing it in others.`\
 https://nytimes.com/2024/05/09/opinion/polarization-biden-america.html
