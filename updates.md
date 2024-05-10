@@ -1,4 +1,8 @@
 **Is It Better to Rent or Buy?**\
+`Our calculator takes the most important costs associated with buying or renting and compares the two options.`\
+https://nytimes.com/interactive/2024/upshot/buy-rent-calculator.html
+
+**Is It Better to Rent or Buy?**\
 `The choice between buying a home and renting one is among the biggest financial decisions that many adults make.`\
 https://nytimes.com/interactive/2024/upshot/buy-rent-calculator.html
 

@@ -1,5 +1,5 @@
 **Is It Better to Rent or Buy?**\
-`The choice between buying a home and renting one is among the biggest financial decisions that many adults make.`\
+`Our calculator takes the most important costs associated with buying or renting and compares the two options.`\
 https://nytimes.com/interactive/2024/upshot/buy-rent-calculator.html
 
 **Cease-fire talks hit snag, in part, on how many hostages would be released in a first phase, officials say.**\
