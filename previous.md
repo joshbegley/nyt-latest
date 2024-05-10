@@ -1,3 +1,7 @@
+**How Should an Amy Winehouse Movie Be?**\
+`Several depictions of the singer’s life have explored her tense relationship with fame. The new biopic “Back to Black” instead centers her romantic life.`\
+https://nytimes.com/2024/05/10/movies/back-to-black-amy-winehouse.html
+
 **On Andra Day’s ‘Cassandra (Cherith),’ a Soaring Voice Reaches Inward**\
 `After playing Billie Holiday onscreen, the singer brings jazz virtuosity to songs of her own.`\
 https://nytimes.com/2024/05/10/arts/music/andra-day-cassandra-cherith-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/05/10/arts/weekend-editors-picks-kingdom-of
 **I’m Middle-Aged, and I Talk to Myself All Day**\
 `There, I said it.`\
 https://nytimes.com/2024/05/10/well/talking-to-yourself-age.html
-
-**Stormy Daniels Will Not Be Shamed**\
-`Her pornography career cannot be equated to making up a story.`\
-https://nytimes.com/live/2024/05/07/opinion/thepoint/stormy-daniels-trump-trial
 
