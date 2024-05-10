@@ -1,3 +1,7 @@
+**Friday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/05/10/briefing/israel-us-relations-ukraine.html
+
 **Jacob Zuma, Once Leader of the A.N.C., Becomes Its Political Rival**\
 `Spurred by his anger at the African National Congress, Mr. Zuma formed his own political party and is gathering support among voters aggrieved by the failures of South Africa’s governing party.`\
 https://nytimes.com/2024/05/10/world/africa/south-africa-zuma-election.html

@@ -1,3 +1,7 @@
+**Friday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/05/10/briefing/israel-us-relations-ukraine.html
+
 **Jacob Zuma, Once Leader of the A.N.C., Becomes Its Political Rival**\
 `Spurred by his anger at the African National Congress, Mr. Zuma formed his own political party and is gathering support among voters aggrieved by the failures of South Africa’s governing party.`\
 https://nytimes.com/2024/05/10/world/africa/south-africa-zuma-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/style/sabrina-marzaro-jorge-ruivinho-wedding.html
 **Hillary Clinton Accuses Protesters of Ignorance of Mideast History**\
 `In an interview on the MSNBC show “Morning Joe,” on Thursday, Ms. Clinton criticized student protesters, saying many were ignorant of the history of the Middle East, the United States and the world.`\
 https://nytimes.com/2024/05/09/us/hillary-clinton-morning-joe-israel-history.html
-
-**Trump’s Lawyers Clash With Stormy Daniels and Are Rebuffed by Judge**\
-`Stormy Daniels battled Donald J. Trump’s lawyers, and the judge issued a blistering ruling from the bench denying a request for a mistrial. Jonah Bromwich, a criminal justice reporter at The New York Times, gives his takeaways.`\
-https://nytimes.com/video/nyregion/100000009456843/trumps-lawyers-clash-with-stormy-daniels-and-are-rebuffed-by-judge.html
 
