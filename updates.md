@@ -1,3 +1,19 @@
+**Aid for Gazans Has Come to a Near-Total Halt**\
+`Also, A.I.Phones and Eurovision. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/05/10/briefing/gaza-aid-artificial-intelligence-apple-iphone.html
+
+**Target Scales Back Pride Month Displays After Backlash Last Year**\
+`It said Pride merchandise would be available on its website and in select stores next month. In 2023, the retailer featured the goods widely.`\
+https://nytimes.com/2024/05/10/business/target-pride-month-merchandise.html
+
+**U.C.L.A. Academic Senate Will Consider Rebuking Chancellor**\
+`Many members believe that the chancellor, Gene Block, failed to protect students and was too quick to have police arrest students and clear an encampment.`\
+https://nytimes.com/2024/05/10/us/ucla-academic-senate-gene-block.html
+
+**What’s Your Favorite Soundtrack? We Want to Know.**\
+`We’re asking readers to share the movie-related albums that they return to again and again.`\
+https://nytimes.com/2024/05/10/movies/favorite-soundtrack.html
+
 **Raunch and Business Records: 5 Takeaways From Trump’s Criminal Trial**\
 `The fourth week of the trial interspersed intense and emotional testimony with talk of documents and chains of custody.`\
 https://nytimes.com/2024/05/10/nyregion/trump-hush-money-case-merchan-stormy-takeaways.html
