@@ -1,3 +1,7 @@
+**What Are a Museum’s Obligations When It Shows a ‘Problematic’ Artist?**\
+`The magazine’s Ethicist columnist on the responsibility an institution assumes once it exhibits an artist’s work.`\
+https://nytimes.com/2024/05/10/magazine/museum-problematic-artist-ethics.html
+
 **No, Donald Trump, Biden’s Economy Is Not Like Weimar Germany’s**\
 `His account of rising prices is far off base. His plans could make them worse.`\
 https://nytimes.com/2024/05/10/opinion/trump-inflation-biden-economy.html

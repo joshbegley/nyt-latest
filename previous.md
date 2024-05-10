@@ -1,3 +1,7 @@
+**What Are a Museum’s Obligations When It Shows a ‘Problematic’ Artist?**\
+`The magazine’s Ethicist columnist on the responsibility an institution assumes once it exhibits an artist’s work.`\
+https://nytimes.com/2024/05/10/magazine/museum-problematic-artist-ethics.html
+
 **No, Donald Trump, Biden’s Economy Is Not Like Weimar Germany’s**\
 `His account of rising prices is far off base. His plans could make them worse.`\
 https://nytimes.com/2024/05/10/opinion/trump-inflation-biden-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/business/apple-siri-ai-chatgpt.html
 **The Power and Beauty of African Guitar Greats**\
 `Hear songs by Mdou Moctar, Bombino, Orchestra Baobab and more.`\
 https://nytimes.com/2024/05/10/arts/music/amplifier-newsletter-african-guitar-greats.html
-
-**Trump’s White House Contact List Reflects His Celebrity-Laced Orbit**\
-`While incomplete, the list included the media tycoon Rupert Murdoch and other Fox News figures. It also had Michael D. Cohen, the fixer who played a key role in the events leading to the first criminal trial of an American president.`\
-https://nytimes.com/2024/05/10/nyregion/trump-celebrity-gatekeeper-list.html
 
