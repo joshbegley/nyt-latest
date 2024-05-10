@@ -1,3 +1,11 @@
+**A Severe Solar Storm Is Hitting the Earth, and Auroras May Be Visible**\
+`Officials warned of potential blackouts or interference with navigation and communication systems this weekend, as well as northern lights as far south as Northern California or Alabama.`\
+https://nytimes.com/2024/05/10/science/solar-storm-earth.html
+
+**Here’s why Rafah and Gaza’s southern border are strategically important in the war.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/rafah-gaza-border
+
 **The Best White Sneakers**\
 `White sneakers pair with almost everything in your wardrobe. We found the best ones.`\
 https://nytimes.com/interactive/2024/05/10/smarter-living/wirecutter/best-white-sneakers.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/10/arts/brian-wilson-conservatorship-beach-boys.html
 **Actions by Israel and Egypt Squeeze Gaza Aid Routes**\
 `Israel’s military has seized and closed the Rafah crossing as it fights in the area, and officials say that Egypt is not allowing aid trucks to go to the other main crossing at Kerem Shalom.`\
 https://nytimes.com/2024/05/10/world/middleeast/gaza-aid-rafah-israel-egypt.html
-
-**UNICEF Official Warns U.N. About Dwindling Resources in Rafah**\
-`Humanitarian workers are raising concerns over the closure of the Rafah and Kerem Shalom crossings, halting vital aid as over 100,000 people have fled the area to escape the shelling by the Israel’s military.`\
-https://nytimes.com/video/world/middleeast/100000009462289/unicef-rafah-supplies.html
-
-**A Global Lesson from Britain’s Crumbling Conservative Party**\
-`Sometimes, even as the far right rises, the center holds.`\
-https://nytimes.com/2024/05/10/world/europe/a-global-lesson-from-britains-crumbling-conservative-party.html
 
