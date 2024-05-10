@@ -1,3 +1,15 @@
+**Who Are the Favorites to Win Eurovision?**\
+`Some of the buzziest acts taking part in Saturday’s final hail from Croatia, Israel and the Netherlands.`\
+https://nytimes.com/2024/05/10/arts/music/eurovision-odds-favorites.html
+
+**Steve McQueen, on a Different Wavelength**\
+`The artist-turned-film director finds new depths in “Bass,” an immersive environment of light and sound in Dia Beacon keyed to Black history and “where we can go from here.”`\
+https://nytimes.com/2024/05/10/arts/design/steve-mcqueen-filmmaker-art-dia-beacon-bass.html
+
+**With Conflicts at Home, Eric Adams Arrives in Rome to Discuss Peace**\
+`New York City’s mayor will attend a conference on peace during a three-day trip to Rome and the Vatican, where he is expected to meet Pope Francis.`\
+https://nytimes.com/2024/05/10/nyregion/eric-adams-rome.html
+
 **U.S. to Announce New Tariffs on Chinese Electric Vehicles**\
 `The administration could raise tariffs on electric vehicles from China to 100 percent in an attempt to protect American auto manufacturers.`\
 https://nytimes.com/2024/05/10/us/politics/us-biden-china-tariffs-electric-vehicles.html
