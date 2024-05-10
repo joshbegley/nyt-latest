@@ -1,3 +1,11 @@
+**White House defends voting ‘no’ on U.N. resolution supporting Palestinian statehood.**\
+`By Erica L. Green`\
+https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/white-house-defends-voting-no-on-un-resolution-supporting-palestinian-statehood
+
+**High civilian casualties raised questions about whether Israel was doing what it could to limit harm.**\
+`A State Department report says U.S. weapons might have been used in violating humanitarian law, but does not make a specific enough finding to trigger punitive action against Israel.`\
+https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/biden-israel-us-weapons-gaza
+
 **Campus Police Chief Is Put on Leave After Arizona State Arrests**\
 `The decision came after complaints were filed related to the actions of the chief in late April, when the campus police arrested dozens of people.`\
 https://nytimes.com/2024/05/10/us/police-chief-arizona-state.html
