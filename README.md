@@ -1,3 +1,11 @@
+**Green Party candidates for Senate in Arizona draw suspicion of being plants.**\
+`Party leaders accused Mike Norton and Arturo Hernandez of entering the primary to help Democrat Ruben Gallego and Republican Kari Lake tip the nationally-watched contest.`\
+https://nytimes.com/live/2024/05/10/us/biden-trump-election/green-party-arizona-senate
+
+**Barron Trump Will Not Be a Delegate at the G.O.P. Convention After All**\
+`Two days after the Florida Republican Party selected Barron, 18, to be an at-large delegate, Melania Trump’s office said he “regretfully declines to participate due to prior commitments.”`\
+https://nytimes.com/2024/05/10/us/politics/barron-trump-gop-convention.html
+
 **Kuwaiti Emir Suspends Parliament, Citing Political Tumult**\
 `The country’s ruler also suspended several constitutional articles, raising concerns that he could diminish political freedoms in one of the Middle East’s few semi-democratic states.`\
 https://nytimes.com/2024/05/10/world/middleeast/kuwait-emir-parliament-suspension.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/10/world/europe/xi-europe-diplomacy.html
 **Is It Better to Rent or Buy?**\
 `Our calculator takes the most important costs associated with buying or renting and compares the two options.`\
 https://nytimes.com/interactive/2024/upshot/buy-rent-calculator.html
-
-**Cease-fire talks hit snag, in part, on how many hostages would be released in a first phase, officials say.**\
-`By Adam Rasgon and Julian E. Barnes`\
-https://nytimes.com/2024/05/10/world/middleeast/ceasefire-hostages-israel-hamas.html
-
-**White House Defends Voting ‘No’ on U.N. Resolution Supporting Palestinian Statehood**\
-`The United States among a handful of holdouts on the vote, which was widely seen as a rebuke of the Americans and Israel.`\
-https://nytimes.com/2024/05/10/world/middleeast/united-nations-us-palestinian-membership.html
 
