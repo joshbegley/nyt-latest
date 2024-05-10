@@ -1,3 +1,7 @@
+**What to Watch This Weekend: A Tense Restaurant Drama**\
+`Looking for some kitchen adrenaline between seasons of “The Bear”? Try the British series “Boiling Point” on Netflix.`\
+https://nytimes.com/2024/05/10/arts/television/boiling-point-netflix.html
+
 **How a Village Comes to Life in ‘Kingdom of the Planet of the Apes’**\
 `The director Wes Ball narrates a sequence from his film.`\
 https://nytimes.com/2024/05/10/movies/kingdom-of-the-planet-of-the-apes-clip.html
