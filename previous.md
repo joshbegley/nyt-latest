@@ -1,3 +1,7 @@
+**UNICEF Official Warns U.N. About Dwindling Resources in Rafah**\
+`Humanitarian workers are raising concerns over the closure of the Rafah and Kerem Shalom crossings, halting vital aid as over 100,000 people have fled the area to escape the shelling by the Israel’s military.`\
+https://nytimes.com/video/world/middleeast/100000009462289/unicef-rafah-supplies.html
+
 **A Global Lesson from Britain’s Crumbling Conservative Party**\
 `Sometimes, even as the far right rises, the center holds.`\
 https://nytimes.com/2024/05/10/world/europe/a-global-lesson-from-britains-crumbling-conservative-party.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/arts/music/playlist-post-malone-morgan-wallen-wil
 **Federal Appeals Court Upholds Bannon’s Contempt Conviction**\
 `Stephen Bannon, a longtime ally of Donald Trump, had been found guilty of defying a subpoena from the House Jan. 6 committee. He now faces a four-month prison sentence.`\
 https://nytimes.com/2024/05/10/us/politics/stephen-bannon-contempt-upheld.html
-
-**People leaving Rafah describe yet another fearful flight from Israeli assaults.**\
-`By Raja Abdulrahim and Bilal Shbair`\
-https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/people-leaving-rafah-describe-yet-another-fearful-flight-from-israeli-assaults
 

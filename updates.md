@@ -1,3 +1,7 @@
+**UNICEF Official Warns U.N. About Dwindling Resources in Rafah**\
+`Humanitarian workers are raising concerns over the closure of the Rafah and Kerem Shalom crossings, halting vital aid as over 100,000 people have fled the area to escape the shelling by the Israel’s military.`\
+https://nytimes.com/video/world/middleeast/100000009462289/unicef-rafah-supplies.html
+
 **A Global Lesson from Britain’s Crumbling Conservative Party**\
 `Sometimes, even as the far right rises, the center holds.`\
 https://nytimes.com/2024/05/10/world/europe/a-global-lesson-from-britains-crumbling-conservative-party.html
