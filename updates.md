@@ -1,3 +1,15 @@
+**Apple Will Revamp Siri to Catch Up to Its Chatbot Competitors**\
+`Apple plans to announce that it will bring generative A.I. to iPhones following the company’s most significant reorganization in a decade.`\
+https://nytimes.com/2024/05/10/business/apple-siri-chatbot-competitors.html
+
+**The Power and Beauty of African Guitar Greats**\
+`Hear songs by Mdou Moctar, Bombino, Orchestra Baobab and more.`\
+https://nytimes.com/2024/05/10/arts/music/amplifier-newsletter-african-guitar-greats.html
+
+**Contact List Held by Trump’s White House Gatekeeper Reflects His Celebrity-Laced Orbit**\
+`While incomplete, the list included the media tycoon Rupert Murdoch, along with figures from Fox News. It also had Michael D. Cohen, the fixer who played a key role in the events leading to the first criminal trial of an American president.`\
+https://nytimes.com/2024/05/10/nyregion/trump-celebrity-gatekeeper-list.html
+
 **U.S. Military’s Plea to Israel: Do More to Protect Gazans in War Zone**\
 `The Biden administration says it is still waiting to see a detailed plan for how Israeli forces plan to evacuate civilians from the city of Rafah.`\
 https://nytimes.com/2024/05/10/us/politics/us-military-israel-gaza.html
