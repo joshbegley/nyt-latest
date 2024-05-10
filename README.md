@@ -1,3 +1,7 @@
+**Jim Simons, Math Genius Who Conquered Wall Street, Dies at 86**\
+`Using advanced computers, he went from M.I.T. professor to multibillionaire. His Medallion fund had 66 percent average annual returns for decades.`\
+https://nytimes.com/2024/05/10/business/dealbook/jim-simons-dead.html
+
 **Is There a Post-Religious Right?**\
 `A taxonomy of post-religious conservatisms.`\
 https://nytimes.com/2024/05/10/opinion/religion-republican-conservatives.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/us/politics/us-military-israel-gaza.html
 **In This ‘Lord of the Rings’ Adaptation, the Hobbits Yodel**\
 `A quirky and joyful play based on J.R.R. Tolkien’s books joined weightier works at this year’s Theatertreffen drama festival.`\
 https://nytimes.com/2024/05/10/theater/theatertreffen-berlin.html
-
-**Brian Wilson, Beach Boys Visionary, Is Placed Under Conservatorship**\
-`Mr. Wilson, who has a neurocognitive disorder, had been cared for by his wife until she died in January.`\
-https://nytimes.com/2024/05/10/arts/brian-wilson-conservatorship-beach-boys.html
 
