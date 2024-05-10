@@ -1,3 +1,7 @@
+**What We Know About Where Aid Can Enter Gaza**\
+`A look at the humanitarian assistance getting into the Gaza Strip by land, air and sea.`\
+https://nytimes.com/2024/05/10/world/middleeast/gaza-aid-border-crossing.html
+
 **U.S.C. Valedictorian Graduates Without a Speech, but With Cheers**\
 `Asna Tabassum, whose speech was canceled by University of Southern California administrators, received plenty of support at an engineering school ceremony.`\
 https://nytimes.com/2024/05/10/us/usc-valedictorian-speech-graduation.html
