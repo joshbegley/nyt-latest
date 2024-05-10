@@ -1,3 +1,7 @@
+**As Israel and Egypt Spar, Aid to Gaza Dries Up**\
+`With no resumption of deliveries in sight, officials fear the territory’s threadbare humanitarian relief effort could collapse altogether.`\
+https://nytimes.com/2024/05/10/world/middleeast/israel-egypt-gaza-aid.html
+
 **It’s Mother’s Day, and I’ll Sleep, Dance, Camp (or Cry) if I Want To**\
 `Some women prefer to spend Mother’s Day without the very people who made them one.`\
 https://nytimes.com/2024/05/10/style/mothers-day-what-to-do.html

@@ -1,3 +1,7 @@
+**As Israel and Egypt Spar, Aid to Gaza Dries Up**\
+`With no resumption of deliveries in sight, officials fear the territory’s threadbare humanitarian relief effort could collapse altogether.`\
+https://nytimes.com/2024/05/10/world/middleeast/israel-egypt-gaza-aid.html
+
 **It’s Mother’s Day, and I’ll Sleep, Dance, Camp (or Cry) if I Want To**\
 `Some women prefer to spend Mother’s Day without the very people who made them one.`\
 https://nytimes.com/2024/05/10/style/mothers-day-what-to-do.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/05/10/arts/television/best-of-late-night-st
 **What Are a Museum’s Obligations When It Shows a ‘Problematic’ Artist?**\
 `The magazine’s Ethicist columnist on the responsibility an institution assumes once it exhibits an artist’s work.`\
 https://nytimes.com/2024/05/10/magazine/museum-problematic-artist-ethics.html
-
-**No, Donald Trump, Biden’s Economy Is Not Like Weimar Germany’s**\
-`His account of rising prices is far off base. His plans could make them worse.`\
-https://nytimes.com/2024/05/10/opinion/trump-inflation-biden-economy.html
 
