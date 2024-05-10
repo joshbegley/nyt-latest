@@ -1,4 +1,4 @@
-**Israel May Have Broken International Law in Gaza, State Dept. Says**\
+**The State Department found no specific cases of Israel misusing U.S. weapons that would justify withholding aid.**\
 `A State Department report says U.S. weapons might have been used in violating humanitarian law, but does not make a specific enough finding to trigger punitive action against Israel.`\
 https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/biden-israel-us-weapons-gaza
 
