@@ -1,3 +1,15 @@
+**Raunch and Business Records: 5 Takeaways From Trump’s Criminal Trial**\
+`The fourth week of the trial interspersed intense and emotional testimony with talk of documents and chains of custody.`\
+https://nytimes.com/2024/05/10/nyregion/trump-hush-money-case-merchan-stormy-takeaways.html
+
+**Too Racy for Times Square? An Ad for Lactation Cookies Is Replaced.**\
+`Clear Channel, which manages many of the advertisements in the area, said a provocative billboard for a Molly Baz recipe was “flagged for review.”`\
+https://nytimes.com/2024/05/10/style/lactation-cookies-billboard.html
+
+**The State Department found no specific cases of Israel misusing U.S. weapons that would justify withholding aid.**\
+`A State Department report says U.S. weapons might have been used in violating humanitarian law, but does not make a specific enough finding to trigger punitive action against Israel.`\
+https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/biden-israel-us-weapons-gaza
+
 **Israel May Have Broken International Law in Gaza, State Dept. Says**\
 `A State Department report says U.S. weapons might have been used in violating humanitarian law, but does not make a specific enough finding to trigger punitive action against Israel.`\
 https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/biden-israel-us-weapons-gaza
