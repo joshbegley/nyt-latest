@@ -1,3 +1,11 @@
+**Campus Police Chief Is Put on Leave After Arizona State Arrests**\
+`The decision came after complaints were filed related to the actions of the chief in late April, when the campus police arrested dozens of people.`\
+https://nytimes.com/2024/05/10/us/police-chief-arizona-state.html
+
+**The Ugly Spirit of the Confederacy Remains Very Much Alive**\
+`In Virginia, a school board tries to pretend Confederate generals weren’t fighting for racism.`\
+https://nytimes.com/live/2024/05/07/opinion/thepoint/virginia-schools-confederate-generals
+
 **Aid for Gazans Has Come to a Near-Total Halt**\
 `Also, A.I.Phones and Eurovision. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/05/10/briefing/gaza-aid-artificial-intelligence-apple-iphone.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/biden-isra
 **‘Who Is That Color?’: A Makeup Brand Is Said to Miss the Mark by Several Shades**\
 `Beauty influencers have criticized Youthforia, saying the brand didn’t adequately test the darkest shade of its Date Night Skin Tint Serum Foundation.`\
 https://nytimes.com/2024/05/10/style/youthforia-shade-600-foundation-reviews.html
-
-**‘She Is Such an Athlete’: Astoria the Wild Turkey Is a Manhattan Celebrity**\
-`The wild turkey wandered into Midtown Manhattan this week, so far evading attempts to capture her. You may find her at Saks Fifth Avenue, at high-end Italian restaurants or roosting in nearby trees.`\
-https://nytimes.com/2024/05/10/nyregion/wild-turkey-manhattan.html
-
-**David Shapiro, Who Gained Fame in Poetry and Protest, Dies at 77**\
-`A renowned member of the New York School of poets, he also found accidental notoriety when he was photographed during the 1968 uprising at Columbia University.`\
-https://nytimes.com/2024/05/10/books/david-shapiro-dead.html
 

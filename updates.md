@@ -1,3 +1,11 @@
+**Campus Police Chief Is Put on Leave After Arizona State Arrests**\
+`The decision came after complaints were filed related to the actions of the chief in late April, when the campus police arrested dozens of people.`\
+https://nytimes.com/2024/05/10/us/police-chief-arizona-state.html
+
+**The Ugly Spirit of the Confederacy Remains Very Much Alive**\
+`In Virginia, a school board tries to pretend Confederate generals weren’t fighting for racism.`\
+https://nytimes.com/live/2024/05/07/opinion/thepoint/virginia-schools-confederate-generals
+
 **Aid for Gazans Has Come to a Near-Total Halt**\
 `Also, A.I.Phones and Eurovision. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/05/10/briefing/gaza-aid-artificial-intelligence-apple-iphone.html
