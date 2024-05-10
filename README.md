@@ -1,3 +1,7 @@
+**The Best of Late Night This Week**\
+`The hosts couldn’t get enough of former President Donald Trump being held in contempt (again) in his criminal hush-money trial, or of Stormy Daniels’s testimony. They also talked about Robert F. Kennedy Jr.’s brain worm. Here’s what they had to say.`\
+https://nytimes.com/interactive/2024/05/10/arts/television/best-of-late-night-stormy-daniels.html
+
 **What Are a Museum’s Obligations When It Shows a ‘Problematic’ Artist?**\
 `The magazine’s Ethicist columnist on the responsibility an institution assumes once it exhibits an artist’s work.`\
 https://nytimes.com/2024/05/10/magazine/museum-problematic-artist-ethics.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/05/10/smarter-living/wirecutter/best-white-
 **Apple Will Revamp Siri to Catch Up to Its Chatbot Competitors**\
 `Apple plans to announce that it will bring generative A.I. to iPhones after the company’s most significant reorganization in a decade.`\
 https://nytimes.com/2024/05/10/business/apple-siri-ai-chatgpt.html
-
-**The Power and Beauty of African Guitar Greats**\
-`Hear songs by Mdou Moctar, Bombino, Orchestra Baobab and more.`\
-https://nytimes.com/2024/05/10/arts/music/amplifier-newsletter-african-guitar-greats.html
 
