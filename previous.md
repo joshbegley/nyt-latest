@@ -1,3 +1,15 @@
+**U.S. to Announce New Tariffs on Chinese Electric Vehicles**\
+`The administration could raise tariffs on electric vehicles from China to 100 percent in an attempt to protect American auto manufacturers.`\
+https://nytimes.com/2024/05/10/us/politics/us-biden-china-tariffs.html
+
+**Post Malone Goes Country With Morgan Wallen, and 8 More New Songs**\
+`Hear tracks by Raveena, Willow, John Cale and others.`\
+https://nytimes.com/2024/05/10/arts/music/playlist-post-malone-morgan-wallen-willow.html
+
+**Federal Appeals Court Upholds Bannon’s Contempt Conviction**\
+`Stephen Bannon, a longtime ally of Donald Trump, had been found guilty of defying a subpoena from the House Jan. 6 committee. He now faces a four-month prison sentence.`\
+https://nytimes.com/2024/05/10/us/politics/stephen-bannon-contempt-upheld.html
+
 **People leaving Rafah describe yet another fearful flight from Israeli assaults.**\
 `By Raja Abdulrahim and Bilal Shbair`\
 https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/people-leaving-rafah-describe-yet-another-fearful-flight-from-israeli-assaults
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/10/books/review/james-percival-everett-book-club.htm
 **Police Clear Protesters From University of Arizona**\
 `The move came hours before the school’s graduation ceremony was scheduled to be held.`\
 https://nytimes.com/2024/05/10/us/police-clear-protesters-from-university-of-arizona.html
-
-**The U.N. General Assembly adopts a resolution in support of Palestinian statehood.**\
-`The vote comes after the United States vetoed a Security Council measure granting full U.N. membership last month to a Palestinian state.`\
-https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/un-resolution-palestinian-vote
-
-**A Rise in Anti-China Sentiment in America**\
-`Readers discuss a troubling trend. Also: Rights at risk; the takeover at Columbia; Beethoven’s legacy; PEN America; Donald Trump’s empty oath.`\
-https://nytimes.com/2024/05/10/opinion/anti-china-sentiment.html
-
-**Review: An Opera Saw Red-Pill Culture Coming. Now, It’s Back.**\
-`Robert Ashley’s 1994 opera “Foreign Experiences,” a portrait of a paranoid mind in free fall, is part of a wave of revivals following his death.`\
-https://nytimes.com/2024/05/10/arts/music/robert-ashley-foreign-experiences-roulette-review.html
 
