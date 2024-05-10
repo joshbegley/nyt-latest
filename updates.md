@@ -1,3 +1,7 @@
+**Trump’s Lawyers Clash With Stormy Daniels and Are Rebuffed by Judge**\
+`Stormy Daniels battled Donald J. Trump’s lawyers, and the judge issued a blistering ruling from the bench denying a request for a mistrial. Jonah Bromwich, a criminal justice reporter at The New York Times, gives his takeaways.`\
+https://nytimes.com/video/nyregion/100000009456843/trumps-lawyers-clash-with-stormy-daniels-and-are-rebuffed-by-judge.html
+
 **One Who Can’t Handle Their Moonshine Well**\
 `Jesse Cohn makes his New York Times Crossword debut, crossing that accomplishment off his bucket list.`\
 https://nytimes.com/2024/05/09/crosswords/daily-puzzle-2024-05-10.html
