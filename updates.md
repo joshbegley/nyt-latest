@@ -1,3 +1,11 @@
+**More than 100,000 flee Rafah, the U.N. says, as Israeli bombardment intensifies.**\
+`Three days after an evacuation`\
+https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/more-than-100000-flee-rafah-the-un-says-as-israeli-bombardment-intensifies
+
+**Biden Is Not the First U.S. President to Cut Off Weapons to Israel**\
+`Ronald Reagan also used the power of American arms to influence Israeli war policy. The comparison underscores how much the politics of Israel have changed in the United States since the 1980s.`\
+https://nytimes.com/2024/05/10/us/politics/biden-reagan-israel.html
+
 **Russia Mounting New Border Assaults in North, Ukraine Says**\
 `Armored columns tried to punch through at several points, the military said, raising pressure on already stretched Ukrainian forces.`\
 https://nytimes.com/2024/05/10/world/europe/russia-border-assaults-north-ukraine.html
