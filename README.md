@@ -1,3 +1,7 @@
+**After Student Encampment Ends, New School Professors Set Up Their Own**\
+`At The New School in Manhattan, a university with a long history of left-leaning politics, the faculty set up an pro-Palestinian encampment in a building lobby.`\
+https://nytimes.com/2024/05/10/nyregion/new-school-faculty-protest-encampment.html
+
 **Biden Looks to Raise Tax Revenue When Trump Cuts Expire Next Year**\
 `N.E.C. Director Lael Brainard said that lawmakers should raise taxes on companies and the wealthiest while extending the 2017 cuts for those making less than $400,000.`\
 https://nytimes.com/2024/05/10/us/politics/biden-looks-to-raise-tax-revenue-when-trump-cuts-expire-next-year.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/science/archaeology-climate-fire.html
 **6 New Movies Our Critics Are Talking About This Week**\
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
 https://nytimes.com/2024/05/10/movies/6-new-movies-our-critics-are-talking-about-this-week.html
-
-**More than 100,000 have fled Rafah, the U.N. says, as Israeli bombardment intensifies.**\
-`Three days after an evacuation`\
-https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/more-than-100000-flee-rafah-the-un-says-as-israeli-bombardment-intensifies
 
