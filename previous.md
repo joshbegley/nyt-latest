@@ -1,40 +1,40 @@
-**U.S.C. Celebrates in a Brief Moment of Joy, With No Mention of Campus Tumult**\
-`The university held a hastily assembled party for its graduates instead of its usual commencement ceremony.`\
-https://nytimes.com/2024/05/10/us/usc-graduation-campus-protests.html
+**10mideast-crisis**\
+`White House Aide Warns Israel Against ‘Smashing Into Rafah’`\
+https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah
 
-**Britain Shakes Off Recession as Economy Grows Faster Than Expected**\
-`Gross domestic product increased 0.6 percent in the first quarter, after shrinking the two previous quarters.`\
-https://nytimes.com/2024/05/10/business/britain-economy-growth-recession.html
+**Former White House Aide Returns to Stand in Trump’s Criminal Trial**\
+`The aide, Madeleine Westerhout, testified about a key Oval Office meeting between Donald J. Trump and Michael D. Cohen, his former fixer.`\
+https://nytimes.com/2024/05/10/nyregion/trump-trial-westerhout-testimony.html
 
-**Jimmy Kimmel Recaps Stormy Daniels’s Testimony in Court**\
-`“Team Trump spent much of the day trying to paint Daniels as a sleazy, money-grubbing liar, which, if that is true, you can see why they hit it off,” Kimmel said.`\
-https://nytimes.com/2024/05/10/arts/television/jimmy-kimmel-stormy-daniels-trump.html
+**Tense Campuses and Police Barricades Mark New York’s Commencement Season**\
+`The first graduation celebrations will begin on Friday as the city’s colleges and universities reel from conflict over pro-Palestinian demonstrations and hundreds of student arrests.`\
+https://nytimes.com/2024/05/10/nyregion/nyc-college-commencement-graduation.html
 
-**Word of the Day: reconnoiter**\
-`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/05/10/learning/word-of-the-day-reconnoiter.html
+**A Reporter With Expertise in the Uncertainty of Nutrition**\
+`With a Ph.D. in nutritional biology, Alice Callahan bridges the gap between a science and the readers who just want to be told how to eat.`\
+https://nytimes.com/2024/05/10/insider/alice-callahan-nutrition.html
 
-**Dennis Thompson, Drummer and Last Remaining Member of MC5, Dies at 75**\
-`The musician brought his hard-hitting style to the band, which helped lay the foundation of American punk rock and is set to be inducted into the Rock & Roll Hall of Fame.`\
-https://nytimes.com/2024/05/10/arts/music/dennis-thompson-dead.html
+**No Encampment, No Tents: Where Princeton’s Protest Found Its Gravity**\
+`After a sit-in and the occupation of a campus building, about a dozen demonstrators have turned to a hunger strike.`\
+https://nytimes.com/2024/05/10/nyregion/princeton-hunger-strike.html
 
-**Friday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2024/05/10/briefing/israel-us-relations-ukraine.html
+**Pet Alligator**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2024/05/10/learning/pet-alligator.html
 
-**Jacob Zuma, Once Leader of the A.N.C., Becomes Its Political Rival**\
-`Spurred by his anger at the African National Congress, Mr. Zuma formed his own political party and is gathering support among voters aggrieved by the failures of South Africa’s governing party.`\
-https://nytimes.com/2024/05/10/world/africa/south-africa-zuma-election.html
+**Today’s Wordle Review No. 1,056**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/10/crosswords/wordle-review.html
 
-**Corrections: May 10, 2024**\
-`Corrections that appeared in print on Friday, May 10, 2024.`\
-https://nytimes.com/2024/05/10/pageoneplus/corrections-may-10-2024.html
+**Citing Safety, New York Moves Mentally Ill People Out of the Subway**\
+`Medical workers and police officers are removing people suffering from psychiatric distress. The most troubled are forced to the hospital.`\
+https://nytimes.com/2024/05/10/nyregion/citing-safety-new-york-moves-mentally-ill-people-out-of-the-subway.html
 
-**Quotation of the Day: Beneath a Tiny Pacific Nation, a Fraught Bed of Wealth**\
-`Quotation of the Day for Friday, May 10, 2024.`\
-https://nytimes.com/2024/05/10/pageoneplus/quotation-of-the-day-beneath-a-tiny-pacific-nation-a-fraught-bed-of-wealth.html
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/05/10/crosswords/spelling-bee-forum.html
 
-**The Plot of a Rom-Com, In Real Life**\
-`Rober Lawrence and Shawna Rodrigues, high school crushes, waited until the third act to make their love story official.`\
-https://nytimes.com/2024/05/10/style/rober-lawrence-shawna-rodrigues-wedding.html
+**The Connections Companion No. 334**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/10/crosswords/connections-companion.html
 
