@@ -1,3 +1,7 @@
+**The Debate Over Rafah**\
+`A look at the conflicting views of President Biden and Benjamin Netanyahu.`\
+https://nytimes.com/2024/05/10/briefing/rafah-israel-hamas-war-netanyahu-biden.html
+
 **The Latest in Rafah, and a Key Trump Trial Witness Returns to the Stand**\
 `Plus, more arrests on campus.`\
 https://nytimes.com/2024/05/10/podcasts/rafah-israel-trump-trial-madeleine-westerhout.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/movies/yance-ford-power-netflix.html
 **Bird Flu Is Our Fault**\
 `Millions of birds have died because of bird flu. Human activity has helped make the virus more deadly.`\
 https://nytimes.com/2024/05/10/opinion/bird-flu-animal-deaths-h5n1.html
-
-**Meet Kevin’s A.I. Friends**\
-`They gave him notes on his outfits and reassurance before a big talk, and they shared made-up gossip about each other.`\
-https://nytimes.com/2024/05/10/podcasts/hard-fork-ai-friends.html
 
