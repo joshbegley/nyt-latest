@@ -1,3 +1,7 @@
+**Ted Cruz, Better Known For Derailing Bills, Tries on a New Hat: Legislator**\
+`The Texas Republican, who made a name for himself trying to shut down the government over the Affordable Care Act, took on an unfamiliar role as a critical player in pushing through a major aviation bill.`\
+https://nytimes.com/2024/05/10/us/politics/ted-cruz-legislation.html
+
 **Several Witnesses Have Brought Up Keith Schiller, Trump’s Bodyguard. Where Is He?**\
 `Stormy Daniels said that the bodyguard, Keith Schiller, got her phone number and invited her to dinner with Donald J. Trump. He has not testified in Mr. Trump’s criminal trial.`\
 https://nytimes.com/2024/05/10/nyregion/keith-schiller-trump-trial.html
