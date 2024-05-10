@@ -1,3 +1,7 @@
+**Cannabis Rollout Hampered by Inexperienced Leadership, N.Y. Report Finds**\
+`A New York State review of problems in the Office of Cannabis Management found that 90 percent of applicants for marijuana businesses failed to get licenses.`\
+https://nytimes.com/2024/05/10/nyregion/cannabis-agency-ny-report.html
+
 **Why Companies Are Nervous About the Consumer**\
 `On earnings calls, dozens of corporate executives have cited a slowdown in spending to explain why sales are slipping.`\
 https://nytimes.com/2024/05/10/business/dealbook/companies-nervous-consumer-profit.html
