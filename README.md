@@ -1,3 +1,7 @@
+**California Will Add a Fixed Charge to Electric Bills and Reduce Rates**\
+`Officials said the decision would lower bills and encourage people to use cars and appliances that did not use fossil fuels, but some experts said it would discourage energy efficiency.`\
+https://nytimes.com/2024/05/10/business/energy-environment/california-electric-bills-fixed-charge.html
+
 **Film Academy Looks Overseas for Donors**\
 `The Academy of Motion Picture Arts and Sciences has announced a global $500 million campaign to shore up its financial future.`\
 https://nytimes.com/2024/05/10/movies/academy-motion-pictures-overseas-donors.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/un-officia
 **Custodial Witnesses Provide Little Spectacle, but Affirm Basic Facts**\
 `Sharpies, staples, delivery services: The custodial witnesses have described the protocols that prosecutors say Donald J. Trump used to deceive.`\
 https://nytimes.com/2024/05/10/nyregion/custodial-witnesses-trump-trial.html
-
-**Satellite Images Reveal Where Russian Nukes Could Be Stored in Belarus**\
-`A New York Times analysis shows security upgrades unique to Russian nuclear storage facilities, at a Cold War-era munitions depot.`\
-https://nytimes.com/2024/05/10/world/europe/russia-nuclear-weapons-belarus.html
 
