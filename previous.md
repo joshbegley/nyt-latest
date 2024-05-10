@@ -28,7 +28,7 @@ https://nytimes.com/2024/05/10/nyregion/new-school-faculty-protest-encampment.ht
 
 **Biden Looks to Raise Tax Revenue When Trump Cuts Expire Next Year**\
 `Lael Brainard, the director of the National Economic Council, said lawmakers should raise taxes on companies and the wealthiest while extending the 2017 cuts for those making less than $400,000.`\
-https://nytimes.com/2024/05/10/us/politics/biden-looks-to-raise-tax-revenue-when-trump-cuts-expire-next-year.html
+https://nytimes.com/2024/05/10/us/politics/biden-trump-tax-cuts.html
 
 **There’s a New Covid Variant. What Will That Mean for Spring and Summer?**\
 `Experts are closely watching KP.2, now the leading variant.`\

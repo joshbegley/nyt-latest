@@ -1,3 +1,7 @@
+**Biden Looks to Raise Tax Revenue When Trump Cuts Expire Next Year**\
+`Lael Brainard, the director of the National Economic Council, said lawmakers should raise taxes on companies and the wealthiest while extending the 2017 cuts for those making less than $400,000.`\
+https://nytimes.com/2024/05/10/us/politics/biden-trump-tax-cuts.html
+
 **Review: An Opera Saw Red-Pill Culture Coming. Now, It’s Back.**\
 `Robert Ashley’s 1994 opera “Foreign Experiences,” a portrait of a paranoid mind in free fall, is part of a wave of revivals following his death.`\
 https://nytimes.com/2024/05/10/arts/music/robert-ashley-foreign-experiences-roulette-review.html
