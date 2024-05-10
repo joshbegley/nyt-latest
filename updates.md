@@ -1,3 +1,7 @@
+**A Severe Solar Storm Is Hitting Earth’s Atmosphere, and Auroras May Be Visible**\
+`Officials warned of potential blackouts or interference with navigation and communication systems this weekend, as well as northern lights as far south as Northern California or Alabama.`\
+https://nytimes.com/2024/05/10/science/solar-storm-earth.html
+
 **Giuliani Is Suspended by WABC, and His Radio Show Is Canceled**\
 `The radio station disciplined Rudolph W. Giuliani after he violated company policy by trying to discuss the legitimacy of the 2020 election on the air.`\
 https://nytimes.com/2024/05/10/nyregion/giuliani-radio-suspended.html

@@ -26,7 +26,7 @@ https://nytimes.com/2024/05/10/business/dealbook/jim-simons-dead.html
 `A taxonomy of post-religious conservatisms.`\
 https://nytimes.com/2024/05/10/opinion/religion-republican-conservatives.html
 
-**A Severe Solar Storm Is Hitting the Earth, and Auroras May Be Visible**\
+**A Severe Solar Storm Is Hitting Earth’s Atmosphere, and Auroras May Be Visible**\
 `Officials warned of potential blackouts or interference with navigation and communication systems this weekend, as well as northern lights as far south as Northern California or Alabama.`\
 https://nytimes.com/2024/05/10/science/solar-storm-earth.html
 
