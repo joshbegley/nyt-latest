@@ -1,3 +1,11 @@
+**The U.N. General Assembly adopts a resolution in support of Palestinian statehood.**\
+`The vote comes after the United States vetoed a Security Council measure granting full U.N. membership last month to a Palestinian state.`\
+https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/un-resolution-palestinian-vote
+
+**A Rise in Anti-China Sentiment in America**\
+`Readers discuss a troubling trend. Also: Rights at risk; the takeover at Columbia; Beethoven’s legacy; PEN America; Donald Trump’s empty oath.`\
+https://nytimes.com/2024/05/10/opinion/anti-china-sentiment.html
+
 **Biden Looks to Raise Tax Revenue When Trump Cuts Expire Next Year**\
 `Lael Brainard, the director of the National Economic Council, said lawmakers should raise taxes on companies and the wealthiest while extending the 2017 cuts for those making less than $400,000.`\
 https://nytimes.com/2024/05/10/us/politics/biden-trump-tax-cuts.html
