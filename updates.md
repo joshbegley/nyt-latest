@@ -1,3 +1,7 @@
+**Christie’s Website Is Brought Down by Hackers Days Before $840 Million Auction**\
+`The auctioneer’s website was taken offline on Thursday evening and remained down on Friday, days before its spring auctions were set to begin.`\
+https://nytimes.com/2024/05/10/arts/design/christies-cyberattack-website.html
+
 **Ted Cruz, Better Known For Derailing Bills, Tries on a New Hat: Legislator**\
 `The Texas Republican, who made a name for himself trying to shut down the government over the Affordable Care Act, took on an unfamiliar role as a critical player in pushing through a major aviation bill.`\
 https://nytimes.com/2024/05/10/us/politics/ted-cruz-legislation.html
