@@ -1,3 +1,7 @@
+**Another Time Trump Was Stuck in Court**\
+`Not as a defendant, but as a possible juror.`\
+https://nytimes.com/2024/05/10/us/politics/trump-court-jury-duty.html
+
 **Aiming for Rosier Ties, Xi Wraps Up Europe Visit**\
 `The red carpet receptions China’s leader received in France, Serbia and Hungary helped recast a strained relationship with the continent.`\
 https://nytimes.com/2024/05/10/world/europe/xi-europe-diplomacy.html
