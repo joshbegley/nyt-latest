@@ -1,3 +1,7 @@
+**Biden Campaign Courts Wealthy Donors on West Coast Fund-Raising Trip**\
+`The trip was a second major swing through California for the Biden campaign, and attracted a host of wealthy tech executives.`\
+https://nytimes.com/2024/05/10/us/politics/biden-west-coast-fund-raising.html
+
 **Who Are the Favorites to Win Eurovision?**\
 `Some of the buzziest acts taking part in Saturday’s final hail from Croatia, Israel and the Netherlands.`\
 https://nytimes.com/2024/05/10/arts/music/eurovision-odds-favorites.html
