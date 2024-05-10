@@ -1,3 +1,7 @@
+**California Will Add a Fixed Charge to Electric Bills and Reduce Rates**\
+`Officials said the decision would lower bills and encourage people to use cars and appliances that did not use fossil fuels, but some experts said it would discourage energy efficiency.`\
+https://nytimes.com/2024/05/10/business/energy-environment/california-electric-bills-fixed-charge.html
+
 **Film Academy Looks Overseas for Donors**\
 `The Academy of Motion Picture Arts and Sciences has announced a global $500 million campaign to shore up its financial future.`\
 https://nytimes.com/2024/05/10/movies/academy-motion-pictures-overseas-donors.html
