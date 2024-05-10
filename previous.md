@@ -1,3 +1,19 @@
+**Five California State Parks to Visit This Spring**\
+`If you’re looking for a way to enjoy the lovely weather, we’re here to help.`\
+https://nytimes.com/2024/05/10/us/california-state-parks-spring.html
+
+**An English Town Drops Apostrophes From Street Signs. Some Aren’t Happy.**\
+`The move has prompted some resistance, with someone writing an apostrophe on a sign for St. Mary’s Walk. “What’s next?” one North Yorkshire resident asked. “Commas?”`\
+https://nytimes.com/2024/05/10/world/europe/north-yorkshire-apostrophe-street-signs.html
+
+**A Pause for the Public Service Loan Forgiveness Program**\
+`The Education Department has temporarily stopped processing applications and other forms as it updates its systems and deals with problems plaguing the program.`\
+https://nytimes.com/2024/05/10/your-money/pslf-student-loan-forgiveness.html
+
+**Growth Stocks. Value Stocks. What Do Those Labels Mean?**\
+`Using index funds to make bets on these key categories is hazardous, our columnist says.`\
+https://nytimes.com/2024/05/10/business/growth-value-stocks-index-funds.html
+
 **Police Clear Pro-Palestinian Encampment at Penn**\
 `The move came a day after Gov. Josh Shapiro said it was “past time” to end the standoff on the campus in Philadelphia.`\
 https://nytimes.com/2024/05/10/us/penn-encampment-police.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/05/10/business/dealbook/companies-nervous-consumer-prof
 **Here’s the latest on campus protests.**\
 `By Matthew Eadie, Mattathias Schwartz and Victoria Kim`\
 https://nytimes.com/live/2024/05/10/us/college-campus-protests/heres-the-latest-on-campus-protests
-
-**What to Watch This Weekend: A Tense Restaurant Drama**\
-`Looking for some kitchen adrenaline between seasons of “The Bear”? Try the British series “Boiling Point” on Netflix.`\
-https://nytimes.com/2024/05/10/arts/television/boiling-point-netflix.html
-
-**How a Village Comes to Life in ‘Kingdom of the Planet of the Apes’**\
-`The director Wes Ball narrates a sequence from his film.`\
-https://nytimes.com/2024/05/10/movies/kingdom-of-the-planet-of-the-apes-clip.html
-
-**‘Kingdom of the Planet of the Apes’ | Anatomy of a Scene**\
-`The director Wes Ball narrates a sequence from his film.`\
-https://nytimes.com/video/movies/100000009461046/kingdom-of-the-planet-of-the-apes-scene.html
-
-**The Debate Over Rafah**\
-`A look at the conflicting views of President Biden and Benjamin Netanyahu.`\
-https://nytimes.com/2024/05/10/briefing/rafah-israel-hamas-war-netanyahu-biden.html
 
