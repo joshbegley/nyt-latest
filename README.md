@@ -1,3 +1,7 @@
+**Custodial Witnesses Provide Few Fireworks, but Affirm Basic Facts**\
+`Sharpies, staples, delivery services: The custodial witnesses have described the protocols that prosecutors say Donald J. Trump used to deceive.`\
+https://nytimes.com/2024/05/10/nyregion/custodial-witnesses-trump-trial.html
+
 **Satellite Images Reveal Where Russian Nukes Could Be Stored in Belarus**\
 `A New York Times analysis shows security upgrades unique to Russian nuclear storage facilities, at a Cold War-era munitions depot.`\
 https://nytimes.com/2024/05/10/world/europe/russia-nuclear-weapons-belarus.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/world/europe/russia-border-assaults-north-ukraine
 **Five California State Parks to Visit This Spring**\
 `If you’re looking for a way to enjoy the lovely weather, we’re here to help.`\
 https://nytimes.com/2024/05/10/us/california-state-parks-spring.html
-
-**An English Town Drops Apostrophes From Street Signs. Some Aren’t Happy.**\
-`The move has prompted some resistance, with someone writing an apostrophe on a sign for St. Mary’s Walk. “What’s next?” one North Yorkshire resident asked. “Commas?”`\
-https://nytimes.com/2024/05/10/world/europe/north-yorkshire-apostrophe-street-signs.html
 
