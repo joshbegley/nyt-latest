@@ -1,10 +1,14 @@
+**The Latest in Rafah, and a Key Trump Trial Witness Returns to the Stand**\
+`Plus, more arrests on campus.`\
+https://nytimes.com/2024/05/10/podcasts/rafah-israel-trump-trial-madeleine-westerhout.html
+
 **Stormy Daniels Takes the Stand**\
 `The porn star testified for eight hours at Donald Trump’s hush-money trial. This is how it went.`\
 https://nytimes.com/2024/05/10/podcasts/the-daily/stormy-daniels-trump.html
 
 **How Pro-Palestinian Students Pushed Trinity College Dublin to Divest**\
 `A surge of attention hit Ireland’s most prestigious university over protests that involved Israel, Gaza and the famed medieval Book of Kells.`\
-https://nytimes.com/2024/05/10/world/europe/trinity-college-dublin-protests.html
+https://nytimes.com/2024/05/10/world/europe/ireland-trinity-dublin-palestinian-protests-divest.html
 
 **How Should an Amy Winehouse Movie Be?**\
 `Several depictions of the singer’s life have explored her tense relationship with fame. The new biopic “Back to Black” instead centers her romantic life.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/opinion/bird-flu-animal-deaths-h5n1.html
 **Meet Kevin’s A.I. Friends**\
 `They gave him notes on his outfits and reassurance before a big talk, and they shared made-up gossip about each other.`\
 https://nytimes.com/2024/05/10/podcasts/hard-fork-ai-friends.html
-
-**After College Presidents, Republicans Are Coming for Liberal Donors**\
-`Authoritarians abroad often target NGOs. Don’t think it can’t happen here.`\
-https://nytimes.com/2024/05/10/opinion/republicans-protest-israel.html
 
