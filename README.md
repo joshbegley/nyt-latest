@@ -1,3 +1,7 @@
+**Trump Trial Judge Cracks Down on Cohen’s Taunting of Ex-President**\
+`Ahead of Michael D. Cohen’s testimony Monday, the judge told prosecutors to keep him quiet about Donald J. Trump’s criminal case.`\
+https://nytimes.com/2024/05/10/nyregion/trump-michael-cohen-trial.html
+
 **Justice Kavanaugh on the Presidency, the Court and Taylor Swift**\
 `In a public interview at a judicial conference, the justice used historical parallels and sports analogies to sketch out his views on the Supreme Court’s past and future.`\
 https://nytimes.com/2024/05/10/us/brett-kavanaugh-presidents-supreme-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/style/roze-traore-hannah-traore-gallery.html
 **Jim Simons, Math Genius Who Conquered Wall Street, Dies at 86**\
 `Using advanced computers, he went from M.I.T. professor to multibillionaire. His Medallion fund had 66 percent average annual returns for decades.`\
 https://nytimes.com/2024/05/10/business/dealbook/jim-simons-dead.html
-
-**Is There a Post-Religious Right?**\
-`A taxonomy of post-religious conservatisms.`\
-https://nytimes.com/2024/05/10/opinion/religion-republican-conservatives.html
 
