@@ -1,3 +1,7 @@
+**Biden Looks to Raise Tax Revenue When Trump Cuts Expire Next Year**\
+`N.E.C. Director Lael Brainard said that lawmakers should raise taxes on companies and the wealthiest while extending the 2017 cuts for those making less than $400,000.`\
+https://nytimes.com/2024/05/10/us/politics/biden-looks-to-raise-tax-revenue-when-trump-cuts-expire-next-year.html
+
 **There’s a New Covid Variant. What Will That Mean for Spring and Summer?**\
 `Experts are closely watching KP.2, now the leading variant.`\
 https://nytimes.com/2024/05/10/well/covid-flirt-variants-symptoms.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/movies/6-new-movies-our-critics-are-talking-about
 **More than 100,000 have fled Rafah, the U.N. says, as Israeli bombardment intensifies.**\
 `Three days after an evacuation`\
 https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/more-than-100000-flee-rafah-the-un-says-as-israeli-bombardment-intensifies
-
-**Biden Is Not the First U.S. President to Cut Off Weapons to Israel**\
-`Ronald Reagan also used the power of American arms to influence Israeli war policy. The comparison underscores how much the politics of Israel have changed in the United States since the 1980s.`\
-https://nytimes.com/2024/05/10/us/politics/biden-reagan-israel.html
 
