@@ -1,3 +1,7 @@
+**Biden Administration to Pay Dairy Farmers for Bird Flu Protective Measures**\
+`The payment system amounted to one of the most forceful actions taken so far by agriculture officials who have raced to keep up with the spread of the virus among dairy cows.`\
+https://nytimes.com/2024/05/10/us/politics/dairy-farms-bird-flu-protection.html
+
 **A Severe Solar Storm Is Hitting Earth’s Atmosphere, and Auroras May Be Visible**\
 `Officials warned of potential blackouts or interference with navigation and communication systems this weekend, as well as northern lights as far south as Northern California or Alabama.`\
 https://nytimes.com/2024/05/10/science/solar-storm-earth.html
