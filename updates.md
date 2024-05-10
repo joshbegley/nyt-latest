@@ -1,3 +1,11 @@
+**It’s Mother’s Day, and I’ll Sleep, Dance, Camp (or Cry) if I Want To**\
+`Some women prefer to spend Mother’s Day without the very people who made them one.`\
+https://nytimes.com/2024/05/10/style/mothers-day-what-to-do.html
+
+**Biden’s Real Mistake in Pausing Military Aid to Israel**\
+`In how Biden made his announcement, the president enabled Netanyahu to look like an innocent victim`\
+https://nytimes.com/2024/05/10/opinion/bidens-real-mistake-in-pausing-military-aid-to-israel.html
+
 **Trump Trial Judge Cracks Down on Cohen’s Taunting of Ex-President**\
 `Ahead of Michael D. Cohen’s testimony Monday, the judge told prosecutors to keep him quiet about Donald J. Trump’s criminal case.`\
 https://nytimes.com/2024/05/10/nyregion/trump-michael-cohen-trial.html
