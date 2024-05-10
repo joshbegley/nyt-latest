@@ -1,6 +1,6 @@
 **U.S. to Announce New Tariffs on Chinese Electric Vehicles**\
 `The administration could raise tariffs on electric vehicles from China to 100 percent in an attempt to protect American auto manufacturers.`\
-https://nytimes.com/2024/05/10/us/politics/us-biden-china-tariffs.html
+https://nytimes.com/2024/05/10/us/politics/us-biden-china-tariffs-electric-vehicles.html
 
 **Post Malone Goes Country With Morgan Wallen, and 8 More New Songs**\
 `Hear tracks by Raveena, Willow, John Cale and others.`\
