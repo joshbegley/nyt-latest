@@ -1,5 +1,5 @@
 **Police Arrest M.I.T. Protesters After Suspensions Ramp Up Tension**\
-`Several people were arrested after blocking access to campus parking garage, but it was unclear what charges they would face.`\
+`Several people were arrested after blocking access to a campus parking garage, but it was unclear what charges they would face.`\
 https://nytimes.com/2024/05/09/us/mit-police-protesters-arrests.html
 
 **American Aid Ship Heads to Gaza, but the System for Unloading It Still Isn’t in Place**\
