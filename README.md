@@ -1,3 +1,11 @@
+**The U.N. General Assembly adopts a resolution in support of Palestinian statehood.**\
+`The vote comes after the United States vetoed a Security Council measure granting full U.N. membership last month to a Palestinian state.`\
+https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/un-resolution-palestinian-vote
+
+**A Rise in Anti-China Sentiment in America**\
+`Readers discuss a troubling trend. Also: Rights at risk; the takeover at Columbia; Beethoven’s legacy; PEN America; Donald Trump’s empty oath.`\
+https://nytimes.com/2024/05/10/opinion/anti-china-sentiment.html
+
 **Review: An Opera Saw Red-Pill Culture Coming. Now, It’s Back.**\
 `Robert Ashley’s 1994 opera “Foreign Experiences,” a portrait of a paranoid mind in free fall, is part of a wave of revivals following his death.`\
 https://nytimes.com/2024/05/10/arts/music/robert-ashley-foreign-experiences-roulette-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/10/nyregion/new-school-faculty-protest-encampment.ht
 **Biden Looks to Raise Tax Revenue When Trump Cuts Expire Next Year**\
 `Lael Brainard, the director of the National Economic Council, said lawmakers should raise taxes on companies and the wealthiest while extending the 2017 cuts for those making less than $400,000.`\
 https://nytimes.com/2024/05/10/us/politics/biden-trump-tax-cuts.html
-
-**There’s a New Covid Variant. What Will That Mean for Spring and Summer?**\
-`Experts are closely watching KP.2, now the leading variant.`\
-https://nytimes.com/2024/05/10/well/covid-flirt-variants-symptoms.html
-
-**U.N. officials warn that aid efforts face imminent threat from lack of fuel.**\
-`By Nick Cumming-Bruce`\
-https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/un-officials-warn-that-aid-efforts-face-imminent-threat-from-lack-of-fuel
 
