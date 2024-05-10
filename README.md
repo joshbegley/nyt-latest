@@ -1,6 +1,6 @@
 **Israel May Have Broken International Law in Gaza, State Dept. Says**\
 `A State Department report says U.S. weapons might have been used in violating humanitarian law, but does not make a specific enough finding to trigger punitive action against Israel.`\
-https://nytimes.com/2024/05/10/world/middleeast/biden-israel-us-weapons-gaza.html
+https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/biden-israel-us-weapons-gaza
 
 **‘Who Is That Color?’: A Makeup Brand Is Said to Miss the Mark by Several Shades**\
 `Beauty influencers have criticized Youthforia, saying the brand didn’t adequately test the darkest shade of its Date Night Skin Tint Serum Foundation.`\
