@@ -1,3 +1,11 @@
+**Satellite Images Reveal Where Russian Nukes Could Be Stored in Belarus**\
+`A New York Times analysis shows security upgrades unique to Russian nuclear storage facilities, at a Cold War-era munitions depot.`\
+https://nytimes.com/2024/05/10/world/europe/russia-nuclear-weapons-belarus.html
+
+**More than 100,000 have fled Rafah, the U.N. says, as Israeli bombardment intensifies.**\
+`Three days after an evacuation`\
+https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/more-than-100000-flee-rafah-the-un-says-as-israeli-bombardment-intensifies
+
 **Biden Is Less Unpopular Than His Peers**\
 `None of the advanced countries seem to like their leaders at the moment.`\
 https://nytimes.com/live/2024/05/07/opinion/thepoint/krugman-biden-popularity-world

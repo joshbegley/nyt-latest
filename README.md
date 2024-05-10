@@ -1,7 +1,3 @@
-**Satellite Images Reveal Where Russian Nukes Could Be Stored in Belarus**\
-`A New York Times analysis shows security upgrades unique to Russian nuclear storage facilities, at a Cold War-era munitions depot.`\
-https://nytimes.com/2024/05/10/world/europe/russia-nuclear-weapons-belarus.html
-
 **Biden Is Less Unpopular Than His Peers**\
 `None of the advanced countries seem to like their leaders at the moment.`\
 https://nytimes.com/live/2024/05/07/opinion/thepoint/krugman-biden-popularity-world
@@ -37,4 +33,8 @@ https://nytimes.com/2024/05/10/us/california-state-parks-spring.html
 **An English Town Drops Apostrophes From Street Signs. Some Aren’t Happy.**\
 `The move has prompted some resistance, with someone writing an apostrophe on a sign for St. Mary’s Walk. “What’s next?” one North Yorkshire resident asked. “Commas?”`\
 https://nytimes.com/2024/05/10/world/europe/north-yorkshire-apostrophe-street-signs.html
+
+**A Pause for the Public Service Loan Forgiveness Program**\
+`The Education Department has temporarily stopped processing applications and other forms as it updates its systems and deals with problems plaguing the program.`\
+https://nytimes.com/2024/05/10/your-money/pslf-student-loan-forgiveness.html
 
