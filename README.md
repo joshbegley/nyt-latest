@@ -1,7 +1,3 @@
-**Police Clear Pro-Palestinian Encampment at Penn**\
-`The move came a day after Gov. Josh Shapiro said it was “past time” to end the standoff on the campus in Philadelphia.`\
-https://nytimes.com/2024/05/10/us/penn-encampment-police.html
-
 **10trump-trial**\
 `Live Updates: Former White House Aide Will Return to Stand in Trump Trial`\
 https://nytimes.com/live/2024/05/10/nyregion/trump-trial-hush-money
@@ -37,4 +33,8 @@ https://nytimes.com/video/movies/100000009461046/kingdom-of-the-planet-of-the-ap
 **The Debate Over Rafah**\
 `A look at the conflicting views of President Biden and Benjamin Netanyahu.`\
 https://nytimes.com/2024/05/10/briefing/rafah-israel-hamas-war-netanyahu-biden.html
+
+**The Latest in Rafah, and a Key Trump Trial Witness Returns to the Stand**\
+`Plus, more arrests on campus.`\
+https://nytimes.com/2024/05/10/podcasts/rafah-israel-trump-trial-madeleine-westerhout.html
 

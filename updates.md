@@ -1,3 +1,7 @@
+**Police Clear Pro-Palestinian Encampment at Penn**\
+`The move came a day after Gov. Josh Shapiro said it was “past time” to end the standoff on the campus in Philadelphia.`\
+https://nytimes.com/2024/05/10/us/penn-encampment-police.html
+
 **10trump-trial**\
 `Live Updates: Former White House Aide Will Return to Stand in Trump Trial`\
 https://nytimes.com/live/2024/05/10/nyregion/trump-trial-hush-money
