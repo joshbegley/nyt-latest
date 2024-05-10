@@ -1,3 +1,7 @@
+**‘Black Twitter’: Movements, Memes and Crying Jordan**\
+`This new Hulu docuseries explores how a social media subculture influenced American culture at large.`\
+https://nytimes.com/2024/05/10/arts/television/black-twitter-hulu-memes-crying-jordan.html
+
 **How Should an Amy Winehouse Movie Be?**\
 `Several depictions of the singer’s life have explored her tense relationship with fame. The new biopic “Back to Black” instead centers her romantic life.`\
 https://nytimes.com/2024/05/10/movies/back-to-black-amy-winehouse.html
