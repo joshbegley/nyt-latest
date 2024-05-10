@@ -1,7 +1,3 @@
-**Biden Administration to Pay Dairy Farmers for Bird Flu Protective Measures**\
-`The payment system amounted to one of the most forceful actions taken so far by agriculture officials who have raced to keep up with the spread of the virus among dairy cows.`\
-https://nytimes.com/2024/05/10/us/politics/dairy-farms-bird-flu-protection.html
-
 **Giuliani Is Suspended by WABC, and His Radio Show Is Canceled**\
 `The radio station disciplined Rudolph W. Giuliani after he violated company policy by trying to discuss the legitimacy of the 2020 election on the air.`\
 https://nytimes.com/2024/05/10/nyregion/giuliani-radio-suspended.html
@@ -30,11 +26,15 @@ https://nytimes.com/2024/05/10/business/dealbook/jim-simons-dead.html
 `A taxonomy of post-religious conservatisms.`\
 https://nytimes.com/2024/05/10/opinion/religion-republican-conservatives.html
 
-**A Severe Solar Storm Is Hitting the Earth, and Auroras May Be Visible**\
+**A Severe Solar Storm Is Hitting Earth’s Atmosphere, and Auroras May Be Visible**\
 `Officials warned of potential blackouts or interference with navigation and communication systems this weekend, as well as northern lights as far south as Northern California or Alabama.`\
 https://nytimes.com/2024/05/10/science/solar-storm-earth.html
 
 **Here’s why Rafah and Gaza’s southern border are strategically important in the war.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/rafah-gaza-border
+
+**The Best White Sneakers**\
+`White sneakers pair with almost everything in your wardrobe. We found the best ones.`\
+https://nytimes.com/interactive/2024/05/10/smarter-living/wirecutter/best-white-sneakers.html
 
