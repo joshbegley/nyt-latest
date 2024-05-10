@@ -1,3 +1,11 @@
+**There’s a New Covid Variant. What Will That Mean for Spring and Summer?**\
+`Experts are closely watching KP.2, now the leading variant.`\
+https://nytimes.com/2024/05/10/well/covid-flirt-variants-symptoms.html
+
+**Custodial Witnesses Provide Little Spectacle, but Affirm Basic Facts**\
+`Sharpies, staples, delivery services: The custodial witnesses have described the protocols that prosecutors say Donald J. Trump used to deceive.`\
+https://nytimes.com/2024/05/10/nyregion/custodial-witnesses-trump-trial.html
+
 **U.N. officials warn that aid efforts face imminent threat from lack of fuel.**\
 `By Nick Cumming-Bruce`\
 https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/un-officials-warn-that-aid-efforts-face-imminent-threat-from-lack-of-fuel

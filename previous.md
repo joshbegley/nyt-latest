@@ -1,8 +1,12 @@
+**There’s a New Covid Variant. What Will That Mean for Spring and Summer?**\
+`Experts are closely watching KP.2, now the leading variant.`\
+https://nytimes.com/2024/05/10/well/covid-flirt-variants-symptoms.html
+
 **U.N. officials warn that aid efforts face imminent threat from lack of fuel.**\
 `By Nick Cumming-Bruce`\
 https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/un-officials-warn-that-aid-efforts-face-imminent-threat-from-lack-of-fuel
 
-**Custodial Witnesses Provide Few Fireworks, but Affirm Basic Facts**\
+**Custodial Witnesses Provide Little Spectacle, but Affirm Basic Facts**\
 `Sharpies, staples, delivery services: The custodial witnesses have described the protocols that prosecutors say Donald J. Trump used to deceive.`\
 https://nytimes.com/2024/05/10/nyregion/custodial-witnesses-trump-trial.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/more-than-
 **Biden Is Not the First U.S. President to Cut Off Weapons to Israel**\
 `Ronald Reagan also used the power of American arms to influence Israeli war policy. The comparison underscores how much the politics of Israel have changed in the United States since the 1980s.`\
 https://nytimes.com/2024/05/10/us/politics/biden-reagan-israel.html
-
-**Russia Mounting New Border Assaults in North, Ukraine Says**\
-`Armored columns tried to punch through at several points, the military said, raising pressure on already stretched Ukrainian forces.`\
-https://nytimes.com/2024/05/10/world/europe/russia-border-assaults-north-ukraine.html
 
