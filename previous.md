@@ -6,8 +6,8 @@ https://nytimes.com/2024/05/10/business/apple-siri-chatbot-competitors.html
 `Hear songs by Mdou Moctar, Bombino, Orchestra Baobab and more.`\
 https://nytimes.com/2024/05/10/arts/music/amplifier-newsletter-african-guitar-greats.html
 
-**Contact List Held by Trump’s White House Gatekeeper Reflects His Celebrity-Laced Orbit**\
-`While incomplete, the list included the media tycoon Rupert Murdoch, along with figures from Fox News. It also had Michael D. Cohen, the fixer who played a key role in the events leading to the first criminal trial of an American president.`\
+**Trump’s White House Contact List Reflects His Celebrity-Laced Orbit**\
+`While incomplete, the list included the media tycoon Rupert Murdoch and other Fox News figures. It also had Michael D. Cohen, the fixer who played a key role in the events leading to the first criminal trial of an American president.`\
 https://nytimes.com/2024/05/10/nyregion/trump-celebrity-gatekeeper-list.html
 
 **U.S. Military’s Plea to Israel: Do More to Protect Gazans in War Zone**\
@@ -18,7 +18,7 @@ https://nytimes.com/2024/05/10/us/politics/us-military-israel-gaza.html
 `A quirky and joyful play based on J.R.R. Tolkien’s books joined weightier works at this year’s Theatertreffen drama festival.`\
 https://nytimes.com/2024/05/10/theater/theatertreffen-berlin.html
 
-**Brian Wilson, Beach Boys’ Visionary, Is Placed Under Conservatorship**\
+**Brian Wilson, Beach Boys Visionary, Is Placed Under Conservatorship**\
 `Mr. Wilson, who has a neurocognitive disorder, had been cared for by his wife until she died in January.`\
 https://nytimes.com/2024/05/10/arts/brian-wilson-conservatorship-beach-boys.html
 

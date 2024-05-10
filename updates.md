@@ -1,3 +1,11 @@
+**Trump’s White House Contact List Reflects His Celebrity-Laced Orbit**\
+`While incomplete, the list included the media tycoon Rupert Murdoch and other Fox News figures. It also had Michael D. Cohen, the fixer who played a key role in the events leading to the first criminal trial of an American president.`\
+https://nytimes.com/2024/05/10/nyregion/trump-celebrity-gatekeeper-list.html
+
+**Brian Wilson, Beach Boys Visionary, Is Placed Under Conservatorship**\
+`Mr. Wilson, who has a neurocognitive disorder, had been cared for by his wife until she died in January.`\
+https://nytimes.com/2024/05/10/arts/brian-wilson-conservatorship-beach-boys.html
+
 **Apple Will Revamp Siri to Catch Up to Its Chatbot Competitors**\
 `Apple plans to announce that it will bring generative A.I. to iPhones following the company’s most significant reorganization in a decade.`\
 https://nytimes.com/2024/05/10/business/apple-siri-chatbot-competitors.html
