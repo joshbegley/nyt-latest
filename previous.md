@@ -1,3 +1,7 @@
+**Is There a Post-Religious Right?**\
+`A taxonomy of post-religious conservatisms.`\
+https://nytimes.com/2024/05/10/opinion/religion-republican-conservatives.html
+
 **A Severe Solar Storm Is Hitting the Earth, and Auroras May Be Visible**\
 `Officials warned of potential blackouts or interference with navigation and communication systems this weekend, as well as northern lights as far south as Northern California or Alabama.`\
 https://nytimes.com/2024/05/10/science/solar-storm-earth.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/theater/theatertreffen-berlin.html
 **Brian Wilson, Beach Boys Visionary, Is Placed Under Conservatorship**\
 `Mr. Wilson, who has a neurocognitive disorder, had been cared for by his wife until she died in January.`\
 https://nytimes.com/2024/05/10/arts/brian-wilson-conservatorship-beach-boys.html
-
-**Actions by Israel and Egypt Squeeze Gaza Aid Routes**\
-`Israel’s military has seized and closed the Rafah crossing as it fights in the area, and officials say that Egypt is not allowing aid trucks to go to the other main crossing at Kerem Shalom.`\
-https://nytimes.com/2024/05/10/world/middleeast/gaza-aid-rafah-israel-egypt.html
 
