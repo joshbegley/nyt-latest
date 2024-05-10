@@ -1,3 +1,7 @@
+**Britain Shakes Off Recession as Economy Grows Faster Than Expected**\
+`Gross domestic product increased 0.6 percent in the first quarter, after shrinking the two previous quarters.`\
+https://nytimes.com/2024/05/10/business/britain-economy-growth-recession.html
+
 **Jimmy Kimmel Recaps Stormy Daniels’s Testimony in Court**\
 `“Team Trump spent much of the day trying to paint Daniels as a sleazy, money-grubbing liar, which, if that is true, you can see why they hit it off,” Kimmel said.`\
 https://nytimes.com/2024/05/10/arts/television/jimmy-kimmel-stormy-daniels-trump.html
