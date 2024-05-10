@@ -1,3 +1,7 @@
+**Justice Kavanaugh on the Presidency, the Court and Taylor Swift**\
+`In a public interview at a judicial conference, the justice used historical parallels and sports analogies to sketch out his views on the Supreme Court’s past and future.`\
+https://nytimes.com/2024/05/10/us/brett-kavanaugh-presidents-supreme-court.html
+
 **Two Universities Cancel Speeches by U.N. Ambassador**\
 `Invitations to Ambassador Linda Thomas-Greenfield were withdrawn by Xavier University and the University of Vermont because of student objections to American support for Israel.`\
 https://nytimes.com/2024/05/10/us/xavier-vermont-cancel-linda-thomas-greenfield.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/business/dealbook/jim-simons-dead.html
 **Is There a Post-Religious Right?**\
 `A taxonomy of post-religious conservatisms.`\
 https://nytimes.com/2024/05/10/opinion/religion-republican-conservatives.html
-
-**A Severe Solar Storm Is Hitting Earth’s Atmosphere, and Auroras May Be Visible**\
-`Officials warned of potential blackouts or interference with navigation and communication systems this weekend, as well as northern lights as far south as Northern California or Alabama.`\
-https://nytimes.com/2024/05/10/science/solar-storm-earth.html
 
