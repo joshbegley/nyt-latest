@@ -1,3 +1,7 @@
+**Dennis Thompson, Drummer and Last Remaining Member of MC5, Dies at 75**\
+`The musician brought his hard-hitting style to the band, which helped lay the foundation of American punk rock and is set to be inducted into the Rock & Roll Hall of Fame.`\
+https://nytimes.com/2024/05/10/arts/music/dennis-thompson-dead.html
+
 **Friday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2024/05/10/briefing/israel-us-relations-ukraine.html
