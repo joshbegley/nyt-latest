@@ -1,3 +1,15 @@
+**Green Party candidates for Senate in Arizona draw suspicion of being plants.**\
+`Party leaders accused Mike Norton and Arturo Hernandez of entering the primary to help Democrat Ruben Gallego and Republican Kari Lake tip the nationally-watched contest.`\
+https://nytimes.com/live/2024/05/10/us/biden-trump-election/green-party-arizona-senate
+
+**Barron Trump Will Not Be a Delegate at the G.O.P. Convention After All**\
+`Two days after the Florida Republican Party selected Barron, 18, to be an at-large delegate, Melania Trump’s office said he “regretfully declines to participate due to prior commitments.”`\
+https://nytimes.com/2024/05/10/us/politics/barron-trump-gop-convention.html
+
+**Kuwaiti Emir Suspends Parliament, Citing Political Tumult**\
+`The country’s ruler also suspended several constitutional articles, raising concerns that he could diminish political freedoms in one of the Middle East’s few semi-democratic states.`\
+https://nytimes.com/2024/05/10/world/middleeast/kuwait-emir-parliament-suspension.html
+
 **White House Defends Voting ‘No’ on U.N. Resolution Supporting Palestinian Statehood**\
 `The United States among a handful of holdouts on the vote, which was widely seen as a rebuke of the Americans and Israel.`\
 https://nytimes.com/2024/05/10/world/middleeast/united-nations-us-palestinian-membership.html
