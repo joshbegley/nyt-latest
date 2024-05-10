@@ -30,9 +30,9 @@ https://nytimes.com/interactive/2024/upshot/buy-rent-calculator.html
 `By Adam Rasgon and Julian E. Barnes`\
 https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/cease-fire-talks-hit-snag-in-part-on-how-many-hostages-would-be-released-in-a-first-phase-officials-say
 
-**White House defends voting ‘no’ on U.N. resolution supporting Palestinian statehood.**\
-`By Erica L. Green`\
-https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/white-house-defends-voting-no-on-un-resolution-supporting-palestinian-statehood
+**White House Defends Voting ‘No’ on U.N. Resolution Supporting Palestinian Statehood**\
+`The United States among a handful of holdouts on the vote, which was widely seen as a rebuke of the Americans and Israel.`\
+https://nytimes.com/2024/05/10/world/middleeast/united-nations-us-palestinian-membership.html
 
 **Campus Police Chief Is Put on Leave After Arizona State Arrests**\
 `The decision came after complaints were filed related to the actions of the chief in late April, when the campus police arrested dozens of people.`\

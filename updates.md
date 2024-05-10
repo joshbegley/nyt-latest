@@ -1,3 +1,7 @@
+**White House Defends Voting ‘No’ on U.N. Resolution Supporting Palestinian Statehood**\
+`The United States among a handful of holdouts on the vote, which was widely seen as a rebuke of the Americans and Israel.`\
+https://nytimes.com/2024/05/10/world/middleeast/united-nations-us-palestinian-membership.html
+
 **Nancy Neveloff Dubler, Mediator for Life’s Final Moments, Dies at 82**\
 `A bioethicist, she pioneered bedside methods for helping patients, their families and doctors deal with anguishing life-or-death decisions in a high-tech age.`\
 https://nytimes.com/2024/05/10/health/nancy-neveloff-dead.html
