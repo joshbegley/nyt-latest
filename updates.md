@@ -1,3 +1,7 @@
+**Film Academy Looks Overseas for Donors**\
+`The Academy of Motion Picture Arts and Sciences has announced a global $500 million campaign to shore up its financial future.`\
+https://nytimes.com/2024/05/10/movies/academy-motion-pictures-overseas-donors.html
+
 **Five Science Fiction Movies to Stream Now**\
 `In this month’s sci-fi picks, surviving a pandemic and predicting a catastrophe.`\
 https://nytimes.com/2024/05/10/movies/five-science-fiction-movies-to-stream-now.html
