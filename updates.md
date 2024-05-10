@@ -1,3 +1,11 @@
+**Get Ready for a Solar Storm to (Maybe) Light Up the Sky**\
+`The National Oceanic and Atmospheric Administration issued a rare warning, saying that solar activity could cause disruptions. But there is no need for concern.`\
+https://nytimes.com/2024/05/10/science/northern-lights-aurora-borealis-please.html
+
+**The Table Is Set for Michael Cohen to Testify Against Trump**\
+`The question is whether Cohen can keep his mouth shut about Trump outside the courtroom.`\
+https://nytimes.com/live/2024/05/07/opinion/thepoint/prosecution-ready-cohen-trump
+
 **Another Time Trump Was Stuck in Court**\
 `Not as a defendant, but as a possible juror.`\
 https://nytimes.com/2024/05/10/us/politics/trump-court-jury-duty.html

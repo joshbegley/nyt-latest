@@ -1,3 +1,11 @@
+**Get Ready for a Solar Storm to (Maybe) Light Up the Sky**\
+`The National Oceanic and Atmospheric Administration issued a rare warning, saying that solar activity could cause disruptions. But there is no need for concern.`\
+https://nytimes.com/2024/05/10/science/northern-lights-aurora-borealis-please.html
+
+**The Table Is Set for Michael Cohen to Testify Against Trump**\
+`The question is whether Cohen can keep his mouth shut about Trump outside the courtroom.`\
+https://nytimes.com/live/2024/05/07/opinion/thepoint/prosecution-ready-cohen-trump
+
 **Another Time Trump Was Stuck in Court**\
 `Not as a defendant, but as a possible juror.`\
 https://nytimes.com/2024/05/10/us/politics/trump-court-jury-duty.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/05/07/opinion/thepoint/virginia-schools-confederat
 **Aid for Gazans Has Come to a Near-Total Halt**\
 `Also, A.I.Phones and Eurovision. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/05/10/briefing/gaza-aid-artificial-intelligence-apple-iphone.html
-
-**Target Scales Back Pride Month Displays After Backlash Last Year**\
-`It said Pride merchandise would be available on its website and in select stores next month. In 2023, the retailer featured the goods widely.`\
-https://nytimes.com/2024/05/10/business/target-pride-month-merchandise.html
-
-**U.C.L.A. Academic Senate Will Consider Rebuking Chancellor**\
-`Many members believe that the chancellor, Gene Block, failed to protect students and was too quick to have police arrest students and clear an encampment.`\
-https://nytimes.com/2024/05/10/us/ucla-academic-senate-gene-block.html
 
