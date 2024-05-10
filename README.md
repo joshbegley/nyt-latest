@@ -22,10 +22,6 @@ https://nytimes.com/2024/05/10/business/dealbook/companies-nervous-consumer-prof
 `By Matthew Eadie, Mattathias Schwartz and Victoria Kim`\
 https://nytimes.com/live/2024/05/10/us/college-campus-protests/heres-the-latest-on-campus-protests
 
-**10campus-protests**\
-`Police Make Arrests and Clear Encampments at M.I.T. and Penn`\
-https://nytimes.com/live/2024/05/10/us/college-campus-protests
-
 **What to Watch This Weekend: A Tense Restaurant Drama**\
 `Looking for some kitchen adrenaline between seasons of “The Bear”? Try the British series “Boiling Point” on Netflix.`\
 https://nytimes.com/2024/05/10/arts/television/boiling-point-netflix.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/05/10/movies/kingdom-of-the-planet-of-the-apes-clip.htm
 **‘Kingdom of the Planet of the Apes’ | Anatomy of a Scene**\
 `The director Wes Ball narrates a sequence from his film.`\
 https://nytimes.com/video/movies/100000009461046/kingdom-of-the-planet-of-the-apes-scene.html
+
+**The Debate Over Rafah**\
+`A look at the conflicting views of President Biden and Benjamin Netanyahu.`\
+https://nytimes.com/2024/05/10/briefing/rafah-israel-hamas-war-netanyahu-biden.html
 
