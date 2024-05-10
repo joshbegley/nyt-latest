@@ -23,7 +23,7 @@ https://nytimes.com/interactive/2024/05/10/business/ftx-bankruptcy-recovery.html
 https://nytimes.com/2024/05/10/books/review/james-percival-everett-book-club.html
 
 **Police Clear Protesters From University of Arizona**\
-`The move came hours before the school’s graduation ceremony was going to be held.`\
+`The move came hours before the school’s graduation ceremony was scheduled to be held.`\
 https://nytimes.com/2024/05/10/us/police-clear-protesters-from-university-of-arizona.html
 
 **The U.N. General Assembly adopts a resolution in support of Palestinian statehood.**\

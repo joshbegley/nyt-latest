@@ -1,3 +1,11 @@
+**People leaving Rafah describe yet another fearful flight from Israeli assaults.**\
+`By Raja Abdulrahim and Bilal Shbair`\
+https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/people-leaving-rafah-describe-yet-another-fearful-flight-from-israeli-assaults
+
+**Christie’s Website Is Brought Down by Hackers Days Before $840 Million Auctions**\
+`The auctioneer’s website was taken offline on Thursday evening and remained down on Friday, days before its spring auctions were set to begin.`\
+https://nytimes.com/2024/05/10/arts/design/christies-cyberattack-website.html
+
 **Christie’s Website Is Brought Down by Hackers Days Before $840 Million Auction**\
 `The auctioneer’s website was taken offline on Thursday evening and remained down on Friday, days before its spring auctions were set to begin.`\
 https://nytimes.com/2024/05/10/arts/design/christies-cyberattack-website.html
