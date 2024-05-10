@@ -12,7 +12,7 @@ https://nytimes.com/2024/05/10/opinion/trump-trial-not-invincible.html
 
 **‘Black Twitter’: Movements, Memes and Crying Jordan**\
 `This new Hulu docuseries explores how a social media subculture influenced American culture at large.`\
-https://nytimes.com/2024/05/10/arts/television/black-twitter-movements-memes-and-crying-jordan.html
+https://nytimes.com/2024/05/10/arts/television/black-twitter-hulu-memes-crying-jordan.html
 
 **In ‘Power,’ Policing and Politics Are Inextricable**\
 `Though Yance Ford’s new Netflix documentary takes on a much-explored topic, its mix of personal and polemic makes for a strong argument.`\
