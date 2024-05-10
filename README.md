@@ -1,3 +1,7 @@
+**Film Academy Looks Overseas for Donors**\
+`The Academy of Motion Picture Arts and Sciences has announced a global $500 million campaign to shore up its financial future.`\
+https://nytimes.com/2024/05/10/movies/academy-motion-pictures-overseas-donors.html
+
 **Five Science Fiction Movies to Stream Now**\
 `In this month’s sci-fi picks, surviving a pandemic and predicting a catastrophe.`\
 https://nytimes.com/2024/05/10/movies/five-science-fiction-movies-to-stream-now.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/nyregion/custodial-witnesses-trump-trial.html
 **Satellite Images Reveal Where Russian Nukes Could Be Stored in Belarus**\
 `A New York Times analysis shows security upgrades unique to Russian nuclear storage facilities, at a Cold War-era munitions depot.`\
 https://nytimes.com/2024/05/10/world/europe/russia-nuclear-weapons-belarus.html
-
-**Biden Is Less Unpopular Than His Peers**\
-`None of the advanced countries seem to like their leaders at the moment.`\
-https://nytimes.com/live/2024/05/07/opinion/thepoint/krugman-biden-popularity-world
 
