@@ -1,3 +1,11 @@
+**David Shapiro, Who Gained Fame in Poetry and Protest, Dies at 77**\
+`A renowned member of the New York School of poets, he also found accidental notoriety when he was photographed during the 1968 uprising at Columbia University.`\
+https://nytimes.com/2024/05/10/books/david-shapiro-dead.html
+
+**Talking to Leigh Bardugo, Fantasy Superstar**\
+`The best-selling author of dark fantasy novels for Y.A. and adult audiences discusses her career and her stand-alone new historical fantasy, “The Familiar.”`\
+https://nytimes.com/2024/05/10/books/review/podcast-leigh-bardugo-interview.html
+
 **U.N. General Assembly Backs Palestinian Membership Bid**\
 `The United Nations General Assembly approved the resolution by a vote of 143 to 9 with 25 nations abstaining. The Assembly can only grant full membership with the approval of the Security Council.`\
 https://nytimes.com/video/world/middleeast/100000009462938/un-resolution-palestine-israel.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/10/us/xavier-vermont-cancel-linda-thomas-greenfield.
 **Biden Administration to Pay Dairy Farmers for Bird Flu Protective Measures**\
 `The payment system amounted to one of the most forceful actions taken so far by agriculture officials who have raced to keep up with the spread of the virus among dairy cows.`\
 https://nytimes.com/2024/05/10/us/politics/dairy-farms-bird-flu-protection.html
-
-**Giuliani Is Suspended by WABC, and His Radio Show Is Canceled**\
-`The radio station disciplined Rudolph W. Giuliani after he violated company policy by trying to discuss the legitimacy of the 2020 election on the air.`\
-https://nytimes.com/2024/05/10/nyregion/giuliani-radio-suspended.html
-
-**The Best of Late Night This Week**\
-`The hosts couldn’t get enough of former President Donald Trump being held in contempt (again) in his criminal hush-money trial, or of Stormy Daniels’s testimony. They also talked about Robert F. Kennedy Jr.’s brain worm. Here’s what they had to say.`\
-https://nytimes.com/interactive/2024/05/10/arts/television/best-of-late-night-stormy-daniels.html
 
