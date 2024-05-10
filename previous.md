@@ -1,3 +1,7 @@
+**Aiming for Rosier Ties, Xi Wraps Up Europe Visit**\
+`The red carpet receptions China’s leader received in France, Serbia and Hungary helped recast a strained relationship with the continent.`\
+https://nytimes.com/2024/05/10/world/europe/xi-europe-diplomacy.html
+
 **Is It Better to Rent or Buy?**\
 `Our calculator takes the most important costs associated with buying or renting and compares the two options.`\
 https://nytimes.com/interactive/2024/upshot/buy-rent-calculator.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/us/ucla-academic-senate-gene-block.html
 **What’s Your Favorite Soundtrack? We Want to Know.**\
 `We’re asking readers to share the movie-related albums that they return to again and again.`\
 https://nytimes.com/2024/05/10/movies/favorite-soundtrack.html
-
-**Raunch and Business Records: 5 Takeaways From Trump’s Criminal Trial**\
-`The fourth week of the trial interspersed intense and emotional testimony with talk of documents and chains of custody.`\
-https://nytimes.com/2024/05/10/nyregion/trump-hush-money-case-merchan-stormy-takeaways.html
 

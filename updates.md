@@ -1,3 +1,7 @@
+**Aiming for Rosier Ties, Xi Wraps Up Europe Visit**\
+`The red carpet receptions China’s leader received in France, Serbia and Hungary helped recast a strained relationship with the continent.`\
+https://nytimes.com/2024/05/10/world/europe/xi-europe-diplomacy.html
+
 **Is It Better to Rent or Buy?**\
 `Our calculator takes the most important costs associated with buying or renting and compares the two options.`\
 https://nytimes.com/interactive/2024/upshot/buy-rent-calculator.html
