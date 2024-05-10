@@ -34,7 +34,7 @@ https://nytimes.com/2024/05/10/nyregion/trump-hush-money-case-merchan-stormy-tak
 `Clear Channel, which manages many of the advertisements in the area, said a provocative billboard for a Molly Baz recipe was “flagged for review.”`\
 https://nytimes.com/2024/05/10/style/lactation-cookies-billboard.html
 
-**High civilian casualties raised questions about whether Israel was doing what it could to limit harm.**\
+**High civilian casualties raise questions about whether Israel is doing enough to limit harm, the report says.**\
 `A State Department report says U.S. weapons might have been used in violating humanitarian law, but does not make a specific enough finding to trigger punitive action against Israel.`\
 https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/biden-israel-us-weapons-gaza
 
