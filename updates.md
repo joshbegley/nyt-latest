@@ -1,3 +1,7 @@
+**Police Clear Protesters From University of Arizona**\
+`The move came hours before the school’s graduation ceremony was scheduled to be held.`\
+https://nytimes.com/2024/05/10/us/police-clear-protesters-from-university-of-arizona.html
+
 **People leaving Rafah describe yet another fearful flight from Israeli assaults.**\
 `By Raja Abdulrahim and Bilal Shbair`\
 https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/people-leaving-rafah-describe-yet-another-fearful-flight-from-israeli-assaults
