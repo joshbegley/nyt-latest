@@ -1,3 +1,7 @@
+**U.S. Military’s Plea to Israel: Do More to Protect Gazans in War Zone**\
+`The Biden administration says it is still waiting to see a detailed plan for how Israeli forces plan to evacuate civilians from the city of Rafah.`\
+https://nytimes.com/2024/05/10/us/politics/us-military-israel-gaza.html
+
 **In This ‘Lord of the Rings’ Adaptation, the Hobbits Yodel**\
 `A quirky and joyful play based on J.R.R. Tolkien’s books joined weightier works at this year’s Theatertreffen drama festival.`\
 https://nytimes.com/2024/05/10/theater/theatertreffen-berlin.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/arts/music/eurovision-odds-favorites.html
 **Steve McQueen, on a Different Wavelength**\
 `The artist-turned-film director finds new depths in “Bass,” an immersive environment of light and sound in Dia Beacon keyed to Black history and “where we can go from here.”`\
 https://nytimes.com/2024/05/10/arts/design/steve-mcqueen-filmmaker-art-dia-beacon-bass.html
-
-**With Conflicts at Home, Eric Adams Arrives in Rome to Discuss Peace**\
-`New York City’s mayor will attend a conference on peace during a three-day trip to Rome and the Vatican, where he is expected to meet Pope Francis.`\
-https://nytimes.com/2024/05/10/nyregion/eric-adams-rome.html
 

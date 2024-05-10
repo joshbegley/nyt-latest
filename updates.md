@@ -1,3 +1,7 @@
+**U.S. Military’s Plea to Israel: Do More to Protect Gazans in War Zone**\
+`The Biden administration says it is still waiting to see a detailed plan for how Israeli forces plan to evacuate civilians from the city of Rafah.`\
+https://nytimes.com/2024/05/10/us/politics/us-military-israel-gaza.html
+
 **In This ‘Lord of the Rings’ Adaptation, the Hobbits Yodel**\
 `A quirky and joyful play based on J.R.R. Tolkien’s books joined weightier works at this year’s Theatertreffen drama festival.`\
 https://nytimes.com/2024/05/10/theater/theatertreffen-berlin.html
