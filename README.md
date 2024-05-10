@@ -1,3 +1,11 @@
+**Union Theological Seminary will divest from holdings that profit from the war in Gaza.**\
+`By Anemona Hartocollis and Shawn Hubler`\
+https://nytimes.com/live/2024/05/09/us/college-campus-protests/union-theological-seminary-divest-israel
+
+**Colson Whitehead Cancels His Commencement Speech at UMass Amherst**\
+`The author said he made the decision after the university called the police to remove peaceful protesters from their encampments.`\
+https://nytimes.com/2024/05/09/us/colson-whitehead-umass-commencement-speech.html
+
 **Police Arrest M.I.T. Protesters After Suspensions Ramp Up Tension**\
 `Several people were arrested after blocking access to a campus parking garage, but it was unclear what charges they would face.`\
 https://nytimes.com/2024/05/09/us/mit-police-protesters-arrests.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/09/us/roger-fortson-police-shooting-florida.html
 **Japanese American Civil Rights Group Pushes for Gaza Cease-Fire**\
 `The call for a truce followed months of pressure from younger members who believed the group had a duty to stand up for Palestinians.`\
 https://nytimes.com/2024/05/09/world/middleeast/jacl-israel-gaza-cease-fire.html
-
-**How to Create a Society That Prizes Decency**\
-`It starts with keeping our humanity and recognizing it in others.`\
-https://nytimes.com/2024/05/09/opinion/polarization-biden-america.html
-
-**Give Me Laundry Liberty or Give Me Death!**\
-`MAGA Republicans’ obsession with woke washing machines.`\
-https://nytimes.com/2024/05/09/opinion/republicans-home-appliances.html
 
