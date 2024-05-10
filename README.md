@@ -1,3 +1,7 @@
+**Christie’s Website Is Brought Down by Hackers Days Before $840 Million Auction**\
+`The auctioneer’s website was taken offline on Thursday evening and remained down on Friday, days before its spring auctions were set to begin.`\
+https://nytimes.com/2024/05/10/arts/design/christies-cyberattack-website.html
+
 **Ted Cruz, Better Known For Derailing Bills, Tries on a New Hat: Legislator**\
 `The Texas Republican, who made a name for himself trying to shut down the government over the Affordable Care Act, took on an unfamiliar role as a critical player in pushing through a major aviation bill.`\
 https://nytimes.com/2024/05/10/us/politics/ted-cruz-legislation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/arts/music/robert-ashley-foreign-experiences-roul
 **California Will Add a Fixed Charge to Electric Bills and Reduce Rates**\
 `Officials said the decision would lower bills and encourage people to use cars and appliances that did not use fossil fuels, but some experts said it would discourage energy efficiency.`\
 https://nytimes.com/2024/05/10/business/energy-environment/california-electric-bills-fixed-charge.html
-
-**Film Academy Looks Overseas for Donors**\
-`The Academy of Motion Picture Arts and Sciences has announced a global $500 million campaign to shore up its financial future.`\
-https://nytimes.com/2024/05/10/movies/academy-motion-pictures-overseas-donors.html
 
