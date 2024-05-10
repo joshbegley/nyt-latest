@@ -1,5 +1,9 @@
 **Get Ready for a Solar Storm to (Maybe) Light Up the Sky**\
 `The National Oceanic and Atmospheric Administration issued a rare warning, saying that solar activity could cause disruptions. But there is no need for concern.`\
+https://nytimes.com/2024/05/10/science/northern-lights-aurora-borealis.html
+
+**Get Ready for a Solar Storm to (Maybe) Light Up the Sky**\
+`The National Oceanic and Atmospheric Administration issued a rare warning, saying that solar activity could cause disruptions. But there is no need for concern.`\
 https://nytimes.com/2024/05/10/science/northern-lights-aurora-borealis-please.html
 
 **The Table Is Set for Michael Cohen to Testify Against Trump**\
