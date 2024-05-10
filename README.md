@@ -1,3 +1,19 @@
+**Aid for Gazans Has Come to a Near-Total Halt**\
+`Also, A.I.Phones and Eurovision. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/05/10/briefing/gaza-aid-artificial-intelligence-apple-iphone.html
+
+**Target Scales Back Pride Month Displays After Backlash Last Year**\
+`It said Pride merchandise would be available on its website and in select stores next month. In 2023, the retailer featured the goods widely.`\
+https://nytimes.com/2024/05/10/business/target-pride-month-merchandise.html
+
+**U.C.L.A. Academic Senate Will Consider Rebuking Chancellor**\
+`Many members believe that the chancellor, Gene Block, failed to protect students and was too quick to have police arrest students and clear an encampment.`\
+https://nytimes.com/2024/05/10/us/ucla-academic-senate-gene-block.html
+
+**What’s Your Favorite Soundtrack? We Want to Know.**\
+`We’re asking readers to share the movie-related albums that they return to again and again.`\
+https://nytimes.com/2024/05/10/movies/favorite-soundtrack.html
+
 **Raunch and Business Records: 5 Takeaways From Trump’s Criminal Trial**\
 `The fourth week of the trial interspersed intense and emotional testimony with talk of documents and chains of custody.`\
 https://nytimes.com/2024/05/10/nyregion/trump-hush-money-case-merchan-stormy-takeaways.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/05/10/nyregion/wild-turkey-manhattan.html
 **David Shapiro, Who Gained Fame in Poetry and Protest, Dies at 77**\
 `A renowned member of the New York School of poets, he also found accidental notoriety when he was photographed during the 1968 uprising at Columbia University.`\
 https://nytimes.com/2024/05/10/books/david-shapiro-dead.html
-
-**Talking to Leigh Bardugo, Fantasy Superstar**\
-`The best-selling author of dark fantasy novels for Y.A. and adult audiences discusses her career and her stand-alone new historical fantasy, “The Familiar.”`\
-https://nytimes.com/2024/05/10/books/review/podcast-leigh-bardugo-interview.html
-
-**U.N. General Assembly Backs Palestinian Membership Bid**\
-`The United Nations General Assembly approved the resolution by a vote of 143 to 9 with 25 nations abstaining. The Assembly can only grant full membership with the approval of the Security Council.`\
-https://nytimes.com/video/world/middleeast/100000009462938/un-resolution-palestine-israel.html
-
-**As Israel and Egypt Spar, Aid to Gaza Dries Up**\
-`With no resumption of deliveries in sight, officials fear the territory’s threadbare humanitarian relief effort could collapse altogether.`\
-https://nytimes.com/2024/05/10/world/middleeast/israel-egypt-gaza-aid.html
-
-**It’s Mother’s Day, and I’ll Sleep, Dance, Camp (or Cry) if I Want To**\
-`Some women prefer to spend Mother’s Day without the very people who made them one.`\
-https://nytimes.com/2024/05/10/style/mothers-day-what-to-do.html
 
