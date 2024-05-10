@@ -1,3 +1,7 @@
+**U.N. agency that helps Palestinians says it has closed its headquarters in East Jerusalem after attacks and fire.**\
+`The leader of the agency said Israeli residents had set the fire, which caused extensive damage, but that no staff had been injured.`\
+https://nytimes.com/2024/05/09/world/middleeast/unrwa-headquarters-jerusalem-arson.html
+
 **Effort to Keep Biden on the Ballot in Ohio Stalls Out Ahead of Deadline**\
 `Ohio’s Republican secretary of state said the Legislature had until Thursday to fix a procedural issue with President Biden’s nomination.`\
 https://nytimes.com/2024/05/09/us/politics/biden-ohio-ballot.html
@@ -29,12 +33,4 @@ https://nytimes.com/2024/05/09/world/africa/chad-election.html
 **In Sex Crimes Cases, New York Weighs Allowing Evidence of Prior Bad Acts**\
 `The overturning of Harvey Weinstein’s conviction has prompted New York lawmakers to introduce bills that would allow prosecutors to bring up a defendant’s past in sex crimes cases.`\
 https://nytimes.com/2024/05/09/nyregion/weinstein-testimony-victims.html
-
-**President Biden Just Made His Biggest Blunder**\
-`The consequences of Biden’s decision to withhold munitions from Israel could be the opposite of what he intends.`\
-https://nytimes.com/2024/05/09/opinion/president-bidens-biggest-blunder.html
-
-**Pro-Palestinian Encampment at Penn Grows as Commencement Nears**\
-`When asked about the protests, Gov. Josh Shapiro of Pennsylvania said on Thursday that it was “past time” for Penn’s administration to clear the encampment.`\
-https://nytimes.com/2024/05/09/us/penn-palestinian-encampment.html
 
