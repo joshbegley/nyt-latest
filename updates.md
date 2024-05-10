@@ -1,3 +1,11 @@
+**Justice Kavanaugh on the Presidency, the Court and Taylor Swift**\
+`In a public interview at a judicial conference, the justice used historical parallels and sports analogies to sketch out his views on the Supreme Court’s past and future.`\
+https://nytimes.com/2024/05/10/us/brett-kavanaugh-presidents-supreme-court.html
+
+**Two Universities Cancel Speeches by U.N. Ambassador**\
+`Invitations to Ambassador Linda Thomas-Greenfield were withdrawn by Xavier University and the University of Vermont because of student objections to American support for Israel.`\
+https://nytimes.com/2024/05/10/us/xavier-vermont-cancel-linda-thomas-greenfield.html
+
 **Biden Administration to Pay Dairy Farmers for Bird Flu Protective Measures**\
 `The payment system amounted to one of the most forceful actions taken so far by agriculture officials who have raced to keep up with the spread of the virus among dairy cows.`\
 https://nytimes.com/2024/05/10/us/politics/dairy-farms-bird-flu-protection.html
