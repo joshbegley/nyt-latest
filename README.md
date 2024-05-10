@@ -1,3 +1,7 @@
+**Transcript of Trump Manhattan Trial, May 9, 2024**\
+`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
+https://nytimes.com/interactive/2024/05/10/nyregion/trump-hush-money-trial-transcript-may-9.html
+
 **What We Know About Where Aid Can Enter Gaza**\
 `A look at the humanitarian assistance getting into the Gaza Strip by land, air and sea.`\
 https://nytimes.com/2024/05/10/world/middleeast/gaza-aid-border-crossing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/science/northern-lights-aurora-borealis.html
 **The Table Is Set for Michael Cohen to Testify Against Trump**\
 `The question is whether Cohen can keep his mouth shut about Trump outside the courtroom.`\
 https://nytimes.com/live/2024/05/07/opinion/thepoint/prosecution-ready-cohen-trump
-
-**Another Time Trump Was Stuck in Court**\
-`Not as a defendant, but as a possible juror.`\
-https://nytimes.com/2024/05/10/us/politics/trump-court-jury-duty.html
 
