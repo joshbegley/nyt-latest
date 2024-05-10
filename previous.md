@@ -1,3 +1,7 @@
+**How Pro-Palestinian Students Pushed Trinity College Dublin to Divest**\
+`A surge of attention hit Ireland’s most prestigious university over protests that involved Israel, Gaza and the famed medieval Book of Kells.`\
+https://nytimes.com/2024/05/10/world/europe/trinity-college-dublin-protests.html
+
 **How Should an Amy Winehouse Movie Be?**\
 `Several depictions of the singer’s life have explored her tense relationship with fame. The new biopic “Back to Black” instead centers her romantic life.`\
 https://nytimes.com/2024/05/10/movies/back-to-black-amy-winehouse.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/opinion/republicans-protest-israel.html
 **5 Things to Do This Weekend**\
 `A selection of entertainment highlights this weekend, including the film “Kingdom of the Planet of the Apes.”`\
 https://nytimes.com/interactive/2024/05/10/arts/weekend-editors-picks-kingdom-of-the-planet-of-the-apes.html
-
-**I’m Middle-Aged, and I Talk to Myself All Day**\
-`There, I said it.`\
-https://nytimes.com/2024/05/10/well/talking-to-yourself-age.html
 

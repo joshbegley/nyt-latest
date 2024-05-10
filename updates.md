@@ -1,3 +1,7 @@
+**How Pro-Palestinian Students Pushed Trinity College Dublin to Divest**\
+`A surge of attention hit Ireland’s most prestigious university over protests that involved Israel, Gaza and the famed medieval Book of Kells.`\
+https://nytimes.com/2024/05/10/world/europe/trinity-college-dublin-protests.html
+
 **‘Black Twitter’: Movements, Memes and Crying Jordan**\
 `This new Hulu docuseries explores how a social media subculture influenced American culture at large.`\
 https://nytimes.com/2024/05/10/arts/television/black-twitter-hulu-memes-crying-jordan.html
