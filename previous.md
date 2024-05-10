@@ -18,7 +18,7 @@ https://nytimes.com/2024/05/09/us/roger-fortson-police-shooting-florida.html
 `The call for a truce followed months of pressure from younger members who believed the group had a duty to stand up for Palestinians.`\
 https://nytimes.com/2024/05/09/world/middleeast/jacl-israel-gaza-cease-fire.html
 
-**Healing the American Soul**\
+**How to Create a Society That Prizes Decency**\
 `It starts with keeping our humanity and recognizing it in others.`\
 https://nytimes.com/2024/05/09/opinion/polarization-biden-america.html
 

@@ -1,3 +1,7 @@
+**How to Create a Society That Prizes Decency**\
+`It starts with keeping our humanity and recognizing it in others.`\
+https://nytimes.com/2024/05/09/opinion/polarization-biden-america.html
+
 **U.N. agency that helps Palestinians says it has closed its headquarters in East Jerusalem after attacks and fire.**\
 `The leader of the agency said Israeli residents had set the fire, which caused extensive damage, but that no staff had been injured.`\
 https://nytimes.com/2024/05/09/world/middleeast/unrwa-headquarters-jerusalem-arson.html
