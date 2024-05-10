@@ -1,3 +1,11 @@
+**Israel May Have Broken International Law in Gaza, State Dept. Says**\
+`A State Department report says U.S. weapons might have been used in violating humanitarian law, but does not make a specific enough finding to trigger punitive action against Israel.`\
+https://nytimes.com/2024/05/10/world/middleeast/biden-israel-us-weapons-gaza.html
+
+**‘Who Is That Color?’: A Makeup Brand Is Said to Miss the Mark by Several Shades**\
+`Beauty influencers have criticized Youthforia, saying the brand didn’t adequately test the darkest shade of its Date Night Skin Tint Serum Foundation.`\
+https://nytimes.com/2024/05/10/style/youthforia-shade-600-foundation-reviews.html
+
 **‘She Is Such an Athlete’: Astoria the Wild Turkey Is a Manhattan Celebrity**\
 `The wild turkey wandered into Midtown Manhattan this week, so far evading attempts to capture her. You may find her at Saks Fifth Avenue, at high-end Italian restaurants or roosting in nearby trees.`\
 https://nytimes.com/2024/05/10/nyregion/wild-turkey-manhattan.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/10/opinion/bidens-real-mistake-in-pausing-military-a
 **Trump Trial Judge Cracks Down on Cohen’s Taunting of Ex-President**\
 `Ahead of Michael D. Cohen’s testimony Monday, the judge told prosecutors to keep him quiet about Donald J. Trump’s criminal case.`\
 https://nytimes.com/2024/05/10/nyregion/trump-michael-cohen-trial.html
-
-**Justice Kavanaugh on the Presidency, the Court and Taylor Swift**\
-`In a public interview at a judicial conference, the justice used historical parallels and sports analogies to sketch out his views on the Supreme Court’s past and future.`\
-https://nytimes.com/2024/05/10/us/brett-kavanaugh-presidents-supreme-court.html
-
-**Two Universities Cancel Speeches by U.N. Ambassador**\
-`Invitations to Ambassador Linda Thomas-Greenfield were withdrawn by Xavier University and the University of Vermont because of student objections to American support for Israel.`\
-https://nytimes.com/2024/05/10/us/xavier-vermont-cancel-linda-thomas-greenfield.html
 
