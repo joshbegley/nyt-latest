@@ -1,3 +1,7 @@
+**U.N. General Assembly Backs Palestinian Membership Bid**\
+`The United Nations General Assembly approved the resolution by a vote of 143 to 9 with 25 nations abstaining. The Assembly can only grant full membership with the approval of the Security Council.`\
+https://nytimes.com/video/world/middleeast/100000009462938/un-resolution-palestine-israel.html
+
 **As Israel and Egypt Spar, Aid to Gaza Dries Up**\
 `With no resumption of deliveries in sight, officials fear the territory’s threadbare humanitarian relief effort could collapse altogether.`\
 https://nytimes.com/2024/05/10/world/middleeast/israel-egypt-gaza-aid.html
