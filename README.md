@@ -1,3 +1,11 @@
+**More than 100,000 flee Rafah, the U.N. says, as Israeli bombardment intensifies.**\
+`Three days after an evacuation`\
+https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/more-than-100000-flee-rafah-the-un-says-as-israeli-bombardment-intensifies
+
+**Biden Is Not the First U.S. President to Cut Off Weapons to Israel**\
+`Ronald Reagan also used the power of American arms to influence Israeli war policy. The comparison underscores how much the politics of Israel have changed in the United States since the 1980s.`\
+https://nytimes.com/2024/05/10/us/politics/biden-reagan-israel.html
+
 **Russia Mounting New Border Assaults in North, Ukraine Says**\
 `Armored columns tried to punch through at several points, the military said, raising pressure on already stretched Ukrainian forces.`\
 https://nytimes.com/2024/05/10/world/europe/russia-border-assaults-north-ukraine.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/05/10/nyregion/trump-trial-hush-money
 **What Did P.S.G.’s Money Buy?**\
 `The club’s superstar era cost billions and upended European soccer. But as it exits the Champions League again and braces for the departure of its star Kylian Mbappé, what was it all for?`\
 https://nytimes.com/2024/05/10/world/europe/psg-mbappe-real-madrid.html
-
-**Cannabis Rollout Hampered by Inexperienced Leadership, N.Y. Report Finds**\
-`A New York State review of problems in the Office of Cannabis Management found that 90 percent of applicants for marijuana businesses failed to get licenses.`\
-https://nytimes.com/2024/05/10/nyregion/cannabis-agency-ny-report.html
-
-**Why Companies Are Nervous About the Consumer**\
-`On earnings calls, dozens of corporate executives have cited a slowdown in spending to explain why sales are slipping.`\
-https://nytimes.com/2024/05/10/business/dealbook/companies-nervous-consumer-profit.html
 
