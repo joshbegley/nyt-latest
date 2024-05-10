@@ -1,3 +1,7 @@
+**U.S.C. Celebrates in a Brief Moment of Joy, With No Mention of Campus Tumult**\
+`The university held a hastily assembled party for its graduates instead of its usual commencement ceremony.`\
+https://nytimes.com/2024/05/10/us/usc-graduation-campus-protests.html
+
 **Britain Shakes Off Recession as Economy Grows Faster Than Expected**\
 `Gross domestic product increased 0.6 percent in the first quarter, after shrinking the two previous quarters.`\
 https://nytimes.com/2024/05/10/business/britain-economy-growth-recession.html

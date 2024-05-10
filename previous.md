@@ -1,3 +1,7 @@
+**U.S.C. Celebrates in a Brief Moment of Joy, With No Mention of Campus Tumult**\
+`The university held a hastily assembled party for its graduates instead of its usual commencement ceremony.`\
+https://nytimes.com/2024/05/10/us/usc-graduation-campus-protests.html
+
 **Britain Shakes Off Recession as Economy Grows Faster Than Expected**\
 `Gross domestic product increased 0.6 percent in the first quarter, after shrinking the two previous quarters.`\
 https://nytimes.com/2024/05/10/business/britain-economy-growth-recession.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/pageoneplus/quotation-of-the-day-beneath-a-tiny-p
 **The Plot of a Rom-Com, In Real Life**\
 `Rober Lawrence and Shawna Rodrigues, high school crushes, waited until the third act to make their love story official.`\
 https://nytimes.com/2024/05/10/style/rober-lawrence-shawna-rodrigues-wedding.html
-
-**Their ‘Date Non-Date’ Led to a Real One**\
-`Megan Lerchenmuller and Glenn Josey, who worked together on a construction project, had drinks and dinner as colleagues. They soon began dating.`\
-https://nytimes.com/2024/05/10/style/megan-lerchenmuller-glenn-josey-wedding.html
 
