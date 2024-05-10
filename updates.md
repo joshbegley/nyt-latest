@@ -1,3 +1,7 @@
+**Is It Better to Rent or Buy?**\
+`The choice between buying a home and renting one is among the biggest financial decisions that many adults make.`\
+https://nytimes.com/interactive/2024/upshot/buy-rent-calculator.html
+
 **Cease-fire talks hit snag, in part, on how many hostages would be released in a first phase, officials say.**\
 `By Adam Rasgon and Julian E. Barnes`\
 https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/cease-fire-talks-hit-snag-in-part-on-how-many-hostages-would-be-released-in-a-first-phase-officials-say

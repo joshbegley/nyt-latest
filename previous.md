@@ -1,3 +1,7 @@
+**Is It Better to Rent or Buy?**\
+`The choice between buying a home and renting one is among the biggest financial decisions that many adults make.`\
+https://nytimes.com/interactive/2024/upshot/buy-rent-calculator.html
+
 **Cease-fire talks hit snag, in part, on how many hostages would be released in a first phase, officials say.**\
 `By Adam Rasgon and Julian E. Barnes`\
 https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/cease-fire-talks-hit-snag-in-part-on-how-many-hostages-would-be-released-in-a-first-phase-officials-say
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/movies/favorite-soundtrack.html
 **Raunch and Business Records: 5 Takeaways From Trump’s Criminal Trial**\
 `The fourth week of the trial interspersed intense and emotional testimony with talk of documents and chains of custody.`\
 https://nytimes.com/2024/05/10/nyregion/trump-hush-money-case-merchan-stormy-takeaways.html
-
-**Too Racy for Times Square? An Ad for Lactation Cookies Is Replaced.**\
-`Clear Channel, which manages many of the advertisements in the area, said a provocative billboard for a Molly Baz recipe was “flagged for review.”`\
-https://nytimes.com/2024/05/10/style/lactation-cookies-billboard.html
 
