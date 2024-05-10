@@ -1,3 +1,7 @@
+**How a Remote Australian Town Nearly Ran Out of Food**\
+`Many isolated Indigenous communities are dependent on fragile supply chains. This year, floods made that dramatically clear.`\
+https://nytimes.com/2024/05/10/world/australia/lajamanu-food-supply.html
+
 **10mideast-crisis**\
 `White House Aide Warns Israel Against ‘Smashing Into Rafah’`\
 https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/nyregion/citing-safety-new-york-moves-mentally-il
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/05/10/crosswords/spelling-bee-forum.html
-
-**The Connections Companion No. 334**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/10/crosswords/connections-companion.html
 
