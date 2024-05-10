@@ -1,3 +1,11 @@
+**A Global Lesson from Britain’s Crumbling Conservative Party**\
+`Sometimes, even as the far right rises, the center holds.`\
+https://nytimes.com/2024/05/10/world/europe/a-global-lesson-from-britains-crumbling-conservative-party.html
+
+**Bill Holman, Whose Arrangements Shaped West Coast Jazz, Dies at 96**\
+`His economical, linear writing helped define the sound of Stan Kenton’s band. He also led his own 16-piece ensemble for many decades.`\
+https://nytimes.com/2024/05/10/arts/music/bill-holman-dead.html
+
 **Biden Campaign Courts Wealthy Donors on West Coast Fund-Raising Trip**\
 `The trip was a second major swing through California for the Biden campaign, and attracted a host of wealthy tech executives.`\
 https://nytimes.com/2024/05/10/us/politics/biden-west-coast-fund-raising.html
