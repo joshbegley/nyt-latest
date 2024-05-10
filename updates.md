@@ -1,3 +1,11 @@
+**David Shapiro, Who Gained Fame in Poetry and Protest, Dies at 77**\
+`A renowned member of the New York School of poets, he also found accidental notoriety when he was photographed during the 1968 uprising at Columbia University.`\
+https://nytimes.com/2024/05/10/books/david-shapiro-dead.html
+
+**Talking to Leigh Bardugo, Fantasy Superstar**\
+`The best-selling author of dark fantasy novels for Y.A. and adult audiences discusses her career and her stand-alone new historical fantasy, “The Familiar.”`\
+https://nytimes.com/2024/05/10/books/review/podcast-leigh-bardugo-interview.html
+
 **U.N. General Assembly Backs Palestinian Membership Bid**\
 `The United Nations General Assembly approved the resolution by a vote of 143 to 9 with 25 nations abstaining. The Assembly can only grant full membership with the approval of the Security Council.`\
 https://nytimes.com/video/world/middleeast/100000009462938/un-resolution-palestine-israel.html
