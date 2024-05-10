@@ -1,3 +1,7 @@
+**One Who Can’t Handle Their Moonshine Well**\
+`Jesse Cohn makes his New York Times Crossword debut, crossing that accomplishment off his bucket list.`\
+https://nytimes.com/2024/05/09/crosswords/daily-puzzle-2024-05-10.html
+
 **Union Theological Seminary will divest from holdings that profit from the war in Gaza.**\
 `By Anemona Hartocollis and Shawn Hubler`\
 https://nytimes.com/live/2024/05/09/us/college-campus-protests/union-theological-seminary-divest-israel
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/05/07/opinion/thepoint/trump-stormy-daniels-mistri
 **Sheriff Releases Body Camera Footage in Police Killing of Airman in His Home**\
 `The footage shows that the airman was holding a gun when he opened his door to a deputy, who then began firing. The airman’s family has called the killing unjustified.`\
 https://nytimes.com/2024/05/09/us/roger-fortson-police-shooting-florida.html
-
-**Japanese American Civil Rights Group Pushes for Gaza Cease-Fire**\
-`The call for a truce followed months of pressure from younger members who believed the group had a duty to stand up for Palestinians.`\
-https://nytimes.com/2024/05/09/world/middleeast/jacl-israel-gaza-cease-fire.html
 

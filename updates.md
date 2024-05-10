@@ -1,3 +1,7 @@
+**One Who Can’t Handle Their Moonshine Well**\
+`Jesse Cohn makes his New York Times Crossword debut, crossing that accomplishment off his bucket list.`\
+https://nytimes.com/2024/05/09/crosswords/daily-puzzle-2024-05-10.html
+
 **Union Theological Seminary will divest from holdings that profit from the war in Gaza.**\
 `By Anemona Hartocollis and Shawn Hubler`\
 https://nytimes.com/live/2024/05/09/us/college-campus-protests/union-theological-seminary-divest-israel
