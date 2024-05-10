@@ -1,4 +1,8 @@
 **10campus-protests**\
+`Police Make Arrests and Clear Encampments at M.I.T. and Penn`\
+https://nytimes.com/live/2024/05/10/us/college-campus-protests
+
+**10campus-protests**\
 `Police Enter Encampments at M.I.T. and Penn`\
 https://nytimes.com/live/2024/05/10/us/college-campus-protests
 

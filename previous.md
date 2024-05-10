@@ -23,7 +23,7 @@ https://nytimes.com/2024/05/10/business/dealbook/companies-nervous-consumer-prof
 https://nytimes.com/live/2024/05/10/us/college-campus-protests/heres-the-latest-on-campus-protests
 
 **10campus-protests**\
-`Police Enter Encampments at M.I.T. and Penn`\
+`Police Make Arrests and Clear Encampments at M.I.T. and Penn`\
 https://nytimes.com/live/2024/05/10/us/college-campus-protests
 
 **What to Watch This Weekend: A Tense Restaurant Drama**\
