@@ -18,7 +18,7 @@ https://nytimes.com/2024/05/10/us/politics/us-military-israel-gaza.html
 `A quirky and joyful play based on J.R.R. Tolkien’s books joined weightier works at this year’s Theatertreffen drama festival.`\
 https://nytimes.com/2024/05/10/theater/theatertreffen-berlin.html
 
-**Brian Wilson, Beach Boys’ Visionary, Is Placed Under Conservatorship**\
+**Brian Wilson, Beach Boys Visionary, Is Placed Under Conservatorship**\
 `Mr. Wilson, who has a neurocognitive disorder, had been cared for by his wife until she died in January.`\
 https://nytimes.com/2024/05/10/arts/brian-wilson-conservatorship-beach-boys.html
 
