@@ -1,3 +1,7 @@
+**10trump-trial**\
+`Live Updates: Former White House Aide Returns to Stand in Trump Trial`\
+https://nytimes.com/live/2024/05/10/nyregion/trump-trial-hush-money
+
 **More than 100,000 flee Rafah, the U.N. says, as Israeli bombardment intensifies.**\
 `Three days after an evacuation`\
 https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/more-than-100000-flee-rafah-the-un-says-as-israeli-bombardment-intensifies

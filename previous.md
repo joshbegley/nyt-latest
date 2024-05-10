@@ -31,7 +31,7 @@ https://nytimes.com/2024/05/10/business/growth-value-stocks-index-funds.html
 https://nytimes.com/2024/05/10/us/penn-encampment-police.html
 
 **10trump-trial**\
-`Live Updates: Former White House Aide Will Return to Stand in Trump Trial`\
+`Live Updates: Former White House Aide Returns to Stand in Trump Trial`\
 https://nytimes.com/live/2024/05/10/nyregion/trump-trial-hush-money
 
 **What Did P.S.G.’s Money Buy?**\
