@@ -1,3 +1,7 @@
+**People leaving Rafah describe yet another fearful flight from Israeli assaults.**\
+`By Raja Abdulrahim and Bilal Shbair`\
+https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/people-leaving-rafah-describe-yet-another-fearful-flight-from-israeli-assaults
+
 **Christie’s Website Is Brought Down by Hackers Days Before $840 Million Auction**\
 `The auctioneer’s website was taken offline on Thursday evening and remained down on Friday, days before its spring auctions were set to begin.`\
 https://nytimes.com/2024/05/10/arts/design/christies-cyberattack-website.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/opinion/anti-china-sentiment.html
 **Review: An Opera Saw Red-Pill Culture Coming. Now, It’s Back.**\
 `Robert Ashley’s 1994 opera “Foreign Experiences,” a portrait of a paranoid mind in free fall, is part of a wave of revivals following his death.`\
 https://nytimes.com/2024/05/10/arts/music/robert-ashley-foreign-experiences-roulette-review.html
-
-**California Will Add a Fixed Charge to Electric Bills and Reduce Rates**\
-`Officials said the decision would lower bills and encourage people to use cars and appliances that did not use fossil fuels, but some experts said it would discourage energy efficiency.`\
-https://nytimes.com/2024/05/10/business/energy-environment/california-electric-bills-fixed-charge.html
 
