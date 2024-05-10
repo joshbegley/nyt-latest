@@ -1,3 +1,7 @@
+**What to Watch This Weekend: A Tense Restaurant Drama**\
+`Looking for some kitchen adrenaline between seasons of “The Bear”? Try the British series “Boiling Point” on Netflix.`\
+https://nytimes.com/2024/05/10/arts/television/boiling-point-netflix.html
+
 **How a Village Comes to Life in ‘Kingdom of the Planet of the Apes’**\
 `The director Wes Ball narrates a sequence from his film.`\
 https://nytimes.com/2024/05/10/movies/kingdom-of-the-planet-of-the-apes-clip.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/arts/music/andra-day-cassandra-cherith-review.htm
 **Trump Is Not Invincible**\
 `It’s never good to be on trial, no matter who you are.`\
 https://nytimes.com/2024/05/10/opinion/trump-trial-not-invincible.html
-
-**‘Black Twitter’: Movements, Memes and Crying Jordan**\
-`This new Hulu docuseries explores how a social media subculture influenced American culture at large.`\
-https://nytimes.com/2024/05/10/arts/television/black-twitter-hulu-memes-crying-jordan.html
 
