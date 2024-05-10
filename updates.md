@@ -1,3 +1,7 @@
+**How a Village Comes to Life in ‘Kingdom of the Planet of the Apes’**\
+`The director Wes Ball narrates a sequence from his film.`\
+https://nytimes.com/2024/05/10/movies/kingdom-of-the-planet-of-the-apes-clip.html
+
 **‘Kingdom of the Planet of the Apes’ | Anatomy of a Scene**\
 `The director Wes Ball narrates a sequence from his film.`\
 https://nytimes.com/video/movies/100000009461046/kingdom-of-the-planet-of-the-apes-scene.html

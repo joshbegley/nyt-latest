@@ -1,3 +1,7 @@
+**How a Village Comes to Life in ‘Kingdom of the Planet of the Apes’**\
+`The director Wes Ball narrates a sequence from his film.`\
+https://nytimes.com/2024/05/10/movies/kingdom-of-the-planet-of-the-apes-clip.html
+
 **‘Kingdom of the Planet of the Apes’ | Anatomy of a Scene**\
 `The director Wes Ball narrates a sequence from his film.`\
 https://nytimes.com/video/movies/100000009461046/kingdom-of-the-planet-of-the-apes-scene.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/opinion/trump-trial-not-invincible.html
 **‘Black Twitter’: Movements, Memes and Crying Jordan**\
 `This new Hulu docuseries explores how a social media subculture influenced American culture at large.`\
 https://nytimes.com/2024/05/10/arts/television/black-twitter-hulu-memes-crying-jordan.html
-
-**In ‘Power,’ Policing and Politics Are Inextricable**\
-`Though Yance Ford’s new Netflix documentary takes on a much-explored topic, its mix of personal and polemic makes for a strong argument.`\
-https://nytimes.com/2024/05/10/movies/yance-ford-power-netflix.html
 
