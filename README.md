@@ -1,3 +1,11 @@
+**It’s Mother’s Day, and I’ll Sleep, Dance, Camp (or Cry) if I Want To**\
+`Some women prefer to spend Mother’s Day without the very people who made them one.`\
+https://nytimes.com/2024/05/10/style/mothers-day-what-to-do.html
+
+**Biden’s Real Mistake in Pausing Military Aid to Israel**\
+`In how Biden made his announcement, the president enabled Netanyahu to look like an innocent victim`\
+https://nytimes.com/2024/05/10/opinion/bidens-real-mistake-in-pausing-military-aid-to-israel.html
+
 **Trump Trial Judge Cracks Down on Cohen’s Taunting of Ex-President**\
 `Ahead of Michael D. Cohen’s testimony Monday, the judge told prosecutors to keep him quiet about Donald J. Trump’s criminal case.`\
 https://nytimes.com/2024/05/10/nyregion/trump-michael-cohen-trial.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/10/magazine/museum-problematic-artist-ethics.html
 **No, Donald Trump, Biden’s Economy Is Not Like Weimar Germany’s**\
 `His account of rising prices is far off base. His plans could make them worse.`\
 https://nytimes.com/2024/05/10/opinion/trump-inflation-biden-economy.html
-
-**Is It an Art Show? A Dinner Party? A Fashion Extravaganza?**\
-`Roze Traore, a multitalented New York chef served up dinner inside a New York art gallery to show off paintings from his residency in Ivory Coast.`\
-https://nytimes.com/2024/05/10/style/roze-traore-hannah-traore-gallery.html
-
-**Jim Simons, Math Genius Who Conquered Wall Street, Dies at 86**\
-`Using advanced computers, he went from M.I.T. professor to multibillionaire. His Medallion fund had 66 percent average annual returns for decades.`\
-https://nytimes.com/2024/05/10/business/dealbook/jim-simons-dead.html
 
