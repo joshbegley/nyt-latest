@@ -1,3 +1,7 @@
+**‘Kingdom of the Planet of the Apes’ | Anatomy of a Scene**\
+`The director Wes Ball narrates a sequence from his film.`\
+https://nytimes.com/video/movies/100000009461046/kingdom-of-the-planet-of-the-apes-scene.html
+
 **The Debate Over Rafah**\
 `A look at the conflicting views of President Biden and Benjamin Netanyahu.`\
 https://nytimes.com/2024/05/10/briefing/rafah-israel-hamas-war-netanyahu-biden.html
