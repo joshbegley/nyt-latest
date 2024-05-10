@@ -1,3 +1,7 @@
+**High civilian casualties raise questions about whether Israel is doing enough to limit harm, the report says.**\
+`A State Department report says U.S. weapons might have been used in violating humanitarian law, but does not make a specific enough finding to trigger punitive action against Israel.`\
+https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/biden-israel-us-weapons-gaza
+
 **White House defends voting ‘no’ on U.N. resolution supporting Palestinian statehood.**\
 `By Erica L. Green`\
 https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/white-house-defends-voting-no-on-un-resolution-supporting-palestinian-statehood
