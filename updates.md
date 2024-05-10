@@ -1,3 +1,7 @@
+**The Debate Over Rafah**\
+`A look at the conflicting views of President Biden and Benjamin Netanyahu.`\
+https://nytimes.com/2024/05/10/briefing/rafah-israel-hamas-war-netanyahu-biden.html
+
 **10campus-protests**\
 `Police Make Arrests and Clear Encampments at M.I.T. and Penn`\
 https://nytimes.com/live/2024/05/10/us/college-campus-protests
