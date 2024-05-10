@@ -1,3 +1,7 @@
+**Jimmy Kimmel Recaps Stormy Daniels’s Testimony in Court**\
+`“Team Trump spent much of the day trying to paint Daniels as a sleazy, money-grubbing liar, which, if that is true, you can see why they hit it off,” Kimmel said.`\
+https://nytimes.com/2024/05/10/arts/television/jimmy-kimmel-stormy-daniels-trump.html
+
 **Word of the Day: reconnoiter**\
 `This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/05/10/learning/word-of-the-day-reconnoiter.html
