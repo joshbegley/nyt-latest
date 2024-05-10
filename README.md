@@ -1,3 +1,7 @@
+**U.N. General Assembly Backs Palestinian Membership Bid**\
+`The United Nations General Assembly approved the resolution by a vote of 143 to 9 with 25 nations abstaining. The Assembly can only grant full membership with the approval of the Security Council.`\
+https://nytimes.com/video/world/middleeast/100000009462938/un-resolution-palestine-israel.html
+
 **As Israel and Egypt Spar, Aid to Gaza Dries Up**\
 `With no resumption of deliveries in sight, officials fear the territory’s threadbare humanitarian relief effort could collapse altogether.`\
 https://nytimes.com/2024/05/10/world/middleeast/israel-egypt-gaza-aid.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/nyregion/giuliani-radio-suspended.html
 **The Best of Late Night This Week**\
 `The hosts couldn’t get enough of former President Donald Trump being held in contempt (again) in his criminal hush-money trial, or of Stormy Daniels’s testimony. They also talked about Robert F. Kennedy Jr.’s brain worm. Here’s what they had to say.`\
 https://nytimes.com/interactive/2024/05/10/arts/television/best-of-late-night-stormy-daniels.html
-
-**What Are a Museum’s Obligations When It Shows a ‘Problematic’ Artist?**\
-`The magazine’s Ethicist columnist on the responsibility an institution assumes once it exhibits an artist’s work.`\
-https://nytimes.com/2024/05/10/magazine/museum-problematic-artist-ethics.html
 
