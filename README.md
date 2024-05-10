@@ -1,3 +1,7 @@
+**What We Know About Where Aid Can Enter Gaza**\
+`A look at the humanitarian assistance getting into the Gaza Strip by land, air and sea.`\
+https://nytimes.com/2024/05/10/world/middleeast/gaza-aid-border-crossing.html
+
 **U.S.C. Valedictorian Graduates Without a Speech, but With Cheers**\
 `Asna Tabassum, whose speech was canceled by University of Southern California administrators, received plenty of support at an engineering school ceremony.`\
 https://nytimes.com/2024/05/10/us/usc-valedictorian-speech-graduation.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/07/opinion/thepoint/prosecution-ready-cohen-tru
 **Another Time Trump Was Stuck in Court**\
 `Not as a defendant, but as a possible juror.`\
 https://nytimes.com/2024/05/10/us/politics/trump-court-jury-duty.html
-
-**Aiming for Rosier Ties, Xi Wraps Up Europe Visit**\
-`The red carpet receptions China’s leader received in France, Serbia and Hungary helped recast a strained relationship with the continent.`\
-https://nytimes.com/2024/05/10/world/europe/xi-europe-diplomacy.html
 
