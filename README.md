@@ -1,3 +1,11 @@
+**A Global Lesson from Britain’s Crumbling Conservative Party**\
+`Sometimes, even as the far right rises, the center holds.`\
+https://nytimes.com/2024/05/10/world/europe/a-global-lesson-from-britains-crumbling-conservative-party.html
+
+**Bill Holman, Whose Arrangements Shaped West Coast Jazz, Dies at 96**\
+`His economical, linear writing helped define the sound of Stan Kenton’s band. He also led his own 16-piece ensemble for many decades.`\
+https://nytimes.com/2024/05/10/arts/music/bill-holman-dead.html
+
 **Biden Campaign Courts Wealthy Donors on West Coast Fund-Raising Trip**\
 `The trip was a second major swing through California for the Biden campaign, and attracted a host of wealthy tech executives.`\
 https://nytimes.com/2024/05/10/us/politics/biden-west-coast-fund-raising.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/10/us/politics/stephen-bannon-contempt-upheld.html
 **People leaving Rafah describe yet another fearful flight from Israeli assaults.**\
 `By Raja Abdulrahim and Bilal Shbair`\
 https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/people-leaving-rafah-describe-yet-another-fearful-flight-from-israeli-assaults
-
-**Christie’s Website Is Brought Down by Hackers Days Before $840 Million Auctions**\
-`The auctioneer’s website was taken offline on Thursday evening and remained down on Friday, days before its spring auctions were set to begin.`\
-https://nytimes.com/2024/05/10/arts/design/christies-cyberattack-website.html
-
-**Ted Cruz, Better Known For Derailing Bills, Tries on a New Hat: Legislator**\
-`The Texas Republican, who made a name for himself trying to shut down the government over the Affordable Care Act, took on an unfamiliar role as a critical player in pushing through a major aviation bill.`\
-https://nytimes.com/2024/05/10/us/politics/ted-cruz-legislation.html
 
