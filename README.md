@@ -1,3 +1,7 @@
+**Nancy Neveloff Dubler, Mediator for Life’s Final Moments, Dies at 82**\
+`A bioethicist, she pioneered bedside methods for helping patients, their families and doctors deal with anguishing life-or-death decisions in a high-tech age.`\
+https://nytimes.com/2024/05/10/health/nancy-neveloff-dead.html
+
 **Ilon Specht, Who Empowered Women With ‘I’m Worth It’ Ad, Dies at 81**\
 `She came up with the feminist campaign, for a hair color product, when challenging the notions of men at her ad agency.`\
 https://nytimes.com/2024/05/10/business/media/ilon-specht-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/white-hous
 **Campus Police Chief Is Put on Leave After Arizona State Arrests**\
 `The decision came after complaints were filed related to the actions of the chief in late April, when the campus police arrested dozens of people.`\
 https://nytimes.com/2024/05/10/us/police-chief-arizona-state.html
-
-**The Ugly Spirit of the Confederacy Remains Very Much Alive**\
-`In Virginia, a school board tries to pretend Confederate generals weren’t fighting for racism.`\
-https://nytimes.com/live/2024/05/07/opinion/thepoint/virginia-schools-confederate-generals
 
