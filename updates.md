@@ -1,3 +1,15 @@
+**Several Witnesses Have Brought Up Keith Schiller, Trump’s Bodyguard. Where Is He?**\
+`Stormy Daniels said that the bodyguard, Keith Schiller, got her phone number and invited her to dinner with Donald J. Trump. He has not testified in Mr. Trump’s criminal trial.`\
+https://nytimes.com/2024/05/10/nyregion/keith-schiller-trump-trial.html
+
+**The Big Number: $8 Billion**\
+`In a surprise announcement, bankruptcy lawyers for the cryptocurrency exchange FTX said customers would get all their money back, plus interest.`\
+https://nytimes.com/interactive/2024/05/10/business/ftx-bankruptcy-recovery.html
+
+**Book Club: Discuss ‘James,’ by Percival Everett, With Us**\
+`For The Book Review Podcast’s May book club, we’ll talk about “James,” Percival Everett’s radical reimagining of “Adventures of Huckleberry Finn.”`\
+https://nytimes.com/2024/05/10/books/review/james-percival-everett-book-club.html
+
 **Police Clear Protesters From University of Arizona**\
 `The move came hours before the school’s graduation ceremony was going to be held.`\
 https://nytimes.com/2024/05/10/us/police-clear-protesters-from-university-of-arizona.html
