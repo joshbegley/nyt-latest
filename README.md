@@ -1,3 +1,7 @@
+**Giuliani Is Suspended by WABC, and His Radio Show Is Canceled**\
+`The radio station disciplined Rudolph W. Giuliani after he violated company policy by trying to discuss the legitimacy of the 2020 election on the air.`\
+https://nytimes.com/2024/05/10/nyregion/giuliani-radio-suspended.html
+
 **The Best of Late Night This Week**\
 `The hosts couldn’t get enough of former President Donald Trump being held in contempt (again) in his criminal hush-money trial, or of Stormy Daniels’s testimony. They also talked about Robert F. Kennedy Jr.’s brain worm. Here’s what they had to say.`\
 https://nytimes.com/interactive/2024/05/10/arts/television/best-of-late-night-stormy-daniels.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/rafah-gaza
 **The Best White Sneakers**\
 `White sneakers pair with almost everything in your wardrobe. We found the best ones.`\
 https://nytimes.com/interactive/2024/05/10/smarter-living/wirecutter/best-white-sneakers.html
-
-**Apple Will Revamp Siri to Catch Up to Its Chatbot Competitors**\
-`Apple plans to announce that it will bring generative A.I. to iPhones after the company’s most significant reorganization in a decade.`\
-https://nytimes.com/2024/05/10/business/apple-siri-ai-chatgpt.html
 
