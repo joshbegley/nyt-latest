@@ -1,3 +1,11 @@
+**10trump-trial**\
+`Live Updates: Former White House Aide Will Return to Stand in Trump Trial`\
+https://nytimes.com/live/2024/05/10/nyregion/trump-trial-hush-money
+
+**What Did P.S.G.’s Money Buy?**\
+`The club’s superstar era cost billions and upended European soccer. But as it exits the Champions League again and braces for the departure of its star Kylian Mbappé, what was it all for?`\
+https://nytimes.com/2024/05/10/world/europe/psg-mbappe-real-madrid.html
+
 **Cannabis Rollout Hampered by Inexperienced Leadership, N.Y. Report Finds**\
 `A New York State review of problems in the Office of Cannabis Management found that 90 percent of applicants for marijuana businesses failed to get licenses.`\
 https://nytimes.com/2024/05/10/nyregion/cannabis-agency-ny-report.html

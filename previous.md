@@ -1,3 +1,11 @@
+**10trump-trial**\
+`Live Updates: Former White House Aide Will Return to Stand in Trump Trial`\
+https://nytimes.com/live/2024/05/10/nyregion/trump-trial-hush-money
+
+**What Did P.S.G.’s Money Buy?**\
+`The club’s superstar era cost billions and upended European soccer. But as it exits the Champions League again and braces for the departure of its star Kylian Mbappé, what was it all for?`\
+https://nytimes.com/2024/05/10/world/europe/psg-mbappe-real-madrid.html
+
 **Cannabis Rollout Hampered by Inexperienced Leadership, N.Y. Report Finds**\
 `A New York State review of problems in the Office of Cannabis Management found that 90 percent of applicants for marijuana businesses failed to get licenses.`\
 https://nytimes.com/2024/05/10/nyregion/cannabis-agency-ny-report.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/10/briefing/rafah-israel-hamas-war-netanyahu-biden.h
 **The Latest in Rafah, and a Key Trump Trial Witness Returns to the Stand**\
 `Plus, more arrests on campus.`\
 https://nytimes.com/2024/05/10/podcasts/rafah-israel-trump-trial-madeleine-westerhout.html
-
-**Stormy Daniels Takes the Stand**\
-`The porn star testified for eight hours at Donald Trump’s hush-money trial. This is how it went.`\
-https://nytimes.com/2024/05/10/podcasts/the-daily/stormy-daniels-trump.html
-
-**How Pro-Palestinian Students Pushed Trinity College Dublin to Divest**\
-`A surge of attention hit Ireland’s most prestigious university over protests that involved Israel, Gaza and the famed medieval Book of Kells.`\
-https://nytimes.com/2024/05/10/world/europe/ireland-trinity-dublin-palestinian-protests-divest.html
 
