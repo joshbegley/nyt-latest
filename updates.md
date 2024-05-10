@@ -1,3 +1,7 @@
+**Is It an Art Show? A Dinner Party? A Fashion Extravaganza?**\
+`Roze Traore, a multitalented New York chef served up dinner inside a New York art gallery to show off paintings from his residency in Ivory Coast.`\
+https://nytimes.com/2024/05/10/style/roze-traore-hannah-traore-gallery.html
+
 **Jim Simons, Math Genius Who Conquered Wall Street, Dies at 86**\
 `Using advanced computers, he went from M.I.T. professor to multibillionaire. His Medallion fund had 66 percent average annual returns for decades.`\
 https://nytimes.com/2024/05/10/business/dealbook/jim-simons-dead.html
