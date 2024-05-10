@@ -1,3 +1,7 @@
+**The Best of Late Night This Week**\
+`The hosts couldn’t get enough of former President Donald Trump being held in contempt (again) in his criminal hush-money trial, or of Stormy Daniels’s testimony. They also talked about Robert F. Kennedy Jr.’s brain worm. Here’s what they had to say.`\
+https://nytimes.com/interactive/2024/05/10/arts/television/best-of-late-night-stormy-daniels.html
+
 **What Are a Museum’s Obligations When It Shows a ‘Problematic’ Artist?**\
 `The magazine’s Ethicist columnist on the responsibility an institution assumes once it exhibits an artist’s work.`\
 https://nytimes.com/2024/05/10/magazine/museum-problematic-artist-ethics.html
