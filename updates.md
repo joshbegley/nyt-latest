@@ -1,3 +1,7 @@
+**Ilon Specht, Who Empowered Women With ‘I’m Worth It’ Ad, Dies at 81**\
+`She came up with the feminist campaign, for a hair color product, when challenging the notions of men at her ad agency.`\
+https://nytimes.com/2024/05/10/business/media/ilon-specht-dead.html
+
 **Get Ready for a Solar Storm to (Maybe) Light Up the Sky**\
 `The National Oceanic and Atmospheric Administration issued a rare warning, saying that solar activity could cause disruptions. But there is no need for concern.`\
 https://nytimes.com/2024/05/10/science/northern-lights-aurora-borealis.html
