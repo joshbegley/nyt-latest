@@ -1,3 +1,7 @@
+**Kuwaiti Emir Suspends Parliament, Citing Political Tumult**\
+`The country’s ruler also suspended several constitutional articles, raising concerns that he could diminish political freedoms in one of the Middle East’s few semi-democratic states.`\
+https://nytimes.com/2024/05/10/world/middleeast/kuwait-emir-parliament-suspension.html
+
 **Nancy Neveloff Dubler, Mediator for Life’s Final Moments, Dies at 82**\
 `A bioethicist, she pioneered bedside methods for helping patients, their families and doctors deal with anguishing life-or-death decisions in a high-tech age.`\
 https://nytimes.com/2024/05/10/health/nancy-neveloff-dead.html
@@ -32,9 +36,5 @@ https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/cease-fire
 
 **White House defends voting ‘no’ on U.N. resolution supporting Palestinian statehood.**\
 `By Erica L. Green`\
-https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/white-house-defends-voting-no-on-un-resolution-supporting-palestinian-statehood
-
-**Campus Police Chief Is Put on Leave After Arizona State Arrests**\
-`The decision came after complaints were filed related to the actions of the chief in late April, when the campus police arrested dozens of people.`\
-https://nytimes.com/2024/05/10/us/police-chief-arizona-state.html
+https://nytimes.com/2024/05/10/world/middleeast/united-nations-us-palestinian-membership.html
 
