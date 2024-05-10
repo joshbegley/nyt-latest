@@ -1,3 +1,11 @@
+**The Best White Sneakers**\
+`White sneakers pair with almost everything in your wardrobe. We found the best ones.`\
+https://nytimes.com/interactive/2024/05/10/smarter-living/wirecutter/best-white-sneakers.html
+
+**Apple Will Revamp Siri to Catch Up to Its Chatbot Competitors**\
+`Apple plans to announce that it will bring generative A.I. to iPhones after the company’s most significant reorganization in a decade.`\
+https://nytimes.com/2024/05/10/business/apple-siri-ai-chatgpt.html
+
 **Trump’s White House Contact List Reflects His Celebrity-Laced Orbit**\
 `While incomplete, the list included the media tycoon Rupert Murdoch and other Fox News figures. It also had Michael D. Cohen, the fixer who played a key role in the events leading to the first criminal trial of an American president.`\
 https://nytimes.com/2024/05/10/nyregion/trump-celebrity-gatekeeper-list.html
