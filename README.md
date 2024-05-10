@@ -1,3 +1,7 @@
+**‘Sally & Tom’ Frees Sally Hemings From Being a Mere Footnote**\
+`Suzan-Lori Parks’s play is the latest work by a Black writer seeking to prioritize Hemings’s life and perspective to make her fully dimensional.`\
+https://nytimes.com/2024/05/10/theater/suzan-lori-parks-sally-hemings-sally-and-tom.html
+
 **After Student Encampment Ends, New School Professors Set Up Their Own**\
 `At The New School in Manhattan, a university with a long history of left-leaning politics, the faculty set up an pro-Palestinian encampment in a building lobby.`\
 https://nytimes.com/2024/05/10/nyregion/new-school-faculty-protest-encampment.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/us/virginia-confederate-school-stonewall-jackson-
 **From Ancient Charcoal, Hints of Wildfires to Come**\
 `By digging into the geologic record, scientists are learning how wildfires shaped — and were shaped by — climate change long ago.`\
 https://nytimes.com/2024/05/10/science/archaeology-climate-fire.html
-
-**6 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://nytimes.com/2024/05/10/movies/6-new-movies-our-critics-are-talking-about-this-week.html
 
