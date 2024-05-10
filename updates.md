@@ -1,3 +1,11 @@
+**Why Companies Are Nervous About the Consumer**\
+`On earnings calls, dozens of corporate executives have cited a slowdown in spending to explain why sales are slipping.`\
+https://nytimes.com/2024/05/10/business/dealbook/companies-nervous-consumer-profit.html
+
+**Here’s the latest on campus protests.**\
+`By Matthew Eadie, Mattathias Schwartz and Victoria Kim`\
+https://nytimes.com/live/2024/05/10/us/college-campus-protests/heres-the-latest-on-campus-protests
+
 **What to Watch This Weekend: A Tense Restaurant Drama**\
 `Looking for some kitchen adrenaline between seasons of “The Bear”? Try the British series “Boiling Point” on Netflix.`\
 https://nytimes.com/2024/05/10/arts/television/boiling-point-netflix.html
