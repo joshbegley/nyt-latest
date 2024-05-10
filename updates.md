@@ -1,3 +1,7 @@
+**10campus-protests**\
+`Police Enter Encampments at M.I.T. and Penn`\
+https://nytimes.com/live/2024/05/10/us/college-campus-protests
+
 **Police Clear Pro-Palestinian Encampment at Penn**\
 `The move came a day after Gov. Josh Shapiro said it was “past time” to end the standoff on the campus in Philadelphia.`\
 https://nytimes.com/2024/05/10/us/penn-encampment-police.html
