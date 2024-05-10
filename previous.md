@@ -1,3 +1,7 @@
+**Hillary Clinton Accuses Protesters of Ignorance of Mideast History**\
+`In an interview on the MSNBC show “Morning Joe,” on Thursday, Ms. Clinton criticized student protesters, saying many were ignorant of the history of the Middle East, the United States and the world.`\
+https://nytimes.com/2024/05/09/us/hillary-clinton-morning-joe-israel-history.html
+
 **Trump’s Lawyers Clash With Stormy Daniels and Are Rebuffed by Judge**\
 `Stormy Daniels battled Donald J. Trump’s lawyers, and the judge issued a blistering ruling from the bench denying a request for a mistrial. Jonah Bromwich, a criminal justice reporter at The New York Times, gives his takeaways.`\
 https://nytimes.com/video/nyregion/100000009456843/trumps-lawyers-clash-with-stormy-daniels-and-are-rebuffed-by-judge.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/09/world/middleeast/unrwa-headquarters-jerusalem-ars
 **Effort to Keep Biden on the Ballot in Ohio Stalls Out Ahead of Deadline**\
 `Ohio’s Republican secretary of state said the Legislature had until Thursday to fix a procedural issue with President Biden’s nomination.`\
 https://nytimes.com/2024/05/09/us/politics/biden-ohio-ballot.html
-
-**A Furious Trump Is Denied His Mistrial**\
-`The judge admonished Trump’s lawyers for their missteps.`\
-https://nytimes.com/live/2024/05/07/opinion/thepoint/trump-stormy-daniels-mistrial
 
