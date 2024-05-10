@@ -1,3 +1,11 @@
+**Five Science Fiction Movies to Stream Now**\
+`In this month’s sci-fi picks, surviving a pandemic and predicting a catastrophe.`\
+https://nytimes.com/2024/05/10/movies/five-science-fiction-movies-to-stream-now.html
+
+**Five-Star Three-Cup Chicken**\
+`With over 6,000 ratings and plenty of rave reviews: “All I can tell you is that I can’t wait to cook it again.”`\
+https://nytimes.com/2024/05/10/dining/five-star-three-cup-chicken.html
+
 **‘Sally & Tom’ Frees Sally Hemings From Being a Mere Footnote**\
 `Suzan-Lori Parks’s play is the latest work by a Black writer seeking to prioritize Hemings’s life and perspective to make her fully dimensional.`\
 https://nytimes.com/2024/05/10/theater/suzan-lori-parks-sally-hemings-sally-and-tom.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/10/world/europe/russia-nuclear-weapons-belarus.html
 **Biden Is Less Unpopular Than His Peers**\
 `None of the advanced countries seem to like their leaders at the moment.`\
 https://nytimes.com/live/2024/05/07/opinion/thepoint/krugman-biden-popularity-world
-
-**Schools in One Virginia County to Reinstate Confederate Names**\
-`The school board voted on Friday to reverse a decision made four years ago, when the killing of George Floyd prompted nationwide demands for a racial reckoning, to rename the schools.`\
-https://nytimes.com/2024/05/10/us/virginia-confederate-school-stonewall-jackson-shenandoah.html
-
-**From Ancient Charcoal, Hints of Wildfires to Come**\
-`By digging into the geologic record, scientists are learning how wildfires shaped — and were shaped by — climate change long ago.`\
-https://nytimes.com/2024/05/10/science/archaeology-climate-fire.html
 
