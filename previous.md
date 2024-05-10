@@ -1,3 +1,7 @@
+**Word of the Day: reconnoiter**\
+`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/10/learning/word-of-the-day-reconnoiter.html
+
 **Dennis Thompson, Drummer and Last Remaining Member of MC5, Dies at 75**\
 `The musician brought his hard-hitting style to the band, which helped lay the foundation of American punk rock and is set to be inducted into the Rock & Roll Hall of Fame.`\
 https://nytimes.com/2024/05/10/arts/music/dennis-thompson-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/style/modern-love-secret-on-path-to-motherhood.ht
 **A Broadway Star Gets Married on Her Day Off**\
 `Lindsay Mendez, nominated for a Tony in “Merrily We Roll Along,” married actor J. Alex Brinson in a Monday ceremony officiated by castmate Jonathan Groff. Daniel Radcliffe was their ring bearer.`\
 https://nytimes.com/2024/05/10/style/lindsay-mendez-broadway-wedding.html
-
-**Swiping for Prince Charming, and Finding Him in Paris**\
-`Sabrina Marzaro took a break from dating apps after relocating to Paris in 2020. When she returned to them, at the start of 2022, her first, and final, match was with Jorge Ruivinho.`\
-https://nytimes.com/2024/05/10/style/sabrina-marzaro-jorge-ruivinho-wedding.html
 

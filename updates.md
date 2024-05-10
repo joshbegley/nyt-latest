@@ -1,3 +1,7 @@
+**Word of the Day: reconnoiter**\
+`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/10/learning/word-of-the-day-reconnoiter.html
+
 **Dennis Thompson, Drummer and Last Remaining Member of MC5, Dies at 75**\
 `The musician brought his hard-hitting style to the band, which helped lay the foundation of American punk rock and is set to be inducted into the Rock & Roll Hall of Fame.`\
 https://nytimes.com/2024/05/10/arts/music/dennis-thompson-dead.html
