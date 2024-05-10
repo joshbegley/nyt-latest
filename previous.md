@@ -1,3 +1,7 @@
+**‘She Is Such an Athlete’: Astoria the Wild Turkey Is a Manhattan Celebrity**\
+`The wild turkey wandered into Midtown Manhattan this week, so far evading attempts to capture her. You may find her at Saks Fifth Avenue, at high-end Italian restaurants or roosting in nearby trees.`\
+https://nytimes.com/2024/05/10/nyregion/wild-turkey-manhattan.html
+
 **David Shapiro, Who Gained Fame in Poetry and Protest, Dies at 77**\
 `A renowned member of the New York School of poets, he also found accidental notoriety when he was photographed during the 1968 uprising at Columbia University.`\
 https://nytimes.com/2024/05/10/books/david-shapiro-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/us/brett-kavanaugh-presidents-supreme-court.html
 **Two Universities Cancel Speeches by U.N. Ambassador**\
 `Invitations to Ambassador Linda Thomas-Greenfield were withdrawn by Xavier University and the University of Vermont because of student objections to American support for Israel.`\
 https://nytimes.com/2024/05/10/us/xavier-vermont-cancel-linda-thomas-greenfield.html
-
-**Biden Administration to Pay Dairy Farmers for Bird Flu Protective Measures**\
-`The payment system amounted to one of the most forceful actions taken so far by agriculture officials who have raced to keep up with the spread of the virus among dairy cows.`\
-https://nytimes.com/2024/05/10/us/politics/dairy-farms-bird-flu-protection.html
 

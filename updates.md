@@ -1,3 +1,7 @@
+**‘She Is Such an Athlete’: Astoria the Wild Turkey Is a Manhattan Celebrity**\
+`The wild turkey wandered into Midtown Manhattan this week, so far evading attempts to capture her. You may find her at Saks Fifth Avenue, at high-end Italian restaurants or roosting in nearby trees.`\
+https://nytimes.com/2024/05/10/nyregion/wild-turkey-manhattan.html
+
 **David Shapiro, Who Gained Fame in Poetry and Protest, Dies at 77**\
 `A renowned member of the New York School of poets, he also found accidental notoriety when he was photographed during the 1968 uprising at Columbia University.`\
 https://nytimes.com/2024/05/10/books/david-shapiro-dead.html
