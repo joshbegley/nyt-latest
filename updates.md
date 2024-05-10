@@ -1,3 +1,7 @@
+**U.N. agency that helps Palestinians says it has closed its headquarters in East Jerusalem after attacks and fire.**\
+`The leader of the agency said Israeli residents had set the fire, which caused extensive damage, but that no staff had been injured.`\
+https://nytimes.com/2024/05/09/world/middleeast/unrwa-headquarters-jerusalem-arson.html
+
 **Pro-Palestinian Encampment at Penn Grows as Commencement Nears**\
 `When asked about the protests, Gov. Josh Shapiro of Pennsylvania said on Thursday that it was “past time” for Penn’s administration to clear the encampment.`\
 https://nytimes.com/2024/05/09/us/penn-palestinian-encampment.html
