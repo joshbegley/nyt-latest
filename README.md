@@ -1,3 +1,7 @@
+**White House defends voting ‘no’ on U.N. resolution supporting Palestinian statehood.**\
+`By Erica L. Green`\
+https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/white-house-defends-voting-no-on-un-resolution-supporting-palestinian-statehood
+
 **Campus Police Chief Is Put on Leave After Arizona State Arrests**\
 `The decision came after complaints were filed related to the actions of the chief in late April, when the campus police arrested dozens of people.`\
 https://nytimes.com/2024/05/10/us/police-chief-arizona-state.html
@@ -30,11 +34,7 @@ https://nytimes.com/2024/05/10/nyregion/trump-hush-money-case-merchan-stormy-tak
 `Clear Channel, which manages many of the advertisements in the area, said a provocative billboard for a Molly Baz recipe was “flagged for review.”`\
 https://nytimes.com/2024/05/10/style/lactation-cookies-billboard.html
 
-**The State Department found no specific cases of Israel misusing U.S. weapons that would justify withholding aid.**\
+**High civilian casualties raised questions about whether Israel was doing what it could to limit harm.**\
 `A State Department report says U.S. weapons might have been used in violating humanitarian law, but does not make a specific enough finding to trigger punitive action against Israel.`\
 https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/biden-israel-us-weapons-gaza
-
-**‘Who Is That Color?’: A Makeup Brand Is Said to Miss the Mark by Several Shades**\
-`Beauty influencers have criticized Youthforia, saying the brand didn’t adequately test the darkest shade of its Date Night Skin Tint Serum Foundation.`\
-https://nytimes.com/2024/05/10/style/youthforia-shade-600-foundation-reviews.html
 
