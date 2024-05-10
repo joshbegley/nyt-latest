@@ -1,3 +1,11 @@
+**Union Theological Seminary will divest from holdings that profit from the war in Gaza.**\
+`By Anemona Hartocollis and Shawn Hubler`\
+https://nytimes.com/live/2024/05/09/us/college-campus-protests/union-theological-seminary-divest-israel
+
+**Colson Whitehead Cancels His Commencement Speech at UMass Amherst**\
+`The author said he made the decision after the university called the police to remove peaceful protesters from their encampments.`\
+https://nytimes.com/2024/05/09/us/colson-whitehead-umass-commencement-speech.html
+
 **Police Arrest M.I.T. Protesters After Suspensions Ramp Up Tension**\
 `Several people were arrested after blocking access to a campus parking garage, but it was unclear what charges they would face.`\
 https://nytimes.com/2024/05/09/us/mit-police-protesters-arrests.html
