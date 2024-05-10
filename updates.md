@@ -1,3 +1,7 @@
+**No, Donald Trump, Biden’s Economy Is Not Like Weimar Germany’s**\
+`His account of rising prices is far off base. His plans could make them worse.`\
+https://nytimes.com/2024/05/10/opinion/trump-inflation-biden-economy.html
+
 **Is It an Art Show? A Dinner Party? A Fashion Extravaganza?**\
 `Roze Traore, a multitalented New York chef served up dinner inside a New York art gallery to show off paintings from his residency in Ivory Coast.`\
 https://nytimes.com/2024/05/10/style/roze-traore-hannah-traore-gallery.html
