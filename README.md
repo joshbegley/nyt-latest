@@ -1,3 +1,11 @@
+**Why Companies Are Nervous About the Consumer**\
+`On earnings calls, dozens of corporate executives have cited a slowdown in spending to explain why sales are slipping.`\
+https://nytimes.com/2024/05/10/business/dealbook/companies-nervous-consumer-profit.html
+
+**Here’s the latest on campus protests.**\
+`By Matthew Eadie, Mattathias Schwartz and Victoria Kim`\
+https://nytimes.com/live/2024/05/10/us/college-campus-protests/heres-the-latest-on-campus-protests
+
 **What to Watch This Weekend: A Tense Restaurant Drama**\
 `Looking for some kitchen adrenaline between seasons of “The Bear”? Try the British series “Boiling Point” on Netflix.`\
 https://nytimes.com/2024/05/10/arts/television/boiling-point-netflix.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/10/world/europe/ireland-trinity-dublin-palestinian-p
 **How Should an Amy Winehouse Movie Be?**\
 `Several depictions of the singer’s life have explored her tense relationship with fame. The new biopic “Back to Black” instead centers her romantic life.`\
 https://nytimes.com/2024/05/10/movies/back-to-black-amy-winehouse.html
-
-**On Andra Day’s ‘Cassandra (Cherith),’ a Soaring Voice Reaches Inward**\
-`After playing Billie Holiday onscreen, the singer brings jazz virtuosity to songs of her own.`\
-https://nytimes.com/2024/05/10/arts/music/andra-day-cassandra-cherith-review.html
-
-**Trump Is Not Invincible**\
-`It’s never good to be on trial, no matter who you are.`\
-https://nytimes.com/2024/05/10/opinion/trump-trial-not-invincible.html
 
