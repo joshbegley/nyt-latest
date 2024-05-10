@@ -1,3 +1,7 @@
+**Jimmy Kimmel Recaps Stormy Daniels’s Testimony in Court**\
+`“Team Trump spent much of the day trying to paint Daniels as a sleazy, money-grubbing liar, which, if that is true, you can see why they hit it off,” Kimmel said.`\
+https://nytimes.com/2024/05/10/arts/television/jimmy-kimmel-stormy-daniels-trump.html
+
 **Word of the Day: reconnoiter**\
 `This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/05/10/learning/word-of-the-day-reconnoiter.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/style/megan-lerchenmuller-glenn-josey-wedding.htm
 **A Shattering Secret on the Path to Motherhood**\
 `My doctor asked a routine question that led to a marital crisis.`\
 https://nytimes.com/2024/05/10/style/modern-love-secret-on-path-to-motherhood.html
-
-**A Broadway Star Gets Married on Her Day Off**\
-`Lindsay Mendez, nominated for a Tony in “Merrily We Roll Along,” married actor J. Alex Brinson in a Monday ceremony officiated by castmate Jonathan Groff. Daniel Radcliffe was their ring bearer.`\
-https://nytimes.com/2024/05/10/style/lindsay-mendez-broadway-wedding.html
 
