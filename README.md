@@ -6,8 +6,8 @@ https://nytimes.com/2024/05/10/business/apple-siri-chatbot-competitors.html
 `Hear songs by Mdou Moctar, Bombino, Orchestra Baobab and more.`\
 https://nytimes.com/2024/05/10/arts/music/amplifier-newsletter-african-guitar-greats.html
 
-**Contact List Held by Trump’s White House Gatekeeper Reflects His Celebrity-Laced Orbit**\
-`While incomplete, the list included the media tycoon Rupert Murdoch, along with figures from Fox News. It also had Michael D. Cohen, the fixer who played a key role in the events leading to the first criminal trial of an American president.`\
+**Trump’s White House Contact List Reflects His Celebrity-Laced Orbit**\
+`While incomplete, the list included the media tycoon Rupert Murdoch and other Fox News figures. It also had Michael D. Cohen, the fixer who played a key role in the events leading to the first criminal trial of an American president.`\
 https://nytimes.com/2024/05/10/nyregion/trump-celebrity-gatekeeper-list.html
 
 **U.S. Military’s Plea to Israel: Do More to Protect Gazans in War Zone**\
