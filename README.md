@@ -1,3 +1,7 @@
+**Biden Campaign Courts Wealthy Donors on West Coast Fund-Raising Trip**\
+`The trip was a second major swing through California for the Biden campaign, and attracted a host of wealthy tech executives.`\
+https://nytimes.com/2024/05/10/us/politics/biden-west-coast-fund-raising.html
+
 **Who Are the Favorites to Win Eurovision?**\
 `Some of the buzziest acts taking part in Saturday’s final hail from Croatia, Israel and the Netherlands.`\
 https://nytimes.com/2024/05/10/arts/music/eurovision-odds-favorites.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/arts/design/christies-cyberattack-website.html
 **Ted Cruz, Better Known For Derailing Bills, Tries on a New Hat: Legislator**\
 `The Texas Republican, who made a name for himself trying to shut down the government over the Affordable Care Act, took on an unfamiliar role as a critical player in pushing through a major aviation bill.`\
 https://nytimes.com/2024/05/10/us/politics/ted-cruz-legislation.html
-
-**Several Witnesses Have Brought Up Keith Schiller, Trump’s Bodyguard. Where Is He?**\
-`Stormy Daniels said that the bodyguard, Keith Schiller, got her phone number and invited her to dinner with Donald J. Trump. He has not testified in Mr. Trump’s criminal trial.`\
-https://nytimes.com/2024/05/10/nyregion/keith-schiller-trump-trial.html
 
