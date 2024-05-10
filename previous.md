@@ -1,3 +1,7 @@
+**Cease-fire talks hit snag, in part, on how many hostages would be released in a first phase, officials say.**\
+`By Adam Rasgon and Julian E. Barnes`\
+https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/cease-fire-talks-hit-snag-in-part-on-how-many-hostages-would-be-released-in-a-first-phase-officials-say
+
 **White House defends voting ‘no’ on U.N. resolution supporting Palestinian statehood.**\
 `By Erica L. Green`\
 https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/white-house-defends-voting-no-on-un-resolution-supporting-palestinian-statehood
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/nyregion/trump-hush-money-case-merchan-stormy-tak
 **Too Racy for Times Square? An Ad for Lactation Cookies Is Replaced.**\
 `Clear Channel, which manages many of the advertisements in the area, said a provocative billboard for a Molly Baz recipe was “flagged for review.”`\
 https://nytimes.com/2024/05/10/style/lactation-cookies-billboard.html
-
-**High civilian casualties raise questions about whether Israel is doing enough to limit harm, the report says.**\
-`A State Department report says U.S. weapons might have been used in violating humanitarian law, but does not make a specific enough finding to trigger punitive action against Israel.`\
-https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/biden-israel-us-weapons-gaza
 

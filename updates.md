@@ -1,3 +1,7 @@
+**Cease-fire talks hit snag, in part, on how many hostages would be released in a first phase, officials say.**\
+`By Adam Rasgon and Julian E. Barnes`\
+https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/cease-fire-talks-hit-snag-in-part-on-how-many-hostages-would-be-released-in-a-first-phase-officials-say
+
 **High civilian casualties raise questions about whether Israel is doing enough to limit harm, the report says.**\
 `A State Department report says U.S. weapons might have been used in violating humanitarian law, but does not make a specific enough finding to trigger punitive action against Israel.`\
 https://nytimes.com/live/2024/05/10/world/israel-gaza-war-hamas-rafah/biden-israel-us-weapons-gaza
