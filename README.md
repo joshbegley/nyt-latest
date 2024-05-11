@@ -1,3 +1,7 @@
+**At College Graduations, Berkeley’s Protests Stand Out**\
+`After weeks of tumult over protests, many administrators prepared themselves for disruptions. But several ceremonies unfolded without major incident.`\
+https://nytimes.com/2024/05/11/us/graduations-protests-berkeley.html
+
 **Man Charged in Bronx Sexual Assault Partly Captured on Disturbing Video**\
 `The video shows him throwing a belt around a woman’s neck, pulling her to the ground and dragging her along.`\
 https://nytimes.com/2024/05/11/nyregion/bronx-sexual-assault.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/11/arts/eurovision-final/time-for-the-favorite-
 **Will Nemo, from Switzerland, be Eurovision’s first nonbinary star?**\
 `By Alex Marshall`\
 https://nytimes.com/live/2024/05/11/arts/eurovision-final/will-nemo-from-switzerland-be-eurovisions-first-nonbinary-star
-
-**Can Angelina Mango become Italy’s next global pop star?**\
-`By Alex Marshall`\
-https://nytimes.com/live/2024/05/11/arts/eurovision-final/can-angelina-mango-become-italys-next-global-pop-star
 
