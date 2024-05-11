@@ -1,3 +1,7 @@
+**Man Charged in Bronx Sexual Assault Partly Captured on Disturbing Video**\
+`The video shows him throwing a belt around a woman’s neck, pulling her to the ground and dragging her along.`\
+https://nytimes.com/2024/05/11/nyregion/bronx-sexual-assault.html
+
 **At U.C. Berkeley Ceremony, a Student Protest Draws in Hundreds**\
 `Demonstrators chanted and gathered in one spot in the stadium, interrupting the proceedings before leaving.`\
 https://nytimes.com/2024/05/11/us/at-uc-berkeley-ceremony-a-student-protest-draws-in-hundreds.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/11/arts/eurovision-final/will-nemo-from-switzer
 **Can Angelina Mango become Italy’s next global pop star?**\
 `By Alex Marshall`\
 https://nytimes.com/live/2024/05/11/arts/eurovision-final/can-angelina-mango-become-italys-next-global-pop-star
-
-**Can Britain’s Olly Alexander prove the critics wrong?**\
-`By Alex Marshall`\
-https://nytimes.com/live/2024/05/11/arts/eurovision-final/can-britains-olly-alexander-prove-the-critics-wrong
 
