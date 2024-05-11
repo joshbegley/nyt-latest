@@ -1,3 +1,7 @@
+**On Mother’s Day**\
+`How I’m processing — and cooking for — the first Mother’s Day without my mom.`\
+https://nytimes.com/2024/05/11/dining/on-mothers-day.html
+
 **Mary Wells Lawrence, High-Profile Advertising Pioneer, Dies at 95**\
 `She was the first woman to own and run a major national advertising agency. Her company, Wells Rich Greene, was best known for the “I ♥ NY” campaign.`\
 https://nytimes.com/2024/05/11/business/mary-wells-lawrence-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/11/books/read-like-wind-recommendations-babies-in-fi
 **Two Ledgers**\
 `Majid Khan was locked away at C.I.A. black sites for years. What would he tell the world?`\
 https://nytimes.com/2024/05/11/podcasts/this-american-life-two-ledgers-nyt-audio.html
-
-**And the Winner Is: Kendrick Lamar. And Old-School Hip-Hop.**\
-`A beef between two rap titans isn’t just about egos. It’s about the future of the genre, as determined by the legacy of its past.`\
-https://nytimes.com/2024/05/11/opinion/kendrick-lamar-drake-battle-winner.html
 
