@@ -1,3 +1,7 @@
+**A Solar Storm Lights Up the Night Sky**\
+`The unusual sight of aurora borealis was visible across Britain on Friday, including southern parts of the country and London.`\
+https://nytimes.com/2024/05/10/world/europe/aurora-northern-lights-solar-storm-photos.html
+
 **Measures of One’s Worth**\
 `Billy Bratton’s themeless challenge hops from square to square.`\
 https://nytimes.com/2024/05/10/crosswords/daily-puzzle-2024-05-11.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/style/miss-usa-resigns-pageant-letter.html
 **Transcript of Trump Manhattan Trial, May 9, 2024**\
 `New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
 https://nytimes.com/interactive/2024/05/10/nyregion/trump-hush-money-trial-transcript-may-9.html
-
-**What We Know About Where Aid Can Enter Gaza**\
-`A look at the humanitarian assistance getting into the Gaza Strip by land, air and sea.`\
-https://nytimes.com/2024/05/10/world/middleeast/gaza-aid-border-crossing.html
 
