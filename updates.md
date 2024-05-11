@@ -1,3 +1,7 @@
+**Bambie Thug brings black magic and pro-Palestinian sentiment.**\
+`By Alex Marshall`\
+https://nytimes.com/live/2024/05/11/arts/eurovision-final/bambie-thug-ireland-eurovision-palestine
+
 **Next to the stage, Israel.**\
 `By Alex Marshall`\
 https://nytimes.com/live/2024/05/11/arts/eurovision-final/next-to-the-stage-israel
