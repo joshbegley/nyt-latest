@@ -1,4 +1,8 @@
 **Flash Flooding in Afghanistan Kills at Least 50, With More Missing**\
+`Heavy seasonal rains have set off floods in the northern province of Baghlan and in at least three other provinces.`\
+https://nytimes.com/2024/05/11/world/asia/afghanistan-flash-flooding.html
+
+**Flash Flooding in Afghanistan Kills at Least 50, With More Missing**\
 `Heavy seasonal rains have set off floods in the northern province of Baghlan and the nation’s capital, Kabul.`\
 https://nytimes.com/2024/05/11/world/asia/afghanistan-flash-flooding.html
 
