@@ -1,3 +1,7 @@
+**Arizona State bans a scholar from campus after a confrontation at a protest.**\
+`By Anna Betts`\
+https://nytimes.com/live/2024/05/11/us/college-campus-protests/arizona-state-bans-a-scholar-from-campus-after-a-confrontation-at-a-protest
+
 **Israel orders evacuation of northern Gaza, ahead of stepped up attacks against Hamas.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/05/11/world/israel-gaza-war-hamas-rafah/israel-orders-evacuation-of-northern-hamas-stronghold-in-gaza-ahead-of-stepped-up-attacks
