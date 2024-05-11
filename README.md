@@ -1,7 +1,3 @@
-**All the Rage in Private Equity: Mortgaging the Fund**\
-`A little-known financial tool was the talk of the Milken Institute’s Global Conference.`\
-https://nytimes.com/2024/05/11/business/dealbook/all-the-rage-in-private-equity-mortgaging-the-fund.html
-
 **On Mother’s Day, Here Are 2 Novels That Get Babies Right**\
 `Barbara Kingsolver’s debut, and a bad seed’s beginnings.`\
 https://nytimes.com/2024/05/11/books/read-like-wind-recommendations-babies-in-fiction.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/05/11/opinion/china-economy-dead-end.html
 **A Way Back from Campus Chaos**\
 `Universities have failed to strike a balance between academic freedom and free speech during this spring’s protests.`\
 https://nytimes.com/2024/05/11/opinion/campus-protests.html
+
+**Reading and Protesting on Campus**\
+`Readers discuss a column by Ross Douthat.`\
+https://nytimes.com/2024/05/11/opinion/reading-protests-college-campus.html
 
