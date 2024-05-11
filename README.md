@@ -1,3 +1,7 @@
+**Sudden Resignations. A Leaked Letter. What’s Happening Inside Miss USA?**\
+`Noelia Voigt’s announcement this week that she was stepping down as Miss USA set off a string of departures and prompted larger questions about the inner workings of the organization.`\
+https://nytimes.com/2024/05/10/style/miss-usa-resigns-pageant-letter.html
+
 **Transcript of Trump Manhattan Trial, May 9, 2024**\
 `New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
 https://nytimes.com/interactive/2024/05/10/nyregion/trump-hush-money-trial-transcript-may-9.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/business/media/ilon-specht-dead.html
 **Get Ready for a Solar Storm to (Maybe) Light Up the Sky**\
 `The National Oceanic and Atmospheric Administration issued a rare warning, saying that solar activity could cause disruptions. But there is no need for concern.`\
 https://nytimes.com/2024/05/10/science/northern-lights-aurora-borealis.html
-
-**The Table Is Set for Michael Cohen to Testify Against Trump**\
-`The question is whether Cohen can keep his mouth shut about Trump outside the courtroom.`\
-https://nytimes.com/live/2024/05/07/opinion/thepoint/prosecution-ready-cohen-trump
 
