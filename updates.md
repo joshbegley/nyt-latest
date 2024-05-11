@@ -1,3 +1,7 @@
+**11mideast-crisis**\
+`U.S. Criticizes Israel for Failure to Protect Civilians in the Gaza Conflict`\
+https://nytimes.com/live/2024/05/11/world/israel-gaza-war-hamas-rafah
+
 **Flash Flooding in Afghanistan Kills at Least 50, With More Missing**\
 `Heavy seasonal rains have set off floods in the northern province of Baghlan and in at least three other provinces.`\
 https://nytimes.com/2024/05/11/world/asia/afghanistan-flash-flooding.html
