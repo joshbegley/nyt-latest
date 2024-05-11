@@ -1,3 +1,7 @@
+**Woman Made Her Home Inside a Michigan Grocery Store Sign, Police Say**\
+`She had set up flooring, a computer and a coffee maker. The unidentified woman had been living there for about a year, the authorities said.`\
+https://nytimes.com/2024/05/11/us/family-fare-michigan-woman-sign.html
+
 **Welcome to Malmo, your Eurovision host city.**\
 `By Christina Anderson`\
 https://nytimes.com/live/2024/05/11/arts/eurovision-final/welcome-to-malmo-your-eurovision-host-city
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/11/us/college-campus-protests/arizona-state-ban
 **Israel orders evacuation in northern Gaza, ahead of stepped up attacks against Hamas.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/05/11/world/israel-gaza-war-hamas-rafah/israel-orders-evacuation-of-northern-hamas-stronghold-in-gaza-ahead-of-stepped-up-attacks
-
-**On Mother’s Day**\
-`How I’m processing — and cooking for — the first Mother’s Day without my mom.`\
-https://nytimes.com/2024/05/11/dining/on-mothers-day.html
 
