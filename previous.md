@@ -1,3 +1,7 @@
+**Eberhard Kornfeld, Art Dealer, Collector and Historian, Is Dead at 99**\
+`Ensconced in a 15th-century Swiss manor house, he became an expert on the old masters and later tangled with heirs of a collector killed by the Nazis.`\
+https://nytimes.com/2024/05/11/arts/eberhard-kornfeld-dead.html
+
 **Before the Eurovision Final, a Pro-Palestinian March**\
 `For months, activists and some fans of the song contest have demanded Israel be banned from the event, which this year takes place in Malmo, Sweden.`\
 https://nytimes.com/2024/05/11/arts/music/eurovision-israel-palestine-protest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/11/dining/on-mothers-day.html
 **Mary Wells Lawrence, High-Profile Advertising Pioneer, Dies at 95**\
 `She was the first woman to own and run a major national advertising agency. Her company, Wells Rich Greene, was best known for the “I ♥ NY” campaign.`\
 https://nytimes.com/2024/05/11/business/mary-wells-lawrence-dead.html
-
-**Trump May Owe $100 Million From Double-Dip Tax Breaks, Audit Shows**\
-`A previously unknown focus of an I.R.S. audit is a dubious accounting maneuver that effectively meant taking the same write-offs twice on a Chicago skyscraper.`\
-https://nytimes.com/2024/05/11/us/trump-taxes-audit-chicago.html
 

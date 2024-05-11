@@ -1,3 +1,7 @@
+**Eberhard Kornfeld, Art Dealer, Collector and Historian, Is Dead at 99**\
+`Ensconced in a 15th-century Swiss manor house, he became an expert on the old masters and later tangled with heirs of a collector killed by the Nazis.`\
+https://nytimes.com/2024/05/11/arts/eberhard-kornfeld-dead.html
+
 **Before the Eurovision Final, a Pro-Palestinian March**\
 `For months, activists and some fans of the song contest have demanded Israel be banned from the event, which this year takes place in Malmo, Sweden.`\
 https://nytimes.com/2024/05/11/arts/music/eurovision-israel-palestine-protest.html
