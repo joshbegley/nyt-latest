@@ -1,3 +1,7 @@
+**Rita, Anita, My Mother and Me**\
+`“West Side Story” is easy to criticize. But we watched it again and again for Moreno and her “movidas.”`\
+https://nytimes.com/2024/05/11/opinion/west-side-story-latina-mothers.html
+
 **All the Rage in Private Equity: Mortgaging the Fund**\
 `A little-known financial tool was the talk of the Milken Institute’s Global Conference.`\
 https://nytimes.com/2024/05/11/business/dealbook/all-the-rage-in-private-equity-mortgaging-the-fund.html
