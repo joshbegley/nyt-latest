@@ -1,3 +1,7 @@
+**At College Graduations, Berkeley’s Protests Stand Out**\
+`After weeks of tumult over protests, many administrators prepared themselves for disruptions. But several ceremonies unfolded without major incident.`\
+https://nytimes.com/2024/05/11/us/graduations-protests-berkeley.html
+
 **Man Charged in Bronx Sexual Assault Partly Captured on Disturbing Video**\
 `The video shows him throwing a belt around a woman’s neck, pulling her to the ground and dragging her along.`\
 https://nytimes.com/2024/05/11/nyregion/bronx-sexual-assault.html
