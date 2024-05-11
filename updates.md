@@ -1,3 +1,7 @@
+**Canada’s Public Sector Unions Threaten Disruption Over Return to Office**\
+`After their strike last year failed to win the right to work remotely, the unions are challenging a plan calling for three days a week at workplaces.`\
+https://nytimes.com/2024/05/11/world/canada/canada-public-sector-unions-remote-work.html
+
 **Farewell, Chuck E. Cheese Animatronic Band**\
 `A mainstay of the pizza and arcade chain, by turns endearing and creepy, will be phased out by year’s end at all but two locations. We visited one of them.`\
 https://nytimes.com/2024/05/11/business/chuck-e-cheese-animatronic-band.html
