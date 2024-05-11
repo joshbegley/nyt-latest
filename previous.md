@@ -1,3 +1,7 @@
+**When Travel Plans Go Awry**\
+`There are ways of keeping ourselves anchored, even when we enter a parallel universe disconnected from time.`\
+https://nytimes.com/2024/05/11/briefing/when-travel-plans-go-awry.html
+
 **Canada’s Public Sector Unions Threaten Disruption Over Return to Office**\
 `After their strike last year failed to win the right to work remotely, the unions are challenging a plan calling for three days a week at workplaces.`\
 https://nytimes.com/2024/05/11/world/canada/canada-public-sector-unions-remote-work.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/11/style/design-trends.html
 **Why Antiwar Protests Haven’t Flared Up at Black Colleges Like Morehouse**\
 `The White House appears anxious about President Biden’s coming speech at Morehouse College. But for complex reasons, such campuses have had far less visible Gaza tensions.`\
 https://nytimes.com/2024/05/11/us/politics/biden-morehouse-black-colleges.html
-
-**The Annoying, Go-Getting Colleague: Beat Her or Emulate Her?**\
-`When corporate jousting, don’t choose jealousy.`\
-https://nytimes.com/2024/05/11/business/roxane-gay-work-office.html
 

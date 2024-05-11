@@ -1,3 +1,7 @@
+**When Travel Plans Go Awry**\
+`There are ways of keeping ourselves anchored, even when we enter a parallel universe disconnected from time.`\
+https://nytimes.com/2024/05/11/briefing/when-travel-plans-go-awry.html
+
 **Canada’s Public Sector Unions Threaten Disruption Over Return to Office**\
 `After their strike last year failed to win the right to work remotely, the unions are challenging a plan calling for three days a week at workplaces.`\
 https://nytimes.com/2024/05/11/world/canada/canada-public-sector-unions-remote-work.html
