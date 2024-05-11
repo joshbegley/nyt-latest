@@ -1,3 +1,7 @@
+**On Mother’s Day, Here Are 2 Novels That Get Babies Right**\
+`Barbara Kingsolver’s debut, and a bad seed’s beginnings.`\
+https://nytimes.com/2024/05/11/books/read-like-wind-recommendations-babies-in-fiction.html
+
 **About 150,000 people fled from Rafah in recent days, the U.N. says.**\
 `By Raja Abdulrahim and Bilal Shbair`\
 https://nytimes.com/live/2024/05/11/world/israel-gaza-war-hamas-rafah/about-15000-people-fled-from-rafah-in-recent-days-the-un-says

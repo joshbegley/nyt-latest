@@ -1,3 +1,7 @@
+**On Mother’s Day, Here Are 2 Novels That Get Babies Right**\
+`Barbara Kingsolver’s debut, and a bad seed’s beginnings.`\
+https://nytimes.com/2024/05/11/books/read-like-wind-recommendations-babies-in-fiction.html
+
 **Two Ledgers**\
 `Majid Khan was locked away at C.I.A. black sites for years. What would he tell the world?`\
 https://nytimes.com/2024/05/11/podcasts/this-american-life-two-ledgers-nyt-audio.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/11/opinion/campus-protests.html
 **Reading and Protesting on Campus**\
 `Readers discuss a column by Ross Douthat.`\
 https://nytimes.com/2024/05/11/opinion/reading-protests-college-campus.html
-
-**About 150,000 people fled from Rafah in recent days, the U.N. says.**\
-`By Raja Abdulrahim and Bilal Shbair`\
-https://nytimes.com/live/2024/05/11/world/israel-gaza-war-hamas-rafah/about-15000-people-fled-from-rafah-in-recent-days-the-un-says
 
