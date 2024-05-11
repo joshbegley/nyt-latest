@@ -1,6 +1,6 @@
-**At U.C. Berkeley ceremony, a student protest draws in hundreds.**\
-`By Holly Secon`\
-https://nytimes.com/live/2024/05/11/us/college-campus-protests/at-uc-berkeley-ceremony-a-student-protest-draws-in-hundreds
+**At U.C. Berkeley Ceremony, a Student Protest Draws in Hundreds**\
+`Demonstrators chanted and gathered in one spot in the stadium, interrupting the proceedings before leaving.`\
+https://nytimes.com/2024/05/11/us/at-uc-berkeley-ceremony-a-student-protest-draws-in-hundreds.html
 
 **Pixar Box Set**\
 `Avery Gee Katz makes an animated Times debut.`\
