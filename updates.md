@@ -1,3 +1,11 @@
+**Northern Lights Glow in the Sky Amid Solar Storm**\
+`Powerful solar flare activity made the aurora borealis visible unusually far south.`\
+https://nytimes.com/video/science/earth/100000009463654/northern-lights-solar-storm.html
+
+**Malmo is your Eurovision host city this year.**\
+`By Christina Anderson`\
+https://nytimes.com/live/2024/05/11/arts/eurovision-final/welcome-to-malmo-your-eurovision-host-city
+
 **Woman Made Her Home Inside a Michigan Grocery Store Sign, Police Say**\
 `She had set up flooring, a computer and a coffee maker. The unidentified woman had been living there for about a year, the authorities said.`\
 https://nytimes.com/2024/05/11/us/family-fare-michigan-woman-sign.html

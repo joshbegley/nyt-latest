@@ -2,8 +2,8 @@
 `Powerful solar flare activity made the aurora borealis visible unusually far south.`\
 https://nytimes.com/video/science/earth/100000009463654/northern-lights-solar-storm.html
 
-**Woman Made Her Home Inside a Michigan Grocery Store Sign, Police Say**\
-`She had set up flooring, a computer and a coffee maker. The unidentified woman had been living there for about a year, the authorities said.`\
+**Woman Made Her Home Inside a Grocery Store’s Rooftop Sign, Police Say**\
+`She had set up flooring, a computer and a coffee maker. The unidentified woman had been living in the store in Midland, Mich., for about a year, the authorities said.`\
 https://nytimes.com/2024/05/11/us/family-fare-michigan-woman-sign.html
 
 **Malmo is your Eurovision host city this year.**\
