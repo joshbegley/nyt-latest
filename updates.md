@@ -1,3 +1,7 @@
+**Charlamagne Tha God Won’t Take Sides**\
+`The radio host talks to Lulu Garcia-Navarro about how he plans to wield his considerable political influence.`\
+https://nytimes.com/2024/05/11/magazine/charlamagne-tha-god-interview.html
+
 **A Rising Democrat Leans Into the Campus Fight Over Antisemitism**\
 `Gov. Josh Shapiro of Pennsylvania, the proudly Jewish leader of a battleground state, has dived headfirst into subjects that have wrenched apart his party.`\
 https://nytimes.com/2024/05/11/us/politics/josh-shapiro-pennsylvania.html
