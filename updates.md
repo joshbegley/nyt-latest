@@ -1,3 +1,7 @@
+**Quotation of the Day: Why Prices for Cocoa Went Nuts**\
+`Quotation of the Day for Saturday, May 11, 2024.`\
+https://nytimes.com/2024/05/11/pageoneplus/quotation-of-the-day-why-prices-for-cocoa-went-nuts.html
+
 **Justice Thomas Denounces ‘the Nastiness and the Lies’ Faced by His Family**\
 `The statement was among the few public remarks he has made since revelations that he had failed to report lavish gifts and travel from wealthy conservatives.`\
 https://nytimes.com/2024/05/10/us/politics/clarence-thomas-supreme-court.html
