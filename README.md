@@ -1,3 +1,7 @@
+**Sam Rubin, TV Anchor Known for His Hollywood Reporting, Dies at 64**\
+`Mr. Rubin began at the Los Angeles television news station KTLA in 1991 and became a staple of morning viewing through his interviews with celebrities.`\
+https://nytimes.com/2024/05/11/arts/television/sam-rubin-ktla-dead.html
+
 **Trump rallies in New Jersey, Biden fund-raises in Washington State and campus protests hit graduations.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/05/11/us/biden-trump-election/trump-rallies-in-new-jersey-biden-fund-raises-in-washington-state-and-campus-protests-hit-graduations
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/11/science/northern-lights-aurora-solar-storm.html
 **Bambie Thug brings black magic and pro-Palestinian sentiment.**\
 `By Alex Marshall`\
 https://nytimes.com/live/2024/05/11/arts/eurovision-final/bambie-thug-ireland-eurovision-palestine
-
-**Next to the stage, Israel.**\
-`By Alex Marshall`\
-https://nytimes.com/live/2024/05/11/arts/eurovision-final/next-to-the-stage-israel
 
