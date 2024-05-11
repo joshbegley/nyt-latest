@@ -1,3 +1,7 @@
+**Canada’s Public Sector Unions Threaten Disruption Over Return to Office**\
+`After their strike last year failed to win the right to work remotely, the unions are challenging a plan calling for three days a week at workplaces.`\
+https://nytimes.com/2024/05/11/world/canada/canada-public-sector-unions-remote-work.html
+
 **Farewell, Chuck E. Cheese Animatronic Band**\
 `A mainstay of the pizza and arcade chain, by turns endearing and creepy, will be phased out by year’s end at all but two locations. We visited one of them.`\
 https://nytimes.com/2024/05/11/business/chuck-e-cheese-animatronic-band.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/11/us/politics/biden-morehouse-black-colleges.html
 **The Annoying, Go-Getting Colleague: Beat Her or Emulate Her?**\
 `When corporate jousting, don’t choose jealousy.`\
 https://nytimes.com/2024/05/11/business/roxane-gay-work-office.html
-
-**Trump Has Long Been Known as a Micromanager. Prosecutors Are Using It Against Him.**\
-`Witnesses have described the former president monitoring the minutiae of his business, a portrait prosecutors are drawing to help convince the jury that he couldn’t have helped but oversee a hush-money payment to avoid a damaging story.`\
-https://nytimes.com/2024/05/11/us/politics/trump-trial-micromanager.html
 
