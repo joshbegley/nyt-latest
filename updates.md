@@ -1,3 +1,7 @@
+**Flash Flooding in Afghanistan Kills at Least 50, With More Missing**\
+`Heavy seasonal rains have set off floods in the northern province of Baghlan and the nation’s capital, Kabul.`\
+https://nytimes.com/2024/05/11/world/asia/afghanistan-flash-flooding.html
+
 **Big, Smoggy Bangkok Gets a Badly Needed Breath of Fresh Air**\
 `In the heart of this megacity, an industrial site has been turned into an oasis for residents (and birds, bats and mosquito-eating dragonflies).`\
 https://nytimes.com/2024/05/11/world/asia/bangkok-thailand-benjakitti-park.html
