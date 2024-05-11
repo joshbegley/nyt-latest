@@ -1,3 +1,11 @@
+**As Israel Steps Up Attacks, 300,000 Gazans Are on the Move**\
+`Many say there is nowhere to go, and even the “humanitarian zone” recommended by Israel is neither safe nor equipped to handle all of them, the U.N. says.`\
+https://nytimes.com/2024/05/11/world/middleeast/israel-gaza-rafah-palestinians.html
+
+**Northern Lights Set to Return During Extreme Solar Storm’s 2nd Night**\
+`Electrical utilities said they weathered earlier conditions as persistent geomagnetic storms were expected to cause another light show in evening skies.`\
+https://nytimes.com/2024/05/11/science/northern-lights-aurora-solar-storm.html
+
 **Bambie Thug brings black magic and pro-Palestinian sentiment.**\
 `By Alex Marshall`\
 https://nytimes.com/live/2024/05/11/arts/eurovision-final/bambie-thug-ireland-eurovision-palestine
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/05/11/arts/eurovision-final/in-tel-aviv-israelis-r
 **Paul Manafort, Trump’s Former Campaign Chairman, Returns to the Republican Arena**\
 `Eight years after helping Donald J. Trump get elected — and four years after being released from prison — the longtime political operative is back to help organize the G.O.P. convention.`\
 https://nytimes.com/2024/05/11/us/politics/trump-manafort-republican-convention.html
-
-**A decade ago, Conchita Wurst won for Austria.**\
-`By Valeriya Safronova`\
-https://nytimes.com/live/2024/05/11/arts/eurovision-final/a-decade-ago-conchita-wurst-won-for-austria
-
-**Northern Lights Glow in the Sky Amid Solar Storm**\
-`Powerful solar flare activity made the aurora borealis visible unusually far south.`\
-https://nytimes.com/video/science/earth/100000009463654/northern-lights-solar-storm.html
 
