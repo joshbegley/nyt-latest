@@ -1,3 +1,7 @@
+**Welcome to our live Eurovision coverage!**\
+`The contest features songs that range from the sublime to the ridiculous`\
+https://nytimes.com/live/2024/05/11/arts/eurovision-final/welcome-to-our-live-eurovision-coverage
+
 **Israel orders evacuation in northern Gaza, ahead of stepped up attacks against Hamas.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/05/11/world/israel-gaza-war-hamas-rafah/israel-orders-evacuation-of-northern-hamas-stronghold-in-gaza-ahead-of-stepped-up-attacks
