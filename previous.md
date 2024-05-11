@@ -1,3 +1,7 @@
+**Welcome to Malmo, your Eurovision host city.**\
+`By Christina Anderson`\
+https://nytimes.com/live/2024/05/11/arts/eurovision-final/welcome-to-malmo-your-eurovision-host-city
+
 **Eberhard Kornfeld, Art Dealer, Collector and Historian, Is Dead at 99**\
 `Ensconced in a 15th-century Swiss manor house, he became an expert on the old masters and later tangled with heirs of a collector killed by the Nazis.`\
 https://nytimes.com/2024/05/11/arts/eberhard-kornfeld-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/11/world/israel-gaza-war-hamas-rafah/israel-ord
 **On Mother’s Day**\
 `How I’m processing — and cooking for — the first Mother’s Day without my mom.`\
 https://nytimes.com/2024/05/11/dining/on-mothers-day.html
-
-**Mary Wells Lawrence, High-Profile Advertising Pioneer, Dies at 95**\
-`She was the first woman to own and run a major national advertising agency. Her company, Wells Rich Greene, was best known for the “I ♥ NY” campaign.`\
-https://nytimes.com/2024/05/11/business/mary-wells-lawrence-dead.html
 
