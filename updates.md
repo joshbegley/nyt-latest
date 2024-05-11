@@ -1,3 +1,7 @@
+**Switzerland Wins Eurovision, as Protests Give Way to Spectacle**\
+`The nonbinary singer Nemo won the high-camp contest, during a night that included pro-Palestinian demonstrations outside the arena and fireworks onstage.`\
+https://nytimes.com/2024/05/11/arts/music/eurovision-final-winner.html
+
 **On a Day of Graduations, Berkeley’s Protests Stand Out**\
 `After weeks of tumult over protests, many college administrators prepared themselves for disruptions. But several ceremonies unfolded without major incident.`\
 https://nytimes.com/2024/05/11/us/graduations-protests-berkeley.html
