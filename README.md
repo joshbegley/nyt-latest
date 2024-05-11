@@ -1,3 +1,7 @@
+**Charlamagne Tha God Won’t Take Sides**\
+`The radio host talks to Lulu Garcia-Navarro about how he plans to wield his considerable political influence.`\
+https://nytimes.com/2024/05/11/magazine/charlamagne-tha-god-interview.html
+
 **A Rising Democrat Leans Into the Campus Fight Over Antisemitism**\
 `Gov. Josh Shapiro of Pennsylvania, the proudly Jewish leader of a battleground state, has dived headfirst into subjects that have wrenched apart his party.`\
 https://nytimes.com/2024/05/11/us/politics/josh-shapiro-pennsylvania.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/11/style/asmr-video.html
 **Trixie Mattel on the Sitcom That Can Bring Us All Together**\
 `“The love story of Jim and Pam — every time I watch that unfold, I find something new to cry about,” the entertainer said.`\
 https://nytimes.com/2024/05/11/arts/television/trixie-mattel-drag-race.html
-
-**Isolated and Defiant, Israel Vows to ‘Stand Alone’ in War on Hamas**\
-`As the death toll in Gaza has risen, countries have turned their backs on Israel. The consequences of those desertions, from security to economics, risk turning Israel into a pariah.`\
-https://nytimes.com/2024/05/11/world/australia/isolated-israel-war-hamas.html
 
