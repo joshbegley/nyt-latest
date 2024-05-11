@@ -1,40 +1,40 @@
-**Choosing a Dream Honeymoon Over a Lavish Wedding**\
-`With the cost of weddings on the rise, some couples are skipping big celebrations and prioritizing travel instead.`\
-https://nytimes.com/2024/05/11/style/dream-honeymoon-over-big-wedding.html
+**A Rising Democrat Leans Into the Campus Fight Over Antisemitism**\
+`Gov. Josh Shapiro of Pennsylvania, the proudly Jewish leader of a battleground state, has dived headfirst into subjects that have wrenched apart his party.`\
+https://nytimes.com/2024/05/11/us/politics/josh-shapiro-pennsylvania.html
 
-**A Family Saga That Stays Calm Through Tumultuous Times**\
-`Jessica Shattuck’s “Last House” dips into the cultural intrigues of 20th-century America, but keeps its nose surprisingly clean.`\
-https://nytimes.com/2024/05/11/books/review/last-house-jessica-shattuck.html
+**Will You Accept the Election Results? Republicans Dodge the Question.**\
+`Leading Republicans have refused to say flatly that they will accept the outcome of the presidential election if Donald Trump loses.`\
+https://nytimes.com/2024/05/11/us/politics/republicans-election-denial.html
 
-**A Loving Daughter, Obsessed With Her Parents’ Misery, Seeks Its Roots**\
-`Inspired by her own family’s past, Claire Messud’s “This Strange Eventful History” unfolds over seven decades and two wars.`\
-https://nytimes.com/2024/05/11/books/review/this-strange-eventful-history-claire-messud.html
+**Can Elections Force Venezuela’s Authoritarian Leader From Power?**\
+`President Nicolás Maduro has held on to power by holding sham elections. In July he will run again, but would he willingly cede power?`\
+https://nytimes.com/2024/05/11/world/americas/venezuela-elections.html
 
-**A Brief History of the 2,000-Pound Bombs Central to U.S.-Israeli Tensions**\
-`The one-ton Mark 84 bomb was designed shortly after World War II. Adding guidance kits has kept it in use for more than 70 years.`\
-https://nytimes.com/2024/05/11/us/israel-gaza-bombs.html
+**A Panorama of Design**\
+`A look at design-world events, products and people.`\
+https://nytimes.com/2024/05/11/style/design-trends.html
 
-**Freshmen Democrats Work to Turn Biden Impeachment Effort on Its Head**\
-`A crop of novice lawmakers on the House Oversight Committee has countered Republicans’ allegations against President Biden with attention-grabbing charges of their own.`\
-https://nytimes.com/2024/05/11/us/politics/jasmine-crockett-democrats-oversight.html
+**Why Antiwar Protests Haven’t Flared Up at Black Colleges Like Morehouse**\
+`The White House appears anxious about President Biden’s coming speech at Morehouse College. But for complex reasons, such campuses have had far less visible Gaza tensions.`\
+https://nytimes.com/2024/05/11/us/politics/biden-morehouse-black-colleges.html
 
-**The ‘Betches’ Got Rich. So What’s Next?**\
-`The women’s media company, which started as a raunchy college blog, is a rare financial success story — and on the White House’s radar. Now, it’s wrestling with how to grow up alongside its readers.`\
-https://nytimes.com/2024/05/11/business/betches-women-digital-media.html
+**The Annoying, Go-Getting Colleague: Beat Her or Emulate Her?**\
+`When corporate jousting, don’t choose jealousy.`\
+https://nytimes.com/2024/05/11/business/roxane-gay-work-office.html
 
-**Who Are Key Players in the Menendez Case?**\
-`Senator Robert Menendez, Democrat of New Jersey, and his wife, Nadine Menendez, are accused of taking part in a wide-ranging, international bribery scheme that lasted five years. Take a closer look at central figures related to the case.`\
-https://nytimes.com/interactive/2024/nyregion/senator-bob-menendez-nadine-trial-defendants.html
+**Trump Has Long Been Known as a Micromanager. Prosecutors Are Using It Against Him.**\
+`Witnesses have described the former president monitoring the minutiae of his business, a portrait prosecutors are drawing to help convince the jury that he couldn’t have helped but oversee a hush-money payment to avoid a damaging story.`\
+https://nytimes.com/2024/05/11/us/politics/trump-trial-micromanager.html
 
-**Today’s Wordle Review No. 1,057**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/11/crosswords/wordle-review.html
+**Is Everything A.S.M.R. Now?**\
+`Videos that tickle what is known as the Autonomous Sensory Meridian Response used to belong to a specific corner of the internet. Now they’re virtually everywhere.`\
+https://nytimes.com/2024/05/11/style/asmr-video.html
 
-**Small Cars With Small Drivers Race Toward a World Championship**\
-`Inside the charming and intense competition to represent New York City at the international soapbox derby championship this summer.`\
-https://nytimes.com/2024/05/11/nyregion/bronx-soapbox-derby.html
+**Trixie Mattel on the Sitcom That Can Bring Us All Together**\
+`“The love story of Jim and Pam — every time I watch that unfold, I find something new to cry about,” the entertainer said.`\
+https://nytimes.com/2024/05/11/arts/television/trixie-mattel-drag-race.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/05/11/crosswords/spelling-bee-forum.html
+**Isolated and Defiant, Israel Vows to ‘Stand Alone’ in War on Hamas**\
+`As the death toll in Gaza has risen, countries have turned their backs on Israel. The consequences of those desertions, from security to economics, risk turning Israel into a pariah.`\
+https://nytimes.com/2024/05/11/world/australia/isolated-israel-war-hamas.html
 
