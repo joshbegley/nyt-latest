@@ -34,7 +34,7 @@ https://nytimes.com/2024/05/11/opinion/campus-protests.html
 `Readers discuss a column by Ross Douthat.`\
 https://nytimes.com/2024/05/11/opinion/reading-protests-college-campus.html
 
-**About 150,00 people fled from Rafah in recent days, the U.N. says.**\
+**About 150,000 people fled from Rafah in recent days, the U.N. says.**\
 `By Raja Abdulrahim and Bilal Shbair`\
 https://nytimes.com/live/2024/05/11/world/israel-gaza-war-hamas-rafah/about-15000-people-fled-from-rafah-in-recent-days-the-un-says
 

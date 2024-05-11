@@ -1,3 +1,7 @@
+**About 150,000 people fled from Rafah in recent days, the U.N. says.**\
+`By Raja Abdulrahim and Bilal Shbair`\
+https://nytimes.com/live/2024/05/11/world/israel-gaza-war-hamas-rafah/about-15000-people-fled-from-rafah-in-recent-days-the-un-says
+
 **Two Ledgers**\
 `Majid Khan was locked away at C.I.A. black sites for years. What would he tell the world?`\
 https://nytimes.com/2024/05/11/podcasts/this-american-life-two-ledgers-nyt-audio.html
