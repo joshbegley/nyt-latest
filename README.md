@@ -27,7 +27,7 @@ https://nytimes.com/2024/05/11/opinion/campus-protest-police-violence.html
 https://nytimes.com/2024/05/11/opinion/donnie-after-dark.html
 
 **Rita, Anita, My Mother and Me**\
-`‘West Side Story’ is easy to criticize. But we watched it again and again for Moreno and her ‘movidas.’`\
+`“West Side Story” is easy to criticize. But we watched it again and again for Moreno and her “movidas.”`\
 https://nytimes.com/2024/05/11/opinion/west-side-story-latina-mothers.html
 
 **China’s Dead-End Economy Is Bad News for Everyone**\
