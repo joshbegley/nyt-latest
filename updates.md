@@ -1,3 +1,7 @@
+**Here’s the latest on campus protests.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/05/11/us/college-campus-protests/heres-the-latest-on-campus-protests
+
 **Charlamagne Tha God Won’t Take Sides**\
 `The radio host talks to Lulu Garcia-Navarro about how he plans to wield his considerable political influence.`\
 https://nytimes.com/2024/05/11/magazine/charlamagne-tha-god-interview.html
