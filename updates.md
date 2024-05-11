@@ -1,3 +1,7 @@
+**Time for the favorite: Baby Lasagna, from Croatia.**\
+`By Alex Marshall`\
+https://nytimes.com/live/2024/05/11/arts/eurovision-final/time-for-the-favorite-baby-lasagna-from-croatia
+
 **Will Nemo, from Switzerland, be Eurovision’s first nonbinary star?**\
 `By Alex Marshall`\
 https://nytimes.com/live/2024/05/11/arts/eurovision-final/will-nemo-from-switzerland-be-eurovisions-first-nonbinary-star
