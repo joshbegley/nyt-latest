@@ -1,3 +1,7 @@
+**Pixar Box Set**\
+`Avery Gee Katz makes an animated Times debut.`\
+https://nytimes.com/2024/05/11/crosswords/daily-puzzle-2024-05-12.html
+
 **Now for the numbers game.**\
 `By Elisabeth Vincentelli`\
 https://nytimes.com/live/2024/05/11/arts/eurovision-final/now-for-the-numbers-game
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/11/arts/eurovision-final/can-britains-olly-alex
 **As Israel Steps Up Attacks, 300,000 Gazans Are on the Move**\
 `Many say there is nowhere to go, and even the “humanitarian zone” recommended by Israel is neither safe nor equipped to handle all of them, the U.N. says.`\
 https://nytimes.com/2024/05/11/world/middleeast/israel-gaza-rafah-palestinians.html
-
-**Northern Lights Set to Return During Extreme Solar Storm’s 2nd Night**\
-`Electrical utilities said they weathered earlier conditions as persistent geomagnetic storms were expected to cause another light show in evening skies.`\
-https://nytimes.com/2024/05/11/science/northern-lights-aurora-solar-storm.html
 
