@@ -1,3 +1,7 @@
+**Pixar Box Set**\
+`Avery Gee Katz makes an animated Times debut.`\
+https://nytimes.com/2024/05/11/crosswords/daily-puzzle-2024-05-12.html
+
 **Now for the numbers game.**\
 `By Elisabeth Vincentelli`\
 https://nytimes.com/live/2024/05/11/arts/eurovision-final/now-for-the-numbers-game
