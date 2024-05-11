@@ -1,3 +1,7 @@
+**South Africa Again Asks U.N.’s Top Court to Act Against Israel in Gaza**\
+`The “very survival” of Palestinians in the Gaza Strip is under threat, South Africa said.`\
+https://nytimes.com/2024/05/10/world/middleeast/south-africa-icj-israel-rafah.html
+
 **A Solar Storm Lights Up the Night Sky**\
 `The unusual sight of aurora borealis was visible across Britain on Friday, including southern parts of the country and London.`\
 https://nytimes.com/2024/05/10/world/europe/aurora-northern-lights-solar-storm-photos.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/podcasts/transcript-ezra-klein-interviews-keith-h
 **Sudden Resignations. A Leaked Letter. What’s Happening Inside Miss USA?**\
 `Noelia Voigt’s announcement this week that she was stepping down as Miss USA set off a string of departures and prompted larger questions about the inner workings of the organization.`\
 https://nytimes.com/2024/05/10/style/miss-usa-resigns-pageant-letter.html
-
-**Transcript of Trump Manhattan Trial, May 9, 2024**\
-`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
-https://nytimes.com/interactive/2024/05/10/nyregion/trump-hush-money-trial-transcript-may-9.html
 
