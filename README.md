@@ -1,3 +1,7 @@
+**Will Nemo, from Switzerland, be Eurovision’s first nonbinary star?**\
+`By Alex Marshall`\
+https://nytimes.com/live/2024/05/11/arts/eurovision-final/will-nemo-from-switzerland-be-eurovisions-first-nonbinary-star
+
 **Can Angelina Mango become Italy’s next global pop star?**\
 `By Alex Marshall`\
 https://nytimes.com/live/2024/05/11/arts/eurovision-final/can-angelina-mango-become-italys-next-global-pop-star
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/11/arts/jeannie-epper-dead.html
 **Transgender Athlete Ban in a Long Island County Is Struck Down in Court**\
 `A judge ruled that the Nassau County executive did not have the authority to ban transgender women from playing on women’s sports teams in county-owned facilities. The executive said he would appeal.`\
 https://nytimes.com/2024/05/11/nyregion/transgender-womens-sports-ny.html
-
-**Sweden: A pop music powerhouse, in Eurovision and the charts.**\
-`By Elisabeth Vincentelli`\
-https://nytimes.com/live/2024/05/11/arts/eurovision-final/sweden-a-pop-music-powerhouse-in-eurovision-and-the-charts
 
