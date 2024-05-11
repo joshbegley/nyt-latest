@@ -1,3 +1,7 @@
+**Two Ledgers**\
+`Majid Khan was locked away at C.I.A. black sites for years. What would he tell the world?`\
+https://nytimes.com/2024/05/11/podcasts/this-american-life-two-ledgers-nyt-audio.html
+
 **And the Winner Is: Kendrick Lamar. And Old-School Hip-Hop.**\
 `A beef between two rap titans isn’t just about egos. It’s about the future of the genre, as determined by the legacy of its past.`\
 https://nytimes.com/2024/05/11/opinion/kendrick-lamar-drake-battle-winner.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/11/opinion/reading-protests-college-campus.html
 **About 150,00 people fled from Rafah in recent days, the U.N. says.**\
 `By Raja Abdulrahim and Bilal Shbair`\
 https://nytimes.com/live/2024/05/11/world/israel-gaza-war-hamas-rafah/about-15000-people-fled-from-rafah-in-recent-days-the-un-says
-
-**When Travel Plans Go Awry**\
-`There are ways of keeping ourselves anchored, even when we enter a parallel universe disconnected from time.`\
-https://nytimes.com/2024/05/11/briefing/when-travel-plans-go-awry.html
 
