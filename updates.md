@@ -1,3 +1,7 @@
+**Sudden Resignations. A Leaked Letter. What’s Happening Inside Miss USA?**\
+`Noelia Voigt’s announcement this week that she was stepping down as Miss USA set off a string of departures and prompted larger questions about the inner workings of the organization.`\
+https://nytimes.com/2024/05/10/style/miss-usa-resigns-pageant-letter.html
+
 **Transcript of Trump Manhattan Trial, May 9, 2024**\
 `New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
 https://nytimes.com/interactive/2024/05/10/nyregion/trump-hush-money-trial-transcript-may-9.html
