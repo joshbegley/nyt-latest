@@ -1,3 +1,7 @@
+**Justice Alito Warns of Threats to Freedom of Speech and Religion**\
+`In a commencement ceremony at a Catholic university, the justice said that fundamental principles were in peril at universities and American society.`\
+https://nytimes.com/2024/05/11/us/politics/justice-alito-freedom-speech-religion.html
+
 **Arizona State bans a scholar from campus after a confrontation at a protest.**\
 `By Anna Betts`\
 https://nytimes.com/live/2024/05/11/us/college-campus-protests/arizona-state-bans-a-scholar-from-campus-after-a-confrontation-at-a-protest
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/11/style/millennial-mom-midlife-crisis.html
 **Eurovision Disqualifies Dutch Entrant Hours Before Final**\
 `The competition’s organizers said that Swedish police were investigating the singer Joost Klein and that it would be inappropriate for him to take part in Saturday’s final.`\
 https://nytimes.com/2024/05/11/arts/music/eurovision-joost-klein-disqualified.html
-
-**All the Rage in Private Equity: Mortgaging the Fund**\
-`A little-known financial tool was the talk of the Milken Institute’s Global Conference.`\
-https://nytimes.com/2024/05/11/business/dealbook/all-the-rage-in-private-equity-mortgaging-the-fund.html
 
