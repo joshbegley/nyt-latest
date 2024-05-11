@@ -1,3 +1,7 @@
+**Israel orders evacuation in northern Gaza, ahead of stepped up attacks against Hamas.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/05/11/world/israel-gaza-war-hamas-rafah/israel-orders-evacuation-of-northern-hamas-stronghold-in-gaza-ahead-of-stepped-up-attacks
+
 **What Donald Trump Would Do for $1 Billion**\
 `His corruption is on display once again.`\
 https://nytimes.com/2024/05/11/opinion/trump-corruption.html
