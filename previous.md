@@ -1,3 +1,7 @@
+**Sweden: A pop music powerhouse, in Eurovision and the charts.**\
+`By Elisabeth Vincentelli`\
+https://nytimes.com/live/2024/05/11/arts/eurovision-final/sweden-a-pop-music-powerhouse-in-eurovision-and-the-charts
+
 **In Tel Aviv, Israelis rally around their Eurovision act.**\
 `By Adam Sella`\
 https://nytimes.com/live/2024/05/11/arts/eurovision-final/in-tel-aviv-israelis-rally-around-their-eurovision-act
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/11/arts/music/eurovision-israel-palestine-protest.ht
 **Welcome to our live Eurovision coverage!**\
 `The contest features songs that range from the sublime to the ridiculous`\
 https://nytimes.com/live/2024/05/11/arts/eurovision-final/welcome-to-our-live-eurovision-coverage
-
-**What Donald Trump Would Do for $1 Billion**\
-`His corruption is on display once again.`\
-https://nytimes.com/2024/05/11/opinion/trump-corruption.html
 

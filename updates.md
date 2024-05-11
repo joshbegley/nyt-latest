@@ -1,3 +1,7 @@
+**Sweden: A pop music powerhouse, in Eurovision and the charts.**\
+`By Elisabeth Vincentelli`\
+https://nytimes.com/live/2024/05/11/arts/eurovision-final/sweden-a-pop-music-powerhouse-in-eurovision-and-the-charts
+
 **In Tel Aviv, Israelis rally around their Eurovision act.**\
 `By Adam Sella`\
 https://nytimes.com/live/2024/05/11/arts/eurovision-final/in-tel-aviv-israelis-rally-around-their-eurovision-act
