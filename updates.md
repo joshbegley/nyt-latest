@@ -1,3 +1,11 @@
+**Nancy Neveloff Dubler, Mediator for Life’s Final Moments, Dies at 82**\
+`A bioethicist, she pioneered bedside methods for helping patients, their families and doctors deal with anguishing life-or-death decisions in a high-tech age.`\
+https://nytimes.com/2024/05/10/health/nancy-neveloff-dead.html
+
+**Ilon Specht, Who Empowered Women With ‘I’m Worth It’ Ad, Dies at 81**\
+`She came up with the feminist campaign, for a hair color product, when challenging the notions of men at her ad agency.`\
+https://nytimes.com/2024/05/10/business/media/ilon-specht-dead.html
+
 **Judge Blocks New U.S. Rule Limiting Credit Card Late Fees**\
 `Set to take effect on Tuesday, the rule would save households $10 billion a year in “junk fees,” the Consumer Financial Protection Bureau said.`\
 https://nytimes.com/2024/05/10/business/credit-card-fee-limit-blocked.html
