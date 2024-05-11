@@ -1,3 +1,5 @@
+
+
 **Arizona State bans a scholar from campus after a confrontation at a protest.**\
 `By Anna Betts`\
 https://nytimes.com/live/2024/05/11/us/college-campus-protests/arizona-state-bans-a-scholar-from-campus-after-a-confrontation-at-a-protest
