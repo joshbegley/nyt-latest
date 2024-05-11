@@ -1,3 +1,7 @@
+**All the Rage in Private Equity: Mortgaging the Fund**\
+`A little-known financial tool was the talk of the Milken Institute’s Global Conference.`\
+https://nytimes.com/2024/05/11/business/dealbook/all-the-rage-in-private-equity-mortgaging-the-fund.html
+
 **On Mother’s Day, Here Are 2 Novels That Get Babies Right**\
 `Barbara Kingsolver’s debut, and a bad seed’s beginnings.`\
 https://nytimes.com/2024/05/11/books/read-like-wind-recommendations-babies-in-fiction.html
