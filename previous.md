@@ -1,3 +1,7 @@
+**Farewell, Chuck E. Cheese Animatronic Band**\
+`A mainstay of the pizza and arcade chain, by turns endearing and creepy, will be phased out by year’s end at all but two locations. We visited one of them.`\
+https://nytimes.com/2024/05/11/business/chuck-e-cheese-animatronic-band.html
+
 **Here’s the latest on campus protests.**\
 `By Victoria Kim`\
 https://nytimes.com/live/2024/05/11/us/college-campus-protests/heres-the-latest-on-campus-protests
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/11/business/roxane-gay-work-office.html
 **Trump Has Long Been Known as a Micromanager. Prosecutors Are Using It Against Him.**\
 `Witnesses have described the former president monitoring the minutiae of his business, a portrait prosecutors are drawing to help convince the jury that he couldn’t have helped but oversee a hush-money payment to avoid a damaging story.`\
 https://nytimes.com/2024/05/11/us/politics/trump-trial-micromanager.html
-
-**Is Everything A.S.M.R. Now?**\
-`Videos that tickle what is known as the Autonomous Sensory Meridian Response used to belong to a specific corner of the internet. Now they’re virtually everywhere.`\
-https://nytimes.com/2024/05/11/style/asmr-video.html
 

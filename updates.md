@@ -1,3 +1,7 @@
+**Farewell, Chuck E. Cheese Animatronic Band**\
+`A mainstay of the pizza and arcade chain, by turns endearing and creepy, will be phased out by year’s end at all but two locations. We visited one of them.`\
+https://nytimes.com/2024/05/11/business/chuck-e-cheese-animatronic-band.html
+
 **Here’s the latest on campus protests.**\
 `By Victoria Kim`\
 https://nytimes.com/live/2024/05/11/us/college-campus-protests/heres-the-latest-on-campus-protests
