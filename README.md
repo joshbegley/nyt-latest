@@ -1,3 +1,7 @@
+**About 150,00 people fled from Rafah in recent days, the U.N. says.**\
+`By Raja Abdulrahim and Bilal Shbair`\
+https://nytimes.com/live/2024/05/11/world/israel-gaza-war-hamas-rafah/about-15000-people-fled-from-rafah-in-recent-days-the-un-says
+
 **When Travel Plans Go Awry**\
 `There are ways of keeping ourselves anchored, even when we enter a parallel universe disconnected from time.`\
 https://nytimes.com/2024/05/11/briefing/when-travel-plans-go-awry.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/11/world/americas/venezuela-elections.html
 **A Panorama of Design**\
 `A look at design-world events, products and people.`\
 https://nytimes.com/2024/05/11/style/design-trends.html
-
-**Why Antiwar Protests Haven’t Flared Up at Black Colleges Like Morehouse**\
-`The White House appears anxious about President Biden’s coming speech at Morehouse College. But for complex reasons, such campuses have had far less visible Gaza tensions.`\
-https://nytimes.com/2024/05/11/us/politics/biden-morehouse-black-colleges.html
 
