@@ -1,3 +1,7 @@
+**Now for the numbers game.**\
+`By Elisabeth Vincentelli`\
+https://nytimes.com/live/2024/05/11/arts/eurovision-final/now-for-the-numbers-game
+
 **Sam Rubin, TV Anchor Known for His Hollywood Reporting, Dies at 64**\
 `Mr. Rubin began at the Los Angeles television news station KTLA in 1991 and became a staple of morning viewing through his interviews with celebrities.`\
 https://nytimes.com/2024/05/11/arts/television/sam-rubin-ktla-dead.html
