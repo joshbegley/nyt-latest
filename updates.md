@@ -1,3 +1,7 @@
+**Justice Thomas Denounces ‘the Nastiness and the Lies’ Faced by His Family**\
+`The statement was among the few public remarks he has made since revelations that he had failed to report lavish gifts and travel from wealthy conservatives.`\
+https://nytimes.com/2024/05/10/us/politics/clarence-thomas-supreme-court.html
+
 **South Africa Again Asks U.N.’s Top Court to Act Against Israel in Gaza**\
 `The “very survival” of Palestinians in the Gaza Strip is under threat, South Africa said.`\
 https://nytimes.com/2024/05/10/world/middleeast/south-africa-icj-israel-rafah.html

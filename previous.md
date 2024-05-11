@@ -1,3 +1,7 @@
+**Justice Thomas Denounces ‘the Nastiness and the Lies’ Faced by His Family**\
+`The statement was among the few public remarks he has made since revelations that he had failed to report lavish gifts and travel from wealthy conservatives.`\
+https://nytimes.com/2024/05/10/us/politics/clarence-thomas-supreme-court.html
+
 **South Africa Again Asks U.N.’s Top Court to Act Against Israel in Gaza**\
 `The “very survival” of Palestinians in the Gaza Strip is under threat, South Africa said.`\
 https://nytimes.com/2024/05/10/world/middleeast/south-africa-icj-israel-rafah.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/nyregion/100000009456849/judge-says-michael-cohen-must
 **Transcript: Ezra Klein Interviews Keith Humphreys**\
 `The May 10, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/05/10/podcasts/transcript-ezra-klein-interviews-keith-humphreys.html
-
-**Sudden Resignations. A Leaked Letter. What’s Happening Inside Miss USA?**\
-`Noelia Voigt’s announcement this week that she was stepping down as Miss USA set off a string of departures and prompted larger questions about the inner workings of the organization.`\
-https://nytimes.com/2024/05/10/style/miss-usa-resigns-pageant-letter.html
 
