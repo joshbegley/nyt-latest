@@ -1,3 +1,7 @@
+**Before the Eurovision Final, a Pro-Palestinian March**\
+`For months, activists and some fans of the song contest have demanded Israel be banned from the event, which this year takes place in Malmo, Sweden.`\
+https://nytimes.com/2024/05/11/arts/music/eurovision-israel-palestine-protest.html
+
 **Welcome to our live Eurovision coverage!**\
 `The contest features songs that range from the sublime to the ridiculous`\
 https://nytimes.com/live/2024/05/11/arts/eurovision-final/welcome-to-our-live-eurovision-coverage
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/11/business/mary-wells-lawrence-dead.html
 **Trump May Owe $100 Million From Double-Dip Tax Breaks, Audit Shows**\
 `A previously unknown focus of an I.R.S. audit is a dubious accounting maneuver that effectively meant taking the same write-offs twice on a Chicago skyscraper.`\
 https://nytimes.com/2024/05/11/us/trump-taxes-audit-chicago.html
-
-**The Long, Tortured Road to Biden’s Clash With Netanyahu Over Gaza War**\
-`The president offered strong support to Israel after Oct. 7 but has grown increasingly frustrated over the conduct of the war. “He has just gotten to a point where enough is enough,” a friend says.`\
-https://nytimes.com/2024/05/11/us/politics/biden-netanyahu-gaza.html
 

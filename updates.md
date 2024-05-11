@@ -1,3 +1,7 @@
+**Before the Eurovision Final, a Pro-Palestinian March**\
+`For months, activists and some fans of the song contest have demanded Israel be banned from the event, which this year takes place in Malmo, Sweden.`\
+https://nytimes.com/2024/05/11/arts/music/eurovision-israel-palestine-protest.html
+
 **Welcome to our live Eurovision coverage!**\
 `The contest features songs that range from the sublime to the ridiculous`\
 https://nytimes.com/live/2024/05/11/arts/eurovision-final/welcome-to-our-live-eurovision-coverage
