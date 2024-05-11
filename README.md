@@ -1,3 +1,7 @@
+**Arizona State bans a scholar from campus after a confrontation at a protest.**\
+`By Anna Betts`\
+https://nytimes.com/live/2024/05/11/us/college-campus-protests/arizona-state-bans-a-scholar-from-campus-after-a-confrontation-at-a-protest
+
 **Israel orders evacuation of northern Gaza, ahead of stepped up attacks against Hamas.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/05/11/world/israel-gaza-war-hamas-rafah/israel-orders-evacuation-of-northern-hamas-stronghold-in-gaza-ahead-of-stepped-up-attacks
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/11/arts/music/eurovision-joost-klein-disqualified.ht
 **All the Rage in Private Equity: Mortgaging the Fund**\
 `A little-known financial tool was the talk of the Milken Institute’s Global Conference.`\
 https://nytimes.com/2024/05/11/business/dealbook/all-the-rage-in-private-equity-mortgaging-the-fund.html
-
-**On Mother’s Day, Here Are 2 Novels That Get Babies Right**\
-`Barbara Kingsolver’s debut, and a bad seed’s beginnings.`\
-https://nytimes.com/2024/05/11/books/read-like-wind-recommendations-babies-in-fiction.html
 
