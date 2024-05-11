@@ -1,3 +1,11 @@
+**Trump rallies in New Jersey, Biden fund-raises in Washington State and campus protests hit graduations.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/05/11/us/biden-trump-election/trump-rallies-in-new-jersey-biden-fund-raises-in-washington-state-and-campus-protests-hit-graduations
+
+**11pol-swiper**\
+`Election Updates: Trump returns to the trail as Biden makes a West Coast fund-raising swing.`\
+https://nytimes.com/live/2024/05/11/us/biden-trump-election
+
 **Time for the favorite: Baby Lasagna, from Croatia.**\
 `By Alex Marshall`\
 https://nytimes.com/live/2024/05/11/arts/eurovision-final/time-for-the-favorite-baby-lasagna-from-croatia
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/05/11/arts/eurovision-final/bambie-thug-ireland-eu
 **Next to the stage, Israel.**\
 `By Alex Marshall`\
 https://nytimes.com/live/2024/05/11/arts/eurovision-final/next-to-the-stage-israel
-
-**Ukraine’s entrants want attention on their country.**\
-`By Alex Marshall`\
-https://nytimes.com/live/2024/05/11/arts/eurovision-final/ukraine-eurovision-alyona-alyona-jenny-heil
-
-**Jeannie Epper, Stunt Double to the Stars, Is Dead at 83**\
-`Her first stunt was riding a horse bareback down a cliff when she was 9. She went on to soar on the hit TV series “Wonder Woman” and in many other places.`\
-https://nytimes.com/2024/05/11/arts/jeannie-epper-dead.html
 
