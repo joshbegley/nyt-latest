@@ -1,3 +1,11 @@
+**Big, Smoggy Bangkok Gets a Badly Needed Breath of Fresh Air**\
+`In the heart of this megacity, an industrial site has been turned into an oasis for residents (and birds, bats and mosquito-eating dragonflies).`\
+https://nytimes.com/2024/05/11/world/asia/bangkok-thailand-benjakitti-park.html
+
+**British Colleges Are Handling Protests Differently. Will It Pay Off?**\
+`University leaders have so far adopted a more permissive attitude to pro-Palestinian encampments than their U.S. counterparts. Here’s why.`\
+https://nytimes.com/2024/05/11/world/europe/british-colleges-are-handling-protests-differently-will-it-pay-off.html
+
 **Quotation of the Day: Why Prices for Cocoa Went Nuts**\
 `Quotation of the Day for Saturday, May 11, 2024.`\
 https://nytimes.com/2024/05/11/pageoneplus/quotation-of-the-day-why-prices-for-cocoa-went-nuts.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/10/nyregion/ronn-torossian-syracuse-arrest.html
 **‘Doctor Who’ Season Premiere Recap: Back in the Groove**\
 `The new season, written by Russell T Davies and starring Ncuti Gatwa as the 15th Doctor, opens with a double episode premiere.`\
 https://nytimes.com/2024/05/10/arts/television/doctor-who-recap-ncuti-gatwa.html
-
-**Judge Blocks New U.S. Rule Limiting Credit Card Late Fees**\
-`Set to take effect on Tuesday, the rule would save households $10 billion a year in “junk fees,” the Consumer Financial Protection Bureau said.`\
-https://nytimes.com/2024/05/10/business/credit-card-fee-limit-blocked.html
-
-**Judge Says Michael Cohen Must Stop Taunting Trump**\
-`Ahead of what could be the most explosive testimony in Donald J.`\
-https://nytimes.com/video/nyregion/100000009456849/judge-says-michael-cohen-must-stop-taunting-trump.html
 
