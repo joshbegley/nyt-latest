@@ -1,3 +1,7 @@
+**At U.C. Berkeley ceremony, a student protest draws in hundreds.**\
+`By Holly Secon`\
+https://nytimes.com/live/2024/05/11/us/college-campus-protests/at-uc-berkeley-ceremony-a-student-protest-draws-in-hundreds
+
 **Pixar Box Set**\
 `Avery Gee Katz makes an animated Times debut.`\
 https://nytimes.com/2024/05/11/crosswords/daily-puzzle-2024-05-12.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/11/arts/eurovision-final/can-angelina-mango-bec
 **Can Britain’s Olly Alexander prove the critics wrong?**\
 `By Alex Marshall`\
 https://nytimes.com/live/2024/05/11/arts/eurovision-final/can-britains-olly-alexander-prove-the-critics-wrong
-
-**As Israel Steps Up Attacks, 300,000 Gazans Are on the Move**\
-`Many say there is nowhere to go, and even the “humanitarian zone” recommended by Israel is neither safe nor equipped to handle all of them, the U.N. says.`\
-https://nytimes.com/2024/05/11/world/middleeast/israel-gaza-rafah-palestinians.html
 
