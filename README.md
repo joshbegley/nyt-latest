@@ -1,4 +1,4 @@
-**Israel orders evacuation of northern Hamas stronghold in Gaza, ahead of stepped up attacks.**\
+**Israel orders evacuation of northern Gaza, ahead of stepped up attacks against Hamas.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/05/11/world/israel-gaza-war-hamas-rafah/israel-orders-evacuation-of-northern-hamas-stronghold-in-gaza-ahead-of-stepped-up-attacks
 
