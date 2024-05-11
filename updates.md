@@ -1,3 +1,11 @@
+**What Donald Trump Would Do for $1 Billion**\
+`His corruption is on display once again.`\
+https://nytimes.com/2024/05/11/opinion/trump-corruption.html
+
+**A Place for the Humble Thank-You Note**\
+`The Times’s investigation into the allegations against Harvey Weinstein won a Pulitzer Prize, and inspired a Hollywood movie. There were modest forms a praise, too.`\
+https://nytimes.com/2024/05/11/insider/weinstein-investigation.html
+
 **Justice Alito Warns of Threats to Freedom of Speech and Religion**\
 `In a commencement ceremony at a Catholic university, the justice said that fundamental principles were in peril at universities and American society.`\
 https://nytimes.com/2024/05/11/us/politics/justice-alito-freedom-speech-religion.html
