@@ -1,3 +1,11 @@
+**Measures of One’s Worth**\
+`Billy Bratton’s themeless challenge hops from square to square.`\
+https://nytimes.com/2024/05/10/crosswords/daily-puzzle-2024-05-11.html
+
+**The One Thing Voters Remember About Trump**\
+`We asked voters for the one thing they remembered most about the Trump era. Few of them cited major events like the pandemic and Jan. 6.`\
+https://nytimes.com/interactive/2024/05/10/upshot/trump-memories-poll.html
+
 **College Parent Arrested After Confrontation at Syracuse Campus Protest**\
 `Ronn Torossian, an associate of Mayor Eric Adams, said he was protesting what he sees as Syracuse University’s inadequate response to antisemitism since the Oct. 7 attack.`\
 https://nytimes.com/2024/05/10/nyregion/ronn-torossian-syracuse-arrest.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/05/10/nyregion/trump-hush-money-trial-trans
 **What We Know About Where Aid Can Enter Gaza**\
 `A look at the humanitarian assistance getting into the Gaza Strip by land, air and sea.`\
 https://nytimes.com/2024/05/10/world/middleeast/gaza-aid-border-crossing.html
-
-**U.S.C. Valedictorian Graduates Without a Speech, but With Cheers**\
-`Asna Tabassum, whose speech was canceled by University of Southern California administrators, received plenty of support at an engineering school ceremony.`\
-https://nytimes.com/2024/05/10/us/usc-valedictorian-speech-graduation.html
-
-**Green Party candidates for Senate in Arizona draw suspicion of being plants.**\
-`Party leaders accused Mike Norton and Arturo Hernandez of entering the primary to help Democrat Ruben Gallego and Republican Kari Lake tip the nationally-watched contest.`\
-https://nytimes.com/live/2024/05/10/us/biden-trump-election/green-party-arizona-senate
 

@@ -1,3 +1,11 @@
+**Measures of One’s Worth**\
+`Billy Bratton’s themeless challenge hops from square to square.`\
+https://nytimes.com/2024/05/10/crosswords/daily-puzzle-2024-05-11.html
+
+**The One Thing Voters Remember About Trump**\
+`We asked voters for the one thing they remembered most about the Trump era. Few of them cited major events like the pandemic and Jan. 6.`\
+https://nytimes.com/interactive/2024/05/10/upshot/trump-memories-poll.html
+
 **College Parent Arrested After Confrontation at Syracuse Campus Protest**\
 `Ronn Torossian, an associate of Mayor Eric Adams, said he was protesting what he sees as Syracuse University’s inadequate response to antisemitism since the Oct. 7 attack.`\
 https://nytimes.com/2024/05/10/nyregion/ronn-torossian-syracuse-arrest.html
