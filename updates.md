@@ -1,3 +1,7 @@
+**Next to the stage, Israel.**\
+`By Alex Marshall`\
+https://nytimes.com/live/2024/05/11/arts/eurovision-final/next-to-the-stage-israel
+
 **Ukraine’s entrants want attention on their country.**\
 `By Alex Marshall`\
 https://nytimes.com/live/2024/05/11/arts/eurovision-final/ukraine-eurovision-alyona-alyona-jenny-heil

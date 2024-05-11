@@ -1,3 +1,7 @@
+**Next to the stage, Israel.**\
+`By Alex Marshall`\
+https://nytimes.com/live/2024/05/11/arts/eurovision-final/next-to-the-stage-israel
+
 **Ukraine’s entrants want attention on their country.**\
 `By Alex Marshall`\
 https://nytimes.com/live/2024/05/11/arts/eurovision-final/ukraine-eurovision-alyona-alyona-jenny-heil
@@ -33,8 +37,4 @@ https://nytimes.com/video/science/earth/100000009463654/northern-lights-solar-st
 **Woman Made Her Home Inside a Grocery Store’s Rooftop Sign, Police Say**\
 `She had set up flooring, a computer and a coffee maker. The unidentified woman had been living in the store in Midland, Mich., for about a year, the authorities said.`\
 https://nytimes.com/2024/05/11/us/family-fare-michigan-woman-sign.html
-
-**Malmo is your Eurovision host city this year.**\
-`By Christina Anderson`\
-https://nytimes.com/live/2024/05/11/arts/eurovision-final/welcome-to-malmo-your-eurovision-host-city
 
