@@ -34,7 +34,7 @@ https://nytimes.com/2024/05/11/opinion/west-side-story-latina-mothers.html
 `China’s economy has reached a dead end. Getting out will mean more trade friction with the United States.`\
 https://nytimes.com/2024/05/11/opinion/china-economy-dead-end.html
 
-**A Way Back from Campus Chaos**\
-`Universities have failed to strike a balance between academic freedom and free speech during this spring’s protests.`\
+**A Failure of Leadership at American Universities**\
+`Colleges have failed to strike a balance between academic freedom and free speech during this spring’s protests.`\
 https://nytimes.com/2024/05/11/opinion/campus-protests.html
 

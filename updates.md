@@ -1,3 +1,7 @@
+**A Failure of Leadership at American Universities**\
+`Colleges have failed to strike a balance between academic freedom and free speech during this spring’s protests.`\
+https://nytimes.com/2024/05/11/opinion/campus-protests.html
+
 **Rita, Anita, My Mother and Me**\
 `“West Side Story” is easy to criticize. But we watched it again and again for Moreno and her “movidas.”`\
 https://nytimes.com/2024/05/11/opinion/west-side-story-latina-mothers.html
