@@ -1,3 +1,7 @@
+**Will Nemo, from Switzerland, be Eurovision’s first nonbinary star?**\
+`By Alex Marshall`\
+https://nytimes.com/live/2024/05/11/arts/eurovision-final/will-nemo-from-switzerland-be-eurovisions-first-nonbinary-star
+
 **Can Angelina Mango become Italy’s next global pop star?**\
 `By Alex Marshall`\
 https://nytimes.com/live/2024/05/11/arts/eurovision-final/can-angelina-mango-become-italys-next-global-pop-star
