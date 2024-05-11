@@ -1,3 +1,7 @@
+**Can Angelina Mango become Italy’s next global pop star?**\
+`By Alex Marshall`\
+https://nytimes.com/live/2024/05/11/arts/eurovision-final/can-angelina-mango-become-italys-next-global-pop-star
+
 **Can Britain’s Olly Alexander prove the critics wrong?**\
 `By Alex Marshall`\
 https://nytimes.com/live/2024/05/11/arts/eurovision-final/can-britains-olly-alexander-prove-the-critics-wrong
