@@ -1,3 +1,7 @@
+**On a Day of Graduations, Berkeley’s Protests Stand Out**\
+`After weeks of tumult over protests, many college administrators prepared themselves for disruptions. But several ceremonies unfolded without major incident.`\
+https://nytimes.com/2024/05/11/us/graduations-protests-berkeley.html
+
 **At College Graduations, Berkeley’s Protests Stand Out**\
 `After weeks of tumult over protests, many administrators prepared themselves for disruptions. But several ceremonies unfolded without major incident.`\
 https://nytimes.com/2024/05/11/us/graduations-protests-berkeley.html
