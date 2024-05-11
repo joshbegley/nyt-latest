@@ -1,3 +1,11 @@
+**‘They Are Erasing Streets’: Russian Attacks Bring War Nearer Kharkiv**\
+`Russia’s latest offensive has expanded the battlefield along Ukraine’s northern border, and sent thousands of civilians fleeing to the closest large city.`\
+https://nytimes.com/2024/05/11/world/europe/ukraine-russia-kharkiv.html
+
+**Being a Mother Is Hard Work. Is It Actually Harder on Millennial Moms?**\
+`Mothers have been exhausted since the beginning of time, but some difficulties are specific to the millennial generation.`\
+https://nytimes.com/2024/05/11/style/millennial-mom-midlife-crisis.html
+
 **Eurovision Disqualifies Dutch Entrant Hours Before Final**\
 `The competition’s organizers said that Swedish police were investigating the singer Joost Klein and that it would be inappropriate for him to take part in Saturday’s final.`\
 https://nytimes.com/2024/05/11/arts/music/eurovision-joost-klein-disqualified.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/11/opinion/campus-protest-police-violence.html
 **Donnie After Dark**\
 `A trial that is a meditation on Trump’s amorality.`\
 https://nytimes.com/2024/05/11/opinion/donnie-after-dark.html
-
-**Rita, Anita, My Mother and Me**\
-`“West Side Story” is easy to criticize. But we watched it again and again for Moreno and her “movidas.”`\
-https://nytimes.com/2024/05/11/opinion/west-side-story-latina-mothers.html
-
-**China’s Dead-End Economy Is Bad News for Everyone**\
-`China’s economy has reached a dead end. Getting out will mean more trade friction with the United States.`\
-https://nytimes.com/2024/05/11/opinion/china-economy-dead-end.html
 

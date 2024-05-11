@@ -1,3 +1,11 @@
+**‘They Are Erasing Streets’: Russian Attacks Bring War Nearer Kharkiv**\
+`Russia’s latest offensive has expanded the battlefield along Ukraine’s northern border, and sent thousands of civilians fleeing to the closest large city.`\
+https://nytimes.com/2024/05/11/world/europe/ukraine-russia-kharkiv.html
+
+**Being a Mother Is Hard Work. Is It Actually Harder on Millennial Moms?**\
+`Mothers have been exhausted since the beginning of time, but some difficulties are specific to the millennial generation.`\
+https://nytimes.com/2024/05/11/style/millennial-mom-midlife-crisis.html
+
 **Eurovision Disqualifies Dutch Entrant Hours Before Final**\
 `The competition’s organizers said that Swedish police were investigating the singer Joost Klein and that it would be inappropriate for him to take part in Saturday’s final.`\
 https://nytimes.com/2024/05/11/arts/music/eurovision-joost-klein-disqualified.html
