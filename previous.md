@@ -1,3 +1,7 @@
+**Mary Wells Lawrence, High-Profile Advertising Pioneer, Dies at 95**\
+`She was the first woman to own and run a major national advertising agency. Her company, Wells Rich Greene, was best known for the “I ♥ NY” campaign.`\
+https://nytimes.com/2024/05/11/business/mary-wells-lawrence-dead.html
+
 **Trump May Owe $100 Million From Double-Dip Tax Breaks, Audit Shows**\
 `A previously unknown focus of an I.R.S. audit is a dubious accounting maneuver that effectively meant taking the same write-offs twice on a Chicago skyscraper.`\
 https://nytimes.com/2024/05/11/us/trump-taxes-audit-chicago.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/11/podcasts/this-american-life-two-ledgers-nyt-audio
 **And the Winner Is: Kendrick Lamar. And Old-School Hip-Hop.**\
 `A beef between two rap titans isn’t just about egos. It’s about the future of the genre, as determined by the legacy of its past.`\
 https://nytimes.com/2024/05/11/opinion/kendrick-lamar-drake-battle-winner.html
-
-**The Limits of Moralism in Israel and Gaza**\
-`Why left and right both need a little more cold-eyed realism.`\
-https://nytimes.com/2024/05/11/opinion/foreign-policy-israel-gaza.html
 
