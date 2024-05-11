@@ -1,3 +1,35 @@
+**And the Winner Is: Kendrick Lamar. And Old-School Hip-Hop.**\
+`A beef between two rap titans isn’t just about egos. It’s about the future of the genre, as determined by the legacy of its past.`\
+https://nytimes.com/2024/05/11/opinion/kendrick-lamar-drake-battle-winner.html
+
+**The Limits of Moralism in Israel and Gaza**\
+`Why left and right both need a little more cold-eyed realism.`\
+https://nytimes.com/2024/05/11/opinion/foreign-policy-israel-gaza.html
+
+**The Harsh Crackdown on College Protests Is a Very Dangerous Mistake**\
+`Is this what a police state looks like?`\
+https://nytimes.com/2024/05/11/opinion/campus-protest-police-violence.html
+
+**Donnie After Dark**\
+`A trial that is a meditation on Trump’s amorality.`\
+https://nytimes.com/2024/05/11/opinion/donnie-after-dark.html
+
+**Rita, Anita, My Mother and Me**\
+`‘West Side Story’ is easy to criticize. But we watched it again and again for Moreno and her ‘movidas.’`\
+https://nytimes.com/2024/05/11/opinion/west-side-story-latina-mothers.html
+
+**China’s Dead-End Economy Is Bad News for Everyone**\
+`China’s economy has reached a dead end. Getting out will mean more trade friction with the United States.`\
+https://nytimes.com/2024/05/11/opinion/china-economy-dead-end.html
+
+**A Way Back from Campus Chaos**\
+`Universities have failed to strike a balance between academic freedom and free speech during this spring’s protests.`\
+https://nytimes.com/2024/05/11/opinion/campus-protests.html
+
+**Reading and Protesting on Campus**\
+`Readers discuss a column by Ross Douthat.`\
+https://nytimes.com/2024/05/11/opinion/reading-protests-college-campus.html
+
 **About 150,00 people fled from Rafah in recent days, the U.N. says.**\
 `By Raja Abdulrahim and Bilal Shbair`\
 https://nytimes.com/live/2024/05/11/world/israel-gaza-war-hamas-rafah/about-15000-people-fled-from-rafah-in-recent-days-the-un-says
@@ -5,36 +37,4 @@ https://nytimes.com/live/2024/05/11/world/israel-gaza-war-hamas-rafah/about-1500
 **When Travel Plans Go Awry**\
 `There are ways of keeping ourselves anchored, even when we enter a parallel universe disconnected from time.`\
 https://nytimes.com/2024/05/11/briefing/when-travel-plans-go-awry.html
-
-**Canada’s Public Sector Unions Threaten Disruption Over Return to Office**\
-`After their strike last year failed to win the right to work remotely, the unions are challenging a plan calling for three days a week at workplaces.`\
-https://nytimes.com/2024/05/11/world/canada/canada-public-sector-unions-remote-work.html
-
-**Farewell, Chuck E. Cheese Animatronic Band**\
-`A mainstay of the pizza and arcade chain, by turns endearing and creepy, will be phased out by year’s end at all but two locations. We visited one of them.`\
-https://nytimes.com/2024/05/11/business/chuck-e-cheese-animatronic-band.html
-
-**Here’s the latest on campus protests.**\
-`By Victoria Kim`\
-https://nytimes.com/live/2024/05/11/us/college-campus-protests/heres-the-latest-on-campus-protests
-
-**Charlamagne Tha God Won’t Take Sides**\
-`The radio host talks to Lulu Garcia-Navarro about how he plans to wield his considerable political influence.`\
-https://nytimes.com/2024/05/11/magazine/charlamagne-tha-god-interview.html
-
-**A Rising Democrat Leans Into the Campus Fight Over Antisemitism**\
-`Gov. Josh Shapiro of Pennsylvania, the proudly Jewish leader of a battleground state, has dived headfirst into subjects that have wrenched apart his party.`\
-https://nytimes.com/2024/05/11/us/politics/josh-shapiro-pennsylvania.html
-
-**Will You Accept the Election Results? Republicans Dodge the Question.**\
-`Leading Republicans have refused to say flatly that they will accept the outcome of the presidential election if Donald Trump loses.`\
-https://nytimes.com/2024/05/11/us/politics/republicans-election-denial.html
-
-**Can Elections Force Venezuela’s Authoritarian Leader From Power?**\
-`President Nicolás Maduro has held on to power by holding sham elections. In July he will run again, but would he willingly cede power?`\
-https://nytimes.com/2024/05/11/world/americas/venezuela-elections.html
-
-**A Panorama of Design**\
-`A look at design-world events, products and people.`\
-https://nytimes.com/2024/05/11/style/design-trends.html
 
