@@ -1,3 +1,7 @@
+**Flash Flooding in Afghanistan Kills at Least 50, With More Missing**\
+`Heavy seasonal rains have set off floods in the northern province of Baghlan and the nation’s capital, Kabul.`\
+https://nytimes.com/2024/05/11/world/asia/afghanistan-flash-flooding.html
+
 **Big, Smoggy Bangkok Gets a Badly Needed Breath of Fresh Air**\
 `In the heart of this megacity, an industrial site has been turned into an oasis for residents (and birds, bats and mosquito-eating dragonflies).`\
 https://nytimes.com/2024/05/11/world/asia/bangkok-thailand-benjakitti-park.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/05/10/upshot/trump-memories-poll.html
 **College Parent Arrested After Confrontation at Syracuse Campus Protest**\
 `Ronn Torossian, an associate of Mayor Eric Adams, said he was protesting what he sees as Syracuse University’s inadequate response to antisemitism since the Oct. 7 attack.`\
 https://nytimes.com/2024/05/10/nyregion/ronn-torossian-syracuse-arrest.html
-
-**‘Doctor Who’ Season Premiere Recap: Back in the Groove**\
-`The new season, written by Russell T Davies and starring Ncuti Gatwa as the 15th Doctor, opens with a double episode premiere.`\
-https://nytimes.com/2024/05/10/arts/television/doctor-who-recap-ncuti-gatwa.html
 
