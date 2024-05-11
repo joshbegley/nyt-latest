@@ -1,3 +1,7 @@
+**Ukraine’s entrants want attention on their country.**\
+`By Alex Marshall`\
+https://nytimes.com/live/2024/05/11/arts/eurovision-final/ukraine-eurovision-alyona-alyona-jenny-heil
+
 **Jeannie Epper, Stunt Double to the Stars, Is Dead at 83**\
 `Her first stunt was riding a horse bareback down a cliff when she was 9. She went on to soar on the hit TV series “Wonder Woman” and in many other places.`\
 https://nytimes.com/2024/05/11/arts/jeannie-epper-dead.html
