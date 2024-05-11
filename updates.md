@@ -1,3 +1,7 @@
+**Eurovision Disqualifies Dutch Entrant Hours Before Final**\
+`The competition’s organizers said that Swedish police were investigating the singer Joost Klein and that it would be inappropriate for him to take part in Saturday’s final.`\
+https://nytimes.com/2024/05/11/arts/music/eurovision-joost-klein-disqualified.html
+
 **A Failure of Leadership at American Universities**\
 `Colleges have failed to strike a balance between academic freedom and free speech during this spring’s protests.`\
 https://nytimes.com/2024/05/11/opinion/campus-protests.html

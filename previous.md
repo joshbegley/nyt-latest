@@ -1,3 +1,7 @@
+**Eurovision Disqualifies Dutch Entrant Hours Before Final**\
+`The competition’s organizers said that Swedish police were investigating the singer Joost Klein and that it would be inappropriate for him to take part in Saturday’s final.`\
+https://nytimes.com/2024/05/11/arts/music/eurovision-joost-klein-disqualified.html
+
 **All the Rage in Private Equity: Mortgaging the Fund**\
 `A little-known financial tool was the talk of the Milken Institute’s Global Conference.`\
 https://nytimes.com/2024/05/11/business/dealbook/all-the-rage-in-private-equity-mortgaging-the-fund.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/11/opinion/west-side-story-latina-mothers.html
 **China’s Dead-End Economy Is Bad News for Everyone**\
 `China’s economy has reached a dead end. Getting out will mean more trade friction with the United States.`\
 https://nytimes.com/2024/05/11/opinion/china-economy-dead-end.html
-
-**A Failure of Leadership at American Universities**\
-`Colleges have failed to strike a balance between academic freedom and free speech during this spring’s protests.`\
-https://nytimes.com/2024/05/11/opinion/campus-protests.html
 
