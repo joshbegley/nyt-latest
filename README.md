@@ -1,3 +1,7 @@
+**Judge Says Michael Cohen Must Stop Taunting Trump**\
+`Ahead of what could be the most explosive testimony in Donald J.`\
+https://nytimes.com/video/nyregion/100000009456849/judge-says-michael-cohen-must-stop-taunting-trump.html
+
 **Transcript: Ezra Klein Interviews Keith Humphreys**\
 `The May 10, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/05/10/podcasts/transcript-ezra-klein-interviews-keith-humphreys.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/world/middleeast/kuwait-emir-parliament-suspensio
 **Nancy Neveloff Dubler, Mediator for Life’s Final Moments, Dies at 82**\
 `A bioethicist, she pioneered bedside methods for helping patients, their families and doctors deal with anguishing life-or-death decisions in a high-tech age.`\
 https://nytimes.com/2024/05/10/health/nancy-neveloff-dead.html
-
-**Ilon Specht, Who Empowered Women With ‘I’m Worth It’ Ad, Dies at 81**\
-`She came up with the feminist campaign, for a hair color product, when challenging the notions of men at her ad agency.`\
-https://nytimes.com/2024/05/10/business/media/ilon-specht-dead.html
 
