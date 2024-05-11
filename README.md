@@ -1,3 +1,7 @@
+**In Tel Aviv, Israelis rally around their Eurovision act.**\
+`By Adam Sella`\
+https://nytimes.com/live/2024/05/11/arts/eurovision-final/in-tel-aviv-israelis-rally-around-their-eurovision-act
+
 **Paul Manafort, Trump’s Former Campaign Chairman, Returns to the Republican Arena**\
 `Eight years after helping Donald J. Trump get elected — and four years after being released from prison — the longtime political operative is back to help organize the G.O.P. convention.`\
 https://nytimes.com/2024/05/11/us/politics/trump-manafort-republican-convention.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/11/arts/eurovision-final/welcome-to-our-live-eu
 **What Donald Trump Would Do for $1 Billion**\
 `His corruption is on display once again.`\
 https://nytimes.com/2024/05/11/opinion/trump-corruption.html
-
-**A Place for the Humble Thank-You Note**\
-`The Times’s investigation into the allegations against Harvey Weinstein won a Pulitzer Prize, and inspired a Hollywood movie. There were modest forms a praise, too.`\
-https://nytimes.com/2024/05/11/insider/weinstein-investigation.html
 
