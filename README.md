@@ -1,3 +1,7 @@
+**Welcome to our live Eurovision coverage!**\
+`The contest features songs that range from the sublime to the ridiculous`\
+https://nytimes.com/live/2024/05/11/arts/eurovision-final/welcome-to-our-live-eurovision-coverage
+
 **What Donald Trump Would Do for $1 Billion**\
 `His corruption is on display once again.`\
 https://nytimes.com/2024/05/11/opinion/trump-corruption.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/11/us/trump-taxes-audit-chicago.html
 **The Long, Tortured Road to Biden’s Clash With Netanyahu Over Gaza War**\
 `The president offered strong support to Israel after Oct. 7 but has grown increasingly frustrated over the conduct of the war. “He has just gotten to a point where enough is enough,” a friend says.`\
 https://nytimes.com/2024/05/11/us/politics/biden-netanyahu-gaza.html
-
-**‘They Are Erasing Streets’: Russian Attacks Bring War Nearer Kharkiv**\
-`Russia’s latest offensive has expanded the battlefield along Ukraine’s northern border, and sent thousands of civilians fleeing to the closest large city.`\
-https://nytimes.com/2024/05/11/world/europe/ukraine-russia-kharkiv.html
 
