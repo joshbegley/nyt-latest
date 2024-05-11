@@ -1,3 +1,7 @@
+**Jeannie Epper, Stunt Double to the Stars, Is Dead at 83**\
+`Her first stunt was riding a horse bareback down a cliff when she was 9. She went on to soar on the hit TV series “Wonder Woman” and in many other places.`\
+https://nytimes.com/2024/05/11/arts/jeannie-epper-dead.html
+
 **Transgender Athlete Ban in a Long Island County Is Struck Down in Court**\
 `A judge ruled that the Nassau County executive did not have the authority to ban transgender women from playing on women’s sports teams in county-owned facilities. The executive said he would appeal.`\
 https://nytimes.com/2024/05/11/nyregion/transgender-womens-sports-ny.html
