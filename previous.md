@@ -1,3 +1,7 @@
+**Trump May Owe $100 Million From Double-Dip Tax Breaks, Audit Shows**\
+`A previously unknown focus of an I.R.S. audit is a dubious accounting maneuver that effectively meant taking the same write-offs twice on a Chicago skyscraper.`\
+https://nytimes.com/2024/05/11/us/trump-taxes-audit-chicago.html
+
 **The Long, Tortured Road to Biden’s Clash With Netanyahu Over Gaza War**\
 `The president offered strong support to Israel after Oct. 7 but has grown increasingly frustrated over the conduct of the war. “He has just gotten to a point where enough is enough,” a friend says.`\
 https://nytimes.com/2024/05/11/us/politics/biden-netanyahu-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/11/opinion/kendrick-lamar-drake-battle-winner.html
 **The Limits of Moralism in Israel and Gaza**\
 `Why left and right both need a little more cold-eyed realism.`\
 https://nytimes.com/2024/05/11/opinion/foreign-policy-israel-gaza.html
-
-**The Harsh Crackdown on College Protests Is a Very Dangerous Mistake**\
-`Is this what a police state looks like?`\
-https://nytimes.com/2024/05/11/opinion/campus-protest-police-violence.html
 
