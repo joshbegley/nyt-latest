@@ -1,3 +1,5 @@
+
+
 **As Israel Steps Up Attacks, 300,000 Gazans Are on the Move**\
 `Many say there is nowhere to go, and even the “humanitarian zone” recommended by Israel is neither safe nor equipped to handle all of them, the U.N. says.`\
 https://nytimes.com/2024/05/11/world/middleeast/israel-gaza-rafah-palestinians.html
