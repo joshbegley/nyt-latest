@@ -1,3 +1,7 @@
+**Transcript: Ezra Klein Interviews Keith Humphreys**\
+`The May 10, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/05/10/podcasts/transcript-ezra-klein-interviews-keith-humphreys.html
+
 **Sudden Resignations. A Leaked Letter. What’s Happening Inside Miss USA?**\
 `Noelia Voigt’s announcement this week that she was stepping down as Miss USA set off a string of departures and prompted larger questions about the inner workings of the organization.`\
 https://nytimes.com/2024/05/10/style/miss-usa-resigns-pageant-letter.html

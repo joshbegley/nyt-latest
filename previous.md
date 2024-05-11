@@ -1,3 +1,7 @@
+**Transcript: Ezra Klein Interviews Keith Humphreys**\
+`The May 10, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/05/10/podcasts/transcript-ezra-klein-interviews-keith-humphreys.html
+
 **Sudden Resignations. A Leaked Letter. What’s Happening Inside Miss USA?**\
 `Noelia Voigt’s announcement this week that she was stepping down as Miss USA set off a string of departures and prompted larger questions about the inner workings of the organization.`\
 https://nytimes.com/2024/05/10/style/miss-usa-resigns-pageant-letter.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/10/health/nancy-neveloff-dead.html
 **Ilon Specht, Who Empowered Women With ‘I’m Worth It’ Ad, Dies at 81**\
 `She came up with the feminist campaign, for a hair color product, when challenging the notions of men at her ad agency.`\
 https://nytimes.com/2024/05/10/business/media/ilon-specht-dead.html
-
-**Get Ready for a Solar Storm to (Maybe) Light Up the Sky**\
-`The National Oceanic and Atmospheric Administration issued a rare warning, saying that solar activity could cause disruptions. But there is no need for concern.`\
-https://nytimes.com/2024/05/10/science/northern-lights-aurora-borealis.html
 
