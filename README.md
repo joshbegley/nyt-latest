@@ -1,3 +1,7 @@
+**Ukraine’s entrants want attention on their country.**\
+`By Alex Marshall`\
+https://nytimes.com/live/2024/05/11/arts/eurovision-final/ukraine-eurovision-alyona-alyona-jenny-heil
+
 **Jeannie Epper, Stunt Double to the Stars, Is Dead at 83**\
 `Her first stunt was riding a horse bareback down a cliff when she was 9. She went on to soar on the hit TV series “Wonder Woman” and in many other places.`\
 https://nytimes.com/2024/05/11/arts/jeannie-epper-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/11/us/family-fare-michigan-woman-sign.html
 **Malmo is your Eurovision host city this year.**\
 `By Christina Anderson`\
 https://nytimes.com/live/2024/05/11/arts/eurovision-final/welcome-to-malmo-your-eurovision-host-city
-
-**Eberhard Kornfeld, Art Dealer, Collector and Historian, Is Dead at 99**\
-`Ensconced in a 15th-century Swiss manor house, he became an expert on the old masters and later tangled with heirs of a collector killed by the Nazis.`\
-https://nytimes.com/2024/05/11/arts/eberhard-kornfeld-dead.html
 
