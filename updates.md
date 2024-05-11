@@ -1,3 +1,7 @@
+**11mideast-crisis**\
+`U.S. Criticizes Israel for Failure to Protect Civilians in Gaza`\
+https://nytimes.com/live/2024/05/11/world/israel-gaza-war-hamas-rafah
+
 **Who Are Key Players in the Menendez Case?**\
 `Senator Robert Menendez, Democrat of New Jersey, and his wife, Nadine Menendez, are accused of taking part in a wide-ranging, international bribery scheme that lasted five years. Take a closer look at central figures related to the case.`\
 https://nytimes.com/interactive/2024/nyregion/senator-bob-menendez-nadine-trial-defendants.html
