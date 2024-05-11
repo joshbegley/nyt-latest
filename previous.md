@@ -1,3 +1,19 @@
+**College Parent Arrested After Confrontation at Syracuse Campus Protest**\
+`Ronn Torossian, an associate of Mayor Eric Adams, said he was protesting what he sees as Syracuse University’s inadequate response to antisemitism since the Oct. 7 attack.`\
+https://nytimes.com/2024/05/10/nyregion/ronn-torossian-syracuse-arrest.html
+
+**‘Doctor Who’ Season Premiere Recap: Back in the Groove**\
+`The new season, written by Russell T Davies and starring Ncuti Gatwa as the 15th Doctor, opens with a double episode premiere.`\
+https://nytimes.com/2024/05/10/arts/television/doctor-who-recap-ncuti-gatwa.html
+
+**Judge Blocks New U.S. Rule Limiting Credit Card Late Fees**\
+`Set to take effect on Tuesday, the rule would save households $10 billion a year in “junk fees,” the Consumer Financial Protection Bureau said.`\
+https://nytimes.com/2024/05/10/business/credit-card-fee-limit-blocked.html
+
+**Judge Says Michael Cohen Must Stop Taunting Trump**\
+`Ahead of what could be the most explosive testimony in Donald J.`\
+https://nytimes.com/video/nyregion/100000009456849/judge-says-michael-cohen-must-stop-taunting-trump.html
+
 **Transcript: Ezra Klein Interviews Keith Humphreys**\
 `The May 10, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/05/10/podcasts/transcript-ezra-klein-interviews-keith-humphreys.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/05/10/us/usc-valedictorian-speech-graduation.html
 **Green Party candidates for Senate in Arizona draw suspicion of being plants.**\
 `Party leaders accused Mike Norton and Arturo Hernandez of entering the primary to help Democrat Ruben Gallego and Republican Kari Lake tip the nationally-watched contest.`\
 https://nytimes.com/live/2024/05/10/us/biden-trump-election/green-party-arizona-senate
-
-**Barron Trump Will Not Be a Delegate at the G.O.P. Convention After All**\
-`Two days after the Florida Republican Party selected Barron, 18, to be an at-large delegate, Melania Trump’s office said he “regretfully declines to participate due to prior commitments.”`\
-https://nytimes.com/2024/05/10/us/politics/barron-trump-gop-convention.html
-
-**Kuwaiti Emir Suspends Parliament, Citing Political Tumult**\
-`The country’s ruler also suspended several constitutional articles, raising concerns that he could diminish political freedoms in one of the Middle East’s few semi-democratic states.`\
-https://nytimes.com/2024/05/10/world/middleeast/kuwait-emir-parliament-suspension.html
-
-**Nancy Neveloff Dubler, Mediator for Life’s Final Moments, Dies at 82**\
-`A bioethicist, she pioneered bedside methods for helping patients, their families and doctors deal with anguishing life-or-death decisions in a high-tech age.`\
-https://nytimes.com/2024/05/10/health/nancy-neveloff-dead.html
-
-**Ilon Specht, Who Empowered Women With ‘I’m Worth It’ Ad, Dies at 81**\
-`She came up with the feminist campaign, for a hair color product, when challenging the notions of men at her ad agency.`\
-https://nytimes.com/2024/05/10/business/media/ilon-specht-dead.html
 
