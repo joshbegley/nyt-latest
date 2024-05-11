@@ -1,3 +1,7 @@
+**In Tel Aviv, Israelis rally around their Eurovision act.**\
+`By Adam Sella`\
+https://nytimes.com/live/2024/05/11/arts/eurovision-final/in-tel-aviv-israelis-rally-around-their-eurovision-act
+
 **Paul Manafort, Trump’s Former Campaign Chairman, Returns to the Republican Arena**\
 `Eight years after helping Donald J. Trump get elected — and four years after being released from prison — the longtime political operative is back to help organize the G.O.P. convention.`\
 https://nytimes.com/2024/05/11/us/politics/trump-manafort-republican-convention.html
