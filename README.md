@@ -1,3 +1,7 @@
+**Here’s the latest on campus protests.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/05/11/us/college-campus-protests/heres-the-latest-on-campus-protests
+
 **Charlamagne Tha God Won’t Take Sides**\
 `The radio host talks to Lulu Garcia-Navarro about how he plans to wield his considerable political influence.`\
 https://nytimes.com/2024/05/11/magazine/charlamagne-tha-god-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/11/us/politics/trump-trial-micromanager.html
 **Is Everything A.S.M.R. Now?**\
 `Videos that tickle what is known as the Autonomous Sensory Meridian Response used to belong to a specific corner of the internet. Now they’re virtually everywhere.`\
 https://nytimes.com/2024/05/11/style/asmr-video.html
-
-**Trixie Mattel on the Sitcom That Can Bring Us All Together**\
-`“The love story of Jim and Pam — every time I watch that unfold, I find something new to cry about,” the entertainer said.`\
-https://nytimes.com/2024/05/11/arts/television/trixie-mattel-drag-race.html
 
