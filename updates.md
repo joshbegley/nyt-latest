@@ -1,3 +1,11 @@
+**Big, Smoggy Bangkok Gets a Badly Needed Breath of Fresh Air**\
+`In the heart of this megacity, an industrial site has been turned into an oasis for residents (and birds, bats and mosquito-eating dragonflies).`\
+https://nytimes.com/2024/05/11/world/asia/bangkok-thailand-benjakitti-park.html
+
+**British Colleges Are Handling Protests Differently. Will It Pay Off?**\
+`University leaders have so far adopted a more permissive attitude to pro-Palestinian encampments than their U.S. counterparts. Here’s why.`\
+https://nytimes.com/2024/05/11/world/europe/british-colleges-are-handling-protests-differently-will-it-pay-off.html
+
 **Quotation of the Day: Why Prices for Cocoa Went Nuts**\
 `Quotation of the Day for Saturday, May 11, 2024.`\
 https://nytimes.com/2024/05/11/pageoneplus/quotation-of-the-day-why-prices-for-cocoa-went-nuts.html
