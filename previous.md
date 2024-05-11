@@ -1,3 +1,11 @@
+**Paul Manafort, Trump’s Former Campaign Chairman, Returns to the Republican Arena**\
+`Eight years after helping Donald J. Trump get elected — and four years after being released from prison — the longtime political operative is back to help organize the G.O.P. convention.`\
+https://nytimes.com/2024/05/11/us/politics/trump-manafort-republican-convention.html
+
+**A decade ago, Conchita Wurst won for Austria.**\
+`By Valeriya Safronova`\
+https://nytimes.com/live/2024/05/11/arts/eurovision-final/a-decade-ago-conchita-wurst-won-for-austria
+
 **Northern Lights Glow in the Sky Amid Solar Storm**\
 `Powerful solar flare activity made the aurora borealis visible unusually far south.`\
 https://nytimes.com/video/science/earth/100000009463654/northern-lights-solar-storm.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/11/opinion/trump-corruption.html
 **A Place for the Humble Thank-You Note**\
 `The Times’s investigation into the allegations against Harvey Weinstein won a Pulitzer Prize, and inspired a Hollywood movie. There were modest forms a praise, too.`\
 https://nytimes.com/2024/05/11/insider/weinstein-investigation.html
-
-**Justice Alito Warns of Threats to Freedom of Speech and Religion**\
-`In a commencement ceremony at a Catholic university, the justice said that fundamental principles were in peril at universities and American society.`\
-https://nytimes.com/2024/05/11/us/politics/justice-alito-freedom-speech-religion.html
-
-**Arizona State bans a scholar from campus after a confrontation at a protest.**\
-`By Anna Betts`\
-https://nytimes.com/live/2024/05/11/us/college-campus-protests/arizona-state-bans-a-scholar-from-campus-after-a-confrontation-at-a-protest
 

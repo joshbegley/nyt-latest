@@ -1,3 +1,11 @@
+**Paul Manafort, Trump’s Former Campaign Chairman, Returns to the Republican Arena**\
+`Eight years after helping Donald J. Trump get elected — and four years after being released from prison — the longtime political operative is back to help organize the G.O.P. convention.`\
+https://nytimes.com/2024/05/11/us/politics/trump-manafort-republican-convention.html
+
+**A decade ago, Conchita Wurst won for Austria.**\
+`By Valeriya Safronova`\
+https://nytimes.com/live/2024/05/11/arts/eurovision-final/a-decade-ago-conchita-wurst-won-for-austria
+
 **Woman Made Her Home Inside a Grocery Store’s Rooftop Sign, Police Say**\
 `She had set up flooring, a computer and a coffee maker. The unidentified woman had been living in the store in Midland, Mich., for about a year, the authorities said.`\
 https://nytimes.com/2024/05/11/us/family-fare-michigan-woman-sign.html
