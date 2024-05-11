@@ -1,3 +1,7 @@
+**The Long, Tortured Road to Biden’s Clash With Netanyahu Over Gaza War**\
+`The president offered strong support to Israel after Oct. 7 but has grown increasingly frustrated over the conduct of the war. “He has just gotten to a point where enough is enough,” a friend says.`\
+https://nytimes.com/2024/05/11/us/politics/biden-netanyahu-gaza.html
+
 **‘They Are Erasing Streets’: Russian Attacks Bring War Nearer Kharkiv**\
 `Russia’s latest offensive has expanded the battlefield along Ukraine’s northern border, and sent thousands of civilians fleeing to the closest large city.`\
 https://nytimes.com/2024/05/11/world/europe/ukraine-russia-kharkiv.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/11/opinion/foreign-policy-israel-gaza.html
 **The Harsh Crackdown on College Protests Is a Very Dangerous Mistake**\
 `Is this what a police state looks like?`\
 https://nytimes.com/2024/05/11/opinion/campus-protest-police-violence.html
-
-**Donnie After Dark**\
-`A trial that is a meditation on Trump’s amorality.`\
-https://nytimes.com/2024/05/11/opinion/donnie-after-dark.html
 
