@@ -23,7 +23,7 @@ https://nytimes.com/2024/05/11/crosswords/connections-companion.html
 https://nytimes.com/2024/05/11/nyregion/tembe-denton-hurst-homebodies-biscuits.html
 
 **11mideast-crisis**\
-`U.S. Criticizes Israel for Failure to Protect Civilians in the Gaza Conflict`\
+`U.S. Criticizes Israel for Failure to Protect Civilians in Gaza`\
 https://nytimes.com/live/2024/05/11/world/israel-gaza-war-hamas-rafah
 
 **Flash Flooding in Afghanistan Kills at Least 50, With More Missing**\
