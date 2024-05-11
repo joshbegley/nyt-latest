@@ -1,3 +1,11 @@
+**Judge Blocks New U.S. Rule Limiting Credit Card Late Fees**\
+`Set to take effect on Tuesday, the rule would save households $10 billion a year in “junk fees,” the Consumer Financial Protection Bureau said.`\
+https://nytimes.com/2024/05/10/business/credit-card-fee-limit-blocked.html
+
+**Judge Says Michael Cohen Must Stop Taunting Trump**\
+`Ahead of what could be the most explosive testimony in Donald J.`\
+https://nytimes.com/video/nyregion/100000009456849/judge-says-michael-cohen-must-stop-taunting-trump.html
+
 **Transcript: Ezra Klein Interviews Keith Humphreys**\
 `The May 10, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/05/10/podcasts/transcript-ezra-klein-interviews-keith-humphreys.html
