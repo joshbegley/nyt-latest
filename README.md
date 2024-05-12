@@ -1,3 +1,7 @@
+**Putin Replaces Defense Minister in Rare Cabinet Shake-up**\
+`Mr. Putin shifted Sergei Shoigu to run the security council, and nominated an economist to run the defense ministry.`\
+https://nytimes.com/2024/05/12/world/europe/russia-putin-cabinet-war-shoigu.html
+
 **Student protesters at Johns Hopkins agree to end encampment.**\
 `By Colbi Edmonds`\
 https://nytimes.com/live/2024/05/12/us/college-campus-protests/student-protesters-at-johns-hopkins-agree-to-end-encampment
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/12/movies/roger-corman-streaming-guide.html
 **At Art Auctions Market Seeks Its Footing After Stumbling Sales and a Hack at Christie’s**\
 `Speculation drove art prices to new heights during the pandemic, but declining sales and a cyberattack ignited new worries.`\
 https://nytimes.com/2024/05/12/arts/design/will-auctions-revive-art-market.html
-
-**J.D. Vance Says He Would Accept the Election Results, With a Caveat**\
-`The Republican senator from Ohio is on former President Donald J. Trump’s short list of running mates.`\
-https://nytimes.com/2024/05/12/us/politics/jd-vance-vice-president-trump.html
 
