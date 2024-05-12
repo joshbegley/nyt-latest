@@ -1,3 +1,7 @@
+**Hobbled by Cyberattack, Christie’s Says Marquee Sales Will Proceed**\
+`The auction house failed to regain control of its official website on Sunday but said that its spring auctions would go on, in person and by phone.`\
+https://nytimes.com/2024/05/12/arts/christies-cyberattack.html
+
 **Patient Dies Weeks After Kidney Transplant From Genetically Modified Pig**\
 `Richard Slayman received the historic procedure in March. The hospital said it had “no indication” his death was related to the transplant.`\
 https://nytimes.com/2024/05/12/health/richard-slayman-death-pig-kidney-transplant.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/12/learning/whats-going-on-in-this-picture-may-13-20
 **Our Journalism**\
 `Joe Kahn, The Times’s executive editor, reflects on some of our most probing recent work.`\
 https://nytimes.com/2024/05/12/briefing/times-journalism-pulitzers.html
-
-**Russian Forces Push Deeper Into Northern Ukraine**\
-`A Ukrainian military unit said that its troops were forced to retreat from several positions and that one settlement had been captured by Russian forces.`\
-https://nytimes.com/2024/05/12/world/europe/russia-ukraine-kharkiv.html
 
