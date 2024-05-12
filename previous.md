@@ -1,3 +1,7 @@
+**J.D. Vance Says He Would Accept the Election Results, With a Caveat**\
+`The Republican senator from Ohio is on former President Donald J. Trump’s short list of running mates.`\
+https://nytimes.com/2024/05/12/us/politics/jd-vance-vice-president-trump.html
+
 **As Seinfeld Receives Honorary Degree at Duke, Students Walk Out in Protest**\
 `Following the walkout, the comedian, who has been vocal about his support for Israel, gave a commencement speech that was mostly cautious.`\
 https://nytimes.com/2024/05/12/us/as-jerry-seinfeld-receives-an-honorary-degree-at-duke-students-walk-out-in-protest.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/12/world/israel-gaza-war-hamas-rafah/israeli-tr
 **Disabled Adults Shouldn’t Have to Pay This Price to Marry**\
 `Benefits programs force disabled adults who want to wed to choose between the support they need and the independence they deserve.`\
 https://nytimes.com/2024/05/12/opinion/disabled-adults-ssi-marriage.html
-
-**The History That New York City Takes for Granted**\
-`Gotham’s 400th birthday calls for a celebration worthy of the great metropolis it is.`\
-https://nytimes.com/2024/05/12/opinion/new-york-birthday-party.html
 

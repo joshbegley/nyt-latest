@@ -1,3 +1,7 @@
+**Will the Art Market Find Its Footing After Stumbling Sales and a Hack at Christie’s?**\
+`Speculation drove art prices to new heights during the pandemic, but declining sales and a cyberattack ignited new worries. Could spring auctions bring a comeback?`\
+https://nytimes.com/2024/05/12/arts/design/will-auctions-revive-art-market.html
+
 **J.D. Vance Says He Would Accept the Election Results, With a Caveat**\
 `The Republican senator from Ohio is on former President Donald J. Trump’s short list of running mates.`\
 https://nytimes.com/2024/05/12/us/politics/jd-vance-vice-president-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/12/arts/mona-lisa-location-solved.html
 **Israeli troops engaged in ‘close-quarters combat’ against Hamas in Gaza City, the military says.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/05/12/world/israel-gaza-war-hamas-rafah/israeli-troops-engaged-in-close-quarters-combat-against-hamas-in-gaza-city-the-military-says
-
-**Disabled Adults Shouldn’t Have to Pay This Price to Marry**\
-`Benefits programs force disabled adults who want to wed to choose between the support they need and the independence they deserve.`\
-https://nytimes.com/2024/05/12/opinion/disabled-adults-ssi-marriage.html
 
