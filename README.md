@@ -1,5 +1,5 @@
-**As Jerry Seinfeld receives an honorary degree at Duke, students walk out in protest.**\
-`By Eduardo Medina and Emily Cataneo`\
+**As Seinfeld Receives Honorary Degree at Duke, Students Walk Out in Protest**\
+`Following the walkout, the comedian, who has been vocal about his support for Israel, gave a commencement speech that was mostly cautious.`\
 https://nytimes.com/2024/05/12/us/as-jerry-seinfeld-receives-an-honorary-degree-at-duke-students-walk-out-in-protest.html
 
 **Women at Work, and With Their Families Too**\
