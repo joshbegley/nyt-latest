@@ -1,3 +1,11 @@
+**Women at Work, and With Their Families Too**\
+`Readers respond to a guest essay about mothers and careers. Also: Mythologizing Donald Trump; a mental health tragedy; offshore drilling.`\
+https://nytimes.com/2024/05/12/opinion/women-work-parenting-families.html
+
+**Artichoke Carbonara, Slow-Roasted Salmon With Salsa Verde**\
+`Simply stunning dinners for a springtime Sunday.`\
+https://nytimes.com/2024/05/12/dining/artichoke-carbonara-slow-roasted-salmon-with-salsa-verde.html
+
 **Hobbled by Cyberattack, Christie’s Says Marquee Sales Will Proceed**\
 `The auction house failed to regain control of its official website on Sunday but said that its spring auctions would go on, in person and by phone.`\
 https://nytimes.com/2024/05/12/arts/design/christies-cyberattack.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/12/opinion/new-york-birthday-party.html
 **The flow of food and other aid into Gaza has almost entirely dried up over the past week, the U.N. says.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/05/12/world/israel-gaza-war-hamas-rafah/the-flow-of-food-and-other-aid-into-gaza-has-almost-entirely-dried-up-over-the-past-week-the-un-says
-
-**What’s Going On in This Picture? | May 13, 2024**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2024/05/12/learning/whats-going-on-in-this-picture-may-13-2024.html
-
-**Our Journalism**\
-`Joe Kahn, The Times’s executive editor, reflects on some of our most probing recent work.`\
-https://nytimes.com/2024/05/12/briefing/times-journalism-pulitzers.html
 
