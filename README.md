@@ -1,3 +1,11 @@
+**Alex Hassilev, the Last of the Original Limeliters, Dies at 91**\
+`The trio’s witty, urbane arrangements made it one of the top acts of the early-1960s folk music revival. His gift for languages helped.`\
+https://nytimes.com/2024/05/12/arts/music/alex-hassilev-dead.html
+
+**Where to See the Northern Lights on Sunday Night**\
+`The best weather conditions for viewing the colorful light display will be in much of the West while New England was “a question mark,” a forecaster said.`\
+https://nytimes.com/2024/05/12/science/northern-lights-viewing.html
+
 **Roger Corman’s Best Movies: A Streaming Guide**\
 `The producer and director ran what was essentially a trade school for future stars and filmmakers like Jack Nicholson, Francis Ford Coppola and Pam Grier.`\
 https://nytimes.com/2024/05/12/movies/roger-corman-streaming-guide.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/12/arts/design/christies-cyberattack.html
 **Patient Dies Weeks After Kidney Transplant From Genetically Modified Pig**\
 `Richard Slayman received the historic procedure in March. The hospital said it had “no indication” his death was related to the transplant.`\
 https://nytimes.com/2024/05/12/health/richard-slayman-death-pig-kidney-transplant.html
-
-**Still grieving the Oct. 7 attack, Israelis prepare to observe a solemn Memorial Day.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/05/12/world/israel-gaza-war-hamas-rafah/still-grieving-the-oct-7-attack-israelis-prepare-to-observe-a-solemn-memorial-day
-
-**Mona Lisa, Smile: You’re in Lecco, After All**\
-`A mash-up of geology and art history has identified a likely setting for one of the world’s most famous paintings.`\
-https://nytimes.com/2024/05/12/arts/mona-lisa-location-solved.html
 
