@@ -1,3 +1,11 @@
+**12mideast-crisis**\
+`U.N. Says About 300,000 Gazans Have Fled Rafah`\
+https://nytimes.com/live/2024/05/12/world/israel-gaza-war-hamas-rafah
+
+**International officials have expressed alarm, saying there is nowhere safe for Gazans to go.**\
+`By Mike Ives`\
+https://nytimes.com/live/2024/05/12/world/israel-gaza-war-hamas-rafah/international-officials-have-expressed-alarm-saying-there-is-nowhere-safe-for-gazans-to-go
+
 **A Chaotic Night at U.C.L.A. Raises Questions About Police Response**\
 `Counterprotesters attacked a pro-Palestinian encampment for several hours without police intervention, and none were arrested. Now, the police response is under investigation.`\
 https://nytimes.com/2024/05/12/us/ucla-counterprotesters-police-response.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/12/world/europe/ukraine-black-sea-grain-exports.html
 **She Taught Generations How to Wield a Wok and a Cleaver**\
 `As Michelle T. King demonstrates in this moving and ambitious biography, Fu Pei-mei was far more than “the Julia Child of Chinese cooking.”`\
 https://nytimes.com/2024/05/12/books/review/chop-fry-watch-learn-michelle-t-king.html
-
-**This Old, Old House: Would You Buy a 1702 Fixer-Upper?**\
-`Many people dream about restoring a historic home. Lee McColgan actually quit his job and did it, teaching himself the necessary skills along the way.`\
-https://nytimes.com/2024/05/12/realestate/woodworking-historic-home-restoration.html
-
-**Why ‘The Jinx’ Owes Its Existence to a Bizarre Movie About Robert Durst**\
-`Film can be influential in strange ways. The HBO series and follow-up wouldn’t have been made if a killer hadn’t taken a liking to a fictional portrayal.`\
-https://nytimes.com/2024/05/12/movies/the-jinx-part-two-robert-durst-ryan-gosling.html
 
