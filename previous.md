@@ -1,3 +1,7 @@
+**‘Saturday Night Live’ Wishes You a Happy Mother’s Day**\
+`The “S.N.L.” veteran Maya Rudolph hosted an episode that featured multiple sketches celebrating moms.`\
+https://nytimes.com/2024/05/12/arts/television/saturday-night-live-mothers-day-maya-rudolph.html
+
 **Corrections: May 12, 2024**\
 `Corrections appearing in print on Sunday, May 12, 2024.`\
 https://nytimes.com/2024/05/12/corrections/corrections-may-12-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/12/pageoneplus/corrections-may-11-2024.html
 **Quotation of the Day: Israel, Isolated and Defiant, Risks Turning Into a Pariah**\
 `Quotation of the Day for Sunday, May 12, 2024.`\
 https://nytimes.com/2024/05/11/pageoneplus/quotation-of-the-day-israel-isolated-and-defiant-risks-turning-into-a-pariah.html
-
-**Away From the Confines of a Courtroom, Trump Rallies Beachside at the Jersey Shore**\
-`Former President Donald J. Trump held a rally in Wildwood, N.J., on Saturday, declaring that his campaign would “officially play” in a state he has lost twice by double digits.`\
-https://nytimes.com/2024/05/11/us/politics/trump-rally-new-jersey.html
 

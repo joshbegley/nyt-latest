@@ -1,3 +1,7 @@
+**‘Saturday Night Live’ Wishes You a Happy Mother’s Day**\
+`The “S.N.L.” veteran Maya Rudolph hosted an episode that featured multiple sketches celebrating moms.`\
+https://nytimes.com/2024/05/12/arts/television/saturday-night-live-mothers-day-maya-rudolph.html
+
 **Corrections: May 12, 2024**\
 `Corrections appearing in print on Sunday, May 12, 2024.`\
 https://nytimes.com/2024/05/12/corrections/corrections-may-12-2024.html
