@@ -1,3 +1,7 @@
+**Roger Corman, 98, Dies; Proud and Prolific Master of Low-Budget Cinema**\
+`He had hundreds of horror, science fiction and crime films to his credit. He also helped start the careers of Martin Scorsese, Francis Ford Coppola and many others.`\
+https://nytimes.com/2024/05/12/movies/roger-corman-dead.html
+
 **Yahya Sinwar Helped Start the Gaza War. Now He’s Key to Its Endgame.**\
 `Hamas’s leader in Gaza is considered an architect of the Oct. 7 attacks that prompted Israel to retaliate. As mediators seek a cease-fire, a deal depends on Mr. Sinwar as well as his Israeli foes.`\
 https://nytimes.com/2024/05/12/world/middleeast/gaza-war-hamas-yahya-sinwar.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/11/arts/music/eurovision-final-winner.html
 **On a Day of Graduations, Berkeley’s Protests Stand Out**\
 `After weeks of tumult over protests, many college administrators prepared themselves for disruptions. But several ceremonies unfolded without major incident.`\
 https://nytimes.com/2024/05/11/us/graduations-protests-berkeley.html
-
-**Man Charged in Bronx Sexual Assault Partly Captured on Disturbing Video**\
-`The video shows him throwing a belt around a woman’s neck, pulling her to the ground and dragging her along.`\
-https://nytimes.com/2024/05/11/nyregion/bronx-sexual-assault.html
 

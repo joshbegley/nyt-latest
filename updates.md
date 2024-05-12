@@ -1,3 +1,7 @@
+**Roger Corman, 98, Dies; Proud and Prolific Master of Low-Budget Cinema**\
+`He had hundreds of horror, science fiction and crime films to his credit. He also helped start the careers of Martin Scorsese, Francis Ford Coppola and many others.`\
+https://nytimes.com/2024/05/12/movies/roger-corman-dead.html
+
 **Yahya Sinwar Helped Start the Gaza War. Now He’s Key to Its Endgame.**\
 `Hamas’s leader in Gaza is considered an architect of the Oct. 7 attacks that prompted Israel to retaliate. As mediators seek a cease-fire, a deal depends on Mr. Sinwar as well as his Israeli foes.`\
 https://nytimes.com/2024/05/12/world/middleeast/gaza-war-hamas-yahya-sinwar.html
