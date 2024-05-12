@@ -1,3 +1,11 @@
+**Map: 6.4-Magnitude Earthquake Strikes off the Coasts of Mexico and Guatemala**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2024/05/12/world/americas/earthquake-guatemala-mexico.html
+
+**Blinken says that the U.S. has not ruled out withholding more military aid from Israel.**\
+`By Carol Rosenberg and Minho Kim`\
+https://nytimes.com/live/2024/05/12/world/israel-gaza-war-hamas-rafah/blinken-says-that-the-us-has-not-ruled-out-withholding-more-military-aid-from-israel
+
 **Alex Hassilev, the Last of the Original Limeliters, Dies at 91**\
 `The trio’s witty, urbane arrangements made it one of the top acts of the early-1960s folk music revival. His gift for languages helped.`\
 https://nytimes.com/2024/05/12/arts/music/alex-hassilev-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/12/opinion/women-work-parenting-families.html
 **Artichoke Carbonara, Slow-Roasted Salmon With Salsa Verde**\
 `Simply stunning dinners for a springtime Sunday.`\
 https://nytimes.com/2024/05/12/dining/artichoke-carbonara-slow-roasted-salmon-with-salsa-verde.html
-
-**Hobbled by Cyberattack, Christie’s Says Marquee Sales Will Proceed**\
-`The auction house failed to regain control of its official website on Sunday but said that its spring auctions would go on, in person and by phone.`\
-https://nytimes.com/2024/05/12/arts/design/christies-cyberattack.html
-
-**Patient Dies Weeks After Kidney Transplant From Genetically Modified Pig**\
-`Richard Slayman received the historic procedure in March. The hospital said it had “no indication” his death was related to the transplant.`\
-https://nytimes.com/2024/05/12/health/richard-slayman-death-pig-kidney-transplant.html
 
