@@ -1,3 +1,11 @@
+**Jerry Seinfeld, a strong supporter of Israel, will speak at Duke University.**\
+`By Stephanie Saul`\
+https://nytimes.com/live/2024/05/11/us/college-campus-protests/jerry-seinfeld-a-strong-supporter-of-israel-will-speak-at-duke-university
+
+**12campus-protests**\
+`Colleges Brace for More Commencement Disruptions`\
+https://nytimes.com/live/2024/05/12/us/college-campus-protests
+
 **12mideast-crisis**\
 `U.N. Says About 300,000 Gazans Have Fled Rafah`\
 https://nytimes.com/live/2024/05/12/world/israel-gaza-war-hamas-rafah
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/12/business/relationships-trello-slack-notion.html
 **Frustrated by Gaza Coverage, Student Protesters Turn to Al Jazeera**\
 `Students active in campus protests value Al Jazeera’s on-the-ground coverage and its perspective on the Israel-Hamas war. They draw distinctions between it and major American outlets.`\
 https://nytimes.com/2024/05/12/business/media/al-jazeera-college-protests-gaza.html
-
-**Ukraine’s Seaborne Grain Exports Bounce Back to Near Prewar Levels**\
-`The flow of grain ships through ports in the Odesa region is a welcome boost for Ukraine’s war-ravaged economy. But analysts warn it may not last.`\
-https://nytimes.com/2024/05/12/world/europe/ukraine-black-sea-grain-exports.html
-
-**She Taught Generations How to Wield a Wok and a Cleaver**\
-`As Michelle T. King demonstrates in this moving and ambitious biography, Fu Pei-mei was far more than “the Julia Child of Chinese cooking.”`\
-https://nytimes.com/2024/05/12/books/review/chop-fry-watch-learn-michelle-t-king.html
 
