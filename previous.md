@@ -1,3 +1,7 @@
+**Russian Forces Push Deeper Into Northern Ukraine**\
+`A Ukrainian military unit said that its troops were forced to retreat from several positions and that one settlement had been captured by Russian forces.`\
+https://nytimes.com/2024/05/12/world/europe/russia-ukraine-kharkiv.html
+
 **‘Dad, I Don’t Think I’m Old Enough to Handle This’**\
 `Our daughter was becoming a mother in the most difficult of circumstances.`\
 https://nytimes.com/2024/05/12/opinion/mothers-day-daughters-cancer.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/12/us/politics/maryland-senate-democrat.html
 **Can Parrots Converse? Polly Says That’s the Wrong Question.**\
 `In a cautious new paper, scientists tried to determine whether an interactive speech board might enrich the life of a parrot named Ellie.`\
 https://nytimes.com/2024/05/12/science/parrots-language-cognition.html
-
-**Honey, I Love You. Didn’t You See My Slack About It?**\
-`Some couples are using professional project-management software to maintain their relationships. Why does it bother other people?`\
-https://nytimes.com/2024/05/12/business/relationships-trello-slack-notion.html
 
