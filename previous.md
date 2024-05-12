@@ -1,3 +1,7 @@
+**Here’s the latest on campus protests.**\
+`By Yan Zhuang`\
+https://nytimes.com/2024/05/12/us/heres-the-latest-on-campus-protests.html
+
 **Bus Crash in Indonesia Kills 11, Including Students, After Graduation Celebration**\
 `The vehicle was carrying dozens of teachers and students when it sped out of control on a downhill road and crashed into several vehicles in a hilly resort area.`\
 https://nytimes.com/2024/05/12/world/asia/bus-crash-indonesia-students.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/12/nyregion/metropolitan-diary.html
 **‘Saturday Night Live’ Wishes You a Happy Mother’s Day**\
 `The “S.N.L.” veteran Maya Rudolph hosted an episode that featured multiple sketches celebrating moms.`\
 https://nytimes.com/2024/05/12/arts/television/saturday-night-live-mothers-day-maya-rudolph.html
-
-**Corrections: May 12, 2024**\
-`Corrections appearing in print on Sunday, May 12, 2024.`\
-https://nytimes.com/2024/05/12/corrections/corrections-may-12-2024.html
 
