@@ -1,3 +1,11 @@
+**In Rome, Adams Sees a Model for Helping Migrants Assimilate**\
+`The mayor praised the work of a migrant welcome center, which he visited at the end of a three-day trip, during which he also met with Pope Francis.`\
+https://nytimes.com/2024/05/12/nyregion/eric-adams-rome-migrants-pope-visit.html
+
+**At Emerson College’s commencement, there were expressions of protest from beginning to end.**\
+`By Maya Shwayder`\
+https://nytimes.com/live/2024/05/12/us/college-campus-protests/emerson-college-graduation-protests
+
 **Monday Briefing: Russia Pushes Into Northern Ukraine**\
 `Also, fighting is raging in northern Gaza.`\
 https://nytimes.com/2024/05/12/world/asia/russia-kharkiv-israel-gaza-asia.html
