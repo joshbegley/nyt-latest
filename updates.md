@@ -1,3 +1,11 @@
+**12mideast-crisis**\
+`U.N. Says About 300,000 Gazans Have Fled Rafah`\
+https://nytimes.com/live/2024/05/12/world/israel-gaza-war-hamas-rafah
+
+**International officials have expressed alarm, saying there is nowhere safe for Gazans to go.**\
+`By Mike Ives`\
+https://nytimes.com/live/2024/05/12/world/israel-gaza-war-hamas-rafah/international-officials-have-expressed-alarm-saying-there-is-nowhere-safe-for-gazans-to-go
+
 **A Chaotic Night at U.C.L.A. Raises Questions About Police Response**\
 `Counterprotesters attacked a pro-Palestinian encampment for several hours without police intervention, and none were arrested. Now, the police response is under investigation.`\
 https://nytimes.com/2024/05/12/us/ucla-counterprotesters-police-response.html
