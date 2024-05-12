@@ -31,7 +31,7 @@ https://nytimes.com/2024/05/12/arts/design/will-auctions-revive-art-market.html
 https://nytimes.com/2024/05/12/us/politics/jd-vance-vice-president-trump.html
 
 **As Seinfeld Receives Honorary Degree at Duke, Students Walk Out in Protest**\
-`Following the walkout, the comedian, who has been vocal about his support for Israel, gave a commencement speech that was mostly cautious.`\
+`Following the walkout, the comedian, who has been vocal about his support for Israel, opted to take a lighter approach in his commencement speech.`\
 https://nytimes.com/2024/05/12/us/as-jerry-seinfeld-receives-an-honorary-degree-at-duke-students-walk-out-in-protest.html
 
 **Women at Work, and With Their Families Too**\
