@@ -1,3 +1,11 @@
+**Disabled Adults Shouldn’t Have to Pay This Price to Marry**\
+`Benefits programs force disabled adults who want to wed to choose between the support they need and the independence they deserve.`\
+https://nytimes.com/2024/05/12/opinion/disabled-adults-ssi-marriage.html
+
+**The History That New York City Takes for Granted**\
+`Gotham’s 400th birthday calls for a celebration worthy of the great metropolis it is.`\
+https://nytimes.com/2024/05/12/opinion/new-york-birthday-party.html
+
 **International officials have expressed alarm, saying there is nowhere safe for Gazans to go.**\
 `By Mike Ives`\
 https://nytimes.com/live/2024/05/12/world/israel-gaza-war-hamas-rafah/international-officials-have-expressed-alarm-saying-there-is-nowhere-safe-for-gazans-to-go
