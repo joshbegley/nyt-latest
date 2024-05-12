@@ -1,3 +1,11 @@
+**Susan Backlinie, Swimmer Who Was First Victim in ‘Jaws,’ Dies at 77**\
+`Ms. Backlinie, a stunt woman, appeared in the terrifying opening scene of the 1975 blockbuster in which a great white shark attacks.`\
+https://nytimes.com/2024/05/12/arts/television/susan-backlinie-dead-jaws.html
+
+**Spain’s Socialists Win Catalan Vote Dominated by Amnesty for Separatists**\
+`For the first time in over a decade, the regional government in Catalonia may be led by a party opposed to independence.`\
+https://nytimes.com/2024/05/12/world/europe/spain-catalan-election.html
+
 **Starting Word That’s Often Skipped**\
 `Jeremy Newton owes us an explanation.`\
 https://nytimes.com/2024/05/12/crosswords/daily-puzzle-2024-05-13.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/05/12/world/israel-gaza-war-hamas-rafah/hamass-top
 **Gov. Jim Justice Faces Heavy Business Debts as He Seeks Senate Seat**\
 `The Justice companies have long had a reputation for not paying their debts. But that may be catching up to them.`\
 https://nytimes.com/2024/05/12/us/jim-justice-west-virginia-senate.html
-
-**Map: 6.4-Magnitude Earthquake Strikes off the Coasts of Mexico and Guatemala**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2024/05/12/world/americas/earthquake-guatemala-mexico.html
-
-**Blinken Says U.S. Has Not Ruled Out Withholding More Military Aid From Israel**\
-`The secretary of state said the U.S. could pull additional support if Israel undertakes a major attack on Rafah.`\
-https://nytimes.com/2024/05/12/world/middleeast/us-military-aid-israel-blinken.html
 

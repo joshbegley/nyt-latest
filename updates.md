@@ -1,3 +1,11 @@
+**Susan Backlinie, Swimmer Who Was First Victim in ‘Jaws,’ Dies at 77**\
+`Ms. Backlinie, a stunt woman, appeared in the terrifying opening scene of the 1975 blockbuster in which a great white shark attacks.`\
+https://nytimes.com/2024/05/12/arts/television/susan-backlinie-dead-jaws.html
+
+**Spain’s Socialists Win Catalan Vote Dominated by Amnesty for Separatists**\
+`For the first time in over a decade, the regional government in Catalonia may be led by a party opposed to independence.`\
+https://nytimes.com/2024/05/12/world/europe/spain-catalan-election.html
+
 **Starting Word That’s Often Skipped**\
 `Jeremy Newton owes us an explanation.`\
 https://nytimes.com/2024/05/12/crosswords/daily-puzzle-2024-05-13.html
