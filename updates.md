@@ -1,3 +1,7 @@
+**As Seinfeld Receives Honorary Degree at Duke, Students Walk Out in Protest**\
+`Following the walkout, the comedian, who has been vocal about his support for Israel, opted to take a lighter approach in his commencement speech.`\
+https://nytimes.com/2024/05/12/us/as-jerry-seinfeld-receives-an-honorary-degree-at-duke-students-walk-out-in-protest.html
+
 **Gov. Jim Justice Faces Heavy Business Debts as He Seeks Senate Seat**\
 `The Justice companies have long had a reputation for not paying their debts. But that may be catching up to them.`\
 https://nytimes.com/2024/05/12/us/jim-justice-west-virginia-senate.html
