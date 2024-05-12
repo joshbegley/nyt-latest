@@ -1,3 +1,7 @@
+**Hobbled by Cyberattack, Christie’s Says Marquee Sales Will Proceed**\
+`The auction house failed to regain control of its official website on Sunday but said that its spring auctions would go on, in person and by phone.`\
+https://nytimes.com/2024/05/12/arts/design/christies-cyberattack.html
+
 **Patient Dies Weeks After Kidney Transplant From Genetically Modified Pig**\
 `Richard Slayman received the historic procedure in March. The hospital said it had “no indication” his death was related to the transplant.`\
 https://nytimes.com/2024/05/12/health/richard-slayman-death-pig-kidney-transplant.html
