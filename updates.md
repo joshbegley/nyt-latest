@@ -1,3 +1,7 @@
+**Away From the Confines of a Courtroom, Trump Rallies Beachside at the Jersey Shore**\
+`Former President Donald J. Trump held a rally in Wildwood, N.J., on Saturday, declaring that his campaign would “officially play” in a state he has lost twice by double digits.`\
+https://nytimes.com/2024/05/11/us/politics/trump-rally-new-jersey.html
+
 **What Pope Francis Said to Mayor Eric Adams in Rome**\
 `The meeting was a highlight for the mayor, who is in Rome to speak at a conference about world peace and often talks about how his Christian faith informs his leadership.`\
 https://nytimes.com/2024/05/11/nyregion/eric-adams-pope-francis-vatican.html
