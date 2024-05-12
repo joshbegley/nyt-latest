@@ -1,3 +1,7 @@
+**Still grieving the Oct. 7 attack, Israelis prepare to observe a solemn Memorial Day.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/05/12/world/israel-gaza-war-hamas-rafah/still-grieving-the-oct-7-attack-israelis-prepare-to-observe-a-solemn-memorial-day
+
 **Mona Lisa, Smile: You’re in Lecco, After All**\
 `A mash-up of geology and art history has identified a likely setting for one of the world’s most famous paintings.`\
 https://nytimes.com/2024/05/12/arts/mona-lisa-location-solved.html
