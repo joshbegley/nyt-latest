@@ -1,3 +1,11 @@
+**Jerry Seinfeld, a strong supporter of Israel, will speak at Duke University.**\
+`By Stephanie Saul`\
+https://nytimes.com/live/2024/05/11/us/college-campus-protests/jerry-seinfeld-a-strong-supporter-of-israel-will-speak-at-duke-university
+
+**12campus-protests**\
+`Colleges Brace for More Commencement Disruptions`\
+https://nytimes.com/live/2024/05/12/us/college-campus-protests
+
 **12mideast-crisis**\
 `U.N. Says About 300,000 Gazans Have Fled Rafah`\
 https://nytimes.com/live/2024/05/12/world/israel-gaza-war-hamas-rafah
