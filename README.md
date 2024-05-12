@@ -1,3 +1,7 @@
+**Hamas’s top leader in Gaza isn’t in Rafah, U.S. intelligence says.**\
+`U.S. officials say the group’s top official in the Gaza Strip, Yahya Sinwar, is most likely in the tunnels under Khan Younis. That could undercut Israel’s rationale for a major operation in Rafah.`\
+https://nytimes.com/live/2024/05/12/world/israel-gaza-war-hamas-rafah/hamass-top-leader-in-gaza-isnt-in-rafah-us-intelligence-says
+
 **Gov. Jim Justice Faces Heavy Business Debts as He Seeks Senate Seat**\
 `The Justice companies have long had a reputation for not paying their debts. But that may be catching up to them.`\
 https://nytimes.com/2024/05/12/us/jim-justice-west-virginia-senate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/12/us/politics/jd-vance-vice-president-trump.html
 **As Seinfeld Receives Honorary Degree at Duke, Students Walk Out in Protest**\
 `Following the walkout, the comedian, who has been vocal about his support for Israel, opted to take a lighter approach in his commencement speech.`\
 https://nytimes.com/2024/05/12/us/as-jerry-seinfeld-receives-an-honorary-degree-at-duke-students-walk-out-in-protest.html
-
-**Women at Work, and With Their Families Too**\
-`Readers respond to a guest essay about mothers and careers. Also: Mythologizing Donald Trump; a mental health tragedy; offshore drilling.`\
-https://nytimes.com/2024/05/12/opinion/women-work-parenting-families.html
 
