@@ -1,4 +1,4 @@
-**A ‘Sacred Moment’: Mayor Eric Adams on his Meeting With Pope Francis**\
+**What Pope Francis Said to Mayor Eric Adams in Rome**\
 `The meeting was a highlight for the mayor, who is in Rome to speak at a conference about world peace and often talks about how his Christian faith informs his leadership.`\
 https://nytimes.com/2024/05/11/nyregion/eric-adams-pope-francis-vatican.html
 
