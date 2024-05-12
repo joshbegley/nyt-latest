@@ -1,3 +1,7 @@
+**‘Dad, I Don’t Think I’m Old Enough to Handle This’**\
+`Our daughter was becoming a mother in the most difficult of circumstances.`\
+https://nytimes.com/2024/05/12/opinion/mothers-day-daughters-cancer.html
+
 **Jerry Seinfeld, a strong supporter of Israel, will speak at Duke University.**\
 `By Stephanie Saul`\
 https://nytimes.com/live/2024/05/11/us/college-campus-protests/jerry-seinfeld-a-strong-supporter-of-israel-will-speak-at-duke-university
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/12/science/parrots-language-cognition.html
 **Honey, I Love You. Didn’t You See My Slack About It?**\
 `Some couples are using professional project-management software to maintain their relationships. Why does it bother other people?`\
 https://nytimes.com/2024/05/12/business/relationships-trello-slack-notion.html
-
-**Frustrated by Gaza Coverage, Student Protesters Turn to Al Jazeera**\
-`Students active in campus protests value Al Jazeera’s on-the-ground coverage and its perspective on the Israel-Hamas war. They draw distinctions between it and major American outlets.`\
-https://nytimes.com/2024/05/12/business/media/al-jazeera-college-protests-gaza.html
 

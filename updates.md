@@ -1,3 +1,7 @@
+**‘Dad, I Don’t Think I’m Old Enough to Handle This’**\
+`Our daughter was becoming a mother in the most difficult of circumstances.`\
+https://nytimes.com/2024/05/12/opinion/mothers-day-daughters-cancer.html
+
 **Jerry Seinfeld, a strong supporter of Israel, will speak at Duke University.**\
 `By Stephanie Saul`\
 https://nytimes.com/live/2024/05/11/us/college-campus-protests/jerry-seinfeld-a-strong-supporter-of-israel-will-speak-at-duke-university
