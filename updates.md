@@ -1,3 +1,19 @@
+**Yahya Sinwar Helped Start the Gaza War. Now He’s Key to Its Endgame.**\
+`Hamas’s leader in Gaza is considered an architect of the Oct. 7 attacks that prompted Israel to retaliate. As mediators seek a cease-fire, a deal depends on Mr. Sinwar as well as his Israeli foes.`\
+https://nytimes.com/2024/05/12/world/middleeast/gaza-war-hamas-yahya-sinwar.html
+
+**Ahead of Olympics, World Anti-Doping Agency Faces a Trust Crisis**\
+`Concerns are growing that the body whose job is keeping sports free of illegal drugs is failing at that mission, leading Congress to question U.S. support.`\
+https://nytimes.com/2024/05/12/world/europe/olympics-wada-doping.html
+
+**At the Home of BTS, Turmoil Over a Rising K-Pop Star**\
+`The firm Hybe has lost hundreds of millions of dollars in market value because of a feud with the creative force behind the band NewJeans.`\
+https://nytimes.com/2024/05/12/world/asia/newjeans-kpop-controversy-hybe.html
+
+**Corrections: May 11, 2024**\
+`Corrections that appeared in print on Saturday, May 11, 2024.`\
+https://nytimes.com/2024/05/12/pageoneplus/corrections-may-11-2024.html
+
 **Quotation of the Day: Israel, Isolated and Defiant, Risks Turning Into a Pariah**\
 `Quotation of the Day for Sunday, May 12, 2024.`\
 https://nytimes.com/2024/05/11/pageoneplus/quotation-of-the-day-israel-isolated-and-defiant-risks-turning-into-a-pariah.html
