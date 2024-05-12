@@ -1,3 +1,7 @@
+**Patient Dies Weeks After Kidney Transplant From Genetically Modified Pig**\
+`Richard Slayman received the historic procedure in March. The hospital said it had “no indication” his death was related to the transplant.`\
+https://nytimes.com/2024/05/12/health/richard-slayman-death-pig-kidney-transplant.html
+
 **Still grieving the Oct. 7 attack, Israelis prepare to observe a solemn Memorial Day.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/05/12/world/israel-gaza-war-hamas-rafah/still-grieving-the-oct-7-attack-israelis-prepare-to-observe-a-solemn-memorial-day

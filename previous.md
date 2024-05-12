@@ -1,3 +1,7 @@
+**Patient Dies Weeks After Kidney Transplant From Genetically Modified Pig**\
+`Richard Slayman received the historic procedure in March. The hospital said it had “no indication” his death was related to the transplant.`\
+https://nytimes.com/2024/05/12/health/richard-slayman-death-pig-kidney-transplant.html
+
 **Still grieving the Oct. 7 attack, Israelis prepare to observe a solemn Memorial Day.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/05/12/world/israel-gaza-war-hamas-rafah/still-grieving-the-oct-7-attack-israelis-prepare-to-observe-a-solemn-memorial-day
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/12/briefing/times-journalism-pulitzers.html
 **Russian Forces Push Deeper Into Northern Ukraine**\
 `A Ukrainian military unit said that its troops were forced to retreat from several positions and that one settlement had been captured by Russian forces.`\
 https://nytimes.com/2024/05/12/world/europe/russia-ukraine-kharkiv.html
-
-**‘Dad, I Don’t Think I’m Old Enough to Handle This’**\
-`Our daughter was becoming a mother in the most difficult of circumstances.`\
-https://nytimes.com/2024/05/12/opinion/mothers-day-daughters-cancer.html
 
