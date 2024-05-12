@@ -1,3 +1,7 @@
+**Away From the Confines of a Courtroom, Trump Rallies Beachside at the Jersey Shore**\
+`Former President Donald J. Trump held a rally in Wildwood, N.J., on Saturday, declaring that his campaign would “officially play” in a state he has lost twice by double digits.`\
+https://nytimes.com/2024/05/11/us/politics/trump-rally-new-jersey.html
+
 **What Pope Francis Said to Mayor Eric Adams in Rome**\
 `The meeting was a highlight for the mayor, who is in Rome to speak at a conference about world peace and often talks about how his Christian faith informs his leadership.`\
 https://nytimes.com/2024/05/11/nyregion/eric-adams-pope-francis-vatican.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/11/arts/television/sam-rubin-ktla-dead.html
 **Trump rallies in New Jersey, Biden fund-raises in Washington State and campus protests hit graduations.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/05/11/us/biden-trump-election/trump-rallies-in-new-jersey-biden-fund-raises-in-washington-state-and-campus-protests-hit-graduations
-
-**11pol-swiper**\
-`Election Updates: Trump returns to the trail as Biden makes a West Coast fund-raising swing.`\
-https://nytimes.com/live/2024/05/11/us/biden-trump-election
 
