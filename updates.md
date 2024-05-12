@@ -1,3 +1,11 @@
+**Women at Work, and With Their Families Too**\
+`Readers respond to a guest essay about mothers and careers. Also: Mythologizing Donald Trump; a mental health tragedy; offshore drilling.`\
+https://nytimes.com/2024/05/12/opinion/women-work-parenting-families.html
+
+**Artichoke Carbonara, Slow-Roasted Salmon With Salsa Verde**\
+`Simply stunning dinners for a springtime Sunday.`\
+https://nytimes.com/2024/05/12/dining/artichoke-carbonara-slow-roasted-salmon-with-salsa-verde.html
+
 **Hobbled by Cyberattack, Christie’s Says Marquee Sales Will Proceed**\
 `The auction house failed to regain control of its official website on Sunday but said that its spring auctions would go on, in person and by phone.`\
 https://nytimes.com/2024/05/12/arts/design/christies-cyberattack.html
