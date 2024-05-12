@@ -1,3 +1,5 @@
+
+
 **Blinken Says U.S. Has Not Ruled Out Withholding More Military Aid From Israel**\
 `The secretary of state said the U.S. could pull additional support if Israel undertakes a major attack on Rafah.`\
 https://nytimes.com/2024/05/12/world/middleeast/us-military-aid-israel-blinken.html
