@@ -1,3 +1,11 @@
+**In Rome, Adams Sees a Model for Helping Migrants Assimilate**\
+`The mayor praised the work of a migrant welcome center, which he visited at the end of a three-day trip, during which he also met with Pope Francis.`\
+https://nytimes.com/2024/05/12/nyregion/eric-adams-rome-migrants-pope-visit.html
+
+**At Emerson College’s commencement, there were expressions of protest from beginning to end.**\
+`By Maya Shwayder`\
+https://nytimes.com/live/2024/05/12/us/college-campus-protests/emerson-college-graduation-protests
+
 **Monday Briefing: Russia Pushes Into Northern Ukraine**\
 `Also, fighting is raging in northern Gaza.`\
 https://nytimes.com/2024/05/12/world/asia/russia-kharkiv-israel-gaza-asia.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/12/world/middleeast/us-military-aid-israel-blinken.h
 **Alex Hassilev, the Last of the Original Limeliters, Dies at 91**\
 `The trio’s witty, urbane arrangements made it one of the top acts of the early-1960s folk music revival. His gift for languages helped.`\
 https://nytimes.com/2024/05/12/arts/music/alex-hassilev-dead.html
-
-**Where to See the Northern Lights on Sunday Night**\
-`The best weather conditions for viewing the colorful light display will be in much of the West while New England was “a question mark,” a forecaster said.`\
-https://nytimes.com/2024/05/12/science/northern-lights-viewing.html
-
-**Roger Corman’s Best Movies: A Streaming Guide**\
-`The producer and director ran what was essentially a trade school for future stars and filmmakers like Jack Nicholson, Francis Ford Coppola and Pam Grier.`\
-https://nytimes.com/2024/05/12/movies/roger-corman-streaming-guide.html
 
