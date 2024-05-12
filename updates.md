@@ -1,3 +1,7 @@
+**A ‘Sacred Moment’: Mayor Eric Adams on his Meeting With Pope Francis**\
+`The meeting was a highlight for the mayor, who is in Rome to speak at a conference about world peace and often talks about how his Christian faith informs his leadership.`\
+https://nytimes.com/2024/05/11/nyregion/eric-adams-pope-francis-vatican.html
+
 **Switzerland Wins Eurovision, as Protests Give Way to Spectacle**\
 `The nonbinary singer Nemo won the high-camp contest, during a night that included pro-Palestinian demonstrations outside the arena and fireworks onstage.`\
 https://nytimes.com/2024/05/11/arts/music/eurovision-final-winner.html
