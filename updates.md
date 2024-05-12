@@ -1,3 +1,7 @@
+**As Seinfeld Receives Honorary Degree at Duke, Students Walk Out in Protest**\
+`Following the walkout, the comedian, who has been vocal about his support for Israel, gave a commencement speech that was mostly cautious.`\
+https://nytimes.com/2024/05/12/us/as-jerry-seinfeld-receives-an-honorary-degree-at-duke-students-walk-out-in-protest.html
+
 **Women at Work, and With Their Families Too**\
 `Readers respond to a guest essay about mothers and careers. Also: Mythologizing Donald Trump; a mental health tragedy; offshore drilling.`\
 https://nytimes.com/2024/05/12/opinion/women-work-parenting-families.html
