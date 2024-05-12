@@ -18,8 +18,8 @@ https://nytimes.com/2024/05/12/us/jim-justice-west-virginia-senate.html
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2024/05/12/world/americas/earthquake-guatemala-mexico.html
 
-**Blinken says that the U.S. has not ruled out withholding more military aid from Israel.**\
-`By Carol Rosenberg and Minho Kim`\
+**Blinken Says U.S. Has Not Ruled Out Withholding More Military Aid From Israel**\
+`The secretary of state said the U.S. could pull additional support if Israel undertakes a major attack on Rafah.`\
 https://nytimes.com/2024/05/12/world/middleeast/us-military-aid-israel-blinken.html
 
 **Alex Hassilev, the Last of the Original Limeliters, Dies at 91**\
