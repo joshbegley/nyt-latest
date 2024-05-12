@@ -1,3 +1,7 @@
+**As Jerry Seinfeld receives an honorary degree at Duke, students walk out in protest.**\
+`By Eduardo Medina and Emily Cataneo`\
+https://nytimes.com/2024/05/12/us/as-jerry-seinfeld-receives-an-honorary-degree-at-duke-students-walk-out-in-protest.html
+
 **Women at Work, and With Their Families Too**\
 `Readers respond to a guest essay about mothers and careers. Also: Mythologizing Donald Trump; a mental health tragedy; offshore drilling.`\
 https://nytimes.com/2024/05/12/opinion/women-work-parenting-families.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/12/opinion/disabled-adults-ssi-marriage.html
 **The History That New York City Takes for Granted**\
 `Gotham’s 400th birthday calls for a celebration worthy of the great metropolis it is.`\
 https://nytimes.com/2024/05/12/opinion/new-york-birthday-party.html
-
-**The flow of food and other aid into Gaza has almost entirely dried up over the past week, the U.N. says.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/05/12/world/israel-gaza-war-hamas-rafah/the-flow-of-food-and-other-aid-into-gaza-has-almost-entirely-dried-up-over-the-past-week-the-un-says
 
