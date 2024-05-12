@@ -1,3 +1,7 @@
+**Israeli troops engaged in ‘close-quarters combat’ against Hamas in Gaza City, the military says.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/05/12/world/israel-gaza-war-hamas-rafah/israeli-troops-engaged-in-close-quarters-combat-against-hamas-in-gaza-city-the-military-says
+
 **Disabled Adults Shouldn’t Have to Pay This Price to Marry**\
 `Benefits programs force disabled adults who want to wed to choose between the support they need and the independence they deserve.`\
 https://nytimes.com/2024/05/12/opinion/disabled-adults-ssi-marriage.html
