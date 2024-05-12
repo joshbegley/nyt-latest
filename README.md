@@ -1,3 +1,7 @@
+**Bus Crash in Indonesia Kills 11, Including Students, After Graduation Celebration**\
+`The vehicle was carrying dozens of teachers and students when it sped out of control on a downhill road and crashed into several vehicles in a hilly resort area.`\
+https://nytimes.com/2024/05/12/world/asia/bus-crash-indonesia-students.html
+
 **Michael Cohen Was Paid to Fix Trump’s Problems. Now He’s One of Them.**\
 `Mr. Cohen once called himself Donald J. Trump’s “designated thug.” Will he help bring about the ex-president’s downfall?`\
 https://nytimes.com/2024/05/12/nyregion/michael-cohen-trump-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/12/arts/television/saturday-night-live-mothers-day-m
 **Corrections: May 12, 2024**\
 `Corrections appearing in print on Sunday, May 12, 2024.`\
 https://nytimes.com/2024/05/12/corrections/corrections-may-12-2024.html
-
-**Biden Is Doing It All Wrong**\
-`He is focused on firming up his Democratic base even though the election will come down to centrist swing voters in battleground states.`\
-https://nytimes.com/2024/05/12/opinion/joe-biden-swing-voters.html
 
