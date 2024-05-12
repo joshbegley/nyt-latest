@@ -1,3 +1,7 @@
+**Gov. Jim Justice Faces Heavy Business Debts as He Seeks Senate Seat**\
+`The Justice companies have long had a reputation for not paying their debts. But that may be catching up to them.`\
+https://nytimes.com/2024/05/12/us/jim-justice-west-virginia-senate.html
+
 **Map: 6.4-Magnitude Earthquake Strikes off the Coasts of Mexico and Guatemala**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2024/05/12/world/americas/earthquake-guatemala-mexico.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/12/us/as-jerry-seinfeld-receives-an-honorary-degree-
 **Women at Work, and With Their Families Too**\
 `Readers respond to a guest essay about mothers and careers. Also: Mythologizing Donald Trump; a mental health tragedy; offshore drilling.`\
 https://nytimes.com/2024/05/12/opinion/women-work-parenting-families.html
-
-**Artichoke Carbonara, Slow-Roasted Salmon With Salsa Verde**\
-`Simply stunning dinners for a springtime Sunday.`\
-https://nytimes.com/2024/05/12/dining/artichoke-carbonara-slow-roasted-salmon-with-salsa-verde.html
 
