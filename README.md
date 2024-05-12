@@ -1,3 +1,7 @@
+**What’s Going On in This Picture? | May 13, 2024**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2024/05/12/learning/whats-going-on-in-this-picture-may-13-2024.html
+
 **Our Journalism**\
 `Joe Kahn, The Times’s executive editor, reflects on some of our most probing recent work.`\
 https://nytimes.com/2024/05/12/briefing/times-journalism-pulitzers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/12/us/ucla-counterprotesters-police-response.html
 **Jean Smart Is Having a Third Act for the Ages**\
 `Like her character on “Hacks,” she’s winning late-career success on her own exuberant terms.`\
 https://nytimes.com/2024/05/12/magazine/jean-smart-hacks.html
-
-**In Deep-Blue Maryland, a Democratic Primary Turns Uncommonly Competitive**\
-`The contest between Angela Alsobrooks, the Prince George’s County executive, and Representative David Trone has grown tighter as they vie to take on Larry Hogan, the G.O.P. ex-governor.`\
-https://nytimes.com/2024/05/12/us/politics/maryland-senate-democrat.html
 
