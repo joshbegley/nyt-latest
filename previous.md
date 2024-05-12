@@ -1,3 +1,7 @@
+**The flow of food and other aid into Gaza has almost entirely dried up over the past week, the U.N. says.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/05/12/world/israel-gaza-war-hamas-rafah/the-flow-of-food-and-other-aid-into-gaza-has-almost-entirely-dried-up-over-the-past-week-the-un-says
+
 **What’s Going On in This Picture? | May 13, 2024**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2024/05/12/learning/whats-going-on-in-this-picture-may-13-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/12/world/israel-gaza-war-hamas-rafah/internatio
 **A Chaotic Night at U.C.L.A. Raises Questions About Police Response**\
 `Counterprotesters attacked a pro-Palestinian encampment for several hours without police intervention, and none were arrested. Now, the police response is under investigation.`\
 https://nytimes.com/2024/05/12/us/ucla-counterprotesters-police-response.html
-
-**Jean Smart Is Having a Third Act for the Ages**\
-`Like her character on “Hacks,” she’s winning late-career success on her own exuberant terms.`\
-https://nytimes.com/2024/05/12/magazine/jean-smart-hacks.html
 

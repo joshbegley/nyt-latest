@@ -1,3 +1,7 @@
+**The flow of food and other aid into Gaza has almost entirely dried up over the past week, the U.N. says.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/05/12/world/israel-gaza-war-hamas-rafah/the-flow-of-food-and-other-aid-into-gaza-has-almost-entirely-dried-up-over-the-past-week-the-un-says
+
 **What’s Going On in This Picture? | May 13, 2024**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2024/05/12/learning/whats-going-on-in-this-picture-may-13-2024.html
