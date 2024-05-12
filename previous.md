@@ -1,3 +1,7 @@
+**Student protesters at Johns Hopkins agree to end encampment.**\
+`By Colbi Edmonds`\
+https://nytimes.com/live/2024/05/12/us/college-campus-protests/student-protesters-at-johns-hopkins-agree-to-end-encampment
+
 **Hamas’s top leader in Gaza isn’t in Rafah, U.S. intelligence says.**\
 `U.S. officials say the group’s top official in the Gaza Strip, Yahya Sinwar, is most likely in the tunnels under Khan Younis. That could undercut Israel’s rationale for a major operation in Rafah.`\
 https://nytimes.com/live/2024/05/12/world/israel-gaza-war-hamas-rafah/hamass-top-leader-in-gaza-isnt-in-rafah-us-intelligence-says
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/12/arts/design/will-auctions-revive-art-market.html
 **J.D. Vance Says He Would Accept the Election Results, With a Caveat**\
 `The Republican senator from Ohio is on former President Donald J. Trump’s short list of running mates.`\
 https://nytimes.com/2024/05/12/us/politics/jd-vance-vice-president-trump.html
-
-**As Seinfeld Receives Honorary Degree at Duke, Students Walk Out in Protest**\
-`Following the walkout, the comedian, who has been vocal about his support for Israel, opted to take a lighter approach in his commencement speech.`\
-https://nytimes.com/2024/05/12/us/as-jerry-seinfeld-receives-an-honorary-degree-at-duke-students-walk-out-in-protest.html
 
