@@ -1,3 +1,7 @@
+**Fighting Flares Anew in Gaza as Hamas Reconstitutes**\
+`The U.S. secretary of state warned that Israel’s victories over Hamas may not be “sustainable.”`\
+https://nytimes.com/2024/05/12/world/middleeast/israel-hamas-gaza.html
+
 **Susan Backlinie, Swimmer Who Was First Victim in ‘Jaws,’ Dies at 77**\
 `Ms. Backlinie, a stunt woman, appeared in the terrifying opening scene of the 1975 blockbuster in which a great white shark attacks.`\
 https://nytimes.com/2024/05/12/arts/television/susan-backlinie-dead-jaws.html

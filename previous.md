@@ -1,3 +1,7 @@
+**Fighting Flares Anew in Gaza as Hamas Reconstitutes**\
+`The U.S. secretary of state warned that Israel’s victories over Hamas may not be “sustainable.”`\
+https://nytimes.com/2024/05/12/world/middleeast/israel-hamas-gaza.html
+
 **Susan Backlinie, Swimmer Who Was First Victim in ‘Jaws,’ Dies at 77**\
 `Ms. Backlinie, a stunt woman, appeared in the terrifying opening scene of the 1975 blockbuster in which a great white shark attacks.`\
 https://nytimes.com/2024/05/12/arts/television/susan-backlinie-dead-jaws.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/12/us/college-campus-protests/student-protester
 **Hamas’s top leader in Gaza isn’t in Rafah, U.S. intelligence says.**\
 `U.S. officials say the group’s top official in the Gaza Strip, Yahya Sinwar, is most likely in the tunnels under Khan Younis. That could undercut Israel’s rationale for a major operation in Rafah.`\
 https://nytimes.com/live/2024/05/12/world/israel-gaza-war-hamas-rafah/hamass-top-leader-in-gaza-isnt-in-rafah-us-intelligence-says
-
-**Gov. Jim Justice Faces Heavy Business Debts as He Seeks Senate Seat**\
-`The Justice companies have long had a reputation for not paying their debts. But that may be catching up to them.`\
-https://nytimes.com/2024/05/12/us/jim-justice-west-virginia-senate.html
 
