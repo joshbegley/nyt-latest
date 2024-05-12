@@ -1,3 +1,7 @@
+**Monday Briefing: Russia Pushes Into Northern Ukraine**\
+`Also, fighting is raging in northern Gaza.`\
+https://nytimes.com/2024/05/12/world/asia/russia-kharkiv-israel-gaza-asia.html
+
 **Putin Replaces Defense Minister in Rare Cabinet Shake-up**\
 `Mr. Putin shifted Sergei Shoigu to run the security council, and nominated an economist to run the defense ministry.`\
 https://nytimes.com/2024/05/12/world/europe/russia-putin-cabinet-war-shoigu.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/12/science/northern-lights-viewing.html
 **Roger Corman’s Best Movies: A Streaming Guide**\
 `The producer and director ran what was essentially a trade school for future stars and filmmakers like Jack Nicholson, Francis Ford Coppola and Pam Grier.`\
 https://nytimes.com/2024/05/12/movies/roger-corman-streaming-guide.html
-
-**At Art Auctions Market Seeks Its Footing After Stumbling Sales and a Hack at Christie’s**\
-`Speculation drove art prices to new heights during the pandemic, but declining sales and a cyberattack ignited new worries.`\
-https://nytimes.com/2024/05/12/arts/design/will-auctions-revive-art-market.html
 
