@@ -1,3 +1,7 @@
+**Israeli troops engaged in ‘close-quarters combat’ against Hamas in Gaza City, the military says.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/05/12/world/israel-gaza-war-hamas-rafah/israeli-troops-engaged-in-close-quarters-combat-against-hamas-in-gaza-city-the-military-says
+
 **Disabled Adults Shouldn’t Have to Pay This Price to Marry**\
 `Benefits programs force disabled adults who want to wed to choose between the support they need and the independence they deserve.`\
 https://nytimes.com/2024/05/12/opinion/disabled-adults-ssi-marriage.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/11/us/college-campus-protests/jerry-seinfeld-a-
 **12campus-protests**\
 `Colleges Brace for More Commencement Disruptions`\
 https://nytimes.com/live/2024/05/12/us/college-campus-protests
-
-**12mideast-crisis**\
-`U.N. Says About 300,000 Gazans Have Fled Rafah`\
-https://nytimes.com/live/2024/05/12/world/israel-gaza-war-hamas-rafah
 
