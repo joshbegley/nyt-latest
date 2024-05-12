@@ -1,3 +1,7 @@
+**Putin Replaces Defense Minister in Rare Cabinet Shake-up**\
+`Mr. Putin shifted Sergei Shoigu to run the security council, and nominated an economist to run the defense ministry.`\
+https://nytimes.com/2024/05/12/world/europe/russia-putin-cabinet-war-shoigu.html
+
 **Student protesters at Johns Hopkins agree to end encampment.**\
 `By Colbi Edmonds`\
 https://nytimes.com/live/2024/05/12/us/college-campus-protests/student-protesters-at-johns-hopkins-agree-to-end-encampment
