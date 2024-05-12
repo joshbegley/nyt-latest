@@ -1,3 +1,7 @@
+**Quotation of the Day: Israel, Isolated and Defiant, Risks Turning Into a Pariah**\
+`Quotation of the Day for Sunday, May 12, 2024.`\
+https://nytimes.com/2024/05/11/pageoneplus/quotation-of-the-day-israel-isolated-and-defiant-risks-turning-into-a-pariah.html
+
 **Away From the Confines of a Courtroom, Trump Rallies Beachside at the Jersey Shore**\
 `Former President Donald J. Trump held a rally in Wildwood, N.J., on Saturday, declaring that his campaign would “officially play” in a state he has lost twice by double digits.`\
 https://nytimes.com/2024/05/11/us/politics/trump-rally-new-jersey.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/11/arts/eurovision-final/now-for-the-numbers-ga
 **Sam Rubin, TV Anchor Known for His Hollywood Reporting, Dies at 64**\
 `Mr. Rubin began at the Los Angeles television news station KTLA in 1991 and became a staple of morning viewing through his interviews with celebrities.`\
 https://nytimes.com/2024/05/11/arts/television/sam-rubin-ktla-dead.html
-
-**Trump rallies in New Jersey, Biden fund-raises in Washington State and campus protests hit graduations.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/05/11/us/biden-trump-election/trump-rallies-in-new-jersey-biden-fund-raises-in-washington-state-and-campus-protests-hit-graduations
 
