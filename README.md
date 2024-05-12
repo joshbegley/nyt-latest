@@ -1,3 +1,7 @@
+**Our Journalism**\
+`Joe Kahn, The Times’s executive editor, reflects on some of our most probing recent work.`\
+https://nytimes.com/2024/05/12/briefing/times-journalism-pulitzers.html
+
 **Russian Forces Push Deeper Into Northern Ukraine**\
 `A Ukrainian military unit said that its troops were forced to retreat from several positions and that one settlement had been captured by Russian forces.`\
 https://nytimes.com/2024/05/12/world/europe/russia-ukraine-kharkiv.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/12/magazine/jean-smart-hacks.html
 **In Deep-Blue Maryland, a Democratic Primary Turns Uncommonly Competitive**\
 `The contest between Angela Alsobrooks, the Prince George’s County executive, and Representative David Trone has grown tighter as they vie to take on Larry Hogan, the G.O.P. ex-governor.`\
 https://nytimes.com/2024/05/12/us/politics/maryland-senate-democrat.html
-
-**Can Parrots Converse? Polly Says That’s the Wrong Question.**\
-`In a cautious new paper, scientists tried to determine whether an interactive speech board might enrich the life of a parrot named Ellie.`\
-https://nytimes.com/2024/05/12/science/parrots-language-cognition.html
 
