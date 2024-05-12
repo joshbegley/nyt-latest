@@ -1,3 +1,7 @@
+**Blinken says that the U.S. has not ruled out withholding more military aid from Israel.**\
+`By Carol Rosenberg and Minho Kim`\
+https://nytimes.com/2024/05/12/world/middleeast/us-military-aid-israel-blinken.html
+
 **Putin Replaces Defense Minister in Rare Cabinet Shake-up**\
 `Mr. Putin shifted Sergei Shoigu to run the security council, and nominated an economist to run the defense ministry.`\
 https://nytimes.com/2024/05/12/world/europe/russia-putin-cabinet-war-shoigu.html

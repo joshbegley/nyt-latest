@@ -20,7 +20,7 @@ https://nytimes.com/interactive/2024/05/12/world/americas/earthquake-guatemala-m
 
 **Blinken says that the U.S. has not ruled out withholding more military aid from Israel.**\
 `By Carol Rosenberg and Minho Kim`\
-https://nytimes.com/live/2024/05/12/world/israel-gaza-war-hamas-rafah/blinken-says-that-the-us-has-not-ruled-out-withholding-more-military-aid-from-israel
+https://nytimes.com/2024/05/12/world/middleeast/us-military-aid-israel-blinken.html
 
 **Alex Hassilev, the Last of the Original Limeliters, Dies at 91**\
 `The trio’s witty, urbane arrangements made it one of the top acts of the early-1960s folk music revival. His gift for languages helped.`\
