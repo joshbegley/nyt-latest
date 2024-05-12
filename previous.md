@@ -1,3 +1,7 @@
+**Mona Lisa, Smile: You’re in Lecco, After All**\
+`A mash-up of geology and art history has identified a likely setting for one of the world’s most famous paintings.`\
+https://nytimes.com/2024/05/12/arts/mona-lisa-location-solved.html
+
 **Israeli troops engaged in ‘close-quarters combat’ against Hamas in Gaza City, the military says.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/05/12/world/israel-gaza-war-hamas-rafah/israeli-troops-engaged-in-close-quarters-combat-against-hamas-in-gaza-city-the-military-says
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/12/opinion/mothers-day-daughters-cancer.html
 **Jerry Seinfeld, a strong supporter of Israel, will speak at Duke University.**\
 `By Stephanie Saul`\
 https://nytimes.com/live/2024/05/11/us/college-campus-protests/jerry-seinfeld-a-strong-supporter-of-israel-will-speak-at-duke-university
-
-**12campus-protests**\
-`Colleges Brace for More Commencement Disruptions`\
-https://nytimes.com/live/2024/05/12/us/college-campus-protests
 

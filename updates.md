@@ -1,3 +1,7 @@
+**Mona Lisa, Smile: You’re in Lecco, After All**\
+`A mash-up of geology and art history has identified a likely setting for one of the world’s most famous paintings.`\
+https://nytimes.com/2024/05/12/arts/mona-lisa-location-solved.html
+
 **Israeli troops engaged in ‘close-quarters combat’ against Hamas in Gaza City, the military says.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/05/12/world/israel-gaza-war-hamas-rafah/israeli-troops-engaged-in-close-quarters-combat-against-hamas-in-gaza-city-the-military-says
