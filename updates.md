@@ -1,3 +1,7 @@
+**Roger Corman’s Best Movies: A Streaming Guide**\
+`The producer and director ran what was essentially a trade school for future stars and filmmakers like Jack Nicholson, Francis Ford Coppola and Pam Grier.`\
+https://nytimes.com/2024/05/12/movies/roger-corman-streaming-guide.html
+
 **Will the Art Market Find Its Footing After Stumbling Sales and a Hack at Christie’s?**\
 `Speculation drove art prices to new heights during the pandemic, but declining sales and a cyberattack ignited new worries. Could spring auctions bring a comeback?`\
 https://nytimes.com/2024/05/12/arts/design/will-auctions-revive-art-market.html
