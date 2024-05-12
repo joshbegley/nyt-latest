@@ -1,3 +1,7 @@
+**Starting Word That’s Often Skipped**\
+`Jeremy Newton owes us an explanation.`\
+https://nytimes.com/2024/05/12/crosswords/daily-puzzle-2024-05-13.html
+
 **In Rome, Adams Sees a Model for Helping Migrants Assimilate**\
 `The mayor praised the work of a migrant welcome center, which he visited at the end of a three-day trip, during which he also met with Pope Francis.`\
 https://nytimes.com/2024/05/12/nyregion/eric-adams-rome-migrants-pope-visit.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/05/12/world/americas/earthquake-guatemala-m
 **Blinken Says U.S. Has Not Ruled Out Withholding More Military Aid From Israel**\
 `The secretary of state said the U.S. could pull additional support if Israel undertakes a major attack on Rafah.`\
 https://nytimes.com/2024/05/12/world/middleeast/us-military-aid-israel-blinken.html
-
-**Alex Hassilev, the Last of the Original Limeliters, Dies at 91**\
-`The trio’s witty, urbane arrangements made it one of the top acts of the early-1960s folk music revival. His gift for languages helped.`\
-https://nytimes.com/2024/05/12/arts/music/alex-hassilev-dead.html
 

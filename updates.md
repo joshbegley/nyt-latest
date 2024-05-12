@@ -1,3 +1,7 @@
+**Starting Word That’s Often Skipped**\
+`Jeremy Newton owes us an explanation.`\
+https://nytimes.com/2024/05/12/crosswords/daily-puzzle-2024-05-13.html
+
 **In Rome, Adams Sees a Model for Helping Migrants Assimilate**\
 `The mayor praised the work of a migrant welcome center, which he visited at the end of a three-day trip, during which he also met with Pope Francis.`\
 https://nytimes.com/2024/05/12/nyregion/eric-adams-rome-migrants-pope-visit.html
