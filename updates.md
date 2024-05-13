@@ -1,3 +1,7 @@
+**U.K. Police Charge 3 Men With Aiding Hong Kong Intelligence Service**\
+`The three were arrested under Britain’s National Security Act and will appear in court on Monday, the police said. Eight other people detained in the case have been released.`\
+https://nytimes.com/2024/05/13/world/europe/uk-hong-kong-intelligence-arrests.html
+
 **An Inflation Test Looms Over the Economy and the Election**\
 `The pivotal Consumer Price Index report is set to be published on Wednesday as the window for interest-rate cuts before November is closing.`\
 https://nytimes.com/2024/05/13/business/dealbook/cpi-inflation-fed-interest-rates.html
