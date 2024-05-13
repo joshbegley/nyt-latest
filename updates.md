@@ -1,3 +1,5 @@
+
+
 **Israel Needs to Allow More Aid Crossings to Keep Gazans Alive**\
 `A desperate situation requires Israel to create more border openings to provide food and medical assistance.`\
 https://nytimes.com/live/2024/05/07/opinion/thepoint/israel-needs-to-allow-more-aid-crossings-to-keep-gazans-alive
