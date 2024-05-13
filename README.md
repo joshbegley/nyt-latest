@@ -34,7 +34,7 @@ https://nytimes.com/2024/05/12/nyregion/steve-buscemi-attack.html
 `Donald Trump, at his rally in New Jersey, used an extended riff about the 1991 film “The Silence of the Lambs” to demonize migrants at the border.`\
 https://nytimes.com/2024/05/12/us/donald-trump-hannibal-lecter.html
 
-**Fighting Flares Anew in Gaza as Hamas Reconstitutes**\
+**Fighting Flares Anew in Gaza as Hamas Regroups**\
 `The U.S. secretary of state warned that Israel’s victories over Hamas may not be “sustainable.”`\
 https://nytimes.com/2024/05/12/world/middleeast/israel-hamas-gaza.html
 
