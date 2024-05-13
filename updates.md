@@ -1,3 +1,11 @@
+**A look at where fierce fighting continues in Gaza.**\
+`By Liam Stack and Lauren Leatherby`\
+https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah/a-look-at-where-fierce-fighting-continues-in-gaza
+
+**Hilary Cass Says U.S. Doctors Are ‘Out of Date’ on Youth Gender Medicine**\
+`Dr. Hilary Cass published a landmark report that led to restrictions on youth gender care in Britain. U.S. health groups said it did not change their support of the care.`\
+https://nytimes.com/2024/05/13/health/hilary-cass-transgender-youth-puberty-blockers.html
+
 **How Ozempic Is Changing Diabetes Treatment**\
 `Millions of patients rely on insulin. But with new drugs, some have been able to lower their doses or stop taking it altogether.`\
 https://nytimes.com/2024/05/13/well/live/insulin-ozempic-diabetes.html
