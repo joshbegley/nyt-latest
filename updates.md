@@ -1,3 +1,11 @@
+**Exclusion of Jewish Jurors Prompts Review of California Death Row Cases**\
+`Dozens of cases are under review after notes from jury selection in a 1990s murder case indicated that prosecutors worked to exclude Jews.`\
+https://nytimes.com/2024/05/13/us/california-oakland-death-penalty-jewish-jurors.html
+
+**A High Stakes Obstacle Course, for Dogs**\
+`A look behind the scenes at the Westminster Dog Show’s agility competition.`\
+https://nytimes.com/card/2024/05/13/style/westminster-dog-show-agility-championship
+
 **Do You Have a Question About Money? Ask Us.**\
 `Feel free to ask us anything — big or small.`\
 https://nytimes.com/2024/05/13/business/money-questions.html
