@@ -1,3 +1,7 @@
+**A skirmish breaks out near Pomona College’s graduation.**\
+`By Jonathan Wolfe`\
+https://nytimes.com/live/2024/05/12/us/college-campus-protests/pomona-college-graduation-fight
+
 **A Night to Remember at the Opera, Complete With a Phantom**\
 `About 130 children took part in a sleepover at Rome’s opera house, part of a campaign to make up for a lack of music education by making the theater and the art form more familiar and accessible.`\
 https://nytimes.com/2024/05/13/world/europe/opera-rome-music-education.html

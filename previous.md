@@ -1,3 +1,7 @@
+**A skirmish breaks out near Pomona College’s graduation.**\
+`By Jonathan Wolfe`\
+https://nytimes.com/live/2024/05/12/us/college-campus-protests/pomona-college-graduation-fight
+
 **A Night to Remember at the Opera, Complete With a Phantom**\
 `About 130 children took part in a sleepover at Rome’s opera house, part of a campaign to make up for a lack of music education by making the theater and the art form more familiar and accessible.`\
 https://nytimes.com/2024/05/13/world/europe/opera-rome-music-education.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/12/crosswords/daily-puzzle-2024-05-13.html
 **In Rome, Adams Sees a Model for Helping Migrants Assimilate**\
 `The mayor praised the work of a migrant welcome center, which he visited at the end of a three-day trip, during which he also met with Pope Francis.`\
 https://nytimes.com/2024/05/12/nyregion/eric-adams-rome-migrants-pope-visit.html
-
-**At Emerson College’s commencement, there were expressions of protest from beginning to end.**\
-`By Maya Shwayder`\
-https://nytimes.com/live/2024/05/12/us/college-campus-protests/emerson-college-graduation-protests
 
