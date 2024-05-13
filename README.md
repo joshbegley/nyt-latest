@@ -1,3 +1,15 @@
+**Female Basketball Stars in the Skims Spotlight**\
+`Kim Kardashian’s shapewear brand is moving more aggressively into sports.`\
+https://nytimes.com/2024/05/13/style/skims-kim-kardashian-cameron-brink-candace-parker.html
+
+**David Pecker Mastered ‘Catch and Kill’ Tabloid Deals**\
+`Mr. Pecker helped broker hush-money payments with the porn star Stormy Daniels and a former Playboy model, Karen McDougal. Both said they had sex with Donald J. Trump.`\
+https://nytimes.com/2024/05/13/nyregion/david-pecker-hush-money-karen-mcdougal.html
+
+**Family Members at One Another’s Throats? Call In the Mediator.**\
+`Trained negotiators can help families struggling with vexing elder-care issues.`\
+https://nytimes.com/2024/05/13/health/elder-care-family-mediators.html
+
 **Exclusion of Jewish Jurors Prompts Review of California Death Row Cases**\
 `Dozens of cases are under review after notes from jury selection in a 1990s murder case indicated that prosecutors worked to exclude Jews.`\
 https://nytimes.com/2024/05/13/us/california-oakland-death-penalty-jewish-jurors.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/13/health/hilary-cass-transgender-youth-puberty-bloc
 **How Ozempic Is Changing Diabetes Treatment**\
 `Millions of patients rely on insulin. But with new drugs, some have been able to lower their doses or stop taking it altogether.`\
 https://nytimes.com/2024/05/13/well/live/insulin-ozempic-diabetes.html
-
-**Mid-May Means Maximalist Asparagus**\
-`My recipe for seared asparagus with cashews is just the thing when you want a pan full of punchy, crunchy additions.`\
-https://nytimes.com/2024/05/13/dining/mid-may-means-maximalist-asparagus.html
-
-**They’re Members of an Elite Squad: Prime-Time Drama Super Fans**\
-`Shows like “Law & Order: SVU,” “NCIS” and “Grey’s Anatomy” have kept fans hooked for 20 seasons or more. How do they do it?`\
-https://nytimes.com/2024/05/13/arts/television/svu-greys-anatomy-ncis-fans.html
-
-**‘The Bachelor’ Promises True Love. So Why Does It Rarely Work Out?**\
-`Of the 40 combined seasons of “The Bachelor” and “The Bachelorette,” only eight couples have stayed together. We spoke to former contestants and leads about roadblocks to a happy ending.`\
-https://nytimes.com/2024/05/13/arts/television/bachelor-bachelorette-breakups-reality-tv.html
 
