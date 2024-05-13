@@ -1,3 +1,7 @@
+**What I Am Listening for in Michael Cohen’s Testimony**\
+`A flawed insider is called to provide detailed and direct evidence to the jury of the defendant’s alleged guilt.`\
+https://nytimes.com/2024/05/13/opinion/michael-cohen-trump-trial.html
+
 **Monday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2024/05/13/briefing/fighting-ukraine-gaza-northern-lights.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/12/arts/television/susan-backlinie-dead-jaws.html
 **Spain’s Socialists Win Catalan Vote Dominated by Amnesty for Separatists**\
 `For the first time in over a decade, the regional government in Catalonia may be led by a party opposed to independence.`\
 https://nytimes.com/2024/05/12/world/europe/spain-catalan-election.html
-
-**Starting Word That’s Often Skipped**\
-`Jeremy Newton owes us an explanation.`\
-https://nytimes.com/2024/05/12/crosswords/daily-puzzle-2024-05-13.html
 
