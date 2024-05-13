@@ -1,3 +1,7 @@
+**Her A.I. Arm**\
+`Sarah de Lagarde has a bionic limb, powered by artificial intelligence,`\
+https://nytimes.com/card/2024/05/13/business/prosthetic-arm-ai
+
 **Tuesday Briefing: The Prosecution’s Star Witness at the Trump Trial**\
 `Also, Vladimir Putin’s new defense minister.`\
 https://nytimes.com/2024/05/13/world/asia/trump-cohen-putin-shoigu-asia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/13/nyregion/trump-trial-women-voters.html
 **Trump Told Cohen Disclosure of His Fling Would Be a ‘Total Disaster’**\
 `A lawyer’s testimony lands blow after blow on the former president.`\
 https://nytimes.com/live/2024/05/07/opinion/thepoint/cohen-trump-trial-testimony
-
-**Play-by-Play and Drawings on an iPad: How Cable TV Covers a TV-Less Trial**\
-`With no cameras recording Donald Trump’s criminal trial, anchors and producers are improvising to animate dramatic moments like Michael Cohen’s testimony.`\
-https://nytimes.com/2024/05/13/business/media/trump-trial-media-tv-coverage.html
 

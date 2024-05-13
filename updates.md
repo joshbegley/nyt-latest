@@ -1,3 +1,7 @@
+**Her A.I. Arm**\
+`Sarah de Lagarde has a bionic limb, powered by artificial intelligence,`\
+https://nytimes.com/card/2024/05/13/business/prosthetic-arm-ai
+
 **Tuesday Briefing: The Prosecution’s Star Witness at the Trump Trial**\
 `Also, Vladimir Putin’s new defense minister.`\
 https://nytimes.com/2024/05/13/world/asia/trump-cohen-putin-shoigu-asia.html
