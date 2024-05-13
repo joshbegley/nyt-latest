@@ -1,3 +1,5 @@
+
+
 **Cold Lava and Floods Kill 37 in Indonesia**\
 `Heavy rain on the island of Sumatra caused torrents of rock and ash to flow down a volcano and into nearby towns. At least 17 people were still missing.`\
 https://nytimes.com/2024/05/13/world/asia/cold-lava-indonesia.html
