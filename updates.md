@@ -1,3 +1,11 @@
+**An Inflation Test Looms Over the Economy and the Election**\
+`The pivotal Consumer Price Index report is set to be published on Wednesday as the window for interest-rate cuts before November is closing.`\
+https://nytimes.com/2024/05/13/business/dealbook/cpi-inflation-fed-interest-rates.html
+
+**Chinese Woman Jailed for Reporting on Covid Set to be Freed**\
+`Yet Zhang Zhan’s supporters and human rights activists who had followed her case said they could not reach her or her family members.`\
+https://nytimes.com/2024/05/13/world/asia/china-covid-citizen-journalist-zhang.html
+
 **Israelis Visit Nova Festival Site for National Day of Mourning**\
 `“Our hearts are broken,” one mourner said at the site of a rave for peace and love where hundreds were killed in the Hamas-led attack on Oct. 7.`\
 https://nytimes.com/2024/05/13/world/middleeast/israel-oct-7-nova-festival-memorial-day.html
