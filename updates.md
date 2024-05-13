@@ -1,3 +1,7 @@
+**Monday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/05/13/briefing/fighting-ukraine-gaza-northern-lights.html
+
 **A skirmish breaks out near Pomona College’s graduation.**\
 `By Jonathan Wolfe`\
 https://nytimes.com/live/2024/05/12/us/college-campus-protests/pomona-college-graduation-fight

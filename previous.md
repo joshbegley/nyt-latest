@@ -1,3 +1,7 @@
+**Monday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/05/13/briefing/fighting-ukraine-gaza-northern-lights.html
+
 **A skirmish breaks out near Pomona College’s graduation.**\
 `By Jonathan Wolfe`\
 https://nytimes.com/live/2024/05/12/us/college-campus-protests/pomona-college-graduation-fight
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/12/world/europe/spain-catalan-election.html
 **Starting Word That’s Often Skipped**\
 `Jeremy Newton owes us an explanation.`\
 https://nytimes.com/2024/05/12/crosswords/daily-puzzle-2024-05-13.html
-
-**In Rome, Adams Sees a Model for Helping Migrants Assimilate**\
-`The mayor praised the work of a migrant welcome center, which he visited at the end of a three-day trip, during which he also met with Pope Francis.`\
-https://nytimes.com/2024/05/12/nyregion/eric-adams-rome-migrants-pope-visit.html
 
