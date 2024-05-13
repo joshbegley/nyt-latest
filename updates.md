@@ -1,3 +1,7 @@
+**Storms Pummel Mumbai, Killing at Least 8**\
+`Heavy rains and high winds ripped through the financial capital of India, toppling a billboard onto a crowd of people seeking shelter.`\
+https://nytimes.com/2024/05/13/world/asia/mumbai-india-storm-deaths.html
+
 **Art World Luminaries Party Upstate With Julianne Moore, Chloë Sevigny and Roger Goodell**\
 `A springtime benefit and 50th anniversary celebration at Dia Beacon in New York’s Hudson Valley brought together an array of cultural figures.`\
 https://nytimes.com/2024/05/13/style/dia-beacon-spring-benefit-julianne-moore-chloe-sevigny.html
