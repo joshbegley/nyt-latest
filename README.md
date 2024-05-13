@@ -1,3 +1,7 @@
+**Republicans plan a symbolic House vote ordering a reversal of Biden’s pause on arms to Israel.**\
+`By Annie Karni`\
+https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah/republicans-plan-a-symbolic-house-vote-ordering-a-reversal-of-bidens-pause-on-arms-to-israel
+
 **No Jurors Seated on First Day of Menendez Corruption Trial**\
 `Senator Robert Menendez is charged with accepting hundreds of thousands of dollars in cash and gold bars in exchange for political favors at home and abroad.`\
 https://nytimes.com/2024/05/13/nyregion/bob-menendez-corruption-trial-jury-selection.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/13/climate/ferc-climate-renewable-energy.html
 **New Rules to Overhaul Electric Grids Could Boost Wind and Solar Power**\
 `The Federal Energy Regulatory Commission approved the biggest changes in more than a decade to the way U.S. power lines are planned and funded.`\
 https://nytimes.com/2024/05/13/climate/electric-grid-overhaul-ferc.html
-
-**This Easy Pasta Doubles Up on Eggs**\
-`Speedy, savory and pantry-friendly, this dish celebrates buttery egg noodles by topping them with sour cream, scallions and runny eggs.`\
-https://nytimes.com/2024/05/13/dining/egg-noodles-lokshen-mit-kaese.html
 
