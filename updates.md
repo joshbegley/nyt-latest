@@ -1,3 +1,7 @@
+**Trump Stays Calm in Court. His Emails Tell a Different Story.**\
+`Donald Trump’s presidential campaign has sent supporters a steady stream of fund-raising solicitations featuring exaggerated portrayals of his days in court.`\
+https://nytimes.com/2024/05/13/us/politics/trump-court-fundraising-emails.html
+
 **George Clooney to Make Broadway Debut in ‘Good Night, and Good Luck’**\
 `A stage adaptation of the film is planned for next spring, with Clooney playing the journalist Edward R. Murrow.`\
 https://nytimes.com/2024/05/13/theater/george-clooney-broadway.html
