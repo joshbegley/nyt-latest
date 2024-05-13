@@ -1,3 +1,7 @@
+**GameStop Shares Surge After ‘Roaring Kitty’ Re-emerges**\
+`Keith Gill, the trader who helped turn the video game retailer into a high-flying “meme stock,” posted cryptic messages online after a three-year hiatus.`\
+https://nytimes.com/2024/05/13/business/gamestop-stock-roaring-kitty.html
+
 **A Boot Camp for 20-Somethings**\
 `Advice, explainers and exercises on taking advantage of job benefits, creating a budget, paying off debt and thinking about your future.`\
 https://nytimes.com/2024/05/13/your-money/your-money-a-boot-camp-for-20-somethings.html

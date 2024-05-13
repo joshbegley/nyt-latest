@@ -1,3 +1,7 @@
+**GameStop Shares Surge After ‘Roaring Kitty’ Re-emerges**\
+`Keith Gill, the trader who helped turn the video game retailer into a high-flying “meme stock,” posted cryptic messages online after a three-year hiatus.`\
+https://nytimes.com/2024/05/13/business/gamestop-stock-roaring-kitty.html
+
 **A Boot Camp for 20-Somethings**\
 `Advice, explainers and exercises on taking advantage of job benefits, creating a budget, paying off debt and thinking about your future.`\
 https://nytimes.com/2024/05/13/your-money/your-money-a-boot-camp-for-20-somethings.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/13/theater/george-clooney-broadway.html
 **Army Officer Resigns in Protest of ‘Unqualified’ U.S. Support to Israel**\
 `While assigned to the Defense Intelligence Agency, Maj. Harrison Mann said he was enabling policies that violated his conscience.`\
 https://nytimes.com/2024/05/13/us/army-officer-resigns-gaza-israel.html
-
-**Cloud Brightening Study in California Is Halted by Local Officials**\
-`Researchers had been testing a sprayer that could one day be used to push a salty mist skyward, cooling the Earth. Officials stopped the work, citing health questions.`\
-https://nytimes.com/2024/05/13/climate/cloud-brightening-geoengineering.html
 
