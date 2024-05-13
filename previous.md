@@ -1,40 +1,40 @@
-**Violent Unrest Over Economic Strife Erupts in Pakistan’s Kashmir Region**\
-`“I have never seen such a large-scale uprising” in the restive region, a teacher at a local university said.`\
-https://nytimes.com/2024/05/13/world/asia/pakistan-kashmir-protests.html
+**Doctors, Not Judges, Should Decide When to Treat Patients Without Their Consent**\
+`Hospitals should.`\
+https://nytimes.com/2024/05/13/opinion/treatment-over-objection-medical-ethics.html
 
-**13mideast-crisis**\
-`Israel Observes a Solemn Memorial Day`\
-https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah
+**Sarah Paulson Dares to Play the People You Love to Hate**\
+`The actress has received a Tony nomination for “Appropriate,” in which she portrays a woman who makes a sport out of verbally eviscerating her family members.`\
+https://nytimes.com/2024/05/13/theater/sarah-paulson-appropriate-broadway.html
 
-**Wisconsin Cross-Tabs: May 2024 Times/Siena Poll**\
-`Results of a poll by The New York Times and Siena College in Wisconsin from April 28 to May 9, 2024.`\
-https://nytimes.com/interactive/2024/05/13/us/elections/times-siena-poll-wisconsin-crosstabs.html
+**Electricity Demand Is Surging. Let’s Not Fry the Planet in Response.**\
+`We need utilities to succeed now more than ever before. But the definition of success needs to evolve.`\
+https://nytimes.com/2024/05/13/opinion/electricity-demand-surging.html
 
-**Nevada Cross-Tabs: May 2024 Times/Siena Poll**\
-`Results of a poll by The New York Times and Siena College in Nevada from April 28 to May 9, 2024.`\
-https://nytimes.com/interactive/2024/05/13/us/elections/times-siena-poll-nevada-crosstabs.html
+**Dartmouth’s Leader Called in Police Quickly. The Fallout Was Just as Swift.**\
+`Local law enforcement went in just a couple of hours after a protest encampment went up.`\
+https://nytimes.com/2024/05/13/us/dartmouth-campus-protests-police-beilock.html
 
-**Michigan Cross-Tabs: May 2024 Times/Siena Poll**\
-`Results of a poll by The New York Times and Siena College in Michigan from April 28 to May 9, 2024.`\
-https://nytimes.com/interactive/2024/05/13/us/elections/times-siena-poll-michigan-crosstabs.html
+**$2.2 Million Homes in California**\
+`A shingled bungalow with a guesthouse and a geodesic dome in Topanga, a Victorian-era retreat in Napa and a midcentury-modern home in Berkeley.`\
+https://nytimes.com/2024/05/13/realestate/2-million-dollar-homes-california.html
 
-**Cross-Tabs: May 2024 Times/Inquirer/Siena Poll of Pennsylvania**\
-`Results of a poll by The New York Times, The Philadelphia Inquirer and Siena College in Pennsylvania from April 28 to May 7, 2024.`\
-https://nytimes.com/interactive/2024/05/13/us/elections/times-siena-poll-pennsylvania-crosstabs.html
+**A $10,000 Investment in Some Children’s Futures**\
+`Harlem Children’s Zone, which runs charter schools, is raising money to give a financial head start to its students, if they meet certain conditions.`\
+https://nytimes.com/2024/05/13/nyregion/a-10000-investment-in-some-childrens-futures.html
 
-**Georgia Cross-Tabs: May 2024 Times/Siena Poll**\
-`Results of a poll by The New York Times and Siena College in Georgia from April 28 to May 9, 2024.`\
-https://nytimes.com/interactive/2024/05/13/us/elections/times-siena-poll-georgia-crosstabs.html
+**The Seasonal Allergy Hill Is Now an All-Year Mountain**\
+`It’s not your imagination. Our suffering is getting worse as the climate grows warmer.`\
+https://nytimes.com/2024/05/13/opinion/allergies-climate-change.html
 
-**Arizona Cross-Tabs: May 2024 Times/Siena Poll**\
-`Results of a poll by The New York Times and Siena College in Arizona from April 28 to May 9, 2024.`\
-https://nytimes.com/interactive/2024/05/13/us/elections/times-siena-poll-arizona-crosstabs.html
+**Are Plants Intelligent? If So, What Does That Mean for Your Salad?**\
+`A new book, “The Light Eaters,” looks at how plants sense the world and the agency they have in their own lives.`\
+https://nytimes.com/2024/05/13/books/zoe-schlanger-light-eaters.html
 
-**Likely Electorate Cross-Tabs: May 2024 Times/Siena Poll of the Presidential Battlegrounds**\
-`Donald Trump leads Joe Biden in five of six states polled by The New York Times, The Philadelphia Inquirer and Siena College from April 28 to May 9, 2024.`\
-https://nytimes.com/interactive/2024/05/13/us/elections/times-siena-poll-likely-electorate-crosstabs.html
+**‘Failure to Thrive,’ or a Failure to Investigate?**\
+`An outdated medical term often masks treatable illnesses, health experts contend.`\
+https://nytimes.com/2024/05/13/science/medicine-geriatrics-failure-thrive.html
 
-**Toplines: May 2024 Times/Siena Poll of the Presidential Battlegrounds**\
-`Results of polls by The New York Times, The Philadelphia Inquirer and Siena College in Pennsylvania and by The Times and Siena College in Arizona, Georgia, Michigan, Nevada and Wisconsin.`\
-https://nytimes.com/interactive/2024/05/13/us/elections/times-siena-battleground-states-toplines.html
+**Yes, You Love Pasta. But Do You Know the Difference Between Anolini and Pansoti?**\
+`From the size of a bottle cap to “large like a fist,” seven classic stuffed-pasta shapes that go back generations — and how to make them.`\
+https://nytimes.com/2024/05/13/t-magazine/guide-ravioli-stuffed-pasta.html
 
