@@ -1,3 +1,7 @@
+**China Is Raising Bullet Train Fares as Debts and Costs Balloon**\
+`The rare move by operators of the national rail network comes as part of a broader push in China to stem losses at subsidized public services.`\
+https://nytimes.com/2024/05/13/business/china-bullet-trains-ticket-prices.html
+
 **Steve Buscemi Is Punched in Random Manhattan Attack**\
 `The actor, who starred in “Boardwalk Empire,” was assaulted by a stranger on Wednesday morning. He was treated at Bellevue Hospital.`\
 https://nytimes.com/2024/05/12/nyregion/steve-buscemi-attack.html
