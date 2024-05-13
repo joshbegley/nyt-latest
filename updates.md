@@ -1,3 +1,7 @@
+**Minnesota and Wisconsin See Air Quality Warnings From Canadian Wildfires**\
+`Smoke from wildfires drifted south over the weekend.`\
+https://nytimes.com/2024/05/13/us/wildfire-smoke-mn-wi-air-quality.html
+
 **Sex, Drugs and Economics: The Double Life of a Conservative Gadfly**\
 `The professor and social commentator Glenn Loury opens up about his vices in a candid new memoir.`\
 https://nytimes.com/2024/05/13/books/review/glenn-loury-late-admissions.html
