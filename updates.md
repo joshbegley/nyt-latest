@@ -1,3 +1,7 @@
+**Cohen Testimony Begins Climax of Case Against Trump: 5 Takeaways**\
+`In hotly anticipated testimony, Donald J. Trump’s former fixer discussed how he buried stories his boss didn’t want anyone to read.`\
+https://nytimes.com/2024/05/13/nyregion/trump-trial-michael-cohen-takeaways.html
+
 **Michael Cohen testifies**\
 `Also, the return of Furiosa.`\
 https://nytimes.com/2024/05/13/briefing/trump-trial-polls-westminister.html
