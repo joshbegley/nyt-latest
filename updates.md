@@ -1,3 +1,7 @@
+**Steve Buscemi Is Punched in Random Manhattan Attack**\
+`The actor, who starred in “Boardwalk Empire,” was assaulted by a stranger on Wednesday morning. He was treated at Bellevue Hospital.`\
+https://nytimes.com/2024/05/12/nyregion/steve-buscemi-attack.html
+
 **Trump, Bashing Migrants, Likens Them to Hannibal Lecter, Movie Cannibal**\
 `Donald Trump, at his rally in New Jersey, used an extended riff about the 1991 film “The Silence of the Lambs” to demonize migrants at the border.`\
 https://nytimes.com/2024/05/12/us/donald-trump-hannibal-lecter.html
