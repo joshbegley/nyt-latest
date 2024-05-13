@@ -1,3 +1,15 @@
+**Black Man Charged With Threatening to Kill White People in Mass Shooting**\
+`Joshua Cobb wrote in a message posted on a social media site that he wanted to “cause mayhem on the white community,” federal prosecutors said.`\
+https://nytimes.com/2024/05/13/nyregion/mercer-county-threats-white-people.html
+
+**Driver of Truck That Hit White House Security Barriers Pleads Guilty**\
+`Sai Varshith Kandula faces up to 10 years in prison on a charge of damaging property. He said he had been planning to install himself as a Nazi-inspired dictator, killing President Biden if needed.`\
+https://nytimes.com/2024/05/13/us/politics/truck-white-house-guilty-plea.html
+
+**White House Says Israel Still Has Provided No Plan to Protect Rafah Civilians**\
+`The national security adviser, Jake Sullivan, also said Israel had yet to connect its military operations to a plan for the future governance of Gaza.`\
+https://nytimes.com/2024/05/13/world/middleeast/white-house-israel-rafah.html
+
 **White House says Israel still has not provided a plan for protecting civilians in Rafah.**\
 `By David E. Sanger and Zach Montague`\
 https://nytimes.com/2024/05/13/world/middleeast/white-house-says-israel-still-has-not-provided-a-plan-for-protecting-civilians-in-rafah.html
