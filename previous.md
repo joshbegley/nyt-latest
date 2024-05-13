@@ -1,3 +1,7 @@
+**Violent Unrest Over Economic Strife Erupts in Pakistan’s Kashmir Region**\
+`“I have never seen such a large-scale uprising” in the restive region, a teacher at a local university said.`\
+https://nytimes.com/2024/05/13/world/asia/pakistan-kashmir-protests.html
+
 **13mideast-crisis**\
 `Israel Observes a Solemn Memorial Day`\
 https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/05/13/us/elections/times-siena-poll-likely-
 **Toplines: May 2024 Times/Siena Poll of the Presidential Battlegrounds**\
 `Results of polls by The New York Times, The Philadelphia Inquirer and Siena College in Pennsylvania and by The Times and Siena College in Arizona, Georgia, Michigan, Nevada and Wisconsin.`\
 https://nytimes.com/interactive/2024/05/13/us/elections/times-siena-battleground-states-toplines.html
-
-**Cross-Tabs: May 2024 Times/Siena Poll of the Presidential Battlegrounds**\
-`Donald Trump leads Joe Biden in five of six states polled by The New York Times, The Philadelphia Inquirer and Siena College from April 28 to May 9, 2024.`\
-https://nytimes.com/interactive/2024/05/13/us/elections/times-siena-poll-registered-voter-crosstabs.html
 

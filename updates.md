@@ -1,3 +1,7 @@
+**Violent Unrest Over Economic Strife Erupts in Pakistan’s Kashmir Region**\
+`“I have never seen such a large-scale uprising” in the restive region, a teacher at a local university said.`\
+https://nytimes.com/2024/05/13/world/asia/pakistan-kashmir-protests.html
+
 **13mideast-crisis**\
 `Israel Observes a Solemn Memorial Day`\
 https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah
