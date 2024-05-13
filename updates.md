@@ -1,3 +1,11 @@
+**Israelis Gather at Site of Oct. 7 Festival Attack to Mourn Loved Ones**\
+`People gathered on Israel’s national day of mourning to remember festivalgoers who were killed on Oct. 7 by the Hamas-led assault.`\
+https://nytimes.com/video/world/middleeast/100000009465268/israel-nova-festival-memorial-day.html
+
+**A White-Collar Indictment Shatters a Congressman’s Blue-Collar Image**\
+`Representative Henry Cuellar started from humble origins, but records show he welcomed the trappings of power afforded by his position.`\
+https://nytimes.com/2024/05/13/us/politics/henry-cuellar-indictment.html
+
 **Michael Cohen Was Trump’s Lawyer, Fixer and ‘Designated Thug’**\
 `Mr. Cohen had the amorphous title of executive vice president of the Trump Organization and “special counsel” to Donald J. Trump.`\
 https://nytimes.com/2024/05/13/nyregion/michael-cohen-trump-duties.html
