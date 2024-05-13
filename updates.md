@@ -1,3 +1,7 @@
+**This Easy Pasta Doubles Up on Eggs**\
+`Speedy, savory and pantry-friendly, this dish celebrates buttery egg noodles by topping them with sour cream, scallions and runny eggs.`\
+https://nytimes.com/2024/05/13/dining/egg-noodles-lokshen-mit-kaese.html
+
 **OpenAI Unveils New ChatGPT That Listens, Looks and Talks**\
 `Chatbots, image generators and voice assistants are gradually merging into a single technology with a conversational voice.`\
 https://nytimes.com/2024/05/13/technology/openai-chatgpt-app.html

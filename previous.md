@@ -1,3 +1,7 @@
+**This Easy Pasta Doubles Up on Eggs**\
+`Speedy, savory and pantry-friendly, this dish celebrates buttery egg noodles by topping them with sour cream, scallions and runny eggs.`\
+https://nytimes.com/2024/05/13/dining/egg-noodles-lokshen-mit-kaese.html
+
 **OpenAI Unveils New ChatGPT That Listens, Looks and Talks**\
 `Chatbots, image generators and voice assistants are gradually merging into a single technology with a conversational voice.`\
 https://nytimes.com/2024/05/13/technology/openai-chatgpt-app.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/07/opinion/thepoint/israel-needs-to-allow-more-
 **Kendrick Lamar Rides a Rap Beef All the Way to No. 1**\
 `On the Billboard album chart, Dua Lipa’s heavily promoted “Radical Optimism” opened at No. 2, held off by the third week of Taylor Swift’s “Tortured Poets.”`\
 https://nytimes.com/2024/05/13/arts/music/taylor-swift-kendrick-lamar-dua-lipa-billboard-charts.html
-
-**Carlos Niño, the Spiritual Force Behind L.A.’s Eclectic Music Scene**\
-`The percussionist, producer, D.J. and more has been helping artists like André 3000 express themselves for decades. His latest album is due later this month.`\
-https://nytimes.com/2024/05/13/arts/music/carlos-nino-andre-3000-placenta.html
 
