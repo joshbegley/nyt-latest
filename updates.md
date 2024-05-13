@@ -1,3 +1,7 @@
+**Biden Promised Normal. Do Voters Want His Version of It?**\
+`Many voters in a new poll say the country’s political and economic systems need major changes or to be completely torn down. The Biden campaign says it’s not satisfied with business as usual, either.`\
+https://nytimes.com/2024/05/13/us/politics/biden-polls-normalcy.html
+
 **At Westminster, the Dogs Are in Charge**\
 `A look at the action in Queens as the annual dog show takes over the Billie Jean King National Tennis Center.`\
 https://nytimes.com/2024/05/13/style/westminster-dog-show-2024-photos.html
