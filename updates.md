@@ -1,3 +1,7 @@
+**Nicole Shanahan Ventures Onto the Stump for Kennedy**\
+`The Silicon Valley lawyer, chosen by Robert F. Kennedy Jr. as his running mate, made her first solo outing on the stump. She is to appear alongside him at a rally on Monday in Austin, Texas.`\
+https://nytimes.com/2024/05/13/us/politics/nicole-shanahan-kennedy-campaign.html
+
 **GameStop Shares Surge After ‘Roaring Kitty’ Re-emerges**\
 `Keith Gill, the trader who helped turn the video game retailer into a high-flying “meme stock,” posted cryptic messages online after a three-year hiatus.`\
 https://nytimes.com/2024/05/13/business/gamestop-stock-roaring-kitty.html
