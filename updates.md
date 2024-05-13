@@ -1,3 +1,7 @@
+**Cohen Pleaded Guilty to Federal Crimes Tied to Trump Before Testifying**\
+`Michael D. Cohen spent time in prison for felony charges tied to hush-money deals, as well lying to Congress and tax evasion. He has been free since 2020.`\
+https://nytimes.com/2024/05/13/nyregion/michael-cohen-felony-charge-prison-trump.html
+
 **California Considers Limits on Self-Service Checkout**\
 `A legislative package aimed at reducing retail crime includes a requirement for much closer supervision of self-checkout in stores.`\
 https://nytimes.com/2024/05/13/us/california-legislature-self-service-checkout.html

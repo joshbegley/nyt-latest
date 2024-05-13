@@ -1,3 +1,7 @@
+**Cohen Pleaded Guilty to Federal Crimes Tied to Trump Before Testifying**\
+`Michael D. Cohen spent time in prison for felony charges tied to hush-money deals, as well lying to Congress and tax evasion. He has been free since 2020.`\
+https://nytimes.com/2024/05/13/nyregion/michael-cohen-felony-charge-prison-trump.html
+
 **California Considers Limits on Self-Service Checkout**\
 `A legislative package aimed at reducing retail crime includes a requirement for much closer supervision of self-checkout in stores.`\
 https://nytimes.com/2024/05/13/us/california-legislature-self-service-checkout.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/13/briefing/a-new-rent-versus-buy-calculator.html
 **Activists Hold a Ceremony Reflecting on Both Israeli and Palestinian Losses**\
 `“Many people have woken up to the reality that this conflict cannot go on,” said a director of one Israeli peace-building group, referring to the decades of violence.`\
 https://nytimes.com/2024/05/13/world/middleeast/israel-palestinian-memorial-day-joint-ceremony.html
-
-**Trump’s Lead in the Polls, and Michael Cohen’s Testimony**\
-`Plus, a solar storm crashes farmers’ GPS systems.`\
-https://nytimes.com/2024/05/13/podcasts/times-siena-poll-michael-cohen-testimony.html
 
