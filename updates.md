@@ -1,3 +1,7 @@
+**Republicans plan a symbolic House vote ordering a reversal of Biden’s pause on arms to Israel.**\
+`By Annie Karni`\
+https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah/republicans-plan-a-symbolic-house-vote-ordering-a-reversal-of-bidens-pause-on-arms-to-israel
+
 **No Jurors Seated on First Day of Menendez Corruption Trial**\
 `Senator Robert Menendez is charged with accepting hundreds of thousands of dollars in cash and gold bars in exchange for political favors at home and abroad.`\
 https://nytimes.com/2024/05/13/nyregion/bob-menendez-corruption-trial-jury-selection.html
