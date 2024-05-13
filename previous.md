@@ -1,3 +1,11 @@
+**How Ozempic Is Changing Diabetes Treatment**\
+`Millions of patients rely on insulin. But with new drugs, some have been able to lower their doses or stop taking it altogether.`\
+https://nytimes.com/2024/05/13/well/live/insulin-ozempic-diabetes.html
+
+**Mid-May Means Maximalist Asparagus**\
+`My recipe for seared asparagus with cashews is just the thing when you want a pan full of punchy, crunchy additions.`\
+https://nytimes.com/2024/05/13/dining/mid-may-means-maximalist-asparagus.html
+
 **They’re Members of an Elite Squad: Prime-Time Drama Super Fans**\
 `Shows like “Law & Order: SVU,” “NCIS” and “Grey’s Anatomy” have kept fans hooked for 20 seasons or more. How do they do it?`\
 https://nytimes.com/2024/05/13/arts/television/svu-greys-anatomy-ncis-fans.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/13/dining/reopened-waldorf-astoria.html
 **Israelis Gather at Site of Oct. 7 Festival Attack to Mourn Loved Ones**\
 `People gathered on Israel’s national day of mourning to remember festivalgoers who were killed on Oct. 7 by the Hamas-led assault.`\
 https://nytimes.com/video/world/middleeast/100000009465268/israel-nova-festival-memorial-day.html
-
-**A White-Collar Indictment Shatters a Congressman’s Blue-Collar Image**\
-`Representative Henry Cuellar started from humble origins, but records show he welcomed the trappings of power afforded by his position.`\
-https://nytimes.com/2024/05/13/us/politics/henry-cuellar-indictment.html
-
-**Michael Cohen Was Trump’s Lawyer, Fixer and ‘Designated Thug’**\
-`Mr. Cohen had the amorphous title of executive vice president of the Trump Organization and “special counsel” to Donald J. Trump.`\
-https://nytimes.com/2024/05/13/nyregion/michael-cohen-trump-duties.html
 

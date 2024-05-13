@@ -1,3 +1,11 @@
+**How Ozempic Is Changing Diabetes Treatment**\
+`Millions of patients rely on insulin. But with new drugs, some have been able to lower their doses or stop taking it altogether.`\
+https://nytimes.com/2024/05/13/well/live/insulin-ozempic-diabetes.html
+
+**Mid-May Means Maximalist Asparagus**\
+`My recipe for seared asparagus with cashews is just the thing when you want a pan full of punchy, crunchy additions.`\
+https://nytimes.com/2024/05/13/dining/mid-may-means-maximalist-asparagus.html
+
 **They’re Members of an Elite Squad: Prime-Time Drama Super Fans**\
 `Shows like “Law & Order: SVU,” “NCIS” and “Grey’s Anatomy” have kept fans hooked for 20 seasons or more. How do they do it?`\
 https://nytimes.com/2024/05/13/arts/television/svu-greys-anatomy-ncis-fans.html
