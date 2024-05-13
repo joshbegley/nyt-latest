@@ -1,3 +1,7 @@
+**OpenAI Unveils New ChatGPT that Listens, Looks and Talks**\
+`Chatbots, image generators and voice assistants are gradually merging into a single technology with a conversational voice.`\
+https://nytimes.com/2024/05/13/technology/openai-chatgpt-app.html
+
 **Want to fix Social Security? The Well-Off Must Accept Smaller Checks.**\
 `Voters won’t brook much higher taxes, so Social Security needs to be reoriented toward the poor.`\
 https://nytimes.com/2024/05/13/opinion/social-security-retirement-benefits.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/13/arts/music/taylor-swift-kendrick-lamar-dua-lipa-b
 **Carlos Niño, the Spiritual Force Behind L.A.’s Eclectic Music Scene**\
 `The percussionist, producer, D.J. and more has been helping artists like André 3000 express themselves for decades. His latest album is due later this month.`\
 https://nytimes.com/2024/05/13/arts/music/carlos-nino-andre-3000-placenta.html
-
-**Trump Stays Calm in Court. His Emails Tell a Different Story.**\
-`Donald Trump’s presidential campaign has sent supporters a steady stream of fund-raising solicitations featuring exaggerated portrayals of his days in court.`\
-https://nytimes.com/2024/05/13/us/politics/trump-court-fundraising-emails.html
 
