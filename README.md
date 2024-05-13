@@ -1,3 +1,7 @@
+**Biden Promised Normal. Do Voters Want His Version of It?**\
+`Many voters in a new poll say the country’s political and economic systems need major changes or to be completely torn down. The Biden campaign says it’s not satisfied with business as usual, either.`\
+https://nytimes.com/2024/05/13/us/politics/biden-polls-normalcy.html
+
 **At Westminster, the Dogs Are in Charge**\
 `A look at the action in Queens as the annual dog show takes over the Billie Jean King National Tennis Center.`\
 https://nytimes.com/2024/05/13/style/westminster-dog-show-2024-photos.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/13/world/asia/mumbai-india-storm-deaths.html
 **Art World Luminaries Party Upstate With Julianne Moore, Chloë Sevigny and Roger Goodell**\
 `A springtime benefit and 50th anniversary celebration at Dia Beacon in New York’s Hudson Valley brought together an array of cultural figures.`\
 https://nytimes.com/2024/05/13/style/dia-beacon-spring-benefit-julianne-moore-chloe-sevigny.html
-
-**How an Obscure Agency Became a Linchpin for Climate Policy**\
-`The Federal Energy Regulatory Commission voted 2-to-1 in a partisan split on Monday on a new rule that could help speed up wind and solar energy.`\
-https://nytimes.com/2024/05/13/climate/ferc-climate-renewable-energy.html
 
