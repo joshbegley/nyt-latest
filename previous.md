@@ -1,4 +1,4 @@
-**Melinda Gates to Resign From Gates Foundation**\
+**Melinda French Gates to Resign From Gates Foundation**\
 `The Bill and Melinda Gates Foundation is recognized as one of the most powerful organizations in global philanthropy, in fields like global health and early-childhood education.`\
 https://nytimes.com/2024/05/13/business/melinda-gates-resigns-gates-foundation.html
 
