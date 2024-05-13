@@ -1,3 +1,15 @@
+**Female Basketball Stars in the Skims Spotlight**\
+`Kim Kardashian’s shapewear brand is moving more aggressively into sports.`\
+https://nytimes.com/2024/05/13/style/skims-kim-kardashian-cameron-brink-candace-parker.html
+
+**David Pecker Mastered ‘Catch and Kill’ Tabloid Deals**\
+`Mr. Pecker helped broker hush-money payments with the porn star Stormy Daniels and a former Playboy model, Karen McDougal. Both said they had sex with Donald J. Trump.`\
+https://nytimes.com/2024/05/13/nyregion/david-pecker-hush-money-karen-mcdougal.html
+
+**Family Members at One Another’s Throats? Call In the Mediator.**\
+`Trained negotiators can help families struggling with vexing elder-care issues.`\
+https://nytimes.com/2024/05/13/health/elder-care-family-mediators.html
+
 **Exclusion of Jewish Jurors Prompts Review of California Death Row Cases**\
 `Dozens of cases are under review after notes from jury selection in a 1990s murder case indicated that prosecutors worked to exclude Jews.`\
 https://nytimes.com/2024/05/13/us/california-oakland-death-penalty-jewish-jurors.html
