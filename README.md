@@ -1,3 +1,7 @@
+**Do You Have a Question About Money? Ask Us.**\
+`Feel free to ask us anything — big or small.`\
+https://nytimes.com/2024/05/13/business/money-questions.html
+
 **Does Mindfulness Training Lead to Better Mental Health?**\
 `Responses to an article in Science Times. Also: Teaching about hate; the International Criminal Court and the Israel-Gaza war; nonpartisan House speakers.`\
 https://nytimes.com/2024/05/13/opinion/mindfulness-mental-health.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/13/us/politics/biden-poll.html
 **Facing an Endless Barrage, Ukraine’s Air Defenses Are Withering**\
 `As Russia shifts its tactics and Ukraine's ammunition dwindles, more missiles are getting through Ukraine's air defenses.`\
 https://nytimes.com/interactive/2024/05/13/world/europe/ukraine-missile-defenses.html
-
-**J.D. Vance, in the Mix to Be Trump’s Running Mate, Joins Him in Court**\
-`Mr. Vance’s appearance in court could signal a new frontier in the auditions to become Donald J. Trump’s running mate.`\
-https://nytimes.com/2024/05/13/nyregion/jd-vance-trump-vp.html
 
