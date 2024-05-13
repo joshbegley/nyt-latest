@@ -1,5 +1,9 @@
 **University of Wisconsin-Milwaukee and protesters reach a deal to end an encampment.**\
 `By Dan Simmons`\
+https://nytimes.com/2024/05/12/us/university-of-wisconsin-milwaukee-and-protesters-reach-a-deal-to-end-an-encampment.html
+
+**University of Wisconsin-Milwaukee and protesters reach a deal to end an encampment.**\
+`By Dan Simmons`\
 https://nytimes.com/live/2024/05/12/us/college-campus-protests/university-of-wisconsin-milwaukee-and-protesters-reach-a-deal-to-end-an-encampment
 
 **Cold Lava and Floods Kill 37 in Indonesia**\
