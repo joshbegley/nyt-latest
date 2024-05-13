@@ -1,3 +1,11 @@
+**No Jurors Seated on First Day of Menendez Corruption Trial**\
+`Senator Robert Menendez is charged with accepting hundreds of thousands of dollars in cash and gold bars in exchange for political favors at home and abroad.`\
+https://nytimes.com/2024/05/13/nyregion/robert-menendez-corruption-trial-jury-selection.html
+
+**Michael Cohen, Key to Trump Case, Tells Jurors of Seedy Hush-Money Plot**\
+`Donald J. Trump’s former bulldog told jurors about his work: threatening enemies, cleaning up problems and burying embarrassing stories.`\
+https://nytimes.com/2024/05/13/nyregion/cohen-trump-hush-money-trial-testimony.html
+
 **Worry About Women Voters Drove Trump’s Hush-Money Decisions, Cohen Says**\
 `“Guys may think it’s cool, but this is going to be a disaster for the campaign,” Mr. Trump said, according to testimony.`\
 https://nytimes.com/2024/05/13/nyregion/trump-trial-women-voters.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/13/climate/electric-grid-overhaul-ferc.html
 **This Easy Pasta Doubles Up on Eggs**\
 `Speedy, savory and pantry-friendly, this dish celebrates buttery egg noodles by topping them with sour cream, scallions and runny eggs.`\
 https://nytimes.com/2024/05/13/dining/egg-noodles-lokshen-mit-kaese.html
-
-**OpenAI Unveils New ChatGPT That Listens, Looks and Talks**\
-`Chatbots, image generators and voice assistants are gradually merging into a single technology with a conversational voice.`\
-https://nytimes.com/2024/05/13/technology/openai-chatgpt-app.html
-
-**Want to fix Social Security? The Well-Off Must Accept Smaller Checks.**\
-`Voters won’t brook much higher taxes, so Social Security needs to be reoriented toward the poor.`\
-https://nytimes.com/2024/05/13/opinion/social-security-retirement-benefits.html
 
