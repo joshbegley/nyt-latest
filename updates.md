@@ -1,3 +1,7 @@
+**Robert Menendez’s Trial Is Set to Begin, With a Sprawling Web of Charges**\
+`Senator Robert Menendez of New Jersey is accused of participating in an international bribery scheme involving gold bars, cash and a Mercedes-Benz.`\
+https://nytimes.com/2024/05/13/nyregion/jury-selection-menendez-trial.html
+
 **University of Wisconsin-Milwaukee and Protesters Agree to End Encampment**\
 `As part of the deal, the pro-Palestinian encampment will be down by Tuesday, and the university pledged to join calls for a cease-fire in Gaza, school officials said.`\
 https://nytimes.com/2024/05/12/us/university-of-wisconsin-milwaukee-and-protesters-reach-a-deal-to-end-an-encampment.html
