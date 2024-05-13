@@ -1,3 +1,7 @@
+**Christopher Edley Jr., Civil Rights Expert Heard by Presidents, Dies at 71**\
+`He pivoted between serving as an adviser to the Carter, Clinton and Obama White Houses and teaching at Harvard and Berkeley, where he was the law school dean.`\
+https://nytimes.com/2024/05/13/obituaries/christopher-edley-jr-dead.html
+
 **An international U.N. worker was killed in Rafah, a first since the conflict began.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah/an-international-un-worker-was-killed-in-rafah-a-first-since-the-conflict-began
