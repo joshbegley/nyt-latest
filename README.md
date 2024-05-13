@@ -38,5 +38,3 @@ https://nytimes.com/interactive/2024/05/13/us/elections/times-siena-poll-likely-
 `Results of polls by The New York Times, The Philadelphia Inquirer and Siena College in Pennsylvania and by The Times and Siena College in Arizona, Georgia, Michigan, Nevada and Wisconsin.`\
 https://nytimes.com/interactive/2024/05/13/us/elections/times-siena-battleground-states-toplines.html
 
-24/05/13/us/elections/times-siena-poll-registered-voter-crosstabs.html
-
