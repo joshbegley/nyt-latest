@@ -1,3 +1,11 @@
+**Israelis Gather at Site of Oct. 7 Festival Attack to Mourn Loved Ones**\
+`People gathered on Israel’s national day of mourning to remember festivalgoers who were killed on Oct. 7 by the Hamas-led assault.`\
+https://nytimes.com/video/world/middleeast/100000009465268/israel-nova-festival-memorial-day.html
+
+**A White-Collar Indictment Shatters a Congressman’s Blue-Collar Image**\
+`Representative Henry Cuellar started from humble origins, but records show he welcomed the trappings of power afforded by his position.`\
+https://nytimes.com/2024/05/13/us/politics/henry-cuellar-indictment.html
+
 **Michael Cohen Was Trump’s Lawyer, Fixer and ‘Designated Thug’**\
 `Mr. Cohen had the amorphous title of executive vice president of the Trump Organization and “special counsel” to Donald J. Trump.`\
 https://nytimes.com/2024/05/13/nyregion/michael-cohen-trump-duties.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/13/us/politics/gallego-arizona-senate-ads.html
 **Protesters disrupt Israel’s day of mourning, highlighting wartime divisions.**\
 `By Patrick Kingsley and Myra Noveck`\
 https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah/protesters-disrupt-israels-day-of-mourning-highlighting-wartime-divisions
-
-**U.K. Police Charge 3 Men With Aiding Hong Kong Intelligence Service**\
-`The three were arrested under Britain’s National Security Act and will appear in court on Monday, the police said. Eight other people detained in the case have been released.`\
-https://nytimes.com/2024/05/13/world/europe/uk-hong-kong-intelligence-arrests.html
-
-**An Inflation Test Looms Over the Economy and the Election**\
-`The pivotal Consumer Price Index report is set to be published on Wednesday as the window for interest-rate cuts before November is closing.`\
-https://nytimes.com/2024/05/13/business/dealbook/cpi-inflation-fed-interest-rates.html
 
