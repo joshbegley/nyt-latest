@@ -1,3 +1,7 @@
+**Protesters disrupt Israel’s day of mourning, highlighting wartime divisions.**\
+`By Patrick Kingsley and Myra Noveck`\
+https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah/protesters-disrupt-israels-day-of-mourning-highlighting-wartime-divisions
+
 **U.K. Police Charge 3 Men With Aiding Hong Kong Intelligence Service**\
 `The three were arrested under Britain’s National Security Act and will appear in court on Monday, the police said. Eight other people detained in the case have been released.`\
 https://nytimes.com/2024/05/13/world/europe/uk-hong-kong-intelligence-arrests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/13/podcasts/the-daily/biden-china-vehicles.html
 **The Solar Storm Fried GPS Systems Used by Some Farmers, Stalling Planting**\
 `The storm interfered with navigational systems used in tractors and other farming equipment, leaving some farmers temporarily unable to plant their crops.`\
 https://nytimes.com/2024/05/13/us/solar-storm-tractor-break-nebraska.html
-
-**Minnesota and Wisconsin See Air Quality Warnings From Canadian Wildfires**\
-`Smoke from wildfires drifted south over the weekend.`\
-https://nytimes.com/2024/05/13/us/wildfire-smoke-mn-wi-air-quality.html
 
