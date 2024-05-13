@@ -1,3 +1,7 @@
+**Tuesday Briefing: The Prosecution’s Star Witness at the Trump Trial**\
+`Also, Vladimir Putin’s new defense minister.`\
+https://nytimes.com/2024/05/13/world/asia/trump-cohen-putin-shoigu-asia.html
+
 **Michael Cohen’s Riveting Day in Court**\
 `The prosecution’s star witness testified that Trump ordered him to “just do it” and pay Stormy Daniels.`\
 https://nytimes.com/2024/05/13/us/politics/trump-trial-michael-cohen-testimony.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/07/opinion/thepoint/cohen-trump-trial-testimony
 **Play-by-Play and Drawings on an iPad: How Cable TV Covers a TV-Less Trial**\
 `With no cameras recording Donald Trump’s criminal trial, anchors and producers are improvising to animate dramatic moments like Michael Cohen’s testimony.`\
 https://nytimes.com/2024/05/13/business/media/trump-trial-media-tv-coverage.html
-
-**Storms Pummel Mumbai, Killing at Least 8**\
-`Heavy rains and high winds ripped through the financial capital of India, toppling a billboard onto a crowd of people seeking shelter.`\
-https://nytimes.com/2024/05/13/world/asia/mumbai-india-storm-deaths.html
 
