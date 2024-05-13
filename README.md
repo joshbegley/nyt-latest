@@ -1,3 +1,7 @@
+**China Is Raising Bullet Train Fares as Debts and Costs Balloon**\
+`The rare move by operators of the national rail network comes as part of a broader push in China to stem losses at subsidized public services.`\
+https://nytimes.com/2024/05/13/business/china-bullet-trains-ticket-prices.html
+
 **Steve Buscemi Is Punched in Random Manhattan Attack**\
 `The actor, who starred in “Boardwalk Empire,” was assaulted by a stranger on Wednesday morning. He was treated at Bellevue Hospital.`\
 https://nytimes.com/2024/05/12/nyregion/steve-buscemi-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/12/us/college-campus-protests/emerson-college-g
 **Monday Briefing: Russia Pushes Into Northern Ukraine**\
 `Also, fighting is raging in northern Gaza.`\
 https://nytimes.com/2024/05/12/world/asia/russia-kharkiv-israel-gaza-asia.html
-
-**Putin Replaces Defense Minister in Rare Cabinet Shake-up**\
-`Mr. Putin shifted Sergei Shoigu to run the security council, and nominated an economist to run the defense ministry.`\
-https://nytimes.com/2024/05/12/world/europe/russia-putin-cabinet-war-shoigu.html
 
