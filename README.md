@@ -31,7 +31,7 @@ https://nytimes.com/live/2024/05/12/us/college-campus-protests/pomona-college-gr
 https://nytimes.com/2024/05/13/world/europe/opera-rome-music-education.html
 
 **China Is Raising Bullet Train Fares as Debts and Costs Balloon**\
-`The rare move by operators of the national rail network comes as part of a broader push in China to stem losses at subsidized public services.`\
+`The politically fraught move comes as part of a broader push in China to stem losses at subsidized public services.`\
 https://nytimes.com/2024/05/13/business/china-bullet-trains-ticket-prices.html
 
 **Steve Buscemi Is Punched in Random Manhattan Attack**\
