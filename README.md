@@ -1,3 +1,7 @@
+**Robert Menendez’s Trial Is Set to Begin, With a Sprawling Web of Charges**\
+`Senator Robert Menendez of New Jersey is accused of participating in an international bribery scheme involving gold bars, cash and a Mercedes-Benz.`\
+https://nytimes.com/2024/05/13/nyregion/jury-selection-menendez-trial.html
+
 **Word of the Day: bazaar**\
 `This word has appeared in 103 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/05/13/learning/word-of-the-day-bazaar.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/13/world/europe/opera-rome-music-education.html
 **China Is Raising Bullet Train Fares as Debts and Costs Balloon**\
 `The politically fraught move comes as part of a broader push in China to stem losses at subsidized public services.`\
 https://nytimes.com/2024/05/13/business/china-bullet-trains-ticket-prices.html
-
-**Steve Buscemi Is Punched in Random Manhattan Attack**\
-`The actor, who starred in “Boardwalk Empire,” was assaulted by a stranger on Wednesday morning. He was treated at Bellevue Hospital.`\
-https://nytimes.com/2024/05/12/nyregion/steve-buscemi-attack.html
 
