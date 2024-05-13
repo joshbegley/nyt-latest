@@ -1,3 +1,7 @@
+**Your Money: A Boot Camp for 20-Somethings**\
+`Advice, explainers and exercises on taking advantage of job benefits, creating a budget, paying off debt and thinking about your future.`\
+https://nytimes.com/2024/05/13/your-money/your-money-a-boot-camp-for-20-somethings.html
+
 **Tony Awards 2024: Print Your Ballot!**\
 `Now it’s your turn to predict which nominees will win.`\
 https://nytimes.com/interactive/2024/05/13/theater/2024-tonys-ballot.html

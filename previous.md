@@ -1,3 +1,7 @@
+**Your Money: A Boot Camp for 20-Somethings**\
+`Advice, explainers and exercises on taking advantage of job benefits, creating a budget, paying off debt and thinking about your future.`\
+https://nytimes.com/2024/05/13/your-money/your-money-a-boot-camp-for-20-somethings.html
+
 **Tony Awards 2024: Print Your Ballot!**\
 `Now it’s your turn to predict which nominees will win.`\
 https://nytimes.com/interactive/2024/05/13/theater/2024-tonys-ballot.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/13/us/army-officer-resigns-gaza-israel.html
 **Cloud Brightening Study in California Is Halted by Local Officials**\
 `Researchers had been testing a sprayer that could one day be used to push a salty mist skyward, cooling the Earth. Officials stopped the work, citing health questions.`\
 https://nytimes.com/2024/05/13/climate/cloud-brightening-geoengineering.html
-
-**Melinda French Gates to Resign From Gates Foundation**\
-`The Bill and Melinda Gates Foundation is recognized as one of the most powerful organizations in global philanthropy, in fields like public health and early-childhood education.`\
-https://nytimes.com/2024/05/13/business/melinda-gates-resigns-gates-foundation.html
 
