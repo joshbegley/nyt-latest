@@ -1,3 +1,11 @@
+**An Inflation Test Looms Over the Economy and the Election**\
+`The pivotal Consumer Price Index report is set to be published on Wednesday as the window for interest-rate cuts before November is closing.`\
+https://nytimes.com/2024/05/13/business/dealbook/cpi-inflation-fed-interest-rates.html
+
+**Chinese Woman Jailed for Reporting on Covid Set to be Freed**\
+`Yet Zhang Zhan’s supporters and human rights activists who had followed her case said they could not reach her or her family members.`\
+https://nytimes.com/2024/05/13/world/asia/china-covid-citizen-journalist-zhang.html
+
 **Israelis Visit Nova Festival Site for National Day of Mourning**\
 `“Our hearts are broken,” one mourner said at the site of a rave for peace and love where hundreds were killed in the Hamas-led attack on Oct. 7.`\
 https://nytimes.com/2024/05/13/world/middleeast/israel-oct-7-nova-festival-memorial-day.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/13/us/wildfire-smoke-mn-wi-air-quality.html
 **Sex, Drugs and Economics: The Double Life of a Conservative Gadfly**\
 `The professor and social commentator Glenn Loury opens up about his vices in a candid new memoir.`\
 https://nytimes.com/2024/05/13/books/review/glenn-loury-late-admissions.html
-
-**What Activities or Hobbies Do You Do With Your Family?**\
-`Do you cook, play games or watch sports? How has spending this time together shaped your relationship?`\
-https://nytimes.com/2024/05/13/learning/what-activities-or-hobbies-do-you-do-with-your-family.html
-
-**Battleground Polling Shows Ticket- Splitting Pattern**\
-`In states where Biden trails among likely voters, four Democratic Senate candidates are leading.`\
-https://nytimes.com/2024/05/13/upshot/polling-biden-battlegrounds-senate.html
 
