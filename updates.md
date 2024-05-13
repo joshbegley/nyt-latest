@@ -1,3 +1,7 @@
+**University of Wisconsin-Milwaukee and Protesters Agree to End Encampment**\
+`As part of the deal, the pro-Palestinian encampment will be down by Tuesday, and the university pledged to join calls for a cease-fire in Gaza, school officials said.`\
+https://nytimes.com/2024/05/12/us/university-of-wisconsin-milwaukee-and-protesters-reach-a-deal-to-end-an-encampment.html
+
 **China Is Raising Bullet Train Fares as Debts and Costs Balloon**\
 `The politically fraught move comes as part of a broader push in China to stem losses at subsidized public services.`\
 https://nytimes.com/2024/05/13/business/china-bullet-trains-ticket-prices.html
