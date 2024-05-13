@@ -1,4 +1,4 @@
-**Your Money: A Boot Camp for 20-Somethings**\
+**A Boot Camp for 20-Somethings**\
 `Advice, explainers and exercises on taking advantage of job benefits, creating a budget, paying off debt and thinking about your future.`\
 https://nytimes.com/2024/05/13/your-money/your-money-a-boot-camp-for-20-somethings.html
 
