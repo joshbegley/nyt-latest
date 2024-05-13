@@ -1,40 +1,40 @@
-**Violent Unrest Over Economic Strife Erupts in Pakistan’s Kashmir Region**\
-`“I have never seen such a large-scale uprising” in the restive region, a teacher at a local university said.`\
-https://nytimes.com/2024/05/13/world/asia/pakistan-kashmir-protests.html
+**How to Make Stuffed Pasta at Home**\
+`The chef Stefano Secchi demonstrates how to make pansoti, a belly-shaped pasta from the Liguria region of Italy.`\
+https://nytimes.com/video/t-magazine/100000009445924/how-to-make-stuffed-pasta-at-home.html
 
-**13mideast-crisis**\
-`Israel Observes a Solemn Memorial Day`\
-https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah
+**How a ‘Strange,’ ‘Evil’ Fruit Came to Define Italy’s Cuisine**\
+`When tomatoes first arrived in Europe 500 years ago, they were considered dangerous. Then in Naples they gave rise to pasta al pomodoro.`\
+https://nytimes.com/2024/05/13/t-magazine/tomato-naples-italy-pasta-al-pomodoro.html
 
-**Wisconsin Cross-Tabs: May 2024 Times/Siena Poll**\
-`Results of a poll by The New York Times and Siena College in Wisconsin from April 28 to May 9, 2024.`\
-https://nytimes.com/interactive/2024/05/13/us/elections/times-siena-poll-wisconsin-crosstabs.html
+**An Issue All About Pasta and What It Means to Eat It**\
+`The dish, in all its many forms, has become synonymous with Italy’s culture.`\
+https://nytimes.com/2024/05/13/t-magazine/italy-cuisine-pasta.html
 
-**Nevada Cross-Tabs: May 2024 Times/Siena Poll**\
-`Results of a poll by The New York Times and Siena College in Nevada from April 28 to May 9, 2024.`\
-https://nytimes.com/interactive/2024/05/13/us/elections/times-siena-poll-nevada-crosstabs.html
+**What Is Italy’s Most Prized Stuffed Pasta?**\
+`Each region could well argue for its own, but one may have the strongest case.`\
+https://nytimes.com/2024/05/13/t-magazine/stuffed-pasta-piedmont-italy-agnolotti-del-plin.html
 
-**Michigan Cross-Tabs: May 2024 Times/Siena Poll**\
-`Results of a poll by The New York Times and Siena College in Michigan from April 28 to May 9, 2024.`\
-https://nytimes.com/interactive/2024/05/13/us/elections/times-siena-poll-michigan-crosstabs.html
+**There’s No Meal Better (or Longer) Than an Italian Sunday Lunch**\
+`The languorous feast isn’t the mainstay of the country’s culture that it once was. We talked to five creative people keeping this beloved tradition alive.`\
+https://nytimes.com/2024/05/13/t-magazine/italy-sunday-lunch.html
 
-**Cross-Tabs: May 2024 Times/Inquirer/Siena Poll of Pennsylvania**\
-`Results of a poll by The New York Times, The Philadelphia Inquirer and Siena College in Pennsylvania from April 28 to May 7, 2024.`\
-https://nytimes.com/interactive/2024/05/13/us/elections/times-siena-poll-pennsylvania-crosstabs.html
+**What We Didn’t Learn From a Space Shuttle Disaster**\
+`As recounted in Adam Higginbotham’s “Challenger,” the 1986 tragedy that riveted a nation was a preventable lesson in hubris and human error.`\
+https://nytimes.com/2024/05/13/books/review/adam-higginbotham-challenger.html
 
-**Georgia Cross-Tabs: May 2024 Times/Siena Poll**\
-`Results of a poll by The New York Times and Siena College in Georgia from April 28 to May 9, 2024.`\
-https://nytimes.com/interactive/2024/05/13/us/elections/times-siena-poll-georgia-crosstabs.html
+**U.S. Awards $120 Million to Chipmaker to Expand Facility in Minnesota**\
+`The grant is the latest federal award in a series stemming from the CHIPS and Science Act meant to ramp up domestic production of vital semiconductors.`\
+https://nytimes.com/2024/05/13/us/politics/chips-polar-semiconductor-biden.html
 
-**Arizona Cross-Tabs: May 2024 Times/Siena Poll**\
-`Results of a poll by The New York Times and Siena College in Arizona from April 28 to May 9, 2024.`\
-https://nytimes.com/interactive/2024/05/13/us/elections/times-siena-poll-arizona-crosstabs.html
+**Bribing the Navy Is Easier (and More Entertaining) Than You Might Think**\
+`In “Fat Leonard,” Craig Whitlock investigates one of the worst corruption scandals in U.S. military history.`\
+https://nytimes.com/2024/05/13/books/review/fat-leonard-craig-whitlock.html
 
-**Likely Electorate Cross-Tabs: May 2024 Times/Siena Poll of the Presidential Battlegrounds**\
-`Donald Trump leads Joe Biden in five of six states polled by The New York Times, The Philadelphia Inquirer and Siena College from April 28 to May 9, 2024.`\
-https://nytimes.com/interactive/2024/05/13/us/elections/times-siena-poll-likely-electorate-crosstabs.html
+**On Instagram, a Jewelry Ad Draws Solicitations for Sex With a 5-Year-Old**\
+`Advertisers of merchandise for young girls find that adult men can become their unintended audience. In a test ad, convicted sex offenders inquired about a child model.`\
+https://nytimes.com/2024/05/13/us/instagram-child-safety.html
 
-**Toplines: May 2024 Times/Siena Poll of the Presidential Battlegrounds**\
-`Results of polls by The New York Times, The Philadelphia Inquirer and Siena College in Pennsylvania and by The Times and Siena College in Arizona, Georgia, Michigan, Nevada and Wisconsin.`\
-https://nytimes.com/interactive/2024/05/13/us/elections/times-siena-battleground-states-toplines.html
+**On the World Stage, Trump Likes to Occupy Two Places at Once**\
+`His approach to foreign policy can be pragmatic or unpredictable — or both at the same time.`\
+https://nytimes.com/2024/05/13/opinion/trump-foreign-policy.html
 
