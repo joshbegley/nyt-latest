@@ -1,3 +1,7 @@
+**Do You Have a Question About Money? Ask Us.**\
+`Feel free to ask us anything — big or small.`\
+https://nytimes.com/2024/05/13/business/money-questions.html
+
 **Does Mindfulness Training Lead to Better Mental Health?**\
 `Responses to an article in Science Times. Also: Teaching about hate; the International Criminal Court and the Israel-Gaza war; nonpartisan House speakers.`\
 https://nytimes.com/2024/05/13/opinion/mindfulness-mental-health.html
