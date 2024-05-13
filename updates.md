@@ -1,3 +1,5 @@
+
+
 **How an Obscure Agency Became a Linchpin for Climate Policy**\
 `The Federal Energy Regulatory Commission voted 2-to-1 in a partisan split on Monday on a new rule that could help speed up wind and solar energy.`\
 https://nytimes.com/2024/05/13/climate/ferc-climate-renewable-energy.html
