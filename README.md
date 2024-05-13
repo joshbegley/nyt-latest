@@ -1,3 +1,7 @@
+**Christopher Edley Jr., Civil Rights Expert Heard by Presidents, Dies at 71**\
+`He pivoted between serving as an adviser to the Carter, Clinton and Obama White Houses and teaching at Harvard and Berkeley, where he was the law school dean.`\
+https://nytimes.com/2024/05/13/obituaries/christopher-edley-jr-dead.html
+
 **An international U.N. worker was killed in Rafah, a first since the conflict began.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah/an-international-un-worker-was-killed-in-rafah-a-first-since-the-conflict-began
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah/an-aid-con
 **White House Says Israel Still Has Provided No Plan to Protect Rafah Civilians**\
 `The national security adviser, Jake Sullivan, also said Israel had yet to connect its military operations to a plan for the future governance of Gaza.`\
 https://nytimes.com/2024/05/13/world/middleeast/white-house-israel-rafah.html
-
-**Smoke-Filled Skies Leave Midwest Fearing Another Season of Polluted Air**\
-`Smoke from wildfires in Canada draped Minnesota and parts of Wisconsin on Sunday and Monday. But experts say the air quality in the nation’s middle is unlikely to be as bad as last summer.`\
-https://nytimes.com/2024/05/13/us/smoke-midwest-canada-wildfires.html
 
