@@ -1,3 +1,7 @@
+**Trump Stays Calm in Court. His Emails Tell a Different Story.**\
+`Donald Trump’s presidential campaign has sent supporters a steady stream of fund-raising solicitations featuring exaggerated portrayals of his days in court.`\
+https://nytimes.com/2024/05/13/us/politics/trump-court-fundraising-emails.html
+
 **George Clooney to Make Broadway Debut in ‘Good Night, and Good Luck’**\
 `A stage adaptation of the film is planned for next spring, with Clooney playing the journalist Edward R. Murrow.`\
 https://nytimes.com/2024/05/13/theater/george-clooney-broadway.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/13/health/elder-care-family-mediators.html
 **Exclusion of Jewish Jurors Prompts Review of California Death Row Cases**\
 `Dozens of cases are under review after notes from jury selection in a 1990s murder case indicated that prosecutors worked to exclude Jews.`\
 https://nytimes.com/2024/05/13/us/california-oakland-death-penalty-jewish-jurors.html
-
-**A High Stakes Obstacle Course, for Dogs**\
-`A look behind the scenes at the Westminster Dog Show’s agility competition.`\
-https://nytimes.com/card/2024/05/13/style/westminster-dog-show-agility-championship
 
