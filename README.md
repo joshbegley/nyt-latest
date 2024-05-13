@@ -1,3 +1,7 @@
+**Michael Cohen’s Riveting Day in Court**\
+`The prosecution’s star witness testified that Trump ordered him to “just do it” and pay Stormy Daniels.`\
+https://nytimes.com/2024/05/13/us/politics/trump-trial-michael-cohen-testimony.html
+
 **Biden Promised Normal. Do Voters Want His Version of It?**\
 `Many voters in a new poll say the country’s political and economic systems need major changes or to be completely torn down. The Biden campaign says it’s not satisfied with business as usual, either.`\
 https://nytimes.com/2024/05/13/us/politics/biden-polls-normalcy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/13/business/media/trump-trial-media-tv-coverage.html
 **Storms Pummel Mumbai, Killing at Least 8**\
 `Heavy rains and high winds ripped through the financial capital of India, toppling a billboard onto a crowd of people seeking shelter.`\
 https://nytimes.com/2024/05/13/world/asia/mumbai-india-storm-deaths.html
-
-**Art World Luminaries Party Upstate With Julianne Moore, Chloë Sevigny and Roger Goodell**\
-`A springtime benefit and 50th anniversary celebration at Dia Beacon in New York’s Hudson Valley brought together an array of cultural figures.`\
-https://nytimes.com/2024/05/13/style/dia-beacon-spring-benefit-julianne-moore-chloe-sevigny.html
 
