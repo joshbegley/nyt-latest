@@ -1,3 +1,11 @@
+**Cold Lava, Floods Kill 37 in Indonesia**\
+`Heavy rain on the island of Sumatra caused torrents of rock and ash to flow down a volcano and into nearby towns. At least 17 people were still missing.`\
+https://nytimes.com/2024/05/13/world/asia/cold-lava-indonesia.html
+
+**What’s on TV This Week: ‘Mary & George’ and Lots of ‘Law & Order’**\
+`The Starz show starring Nicholas Galitzine and Julianne Moore wraps up. Three versions of the crime procedural air finales.`\
+https://nytimes.com/2024/05/13/arts/television/whats-on-tv-this-week-mary-george-and-lots-of-law-order.html
+
 **What I Am Listening for in Michael Cohen’s Testimony**\
 `A flawed insider is called to provide detailed and direct evidence to the jury of the defendant’s alleged guilt.`\
 https://nytimes.com/2024/05/13/opinion/michael-cohen-trump-trial.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/12/us/donald-trump-hannibal-lecter.html
 **Fighting Flares Anew in Gaza as Hamas Reconstitutes**\
 `The U.S. secretary of state warned that Israel’s victories over Hamas may not be “sustainable.”`\
 https://nytimes.com/2024/05/12/world/middleeast/israel-hamas-gaza.html
-
-**Susan Backlinie, Swimmer Who Was First Victim in ‘Jaws,’ Dies at 77**\
-`Ms. Backlinie, a stunt woman, appeared in the terrifying opening scene of the 1975 blockbuster in which a great white shark attacks.`\
-https://nytimes.com/2024/05/12/arts/television/susan-backlinie-dead-jaws.html
-
-**Spain’s Socialists Win Catalan Vote Dominated by Amnesty for Separatists**\
-`For the first time in over a decade, the regional government in Catalonia may be led by a party opposed to independence.`\
-https://nytimes.com/2024/05/12/world/europe/spain-catalan-election.html
 
