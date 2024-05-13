@@ -1,3 +1,7 @@
+**An international U.N. worker was killed in Rafah, a first since the conflict began.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah/an-international-un-worker-was-killed-in-rafah-a-first-since-the-conflict-began
+
 **Can This Never Trumper Find a Future in the Republican Party?**\
 `Hogan’s Senate run will test whether there is a path forward for a Trump critic in 2024.`\
 https://nytimes.com/2024/05/13/us/politics/larry-hogan-maryland.html
