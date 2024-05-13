@@ -1,3 +1,11 @@
+**Cold Lava, Floods Kill 37 in Indonesia**\
+`Heavy rain on the island of Sumatra caused torrents of rock and ash to flow down a volcano and into nearby towns. At least 17 people were still missing.`\
+https://nytimes.com/2024/05/13/world/asia/cold-lava-indonesia.html
+
+**What’s on TV This Week: ‘Mary & George’ and Lots of ‘Law & Order’**\
+`The Starz show starring Nicholas Galitzine and Julianne Moore wraps up. Three versions of the crime procedural air finales.`\
+https://nytimes.com/2024/05/13/arts/television/whats-on-tv-this-week-mary-george-and-lots-of-law-order.html
+
 **What I Am Listening for in Michael Cohen’s Testimony**\
 `A flawed insider is called to provide detailed and direct evidence to the jury of the defendant’s alleged guilt.`\
 https://nytimes.com/2024/05/13/opinion/michael-cohen-trump-trial.html
