@@ -1,3 +1,7 @@
+**White House says Israel still has not provided a plan for protecting civilians in Rafah.**\
+`By David E. Sanger and Zach Montague`\
+https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah/white-house-says-israel-still-has-not-provided-a-plan-for-protecting-civilians-in-rafah
+
 **Smoke-Filled Skies Leave Midwest Fearing Another Season of Polluted Air**\
 `Smoke from wildfires in Canada draped Minnesota and parts of Wisconsin on Sunday and Monday. But experts say the air quality in the nation’s middle is unlikely to be as bad as last summer.`\
 https://nytimes.com/2024/05/13/us/smoke-midwest-canada-wildfires.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/13/style/westminster-dog-show-2024-photos.html
 **Republicans plan a symbolic House vote ordering a reversal of Biden’s pause on arms to Israel.**\
 `By Annie Karni`\
 https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah/republicans-plan-a-symbolic-house-vote-ordering-a-reversal-of-bidens-pause-on-arms-to-israel
-
-**No Jurors Seated on First Day of Menendez Corruption Trial**\
-`Senator Robert Menendez is charged with accepting hundreds of thousands of dollars in cash and gold bars in exchange for political favors at home and abroad.`\
-https://nytimes.com/2024/05/13/nyregion/bob-menendez-corruption-trial-jury-selection.html
 
