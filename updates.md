@@ -1,3 +1,7 @@
+**Melinda Gates to Resign From Gates Foundation**\
+`The Bill and Melinda Gates Foundation is recognized as one of the most powerful organizations in global philanthropy, in fields like global health and early-childhood education.`\
+https://nytimes.com/2024/05/13/business/melinda-gates-resigns-gates-foundation.html
+
 **The Battle for The Streets of New York**\
 `Now more than ever, the city is being forced to rethink how its thoroughfares are used.`\
 https://nytimes.com/interactive/2024/05/13/nyregion/nyc-traffic-congestion-pricing-parking.html

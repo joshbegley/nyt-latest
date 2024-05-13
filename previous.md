@@ -1,3 +1,7 @@
+**Melinda Gates to Resign From Gates Foundation**\
+`The Bill and Melinda Gates Foundation is recognized as one of the most powerful organizations in global philanthropy, in fields like global health and early-childhood education.`\
+https://nytimes.com/2024/05/13/business/melinda-gates-resigns-gates-foundation.html
+
 **The Battle for The Streets of New York**\
 `Now more than ever, the city is being forced to rethink how its thoroughfares are used.`\
 https://nytimes.com/interactive/2024/05/13/nyregion/nyc-traffic-congestion-pricing-parking.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/13/opinion/mindfulness-mental-health.html
 **A look at where fierce fighting continues in Gaza.**\
 `By Liam Stack and Lauren Leatherby`\
 https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah/a-look-at-where-fierce-fighting-continues-in-gaza
-
-**Hilary Cass Says U.S. Doctors Are ‘Out of Date’ on Youth Gender Medicine**\
-`Dr. Hilary Cass published a landmark report that led to restrictions on youth gender care in Britain. U.S. health groups said it did not change their support of the care.`\
-https://nytimes.com/2024/05/13/health/hilary-cass-transgender-youth-puberty-blockers.html
 
