@@ -1,3 +1,7 @@
+**Does Mindfulness Training Lead to Better Mental Health?**\
+`Responses to an article in Science Times. Also: Teaching about hate; the International Criminal Court and the Israel-Gaza war; nonpartisan House speakers.`\
+https://nytimes.com/2024/05/13/opinion/mindfulness-mental-health.html
+
 **A look at where fierce fighting continues in Gaza.**\
 `By Liam Stack and Lauren Leatherby`\
 https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah/a-look-at-where-fierce-fighting-continues-in-gaza
