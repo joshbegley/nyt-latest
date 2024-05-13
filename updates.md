@@ -1,3 +1,7 @@
+**Melinda French Gates to Resign From Gates Foundation**\
+`The Bill and Melinda Gates Foundation is recognized as one of the most powerful organizations in global philanthropy, in fields like public health and early-childhood education.`\
+https://nytimes.com/2024/05/13/business/melinda-gates-resigns-gates-foundation.html
+
 **Kendrick Lamar Rides a Rap Beef All the Way to No. 1**\
 `On the Billboard album chart, Dua Lipa’s heavily promoted “Radical Optimism” opened at No. 2, held off by the third week of Taylor Swift’s “Tortured Poets.”`\
 https://nytimes.com/2024/05/13/arts/music/taylor-swift-kendrick-lamar-dua-lipa-billboard-charts.html
