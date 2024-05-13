@@ -1,3 +1,7 @@
+**The Battle for The Streets of New York**\
+`Now more than ever, the city is being forced to rethink how its thoroughfares are used.`\
+https://nytimes.com/interactive/2024/05/13/nyregion/nyc-traffic-congestion-pricing-parking.html
+
 **Female Basketball Stars in the Skims Spotlight**\
 `Kim Kardashian’s shapewear brand is moving more aggressively into sports.`\
 https://nytimes.com/2024/05/13/style/skims-kim-kardashian-cameron-brink-candace-parker.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah/a-look-at-
 **Hilary Cass Says U.S. Doctors Are ‘Out of Date’ on Youth Gender Medicine**\
 `Dr. Hilary Cass published a landmark report that led to restrictions on youth gender care in Britain. U.S. health groups said it did not change their support of the care.`\
 https://nytimes.com/2024/05/13/health/hilary-cass-transgender-youth-puberty-blockers.html
-
-**How Ozempic Is Changing Diabetes Treatment**\
-`Millions of patients rely on insulin. But with new drugs, some have been able to lower their doses or stop taking it altogether.`\
-https://nytimes.com/2024/05/13/well/live/insulin-ozempic-diabetes.html
 

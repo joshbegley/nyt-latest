@@ -1,3 +1,7 @@
+**The Battle for The Streets of New York**\
+`Now more than ever, the city is being forced to rethink how its thoroughfares are used.`\
+https://nytimes.com/interactive/2024/05/13/nyregion/nyc-traffic-congestion-pricing-parking.html
+
 **Female Basketball Stars in the Skims Spotlight**\
 `Kim Kardashian’s shapewear brand is moving more aggressively into sports.`\
 https://nytimes.com/2024/05/13/style/skims-kim-kardashian-cameron-brink-candace-parker.html
