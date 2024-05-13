@@ -1,3 +1,7 @@
+**Israelis Visit Nova Festival Site for National Day of Mourning**\
+`“Our hearts are broken,” one mourner said at the site of a rave for peace and love where hundreds were killed in the Hamas-led attack on Oct. 7.`\
+https://nytimes.com/2024/05/13/world/middleeast/israel-oct-7-nova-festival-memorial-day.html
+
 **A New Rent-Versus-Buy Calculator**\
 `Does it make sense for you to buy a home right now?`\
 https://nytimes.com/2024/05/13/briefing/a-new-rent-versus-buy-calculator.html

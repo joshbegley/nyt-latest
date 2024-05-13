@@ -1,3 +1,7 @@
+**Israelis Visit Nova Festival Site for National Day of Mourning**\
+`“Our hearts are broken,” one mourner said at the site of a rave for peace and love where hundreds were killed in the Hamas-led attack on Oct. 7.`\
+https://nytimes.com/2024/05/13/world/middleeast/israel-oct-7-nova-festival-memorial-day.html
+
 **A New Rent-Versus-Buy Calculator**\
 `Does it make sense for you to buy a home right now?`\
 https://nytimes.com/2024/05/13/briefing/a-new-rent-versus-buy-calculator.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/13/learning/what-activities-or-hobbies-do-you-do-wit
 **Battleground Polling Shows Ticket- Splitting Pattern**\
 `In states where Biden trails among likely voters, four Democratic Senate candidates are leading.`\
 https://nytimes.com/2024/05/13/upshot/polling-biden-battlegrounds-senate.html
-
-**Will Michael Cohen Throw Cold Water on Trump’s Polling Lead?**\
-`If his testimony leads to a conviction, it could prove very costly to Trump’s chances.`\
-https://nytimes.com/live/2024/05/07/opinion/thepoint/trump-cohen-biden-tipsheet
 
