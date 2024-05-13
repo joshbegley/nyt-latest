@@ -1,3 +1,7 @@
+**At Westminster, the Dogs Are in Charge**\
+`A look at the action in Queens as the annual dog show takes over the Billie Jean King National Tennis Center.`\
+https://nytimes.com/2024/05/13/style/westminster-dog-show-2024-photos.html
+
 **Republicans plan a symbolic House vote ordering a reversal of Biden’s pause on arms to Israel.**\
 `By Annie Karni`\
 https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah/republicans-plan-a-symbolic-house-vote-ordering-a-reversal-of-bidens-pause-on-arms-to-israel
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/13/style/dia-beacon-spring-benefit-julianne-moore-ch
 **How an Obscure Agency Became a Linchpin for Climate Policy**\
 `The Federal Energy Regulatory Commission voted 2-to-1 in a partisan split on Monday on a new rule that could help speed up wind and solar energy.`\
 https://nytimes.com/2024/05/13/climate/ferc-climate-renewable-energy.html
-
-**New Rules to Overhaul Electric Grids Could Boost Wind and Solar Power**\
-`The Federal Energy Regulatory Commission approved the biggest changes in more than a decade to the way U.S. power lines are planned and funded.`\
-https://nytimes.com/2024/05/13/climate/electric-grid-overhaul-ferc.html
 
