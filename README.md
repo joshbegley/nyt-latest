@@ -1,3 +1,7 @@
+**Art World Luminaries Party Upstate With Julianne Moore, Chloë Sevigny and Roger Goodell**\
+`A springtime benefit and 50th anniversary celebration at Dia Beacon in New York’s Hudson Valley brought together an array of cultural figures.`\
+https://nytimes.com/2024/05/13/style/dia-beacon-spring-benefit-julianne-moore-chloe-sevigny.html
+
 **How an Obscure Agency Became a Linchpin for Climate Policy**\
 `The Federal Energy Regulatory Commission voted 2 to 1 in a partisan split on Monday on a new rule that could help speed up wind and solar energy.`\
 https://nytimes.com/2024/05/13/climate/ferc-climate-renewable-energy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/13/your-money/your-money-a-boot-camp-for-20-somethin
 **Tony Awards 2024: Print Your Ballot!**\
 `Now it’s your turn to predict which nominees will win.`\
 https://nytimes.com/interactive/2024/05/13/theater/2024-tonys-ballot.html
-
-**Finnish Lawmaker Who Fired Gun Outside Bar Is Expelled From Party**\
-`The lawmaker, Timo Vornanen, from the right-wing nationalist Finns Party is the latest party figure to come under scrutiny. He said he would continue in Parliament.`\
-https://nytimes.com/2024/05/13/world/europe/finland-mp-expelled-timo-vornanen.html
 
