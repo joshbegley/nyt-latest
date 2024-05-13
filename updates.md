@@ -1,3 +1,7 @@
+**How an Obscure Agency Became a Linchpin for Climate Policy**\
+`The Federal Energy Regulatory Commission voted 2-to-1 in a partisan split on Monday on a new rule that could help speed up wind and solar energy.`\
+https://nytimes.com/2024/05/13/climate/ferc-climate-renewable-energy.html
+
 **Worry About Women Voters Drove Trump’s Hush-Money Decisions, Cohen Says**\
 `“Guys may think it’s cool, but this is going to be a disaster for the campaign,” Mr. Trump said, according to testimony.`\
 https://nytimes.com/2024/05/13/nyregion/trump-trial-women-voters.html
