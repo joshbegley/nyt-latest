@@ -1,3 +1,15 @@
+**They’re Members of an Elite Squad: Prime-Time Drama Super Fans**\
+`Shows like “Law & Order: SVU,” “NCIS” and “Grey’s Anatomy” have kept fans hooked for 20 seasons or more. How do they do it?`\
+https://nytimes.com/2024/05/13/arts/television/svu-greys-anatomy-ncis-fans.html
+
+**‘The Bachelor’ Promises True Love. So Why Does It Rarely Work Out?**\
+`Of the 40 combined seasons of “The Bachelor” and “The Bachelorette,” only eight couples have stayed together. We spoke to former contestants and leads about roadblocks to a happy ending.`\
+https://nytimes.com/2024/05/13/arts/television/bachelor-bachelorette-breakups-reality-tv.html
+
+**Why Biden Is Likely to Dismiss the Latest Bad Poll for Him**\
+`The president and his aides have tended to dismiss polls as broken, and to argue that Election Day remains far away.`\
+https://nytimes.com/2024/05/13/us/politics/biden-poll.html
+
 **Facing an Endless Barrage, Ukraine’s Air Defenses Are Withering**\
 `As Russia shifts its tactics and Ukraine's ammunition dwindles, more missiles are getting through Ukraine's air defenses.`\
 https://nytimes.com/interactive/2024/05/13/world/europe/ukraine-missile-defenses.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/13/us/politics/henry-cuellar-indictment.html
 **Michael Cohen Was Trump’s Lawyer, Fixer and ‘Designated Thug’**\
 `Mr. Cohen had the amorphous title of executive vice president of the Trump Organization and “special counsel” to Donald J. Trump.`\
 https://nytimes.com/2024/05/13/nyregion/michael-cohen-trump-duties.html
-
-**Can You Find The 13 Book Titles Hidden in This Text?**\
-`A baker’s dozen of sports books — including athlete memoirs, biographies, team histories and a few classics of the form — are tucked away in this very short story. Can you find them all?`\
-https://nytimes.com/interactive/2024/05/13/books/review/sports-books-quiz.html
-
-**Putin’s New War Weapon: An Economist Managing the Military**\
-`In his first public appearance as the newly appointed defense minister, Andrei R. Belousov spoke about veterans’ benefits and overcrowded hospitals rather than a new offensive in Ukraine.`\
-https://nytimes.com/2024/05/13/world/europe/russia-defense-minister-ukraine-belousov.html
-
-**What to Know About Russia’s Offensive in Ukraine’s Northeast**\
-`Moscow’s forces have captured at least nine villages and settlements near Kharkiv in a push that analysts say is intended to stretch Ukrainian troops and divert them from fighting elsewhere.`\
-https://nytimes.com/article/russia-ukraine-kharkiv.html
 

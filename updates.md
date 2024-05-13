@@ -1,3 +1,15 @@
+**They’re Members of an Elite Squad: Prime-Time Drama Super Fans**\
+`Shows like “Law & Order: SVU,” “NCIS” and “Grey’s Anatomy” have kept fans hooked for 20 seasons or more. How do they do it?`\
+https://nytimes.com/2024/05/13/arts/television/svu-greys-anatomy-ncis-fans.html
+
+**‘The Bachelor’ Promises True Love. So Why Does It Rarely Work Out?**\
+`Of the 40 combined seasons of “The Bachelor” and “The Bachelorette,” only eight couples have stayed together. We spoke to former contestants and leads about roadblocks to a happy ending.`\
+https://nytimes.com/2024/05/13/arts/television/bachelor-bachelorette-breakups-reality-tv.html
+
+**Why Biden Is Likely to Dismiss the Latest Bad Poll for Him**\
+`The president and his aides have tended to dismiss polls as broken, and to argue that Election Day remains far away.`\
+https://nytimes.com/2024/05/13/us/politics/biden-poll.html
+
 **Facing an Endless Barrage, Ukraine’s Air Defenses Are Withering**\
 `As Russia shifts its tactics and Ukraine's ammunition dwindles, more missiles are getting through Ukraine's air defenses.`\
 https://nytimes.com/interactive/2024/05/13/world/europe/ukraine-missile-defenses.html
