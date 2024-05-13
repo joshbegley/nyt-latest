@@ -1,3 +1,7 @@
+**China Is Raising Bullet Train Fares as Debts and Costs Balloon**\
+`The politically fraught move comes as part of a broader push in China to stem losses at subsidized public services.`\
+https://nytimes.com/2024/05/13/business/china-bullet-trains-ticket-prices.html
+
 **Word of the Day: bazaar**\
 `This word has appeared in 103 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/05/13/learning/word-of-the-day-bazaar.html
