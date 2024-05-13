@@ -1,40 +1,40 @@
-**Doctors, Not Judges, Should Decide When to Treat Patients Without Their Consent**\
-`Hospitals should.`\
-https://nytimes.com/2024/05/13/opinion/treatment-over-objection-medical-ethics.html
+**Sex, Drugs and Economics: The Double Life of a Conservative Gadfly**\
+`The professor and social commentator Glenn Loury opens up about his vices in a candid new memoir.`\
+https://nytimes.com/2024/05/13/books/review/glenn-loury-late-admissions.html
 
-**Sarah Paulson Dares to Play the People You Love to Hate**\
-`The actress has received a Tony nomination for “Appropriate,” in which she portrays a woman who makes a sport out of verbally eviscerating her family members.`\
-https://nytimes.com/2024/05/13/theater/sarah-paulson-appropriate-broadway.html
+**What Activities or Hobbies Do You Do With Your Family?**\
+`Do you cook, play games or watch sports? How has spending this time together shaped your relationship?`\
+https://nytimes.com/2024/05/13/learning/what-activities-or-hobbies-do-you-do-with-your-family.html
 
-**Electricity Demand Is Surging. Let’s Not Fry the Planet in Response.**\
-`We need utilities to succeed now more than ever before. But the definition of success needs to evolve.`\
-https://nytimes.com/2024/05/13/opinion/electricity-demand-surging.html
+**Battleground Polling Shows Ticket- Splitting Pattern**\
+`In states where Biden trails among likely voters, four Democratic Senate candidates are leading.`\
+https://nytimes.com/2024/05/13/upshot/polling-biden-battlegrounds-senate.html
 
-**Dartmouth’s Leader Called in Police Quickly. The Fallout Was Just as Swift.**\
-`Local law enforcement went in just a couple of hours after a protest encampment went up.`\
-https://nytimes.com/2024/05/13/us/dartmouth-campus-protests-police-beilock.html
+**Will Michael Cohen Throw Cold Water on Trump’s Polling Lead?**\
+`If his testimony leads to a conviction, it could prove very costly to Trump’s chances.`\
+https://nytimes.com/live/2024/05/07/opinion/thepoint/trump-cohen-biden-tipsheet
 
-**$2.2 Million Homes in California**\
-`A shingled bungalow with a guesthouse and a geodesic dome in Topanga, a Victorian-era retreat in Napa and a midcentury-modern home in Berkeley.`\
-https://nytimes.com/2024/05/13/realestate/2-million-dollar-homes-california.html
+**Hold Onto Your Hats, America**\
+`The turmoil sweeping the world shows no sign of abeyance.`\
+https://nytimes.com/2024/05/13/opinion/college-graduation-commencement.html
 
-**A $10,000 Investment in Some Children’s Futures**\
-`Harlem Children’s Zone, which runs charter schools, is raising money to give a financial head start to its students, if they meet certain conditions.`\
-https://nytimes.com/2024/05/13/nyregion/a-10000-investment-in-some-childrens-futures.html
+**His Dreadlocks Shaved by Prison Guards, Rastafarian Man Turns to Supreme Court**\
+`A federal appeals court condemned the “stark and egregious” violation of Damon Landor’s religious freedom. But it said he could not sue the prison officials.`\
+https://nytimes.com/2024/05/13/us/supreme-court-prison-rastafarian.html
 
-**The Seasonal Allergy Hill Is Now an All-Year Mountain**\
-`It’s not your imagination. Our suffering is getting worse as the climate grows warmer.`\
-https://nytimes.com/2024/05/13/opinion/allergies-climate-change.html
+**Choice for Maryland Democrats Comes Down to Star Power Versus Experience**\
+`A crowded race for Tuesday’s House primary features a Jan. 6 Capitol Police officer and veteran lawmakers, and could be a test of the “save democracy” movement.`\
+https://nytimes.com/2024/05/13/us/politics/maryland-primary-dunn-elfreth.html
 
-**Are Plants Intelligent? If So, What Does That Mean for Your Salad?**\
-`A new book, “The Light Eaters,” looks at how plants sense the world and the agency they have in their own lives.`\
-https://nytimes.com/2024/05/13/books/zoe-schlanger-light-eaters.html
+**Should I Get Rid of My Clothes After a Divorce?**\
+`Clothes are repositories of emotions, our critic writes. When is it time to let go?`\
+https://nytimes.com/2024/05/13/style/divorce-closet-clothes.html
 
-**‘Failure to Thrive,’ or a Failure to Investigate?**\
-`An outdated medical term often masks treatable illnesses, health experts contend.`\
-https://nytimes.com/2024/05/13/science/medicine-geriatrics-failure-thrive.html
+**How Language Influences Your Choices in Online Dating**\
+`When a dating app allowed users to mute specific words, phrases and emojis, singles quickly curated their lists. How did a few overused phrases become an “ick” for so many?`\
+https://nytimes.com/2024/05/13/crosswords/how-language-influences-your-choices-in-online-dating.html
 
-**Yes, You Love Pasta. But Do You Know the Difference Between Anolini and Pansoti?**\
-`From the size of a bottle cap to “large like a fist,” seven classic stuffed-pasta shapes that go back generations — and how to make them.`\
-https://nytimes.com/2024/05/13/t-magazine/guide-ravioli-stuffed-pasta.html
+**Cannes Film Festival: 5 Things to Look for**\
+`With the most prestigious festival in the world starting Tuesday, here are the movies, artists and events we’ll be keeping an eye on.`\
+https://nytimes.com/2024/05/13/movies/cannes-film-festival.html
 
