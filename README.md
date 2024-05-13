@@ -14,10 +14,6 @@ https://nytimes.com/2024/05/13/nyregion/trump-trial-michael-cohen-takeaways.html
 `Also, the return of Furiosa.`\
 https://nytimes.com/2024/05/13/briefing/trump-trial-polls-westminister.html
 
-**Her A.I. Arm**\
-`Sarah de Lagarde has a bionic limb, powered by artificial intelligence,`\
-https://nytimes.com/card/2024/05/13/business/prosthetic-arm-ai
-
 **Tuesday Briefing: The Prosecution’s Star Witness at the Trump Trial**\
 `Also, Vladimir Putin’s new defense minister.`\
 https://nytimes.com/2024/05/13/world/asia/trump-cohen-putin-shoigu-asia.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/05/13/style/westminster-dog-show-2024-photos.html
 **Republicans plan a symbolic House vote ordering a reversal of Biden’s pause on arms to Israel.**\
 `By Annie Karni`\
 https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah/republicans-plan-a-symbolic-house-vote-ordering-a-reversal-of-bidens-pause-on-arms-to-israel
+
+**No Jurors Seated on First Day of Menendez Corruption Trial**\
+`Senator Robert Menendez is charged with accepting hundreds of thousands of dollars in cash and gold bars in exchange for political favors at home and abroad.`\
+https://nytimes.com/2024/05/13/nyregion/bob-menendez-corruption-trial-jury-selection.html
 
