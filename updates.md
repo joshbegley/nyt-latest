@@ -1,3 +1,7 @@
+**A Night to Remember at the Opera, Complete With a Phantom**\
+`About 130 children took part in a sleepover at Rome’s opera house, part of a campaign to make up for a lack of music education by making the theater and the art form more familiar and accessible.`\
+https://nytimes.com/2024/05/13/world/europe/opera-rome-music-education.html
+
 **China Is Raising Bullet Train Fares as Debts and Costs Balloon**\
 `The rare move by operators of the national rail network comes as part of a broader push in China to stem losses at subsidized public services.`\
 https://nytimes.com/2024/05/13/business/china-bullet-trains-ticket-prices.html
