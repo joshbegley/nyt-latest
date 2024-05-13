@@ -1,3 +1,5 @@
+
+
 **Word of the Day: bazaar**\
 `This word has appeared in 103 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/05/13/learning/word-of-the-day-bazaar.html
