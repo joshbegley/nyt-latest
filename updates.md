@@ -1,3 +1,7 @@
+**Can You Find The 13 Book Titles Hidden in This Text?**\
+`A baker’s dozen of sports books — including athlete memoirs, biographies, team histories and a few classics of the form — are tucked away in this very short story. Can you find them all?`\
+https://nytimes.com/interactive/2024/05/13/books/review/sports-books-quiz.html
+
 **Putin’s New War Weapon: An Economist Managing the Military**\
 `In his first public appearance as the newly appointed defense minister, Andrei R. Belousov spoke about veterans’ benefits and overcrowded hospitals rather than a new offensive in Ukraine.`\
 https://nytimes.com/2024/05/13/world/europe/russia-defense-minister-ukraine-belousov.html
