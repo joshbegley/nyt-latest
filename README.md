@@ -1,3 +1,7 @@
+**Michael Cohen testifies**\
+`Also, the return of Furiosa.`\
+https://nytimes.com/2024/05/13/briefing/trump-trial-polls-westminister.html
+
 **Her A.I. Arm**\
 `Sarah de Lagarde has a bionic limb, powered by artificial intelligence,`\
 https://nytimes.com/card/2024/05/13/business/prosthetic-arm-ai
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/13/nyregion/cohen-trump-hush-money-trial-testimony.h
 **Worry About Women Voters Drove Trump’s Hush-Money Decisions, Cohen Says**\
 `“Guys may think it’s cool, but this is going to be a disaster for the campaign,” Mr. Trump said, according to testimony.`\
 https://nytimes.com/2024/05/13/nyregion/trump-trial-women-voters.html
-
-**Trump Told Cohen Disclosure of His Fling Would Be a ‘Total Disaster’**\
-`A lawyer’s testimony lands blow after blow on the former president.`\
-https://nytimes.com/live/2024/05/07/opinion/thepoint/cohen-trump-trial-testimony
 
