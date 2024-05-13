@@ -1,3 +1,7 @@
+**OpenAI Unveils New ChatGPT that Listens, Looks and Talks**\
+`Chatbots, image generators and voice assistants are gradually merging into a single technology with a conversational voice.`\
+https://nytimes.com/2024/05/13/technology/openai-chatgpt-app.html
+
 **Want to fix Social Security? The Well-Off Must Accept Smaller Checks.**\
 `Voters won’t brook much higher taxes, so Social Security needs to be reoriented toward the poor.`\
 https://nytimes.com/2024/05/13/opinion/social-security-retirement-benefits.html
