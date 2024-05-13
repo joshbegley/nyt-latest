@@ -1,3 +1,11 @@
+**California Considers Limits on Self-Service Checkout**\
+`A legislative package aimed at reducing retail crime includes a requirement for much closer supervision of self-checkout in stores.`\
+https://nytimes.com/2024/05/13/us/california-legislature-self-service-checkout.html
+
+**Gallego Places $19 Million Ad Buy in Arizona, the Largest of Any Senate Candidate**\
+`Representative Ruben Gallego is raising and spending money at a torrid pace as he prepares to face Kari Lake in the November election.`\
+https://nytimes.com/2024/05/13/us/politics/gallego-arizona-senate-ads.html
+
 **Protesters disrupt Israel’s day of mourning, highlighting wartime divisions.**\
 `By Patrick Kingsley and Myra Noveck`\
 https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah/protesters-disrupt-israels-day-of-mourning-highlighting-wartime-divisions
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/13/world/middleeast/israel-palestinian-memorial-day-
 **Trump’s Lead in the Polls, and Michael Cohen’s Testimony**\
 `Plus, a solar storm crashes farmers’ GPS systems.`\
 https://nytimes.com/2024/05/13/podcasts/times-siena-poll-michael-cohen-testimony.html
-
-**How Biden Adopted Trump’s Trade War With China**\
-`The president has proposed new barriers to electric vehicles, steel and other goods.`\
-https://nytimes.com/2024/05/13/podcasts/the-daily/biden-china-vehicles.html
-
-**The Solar Storm Fried GPS Systems Used by Some Farmers, Stalling Planting**\
-`The storm interfered with navigational systems used in tractors and other farming equipment, leaving some farmers temporarily unable to plant their crops.`\
-https://nytimes.com/2024/05/13/us/solar-storm-tractor-break-nebraska.html
 
