@@ -1,3 +1,11 @@
+**How an Obscure Agency Became a Linchpin for Climate Policy**\
+`The Federal Energy Regulatory Commission voted 2 to 1 in a partisan split on Monday on a new rule that could help speed up wind and solar energy.`\
+https://nytimes.com/2024/05/13/climate/ferc-climate-renewable-energy.html
+
+**New Rules to Overhaul Electric Grids Could Boost Wind and Solar Power**\
+`The Federal Energy Regulatory Commission approved the biggest changes in more than a decade to the way U.S. power lines are planned and funded.`\
+https://nytimes.com/2024/05/13/climate/electric-grid-overhaul-ferc.html
+
 **This Easy Pasta Doubles Up on Eggs**\
 `Speedy, savory and pantry-friendly, this dish celebrates buttery egg noodles by topping them with sour cream, scallions and runny eggs.`\
 https://nytimes.com/2024/05/13/dining/egg-noodles-lokshen-mit-kaese.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/05/13/theater/2024-tonys-ballot.html
 **Finnish Lawmaker Who Fired Gun Outside Bar Is Expelled From Party**\
 `The lawmaker, Timo Vornanen, from the right-wing nationalist Finns Party is the latest party figure to come under scrutiny. He said he would continue in Parliament.`\
 https://nytimes.com/2024/05/13/world/europe/finland-mp-expelled-timo-vornanen.html
-
-**Israel Needs to Allow More Aid Crossings to Keep Gazans Alive**\
-`A desperate situation requires Israel to create more border openings to provide food and medical assistance.`\
-https://nytimes.com/live/2024/05/07/opinion/thepoint/israel-needs-to-allow-more-aid-crossings-to-keep-gazans-alive
-
-**Kendrick Lamar Rides a Rap Beef All the Way to No. 1**\
-`On the Billboard album chart, Dua Lipa’s heavily promoted “Radical Optimism” opened at No. 2, held off by the third week of Taylor Swift’s “Tortured Poets.”`\
-https://nytimes.com/2024/05/13/arts/music/taylor-swift-kendrick-lamar-dua-lipa-billboard-charts.html
 
