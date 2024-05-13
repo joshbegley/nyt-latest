@@ -1,3 +1,7 @@
+**What I Am Listening for in Michael Cohen’s Testimony**\
+`A flawed insider is called to provide detailed and direct evidence to the jury of the defendant’s alleged guilt.`\
+https://nytimes.com/2024/05/13/opinion/michael-cohen-trump-trial.html
+
 **Monday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2024/05/13/briefing/fighting-ukraine-gaza-northern-lights.html
