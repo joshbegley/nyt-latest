@@ -1,3 +1,7 @@
+**George Clooney to Make Broadway Debut in ‘Good Night, and Good Luck’**\
+`A stage adaptation of the film is planned for next spring, with Clooney playing the journalist Edward R. Murrow.`\
+https://nytimes.com/2024/05/13/theater/george-clooney-broadway.html
+
 **Army Officer Resigns in Protest of ‘Unqualified’ U.S. Support to Israel**\
 `While assigned to the Defense Intelligence Agency, Maj. Harrison Mann said he was enabling policies that violated his conscience.`\
 https://nytimes.com/2024/05/13/us/army-officer-resigns-gaza-israel.html
