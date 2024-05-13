@@ -2,7 +2,7 @@
 `This word has appeared in 103 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/05/13/learning/word-of-the-day-bazaar.html
 
-**University of Wisconsin-Milwaukee and Protesters Agree to End Encampment.**\
+**University of Wisconsin-Milwaukee and Protesters Agree to End Encampment**\
 `As part of the deal, the pro-Palestinian encampment will be down by Tuesday, and the university pledged to join calls for a cease-fire in Gaza, school officials said.`\
 https://nytimes.com/2024/05/12/us/university-of-wisconsin-milwaukee-and-protesters-reach-a-deal-to-end-an-encampment.html
 
