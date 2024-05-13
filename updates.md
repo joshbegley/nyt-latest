@@ -1,3 +1,5 @@
+
+
 **Kendrick Lamar Rides a Rap Beef All the Way to No. 1**\
 `On the Billboard album chart, Dua Lipa’s heavily promoted “Radical Optimism” opened at No. 2, held off by the third week of Taylor Swift’s “Tortured Poets.”`\
 https://nytimes.com/2024/05/13/arts/music/taylor-swift-kendrick-lamar-dua-lipa-billboard-charts.html
