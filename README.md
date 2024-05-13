@@ -1,3 +1,7 @@
+**Activists Hold a Ceremony Reflecting on Both Israeli and Palestinian Losses**\
+`“Many people have woken up to the reality that this conflict cannot go on,” said a director of one Israeli peace-building group, referring to the decades of violence.`\
+https://nytimes.com/2024/05/13/world/middleeast/israel-palestinian-memorial-day-joint-ceremony.html
+
 **Trump’s Lead in the Polls, and Michael Cohen’s Testimony**\
 `Plus, a solar storm crashes farmers’ GPS systems.`\
 https://nytimes.com/2024/05/13/podcasts/times-siena-poll-michael-cohen-testimony.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/07/opinion/thepoint/trump-cohen-biden-tipsheet
 **Hold Onto Your Hats, America**\
 `The turmoil sweeping the world shows no sign of abeyance.`\
 https://nytimes.com/2024/05/13/opinion/college-graduation-commencement.html
-
-**His Dreadlocks Shaved by Prison Guards, Rastafarian Man Turns to Supreme Court**\
-`A federal appeals court condemned the “stark and egregious” violation of Damon Landor’s religious freedom. But it said he could not sue the prison officials.`\
-https://nytimes.com/2024/05/13/us/supreme-court-prison-rastafarian.html
 
