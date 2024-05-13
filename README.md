@@ -1,3 +1,7 @@
+**Does Mindfulness Training Lead to Better Mental Health?**\
+`Responses to an article in Science Times. Also: Teaching about hate; the International Criminal Court and the Israel-Gaza war; nonpartisan House speakers.`\
+https://nytimes.com/2024/05/13/opinion/mindfulness-mental-health.html
+
 **A look at where fierce fighting continues in Gaza.**\
 `By Liam Stack and Lauren Leatherby`\
 https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah/a-look-at-where-fierce-fighting-continues-in-gaza
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/05/13/world/europe/ukraine-missile-defenses
 **J.D. Vance, in the Mix to Be Trump’s Running Mate, Joins Him in Court**\
 `Mr. Vance’s appearance in court could signal a new frontier in the auditions to become Donald J. Trump’s running mate.`\
 https://nytimes.com/2024/05/13/nyregion/jd-vance-trump-vp.html
-
-**Believe It, Democrats. Biden Could Lose.**\
-`Wake up, Mr. President!`\
-https://nytimes.com/live/2024/05/07/opinion/thepoint/biden-polls-swing-states
 
