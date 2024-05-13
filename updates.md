@@ -1,3 +1,7 @@
+**Waldorf Astoria Taps Gramercy Tavern Chef for New Restaurant**\
+`When the hotel reopens later this year, Michael Anthony will serve as culinary consultant and create an as-yet-unnamed American brasserie.`\
+https://nytimes.com/2024/05/13/dining/reopened-waldorf-astoria.html
+
 **Israelis Gather at Site of Oct. 7 Festival Attack to Mourn Loved Ones**\
 `People gathered on Israel’s national day of mourning to remember festivalgoers who were killed on Oct. 7 by the Hamas-led assault.`\
 https://nytimes.com/video/world/middleeast/100000009465268/israel-nova-festival-memorial-day.html

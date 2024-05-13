@@ -1,3 +1,7 @@
+**Waldorf Astoria Taps Gramercy Tavern Chef for New Restaurant**\
+`When the hotel reopens later this year, Michael Anthony will serve as culinary consultant and create an as-yet-unnamed American brasserie.`\
+https://nytimes.com/2024/05/13/dining/reopened-waldorf-astoria.html
+
 **Israelis Gather at Site of Oct. 7 Festival Attack to Mourn Loved Ones**\
 `People gathered on Israel’s national day of mourning to remember festivalgoers who were killed on Oct. 7 by the Hamas-led assault.`\
 https://nytimes.com/video/world/middleeast/100000009465268/israel-nova-festival-memorial-day.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/13/us/california-legislature-self-service-checkout.h
 **Gallego Places $19 Million Ad Buy in Arizona, the Largest of Any Senate Candidate**\
 `Representative Ruben Gallego is raising and spending money at a torrid pace as he prepares to face Kari Lake in the November election.`\
 https://nytimes.com/2024/05/13/us/politics/gallego-arizona-senate-ads.html
-
-**Protesters disrupt Israel’s day of mourning, highlighting wartime divisions.**\
-`By Patrick Kingsley and Myra Noveck`\
-https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah/protesters-disrupt-israels-day-of-mourning-highlighting-wartime-divisions
 
