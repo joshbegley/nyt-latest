@@ -1,3 +1,7 @@
+**13mideast-crisis**\
+`Israel Observes a Solemn Memorial Day`\
+https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah
+
 **Wisconsin Cross-Tabs: May 2024 Times/Siena Poll**\
 `Results of a poll by The New York Times and Siena College in Wisconsin from April 28 to May 9, 2024.`\
 https://nytimes.com/interactive/2024/05/13/us/elections/times-siena-poll-wisconsin-crosstabs.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/05/13/us/elections/times-siena-battleground
 **Cross-Tabs: May 2024 Times/Siena Poll of the Presidential Battlegrounds**\
 `Donald Trump leads Joe Biden in five of six states polled by The New York Times, The Philadelphia Inquirer and Siena College from April 28 to May 9, 2024.`\
 https://nytimes.com/interactive/2024/05/13/us/elections/times-siena-poll-registered-voter-crosstabs.html
-
-**Democrats Hold Leads in 4 Crucial Races That Could Decide Senate Control**\
-`New battleground state polls by The New York Times, Siena College and The Philadelphia Inquirer show Democrats ahead in Arizona, Nevada, Pennsylvania and Wisconsin, and running well ahead of the president.`\
-https://nytimes.com/2024/05/13/us/politics/democrats-senate-battleground-poll.html
 
