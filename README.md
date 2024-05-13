@@ -1,3 +1,11 @@
+**Exclusion of Jewish Jurors Prompts Review of California Death Row Cases**\
+`Dozens of cases are under review after notes from jury selection in a 1990s murder case indicated that prosecutors worked to exclude Jews.`\
+https://nytimes.com/2024/05/13/us/california-oakland-death-penalty-jewish-jurors.html
+
+**A High Stakes Obstacle Course, for Dogs**\
+`A look behind the scenes at the Westminster Dog Show’s agility competition.`\
+https://nytimes.com/card/2024/05/13/style/westminster-dog-show-agility-championship
+
 **Do You Have a Question About Money? Ask Us.**\
 `Feel free to ask us anything — big or small.`\
 https://nytimes.com/2024/05/13/business/money-questions.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/13/arts/television/svu-greys-anatomy-ncis-fans.html
 **‘The Bachelor’ Promises True Love. So Why Does It Rarely Work Out?**\
 `Of the 40 combined seasons of “The Bachelor” and “The Bachelorette,” only eight couples have stayed together. We spoke to former contestants and leads about roadblocks to a happy ending.`\
 https://nytimes.com/2024/05/13/arts/television/bachelor-bachelorette-breakups-reality-tv.html
-
-**Why Biden Is Likely to Dismiss the Latest Bad Poll for Him**\
-`The president and his aides have tended to dismiss polls as broken, and to argue that Election Day remains far away.`\
-https://nytimes.com/2024/05/13/us/politics/biden-poll.html
-
-**Facing an Endless Barrage, Ukraine’s Air Defenses Are Withering**\
-`As Russia shifts its tactics and Ukraine's ammunition dwindles, more missiles are getting through Ukraine's air defenses.`\
-https://nytimes.com/interactive/2024/05/13/world/europe/ukraine-missile-defenses.html
 
