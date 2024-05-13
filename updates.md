@@ -1,3 +1,7 @@
+**Review: A New Lens on Auschwitz in ‘Here There Are Blueberries’**\
+`Archivists are the heroes of a documentary play about a photograph album depicting daily life among the perpetrators of the Holocaust.`\
+https://nytimes.com/2024/05/13/theater/here-there-are-blueberries-review.html
+
 **Christopher Edley Jr., Civil Rights Expert Heard by Presidents, Dies at 71**\
 `He pivoted between serving as an adviser to the Carter, Clinton and Obama White Houses and teaching at Harvard and Berkeley, where he was the law school dean.`\
 https://nytimes.com/2024/05/13/obituaries/christopher-edley-jr-dead.html

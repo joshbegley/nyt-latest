@@ -1,3 +1,7 @@
+**Review: A New Lens on Auschwitz in ‘Here There Are Blueberries’**\
+`Archivists are the heroes of a documentary play about a photograph album depicting daily life among the perpetrators of the Holocaust.`\
+https://nytimes.com/2024/05/13/theater/here-there-are-blueberries-review.html
+
 **Christopher Edley Jr., Civil Rights Expert Heard by Presidents, Dies at 71**\
 `He pivoted between serving as an adviser to the Carter, Clinton and Obama White Houses and teaching at Harvard and Berkeley, where he was the law school dean.`\
 https://nytimes.com/2024/05/13/obituaries/christopher-edley-jr-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/13/us/politics/truck-white-house-guilty-plea.html
 **An aid convoy headed to Gaza is attacked in the West Bank.**\
 `By Johnatan Reiss`\
 https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah/an-aid-convoy-headed-to-gaza-is-attacked-in-the-west-bank
-
-**White House Says Israel Still Has Provided No Plan to Protect Rafah Civilians**\
-`The national security adviser, Jake Sullivan, also said Israel had yet to connect its military operations to a plan for the future governance of Gaza.`\
-https://nytimes.com/2024/05/13/world/middleeast/white-house-israel-rafah.html
 
