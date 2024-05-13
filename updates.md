@@ -1,3 +1,7 @@
+**An aid convoy headed to Gaza is attacked in the West Bank.**\
+`By Johnatan Reiss`\
+https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah/an-aid-convoy-headed-to-gaza-is-attacked-in-the-west-bank
+
 **No Jurors Seated on First Day of Menendez Corruption Trial**\
 `Senator Robert Menendez is charged with accepting hundreds of thousands of dollars in cash and gold bars in exchange for political favors at home and abroad.`\
 https://nytimes.com/2024/05/13/nyregion/bob-menendez-corruption-trial-jury-selection.html
