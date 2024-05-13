@@ -1,3 +1,7 @@
+**Michael Cohen Was Trump’s Lawyer, Fixer and ‘Designated Thug’**\
+`Mr. Cohen had the amorphous title of executive vice president of the Trump Organization and “special counsel” to Donald J. Trump.`\
+https://nytimes.com/2024/05/13/nyregion/michael-cohen-trump-duties.html
+
 **Can You Find The 13 Book Titles Hidden in This Text?**\
 `A baker’s dozen of sports books — including athlete memoirs, biographies, team histories and a few classics of the form — are tucked away in this very short story. Can you find them all?`\
 https://nytimes.com/interactive/2024/05/13/books/review/sports-books-quiz.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/13/world/europe/uk-hong-kong-intelligence-arrests.ht
 **An Inflation Test Looms Over the Economy and the Election**\
 `The pivotal Consumer Price Index report is set to be published on Wednesday as the window for interest-rate cuts before November is closing.`\
 https://nytimes.com/2024/05/13/business/dealbook/cpi-inflation-fed-interest-rates.html
-
-**Chinese Woman Jailed for Reporting on Covid Set to be Freed**\
-`Yet Zhang Zhan’s supporters and human rights activists who had followed her case said they could not reach her or her family members.`\
-https://nytimes.com/2024/05/13/world/asia/china-covid-citizen-journalist-zhang.html
 
