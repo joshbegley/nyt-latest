@@ -1,3 +1,7 @@
+**Israel Needs to Allow More Aid Crossings to Keep Gazans Alive**\
+`A desperate situation requires Israel to create more border openings to provide food and medical assistance.`\
+https://nytimes.com/live/2024/05/07/opinion/thepoint/israel-needs-to-allow-more-aid-crossings-to-keep-gazans-alive
+
 **Melinda French Gates to Resign From Gates Foundation**\
 `The Bill and Melinda Gates Foundation is recognized as one of the most powerful organizations in global philanthropy, in fields like public health and early-childhood education.`\
 https://nytimes.com/2024/05/13/business/melinda-gates-resigns-gates-foundation.html

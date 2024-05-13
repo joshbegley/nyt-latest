@@ -1,3 +1,7 @@
+**Israel Needs to Allow More Aid Crossings to Keep Gazans Alive**\
+`A desperate situation requires Israel to create more border openings to provide food and medical assistance.`\
+https://nytimes.com/live/2024/05/07/opinion/thepoint/israel-needs-to-allow-more-aid-crossings-to-keep-gazans-alive
+
 **Kendrick Lamar Rides a Rap Beef All the Way to No. 1**\
 `On the Billboard album chart, Dua Lipa’s heavily promoted “Radical Optimism” opened at No. 2, held off by the third week of Taylor Swift’s “Tortured Poets.”`\
 https://nytimes.com/2024/05/13/arts/music/taylor-swift-kendrick-lamar-dua-lipa-billboard-charts.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/05/13/nyregion/nyc-traffic-congestion-prici
 **Female Basketball Stars in the Skims Spotlight**\
 `Kim Kardashian’s shapewear brand is moving more aggressively into sports.`\
 https://nytimes.com/2024/05/13/style/skims-kim-kardashian-cameron-brink-candace-parker.html
-
-**David Pecker Mastered ‘Catch and Kill’ Tabloid Deals**\
-`Mr. Pecker helped broker hush-money payments with the porn star Stormy Daniels and a former Playboy model, Karen McDougal. Both said they had sex with Donald J. Trump.`\
-https://nytimes.com/2024/05/13/nyregion/david-pecker-hush-money-karen-mcdougal.html
 
