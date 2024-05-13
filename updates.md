@@ -1,3 +1,7 @@
+**At Westminster, the Dogs Are in Charge**\
+`A look at the action in Queens as the annual dog show takes over the Billie Jean King National Tennis Center.`\
+https://nytimes.com/2024/05/13/style/westminster-dog-show-2024-photos.html
+
 **Republicans plan a symbolic House vote ordering a reversal of Biden’s pause on arms to Israel.**\
 `By Annie Karni`\
 https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah/republicans-plan-a-symbolic-house-vote-ordering-a-reversal-of-bidens-pause-on-arms-to-israel
