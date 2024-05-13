@@ -1,3 +1,7 @@
+**Putin’s New War Weapon: An Economist Managing the Military**\
+`In his first public appearance as the newly appointed defense minister, Andrei R. Belousov spoke about veterans’ benefits and overcrowded hospitals rather than a new offensive in Ukraine.`\
+https://nytimes.com/2024/05/13/world/europe/russia-defense-minister-ukraine-belousov.html
+
 **What to Know About Russia’s Offensive in Ukraine’s Northeast**\
 `Moscow’s forces have captured at least nine villages and settlements near Kharkiv in a push that analysts say is intended to stretch Ukrainian troops and divert them from fighting elsewhere.`\
 https://nytimes.com/article/russia-ukraine-kharkiv.html
