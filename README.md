@@ -1,3 +1,15 @@
+**Worry About Women Voters Drove Trump’s Hush-Money Decisions, Cohen Says**\
+`“Guys may think it’s cool, but this is going to be a disaster for the campaign,” Mr. Trump said, according to testimony.`\
+https://nytimes.com/2024/05/13/nyregion/trump-trial-women-voters.html
+
+**Trump Told Cohen Disclosure of His Fling Would Be a ‘Total Disaster’**\
+`A lawyer’s testimony lands blow after blow on the former president.`\
+https://nytimes.com/live/2024/05/07/opinion/thepoint/cohen-trump-trial-testimony
+
+**Play-by-Play and Drawings on an iPad: How Cable TV Covers a TV-Less Trial**\
+`With no cameras recording Donald Trump’s criminal trial, anchors and producers are improvising to animate dramatic moments like Michael Cohen’s testimony.`\
+https://nytimes.com/2024/05/13/business/media/trump-trial-media-tv-coverage.html
+
 **Storms Pummel Mumbai, Killing at Least 8**\
 `Heavy rains and high winds ripped through the financial capital of India, toppling a billboard onto a crowd of people seeking shelter.`\
 https://nytimes.com/2024/05/13/world/asia/mumbai-india-storm-deaths.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/13/technology/openai-chatgpt-app.html
 **Want to fix Social Security? The Well-Off Must Accept Smaller Checks.**\
 `Voters won’t brook much higher taxes, so Social Security needs to be reoriented toward the poor.`\
 https://nytimes.com/2024/05/13/opinion/social-security-retirement-benefits.html
-
-**Nicole Shanahan Ventures Onto the Stump for Kennedy**\
-`The Silicon Valley lawyer, chosen by Robert F. Kennedy Jr. as his running mate, made her first solo outing on the stump. She is to appear alongside him at a rally on Monday in Austin, Texas.`\
-https://nytimes.com/2024/05/13/us/politics/nicole-shanahan-kennedy-campaign.html
-
-**GameStop Shares Surge After ‘Roaring Kitty’ Re-emerges**\
-`Keith Gill, the trader who helped turn the video game retailer into a high-flying “meme stock,” posted cryptic messages online after a three-year hiatus.`\
-https://nytimes.com/2024/05/13/business/gamestop-stock-roaring-kitty.html
-
-**A Boot Camp for 20-Somethings**\
-`Advice, explainers and exercises on taking advantage of job benefits, creating a budget, paying off debt and thinking about your future.`\
-https://nytimes.com/2024/05/13/your-money/your-money-a-boot-camp-for-20-somethings.html
 
