@@ -1,3 +1,11 @@
+**Trump’s Lead in the Polls, and Michael Cohen’s Testimony**\
+`Plus, a solar storm crashes farmers’ GPS systems.`\
+https://nytimes.com/2024/05/13/podcasts/times-siena-poll-michael-cohen-testimony.html
+
+**How Biden Adopted Trump’s Trade War With China**\
+`The president has proposed new barriers to electric vehicles, steel and other goods.`\
+https://nytimes.com/2024/05/13/podcasts/the-daily/biden-china-vehicles.html
+
 **The Solar Storm Fried GPS Systems Used by Some Farmers, Stalling Planting**\
 `The storm interfered with navigational systems used in tractors and other farming equipment, leaving some farmers temporarily unable to plant their crops.`\
 https://nytimes.com/2024/05/13/us/solar-storm-tractor-break-nebraska.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/13/opinion/college-graduation-commencement.html
 **His Dreadlocks Shaved by Prison Guards, Rastafarian Man Turns to Supreme Court**\
 `A federal appeals court condemned the “stark and egregious” violation of Damon Landor’s religious freedom. But it said he could not sue the prison officials.`\
 https://nytimes.com/2024/05/13/us/supreme-court-prison-rastafarian.html
-
-**Choice for Maryland Democrats Comes Down to Star Power Versus Experience**\
-`A crowded race for Tuesday’s House primary features a Jan. 6 Capitol Police officer and veteran lawmakers, and could be a test of the “save democracy” movement.`\
-https://nytimes.com/2024/05/13/us/politics/maryland-primary-dunn-elfreth.html
-
-**Should I Get Rid of My Clothes After a Divorce?**\
-`Clothes are repositories of emotions, our critic writes. When is it time to let go?`\
-https://nytimes.com/2024/05/13/style/divorce-closet-clothes.html
 

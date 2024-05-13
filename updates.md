@@ -1,3 +1,11 @@
+**Trump’s Lead in the Polls, and Michael Cohen’s Testimony**\
+`Plus, a solar storm crashes farmers’ GPS systems.`\
+https://nytimes.com/2024/05/13/podcasts/times-siena-poll-michael-cohen-testimony.html
+
+**How Biden Adopted Trump’s Trade War With China**\
+`The president has proposed new barriers to electric vehicles, steel and other goods.`\
+https://nytimes.com/2024/05/13/podcasts/the-daily/biden-china-vehicles.html
+
 **The Solar Storm Fried GPS Systems Used by Some Farmers, Stalling Planting**\
 `The storm interfered with navigational systems used in tractors and other farming equipment, leaving some farmers temporarily unable to plant their crops.`\
 https://nytimes.com/2024/05/13/us/solar-storm-tractor-break-nebraska.html
