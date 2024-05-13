@@ -1,3 +1,7 @@
+**A New Rent-Versus-Buy Calculator**\
+`Does it make sense for you to buy a home right now?`\
+https://nytimes.com/2024/05/13/briefing/a-new-rent-versus-buy-calculator.html
+
 **Activists Hold a Ceremony Reflecting on Both Israeli and Palestinian Losses**\
 `“Many people have woken up to the reality that this conflict cannot go on,” said a director of one Israeli peace-building group, referring to the decades of violence.`\
 https://nytimes.com/2024/05/13/world/middleeast/israel-palestinian-memorial-day-joint-ceremony.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/13/upshot/polling-biden-battlegrounds-senate.html
 **Will Michael Cohen Throw Cold Water on Trump’s Polling Lead?**\
 `If his testimony leads to a conviction, it could prove very costly to Trump’s chances.`\
 https://nytimes.com/live/2024/05/07/opinion/thepoint/trump-cohen-biden-tipsheet
-
-**Hold Onto Your Hats, America**\
-`The turmoil sweeping the world shows no sign of abeyance.`\
-https://nytimes.com/2024/05/13/opinion/college-graduation-commencement.html
 
