@@ -1,3 +1,7 @@
+**The Solar Storm Fried GPS Systems Used by Some Farmers, Stalling Planting**\
+`The storm interfered with navigational systems used in tractors and other farming equipment, leaving some farmers temporarily unable to plant their crops.`\
+https://nytimes.com/2024/05/13/us/solar-storm-tractor-break-nebraska.html
+
 **Minnesota and Wisconsin See Air Quality Warnings From Canadian Wildfires**\
 `Smoke from wildfires drifted south over the weekend.`\
 https://nytimes.com/2024/05/13/us/wildfire-smoke-mn-wi-air-quality.html
