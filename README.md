@@ -1,3 +1,7 @@
+**Nicole Shanahan Ventures Onto the Stump for Kennedy**\
+`The Silicon Valley lawyer, chosen by Robert F. Kennedy Jr. as his running mate, made her first solo outing on the stump. She is to appear alongside him at a rally on Monday in Austin, Texas.`\
+https://nytimes.com/2024/05/13/us/politics/nicole-shanahan-kennedy-campaign.html
+
 **GameStop Shares Surge After ‘Roaring Kitty’ Re-emerges**\
 `Keith Gill, the trader who helped turn the video game retailer into a high-flying “meme stock,” posted cryptic messages online after a three-year hiatus.`\
 https://nytimes.com/2024/05/13/business/gamestop-stock-roaring-kitty.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/13/us/politics/trump-court-fundraising-emails.html
 **George Clooney to Make Broadway Debut in ‘Good Night, and Good Luck’**\
 `A stage adaptation of the film is planned for next spring, with Clooney playing the journalist Edward R. Murrow.`\
 https://nytimes.com/2024/05/13/theater/george-clooney-broadway.html
-
-**Army Officer Resigns in Protest of ‘Unqualified’ U.S. Support to Israel**\
-`While assigned to the Defense Intelligence Agency, Maj. Harrison Mann said he was enabling policies that violated his conscience.`\
-https://nytimes.com/2024/05/13/us/army-officer-resigns-gaza-israel.html
 
