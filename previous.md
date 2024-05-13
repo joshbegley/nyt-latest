@@ -1,3 +1,7 @@
+**Smoke-Filled Skies Leave Midwest Fearing Another Season of Polluted Air**\
+`Smoke from wildfires in Canada draped Minnesota and parts of Wisconsin on Sunday and Monday. But experts say the air quality in the nation’s middle is unlikely to be as bad as last summer.`\
+https://nytimes.com/2024/05/13/us/smoke-midwest-canada-wildfires.html
+
 **Cohen Testimony Begins Climax of Case Against Trump: 5 Takeaways**\
 `In hotly anticipated testimony, Donald J. Trump’s former fixer discussed how he buried stories his boss didn’t want anyone to read.`\
 https://nytimes.com/2024/05/13/nyregion/trump-trial-michael-cohen-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah/republican
 **No Jurors Seated on First Day of Menendez Corruption Trial**\
 `Senator Robert Menendez is charged with accepting hundreds of thousands of dollars in cash and gold bars in exchange for political favors at home and abroad.`\
 https://nytimes.com/2024/05/13/nyregion/bob-menendez-corruption-trial-jury-selection.html
-
-**Michael Cohen, Key to Trump Case, Tells Jurors of Seedy Hush-Money Plot**\
-`Donald J. Trump’s former bulldog told jurors about his work: threatening enemies, cleaning up problems and burying embarrassing stories.`\
-https://nytimes.com/2024/05/13/nyregion/cohen-trump-hush-money-trial-testimony.html
 
