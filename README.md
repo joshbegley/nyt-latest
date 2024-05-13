@@ -1,3 +1,7 @@
+**An international U.N. worker was killed in Rafah, a first since the conflict began.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah/an-international-un-worker-was-killed-in-rafah-a-first-since-the-conflict-began
+
 **Can This Never Trumper Find a Future in the Republican Party?**\
 `Hogan’s Senate run will test whether there is a path forward for a Trump critic in 2024.`\
 https://nytimes.com/2024/05/13/us/politics/larry-hogan-maryland.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/13/world/middleeast/white-house-israel-rafah.html
 **Smoke-Filled Skies Leave Midwest Fearing Another Season of Polluted Air**\
 `Smoke from wildfires in Canada draped Minnesota and parts of Wisconsin on Sunday and Monday. But experts say the air quality in the nation’s middle is unlikely to be as bad as last summer.`\
 https://nytimes.com/2024/05/13/us/smoke-midwest-canada-wildfires.html
-
-**Cohen Testimony Begins Climax of Case Against Trump: 5 Takeaways**\
-`In hotly anticipated testimony, Donald J. Trump’s former fixer discussed how he buried stories his boss didn’t want anyone to read.`\
-https://nytimes.com/2024/05/13/nyregion/trump-trial-michael-cohen-takeaways.html
 
