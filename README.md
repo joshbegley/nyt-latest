@@ -1,3 +1,11 @@
+**A look at where fierce fighting continues in Gaza.**\
+`By Liam Stack and Lauren Leatherby`\
+https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah/a-look-at-where-fierce-fighting-continues-in-gaza
+
+**Hilary Cass Says U.S. Doctors Are ‘Out of Date’ on Youth Gender Medicine**\
+`Dr. Hilary Cass published a landmark report that led to restrictions on youth gender care in Britain. U.S. health groups said it did not change their support of the care.`\
+https://nytimes.com/2024/05/13/health/hilary-cass-transgender-youth-puberty-blockers.html
+
 **How Ozempic Is Changing Diabetes Treatment**\
 `Millions of patients rely on insulin. But with new drugs, some have been able to lower their doses or stop taking it altogether.`\
 https://nytimes.com/2024/05/13/well/live/insulin-ozempic-diabetes.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/13/nyregion/jd-vance-trump-vp.html
 **Believe It, Democrats. Biden Could Lose.**\
 `Wake up, Mr. President!`\
 https://nytimes.com/live/2024/05/07/opinion/thepoint/biden-polls-swing-states
-
-**Waldorf Astoria Taps Gramercy Tavern Chef for New Restaurant**\
-`When the hotel reopens later this year, Michael Anthony will serve as culinary consultant and create an as-yet-unnamed American brasserie.`\
-https://nytimes.com/2024/05/13/dining/reopened-waldorf-astoria.html
-
-**Israelis Gather at Site of Oct. 7 Festival Attack to Mourn Loved Ones**\
-`People gathered on Israel’s national day of mourning to remember festivalgoers who were killed on Oct. 7 by the Hamas-led assault.`\
-https://nytimes.com/video/world/middleeast/100000009465268/israel-nova-festival-memorial-day.html
 
