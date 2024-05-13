@@ -1,3 +1,7 @@
+**A New Rent-Versus-Buy Calculator**\
+`Does it make sense for you to buy a home right now?`\
+https://nytimes.com/2024/05/13/briefing/a-new-rent-versus-buy-calculator.html
+
 **Activists Hold a Ceremony Reflecting on Both Israeli and Palestinian Losses**\
 `“Many people have woken up to the reality that this conflict cannot go on,” said a director of one Israeli peace-building group, referring to the decades of violence.`\
 https://nytimes.com/2024/05/13/world/middleeast/israel-palestinian-memorial-day-joint-ceremony.html
