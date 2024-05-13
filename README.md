@@ -19,7 +19,7 @@ https://nytimes.com/2024/05/13/world/asia/mumbai-india-storm-deaths.html
 https://nytimes.com/2024/05/13/style/dia-beacon-spring-benefit-julianne-moore-chloe-sevigny.html
 
 **How an Obscure Agency Became a Linchpin for Climate Policy**\
-`The Federal Energy Regulatory Commission voted 2 to 1 in a partisan split on Monday on a new rule that could help speed up wind and solar energy.`\
+`The Federal Energy Regulatory Commission voted 2-to-1 in a partisan split on Monday on a new rule that could help speed up wind and solar energy.`\
 https://nytimes.com/2024/05/13/climate/ferc-climate-renewable-energy.html
 
 **New Rules to Overhaul Electric Grids Could Boost Wind and Solar Power**\
