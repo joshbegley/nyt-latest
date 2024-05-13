@@ -1,3 +1,7 @@
+**Cohen Testimony Begins Climax of Case Against Trump: 5 Takeaways**\
+`In hotly anticipated testimony, Donald J. Trump’s former fixer discussed how he buried stories his boss didn’t want anyone to read.`\
+https://nytimes.com/2024/05/13/nyregion/trump-trial-michael-cohen-takeaways.html
+
 **Michael Cohen testifies**\
 `Also, the return of Furiosa.`\
 https://nytimes.com/2024/05/13/briefing/trump-trial-polls-westminister.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/13/nyregion/bob-menendez-corruption-trial-jury-selec
 **Michael Cohen, Key to Trump Case, Tells Jurors of Seedy Hush-Money Plot**\
 `Donald J. Trump’s former bulldog told jurors about his work: threatening enemies, cleaning up problems and burying embarrassing stories.`\
 https://nytimes.com/2024/05/13/nyregion/cohen-trump-hush-money-trial-testimony.html
-
-**Worry About Women Voters Drove Trump’s Hush-Money Decisions, Cohen Says**\
-`“Guys may think it’s cool, but this is going to be a disaster for the campaign,” Mr. Trump said, according to testimony.`\
-https://nytimes.com/2024/05/13/nyregion/trump-trial-women-voters.html
 
