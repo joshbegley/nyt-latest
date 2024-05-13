@@ -1,3 +1,11 @@
+**Army Officer Resigns in Protest of ‘Unqualified’ U.S. Support to Israel**\
+`While assigned to the Defense Intelligence Agency, Maj. Harrison Mann said he was enabling policies that violated his conscience.`\
+https://nytimes.com/2024/05/13/us/army-officer-resigns-gaza-israel.html
+
+**Cloud Brightening Study in California Is Halted by Local Officials**\
+`Researchers had been testing a sprayer that could one day be used to push a salty mist skyward, cooling the Earth. Officials stopped the work, citing health questions.`\
+https://nytimes.com/2024/05/13/climate/cloud-brightening-geoengineering.html
+
 **Melinda French Gates to Resign From Gates Foundation**\
 `The Bill and Melinda Gates Foundation is recognized as one of the most powerful organizations in global philanthropy, in fields like global health and early-childhood education.`\
 https://nytimes.com/2024/05/13/business/melinda-gates-resigns-gates-foundation.html
@@ -29,12 +37,4 @@ https://nytimes.com/card/2024/05/13/style/westminster-dog-show-agility-champions
 **Do You Have a Question About Money? Ask Us.**\
 `Feel free to ask us anything — big or small.`\
 https://nytimes.com/2024/05/13/business/money-questions.html
-
-**Does Mindfulness Training Lead to Better Mental Health?**\
-`Responses to an article in Science Times. Also: Teaching about hate; the International Criminal Court and the Israel-Gaza war; nonpartisan House speakers.`\
-https://nytimes.com/2024/05/13/opinion/mindfulness-mental-health.html
-
-**A look at where fierce fighting continues in Gaza.**\
-`By Liam Stack and Lauren Leatherby`\
-https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah/a-look-at-where-fierce-fighting-continues-in-gaza
 
