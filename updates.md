@@ -1,3 +1,7 @@
+**What to Know About Russia’s Offensive in Ukraine’s Northeast**\
+`Moscow’s forces have captured at least nine villages and settlements near Kharkiv in a push that analysts say is intended to stretch Ukrainian troops and divert them from fighting elsewhere.`\
+https://nytimes.com/article/russia-ukraine-kharkiv.html
+
 **Cohen Pleaded Guilty to Federal Crimes Tied to Trump Before Testifying**\
 `Michael D. Cohen spent time in prison for felony charges tied to hush-money deals, as well lying to Congress and tax evasion. He has been free since 2020.`\
 https://nytimes.com/2024/05/13/nyregion/michael-cohen-felony-charge-prison-trump.html
