@@ -1,3 +1,7 @@
+**Believe It, Democrats. Biden Could Lose.**\
+`Wake up, Mr. President!`\
+https://nytimes.com/live/2024/05/07/opinion/thepoint/biden-polls-swing-states
+
 **Waldorf Astoria Taps Gramercy Tavern Chef for New Restaurant**\
 `When the hotel reopens later this year, Michael Anthony will serve as culinary consultant and create an as-yet-unnamed American brasserie.`\
 https://nytimes.com/2024/05/13/dining/reopened-waldorf-astoria.html

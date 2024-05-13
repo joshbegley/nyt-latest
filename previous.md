@@ -1,3 +1,7 @@
+**Believe It, Democrats. Biden Could Lose.**\
+`Wake up, Mr. President!`\
+https://nytimes.com/live/2024/05/07/opinion/thepoint/biden-polls-swing-states
+
 **Waldorf Astoria Taps Gramercy Tavern Chef for New Restaurant**\
 `When the hotel reopens later this year, Michael Anthony will serve as culinary consultant and create an as-yet-unnamed American brasserie.`\
 https://nytimes.com/2024/05/13/dining/reopened-waldorf-astoria.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/13/nyregion/michael-cohen-felony-charge-prison-trump
 **California Considers Limits on Self-Service Checkout**\
 `A legislative package aimed at reducing retail crime includes a requirement for much closer supervision of self-checkout in stores.`\
 https://nytimes.com/2024/05/13/us/california-legislature-self-service-checkout.html
-
-**Gallego Places $19 Million Ad Buy in Arizona, the Largest of Any Senate Candidate**\
-`Representative Ruben Gallego is raising and spending money at a torrid pace as he prepares to face Kari Lake in the November election.`\
-https://nytimes.com/2024/05/13/us/politics/gallego-arizona-senate-ads.html
 
