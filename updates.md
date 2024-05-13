@@ -1,3 +1,7 @@
+**White House says Israel still has not provided a plan for protecting civilians in Rafah.**\
+`By David E. Sanger and Zach Montague`\
+https://nytimes.com/2024/05/13/world/middleeast/white-house-says-israel-still-has-not-provided-a-plan-for-protecting-civilians-in-rafah.html
+
 **An aid convoy headed to Gaza is attacked in the West Bank.**\
 `By Johnatan Reiss`\
 https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah/an-aid-convoy-headed-to-gaza-is-attacked-in-the-west-bank
