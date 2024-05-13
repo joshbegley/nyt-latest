@@ -1,3 +1,7 @@
+**Michael Cohen testifies**\
+`Also, the return of Furiosa.`\
+https://nytimes.com/2024/05/13/briefing/trump-trial-polls-westminister.html
+
 **Her A.I. Arm**\
 `Sarah de Lagarde has a bionic limb, powered by artificial intelligence,`\
 https://nytimes.com/card/2024/05/13/business/prosthetic-arm-ai
