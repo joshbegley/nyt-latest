@@ -1,3 +1,7 @@
+**Trump Amps Up ‘Hannibal Lecter’ Reference in Comments About Migrants**\
+`Donald Trump, at his rally in New Jersey, used an extended riff about the 1991 film to demonize migrants at the border.`\
+https://nytimes.com/2024/05/12/us/donald-trump-hannibal-lecter.html
+
 **Fighting Flares Anew in Gaza as Hamas Reconstitutes**\
 `The U.S. secretary of state warned that Israel’s victories over Hamas may not be “sustainable.”`\
 https://nytimes.com/2024/05/12/world/middleeast/israel-hamas-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/12/world/europe/russia-putin-cabinet-war-shoigu.html
 **Student protesters at Johns Hopkins agree to end encampment.**\
 `By Colbi Edmonds`\
 https://nytimes.com/live/2024/05/12/us/college-campus-protests/student-protesters-at-johns-hopkins-agree-to-end-encampment
-
-**Hamas’s top leader in Gaza isn’t in Rafah, U.S. intelligence says.**\
-`U.S. officials say the group’s top official in the Gaza Strip, Yahya Sinwar, is most likely in the tunnels under Khan Younis. That could undercut Israel’s rationale for a major operation in Rafah.`\
-https://nytimes.com/live/2024/05/12/world/israel-gaza-war-hamas-rafah/hamass-top-leader-in-gaza-isnt-in-rafah-us-intelligence-says
 
