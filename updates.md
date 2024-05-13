@@ -1,3 +1,7 @@
+**13mideast-crisis**\
+`Israel Observes a Solemn Memorial Day`\
+https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah
+
 **Wisconsin Cross-Tabs: May 2024 Times/Siena Poll**\
 `Results of a poll by The New York Times and Siena College in Wisconsin from April 28 to May 9, 2024.`\
 https://nytimes.com/interactive/2024/05/13/us/elections/times-siena-poll-wisconsin-crosstabs.html
