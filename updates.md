@@ -1,3 +1,7 @@
+**OpenAI Unveils New ChatGPT That Listens, Looks and Talks**\
+`Chatbots, image generators and voice assistants are gradually merging into a single technology with a conversational voice.`\
+https://nytimes.com/2024/05/13/technology/openai-chatgpt-app.html
+
 **OpenAI Unveils New ChatGPT that Listens, Looks and Talks**\
 `Chatbots, image generators and voice assistants are gradually merging into a single technology with a conversational voice.`\
 https://nytimes.com/2024/05/13/technology/openai-chatgpt-app.html
