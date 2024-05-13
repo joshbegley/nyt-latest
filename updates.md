@@ -1,3 +1,7 @@
+**Want to fix Social Security? The Well-Off Must Accept Smaller Checks.**\
+`Voters won’t brook much higher taxes, so Social Security needs to be reoriented toward the poor.`\
+https://nytimes.com/2024/05/13/opinion/social-security-retirement-benefits.html
+
 **Nicole Shanahan Ventures Onto the Stump for Kennedy**\
 `The Silicon Valley lawyer, chosen by Robert F. Kennedy Jr. as his running mate, made her first solo outing on the stump. She is to appear alongside him at a rally on Monday in Austin, Texas.`\
 https://nytimes.com/2024/05/13/us/politics/nicole-shanahan-kennedy-campaign.html

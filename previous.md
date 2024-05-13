@@ -1,3 +1,7 @@
+**Want to fix Social Security? The Well-Off Must Accept Smaller Checks.**\
+`Voters won’t brook much higher taxes, so Social Security needs to be reoriented toward the poor.`\
+https://nytimes.com/2024/05/13/opinion/social-security-retirement-benefits.html
+
 **Nicole Shanahan Ventures Onto the Stump for Kennedy**\
 `The Silicon Valley lawyer, chosen by Robert F. Kennedy Jr. as his running mate, made her first solo outing on the stump. She is to appear alongside him at a rally on Monday in Austin, Texas.`\
 https://nytimes.com/2024/05/13/us/politics/nicole-shanahan-kennedy-campaign.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/13/arts/music/carlos-nino-andre-3000-placenta.html
 **Trump Stays Calm in Court. His Emails Tell a Different Story.**\
 `Donald Trump’s presidential campaign has sent supporters a steady stream of fund-raising solicitations featuring exaggerated portrayals of his days in court.`\
 https://nytimes.com/2024/05/13/us/politics/trump-court-fundraising-emails.html
-
-**George Clooney to Make Broadway Debut in ‘Good Night, and Good Luck’**\
-`A stage adaptation of the film is planned for next spring, with Clooney playing the journalist Edward R. Murrow.`\
-https://nytimes.com/2024/05/13/theater/george-clooney-broadway.html
 
