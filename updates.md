@@ -1,3 +1,15 @@
+**Worry About Women Voters Drove Trump’s Hush-Money Decisions, Cohen Says**\
+`“Guys may think it’s cool, but this is going to be a disaster for the campaign,” Mr. Trump said, according to testimony.`\
+https://nytimes.com/2024/05/13/nyregion/trump-trial-women-voters.html
+
+**Trump Told Cohen Disclosure of His Fling Would Be a ‘Total Disaster’**\
+`A lawyer’s testimony lands blow after blow on the former president.`\
+https://nytimes.com/live/2024/05/07/opinion/thepoint/cohen-trump-trial-testimony
+
+**Play-by-Play and Drawings on an iPad: How Cable TV Covers a TV-Less Trial**\
+`With no cameras recording Donald Trump’s criminal trial, anchors and producers are improvising to animate dramatic moments like Michael Cohen’s testimony.`\
+https://nytimes.com/2024/05/13/business/media/trump-trial-media-tv-coverage.html
+
 **Storms Pummel Mumbai, Killing at Least 8**\
 `Heavy rains and high winds ripped through the financial capital of India, toppling a billboard onto a crowd of people seeking shelter.`\
 https://nytimes.com/2024/05/13/world/asia/mumbai-india-storm-deaths.html
