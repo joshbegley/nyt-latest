@@ -1,3 +1,7 @@
+**University of Wisconsin-Milwaukee and protesters reach a deal to end an encampment.**\
+`By Dan Simmons`\
+https://nytimes.com/live/2024/05/12/us/college-campus-protests/university-of-wisconsin-milwaukee-and-protesters-reach-a-deal-to-end-an-encampment
+
 **Cold Lava and Floods Kill 37 in Indonesia**\
 `Heavy rain on the island of Sumatra caused torrents of rock and ash to flow down a volcano and into nearby towns. At least 17 people were still missing.`\
 https://nytimes.com/2024/05/13/world/asia/cold-lava-indonesia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/12/nyregion/steve-buscemi-attack.html
 **Trump, Bashing Migrants, Likens Them to Hannibal Lecter, Movie Cannibal**\
 `Donald Trump, at his rally in New Jersey, used an extended riff about the 1991 film “The Silence of the Lambs” to demonize migrants at the border.`\
 https://nytimes.com/2024/05/12/us/donald-trump-hannibal-lecter.html
-
-**Fighting Flares Anew in Gaza as Hamas Regroups**\
-`The U.S. secretary of state warned that Israel’s victories over Hamas may not be “sustainable.”`\
-https://nytimes.com/2024/05/12/world/middleeast/israel-hamas-gaza.html
 
