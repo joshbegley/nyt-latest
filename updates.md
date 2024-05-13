@@ -1,3 +1,11 @@
+**Tuesday Briefing: The Prosecution’s Star Witness at the Trump Trial**\
+`Also, Vladimir Putin’s new defense minister.`\
+https://nytimes.com/2024/05/13/world/asia/trump-cohen-putin-shoigu-asia.html
+
+**Michael Cohen’s Riveting Day in Court**\
+`The prosecution’s star witness testified that Trump ordered him to “just do it” and pay Stormy Daniels.`\
+https://nytimes.com/2024/05/13/us/politics/trump-trial-michael-cohen-testimony.html
+
 **Biden Promised Normal. Do Voters Want His Version of It?**\
 `Many voters in a new poll say the country’s political and economic systems need major changes or to be completely torn down. The Biden campaign says it’s not satisfied with business as usual, either.`\
 https://nytimes.com/2024/05/13/us/politics/biden-polls-normalcy.html
