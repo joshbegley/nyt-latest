@@ -1,5 +1,9 @@
-**University of Wisconsin-Milwaukee and protesters reach a deal to end an encampment.**\
-`By Dan Simmons`\
+**Word of the Day: bazaar**\
+`This word has appeared in 103 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/13/learning/word-of-the-day-bazaar.html
+
+**University of Wisconsin-Milwaukee and Protesters Agree to End Encampment.**\
+`As part of the deal, the pro-Palestinian encampment will be down by Tuesday, and the university pledged to join calls for a cease-fire in Gaza, school officials said.`\
 https://nytimes.com/2024/05/12/us/university-of-wisconsin-milwaukee-and-protesters-reach-a-deal-to-end-an-encampment.html
 
 **Cold Lava and Floods Kill 37 in Indonesia**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/13/business/china-bullet-trains-ticket-prices.html
 **Steve Buscemi Is Punched in Random Manhattan Attack**\
 `The actor, who starred in “Boardwalk Empire,” was assaulted by a stranger on Wednesday morning. He was treated at Bellevue Hospital.`\
 https://nytimes.com/2024/05/12/nyregion/steve-buscemi-attack.html
-
-**Trump, Bashing Migrants, Likens Them to Hannibal Lecter, Movie Cannibal**\
-`Donald Trump, at his rally in New Jersey, used an extended riff about the 1991 film “The Silence of the Lambs” to demonize migrants at the border.`\
-https://nytimes.com/2024/05/12/us/donald-trump-hannibal-lecter.html
 
