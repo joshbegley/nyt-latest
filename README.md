@@ -1,3 +1,7 @@
+**Cohen Testifies That Trump Directed Hush-Money Payment**\
+`Michael D.`\
+https://nytimes.com/video/nyregion/100000009465551/cohen-testifies-that-trump-directed-hush-money-payment.html
+
 **Democrats’ Split Over Israel Takes Center Stage in Tense Primary Debate**\
 `A rancorous clash between Representative Jamaal Bowman and his Democratic opponent, George Latimer, exposed sharp divisions in their party.`\
 https://nytimes.com/2024/05/13/nyregion/bowman-latimer-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/13/theater/here-there-are-blueberries-review.html
 **Christopher Edley Jr., Civil Rights Expert Heard by Presidents, Dies at 71**\
 `He pivoted between serving as an adviser to the Carter, Clinton and Obama White Houses and teaching at Harvard and Berkeley, where he was the law school dean.`\
 https://nytimes.com/2024/05/13/obituaries/christopher-edley-jr-dead.html
-
-**An international U.N. worker was killed in Rafah, a first since the conflict began.**\
-`By Farnaz Fassihi`\
-https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah/an-international-un-worker-was-killed-in-rafah-a-first-since-the-conflict-began
 
