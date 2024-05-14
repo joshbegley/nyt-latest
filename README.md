@@ -1,3 +1,7 @@
+**Blinken Plays “Rockin’ in the Free World” for Ukraine Soldiers**\
+`During a visit to Kyiv, Secretary of State Antony Blinken played Neil Young’s “Rockin’ in the Free World” with a local band at a bar in a show of support for Ukraine.`\
+https://nytimes.com/video/us/politics/100000009468857/blinken-guitar-kyiv-ukraine.html
+
 **Cohen Day 2: It’s Trump’s Lawyers’ Turn**\
 `The one-time fixer faced a furious pushback from the defense.`\
 https://nytimes.com/2024/05/14/us/politics/trump-trial-cohen-testimony.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/14/world/asia/cohen-trump-russia-blinken-asia.html
 **Four dogs have already advanced to best in show judging.**\
 `By Benjamin Hoffman`\
 https://nytimes.com/live/2024/05/14/style/westminster-dog-show/four-dogs-have-already-advanced-to-best-in-show-judging
-
-**Here’s how to watch the show.**\
-`By Benjamin Hoffman`\
-https://nytimes.com/live/2024/05/14/style/westminster-dog-show/heres-how-to-watch-the-show
 
