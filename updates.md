@@ -1,3 +1,7 @@
+**Quotation of the Day: Secret Files Show Hamas Spying on Its People**\
+`Quotation of the Day for Tuesday, May 14, 2024.`\
+https://nytimes.com/2024/05/13/pageoneplus/quotation-of-the-day-secret-files-show-hamas-spying-on-its-people.html
+
 **Blinken Arrives in Ukraine Amid Russian Military Gains**\
 `The Biden administration had warned for months that the delay by Congress to approve an aid package would leave the Ukrainians vulnerable.`\
 https://nytimes.com/2024/05/13/us/politics/blinken-ukraine-russia-war.html
