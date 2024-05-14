@@ -1,6 +1,6 @@
 **Ship That Hit Baltimore Bridge Had 2 Electrical Failures Before Departure**\
 `A report from the National Transportation Safety Board said crew members had adjusted the electrical configuration of the ship even before it left port.`\
-https://nytimes.com/2024/05/14/us/ntsb-baltimore-bridge-collapse-report.html
+https://nytimes.com/2024/05/14/us/baltimore-bridge-collapse-electrical-failure.html
 
 **American Support for Ukraine has ‘Never Wavered,’ Blinken Says**\
 `Secretary of State Antony J. Blinken made an unannounced visit to Kyiv amid Russian military gains.`\
