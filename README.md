@@ -1,3 +1,11 @@
+**Mike Pence Sought Public Funds as 2024 Presidential Bid Collapsed**\
+`The former vice president found little traction in his campaign and still had more than $1.3 million in unpaid bills at the end of March.`\
+https://nytimes.com/2024/05/14/us/politics/mike-pence-public-funds.html
+
+**Todd Blanche, Who Gambled Gilded Career to Represent Trump, Gets Shot at Cohen**\
+`This case is Mr. Blanche’s second criminal trial as a defense lawyer. He seemed to struggle to land a “gotcha” moment on Tuesday while grilling Michael D. Cohen about a dizzying variety of interactions spanning years.`\
+https://nytimes.com/2024/05/14/nyregion/todd-blanche-who-gambled-gilded-career-to-represent-trump-gets-shot-at-cohen.html
+
 **Covering the Other Manhattan Trial**\
 `Tracey Tully’s reporting domain is New Jersey. But for the next six weeks, she’ll journey across the Hudson River to report on the federal corruption trial of Senator Robert Menendez.`\
 https://nytimes.com/2024/05/14/insider/robert-menendez-trial-reporters.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/europe/100000009467693/blinken-kyiv-ukraine-russ
 **Cohen Tells Jurors of Oval Office Deal to Pay Back the Hush Money**\
 `Michael D. Cohen’s story of an arrangement struck in the White House with Donald Trump was the only personal account tying the former president to falsified documents.`\
 https://nytimes.com/2024/05/14/nyregion/michael-cohen-trump-hush-money-deal.html
-
-**Read the N.T.S.B.’s Preliminary Report on the Baltimore Bridge Collapse**\
-`The 24-page report includes investigators’ initial findings into the collapse of the Francis Scott Key Bridge after it was struck by a container ship.`\
-https://nytimes.com/interactive/2024/05/14/us/baltimore-bridge-collapse-ntsb-report.html
-
-**Restaurant Review: ‘New Nordic’ Isn’t New, but ILIS Adds a Fresh Spin**\
-`Mads Refslund’s creative ideas at this Brooklyn restaurant can be dreamily seductive, even if the execution isn’t always as compelling.`\
-https://nytimes.com/2024/05/14/dining/ilis-restaurant-review.html
 
