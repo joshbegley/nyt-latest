@@ -1,3 +1,7 @@
+**Ethical Lapses in the Medical Profession**\
+`Readers discuss a guest essay by a doctor calling for changes in the medical culture. Also: Columbia donors; a Florida bookstore; a balloon release ban.`\
+https://nytimes.com/2024/05/14/opinion/medicine-ethics.html
+
 **After Living Much of Life at Sea, Captain Sandy Finds Love on Land**\
 `Sandy Yawn of “Below Deck Mediterranean” married Leah Shafer on — what else? — a superyacht in Florida.`\
 https://nytimes.com/2024/05/14/style/captain-sandy-yawn-wedding-leah-shafer.html
@@ -8,7 +12,7 @@ https://nytimes.com/2024/05/14/technology/ai-chatgpt-her-movie.html
 
 **Fed Chair’s Confidence in Slowing Inflation Is ‘Not as High’ as Before**\
 `Jerome H. Powell, the Federal Reserve chair, said that the central bank was poised to leave interest rates on hold after surprisingly stubborn inflation.`\
-https://nytimes.com/2024/05/14/business/economy/fed-chairs-confidence-in-slowing-inflation-is-not-as-high-as-before.html
+https://nytimes.com/2024/05/14/business/economy/fed-powell-inflation.html
 
 **A Top Chef Winner Finds a New Italian Perch**\
 `Harold Dieterle, the winner of the first season of “Top Chef,” is opening Il Totano in the West Village, Marsanne NYC serves Mediterranean food in a 150-seat space and more restaurant news.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/14/nyregion/trump-trial-michael-cohen-credibility.ht
 **Summer 2023 Was the Northern Hemisphere’s Hottest in 2,000 Years, Study Finds**\
 `Scientists used tree rings to compare last year’s extreme heat with temperatures over the past two millenniums.`\
 https://nytimes.com/2024/05/14/climate/summer-2023-hottest-2000-years.html
-
-**Podcasters as TV Heroes? We’re All Ears**\
-`Why have podcasters emerged as the rumpled protagonists of numerous television shows? We’ll discuss after the break.`\
-https://nytimes.com/2024/05/14/arts/television/bodkin-podcasting-tv.html
 
