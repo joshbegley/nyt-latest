@@ -1,3 +1,19 @@
+**Wednesday Briefing: Michael Cohen Faced Donald Trump’s Lawyers**\
+`Also, Antony Blinken visited Kyiv and President Biden announced new Chinese tariffs.`\
+https://nytimes.com/2024/05/14/world/asia/cohen-trump-russia-blinken-asia.html
+
+**Four dogs have already advanced to best in show judging.**\
+`By Benjamin Hoffman`\
+https://nytimes.com/live/2024/05/14/style/westminster-dog-show/four-dogs-have-already-advanced-to-best-in-show-judging
+
+**Here’s how to watch the show.**\
+`By Benjamin Hoffman`\
+https://nytimes.com/live/2024/05/14/style/westminster-dog-show/heres-how-to-watch-the-show
+
+**Meet Westminster’s newest dog, the Lancashire heeler.**\
+`By Callie Holtermann`\
+https://nytimes.com/live/2024/05/14/style/westminster-dog-show/meet-westminsters-newest-dog-the-lancashire-heeler
+
 **Ship That Hit Baltimore Bridge Had 2 Electrical Failures Before Departure**\
 `A report from the National Transportation Safety Board said crew members had adjusted the electrical configuration of the ship even before it left port.`\
 https://nytimes.com/2024/05/14/us/baltimore-bridge-collapse-electrical-failure.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/05/14/dining/ilis-restaurant-review.html
 **Blinken Tells Ukraine ‘You Are Not Alone’ as Russia’s Military Makes Gains**\
 `The Biden administration had warned for months that Congress’s delay in approving an aid package would leave the Ukrainians vulnerable.`\
 https://nytimes.com/2024/05/14/us/politics/blinken-ukraine-russia-war.html
-
-**Top Republicans Come Face to Face With Trump’s Seamy Past**\
-`Does the House speaker really know what it means to join Trumpworld?`\
-https://nytimes.com/live/2024/05/14/opinion/thepoint/trump-trial-johnson-republicans
-
-**Preparing for the Second China Shock**\
-`Why the Biden administration is imposing new tariffs.`\
-https://nytimes.com/2024/05/14/opinion/china-imports-tariffs-biden.html
-
-**Tiny Love Stories: ‘God, You Can Kiss’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2024/05/14/style/tiny-modern-love-stories-god-you-can-kiss.html
-
-**Under Fire for ‘Toxic’ Work Culture, Bank Regulator Apologizes Again**\
-`A scathing report revealed a culture of widespread sexual harassment and discrimination at the Federal Deposit Insurance Corporation. Martin Gruenberg will testify on Capitol Hill starting on Wednesday.`\
-https://nytimes.com/2024/05/14/business/fdic-gruenberg-apologizes.html
 
