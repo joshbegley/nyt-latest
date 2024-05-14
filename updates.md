@@ -1,3 +1,7 @@
+**Protests Break Out in New Caledonia**\
+`Protesters set up blockades and started fires on roads as French authorities in the semiautonomous territory imposed a curfew on the capital.`\
+https://nytimes.com/video/world/asia/100000009467071/new-caledonia-curfew-protests.html
+
 **Stephen Colbert Declares Trump to Be ‘Past His Expiration Date’**\
 `Michael Cohen’s testimony gave the host plenty of fodder, especially when he described Donald Trump speculating about going back “on the market.”`\
 https://nytimes.com/2024/05/14/arts/television/stephen-colbert-michael-cohen-trump.html
