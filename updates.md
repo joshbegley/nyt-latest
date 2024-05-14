@@ -1,3 +1,15 @@
+**‘Don’t Flip, Don’t Speak’: How a Lawyer Became Cohen’s Back Channel to Trump**\
+`Robert J. Costello relayed messages to Michael D. Cohen telling him not to flip, Mr. Cohen said. But a web of alliances fell apart over unpaid bills.`\
+https://nytimes.com/2024/05/14/nyregion/robert-costello-lawyer-cohen-trump.html
+
+**Hades II’s Eternal Pursuit of a Tantalizing Past**\
+`The video game sequel’s central character struggles to exhume the memory of her former life. Out of the pandemic, our futures are just as murky.`\
+https://nytimes.com/2024/05/14/arts/hades-2.html
+
+**The Increase in Drowning Deaths Should Be a National Priority**\
+`Swimming lessons are not a luxury.`\
+https://nytimes.com/live/2024/05/07/opinion/thepoint/drowning-deaths-swimming
+
 **Russia Detains Senior General, Widening Military Purge**\
 `Lt. Gen. Yuri Kuznetsov became the second senior defense official to be detained on an accusation of corruption in the past month.`\
 https://nytimes.com/2024/05/14/world/europe/russia-detains-general-yuri-kuznetsov.html
