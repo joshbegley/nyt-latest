@@ -1,3 +1,7 @@
+**OpenAI’s Chief Scientist and Co-Founder Is Leaving the Company**\
+`In November, Ilya Sutskever joined three other OpenAI board members to force out Sam Altman, the chief executive, before saying he regretted the move.`\
+https://nytimes.com/2024/05/14/technology/ilya-sutskever-leaving-openai.html
+
 **Fossil Catches Starfish Cousin in the Act of Cloning Itself**\
 `The brittle star specimen suggests that the sea creatures have been splitting themselves in two to reproduce for more than 150 million years.`\
 https://nytimes.com/2024/05/14/science/fossil-cloning-brittle-star.html
