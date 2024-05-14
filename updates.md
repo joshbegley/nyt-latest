@@ -1,3 +1,7 @@
+**The Great Gucci Gamble Comes to London**\
+`Turnarounds are hard, especially when the stakes are high. Can Sabato De Sarno deliver the goods with his debut cruise collection at the Tate Modern?`\
+https://nytimes.com/2024/05/14/style/gucci-london-cruise-collection.html
+
 **Comcast Plans Streaming Bundle With Netflix, Apple TV+**\
 `The bundle, called StreamSaver, is the latest joint effort from entertainment companies looking to woo price-weary customers.`\
 https://nytimes.com/2024/05/14/business/media/comcast-streaming-bundle-netflix-apple-tv.html

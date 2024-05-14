@@ -1,3 +1,7 @@
+**The Great Gucci Gamble Comes to London**\
+`Turnarounds are hard, especially when the stakes are high. Can Sabato De Sarno deliver the goods with his debut cruise collection at the Tate Modern?`\
+https://nytimes.com/2024/05/14/style/gucci-london-cruise-collection.html
+
 **Comcast Plans Streaming Bundle With Netflix, Apple TV+**\
 `The bundle, called StreamSaver, is the latest joint effort from entertainment companies looking to woo price-weary customers.`\
 https://nytimes.com/2024/05/14/business/media/comcast-streaming-bundle-netflix-apple-tv.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/14/us/politics/air-traffic-controllers-job-relocatio
 **Give It Up for the Golden State Valkyries**\
 `The W.N.B.A.’s 13th team, the first new franchise to join the league since 2008, will be called the Valkyries and will play at Chase Center in San Francisco starting next year.`\
 https://nytimes.com/2024/05/14/us/wnba-golden-state-valkyries.html
-
-**The Legacy of Steve Albini, Rock’s Uncompromising Force**\
-`A conversation about one of the most admired, and divisive, figures in music.`\
-https://nytimes.com/2024/05/14/arts/music/popcast-steve-albini.html
 
