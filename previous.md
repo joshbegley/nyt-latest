@@ -1,3 +1,11 @@
+**8 Killed After Bus Carrying Farm Workers Crashes in Central Florida**\
+`Another 40 passengers who had been on the bus were taken to nearby hospitals to be treated for injuries, the local authorities said.`\
+https://nytimes.com/2024/05/14/us/florida-bus-crash-deaths.html
+
+**Trump Prosecutors Have Leaned In to Questions on Cohen’s Credibility**\
+`Witnesses called by the prosecution in Donald J. Trump’s criminal trial have given their unvarnished views on Michael D. Cohen, the case’s star witness.`\
+https://nytimes.com/2024/05/14/nyregion/trump-trial-michael-cohen-credibility.html
+
 **Summer 2023 Was the Northern Hemisphere’s Hottest in 2,000 Years, Study Finds**\
 `Scientists used tree rings to compare last year’s extreme heat with temperatures over the past two millenniums.`\
 https://nytimes.com/2024/05/14/climate/summer-2023-hottest-2000-years.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/14/business/media/comcast-streaming-bundle-netflix-a
 **How Has Trump Changed the G.O.P.? His Criminal-Trial Guest List Tells the Tale.**\
 `The former president’s trial has become a staging ground for aspiring allies to prove their fealty, the latest litmus test in a party increasingly defined by loyalty to Donald Trump.`\
 https://nytimes.com/2024/05/14/us/politics/trump-trial-republican-guests.html
-
-**Kenya Rallies Police Officers Ahead of Haiti Deployment**\
-`The East African country is preparing to send hundreds of police officers as the first wave of a multinational force aimed at stabilizing the chaos-ridden Caribbean nation.`\
-https://nytimes.com/2024/05/14/world/africa/kenya-haiti-police.html
-
-**Harvard Reaches Agreement With Protesters to End Encampment**\
-`The university agreed to discuss divestment and to reinstate suspended students.`\
-https://nytimes.com/2024/05/14/us/harvard-encampment-gaza-protest.html
 

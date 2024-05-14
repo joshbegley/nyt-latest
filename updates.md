@@ -1,3 +1,11 @@
+**8 Killed After Bus Carrying Farm Workers Crashes in Central Florida**\
+`Another 40 passengers who had been on the bus were taken to nearby hospitals to be treated for injuries, the local authorities said.`\
+https://nytimes.com/2024/05/14/us/florida-bus-crash-deaths.html
+
+**Trump Prosecutors Have Leaned In to Questions on Cohen’s Credibility**\
+`Witnesses called by the prosecution in Donald J. Trump’s criminal trial have given their unvarnished views on Michael D. Cohen, the case’s star witness.`\
+https://nytimes.com/2024/05/14/nyregion/trump-trial-michael-cohen-credibility.html
+
 **Summer 2023 Was the Northern Hemisphere’s Hottest in 2,000 Years, Study Finds**\
 `Scientists used tree rings to compare last year’s extreme heat with temperatures over the past two millenniums.`\
 https://nytimes.com/2024/05/14/climate/summer-2023-hottest-2000-years.html
