@@ -1,3 +1,7 @@
+**14trump-trial**\
+`Live Updates: Cohen Will Continue Testifying at Trump Trial After Steady Turn on Stand`\
+https://nytimes.com/live/2024/05/14/nyregion/trump-trial-news-michael-cohen
+
 **Acclaimed Iranian Film Director Flees Country After Jail Sentence**\
 `Mohammad Rasoulof, known for the award-winning “There Is No Evil,” had been barred from leaving Iran after his work criticized the country’s clerical leadership.`\
 https://nytimes.com/2024/05/14/world/middleeast/iran-director-rasoulof.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/14/world/israel-gaza-war-hamas-rafah/israel-and
 **The Influence of R.F.K. Jr.**\
 `What the independent candidate is emphasizing in his speeches — and which voters support him.`\
 https://nytimes.com/2024/05/14/briefing/robert-f-kennedy-jr-2024-election.html
-
-**Cohen Lays Out Hush-Money Plot, and Protest Shadows Israeli Holiday**\
-`Plus, a diss track tops the charts.`\
-https://nytimes.com/2024/05/14/podcasts/cohen-testimony-israel-memorial-day-protest.html
 
