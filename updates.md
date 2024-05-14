@@ -1,3 +1,7 @@
+**Curfew Imposed as Protesters Clash With Police in New Caledonia**\
+`The unrest was triggered by a plan to let more French citizens vote in the territory, which independence activists say would water down their movement.`\
+https://nytimes.com/2024/05/14/world/asia/new-caledonia-curfew-protests.html
+
 **Cohen Faces a Tough Cross-Examination After a Steady Turn on the Stand**\
 `Donald J. Trump’s lawyers are likely to attack the credibility and composure of his former fixer, whose testimony will continue Tuesday.`\
 https://nytimes.com/2024/05/14/nyregion/cohen-testimony-hush-money-trial.html

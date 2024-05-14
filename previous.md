@@ -1,3 +1,7 @@
+**Curfew Imposed as Protesters Clash With Police in New Caledonia**\
+`The unrest was triggered by a plan to let more French citizens vote in the territory, which independence activists say would water down their movement.`\
+https://nytimes.com/2024/05/14/world/asia/new-caledonia-curfew-protests.html
+
 **Cohen Faces a Tough Cross-Examination After a Steady Turn on the Stand**\
 `Donald J. Trump’s lawyers are likely to attack the credibility and composure of his former fixer, whose testimony will continue Tuesday.`\
 https://nytimes.com/2024/05/14/nyregion/cohen-testimony-hush-money-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/14/crosswords/spelling-bee-forum.html
 **Alarmed by Climate Change, Astronomers Train Their Sights on Earth**\
 `A growing number of researchers in the field are using their expertise to fight the climate crisis.`\
 https://nytimes.com/2024/05/14/science/astronomy-climate-change.html
-
-**A Jobs Program Broke the Rules to Succeed. Now the Rules May Change.**\
-`Pursuit, a nonprofit that trains low-income workers to become software engineers, is urging New York legislators to pass a new regulatory model for jobs programs.`\
-https://nytimes.com/2024/05/14/nyregion/pursuit-job-training-low-income.html
 
