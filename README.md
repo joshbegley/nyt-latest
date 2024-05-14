@@ -1,3 +1,7 @@
+**Can Google Give A.I. Answers Without Breaking the Web?**\
+`Publishers have long worried that artificial intelligence would drive readers away from their sites. They’re about to find out if those fears are warranted.`\
+https://nytimes.com/2024/05/14/technology/google-ai-answers.html
+
 **U.K. Summons Chinese Ambassador for Reprimand as Tensions Rise**\
 `Britain’s foreign office said it had reprimanded the Chinese ambassador, a day after three men were charged with assisting the Hong Kong intelligence service.`\
 https://nytimes.com/2024/05/14/world/europe/uk-summons-chinese-ambassador-for-reprimand-as-tensions-rise.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/14/arts/music/daniel-kramer-dead.html
 **Bus Crash Kills Migrant Farm Workers in Central Florida**\
 `At least eight people were killed and dozens of others injured when a bus carrying migrant farm workers collided with a pickup truck in Central Florida.`\
 https://nytimes.com/video/us/100000009467721/bus-crash-florida-marion-migrant-farm-workers.html
-
-**German Court Fines Far-Right Leader for Using Nazi Phrase**\
-`Björn Höcke, a state leader of the nationalist Alternative for Germany party, repeatedly used the phrase “Everything for Germany,” a slogan of the Nazi paramilitary wing, during campaign stops.`\
-https://nytimes.com/2024/05/14/world/europe/germany-afd-nazi-hocke.html
 
