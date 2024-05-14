@@ -1,3 +1,7 @@
+**American Support for Ukraine has ‘Never Wavered,’ Blinken Says**\
+`Secretary of State Antony J. Blinken made an unannounced visit to Kyiv amid Russian military gains.`\
+https://nytimes.com/video/world/europe/100000009467693/blinken-kyiv-ukraine-russia.html
+
 **Cohen Tells Jurors of Oval Office Deal to Pay Back the Hush Money**\
 `Michael D. Cohen’s story of an arrangement struck in the White House with Donald Trump was the only personal account tying the former president to falsified documents.`\
 https://nytimes.com/2024/05/14/nyregion/michael-cohen-trump-hush-money-deal.html
