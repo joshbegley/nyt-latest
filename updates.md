@@ -1,3 +1,11 @@
+**Anti-Abortion Activist Who Led Blockade of Clinic Gets Nearly 5 Years in Prison**\
+`Lauren Handy, who drew widespread attention after human fetal remains were found at her home, was sentenced to 57 months in prison for her role in a 2020 blockade of a reproductive health clinic.`\
+https://nytimes.com/2024/05/14/us/anti-abortion-activist-sentenced.html
+
+**Where’s the Devastating Takedown of Michael Cohen that Trump Needs?**\
+`The defense team is struggling with its most basic task.`\
+https://nytimes.com/live/2024/05/14/opinion/thepoint/trump-trial-cohen-cross
+
 **Striker’s journey from fan favorite to ‘dog influencer.’**\
 `By Sarah Lyall`\
 https://nytimes.com/live/2024/05/14/style/westminster-dog-show/strikers-journey-from-fan-favorite-to-dog-influencer

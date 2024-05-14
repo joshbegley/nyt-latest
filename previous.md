@@ -1,3 +1,11 @@
+**Anti-Abortion Activist Who Led Blockade of Clinic Gets Nearly 5 Years in Prison**\
+`Lauren Handy, who drew widespread attention after human fetal remains were found at her home, was sentenced to 57 months in prison for her role in a 2020 blockade of a reproductive health clinic.`\
+https://nytimes.com/2024/05/14/us/anti-abortion-activist-sentenced.html
+
+**Where’s the Devastating Takedown of Michael Cohen that Trump Needs?**\
+`The defense team is struggling with its most basic task.`\
+https://nytimes.com/live/2024/05/14/opinion/thepoint/trump-trial-cohen-cross
+
 **Striker’s journey from fan favorite to ‘dog influencer.’**\
 `By Sarah Lyall`\
 https://nytimes.com/live/2024/05/14/style/westminster-dog-show/strikers-journey-from-fan-favorite-to-dog-influencer
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/14/business/media/tiktok-creators-sue-ban.html
 **Blinken Plays “Rockin’ in the Free World” for Ukraine Soldiers**\
 `During a visit to Kyiv, Secretary of State Antony Blinken played Neil Young’s “Rockin’ in the Free World” with a local band at a bar in a show of support for Ukraine.`\
 https://nytimes.com/video/us/politics/100000009468857/blinken-guitar-kyiv-ukraine.html
-
-**Cohen Day 2: It’s Trump’s Lawyers’ Turn**\
-`The one-time fixer faced a furious pushback from the defense.`\
-https://nytimes.com/2024/05/14/us/politics/trump-trial-cohen-testimony.html
-
-**There is more to Westminster than the beauty contest.**\
-`Everyone is familiar with best in show, but the Masters Agility Championship over the weekend is action-packed.`\
-https://nytimes.com/2024/05/14/style/westminster-dog-agility-mixed-breed.html
 
