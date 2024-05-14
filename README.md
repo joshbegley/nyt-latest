@@ -1,3 +1,7 @@
+**Transcript of Trump Manhattan Trial, May 10, 2024**\
+`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
+https://nytimes.com/interactive/2024/05/13/nyregion/trump-hush-money-trial-transcript-may-10.html
+
 **Review: A New Lens on Auschwitz in ‘Here There Are Blueberries’**\
 `Archivists are the heroes of a documentary play about a photograph album depicting daily life among the perpetrators of the Holocaust.`\
 https://nytimes.com/2024/05/13/theater/here-there-are-blueberries-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/13/nyregion/mercer-county-threats-white-people.html
 **Driver of Truck That Hit White House Security Barriers Pleads Guilty**\
 `Sai Varshith Kandula faces up to 10 years in prison on a charge of damaging property. He said he had been planning to install himself as a Nazi-inspired dictator, killing President Biden if needed.`\
 https://nytimes.com/2024/05/13/us/politics/truck-white-house-guilty-plea.html
-
-**An aid convoy headed to Gaza is attacked in the West Bank.**\
-`By Johnatan Reiss`\
-https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah/an-aid-convoy-headed-to-gaza-is-attacked-in-the-west-bank
 
