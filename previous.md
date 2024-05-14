@@ -1,3 +1,7 @@
+**Blinken Arrives in Ukraine Amid Russian Military Gains**\
+`The Biden administration had warned for months that the delay by Congress to approve an aid package would leave the Ukrainians vulnerable.`\
+https://nytimes.com/2024/05/13/us/politics/blinken-ukraine-russia-war.html
+
 **Pub Regular**\
 `Alex Eaton-Salners is just clearing things up.`\
 https://nytimes.com/2024/05/13/crosswords/daily-puzzle-2024-05-14.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/05/13/climate/insurance-homes-climate-chang
 **Transcript of Trump Manhattan Trial, May 10, 2024**\
 `New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
 https://nytimes.com/interactive/2024/05/13/nyregion/trump-hush-money-trial-transcript-may-10.html
-
-**Review: A New Lens on Auschwitz in ‘Here There Are Blueberries’**\
-`Archivists are the heroes of a documentary play about a photograph album depicting daily life among the perpetrators of the Holocaust.`\
-https://nytimes.com/2024/05/13/theater/here-there-are-blueberries-review.html
 
