@@ -1,3 +1,11 @@
+**Alice Munro, a Literary Alchemist Who Made Great Fiction From Humble Lives**\
+`The Nobel Prize-winning author specialized in exacting short stories that were novelistic in scope, spanning decades with intimacy and precision.`\
+https://nytimes.com/2024/05/14/books/review/alice-munro-appraisal.html
+
+**Alice Munro, Nobel Laureate and Master of the Short Story, Dies at 92**\
+`Her stories were widely considered to be without equal, a mixture of ordinary people and extraordinary themes.`\
+https://nytimes.com/2024/05/14/books/alice-munro-dead.html
+
 **Ethical Lapses in the Medical Profession**\
 `Readers discuss a guest essay by a doctor calling for changes in the medical culture. Also: Columbia donors; a Florida bookstore; a balloon release ban.`\
 https://nytimes.com/2024/05/14/opinion/medicine-ethics.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/14/movies/pressure-horace-ove-bam.html
 **8 Killed After Bus Carrying Migrant Workers Crashes in Central Florida**\
 `Another 40 passengers who had been on the bus were taken to nearby hospitals to be treated for injuries, the local authorities said.`\
 https://nytimes.com/2024/05/14/us/florida-bus-crash-deaths.html
-
-**Trump Prosecutors Have Leaned In to Questions on Cohen’s Credibility**\
-`Witnesses called by the prosecution in Donald J. Trump’s criminal trial have given their unvarnished views on Michael D. Cohen, the case’s star witness.`\
-https://nytimes.com/2024/05/14/nyregion/trump-trial-michael-cohen-credibility.html
-
-**Summer 2023 Was the Northern Hemisphere’s Hottest in 2,000 Years, Study Finds**\
-`Scientists used tree rings to compare last year’s extreme heat with temperatures over the past two millenniums.`\
-https://nytimes.com/2024/05/14/climate/summer-2023-hottest-2000-years.html
 
