@@ -1,3 +1,11 @@
+**The Home Insurance Crunch: See What’s Happening in Your State**\
+`Climate change is making homeowners insurance less profitable. How has your state fared over the past decade?`\
+https://nytimes.com/interactive/2024/05/13/climate/home-insurance-profit-us-states-weather.html
+
+**As Insurers Around the U.S. Bleed Cash From Climate Shocks, Homeowners Lose**\
+`It’s not just California and Florida anymore: Insurers are losing money in states around the country, making it harder for homeowners to find coverage and threatening the broader economy.`\
+https://nytimes.com/interactive/2024/05/13/climate/insurance-homes-climate-change-weather.html
+
 **Transcript of Trump Manhattan Trial, May 10, 2024**\
 `New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
 https://nytimes.com/interactive/2024/05/13/nyregion/trump-hush-money-trial-transcript-may-10.html
