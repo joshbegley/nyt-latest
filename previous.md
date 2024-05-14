@@ -1,3 +1,7 @@
+**Stephen Colbert Declares Trump to Be ‘Past His Expiration Date’**\
+`Michael Cohen’s testimony gave the host plenty of fodder, especially when he described Donald Trump speculating about going back “on the market.”`\
+https://nytimes.com/2024/05/14/arts/television/stephen-colbert-michael-cohen-trump.html
+
 **Curfew Imposed Amid Protests in Pacific Territory of New Caledonia**\
 `The unrest was triggered by a plan to let more French citizens vote in the territory, which independence activists say would water down their movement.`\
 https://nytimes.com/2024/05/14/world/asia/new-caledonia-curfew-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/14/business/economy/interest-rate-forecasts.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/05/14/crosswords/spelling-bee-forum.html
-
-**Alarmed by Climate Change, Astronomers Train Their Sights on Earth**\
-`A growing number of researchers in the field are using their expertise to fight the climate crisis.`\
-https://nytimes.com/2024/05/14/science/astronomy-climate-change.html
 
