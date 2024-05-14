@@ -1,3 +1,11 @@
+**14trump-trial**\
+`Live Updates: Cohen Will Continue Testifying at Trump Trial After Steady Turn on Stand`\
+https://nytimes.com/live/2024/05/14/nyregion/trump-trial-news-michael-cohen
+
+**Israel and Hamas battle in Gaza’s north and south.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/05/14/world/israel-gaza-war-hamas-rafah/israel-and-hamas-do-battle-in-gazas-north-and-south
+
 **Acclaimed Iranian Film Director Flees Country After Jail Sentence**\
 `Mohammad Rasoulof, known for the award-winning “There Is No Evil,” had been barred from leaving Iran after his work criticized the country’s clerical leadership.`\
 https://nytimes.com/2024/05/14/world/middleeast/iran-director-rasoulof.html
