@@ -1,3 +1,11 @@
+**‘The Secret Is Out’: Joan Vassos Is the First ‘Golden Bachelorette’**\
+`ABC introduced a new season of the spinoff, after the ratings success of “The Golden Bachelor.”`\
+https://nytimes.com/2024/05/14/style/golden-bachelorette-joan-vassos.html
+
+**Escaped Prisoner Remains At Large After Deadly Ambush in France**\
+`Two prison guards were killed after gunmen opened fire on a prison van to free a drug dealer in northwestern France.`\
+https://nytimes.com/video/world/europe/100000009468771/france-prison-ambush.html
+
 **Trump’s Defense Cast Michael Cohen as Untrustworthy**\
 `Also, Biden increased tariffs on Chinese imports. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/05/14/briefing/trump-defense-michael-cohen-china-tarrifs.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/14/style/bumble-celibacy-ad-apology.html
 **Mike Pence Sought Public Funds as 2024 Presidential Bid Collapsed**\
 `The former vice president found little traction in his campaign and still had more than $1.3 million in unpaid bills at the end of March.`\
 https://nytimes.com/2024/05/14/us/politics/mike-pence-public-funds.html
-
-**Todd Blanche, Who Gambled Gilded Career to Represent Trump, Gets Shot at Cohen**\
-`This case is Mr. Blanche’s second criminal trial as a defense lawyer. He seemed to struggle to land a “gotcha” moment on Tuesday while grilling Michael D. Cohen about a dizzying variety of interactions spanning years.`\
-https://nytimes.com/2024/05/14/nyregion/todd-blanche-trump-lawyer.html
-
-**Covering the Other Manhattan Trial**\
-`Tracey Tully’s reporting domain is New Jersey. But for the next six weeks, she’ll journey across the Hudson River to report on the federal corruption trial of Senator Robert Menendez.`\
-https://nytimes.com/2024/05/14/insider/robert-menendez-trial-reporters.html
 
