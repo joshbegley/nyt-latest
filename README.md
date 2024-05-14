@@ -1,3 +1,11 @@
+**Fossil Catches Starfish Cousin in the Act of Cloning Itself**\
+`The brittle star specimen suggests that the sea creatures have been splitting themselves in two to reproduce for more than 150 million years.`\
+https://nytimes.com/2024/05/14/science/fossil-cloning-brittle-star.html
+
+**What a ‘Free Palestine’ Means in Practice**\
+`Rather than the utopia envisioned by protesters, it would be an Islamist state that persecuted Jews and denied anyone real freedom.`\
+https://nytimes.com/2024/05/14/opinion/what-a-free-palestine-means-in-practice.html
+
 **Cohen on Cross: 5 Takeaways From Trump’s Criminal Trial**\
 `The key prosecution witness faced defense lawyers as the trial nears what may be an unexpectedly early conclusion.`\
 https://nytimes.com/2024/05/14/nyregion/cohen-trump-criminal-trial-takeaways.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/05/14/style/westminster-dog-show/in-1877-the-times
 **‘The Secret Is Out’: Joan Vassos Is the First ‘Golden Bachelorette’**\
 `ABC introduced a new season of the spinoff, after the ratings success of “The Golden Bachelor.”`\
 https://nytimes.com/2024/05/14/style/golden-bachelorette-joan-vassos.html
-
-**Escaped Prisoner Remains At Large After Deadly Ambush in France**\
-`Two prison guards were killed after gunmen opened fire on a prison van to free a drug dealer in northwestern France.`\
-https://nytimes.com/video/world/europe/100000009468771/france-prison-ambush.html
-
-**Trump’s Defense Cast Michael Cohen as Untrustworthy**\
-`Also, Biden increased tariffs on Chinese imports. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2024/05/14/briefing/trump-defense-michael-cohen-china-tarrifs.html
 
