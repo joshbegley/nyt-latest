@@ -1,3 +1,7 @@
+**Acclaimed Iranian Film Director Flees Country After Jail Sentence**\
+`Mohammad Rasoulof, known for the award-winning “There Is No Evil,” had been barred from leaving Iran after his work criticized the country’s clerical leadership.`\
+https://nytimes.com/2024/05/14/world/middleeast/iran-director-rasoulof.html
+
 **Will Biden’s Trade War With China Get Results?**\
 `The White House has imposed $18 billion in new duties on Chinese imports, but it’s unclear how much that will help his economic agenda.`\
 https://nytimes.com/2024/05/14/business/dealbook/biden-trade-war-tariffs-china.html
