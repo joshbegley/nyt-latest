@@ -1,3 +1,7 @@
+**Bus Crash Kills Migrant Farm Workers in Central Florida**\
+`At least eight people were killed and dozens of others injured when a bus carrying migrant farm workers collided with a pickup truck in Central Florida.`\
+https://nytimes.com/video/us/100000009467721/bus-crash-florida-marion-migrant-farm-workers.html
+
 **German Court Fines Far-Right Leader for Using Nazi Phrase**\
 `Björn Höcke, a state leader of the nationalist Alternative for Germany party, repeatedly used the phrase “Everything for Germany,” a slogan of the Nazi paramilitary wing, during campaign stops.`\
 https://nytimes.com/2024/05/14/world/europe/germany-afd-nazi-hocke.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/14/nyregion/mike-johnson-trump-trial.html
 **New York Announces $95 Million Revitalization of Port in Red Hook**\
 `New York City plans to rebuild three piers and add a new cargo crane after taking control of more than 100 acres of the Brooklyn waterfront.`\
 https://nytimes.com/2024/05/14/nyregion/red-hook-redevelopment-shipping.html
-
-**Cannes: Greta Gerwig, Lily Gladstone and the Weight of Politics at the Fest**\
-`The festival opened with questions for the jury about Indigenous representation, #MeToo rumors and other timely topics.`\
-https://nytimes.com/2024/05/14/movies/cannes-jury-greta-gerwig-lily-gladstone.html
 
