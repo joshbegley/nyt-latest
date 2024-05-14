@@ -1,3 +1,7 @@
+**Michael Cohen Is Prosecutors’ Last Witness In Trump’s Trial. Here’s What Happens Next.**\
+`The prosecution is nearing its end. Then, defense lawyers will get their chance to poke holes in the case before the question is put in jurors’ hands.`\
+https://nytimes.com/2024/05/14/nyregion/trump-trial-prosecution-whats-next.html
+
 **Can Google Give A.I. Answers Without Breaking the Web?**\
 `Publishers have long worried that artificial intelligence would drive readers away from their sites. They’re about to find out if those fears are warranted.`\
 https://nytimes.com/2024/05/14/technology/google-ai-answers.html
