@@ -26,9 +26,9 @@ https://nytimes.com/2024/05/14/world/europe/russia-detains-general-yuri-kuznetso
 `Nearly 50 people were needed to get the horses, Damascus and Beau, out of a swampy area and over a makeshift bridge during the rescue in Lebanon, Conn.`\
 https://nytimes.com/2024/05/14/nyregion/horse-rescue-connecticut.html
 
-**U.N. Cites a Lower Death Toll Among Women and Children in Gaza**\
-`The overall count of those killed has not declined, but incomplete information about many of them has prompted the United Nations to use more conservative figures for children and women.`\
-https://nytimes.com/2024/05/14/world/middleeast/un-gaza-death-toll-women-children.html
+**Citing incomplete information on many of those killed, the U.N. lowered its count of women and children.**\
+`The overall count of`\
+https://nytimes.com/live/2024/05/14/world/israel-gaza-war-hamas-rafah/un-gaza-death-toll-women-children
 
 **House Speaker Joins Republicans Visiting Trial to Say What Trump Can’t**\
 `Outside the Manhattan courthouse where Donald J. Trump is being tried on criminal charges, Mike Johnson attacked a key witness who linked the former president to a plan to cover up hush money paid to a porn star.`\
