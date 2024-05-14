@@ -1,3 +1,7 @@
+**Trump’s Defense Cast Michael Cohen as Untrustworthy**\
+`Also, Biden increased tariffs on Chinese imports. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/05/14/briefing/trump-defense-michael-cohen-china-tarrifs.html
+
 **TikTok Creators Sue to Block U.S. Law Requiring Sale or Ban**\
 `The group, whose legal fees are being paid for by the company, said a ban of the app would violate their First Amendment rights.`\
 https://nytimes.com/2024/05/14/business/media/tiktok-creators-sue-ban.html

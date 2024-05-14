@@ -1,3 +1,7 @@
+**Trump’s Defense Cast Michael Cohen as Untrustworthy**\
+`Also, Biden increased tariffs on Chinese imports. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/05/14/briefing/trump-defense-michael-cohen-china-tarrifs.html
+
 **TikTok Creators Sue to Block U.S. Law Requiring Sale or Ban**\
 `The group, whose legal fees are being paid for by the company, said a ban of the app would violate their First Amendment rights.`\
 https://nytimes.com/2024/05/14/business/media/tiktok-creators-sue-ban.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/14/nyregion/todd-blanche-trump-lawyer.html
 **Covering the Other Manhattan Trial**\
 `Tracey Tully’s reporting domain is New Jersey. But for the next six weeks, she’ll journey across the Hudson River to report on the federal corruption trial of Senator Robert Menendez.`\
 https://nytimes.com/2024/05/14/insider/robert-menendez-trial-reporters.html
-
-**Wednesday Briefing: Michael Cohen Faced Donald Trump’s Lawyers**\
-`Also, Antony Blinken visited Kyiv and President Biden announced new Chinese tariffs.`\
-https://nytimes.com/2024/05/14/world/asia/cohen-trump-russia-blinken-asia.html
 
