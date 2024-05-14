@@ -1,3 +1,7 @@
+**Harvard Reaches Agreement With Protesters to End Encampment**\
+`The university agreed to discuss divestment and to reinstate suspended students.`\
+https://nytimes.com/2024/05/14/us/harvard-encampment-gaza-protest.html
+
 **Dozens of Red Lobster Restaurants Are Auctioning Off Equipment**\
 `The seafood chain has been losing money for years. The liquidator behind the auction said more than 50 of its U.S. locations had closed.`\
 https://nytimes.com/2024/05/14/business/red-lobster-closing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/14/climate/climate-change-homeowners-insurance-takea
 **Michael Cohen Idolized Trump and Became His ‘Designated Thug’**\
 `Mr. Cohen first caught Donald J. Trump’s eye during a dispute with the condo board at one of his properties.`\
 https://nytimes.com/2024/05/14/nyregion/michael-cohen-donald-trump.html
-
-**Manhunt Underway in France After Prisoner Escapes in Ambush**\
-`The French authorities said that armed assailants had attacked a prison convoy, killed at least two prison officers and freed an inmate.`\
-https://nytimes.com/2024/05/14/world/europe/france-prison-ambush.html
 
