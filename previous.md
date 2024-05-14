@@ -1,3 +1,7 @@
+**Bumble to Users: You Need Sex. Users to Bumble: Get Lost.**\
+`A new advertising campaign from the dating app set off a firestorm of criticism, prompting the company to apologize.`\
+https://nytimes.com/2024/05/14/style/bumble-celibacy-ad-apology.html
+
 **Mike Pence Sought Public Funds as 2024 Presidential Bid Collapsed**\
 `The former vice president found little traction in his campaign and still had more than $1.3 million in unpaid bills at the end of March.`\
 https://nytimes.com/2024/05/14/us/politics/mike-pence-public-funds.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/14/us/baltimore-bridge-collapse-electrical-failure.h
 **American Support for Ukraine has ‘Never Wavered,’ Blinken Says**\
 `Secretary of State Antony J. Blinken made an unannounced visit to Kyiv amid Russian military gains.`\
 https://nytimes.com/video/world/europe/100000009467693/blinken-kyiv-ukraine-russia.html
-
-**Cohen Tells Jurors of Oval Office Deal to Pay Back the Hush Money**\
-`Michael D. Cohen’s story of an arrangement struck in the White House with Donald Trump was the only personal account tying the former president to falsified documents.`\
-https://nytimes.com/2024/05/14/nyregion/michael-cohen-trump-hush-money-deal.html
 

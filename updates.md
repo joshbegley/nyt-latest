@@ -1,3 +1,7 @@
+**Bumble to Users: You Need Sex. Users to Bumble: Get Lost.**\
+`A new advertising campaign from the dating app set off a firestorm of criticism, prompting the company to apologize.`\
+https://nytimes.com/2024/05/14/style/bumble-celibacy-ad-apology.html
+
 **Mike Pence Sought Public Funds as 2024 Presidential Bid Collapsed**\
 `The former vice president found little traction in his campaign and still had more than $1.3 million in unpaid bills at the end of March.`\
 https://nytimes.com/2024/05/14/us/politics/mike-pence-public-funds.html
