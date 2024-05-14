@@ -1,3 +1,15 @@
+**Russia Detains Senior General, Widening Military Purge**\
+`Lt. Gen. Yuri Kuznetsov became the second senior defense official to be detained on an accusation of corruption in the past month.`\
+https://nytimes.com/2024/05/14/world/europe/russia-detains-general-yuri-kuznetsov.html
+
+**Ropes, Logs and 5 Hours of Effort Save 2 Horses From Mud in Connecticut**\
+`Nearly 50 people were needed to get the horses, Damascus and Beau, out of a swampy area and over a makeshift bridge during the rescue in Lebanon, Conn.`\
+https://nytimes.com/2024/05/14/nyregion/horse-rescue-connecticut.html
+
+**The U.N. Is Citing Lower Casualties for Women and Children in Gaza. What Happened?**\
+`By Matthew Mpoke Bigg, Lauren Leatherby and Abu Bakr Bashir`\
+https://nytimes.com/2024/05/14/world/middleeast/the-un-is-citing-lower-casualties-for-women-and-children-in-gaza-what-happened.html
+
 **House Speaker Joins Republicans Visiting Trial to Say What Trump Can’t**\
 `Outside the Manhattan courthouse where Donald J. Trump is being tried on criminal charges, Mike Johnson attacked a key witness who linked the former president to a plan to cover up hush money paid to a porn star.`\
 https://nytimes.com/2024/05/14/nyregion/mike-johnson-trump-trial.html

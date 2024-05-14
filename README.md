@@ -1,15 +1,3 @@
-**Russia Detains Senior General, Widening Military Purge**\
-`Lt. Gen. Yuri Kuznetsov became the second senior defense official to be detained on an accusation of corruption in the past month.`\
-https://nytimes.com/2024/05/14/world/europe/russia-detains-general-yuri-kuznetsov.html
-
-**Ropes, Logs and 5 Hours of Effort Save 2 Horses From Mud in Connecticut**\
-`Nearly 50 people were needed to get the horses, Damascus and Beau, out of a swampy area and over a makeshift bridge during the rescue in Lebanon, Conn.`\
-https://nytimes.com/2024/05/14/nyregion/horse-rescue-connecticut.html
-
-**The U.N. Is Citing Lower Casualties for Women and Children in Gaza. What Happened?**\
-`By Matthew Mpoke Bigg, Lauren Leatherby and Abu Bakr Bashir`\
-https://nytimes.com/2024/05/14/world/middleeast/the-un-is-citing-lower-casualties-for-women-and-children-in-gaza-what-happened.html
-
 **House Speaker Joins Republicans Visiting Trial to Say What Trump Can’t**\
 `Outside the Manhattan courthouse where Donald J. Trump is being tried on criminal charges, Mike Johnson attacked a key witness who linked the former president to a plan to cover up hush money paid to a porn star.`\
 https://nytimes.com/2024/05/14/nyregion/mike-johnson-trump-trial.html
@@ -37,4 +25,16 @@ https://nytimes.com/2024/05/14/climate/russia-nuclear-uranium-import-ban.html
 **Betty Buckley Is Not Wedded to the Same Old Songs**\
 `The actress is back in concert mode at 76, and doing new material. She’s also looking forward to a bold new take on “Sunset Boulevard.”`\
 https://nytimes.com/2024/05/14/theater/betty-buckley-concert-joes-pub.html
+
+**Alice Munro, a Literary Alchemist Who Made Great Fiction From Humble Lives**\
+`The Nobel Prize-winning author specialized in exacting short stories that were novelistic in scope, spanning decades with intimacy and precision.`\
+https://nytimes.com/2024/05/14/books/review/alice-munro-appraisal.html
+
+**Alice Munro, Nobel Laureate and Master of the Short Story, Dies at 92**\
+`Her stories were widely considered to be without equal, a mixture of ordinary people and extraordinary themes.`\
+https://nytimes.com/2024/05/14/books/alice-munro-dead.html
+
+**Ethical Lapses in the Medical Profession**\
+`Readers discuss a guest essay by a doctor calling for changes in the medical culture. Also: Columbia donors; a Florida bookstore; a balloon release ban.`\
+https://nytimes.com/2024/05/14/opinion/medicine-ethics.html
 
