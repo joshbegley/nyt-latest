@@ -1,3 +1,11 @@
+**Comcast Plans Streaming Bundle With Netflix, Apple TV+**\
+`The bundle, called StreamSaver, is the latest joint effort from entertainment companies looking to woo price-weary customers.`\
+https://nytimes.com/2024/05/14/business/media/comcast-streaming-bundle-netflix-apple-tv.html
+
+**How Has Trump Changed the G.O.P.? His Criminal-Trial Guest List Tells the Tale.**\
+`The former president’s trial has become a staging ground for aspiring allies to prove their fealty, the latest litmus test in a party increasingly defined by loyalty to Donald Trump.`\
+https://nytimes.com/2024/05/14/us/politics/trump-trial-republican-guests.html
+
 **Sherman Turned the Tide of the Civil War. His Sword and Bible Are Now for Sale.**\
 `Other artifacts that were the subject of intense online bidding include Sherman’s annotated copy of Ulysses S. Grant’s memoirs, his childhood algebra book and a family Bible.`\
 https://nytimes.com/2024/05/14/us/civil-war-sword-william-t-sherman.html
