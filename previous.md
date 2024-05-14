@@ -1,3 +1,15 @@
+**Daniel Kramer’s Year With Bob Dylan**\
+`An intimate portrait of a music star on the rise in the 1960s.`\
+https://nytimes.com/2024/05/14/arts/music/daniel-kramers-year-with-bob-dylan.html
+
+**How the Pandemic Reshaped American Gun Violence**\
+`The footprint of gun violence in the U.S. has expanded, as shootings worsened in already suffering neighborhoods and killings spread to new places during the pandemic years.`\
+https://nytimes.com/interactive/2024/05/14/us/gun-homicides-data.html
+
+**Daniel Kramer, Who Photographed Bob Dylan’s Rise, Dies at 91**\
+`For 366 days, he captured intimate images of the singer-songwriter as he changed the look and sound of the 1960s.`\
+https://nytimes.com/2024/05/14/arts/music/daniel-kramer-dead.html
+
 **Bus Crash Kills Migrant Farm Workers in Central Florida**\
 `At least eight people were killed and dozens of others injured when a bus carrying migrant farm workers collided with a pickup truck in Central Florida.`\
 https://nytimes.com/video/us/100000009467721/bus-crash-florida-marion-migrant-farm-workers.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/14/world/europe/russia-detains-general-yuri-kuznetso
 **After Ill-Advised Shortcut, 2 Horses Are Rescued in a 5-Hour Mission**\
 `Nearly 50 people were needed to get the horses, Damascus and Beau, out of a swampy area and over a makeshift bridge during the rescue in Lebanon, Conn.`\
 https://nytimes.com/2024/05/14/nyregion/horse-rescue-connecticut.html
-
-**U.N. Cites a Lower Death Toll Among Women and Children in Gaza**\
-`The overall count of those killed has not declined, but incomplete information about many of them has prompted the United Nations to use more conservative figures for children and women.`\
-https://nytimes.com/2024/05/14/world/middleeast/un-gaza-death-toll-women-children.html
-
-**House Speaker Joins Republicans Visiting Trial to Say What Trump Can’t**\
-`Outside the Manhattan courthouse where Donald J. Trump is being tried on criminal charges, Mike Johnson attacked a key witness who linked the former president to a plan to cover up hush money paid to a porn star.`\
-https://nytimes.com/2024/05/14/nyregion/mike-johnson-trump-trial.html
-
-**New York Announces $95 Million Revitalization of Port in Red Hook**\
-`New York City plans to rebuild three piers and add a new cargo crane after taking control of more than 100 acres of the Brooklyn waterfront.`\
-https://nytimes.com/2024/05/14/nyregion/red-hook-redevelopment-shipping.html
 

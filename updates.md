@@ -1,3 +1,15 @@
+**Daniel Kramer’s Year With Bob Dylan**\
+`An intimate portrait of a music star on the rise in the 1960s.`\
+https://nytimes.com/2024/05/14/arts/music/daniel-kramers-year-with-bob-dylan.html
+
+**How the Pandemic Reshaped American Gun Violence**\
+`The footprint of gun violence in the U.S. has expanded, as shootings worsened in already suffering neighborhoods and killings spread to new places during the pandemic years.`\
+https://nytimes.com/interactive/2024/05/14/us/gun-homicides-data.html
+
+**Daniel Kramer, Who Photographed Bob Dylan’s Rise, Dies at 91**\
+`For 366 days, he captured intimate images of the singer-songwriter as he changed the look and sound of the 1960s.`\
+https://nytimes.com/2024/05/14/arts/music/daniel-kramer-dead.html
+
 **After Ill-Advised Shortcut, 2 Horses Are Rescued in a 5-Hour Mission**\
 `Nearly 50 people were needed to get the horses, Damascus and Beau, out of a swampy area and over a makeshift bridge during the rescue in Lebanon, Conn.`\
 https://nytimes.com/2024/05/14/nyregion/horse-rescue-connecticut.html
