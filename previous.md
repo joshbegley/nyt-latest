@@ -31,7 +31,7 @@ https://nytimes.com/2024/05/14/world/europe/france-prison-ambush.html
 https://nytimes.com/live/2024/05/14/nyregion/trump-trial-news-michael-cohen
 
 **Acclaimed Iranian Film Director Flees Country After Jail Sentence**\
-`Mohammad Rasoulof, known for the award-winning “There Is No Evil,” had been barred from leaving Iran after his work criticized the country’s clerical leadership.`\
+`Mohammad Rasoulof, known for the award-winning “There Is No Evil,” had been barred from leaving Iran after his work criticized Iran’s authoritarian rule.`\
 https://nytimes.com/2024/05/14/world/middleeast/iran-director-rasoulof.html
 
 **Will Biden’s Trade War With China Get Results?**\

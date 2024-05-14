@@ -1,3 +1,7 @@
+**Acclaimed Iranian Film Director Flees Country After Jail Sentence**\
+`Mohammad Rasoulof, known for the award-winning “There Is No Evil,” had been barred from leaving Iran after his work criticized Iran’s authoritarian rule.`\
+https://nytimes.com/2024/05/14/world/middleeast/iran-director-rasoulof.html
+
 **Disruptions Loom as 17 Air Traffic Controllers Balk at Job Relocation**\
 `The F.A.A. is clashing with workers over efforts to relocate them from New York to Philadelphia. Senator Chuck Schumer has denounced the plan.`\
 https://nytimes.com/2024/05/14/us/politics/air-traffic-controllers-job-relocation.html
