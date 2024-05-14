@@ -1,3 +1,7 @@
+**Bus Crash Kills Migrant Farm Workers in Central Florida**\
+`At least eight people were killed and dozens of others injured when a bus carrying migrant farm workers collided with a pickup truck in Central Florida.`\
+https://nytimes.com/video/us/100000009467721/bus-crash-florida-marion-migrant-farm-workers.html
+
 **German Court Fines Far-Right Leader for Using Nazi Phrase**\
 `Björn Höcke, a state leader of the nationalist Alternative for Germany party, repeatedly used the phrase “Everything for Germany,” a slogan of the Nazi paramilitary wing, during campaign stops.`\
 https://nytimes.com/2024/05/14/world/europe/germany-afd-nazi-hocke.html
