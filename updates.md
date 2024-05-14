@@ -1,3 +1,7 @@
+**Roman Polanski Did Not Defame British Actress, French Court Rules**\
+`Charlotte Lewis, who says the director raped her in the 1980s, brought the lawsuit against him over an interview in which he called the accusations an “odious lie.”`\
+https://nytimes.com/2024/05/14/world/europe/roman-polanski-charlotte-lewis-defamation-france.html
+
 **Acclaimed Iranian Film Director Flees Country After Jail Sentence**\
 `Mohammad Rasoulof, known for the award-winning “There Is No Evil,” had been barred from leaving Iran after his work criticized Iran’s authoritarian rule.`\
 https://nytimes.com/2024/05/14/world/middleeast/iran-director-rasoulof.html

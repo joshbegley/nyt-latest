@@ -26,10 +26,6 @@ https://nytimes.com/2024/05/14/nyregion/michael-cohen-donald-trump.html
 `The French authorities said that hundreds of officers had been deployed to track down a prisoner who had escaped and the assailants who had helped him.`\
 https://nytimes.com/2024/05/14/world/europe/france-prison-ambush.html
 
-**14trump-trial**\
-`Live Updates: Cohen Will Continue Testifying at Trump Trial After Steady Turn on Stand`\
-https://nytimes.com/live/2024/05/14/nyregion/trump-trial-news-michael-cohen
-
 **Acclaimed Iranian Film Director Flees Country After Jail Sentence**\
 `Mohammad Rasoulof, known for the award-winning “There Is No Evil,” had been barred from leaving Iran after his work criticized Iran’s authoritarian rule.`\
 https://nytimes.com/2024/05/14/world/middleeast/iran-director-rasoulof.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/05/14/world/middleeast/iran-director-rasoulof.html
 **Will Biden’s Trade War With China Get Results?**\
 `The White House has imposed $18 billion in new duties on Chinese imports, but it’s unclear how much that will help his economic agenda.`\
 https://nytimes.com/2024/05/14/business/dealbook/biden-trade-war-tariffs-china.html
+
+**Roman Polanski Did Not Defame British Actress, French Court Rules**\
+`Charlotte Lewis, who says the director raped her in the 1980s, brought the lawsuit against him over an interview in which he called the accusations an “odious lie.”`\
+https://nytimes.com/2024/05/14/world/europe/roman-polanski-charlotte-lewis-defamation-france.html
 
