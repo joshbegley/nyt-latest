@@ -1,3 +1,7 @@
+**Meet your bloggers (and their pets).**\
+`By Benjamin Hoffman`\
+https://nytimes.com/live/2024/05/14/style/westminster-dog-show/meet-your-bloggers-and-their-pets
+
 **Review: A Text-to-Speech Meet-Cute in ‘All of Me’**\
 `Laura Winters’s romantic comedy pays careful attention to the dynamics of living with disabilities.`\
 https://nytimes.com/2024/05/14/theater/all-of-me-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/14/us/anti-abortion-activist-sentenced.html
 **Where’s the Devastating Takedown of Michael Cohen That Trump Needs?**\
 `The defense team is struggling with its most basic task.`\
 https://nytimes.com/live/2024/05/14/opinion/thepoint/trump-trial-cohen-cross
-
-**Striker’s journey from fan favorite to ‘dog influencer.’**\
-`By Sarah Lyall`\
-https://nytimes.com/live/2024/05/14/style/westminster-dog-show/strikers-journey-from-fan-favorite-to-dog-influencer
 
