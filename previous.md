@@ -1,3 +1,11 @@
+**Cohen Tells Jurors of Oval Office Deal to Pay Back the Hush Money**\
+`Michael D. Cohen’s story of an arrangement struck in the White House with Donald Trump was the only personal account tying the former president to falsified documents.`\
+https://nytimes.com/2024/05/14/nyregion/michael-cohen-trump-hush-money-deal.html
+
+**Read the N.T.S.B.’s Preliminary Report on the Baltimore Bridge Collapse**\
+`The 24-page report includes investigators’ initial findings into the collapse of the Francis Scott Key Bridge after it was struck by a container ship.`\
+https://nytimes.com/interactive/2024/05/14/us/baltimore-bridge-collapse-ntsb-report.html
+
 **Restaurant Review: ‘New Nordic’ Isn’t New, but ILIS Adds a Fresh Spin**\
 `Mads Refslund’s creative ideas at this Brooklyn restaurant can be dreamily seductive, even if the execution isn’t always as compelling.`\
 https://nytimes.com/2024/05/14/dining/ilis-restaurant-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/14/nyregion/trump-trial-prosecution-whats-next.html
 **Can Google Give A.I. Answers Without Breaking the Web?**\
 `Publishers have long worried that artificial intelligence would drive readers away from their sites. They’re about to find out if those fears are warranted.`\
 https://nytimes.com/2024/05/14/technology/google-ai-answers.html
-
-**U.K. Summons Chinese Ambassador for Reprimand as Tensions Rise**\
-`Britain’s foreign office said it had reprimanded the Chinese ambassador, a day after three men were charged with assisting the Hong Kong intelligence service.`\
-https://nytimes.com/2024/05/14/world/europe/uk-china-ambassador-hong-kong-intelligence.html
-
-**Meeting Yourself Where You’re At**\
-`Whether you’re still in school, looking for a job or already working, we have some tips for you.`\
-https://nytimes.com/2024/05/14/your-money/budgeting-money.html
 

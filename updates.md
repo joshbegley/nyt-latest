@@ -1,3 +1,11 @@
+**Cohen Tells Jurors of Oval Office Deal to Pay Back the Hush Money**\
+`Michael D. Cohen’s story of an arrangement struck in the White House with Donald Trump was the only personal account tying the former president to falsified documents.`\
+https://nytimes.com/2024/05/14/nyregion/michael-cohen-trump-hush-money-deal.html
+
+**Read the N.T.S.B.’s Preliminary Report on the Baltimore Bridge Collapse**\
+`The 24-page report includes investigators’ initial findings into the collapse of the Francis Scott Key Bridge after it was struck by a container ship.`\
+https://nytimes.com/interactive/2024/05/14/us/baltimore-bridge-collapse-ntsb-report.html
+
 **Top Republicans Come Face to Face With Trump’s Seamy Past**\
 `Does the House speaker really know what it means to join Trumpworld?`\
 https://nytimes.com/live/2024/05/14/opinion/thepoint/trump-trial-johnson-republicans
