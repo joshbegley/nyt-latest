@@ -1,3 +1,7 @@
+**What It’s Like Inside the Courtroom at Trump’s Manhattan Criminal Trial**\
+`The courtroom where Donald J. Trump’s trial is being held is on the large side, but still too small to contain the vast interest in the case.`\
+https://nytimes.com/2024/05/14/nyregion/trump-hush-money-trial-courtroom.html
+
 **4 Takeaways From Our Homeowners Insurance Investigation**\
 `Across the country, more intense heat, storms and fires are causing the home insurance market to start to buckle.`\
 https://nytimes.com/2024/05/14/climate/climate-change-homeowners-insurance-takeaways.html

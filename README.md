@@ -1,3 +1,7 @@
+**The Legacy of Steve Albini, Rock’s Uncompromising Force**\
+`A conversation about one of the most admired, and divisive, figures in music.`\
+https://nytimes.com/2024/05/14/arts/music/popcast-steve-albini.html
+
 **What It’s Like Inside the Courtroom at Trump’s Manhattan Criminal Trial**\
 `The courtroom where Donald J. Trump’s trial is being held is on the large side, but still too small to contain the vast interest in the case.`\
 https://nytimes.com/2024/05/14/nyregion/trump-hush-money-trial-courtroom.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/14/world/europe/roman-polanski-charlotte-lewis-defam
 **Georgia’s Parliament Gives Final Approval to ‘Foreign Agents’ Measure**\
 `The president has vowed to veto the legislation, which critics say could push the country back into Russia’s orbit. The governing party says it can override a veto.`\
 https://nytimes.com/2024/05/14/world/europe/georgia-parliament-foreign-agents-bill.html
-
-**Revival of Meme Stock Mania Continues for GameStop and AMC**\
-`A heady market rally extended to a second day after Keith Gill, the trader known as Roaring Kitty who rallied small investors to buy out-of-favor stocks in the pandemic, returned to social media.`\
-https://nytimes.com/2024/05/14/business/dealbook/gamestop-amc-meme-stocks.html
 
