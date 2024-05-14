@@ -1,3 +1,23 @@
+**Summer 2023 Was the Northern Hemisphere’s Hottest in 2,000 Years, Study Finds**\
+`Scientists used tree rings to compare last year’s extreme heat with temperatures over the past two millenniums.`\
+https://nytimes.com/2024/05/14/climate/summer-2023-hottest-2000-years.html
+
+**Podcasters as TV Heroes? We’re All Ears**\
+`Why have podcasters emerged as the rumpled protagonists of numerous television shows? We’ll discuss after the break.`\
+https://nytimes.com/2024/05/14/arts/television/bodkin-podcasting-tv.html
+
+**Fast Recipes for Any Forecast**\
+`Shrimp pasta and dumpling salad for warm evenings; potato soup and sheet-pan sausages for gray days.`\
+https://nytimes.com/2024/05/14/dining/fast-recipes-for-any-forecast.html
+
+**Darren Criss to Return to Broadway as a Robot in Love**\
+`The actor will star in “Maybe Happy Ending,” an original musical set in a future Seoul. It will begin previews in September.`\
+https://nytimes.com/2024/05/14/theater/darren-criss-broadway-maybe-happy-ending.html
+
+**What the F.A.A. Bill Means for Travelers**\
+`The legislation, which funds federal aviation programs for the next five years, cements new passenger protections, adds new routes and lets the T.S.A. continue to expand facial recognition programs. Here’s what you need to know.`\
+https://nytimes.com/2024/05/14/travel/what-the-faa-bill-means-for-travelers.html
+
 **The Great Gucci Gamble Comes to London**\
 `Turnarounds are hard, especially when the stakes are high. Can Sabato De Sarno deliver the goods with his debut cruise collection at the Tate Modern?`\
 https://nytimes.com/2024/05/14/style/gucci-london-cruise-collection.html
