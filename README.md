@@ -1,3 +1,7 @@
+**Quotation of the Day: Secret Files Show Hamas Spying on Its People**\
+`Quotation of the Day for Tuesday, May 14, 2024.`\
+https://nytimes.com/2024/05/13/pageoneplus/quotation-of-the-day-secret-files-show-hamas-spying-on-its-people.html
+
 **Blinken Arrives in Ukraine Amid Russian Military Gains**\
 `The Biden administration had warned for months that the delay by Congress to approve an aid package would leave the Ukrainians vulnerable.`\
 https://nytimes.com/2024/05/13/us/politics/blinken-ukraine-russia-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/05/13/climate/home-insurance-profit-us-stat
 **As Insurers Around the U.S. Bleed Cash From Climate Shocks, Homeowners Lose**\
 `It’s not just California and Florida now: Insurers are losing money around the country. It means higher rates and, sometimes, cancellation notices.`\
 https://nytimes.com/interactive/2024/05/13/climate/insurance-homes-climate-change-weather.html
-
-**Transcript of Trump Manhattan Trial, May 10, 2024**\
-`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
-https://nytimes.com/interactive/2024/05/13/nyregion/trump-hush-money-trial-transcript-may-10.html
 
