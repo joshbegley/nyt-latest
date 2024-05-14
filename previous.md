@@ -1,4 +1,4 @@
-**Cohen Lays Out Hush-Money Plot, and Protests Shadow Israeli Holiday**\
+**Cohen Lays Out Hush-Money Plot, and Protest Shadows Israeli Holiday**\
 `Plus, a diss track tops the charts.`\
 https://nytimes.com/2024/05/14/podcasts/cohen-testimony-israel-memorial-day-protest.html
 
