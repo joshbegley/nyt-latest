@@ -1,40 +1,40 @@
-**‘High-Functioning Anxiety Isn’t a Medical Diagnosis. It’s a Hashtag.’**\
-`We need to be smarter about how we talk about mental illness.`\
-https://nytimes.com/video/opinion/100000009396804/mental-health-awareness.html
+**Biden Will Raise Tariffs on Chinese Electric Vehicles, Chips and Other Goods**\
+`The president is set to announce increased taxes on Chinese imports in strategic industries, building on former President Donald J. Trump’s tariffs.`\
+https://nytimes.com/2024/05/14/us/politics/biden-china-tariffs.html
 
-**Putin Will Visit Xi, Testing a ‘No Limits’ Partnership**\
-`Moscow seeks more support for its war in Ukraine. But Beijing risks alienating Europe, a key trading partner needed to help revive China’s economy.`\
-https://nytimes.com/2024/05/14/world/asia/putin-china-xi.html
+**Voters Demand Change, but What Kind Do They Want?**\
+`Angry nostalgia is the mood of the electorate.`\
+https://nytimes.com/live/2024/05/07/opinion/thepoint/biden-trump-poll-voters
 
-**Protests Break Out in New Caledonia**\
-`Protesters set up blockades and started fires on roads as French authorities in the semiautonomous territory imposed a curfew on the capital.`\
-https://nytimes.com/video/world/asia/100000009467071/new-caledonia-curfew-protests.html
+**Do We Talk Too Much About Mental Health?**\
+`Recent studies suggest that school mental health programs may not be beneficial and could even have a negative effect. What has been your experience?`\
+https://nytimes.com/2024/05/14/learning/do-we-talk-too-much-about-mental-health.html
 
-**Stephen Colbert Declares Trump to Be ‘Past His Expiration Date’**\
-`Michael Cohen’s testimony gave the host plenty of fodder, especially when he described Donald Trump speculating about going back “on the market.”`\
-https://nytimes.com/2024/05/14/arts/television/stephen-colbert-michael-cohen-trump.html
+**How China Rose to Lead the World in Cars and Solar Panels**\
+`Heavy subsidies for industry, together with weak sales in China, have set the stage for an export boom, raising fears of factory job losses elsewhere.`\
+https://nytimes.com/2024/05/14/business/china-exports-manufacturing.html
 
-**Curfew Imposed Amid Protests in Pacific Territory of New Caledonia**\
-`The unrest was triggered by a plan to let more French citizens vote in the territory, which independence activists say would water down their movement.`\
-https://nytimes.com/2024/05/14/world/asia/new-caledonia-curfew-protests.html
+**Nevada, Newly Trump-Friendly, Poses a Challenge and a Mystery for Biden**\
+`President Biden appears especially weak in Nevada, where Hispanic voters have soured on him and economic pessimism abounds. But Democrats note that the state has rallied for them in the past.`\
+https://nytimes.com/2024/05/14/us/politics/nevada-trump-biden.html
 
-**Cohen Faces a Tough Cross-Examination After a Steady Turn on the Stand**\
-`Donald J. Trump’s lawyers are likely to attack the credibility and composure of his former fixer, whose testimony will continue Tuesday.`\
-https://nytimes.com/2024/05/14/nyregion/cohen-testimony-hush-money-trial.html
+**Cyrus Vance: What It Takes to Keep Harvey Weinstein, and Men Like Him, Behind Bars**\
+`I was not naïve about the challenges in bringing a winnable and legally sustainable case against Weinstein.`\
+https://nytimes.com/2024/05/14/opinion/cyrus-vance-harvey-weinstein.html
 
-**High Interest Rates Are Hitting Poorer Americans the Hardest**\
-`The economy as a whole has proved resilient amid the highest rates in decades. But beneath the surface, many low- and moderate-income families are struggling.`\
-https://nytimes.com/2024/05/14/business/economy/interest-rates-inequality.html
+**Not Your Typical Children’s Museum**\
+`Enter the Rabbit Hole and become a part of the story.`\
+https://nytimes.com/2024/05/14/podcasts/not-your-typical-childrens-museum.html
 
-**Soapbox Derby**\
-`Bronx students create and race these cars as part of their science curriculum. Has your school ever offered an engaging real-world project that helped you learn?`\
-https://nytimes.com/2024/05/14/learning/soapbox-derby.html
+**Can You Lose Your Native Tongue?**\
+`After moving abroad, I found my English slowly eroding. It turns out our first languages aren’t as embedded as we think.`\
+https://nytimes.com/2024/05/14/magazine/native-language-loss.html
 
-**Jury Selection Continues in Robert Menendez Corruption Trial**\
-`Senator Robert Menendez is accused of participating in a bribery case involving more than $100,000 in gold bullion, an Egyptian halal meat monopoly and a Qatari sheikh.`\
-https://nytimes.com/2024/05/14/nyregion/menendez-jury-selection-continues.html
+**These Butlers Are Neither Carson Nor Hudson**\
+`The rise of “executive butlers” — a breed whose job combines silver polishing with being a concierge and a maitre d’ — reflects the changing nature of the very rich.`\
+https://nytimes.com/2024/05/14/style/executive-butlers-country-houses.html
 
-**The Connections Companion No. 338**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/14/crosswords/connections-companion.html
+**1907 Was a Mad, Mad, Mad, Mad World**\
+`In “The Race to the Future,” Kassia St. Clair chronicles the 8,000-mile caper that helped change the landscape forever.`\
+https://nytimes.com/2024/05/14/books/review/race-to-the-future-kassia-st-clair.html
 
