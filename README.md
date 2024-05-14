@@ -1,7 +1,3 @@
-**Covering the Other Manhattan Trial**\
-`Tracey Tully’s reporting domain is New Jersey. But for the next six weeks, she’ll journey across the Hudson River to report on the federal corruption trial of Senator Robert Menendez.`\
-https://nytimes.com/2024/05/14/insider/robert-menendez-trial-reporters.html
-
 **Wednesday Briefing: Michael Cohen Faced Donald Trump’s Lawyers**\
 `Also, Antony Blinken visited Kyiv and President Biden announced new Chinese tariffs.`\
 https://nytimes.com/2024/05/14/world/asia/cohen-trump-russia-blinken-asia.html
@@ -37,4 +33,8 @@ https://nytimes.com/interactive/2024/05/14/us/baltimore-bridge-collapse-ntsb-rep
 **Restaurant Review: ‘New Nordic’ Isn’t New, but ILIS Adds a Fresh Spin**\
 `Mads Refslund’s creative ideas at this Brooklyn restaurant can be dreamily seductive, even if the execution isn’t always as compelling.`\
 https://nytimes.com/2024/05/14/dining/ilis-restaurant-review.html
+
+**Blinken Tells Ukraine ‘You Are Not Alone’ as Russia’s Military Makes Gains**\
+`The Biden administration had warned for months that Congress’s delay in approving an aid package would leave the Ukrainians vulnerable.`\
+https://nytimes.com/2024/05/14/us/politics/blinken-ukraine-russia-war.html
 
