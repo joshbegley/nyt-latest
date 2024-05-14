@@ -1,3 +1,7 @@
+**Kenya Rallies Police Officers Ahead of Haiti Deployment**\
+`The East African country is preparing to send hundreds of police officers as the first wave of a multinational force aimed at stabilizing the chaos-ridden Caribbean nation.`\
+https://nytimes.com/2024/05/14/world/africa/kenya-haiti-police.html
+
 **Harvard Reaches Agreement With Protesters to End Encampment**\
 `The university agreed to discuss divestment and to reinstate suspended students.`\
 https://nytimes.com/2024/05/14/us/harvard-encampment-gaza-protest.html
