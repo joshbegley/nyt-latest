@@ -1,3 +1,15 @@
+**Killing Dogs. Taunting the Homeless. Praising Al Capone. This Is Trump’s Party.**\
+`Kristi Noem’s memoir is the latest example of MAGA’s vice signaling.`\
+https://nytimes.com/2024/05/13/opinion/kristi-noem-vice-signaling-maga.html
+
+**David Sanborn, Saxophonist Who Defied Pigeonholing, Dies at 78**\
+`He was best known as a jazz musician, but his shimmering sound was also heard on classic albums by David Bowie, Stevie Wonder and Bruce Springsteen.`\
+https://nytimes.com/2024/05/13/arts/music/david-sanborn-dead.html
+
+**As Insurers Around the U.S. Bleed Cash From Climate Shocks, Homeowners Lose**\
+`It’s not just California and Florida now: Insurers are losing money around the country. It means higher rates and, sometimes, cancellation notices.`\
+https://nytimes.com/interactive/2024/05/13/climate/insurance-homes-climate-change-weather.html
+
 **The Home Insurance Crunch: See What’s Happening in Your State**\
 `Climate change is making homeowners insurance less profitable. How has your state fared over the past decade?`\
 https://nytimes.com/interactive/2024/05/13/climate/home-insurance-profit-us-states-weather.html
