@@ -30,7 +30,7 @@ https://nytimes.com/interactive/2024/05/14/learning/14StudentNewsQuiz.html
 `Netiporn Sanesangkhom, 28, supported abolishing the law that prohibits criticizing royalty and wanted to push the authorities to stop jailing political activists.`\
 https://nytimes.com/2024/05/14/world/asia/thailand-monarchy-activist-hunger-strike.html
 
-**Israel and Hamas do battle in Gaza’s north and south.**\
+**Israel and Hamas battle in Gaza’s north and south.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/05/14/world/israel-gaza-war-hamas-rafah/israel-and-hamas-do-battle-in-gazas-north-and-south
 
