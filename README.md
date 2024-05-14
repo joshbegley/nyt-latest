@@ -1,3 +1,11 @@
+**Comcast Plans Streaming Bundle With Netflix, Apple TV+**\
+`The bundle, called StreamSaver, is the latest joint effort from entertainment companies looking to woo price-weary customers.`\
+https://nytimes.com/2024/05/14/business/media/comcast-streaming-bundle-netflix-apple-tv.html
+
+**How Has Trump Changed the G.O.P.? His Criminal-Trial Guest List Tells the Tale.**\
+`The former president’s trial has become a staging ground for aspiring allies to prove their fealty, the latest litmus test in a party increasingly defined by loyalty to Donald Trump.`\
+https://nytimes.com/2024/05/14/us/politics/trump-trial-republican-guests.html
+
 **Kenya Rallies Police Officers Ahead of Haiti Deployment**\
 `The East African country is preparing to send hundreds of police officers as the first wave of a multinational force aimed at stabilizing the chaos-ridden Caribbean nation.`\
 https://nytimes.com/2024/05/14/world/africa/kenya-haiti-police.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/14/us/wnba-golden-state-valkyries.html
 **The Legacy of Steve Albini, Rock’s Uncompromising Force**\
 `A conversation about one of the most admired, and divisive, figures in music.`\
 https://nytimes.com/2024/05/14/arts/music/popcast-steve-albini.html
-
-**What It’s Like Inside the Courtroom at Trump’s Manhattan Criminal Trial**\
-`The courtroom where Donald J. Trump’s trial is being held is on the large side, but still too small to contain the vast interest in the case.`\
-https://nytimes.com/2024/05/14/nyregion/trump-hush-money-trial-courtroom.html
-
-**4 Takeaways From Our Homeowners Insurance Investigation**\
-`Across the country, more intense heat, storms and fires are causing the home insurance market to start to buckle.`\
-https://nytimes.com/2024/05/14/climate/climate-change-homeowners-insurance-takeaways.html
 
