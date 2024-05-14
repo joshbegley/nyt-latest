@@ -1,3 +1,11 @@
+**Fossil Catches Starfish Cousin in the Act of Cloning Itself**\
+`The brittle star specimen suggests that the sea creatures have been splitting themselves in two to reproduce for more than 150 million years.`\
+https://nytimes.com/2024/05/14/science/fossil-cloning-brittle-star.html
+
+**What a ‘Free Palestine’ Means in Practice**\
+`Rather than the utopia envisioned by protesters, it would be an Islamist state that persecuted Jews and denied anyone real freedom.`\
+https://nytimes.com/2024/05/14/opinion/what-a-free-palestine-means-in-practice.html
+
 **Cohen on Cross: 5 Takeaways From Trump’s Criminal Trial**\
 `The key prosecution witness faced defense lawyers as the trial nears what may be an unexpectedly early conclusion.`\
 https://nytimes.com/2024/05/14/nyregion/cohen-trump-criminal-trial-takeaways.html
