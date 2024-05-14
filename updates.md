@@ -1,3 +1,11 @@
+**‘The Secret Is Out’: Joan Vassos Is the First ‘Golden Bachelorette’**\
+`ABC introduced a new season of the spinoff, after the ratings success of “The Golden Bachelor.”`\
+https://nytimes.com/2024/05/14/style/golden-bachelorette-joan-vassos.html
+
+**Escaped Prisoner Remains At Large After Deadly Ambush in France**\
+`Two prison guards were killed after gunmen opened fire on a prison van to free a drug dealer in northwestern France.`\
+https://nytimes.com/video/world/europe/100000009468771/france-prison-ambush.html
+
 **There is more to Westminster than the beauty contest.**\
 `Everyone is familiar with best in show, but the Masters Agility Championship over the weekend is action-packed.`\
 https://nytimes.com/2024/05/14/style/westminster-dog-agility-mixed-breed.html
