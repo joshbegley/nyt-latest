@@ -1,3 +1,7 @@
+**Biden Bans Chinese Bitcoin Mine Near U.S. Nuclear Missile Base**\
+`An investigation identified national security risks posed by a crypto facility in Wyoming. It is near an Air Force base and a data center doing work for the Pentagon.`\
+https://nytimes.com/2024/05/13/us/bitcoin-mine-biden-ban.html
+
 **Killing Dogs. Taunting the Homeless. Praising Al Capone. This Is Trump’s Party.**\
 `Kristi Noem’s memoir is the latest example of MAGA’s vice signaling.`\
 https://nytimes.com/2024/05/13/opinion/kristi-noem-vice-signaling-maga.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah/an-interna
 **Can This Never Trumper Find a Future in the Republican Party?**\
 `Hogan’s Senate run will test whether there is a path forward for a Trump critic in 2024.`\
 https://nytimes.com/2024/05/13/us/politics/larry-hogan-maryland.html
-
-**Three Inmates Agree to Plea Deal in Death of Whitey Bulger**\
-`The men charged with brutally beating Mr. Bulger, once a notorious leader in the Boston underworld, have agreed to help describe the circumstances of his death, officials said.`\
-https://nytimes.com/2024/05/13/us/whitey-bulger-plea-deal.html
 
