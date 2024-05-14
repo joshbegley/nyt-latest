@@ -1,3 +1,5 @@
+
+
 **The Home Insurance Crunch: See What’s Happening in Your State**\
 `Climate change is making homeowners insurance less profitable. How has your state fared over the past decade?`\
 https://nytimes.com/interactive/2024/05/13/climate/home-insurance-profit-us-states-weather.html
