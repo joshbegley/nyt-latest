@@ -1,3 +1,11 @@
+**Appeals Court Upholds Gag Order on Trump in Manhattan Trial**\
+`The judges found that Justice Juan M. Merchan’s rules had not violated the former president’s First Amendment rights. Justice Merchan had issued the gag order to protect the trial’s integrity.`\
+https://nytimes.com/2024/05/14/nyregion/trump-gag-order-appeal.html
+
+**Google Takes the Next Step in Its A.I. Evolution**\
+`The tech giant showed off how it would enmesh A.I. more deeply into its products and users’ lives, from search to so-called agents that perform tasks.`\
+https://nytimes.com/2024/05/14/technology/google-artificial-intelligence-products.html
+
 **Daniel Kramer’s Year With Bob Dylan**\
 `An intimate portrait of a music star on the rise in the 1960s.`\
 https://nytimes.com/2024/05/14/arts/music/daniel-kramers-year-with-bob-dylan.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/14/arts/hades-2.html
 **The Increase in Drowning Deaths Should Be a National Priority**\
 `Swimming lessons are not a luxury.`\
 https://nytimes.com/live/2024/05/07/opinion/thepoint/drowning-deaths-swimming
-
-**Russia Detains Senior General, Widening Military Purge**\
-`Lt. Gen. Yuri Kuznetsov became the second senior defense official to be detained on an accusation of corruption in the past month.`\
-https://nytimes.com/2024/05/14/world/europe/russia-detains-general-yuri-kuznetsov.html
-
-**After Ill-Advised Shortcut, 2 Horses Are Rescued in a 5-Hour Mission**\
-`Nearly 50 people were needed to get the horses, Damascus and Beau, out of a swampy area and over a makeshift bridge during the rescue in Lebanon, Conn.`\
-https://nytimes.com/2024/05/14/nyregion/horse-rescue-connecticut.html
 

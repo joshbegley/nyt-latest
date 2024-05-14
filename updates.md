@@ -1,3 +1,11 @@
+**Appeals Court Upholds Gag Order on Trump in Manhattan Trial**\
+`The judges found that Justice Juan M. Merchan’s rules had not violated the former president’s First Amendment rights. Justice Merchan had issued the gag order to protect the trial’s integrity.`\
+https://nytimes.com/2024/05/14/nyregion/trump-gag-order-appeal.html
+
+**Google Takes the Next Step in Its A.I. Evolution**\
+`The tech giant showed off how it would enmesh A.I. more deeply into its products and users’ lives, from search to so-called agents that perform tasks.`\
+https://nytimes.com/2024/05/14/technology/google-artificial-intelligence-products.html
+
 **Daniel Kramer’s Year With Bob Dylan**\
 `An intimate portrait of a music star on the rise in the 1960s.`\
 https://nytimes.com/2024/05/14/arts/music/daniel-kramers-year-with-bob-dylan.html
