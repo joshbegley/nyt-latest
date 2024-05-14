@@ -1,3 +1,15 @@
+**4 Takeaways From Our Homeowners Insurance Investigation**\
+`Across the country, more intense heat, storms and fires are causing the home insurance market to start to buckle.`\
+https://nytimes.com/2024/05/14/climate/climate-change-homeowners-insurance-takeaways.html
+
+**Michael Cohen Idolized Trump and Became His ‘Designated Thug’**\
+`Mr. Cohen first caught Donald J. Trump’s eye during a dispute with the condo board at one of his properties.`\
+https://nytimes.com/2024/05/14/nyregion/michael-cohen-donald-trump.html
+
+**At Least 2 Officers Killed in Ambush on Prison Convoy in France**\
+`The French authorities said that hundreds of officers had been deployed to track down a prisoner who had escaped and the assailants who had helped him.`\
+https://nytimes.com/2024/05/14/world/europe/france-prison-ambush.html
+
 **14trump-trial**\
 `Live Updates: Cohen Will Continue Testifying at Trump Trial After Steady Turn on Stand`\
 https://nytimes.com/live/2024/05/14/nyregion/trump-trial-news-michael-cohen
