@@ -1,3 +1,11 @@
+**Orcas Sink Another Boat Near Iberia, Worrying Sailors Before Summer**\
+`Two people were rescued on Sunday after orcas damaged their boat near the Strait of Gibraltar, where the animals have caused havoc in recent years.`\
+https://nytimes.com/2024/05/14/world/europe/orcas-sink-yacht-strait-of-gibraltar.html
+
+**Overnight Strikes in Central Gaza Kill Several Palestinians**\
+`The Israeli Air Force bombed a U.N. school in central Gaza, which it said was being used to plan attacks on Israeli soldiers. Reuters reported that displaced Palestinians were using the building as a shelter.`\
+https://nytimes.com/video/world/middleeast/100000009467250/strikes-central-gaza-deaths.html
+
 **U.S. to Stop Buying Russian Uranium, Cutting Cash to Moscow**\
 `A new law accelerates the weaning of U.S. electric utilities from using Russian enriched uranium to power America’s nuclear plants.`\
 https://nytimes.com/2024/05/14/climate/russia-nuclear-uranium-import-ban.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/14/technology/ai-chatgpt-her-movie.html
 **Fed Chair’s Confidence in Slowing Inflation Is ‘Not as High’ as Before**\
 `Jerome H. Powell, the Federal Reserve chair, said that the central bank was poised to leave interest rates on hold after surprisingly stubborn inflation.`\
 https://nytimes.com/2024/05/14/business/economy/fed-powell-inflation.html
-
-**A Top Chef Winner Finds a New Italian Perch**\
-`Harold Dieterle, the winner of the first season of “Top Chef,” is opening Il Totano in the West Village, Marsanne NYC serves Mediterranean food in a 150-seat space and more restaurant news.`\
-https://nytimes.com/2024/05/14/dining/nyc-restaurant-news.html
-
-**Zendaya for $200? ‘Jeopardy!’ Plans to Stream a Pop Culture Spinoff**\
-`Sony Pictures Television said that “Pop Culture Jeopardy!” — which will pit teams of three against one another — would be streamed on Prime Video.`\
-https://nytimes.com/2024/05/14/arts/television/jeopardy-pop-culture-streaming.html
 
