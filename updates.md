@@ -1,3 +1,7 @@
+**The Influence of R.F.K. Jr.**\
+`What the independent candidate is emphasizing in his speeches — and which voters support him.`\
+https://nytimes.com/2024/05/14/briefing/robert-f-kennedy-jr-2024-election.html
+
 **Cohen Lays Out Hush-Money Plot, and Protest Shadows Israeli Holiday**\
 `Plus, a diss track tops the charts.`\
 https://nytimes.com/2024/05/14/podcasts/cohen-testimony-israel-memorial-day-protest.html
