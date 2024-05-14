@@ -1,3 +1,7 @@
+**Cohen Day 2: It’s Trump’s Lawyers’ Turn**\
+`The one-time fixer faced a furious pushback from the defense.`\
+https://nytimes.com/2024/05/14/us/politics/trump-trial-cohen-testimony.html
+
 **There is more to Westminster than the beauty contest.**\
 `Everyone is familiar with best in show, but the Masters Agility Championship over the weekend is action-packed.`\
 https://nytimes.com/live/2024/05/14/style/westminster-dog-show/westminster-dog-agility-mixed-breed
