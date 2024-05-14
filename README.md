@@ -1,3 +1,15 @@
+**‘Don’t Flip, Don’t Speak’: How a Lawyer Became Cohen’s Back Channel to Trump**\
+`Robert J. Costello relayed messages to Michael D. Cohen telling him not to flip, Mr. Cohen said. But a web of alliances fell apart over unpaid bills.`\
+https://nytimes.com/2024/05/14/nyregion/robert-costello-lawyer-cohen-trump.html
+
+**Hades II’s Eternal Pursuit of a Tantalizing Past**\
+`The video game sequel’s central character struggles to exhume the memory of her former life. Out of the pandemic, our futures are just as murky.`\
+https://nytimes.com/2024/05/14/arts/hades-2.html
+
+**The Increase in Drowning Deaths Should Be a National Priority**\
+`Swimming lessons are not a luxury.`\
+https://nytimes.com/live/2024/05/07/opinion/thepoint/drowning-deaths-swimming
+
 **Russia Detains Senior General, Widening Military Purge**\
 `Lt. Gen. Yuri Kuznetsov became the second senior defense official to be detained on an accusation of corruption in the past month.`\
 https://nytimes.com/2024/05/14/world/europe/russia-detains-general-yuri-kuznetsov.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/14/movies/cannes-jury-greta-gerwig-lily-gladstone.ht
 **Orcas Sink Another Boat Near Iberia, Worrying Sailors Before Summer**\
 `Two people were rescued on Sunday after orcas damaged their boat near the Strait of Gibraltar, where the animals have caused havoc in recent years.`\
 https://nytimes.com/2024/05/14/world/europe/orcas-sink-yacht-strait-of-gibraltar.html
-
-**Overnight Strikes in Central Gaza Kill Several Palestinians**\
-`The Israeli Air Force bombed a U.N. school in central Gaza, which it said was being used to plan attacks on Israeli soldiers. Reuters reported that displaced Palestinians were using the building as a shelter.`\
-https://nytimes.com/video/world/middleeast/100000009467250/strikes-central-gaza-deaths.html
-
-**U.S. to Stop Buying Russian Uranium, Cutting Cash to Moscow**\
-`A new law accelerates the weaning of U.S. electric utilities from using Russian enriched uranium to power America’s nuclear plants.`\
-https://nytimes.com/2024/05/14/climate/russia-nuclear-uranium-import-ban.html
-
-**Betty Buckley Is Not Wedded to the Same Old Songs**\
-`The actress is back in concert mode at 76, and doing new material. She’s also looking forward to a bold new take on “Sunset Boulevard.”`\
-https://nytimes.com/2024/05/14/theater/betty-buckley-concert-joes-pub.html
 
