@@ -1,3 +1,7 @@
+**Meet your bloggers (and their pets).**\
+`By Benjamin Hoffman`\
+https://nytimes.com/live/2024/05/14/style/westminster-dog-show/meet-your-bloggers-and-their-pets
+
 **Review: A Text-to-Speech Meet-Cute in ‘All of Me’**\
 `Laura Winters’s romantic comedy pays careful attention to the dynamics of living with disabilities.`\
 https://nytimes.com/2024/05/14/theater/all-of-me-review.html
