@@ -1,3 +1,7 @@
+**Pub Regular**\
+`Alex Eaton-Salners is just clearing things up.`\
+https://nytimes.com/2024/05/13/crosswords/daily-puzzle-2024-05-14.html
+
 **Cohen Testifies That Trump Directed Hush-Money Payment**\
 `Michael D.`\
 https://nytimes.com/video/nyregion/100000009465551/cohen-testifies-that-trump-directed-hush-money-payment.html

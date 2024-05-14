@@ -1,3 +1,7 @@
+**Pub Regular**\
+`Alex Eaton-Salners is just clearing things up.`\
+https://nytimes.com/2024/05/13/crosswords/daily-puzzle-2024-05-14.html
+
 **Cohen Testifies That Trump Directed Hush-Money Payment**\
 `Michael D.`\
 https://nytimes.com/video/nyregion/100000009465551/cohen-testifies-that-trump-directed-hush-money-payment.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/05/13/nyregion/trump-hush-money-trial-trans
 **Review: A New Lens on Auschwitz in ‘Here There Are Blueberries’**\
 `Archivists are the heroes of a documentary play about a photograph album depicting daily life among the perpetrators of the Holocaust.`\
 https://nytimes.com/2024/05/13/theater/here-there-are-blueberries-review.html
-
-**Christopher Edley Jr., Civil Rights Expert Heard by Presidents, Dies at 71**\
-`He pivoted between serving as an adviser to the Carter, Clinton and Obama White Houses and teaching at Harvard and Berkeley, where he was the law school dean.`\
-https://nytimes.com/2024/05/13/obituaries/christopher-edley-jr-dead.html
 
