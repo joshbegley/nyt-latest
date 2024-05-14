@@ -1,3 +1,7 @@
+**Putin Will Visit Xi, Testing a ‘No Limits’ Partnership**\
+`Moscow seeks more support for its war in Ukraine. But Beijing risks alienating Europe, a key trading partner needed to help revive China’s economy.`\
+https://nytimes.com/2024/05/14/world/asia/putin-china-xi.html
+
 **Protests Break Out in New Caledonia**\
 `Protesters set up blockades and started fires on roads as French authorities in the semiautonomous territory imposed a curfew on the capital.`\
 https://nytimes.com/video/world/asia/100000009467071/new-caledonia-curfew-protests.html
