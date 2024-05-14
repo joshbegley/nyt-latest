@@ -1,3 +1,11 @@
+**House Speaker Joins Republicans Visiting Trial to Say What Trump Can’t**\
+`Outside the Manhattan courthouse where Donald J. Trump is being tried on criminal charges, Mike Johnson attacked a key witness who linked the former president to a plan to cover up hush money paid to a porn star.`\
+https://nytimes.com/2024/05/14/nyregion/mike-johnson-trump-trial.html
+
+**New York Announces $95 Million Revitalization of Port in Red Hook**\
+`New York City plans to rebuild three piers and add a new cargo crane after taking control of more than 100 acres of the Brooklyn waterfront.`\
+https://nytimes.com/2024/05/14/nyregion/red-hook-redevelopment-shipping.html
+
 **Cannes: Greta Gerwig, Lily Gladstone and the Weight of Politics at the Fest**\
 `The festival opened with questions for the jury about Indigenous representation, #MeToo rumors and other timely topics.`\
 https://nytimes.com/2024/05/14/movies/cannes-jury-greta-gerwig-lily-gladstone.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/14/books/alice-munro-dead.html
 **Ethical Lapses in the Medical Profession**\
 `Readers discuss a guest essay by a doctor calling for changes in the medical culture. Also: Columbia donors; a Florida bookstore; a balloon release ban.`\
 https://nytimes.com/2024/05/14/opinion/medicine-ethics.html
-
-**After Living Much of Life at Sea, Captain Sandy Finds Love on Land**\
-`Sandy Yawn of “Below Deck Mediterranean” married Leah Shafer on — what else? — a superyacht in Florida.`\
-https://nytimes.com/2024/05/14/style/captain-sandy-yawn-wedding-leah-shafer.html
-
-**A.I.’s ‘Her’ Era Has Arrived**\
-`New chatbot technology can talk, laugh and sing like a human. What comes next is anyone’s guess.`\
-https://nytimes.com/2024/05/14/technology/ai-chatgpt-her-movie.html
 
