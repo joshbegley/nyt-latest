@@ -1,3 +1,11 @@
+**Top Republicans Come Face-to-Face With Trump’s Seamy Past**\
+`Does the House speaker really know what it means to join Trumpworld?`\
+https://nytimes.com/live/2024/05/07/opinion/thepoint/trump-trial-johnson-republicans
+
+**U.K. Summons Chinese Ambassador for Reprimand as Tensions Rise**\
+`Britain’s foreign office said it had reprimanded the Chinese ambassador, a day after three men were charged with assisting the Hong Kong intelligence service.`\
+https://nytimes.com/2024/05/14/world/europe/uk-china-ambassador-hong-kong-intelligence.html
+
 **Preparing for the Second China Shock**\
 `Why the Biden administration is imposing new tariffs.`\
 https://nytimes.com/2024/05/14/opinion/china-imports-tariffs-biden.html

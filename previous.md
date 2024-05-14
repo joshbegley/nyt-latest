@@ -1,3 +1,7 @@
+**Top Republicans Come Face-to-Face With Trump’s Seamy Past**\
+`Does the House speaker really know what it means to join Trumpworld?`\
+https://nytimes.com/live/2024/05/07/opinion/thepoint/trump-trial-johnson-republicans
+
 **Preparing for the Second China Shock**\
 `Why the Biden administration is imposing new tariffs.`\
 https://nytimes.com/2024/05/14/opinion/china-imports-tariffs-biden.html
@@ -20,7 +24,7 @@ https://nytimes.com/2024/05/14/technology/google-ai-answers.html
 
 **U.K. Summons Chinese Ambassador for Reprimand as Tensions Rise**\
 `Britain’s foreign office said it had reprimanded the Chinese ambassador, a day after three men were charged with assisting the Hong Kong intelligence service.`\
-https://nytimes.com/2024/05/14/world/europe/uk-summons-chinese-ambassador-for-reprimand-as-tensions-rise.html
+https://nytimes.com/2024/05/14/world/europe/uk-china-ambassador-hong-kong-intelligence.html
 
 **Meeting Yourself Where You’re At**\
 `Whether you’re still in school, looking for a job or already working, we have some tips for you.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/14/arts/music/amplifier-newsletter-cass-elliot.html
 **Appeals Court Upholds Gag Order on Trump in Manhattan Trial**\
 `The judges found that Justice Juan M. Merchan’s rules had not violated the former president’s First Amendment rights. Justice Merchan had issued the gag order to protect the trial’s integrity.`\
 https://nytimes.com/2024/05/14/nyregion/trump-gag-order-appeal.html
-
-**Google Takes the Next Step in Its A.I. Evolution**\
-`The tech giant showed off how it would enmesh A.I. more deeply into its products and users’ lives, from search to so-called agents that perform tasks.`\
-https://nytimes.com/2024/05/14/technology/google-artificial-intelligence-products.html
 
