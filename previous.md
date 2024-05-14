@@ -1,3 +1,7 @@
+**‘High-Functioning Anxiety Isn’t a Medical Diagnosis. It’s a Hashtag.’**\
+`We need to be smarter about how we talk about mental illness.`\
+https://nytimes.com/video/opinion/100000009396804/mental-health-awareness.html
+
 **Putin Will Visit Xi, Testing a ‘No Limits’ Partnership**\
 `Moscow seeks more support for its war in Ukraine. But Beijing risks alienating Europe, a key trading partner needed to help revive China’s economy.`\
 https://nytimes.com/2024/05/14/world/asia/putin-china-xi.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/14/nyregion/menendez-jury-selection-continues.html
 **The Connections Companion No. 338**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/05/14/crosswords/connections-companion.html
-
-**Today’s Wordle Review No. 1,060**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/14/crosswords/wordle-review.html
 

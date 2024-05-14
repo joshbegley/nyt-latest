@@ -1,3 +1,7 @@
+**‘High-Functioning Anxiety Isn’t a Medical Diagnosis. It’s a Hashtag.’**\
+`We need to be smarter about how we talk about mental illness.`\
+https://nytimes.com/video/opinion/100000009396804/mental-health-awareness.html
+
 **Putin Will Visit Xi, Testing a ‘No Limits’ Partnership**\
 `Moscow seeks more support for its war in Ukraine. But Beijing risks alienating Europe, a key trading partner needed to help revive China’s economy.`\
 https://nytimes.com/2024/05/14/world/asia/putin-china-xi.html
