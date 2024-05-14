@@ -1,3 +1,15 @@
+**Preparing for the Second China Shock**\
+`Why the Biden administration is imposing new tariffs.`\
+https://nytimes.com/2024/05/14/opinion/china-imports-tariffs-biden.html
+
+**Tiny Love Stories: ‘God, You Can Kiss’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/05/14/style/tiny-modern-love-stories-god-you-can-kiss.html
+
+**Under Fire for ‘Toxic’ Work Culture, Bank Regulator Apologizes Again**\
+`A scathing report revealed a culture of widespread sexual harassment and discrimination at the Federal Deposit Insurance Corporation. Martin Gruenberg will testify on Capitol Hill starting on Wednesday.`\
+https://nytimes.com/2024/05/14/business/fdic-gruenberg-apologizes.html
+
 **Michael Cohen Is Prosecutors’ Last Witness In Trump’s Trial. Here’s What Happens Next.**\
 `The prosecution is nearing its end. Then, defense lawyers will get their chance to poke holes in the case before the question is put in jurors’ hands.`\
 https://nytimes.com/2024/05/14/nyregion/trump-trial-prosecution-whats-next.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/14/nyregion/trump-gag-order-appeal.html
 **Google Takes the Next Step in Its A.I. Evolution**\
 `The tech giant showed off how it would enmesh A.I. more deeply into its products and users’ lives, from search to so-called agents that perform tasks.`\
 https://nytimes.com/2024/05/14/technology/google-artificial-intelligence-products.html
-
-**Daniel Kramer’s Year With Bob Dylan**\
-`An intimate portrait of a music star on the rise in the 1960s.`\
-https://nytimes.com/2024/05/14/arts/music/daniel-kramers-year-with-bob-dylan.html
-
-**How the Pandemic Reshaped American Gun Violence**\
-`The footprint of gun violence in the U.S. has expanded, as shootings worsened in already suffering neighborhoods and killings spread to new places during the pandemic years.`\
-https://nytimes.com/interactive/2024/05/14/us/gun-homicides-data.html
-
-**Daniel Kramer, Who Photographed Bob Dylan’s Rise, Dies at 91**\
-`For 366 days, he captured intimate images of the singer-songwriter as he changed the look and sound of the 1960s.`\
-https://nytimes.com/2024/05/14/arts/music/daniel-kramer-dead.html
 
