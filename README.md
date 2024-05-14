@@ -1,3 +1,7 @@
+**Kenya Rallies Police Officers Ahead of Haiti Deployment**\
+`The East African country is preparing to send hundreds of police officers as the first wave of a multinational force aimed at stabilizing the chaos-ridden Caribbean nation.`\
+https://nytimes.com/2024/05/14/world/africa/kenya-haiti-police.html
+
 **Harvard Reaches Agreement With Protesters to End Encampment**\
 `The university agreed to discuss divestment and to reinstate suspended students.`\
 https://nytimes.com/2024/05/14/us/harvard-encampment-gaza-protest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/14/nyregion/trump-hush-money-trial-courtroom.html
 **4 Takeaways From Our Homeowners Insurance Investigation**\
 `Across the country, more intense heat, storms and fires are causing the home insurance market to start to buckle.`\
 https://nytimes.com/2024/05/14/climate/climate-change-homeowners-insurance-takeaways.html
-
-**Michael Cohen Idolized Trump and Became His ‘Designated Thug’**\
-`Mr. Cohen first caught Donald J. Trump’s eye during a dispute with the condo board at one of his properties.`\
-https://nytimes.com/2024/05/14/nyregion/michael-cohen-donald-trump.html
 
