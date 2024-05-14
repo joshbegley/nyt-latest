@@ -1,3 +1,27 @@
+**R.F.K. Jr. Isn’t a Spoiler Now, Poll Suggests, but He Could Be in November**\
+`Kennedy draws disproportionately from voters who usually back Democrats but have defected to Trump.`\
+https://nytimes.com/2024/05/14/upshot/polling-robert-kennedy-trump-biden.html
+
+**The End of TikTok Is a Propaganda Win for Beijing**\
+`A new bill will result in a ban of the app and a propaganda win for Beijing.`\
+https://nytimes.com/2024/05/14/opinion/tiktok-sale-ban-legislation-congress-china.html
+
+**New Challenge for Judge in Trump Georgia Case: His Own Election**\
+`Judge Scott McAfee has been campaigning at a dizzying pace ahead of the May 21 primary election. All while presiding over a sprawling election interference case against Donald Trump.`\
+https://nytimes.com/2024/05/14/us/trump-georgia-election-interference-scott-mcafee.html
+
+**‘They Have Established the Backbone of the Case’: Three Writers Dissect the Trump Trial**\
+`Who is more pleased with the course of the trial so far — the prosecution or the defense?`\
+https://nytimes.com/2024/05/14/opinion/trump-trial-michael-cohen.html
+
+**Are We Really Going to Let Trump Come Back to Fail Again?**\
+`Oh how quickly we forget.`\
+https://nytimes.com/2024/05/14/opinion/trump-coronavirus-crisis.html
+
+**What to Watch in Primaries in Maryland, Nebraska and West Virginia**\
+`Will Democrats in Maryland back a former Capitol Police officer? Can a moderate congressman fend off a conservative challenge in Nebraska? We look at the key races in Tuesday’s primaries.`\
+https://nytimes.com/2024/05/14/us/politics/primaries-maryland-west-virginia-nebraska.html
+
 **Biden Will Raise Tariffs on Chinese Electric Vehicles, Chips and Other Goods**\
 `The president is set to announce increased taxes on Chinese imports in strategic industries, building on former President Donald J. Trump’s tariffs.`\
 https://nytimes.com/2024/05/14/us/politics/biden-china-tariffs.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/05/14/learning/do-we-talk-too-much-about-mental-health.
 **How China Rose to Lead the World in Cars and Solar Panels**\
 `Heavy subsidies for industry, together with weak sales in China, have set the stage for an export boom, raising fears of factory job losses elsewhere.`\
 https://nytimes.com/2024/05/14/business/china-exports-manufacturing.html
-
-**Nevada, Newly Trump-Friendly, Poses a Challenge and a Mystery for Biden**\
-`President Biden appears especially weak in Nevada, where Hispanic voters have soured on him and economic pessimism abounds. But Democrats note that the state has rallied for them in the past.`\
-https://nytimes.com/2024/05/14/us/politics/nevada-trump-biden.html
-
-**Cyrus Vance: What It Takes to Keep Harvey Weinstein, and Men Like Him, Behind Bars**\
-`I was not naïve about the challenges in bringing a winnable and legally sustainable case against Weinstein.`\
-https://nytimes.com/2024/05/14/opinion/cyrus-vance-harvey-weinstein.html
-
-**Not Your Typical Children’s Museum**\
-`Enter the Rabbit Hole and become a part of the story.`\
-https://nytimes.com/2024/05/14/podcasts/not-your-typical-childrens-museum.html
-
-**Can You Lose Your Native Tongue?**\
-`After moving abroad, I found my English slowly eroding. It turns out our first languages aren’t as embedded as we think.`\
-https://nytimes.com/2024/05/14/magazine/native-language-loss.html
-
-**These Butlers Are Neither Carson Nor Hudson**\
-`The rise of “executive butlers” — a breed whose job combines silver polishing with being a concierge and a maitre d’ — reflects the changing nature of the very rich.`\
-https://nytimes.com/2024/05/14/style/executive-butlers-country-houses.html
-
-**1907 Was a Mad, Mad, Mad, Mad World**\
-`In “The Race to the Future,” Kassia St. Clair chronicles the 8,000-mile caper that helped change the landscape forever.`\
-https://nytimes.com/2024/05/14/books/review/race-to-the-future-kassia-st-clair.html
 
