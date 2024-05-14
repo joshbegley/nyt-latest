@@ -1,3 +1,7 @@
+**Zendaya for $200? ‘Jeopardy!’ Plans to Stream a Pop Culture Spinoff**\
+`Sony Pictures Television said that “Pop Culture Jeopardy!” — which will pit teams of three against one another — would be streamed on Prime Video.`\
+https://nytimes.com/2024/05/14/arts/television/jeopardy-pop-culture-streaming.html
+
 **‘Pressure’: The ‘Mean Streets’ of Brixton**\
 `Newly restored, Horace Ové’s film about a Trinidadian family in London makes a triumphant return to the Brooklyn Academy of Music.`\
 https://nytimes.com/2024/05/14/movies/pressure-horace-ove-bam.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/14/travel/what-the-faa-bill-means-for-travelers.html
 **The Great Gucci Gamble Comes to London**\
 `Turnarounds are hard, especially when the stakes are high. Can Sabato De Sarno deliver the goods with his debut cruise collection at the Tate Modern?`\
 https://nytimes.com/2024/05/14/style/gucci-london-cruise-collection.html
-
-**Comcast Plans Streaming Bundle With Netflix, Apple TV+**\
-`The bundle, called StreamSaver, is the latest joint effort from entertainment companies looking to woo price-weary customers.`\
-https://nytimes.com/2024/05/14/business/media/comcast-streaming-bundle-netflix-apple-tv.html
 
