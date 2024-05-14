@@ -1,3 +1,7 @@
+**Covering the Other Manhattan Trial**\
+`Tracey Tully’s reporting domain is New Jersey. But for the next six weeks, she’ll journey across the Hudson River to report on the federal corruption trial of Senator Robert Menendez.`\
+https://nytimes.com/2024/05/14/insider/robert-menendez-trial-reporters.html
+
 **Wednesday Briefing: Michael Cohen Faced Donald Trump’s Lawyers**\
 `Also, Antony Blinken visited Kyiv and President Biden announced new Chinese tariffs.`\
 https://nytimes.com/2024/05/14/world/asia/cohen-trump-russia-blinken-asia.html
