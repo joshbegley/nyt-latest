@@ -1,3 +1,7 @@
+**Democrats’ Split Over Israel Takes Center Stage in Tense Primary Debate**\
+`A rancorous clash between Representative Jamaal Bowman and his Democratic opponent, George Latimer, exposed sharp divisions in their party.`\
+https://nytimes.com/2024/05/13/nyregion/bowman-latimer-debate.html
+
 **Biden Bans Chinese Bitcoin Mine Near U.S. Nuclear Missile Base**\
 `An investigation identified national security risks posed by a crypto facility in Wyoming. It is near an Air Force base and a data center doing work for the Pentagon.`\
 https://nytimes.com/2024/05/13/us/bitcoin-mine-biden-ban.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/13/obituaries/christopher-edley-jr-dead.html
 **An international U.N. worker was killed in Rafah, a first since the conflict began.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/05/13/world/israel-gaza-war-hamas-rafah/an-international-un-worker-was-killed-in-rafah-a-first-since-the-conflict-began
-
-**Can This Never Trumper Find a Future in the Republican Party?**\
-`Hogan’s Senate run will test whether there is a path forward for a Trump critic in 2024.`\
-https://nytimes.com/2024/05/13/us/politics/larry-hogan-maryland.html
 
