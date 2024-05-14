@@ -1,3 +1,11 @@
+**Dozens of Red Lobster Restaurants Are Auctioning Off Equipment**\
+`The seafood chain has been losing money for years. The liquidator behind the auction said more than 50 of its U.S. locations had closed.`\
+https://nytimes.com/2024/05/14/business/red-lobster-closing.html
+
+**Manhunt Underway in France After Prisoner Escapes in Ambush**\
+`The French authorities said that armed assailants had attacked a prison convoy, killed at least two prison officers and freed an inmate.`\
+https://nytimes.com/2024/05/14/world/europe/france-prison-ambush.html
+
 **Catch up on the findings of the latest set of Times/Siena polls.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/05/14/us/elections-today-maryland-wv-ne/catch-up-on-the-findings-of-the-latest-set-of-times-siena-polls
