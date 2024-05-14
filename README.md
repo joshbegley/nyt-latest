@@ -1,3 +1,7 @@
+**What It’s Like Inside the Courtroom at Trump’s Manhattan Criminal Trial**\
+`The courtroom where Donald J. Trump’s trial is being held is on the large side, but still too small to contain the vast interest in the case.`\
+https://nytimes.com/2024/05/14/nyregion/trump-hush-money-trial-courtroom.html
+
 **4 Takeaways From Our Homeowners Insurance Investigation**\
 `Across the country, more intense heat, storms and fires are causing the home insurance market to start to buckle.`\
 https://nytimes.com/2024/05/14/climate/climate-change-homeowners-insurance-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/14/world/europe/georgia-parliament-foreign-agents-bi
 **Revival of Meme Stock Mania Continues for GameStop and AMC**\
 `A heady market rally extended to a second day after Keith Gill, the trader known as Roaring Kitty who rallied small investors to buy out-of-favor stocks in the pandemic, returned to social media.`\
 https://nytimes.com/2024/05/14/business/dealbook/gamestop-amc-meme-stocks.html
-
-**Weekly Student New Quiz: Israel-Hamas War, N.B.A. M.V.P., Chuck E. Cheese **\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2024/05/14/learning/14StudentNewsQuiz.html
 
