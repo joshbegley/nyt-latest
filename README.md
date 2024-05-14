@@ -1,3 +1,11 @@
+**Revival of Meme Stock Mania Continues for GameStop and AMC**\
+`A heady market rally extended to a second day after Keith Gill, the trader known as Roaring Kitty who rallied small investors to buy out-of-favor stocks in the pandemic, returned to social media.`\
+https://nytimes.com/2024/05/14/business/dealbook/gamestop-amc-meme-stocks.html
+
+**Weekly Student New Quiz: Israel-Hamas War, N.B.A. M.V.P., Chuck E. Cheese **\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2024/05/14/learning/14StudentNewsQuiz.html
+
 **Anti-Monarchy Activist in Thailand Dies After Hunger Strike**\
 `Netiporn Sanesangkhom, 28, supported abolishing the law that prohibits criticizing royalty and wanted to push the authorities to stop jailing political activists.`\
 https://nytimes.com/2024/05/14/world/asia/thailand-monarchy-activist-hunger-strike.html
