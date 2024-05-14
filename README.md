@@ -6,7 +6,7 @@ https://nytimes.com/2024/05/14/arts/television/jeopardy-pop-culture-streaming.ht
 `Newly restored, Horace Ové’s film about a Trinidadian family in London makes a triumphant return to the Brooklyn Academy of Music.`\
 https://nytimes.com/2024/05/14/movies/pressure-horace-ove-bam.html
 
-**8 Killed After Bus Carrying Farm Workers Crashes in Central Florida**\
+**8 Killed After Bus Carrying Migrant Workers Crashes in Central Florida**\
 `Another 40 passengers who had been on the bus were taken to nearby hospitals to be treated for injuries, the local authorities said.`\
 https://nytimes.com/2024/05/14/us/florida-bus-crash-deaths.html
 
