@@ -1,3 +1,7 @@
+**After Ill-Advised Shortcut, 2 Horses Are Rescued in a 5-Hour Mission**\
+`Nearly 50 people were needed to get the horses, Damascus and Beau, out of a swampy area and over a makeshift bridge during the rescue in Lebanon, Conn.`\
+https://nytimes.com/2024/05/14/nyregion/horse-rescue-connecticut.html
+
 **Bus Crash Kills Migrant Farm Workers in Central Florida**\
 `At least eight people were killed and dozens of others injured when a bus carrying migrant farm workers collided with a pickup truck in Central Florida.`\
 https://nytimes.com/video/us/100000009467721/bus-crash-florida-marion-migrant-farm-workers.html

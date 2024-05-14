@@ -22,7 +22,7 @@ https://nytimes.com/live/2024/05/07/opinion/thepoint/drowning-deaths-swimming
 `Lt. Gen. Yuri Kuznetsov became the second senior defense official to be detained on an accusation of corruption in the past month.`\
 https://nytimes.com/2024/05/14/world/europe/russia-detains-general-yuri-kuznetsov.html
 
-**Ropes, Logs and 5 Hours of Effort Save 2 Horses From Mud in Connecticut**\
+**After Ill-Advised Shortcut, 2 Horses Are Rescued in a 5-Hour Mission**\
 `Nearly 50 people were needed to get the horses, Damascus and Beau, out of a swampy area and over a makeshift bridge during the rescue in Lebanon, Conn.`\
 https://nytimes.com/2024/05/14/nyregion/horse-rescue-connecticut.html
 
