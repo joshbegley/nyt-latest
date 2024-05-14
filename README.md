@@ -1,3 +1,7 @@
+**‘This Feels Like My ‘Doctor Who’: Superfans Watch the New Season**\
+`Five British fans gathered to watch the premiere, wondering what a new Doctor and Disney+’s co-production would mean for their favorite show.`\
+https://nytimes.com/2024/05/14/arts/television/this-feels-like-my-doctor-who-superfans-watch-the-new-season.html
+
 **Ukraine Needs Money to Fight. Can Seized Russian Assets Help?**\
 `Kyiv’s supporters are discussing how to use the interest earned by frozen Russian assets to help pay for weapons and postwar reconstruction.`\
 https://nytimes.com/2024/05/14/world/europe/russia-frozen-assets-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/14/us/politics/biden-china-tariffs.html
 **Voters Demand Change, but What Kind Do They Want?**\
 `Angry nostalgia is the mood of the electorate.`\
 https://nytimes.com/live/2024/05/07/opinion/thepoint/biden-trump-poll-voters
-
-**Do We Talk Too Much About Mental Health?**\
-`Recent studies suggest that school mental health programs may not be beneficial and could even have a negative effect. What has been your experience?`\
-https://nytimes.com/2024/05/14/learning/do-we-talk-too-much-about-mental-health.html
 
