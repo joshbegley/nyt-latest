@@ -1,3 +1,17 @@
+**Cohen Lays Out Hush-Money Plot, and Protests Shadow Israeli Holiday**\
+`Plus, a diss track tops the charts.`\
+https://nytimes.com/2024/05/14/podcasts/cohen-testimony-israel-memorial-day-protest.html
+
+**Voters Want Change. In Our Poll, They See It in Trump.**\
+`Inside a new Times survey that shows Donald Trump leading President Biden in five battleground states.`\
+https://nytimes.com/2024/05/14/podcasts/the-daily/trump-biden-poll.html
+
+**Israeli military leaders see danger in the lack of a plan for governing Gaza after the war.**\
+`By Damien Cave and Adam Rasgon`\
+https://nytimes.com/live/2024/05/14/world/israel-gaza-war-hamas-rafah/israeli-military-leaders-see-danger-in-the-lack-of-a-plan-for-governing-gaza-after-the-war
+
+**Qatar says cease-fire talks are nearing an impasse, and other news.**\
+
 **‘This Feels Like My ‘Doctor Who’: Superfans Watch the New Season**\
 `Five British fans gathered to watch the premiere, wondering what a new Doctor and Disney+’s co-production would mean for their favorite show.`\
 https://nytimes.com/2024/05/14/arts/television/this-feels-like-my-doctor-who-superfans-watch-the-new-season.html
