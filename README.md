@@ -1,3 +1,7 @@
+**Cohen Lays Out Hush-Money Plot, and Protests Shadow Israeli Holiday**\
+`Plus, a diss track tops the charts.`\
+https://nytimes.com/2024/05/14/podcasts/cohen-testimony-israel-memorial-day-protest.html
+
 **Voters Want Change. In Our Poll, They See It in Trump.**\
 `Inside a new Times survey that shows Donald Trump leading President Biden in five battleground states.`\
 https://nytimes.com/2024/05/14/podcasts/the-daily/trump-biden-poll.html
