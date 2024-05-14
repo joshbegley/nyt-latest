@@ -1,3 +1,7 @@
+**Cannes: Greta Gerwig, Lily Gladstone and the Weight of Politics at the Fest**\
+`The festival opened with questions for the jury about Indigenous representation, #MeToo rumors and other timely topics.`\
+https://nytimes.com/2024/05/14/movies/cannes-jury-greta-gerwig-lily-gladstone.html
+
 **Orcas Sink Another Boat Near Iberia, Worrying Sailors Before Summer**\
 `Two people were rescued on Sunday after orcas damaged their boat near the Strait of Gibraltar, where the animals have caused havoc in recent years.`\
 https://nytimes.com/2024/05/14/world/europe/orcas-sink-yacht-strait-of-gibraltar.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/14/style/captain-sandy-yawn-wedding-leah-shafer.html
 **A.I.’s ‘Her’ Era Has Arrived**\
 `New chatbot technology can talk, laugh and sing like a human. What comes next is anyone’s guess.`\
 https://nytimes.com/2024/05/14/technology/ai-chatgpt-her-movie.html
-
-**Fed Chair’s Confidence in Slowing Inflation Is ‘Not as High’ as Before**\
-`Jerome H. Powell, the Federal Reserve chair, said that the central bank was poised to leave interest rates on hold after surprisingly stubborn inflation.`\
-https://nytimes.com/2024/05/14/business/economy/fed-powell-inflation.html
 

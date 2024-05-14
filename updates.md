@@ -1,3 +1,7 @@
+**Cannes: Greta Gerwig, Lily Gladstone and the Weight of Politics at the Fest**\
+`The festival opened with questions for the jury about Indigenous representation, #MeToo rumors and other timely topics.`\
+https://nytimes.com/2024/05/14/movies/cannes-jury-greta-gerwig-lily-gladstone.html
+
 **Orcas Sink Another Boat Near Iberia, Worrying Sailors Before Summer**\
 `Two people were rescued on Sunday after orcas damaged their boat near the Strait of Gibraltar, where the animals have caused havoc in recent years.`\
 https://nytimes.com/2024/05/14/world/europe/orcas-sink-yacht-strait-of-gibraltar.html
