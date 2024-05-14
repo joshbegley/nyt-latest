@@ -1,3 +1,15 @@
+**4 Takeaways From Our Homeowners Insurance Investigation**\
+`Across the country, more intense heat, storms and fires are causing the home insurance market to start to buckle.`\
+https://nytimes.com/2024/05/14/climate/climate-change-homeowners-insurance-takeaways.html
+
+**Michael Cohen Idolized Trump and Became His ‘Designated Thug’**\
+`Mr. Cohen first caught Donald J. Trump’s eye during a dispute with the condo board at one of his properties.`\
+https://nytimes.com/2024/05/14/nyregion/michael-cohen-donald-trump.html
+
+**At Least 2 Officers Killed in Ambush on Prison Convoy in France**\
+`The French authorities said that hundreds of officers had been deployed to track down a prisoner who had escaped and the assailants who had helped him.`\
+https://nytimes.com/2024/05/14/world/europe/france-prison-ambush.html
+
 **14trump-trial**\
 `Live Updates: Cohen Will Continue Testifying at Trump Trial After Steady Turn on Stand`\
 https://nytimes.com/live/2024/05/14/nyregion/trump-trial-news-michael-cohen
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/14/business/dealbook/gamestop-amc-meme-stocks.html
 **Weekly Student New Quiz: Israel-Hamas War, N.B.A. M.V.P., Chuck E. Cheese **\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2024/05/14/learning/14StudentNewsQuiz.html
-
-**Anti-Monarchy Activist in Thailand Dies After Hunger Strike**\
-`Netiporn Sanesangkhom, 28, supported abolishing the law that prohibits criticizing royalty and wanted to push the authorities to stop jailing political activists.`\
-https://nytimes.com/2024/05/14/world/asia/thailand-monarchy-activist-hunger-strike.html
-
-**Israel and Hamas battle in Gaza’s north and south.**\
-`By Liam Stack`\
-https://nytimes.com/live/2024/05/14/world/israel-gaza-war-hamas-rafah/israel-and-hamas-do-battle-in-gazas-north-and-south
-
-**The Influence of R.F.K. Jr.**\
-`What the independent candidate is emphasizing in his speeches — and which voters support him.`\
-https://nytimes.com/2024/05/14/briefing/robert-f-kennedy-jr-2024-election.html
 
