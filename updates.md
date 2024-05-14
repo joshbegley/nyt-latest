@@ -1,3 +1,7 @@
+**‘This Feels Like My ‘Doctor Who’: Superfans Watch the New Season**\
+`Five British fans gathered to watch the premiere, wondering what a new Doctor and Disney+’s co-production would mean for their favorite show.`\
+https://nytimes.com/2024/05/14/arts/television/this-feels-like-my-doctor-who-superfans-watch-the-new-season.html
+
 **Ukraine Needs Money to Fight. Can Seized Russian Assets Help?**\
 `Kyiv’s supporters are discussing how to use the interest earned by frozen Russian assets to help pay for weapons and postwar reconstruction.`\
 https://nytimes.com/2024/05/14/world/europe/russia-frozen-assets-ukraine.html
