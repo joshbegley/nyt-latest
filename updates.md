@@ -1,3 +1,7 @@
+**Striker’s journey from fan favorite to ‘dog influencer.’**\
+`By Sarah Lyall`\
+https://nytimes.com/live/2024/05/14/style/westminster-dog-show/strikers-journey-from-fan-favorite-to-dog-influencer
+
 **Cannes Film Festival: Red Carpet Roundup**\
 `The best fashion from a festival with a preponderance of photo ops.`\
 https://nytimes.com/article/cannes-film-festival-photos.html
