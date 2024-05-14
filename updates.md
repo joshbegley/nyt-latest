@@ -1,3 +1,7 @@
+**Can Google Give A.I. Answers Without Breaking the Web?**\
+`Publishers have long worried that artificial intelligence would drive readers away from their sites. They’re about to find out if those fears are warranted.`\
+https://nytimes.com/2024/05/14/technology/google-ai-answers.html
+
 **U.K. Summons Chinese Ambassador for Reprimand as Tensions Rise**\
 `Britain’s foreign office said it had reprimanded the Chinese ambassador, a day after three men were charged with assisting the Hong Kong intelligence service.`\
 https://nytimes.com/2024/05/14/world/europe/uk-summons-chinese-ambassador-for-reprimand-as-tensions-rise.html
