@@ -1,3 +1,7 @@
+**Tuesday Briefing**\
+`Michael Cohen’s testimony.`\
+https://nytimes.com/2024/05/14/briefing/michael-cohen-israel-memorial-day.html
+
 **Corrections: May 14, 2024**\
 `Corrections that appeared in print on Tuesday, May 14, 2024.`\
 https://nytimes.com/2024/05/14/pageoneplus/corrections-may-14-2024.html

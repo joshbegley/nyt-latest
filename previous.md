@@ -1,3 +1,7 @@
+**Tuesday Briefing**\
+`Michael Cohen’s testimony.`\
+https://nytimes.com/2024/05/14/briefing/michael-cohen-israel-memorial-day.html
+
 **Corrections: May 14, 2024**\
 `Corrections that appeared in print on Tuesday, May 14, 2024.`\
 https://nytimes.com/2024/05/14/pageoneplus/corrections-may-14-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/13/us/bitcoin-mine-biden-ban.html
 **Killing Dogs. Taunting the Homeless. Praising Al Capone. This Is Trump’s Party.**\
 `Kristi Noem’s memoir is the latest example of MAGA’s vice signaling.`\
 https://nytimes.com/2024/05/13/opinion/kristi-noem-vice-signaling-maga.html
-
-**David Sanborn, Saxophonist Who Defied Pigeonholing, Dies at 78**\
-`He was best known as a jazz musician, but his shimmering sound was also heard on classic albums by David Bowie, Stevie Wonder and Bruce Springsteen.`\
-https://nytimes.com/2024/05/13/arts/music/david-sanborn-dead.html
 
