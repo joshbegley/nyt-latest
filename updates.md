@@ -1,3 +1,7 @@
+**There is more to Westminster than the beauty contest.**\
+`Everyone is familiar with best in show, but the Masters Agility Championship over the weekend is action-packed.`\
+https://nytimes.com/2024/05/14/style/westminster-dog-agility-mixed-breed.html
+
 **Trump’s Defense Cast Michael Cohen as Untrustworthy**\
 `Also, Biden increased tariffs on Chinese imports. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/05/14/briefing/trump-defense-michael-cohen-china-tarrifs.html
