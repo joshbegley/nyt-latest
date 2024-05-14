@@ -1,3 +1,11 @@
+**Cannes Film Festival: Red Carpet Roundup**\
+`The best fashion from a festival with a preponderance of photo ops.`\
+https://nytimes.com/article/cannes-film-festival-photos.html
+
+**In 1877, The Times detailed ‘a fine collection of canines.’**\
+`By Callie Holtermann`\
+https://nytimes.com/live/2024/05/14/style/westminster-dog-show/in-1877-the-times-detailed-a-fine-collection-of-canines
+
 **‘The Secret Is Out’: Joan Vassos Is the First ‘Golden Bachelorette’**\
 `ABC introduced a new season of the spinoff, after the ratings success of “The Golden Bachelor.”`\
 https://nytimes.com/2024/05/14/style/golden-bachelorette-joan-vassos.html
