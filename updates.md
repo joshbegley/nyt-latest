@@ -1,3 +1,7 @@
+**Top Republicans Come Face to Face With Trump’s Seamy Past**\
+`Does the House speaker really know what it means to join Trumpworld?`\
+https://nytimes.com/live/2024/05/14/opinion/thepoint/trump-trial-johnson-republicans
+
 **Restaurant Review: ‘New Nordic’ Isn’t New, but ILIS Adds a Fresh Spin**\
 `Mads Refslund’s creative ideas at this Brooklyn restaurant can be dreamily seductive, even if the execution isn’t always as compelling.`\
 https://nytimes.com/2024/05/14/dining/ilis-restaurant-review.html
