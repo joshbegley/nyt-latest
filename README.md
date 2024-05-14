@@ -1,3 +1,7 @@
+**Acclaimed Iranian Film Director Flees Country After Jail Sentence**\
+`Mohammad Rasoulof, known for the award-winning “There Is No Evil,” had been barred from leaving Iran after his work criticized the country’s clerical leadership.`\
+https://nytimes.com/2024/05/14/world/middleeast/iran-director-rasoulof.html
+
 **Will Biden’s Trade War With China Get Results?**\
 `The White House has imposed $18 billion in new duties on Chinese imports, but it’s unclear how much that will help his economic agenda.`\
 https://nytimes.com/2024/05/14/business/dealbook/biden-trade-war-tariffs-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/14/briefing/robert-f-kennedy-jr-2024-election.html
 **Cohen Lays Out Hush-Money Plot, and Protest Shadows Israeli Holiday**\
 `Plus, a diss track tops the charts.`\
 https://nytimes.com/2024/05/14/podcasts/cohen-testimony-israel-memorial-day-protest.html
-
-**Voters Want Change. In Our Poll, They See It in Trump.**\
-`Inside a new Times survey that shows Donald Trump leading President Biden in five battleground states.`\
-https://nytimes.com/2024/05/14/podcasts/the-daily/trump-biden-poll.html
 
