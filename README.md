@@ -1,3 +1,19 @@
+**After Living Much of Life at Sea, Captain Sandy Finds Love on Land**\
+`Sandy Yawn of “Below Deck Mediterranean” married Leah Shafer on — what else? — a superyacht in Florida.`\
+https://nytimes.com/2024/05/14/style/captain-sandy-yawn-wedding-leah-shafer.html
+
+**A.I.’s ‘Her’ Era Has Arrived**\
+`New chatbot technology can talk, laugh and sing like a human. What comes next is anyone’s guess.`\
+https://nytimes.com/2024/05/14/technology/ai-chatgpt-her-movie.html
+
+**Fed Chair’s Confidence in Slowing Inflation Is ‘Not as High’ as Before**\
+`Jerome H. Powell, the Federal Reserve chair, said that the central bank was poised to leave interest rates on hold after surprisingly stubborn inflation.`\
+https://nytimes.com/2024/05/14/business/economy/fed-chairs-confidence-in-slowing-inflation-is-not-as-high-as-before.html
+
+**A Top Chef Winner Finds a New Italian Perch**\
+`Harold Dieterle, the winner of the first season of “Top Chef,” is opening Il Totano in the West Village, Marsanne NYC serves Mediterranean food in a 150-seat space and more restaurant news.`\
+https://nytimes.com/2024/05/14/dining/nyc-restaurant-news.html
+
 **Zendaya for $200? ‘Jeopardy!’ Plans to Stream a Pop Culture Spinoff**\
 `Sony Pictures Television said that “Pop Culture Jeopardy!” — which will pit teams of three against one another — would be streamed on Prime Video.`\
 https://nytimes.com/2024/05/14/arts/television/jeopardy-pop-culture-streaming.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/05/14/climate/summer-2023-hottest-2000-years.html
 **Podcasters as TV Heroes? We’re All Ears**\
 `Why have podcasters emerged as the rumpled protagonists of numerous television shows? We’ll discuss after the break.`\
 https://nytimes.com/2024/05/14/arts/television/bodkin-podcasting-tv.html
-
-**Fast Recipes for Any Forecast**\
-`Shrimp pasta and dumpling salad for warm evenings; potato soup and sheet-pan sausages for gray days.`\
-https://nytimes.com/2024/05/14/dining/fast-recipes-for-any-forecast.html
-
-**Darren Criss to Return to Broadway as a Robot in Love**\
-`The actor will star in “Maybe Happy Ending,” an original musical set in a future Seoul. It will begin previews in September.`\
-https://nytimes.com/2024/05/14/theater/darren-criss-broadway-maybe-happy-ending.html
-
-**What the F.A.A. Bill Means for Travelers**\
-`The legislation, which funds federal aviation programs for the next five years, cements new passenger protections, adds new routes and lets the T.S.A. continue to expand facial recognition programs. Here’s what you need to know.`\
-https://nytimes.com/2024/05/14/travel/what-the-faa-bill-means-for-travelers.html
-
-**The Great Gucci Gamble Comes to London**\
-`Turnarounds are hard, especially when the stakes are high. Can Sabato De Sarno deliver the goods with his debut cruise collection at the Tate Modern?`\
-https://nytimes.com/2024/05/14/style/gucci-london-cruise-collection.html
 

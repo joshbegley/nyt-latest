@@ -1,3 +1,7 @@
+**8 Killed After Bus Carrying Migrant Workers Crashes in Central Florida**\
+`Another 40 passengers who had been on the bus were taken to nearby hospitals to be treated for injuries, the local authorities said.`\
+https://nytimes.com/2024/05/14/us/florida-bus-crash-deaths.html
+
 **Zendaya for $200? ‘Jeopardy!’ Plans to Stream a Pop Culture Spinoff**\
 `Sony Pictures Television said that “Pop Culture Jeopardy!” — which will pit teams of three against one another — would be streamed on Prime Video.`\
 https://nytimes.com/2024/05/14/arts/television/jeopardy-pop-culture-streaming.html
