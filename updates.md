@@ -1,3 +1,11 @@
+**TikTok Creators Sue to Block U.S. Law Requiring Sale or Ban**\
+`The group, whose legal fees are being paid for by the company, said a ban of the app would violate their First Amendment rights.`\
+https://nytimes.com/2024/05/14/business/media/tiktok-creators-sue-ban.html
+
+**Blinken Plays “Rockin’ in the Free World” for Ukraine Soldiers**\
+`During a visit to Kyiv, Secretary of State Antony Blinken played Neil Young’s “Rockin’ in the Free World” with a local band at a bar in a show of support for Ukraine.`\
+https://nytimes.com/video/us/politics/100000009468857/blinken-guitar-kyiv-ukraine.html
+
 **Cohen Day 2: It’s Trump’s Lawyers’ Turn**\
 `The one-time fixer faced a furious pushback from the defense.`\
 https://nytimes.com/2024/05/14/us/politics/trump-trial-cohen-testimony.html
