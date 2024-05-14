@@ -1,3 +1,15 @@
+**Disruptions Loom as 17 Air Traffic Controllers Balk at Job Relocation**\
+`The F.A.A. is clashing with workers over efforts to relocate them from New York to Philadelphia. Senator Chuck Schumer has denounced the plan.`\
+https://nytimes.com/2024/05/14/us/politics/air-traffic-controllers-job-relocation.html
+
+**Give It Up for the Golden State Valkyries**\
+`The W.N.B.A.’s 13th team, the first new franchise to join the league since 2008, will be called the Valkyries and will play at Chase Center in San Francisco starting next year.`\
+https://nytimes.com/2024/05/14/us/wnba-golden-state-valkyries.html
+
+**The Legacy of Steve Albini, Rock’s Uncompromising Force**\
+`A conversation about one of the most admired, and divisive, figures in music.`\
+https://nytimes.com/2024/05/14/arts/music/popcast-steve-albini.html
+
 **What It’s Like Inside the Courtroom at Trump’s Manhattan Criminal Trial**\
 `The courtroom where Donald J. Trump’s trial is being held is on the large side, but still too small to contain the vast interest in the case.`\
 https://nytimes.com/2024/05/14/nyregion/trump-hush-money-trial-courtroom.html
