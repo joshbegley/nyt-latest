@@ -1,3 +1,11 @@
+**German Court Fines Far-Right Leader for Using Nazi Phrase**\
+`Björn Höcke, a state leader of the nationalist Alternative for Germany party, repeatedly used the phrase “Everything for Germany,” a slogan of the Nazi paramilitary wing, during campaign stops.`\
+https://nytimes.com/2024/05/14/world/europe/germany-afd-nazi-hocke.html
+
+**U.N. Cites a Lower Death Toll Among Women and Children in Gaza**\
+`The overall count of those killed has not declined, but incomplete information about many of them has prompted the United Nations to use more conservative figures for children and women.`\
+https://nytimes.com/2024/05/14/world/middleeast/un-gaza-death-toll-women-children.html
+
 **‘Don’t Flip, Don’t Speak’: How a Lawyer Became Cohen’s Back Channel to Trump**\
 `Robert J. Costello relayed messages to Michael D. Cohen telling him not to flip, Mr. Cohen said. But a web of alliances fell apart over unpaid bills.`\
 https://nytimes.com/2024/05/14/nyregion/robert-costello-lawyer-cohen-trump.html
