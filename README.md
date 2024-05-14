@@ -8,7 +8,7 @@ https://nytimes.com/2024/05/14/us/politics/blinken-ukraine-russia-war.html
 
 **Top Republicans Come Face to Face With Trump’s Seamy Past**\
 `Does the House speaker really know what it means to join Trumpworld?`\
-https://nytimes.com/live/2024/05/07/opinion/thepoint/trump-trial-johnson-republicans
+https://nytimes.com/live/2024/05/14/opinion/thepoint/trump-trial-johnson-republicans
 
 **Preparing for the Second China Shock**\
 `Why the Biden administration is imposing new tariffs.`\
