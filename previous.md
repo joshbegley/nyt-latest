@@ -1,3 +1,11 @@
+**Corrections: May 14, 2024**\
+`Corrections that appeared in print on Tuesday, May 14, 2024.`\
+https://nytimes.com/2024/05/14/pageoneplus/corrections-may-14-2024.html
+
+**How One Crack in the Line Opened a Path for the Russians**\
+`When Russian soldiers suddenly showed up in the small town of Ocheretyne in the east, it was clear that something had gone wrong.`\
+https://nytimes.com/2024/05/14/world/europe/ukraine-russia-war-battlefield.html
+
 **Quotation of the Day: Secret Files Show Hamas Spying on Its People**\
 `Quotation of the Day for Tuesday, May 14, 2024.`\
 https://nytimes.com/2024/05/13/pageoneplus/quotation-of-the-day-secret-files-show-hamas-spying-on-its-people.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/13/opinion/kristi-noem-vice-signaling-maga.html
 **David Sanborn, Saxophonist Who Defied Pigeonholing, Dies at 78**\
 `He was best known as a jazz musician, but his shimmering sound was also heard on classic albums by David Bowie, Stevie Wonder and Bruce Springsteen.`\
 https://nytimes.com/2024/05/13/arts/music/david-sanborn-dead.html
-
-**The Home Insurance Crunch: See What’s Happening in Your State**\
-`Climate change is making homeowners insurance less profitable. How has your state fared over the past decade?`\
-https://nytimes.com/interactive/2024/05/13/climate/home-insurance-profit-us-states-weather.html
-
-**As Insurers Around the U.S. Bleed Cash From Climate Shocks, Homeowners Lose**\
-`It’s not just California and Florida now: Insurers are losing money around the country. It means higher rates and, sometimes, cancellation notices.`\
-https://nytimes.com/interactive/2024/05/13/climate/insurance-homes-climate-change-weather.html
 
