@@ -1,3 +1,7 @@
+**There is more to Westminster than the beauty contest.**\
+`Everyone is familiar with best in show, but the Masters Agility Championship over the weekend is action-packed.`\
+https://nytimes.com/live/2024/05/14/style/westminster-dog-show/westminster-dog-agility-mixed-breed
+
 **In Kyiv, Blinken Adds Rock Notes to a ‘Free World’ Message**\
 `The secretary of state, a longtime guitarist, strummed along to a song chosen to underscore a central message of President Biden’s foreign policy.`\
 https://nytimes.com/2024/05/14/us/politics/blinken-ukraine-guitar.html

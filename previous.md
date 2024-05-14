@@ -1,3 +1,7 @@
+**There is more to Westminster than the beauty contest.**\
+`Everyone is familiar with best in show, but the Masters Agility Championship over the weekend is action-packed.`\
+https://nytimes.com/live/2024/05/14/style/westminster-dog-show/westminster-dog-agility-mixed-breed
+
 **In Kyiv, Blinken Adds Rock Notes to a ‘Free World’ Message**\
 `The secretary of state, a longtime guitarist, strummed along to a song chosen to underscore a central message of President Biden’s foreign policy.`\
 https://nytimes.com/2024/05/14/us/politics/blinken-ukraine-guitar.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/14/style/westminster-dog-show/heres-how-to-watc
 **Meet Westminster’s newest dog, the Lancashire heeler.**\
 `By Callie Holtermann`\
 https://nytimes.com/live/2024/05/14/style/westminster-dog-show/meet-westminsters-newest-dog-the-lancashire-heeler
-
-**Ship That Hit Baltimore Bridge Had 2 Electrical Failures Before Departure**\
-`A report from the National Transportation Safety Board said crew members had adjusted the electrical configuration of the ship even before it left port.`\
-https://nytimes.com/2024/05/14/us/baltimore-bridge-collapse-electrical-failure.html
 
