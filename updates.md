@@ -1,3 +1,11 @@
+**Alice Munro, a Literary Alchemist Who Made Great Fiction From Humble Lives**\
+`The Nobel Prize-winning author specialized in exacting short stories that were novelistic in scope, spanning decades with intimacy and precision.`\
+https://nytimes.com/2024/05/14/books/review/alice-munro-appraisal.html
+
+**Alice Munro, Nobel Laureate and Master of the Short Story, Dies at 92**\
+`Her stories were widely considered to be without equal, a mixture of ordinary people and extraordinary themes.`\
+https://nytimes.com/2024/05/14/books/alice-munro-dead.html
+
 **Ethical Lapses in the Medical Profession**\
 `Readers discuss a guest essay by a doctor calling for changes in the medical culture. Also: Columbia donors; a Florida bookstore; a balloon release ban.`\
 https://nytimes.com/2024/05/14/opinion/medicine-ethics.html
