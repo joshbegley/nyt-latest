@@ -1,3 +1,7 @@
+**Striker’s journey from fan favorite to ‘dog influencer.’**\
+`By Sarah Lyall`\
+https://nytimes.com/live/2024/05/14/style/westminster-dog-show/strikers-journey-from-fan-favorite-to-dog-influencer
+
 **Cannes Film Festival: Red Carpet Roundup**\
 `The best fashion from a festival with a preponderance of photo ops.`\
 https://nytimes.com/article/cannes-film-festival-photos.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/14/us/politics/trump-trial-cohen-testimony.html
 **There is more to Westminster than the beauty contest.**\
 `Everyone is familiar with best in show, but the Masters Agility Championship over the weekend is action-packed.`\
 https://nytimes.com/2024/05/14/style/westminster-dog-agility-mixed-breed.html
-
-**In Kyiv, Blinken Adds Rock Notes to a ‘Free World’ Message**\
-`The secretary of state, a longtime guitarist, strummed along to a song chosen to underscore a central message of President Biden’s foreign policy.`\
-https://nytimes.com/2024/05/14/us/politics/blinken-ukraine-guitar.html
 
