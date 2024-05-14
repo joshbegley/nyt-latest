@@ -1,8 +1,16 @@
+**Cohen on Cross: 5 Takeaways From Trump’s Criminal Trial**\
+`The key prosecution witness faced defense lawyers as the trial nears what may be an unexpectedly early conclusion.`\
+https://nytimes.com/2024/05/14/nyregion/cohen-trump-criminal-trial-takeaways.html
+
+**The dog show has a scrappier, sloppier cousin.**\
+`By Callie Holtermann`\
+https://nytimes.com/live/2024/05/14/style/westminster-dog-show/the-dog-show-has-a-scrappier-sloppier-cousin
+
 **Anti-Abortion Activist Who Led Blockade of Clinic Gets Nearly 5 Years in Prison**\
 `Lauren Handy, who drew widespread attention after human fetal remains were found at her home, was sentenced to 57 months in prison for her role in a 2020 blockade of a reproductive health clinic.`\
 https://nytimes.com/2024/05/14/us/anti-abortion-activist-sentenced.html
 
-**Where’s the Devastating Takedown of Michael Cohen that Trump Needs?**\
+**Where’s the Devastating Takedown of Michael Cohen That Trump Needs?**\
 `The defense team is struggling with its most basic task.`\
 https://nytimes.com/live/2024/05/14/opinion/thepoint/trump-trial-cohen-cross
 
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/europe/100000009468771/france-prison-ambush.html
 **Trump’s Defense Cast Michael Cohen as Untrustworthy**\
 `Also, Biden increased tariffs on Chinese imports. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/05/14/briefing/trump-defense-michael-cohen-china-tarrifs.html
-
-**TikTok Creators Sue to Block U.S. Law Requiring Sale or Ban**\
-`The group, whose legal fees are being paid for by the company, said a ban of the app would violate their First Amendment rights.`\
-https://nytimes.com/2024/05/14/business/media/tiktok-creators-sue-ban.html
-
-**Blinken Plays “Rockin’ in the Free World” for Ukraine Soldiers**\
-`During a visit to Kyiv, Secretary of State Antony Blinken played Neil Young’s “Rockin’ in the Free World” with a local band at a bar in a show of support for Ukraine.`\
-https://nytimes.com/video/us/politics/100000009468857/blinken-guitar-kyiv-ukraine.html
 
