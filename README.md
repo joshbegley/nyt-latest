@@ -14,7 +14,7 @@ https://nytimes.com/2024/05/14/business/red-lobster-closing.html
 `By The New York Times`\
 https://nytimes.com/live/2024/05/14/us/elections-today-maryland-wv-ne/catch-up-on-the-findings-of-the-latest-set-of-times-siena-polls
 
-**Sherman’s Sword and Books Are Among Civil War Items Up for Auction**\
+**Sherman Turned the Tide of the Civil War. His Sword and Bible Are Now for Sale.**\
 `Other artifacts that were the subject of intense online bidding include Sherman’s annotated copy of Ulysses S. Grant’s memoirs, his childhood algebra book and a family Bible.`\
 https://nytimes.com/2024/05/14/us/civil-war-sword-william-t-sherman.html
 
