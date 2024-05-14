@@ -1,3 +1,7 @@
+**U.K. Summons Chinese Ambassador for Reprimand as Tensions Rise**\
+`Britain’s foreign office said it had reprimanded the Chinese ambassador, a day after three men were charged with assisting the Hong Kong intelligence service.`\
+https://nytimes.com/2024/05/14/world/europe/uk-summons-chinese-ambassador-for-reprimand-as-tensions-rise.html
+
 **Meeting Yourself Where You’re At**\
 `Whether you’re still in school, looking for a job or already working, we have some tips for you.`\
 https://nytimes.com/2024/05/14/your-money/budgeting-money.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000009467721/bus-crash-florida-marion-migrant-fa
 **German Court Fines Far-Right Leader for Using Nazi Phrase**\
 `Björn Höcke, a state leader of the nationalist Alternative for Germany party, repeatedly used the phrase “Everything for Germany,” a slogan of the Nazi paramilitary wing, during campaign stops.`\
 https://nytimes.com/2024/05/14/world/europe/germany-afd-nazi-hocke.html
-
-**‘Don’t Flip, Don’t Speak’: How a Lawyer Became Cohen’s Back Channel to Trump**\
-`Robert J. Costello relayed messages to Michael D. Cohen telling him not to flip, Mr. Cohen said. But a web of alliances fell apart over unpaid bills.`\
-https://nytimes.com/2024/05/14/nyregion/robert-costello-lawyer-cohen-trump.html
 
