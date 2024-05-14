@@ -1,3 +1,7 @@
+**Sherman Turned the Tide of the Civil War. His Sword and Bible Are Now for Sale.**\
+`Other artifacts that were the subject of intense online bidding include Sherman’s annotated copy of Ulysses S. Grant’s memoirs, his childhood algebra book and a family Bible.`\
+https://nytimes.com/2024/05/14/us/civil-war-sword-william-t-sherman.html
+
 **Kenya Rallies Police Officers Ahead of Haiti Deployment**\
 `The East African country is preparing to send hundreds of police officers as the first wave of a multinational force aimed at stabilizing the chaos-ridden Caribbean nation.`\
 https://nytimes.com/2024/05/14/world/africa/kenya-haiti-police.html
