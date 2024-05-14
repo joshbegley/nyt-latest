@@ -1,3 +1,7 @@
+**Biden Bans Chinese Bitcoin Mine Near U.S. Nuclear Missile Base**\
+`An investigation identified national security risks posed by a crypto facility in Wyoming. It is near an Air Force base and a data center doing work for the Pentagon.`\
+https://nytimes.com/2024/05/13/us/bitcoin-mine-biden-ban.html
+
 **Killing Dogs. Taunting the Homeless. Praising Al Capone. This Is Trump’s Party.**\
 `Kristi Noem’s memoir is the latest example of MAGA’s vice signaling.`\
 https://nytimes.com/2024/05/13/opinion/kristi-noem-vice-signaling-maga.html
