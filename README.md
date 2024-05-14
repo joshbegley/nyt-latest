@@ -1,3 +1,7 @@
+**Give It Up for the Golden State Valkyries**\
+`The W.N.B.A.’s 13th team, the first new franchise to join the league since 2008, will be called the Valkyries and will play at Chase Center in San Francisco starting next year.`\
+https://nytimes.com/2024/05/14/us/wnba-golden-state-valkyries.html
+
 **The Legacy of Steve Albini, Rock’s Uncompromising Force**\
 `A conversation about one of the most admired, and divisive, figures in music.`\
 https://nytimes.com/2024/05/14/arts/music/popcast-steve-albini.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/14/business/dealbook/biden-trade-war-tariffs-china.h
 **Roman Polanski Did Not Defame British Actress, French Court Rules**\
 `Charlotte Lewis, who says the director raped her in the 1980s, brought the lawsuit against him over an interview in which he called the accusations an “odious lie.”`\
 https://nytimes.com/2024/05/14/world/europe/roman-polanski-charlotte-lewis-defamation-france.html
-
-**Georgia’s Parliament Gives Final Approval to ‘Foreign Agents’ Measure**\
-`The president has vowed to veto the legislation, which critics say could push the country back into Russia’s orbit. The governing party says it can override a veto.`\
-https://nytimes.com/2024/05/14/world/europe/georgia-parliament-foreign-agents-bill.html
 
