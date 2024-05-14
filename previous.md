@@ -1,3 +1,11 @@
+**Catch up on the findings of the latest set of Times/Siena polls.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/05/14/us/elections-today-maryland-wv-ne/catch-up-on-the-findings-of-the-latest-set-of-times-siena-polls
+
+**Sherman’s Sword and Books Are Among Civil War Items Up for Auction**\
+`Other artifacts that were the subject of intense online bidding include Sherman’s annotated copy of Ulysses S. Grant’s memoirs, his childhood algebra book and a family Bible.`\
+https://nytimes.com/2024/05/14/us/civil-war-sword-william-t-sherman.html
+
 **Disruptions Loom as 17 Air Traffic Controllers Balk at Job Relocation**\
 `The F.A.A. is clashing with workers over efforts to relocate them from New York to Philadelphia. Senator Chuck Schumer has denounced the plan.`\
 https://nytimes.com/2024/05/14/us/politics/air-traffic-controllers-job-relocation.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/14/world/europe/france-prison-ambush.html
 **Acclaimed Iranian Film Director Flees Country After Jail Sentence**\
 `Mohammad Rasoulof, known for the award-winning “There Is No Evil,” had been barred from leaving Iran after his work criticized Iran’s authoritarian rule.`\
 https://nytimes.com/2024/05/14/world/middleeast/iran-director-rasoulof.html
-
-**Will Biden’s Trade War With China Get Results?**\
-`The White House has imposed $18 billion in new duties on Chinese imports, but it’s unclear how much that will help his economic agenda.`\
-https://nytimes.com/2024/05/14/business/dealbook/biden-trade-war-tariffs-china.html
-
-**Roman Polanski Did Not Defame British Actress, French Court Rules**\
-`Charlotte Lewis, who says the director raped her in the 1980s, brought the lawsuit against him over an interview in which he called the accusations an “odious lie.”`\
-https://nytimes.com/2024/05/14/world/europe/roman-polanski-charlotte-lewis-defamation-france.html
 
