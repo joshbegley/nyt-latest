@@ -1,3 +1,11 @@
+**Restaurant Review: ‘New Nordic’ Isn’t New, but ILIS Adds a Fresh Spin**\
+`Mads Refslund’s creative ideas at this Brooklyn restaurant can be dreamily seductive, even if the execution isn’t always as compelling.`\
+https://nytimes.com/2024/05/14/dining/ilis-restaurant-review.html
+
+**Blinken Tells Ukraine ‘You Are Not Alone’ as Russia’s Military Makes Gains**\
+`The Biden administration had warned for months that Congress’s delay in approving an aid package would leave the Ukrainians vulnerable.`\
+https://nytimes.com/2024/05/14/us/politics/blinken-ukraine-russia-war.html
+
 **Top Republicans Come Face to Face With Trump’s Seamy Past**\
 `Does the House speaker really know what it means to join Trumpworld?`\
 https://nytimes.com/live/2024/05/07/opinion/thepoint/trump-trial-johnson-republicans
