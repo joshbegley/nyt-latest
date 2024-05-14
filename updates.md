@@ -1,3 +1,11 @@
+**Meeting Yourself Where You’re At**\
+`Whether you’re still in school, looking for a job or already working, we have some tips for you.`\
+https://nytimes.com/2024/05/14/your-money/budgeting-money.html
+
+**The Best of Cass Elliot**\
+`Hear her extraordinary range in 10 tracks.`\
+https://nytimes.com/2024/05/14/arts/music/amplifier-newsletter-cass-elliot.html
+
 **Appeals Court Upholds Gag Order on Trump in Manhattan Trial**\
 `The judges found that Justice Juan M. Merchan’s rules had not violated the former president’s First Amendment rights. Justice Merchan had issued the gag order to protect the trial’s integrity.`\
 https://nytimes.com/2024/05/14/nyregion/trump-gag-order-appeal.html
