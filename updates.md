@@ -1,3 +1,7 @@
+**U.K. Summons Chinese Ambassador for Reprimand as Tensions Rise**\
+`Britain’s foreign office said it had reprimanded the Chinese ambassador, a day after three men were charged with assisting the Hong Kong intelligence service.`\
+https://nytimes.com/2024/05/14/world/europe/uk-summons-chinese-ambassador-for-reprimand-as-tensions-rise.html
+
 **Meeting Yourself Where You’re At**\
 `Whether you’re still in school, looking for a job or already working, we have some tips for you.`\
 https://nytimes.com/2024/05/14/your-money/budgeting-money.html
