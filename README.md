@@ -1,4 +1,4 @@
-**Top Republicans Come Face-to-Face With Trump’s Seamy Past**\
+**Top Republicans Come Face to Face With Trump’s Seamy Past**\
 `Does the House speaker really know what it means to join Trumpworld?`\
 https://nytimes.com/live/2024/05/07/opinion/thepoint/trump-trial-johnson-republicans
 
