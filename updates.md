@@ -1,3 +1,11 @@
+**Mike Pence Sought Public Funds as 2024 Presidential Bid Collapsed**\
+`The former vice president found little traction in his campaign and still had more than $1.3 million in unpaid bills at the end of March.`\
+https://nytimes.com/2024/05/14/us/politics/mike-pence-public-funds.html
+
+**Todd Blanche, Who Gambled Gilded Career to Represent Trump, Gets Shot at Cohen**\
+`This case is Mr. Blanche’s second criminal trial as a defense lawyer. He seemed to struggle to land a “gotcha” moment on Tuesday while grilling Michael D. Cohen about a dizzying variety of interactions spanning years.`\
+https://nytimes.com/2024/05/14/nyregion/todd-blanche-who-gambled-gilded-career-to-represent-trump-gets-shot-at-cohen.html
+
 **Covering the Other Manhattan Trial**\
 `Tracey Tully’s reporting domain is New Jersey. But for the next six weeks, she’ll journey across the Hudson River to report on the federal corruption trial of Senator Robert Menendez.`\
 https://nytimes.com/2024/05/14/insider/robert-menendez-trial-reporters.html
