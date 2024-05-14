@@ -1,3 +1,19 @@
+**Wednesday Briefing: Michael Cohen Faced Donald Trump’s Lawyers**\
+`Also, Antony Blinken visited Kyiv and President Biden announced new Chinese tariffs.`\
+https://nytimes.com/2024/05/14/world/asia/cohen-trump-russia-blinken-asia.html
+
+**Four dogs have already advanced to best in show judging.**\
+`By Benjamin Hoffman`\
+https://nytimes.com/live/2024/05/14/style/westminster-dog-show/four-dogs-have-already-advanced-to-best-in-show-judging
+
+**Here’s how to watch the show.**\
+`By Benjamin Hoffman`\
+https://nytimes.com/live/2024/05/14/style/westminster-dog-show/heres-how-to-watch-the-show
+
+**Meet Westminster’s newest dog, the Lancashire heeler.**\
+`By Callie Holtermann`\
+https://nytimes.com/live/2024/05/14/style/westminster-dog-show/meet-westminsters-newest-dog-the-lancashire-heeler
+
 **Ship That Hit Baltimore Bridge Had 2 Electrical Failures Before Departure**\
 `A report from the National Transportation Safety Board said crew members had adjusted the electrical configuration of the ship even before it left port.`\
 https://nytimes.com/2024/05/14/us/baltimore-bridge-collapse-electrical-failure.html
