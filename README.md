@@ -1,4 +1,4 @@
-**Curfew Imposed as Protesters Clash With Police in New Caledonia**\
+**Curfew Imposed Amid Protests in Pacific Territory of New Caledonia**\
 `The unrest was triggered by a plan to let more French citizens vote in the territory, which independence activists say would water down their movement.`\
 https://nytimes.com/2024/05/14/world/asia/new-caledonia-curfew-protests.html
 
