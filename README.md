@@ -1,3 +1,11 @@
+**Meeting Yourself Where You’re At**\
+`Whether you’re still in school, looking for a job or already working, we have some tips for you.`\
+https://nytimes.com/2024/05/14/your-money/budgeting-money.html
+
+**The Best of Cass Elliot**\
+`Hear her extraordinary range in 10 tracks.`\
+https://nytimes.com/2024/05/14/arts/music/amplifier-newsletter-cass-elliot.html
+
 **Appeals Court Upholds Gag Order on Trump in Manhattan Trial**\
 `The judges found that Justice Juan M. Merchan’s rules had not violated the former president’s First Amendment rights. Justice Merchan had issued the gag order to protect the trial’s integrity.`\
 https://nytimes.com/2024/05/14/nyregion/trump-gag-order-appeal.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/14/world/europe/germany-afd-nazi-hocke.html
 **‘Don’t Flip, Don’t Speak’: How a Lawyer Became Cohen’s Back Channel to Trump**\
 `Robert J. Costello relayed messages to Michael D. Cohen telling him not to flip, Mr. Cohen said. But a web of alliances fell apart over unpaid bills.`\
 https://nytimes.com/2024/05/14/nyregion/robert-costello-lawyer-cohen-trump.html
-
-**Hades II’s Eternal Pursuit of a Tantalizing Past**\
-`The video game sequel’s central character struggles to exhume the memory of her former life. Out of the pandemic, our futures are just as murky.`\
-https://nytimes.com/2024/05/14/arts/hades-2.html
-
-**The Increase in Drowning Deaths Should Be a National Priority**\
-`Swimming lessons are not a luxury.`\
-https://nytimes.com/live/2024/05/07/opinion/thepoint/drowning-deaths-swimming
 
