@@ -1,3 +1,11 @@
+**Review: A Text-to-Speech Meet-Cute in ‘All of Me’**\
+`Laura Winters’s romantic comedy pays careful attention to the dynamics of living with disabilities.`\
+https://nytimes.com/2024/05/14/theater/all-of-me-review.html
+
+**With extensive planning, and treats, 2,500 show dogs descended on New York.**\
+`By Christine Chung`\
+https://nytimes.com/live/2024/05/14/style/westminster-dog-show/with-extensive-planning-and-treats-2500-show-dogs-descended-on-new-york
+
 **OpenAI’s Chief Scientist and Co-Founder Is Leaving the Company**\
 `In November, Ilya Sutskever joined three other OpenAI board members to force out Sam Altman, the chief executive, before saying he regretted the move.`\
 https://nytimes.com/2024/05/14/technology/ilya-sutskever-leaving-openai.html
