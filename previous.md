@@ -1,3 +1,7 @@
+**Former Nickelodeon Star Says Dan Schneider ‘Preyed’ on Her as Boss**\
+`Lori Beth Denberg, who appeared on “All That,” told Business Insider that he showed her porn multiple times and fondled her once. He says her claims are “exaggerated” and “in most cases, false.”`\
+https://nytimes.com/2024/05/14/arts/former-nickelodeon-star-says-dan-schneider-preyed-on-her-as-boss.html
+
 **Meet your bloggers (and their pets).**\
 `By Benjamin Hoffman`\
 https://nytimes.com/live/2024/05/14/style/westminster-dog-show/meet-your-bloggers-and-their-pets
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/14/style/westminster-dog-show/the-dog-show-has-
 **Anti-Abortion Activist Who Led Blockade of Clinic Gets Nearly 5 Years in Prison**\
 `Lauren Handy, who drew widespread attention after human fetal remains were found at her home, was sentenced to 57 months in prison for her role in a 2020 blockade of a reproductive health clinic.`\
 https://nytimes.com/2024/05/14/us/anti-abortion-activist-sentenced.html
-
-**Where’s the Devastating Takedown of Michael Cohen That Trump Needs?**\
-`The defense team is struggling with its most basic task.`\
-https://nytimes.com/live/2024/05/14/opinion/thepoint/trump-trial-cohen-cross
 
