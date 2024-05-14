@@ -1,3 +1,7 @@
+**In Kyiv, Blinken Adds Rock Notes to a ‘Free World’ Message**\
+`The secretary of state, a longtime guitarist, strummed along to a song chosen to underscore a central message of President Biden’s foreign policy.`\
+https://nytimes.com/2024/05/14/us/politics/blinken-ukraine-guitar.html
+
 **Bumble to Users: You Need Sex. Users to Bumble: Get Lost.**\
 `A new advertising campaign from the dating app set off a firestorm of criticism, prompting the company to apologize.`\
 https://nytimes.com/2024/05/14/style/bumble-celibacy-ad-apology.html
@@ -8,7 +12,7 @@ https://nytimes.com/2024/05/14/us/politics/mike-pence-public-funds.html
 
 **Todd Blanche, Who Gambled Gilded Career to Represent Trump, Gets Shot at Cohen**\
 `This case is Mr. Blanche’s second criminal trial as a defense lawyer. He seemed to struggle to land a “gotcha” moment on Tuesday while grilling Michael D. Cohen about a dizzying variety of interactions spanning years.`\
-https://nytimes.com/2024/05/14/nyregion/todd-blanche-who-gambled-gilded-career-to-represent-trump-gets-shot-at-cohen.html
+https://nytimes.com/2024/05/14/nyregion/todd-blanche-trump-lawyer.html
 
 **Covering the Other Manhattan Trial**\
 `Tracey Tully’s reporting domain is New Jersey. But for the next six weeks, she’ll journey across the Hudson River to report on the federal corruption trial of Senator Robert Menendez.`\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/14/style/westminster-dog-show/meet-westminsters
 **Ship That Hit Baltimore Bridge Had 2 Electrical Failures Before Departure**\
 `A report from the National Transportation Safety Board said crew members had adjusted the electrical configuration of the ship even before it left port.`\
 https://nytimes.com/2024/05/14/us/baltimore-bridge-collapse-electrical-failure.html
-
-**American Support for Ukraine has ‘Never Wavered,’ Blinken Says**\
-`Secretary of State Antony J. Blinken made an unannounced visit to Kyiv amid Russian military gains.`\
-https://nytimes.com/video/world/europe/100000009467693/blinken-kyiv-ukraine-russia.html
 

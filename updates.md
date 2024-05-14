@@ -1,3 +1,11 @@
+**In Kyiv, Blinken Adds Rock Notes to a ‘Free World’ Message**\
+`The secretary of state, a longtime guitarist, strummed along to a song chosen to underscore a central message of President Biden’s foreign policy.`\
+https://nytimes.com/2024/05/14/us/politics/blinken-ukraine-guitar.html
+
+**Todd Blanche, Who Gambled Gilded Career to Represent Trump, Gets Shot at Cohen**\
+`This case is Mr. Blanche’s second criminal trial as a defense lawyer. He seemed to struggle to land a “gotcha” moment on Tuesday while grilling Michael D. Cohen about a dizzying variety of interactions spanning years.`\
+https://nytimes.com/2024/05/14/nyregion/todd-blanche-trump-lawyer.html
+
 **Bumble to Users: You Need Sex. Users to Bumble: Get Lost.**\
 `A new advertising campaign from the dating app set off a firestorm of criticism, prompting the company to apologize.`\
 https://nytimes.com/2024/05/14/style/bumble-celibacy-ad-apology.html
