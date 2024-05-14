@@ -1,3 +1,7 @@
+**Ukraine Needs Money to Fight. Can Seized Russian Assets Help?**\
+`Kyiv’s supporters are discussing how to use the interest earned by frozen Russian assets to help pay for weapons and postwar reconstruction.`\
+https://nytimes.com/2024/05/14/world/europe/russia-frozen-assets-ukraine.html
+
 **R.F.K. Jr. Isn’t a Spoiler Now, Poll Suggests, but He Could Be in November**\
 `Kennedy draws disproportionately from voters who usually back Democrats but have defected to Trump.`\
 https://nytimes.com/2024/05/14/upshot/polling-robert-kennedy-trump-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/07/opinion/thepoint/biden-trump-poll-voters
 **Do We Talk Too Much About Mental Health?**\
 `Recent studies suggest that school mental health programs may not be beneficial and could even have a negative effect. What has been your experience?`\
 https://nytimes.com/2024/05/14/learning/do-we-talk-too-much-about-mental-health.html
-
-**How China Rose to Lead the World in Cars and Solar Panels**\
-`Heavy subsidies for industry, together with weak sales in China, have set the stage for an export boom, raising fears of factory job losses elsewhere.`\
-https://nytimes.com/2024/05/14/business/china-exports-manufacturing.html
 

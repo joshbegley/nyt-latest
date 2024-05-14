@@ -1,3 +1,7 @@
+**Ukraine Needs Money to Fight. Can Seized Russian Assets Help?**\
+`Kyiv’s supporters are discussing how to use the interest earned by frozen Russian assets to help pay for weapons and postwar reconstruction.`\
+https://nytimes.com/2024/05/14/world/europe/russia-frozen-assets-ukraine.html
+
 **R.F.K. Jr. Isn’t a Spoiler Now, Poll Suggests, but He Could Be in November**\
 `Kennedy draws disproportionately from voters who usually back Democrats but have defected to Trump.`\
 https://nytimes.com/2024/05/14/upshot/polling-robert-kennedy-trump-biden.html
