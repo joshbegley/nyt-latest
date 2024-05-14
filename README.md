@@ -1,3 +1,7 @@
+**Disruptions Loom as 17 Air Traffic Controllers Balk at Job Relocation**\
+`The F.A.A. is clashing with workers over efforts to relocate them from New York to Philadelphia. Senator Chuck Schumer has denounced the plan.`\
+https://nytimes.com/2024/05/14/us/politics/air-traffic-controllers-job-relocation.html
+
 **Give It Up for the Golden State Valkyries**\
 `The W.N.B.A.’s 13th team, the first new franchise to join the league since 2008, will be called the Valkyries and will play at Chase Center in San Francisco starting next year.`\
 https://nytimes.com/2024/05/14/us/wnba-golden-state-valkyries.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/14/world/middleeast/iran-director-rasoulof.html
 **Will Biden’s Trade War With China Get Results?**\
 `The White House has imposed $18 billion in new duties on Chinese imports, but it’s unclear how much that will help his economic agenda.`\
 https://nytimes.com/2024/05/14/business/dealbook/biden-trade-war-tariffs-china.html
-
-**Roman Polanski Did Not Defame British Actress, French Court Rules**\
-`Charlotte Lewis, who says the director raped her in the 1980s, brought the lawsuit against him over an interview in which he called the accusations an “odious lie.”`\
-https://nytimes.com/2024/05/14/world/europe/roman-polanski-charlotte-lewis-defamation-france.html
 
