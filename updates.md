@@ -1,3 +1,7 @@
+**Word of the Day: rancorous**\
+`This word has appeared in 40 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/14/learning/word-of-the-day-rancorous.html
+
 **Tuesday Briefing**\
 `Michael Cohen’s testimony.`\
 https://nytimes.com/2024/05/14/briefing/michael-cohen-israel-memorial-day.html

@@ -1,3 +1,7 @@
+**Word of the Day: rancorous**\
+`This word has appeared in 40 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/14/learning/word-of-the-day-rancorous.html
+
 **Tuesday Briefing**\
 `Michael Cohen’s testimony.`\
 https://nytimes.com/2024/05/14/briefing/michael-cohen-israel-memorial-day.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/13/nyregion/bowman-latimer-debate.html
 **Biden Bans Chinese Bitcoin Mine Near U.S. Nuclear Missile Base**\
 `An investigation identified national security risks posed by a crypto facility in Wyoming. It is near an Air Force base and a data center doing work for the Pentagon.`\
 https://nytimes.com/2024/05/13/us/bitcoin-mine-biden-ban.html
-
-**Killing Dogs. Taunting the Homeless. Praising Al Capone. This Is Trump’s Party.**\
-`Kristi Noem’s memoir is the latest example of MAGA’s vice signaling.`\
-https://nytimes.com/2024/05/13/opinion/kristi-noem-vice-signaling-maga.html
 
