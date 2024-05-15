@@ -1,3 +1,7 @@
+**Far-Right Candidate in Missouri Draws Backlash for Homophobic Video**\
+`Valentina Gomez’s online trolling campaign, rife with homophobia and attacks against transgender people, has prompted condemnation and scrutiny online.`\
+https://nytimes.com/2024/05/15/us/politics/valentina-gomez-video-backlash.html
+
 **Slovakia’s Prime Minister Shot in Assassination Attempt**\
 `The shooting of Prime Minister Robert Fico of Slovakia was the most serious attack on a European leader in decades.`\
 https://nytimes.com/video/world/europe/100000009471389/robert-fico-slovakia-shooting.html
