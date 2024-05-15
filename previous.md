@@ -1,3 +1,7 @@
+**How to Clean Up Your Phone’s Camera Roll**\
+`What to do when your phone is overloaded with photos.`\
+https://nytimes.com/interactive/2024/05/15/smarter-living/wirecutter/clean-up-camera-roll.html
+
 **House Passes Legislation to Improve Air Travel, Sending Bill to Biden’s Desk**\
 `The bipartisan vote to reauthorize the Federal Aviation Administration also greenlit measures to strengthen consumer protections and address safety and work force issues plaguing the skies.`\
 https://nytimes.com/2024/05/15/us/politics/airplanes-faa-house-bill.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/15/world/europe/a-france-in-shock-confronts-the-viol
 **A senator’s wife drew prosecutors’ attention.**\
 `By Tracey Tully`\
 https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/a-senators-wife-drew-prosecutors-attention
-
-**Why Do People Make Music?**\
-`In a new study, researchers found universal features of songs across many cultures, suggesting that music evolved in our distant ancestors.`\
-https://nytimes.com/2024/05/15/science/universal-music-evolution.html
 
