@@ -1,3 +1,11 @@
+**Butterflies Know: These Native Plants Aren’t Weeds**\
+`Pollinators recognize a good thing when they see it — and so do gardeners in search of organic pest control. As one put it, “My prairie is my pesticide.”`\
+https://nytimes.com/2024/05/15/realestate/native-plants-flowers.html
+
+**Ukraine Says It Is Engaged in Fierce Fighting With Russia in Northeast**\
+`While Ukrainian officials and analysts said that a Russian advance across the border appeared to be slowing, President Volodymyr Zelensky canceled his participation in international events.`\
+https://nytimes.com/2024/05/15/world/europe/ukraine-war-fighting-russia-advance.html
+
 **Ukraine Says It Is Engaged in Fierce Fighting With Russia in Northeast**\
 `Ukrainian officials and analysts said that a Russian advance across the border that began on Friday appeared to be slowing.`\
 https://nytimes.com/2024/05/15/world/europe/ukraine-war-fighting-russia-advance.html

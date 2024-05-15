@@ -1,5 +1,9 @@
+**Butterflies Know: These Native Plants Aren’t Weeds**\
+`Pollinators recognize a good thing when they see it — and so do gardeners in search of organic pest control. As one put it, “My prairie is my pesticide.”`\
+https://nytimes.com/2024/05/15/realestate/native-plants-flowers.html
+
 **Ukraine Says It Is Engaged in Fierce Fighting With Russia in Northeast**\
-`Ukrainian officials and analysts said that a Russian advance across the border that began on Friday appeared to be slowing.`\
+`While Ukrainian officials and analysts said that a Russian advance across the border appeared to be slowing, President Volodymyr Zelensky canceled his participation in international events.`\
 https://nytimes.com/2024/05/15/world/europe/ukraine-war-fighting-russia-advance.html
 
 **The Fed chair’s confidence in cooling inflation is ‘not as high’ as before.**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/15/podcasts/the-daily/climate-insurance.html
 **Putin Is Selling Victory, and Many Russians Are Buying It**\
 `Vladimir Putin’s message to his country appears to be taking hold: that Russia is fighting against the whole Western world — and winning.`\
 https://nytimes.com/2024/05/15/world/europe/russia-ukraine-war-victory-moscow.html
-
-**Explaining the Surprising Patterns of Fatal Shootings**\
-`We made a block-by-block interactive map of the U.S. to show how gun violence changed during the pandemic. Eli Murray, a graphics editor for The New York Times, gives some takeaways.`\
-https://nytimes.com/video/us/100000009461974/explaining-the-surprising-patterns-of-fatal-shootings.html
 
