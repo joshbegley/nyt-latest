@@ -1,3 +1,7 @@
+**Robert Menendez’s Corruption Trial Opens: 5 Takeaways**\
+`Senator Robert Menendez faces a dizzying array of bribery and corruption charges. The heart of his defense: Do not confuse the senator for his wife.`\
+https://nytimes.com/2024/05/15/nyregion/bob-menendez-trial-takeaways.html
+
 **What the Last Biden-Trump Debate Tells Us Now**\
 `The characters are the same as in 2020, but key story lines have turned upside down.`\
 https://nytimes.com/2024/05/15/us/politics/biden-trump-debate-2020.html

@@ -1,3 +1,7 @@
+**Robert Menendez’s Corruption Trial Opens: 5 Takeaways**\
+`Senator Robert Menendez faces a dizzying array of bribery and corruption charges. The heart of his defense: Do not confuse the senator for his wife.`\
+https://nytimes.com/2024/05/15/nyregion/bob-menendez-trial-takeaways.html
+
 **What the Last Biden-Trump Debate Tells Us Now**\
 `The characters are the same as in 2020, but key story lines have turned upside down.`\
 https://nytimes.com/2024/05/15/us/politics/biden-trump-debate-2020.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/menendez-was-doi
 **Popcast (Deluxe): The Kendrick-Drake Beef Ends + Zendaya & Post Malone**\
 `Catching up on the conclusion of rap’s heavyweight fight, Zendaya in “Challengers,” a Central Cee freestyle and Post Malone’s single with Morgan Wallen.`\
 https://nytimes.com/2024/05/15/arts/music/kendrick-drake-zendaya-popcast-deluxe.html
-
-**Menendez was a senator ‘on the take,’ prosecutors said.**\
-`By Tracey Tully`\
-https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/menendez-was-a-senator-on-the-take-prosecutors-said
 
