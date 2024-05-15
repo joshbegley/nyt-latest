@@ -1,3 +1,7 @@
+**What the Last Biden-Trump Debate Tells Us Now**\
+`The characters are the same as in 2020, but key story lines have turned upside down.`\
+https://nytimes.com/2024/05/15/us/politics/biden-trump-debate-2020.html
+
 **In a Secret Manhattan Garden, a Birthday Party for Katharine Hepburn**\
 `Every year, a small band of New Yorkers gathers in a tucked-away Midtown park to celebrate the actress, a beloved neighbor they remember as an everyday city dweller.`\
 https://nytimes.com/2024/05/15/style/katharine-hepburn-birthday-party.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/15/arts/music/kendrick-drake-zendaya-popcast-deluxe.
 **Menendez was a senator ‘on the take,’ prosecutors said.**\
 `By Tracey Tully`\
 https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/menendez-was-a-senator-on-the-take-prosecutors-said
-
-**Attempted Assassination of Slovak Leader Puts Europe on Edge**\
-`Prime Minister Robert Fico of Slovakia, an ally of Vladimir V. Putin and Viktor Orban, was shot multiple times on Wednesday, stoking fears that Europe’s polarized politics were tipping into violence.`\
-https://nytimes.com/2024/05/15/world/europe/slovakia-prime-minister-robert-fico-assassination-attempt.html
 
