@@ -1,3 +1,7 @@
+**15inflation-blog**\
+`Live Updates: Inflation Cooled Slightly`\
+https://nytimes.com/live/2024/05/15/business/cpi-inflation-fed
+
 **Why is the Rafah border crossing closed? Egypt and Israel each say the other is responsible.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/05/15/world/israel-gaza-war-hamas-rafah/why-is-the-rafah-border-crossing-closed-egypt-and-israel-each-say-the-other-is-responsible

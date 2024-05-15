@@ -35,6 +35,6 @@ https://nytimes.com/2024/05/15/world/europe/ukraine-war-fighting-russia-advance.
 https://nytimes.com/live/2024/05/15/business/cpi-inflation-fed/the-fed-chairs-confidence-in-cooling-inflation-is-not-as-high-as-before
 
 **15inflation-blog**\
-`Live Updates: Inflation Expected to Cool Slightly`\
+`Live Updates: Inflation Cooled Slightly`\
 https://nytimes.com/live/2024/05/15/business/cpi-inflation-fed
 
