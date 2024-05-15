@@ -1,3 +1,7 @@
+**China Deploys Dozens of Ships to Block Philippine Protest Flotilla**\
+`Filipino civilians set sail in fishing boats to oppose China’s control of a shoal claimed by the Philippines. A formidable Chinese fleet awaited them.`\
+https://nytimes.com/2024/05/14/world/asia/china-philippines-flotilla.html
+
 **At Christie’s, the Show Goes On, Despite a Hack**\
 `Although a cyberattack hobbled its website, the auction house held two major sales, totaling $115 million, on Tuesday night. One expert praised the evening’s “really respectable sales in a difficult environment.”`\
 https://nytimes.com/2024/05/14/arts/christies-auction-cyberattack.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/14/us/west-virginia-republican-governor.html
 **Sarah Elfreth, Maryland’s Youngest Female State Senator, Wins House Primary**\
 `Ms. Elfreth, 35, was victorious in a crowded Democratic field in a deep-blue district to succeed Representative John Sarbanes.`\
 https://nytimes.com/2024/05/14/us/politics/harry-dunn-sarah-elfreth-maryland.html
-
-**Transcript of Trump Manhattan Trial, May 13, 2024**\
-`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
-https://nytimes.com/interactive/2024/05/14/nyregion/trump-hush-money-trial-transcript-may-13.html
 
