@@ -1,3 +1,11 @@
+**Barbara Hannigan, Daring Singer and Maestro, to Lead Iceland Symphony**\
+`Hannigan, the rare artist to have a career as a soprano and a conductor, will assume a full-time conducting post for the first time.`\
+https://nytimes.com/2024/05/15/arts/music/barbara-hannigan-iceland-symphony.html
+
+**Who Is Robert Fico?**\
+`Much of the focus on Mr. Fico’s leadership has focused on his ties to President Vladimir Putin of Russia and Prime Minister Viktor Orban of Hungary.`\
+https://nytimes.com/2024/05/15/world/europe/robert-fico-slovakia.html
+
 **A ‘Changed Landscape’: Voices From Israel**\
 `Three Israelis offer their perspectives on the war. Also: Trump cheerleaders; rooting for A.I.; bipartisan action; playing catch; ban on apostrophes.`\
 https://nytimes.com/2024/05/15/opinion/israel-gaza-war.html

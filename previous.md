@@ -1,3 +1,11 @@
+**Barbara Hannigan, Daring Singer and Maestro, to Lead Iceland Symphony**\
+`Hannigan, the rare artist to have a career as a soprano and a conductor, will assume a full-time conducting post for the first time.`\
+https://nytimes.com/2024/05/15/arts/music/barbara-hannigan-iceland-symphony.html
+
+**Who Is Robert Fico?**\
+`Much of the focus on Mr. Fico’s leadership has focused on his ties to President Vladimir Putin of Russia and Prime Minister Viktor Orban of Hungary.`\
+https://nytimes.com/2024/05/15/world/europe/robert-fico-slovakia.html
+
 **A ‘Changed Landscape’: Voices From Israel**\
 `Three Israelis offer their perspectives on the war. Also: Trump cheerleaders; rooting for A.I.; bipartisan action; playing catch; ban on apostrophes.`\
 https://nytimes.com/2024/05/15/opinion/israel-gaza-war.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/15/business/stock-market-rally-inflation.html
 **World leaders express shock at an assassination attempt against Robert Fico, Slovakia’s prime minister.**\
 `By Matina Stevis-Gridneff`\
 https://nytimes.com/live/2024/05/15/world/slovakia-prime-minister-fico-shooting/world-leaders-express-shock-at-assassination-attempt-against-robert-fico-slovakias-prime-minister
-
-**Did You Have Syphilis When You Were Pregnant? We Want to Hear From You.**\
-`Congenital syphilis has risen significantly in the United States. The Times would like to talk to women who experienced the condition when pregnant and learn how they dealt with it.`\
-https://nytimes.com/2024/05/15/health/callout-pregnancy-syphilis.html
-
-**Russian Disinformation Videos Smear Biden Ahead of U.S. Election**\
-`Many of the videos are trying to appeal to right-wing voters with fake messages about President Biden, experts say.`\
-https://nytimes.com/2024/05/15/us/politics/russia-disinformation-election.html
 
