@@ -1,10 +1,14 @@
-**Despite Billions in Investments, Biden Trails in Arizona and Georgia**\
-`The states have been major beneficiaries of the Biden administration’s key economic policies, such as spending on infrastructure, manufacturing and clean energy.`\
-https://nytimes.com/2024/05/15/us/politics/biden-arizona-georgia-infrastructure-election.html
+**Biden Seeks to Curb Flow of Migrants From Nicaragua With New Restrictions**\
+`The announcement of visa restrictions and sanctions against Nicaraguan organizations reflects the White House’s concern that a surge of migrants could threaten President Biden’s re-election.`\
+https://nytimes.com/2024/05/15/us/politics/biden-nicaragua-immigration.html
 
 **Education Department Extends Deadline to Consolidate Loans for Forgiveness**\
 `Borrowers with commercially held loans will now have until June 30 to take steps to make their loans eligible for elimination.`\
 https://nytimes.com/2024/05/15/business/education-department-deadline-student-loan-forgiveness.html
+
+**Despite Billions in Investments, Biden Trails in Arizona and Georgia**\
+`The states have been major beneficiaries of the Biden administration’s key economic policies, such as spending on infrastructure, manufacturing and clean energy.`\
+https://nytimes.com/2024/05/15/us/politics/biden-arizona-georgia-infrastructure-election.html
 
 **With Church Bells and Hashtags, the Netherlands Backs Its Eurovision Act**\
 `The details of an incident that led to the singer’s disqualification remain elusive. But many Dutch fans have already made up their minds.`\
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/15/opinion/israel-gaza-war.html
 **7 Unforgettable Dogs at Westminster**\
 `The dog show can have only one winner, but each canine in contention for the title stood out in their own right.`\
 https://nytimes.com/2024/05/15/style/westminster-dog-show-best-in-show.html
-
-**Wildfire Approaches Canada’s Largest Oil-Producing Area. Again.**\
-`The fire, near Fort McMurray, Alberta, has put the community, which is haunted by the costliest wildfire in Canadian history, on high alert.`\
-https://nytimes.com/2024/05/15/world/canada/wildfires-fort-mcmurray-alberta-oil.html
 

@@ -1,3 +1,7 @@
+**Biden Seeks to Curb Flow of Migrants From Nicaragua With New Restrictions**\
+`The announcement of visa restrictions and sanctions against Nicaraguan organizations reflects the White House’s concern that a surge of migrants could threaten President Biden’s re-election.`\
+https://nytimes.com/2024/05/15/us/politics/biden-nicaragua-immigration.html
+
 **Despite Billions in Investments, Biden Trails in Arizona and Georgia**\
 `The states have been major beneficiaries of the Biden administration’s key economic policies, such as spending on infrastructure, manufacturing and clean energy.`\
 https://nytimes.com/2024/05/15/us/politics/biden-arizona-georgia-infrastructure-election.html
