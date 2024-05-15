@@ -1,3 +1,11 @@
+**A Shock of Red for a Royal Portrait**\
+`A new portrait of King Charles III is bathed in symbolism.`\
+https://nytimes.com/2024/05/15/style/king-charles-ii-portrait-jonathan-yeo-red.html
+
+**Stepping Cautiously Into the ‘Bridgerton’ Spotlight**\
+`Luke Newton has been in the sexy Netflix hit from the start. But a new series, premiering Thursday, will be his first as co-lead — or chief hunk.`\
+https://nytimes.com/2024/05/15/arts/television/luke-newton-bridgerton-colin.html
+
 **Housing inflation held steady in April, as a more marked slowdown remains elusive.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/05/15/business/cpi-inflation-fed/housing-inflation-held-steady-in-april-as-a-more-marked-slowdown-remains-elusive
