@@ -1,3 +1,7 @@
+**Assistant Principal Is Among 4 Charged With Murdering 3 in Georgia in 2013**\
+`School officials said that an assistant middle school principal had been placed on leave after he was arrested and charged, along with three others, with strangling three people in Jonesboro, Ga.`\
+https://nytimes.com/2024/05/15/us/assistant-principal-murder-georgia.html
+
 **Barge Strikes Bridge in Galveston, Texas, Causing Oil Spill**\
 `No injuries were reported when the barge struck a bridge that connects Galveston, Texas, to a small island along the Gulf of Mexico, causing a partial collapse.`\
 https://nytimes.com/2024/05/15/us/pelican-island-bridge-barge-galveston.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/15/business/media/cnn-abc-biden-trump-debates.html
 **Eric Adams Called Migrants ‘Excellent Swimmers.’ He Explains Why.**\
 `Mayor Adams said that his comment, which drew criticism from the right and the left, was based on numerous conversations he has had with migrants.`\
 https://nytimes.com/2024/05/15/nyregion/eric-adams-migrants-swimmers.html
-
-**U.S. Suspends Funding for Group at Center of Covid Origins Fight**\
-`The decision came after a scorching hearing in which lawmakers barraged EcoHealth Alliance’s president with claims of misrepresenting work with Chinese virologists.`\
-https://nytimes.com/2024/05/15/health/ecohealth-alliance-peter-daszak-nih-grants.html
 
