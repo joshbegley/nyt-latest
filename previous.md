@@ -1,3 +1,11 @@
+**Angela Alsobrooks Wants to Be Maryland’s First Black Senator**\
+`If she wins this fall, Maryland’s newly chosen Democratic nominee for Senate would also become the sole woman in Maryland’s congressional delegation.`\
+https://nytimes.com/2024/05/14/us/politics/who-is-angela-alsobrooks.html
+
+**Angela Alsobrooks Defeats David Trone in Maryland Democratic Senate Primary**\
+`The Prince George’s County executive will now face Larry Hogan, the popular former two-term governor, in a race that could determine which party controls the Senate.`\
+https://nytimes.com/2024/05/14/us/politics/maryland-democratic-senate-primary.html
+
 **Brewer’s Implement**\
 `MaryEllen Uthlaut’s crossword is worth celebrating.`\
 https://nytimes.com/2024/05/14/crosswords/daily-puzzle-2024-05-15.html
@@ -10,8 +18,8 @@ https://nytimes.com/2024/05/14/us/politics/republican-don-bacon-wins-in-biden-di
 `By Callie Holtermann`\
 https://nytimes.com/live/2024/05/14/style/westminster-dog-show/monty-a-giant-schnauzer-wins-the-working-group
 
-**Justice Dept. Says Boeing Violated 2021 Settlement Over Max Plane**\
-`The department said that the company had failed to design and enforce an ethics program to prevent violation of U.S. fraud laws.`\
+**Boeing Violated Settlement Over 737 Max Problems, Justice Dept. Says**\
+`The department said the company had failed to design and enforce an ethics program to prevent violation of U.S. fraud laws.`\
 https://nytimes.com/2024/05/14/business/boeing-justice-department-settlement.html
 
 **Singapore’s Riches Grew Under Its Leader. So Did Discontent.**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/14/us/politics/republican-convention-protests-secret
 **Micha, a black cocker spaniel, wins the sporting group.**\
 `By Callie Holtermann`\
 https://nytimes.com/live/2024/05/14/style/westminster-dog-show/micah-a-black-cocker-spaniel-wins-the-sporting-group
-
-**Larry Hogan, Maryland’s Former Governor, Wins G.O.P. Senate Primary**\
-`Mr. Hogan’s popularity in the deep-blue state sets up an uncommonly competitive general election contest.`\
-https://nytimes.com/2024/05/14/us/politics/larry-hogan-wins-maryland-senate-primary.html
-
-**Jim Justice Wins West Virginia’s Republican Senate Primary**\
-`The governor is now positioned to win the seat being vacated by Senator Joe Manchin III, a Democrat, and flip it to the G.O.P.`\
-https://nytimes.com/2024/05/14/us/jim-justice-west-virginia.html
 
