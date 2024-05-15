@@ -1,3 +1,11 @@
+**A Puzzle Game With Roots in Resnais and Resident Evil**\
+`In addition to its gaming influences, Lorelei and the Laser Eyes contains traces of postmodern novels and the French New Wave.`\
+https://nytimes.com/2024/05/15/arts/lorelei-and-the-laser-eyes.html
+
+**The Stock Market Is Back in Rally Mode**\
+`Investors seized on the latest inflation report Wednesday showing a slight moderation in consumer prices, pushing the S&P 500 past its March record.`\
+https://nytimes.com/2024/05/15/business/stock-market-rally-inflation.html
+
 **The Stock Market Is Back in Rally Mode**\
 `Investors seized on the latest inflation report Wednesday showing a slight moderation in consumer prices, pushing the S&P 500 past its March record.`\
 https://nytimes.com/2024/05/15/business/the-stock-market-is-back-in-rally-mode.html
