@@ -1,3 +1,11 @@
+**J. Gary Cooper, Pathbreaking Marine Leader, Is Dead at 87**\
+`He was the first Black officer to lead a Marine Corps infantry company into combat. He later became an Alabama state lawmaker and an assistant secretary of the Air Force.`\
+https://nytimes.com/2024/05/15/us/j-gary-cooper-dead.html
+
+**Defense Blames Senator Menendez’s Wife as Bribery Trial Starts**\
+`Senator Robert Menendez is charged in a vast international web of corruption. His federal trial began on Wednesday.`\
+https://nytimes.com/2024/05/15/nyregion/robert-menendez-bribery-trial.html
+
 **Slovakia has largely charted its own course since the fall of the Soviet Union.**\
 `has`\
 https://nytimes.com/live/2024/05/15/world/slovakia-prime-minister-fico-shooting/slovakia-has-largely-charted-its-own-course-since-the-fall-of-the-soviet-union
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/15/us/politics/biden-trump-debate-2020.html
 **In a Secret Manhattan Garden, a Birthday Party for Katharine Hepburn**\
 `Every year, a small band of New Yorkers gathers in a tucked-away Midtown park to celebrate the actress, a beloved neighbor they remember as an everyday city dweller.`\
 https://nytimes.com/2024/05/15/style/katharine-hepburn-birthday-party.html
-
-**What to Know About the Summit Between Putin and Xi in China**\
-`China’s backing will be crucial to President Vladimir V. Putin as he intensifies his offensive in Ukraine. But his host, Xi Jinping, has other competing priorities.`\
-https://nytimes.com/2024/05/15/world/asia/putin-xi-china-summit.html
-
-**Supreme Court, for Now, Allows Louisiana Voting Map to Move Forward**\
-`Louisiana had asked the justices to weigh in on a dispute over a new congressional map with a second majority-Black district in time for the election.`\
-https://nytimes.com/2024/05/15/us/louisiana-supreme-court-congressional-map.html
 
