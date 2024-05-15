@@ -1,3 +1,7 @@
+**15inflation-blog**\
+`Live Updates: Inflation Expected to Cool Slightly`\
+https://nytimes.com/live/2024/05/15/business/cpi-inflation-fed
+
 **Hundreds of Officers Pursue Manhunt After Deadly Ambush in France**\
 `As a search for the assailants and the prisoner they freed stretched into a second day, the authorities said the assault was surprising given that the inmate was not high-profile.`\
 https://nytimes.com/2024/05/15/world/europe/france-prison-ambush-manhunt.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/15/opinion/lab-meat-maga-florida.html
 **What Alice Munro Would Never Do**\
 `We are very different writers, but I have kept Alice Munro in mind, daily and for decades, as an example to follow.`\
 https://nytimes.com/2024/05/15/opinion/what-alice-munro-would-never-do.html
-
-**Putin’s Defense Shake-Up Is a Danger for Ukraine**\
-`The musical chairs point to a major overhaul of the military as Russia moves toward what is basically a war economy.`\
-https://nytimes.com/live/2024/05/14/opinion/thepoint/putin-defense-shakeup-ukraine
 
