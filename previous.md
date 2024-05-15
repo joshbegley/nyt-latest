@@ -1,3 +1,7 @@
+**The Fed chair’s confidence in cooling inflation is ‘not as high’ as before.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/05/15/business/cpi-inflation-fed/the-fed-chairs-confidence-in-cooling-inflation-is-not-as-high-as-before
+
 **15inflation-blog**\
 `Live Updates: Inflation Expected to Cool Slightly`\
 https://nytimes.com/live/2024/05/15/business/cpi-inflation-fed
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000009461974/explaining-the-surprising-patterns-
 **What MAGA’s Beef With Lab-Grown Meat Says About the G.O.P.**\
 `Paul Krugman on how burgers became the focus of a conspiracy theory.`\
 https://nytimes.com/2024/05/15/opinion/lab-meat-maga-florida.html
-
-**I Don’t Write Like Alice Munro. But I Want to Live Like Her.**\
-`We are very different writers, but I have kept Alice Munro in mind, daily and for decades, as an example to follow.`\
-https://nytimes.com/2024/05/15/opinion/what-alice-munro-would-never-do.html
 
