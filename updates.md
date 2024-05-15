@@ -1,3 +1,7 @@
+**Barge Strikes Bridge in Galveston, Causing Oil Spill**\
+`No injuries were reported when the barge struck a bridge that connects Galveston, Texas, to a small island along the Gulf of Mexico, causing a partial collapse.`\
+https://nytimes.com/2024/05/15/us/pelican-island-bridge-barge-galveston.html
+
 **Menendez was a senator ‘on the take,’ prosecutors said.**\
 `By Tracey Tully`\
 https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/menendez-was-a-senator-on-the-take-prosecutors-said
