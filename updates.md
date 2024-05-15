@@ -1,3 +1,23 @@
+**East Texas, Already Soaked, Prepares for a ‘Nightmare Scenario’ of More Rain**\
+`Some places in Texas have seen a year’s worth of rainfall since January.`\
+https://nytimes.com/2024/05/15/weather/texas-rain.html
+
+**Overdose Deaths Dropped in U.S. in 2023 for First Time in Five Years**\
+`Preliminary numbers show a nearly 4 percent decrease in deaths from opioids, largely fentanyl, but a rise in deaths from meth and cocaine.`\
+https://nytimes.com/2024/05/15/health/drug-overdose-deaths.html
+
+**‘Death Becomes Her’ Musical to Open on Broadway This Fall**\
+`The musical comedy, which is now running in Chicago, stars Megan Hilty and Jennifer Simard. It is based on the 1992 film.`\
+https://nytimes.com/2024/05/15/theater/death-becomes-her-broadway.html
+
+**Israel says it is intensifying operations in northern Gaza, where Hamas has returned.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/05/15/world/israel-gaza-war-hamas-rafah/israel-says-it-is-intensifying-operations-in-the-north-where-hamas-has-returned
+
+**Slovakia’s Prime Minister Is Wounded in Attack**\
+`Robert Fico was reportedly shot and taken to a hospital after the assault in the town of Handlova, northeast of the capital, Bratislava.`\
+https://nytimes.com/2024/05/15/world/europe/slovakia-prime-minister-fico.html
+
 **Slovakia’s Prime Minister Is Wounded in Attack**\
 `Robert Fico was reportedly shot and taken to a hospital after the assault in the town of Handlova, northeast of the capital.`\
 https://nytimes.com/2024/05/15/world/europe/slovakia-prime-minister-fico.html

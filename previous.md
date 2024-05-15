@@ -1,5 +1,21 @@
+**East Texas, Already Soaked, Prepares for a ‘Nightmare Scenario’ of More Rain**\
+`Some places in Texas have seen a year’s worth of rainfall since January.`\
+https://nytimes.com/2024/05/15/weather/texas-rain.html
+
+**Overdose Deaths Dropped in U.S. in 2023 for First Time in Five Years**\
+`Preliminary numbers show a nearly 4 percent decrease in deaths from opioids, largely fentanyl, but a rise in deaths from meth and cocaine.`\
+https://nytimes.com/2024/05/15/health/drug-overdose-deaths.html
+
+**‘Death Becomes Her’ Musical to Open on Broadway This Fall**\
+`The musical comedy, which is now running in Chicago, stars Megan Hilty and Jennifer Simard. It is based on the 1992 film.`\
+https://nytimes.com/2024/05/15/theater/death-becomes-her-broadway.html
+
+**Israel says it is intensifying operations in northern Gaza, where Hamas has returned.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/05/15/world/israel-gaza-war-hamas-rafah/israel-says-it-is-intensifying-operations-in-the-north-where-hamas-has-returned
+
 **Slovakia’s Prime Minister Is Wounded in Attack**\
-`Robert Fico was reportedly shot and taken to a hospital after the assault in the town of Handlova, northeast of the capital.`\
+`Robert Fico was reportedly shot and taken to a hospital after the assault in the town of Handlova, northeast of the capital, Bratislava.`\
 https://nytimes.com/2024/05/15/world/europe/slovakia-prime-minister-fico.html
 
 **After Outlawing Public Zoos, Costa Rica Relocates Hundreds of Animals**\
@@ -21,20 +37,4 @@ https://nytimes.com/2024/05/15/technology/personaltech/smartphones-software-upda
 **California Leaders Try to Solve Another Big Budget Deficit**\
 `Gov. Gavin Newsom released his revised spending plan to close a $27.6 billion gap, touching off what will probably be weeks of negotiations.`\
 https://nytimes.com/2024/05/15/us/california-budget-deficit.html
-
-**What Kind of Person Lies to a Child With Cancer?**\
-`A reader is fuming after a friend lied about her efforts to get a wig made for a sick child, and thinks her other friends should know about the deception.`\
-https://nytimes.com/2024/05/15/style/what-kind-of-person-lies-to-a-child-with-cancer.html
-
-**A Shock of Red for a Royal Portrait**\
-`A new portrait of King Charles III is bathed in symbolism.`\
-https://nytimes.com/2024/05/15/style/king-charles-iii-portrait-jonathan-yeo-red.html
-
-**Stepping Cautiously Into the ‘Bridgerton’ Spotlight**\
-`Luke Newton has been in the sexy Netflix hit from the start. But a new series, premiering Thursday, will be his first as co-lead — or chief hunk.`\
-https://nytimes.com/2024/05/15/arts/television/luke-newton-bridgerton-colin.html
-
-**Housing inflation held steady in April, as a more marked slowdown remains elusive.**\
-`By Jeanna Smialek`\
-https://nytimes.com/live/2024/05/15/business/cpi-inflation-fed/housing-inflation-held-steady-in-april-as-a-more-marked-slowdown-remains-elusive
 
