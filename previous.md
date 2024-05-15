@@ -2,9 +2,9 @@
 `Many of the videos are trying to appeal to right-wing voters with fake messages about President Biden, experts say.`\
 https://nytimes.com/2024/05/15/us/politics/russia-disinformation-election.html
 
-**Ron Klain, Biden’s former chief of staff, will take time off from Airbnb to help the president prepare.**\
-`By Katie Rogers`\
-https://nytimes.com/2024/05/15/us/politics/ron-klain-bidens-former-chief-of-staff-will-take-time-off-from-airbnb-to-help-the-president-prepare.html
+**Ron Klain, Former Chief of Staff, Will Return to Help Biden With Debate**\
+`Mr. Klain left the White House last year and became the chief legal officer at Airbnb. He plans to take a vacation from his job to help President Biden prepare.`\
+https://nytimes.com/2024/05/15/us/politics/ron-klain-biden-trump-debate.html
 
 **In About-Face, Wall Street’s Big Donors Warm to Trump**\
 `They may “hate the man,” as one put it, but major business players from coast to coast are increasingly on board for a second term after the first one alienated them.`\

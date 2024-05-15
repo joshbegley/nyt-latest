@@ -1,3 +1,7 @@
+**Ron Klain, Former Chief of Staff, Will Return to Help Biden With Debate**\
+`Mr. Klain left the White House last year and became the chief legal officer at Airbnb. He plans to take a vacation from his job to help President Biden prepare.`\
+https://nytimes.com/2024/05/15/us/politics/ron-klain-biden-trump-debate.html
+
 **Russian Disinformation Videos Smear Biden Ahead of U.S. Election**\
 `Many of the videos are trying to appeal to right-wing voters with fake messages about President Biden, experts say.`\
 https://nytimes.com/2024/05/15/us/politics/russia-disinformation-election.html
