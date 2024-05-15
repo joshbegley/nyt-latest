@@ -1,3 +1,11 @@
+**King Charles III, Painted for Posterity in the Hot Seat**\
+`A new royal portrait is bathed in symbolism.`\
+https://nytimes.com/2024/05/15/style/king-charles-ii-portrait-jonathan-yeo-red.html
+
+**Stepping Cautiously Into the ‘Bridgerton’ Spotlight**\
+`Luke Newton has been in the sexy Netflix hit from the start. But a new series, premiering Thursday, will be his first as co-lead — or chief hunk.`\
+https://nytimes.com/2024/05/15/arts/television/luke-newton-bridgerton-colin.html
+
 **Housing inflation held steady in April, as a more marked slowdown remains elusive.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/05/15/business/cpi-inflation-fed/housing-inflation-held-steady-in-april-as-a-more-marked-slowdown-remains-elusive
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/15/style/michael-cohen-rosie-odonnell-friendship.htm
 **Butterflies Know: These Native Plants Aren’t Weeds**\
 `Pollinators recognize a good thing when they see it — and so do gardeners in search of organic pest control. As one put it, “My prairie is my pesticide.”`\
 https://nytimes.com/2024/05/15/realestate/native-plants-flowers.html
-
-**Ukraine Says It Is Engaged in Fierce Fighting With Russia in Northeast**\
-`While Ukrainian officials and analysts said that a Russian advance across the border appeared to be slowing, President Volodymyr Zelensky canceled his participation in international events.`\
-https://nytimes.com/2024/05/15/world/europe/ukraine-war-fighting-russia-advance.html
-
-**The Fed chair’s confidence in cooling inflation is ‘not as high’ as before.**\
-`By Jeanna Smialek`\
-https://nytimes.com/live/2024/05/15/business/cpi-inflation-fed/the-fed-chairs-confidence-in-cooling-inflation-is-not-as-high-as-before
 
