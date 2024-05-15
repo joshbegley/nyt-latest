@@ -1,3 +1,11 @@
+**Democrats Batter Bank Regulator Over F.D.I.C.’s ‘Toxic’ Workplace Culture**\
+`The agency’s chair, Martin Gruenberg, has resisted Republicans’ calls to resign, but criticism by his own party raises questions about how long he can hang on.`\
+https://nytimes.com/2024/05/15/business/martin-gruenberg-fdic-congressional-hearing.html
+
+**7 Excuses People Gave to Avoid Jury Duty in Senator Menendez’s Bribery Trial**\
+`The would-be jurors disclosed challenges familiar to many families: child care, work obligations, long-planned vacations and scheduled surgeries. Other explanations were less conventional.`\
+https://nytimes.com/2024/05/15/nyregion/menendez-trial-jury-excuses.html
+
 **Katherine Porter, Painter of Intuitive Expressionism, Dies at 82**\
 `Her palette was entirely personal, making contact with the natural world just long enough to spirit viewers back into her own psychology.`\
 https://nytimes.com/2024/05/15/arts/katherine-porter-dead.html
