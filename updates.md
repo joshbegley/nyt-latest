@@ -1,3 +1,7 @@
+**This is the second time Menendez faces federal corruption charges.**\
+`By Maia Coleman`\
+https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/this-is-the-second-time-menendez-faces-federal-corruption-charges
+
 **Biden Mourns Fallen Officers at Memorial and Praises Police for Reducing Crime**\
 `In his remarks, President Biden paid his respects but also subtly addressed criticism by Republicans that crime has skyrocketed on his watch.`\
 https://nytimes.com/2024/05/15/us/politics/biden-police-memorial.html

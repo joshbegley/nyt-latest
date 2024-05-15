@@ -1,3 +1,7 @@
+**This is the second time Menendez faces federal corruption charges.**\
+`By Maia Coleman`\
+https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/this-is-the-second-time-menendez-faces-federal-corruption-charges
+
 **Biden Mourns Fallen Officers at Memorial and Praises Police for Reducing Crime**\
 `In his remarks, President Biden paid his respects but also subtly addressed criticism by Republicans that crime has skyrocketed on his watch.`\
 https://nytimes.com/2024/05/15/us/politics/biden-police-memorial.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/15/health/ecohealth-alliance-peter-daszak-nih-grants
 **In Washington, will the Menendez scandal elicit more than a shrug?**\
 `By Nicholas Fandos`\
 https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/in-washington-will-the-menendez-scandal-elicit-more-than-a-shrug
-
-**U.S. Bridges Face ‘Increased Risks’ From Large Ships, Coast Guard Says**\
-`A Coast Guard leader told Congress that bridges around the country needed to be assessed to avoid repeating the crash that knocked down the Key Bridge in Baltimore.`\
-https://nytimes.com/2024/05/15/us/baltimore-key-bridge-collapse-congress-hearing.html
 
