@@ -24,7 +24,7 @@ https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/menendez-was-a-s
 
 **Attempted Assassination of Slovak Leader Puts Europe on Edge**\
 `Prime Minister Robert Fico of Slovakia, an ally of Vladimir V. Putin and Viktor Orban, was shot multiple times on Wednesday, stoking fears that Europe’s polarized politics were tipping into violence.`\
-https://nytimes.com/2024/05/15/world/europe/slovakia-prime-miniter-robert-fico-assassination-attempt.html
+https://nytimes.com/2024/05/15/world/europe/slovakia-prime-minister-robert-fico-assassination-attempt.html
 
 **The Words That Defined the Week in Donald J. Trump’s Trial**\
 `The criminal trial was dominated by testimony from Michael D. Cohen, the defendant’s former personal lawyer, and Stormy Daniels, a porn star who took hush money.`\
