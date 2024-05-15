@@ -1,3 +1,11 @@
+**Despite Billions in Investments, Biden Trails in Arizona and Georgia**\
+`Both states have been major beneficiaries of the Biden administration’s key economic policies with spending on infrastructure, clean energy and computer chip manufacturing.`\
+https://nytimes.com/2024/05/15/us/politics/biden-arizona-georgia-infrastructure-election.html
+
+**Education Department Extends Deadline to Consolidate Loans for Forgiveness**\
+`Borrowers with commercially held loans will now have until June 30 to take steps to make their loans eligible for elimination.`\
+https://nytimes.com/2024/05/15/business/education-department-deadline-student-loan-forgiveness.html
+
 **With Church Bells and Hashtags, the Netherlands Backs Its Eurovision Act**\
 `The details of an incident that led to the singer’s disqualification remain elusive. But many Dutch fans have already made up their minds.`\
 https://nytimes.com/2024/05/15/arts/music/joost-klein-eurovision.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/15/style/westminster-dog-show-best-in-show.html
 **Wildfire Approaches Canada’s Largest Oil-Producing Area. Again.**\
 `The fire, near Fort McMurray, Alberta, has put the community, which is haunted by the costliest wildfire in Canadian history, on high alert.`\
 https://nytimes.com/2024/05/15/world/canada/wildfires-fort-mcmurray-alberta-oil.html
-
-**The Techno Pioneer Jeff Mills Blazes a Trail to Space, and Beyond**\
-`At 60, the D.J. and producer is inspiring fresh generations with new work, including an LP that approximates the experience of traveling through a black hole.`\
-https://nytimes.com/2024/05/15/arts/music/jeff-mills-tomorrow-comes-the-harvest-the-trip.html
-
-**A Puzzle Game With Roots in Resnais and Resident Evil**\
-`In addition to its gaming influences, Lorelei and the Laser Eyes contains traces of postmodern novels and the French New Wave.`\
-https://nytimes.com/2024/05/15/arts/lorelei-and-the-laser-eyes.html
 
