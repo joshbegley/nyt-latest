@@ -1,3 +1,7 @@
+**Why Biden Wanted to Debate Trump Early, and Why Trump Said Yes**\
+`President Biden, trailing in polls, is hoping to shake up the race and mitigate political risk. Donald Trump, already lowering expectations for his rival, is eager for onstage clashes.`\
+https://nytimes.com/2024/05/15/us/politics/trump-biden-debate-june.html
+
 **A.T. Ariyaratne, a Hero in Sri Lanka for Helping the Poor, Dies at 92**\
 `He built Sarvodaya, an organization that battled dismal living conditions in his country’s villages and championed peace and mediation during a vicious civil war.`\
 https://nytimes.com/2024/05/15/world/asia/at-ariyaratne-dead.html
