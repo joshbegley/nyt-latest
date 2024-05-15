@@ -1,3 +1,7 @@
+**House Passes Legislation to Improve Air Travel, Sending Bill to Biden’s Desk**\
+`The bipartisan vote to reauthorize the Federal Aviation Administration also greenlit measures to strengthen consumer protections and address safety and work force issues plaguing the skies.`\
+https://nytimes.com/2024/05/15/us/politics/airplanes-faa-house-bill.html
+
 **Senator Bob Menendez’s famous children carry a burden.**\
 `By Katherine Rosman and Tracey Tully`\
 https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/senator-bob-menendezs-famous-children-carry-a-burden
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/a-senators-wife-
 **Why Do People Make Music?**\
 `In a new study, researchers found universal features of songs across many cultures, suggesting that music evolved in our distant ancestors.`\
 https://nytimes.com/2024/05/15/science/universal-music-evolution.html
-
-**Budgeting for the Haters**\
-`How to think about budgeting — without all the shame and blame.`\
-https://nytimes.com/2024/05/15/your-money/budgeting-money.html
 
