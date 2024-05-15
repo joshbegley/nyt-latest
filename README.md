@@ -1,3 +1,7 @@
+**Biden’s Daring Debate Proposal Could Recharge His Campaign**\
+`Signaling an eagerness to debate is the crucial first step.`\
+https://nytimes.com/live/2024/05/14/opinion/thepoint/biden-trump-debate
+
 **How Wild Rice Forecasts Climate Change**\
 `Manoomin, a crop vital to the Indigenous peoples of the Upper Midwest, has been threatened in recent years. But careful stewardship is helping to bring it back.`\
 https://nytimes.com/2024/05/15/dining/wild-rice-climate-change.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/15/business/cpi-inflation-fed/food-price-gains-
 **‘Tradwife’ Content Isn’t Really for Women. It’s for Men Who Want Submissive Wives.**\
 `Young American women aren’t buying what these influencers are selling.`\
 https://nytimes.com/2024/05/15/opinion/tradwife-tiktok.html
-
-**Smartphones Can Now Last 7 Years. Here’s How to Keep Them Working.**\
-`Google and Samsung used to update smartphone software for only three years. That has changed.`\
-https://nytimes.com/2024/05/15/technology/personaltech/smartphones-software-update-ios-android.html
 
