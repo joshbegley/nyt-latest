@@ -1,3 +1,7 @@
+**Word of the Day: innate**\
+`This word has appeared in 107 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/15/learning/word-of-the-day-innate.html
+
 **It’s Not Just Putin. Russia Needs China, Too.**\
 `Never before have the two countries been so entwined.`\
 https://nytimes.com/2024/05/15/opinion/putin-china-xi-jinping.html

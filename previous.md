@@ -1,3 +1,7 @@
+**Word of the Day: innate**\
+`This word has appeared in 107 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/15/learning/word-of-the-day-innate.html
+
 **It’s Not Just Putin. Russia Needs China, Too.**\
 `Never before have the two countries been so entwined.`\
 https://nytimes.com/2024/05/15/opinion/putin-china-xi-jinping.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/15/business/economy/china-electric-vehicles-biden-ta
 **White House Worries Russia’s Momentum Is Changing Trajectory of Ukraine War**\
 `Multiple factors are helping Russia’s military advance, including a delay in American weaponry and Moscow’s technological innovations on the battlefield.`\
 https://nytimes.com/2024/05/14/us/politics/russia-momentum-ukraine-war.html
-
-**China Deploys Dozens of Ships to Block Philippine Protest Flotilla**\
-`Filipino civilians set sail in fishing boats to oppose China’s control of a shoal claimed by the Philippines. A formidable Chinese fleet awaited them.`\
-https://nytimes.com/2024/05/14/world/asia/china-philippines-flotilla.html
 
