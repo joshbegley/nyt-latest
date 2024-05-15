@@ -1,3 +1,7 @@
+**An A.I. Robot Named Sophia Tells Graduates to Believe in Themselves**\
+`D’Youville University, in Buffalo, N.Y., had an A.I. robot speak at its commencement on Saturday. Not everyone was happy about it.`\
+https://nytimes.com/2024/05/15/nyregion/dyouville-university-commencement-robot-speaker.html
+
 **Assistant Principal Is Among 4 Charged With Murdering 3 in Georgia in 2013**\
 `School officials said that an assistant middle school principal had been placed on leave after he was arrested and charged, along with three others, with strangling three people in Jonesboro, Ga.`\
 https://nytimes.com/2024/05/15/us/assistant-principal-murder-georgia.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/15/us/barry-romo-dead.html
 **CNN and ABC Snag the TV Coups of the Year**\
 `In a matter of hours, two networks outmaneuvered their rivals and landed a coveted pair of Biden-Trump prime-time debates.`\
 https://nytimes.com/2024/05/15/business/media/cnn-abc-biden-trump-debates.html
-
-**Eric Adams Called Migrants ‘Excellent Swimmers.’ He Explains Why.**\
-`Mayor Adams said that his comment, which drew criticism from the right and the left, was based on numerous conversations he has had with migrants.`\
-https://nytimes.com/2024/05/15/nyregion/eric-adams-migrants-swimmers.html
 
