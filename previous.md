@@ -1,3 +1,7 @@
+**Slovakia’s Prime Minister Is Wounded in Attack**\
+`Robert Fico was reportedly shot and taken to a hospital after the assault in the town of Handlova, northeast of the capital.`\
+https://nytimes.com/2024/05/15/world/europe/slovakia-prime-minister-fico.html
+
 **After Outlawing Public Zoos, Costa Rica Relocates Hundreds of Animals**\
 `Some of the animals will stay in sanctuaries, while others may be released into the wild.`\
 https://nytimes.com/2024/05/15/world/americas/costa-rica-zoo-closing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/15/arts/television/luke-newton-bridgerton-colin.html
 **Housing inflation held steady in April, as a more marked slowdown remains elusive.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/05/15/business/cpi-inflation-fed/housing-inflation-held-steady-in-april-as-a-more-marked-slowdown-remains-elusive
-
-**Why is the Rafah border crossing closed? Egypt and Israel each say the other is responsible.**\
-`By Adam Rasgon`\
-https://nytimes.com/live/2024/05/15/world/israel-gaza-war-hamas-rafah/why-is-the-rafah-border-crossing-closed-egypt-and-israel-each-say-the-other-is-responsible
 
