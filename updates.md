@@ -1,3 +1,7 @@
+**Here are 7 reasons people gave to avoid jury duty.**\
+`By Tracey Tully`\
+https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/here-are-7-reasons-people-gave-to-avoid-jury-duty
+
 **Trump and Biden Agree to 2 Debates. Here’s What to Know.**\
 `The first debate is expected to be held in late June on CNN, and the second is set for early September on ABC News.`\
 https://nytimes.com/2024/05/15/us/politics/trump-biden-debates-explained.html

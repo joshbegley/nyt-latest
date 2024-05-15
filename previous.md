@@ -1,3 +1,7 @@
+**Here are 7 reasons people gave to avoid jury duty.**\
+`By Tracey Tully`\
+https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/here-are-7-reasons-people-gave-to-avoid-jury-duty
+
 **Trump and Biden Agree to 2 Debates. Here’s What to Know.**\
 `The first debate is expected to be held in late June on CNN, and the second is set for early September on ABC News.`\
 https://nytimes.com/2024/05/15/us/politics/trump-biden-debates-explained.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/15/business/media/netflix-nfl-live.html
 **Gayle King Ate a Burger Before Her Sports Illustrated Swimsuit Shoot**\
 `The 69-year-old TV anchor, who graces a cover of this year’s swimsuit issue, was fine showing dimples but wanted to avoid looking “too boobalicious.”`\
 https://nytimes.com/2024/05/15/style/gayle-king-sports-illustrated-swimsuit.html
-
-**A France in Shock Confronts the Violence in Its Midst**\
-`The ruthless assault that freed a prisoner and set off a manhunt has turned attention to a multibillion-dollar drug trade fueling gang warfare.`\
-https://nytimes.com/2024/05/15/world/europe/a-france-in-shock-confronts-the-violence-in-its-midst.html
 
