@@ -1,3 +1,11 @@
+**Ethnic ‘Balancer’ for Government Jobs Becomes Focus of Ethnic Division**\
+`North Macedonia tries to ensure diversity — and keep the peace — with computer-generated state hiring quotas. Fraud and bloat have tainted that effort.`\
+https://nytimes.com/2024/05/15/world/europe/north-macedonia-ethnic-balancer.html
+
+**Russian War Advances Worry White House, and Mexico Buses Migrants South**\
+`Plus, the miniature poodle pulls it off.`\
+https://nytimes.com/2024/05/15/podcasts/russian-advances-cohen-cross-examination.html
+
 **The Possible Collapse of the U.S. Home Insurance System**\
 `A Times investigation found climate change may now be a concern for every homeowner in the country.`\
 https://nytimes.com/2024/05/15/podcasts/the-daily/climate-insurance.html
