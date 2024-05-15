@@ -1,3 +1,7 @@
+**Mapping Gun Violence**\
+`The Times found that, by the end of last year, one in seven Americans lived within a quarter mile of a recent fatal shooting`\
+https://nytimes.com/2024/05/15/briefing/gun-violence-united-states.html
+
 **Ethnic ‘Balancer’ for Government Jobs Becomes Focus of Ethnic Division**\
 `North Macedonia tries to ensure diversity — and keep the peace — with computer-generated state hiring quotas. Fraud and bloat have tainted that effort.`\
 https://nytimes.com/2024/05/15/world/europe/north-macedonia-ethnic-balancer.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/14/opinion/thepoint/putin-defense-shakeup-ukrai
 **What Is Your Favorite Word?**\
 `What word in any language feels especially beautiful, interesting or meaningful to you?`\
 https://nytimes.com/2024/05/15/learning/what-is-your-favorite-word.html
-
-**Trump’s O.G. Henchmen Would Like a Word With America**\
-`Voters are getting a fresh reminder of the ethics and integrity of Donald Trump’s original innermost circle.`\
-https://nytimes.com/2024/05/15/opinion/michael-cohen-donald-trump.html
 

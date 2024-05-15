@@ -1,3 +1,7 @@
+**Mapping Gun Violence**\
+`The Times found that, by the end of last year, one in seven Americans lived within a quarter mile of a recent fatal shooting`\
+https://nytimes.com/2024/05/15/briefing/gun-violence-united-states.html
+
 **Ethnic ‘Balancer’ for Government Jobs Becomes Focus of Ethnic Division**\
 `North Macedonia tries to ensure diversity — and keep the peace — with computer-generated state hiring quotas. Fraud and bloat have tainted that effort.`\
 https://nytimes.com/2024/05/15/world/europe/north-macedonia-ethnic-balancer.html
