@@ -1,3 +1,11 @@
+**How Much Do You Know About Kuwait?**\
+`Can you find Kuwait on a map? What else do you know about this Middle East nation?`\
+https://nytimes.com/interactive/2024/05/15/learning/KuwaitGeographyQuiz.html
+
+**A Big Plot Twist at OpenAI**\
+`Ilya Sutskever, a co-founder at the artificial intelligence start-up and one of the world’s leading researchers, is out, and Sam Altman’s control looks firmer than ever.`\
+https://nytimes.com/2024/05/15/business/dealbook/ilya-sutskever-sam-altman-openai.html
+
 **Biden Offers to Debate Trump, With Terms, Shunning the Debate Commission**\
 `The president wants two debates before early voting begins, with no crowds. Donald Trump’s camp has said it would debate “anytime and anywhere.”`\
 https://nytimes.com/2024/05/15/us/politics/biden-trump-debates.html
@@ -26,15 +34,7 @@ https://nytimes.com/live/2024/05/15/business/cpi-inflation-fed/the-fed-chairs-co
 `Live Updates: Inflation Expected to Cool Slightly`\
 https://nytimes.com/live/2024/05/15/business/cpi-inflation-fed
 
-**Hundreds of Officers Pursue Manhunt After Deadly Ambush in France**\
+**Hundreds of Officers Engaged in Manhunt After Deadly Ambush in France**\
 `As a search for the assailants and the prisoner they freed stretched into a second day, the authorities said the assault was surprising given that the inmate was not high-profile.`\
 https://nytimes.com/2024/05/15/world/europe/france-prison-ambush-manhunt.html
-
-**Mapping Gun Violence**\
-`The Times found that, by the end of last year, one in seven Americans lived within a quarter mile of a recent fatal shooting`\
-https://nytimes.com/2024/05/15/briefing/gun-violence-united-states.html
-
-**Ethnic ‘Balancer’ for Government Jobs Becomes Focus of Ethnic Division**\
-`North Macedonia tries to ensure diversity — and keep the peace — with computer-generated state hiring quotas. Fraud and bloat have tainted that effort.`\
-https://nytimes.com/2024/05/15/world/europe/north-macedonia-ethnic-balancer.html
 
