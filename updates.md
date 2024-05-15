@@ -1,3 +1,15 @@
+**Wildfire Approaches Canada’s Largest Oil-Producing Area. Again.**\
+`The fire, near Fort McMurray, Alberta, has put the community, which is haunted by the costliest wildfire in Canadian history, on high alert.`\
+https://nytimes.com/2024/05/15/world/canada/wildfires-fort-mcmurray-alberta-oil.html
+
+**The Techno Pioneer Jeff Mills Blazes a Trail to Space, and Beyond**\
+`At 60, the D.J. and producer is inspiring fresh generations with new work, including an LP that approximates the experience of traveling through a black hole.`\
+https://nytimes.com/2024/05/15/arts/music/jeff-mills-tomorrow-comes-the-harvest-the-trip.html
+
+**The Stock Market Is Back in Rally Mode**\
+`Investors seized on the latest inflation report as another sign that interest rates could be cut his year, helping push the S&P 500 past its March record.`\
+https://nytimes.com/2024/05/15/business/stock-market-rally-inflation.html
+
 **World leaders express shock at an assassination attempt against Robert Fico, Slovakia’s prime minister.**\
 `By Matina Stevis-Gridneff`\
 https://nytimes.com/live/2024/05/15/world/slovakia-prime-minister-fico-shooting/world-leaders-express-shock-at-assassination-attempt-against-robert-fico-slovakias-prime-minister
