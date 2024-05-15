@@ -1,3 +1,7 @@
+**‘Furiosa: A Mad Max Saga’ Review: A Lonely Avenger**\
+`The fifth installment of George Miller’s series delivers an origin story of Furiosa, the hard-bitten driver played here by Anya Taylor-Joy.`\
+https://nytimes.com/2024/05/15/movies/furiosa-a-mad-max-saga-review-anya-taylor-joy.html
+
 **Why Biden Wanted to Debate Trump Early, and Why Trump Said Yes**\
 `President Biden, trailing in polls, is hoping to shake up the race and mitigate political risk. Donald Trump, already lowering expectations for his rival, is eager for onstage clashes.`\
 https://nytimes.com/2024/05/15/us/politics/trump-biden-debate-june.html
