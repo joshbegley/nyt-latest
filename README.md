@@ -1,6 +1,6 @@
 **Jim Justice Wins West Virginia’s Republican Senate Primary**\
 `The governor is now positioned to win the seat being vacated by Senator Joe Manchin III, a Democrat, and flip it to the G.O.P.`\
-https://nytimes.com/2024/05/14/us/jim-justice-wins-west-virginias-republican-senate-primary.html
+https://nytimes.com/2024/05/14/us/jim-justice-west-virginia.html
 
 **Wall Street’s Heavy Hitters Come Out for the ‘Met Ball of Finance’**\
 `Robin Hood, an antipoverty organization in New York City, threw a “Matrix”-inspired gala that raised more than $68.5 million for the charity.`\
