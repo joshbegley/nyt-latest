@@ -1,3 +1,11 @@
+**Trump’s Jet Clipped a Parked Plane in Florida**\
+`No one was injured in the incident, which happened while the jet was taxiing early Sunday, the F.A.A. said. On Wednesday, the former president was traveling on a different plane.`\
+https://nytimes.com/2024/05/15/us/politics/trump-plane-florida-airport.html
+
+**Thursday Briefing: Slovakia’s Leader Was Shot**\
+`Also, mixed reviews for King Charles’s portrait.`\
+https://nytimes.com/2024/05/15/world/asia/slovakia-assassination-china-philippines-asia.html
+
 **An A.I. Robot Named Sophia Tells Graduates to Believe in Themselves**\
 `D’Youville University, in Buffalo, N.Y., had an A.I. robot speak at its commencement on Saturday. Not everyone was happy about it.`\
 https://nytimes.com/2024/05/15/nyregion/dyouville-university-commencement-robot-speaker.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/15/us/politics/jack-quinn-dead.html
 **Blinken Warns Fighting Could Undo Aid Gains in Gaza**\
 `The secretary of state said active fighting in the area was taking a toll after Israel had taken some steps to improve assistance.`\
 https://nytimes.com/2024/05/15/world/middleeast/israel-rafah-border-gallant-blinken.html
-
-**Barry Romo, Decorated Vet Who Turned Against the VietnamWar, Dies at 76**\
-`After serving as an officer, he became a leading antiwar activist. In 1971, he tossed away his medals during a Washington protest demonstration.`\
-https://nytimes.com/2024/05/15/us/barry-romo-dead.html
-
-**CNN and ABC Snag the TV Coups of the Year**\
-`In a matter of hours, two networks outmaneuvered their rivals and landed a coveted pair of Biden-Trump prime-time debates.`\
-https://nytimes.com/2024/05/15/business/media/cnn-abc-biden-trump-debates.html
 

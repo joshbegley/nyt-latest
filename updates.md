@@ -1,3 +1,11 @@
+**Trump’s Jet Clipped a Parked Plane in Florida**\
+`No one was injured in the incident, which happened while the jet was taxiing early Sunday, the F.A.A. said. On Wednesday, the former president was traveling on a different plane.`\
+https://nytimes.com/2024/05/15/us/politics/trump-plane-florida-airport.html
+
+**Thursday Briefing: Slovakia’s Leader Was Shot**\
+`Also, mixed reviews for King Charles’s portrait.`\
+https://nytimes.com/2024/05/15/world/asia/slovakia-assassination-china-philippines-asia.html
+
 **An A.I. Robot Named Sophia Tells Graduates to Believe in Themselves**\
 `D’Youville University, in Buffalo, N.Y., had an A.I. robot speak at its commencement on Saturday. Not everyone was happy about it.`\
 https://nytimes.com/2024/05/15/nyregion/dyouville-university-commencement-robot-speaker.html
