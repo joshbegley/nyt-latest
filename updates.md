@@ -1,3 +1,11 @@
+**J. Gary Cooper, Pathbreaking Marine Leader, Is Dead at 87**\
+`He was the first Black officer to lead a Marine Corps infantry company into combat. He later became an Alabama state lawmaker and an assistant secretary of the Air Force.`\
+https://nytimes.com/2024/05/15/us/j-gary-cooper-dead.html
+
+**Defense Blames Senator Menendez’s Wife as Bribery Trial Starts**\
+`Senator Robert Menendez is charged in a vast international web of corruption. His federal trial began on Wednesday.`\
+https://nytimes.com/2024/05/15/nyregion/robert-menendez-bribery-trial.html
+
 **Slovakia has largely charted its own course since the fall of the Soviet Union.**\
 `has`\
 https://nytimes.com/live/2024/05/15/world/slovakia-prime-minister-fico-shooting/slovakia-has-largely-charted-its-own-course-since-the-fall-of-the-soviet-union
