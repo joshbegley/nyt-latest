@@ -1,3 +1,11 @@
+**The Stock Market Is Back in Rally Mode**\
+`Investors seized on the latest inflation report Wednesday showing a slight moderation in consumer prices, pushing the S&P 500 past its March record.`\
+https://nytimes.com/2024/05/15/business/the-stock-market-is-back-in-rally-mode.html
+
+**World leaders express shock at assassination attempt against Robert Fico, Slovakia’s prime minister**\
+`By Matina Stevis-Gridneff`\
+https://nytimes.com/live/2024/05/15/world/slovakia-prime-minister-fico-shooting/world-leaders-express-shock-at-assassination-attempt-against-robert-fico-slovakias-prime-minister
+
 **Did You Have Syphilis When You Were Pregnant? We Want to Hear From You.**\
 `Congenital syphilis has risen significantly in the United States. The Times would like to talk to women who experienced the condition when pregnant and learn how they dealt with it.`\
 https://nytimes.com/2024/05/15/health/callout-pregnancy-syphilis.html

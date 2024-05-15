@@ -1,3 +1,11 @@
+**The Stock Market Is Back in Rally Mode**\
+`Investors seized on the latest inflation report Wednesday showing a slight moderation in consumer prices, pushing the S&P 500 past its March record.`\
+https://nytimes.com/2024/05/15/business/the-stock-market-is-back-in-rally-mode.html
+
+**World leaders express shock at assassination attempt against Robert Fico, Slovakia’s prime minister**\
+`By Matina Stevis-Gridneff`\
+https://nytimes.com/live/2024/05/15/world/slovakia-prime-minister-fico-shooting/world-leaders-express-shock-at-assassination-attempt-against-robert-fico-slovakias-prime-minister
+
 **Did You Have Syphilis When You Were Pregnant? We Want to Hear From You.**\
 `Congenital syphilis has risen significantly in the United States. The Times would like to talk to women who experienced the condition when pregnant and learn how they dealt with it.`\
 https://nytimes.com/2024/05/15/health/callout-pregnancy-syphilis.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/15/magazine/garcia-marquez-manuscript-ethics.html
 **The Billionaire Frank McCourt Mounts Bid to Buy TikTok**\
 `Mr. McCourt, a longtime critic of the way tech companies use data, sees acquiring TikTok as a chance to create an “alternative to the current internet.”`\
 https://nytimes.com/2024/05/15/business/frank-mccourt-tiktok-bid.html
-
-**A Leading Free Expression Group Is Roiled by Dissent Over Gaza**\
-`As it cancels events amid criticism of its response to the Israel-Hamas war, PEN America faces questions about when an organization devoted to free speech for all should take sides.`\
-https://nytimes.com/2024/05/15/arts/pen-free-expression-gaza.html
-
-**Review: Parsons Dance Spins and Darts Through Miles Davis**\
-`For its Joyce season, the company unveils “Juke,” a spiky premiere by Jamar Roberts, along with dances by David Parsons and Penny Saunders.`\
-https://nytimes.com/2024/05/15/arts/dance/review-parsons-dance-jamar-roberts.html
 
