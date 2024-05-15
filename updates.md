@@ -1,3 +1,7 @@
+**Sage, a Miniature Poodle, Wins Best in Show at Westminster Dog Show**\
+`Sage, the star of the prestigious Westminster Kennel Club Dog Show, won over six other group champions.`\
+https://nytimes.com/2024/05/14/style/westerminster-dog-best-in-show-sage.html
+
 **Biden Administration Advances $1 Billion Arms Sale to Israel**\
 `The notification of the deal to Congress as the president holds up the delivery of other weapons shows the fine line the administration is trying to walk with its longtime ally.`\
 https://nytimes.com/2024/05/14/us/politics/biden-arms-sale-israel.html
