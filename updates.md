@@ -1,3 +1,11 @@
+**Michael Cohen Says Trump Discussed Reimbursement in Oval Office**\
+`Michael Cohen’s story of a hush-money arrangement struck in the White House was the only personal account tying Donald J. Trump to falsified documents. Jonah Bromwich, a criminal justice reporter at The New York Times, gives his takeaways.`\
+https://nytimes.com/video/nyregion/100000009469245/michael-cohen-says-trump-discussed-reimbursement-in-oval-office.html
+
+**Quotation of the Day: How One Crack in the Line Opened a Path for Russians**\
+`Quotation of the Day for Wednesday, May 15, 2024.`\
+https://nytimes.com/2024/05/14/pageoneplus/quotation-of-the-day-how-one-crack-in-the-line-opened-a-path-for-russians.html
+
 **West Virginia’s Attorney General Wins the Republican Nod for Governor**\
 `In November, Patrick Morrisey will face Steve Williams, a Democrat and the mayor of Huntington. The winner will succeed Jim Justice, who is running for U.S. Senate.`\
 https://nytimes.com/2024/05/14/us/west-virginia-republican-governor.html
