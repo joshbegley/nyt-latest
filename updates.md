@@ -1,3 +1,7 @@
+**John Barbata, Turtles and C.S.N.Y. Drummer, Dies at 79**\
+`Barbata belonged to marquee bands of the late ’60s and ’70s, drumming on smash hits such as “Happy Together,” the first song he recorded with the Turtles.`\
+https://nytimes.com/2024/05/15/arts/music/john-barbata-dead.html
+
 **Seeking History in Maryland, and Zombie Campaigns Linger: Primary Takeaways**\
 `Angela Alsobrooks would be the third Black woman elected to the Senate if she wins her Maryland race against Larry Hogan; Nikki Haley keeps racking up votes.`\
 https://nytimes.com/2024/05/15/us/politics/elections-maryland-wv-ne-takeaways.html
