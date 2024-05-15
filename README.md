@@ -1,10 +1,10 @@
-**Despite Billions in Investments, Biden Trails in Arizona and Georgia**\
-`Both states have been major beneficiaries of the Biden administration’s key economic policies with spending on infrastructure, clean energy and computer chip manufacturing.`\
-https://nytimes.com/2024/05/15/us/politics/biden-arizona-georgia-infrastructure-election.html
-
 **Education Department Extends Deadline to Consolidate Loans for Forgiveness**\
 `Borrowers with commercially held loans will now have until June 30 to take steps to make their loans eligible for elimination.`\
 https://nytimes.com/2024/05/15/business/education-department-deadline-student-loan-forgiveness.html
+
+**Despite Billions in Investments, Biden Trails in Arizona and Georgia**\
+`The states have been major beneficiaries of the Biden administration’s key economic policies, such as spending on infrastructure, clean energy and computer chip manufacturing.`\
+https://nytimes.com/2024/05/15/us/politics/biden-arizona-georgia-infrastructure-election.html
 
 **With Church Bells and Hashtags, the Netherlands Backs Its Eurovision Act**\
 `The details of an incident that led to the singer’s disqualification remain elusive. But many Dutch fans have already made up their minds.`\
