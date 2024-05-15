@@ -1,3 +1,19 @@
+**Food price gains moderated in April.**\
+`By Madeleine Ngo`\
+https://nytimes.com/live/2024/05/15/business/cpi-inflation-fed/food-price-gains-moderated-in-april
+
+**‘Tradwife’ Content Isn’t Really for Women. It’s for Men Who Want Submissive Wives.**\
+`Young American women aren’t buying what these influencers are selling.`\
+https://nytimes.com/2024/05/15/opinion/tradwife-tiktok.html
+
+**Smartphones Can Now Last 7 Years. Here’s How to Keep Them Working.**\
+`Google and Samsung used to update smartphone software for only three years. That has changed.`\
+https://nytimes.com/2024/05/15/technology/personaltech/smartphones-software-update-ios-android.html
+
+**California Leaders Try to Solve Another Big Budget Deficit**\
+`Gov. Gavin Newsom released his revised spending plan to close a $27.6 billion gap, touching off what will probably be weeks of negotiations.`\
+https://nytimes.com/2024/05/15/us/california-budget-deficit.html
+
 **What Kind of Person Lies to a Child With Cancer?**\
 `A reader is fuming after a friend lied about her efforts to get a wig made for a sick child, and thinks her other friends should know about the deception.`\
 https://nytimes.com/2024/05/15/style/what-kind-of-person-lies-to-a-child-with-cancer.html
