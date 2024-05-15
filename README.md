@@ -1,3 +1,11 @@
+**Russian Disinformation Videos Smear Biden Ahead of U.S. Election**\
+`Many of the videos are trying to appeal to right-wing voters with fake messages about President Biden, experts say.`\
+https://nytimes.com/2024/05/15/us/politics/russia-disinformation-election.html
+
+**Ron Klain, Biden’s former chief of staff, will take time off from Airbnb to help the president prepare.**\
+`By Katie Rogers`\
+https://nytimes.com/2024/05/15/us/politics/ron-klain-bidens-former-chief-of-staff-will-take-time-off-from-airbnb-to-help-the-president-prepare.html
+
 **In About-Face, Wall Street’s Big Donors Warm to Trump**\
 `They may “hate the man,” as one put it, but major business players from coast to coast are increasingly on board for a second term after the first one alienated them.`\
 https://nytimes.com/2024/05/15/business/wall-street-donors-trump.html
@@ -10,8 +18,8 @@ https://nytimes.com/2024/05/15/business/trump-media-stock.html
 `The magazine’s Ethicist columnist on whether to honor a dead writer’s wishes.`\
 https://nytimes.com/2024/05/15/magazine/garcia-marquez-manuscript-ethics.html
 
-**Billionaire Frank McCourt Mounts Bid to Buy TikTok**\
-`Frank McCourt, a longtime critic of the way tech companies use data, sees acquiring TikTok as a chance to create an “alternative to the current internet.”`\
+**The Billionaire Frank McCourt Mounts Bid to Buy TikTok**\
+`Mr. McCourt, a longtime critic of the way tech companies use data, sees acquiring TikTok as a chance to create an “alternative to the current internet.”`\
 https://nytimes.com/2024/05/15/business/frank-mccourt-tiktok-bid.html
 
 **A Leading Free Expression Group Is Roiled by Dissent Over Gaza**\
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/15/arts/dance/review-parsons-dance-jamar-roberts.htm
 **Too Red, Too Vampiric, Too Sexy: A Brief History of Polarizing Royal Portraits**\
 `Jonathan Yeo’s painting of King Charles III has prompted both admiration and bemusement, but it’s far from the first royal portrait to divide opinion.`\
 https://nytimes.com/2024/05/15/world/europe/king-charles-royal-portraits.html
-
-**One Japanese Word Changed the Course of Her Career**\
-`Devin Halbal had amassed hundreds of thousands of TikTok followers with her inspirational videos. Then she went to Asia.`\
-https://nytimes.com/2024/05/15/style/devin-halbal-tiktok.html
-
-**Biden and Trump agree to a CNN debate on June 27.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/05/15/us/biden-trump-election/biden-and-trump-agree-to-a-cnn-debate-on-june-27
 
