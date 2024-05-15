@@ -1,3 +1,15 @@
+**Biden Offers to Debate Trump, With Terms, Shunning the Debate Commission**\
+`The president wants two debates before early voting begins, with no crowds. Donald Trump’s camp has said it would debate “anytime and anywhere.”`\
+https://nytimes.com/2024/05/15/us/politics/biden-trump-debates.html
+
+**Prizewinning Miniature Poodle**\
+`Did you watch the Westminster Kennel Club Dog Show?`\
+https://nytimes.com/2024/05/15/learning/prizewinning-miniature-poodle.html
+
+**Michael Cohen and Rosie O’Donnell: A Love Story**\
+`For years, Donald J. Trump hurled insults her way. Now, she is BFF with his former enforcer.`\
+https://nytimes.com/2024/05/15/style/michael-cohen-rosie-odonnell-friendship.html
+
 **Butterflies Know: These Native Plants Aren’t Weeds**\
 `Pollinators recognize a good thing when they see it — and so do gardeners in search of organic pest control. As one put it, “My prairie is my pesticide.”`\
 https://nytimes.com/2024/05/15/realestate/native-plants-flowers.html

@@ -1,3 +1,15 @@
+**Biden Offers to Debate Trump, With Terms, Shunning the Debate Commission**\
+`The president wants two debates before early voting begins, with no crowds. Donald Trump’s camp has said it would debate “anytime and anywhere.”`\
+https://nytimes.com/2024/05/15/us/politics/biden-trump-debates.html
+
+**Prizewinning Miniature Poodle**\
+`Did you watch the Westminster Kennel Club Dog Show?`\
+https://nytimes.com/2024/05/15/learning/prizewinning-miniature-poodle.html
+
+**Michael Cohen and Rosie O’Donnell: A Love Story**\
+`For years, Donald J. Trump hurled insults her way. Now, she is BFF with his former enforcer.`\
+https://nytimes.com/2024/05/15/style/michael-cohen-rosie-odonnell-friendship.html
+
 **Butterflies Know: These Native Plants Aren’t Weeds**\
 `Pollinators recognize a good thing when they see it — and so do gardeners in search of organic pest control. As one put it, “My prairie is my pesticide.”`\
 https://nytimes.com/2024/05/15/realestate/native-plants-flowers.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/15/briefing/gun-violence-united-states.html
 **Ethnic ‘Balancer’ for Government Jobs Becomes Focus of Ethnic Division**\
 `North Macedonia tries to ensure diversity — and keep the peace — with computer-generated state hiring quotas. Fraud and bloat have tainted that effort.`\
 https://nytimes.com/2024/05/15/world/europe/north-macedonia-ethnic-balancer.html
-
-**Russian War Advances Worry White House, and Mexico Buses Migrants South**\
-`Plus, the miniature poodle pulls it off.`\
-https://nytimes.com/2024/05/15/podcasts/russian-advances-cohen-cross-examination.html
-
-**The Possible Collapse of the U.S. Home Insurance System**\
-`A Times investigation found climate change may now be a concern for every homeowner in the country.`\
-https://nytimes.com/2024/05/15/podcasts/the-daily/climate-insurance.html
-
-**Putin Is Selling Victory, and Many Russians Are Buying It**\
-`Vladimir Putin’s message to his country appears to be taking hold: that Russia is fighting against the whole Western world — and winning.`\
-https://nytimes.com/2024/05/15/world/europe/russia-ukraine-war-victory-moscow.html
 
