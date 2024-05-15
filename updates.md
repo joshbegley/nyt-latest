@@ -1,3 +1,7 @@
+**West Virginia’s Attorney General Wins the Republican Nod for Governor**\
+`In November, Patrick Morrisey will face Steve Williams, a Democrat and the mayor of Huntington. The winner will succeed Jim Justice, who is running for U.S. Senate.`\
+https://nytimes.com/2024/05/14/us/west-virginia-republican-governor.html
+
 **Sarah Elfreth, Maryland’s Youngest Female State Senator, Wins House Primary**\
 `Ms. Elfreth, 35, was victorious in a crowded Democratic field in a deep-blue district to succeed Representative John Sarbanes.`\
 https://nytimes.com/2024/05/14/us/politics/harry-dunn-sarah-elfreth-maryland.html

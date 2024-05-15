@@ -1,3 +1,7 @@
+**West Virginia’s Attorney General Wins the Republican Nod for Governor**\
+`In November, Patrick Morrisey will face Steve Williams, a Democrat and the mayor of Huntington. The winner will succeed Jim Justice, who is running for U.S. Senate.`\
+https://nytimes.com/2024/05/14/us/west-virginia-republican-governor.html
+
 **Sarah Elfreth, Maryland’s Youngest Female State Senator, Wins House Primary**\
 `Ms. Elfreth, 35, was victorious in a crowded Democratic field in a deep-blue district to succeed Representative John Sarbanes.`\
 https://nytimes.com/2024/05/14/us/politics/harry-dunn-sarah-elfreth-maryland.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/14/style/westminster-dog-show/monty-a-giant-sch
 **Boeing Violated Settlement Over 737 Max Problems, Justice Dept. Says**\
 `The department said the company had failed to design and enforce an ethics program to prevent violation of U.S. fraud laws.`\
 https://nytimes.com/2024/05/14/business/boeing-justice-department-settlement.html
-
-**Singapore’s Riches Grew Under Its Leader. So Did Discontent.**\
-`Prime Minister Lee Hsien Loong, who is stepping down after nearly 20 years, oversaw astounding successes, but some Singaporeans want a different kind of politics.`\
-https://nytimes.com/2024/05/14/world/asia/singapore-lee-prime-minister-retire.html
 
