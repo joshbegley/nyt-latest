@@ -1,3 +1,15 @@
+**Menendez was a senator ‘on the take,’ prosecutors said.**\
+`By Tracey Tully`\
+https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/menendez-was-a-senator-on-the-take-prosecutors-said
+
+**Slovakian Leader in ‘Life-Threatening Condition’ After Shooting**\
+`Prime Minister Robert Fico of Slovakia, an ally of Vladimir V. Putin and Viktor Orban, was shot multiple times on Wednesday, stoking fears that Europe’s polarized politics were tipping into violence.`\
+https://nytimes.com/2024/05/15/world/europe/slovakia-prime-miniter-robert-fico-assassination-attempt.html
+
+**The Words That Defined the Week in Donald J. Trump’s Trial**\
+`The criminal trial was dominated by testimony from Michael D. Cohen, the defendant’s former personal lawyer, and Stormy Daniels, a porn star who took hush money.`\
+https://nytimes.com/2024/05/15/nyregion/trump-hush-money-trial-michael-cohen.html
+
 **Trump’s Jet Clipped a Parked Plane in Florida**\
 `No one was injured in the incident, which happened while the jet was taxiing early Sunday, the F.A.A. said. On Wednesday, the former president was traveling on a different plane.`\
 https://nytimes.com/2024/05/15/us/politics/trump-plane-florida-airport.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/05/15/us/pelican-island-bridge-barge-galveston.html
 **This is the second time Menendez faces federal corruption charges.**\
 `By Maia Coleman`\
 https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/this-is-the-second-time-menendez-faces-federal-corruption-charges
-
-**Biden Mourns Fallen Officers at Memorial and Praises Police for Reducing Crime**\
-`In his remarks, President Biden paid his respects but also subtly addressed criticism by Republicans that crime has skyrocketed on his watch.`\
-https://nytimes.com/2024/05/15/us/politics/biden-police-memorial.html
-
-**Jack Quinn, Lobbyist and White House Counsel for Clinton, Dies at 74**\
-`A prototypical Washington insider, he once said, “The hot air index is actually down when people like me go on vacation.”`\
-https://nytimes.com/2024/05/15/us/politics/jack-quinn-dead.html
-
-**Blinken Warns Fighting Could Undo Aid Gains in Gaza**\
-`The secretary of state said active fighting in the area was taking a toll after Israel had taken some steps to improve assistance.`\
-https://nytimes.com/2024/05/15/world/middleeast/israel-rafah-border-gallant-blinken.html
 
