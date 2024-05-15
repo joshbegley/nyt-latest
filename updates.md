@@ -1,3 +1,7 @@
+**The Breathtaking Shots of Gary Player**\
+`He won the P.G.A. Championship twice and his 150-yard shot in 1972 is still talked about. But Player said he was proudest of one he hit at the 1968 British Open.`\
+https://nytimes.com/2024/05/15/sports/golf/gary-player-pga-championship.html
+
 **Macron Moves to Declare State of Emergency in New Caledonia**\
 `The French authorities have undertaken a “massive” mobilization of security forces since violent protests broke out over a constitutional amendment that changes voting rules in the South Pacific territory.`\
 https://nytimes.com/2024/05/15/world/asia/new-caledonia-france-macron.html
