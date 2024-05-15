@@ -1,3 +1,7 @@
+**Brewer’s Implement**\
+`MaryEllen Uthlaut’s crossword is worth celebrating.`\
+https://nytimes.com/2024/05/14/crosswords/daily-puzzle-2024-05-15.html
+
 **House Republican Don Bacon Puts Down Right-Wing Challenge in a Biden District**\
 `The mainstream four-term congressman easily dispatched an opponent on his right, clearing the way for what is expected to be a difficult re-election race in a competitive district in Nebraska.`\
 https://nytimes.com/2024/05/14/us/politics/republican-don-bacon-wins-in-biden-district.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/14/us/politics/larry-hogan-wins-maryland-senate-prim
 **Jim Justice Wins West Virginia’s Republican Senate Primary**\
 `The governor is now positioned to win the seat being vacated by Senator Joe Manchin III, a Democrat, and flip it to the G.O.P.`\
 https://nytimes.com/2024/05/14/us/jim-justice-west-virginia.html
-
-**Wall Street’s Heavy Hitters Come Out for the ‘Met Ball of Finance’**\
-`Robin Hood, an antipoverty organization in New York City, threw a “Matrix”-inspired gala that raised more than $68.5 million for the charity.`\
-https://nytimes.com/2024/05/14/style/robin-hood-gala-finance-charity.html
 

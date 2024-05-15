@@ -1,3 +1,7 @@
+**Brewer’s Implement**\
+`MaryEllen Uthlaut’s crossword is worth celebrating.`\
+https://nytimes.com/2024/05/14/crosswords/daily-puzzle-2024-05-15.html
+
 **House Republican Don Bacon Puts Down Right-Wing Challenge in a Biden District**\
 `The mainstream four-term congressman easily dispatched an opponent on his right, clearing the way for what is expected to be a difficult re-election race in a competitive district in Nebraska.`\
 https://nytimes.com/2024/05/14/us/politics/republican-don-bacon-wins-in-biden-district.html
