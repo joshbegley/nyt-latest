@@ -1,3 +1,11 @@
+**Justice Dept. Says Boeing Violated 2021 Settlement Over Max Plane**\
+`The department said that the company had failed to design and enforce an ethics program to prevent violation of U.S. fraud laws.`\
+https://nytimes.com/2024/05/14/business/boeing-justice-department-settlement.html
+
+**Singapore’s Riches Grew Under Its Leader. So Did Discontent.**\
+`Prime Minister Lee Hsien Loong, who is stepping down after nearly 20 years, oversaw astounding successes, but some Singaporeans want a different kind of politics.`\
+https://nytimes.com/2024/05/14/world/asia/singapore-lee-prime-minister-retire.html
+
 **King Charles III Unveils First Official Painted Portrait Since Coronation**\
 `The king, who was diagnosed with cancer in February but has since returned to public duties, unveiled the striking painting by Jonathan Yeo at Buckingham Palace on Tuesday.`\
 https://nytimes.com/2024/05/14/world/europe/king-charles-portrait.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/14/arts/dan-schneider-lori-beth-denberg.html
 **Meet your bloggers (and their pets).**\
 `By Benjamin Hoffman`\
 https://nytimes.com/live/2024/05/14/style/westminster-dog-show/meet-your-bloggers-and-their-pets
-
-**Review: A Text-to-Speech Meet-Cute in ‘All of Me’**\
-`Laura Winters’s romantic comedy pays careful attention to the dynamics of living with disabilities.`\
-https://nytimes.com/2024/05/14/theater/all-of-me-review.html
-
-**With extensive planning, and treats, 2,500 show dogs descended on New York.**\
-`By Christine Chung`\
-https://nytimes.com/live/2024/05/14/style/westminster-dog-show/with-extensive-planning-and-treats-2500-show-dogs-descended-on-new-york
 
