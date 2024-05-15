@@ -1,3 +1,11 @@
+**Buildings Burn After Riots Break Out in New Caledonia**\
+`Protesters burned cars and businesses in New Caledonia’s capital after France’s Parliament approved a change to the territory’s voting rules.`\
+https://nytimes.com/video/world/europe/100000009469655/new-caledonia-protests-vote.html
+
+**What to know about the inflation report.**\
+`By Ben Casselman`\
+https://nytimes.com/live/2024/05/15/business/cpi-inflation-fed/what-to-know-about-the-inflation-report
+
 **Diabetes, Heart Problems and Kidney Disease Are Closely Linked**\
 `And they’re increasingly common. Here’s what to know about the shared risk factors for these diseases.`\
 https://nytimes.com/2024/05/15/well/live/ckm-syndrome-heart-disease-risk.html
