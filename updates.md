@@ -1,3 +1,11 @@
+**Why Do People Make Music?**\
+`In a new study, researchers found universal features of songs across many cultures, suggesting that music evolved in our distant ancestors.`\
+https://nytimes.com/2024/05/15/science/universal-music-evolution.html
+
+**Budgeting for the Haters**\
+`How to think about budgeting — without all the shame and blame.`\
+https://nytimes.com/2024/05/15/your-money/budgeting-money.html
+
 **As Menendez’s star rose, fears of corruption cast a persistent shadow.**\
 `By Nicholas Fandos`\
 https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/as-menendezs-star-rose-fears-of-corruption-cast-a-persistent-shadow

@@ -1,3 +1,11 @@
+**Why Do People Make Music?**\
+`In a new study, researchers found universal features of songs across many cultures, suggesting that music evolved in our distant ancestors.`\
+https://nytimes.com/2024/05/15/science/universal-music-evolution.html
+
+**Budgeting for the Haters**\
+`How to think about budgeting — without all the shame and blame.`\
+https://nytimes.com/2024/05/15/your-money/budgeting-money.html
+
 **As Menendez’s star rose, fears of corruption cast a persistent shadow.**\
 `By Nicholas Fandos`\
 https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/as-menendezs-star-rose-fears-of-corruption-cast-a-persistent-shadow
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/15/opinion/biden-china-trade-electric-vehicles-solar
 **Fico campaigned on ending support for Ukraine, alarming many in the West.**\
 `By Daniel Victor`\
 https://nytimes.com/live/2024/05/15/world/slovakia-prime-minister-fico-shooting/fico-campaigned-on-ending-support-for-ukraine-alarming-many-in-the-west
-
-**Francis Ford Coppola Accused of Trying to Kiss Extras on ‘Megalopolis’ Set**\
-`An executive producer said he wasn’t aware of complaints and called the contact “kind hugs and kisses on the cheek.”`\
-https://nytimes.com/2024/05/15/movies/francis-ford-coppola-megalopolis-harassment.html
-
-**Biden Seeks to Curb Flow of Migrants From Nicaragua With New Restrictions**\
-`The announcement of visa restrictions and sanctions against Nicaraguan organizations reflects the White House’s concern that a surge of migrants could threaten President Biden’s re-election.`\
-https://nytimes.com/2024/05/15/us/politics/biden-nicaragua-immigration.html
 
