@@ -1,3 +1,7 @@
+**Why Biden Wanted to Debate Trump Early, and Why Trump Said Yes**\
+`President Biden, trailing in polls, is hoping to shake up the race and mitigate political risk. Donald Trump, already lowering expectations for his rival, is eager for onstage clashes.`\
+https://nytimes.com/2024/05/15/us/politics/trump-biden-debate-june.html
+
 **A.T. Ariyaratne, a Hero in Sri Lanka for Helping the Poor, Dies at 92**\
 `He built Sarvodaya, an organization that battled dismal living conditions in his country’s villages and championed peace and mediation during a vicious civil war.`\
 https://nytimes.com/2024/05/15/world/asia/at-ariyaratne-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/15/us/politics/trump-biden-debates-explained.html
 **How to Clean Up Your Phone’s Camera Roll**\
 `What to do when your phone is overloaded with photos.`\
 https://nytimes.com/interactive/2024/05/15/smarter-living/wirecutter/clean-up-camera-roll.html
-
-**House Passes Legislation to Improve Air Travel, Sending Bill to Biden’s Desk**\
-`The bipartisan vote to reauthorize the Federal Aviation Administration also greenlit measures to strengthen consumer protections and address safety and work force issues plaguing the skies.`\
-https://nytimes.com/2024/05/15/us/politics/airplanes-faa-house-bill.html
 
