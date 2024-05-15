@@ -1,3 +1,7 @@
+**Biden Administration Advances $1 Billion Arms Sale to Israel**\
+`The notification of the deal to Congress as the president holds up the delivery of other weapons shows the fine line the administration is trying to walk with its longtime ally.`\
+https://nytimes.com/2024/05/14/us/politics/biden-arms-sale-israel.html
+
 **Corrections: May 15, 2024**\
 `Corrections that appeared in print on Wednesday, May 15, 2024.`\
 https://nytimes.com/2024/05/14/pageoneplus/corrections-may-15-2024.html
