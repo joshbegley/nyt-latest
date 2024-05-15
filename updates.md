@@ -1,3 +1,7 @@
+**Monty, a giant schnauzer, wins the working group.**\
+`By Callie Holtermann`\
+https://nytimes.com/live/2024/05/14/style/westminster-dog-show/monty-a-giant-schnauzer-wins-the-working-group
+
 **Justice Dept. Says Boeing Violated 2021 Settlement Over Max Plane**\
 `The department said that the company had failed to design and enforce an ethics program to prevent violation of U.S. fraud laws.`\
 https://nytimes.com/2024/05/14/business/boeing-justice-department-settlement.html

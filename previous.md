@@ -1,3 +1,7 @@
+**Monty, a giant schnauzer, wins the working group.**\
+`By Callie Holtermann`\
+https://nytimes.com/live/2024/05/14/style/westminster-dog-show/monty-a-giant-schnauzer-wins-the-working-group
+
 **Justice Dept. Says Boeing Violated 2021 Settlement Over Max Plane**\
 `The department said that the company had failed to design and enforce an ethics program to prevent violation of U.S. fraud laws.`\
 https://nytimes.com/2024/05/14/business/boeing-justice-department-settlement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/14/style/robin-hood-gala-finance-charity.html
 **Former Nickelodeon Star Says Dan Schneider ‘Preyed’ on Her as Boss**\
 `Lori Beth Denberg, who appeared on “All That,” told Business Insider that he showed her porn multiple times and fondled her once. He says her claims are “exaggerated” and “in most cases, false.”`\
 https://nytimes.com/2024/05/14/arts/dan-schneider-lori-beth-denberg.html
-
-**Meet your bloggers (and their pets).**\
-`By Benjamin Hoffman`\
-https://nytimes.com/live/2024/05/14/style/westminster-dog-show/meet-your-bloggers-and-their-pets
 
