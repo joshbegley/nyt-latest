@@ -1,3 +1,7 @@
+**I Don’t Write Like Alice Munro. But I Want to Live Like Her.**\
+`We are very different writers, but I have kept Alice Munro in mind, daily and for decades, as an example to follow.`\
+https://nytimes.com/2024/05/15/opinion/what-alice-munro-would-never-do.html
+
 **15inflation-blog**\
 `Live Updates: Inflation Expected to Cool Slightly`\
 https://nytimes.com/live/2024/05/15/business/cpi-inflation-fed
