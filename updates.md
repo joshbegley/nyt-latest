@@ -1,3 +1,7 @@
+**Micah, a black cocker spaniel, wins the sporting group.**\
+`By Callie Holtermann`\
+https://nytimes.com/live/2024/05/14/style/westminster-dog-show/micah-a-black-cocker-spaniel-wins-the-sporting-group
+
 **Larry Hogan, Maryland’s Former Governor, Wins G.O.P. Senate Primary**\
 `Mr. Hogan’s popularity in the deep-blue state sets up an uncommonly competitive general election contest.`\
 https://nytimes.com/2024/05/14/us/politics/larry-hogan-wins-maryland-senate-primary.html

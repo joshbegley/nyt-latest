@@ -1,3 +1,7 @@
+**Senators Push for Secret Service to Move Protests Away From G.O.P. Convention**\
+`In a meeting brokered by Senator Mitch McConnell, the minority leader, Senate Republicans argued that a planned protest zone was too close to the convention site.`\
+https://nytimes.com/2024/05/14/us/politics/republican-convention-protests-secret-service.html
+
 **Micah, a black cocker spaniel, wins the sporting group.**\
 `By Callie Holtermann`\
 https://nytimes.com/live/2024/05/14/style/westminster-dog-show/micah-a-black-cocker-spaniel-wins-the-sporting-group
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/14/style/westminster-dog-show/with-extensive-pl
 **OpenAI’s Chief Scientist and Co-Founder Is Leaving the Company**\
 `In November, Ilya Sutskever joined three other OpenAI board members to force out Sam Altman, the chief executive, before saying he regretted the move.`\
 https://nytimes.com/2024/05/14/technology/ilya-sutskever-leaving-openai.html
-
-**Fossil Catches Starfish Cousin in the Act of Cloning Itself**\
-`The brittle star specimen suggests that the sea creatures have been splitting themselves in two to reproduce for more than 150 million years.`\
-https://nytimes.com/2024/05/14/science/fossil-cloning-brittle-star.html
 
