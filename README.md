@@ -1,3 +1,7 @@
+**How Wild Rice Forecasts Climate Change**\
+`Manoomin, a crop vital to the Indigenous peoples of the Upper Midwest, has been threatened in recent years. But careful stewardship is helping to bring it back.`\
+https://nytimes.com/2024/05/15/dining/wild-rice-climate-change.html
+
 **East Texas, Already Soaked, Prepares for a ‘Nightmare Scenario’ of More Rain**\
 `Some places in Texas have seen a year’s worth of rainfall since January.`\
 https://nytimes.com/2024/05/15/weather/texas-rain.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/15/opinion/tradwife-tiktok.html
 **Smartphones Can Now Last 7 Years. Here’s How to Keep Them Working.**\
 `Google and Samsung used to update smartphone software for only three years. That has changed.`\
 https://nytimes.com/2024/05/15/technology/personaltech/smartphones-software-update-ios-android.html
-
-**California Leaders Try to Solve Another Big Budget Deficit**\
-`Gov. Gavin Newsom released his revised spending plan to close a $27.6 billion gap, touching off what will probably be weeks of negotiations.`\
-https://nytimes.com/2024/05/15/us/california-budget-deficit.html
 

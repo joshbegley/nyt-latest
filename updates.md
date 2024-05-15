@@ -1,3 +1,7 @@
+**Slovakia’s Prime Minister Is Wounded in Attack**\
+`Robert Fico was shot and taken to a hospital after the assault in the town of Handlova, northeast of the capital, Bratislava.`\
+https://nytimes.com/2024/05/15/world/europe/slovakia-prime-minister-fico.html
+
 **East Texas, Already Soaked, Prepares for a ‘Nightmare Scenario’ of More Rain**\
 `Some places in Texas have seen a year’s worth of rainfall since January.`\
 https://nytimes.com/2024/05/15/weather/texas-rain.html
