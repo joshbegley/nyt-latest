@@ -1,3 +1,11 @@
+**‘How to Have Sex,’ ‘Miller’s Girl’ and More Streaming Gems**\
+`Provocative debuts from two exciting new female filmmakers lead off this month’s roundup of recommendations from your subscription streaming services.`\
+https://nytimes.com/2024/05/15/movies/how-to-have-sex-millers-girl-streaming-movies.html
+
+**Who is Robert Fico, the Slovakian Prime Minister?**\
+`Much of the focus on Mr. Fico’s leadership has focused on his ties to President Vladimir Putin of Russia and Prime Minister Viktor Orban of Hungary.`\
+https://nytimes.com/2024/05/15/world/europe/robert-fico-slovakia.html
+
 **Barbara Hannigan, Daring Singer and Maestro, to Lead Iceland Symphony**\
 `Hannigan, the rare artist to have a career as a soprano and a conductor, will assume a full-time conducting post for the first time.`\
 https://nytimes.com/2024/05/15/arts/music/barbara-hannigan-iceland-symphony.html
