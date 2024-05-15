@@ -1,3 +1,7 @@
+**Why is the Rafah border crossing closed? Egypt and Israel each say the other is responsible.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/05/15/world/israel-gaza-war-hamas-rafah/why-is-the-rafah-border-crossing-closed-egypt-and-israel-each-say-the-other-is-responsible
+
 **How Much Do You Know About Kuwait?**\
 `Can you find Kuwait on a map? What else do you know about this Middle East nation?`\
 https://nytimes.com/interactive/2024/05/15/learning/KuwaitGeographyQuiz.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/15/business/cpi-inflation-fed/the-fed-chairs-co
 **15inflation-blog**\
 `Live Updates: Inflation Expected to Cool Slightly`\
 https://nytimes.com/live/2024/05/15/business/cpi-inflation-fed
-
-**Hundreds of Officers Engaged in Manhunt After Deadly Ambush in France**\
-`As a search for the assailants and the prisoner they freed stretched into a second day, the authorities said the assault was surprising given that the inmate was not high-profile.`\
-https://nytimes.com/2024/05/15/world/europe/france-prison-ambush-manhunt.html
 
