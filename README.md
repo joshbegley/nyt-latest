@@ -1,5 +1,5 @@
-**King Charles III, Painted for Posterity in the Hot Seat**\
-`A new royal portrait is bathed in symbolism.`\
+**A Shock of Red for a Royal Portrait**\
+`A new portrait of King Charles III is bathed in symbolism.`\
 https://nytimes.com/2024/05/15/style/king-charles-ii-portrait-jonathan-yeo-red.html
 
 **Stepping Cautiously Into the ‘Bridgerton’ Spotlight**\
