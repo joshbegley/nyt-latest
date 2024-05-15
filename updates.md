@@ -1,3 +1,7 @@
+**The prime minister was shot multiple times while visiting supporters, his Facebook page said.**\
+`Robert Fico was taken to a hospital after the attack in the town of Handlova, northeast of the capital, Bratislava.`\
+https://nytimes.com/live/2024/05/15/world/slovakia-prime-minister-fico-shooting/slovakia-prime-minister-fico
+
 **The Breathtaking Shots of Gary Player**\
 `He won the P.G.A. Championship twice and his 150-yard shot in 1972 is still talked about. But Player said he was proudest of one he hit at the 1968 British Open.`\
 https://nytimes.com/2024/05/15/sports/golf/gary-player-pga-championship.html
