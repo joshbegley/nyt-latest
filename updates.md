@@ -1,3 +1,7 @@
+**After Outlawing Public Zoos, Costa Rica Relocates Hundreds of Animals**\
+`Some of the animals will stay in sanctuaries, while others may be released into the wild.`\
+https://nytimes.com/2024/05/15/world/americas/costa-rica-zoo-closing.html
+
 **A Shock of Red for a Royal Portrait**\
 `A new portrait of King Charles III is bathed in symbolism.`\
 https://nytimes.com/2024/05/15/style/king-charles-iii-portrait-jonathan-yeo-red.html
