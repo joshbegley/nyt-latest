@@ -1,3 +1,15 @@
+**Gayle King Ate a Burger Before Her Sports Illustrated Swimsuit Shoot**\
+`The 69-year-old TV anchor, who graces a cover of this year’s swimsuit issue, was fine showing dimples but wanted to avoid looking “too boobalicious.”`\
+https://nytimes.com/2024/05/15/style/gayle-king-sports-illustrated-swimsuit.html
+
+**A France in Shock Confronts the Violence in Its Midst**\
+`The ruthless assault that freed a prisoner and set off a manhunt has turned attention to a multibillion-dollar drug trade fueling gang warfare.`\
+https://nytimes.com/2024/05/15/world/europe/a-france-in-shock-confronts-the-violence-in-its-midst.html
+
+**A senator’s wife drew prosecutors’ attention.**\
+`By Tracey Tully`\
+https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/a-senators-wife-drew-prosecutors-attention
+
 **Why Do People Make Music?**\
 `In a new study, researchers found universal features of songs across many cultures, suggesting that music evolved in our distant ancestors.`\
 https://nytimes.com/2024/05/15/science/universal-music-evolution.html

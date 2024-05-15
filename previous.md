@@ -1,3 +1,15 @@
+**Gayle King Ate a Burger Before Her Sports Illustrated Swimsuit Shoot**\
+`The 69-year-old TV anchor, who graces a cover of this year’s swimsuit issue, was fine showing dimples but wanted to avoid looking “too boobalicious.”`\
+https://nytimes.com/2024/05/15/style/gayle-king-sports-illustrated-swimsuit.html
+
+**A France in Shock Confronts the Violence in Its Midst**\
+`The ruthless assault that freed a prisoner and set off a manhunt has turned attention to a multibillion-dollar drug trade fueling gang warfare.`\
+https://nytimes.com/2024/05/15/world/europe/a-france-in-shock-confronts-the-violence-in-its-midst.html
+
+**A senator’s wife drew prosecutors’ attention.**\
+`By Tracey Tully`\
+https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/a-senators-wife-drew-prosecutors-attention
+
 **Why Do People Make Music?**\
 `In a new study, researchers found universal features of songs across many cultures, suggesting that music evolved in our distant ancestors.`\
 https://nytimes.com/2024/05/15/science/universal-music-evolution.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/05/15/us/politics/earliest-presidential-debates-june.ht
 **What’s in Our Queue? ‘Anita’ and More**\
 `I’m a foreign correspondent covering China. Here are five things that I’ve enjoyed recently.`\
 https://nytimes.com/interactive/2024/05/15/arts/editors-recommendations-anita.html
-
-**15menendez-trial**\
-`Live Updates: Opening Statements in Bribery Trial of Robert Menendez Set to Begin`\
-https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial
-
-**Don’t Slam the Door on Inexpensive Chinese Electric Vehicles**\
-`Electric vehicles shouldn’t be a luxury item, but Biden’s tariffs mean they may remain so.`\
-https://nytimes.com/2024/05/15/opinion/biden-china-trade-electric-vehicles-solar-panels-tariffs.html
-
-**Fico campaigned on ending support for Ukraine, alarming many in the West.**\
-`By Daniel Victor`\
-https://nytimes.com/live/2024/05/15/world/slovakia-prime-minister-fico-shooting/fico-campaigned-on-ending-support-for-ukraine-alarming-many-in-the-west
 
