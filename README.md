@@ -1,3 +1,7 @@
+**Inflation Eased and Markets Hit New Highs**\
+`Also, Biden and Trump agreed to debate in June and September. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/05/15/briefing/inflation-stock-market-trump-biden-debates.html
+
 **Silencing Independent Voices Is Not the Way to Join the West**\
 `Georgia’s “foreign agent” bill will help move the country closer to the Kremlin’s orbit.`\
 https://nytimes.com/live/2024/05/14/opinion/thepoint/georgia-foreign-agent-russia
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/15/us/politics/trump-plane-florida-airport.html
 **Thursday Briefing: Slovakia’s Leader Was Shot**\
 `Also, mixed reviews for King Charles’s portrait.`\
 https://nytimes.com/2024/05/15/world/asia/slovakia-assassination-china-philippines-asia.html
-
-**An A.I. Robot Named Sophia Tells Graduates to Believe in Themselves**\
-`D’Youville University, in Buffalo, N.Y., had an A.I. robot speak at its commencement on Saturday. Not everyone was happy about it.`\
-https://nytimes.com/2024/05/15/nyregion/dyouville-university-commencement-robot-speaker.html
 
