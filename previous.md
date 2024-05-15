@@ -1,3 +1,7 @@
+**In a Secret Manhattan Garden, a Birthday Party for Katharine Hepburn**\
+`Every year, a small band of New Yorkers gathers in a tucked-away Midtown park to celebrate the actress, a beloved neighbor they remember as an everyday city dweller.`\
+https://nytimes.com/2024/05/15/style/katharine-hepburn-birthday-party.html
+
 **What to Know About the Summit Between Putin and Xi in China**\
 `China’s backing will be crucial to President Vladimir V. Putin as he intensifies his offensive in Ukraine. But his host, Xi Jinping, has other competing priorities.`\
 https://nytimes.com/2024/05/15/world/asia/putin-xi-china-summit.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/menendez-was-a-s
 **Attempted Assassination of Slovak Leader Puts Europe on Edge**\
 `Prime Minister Robert Fico of Slovakia, an ally of Vladimir V. Putin and Viktor Orban, was shot multiple times on Wednesday, stoking fears that Europe’s polarized politics were tipping into violence.`\
 https://nytimes.com/2024/05/15/world/europe/slovakia-prime-minister-robert-fico-assassination-attempt.html
-
-**The Words That Defined the Week in Donald J. Trump’s Trial**\
-`The criminal trial was dominated by testimony from Michael D. Cohen, the defendant’s former personal lawyer, and Stormy Daniels, a porn star who took hush money.`\
-https://nytimes.com/2024/05/15/nyregion/trump-hush-money-trial-michael-cohen.html
 
