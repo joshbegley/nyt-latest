@@ -1,3 +1,11 @@
+**Biden Mourns Fallen Officers at Memorial and Praises Police for Reducing Crime**\
+`In his remarks, President Biden paid his respects but also subtly addressed criticism by Republicans that crime has skyrocketed on his watch.`\
+https://nytimes.com/2024/05/15/us/politics/biden-police-memorial.html
+
+**Jack Quinn, Lobbyist and White House Counsel for Clinton, Dies at 74**\
+`A prototypical Washington insider, he once said, “The hot air index is actually down when people like me go on vacation.”`\
+https://nytimes.com/2024/05/15/us/politics/jack-quinn-dead.html
+
 **Blinken Warns Fighting Could Undo Aid Gains in Gaza**\
 `The secretary of state said active fighting in the area was taking a toll after Israel had taken some steps to improve assistance.`\
 https://nytimes.com/2024/05/15/world/middleeast/israel-rafah-border-gallant-blinken.html
