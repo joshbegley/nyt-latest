@@ -1,3 +1,7 @@
+**What the Last Biden-Trump Debate Tells Us Now**\
+`The characters are the same as in 2020, but key story lines have turned upside down.`\
+https://nytimes.com/2024/05/15/us/politics/biden-trump-debate-2020.html
+
 **In a Secret Manhattan Garden, a Birthday Party for Katharine Hepburn**\
 `Every year, a small band of New Yorkers gathers in a tucked-away Midtown park to celebrate the actress, a beloved neighbor they remember as an everyday city dweller.`\
 https://nytimes.com/2024/05/15/style/katharine-hepburn-birthday-party.html
