@@ -1,3 +1,15 @@
+**Mapping Russia’s Sudden Push Across Ukrainian Lines**\
+`All of a sudden, Russian forces are making progress in many directions at once.`\
+https://nytimes.com/interactive/2024/05/15/world/europe/russia-offensive-ukraine-maps.html
+
+**Few Chinese Electric Cars Are Sold in U.S., but Industry Fears a Flood**\
+`Automakers in the United States and their supporters welcomed President Biden’s tariffs, saying they would protect domestic manufacturing and jobs from cheap Chinese vehicles.`\
+https://nytimes.com/2024/05/15/business/economy/china-electric-vehicles-biden-tariffs.html
+
+**White House Worries Russia’s Momentum Is Changing Trajectory of Ukraine War**\
+`Multiple factors are helping Russia’s military advance, including a delay in American weaponry and Moscow’s technological innovations on the battlefield.`\
+https://nytimes.com/2024/05/14/us/politics/russia-momentum-ukraine-war.html
+
 **China Deploys Dozens of Ships to Block Philippine Protest Flotilla**\
 `Filipino civilians set sail in fishing boats to oppose China’s control of a shoal claimed by the Philippines. A formidable Chinese fleet awaited them.`\
 https://nytimes.com/2024/05/14/world/asia/china-philippines-flotilla.html
