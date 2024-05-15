@@ -1,3 +1,7 @@
+**House Republican Don Bacon Puts Down Right-Wing Challenge in a Biden District**\
+`The mainstream four-term congressman easily dispatched an opponent on his right, clearing the way for what is expected to be a difficult re-election race in a competitive district in Nebraska.`\
+https://nytimes.com/2024/05/14/us/politics/republican-don-bacon-wins-in-biden-district.html
+
 **Monty, a giant schnauzer, wins the working group.**\
 `By Callie Holtermann`\
 https://nytimes.com/live/2024/05/14/style/westminster-dog-show/monty-a-giant-schnauzer-wins-the-working-group

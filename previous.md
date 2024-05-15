@@ -1,3 +1,7 @@
+**House Republican Don Bacon Puts Down Right-Wing Challenge in a Biden District**\
+`The mainstream four-term congressman easily dispatched an opponent on his right, clearing the way for what is expected to be a difficult re-election race in a competitive district in Nebraska.`\
+https://nytimes.com/2024/05/14/us/politics/republican-don-bacon-wins-in-biden-district.html
+
 **Monty, a giant schnauzer, wins the working group.**\
 `By Callie Holtermann`\
 https://nytimes.com/live/2024/05/14/style/westminster-dog-show/monty-a-giant-schnauzer-wins-the-working-group
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/14/us/jim-justice-west-virginia.html
 **Wall Street’s Heavy Hitters Come Out for the ‘Met Ball of Finance’**\
 `Robin Hood, an antipoverty organization in New York City, threw a “Matrix”-inspired gala that raised more than $68.5 million for the charity.`\
 https://nytimes.com/2024/05/14/style/robin-hood-gala-finance-charity.html
-
-**Former Nickelodeon Star Says Dan Schneider ‘Preyed’ on Her as Boss**\
-`Lori Beth Denberg, who appeared on “All That,” told Business Insider that he showed her porn multiple times and fondled her once. He says her claims are “exaggerated” and “in most cases, false.”`\
-https://nytimes.com/2024/05/14/arts/dan-schneider-lori-beth-denberg.html
 
