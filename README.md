@@ -1,3 +1,11 @@
+**Michael Cohen Says Trump Discussed Reimbursement in Oval Office**\
+`Michael Cohen’s story of a hush-money arrangement struck in the White House was the only personal account tying Donald J. Trump to falsified documents. Jonah Bromwich, a criminal justice reporter at The New York Times, gives his takeaways.`\
+https://nytimes.com/video/nyregion/100000009469245/michael-cohen-says-trump-discussed-reimbursement-in-oval-office.html
+
+**Quotation of the Day: How One Crack in the Line Opened a Path for Russians**\
+`Quotation of the Day for Wednesday, May 15, 2024.`\
+https://nytimes.com/2024/05/14/pageoneplus/quotation-of-the-day-how-one-crack-in-the-line-opened-a-path-for-russians.html
+
 **West Virginia’s Attorney General Wins the Republican Nod for Governor**\
 `In November, Patrick Morrisey will face Steve Williams, a Democrat and the mayor of Huntington. The winner will succeed Jim Justice, who is running for U.S. Senate.`\
 https://nytimes.com/2024/05/14/us/west-virginia-republican-governor.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/14/crosswords/daily-puzzle-2024-05-15.html
 **House Republican Don Bacon Puts Down Right-Wing Challenge in a Biden District**\
 `The mainstream four-term congressman easily dispatched an opponent on his right, clearing the way for what is expected to be a difficult re-election race in a competitive district in Nebraska.`\
 https://nytimes.com/2024/05/14/us/politics/republican-don-bacon-wins-in-biden-district.html
-
-**Monty, a giant schnauzer, wins the working group.**\
-`By Callie Holtermann`\
-https://nytimes.com/live/2024/05/14/style/westminster-dog-show/monty-a-giant-schnauzer-wins-the-working-group
-
-**Boeing Violated Settlement Over 737 Max Problems, Justice Dept. Says**\
-`The department said the company had failed to design and enforce an ethics program to prevent violation of U.S. fraud laws.`\
-https://nytimes.com/2024/05/14/business/boeing-justice-department-settlement.html
 
