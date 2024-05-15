@@ -1,3 +1,7 @@
+**Attempted Assassination of Slovak Leader Puts Europe on Edge**\
+`Prime Minister Robert Fico of Slovakia, an ally of Vladimir V. Putin and Viktor Orban, was shot multiple times on Wednesday, stoking fears that Europe’s polarized politics were tipping into violence.`\
+https://nytimes.com/2024/05/15/world/europe/slovakia-prime-miniter-robert-fico-assassination-attempt.html
+
 **Barge Strikes Bridge in Galveston, Causing Oil Spill**\
 `No injuries were reported when the barge struck a bridge that connects Galveston, Texas, to a small island along the Gulf of Mexico, causing a partial collapse.`\
 https://nytimes.com/2024/05/15/us/pelican-island-bridge-barge-galveston.html
