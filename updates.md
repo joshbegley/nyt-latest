@@ -1,3 +1,7 @@
+**Jimmy Fallon Celebrates 10 Years of Hosting ‘The Tonight Show’**\
+`Fallon thanked his wife, his kids, “and, most of all, my lawyer, Michael Cohen.”`\
+https://nytimes.com/2024/05/15/arts/television/jimmy-fallon-10-years-tonight-show.html
+
 **Word of the Day: innate**\
 `This word has appeared in 107 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/05/15/learning/word-of-the-day-innate.html

@@ -1,3 +1,7 @@
+**Jimmy Fallon Celebrates 10 Years of Hosting ‘The Tonight Show’**\
+`Fallon thanked his wife, his kids, “and, most of all, my lawyer, Michael Cohen.”`\
+https://nytimes.com/2024/05/15/arts/television/jimmy-fallon-10-years-tonight-show.html
+
 **Word of the Day: innate**\
 `This word has appeared in 107 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/05/15/learning/word-of-the-day-innate.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/05/15/world/europe/russia-offensive-ukraine
 **Few Chinese Electric Cars Are Sold in U.S., but Industry Fears a Flood**\
 `Automakers in the United States and their supporters welcomed President Biden’s tariffs, saying they would protect domestic manufacturing and jobs from cheap Chinese vehicles.`\
 https://nytimes.com/2024/05/15/business/economy/china-electric-vehicles-biden-tariffs.html
-
-**White House Worries Russia’s Momentum Is Changing Trajectory of Ukraine War**\
-`Multiple factors are helping Russia’s military advance, including a delay in American weaponry and Moscow’s technological innovations on the battlefield.`\
-https://nytimes.com/2024/05/14/us/politics/russia-momentum-ukraine-war.html
 
