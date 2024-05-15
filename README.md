@@ -1,3 +1,7 @@
+**Macron Moves to Declare State of Emergency in New Caledonia**\
+`The French authorities have undertaken a “massive” mobilization of security forces since violent protests broke out over a constitutional amendment that changes voting rules in the South Pacific territory.`\
+https://nytimes.com/2024/05/15/world/asia/new-caledonia-france-macron.html
+
 **Biden’s Daring Debate Proposal Could Recharge His Campaign**\
 `Signaling an eagerness to debate is the crucial first step.`\
 https://nytimes.com/live/2024/05/14/opinion/thepoint/biden-trump-debate
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/15/world/americas/costa-rica-zoo-closing.html
 **Food price gains moderated in April.**\
 `By Madeleine Ngo`\
 https://nytimes.com/live/2024/05/15/business/cpi-inflation-fed/food-price-gains-moderated-in-april
-
-**‘Tradwife’ Content Isn’t Really for Women. It’s for Men Who Want Submissive Wives.**\
-`Young American women aren’t buying what these influencers are selling.`\
-https://nytimes.com/2024/05/15/opinion/tradwife-tiktok.html
 
