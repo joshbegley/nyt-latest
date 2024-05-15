@@ -1,3 +1,11 @@
+**Justice Dept. Says Boeing Violated 2021 Settlement Over Max Plane**\
+`The department said that the company had failed to design and enforce an ethics program to prevent violation of U.S. fraud laws.`\
+https://nytimes.com/2024/05/14/business/boeing-justice-department-settlement.html
+
+**Singapore’s Riches Grew Under Its Leader. So Did Discontent.**\
+`Prime Minister Lee Hsien Loong, who is stepping down after nearly 20 years, oversaw astounding successes, but some Singaporeans want a different kind of politics.`\
+https://nytimes.com/2024/05/14/world/asia/singapore-lee-prime-minister-retire.html
+
 **Micha, a black cocker spaniel, wins the sporting group.**\
 `By Callie Holtermann`\
 https://nytimes.com/live/2024/05/14/style/westminster-dog-show/micah-a-black-cocker-spaniel-wins-the-sporting-group
