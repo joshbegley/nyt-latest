@@ -1,3 +1,15 @@
+**Too Red, Too Vampiric, Too Sexy: A Brief History of Polarizing Royal Portraits**\
+`Jonathan Yeo’s painting of King Charles III has prompted both admiration and bemusement, but it’s far from the first royal portrait to divide opinion.`\
+https://nytimes.com/2024/05/15/world/europe/king-charles-royal-portraits.html
+
+**One Japanese Word Changed the Course of Her Career**\
+`Devin Halbal had amassed hundreds of thousands of TikTok followers with her inspirational videos. Then she went to Asia.`\
+https://nytimes.com/2024/05/15/style/devin-halbal-tiktok.html
+
+**Biden and Trump agree to a CNN debate on June 27.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/05/15/us/biden-trump-election/biden-and-trump-agree-to-a-cnn-debate-on-june-27
+
 **Buildings Burn After Riots Break Out in New Caledonia**\
 `Protesters burned cars and businesses in New Caledonia’s capital after France’s Parliament approved a change to the territory’s voting rules.`\
 https://nytimes.com/video/world/europe/100000009469655/new-caledonia-protests-vote.html

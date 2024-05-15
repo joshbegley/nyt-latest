@@ -1,3 +1,15 @@
+**Too Red, Too Vampiric, Too Sexy: A Brief History of Polarizing Royal Portraits**\
+`Jonathan Yeo’s painting of King Charles III has prompted both admiration and bemusement, but it’s far from the first royal portrait to divide opinion.`\
+https://nytimes.com/2024/05/15/world/europe/king-charles-royal-portraits.html
+
+**One Japanese Word Changed the Course of Her Career**\
+`Devin Halbal had amassed hundreds of thousands of TikTok followers with her inspirational videos. Then she went to Asia.`\
+https://nytimes.com/2024/05/15/style/devin-halbal-tiktok.html
+
+**Biden and Trump agree to a CNN debate on June 27.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/05/15/us/biden-trump-election/biden-and-trump-agree-to-a-cnn-debate-on-june-27
+
 **Buildings Burn After Riots Break Out in New Caledonia**\
 `Protesters burned cars and businesses in New Caledonia’s capital after France’s Parliament approved a change to the territory’s voting rules.`\
 https://nytimes.com/video/world/europe/100000009469655/new-caledonia-protests-vote.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/05/15/dining/this-coconut-miso-salmon-curry-has-over-12
 **The Unusual Evolutionary Journey of the Baobab Tree**\
 `New research shows the “upside-down trees” originated in Madagascar and then caught a ride on ocean currents to reach mainland Africa and Australia.`\
 https://nytimes.com/2024/05/15/science/baobab-trees-evolution.html
-
-**They Were Once ‘Hippie vs. Soviet.’ Now They’re the Best of Friends.**\
-`“We genuinely like each other,” Alex Yaroslavsky said of his ex-wife and co-parent, Liza Cooper. They even live in the same apartment building.`\
-https://nytimes.com/2024/05/15/style/alex-yaroslavsky-liza-cooper-divorce-story.html
-
-**A Recipe for Perfect Broiled Shrimp Every Time**\
-`Cooking the tiny crustaceans on a sheet pan can be tricky. This vibrant dish, full of golden-edged zucchini, from Melissa Clark changes that.`\
-https://nytimes.com/2024/05/15/dining/broiled-shrimp-recipe.html
-
-**At the P.G.A. Championship, Club Pros Can Get Their Day in the Sun**\
-`They have the opportunity to play their way into the field. Michael Block did it last year and impressed the sport by finishing 15th.`\
-https://nytimes.com/2024/05/15/sports/golf/pga-championship-club-pros.html
 
