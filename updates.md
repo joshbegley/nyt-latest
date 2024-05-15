@@ -1,3 +1,15 @@
+**Sarah Elfreth, Maryland’s Youngest Female State Senator, Wins House Primary**\
+`Ms. Elfreth, 35, was victorious in a crowded Democratic field in a deep-blue district to succeed Representative John Sarbanes.`\
+https://nytimes.com/2024/05/14/us/politics/harry-dunn-sarah-elfreth-maryland.html
+
+**Transcript of Trump Manhattan Trial, May 13, 2024**\
+`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
+https://nytimes.com/interactive/2024/05/14/nyregion/trump-hush-money-trial-transcript-may-13.html
+
+**Frankie, a colored bull terrier, wins the terrier group.**\
+`By Callie Holtermann`\
+https://nytimes.com/live/2024/05/14/style/westminster-dog-show/frankie-a-colored-bull-terrier-wins-the-terrier-group
+
 **Angela Alsobrooks Wants to Be Maryland’s First Black Senator**\
 `If she wins this fall, Maryland’s newly chosen Democratic nominee for Senate would also become the sole woman in Maryland’s congressional delegation.`\
 https://nytimes.com/2024/05/14/us/politics/who-is-angela-alsobrooks.html
