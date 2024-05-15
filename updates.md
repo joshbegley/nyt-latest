@@ -1,3 +1,7 @@
+**An A.I. Robot Named Sophia Tells Graduates to Believe in Themselves**\
+`D’Youville University, in Buffalo, N.Y., had an A.I. robot speak at its commencement on Saturday. Not everyone was happy about it.`\
+https://nytimes.com/2024/05/15/nyregion/dyouville-university-commencement-robot-speaker.html
+
 **Assistant Principal Is Among 4 Charged With Murdering 3 in Georgia in 2013**\
 `School officials said that an assistant middle school principal had been placed on leave after he was arrested and charged, along with three others, with strangling three people in Jonesboro, Ga.`\
 https://nytimes.com/2024/05/15/us/assistant-principal-murder-georgia.html
