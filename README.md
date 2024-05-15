@@ -1,3 +1,7 @@
+**Did You Have Syphilis When You Were Pregnant? We Want to Hear From You.**\
+`Congenital syphilis has risen significantly in the United States. The Times would like to talk to women who experienced the condition when pregnant and learn how they dealt with it.`\
+https://nytimes.com/2024/05/15/health/callout-pregnancy-syphilis.html
+
 **Russian Disinformation Videos Smear Biden Ahead of U.S. Election**\
 `Many of the videos are trying to appeal to right-wing voters with fake messages about President Biden, experts say.`\
 https://nytimes.com/2024/05/15/us/politics/russia-disinformation-election.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/15/arts/pen-free-expression-gaza.html
 **Review: Parsons Dance Spins and Darts Through Miles Davis**\
 `For its Joyce season, the company unveils “Juke,” a spiky premiere by Jamar Roberts, along with dances by David Parsons and Penny Saunders.`\
 https://nytimes.com/2024/05/15/arts/dance/review-parsons-dance-jamar-roberts.html
-
-**Too Red, Too Vampiric, Too Sexy: A Brief History of Polarizing Royal Portraits**\
-`Jonathan Yeo’s painting of King Charles III has prompted both admiration and bemusement, but it’s far from the first royal portrait to divide opinion.`\
-https://nytimes.com/2024/05/15/world/europe/king-charles-royal-portraits.html
 
