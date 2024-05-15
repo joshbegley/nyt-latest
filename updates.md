@@ -1,3 +1,15 @@
+**Russian Disinformation Videos Smear Biden Ahead of U.S. Election**\
+`Many of the videos are trying to appeal to right-wing voters with fake messages about President Biden, experts say.`\
+https://nytimes.com/2024/05/15/us/politics/russia-disinformation-election.html
+
+**Ron Klain, Biden’s former chief of staff, will take time off from Airbnb to help the president prepare.**\
+`By Katie Rogers`\
+https://nytimes.com/2024/05/15/us/politics/ron-klain-bidens-former-chief-of-staff-will-take-time-off-from-airbnb-to-help-the-president-prepare.html
+
+**The Billionaire Frank McCourt Mounts Bid to Buy TikTok**\
+`Mr. McCourt, a longtime critic of the way tech companies use data, sees acquiring TikTok as a chance to create an “alternative to the current internet.”`\
+https://nytimes.com/2024/05/15/business/frank-mccourt-tiktok-bid.html
+
 **In About-Face, Wall Street’s Big Donors Warm to Trump**\
 `They may “hate the man,” as one put it, but major business players from coast to coast are increasingly on board for a second term after the first one alienated them.`\
 https://nytimes.com/2024/05/15/business/wall-street-donors-trump.html
