@@ -1,3 +1,7 @@
+**The Possible Collapse of the U.S. Home Insurance System**\
+`A Times investigation found climate change may now be a concern for every homeowner in the country.`\
+https://nytimes.com/2024/05/15/podcasts/the-daily/climate-insurance.html
+
 **Putin Is Selling Victory, and Many Russians Are Buying It**\
 `Vladimir Putin’s message to his country appears to be taking hold: that Russia is fighting against the whole Western world — and winning.`\
 https://nytimes.com/2024/05/15/world/europe/russia-ukraine-war-victory-moscow.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/15/business/cpi-inflation-data.html
 **‘The Seeds Had Been Planted. Trump Didn’t Do It Himself.’**\
 `Authoritarianism has moved from the periphery to the center, even the core, of global politics.`\
 https://nytimes.com/2024/05/15/opinion/trump-authoritarianism-democracy.html
-
-**‘There Are Layers of Mistrust and Fear’**\
-`An interview with Mandy Cohen, America’s top public health official, as the C.D.C. tries to rebuild after the Covid-19 pandemic.`\
-https://nytimes.com/2024/05/15/opinion/there-are-layers-of-mistrust-and-fear.html
 
