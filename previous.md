@@ -1,3 +1,7 @@
+**Slovakia has largely charted its own course since the fall of the Soviet Union.**\
+`has`\
+https://nytimes.com/live/2024/05/15/world/slovakia-prime-minister-fico-shooting/slovakia-has-largely-charted-its-own-course-since-the-fall-of-the-soviet-union
+
 **To Talk With Putin or Iran, the West Turns to the World’s Nuclear Inspector**\
 `Rafael Grossi took over the International Atomic Energy Agency five years ago at what now seems like a far less fraught moment. With atomic fears everywhere, the inspector is edging toward mediator.`\
 https://nytimes.com/2024/05/15/us/politics/rafael-grossi-iaea-putin-iran.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/15/world/asia/putin-xi-china-summit.html
 **Supreme Court, for Now, Allows Louisiana Voting Map to Move Forward**\
 `Louisiana had asked the justices to weigh in on a dispute over a new congressional map with a second majority-Black district in time for the election.`\
 https://nytimes.com/2024/05/15/us/louisiana-supreme-court-congressional-map.html
-
-**Inflation Eased and Markets Hit New Highs**\
-`Also, Biden and Trump agreed to debate in June and September. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2024/05/15/briefing/inflation-stock-market-trump-biden-debates.html
 

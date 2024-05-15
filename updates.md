@@ -1,3 +1,7 @@
+**Slovakia has largely charted its own course since the fall of the Soviet Union.**\
+`has`\
+https://nytimes.com/live/2024/05/15/world/slovakia-prime-minister-fico-shooting/slovakia-has-largely-charted-its-own-course-since-the-fall-of-the-soviet-union
+
 **To Talk With Putin or Iran, the West Turns to the World’s Nuclear Inspector**\
 `Rafael Grossi took over the International Atomic Energy Agency five years ago at what now seems like a far less fraught moment. With atomic fears everywhere, the inspector is edging toward mediator.`\
 https://nytimes.com/2024/05/15/us/politics/rafael-grossi-iaea-putin-iran.html
