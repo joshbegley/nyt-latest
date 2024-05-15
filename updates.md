@@ -1,3 +1,7 @@
+**At Christie’s, the Show Goes On, Despite a Hack**\
+`Although a cyberattack hobbled its website, the auction house held two major sales, totaling $115 million, on Tuesday night. One expert praised the evening’s “really respectable sales in a difficult environment.”`\
+https://nytimes.com/2024/05/14/arts/christies-auction-cyberattack.html
+
 **YouTube Blocks Access to Protest Anthem in Hong Kong**\
 `Responding to a court order, YouTube and its sister company, Google, will block viewers in the region from viewing videos of the song, “Glory to Hong Kong.”`\
 https://nytimes.com/2024/05/14/business/youtube-glory-to-hong-kong.html
