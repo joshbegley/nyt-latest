@@ -1,5 +1,9 @@
+**What to Know About the Summit Between Putin and Xi in China**\
+`China’s backing will be crucial to President Vladimir V. Putin as he intensifies his offensive in Ukraine. But his host, Xi Jinping, has other competing priorities.`\
+https://nytimes.com/2024/05/15/world/asia/putin-xi-china-summit.html
+
 **Supreme Court, for Now, Allows Louisiana Voting Map to Move Forward**\
-`Louisiana had asked the justices to weigh in on a dispute over its new congressional map in time for the election.`\
+`Louisiana had asked the justices to weigh in on a dispute over its new congressional map, with a second majority-Black district, in time for the election.`\
 https://nytimes.com/2024/05/15/us/louisiana-supreme-court-congressional-map.html
 
 **Inflation Eased and Markets Hit New Highs**\
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/15/world/europe/slovakia-prime-minister-robert-fico-
 **The Words That Defined the Week in Donald J. Trump’s Trial**\
 `The criminal trial was dominated by testimony from Michael D. Cohen, the defendant’s former personal lawyer, and Stormy Daniels, a porn star who took hush money.`\
 https://nytimes.com/2024/05/15/nyregion/trump-hush-money-trial-michael-cohen.html
-
-**Trump’s Jet Clipped a Parked Plane in Florida**\
-`No one was injured in the incident, which happened while the jet was taxiing early Sunday, the F.A.A. said. On Wednesday, the former president was traveling on a different plane.`\
-https://nytimes.com/2024/05/15/us/politics/trump-plane-florida-airport.html
 

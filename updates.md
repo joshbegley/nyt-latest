@@ -1,3 +1,11 @@
+**What to Know About the Summit Between Putin and Xi in China**\
+`China’s backing will be crucial to President Vladimir V. Putin as he intensifies his offensive in Ukraine. But his host, Xi Jinping, has other competing priorities.`\
+https://nytimes.com/2024/05/15/world/asia/putin-xi-china-summit.html
+
+**Supreme Court, for Now, Allows Louisiana Voting Map to Move Forward**\
+`Louisiana had asked the justices to weigh in on a dispute over its new congressional map, with a second majority-Black district, in time for the election.`\
+https://nytimes.com/2024/05/15/us/louisiana-supreme-court-congressional-map.html
+
 **Attempted Assassination of Slovak Leader Puts Europe on Edge**\
 `Prime Minister Robert Fico of Slovakia, an ally of Vladimir V. Putin and Viktor Orban, was shot multiple times on Wednesday, stoking fears that Europe’s polarized politics were tipping into violence.`\
 https://nytimes.com/2024/05/15/world/europe/slovakia-prime-minister-robert-fico-assassination-attempt.html
