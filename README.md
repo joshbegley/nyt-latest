@@ -1,3 +1,7 @@
+**A Puzzle Game With Roots in Resnais and Resident Evil**\
+`In addition to its gaming influences, Lorelei and the Laser Eyes contains traces of postmodern novels and the French New Wave.`\
+https://nytimes.com/2024/05/15/arts/lorelei-and-the-laser-eyes.html
+
 **The Stock Market Is Back in Rally Mode**\
 `Investors seized on the latest inflation report Wednesday showing a slight moderation in consumer prices, pushing the S&P 500 past its March record.`\
 https://nytimes.com/2024/05/15/business/the-stock-market-is-back-in-rally-mode.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/15/business/trump-media-stock.html
 **Gabriel García Márquez Wanted His Manuscript Destroyed. Is It Wrong to Read It?**\
 `The magazine’s Ethicist columnist on whether to honor a dead writer’s wishes.`\
 https://nytimes.com/2024/05/15/magazine/garcia-marquez-manuscript-ethics.html
-
-**The Billionaire Frank McCourt Mounts Bid to Buy TikTok**\
-`Mr. McCourt, a longtime critic of the way tech companies use data, sees acquiring TikTok as a chance to create an “alternative to the current internet.”`\
-https://nytimes.com/2024/05/15/business/frank-mccourt-tiktok-bid.html
 
