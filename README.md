@@ -1,3 +1,15 @@
+**This Coconut-Miso Salmon Curry Has Over 12,000 Ratings**\
+`Kay Chun’s recipe keeps things bright with a squeeze of lime and a flurry of fresh herbs.`\
+https://nytimes.com/2024/05/15/dining/this-coconut-miso-salmon-curry-has-over-12000-ratings.html
+
+**The Unusual Evolutionary Journey of the Baobab Tree**\
+`New research shows the “upside-down trees” originated in Madagascar and then caught a ride on ocean currents to reach mainland Africa and Australia.`\
+https://nytimes.com/2024/05/15/science/baobab-trees-evolution.html
+
+**They Were Once ‘Hippie vs. Soviet.’ Now They’re the Best of Friends.**\
+`“We genuinely like each other,” Alex Yaroslavsky said of his ex-wife and co-parent, Liza Cooper. They even live in the same apartment building.`\
+https://nytimes.com/2024/05/15/style/alex-yaroslavsky-liza-cooper-divorce-story.html
+
 **A Recipe for Perfect Broiled Shrimp Every Time**\
 `Cooking the tiny crustaceans on a sheet pan can be tricky. This vibrant dish, full of golden-edged zucchini, from Melissa Clark changes that.`\
 https://nytimes.com/2024/05/15/dining/broiled-shrimp-recipe.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/05/15/sports/golf/gary-player-pga-championship.html
 **Macron Moves to Declare State of Emergency in New Caledonia**\
 `The French authorities have undertaken a “massive” mobilization of security forces since violent protests broke out over a constitutional amendment that changes voting rules in the South Pacific territory.`\
 https://nytimes.com/2024/05/15/world/asia/new-caledonia-france-macron.html
-
-**Biden’s Daring Debate Proposal Could Recharge His Campaign**\
-`Signaling an eagerness to debate is the crucial first step.`\
-https://nytimes.com/live/2024/05/14/opinion/thepoint/biden-trump-debate
-
-**How Wild Rice Forecasts Climate Change**\
-`Manoomin, a crop vital to the Indigenous peoples of the Upper Midwest, has been threatened in recent years. But careful stewardship is helping to bring it back.`\
-https://nytimes.com/2024/05/15/dining/wild-rice-climate-change.html
-
-**East Texas, Already Soaked, Prepares for a ‘Nightmare Scenario’ of More Rain**\
-`Some places in Texas have seen a year’s worth of rainfall since January.`\
-https://nytimes.com/2024/05/15/weather/texas-rain.html
 
