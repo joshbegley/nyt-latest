@@ -34,7 +34,7 @@ https://nytimes.com/video/us/100000009461974/explaining-the-surprising-patterns-
 `Paul Krugman on how burgers became the focus of a conspiracy theory.`\
 https://nytimes.com/2024/05/15/opinion/lab-meat-maga-florida.html
 
-**What Alice Munro Would Never Do**\
+**I Don’t Write Like Alice Munro. But I Want to Live Like Her.**\
 `We are very different writers, but I have kept Alice Munro in mind, daily and for decades, as an example to follow.`\
 https://nytimes.com/2024/05/15/opinion/what-alice-munro-would-never-do.html
 
