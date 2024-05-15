@@ -1,3 +1,7 @@
+**Supreme Court, for Now, Allows Louisiana Voting Map to Move Forward**\
+`Louisiana had asked the justices to weigh in on a dispute over a new congressional map with a second majority-Black district in time for the election.`\
+https://nytimes.com/2024/05/15/us/louisiana-supreme-court-congressional-map.html
+
 **What to Know About the Summit Between Putin and Xi in China**\
 `China’s backing will be crucial to President Vladimir V. Putin as he intensifies his offensive in Ukraine. But his host, Xi Jinping, has other competing priorities.`\
 https://nytimes.com/2024/05/15/world/asia/putin-xi-china-summit.html

@@ -3,7 +3,7 @@
 https://nytimes.com/2024/05/15/world/asia/putin-xi-china-summit.html
 
 **Supreme Court, for Now, Allows Louisiana Voting Map to Move Forward**\
-`Louisiana had asked the justices to weigh in on a dispute over its new congressional map, with a second majority-Black district, in time for the election.`\
+`Louisiana had asked the justices to weigh in on a dispute over a new congressional map with a second majority-Black district in time for the election.`\
 https://nytimes.com/2024/05/15/us/louisiana-supreme-court-congressional-map.html
 
 **Inflation Eased and Markets Hit New Highs**\
