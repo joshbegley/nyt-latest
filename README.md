@@ -1,4 +1,4 @@
-**Wildfire Approaches Canada’s Largest Oil-Producing Area — Again**\
+**Wildfire Approaches Canada’s Largest Oil-Producing Area. Again.**\
 `The fire, near Fort McMurray, Alberta, has put the community, which is haunted by the costliest wildfire in Canadian history, on high alert.`\
 https://nytimes.com/2024/05/15/world/canada/wildfires-fort-mcmurray-alberta-oil.html
 
