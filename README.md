@@ -1,3 +1,7 @@
+**After Outlawing Public Zoos, Costa Rica Relocates Hundreds of Animals**\
+`Some of the animals will stay in sanctuaries, while others may be released into the wild.`\
+https://nytimes.com/2024/05/15/world/americas/costa-rica-zoo-closing.html
+
 **Food price gains moderated in April.**\
 `By Madeleine Ngo`\
 https://nytimes.com/live/2024/05/15/business/cpi-inflation-fed/food-price-gains-moderated-in-april
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/15/business/cpi-inflation-fed/housing-inflation
 **Why is the Rafah border crossing closed? Egypt and Israel each say the other is responsible.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/05/15/world/israel-gaza-war-hamas-rafah/why-is-the-rafah-border-crossing-closed-egypt-and-israel-each-say-the-other-is-responsible
-
-**How Much Do You Know About Kuwait?**\
-`Can you find Kuwait on a map? What else do you know about this Middle East nation?`\
-https://nytimes.com/interactive/2024/05/15/learning/KuwaitGeographyQuiz.html
 
