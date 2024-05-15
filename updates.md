@@ -1,3 +1,11 @@
+**How Wild Rice Forecasts Climate Change**\
+`Manoomin, a crop vital to the Indigenous peoples of the Upper Midwest, has been threatened in recent years. But careful stewardship is helping to bring it back.`\
+https://nytimes.com/2024/05/15/dining/wild-rice-climate-change.html
+
+**Slovakia’s Prime Minister in ‘Life-Threatening’ Condition After Shooting**\
+`Robert Fico was taken to a hospital after the attack in the town of Handlova, northeast of the capital, Bratislava.`\
+https://nytimes.com/2024/05/15/world/europe/slovakia-prime-minister-fico.html
+
 **Slovakia’s Prime Minister Is Wounded in Attack**\
 `Robert Fico was shot and taken to a hospital after the assault in the town of Handlova, northeast of the capital, Bratislava.`\
 https://nytimes.com/2024/05/15/world/europe/slovakia-prime-minister-fico.html
