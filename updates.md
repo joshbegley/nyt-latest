@@ -1,3 +1,5 @@
+**The U.N. offers details on the killing of one of its workers, and other news.**\
+
 **Jury Selection in Menendez Trial Stretches Into a Third Day**\
 `Senator Robert Menendez is accused of participating in a sprawling bribery scheme that involves $100,000 in gold bars, an Egyptian halal meat monopoly and a Qatari sheikh.`\
 https://nytimes.com/2024/05/15/nyregion/menendez-trial-jury-selection.html
