@@ -1,3 +1,7 @@
+**Housing inflation held steady in April, as a more marked slowdown remains elusive.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/05/15/business/cpi-inflation-fed/housing-inflation-held-steady-in-april-as-a-more-marked-slowdown-remains-elusive
+
 **Why is the Rafah border crossing closed? Egypt and Israel each say the other is responsible.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/05/15/world/israel-gaza-war-hamas-rafah/why-is-the-rafah-border-crossing-closed-egypt-and-israel-each-say-the-other-is-responsible
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/15/world/europe/ukraine-war-fighting-russia-advance.
 **The Fed chair’s confidence in cooling inflation is ‘not as high’ as before.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/05/15/business/cpi-inflation-fed/the-fed-chairs-confidence-in-cooling-inflation-is-not-as-high-as-before
-
-**15inflation-blog**\
-`Live Updates: Inflation Cooled Slightly`\
-https://nytimes.com/live/2024/05/15/business/cpi-inflation-fed
 
