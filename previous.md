@@ -1,6 +1,6 @@
 **Former Nickelodeon Star Says Dan Schneider ‘Preyed’ on Her as Boss**\
 `Lori Beth Denberg, who appeared on “All That,” told Business Insider that he showed her porn multiple times and fondled her once. He says her claims are “exaggerated” and “in most cases, false.”`\
-https://nytimes.com/2024/05/14/arts/former-nickelodeon-star-says-dan-schneider-preyed-on-her-as-boss.html
+https://nytimes.com/2024/05/14/arts/dan-schneider-lori-beth-denberg.html
 
 **Meet your bloggers (and their pets).**\
 `By Benjamin Hoffman`\
