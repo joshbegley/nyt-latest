@@ -1,3 +1,7 @@
+**Did You Have Syphilis When You Were Pregnant? We Want to Hear From You.**\
+`Congenital syphilis has risen significantly in the United States. The Times would like to talk to women who experienced the condition when pregnant and learn how they dealt with it.`\
+https://nytimes.com/2024/05/15/health/callout-pregnancy-syphilis.html
+
 **Ron Klain, Former Chief of Staff, Will Return to Help Biden With Debate**\
 `Mr. Klain left the White House last year and became the chief legal officer at Airbnb. He plans to take a vacation from his job to help President Biden prepare.`\
 https://nytimes.com/2024/05/15/us/politics/ron-klain-biden-trump-debate.html
