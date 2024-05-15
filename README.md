@@ -1,3 +1,7 @@
+**With Church Bells and Hashtags, the Netherlands Backs Its Eurovision Act**\
+`The details of an incident that led to the singer’s disqualification remain elusive. But many Dutch fans have already made up their minds.`\
+https://nytimes.com/2024/05/15/arts/music/joost-klein-eurovision.html
+
 **‘How to Have Sex,’ ‘Miller’s Girl’ and More Streaming Gems**\
 `Provocative debuts from two exciting new female filmmakers lead off this month’s roundup of recommendations from your subscription streaming services.`\
 https://nytimes.com/2024/05/15/movies/how-to-have-sex-millers-girl-streaming-movies.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/15/arts/music/jeff-mills-tomorrow-comes-the-harvest-
 **A Puzzle Game With Roots in Resnais and Resident Evil**\
 `In addition to its gaming influences, Lorelei and the Laser Eyes contains traces of postmodern novels and the French New Wave.`\
 https://nytimes.com/2024/05/15/arts/lorelei-and-the-laser-eyes.html
-
-**The Stock Market Is Back in Rally Mode**\
-`Investors seized on the latest inflation report as another sign that interest rates could be cut his year, helping push the S&P 500 past its March record.`\
-https://nytimes.com/2024/05/15/business/stock-market-rally-inflation.html
 
