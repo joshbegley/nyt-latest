@@ -1,4 +1,8 @@
 **Despite Billions in Investments, Biden Trails in Arizona and Georgia**\
+`The states have been major beneficiaries of the Biden administration’s key economic policies, such as spending on infrastructure, manufacturing and clean energy.`\
+https://nytimes.com/2024/05/15/us/politics/biden-arizona-georgia-infrastructure-election.html
+
+**Despite Billions in Investments, Biden Trails in Arizona and Georgia**\
 `Both states have been major beneficiaries of the Biden administration’s key economic policies with spending on infrastructure, clean energy and computer chip manufacturing.`\
 https://nytimes.com/2024/05/15/us/politics/biden-arizona-georgia-infrastructure-election.html
 
