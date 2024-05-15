@@ -1,3 +1,15 @@
+**Blinken Warns Fighting Could Undo Aid Gains in Gaza**\
+`The secretary of state said active fighting in the area was taking a toll after Israel had taken some steps to improve assistance.`\
+https://nytimes.com/2024/05/15/world/middleeast/israel-rafah-border-gallant-blinken.html
+
+**Barry Romo, Decorated Vet Who Turned Against the VietnamWar, Dies at 76**\
+`After serving as an officer, he became a leading antiwar activist. In 1971, he tossed away his medals during a Washington protest demonstration.`\
+https://nytimes.com/2024/05/15/us/barry-romo-dead.html
+
+**CNN and ABC Snag the TV Coups of the Year**\
+`In a matter of hours, two networks outmaneuvered their rivals and landed a coveted pair of Biden-Trump prime-time debates.`\
+https://nytimes.com/2024/05/15/business/media/cnn-abc-biden-trump-debates.html
+
 **Eric Adams Called Migrants ‘Excellent Swimmers.’ He Explains Why.**\
 `Mayor Adams said that his comment, which drew criticism from the right and the left, was based on numerous conversations he has had with migrants.`\
 https://nytimes.com/2024/05/15/nyregion/eric-adams-migrants-swimmers.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/05/15/movies/furiosa-a-mad-max-saga-review-anya-taylor-
 **Why Biden Wanted to Debate Trump Early, and Why Trump Said Yes**\
 `President Biden, trailing in polls, is hoping to shake up the race and mitigate political risk. Donald Trump, already lowering expectations for his rival, is eager for onstage clashes.`\
 https://nytimes.com/2024/05/15/us/politics/trump-biden-debate-june.html
-
-**A.T. Ariyaratne, a Hero in Sri Lanka for Helping the Poor, Dies at 92**\
-`He built Sarvodaya, an organization that battled dismal living conditions in his country’s villages and championed peace and mediation during a vicious civil war.`\
-https://nytimes.com/2024/05/15/world/asia/at-ariyaratne-dead.html
-
-**Democrats Batter Bank Regulator Over F.D.I.C.’s ‘Toxic’ Workplace Culture**\
-`The agency’s chair, Martin Gruenberg, has resisted Republicans’ calls to resign, but criticism by his own party raises questions about how long he can hang on.`\
-https://nytimes.com/2024/05/15/business/martin-gruenberg-fdic-congressional-hearing.html
-
-**Katherine Porter, Painter of Intuitive Expressionism, Dies at 82**\
-`Her palette was entirely personal, making contact with the natural world just long enough to spirit viewers back into her own psychology.`\
-https://nytimes.com/2024/05/15/arts/katherine-porter-dead.html
 
