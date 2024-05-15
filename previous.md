@@ -1,3 +1,7 @@
+**Corrections: May 15, 2024**\
+`Corrections that appeared in print on Wednesday, May 15, 2024.`\
+https://nytimes.com/2024/05/14/pageoneplus/corrections-may-15-2024.html
+
 **Michael Cohen Says Trump Discussed Reimbursement in Oval Office**\
 `Michael Cohen’s story of a hush-money arrangement struck in the White House was the only personal account tying Donald J. Trump to falsified documents. Jonah Bromwich, a criminal justice reporter at The New York Times, gives his takeaways.`\
 https://nytimes.com/video/nyregion/100000009469245/michael-cohen-says-trump-discussed-reimbursement-in-oval-office.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/14/us/politics/maryland-democratic-senate-primary.ht
 **Brewer’s Implement**\
 `MaryEllen Uthlaut’s crossword is worth celebrating.`\
 https://nytimes.com/2024/05/14/crosswords/daily-puzzle-2024-05-15.html
-
-**House Republican Don Bacon Puts Down Right-Wing Challenge in a Biden District**\
-`The mainstream four-term congressman easily dispatched an opponent on his right, clearing the way for what is expected to be a difficult re-election race in a competitive district in Nebraska.`\
-https://nytimes.com/2024/05/14/us/politics/republican-don-bacon-wins-in-biden-district.html
 

@@ -1,3 +1,7 @@
+**Corrections: May 15, 2024**\
+`Corrections that appeared in print on Wednesday, May 15, 2024.`\
+https://nytimes.com/2024/05/14/pageoneplus/corrections-may-15-2024.html
+
 **Michael Cohen Says Trump Discussed Reimbursement in Oval Office**\
 `Michael Cohen’s story of a hush-money arrangement struck in the White House was the only personal account tying Donald J. Trump to falsified documents. Jonah Bromwich, a criminal justice reporter at The New York Times, gives his takeaways.`\
 https://nytimes.com/video/nyregion/100000009469245/michael-cohen-says-trump-discussed-reimbursement-in-oval-office.html
