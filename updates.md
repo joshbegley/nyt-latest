@@ -1,3 +1,7 @@
+**U.S. Bridges Face ‘Increased Risks’ From Large Ships, Coast Guard Says**\
+`A Coast Guard leader told Congress that bridges around the country needed to be assessed to avoid repeating the crash that knocked down the Key Bridge in Baltimore.`\
+https://nytimes.com/2024/05/15/us/baltimore-key-bridge-collapse-congress-hearing.html
+
 **‘Furiosa: A Mad Max Saga’ Review: A Lonely Avenger**\
 `The fifth installment of George Miller’s series delivers an origin story of Furiosa, the hard-bitten driver played here by Anya Taylor-Joy.`\
 https://nytimes.com/2024/05/15/movies/furiosa-a-mad-max-saga-review-anya-taylor-joy.html

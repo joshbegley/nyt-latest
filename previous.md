@@ -1,3 +1,7 @@
+**U.S. Bridges Face ‘Increased Risks’ From Large Ships, Coast Guard Says**\
+`A Coast Guard leader told Congress that bridges around the country needed to be assessed to avoid repeating the crash that knocked down the Key Bridge in Baltimore.`\
+https://nytimes.com/2024/05/15/us/baltimore-key-bridge-collapse-congress-hearing.html
+
 **‘Furiosa: A Mad Max Saga’ Review: A Lonely Avenger**\
 `The fifth installment of George Miller’s series delivers an origin story of Furiosa, the hard-bitten driver played here by Anya Taylor-Joy.`\
 https://nytimes.com/2024/05/15/movies/furiosa-a-mad-max-saga-review-anya-taylor-joy.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/for-egypt-menend
 **7 Excuses People Gave to Avoid Jury Duty in Senator Menendez’s Bribery Trial**\
 `The would-be jurors disclosed challenges familiar to many families: child care, work obligations, long-planned vacations and scheduled surgeries. Other explanations were less conventional.`\
 https://nytimes.com/2024/05/15/nyregion/menendez-trial-jury-excuses.html
-
-**Trump and Biden Agree to 2 Debates. Here’s What to Know.**\
-`The first debate is expected to be held in late June on CNN, and the second is set for early September on ABC News.`\
-https://nytimes.com/2024/05/15/us/politics/trump-biden-debates-explained.html
 
