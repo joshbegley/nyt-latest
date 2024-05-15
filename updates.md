@@ -1,3 +1,7 @@
+**A.T. Ariyaratne, a Hero in Sri Lanka for Helping the Poor, Dies at 92**\
+`He built Sarvodaya, an organization that battled dismal living conditions in his country’s villages and championed peace and mediation during a vicious civil war.`\
+https://nytimes.com/2024/05/15/world/asia/at-ariyaratne-dead.html
+
 **Democrats Batter Bank Regulator Over F.D.I.C.’s ‘Toxic’ Workplace Culture**\
 `The agency’s chair, Martin Gruenberg, has resisted Republicans’ calls to resign, but criticism by his own party raises questions about how long he can hang on.`\
 https://nytimes.com/2024/05/15/business/martin-gruenberg-fdic-congressional-hearing.html

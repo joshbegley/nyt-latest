@@ -1,3 +1,7 @@
+**A.T. Ariyaratne, a Hero in Sri Lanka for Helping the Poor, Dies at 92**\
+`He built Sarvodaya, an organization that battled dismal living conditions in his country’s villages and championed peace and mediation during a vicious civil war.`\
+https://nytimes.com/2024/05/15/world/asia/at-ariyaratne-dead.html
+
 **Democrats Batter Bank Regulator Over F.D.I.C.’s ‘Toxic’ Workplace Culture**\
 `The agency’s chair, Martin Gruenberg, has resisted Republicans’ calls to resign, but criticism by his own party raises questions about how long he can hang on.`\
 https://nytimes.com/2024/05/15/business/martin-gruenberg-fdic-congressional-hearing.html
@@ -29,8 +33,4 @@ https://nytimes.com/interactive/2024/05/15/smarter-living/wirecutter/clean-up-ca
 **House Passes Legislation to Improve Air Travel, Sending Bill to Biden’s Desk**\
 `The bipartisan vote to reauthorize the Federal Aviation Administration also greenlit measures to strengthen consumer protections and address safety and work force issues plaguing the skies.`\
 https://nytimes.com/2024/05/15/us/politics/airplanes-faa-house-bill.html
-
-**Senator Bob Menendez’s famous children carry a burden.**\
-`By Katherine Rosman and Tracey Tully`\
-https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/senator-bob-menendezs-famous-children-carry-a-burden
 
