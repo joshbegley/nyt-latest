@@ -18,8 +18,8 @@ https://nytimes.com/2024/05/15/theater/death-becomes-her-broadway.html
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/05/15/world/israel-gaza-war-hamas-rafah/israel-says-it-is-intensifying-operations-in-the-north-where-hamas-has-returned
 
-**Slovakia’s Prime Minister Is Wounded in Attack**\
-`Robert Fico was shot and taken to a hospital after the assault in the town of Handlova, northeast of the capital, Bratislava.`\
+**Slovakia’s Prime Minister in ‘Life-Threatening’ Condition After Shooting**\
+`Robert Fico was taken to a hospital after the attack in the town of Handlova, northeast of the capital, Bratislava.`\
 https://nytimes.com/2024/05/15/world/europe/slovakia-prime-minister-fico.html
 
 **After Outlawing Public Zoos, Costa Rica Relocates Hundreds of Animals**\
