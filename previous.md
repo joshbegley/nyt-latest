@@ -1,3 +1,7 @@
+**Eric Adams Called Migrants ‘Excellent Swimmers.’ He Explains Why.**\
+`Mayor Adams said that his comment, which drew criticism from the right and the left, was based on numerous conversations he has had with migrants.`\
+https://nytimes.com/2024/05/15/nyregion/eric-adams-migrants-swimmers.html
+
 **U.S. Suspends Funding for Group at Center of Covid Origins Fight**\
 `The decision came after a scorching hearing in which lawmakers barraged EcoHealth Alliance’s president with claims of misrepresenting work with Chinese virologists.`\
 https://nytimes.com/2024/05/15/health/ecohealth-alliance-peter-daszak-nih-grants.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/15/business/martin-gruenberg-fdic-congressional-hear
 **Katherine Porter, Painter of Intuitive Expressionism, Dies at 82**\
 `Her palette was entirely personal, making contact with the natural world just long enough to spirit viewers back into her own psychology.`\
 https://nytimes.com/2024/05/15/arts/katherine-porter-dead.html
-
-**Dutch Right-Wing Parties Reach Preliminary Deal to Form a Government**\
-`The agreement excludes the populist politician Geert Wilders from becoming prime minister.`\
-https://nytimes.com/2024/05/15/world/europe/netherlands-government-geert-wilders.html
 
