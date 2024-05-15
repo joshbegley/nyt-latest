@@ -1,3 +1,7 @@
+**For Egypt, Menendez was key to accessing billions in U.S. aid.**\
+`By Vivian Yee and Karoun Demirjian`\
+https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/for-egypt-menendez-was-key-to-accessing-billions-in-us-aid
+
 **Here are 7 reasons people gave to avoid jury duty.**\
 `By Tracey Tully`\
 https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/here-are-7-reasons-people-gave-to-avoid-jury-duty
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/15/nyregion/nyc-drivers-cars-congestion-pricing.html
 **Netflix and the N.F.L. Sign a Three-Season Deal**\
 `Football joins pro wrestling and comedy specials in an expansion of the streaming service’s live offerings, a key step in the company’s overall live TV strategy.`\
 https://nytimes.com/2024/05/15/business/media/netflix-nfl-live.html
-
-**Gayle King Ate a Burger Before Her Sports Illustrated Swimsuit Shoot**\
-`The 69-year-old TV anchor, who graces a cover of this year’s swimsuit issue, was fine showing dimples but wanted to avoid looking “too boobalicious.”`\
-https://nytimes.com/2024/05/15/style/gayle-king-sports-illustrated-swimsuit.html
 
