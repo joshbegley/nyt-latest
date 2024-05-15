@@ -1,3 +1,23 @@
+**As Menendez’s star rose, fears of corruption cast a persistent shadow.**\
+`By Nicholas Fandos`\
+https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/as-menendezs-star-rose-fears-of-corruption-cast-a-persistent-shadow
+
+**The Menendez indictment set off a political frenzy in New Jersey.**\
+`By Christopher Maag`\
+https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/the-menendez-indictment-set-off-a-political-frenzy-in-new-jersey
+
+**How the Debates Trump and Biden Agreed to Break With Tradition**\
+`President Biden and former President Donald J. Trump have agreed to debate each other, following a decades-old tradition. But the similarities with previous debates are limited.`\
+https://nytimes.com/2024/05/15/us/politics/earliest-presidential-debates-june.html
+
+**What’s in Our Queue? ‘Anita’ and More**\
+`I’m a foreign correspondent covering China. Here are five things that I’ve enjoyed recently.`\
+https://nytimes.com/interactive/2024/05/15/arts/editors-recommendations-anita.html
+
+**15menendez-trial**\
+`Live Updates: Opening Statements in Bribery Trial of Robert Menendez Set to Begin`\
+https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial
+
 **Don’t Slam the Door on Inexpensive Chinese Electric Vehicles**\
 `Electric vehicles shouldn’t be a luxury item, but Biden’s tariffs mean they may remain so.`\
 https://nytimes.com/2024/05/15/opinion/biden-china-trade-electric-vehicles-solar-panels-tariffs.html
@@ -13,24 +33,4 @@ https://nytimes.com/2024/05/15/movies/francis-ford-coppola-megalopolis-harassmen
 **Biden Seeks to Curb Flow of Migrants From Nicaragua With New Restrictions**\
 `The announcement of visa restrictions and sanctions against Nicaraguan organizations reflects the White House’s concern that a surge of migrants could threaten President Biden’s re-election.`\
 https://nytimes.com/2024/05/15/us/politics/biden-nicaragua-immigration.html
-
-**Education Department Extends Deadline to Consolidate Loans for Forgiveness**\
-`Borrowers with commercially held loans will now have until June 30 to take steps to make their loans eligible for elimination.`\
-https://nytimes.com/2024/05/15/business/education-department-deadline-student-loan-forgiveness.html
-
-**Despite Billions in Investments, Biden Trails in Arizona and Georgia**\
-`The states have been major beneficiaries of the Biden administration’s key economic policies, such as spending on infrastructure, manufacturing and clean energy.`\
-https://nytimes.com/2024/05/15/us/politics/biden-arizona-georgia-infrastructure-election.html
-
-**With Church Bells and Hashtags, the Netherlands Backs Its Eurovision Act**\
-`The details of an incident that led to the singer’s disqualification remain elusive. But many Dutch fans have already made up their minds.`\
-https://nytimes.com/2024/05/15/arts/music/joost-klein-eurovision.html
-
-**‘How to Have Sex,’ ‘Miller’s Girl’ and More Streaming Gems**\
-`Provocative debuts from two exciting new female filmmakers lead off this month’s roundup of recommendations from your subscription streaming services.`\
-https://nytimes.com/2024/05/15/movies/how-to-have-sex-millers-girl-streaming-movies.html
-
-**Barbara Hannigan, Daring Singer and Maestro, to Lead Iceland Symphony**\
-`Hannigan, the rare artist to have a career as a soprano and a conductor, will assume a full-time conducting post for the first time.`\
-https://nytimes.com/2024/05/15/arts/music/barbara-hannigan-iceland-symphony.html
 
