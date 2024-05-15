@@ -1,3 +1,7 @@
+**Jim Justice Wins West Virginia’s Republican Senate Primary**\
+`The governor is now positioned to win the seat being vacated by Senator Joe Manchin III, a Democrat, and flip it to the G.O.P.`\
+https://nytimes.com/2024/05/14/us/jim-justice-wins-west-virginias-republican-senate-primary.html
+
 **Wall Street’s Heavy Hitters Come Out for the ‘Met Ball of Finance’**\
 `Robin Hood, an antipoverty organization in New York City, threw a “Matrix”-inspired gala that raised more than $68.5 million for the charity.`\
 https://nytimes.com/2024/05/14/style/robin-hood-gala-finance-charity.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/14/opinion/what-a-free-palestine-means-in-practice.h
 **Cohen on Cross: 5 Takeaways From Trump’s Criminal Trial**\
 `The key prosecution witness faced defense lawyers as the trial nears what may be an unexpectedly early conclusion.`\
 https://nytimes.com/2024/05/14/nyregion/cohen-trump-criminal-trial-takeaways.html
-
-**The dog show has a scrappier, sloppier cousin.**\
-`By Callie Holtermann`\
-https://nytimes.com/live/2024/05/14/style/westminster-dog-show/the-dog-show-has-a-scrappier-sloppier-cousin
 
