@@ -1,3 +1,15 @@
+**Seeking History in Maryland, and Zombie Campaigns Linger: Primary Takeaways**\
+`Angela Alsobrooks would be the third Black woman elected to the Senate if she wins her Maryland race against Larry Hogan; Nikki Haley keeps racking up votes.`\
+https://nytimes.com/2024/05/15/us/politics/elections-maryland-wv-ne-takeaways.html
+
+**Wednesday Briefing**\
+`Michael Cohen’s second day on the witness stand.`\
+https://nytimes.com/2024/05/15/briefing/cohen-testimony-russia-gaza.html
+
+**Scandal Brought Reforms to Soccer. Its Leaders Are Rolling Them Back.**\
+`FIFA tried to put a corruption crisis behind by changing its rules and claiming its governance overhaul had the endorsement of the Justice Department. U.S. officials say that was never the case.`\
+https://nytimes.com/2024/05/15/world/europe/fifa-infantino-reform.html
+
 **Mapping Russia’s Sudden Push Across Ukrainian Lines**\
 `All of a sudden, Russian forces are making progress in many directions at once.`\
 https://nytimes.com/interactive/2024/05/15/world/europe/russia-offensive-ukraine-maps.html
