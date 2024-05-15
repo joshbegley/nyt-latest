@@ -1,3 +1,11 @@
+**It’s Not Just Putin. Russia Needs China, Too.**\
+`Never before have the two countries been so entwined.`\
+https://nytimes.com/2024/05/15/opinion/putin-china-xi-jinping.html
+
+**These 12 Women Voted for Trump in 2020. How Do They See Him Now?**\
+`In our latest focus group, these voters said Trump was fallible in any number of ways, but that’s not what they cared about most.`\
+https://nytimes.com/interactive/2024/05/15/opinion/trump-women-focus-group.html
+
 **John Barbata, Turtles and C.S.N.Y. Drummer, Dies at 79**\
 `Barbata belonged to marquee bands of the late ’60s and ’70s, drumming on smash hits such as “Happy Together,” the first song he recorded with the Turtles.`\
 https://nytimes.com/2024/05/15/arts/music/john-barbata-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/14/us/politics/russia-momentum-ukraine-war.html
 **China Deploys Dozens of Ships to Block Philippine Protest Flotilla**\
 `Filipino civilians set sail in fishing boats to oppose China’s control of a shoal claimed by the Philippines. A formidable Chinese fleet awaited them.`\
 https://nytimes.com/2024/05/14/world/asia/china-philippines-flotilla.html
-
-**At Christie’s, the Show Goes On, Despite a Hack**\
-`Although a cyberattack hobbled its website, the auction house held two major sales, totaling $115 million, on Tuesday night. One expert praised the evening’s “really respectable sales in a difficult environment.”`\
-https://nytimes.com/2024/05/14/arts/christies-auction-cyberattack.html
-
-**YouTube Blocks Access to Protest Anthem in Hong Kong**\
-`Responding to a court order, YouTube and its sister company, Google, will block viewers in the region from viewing videos of the song, “Glory to Hong Kong.”`\
-https://nytimes.com/2024/05/14/business/youtube-glory-to-hong-kong.html
 
