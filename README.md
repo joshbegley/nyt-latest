@@ -1,3 +1,7 @@
+**Democrats Batter Bank Regulator Over F.D.I.C.’s ‘Toxic’ Workplace Culture**\
+`The agency’s chair, Martin Gruenberg, has resisted Republicans’ calls to resign, but criticism by his own party raises questions about how long he can hang on.`\
+https://nytimes.com/2024/05/15/business/martin-gruenberg-fdic-congressional-hearing.html
+
 **Katherine Porter, Painter of Intuitive Expressionism, Dies at 82**\
 `Her palette was entirely personal, making contact with the natural world just long enough to spirit viewers back into her own psychology.`\
 https://nytimes.com/2024/05/15/arts/katherine-porter-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/15/us/politics/airplanes-faa-house-bill.html
 **Senator Bob Menendez’s famous children carry a burden.**\
 `By Katherine Rosman and Tracey Tully`\
 https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/senator-bob-menendezs-famous-children-carry-a-burden
-
-**Swiss Court Convicts Ex-Gambian Minister of Crimes Against Humanity**\
-`Ousman Sonko, who served under an autocratic president now in exile, was found guilty of multiple counts of intentional homicide, torture and false imprisonment against citizens of the West African country.`\
-https://nytimes.com/2024/05/15/world/africa/gambia-crimes-switzerland-conviction.html
 
