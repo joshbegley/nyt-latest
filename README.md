@@ -1,3 +1,7 @@
+**Trump and Biden Agree to 2 Debates. Here’s What to Know.**\
+`The first debate is expected to be held in late June on CNN, and the second is set for early September on ABC News.`\
+https://nytimes.com/2024/05/15/us/politics/trump-biden-debates-explained.html
+
 **How to Clean Up Your Phone’s Camera Roll**\
 `What to do when your phone is overloaded with photos.`\
 https://nytimes.com/interactive/2024/05/15/smarter-living/wirecutter/clean-up-camera-roll.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/15/style/gayle-king-sports-illustrated-swimsuit.html
 **A France in Shock Confronts the Violence in Its Midst**\
 `The ruthless assault that freed a prisoner and set off a manhunt has turned attention to a multibillion-dollar drug trade fueling gang warfare.`\
 https://nytimes.com/2024/05/15/world/europe/a-france-in-shock-confronts-the-violence-in-its-midst.html
-
-**A senator’s wife drew prosecutors’ attention.**\
-`By Tracey Tully`\
-https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/a-senators-wife-drew-prosecutors-attention
 
