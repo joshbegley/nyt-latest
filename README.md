@@ -26,7 +26,7 @@ https://nytimes.com/2024/05/15/nyregion/dyouville-university-commencement-robot-
 `School officials said that an assistant middle school principal had been placed on leave after he was arrested and charged, along with three others, with strangling three people in Jonesboro, Ga.`\
 https://nytimes.com/2024/05/15/us/assistant-principal-murder-georgia.html
 
-**Barge Strikes Bridge in Galveston, Texas, Causing Oil Spill**\
+**Barge Strikes Bridge in Galveston, Causing Oil Spill**\
 `No injuries were reported when the barge struck a bridge that connects Galveston, Texas, to a small island along the Gulf of Mexico, causing a partial collapse.`\
 https://nytimes.com/2024/05/15/us/pelican-island-bridge-barge-galveston.html
 
