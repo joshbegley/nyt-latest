@@ -11,7 +11,7 @@ https://nytimes.com/2024/05/15/arts/music/jeff-mills-tomorrow-comes-the-harvest-
 https://nytimes.com/2024/05/15/arts/lorelei-and-the-laser-eyes.html
 
 **The Stock Market Is Back in Rally Mode**\
-`Investors seized on the latest inflation report Wednesday showing a slight moderation in consumer prices, pushing the S&P 500 past its March record.`\
+`Investors seized on the latest inflation report as another sign that interest rates could be cut his year, helping push the S&P 500 past its March record.`\
 https://nytimes.com/2024/05/15/business/stock-market-rally-inflation.html
 
 **World leaders express shock at an assassination attempt against Robert Fico, Slovakia’s prime minister.**\
