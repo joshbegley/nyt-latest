@@ -1,3 +1,7 @@
+**Ukraine Says It Is Engaged in Fierce Fighting With Russia in Northeast**\
+`Ukrainian officials and analysts said that a Russian advance across the border that began on Friday appeared to be slowing.`\
+https://nytimes.com/2024/05/15/world/europe/ukraine-war-fighting-russia-advance.html
+
 **The Fed chair’s confidence in cooling inflation is ‘not as high’ as before.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/05/15/business/cpi-inflation-fed/the-fed-chairs-confidence-in-cooling-inflation-is-not-as-high-as-before
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/15/world/europe/russia-ukraine-war-victory-moscow.ht
 **Explaining the Surprising Patterns of Fatal Shootings**\
 `We made a block-by-block interactive map of the U.S. to show how gun violence changed during the pandemic. Eli Murray, a graphics editor for The New York Times, gives some takeaways.`\
 https://nytimes.com/video/us/100000009461974/explaining-the-surprising-patterns-of-fatal-shootings.html
-
-**What MAGA’s Beef With Lab-Grown Meat Says About the G.O.P.**\
-`Paul Krugman on how burgers became the focus of a conspiracy theory.`\
-https://nytimes.com/2024/05/15/opinion/lab-meat-maga-florida.html
 

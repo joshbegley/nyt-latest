@@ -1,3 +1,7 @@
+**Ukraine Says It Is Engaged in Fierce Fighting With Russia in Northeast**\
+`Ukrainian officials and analysts said that a Russian advance across the border that began on Friday appeared to be slowing.`\
+https://nytimes.com/2024/05/15/world/europe/ukraine-war-fighting-russia-advance.html
+
 **The Fed chair’s confidence in cooling inflation is ‘not as high’ as before.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/05/15/business/cpi-inflation-fed/the-fed-chairs-confidence-in-cooling-inflation-is-not-as-high-as-before
