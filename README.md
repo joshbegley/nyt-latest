@@ -20,7 +20,7 @@ https://nytimes.com/2024/05/15/style/what-kind-of-person-lies-to-a-child-with-ca
 
 **A Shock of Red for a Royal Portrait**\
 `A new portrait of King Charles III is bathed in symbolism.`\
-https://nytimes.com/2024/05/15/style/king-charles-ii-portrait-jonathan-yeo-red.html
+https://nytimes.com/2024/05/15/style/king-charles-iii-portrait-jonathan-yeo-red.html
 
 **Stepping Cautiously Into the ‘Bridgerton’ Spotlight**\
 `Luke Newton has been in the sexy Netflix hit from the start. But a new series, premiering Thursday, will be his first as co-lead — or chief hunk.`\
