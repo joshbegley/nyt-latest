@@ -10,7 +10,7 @@ https://nytimes.com/2024/05/15/world/europe/netherlands-government-geert-wilders
 `By Vivian Yee and Karoun Demirjian`\
 https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/for-egypt-menendez-was-key-to-accessing-billions-in-us-aid
 
-**Here are 7 reasons people gave to avoid jury duty.**\
+**7 Excuses People Gave to Avoid Jury Duty in Senator Menendez’s Bribery Trial**\
 `The would-be jurors disclosed challenges familiar to many families: child care, work obligations, long-planned vacations and scheduled surgeries. Other explanations were less conventional.`\
 https://nytimes.com/2024/05/15/nyregion/menendez-trial-jury-excuses.html
 

@@ -1,3 +1,19 @@
+**Katherine Porter, Painter of Intuitive Expressionism, Dies at 82**\
+`Her palette was entirely personal, making contact with the natural world just long enough to spirit viewers back into her own psychology.`\
+https://nytimes.com/2024/05/15/arts/katherine-porter-dead.html
+
+**Dutch Right-Wing Parties Reach Preliminary Deal to Form a Government**\
+`The agreement excludes the populist politician Geert Wilders from becoming prime minister.`\
+https://nytimes.com/2024/05/15/world/europe/netherlands-government-geert-wilders.html
+
+**For Egypt, Menendez was key to accessing billions in U.S. aid.**\
+`By Vivian Yee and Karoun Demirjian`\
+https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/for-egypt-menendez-was-key-to-accessing-billions-in-us-aid
+
+**Here are 7 reasons people gave to avoid jury duty.**\
+`The would-be jurors disclosed challenges familiar to many families: child care, work obligations, long-planned vacations and scheduled surgeries. Other explanations were less conventional.`\
+https://nytimes.com/2024/05/15/nyregion/menendez-trial-jury-excuses.html
+
 **Here are 7 reasons people gave to avoid jury duty.**\
 `By Tracey Tully`\
 https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/here-are-7-reasons-people-gave-to-avoid-jury-duty
