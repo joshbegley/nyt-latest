@@ -1,3 +1,7 @@
+**YouTube Blocks Access to Protest Anthem in Hong Kong**\
+`Responding to a court order, YouTube and its sister company, Google, will block viewers in the region from viewing videos of the song, “Glory to Hong Kong.”`\
+https://nytimes.com/2024/05/14/business/youtube-glory-to-hong-kong.html
+
 **Sage, a Miniature Poodle, Wins Best in Show at Westminster Dog Show**\
 `Sage, the star of the prestigious Westminster Kennel Club Dog Show, won over six other group champions.`\
 https://nytimes.com/2024/05/14/style/westerminster-dog-best-in-show-sage.html

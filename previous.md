@@ -1,3 +1,7 @@
+**YouTube Blocks Access to Protest Anthem in Hong Kong**\
+`Responding to a court order, YouTube and its sister company, Google, will block viewers in the region from viewing videos of the song, “Glory to Hong Kong.”`\
+https://nytimes.com/2024/05/14/business/youtube-glory-to-hong-kong.html
+
 **Sage, a Miniature Poodle, Wins Best in Show at Westminster Dog Show**\
 `Sage, the star of the prestigious Westminster Kennel Club Dog Show, won over six other group champions.`\
 https://nytimes.com/2024/05/14/style/westerminster-dog-best-in-show-sage.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/05/14/nyregion/trump-hush-money-trial-trans
 **Frankie, a colored bull terrier, wins the terrier group.**\
 `By Callie Holtermann`\
 https://nytimes.com/live/2024/05/14/style/westminster-dog-show/frankie-a-colored-bull-terrier-wins-the-terrier-group
-
-**Angela Alsobrooks Wants to Be Maryland’s First Black Senator**\
-`If she wins this fall, Maryland’s newly chosen Democratic nominee for Senate would also become the sole woman in Maryland’s congressional delegation.`\
-https://nytimes.com/2024/05/14/us/politics/who-is-angela-alsobrooks.html
 
