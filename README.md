@@ -1,3 +1,19 @@
+**Senator Bob Menendez’s famous children carry a burden.**\
+`By Katherine Rosman and Tracey Tully`\
+https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/senator-bob-menendezs-famous-children-carry-a-burden
+
+**Swiss Court Convicts Ex-Gambian Minister of Crimes Against Humanity**\
+`Ousman Sonko, who served under an autocratic president now in exile, was found guilty of multiple counts of intentional homicide, torture and false imprisonment against citizens of the West African country.`\
+https://nytimes.com/2024/05/15/world/africa/gambia-crimes-switzerland-conviction.html
+
+**Will Congestion Pricing Change How You Drive? Tell Us About It.**\
+`We want to know if you will avoid the new tolls by altering your travel patterns in New York City.`\
+https://nytimes.com/2024/05/15/nyregion/nyc-drivers-cars-congestion-pricing.html
+
+**Netflix and the N.F.L. Sign a Three-Season Deal**\
+`Football joins pro wrestling and comedy specials in an expansion of the streaming service’s live offerings, a key step in the company’s overall live TV strategy.`\
+https://nytimes.com/2024/05/15/business/media/netflix-nfl-live.html
+
 **Gayle King Ate a Burger Before Her Sports Illustrated Swimsuit Shoot**\
 `The 69-year-old TV anchor, who graces a cover of this year’s swimsuit issue, was fine showing dimples but wanted to avoid looking “too boobalicious.”`\
 https://nytimes.com/2024/05/15/style/gayle-king-sports-illustrated-swimsuit.html
@@ -17,20 +33,4 @@ https://nytimes.com/2024/05/15/science/universal-music-evolution.html
 **Budgeting for the Haters**\
 `How to think about budgeting — without all the shame and blame.`\
 https://nytimes.com/2024/05/15/your-money/budgeting-money.html
-
-**As Menendez’s star rose, fears of corruption cast a persistent shadow.**\
-`By Nicholas Fandos`\
-https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/as-menendezs-star-rose-fears-of-corruption-cast-a-persistent-shadow
-
-**The Menendez indictment set off a political frenzy in New Jersey.**\
-`By Christopher Maag`\
-https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/the-menendez-indictment-set-off-a-political-frenzy-in-new-jersey
-
-**How the Debates Trump and Biden Agreed to Break With Tradition**\
-`President Biden and former President Donald J. Trump have agreed to debate each other, following a decades-old tradition. But the similarities with previous debates are limited.`\
-https://nytimes.com/2024/05/15/us/politics/earliest-presidential-debates-june.html
-
-**What’s in Our Queue? ‘Anita’ and More**\
-`I’m a foreign correspondent covering China. Here are five things that I’ve enjoyed recently.`\
-https://nytimes.com/interactive/2024/05/15/arts/editors-recommendations-anita.html
 
