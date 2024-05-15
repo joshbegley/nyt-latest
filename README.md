@@ -34,7 +34,7 @@ https://nytimes.com/live/2024/05/15/business/cpi-inflation-fed/the-fed-chairs-co
 `Live Updates: Inflation Expected to Cool Slightly`\
 https://nytimes.com/live/2024/05/15/business/cpi-inflation-fed
 
-**Hundreds of Officers Pursue Manhunt After Deadly Ambush in France**\
+**Hundreds of Officers Engaged in Manhunt After Deadly Ambush in France**\
 `As a search for the assailants and the prisoner they freed stretched into a second day, the authorities said the assault was surprising given that the inmate was not high-profile.`\
 https://nytimes.com/2024/05/15/world/europe/france-prison-ambush-manhunt.html
 
