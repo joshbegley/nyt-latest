@@ -1,3 +1,7 @@
+**Who Is Robert Fico, the Slovakian Prime Minister?**\
+`Much of the focus on Mr. Fico’s leadership has focused on his ties to President Vladimir Putin of Russia and Prime Minister Viktor Orban of Hungary.`\
+https://nytimes.com/2024/05/15/world/europe/robert-fico-slovakia.html
+
 **Biden Seeks to Curb Flow of Migrants From Nicaragua With New Restrictions**\
 `The announcement of visa restrictions and sanctions against Nicaraguan organizations reflects the White House’s concern that a surge of migrants could threaten President Biden’s re-election.`\
 https://nytimes.com/2024/05/15/us/politics/biden-nicaragua-immigration.html
