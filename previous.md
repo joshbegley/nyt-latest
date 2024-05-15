@@ -1,3 +1,7 @@
+**King Charles III Unveils First Official Painted Portrait Since Coronation**\
+`The king, who was diagnosed with cancer in February but has since returned to public duties, unveiled the striking painting by Jonathan Yeo at Buckingham Palace on Tuesday.`\
+https://nytimes.com/2024/05/14/world/europe/king-charles-portrait.html
+
 **Senators Push for Secret Service to Move Protests Away From G.O.P. Convention**\
 `In a meeting brokered by Senator Mitch McConnell, the minority leader, Senate Republicans argued that a planned protest zone was too close to the convention site.`\
 https://nytimes.com/2024/05/14/us/politics/republican-convention-protests-secret-service.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/14/theater/all-of-me-review.html
 **With extensive planning, and treats, 2,500 show dogs descended on New York.**\
 `By Christine Chung`\
 https://nytimes.com/live/2024/05/14/style/westminster-dog-show/with-extensive-planning-and-treats-2500-show-dogs-descended-on-new-york
-
-**OpenAI’s Chief Scientist and Co-Founder Is Leaving the Company**\
-`In November, Ilya Sutskever joined three other OpenAI board members to force out Sam Altman, the chief executive, before saying he regretted the move.`\
-https://nytimes.com/2024/05/14/technology/ilya-sutskever-leaving-openai.html
 

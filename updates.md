@@ -1,3 +1,7 @@
+**King Charles III Unveils First Official Painted Portrait Since Coronation**\
+`The king, who was diagnosed with cancer in February but has since returned to public duties, unveiled the striking painting by Jonathan Yeo at Buckingham Palace on Tuesday.`\
+https://nytimes.com/2024/05/14/world/europe/king-charles-portrait.html
+
 **Senators Push for Secret Service to Move Protests Away From G.O.P. Convention**\
 `In a meeting brokered by Senator Mitch McConnell, the minority leader, Senate Republicans argued that a planned protest zone was too close to the convention site.`\
 https://nytimes.com/2024/05/14/us/politics/republican-convention-protests-secret-service.html
