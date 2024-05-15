@@ -1,3 +1,7 @@
+**Sage, a Miniature Poodle, Wins Best in Show at Westminster Dog Show**\
+`Sage, the star of the prestigious Westminster Kennel Club Dog Show, won over six other group champions.`\
+https://nytimes.com/2024/05/14/style/westerminster-dog-best-in-show-sage.html
+
 **Biden Administration Advances $1 Billion Arms Sale to Israel**\
 `The notification of the deal to Congress as the president holds up the delivery of other weapons shows the fine line the administration is trying to walk with its longtime ally.`\
 https://nytimes.com/2024/05/14/us/politics/biden-arms-sale-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/14/style/westminster-dog-show/frankie-a-colored
 **Angela Alsobrooks Wants to Be Maryland’s First Black Senator**\
 `If she wins this fall, Maryland’s newly chosen Democratic nominee for Senate would also become the sole woman in Maryland’s congressional delegation.`\
 https://nytimes.com/2024/05/14/us/politics/who-is-angela-alsobrooks.html
-
-**Angela Alsobrooks Defeats David Trone in Maryland Democratic Senate Primary**\
-`The Prince George’s County executive will now face Larry Hogan, the popular former two-term governor, in a race that could determine which party controls the Senate.`\
-https://nytimes.com/2024/05/14/us/politics/maryland-democratic-senate-primary.html
 
