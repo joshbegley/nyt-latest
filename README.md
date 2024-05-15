@@ -1,3 +1,7 @@
+**Barge Strikes Bridge in Galveston, Texas, Causing Oil Spill**\
+`No injuries were reported when the barge struck a bridge that connects Galveston, Texas, to a small island along the Gulf of Mexico, causing a partial collapse.`\
+https://nytimes.com/2024/05/15/us/pelican-island-bridge-barge-galveston.html
+
 **This is the second time Menendez faces federal corruption charges.**\
 `By Maia Coleman`\
 https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/this-is-the-second-time-menendez-faces-federal-corruption-charges
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/15/nyregion/eric-adams-migrants-swimmers.html
 **U.S. Suspends Funding for Group at Center of Covid Origins Fight**\
 `The decision came after a scorching hearing in which lawmakers barraged EcoHealth Alliance’s president with claims of misrepresenting work with Chinese virologists.`\
 https://nytimes.com/2024/05/15/health/ecohealth-alliance-peter-daszak-nih-grants.html
-
-**In Washington, will the Menendez scandal elicit more than a shrug?**\
-`By Nicholas Fandos`\
-https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/in-washington-will-the-menendez-scandal-elicit-more-than-a-shrug
 
