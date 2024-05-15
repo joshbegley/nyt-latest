@@ -1,3 +1,11 @@
+**It’s Not Just Putin. Russia Needs China, Too.**\
+`Never before have the two countries been so entwined.`\
+https://nytimes.com/2024/05/15/opinion/putin-china-xi-jinping.html
+
+**These 12 Women Voted for Trump in 2020. How Do They See Him Now?**\
+`In our latest focus group, these voters said Trump was fallible in any number of ways, but that’s not what they cared about most.`\
+https://nytimes.com/interactive/2024/05/15/opinion/trump-women-focus-group.html
+
 **John Barbata, Turtles and C.S.N.Y. Drummer, Dies at 79**\
 `Barbata belonged to marquee bands of the late ’60s and ’70s, drumming on smash hits such as “Happy Together,” the first song he recorded with the Turtles.`\
 https://nytimes.com/2024/05/15/arts/music/john-barbata-dead.html
