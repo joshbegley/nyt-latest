@@ -1,3 +1,7 @@
+**World leaders express shock at an assassination attempt against Robert Fico, Slovakia’s prime minister.**\
+`By Matina Stevis-Gridneff`\
+https://nytimes.com/live/2024/05/15/world/slovakia-prime-minister-fico-shooting/world-leaders-express-shock-at-assassination-attempt-against-robert-fico-slovakias-prime-minister
+
 **A Puzzle Game With Roots in Resnais and Resident Evil**\
 `In addition to its gaming influences, Lorelei and the Laser Eyes contains traces of postmodern novels and the French New Wave.`\
 https://nytimes.com/2024/05/15/arts/lorelei-and-the-laser-eyes.html
