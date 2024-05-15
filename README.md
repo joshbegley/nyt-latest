@@ -1,3 +1,11 @@
+**Biden Mourns Fallen Officers at Memorial and Praises Police for Reducing Crime**\
+`In his remarks, President Biden paid his respects but also subtly addressed criticism by Republicans that crime has skyrocketed on his watch.`\
+https://nytimes.com/2024/05/15/us/politics/biden-police-memorial.html
+
+**Jack Quinn, Lobbyist and White House Counsel for Clinton, Dies at 74**\
+`A prototypical Washington insider, he once said, “The hot air index is actually down when people like me go on vacation.”`\
+https://nytimes.com/2024/05/15/us/politics/jack-quinn-dead.html
+
 **Blinken Warns Fighting Could Undo Aid Gains in Gaza**\
 `The secretary of state said active fighting in the area was taking a toll after Israel had taken some steps to improve assistance.`\
 https://nytimes.com/2024/05/15/world/middleeast/israel-rafah-border-gallant-blinken.html
@@ -25,12 +33,4 @@ https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/in-washington-wi
 **U.S. Bridges Face ‘Increased Risks’ From Large Ships, Coast Guard Says**\
 `A Coast Guard leader told Congress that bridges around the country needed to be assessed to avoid repeating the crash that knocked down the Key Bridge in Baltimore.`\
 https://nytimes.com/2024/05/15/us/baltimore-key-bridge-collapse-congress-hearing.html
-
-**‘Furiosa: A Mad Max Saga’ Review: A Lonely Avenger**\
-`The fifth installment of George Miller’s series delivers an origin story of Furiosa, the hard-bitten driver played here by Anya Taylor-Joy.`\
-https://nytimes.com/2024/05/15/movies/furiosa-a-mad-max-saga-review-anya-taylor-joy.html
-
-**Why Biden Wanted to Debate Trump Early, and Why Trump Said Yes**\
-`President Biden, trailing in polls, is hoping to shake up the race and mitigate political risk. Donald Trump, already lowering expectations for his rival, is eager for onstage clashes.`\
-https://nytimes.com/2024/05/15/us/politics/trump-biden-debate-june.html
 
