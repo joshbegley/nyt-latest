@@ -1,3 +1,7 @@
+**The Possible Collapse of the U.S. Home Insurance System**\
+`A Times investigation found climate change may now be a concern for every homeowner in the country.`\
+https://nytimes.com/2024/05/15/podcasts/the-daily/climate-insurance.html
+
 **Putin Is Selling Victory, and Many Russians Are Buying It**\
 `Vladimir Putin’s message to his country appears to be taking hold: that Russia is fighting against the whole Western world — and winning.`\
 https://nytimes.com/2024/05/15/world/europe/russia-ukraine-war-victory-moscow.html

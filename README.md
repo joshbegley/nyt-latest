@@ -1,3 +1,7 @@
+**Russian War Advances Worry White House, and Mexico Buses Migrants South**\
+`Plus, the miniature poodle pulls it off.`\
+https://nytimes.com/2024/05/15/podcasts/russian-advances-cohen-cross-examination.html
+
 **The Possible Collapse of the U.S. Home Insurance System**\
 `A Times investigation found climate change may now be a concern for every homeowner in the country.`\
 https://nytimes.com/2024/05/15/podcasts/the-daily/climate-insurance.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/15/opinion/michael-cohen-donald-trump.html
 **Inflation Data Could Show Signs of Progress After Disappointing Run**\
 `The Consumer Price Index, which will be released on Wednesday morning, could show price gains moderated a bit in April.`\
 https://nytimes.com/2024/05/15/business/cpi-inflation-data.html
-
-**‘The Seeds Had Been Planted. Trump Didn’t Do It Himself.’**\
-`Authoritarianism has moved from the periphery to the center, even the core, of global politics.`\
-https://nytimes.com/2024/05/15/opinion/trump-authoritarianism-democracy.html
 
