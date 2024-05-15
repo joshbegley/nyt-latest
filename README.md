@@ -1,3 +1,11 @@
+**Buildings Burn After Riots Break Out in New Caledonia**\
+`Protesters burned cars and businesses in New Caledonia’s capital after France’s Parliament approved a change to the territory’s voting rules.`\
+https://nytimes.com/video/world/europe/100000009469655/new-caledonia-protests-vote.html
+
+**What to know about the inflation report.**\
+`By Ben Casselman`\
+https://nytimes.com/live/2024/05/15/business/cpi-inflation-fed/what-to-know-about-the-inflation-report
+
 **Diabetes, Heart Problems and Kidney Disease Are Closely Linked**\
 `And they’re increasingly common. Here’s what to know about the shared risk factors for these diseases.`\
 https://nytimes.com/2024/05/15/well/live/ckm-syndrome-heart-disease-risk.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/15/dining/broiled-shrimp-recipe.html
 **At the P.G.A. Championship, Club Pros Can Get Their Day in the Sun**\
 `They have the opportunity to play their way into the field. Michael Block did it last year and impressed the sport by finishing 15th.`\
 https://nytimes.com/2024/05/15/sports/golf/pga-championship-club-pros.html
-
-**Local Guys Bought the Valhalla Club, and Now They’re Hosting a Major**\
-`A group of Kentucky businessmen are trying to give the P.G.A. Championship a Louisville feel, complete with nods to Churchill Downs.`\
-https://nytimes.com/2024/05/15/sports/golf/pga-championship-valhalla-golf-club.html
-
-**15slovakia**\
-`Live Updates: Slovakia’s Prime Minister in ‘Life-Threatening’ Condition After Shooting`\
-https://nytimes.com/live/2024/05/15/world/slovakia-prime-minister-fico-shooting
 
