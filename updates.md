@@ -1,3 +1,7 @@
+**Macron Moves to Declare State of Emergency in New Caledonia**\
+`The French authorities have undertaken a “massive” mobilization of security forces since violent protests broke out over a constitutional amendment that changes voting rules in the South Pacific territory.`\
+https://nytimes.com/2024/05/15/world/asia/new-caledonia-france-macron.html
+
 **Biden’s Daring Debate Proposal Could Recharge His Campaign**\
 `Signaling an eagerness to debate is the crucial first step.`\
 https://nytimes.com/live/2024/05/14/opinion/thepoint/biden-trump-debate
