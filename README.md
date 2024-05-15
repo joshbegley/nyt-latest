@@ -1,3 +1,7 @@
+**Wall Street’s Heavy Hitters Come Out for the ‘Met Ball of Finance’**\
+`Robin Hood, an antipoverty organization in New York City, threw a “Matrix”-inspired gala that raised more than $68.5 million for the charity.`\
+https://nytimes.com/2024/05/14/style/robin-hood-gala-finance-charity.html
+
 **Former Nickelodeon Star Says Dan Schneider ‘Preyed’ on Her as Boss**\
 `Lori Beth Denberg, who appeared on “All That,” told Business Insider that he showed her porn multiple times and fondled her once. He says her claims are “exaggerated” and “in most cases, false.”`\
 https://nytimes.com/2024/05/14/arts/dan-schneider-lori-beth-denberg.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/14/nyregion/cohen-trump-criminal-trial-takeaways.htm
 **The dog show has a scrappier, sloppier cousin.**\
 `By Callie Holtermann`\
 https://nytimes.com/live/2024/05/14/style/westminster-dog-show/the-dog-show-has-a-scrappier-sloppier-cousin
-
-**Anti-Abortion Activist Who Led Blockade of Clinic Gets Nearly 5 Years in Prison**\
-`Lauren Handy, who drew widespread attention after human fetal remains were found at her home, was sentenced to 57 months in prison for her role in a 2020 blockade of a reproductive health clinic.`\
-https://nytimes.com/2024/05/14/us/anti-abortion-activist-sentenced.html
 
