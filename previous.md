@@ -6,7 +6,7 @@ https://nytimes.com/2024/05/14/world/europe/king-charles-portrait.html
 `In a meeting brokered by Senator Mitch McConnell, the minority leader, Senate Republicans argued that a planned protest zone was too close to the convention site.`\
 https://nytimes.com/2024/05/14/us/politics/republican-convention-protests-secret-service.html
 
-**Micah, a black cocker spaniel, wins the sporting group.**\
+**Micha, a black cocker spaniel, wins the sporting group.**\
 `By Callie Holtermann`\
 https://nytimes.com/live/2024/05/14/style/westminster-dog-show/micah-a-black-cocker-spaniel-wins-the-sporting-group
 

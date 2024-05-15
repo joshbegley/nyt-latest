@@ -1,3 +1,7 @@
+**Micha, a black cocker spaniel, wins the sporting group.**\
+`By Callie Holtermann`\
+https://nytimes.com/live/2024/05/14/style/westminster-dog-show/micah-a-black-cocker-spaniel-wins-the-sporting-group
+
 **King Charles III Unveils First Official Painted Portrait Since Coronation**\
 `The king, who was diagnosed with cancer in February but has since returned to public duties, unveiled the striking painting by Jonathan Yeo at Buckingham Palace on Tuesday.`\
 https://nytimes.com/2024/05/14/world/europe/king-charles-portrait.html
