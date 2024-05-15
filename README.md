@@ -1,10 +1,18 @@
+**Katherine Porter, Painter of Intuitive Expressionism, Dies at 82**\
+`Her palette was entirely personal, making contact with the natural world just long enough to spirit viewers back into her own psychology.`\
+https://nytimes.com/2024/05/15/arts/katherine-porter-dead.html
+
+**Dutch Right-Wing Parties Reach Preliminary Deal to Form a Government**\
+`The agreement excludes the populist politician Geert Wilders from becoming prime minister.`\
+https://nytimes.com/2024/05/15/world/europe/netherlands-government-geert-wilders.html
+
 **For Egypt, Menendez was key to accessing billions in U.S. aid.**\
 `By Vivian Yee and Karoun Demirjian`\
 https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/for-egypt-menendez-was-key-to-accessing-billions-in-us-aid
 
 **Here are 7 reasons people gave to avoid jury duty.**\
-`By Tracey Tully`\
-https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/here-are-7-reasons-people-gave-to-avoid-jury-duty
+`The would-be jurors disclosed challenges familiar to many families: child care, work obligations, long-planned vacations and scheduled surgeries. Other explanations were less conventional.`\
+https://nytimes.com/2024/05/15/nyregion/menendez-trial-jury-excuses.html
 
 **Trump and Biden Agree to 2 Debates. Here’s What to Know.**\
 `The first debate is expected to be held in late June on CNN, and the second is set for early September on ABC News.`\
@@ -25,12 +33,4 @@ https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/senator-bob-mene
 **Swiss Court Convicts Ex-Gambian Minister of Crimes Against Humanity**\
 `Ousman Sonko, who served under an autocratic president now in exile, was found guilty of multiple counts of intentional homicide, torture and false imprisonment against citizens of the West African country.`\
 https://nytimes.com/2024/05/15/world/africa/gambia-crimes-switzerland-conviction.html
-
-**Will Congestion Pricing Change How You Drive? Tell Us About It.**\
-`We want to know if you will avoid the new tolls by altering your travel patterns in New York City.`\
-https://nytimes.com/2024/05/15/nyregion/nyc-drivers-cars-congestion-pricing.html
-
-**Netflix and the N.F.L. Sign a Three-Season Deal**\
-`Football joins pro wrestling and comedy specials in an expansion of the streaming service’s live offerings, a key step in the company’s overall live TV strategy.`\
-https://nytimes.com/2024/05/15/business/media/netflix-nfl-live.html
 
