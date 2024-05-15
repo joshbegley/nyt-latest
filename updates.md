@@ -1,3 +1,7 @@
+**Don’t Slam the Door on Inexpensive Chinese Electric Vehicles**\
+`Electric vehicles shouldn’t be a luxury item, but Biden’s tariffs mean they may remain so.`\
+https://nytimes.com/2024/05/15/opinion/biden-china-trade-electric-vehicles-solar-panels-tariffs.html
+
 **Fico campaigned on ending support for Ukraine, alarming many in the West.**\
 `By Daniel Victor`\
 https://nytimes.com/live/2024/05/15/world/slovakia-prime-minister-fico-shooting/fico-campaigned-on-ending-support-for-ukraine-alarming-many-in-the-west

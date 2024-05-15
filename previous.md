@@ -1,3 +1,7 @@
+**Don’t Slam the Door on Inexpensive Chinese Electric Vehicles**\
+`Electric vehicles shouldn’t be a luxury item, but Biden’s tariffs mean they may remain so.`\
+https://nytimes.com/2024/05/15/opinion/biden-china-trade-electric-vehicles-solar-panels-tariffs.html
+
 **Fico campaigned on ending support for Ukraine, alarming many in the West.**\
 `By Daniel Victor`\
 https://nytimes.com/live/2024/05/15/world/slovakia-prime-minister-fico-shooting/fico-campaigned-on-ending-support-for-ukraine-alarming-many-in-the-west
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/15/movies/how-to-have-sex-millers-girl-streaming-mov
 **Barbara Hannigan, Daring Singer and Maestro, to Lead Iceland Symphony**\
 `Hannigan, the rare artist to have a career as a soprano and a conductor, will assume a full-time conducting post for the first time.`\
 https://nytimes.com/2024/05/15/arts/music/barbara-hannigan-iceland-symphony.html
-
-**Who Is Robert Fico, the Slovakian Prime Minister?**\
-`Much of the focus on Mr. Fico’s leadership has focused on his ties to President Vladimir Putin of Russia and Prime Minister Viktor Orban of Hungary.`\
-https://nytimes.com/2024/05/15/world/europe/robert-fico-slovakia.html
 
