@@ -1,3 +1,7 @@
+**Larry Hogan, Maryland’s Former Governor, Wins G.O.P. Senate Primary**\
+`Mr. Hogan’s popularity in the deep-blue state sets up an uncommonly competitive general election contest.`\
+https://nytimes.com/2024/05/14/us/politics/larry-hogan-wins-maryland-senate-primary.html
+
 **Jim Justice Wins West Virginia’s Republican Senate Primary**\
 `The governor is now positioned to win the seat being vacated by Senator Joe Manchin III, a Democrat, and flip it to the G.O.P.`\
 https://nytimes.com/2024/05/14/us/jim-justice-west-virginia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/14/science/fossil-cloning-brittle-star.html
 **What a ‘Free Palestine’ Means in Practice**\
 `Rather than the utopia envisioned by protesters, it would be an Islamist state that persecuted Jews and denied anyone real freedom.`\
 https://nytimes.com/2024/05/14/opinion/what-a-free-palestine-means-in-practice.html
-
-**Cohen on Cross: 5 Takeaways From Trump’s Criminal Trial**\
-`The key prosecution witness faced defense lawyers as the trial nears what may be an unexpectedly early conclusion.`\
-https://nytimes.com/2024/05/14/nyregion/cohen-trump-criminal-trial-takeaways.html
 

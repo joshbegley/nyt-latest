@@ -1,3 +1,7 @@
+**Larry Hogan, Maryland’s Former Governor, Wins G.O.P. Senate Primary**\
+`Mr. Hogan’s popularity in the deep-blue state sets up an uncommonly competitive general election contest.`\
+https://nytimes.com/2024/05/14/us/politics/larry-hogan-wins-maryland-senate-primary.html
+
 **Jim Justice Wins West Virginia’s Republican Senate Primary**\
 `The governor is now positioned to win the seat being vacated by Senator Joe Manchin III, a Democrat, and flip it to the G.O.P.`\
 https://nytimes.com/2024/05/14/us/jim-justice-west-virginia.html

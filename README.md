@@ -1,3 +1,7 @@
+**Micah, a black cocker spaniel, wins the sporting group.**\
+`By Callie Holtermann`\
+https://nytimes.com/live/2024/05/14/style/westminster-dog-show/micah-a-black-cocker-spaniel-wins-the-sporting-group
+
 **Larry Hogan, Maryland’s Former Governor, Wins G.O.P. Senate Primary**\
 `Mr. Hogan’s popularity in the deep-blue state sets up an uncommonly competitive general election contest.`\
 https://nytimes.com/2024/05/14/us/politics/larry-hogan-wins-maryland-senate-primary.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/14/technology/ilya-sutskever-leaving-openai.html
 **Fossil Catches Starfish Cousin in the Act of Cloning Itself**\
 `The brittle star specimen suggests that the sea creatures have been splitting themselves in two to reproduce for more than 150 million years.`\
 https://nytimes.com/2024/05/14/science/fossil-cloning-brittle-star.html
-
-**What a ‘Free Palestine’ Means in Practice**\
-`Rather than the utopia envisioned by protesters, it would be an Islamist state that persecuted Jews and denied anyone real freedom.`\
-https://nytimes.com/2024/05/14/opinion/what-a-free-palestine-means-in-practice.html
 
