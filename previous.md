@@ -1,3 +1,15 @@
+**To Talk With Putin or Iran, the West Turns to the World’s Nuclear Inspector**\
+`Rafael Grossi took over the International Atomic Energy Agency five years ago at what now seems like a far less fraught moment. With atomic fears everywhere, the inspector is edging toward mediator.`\
+https://nytimes.com/2024/05/15/us/politics/rafael-grossi-iaea-putin-iran.html
+
+**From the Embers of an Old Genocide, a New One May Be Emerging**\
+`While the world’s attention is focused on Ukraine and Gaza, Arab forces in Sudan seem to be trying to eliminate non-Arab tribes.`\
+https://nytimes.com/2024/05/15/opinion/darfur-sudan-genocide.html
+
+**Trump Is Still at War With the Constitution**\
+`What his rants about protesters say about his authoritarian streak.`\
+https://nytimes.com/2024/05/15/opinion/trump-constitution-protests.html
+
 **Robert Menendez’s Corruption Trial Opens: 5 Takeaways**\
 `Senator Robert Menendez faces a dizzying array of bribery and corruption charges. The heart of his defense: Do not confuse the senator for his wife.`\
 https://nytimes.com/2024/05/15/nyregion/bob-menendez-trial-takeaways.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/05/15/us/louisiana-supreme-court-congressional-map.html
 **Inflation Eased and Markets Hit New Highs**\
 `Also, Biden and Trump agreed to debate in June and September. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/05/15/briefing/inflation-stock-market-trump-biden-debates.html
-
-**Silencing Independent Voices Is Not the Way to Join the West**\
-`Georgia’s “foreign agent” bill will help move the country closer to the Kremlin’s orbit.`\
-https://nytimes.com/live/2024/05/14/opinion/thepoint/georgia-foreign-agent-russia
-
-**Menendez was ‘doing his job,’ his lawyer says.**\
-`By Maria Cramer`\
-https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/menendez-was-doing-his-job-his-lawyer-says
-
-**Popcast (Deluxe): The Kendrick-Drake Beef Ends + Zendaya & Post Malone**\
-`Catching up on the conclusion of rap’s heavyweight fight, Zendaya in “Challengers,” a Central Cee freestyle and Post Malone’s single with Morgan Wallen.`\
-https://nytimes.com/2024/05/15/arts/music/kendrick-drake-zendaya-popcast-deluxe.html
 
