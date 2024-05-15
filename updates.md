@@ -1,3 +1,7 @@
+**A Shock of Red for a Royal Portrait**\
+`A new portrait of King Charles III is bathed in symbolism.`\
+https://nytimes.com/2024/05/15/style/king-charles-iii-portrait-jonathan-yeo-red.html
+
 **Food price gains moderated in April.**\
 `By Madeleine Ngo`\
 https://nytimes.com/live/2024/05/15/business/cpi-inflation-fed/food-price-gains-moderated-in-april
