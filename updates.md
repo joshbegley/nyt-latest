@@ -1,3 +1,7 @@
+**With Church Bells and Hashtags, the Netherlands Backs Its Eurovision Act**\
+`The details of an incident that led to the singer’s disqualification remain elusive. But many Dutch fans have already made up their minds.`\
+https://nytimes.com/2024/05/15/arts/music/joost-klein-eurovision.html
+
 **‘How to Have Sex,’ ‘Miller’s Girl’ and More Streaming Gems**\
 `Provocative debuts from two exciting new female filmmakers lead off this month’s roundup of recommendations from your subscription streaming services.`\
 https://nytimes.com/2024/05/15/movies/how-to-have-sex-millers-girl-streaming-movies.html
