@@ -1,3 +1,11 @@
+**U.S. Suspends Funding for Group at Center of Covid Origins Fight**\
+`The decision came after a scorching hearing in which lawmakers barraged EcoHealth Alliance’s president with claims of misrepresenting work with Chinese virologists.`\
+https://nytimes.com/2024/05/15/health/ecohealth-alliance-peter-daszak-nih-grants.html
+
+**In Washington, will the Menendez scandal elicit more than a shrug?**\
+`By Nicholas Fandos`\
+https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/in-washington-will-the-menendez-scandal-elicit-more-than-a-shrug
+
 **U.S. Bridges Face ‘Increased Risks’ From Large Ships, Coast Guard Says**\
 `A Coast Guard leader told Congress that bridges around the country needed to be assessed to avoid repeating the crash that knocked down the Key Bridge in Baltimore.`\
 https://nytimes.com/2024/05/15/us/baltimore-key-bridge-collapse-congress-hearing.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/15/arts/katherine-porter-dead.html
 **Dutch Right-Wing Parties Reach Preliminary Deal to Form a Government**\
 `The agreement excludes the populist politician Geert Wilders from becoming prime minister.`\
 https://nytimes.com/2024/05/15/world/europe/netherlands-government-geert-wilders.html
-
-**For Egypt, Menendez was key to accessing billions in U.S. aid.**\
-`By Vivian Yee and Karoun Demirjian`\
-https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/for-egypt-menendez-was-key-to-accessing-billions-in-us-aid
-
-**7 Excuses People Gave to Avoid Jury Duty in Senator Menendez’s Bribery Trial**\
-`The would-be jurors disclosed challenges familiar to many families: child care, work obligations, long-planned vacations and scheduled surgeries. Other explanations were less conventional.`\
-https://nytimes.com/2024/05/15/nyregion/menendez-trial-jury-excuses.html
 

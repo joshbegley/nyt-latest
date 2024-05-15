@@ -1,3 +1,11 @@
+**U.S. Suspends Funding for Group at Center of Covid Origins Fight**\
+`The decision came after a scorching hearing in which lawmakers barraged EcoHealth Alliance’s president with claims of misrepresenting work with Chinese virologists.`\
+https://nytimes.com/2024/05/15/health/ecohealth-alliance-peter-daszak-nih-grants.html
+
+**In Washington, will the Menendez scandal elicit more than a shrug?**\
+`By Nicholas Fandos`\
+https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/in-washington-will-the-menendez-scandal-elicit-more-than-a-shrug
+
 **U.S. Bridges Face ‘Increased Risks’ From Large Ships, Coast Guard Says**\
 `A Coast Guard leader told Congress that bridges around the country needed to be assessed to avoid repeating the crash that knocked down the Key Bridge in Baltimore.`\
 https://nytimes.com/2024/05/15/us/baltimore-key-bridge-collapse-congress-hearing.html
