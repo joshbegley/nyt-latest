@@ -1,3 +1,11 @@
+**Diabetes, Heart Problems and Kidney Disease Are Closely Linked**\
+`And they’re increasingly common. Here’s what to know about the shared risk factors for these diseases.`\
+https://nytimes.com/2024/05/15/well/live/ckm-syndrome-heart-disease-risk.html
+
+**Is Disinflation Back on Track?**\
+`What looked like an acceleration in prices was probably a statistical illusion.`\
+https://nytimes.com/live/2024/05/14/opinion/thepoint/krugman-inflation-soft-landing
+
 **This Coconut-Miso Salmon Curry Has Over 12,000 Ratings**\
 `Kay Chun’s recipe keeps things bright with a squeeze of lime and a flurry of fresh herbs.`\
 https://nytimes.com/2024/05/15/dining/this-coconut-miso-salmon-curry-has-over-12000-ratings.html
