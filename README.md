@@ -34,7 +34,3 @@ https://nytimes.com/live/2024/05/15/world/israel-gaza-war-hamas-rafah/israel-say
 `Robert Fico was taken to a hospital after the attack in the town of Handlova, northeast of the capital, Bratislava.`\
 https://nytimes.com/2024/05/15/world/europe/slovakia-prime-minister-fico.html
 
-**After Outlawing Public Zoos, Costa Rica Relocates Hundreds of Animals**\
-`Some of the animals will stay in sanctuaries, while others may be released into the wild.`\
-https://nytimes.com/2024/05/15/world/americas/costa-rica-zoo-closing.html
-
