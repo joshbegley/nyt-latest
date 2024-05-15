@@ -1,3 +1,7 @@
+**Supreme Court, for Now, Allows Louisiana Voting Map to Move Forward**\
+`Louisiana had asked the justices to weigh in on a dispute over its new congressional map in time for the election.`\
+https://nytimes.com/2024/05/15/us/louisiana-supreme-court-congressional-map.html
+
 **Inflation Eased and Markets Hit New Highs**\
 `Also, Biden and Trump agreed to debate in June and September. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/05/15/briefing/inflation-stock-market-trump-biden-debates.html

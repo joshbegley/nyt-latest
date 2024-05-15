@@ -1,3 +1,7 @@
+**Supreme Court, for Now, Allows Louisiana Voting Map to Move Forward**\
+`Louisiana had asked the justices to weigh in on a dispute over its new congressional map in time for the election.`\
+https://nytimes.com/2024/05/15/us/louisiana-supreme-court-congressional-map.html
+
 **Inflation Eased and Markets Hit New Highs**\
 `Also, Biden and Trump agreed to debate in June and September. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/05/15/briefing/inflation-stock-market-trump-biden-debates.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/15/nyregion/trump-hush-money-trial-michael-cohen.htm
 **Trump’s Jet Clipped a Parked Plane in Florida**\
 `No one was injured in the incident, which happened while the jet was taxiing early Sunday, the F.A.A. said. On Wednesday, the former president was traveling on a different plane.`\
 https://nytimes.com/2024/05/15/us/politics/trump-plane-florida-airport.html
-
-**Thursday Briefing: Slovakia’s Leader Was Shot**\
-`Also, mixed reviews for King Charles’s portrait.`\
-https://nytimes.com/2024/05/15/world/asia/slovakia-assassination-china-philippines-asia.html
 
