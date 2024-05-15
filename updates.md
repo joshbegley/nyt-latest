@@ -1,3 +1,7 @@
+**Trump and Biden Agree to 2 Debates. Here’s What to Know.**\
+`The first debate is expected to be held in late June on CNN, and the second is set for early September on ABC News.`\
+https://nytimes.com/2024/05/15/us/politics/trump-biden-debates-explained.html
+
 **How to Clean Up Your Phone’s Camera Roll**\
 `What to do when your phone is overloaded with photos.`\
 https://nytimes.com/interactive/2024/05/15/smarter-living/wirecutter/clean-up-camera-roll.html
