@@ -1,3 +1,11 @@
+**Fico campaigned on ending support for Ukraine, alarming many in the West.**\
+`By Daniel Victor`\
+https://nytimes.com/live/2024/05/15/world/slovakia-prime-minister-fico-shooting/fico-campaigned-on-ending-support-for-ukraine-alarming-many-in-the-west
+
+**Francis Ford Coppola Accused of Trying to Kiss Extras on ‘Megalopolis’ Set**\
+`An executive producer said he wasn’t aware of complaints and called the contact “kind hugs and kisses on the cheek.”`\
+https://nytimes.com/2024/05/15/movies/francis-ford-coppola-megalopolis-harassment.html
+
 **Who Is Robert Fico, the Slovakian Prime Minister?**\
 `Much of the focus on Mr. Fico’s leadership has focused on his ties to President Vladimir Putin of Russia and Prime Minister Viktor Orban of Hungary.`\
 https://nytimes.com/2024/05/15/world/europe/robert-fico-slovakia.html

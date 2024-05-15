@@ -1,3 +1,11 @@
+**Fico campaigned on ending support for Ukraine, alarming many in the West.**\
+`By Daniel Victor`\
+https://nytimes.com/live/2024/05/15/world/slovakia-prime-minister-fico-shooting/fico-campaigned-on-ending-support-for-ukraine-alarming-many-in-the-west
+
+**Francis Ford Coppola Accused of Trying to Kiss Extras on ‘Megalopolis’ Set**\
+`An executive producer said he wasn’t aware of complaints and called the contact “kind hugs and kisses on the cheek.”`\
+https://nytimes.com/2024/05/15/movies/francis-ford-coppola-megalopolis-harassment.html
+
 **Biden Seeks to Curb Flow of Migrants From Nicaragua With New Restrictions**\
 `The announcement of visa restrictions and sanctions against Nicaraguan organizations reflects the White House’s concern that a surge of migrants could threaten President Biden’s re-election.`\
 https://nytimes.com/2024/05/15/us/politics/biden-nicaragua-immigration.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/15/arts/music/barbara-hannigan-iceland-symphony.html
 **Who Is Robert Fico, the Slovakian Prime Minister?**\
 `Much of the focus on Mr. Fico’s leadership has focused on his ties to President Vladimir Putin of Russia and Prime Minister Viktor Orban of Hungary.`\
 https://nytimes.com/2024/05/15/world/europe/robert-fico-slovakia.html
-
-**A ‘Changed Landscape’: Voices From Israel**\
-`Three Israelis offer their perspectives on the war. Also: Trump cheerleaders; rooting for A.I.; bipartisan action; playing catch; ban on apostrophes.`\
-https://nytimes.com/2024/05/15/opinion/israel-gaza-war.html
-
-**7 Unforgettable Dogs at Westminster**\
-`The dog show can have only one winner, but each canine in contention for the title stood out in their own right.`\
-https://nytimes.com/2024/05/15/style/westminster-dog-show-best-in-show.html
 
