@@ -1,3 +1,7 @@
+**Biden’s Daring Debate Proposal Could Recharge His Campaign**\
+`Signaling an eagerness to debate is the crucial first step.`\
+https://nytimes.com/live/2024/05/14/opinion/thepoint/biden-trump-debate
+
 **How Wild Rice Forecasts Climate Change**\
 `Manoomin, a crop vital to the Indigenous peoples of the Upper Midwest, has been threatened in recent years. But careful stewardship is helping to bring it back.`\
 https://nytimes.com/2024/05/15/dining/wild-rice-climate-change.html
