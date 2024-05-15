@@ -1,3 +1,19 @@
+**Inflation Eased and Markets Hit New Highs**\
+`Also, Biden and Trump agreed to debate in June and September. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/05/15/briefing/inflation-stock-market-trump-biden-debates.html
+
+**Silencing Independent Voices Is Not the Way to Join the West**\
+`Georgia’s “foreign agent” bill will help move the country closer to the Kremlin’s orbit.`\
+https://nytimes.com/live/2024/05/14/opinion/thepoint/georgia-foreign-agent-russia
+
+**Menendez was ‘doing his job,’ his lawyer says.**\
+`By Maria Cramer`\
+https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/menendez-was-doing-his-job-his-lawyer-says
+
+**Popcast (Deluxe): The Kendrick-Drake Beef Ends + Zendaya & Post Malone**\
+`Catching up on the conclusion of rap’s heavyweight fight, Zendaya in “Challengers,” a Central Cee freestyle and Post Malone’s single with Morgan Wallen.`\
+https://nytimes.com/2024/05/15/arts/music/kendrick-drake-zendaya-popcast-deluxe.html
+
 **Menendez was a senator ‘on the take,’ prosecutors said.**\
 `By Tracey Tully`\
 https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/menendez-was-a-senator-on-the-take-prosecutors-said
@@ -17,20 +33,4 @@ https://nytimes.com/2024/05/15/us/politics/trump-plane-florida-airport.html
 **Thursday Briefing: Slovakia’s Leader Was Shot**\
 `Also, mixed reviews for King Charles’s portrait.`\
 https://nytimes.com/2024/05/15/world/asia/slovakia-assassination-china-philippines-asia.html
-
-**An A.I. Robot Named Sophia Tells Graduates to Believe in Themselves**\
-`D’Youville University, in Buffalo, N.Y., had an A.I. robot speak at its commencement on Saturday. Not everyone was happy about it.`\
-https://nytimes.com/2024/05/15/nyregion/dyouville-university-commencement-robot-speaker.html
-
-**Assistant Principal Is Among 4 Charged With Murdering 3 in Georgia in 2013**\
-`School officials said that an assistant middle school principal had been placed on leave after he was arrested and charged, along with three others, with strangling three people in Jonesboro, Ga.`\
-https://nytimes.com/2024/05/15/us/assistant-principal-murder-georgia.html
-
-**Barge Strikes Bridge in Galveston, Causing Oil Spill**\
-`No injuries were reported when the barge struck a bridge that connects Galveston, Texas, to a small island along the Gulf of Mexico, causing a partial collapse.`\
-https://nytimes.com/2024/05/15/us/pelican-island-bridge-barge-galveston.html
-
-**This is the second time Menendez faces federal corruption charges.**\
-`By Maia Coleman`\
-https://nytimes.com/live/2024/05/15/nyregion/bob-menendez-trial/this-is-the-second-time-menendez-faces-federal-corruption-charges
 
