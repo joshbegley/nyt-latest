@@ -1,3 +1,7 @@
+**Housing inflation held steady in April, as a more marked slowdown remains elusive.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/05/15/business/cpi-inflation-fed/housing-inflation-held-steady-in-april-as-a-more-marked-slowdown-remains-elusive
+
 **15inflation-blog**\
 `Live Updates: Inflation Cooled Slightly`\
 https://nytimes.com/live/2024/05/15/business/cpi-inflation-fed
