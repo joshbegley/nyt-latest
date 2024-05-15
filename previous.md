@@ -1,3 +1,15 @@
+**Putin Is Selling Victory, and Many Russians Are Buying It**\
+`Vladimir Putin’s message to his country appears to be taking hold: that Russia is fighting against the whole Western world — and winning.`\
+https://nytimes.com/2024/05/15/world/europe/russia-ukraine-war-victory-moscow.html
+
+**Explaining the Surprising Patterns of Fatal Shootings**\
+`We made a block-by-block interactive map of the U.S. to show how gun violence changed during the pandemic. Eli Murray, a graphics editor for The New York Times, gives some takeaways.`\
+https://nytimes.com/video/us/100000009461974/explaining-the-surprising-patterns-of-fatal-shootings.html
+
+**What MAGA’s Beef With Lab-Grown Meat Says About the G.O.P.**\
+`Paul Krugman on how burgers became the focus of a conspiracy theory.`\
+https://nytimes.com/2024/05/15/opinion/lab-meat-maga-florida.html
+
 **What Alice Munro Would Never Do**\
 `We are very different writers, but I have kept Alice Munro in mind, daily and for decades, as an example to follow.`\
 https://nytimes.com/2024/05/15/opinion/what-alice-munro-would-never-do.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/15/opinion/trump-authoritarianism-democracy.html
 **‘There Are Layers of Mistrust and Fear’**\
 `An interview with Mandy Cohen, America’s top public health official, as the C.D.C. tries to rebuild after the Covid-19 pandemic.`\
 https://nytimes.com/2024/05/15/opinion/there-are-layers-of-mistrust-and-fear.html
-
-**$450,000 Homes in Kentucky, New Jersey and New York**\
-`A two-bedroom bungalow in Lexington, a 1925 home in Blairstown and a Colonial Revival house in Buffalo.`\
-https://nytimes.com/2024/05/15/realestate/450000-dollar-homes-kentucky-new-jersey-new-york.html
-
-**Liza Colón-Zayas, of ‘The Bear,’ on Loving Someone Who’s in the Fight of Their Life**\
-`Why it’s so hard to know what to say when the people we’re closest to need us most.`\
-https://nytimes.com/2024/05/15/podcasts/the-bears-liza-colon-zayas-on-loving-someone.html
-
-**Will A.I. Ever Live Up to Its Hype?**\
-`It’s looking less like an all-powerful being and more like an unreliable intern.`\
-https://nytimes.com/2024/05/15/opinion/artificial-intelligence-ai-openai-chatgpt-overrated-hype.html
 

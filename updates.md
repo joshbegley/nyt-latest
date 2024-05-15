@@ -1,3 +1,15 @@
+**Putin Is Selling Victory, and Many Russians Are Buying It**\
+`Vladimir Putin’s message to his country appears to be taking hold: that Russia is fighting against the whole Western world — and winning.`\
+https://nytimes.com/2024/05/15/world/europe/russia-ukraine-war-victory-moscow.html
+
+**Explaining the Surprising Patterns of Fatal Shootings**\
+`We made a block-by-block interactive map of the U.S. to show how gun violence changed during the pandemic. Eli Murray, a graphics editor for The New York Times, gives some takeaways.`\
+https://nytimes.com/video/us/100000009461974/explaining-the-surprising-patterns-of-fatal-shootings.html
+
+**What MAGA’s Beef With Lab-Grown Meat Says About the G.O.P.**\
+`Paul Krugman on how burgers became the focus of a conspiracy theory.`\
+https://nytimes.com/2024/05/15/opinion/lab-meat-maga-florida.html
+
 **What Alice Munro Would Never Do**\
 `We are very different writers, but I have kept Alice Munro in mind, daily and for decades, as an example to follow.`\
 https://nytimes.com/2024/05/15/opinion/what-alice-munro-would-never-do.html
