@@ -1,3 +1,11 @@
+**A ‘Changed Landscape’: Voices From Israel**\
+`Three Israelis offer their perspectives on the war. Also: Trump cheerleaders; rooting for A.I.; bipartisan action; playing catch; ban on apostrophes.`\
+https://nytimes.com/2024/05/15/opinion/israel-gaza-war.html
+
+**7 Unforgettable Dogs at Westminster**\
+`The dog show can have only one winner, but each canine in contention for the title stood out in their own right.`\
+https://nytimes.com/2024/05/15/style/westminster-dog-show-best-in-show.html
+
 **Wildfire Approaches Canada’s Largest Oil-Producing Area. Again.**\
 `The fire, near Fort McMurray, Alberta, has put the community, which is haunted by the costliest wildfire in Canadian history, on high alert.`\
 https://nytimes.com/2024/05/15/world/canada/wildfires-fort-mcmurray-alberta-oil.html

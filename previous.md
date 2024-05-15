@@ -1,3 +1,11 @@
+**A ‘Changed Landscape’: Voices From Israel**\
+`Three Israelis offer their perspectives on the war. Also: Trump cheerleaders; rooting for A.I.; bipartisan action; playing catch; ban on apostrophes.`\
+https://nytimes.com/2024/05/15/opinion/israel-gaza-war.html
+
+**7 Unforgettable Dogs at Westminster**\
+`The dog show can have only one winner, but each canine in contention for the title stood out in their own right.`\
+https://nytimes.com/2024/05/15/style/westminster-dog-show-best-in-show.html
+
 **Wildfire Approaches Canada’s Largest Oil-Producing Area. Again.**\
 `The fire, near Fort McMurray, Alberta, has put the community, which is haunted by the costliest wildfire in Canadian history, on high alert.`\
 https://nytimes.com/2024/05/15/world/canada/wildfires-fort-mcmurray-alberta-oil.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/15/health/callout-pregnancy-syphilis.html
 **Russian Disinformation Videos Smear Biden Ahead of U.S. Election**\
 `Many of the videos are trying to appeal to right-wing voters with fake messages about President Biden, experts say.`\
 https://nytimes.com/2024/05/15/us/politics/russia-disinformation-election.html
-
-**Ron Klain, Former Chief of Staff, Will Return to Help Biden With Debate**\
-`Mr. Klain left the White House last year and became the chief legal officer at Airbnb. He plans to take a vacation from his job to help President Biden prepare.`\
-https://nytimes.com/2024/05/15/us/politics/ron-klain-biden-trump-debate.html
-
-**In About-Face, Wall Street’s Big Donors Warm to Trump**\
-`They may “hate the man,” as one put it, but major business players from coast to coast are increasingly on board for a second term after the first one alienated them.`\
-https://nytimes.com/2024/05/15/business/wall-street-donors-trump.html
 
