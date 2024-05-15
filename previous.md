@@ -1,3 +1,7 @@
+**What Kind of Person Lies to a Child With Cancer?**\
+`A reader is fuming after a friend lied about her efforts to get a wig made for a sick child, and thinks her other friends should know about the deception.`\
+https://nytimes.com/2024/05/15/style/what-kind-of-person-lies-to-a-child-with-cancer.html
+
 **A Shock of Red for a Royal Portrait**\
 `A new portrait of King Charles III is bathed in symbolism.`\
 https://nytimes.com/2024/05/15/style/king-charles-ii-portrait-jonathan-yeo-red.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/15/learning/prizewinning-miniature-poodle.html
 **Michael Cohen and Rosie O’Donnell: A Love Story**\
 `For years, Donald J. Trump hurled insults her way. Now, she is BFF with his former enforcer.`\
 https://nytimes.com/2024/05/15/style/michael-cohen-rosie-odonnell-friendship.html
-
-**Butterflies Know: These Native Plants Aren’t Weeds**\
-`Pollinators recognize a good thing when they see it — and so do gardeners in search of organic pest control. As one put it, “My prairie is my pesticide.”`\
-https://nytimes.com/2024/05/15/realestate/native-plants-flowers.html
 

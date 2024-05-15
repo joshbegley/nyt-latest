@@ -1,3 +1,7 @@
+**What Kind of Person Lies to a Child With Cancer?**\
+`A reader is fuming after a friend lied about her efforts to get a wig made for a sick child, and thinks her other friends should know about the deception.`\
+https://nytimes.com/2024/05/15/style/what-kind-of-person-lies-to-a-child-with-cancer.html
+
 **A Shock of Red for a Royal Portrait**\
 `A new portrait of King Charles III is bathed in symbolism.`\
 https://nytimes.com/2024/05/15/style/king-charles-ii-portrait-jonathan-yeo-red.html
