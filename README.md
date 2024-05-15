@@ -1,3 +1,7 @@
+**‘How to Have Sex,’ ‘Miller’s Girl’ and More Streaming Gems**\
+`Provocative debuts from two exciting new female filmmakers lead off this month’s roundup of recommendations from your subscription streaming services.`\
+https://nytimes.com/2024/05/15/movies/how-to-have-sex-millers-girl-streaming-movies.html
+
 **Barbara Hannigan, Daring Singer and Maestro, to Lead Iceland Symphony**\
 `Hannigan, the rare artist to have a career as a soprano and a conductor, will assume a full-time conducting post for the first time.`\
 https://nytimes.com/2024/05/15/arts/music/barbara-hannigan-iceland-symphony.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/15/arts/lorelei-and-the-laser-eyes.html
 **The Stock Market Is Back in Rally Mode**\
 `Investors seized on the latest inflation report as another sign that interest rates could be cut his year, helping push the S&P 500 past its March record.`\
 https://nytimes.com/2024/05/15/business/stock-market-rally-inflation.html
-
-**World leaders express shock at an assassination attempt against Robert Fico, Slovakia’s prime minister.**\
-`By Matina Stevis-Gridneff`\
-https://nytimes.com/live/2024/05/15/world/slovakia-prime-minister-fico-shooting/world-leaders-express-shock-at-assassination-attempt-against-robert-fico-slovakias-prime-minister
 
