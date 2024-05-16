@@ -1,3 +1,11 @@
+**In South Texas, Henry Cuellar’s Case Stirs an Old Feeling: Distrust**\
+`The Laredo congressman faces bribery charges, and some voters and party leaders worry that his legal troubles could dampen Democratic turnout.`\
+https://nytimes.com/2024/05/16/us/politics/cuellar-south-texas-voters.html
+
+**Protesters Clash With Police as U.C. Irvine Encampment Is Cleared**\
+`The university said 50 people were arrested in the operation, which the chancellor said was prompted by the protesters’ takeover of a lecture hall.`\
+https://nytimes.com/2024/05/16/us/protest-uc-irvine-clash-police.html
+
 **Here’s the latest on campus protests.**\
 `By Jacey Fortin, Heather Knight and Jonathan Wolfe`\
 https://nytimes.com/2024/05/16/us/heres-the-latest-on-campus-protests.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/16/us/politics/nato-ukraine.html
 **Republicans Flock to Trump’s Trial, Risking Control of the House Floor**\
 `On Thursday, an entourage of about 20 accompanied the former president to court. Among them were many lawmakers.`\
 https://nytimes.com/2024/05/16/nyregion/republicans-gaetz-trump-trial.html
-
-**C.D.C. Warns of a Resurgence of Mpox**\
-`A deadlier version of the infectious disease is ravaging the Democratic Republic of Congo, while the type that caused a 2022 outbreak among gay and bisexual men is regaining strength.`\
-https://nytimes.com/2024/05/16/health/cdc-mpox-congo.html
-
-**Chickpea Anxiety**\
-`Recipes for when you have lots of chickpeas (brown-butter chickpeas, chana masala) or just a little (taverna salad).`\
-https://nytimes.com/2024/05/16/dining/chickpea-anxiety.html
 
