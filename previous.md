@@ -1,3 +1,15 @@
+**Robert Dennard, IBM Inventor Whose Chip Changed Computing, Dies at 91**\
+`He invented DRAM, the technology that allowed for the faster and higher-capacity memory storage that is the basis for modern computing.`\
+https://nytimes.com/2024/05/16/technology/robert-dennard-dead.html
+
+**What the Supreme Court Ruling Means for Other Consumer Bureau Actions**\
+`A score of court cases involving the Consumer Financial Protection Bureau can now proceed, but it is still likely to face legal challenges.`\
+https://nytimes.com/2024/05/16/business/cfpb-cases-supreme-court.html
+
+**Biden Marks Landmark Desegregation Anniversary as Black Support Slips**\
+`President Biden commemorated Brown v. Board of Education during one of a series of events over the next several days to highlight his commitment to the Black community.`\
+https://nytimes.com/2024/05/16/us/politics/biden-brown-board-education-anniversary.html
+
 **Beware the Pettiness of the Powerful**\
 `Alas, some of Donald Trump’s peculiarities aren’t unique.`\
 https://nytimes.com/2024/05/16/opinion/trump-wind-energy.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/05/16/world/europe/new-yorker-story-murder-letby-britai
 **Samm-Art Williams, Playwright, Producer and Actor, Dies at 78**\
 `He challenged racial barriers in Hollywood, was a producer of “The Fresh Prince of Bel-Air” and earned a Tony nomination for “Home,” a paean to his Southern roots.`\
 https://nytimes.com/2024/05/16/theater/samm-art-williams-dead.html
-
-**How Biden and Trump Might Try to Win Their Debates**\
-`Veteran Republican and Democratic strategists offered their advice for the presidential candidates’ goals during their two planned debates, in June and September.`\
-https://nytimes.com/2024/05/16/us/politics/biden-trump-debate-goals.html
-
-**Jasper White, Chef Who Lifted New England Cuisine, Dies at 69**\
-`At Restaurant Jasper in the North End of Boston, and later with a small chain of family-friendly seafood establishments, he focused relentlessly on regional ingredients.`\
-https://nytimes.com/2024/05/16/dining/jasper-white-dead.html
-
-**Trump’s Lawyer Assailed Michael Cohen’s Credibility**\
-`Also, the return of ‘Bridgerton.’`\
-https://nytimes.com/2024/05/16/briefing/michael-cohen-nato.html
 
