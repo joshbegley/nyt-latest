@@ -1,3 +1,7 @@
+**What Students Are Saying About Making School Lunch Healthier**\
+`New nutrition guidelines will mean less salt and sugar in school meals. Teenagers share whether they think students will embrace the changes.`\
+https://nytimes.com/2024/05/16/learning/what-students-are-saying-about-making-school-lunch-healthier.html
+
 **The Hardening of the Israeli Psyche**\
 `Attitudes toward the “Palestinian problem” range from detached fatigue to the belief that driving Palestinians into submission is God’s work.`\
 https://nytimes.com/2024/05/16/opinion/israeli-palestine-psyche.html
