@@ -1,3 +1,7 @@
+**Hogan Backs Codifying Roe, Tacking Left on Abortion Ahead of a Tough Race**\
+`The former two-term Republican governor, who vetoed legislation in Maryland to expand abortion access, called himself “pro-choice” in an interview and said he would back a federal law to ensure access to the procedure.`\
+https://nytimes.com/2024/05/16/us/politics/larry-hogan-abortion-roe-v-wade.html
+
 **When Donald Trump Met Hannibal Lecter**\
 `Biden’s bits of babble pale beside his predecessor’s dark, deranged fantasies.`\
 https://nytimes.com/2024/05/16/opinion/donald-trump-hannibal-lecter.html

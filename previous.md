@@ -1,3 +1,7 @@
+**Hogan Backs Codifying Roe, Tacking Left on Abortion Ahead of a Tough Race**\
+`The former two-term Republican governor, who vetoed legislation in Maryland to expand abortion access, called himself “pro-choice” in an interview and said he would back a federal law to ensure access to the procedure.`\
+https://nytimes.com/2024/05/16/us/politics/larry-hogan-abortion-roe-v-wade.html
+
 **When Donald Trump Met Hannibal Lecter**\
 `Biden’s bits of babble pale beside his predecessor’s dark, deranged fantasies.`\
 https://nytimes.com/2024/05/16/opinion/donald-trump-hannibal-lecter.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/05/16/world/israel-gaza-war-hamas-rafah/satellite-
 **Venezuela’s 2024 Presidential Vote: What to Know**\
 `Venezuela’s election features an opposition candidate with a slim, if improbable, chance of defeating the country’s long-ruling authoritarian leader.`\
 https://nytimes.com/2024/05/16/world/americas/venezuela-president-election.html
-
-**Review: Lise Davidsen Achieves Strauss’s Ideal in ‘Salome’**\
-`Strauss had seemingly impossible standards for a soprano in “Salome.” But Davidsen, making her role debut in Paris, is exactly what he intended.`\
-https://nytimes.com/2024/05/16/arts/music/lise-davidsen-salome-review.html
 
