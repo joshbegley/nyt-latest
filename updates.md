@@ -1,3 +1,11 @@
+**Three Men Charged in Wildfire at Isle Royale National Park in Michigan**\
+`The fire burned six acres over 13 days in August 2022 at the national park in Lake Superior.`\
+https://nytimes.com/2024/05/16/us/michigan-men-isle-royale-fire-charges.html
+
+**Trump’s Lawyer and Cohen Match Wits in Crucial Cross-Examination**\
+`Michael D. Cohen tried to parry attacks on his honesty as Todd Blanche, Donald J. Trump’s lawyer, tried to destroy his credibility with jurors.`\
+https://nytimes.com/2024/05/16/nyregion/trump-trial-cohen-blanche.html
+
 **Heat Stress Is Hitting Caribbean Reefs Earlier Than Ever This Year**\
 `Scientists in the United States are reporting “unprecedented patterns” of surface warming, an ominous sign for coral.`\
 https://nytimes.com/2024/05/16/climate/coral-reefs-heat-stress-bleaching.html
