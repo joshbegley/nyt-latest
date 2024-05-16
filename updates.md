@@ -1,3 +1,7 @@
+**Slovak officials call the shooting suspect a ‘lone wolf’ who had recently been radicalized.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/05/16/world/slovakia-prime-minister-fico-shot/slovak-officials-call-the-shooting-suspect-a-lone-wolf-who-had-recently-been-radicalized
+
 **Line Outside Trump Trial Is Packed, as Seats in Court Become Hot Commodity**\
 `People who want to watch the first criminal trial of an American president are paying hundreds of dollars to people to wait in line for them.`\
 https://nytimes.com/2024/05/16/nyregion/trump-trial-line-overflow.html
