@@ -11,7 +11,7 @@ https://nytimes.com/2024/05/15/us/university-of-california-strike-authorization-
 https://nytimes.com/2024/05/15/theater/review-invasive-species-novi.html
 
 **Gets the Ball Rolling**\
-`Sarah Muchnick makes her New York Times Crossword debut.`\
+`Sara Muchnick makes her New York Times Crossword debut.`\
 https://nytimes.com/2024/05/15/crosswords/daily-puzzle-2024-05-16.html
 
 **DeSantis Signs Law Deleting Climate Change From Florida Policy**\
