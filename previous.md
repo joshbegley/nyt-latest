@@ -1,3 +1,7 @@
+**Russia Has Opened Up a New Front. What Comes Next?**\
+`Things for Ukraine are likely to get worse before they get better.`\
+https://nytimes.com/2024/05/16/opinion/russia-ukraine-kharkiv.html
+
 **Xi Welcomes Putin to China**\
 `Xi Jinping greeted President Vladimir V. Putin of Russia in a show of solidarity at the start of a two-day state visit.`\
 https://nytimes.com/video/world/asia/100000009471667/putin-xi-china-summit.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/15/crosswords/daily-puzzle-2024-05-16.html
 **DeSantis Signs Law Deleting Climate Change From Florida Policy**\
 `The law also stops programs designed to encourage renewable energy and conservation in a state that is highly vulnerable to the impacts of climate change.`\
 https://nytimes.com/2024/05/15/climate/desantis-climate-change-florida.html
-
-**Far-Right Candidate in Missouri Draws Backlash for Homophobic Video**\
-`Valentina Gomez’s online trolling campaign, rife with homophobia and attacks against transgender people, has prompted condemnation and scrutiny online.`\
-https://nytimes.com/2024/05/15/us/politics/valentina-gomez-video-backlash.html
 

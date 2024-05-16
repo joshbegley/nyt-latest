@@ -1,3 +1,7 @@
+**Russia Has Opened Up a New Front. What Comes Next?**\
+`Things for Ukraine are likely to get worse before they get better.`\
+https://nytimes.com/2024/05/16/opinion/russia-ukraine-kharkiv.html
+
 **Xi Welcomes Putin to China**\
 `Xi Jinping greeted President Vladimir V. Putin of Russia in a show of solidarity at the start of a two-day state visit.`\
 https://nytimes.com/video/world/asia/100000009471667/putin-xi-china-summit.html
