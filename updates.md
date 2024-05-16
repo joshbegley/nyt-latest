@@ -1,3 +1,7 @@
+**At Justice Alito’s House, a ‘Stop the Steal’ Symbol on Display**\
+`An upside-down flag, adopted by Trump supporters contesting the Biden victory, flew over the justice’s front lawn as the Supreme Court was considering an election case.`\
+https://nytimes.com/2024/05/16/us/justice-alito-upside-down-flag.html
+
 **The End Is Near: 5 Takeaways From Trump’s Criminal Trial**\
 `After a grueling day of cross-examination for Michael D. Cohen, the judge told lawyers to be ready to make closing arguments by Tuesday.`\
 https://nytimes.com/2024/05/16/nyregion/trump-trial-cohen-blanche-takeaways.html
