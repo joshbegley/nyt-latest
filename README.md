@@ -1,3 +1,7 @@
+**Israeli Military Says Tank Fire Killed 5 of Its Own Soldiers**\
+`The men were killed as they were fighting in a dense area, a spokesman said, adding that the incident was “under review.”`\
+https://nytimes.com/2024/05/16/world/middleeast/israel-soldiers-killed-gaza-tank-fire.html
+
 **16trump-trial**\
 `Live Updates: Cross-Examination of Michael Cohen to Continue in Trump Trial`\
 https://nytimes.com/live/2024/05/16/nyregion/trump-trial-cohen-hush-money
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/business/walmart-q1-earnings.html
 **‘Film Geek’ Review: A Cinephile’s Guide to New York**\
 `The director Richard Shepard details his lifelong obsession with movies in this enthusiastic video essay.`\
 https://nytimes.com/2024/05/16/movies/film-geek-review.html
-
-**‘In Our Day’ Review: Meditations on the Spice of Life**\
-`The Korean director Hong Sang-soo winds together the slenderest strands of two intersecting stories to make a tender film about simple pleasures.`\
-https://nytimes.com/2024/05/16/movies/in-our-day-review.html
 
