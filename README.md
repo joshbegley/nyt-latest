@@ -1,3 +1,7 @@
+**Slovak officials call the shooting suspect a ‘lone wolf’ who had recently been radicalized.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/05/16/world/slovakia-prime-minister-fico-shot/slovak-officials-call-the-shooting-suspect-a-lone-wolf-who-had-recently-been-radicalized
+
 **Civilian Prosecutors Rejected Evidence in 9/11 Case That Military Calls Crucial**\
 `The revelation sets in stark relief the decision by military prosecutors to seek to include the evidence, which has opened the door to years of litigation over confessions by the men accused of plotting the attacks.`\
 https://nytimes.com/2024/05/16/us/politics/guantanamo-bay-sept-11-trial.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/arts/music/beth-gibbons-lives-outgrown-review.htm
 **The Pill Makes Some Women Miserable. But Are They Really Quitting It en Masse?**\
 `The internet is awash with stories of women throwing out their oral contraception. New data suggests a different narrative.`\
 https://nytimes.com/2024/05/16/well/live/birth-control-pill-women.html
-
-**The announcement suggests that Israel plans to push deeper into Rafah.**\
-`By Adam Rasgon`\
-https://nytimes.com/live/2024/05/16/world/israel-gaza-war-hamas-rafah/the-announcement-suggests-that-israel-plans-to-push-deeper-into-rafah
 
