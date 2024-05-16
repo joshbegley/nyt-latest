@@ -1,3 +1,7 @@
+**At Last, Detroit Sees Population Grow, New Estimates Show**\
+`New census estimates find moderate post-pandemic rebounds for big cities in the Midwest and Northeast.`\
+https://nytimes.com/2024/05/16/us/detroit-growth-census.html
+
 **Quotation of the Day: When Did Everything Turn Into a ‘Journey’?**\
 `Quotation of the Day for Thursday, May 16, 2024.`\
 https://nytimes.com/2024/05/15/pageoneplus/quotation-of-the-day-when-did-everything-turn-into-a-journey.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/world/europe/100000009471389/robert-fico-slovakia-shoo
 **J. Gary Cooper, Pathbreaking Marine Leader, Is Dead at 87**\
 `He was the first Black officer to lead a Marine Corps infantry company into combat. He later became an Alabama state lawmaker and an assistant secretary of the Air Force.`\
 https://nytimes.com/2024/05/15/us/j-gary-cooper-dead.html
-
-**Defense Blames Senator Menendez’s Wife as Bribery Trial Starts**\
-`Senator Robert Menendez is charged in a vast international web of corruption. His federal trial began on Wednesday.`\
-https://nytimes.com/2024/05/15/nyregion/robert-menendez-bribery-trial.html
 
