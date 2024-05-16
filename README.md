@@ -1,3 +1,7 @@
+**Slovakia’s officials appeal for calm in a deeply polarized country.**\
+`By Cassandra Vinograd and Andrew Higgins`\
+https://nytimes.com/live/2024/05/16/world/slovakia-prime-minister-fico-shot/slovakias-officials-appeal-for-calm-in-a-deeply-polarized-country
+
 **What Is Your Relationship With Fast Food?**\
 `Do you love it, hate it or feel something in between?`\
 https://nytimes.com/2024/05/16/learning/what-is-your-relationship-with-fast-food.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/movies/in-our-day-review.html
 **‘IF’ Review: Invisible Friends, but Real Celebrity Cameos**\
 `The film is a slim story about a girl named Bea (Cailey Fleming) who helps a crank named Cal (Ryan Reynolds) play matchmaker. Oh, and Bradley Cooper is a glass of ice water.`\
 https://nytimes.com/2024/05/16/movies/if-review.html
-
-**Seeking Access to Congo’s Metals, White House Aims to Ease Sanctions**\
-`A deal to allow the Israeli billionaire Dan Gertler to cash out his mining positions in the Democratic Republic of Congo has enraged human rights activists and some government officials.`\
-https://nytimes.com/2024/05/16/us/politics/congo-cobalt-us-sanctions.html
 
