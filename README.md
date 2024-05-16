@@ -1,3 +1,7 @@
+**As Russia Advances, NATO Considers Sending Trainers Into Ukraine**\
+`The move could draw the United States and Europe more directly into the war. The Biden administration continues to say there will be no American troops on the ground.`\
+https://nytimes.com/2024/05/16/us/politics/nato-ukraine.html
+
 **Republicans Flock to Trump’s Trial, Risking Control of the House Floor**\
 `On Thursday, an entourage of about 20 accompanied the former president to court. Among them were many lawmakers.`\
 https://nytimes.com/2024/05/16/nyregion/republicans-gaetz-trump-trial.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/climate/newsom-trump-corruption.html
 **Iraqi groups close to Iran are joining in strikes on Israel.**\
 `In recent weeks Iraqi armed groups have launched near daily attacks on Israel, saying they are showing their support for Palestinians.`\
 https://nytimes.com/live/2024/05/16/world/israel-gaza-war-hamas-rafah/iraqi-groups-close-to-iran-are-joining-in-strikes-on-israel
-
-**What Do You Do When A.I. Takes Your Voice?**\
-`Two voice actors say an A.I. company created clones of their voices without their permission. Now they’re suing. The company denies it did anything wrong.`\
-https://nytimes.com/2024/05/16/technology/ai-voice-clone-lawsuit.html
 
