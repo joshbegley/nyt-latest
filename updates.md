@@ -1,3 +1,7 @@
+**Thursday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/05/16/briefing/slovakia-attack-ukraine-netherlands.html
+
 **At Last, Detroit Sees Population Grow, New Estimates Show**\
 `New census estimates find moderate post-pandemic rebounds for big cities in the Midwest and Northeast.`\
 https://nytimes.com/2024/05/16/us/detroit-growth-census.html

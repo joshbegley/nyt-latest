@@ -1,3 +1,7 @@
+**Thursday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/05/16/briefing/slovakia-attack-ukraine-netherlands.html
+
 **At Last, Detroit Sees Population Grow, New Estimates Show**\
 `New census estimates find moderate post-pandemic rebounds for big cities in the Midwest and Northeast.`\
 https://nytimes.com/2024/05/16/us/detroit-growth-census.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/15/us/politics/valentina-gomez-video-backlash.html
 **Slovakia’s Prime Minister Shot in Assassination Attempt**\
 `The shooting of Prime Minister Robert Fico of Slovakia was the most serious attack on a European leader in decades.`\
 https://nytimes.com/video/world/europe/100000009471389/robert-fico-slovakia-shooting.html
-
-**J. Gary Cooper, Pathbreaking Marine Leader, Is Dead at 87**\
-`He was the first Black officer to lead a Marine Corps infantry company into combat. He later became an Alabama state lawmaker and an assistant secretary of the Air Force.`\
-https://nytimes.com/2024/05/15/us/j-gary-cooper-dead.html
 
