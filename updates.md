@@ -1,3 +1,15 @@
+**Texas Governor Pardons Man in Fatal Shooting of Protester in 2020**\
+`The man, Daniel S. Perry, was convicted of killing a protester during a Black Lives Matter demonstration in Austin.`\
+https://nytimes.com/2024/05/16/us/texas-abbott-pardon-daniel-perry.html
+
+**Trump Says He Has ‘No Problem’ Including R.F.K. Jr. in Debates**\
+`But President Biden’s campaign has been firm in wanting the debates to be between only him and the former president.`\
+https://nytimes.com/2024/05/16/us/politics/trump-debates-rfk-jr.html
+
+**6 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/05/16/books/review/new-books-recommendations.html
+
 **Three Men Charged in Wildfire at Isle Royale National Park in Michigan**\
 `The fire burned six acres over 13 days in August 2022 at the national park in Lake Superior.`\
 https://nytimes.com/2024/05/16/us/michigan-men-isle-royale-fire-charges.html
