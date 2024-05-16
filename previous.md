@@ -1,3 +1,7 @@
+**Transcript of Trump Manhattan Trial, May 14, 2024**\
+`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
+https://nytimes.com/interactive/2024/05/16/nyregion/trump-hush-money-trial-transcript-may-14.html
+
 **Chantal Joffe Paints Moments of Motherhood and Grief**\
 `Plus: silk lounge sets, a San Francisco film festival and more recommendations from T Magazine.`\
 https://nytimes.com/2024/05/16/t-magazine/chantal-joffe-art-skarstedt-gallery.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/learning/word-of-the-day-demarcation.html
 **Markets Keep Rising Despite Inflation Concerns**\
 `Stocks on both sides of the Atlantic set records as investors foresee interest rates moving in one direction: down.`\
 https://nytimes.com/2024/05/16/business/dealbook/inflation-stocks-markets.html
-
-**Man Linked to ‘I Raped You’ Message Is Detained in France, Authorities Say**\
-`An arrest warrant was issued for Ian Thomas Cleary in 2021 after Shannon Keeler discovered online messages about a sexual assault in Pennsylvania in 2013.`\
-https://nytimes.com/2024/05/16/us/gettysburg-college-rape-arrest.html
 

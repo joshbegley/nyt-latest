@@ -1,3 +1,7 @@
+**Transcript of Trump Manhattan Trial, May 14, 2024**\
+`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
+https://nytimes.com/interactive/2024/05/16/nyregion/trump-hush-money-trial-transcript-may-14.html
+
 **Chantal Joffe Paints Moments of Motherhood and Grief**\
 `Plus: silk lounge sets, a San Francisco film festival and more recommendations from T Magazine.`\
 https://nytimes.com/2024/05/16/t-magazine/chantal-joffe-art-skarstedt-gallery.html
