@@ -1,3 +1,7 @@
+**What Do You Do When A.I. Takes Your Voice?**\
+`Two voice actors say an A.I. company created clones of their voices without their permission. Now they’re suing. The company denies it did anything wrong.`\
+https://nytimes.com/2024/05/16/technology/ai-voice-clone-lawsuit.html
+
 **Hogan Backs Codifying Roe, Tacking Left on Abortion Ahead of a Tough Race**\
 `The former two-term Republican governor, who vetoed legislation in Maryland to expand abortion access, called himself “pro-choice” in an interview and said he would back a federal law to ensure access to the procedure.`\
 https://nytimes.com/2024/05/16/us/politics/larry-hogan-abortion-roe-v-wade.html
