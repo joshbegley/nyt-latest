@@ -1,3 +1,7 @@
+**Late Night Looks Forward to the Trump-Biden Debates**\
+`“Just like that, they’re going head to head, toe to toe, mano a mango,” Stephen Colbert said of two forthcoming presidential debates in June and September.`\
+https://nytimes.com/2024/05/16/arts/television/late-night-trump-biden-debates.html
+
 **Corrections: May 16, 2024**\
 `Corrections that appeared in print on Thursday, May 16, 2024.`\
 https://nytimes.com/2024/05/16/pageoneplus/corrections-may-16-2024.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/us/detroit-growth-census.html
 **Quotation of the Day: When Did Everything Turn Into a ‘Journey’?**\
 `Quotation of the Day for Thursday, May 16, 2024.`\
 https://nytimes.com/2024/05/15/pageoneplus/quotation-of-the-day-when-did-everything-turn-into-a-journey.html
-
-**University of California Workers Authorize Union to Call for Strike Over Protest Crackdowns**\
-`A union representing about 48,000 academic workers said that campus leaders mishandled pro-Palestinian demonstrations. The vote gives the union’s executive board the ability to call a strike at any time.`\
-https://nytimes.com/2024/05/15/us/university-of-california-strike-authorization-palestinian-protest.html
 

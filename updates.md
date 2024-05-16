@@ -1,3 +1,7 @@
+**Late Night Looks Forward to the Trump-Biden Debates**\
+`“Just like that, they’re going head to head, toe to toe, mano a mango,” Stephen Colbert said of two forthcoming presidential debates in June and September.`\
+https://nytimes.com/2024/05/16/arts/television/late-night-trump-biden-debates.html
+
 **Corrections: May 16, 2024**\
 `Corrections that appeared in print on Thursday, May 16, 2024.`\
 https://nytimes.com/2024/05/16/pageoneplus/corrections-may-16-2024.html
