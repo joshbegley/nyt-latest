@@ -1,3 +1,7 @@
+**Defending in Its North, Ukraine Faces Pressure All Along Front Line**\
+`Ukraine said it was slowing Russia’s push near Kharkiv, but still faced pitched battles there, as well as other hotly contested areas farther south.`\
+https://nytimes.com/2024/05/16/world/europe/ukraine-kharkiv-russia.html
+
 **Attempted Killing of Slovakia’s Leader Shocks a Polarized Nation**\
 `Officials said the condition of Prime Minister Robert Fico had stabilized, hours after his shooting. The government was expected to focus on Thursday on security breaches.`\
 https://nytimes.com/2024/05/16/world/europe/prime-minister-robert-fico-shooting-slovakia.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/nyregion/beth-israel-hospital-closing.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/05/16/crosswords/spelling-bee-forum.html
-
-**Late Night Looks Forward to the Trump-Biden Debates**\
-`“Just like that, they’re going head to head, toe to toe, mano a mango,” Stephen Colbert said of two forthcoming presidential debates in June and September.`\
-https://nytimes.com/2024/05/16/arts/television/late-night-trump-biden-debates.html
 
