@@ -1,3 +1,7 @@
+**Supreme Court Rejects Challenge to Consumer Watchdog’s Funding**\
+`A decision against the agency, the Consumer Financial Protection Bureau, could have cast doubt on all of its regulations and enforcement actions.`\
+https://nytimes.com/2024/05/16/us/politics/supreme-court-cfpb.html
+
 **Calls to Pause Slovakia’s E.U. Election Campaigning Raise Questions**\
 `At least one party, the opposition Progress Slovakia, said it would suspend its campaign, in a move to help “end the spiral of attacks and blame.”`\
 https://nytimes.com/2024/05/16/world/europe/slovakia-eu-election-campaigning.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/t-magazine/chantal-joffe-art-skarstedt-gallery.ht
 **Wayfarers Chapel Is Coming Down**\
 `The famed chapel in Southern California closed this year because of severe damage from a landslide. Leaders now say it will be disassembled until a new site is found.`\
 https://nytimes.com/2024/05/16/us/wayfarers-chapel-landslide.html
-
-**Israeli Military Says Tank Fire Killed 5 of Its Own Soldiers**\
-`The men were killed as they were fighting in a dense area, a spokesman said, adding that the incident was “under review.”`\
-https://nytimes.com/2024/05/16/world/middleeast/israel-soldiers-killed-gaza-tank-fire.html
 

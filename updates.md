@@ -1,3 +1,7 @@
+**Supreme Court Rejects Challenge to Consumer Watchdog’s Funding**\
+`A decision against the agency, the Consumer Financial Protection Bureau, could have cast doubt on all of its regulations and enforcement actions.`\
+https://nytimes.com/2024/05/16/us/politics/supreme-court-cfpb.html
+
 **Calls to Pause Slovakia’s E.U. Election Campaigning Raise Questions**\
 `At least one party, the opposition Progress Slovakia, said it would suspend its campaign, in a move to help “end the spiral of attacks and blame.”`\
 https://nytimes.com/2024/05/16/world/europe/slovakia-eu-election-campaigning.html
