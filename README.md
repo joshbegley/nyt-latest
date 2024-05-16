@@ -1,3 +1,11 @@
+**Dancing Past the Venus de Milo**\
+`The Louvre is joining in the celebration for the Olympics by opening up for dance and exercise classes early in the morning. Tickets sold out in a flash.`\
+https://nytimes.com/2024/05/16/world/europe/france-paris-olympics-louvre.html
+
+**The Itsy Bitsy Spider Inspired a Microphone**\
+`If spiders use their webs like a large external eardrum, researchers reasoned, perhaps spider silk could be the basis for a powerful listening device.`\
+https://nytimes.com/2024/05/16/science/spider-web-microphone-silk.html
+
 **Columbia Faculty Group Passes No-Confidence Resolution Against President**\
 `Hundreds of professors at the university weighed in on the resolution, which said the president, Nemat Shafik, had committed an “unprecedented assault on student’s rights.”`\
 https://nytimes.com/2024/05/16/nyregion/president-shafik-columbia-faculty-vote.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/16/world/middleeast/israel-soldiers-killed-gaza-tank
 **16trump-trial**\
 `Live Updates: Cross-Examination of Michael Cohen Continues in Trump Trial`\
 https://nytimes.com/live/2024/05/16/nyregion/trump-trial-cohen-hush-money
-
-**Slovakia’s officials appeal for calm in a deeply polarized country.**\
-`By Cassandra Vinograd and Andrew Higgins`\
-https://nytimes.com/live/2024/05/16/world/slovakia-prime-minister-fico-shot/slovakias-officials-appeal-for-calm-in-a-deeply-polarized-country
-
-**What Is Your Relationship With Fast Food?**\
-`Do you love it, hate it or feel something in between?`\
-https://nytimes.com/2024/05/16/learning/what-is-your-relationship-with-fast-food.html
 
