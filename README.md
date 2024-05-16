@@ -1,3 +1,7 @@
+**Samm-Art Williams, Playwright, Producer and Actor, Dies at 78**\
+`He challenged racial barriers in Hollywood, was a producer of “The Fresh Prince of Bel-Air” and earned a Tony nomination for “Home,” a paean to his Southern roots.`\
+https://nytimes.com/2024/05/16/theater/samm-art-williams-dead.html
+
 **How Biden and Trump Might Try to Win Their Debates**\
 `Veteran Republican and Democratic strategists offered their advice for the presidential candidates’ goals during their two planned debates, in June and September.`\
 https://nytimes.com/2024/05/16/us/politics/biden-trump-debate-goals.html
@@ -7,7 +11,7 @@ https://nytimes.com/2024/05/16/us/politics/biden-trump-debate-goals.html
 https://nytimes.com/2024/05/16/dining/jasper-white-dead.html
 
 **Trump’s Lawyer Assailed Michael Cohen’s Credibility**\
-`Also, the return of ‘Bridgerton’`\
+`Also, the return of ‘Bridgerton.’`\
 https://nytimes.com/2024/05/16/briefing/michael-cohen-nato.html
 
 **At Justice Alito’s House, a ‘Stop the Steal’ Symbol on Display**\
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/us/politics/trump-trial-michael-cohen.html
 **In Symbolic Vote, House Passes Bill to Force Biden to Reverse Israel Arms Pause**\
 `The legislation has no chance of advancing in Congress or being signed into law. Republicans scheduled a vote anyway in an effort to spotlight Democratic divisions over Israel and rebuke the president.`\
 https://nytimes.com/2024/05/16/us/politics/house-bill-reverse-israel-arms-pause.html
-
-**She Almost Went on a Mormon Mission. She Became a Journalist Instead.**\
-`Lauren Jackson went back to church in London, Paris and Los Angeles to cover the evolution of missionary work.`\
-https://nytimes.com/2024/05/16/insider/journalist-mormon-missionaries.html
 
