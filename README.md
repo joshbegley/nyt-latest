@@ -1,3 +1,7 @@
+**How Biden and Trump Might Try to Win Their Debates**\
+`Veteran Republican and Democratic strategists offered their advice for the presidential candidates’ goals during their two planned debates, in June and September.`\
+https://nytimes.com/2024/05/16/us/politics/biden-trump-debate-goals.html
+
 **Jasper White, Chef Who Lifted New England Cuisine, Dies at 69**\
 `At Restaurant Jasper in the North End of Boston, and later with a small chain of family-friendly seafood establishments, he focused relentlessly on regional ingredients.`\
 https://nytimes.com/2024/05/16/dining/jasper-white-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/us/politics/house-bill-reverse-israel-arms-pause.
 **She Almost Went on a Mormon Mission. She Became a Journalist Instead.**\
 `Lauren Jackson went back to church in London, Paris and Los Angeles to cover the evolution of missionary work.`\
 https://nytimes.com/2024/05/16/insider/journalist-mormon-missionaries.html
-
-**F.D.A. Approves Drug for Persistently Deadly Form of Lung Cancer**\
-`The treatment is for patients with small cell lung cancer, which afflicts about 35,000 people in the U.S. a year.`\
-https://nytimes.com/2024/05/16/health/fda-amgen-small-cell-lung-cancer-imdelltra.html
 
