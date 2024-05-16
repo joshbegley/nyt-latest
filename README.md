@@ -6,7 +6,7 @@ https://nytimes.com/2024/05/16/us/politics/guantanamo-bay-sept-11-trial.html
 `Kansas City’s Harrison Butker quoted Taylor Swift lyrics while telling men to be “unapologetic in your masculinity” and women to focus on being homemakers.`\
 https://nytimes.com/2024/05/16/style/harrison-butker-commencement-speech.html
 
-**As Trump Trial Progresses, Seats in Court Become a Hot Commodity**\
+**Line Outside Trump Trial Is Packed, as Seats in Court Become Hot Commodity**\
 `People who want to watch the first criminal trial of an American president are paying hundreds of dollars to people to wait in line for them.`\
 https://nytimes.com/2024/05/16/nyregion/trump-trial-line-overflow.html
 
