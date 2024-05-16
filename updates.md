@@ -1,3 +1,7 @@
+**Read the document**\
+`A classified document obtained by The Times describes a meeting in March 2024, when Maj.`\
+https://nytimes.com/interactive/2024/05/16/magazine/fox-document-march-24-redacted.html
+
 **16slovakia**\
 `Live Updates: Attempted Killing of Slovakia’s Leader Shocks a Polarized Nation`\
 https://nytimes.com/live/2024/05/16/world/slovakia-prime-minister-fico-shot
