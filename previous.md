@@ -1,3 +1,11 @@
+**Republicans Flock to Trump’s Trial, Risking Control of the House Floor**\
+`On Thursday, an entourage of about 20 accompanied the former president to court. Among them were many lawmakers.`\
+https://nytimes.com/2024/05/16/nyregion/republicans-gaetz-trump-trial.html
+
+**C.D.C. Warns of a Resurgence of Mpox**\
+`A deadlier version of the infectious disease is ravaging the Democratic Republic of Congo, while the type that caused a 2022 outbreak among gay and bisexual men is regaining strength.`\
+https://nytimes.com/2024/05/16/health/cdc-mpox-congo.html
+
 **Chickpea Anxiety**\
 `Recipes for when you have lots of chickpeas (brown-butter chickpeas, chana masala) or just a little (taverna salad).`\
 https://nytimes.com/2024/05/16/dining/chickpea-anxiety.html
@@ -14,8 +22,8 @@ https://nytimes.com/2024/05/16/dining/drinks/ukrainian-wines.html
 `He fought prejudice and incarceration during World War II to lead a successful career, becoming one of the first editors of color at a metropolitan newspaper.`\
 https://nytimes.com/2024/05/16/obituaries/bill-hosokawa-overlooked.html
 
-**California’s Governor Accuses Trump of ‘Open Corruption’ at Climate Meeting**\
-`Gavin Newsom, speaking at the Vatican, used sharp language to describe the former president’s appeal to fossil fuel executives for campaign donations.`\
+**Gov. Gavin Newsom Accuses Trump of ‘Open Corruption’ at Climate Meeting**\
+`The California governor, speaking at the Vatican, used sharp language to describe the former president’s appeal to fossil fuel executives for campaign donations.`\
 https://nytimes.com/2024/05/16/climate/newsom-trump-corruption.html
 
 **Iraqi groups close to Iran are joining in strikes on Israel.**\
@@ -25,12 +33,4 @@ https://nytimes.com/live/2024/05/16/world/israel-gaza-war-hamas-rafah/iraqi-grou
 **What Do You Do When A.I. Takes Your Voice?**\
 `Two voice actors say an A.I. company created clones of their voices without their permission. Now they’re suing. The company denies it did anything wrong.`\
 https://nytimes.com/2024/05/16/technology/ai-voice-clone-lawsuit.html
-
-**Hogan Backs Codifying Roe, Tacking Left on Abortion Ahead of a Tough Race**\
-`The former two-term Republican governor, who vetoed legislation in Maryland to expand abortion access, called himself “pro-choice” in an interview and said he would back a federal law to ensure access to the procedure.`\
-https://nytimes.com/2024/05/16/us/politics/larry-hogan-abortion-roe-v-wade.html
-
-**When Donald Trump Met Hannibal Lecter**\
-`Biden’s bits of babble pale beside his predecessor’s dark, deranged fantasies.`\
-https://nytimes.com/2024/05/16/opinion/donald-trump-hannibal-lecter.html
 

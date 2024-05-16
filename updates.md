@@ -1,3 +1,15 @@
+**Republicans Flock to Trump’s Trial, Risking Control of the House Floor**\
+`On Thursday, an entourage of about 20 accompanied the former president to court. Among them were many lawmakers.`\
+https://nytimes.com/2024/05/16/nyregion/republicans-gaetz-trump-trial.html
+
+**C.D.C. Warns of a Resurgence of Mpox**\
+`A deadlier version of the infectious disease is ravaging the Democratic Republic of Congo, while the type that caused a 2022 outbreak among gay and bisexual men is regaining strength.`\
+https://nytimes.com/2024/05/16/health/cdc-mpox-congo.html
+
+**Gov. Gavin Newsom Accuses Trump of ‘Open Corruption’ at Climate Meeting**\
+`The California governor, speaking at the Vatican, used sharp language to describe the former president’s appeal to fossil fuel executives for campaign donations.`\
+https://nytimes.com/2024/05/16/climate/newsom-trump-corruption.html
+
 **Chickpea Anxiety**\
 `Recipes for when you have lots of chickpeas (brown-butter chickpeas, chana masala) or just a little (taverna salad).`\
 https://nytimes.com/2024/05/16/dining/chickpea-anxiety.html
