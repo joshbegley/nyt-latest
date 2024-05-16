@@ -1,3 +1,7 @@
+**Calls to Pause Slovakia’s E.U. Election Campaigning Raise Questions**\
+`At least one party, the opposition Progress Slovakia, said it would suspend its campaign, in a move to help “end the spiral of attacks and blame.”`\
+https://nytimes.com/2024/05/16/world/europe/slovakia-eu-election-campaigning.html
+
 **Dancing Past the Venus de Milo**\
 `The Louvre is joining in the celebration for the Olympics by opening up for dance and exercise classes early in the morning. Tickets sold out in a flash.`\
 https://nytimes.com/2024/05/16/world/europe/france-paris-olympics-louvre.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/us/wayfarers-chapel-landslide.html
 **Israeli Military Says Tank Fire Killed 5 of Its Own Soldiers**\
 `The men were killed as they were fighting in a dense area, a spokesman said, adding that the incident was “under review.”`\
 https://nytimes.com/2024/05/16/world/middleeast/israel-soldiers-killed-gaza-tank-fire.html
-
-**16trump-trial**\
-`Live Updates: Cross-Examination of Michael Cohen Continues in Trump Trial`\
-https://nytimes.com/live/2024/05/16/nyregion/trump-trial-cohen-hush-money
 
