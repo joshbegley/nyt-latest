@@ -1,3 +1,15 @@
+**Civilian Prosecutors Rejected Evidence in 9/11 Case That Military Calls Crucial**\
+`The revelation sets in stark relief the decision by military prosecutors to seek to include the evidence, which has opened the door to years of litigation over confessions by the men accused of plotting the attacks.`\
+https://nytimes.com/2024/05/16/us/politics/guantanamo-bay-sept-11-trial.html
+
+**N.F.L. Player Draws Rebukes (and Trolling) for Graduation Speech**\
+`Kansas City’s Harrison Butker quoted Taylor Swift lyrics while telling men to be “unapologetic in your masculinity” and women to focus on being homemakers.`\
+https://nytimes.com/2024/05/16/style/harrison-butker-commencement-speech.html
+
+**As Trump Trial Progresses, Seats in Court Become a Hot Commodity**\
+`People who want to watch the first criminal trial of an American president are paying hundreds of dollars to people to wait in line for them.`\
+https://nytimes.com/2024/05/16/nyregion/trump-trial-line-overflow.html
+
 **Senator Menendez’s Wife Is Being Treated for Breast Cancer**\
 `Nadine Menendez is charged along with her husband, Senator Robert Menendez, in a complex bribery scheme. She will undergo a mastectomy.`\
 https://nytimes.com/2024/05/16/nyregion/nadine-menendez-cancer.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/05/16/well/live/birth-control-pill-women.html
 **The announcement suggests that Israel plans to push deeper into Rafah.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/05/16/world/israel-gaza-war-hamas-rafah/the-announcement-suggests-that-israel-plans-to-push-deeper-into-rafah
-
-**Families who fled Israel’s offensive find refuge but little else in Khan Younis.**\
-`By Raja Abdulrahim and Bilal Shbair`\
-https://nytimes.com/live/2024/05/16/world/israel-gaza-war-hamas-rafah/families-who-fled-israels-offensive-find-refuge-but-little-else-in-khan-younis
-
-**Supreme Court Rejects Challenge to Consumer Watchdog’s Funding**\
-`A decision against the agency, the Consumer Financial Protection Bureau, could have cast doubt on all of its regulations and enforcement actions.`\
-https://nytimes.com/2024/05/16/us/politics/supreme-court-cfpb.html
-
-**Calls to Pause Slovakia’s E.U. Election Campaigning Raise Questions**\
-`At least one party, the opposition Progress Slovakia, said it would suspend its campaign, in a move to help “end the spiral of attacks and blame.”`\
-https://nytimes.com/2024/05/16/world/europe/slovakia-eu-election-campaigning.html
 
