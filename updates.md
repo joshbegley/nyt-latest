@@ -1,3 +1,7 @@
+**Recreating Amy Winehouse’s Look Onscreen**\
+`In the biopic “Back to Black,” Marisa Abela wears some of the singer’s actual clothes, but the hair and makeup team chose to tone the signature beehive down.`\
+https://nytimes.com/2024/05/16/movies/recreating-amy-winehouses-look-onscreen.html
+
 **How Israeli Extremists Won**\
 `We explain the lawlessness in the West Bank.`\
 https://nytimes.com/2024/05/16/briefing/how-israeli-extremists-won.html

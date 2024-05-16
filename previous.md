@@ -1,3 +1,7 @@
+**Recreating Amy Winehouse’s Look Onscreen**\
+`In the biopic “Back to Black,” Marisa Abela wears some of the singer’s actual clothes, but the hair and makeup team chose to tone the signature beehive down.`\
+https://nytimes.com/2024/05/16/movies/recreating-amy-winehouses-look-onscreen.html
+
 **How Israeli Extremists Won**\
 `We explain the lawlessness in the West Bank.`\
 https://nytimes.com/2024/05/16/briefing/how-israeli-extremists-won.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/world/asia/putin-xi-china-russia.html
 **U.N. Court Will Hear Arguments from South Africa on Israel’s Actions in Gaza**\
 `South Africa was expected to ask the court to order Israel to immediately withdraw from the southern Gaza city of Rafah, where more than a million Palestinians had sought shelter from the war.`\
 https://nytimes.com/2024/05/16/world/middleeast/icj-rafah-israel-gaza-south-africa.html
-
-**Aid unloaded from ships will reach Gaza ‘in the coming days,’ the U.S. military says.**\
-`By Victoria Kim`\
-https://nytimes.com/live/2024/05/16/world/israel-gaza-war-hamas-rafah/aid-unloaded-from-ships-will-reach-gaza-in-the-coming-days-the-us-military-says
 
