@@ -1,3 +1,7 @@
+**16trump-trial**\
+`Live Updates: Cross-Examination of Michael Cohen to Continue in Trump Trial`\
+https://nytimes.com/live/2024/05/16/nyregion/trump-trial-cohen-hush-money
+
 **Slovakia’s officials appeal for calm in a deeply polarized country.**\
 `By Cassandra Vinograd and Andrew Higgins`\
 https://nytimes.com/live/2024/05/16/world/slovakia-prime-minister-fico-shot/slovakias-officials-appeal-for-calm-in-a-deeply-polarized-country
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/movies/film-geek-review.html
 **‘In Our Day’ Review: Meditations on the Spice of Life**\
 `The Korean director Hong Sang-soo winds together the slenderest strands of two intersecting stories to make a tender film about simple pleasures.`\
 https://nytimes.com/2024/05/16/movies/in-our-day-review.html
-
-**‘IF’ Review: Invisible Friends, but Real Celebrity Cameos**\
-`The film is a slim story about a girl named Bea (Cailey Fleming) who helps a crank named Cal (Ryan Reynolds) play matchmaker. Oh, and Bradley Cooper is a glass of ice water.`\
-https://nytimes.com/2024/05/16/movies/if-review.html
 
