@@ -8,7 +8,7 @@ https://nytimes.com/2024/05/16/us/protest-uc-irvine-clash-police.html
 
 **Here’s the latest on campus protests.**\
 `By Jacey Fortin, Heather Knight and Jonathan Wolfe`\
-https://nytimes.com/2024/05/16/us/heres-the-latest-on-campus-protests.html
+https://nytimes.com/live/2024/05/16/us/college-campus-protests/heres-the-latest-on-campus-protests
 
 **Scientists Calculated the Energy Needed to Carry a Baby. Shocker: It’s a Lot.**\
 `In humans, the energetic cost of pregnancy is about 50,000 dietary calories — far higher than previously believed, a new study found.`\

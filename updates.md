@@ -1,3 +1,7 @@
+**Here’s the latest on campus protests.**\
+`By Jacey Fortin, Heather Knight and Jonathan Wolfe`\
+https://nytimes.com/live/2024/05/16/us/college-campus-protests/heres-the-latest-on-campus-protests
+
 **In South Texas, Henry Cuellar’s Case Stirs an Old Feeling: Distrust**\
 `The Laredo congressman faces bribery charges, and some voters and party leaders worry that his legal troubles could dampen Democratic turnout.`\
 https://nytimes.com/2024/05/16/us/politics/cuellar-south-texas-voters.html
