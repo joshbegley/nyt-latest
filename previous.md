@@ -1,3 +1,7 @@
+**Walmart Opens the Year With Stronger Sales and Profit**\
+`The largest retailer in the United States reported higher sales and profit, giving insight into how consumer spending is weathering the high-interest-rate environment.`\
+https://nytimes.com/2024/05/16/business/walmart-q1-earnings.html
+
 **‘Film Geek’ Review: A Cinephile’s Guide to New York**\
 `The director Richard Shepard details his lifelong obsession with movies in this enthusiastic video essay.`\
 https://nytimes.com/2024/05/16/movies/film-geek-review.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/briefing/how-israeli-extremists-won.html
 **What to Know About the Shooting of Slovakia’s Prime Minister**\
 `Prime Minister Robert Fico was shot five times and has undergone emergency surgery. His condition remains serious, officials said.`\
 https://nytimes.com/2024/05/16/world/europe/robert-fico-slovakia-shooting-what-to-know.html
-
-**Roger Corman Lives!**\
-`The B-movie legend died at 98, but his influence on filmmaking endures.`\
-https://nytimes.com/2024/05/16/podcasts/roger-corman-lives.html
 
