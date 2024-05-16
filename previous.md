@@ -1,3 +1,15 @@
+**Here’s the latest on campus protests.**\
+`By Jacey Fortin, Heather Knight and Jonathan Wolfe`\
+https://nytimes.com/2024/05/16/us/heres-the-latest-on-campus-protests.html
+
+**Scientists Calculated the Energy Needed to Carry a Baby. Shocker: It’s a Lot.**\
+`In humans, the energetic cost of pregnancy is about 50,000 dietary calories — far higher than previously believed, a new study found.`\
+https://nytimes.com/2024/05/16/science/pregnancy-energy-costs.html
+
+**Your Money: Managing Your Debt**\
+`How to make a plan for tackling your debt, improving your credit score and feel like the money you owe isn’t controlling you.`\
+https://nytimes.com/2024/05/16/your-money/managing-debt.html
+
 **35 Years Later, the Remains Known as ‘Chimney Doe’ Have a Name and a Face**\
 `A skeleton found in the chimney of a Wisconsin music store in 1989 has been identified, relaunching a police investigation that had been dormant for decades.`\
 https://nytimes.com/2024/05/16/us/skeleton-dna-identification-wisconsin.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/05/16/health/cdc-mpox-congo.html
 **Chickpea Anxiety**\
 `Recipes for when you have lots of chickpeas (brown-butter chickpeas, chana masala) or just a little (taverna salad).`\
 https://nytimes.com/2024/05/16/dining/chickpea-anxiety.html
-
-**What Is Your Favorite Sports Video Game? We Want to Know.**\
-`Sports video games are emotionally powerful and an opportunity for bragging rights. Which one is still stuck in your mind?`\
-https://nytimes.com/2024/05/16/arts/favorite-sports-video-games.html
-
-**Despite War, Ukrainian Wines Are Finding a Global Audience**\
-`These bottles, reflecting thousands of years of winemaking history and a fresh wave of energy, are now arriving in the U.S.`\
-https://nytimes.com/2024/05/16/dining/drinks/ukrainian-wines.html
-
-**Overlooked No More: Bill Hosokawa, Journalist Who Chronicled Japanese American History**\
-`He fought prejudice and incarceration during World War II to lead a successful career, becoming one of the first editors of color at a metropolitan newspaper.`\
-https://nytimes.com/2024/05/16/obituaries/bill-hosokawa-overlooked.html
 

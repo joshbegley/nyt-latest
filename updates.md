@@ -1,3 +1,15 @@
+**Here’s the latest on campus protests.**\
+`By Jacey Fortin, Heather Knight and Jonathan Wolfe`\
+https://nytimes.com/2024/05/16/us/heres-the-latest-on-campus-protests.html
+
+**Scientists Calculated the Energy Needed to Carry a Baby. Shocker: It’s a Lot.**\
+`In humans, the energetic cost of pregnancy is about 50,000 dietary calories — far higher than previously believed, a new study found.`\
+https://nytimes.com/2024/05/16/science/pregnancy-energy-costs.html
+
+**Your Money: Managing Your Debt**\
+`How to make a plan for tackling your debt, improving your credit score and feel like the money you owe isn’t controlling you.`\
+https://nytimes.com/2024/05/16/your-money/managing-debt.html
+
 **35 Years Later, the Remains Known as ‘Chimney Doe’ Have a Name and a Face**\
 `A skeleton found in the chimney of a Wisconsin music store in 1989 has been identified, relaunching a police investigation that had been dormant for decades.`\
 https://nytimes.com/2024/05/16/us/skeleton-dna-identification-wisconsin.html
