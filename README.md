@@ -3,7 +3,7 @@
 https://nytimes.com/2024/05/16/us/gettysburg-college-rape-arrest.html
 
 **Walmart Opens the Year With Stronger Sales and Profit**\
-`The largest retailer in the United States reported higher sales and profit, giving insight into how consumer spending is weathering the high-interest-rate environment.`\
+`The largest U.S. retailer had robust quarterly results and an upbeat outlook, giving insight into how consumers are weathering high interest rates.`\
 https://nytimes.com/2024/05/16/business/walmart-q1-earnings.html
 
 **‘Film Geek’ Review: A Cinephile’s Guide to New York**\
