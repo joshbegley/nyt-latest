@@ -1,3 +1,7 @@
+**Satellite images show widening destruction as Israeli forces push closer to central Rafah.**\
+`By Lauren Leatherby`\
+https://nytimes.com/live/2024/05/16/world/israel-gaza-war-hamas-rafah/satellite-images-show-widening-destruction-as-israeli-forces-push-closer-to-central-rafah
+
 **Venezuela’s 2024 Presidential Vote: What to Know**\
 `Venezuela’s election features an opposition candidate with a slim, if improbable, chance of defeating the country’s long-ruling authoritarian leader.`\
 https://nytimes.com/2024/05/16/world/americas/venezuela-president-election.html
