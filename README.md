@@ -1,3 +1,15 @@
+**Texas Governor Pardons Man in Fatal Shooting of Protester in 2020**\
+`The man, Daniel S. Perry, was convicted of killing a protester during a Black Lives Matter demonstration in Austin.`\
+https://nytimes.com/2024/05/16/us/texas-abbott-pardon-daniel-perry.html
+
+**Trump Says He Has ‘No Problem’ Including R.F.K. Jr. in Debates**\
+`But President Biden’s campaign has been firm in wanting the debates to be between only him and the former president.`\
+https://nytimes.com/2024/05/16/us/politics/trump-debates-rfk-jr.html
+
+**6 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/05/16/books/review/new-books-recommendations.html
+
 **Three Men Charged in Wildfire at Isle Royale National Park in Michigan**\
 `The fire burned six acres over 13 days in August 2022 at the national park in Lake Superior.`\
 https://nytimes.com/2024/05/16/us/michigan-men-isle-royale-fire-charges.html
@@ -21,16 +33,4 @@ https://nytimes.com/live/2024/05/14/opinion/thepoint/trump-trial-cohen-testimony
 **After Outcry, Concertgebouw Will Allow Jerusalem Quartet to Perform**\
 `The Dutch concert hall reversed course after facing criticism for canceling performances by the Israeli ensemble because of security concerns.`\
 https://nytimes.com/2024/05/16/arts/music/concertgebouw-jerusalem-quartet.html
-
-**Pizza Boxes Finally Get Their Own Recycling Bin**\
-`The Central Park Conservancy is testing a new receptacle — square, with a narrow slot — in an effort to keep trash under control.`\
-https://nytimes.com/2024/05/16/dining/pizza-box-recycling-bins-nyc.html
-
-**Daniel Ricciardo Continues to Struggle in Formula 1**\
-`After being cut from McLaren in 2022, he is now racing for RB, but the points have been slow to come.`\
-https://nytimes.com/2024/05/16/sports/autoracing/f1-daniel-ricciardo.html
-
-**Frédéric Vasseur’s Plan for Ferrari Begins to Pay Off**\
-`As a Frenchman running a beloved Italian team, fans weren’t happy at first, but the team is now second for the constructors’ title.`\
-https://nytimes.com/2024/05/16/sports/autoracing/f1-frederic-vasseur-ferrari.html
 
