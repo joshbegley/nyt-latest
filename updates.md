@@ -1,3 +1,7 @@
+**The Cost of Competing with China**\
+`The Biden administration is betting that new China tariffs will be politically popular, even if they could slow the transition from fossil fuels.`\
+https://nytimes.com/2024/05/16/climate/biden-china-tarrifs-evs-climate.html
+
 **Lets Chill Out About Apostrophes**\
 `If Chaucer got through life without fussing over that tiny punctuation mark, why shouldn’t we?`\
 https://nytimes.com/2024/05/16/opinion/lets-chill-out-about-apostrophes.html

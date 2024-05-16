@@ -1,3 +1,7 @@
+**The Cost of Competing with China**\
+`The Biden administration is betting that new China tariffs will be politically popular, even if they could slow the transition from fossil fuels.`\
+https://nytimes.com/2024/05/16/climate/biden-china-tarrifs-evs-climate.html
+
 **Lets Chill Out About Apostrophes**\
 `If Chaucer got through life without fussing over that tiny punctuation mark, why shouldn’t we?`\
 https://nytimes.com/2024/05/16/opinion/lets-chill-out-about-apostrophes.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/us/politics/marijuana-schedule-drug-biden.html
 **In South Texas, Henry Cuellar’s Case Stirs an Old Feeling: Distrust**\
 `The Laredo congressman faces bribery charges, and some voters and party leaders worry that his legal troubles could dampen Democratic turnout.`\
 https://nytimes.com/2024/05/16/us/politics/cuellar-south-texas-voters.html
-
-**Protesters Clash With Police as U.C. Irvine Encampment Is Cleared**\
-`The university said 50 people were arrested in the operation, which the chancellor said was prompted by the protesters’ takeover of a lecture hall.`\
-https://nytimes.com/2024/05/16/us/protest-uc-irvine-clash-police.html
 
