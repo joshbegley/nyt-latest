@@ -1,3 +1,11 @@
+**Venezuela’s 2024 Presidential Vote: What to Know**\
+`Venezuela’s election features an opposition candidate with a slim, if improbable, chance of defeating the country’s long-ruling authoritarian leader.`\
+https://nytimes.com/2024/05/16/world/americas/venezuela-president-election.html
+
+**Review: Lise Davidsen Achieves Strauss’s Ideal in ‘Salome’**\
+`Strauss had seemingly impossible standards for a soprano in “Salome.” But Davidsen, making her role debut in Paris, is exactly what he intended.`\
+https://nytimes.com/2024/05/16/arts/music/lise-davidsen-salome-review.html
+
 **Slovak officials call the shooting suspect a ‘lone wolf’ who had recently been radicalized.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/05/16/world/slovakia-prime-minister-fico-shot/slovak-officials-call-the-shooting-suspect-a-lone-wolf-who-had-recently-been-radicalized

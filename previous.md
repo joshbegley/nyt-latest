@@ -1,3 +1,11 @@
+**Venezuela’s 2024 Presidential Vote: What to Know**\
+`Venezuela’s election features an opposition candidate with a slim, if improbable, chance of defeating the country’s long-ruling authoritarian leader.`\
+https://nytimes.com/2024/05/16/world/americas/venezuela-president-election.html
+
+**Review: Lise Davidsen Achieves Strauss’s Ideal in ‘Salome’**\
+`Strauss had seemingly impossible standards for a soprano in “Salome.” But Davidsen, making her role debut in Paris, is exactly what he intended.`\
+https://nytimes.com/2024/05/16/arts/music/lise-davidsen-salome-review.html
+
 **Slovak officials call the shooting suspect a ‘lone wolf’ who had recently been radicalized.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/05/16/world/slovakia-prime-minister-fico-shot/slovak-officials-call-the-shooting-suspect-a-lone-wolf-who-had-recently-been-radicalized
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/16/dining/melissa-clark-could-make-a-phone-book-deli
 **How to Care for Yourself as a Caregiver**\
 `Forget yoga or weekend escapes. There are more realistic tools to put in place, experts say.`\
 https://nytimes.com/2024/05/16/well/mind/caregiver-health.html
-
-**Portishead’s Beth Gibbons Returns Solo, Doleful Yet Determined**\
-`With “Lives Outgrown,” her first album of her own songs in 22 years, the pensive voice of the trip-hop group confronts maturity and mortality.`\
-https://nytimes.com/2024/05/16/arts/music/beth-gibbons-lives-outgrown-review.html
-
-**The Pill Makes Some Women Miserable. But Are They Really Quitting It en Masse?**\
-`The internet is awash with stories of women throwing out their oral contraception. New data suggests a different narrative.`\
-https://nytimes.com/2024/05/16/well/live/birth-control-pill-women.html
 
