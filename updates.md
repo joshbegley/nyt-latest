@@ -1,3 +1,7 @@
+**Roger Corman Lives!**\
+`The B-movie legend died at 98, but his influence on filmmaking endures.`\
+https://nytimes.com/2024/05/16/podcasts/roger-corman-lives.html
+
 **A European Leader Is Shot, and an Early Biden-Trump Debate**\
 `Plus, Detroit grows after decades of decline.`\
 https://nytimes.com/2024/05/16/podcasts/biden-trump-debate-slovakia-assassination-fico.html

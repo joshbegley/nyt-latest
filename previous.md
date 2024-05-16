@@ -1,3 +1,7 @@
+**Roger Corman Lives!**\
+`The B-movie legend died at 98, but his influence on filmmaking endures.`\
+https://nytimes.com/2024/05/16/podcasts/roger-corman-lives.html
+
 **A European Leader Is Shot, and an Early Biden-Trump Debate**\
 `Plus, Detroit grows after decades of decline.`\
 https://nytimes.com/2024/05/16/podcasts/biden-trump-debate-slovakia-assassination-fico.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/us/politics/campaign-debates-trump-biden.html
 **Trump Is the Nostalgia-Protest-Change Candidate. Can Biden Beat That?**\
 `Biden may need a debate to improve his standing.`\
 https://nytimes.com/live/2024/05/14/opinion/thepoint/trump-is-the-nostalgia-protest-change-candidate-can-biden-beat-that
-
-**Who’s Afraid of Double Denim?**\
-`It’s twilight time for the era of hoodies and sweats. Make way for another kind of suit, pairing a trucker jacket with matching jeans.`\
-https://nytimes.com/2024/05/16/style/double-denim-canadian-tuxedo-fashion.html
 
