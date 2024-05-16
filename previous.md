@@ -1,3 +1,11 @@
+**Incident at TSMC’s Semiconductor Plant in Arizona Injures One**\
+`The reported explosion did not affect construction at the facility, which was awarded a $6.6 billion CHIPS Act grant last month.`\
+https://nytimes.com/2024/05/16/business/tsmc-phoenix-explosion.html
+
+**R.F.K. Jr. Draws Another $8 Million From His Running Mate, Nicole Shanahan**\
+`Ms. Shanahan, who has fueled Robert F. Kennedy Jr.’s campaign financially since becoming his running mate, has now poured nearly $15 million into the long-shot effort to elect him president.`\
+https://nytimes.com/2024/05/16/us/politics/rfk-jr-nicole-shanahan.html
+
 **Russia Has Opened Up a New Front. What Comes Next?**\
 `Things for Ukraine are likely to get worse before they get better.`\
 https://nytimes.com/2024/05/16/opinion/russia-ukraine-kharkiv.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/15/us/university-of-california-strike-authorization-
 **Review: In ‘Invasive Species,’ the Acting Bug Bites, Dramatically**\
 `Maia Novi stars in her play about a Hollywood-struck actress from Argentina who stops at Yale’s drama school and an inpatient psych ward on her way.`\
 https://nytimes.com/2024/05/15/theater/review-invasive-species-novi.html
-
-**Gets the Ball Rolling**\
-`Sara Muchnick makes her New York Times Crossword debut.`\
-https://nytimes.com/2024/05/15/crosswords/daily-puzzle-2024-05-16.html
-
-**DeSantis Signs Law Deleting Climate Change From Florida Policy**\
-`The law also stops programs designed to encourage renewable energy and conservation in a state that is highly vulnerable to the impacts of climate change.`\
-https://nytimes.com/2024/05/15/climate/desantis-climate-change-florida.html
 
