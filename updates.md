@@ -1,3 +1,7 @@
+**How Israeli Extremists Won**\
+`We explain the lawlessness in the West Bank.`\
+https://nytimes.com/2024/05/16/briefing/how-israeli-extremists-won.html
+
 **What to Know About the Shooting of Slovakia’s Prime Minister**\
 `Prime Minister Robert Fico was shot five times and has undergone emergency surgery. His condition remains serious, officials said.`\
 https://nytimes.com/2024/05/16/world/europe/robert-fico-slovakia-shooting-what-to-know.html
