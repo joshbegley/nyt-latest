@@ -1,3 +1,11 @@
+**Defending in Its North, Ukraine Faces Pressure All Along Front Line**\
+`Ukraine said it was slowing Russia’s push near Kharkiv, but still faced pitched battles there, as well as other hotly contested areas farther south.`\
+https://nytimes.com/2024/05/16/world/europe/ukraine-kharkiv-russia.html
+
+**Here are the latest developments.**\
+`Officials said the condition of Prime Minister Robert Fico had stabilized, hours after his shooting. The government was expected to focus on Thursday on security breaches.`\
+https://nytimes.com/live/2024/05/16/world/slovakia-prime-minister-fico-shot/prime-minister-robert-fico-shooting-slovakia
+
 **Attempted Killing of Slovakia’s Leader Shocks a Polarized Nation**\
 `Officials said the condition of Prime Minister Robert Fico had stabilized, hours after his shooting. The government was expected to focus on Thursday on security breaches.`\
 https://nytimes.com/2024/05/16/world/europe/prime-minister-robert-fico-shooting-slovakia.html
