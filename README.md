@@ -1,3 +1,7 @@
+**California’s Governor Accuses Trump of ‘Open Corruption’ at Climate Meeting**\
+`Gavin Newsom, speaking at the Vatican, used sharp language to describe the former president’s appeal to fossil fuel executives for campaign donations.`\
+https://nytimes.com/2024/05/16/climate/newsom-trump-corruption.html
+
 **Iraqi groups close to Iran are joining in strikes on Israel.**\
 `In recent weeks Iraqi armed groups have launched near daily attacks on Israel, saying they are showing their support for Palestinians.`\
 https://nytimes.com/live/2024/05/16/world/israel-gaza-war-hamas-rafah/iraqi-groups-close-to-iran-are-joining-in-strikes-on-israel
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/crosswords/wordlebot-games-app.html
 **‘The Strangers: Chapter 1’ Review: Crowded House**\
 `A reboot of the 2008 home invasion film “The Strangers” brings back masked assailants and brutal violence but leaves originality behind.`\
 https://nytimes.com/2024/05/16/movies/the-strangers-chapter-1-review.html
-
-**‘Terraces’ Review: A Stunning Tragedy Revisits the Paris Terror Attacks**\
-`The French writer Laurent Gaudé taps into collective trauma from the Nov. 13, 2015 terrorist outrage and channels it into something like catharsis.`\
-https://nytimes.com/2024/05/16/theater/terasses-theatre-de-la-colline.html
 
