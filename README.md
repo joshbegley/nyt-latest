@@ -1,6 +1,6 @@
 **Why a New Yorker Story on a Notorious Murder Case Is Blocked in Britain**\
 `The article challenges the evidence used to convict Lucy Letby, a neonatal nurse, of multiple murders last year, and has led to a debate about England’s restrictions on trial reporting.`\
-https://nytimes.com/2024/05/16/world/europe/why-a-new-yorker-story-on-a-notorious-murder-case-is-blocked-in-britain.html
+https://nytimes.com/2024/05/16/world/europe/new-yorker-story-murder-letby-britain.html
 
 **Samm-Art Williams, Playwright, Producer and Actor, Dies at 78**\
 `He challenged racial barriers in Hollywood, was a producer of “The Fresh Prince of Bel-Air” and earned a Tony nomination for “Home,” a paean to his Southern roots.`\
