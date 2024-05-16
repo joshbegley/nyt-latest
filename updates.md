@@ -1,3 +1,7 @@
+**In Talks With Putin, Xi Hails ‘Powerful Driving Force’ of Cooperation**\
+`In talks with China’s leader, in Beijing, the Russian president called for stronger economic ties between the countries, as he intensifies his war effort.`\
+https://nytimes.com/2024/05/16/world/asia/putin-xi-china-russia.html
+
 **U.N. Court Will Hear Arguments from South Africa on Israel’s Actions in Gaza**\
 `South Africa was expected to ask the court to order Israel to immediately withdraw from the southern Gaza city of Rafah, where more than a million Palestinians had sought shelter from the war.`\
 https://nytimes.com/2024/05/16/world/middleeast/icj-rafah-israel-gaza-south-africa.html
