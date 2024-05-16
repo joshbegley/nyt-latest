@@ -1,3 +1,7 @@
+**Slovakia’s officials appeal for calm in a deeply polarized country.**\
+`By Cassandra Vinograd and Andrew Higgins`\
+https://nytimes.com/live/2024/05/16/world/slovakia-prime-minister-fico-shot/slovakias-officials-appeal-for-calm-in-a-deeply-polarized-country
+
 **What Is Your Relationship With Fast Food?**\
 `Do you love it, hate it or feel something in between?`\
 https://nytimes.com/2024/05/16/learning/what-is-your-relationship-with-fast-food.html
