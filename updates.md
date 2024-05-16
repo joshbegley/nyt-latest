@@ -1,3 +1,7 @@
+**How Media Outlets Are Covering Michael Cohen’s Testimony**\
+`Conservative outlets have painted Mr. Cohen as a traitor to the conservative cause, while liberal organizations focused on what he said he did for Donald J. Trump.`\
+https://nytimes.com/2024/05/16/business/media/media-coverage-michael-cohen.html
+
 **As Russia Advances, NATO Considers Sending Trainers Into Ukraine**\
 `The move could draw the United States and Europe more directly into the war. The Biden administration continues to say there will be no American troops on the ground.`\
 https://nytimes.com/2024/05/16/us/politics/nato-ukraine.html
