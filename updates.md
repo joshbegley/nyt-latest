@@ -1,3 +1,7 @@
+**Iraqi groups close to Iran are joining in strikes on Israel.**\
+`In recent weeks Iraqi armed groups have launched near daily attacks on Israel, saying they are showing their support for Palestinians.`\
+https://nytimes.com/live/2024/05/16/world/israel-gaza-war-hamas-rafah/iraqi-groups-close-to-iran-are-joining-in-strikes-on-israel
+
 **What Do You Do When A.I. Takes Your Voice?**\
 `Two voice actors say an A.I. company created clones of their voices without their permission. Now they’re suing. The company denies it did anything wrong.`\
 https://nytimes.com/2024/05/16/technology/ai-voice-clone-lawsuit.html
