@@ -1,3 +1,11 @@
+**Your New Favorite Hangover Foods**\
+`The DatMacPatty with oxtail from Datz Deli, an appetizing spread at Gertrude’s and more.`\
+https://nytimes.com/2024/05/16/dining/your-new-favorite-hangover-foods.html
+
+**Tense Exchanges, but Cohen Doesn’t Crack**\
+`The defense repeatedly sought to paint Michael Cohen as an incorrigible liar.`\
+https://nytimes.com/2024/05/16/us/politics/trump-trial-michael-cohen.html
+
 **In Symbolic Vote, House Passes Bill to Force Biden to Reverse Israel Arms Pause**\
 `The legislation has no chance of advancing in Congress or being signed into law. Republicans scheduled a vote anyway in an effort to spotlight Democratic divisions over Israel and rebuke the president.`\
 https://nytimes.com/2024/05/16/us/politics/house-bill-reverse-israel-arms-pause.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/16/t-magazine/nuns-film-immaculate-doubt-new-boy.htm
 **Slovakia’s Politics Were Toxic Long Before Its Prime Minister Was Shot**\
 `Years of vitriolic rhetoric, worsened by the Covid-19 pandemic and the war in Ukraine, left Slovakia with bitter political division.`\
 https://nytimes.com/2024/05/16/world/europe/slovakia-fico-toxic-politics.html
-
-**Read the Texas Governor’s Pardon**\
-`Gov. Greg Abbott pardoned a man who was convicted of fatally shooting a protester during a Black Lives Matter demonstration in the summer of 2020, fulfilling a promise he made last year amid pressure from conservatives.`\
-https://nytimes.com/interactive/2024/05/16/us/daniel-perry-texas-abbott-pardon.html
-
-**The Pizza Connection: How to Feed a Defendant With Secret Service Protection?**\
-`Over the course of the last several weeks, Donald Trump and his legal team have lunched on fast food, sandwiches and pizzas.`\
-https://nytimes.com/2024/05/16/nyregion/trump-trial-pizza-lunch.html
 
