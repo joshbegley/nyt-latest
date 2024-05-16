@@ -1,3 +1,11 @@
+**What Is Your Relationship With Fast Food?**\
+`Do you love it, hate it or feel something in between?`\
+https://nytimes.com/2024/05/16/learning/what-is-your-relationship-with-fast-food.html
+
+**Word of the Day: demarcation**\
+`This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/16/learning/word-of-the-day-demarcation.html
+
 **Markets Keep Rising Despite Inflation Concerns**\
 `Stocks on both sides of the Atlantic set records as investors foresee interest rates moving in one direction: down.`\
 https://nytimes.com/2024/05/16/business/dealbook/inflation-stocks-markets.html
