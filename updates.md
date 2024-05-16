@@ -1,3 +1,7 @@
+**Chickpea Anxiety**\
+`Recipes for when you have lots of chickpeas (brown-butter chickpeas, chana masala) or just a little (taverna salad).`\
+https://nytimes.com/2024/05/16/dining/chickpea-anxiety.html
+
 **What Is Your Favorite Sports Video Game? We Want to Know.**\
 `Sports video games are emotionally powerful and an opportunity for bragging rights. Which one is still stuck in your mind?`\
 https://nytimes.com/2024/05/16/arts/favorite-sports-video-games.html
