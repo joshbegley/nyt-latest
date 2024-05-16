@@ -1,3 +1,7 @@
+**University of California Workers Vote to Authorize Strike in Rebuke Over Protest Crackdowns**\
+`A union representing about 48,000 academic workers said that campus leaders mishandled pro-Palestinian demonstrations. The vote gives the union’s executive board the ability to call a strike at any time.`\
+https://nytimes.com/2024/05/15/us/university-of-california-strike-authorization-palestinian-protest.html
+
 **University of California Workers Authorize Strike in Rebuke Over Protest Crackdowns**\
 `A union representing about 48,000 academic workers, many of them graduate students, said that campus leaders mishandled pro-Palestinian demonstrations.`\
 https://nytimes.com/2024/05/15/us/university-of-california-strike-authorization-palestinian-protest.html
