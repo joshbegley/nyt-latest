@@ -1,3 +1,7 @@
+**Man Linked to ‘I Raped You’ Message Is Detained in France, Authorities Say**\
+`An arrest warrant was issued for Ian Thomas Cleary in 2021 after Shannon Keeler discovered online messages about a sexual assault in Pennsylvania in 2013.`\
+https://nytimes.com/2024/05/16/us/gettysburg-college-rape-arrest.html
+
 **Walmart Opens the Year With Stronger Sales and Profit**\
 `The largest retailer in the United States reported higher sales and profit, giving insight into how consumer spending is weathering the high-interest-rate environment.`\
 https://nytimes.com/2024/05/16/business/walmart-q1-earnings.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/movies/recreating-amy-winehouses-look-onscreen.ht
 **How Israeli Extremists Won**\
 `We explain the lawlessness in the West Bank.`\
 https://nytimes.com/2024/05/16/briefing/how-israeli-extremists-won.html
-
-**What to Know About the Shooting of Slovakia’s Prime Minister**\
-`Prime Minister Robert Fico was shot five times and has undergone emergency surgery. His condition remains serious, officials said.`\
-https://nytimes.com/2024/05/16/world/europe/robert-fico-slovakia-shooting-what-to-know.html
 
