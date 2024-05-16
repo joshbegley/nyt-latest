@@ -1,36 +1,36 @@
-**The Nerve of Madonna to Pull It Off, Again**\
-`If this were the last tour of Madonna’s career, she would retire as the most influential female pop star of all time.`\
-https://nytimes.com/2024/05/16/opinion/madonna-celebration-tour.html
+**With Debate Deal, Trump and Biden Sideline a Storied Campaign Institution**\
+`For nearly 40 years, the Commission on Presidential Debates has made the rules for the most-watched events in politics. This year, both campaigns said no thanks.`\
+https://nytimes.com/2024/05/16/us/politics/campaign-debates-trump-biden.html
 
-**The Hard Road to ‘Furiosa’ Was Filled With Detours**\
-`For George Miller, Anya Taylor-Joy and their crew, a series of natural disasters made for an arduous production.`\
-https://nytimes.com/2024/05/16/movies/furiosa-george-miller-anya-taylor-joy.html
+**Trump Is the Nostalgia-Protest-Change Candidate. Can Biden Beat That?**\
+`Biden may need a debate to improve his standing.`\
+https://nytimes.com/live/2024/05/14/opinion/thepoint/trump-is-the-nostalgia-protest-change-candidate-can-biden-beat-that
 
-**After Making Altars to Her Icons, an Artist Builds Her Own Legacy**\
-`A powerful and overdue exhibition at El Museo del Barrio links Amalia Mesa-Bains’s genre-defying installations for the first time.`\
-https://nytimes.com/2024/05/16/arts/design/amalia-mesa-bains-museo-del-barrio.html
+**Who’s Afraid of Double Denim?**\
+`It’s twilight time for the era of hoodies and sweats. Make way for another kind of suit, pairing a trucker jacket with matching jeans.`\
+https://nytimes.com/2024/05/16/style/double-denim-canadian-tuxedo-fashion.html
 
-**Democrats Aim for a Breakthrough for Black Women in the Senate**\
-`The Democratic Party has taken heat for not backing Black female candidates in competitive, statewide races, but in November, voters could double the number of Black women ever elected to the Senate.`\
-https://nytimes.com/2024/05/16/us/politics/black-women-senate.html
+**House Republicans Consider Holding Attorney General in Contempt**\
+`The Judiciary and Oversight Committees will discuss the option in response to Merrick B. Garland’s refusal to turn over audio of a special counsel’s interview with President Biden.`\
+https://nytimes.com/2024/05/16/us/politics/republicans-merrick-garland-contempt.html
 
-**‘X-Men ’97’ Revisits the Franchise’s Roots and Finds Them More Timely Than Ever**\
-`The Disney+ animated series builds on its 1990s predecessor, exploring themes of prejudice and change through the world of Professor Charles Xavier and his mutant pupils.`\
-https://nytimes.com/2024/05/16/arts/television/x-men-97-episode-10-finale.html
+**A New Yorker Took Her $400,000 Budget Up to the Hudson Valley. Here’s What She Found.**\
+`After renting for years in Brooklyn and Harlem, Rachel Watts decided to swap shared city apartments for a house of her own in the Beacon area. But how much house could she afford?`\
+https://nytimes.com/interactive/2024/05/16/realestate/newburgh-beacon-homes-sale.html
 
-**A Former Prosecutor on the ‘Incredibly Strong Case’ Against Trump**\
-`How Michael Cohen’s testimony could affect the outcome of the former president’s trial.`\
-https://nytimes.com/2024/05/16/opinion/trump-michael-cohen-testimony.html
+**Kristi Got Her Gun**\
+`Governor Noem has an unusual way of demonstrating her decision-making skills.`\
+https://nytimes.com/2024/05/16/opinion/kristi-got-her-gun.html
 
-**One Area Where Biden Is Leading Trump: His Number of Donors**\
-`President Biden recently overtook former President Donald J. Trump in the total number of donors who have given to his campaign, which is often seen as a proxy for voter engagement.`\
-https://nytimes.com/interactive/2024/05/16/us/elections/biden-trump-donors.html
+**36 Hours on Minorca**\
+`This slow-paced Spanish island offers a quieter and wilder retreat than its more touristy neighbors.`\
+https://nytimes.com/interactive/2024/05/16/travel/things-to-do-menorca.html
 
-**U.A.W. Effort to Organize Mercedes Workers in Alabama Has High Stakes**\
-`Southern political leaders say a win for the United Automobile Workers would threaten their economies. Activists want to strike a blow against a system they say exploits the poor.`\
-https://nytimes.com/2024/05/16/business/uaw-mercedes-benz-alabama-vote.html
+**Yves Klein’s Leap Into the Blue (With Living Paintbrushes)**\
+`A gallery shows works on paper with roots in performance art, and a film that documents their creation.`\
+https://nytimes.com/2024/05/16/arts/design/yves-klein-blue-levy-gorvy-dayan.html
 
-**How ‘Young Sheldon’ Successfully Rode the Turmoil in TV**\
-`The seven-year run of the hit series, which ends on Thursday, mirrors the story of the television business during that time.`\
-https://nytimes.com/2024/05/16/business/media/young-sheldon-finale-netflix.html
+**With Ukraine Funded, New Fight Emerges in Congress Over Pentagon Spending**\
+`Mitch McConnell and other top Republicans want more federal money for the military. But Democrats say domestic programs must get an equivalent boost.`\
+https://nytimes.com/2024/05/16/us/defense-spending-pentagon-congress-mcconnell.html
 
