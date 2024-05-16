@@ -1,3 +1,19 @@
+**Senator Menendez’s Wife Is Being Treated for Breast Cancer**\
+`Nadine Menendez is charged along with her husband, Senator Robert Menendez, in a complex bribery scheme. She will undergo a mastectomy.`\
+https://nytimes.com/2024/05/16/nyregion/nadine-menendez-cancer.html
+
+**‘Melissa Clark Could Make a Phone Book Delicious’**\
+`Melissa’s five-star cauliflower shawarma is a veritable New York Times Cooking classic.`\
+https://nytimes.com/2024/05/16/dining/melissa-clark-could-make-a-phone-book-delicious.html
+
+**How to Care for Yourself as a Caregiver**\
+`Forget yoga or weekend escapes. There are more realistic tools to put in place, experts say.`\
+https://nytimes.com/2024/05/16/well/mind/caregiver-health.html
+
+**Portishead’s Beth Gibbons Returns Solo, Doleful Yet Determined**\
+`With “Lives Outgrown,” her first album of her own songs in 22 years, the pensive voice of the trip-hop group confronts maturity and mortality.`\
+https://nytimes.com/2024/05/16/arts/music/beth-gibbons-lives-outgrown-review.html
+
 **The Pill Makes Some Women Miserable. But Are They Really Quitting It en Masse?**\
 `The internet is awash with stories of women throwing out their oral contraception. New data suggests a different narrative.`\
 https://nytimes.com/2024/05/16/well/live/birth-control-pill-women.html
@@ -17,20 +33,4 @@ https://nytimes.com/2024/05/16/us/politics/supreme-court-cfpb.html
 **Calls to Pause Slovakia’s E.U. Election Campaigning Raise Questions**\
 `At least one party, the opposition Progress Slovakia, said it would suspend its campaign, in a move to help “end the spiral of attacks and blame.”`\
 https://nytimes.com/2024/05/16/world/europe/slovakia-eu-election-campaigning.html
-
-**Dancing Past the Venus de Milo**\
-`The Louvre is joining in the celebration for the Olympics by opening up for dance and exercise classes early in the morning. Tickets sold out in a flash.`\
-https://nytimes.com/2024/05/16/world/europe/france-paris-olympics-louvre.html
-
-**The Itsy Bitsy Spider Inspired a Microphone**\
-`If spiders use their webs like a large external eardrum, researchers reasoned, perhaps spider silk could be the basis for a powerful listening device.`\
-https://nytimes.com/2024/05/16/science/spider-web-microphone-silk.html
-
-**Columbia Faculty Group Passes No-Confidence Resolution Against President**\
-`Hundreds of professors at the university weighed in on the resolution, which said the president, Nemat Shafik, had committed an “unprecedented assault on student’s rights.”`\
-https://nytimes.com/2024/05/16/nyregion/president-shafik-columbia-faculty-vote.html
-
-**Serbia Approves Contract With Jared Kushner for Hotel Complex**\
-`The redevelopment plans for a bombed NATO site in Belgrade in partnership with the government provoked immediate criticism in Serbia.`\
-https://nytimes.com/2024/05/16/us/politics/kushner-serbia-hotel.html
 
