@@ -1,3 +1,7 @@
+**Jasper White, Chef Who Lifted New England Cuisine, Dies at 69**\
+`At Restaurant Jasper in the North End of Boston, and later with a small chain of family-friendly seafood establishments, he focused relentlessly on regional ingredients.`\
+https://nytimes.com/2024/05/16/dining/jasper-white-dead.html
+
 **Trump’s Lawyer Assailed Michael Cohen’s Credibility**\
 `Also, the return of ‘Bridgerton’`\
 https://nytimes.com/2024/05/16/briefing/michael-cohen-nato.html
