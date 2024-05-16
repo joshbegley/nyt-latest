@@ -1,3 +1,15 @@
+**Michael Cohen and Todd Blanche Clash Over 2016 Call to Trump’s Bodyguard**\
+`A current lawyer for Donald J. Trump, Todd Blanche, accused his former lawyer and fixer, Michael D. Cohen, of calling to complain about a teenage prankster, but the witness insisted he called to discuss a hush-money payment.`\
+https://nytimes.com/2024/05/16/nyregion/trump-cohen-blanche-phone-call.html
+
+**What to Know About CNN’s Presidential Debate**\
+`The debate, scheduled for June 27, will be one of the earliest presidential debates ever scheduled.`\
+https://nytimes.com/2024/05/16/us/politics/cnn-trump-biden-presidential-debate.html
+
+**Francis Ford Coppola’s ‘Megalopolis’: What to Know**\
+`After its premiere at the Cannes Film Festival, we can answer your many questions, though some details still puzzle us.`\
+https://nytimes.com/2024/05/16/movies/megalopolis-francis-ford-coppolas-guide.html
+
 **Gazans Criticize Temporary Pier Installed by U.S. Military**\
 `A temporary floating pier was set up by the U.S. military to deliver humanitarian aid to Gaza. Israel’s offensive in Rafah has stopped nearly all aid from entering through two main land border crossings.`\
 https://nytimes.com/video/world/middleeast/100000009472322/gaza-aid-us-pier-ships-coast.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/05/16/climate/biden-china-tarrifs-evs-climate.html
 **Lets Chill Out About Apostrophes**\
 `If Chaucer got through life without fussing over that tiny punctuation mark, why shouldn’t we?`\
 https://nytimes.com/2024/05/16/opinion/lets-chill-out-about-apostrophes.html
-
-**Cohen Holds His Temper in Check During Hours of Cross-Examination**\
-`Michael D. Cohen, the former personal lawyer to Donald J. Trump, is a key witness against him. Mr. Cohen’s ability to keep his cool has been a closely watched.`\
-https://nytimes.com/2024/05/16/nyregion/michael-cohen-todd-blanche-trump-trial.html
-
-**What Students Are Saying About Making School Lunch Healthier**\
-`New nutrition guidelines will mean less salt and sugar in school meals. Teenagers share whether they think students will embrace the changes.`\
-https://nytimes.com/2024/05/16/learning/what-students-are-saying-about-making-school-lunch-healthier.html
-
-**The Hardening of the Israeli Psyche**\
-`Attitudes toward the “Palestinian problem” range from detached fatigue to the belief that driving Palestinians into submission is God’s work.`\
-https://nytimes.com/2024/05/16/opinion/israeli-palestine-psyche.html
 
