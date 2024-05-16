@@ -1,3 +1,7 @@
+**The End Is Near: 5 Takeaways From Trump’s Criminal Trial**\
+`After a grueling day of cross-examination for Michael D. Cohen, the judge told lawyers to be ready to make closing arguments by Tuesday.`\
+https://nytimes.com/2024/05/16/nyregion/trump-trial-cohen-blanche-takeaways.html
+
 **Your New Favorite Hangover Foods**\
 `The DatMacPatty with oxtail from Datz Deli, an appetizing spread at Gertrude’s and more.`\
 https://nytimes.com/2024/05/16/dining/your-new-favorite-hangover-foods.html
