@@ -1,3 +1,7 @@
+**Why a New Yorker Story on a Notorious Murder Case Is Blocked in Britain**\
+`The article challenges the evidence used to convict Lucy Letby, a neonatal nurse, of multiple murders last year, and has led to a debate about England’s restrictions on trial reporting.`\
+https://nytimes.com/2024/05/16/world/europe/new-yorker-story-murder-letby-britain.html
+
 **Samm-Art Williams, Playwright, Producer and Actor, Dies at 78**\
 `He challenged racial barriers in Hollywood, was a producer of “The Fresh Prince of Bel-Air” and earned a Tony nomination for “Home,” a paean to his Southern roots.`\
 https://nytimes.com/2024/05/16/theater/samm-art-williams-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/dining/your-new-favorite-hangover-foods.html
 **Tense Exchanges, but Cohen Doesn’t Crack**\
 `The defense repeatedly sought to paint Michael Cohen as an incorrigible liar.`\
 https://nytimes.com/2024/05/16/us/politics/trump-trial-michael-cohen.html
-
-**In Symbolic Vote, House Passes Bill to Force Biden to Reverse Israel Arms Pause**\
-`The legislation has no chance of advancing in Congress or being signed into law. Republicans scheduled a vote anyway in an effort to spotlight Democratic divisions over Israel and rebuke the president.`\
-https://nytimes.com/2024/05/16/us/politics/house-bill-reverse-israel-arms-pause.html
 
