@@ -1,3 +1,15 @@
+**A European Leader Is Shot, and an Early Biden-Trump Debate**\
+`Plus, Detroit grows after decades of decline.`\
+https://nytimes.com/2024/05/16/podcasts/biden-trump-debate-slovakia-assassination-fico.html
+
+**E.U. Investigates Meta Over Addictive Social Media Effects on Children**\
+`The American tech giant’s platforms, Facebook and Instagram, may “exploit the weaknesses and inexperience of minors,” the European Commission said.`\
+https://nytimes.com/2024/05/16/business/eu-investigation-children-social-media-addiction-instagram-facebook.html
+
+**The Make-or-Break Testimony of Michael Cohen**\
+`The key prosecution witness faced defense lawyers as Donald J. Trump’s Manhattan criminal trial neared what may be an unexpectedly early conclusion.`\
+https://nytimes.com/2024/05/16/podcasts/the-daily/cohen-testimony.html
+
 **In Talks With Putin, Xi Hails ‘Powerful Driving Force’ of Cooperation**\
 `In talks with China’s leader, in Beijing, the Russian president called for stronger economic ties between the countries, as he intensifies his war effort.`\
 https://nytimes.com/2024/05/16/world/asia/putin-xi-china-russia.html

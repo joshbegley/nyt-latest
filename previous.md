@@ -1,3 +1,15 @@
+**A European Leader Is Shot, and an Early Biden-Trump Debate**\
+`Plus, Detroit grows after decades of decline.`\
+https://nytimes.com/2024/05/16/podcasts/biden-trump-debate-slovakia-assassination-fico.html
+
+**E.U. Investigates Meta Over Addictive Social Media Effects on Children**\
+`The American tech giant’s platforms, Facebook and Instagram, may “exploit the weaknesses and inexperience of minors,” the European Commission said.`\
+https://nytimes.com/2024/05/16/business/eu-investigation-children-social-media-addiction-instagram-facebook.html
+
+**The Make-or-Break Testimony of Michael Cohen**\
+`The key prosecution witness faced defense lawyers as Donald J. Trump’s Manhattan criminal trial neared what may be an unexpectedly early conclusion.`\
+https://nytimes.com/2024/05/16/podcasts/the-daily/cohen-testimony.html
+
 **In Talks With Putin, Xi Hails ‘Powerful Driving Force’ of Cooperation**\
 `In talks with China’s leader, in Beijing, the Russian president called for stronger economic ties between the countries, as he intensifies his war effort.`\
 https://nytimes.com/2024/05/16/world/asia/putin-xi-china-russia.html
@@ -21,16 +33,4 @@ https://nytimes.com/live/2024/05/14/opinion/thepoint/trump-is-the-nostalgia-prot
 **Who’s Afraid of Double Denim?**\
 `It’s twilight time for the era of hoodies and sweats. Make way for another kind of suit, pairing a trucker jacket with matching jeans.`\
 https://nytimes.com/2024/05/16/style/double-denim-canadian-tuxedo-fashion.html
-
-**House Republicans Consider Holding Attorney General in Contempt**\
-`The Judiciary and Oversight Committees will discuss the option in response to Merrick B. Garland’s refusal to turn over audio of a special counsel’s interview with President Biden.`\
-https://nytimes.com/2024/05/16/us/politics/republicans-merrick-garland-contempt.html
-
-**A New Yorker Took Her $400,000 Budget Up to the Hudson Valley. Here’s What She Found.**\
-`After renting for years in Brooklyn and Harlem, Rachel Watts decided to swap shared city apartments for a house of her own in the Beacon area. But how much house could she afford?`\
-https://nytimes.com/interactive/2024/05/16/realestate/newburgh-beacon-homes-sale.html
-
-**Kristi Got Her Gun**\
-`Governor Noem has an unusual way of demonstrating her decision-making skills.`\
-https://nytimes.com/2024/05/16/opinion/kristi-got-her-gun.html
 
