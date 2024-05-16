@@ -1,3 +1,23 @@
+**She Almost Went on a Mormon Mission. She Became a Journalist Instead.**\
+`Lauren Jackson went back to church in London, Paris and Los Angeles to cover the evolution of missionary work.`\
+https://nytimes.com/2024/05/16/insider/journalist-mormon-missionaries.html
+
+**F.D.A. Approves Drug for Persistently Deadly Form of Lung Cancer**\
+`The treatment is for patients with small cell lung cancer, which afflicts about 35,000 people in the U.S. a year.`\
+https://nytimes.com/2024/05/16/health/fda-amgen-small-cell-lung-cancer-imdelltra.html
+
+**Friday Briefing: NATO Considers Sending Trainers to Ukraine**\
+`Also, Michael Cohen kept his cool under cross-examination.`\
+https://nytimes.com/2024/05/16/world/asia/nato-ukraine-cohen-trump-asia.html
+
+**Harvard Ignored Antisemitism Advisory Group’s Recommendations, House Committee Says**\
+`In a report, the committee listed what it said were Harvard’s failures to crack down on antisemitism. Harvard said the report gives an “incomplete and inaccurate view” of its efforts.`\
+https://nytimes.com/2024/05/16/us/harvard-antisemitism-house-report.html
+
+**The Pizza Connection: How to Feed a Defendant With Secret Service Protection?**\
+`Over the course of the last several weeks, Donald Trump and his legal team have lunched on fast food, sandwiches and pizzas.`\
+https://nytimes.com/2024/05/16/nyregion/trump-trial-pizza-lunch.html
+
 **Saintly, Seductive or Sadistic? Why We Can’t Make Up Our Minds About Nuns.**\
 `In uncertain times, religious sisters are often invoked as vessels for collective doubt.`\
 https://nytimes.com/2024/05/16/t-magazine/nuns-film-immaculate-doubt-new-boy.html
