@@ -1,3 +1,7 @@
+**I Was a Republican Partisan. It Altered the Way I Saw the World.**\
+`Your emotions will often lead you astray.`\
+https://nytimes.com/2024/05/16/opinion/republican-partisan-world-view.html
+
 **Why a New Yorker Story on a Notorious Murder Case Is Blocked in Britain**\
 `The article challenges the evidence used to convict Lucy Letby, a neonatal nurse, of multiple murders last year, and has led to a debate about England’s restrictions on trial reporting.`\
 https://nytimes.com/2024/05/16/world/europe/new-yorker-story-murder-letby-britain.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/nyregion/trump-trial-cohen-blanche-takeaways.html
 **Your New Favorite Hangover Foods**\
 `The DatMacPatty with oxtail from Datz Deli, an appetizing spread at Gertrude’s and more.`\
 https://nytimes.com/2024/05/16/dining/your-new-favorite-hangover-foods.html
-
-**Tense Exchanges, but Cohen Doesn’t Crack**\
-`The defense repeatedly sought to paint Michael Cohen as an incorrigible liar.`\
-https://nytimes.com/2024/05/16/us/politics/trump-trial-michael-cohen.html
 

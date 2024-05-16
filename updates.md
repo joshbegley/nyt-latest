@@ -1,3 +1,7 @@
+**I Was a Republican Partisan. It Altered the Way I Saw the World.**\
+`Your emotions will often lead you astray.`\
+https://nytimes.com/2024/05/16/opinion/republican-partisan-world-view.html
+
 **Why a New Yorker Story on a Notorious Murder Case Is Blocked in Britain**\
 `The article challenges the evidence used to convict Lucy Letby, a neonatal nurse, of multiple murders last year, and has led to a debate about England’s restrictions on trial reporting.`\
 https://nytimes.com/2024/05/16/world/europe/new-yorker-story-murder-letby-britain.html
