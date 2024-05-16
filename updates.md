@@ -1,3 +1,15 @@
+**Beware the Pettiness of the Powerful**\
+`Alas, some of Donald Trump’s peculiarities aren’t unique.`\
+https://nytimes.com/2024/05/16/opinion/trump-wind-energy.html
+
+**The Authoritarians Have the Momentum**\
+`Liberalism’s nice rules aren’t enough of a sales pitch.`\
+https://nytimes.com/2024/05/16/opinion/trump-liberals-authoritarians.html
+
+**New Editing Layer Adds Angst Inside NPR**\
+`Many employees have expressed concern that a new group of six editors called the Backstop will be unnecessary and slow down NPR’s journalism.`\
+https://nytimes.com/2024/05/16/business/npr-editing-backstop.html
+
 **I Was a Republican Partisan. It Altered the Way I Saw the World.**\
 `Your emotions will often lead you astray.`\
 https://nytimes.com/2024/05/16/opinion/republican-partisan-world-view.html
