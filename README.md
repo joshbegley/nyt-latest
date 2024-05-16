@@ -1,3 +1,7 @@
+**Russia Expels British Diplomat After U.K. Booted His Counterpart**\
+`Russia also warned of further action, while the British foreign secretary called the expulsion a “desperate move.”`\
+https://nytimes.com/2024/05/16/world/europe/russia-british-diplomat-expel.html
+
 **Hochul Meets the Pope, and Reflects on Her Father and Irish Catholicism**\
 `At a climate change summit at the Vatican, Gov. Kathy Hochul positioned New York State as a leader in pursuing environmental goals, but also recalled her late father.`\
 https://nytimes.com/2024/05/16/nyregion/hochul-pope-climate.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/your-money/managing-debt.html
 **35 Years Later, the Remains Known as ‘Chimney Doe’ Have a Name and a Face**\
 `A skeleton found in the chimney of a Wisconsin music store in 1989 has been identified, relaunching a police investigation that had been dormant for decades.`\
 https://nytimes.com/2024/05/16/us/skeleton-dna-identification-wisconsin.html
-
-**How Media Outlets Are Covering Michael Cohen’s Testimony**\
-`Conservative outlets have painted Mr. Cohen as a traitor to the conservative cause, while liberal organizations focused on what he said he did for Donald J. Trump.`\
-https://nytimes.com/2024/05/16/business/media/media-coverage-michael-cohen.html
 
