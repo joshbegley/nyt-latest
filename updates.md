@@ -1,3 +1,11 @@
+**In South Texas, Henry Cuellar’s Case Stirs an Old Feeling: Distrust**\
+`The Laredo congressman faces bribery charges, and some voters and party leaders worry that his legal troubles could dampen Democratic turnout.`\
+https://nytimes.com/2024/05/16/us/politics/cuellar-south-texas-voters.html
+
+**Protesters Clash With Police as U.C. Irvine Encampment Is Cleared**\
+`The university said 50 people were arrested in the operation, which the chancellor said was prompted by the protesters’ takeover of a lecture hall.`\
+https://nytimes.com/2024/05/16/us/protest-uc-irvine-clash-police.html
+
 **Managing Your Debt**\
 `How to make a plan for tackling your debt, improving your credit score and feel like the money you owe isn’t controlling you.`\
 https://nytimes.com/2024/05/16/your-money/managing-debt.html
