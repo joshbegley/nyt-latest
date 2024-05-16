@@ -1,3 +1,7 @@
+**Families who fled Israel’s offensive find refuge but little else in Khan Younis.**\
+`By Raja Abdulrahim and Bilal Shbair`\
+https://nytimes.com/live/2024/05/16/world/israel-gaza-war-hamas-rafah/families-who-fled-israels-offensive-find-refuge-but-little-else-in-khan-younis
+
 **Supreme Court Rejects Challenge to Consumer Watchdog’s Funding**\
 `A decision against the agency, the Consumer Financial Protection Bureau, could have cast doubt on all of its regulations and enforcement actions.`\
 https://nytimes.com/2024/05/16/us/politics/supreme-court-cfpb.html
@@ -29,8 +33,4 @@ https://nytimes.com/interactive/2024/05/16/nyregion/trump-hush-money-trial-trans
 **Chantal Joffe Paints Moments of Motherhood and Grief**\
 `Plus: silk lounge sets, a San Francisco film festival and more recommendations from T Magazine.`\
 https://nytimes.com/2024/05/16/t-magazine/chantal-joffe-art-skarstedt-gallery.html
-
-**Wayfarers Chapel Is Coming Down**\
-`The famed chapel in Southern California closed this year because of severe damage from a landslide. Leaders now say it will be disassembled until a new site is found.`\
-https://nytimes.com/2024/05/16/us/wayfarers-chapel-landslide.html
 

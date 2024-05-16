@@ -1,3 +1,7 @@
+**Families who fled Israel’s offensive find refuge but little else in Khan Younis.**\
+`By Raja Abdulrahim and Bilal Shbair`\
+https://nytimes.com/live/2024/05/16/world/israel-gaza-war-hamas-rafah/families-who-fled-israels-offensive-find-refuge-but-little-else-in-khan-younis
+
 **Supreme Court Rejects Challenge to Consumer Watchdog’s Funding**\
 `A decision against the agency, the Consumer Financial Protection Bureau, could have cast doubt on all of its regulations and enforcement actions.`\
 https://nytimes.com/2024/05/16/us/politics/supreme-court-cfpb.html
