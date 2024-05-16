@@ -1,3 +1,7 @@
+**The Hardening of the Israeli Psyche**\
+`Attitudes toward the “Palestinian problem” range from detached fatigue to the belief that driving Palestinians into submission is God’s work.`\
+https://nytimes.com/2024/05/16/opinion/israeli-palestine-psyche.html
+
 **Russia Expels British Diplomat After U.K. Booted His Counterpart**\
 `Russia also warned of further action, while the British foreign secretary called the expulsion a “desperate move.”`\
 https://nytimes.com/2024/05/16/world/europe/russia-british-diplomat-expel.html
