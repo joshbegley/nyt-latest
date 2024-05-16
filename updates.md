@@ -1,3 +1,7 @@
+**Man Linked to ‘I Raped You’ Message Is Detained in France, Authorities Say**\
+`An arrest warrant was issued for Ian Thomas Cleary in 2021 after Shannon Keeler discovered online messages about a sexual assault in Pennsylvania in 2013.`\
+https://nytimes.com/2024/05/16/us/gettysburg-college-rape-arrest.html
+
 **Walmart Opens the Year With Stronger Sales and Profit**\
 `The largest retailer in the United States reported higher sales and profit, giving insight into how consumer spending is weathering the high-interest-rate environment.`\
 https://nytimes.com/2024/05/16/business/walmart-q1-earnings.html
