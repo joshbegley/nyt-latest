@@ -1,3 +1,11 @@
+**Read the Texas Governor’s Pardon**\
+`Gov. Greg Abbott pardoned a man who was convicted of fatally shooting a protester during a Black Lives Matter demonstration in the summer of 2020, fulfilling a promise he made last year amid pressure from conservatives.`\
+https://nytimes.com/interactive/2024/05/16/us/daniel-perry-texas-abbott-pardon.html
+
+**The Pizza Connection: How to Feed a Defendant With Secret Service Protection?**\
+`Over the course of the last several weeks, Donald Trump and his legal team have lunched on sandwiches, fast food and pizzas.`\
+https://nytimes.com/2024/05/16/nyregion/trump-trial-pizza-lunch.html
+
 **Texas Governor Pardons Man in Fatal Shooting of Protester in 2020**\
 `The man, Daniel S. Perry, was convicted of killing a protester during a Black Lives Matter demonstration in Austin.`\
 https://nytimes.com/2024/05/16/us/texas-abbott-pardon-daniel-perry.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/16/climate/coral-reefs-heat-stress-bleaching.html
 **Charles Gaines, By the Numbers**\
 `The artist on his new work at the Freedom Monument Sculpture Park in Alabama, the development of his practice and taking drum lessons from Jimmie Smith.`\
 https://nytimes.com/2024/05/16/t-magazine/charles-gaines-freedom-monument-sculpture-park.html
-
-**Finding an Opening, Trump’s Team Catches Michael Cohen Unawares**\
-`Even a single slip-up could harm a witness’s credibility with a juror.`\
-https://nytimes.com/live/2024/05/14/opinion/thepoint/trump-trial-cohen-testimony
-
-**After Outcry, Concertgebouw Will Allow Jerusalem Quartet to Perform**\
-`The Dutch concert hall reversed course after facing criticism for canceling performances by the Israeli ensemble because of security concerns.`\
-https://nytimes.com/2024/05/16/arts/music/concertgebouw-jerusalem-quartet.html
 
