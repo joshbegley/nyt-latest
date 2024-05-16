@@ -1,3 +1,7 @@
+**Xi Welcomes Putin to China**\
+`Xi Jinping greeted President Vladimir V. Putin of Russia in a show of solidarity at the start of a two-day state visit.`\
+https://nytimes.com/video/world/asia/100000009471667/putin-xi-china-summit.html
+
 **Thursday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2024/05/16/briefing/slovakia-attack-ukraine-netherlands.html
