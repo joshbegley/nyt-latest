@@ -6,7 +6,7 @@ https://nytimes.com/2024/05/16/us/heres-the-latest-on-campus-protests.html
 `In humans, the energetic cost of pregnancy is about 50,000 dietary calories — far higher than previously believed, a new study found.`\
 https://nytimes.com/2024/05/16/science/pregnancy-energy-costs.html
 
-**Your Money: Managing Your Debt**\
+**Managing Your Debt**\
 `How to make a plan for tackling your debt, improving your credit score and feel like the money you owe isn’t controlling you.`\
 https://nytimes.com/2024/05/16/your-money/managing-debt.html
 

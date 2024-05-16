@@ -1,3 +1,7 @@
+**Managing Your Debt**\
+`How to make a plan for tackling your debt, improving your credit score and feel like the money you owe isn’t controlling you.`\
+https://nytimes.com/2024/05/16/your-money/managing-debt.html
+
 **Here’s the latest on campus protests.**\
 `By Jacey Fortin, Heather Knight and Jonathan Wolfe`\
 https://nytimes.com/2024/05/16/us/heres-the-latest-on-campus-protests.html
