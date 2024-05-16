@@ -1,3 +1,11 @@
+**Three Men Charged in Wildfire at Isle Royale National Park in Michigan**\
+`The fire burned six acres over 13 days in August 2022 at the national park in Lake Superior.`\
+https://nytimes.com/2024/05/16/us/michigan-men-isle-royale-fire-charges.html
+
+**Trump’s Lawyer and Cohen Match Wits in Crucial Cross-Examination**\
+`Michael D. Cohen tried to parry attacks on his honesty as Todd Blanche, Donald J. Trump’s lawyer, tried to destroy his credibility with jurors.`\
+https://nytimes.com/2024/05/16/nyregion/trump-trial-cohen-blanche.html
+
 **Heat Stress Is Hitting Caribbean Reefs Earlier Than Ever This Year**\
 `Scientists in the United States are reporting “unprecedented patterns” of surface warming, an ominous sign for coral.`\
 https://nytimes.com/2024/05/16/climate/coral-reefs-heat-stress-bleaching.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/16/sports/autoracing/f1-daniel-ricciardo.html
 **Frédéric Vasseur’s Plan for Ferrari Begins to Pay Off**\
 `As a Frenchman running a beloved Italian team, fans weren’t happy at first, but the team is now second for the constructors’ title.`\
 https://nytimes.com/2024/05/16/sports/autoracing/f1-frederic-vasseur-ferrari.html
-
-**Formula 1’s Emilia-Romagna Returns After Last Year’s Cancellation**\
-`The race was called off after flooding devastated the region. The area is still digging out.`\
-https://nytimes.com/2024/05/16/sports/autoracing/f1-emilia-romagna-flooding-imola.html
-
-**Michael Cohen and Todd Blanche Clash Over 2016 Call to Trump’s Bodyguard**\
-`A current lawyer for Donald J. Trump, Todd Blanche, accused his former lawyer and fixer, Michael D. Cohen, of calling to complain about a teenage prankster, but the witness insisted he called to discuss a hush-money payment.`\
-https://nytimes.com/2024/05/16/nyregion/trump-cohen-blanche-phone-call.html
 
