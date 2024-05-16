@@ -1,3 +1,7 @@
+**Line Outside Trump Trial Is Packed, as Seats in Court Become Hot Commodity**\
+`People who want to watch the first criminal trial of an American president are paying hundreds of dollars to people to wait in line for them.`\
+https://nytimes.com/2024/05/16/nyregion/trump-trial-line-overflow.html
+
 **Civilian Prosecutors Rejected Evidence in 9/11 Case That Military Calls Crucial**\
 `The revelation sets in stark relief the decision by military prosecutors to seek to include the evidence, which has opened the door to years of litigation over confessions by the men accused of plotting the attacks.`\
 https://nytimes.com/2024/05/16/us/politics/guantanamo-bay-sept-11-trial.html
