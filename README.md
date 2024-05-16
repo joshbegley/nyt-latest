@@ -1,3 +1,11 @@
+**What Is Your Relationship With Fast Food?**\
+`Do you love it, hate it or feel something in between?`\
+https://nytimes.com/2024/05/16/learning/what-is-your-relationship-with-fast-food.html
+
+**Word of the Day: demarcation**\
+`This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/16/learning/word-of-the-day-demarcation.html
+
 **Markets Keep Rising Despite Inflation Concerns**\
 `Stocks on both sides of the Atlantic set records as investors foresee interest rates moving in one direction: down.`\
 https://nytimes.com/2024/05/16/business/dealbook/inflation-stocks-markets.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/16/movies/if-review.html
 **Seeking Access to Congo’s Metals, White House Aims to Ease Sanctions**\
 `A deal to allow the Israeli billionaire Dan Gertler to cash out his mining positions in the Democratic Republic of Congo has enraged human rights activists and some government officials.`\
 https://nytimes.com/2024/05/16/us/politics/congo-cobalt-us-sanctions.html
-
-**‘Coma’ Review: A Labyrinthine Lockdown Movie**\
-`Bertrand Bonello’s latest horror film, dedicated to his teenage daughter, pushes the boundaries of the conventional pandemic movie.`\
-https://nytimes.com/2024/05/16/movies/coma-review.html
-
-**Recreating Amy Winehouse’s Look Onscreen**\
-`In the biopic “Back to Black,” Marisa Abela wears some of the singer’s actual clothes, but the hair and makeup team chose to tone the signature beehive down.`\
-https://nytimes.com/2024/05/16/movies/recreating-amy-winehouses-look-onscreen.html
 
