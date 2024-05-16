@@ -1,3 +1,7 @@
+**Attempted Killing of Slovakia’s Leader Shocks a Polarized Nation**\
+`Officials said the condition of Prime Minister Robert Fico had stabilized, hours after his shooting. The government was expected to focus on Thursday on security breaches.`\
+https://nytimes.com/2024/05/16/world/europe/prime-minister-robert-fico-shooting-slovakia.html
+
 **Cohen’s Cross-Examination to Continue as Trump Trial Enters Homestretch**\
 `Defense lawyers for Donald J. Trump will try to sully the testimony of Michael D. Cohen, who once was his lawyer and now is his nemesis.`\
 https://nytimes.com/2024/05/16/nyregion/trump-trial-hush-money-cohen.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/crosswords/spelling-bee-forum.html
 **Late Night Looks Forward to the Trump-Biden Debates**\
 `“Just like that, they’re going head to head, toe to toe, mano a mango,” Stephen Colbert said of two forthcoming presidential debates in June and September.`\
 https://nytimes.com/2024/05/16/arts/television/late-night-trump-biden-debates.html
-
-**Corrections: May 16, 2024**\
-`Corrections that appeared in print on Thursday, May 16, 2024.`\
-https://nytimes.com/2024/05/16/pageoneplus/corrections-may-16-2024.html
 
