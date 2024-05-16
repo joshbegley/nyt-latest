@@ -1,3 +1,11 @@
+**She Almost Went on a Mormon Mission. She Became a Journalist Instead.**\
+`Lauren Jackson went back to church in London, Paris and Los Angeles to cover the evolution of missionary work.`\
+https://nytimes.com/2024/05/16/insider/journalist-mormon-missionaries.html
+
+**F.D.A. Approves Drug for Persistently Deadly Form of Lung Cancer**\
+`The treatment is for patients with small cell lung cancer, which afflicts about 35,000 people in the U.S. a year.`\
+https://nytimes.com/2024/05/16/health/fda-amgen-small-cell-lung-cancer-imdelltra.html
+
 **Friday Briefing: NATO Considers Sending Trainers to Ukraine**\
 `Also, Michael Cohen kept his cool under cross-examination.`\
 https://nytimes.com/2024/05/16/world/asia/nato-ukraine-cohen-trump-asia.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/16/nyregion/trump-trial-pizza-lunch.html
 **Texas Governor Pardons Man in Fatal Shooting of Protester in 2020**\
 `The man, Daniel S. Perry, was convicted of killing a protester during a Black Lives Matter demonstration in Austin.`\
 https://nytimes.com/2024/05/16/us/texas-abbott-pardon-daniel-perry.html
-
-**Trump Says He Has ‘No Problem’ Including R.F.K. Jr. in Debates**\
-`But President Biden’s campaign has been firm in wanting the debates to be between only him and the former president.`\
-https://nytimes.com/2024/05/16/us/politics/trump-debates-rfk-jr.html
-
-**6 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2024/05/16/books/review/new-books-recommendations.html
 
