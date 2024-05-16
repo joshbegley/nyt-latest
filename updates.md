@@ -1,3 +1,7 @@
+**In Emotional Hearing, Maine Shooter’s Relatives Describe Efforts to Get Him Psychiatric Help**\
+`“It’s on all of us to make sure the next time we need to get help for someone, we do better,” Cara Lamb, the gunman’s ex-wife, told the commission investigating the October mass shooting.`\
+https://nytimes.com/2024/05/16/us/maine-shooting-robert-card-family-testimony.html
+
 **Menendez Jurors See the Gold Bars at the Heart of a Bribery Case**\
 `An F.B.I. agent, testifying for the government, described his search of Senator Robert Menendez’s house in New Jersey.`\
 https://nytimes.com/2024/05/16/nyregion/robert-menendez-gold-bars-jury.html
