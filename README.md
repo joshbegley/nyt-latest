@@ -1,3 +1,11 @@
+**What Is Your Favorite Sports Video Game? We Want to Know.**\
+`Sports video games are emotionally powerful and an opportunity for bragging rights. Which one is still stuck in your mind?`\
+https://nytimes.com/2024/05/16/arts/favorite-sports-video-games.html
+
+**Despite War, Ukrainian Wines Are Finding a Global Audience**\
+`These bottles, reflecting thousands of years of winemaking history and a fresh wave of energy, are now arriving in the U.S.`\
+https://nytimes.com/2024/05/16/dining/drinks/ukrainian-wines.html
+
 **Overlooked No More: Bill Hosokawa, Journalist Who Chronicled Japanese American History**\
 `He fought prejudice and incarceration during World War II to lead a successful career, becoming one of the first editors of color at a metropolitan newspaper.`\
 https://nytimes.com/2024/05/16/obituaries/bill-hosokawa-overlooked.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/16/opinion/donald-trump-hannibal-lecter.html
 **Wild World of Sports: When Raccoons, Cats and Iguanas Upstage the Action**\
 `Surprisingly often, animals show up uninvited at sporting events. Sometimes, it gets a little weird.`\
 https://nytimes.com/2024/05/16/sports/raccoon-animals-sports-fields-stadiums.html
-
-**Justices Speak, and Are Greeted With Dissent**\
-`Readers discuss appearances by three of the justices at recent conferences and graduations. Also: Forms of oppression; G.O.P. hypocrisy on antisemitism.`\
-https://nytimes.com/2024/05/16/opinion/supreme-court-thomas-kavanaugh-alito.html
-
-**Here’s What Makes WordleBot Tick**\
-`The bot’s creator, along with the game’s editor, take you on a tour of its inner workings.`\
-https://nytimes.com/2024/05/16/crosswords/wordlebot-games-app.html
 
