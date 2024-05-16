@@ -1,3 +1,7 @@
+**The End Is Near: 5 Takeaways From Trump’s Criminal Trial**\
+`After a grueling day of cross-examination for Michael D. Cohen, the judge told lawyers to be ready to make closing arguments by Tuesday.`\
+https://nytimes.com/2024/05/16/nyregion/trump-trial-cohen-blanche-takeaways.html
+
 **Your New Favorite Hangover Foods**\
 `The DatMacPatty with oxtail from Datz Deli, an appetizing spread at Gertrude’s and more.`\
 https://nytimes.com/2024/05/16/dining/your-new-favorite-hangover-foods.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/us/harvard-antisemitism-house-report.html
 **Saintly, Seductive or Sadistic? Why We Can’t Make Up Our Minds About Nuns.**\
 `In uncertain times, religious sisters are often invoked as vessels for collective doubt.`\
 https://nytimes.com/2024/05/16/t-magazine/nuns-film-immaculate-doubt-new-boy.html
-
-**Slovakia’s Politics Were Toxic Long Before Its Prime Minister Was Shot**\
-`Years of vitriolic rhetoric, worsened by the Covid-19 pandemic and the war in Ukraine, left Slovakia with bitter political division.`\
-https://nytimes.com/2024/05/16/world/europe/slovakia-fico-toxic-politics.html
 
