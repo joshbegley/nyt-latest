@@ -1,3 +1,7 @@
+**Gazans Criticize Temporary Pier Installed by U.S. Military**\
+`A temporary floating pier was set up by the U.S. military to deliver humanitarian aid to Gaza. Israel’s offensive in Rafah has stopped nearly all aid from entering through two main land border crossings.`\
+https://nytimes.com/video/world/middleeast/100000009472322/gaza-aid-us-pier-ships-coast.html
+
 **Snow Lifts Great Salt Lake From Record Lows, but Dangers Persist**\
 `The lake remains below healthy levels and experts warn the increase could reduce the pressure to conserve water.`\
 https://nytimes.com/2024/05/16/climate/great-salt-lake-water-levels.html

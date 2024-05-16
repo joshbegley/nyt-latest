@@ -1,3 +1,7 @@
+**Gazans Criticize Temporary Pier Installed by U.S. Military**\
+`A temporary floating pier was set up by the U.S. military to deliver humanitarian aid to Gaza. Israel’s offensive in Rafah has stopped nearly all aid from entering through two main land border crossings.`\
+https://nytimes.com/video/world/middleeast/100000009472322/gaza-aid-us-pier-ships-coast.html
+
 **Snow Lifts Great Salt Lake From Record Lows, but Dangers Persist**\
 `The lake remains below healthy levels and experts warn the increase could reduce the pressure to conserve water.`\
 https://nytimes.com/2024/05/16/climate/great-salt-lake-water-levels.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/learning/what-students-are-saying-about-making-sc
 **The Hardening of the Israeli Psyche**\
 `Attitudes toward the “Palestinian problem” range from detached fatigue to the belief that driving Palestinians into submission is God’s work.`\
 https://nytimes.com/2024/05/16/opinion/israeli-palestine-psyche.html
-
-**Russia Expels British Diplomat After U.K. Booted His Counterpart**\
-`Russia also warned of further action, while the British foreign secretary called the expulsion a “desperate move.”`\
-https://nytimes.com/2024/05/16/world/europe/russia-british-diplomat-expel.html
 
