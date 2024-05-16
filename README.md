@@ -1,3 +1,15 @@
+**Beware the Pettiness of the Powerful**\
+`Alas, some of Donald Trump’s peculiarities aren’t unique.`\
+https://nytimes.com/2024/05/16/opinion/trump-wind-energy.html
+
+**The Authoritarians Have the Momentum**\
+`Liberalism’s nice rules aren’t enough of a sales pitch.`\
+https://nytimes.com/2024/05/16/opinion/trump-liberals-authoritarians.html
+
+**New Editing Layer Adds Angst Inside NPR**\
+`Many employees have expressed concern that a new group of six editors called the Backstop will be unnecessary and slow down NPR’s journalism.`\
+https://nytimes.com/2024/05/16/business/npr-editing-backstop.html
+
 **I Was a Republican Partisan. It Altered the Way I Saw the World.**\
 `Your emotions will often lead you astray.`\
 https://nytimes.com/2024/05/16/opinion/republican-partisan-world-view.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/05/16/dining/jasper-white-dead.html
 **Trump’s Lawyer Assailed Michael Cohen’s Credibility**\
 `Also, the return of ‘Bridgerton.’`\
 https://nytimes.com/2024/05/16/briefing/michael-cohen-nato.html
-
-**At Justice Alito’s House, a ‘Stop the Steal’ Symbol on Display**\
-`An upside-down flag, adopted by Trump supporters contesting the Biden victory, flew over the justice’s front lawn as the Supreme Court was considering an election case.`\
-https://nytimes.com/2024/05/16/us/justice-alito-upside-down-flag.html
-
-**The End Is Near: 5 Takeaways From Trump’s Criminal Trial**\
-`After a grueling day of cross-examination for Michael D. Cohen, the judge told lawyers to be ready to make closing arguments by Tuesday.`\
-https://nytimes.com/2024/05/16/nyregion/trump-trial-cohen-blanche-takeaways.html
-
-**Your New Favorite Hangover Foods**\
-`The DatMacPatty with oxtail from Datz Deli, an appetizing spread at Gertrude’s and more.`\
-https://nytimes.com/2024/05/16/dining/your-new-favorite-hangover-foods.html
 
