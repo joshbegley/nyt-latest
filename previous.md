@@ -1,3 +1,11 @@
+**Chantal Joffe Paints Moments of Motherhood and Grief**\
+`Plus: silk lounge sets, a San Francisco film festival and more recommendations from T Magazine.`\
+https://nytimes.com/2024/05/16/t-magazine/chantal-joffe-art-skarstedt-gallery.html
+
+**Wayfarers Chapel Is Coming Down**\
+`The famed chapel in Southern California closed this year because of severe damage from a landslide. Leaders now say it will be disassembled until a new site is found.`\
+https://nytimes.com/2024/05/16/us/wayfarers-chapel-landslide.html
+
 **Israeli Military Says Tank Fire Killed 5 of Its Own Soldiers**\
 `The men were killed as they were fighting in a dense area, a spokesman said, adding that the incident was “under review.”`\
 https://nytimes.com/2024/05/16/world/middleeast/israel-soldiers-killed-gaza-tank-fire.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/16/business/dealbook/inflation-stocks-markets.html
 **Man Linked to ‘I Raped You’ Message Is Detained in France, Authorities Say**\
 `An arrest warrant was issued for Ian Thomas Cleary in 2021 after Shannon Keeler discovered online messages about a sexual assault in Pennsylvania in 2013.`\
 https://nytimes.com/2024/05/16/us/gettysburg-college-rape-arrest.html
-
-**Walmart Opens the Year With Stronger Sales and Profit**\
-`The largest U.S. retailer had robust quarterly results and an upbeat outlook, giving insight into how consumers are weathering high interest rates.`\
-https://nytimes.com/2024/05/16/business/walmart-q1-earnings.html
-
-**‘Film Geek’ Review: A Cinephile’s Guide to New York**\
-`The director Richard Shepard details his lifelong obsession with movies in this enthusiastic video essay.`\
-https://nytimes.com/2024/05/16/movies/film-geek-review.html
 

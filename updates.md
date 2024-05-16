@@ -1,3 +1,11 @@
+**Chantal Joffe Paints Moments of Motherhood and Grief**\
+`Plus: silk lounge sets, a San Francisco film festival and more recommendations from T Magazine.`\
+https://nytimes.com/2024/05/16/t-magazine/chantal-joffe-art-skarstedt-gallery.html
+
+**Wayfarers Chapel Is Coming Down**\
+`The famed chapel in Southern California closed this year because of severe damage from a landslide. Leaders now say it will be disassembled until a new site is found.`\
+https://nytimes.com/2024/05/16/us/wayfarers-chapel-landslide.html
+
 **Israeli Military Says Tank Fire Killed 5 of Its Own Soldiers**\
 `The men were killed as they were fighting in a dense area, a spokesman said, adding that the incident was “under review.”`\
 https://nytimes.com/2024/05/16/world/middleeast/israel-soldiers-killed-gaza-tank-fire.html
