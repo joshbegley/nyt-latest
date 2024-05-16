@@ -1,3 +1,11 @@
+**Lets Chill Out About Apostrophes**\
+`If Chaucer got through life without fussing over that tiny punctuation mark, why shouldn’t we?`\
+https://nytimes.com/2024/05/16/opinion/lets-chill-out-about-apostrophes.html
+
+**Cohen Holds His Temper in Check During Hours of Cross-Examination**\
+`Michael D. Cohen, the former personal lawyer to Donald J. Trump, is a key witness against him. Mr. Cohen’s ability to keep his cool has been a closely watched.`\
+https://nytimes.com/2024/05/16/nyregion/michael-cohen-todd-blanche-trump-trial.html
+
 **What Students Are Saying About Making School Lunch Healthier**\
 `New nutrition guidelines will mean less salt and sugar in school meals. Teenagers share whether they think students will embrace the changes.`\
 https://nytimes.com/2024/05/16/learning/what-students-are-saying-about-making-school-lunch-healthier.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/16/us/politics/cuellar-south-texas-voters.html
 **Protesters Clash With Police as U.C. Irvine Encampment Is Cleared**\
 `The university said 50 people were arrested in the operation, which the chancellor said was prompted by the protesters’ takeover of a lecture hall.`\
 https://nytimes.com/2024/05/16/us/protest-uc-irvine-clash-police.html
-
-**Here’s the latest on campus protests.**\
-`By Jacey Fortin, Heather Knight and Jonathan Wolfe`\
-https://nytimes.com/live/2024/05/16/us/college-campus-protests/heres-the-latest-on-campus-protests
-
-**Scientists Calculated the Energy Needed to Carry a Baby. Shocker: It’s a Lot.**\
-`In humans, the energetic cost of pregnancy is about 50,000 dietary calories — far higher than previously believed, a new study found.`\
-https://nytimes.com/2024/05/16/science/pregnancy-energy-costs.html
 
