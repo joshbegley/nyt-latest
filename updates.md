@@ -1,3 +1,11 @@
+**Menendez Jurors See the Gold Bars at the Heart of a Bribery Case**\
+`An F.B.I. agent, testifying for the government, described his search of Senator Robert Menendez’s house in New Jersey.`\
+https://nytimes.com/2024/05/16/nyregion/robert-menendez-gold-bars-jury.html
+
+**M.T.A. Worker and Wife Participated in Jan. 6 Capitol Riot, U.S. Says**\
+`Kevin and Carol Moore, of Massapequa, N.Y., are charged with trespassing and disorderly conduct. They were identified through photographic evidence, the U.S. said.`\
+https://nytimes.com/2024/05/16/nyregion/jan-6-mta-worker-charged.html
+
 **Robert Dennard, IBM Inventor Whose Chip Changed Computing, Dies at 91**\
 `He invented DRAM, the technology that allowed for the faster and higher-capacity memory storage that is the basis for modern computing.`\
 https://nytimes.com/2024/05/16/technology/robert-dennard-dead.html

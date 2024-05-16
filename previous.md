@@ -1,3 +1,11 @@
+**Menendez Jurors See the Gold Bars at the Heart of a Bribery Case**\
+`An F.B.I. agent, testifying for the government, described his search of Senator Robert Menendez’s house in New Jersey.`\
+https://nytimes.com/2024/05/16/nyregion/robert-menendez-gold-bars-jury.html
+
+**M.T.A. Worker and Wife Participated in Jan. 6 Capitol Riot, U.S. Says**\
+`Kevin and Carol Moore, of Massapequa, N.Y., are charged with trespassing and disorderly conduct. They were identified through photographic evidence, the U.S. said.`\
+https://nytimes.com/2024/05/16/nyregion/jan-6-mta-worker-charged.html
+
 **Robert Dennard, IBM Inventor Whose Chip Changed Computing, Dies at 91**\
 `He invented DRAM, the technology that allowed for the faster and higher-capacity memory storage that is the basis for modern computing.`\
 https://nytimes.com/2024/05/16/technology/robert-dennard-dead.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/16/business/npr-editing-backstop.html
 **I Was a Republican Partisan. It Altered the Way I Saw the World.**\
 `Your emotions will often lead you astray.`\
 https://nytimes.com/2024/05/16/opinion/republican-partisan-world-view.html
-
-**Why a New Yorker Story on a Notorious Murder Case Is Blocked in Britain**\
-`The article challenges the evidence used to convict Lucy Letby, a neonatal nurse, of multiple murders last year, and has led to a debate about England’s restrictions on trial reporting.`\
-https://nytimes.com/2024/05/16/world/europe/new-yorker-story-murder-letby-britain.html
-
-**Samm-Art Williams, Playwright, Producer and Actor, Dies at 78**\
-`He challenged racial barriers in Hollywood, was a producer of “The Fresh Prince of Bel-Air” and earned a Tony nomination for “Home,” a paean to his Southern roots.`\
-https://nytimes.com/2024/05/16/theater/samm-art-williams-dead.html
 
