@@ -1,3 +1,7 @@
+**What to Know About the Shooting of Slovakia’s Prime Minister**\
+`Prime Minister Robert Fico was shot five times and has undergone emergency surgery. His condition remains serious, officials said.`\
+https://nytimes.com/2024/05/16/world/europe/robert-fico-slovakia-shooting-what-to-know.html
+
 **Roger Corman Lives!**\
 `The B-movie legend died at 98, but his influence on filmmaking endures.`\
 https://nytimes.com/2024/05/16/podcasts/roger-corman-lives.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/05/16/world/israel-gaza-war-hamas-rafah/aid-unload
 **With Debate Deal, Trump and Biden Sideline a Storied Campaign Institution**\
 `For nearly 40 years, the Commission on Presidential Debates has made the rules for the most-watched events in politics. This year, both campaigns said no thanks.`\
 https://nytimes.com/2024/05/16/us/politics/campaign-debates-trump-biden.html
-
-**Trump Is the Nostalgia-Protest-Change Candidate. Can Biden Beat That?**\
-`Biden may need a debate to improve his standing.`\
-https://nytimes.com/live/2024/05/14/opinion/thepoint/trump-is-the-nostalgia-protest-change-candidate-can-biden-beat-that
 
