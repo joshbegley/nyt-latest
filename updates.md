@@ -1,3 +1,11 @@
+**Charles Gaines, By the Numbers**\
+`The artist on his new work at the Freedom Monument Sculpture Park in Alabama, the development of his practice and taking drum lessons from Jimmie Smith.`\
+https://nytimes.com/2024/05/16/t-magazine/charles-gaines-freedom-monument-sculpture-park.html
+
+**Finding an Opening, Trump’s Team Catches Michael Cohen Unawares**\
+`Even a single slip-up could harm Cohen’s credibility with a juror.`\
+https://nytimes.com/live/2024/05/14/opinion/thepoint/trump-trial-cohen-testimony
+
 **After Outcry, Concertgebouw Will Allow Jerusalem Quartet to Perform**\
 `The Dutch concert hall reversed course after facing criticism for canceling performances by the Israeli ensemble because of security concerns.`\
 https://nytimes.com/2024/05/16/arts/music/concertgebouw-jerusalem-quartet.html

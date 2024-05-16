@@ -1,3 +1,11 @@
+**Charles Gaines, By the Numbers**\
+`The artist on his new work at the Freedom Monument Sculpture Park in Alabama, the development of his practice and taking drum lessons from Jimmie Smith.`\
+https://nytimes.com/2024/05/16/t-magazine/charles-gaines-freedom-monument-sculpture-park.html
+
+**Finding an Opening, Trump’s Team Catches Michael Cohen Unawares**\
+`Even a single slip-up could harm Cohen’s credibility with a juror.`\
+https://nytimes.com/live/2024/05/14/opinion/thepoint/trump-trial-cohen-testimony
+
 **After Outcry, Concertgebouw Will Allow Jerusalem Quartet to Perform**\
 `The Dutch concert hall reversed course after facing criticism for canceling performances by the Israeli ensemble because of security concerns.`\
 https://nytimes.com/2024/05/16/arts/music/concertgebouw-jerusalem-quartet.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/16/nyregion/trump-cohen-blanche-phone-call.html
 **What to Know About CNN’s Presidential Debate**\
 `The debate, scheduled for June 27, will be one of the earliest presidential debates ever scheduled.`\
 https://nytimes.com/2024/05/16/us/politics/cnn-trump-biden-presidential-debate.html
-
-**Francis Ford Coppola’s ‘Megalopolis’: What to Know**\
-`After its premiere at the Cannes Film Festival, we can answer your many questions, though some details still puzzle us.`\
-https://nytimes.com/2024/05/16/movies/megalopolis-francis-ford-coppolas-guide.html
-
-**Gazans Criticize Temporary Pier Installed by U.S. Military**\
-`A temporary floating pier was set up by the U.S. military to deliver humanitarian aid to Gaza. Israel’s offensive in Rafah has stopped nearly all aid from entering through two main land border crossings.`\
-https://nytimes.com/video/world/middleeast/100000009472322/gaza-aid-us-pier-ships-coast.html
 
