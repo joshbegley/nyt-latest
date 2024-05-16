@@ -1,3 +1,7 @@
+**Jasper White, Chef Who Lifted New England Cuisine, Dies at 69**\
+`At Restaurant Jasper in the North End of Boston, and later with a small chain of family-friendly seafood establishments, he focused relentlessly on regional ingredients.`\
+https://nytimes.com/2024/05/16/dining/jasper-white-dead.html
+
 **Trump’s Lawyer Assailed Michael Cohen’s Credibility**\
 `Also, the return of ‘Bridgerton’`\
 https://nytimes.com/2024/05/16/briefing/michael-cohen-nato.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/insider/journalist-mormon-missionaries.html
 **F.D.A. Approves Drug for Persistently Deadly Form of Lung Cancer**\
 `The treatment is for patients with small cell lung cancer, which afflicts about 35,000 people in the U.S. a year.`\
 https://nytimes.com/2024/05/16/health/fda-amgen-small-cell-lung-cancer-imdelltra.html
-
-**Friday Briefing: NATO Considers Sending Trainers to Ukraine**\
-`Also, Michael Cohen kept his cool under cross-examination.`\
-https://nytimes.com/2024/05/16/world/asia/nato-ukraine-cohen-trump-asia.html
 
