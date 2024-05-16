@@ -1,3 +1,11 @@
+**Read the Texas Governor’s Pardon**\
+`Gov. Greg Abbott pardoned a man who was convicted of fatally shooting a protester during a Black Lives Matter demonstration in the summer of 2020, fulfilling a promise he made last year amid pressure from conservatives.`\
+https://nytimes.com/interactive/2024/05/16/us/daniel-perry-texas-abbott-pardon.html
+
+**The Pizza Connection: How to Feed a Defendant With Secret Service Protection?**\
+`Over the course of the last several weeks, Donald Trump and his legal team have lunched on sandwiches, fast food and pizzas.`\
+https://nytimes.com/2024/05/16/nyregion/trump-trial-pizza-lunch.html
+
 **Texas Governor Pardons Man in Fatal Shooting of Protester in 2020**\
 `The man, Daniel S. Perry, was convicted of killing a protester during a Black Lives Matter demonstration in Austin.`\
 https://nytimes.com/2024/05/16/us/texas-abbott-pardon-daniel-perry.html
