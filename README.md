@@ -1,3 +1,7 @@
+**How Israeli Extremists Won**\
+`We explain the lawlessness in the West Bank.`\
+https://nytimes.com/2024/05/16/briefing/how-israeli-extremists-won.html
+
 **What to Know About the Shooting of Slovakia’s Prime Minister**\
 `Prime Minister Robert Fico was shot five times and has undergone emergency surgery. His condition remains serious, officials said.`\
 https://nytimes.com/2024/05/16/world/europe/robert-fico-slovakia-shooting-what-to-know.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/world/middleeast/icj-rafah-israel-gaza-south-afri
 **Aid unloaded from ships will reach Gaza ‘in the coming days,’ the U.S. military says.**\
 `By Victoria Kim`\
 https://nytimes.com/live/2024/05/16/world/israel-gaza-war-hamas-rafah/aid-unloaded-from-ships-will-reach-gaza-in-the-coming-days-the-us-military-says
-
-**With Debate Deal, Trump and Biden Sideline a Storied Campaign Institution**\
-`For nearly 40 years, the Commission on Presidential Debates has made the rules for the most-watched events in politics. This year, both campaigns said no thanks.`\
-https://nytimes.com/2024/05/16/us/politics/campaign-debates-trump-biden.html
 
