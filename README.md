@@ -1,3 +1,7 @@
+**Overlooked No More: Bill Hosokawa, Journalist Who Chronicled Japanese American History**\
+`He fought prejudice and incarceration during World War II to lead a successful career, becoming one of the first editors of color at a metropolitan newspaper.`\
+https://nytimes.com/2024/05/16/obituaries/bill-hosokawa-overlooked.html
+
 **California’s Governor Accuses Trump of ‘Open Corruption’ at Climate Meeting**\
 `Gavin Newsom, speaking at the Vatican, used sharp language to describe the former president’s appeal to fossil fuel executives for campaign donations.`\
 https://nytimes.com/2024/05/16/climate/newsom-trump-corruption.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/opinion/supreme-court-thomas-kavanaugh-alito.html
 **Here’s What Makes WordleBot Tick**\
 `The bot’s creator, along with the game’s editor, take you on a tour of its inner workings.`\
 https://nytimes.com/2024/05/16/crosswords/wordlebot-games-app.html
-
-**‘The Strangers: Chapter 1’ Review: Crowded House**\
-`A reboot of the 2008 home invasion film “The Strangers” brings back masked assailants and brutal violence but leaves originality behind.`\
-https://nytimes.com/2024/05/16/movies/the-strangers-chapter-1-review.html
 
