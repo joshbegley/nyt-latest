@@ -1,3 +1,7 @@
+**DeSantis Signs Law Deleting Climate Change From Florida Policy**\
+`The law also stops programs designed to encourage renewable energy and conservation in a state that is highly vulnerable to the impacts of climate change.`\
+https://nytimes.com/2024/05/15/climate/desantis-climate-change-florida.html
+
 **Far-Right Candidate in Missouri Draws Backlash for Homophobic Video**\
 `Valentina Gomez’s online trolling campaign, rife with homophobia and attacks against transgender people, has prompted condemnation and scrutiny online.`\
 https://nytimes.com/2024/05/15/us/politics/valentina-gomez-video-backlash.html

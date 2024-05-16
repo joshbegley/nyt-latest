@@ -1,3 +1,7 @@
+**DeSantis Signs Law Deleting Climate Change From Florida Policy**\
+`The law also stops programs designed to encourage renewable energy and conservation in a state that is highly vulnerable to the impacts of climate change.`\
+https://nytimes.com/2024/05/15/climate/desantis-climate-change-florida.html
+
 **Far-Right Candidate in Missouri Draws Backlash for Homophobic Video**\
 `Valentina Gomez’s online trolling campaign, rife with homophobia and attacks against transgender people, has prompted condemnation and scrutiny online.`\
 https://nytimes.com/2024/05/15/us/politics/valentina-gomez-video-backlash.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/15/opinion/darfur-sudan-genocide.html
 **Trump Is Still at War With the Constitution**\
 `What his rants about protesters say about his authoritarian streak.`\
 https://nytimes.com/2024/05/15/opinion/trump-constitution-protests.html
-
-**Robert Menendez’s Corruption Trial Opens: 5 Takeaways**\
-`Senator Robert Menendez faces a dizzying array of bribery and corruption charges. The heart of his defense: Do not confuse the senator for his wife.`\
-https://nytimes.com/2024/05/15/nyregion/bob-menendez-trial-takeaways.html
 
