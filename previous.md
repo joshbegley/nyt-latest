@@ -1,3 +1,15 @@
+**Russia Expels British Diplomat After U.K. Booted His Counterpart**\
+`Russia also warned of further action, while the British foreign secretary called the expulsion a “desperate move.”`\
+https://nytimes.com/2024/05/16/world/europe/russia-british-diplomat-expel.html
+
+**Hochul Meets the Pope, and Reflects on Her Father and Irish Catholicism**\
+`At a climate change summit at the Vatican, Gov. Kathy Hochul positioned New York State as a leader in pursuing environmental goals, but also recalled her late father.`\
+https://nytimes.com/2024/05/16/nyregion/hochul-pope-climate.html
+
+**The U.S. Is Easing Marijuana Restrictions. Here’s How It Works.**\
+`A new federal rule would reclassify marijuana as a less-dangerous, Schedule III drug. It’s a significant shift, even as it does not legalize the drug.`\
+https://nytimes.com/2024/05/16/us/politics/marijuana-schedule-drug-biden.html
+
 **In South Texas, Henry Cuellar’s Case Stirs an Old Feeling: Distrust**\
 `The Laredo congressman faces bribery charges, and some voters and party leaders worry that his legal troubles could dampen Democratic turnout.`\
 https://nytimes.com/2024/05/16/us/politics/cuellar-south-texas-voters.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/05/16/your-money/managing-debt.html
 **35 Years Later, the Remains Known as ‘Chimney Doe’ Have a Name and a Face**\
 `A skeleton found in the chimney of a Wisconsin music store in 1989 has been identified, relaunching a police investigation that had been dormant for decades.`\
 https://nytimes.com/2024/05/16/us/skeleton-dna-identification-wisconsin.html
-
-**How Media Outlets Are Covering Michael Cohen’s Testimony**\
-`Conservative outlets have painted Mr. Cohen as a traitor to the conservative cause, while liberal organizations focused on what he said he did for Donald J. Trump.`\
-https://nytimes.com/2024/05/16/business/media/media-coverage-michael-cohen.html
-
-**As Russia Advances, NATO Considers Sending Trainers Into Ukraine**\
-`The move could draw the United States and Europe more directly into the war. The Biden administration continues to say there will be no American troops on the ground.`\
-https://nytimes.com/2024/05/16/us/politics/nato-ukraine.html
-
-**Republicans Flock to Trump’s Trial, Risking Control of the House Floor**\
-`On Thursday, an entourage of about 20 accompanied the former president to court. Among them were many lawmakers.`\
-https://nytimes.com/2024/05/16/nyregion/republicans-gaetz-trump-trial.html
 
