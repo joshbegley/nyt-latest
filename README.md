@@ -1,3 +1,11 @@
+**U.N. Court Will Hear Arguments from South Africa on Israel’s Actions in Gaza**\
+`South Africa was expected to ask the court to order Israel to immediately withdraw from the southern Gaza city of Rafah, where more than a million Palestinians had sought shelter from the war.`\
+https://nytimes.com/2024/05/16/world/middleeast/icj-rafah-israel-gaza-south-africa.html
+
+**Aid unloaded from ships will reach Gaza ‘in the coming days,’ the U.S. military says.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/05/16/world/israel-gaza-war-hamas-rafah/aid-unloaded-from-ships-will-reach-gaza-in-the-coming-days-the-us-military-says
+
 **With Debate Deal, Trump and Biden Sideline a Storied Campaign Institution**\
 `For nearly 40 years, the Commission on Presidential Debates has made the rules for the most-watched events in politics. This year, both campaigns said no thanks.`\
 https://nytimes.com/2024/05/16/us/politics/campaign-debates-trump-biden.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/16/opinion/kristi-got-her-gun.html
 **36 Hours on Minorca**\
 `This slow-paced Spanish island offers a quieter and wilder retreat than its more touristy neighbors.`\
 https://nytimes.com/interactive/2024/05/16/travel/things-to-do-menorca.html
-
-**Yves Klein’s Leap Into the Blue (With Living Paintbrushes)**\
-`A gallery shows works on paper with roots in performance art, and a film that documents their creation.`\
-https://nytimes.com/2024/05/16/arts/design/yves-klein-blue-levy-gorvy-dayan.html
-
-**With Ukraine Funded, New Fight Emerges in Congress Over Pentagon Spending**\
-`Mitch McConnell and other top Republicans want more federal money for the military. But Democrats say domestic programs must get an equivalent boost.`\
-https://nytimes.com/2024/05/16/us/defense-spending-pentagon-congress-mcconnell.html
 
