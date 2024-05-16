@@ -26,7 +26,7 @@ https://nytimes.com/2024/05/16/us/detroit-growth-census.html
 `Quotation of the Day for Thursday, May 16, 2024.`\
 https://nytimes.com/2024/05/15/pageoneplus/quotation-of-the-day-when-did-everything-turn-into-a-journey.html
 
-**University of California Workers Vote to Authorize Strike in Rebuke Over Protest Crackdowns**\
+**University of California Workers Authorize Union to Call for Strike Over Protest Crackdowns**\
 `A union representing about 48,000 academic workers said that campus leaders mishandled pro-Palestinian demonstrations. The vote gives the union’s executive board the ability to call a strike at any time.`\
 https://nytimes.com/2024/05/15/us/university-of-california-strike-authorization-palestinian-protest.html
 
