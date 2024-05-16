@@ -1,3 +1,7 @@
+**Gets the Ball Rolling**\
+`Sara Muchnick makes her New York Times Crossword debut.`\
+https://nytimes.com/2024/05/15/crosswords/daily-puzzle-2024-05-16.html
+
 **Quotation of the Day: When Did Everything Turn Into a ‘Journey’?**\
 `Quotation of the Day for Thursday, May 16, 2024.`\
 https://nytimes.com/2024/05/15/pageoneplus/quotation-of-the-day-when-did-everything-turn-into-a-journey.html
