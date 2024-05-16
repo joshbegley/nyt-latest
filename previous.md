@@ -1,3 +1,15 @@
+**University of California Workers Authorize Strike in Rebuke Over Protest Crackdowns**\
+`A union representing about 48,000 academic workers, many of them graduate students, said that campus leaders mishandled pro-Palestinian demonstrations.`\
+https://nytimes.com/2024/05/15/us/university-of-california-strike-authorization-palestinian-protest.html
+
+**Review: In ‘Invasive Species,’ the Acting Bug Bites, Dramatically**\
+`Maia Novi stars in her play about a Hollywood-struck actress from Argentina who stops at Yale’s drama school and an inpatient psych ward on her way.`\
+https://nytimes.com/2024/05/15/theater/review-invasive-species-novi.html
+
+**Gets the Ball Rolling**\
+`Sarah Muchnick makes her New York Times Crossword debut.`\
+https://nytimes.com/2024/05/15/crosswords/daily-puzzle-2024-05-16.html
+
 **DeSantis Signs Law Deleting Climate Change From Florida Policy**\
 `The law also stops programs designed to encourage renewable energy and conservation in a state that is highly vulnerable to the impacts of climate change.`\
 https://nytimes.com/2024/05/15/climate/desantis-climate-change-florida.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/05/15/nyregion/robert-menendez-bribery-trial.html
 **Slovakia has largely charted its own course since the fall of the Soviet Union.**\
 `has`\
 https://nytimes.com/live/2024/05/15/world/slovakia-prime-minister-fico-shooting/slovakia-has-largely-charted-its-own-course-since-the-fall-of-the-soviet-union
-
-**To Talk With Putin or Iran, the West Turns to the World’s Nuclear Inspector**\
-`Rafael Grossi took over the International Atomic Energy Agency five years ago at what now seems like a far less fraught moment. With atomic fears everywhere, the inspector is edging toward mediator.`\
-https://nytimes.com/2024/05/15/us/politics/rafael-grossi-iaea-putin-iran.html
-
-**From the Embers of an Old Genocide, a New One May Be Emerging**\
-`While the world’s attention is focused on Ukraine and Gaza, Arab forces in Sudan seem to be trying to eliminate non-Arab tribes.`\
-https://nytimes.com/2024/05/15/opinion/darfur-sudan-genocide.html
-
-**Trump Is Still at War With the Constitution**\
-`What his rants about protesters say about his authoritarian streak.`\
-https://nytimes.com/2024/05/15/opinion/trump-constitution-protests.html
 

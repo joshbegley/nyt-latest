@@ -1,3 +1,15 @@
+**University of California Workers Authorize Strike in Rebuke Over Protest Crackdowns**\
+`A union representing about 48,000 academic workers, many of them graduate students, said that campus leaders mishandled pro-Palestinian demonstrations.`\
+https://nytimes.com/2024/05/15/us/university-of-california-strike-authorization-palestinian-protest.html
+
+**Review: In ‘Invasive Species,’ the Acting Bug Bites, Dramatically**\
+`Maia Novi stars in her play about a Hollywood-struck actress from Argentina who stops at Yale’s drama school and an inpatient psych ward on her way.`\
+https://nytimes.com/2024/05/15/theater/review-invasive-species-novi.html
+
+**Gets the Ball Rolling**\
+`Sarah Muchnick makes her New York Times Crossword debut.`\
+https://nytimes.com/2024/05/15/crosswords/daily-puzzle-2024-05-16.html
+
 **DeSantis Signs Law Deleting Climate Change From Florida Policy**\
 `The law also stops programs designed to encourage renewable energy and conservation in a state that is highly vulnerable to the impacts of climate change.`\
 https://nytimes.com/2024/05/15/climate/desantis-climate-change-florida.html
