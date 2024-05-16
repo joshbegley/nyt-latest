@@ -1,3 +1,7 @@
+**How Media Outlets Are Covering Michael Cohen’s Testimony**\
+`Conservative outlets have painted Mr. Cohen as a traitor to the conservative cause, while liberal organizations focused on what he said he did for Donald J. Trump.`\
+https://nytimes.com/2024/05/16/business/media/media-coverage-michael-cohen.html
+
 **As Russia Advances, NATO Considers Sending Trainers Into Ukraine**\
 `The move could draw the United States and Europe more directly into the war. The Biden administration continues to say there will be no American troops on the ground.`\
 https://nytimes.com/2024/05/16/us/politics/nato-ukraine.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/obituaries/bill-hosokawa-overlooked.html
 **Gov. Gavin Newsom Accuses Trump of ‘Open Corruption’ at Climate Meeting**\
 `The California governor, speaking at the Vatican, used sharp language to describe the former president’s appeal to fossil fuel executives for campaign donations.`\
 https://nytimes.com/2024/05/16/climate/newsom-trump-corruption.html
-
-**Iraqi groups close to Iran are joining in strikes on Israel.**\
-`In recent weeks Iraqi armed groups have launched near daily attacks on Israel, saying they are showing their support for Palestinians.`\
-https://nytimes.com/live/2024/05/16/world/israel-gaza-war-hamas-rafah/iraqi-groups-close-to-iran-are-joining-in-strikes-on-israel
 
