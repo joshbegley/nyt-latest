@@ -1,36 +1,36 @@
-**Help! Our Cruise Operator Went Bankrupt and We Are Out $17,905.**\
-`A couple purchased an Arabian Sea voyage, but Vantage, the cruise company, went under. Their travel insurance was supposed to cover financial default, but the claim was repeatedly denied.`\
-https://nytimes.com/2024/05/16/travel/travel-insurance-bankruptcy-cruise.html
+**The Nerve of Madonna to Pull It Off, Again**\
+`If this were the last tour of Madonna’s career, she would retire as the most influential female pop star of all time.`\
+https://nytimes.com/2024/05/16/opinion/madonna-celebration-tour.html
 
-**How the Language of TV is Influencing How We See Ourselves**\
-`TikTok has spawned a curious new way of understanding ordinary life: villain arcs, main character energy and seasons.`\
-https://nytimes.com/2024/05/16/magazine/tv-jargon-tiktok.html
+**The Hard Road to ‘Furiosa’ Was Filled With Detours**\
+`For George Miller, Anya Taylor-Joy and their crew, a series of natural disasters made for an arduous production.`\
+https://nytimes.com/2024/05/16/movies/furiosa-george-miller-anya-taylor-joy.html
 
-**Which Cities Are Converting the Most Commercial Spaces Into Apartments?**\
-`After a slight dip, the creation of new adaptive reuse units rose in 2023.`\
-https://nytimes.com/2024/05/16/realestate/office-hotel-residential-conversions.html
+**After Making Altars to Her Icons, an Artist Builds Her Own Legacy**\
+`A powerful and overdue exhibition at El Museo del Barrio links Amalia Mesa-Bains’s genre-defying installations for the first time.`\
+https://nytimes.com/2024/05/16/arts/design/amalia-mesa-bains-museo-del-barrio.html
 
-**Homes for Sale in New York and Connecticut**\
-`This week’s properties are a five-bedroom in Port Washington, N.Y., and a two-bedroom in Guilford, Conn.`\
-https://nytimes.com/2024/05/16/realestate/housing-market-near-nyc.html
+**Democrats Aim for a Breakthrough for Black Women in the Senate**\
+`The Democratic Party has taken heat for not backing Black female candidates in competitive, statewide races, but in November, voters could double the number of Black women ever elected to the Senate.`\
+https://nytimes.com/2024/05/16/us/politics/black-women-senate.html
 
-**Homes for Sale in Manhattan and Brooklyn**\
-`This week’s properties are in Carnegie Hill, NoHo and Ocean Hill.`\
-https://nytimes.com/2024/05/16/realestate/housing-market-nyc.html
+**‘X-Men ’97’ Revisits the Franchise’s Roots and Finds Them More Timely Than Ever**\
+`The Disney+ animated series builds on its 1990s predecessor, exploring themes of prejudice and change through the world of Professor Charles Xavier and his mutant pupils.`\
+https://nytimes.com/2024/05/16/arts/television/x-men-97-episode-10-finale.html
 
-**Love Dessert but Hate Cuteness? Goth Cakes May Be for You.**\
-`Some bakers are embracing the dark side.`\
-https://nytimes.com/2024/05/16/t-magazine/goth-cakes.html
+**A Former Prosecutor on the ‘Incredibly Strong Case’ Against Trump**\
+`How Michael Cohen’s testimony could affect the outcome of the former president’s trial.`\
+https://nytimes.com/2024/05/16/opinion/trump-michael-cohen-testimony.html
 
-**How to Decorate a Goth Cake**\
-`The cake artist Sophia Stolz uses velvet coloring spray, decorative piercings and generous globs of icing.`\
-https://nytimes.com/video/t-magazine/100000009445903/how-to-decorate-a-goth-cake.html
+**One Area Where Biden Is Leading Trump: His Number of Donors**\
+`President Biden recently overtook former President Donald J. Trump in the total number of donors who have given to his campaign, which is often seen as a proxy for voter engagement.`\
+https://nytimes.com/interactive/2024/05/16/us/elections/biden-trump-donors.html
 
-**Does Your Dog Really Belong in This Restaurant?**\
-`According to the New York City Department of Health and many diners with service dogs, the answer is no. But some dog owners can’t part with their pets.`\
-https://nytimes.com/2024/05/16/dining/dogs-nyc-restaurants.html
+**U.A.W. Effort to Organize Mercedes Workers in Alabama Has High Stakes**\
+`Southern political leaders say a win for the United Automobile Workers would threaten their economies. Activists want to strike a blow against a system they say exploits the poor.`\
+https://nytimes.com/2024/05/16/business/uaw-mercedes-benz-alabama-vote.html
 
-**‘Back to Black’ Review: No, No, No**\
-`The facts get softened and shuffled for an Amy Winehouse biopic that leaves her perspective at the edges.`\
-https://nytimes.com/2024/05/16/movies/back-to-black-review.html
+**How ‘Young Sheldon’ Successfully Rode the Turmoil in TV**\
+`The seven-year run of the hit series, which ends on Thursday, mirrors the story of the television business during that time.`\
+https://nytimes.com/2024/05/16/business/media/young-sheldon-finale-netflix.html
 
