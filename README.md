@@ -1,3 +1,7 @@
+**The Hardening of the Israeli Psyche**\
+`Attitudes toward the “Palestinian problem” range from detached fatigue to the belief that driving Palestinians into submission is God’s work.`\
+https://nytimes.com/2024/05/16/opinion/israeli-palestine-psyche.html
+
 **Russia Expels British Diplomat After U.K. Booted His Counterpart**\
 `Russia also warned of further action, while the British foreign secretary called the expulsion a “desperate move.”`\
 https://nytimes.com/2024/05/16/world/europe/russia-british-diplomat-expel.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/science/pregnancy-energy-costs.html
 **Managing Your Debt**\
 `How to make a plan for tackling your debt, improving your credit score and feel like the money you owe isn’t controlling you.`\
 https://nytimes.com/2024/05/16/your-money/managing-debt.html
-
-**35 Years Later, the Remains Known as ‘Chimney Doe’ Have a Name and a Face**\
-`A skeleton found in the chimney of a Wisconsin music store in 1989 has been identified, relaunching a police investigation that had been dormant for decades.`\
-https://nytimes.com/2024/05/16/us/skeleton-dna-identification-wisconsin.html
 
