@@ -3,7 +3,7 @@
 https://nytimes.com/2024/05/16/t-magazine/charles-gaines-freedom-monument-sculpture-park.html
 
 **Finding an Opening, Trump’s Team Catches Michael Cohen Unawares**\
-`Even a single slip-up could harm Cohen’s credibility with a juror.`\
+`Even a single slip-up could harm a witness’s credibility with a juror.`\
 https://nytimes.com/live/2024/05/14/opinion/thepoint/trump-trial-cohen-testimony
 
 **After Outcry, Concertgebouw Will Allow Jerusalem Quartet to Perform**\

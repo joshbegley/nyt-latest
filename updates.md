@@ -1,3 +1,7 @@
+**Finding an Opening, Trump’s Team Catches Michael Cohen Unawares**\
+`Even a single slip-up could harm a witness’s credibility with a juror.`\
+https://nytimes.com/live/2024/05/14/opinion/thepoint/trump-trial-cohen-testimony
+
 **Charles Gaines, By the Numbers**\
 `The artist on his new work at the Freedom Monument Sculpture Park in Alabama, the development of his practice and taking drum lessons from Jimmie Smith.`\
 https://nytimes.com/2024/05/16/t-magazine/charles-gaines-freedom-monument-sculpture-park.html
