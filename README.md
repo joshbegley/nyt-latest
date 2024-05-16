@@ -1,3 +1,7 @@
+**Serbia Approves Contract With Jared Kushner for Hotel Complex**\
+`The redevelopment plans for a bombed NATO site in Belgrade in partnership with the government provoked immediate criticism in Serbia.`\
+https://nytimes.com/2024/05/16/us/politics/kushner-serbia-hotel.html
+
 **Transcript of Trump Manhattan Trial, May 14, 2024**\
 `New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
 https://nytimes.com/interactive/2024/05/16/nyregion/trump-hush-money-trial-transcript-may-14.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/learning/what-is-your-relationship-with-fast-food
 **Word of the Day: demarcation**\
 `This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/05/16/learning/word-of-the-day-demarcation.html
-
-**Markets Keep Rising Despite Inflation Concerns**\
-`Stocks on both sides of the Atlantic set records as investors foresee interest rates moving in one direction: down.`\
-https://nytimes.com/2024/05/16/business/dealbook/inflation-stocks-markets.html
 
