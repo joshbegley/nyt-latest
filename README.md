@@ -1,3 +1,11 @@
+**Friday Briefing: NATO Considers Sending Trainers to Ukraine**\
+`Also, Michael Cohen kept his cool under cross-examination.`\
+https://nytimes.com/2024/05/16/world/asia/nato-ukraine-cohen-trump-asia.html
+
+**Harvard Ignored Antisemitism Advisory Group’s Recommendations, House Committee Says**\
+`In a report, the committee listed what it said were Harvard’s failures to crack down on antisemitism. Harvard said the report gives an “incomplete and inaccurate view” of its efforts.`\
+https://nytimes.com/2024/05/16/us/harvard-antisemitism-house-report.html
+
 **Saintly, Seductive or Sadistic? Why We Can’t Make Up Our Minds About Nuns.**\
 `In uncertain times, religious sisters are often invoked as vessels for collective doubt.`\
 https://nytimes.com/2024/05/16/t-magazine/nuns-film-immaculate-doubt-new-boy.html
@@ -11,7 +19,7 @@ https://nytimes.com/2024/05/16/world/europe/slovakia-fico-toxic-politics.html
 https://nytimes.com/interactive/2024/05/16/us/daniel-perry-texas-abbott-pardon.html
 
 **The Pizza Connection: How to Feed a Defendant With Secret Service Protection?**\
-`Over the course of the last several weeks, Donald Trump and his legal team have lunched on sandwiches, fast food and pizzas.`\
+`Over the course of the last several weeks, Donald Trump and his legal team have lunched on fast food, sandwiches and pizzas.`\
 https://nytimes.com/2024/05/16/nyregion/trump-trial-pizza-lunch.html
 
 **Texas Governor Pardons Man in Fatal Shooting of Protester in 2020**\
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/16/us/politics/trump-debates-rfk-jr.html
 **6 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/05/16/books/review/new-books-recommendations.html
-
-**Three Men Charged in Wildfire at Isle Royale National Park in Michigan**\
-`The fire burned six acres over 13 days in August 2022 at the national park in Lake Superior.`\
-https://nytimes.com/2024/05/16/us/michigan-men-isle-royale-fire-charges.html
-
-**Trump’s Lawyer and Cohen Match Wits in Crucial Cross-Examination**\
-`Michael D. Cohen tried to parry attacks on his honesty as Todd Blanche, Donald J. Trump’s lawyer, tried to destroy his credibility with jurors.`\
-https://nytimes.com/2024/05/16/nyregion/trump-trial-cohen-blanche.html
 

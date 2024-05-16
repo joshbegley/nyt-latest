@@ -1,3 +1,11 @@
+**Saintly, Seductive or Sadistic? Why We Can’t Make Up Our Minds About Nuns.**\
+`In uncertain times, religious sisters are often invoked as vessels for collective doubt.`\
+https://nytimes.com/2024/05/16/t-magazine/nuns-film-immaculate-doubt-new-boy.html
+
+**Slovakia’s Politics Were Toxic Long Before Its Prime Minister Was Shot**\
+`Years of vitriolic rhetoric, worsened by the Covid-19 pandemic and the war in Ukraine, left Slovakia with bitter political division.`\
+https://nytimes.com/2024/05/16/world/europe/slovakia-fico-toxic-politics.html
+
 **Read the Texas Governor’s Pardon**\
 `Gov. Greg Abbott pardoned a man who was convicted of fatally shooting a protester during a Black Lives Matter demonstration in the summer of 2020, fulfilling a promise he made last year amid pressure from conservatives.`\
 https://nytimes.com/interactive/2024/05/16/us/daniel-perry-texas-abbott-pardon.html
