@@ -1,3 +1,7 @@
+**Incident at TSMC’s Semiconductor Plant in Arizona Injures One**\
+`The reported explosion did not affect construction at the facility, which helped the Taiwanese company secure a $6.6 billion U.S. grant last month.`\
+https://nytimes.com/2024/05/16/business/tsmc-phoenix.html
+
 **University of California Workers Authorize Union to Call for Strike Over Protest Crackdowns**\
 `A union representing about 48,000 academic workers said that campus leaders mishandled pro-Palestinian demonstrations. The vote gives the union’s executive board the ability to call a strike at any time.`\
 https://nytimes.com/2024/05/15/us/university-of-california-strike-authorization-palestinian-protest.html

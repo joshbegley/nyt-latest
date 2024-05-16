@@ -1,5 +1,5 @@
 **Incident at TSMC’s Semiconductor Plant in Arizona Injures One**\
-`The reported explosion did not affect construction at the facility, which was awarded a $6.6 billion CHIPS Act grant last month.`\
+`The reported explosion did not affect construction at the facility, which helped the Taiwanese company secure a $6.6 billion U.S. grant last month.`\
 https://nytimes.com/2024/05/16/business/tsmc-phoenix.html
 
 **R.F.K. Jr. Draws Another $8 Million From His Running Mate, Nicole Shanahan**\
