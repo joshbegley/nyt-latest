@@ -1,3 +1,7 @@
+**Read the document**\
+`A classified document obtained by The Times describes a meeting in March 2024, when Maj.`\
+https://nytimes.com/interactive/2024/05/16/magazine/fox-document-march-24-redacted.html
+
 **16slovakia**\
 `Live Updates: Attempted Killing of Slovakia’s Leader Shocks a Polarized Nation`\
 https://nytimes.com/live/2024/05/16/world/slovakia-prime-minister-fico-shot
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/nyregion/congestion-pricing-lawsuits.html
 **Today’s Wordle Review No. 1,062**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/05/16/crosswords/wordle-review.html
-
-**A Hospital’s Slow Death: As Beth Israel Shrinks, Patient Care Suffers**\
-`Amid a standoff with the state over whether Beth Israel Hospital will close, severely ill patients keep arriving to a hospital that cannot always care for them.`\
-https://nytimes.com/2024/05/16/nyregion/beth-israel-hospital-closing.html
 
