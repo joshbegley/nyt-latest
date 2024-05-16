@@ -1,3 +1,7 @@
+**35 Years Later, the Remains Known as ‘Chimney Doe’ Have a Name and a Face**\
+`A skeleton found in the chimney of a Wisconsin music store in 1989 has been identified, relaunching a police investigation that had been dormant for decades.`\
+https://nytimes.com/2024/05/16/us/skeleton-dna-identification-wisconsin.html
+
 **How Media Outlets Are Covering Michael Cohen’s Testimony**\
 `Conservative outlets have painted Mr. Cohen as a traitor to the conservative cause, while liberal organizations focused on what he said he did for Donald J. Trump.`\
 https://nytimes.com/2024/05/16/business/media/media-coverage-michael-cohen.html
