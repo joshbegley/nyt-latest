@@ -1,3 +1,7 @@
+**Quotation of the Day: When Did Everything Turn Into a ‘Journey’?**\
+`Quotation of the Day for Thursday, May 16, 2024.`\
+https://nytimes.com/2024/05/15/pageoneplus/quotation-of-the-day-when-did-everything-turn-into-a-journey.html
+
 **University of California Workers Vote to Authorize Strike in Rebuke Over Protest Crackdowns**\
 `A union representing about 48,000 academic workers said that campus leaders mishandled pro-Palestinian demonstrations. The vote gives the union’s executive board the ability to call a strike at any time.`\
 https://nytimes.com/2024/05/15/us/university-of-california-strike-authorization-palestinian-protest.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/15/us/j-gary-cooper-dead.html
 **Defense Blames Senator Menendez’s Wife as Bribery Trial Starts**\
 `Senator Robert Menendez is charged in a vast international web of corruption. His federal trial began on Wednesday.`\
 https://nytimes.com/2024/05/15/nyregion/robert-menendez-bribery-trial.html
-
-**Slovakia has largely charted its own course since the fall of the Soviet Union.**\
-`has`\
-https://nytimes.com/live/2024/05/15/world/slovakia-prime-minister-fico-shooting/slovakia-has-largely-charted-its-own-course-since-the-fall-of-the-soviet-union
 
