@@ -1,3 +1,23 @@
+**After Outcry, Concertgebouw Will Allow Jerusalem Quartet to Perform**\
+`The Dutch concert hall reversed course after facing criticism for canceling performances by the Israeli ensemble because of security concerns.`\
+https://nytimes.com/2024/05/16/arts/music/concertgebouw-jerusalem-quartet.html
+
+**Pizza Boxes Finally Get Their Own Recycling Bin**\
+`The Central Park Conservancy is testing a new receptacle — square, with a narrow slot — in an effort to keep trash under control.`\
+https://nytimes.com/2024/05/16/dining/pizza-box-recycling-bins-nyc.html
+
+**Daniel Ricciardo Continues to Struggle in Formula 1**\
+`After being cut from McLaren in 2022, he is now racing for RB, but the points have been slow to come.`\
+https://nytimes.com/2024/05/16/sports/autoracing/f1-daniel-ricciardo.html
+
+**Frédéric Vasseur’s Plan for Ferrari Begins to Pay Off**\
+`As a Frenchman running a beloved Italian team, fans weren’t happy at first, but the team is now second for the constructors’ title.`\
+https://nytimes.com/2024/05/16/sports/autoracing/f1-frederic-vasseur-ferrari.html
+
+**Formula 1’s Emilia-Romagna Returns After Last Year’s Cancellation**\
+`The race was called off after flooding devastated the region. The area is still digging out.`\
+https://nytimes.com/2024/05/16/sports/autoracing/f1-emilia-romagna-flooding-imola.html
+
 **Michael Cohen and Todd Blanche Clash Over 2016 Call to Trump’s Bodyguard**\
 `A current lawyer for Donald J. Trump, Todd Blanche, accused his former lawyer and fixer, Michael D. Cohen, of calling to complain about a teenage prankster, but the witness insisted he called to discuss a hush-money payment.`\
 https://nytimes.com/2024/05/16/nyregion/trump-cohen-blanche-phone-call.html
@@ -13,24 +33,4 @@ https://nytimes.com/2024/05/16/movies/megalopolis-francis-ford-coppolas-guide.ht
 **Gazans Criticize Temporary Pier Installed by U.S. Military**\
 `A temporary floating pier was set up by the U.S. military to deliver humanitarian aid to Gaza. Israel’s offensive in Rafah has stopped nearly all aid from entering through two main land border crossings.`\
 https://nytimes.com/video/world/middleeast/100000009472322/gaza-aid-us-pier-ships-coast.html
-
-**Snow Lifts Great Salt Lake From Record Lows, but Dangers Persist**\
-`The lake remains below healthy levels and experts warn the increase could reduce the pressure to conserve water.`\
-https://nytimes.com/2024/05/16/climate/great-salt-lake-water-levels.html
-
-**‘Past Lies’ on Hulu Is a Swirly Spanish Mystery**\
-`The drama is the latest mystery about a group of now-grown women haunted by their teenage pasts.`\
-https://nytimes.com/2024/05/16/arts/television/past-lies-hulu-streaming.html
-
-**Teen Who Ate Spicy ‘One Chip Challenge’ Product Died of Cardiopulmonary Arrest**\
-`A subsidiary of the Hershey Company pulled the chip from store shelves in September after Harris Wolobah, 14, ate one and died.`\
-https://nytimes.com/2024/05/16/us/teen-spicy-chip-death.html
-
-**The Cost of Competing With China**\
-`The Biden administration is betting that new China tariffs will be politically popular, even if they could slow the transition from fossil fuels.`\
-https://nytimes.com/2024/05/16/climate/biden-china-tarrifs-evs-climate.html
-
-**Lets Chill Out About Apostrophes**\
-`If Chaucer got through life without fussing over that tiny punctuation mark, why shouldn’t we?`\
-https://nytimes.com/2024/05/16/opinion/lets-chill-out-about-apostrophes.html
 
