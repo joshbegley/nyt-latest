@@ -1,6 +1,6 @@
 **Incident at TSMC’s Semiconductor Plant in Arizona Injures One**\
 `The reported explosion did not affect construction at the facility, which was awarded a $6.6 billion CHIPS Act grant last month.`\
-https://nytimes.com/2024/05/16/business/tsmc-phoenix-explosion.html
+https://nytimes.com/2024/05/16/business/tsmc-phoenix.html
 
 **R.F.K. Jr. Draws Another $8 Million From His Running Mate, Nicole Shanahan**\
 `Ms. Shanahan, who has fueled Robert F. Kennedy Jr.’s campaign financially since becoming his running mate, has now poured nearly $15 million into the long-shot effort to elect him president.`\
