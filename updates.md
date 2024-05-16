@@ -1,3 +1,7 @@
+**16trump-trial**\
+`Live Updates: Cross-Examination of Michael Cohen Continues in Trump Trial`\
+https://nytimes.com/live/2024/05/16/nyregion/trump-trial-cohen-hush-money
+
 **Columbia Faculty Group Passes No-Confidence Resolution Against President**\
 `Hundreds of professors at the university weighed in on the resolution, which said the president, Nemat Shafik, had committed an “unprecedented assault on student’s rights.”`\
 https://nytimes.com/2024/05/16/nyregion/president-shafik-columbia-faculty-vote.html

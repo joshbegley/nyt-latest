@@ -23,7 +23,7 @@ https://nytimes.com/2024/05/16/us/wayfarers-chapel-landslide.html
 https://nytimes.com/2024/05/16/world/middleeast/israel-soldiers-killed-gaza-tank-fire.html
 
 **16trump-trial**\
-`Live Updates: Cross-Examination of Michael Cohen to Continue in Trump Trial`\
+`Live Updates: Cross-Examination of Michael Cohen Continues in Trump Trial`\
 https://nytimes.com/live/2024/05/16/nyregion/trump-trial-cohen-hush-money
 
 **Slovakia’s officials appeal for calm in a deeply polarized country.**\
