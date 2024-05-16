@@ -2,7 +2,7 @@
 `Ukraine said it was slowing Russia’s push near Kharkiv, but still faced pitched battles there, as well as other hotly contested areas farther south.`\
 https://nytimes.com/2024/05/16/world/europe/ukraine-kharkiv-russia.html
 
-**Attempted Killing of Slovakia’s Leader Shocks a Polarized Nation**\
+**Here are the latest developments.**\
 `Officials said the condition of Prime Minister Robert Fico had stabilized, hours after his shooting. The government was expected to focus on Thursday on security breaches.`\
 https://nytimes.com/live/2024/05/16/world/slovakia-prime-minister-fico-shot/prime-minister-robert-fico-shooting-slovakia
 
