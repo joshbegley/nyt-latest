@@ -1,3 +1,7 @@
+**Snow Lifts Great Salt Lake From Record Lows, but Dangers Persist**\
+`The lake remains below healthy levels and experts warn the increase could reduce the pressure to conserve water.`\
+https://nytimes.com/2024/05/16/climate/great-salt-lake-water-levels.html
+
 **‘Past Lives’ on Hulu Is a Swirly Spanish Mystery**\
 `The drama is the latest mystery about a group of now-grown women haunted by their teenage pasts.`\
 https://nytimes.com/2024/05/16/arts/television/past-lies-hulu-streaming.html
@@ -6,7 +10,7 @@ https://nytimes.com/2024/05/16/arts/television/past-lies-hulu-streaming.html
 `A subsidiary of the Hershey Company pulled the chip from store shelves in September after Harris Wolobah, 14, ate one and died.`\
 https://nytimes.com/2024/05/16/us/teen-spicy-chip-death.html
 
-**The Cost of Competing with China**\
+**The Cost of Competing With China**\
 `The Biden administration is betting that new China tariffs will be politically popular, even if they could slow the transition from fossil fuels.`\
 https://nytimes.com/2024/05/16/climate/biden-china-tarrifs-evs-climate.html
 
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/opinion/israeli-palestine-psyche.html
 **Russia Expels British Diplomat After U.K. Booted His Counterpart**\
 `Russia also warned of further action, while the British foreign secretary called the expulsion a “desperate move.”`\
 https://nytimes.com/2024/05/16/world/europe/russia-british-diplomat-expel.html
-
-**Hochul Meets the Pope, and Reflects on Her Father and Irish Catholicism**\
-`At a climate change summit at the Vatican, Gov. Kathy Hochul positioned New York State as a leader in pursuing environmental goals, but also recalled her late father.`\
-https://nytimes.com/2024/05/16/nyregion/hochul-pope-climate.html
 
