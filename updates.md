@@ -1,3 +1,7 @@
+**As Russia Advances, NATO Considers Sending Trainers Into Ukraine**\
+`The move could draw the United States and Europe more directly into the war. The Biden administration continues to say there will be no American troops on the ground.`\
+https://nytimes.com/2024/05/16/us/politics/nato-ukraine.html
+
 **Republicans Flock to Trump’s Trial, Risking Control of the House Floor**\
 `On Thursday, an entourage of about 20 accompanied the former president to court. Among them were many lawmakers.`\
 https://nytimes.com/2024/05/16/nyregion/republicans-gaetz-trump-trial.html
