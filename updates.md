@@ -1,3 +1,7 @@
+**Trump’s Lawyer Assailed Michael Cohen’s Credibility**\
+`Also, the return of ‘Bridgerton’`\
+https://nytimes.com/2024/05/16/briefing/michael-cohen-nato.html
+
 **At Justice Alito’s House, a ‘Stop the Steal’ Symbol on Display**\
 `An upside-down flag, adopted by Trump supporters contesting the Biden victory, flew over the justice’s front lawn as the Supreme Court was considering an election case.`\
 https://nytimes.com/2024/05/16/us/justice-alito-upside-down-flag.html

@@ -1,3 +1,7 @@
+**Trump’s Lawyer Assailed Michael Cohen’s Credibility**\
+`Also, the return of ‘Bridgerton’`\
+https://nytimes.com/2024/05/16/briefing/michael-cohen-nato.html
+
 **At Justice Alito’s House, a ‘Stop the Steal’ Symbol on Display**\
 `An upside-down flag, adopted by Trump supporters contesting the Biden victory, flew over the justice’s front lawn as the Supreme Court was considering an election case.`\
 https://nytimes.com/2024/05/16/us/justice-alito-upside-down-flag.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/health/fda-amgen-small-cell-lung-cancer-imdelltra
 **Friday Briefing: NATO Considers Sending Trainers to Ukraine**\
 `Also, Michael Cohen kept his cool under cross-examination.`\
 https://nytimes.com/2024/05/16/world/asia/nato-ukraine-cohen-trump-asia.html
-
-**Harvard Ignored Antisemitism Advisory Group’s Recommendations, House Committee Says**\
-`In a report, the committee listed what it said were Harvard’s failures to crack down on antisemitism. Harvard said the report gives an “incomplete and inaccurate view” of its efforts.`\
-https://nytimes.com/2024/05/16/us/harvard-antisemitism-house-report.html
 
