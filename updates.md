@@ -1,3 +1,7 @@
+**16slovakia**\
+`Live Updates: Attempted Killing of Slovakia’s Leader Shocks a Polarized Nation`\
+https://nytimes.com/live/2024/05/16/world/slovakia-prime-minister-fico-shot
+
 **Defending in Its North, Ukraine Faces Pressure All Along Front Line**\
 `Ukraine said it was slowing Russia’s push near Kharkiv, but still faced pitched battles there, as well as other hotly contested areas farther south.`\
 https://nytimes.com/2024/05/16/world/europe/ukraine-kharkiv-russia.html

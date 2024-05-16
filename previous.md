@@ -1,3 +1,7 @@
+**16slovakia**\
+`Live Updates: Attempted Killing of Slovakia’s Leader Shocks a Polarized Nation`\
+https://nytimes.com/live/2024/05/16/world/slovakia-prime-minister-fico-shot
+
 **Defending in Its North, Ukraine Faces Pressure All Along Front Line**\
 `Ukraine said it was slowing Russia’s push near Kharkiv, but still faced pitched battles there, as well as other hotly contested areas farther south.`\
 https://nytimes.com/2024/05/16/world/europe/ukraine-kharkiv-russia.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/crosswords/wordle-review.html
 **A Hospital’s Slow Death: As Beth Israel Shrinks, Patient Care Suffers**\
 `Amid a standoff with the state over whether Beth Israel Hospital will close, severely ill patients keep arriving to a hospital that cannot always care for them.`\
 https://nytimes.com/2024/05/16/nyregion/beth-israel-hospital-closing.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/05/16/crosswords/spelling-bee-forum.html
 
