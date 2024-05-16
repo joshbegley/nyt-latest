@@ -1,3 +1,7 @@
+**In Symbolic Vote, House Passes Bill to Force Biden to Reverse Israel Arms Pause**\
+`The legislation has no chance of advancing in Congress or being signed into law. Republicans scheduled a vote anyway in an effort to spotlight Democratic divisions over Israel and rebuke the president.`\
+https://nytimes.com/2024/05/16/us/politics/house-bill-reverse-israel-arms-pause.html
+
 **She Almost Went on a Mormon Mission. She Became a Journalist Instead.**\
 `Lauren Jackson went back to church in London, Paris and Los Angeles to cover the evolution of missionary work.`\
 https://nytimes.com/2024/05/16/insider/journalist-mormon-missionaries.html
@@ -29,8 +33,4 @@ https://nytimes.com/interactive/2024/05/16/us/daniel-perry-texas-abbott-pardon.h
 **The Pizza Connection: How to Feed a Defendant With Secret Service Protection?**\
 `Over the course of the last several weeks, Donald Trump and his legal team have lunched on fast food, sandwiches and pizzas.`\
 https://nytimes.com/2024/05/16/nyregion/trump-trial-pizza-lunch.html
-
-**Texas Governor Pardons Man in Fatal Shooting of Protester in 2020**\
-`The man, Daniel S. Perry, was convicted of killing a protester during a Black Lives Matter demonstration in Austin.`\
-https://nytimes.com/2024/05/16/us/texas-abbott-pardon-daniel-perry.html
 
