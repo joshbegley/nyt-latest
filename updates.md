@@ -1,3 +1,7 @@
+**Markets Keep Rising Despite Inflation Concerns**\
+`Stocks on both sides of the Atlantic set records as investors foresee interest rates moving in one direction: down.`\
+https://nytimes.com/2024/05/16/business/dealbook/inflation-stocks-markets.html
+
 **Walmart Opens the Year With Stronger Sales and Profit**\
 `The largest U.S. retailer had robust quarterly results and an upbeat outlook, giving insight into how consumers are weathering high interest rates.`\
 https://nytimes.com/2024/05/16/business/walmart-q1-earnings.html
