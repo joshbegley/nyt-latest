@@ -1,3 +1,7 @@
+**16trump-trial**\
+`Live Updates: Cross-Examination of Michael Cohen to Continue in Trump Trial`\
+https://nytimes.com/live/2024/05/16/nyregion/trump-trial-cohen-hush-money
+
 **Slovakia’s officials appeal for calm in a deeply polarized country.**\
 `By Cassandra Vinograd and Andrew Higgins`\
 https://nytimes.com/live/2024/05/16/world/slovakia-prime-minister-fico-shot/slovakias-officials-appeal-for-calm-in-a-deeply-polarized-country
