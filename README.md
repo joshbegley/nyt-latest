@@ -1,3 +1,7 @@
+**What Students Are Saying About Making School Lunch Healthier**\
+`New nutrition guidelines will mean less salt and sugar in school meals. Teenagers share whether they think students will embrace the changes.`\
+https://nytimes.com/2024/05/16/learning/what-students-are-saying-about-making-school-lunch-healthier.html
+
 **The Hardening of the Israeli Psyche**\
 `Attitudes toward the “Palestinian problem” range from detached fatigue to the belief that driving Palestinians into submission is God’s work.`\
 https://nytimes.com/2024/05/16/opinion/israeli-palestine-psyche.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/05/16/us/college-campus-protests/heres-the-latest-
 **Scientists Calculated the Energy Needed to Carry a Baby. Shocker: It’s a Lot.**\
 `In humans, the energetic cost of pregnancy is about 50,000 dietary calories — far higher than previously believed, a new study found.`\
 https://nytimes.com/2024/05/16/science/pregnancy-energy-costs.html
-
-**Managing Your Debt**\
-`How to make a plan for tackling your debt, improving your credit score and feel like the money you owe isn’t controlling you.`\
-https://nytimes.com/2024/05/16/your-money/managing-debt.html
 
