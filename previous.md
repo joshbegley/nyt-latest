@@ -1,3 +1,7 @@
+**Columbia Faculty Group Passes No-Confidence Resolution Against President**\
+`Hundreds of professors at the university weighed in on the resolution, which said the president, Nemat Shafik, had committed an “unprecedented assault on student’s rights.”`\
+https://nytimes.com/2024/05/16/nyregion/president-shafik-columbia-faculty-vote.html
+
 **Serbia Approves Contract With Jared Kushner for Hotel Complex**\
 `The redevelopment plans for a bombed NATO site in Belgrade in partnership with the government provoked immediate criticism in Serbia.`\
 https://nytimes.com/2024/05/16/us/politics/kushner-serbia-hotel.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/05/16/world/slovakia-prime-minister-fico-shot/slov
 **What Is Your Relationship With Fast Food?**\
 `Do you love it, hate it or feel something in between?`\
 https://nytimes.com/2024/05/16/learning/what-is-your-relationship-with-fast-food.html
-
-**Word of the Day: demarcation**\
-`This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/05/16/learning/word-of-the-day-demarcation.html
 
