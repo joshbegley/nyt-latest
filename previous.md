@@ -1,3 +1,7 @@
+**Corrections: May 16, 2024**\
+`Corrections that appeared in print on Thursday, May 16, 2024.`\
+https://nytimes.com/2024/05/16/pageoneplus/corrections-may-16-2024.html
+
 **Incident at TSMC’s Semiconductor Plant in Arizona Injures One**\
 `The reported explosion did not affect construction at the facility, which helped the Taiwanese company secure a $6.6 billion U.S. grant last month.`\
 https://nytimes.com/2024/05/16/business/tsmc-phoenix.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/15/pageoneplus/quotation-of-the-day-when-did-everyth
 **University of California Workers Authorize Union to Call for Strike Over Protest Crackdowns**\
 `A union representing about 48,000 academic workers said that campus leaders mishandled pro-Palestinian demonstrations. The vote gives the union’s executive board the ability to call a strike at any time.`\
 https://nytimes.com/2024/05/15/us/university-of-california-strike-authorization-palestinian-protest.html
-
-**Review: In ‘Invasive Species,’ the Acting Bug Bites, Dramatically**\
-`Maia Novi stars in her play about a Hollywood-struck actress from Argentina who stops at Yale’s drama school and an inpatient psych ward on her way.`\
-https://nytimes.com/2024/05/15/theater/review-invasive-species-novi.html
 

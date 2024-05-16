@@ -1,3 +1,7 @@
+**Corrections: May 16, 2024**\
+`Corrections that appeared in print on Thursday, May 16, 2024.`\
+https://nytimes.com/2024/05/16/pageoneplus/corrections-may-16-2024.html
+
 **Incident at TSMC’s Semiconductor Plant in Arizona Injures One**\
 `The reported explosion did not affect construction at the facility, which helped the Taiwanese company secure a $6.6 billion U.S. grant last month.`\
 https://nytimes.com/2024/05/16/business/tsmc-phoenix.html
