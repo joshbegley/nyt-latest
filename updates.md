@@ -1,3 +1,7 @@
+**Heat Stress Is Hitting Caribbean Reefs Earlier Than Ever This Year**\
+`Scientists in the United States are reporting “unprecedented patterns” of surface warming, an ominous sign for coral.`\
+https://nytimes.com/2024/05/16/climate/coral-reefs-heat-stress-bleaching.html
+
 **Finding an Opening, Trump’s Team Catches Michael Cohen Unawares**\
 `Even a single slip-up could harm a witness’s credibility with a juror.`\
 https://nytimes.com/live/2024/05/14/opinion/thepoint/trump-trial-cohen-testimony

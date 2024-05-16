@@ -1,3 +1,7 @@
+**Heat Stress Is Hitting Caribbean Reefs Earlier Than Ever This Year**\
+`Scientists in the United States are reporting “unprecedented patterns” of surface warming, an ominous sign for coral.`\
+https://nytimes.com/2024/05/16/climate/coral-reefs-heat-stress-bleaching.html
+
 **Charles Gaines, By the Numbers**\
 `The artist on his new work at the Freedom Monument Sculpture Park in Alabama, the development of his practice and taking drum lessons from Jimmie Smith.`\
 https://nytimes.com/2024/05/16/t-magazine/charles-gaines-freedom-monument-sculpture-park.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/sports/autoracing/f1-emilia-romagna-flooding-imol
 **Michael Cohen and Todd Blanche Clash Over 2016 Call to Trump’s Bodyguard**\
 `A current lawyer for Donald J. Trump, Todd Blanche, accused his former lawyer and fixer, Michael D. Cohen, of calling to complain about a teenage prankster, but the witness insisted he called to discuss a hush-money payment.`\
 https://nytimes.com/2024/05/16/nyregion/trump-cohen-blanche-phone-call.html
-
-**What to Know About CNN’s Presidential Debate**\
-`The debate, scheduled for June 27, will be one of the earliest presidential debates ever scheduled.`\
-https://nytimes.com/2024/05/16/us/politics/cnn-trump-biden-presidential-debate.html
 
