@@ -1,3 +1,11 @@
+**Columbia Professors Host an Alternative Graduation for Students**\
+`After some ceremonies were canceled or moved, some college students in New York attended an event near Columbia’s campus where speakers praised pro-Palestinian demonstrations.`\
+https://nytimes.com/2024/05/16/nyregion/columbia-peoples-graduation-nyc.html
+
+**Israel Sending More Troops to Rafah Amid Warnings of Famine in Gaza**\
+`Fighting in Rafah has closed off a vital border crossing in southern Gaza, forced hundreds of thousands to flee and cut off humanitarian aid.`\
+https://nytimes.com/2024/05/16/world/middleeast/israel-rafah-gaza-famine.html
+
 **In Emotional Hearing, Maine Shooter’s Relatives Describe Efforts to Get Him Psychiatric Help**\
 `“It’s on all of us to make sure the next time we need to get help for someone, we do better,” Cara Lamb, the gunman’s ex-wife, told the commission investigating the October mass shooting.`\
 https://nytimes.com/2024/05/16/us/maine-shooting-robert-card-family-testimony.html
