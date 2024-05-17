@@ -1,3 +1,11 @@
+**Buzz, Chirp, Wee-Oo: The Sounds of Cicadas Are Back**\
+`As some of the loudest singing insects on Earth are back to chirp at a volume similar to an airplane’s, Americans are rejoicing or covering their ears. Listen to some of the species.`\
+https://nytimes.com/2024/05/17/us/cicadas-sounds-dual-emergence.html
+
+**French Police Shoot Dead Man Who Tried to Set Synagogue on Fire**\
+`The synagogue, in Rouen, northern France, sustained “significant damage,” but nobody other than the assailant was harmed, the authorities said.`\
+https://nytimes.com/2024/05/17/world/europe/france-synagogue-fire-man-shot.html
+
 **Soccer’s Governing Body Delays Vote on Palestinian Call to Bar Israel**\
 `FIFA said it would solicit legal advice before taking up a motion from the Palestinian Football Association to suspend Israel over its actions in Gaza and the West Bank.`\
 https://nytimes.com/2024/05/17/world/middleeast/fifa-israel-soccer-gaza.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/17/upshot/they-supported-biden-in-2020-what-made-the
 **Joe Biden and Kamala Harris Ride the ‘Pollercoaster’**\
 `The president has many problems this election. Is Kamala Harris one of them?`\
 https://nytimes.com/2024/05/17/opinion/vp-kamala-harris-joe-biden-polls.html
-
-**OpenAI’s Flirty New Assistant, Google Guts the Web and We Play HatGPT**\
-`It’s been a week of A.I. vertigo — the feeling that we’ve been dragged five years into the future and aren’t sure what to do about it.`\
-https://nytimes.com/2024/05/17/podcasts/hardfork-gpt4o-ai-overviews.html
-
-**Wokeness Is Dying. We Might Miss It.**\
-`Nellie Bowles’s new book fights the last war.`\
-https://nytimes.com/2024/05/17/opinion/wokeness-is-dying-we-might-miss-it.html
 
