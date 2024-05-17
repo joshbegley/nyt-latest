@@ -1,3 +1,7 @@
+**Have You Fought With Neighbors About Politics? Share Your Story.**\
+`We want to hear experiences of neighborhood disputes to feature in an upcoming newsletter.`\
+https://nytimes.com/2024/05/17/us/alito-neighbors-politics.html
+
 **Israel Recovered the Bodies of 3 Hostages**\
 `Also, Francis Ford Coppola has no regrets about his new film.`\
 https://nytimes.com/2024/05/17/briefing/israel-hostages-gaza-aid-ukraine-russian-energy-houston-storm-tiktok.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/us/politics/ukraine-intelligence-russia-targets.h
 **My Father Sexually Abused Me. Should I Tell My Family?**\
 `The magazine’s Ethicist columnist on whether to disclose a devastating, destabilizing secret.`\
 https://nytimes.com/2024/05/17/magazine/father-abuse-family-ethics.html
-
-**Why Did the First Space Shuttle Disaster Happen?**\
-`Adam Higginbotham discusses his new book, “Challenger: A True Story of Heroism and Disaster on the Edge of Space.”`\
-https://nytimes.com/2024/05/17/books/review/podcast-adam-higginbotham-challenger.html
 
