@@ -1,3 +1,7 @@
+**The Kiwi Makes a Startling but Careful Comeback**\
+`At a sanctuary on New Zealand’s North Island, the long-endangered flightless birds have grown so much in number that they are being transported to other areas to start new colonies.`\
+https://nytimes.com/2024/05/17/world/australia/kiwi-comeback.html
+
 **Quotation of the Day: The United Nations Inspector Becomes an Authoritarian Whisperer**\
 `Quotation of the Day for Friday, May 17, 2024.`\
 https://nytimes.com/2024/05/17/pageoneplus/quotation-of-the-day-the-united-nations-inspector-becomes-an-authoritarian-whisperer.html

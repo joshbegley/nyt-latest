@@ -1,3 +1,7 @@
+**The Kiwi Makes a Startling but Careful Comeback**\
+`At a sanctuary on New Zealand’s North Island, the long-endangered flightless birds have grown so much in number that they are being transported to other areas to start new colonies.`\
+https://nytimes.com/2024/05/17/world/australia/kiwi-comeback.html
+
 **Quotation of the Day: The United Nations Inspector Becomes an Authoritarian Whisperer**\
 `Quotation of the Day for Friday, May 17, 2024.`\
 https://nytimes.com/2024/05/17/pageoneplus/quotation-of-the-day-the-united-nations-inspector-becomes-an-authoritarian-whisperer.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/arts/pen-america-gala-gaza.html
 **At Least 12 Arrested at U.C. Berkeley After Police Order Protesters to Disperse**\
 `The authorities had given demonstrators until 7 p.m. to vacate a new encampment that had been erected at a fire-damaged complex on campus.`\
 https://nytimes.com/2024/05/16/us/berkeley-arrests.html
-
-**At Least Four Dead as Storms Batter Houston Area**\
-`Buildings were damaged in Houston and school officials canceled classes in the city on Friday, citing the destruction. It may take the city as much as 48 hours to restore power to some customers.`\
-https://nytimes.com/2024/05/16/us/texas-flood-tornado-storms-outages.html
 
