@@ -1,7 +1,3 @@
-**Tony Pigg, Celebrated D.J. of FM’s Golden Age, Dies at 85**\
-`Arising from the free-form San Francisco radio scene of the 1960s, he became an influential voice on the powerhouse WPLJ in New York.`\
-https://nytimes.com/2024/05/17/obituaries/tony-pigg-celebrated-dj-of-fms-golden-age-dies-at-85.html
-
 **Israeli Officials Heckled During a U.N. Court Hearing**\
 `During a hearing at the International Court of Justice, lawyers representing Israel were called “liars” by a person in the audience while defending the military operation in Rafah.`\
 https://nytimes.com/video/world/middleeast/100000009475074/israel-rafah-world-court.html
@@ -33,4 +29,8 @@ https://nytimes.com/2024/05/17/us/politics/bozell-jan-6-capitol-sentence.html
 **Cyril H. Wecht, Coroner Who Cast Doubt on Kennedy Assassination, Dies at 93**\
 `A widely respected forensic expert and frequent TV presence, he was also a powerful figure in Pennsylvania Democratic politics.`\
 https://nytimes.com/2024/05/17/us/cyril-h-wecht-dead.html
+
+**New Star Wars Plan: Pentagon Rushes to Counter Threats in Orbit**\
+`Citing rapid advances by China and Russia, the United States is building an extensive capacity to fight battles in space.`\
+https://nytimes.com/2024/05/17/us/politics/pentagon-space-military-russia-china.html
 
