@@ -1,3 +1,31 @@
+**Up, Up and Away!**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2024/05/17/learning/up-up-and-away.html
+
+**Why Is N.Y.U. Forcing Protesters to Write Apology Letters?**\
+`The university calls it a “restorative practice”; the students call it a coerced confession.`\
+https://nytimes.com/2024/05/17/nyregion/why-is-nyu-forcing-protesters-to-write-apology-letters.html
+
+**New York City Budget Would Produce Fewer Affordable Homes, Critics Say**\
+`New York City’s housing crisis is getting worse. But the Adams administration’s executive budget is expected to result in fewer than usual affordable homes.`\
+https://nytimes.com/2024/05/17/nyregion/nyc-affordable-housing-budget.html
+
+**The Connections Companion No. 341**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/17/crosswords/connections-companion.html
+
+**Does a Smash Hit Like ‘Lion King’ Deserve a $3 Million Tax Break?**\
+`Broadway is still recovering from the pandemic. A state tax-credit program has helped, but watchdogs say it aids some shows that don’t need a boost.`\
+https://nytimes.com/2024/05/17/nyregion/broadway-tax-subsidy-credits.html
+
+**Today’s Wordle Review No. 1,063**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/17/crosswords/wordle-review.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/05/17/crosswords/spelling-bee-forum.html
+
 **Seth Meyers Slams Republicans Supporting Trump at His Trial**\
 `Meyers joked that “sitting front row at the Trump trial must be like the MAGA version of sitting courtside at a Knicks game.”`\
 https://nytimes.com/2024/05/17/arts/television/seth-meyers-republicans-trump-trial.html
