@@ -1,3 +1,7 @@
+**Insults Disrupt House Oversight Committee Session**\
+`Representative Marjorie Taylor Greene, a Republican, insulted the appearance of Representative Jasmine Crockett, a Democrat, in a session of the House Oversight Committee leading the meeting to break out into shouting.`\
+https://nytimes.com/video/us/politics/100000009474480/house-oversight-fighting-greene-crockett.html
+
 **Inside an Art Auction at Christie’s, Days After a Cyberattack**\
 `Although a cyberattack hobbled its website, the auction house Christie’s held two major sales, totaling $115 million, on Tuesday night. Zachary Small, a New York Times reporter who writes about the art world’s relationship to money, politics and technology, describes what happened.`\
 https://nytimes.com/video/arts/100000009470108/inside-an-art-auction-at-christies-days-after-a-cyberattack.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/arts/music/sean-combs-diddy-cassie-assault-video.
 **Getting Started With Savings**\
 `The earlier you begin trying to save, the easier you’ll make things for your future self.`\
 https://nytimes.com/2024/05/17/your-money/saving-money.html
-
-**The Ragged Glory of Neil Young and Crazy Horse Live**\
-`Hear 11 songs from an electrifying New York set this week.`\
-https://nytimes.com/2024/05/17/arts/music/amplifier-newsletter-neil-young-crazy-horse-live.html
 

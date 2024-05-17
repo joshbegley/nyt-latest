@@ -1,3 +1,7 @@
+**Insults Disrupt House Oversight Committee Session**\
+`Representative Marjorie Taylor Greene, a Republican, insulted the appearance of Representative Jasmine Crockett, a Democrat, in a session of the House Oversight Committee leading the meeting to break out into shouting.`\
+https://nytimes.com/video/us/politics/100000009474480/house-oversight-fighting-greene-crockett.html
+
 **Inside an Art Auction at Christie’s, Days After a Cyberattack**\
 `Although a cyberattack hobbled its website, the auction house Christie’s held two major sales, totaling $115 million, on Tuesday night. Zachary Small, a New York Times reporter who writes about the art world’s relationship to money, politics and technology, describes what happened.`\
 https://nytimes.com/video/arts/100000009470108/inside-an-art-auction-at-christies-days-after-a-cyberattack.html
