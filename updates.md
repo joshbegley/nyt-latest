@@ -1,3 +1,7 @@
+**‘Megalopolis’ Premieres at Cannes: First Reaction**\
+`Francis Ford Coppola’s first movie in more than a decade reveals a filmmaker not content to rest on his laurels.`\
+https://nytimes.com/2024/05/16/movies/megalopolis-reaction-cannes.html
+
 **Arab League Calls for U.N. Peacekeepers in Gaza and the West Bank**\
 `Any use of U.N. forces would have to be approved by the Security Council. “There first has to be peace to keep," said a U.N. spokesman.`\
 https://nytimes.com/2024/05/16/world/middleeast/un-peacekeepers-arab-league.html
