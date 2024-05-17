@@ -1,3 +1,7 @@
+**Gunman Kills Three Spanish Tourists in Central Afghanistan**\
+`One Afghan was also injured in the attack, which many expect will hinder the government’s recent efforts to lure foreign visitors.`\
+https://nytimes.com/2024/05/17/world/asia/spanish-tourists-killed-afganistan.html
+
 **North Carolina Says Yes to Clowns and No to Cancer Patients**\
 `An exemption to a mask ban for medical reasons may soon be eliminated in the state.`\
 https://nytimes.com/live/2024/05/14/opinion/thepoint/north-carolina-mask-bill
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/us/house-discharge-petition-disaster-relief.html
 **Intruder Who Bludgeoned Pelosi’s Husband Gets 30-Year Sentence**\
 `David DePape, convicted in November on federal charges, also faces a state trial that is set to begin this month.`\
 https://nytimes.com/2024/05/17/us/david-depape-nancy-pelosi-sentence.html
-
-**Elba Cabrera, Patron of Puerto Rican Culture in New York, Dies at 90**\
-`Nurturing artists and performers, she was the last of Las Tres Hermanas, three sisters revered for galvanizing arts, education and social programs in the Latino community.`\
-https://nytimes.com/2024/05/17/nyregion/elba-cabrera-dead.html
 
