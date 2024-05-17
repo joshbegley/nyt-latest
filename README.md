@@ -1,3 +1,7 @@
+**The Stars Come Out for Sports Illustrated’s Swimsuit Issue**\
+`Gayle King, Patrick Mahomes and others arrived in Midtown to celebrate the staying power of the publication on its 60th anniversary.`\
+https://nytimes.com/2024/05/17/style/sports-illusrated-swimsuit-issue-anniversary.html
+
 **Esperanza Spalding’s Latest Surprise, and 10 More New Songs**\
 `Hear the jazz musician’s team-up with the Brazilian songwriter Milton Nascimento, plus tracks from Saweetie, Omar Apollo and others.`\
 https://nytimes.com/2024/05/17/arts/music/playlist-saweetie-omar-apollo.html
@@ -14,7 +18,7 @@ https://nytimes.com/2024/05/17/us/john-eastman-arizona-donald-trump.html
 `A recent congressional meeting devolved into a back-and-forth that reflects a changing norm in politics — one that rarely makes anybody look good.`\
 https://nytimes.com/2024/05/17/style/greene-crockett-insults-body-image.html
 
-**‘Oversight After Dark’: Lawmakers Hurl Insults at Hearing**\
+**‘Oversight After Dark’: Lawmakers Hurl Insults at Session**\
 `In an after-hours session on Capitol Hill, insults by the right-wing Republican Marjorie Taylor Greene led to a raucous exchange with Democrats, featuring insults about personal appearance, intellect and more.`\
 https://nytimes.com/2024/05/17/us/politics/marjorie-taylor-greene-insults-crockett.html
 
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/dining/french-apero.html
 **The Best of Late Night This Week**\
 `Michael Cohen’s testimony in former President Donald Trump’s criminal hush-money trial gave the hosts plenty of fodder this week. Here’s what they had to say. `\
 https://nytimes.com/interactive/2024/05/17/arts/best-of-late-night-michael-cohen.html
-
-**Some Conservative Christians Are Stepping Away From the Gender Wars**\
-`Far from the shouting, Christian therapists, writers, parents and their trans children are trying to create a space within conservative circles to acknowledge differences in how people experience gender.`\
-https://nytimes.com/2024/05/17/us/conservative-christian-transgender-religion.html
 
