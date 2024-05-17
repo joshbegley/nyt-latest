@@ -1,3 +1,7 @@
+**Mercedes Workers in Alabama Reject Union**\
+`The election, fiercely opposed by the state’s political leaders, was seen as a test of the United Automobile Workers’ ability to unionize factories in the South.`\
+https://nytimes.com/2024/05/17/business/mercedes-benz-uaw-alabama-vote.html
+
 **Take My Wife, Please: For Political Damage Control, Just Blame Your Spouse**\
 `When Justice Samuel Alito and Senator Bob Menendez landed in hot water, they looked for a scapegoat close to home. Inside their homes, in fact.`\
 https://nytimes.com/2024/05/17/us/politics/alito-menendez-wives-blame.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/us/politics/pentagon-space-military-russia-china.
 **Yes, A.I. Can Be Really Dumb. But It’s Still a Good Tutor.**\
 `Technology can’t and shouldn’t replace educators, but it can complement what they do best.`\
 https://nytimes.com/2024/05/17/opinion/ai-school-teachers-classroom.html
-
-**What Do Judicial Rules Say About Alito and a ‘Stop the Steal’ Symbol?**\
-`Judicial experts say an upside-down flag at the justice’s home raises thorny questions about potential ethics violations and what circumstances require recusal from cases.`\
-https://nytimes.com/2024/05/17/us/alito-stop-steal-flag-ethics.html
 

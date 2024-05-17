@@ -1,3 +1,7 @@
+**Mercedes Workers in Alabama Reject Union**\
+`The election, fiercely opposed by the state’s political leaders, was seen as a test of the United Automobile Workers’ ability to unionize factories in the South.`\
+https://nytimes.com/2024/05/17/business/mercedes-benz-uaw-alabama-vote.html
+
 **Take My Wife, Please: For Political Damage Control, Just Blame Your Spouse**\
 `When Justice Samuel Alito and Senator Bob Menendez landed in hot water, they looked for a scapegoat close to home. Inside their homes, in fact.`\
 https://nytimes.com/2024/05/17/us/politics/alito-menendez-wives-blame.html
