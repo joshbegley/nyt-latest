@@ -1,3 +1,11 @@
+**Deadly Clashes in a French Pacific Territory Raise Fears of Civil War**\
+`France has sent troops to quell violence in New Caledonia, where Paris is seen as backtracking on promises of self-determination.`\
+https://nytimes.com/2024/05/17/world/asia/new-caledonia-france-protest.html
+
+**The Campus Protesters Explain Themselves**\
+`Thoughts, beliefs and convictions of student protesters from across the country.`\
+https://nytimes.com/2024/05/17/podcasts/the-daily/collegeprotests.html
+
 **The Rush to Flee Rafah, and a Pro-Trump Symbol at a Justice’s House**\
 `Plus, the grilling of Michael Cohen.`\
 https://nytimes.com/2024/05/17/podcasts/rafah-civilians-justice-alito-flag.html
