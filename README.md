@@ -1,3 +1,19 @@
+**Dabney Coleman, Actor Audiences Loved to Hate, Is Dead at 92**\
+`In movies like “9 to 5” and “Tootsie” and on TV shows like “Buffalo Bill,” he turned the portrayal of egomaniacal louts into a fine art.`\
+https://nytimes.com/2024/05/17/arts/television/dabney-coleman-dead.html
+
+**The Reading List Behind ‘Serial’ Season 4**\
+`The team behind the podcast shares the books that influenced their thinking and understanding of Guantánamo.`\
+https://nytimes.com/2024/05/17/podcasts/serial-guantanamo-reading-list.html
+
+**The Good News for Biden in Our Battleground Polls**\
+`An enduring group of voters prioritizes abortion over all other issues.`\
+https://nytimes.com/2024/05/17/us/politics/biden-battleground-polls.html
+
+**A Close Setback for Labor in the South**\
+`Mercedes and Alabama did everything they could to prevent autoworkers from unionizing.`\
+https://nytimes.com/live/2024/05/14/opinion/thepoint/uaw-mercedes-vote-south
+
 **How Election Deniers Claimed the Upside-Down Flag**\
 `The practice started with sailors signaling distress but evolved into a form of protest, most recently among Trump supporters who believe the falsehood that the 2020 election was stolen.`\
 https://nytimes.com/2024/05/17/us/upside-down-american-flag-alito.html
@@ -17,20 +33,4 @@ https://nytimes.com/2024/05/17/briefing/israel-hostages-gaza-aid-ukraine-russian
 **Oregon Man Charged in Murders of 3 Women**\
 `The bodies of the victims were found in April 2023 within about three weeks of each other in the northwestern part of the state.`\
 https://nytimes.com/2024/05/17/us/jesse-calhoun-indicted-murder-oregon.html
-
-**A Serial Killer from the U.S. Preyed on Young Women in Canada**\
-`The police believe the killer, who died in an Idaho jail, may be linked to the unsolved murders of other women in British Columbia, Alberta and the United States.`\
-https://nytimes.com/2024/05/17/world/canada/american-serial-killer-murders-canada.html
-
-**Display at Alito’s Home Renews Questions of Supreme Court’s Impartiality**\
-`News of a popular “Stop the Steal” symbol on the justice’s front lawn led jurists and politicians to express concerns about coming court decisions.`\
-https://nytimes.com/2024/05/17/us/justice-alito-flag-reactions.html
-
-**Accustomed to Disasters, Houston Didn’t See This One Coming**\
-`Hurricane-strength winds swept through the city, but without the warnings that come with a hurricane. The storm left shocked residents and a landscape of debris.`\
-https://nytimes.com/2024/05/17/us/houston-texas-storms-wind-damage.html
-
-**5 Takeaways From the First Week of Robert Menendez’s Corruption Trial**\
-`A lawyer for the New Jersey senator pinned much of the blame on his wife. A government official explained halal meat certification.`\
-https://nytimes.com/2024/05/17/nyregion/robert-menendez-bribery-trial.html
 
