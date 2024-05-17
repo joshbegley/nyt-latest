@@ -1,3 +1,11 @@
+**Putin’s China Visit Highlights Military Ties That Worry the West**\
+`The Russian leader visited an institute in Harbin known for defense research. President Xi Jinping saw him off with a rare and seemingly deliberate embrace for the cameras.`\
+https://nytimes.com/2024/05/17/world/asia/putin-xi-china-russia.html
+
+**Xi Hugs Putin**\
+`In a rare show of affection from China’s leader, Xi Jinping hugged President Vladimir V. Putin of Russia after they vowed deeper cooperation at their summit meeting in Beijing.`\
+https://nytimes.com/video/world/asia/100000009473800/xi-putin-china-summit.html
+
 **In the first aid delivery to Gaza by sea in two months, Pentagon officials said that no U.S. troops entered the territory.**\
 `By Victoria Kim`\
 https://nytimes.com/live/2024/05/17/world/israel-gaza-war-hamas-rafah/initial-deliveries-through-the-temporary-pier-include-food-and-hygiene-items
