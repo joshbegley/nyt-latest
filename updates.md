@@ -1,3 +1,7 @@
+**Israel Defends Rafah Operation as ‘Limited and Localized’ at U.N. Court**\
+`Lawyers for Israel argued that the International Court of Justice should not grant a South African request to order an immediate halt to the ground assault in Rafah.`\
+https://nytimes.com/2024/05/17/world/middleeast/israel-rafah-gaza-icj.html
+
 **As Supernatural Claims Spread Online, Vatican Updates Its Rules on Them**\
 `People have long claimed sightings of the Virgin Mary or bleeding crucifixes, and some endorsed by the Roman Catholic Church have become hugely popular pilgrimage destinations.`\
 https://nytimes.com/2024/05/17/world/europe/vatican-apparitions-supernatural.html
