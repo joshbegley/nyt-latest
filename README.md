@@ -7,7 +7,7 @@ https://nytimes.com/2024/05/16/arts/pen-america-gala-gaza.html
 https://nytimes.com/2024/05/16/us/berkeley-arrests.html
 
 **At Least Four Dead as Storms Batter Houston Area**\
-`Buildings were damaged in Houston and school officials canceled classes in the city on Friday, citing the destruction.`\
+`Buildings were damaged in Houston and school officials canceled classes in the city on Friday, citing the destruction. It may take the city as much as 48 hours to restore power to some customers.`\
 https://nytimes.com/2024/05/16/us/texas-flood-tornado-storms-outages.html
 
 **David Trone Torched $60 Million of His Own Money. He’s Not the Only One.**\
