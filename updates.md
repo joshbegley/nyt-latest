@@ -1,3 +1,7 @@
+**TikTok Attempts to Rein In Weight Loss Posts**\
+`The company said it will work to remove content about drugs like Ozempic, extended fasting and more from the “For You” feed.`\
+https://nytimes.com/2024/05/17/well/live/tiktok-diet-weight-loss.html
+
 **Salt-Crispy Chicken Vesuvio, a Chicago Classic**\
 `More weekend cooking: clams casino, a freestyle pizza and rhubarb pie.`\
 https://nytimes.com/2024/05/17/dining/salt-crispy-chicken-vesuvio-a-chicago-classic.html
