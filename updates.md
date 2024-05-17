@@ -1,3 +1,7 @@
+**Gunman Kills Three Spanish Tourists in Central Afghanistan**\
+`One Afghan was also injured in the attack, which many expect will hinder the government’s recent efforts to lure foreign visitors.`\
+https://nytimes.com/2024/05/17/world/asia/spanish-tourists-killed-afganistan.html
+
 **North Carolina Says Yes to Clowns and No to Cancer Patients**\
 `An exemption to a mask ban for medical reasons may soon be eliminated in the state.`\
 https://nytimes.com/live/2024/05/14/opinion/thepoint/north-carolina-mask-bill
