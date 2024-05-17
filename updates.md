@@ -1,4 +1,8 @@
 **Avril Lavigne Is Back. If You Believe That.**\
+`The Canadian singer, with a new album and a tour, this week addressed a bizarre conspiracy theory that she has been replaced with a doppelgänger.`\
+https://nytimes.com/2024/05/17/arts/music/avril-lavigne-melissa-double.html
+
+**Avril Lavigne Is Back. If You Believe That.**\
 `The Canadian singer, with a new album and a tour, this week addressed a bizarre  conspiracy theory that she has been replaced with a doppelgänger.`\
 https://nytimes.com/2024/05/17/arts/music/avril-lavigne-melissa-double.html
 
