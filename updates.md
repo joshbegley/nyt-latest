@@ -1,3 +1,7 @@
+**Judge to Rule Next Week on Whether to Dismiss Alec Baldwin Case**\
+`During a heated hearing, Mr. Baldwin’s lawyers claimed prosecutors had improperly presented evidence to the grand jury considering the fatal shooting on the set of “Rust.”`\
+https://nytimes.com/2024/05/17/movies/alec-baldwin-rust.html
+
 **Biden Is Talking Directly to Black Voters. This Is What He Wants Them to Know.**\
 `The president is trying to increase his support among Black Americans, some of whom are angry over the war in Gaza. Others feel disengaged altogether. Here are takeaways from events held this week.`\
 https://nytimes.com/2024/05/17/us/politics/biden-black-voters.html

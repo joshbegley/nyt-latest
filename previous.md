@@ -1,3 +1,7 @@
+**Judge to Rule Next Week on Whether to Dismiss Alec Baldwin Case**\
+`During a heated hearing, Mr. Baldwin’s lawyers claimed prosecutors had improperly presented evidence to the grand jury considering the fatal shooting on the set of “Rust.”`\
+https://nytimes.com/2024/05/17/movies/alec-baldwin-rust.html
+
 **Biden Is Talking Directly to Black Voters. This Is What He Wants Them to Know.**\
 `The president is trying to increase his support among Black Americans, some of whom are angry over the war in Gaza. Others feel disengaged altogether. Here are takeaways from events held this week.`\
 https://nytimes.com/2024/05/17/us/politics/biden-black-voters.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/us/alito-stop-steal-flag-ethics.html
 **Insults Disrupt House Oversight Committee Session**\
 `Representative Marjorie Taylor Greene, a Republican, insulted the appearance of Representative Jasmine Crockett, a Democrat, in a session of the House Oversight Committee leading the meeting to break out into shouting.`\
 https://nytimes.com/video/us/politics/100000009474480/house-oversight-fighting-greene-crockett.html
-
-**Inside an Art Auction at Christie’s, Days After a Cyberattack**\
-`Although a cyberattack hobbled its website, the auction house Christie’s held two major sales, totaling $115 million, on Tuesday night. Zachary Small, a New York Times reporter who writes about the art world’s relationship to money, politics and technology, describes what happened.`\
-https://nytimes.com/video/arts/100000009470108/inside-an-art-auction-at-christies-days-after-a-cyberattack.html
 
