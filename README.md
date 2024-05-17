@@ -1,3 +1,11 @@
+**The French Don’t Snack. They Apéro.**\
+`Rebekah Peppler shines a spotlight on a beloved French tradition that you can try at home.`\
+https://nytimes.com/2024/05/17/dining/french-apero.html
+
+**The Best of Late Night This Week**\
+`Michael Cohen’s testimony in former President Donald Trump’s criminal hush-money trial gave the hosts plenty of fodder this week. Here’s what they had to say. `\
+https://nytimes.com/interactive/2024/05/17/arts/best-of-late-night-michael-cohen.html
+
 **Some Conservative Christians Are Stepping Away From the Gender Wars**\
 `Far from the shouting, Christian therapists, writers, parents and their trans children are trying to create a space within conservative circles to acknowledge differences in how people experience gender.`\
 https://nytimes.com/2024/05/17/us/conservative-christian-transgender-religion.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/17/dining/salt-crispy-chicken-vesuvio-a-chicago-clas
 **Five Action Movies to Stream Now**\
 `This month’s picks include crypto terrorism, gaslighting, an undercover mission and more.`\
 https://nytimes.com/2024/05/17/movies/action-movies-streaming.html
-
-**Taking Games Abroad Won’t Save Your League. Better Title Races Might.**\
-`Soccer’s leaders have landed on the wrong solution. Again.`\
-https://nytimes.com/2024/05/17/world/europe/premier-league-arsenal-man-city.html
-
-**Protesters Agreed to Leave. This Is What Some Colleges Promised in Return.**\
-`Several universities struck agreements with pro-Palestinian demonstrators to end disruptive encampments on their campuses. But some of those agreements are already under fire.`\
-https://nytimes.com/2024/05/17/us/campus-protests-agreements-divestment-israel.html
 
