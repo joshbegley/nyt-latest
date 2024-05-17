@@ -1,3 +1,7 @@
+**Israeli Officials Heckled During a U.N. Court Hearing**\
+`During a hearing at the International Court of Justice, lawyers representing Israel were called “liars” by a person in the audience while defending the military operation in Rafah.`\
+https://nytimes.com/video/world/middleeast/100000009475074/israel-rafah-world-court.html
+
 **Mercedes Workers in Alabama Reject Union**\
 `The election, fiercely opposed by the state’s political leaders, was seen as a test of the United Automobile Workers’ ability to unionize factories in the South.`\
 https://nytimes.com/2024/05/17/business/mercedes-benz-uaw-alabama-vote.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/us/cyril-h-wecht-dead.html
 **New Star Wars Plan: Pentagon Rushes to Counter Threats in Orbit**\
 `Citing rapid advances by China and Russia, the United States is building an extensive capacity to fight battles in space.`\
 https://nytimes.com/2024/05/17/us/politics/pentagon-space-military-russia-china.html
-
-**Yes, A.I. Can Be Really Dumb. But It’s Still a Good Tutor.**\
-`Technology can’t and shouldn’t replace educators, but it can complement what they do best.`\
-https://nytimes.com/2024/05/17/opinion/ai-school-teachers-classroom.html
 

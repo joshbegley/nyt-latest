@@ -1,3 +1,7 @@
+**Israeli Officials Heckled During a U.N. Court Hearing**\
+`During a hearing at the International Court of Justice, lawyers representing Israel were called “liars” by a person in the audience while defending the military operation in Rafah.`\
+https://nytimes.com/video/world/middleeast/100000009475074/israel-rafah-world-court.html
+
 **Mercedes Workers in Alabama Reject Union**\
 `The election, fiercely opposed by the state’s political leaders, was seen as a test of the United Automobile Workers’ ability to unionize factories in the South.`\
 https://nytimes.com/2024/05/17/business/mercedes-benz-uaw-alabama-vote.html
