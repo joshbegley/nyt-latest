@@ -1,3 +1,7 @@
+**Sean Combs Is Shown Assaulting Cassie in 2016 Surveillance Video**\
+`The footage published by CNN shows Mr. Combs striking and kicking the singer when she was his girlfriend. They settled a lawsuit last year after she accused him of abuse.`\
+https://nytimes.com/2024/05/17/arts/music/sean-combs-diddy-cassie-assault-video.html
+
 **Getting Started With Savings**\
 `The earlier you begin trying to save, the easier you’ll make things for your future self.`\
 https://nytimes.com/2024/05/17/your-money/saving-money.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/books/alta-dead.html
 **The Stars Come Out for Sports Illustrated’s Swimsuit Issue**\
 `Gayle King, Patrick Mahomes and others arrived in Midtown to celebrate the staying power of the publication on its 60th anniversary.`\
 https://nytimes.com/2024/05/17/style/sports-illusrated-swimsuit-issue-anniversary.html
-
-**Esperanza Spalding’s Latest Surprise, and 10 More New Songs**\
-`Hear the jazz musician’s team-up with the Brazilian songwriter Milton Nascimento, plus tracks from Saweetie, Omar Apollo and others.`\
-https://nytimes.com/2024/05/17/arts/music/playlist-saweetie-omar-apollo.html
 
