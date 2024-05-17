@@ -1,3 +1,11 @@
+**Storm Carves Path of Destruction Across Houston**\
+`At least four people were killed when powerful weather ripped through the region. Officials were taking stock of the damage on Friday.`\
+https://nytimes.com/2024/05/17/weather/houston-storm-photos-video.html
+
+**When Dynamite Turned Terrorism Into an Everyday Threat**\
+`In early 20th-century America, political bombings became a constant menace — but then helped give rise to law enforcement as we know it.`\
+https://nytimes.com/2024/05/17/magazine/dynamite-terrorism-anarchists-law-enforcement.html
+
 **In the Aging Senate, 80-Somethings Seeking Re-election Draw Little Criticism**\
 `Age and health have drawn intensive focus in the presidential race, but the recent news that two octogenarians in the Senate are running again has prompted little discussion of their age.`\
 https://nytimes.com/2024/05/17/us/politics/senate-age-octogenarians.html

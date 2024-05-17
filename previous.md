@@ -1,3 +1,11 @@
+**Storm Carves Path of Destruction Across Houston**\
+`At least four people were killed when powerful weather ripped through the region. Officials were taking stock of the damage on Friday.`\
+https://nytimes.com/2024/05/17/weather/houston-storm-photos-video.html
+
+**When Dynamite Turned Terrorism Into an Everyday Threat**\
+`In early 20th-century America, political bombings became a constant menace — but then helped give rise to law enforcement as we know it.`\
+https://nytimes.com/2024/05/17/magazine/dynamite-terrorism-anarchists-law-enforcement.html
+
 **In the Aging Senate, 80-Somethings Seeking Re-election Draw Little Criticism**\
 `Age and health have drawn intensive focus in the presidential race, but the recent news that two octogenarians in the Senate are running again has prompted little discussion of their age.`\
 https://nytimes.com/2024/05/17/us/politics/senate-age-octogenarians.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/17/us/campus-protests-agreements-divestment-israel.h
 **Free Preschool With One Catch: It May Be a Long Commute Away**\
 `Many New York City families counted on the prospect of free preschool, but hundreds were not immediately offered a seat and may have to travel across town to available spots.`\
 https://nytimes.com/2024/05/17/nyregion/3k-preschool-admissions-nyc.html
-
-**Rule 1 to Be Trump’s Running Mate: Defend Him, but Don’t Steal the Show**\
-`Donald Trump’s search is still in its early stages, but he is said to be leaning toward more experienced options who can help the ticket without seizing his precious spotlight.`\
-https://nytimes.com/2024/05/17/us/politics/trump-vp-vance-burgum-donalds.html
-
-**Why a Tactic Used by Czars Is Back With a Vengeance**\
-`Authoritarian governments have long sought to target dissidents abroad. But the digital age may have given them stronger motives, and better tools, for transnational repression.`\
-https://nytimes.com/2024/05/17/world/europe/transnational-repression-hong-kong-uk.html
 
