@@ -1,3 +1,7 @@
+**Israel Recovered the Bodies of 3 Hostages**\
+`Also, Francis Ford Coppola has no regrets about his new film.`\
+https://nytimes.com/2024/05/17/briefing/israel-hostages-gaza-aid-ukraine-russian-energy-houston-storm-tiktok.html
+
 **Oregon Man Charged in Murders of 3 Women**\
 `The bodies of the victims were found in April 2023 within about three weeks of each other in the northwestern part of the state.`\
 https://nytimes.com/2024/05/17/us/jesse-calhoun-indicted-murder-oregon.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/magazine/father-abuse-family-ethics.html
 **Why Did the First Space Shuttle Disaster Happen?**\
 `Adam Higginbotham discusses his new book, “Challenger: A True Story of Heroism and Disaster on the Edge of Space.”`\
 https://nytimes.com/2024/05/17/books/review/podcast-adam-higginbotham-challenger.html
-
-**‘Blockout 2024’ Wants to Send Celebrities to the ‘Digital Guillotine’**\
-`A TikTok movement is calling for followers to block famous people over their stances on the Israel-Hamas war. It began at the Met Gala.`\
-https://nytimes.com/2024/05/17/fashion/tiktok-block-lists-celebrities.html
 
