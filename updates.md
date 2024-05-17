@@ -1,3 +1,7 @@
+**Alito’s Inverted Flag Epitomizes the Ethics Crisis at the Court**\
+`Blaming the incident on his wife doesn’t absolve the justice of responsibility.`\
+https://nytimes.com/live/2024/05/14/opinion/thepoint/alito-flag-supreme-court
+
 **A Supreme Court Victory Won’t End a War on Regulators**\
 `A win for the Consumer Financial Protection Bureau removed the existential threat hanging over the agency, but opponents have vowed to keep on fighting.`\
 https://nytimes.com/2024/05/17/business/dealbook/cfpb-supreme-court-regulators.html
