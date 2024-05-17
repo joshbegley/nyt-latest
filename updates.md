@@ -1,3 +1,11 @@
+**The Rush to Flee Rafah, and a Pro-Trump Symbol at a Justice’s House**\
+`Plus, the grilling of Michael Cohen.`\
+https://nytimes.com/2024/05/17/podcasts/rafah-civilians-justice-alito-flag.html
+
+**How the Last Dinner Party Became the U.K.’s Buzziest Band**\
+`Our culture reporter charts its meteoric rise.`\
+https://nytimes.com/2024/05/17/podcasts/how-the-last-dinner-party-became-the-uks-buzziest-band.html
+
 **Buzz, Chirp, Wee-Oo: The Sounds of Cicadas Are Back**\
 `As some of the loudest singing insects on Earth are back to chirp at a volume similar to an airplane’s, Americans are rejoicing or covering their ears. Listen to some of the species.`\
 https://nytimes.com/2024/05/17/us/cicadas-sounds-dual-emergence.html

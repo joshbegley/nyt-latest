@@ -1,3 +1,11 @@
+**The Rush to Flee Rafah, and a Pro-Trump Symbol at a Justice’s House**\
+`Plus, the grilling of Michael Cohen.`\
+https://nytimes.com/2024/05/17/podcasts/rafah-civilians-justice-alito-flag.html
+
+**How the Last Dinner Party Became the U.K.’s Buzziest Band**\
+`Our culture reporter charts its meteoric rise.`\
+https://nytimes.com/2024/05/17/podcasts/how-the-last-dinner-party-became-the-uks-buzziest-band.html
+
 **Buzz, Chirp, Wee-Oo: The Sounds of Cicadas Are Back**\
 `As some of the loudest singing insects on Earth are back to chirp at a volume similar to an airplane’s, Americans are rejoicing or covering their ears. Listen to some of the species.`\
 https://nytimes.com/2024/05/17/us/cicadas-sounds-dual-emergence.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/17/movies/imaginary-friends-movies.html
 **Iran’s Nuclear Expansion Remains a Threat to the Middle East**\
 `If Tehran builds a bomb, it could set off a chain reaction in the region.`\
 https://nytimes.com/live/2024/05/14/opinion/thepoint/iran-nuclear-weapon-grossi
-
-**They Supported Biden in 2020. What Made Them Change Their Minds in 2024?**\
-`In polls of swing state voters, 14 percent of those who said they voted for President Biden in 2020 said they weren’t backing him now.`\
-https://nytimes.com/2024/05/17/upshot/they-supported-biden-in-2020-what-made-them-change-their-minds-in-2024.html
-
-**Joe Biden and Kamala Harris Ride the ‘Pollercoaster’**\
-`The president has many problems this election. Is Kamala Harris one of them?`\
-https://nytimes.com/2024/05/17/opinion/vp-kamala-harris-joe-biden-polls.html
 
