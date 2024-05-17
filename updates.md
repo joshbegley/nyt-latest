@@ -1,3 +1,7 @@
+**Attack on Crimea Hits Power Plant**\
+`Schools were closed across the city of Sevastopol, which is home to some of Russia’s naval fleet. The government said there were rolling blackouts.`\
+https://nytimes.com/2024/05/17/world/europe/sevastopol-ukraine-crimea-russia.html
+
 **The Premier League’s Asterisk Season**\
 `As it concludes an epic title race, soccer’s richest competition is a picture of health on the field. Away from it, the league faces lawsuits, infighting and the threat of government regulation.`\
 https://nytimes.com/2024/05/17/world/europe/premier-league-manchester-city-arsenal.html
