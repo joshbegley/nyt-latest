@@ -1,3 +1,11 @@
+**How to Talk About Sex (Even if You Really Don’t Want To)**\
+`Many couples find it hard to open up about their intimate lives, but these tips can guide the way.`\
+https://nytimes.com/2024/05/17/well/family/sex-intimacy-couples.html
+
+**New Ad Taunts Trump: ‘Take the Stand, Donald, or Admit You’re a Coward’**\
+`The ad, from a center-left group, points out that the former president has long been critical of people who take the Fifth Amendment to avoid testifying.`\
+https://nytimes.com/2024/05/17/us/politics/trump-ad-fifth-amendment.html
+
 **Trump Visits Minnesota, Hoping Its Political Divide Will Put It in Play**\
 `The Trump campaign says it can broaden the electoral battlefield with a play for Minnesota, but the state has disappointed Republicans for decades.`\
 https://nytimes.com/2024/05/17/us/politics/trump-minnesota.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/17/business/elections-betting-prediction-markets.htm
 **We’re Adding to Our California Movie List**\
 `Looking for a movie to watch this weekend? Here are your recommendations.`\
 https://nytimes.com/2024/05/17/us/california-movie-list.html
-
-**Alito’s Inverted Flag Epitomizes the Ethics Crisis at the Court**\
-`Blaming the incident on his wife doesn’t absolve the justice of responsibility.`\
-https://nytimes.com/live/2024/05/14/opinion/thepoint/alito-flag-supreme-court
-
-**A Supreme Court Victory Won’t End a War on Regulators**\
-`A win for the Consumer Financial Protection Bureau removed the existential threat hanging over the agency, but opponents have vowed to keep on fighting.`\
-https://nytimes.com/2024/05/17/business/dealbook/cfpb-supreme-court-regulators.html
 

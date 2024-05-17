@@ -1,3 +1,11 @@
+**How to Talk About Sex (Even if You Really Don’t Want To)**\
+`Many couples find it hard to open up about their intimate lives, but these tips can guide the way.`\
+https://nytimes.com/2024/05/17/well/family/sex-intimacy-couples.html
+
+**New Ad Taunts Trump: ‘Take the Stand, Donald, or Admit You’re a Coward’**\
+`The ad, from a center-left group, points out that the former president has long been critical of people who take the Fifth Amendment to avoid testifying.`\
+https://nytimes.com/2024/05/17/us/politics/trump-ad-fifth-amendment.html
+
 **Trump Visits Minnesota, Hoping Its Political Divide Will Put It in Play**\
 `The Trump campaign says it can broaden the electoral battlefield with a play for Minnesota, but the state has disappointed Republicans for decades.`\
 https://nytimes.com/2024/05/17/us/politics/trump-minnesota.html
