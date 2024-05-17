@@ -1,3 +1,7 @@
+**5 Takeaways From the First Week of Robert Menendez’s Corruption Trial**\
+`A lawyer for the New Jersey senator pinned much of the blame on his wife. A government official explained halal meat certification.`\
+https://nytimes.com/2024/05/17/nyregion/robert-menendez-bribery-trial.html
+
 **Ukraine Asks U.S. to Provide More Intelligence on Targets in Russia**\
 `American officials say they do not want U.S. weapons used in cross-border attacks or intelligence reports used to strike inside Russia.`\
 https://nytimes.com/2024/05/17/us/politics/ukraine-intelligence-russia-targets.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/business/mercedes-benz-uaw-alabama-vote.html
 **Take My Wife, Please: For Political Damage Control, Just Blame Your Spouse**\
 `When Justice Samuel Alito and Senator Bob Menendez landed in hot water, they looked for a scapegoat close to home. Inside their homes, in fact.`\
 https://nytimes.com/2024/05/17/us/politics/alito-menendez-wives-blame.html
-
-**Judge to Rule Next Week on Whether to Dismiss Alec Baldwin Case**\
-`During a heated hearing, Mr. Baldwin’s lawyers claimed prosecutors had improperly presented evidence to the grand jury considering the fatal shooting on the set of “Rust.”`\
-https://nytimes.com/2024/05/17/movies/alec-baldwin-rust.html
 

@@ -1,3 +1,7 @@
+**5 Takeaways From the First Week of Robert Menendez’s Corruption Trial**\
+`A lawyer for the New Jersey senator pinned much of the blame on his wife. A government official explained halal meat certification.`\
+https://nytimes.com/2024/05/17/nyregion/robert-menendez-bribery-trial.html
+
 **Ukraine Asks U.S. to Provide More Intelligence on Targets in Russia**\
 `American officials say they do not want U.S. weapons used in cross-border attacks or intelligence reports used to strike inside Russia.`\
 https://nytimes.com/2024/05/17/us/politics/ukraine-intelligence-russia-targets.html
