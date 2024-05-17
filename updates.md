@@ -1,3 +1,7 @@
+**At Least 15 Arrested at U.C. Berkeley After Police Order Protesters to Disperse**\
+`The authorities had given demonstrators until 7 p.m. to vacate a new encampment that had been erected at a fire-damaged complex on campus.`\
+https://nytimes.com/2024/05/16/us/berkeley-arrests.html
+
 **At Least Four Dead as Storms Batter Houston Area**\
 `Buildings were damaged in Houston and school officials canceled classes in the city on Friday, citing the destruction.`\
 https://nytimes.com/2024/05/16/us/texas-flood-tornado-storms-outages.html

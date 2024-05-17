@@ -1,3 +1,7 @@
+**At Least 15 Arrested at U.C. Berkeley After Police Order Protesters to Disperse**\
+`The authorities had given demonstrators until 7 p.m. to vacate a new encampment that had been erected at a fire-damaged complex on campus.`\
+https://nytimes.com/2024/05/16/us/berkeley-arrests.html
+
 **At Least Four Dead as Storms Batter Houston Area**\
 `Buildings were damaged in Houston and school officials canceled classes in the city on Friday, citing the destruction.`\
 https://nytimes.com/2024/05/16/us/texas-flood-tornado-storms-outages.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/nyregion/columbia-peoples-graduation-nyc.html
 **Israel Sending More Troops to Rafah Amid Warnings of Famine in Gaza**\
 `Fighting in Rafah has closed off a vital border crossing in southern Gaza, forced hundreds of thousands to flee and cut off humanitarian aid.`\
 https://nytimes.com/2024/05/16/world/middleeast/israel-rafah-gaza-famine.html
-
-**In Emotional Hearing, Maine Shooter’s Relatives Describe Efforts to Get Him Psychiatric Help**\
-`“It’s on all of us to make sure the next time we need to get help for someone, we do better,” Cara Lamb, the gunman’s ex-wife, told the commission investigating the October mass shooting.`\
-https://nytimes.com/2024/05/16/us/maine-shooting-robert-card-family-testimony.html
 
