@@ -1,3 +1,7 @@
+**Initial deliveries through the temporary pier include food and hygiene items.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/05/17/world/israel-gaza-war-hamas-rafah/initial-deliveries-through-the-temporary-pier-include-food-and-hygiene-items
+
 **China Says It Will Start Buying Apartments as Housing Slump Worsens**\
 `Signaling growing alarm, policymakers ramped up their efforts to stem a continued and steady decline in real estate values.`\
 https://nytimes.com/2024/05/17/business/china-property-mortgages.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/crosswords/wordle-review.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/05/17/crosswords/spelling-bee-forum.html
-
-**Seth Meyers Slams Republicans Supporting Trump at His Trial**\
-`Meyers joked that “sitting front row at the Trump trial must be like the MAGA version of sitting courtside at a Knicks game.”`\
-https://nytimes.com/2024/05/17/arts/television/seth-meyers-republicans-trump-trial.html
 
