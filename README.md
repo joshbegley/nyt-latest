@@ -1,3 +1,19 @@
+**Salt-Crispy Chicken Vesuvio, a Chicago Classic**\
+`More weekend cooking: clams casino, a freestyle pizza and rhubarb pie.`\
+https://nytimes.com/2024/05/17/dining/salt-crispy-chicken-vesuvio-a-chicago-classic.html
+
+**Five Action Movies to Stream Now**\
+`This month’s picks include crypto terrorism, gaslighting, an undercover mission and more.`\
+https://nytimes.com/2024/05/17/movies/five-action-movies-to-stream-now.html
+
+**Taking Games Abroad Won’t Save Your League. Better Title Races Might.**\
+`Soccer’s leaders have landed on the wrong solution. Again.`\
+https://nytimes.com/2024/05/17/world/europe/premier-league-arsenal-man-city.html
+
+**Protesters Agreed to Leave. This Is What Some Colleges Promised in Return.**\
+`Several universities struck agreements with pro-Palestinian demonstrators to end disruptive encampments on their campuses. But some of those agreements are already under fire.`\
+https://nytimes.com/2024/05/17/us/campus-protests-agreements-divestment-israel.html
+
 **Free Preschool With One Catch: It May Be a Long Commute Away**\
 `Many New York City families counted on the prospect of free preschool, but hundreds were not immediately offered a seat and may have to travel across town to available spots.`\
 https://nytimes.com/2024/05/17/nyregion/3k-preschool-admissions-nyc.html
@@ -17,20 +33,4 @@ https://nytimes.com/2024/05/17/theater/dungeons-dragons-review.html
 **Review: ‘Problems Between Sisters’ Puts a Spin on the Berserk Boys Club**\
 `Julia May Jonas turns the menacing male siblings of Sam Shepard’s “True West” into squabbling pregnant sisters in Vermont.`\
 https://nytimes.com/2024/05/17/theater/problems-between-sisters-review.html
-
-**Francis Ford Coppola Says He Has No Regrets About $120 Million ‘Megalopolis’**\
-`At a Cannes news conference that ignored recent allegations, the director said he was already writing his next film.`\
-https://nytimes.com/2024/05/17/movies/megalopolis-cannes-francis-coppola.html
-
-**How to Talk About Sex (Even if You Really Don’t Want To)**\
-`Many couples find it hard to open up about their intimate lives, but these tips can guide the way.`\
-https://nytimes.com/2024/05/17/well/family/sex-intimacy-couples.html
-
-**New Ad Taunts Trump: ‘Take the Stand, Donald, or Admit You’re a Coward’**\
-`The ad, from a center-left group, points out that the former president has long been critical of people who take the Fifth Amendment to avoid testifying.`\
-https://nytimes.com/2024/05/17/us/politics/trump-ad-fifth-amendment.html
-
-**Trump Visits Minnesota, Hoping Its Political Divide Will Put It in Play**\
-`The Trump campaign says it can broaden the electoral battlefield with a play for Minnesota, but the state has disappointed Republicans for decades.`\
-https://nytimes.com/2024/05/17/us/politics/trump-minnesota.html
 
