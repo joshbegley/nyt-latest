@@ -1,3 +1,11 @@
+**Sony and Apollo Take Key Step in Bid for Paramount’s Assets**\
+`The two companies have expressed interest in acquiring the media conglomerate, but are backing away from their $26 billion all-cash offer.`\
+https://nytimes.com/2024/05/17/business/paramount-sony-apollo-assets.html
+
+**‘Doctor Who’ Episode 4 Recap: Scenes of Destruction**\
+`In an episode simmering with tension, the Doctor and Ruby discover an army of religious soldiers on a largely deserted planet.`\
+https://nytimes.com/2024/05/17/arts/television/doctor-who-recap-episode-4.html
+
 **American doctors leave Gaza after being trapped by Rafah incursion.**\
 `1`\
 https://nytimes.com/live/2024/05/17/world/israel-gaza-war-hamas-rafah/american-doctors-leave-gaza-after-being-trapped-by-rafah-incursion

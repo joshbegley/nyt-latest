@@ -1,3 +1,11 @@
+**Sony and Apollo Take Key Step in Bid for Paramount’s Assets**\
+`The two companies have expressed interest in acquiring the media conglomerate, but are backing away from their $26 billion all-cash offer.`\
+https://nytimes.com/2024/05/17/business/paramount-sony-apollo-assets.html
+
+**‘Doctor Who’ Episode 4 Recap: Scenes of Destruction**\
+`In an episode simmering with tension, the Doctor and Ruby discover an army of religious soldiers on a largely deserted planet.`\
+https://nytimes.com/2024/05/17/arts/television/doctor-who-recap-episode-4.html
+
 **American doctors leave Gaza after being trapped by Rafah incursion.**\
 `1`\
 https://nytimes.com/live/2024/05/17/world/israel-gaza-war-hamas-rafah/american-doctors-leave-gaza-after-being-trapped-by-rafah-incursion
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/17/podcasts/serial-guantanamo-reading-list.html
 **Dabney Coleman, Actor Audiences Loved to Hate, Is Dead at 92**\
 `In movies like “9 to 5” and “Tootsie” and on TV shows like “Buffalo Bill,” he turned the portrayal of egomaniacal louts into a fine art.`\
 https://nytimes.com/2024/05/17/arts/television/dabney-coleman-dead.html
-
-**The Good News for Biden in Our Battleground Polls**\
-`An enduring group of voters prioritizes abortion over all other issues.`\
-https://nytimes.com/2024/05/17/us/politics/biden-battleground-polls.html
-
-**A Close Setback for Labor in the South**\
-`Mercedes and Alabama did everything they could to prevent autoworkers from unionizing.`\
-https://nytimes.com/live/2024/05/14/opinion/thepoint/uaw-mercedes-vote-south
 
