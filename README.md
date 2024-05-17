@@ -1,3 +1,7 @@
+**Oregon Man Charged in Murders of 3 Women**\
+`The bodies of the victims were found in April 2023 within about three weeks of each other in the northwestern part of the state.`\
+https://nytimes.com/2024/05/17/us/jesse-calhoun-indicted-murder-oregon.html
+
 **A Serial Killer from the U.S. Preyed on Young Women in Canada**\
 `The police believe the killer, who died in an Idaho jail, may be linked to the unsolved murders of other women in British Columbia, Alberta and the United States.`\
 https://nytimes.com/2024/05/17/world/canada/american-serial-killer-murders-canada.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/books/review/podcast-adam-higginbotham-challenger
 **‘Blockout 2024’ Wants to Send Celebrities to the ‘Digital Guillotine’**\
 `A TikTok movement is calling for followers to block famous people over their stances on the Israel-Hamas war. It began at the Met Gala.`\
 https://nytimes.com/2024/05/17/fashion/tiktok-block-lists-celebrities.html
-
-**Tony Pigg, Celebrated D.J. of FM’s Golden Age, Dies at 85**\
-`Arising from the free-form San Francisco radio scene of the 1960s, he became an influential voice on the powerhouse WPLJ in New York.`\
-https://nytimes.com/2024/05/17/obituaries/tony-pigg-celebrated-dj-of-fms-golden-age-dies-at-85.html
 
