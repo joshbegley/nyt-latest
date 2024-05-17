@@ -1,3 +1,7 @@
+**Arts School Settles Sexual Abuse Lawsuit for $12.5 Million**\
+`Dozens of alumni of the University of North Carolina School of the Arts had sued in 2021, accusing faculty members of widespread misconduct.`\
+https://nytimes.com/2024/05/17/arts/unc-school-of-the-arts-sexual-abuse-lawsuit.html
+
 **Ad for Lactation Cookies Returns to Times Square**\
 `After Clear Channel, which manages many of the advertisements in the area, said a provocative billboard for a Molly Baz recipe was “flagged for review,” two companies stepped in to offer new space.`\
 https://nytimes.com/2024/05/17/style/lactation-cookie-billboard-times-square.html
