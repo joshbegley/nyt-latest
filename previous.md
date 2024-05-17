@@ -1,3 +1,7 @@
+**Elba Cabrera, Patron of Puerto Rican Culture in New York, Dies at 90**\
+`Nurturing artists and performers, she was the last of Las Tres Hermanas, three sisters revered for galvanizing arts, education and social programs in the Latino community.`\
+https://nytimes.com/2024/05/17/nyregion/elba-cabrera-dead.html
+
 **The Big Number: $1,280**\
 `Insurers are raising prices for insurance premiums steeply. Here's why, and why it matters for the economy.`\
 https://nytimes.com/interactive/2024/05/17/business/economy/car-insurance-cost-inflation.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/style/greene-crockett-insults-body-image.html
 **‘Oversight After Dark’: Lawmakers Hurl Insults at Session**\
 `In an after-hours session on Capitol Hill, insults by the right-wing Republican Marjorie Taylor Greene led to a raucous exchange with Democrats, featuring insults about personal appearance, intellect and more.`\
 https://nytimes.com/2024/05/17/us/politics/marjorie-taylor-greene-insults-crockett.html
-
-**The dead hostages had been abducted from a music festival on Oct. 7.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/05/17/world/israel-gaza-war-hamas-rafah/the-recovered-bodies-belonged-to-people-attending-a-music-festival-on-oct-7
 
