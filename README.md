@@ -1,3 +1,7 @@
+**The Premier League’s Asterisk Season**\
+`As it concludes an epic title race, soccer’s richest competition is a picture of health on the field. Away from it, the league faces lawsuits, infighting and the threat of government regulation.`\
+https://nytimes.com/2024/05/17/world/europe/premier-league-manchester-city-arsenal.html
+
 **Friday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2024/05/17/briefing/slovakia-politics-ukraine-gaza.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/style/matthew-burroughs-diana-mcdermott-wedding.h
 **On Her Second Chance to Swipe, She ‘Finally Got It Right’**\
 `Alexandra Voyatzakis was initially reluctant to connect with Pontus Henriksson, but a few months later, when she had the opportunity again, she took it.`\
 https://nytimes.com/2024/05/17/style/alexandra-voyatzakis-pontus-henriksson-wedding.html
-
-**After a Season of Protest, PEN America’s Literary Gala Goes Forward**\
-`The free-expression group has been engulfed by debate over its response to the Gaza war that forced the cancellation of its literary awards and annual festival.`\
-https://nytimes.com/2024/05/16/arts/pen-america-gala-gaza.html
 
