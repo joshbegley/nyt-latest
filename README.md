@@ -1,3 +1,7 @@
+**Word of the Day: veranda**\
+`This word has appeared in 28 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/17/learning/word-of-the-day-veranda.html
+
 **Attack on Crimea Hits Power Plant**\
 `Schools were closed across the city of Sevastopol, which is home to some of Russia’s naval fleet. The government said there were rolling blackouts.`\
 https://nytimes.com/2024/05/17/world/europe/sevastopol-ukraine-crimea-russia.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/style/modern-love-my-twisted-path-to-a-meaningful
 **He Brought Two Toothbrush Kits on Their First Date**\
 `Bryan Braswell knew crab curry could get a little messy on his first date with Caroline White at a Sri Lankan restaurant. So he came prepared.`\
 https://nytimes.com/2024/05/17/style/bryan-braswell-caroline-white-wedding.html
-
-**A Day to Remember for Two ‘Star Wars’ Fans (Lightsabers Included)**\
-`Matthew Burroughs and Diana McDermott married on May 4, which the bride referenced in her vows by saying, “May the force be with us.”`\
-https://nytimes.com/2024/05/17/style/matthew-burroughs-diana-mcdermott-wedding.html
 
