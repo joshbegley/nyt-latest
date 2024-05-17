@@ -1,3 +1,7 @@
+**The Big Number: $1,280**\
+`Insurers are raising prices for insurance premiums steeply. Here's why, and why it matters for the economy.`\
+https://nytimes.com/interactive/2024/05/17/business/economy/car-insurance-cost-inflation.html
+
 **Alta, Irreverent Feminist Poet and Small-Press Pioneer, Dies at 81**\
 `She wrote lusty work about her life. She also started what may have been America’s first feminist press, Shameless Hussy, in her garage.`\
 https://nytimes.com/2024/05/17/books/alta-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/us/politics/marjorie-taylor-greene-insults-crocke
 **The dead hostages had been abducted from a music festival on Oct. 7.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/05/17/world/israel-gaza-war-hamas-rafah/the-recovered-bodies-belonged-to-people-attending-a-music-festival-on-oct-7
-
-**The French Don’t Snack. They Apéro.**\
-`Rebekah Peppler shines a spotlight on a beloved French tradition that you can try at home.`\
-https://nytimes.com/2024/05/17/dining/french-apero.html
 
