@@ -1,3 +1,19 @@
+**Getting Started With Savings**\
+`The earlier you begin trying to save, the easier you’ll make things for your future self.`\
+https://nytimes.com/2024/05/17/your-money/saving-money.html
+
+**The Ragged Glory of Neil Young and Crazy Horse Live**\
+`Hear 11 songs from an electrifying New York set this week.`\
+https://nytimes.com/2024/05/17/arts/music/amplifier-newsletter-neil-young-crazy-horse-live.html
+
+**Lawmakers Make End Run Around Speaker Johnson on Disaster Bill**\
+`A successful bipartisan effort to force a vote on disaster relief is just the latest example of how procedural norms have been upended in the House.`\
+https://nytimes.com/2024/05/17/us/house-discharge-petition-disaster-relief.html
+
+**Intruder Who Bludgeoned Pelosi’s Husband Gets 30-Year Sentence**\
+`David DePape, convicted in November on federal charges, also faces a state trial that is set to begin this month.`\
+https://nytimes.com/2024/05/17/us/david-depape-nancy-pelosi-sentence.html
+
 **Elba Cabrera, Patron of Puerto Rican Culture in New York, Dies at 90**\
 `Nurturing artists and performers, she was the last of Las Tres Hermanas, three sisters revered for galvanizing arts, education and social programs in the Latino community.`\
 https://nytimes.com/2024/05/17/nyregion/elba-cabrera-dead.html
@@ -17,20 +33,4 @@ https://nytimes.com/2024/05/17/style/sports-illusrated-swimsuit-issue-anniversar
 **Esperanza Spalding’s Latest Surprise, and 10 More New Songs**\
 `Hear the jazz musician’s team-up with the Brazilian songwriter Milton Nascimento, plus tracks from Saweetie, Omar Apollo and others.`\
 https://nytimes.com/2024/05/17/arts/music/playlist-saweetie-omar-apollo.html
-
-**Donald Trump, ‘a Clear and Present Danger to All’**\
-`Readers fear “tyranny,” dread election night and offer Trump-Induced Anxiety therapy. Also: Justice Alito’s upside-down flag; debate rules; marriage penalties.`\
-https://nytimes.com/2024/05/17/opinion/donald-trump-danger.html
-
-**Eastman Is First Trump Ally Arraigned in Arizona Election Case**\
-`The author of a plan to put forward fake electors in states Donald J. Trump lost in 2020 is one of 18 defendants charged in the Arizona case.`\
-https://nytimes.com/2024/05/17/us/john-eastman-arizona-donald-trump.html
-
-**The Ugly Effect of Physical Insults**\
-`A recent congressional meeting devolved into a back-and-forth that reflects a changing norm in politics — one that rarely makes anybody look good.`\
-https://nytimes.com/2024/05/17/style/greene-crockett-insults-body-image.html
-
-**‘Oversight After Dark’: Lawmakers Hurl Insults at Session**\
-`In an after-hours session on Capitol Hill, insults by the right-wing Republican Marjorie Taylor Greene led to a raucous exchange with Democrats, featuring insults about personal appearance, intellect and more.`\
-https://nytimes.com/2024/05/17/us/politics/marjorie-taylor-greene-insults-crockett.html
 
