@@ -1,3 +1,7 @@
+**North Carolina Says Yes to Clowns and No to Cancer Patients**\
+`An exemption to a mask ban for medical reasons may soon be eliminated in the state.`\
+https://nytimes.com/live/2024/05/14/opinion/thepoint/north-carolina-mask-bill
+
 **Jon Urbanchek, Who Led Swimmers to Olympic Glory, Dies at 87**\
 `He coached the University of Michigan to 13 Big Ten Conference titles and a national championship. Overall, his swimmers won 21 medals at the Summer Olympics.`\
 https://nytimes.com/2024/05/17/sports/olympics/jon-urbanchek-dead.html

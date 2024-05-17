@@ -1,3 +1,7 @@
+**North Carolina Says Yes to Clowns and No to Cancer Patients**\
+`An exemption to a mask ban for medical reasons may soon be eliminated in the state.`\
+https://nytimes.com/live/2024/05/14/opinion/thepoint/north-carolina-mask-bill
+
 **Jon Urbanchek, Who Led Swimmers to Olympic Glory, Dies at 87**\
 `He coached the University of Michigan to 13 Big Ten Conference titles and a national championship. Overall, his swimmers won 21 medals at the Summer Olympics.`\
 https://nytimes.com/2024/05/17/sports/olympics/jon-urbanchek-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/us/david-depape-nancy-pelosi-sentence.html
 **Elba Cabrera, Patron of Puerto Rican Culture in New York, Dies at 90**\
 `Nurturing artists and performers, she was the last of Las Tres Hermanas, three sisters revered for galvanizing arts, education and social programs in the Latino community.`\
 https://nytimes.com/2024/05/17/nyregion/elba-cabrera-dead.html
-
-**The Big Number: $1,280**\
-`Insurers are raising prices for insurance premiums steeply. Here's why, and why it matters for the economy.`\
-https://nytimes.com/interactive/2024/05/17/business/economy/car-insurance-cost-inflation.html
 
