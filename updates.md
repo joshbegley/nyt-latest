@@ -1,3 +1,7 @@
+**Sean Combs Is Shown Assaulting Cassie in 2016 Surveillance Video**\
+`The footage published by CNN shows Mr. Combs striking and kicking the singer when she was his girlfriend. They settled a lawsuit last year after she accused him of abuse.`\
+https://nytimes.com/2024/05/17/arts/music/sean-combs-diddy-cassie-assault-video.html
+
 **Getting Started With Savings**\
 `The earlier you begin trying to save, the easier you’ll make things for your future self.`\
 https://nytimes.com/2024/05/17/your-money/saving-money.html
