@@ -1,3 +1,7 @@
+**Eastman Is First Trump Ally Arraigned in Arizona Election Case**\
+`The author of a plan to put forward fake electors in states Donald J. Trump lost in 2020 is one of 18 defendants charged in the Arizona case.`\
+https://nytimes.com/2024/05/17/us/john-eastman-arizona-donald-trump.html
+
 **The Ugly Effect of Physical Insults**\
 `A recent congressional meeting devolved into a back-and-forth that reflects a changing norm in politics — one that rarely makes anybody look good.`\
 https://nytimes.com/2024/05/17/style/greene-crockett-insults-body-image.html

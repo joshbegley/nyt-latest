@@ -1,3 +1,7 @@
+**Eastman Is First Trump Ally Arraigned in Arizona Election Case**\
+`The author of a plan to put forward fake electors in states Donald J. Trump lost in 2020 is one of 18 defendants charged in the Arizona case.`\
+https://nytimes.com/2024/05/17/us/john-eastman-arizona-donald-trump.html
+
 **The Ugly Effect of Physical Insults**\
 `A recent congressional meeting devolved into a back-and-forth that reflects a changing norm in politics — one that rarely makes anybody look good.`\
 https://nytimes.com/2024/05/17/style/greene-crockett-insults-body-image.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/weather/houston-storm-photos-video.html
 **When Dynamite Turned Terrorism Into an Everyday Threat**\
 `In early 20th-century America, political bombings became a constant menace — but then helped give rise to law enforcement as we know it.`\
 https://nytimes.com/2024/05/17/magazine/dynamite-terrorism-anarchists-law-enforcement.html
-
-**In the Aging Senate, 80-Somethings Seeking Re-election Draw Little Criticism**\
-`Age and health have drawn intensive focus in the presidential race, but the recent news that two octogenarians in the Senate are running again has prompted little discussion of their age.`\
-https://nytimes.com/2024/05/17/us/politics/senate-age-octogenarians.html
 
