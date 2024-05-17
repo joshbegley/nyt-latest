@@ -1,3 +1,7 @@
+**American doctors leave Gaza after being trapped by Rafah incursion.**\
+`1`\
+https://nytimes.com/live/2024/05/17/world/israel-gaza-war-hamas-rafah/american-doctors-leave-gaza-after-being-trapped-by-rafah-incursion
+
 **Arts School Settles Sexual Abuse Lawsuit for $12.5 Million**\
 `Dozens of alumni of the University of North Carolina School of the Arts had sued in 2021, accusing faculty members of widespread misconduct.`\
 https://nytimes.com/2024/05/17/arts/unc-school-of-the-arts-sexual-abuse-lawsuit.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/us/politics/biden-battleground-polls.html
 **A Close Setback for Labor in the South**\
 `Mercedes and Alabama did everything they could to prevent autoworkers from unionizing.`\
 https://nytimes.com/live/2024/05/14/opinion/thepoint/uaw-mercedes-vote-south
-
-**How Election Deniers Claimed the Upside-Down Flag**\
-`The practice started with sailors signaling distress but evolved into a form of protest, most recently among Trump supporters who believe the falsehood that the 2020 election was stolen.`\
-https://nytimes.com/2024/05/17/us/upside-down-american-flag-alito.html
 

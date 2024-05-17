@@ -1,3 +1,7 @@
+**American doctors leave Gaza after being trapped by Rafah incursion.**\
+`1`\
+https://nytimes.com/live/2024/05/17/world/israel-gaza-war-hamas-rafah/american-doctors-leave-gaza-after-being-trapped-by-rafah-incursion
+
 **Arts School Settles Sexual Abuse Lawsuit for $12.5 Million**\
 `Dozens of alumni of the University of North Carolina School of the Arts had sued in 2021, accusing faculty members of widespread misconduct.`\
 https://nytimes.com/2024/05/17/arts/unc-school-of-the-arts-sexual-abuse-lawsuit.html
