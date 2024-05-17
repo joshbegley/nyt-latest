@@ -1,3 +1,11 @@
+**Review: ‘Problems Between Sisters’ Puts a Spin on the Berserk Boys Club**\
+`Julia May Jonas turns the menacing male siblings of Sam Shepard’s “True West” into squabbling pregnant sisters in Vermont.`\
+https://nytimes.com/2024/05/17/theater/problems-between-sisters-review.html
+
+**Francis Ford Coppola Says He Has No Regrets About $120 Million ‘Megalopolis’**\
+`At a Cannes news conference that ignored recent allegations, the director said he was already writing his next film.`\
+https://nytimes.com/2024/05/17/movies/megalopolis-cannes-francis-coppola.html
+
 **How to Talk About Sex (Even if You Really Don’t Want To)**\
 `Many couples find it hard to open up about their intimate lives, but these tips can guide the way.`\
 https://nytimes.com/2024/05/17/well/family/sex-intimacy-couples.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/17/theater/sutton-foster-mattress-broadway.html
 **F.S.A. vs. H.S.A.: What to Know About the Accounts That Pay Medical Costs**\
 `Flexible spending accounts and health savings accounts both have tax benefits, but both may also have drawbacks, two reports found.`\
 https://nytimes.com/2024/05/17/your-money/hsa-fsa-taxes.html
-
-**As the 2024 Race Heats Up, Betting Is Growing for Everything but Elections**\
-`U.S. residents can still gamble on the presidential race — but regulators are trying to stop the practice.`\
-https://nytimes.com/2024/05/17/business/elections-betting-prediction-markets.html
-
-**We’re Adding to Our California Movie List**\
-`Looking for a movie to watch this weekend? Here are your recommendations.`\
-https://nytimes.com/2024/05/17/us/california-movie-list.html
 

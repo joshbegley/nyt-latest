@@ -1,3 +1,11 @@
+**Review: ‘Problems Between Sisters’ Puts a Spin on the Berserk Boys Club**\
+`Julia May Jonas turns the menacing male siblings of Sam Shepard’s “True West” into squabbling pregnant sisters in Vermont.`\
+https://nytimes.com/2024/05/17/theater/problems-between-sisters-review.html
+
+**Francis Ford Coppola Says He Has No Regrets About $120 Million ‘Megalopolis’**\
+`At a Cannes news conference that ignored recent allegations, the director said he was already writing his next film.`\
+https://nytimes.com/2024/05/17/movies/megalopolis-cannes-francis-coppola.html
+
 **How to Talk About Sex (Even if You Really Don’t Want To)**\
 `Many couples find it hard to open up about their intimate lives, but these tips can guide the way.`\
 https://nytimes.com/2024/05/17/well/family/sex-intimacy-couples.html
