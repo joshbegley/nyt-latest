@@ -1,11 +1,3 @@
-**Deadly Clashes in a French Pacific Territory Raise Fears of Civil War**\
-`France has sent troops to quell violence in New Caledonia, where Paris is seen as backtracking on promises of self-determination.`\
-https://nytimes.com/2024/05/17/world/asia/new-caledonia-france-protest.html
-
-**The Campus Protesters Explain Themselves**\
-`Thoughts, beliefs and convictions of student protesters from across the country.`\
-https://nytimes.com/2024/05/17/podcasts/the-daily/collegeprotests.html
-
 **The Rush to Flee Rafah, and a Pro-Trump Symbol at a Justice’s House**\
 `Plus, the grilling of Michael Cohen.`\
 https://nytimes.com/2024/05/17/podcasts/rafah-civilians-justice-alito-flag.html
@@ -33,4 +25,12 @@ https://nytimes.com/2024/05/17/arts/television/young-sheldon-ends.html
 **Is There a Constitutional Right to Talk About Abortion?**\
 `The First Amendment looms large in lower court cases that may find their way to the Supreme Court.`\
 https://nytimes.com/2024/05/17/opinion/speech-abortion-supreme-court.html
+
+**When Your Imaginary Friend Becomes a Movie Star**\
+`Multiple films this year, including the new family comedy “IF,” explore the concept of imaginary friends on the big screen.`\
+https://nytimes.com/2024/05/17/movies/imaginary-friends-movies.html
+
+**Iran’s Nuclear Expansion Remains a Threat to the Middle East**\
+`If Tehran builds a bomb, it could set off a chain reaction in the region.`\
+https://nytimes.com/live/2024/05/14/opinion/thepoint/iran-nuclear-weapon-grossi
 
