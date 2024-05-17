@@ -1,3 +1,7 @@
+**Seth Meyers Slams Republicans Supporting Trump at His Trial**\
+`Meyers joked that “sitting front row at the Trump trial must be like the MAGA version of sitting courtside at a Knicks game.”`\
+https://nytimes.com/2024/05/17/arts/television/seth-meyers-republicans-trump-trial.html
+
 **Word of the Day: veranda**\
 `This word has appeared in 28 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/05/17/learning/word-of-the-day-veranda.html

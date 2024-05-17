@@ -1,3 +1,7 @@
+**Seth Meyers Slams Republicans Supporting Trump at His Trial**\
+`Meyers joked that “sitting front row at the Trump trial must be like the MAGA version of sitting courtside at a Knicks game.”`\
+https://nytimes.com/2024/05/17/arts/television/seth-meyers-republicans-trump-trial.html
+
 **Word of the Day: veranda**\
 `This word has appeared in 28 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/05/17/learning/word-of-the-day-veranda.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/pageoneplus/corrections-may-17-2024.html
 **My Twisted Path to a Meaningful Life**\
 `A bad night of partying left my body broken and nearly paralyzed. I let the pain shape me for the better.`\
 https://nytimes.com/2024/05/17/style/modern-love-my-twisted-path-to-a-meaningful-life.html
-
-**He Brought Two Toothbrush Kits on Their First Date**\
-`Bryan Braswell knew crab curry could get a little messy on his first date with Caroline White at a Sri Lankan restaurant. So he came prepared.`\
-https://nytimes.com/2024/05/17/style/bryan-braswell-caroline-white-wedding.html
 
