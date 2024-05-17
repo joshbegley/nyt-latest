@@ -1,3 +1,7 @@
+**Free Preschool With One Catch: It May Be a Long Commute Away**\
+`Many New York City families counted on the prospect of free preschool, but hundreds were not immediately offered a seat and may have to travel across town to available spots.`\
+https://nytimes.com/2024/05/17/nyregion/3k-preschool-admissions-nyc.html
+
 **Rule 1 to Be Trump’s Running Mate: Defend Him, but Don’t Steal the Show**\
 `Donald Trump’s search is still in its early stages, but he is said to be leaning toward more experienced options who can help the ticket without seizing his precious spotlight.`\
 https://nytimes.com/2024/05/17/us/politics/trump-vp-vance-burgum-donalds.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/us/politics/trump-ad-fifth-amendment.html
 **Trump Visits Minnesota, Hoping Its Political Divide Will Put It in Play**\
 `The Trump campaign says it can broaden the electoral battlefield with a play for Minnesota, but the state has disappointed Republicans for decades.`\
 https://nytimes.com/2024/05/17/us/politics/trump-minnesota.html
-
-**Zelensky Signs Law Allowing Convicts to Fight for Ukraine**\
-`The tactic echoes one that Russia has used and Ukraine has ridiculed in the past.`\
-https://nytimes.com/2024/05/17/world/europe/ukraine-convicts-zelensky.html
 
