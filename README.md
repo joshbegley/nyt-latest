@@ -1,3 +1,7 @@
+**Sutton Foster to Star in ‘Once Upon a Mattress’ on Broadway**\
+`The revival, which had an earlier run at New York City Center, is scheduled to open in August and close in November, followed by a run in Los Angeles.`\
+https://nytimes.com/2024/05/17/theater/sutton-foster-mattress-broadway.html
+
 **F.S.A. vs. H.S.A.: What to Know About the Accounts That Pay Medical Costs**\
 `Flexible spending accounts and health savings accounts both have tax benefits, but both may also have drawbacks, two reports found.`\
 https://nytimes.com/2024/05/17/your-money/hsa-fsa-taxes.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/learning/should-schools-give-students-money-to-in
 **Israel Defends Rafah Operation as ‘Limited and Localized’ at U.N. Court**\
 `Lawyers for Israel argued that the International Court of Justice should not grant a South African request to order an immediate halt to the ground assault in Rafah.`\
 https://nytimes.com/2024/05/17/world/middleeast/israel-rafah-gaza-icj.html
-
-**As Supernatural Claims Spread Online, Vatican Updates Its Rules on Them**\
-`People have long claimed sightings of the Virgin Mary or bleeding crucifixes, and some endorsed by the Roman Catholic Church have become hugely popular pilgrimage destinations.`\
-https://nytimes.com/2024/05/17/world/europe/vatican-apparitions-supernatural.html
 
