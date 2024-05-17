@@ -1,3 +1,11 @@
+**Esperanza Spalding’s Latest Surprise, and 10 More New Songs**\
+`Hear the jazz musician’s team-up with the Brazilian songwriter Milton Nascimento, plus tracks from Saweetie, Omar Apollo and others.`\
+https://nytimes.com/2024/05/17/arts/music/playlist-saweetie-omar-apollo.html
+
+**Donald Trump, ‘a Clear and Present Danger to All’**\
+`Readers fear “tyranny,” dread election night and offer Trump-Induced Anxiety therapy. Also: Justice Alito’s upside-down flag; debate rules; marriage penalties.`\
+https://nytimes.com/2024/05/17/opinion/donald-trump-danger.html
+
 **Eastman Is First Trump Ally Arraigned in Arizona Election Case**\
 `The author of a plan to put forward fake electors in states Donald J. Trump lost in 2020 is one of 18 defendants charged in the Arizona case.`\
 https://nytimes.com/2024/05/17/us/john-eastman-arizona-donald-trump.html
@@ -25,12 +33,4 @@ https://nytimes.com/interactive/2024/05/17/arts/best-of-late-night-michael-cohen
 **Some Conservative Christians Are Stepping Away From the Gender Wars**\
 `Far from the shouting, Christian therapists, writers, parents and their trans children are trying to create a space within conservative circles to acknowledge differences in how people experience gender.`\
 https://nytimes.com/2024/05/17/us/conservative-christian-transgender-religion.html
-
-**Storm Carves Path of Destruction Across Houston**\
-`At least four people were killed when powerful weather ripped through the region. Officials were taking stock of the damage on Friday.`\
-https://nytimes.com/2024/05/17/weather/houston-storm-photos-video.html
-
-**When Dynamite Turned Terrorism Into an Everyday Threat**\
-`In early 20th-century America, political bombings became a constant menace — but then helped give rise to law enforcement as we know it.`\
-https://nytimes.com/2024/05/17/magazine/dynamite-terrorism-anarchists-law-enforcement.html
 

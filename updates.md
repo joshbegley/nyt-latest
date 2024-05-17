@@ -1,3 +1,11 @@
+**Esperanza Spalding’s Latest Surprise, and 10 More New Songs**\
+`Hear the jazz musician’s team-up with the Brazilian songwriter Milton Nascimento, plus tracks from Saweetie, Omar Apollo and others.`\
+https://nytimes.com/2024/05/17/arts/music/playlist-saweetie-omar-apollo.html
+
+**Donald Trump, ‘a Clear and Present Danger to All’**\
+`Readers fear “tyranny,” dread election night and offer Trump-Induced Anxiety therapy. Also: Justice Alito’s upside-down flag; debate rules; marriage penalties.`\
+https://nytimes.com/2024/05/17/opinion/donald-trump-danger.html
+
 **Eastman Is First Trump Ally Arraigned in Arizona Election Case**\
 `The author of a plan to put forward fake electors in states Donald J. Trump lost in 2020 is one of 18 defendants charged in the Arizona case.`\
 https://nytimes.com/2024/05/17/us/john-eastman-arizona-donald-trump.html
