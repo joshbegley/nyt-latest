@@ -1,3 +1,11 @@
+**‘Oversight After Dark’: Lawmakers Hurl Insults at Hearing**\
+`In an after-hours session on Capitol Hill, insults by the right-wing Republican Marjorie Taylor Greene led to a raucous exchange with Democrats, featuring insults about personal appearance, intellect and more.`\
+https://nytimes.com/2024/05/17/us/politics/marjorie-taylor-greene-insults-crockett.html
+
+**The recovered bodies belonged to people attending a music festival on Oct. 7.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/05/17/world/israel-gaza-war-hamas-rafah/the-recovered-bodies-belonged-to-people-attending-a-music-festival-on-oct-7
+
 **The French Don’t Snack. They Apéro.**\
 `Rebekah Peppler shines a spotlight on a beloved French tradition that you can try at home.`\
 https://nytimes.com/2024/05/17/dining/french-apero.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/17/us/politics/senate-age-octogenarians.html
 **TikTok Attempts to Rein In Weight Loss Posts**\
 `The company said it will work to remove content about drugs like Ozempic, extended fasting and more from the “For You” feed.`\
 https://nytimes.com/2024/05/17/well/live/tiktok-diet-weight-loss.html
-
-**Salt-Crispy Chicken Vesuvio, a Chicago Classic**\
-`More weekend cooking: clams casino, a freestyle pizza and rhubarb pie.`\
-https://nytimes.com/2024/05/17/dining/salt-crispy-chicken-vesuvio-a-chicago-classic.html
-
-**Five Action Movies to Stream Now**\
-`This month’s picks include crypto terrorism, gaslighting, an undercover mission and more.`\
-https://nytimes.com/2024/05/17/movies/action-movies-streaming.html
 
