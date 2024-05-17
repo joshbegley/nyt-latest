@@ -1,3 +1,7 @@
+**Take My Wife, Please: For Political Damage Control, Just Blame Your Spouse**\
+`When Justice Samuel Alito and Senator Bob Menendez landed in hot water, they looked for a scapegoat close to home. Inside their homes, in fact.`\
+https://nytimes.com/2024/05/17/us/politics/alito-menendez-wives-blame.html
+
 **Judge to Rule Next Week on Whether to Dismiss Alec Baldwin Case**\
 `During a heated hearing, Mr. Baldwin’s lawyers claimed prosecutors had improperly presented evidence to the grand jury considering the fatal shooting on the set of “Rust.”`\
 https://nytimes.com/2024/05/17/movies/alec-baldwin-rust.html
