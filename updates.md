@@ -1,3 +1,7 @@
+**Avril Lavigne Is Back. If You Believe That.**\
+`The Canadian singer, with a new album and a tour, this week addressed a bizarre  conspiracy theory that she has been replaced with a doppelgänger.`\
+https://nytimes.com/2024/05/17/arts/music/avril-lavigne-melissa-double.html
+
 **Sutton Foster to Star in ‘Once Upon a Mattress’ on Broadway**\
 `The revival, which had an earlier run at New York City Center, is scheduled to open in August and close in November, followed by a run in Los Angeles.`\
 https://nytimes.com/2024/05/17/theater/sutton-foster-mattress-broadway.html
