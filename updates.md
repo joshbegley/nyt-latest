@@ -1,3 +1,7 @@
+**Ad for Lactation Cookies Returns to Times Square**\
+`After Clear Channel, which manages many of the advertisements in the area, said a provocative billboard for a Molly Baz recipe was “flagged for review,” two companies stepped in to offer new space.`\
+https://nytimes.com/2024/05/17/style/lactation-cookie-billboard-times-square.html
+
 **Slovakia Is at a Dangerous Moment**\
 `The shooting of Slovakia’s prime minister comes with a backdrop of growing political polarization.`\
 https://nytimes.com/2024/05/17/opinion/slovakia-fico-assassination-attempt-political-violence.html
