@@ -1,3 +1,7 @@
+**The Ugly Effect of Physical Insults**\
+`A recent congressional meeting devolved into a back-and-forth that reflects a changing norm in politics — one that rarely makes anybody look good.`\
+https://nytimes.com/2024/05/17/style/greene-crockett-insults-body-image.html
+
 **‘Oversight After Dark’: Lawmakers Hurl Insults at Hearing**\
 `In an after-hours session on Capitol Hill, insults by the right-wing Republican Marjorie Taylor Greene led to a raucous exchange with Democrats, featuring insults about personal appearance, intellect and more.`\
 https://nytimes.com/2024/05/17/us/politics/marjorie-taylor-greene-insults-crockett.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/magazine/dynamite-terrorism-anarchists-law-enforc
 **In the Aging Senate, 80-Somethings Seeking Re-election Draw Little Criticism**\
 `Age and health have drawn intensive focus in the presidential race, but the recent news that two octogenarians in the Senate are running again has prompted little discussion of their age.`\
 https://nytimes.com/2024/05/17/us/politics/senate-age-octogenarians.html
-
-**TikTok Attempts to Rein In Weight Loss Posts**\
-`The company said it will work to remove content about drugs like Ozempic, extended fasting and more from the “For You” feed.`\
-https://nytimes.com/2024/05/17/well/live/tiktok-diet-weight-loss.html
 
