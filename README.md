@@ -1,3 +1,7 @@
+**Avril Lavigne Is Back. If You Believe That.**\
+`The Canadian singer, with a new album and a tour, this week addressed a bizarre  conspiracy theory that she has been replaced with a doppelgänger.`\
+https://nytimes.com/2024/05/17/arts/music/avril-lavigne-melissa-double.html
+
 **Sutton Foster to Star in ‘Once Upon a Mattress’ on Broadway**\
 `The revival, which had an earlier run at New York City Center, is scheduled to open in August and close in November, followed by a run in Los Angeles.`\
 https://nytimes.com/2024/05/17/theater/sutton-foster-mattress-broadway.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/arts/music/billie-eilish-hit-me-hard-and-soft-rev
 **Should Schools Give Students Money to Invest in Their Futures?**\
 `An organization in Harlem is investing millions of dollars to create savings plans for students in its charter schools. Is that a good idea?`\
 https://nytimes.com/2024/05/17/learning/should-schools-give-students-money-to-invest-in-their-futures.html
-
-**Israel Defends Rafah Operation as ‘Limited and Localized’ at U.N. Court**\
-`Lawyers for Israel argued that the International Court of Justice should not grant a South African request to order an immediate halt to the ground assault in Rafah.`\
-https://nytimes.com/2024/05/17/world/middleeast/israel-rafah-gaza-icj.html
 
