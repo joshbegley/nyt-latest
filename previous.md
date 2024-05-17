@@ -1,3 +1,11 @@
+**A Serial Killer from the U.S. Preyed on Young Women in Canada**\
+`The police believe the killer, who died in an Idaho jail, may be linked to the unsolved murders of other women in British Columbia, Alberta and the United States.`\
+https://nytimes.com/2024/05/17/world/canada/american-serial-killer-murders-canada.html
+
+**Display at Alito’s Home Renews Questions of Supreme Court’s Impartiality**\
+`News of a popular “Stop the Steal” symbol on the justice’s front lawn led jurists and politicians to express concerns about coming court decisions.`\
+https://nytimes.com/2024/05/17/us/justice-alito-flag-reactions.html
+
 **Accustomed to Disasters, Houston Didn’t See This One Coming**\
 `Hurricane-strength winds swept through the city, but without the warnings that come with a hurricane. The storm left shocked residents and a landscape of debris.`\
 https://nytimes.com/2024/05/17/us/houston-texas-storms-wind-damage.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/17/fashion/tiktok-block-lists-celebrities.html
 **Tony Pigg, Celebrated D.J. of FM’s Golden Age, Dies at 85**\
 `Arising from the free-form San Francisco radio scene of the 1960s, he became an influential voice on the powerhouse WPLJ in New York.`\
 https://nytimes.com/2024/05/17/obituaries/tony-pigg-celebrated-dj-of-fms-golden-age-dies-at-85.html
-
-**Israeli Officials Heckled During a U.N. Court Hearing**\
-`During a hearing at the International Court of Justice, lawyers representing Israel were called “liars” by a person in the audience while defending the military operation in Rafah.`\
-https://nytimes.com/video/world/middleeast/100000009475074/israel-rafah-world-court.html
-
-**Mercedes Workers in Alabama Reject Union**\
-`The election, fiercely opposed by the state’s political leaders, was seen as a test of the United Automobile Workers’ ability to unionize factories in the South.`\
-https://nytimes.com/2024/05/17/business/mercedes-benz-uaw-alabama-vote.html
 
