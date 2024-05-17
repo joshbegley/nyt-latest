@@ -1,14 +1,10 @@
-**How Big Is Taylor Swift?**\
-`As big as the Beatles? Michael Jackson? Beyoncé? We crunched the numbers.`\
-https://nytimes.com/interactive/2024/05/17/arts/music/taylor-swift-sales-tours-grammys.html
+**Dabney Coleman, Actor Audiences Loved to Hate, Is Dead at 92**\
+`In movies like “9 to 5” and “Tootsie” and on TV shows like “Buffalo Bill,” he turned the portrayal of egomaniacal louts into a fine art.`\
+https://nytimes.com/2024/05/17/arts/television/dabney-coleman-dead.html
 
 **The Reading List Behind ‘Serial’ Season 4**\
 `The team behind the podcast shares the books that influenced their thinking and understanding of Guantánamo.`\
 https://nytimes.com/2024/05/17/podcasts/serial-guantanamo-reading-list.html
-
-**Dabney Coleman, Actor Audiences Loved to Hate, Is Dead at 92**\
-`In movies like “9 to 5” and “Tootsie” and on TV shows like “Buffalo Bill,” he turned the portrayal of egomaniacal louts into a fine art.`\
-https://nytimes.com/2024/05/17/arts/television/dabney-coleman-dead.html
 
 **The Good News for Biden in Our Battleground Polls**\
 `An enduring group of voters prioritizes abortion over all other issues.`\
@@ -33,4 +29,8 @@ https://nytimes.com/2024/05/17/us/alito-neighbors-politics.html
 **Israel Recovered the Bodies of 3 Hostages**\
 `Also, Francis Ford Coppola has no regrets about his new film.`\
 https://nytimes.com/2024/05/17/briefing/israel-hostages-gaza-aid-ukraine-russian-energy-houston-storm-tiktok.html
+
+**Oregon Man Charged in Murders of 3 Women**\
+`The bodies of the victims were found in April 2023 within about three weeks of each other in the northwestern part of the state.`\
+https://nytimes.com/2024/05/17/us/jesse-calhoun-indicted-murder-oregon.html
 
