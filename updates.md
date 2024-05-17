@@ -1,3 +1,7 @@
+**China Says It Will Start Buying Apartments as Housing Slump Worsens**\
+`Signaling growing alarm, policymakers ramped up their efforts to stem a continued and steady decline in real estate values.`\
+https://nytimes.com/2024/05/17/business/china-property-mortgages.html
+
 **Up, Up and Away!**\
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2024/05/17/learning/up-up-and-away.html
