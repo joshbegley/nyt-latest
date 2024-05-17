@@ -1,3 +1,11 @@
+**Trump Visits Minnesota, Hoping Its Political Divide Will Put It in Play**\
+`The Trump campaign says it can broaden the electoral battlefield with a play for Minnesota, but the state has disappointed Republicans for decades.`\
+https://nytimes.com/2024/05/17/us/politics/trump-minnesota.html
+
+**Zelensky Signs Law Allowing Convicts to Fight for Ukraine**\
+`The tactic echoes one that Russia has used and Ukraine has ridiculed in the past.`\
+https://nytimes.com/2024/05/17/world/europe/ukraine-convicts-zelensky.html
+
 **Avril Lavigne Is Back. If You Believe That.**\
 `The Canadian singer, with a new album and a tour, this week addressed a bizarre conspiracy theory that she has been replaced with a doppelgänger.`\
 https://nytimes.com/2024/05/17/arts/music/avril-lavigne-melissa-double.html
@@ -25,12 +33,4 @@ https://nytimes.com/live/2024/05/14/opinion/thepoint/alito-flag-supreme-court
 **A Supreme Court Victory Won’t End a War on Regulators**\
 `A win for the Consumer Financial Protection Bureau removed the existential threat hanging over the agency, but opponents have vowed to keep on fighting.`\
 https://nytimes.com/2024/05/17/business/dealbook/cfpb-supreme-court-regulators.html
-
-**Billie Eilish Dares to Write (Twisted) Love Songs**\
-`“Hit Me Hard and Soft,” her third album, is both concise and far-reaching.`\
-https://nytimes.com/2024/05/17/arts/music/billie-eilish-hit-me-hard-and-soft-review.html
-
-**Should Schools Give Students Money to Invest in Their Futures?**\
-`An organization in Harlem is investing millions of dollars to create savings plans for students in its charter schools. Is that a good idea?`\
-https://nytimes.com/2024/05/17/learning/should-schools-give-students-money-to-invest-in-their-futures.html
 
