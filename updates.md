@@ -1,3 +1,11 @@
+**‘Blockout 2024’ Wants to Send Celebrities to the ‘Digital Guillotine’**\
+`A TikTok movement is calling for followers to block famous people over their stances on the Israel-Hamas war. It began at the Met Gala.`\
+https://nytimes.com/2024/05/17/fashion/tiktok-block-lists-celebrities.html
+
+**Tony Pigg, Celebrated D.J. of FM’s Golden Age, Dies at 85**\
+`Arising from the free-form San Francisco radio scene of the 1960s, he became an influential voice on the powerhouse WPLJ in New York.`\
+https://nytimes.com/2024/05/17/obituaries/tony-pigg-celebrated-dj-of-fms-golden-age-dies-at-85.html
+
 **Israeli Officials Heckled During a U.N. Court Hearing**\
 `During a hearing at the International Court of Justice, lawyers representing Israel were called “liars” by a person in the audience while defending the military operation in Rafah.`\
 https://nytimes.com/video/world/middleeast/100000009475074/israel-rafah-world-court.html
