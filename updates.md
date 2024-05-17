@@ -1,3 +1,11 @@
+**Some Conservative Christians Are Stepping Away From the Gender Wars**\
+`Far from the shouting, Christian therapists, writers, parents and their trans children are trying to create a space within conservative circles to acknowledge differences in how people experience gender.`\
+https://nytimes.com/2024/05/17/us/conservative-christian-transgender-religion.html
+
+**Storm Carves Path of Destruction Across Houston**\
+`At least four people were killed when powerful weather ripped through the region. Officials were taking stock of the damage on Friday.`\
+https://nytimes.com/2024/05/17/weather/houston-storm-photos-video.html
+
 **Rule 1 to Be Trump’s Running Mate: Defend Him, but Don’t Steal the Show**\
 `Donald Trump’s search is still in its early stages, but he is said to be leaning toward more experienced options who can help the ticket without seizing his precious spotlight.`\
 https://nytimes.com/2024/05/17/us/politics/trump-vp-vance-burgum-donalds.html
