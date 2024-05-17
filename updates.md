@@ -1,3 +1,7 @@
+**Friday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/05/17/briefing/slovakia-politics-ukraine-gaza.html
+
 **The Kiwi Makes a Startling but Careful Comeback**\
 `At a sanctuary on New Zealand’s North Island, the long-endangered flightless birds have grown so much in number that they are being transported to other areas to start new colonies.`\
 https://nytimes.com/2024/05/17/world/australia/kiwi-comeback.html
