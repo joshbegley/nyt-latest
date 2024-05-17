@@ -1,3 +1,7 @@
+**Soccer’s Governing Body Delays Vote on Palestinian Call to Bar Israel**\
+`FIFA said it would solicit legal advice before taking up a motion from the Palestinian Football Association to suspend Israel over its actions in Gaza and the West Bank.`\
+https://nytimes.com/2024/05/17/world/middleeast/fifa-israel-soccer-gaza.html
+
 **‘Young Sheldon’ Is One of TV’s Most Popular Shows. So Why Did It Just End?**\
 `The “Big Bang Theory” spinoff aired its last episodes Thursday night, but the franchise will continue on CBS this fall.`\
 https://nytimes.com/2024/05/17/arts/television/young-sheldon-ends.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/podcasts/hardfork-gpt4o-ai-overviews.html
 **Wokeness Is Dying. We Might Miss It.**\
 `Nellie Bowles’s new book fights the last war.`\
 https://nytimes.com/2024/05/17/opinion/wokeness-is-dying-we-might-miss-it.html
-
-**6 New Paperbacks to Read This Week**\
-`Recommended reading from the Book Review, including titles by Anne Berest, Brandon Taylor and more.`\
-https://nytimes.com/interactive/2024/05/17/books/review/new-paperbacks-berest.html
 

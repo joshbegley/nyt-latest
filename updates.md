@@ -1,3 +1,7 @@
+**Soccer’s Governing Body Delays Vote on Palestinian Call to Bar Israel**\
+`FIFA said it would solicit legal advice before taking up a motion from the Palestinian Football Association to suspend Israel over its actions in Gaza and the West Bank.`\
+https://nytimes.com/2024/05/17/world/middleeast/fifa-israel-soccer-gaza.html
+
 **‘Young Sheldon’ Is One of TV’s Most Popular Shows. So Why Did It Just End?**\
 `The “Big Bang Theory” spinoff aired its last episodes Thursday night, but the franchise will continue on CBS this fall.`\
 https://nytimes.com/2024/05/17/arts/television/young-sheldon-ends.html
