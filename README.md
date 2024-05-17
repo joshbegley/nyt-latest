@@ -1,3 +1,7 @@
+**A Supreme Court Victory Won’t End a War on Regulators**\
+`A win for the Consumer Financial Protection Bureau removed the existential threat hanging over the agency, but opponents have vowed to keep on fighting.`\
+https://nytimes.com/2024/05/17/business/dealbook/cfpb-supreme-court-regulators.html
+
 **Billie Eilish Dares to Write (Twisted) Love Songs**\
 `“Hit Me Hard and Soft,” her third album, is both concise and far-reaching.`\
 https://nytimes.com/2024/05/17/arts/music/billie-eilish-hit-me-hard-and-soft-review.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/world/asia/new-caledonia-france-protest.html
 **The Campus Protesters Explain Themselves**\
 `Thoughts, beliefs and convictions of student protesters from across the country.`\
 https://nytimes.com/2024/05/17/podcasts/the-daily/collegeprotests.html
-
-**The Rush to Flee Rafah, and the Flag on Justice Alito’s Lawn**\
-`Plus, the grilling of Michael Cohen.`\
-https://nytimes.com/2024/05/17/podcasts/rafah-civilians-justice-alito-flag.html
 
