@@ -1,5 +1,9 @@
 **New Star Wars Plan: Pentagon Rushes to Counter Threats in Orbit**\
 `Citing rapid advances by China and Russia, the United States is building an extensive capacity to fight battles in space.`\
+https://nytimes.com/2024/05/17/us/politics/pentagon-space-military-russia-china.html
+
+**New Star Wars Plan: Pentagon Rushes to Counter Threats in Orbit**\
+`Citing rapid advances by China and Russia, the United States is building an extensive capacity to fight battles in space.`\
 https://nytimes.com/2024/05/17/us/politics/pentagon-threats-in-orbit.html
 
 **Yes, A.I. Can Be Really Dumb. But It’s Still a Good Tutor.**\

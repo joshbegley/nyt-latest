@@ -1,3 +1,19 @@
+**Biden Is Talking Directly to Black Voters. This Is What He Wants Them to Know.**\
+`The president is trying to increase his support among Black Americans, some of whom are angry over the war in Gaza. Others feel disengaged altogether. Here are takeaways from events held this week.`\
+https://nytimes.com/2024/05/17/us/politics/biden-black-voters.html
+
+**Judge John Hodgman on if We Should Trust Bookitty**\
+`A couple’s cat is facing some serious accusations. `\
+https://nytimes.com/2024/05/17/magazine/judge-john-hodgman-cats-fish.html
+
+**Conservative Family Scion Sentenced to Nearly 4 Years for Jan. 6 Attack**\
+`Leo Brent Bozell, the son and grandson of influential right-wing figures, shattered a windowpane in the Capitol, pursued a police officer and made his way into the speaker’s office during the pro-Trump riot.`\
+https://nytimes.com/2024/05/17/us/politics/bozell-jan-6-capitol-sentence.html
+
+**Cyril H. Wecht, Coroner Who Cast Doubt on Kennedy Assassination, Dies at 93**\
+`A widely respected forensic expert and frequent TV presence, he was also a powerful figure in Pennsylvania Democratic politics.`\
+https://nytimes.com/2024/05/17/us/cyril-h-wecht-dead.html
+
 **New Star Wars Plan: Pentagon Rushes to Counter Threats in Orbit**\
 `Citing rapid advances by China and Russia, the United States is building an extensive capacity to fight battles in space.`\
 https://nytimes.com/2024/05/17/us/politics/pentagon-space-military-russia-china.html
@@ -17,20 +33,4 @@ https://nytimes.com/video/us/politics/100000009474480/house-oversight-fighting-g
 **Inside an Art Auction at Christie’s, Days After a Cyberattack**\
 `Although a cyberattack hobbled its website, the auction house Christie’s held two major sales, totaling $115 million, on Tuesday night. Zachary Small, a New York Times reporter who writes about the art world’s relationship to money, politics and technology, describes what happened.`\
 https://nytimes.com/video/arts/100000009470108/inside-an-art-auction-at-christies-days-after-a-cyberattack.html
-
-**Transcript: Ezra Klein Interviews Aslı Ü. Bâli**\
-`The May 17, 2024, episode of “The Ezra Klein Show.”`\
-https://nytimes.com/2024/05/17/podcasts/transcript-ezra-klein-interviews-asli-bali.html
-
-**Gunman Kills Three Spanish Tourists in Central Afghanistan**\
-`One Afghan was also injured in the attack, which many expect will hinder the government’s recent efforts to lure foreign visitors.`\
-https://nytimes.com/2024/05/17/world/asia/spanish-tourists-killed-afganistan.html
-
-**North Carolina Says Yes to Clowns and No to Cancer Patients**\
-`An exemption to a mask ban for medical reasons may soon be eliminated in the state.`\
-https://nytimes.com/live/2024/05/14/opinion/thepoint/north-carolina-mask-bill
-
-**Jon Urbanchek, Who Led Swimmers to Olympic Glory, Dies at 87**\
-`He coached the University of Michigan to 13 Big Ten Conference titles and a national championship. Overall, his swimmers won 21 medals at the Summer Olympics.`\
-https://nytimes.com/2024/05/17/sports/olympics/jon-urbanchek-dead.html
 
