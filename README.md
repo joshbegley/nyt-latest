@@ -1,3 +1,11 @@
+**Putin’s China Visit Highlights Military Ties That Worry the West**\
+`The Russian leader visited an institute in Harbin known for defense research. President Xi Jinping saw him off with a rare and seemingly deliberate embrace for the cameras.`\
+https://nytimes.com/2024/05/17/world/asia/putin-xi-china-russia.html
+
+**Xi Hugs Putin**\
+`In a rare show of affection from China’s leader, Xi Jinping hugged President Vladimir V. Putin of Russia after they vowed deeper cooperation at their summit meeting in Beijing.`\
+https://nytimes.com/video/world/asia/100000009473800/xi-putin-china-summit.html
+
 **In the first aid delivery to Gaza by sea in two months, Pentagon officials said that no U.S. troops entered the territory.**\
 `By Victoria Kim`\
 https://nytimes.com/live/2024/05/17/world/israel-gaza-war-hamas-rafah/initial-deliveries-through-the-temporary-pier-include-food-and-hygiene-items
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/17/crosswords/connections-companion.html
 **Does a Smash Hit Like ‘Lion King’ Deserve a $3 Million Tax Break?**\
 `Broadway is still recovering from the pandemic. A state tax-credit program has helped, but watchdogs say it aids some shows that don’t need a boost.`\
 https://nytimes.com/2024/05/17/nyregion/broadway-tax-subsidy-credits.html
-
-**Today’s Wordle Review No. 1,063**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/17/crosswords/wordle-review.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/05/17/crosswords/spelling-bee-forum.html
 
