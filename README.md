@@ -1,3 +1,7 @@
+**Ad for Lactation Cookies Returns to Times Square**\
+`After Clear Channel, which manages many of the advertisements in the area, said a provocative billboard for a Molly Baz recipe was “flagged for review,” two companies stepped in to offer new space.`\
+https://nytimes.com/2024/05/17/style/lactation-cookie-billboard-times-square.html
+
 **Slovakia Is at a Dangerous Moment**\
 `The shooting of Slovakia’s prime minister comes with a backdrop of growing political polarization.`\
 https://nytimes.com/2024/05/17/opinion/slovakia-fico-assassination-attempt-political-violence.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/us/upside-down-american-flag-alito.html
 **Aid Starts Entering Gaza Through U.S.-Built Pier, but Officials Say It Isn’t Enough**\
 `Israel said Friday that it was facilitating the flow of aid and that its operations in Rafah, which have caused 630,000 people to flee, were ‘limited and localized.’`\
 https://nytimes.com/2024/05/17/world/middleeast/food-aid-gaza-pier.html
-
-**Have You Fought With Neighbors About Politics? Share Your Story.**\
-`We want to hear experiences of neighborhood disputes to feature in an upcoming newsletter.`\
-https://nytimes.com/2024/05/17/us/alito-neighbors-politics.html
 
