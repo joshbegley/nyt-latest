@@ -1,3 +1,7 @@
+**Accustomed to Disasters, Houston Didn’t See This One Coming**\
+`Hurricane-strength winds swept through the city, but without the warnings that come with a hurricane. The storm left shocked residents and a landscape of debris.`\
+https://nytimes.com/2024/05/17/us/houston-texas-storms-wind-damage.html
+
 **5 Takeaways From the First Week of Robert Menendez’s Corruption Trial**\
 `A lawyer for the New Jersey senator pinned much of the blame on his wife. A government official explained halal meat certification.`\
 https://nytimes.com/2024/05/17/nyregion/robert-menendez-bribery-trial.html
