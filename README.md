@@ -1,3 +1,11 @@
+**How Election Deniers Claimed the Upside-Down Flag**\
+`The practice started with sailors signaling distress but evolved into a form of protest, most recently among Trump supporters who believe the falsehood that the 2020 election was stolen.`\
+https://nytimes.com/2024/05/17/us/upside-down-american-flag-alito.html
+
+**Aid Starts Entering Gaza Through U.S.-Built Pier, but Officials Say It Isn’t Enough**\
+`Israel said Friday that it was facilitating the flow of aid and that its operations in Rafah, which have caused 630,000 people to flee, were ‘limited and localized.’`\
+https://nytimes.com/2024/05/17/world/middleeast/food-aid-gaza-pier.html
+
 **Have You Fought With Neighbors About Politics? Share Your Story.**\
 `We want to hear experiences of neighborhood disputes to feature in an upcoming newsletter.`\
 https://nytimes.com/2024/05/17/us/alito-neighbors-politics.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/17/us/houston-texas-storms-wind-damage.html
 **5 Takeaways From the First Week of Robert Menendez’s Corruption Trial**\
 `A lawyer for the New Jersey senator pinned much of the blame on his wife. A government official explained halal meat certification.`\
 https://nytimes.com/2024/05/17/nyregion/robert-menendez-bribery-trial.html
-
-**Ukraine Asks U.S. to Provide More Intelligence on Targets in Russia**\
-`American officials say they do not want U.S. weapons used in cross-border attacks or intelligence reports used to strike inside Russia.`\
-https://nytimes.com/2024/05/17/us/politics/ukraine-intelligence-russia-targets.html
-
-**My Father Sexually Abused Me. Should I Tell My Family?**\
-`The magazine’s Ethicist columnist on whether to disclose a devastating, destabilizing secret.`\
-https://nytimes.com/2024/05/17/magazine/father-abuse-family-ethics.html
 
