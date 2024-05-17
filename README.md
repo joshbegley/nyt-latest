@@ -1,3 +1,7 @@
+**Friday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/05/17/briefing/slovakia-politics-ukraine-gaza.html
+
 **The Kiwi Makes a Startling but Careful Comeback**\
 `At a sanctuary on New Zealand’s North Island, the long-endangered flightless birds have grown so much in number that they are being transported to other areas to start new colonies.`\
 https://nytimes.com/2024/05/17/world/australia/kiwi-comeback.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/style/alexandra-voyatzakis-pontus-henriksson-wedd
 **After a Season of Protest, PEN America’s Literary Gala Goes Forward**\
 `The free-expression group has been engulfed by debate over its response to the Gaza war that forced the cancellation of its literary awards and annual festival.`\
 https://nytimes.com/2024/05/16/arts/pen-america-gala-gaza.html
-
-**At Least 12 Arrested at U.C. Berkeley After Police Order Protesters to Disperse**\
-`The authorities had given demonstrators until 7 p.m. to vacate a new encampment that had been erected at a fire-damaged complex on campus.`\
-https://nytimes.com/2024/05/16/us/berkeley-arrests.html
 
