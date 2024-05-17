@@ -1,3 +1,7 @@
+**‘Megalopolis’ Premieres at Cannes: First Reaction**\
+`Francis Ford Coppola’s first movie in more than a decade reveals a filmmaker not content to rest on his laurels.`\
+https://nytimes.com/2024/05/16/movies/megalopolis-reaction-cannes.html
+
 **Arab League Calls for U.N. Peacekeepers in Gaza and the West Bank**\
 `Any use of U.N. forces would have to be approved by the Security Council. “There first has to be peace to keep," said a U.N. spokesman.`\
 https://nytimes.com/2024/05/16/world/middleeast/un-peacekeepers-arab-league.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/technology/robert-dennard-dead.html
 **What the Supreme Court Ruling Means for Other Consumer Bureau Actions**\
 `A score of court cases involving the Consumer Financial Protection Bureau can now proceed, but it is still likely to face legal challenges.`\
 https://nytimes.com/2024/05/16/business/cfpb-cases-supreme-court.html
-
-**Biden Marks Landmark Desegregation Anniversary as Black Support Slips**\
-`President Biden commemorated Brown v. Board of Education during one of a series of events over the next several days to highlight his commitment to the Black community.`\
-https://nytimes.com/2024/05/16/us/politics/biden-brown-board-education-anniversary.html
 
