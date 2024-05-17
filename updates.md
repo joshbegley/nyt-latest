@@ -1,3 +1,7 @@
+**Arab League Calls for U.N. Peacekeepers in Gaza and the West Bank**\
+`Any use of U.N. forces would have to be approved by the Security Council. “There first has to be peace to keep," said a U.N. spokesman.`\
+https://nytimes.com/2024/05/16/world/middleeast/un-peacekeepers-arab-league.html
+
 **Columbia Professors Host an Alternative Graduation for Students**\
 `After some ceremonies were canceled or moved, some college students in New York attended an event near Columbia’s campus where speakers praised pro-Palestinian demonstrations.`\
 https://nytimes.com/2024/05/16/nyregion/columbia-peoples-graduation-nyc.html
