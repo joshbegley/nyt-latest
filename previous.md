@@ -1,4 +1,4 @@
-**Initial deliveries through the temporary pier include food and hygiene items.**\
+**In the first aid delivery to Gaza by sea in two months, Pentagon officials said that no U.S. troops entered the territory.**\
 `By Victoria Kim`\
 https://nytimes.com/live/2024/05/17/world/israel-gaza-war-hamas-rafah/initial-deliveries-through-the-temporary-pier-include-food-and-hygiene-items
 
