@@ -1,3 +1,7 @@
+**At Least Four Dead as Storms Batter Houston Area**\
+`Buildings were damaged in Houston and school officials canceled classes in the city on Friday, citing the destruction.`\
+https://nytimes.com/2024/05/16/us/texas-flood-tornado-storms.html
+
 **David Trone Torched $60 Million of His Own Money. He’s Not the Only One.**\
 `It is a time-honored tradition in U.S. politics: wealthy people burning through their fortunes to ultimately lose an election.`\
 https://nytimes.com/2024/05/16/us/politics/trone-bloomberg-wealth-campaign-funding.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/world/middleeast/israel-rafah-gaza-famine.html
 **In Emotional Hearing, Maine Shooter’s Relatives Describe Efforts to Get Him Psychiatric Help**\
 `“It’s on all of us to make sure the next time we need to get help for someone, we do better,” Cara Lamb, the gunman’s ex-wife, told the commission investigating the October mass shooting.`\
 https://nytimes.com/2024/05/16/us/maine-shooting-robert-card-family-testimony.html
-
-**Menendez Jurors See the Gold Bars at the Heart of a Bribery Case**\
-`An F.B.I. agent, testifying for the government, described his search of Senator Robert Menendez’s house in New Jersey.`\
-https://nytimes.com/2024/05/16/nyregion/robert-menendez-gold-bars-jury.html
 
