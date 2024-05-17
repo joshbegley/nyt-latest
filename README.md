@@ -1,3 +1,7 @@
+**Attack on Crimea Hits Power Plant**\
+`Schools were closed across the city of Sevastopol, which is home to some of Russia’s naval fleet. The government said there were rolling blackouts.`\
+https://nytimes.com/2024/05/17/world/europe/sevastopol-ukraine-crimea-russia.html
+
 **The Premier League’s Asterisk Season**\
 `As it concludes an epic title race, soccer’s richest competition is a picture of health on the field. Away from it, the league faces lawsuits, infighting and the threat of government regulation.`\
 https://nytimes.com/2024/05/17/world/europe/premier-league-manchester-city-arsenal.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/style/bryan-braswell-caroline-white-wedding.html
 **A Day to Remember for Two ‘Star Wars’ Fans (Lightsabers Included)**\
 `Matthew Burroughs and Diana McDermott married on May 4, which the bride referenced in her vows by saying, “May the force be with us.”`\
 https://nytimes.com/2024/05/17/style/matthew-burroughs-diana-mcdermott-wedding.html
-
-**On Her Second Chance to Swipe, She ‘Finally Got It Right’**\
-`Alexandra Voyatzakis was initially reluctant to connect with Pontus Henriksson, but a few months later, when she had the opportunity again, she took it.`\
-https://nytimes.com/2024/05/17/style/alexandra-voyatzakis-pontus-henriksson-wedding.html
 
