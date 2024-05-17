@@ -1,3 +1,7 @@
+**In the Aging Senate, 80-Somethings Seeking Re-election Draw Little Criticism**\
+`Age and health have drawn intensive focus in the presidential race, but the recent news that two octogenarians in the Senate are running again has prompted little discussion of their age.`\
+https://nytimes.com/2024/05/17/us/politics/senate-age-octogenarians.html
+
 **TikTok Attempts to Rein In Weight Loss Posts**\
 `The company said it will work to remove content about drugs like Ozempic, extended fasting and more from the “For You” feed.`\
 https://nytimes.com/2024/05/17/well/live/tiktok-diet-weight-loss.html
@@ -8,7 +12,7 @@ https://nytimes.com/2024/05/17/dining/salt-crispy-chicken-vesuvio-a-chicago-clas
 
 **Five Action Movies to Stream Now**\
 `This month’s picks include crypto terrorism, gaslighting, an undercover mission and more.`\
-https://nytimes.com/2024/05/17/movies/five-action-movies-to-stream-now.html
+https://nytimes.com/2024/05/17/movies/action-movies-streaming.html
 
 **Taking Games Abroad Won’t Save Your League. Better Title Races Might.**\
 `Soccer’s leaders have landed on the wrong solution. Again.`\
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/us/politics/trump-vp-vance-burgum-donalds.html
 **Why a Tactic Used by Czars Is Back With a Vengeance**\
 `Authoritarian governments have long sought to target dissidents abroad. But the digital age may have given them stronger motives, and better tools, for transnational repression.`\
 https://nytimes.com/2024/05/17/world/europe/transnational-repression-hong-kong-uk.html
-
-**‘Dungeons & Dragons’ Review: Community Building One Dice Roll at a Time**\
-`Improv adds a theatrical dimension to the role-playing game, which has been undergoing a renaissance as it turns 50 this year.`\
-https://nytimes.com/2024/05/17/theater/dungeons-dragons-review.html
 

@@ -1,3 +1,11 @@
+**In the Aging Senate, 80-Somethings Seeking Re-election Draw Little Criticism**\
+`Age and health have drawn intensive focus in the presidential race, but the recent news that two octogenarians in the Senate are running again has prompted little discussion of their age.`\
+https://nytimes.com/2024/05/17/us/politics/senate-age-octogenarians.html
+
+**Five Action Movies to Stream Now**\
+`This month’s picks include crypto terrorism, gaslighting, an undercover mission and more.`\
+https://nytimes.com/2024/05/17/movies/action-movies-streaming.html
+
 **TikTok Attempts to Rein In Weight Loss Posts**\
 `The company said it will work to remove content about drugs like Ozempic, extended fasting and more from the “For You” feed.`\
 https://nytimes.com/2024/05/17/well/live/tiktok-diet-weight-loss.html
