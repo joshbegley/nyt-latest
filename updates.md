@@ -1,3 +1,11 @@
+**How Election Deniers Claimed the Upside-Down Flag**\
+`The practice started with sailors signaling distress but evolved into a form of protest, most recently among Trump supporters who believe the falsehood that the 2020 election was stolen.`\
+https://nytimes.com/2024/05/17/us/upside-down-american-flag-alito.html
+
+**Aid Starts Entering Gaza Through U.S.-Built Pier, but Officials Say It Isn’t Enough**\
+`Israel said Friday that it was facilitating the flow of aid and that its operations in Rafah, which have caused 630,000 people to flee, were ‘limited and localized.’`\
+https://nytimes.com/2024/05/17/world/middleeast/food-aid-gaza-pier.html
+
 **Have You Fought With Neighbors About Politics? Share Your Story.**\
 `We want to hear experiences of neighborhood disputes to feature in an upcoming newsletter.`\
 https://nytimes.com/2024/05/17/us/alito-neighbors-politics.html
