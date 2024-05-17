@@ -1,3 +1,11 @@
+**New Star Wars Plan: Pentagon Rushes to Counter Threats in Orbit**\
+`Citing rapid advances by China and Russia, the United States is building an extensive capacity to fight battles in space.`\
+https://nytimes.com/2024/05/17/us/politics/pentagon-threats-in-orbit.html
+
+**Yes, A.I. Can Be Really Dumb. But It’s Still a Good Tutor.**\
+`Technology can’t and shouldn’t replace educators, but it can complement what they do best.`\
+https://nytimes.com/2024/05/17/opinion/ai-school-teachers-classroom.html
+
 **What Do Judicial Rules Say About Alito and a ‘Stop the Steal’ Symbol?**\
 `Judicial experts say an upside-down flag at the justice’s home raises thorny questions about potential ethics violations and what circumstances require recusal from cases.`\
 https://nytimes.com/2024/05/17/us/alito-stop-steal-flag-ethics.html
@@ -25,12 +33,4 @@ https://nytimes.com/live/2024/05/14/opinion/thepoint/north-carolina-mask-bill
 **Jon Urbanchek, Who Led Swimmers to Olympic Glory, Dies at 87**\
 `He coached the University of Michigan to 13 Big Ten Conference titles and a national championship. Overall, his swimmers won 21 medals at the Summer Olympics.`\
 https://nytimes.com/2024/05/17/sports/olympics/jon-urbanchek-dead.html
-
-**Thunderstorms, Wind and Climate Change: Here’s What to Know**\
-`Scientists say storms like those that battered Houston could become more intense as the planet warms, though pinning down trends is still challenging.`\
-https://nytimes.com/2024/05/17/climate/thunderstorms-wind-climate-change.html
-
-**Sean Combs Is Shown Assaulting Cassie in 2016 Surveillance Video**\
-`The footage published by CNN shows Mr. Combs striking and kicking the singer when she was his girlfriend. They settled a lawsuit last year after she accused him of abuse.`\
-https://nytimes.com/2024/05/17/arts/music/sean-combs-diddy-cassie-assault-video.html
 
