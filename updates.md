@@ -1,3 +1,11 @@
+**New Star Wars Plan: Pentagon Rushes to Counter Threats in Orbit**\
+`Citing rapid advances by China and Russia, the United States is building an extensive capacity to fight battles in space.`\
+https://nytimes.com/2024/05/17/us/politics/pentagon-threats-in-orbit.html
+
+**Yes, A.I. Can Be Really Dumb. But It’s Still a Good Tutor.**\
+`Technology can’t and shouldn’t replace educators, but it can complement what they do best.`\
+https://nytimes.com/2024/05/17/opinion/ai-school-teachers-classroom.html
+
 **What Do Judicial Rules Say About Alito and a ‘Stop the Steal’ Symbol?**\
 `Judicial experts say an upside-down flag at the justice’s home raises thorny questions about potential ethics violations and what circumstances require recusal from cases.`\
 https://nytimes.com/2024/05/17/us/alito-stop-steal-flag-ethics.html
