@@ -1,5 +1,5 @@
 **Free Preschool With One Catch: It May Be a Long Commute Away**\
-`Many New York City families counted on the prospect of free preschool, but hundreds were not immediately offered a seat and may have to travel hours if they receive one.`\
+`Many New York City families counted on the prospect of free preschool, but hundreds were not immediately offered a seat and may have to travel across town to available spots.`\
 https://nytimes.com/2024/05/17/nyregion/3k-preschool-admissions-nyc.html
 
 **Rule 1 to Be Trump’s Running Mate: Defend Him, but Don’t Steal the Show**\
