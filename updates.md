@@ -1,3 +1,7 @@
+**The Premier League’s Asterisk Season**\
+`As it concludes an epic title race, soccer’s richest competition is a picture of health on the field. Away from it, the league faces lawsuits, infighting and the threat of government regulation.`\
+https://nytimes.com/2024/05/17/world/europe/premier-league-manchester-city-arsenal.html
+
 **Friday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2024/05/17/briefing/slovakia-politics-ukraine-gaza.html
