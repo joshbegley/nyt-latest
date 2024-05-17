@@ -1,3 +1,7 @@
+**Alta, Irreverent Feminist Poet and Small-Press Pioneer, Dies at 81**\
+`She wrote lusty work about her life. She also started what may have been America’s first feminist press, Shameless Hussy, in her garage.`\
+https://nytimes.com/2024/05/17/books/alta-dead.html
+
 **The Stars Come Out for Sports Illustrated’s Swimsuit Issue**\
 `Gayle King, Patrick Mahomes and others arrived in Midtown to celebrate the staying power of the publication on its 60th anniversary.`\
 https://nytimes.com/2024/05/17/style/sports-illusrated-swimsuit-issue-anniversary.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/05/17/world/israel-gaza-war-hamas-rafah/the-recove
 **The French Don’t Snack. They Apéro.**\
 `Rebekah Peppler shines a spotlight on a beloved French tradition that you can try at home.`\
 https://nytimes.com/2024/05/17/dining/french-apero.html
-
-**The Best of Late Night This Week**\
-`Michael Cohen’s testimony in former President Donald Trump’s criminal hush-money trial gave the hosts plenty of fodder this week. Here’s what they had to say. `\
-https://nytimes.com/interactive/2024/05/17/arts/best-of-late-night-michael-cohen.html
 

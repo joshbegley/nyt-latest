@@ -1,3 +1,7 @@
+**Alta, Irreverent Feminist Poet and Small-Press Pioneer, Dies at 81**\
+`She wrote lusty work about her life. She also started what may have been America’s first feminist press, Shameless Hussy, in her garage.`\
+https://nytimes.com/2024/05/17/books/alta-dead.html
+
 **The Stars Come Out for Sports Illustrated’s Swimsuit Issue**\
 `Gayle King, Patrick Mahomes and others arrived in Midtown to celebrate the staying power of the publication on its 60th anniversary.`\
 https://nytimes.com/2024/05/17/style/sports-illusrated-swimsuit-issue-anniversary.html
