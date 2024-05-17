@@ -1,3 +1,7 @@
+**Billie Eilish Dares to Write (Twisted) Love Songs**\
+`“Hit Me Hard and Soft,” her third album, is both concise and far-reaching.`\
+https://nytimes.com/2024/05/17/arts/music/billie-eilish-hit-me-hard-and-soft-review.html
+
 **Should Schools Give Students Money to Invest in Their Futures?**\
 `An organization in Harlem is investing millions of dollars to create savings plans for students in its charter schools. Is that a good idea?`\
 https://nytimes.com/2024/05/17/learning/should-schools-give-students-money-to-invest-in-their-futures.html

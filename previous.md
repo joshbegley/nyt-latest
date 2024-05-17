@@ -1,3 +1,7 @@
+**Billie Eilish Dares to Write (Twisted) Love Songs**\
+`“Hit Me Hard and Soft,” her third album, is both concise and far-reaching.`\
+https://nytimes.com/2024/05/17/arts/music/billie-eilish-hit-me-hard-and-soft-review.html
+
 **Should Schools Give Students Money to Invest in Their Futures?**\
 `An organization in Harlem is investing millions of dollars to create savings plans for students in its charter schools. Is that a good idea?`\
 https://nytimes.com/2024/05/17/learning/should-schools-give-students-money-to-invest-in-their-futures.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/podcasts/the-daily/collegeprotests.html
 **The Rush to Flee Rafah, and the Flag on Justice Alito’s Lawn**\
 `Plus, the grilling of Michael Cohen.`\
 https://nytimes.com/2024/05/17/podcasts/rafah-civilians-justice-alito-flag.html
-
-**How the Last Dinner Party Became the U.K.’s Buzziest Band**\
-`Our culture reporter charts its meteoric rise.`\
-https://nytimes.com/2024/05/17/podcasts/how-the-last-dinner-party-became-the-uks-buzziest-band.html
 
