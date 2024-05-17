@@ -1,3 +1,7 @@
+**Arts School Settles Sexual Abuse Lawsuit for $12.5 Million**\
+`Dozens of alumni of the University of North Carolina School of the Arts had sued in 2021, accusing faculty members of widespread misconduct.`\
+https://nytimes.com/2024/05/17/arts/unc-school-of-the-arts-sexual-abuse-lawsuit.html
+
 **Ad for Lactation Cookies Returns to Times Square**\
 `After Clear Channel, which manages many of the advertisements in the area, said a provocative billboard for a Molly Baz recipe was “flagged for review,” two companies stepped in to offer new space.`\
 https://nytimes.com/2024/05/17/style/lactation-cookie-billboard-times-square.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/05/14/opinion/thepoint/uaw-mercedes-vote-south
 **How Election Deniers Claimed the Upside-Down Flag**\
 `The practice started with sailors signaling distress but evolved into a form of protest, most recently among Trump supporters who believe the falsehood that the 2020 election was stolen.`\
 https://nytimes.com/2024/05/17/us/upside-down-american-flag-alito.html
-
-**Aid Starts Entering Gaza Through U.S.-Built Pier, but Officials Say It Isn’t Enough**\
-`Israel said Friday that it was facilitating the flow of aid and that its operations in Rafah, which have caused 630,000 people to flee, were ‘limited and localized.’`\
-https://nytimes.com/2024/05/17/world/middleeast/food-aid-gaza-pier.html
 
