@@ -1,3 +1,11 @@
+**Ukraine Asks U.S. to Provide More Intelligence on Targets in Russia**\
+`American officials say they do not want U.S. weapons used in cross-border attacks or intelligence reports used to strike inside Russia.`\
+https://nytimes.com/2024/05/17/us/politics/ukraine-intelligence-russia-targets.html
+
+**My Father Sexually Abused Me. Should I Tell My Family?**\
+`The magazine’s Ethicist columnist on whether to disclose a devastating, destabilizing secret.`\
+https://nytimes.com/2024/05/17/magazine/father-abuse-family-ethics.html
+
 **Why Did the First Space Shuttle Disaster Happen?**\
 `Adam Higginbotham discusses his new book, “Challenger: A True Story of Heroism and Disaster on the Edge of Space.”`\
 https://nytimes.com/2024/05/17/books/review/podcast-adam-higginbotham-challenger.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/17/us/politics/alito-menendez-wives-blame.html
 **Judge to Rule Next Week on Whether to Dismiss Alec Baldwin Case**\
 `During a heated hearing, Mr. Baldwin’s lawyers claimed prosecutors had improperly presented evidence to the grand jury considering the fatal shooting on the set of “Rust.”`\
 https://nytimes.com/2024/05/17/movies/alec-baldwin-rust.html
-
-**Biden Is Talking Directly to Black Voters. This Is What He Wants Them to Know.**\
-`The president is trying to increase his support among Black Americans, some of whom are angry over the war in Gaza. Others feel disengaged altogether. Here are takeaways from events held this week.`\
-https://nytimes.com/2024/05/17/us/politics/biden-black-voters.html
-
-**Judge John Hodgman on if We Should Trust Bookitty**\
-`A couple’s cat is facing some serious accusations. `\
-https://nytimes.com/2024/05/17/magazine/judge-john-hodgman-cats-fish.html
 
