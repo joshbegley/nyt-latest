@@ -1,3 +1,11 @@
+**Rule 1 to Be Trump’s Running Mate: Defend Him, but Don’t Steal the Show**\
+`Donald Trump’s search is still in its early stages, but he is said to be leaning toward more experienced options who can help the ticket without seizing his precious spotlight.`\
+https://nytimes.com/2024/05/17/us/politics/trump-vp-vance-burgum-donalds.html
+
+**Why a Tactic Used by Czars Is Back With a Vengeance**\
+`Authoritarian governments have long sought to target dissidents abroad. But the digital age may have given them stronger motives, and better tools, for transnational repression.`\
+https://nytimes.com/2024/05/17/world/europe/transnational-repression-hong-kong-uk.html
+
 **‘Dungeons & Dragons’ Review: Community Building One Dice Roll at a Time**\
 `Improv adds a theatrical dimension to the role-playing game, which has been undergoing a renaissance as it turns 50 this year.`\
 https://nytimes.com/2024/05/17/theater/dungeons-dragons-review.html

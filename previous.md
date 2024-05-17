@@ -1,3 +1,11 @@
+**Rule 1 to Be Trump’s Running Mate: Defend Him, but Don’t Steal the Show**\
+`Donald Trump’s search is still in its early stages, but he is said to be leaning toward more experienced options who can help the ticket without seizing his precious spotlight.`\
+https://nytimes.com/2024/05/17/us/politics/trump-vp-vance-burgum-donalds.html
+
+**Why a Tactic Used by Czars Is Back With a Vengeance**\
+`Authoritarian governments have long sought to target dissidents abroad. But the digital age may have given them stronger motives, and better tools, for transnational repression.`\
+https://nytimes.com/2024/05/17/world/europe/transnational-repression-hong-kong-uk.html
+
 **‘Dungeons & Dragons’ Review: Community Building One Dice Roll at a Time**\
 `Improv adds a theatrical dimension to the role-playing game, which has been undergoing a renaissance as it turns 50 this year.`\
 https://nytimes.com/2024/05/17/theater/dungeons-dragons-review.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/17/us/politics/trump-minnesota.html
 **Zelensky Signs Law Allowing Convicts to Fight for Ukraine**\
 `The tactic echoes one that Russia has used and Ukraine has ridiculed in the past.`\
 https://nytimes.com/2024/05/17/world/europe/ukraine-convicts-zelensky.html
-
-**Avril Lavigne Is Back. If You Believe That.**\
-`The Canadian singer, with a new album and a tour, this week addressed a bizarre conspiracy theory that she has been replaced with a doppelgänger.`\
-https://nytimes.com/2024/05/17/arts/music/avril-lavigne-melissa-double.html
-
-**Sutton Foster to Star in ‘Once Upon a Mattress’ on Broadway**\
-`The revival, which had an earlier run at New York City Center, is scheduled to open in August and close in November, followed by a run in Los Angeles.`\
-https://nytimes.com/2024/05/17/theater/sutton-foster-mattress-broadway.html
 
