@@ -1,3 +1,7 @@
+**TikTok Attempts to Rein In Weight Loss Posts**\
+`The company said it will work to remove content about drugs like Ozempic, extended fasting and more from the “For You” feed.`\
+https://nytimes.com/2024/05/17/well/live/tiktok-diet-weight-loss.html
+
 **Salt-Crispy Chicken Vesuvio, a Chicago Classic**\
 `More weekend cooking: clams casino, a freestyle pizza and rhubarb pie.`\
 https://nytimes.com/2024/05/17/dining/salt-crispy-chicken-vesuvio-a-chicago-classic.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/world/europe/transnational-repression-hong-kong-u
 **‘Dungeons & Dragons’ Review: Community Building One Dice Roll at a Time**\
 `Improv adds a theatrical dimension to the role-playing game, which has been undergoing a renaissance as it turns 50 this year.`\
 https://nytimes.com/2024/05/17/theater/dungeons-dragons-review.html
-
-**Review: ‘Problems Between Sisters’ Puts a Spin on the Berserk Boys Club**\
-`Julia May Jonas turns the menacing male siblings of Sam Shepard’s “True West” into squabbling pregnant sisters in Vermont.`\
-https://nytimes.com/2024/05/17/theater/problems-between-sisters-review.html
 
