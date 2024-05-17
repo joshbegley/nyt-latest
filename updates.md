@@ -1,3 +1,11 @@
+**The Stars Come Out for Sports Illustrated’s Swimsuit Issue**\
+`Gayle King, Patrick Mahomes and others arrived in Midtown to celebrate the staying power of the publication on its 60th anniversary.`\
+https://nytimes.com/2024/05/17/style/sports-illusrated-swimsuit-issue-anniversary.html
+
+**‘Oversight After Dark’: Lawmakers Hurl Insults at Session**\
+`In an after-hours session on Capitol Hill, insults by the right-wing Republican Marjorie Taylor Greene led to a raucous exchange with Democrats, featuring insults about personal appearance, intellect and more.`\
+https://nytimes.com/2024/05/17/us/politics/marjorie-taylor-greene-insults-crockett.html
+
 **Esperanza Spalding’s Latest Surprise, and 10 More New Songs**\
 `Hear the jazz musician’s team-up with the Brazilian songwriter Milton Nascimento, plus tracks from Saweetie, Omar Apollo and others.`\
 https://nytimes.com/2024/05/17/arts/music/playlist-saweetie-omar-apollo.html
