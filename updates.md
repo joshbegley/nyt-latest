@@ -1,3 +1,7 @@
+**Oregon Man Charged in Murders of 3 Women**\
+`The bodies of the victims were found in April 2023 within about three weeks of each other in the northwestern part of the state.`\
+https://nytimes.com/2024/05/17/us/jesse-calhoun-indicted-murder-oregon.html
+
 **A Serial Killer from the U.S. Preyed on Young Women in Canada**\
 `The police believe the killer, who died in an Idaho jail, may be linked to the unsolved murders of other women in British Columbia, Alberta and the United States.`\
 https://nytimes.com/2024/05/17/world/canada/american-serial-killer-murders-canada.html
