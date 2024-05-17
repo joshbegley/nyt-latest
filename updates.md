@@ -1,3 +1,7 @@
+**At Least Four Dead as Storms Batter Houston Area**\
+`Buildings were damaged in Houston and school officials canceled classes in the city on Friday, citing the destruction. It may take the city as much as 48 hours to restore power to some customers.`\
+https://nytimes.com/2024/05/16/us/texas-flood-tornado-storms-outages.html
+
 **After a Season of Protest, PEN America’s Literary Gala Goes Forward**\
 `The free-expression group has been engulfed by debate over its response to the Gaza war that forced the cancellation of its literary awards and annual festival.`\
 https://nytimes.com/2024/05/16/arts/pen-america-gala-gaza.html
