@@ -1,3 +1,7 @@
+**David Trone Torched $60 Million of His Own Money. He’s Not the Only One.**\
+`It is a time-honored tradition in U.S. politics: wealthy people burning through their fortunes to ultimately lose an election.`\
+https://nytimes.com/2024/05/16/us/politics/trone-bloomberg-wealth-campaign-funding.html
+
 **Comes Out on Top**\
 `There’s more than one way to solve Hemant Mehta’s Friday puzzle. If at first you don’t succeed with a crossword, develop a good 21-Down.`\
 https://nytimes.com/2024/05/16/crosswords/daily-puzzle-2024-05-17.html
