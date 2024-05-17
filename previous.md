@@ -1,3 +1,7 @@
+**Should Schools Give Students Money to Invest in Their Futures?**\
+`An organization in Harlem is investing millions of dollars to create savings plans for students in its charter schools. Is that a good idea?`\
+https://nytimes.com/2024/05/17/learning/should-schools-give-students-money-to-invest-in-their-futures.html
+
 **Israel Defends Rafah Operation as ‘Limited and Localized’ at U.N. Court**\
 `Lawyers for Israel argued that the International Court of Justice should not grant a South African request to order an immediate halt to the ground assault in Rafah.`\
 https://nytimes.com/2024/05/17/world/middleeast/israel-rafah-gaza-icj.html
@@ -22,15 +26,11 @@ https://nytimes.com/2024/05/17/world/asia/new-caledonia-france-protest.html
 `Thoughts, beliefs and convictions of student protesters from across the country.`\
 https://nytimes.com/2024/05/17/podcasts/the-daily/collegeprotests.html
 
-**The Rush to Flee Rafah, and a Pro-Trump Symbol at a Justice’s House**\
+**The Rush to Flee Rafah, and the Flag on Justice Alito’s Lawn**\
 `Plus, the grilling of Michael Cohen.`\
 https://nytimes.com/2024/05/17/podcasts/rafah-civilians-justice-alito-flag.html
 
 **How the Last Dinner Party Became the U.K.’s Buzziest Band**\
 `Our culture reporter charts its meteoric rise.`\
 https://nytimes.com/2024/05/17/podcasts/how-the-last-dinner-party-became-the-uks-buzziest-band.html
-
-**Buzz, Chirp, Wee-Oo: The Sounds of Cicadas Are Back**\
-`As some of the loudest singing insects on Earth are back to chirp at a volume similar to an airplane’s, Americans are rejoicing or covering their ears. Listen to some of the species.`\
-https://nytimes.com/2024/05/17/us/cicadas-sounds-dual-emergence.html
 

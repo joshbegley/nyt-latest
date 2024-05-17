@@ -1,3 +1,11 @@
+**Should Schools Give Students Money to Invest in Their Futures?**\
+`An organization in Harlem is investing millions of dollars to create savings plans for students in its charter schools. Is that a good idea?`\
+https://nytimes.com/2024/05/17/learning/should-schools-give-students-money-to-invest-in-their-futures.html
+
+**The Rush to Flee Rafah, and the Flag on Justice Alito’s Lawn**\
+`Plus, the grilling of Michael Cohen.`\
+https://nytimes.com/2024/05/17/podcasts/rafah-civilians-justice-alito-flag.html
+
 **Israel Defends Rafah Operation as ‘Limited and Localized’ at U.N. Court**\
 `Lawyers for Israel argued that the International Court of Justice should not grant a South African request to order an immediate halt to the ground assault in Rafah.`\
 https://nytimes.com/2024/05/17/world/middleeast/israel-rafah-gaza-icj.html
