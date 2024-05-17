@@ -1,3 +1,7 @@
+**Taiwan, on China’s Doorstep, Is Dealing With TikTok Its Own Way**\
+`The island democracy was early to ban TikTok on government phones, and the ruling party refuses to use it. But a U.S.-style ban is not under consideration.`\
+https://nytimes.com/2024/05/16/business/tiktok-taiwan.html
+
 **‘Megalopolis’ Premieres at Cannes: First Reaction**\
 `Francis Ford Coppola’s first movie in more than a decade reveals a filmmaker not content to rest on his laurels.`\
 https://nytimes.com/2024/05/16/movies/megalopolis-reaction-cannes.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/nyregion/jan-6-mta-worker-charged.html
 **Robert Dennard, IBM Inventor Whose Chip Changed Computing, Dies at 91**\
 `He invented DRAM, the technology that allowed for the faster and higher-capacity memory storage that is the basis for modern computing.`\
 https://nytimes.com/2024/05/16/technology/robert-dennard-dead.html
-
-**What the Supreme Court Ruling Means for Other Consumer Bureau Actions**\
-`A score of court cases involving the Consumer Financial Protection Bureau can now proceed, but it is still likely to face legal challenges.`\
-https://nytimes.com/2024/05/16/business/cfpb-cases-supreme-court.html
 

@@ -1,3 +1,7 @@
+**Taiwan, on China’s Doorstep, Is Dealing With TikTok Its Own Way**\
+`The island democracy was early to ban TikTok on government phones, and the ruling party refuses to use it. But a U.S.-style ban is not under consideration.`\
+https://nytimes.com/2024/05/16/business/tiktok-taiwan.html
+
 **‘Megalopolis’ Premieres at Cannes: First Reaction**\
 `Francis Ford Coppola’s first movie in more than a decade reveals a filmmaker not content to rest on his laurels.`\
 https://nytimes.com/2024/05/16/movies/megalopolis-reaction-cannes.html
