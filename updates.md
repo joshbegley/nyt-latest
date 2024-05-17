@@ -1,3 +1,7 @@
+**As Supernatural Claims Spread Online, Vatican Updates Its Rules on Them**\
+`People have long claimed sightings of the Virgin Mary or bleeding crucifixes, and some endorsed by the Roman Catholic Church have become hugely popular pilgrimage destinations.`\
+https://nytimes.com/2024/05/17/world/europe/vatican-apparitions-supernatural.html
+
 **Trump’s Criminal Trial, Explained**\
 `Figures from Donald Trump’s past have sworn an oath that could threaten his future.`\
 https://nytimes.com/2024/05/17/briefing/trumps-criminal-trial-explained.html
