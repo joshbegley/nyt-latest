@@ -1,5 +1,9 @@
 **At Least Four Dead as Storms Batter Houston Area**\
 `Buildings were damaged in Houston and school officials canceled classes in the city on Friday, citing the destruction.`\
+https://nytimes.com/2024/05/16/us/texas-flood-tornado-storms-outages.html
+
+**At Least Four Dead as Storms Batter Houston Area**\
+`Buildings were damaged in Houston and school officials canceled classes in the city on Friday, citing the destruction.`\
 https://nytimes.com/2024/05/16/us/texas-flood-tornado-storms.html
 
 **David Trone Torched $60 Million of His Own Money. He’s Not the Only One.**\
