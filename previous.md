@@ -1,3 +1,7 @@
+**Comes Out on Top**\
+`There’s more than one way to solve Hemant Mehta’s Friday puzzle. If at first you don’t succeed with a crossword, develop a good 21-Down.`\
+https://nytimes.com/2024/05/16/crosswords/daily-puzzle-2024-05-17.html
+
 **Taiwan, on China’s Doorstep, Is Dealing With TikTok Its Own Way**\
 `The island democracy was early to ban TikTok on government phones, and the ruling party refuses to use it. But a U.S.-style ban is not under consideration.`\
 https://nytimes.com/2024/05/16/business/tiktok-taiwan.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/nyregion/robert-menendez-gold-bars-jury.html
 **M.T.A. Worker and Wife Participated in Jan. 6 Capitol Riot, U.S. Says**\
 `Kevin and Carol Moore, of Massapequa, N.Y., are charged with trespassing and disorderly conduct. They were identified through photographic evidence, the U.S. said.`\
 https://nytimes.com/2024/05/16/nyregion/jan-6-mta-worker-charged.html
-
-**Robert Dennard, IBM Inventor Whose Chip Changed Computing, Dies at 91**\
-`He invented DRAM, the technology that allowed for the faster and higher-capacity memory storage that is the basis for modern computing.`\
-https://nytimes.com/2024/05/16/technology/robert-dennard-dead.html
 

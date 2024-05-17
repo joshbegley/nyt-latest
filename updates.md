@@ -1,3 +1,7 @@
+**Comes Out on Top**\
+`There’s more than one way to solve Hemant Mehta’s Friday puzzle. If at first you don’t succeed with a crossword, develop a good 21-Down.`\
+https://nytimes.com/2024/05/16/crosswords/daily-puzzle-2024-05-17.html
+
 **Taiwan, on China’s Doorstep, Is Dealing With TikTok Its Own Way**\
 `The island democracy was early to ban TikTok on government phones, and the ruling party refuses to use it. But a U.S.-style ban is not under consideration.`\
 https://nytimes.com/2024/05/16/business/tiktok-taiwan.html
