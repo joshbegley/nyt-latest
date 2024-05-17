@@ -1,3 +1,7 @@
+**China Says It Will Start Buying Apartments as Housing Slump Worsens**\
+`Signaling growing alarm, policymakers ramped up their efforts to stem a continued and steady decline in real estate values.`\
+https://nytimes.com/2024/05/17/business/china-property-mortgages.html
+
 **Up, Up and Away!**\
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2024/05/17/learning/up-up-and-away.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/crosswords/spelling-bee-forum.html
 **Seth Meyers Slams Republicans Supporting Trump at His Trial**\
 `Meyers joked that “sitting front row at the Trump trial must be like the MAGA version of sitting courtside at a Knicks game.”`\
 https://nytimes.com/2024/05/17/arts/television/seth-meyers-republicans-trump-trial.html
-
-**Word of the Day: veranda**\
-`This word has appeared in 28 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/05/17/learning/word-of-the-day-veranda.html
 
