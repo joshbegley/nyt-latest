@@ -1,3 +1,7 @@
+**After a Season of Protest, PEN America’s Literary Gala Goes Forward**\
+`The free-expression group has been engulfed by debate over its response to the Gaza war that forced the cancellation of its literary awards and annual festival.`\
+https://nytimes.com/2024/05/16/arts/pen-america-gala-gaza.html
+
 **At Least 15 Arrested at U.C. Berkeley After Police Order Protesters to Disperse**\
 `The authorities had given demonstrators until 7 p.m. to vacate a new encampment that had been erected at a fire-damaged complex on campus.`\
 https://nytimes.com/2024/05/16/us/berkeley-arrests.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/world/middleeast/un-peacekeepers-arab-league.html
 **Columbia Professors Host an Alternative Graduation for Students**\
 `After some ceremonies were canceled or moved, some college students in New York attended an event near Columbia’s campus where speakers praised pro-Palestinian demonstrations.`\
 https://nytimes.com/2024/05/16/nyregion/columbia-peoples-graduation-nyc.html
-
-**Israel Sending More Troops to Rafah Amid Warnings of Famine in Gaza**\
-`Fighting in Rafah has closed off a vital border crossing in southern Gaza, forced hundreds of thousands to flee and cut off humanitarian aid.`\
-https://nytimes.com/2024/05/16/world/middleeast/israel-rafah-gaza-famine.html
 

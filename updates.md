@@ -1,3 +1,7 @@
+**After a Season of Protest, PEN America’s Literary Gala Goes Forward**\
+`The free-expression group has been engulfed by debate over its response to the Gaza war that forced the cancellation of its literary awards and annual festival.`\
+https://nytimes.com/2024/05/16/arts/pen-america-gala-gaza.html
+
 **At Least 15 Arrested at U.C. Berkeley After Police Order Protesters to Disperse**\
 `The authorities had given demonstrators until 7 p.m. to vacate a new encampment that had been erected at a fire-damaged complex on campus.`\
 https://nytimes.com/2024/05/16/us/berkeley-arrests.html
