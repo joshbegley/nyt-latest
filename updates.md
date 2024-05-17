@@ -1,3 +1,19 @@
+**Dabney Coleman, Actor Audiences Loved to Hate, Is Dead at 92**\
+`In movies like “9 to 5” and “Tootsie” and on TV shows like “Buffalo Bill,” he turned the portrayal of egomaniacal louts into a fine art.`\
+https://nytimes.com/2024/05/17/arts/television/dabney-coleman-dead.html
+
+**The Reading List Behind ‘Serial’ Season 4**\
+`The team behind the podcast shares the books that influenced their thinking and understanding of Guantánamo.`\
+https://nytimes.com/2024/05/17/podcasts/serial-guantanamo-reading-list.html
+
+**The Good News for Biden in Our Battleground Polls**\
+`An enduring group of voters prioritizes abortion over all other issues.`\
+https://nytimes.com/2024/05/17/us/politics/biden-battleground-polls.html
+
+**A Close Setback for Labor in the South**\
+`Mercedes and Alabama did everything they could to prevent autoworkers from unionizing.`\
+https://nytimes.com/live/2024/05/14/opinion/thepoint/uaw-mercedes-vote-south
+
 **How Election Deniers Claimed the Upside-Down Flag**\
 `The practice started with sailors signaling distress but evolved into a form of protest, most recently among Trump supporters who believe the falsehood that the 2020 election was stolen.`\
 https://nytimes.com/2024/05/17/us/upside-down-american-flag-alito.html
