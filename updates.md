@@ -1,3 +1,11 @@
+**The French Don’t Snack. They Apéro.**\
+`Rebekah Peppler shines a spotlight on a beloved French tradition that you can try at home.`\
+https://nytimes.com/2024/05/17/dining/french-apero.html
+
+**The Best of Late Night This Week**\
+`Michael Cohen’s testimony in former President Donald Trump’s criminal hush-money trial gave the hosts plenty of fodder this week. Here’s what they had to say. `\
+https://nytimes.com/interactive/2024/05/17/arts/best-of-late-night-michael-cohen.html
+
 **Some Conservative Christians Are Stepping Away From the Gender Wars**\
 `Far from the shouting, Christian therapists, writers, parents and their trans children are trying to create a space within conservative circles to acknowledge differences in how people experience gender.`\
 https://nytimes.com/2024/05/17/us/conservative-christian-transgender-religion.html
