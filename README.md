@@ -1,3 +1,7 @@
+**David Trone Torched $60 Million of His Own Money. He’s Not the Only One.**\
+`It is a time-honored tradition in U.S. politics: wealthy people burning through their fortunes to ultimately lose an election.`\
+https://nytimes.com/2024/05/16/us/politics/trone-bloomberg-wealth-campaign-funding.html
+
 **Comes Out on Top**\
 `There’s more than one way to solve Hemant Mehta’s Friday puzzle. If at first you don’t succeed with a crossword, develop a good 21-Down.`\
 https://nytimes.com/2024/05/16/crosswords/daily-puzzle-2024-05-17.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/16/us/maine-shooting-robert-card-family-testimony.ht
 **Menendez Jurors See the Gold Bars at the Heart of a Bribery Case**\
 `An F.B.I. agent, testifying for the government, described his search of Senator Robert Menendez’s house in New Jersey.`\
 https://nytimes.com/2024/05/16/nyregion/robert-menendez-gold-bars-jury.html
-
-**M.T.A. Worker and Wife Participated in Jan. 6 Capitol Riot, U.S. Says**\
-`Kevin and Carol Moore, of Massapequa, N.Y., are charged with trespassing and disorderly conduct. They were identified through photographic evidence, the U.S. said.`\
-https://nytimes.com/2024/05/16/nyregion/jan-6-mta-worker-charged.html
 
