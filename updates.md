@@ -1,3 +1,7 @@
+**Word of the Day: veranda**\
+`This word has appeared in 28 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/17/learning/word-of-the-day-veranda.html
+
 **Attack on Crimea Hits Power Plant**\
 `Schools were closed across the city of Sevastopol, which is home to some of Russia’s naval fleet. The government said there were rolling blackouts.`\
 https://nytimes.com/2024/05/17/world/europe/sevastopol-ukraine-crimea-russia.html
