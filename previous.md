@@ -1,3 +1,11 @@
+**Inside an Art Auction at Christie’s, Days After a Cyberattack**\
+`Although a cyberattack hobbled its website, the auction house Christie’s held two major sales, totaling $115 million, on Tuesday night. Zachary Small, a New York Times reporter who writes about the art world’s relationship to money, politics and technology, describes what happened.`\
+https://nytimes.com/video/arts/100000009470108/inside-an-art-auction-at-christies-days-after-a-cyberattack.html
+
+**Transcript: Ezra Klein Interviews Aslı Ü. Bâli**\
+`The May 17, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/05/17/podcasts/transcript-ezra-klein-interviews-asli-bali.html
+
 **Gunman Kills Three Spanish Tourists in Central Afghanistan**\
 `One Afghan was also injured in the attack, which many expect will hinder the government’s recent efforts to lure foreign visitors.`\
 https://nytimes.com/2024/05/17/world/asia/spanish-tourists-killed-afganistan.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/17/your-money/saving-money.html
 **The Ragged Glory of Neil Young and Crazy Horse Live**\
 `Hear 11 songs from an electrifying New York set this week.`\
 https://nytimes.com/2024/05/17/arts/music/amplifier-newsletter-neil-young-crazy-horse-live.html
-
-**Lawmakers Make End Run Around Speaker Johnson on Disaster Bill**\
-`A successful bipartisan effort to force a vote on disaster relief is just the latest example of how procedural norms have been upended in the House.`\
-https://nytimes.com/2024/05/17/us/house-discharge-petition-disaster-relief.html
-
-**Intruder Who Bludgeoned Pelosi’s Husband Gets 30-Year Sentence**\
-`David DePape, convicted in November on federal charges, also faces a state trial that is set to begin this month.`\
-https://nytimes.com/2024/05/17/us/david-depape-nancy-pelosi-sentence.html
 

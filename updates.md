@@ -1,3 +1,11 @@
+**Inside an Art Auction at Christie’s, Days After a Cyberattack**\
+`Although a cyberattack hobbled its website, the auction house Christie’s held two major sales, totaling $115 million, on Tuesday night. Zachary Small, a New York Times reporter who writes about the art world’s relationship to money, politics and technology, describes what happened.`\
+https://nytimes.com/video/arts/100000009470108/inside-an-art-auction-at-christies-days-after-a-cyberattack.html
+
+**Transcript: Ezra Klein Interviews Aslı Ü. Bâli**\
+`The May 17, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/05/17/podcasts/transcript-ezra-klein-interviews-asli-bali.html
+
 **Gunman Kills Three Spanish Tourists in Central Afghanistan**\
 `One Afghan was also injured in the attack, which many expect will hinder the government’s recent efforts to lure foreign visitors.`\
 https://nytimes.com/2024/05/17/world/asia/spanish-tourists-killed-afganistan.html
