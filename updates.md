@@ -1,3 +1,7 @@
+**‘Dungeons & Dragons’ Review: Community Building One Dice Roll at a Time**\
+`Improv adds a theatrical dimension to the role-playing game, which has been undergoing a renaissance as it turns 50 this year.`\
+https://nytimes.com/2024/05/17/theater/dungeons-dragons-review.html
+
 **Review: ‘Problems Between Sisters’ Puts a Spin on the Berserk Boys Club**\
 `Julia May Jonas turns the menacing male siblings of Sam Shepard’s “True West” into squabbling pregnant sisters in Vermont.`\
 https://nytimes.com/2024/05/17/theater/problems-between-sisters-review.html
