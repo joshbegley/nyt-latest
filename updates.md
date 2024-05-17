@@ -1,3 +1,15 @@
+**F.S.A. vs. H.S.A.: What to Know About the Accounts That Pay Medical Costs**\
+`Flexible spending accounts and health savings accounts both have tax benefits, but both may also have drawbacks, two reports found.`\
+https://nytimes.com/2024/05/17/your-money/hsa-fsa-taxes.html
+
+**As the 2024 Race Heats Up, Betting Is Growing for Everything but Elections**\
+`U.S. residents can still gamble on the presidential race — but regulators are trying to stop the practice.`\
+https://nytimes.com/2024/05/17/business/elections-betting-prediction-markets.html
+
+**We’re Adding to Our California Movie List**\
+`Looking for a movie to watch this weekend? Here are your recommendations.`\
+https://nytimes.com/2024/05/17/us/california-movie-list.html
+
 **Alito’s Inverted Flag Epitomizes the Ethics Crisis at the Court**\
 `Blaming the incident on his wife doesn’t absolve the justice of responsibility.`\
 https://nytimes.com/live/2024/05/14/opinion/thepoint/alito-flag-supreme-court

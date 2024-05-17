@@ -1,3 +1,15 @@
+**F.S.A. vs. H.S.A.: What to Know About the Accounts That Pay Medical Costs**\
+`Flexible spending accounts and health savings accounts both have tax benefits, but both may also have drawbacks, two reports found.`\
+https://nytimes.com/2024/05/17/your-money/hsa-fsa-taxes.html
+
+**As the 2024 Race Heats Up, Betting Is Growing for Everything but Elections**\
+`U.S. residents can still gamble on the presidential race — but regulators are trying to stop the practice.`\
+https://nytimes.com/2024/05/17/business/elections-betting-prediction-markets.html
+
+**We’re Adding to Our California Movie List**\
+`Looking for a movie to watch this weekend? Here are your recommendations.`\
+https://nytimes.com/2024/05/17/us/california-movie-list.html
+
 **Alito’s Inverted Flag Epitomizes the Ethics Crisis at the Court**\
 `Blaming the incident on his wife doesn’t absolve the justice of responsibility.`\
 https://nytimes.com/live/2024/05/14/opinion/thepoint/alito-flag-supreme-court
@@ -21,16 +33,4 @@ https://nytimes.com/2024/05/17/world/middleeast/israel-rafah-gaza-icj.html
 **As Supernatural Claims Spread Online, Vatican Updates Its Rules on Them**\
 `People have long claimed sightings of the Virgin Mary or bleeding crucifixes, and some endorsed by the Roman Catholic Church have become hugely popular pilgrimage destinations.`\
 https://nytimes.com/2024/05/17/world/europe/vatican-apparitions-supernatural.html
-
-**Trump’s Criminal Trial, Explained**\
-`Figures from Donald Trump’s past have sworn an oath that could threaten his future.`\
-https://nytimes.com/2024/05/17/briefing/trumps-criminal-trial-explained.html
-
-**With Few Details About Assassination Attempt, Questions Swirl in Slovakia**\
-`The authorities have released little about the attack on Prime Minister Robert Fico, about the identity of the assailant or even about who is leading the country in the interim.`\
-https://nytimes.com/2024/05/17/world/europe/slovakia-fico.html
-
-**Deadly Clashes in a French Pacific Territory Raise Fears of Civil War**\
-`France has sent troops to quell violence in New Caledonia, where Paris is seen as backtracking on promises of self-determination.`\
-https://nytimes.com/2024/05/17/world/asia/new-caledonia-france-protest.html
 
