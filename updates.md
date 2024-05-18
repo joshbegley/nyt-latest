@@ -1,3 +1,5 @@
+**Israel recovers the bodies of three hostages, and other news.**\
+
 **An Ex-President, a Senator and the Center of the (Legal) Universe**\
 `Manhattan is playing host to two of the biggest political trials in American history. The courthouses are just 500 feet apart.`\
 https://nytimes.com/2024/05/18/nyregion/trump-menendez-trials-courthouse.html
