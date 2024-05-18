@@ -1,3 +1,7 @@
+**‘I’m Speechless’**\
+`Adrian Johnson’s Saturday puzzle is daunting, but also a little warm and fuzzy.`\
+https://nytimes.com/2024/05/17/crosswords/daily-puzzle-2024-05-18.html
+
 **Protesters Take Over the Institute of Politics at University of Chicago**\
 `They confronted the institute’s director, the former senator Heidi Heitkamp.`\
 https://nytimes.com/2024/05/17/us/uchicago-protests-politics-institute.html

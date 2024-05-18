@@ -1,3 +1,7 @@
+**‘I’m Speechless’**\
+`Adrian Johnson’s Saturday puzzle is daunting, but also a little warm and fuzzy.`\
+https://nytimes.com/2024/05/17/crosswords/daily-puzzle-2024-05-18.html
+
 **U.C.L.A. Faculty Votes Against Rebuking University’s Chancellor**\
 `The votes came weeks after students at a pro-Palestinian encampment were attacked for hours by a large group of counterprotesters without police intervention.`\
 https://nytimes.com/2024/05/17/us/ucla-gene-block-palestinian-protest.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/us/uc-santa-cruz-strike-palestinian-protests.html
 **Ethics Panel Cautions Judge in Trump Trial Over Political Donations**\
 `Justice Juan M. Merchan, the judge overseeing Donald J. Trump’s criminal trial in Manhattan, donated modest amounts to Democratic groups in 2020.`\
 https://nytimes.com/2024/05/17/nyregion/trump-trial-judge-merchan-donations.html
-
-**Sony and Apollo Take Key Step in Bid for Paramount’s Assets**\
-`The two companies have expressed interest in acquiring the media conglomerate, but are backing away from their $26 billion all-cash offer.`\
-https://nytimes.com/2024/05/17/business/paramount-sony-apollo-assets.html
 
