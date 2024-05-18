@@ -1,3 +1,15 @@
+**Backlash to Anitta’s Music Video Evokes a Painful History in Brazil**\
+`Outrage over the pop star’s new music video brought Brazil’s struggle with religious intolerance into view.`\
+https://nytimes.com/2024/05/18/arts/anitta-brazil-candomble.html
+
+**Managing an Inheritance: When ‘Mom’s Money’ Becomes Yours**\
+`A sudden windfall while grieving can be an emotional minefield, particularly for younger adults. Experts share ways to handle it wisely.`\
+https://nytimes.com/2024/05/18/business/inheritance-millennials.html
+
+**Loneliness Is a Problem That A.I. Won’t Solve**\
+`Human touch matters.`\
+https://nytimes.com/2024/05/18/opinion/artificial-intelligence-loneliness.html
+
 **How Companies Dodge Tariffs**\
 `Protectionist trade policies are popular on both the left and right. But some economists say they’re likely to backfire.`\
 https://nytimes.com/2024/05/18/business/dealbook/how-companies-dodge-tariffs.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/05/18/podcasts/forever-trial-guantanamo-this-american-l
 **Why the Manhattan Trial Is Probably Helping Trump**\
 `The casual observer may see persecution, not just prosecution.`\
 https://nytimes.com/2024/05/18/opinion/trump-manhattan-trial-politics.html
-
-**Invading Rafah Doesn’t Help Israel**\
-`Biden is supporting Israel by trying to restrain it.`\
-https://nytimes.com/2024/05/18/opinion/rafah-gaza-israel.html
-
-**The Truth Hurts — Especially When Bill Maher Dishes It Out**\
-`“Why can’t everybody live in my world, in the middle,” he says, “where we’re not nuts?”`\
-https://nytimes.com/2024/05/18/opinion/bill-maher-book.html
-
-**It Is Inexcusable How Judge Cannon Is Delaying the Trump Documents Case**\
-`She is utterly failing to keep the case moving along in a fair but timely manner.`\
-https://nytimes.com/2024/05/18/opinion/judge-cannon-trump-documents-case.html
 
