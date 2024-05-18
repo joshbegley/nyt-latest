@@ -1,3 +1,7 @@
+**Defeat Is Agonizing. In These 2 Books, It’s Also Thrilling.**\
+`If you love stories about beautiful losers, consider Brian Moore’s novel about an alcoholic virgin or Benjamin Anastas’s tale of an inferior twin.`\
+https://nytimes.com/2024/05/18/books/read-like-wind-recommendations.html
+
 **France Issues Scratch-and-Sniff Baguette Postage Stamps**\
 `The celebration of French heritage in the run-up to the Paris Olympics was unveiled on the feast day of Saint Honoré, the patron saint of bakers.`\
 https://nytimes.com/2024/05/18/world/europe/france-baguette-stamp-scratch-and-sniff.html
