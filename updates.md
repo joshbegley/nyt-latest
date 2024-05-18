@@ -1,3 +1,7 @@
+**Driver Takes Down a 113-Year-Old Salt Tram Tower in Death Valley**\
+`A traveler used the tower as an anchor to try to pull out a pickup that was stuck in mud at the national park in California.`\
+https://nytimes.com/2024/05/18/us/death-valley-tower-visitor.html
+
 **Gantz’s ultimatum reflects a growing frustration with Netanyahu’s leadership.**\
 `By Aaron Boxerman and Ephrat Livni`\
 https://nytimes.com/live/2024/05/18/world/israel-gaza-war-hamas-rafah/ron-binyamin-had-set-out-on-a-bicycle-ride-the-morning-of-oct-7
