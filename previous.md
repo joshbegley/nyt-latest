@@ -1,3 +1,7 @@
+**Trump Falsely Claims He Won Minnesota in 2016 and 2020**\
+`In a speech to the state’s Republican Party, the former president said “I know we won” there in 2020. But it has been 52 years since a G.O.P. presidential candidate carried Minnesota.`\
+https://nytimes.com/live/2024/05/17/us/biden-trump-election/trump-minnesota-republican-party
+
 **Strangers in Their Own Land: Being Muslim in Modi’s India**\
 `Families grapple with anguish and isolation as they try to raise their children in a country that increasingly questions their very identity.`\
 https://nytimes.com/2024/05/18/world/asia/muslims-india.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/18/pageoneplus/how-kite-surfing-in-remote-colombia-c
 **Youngkin Vetoes Measures to Remove Tax Breaks for Confederate Heritage Group**\
 `The Virginia governor rejected efforts by the state’s Democrats to reshape the Commonwealth’s relationship with its Confederate past.`\
 https://nytimes.com/2024/05/17/us/virginia-confederate-heritage-group-tax-youngkin.html
-
-**‘I’m Speechless’**\
-`Adrian Johnson’s Saturday puzzle is daunting, but also a little warm and fuzzy.`\
-https://nytimes.com/2024/05/17/crosswords/daily-puzzle-2024-05-18.html
 
