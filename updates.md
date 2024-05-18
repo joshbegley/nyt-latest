@@ -1,3 +1,7 @@
+**U.C.L.A. Faculty Votes Against Rebuking University’s Chancellor**\
+`The votes came weeks after students at a pro-Palestinian encampment were attacked for hours by a large group of counterprotesters without police intervention.`\
+https://nytimes.com/2024/05/17/us/ucla-gene-block-palestinian-protest.html
+
 **Jail Death Lawsuit Is Settled for $7.5 Million Amid California Inquiry**\
 `A violent encounter captured on video was part of a surge in jail deaths that spurred an inquiry into the Riverside County Sheriff’s Department.`\
 https://nytimes.com/2024/05/17/us/california-riverside-jail-death-lawsuit.html
