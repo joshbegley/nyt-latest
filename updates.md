@@ -1,3 +1,7 @@
+**Trump Plans a Campaign Event in the Deep Blue Bronx**\
+`The former president, who has sought to make some political appearances around New York as he stands criminal trial, is set to speak at an event next Thursday at Crotona Park.`\
+https://nytimes.com/2024/05/17/us/politics/trump-south-bronx.html
+
 **Protesters Take Over Institute of Politics at the University of Chicago**\
 `Demonstrators overturned furniture and confronted the director, the former senator Heidi Heitkamp.`\
 https://nytimes.com/2024/05/17/us/uchicago-protests-politics-institute.html

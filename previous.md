@@ -1,3 +1,7 @@
+**Trump Plans a Campaign Event in the Deep Blue Bronx**\
+`The former president, who has sought to make some political appearances around New York as he stands criminal trial, is set to speak at an event next Thursday at Crotona Park.`\
+https://nytimes.com/2024/05/17/us/politics/trump-south-bronx.html
+
 **Protesters Take Over Institute of Politics at the University of Chicago**\
 `Demonstrators overturned furniture and confronted the director, the former senator Heidi Heitkamp.`\
 https://nytimes.com/2024/05/17/us/uchicago-protests-politics-institute.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/arts/television/doctor-who-recap-episode-4.html
 **American doctors leave Gaza after being trapped by Rafah incursion.**\
 `1`\
 https://nytimes.com/live/2024/05/17/world/israel-gaza-war-hamas-rafah/american-doctors-leave-gaza-after-being-trapped-by-rafah-incursion
-
-**Arts School Settles Sexual Abuse Lawsuit for $12.5 Million**\
-`Dozens of alumni of the University of North Carolina School of the Arts had sued in 2021, accusing faculty members of widespread misconduct.`\
-https://nytimes.com/2024/05/17/arts/unc-school-of-the-arts-sexual-abuse-lawsuit.html
 
