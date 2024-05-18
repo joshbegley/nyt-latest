@@ -1,3 +1,7 @@
+**Looking to the Past for Early Meanings of Nostalgia**\
+`Before it reminded us of the glory days, nostalgia was a medical condition involving severe homesickness.`\
+https://nytimes.com/2024/05/18/insider/nostalgia-word-origin.html
+
 **In Britain, Chasing a Glimpse of the Northern Lights**\
 `Sightings of the aurora borealis are unlikely in the U.K. this weekend, but the northern lights could return on Monday, forecasters said.`\
 https://nytimes.com/2024/05/18/world/europe/northern-lights-uk-aurora-borealis.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/18/arts/anitta-brazil-candomble.html
 **Managing an Inheritance: When ‘Mom’s Money’ Becomes Yours**\
 `A sudden windfall while grieving can be an emotional minefield, particularly for younger adults. Experts share ways to handle it wisely.`\
 https://nytimes.com/2024/05/18/business/inheritance-millennials.html
-
-**Loneliness Is a Problem That A.I. Won’t Solve**\
-`Human touch matters.`\
-https://nytimes.com/2024/05/18/opinion/artificial-intelligence-loneliness.html
 
