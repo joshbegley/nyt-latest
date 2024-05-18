@@ -1,3 +1,7 @@
+**In California, Kristi Noem looks to move past weeks of backlash and regain favor with Trump.**\
+`By Jonathan Wolfe`\
+https://nytimes.com/live/2024/05/18/us/biden-trump-election-news/in-california-kristi-noem-looks-to-move-past-weeks-of-backlash-and-regain-favor-with-trump
+
 **Bud Anderson, Last of World War II’s ‘Triple Ace’ Pilots, Dies at 102**\
 `He single-handedly shot down 16 enemy planes in dogfights over Europe. After the war, he became one of America’s top test pilots during the “Right Stuff” era.`\
 https://nytimes.com/2024/05/18/us/bud-anderson-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/18/world/canada/rex-murphy-dead.html
 **Georgia’s President Vetoes Foreign Influence Law**\
 `The law has triggered protests and threatens to derail the nation’s pro-European aspirations in favor of closer ties with Russia.`\
 https://nytimes.com/2024/05/18/world/europe/georgia-president-veto-foreign-influence-law.html
-
-**Man Is Arrested in Random Attack on Steve Buscemi**\
-`The police recognized the suspect, Clifton Williams, when they went to the scene of another dispute on Friday.`\
-https://nytimes.com/2024/05/18/nyregion/steve-buscemi-attack-nyc-arrest.html
 
