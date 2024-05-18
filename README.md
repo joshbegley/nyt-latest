@@ -1,3 +1,7 @@
+**18pol-swiper-new**\
+`Election Updates: Speaking at a Minnesota fund-raiser, Trump falsely claims he won the state twice.`\
+https://nytimes.com/live/2024/05/18/us/biden-trump-election-news
+
 **The Underappreciated Genius of ‘Planet of the Apes’**\
 `This film franchise delivers on several levels.`\
 https://nytimes.com/2024/05/18/opinion/planet-of-the-apes-movie.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/18/books/read-like-wind-recommendations.html
 **France Issues Scratch-and-Sniff Baguette Postage Stamps**\
 `The celebration of French heritage in the run-up to the Paris Olympics was unveiled on the feast day of Saint Honoré, the patron saint of bakers.`\
 https://nytimes.com/2024/05/18/world/europe/france-baguette-stamp-scratch-and-sniff.html
-
-**Russia Presses Attacks in Northeast Ukraine, Seeking Buffer Zone on Border**\
-`Advances by Russian forces have raised fears they could bring their artillery in range of Kharkiv, Ukraine’s second largest city.`\
-https://nytimes.com/2024/05/18/world/europe/russia-northeast-ukraine.html
 
