@@ -1,3 +1,7 @@
+**Israel’s Wartime Government Frays as Frustration with Netanyahu Grows**\
+`Benny Gantz, a centrist member of leadership, presented the prime minister with an ultimatum that demanded a plan for the future of Israel’s war.`\
+https://nytimes.com/2024/05/18/world/middleeast/israel-gaza-war-netanyahu-gantz.html
+
 **Hold Your Doze**\
 `We’ll make sense of Christina Iverson and Katie Hale’s latest diversion, although it helps to have a code.`\
 https://nytimes.com/2024/05/18/crosswords/daily-puzzle-2024-05-19.html
