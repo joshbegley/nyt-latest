@@ -1,3 +1,7 @@
+**The Underappreciated Genius of ‘Planet of the Apes’**\
+`This film franchise delivers on several levels.`\
+https://nytimes.com/2024/05/18/opinion/planet-of-the-apes-movie.html
+
 **How I Met My Father**\
 `“What took you so long?” he said.`\
 https://nytimes.com/2024/05/18/style/how-i-met-my-father.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/18/world/europe/france-baguette-stamp-scratch-and-sn
 **Russia Presses Attacks in Northeast Ukraine, Seeking Buffer Zone on Border**\
 `Advances by Russian forces have raised fears they could bring their artillery in range of Kharkiv, Ukraine’s second largest city.`\
 https://nytimes.com/2024/05/18/world/europe/russia-northeast-ukraine.html
-
-**The Forever Trial**\
-`How the sister of one victim of the Sept. 11 attacks is navigating the trial of the men accused of orchestrating it.`\
-https://nytimes.com/2024/05/18/podcasts/forever-trial-guantanamo-this-american-life-nyt-audio.html
 
