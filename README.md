@@ -1,4 +1,4 @@
-**Man Is Arrested in Random Punch of Steve Buscemi**\
+**Man Is Arrested in Random Attack on Steve Buscemi**\
 `The police recognized the suspect, Clifton Williams, when they went to the scene of another dispute on Friday.`\
 https://nytimes.com/2024/05/18/nyregion/steve-buscemi-attack-nyc-arrest.html
 
