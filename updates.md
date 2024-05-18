@@ -1,3 +1,7 @@
+**How Companies Dodge Tariffs**\
+`Protectionist trade policies are popular on both the left and right. But some economists say they’re likely to backfire.`\
+https://nytimes.com/2024/05/18/business/dealbook/how-companies-dodge-tariffs.html
+
 **Defeat Is Agonizing. In These 2 Books, It’s Also Thrilling.**\
 `If you love stories about beautiful losers, consider Brian Moore’s novel about an alcoholic virgin or Benjamin Anastas’s tale of an inferior twin.`\
 https://nytimes.com/2024/05/18/books/read-like-wind-recommendations.html

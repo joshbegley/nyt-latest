@@ -1,3 +1,7 @@
+**How Companies Dodge Tariffs**\
+`Protectionist trade policies are popular on both the left and right. But some economists say they’re likely to backfire.`\
+https://nytimes.com/2024/05/18/business/dealbook/how-companies-dodge-tariffs.html
+
 **Defeat Is Agonizing. In These 2 Books, It’s Also Thrilling.**\
 `If you love stories about beautiful losers, consider Brian Moore’s novel about an alcoholic virgin or Benjamin Anastas’s tale of an inferior twin.`\
 https://nytimes.com/2024/05/18/books/read-like-wind-recommendations.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/18/opinion/bill-maher-book.html
 **It Is Inexcusable How Judge Cannon Is Delaying the Trump Documents Case**\
 `She is utterly failing to keep the case moving along in a fair but timely manner.`\
 https://nytimes.com/2024/05/18/opinion/judge-cannon-trump-documents-case.html
-
-**‘The Very Real Insanity of College Admissions’**\
-`Readers offer suggestions and personal stories in response to two guest essays.`\
-https://nytimes.com/2024/05/18/opinion/letters/college-admissions.html
 
