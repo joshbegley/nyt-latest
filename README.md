@@ -1,3 +1,7 @@
+**Slovak Prime Minister Is Improving After Second Operation, Official Says**\
+`The suspect in the shooting of the prime minister, Robert Fico, appeared before a judge, who ordered that he would remain in custody until he is charged and tried.`\
+https://nytimes.com/2024/05/18/world/europe/slovak-prime-minister-shooting.html
+
 **Looking to the Past for Early Meanings of Nostalgia**\
 `Before it reminded us of the glory days, nostalgia was a medical condition involving severe homesickness.`\
 https://nytimes.com/2024/05/18/insider/nostalgia-word-origin.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/18/style/how-i-met-my-father.html
 **Backlash to Anitta’s Music Video Evokes a Painful History in Brazil**\
 `Outrage over the pop star’s new music video brought Brazil’s struggle with religious intolerance into view.`\
 https://nytimes.com/2024/05/18/arts/anitta-brazil-candomble.html
-
-**Managing an Inheritance: When ‘Mom’s Money’ Becomes Yours**\
-`A sudden windfall while grieving can be an emotional minefield, particularly for younger adults. Experts share ways to handle it wisely.`\
-https://nytimes.com/2024/05/18/business/inheritance-millennials.html
 
