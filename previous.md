@@ -1,3 +1,7 @@
+**In Atlanta, Biden Warms Up His Pitch to Black Voters**\
+`The president, who is trailing key states in recent polling, tried to cast the election as a struggle for democracy itself.`\
+https://nytimes.com/2024/05/18/us/politics/in-atlanta-biden-warms-up-his-pitch-to-black-voters.html
+
 **With Caitlin Clark in Town, All Eyes Were on Brooklyn**\
 `The New York Liberty beat the Indiana Fever in front of a record crowd at Barclays Center, with celebrities and basketball legends there to see the star rookie.`\
 https://nytimes.com/2024/05/18/style/caitlin-clark-new-york-liberty.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/18/crosswords/daily-puzzle-2024-05-19.html
 **Moorhead C. Kennedy Jr., 93, Dies; Hostage Who Chided Foreign Policy**\
 `A Foreign Service officer, he was one of 52 hostages seized in Iran and held for 444 days. He later challenged the U.S. government to reshape its diplomacy with the Islamic world.`\
 https://nytimes.com/2024/05/18/world/middleeast/moorhead-kennedy-dead.html
-
-**Giuliani Is Formally Notified of His Indictment in Arizona Election Case**\
-`After trying to reach him for weeks, officials served him the notice as he left his 80th birthday party. He is expected to appear in court on Tuesday.`\
-https://nytimes.com/2024/05/18/us/rudy-giuliani-arizona-election-indictment.html
 
