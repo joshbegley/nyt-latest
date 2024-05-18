@@ -1,3 +1,7 @@
+**Bud Anderson, Last of World War II’s ‘Triple Ace’ Pilots, Dies at 102**\
+`He single-handedly shot down 16 enemy planes in dogfights over Europe. After the war, he became one of America’s top test pilots during the “Right Stuff” era.`\
+https://nytimes.com/2024/05/18/us/bud-anderson-dead.html
+
 **Israel’s Wartime Government Frays as Frustration with Netanyahu Grows**\
 `Benny Gantz, a centrist member of leadership, presented the prime minister with an ultimatum that demanded a plan for the future of Israel’s war.`\
 https://nytimes.com/2024/05/18/world/middleeast/israel-gaza-war-netanyahu-gantz.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/18/world/europe/georgia-president-veto-foreign-influ
 **Man Is Arrested in Random Attack on Steve Buscemi**\
 `The police recognized the suspect, Clifton Williams, when they went to the scene of another dispute on Friday.`\
 https://nytimes.com/2024/05/18/nyregion/steve-buscemi-attack-nyc-arrest.html
-
-**Driver Takes Down a 113-Year-Old Salt Tram Tower in Death Valley**\
-`A traveler used the tower as an anchor to try to pull out a pickup that was stuck in mud at the national park in California.`\
-https://nytimes.com/2024/05/18/us/death-valley-tower-visitor.html
 
