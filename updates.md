@@ -1,3 +1,7 @@
+**Man Is Arrested in Random Punch of Steve Buscemi**\
+`The police recognized the suspect, Clifton Williams, when they went to the scene of another dispute on Friday.`\
+https://nytimes.com/2024/05/18/nyregion/steve-buscemi-attack-nyc-arrest.html
+
 **Driver Takes Down a 113-Year-Old Salt Tram Tower in Death Valley**\
 `A traveler used the tower as an anchor to try to pull out a pickup that was stuck in mud at the national park in California.`\
 https://nytimes.com/2024/05/18/us/death-valley-tower-visitor.html
