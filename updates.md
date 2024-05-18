@@ -1,3 +1,7 @@
+**Gantz’s ultimatum reflects a growing frustration with Netanyahu’s leadership.**\
+`By Aaron Boxerman and Ephrat Livni`\
+https://nytimes.com/live/2024/05/18/world/israel-gaza-war-hamas-rafah/ron-binyamin-had-set-out-on-a-bicycle-ride-the-morning-of-oct-7
+
 **18pol-swiper-new**\
 `Election Updates: Candidates hit the trail, with Biden in Georgia, a key battleground state, and Trump in Texas for an N.R.A. event.`\
 https://nytimes.com/live/2024/05/18/us/biden-trump-election-news

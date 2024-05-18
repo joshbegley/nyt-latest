@@ -1,5 +1,5 @@
-**Ron Binyamin had set out on a bicycle ride the morning of Oct. 7.**\
-`By Aaron Boxerman`\
+**Gantz’s ultimatum reflects a growing frustration with Netanyahu’s leadership.**\
+`By Aaron Boxerman and Ephrat Livni`\
 https://nytimes.com/live/2024/05/18/world/israel-gaza-war-hamas-rafah/ron-binyamin-had-set-out-on-a-bicycle-ride-the-morning-of-oct-7
 
 **Rescuers in Nepal Retrieve the Bodies of an American Climber and Her Guide**\
