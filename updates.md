@@ -1,3 +1,7 @@
+**Raspberry-Almond Clafoutis, Just as Fun to Say as to Eat**\
+`Roasted orange chicken, shrimp tempura and crunchy quinoa salad round out the weekend cooking wish list.`\
+https://nytimes.com/2024/05/18/dining/raspberry-almond-clafoutis-just-as-fun-to-say-as-to-eat.html
+
 **18pol-swiper-new**\
 `Election Updates: After a week in court, Trump steps out to Minnesota and Texas. Next up, the Bronx.`\
 https://nytimes.com/live/2024/05/18/us/biden-trump-election-news
