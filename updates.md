@@ -1,3 +1,7 @@
+**Slovak Prime Minister Is Improving After Second Operation, Official Says**\
+`The suspect in the shooting of the prime minister, Robert Fico, appeared before a judge, who ordered that he would remain in custody until he is charged and tried.`\
+https://nytimes.com/2024/05/18/world/europe/slovak-prime-minister-shooting.html
+
 **Looking to the Past for Early Meanings of Nostalgia**\
 `Before it reminded us of the glory days, nostalgia was a medical condition involving severe homesickness.`\
 https://nytimes.com/2024/05/18/insider/nostalgia-word-origin.html
