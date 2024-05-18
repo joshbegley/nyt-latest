@@ -1,3 +1,7 @@
+**Georgia’s President Vetoes Foreign Influence Law**\
+`The law has triggered protests and threatens to derail the nation’s pro-European aspirations in favor of closer ties with Russia.`\
+https://nytimes.com/2024/05/18/world/europe/georgia-president-veto-foreign-influence-law.html
+
 **Man Is Arrested in Random Attack on Steve Buscemi**\
 `The police recognized the suspect, Clifton Williams, when they went to the scene of another dispute on Friday.`\
 https://nytimes.com/2024/05/18/nyregion/steve-buscemi-attack-nyc-arrest.html

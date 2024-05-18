@@ -1,3 +1,7 @@
+**Georgia’s President Vetoes Foreign Influence Law**\
+`The law has triggered protests and threatens to derail the nation’s pro-European aspirations in favor of closer ties with Russia.`\
+https://nytimes.com/2024/05/18/world/europe/georgia-president-veto-foreign-influence-law.html
+
 **Man Is Arrested in Random Attack on Steve Buscemi**\
 `The police recognized the suspect, Clifton Williams, when they went to the scene of another dispute on Friday.`\
 https://nytimes.com/2024/05/18/nyregion/steve-buscemi-attack-nyc-arrest.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/18/world/europe/northern-lights-uk-aurora-borealis.h
 **Phil Wiggins, Virtuoso of the Blues Harmonica, Dies at 69**\
 `First as half of the duo Cephas and Wiggins and later on his own, he was one of the best-known musicians playing the style known as the Piedmont blues.`\
 https://nytimes.com/2024/05/18/arts/music/phil-wiggins-dead.html
-
-**Raspberry-Almond Clafoutis, Just as Fun to Say as to Eat**\
-`Roasted orange chicken, shrimp tempura and crunchy quinoa salad round out the weekend cooking wish list.`\
-https://nytimes.com/2024/05/18/dining/raspberry-almond-clafoutis-just-as-fun-to-say-as-to-eat.html
 
