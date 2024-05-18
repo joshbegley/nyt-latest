@@ -1,3 +1,7 @@
+**This Scientist Has an Antidote to Our Climate Delusions**\
+`Ayana Elizabeth Johnson on how to overcome the “soft” climate denial that keeps us buying junk.`\
+https://nytimes.com/2024/05/18/magazine/ayana-elizabeth-johnson-interview.html
+
 **Dabney Coleman: Where to Stream His Best Movies and TV Shows**\
 `Coleman’s characters frequently displayed the kind of antagonistic demeanor familiar to anyone who has ever dealt with a bad boss or a disgruntled customer.`\
 https://nytimes.com/2024/05/18/arts/television/dabney-coleman-9-to-5.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/18/business/uaw-mercedes-benz-alabama-election.html
 **Texas Family Finally Learns Fate of Man Held in Syria**\
 `Majd Kamalmaz disappeared in Syria in early 2017. American officials recently disclosed to his family that they had intelligence indicating that he was dead.`\
 https://nytimes.com/2024/05/18/us/politics/texas-syria-hostage-death-kamalmaz.html
-
-**In His Beloved Philadelphia, Biden Faces Wariness From Black Voters**\
-`Even in the president’s favorite political stomping ground, his standing has slipped with Democrats who will be vital to a repeat victory, interviews with nearly two dozen Black voters showed.`\
-https://nytimes.com/2024/05/18/us/politics/biden-philadelphia-black-voters.html
 

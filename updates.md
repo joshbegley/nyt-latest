@@ -1,3 +1,7 @@
+**This Scientist Has an Antidote to Our Climate Delusions**\
+`Ayana Elizabeth Johnson on how to overcome the “soft” climate denial that keeps us buying junk.`\
+https://nytimes.com/2024/05/18/magazine/ayana-elizabeth-johnson-interview.html
+
 **Dabney Coleman: Where to Stream His Best Movies and TV Shows**\
 `Coleman’s characters frequently displayed the kind of antagonistic demeanor familiar to anyone who has ever dealt with a bad boss or a disgruntled customer.`\
 https://nytimes.com/2024/05/18/arts/television/dabney-coleman-9-to-5.html
