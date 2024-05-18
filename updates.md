@@ -1,4 +1,8 @@
 **Giuliani Is Formally Notified of His Indictment in Arizona Election Case**\
+`After trying to reach him for weeks, officials served him the notice as he left his 80th birthday party. He is expected to appear in court on Tuesday.`\
+https://nytimes.com/2024/05/18/us/rudy-giuliani-arizona-election-indictment.html
+
+**Giuliani Is Formally Notified of His Indictment in Arizona Election Case**\
 `Officials had tried to reach him for nearly a month. He was the last of the 18 defendants to be served, and he is expected to appear in court on Tuesday.`\
 https://nytimes.com/2024/05/18/us/rudy-giuliani-arizona-election-indictment.html
 
