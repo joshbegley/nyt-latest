@@ -1,3 +1,7 @@
+**Queen of the Book Club**\
+`Sitting down for lunch with Reese Witherspoon, whose book picks have become a force in the publishing industry.`\
+https://nytimes.com/2024/05/18/briefing/reese-witherspoon-book-club-chat.html
+
 **Biden Can Do Something at the Debates That Trump Never Could**\
 `From years of watching debates, I think the winners always showed us something about civility.`\
 https://nytimes.com/2024/05/18/opinion/biden-trump-debate.html

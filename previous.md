@@ -1,3 +1,7 @@
+**Queen of the Book Club**\
+`Sitting down for lunch with Reese Witherspoon, whose book picks have become a force in the publishing industry.`\
+https://nytimes.com/2024/05/18/briefing/reese-witherspoon-book-club-chat.html
+
 **Biden Can Do Something at the Debates That Trump Never Could**\
 `From years of watching debates, I think the winners always showed us something about civility.`\
 https://nytimes.com/2024/05/18/opinion/biden-trump-debate.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/18/movies/cannes-furiosa-megalopolis.html
 **Xi’s Warm Embrace of Putin in China Is a Defiance of the West**\
 `Western leaders looking for signs that the Chinese leader used his influence on President Vladimir V. Putin to end the war in Ukraine are likely to be disappointed.`\
 https://nytimes.com/2024/05/18/world/asia/putin-xi-china-russia.html
-
-**Learn to Make the Best Broccoli of Your Life (Really!)**\
-`In the latest installment of her YouTube series, the cookbook author and chef Sohla El-Waylly will teach you how to maximize this popular, but sometimes divisive vegetable.`\
-https://nytimes.com/article/how-to-cook-broccoli.html
 
