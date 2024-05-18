@@ -1,3 +1,7 @@
+**U.C.L.A. Faculty Votes Against Rebuking University’s Chancellor**\
+`The votes came weeks after students at a pro-Palestinian encampment were attacked for hours by a large group of counterprotesters without police intervention.`\
+https://nytimes.com/2024/05/17/us/ucla-gene-block-palestinian-protest.html
+
 **Jail Death Lawsuit Is Settled for $7.5 Million Amid California Inquiry**\
 `A violent encounter captured on video was part of a surge in jail deaths that spurred an inquiry into the Riverside County Sheriff’s Department.`\
 https://nytimes.com/2024/05/17/us/california-riverside-jail-death-lawsuit.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/nyregion/trump-trial-judge-merchan-donations.html
 **Sony and Apollo Take Key Step in Bid for Paramount’s Assets**\
 `The two companies have expressed interest in acquiring the media conglomerate, but are backing away from their $26 billion all-cash offer.`\
 https://nytimes.com/2024/05/17/business/paramount-sony-apollo-assets.html
-
-**‘Doctor Who’ Episode 4 Recap: Scenes of Destruction**\
-`In an episode simmering with tension, the Doctor and Ruby discover an army of religious soldiers on a largely deserted planet.`\
-https://nytimes.com/2024/05/17/arts/television/doctor-who-recap-episode-4.html
 
