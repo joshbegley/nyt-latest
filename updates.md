@@ -1,3 +1,7 @@
+**How I Met My Father**\
+`“What took you so long?” he said.`\
+https://nytimes.com/2024/05/18/style/how-i-met-my-father.html
+
 **Backlash to Anitta’s Music Video Evokes a Painful History in Brazil**\
 `Outrage over the pop star’s new music video brought Brazil’s struggle with religious intolerance into view.`\
 https://nytimes.com/2024/05/18/arts/anitta-brazil-candomble.html
