@@ -1,3 +1,11 @@
+**Biden Can Do Something at the Debates That Trump Never Could**\
+`From years of watching debates, I think the winners always showed us something about civility.`\
+https://nytimes.com/2024/05/18/opinion/biden-trump-debate.html
+
+**Appreciating Alice Munro, Who Brought Innovation to Short Fiction**\
+`The Nobel laureate, whose precisely written stories about southwestern Ontario many considered “without equal,” died this week at 92.`\
+https://nytimes.com/2024/05/18/world/canada/alice-munro-canada.html
+
 **This Scientist Has an Antidote to Our Climate Delusions**\
 `Ayana Elizabeth Johnson on how to overcome the “soft” climate denial that keeps us buying junk.`\
 https://nytimes.com/2024/05/18/magazine/ayana-elizabeth-johnson-interview.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/18/world/asia/putin-xi-china-russia.html
 **Learn to Make the Best Broccoli of Your Life (Really!)**\
 `In the latest installment of her YouTube series, the cookbook author and chef Sohla El-Waylly will teach you how to maximize this popular, but sometimes divisive vegetable.`\
 https://nytimes.com/article/how-to-cook-broccoli.html
-
-**A Loss at Mercedes-Benz Slows U.A.W.’s Southern Campaign**\
-`After Mercedes workers voted against joining the United Automobile Workers, the union will have less momentum as it campaigns to organize Southern factories.`\
-https://nytimes.com/2024/05/18/business/uaw-mercedes-benz-alabama-election.html
-
-**Texas Family Finally Learns Fate of Man Held in Syria**\
-`Majd Kamalmaz disappeared in Syria in early 2017. American officials recently disclosed to his family that they had intelligence indicating that he was dead.`\
-https://nytimes.com/2024/05/18/us/politics/texas-syria-hostage-death-kamalmaz.html
 
