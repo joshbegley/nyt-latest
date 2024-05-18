@@ -1,3 +1,11 @@
+**Transcript of Trump Manhattan Trial, May 16, 2024**\
+`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
+https://nytimes.com/interactive/2024/05/17/nyregion/trump-hush-money-trial-transcript-may-16.html
+
+**Avett Brothers Musical, ‘Swept Away,’ to Open on Broadway This Fall**\
+`The show, inspired by a 19th-century shipwreck, has had previous runs in Berkeley, Calif., and Washington.`\
+https://nytimes.com/2024/05/17/theater/avett-brothers-swept-away-broadway.html
+
 **U.C. Santa Cruz Workers to Strike Over Protest Crackdowns**\
 `The union representing academic workers in the University of California system said other campuses might strike, too, if officials failed to address their complaints over the handling of pro-Palestinian protests.`\
 https://nytimes.com/2024/05/17/us/uc-santa-cruz-strike-palestinian-protests.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/17/arts/unc-school-of-the-arts-sexual-abuse-lawsuit.
 **Ad for Lactation Cookies Returns to Times Square**\
 `After Clear Channel, which manages many of the advertisements in the area, said a provocative billboard for a Molly Baz recipe was “flagged for review,” two companies stepped in to offer new space.`\
 https://nytimes.com/2024/05/17/style/lactation-cookie-billboard-times-square.html
-
-**Slovakia Is at a Dangerous Moment**\
-`The shooting of Slovakia’s prime minister comes with a backdrop of growing political polarization.`\
-https://nytimes.com/2024/05/17/opinion/slovakia-fico-assassination-attempt-political-violence.html
-
-**How Big Is Taylor Swift?**\
-`As big as the Beatles? Michael Jackson? Beyoncé? We crunched the numbers.`\
-https://nytimes.com/interactive/2024/05/17/arts/music/taylor-swift-sales-tours-grammys.html
 
