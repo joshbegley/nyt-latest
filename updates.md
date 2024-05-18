@@ -1,3 +1,7 @@
+**Protesters Take Over the Institute of Politics at University of Chicago**\
+`They confronted the institute’s director, the former senator Heidi Heitkamp.`\
+https://nytimes.com/2024/05/17/us/uchicago-protests-politics-institute.html
+
 **U.C.L.A. Faculty Votes Against Rebuking University’s Chancellor**\
 `The votes came weeks after students at a pro-Palestinian encampment were attacked for hours by a large group of counterprotesters without police intervention.`\
 https://nytimes.com/2024/05/17/us/ucla-gene-block-palestinian-protest.html
