@@ -1,3 +1,7 @@
+**Rex Murphy, a Dominant Pundit on the Right in Canada, Dies at 77**\
+`In newspaper columns and on radio and TV, he was his country’s “premier provocateur,” gaining a wide audience for his conservative attacks on liberals and environmentalists.`\
+https://nytimes.com/2024/05/18/world/canada/rex-murphy-dead.html
+
 **Georgia’s President Vetoes Foreign Influence Law**\
 `The law has triggered protests and threatens to derail the nation’s pro-European aspirations in favor of closer ties with Russia.`\
 https://nytimes.com/2024/05/18/world/europe/georgia-president-veto-foreign-influence-law.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/18/insider/nostalgia-word-origin.html
 **In Britain, Chasing a Glimpse of the Northern Lights**\
 `Sightings of the aurora borealis are unlikely in the U.K. this weekend, but the northern lights could return on Monday, forecasters said.`\
 https://nytimes.com/2024/05/18/world/europe/northern-lights-uk-aurora-borealis.html
-
-**Phil Wiggins, Virtuoso of the Blues Harmonica, Dies at 69**\
-`First as half of the duo Cephas and Wiggins and later on his own, he was one of the best-known musicians playing the style known as the Piedmont blues.`\
-https://nytimes.com/2024/05/18/arts/music/phil-wiggins-dead.html
 

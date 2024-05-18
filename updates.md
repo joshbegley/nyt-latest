@@ -1,3 +1,7 @@
+**Rex Murphy, a Dominant Pundit on the Right in Canada, Dies at 77**\
+`In newspaper columns and on radio and TV, he was his country’s “premier provocateur,” gaining a wide audience for his conservative attacks on liberals and environmentalists.`\
+https://nytimes.com/2024/05/18/world/canada/rex-murphy-dead.html
+
 **Georgia’s President Vetoes Foreign Influence Law**\
 `The law has triggered protests and threatens to derail the nation’s pro-European aspirations in favor of closer ties with Russia.`\
 https://nytimes.com/2024/05/18/world/europe/georgia-president-veto-foreign-influence-law.html
