@@ -1,3 +1,7 @@
+**The Underappreciated Genius of ‘Planet of the Apes’**\
+`This film franchise delivers on several levels.`\
+https://nytimes.com/2024/05/18/opinion/planet-of-the-apes-movie.html
+
 **How I Met My Father**\
 `“What took you so long?” he said.`\
 https://nytimes.com/2024/05/18/style/how-i-met-my-father.html
