@@ -1,3 +1,11 @@
+**U.C. Santa Cruz Workers to Strike Over Protest Crackdowns**\
+`The union representing academic workers in the University of California system said other campuses might strike, too, if officials failed to address their complaints over the handling of pro-Palestinian protests.`\
+https://nytimes.com/2024/05/17/us/uc-santa-cruz-strike-palestinian-protests.html
+
+**Ethics Panel Cautions Judge in Trump Trial Over Political Donations**\
+`Justice Juan M. Merchan, the judge overseeing Donald J. Trump’s criminal trial in Manhattan, donated modest amounts to Democratic groups in 2020.`\
+https://nytimes.com/2024/05/17/nyregion/trump-trial-judge-merchan-donations.html
+
 **Sony and Apollo Take Key Step in Bid for Paramount’s Assets**\
 `The two companies have expressed interest in acquiring the media conglomerate, but are backing away from their $26 billion all-cash offer.`\
 https://nytimes.com/2024/05/17/business/paramount-sony-apollo-assets.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/17/opinion/slovakia-fico-assassination-attempt-polit
 **How Big Is Taylor Swift?**\
 `As big as the Beatles? Michael Jackson? Beyoncé? We crunched the numbers.`\
 https://nytimes.com/interactive/2024/05/17/arts/music/taylor-swift-sales-tours-grammys.html
-
-**The Reading List Behind ‘Serial’ Season 4**\
-`The team behind the podcast shares the books that influenced their thinking and understanding of Guantánamo.`\
-https://nytimes.com/2024/05/17/podcasts/serial-guantanamo-reading-list.html
-
-**Dabney Coleman, Actor Audiences Loved to Hate, Is Dead at 92**\
-`In movies like “9 to 5” and “Tootsie” and on TV shows like “Buffalo Bill,” he turned the portrayal of egomaniacal louts into a fine art.`\
-https://nytimes.com/2024/05/17/arts/television/dabney-coleman-dead.html
 
