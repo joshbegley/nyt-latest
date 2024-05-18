@@ -1,5 +1,5 @@
 **18pol-swiper-new**\
-`Election Updates: After a week in court, Trump steps out to Minnesota, Texas and the Bronx.`\
+`Election Updates: After a week in court, Trump steps out to Minnesota and Texas. Next up, the Bronx.`\
 https://nytimes.com/live/2024/05/18/us/biden-trump-election-news
 
 **The Underappreciated Genius of ‘Planet of the Apes’**\
