@@ -27,7 +27,7 @@ https://nytimes.com/2024/05/18/arts/music/phil-wiggins-dead.html
 https://nytimes.com/2024/05/18/dining/raspberry-almond-clafoutis-just-as-fun-to-say-as-to-eat.html
 
 **18pol-swiper-new**\
-`Election Updates: Candidates hit the trail, with Biden in Georgia, a key battleground state, and Trump in Texas to for an N.R.A. event.`\
+`Election Updates: Candidates hit the trail, with Biden in Georgia, a key battleground state, and Trump in Texas for an N.R.A. event.`\
 https://nytimes.com/live/2024/05/18/us/biden-trump-election-news
 
 **The Underappreciated Genius of ‘Planet of the Apes’**\
