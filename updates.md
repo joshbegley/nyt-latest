@@ -1,3 +1,11 @@
+**Biden Can Do Something at the Debates That Trump Never Could**\
+`From years of watching debates, I think the winners always showed us something about civility.`\
+https://nytimes.com/2024/05/18/opinion/biden-trump-debate.html
+
+**Appreciating Alice Munro, Who Brought Innovation to Short Fiction**\
+`The Nobel laureate, whose precisely written stories about southwestern Ontario many considered “without equal,” died this week at 92.`\
+https://nytimes.com/2024/05/18/world/canada/alice-munro-canada.html
+
 **This Scientist Has an Antidote to Our Climate Delusions**\
 `Ayana Elizabeth Johnson on how to overcome the “soft” climate denial that keeps us buying junk.`\
 https://nytimes.com/2024/05/18/magazine/ayana-elizabeth-johnson-interview.html
