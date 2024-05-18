@@ -1,3 +1,7 @@
+**Protesters Take Over Institute of Politics at the University of Chicago**\
+`Demonstrators overturned furniture and confronted the director, the former senator Heidi Heitkamp.`\
+https://nytimes.com/2024/05/17/us/uchicago-protests-politics-institute.html
+
 **Transcript of Trump Manhattan Trial, May 16, 2024**\
 `New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
 https://nytimes.com/interactive/2024/05/17/nyregion/trump-hush-money-trial-transcript-may-16.html

@@ -1,3 +1,7 @@
+**Protesters Take Over Institute of Politics at the University of Chicago**\
+`Demonstrators overturned furniture and confronted the director, the former senator Heidi Heitkamp.`\
+https://nytimes.com/2024/05/17/us/uchicago-protests-politics-institute.html
+
 **Transcript of Trump Manhattan Trial, May 16, 2024**\
 `New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
 https://nytimes.com/interactive/2024/05/17/nyregion/trump-hush-money-trial-transcript-may-16.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/05/17/world/israel-gaza-war-hamas-rafah/american-d
 **Arts School Settles Sexual Abuse Lawsuit for $12.5 Million**\
 `Dozens of alumni of the University of North Carolina School of the Arts had sued in 2021, accusing faculty members of widespread misconduct.`\
 https://nytimes.com/2024/05/17/arts/unc-school-of-the-arts-sexual-abuse-lawsuit.html
-
-**Ad for Lactation Cookies Returns to Times Square**\
-`After Clear Channel, which manages many of the advertisements in the area, said a provocative billboard for a Molly Baz recipe was “flagged for review,” two companies stepped in to offer new space.`\
-https://nytimes.com/2024/05/17/style/lactation-cookie-billboard-times-square.html
 
