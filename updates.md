@@ -1,3 +1,7 @@
+**France Issues Scratch-and-Sniff Baguette Postage Stamps**\
+`The celebration of French heritage in the run-up to the Paris Olympics was unveiled on the feast day of Saint Honoré, the patron saint of bakers.`\
+https://nytimes.com/2024/05/18/world/europe/france-baguette-stamp-scratch-and-sniff.html
+
 **Russia Presses Attacks in Northeast Ukraine, Seeking Buffer Zone on Border**\
 `Advances by Russian forces have raised fears they could bring their artillery in range of Kharkiv, Ukraine’s second largest city.`\
 https://nytimes.com/2024/05/18/world/europe/russia-northeast-ukraine.html
