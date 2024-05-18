@@ -1,5 +1,9 @@
 **Trump Falsely Claims He Won Minnesota in 2016 and 2020**\
 `In a speech to the state’s Republican Party, the former president said “I know we won” there in 2020. But it has been 52 years since a G.O.P. presidential candidate carried Minnesota.`\
+https://nytimes.com/2024/05/17/us/politics/trump-minnesota-republican-party.html
+
+**Trump Falsely Claims He Won Minnesota in 2016 and 2020**\
+`In a speech to the state’s Republican Party, the former president said “I know we won” there in 2020. But it has been 52 years since a G.O.P. presidential candidate carried Minnesota.`\
 https://nytimes.com/live/2024/05/17/us/biden-trump-election/trump-minnesota-republican-party
 
 **Strangers in Their Own Land: Being Muslim in Modi’s India**\
