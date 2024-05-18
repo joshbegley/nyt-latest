@@ -1,3 +1,7 @@
+**Man Is Arrested in Random Punch of Steve Buscemi**\
+`The police recognized the suspect, Clifton Williams, when they went to the scene of another dispute on Friday.`\
+https://nytimes.com/2024/05/18/nyregion/steve-buscemi-attack-nyc-arrest.html
+
 **Driver Takes Down a 113-Year-Old Salt Tram Tower in Death Valley**\
 `A traveler used the tower as an anchor to try to pull out a pickup that was stuck in mud at the national park in California.`\
 https://nytimes.com/2024/05/18/us/death-valley-tower-visitor.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/18/arts/music/phil-wiggins-dead.html
 **Raspberry-Almond Clafoutis, Just as Fun to Say as to Eat**\
 `Roasted orange chicken, shrimp tempura and crunchy quinoa salad round out the weekend cooking wish list.`\
 https://nytimes.com/2024/05/18/dining/raspberry-almond-clafoutis-just-as-fun-to-say-as-to-eat.html
-
-**18pol-swiper-new**\
-`Election Updates: Candidates hit the trail, with Biden in Georgia, a key battleground state, and Trump in Texas for an N.R.A. event.`\
-https://nytimes.com/live/2024/05/18/us/biden-trump-election-news
 
