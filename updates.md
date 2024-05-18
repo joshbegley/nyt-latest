@@ -1,3 +1,7 @@
+**Moorhead C. Kennedy Jr., 93, Dies; Hostage Who Chided Foreign Policy**\
+`A Foreign Service officer, he was one of 52 hostages seized in Iran and held for 444 days. He later challenged the U.S. government to reshape its diplomacy with the Islamic world.`\
+https://nytimes.com/2024/05/18/world/middleeast/moorhead-kennedy-dead.html
+
 **Giuliani Is Formally Notified of His Indictment in Arizona Election Case**\
 `After trying to reach him for weeks, officials served him the notice as he left his 80th birthday party. He is expected to appear in court on Tuesday.`\
 https://nytimes.com/2024/05/18/us/rudy-giuliani-arizona-election-indictment.html

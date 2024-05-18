@@ -1,3 +1,7 @@
+**Moorhead C. Kennedy Jr., 93, Dies; Hostage Who Chided Foreign Policy**\
+`A Foreign Service officer, he was one of 52 hostages seized in Iran and held for 444 days. He later challenged the U.S. government to reshape its diplomacy with the Islamic world.`\
+https://nytimes.com/2024/05/18/world/middleeast/moorhead-kennedy-dead.html
+
 **Giuliani Is Formally Notified of His Indictment in Arizona Election Case**\
 `After trying to reach him for weeks, officials served him the notice as he left his 80th birthday party. He is expected to appear in court on Tuesday.`\
 https://nytimes.com/2024/05/18/us/rudy-giuliani-arizona-election-indictment.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/18/world/asia/nepal-climbers-bodies-retrieve.html
 **Slovak Prime Minister Is Improving After Second Operation, Official Says**\
 `The suspect in the shooting of the prime minister, Robert Fico, appeared before a judge, who ordered that he would remain in custody until he is charged and tried.`\
 https://nytimes.com/2024/05/18/world/europe/slovak-prime-minister-shooting.html
-
-**Looking to the Past for Early Meanings of Nostalgia**\
-`Before it reminded us of the glory days, nostalgia was a medical condition involving severe homesickness.`\
-https://nytimes.com/2024/05/18/insider/nostalgia-word-origin.html
 
