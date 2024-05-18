@@ -1,3 +1,11 @@
+**With Caitlin Clark in Town, All Eyes Were on Brooklyn**\
+`The New York Liberty beat the Indiana Fever in front of a record crowd at Barclays Center, with celebrities and basketball legends there to see the star rookie.`\
+https://nytimes.com/2024/05/18/style/caitlin-clark-new-york-liberty.html
+
+**U.S. and Iranian Officials Held Indirect Talks in Oman on Risks of a Wider War**\
+`The talks were the first since Iran attacked Israel last month in retaliation for its killing of an Iranian general.`\
+https://nytimes.com/2024/05/18/us/politics/us-iran-talks-oman.html
+
 **In California, Kristi Noem looks to move past weeks of backlash and regain favor with Trump.**\
 `By Jonathan Wolfe`\
 https://nytimes.com/live/2024/05/18/us/biden-trump-election-news/in-california-kristi-noem-looks-to-move-past-weeks-of-backlash-and-regain-favor-with-trump
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/18/world/middleeast/moorhead-kennedy-dead.html
 **Giuliani Is Formally Notified of His Indictment in Arizona Election Case**\
 `After trying to reach him for weeks, officials served him the notice as he left his 80th birthday party. He is expected to appear in court on Tuesday.`\
 https://nytimes.com/2024/05/18/us/rudy-giuliani-arizona-election-indictment.html
-
-**Rex Murphy, a Dominant Pundit on the Right in Canada, Dies at 77**\
-`In newspaper columns and on radio and TV, he was his country’s “premier provocateur,” gaining a wide audience for his conservative attacks on liberals and environmentalists.`\
-https://nytimes.com/2024/05/18/world/canada/rex-murphy-dead.html
-
-**Georgia’s President Vetoes Foreign Influence Law**\
-`The law has triggered protests and threatens to derail the nation’s pro-European aspirations in favor of closer ties with Russia.`\
-https://nytimes.com/2024/05/18/world/europe/georgia-president-veto-foreign-influence-law.html
 
