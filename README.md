@@ -1,10 +1,10 @@
-**Hold Your Doze**\
-`We’ll make sense of Christina Iverson and Katie Hale’s latest diversion, although it helps to have a code.`\
-https://nytimes.com/2024/05/18/crosswords/daily-puzzle-2024-05-19.html
-
 **Stefanik to Denounce Biden, and Praise Trump, in Speech to Israel’s Parliament**\
 `The New York congresswoman will become the highest-ranking House Republican to speak before Israel’s Parliament since the Oct. 7 attacks, in a move meant to capitalize on Democratic divisions.`\
 https://nytimes.com/2024/05/18/us/politics/elise-stefanik-israel-biden.html
+
+**Hold Your Doze**\
+`We’ll make sense of Christina Iverson and Katie Hale’s latest diversion, although it helps to have a code.`\
+https://nytimes.com/2024/05/18/crosswords/daily-puzzle-2024-05-19.html
 
 **Moorhead C. Kennedy Jr., 93, Dies; Hostage Who Chided Foreign Policy**\
 `A Foreign Service officer, he was one of 52 hostages seized in Iran and held for 444 days. He later challenged the U.S. government to reshape its diplomacy with the Islamic world.`\
