@@ -1,3 +1,7 @@
+**Israel’s Wartime Government Frays as Frustration with Netanyahu Grows**\
+`Benny Gantz, a centrist member of leadership, presented the prime minister with an ultimatum that demanded a plan for the future of Israel’s war.`\
+https://nytimes.com/2024/05/18/world/middleeast/israel-gaza-war-netanyahu-gantz.html
+
 **Stefanik to Denounce Biden, and Praise Trump, in Speech to Israel’s Parliament**\
 `The New York congresswoman will become the highest-ranking House Republican to speak before Israel’s Parliament since the Oct. 7 attacks, in a move meant to capitalize on Democratic divisions.`\
 https://nytimes.com/2024/05/18/us/politics/elise-stefanik-israel-biden.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/18/nyregion/steve-buscemi-attack-nyc-arrest.html
 **Driver Takes Down a 113-Year-Old Salt Tram Tower in Death Valley**\
 `A traveler used the tower as an anchor to try to pull out a pickup that was stuck in mud at the national park in California.`\
 https://nytimes.com/2024/05/18/us/death-valley-tower-visitor.html
-
-**Gantz’s ultimatum reflects a growing frustration with Netanyahu’s leadership.**\
-`By Aaron Boxerman and Ephrat Livni`\
-https://nytimes.com/live/2024/05/18/world/israel-gaza-war-hamas-rafah/ron-binyamin-had-set-out-on-a-bicycle-ride-the-morning-of-oct-7
 
