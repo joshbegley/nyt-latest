@@ -1,3 +1,7 @@
+**Raspberry-Almond Clafoutis, Just as Fun to Say as to Eat**\
+`Roasted orange chicken, shrimp tempura and crunchy quinoa salad round out the weekend cooking wish list.`\
+https://nytimes.com/2024/05/18/dining/raspberry-almond-clafoutis-just-as-fun-to-say-as-to-eat.html
+
 **18pol-swiper-new**\
 `Election Updates: After a week in court, Trump steps out to Minnesota and Texas. Next up, the Bronx.`\
 https://nytimes.com/live/2024/05/18/us/biden-trump-election-news
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/18/business/dealbook/how-companies-dodge-tariffs.htm
 **Defeat Is Agonizing. In These 2 Books, It’s Also Thrilling.**\
 `If you love stories about beautiful losers, consider Brian Moore’s novel about an alcoholic virgin or Benjamin Anastas’s tale of an inferior twin.`\
 https://nytimes.com/2024/05/18/books/read-like-wind-recommendations.html
-
-**France Issues Scratch-and-Sniff Baguette Postage Stamps**\
-`The celebration of French heritage in the run-up to the Paris Olympics was unveiled on the feast day of Saint Honoré, the patron saint of bakers.`\
-https://nytimes.com/2024/05/18/world/europe/france-baguette-stamp-scratch-and-sniff.html
 
