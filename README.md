@@ -1,3 +1,7 @@
+**Russia Presses Attacks in Northeast Ukraine, Seeking Buffer Zone on Border**\
+`Advances by Russian forces have raised fears they could bring their artillery in range of Kharkiv, Ukraine’s second largest city.`\
+https://nytimes.com/2024/05/18/world/europe/russia-northeast-ukraine.html
+
 **The Forever Trial**\
 `How the sister of one victim of the Sept. 11 attacks is navigating the trial of the men accused of orchestrating it.`\
 https://nytimes.com/2024/05/18/podcasts/forever-trial-guantanamo-this-american-life-nyt-audio.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/18/briefing/reese-witherspoon-book-club-chat.html
 **Biden Can Do Something at the Debates That Trump Never Could**\
 `From years of watching debates, I think the winners always showed us something about civility.`\
 https://nytimes.com/2024/05/18/opinion/biden-trump-debate.html
-
-**Appreciating Alice Munro, Who Brought Innovation to Short Fiction**\
-`The Nobel laureate, whose precisely written stories about southwestern Ontario many considered “without equal,” died this week at 92.`\
-https://nytimes.com/2024/05/18/world/canada/alice-munro-canada.html
 
