@@ -1,3 +1,7 @@
+**Protesters Take Over the Institute of Politics at University of Chicago**\
+`They confronted the institute’s director, the former senator Heidi Heitkamp. At the University of Pennsylvania, demonstrators also tried to occupy a building.`\
+https://nytimes.com/2024/05/17/us/uchicago-protests-politics-institute.html
+
 **Youngkin Vetoes Measures to Remove Tax Breaks for Confederate Heritage Group**\
 `The Virginia governor rejected efforts by the state’s Democrats to reshape the Commonwealth’s relationship with its Confederate past.`\
 https://nytimes.com/2024/05/17/us/virginia-confederate-heritage-group-tax-youngkin.html
