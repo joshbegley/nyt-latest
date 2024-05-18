@@ -1,3 +1,11 @@
+**Hold Your Doze**\
+`We’ll make sense of Christina Iverson and Katie Hale’s latest diversion, although it helps to have a code.`\
+https://nytimes.com/2024/05/18/crosswords/daily-puzzle-2024-05-19.html
+
+**Stefanik to Denounce Biden, and Praise Trump, in Speech to Israel’s Parliament**\
+`The New York congresswoman will become the highest-ranking House Republican to speak before Israel’s Parliament since the Oct. 7 attacks, in a move meant to capitalize on Democratic divisions.`\
+https://nytimes.com/2024/05/18/us/politics/elise-stefanik-israel-biden.html
+
 **Moorhead C. Kennedy Jr., 93, Dies; Hostage Who Chided Foreign Policy**\
 `A Foreign Service officer, he was one of 52 hostages seized in Iran and held for 444 days. He later challenged the U.S. government to reshape its diplomacy with the Islamic world.`\
 https://nytimes.com/2024/05/18/world/middleeast/moorhead-kennedy-dead.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/18/us/death-valley-tower-visitor.html
 **Gantz’s ultimatum reflects a growing frustration with Netanyahu’s leadership.**\
 `By Aaron Boxerman and Ephrat Livni`\
 https://nytimes.com/live/2024/05/18/world/israel-gaza-war-hamas-rafah/ron-binyamin-had-set-out-on-a-bicycle-ride-the-morning-of-oct-7
-
-**Rescuers in Nepal Retrieve the Bodies of an American Climber and Her Guide**\
-`The two were racing to climb the 14 tallest mountains in the world when they were killed in an avalanche.`\
-https://nytimes.com/2024/05/18/world/asia/nepal-climbers-bodies-retrieve.html
-
-**Slovak Prime Minister Is Improving After Second Operation, Official Says**\
-`The suspect in the shooting of the prime minister, Robert Fico, appeared before a judge, who ordered that he would remain in custody until he is charged and tried.`\
-https://nytimes.com/2024/05/18/world/europe/slovak-prime-minister-shooting.html
 
