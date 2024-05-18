@@ -1,7 +1,3 @@
-**Driver Takes Down a 113-Year-Old Salt Tram Tower in Death Valley**\
-`A traveler used the tower as an anchor to try to pull out a pickup that was stuck in mud at the national park in California.`\
-https://nytimes.com/2024/05/18/us/death-valley-tower-visitor.html
-
 **Gantz’s ultimatum reflects a growing frustration with Netanyahu’s leadership.**\
 `By Aaron Boxerman and Ephrat Livni`\
 https://nytimes.com/live/2024/05/18/world/israel-gaza-war-hamas-rafah/ron-binyamin-had-set-out-on-a-bicycle-ride-the-morning-of-oct-7
@@ -33,4 +29,8 @@ https://nytimes.com/2024/05/18/dining/raspberry-almond-clafoutis-just-as-fun-to-
 **18pol-swiper-new**\
 `Election Updates: Candidates hit the trail, with Biden in Georgia, a key battleground state, and Trump in Texas for an N.R.A. event.`\
 https://nytimes.com/live/2024/05/18/us/biden-trump-election-news
+
+**The Underappreciated Genius of ‘Planet of the Apes’**\
+`This film franchise delivers on several levels.`\
+https://nytimes.com/2024/05/18/opinion/planet-of-the-apes-movie.html
 
