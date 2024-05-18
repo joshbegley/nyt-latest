@@ -19,7 +19,7 @@ https://nytimes.com/2024/05/17/us/california-riverside-jail-death-lawsuit.html
 https://nytimes.com/2024/05/17/us/politics/trump-south-bronx.html
 
 **Protesters Take Over the Institute of Politics at University of Chicago**\
-`They confronted the institute’s director, the former senator Heidi Heitkamp.`\
+`They confronted the institute’s director, the former senator Heidi Heitkamp. At the University of Pennsylvania, demonstrators also tried to occupy a building.`\
 https://nytimes.com/2024/05/17/us/uchicago-protests-politics-institute.html
 
 **Transcript of Trump Manhattan Trial, May 16, 2024**\
