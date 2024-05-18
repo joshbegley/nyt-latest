@@ -1,3 +1,7 @@
+**Giuliani Is Formally Notified of His Indictment in Arizona Election Case**\
+`Officials had tried to reach him for nearly a month. He was the last of the 18 defendants to be served, and he is expected to appear in court on Tuesday.`\
+https://nytimes.com/2024/05/18/us/rudy-giuliani-arizona-election-indictment.html
+
 **Rex Murphy, a Dominant Pundit on the Right in Canada, Dies at 77**\
 `In newspaper columns and on radio and TV, he was his country’s “premier provocateur,” gaining a wide audience for his conservative attacks on liberals and environmentalists.`\
 https://nytimes.com/2024/05/18/world/canada/rex-murphy-dead.html
