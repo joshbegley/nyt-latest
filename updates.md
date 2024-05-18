@@ -1,3 +1,7 @@
+**18pol-swiper-new**\
+`Election Updates: Candidates hit the trail, with Biden in Georgia, a key battleground state, and Trump in Texas to for an N.R.A. event.`\
+https://nytimes.com/live/2024/05/18/us/biden-trump-election-news
+
 **Ron Binyamin had set out on a bicycle ride the morning of Oct. 7.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/05/18/world/israel-gaza-war-hamas-rafah/ron-binyamin-had-set-out-on-a-bicycle-ride-the-morning-of-oct-7
