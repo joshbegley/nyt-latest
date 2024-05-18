@@ -1,3 +1,7 @@
+**Rescuers in Nepal Retrieve the Bodies of an American Climber and Her Guide**\
+`The two were racing to climb the 14 tallest mountains in the world when they were killed in an avalanche.`\
+https://nytimes.com/2024/05/18/world/asia/nepal-climbers-bodies-retrieve.html
+
 **Slovak Prime Minister Is Improving After Second Operation, Official Says**\
 `The suspect in the shooting of the prime minister, Robert Fico, appeared before a judge, who ordered that he would remain in custody until he is charged and tried.`\
 https://nytimes.com/2024/05/18/world/europe/slovak-prime-minister-shooting.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/18/opinion/planet-of-the-apes-movie.html
 **How I Met My Father**\
 `“What took you so long?” he said.`\
 https://nytimes.com/2024/05/18/style/how-i-met-my-father.html
-
-**Backlash to Anitta’s Music Video Evokes a Painful History in Brazil**\
-`Outrage over the pop star’s new music video brought Brazil’s struggle with religious intolerance into view.`\
-https://nytimes.com/2024/05/18/arts/anitta-brazil-candomble.html
 
