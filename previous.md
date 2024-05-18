@@ -1,3 +1,7 @@
+**In Britain, Chasing a Glimpse of the Northern Lights**\
+`Sightings of the aurora borealis are unlikely in the U.K. this weekend, but the northern lights could return on Monday, forecasters said.`\
+https://nytimes.com/2024/05/18/world/europe/northern-lights-uk-aurora-borealis.html
+
 **Phil Wiggins, Virtuoso of the Blues Harmonica, Dies at 69**\
 `First as half of the duo Cephas and Wiggins and later on his own, he was one of the best-known musicians playing the style known as the Piedmont blues.`\
 https://nytimes.com/2024/05/18/arts/music/phil-wiggins-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/18/business/inheritance-millennials.html
 **Loneliness Is a Problem That A.I. Won’t Solve**\
 `Human touch matters.`\
 https://nytimes.com/2024/05/18/opinion/artificial-intelligence-loneliness.html
-
-**How Companies Dodge Tariffs**\
-`Protectionist trade policies are popular on both the left and right. But some economists say they’re likely to backfire.`\
-https://nytimes.com/2024/05/18/business/dealbook/how-companies-dodge-tariffs.html
 
