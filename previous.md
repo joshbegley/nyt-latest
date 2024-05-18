@@ -1,3 +1,7 @@
+**Youngkin Vetoes Measures to Remove Tax Breaks for Confederate Heritage Group**\
+`The Virginia governor rejected efforts by the state’s Democrats to reshape the Commonwealth’s relationship with its Confederate past.`\
+https://nytimes.com/2024/05/17/us/virginia-confederate-heritage-group-tax-youngkin.html
+
 **‘I’m Speechless’**\
 `Adrian Johnson’s Saturday puzzle is daunting, but also a little warm and fuzzy.`\
 https://nytimes.com/2024/05/17/crosswords/daily-puzzle-2024-05-18.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/theater/avett-brothers-swept-away-broadway.html
 **U.C. Santa Cruz Workers to Strike Over Protest Crackdowns**\
 `The union representing academic workers in the University of California system said other campuses might strike, too, if officials failed to address their complaints over the handling of pro-Palestinian protests.`\
 https://nytimes.com/2024/05/17/us/uc-santa-cruz-strike-palestinian-protests.html
-
-**Ethics Panel Cautions Judge in Trump Trial Over Political Donations**\
-`Justice Juan M. Merchan, the judge overseeing Donald J. Trump’s criminal trial in Manhattan, donated modest amounts to Democratic groups in 2020.`\
-https://nytimes.com/2024/05/17/nyregion/trump-trial-judge-merchan-donations.html
 

@@ -1,3 +1,7 @@
+**Youngkin Vetoes Measures to Remove Tax Breaks for Confederate Heritage Group**\
+`The Virginia governor rejected efforts by the state’s Democrats to reshape the Commonwealth’s relationship with its Confederate past.`\
+https://nytimes.com/2024/05/17/us/virginia-confederate-heritage-group-tax-youngkin.html
+
 **‘I’m Speechless’**\
 `Adrian Johnson’s Saturday puzzle is daunting, but also a little warm and fuzzy.`\
 https://nytimes.com/2024/05/17/crosswords/daily-puzzle-2024-05-18.html
