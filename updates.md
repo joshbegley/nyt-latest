@@ -1,3 +1,7 @@
+**18pol-swiper-new**\
+`Election Updates: Speaking at a Minnesota fund-raiser, Trump falsely claims he won the state twice.`\
+https://nytimes.com/live/2024/05/18/us/biden-trump-election-news
+
 **The Underappreciated Genius of ‘Planet of the Apes’**\
 `This film franchise delivers on several levels.`\
 https://nytimes.com/2024/05/18/opinion/planet-of-the-apes-movie.html
