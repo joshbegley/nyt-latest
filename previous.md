@@ -1,3 +1,7 @@
+**Jail Death Lawsuit Is Settled for $7.5 Million Amid California Inquiry**\
+`A violent encounter captured on video was part of a surge in jail deaths that spurred an inquiry into the Riverside County Sheriff’s Department.`\
+https://nytimes.com/2024/05/17/us/california-riverside-jail-death-lawsuit.html
+
 **Trump Plans a Campaign Event in the Deep Blue Bronx**\
 `The former president, who has sought to make some political appearances around New York as he stands criminal trial, is set to speak at an event next Thursday at Crotona Park.`\
 https://nytimes.com/2024/05/17/us/politics/trump-south-bronx.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/17/business/paramount-sony-apollo-assets.html
 **‘Doctor Who’ Episode 4 Recap: Scenes of Destruction**\
 `In an episode simmering with tension, the Doctor and Ruby discover an army of religious soldiers on a largely deserted planet.`\
 https://nytimes.com/2024/05/17/arts/television/doctor-who-recap-episode-4.html
-
-**American doctors leave Gaza after being trapped by Rafah incursion.**\
-`1`\
-https://nytimes.com/live/2024/05/17/world/israel-gaza-war-hamas-rafah/american-doctors-leave-gaza-after-being-trapped-by-rafah-incursion
 
