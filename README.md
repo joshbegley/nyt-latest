@@ -1,3 +1,11 @@
+**As Trump Trial Nears Its End, the Law May Give Prosecutors an Edge**\
+`The former president’s defense appeared to chip away at Michael Cohen’s credibility, but legal experts said the case is still the prosecution’s to lose.`\
+https://nytimes.com/2024/05/19/nyregion/trump-trial-cohen-testimony.html
+
+**A New Centrism Is Rising in Washington**\
+`Call it neopopulism: a bipartisan attitude that mistrusts the free-market ethos instead of embracing it.`\
+https://nytimes.com/2024/05/19/briefing/a-new-centrism-is-rising-in-washington.html
+
 **‘I Selected a Friday Evening in June to Celebrate With a Barbecue’**\
 `How to cool drinks in a pinch, a keepsake brought back to life and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://nytimes.com/2024/05/19/nyregion/metropolitan-diary.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/19/nyregion/lowrider-cars-nyc-california.html
 **When Did Teen Boys Get a Nose for $300 Cologne?**\
 `Some Gen Z kids can’t seem to get enough of the luxury fragrances.`\
 https://nytimes.com/2024/05/19/style/designer-cologne-fragrance-teen-boys.html
-
-**‘Saturday Night Live’ Signs Off for the Season**\
-`Jake Gyllenhaal hosted the final episode of the show’s 49th season. Sabrina Carpenter was the musical guest.`\
-https://nytimes.com/2024/05/19/arts/television/saturday-night-live-donald-trumo.html
-
-**Corrections: May 19, 2024**\
-`Corrections that appeared in print on Sunday, May 19, 2024.`\
-https://nytimes.com/2024/05/19/pageoneplus/corrections-may-19-2024.html
 
