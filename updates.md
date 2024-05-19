@@ -1,3 +1,7 @@
+**In Israel, Stefanik denounces Biden and praises Trump.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/05/19/world/israel-gaza-war-hamas-rafah/in-israel-stefanik-denounces-biden-and-praises-trump
+
 **What’s Going On in This Picture? | May 20, 2024**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2024/05/19/learning/whats-going-on-in-this-picture-may-20-2024.html
