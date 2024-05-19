@@ -1,3 +1,7 @@
+**Alice Stewart, a CNN Political Commentator, Dies at 58**\
+`Ms. Stewart had appeared on CNN as a conservative commentator since the 2016 presidential race. A seasoned political strategist, she also had worked for Republican presidential candidates.`\
+https://nytimes.com/2024/05/18/arts/television/alice-stewart-dead.html
+
 **In Atlanta, Biden Warms Up His Pitch to Black Voters**\
 `The president, who is trailing key states in recent polling, tried to cast the election as a struggle for democracy itself.`\
 https://nytimes.com/2024/05/18/us/politics/biden-atlanta-black-voters.html
