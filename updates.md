@@ -1,3 +1,7 @@
+**Who Is President Ebrahim Raisi of Iran?**\
+`Mr. Raisi has been seen as the likely successor to Ayatollah Ali Khamenei as supreme leader, the highest political and religious position in the Islamic republic.`\
+https://nytimes.com/2024/05/19/world/middleeast/iran-president-ebrahim-raisi.html
+
 **Sean Combs Apologizes After Video Shows Him Assaulting Cassie**\
 `After footage surfaced of Mr. Combs striking, kicking and dragging Cassie surfaced, he apologized on social media, saying that “my behavior on that video is inexcusable.”`\
 https://nytimes.com/2024/05/19/arts/music/sean-combs-cassie-assault-video-response.html

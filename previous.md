@@ -1,3 +1,7 @@
+**Who Is President Ebrahim Raisi of Iran?**\
+`Mr. Raisi has been seen as the likely successor to Ayatollah Ali Khamenei as supreme leader, the highest political and religious position in the Islamic republic.`\
+https://nytimes.com/2024/05/19/world/middleeast/iran-president-ebrahim-raisi.html
+
 **Sean Combs Apologizes After Video Shows Him Assaulting Cassie**\
 `After footage surfaced of Mr. Combs striking, kicking and dragging Cassie surfaced, he apologized on social media, saying that “my behavior on that video is inexcusable.”`\
 https://nytimes.com/2024/05/19/arts/music/sean-combs-cassie-assault-video-response.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/05/19/world/israel-gaza-war-hamas-rafah/netanyahu-
 **Helicopter Carrying Iran’s President Has Crashed, State Media Reports**\
 `Rescuers are trying to locate the helicopter on which President Ebrahim Raisi and Foreign Minister Hossein Amir Abdollahian were traveling, state media reported. Their status is unknown.`\
 https://nytimes.com/2024/05/19/world/middleeast/iran-president-helicopter-crash.html
-
-**Russia and Ukraine Engage in Dueling Air Assaults Behind the Front Lines**\
-`Both sides have been looking for ways to inflict damage beyond the battlefield, targeting military logistics hubs and urban centers.`\
-https://nytimes.com/2024/05/19/world/europe/russia-ukraine-air-assaults.html
 
