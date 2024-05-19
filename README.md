@@ -1,3 +1,7 @@
+**Purple Pop**\
+`Jack Scherban makes his New York Times debut.`\
+https://nytimes.com/2024/05/19/crosswords/daily-puzzle-2024-05-20.html
+
 **Critics Fault ‘Aggressive’ N.Y.P.D. Response to Pro-Palestinian Rally**\
 `Officers were filmed punching three demonstrators at the protest in Bay Ridge, Brooklyn. The police said protesters were blocking the streets.`\
 https://nytimes.com/2024/05/19/nyregion/brooklyn-protest-palestinian-police.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/19/us/houston-power-outages-texas-storm.html
 **Iran is confronting a volatile world, at home and abroad.**\
 `By Vivian Nereim`\
 https://nytimes.com/live/2024/05/19/world/iran-president-helicopter-crash/irans-future-was-already-uncertain-before-the-crash-now-its-even-murkier
-
-**Congolese Army Says It Foiled a Coup Involving Americans**\
-`The U.S. ambassador said she was “very concerned” that Americans may have participated in what officials of the Democratic Republic of Congo called a failed coup attempt early Sunday.`\
-https://nytimes.com/2024/05/19/world/africa/congo-coup-americans.html
 
