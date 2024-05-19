@@ -1,3 +1,7 @@
+**Bruce Nordstrom, Who Helped Lead His Family’s Retail Empire, Dies at 90**\
+`Though he was the company’s president, he opted for joint leadership with family members as they turned a string of shoe stores into an international fashion brand.`\
+https://nytimes.com/2024/05/19/business/bruce-nordstrom-dead.html
+
 **Hochul Visits an Ancestral Home, 3,000 Miles From the Governor’s Mansion**\
 `After meeting the pope and the mayors of Rome, London and Dublin, Gov. Kathy Hochul of New York paused to reconnect with her past.`\
 https://nytimes.com/2024/05/19/nyregion/hochul-ireland.html
