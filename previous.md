@@ -1,3 +1,7 @@
+**Today’s Wordle Review No. 1,065**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/19/crosswords/wordle-review.html
+
 **Smellmaxxing, Explained**\
 `Some teenage boys have grown obsessed with designer fragrances that cost hundreds of dollars.`\
 https://nytimes.com/2024/05/19/briefing/smellmaxxing-fragrances-teenagers.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/19/world/middleeast/gaza-jabaliya-israel-military.ht
 **How a Crackdown on Haitians Lifted a Dominican Leader’s Re-Election Bid**\
 `President Luis Abinader goes into Sunday’s race as the clear front-runner, bolstered by nativist migration policies, a strong economy and an anticorruption drive.`\
 https://nytimes.com/2024/05/19/us/dominican-republic-election-abinader-haiti.html
-
-**With an Eye to Black Voters, Biden to Address Graduates at Morehouse College**\
-`The president’s appearance at the historically Black college in Atlanta was not welcomed by all on campus, amid dissatisfaction with U.S. support for Israel’s war in Gaza.`\
-https://nytimes.com/2024/05/19/us/politics/boden-morehouse-commencement.html
 

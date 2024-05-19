@@ -1,3 +1,7 @@
+**Today’s Wordle Review No. 1,065**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/19/crosswords/wordle-review.html
+
 **Smellmaxxing, Explained**\
 `Some teenage boys have grown obsessed with designer fragrances that cost hundreds of dollars.`\
 https://nytimes.com/2024/05/19/briefing/smellmaxxing-fragrances-teenagers.html
