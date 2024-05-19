@@ -1,3 +1,7 @@
+**Iran is confronting a volatile world, at home and abroad.**\
+`By Vivian Nereim`\
+https://nytimes.com/live/2024/05/19/world/iran-president-helicopter-crash/irans-future-was-already-uncertain-before-the-crash-now-its-even-murkier
+
 **Dolores Rosedale, Sidekick on ‘Beat the Clock,’ Dies at 95**\
 `The model and actress, who went by Roxanne, had a modest role on the game show, appeared on numerous magazine covers and inspired the creation of a doll.`\
 https://nytimes.com/2024/05/19/arts/television/dolores-rosedale-dead.html

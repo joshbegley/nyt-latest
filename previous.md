@@ -10,7 +10,7 @@ https://nytimes.com/2024/05/19/us/politics/russian-assets-help-ukraine.html
 `As stifling heat settled over the city, the local electricity provider said most service would return by late Sunday. But hard-hit areas could remain dark for days longer.`\
 https://nytimes.com/2024/05/19/us/houston-power-outages-texas-storm.html
 
-**Iran’s future was already uncertain before the crash; now it’s even murkier.**\
+**Iran is confronting a volatile world, at home and abroad.**\
 `By Vivian Nereim`\
 https://nytimes.com/live/2024/05/19/world/iran-president-helicopter-crash/irans-future-was-already-uncertain-before-the-crash-now-its-even-murkier
 
