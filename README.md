@@ -1,3 +1,7 @@
+**‘Saturday Night Live’ Signs Off for the Season**\
+`Jake Gyllenhaal hosted the final episode of the show’s 49th season. Sabrina Carpenter was the musical guest.`\
+https://nytimes.com/2024/05/19/arts/television/saturday-night-live-donald-trumo.html
+
 **Corrections: May 19, 2024**\
 `Corrections that appeared in print on Sunday, May 19, 2024.`\
 https://nytimes.com/2024/05/19/pageoneplus/corrections-may-19-2024.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/18/us/politics/biden-atlanta-black-voters.html
 **With Caitlin Clark in Town, All Eyes Were on Brooklyn**\
 `The New York Liberty beat the Indiana Fever in front of a record crowd at Barclays Center, with celebrities and basketball legends there to see the star rookie.`\
 https://nytimes.com/2024/05/18/style/caitlin-clark-new-york-liberty.html
-
-**U.S. and Iranian Officials Held Indirect Talks in Oman on Risks of a Wider War**\
-`The talks were the first since Iran attacked Israel last month in retaliation for its killing of an Iranian general.`\
-https://nytimes.com/2024/05/18/us/politics/us-iran-talks-oman.html
 
