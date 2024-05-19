@@ -1,3 +1,7 @@
+**Critics Fault ‘Aggressive’ N.Y.P.D. Response to Pro-Palestinian Rally**\
+`Officers were filmed punching two demonstrators at the protest in Bay Ridge, Brooklyn. The police said protesters were blocking the streets.`\
+https://nytimes.com/2024/05/19/nyregion/brooklyn-protest-palestinian-police.html
+
 **‘Nobody Cares’ About Laura Benanti, but They Let Her Entertain Them**\
 `While poking fun at her own agreeable malleability, Benanti flexes her talents in a show that will be available on Audible, without the physical dimension.`\
 https://nytimes.com/2024/05/19/theater/nobody-cares-laura-benanti-audible.html

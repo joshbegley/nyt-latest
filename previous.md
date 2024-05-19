@@ -1,3 +1,7 @@
+**Critics Fault ‘Aggressive’ N.Y.P.D. Response to Pro-Palestinian Rally**\
+`Officers were filmed punching two demonstrators at the protest in Bay Ridge, Brooklyn. The police said protesters were blocking the streets.`\
+https://nytimes.com/2024/05/19/nyregion/brooklyn-protest-palestinian-police.html
+
 **‘Nobody Cares’ About Laura Benanti, but They Let Her Entertain Them**\
 `While poking fun at her own agreeable malleability, Benanti flexes her talents in a show that will be available on Audible, without the physical dimension.`\
 https://nytimes.com/2024/05/19/theater/nobody-cares-laura-benanti-audible.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/05/19/world/iran-president-helicopter-crash/irans-
 **Congolese Army Says It Foiled a Coup Involving Americans**\
 `The U.S. ambassador said she was “very concerned” that Americans may have participated in what officials of the Democratic Republic of Congo called a failed coup attempt early Sunday.`\
 https://nytimes.com/2024/05/19/world/africa/congo-coup-americans.html
-
-**Disneyland Character Workers at California Park Vote to Unionize**\
-`The vote determined whether 1,700 workers who play characters such as Mickey and Minnie Mouse and who dance at parades could join the union representing other workers at the park in Anaheim, Calif.`\
-https://nytimes.com/2024/05/19/business/disneyland-actors-unionize.html
 
