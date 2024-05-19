@@ -1,5 +1,5 @@
 **Bruce Nordstrom, Who Helped Lead His Family’s Retail Empire, Dies at 90**\
-`Though he was the company’s president, he opted for joint leadership with family members as they turned a string of shoe stores into an international fashion brand.`\
+`Though he was the company’s president, he opted for joint leadership with family members as they made Nordstrom, starting as a string of shoe stores, into an international fashion brand.`\
 https://nytimes.com/2024/05/19/business/bruce-nordstrom-dead.html
 
 **Hochul Visits an Ancestral Home, 3,000 Miles From the Governor’s Mansion**\
