@@ -1,3 +1,7 @@
+**Other graduation ceremonies where protests occurred are happening today.**\
+`By Anna Betts`\
+https://nytimes.com/live/2024/05/19/us/biden-morehouse-speech/other-graduation-ceremonies-where-protests-occurred-are-happening-today
+
 **Barack Obama spoke at Morehouse’s commencement 11 years ago.**\
 `By Alan Blinder`\
 https://nytimes.com/live/2024/05/19/us/biden-morehouse-speech/barack-obama-spoke-at-morehouses-commencement-11-years-ago
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/19/crosswords/wordle-review.html
 **Smellmaxxing, Explained**\
 `Some teenage boys have grown obsessed with designer fragrances that cost hundreds of dollars.`\
 https://nytimes.com/2024/05/19/briefing/smellmaxxing-fragrances-teenagers.html
-
-**A Boxing Victory Offers Hope to War-Weary Ukrainians**\
-`The Ukrainian boxer Oleksandr Usyk became the world’s undisputed heavyweight champion on Sunday. The victory has lifted morale in a country struggling to contain Russian advances on the battlefield.`\
-https://nytimes.com/2024/05/19/world/europe/oleksandr-usyk-tyson-fury.html
 
