@@ -1,3 +1,7 @@
+**At Chaotic Rally in Brooklyn, Police Violently Confront Protesters**\
+`Officers were filmed punching several people at a pro-Palestinian demonstration in Bay Ridge.`\
+https://nytimes.com/2024/05/19/nyregion/nypd-protest-brooklyn-gaza.html
+
 **Jürgen Klopp and Liverpool, a Love Affair in Street Art and Silverware**\
 `A coach’s soccer legacy is often reduced to titles and trophies. In Liverpool, a beloved manager will endure in murals, music and shared memories.`\
 https://nytimes.com/2024/05/19/world/europe/jurgen-klopp-liverpool.html
