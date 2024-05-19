@@ -1,3 +1,7 @@
+**Biden has been working to shore up support among Black voters.**\
+`By Erica L. Green`\
+https://nytimes.com/live/2024/05/19/us/biden-morehouse-speech/biden-has-been-working-to-shore-up-support-among-black-voters
+
 **Other graduation ceremonies where protests occurred are happening today.**\
 `By Anna Betts`\
 https://nytimes.com/live/2024/05/19/us/biden-morehouse-speech/other-graduation-ceremonies-where-protests-occurred-are-happening-today
