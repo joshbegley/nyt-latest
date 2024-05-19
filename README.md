@@ -1,3 +1,7 @@
+**At Chaotic Rally in Brooklyn, Police Violently Confront Protesters**\
+`Officers were filmed punching several people at a pro-Palestinian demonstration in Bay Ridge.`\
+https://nytimes.com/2024/05/19/nyregion/nypd-protest-brooklyn-gaza.html
+
 **Jürgen Klopp and Liverpool, a Love Affair in Street Art and Silverware**\
 `A coach’s soccer legacy is often reduced to titles and trophies. In Liverpool, a beloved manager will endure in murals, music and shared memories.`\
 https://nytimes.com/2024/05/19/world/europe/jurgen-klopp-liverpool.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/18/us/politics/us-iran-talks-oman.html
 **In California, Kristi Noem looks to move past weeks of backlash and regain favor with Trump.**\
 `By Jonathan Wolfe`\
 https://nytimes.com/live/2024/05/18/us/biden-trump-election-news/in-california-kristi-noem-looks-to-move-past-weeks-of-backlash-and-regain-favor-with-trump
-
-**Bud Anderson, Last of World War II’s ‘Triple Ace’ Pilots, Dies at 102**\
-`He single-handedly shot down 16 enemy planes in dogfights over Europe. After the war, he became one of America’s top test pilots during the “Right Stuff” era.`\
-https://nytimes.com/2024/05/18/us/bud-anderson-dead.html
 
