@@ -1,3 +1,7 @@
+**Congolese Army Says It Foiled a Coup Involving Americans**\
+`The U.S. ambassador said she was “very concerned” that Americans may have participated in what officials of the Democratic Republic of Congo called a failed coup attempt early Sunday.`\
+https://nytimes.com/2024/05/19/world/africa/congo-coup-americans.html
+
 **19pol-swiper-new**\
 `Election Updates: Rubio, a Trump V.P. Contender, won’t commit to accepting 2024 election results.`\
 https://nytimes.com/live/2024/05/19/us/election-news
