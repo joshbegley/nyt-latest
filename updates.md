@@ -1,3 +1,7 @@
+**Sean Combs Apologizes After Video Shows Him Assaulting Cassie**\
+`After footage surfaced of Mr. Combs striking, kicking and dragging Cassie surfaced, he apologized on social media, saying that “my behavior on that video is inexcusable.”`\
+https://nytimes.com/2024/05/19/arts/music/sean-combs-cassie-assault-video-response.html
+
 **Review: The Tragic Story of ‘An American Soldier’ Comes Home**\
 `An opera about Danny Chen, an Army private who died by suicide after experiencing racist hazing while serving, was performed in New York, his hometown.`\
 https://nytimes.com/2024/05/19/arts/music/american-soldier-opera-danny-chen.html
