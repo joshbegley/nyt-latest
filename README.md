@@ -1,3 +1,7 @@
+**Monday Briefing: Iran’s President Is Missing After a Helicopter Crash**\
+`Also, Russian troops moved closer to Kharkiv.`\
+https://nytimes.com/2024/05/19/world/asia/iran-raisi-search-kharkiv-asia.html
+
 **As U.S. Waits on Raisi’s Fate, Several Confrontations Are Brewing**\
 `Iran and the United States are groping their way out of several simultaneous crises, including over the Islamic Republic’s nuclear program.`\
 https://nytimes.com/2024/05/19/world/middleeast/us-iran-raisi-crash.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/19/business/disneyland-actors-unionize.html
 **U.S. and Niger Announce Withdrawal of American Personnel by September**\
 `The announcement spells out the terms of a pullout that the Biden administration unveiled last month and comes after a military junta ousted Niger’s president last July.`\
 https://nytimes.com/2024/05/19/us/politics/us-niger-military-withdrawal.html
-
-**Biden Calls on Morehouse College Graduates to Defend Democracy**\
-`In a commencement speech at Morehouse, the historically Black men’s college in Atlanta, President Biden condemned white supremacy and “extremist forces aligned against the meaning and message of Morehouse.”`\
-https://nytimes.com/video/us/politics/100000009476632/biden-morehouse-commencement-speech.html
 
