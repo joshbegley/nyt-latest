@@ -1,3 +1,19 @@
+**Bring Back the Tear-Jerker!**\
+`Comedies make you laugh. Thrillers make you cheer. Some Hollywood films used to make you sob your eyes out. We need those movies again.`\
+https://nytimes.com/2024/05/19/opinion/tear-jerker-movies-crying.html
+
+**The Trump Trial Is Disturbing on So Many Levels**\
+`A terrible man is in the cross hairs of American justice, but immorality alone doesn’t make him a criminal.`\
+https://nytimes.com/2024/05/19/opinion/trump-trial-election-appeal.html
+
+**Seven Theories for Why Biden Is Losing (and What He Should Do About It)**\
+`It’s not the poll numbers that worry me, exactly. It’s the denial of what’s behind them.`\
+https://nytimes.com/2024/05/19/opinion/biden-trump-polls-debates.html
+
+**The Sunday Read: ‘Why Did This Guy Put a Song About Me on Spotify?’**\
+`The answer involves a remarkable — and lucrative, and ridiculous — scheme to game the way we find music today.`\
+https://nytimes.com/2024/05/19/podcasts/the-daily/brett-martin-spotify.html
+
 **Gazans Flee Jabaliya as Israel’s Military Launches New Offensive**\
 `At least 64,000 people were displaced from Jabaliya and a neighboring town in the past week, according to the main U.N. agency aiding Palestinians.`\
 https://nytimes.com/2024/05/19/world/middleeast/gaza-jabaliya-israel-military.html
@@ -17,20 +33,4 @@ https://nytimes.com/2024/05/19/your-money/home-equity-retirement.html
 **5 Takeaways From the Spring Art Auctions**\
 `Results from a week of sales tell a story of a masterpiece market come down to earth, the cooling of young art stars — and a hack starting to come to light.`\
 https://nytimes.com/2024/05/19/arts/design/auction-christies-sothebys-phillips-results.html
-
-**The Technocrat Who’s Taking Control of Putin’s War Effort**\
-`Andrei R. Belousov, an intellectual with no military experience, is known for backing a state-dominated economy.`\
-https://nytimes.com/2024/05/19/world/europe/belousov-russia-economy-defense-ministry.html
-
-**After a Wrenching Best Seller, an Author Takes Up Her Dream Project**\
-`An assault led to Chanel Miller’s book, “Know My Name.” But she had wanted to write children’s books since she was a child. She’s done that now with “Magnolia Wu Unfolds It All.”`\
-https://nytimes.com/2024/05/19/books/chanel-miller-magnolia-wu-known-my-name.html
-
-**Renting Forever and Trying to Create a Strong Financial Future**\
-`Either by choice or because they are priced out of the market, many people plan to never stop renting. Building wealth without home equity requires a different mind-set.`\
-https://nytimes.com/2024/05/19/business/renting-forever-investing.html
-
-**Let’s Not Do Another Civil War if We Can Help It, OK?**\
-`Three new books show us why the United States should do everything it can to nip the possibility in the bud.`\
-https://nytimes.com/2024/05/19/books/review/new-civil-war-histories.html
 
