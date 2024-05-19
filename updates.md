@@ -1,3 +1,7 @@
+**The crash comes amid concerns about the risk of a wider conflict in the Middle East.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/05/19/world/iran-president-helicopter-crash/the-crash-comes-amid-concerns-about-the-risk-of-a-wider-conflict-in-the-middle-east
+
 **A Student Protester Facing Disciplinary Action Has ‘No Regrets’**\
 `As commencement season continues, Youssef Hasweh, a college senior in Chicago, is one of many student protesters around the country who face disciplinary action. With less than two weeks until graduation, his academic future remains in limbo.`\
 https://nytimes.com/video/us/100000009465410/university-chicago-palestinian-protest-student-graduation.html

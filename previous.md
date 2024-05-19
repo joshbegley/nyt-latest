@@ -1,3 +1,7 @@
+**The crash comes amid concerns about the risk of a wider conflict in the Middle East.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/05/19/world/iran-president-helicopter-crash/the-crash-comes-amid-concerns-about-the-risk-of-a-wider-conflict-in-the-middle-east
+
 **A Student Protester Facing Disciplinary Action Has ‘No Regrets’**\
 `As commencement season continues, Youssef Hasweh, a college senior in Chicago, is one of many student protesters around the country who face disciplinary action. With less than two weeks until graduation, his academic future remains in limbo.`\
 https://nytimes.com/video/us/100000009465410/university-chicago-palestinian-protest-student-graduation.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/19/dining/korean-fried-chicken-to-save-your-sunday.h
 **Here are the latest developments.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/05/19/world/iran-president-helicopter-crash/here-are-the-latest-developments
-
-**Morehouse parents to their graduating seniors considering protests: Don’t.**\
-`By Maya King`\
-https://nytimes.com/live/2024/05/19/us/biden-morehouse-speech/morehouse-parents-to-their-graduating-seniors-considering-protests-dont
 
