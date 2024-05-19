@@ -1,3 +1,11 @@
+**Biden asks Black voters to align with him in defending democracy.**\
+`By Maya King`\
+https://nytimes.com/live/2024/05/19/us/biden-morehouse-speech/biden-asks-black-voters-to-align-with-him-in-defending-democracy
+
+**Sean Combs Apologizes After Video Shows Him Assaulting Cassie**\
+`After footage surfaced of Mr. Combs striking, kicking and dragging Cassie, he apologized on social media, saying that “my behavior on that video is inexcusable.”`\
+https://nytimes.com/2024/05/19/arts/music/sean-combs-cassie-assault-video-response.html
+
 **Who Is President Ebrahim Raisi of Iran?**\
 `Mr. Raisi has been seen as the likely successor to Ayatollah Ali Khamenei as supreme leader, the highest political and religious position in the Islamic republic.`\
 https://nytimes.com/2024/05/19/world/middleeast/iran-president-ebrahim-raisi.html

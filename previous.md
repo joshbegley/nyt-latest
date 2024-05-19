@@ -1,9 +1,13 @@
+**Biden asks Black voters to align with him in defending democracy.**\
+`By Maya King`\
+https://nytimes.com/live/2024/05/19/us/biden-morehouse-speech/biden-asks-black-voters-to-align-with-him-in-defending-democracy
+
 **Who Is President Ebrahim Raisi of Iran?**\
 `Mr. Raisi has been seen as the likely successor to Ayatollah Ali Khamenei as supreme leader, the highest political and religious position in the Islamic republic.`\
 https://nytimes.com/2024/05/19/world/middleeast/iran-president-ebrahim-raisi.html
 
 **Sean Combs Apologizes After Video Shows Him Assaulting Cassie**\
-`After footage surfaced of Mr. Combs striking, kicking and dragging Cassie surfaced, he apologized on social media, saying that “my behavior on that video is inexcusable.”`\
+`After footage surfaced of Mr. Combs striking, kicking and dragging Cassie, he apologized on social media, saying that “my behavior on that video is inexcusable.”`\
 https://nytimes.com/2024/05/19/arts/music/sean-combs-cassie-assault-video-response.html
 
 **Review: The Tragic Story of ‘An American Soldier’ Comes Home**\
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/05/19/us/biden-morehouse-speech/morehouse-parents-
 **Netanyahu may face little risk from a rival’s political ultimatum, analysts say.**\
 `Top leaders are challenging Prime Minister Benjamin Netanyahu to come up with a decisive strategy for Gaza, but analysts say his rivals have not presented clear visions of their own.`\
 https://nytimes.com/live/2024/05/19/world/israel-gaza-war-hamas-rafah/netanyahu-may-face-little-risk-from-a-rivals-political-ultimatum-analysts-say
-
-**Helicopter Carrying Iran’s President Has Crashed, State Media Reports**\
-`Rescuers are trying to locate the helicopter on which President Ebrahim Raisi and Foreign Minister Hossein Amir Abdollahian were traveling, state media reported. Their status is unknown.`\
-https://nytimes.com/2024/05/19/world/middleeast/iran-president-helicopter-crash.html
 
