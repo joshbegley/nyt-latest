@@ -1,4 +1,8 @@
 **Critics Fault ‘Aggressive’ N.Y.P.D. Response to Pro-Palestinian Rally**\
+`Officers were filmed punching three demonstrators at the protest in Bay Ridge, Brooklyn. The police said protesters were blocking the streets.`\
+https://nytimes.com/2024/05/19/nyregion/brooklyn-protest-palestinian-police.html
+
+**Critics Fault ‘Aggressive’ N.Y.P.D. Response to Pro-Palestinian Rally**\
 `Officers were filmed punching two demonstrators at the protest in Bay Ridge, Brooklyn. The police said protesters were blocking the streets.`\
 https://nytimes.com/2024/05/19/nyregion/brooklyn-protest-palestinian-police.html
 
