@@ -1,3 +1,11 @@
+**Obesity, Weight-Loss Drugs and Ultraprocessed Foods**\
+`Readers discuss a guest essay about Ozempic. Also: Donald Trump as husband; the Republican Party and Latino voters; animal-to-human transplants.`\
+https://nytimes.com/2024/05/19/opinion/obesity-weight-loss-drugs-ozempic.html
+
+**Korean Fried Chicken to Save Your Sunday**\
+`Serve with beer so cold it’s flecked with ice.`\
+https://nytimes.com/2024/05/19/dining/korean-fried-chicken-to-save-your-sunday.html
+
 **Here are the latest developments.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/05/19/world/iran-president-helicopter-crash/here-are-the-latest-developments
