@@ -1,3 +1,7 @@
+**Bruce Nordstrom, Who Helped Lead His Family’s Retail Empire, Dies at 90**\
+`Though he was the company’s president, he opted for joint leadership with family members as they turned a string of shoe stores into an international fashion brand.`\
+https://nytimes.com/2024/05/19/business/bruce-nordstrom-dead.html
+
 **Hochul Visits an Ancestral Home, 3,000 Miles From the Governor’s Mansion**\
 `After meeting the pope and the mayors of Rome, London and Dublin, Gov. Kathy Hochul of New York paused to reconnect with her past.`\
 https://nytimes.com/2024/05/19/nyregion/hochul-ireland.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/19/world/middleeast/us-iran-raisi-crash.html
 **Dolores Rosedale, Sidekick on ‘Beat the Clock,’ Dies at 95**\
 `The model and actress, who went by Roxanne, had a modest role on the game show, appeared on numerous magazine covers and inspired the creation of a doll.`\
 https://nytimes.com/2024/05/19/arts/television/dolores-rosedale-dead.html
-
-**U.S. and Europe Move Closer to Using Russian Assets to Help Ukraine**\
-`Finance ministers from the G7 nations are hoping to finalize a plan ahead of the group’s leaders meeting next month.`\
-https://nytimes.com/2024/05/19/us/politics/russian-assets-help-ukraine.html
 
