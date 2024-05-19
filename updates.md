@@ -1,3 +1,15 @@
+**Netanyahu may face little risk from a rival’s political ultimatum, analysts say.**\
+`Top leaders are challenging Prime Minister Benjamin Netanyahu to come up with a decisive strategy for Gaza, but analysts say his rivals have not presented clear visions of their own.`\
+https://nytimes.com/live/2024/05/19/world/israel-gaza-war-hamas-rafah/netanyahu-may-face-little-risk-from-a-rivals-political-ultimatum-analysts-say
+
+**Helicopter Carrying Iran’s President Has Crashed, State Media Reports**\
+`Rescuers are trying to locate the helicopter on which President Ebrahim Raisi and Foreign Minister Hossein Amir Abdollahian were traveling, state media reported. Their status is unknown.`\
+https://nytimes.com/2024/05/19/world/middleeast/iran-president-helicopter-crash.html
+
+**Russia and Ukraine Engage in Dueling Air Assaults Behind the Front Lines**\
+`Both sides have been looking for ways to inflict damage beyond the battlefield, targeting military logistics hubs and urban centers.`\
+https://nytimes.com/2024/05/19/world/europe/russia-ukraine-air-assaults.html
+
 **Biden has been working to shore up support among Black voters.**\
 `By Erica L. Green`\
 https://nytimes.com/live/2024/05/19/us/biden-morehouse-speech/biden-has-been-working-to-shore-up-support-among-black-voters
