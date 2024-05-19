@@ -1,3 +1,7 @@
+**Judge Reopens Sentencing Hearing for Man Who Attacked Pelosi’s Husband**\
+`The court said it made a mistake by not asking David DePape if he had anything to say at his sentencing hearing. The parties will be back in court on May 28.`\
+https://nytimes.com/2024/05/19/us/sentencing-hearing-pelosi-husband-attack-depape.html
+
 **63 Years Later, First Black Man Trained as Astronaut Goes to Space**\
 `Edward Dwight was among the first pilots that the United States was training to send to space in 1961, but he was passed over. On Sunday, he finally made it on a Blue Origin flight.`\
 https://nytimes.com/2024/05/19/science/space/ed-dwight-black-astronaut-space-flight-blue-origin.html

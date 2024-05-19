@@ -1,3 +1,7 @@
+**Toxic Political Culture Has Even Some Slovaks Calling Country ‘a Black Hole.’**\
+`Slovakia has long been dogged by criticism that it is prone to authoritarianism, but a frenzy of blame since an assassination attempt has heightened such concerns.`\
+https://nytimes.com/2024/05/19/world/europe/slovakia-politics-black-hole.html
+
 **Judge Reopens Sentencing Hearing for Man Who Attacked Pelosi’s Husband**\
 `The court said it made a mistake by not asking David DePape if he had anything to say at his sentencing hearing. The parties will be back in court on May 28.`\
 https://nytimes.com/2024/05/19/us/sentencing-hearing-pelosi-husband-attack-depape.html
@@ -19,7 +23,7 @@ https://nytimes.com/video/us/100000009465410/university-chicago-palestinian-prot
 https://nytimes.com/live/2024/05/19/us/biden-morehouse-speech/biden-asks-black-voters-to-align-with-him-in-defending-democracy
 
 **Who Is President Ebrahim Raisi of Iran?**\
-`Mr. Raisi has been seen as the likely successor to Ayatollah Ali Khamenei as supreme leader, the highest political and religious position in the Islamic republic.`\
+`Mr. Raisi has been seen as a possible successor to Ayatollah Ali Khamenei as supreme leader, the highest political and religious position in the Islamic republic.`\
 https://nytimes.com/2024/05/19/world/middleeast/iran-president-ebrahim-raisi.html
 
 **Sean Combs Apologizes After Video Shows Him Assaulting Cassie**\
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/19/arts/music/sean-combs-diddy-cassie-assault-video-
 **Review: The Tragic Story of ‘An American Soldier’ Comes Home**\
 `An opera about Danny Chen, an Army private who died by suicide after experiencing racist hazing while serving, was performed in New York, his hometown.`\
 https://nytimes.com/2024/05/19/arts/music/american-soldier-opera-danny-chen.html
-
-**Obesity, Weight-Loss Drugs and Ultraprocessed Foods**\
-`Readers discuss a guest essay about Ozempic. Also: Donald Trump as husband; the Republican Party and Latino voters; animal-to-human transplants.`\
-https://nytimes.com/2024/05/19/opinion/obesity-weight-loss-drugs-ozempic.html
 
