@@ -1,3 +1,7 @@
+**Jürgen Klopp and Liverpool, a Love Affair in Street Art and Silverware**\
+`A coach’s soccer legacy is often reduced to titles and trophies. In Liverpool, a beloved manager will endure in murals, music and shared memories.`\
+https://nytimes.com/2024/05/19/world/europe/jurgen-klopp-liverpool.html
+
 **Are Those Mimes Spying on Us? In Pakistan, It’s Not a Strange Question.**\
 `Pakistanis suspect the national intelligence agencies of being behind practically everything — even street performers working for tips in Islamabad.`\
 https://nytimes.com/2024/05/19/world/asia/pakistan-islamabad-golden-men.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/05/18/us/biden-trump-election-news/in-california-k
 **Bud Anderson, Last of World War II’s ‘Triple Ace’ Pilots, Dies at 102**\
 `He single-handedly shot down 16 enemy planes in dogfights over Europe. After the war, he became one of America’s top test pilots during the “Right Stuff” era.`\
 https://nytimes.com/2024/05/18/us/bud-anderson-dead.html
-
-**Israel’s Wartime Government Frays as Frustration with Netanyahu Grows**\
-`Benny Gantz, a centrist member of leadership, presented the prime minister with an ultimatum that demanded a plan for the future of Israel’s war.`\
-https://nytimes.com/2024/05/18/world/middleeast/israel-gaza-war-netanyahu-gantz.html
 
