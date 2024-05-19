@@ -1,3 +1,7 @@
+**Kehinde Wiley Denies Accusation of Sexual Assault by Artist**\
+`After Joseph Awuah-Darko accused Mr. Wiley of sexually assaulting him in Ghana, Mr. Wiley denied the claims, calling them “not true and an affront to all victims of sexual abuse.”`\
+https://nytimes.com/2024/05/19/arts/design/kehinde-wiley-denies-sexual-assault-accusation.html
+
 **Purple Pop**\
 `Jack Scherban makes his New York Times debut.`\
 https://nytimes.com/2024/05/19/crosswords/daily-puzzle-2024-05-20.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/19/us/politics/russian-assets-help-ukraine.html
 **‘We Can’t Sleep’: Houstonians Still Without Power Struggle to Stay Cool**\
 `As stifling heat settled over the city, the local electricity provider said most service would return by late Sunday. But hard-hit areas could remain dark for days longer.`\
 https://nytimes.com/2024/05/19/us/houston-power-outages-texas-storm.html
-
-**Iran is confronting a volatile world, at home and abroad.**\
-`By Vivian Nereim`\
-https://nytimes.com/live/2024/05/19/world/iran-president-helicopter-crash/irans-future-was-already-uncertain-before-the-crash-now-its-even-murkier
 
