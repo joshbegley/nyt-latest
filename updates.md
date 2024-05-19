@@ -1,3 +1,7 @@
+**Morehouse parents to their graduating seniors considering protests: Don’t.**\
+`By Maya King`\
+https://nytimes.com/live/2024/05/19/us/biden-morehouse-speech/morehouse-parents-to-their-graduating-seniors-considering-protests-dont
+
 **Netanyahu may face little risk from a rival’s political ultimatum, analysts say.**\
 `Top leaders are challenging Prime Minister Benjamin Netanyahu to come up with a decisive strategy for Gaza, but analysts say his rivals have not presented clear visions of their own.`\
 https://nytimes.com/live/2024/05/19/world/israel-gaza-war-hamas-rafah/netanyahu-may-face-little-risk-from-a-rivals-political-ultimatum-analysts-say
