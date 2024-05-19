@@ -1,3 +1,7 @@
+**As U.S. Waits on Raisi’s Fate, Several Confrontations Are Brewing**\
+`Iran and the United States are groping their way out of several simultaneous crises, including over the Islamic Republic’s nuclear program.`\
+https://nytimes.com/2024/05/19/world/middleeast/us-iran-raisi-crash.html
+
 **Iran is confronting a volatile world, at home and abroad.**\
 `By Vivian Nereim`\
 https://nytimes.com/live/2024/05/19/world/iran-president-helicopter-crash/irans-future-was-already-uncertain-before-the-crash-now-its-even-murkier
