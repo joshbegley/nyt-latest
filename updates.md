@@ -1,3 +1,7 @@
+**Other graduation ceremonies where protests occurred are happening today.**\
+`By Anna Betts`\
+https://nytimes.com/live/2024/05/19/us/biden-morehouse-speech/other-graduation-ceremonies-where-protests-occurred-are-happening-today
+
 **Barack Obama spoke at Morehouse’s commencement 11 years ago.**\
 `By Alan Blinder`\
 https://nytimes.com/live/2024/05/19/us/biden-morehouse-speech/barack-obama-spoke-at-morehouses-commencement-11-years-ago
