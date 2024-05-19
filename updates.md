@@ -1,3 +1,7 @@
+**Review: The Tragic Story of ‘An American Soldier’ Comes Home**\
+`An opera about Danny Chen, an Army private who died by suicide after experiencing racist hazing while serving, was performed in New York, his hometown.`\
+https://nytimes.com/2024/05/19/arts/music/american-soldier-opera-danny-chen.html
+
 **Obesity, Weight-Loss Drugs and Ultraprocessed Foods**\
 `Readers discuss a guest essay about Ozempic. Also: Donald Trump as husband; the Republican Party and Latino voters; animal-to-human transplants.`\
 https://nytimes.com/2024/05/19/opinion/obesity-weight-loss-drugs-ozempic.html
