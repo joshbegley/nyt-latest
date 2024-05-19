@@ -1,3 +1,7 @@
+**A Boxing Victory Offers Hope to War-Weary Ukrainians**\
+`The Ukrainian boxer Oleksandr Usyk became the world’s undisputed heavyweight champion on Sunday. The victory has lifted morale in a country struggling to contain Russian advances on the battlefield.`\
+https://nytimes.com/2024/05/19/world/europe/oleksandr-usyk-tyson-fury.html
+
 **Bring Back the Tear-Jerker!**\
 `Comedies make you laugh. Thrillers make you cheer. Some Hollywood films used to make you sob your eyes out. We need those movies again.`\
 https://nytimes.com/2024/05/19/opinion/tear-jerker-movies-crying.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/19/us/politics/boden-morehouse-commencement.html
 **The High-Class Problem That Comes With Home Equity**\
 `You may feel richer as you pay your mortgage down and home values go up. Using that equity is another matter entirely.`\
 https://nytimes.com/2024/05/19/your-money/home-equity-retirement.html
-
-**5 Takeaways From the Spring Art Auctions**\
-`Results from a week of sales tell a story of a masterpiece market come down to earth, the cooling of young art stars — and a hack starting to come to light.`\
-https://nytimes.com/2024/05/19/arts/design/auction-christies-sothebys-phillips-results.html
 

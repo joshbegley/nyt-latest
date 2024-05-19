@@ -1,3 +1,7 @@
+**A Boxing Victory Offers Hope to War-Weary Ukrainians**\
+`The Ukrainian boxer Oleksandr Usyk became the world’s undisputed heavyweight champion on Sunday. The victory has lifted morale in a country struggling to contain Russian advances on the battlefield.`\
+https://nytimes.com/2024/05/19/world/europe/oleksandr-usyk-tyson-fury.html
+
 **Bring Back the Tear-Jerker!**\
 `Comedies make you laugh. Thrillers make you cheer. Some Hollywood films used to make you sob your eyes out. We need those movies again.`\
 https://nytimes.com/2024/05/19/opinion/tear-jerker-movies-crying.html
