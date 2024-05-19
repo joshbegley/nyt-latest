@@ -1,3 +1,11 @@
+**Disneyland Character Workers at California Park Vote to Unionize**\
+`The vote determined whether 1,700 workers who play characters such as Mickey and Minnie Mouse and who dance at parades could join the union representing other workers at the park in Anaheim, Calif.`\
+https://nytimes.com/2024/05/19/business/disneyland-actors-unionize.html
+
+**U.S. and Niger Announce Withdrawal of American Personnel by September**\
+`The announcement spells out the terms of a pullout that the Biden administration unveiled last month and comes after a military junta ousted Niger’s president last July.`\
+https://nytimes.com/2024/05/19/us/politics/us-niger-military-withdrawal.html
+
 **Biden Calls on Morehouse College Graduates to Defend Democracy**\
 `In a commencement speech at Morehouse, the historically Black men’s college in Atlanta, President Biden condemned white supremacy and “extremist forces aligned against the meaning and message of Morehouse.”`\
 https://nytimes.com/video/us/politics/100000009476632/biden-morehouse-commencement-speech.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/19/us/sentencing-hearing-pelosi-husband-attack-depap
 **63 Years Later, First Black Man Trained as Astronaut Goes to Space**\
 `Edward Dwight was among the first pilots that the United States was training to send to space in 1961, but he was passed over. On Sunday, he finally made it on a Blue Origin flight.`\
 https://nytimes.com/2024/05/19/science/space/ed-dwight-black-astronaut-space-flight-blue-origin.html
-
-**The crash comes amid concerns about the risk of a wider conflict in the Middle East.**\
-`By The New York Times`\
-https://nytimes.com/live/2024/05/19/world/iran-president-helicopter-crash/the-crash-comes-amid-concerns-about-the-risk-of-a-wider-conflict-in-the-middle-east
-
-**A Student Protester Facing Disciplinary Action Has ‘No Regrets’**\
-`As commencement season continues, Youssef Hasweh, a college senior in Chicago, is one of many student protesters around the country who face disciplinary action. With less than two weeks until graduation, his academic future remains in limbo.`\
-https://nytimes.com/video/us/100000009465410/university-chicago-palestinian-protest-student-graduation.html
 
