@@ -1,3 +1,7 @@
+**Rubio, a Trump V.P. Contender, Won’t Commit to Certifying 2024 Results**\
+`In an NBC interview, Senator Marco Rubio also repeated false claims of electoral fraud in the 2020 election.`\
+https://nytimes.com/2024/05/19/us/rubio-trump-vp-election-results.html
+
 **Toxic Political Culture Has Even Some Slovaks Calling Country ‘a Black Hole.’**\
 `Slovakia has long been dogged by criticism that it is prone to authoritarianism, but a frenzy of blame since an assassination attempt has heightened such concerns.`\
 https://nytimes.com/2024/05/19/world/europe/slovakia-politics-black-hole.html

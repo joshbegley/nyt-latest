@@ -1,3 +1,7 @@
+**Rubio, a Trump V.P. Contender, Won’t Commit to Certifying 2024 Results**\
+`In an NBC interview, Senator Marco Rubio also repeated false claims of electoral fraud in the 2020 election.`\
+https://nytimes.com/2024/05/19/us/rubio-trump-vp-election-results.html
+
 **Toxic Political Culture Has Even Some Slovaks Calling Country ‘a Black Hole.’**\
 `Slovakia has long been dogged by criticism that it is prone to authoritarianism, but a frenzy of blame since an assassination attempt has heightened such concerns.`\
 https://nytimes.com/2024/05/19/world/europe/slovakia-politics-black-hole.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/19/world/middleeast/iran-president-ebrahim-raisi.htm
 **Sean Combs Apologizes After Video Shows Him Assaulting Cassie**\
 `After footage surfaced of Mr. Combs striking, kicking and dragging Cassie, he apologized on social media, saying that “my behavior on that video is inexcusable.”`\
 https://nytimes.com/2024/05/19/arts/music/sean-combs-diddy-cassie-assault-video-response.html
-
-**Review: The Tragic Story of ‘An American Soldier’ Comes Home**\
-`An opera about Danny Chen, an Army private who died by suicide after experiencing racist hazing while serving, was performed in New York, his hometown.`\
-https://nytimes.com/2024/05/19/arts/music/american-soldier-opera-danny-chen.html
 
