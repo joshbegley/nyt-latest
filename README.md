@@ -1,3 +1,7 @@
+**Hochul Visits an Ancestral Home, 3,000 Miles From the Governor’s Mansion**\
+`After meeting the pope and the mayors of Rome, London and Dublin, Gov. Kathy Hochul of New York paused to reconnect with her past.`\
+https://nytimes.com/2024/05/19/nyregion/hochul-ireland.html
+
 **Kehinde Wiley Denies Accusation of Sexual Assault by Artist**\
 `After Joseph Awuah-Darko accused Mr. Wiley of sexually assaulting him in Ghana, Mr. Wiley denied the claims, calling them “not true and an affront to all victims of sexual abuse.”`\
 https://nytimes.com/2024/05/19/arts/design/kehinde-wiley-denies-sexual-assault-accusation.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/19/arts/television/dolores-rosedale-dead.html
 **U.S. and Europe Move Closer to Using Russian Assets to Help Ukraine**\
 `Finance ministers from the G7 nations are hoping to finalize a plan ahead of the group’s leaders meeting next month.`\
 https://nytimes.com/2024/05/19/us/politics/russian-assets-help-ukraine.html
-
-**‘We Can’t Sleep’: Houstonians Still Without Power Struggle to Stay Cool**\
-`As stifling heat settled over the city, the local electricity provider said most service would return by late Sunday. But hard-hit areas could remain dark for days longer.`\
-https://nytimes.com/2024/05/19/us/houston-power-outages-texas-storm.html
 
