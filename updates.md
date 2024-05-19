@@ -1,3 +1,7 @@
+**Jürgen Klopp and Liverpool, a Love Affair in Street Art and Silverware**\
+`A coach’s soccer legacy is often reduced to titles and trophies. In Liverpool, a beloved manager will endure in murals, music and shared memories.`\
+https://nytimes.com/2024/05/19/world/europe/jurgen-klopp-liverpool.html
+
 **Are Those Mimes Spying on Us? In Pakistan, It’s Not a Strange Question.**\
 `Pakistanis suspect the national intelligence agencies of being behind practically everything — even street performers working for tips in Islamabad.`\
 https://nytimes.com/2024/05/19/world/asia/pakistan-islamabad-golden-men.html
