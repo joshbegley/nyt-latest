@@ -1,3 +1,11 @@
+**Toxic Political Culture Has Even Some Slovaks Calling Country ‘a Black Hole.’**\
+`Slovakia has long been dogged by criticism that it is prone to authoritarianism, but a frenzy of blame since an assassination attempt has heightened such concerns.`\
+https://nytimes.com/2024/05/19/world/europe/slovakia-politics-black-hole.html
+
+**Who Is President Ebrahim Raisi of Iran?**\
+`Mr. Raisi has been seen as a possible successor to Ayatollah Ali Khamenei as supreme leader, the highest political and religious position in the Islamic republic.`\
+https://nytimes.com/2024/05/19/world/middleeast/iran-president-ebrahim-raisi.html
+
 **Judge Reopens Sentencing Hearing for Man Who Attacked Pelosi’s Husband**\
 `The court said it made a mistake by not asking David DePape if he had anything to say at his sentencing hearing. The parties will be back in court on May 28.`\
 https://nytimes.com/2024/05/19/us/sentencing-hearing-pelosi-husband-attack-depape.html
