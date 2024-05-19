@@ -1,3 +1,7 @@
+**As U.S. Waits on Raisi’s Fate, Several Confrontations Are Brewing**\
+`Iran and the United States are groping their way out of several simultaneous crises, including over the Islamic Republic’s nuclear program.`\
+https://nytimes.com/2024/05/19/world/middleeast/us-iran-raisi-crash.html
+
 **Dolores Rosedale, Sidekick on ‘Beat the Clock,’ Dies at 95**\
 `The model and actress, who went by Roxanne, had a modest role on the game show, appeared on numerous magazine covers and inspired the creation of a doll.`\
 https://nytimes.com/2024/05/19/arts/television/dolores-rosedale-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/19/us/politics/us-niger-military-withdrawal.html
 **Biden Calls on Morehouse College Graduates to Defend Democracy**\
 `In a commencement speech at Morehouse, the historically Black men’s college in Atlanta, President Biden condemned white supremacy and “extremist forces aligned against the meaning and message of Morehouse.”`\
 https://nytimes.com/video/us/politics/100000009476632/biden-morehouse-commencement-speech.html
-
-**Friends and rivals alike are quick to offer Iran their assistance.**\
-`By Matina Stevis-Gridneff, Vivian Nereim, Anushka Patil and Gulsin Harman`\
-https://nytimes.com/live/2024/05/19/world/iran-president-helicopter-crash/friends-and-rivals-alike-are-quick-to-offer-iran-their-assistance
 
