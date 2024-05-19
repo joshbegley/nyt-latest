@@ -1,3 +1,11 @@
+**Friends and rivals alike are quick to offer Iran their assistance.**\
+`By Matina Stevis-Gridneff, Vivian Nereim and Anushka Patil`\
+https://nytimes.com/live/2024/05/19/world/iran-president-helicopter-crash/friends-and-rivals-alike-are-quick-to-offer-iran-their-assistance
+
+**19pol-swiper-new**\
+`Election Updates: Rubio, a Trump V.P. Contender, won’t commit to certifying 2024 election results.`\
+https://nytimes.com/live/2024/05/19/us/election-news
+
 **Rubio, a Trump V.P. Contender, Won’t Commit to Certifying 2024 Results**\
 `In an NBC interview, Senator Marco Rubio also repeated false claims of electoral fraud in the 2020 election.`\
 https://nytimes.com/2024/05/19/us/rubio-trump-vp-election-results.html
