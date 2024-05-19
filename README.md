@@ -1,7 +1,3 @@
-**19pol-swiper-new**\
-`Election Updates: Rubio, a Trump V.P. Contender, won’t commit to certifying 2024 election results.`\
-https://nytimes.com/live/2024/05/19/us/election-news
-
 **Rubio, a Trump V.P. Contender, Won’t Commit to Certifying 2024 Results**\
 `In an NBC interview, Senator Marco Rubio also repeated false claims of electoral fraud in the 2020 election.`\
 https://nytimes.com/2024/05/19/us/rubio-trump-vp-election-results.html
@@ -33,4 +29,8 @@ https://nytimes.com/live/2024/05/19/us/biden-morehouse-speech/biden-asks-black-v
 **Who Is President Ebrahim Raisi of Iran?**\
 `Mr. Raisi has been seen as a possible successor to Ayatollah Ali Khamenei as supreme leader, the highest political and religious position in the Islamic republic.`\
 https://nytimes.com/2024/05/19/world/middleeast/iran-president-ebrahim-raisi.html
+
+**Sean Combs Apologizes After Video Shows Him Assaulting Cassie**\
+`After footage surfaced of Mr. Combs striking, kicking and dragging Cassie, he apologized on social media, saying that “my behavior on that video is inexcusable.”`\
+https://nytimes.com/2024/05/19/arts/music/sean-combs-diddy-cassie-assault-video-response.html
 
