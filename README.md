@@ -1,3 +1,7 @@
+**Smellmaxxing, Explained**\
+`Some teenage boys have grown obsessed with designer fragrances that cost hundreds of dollars.`\
+https://nytimes.com/2024/05/19/briefing/smellmaxxing-fragrances-teenagers.html
+
 **A Boxing Victory Offers Hope to War-Weary Ukrainians**\
 `The Ukrainian boxer Oleksandr Usyk became the world’s undisputed heavyweight champion on Sunday. The victory has lifted morale in a country struggling to contain Russian advances on the battlefield.`\
 https://nytimes.com/2024/05/19/world/europe/oleksandr-usyk-tyson-fury.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/19/us/dominican-republic-election-abinader-haiti.htm
 **With an Eye to Black Voters, Biden to Address Graduates at Morehouse College**\
 `The president’s appearance at the historically Black college in Atlanta was not welcomed by all on campus, amid dissatisfaction with U.S. support for Israel’s war in Gaza.`\
 https://nytimes.com/2024/05/19/us/politics/boden-morehouse-commencement.html
-
-**The High-Class Problem That Comes With Home Equity**\
-`You may feel richer as you pay your mortgage down and home values go up. Using that equity is another matter entirely.`\
-https://nytimes.com/2024/05/19/your-money/home-equity-retirement.html
 
