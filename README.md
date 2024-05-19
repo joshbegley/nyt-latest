@@ -1,3 +1,15 @@
+**Netanyahu may face little risk from a rival’s political ultimatum, analysts say.**\
+`Top leaders are challenging Prime Minister Benjamin Netanyahu to come up with a decisive strategy for Gaza, but analysts say his rivals have not presented clear visions of their own.`\
+https://nytimes.com/live/2024/05/19/world/israel-gaza-war-hamas-rafah/netanyahu-may-face-little-risk-from-a-rivals-political-ultimatum-analysts-say
+
+**Helicopter Carrying Iran’s President Has Crashed, State Media Reports**\
+`Rescuers are trying to locate the helicopter on which President Ebrahim Raisi and Foreign Minister Hossein Amir Abdollahian were traveling, state media reported. Their status is unknown.`\
+https://nytimes.com/2024/05/19/world/middleeast/iran-president-helicopter-crash.html
+
+**Russia and Ukraine Engage in Dueling Air Assaults Behind the Front Lines**\
+`Both sides have been looking for ways to inflict damage beyond the battlefield, targeting military logistics hubs and urban centers.`\
+https://nytimes.com/2024/05/19/world/europe/russia-ukraine-air-assaults.html
+
 **Biden has been working to shore up support among Black voters.**\
 `By Erica L. Green`\
 https://nytimes.com/live/2024/05/19/us/biden-morehouse-speech/biden-has-been-working-to-shore-up-support-among-black-voters
@@ -21,16 +33,4 @@ https://nytimes.com/live/2024/05/19/us/biden-morehouse-speech/heres-why-antiwar-
 **19biden-morehouse**\
 `Live Updates: Biden to Speak at Morehouse Graduation`\
 https://nytimes.com/live/2024/05/19/us/biden-morehouse-speech
-
-**In Israel, Stefanik denounces Biden and praises Trump.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/05/19/world/israel-gaza-war-hamas-rafah/in-israel-stefanik-denounces-biden-and-praises-trump
-
-**What’s Going On in This Picture? | May 20, 2024**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2024/05/19/learning/whats-going-on-in-this-picture-may-20-2024.html
-
-**Today’s Wordle Review No. 1,065**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/19/crosswords/wordle-review.html
 
