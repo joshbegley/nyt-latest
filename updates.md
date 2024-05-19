@@ -1,3 +1,7 @@
+**Sean Combs Apologizes After Video Shows Him Assaulting Cassie**\
+`After footage surfaced of Mr. Combs striking, kicking and dragging Cassie, he apologized on social media, saying that “my behavior on that video is inexcusable.”`\
+https://nytimes.com/2024/05/19/arts/music/sean-combs-diddy-cassie-assault-video-response.html
+
 **The crash comes amid concerns about the risk of a wider conflict in the Middle East.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/05/19/world/iran-president-helicopter-crash/the-crash-comes-amid-concerns-about-the-risk-of-a-wider-conflict-in-the-middle-east

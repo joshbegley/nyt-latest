@@ -1,3 +1,7 @@
+**63 Years Later, First Black Man Trained as Astronaut Goes to Space**\
+`Edward Dwight was among the first pilots that the United States was training to send to space in 1961, but he was passed over. On Sunday, he finally made it on a Blue Origin flight.`\
+https://nytimes.com/2024/05/19/science/space/ed-dwight-black-astronaut-space-flight-blue-origin.html
+
 **The crash comes amid concerns about the risk of a wider conflict in the Middle East.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/05/19/world/iran-president-helicopter-crash/the-crash-comes-amid-concerns-about-the-risk-of-a-wider-conflict-in-the-middle-east
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/19/opinion/obesity-weight-loss-drugs-ozempic.html
 **Korean Fried Chicken to Save Your Sunday**\
 `Serve with beer so cold it’s flecked with ice.`\
 https://nytimes.com/2024/05/19/dining/korean-fried-chicken-to-save-your-sunday.html
-
-**Here are the latest developments.**\
-`By Farnaz Fassihi`\
-https://nytimes.com/live/2024/05/19/world/iran-president-helicopter-crash/here-are-the-latest-developments
 
