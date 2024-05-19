@@ -1,3 +1,7 @@
+**63 Years Later, First Black Man Trained as Astronaut Goes to Space**\
+`Edward Dwight was among the first pilots that the United States was training to send to space in 1961, but he was passed over. On Sunday, he finally made it on a Blue Origin flight.`\
+https://nytimes.com/2024/05/19/science/space/ed-dwight-black-astronaut-space-flight-blue-origin.html
+
 **Sean Combs Apologizes After Video Shows Him Assaulting Cassie**\
 `After footage surfaced of Mr. Combs striking, kicking and dragging Cassie, he apologized on social media, saying that “my behavior on that video is inexcusable.”`\
 https://nytimes.com/2024/05/19/arts/music/sean-combs-diddy-cassie-assault-video-response.html
