@@ -1,3 +1,11 @@
+**As Trump Trial Nears Its End, the Law May Give Prosecutors an Edge**\
+`The former president’s defense appeared to chip away at Michael Cohen’s credibility, but legal experts said the case is still the prosecution’s to lose.`\
+https://nytimes.com/2024/05/19/nyregion/trump-trial-cohen-testimony.html
+
+**A New Centrism Is Rising in Washington**\
+`Call it neopopulism: a bipartisan attitude that mistrusts the free-market ethos instead of embracing it.`\
+https://nytimes.com/2024/05/19/briefing/a-new-centrism-is-rising-in-washington.html
+
 **‘I Selected a Friday Evening in June to Celebrate With a Barbecue’**\
 `How to cool drinks in a pinch, a keepsake brought back to life and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://nytimes.com/2024/05/19/nyregion/metropolitan-diary.html
