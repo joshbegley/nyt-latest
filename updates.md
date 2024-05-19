@@ -1,4 +1,8 @@
 **Friends and rivals alike are quick to offer Iran their assistance.**\
+`By Matina Stevis-Gridneff, Vivian Nereim, Anushka Patil and Gulsin Harman`\
+https://nytimes.com/live/2024/05/19/world/iran-president-helicopter-crash/friends-and-rivals-alike-are-quick-to-offer-iran-their-assistance
+
+**Friends and rivals alike are quick to offer Iran their assistance.**\
 `By Matina Stevis-Gridneff, Vivian Nereim and Anushka Patil`\
 https://nytimes.com/live/2024/05/19/world/iran-president-helicopter-crash/friends-and-rivals-alike-are-quick-to-offer-iran-their-assistance
 
