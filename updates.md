@@ -1,3 +1,7 @@
+**Monday Briefing: Iran’s President Is Missing After a Helicopter Crash**\
+`Also, Russian troops moved closer to Kharkiv.`\
+https://nytimes.com/2024/05/19/world/asia/iran-raisi-search-kharkiv-asia.html
+
 **As U.S. Waits on Raisi’s Fate, Several Confrontations Are Brewing**\
 `Iran and the United States are groping their way out of several simultaneous crises, including over the Islamic Republic’s nuclear program.`\
 https://nytimes.com/2024/05/19/world/middleeast/us-iran-raisi-crash.html
