@@ -1,3 +1,7 @@
+**Gazans Flee Jabaliya as Israel’s Military Launches New Offensive**\
+`At least 64,000 people were displaced from Jabaliya and a neighboring town in the past week, according to the main U.N. agency aiding Palestinians.`\
+https://nytimes.com/2024/05/19/world/middleeast/gaza-jabaliya-israel-military.html
+
 **How a Crackdown on Haitians Lifted a Dominican Leader’s Re-Election Bid**\
 `President Luis Abinader goes into Sunday’s race as the clear front-runner, bolstered by nativist migration policies, a strong economy and an anticorruption drive.`\
 https://nytimes.com/2024/05/19/us/dominican-republic-election-abinader-haiti.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/19/business/renting-forever-investing.html
 **Let’s Not Do Another Civil War if We Can Help It, OK?**\
 `Three new books show us why the United States should do everything it can to nip the possibility in the bud.`\
 https://nytimes.com/2024/05/19/books/review/new-civil-war-histories.html
-
-**Domination Meets Inspiration in a Consuming Affair Between Artists**\
-`R.O. Kwon’s second novel, “Exhibit,” sees two Korean American women finding pleasure in a bond that knits creative expression and sadomasochism.`\
-https://nytimes.com/2024/05/19/books/review/exhibit-ro-kwon.html
 

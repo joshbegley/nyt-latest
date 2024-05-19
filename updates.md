@@ -1,3 +1,7 @@
+**Gazans Flee Jabaliya as Israel’s Military Launches New Offensive**\
+`At least 64,000 people were displaced from Jabaliya and a neighboring town in the past week, according to the main U.N. agency aiding Palestinians.`\
+https://nytimes.com/2024/05/19/world/middleeast/gaza-jabaliya-israel-military.html
+
 **How a Crackdown on Haitians Lifted a Dominican Leader’s Re-Election Bid**\
 `President Luis Abinader goes into Sunday’s race as the clear front-runner, bolstered by nativist migration policies, a strong economy and an anticorruption drive.`\
 https://nytimes.com/2024/05/19/us/dominican-republic-election-abinader-haiti.html
