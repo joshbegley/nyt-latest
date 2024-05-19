@@ -1,3 +1,7 @@
+**Accepting N.R.A. Endorsement, Trump Pledges to Be Gun Owners’ Ardent Ally**\
+`Addressing the annual meeting of the National Rifle Association, former President Donald J. Trump on Saturday promised to roll back the Biden administration’s gun-control measures if elected.`\
+https://nytimes.com/2024/05/18/us/politics/trump-nra-endorsement-gun-rights.html
+
 **Alice Stewart, a CNN Political Commentator, Dies at 58**\
 `Ms. Stewart had appeared on CNN as a conservative commentator since the 2016 presidential race. A seasoned political strategist, she also had worked for Republican presidential candidates.`\
 https://nytimes.com/2024/05/18/arts/television/alice-stewart-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/18/world/middleeast/israel-gaza-war-netanyahu-gantz.
 **Stefanik to Denounce Biden, and Praise Trump, in Speech to Israel’s Parliament**\
 `The New York congresswoman will become the highest-ranking House Republican to speak before Israel’s Parliament since the Oct. 7 attacks, in a move meant to capitalize on Democratic divisions.`\
 https://nytimes.com/2024/05/18/us/politics/elise-stefanik-israel-biden.html
-
-**Hold Your Doze**\
-`We’ll make sense of Christina Iverson and Katie Hale’s latest diversion, although it helps to have a code.`\
-https://nytimes.com/2024/05/18/crosswords/daily-puzzle-2024-05-19.html
 

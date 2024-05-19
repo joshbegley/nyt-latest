@@ -1,3 +1,7 @@
+**Accepting N.R.A. Endorsement, Trump Pledges to Be Gun Owners’ Ardent Ally**\
+`Addressing the annual meeting of the National Rifle Association, former President Donald J. Trump on Saturday promised to roll back the Biden administration’s gun-control measures if elected.`\
+https://nytimes.com/2024/05/18/us/politics/trump-nra-endorsement-gun-rights.html
+
 **Alice Stewart, a CNN Political Commentator, Dies at 58**\
 `Ms. Stewart had appeared on CNN as a conservative commentator since the 2016 presidential race. A seasoned political strategist, she also had worked for Republican presidential candidates.`\
 https://nytimes.com/2024/05/18/arts/television/alice-stewart-dead.html
