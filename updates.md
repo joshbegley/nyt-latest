@@ -1,3 +1,7 @@
+**What’s Going On in This Picture? | May 20, 2024**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2024/05/19/learning/whats-going-on-in-this-picture-may-20-2024.html
+
 **Today’s Wordle Review No. 1,065**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/05/19/crosswords/wordle-review.html

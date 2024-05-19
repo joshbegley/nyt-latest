@@ -1,3 +1,7 @@
+**What’s Going On in This Picture? | May 20, 2024**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2024/05/19/learning/whats-going-on-in-this-picture-may-20-2024.html
+
 **Today’s Wordle Review No. 1,065**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/05/19/crosswords/wordle-review.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/19/podcasts/the-daily/brett-martin-spotify.html
 **Gazans Flee Jabaliya as Israel’s Military Launches New Offensive**\
 `At least 64,000 people were displaced from Jabaliya and a neighboring town in the past week, according to the main U.N. agency aiding Palestinians.`\
 https://nytimes.com/2024/05/19/world/middleeast/gaza-jabaliya-israel-military.html
-
-**How a Crackdown on Haitians Lifted a Dominican Leader’s Re-Election Bid**\
-`President Luis Abinader goes into Sunday’s race as the clear front-runner, bolstered by nativist migration policies, a strong economy and an anticorruption drive.`\
-https://nytimes.com/2024/05/19/us/dominican-republic-election-abinader-haiti.html
 
