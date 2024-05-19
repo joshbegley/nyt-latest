@@ -1,3 +1,7 @@
+**Morehouse parents to their graduating seniors considering protests: Don’t.**\
+`By Maya King`\
+https://nytimes.com/live/2024/05/19/us/biden-morehouse-speech/morehouse-parents-to-their-graduating-seniors-considering-protests-dont
+
 **Netanyahu may face little risk from a rival’s political ultimatum, analysts say.**\
 `Top leaders are challenging Prime Minister Benjamin Netanyahu to come up with a decisive strategy for Gaza, but analysts say his rivals have not presented clear visions of their own.`\
 https://nytimes.com/live/2024/05/19/world/israel-gaza-war-hamas-rafah/netanyahu-may-face-little-risk-from-a-rivals-political-ultimatum-analysts-say
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/19/opinion/college-university-liberal-arts-democracy
 **Here’s why antiwar protests haven’t flared up at Black colleges like Morehouse.**\
 `The White House appears anxious about President Biden’s coming speech at Morehouse College. But for complex reasons, such campuses have had far less visible Gaza tensions.`\
 https://nytimes.com/live/2024/05/19/us/biden-morehouse-speech/heres-why-antiwar-protests-havent-flared-up-at-black-colleges-like-morehouse
-
-**19biden-morehouse**\
-`Live Updates: Biden to Speak at Morehouse Graduation`\
-https://nytimes.com/live/2024/05/19/us/biden-morehouse-speech
 
