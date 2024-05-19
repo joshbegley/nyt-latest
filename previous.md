@@ -1,3 +1,11 @@
+**Dolores Rosedale, Sidekick on ‘Beat the Clock,’ Dies at 95**\
+`The model and actress, who went by Roxanne, had a modest role on the game show, appeared on numerous magazine covers and inspired the creation of a doll.`\
+https://nytimes.com/2024/05/19/arts/television/dolores-rosedale-dead.html
+
+**U.S. and Europe Move Closer to Using Russian Assets to Help Ukraine**\
+`Finance ministers from the G7 nations are hoping to finalize a plan ahead of the group’s leaders meeting next month.`\
+https://nytimes.com/2024/05/19/us/politics/russian-assets-help-ukraine.html
+
 **‘We Can’t Sleep’: Houstonians Still Without Power Struggle to Stay Cool**\
 `As stifling heat settled over the city, the local electricity provider said most service would return by late Sunday. But hard-hit areas could remain dark for days longer.`\
 https://nytimes.com/2024/05/19/us/houston-power-outages-texas-storm.html
@@ -25,12 +33,4 @@ https://nytimes.com/video/us/politics/100000009476632/biden-morehouse-commenceme
 **Friends and rivals alike are quick to offer Iran their assistance.**\
 `By Matina Stevis-Gridneff, Vivian Nereim, Anushka Patil and Gulsin Harman`\
 https://nytimes.com/live/2024/05/19/world/iran-president-helicopter-crash/friends-and-rivals-alike-are-quick-to-offer-iran-their-assistance
-
-**19pol-swiper-new**\
-`Election Updates: Rubio, a Trump V.P. Contender, won’t commit to accepting 2024 election results.`\
-https://nytimes.com/live/2024/05/19/us/election-news
-
-**Rubio, a Trump V.P. Contender, Won’t Commit to Accepting 2024 Results**\
-`In an NBC interview, Senator Marco Rubio also repeated false claims of electoral fraud in the 2020 election.`\
-https://nytimes.com/2024/05/19/us/rubio-trump-vp-election-results.html
 
