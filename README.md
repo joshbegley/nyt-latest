@@ -1,3 +1,7 @@
+**Judge Reopens Sentencing Hearing for Man Who Attacked Pelosi’s Husband**\
+`The court said it made a mistake by not asking David DePape if he had anything to say at his sentencing hearing. The parties will be back in court on May 28.`\
+https://nytimes.com/2024/05/19/us/sentencing-hearing-pelosi-husband-attack-depape.html
+
 **63 Years Later, First Black Man Trained as Astronaut Goes to Space**\
 `Edward Dwight was among the first pilots that the United States was training to send to space in 1961, but he was passed over. On Sunday, he finally made it on a Blue Origin flight.`\
 https://nytimes.com/2024/05/19/science/space/ed-dwight-black-astronaut-space-flight-blue-origin.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/19/arts/music/american-soldier-opera-danny-chen.html
 **Obesity, Weight-Loss Drugs and Ultraprocessed Foods**\
 `Readers discuss a guest essay about Ozempic. Also: Donald Trump as husband; the Republican Party and Latino voters; animal-to-human transplants.`\
 https://nytimes.com/2024/05/19/opinion/obesity-weight-loss-drugs-ozempic.html
-
-**Korean Fried Chicken to Save Your Sunday**\
-`Serve with beer so cold it’s flecked with ice.`\
-https://nytimes.com/2024/05/19/dining/korean-fried-chicken-to-save-your-sunday.html
 
