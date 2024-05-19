@@ -1,3 +1,7 @@
+**Kehinde Wiley Denies Accusation of Sexual Assault by Artist**\
+`After Joseph Awuah-Darko accused Mr. Wiley of sexually assaulting him in Ghana, Mr. Wiley denied the claims, calling them “not true and an affront to all victims of sexual abuse.”`\
+https://nytimes.com/2024/05/19/arts/design/kehinde-wiley-denies-sexual-assault-accusation.html
+
 **Purple Pop**\
 `Jack Scherban makes his New York Times debut.`\
 https://nytimes.com/2024/05/19/crosswords/daily-puzzle-2024-05-20.html
