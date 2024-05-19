@@ -1,3 +1,7 @@
+**Iran’s future was already uncertain before the crash; now it’s even murkier.**\
+`By Vivian Nereim`\
+https://nytimes.com/live/2024/05/19/world/iran-president-helicopter-crash/irans-future-was-already-uncertain-before-the-crash-now-its-even-murkier
+
 **Congolese Army Says It Foiled a Coup Involving Americans**\
 `The U.S. ambassador said she was “very concerned” that Americans may have participated in what officials of the Democratic Republic of Congo called a failed coup attempt early Sunday.`\
 https://nytimes.com/2024/05/19/world/africa/congo-coup-americans.html

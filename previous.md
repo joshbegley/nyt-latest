@@ -1,3 +1,7 @@
+**Iran’s future was already uncertain before the crash; now it’s even murkier.**\
+`By Vivian Nereim`\
+https://nytimes.com/live/2024/05/19/world/iran-president-helicopter-crash/irans-future-was-already-uncertain-before-the-crash-now-its-even-murkier
+
 **Congolese Army Says It Foiled a Coup Involving Americans**\
 `The U.S. ambassador said she was “very concerned” that Americans may have participated in what officials of the Democratic Republic of Congo called a failed coup attempt early Sunday.`\
 https://nytimes.com/2024/05/19/world/africa/congo-coup-americans.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/19/us/rubio-trump-vp-election-results.html
 **Toxic Political Culture Has Even Some Slovaks Calling Country ‘a Black Hole.’**\
 `Slovakia has long been dogged by criticism that it is prone to authoritarianism, but a frenzy of blame since an assassination attempt has heightened such concerns.`\
 https://nytimes.com/2024/05/19/world/europe/slovakia-politics-black-hole.html
-
-**Judge Reopens Sentencing Hearing for Man Who Attacked Pelosi’s Husband**\
-`The court said it made a mistake by not asking David DePape if he had anything to say at his sentencing hearing. The parties will be back in court on May 28.`\
-https://nytimes.com/2024/05/19/us/sentencing-hearing-pelosi-husband-attack-depape.html
 
