@@ -1,3 +1,7 @@
+**Alice Stewart, a CNN Political Commentator, Dies at 58**\
+`Ms. Stewart had appeared on CNN as a conservative commentator since the 2016 presidential race. A seasoned political strategist, she also had worked for Republican presidential candidates.`\
+https://nytimes.com/2024/05/18/arts/television/alice-stewart-dead.html
+
 **In Atlanta, Biden Warms Up His Pitch to Black Voters**\
 `The president, who is trailing key states in recent polling, tried to cast the election as a struggle for democracy itself.`\
 https://nytimes.com/2024/05/18/us/politics/biden-atlanta-black-voters.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/18/us/politics/elise-stefanik-israel-biden.html
 **Hold Your Doze**\
 `We’ll make sense of Christina Iverson and Katie Hale’s latest diversion, although it helps to have a code.`\
 https://nytimes.com/2024/05/18/crosswords/daily-puzzle-2024-05-19.html
-
-**Moorhead C. Kennedy Jr., 93, Dies; Hostage Who Chided Foreign Policy**\
-`A Foreign Service officer, he was one of 52 hostages seized in Iran and held for 444 days. He later challenged the U.S. government to reshape its diplomacy with the Islamic world.`\
-https://nytimes.com/2024/05/18/world/middleeast/moorhead-kennedy-dead.html
 
