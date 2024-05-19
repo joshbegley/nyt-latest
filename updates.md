@@ -1,3 +1,7 @@
+**Corrections: May 19, 2024**\
+`Corrections that appeared in print on Sunday, May 19, 2024.`\
+https://nytimes.com/2024/05/19/pageoneplus/corrections-may-19-2024.html
+
 **Alice Stewart, a CNN Political Commentator, Dies at 58**\
 `She had appeared onscreen as a conservative commentator since the 2016 presidential race. A political strategist, she had worked for Republican presidential candidates.`\
 https://nytimes.com/2024/05/18/arts/television/alice-stewart-dead.html

@@ -1,3 +1,7 @@
+**Corrections: May 19, 2024**\
+`Corrections that appeared in print on Sunday, May 19, 2024.`\
+https://nytimes.com/2024/05/19/pageoneplus/corrections-may-19-2024.html
+
 **At Chaotic Rally in Brooklyn, Police Violently Confront Protesters**\
 `Officers were filmed punching several people at a pro-Palestinian demonstration in Bay Ridge.`\
 https://nytimes.com/2024/05/19/nyregion/nypd-protest-brooklyn-gaza.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/18/style/caitlin-clark-new-york-liberty.html
 **U.S. and Iranian Officials Held Indirect Talks in Oman on Risks of a Wider War**\
 `The talks were the first since Iran attacked Israel last month in retaliation for its killing of an Iranian general.`\
 https://nytimes.com/2024/05/18/us/politics/us-iran-talks-oman.html
-
-**In California, Kristi Noem looks to move past weeks of backlash and regain favor with Trump.**\
-`By Jonathan Wolfe`\
-https://nytimes.com/live/2024/05/18/us/biden-trump-election-news/in-california-kristi-noem-looks-to-move-past-weeks-of-backlash-and-regain-favor-with-trump
 
