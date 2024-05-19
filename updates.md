@@ -1,3 +1,7 @@
+**‘Saturday Night Live’ Signs Off for the Season**\
+`Jake Gyllenhaal hosted the final episode of the show’s 49th season. Sabrina Carpenter was the musical guest.`\
+https://nytimes.com/2024/05/19/arts/television/saturday-night-live-donald-trumo.html
+
 **Alice Stewart, a CNN Political Commentator, Is Dead at 58**\
 `She had appeared onscreen as a conservative voice since the 2016 presidential race. A political strategist, she had worked for Republican presidential candidates.`\
 https://nytimes.com/2024/05/18/arts/television/alice-stewart-dead.html
