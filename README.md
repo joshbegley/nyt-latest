@@ -1,3 +1,7 @@
+**Biden has been working to shore up support among Black voters.**\
+`By Erica L. Green`\
+https://nytimes.com/live/2024/05/19/us/biden-morehouse-speech/biden-has-been-working-to-shore-up-support-among-black-voters
+
 **Other graduation ceremonies where protests occurred are happening today.**\
 `By Anna Betts`\
 https://nytimes.com/live/2024/05/19/us/biden-morehouse-speech/other-graduation-ceremonies-where-protests-occurred-are-happening-today
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/19/learning/whats-going-on-in-this-picture-may-20-20
 **Today’s Wordle Review No. 1,065**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/05/19/crosswords/wordle-review.html
-
-**Smellmaxxing, Explained**\
-`Some teenage boys have grown obsessed with designer fragrances that cost hundreds of dollars.`\
-https://nytimes.com/2024/05/19/briefing/smellmaxxing-fragrances-teenagers.html
 
