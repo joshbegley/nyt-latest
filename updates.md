@@ -1,3 +1,7 @@
+**Here are the latest developments.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/05/19/world/iran-president-helicopter-crash/here-are-the-latest-developments
+
 **Morehouse parents to their graduating seniors considering protests: Don’t.**\
 `By Maya King`\
 https://nytimes.com/live/2024/05/19/us/biden-morehouse-speech/morehouse-parents-to-their-graduating-seniors-considering-protests-dont
