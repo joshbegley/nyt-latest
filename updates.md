@@ -1,3 +1,7 @@
+**Barack Obama spoke at Morehouse’s commencement 11 years ago.**\
+`By Alan Blinder`\
+https://nytimes.com/live/2024/05/19/us/biden-morehouse-speech/barack-obama-spoke-at-morehouses-commencement-11-years-ago
+
 **Higher Education Needs More Socrates and Plato**\
 `The liberal arts are fading just when we need them most.`\
 https://nytimes.com/2024/05/19/opinion/college-university-liberal-arts-democracy.html

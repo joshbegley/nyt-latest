@@ -1,3 +1,7 @@
+**Barack Obama spoke at Morehouse’s commencement 11 years ago.**\
+`By Alan Blinder`\
+https://nytimes.com/live/2024/05/19/us/biden-morehouse-speech/barack-obama-spoke-at-morehouses-commencement-11-years-ago
+
 **Higher Education Needs More Socrates and Plato**\
 `The liberal arts are fading just when we need them most.`\
 https://nytimes.com/2024/05/19/opinion/college-university-liberal-arts-democracy.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/19/briefing/smellmaxxing-fragrances-teenagers.html
 **A Boxing Victory Offers Hope to War-Weary Ukrainians**\
 `The Ukrainian boxer Oleksandr Usyk became the world’s undisputed heavyweight champion on Sunday. The victory has lifted morale in a country struggling to contain Russian advances on the battlefield.`\
 https://nytimes.com/2024/05/19/world/europe/oleksandr-usyk-tyson-fury.html
-
-**Bring Back the Tear-Jerker!**\
-`Comedies make you laugh. Thrillers make you cheer. Some Hollywood films used to make you sob your eyes out. We need those movies again.`\
-https://nytimes.com/2024/05/19/opinion/tear-jerker-movies-crying.html
 
