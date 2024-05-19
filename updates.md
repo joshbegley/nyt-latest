@@ -1,3 +1,7 @@
+**Biden Calls on Morehouse College Graduates to Defend Democracy**\
+`In a commencement speech at Morehouse, the historically Black men’s college in Atlanta, President Biden condemned white supremacy and “extremist forces aligned against the meaning and message of Morehouse.”`\
+https://nytimes.com/video/us/politics/100000009476632/biden-morehouse-commencement-speech.html
+
 **Friends and rivals alike are quick to offer Iran their assistance.**\
 `By Matina Stevis-Gridneff, Vivian Nereim, Anushka Patil and Gulsin Harman`\
 https://nytimes.com/live/2024/05/19/world/iran-president-helicopter-crash/friends-and-rivals-alike-are-quick-to-offer-iran-their-assistance
