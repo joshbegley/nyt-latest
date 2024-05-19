@@ -1,3 +1,7 @@
+**Are Those Mimes Spying on Us? In Pakistan, It’s Not a Strange Question.**\
+`Pakistanis suspect the national intelligence agencies of being behind practically everything — even street performers working for tips in Islamabad.`\
+https://nytimes.com/2024/05/19/world/asia/pakistan-islamabad-golden-men.html
+
 **Accepting N.R.A. Endorsement, Trump Pledges to Be Gun Owners’ Ardent Ally**\
 `Addressing the annual meeting of the National Rifle Association, former President Donald J. Trump on Saturday promised to roll back the Biden administration’s gun-control measures if elected.`\
 https://nytimes.com/2024/05/18/us/politics/trump-nra-endorsement-gun-rights.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/18/us/bud-anderson-dead.html
 **Israel’s Wartime Government Frays as Frustration with Netanyahu Grows**\
 `Benny Gantz, a centrist member of leadership, presented the prime minister with an ultimatum that demanded a plan for the future of Israel’s war.`\
 https://nytimes.com/2024/05/18/world/middleeast/israel-gaza-war-netanyahu-gantz.html
-
-**Stefanik to Denounce Biden, and Praise Trump, in Speech to Israel’s Parliament**\
-`The New York congresswoman will become the highest-ranking House Republican to speak before Israel’s Parliament since the Oct. 7 attacks, in a move meant to capitalize on Democratic divisions.`\
-https://nytimes.com/2024/05/18/us/politics/elise-stefanik-israel-biden.html
 
