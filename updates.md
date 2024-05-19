@@ -1,3 +1,9 @@
+**The U.S. national security adviser is set to meet Netanyahu on Sunday.**\
+`By Matt Surman`\
+https://nytimes.com/live/2024/05/19/world/israel-gaza-war-hamas-rafah/the-us-national-security-adviser-is-set-to-meet-netanyahu-on-sunday
+
+**Benny Gantz threatens to leave Israel’s government, and other news.**\
+
 **As Trump Trial Nears Its End, the Law May Give Prosecutors an Edge**\
 `The former president’s defense appeared to chip away at Michael Cohen’s credibility, but legal experts said the case is still the prosecution’s to lose.`\
 https://nytimes.com/2024/05/19/nyregion/trump-trial-cohen-testimony.html
