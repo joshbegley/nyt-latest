@@ -1,4 +1,8 @@
 **Alice Stewart, a CNN Political Commentator, Dies at 58**\
+`She had appeared onscreen as a conservative commentator since the 2016 presidential race. A political strategist, she had worked for Republican presidential candidates.`\
+https://nytimes.com/2024/05/18/arts/television/alice-stewart-dead.html
+
+**Alice Stewart, a CNN Political Commentator, Dies at 58**\
 `She had appeared as a CNN conservative commentator since the 2016 presidential race. A political strategist, she had worked for Republican presidential candidates.`\
 https://nytimes.com/2024/05/18/arts/television/alice-stewart-dead.html
 
