@@ -1,3 +1,7 @@
+**Higher Education Needs More Socrates and Plato**\
+`The liberal arts are fading just when we need them most.`\
+https://nytimes.com/2024/05/19/opinion/college-university-liberal-arts-democracy.html
+
 **Here’s why antiwar protests haven’t flared up at Black colleges like Morehouse.**\
 `The White House appears anxious about President Biden’s coming speech at Morehouse College. But for complex reasons, such campuses have had far less visible Gaza tensions.`\
 https://nytimes.com/live/2024/05/19/us/biden-morehouse-speech/heres-why-antiwar-protests-havent-flared-up-at-black-colleges-like-morehouse
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/19/world/europe/oleksandr-usyk-tyson-fury.html
 **Bring Back the Tear-Jerker!**\
 `Comedies make you laugh. Thrillers make you cheer. Some Hollywood films used to make you sob your eyes out. We need those movies again.`\
 https://nytimes.com/2024/05/19/opinion/tear-jerker-movies-crying.html
-
-**The Trump Trial Is Disturbing on So Many Levels**\
-`A terrible man is in the cross hairs of American justice, but immorality alone doesn’t make him a criminal.`\
-https://nytimes.com/2024/05/19/opinion/trump-trial-election-appeal.html
 
