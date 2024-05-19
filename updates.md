@@ -1,3 +1,19 @@
+**Bring Back the Tear-Jerker!**\
+`Comedies make you laugh. Thrillers make you cheer. Some Hollywood films used to make you sob your eyes out. We need those movies again.`\
+https://nytimes.com/2024/05/19/opinion/tear-jerker-movies-crying.html
+
+**The Trump Trial Is Disturbing on So Many Levels**\
+`A terrible man is in the cross hairs of American justice, but immorality alone doesn’t make him a criminal.`\
+https://nytimes.com/2024/05/19/opinion/trump-trial-election-appeal.html
+
+**Seven Theories for Why Biden Is Losing (and What He Should Do About It)**\
+`It’s not the poll numbers that worry me, exactly. It’s the denial of what’s behind them.`\
+https://nytimes.com/2024/05/19/opinion/biden-trump-polls-debates.html
+
+**The Sunday Read: ‘Why Did This Guy Put a Song About Me on Spotify?’**\
+`The answer involves a remarkable — and lucrative, and ridiculous — scheme to game the way we find music today.`\
+https://nytimes.com/2024/05/19/podcasts/the-daily/brett-martin-spotify.html
+
 **Gazans Flee Jabaliya as Israel’s Military Launches New Offensive**\
 `At least 64,000 people were displaced from Jabaliya and a neighboring town in the past week, according to the main U.N. agency aiding Palestinians.`\
 https://nytimes.com/2024/05/19/world/middleeast/gaza-jabaliya-israel-military.html
