@@ -1,3 +1,11 @@
+**Disneyland Character Workers at California Park Vote to Unionize**\
+`The vote determined whether 1,700 workers who play characters such as Mickey and Minnie Mouse and who dance at parades could join the union representing other workers at the park in Anaheim, Calif.`\
+https://nytimes.com/2024/05/19/business/disneyland-actors-unionize.html
+
+**U.S. and Niger Announce Withdrawal of American Personnel by September**\
+`The announcement spells out the terms of a pullout that the Biden administration unveiled last month and comes after a military junta ousted Niger’s president last July.`\
+https://nytimes.com/2024/05/19/us/politics/us-niger-military-withdrawal.html
+
 **Biden Calls on Morehouse College Graduates to Defend Democracy**\
 `In a commencement speech at Morehouse, the historically Black men’s college in Atlanta, President Biden condemned white supremacy and “extremist forces aligned against the meaning and message of Morehouse.”`\
 https://nytimes.com/video/us/politics/100000009476632/biden-morehouse-commencement-speech.html
