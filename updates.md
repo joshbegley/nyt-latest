@@ -1,3 +1,11 @@
+**Here’s why antiwar protests haven’t flared up at Black colleges like Morehouse.**\
+`The White House appears anxious about President Biden’s coming speech at Morehouse College. But for complex reasons, such campuses have had far less visible Gaza tensions.`\
+https://nytimes.com/live/2024/05/19/us/biden-morehouse-speech/heres-why-antiwar-protests-havent-flared-up-at-black-colleges-like-morehouse
+
+**19biden-morehouse**\
+`Live Updates: Biden to Speak at Morehouse Graduation`\
+https://nytimes.com/live/2024/05/19/us/biden-morehouse-speech
+
 **In Israel, Stefanik denounces Biden and praises Trump.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/05/19/world/israel-gaza-war-hamas-rafah/in-israel-stefanik-denounces-biden-and-praises-trump

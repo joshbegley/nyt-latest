@@ -1,3 +1,11 @@
+**Here’s why antiwar protests haven’t flared up at Black colleges like Morehouse.**\
+`The White House appears anxious about President Biden’s coming speech at Morehouse College. But for complex reasons, such campuses have had far less visible Gaza tensions.`\
+https://nytimes.com/live/2024/05/19/us/biden-morehouse-speech/heres-why-antiwar-protests-havent-flared-up-at-black-colleges-like-morehouse
+
+**19biden-morehouse**\
+`Live Updates: Biden to Speak at Morehouse Graduation`\
+https://nytimes.com/live/2024/05/19/us/biden-morehouse-speech
+
 **In Israel, Stefanik denounces Biden and praises Trump.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/05/19/world/israel-gaza-war-hamas-rafah/in-israel-stefanik-denounces-biden-and-praises-trump
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/19/opinion/tear-jerker-movies-crying.html
 **The Trump Trial Is Disturbing on So Many Levels**\
 `A terrible man is in the cross hairs of American justice, but immorality alone doesn’t make him a criminal.`\
 https://nytimes.com/2024/05/19/opinion/trump-trial-election-appeal.html
-
-**Seven Theories for Why Biden Is Losing (and What He Should Do About It)**\
-`It’s not the poll numbers that worry me, exactly. It’s the denial of what’s behind them.`\
-https://nytimes.com/2024/05/19/opinion/biden-trump-polls-debates.html
-
-**The Sunday Read: ‘Why Did This Guy Put a Song About Me on Spotify?’**\
-`The answer involves a remarkable — and lucrative, and ridiculous — scheme to game the way we find music today.`\
-https://nytimes.com/2024/05/19/podcasts/the-daily/brett-martin-spotify.html
 
