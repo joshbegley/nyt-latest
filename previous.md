@@ -1,3 +1,7 @@
+**‘We Can’t Sleep’: Houstonians Still Without Power Struggle to Stay Cool**\
+`As stifling heat settled over the city, the local electricity provider said most service would return by late Sunday. But hard-hit areas could remain dark for days longer.`\
+https://nytimes.com/2024/05/19/us/houston-power-outages-texas-storm.html
+
 **Iran’s future was already uncertain before the crash; now it’s even murkier.**\
 `By Vivian Nereim`\
 https://nytimes.com/live/2024/05/19/world/iran-president-helicopter-crash/irans-future-was-already-uncertain-before-the-crash-now-its-even-murkier
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/05/19/us/election-news
 **Rubio, a Trump V.P. Contender, Won’t Commit to Accepting 2024 Results**\
 `In an NBC interview, Senator Marco Rubio also repeated false claims of electoral fraud in the 2020 election.`\
 https://nytimes.com/2024/05/19/us/rubio-trump-vp-election-results.html
-
-**Toxic Political Culture Has Even Some Slovaks Calling Country ‘a Black Hole.’**\
-`Slovakia has long been dogged by criticism that it is prone to authoritarianism, but a frenzy of blame since an assassination attempt has heightened such concerns.`\
-https://nytimes.com/2024/05/19/world/europe/slovakia-politics-black-hole.html
 
