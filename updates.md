@@ -1,3 +1,7 @@
+**Smellmaxxing, Explained**\
+`Some teenage boys have grown obsessed with designer fragrances that cost hundreds of dollars.`\
+https://nytimes.com/2024/05/19/briefing/smellmaxxing-fragrances-teenagers.html
+
 **A Boxing Victory Offers Hope to War-Weary Ukrainians**\
 `The Ukrainian boxer Oleksandr Usyk became the world’s undisputed heavyweight champion on Sunday. The victory has lifted morale in a country struggling to contain Russian advances on the battlefield.`\
 https://nytimes.com/2024/05/19/world/europe/oleksandr-usyk-tyson-fury.html
