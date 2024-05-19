@@ -1,5 +1,9 @@
 **In Atlanta, Biden Warms Up His Pitch to Black Voters**\
 `The president, who is trailing key states in recent polling, tried to cast the election as a struggle for democracy itself.`\
+https://nytimes.com/2024/05/18/us/politics/biden-atlanta-black-voters.html
+
+**In Atlanta, Biden Warms Up His Pitch to Black Voters**\
+`The president, who is trailing key states in recent polling, tried to cast the election as a struggle for democracy itself.`\
 https://nytimes.com/2024/05/18/us/politics/in-atlanta-biden-warms-up-his-pitch-to-black-voters.html
 
 **With Caitlin Clark in Town, All Eyes Were on Brooklyn**\

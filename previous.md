@@ -1,6 +1,6 @@
 **In Atlanta, Biden Warms Up His Pitch to Black Voters**\
 `The president, who is trailing key states in recent polling, tried to cast the election as a struggle for democracy itself.`\
-https://nytimes.com/2024/05/18/us/politics/in-atlanta-biden-warms-up-his-pitch-to-black-voters.html
+https://nytimes.com/2024/05/18/us/politics/biden-atlanta-black-voters.html
 
 **With Caitlin Clark in Town, All Eyes Were on Brooklyn**\
 `The New York Liberty beat the Indiana Fever in front of a record crowd at Barclays Center, with celebrities and basketball legends there to see the star rookie.`\
