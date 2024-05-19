@@ -1,3 +1,11 @@
+**19pol-swiper-new**\
+`Election Updates: Rubio, a Trump V.P. Contender, won’t commit to accepting 2024 election results.`\
+https://nytimes.com/live/2024/05/19/us/election-news
+
+**Rubio, a Trump V.P. Contender, Won’t Commit to Accepting 2024 Results**\
+`In an NBC interview, Senator Marco Rubio also repeated false claims of electoral fraud in the 2020 election.`\
+https://nytimes.com/2024/05/19/us/rubio-trump-vp-election-results.html
+
 **Disneyland Character Workers at California Park Vote to Unionize**\
 `The vote determined whether 1,700 workers who play characters such as Mickey and Minnie Mouse and who dance at parades could join the union representing other workers at the park in Anaheim, Calif.`\
 https://nytimes.com/2024/05/19/business/disneyland-actors-unionize.html
