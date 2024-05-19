@@ -1,3 +1,7 @@
+**In Israel, Stefanik denounces Biden and praises Trump.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/05/19/world/israel-gaza-war-hamas-rafah/in-israel-stefanik-denounces-biden-and-praises-trump
+
 **What’s Going On in This Picture? | May 20, 2024**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2024/05/19/learning/whats-going-on-in-this-picture-may-20-2024.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/19/opinion/biden-trump-polls-debates.html
 **The Sunday Read: ‘Why Did This Guy Put a Song About Me on Spotify?’**\
 `The answer involves a remarkable — and lucrative, and ridiculous — scheme to game the way we find music today.`\
 https://nytimes.com/2024/05/19/podcasts/the-daily/brett-martin-spotify.html
-
-**Gazans Flee Jabaliya as Israel’s Military Launches New Offensive**\
-`At least 64,000 people were displaced from Jabaliya and a neighboring town in the past week, according to the main U.N. agency aiding Palestinians.`\
-https://nytimes.com/2024/05/19/world/middleeast/gaza-jabaliya-israel-military.html
 
