@@ -1,3 +1,7 @@
+**‘Nobody Cares’ About Laura Benanti, but They Let Her Entertain Them**\
+`While poking fun at her own agreeable malleability, Benanti flexes her talents in a show that will be available on Audible, without the physical dimension.`\
+https://nytimes.com/2024/05/19/theater/nobody-cares-laura-benanti-audible.html
+
 **Monday Briefing: Iran’s President Is Missing After a Helicopter Crash**\
 `Also, Russian troops moved closer to Kharkiv.`\
 https://nytimes.com/2024/05/19/world/asia/iran-raisi-search-kharkiv-asia.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/19/world/africa/congo-coup-americans.html
 **Disneyland Character Workers at California Park Vote to Unionize**\
 `The vote determined whether 1,700 workers who play characters such as Mickey and Minnie Mouse and who dance at parades could join the union representing other workers at the park in Anaheim, Calif.`\
 https://nytimes.com/2024/05/19/business/disneyland-actors-unionize.html
-
-**U.S. and Niger Announce Withdrawal of American Personnel by September**\
-`The announcement spells out the terms of a pullout that the Biden administration unveiled last month and comes after a military junta ousted Niger’s president last July.`\
-https://nytimes.com/2024/05/19/us/politics/us-niger-military-withdrawal.html
 

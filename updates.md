@@ -1,3 +1,7 @@
+**‘Nobody Cares’ About Laura Benanti, but They Let Her Entertain Them**\
+`While poking fun at her own agreeable malleability, Benanti flexes her talents in a show that will be available on Audible, without the physical dimension.`\
+https://nytimes.com/2024/05/19/theater/nobody-cares-laura-benanti-audible.html
+
 **Monday Briefing: Iran’s President Is Missing After a Helicopter Crash**\
 `Also, Russian troops moved closer to Kharkiv.`\
 https://nytimes.com/2024/05/19/world/asia/iran-raisi-search-kharkiv-asia.html
