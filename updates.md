@@ -1,3 +1,7 @@
+**Who Was Iran’s Foreign Minister, Hossein Amir Abdollahian?**\
+`A hard-liner and career diplomat long focused on Iran’s relationships in the Middle East, he died in a helicopter crash that also killed Iran’s president.`\
+https://nytimes.com/2024/05/20/world/middleeast/iran-foreign-minister-amir-abdollahian.html
+
 **Iran’s President Dies in Crash, and Trump Trial Enters Final Days**\
 `Plus, Baltimore bridge ship to be moved.`\
 https://nytimes.com/2024/05/20/podcasts/iran-president-raisi-helicopter-crash-trump-trial.html
