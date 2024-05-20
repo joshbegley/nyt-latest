@@ -1,3 +1,7 @@
+**Ocasio-Cortez Backs N.Y. Bill Limiting Donations to Israeli Settlements**\
+`Under the bill, New York nonprofits that provide financial support to Israel’s military or settlements could be sued for at least $1 million and lose their tax-exempt status.`\
+https://nytimes.com/2024/05/20/nyregion/ocasio-cortez-israeli-settlements.html
+
 **A Former Leader of the Hells Angels Motorcycle Gang Joins Trump in Court**\
 `Chuck Zito, who did time on drug conspiracy charges, has tried to recast his persona as a general-purpose tough guy around town.`\
 https://nytimes.com/2024/05/20/nyregion/chuck-zito-hells-angels-trump-trial.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/business/russia-oil-price-cap-policy.html
 **What to Know About the I.C.C. Prosecutor’s Request for Warrants for Israeli and Hamas Leaders**\
 `The International Criminal Court prosecutor requested arrest warrants for Prime Minister Benjamin Netanyahu of Israel and Hamas leaders. Here is a closer look at the court and the warrant.`\
 https://nytimes.com/2024/05/20/world/middleeast/icc-arrest-warrants-israel-hamas.html
-
-**What We Know About the Helicopter Crash That Killed Iran’s President**\
-`The deaths of two of Iran’s most high-profile leaders — President Ebrahim Raisi and Foreign Minister Hossein Amir Abdollahian — come at a tumultuous time for the country.`\
-https://nytimes.com/2024/05/20/world/europe/iran-crash-what-we-know.html
 
