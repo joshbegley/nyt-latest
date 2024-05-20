@@ -1,3 +1,15 @@
+**Cohen Endures Cross-Examination Under the Eyes of Trump’s Entourage**\
+`Michael D. Cohen admitted stealing from the Trump Organization, but maintained his cool. The former president arrived with many supporters, some with criminal histories.`\
+https://nytimes.com/2024/05/20/nyregion/michael-cohen-trump-court.html
+
+**Jim Otto, Hall of Fame Raiders Center, Is Dead at 86**\
+`Despite his accomplishments on the field, he was remembered mostly for the many beatings his body absorbed, which left him in constant pain.`\
+https://nytimes.com/2024/05/20/sports/football/jim-otto-dead.html
+
+**When Michael Cohen’s Lies Help the Case Against Trump**\
+`The prosecution gets some help for its theory of the crime behind the false documents.`\
+https://nytimes.com/2024/05/14/opinion/trump-michael-cohen-liar.html
+
 **Top Education Officials Were Warned of FAFSA Overhaul Hurdles in 2020**\
 `Documents obtained by The Times show the department’s troubled FAFSA rollout this year came in spite of early warnings that the project required sustained attention.`\
 https://nytimes.com/2024/05/20/us/politics/fafsa-application-education-department.html
