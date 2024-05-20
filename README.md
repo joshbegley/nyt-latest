@@ -1,3 +1,7 @@
+**Top Education Officials Were Warned of FAFSA Overhaul Hurdles in 2020**\
+`Documents obtained by The Times show the department’s troubled FAFSA rollout this year came in spite of early warnings that the project required sustained attention.`\
+https://nytimes.com/2024/05/20/us/politics/fafsa-application-education-department.html
+
 **When Michael Cohen’s Lies Help the Case Against Trump**\
 `The prosecution gets some help for its theory of the crime behind the false documents.`\
 https://nytimes.com/live/2024/05/14/opinion/thepoint/trump-michael-cohen-liar
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/science/cockroach-evolution-cities.html
 **How Did You Grow and Change This School Year?**\
 `In this forum, we invite both students and teachers to reflect on their challenges and successes — and to consider how to build on them for next year.`\
 https://nytimes.com/2024/05/20/learning/how-did-you-grow-and-change-this-school-year.html
-
-**F.B.I. Shed Informants Linked to Russian Influence Operations**\
-`After a secret review several years ago, the bureau cut off confidential sources thought to be connected to Russian disinformation.`\
-https://nytimes.com/2024/05/20/us/politics/fbi-shed-informants-linked-to-russian-influence-operations.html
 
