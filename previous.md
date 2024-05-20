@@ -1,5 +1,5 @@
-**Biden and Blinken accuse the I.C.C. prosecutor of falsely equating Israel and Hamas.**\
-`By Michael D. Shear`\
+**Biden and Blinken Accuse I.C.C. Prosecutor of Falsely Equating Israel and Hamas**\
+`The forceful denunciations of the International Criminal Court came even as tensions have risen between the United States and Israel over its conduct of the war in Gaza.`\
 https://nytimes.com/2024/05/20/world/middleeast/icc-warrants-israel-biden-blinken.html
 
 **How the Cockroach Took Over the World**\
