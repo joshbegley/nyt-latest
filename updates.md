@@ -1,3 +1,7 @@
+**Cargo Ship That Crashed Into Baltimore Bridge Heads Back to Port**\
+`The Dali, which had been pinned in by the wreckage of the Francis Scott Key Bridge since late March, began moving again early Monday.`\
+https://nytimes.com/2024/05/20/us/dali-moving-key-bridge-baltimore.html
+
 **International Criminal Court Prosecutor Requests Warrants for Netanyahu and Hamas Leaders**\
 `While the request must be approved by the court’s judges, the announcement is a blow to Mr. Netanyahu and will likely fuel international criticism of Israel’s war strategy in Gaza.`\
 https://nytimes.com/2024/05/20/world/middleeast/icc-hamas-netanyahu.html
