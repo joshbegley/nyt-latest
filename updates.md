@@ -1,3 +1,7 @@
+**Israel and Gaza: Despair and What-Ifs**\
+`Readers disagree about a guest essay by Megan K. Stack. Also: Big politics in politics; “journey” as metaphor; helping the mentally ill and homeless.`\
+https://nytimes.com/2024/05/20/opinion/israel-gaza-despair.html
+
 **‘Stax: Soulsville, U.S.A.’ Review: Looking for a Little Respect**\
 `An HBO series tells the triumphant, tragic story of the record label Otis Redding, Isaac Hayes and the Staple Singers called home.`\
 https://nytimes.com/2024/05/20/arts/television/stax-soulsville-usa-review-hbo.html
