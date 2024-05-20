@@ -1,3 +1,11 @@
+**Senate to Vote Again on Border Deal as Democrats Seek Political Edge**\
+`The bipartisan border enforcement compromise, blocked by Republicans in February, is all but certain to be thwarted again. Democrats aim to tag the G.O.P. as the culprit in its failure.`\
+https://nytimes.com/2024/05/20/us/politics/senate-schumer-border-immigration.html
+
+**A Netanyahu rival said a warrant for his arrest would be a ‘historic crime.’**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/a-netanyahu-rival-said-a-warrant-for-his-arrest-would-be-a-historic-crime
+
 **Russia’s War Machine Revs Up as the West’s Plan to Cap Oil Revenues Sputters**\
 `Russia has largely evaded attempts by the U.S. and Europe to keep it from profiting from its energy exports.`\
 https://nytimes.com/2024/05/20/business/russia-oil-price-cap-policy.html
