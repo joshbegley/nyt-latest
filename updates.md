@@ -1,3 +1,7 @@
+**What Does the Dow Hitting 40,000 Tell Us?**\
+`The stock market isn’t the economy — but its record high refutes conspiracy theories.`\
+https://nytimes.com/2024/05/20/opinion/trump-biden-stock-market-dow-jones.html
+
 **City Hall Aide Is Cooperating With Corruption Investigation Into Adams**\
 `Eric Adams’s former liaison to the Turkish community, Rana Abbasova, had knowledge of some of the mayor’s dealings with Turkish officials.`\
 https://nytimes.com/2024/05/20/nyregion/adams-fbi-corruption-investigation-aide.html
