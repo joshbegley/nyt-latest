@@ -1,3 +1,11 @@
+**Design Popularized by Internet ‘It’ Girls Gets a Pop-up**\
+`A crowd lined up in Los Angeles’s Echo Park neighborhood to buy designer Gustaf Westman’s curvy, chunky, bold objects.`\
+https://nytimes.com/2024/05/20/style/gustaf-westman-pop-up-design-store-los-angeles.html
+
+**Iran Moves to Project Stability After Crash Kills Key Leaders**\
+`The ayatollah announced five days of mourning for the president and foreign minister who died when their helicopter plunged into a mountainous region. Some Iranians celebrated the deaths.`\
+https://nytimes.com/2024/05/20/world/middleeast/iran-crash-helicopter-president.html
+
 **Tuesday Briefing: What’s Next for Iran**\
 `Also, an international prosecutor’s request for arrest warrants for leaders of Israel and Hamas.`\
 https://nytimes.com/2024/05/20/world/asia/iran-raisi-icc-israel-hamas-asia.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/20/us/politics/fafsa-application-education-departmen
 **When Michael Cohen’s Lies Help the Case Against Trump**\
 `The prosecution gets some help for its theory of the crime behind the false documents.`\
 https://nytimes.com/2024/05/14/opinion/trump-michael-cohen-liar.html
-
-**For some in Iran, the response wasn’t sorrowful.**\
-`By Leily Nikounazar and Vivian Yee`\
-https://nytimes.com/live/2024/05/19/world/iran-president-crash/for-some-in-iran-the-response-wasnt-sorrowful
-
-**Penguin Random House Dismisses Two of Its Top Publishers**\
-`The departures of Reagan Arthur, of Alfred A. Knopf, and Lisa Lucas, of Pantheon and Schocken, in a restructuring came as a surprise to many in the company.`\
-https://nytimes.com/2024/05/20/books/booksupdate/knopf-doubleday-lisa-lucas-reagan-arthur.html
 

@@ -1,6 +1,6 @@
 **Tuesday Briefing: What’s Next for Iran**\
 `Also, an international prosecutor’s request for arrest warrants for leaders of Israel and Hamas.`\
-https://nytimes.com/2024/05/20/world/asia/tuesday-briefing-whats-next-for-iran.html
+https://nytimes.com/2024/05/20/world/asia/iran-raisi-icc-israel-hamas-asia.html
 
 **Netanyahu Slams I.C.C. for Seeking Warrants Against Israeli Leaders**\
 `Prime Minister Benjamin Netanyahu of Israel said the International Criminal Court prosecutor’s request for warrants against him and Israel’s defense minister was an attempt to deny Israel its right of self-defense.`\
