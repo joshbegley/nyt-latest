@@ -1,3 +1,7 @@
+**Choreographer’s ‘Dog Poop Attack’ on a Critic Inspired This New Play**\
+`At this year’s Theatertreffen drama festival, one production explores an incident that shocked the German theater world last year.`\
+https://nytimes.com/2024/05/20/theater/the-dog-poop-attack-theatertreffen.html
+
 **She Helped Wage the Fight for $15. Where Will Labor Go After Her?**\
 `Low-wage workers owe a lot to Mary Kay Henry.`\
 https://nytimes.com/2024/05/20/opinion/mary-kay-henry-unions.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/us/politics/iran-raisi-us-negotiations.html
 **One of the first aid shipments to arrive at a U.S.-built pier was looted.**\
 `By Adam Rasgon and Patrick Kingsley`\
 https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/one-of-the-first-aid-shipments-to-arrive-at-a-us-built-pier-was-looted
-
-**Renting or Buying Is Often Personal, but It’s Also Helpful to Look at the Numbers**\
-`The Upshot’s financial calculator has been updated with new features.`\
-https://nytimes.com/2024/05/20/upshot/rent-buy-calculator.html
 
