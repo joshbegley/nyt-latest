@@ -1,3 +1,7 @@
+**Rescuers Find Helicopter Carrying Iran’s President**\
+`After scouring a mountainous area of dense forest, rescuers found the remains of the aircraft, which had the president and foreign minister on board.`\
+https://nytimes.com/video/world/middleeast/100000009477239/iran-president-crash.html
+
 **This ‘Russian’ Woman Loves China. Too Bad She’s a Deepfake.**\
 `A.I.-manipulated videos on Chinese sites use young, supposedly Russian women to promote China-Russia ties, stoke patriotism — and make money.`\
 https://nytimes.com/2024/05/20/world/asia/china-russia-deepfake.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/business/china-companies-tiktok-overseas.html
 **Julian Assange’s Extradition Appeal Hearing: What Could Happen?**\
 `A hearing on Monday will determine whether Julian Assange has any more recourse in the British courts to appeal his extradition to the United States.`\
 https://nytimes.com/2024/05/20/world/europe/julian-assanges-extradition-appeal-hearing-what-could-happen.html
-
-**See How Easily A.I. Chatbots Can Be Taught to Spew Disinformation**\
-`Ahead of the election this year, the results suggested how easy it could be to create divisive content online, on either side of the political spectrum.`\
-https://nytimes.com/interactive/2024/05/19/technology/biased-ai-chatbots.html
 

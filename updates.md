@@ -1,3 +1,7 @@
+**Rescuers Find Helicopter Carrying Iran’s President**\
+`After scouring a mountainous area of dense forest, rescuers found the remains of the aircraft, which had the president and foreign minister on board.`\
+https://nytimes.com/video/world/middleeast/100000009477239/iran-president-crash.html
+
 **This ‘Russian’ Woman Loves China. Too Bad She’s a Deepfake.**\
 `A.I.-manipulated videos on Chinese sites use young, supposedly Russian women to promote China-Russia ties, stoke patriotism — and make money.`\
 https://nytimes.com/2024/05/20/world/asia/china-russia-deepfake.html
