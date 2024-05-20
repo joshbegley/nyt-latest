@@ -1,3 +1,11 @@
+**Design Popularized by Internet ‘It’ Girls Gets a Pop-up**\
+`A crowd lined up in Los Angeles’s Echo Park neighborhood to buy designer Gustaf Westman’s curvy, chunky, bold objects.`\
+https://nytimes.com/2024/05/20/style/gustaf-westman-pop-up-design-store-los-angeles.html
+
+**Iran Moves to Project Stability After Crash Kills Key Leaders**\
+`The ayatollah announced five days of mourning for the president and foreign minister who died when their helicopter plunged into a mountainous region. Some Iranians celebrated the deaths.`\
+https://nytimes.com/2024/05/20/world/middleeast/iran-crash-helicopter-president.html
+
 **Tuesday Briefing: What’s Next for Iran**\
 `Also, an international prosecutor’s request for arrest warrants for leaders of Israel and Hamas.`\
 https://nytimes.com/2024/05/20/world/asia/iran-raisi-icc-israel-hamas-asia.html
