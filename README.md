@@ -1,3 +1,7 @@
+**Netanyahu Slams I.C.C. for Seeking Warrants Against Israeli Leaders**\
+`Prime Minister Benjamin Netanyahu of Israel said the International Criminal Court prosecutor’s request for warrants against him and Israel’s defense minister was an attempt to deny Israel its right of self-defense.`\
+https://nytimes.com/video/world/middleeast/100000009478748/netanyahu-icc-warrant-israel-gaza.html
+
 **Robert Costello, Defense Witness in Trump Trial, Advised Cohen Before a Falling Out**\
 `Mr. Costello is expected to cast Michael D. Cohen, the witness at the heart of the prosecution’s case, as a liar.`\
 https://nytimes.com/2024/05/20/nyregion/trump-hush-money-trial-robert-costello.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/books/booksupdate/knopf-doubleday-lisa-lucas-reag
 **Choreographer’s ‘Dog Poop Attack’ on a Critic Inspired This New Play**\
 `At this year’s Theatertreffen drama festival, one production explores an incident that shocked the German theater world last year.`\
 https://nytimes.com/2024/05/20/theater/the-dog-poop-attack-theatertreffen.html
-
-**She Helped Wage the Fight for $15. Where Will Labor Go After Her?**\
-`Low-wage workers owe a lot to Mary Kay Henry.`\
-https://nytimes.com/2024/05/20/opinion/mary-kay-henry-unions.html
 

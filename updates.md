@@ -1,3 +1,7 @@
+**Robert Costello, Defense Witness in Trump Trial, Advised Cohen Before a Falling Out**\
+`Mr. Costello is expected to cast Michael D. Cohen, the witness at the heart of the prosecution’s case, as a liar.`\
+https://nytimes.com/2024/05/20/nyregion/trump-hush-money-trial-robert-costello.html
+
 **Cohen Endures Cross-Examination Under the Eyes of Trump’s Entourage**\
 `Michael D. Cohen admitted stealing from the Trump Organization, but maintained his cool. The former president arrived with many supporters, some with criminal histories.`\
 https://nytimes.com/2024/05/20/nyregion/michael-cohen-trump-court.html
