@@ -1,3 +1,15 @@
+**What’s on TV This Week: ‘Abbott Elementary’ and ‘The Good Doctor’**\
+`The ABC comedy wraps up its third season. The medical show airs its series finale.`\
+https://nytimes.com/2024/05/20/arts/television/whats-on-tv-this-week-abbott-elementary-and-the-good-doctor.html
+
+**Occupation Has Corrupted the Humanity of Israel’s Military**\
+`There is a disregard among Israeli soldiers for Palestinian lives, and we are seeing it in Gaza today.`\
+https://nytimes.com/2024/05/20/opinion/israel-gaza-idf-palestinians-human-rights.html
+
+**Monday Briefing**\
+`Iran’s president is killed in a helicopter crash.`\
+https://nytimes.com/2024/05/20/briefing/iran-president-killed-israel-ukraine.html
+
 **Ebrahim Raisi, Iran’s President, Dies in Helicopter Crash at 63**\
 `The hard-line Shiite cleric was seen as a possible successor to Iran’s supreme leader. Mr. Raisi’s death comes at a moment of turbulence for a country facing a deepening conflict with Israel.`\
 https://nytimes.com/2024/05/20/world/europe/ebrahim-raisi-iran-dead.html
@@ -21,16 +33,4 @@ https://nytimes.com/interactive/2024/05/19/technology/biased-ai-chatbots.html
 **Here are the latest developments.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/05/19/world/iran-president-crash/here-are-the-latest-developments
-
-**Comet Fragment Explodes in Dark Skies Over Spain and Portugal**\
-`A brilliant flash of blue, green and white on Saturday night came from a shard of an as yet unidentified comet that was moving around 100,000 miles per hour, experts said.`\
-https://nytimes.com/2024/05/19/science/comet-fireball-portugal-spain.html
-
-**Comet Fragment Flashes in the Night Sky Over Spain and Portugal**\
-`A bright object broke up in Earth’s atmosphere on Saturday night, illuminating night skies over parts of Spain and Portugal. Experts say it was a fragment of a comet, perhaps only a few feet in size.`\
-https://nytimes.com/video/science/100000009476873/comet-bright-spain-portugal.html
-
-**Global Tensions and a Hostile Neighbor Await Taiwan’s New Leader**\
-`President Lai Ching-te has vowed to stay on his predecessor’s narrow path of resisting Beijing without provoking it. It won’t be easy.`\
-https://nytimes.com/2024/05/19/world/asia/taiwan-president-china-us.html
 

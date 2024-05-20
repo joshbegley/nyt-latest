@@ -1,3 +1,15 @@
+**What’s on TV This Week: ‘Abbott Elementary’ and ‘The Good Doctor’**\
+`The ABC comedy wraps up its third season. The medical show airs its series finale.`\
+https://nytimes.com/2024/05/20/arts/television/whats-on-tv-this-week-abbott-elementary-and-the-good-doctor.html
+
+**Occupation Has Corrupted the Humanity of Israel’s Military**\
+`There is a disregard among Israeli soldiers for Palestinian lives, and we are seeing it in Gaza today.`\
+https://nytimes.com/2024/05/20/opinion/israel-gaza-idf-palestinians-human-rights.html
+
+**Monday Briefing**\
+`Iran’s president is killed in a helicopter crash.`\
+https://nytimes.com/2024/05/20/briefing/iran-president-killed-israel-ukraine.html
+
 **Ebrahim Raisi, Iran’s President, Dies in Helicopter Crash at 63**\
 `The hard-line Shiite cleric was seen as a possible successor to Iran’s supreme leader. Mr. Raisi’s death comes at a moment of turbulence for a country facing a deepening conflict with Israel.`\
 https://nytimes.com/2024/05/20/world/europe/ebrahim-raisi-iran-dead.html
