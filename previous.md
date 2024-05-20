@@ -1,3 +1,7 @@
+**When Michael Cohen’s Lies Help the Case Against Trump**\
+`The prosecution gets some help for its theory of the crime behind the false documents.`\
+https://nytimes.com/live/2024/05/14/opinion/thepoint/trump-michael-cohen-liar
+
 **For some in Iran, the response wasn’t sorrowful.**\
 `By Leily Nikounazar and Vivian Yee`\
 https://nytimes.com/live/2024/05/19/world/iran-president-crash/for-some-in-iran-the-response-wasnt-sorrowful
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/learning/how-did-you-grow-and-change-this-school-
 **F.B.I. Shed Informants Linked to Russian Influence Operations**\
 `After a secret review several years ago, the bureau cut off confidential sources thought to be connected to Russian disinformation.`\
 https://nytimes.com/2024/05/20/us/politics/fbi-shed-informants-linked-to-russian-influence-operations.html
-
-**Here Are Some Other Prominent Figures Who Have Died in Helicopter Crashes**\
-`Officials from Ukraine, Kenya and Sudan are just some of the others who have also died in crashes.`\
-https://nytimes.com/2024/05/19/world/middleeast/helicopter-crash-iran-president.html
 

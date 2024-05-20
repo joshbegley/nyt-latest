@@ -1,3 +1,7 @@
+**When Michael Cohen’s Lies Help the Case Against Trump**\
+`The prosecution gets some help for its theory of the crime behind the false documents.`\
+https://nytimes.com/live/2024/05/14/opinion/thepoint/trump-michael-cohen-liar
+
 **For some in Iran, the response wasn’t sorrowful.**\
 `By Leily Nikounazar and Vivian Yee`\
 https://nytimes.com/live/2024/05/19/world/iran-president-crash/for-some-in-iran-the-response-wasnt-sorrowful
