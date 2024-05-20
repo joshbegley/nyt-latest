@@ -1,3 +1,7 @@
+**Global Tensions and a Hostile Neighbor Await Taiwan’s New Leader**\
+`President Lai Ching-te has vowed to stay on his predecessor’s narrow path of resisting Beijing without provoking it. It won’t be easy.`\
+https://nytimes.com/2024/05/19/world/asia/taiwan-president-china-us.html
+
 **Comet Fragment Explodes in Dark Skies Over Spain and Portugal**\
 `A brilliant flash of blue, green and white on Saturday night came from a shard of an as yet unidentified comet that was moving around 100,000 miles per hour, experts said.`\
 https://nytimes.com/2024/05/19/science/comet-fireball-portugal-spain.html
