@@ -1,3 +1,7 @@
+**Top Education Officials Were Warned of FAFSA Overhaul Hurdles in 2020**\
+`Documents obtained by The Times show the department’s troubled FAFSA rollout this year came in spite of early warnings that the project required sustained attention.`\
+https://nytimes.com/2024/05/20/us/politics/fafsa-application-education-department.html
+
 **When Michael Cohen’s Lies Help the Case Against Trump**\
 `The prosecution gets some help for its theory of the crime behind the false documents.`\
 https://nytimes.com/live/2024/05/14/opinion/thepoint/trump-michael-cohen-liar
