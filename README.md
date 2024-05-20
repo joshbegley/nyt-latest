@@ -1,6 +1,6 @@
 **Here are the latest developments.**\
 `By Farnaz Fassihi`\
-https://nytimes.com/2024/05/19/world/middleeast/here-are-the-latest-developments.html
+https://nytimes.com/live/2024/05/19/world/iran-president-crash/here-are-the-latest-developments
 
 **Comet Fragment Explodes in Dark Skies Over Spain and Portugal**\
 `A brilliant flash of blue, green and white on Saturday night came from a shard of an as yet unidentified comet that was moving around 100,000 miles per hour, experts said.`\
