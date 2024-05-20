@@ -1,3 +1,11 @@
+**Biden and Blinken accuse the I.C.C. prosecutor of falsely equating Israel and Hamas.**\
+`By Michael D. Shear`\
+https://nytimes.com/2024/05/20/world/middleeast/icc-warrants-israel-biden-blinken.html
+
+**How the Cockroach Took Over the World**\
+`A genetic analysis of the German cockroach explained its rise in southern Asia millenniums ago, and how it eventually turned up in your kitchen.`\
+https://nytimes.com/2024/05/20/science/cockroach-evolution-cities.html
+
 **How Did You Grow and Change This School Year?**\
 `In this forum, we invite both students and teachers to reflect on their challenges and successes — and to consider how to build on them for next year.`\
 https://nytimes.com/2024/05/20/learning/how-did-you-grow-and-change-this-school-year.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/20/upshot/rent-buy-calculator.html
 **Can Artificial Intelligence Make the PC Cool Again?**\
 `Microsoft, HP, Dell and others unveiled a new kind of laptop tailored to work with artificial intelligence. Analysts expect Apple to do something similar.`\
 https://nytimes.com/2024/05/20/technology/microsoft-copilot-ai-pc.html
-
-**Here are some other leaders for whom the International Criminal Court has issued arrest warrants.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/here-are-some-other-leaders-for-whom-the-international-criminal-court-has-issued-arrest-warrants
-
-**In a House Race in N.H., a Famous Spouse, and a Traumatic Pregnancy**\
-`Maggie Tamposi Goodlander, the wife of the national security adviser, is navigating a personal landscape with little precedent in her run for Congress in New Hampshire.`\
-https://nytimes.com/2024/05/20/us/politics/maggie-goodlander-jake-sullivan.html
 
