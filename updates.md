@@ -1,3 +1,11 @@
+**Chinese Firms Face Authoritarianism at Home and Hostility Abroad**\
+`The experience of TikTok’s owner, ByteDance, in Beijing and Washington shows how much the ground has shifted for China’s entrepreneurs.`\
+https://nytimes.com/2024/05/20/business/china-companies-tiktok-overseas.html
+
+**Julian Assange’s Extradition Appeal Hearing: What Could Happen?**\
+`A hearing on Monday will determine whether Julian Assange has any more recourse in the British courts to appeal his extradition to the United States.`\
+https://nytimes.com/2024/05/20/world/europe/julian-assanges-extradition-appeal-hearing-what-could-happen.html
+
 **See How Easily A.I. Chatbots Can Be Taught to Spew Disinformation**\
 `Ahead of the election this year, the results suggested how easy it could be to create divisive content online, on either side of the political spectrum.`\
 https://nytimes.com/interactive/2024/05/19/technology/biased-ai-chatbots.html
