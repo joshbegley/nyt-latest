@@ -1,3 +1,11 @@
+**Trump’s Eyes Wide Shut Strategy**\
+`The prosecution rested its case. And Trump rested his eyes.`\
+https://nytimes.com/2024/05/20/us/politics/trump-eyes-shut-strategy.html
+
+**N.Y.C. Parents Rebuked for Questioning Transgender Student-Athlete Rules**\
+`Over a dozen Democratic elected officials criticized a parent group that asked for a review of rules that let students play on sports teams that align with their gender identity.`\
+https://nytimes.com/2024/05/20/nyregion/transgender-athletes-nyc-public-schools.html
+
 **U.S. ‘Condolences’ for Raisi Reflect a Delicate Diplomatic Ritual**\
 `Whether it’s Stalin or Castro or Kim Jong-il, the United States struggles for the right words when a reviled foreign strongman dies.`\
 https://nytimes.com/2024/05/20/us/politics/us-condolences-raisi.html
@@ -25,12 +33,4 @@ https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/who-is-kar
 **Iran’s President Died, Opening a New Chapter of Instability**\
 `Also, prosecutors rested their case against Trump. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/05/20/briefing/iran-president-died-icc-arrest-warrant.html
-
-**Trump Media Reports Lackluster Revenues and Large Losses**\
-`The former president’s social media company reported taking in $770,000 in advertising revenue in the first quarter, sharply down from the year-ago period.`\
-https://nytimes.com/2024/05/20/business/trump-media-quarterly-results.html
-
-**A High-Stress Countdown Begins**\
-`The prosecution rested its case and closing arguments are expected to begin next week.`\
-https://nytimes.com/2024/05/20/us/politics/trump-trial-prosecution-rests.html
 

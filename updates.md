@@ -1,3 +1,11 @@
+**Trump’s Eyes Wide Shut Strategy**\
+`The prosecution rested its case. And Trump rested his eyes.`\
+https://nytimes.com/2024/05/20/us/politics/trump-eyes-shut-strategy.html
+
+**N.Y.C. Parents Rebuked for Questioning Transgender Student-Athlete Rules**\
+`Over a dozen Democratic elected officials criticized a parent group that asked for a review of rules that let students play on sports teams that align with their gender identity.`\
+https://nytimes.com/2024/05/20/nyregion/transgender-athletes-nyc-public-schools.html
+
 **U.S. ‘Condolences’ for Raisi Reflect a Delicate Diplomatic Ritual**\
 `Whether it’s Stalin or Castro or Kim Jong-il, the United States struggles for the right words when a reviled foreign strongman dies.`\
 https://nytimes.com/2024/05/20/us/politics/us-condolences-raisi.html
