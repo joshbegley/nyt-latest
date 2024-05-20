@@ -1,3 +1,7 @@
+**At Cannes, Lily Gladstone Scores a Familiar Seat**\
+`The juror found herself at the center of the Kering Women in Motion dinner, a year after she was a little-known guest for “Killers of the Flower Moon.”`\
+https://nytimes.com/2024/05/20/movies/lily-gladstone-cannes-film-festival.html
+
 **Aging helicopters are a sign of the toll sanctions have taken on Iran, experts say.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/05/19/world/iran-president-crash/aging-helicopters-are-a-sign-of-the-toll-sanctions-have-taken-on-iran-experts-say
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/dining/fiery-tingly-kung-pao-tofu.html
 **Doctors Are Still Figuring Out Adult A.D.H.D.**\
 `It’s one of the most common psychiatric disorders in adults. Yet there are no U.S. guidelines for diagnosing and treating patients beyond childhood.`\
 https://nytimes.com/2024/05/20/well/mind/adhd-adults-diagnosis-treatment.html
-
-**Ocasio-Cortez Backs N.Y. Bill Limiting Donations to Israeli Settlements**\
-`Under the bill, New York nonprofits that provide financial support to Israel’s military or settlements could be sued for at least $1 million and lose their tax-exempt status.`\
-https://nytimes.com/2024/05/20/nyregion/ocasio-cortez-israeli-settlements.html
 

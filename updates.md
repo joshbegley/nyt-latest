@@ -1,3 +1,7 @@
+**At Cannes, Lily Gladstone Scores a Familiar Seat**\
+`The juror found herself at the center of the Kering Women in Motion dinner, a year after she was a little-known guest for “Killers of the Flower Moon.”`\
+https://nytimes.com/2024/05/20/movies/lily-gladstone-cannes-film-festival.html
+
 **Aging helicopters are a sign of the toll sanctions have taken on Iran, experts say.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/05/19/world/iran-president-crash/aging-helicopters-are-a-sign-of-the-toll-sanctions-have-taken-on-iran-experts-say
