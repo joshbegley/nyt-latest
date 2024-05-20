@@ -1,3 +1,11 @@
+**What We Know About the Helicopter Crash That Killed Iran’s President**\
+`The deaths of two of Iran’s most high-profile leaders — President Ebrahim Raisi and Foreign Minister Hossein Amir Abdollahian — come at a tumultuous time for the country.`\
+https://nytimes.com/2024/05/20/world/europe/iran-crash-what-we-know.html
+
+**Raisi’s Death Threatens New Instability for Iran**\
+`The sudden death of Iran’s president, Ebrahim Raisi, disrupts a careful effort at a smooth transition to a new supreme leader to replace the aging Ali Khamenei.`\
+https://nytimes.com/2024/05/20/world/europe/raisi-iran-instability.html
+
 **Raisi’s Death Threatens New Instability for Iran**\
 `The sudden death of Iran’s president, Ebrahim Raisi, disrupts a careful effort at a smooth transition to a new supreme leader to replace the aging Ali Khamenei.`\
 https://nytimes.com/2024/05/20/world/europe/raisis-death-threatens-new-instability-for-iran.html
