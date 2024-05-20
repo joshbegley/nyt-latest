@@ -1,6 +1,14 @@
+**Do You Know the Literary Influences of These Animated Films?**\
+`Several 21st-century movies were inspired by popular literature that is much older. Try this short quiz to see how many books and films you recognize.`\
+https://nytimes.com/interactive/2024/05/20/books/review/animated-adaptations-quiz.html
+
 **Legalized Weed Is Landing More Seniors in the E.R.**\
 `In Canada, cannabis poisonings rose sharply among people 65 and older after the country legalized the drug, a new study found.`\
 https://nytimes.com/2024/05/20/science/cannabis-seniors-poisoning.html
+
+**The Author of ‘Crazy Rich Asians’ Can’t Go Home, Except in His Books**\
+`Kevin Kwan left Singapore’s opulent, status-obsessed, upper crust when he was 11. He’s still writing about it.`\
+https://nytimes.com/2024/05/20/books/lies-and-weddings-kevin-kwan.html
 
 **Fiery, Tingly Kung Pao Tofu**\
 `More fast, flavorful dinners: miso-honey chicken and asparagus; roasted salmon with pea pesto; sheet-pan meatballs with tomatoes and broccoli.`\
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/20/movies/emma-stone-jesse-plemons-willem-dafoe-yorg
 **Report Finds ‘Catalog of Failures’ in U.K. Contaminated Blood Scandal**\
 `A six-year inquiry found that the deaths of about 3,000 people and the infection of tens of thousands of others could have mostly been avoided.`\
 https://nytimes.com/2024/05/20/world/europe/britain-contaminated-blood-scandal.html
-
-**I.C.C. Prosecutor Asks for Warrants for Netanyahu and Hamas Leaders**\
-`The International Criminal Court prosecutor said he believed Hamas leaders and Israeli leaders, including Prime Minister Benjamin Netanyahu of Israel and Yahya Sinwar of Hamas, were responsible for war crimes and crimes against humanity.`\
-https://nytimes.com/video/world/middleeast/100000009477536/icc-prosecutor-warrants-netanyahu-hamas.html
-
-**Senate to Vote Again on Border Deal as Democrats Seek Political Edge**\
-`The bipartisan border enforcement compromise, blocked by Republicans in February, is all but certain to be thwarted again. Democrats aim to tag the G.O.P. as the culprit in its failure.`\
-https://nytimes.com/2024/05/20/us/politics/senate-schumer-border-immigration.html
 
