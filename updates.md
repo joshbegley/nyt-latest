@@ -1,3 +1,7 @@
+**Aging helicopters are a sign of the toll sanctions have taken on Iran, experts say.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/05/19/world/iran-president-crash/aging-helicopters-are-a-sign-of-the-toll-sanctions-have-taken-on-iran-experts-say
+
 **Israel’s Denial of Gaza Aid May Lead to an Arrest Warrant**\
 `The court’s efforts underscore the moral stain of the starvation in Gaza.`\
 https://nytimes.com/live/2024/05/14/opinion/thepoint/icc-netanyahu-hamas-israel
