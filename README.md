@@ -1,3 +1,7 @@
+**Robert Costello, First Defense Witness, Advised Cohen Before a Falling Out**\
+`Mr. Costello is expected to cast Michael D. Cohen, the witness at the heart of the prosecution’s case, as a liar.`\
+https://nytimes.com/2024/05/20/nyregion/trump-hush-money-trial-robert-costello.html
+
 **Cohen Endures Cross-Examination Under the Eyes of Trump’s Entourage**\
 `Michael D. Cohen admitted stealing from the Trump Organization, but maintained his cool. The former president arrived with many supporters, some with criminal histories.`\
 https://nytimes.com/2024/05/20/nyregion/michael-cohen-trump-court.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/theater/the-dog-poop-attack-theatertreffen.html
 **She Helped Wage the Fight for $15. Where Will Labor Go After Her?**\
 `Low-wage workers owe a lot to Mary Kay Henry.`\
 https://nytimes.com/2024/05/20/opinion/mary-kay-henry-unions.html
-
-**Biden and Blinken Accuse I.C.C. Prosecutor of Falsely Equating Israel and Hamas**\
-`The forceful denunciations of the International Criminal Court came even as tensions have risen between the United States and Israel over its conduct of the war in Gaza.`\
-https://nytimes.com/2024/05/20/world/middleeast/icc-warrants-israel-biden-blinken.html
 
