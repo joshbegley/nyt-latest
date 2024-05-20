@@ -1,3 +1,7 @@
+**Russia’s War Machine Revs Up as the West’s Plan to Cap Oil Revenues Sputters**\
+`Russia has largely evaded attempts by the U.S. and Europe to keep it from profiting from its energy exports.`\
+https://nytimes.com/2024/05/20/business/russia-oil-price-cap-policy.html
+
 **What to Know About the I.C.C. Prosecutor’s Request for Warrants for Israeli and Hamas Leaders**\
 `The International Criminal Court prosecutor requested arrest warrants for Prime Minister Benjamin Netanyahu of Israel and Hamas leaders. Here is a closer look at the court and the warrant.`\
 https://nytimes.com/2024/05/20/world/middleeast/icc-arrest-warrants-israel-hamas.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/business/dealbook/openai-leike-safety-superalignm
 **Israel Should Expect Little Change From Raisi’s Replacement, Experts Say**\
 `Israel, despite being one of Iran’s biggest foes, saw little strategic benefit from the president’s death and was not likely to change its posture toward Tehran, analysts said.`\
 https://nytimes.com/2024/05/19/world/middleeast/israel-iran-raisi.html
-
-**Assange Can Appeal U.S. Extradition, English Court Rules**\
-`The WikiLeaks founder won his bid to appeal his extradition on espionage charges, opening a new chapter in a prolonged legal battle.`\
-https://nytimes.com/2024/05/20/world/europe/uk-assange-appeal.html
 

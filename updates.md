@@ -1,3 +1,7 @@
+**Russia’s War Machine Revs Up as the West’s Plan to Cap Oil Revenues Sputters**\
+`Russia has largely evaded attempts by the U.S. and Europe to keep it from profiting from its energy exports.`\
+https://nytimes.com/2024/05/20/business/russia-oil-price-cap-policy.html
+
 **What to Know About the I.C.C. Prosecutor’s Request for Warrants for Israeli and Hamas Leaders**\
 `The International Criminal Court prosecutor requested arrest warrants for Prime Minister Benjamin Netanyahu of Israel and Hamas leaders. Here is a closer look at the court and the warrant.`\
 https://nytimes.com/2024/05/20/world/middleeast/icc-arrest-warrants-israel-hamas.html
