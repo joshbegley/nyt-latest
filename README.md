@@ -30,7 +30,7 @@ https://nytimes.com/2024/05/20/arts/senuas-saga-hellblade-2.html
 `Some reservists in the Israel Defense Forces who have returned home from war have joined the growing calls within Israel for Prime Minister Benjamin Netanyahu and his right-wing coalition to step aside.`\
 https://nytimes.com/video/world/middleeast/100000009411435/idf-reservists-netanyahu-israel-war.html
 
-**South Africa’s Highest Court Says Jacob Zuma Can’t Run in Election**\
-`The political comeback of Mr. Zuma, the former president and onetime leader of the African National Congress, has presented a test for the country’s fledgling democracy.`\
+**South Africa’s Highest Court Says Jacob Zuma Can’t Serve in Parliament**\
+`With elections a week away, the political comeback of Mr. Zuma, the former president, has presented a test for the country’s fledgling democracy.`\
 https://nytimes.com/2024/05/20/world/africa/zuma-south-africa.html
 
