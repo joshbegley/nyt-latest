@@ -1,3 +1,7 @@
+**Work to Move Cargo Ship That Crashed Into Baltimore Bridge Starts Slowly**\
+`Workers on Monday were hoping to move the Dali, which had been pinned in by the wreckage of the Francis Scott Key Bridge since late March.`\
+https://nytimes.com/2024/05/20/us/dali-moving-key-bridge-baltimore.html
+
 **The Rise of a New Centrism**\
 `In Washington, despite polarization, bipartisanship has somehow become normal.`\
 https://nytimes.com/2024/05/20/briefing/bipartisanship-congress-neopopulism.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/world/middleeast/iran-mohammad-mokhber.html
 **Will Trump Run as a Felon? A Big 2024 Question Will Soon Be Answered.**\
 `The ruling in the trial of the former president and presumptive Republican nominee, which may come this week, could be a deciding factor in a tight race.`\
 https://nytimes.com/2024/05/20/us/politics/trump-trial-2024-election.html
-
-**The Dangerous Political Headwind Facing Biden**\
-`Many voters who respect the president don’t necessarily want him to return to office.`\
-https://nytimes.com/live/2024/05/14/opinion/thepoint/biden-trump-popularity
 
