@@ -1,3 +1,7 @@
+**The Best of ‘S.N.L.’: Trump Trolling, ‘Dune’ Buckets and Beavis Breakdowns**\
+`Season 49 of “Saturday Night Live” has just ended. Here’s a look back at its most memorable monologues, sketches, product parodies and impressions.`\
+https://nytimes.com/2024/05/20/arts/television/best-of-snl-trump-dune-and-beavis.html
+
 **Amal Clooney Was Among the Experts Consulted on I.C.C. Warrants**\
 `Ms. Clooney, a prominent human rights lawyer, was on a panel that recommended arrest warrants for leaders of Israel and Hamas. She had been criticized for not speaking out on the war.`\
 https://nytimes.com/2024/05/20/world/middleeast/amal-clooney-icc-gaza.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/business/media/james-greenfield-dead.html
 **Do You Know the Literary Influences of These Animated Films?**\
 `Several 21st-century movies were inspired by popular literature that is much older. Try this short quiz to see how many books and films you recognize.`\
 https://nytimes.com/interactive/2024/05/20/books/review/animated-adaptations-quiz.html
-
-**The Author of ‘Crazy Rich Asians’ Can’t Go Home, Except in His Books**\
-`Kevin Kwan left Singapore’s opulent, status-obsessed, upper crust when he was 11. He’s still writing about it.`\
-https://nytimes.com/2024/05/20/books/lies-and-weddings-kevin-kwan.html
 
