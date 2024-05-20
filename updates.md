@@ -1,3 +1,7 @@
+**Ocasio-Cortez Backs N.Y. Bill Limiting Donations to Israeli Settlements**\
+`Under the bill, New York nonprofits that provide financial support to Israel’s military or settlements could be sued for at least $1 million and lose their tax-exempt status.`\
+https://nytimes.com/2024/05/20/nyregion/ocasio-cortez-israeli-settlements.html
+
 **I.C.C. Prosecutor Asks for Warrants for Netanyahu and Hamas Leaders**\
 `The International Criminal Court prosecutor said he believed Hamas leaders and Israeli leaders, including Prime Minister Benjamin Netanyahu of Israel and Yahya Sinwar of Hamas, were responsible for war crimes and crimes against humanity.`\
 https://nytimes.com/video/world/middleeast/100000009477536/icc-prosecutor-warrants-netanyahu-hamas.html
