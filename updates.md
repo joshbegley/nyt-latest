@@ -1,3 +1,11 @@
+**After Raisi’s Death, Speculation Over Succession Turns to Ayatollah’s Son**\
+`Mojtaba Khamenei, 65,  plays an influential role in the office of the supreme leader, Ayatollah Ali Khamenei, and has fostered ties within the security apparatus.`\
+https://nytimes.com/2024/05/20/world/middleeast/iran-raisi-death-supreme-leader.html
+
+**Israeli Leaders Denounce Prosecutor Seeking Warrant on Netanyahu**\
+`Israeli leaders condemned a move by the International Criminal Court prosecutor to seek arrest warrants for Prime Minister Benjamin Netanyahu and Israel’s defense minister on charges of war crimes.`\
+https://nytimes.com/video/world/middleeast/100000009477858/israel-gantz-lapid-gaza-warrant.html
+
 **Hecklers Drown Out Trump’s Backers With Cowbells and Whistles**\
 `A contingent of supporters of the former president came to speak across from the courthouse, but they were inaudible.`\
 https://nytimes.com/2024/05/20/nyregion/trump-supporters-new-york.html
