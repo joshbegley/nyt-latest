@@ -1,3 +1,7 @@
+**Raisi’s Death Threatens New Instability for Iran**\
+`The sudden death of Iran’s president, Ebrahim Raisi, disrupts a careful effort at a smooth transition to a new supreme leader to replace the aging Ali Khamenei.`\
+https://nytimes.com/2024/05/20/world/europe/raisis-death-threatens-new-instability-for-iran.html
+
 **Closing Arguments in Trump’s Trial Will Likely Be Next Week, Judge Says**\
 `Defense lawyers have the opportunity to call witnesses, including their client, former President Donald J. Trump, but whether he will testify is not clear. Then the case goes to the jury.`\
 https://nytimes.com/2024/05/20/nyregion/trump-trial-schedule.html
