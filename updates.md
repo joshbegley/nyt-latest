@@ -1,3 +1,11 @@
+**One of the first aid shipments to arrive at a U.S.-built pier was looted.**\
+`By Adam Rasgon and Patrick Kingsley`\
+https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/one-of-the-first-aid-shipments-to-arrive-at-a-us-built-pier-was-looted
+
+**Can Artificial Intelligence Make the PC Cool Again?**\
+`Microsoft, HP, Dell and others unveiled a new kind of laptop tailored to work with artificial intelligence. Analysts expect Apple to do something similar.`\
+https://nytimes.com/2024/05/20/technology/microsoft-copilot-ai-pc.html
+
 **Renting or Buying Is Often Personal, but It’s Also Helpful to Look at the Numbers**\
 `The Upshot’s financial calculator has been updated with new features.`\
 https://nytimes.com/2024/05/20/upshot/rent-buy-calculator.html
