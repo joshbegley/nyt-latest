@@ -1,3 +1,7 @@
+**See How Easily A.I. Chatbots Can Be Taught to Spew Disinformation**\
+`Ahead of the election this year, the results suggested how easy it could be to create divisive content online, on either side of the political spectrum.`\
+https://nytimes.com/interactive/2024/05/19/technology/biased-ai-chatbots.html
+
 **Here are the latest developments.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/05/19/world/iran-president-crash/here-are-the-latest-developments

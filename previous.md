@@ -1,3 +1,7 @@
+**See How Easily A.I. Chatbots Can Be Taught to Spew Disinformation**\
+`Ahead of the election this year, the results suggested how easy it could be to create divisive content online, on either side of the political spectrum.`\
+https://nytimes.com/interactive/2024/05/19/technology/biased-ai-chatbots.html
+
 **Here are the latest developments.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/05/19/world/iran-president-crash/here-are-the-latest-developments
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/19/arts/design/kehinde-wiley-denies-sexual-assault-a
 **Purple Pop**\
 `Jack Scherban makes his New York Times debut.`\
 https://nytimes.com/2024/05/19/crosswords/daily-puzzle-2024-05-20.html
-
-**Critics Fault ‘Aggressive’ N.Y.P.D. Response to Pro-Palestinian Rally**\
-`Officers were filmed punching three demonstrators at the protest in Bay Ridge, Brooklyn. The police said protesters were blocking the streets.`\
-https://nytimes.com/2024/05/19/nyregion/brooklyn-protest-palestinian-police.html
 
