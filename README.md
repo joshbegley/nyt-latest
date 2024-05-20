@@ -1,3 +1,7 @@
+**City Hall Aide Is Cooperating With Corruption Investigation Into Adams**\
+`Eric Adams’s former liaison to the Turkish community, Rana Abbasova, had knowledge of some of the mayor’s dealings with Turkish officials.`\
+https://nytimes.com/2024/05/20/nyregion/adams-fbi-corruption-investigation-aide.html
+
 **Biden says there is ‘no equivalence between Israel and Hamas.’**\
 `The president, s`\
 https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/biden-israel-gaza-genocide
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/former-tru
 **The Death of Iran’s President Does Not Bode Well**\
 `The generation on the cusp of taking power in Iran sees domestic oppression and foreign aggression as indispensable to the success of the revolution.`\
 https://nytimes.com/2024/05/20/opinion/international-world/iran-president-death.html
-
-**Not Your Grandparents’ Mahjong Table**\
-`Green Tile Social Club hosted its first tournament, where a younger generation gathered to play an old game and meet new friends.`\
-https://nytimes.com/2024/05/20/style/mahjong-green-tile-social-club.html
 
