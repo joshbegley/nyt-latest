@@ -1,3 +1,7 @@
+**Ebrahim Raisi, Iran’s President, Dies in Helicopter Crash at 63**\
+`The hard-line Shiite cleric was seen as a possible successor to Iran’s supreme leader. Mr. Raisi’s death comes at a moment of turbulence for a country facing a deepening conflict with Israel.`\
+https://nytimes.com/2024/05/20/world/europe/ebrahim-raisi-iran-dead.html
+
 **Europe Wants to Build a Stronger Defense Industry, but Can’t Decide How**\
 `Conflicting political visions, competitive jockeying and American dominance stand in the way of a more coordinated and efficient military machine.`\
 https://nytimes.com/2024/05/20/business/economy/europe-defense-spending.html

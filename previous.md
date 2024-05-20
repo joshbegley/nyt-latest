@@ -1,3 +1,7 @@
+**Ebrahim Raisi, Iran’s President, Dies in Helicopter Crash at 63**\
+`The hard-line Shiite cleric was seen as a possible successor to Iran’s supreme leader. Mr. Raisi’s death comes at a moment of turbulence for a country facing a deepening conflict with Israel.`\
+https://nytimes.com/2024/05/20/world/europe/ebrahim-raisi-iran-dead.html
+
 **Europe Wants to Build a Stronger Defense Industry, but Can’t Decide How**\
 `Conflicting political visions, competitive jockeying and American dominance stand in the way of a more coordinated and efficient military machine.`\
 https://nytimes.com/2024/05/20/business/economy/europe-defense-spending.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/science/100000009476873/comet-bright-spain-portugal.ht
 **Global Tensions and a Hostile Neighbor Await Taiwan’s New Leader**\
 `President Lai Ching-te has vowed to stay on his predecessor’s narrow path of resisting Beijing without provoking it. It won’t be easy.`\
 https://nytimes.com/2024/05/19/world/asia/taiwan-president-china-us.html
-
-**Bruce Nordstrom, Who Helped Lead His Family’s Retail Empire, Dies at 90**\
-`Though he was the company’s president, he opted for joint leadership with family members as they made Nordstrom, starting as a string of shoe stores, into an international fashion retail brand.`\
-https://nytimes.com/2024/05/19/business/bruce-nordstrom-dead.html
 
