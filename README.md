@@ -1,3 +1,7 @@
+**The Prosecution Rests: Five Takeaways From Trump’s Criminal Trial**\
+`The judge became furious with a defense witness, a former Hells Angels leader turned up and Michael D. Cohen kept his cool.`\
+https://nytimes.com/2024/05/20/nyregion/trump-trial-ny-hush-money-takeaways.html
+
 **Former Trump Officials Meet in Israel With Netanyahu**\
 `Robert O’Brien, one of Donald Trump’s closest foreign policy advisers, said he was there as a “private citizen.”`\
 https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/former-trump-officials-meet-in-israel-with-netanyahu
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/us/politics/trump-trial-prosecution-rests.html
 **Design Popularized by Internet ‘It’ Girls Gets a Pop-up**\
 `A crowd lined up in Los Angeles’s Echo Park neighborhood to buy designer Gustaf Westman’s curvy, chunky, bold objects.`\
 https://nytimes.com/2024/05/20/style/gustaf-westman-pop-up-design-store-los-angeles.html
-
-**Iran Moves to Project Stability After Crash Kills Key Leaders**\
-`The ayatollah announced five days of mourning for the president and foreign minister who died when their helicopter plunged into a mountainous region. Some Iranians celebrated the deaths.`\
-https://nytimes.com/2024/05/20/world/middleeast/iran-crash-helicopter-president.html
 
