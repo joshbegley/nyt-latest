@@ -1,3 +1,11 @@
+**Aggression or Caution: The Choice Facing Iran’s Next Leaders**\
+`The question is whether the successors to the president and foreign minister will take a similar path by keeping slivers of communication open, and avoiding direct conflict with the United States.`\
+https://nytimes.com/2024/05/20/us/politics/iran-raisi-us-negotiations.html
+
+**After Raisi’s Death, Speculation Over Succession Turns to Ayatollah’s Son**\
+`Mojtaba Khamenei, 55,  plays an influential role in the office of the supreme leader, Ayatollah Ali Khamenei, and has fostered ties within the security apparatus.`\
+https://nytimes.com/2024/05/20/world/middleeast/iran-raisi-death-supreme-leader.html
+
 **One of the first aid shipments to arrive at a U.S.-built pier was looted.**\
 `By Adam Rasgon and Patrick Kingsley`\
 https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/one-of-the-first-aid-shipments-to-arrive-at-a-us-built-pier-was-looted

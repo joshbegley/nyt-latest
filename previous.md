@@ -1,3 +1,7 @@
+**Aggression or Caution: The Choice Facing Iran’s Next Leaders**\
+`The question is whether the successors to the president and foreign minister will take a similar path by keeping slivers of communication open, and avoiding direct conflict with the United States.`\
+https://nytimes.com/2024/05/20/us/politics/iran-raisi-us-negotiations.html
+
 **One of the first aid shipments to arrive at a U.S.-built pier was looted.**\
 `By Adam Rasgon and Patrick Kingsley`\
 https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/one-of-the-first-aid-shipments-to-arrive-at-a-us-built-pier-was-looted
@@ -19,7 +23,7 @@ https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/here-are-s
 https://nytimes.com/2024/05/20/us/politics/maggie-goodlander-jake-sullivan.html
 
 **After Raisi’s Death, Speculation Over Succession Turns to Ayatollah’s Son**\
-`Mojtaba Khamenei, 65,  plays an influential role in the office of the supreme leader, Ayatollah Ali Khamenei, and has fostered ties within the security apparatus.`\
+`Mojtaba Khamenei, 55,  plays an influential role in the office of the supreme leader, Ayatollah Ali Khamenei, and has fostered ties within the security apparatus.`\
 https://nytimes.com/2024/05/20/world/middleeast/iran-raisi-death-supreme-leader.html
 
 **Israeli Leaders Denounce Prosecutor Seeking Warrant on Netanyahu**\
@@ -29,8 +33,4 @@ https://nytimes.com/video/world/middleeast/100000009477858/israel-gantz-lapid-ga
 **Hecklers Drown Out Trump’s Backers With Cowbells and Whistles**\
 `A contingent of supporters of the former president came to speak across from the courthouse, but they were inaudible.`\
 https://nytimes.com/2024/05/20/nyregion/trump-supporters-new-york.html
-
-**Sexual Assault Suit Against Neil Portnow, Ex-Grammys Chief, Is Dismissed**\
-`The plaintiff, who had filed her suit anonymously, told a judge that she feared the consequences if efforts to reveal her name during the proceeding were successful.`\
-https://nytimes.com/2024/05/20/arts/music/neil-portnow-grammys-sexual-assault-dismissed.html
 
