@@ -1,3 +1,15 @@
+**Legalized Weed Is Landing More Seniors in the E.R.**\
+`In Canada, cannabis poisonings rose sharply among people 65 and older after the country legalized the drug, a new study found.`\
+https://nytimes.com/2024/05/20/science/cannabis-seniors-poisoning.html
+
+**Fiery, Tingly Kung Pao Tofu**\
+`More fast, flavorful dinners: miso-honey chicken and asparagus; roasted salmon with pea pesto; sheet-pan meatballs with tomatoes and broccoli.`\
+https://nytimes.com/2024/05/20/dining/fiery-tingly-kung-pao-tofu.html
+
+**Doctors Are Still Figuring Out Adult A.D.H.D.**\
+`It’s one of the most common psychiatric disorders in adults. Yet there are no U.S. guidelines for diagnosing and treating patients beyond childhood.`\
+https://nytimes.com/2024/05/20/well/mind/adhd-adults-diagnosis-treatment.html
+
 **Ocasio-Cortez Backs N.Y. Bill Limiting Donations to Israeli Settlements**\
 `Under the bill, New York nonprofits that provide financial support to Israel’s military or settlements could be sued for at least $1 million and lose their tax-exempt status.`\
 https://nytimes.com/2024/05/20/nyregion/ocasio-cortez-israeli-settlements.html
@@ -21,16 +33,4 @@ https://nytimes.com/video/world/middleeast/100000009477536/icc-prosecutor-warran
 **Senate to Vote Again on Border Deal as Democrats Seek Political Edge**\
 `The bipartisan border enforcement compromise, blocked by Republicans in February, is all but certain to be thwarted again. Democrats aim to tag the G.O.P. as the culprit in its failure.`\
 https://nytimes.com/2024/05/20/us/politics/senate-schumer-border-immigration.html
-
-**A Netanyahu rival said a warrant for his arrest would be a ‘historic crime.’**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/a-netanyahu-rival-said-a-warrant-for-his-arrest-would-be-a-historic-crime
-
-**Russia’s War Machine Revs Up as the West’s Plan to Cap Oil Revenues Sputters**\
-`Russia has largely evaded attempts by the U.S. and Europe to keep it from profiting from its energy exports.`\
-https://nytimes.com/2024/05/20/business/russia-oil-price-cap-policy.html
-
-**What to Know About the I.C.C. Prosecutor’s Request for Warrants for Israeli and Hamas Leaders**\
-`The International Criminal Court prosecutor requested arrest warrants for Prime Minister Benjamin Netanyahu of Israel and Hamas leaders. Here is a closer look at the court and the warrant.`\
-https://nytimes.com/2024/05/20/world/middleeast/icc-arrest-warrants-israel-hamas.html
 

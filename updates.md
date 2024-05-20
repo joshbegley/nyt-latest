@@ -1,3 +1,15 @@
+**Legalized Weed Is Landing More Seniors in the E.R.**\
+`In Canada, cannabis poisonings rose sharply among people 65 and older after the country legalized the drug, a new study found.`\
+https://nytimes.com/2024/05/20/science/cannabis-seniors-poisoning.html
+
+**Fiery, Tingly Kung Pao Tofu**\
+`More fast, flavorful dinners: miso-honey chicken and asparagus; roasted salmon with pea pesto; sheet-pan meatballs with tomatoes and broccoli.`\
+https://nytimes.com/2024/05/20/dining/fiery-tingly-kung-pao-tofu.html
+
+**Doctors Are Still Figuring Out Adult A.D.H.D.**\
+`It’s one of the most common psychiatric disorders in adults. Yet there are no U.S. guidelines for diagnosing and treating patients beyond childhood.`\
+https://nytimes.com/2024/05/20/well/mind/adhd-adults-diagnosis-treatment.html
+
 **Ocasio-Cortez Backs N.Y. Bill Limiting Donations to Israeli Settlements**\
 `Under the bill, New York nonprofits that provide financial support to Israel’s military or settlements could be sued for at least $1 million and lose their tax-exempt status.`\
 https://nytimes.com/2024/05/20/nyregion/ocasio-cortez-israeli-settlements.html
