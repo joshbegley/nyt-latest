@@ -1,3 +1,15 @@
+**Bank Regulator Overseeing ‘Toxic’ Culture Loses Key Supporter in Senate**\
+`Senator Sherrod Brown, who chairs the Senate Banking Committee, called for President Biden to replace Martin Gruenberg as leader of the F.D.I.C.`\
+https://nytimes.com/2024/05/20/business/fdic-gruenberg-replace.html
+
+**Let Justice in the Gaza War Take Its Course**\
+`The request for International Criminal Court arrest warrants promotes the idea that the basic rules of international humanitarian law apply to all.`\
+https://nytimes.com/2024/05/20/opinion/palestinians-israel-international-criminal-court-justice.html
+
+**As New Yorkers Turn on Mayor Adams, Prominent Democrats Join the Pile-On**\
+`Former Gov. Andrew M. Cuomo and Jumaane Williams, New York City’s public advocate, criticized the mayor over his management of public housing and campus protests.`\
+https://nytimes.com/2024/05/20/nyregion/adams-cuomo-jumaane-williams.html
+
 **Cannes Meets Trump: ‘The Apprentice’ Sells a Controversial Origin Story**\
 `The film covers Donald J. Trump’s relationships with the fixer Roy Cohn and his first wife, Ivana, and tries to explain the future president, at least as a young man.`\
 https://nytimes.com/2024/05/20/movies/trump-movie-cannes-film-festival-apprentice.html
