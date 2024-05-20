@@ -1,3 +1,7 @@
+**World leaders react to Raisi’s death.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/05/19/world/iran-president-helicopter-crash/world-leaders-react-to-raisis-death
+
 **What to Know About Mohammad Mokhber, Iran’s Acting President**\
 `Mr. Mokhber has long been involved in business conglomerates tied to Iran’s supreme leader, Ayatollah Ali Khamenei. He must hold elections for a new president within 50 days.`\
 https://nytimes.com/2024/05/20/world/middleeast/iran-mohammad-mokhber.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/opinion/trump-conviction-michael-cohen.html
 **Is There an Alternative to the Little Black Dress?**\
 `Plenty of other garments can be used as the basis for simple, chic looks for a variety of occasions, our critic writes.`\
 https://nytimes.com/2024/05/20/style/little-black-dress-alternative.html
-
-**Ruben Gallego and the Fight for Arizona**\
-`The Grand Canyon State is up for grabs — and so is its political future.`\
-https://nytimes.com/2024/05/20/opinion/ruben-gallego-arizona.html
 
