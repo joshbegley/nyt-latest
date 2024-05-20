@@ -1,3 +1,7 @@
+**International Criminal Court Prosecutor Requests Warrants for Netanyahu and Hamas Leaders**\
+`While the request must be approved by the court’s judges, the announcement is a blow to Mr. Netanyahu and will likely fuel international criticism of Israel’s war strategy in Gaza.`\
+https://nytimes.com/2024/05/20/world/middleeast/icc-hamas-netanyahu.html
+
 **Red Lobster, an American Seafood Institution, Files for Bankruptcy**\
 `Facing challenges since the pandemic, the seafood chain said it would reduce its locations and sell of most of its assets.`\
 https://nytimes.com/2024/05/20/us/red-lobster-bankruptcy.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/podcasts/the-daily/401k-retirement.html
 **World leaders react to Raisi’s death.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/05/19/world/iran-president-helicopter-crash/world-leaders-react-to-raisis-death
-
-**What to Know About Mohammad Mokhber, Iran’s Acting President**\
-`Mr. Mokhber has long been involved in business conglomerates tied to Iran’s supreme leader, Ayatollah Ali Khamenei. He must hold elections for a new president within 50 days.`\
-https://nytimes.com/2024/05/20/world/middleeast/iran-mohammad-mokhber.html
 
