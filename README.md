@@ -1,3 +1,11 @@
+**Israel’s Denial of Gaza Aid May Lead to an Arrest Warrant**\
+`The court’s efforts underscore the moral stain of the starvation in Gaza.`\
+https://nytimes.com/live/2024/05/14/opinion/thepoint/icc-netanyahu-hamas-israel
+
+**James Greenfield, Globe-Trotting Reporter and Times Editor, Dies at 99**\
+`He wrote about world affairs for Time magazine and worked at the State Department before becoming a senior editor at The New York Times in 1967.`\
+https://nytimes.com/2024/05/20/business/media/james-greenfield-dead.html
+
 **Do You Know the Literary Influences of These Animated Films?**\
 `Several 21st-century movies were inspired by popular literature that is much older. Try this short quiz to see how many books and films you recognize.`\
 https://nytimes.com/interactive/2024/05/20/books/review/animated-adaptations-quiz.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/20/nyregion/ocasio-cortez-israeli-settlements.html
 **A Former Leader of the Hells Angels Motorcycle Gang Joins Trump in Court**\
 `Chuck Zito, who did time on drug conspiracy charges, has tried to recast his persona as a general-purpose tough guy around town.`\
 https://nytimes.com/2024/05/20/nyregion/chuck-zito-hells-angels-trump-trial.html
-
-**Emma Stone, Jesse Plemons and Willem Dafoe Crack the Yorgos Lanthimos Code**\
-`The stars of his newest film, “Kinds of Kindness” explain that when working with the director, the less you know, the better.`\
-https://nytimes.com/2024/05/20/movies/emma-stone-jesse-plemons-willem-dafoe-yorgos-lanthimos-kinds-of-kindness.html
-
-**Report Finds ‘Catalog of Failures’ in U.K. Contaminated Blood Scandal**\
-`A six-year inquiry found that the deaths of about 3,000 people and the infection of tens of thousands of others could have mostly been avoided.`\
-https://nytimes.com/2024/05/20/world/europe/britain-contaminated-blood-scandal.html
 
