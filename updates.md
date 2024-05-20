@@ -1,3 +1,11 @@
+**Comet Fragment Explodes in Dark Skies Over Spain and Portugal**\
+`A brilliant flash of blue, green and white on Saturday night came from a shard of an as yet unidentified comet that was moving around 100,000 miles per hour, experts said.`\
+https://nytimes.com/2024/05/19/science/comet-fireball-portugal-spain.html
+
+**Comet Fragment Flashes in the Night Sky Over Spain and Portugal**\
+`A bright object broke up in Earth’s atmosphere on Saturday night, illuminating night skies over parts of Spain and Portugal. Experts say it was a fragment of a comet, perhaps only a few feet in size.`\
+https://nytimes.com/video/science/100000009476873/comet-bright-spain-portugal.html
+
 **Global Tensions and a Hostile Neighbor Await Taiwan’s New Leader**\
 `Lai Ching-te, the incoming president, has vowed to stay on his predecessor’s narrow path of resisting Beijing without provoking it. It won’t be easy.`\
 https://nytimes.com/2024/05/19/world/asia/taiwan-president-china-us.html
