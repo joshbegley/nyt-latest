@@ -1,3 +1,11 @@
+**Renting or Buying Is Often Personal, but It’s Also Helpful to Look at the Numbers**\
+`The Upshot’s financial calculator has been updated with new features.`\
+https://nytimes.com/2024/05/20/upshot/rent-buy-calculator.html
+
+**Can Artificial Intelligence Make the PC Cool Again?**\
+`Microsoft, HP, Dell and others unveiled a new kind of laptop tailored to work with artificial intelligence. Analysts expect Apple to do something similar.`\
+https://nytimes.com/2024/05/20/technology/artificial-intelligence-pc-computers.html
+
 **Bank Regulator Overseeing ‘Toxic’ Culture Loses Key Supporter in Senate**\
 `Senator Sherrod Brown, the chair of the Senate Banking Committee, called for President Biden to replace Martin Gruenberg as leader of the F.D.I.C.`\
 https://nytimes.com/2024/05/20/business/fdic-gruenberg-replace.html
