@@ -1,3 +1,7 @@
+**Do You Know the Literary Influences of These Animated Films?**\
+`Several 21st-century movies were inspired by popular literature that is much older. Try this short quiz to see how many books and films you recognize.`\
+https://nytimes.com/interactive/2024/05/20/books/review/animated-adaptations-quiz.html
+
 **Legalized Weed Is Landing More Seniors in the E.R.**\
 `In Canada, cannabis poisonings rose sharply among people 65 and older after the country legalized the drug, a new study found.`\
 https://nytimes.com/2024/05/20/science/cannabis-seniors-poisoning.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/movies/emma-stone-jesse-plemons-willem-dafoe-yorg
 **Report Finds ‘Catalog of Failures’ in U.K. Contaminated Blood Scandal**\
 `A six-year inquiry found that the deaths of about 3,000 people and the infection of tens of thousands of others could have mostly been avoided.`\
 https://nytimes.com/2024/05/20/world/europe/britain-contaminated-blood-scandal.html
-
-**I.C.C. Prosecutor Asks for Warrants for Netanyahu and Hamas Leaders**\
-`The International Criminal Court prosecutor said he believed Hamas leaders and Israeli leaders, including Prime Minister Benjamin Netanyahu of Israel and Yahya Sinwar of Hamas, were responsible for war crimes and crimes against humanity.`\
-https://nytimes.com/video/world/middleeast/100000009477536/icc-prosecutor-warrants-netanyahu-hamas.html
 
