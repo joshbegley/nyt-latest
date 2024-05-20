@@ -1,3 +1,7 @@
+**Israel and Gaza: Despair and What-Ifs**\
+`Readers disagree about a guest essay by Megan K. Stack. Also: Big politics in politics; “journey” as metaphor; helping the mentally ill and homeless.`\
+https://nytimes.com/2024/05/20/opinion/israel-gaza-despair.html
+
 **‘Stax: Soulsville, U.S.A.’ Review: Looking for a Little Respect**\
 `An HBO series tells the triumphant, tragic story of the record label Otis Redding, Isaac Hayes and the Staple Singers called home.`\
 https://nytimes.com/2024/05/20/arts/television/stax-soulsville-usa-review-hbo.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/world/europe/russia-ukraine-lights.html
 **At Cannes, Lily Gladstone Scores a Familiar Seat**\
 `The juror found herself at the center of the Kering Women in Motion dinner, a year after she was a little-known guest for “Killers of the Flower Moon.”`\
 https://nytimes.com/2024/05/20/movies/lily-gladstone-cannes-film-festival.html
-
-**Aging helicopters are a sign of the toll sanctions have taken on Iran, experts say.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/05/19/world/iran-president-crash/aging-helicopters-are-a-sign-of-the-toll-sanctions-have-taken-on-iran-experts-say
 
