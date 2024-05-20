@@ -1,3 +1,11 @@
+**Comet Fragment Explodes in Dark Skies Over Spain and Portugal**\
+`A brilliant flash of blue, green and white on Saturday night came from a shard of an as yet unidentified comet that was moving around 100,000 miles per hour, experts said.`\
+https://nytimes.com/2024/05/19/science/comet-fireball-portugal-spain.html
+
+**Comet Fragment Flashes in the Night Sky Over Spain and Portugal**\
+`A bright object broke up in Earth’s atmosphere on Saturday night, illuminating night skies over parts of Spain and Portugal. Experts say it was a fragment of a comet, perhaps only a few feet in size.`\
+https://nytimes.com/video/science/100000009476873/comet-bright-spain-portugal.html
+
 **Global Tensions and a Hostile Neighbor Await Taiwan’s New Leader**\
 `Lai Ching-te, the incoming president, has vowed to stay on his predecessor’s narrow path of resisting Beijing without provoking it. It won’t be easy.`\
 https://nytimes.com/2024/05/19/world/asia/taiwan-president-china-us.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/19/nyregion/brooklyn-protest-palestinian-police.html
 **‘Nobody Cares’ About Laura Benanti, but They Let Her Entertain Them**\
 `While poking fun at her own agreeable malleability, Benanti flexes her talents in a show that will be available on Audible, without the physical dimension.`\
 https://nytimes.com/2024/05/19/theater/nobody-cares-laura-benanti-audible.html
-
-**Monday Briefing: Iran’s President Is Missing After a Helicopter Crash**\
-`Also, Russian troops moved closer to Kharkiv.`\
-https://nytimes.com/2024/05/19/world/asia/iran-raisi-search-kharkiv-asia.html
-
-**As U.S. Waits on Raisi’s Fate, Several Confrontations Are Brewing**\
-`Iran and the United States are groping their way out of several simultaneous crises, including over the Islamic Republic’s nuclear program.`\
-https://nytimes.com/2024/05/19/world/middleeast/us-iran-raisi-crash.html
 
