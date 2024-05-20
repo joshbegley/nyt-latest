@@ -1,3 +1,7 @@
+**Here are the latest developments.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/05/19/world/iran-president-crash/here-are-the-latest-developments
+
 **Global Tensions and a Hostile Neighbor Await Taiwan’s New Leader**\
 `President Lai Ching-te has vowed to stay on his predecessor’s narrow path of resisting Beijing without provoking it. It won’t be easy.`\
 https://nytimes.com/2024/05/19/world/asia/taiwan-president-china-us.html
