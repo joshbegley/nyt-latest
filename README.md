@@ -6,9 +6,9 @@ https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/leaders-of
 `Former employees of the ChatGPT maker raised concerns that it isn’t doing enough to make sure its products don’t pose a threat to humanity.`\
 https://nytimes.com/2024/05/20/business/dealbook/openai-leike-safety-superalignment.html
 
-**Israel should expect little change from Raisi’s replacement, experts say.**\
-`By Patrick Kingsley`\
-https://nytimes.com/live/2024/05/19/world/iran-president-crash/israel-should-expect-little-change-from-raisis-replacement-experts-say
+**Israel Should Expect Little Change From Raisi’s Replacement, Experts Say**\
+`Israel, despite being one of Iran’s biggest foes, saw little strategic benefit from the president’s death and was not likely to change its posture toward Tehran, analysts said.`\
+https://nytimes.com/2024/05/19/world/middleeast/israel-iran-raisi.html
 
 **Assange Can Appeal U.S. Extradition, English Court Rules**\
 `The WikiLeaks founder won his bid to appeal his extradition on espionage charges, opening a new chapter in a prolonged legal battle.`\
