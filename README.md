@@ -12,7 +12,7 @@ https://nytimes.com/2024/05/20/us/politics/fafsa-application-education-departmen
 
 **When Michael Cohen’s Lies Help the Case Against Trump**\
 `The prosecution gets some help for its theory of the crime behind the false documents.`\
-https://nytimes.com/live/2024/05/14/opinion/thepoint/trump-michael-cohen-liar
+https://nytimes.com/2024/05/14/opinion/trump-michael-cohen-liar.html
 
 **For some in Iran, the response wasn’t sorrowful.**\
 `By Leily Nikounazar and Vivian Yee`\
