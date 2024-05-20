@@ -1,3 +1,7 @@
+**Europe Wants to Build a Stronger Defense Industry, but Can’t Decide How**\
+`Conflicting political visions, competitive jockeying and American dominance stand in the way of a more coordinated and efficient military machine.`\
+https://nytimes.com/2024/05/20/business/economy/europe-defense-spending.html
+
 **Chinese Firms Face Authoritarianism at Home and Hostility Abroad**\
 `The experience of TikTok’s owner, ByteDance, in Beijing and Washington shows how much the ground has shifted for China’s entrepreneurs.`\
 https://nytimes.com/2024/05/20/business/china-companies-tiktok-overseas.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/19/world/asia/taiwan-president-china-us.html
 **Bruce Nordstrom, Who Helped Lead His Family’s Retail Empire, Dies at 90**\
 `Though he was the company’s president, he opted for joint leadership with family members as they made Nordstrom, starting as a string of shoe stores, into an international fashion retail brand.`\
 https://nytimes.com/2024/05/19/business/bruce-nordstrom-dead.html
-
-**Hochul Visits an Ancestral Home, 3,000 Miles From the Governor’s Mansion**\
-`After meeting the pope and the mayors of Rome, London and Dublin, Gov. Kathy Hochul of New York paused to reconnect with her past.`\
-https://nytimes.com/2024/05/19/nyregion/hochul-ireland.html
 

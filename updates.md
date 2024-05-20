@@ -1,3 +1,7 @@
+**Europe Wants to Build a Stronger Defense Industry, but Can’t Decide How**\
+`Conflicting political visions, competitive jockeying and American dominance stand in the way of a more coordinated and efficient military machine.`\
+https://nytimes.com/2024/05/20/business/economy/europe-defense-spending.html
+
 **Chinese Firms Face Authoritarianism at Home and Hostility Abroad**\
 `The experience of TikTok’s owner, ByteDance, in Beijing and Washington shows how much the ground has shifted for China’s entrepreneurs.`\
 https://nytimes.com/2024/05/20/business/china-companies-tiktok-overseas.html
