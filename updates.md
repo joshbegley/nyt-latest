@@ -1,3 +1,7 @@
+**The Prosecution Rests: Five Takeaways From Trump’s Criminal Trial**\
+`The judge became furious with a defense witness, a former Hells Angels leader turned up and Michael D. Cohen kept his cool.`\
+https://nytimes.com/2024/05/20/nyregion/trump-trial-ny-hush-money-takeaways.html
+
 **Former Trump Officials Meet in Israel With Netanyahu**\
 `Robert O’Brien, one of Donald Trump’s closest foreign policy advisers, said he was there as a “private citizen.”`\
 https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/former-trump-officials-meet-in-israel-with-netanyahu
