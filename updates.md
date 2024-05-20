@@ -1,3 +1,11 @@
+**Ivan F. Boesky, Rogue Trader in 1980s Wall Street Scandal, Dies at 87**\
+`An inspiration for the Gordon Gekko character in the movie “Wall Street,” he made a fortune from insider trading before his downfall brought a crashing end to a decade of greed.`\
+https://nytimes.com/2024/05/20/business/ivan-f-boesky-dead.html
+
+**Faced With a Russian Onslaught, Ukraine Struggles to Keep the Lights On**\
+`The government has for the first time ordered nationwide rolling blackouts for Monday night to conserve energy.`\
+https://nytimes.com/2024/05/20/world/europe/russia-ukraine-lights.html
+
 **Faced With a Russian Onslaught, Ukraine Struggles to Keep the Lights On**\
 `The government has for the first time ordered nationwide rolling blackouts for Monday night to conserve energy.`\
 https://nytimes.com/2024/05/20/world/europe/faced-with-a-russian-onslaught-ukraine-struggles-to-keep-the-lights-on.html
