@@ -1,3 +1,7 @@
+**Amal Clooney Was Among the Experts Consulted on I.C.C. Warrants**\
+`Ms. Clooney, a prominent human rights lawyer, was on a panel that recommended arrest warrants for leaders of Israel and Hamas. She had been criticized for not speaking out on the war.`\
+https://nytimes.com/2024/05/20/world/middleeast/amal-clooney-icc-gaza.html
+
 **Ivan F. Boesky, Rogue Trader in 1980s Wall Street Scandal, Dies at 87**\
 `An inspiration for the Gordon Gekko character in the movie “Wall Street,” he made a fortune from insider trading before his downfall brought a crashing end to a decade of greed.`\
 https://nytimes.com/2024/05/20/business/ivan-f-boesky-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/interactive/2024/05/20/books/review/animated-adaptations-qui
 **The Author of ‘Crazy Rich Asians’ Can’t Go Home, Except in His Books**\
 `Kevin Kwan left Singapore’s opulent, status-obsessed, upper crust when he was 11. He’s still writing about it.`\
 https://nytimes.com/2024/05/20/books/lies-and-weddings-kevin-kwan.html
-
-**Legalized Weed Is Landing More Seniors in the E.R.**\
-`In Canada, cannabis poisonings rose sharply among people 65 and older after the country legalized the drug, a new study found.`\
-https://nytimes.com/2024/05/20/science/cannabis-seniors-poisoning.html
 
