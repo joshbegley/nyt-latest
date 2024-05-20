@@ -1,36 +1,36 @@
-**Should States Provide Recent High School Graduates With Jobs in Public Service?**\
-`Maryland has an initiative to help residents find paid work in areas like community development and public health. Tell us if such a program interests you.`\
-https://nytimes.com/2024/05/20/learning/should-states-provide-recent-high-school-graduates-with-jobs-in-public-service.html
+**We’re Suddenly Living in a ‘My Wife Did It’ Moment**\
+`Justice Alito and Senator Menendez have one thing in common.`\
+https://nytimes.com/2024/05/20/opinion/trump-biden-debates-trial-vp.html
 
-**Is Biodegradable Plastic Really a Thing?**\
-`Technically, it exists. But here’s what to think about when shopping.`\
-https://nytimes.com/2024/05/20/climate/ask-nyt-climate-biodegradable-plastic.html
+**A Trump Conviction Doesn’t Hang on Michael Cohen**\
+`As provocative as the testimony has been, this case may turn on something a great deal more mundane.`\
+https://nytimes.com/2024/05/20/opinion/trump-conviction-michael-cohen.html
 
-**Putting New York Times Games to the Test**\
-`Meet some of the people who play each game and solve each puzzle before subscribers see them.`\
-https://nytimes.com/2024/05/20/crosswords/nyt-games-puzzles-testing.html
+**Is There an Alternative to the Little Black Dress?**\
+`Plenty of other garments can be used as the basis for simple, chic looks for a variety of occasions, our critic writes.`\
+https://nytimes.com/2024/05/20/style/little-black-dress-alternative.html
 
-**Taking the Long Way Home From Alaska**\
-`On an epic road trip, a family plots a course from Alaska to the Lower 48, passing through some of Canada’s most spectacular scenery. The tally: 2,200 miles, five national parks, numerous hot springs and one excellent reindeer hot dog.`\
-https://nytimes.com/2024/05/20/travel/alaska-british-columbia-alberta-road-trip.html
+**Ruben Gallego and the Fight for Arizona**\
+`The Grand Canyon State is up for grabs — and so is its political future.`\
+https://nytimes.com/2024/05/20/opinion/ruben-gallego-arizona.html
 
-**He Wanted to Go Back Home to the Hamptons. Could He Afford It?**\
-`A man who struggled to find housing in East Hampton has turned his experience into a podcast, and many of his guests are ‘navigating the waters of trying to make a living here.’`\
-https://nytimes.com/2024/05/20/realestate/renters-east-hampton-new-york.html
+**2 Liberal Groups to Spend $5 Million on State Supreme Court Races**\
+`The National Democratic Redistricting Committee and Planned Parenthood Votes are joining together to help their preferred candidates for 2024 as state-level party battles gain steam.`\
+https://nytimes.com/2024/05/20/us/politics/democrats-state-supreme-courts.html
 
-**Forced to Relive Childhood Horrors in Old Age**\
-`The oldest Ukrainians whose towns have been bombarded and overrun by Russia’s invasion have memories of similar miseries at the hands of Nazi Germany in World War II.`\
-https://nytimes.com/2024/05/20/world/europe/ukrainian-nazi-russian-occupation-survivors.html
+**The (Very Brief) Return of Gastr del Sol**\
+`In the ’90s, the duo of Jim O’Rourke and David Grubbs made quiet, intricate music amid a loud rock underground. A new compilation brought them back together.`\
+https://nytimes.com/2024/05/20/arts/music/gastr-del-sol-we-have-dozens-of-titles.html
 
-**The Painstaking Quest to Portray a Tortured Warrior**\
-`For the hyperrealistic visuals in the video game Senua’s Saga: Hellblade II, the studio traveled to Iceland, took thousands of photos and spent months on motion capture.`\
-https://nytimes.com/2024/05/20/arts/senuas-saga-hellblade-2.html
+**She Survived a Train Accident. Her Train Wreck of a Dad Is Next.**\
+`In Garth Risk Hallberg’s new novel, a teenage rebel and her father reconnect amid a sea of their own troubles.`\
+https://nytimes.com/2024/05/20/books/review/garth-risk-hallberg-second-coming.html
 
-**Proud to Serve Israel, but Not Its Government**\
-`Some reservists in the Israel Defense Forces who have returned home from war have joined the growing calls within Israel for Prime Minister Benjamin Netanyahu and his right-wing coalition to step aside.`\
-https://nytimes.com/video/world/middleeast/100000009411435/idf-reservists-netanyahu-israel-war.html
+**How to Roll Out the Green Carpet for Legalized Marijuana**\
+`Rescheduling the drug is the beginning of the end of marijuana criminalization. Now we need to think about regulation.`\
+https://nytimes.com/2024/05/20/opinion/marijuana-legalization-regulation.html
 
-**South Africa’s Highest Court Says Jacob Zuma Can’t Serve in Parliament**\
-`With elections a week away, the political comeback of Mr. Zuma, the former president, has presented a test for the country’s fledgling democracy.`\
-https://nytimes.com/2024/05/20/world/africa/zuma-south-africa.html
+**How Gun Violence Spread Across One American City**\
+`Columbus, Ohio, had only about 100 homicides a year. Then came a pandemic surge. With more guns and looser laws, can the city find its way back to the old normal?`\
+https://nytimes.com/2024/05/20/us/gun-violence-shootings-columbus-ohio.html
 
