@@ -1,3 +1,15 @@
+**Choreographer’s ‘Dog Poop Attack’ on a Critic Inspired This New Play**\
+`At this year’s Theatertreffen drama festival, one production explores an incident that shocked the German theater world last year.`\
+https://nytimes.com/2024/05/20/theater/the-dog-poop-attack-theatertreffen.html
+
+**She Helped Wage the Fight for $15. Where Will Labor Go After Her?**\
+`Low-wage workers owe a lot to Mary Kay Henry.`\
+https://nytimes.com/2024/05/20/opinion/mary-kay-henry-unions.html
+
+**Here’s a look at some other prominent figures who have died in helicopter crashes.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/2024/05/19/world/middleeast/helicopter-crash-iran-president.html
+
 **Biden and Blinken Accuse I.C.C. Prosecutor of Falsely Equating Israel and Hamas**\
 `The forceful denunciations of the International Criminal Court came even as tensions have risen between the United States and Israel over its conduct of the war in Gaza.`\
 https://nytimes.com/2024/05/20/world/middleeast/icc-warrants-israel-biden-blinken.html

@@ -1,3 +1,11 @@
+**Choreographer’s ‘Dog Poop Attack’ on a Critic Inspired This New Play**\
+`At this year’s Theatertreffen drama festival, one production explores an incident that shocked the German theater world last year.`\
+https://nytimes.com/2024/05/20/theater/the-dog-poop-attack-theatertreffen.html
+
+**She Helped Wage the Fight for $15. Where Will Labor Go After Her?**\
+`Low-wage workers owe a lot to Mary Kay Henry.`\
+https://nytimes.com/2024/05/20/opinion/mary-kay-henry-unions.html
+
 **Biden and Blinken Accuse I.C.C. Prosecutor of Falsely Equating Israel and Hamas**\
 `The forceful denunciations of the International Criminal Court came even as tensions have risen between the United States and Israel over its conduct of the war in Gaza.`\
 https://nytimes.com/2024/05/20/world/middleeast/icc-warrants-israel-biden-blinken.html
@@ -16,7 +24,7 @@ https://nytimes.com/2024/05/20/us/politics/fbi-shed-informants-linked-to-russian
 
 **Here’s a look at some other prominent figures who have died in helicopter crashes.**\
 `By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/05/19/world/iran-president-crash/heres-a-look-at-some-other-prominent-figures-who-have-died-in-helicopter-crashes
+https://nytimes.com/2024/05/19/world/middleeast/helicopter-crash-iran-president.html
 
 **Aggression or Caution: The Choice Facing Iran’s Next Leaders**\
 `The question is whether the successors to the president and foreign minister will take a similar path by keeping slivers of communication open, and avoiding direct conflict with the United States.`\
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/20/us/politics/iran-raisi-us-negotiations.html
 **One of the first aid shipments to arrive at a U.S.-built pier was looted.**\
 `By Adam Rasgon and Patrick Kingsley`\
 https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/one-of-the-first-aid-shipments-to-arrive-at-a-us-built-pier-was-looted
-
-**Renting or Buying Is Often Personal, but It’s Also Helpful to Look at the Numbers**\
-`The Upshot’s financial calculator has been updated with new features.`\
-https://nytimes.com/2024/05/20/upshot/rent-buy-calculator.html
-
-**Can Artificial Intelligence Make the PC Cool Again?**\
-`Microsoft, HP, Dell and others unveiled a new kind of laptop tailored to work with artificial intelligence. Analysts expect Apple to do something similar.`\
-https://nytimes.com/2024/05/20/technology/microsoft-copilot-ai-pc.html
 
