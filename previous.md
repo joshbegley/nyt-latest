@@ -1,3 +1,7 @@
+**Tuesday Briefing: What’s Next for Iran**\
+`Also, an international prosecutor’s request for arrest warrants for leaders of Israel and Hamas.`\
+https://nytimes.com/2024/05/20/world/asia/tuesday-briefing-whats-next-for-iran.html
+
 **Netanyahu Slams I.C.C. for Seeking Warrants Against Israeli Leaders**\
 `Prime Minister Benjamin Netanyahu of Israel said the International Criminal Court prosecutor’s request for warrants against him and Israel’s defense minister was an attempt to deny Israel its right of self-defense.`\
 https://nytimes.com/video/world/middleeast/100000009478748/netanyahu-icc-warrant-israel-gaza.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/05/19/world/iran-president-crash/for-some-in-iran-
 **Penguin Random House Dismisses Two of Its Top Publishers**\
 `The departures of Reagan Arthur, of Alfred A. Knopf, and Lisa Lucas, of Pantheon and Schocken, in a restructuring came as a surprise to many in the company.`\
 https://nytimes.com/2024/05/20/books/booksupdate/knopf-doubleday-lisa-lucas-reagan-arthur.html
-
-**Choreographer’s ‘Dog Poop Attack’ on a Critic Inspired This New Play**\
-`At this year’s Theatertreffen drama festival, one production explores an incident that shocked the German theater world last year.`\
-https://nytimes.com/2024/05/20/theater/the-dog-poop-attack-theatertreffen.html
 
