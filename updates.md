@@ -1,3 +1,7 @@
+**Amal Clooney Was Among the Experts Consulted on I.C.C. Warrants**\
+`Ms. Clooney, a prominent human rights lawyer, was on a panel that recommended arrest warrants for leaders of Israel and Hamas. She had been criticized for not speaking out on the war.`\
+https://nytimes.com/2024/05/20/world/middleeast/amal-clooney-icc-gaza.html
+
 **Ivan F. Boesky, Rogue Trader in 1980s Wall Street Scandal, Dies at 87**\
 `An inspiration for the Gordon Gekko character in the movie “Wall Street,” he made a fortune from insider trading before his downfall brought a crashing end to a decade of greed.`\
 https://nytimes.com/2024/05/20/business/ivan-f-boesky-dead.html
