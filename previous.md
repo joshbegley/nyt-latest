@@ -1,3 +1,11 @@
+**Does Legalizing Cannabis Increase Adolescent Use? This Expert Found Mixed Results.**\
+`Contrary to expectation, a major study found that weed use among minors was lower in states where the drug was legal.`\
+https://nytimes.com/2024/05/20/health/adolescents-cannabis-coley.html
+
+**Taylor Swift Beats Gunna on the Chart. Her Next Rival? Billie Eilish.**\
+`“The Tortured Poets Department” logs a fourth week at No. 1. Next week’s competition is a battle between two stars with multiple versions of their LPs for sale.`\
+https://nytimes.com/2024/05/20/arts/music/taylor-swift-billie-eilish-billboard-versions.html
+
 **The Best of ‘S.N.L.’: Trump Trolling, ‘Dune’ Buckets and Beavis Breakdowns**\
 `Season 49 of “Saturday Night Live” has just ended. Here’s a look back at its most memorable monologues, sketches, product parodies and impressions.`\
 https://nytimes.com/2024/05/20/arts/television/best-of-snl-trump-dune-and-beavis.html
@@ -25,12 +33,4 @@ https://nytimes.com/live/2024/05/19/world/iran-president-crash/aging-helicopters
 **Israel’s Denial of Gaza Aid May Lead to an Arrest Warrant**\
 `The court’s efforts underscore the moral stain of the starvation in Gaza.`\
 https://nytimes.com/live/2024/05/14/opinion/thepoint/icc-netanyahu-hamas-israel
-
-**James Greenfield, Globe-Trotting Reporter and Times Editor, Dies at 99**\
-`He wrote about world affairs for Time magazine and worked at the State Department before becoming a senior editor at The New York Times in 1967.`\
-https://nytimes.com/2024/05/20/business/media/james-greenfield-dead.html
-
-**Do You Know the Literary Influences of These Animated Films?**\
-`Several 21st-century movies were inspired by popular literature that is much older. Try this short quiz to see how many books and films you recognize.`\
-https://nytimes.com/interactive/2024/05/20/books/review/animated-adaptations-quiz.html
 
