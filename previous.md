@@ -1,3 +1,7 @@
+**Faced With a Russian Onslaught, Ukraine Struggles to Keep the Lights On**\
+`The government has for the first time ordered nationwide rolling blackouts for Monday night to conserve energy.`\
+https://nytimes.com/2024/05/20/world/europe/faced-with-a-russian-onslaught-ukraine-struggles-to-keep-the-lights-on.html
+
 **At Cannes, Lily Gladstone Scores a Familiar Seat**\
 `The juror found herself at the center of the Kering Women in Motion dinner, a year after she was a little-known guest for “Killers of the Flower Moon.”`\
 https://nytimes.com/2024/05/20/movies/lily-gladstone-cannes-film-festival.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/science/cannabis-seniors-poisoning.html
 **Fiery, Tingly Kung Pao Tofu**\
 `More fast, flavorful dinners: miso-honey chicken and asparagus; roasted salmon with pea pesto; sheet-pan meatballs with tomatoes and broccoli.`\
 https://nytimes.com/2024/05/20/dining/fiery-tingly-kung-pao-tofu.html
-
-**Doctors Are Still Figuring Out Adult A.D.H.D.**\
-`It’s one of the most common psychiatric disorders in adults. Yet there are no U.S. guidelines for diagnosing and treating patients beyond childhood.`\
-https://nytimes.com/2024/05/20/well/mind/adhd-adults-diagnosis-treatment.html
 
