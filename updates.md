@@ -1,3 +1,7 @@
+**This ‘Russian’ Woman Loves China. Too Bad She’s a Deepfake.**\
+`A.I.-manipulated videos on Chinese sites use young, supposedly Russian women to promote China-Russia ties, stoke patriotism — and make money.`\
+https://nytimes.com/2024/05/20/world/asia/china-russia-deepfake.html
+
 **What’s on TV This Week: ‘Abbott Elementary’ and ‘The Good Doctor’**\
 `The ABC comedy wraps up its third season. The medical show airs its series finale.`\
 https://nytimes.com/2024/05/20/arts/television/whats-on-tv-this-week-abbott-elementary-and-the-good-doctor.html

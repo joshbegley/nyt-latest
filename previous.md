@@ -1,3 +1,7 @@
+**This ‘Russian’ Woman Loves China. Too Bad She’s a Deepfake.**\
+`A.I.-manipulated videos on Chinese sites use young, supposedly Russian women to promote China-Russia ties, stoke patriotism — and make money.`\
+https://nytimes.com/2024/05/20/world/asia/china-russia-deepfake.html
+
 **What’s on TV This Week: ‘Abbott Elementary’ and ‘The Good Doctor’**\
 `The ABC comedy wraps up its third season. The medical show airs its series finale.`\
 https://nytimes.com/2024/05/20/arts/television/whats-on-tv-this-week-abbott-elementary-and-the-good-doctor.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/world/europe/julian-assanges-extradition-appeal-h
 **See How Easily A.I. Chatbots Can Be Taught to Spew Disinformation**\
 `Ahead of the election this year, the results suggested how easy it could be to create divisive content online, on either side of the political spectrum.`\
 https://nytimes.com/interactive/2024/05/19/technology/biased-ai-chatbots.html
-
-**Here are the latest developments.**\
-`By Farnaz Fassihi`\
-https://nytimes.com/live/2024/05/19/world/iran-president-crash/here-are-the-latest-developments
 
