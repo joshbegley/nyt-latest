@@ -6,8 +6,8 @@ https://nytimes.com/2024/05/20/world/middleeast/icc-hamas-netanyahu.html
 `Facing challenges since the pandemic, the seafood chain said it would reduce its locations and sell of most of its assets.`\
 https://nytimes.com/2024/05/20/us/red-lobster-bankruptcy.html
 
-**Work to Move Cargo Ship That Crashed Into Baltimore Bridge Starts Slowly**\
-`Workers on Monday were hoping to move the Dali, which had been pinned in by the wreckage of the Francis Scott Key Bridge since late March.`\
+**Cargo Ship That Crashed Into Baltimore Bridge Heads Back to Port**\
+`The Dali, which had been pinned in by the wreckage of the Francis Scott Key Bridge since late March, began moving again early Monday.`\
 https://nytimes.com/2024/05/20/us/dali-moving-key-bridge-baltimore.html
 
 **The Rise of a New Centrism**\
