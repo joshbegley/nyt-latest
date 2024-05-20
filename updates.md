@@ -1,3 +1,15 @@
+**How Did You Grow and Change This School Year?**\
+`In this forum, we invite both students and teachers to reflect on their challenges and successes — and to consider how to build on them for next year.`\
+https://nytimes.com/2024/05/20/learning/how-did-you-grow-and-change-this-school-year.html
+
+**F.B.I. Shed Informants Linked to Russian Influence Operations**\
+`After a secret review several years ago, the bureau cut off confidential sources thought to be connected to Russian disinformation.`\
+https://nytimes.com/2024/05/20/us/politics/fbi-shed-informants-linked-to-russian-influence-operations.html
+
+**Here’s a look at some other prominent figures who have died in helicopter crashes.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/05/19/world/iran-president-crash/heres-a-look-at-some-other-prominent-figures-who-have-died-in-helicopter-crashes
+
 **Aggression or Caution: The Choice Facing Iran’s Next Leaders**\
 `The question is whether the successors to the president and foreign minister will take a similar path by keeping slivers of communication open, and avoiding direct conflict with the United States.`\
 https://nytimes.com/2024/05/20/us/politics/iran-raisi-us-negotiations.html
