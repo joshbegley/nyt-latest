@@ -1,3 +1,7 @@
+**U.S. ‘Condolences’ for Raisi Reflect a Delicate Diplomatic Ritual**\
+`Whether it’s Stalin or Castro or Kim Jong-il, the United States struggles for the right words when a reviled foreign strongman dies.`\
+https://nytimes.com/2024/05/20/us/politics/us-condolences-raisi.html
+
 **The Prosecution Rests: Five Takeaways From Trump’s Criminal Trial**\
 `The judge became furious with a defense witness, a former Hells Angels leader turned up and Michael D. Cohen kept his cool.`\
 https://nytimes.com/2024/05/20/nyregion/trump-trial-ny-hush-money-takeaways.html
