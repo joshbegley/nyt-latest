@@ -1,3 +1,11 @@
+**Cohen Endures Cross-Examination Under the Eyes of Trump’s Entourage**\
+`Michael D. Cohen admitted stealing from the Trump Organization, but maintained his cool. The former president arrived with many supporters, some with criminal histories.`\
+https://nytimes.com/2024/05/20/nyregion/michael-cohen-trump-court.html
+
+**Jim Otto, Hall of Fame Raiders Center, Is Dead at 86**\
+`Despite his accomplishments on the field, he was remembered mostly for the many beatings his body absorbed, which left him in constant pain.`\
+https://nytimes.com/2024/05/20/sports/football/jim-otto-dead.html
+
 **Top Education Officials Were Warned of FAFSA Overhaul Hurdles in 2020**\
 `Documents obtained by The Times show the department’s troubled FAFSA rollout this year came in spite of early warnings that the project required sustained attention.`\
 https://nytimes.com/2024/05/20/us/politics/fafsa-application-education-department.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/20/opinion/mary-kay-henry-unions.html
 **Biden and Blinken Accuse I.C.C. Prosecutor of Falsely Equating Israel and Hamas**\
 `The forceful denunciations of the International Criminal Court came even as tensions have risen between the United States and Israel over its conduct of the war in Gaza.`\
 https://nytimes.com/2024/05/20/world/middleeast/icc-warrants-israel-biden-blinken.html
-
-**How the Cockroach Took Over the World**\
-`A genetic analysis of the German cockroach explained its rise in southern Asia millenniums ago, and how it eventually turned up in your kitchen.`\
-https://nytimes.com/2024/05/20/science/cockroach-evolution-cities.html
-
-**How Did You Grow and Change This School Year?**\
-`In this forum, we invite both students and teachers to reflect on their challenges and successes — and to consider how to build on them for next year.`\
-https://nytimes.com/2024/05/20/learning/how-did-you-grow-and-change-this-school-year.html
 
