@@ -1,3 +1,7 @@
+**Global Tensions and a Hostile Neighbor Await Taiwan’s New Leader**\
+`Lai Ching-te, the incoming president, has vowed to stay on his predecessor’s narrow path of resisting Beijing without provoking it. It won’t be easy.`\
+https://nytimes.com/2024/05/19/world/asia/taiwan-president-china-us.html
+
 **Bruce Nordstrom, Who Helped Lead His Family’s Retail Empire, Dies at 90**\
 `Though he was the company’s president, he opted for joint leadership with family members as they made Nordstrom, starting as a string of shoe stores, into an international fashion retail brand.`\
 https://nytimes.com/2024/05/19/business/bruce-nordstrom-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/19/world/asia/iran-raisi-search-kharkiv-asia.html
 **As U.S. Waits on Raisi’s Fate, Several Confrontations Are Brewing**\
 `Iran and the United States are groping their way out of several simultaneous crises, including over the Islamic Republic’s nuclear program.`\
 https://nytimes.com/2024/05/19/world/middleeast/us-iran-raisi-crash.html
-
-**Dolores Rosedale, Sidekick on ‘Beat the Clock,’ Dies at 95**\
-`The model and actress, who went by Roxanne, had a modest role on the game show, appeared on numerous magazine covers and inspired the creation of a doll.`\
-https://nytimes.com/2024/05/19/arts/television/dolores-rosedale-dead.html
 
