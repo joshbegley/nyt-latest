@@ -1,3 +1,7 @@
+**The Rise of a New Centrism**\
+`In Washington, despite polarization, bipartisanship has somehow become normal.`\
+https://nytimes.com/2024/05/20/briefing/bipartisanship-congress-neopopulism.html
+
 **Who Was Iran’s Foreign Minister, Hossein Amir Abdollahian?**\
 `A hard-liner and career diplomat long focused on Iran’s relationships in the Middle East, he died in a helicopter crash that also killed Iran’s president.`\
 https://nytimes.com/2024/05/20/world/middleeast/iran-foreign-minister-amir-abdollahian.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/us/politics/trump-trial-2024-election.html
 **The Dangerous Political Headwind Facing Biden**\
 `Many voters who respect the president don’t necessarily want him to return to office.`\
 https://nytimes.com/live/2024/05/14/opinion/thepoint/biden-trump-popularity
-
-**What We Lose When ChatGPT Sounds Like Scarlett Johansson**\
-`OpenAI has good reason to aim for a bot voice à la the one in “Her.” But that film was about relationships. What does this real-world turn say about us?`\
-https://nytimes.com/2024/05/20/movies/chatgpt-4o-scarlett-johansson-her.html
 
