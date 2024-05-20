@@ -1,3 +1,15 @@
+**Former Trump Officials Meet in Israel With Netanyahu**\
+`Robert O’Brien, one of Donald Trump’s closest foreign policy advisers, said he was there as a “private citizen.”`\
+https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/former-trump-officials-meet-in-israel-with-netanyahu
+
+**The Death of Iran’s President Does Not Bode Well**\
+`The generation on the cusp of taking power in Iran sees domestic oppression and foreign aggression as indispensable to the success of the revolution.`\
+https://nytimes.com/2024/05/20/opinion/international-world/iran-president-death.html
+
+**Not Your Grandparents’ Mahjong Table**\
+`Green Tile Social Club hosted its first tournament, where a younger generation gathered to play an old game and meet new friends.`\
+https://nytimes.com/2024/05/20/style/mahjong-green-tile-social-club.html
+
 **Who is Karim Khan, the I.C.C. prosecutor?**\
 `By Marlise Simons`\
 https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/who-is-karim-khan-the-icc-prosecutor
