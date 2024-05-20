@@ -1,3 +1,11 @@
+**Cannes Meets Trump: ‘The Apprentice’ Sells a Controversial Origin Story**\
+`The film covers Donald J. Trump’s relationships with the fixer Roy Cohn and his first wife, Ivana, and tries to explain the future president, at least as a young man.`\
+https://nytimes.com/2024/05/20/movies/trump-movie-cannes-film-festival-apprentice.html
+
+**A prosecutor is alleging Israeli officials have used starvation as a weapon of war. Here’s what the charge entails.**\
+`The crime of intentionally starving civilians is one of seven charges leveled at Prime Minister Benjamin Netanyahu in a statement issued by the International Criminal Court on Monday.`\
+https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/a-prosecutor-is-alleging-israeli-officials-have-used-starvation-as-a-weapon-of-war-heres-what-the-charge-entails
+
 **Cooking for One Can Be Fun, Easy and Delicious. Here’s How.**\
 `Making food for just yourself can feel like a burden night after night, but there are ways to make it less of a chore.`\
 https://nytimes.com/2024/05/20/dining/how-to-cook-for-one.html

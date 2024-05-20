@@ -1,3 +1,11 @@
+**Cannes Meets Trump: ‘The Apprentice’ Sells a Controversial Origin Story**\
+`The film covers Donald J. Trump’s relationships with the fixer Roy Cohn and his first wife, Ivana, and tries to explain the future president, at least as a young man.`\
+https://nytimes.com/2024/05/20/movies/trump-movie-cannes-film-festival-apprentice.html
+
+**A prosecutor is alleging Israeli officials have used starvation as a weapon of war. Here’s what the charge entails.**\
+`The crime of intentionally starving civilians is one of seven charges leveled at Prime Minister Benjamin Netanyahu in a statement issued by the International Criminal Court on Monday.`\
+https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/a-prosecutor-is-alleging-israeli-officials-have-used-starvation-as-a-weapon-of-war-heres-what-the-charge-entails
+
 **Cooking for One Can Be Fun, Easy and Delicious. Here’s How.**\
 `Making food for just yourself can feel like a burden night after night, but there are ways to make it less of a chore.`\
 https://nytimes.com/2024/05/20/dining/how-to-cook-for-one.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/20/arts/music/taylor-swift-billie-eilish-billboard-v
 **The Best of ‘S.N.L.’: Trump Trolling, ‘Dune’ Buckets and Beavis Breakdowns**\
 `Season 49 of “Saturday Night Live” has just ended. Here’s a look back at its most memorable monologues, sketches, product parodies and impressions.`\
 https://nytimes.com/2024/05/20/arts/television/best-of-snl-trump-dune-and-beavis.html
-
-**Amal Clooney Was Among the Experts Consulted on I.C.C. Warrants**\
-`Ms. Clooney, a prominent human rights lawyer, was on a panel that recommended arrest warrants for leaders of Israel and Hamas. She had been criticized for not speaking out on the war.`\
-https://nytimes.com/2024/05/20/world/middleeast/amal-clooney-icc-gaza.html
-
-**Ivan F. Boesky, Rogue Trader in 1980s Wall Street Scandal, Dies at 87**\
-`An inspiration for the Gordon Gekko character in the movie “Wall Street,” he made a fortune from insider trading before his downfall brought a crashing end to a decade of greed.`\
-https://nytimes.com/2024/05/20/business/ivan-f-boesky-dead.html
 
