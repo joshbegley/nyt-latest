@@ -1,3 +1,11 @@
+**Scarlett Johansson Says OpenAI Asked to Use Her Voice. Twice.**\
+`Last week, the company released a chatbot with an option that sounded like the actress, who provided the voice of an A.I. system in the movie “Her.”`\
+https://nytimes.com/2024/05/20/business/scarlett-johannson-openai-voice.html
+
+**Biden says there is ‘no equivalence between Israel and Hamas.’**\
+`The president, s`\
+https://nytimes.com/2024/05/20/world/middleeast/biden-israel-gaza-genocide.html
+
 **A Tongue-Lashing for a Defense Witness Isn’t Great News for Trump**\
 `The witness tried to play judge, and the real judge was not pleased.`\
 https://nytimes.com/2024/05/20/opinion/trump-trial-costello-judge.html
