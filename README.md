@@ -14,13 +14,13 @@ https://nytimes.com/2024/05/20/business/media/james-greenfield-dead.html
 `Several 21st-century movies were inspired by popular literature that is much older. Try this short quiz to see how many books and films you recognize.`\
 https://nytimes.com/interactive/2024/05/20/books/review/animated-adaptations-quiz.html
 
-**Legalized Weed Is Landing More Seniors in the E.R.**\
-`In Canada, cannabis poisonings rose sharply among people 65 and older after the country legalized the drug, a new study found.`\
-https://nytimes.com/2024/05/20/science/cannabis-seniors-poisoning.html
-
 **The Author of ‘Crazy Rich Asians’ Can’t Go Home, Except in His Books**\
 `Kevin Kwan left Singapore’s opulent, status-obsessed, upper crust when he was 11. He’s still writing about it.`\
 https://nytimes.com/2024/05/20/books/lies-and-weddings-kevin-kwan.html
+
+**Legalized Weed Is Landing More Seniors in the E.R.**\
+`In Canada, cannabis poisonings rose sharply among people 65 and older after the country legalized the drug, a new study found.`\
+https://nytimes.com/2024/05/20/science/cannabis-seniors-poisoning.html
 
 **Fiery, Tingly Kung Pao Tofu**\
 `More fast, flavorful dinners: miso-honey chicken and asparagus; roasted salmon with pea pesto; sheet-pan meatballs with tomatoes and broccoli.`\
