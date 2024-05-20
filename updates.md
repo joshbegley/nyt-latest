@@ -1,3 +1,7 @@
+**City Hall Aide Is Cooperating With Corruption Investigation Into Adams**\
+`Eric Adams’s former liaison to the Turkish community, Rana Abbasova, had knowledge of some of the mayor’s dealings with Turkish officials.`\
+https://nytimes.com/2024/05/20/nyregion/adams-fbi-corruption-investigation-aide.html
+
 **Biden says there is ‘no equivalence between Israel and Hamas.’**\
 `The president, s`\
 https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/biden-israel-gaza-genocide
