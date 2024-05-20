@@ -1,3 +1,7 @@
+**Work to Move Cargo Ship That Crashed Into Baltimore Bridge Starts Slowly**\
+`Workers on Monday were hoping to move the Dali, which had been pinned in by the wreckage of the Francis Scott Key Bridge since late March.`\
+https://nytimes.com/2024/05/20/us/dali-moving-key-bridge-baltimore.html
+
 **The Rise of a New Centrism**\
 `In Washington, despite polarization, bipartisanship has somehow become normal.`\
 https://nytimes.com/2024/05/20/briefing/bipartisanship-congress-neopopulism.html
