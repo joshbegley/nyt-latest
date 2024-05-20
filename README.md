@@ -1,3 +1,7 @@
+**Cooking for One Can Be Fun, Easy and Delicious. Here’s How.**\
+`Making food for just yourself can feel like a burden night after night, but there are ways to make it less of a chore.`\
+https://nytimes.com/2024/05/20/dining/how-to-cook-for-one.html
+
 **Dublin-New York Portal Reopens After Flashing and Other Shenanigans**\
 `After closing because of questionable behavior last week, a video connection between Ireland and New York City is back on. Crowds rejoiced — in Dublin, anyway.`\
 https://nytimes.com/2024/05/20/world/europe/portal-dublin-new-york.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/world/middleeast/amal-clooney-icc-gaza.html
 **Ivan F. Boesky, Rogue Trader in 1980s Wall Street Scandal, Dies at 87**\
 `An inspiration for the Gordon Gekko character in the movie “Wall Street,” he made a fortune from insider trading before his downfall brought a crashing end to a decade of greed.`\
 https://nytimes.com/2024/05/20/business/ivan-f-boesky-dead.html
-
-**Faced With a Russian Onslaught, Ukraine Struggles to Keep the Lights On**\
-`The government has for the first time ordered nationwide rolling blackouts for Monday night to conserve energy.`\
-https://nytimes.com/2024/05/20/world/europe/russia-ukraine-lights.html
 
