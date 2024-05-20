@@ -7,7 +7,7 @@ https://nytimes.com/2024/05/19/science/comet-fireball-portugal-spain.html
 https://nytimes.com/video/science/100000009476873/comet-bright-spain-portugal.html
 
 **Global Tensions and a Hostile Neighbor Await Taiwan’s New Leader**\
-`Lai Ching-te, the incoming president, has vowed to stay on his predecessor’s narrow path of resisting Beijing without provoking it. It won’t be easy.`\
+`President Lai Ching-te has vowed to stay on his predecessor’s narrow path of resisting Beijing without provoking it. It won’t be easy.`\
 https://nytimes.com/2024/05/19/world/asia/taiwan-president-china-us.html
 
 **Bruce Nordstrom, Who Helped Lead His Family’s Retail Empire, Dies at 90**\
