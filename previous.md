@@ -1,3 +1,7 @@
+**Biden says there is ‘no equivalence between Israel and Hamas.’**\
+`The president, s`\
+https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/biden-israel-gaza-genocide
+
 **Biden Says Israeli Military Assault in Gaza Is ‘Not Genocide’**\
 `At a celebration of Jewish Heritage Month, President Biden pledged support to Israel and condemned a decision by the prosecutor for the International Criminal Court to seek arrest warrants for top Israeli officials.`\
 https://nytimes.com/video/us/politics/100000009479218/biden-israel-gaza-genocide.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/opinion/international-world/iran-president-death.
 **Not Your Grandparents’ Mahjong Table**\
 `Green Tile Social Club hosted its first tournament, where a younger generation gathered to play an old game and meet new friends.`\
 https://nytimes.com/2024/05/20/style/mahjong-green-tile-social-club.html
-
-**Who is Karim Khan, the I.C.C. prosecutor?**\
-`By Marlise Simons`\
-https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/who-is-karim-khan-the-icc-prosecutor
 
