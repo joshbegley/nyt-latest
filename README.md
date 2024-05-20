@@ -16,7 +16,7 @@ https://nytimes.com/2024/05/20/nyregion/adams-fbi-corruption-investigation-aide.
 
 **Biden says there is ‘no equivalence between Israel and Hamas.’**\
 `The president, s`\
-https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/biden-israel-gaza-genocide
+https://nytimes.com/2024/05/20/world/middleeast/biden-israel-gaza-genocide.html
 
 **Biden Says Israeli Military Assault in Gaza Is ‘Not Genocide’**\
 `At a celebration of Jewish Heritage Month, President Biden pledged support to Israel and condemned a decision by the prosecutor for the International Criminal Court to seek arrest warrants for top Israeli officials.`\
