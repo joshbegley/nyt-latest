@@ -1,3 +1,7 @@
+**Netanyahu Slams I.C.C. for Seeking Warrants Against Israeli Leaders**\
+`Prime Minister Benjamin Netanyahu of Israel said the International Criminal Court prosecutor’s request for warrants against him and Israel’s defense minister was an attempt to deny Israel its right of self-defense.`\
+https://nytimes.com/video/world/middleeast/100000009478748/netanyahu-icc-warrant-israel-gaza.html
+
 **Robert Costello, Defense Witness in Trump Trial, Advised Cohen Before a Falling Out**\
 `Mr. Costello is expected to cast Michael D. Cohen, the witness at the heart of the prosecution’s case, as a liar.`\
 https://nytimes.com/2024/05/20/nyregion/trump-hush-money-trial-robert-costello.html
