@@ -1,3 +1,7 @@
+**Here are the latest developments.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/2024/05/19/world/middleeast/here-are-the-latest-developments.html
+
 **Comet Fragment Explodes in Dark Skies Over Spain and Portugal**\
 `A brilliant flash of blue, green and white on Saturday night came from a shard of an as yet unidentified comet that was moving around 100,000 miles per hour, experts said.`\
 https://nytimes.com/2024/05/19/science/comet-fireball-portugal-spain.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/19/crosswords/daily-puzzle-2024-05-20.html
 **Critics Fault ‘Aggressive’ N.Y.P.D. Response to Pro-Palestinian Rally**\
 `Officers were filmed punching three demonstrators at the protest in Bay Ridge, Brooklyn. The police said protesters were blocking the streets.`\
 https://nytimes.com/2024/05/19/nyregion/brooklyn-protest-palestinian-police.html
-
-**‘Nobody Cares’ About Laura Benanti, but They Let Her Entertain Them**\
-`While poking fun at her own agreeable malleability, Benanti flexes her talents in a show that will be available on Audible, without the physical dimension.`\
-https://nytimes.com/2024/05/19/theater/nobody-cares-laura-benanti-audible.html
 
