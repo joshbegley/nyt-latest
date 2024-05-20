@@ -1,3 +1,7 @@
+**Red Lobster, an American Seafood Institution, Files for Bankruptcy**\
+`Facing challenges since the pandemic, the seafood chain said it would reduce its locations and sell of most of its assets.`\
+https://nytimes.com/2024/05/20/us/red-lobster-bankruptcy.html
+
 **Work to Move Cargo Ship That Crashed Into Baltimore Bridge Starts Slowly**\
 `Workers on Monday were hoping to move the Dali, which had been pinned in by the wreckage of the Francis Scott Key Bridge since late March.`\
 https://nytimes.com/2024/05/20/us/dali-moving-key-bridge-baltimore.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/05/19/world/iran-president-helicopter-crash/world-
 **What to Know About Mohammad Mokhber, Iran’s Acting President**\
 `Mr. Mokhber has long been involved in business conglomerates tied to Iran’s supreme leader, Ayatollah Ali Khamenei. He must hold elections for a new president within 50 days.`\
 https://nytimes.com/2024/05/20/world/middleeast/iran-mohammad-mokhber.html
-
-**Will Trump Run as a Felon? A Big 2024 Question Will Soon Be Answered.**\
-`The ruling in the trial of the former president and presumptive Republican nominee, which may come this week, could be a deciding factor in a tight race.`\
-https://nytimes.com/2024/05/20/us/politics/trump-trial-2024-election.html
 
