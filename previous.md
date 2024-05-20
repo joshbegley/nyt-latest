@@ -1,3 +1,7 @@
+**South Africa’s Highest Court Says Jacob Zuma Can’t Run in Election**\
+`The political comeback of Mr. Zuma, the former president and onetime leader of the African National Congress, has presented a test for the country’s fledgling democracy.`\
+https://nytimes.com/2024/05/20/world/africa/zuma-south-africa.html
+
 **Prosecutors Poised to Conclude Trump Case as Trial Enters Final Days**\
 `Monday’s court session will begin early, with the cross-examination of Michael D. Cohen continuing. Lawyers have been told to have their closing arguments ready by Tuesday.`\
 https://nytimes.com/2024/05/20/nyregion/trump-trial-cohen-cross-examination-monday.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/learning/word-of-the-day-galling.html
 **Rescuers Find Helicopter Carrying Iran’s President**\
 `After scouring a mountainous area of dense forest, rescuers found the remains of the aircraft, which had the president and foreign minister on board.`\
 https://nytimes.com/video/world/middleeast/100000009477239/iran-president-crash.html
-
-**This ‘Russian’ Woman Loves China. Too Bad She’s a Deepfake.**\
-`A.I.-manipulated videos on Chinese sites use young, supposedly Russian women to promote China-Russia ties, stoke patriotism — and make money.`\
-https://nytimes.com/2024/05/20/world/asia/china-russia-deepfake.html
 

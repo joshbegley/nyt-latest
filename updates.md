@@ -1,3 +1,7 @@
+**South Africa’s Highest Court Says Jacob Zuma Can’t Run in Election**\
+`The political comeback of Mr. Zuma, the former president and onetime leader of the African National Congress, has presented a test for the country’s fledgling democracy.`\
+https://nytimes.com/2024/05/20/world/africa/zuma-south-africa.html
+
 **Prosecutors Poised to Conclude Trump Case as Trial Enters Final Days**\
 `Monday’s court session will begin early, with the cross-examination of Michael D. Cohen continuing. Lawyers have been told to have their closing arguments ready by Tuesday.`\
 https://nytimes.com/2024/05/20/nyregion/trump-trial-cohen-cross-examination-monday.html
