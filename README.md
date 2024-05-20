@@ -1,3 +1,15 @@
+**How Did You Grow and Change This School Year?**\
+`In this forum, we invite both students and teachers to reflect on their challenges and successes — and to consider how to build on them for next year.`\
+https://nytimes.com/2024/05/20/learning/how-did-you-grow-and-change-this-school-year.html
+
+**F.B.I. Shed Informants Linked to Russian Influence Operations**\
+`After a secret review several years ago, the bureau cut off confidential sources thought to be connected to Russian disinformation.`\
+https://nytimes.com/2024/05/20/us/politics/fbi-shed-informants-linked-to-russian-influence-operations.html
+
+**Here’s a look at some other prominent figures who have died in helicopter crashes.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/05/19/world/iran-president-crash/heres-a-look-at-some-other-prominent-figures-who-have-died-in-helicopter-crashes
+
 **Aggression or Caution: The Choice Facing Iran’s Next Leaders**\
 `The question is whether the successors to the president and foreign minister will take a similar path by keeping slivers of communication open, and avoiding direct conflict with the United States.`\
 https://nytimes.com/2024/05/20/us/politics/iran-raisi-us-negotiations.html
@@ -21,16 +33,4 @@ https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/here-are-s
 **In a House Race in N.H., a Famous Spouse, and a Traumatic Pregnancy**\
 `Maggie Tamposi Goodlander, the wife of the national security adviser, is navigating a personal landscape with little precedent in her run for Congress in New Hampshire.`\
 https://nytimes.com/2024/05/20/us/politics/maggie-goodlander-jake-sullivan.html
-
-**After Raisi’s Death, Speculation Over Succession Turns to Ayatollah’s Son**\
-`Mojtaba Khamenei, 55,  plays an influential role in the office of the supreme leader, Ayatollah Ali Khamenei, and has fostered ties within the security apparatus.`\
-https://nytimes.com/2024/05/20/world/middleeast/iran-raisi-death-supreme-leader.html
-
-**Israeli Leaders Denounce Prosecutor Seeking Warrant on Netanyahu**\
-`Israeli leaders condemned a move by the International Criminal Court prosecutor to seek arrest warrants for Prime Minister Benjamin Netanyahu and Israel’s defense minister on charges of war crimes.`\
-https://nytimes.com/video/world/middleeast/100000009477858/israel-gantz-lapid-gaza-warrant.html
-
-**Hecklers Drown Out Trump’s Backers With Cowbells and Whistles**\
-`A contingent of supporters of the former president came to speak across from the courthouse, but they were inaudible.`\
-https://nytimes.com/2024/05/20/nyregion/trump-supporters-new-york.html
 
