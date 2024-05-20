@@ -1,3 +1,11 @@
+**Chinese Firms Face Authoritarianism at Home and Hostility Abroad**\
+`The experience of TikTok’s owner, ByteDance, in Beijing and Washington shows how much the ground has shifted for China’s entrepreneurs.`\
+https://nytimes.com/2024/05/20/business/china-companies-tiktok-overseas.html
+
+**Julian Assange’s Extradition Appeal Hearing: What Could Happen?**\
+`A hearing on Monday will determine whether Julian Assange has any more recourse in the British courts to appeal his extradition to the United States.`\
+https://nytimes.com/2024/05/20/world/europe/julian-assanges-extradition-appeal-hearing-what-could-happen.html
+
 **See How Easily A.I. Chatbots Can Be Taught to Spew Disinformation**\
 `Ahead of the election this year, the results suggested how easy it could be to create divisive content online, on either side of the political spectrum.`\
 https://nytimes.com/interactive/2024/05/19/technology/biased-ai-chatbots.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/19/business/bruce-nordstrom-dead.html
 **Hochul Visits an Ancestral Home, 3,000 Miles From the Governor’s Mansion**\
 `After meeting the pope and the mayors of Rome, London and Dublin, Gov. Kathy Hochul of New York paused to reconnect with her past.`\
 https://nytimes.com/2024/05/19/nyregion/hochul-ireland.html
-
-**Kehinde Wiley Denies Accusation of Sexual Assault by Artist**\
-`After Joseph Awuah-Darko accused Mr. Wiley of sexually assaulting him in Ghana, Mr. Wiley denied the claims, calling them “not true and an affront to all victims of sexual abuse.”`\
-https://nytimes.com/2024/05/19/arts/design/kehinde-wiley-denies-sexual-assault-accusation.html
-
-**Purple Pop**\
-`Jack Scherban makes his New York Times debut.`\
-https://nytimes.com/2024/05/19/crosswords/daily-puzzle-2024-05-20.html
 
