@@ -1,10 +1,14 @@
+**One of the first aid shipments to arrive at a U.S.-built pier was looted.**\
+`By Adam Rasgon and Patrick Kingsley`\
+https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/one-of-the-first-aid-shipments-to-arrive-at-a-us-built-pier-was-looted
+
 **Renting or Buying Is Often Personal, but It’s Also Helpful to Look at the Numbers**\
 `The Upshot’s financial calculator has been updated with new features.`\
 https://nytimes.com/2024/05/20/upshot/rent-buy-calculator.html
 
 **Can Artificial Intelligence Make the PC Cool Again?**\
 `Microsoft, HP, Dell and others unveiled a new kind of laptop tailored to work with artificial intelligence. Analysts expect Apple to do something similar.`\
-https://nytimes.com/2024/05/20/technology/artificial-intelligence-pc-computers.html
+https://nytimes.com/2024/05/20/technology/microsoft-copilot-ai-pc.html
 
 **Here are some other leaders for whom the International Criminal Court has issued arrest warrants.**\
 `By Matthew Mpoke Bigg`\
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/nyregion/trump-supporters-new-york.html
 **Sexual Assault Suit Against Neil Portnow, Ex-Grammys Chief, Is Dismissed**\
 `The plaintiff, who had filed her suit anonymously, told a judge that she feared the consequences if efforts to reveal her name during the proceeding were successful.`\
 https://nytimes.com/2024/05/20/arts/music/neil-portnow-grammys-sexual-assault-dismissed.html
-
-**Bank Regulator Overseeing ‘Toxic’ Culture Loses Key Supporter in Senate**\
-`Senator Sherrod Brown, the chair of the Senate Banking Committee, called for President Biden to replace Martin Gruenberg as leader of the F.D.I.C.`\
-https://nytimes.com/2024/05/20/business/fdic-gruenberg-replace.html
 
