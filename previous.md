@@ -11,7 +11,7 @@ https://nytimes.com/2024/05/20/movies/emma-stone-jesse-plemons-willem-dafoe-yorg
 https://nytimes.com/2024/05/20/world/europe/britain-contaminated-blood-scandal.html
 
 **I.C.C. Prosecutor Asks for Warrants for Netanyahu and Hamas Leaders**\
-`The International Criminal Court prosecutor, Karim Khan, said he believed that Hamas leaders and Prime Minister Benjamin Netanyahu of Israel were responsible for war crimes and crimes against humanity.`\
+`The International Criminal Court prosecutor said he believed Hamas leaders and Israeli leaders, including Prime Minister Benjamin Netanyahu of Israel and Yahya Sinwar of Hamas, were responsible for war crimes and crimes against humanity.`\
 https://nytimes.com/video/world/middleeast/100000009477536/icc-prosecutor-warrants-netanyahu-hamas.html
 
 **Senate to Vote Again on Border Deal as Democrats Seek Political Edge**\

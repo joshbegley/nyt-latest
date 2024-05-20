@@ -1,3 +1,7 @@
+**I.C.C. Prosecutor Asks for Warrants for Netanyahu and Hamas Leaders**\
+`The International Criminal Court prosecutor said he believed Hamas leaders and Israeli leaders, including Prime Minister Benjamin Netanyahu of Israel and Yahya Sinwar of Hamas, were responsible for war crimes and crimes against humanity.`\
+https://nytimes.com/video/world/middleeast/100000009477536/icc-prosecutor-warrants-netanyahu-hamas.html
+
 **A Former Leader of the Hells Angels Motorcycle Gang Joins Trump in Court**\
 `Chuck Zito, who did time on drug conspiracy charges, has tried to recast his persona as a general-purpose tough guy around town.`\
 https://nytimes.com/2024/05/20/nyregion/chuck-zito-hells-angels-trump-trial.html
