@@ -1,3 +1,7 @@
+**Graduate Students at U.C. Santa Cruz to Strike on Monday**\
+`The student workers’ union says the University of California’s handling of Israel-Hamas war protests may soon prompt walkouts at several campuses.`\
+https://nytimes.com/2024/05/20/us/graduate-students-uc-santa-cruz-strike.html
+
 **Leaders of past protests in Israel re-emerge as Parliament reconvenes.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/leaders-of-past-protests-in-israel-re-emerge-as-parliament-reconvenes

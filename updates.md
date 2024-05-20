@@ -1,3 +1,7 @@
+**Graduate Students at U.C. Santa Cruz to Strike on Monday**\
+`The student workers’ union says the University of California’s handling of Israel-Hamas war protests may soon prompt walkouts at several campuses.`\
+https://nytimes.com/2024/05/20/us/graduate-students-uc-santa-cruz-strike.html
+
 **Israel Should Expect Little Change From Raisi’s Replacement, Experts Say**\
 `Israel, despite being one of Iran’s biggest foes, saw little strategic benefit from the president’s death and was not likely to change its posture toward Tehran, analysts said.`\
 https://nytimes.com/2024/05/19/world/middleeast/israel-iran-raisi.html
