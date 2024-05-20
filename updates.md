@@ -1,3 +1,7 @@
+**Closing Arguments in Trump’s Trial Will Likely Be Next Week, Judge Says**\
+`Defense lawyers have the opportunity to call witnesses, including their client, former President Donald J. Trump, but whether he will testify is not clear. Then the case goes to the jury.`\
+https://nytimes.com/2024/05/20/nyregion/trump-trial-schedule.html
+
 **Graduate Students at U.C. Santa Cruz to Strike on Monday**\
 `The student workers’ union says the University of California’s handling of Israel-Hamas war protests may soon prompt walkouts at several campuses.`\
 https://nytimes.com/2024/05/20/us/graduate-students-uc-santa-cruz-strike.html
