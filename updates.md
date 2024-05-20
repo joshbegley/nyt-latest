@@ -1,3 +1,11 @@
+**Emma Stone, Jesse Plemons and Willem Dafoe Crack the Yorgos Lanthimos Code**\
+`The stars of his newest film, “Kinds of Kindness” explain that when working with the director, the less you know, the better.`\
+https://nytimes.com/2024/05/20/movies/emma-stone-jesse-plemons-willem-dafoe-yorgos-lanthimos-kinds-of-kindness.html
+
+**Report Finds ‘Catalog of Failures’ in U.K. Contaminated Blood Scandal**\
+`A six-year inquiry found that the deaths of about 3,000 people and the infection of tens of thousands of others could have mostly been avoided.`\
+https://nytimes.com/2024/05/20/world/europe/britain-contaminated-blood-scandal.html
+
 **I.C.C. Prosecutor Asks for Warrants for Netanyahu and Hamas Leaders**\
 `The International Criminal Court prosecutor, Karim Khan, said he believed that Hamas leaders and Prime Minister Benjamin Netanyahu of Israel were responsible for war crimes and crimes against humanity.`\
 https://nytimes.com/video/world/middleeast/100000009477536/icc-prosecutor-warrants-netanyahu-hamas.html

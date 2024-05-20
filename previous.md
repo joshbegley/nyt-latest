@@ -1,3 +1,11 @@
+**Emma Stone, Jesse Plemons and Willem Dafoe Crack the Yorgos Lanthimos Code**\
+`The stars of his newest film, “Kinds of Kindness” explain that when working with the director, the less you know, the better.`\
+https://nytimes.com/2024/05/20/movies/emma-stone-jesse-plemons-willem-dafoe-yorgos-lanthimos-kinds-of-kindness.html
+
+**Report Finds ‘Catalog of Failures’ in U.K. Contaminated Blood Scandal**\
+`A six-year inquiry found that the deaths of about 3,000 people and the infection of tens of thousands of others could have mostly been avoided.`\
+https://nytimes.com/2024/05/20/world/europe/britain-contaminated-blood-scandal.html
+
 **I.C.C. Prosecutor Asks for Warrants for Netanyahu and Hamas Leaders**\
 `The International Criminal Court prosecutor, Karim Khan, said he believed that Hamas leaders and Prime Minister Benjamin Netanyahu of Israel were responsible for war crimes and crimes against humanity.`\
 https://nytimes.com/video/world/middleeast/100000009477536/icc-prosecutor-warrants-netanyahu-hamas.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/20/world/europe/iran-crash-what-we-know.html
 **Raisi’s Death Threatens New Instability for Iran**\
 `The sudden death of Iran’s president, Ebrahim Raisi, disrupts a careful effort at a smooth transition to a new supreme leader to replace the aging Ali Khamenei.`\
 https://nytimes.com/2024/05/20/world/europe/raisi-iran-instability.html
-
-**Closing Arguments in Trump’s Trial Will Likely Be Next Week, Judge Says**\
-`Defense lawyers have the opportunity to call witnesses, including their client, former President Donald J. Trump, but whether he will testify is not clear. Then the case goes to the jury.`\
-https://nytimes.com/2024/05/20/nyregion/trump-trial-schedule.html
-
-**Graduate Students at U.C. Santa Cruz to Strike on Monday**\
-`The student workers’ union says the University of California’s handling of Israel-Hamas war protests may soon prompt walkouts at several campuses.`\
-https://nytimes.com/2024/05/20/us/graduate-students-uc-santa-cruz-strike.html
 
