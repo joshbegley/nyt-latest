@@ -1,3 +1,11 @@
+**Hecklers Drown Out Trump’s Backers With Cowbells and Whistles**\
+`A contingent of supporters of the former president came to speak across from the courthouse, but they were inaudible.`\
+https://nytimes.com/2024/05/20/nyregion/trump-supporters-new-york.html
+
+**Sexual Assault Suit Against Neil Portnow, Ex-Grammys Chief, Is Dismissed**\
+`The plaintiff, who had filed her suit anonymously, told a judge that she feared the consequences if efforts to reveal her name during the proceeding were successful.`\
+https://nytimes.com/2024/05/20/arts/music/neil-portnow-grammys-sexual-assault-dismissed.html
+
 **Bank Regulator Overseeing ‘Toxic’ Culture Loses Key Supporter in Senate**\
 `Senator Sherrod Brown, who chairs the Senate Banking Committee, called for President Biden to replace Martin Gruenberg as leader of the F.D.I.C.`\
 https://nytimes.com/2024/05/20/business/fdic-gruenberg-replace.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/20/dining/how-to-cook-for-one.html
 **Dublin-New York Portal Reopens After Flashing and Other Shenanigans**\
 `After closing because of questionable behavior last week, a video connection between Ireland and New York City is back on. Crowds rejoiced — in Dublin, anyway.`\
 https://nytimes.com/2024/05/20/world/europe/portal-dublin-new-york.html
-
-**Israel and Gaza: Despair and What-Ifs**\
-`Readers disagree about a guest essay by Megan K. Stack. Also: Big politics in politics; “journey” as metaphor; helping the mentally ill and homeless.`\
-https://nytimes.com/2024/05/20/opinion/israel-gaza-despair.html
-
-**‘Stax: Soulsville, U.S.A.’ Review: Looking for a Little Respect**\
-`An HBO series tells the triumphant, tragic story of the record label Otis Redding, Isaac Hayes and the Staple Singers called home.`\
-https://nytimes.com/2024/05/20/arts/television/stax-soulsville-usa-review-hbo.html
 
