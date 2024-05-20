@@ -1,3 +1,7 @@
+**Biden Says Israeli Military Assault in Gaza Is ‘Not Genocide’**\
+`At a celebration of Jewish Heritage Month, President Biden pledged support to Israel and condemned a decision by the prosecutor for the International Criminal Court to seek arrest warrants for top Israeli officials.`\
+https://nytimes.com/video/us/politics/100000009479218/biden-israel-gaza-genocide.html
+
 **Trump’s Eyes Wide Shut Strategy**\
 `The prosecution rested its case. And Trump rested his eyes.`\
 https://nytimes.com/2024/05/20/us/politics/trump-eyes-shut-strategy.html
