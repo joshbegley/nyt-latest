@@ -1,4 +1,4 @@
-**Robert Costello, First Defense Witness, Advised Cohen Before a Falling Out**\
+**Robert Costello, Defense Witness, Advised Cohen Before a Falling Out**\
 `Mr. Costello is expected to cast Michael D. Cohen, the witness at the heart of the prosecution’s case, as a liar.`\
 https://nytimes.com/2024/05/20/nyregion/trump-hush-money-trial-robert-costello.html
 
