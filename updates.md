@@ -1,3 +1,11 @@
+**Israel’s Denial of Gaza Aid May Lead to an Arrest Warrant**\
+`The court’s efforts underscore the moral stain of the starvation in Gaza.`\
+https://nytimes.com/live/2024/05/14/opinion/thepoint/icc-netanyahu-hamas-israel
+
+**James Greenfield, Globe-Trotting Reporter and Times Editor, Dies at 99**\
+`He wrote about world affairs for Time magazine and worked at the State Department before becoming a senior editor at The New York Times in 1967.`\
+https://nytimes.com/2024/05/20/business/media/james-greenfield-dead.html
+
 **Do You Know the Literary Influences of These Animated Films?**\
 `Several 21st-century movies were inspired by popular literature that is much older. Try this short quiz to see how many books and films you recognize.`\
 https://nytimes.com/interactive/2024/05/20/books/review/animated-adaptations-quiz.html
