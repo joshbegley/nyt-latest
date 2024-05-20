@@ -1,6 +1,10 @@
+**What We Know About the Helicopter Crash That Killed Iran’s President**\
+`The deaths of two of Iran’s most high-profile leaders — President Ebrahim Raisi and Foreign Minister Hossein Amir Abdollahian — come at a tumultuous time for the country.`\
+https://nytimes.com/2024/05/20/world/europe/iran-crash-what-we-know.html
+
 **Raisi’s Death Threatens New Instability for Iran**\
 `The sudden death of Iran’s president, Ebrahim Raisi, disrupts a careful effort at a smooth transition to a new supreme leader to replace the aging Ali Khamenei.`\
-https://nytimes.com/2024/05/20/world/europe/raisis-death-threatens-new-instability-for-iran.html
+https://nytimes.com/2024/05/20/world/europe/raisi-iran-instability.html
 
 **Closing Arguments in Trump’s Trial Will Likely Be Next Week, Judge Says**\
 `Defense lawyers have the opportunity to call witnesses, including their client, former President Donald J. Trump, but whether he will testify is not clear. Then the case goes to the jury.`\
@@ -30,4 +34,3 @@ https://nytimes.com/2024/05/20/world/europe/uk-assange-appeal.html
 `By Anton Troianovski`\
 https://nytimes.com/live/2024/05/19/world/iran-president-crash/raisis-final-trip-put-the-spotlight-on-a-key-relationship-in-the-caucasus-region
 
-**A top Biden aide meets with Israeli military officials, and other news.**\
