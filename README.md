@@ -1,7 +1,3 @@
-**What Does the Dow Hitting 40,000 Tell Us?**\
-`The stock market isn’t the economy — but its record high refutes conspiracy theories.`\
-https://nytimes.com/2024/05/20/opinion/trump-biden-stock-market-dow-jones.html
-
 **City Hall Aide Is Cooperating With Corruption Investigation Into Adams**\
 `Eric Adams’s former liaison to the Turkish community, Rana Abbasova, had knowledge of some of the mayor’s dealings with Turkish officials.`\
 https://nytimes.com/2024/05/20/nyregion/adams-fbi-corruption-investigation-aide.html
@@ -33,4 +29,8 @@ https://nytimes.com/2024/05/20/nyregion/trump-trial-ny-hush-money-takeaways.html
 **Former Trump Officials Meet in Israel With Netanyahu**\
 `Robert O’Brien, one of Donald Trump’s closest foreign policy advisers, said he was there as a “private citizen.”`\
 https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/former-trump-officials-meet-in-israel-with-netanyahu
+
+**The Death of Iran’s President Does Not Bode Well**\
+`The generation on the cusp of taking power in Iran sees domestic oppression and foreign aggression as indispensable to the success of the revolution.`\
+https://nytimes.com/2024/05/20/opinion/international-world/iran-president-death.html
 
