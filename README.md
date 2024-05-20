@@ -1,3 +1,15 @@
+**Who is Karim Khan, the I.C.C. prosecutor?**\
+`By Marlise Simons`\
+https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/who-is-karim-khan-the-icc-prosecutor
+
+**Iran’s President Died, Opening a New Chapter of Instability**\
+`Also, prosecutors rested their case against Trump. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/05/20/briefing/iran-president-died-icc-arrest-warrant.html
+
+**Trump Media Reports Lackluster Revenues and Large Losses**\
+`The former president’s social media company reported taking in $770,000 in advertising revenue in the first quarter, sharply down from the year-ago period.`\
+https://nytimes.com/2024/05/20/business/trump-media-quarterly-results.html
+
 **A High-Stress Countdown Begins**\
 `The prosecution rested its case and closing arguments are expected to begin next week.`\
 https://nytimes.com/2024/05/20/us/politics/trump-trial-prosecution-rests.html
@@ -21,16 +33,4 @@ https://nytimes.com/video/world/middleeast/100000009478748/netanyahu-icc-warrant
 **Robert Costello, Defense Witness in Trump Trial, Is Scolded by Judge**\
 `Mr. Costello tried to cast Michael D. Cohen, the witness at the heart of the prosecution’s case, as a liar, but the judge lost his patience with the witness.`\
 https://nytimes.com/2024/05/20/nyregion/trump-hush-money-trial-robert-costello.html
-
-**Cohen Endures Cross-Examination Under the Eyes of Trump’s Entourage**\
-`Michael D. Cohen admitted stealing from the Trump Organization, but maintained his cool. The former president arrived with many supporters, some with criminal histories.`\
-https://nytimes.com/2024/05/20/nyregion/michael-cohen-trump-court.html
-
-**Jim Otto, Hall of Fame Raiders Center, Is Dead at 86**\
-`Despite his accomplishments on the field, he was remembered mostly for the many beatings his body absorbed, which left him in constant pain.`\
-https://nytimes.com/2024/05/20/sports/football/jim-otto-dead.html
-
-**Top Education Officials Were Warned of FAFSA Overhaul Hurdles in 2020**\
-`Documents obtained by The Times show the department’s troubled FAFSA rollout this year came in spite of early warnings that the project required sustained attention.`\
-https://nytimes.com/2024/05/20/us/politics/fafsa-application-education-department.html
 
