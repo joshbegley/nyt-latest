@@ -1,3 +1,7 @@
+**Analysts and officials in Iran are apprehensive about what comes next.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/05/19/world/iran-president-crash/analysts-and-officials-in-iran-are-apprehensive-about-what-comes-next
+
 **Trump Could Soon Be a Felon. Does It Matter?**\
 `A strange sense of anticlimax hangs over the Trump trial.`\
 https://nytimes.com/2024/05/20/opinion/columnists/trump-trial-apathy.html
