@@ -1,3 +1,7 @@
+**Israel Should Expect Little Change From Raisi’s Replacement, Experts Say**\
+`Israel, despite being one of Iran’s biggest foes, saw little strategic benefit from the president’s death and was not likely to change its posture toward Tehran, analysts said.`\
+https://nytimes.com/2024/05/19/world/middleeast/israel-iran-raisi.html
+
 **Leaders of past protests in Israel re-emerge as Parliament reconvenes.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/leaders-of-past-protests-in-israel-re-emerge-as-parliament-reconvenes
