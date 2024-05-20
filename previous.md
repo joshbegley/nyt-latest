@@ -22,8 +22,8 @@ https://nytimes.com/2024/05/20/learning/how-did-you-grow-and-change-this-school-
 `After a secret review several years ago, the bureau cut off confidential sources thought to be connected to Russian disinformation.`\
 https://nytimes.com/2024/05/20/us/politics/fbi-shed-informants-linked-to-russian-influence-operations.html
 
-**Here’s a look at some other prominent figures who have died in helicopter crashes.**\
-`By Matthew Mpoke Bigg`\
+**Here Are Some Other Prominent Figures Who Have Died in Helicopter Crashes**\
+`Officials from Ukraine, Kenya and Sudan are just some of the others who have also died in crashes.`\
 https://nytimes.com/2024/05/19/world/middleeast/helicopter-crash-iran-president.html
 
 **Aggression or Caution: The Choice Facing Iran’s Next Leaders**\

@@ -1,3 +1,7 @@
+**Here Are Some Other Prominent Figures Who Have Died in Helicopter Crashes**\
+`Officials from Ukraine, Kenya and Sudan are just some of the others who have also died in crashes.`\
+https://nytimes.com/2024/05/19/world/middleeast/helicopter-crash-iran-president.html
+
 **Choreographer’s ‘Dog Poop Attack’ on a Critic Inspired This New Play**\
 `At this year’s Theatertreffen drama festival, one production explores an incident that shocked the German theater world last year.`\
 https://nytimes.com/2024/05/20/theater/the-dog-poop-attack-theatertreffen.html
