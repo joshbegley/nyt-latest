@@ -1,3 +1,7 @@
+**Biden Says Israeli Military Assault in Gaza Is ‘Not Genocide’**\
+`At a celebration of Jewish Heritage Month, President Biden pledged support to Israel and condemned a decision by the prosecutor for the International Criminal Court to seek arrest warrants for top Israeli officials.`\
+https://nytimes.com/video/us/politics/100000009479218/biden-israel-gaza-genocide.html
+
 **Trump’s Eyes Wide Shut Strategy**\
 `The prosecution rested its case. And Trump rested his eyes.`\
 https://nytimes.com/2024/05/20/us/politics/trump-eyes-shut-strategy.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/style/mahjong-green-tile-social-club.html
 **Who is Karim Khan, the I.C.C. prosecutor?**\
 `By Marlise Simons`\
 https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/who-is-karim-khan-the-icc-prosecutor
-
-**Iran’s President Died, Opening a New Chapter of Instability**\
-`Also, prosecutors rested their case against Trump. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2024/05/20/briefing/iran-president-died-icc-arrest-warrant.html
 
