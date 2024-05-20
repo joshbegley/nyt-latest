@@ -1,3 +1,15 @@
+**Iran’s President Dies in Crash, and Trump Trial Enters Final Days**\
+`Plus, Baltimore bridge ship to be moved.`\
+https://nytimes.com/2024/05/20/podcasts/iran-president-raisi-helicopter-crash-trump-trial.html
+
+**Senate Inquiry Finds BMW Imported Cars Tied to Forced Labor in China**\
+`The report also found that Jaguar Land Rover and Volkswagen bought parts from a supplier the U.S. government had singled out for its practices in Xinjiang.`\
+https://nytimes.com/2024/05/20/business/economy/senate-bmw-volkswagen-jaguar-land-rover-xinjiang.html
+
+**Was the 401(k) a Mistake?**\
+`Much of why Americans are retiring with so little money can be traced to the reliance on the retirement account.`\
+https://nytimes.com/2024/05/20/podcasts/the-daily/401k-retirement.html
+
 **World leaders react to Raisi’s death.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/05/19/world/iran-president-helicopter-crash/world-leaders-react-to-raisis-death
@@ -21,16 +33,4 @@ https://nytimes.com/2024/05/20/movies/chatgpt-4o-scarlett-johansson-her.html
 **Justice Alito’s Blame-the-Wife Defense Never Goes Out of Style**\
 `In sickness and health, in public scandal and with convenient finger-pointing.`\
 https://nytimes.com/2024/05/20/opinion/justice-alito-wife-flag.html
-
-**We’re Suddenly Living in a ‘My Wife Did It’ Moment**\
-`Justice Alito and Senator Menendez have one thing in common.`\
-https://nytimes.com/2024/05/20/opinion/trump-biden-debates-trial-vp.html
-
-**A Trump Conviction Doesn’t Hang on Michael Cohen**\
-`As provocative as the testimony has been, this case may turn on something a great deal more mundane.`\
-https://nytimes.com/2024/05/20/opinion/trump-conviction-michael-cohen.html
-
-**Is There an Alternative to the Little Black Dress?**\
-`Plenty of other garments can be used as the basis for simple, chic looks for a variety of occasions, our critic writes.`\
-https://nytimes.com/2024/05/20/style/little-black-dress-alternative.html
 
