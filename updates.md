@@ -1,3 +1,7 @@
+**A Former Leader of the Hells Angels Motorcycle Gang Joins Trump in Court**\
+`Chuck Zito, who did time on drug conspiracy charges, has tried to recast his persona as a general-purpose tough guy around town.`\
+https://nytimes.com/2024/05/20/nyregion/chuck-zito-hells-angels-trump-trial.html
+
 **Emma Stone, Jesse Plemons and Willem Dafoe Crack the Yorgos Lanthimos Code**\
 `The stars of his newest film, “Kinds of Kindness” explain that when working with the director, the less you know, the better.`\
 https://nytimes.com/2024/05/20/movies/emma-stone-jesse-plemons-willem-dafoe-yorgos-lanthimos-kinds-of-kindness.html

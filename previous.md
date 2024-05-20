@@ -1,3 +1,7 @@
+**A Former Leader of the Hells Angels Motorcycle Gang Joins Trump in Court**\
+`Chuck Zito, who did time on drug conspiracy charges, has tried to recast his persona as a general-purpose tough guy around town.`\
+https://nytimes.com/2024/05/20/nyregion/chuck-zito-hells-angels-trump-trial.html
+
 **Emma Stone, Jesse Plemons and Willem Dafoe Crack the Yorgos Lanthimos Code**\
 `The stars of his newest film, “Kinds of Kindness” explain that when working with the director, the less you know, the better.`\
 https://nytimes.com/2024/05/20/movies/emma-stone-jesse-plemons-willem-dafoe-yorgos-lanthimos-kinds-of-kindness.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/world/middleeast/icc-arrest-warrants-israel-hamas
 **What We Know About the Helicopter Crash That Killed Iran’s President**\
 `The deaths of two of Iran’s most high-profile leaders — President Ebrahim Raisi and Foreign Minister Hossein Amir Abdollahian — come at a tumultuous time for the country.`\
 https://nytimes.com/2024/05/20/world/europe/iran-crash-what-we-know.html
-
-**Raisi’s Death Threatens New Instability for Iran**\
-`The sudden death of Iran’s president, Ebrahim Raisi, disrupts a careful effort at a smooth transition to a new supreme leader to replace the aging Ali Khamenei.`\
-https://nytimes.com/2024/05/20/world/europe/raisi-iran-instability.html
 
