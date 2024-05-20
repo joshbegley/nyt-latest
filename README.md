@@ -1,6 +1,6 @@
 **Biden and Blinken accuse the I.C.C. prosecutor of falsely equating Israel and Hamas.**\
 `By Michael D. Shear`\
-https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/biden-and-blinken-accuse-the-icc-prosecutor-of-falsely-equating-israel-and-hamas
+https://nytimes.com/2024/05/20/world/middleeast/icc-warrants-israel-biden-blinken.html
 
 **How the Cockroach Took Over the World**\
 `A genetic analysis of the German cockroach explained its rise in southern Asia millenniums ago, and how it eventually turned up in your kitchen.`\
