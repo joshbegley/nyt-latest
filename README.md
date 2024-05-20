@@ -1,3 +1,7 @@
+**Word of the Day: galling**\
+`This word has appeared in 37 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/20/learning/word-of-the-day-galling.html
+
 **Rescuers Find Helicopter Carrying Iran’s President**\
 `After scouring a mountainous area of dense forest, rescuers found the remains of the aircraft, which had the president and foreign minister on board.`\
 https://nytimes.com/video/world/middleeast/100000009477239/iran-president-crash.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/business/economy/europe-defense-spending.html
 **Chinese Firms Face Authoritarianism at Home and Hostility Abroad**\
 `The experience of TikTok’s owner, ByteDance, in Beijing and Washington shows how much the ground has shifted for China’s entrepreneurs.`\
 https://nytimes.com/2024/05/20/business/china-companies-tiktok-overseas.html
-
-**Julian Assange’s Extradition Appeal Hearing: What Could Happen?**\
-`A hearing on Monday will determine whether Julian Assange has any more recourse in the British courts to appeal his extradition to the United States.`\
-https://nytimes.com/2024/05/20/world/europe/julian-assanges-extradition-appeal-hearing-what-could-happen.html
 
