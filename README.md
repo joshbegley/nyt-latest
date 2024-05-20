@@ -1,3 +1,7 @@
+**Analysts and officials in Iran are apprehensive about what comes next.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/05/19/world/iran-president-crash/analysts-and-officials-in-iran-are-apprehensive-about-what-comes-next
+
 **Trump Could Soon Be a Felon. Does It Matter?**\
 `A strange sense of anticlimax hangs over the Trump trial.`\
 https://nytimes.com/2024/05/20/opinion/columnists/trump-trial-apathy.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/us/politics/100000009479218/biden-israel-gaza-genocide
 **Trump’s Eyes Wide Shut Strategy**\
 `The prosecution rested its case. And Trump rested his eyes.`\
 https://nytimes.com/2024/05/20/us/politics/trump-eyes-shut-strategy.html
-
-**N.Y.C. Parents Rebuked for Questioning Transgender Student-Athlete Rules**\
-`Over a dozen Democratic elected officials criticized a parent group that asked for a review of rules that let students play on sports teams that align with their gender identity.`\
-https://nytimes.com/2024/05/20/nyregion/transgender-athletes-nyc-public-schools.html
 
