@@ -1,3 +1,11 @@
+**Here are some other leaders for whom the International Criminal Court has issued arrest warrants.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/here-are-some-other-leaders-for-whom-the-international-criminal-court-has-issued-arrest-warrants
+
+**In a House Race in N.H., a Famous Spouse, and a Traumatic Pregnancy**\
+`Maggie Tamposi Goodlander, the wife of the national security adviser, is navigating a personal landscape with little precedent in her run for Congress in New Hampshire.`\
+https://nytimes.com/2024/05/20/us/politics/maggie-goodlander-jake-sullivan.html
+
 **After Raisi’s Death, Speculation Over Succession Turns to Ayatollah’s Son**\
 `Mojtaba Khamenei, 65,  plays an influential role in the office of the supreme leader, Ayatollah Ali Khamenei, and has fostered ties within the security apparatus.`\
 https://nytimes.com/2024/05/20/world/middleeast/iran-raisi-death-supreme-leader.html

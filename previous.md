@@ -1,3 +1,11 @@
+**Here are some other leaders for whom the International Criminal Court has issued arrest warrants.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/here-are-some-other-leaders-for-whom-the-international-criminal-court-has-issued-arrest-warrants
+
+**In a House Race in N.H., a Famous Spouse, and a Traumatic Pregnancy**\
+`Maggie Tamposi Goodlander, the wife of the national security adviser, is navigating a personal landscape with little precedent in her run for Congress in New Hampshire.`\
+https://nytimes.com/2024/05/20/us/politics/maggie-goodlander-jake-sullivan.html
+
 **After Raisi’s Death, Speculation Over Succession Turns to Ayatollah’s Son**\
 `Mojtaba Khamenei, 65,  plays an influential role in the office of the supreme leader, Ayatollah Ali Khamenei, and has fostered ties within the security apparatus.`\
 https://nytimes.com/2024/05/20/world/middleeast/iran-raisi-death-supreme-leader.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/20/opinion/palestinians-israel-international-crimina
 **As New Yorkers Turn on Mayor Adams, Prominent Democrats Join the Pile-On**\
 `Former Gov. Andrew M. Cuomo and Jumaane Williams, New York City’s public advocate, criticized the mayor over his management of public housing and campus protests.`\
 https://nytimes.com/2024/05/20/nyregion/adams-cuomo-jumaane-williams.html
-
-**Cannes Meets Trump: ‘The Apprentice’ Sells a Controversial Origin Story**\
-`The film covers Donald J. Trump’s relationships with the fixer Roy Cohn and his first wife, Ivana, and tries to explain the future president, at least as a young man.`\
-https://nytimes.com/2024/05/20/movies/trump-movie-cannes-film-festival-apprentice.html
-
-**A prosecutor is alleging Israeli officials have used starvation as a weapon of war. Here’s what the charge entails.**\
-`The crime of intentionally starving civilians is one of seven charges leveled at Prime Minister Benjamin Netanyahu in a statement issued by the International Criminal Court on Monday.`\
-https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/a-prosecutor-is-alleging-israeli-officials-have-used-starvation-as-a-weapon-of-war-heres-what-the-charge-entails
 
