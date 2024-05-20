@@ -1,3 +1,27 @@
+**Prosecutors Poised to Conclude Trump Case as Trial Enters Final Days**\
+`Monday’s court session will begin early, with the cross-examination of Michael D. Cohen continuing. Lawyers have been told to have their closing arguments ready by Tuesday.`\
+https://nytimes.com/2024/05/20/nyregion/trump-trial-cohen-cross-examination-monday.html
+
+**Is Curbside Parking an Endangered Species?**\
+`City officials and others are reconsidering how New Yorkers store their cars.`\
+https://nytimes.com/2024/05/20/nyregion/new-york-curbside-parking.html
+
+**Outside the Trump Trial: Sock Puppets, Sex Pills and Smutty Balloons**\
+`The city serves up a cast of supporting characters who flock to a park outside Manhattan Criminal Court, where Donald Trump is on trial, and grab the spotlight.`\
+https://nytimes.com/2024/05/20/nyregion/trump-trial-ny-courthouse.html
+
+**The Connections Companion No. 344**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/20/crosswords/connections-companion.html
+
+**Today’s Wordle Review No. 1,066**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/20/crosswords/wordle-review.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/05/20/crosswords/spelling-bee-forum.html
+
 **Word of the Day: galling**\
 `This word has appeared in 37 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/05/20/learning/word-of-the-day-galling.html
@@ -9,28 +33,4 @@ https://nytimes.com/video/world/middleeast/100000009477239/iran-president-crash.
 **This ‘Russian’ Woman Loves China. Too Bad She’s a Deepfake.**\
 `A.I.-manipulated videos on Chinese sites use young, supposedly Russian women to promote China-Russia ties, stoke patriotism — and make money.`\
 https://nytimes.com/2024/05/20/world/asia/china-russia-deepfake.html
-
-**What’s on TV This Week: ‘Abbott Elementary’ and ‘The Good Doctor’**\
-`The ABC comedy wraps up its third season. The medical show airs its series finale.`\
-https://nytimes.com/2024/05/20/arts/television/whats-on-tv-this-week-abbott-elementary-and-the-good-doctor.html
-
-**Occupation Has Corrupted the Humanity of Israel’s Military**\
-`There is a disregard among Israeli soldiers for Palestinian lives, and we are seeing it in Gaza today.`\
-https://nytimes.com/2024/05/20/opinion/israel-gaza-idf-palestinians-human-rights.html
-
-**Monday Briefing**\
-`Iran’s president is killed in a helicopter crash.`\
-https://nytimes.com/2024/05/20/briefing/iran-president-killed-israel-ukraine.html
-
-**Ebrahim Raisi, Iran’s President, Dies in Helicopter Crash at 63**\
-`The hard-line Shiite cleric was seen as a possible successor to Iran’s supreme leader. Mr. Raisi’s death comes at a moment of turbulence for a country facing a deepening conflict with Israel.`\
-https://nytimes.com/2024/05/20/world/europe/ebrahim-raisi-iran-dead.html
-
-**Europe Wants to Build a Stronger Defense Industry, but Can’t Decide How**\
-`Conflicting political visions, competitive jockeying and American dominance stand in the way of a more coordinated and efficient military machine.`\
-https://nytimes.com/2024/05/20/business/economy/europe-defense-spending.html
-
-**Chinese Firms Face Authoritarianism at Home and Hostility Abroad**\
-`The experience of TikTok’s owner, ByteDance, in Beijing and Washington shows how much the ground has shifted for China’s entrepreneurs.`\
-https://nytimes.com/2024/05/20/business/china-companies-tiktok-overseas.html
 
