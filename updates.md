@@ -1,3 +1,7 @@
+**‘Stax: Soulsville, U.S.A.’ Review: Looking for a Little Respect**\
+`An HBO series tells the triumphant, tragic story of the record label Otis Redding, Isaac Hayes and the Staple Singers called home.`\
+https://nytimes.com/2024/05/20/arts/television/stax-soulsville-usa-review-hbo.html
+
 **Does Legalizing Cannabis Increase Adolescent Use? This Expert Found Mixed Results.**\
 `Contrary to expectation, a major study found that weed use among minors was lower in states where the drug was legal.`\
 https://nytimes.com/2024/05/20/health/adolescents-cannabis-coley.html
