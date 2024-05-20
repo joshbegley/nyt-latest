@@ -1,3 +1,7 @@
+**Cooking for One Can Be Fun, Easy and Delicious. Here’s How.**\
+`Making food for just yourself can feel like a burden night after night, but there are ways to make it less of a chore.`\
+https://nytimes.com/2024/05/20/dining/how-to-cook-for-one.html
+
 **Dublin-New York Portal Reopens After Flashing and Other Shenanigans**\
 `After closing because of questionable behavior last week, a video connection between Ireland and New York City is back on. Crowds rejoiced — in Dublin, anyway.`\
 https://nytimes.com/2024/05/20/world/europe/portal-dublin-new-york.html
