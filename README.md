@@ -1,6 +1,10 @@
+**Trump Could Soon Be a Felon. Does It Matter?**\
+`A strange sense of anticlimax hangs over the Trump trial.`\
+https://nytimes.com/2024/05/20/opinion/columnists/trump-trial-apathy.html
+
 **Scarlett Johansson Says OpenAI Asked to Use Her Voice. Twice.**\
 `Last week, the company released a chatbot with an option that sounded like the actress, who provided the voice of an A.I. system in the movie “Her.”`\
-https://nytimes.com/2024/05/20/business/scarlett-johannson-openai-voice.html
+https://nytimes.com/2024/05/20/technology/scarlett-johannson-openai-voice.html
 
 **A Tongue-Lashing for a Defense Witness Isn’t Great News for Trump**\
 `The witness tried to play judge, and the real judge was not pleased.`\
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/us/politics/trump-eyes-shut-strategy.html
 **N.Y.C. Parents Rebuked for Questioning Transgender Student-Athlete Rules**\
 `Over a dozen Democratic elected officials criticized a parent group that asked for a review of rules that let students play on sports teams that align with their gender identity.`\
 https://nytimes.com/2024/05/20/nyregion/transgender-athletes-nyc-public-schools.html
-
-**U.S. ‘Condolences’ for Raisi Reflect a Delicate Diplomatic Ritual**\
-`Whether it’s Stalin or Castro or Kim Jong-il, the United States struggles for the right words when a reviled foreign strongman dies.`\
-https://nytimes.com/2024/05/20/us/politics/us-condolences-raisi.html
 
