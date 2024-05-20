@@ -1,3 +1,7 @@
+**Dublin-New York Portal Reopens After Flashing and Other Shenanigans**\
+`After closing because of questionable behavior last week, a video connection between Ireland and New York City is back on. Crowds rejoiced — in Dublin, anyway.`\
+https://nytimes.com/2024/05/20/world/europe/portal-dublin-new-york.html
+
 **Israel and Gaza: Despair and What-Ifs**\
 `Readers disagree about a guest essay by Megan K. Stack. Also: Big politics in politics; “journey” as metaphor; helping the mentally ill and homeless.`\
 https://nytimes.com/2024/05/20/opinion/israel-gaza-despair.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/business/ivan-f-boesky-dead.html
 **Faced With a Russian Onslaught, Ukraine Struggles to Keep the Lights On**\
 `The government has for the first time ordered nationwide rolling blackouts for Monday night to conserve energy.`\
 https://nytimes.com/2024/05/20/world/europe/russia-ukraine-lights.html
-
-**At Cannes, Lily Gladstone Scores a Familiar Seat**\
-`The juror found herself at the center of the Kering Women in Motion dinner, a year after she was a little-known guest for “Killers of the Flower Moon.”`\
-https://nytimes.com/2024/05/20/movies/lily-gladstone-cannes-film-festival.html
 
