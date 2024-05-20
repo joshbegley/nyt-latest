@@ -1,3 +1,7 @@
+**Leaders of past protests in Israel re-emerge as Parliament reconvenes.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/leaders-of-past-protests-in-israel-re-emerge-as-parliament-reconvenes
+
 **A Safety Check for OpenAI**\
 `Former employees of the ChatGPT maker raised concerns that it isn’t doing enough to make sure its products don’t pose a threat to humanity.`\
 https://nytimes.com/2024/05/20/business/dealbook/openai-leike-safety-superalignment.html
