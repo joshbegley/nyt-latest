@@ -1,3 +1,7 @@
+**The Best of ‘S.N.L.’: Trump Trolling, ‘Dune’ Buckets and Beavis Breakdowns**\
+`Season 49 of “Saturday Night Live” has just ended. Here’s a look back at its most memorable monologues, sketches, product parodies and impressions.`\
+https://nytimes.com/2024/05/20/arts/television/best-of-snl-trump-dune-and-beavis.html
+
 **Amal Clooney Was Among the Experts Consulted on I.C.C. Warrants**\
 `Ms. Clooney, a prominent human rights lawyer, was on a panel that recommended arrest warrants for leaders of Israel and Hamas. She had been criticized for not speaking out on the war.`\
 https://nytimes.com/2024/05/20/world/middleeast/amal-clooney-icc-gaza.html
