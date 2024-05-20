@@ -1,3 +1,11 @@
+**For some in Iran, the response wasn’t sorrowful.**\
+`By Leily Nikounazar and Vivian Yee`\
+https://nytimes.com/live/2024/05/19/world/iran-president-crash/for-some-in-iran-the-response-wasnt-sorrowful
+
+**Penguin Random House Dismisses Two of Its Top Publishers**\
+`The departures of Reagan Arthur, of Alfred A. Knopf, and Lisa Lucas, of Pantheon and Schocken, in a restructuring came as a surprise to many in the company.`\
+https://nytimes.com/2024/05/20/books/booksupdate/knopf-doubleday-lisa-lucas-reagan-arthur.html
+
 **Choreographer’s ‘Dog Poop Attack’ on a Critic Inspired This New Play**\
 `At this year’s Theatertreffen drama festival, one production explores an incident that shocked the German theater world last year.`\
 https://nytimes.com/2024/05/20/theater/the-dog-poop-attack-theatertreffen.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/20/us/politics/fbi-shed-informants-linked-to-russian
 **Here Are Some Other Prominent Figures Who Have Died in Helicopter Crashes**\
 `Officials from Ukraine, Kenya and Sudan are just some of the others who have also died in crashes.`\
 https://nytimes.com/2024/05/19/world/middleeast/helicopter-crash-iran-president.html
-
-**Aggression or Caution: The Choice Facing Iran’s Next Leaders**\
-`The question is whether the successors to the president and foreign minister will take a similar path by keeping slivers of communication open, and avoiding direct conflict with the United States.`\
-https://nytimes.com/2024/05/20/us/politics/iran-raisi-us-negotiations.html
-
-**One of the first aid shipments to arrive at a U.S.-built pier was looted.**\
-`By Adam Rasgon and Patrick Kingsley`\
-https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/one-of-the-first-aid-shipments-to-arrive-at-a-us-built-pier-was-looted
 
