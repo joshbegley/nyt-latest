@@ -1,3 +1,11 @@
+**Senate to Vote Again on Border Deal as Democrats Seek Political Edge**\
+`The bipartisan border enforcement compromise, blocked by Republicans in February, is all but certain to be thwarted again. Democrats aim to tag the G.O.P. as the culprit in its failure.`\
+https://nytimes.com/2024/05/20/us/politics/senate-schumer-border-immigration.html
+
+**A Netanyahu rival said a warrant for his arrest would be a ‘historic crime.’**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/a-netanyahu-rival-said-a-warrant-for-his-arrest-would-be-a-historic-crime
+
 **Russia’s War Machine Revs Up as the West’s Plan to Cap Oil Revenues Sputters**\
 `Russia has largely evaded attempts by the U.S. and Europe to keep it from profiting from its energy exports.`\
 https://nytimes.com/2024/05/20/business/russia-oil-price-cap-policy.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/20/us/graduate-students-uc-santa-cruz-strike.html
 **Leaders of past protests in Israel re-emerge as Parliament reconvenes.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/leaders-of-past-protests-in-israel-re-emerge-as-parliament-reconvenes
-
-**A Safety Check for OpenAI**\
-`Former employees of the ChatGPT maker raised concerns that it isn’t doing enough to make sure its products don’t pose a threat to humanity.`\
-https://nytimes.com/2024/05/20/business/dealbook/openai-leike-safety-superalignment.html
-
-**Israel Should Expect Little Change From Raisi’s Replacement, Experts Say**\
-`Israel, despite being one of Iran’s biggest foes, saw little strategic benefit from the president’s death and was not likely to change its posture toward Tehran, analysts said.`\
-https://nytimes.com/2024/05/19/world/middleeast/israel-iran-raisi.html
 
