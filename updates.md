@@ -1,3 +1,11 @@
+**Hecklers Drown Out Trump’s Backers With Cowbells and Whistles**\
+`A contingent of supporters of the former president came to speak across from the courthouse, but they were inaudible.`\
+https://nytimes.com/2024/05/20/nyregion/trump-supporters-new-york.html
+
+**Sexual Assault Suit Against Neil Portnow, Ex-Grammys Chief, Is Dismissed**\
+`The plaintiff, who had filed her suit anonymously, told a judge that she feared the consequences if efforts to reveal her name during the proceeding were successful.`\
+https://nytimes.com/2024/05/20/arts/music/neil-portnow-grammys-sexual-assault-dismissed.html
+
 **Bank Regulator Overseeing ‘Toxic’ Culture Loses Key Supporter in Senate**\
 `Senator Sherrod Brown, who chairs the Senate Banking Committee, called for President Biden to replace Martin Gruenberg as leader of the F.D.I.C.`\
 https://nytimes.com/2024/05/20/business/fdic-gruenberg-replace.html
