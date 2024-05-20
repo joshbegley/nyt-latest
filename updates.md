@@ -1,3 +1,7 @@
+**I.C.C. Prosecutor Asks for Warrants for Netanyahu and Hamas Leaders**\
+`The International Criminal Court prosecutor, Karim Khan, said he believed that Hamas leaders and Prime Minister Benjamin Netanyahu of Israel were responsible for war crimes and crimes against humanity.`\
+https://nytimes.com/video/world/middleeast/100000009477536/icc-prosecutor-warrants-netanyahu-hamas.html
+
 **Senate to Vote Again on Border Deal as Democrats Seek Political Edge**\
 `The bipartisan border enforcement compromise, blocked by Republicans in February, is all but certain to be thwarted again. Democrats aim to tag the G.O.P. as the culprit in its failure.`\
 https://nytimes.com/2024/05/20/us/politics/senate-schumer-border-immigration.html
