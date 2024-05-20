@@ -23,7 +23,7 @@ https://nytimes.com/2024/05/20/nyregion/trump-supporters-new-york.html
 https://nytimes.com/2024/05/20/arts/music/neil-portnow-grammys-sexual-assault-dismissed.html
 
 **Bank Regulator Overseeing ‘Toxic’ Culture Loses Key Supporter in Senate**\
-`Senator Sherrod Brown, who chairs the Senate Banking Committee, called for President Biden to replace Martin Gruenberg as leader of the F.D.I.C.`\
+`Senator Sherrod Brown, the chair of the Senate Banking Committee, called for President Biden to replace Martin Gruenberg as leader of the F.D.I.C.`\
 https://nytimes.com/2024/05/20/business/fdic-gruenberg-replace.html
 
 **Let Justice in the Gaza War Take Its Course**\

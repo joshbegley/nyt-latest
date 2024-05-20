@@ -1,3 +1,7 @@
+**Bank Regulator Overseeing ‘Toxic’ Culture Loses Key Supporter in Senate**\
+`Senator Sherrod Brown, the chair of the Senate Banking Committee, called for President Biden to replace Martin Gruenberg as leader of the F.D.I.C.`\
+https://nytimes.com/2024/05/20/business/fdic-gruenberg-replace.html
+
 **Here are some other leaders for whom the International Criminal Court has issued arrest warrants.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/here-are-some-other-leaders-for-whom-the-international-criminal-court-has-issued-arrest-warrants

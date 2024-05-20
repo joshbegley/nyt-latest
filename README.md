@@ -1,3 +1,7 @@
+**Can Artificial Intelligence Make the PC Cool Again?**\
+`Microsoft, HP, Dell and others unveiled a new kind of laptop tailored to work with artificial intelligence. Analysts expect Apple to do something similar.`\
+https://nytimes.com/2024/05/20/technology/artificial-intelligence-pc-computers.html
+
 **Here are some other leaders for whom the International Criminal Court has issued arrest warrants.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/05/20/world/israel-gaza-war-hamas-rafah/here-are-some-other-leaders-for-whom-the-international-criminal-court-has-issued-arrest-warrants
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/business/fdic-gruenberg-replace.html
 **Let Justice in the Gaza War Take Its Course**\
 `The request for International Criminal Court arrest warrants promotes the idea that the basic rules of international humanitarian law apply to all.`\
 https://nytimes.com/2024/05/20/opinion/palestinians-israel-international-criminal-court-justice.html
-
-**As New Yorkers Turn on Mayor Adams, Prominent Democrats Join the Pile-On**\
-`Former Gov. Andrew M. Cuomo and Jumaane Williams, New York City’s public advocate, criticized the mayor over his management of public housing and campus protests.`\
-https://nytimes.com/2024/05/20/nyregion/adams-cuomo-jumaane-williams.html
 
