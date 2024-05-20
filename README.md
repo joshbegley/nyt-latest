@@ -1,3 +1,7 @@
+**Proud to Serve Israel, but Not Its Government**\
+`Some reservists in the Israel Defense Forces who have returned home from war have joined the growing calls within Israel for Prime Minister Benjamin Netanyahu and his right-wing coalition to step aside.`\
+https://nytimes.com/video/world/middleeast/100000009411435/idf-reservists-netanyahu-israel-war.html
+
 **South Africa’s Highest Court Says Jacob Zuma Can’t Run in Election**\
 `The political comeback of Mr. Zuma, the former president and onetime leader of the African National Congress, has presented a test for the country’s fledgling democracy.`\
 https://nytimes.com/2024/05/20/world/africa/zuma-south-africa.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/crosswords/spelling-bee-forum.html
 **Word of the Day: galling**\
 `This word has appeared in 37 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/05/20/learning/word-of-the-day-galling.html
-
-**Rescuers Find Helicopter Carrying Iran’s President**\
-`After scouring a mountainous area of dense forest, rescuers found the remains of the aircraft, which had the president and foreign minister on board.`\
-https://nytimes.com/video/world/middleeast/100000009477239/iran-president-crash.html
 
