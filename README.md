@@ -1,6 +1,10 @@
+**Ivan F. Boesky, Rogue Trader in 1980s Wall Street Scandal, Dies at 87**\
+`An inspiration for the Gordon Gekko character in the movie “Wall Street,” he made a fortune from insider trading before his downfall brought a crashing end to a decade of greed.`\
+https://nytimes.com/2024/05/20/business/ivan-f-boesky-dead.html
+
 **Faced With a Russian Onslaught, Ukraine Struggles to Keep the Lights On**\
 `The government has for the first time ordered nationwide rolling blackouts for Monday night to conserve energy.`\
-https://nytimes.com/2024/05/20/world/europe/faced-with-a-russian-onslaught-ukraine-struggles-to-keep-the-lights-on.html
+https://nytimes.com/2024/05/20/world/europe/russia-ukraine-lights.html
 
 **At Cannes, Lily Gladstone Scores a Familiar Seat**\
 `The juror found herself at the center of the Kering Women in Motion dinner, a year after she was a little-known guest for “Killers of the Flower Moon.”`\
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/books/lies-and-weddings-kevin-kwan.html
 **Legalized Weed Is Landing More Seniors in the E.R.**\
 `In Canada, cannabis poisonings rose sharply among people 65 and older after the country legalized the drug, a new study found.`\
 https://nytimes.com/2024/05/20/science/cannabis-seniors-poisoning.html
-
-**Fiery, Tingly Kung Pao Tofu**\
-`More fast, flavorful dinners: miso-honey chicken and asparagus; roasted salmon with pea pesto; sheet-pan meatballs with tomatoes and broccoli.`\
-https://nytimes.com/2024/05/20/dining/fiery-tingly-kung-pao-tofu.html
 
