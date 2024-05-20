@@ -1,3 +1,7 @@
+**What to Know About the I.C.C. Prosecutor’s Request for Warrants for Israeli and Hamas Leaders**\
+`The International Criminal Court prosecutor requested arrest warrants for Prime Minister Benjamin Netanyahu of Israel and Hamas leaders. Here is a closer look at the court and the warrant.`\
+https://nytimes.com/2024/05/20/world/middleeast/icc-arrest-warrants-israel-hamas.html
+
 **What We Know About the Helicopter Crash That Killed Iran’s President**\
 `The deaths of two of Iran’s most high-profile leaders — President Ebrahim Raisi and Foreign Minister Hossein Amir Abdollahian — come at a tumultuous time for the country.`\
 https://nytimes.com/2024/05/20/world/europe/iran-crash-what-we-know.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/19/world/middleeast/israel-iran-raisi.html
 **Assange Can Appeal U.S. Extradition, English Court Rules**\
 `The WikiLeaks founder won his bid to appeal his extradition on espionage charges, opening a new chapter in a prolonged legal battle.`\
 https://nytimes.com/2024/05/20/world/europe/uk-assange-appeal.html
-
-**Raisi’s final trip put the spotlight on a key relationship in the Caucasus region.**\
-`By Anton Troianovski`\
-https://nytimes.com/live/2024/05/19/world/iran-president-crash/raisis-final-trip-put-the-spotlight-on-a-key-relationship-in-the-caucasus-region
 
