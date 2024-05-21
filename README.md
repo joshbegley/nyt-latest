@@ -1,3 +1,7 @@
+**Russian Forces Close In on Ukrainian Town in Northeast**\
+`Vovchansk has been a prime target of Russia’s offensive in the northeast, as it seeks to push back Ukrainian troops from the border.`\
+https://nytimes.com/2024/05/21/world/europe/ukraine-russia-vovchansk-buffer-zone.html
+
 **Weekly Student News Quiz: Prime Minister Shot, Westminster Dog Show, Gen Z Trend**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2024/05/21/learning/21StudentNewsQuiz.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/business/macys-earnings.html
 **Gazans Say I.C.C. Prosecutor’s Pursuit of Hamas Leaders Is Misguided**\
 `Some said the decision to seek arrest warrants for both Israeli and Hamas leaders on war crimes charges seemed to equate victim with perpetrator.`\
 https://nytimes.com/2024/05/21/world/middleeast/gaza-icc-prosecutor-warrants.html
-
-**Has Fentanyl Peaked?**\
-`We explain a decline in overdose deaths.`\
-https://nytimes.com/2024/05/21/briefing/has-fentanyl-peaked.html
 
