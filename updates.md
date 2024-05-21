@@ -1,3 +1,11 @@
+**‘What’s the Problem?’ Zelensky Challenges West Over Hesitations.**\
+`“Shoot down what’s in the sky over Ukraine,” he said in a wide-ranging interview with The New York Times. “And give us the weapons to use against Russian forces on the borders.”`\
+https://nytimes.com/2024/05/21/world/europe/ukraine-zelensky-interview.html
+
+**NATO’s Reluctance to Shoot Down Russian Missiles Frustrates Zelensky**\
+`President Volodymyr Zelensky of Ukraine urged NATO allies to play an active role in the war, saying it was a matter of defense.`\
+https://nytimes.com/video/world/europe/100000009479186/volodymyr-zelensky-ukraine-russia.html
+
 **Live Updates: Former Cohen Legal Adviser Back on Stand in Trump Case**\
 `Robert Costello, who once advised Michael D. Cohen, the key witness against Donald J. Trump, resumed testifying a day after butting heads with the judge. The defense hopes to undermine Mr. Cohen, who paid the hush money at the center of the case.`\
 https://nytimes.com/live/2024/05/21/nyregion/trump-trial-hush-money

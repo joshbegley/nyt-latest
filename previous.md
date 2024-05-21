@@ -1,3 +1,11 @@
+**‘What’s the Problem?’ Zelensky Challenges West Over Hesitations.**\
+`“Shoot down what’s in the sky over Ukraine,” he said in a wide-ranging interview with The New York Times. “And give us the weapons to use against Russian forces on the borders.”`\
+https://nytimes.com/2024/05/21/world/europe/ukraine-zelensky-interview.html
+
+**NATO’s Reluctance to Shoot Down Russian Missiles Frustrates Zelensky**\
+`President Volodymyr Zelensky of Ukraine urged NATO allies to play an active role in the war, saying it was a matter of defense.`\
+https://nytimes.com/video/world/europe/100000009479186/volodymyr-zelensky-ukraine-russia.html
+
 **Election Updates: Trump posts a video with fictional newspaper articles about “a unified Reich” if he wins.**\
 ``\
 https://nytimes.com/live/2024/05/21/us/biden-trump-primary-election
@@ -25,12 +33,4 @@ https://nytimes.com/interactive/2024/05/21/learning/21StudentNewsQuiz.html
 **Scarlett Johansson and OpenAI’s Trust Issues**\
 `The actress, who criticized the use of a soundalike voice for ChatGPT, is the latest to raise concerns about the artificial intelligence start-up’s practices.`\
 https://nytimes.com/2024/05/21/business/dealbook/scarlett-johansson-openai-chatgpt.html
-
-**Boys and Cologne**\
-`Do the teen and tween boys you know love high-end fragrances?`\
-https://nytimes.com/2024/05/21/learning/boys-and-cologne.html
-
-**Word of the Day: apathetic**\
-`This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/05/21/learning/word-of-the-day-apathetic.html
 
