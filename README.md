@@ -1,3 +1,7 @@
+**For the First Time in 155 Years, This Beach Will Be Open Sunday**\
+`The Christian community in Ocean Grove, N.J., is challenging a state order that has compelled it to let its beach be used on Sunday mornings.`\
+https://nytimes.com/2024/05/21/nyregion/ocean-grove-nj-beach.html
+
 **California Voters to Decide Who Will Finish McCarthy’s Term**\
 `Rep. Kevin McCarthy left Congress at the end of last year after being ousted as the House speaker. A special election on Tuesday will determine his Central Valley successor.`\
 https://nytimes.com/2024/05/21/us/politics/california-kevin-mccarthy-congress.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/us/politics/kamala-harris-unions-philadelphia.htm
 **‘Ha Ha Ha Ha Ha Ha Ha’ Review: This Absurdist Clown Is Just Here to Help**\
 `A hit at Edinburgh Fringe last year, Julia Masli’s show arrives at SoHo Playhouse for its New York debut.`\
 https://nytimes.com/2024/05/21/theater/julie-masli-ha-ha-ha-ha-ha-ha-ha-review.html
-
-**Court Drops Charges in Deadly Wreck in Mediterranean**\
-`A court in Greece said the country lacked jurisdiction in the case, in which nine Egyptians were charged with smuggling. What comes next is unclear.`\
-https://nytimes.com/2024/05/21/world/europe/greece-shipwreck-egyptians-migrants.html
 
