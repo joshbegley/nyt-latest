@@ -1,3 +1,7 @@
+**Trump’s Reported Fund-Raising Tops Biden’s for First Time**\
+`The pace of giving to Donald Trump’s campaign and the Republican Party picked up in April, according to his advisers. But President Biden still has far more cash on hand.`\
+https://nytimes.com/2024/05/21/us/politics/trump-biden-fundraising.html
+
 **Tuesday Briefing**\
 `The fallout after the death of Iran’s president.`\
 https://nytimes.com/2024/05/21/briefing/iran-president-death-israel-fbi.html

@@ -1,3 +1,7 @@
+**Trump’s Reported Fund-Raising Tops Biden’s for First Time**\
+`The pace of giving to Donald Trump’s campaign and the Republican Party picked up in April, according to his advisers. But President Biden still has far more cash on hand.`\
+https://nytimes.com/2024/05/21/us/politics/trump-biden-fundraising.html
+
 **Tuesday Briefing**\
 `The fallout after the death of Iran’s president.`\
 https://nytimes.com/2024/05/21/briefing/iran-president-death-israel-fbi.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/health/bird-flu-tracking-cambodia.html
 **Down in the Dumps**\
 `Zachary David Levy is really rocking it.`\
 https://nytimes.com/2024/05/20/crosswords/daily-puzzle-2024-05-21.html
-
-**Dartmouth’s President Is Censured by Faculty Over Protest Actions**\
-`The president, Sian Leah Beilock, called in the police just hours after a pro-Palestinian encampment went up on campus. A bystander and a professor were injured.`\
-https://nytimes.com/2024/05/20/us/dartmouth-president-beilock-censure.html
 
