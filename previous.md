@@ -1,6 +1,6 @@
 **California Voters to Decide Who Will Finish McCarthy’s Term**\
 `Rep. Kevin McCarthy left Congress at the end of last year after being ousted as the House speaker. A special election on Tuesday will determine his Central Valley successor.`\
-https://nytimes.com/2024/05/21/us/politics/california-kevin-mccarthy.html
+https://nytimes.com/2024/05/21/us/politics/california-kevin-mccarthy-congress.html
 
 **Tiny Love Stories: ‘He Said We Were Missing “The Magic”’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
