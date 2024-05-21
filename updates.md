@@ -1,3 +1,15 @@
+**An Attack on Justice Merchan is an Attack on the Rule of Law**\
+`In Trump’s criminal trial, the judge has been eminently fair.`\
+https://nytimes.com/live/2024/05/21/opinion/thepoint/trump-trial-merchan-fairness
+
+**Who’s in More Trouble: Israel or Iran?**\
+`Iran’s rulers have forgotten that revolutions have a history of consuming their own.`\
+https://nytimes.com/2024/05/21/opinion/israel-iran-raisi-death.html
+
+**Bibi Is Choosing Stefanik and Trump. President Biden, Don’t Be Fooled.**\
+`I don’t think Biden fully understands his “old friend” Netanyahu. Israeli defense officials are sending a clear warning.`\
+https://nytimes.com/2024/05/21/opinion/netanyahu-gaza-war.html
+
 **‘Insane’ Heat Has Been Scorching Miami. It’s Not Even June.**\
 `The hottest May on record for the city has experts worried about the summer — and hurricane season — to come.`\
 https://nytimes.com/2024/05/21/us/miami-heat-summer-weather.html
