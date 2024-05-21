@@ -1,3 +1,7 @@
+**I.C.C. Warrant Request Appears to Shore Up Domestic Support for Netanyahu**\
+`“The Hypocrisy of The Hague,” read the front page of one mainstream daily that has often been critical of Israel’s prime minister.`\
+https://nytimes.com/2024/05/21/world/middleeast/israel-netanyahu-icc-arrest-warrant.html
+
 **Oil and Gas Billionaires Drum Up Dollars for Trump**\
 `Fossil fuel companies enjoyed record profits under President Biden. But his decision to pause permits for gas export terminals has whipped up industry support for his challenger.`\
 https://nytimes.com/2024/05/21/climate/trump-campaign-oil-gas.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/world/middleeast/iran-election-president-death-ay
 **What Next for Iran, and Drama at the Trump Trial**\
 `Plus, Scarlett Johansson calls out OpenAI.`\
 https://nytimes.com/2024/05/21/podcasts/iran-president-future-trump-trial-costello.html
-
-**The Crypto Comeback**\
-`The fate of Sam Bankman-Fried’s FTX, and what it says about the improbable resurgence of cryptocurrencies.`\
-https://nytimes.com/2024/05/21/podcasts/the-daily/crypto-bitcoin-comeback.html
 
