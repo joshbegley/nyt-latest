@@ -1,3 +1,7 @@
+**Progressive Prosecutor in Portland Faces Bitter Challenge From Co-Worker**\
+`Mike Schmidt’s deputy at the Multnomah County D.A.’s Office has blamed him for Portland’s recent problems with drugs and crime.`\
+https://nytimes.com/2024/05/21/us/politics/mike-schmidt-prosecutor-portland-oregon.html
+
 **Trump Opens Door to Birth Control Restrictions, Then Tries to Close It**\
 `The former president suggested he might support letting states place restrictions on contraception, then said amid criticism that he didn’t support restrictions.`\
 https://nytimes.com/2024/05/21/us/politics/trump-birth-control-restrictions.html
