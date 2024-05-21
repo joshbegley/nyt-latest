@@ -1,3 +1,7 @@
+**Michael Cohen’s Trump Testimony Was Intense. Here Are the Highlights.**\
+`Mr. Cohen, Donald J. Trump’s former personal lawyer and fixer, spent four days on the stand in Mr. Trump’s criminal trial. He was the last witness called by prosecutors.`\
+https://nytimes.com/2024/05/21/nyregion/trump-michael-cohen-cross-examination.html
+
 **Threats of Violence Become the New Normal for Politicians**\
 `Some elected officials in California are rethinking public office in the face of increasing harassment.`\
 https://nytimes.com/2024/05/21/us/politicians-harassment.html
