@@ -1,3 +1,15 @@
+**How a $10 Fee on Your Car Insurance Bill Is Actually Spent**\
+`The fee collected by New York State is supposed to go toward fighting car thefts and fraud. But an audit found that the program was poorly run.`\
+https://nytimes.com/2024/05/21/nyregion/10-fee-car-insurance.html
+
+**For Kendrick and Drake, Family Matters**\
+`A rap battle got personal — and that was the point.`\
+https://nytimes.com/live/2024/05/14/opinion/thepoint/for-kendrick-and-drake-family-matters
+
+**Is the Party That Ended Apartheid Losing Its Grip on South Africa?**\
+`The African National Congress has long rested on its legacy. But increasingly that isn’t enough to persuade voters to keep it in power.`\
+https://nytimes.com/2024/05/21/magazine/south-africa-elections-anc.html
+
 **V.A. Has Approved 1 Million Claims Under Burn Pit Law, Biden to Announce**\
 `The president is heading to New Hampshire to discuss care for veterans suffering from toxic exposure, an issue that resonates for him personally and, his campaign hopes, politically.`\
 https://nytimes.com/2024/05/21/us/politics/biden-burn-pits-va-pact-act.html
