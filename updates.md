@@ -1,3 +1,7 @@
+**The Viral Defiance of Jasmine Crockett**\
+`Descending to Marjorie Taylor Greene’s level can be satisfying, but it is also degrading.`\
+https://nytimes.com/live/2024/05/21/opinion/thepoint/jasmine-crockett-greene-insults
+
 **Wednesday Briefing: Zelensky Speaks to The Times**\
 `Also, funeral ceremonies begin for Iran’s president.`\
 https://nytimes.com/2024/05/21/world/asia/zelensky-times-iran-booker-asia.html
