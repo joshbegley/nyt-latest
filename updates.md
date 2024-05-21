@@ -1,3 +1,11 @@
+**A Swift Defense and a Decision Ahead: 5 Takeaways From Trump’s Trial**\
+`Donald J. Trump’s lawyers called two witnesses and he was not one of them. Closing arguments will happen May 28.`\
+https://nytimes.com/2024/05/21/nyregion/trump-hush-money-trial-takeaways.html
+
+**Loan or Bribe? Menendez Jurors Hear About $23,568 Mortgage Payoff.**\
+`Senator Robert Menendez’s wife never signed a loan document before a man also charged in the bribery case arranged to pay her mortgage, a witness testified.`\
+https://nytimes.com/2024/05/21/nyregion/robert-menendez-bribery-trial.html
+
 **The Viral Defiance of Jasmine Crockett**\
 `Descending to Marjorie Taylor Greene’s level can be satisfying, but it is also degrading.`\
 https://nytimes.com/live/2024/05/21/opinion/thepoint/jasmine-crockett-greene-insults

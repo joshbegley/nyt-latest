@@ -1,3 +1,11 @@
+**A Swift Defense and a Decision Ahead: 5 Takeaways From Trump’s Trial**\
+`Donald J. Trump’s lawyers called two witnesses and he was not one of them. Closing arguments will happen May 28.`\
+https://nytimes.com/2024/05/21/nyregion/trump-hush-money-trial-takeaways.html
+
+**Loan or Bribe? Menendez Jurors Hear About $23,568 Mortgage Payoff.**\
+`Senator Robert Menendez’s wife never signed a loan document before a man also charged in the bribery case arranged to pay her mortgage, a witness testified.`\
+https://nytimes.com/2024/05/21/nyregion/robert-menendez-bribery-trial.html
+
 **The Viral Defiance of Jasmine Crockett**\
 `Descending to Marjorie Taylor Greene’s level can be satisfying, but it is also degrading.`\
 https://nytimes.com/live/2024/05/21/opinion/thepoint/jasmine-crockett-greene-insults
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/21/sports/toronto-blue-jays-fan-foul-ball.html
 **South Carolina Bans Gender Transition Care for Minors**\
 `With Gov. Henry McMaster’s signature, the state joins about two dozen others in passing laws that restrict or ban such medical care for transgender minors.`\
 https://nytimes.com/2024/05/21/us/south-carolina-transgender-care-ban.html
-
-**A Many-Splendored Self-Portrait of the Artist**\
-`Looking at his identity not as ramparts to defend but as curious paths to explore, René Treviño creates a survey-as-party and invites all the aspects of himself.`\
-https://nytimes.com/2024/05/21/arts/design/art-wellin-rene-trevino.html
-
-**Trump Chooses Not to Take the Stand, and the Defense Rests**\
-`Donald J. Trump’s lawyers mounted a minimal defense after prosecutors called 20 witnesses. Closing arguments in the first prosecution of an American president will take place May 28.`\
-https://nytimes.com/2024/05/21/nyregion/trump-hush-money-trial-testimony.html
 
