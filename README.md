@@ -1,11 +1,3 @@
-**Can Republicans Embrace Voting by Mail? Pennsylvania Offers a Test.**\
-`Republicans are now trying to sell voters on voting methods that the party has demonized for years. It won’t be easy.`\
-https://nytimes.com/2024/05/21/us/republicans-mail-voting-pennsylvania.html
-
-**Rent Is Harder to Handle and Inflation Is a Burden, a Fed Financial Survey Finds**\
-`The Federal Reserve’s 2023 survey on household financial well-being found Americans excelling in the job market but struggling with prices.`\
-https://nytimes.com/2024/05/21/business/economy/fed-financial-survey-american-households-inflation.html
-
 **How Donald Trump’s Financial Future Became Tied to Trump Media**\
 `Mr. Trump has treated Trump Media, which runs his social network Truth Social, as a low-cost sideshow. Now a big portion of his wealth hinges on its success.`\
 https://nytimes.com/2024/05/21/business/donald-trump-wealth-trump-media.html
@@ -33,4 +25,12 @@ https://nytimes.com/2024/05/21/podcasts/transcript-ezra-klein-interviews-james-p
 **First Responders Treat Passengers Following Emergency Landing**\
 `One person died and several passengers were injured during a Singapore Airlines flight that was diverted to Bangkok, Thailand, due to severe turbulence.`\
 https://nytimes.com/video/world/asia/100000009479926/first-responders-treat-passengers-following-emergency-landing.html
+
+**How Media Outlets Are Covering Justice Merchan in Trump’s Criminal Trial**\
+`Conservative outlets have criticized Justice Juan M. Merchan as politically motivated, while some liberal media organizations have praised him for muzzling Mr. Trump.`\
+https://nytimes.com/2024/05/21/business/media/judge-merchan-trump-trial-media.html
+
+**Why the Crash in Iran Was Almost Certainly an Accident**\
+`There’s very little reason for Israel or the U.S. to have engineered the death of the Iranian president.`\
+https://nytimes.com/live/2024/05/21/opinion/thepoint/iran-president-crash-death
 
