@@ -1,3 +1,11 @@
+**Can Republicans Embrace Voting by Mail? Pennsylvania Offers a Test.**\
+`Republicans are now trying to sell voters on voting methods that the party has demonized for years. It won’t be easy.`\
+https://nytimes.com/2024/05/21/us/republicans-mail-voting-pennsylvania.html
+
+**Rent Is Harder to Handle and Inflation Is a Burden, a Fed Financial Survey Finds**\
+`The Federal Reserve’s 2023 survey on household financial well-being found Americans excelling in the job market but struggling with prices.`\
+https://nytimes.com/2024/05/21/business/economy/fed-financial-survey-american-households-inflation.html
+
 **How Donald Trump’s Financial Future Became Tied to Trump Media**\
 `Mr. Trump has treated Trump Media, which runs his social network Truth Social, as a low-cost sideshow. Now a big portion of his wealth hinges on its success.`\
 https://nytimes.com/2024/05/21/business/donald-trump-wealth-trump-media.html
