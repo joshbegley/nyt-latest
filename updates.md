@@ -1,3 +1,7 @@
+**Pixar Lays Off 175 Workers as It Returns Its Focus to Films**\
+`The animation studio, which has struggled creatively and at the box office over the past few years, will stop making original shows for Disney+.`\
+https://nytimes.com/2024/05/21/business/media/pixar-layoffs-disney.html
+
 **Lawyer’s Task Was to Get Cohen on the ‘Right Page’ for Trump**\
 `Robert J. Costello, the main witness for the defense, wrote an email showing that he was trying to conceal actions he took in the interest of Donald J. Trump.`\
 https://nytimes.com/2024/05/21/nyregion/robert-costello-cohen-trump.html
