@@ -1,3 +1,7 @@
+**He Scouts Out the Stories You’ll Find Only in New York**\
+`James Barron, who has lived in the city for decades and since 2021 has written the New York Today newsletter, shared how he finds his characteristic quirky tales.`\
+https://nytimes.com/2024/05/21/insider/james-barron-new-york-today.html
+
 **A Fan Was Hit by a 110-M.P.H. Foul Ball. Now She’s on a Trading Card.**\
 `The trading card maker Topps said it made 110 custom cards for Liz McGuire, who was hit by a ball at a game in Toronto on Friday between the Blue Jays and the Tampa Bay Rays.`\
 https://nytimes.com/2024/05/21/sports/toronto-blue-jays-fan-foul-ball.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/us/politics/trump-lawyers-prosecutors-misconduct.
 **C. Gordon Bell, Creator of a Personal Computer Prototype, Dies at 89**\
 `It cost $18,000 when it was introduced in 1965, but it bridged the world between room-size mainframes and the modern desktop.`\
 https://nytimes.com/2024/05/21/technology/c-gordon-bell-dead.html
-
-**How India Is Coping With Extreme Heat**\
-`India is adapting to a new era of dangerous heat, even as climbing temperatures are making its transition to a cleaner economy more difficult.`\
-https://nytimes.com/2024/05/21/climate/india-extreme-heat.html
 
