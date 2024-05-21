@@ -1,3 +1,7 @@
+**Dartmouth’s President Is Censured by Faculty Over Protest Actions**\
+`The president, Sian Leah Beilock, called in the police just hours after a pro-Palestinian encampment went up on campus. A bystander and a professor were injured.`\
+https://nytimes.com/2024/05/20/us/dartmouth-president-beilock-censure.html
+
 **Review: In ‘Three Houses,’ a Dark Karaoke Night of the Soul**\
 `It’s open mic at the post-pandemic cocktail bar where Dave Malloy’s hypnotic triptych of monodramas takes place.`\
 https://nytimes.com/2024/05/20/theater/three-houses-review-dave-malloy.html
