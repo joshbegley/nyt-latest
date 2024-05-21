@@ -30,7 +30,7 @@ https://nytimes.com/2024/05/21/well/asthma-copd-diagnosis.html
 `The Trump prosecutor Fani Willis will be on the ballot in Georgia, as will Scott McAfee, the judge overseeing the former president’s trial there.`\
 https://nytimes.com/2024/05/21/us/politics/primaries-today-georgia-idaho-kentucky-oregon.html
 
-**A Quick Remark Becomes a Region’s Rallying Cry**\
+**An NBA Star’s Remark Becomes a Minnesota Rallying Cry**\
 `Minnesota Timberwolves fans have picked up on a phrase uttered by their star, and are hardly put off by its mild vulgarity.`\
 https://nytimes.com/2024/05/21/sports/basketball/minnesota-anthony-edwards-slogan.html
 
