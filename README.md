@@ -1,3 +1,7 @@
+**Pixar Lays Off 175 Workers as It Returns Its Focus to Films**\
+`The animation studio, which has struggled creatively and at the box office over the past few years, will stop making original shows for Disney+.`\
+https://nytimes.com/2024/05/21/business/media/pixar-layoffs.html
+
 **Can Republicans Embrace Voting by Mail? Pennsylvania Offers a Test.**\
 `Republicans are now trying to sell voters on voting methods that the party has demonized for years. It won’t be easy.`\
 https://nytimes.com/2024/05/21/us/republicans-mail-voting-pennsylvania.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/dining/nyc-restaurant-news.html
 **Transcript: Ezra Klein Interviews James Pethokoukis**\
 `The May 21, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/05/21/podcasts/transcript-ezra-klein-interviews-james-pethokoukis.html
-
-**First Responders Treat Passengers Following Emergency Landing**\
-`One person died and several passengers were injured during a Singapore Airlines flight that was diverted to Bangkok, Thailand, due to severe turbulence.`\
-https://nytimes.com/video/world/asia/100000009479926/first-responders-treat-passengers-following-emergency-landing.html
 
