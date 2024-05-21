@@ -1,3 +1,7 @@
+**Election Updates: Trump posts a video with fictional newspaper articles about “a unified Reich” if he wins.**\
+``\
+https://nytimes.com/live/2024/05/21/us/biden-trump-primary-election
+
 **Michael Cohen’s Trump Testimony Was Intense. Here Are the Highlights.**\
 `Mr. Cohen, Donald J. Trump’s former personal lawyer and fixer, spent four days on the stand in Mr. Trump’s criminal trial. He was the last witness called by prosecutors.`\
 https://nytimes.com/2024/05/21/nyregion/trump-michael-cohen-cross-examination.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/learning/word-of-the-day-apathetic.html
 **I.C.C. Warrant Request Appears to Shore Up Domestic Support for Netanyahu**\
 `“The Hypocrisy of The Hague,” read the front page of one mainstream daily that has often been critical of Israel’s prime minister.`\
 https://nytimes.com/2024/05/21/world/middleeast/israel-netanyahu-icc-arrest-warrant.html
-
-**Biden and Big Oil Had a Truce. Now, It’s Collapsing.**\
-`Companies were enjoying record profits. But the president’s decision to pause permits for gas export terminals has whipped up industry support, and donations, for Donald Trump.`\
-https://nytimes.com/2024/05/21/climate/trump-campaign-oil-gas.html
 

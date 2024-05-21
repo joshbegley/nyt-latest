@@ -1,3 +1,7 @@
+**Election Updates: Trump posts a video with fictional newspaper articles about “a unified Reich” if he wins.**\
+``\
+https://nytimes.com/live/2024/05/21/us/biden-trump-primary-election
+
 **Michael Cohen’s Trump Testimony Was Intense. Here Are the Highlights.**\
 `Mr. Cohen, Donald J. Trump’s former personal lawyer and fixer, spent four days on the stand in Mr. Trump’s criminal trial. He was the last witness called by prosecutors.`\
 https://nytimes.com/2024/05/21/nyregion/trump-michael-cohen-cross-examination.html
