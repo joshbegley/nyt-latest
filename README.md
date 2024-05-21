@@ -1,3 +1,7 @@
+**Trump Lawyers Accuse Prosecutors of Misconduct in Documents Case**\
+`Prosecutors vehemently denied the accusations in newly unsealed motions that show how the former president’s defense team has used often-baseless assertions to undercut the indictment.`\
+https://nytimes.com/2024/05/21/us/politics/trump-lawyers-prosecutors-misconduct.html
+
 **C. Gordon Bell, Creator of a Personal Computer Prototype, Dies at 89**\
 `It cost $18,000 when it was introduced in 1965, but it bridged the world between room-size mainframes and the modern desktop.`\
 https://nytimes.com/2024/05/21/technology/c-gordon-bell-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/us/politics/california-kevin-mccarthy-congress.ht
 **Tiny Love Stories: ‘He Said We Were Missing “The Magic”’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/05/21/style/tiny-modern-love-stories-he-said-we-were-missing-the-magic.html
-
-**Progressive Prosecutor in Portland Faces Bitter Challenge From Co-Worker**\
-`Mike Schmidt’s deputy at the Multnomah County D.A.’s Office has blamed him for Portland’s recent problems with drugs and crime.`\
-https://nytimes.com/2024/05/21/us/politics/mike-schmidt-prosecutor-portland-oregon.html
 
