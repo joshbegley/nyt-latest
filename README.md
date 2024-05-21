@@ -1,3 +1,7 @@
+**Trump Chooses Not to Take the Stand, and the Defense Rests**\
+`Donald J. Trump’s lawyers mounted a minimal defense after prosecutors called 20 witnesses. Closing arguments in the first prosecution of an American president will take place May 28.`\
+https://nytimes.com/2024/05/21/nyregion/trump-hush-money-trial-testimony.html
+
 **Read the document**\
 `Motion filed by lawyers of Donald J. Trump in the documents case`\
 https://nytimes.com/interactive/2024/05/21/us/trump-mal-motion-to-suppress.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/health/paul-parkman-dead.html
 **Inquiry Seeks Source of Ketamine That Caused Matthew Perry’s Death**\
 `After investigators determined that ketamine had led to the death of the “Friends” star, federal and local law enforcement officials opened an inquiry into where he got it.`\
 https://nytimes.com/2024/05/21/arts/matthew-perry-ketamine-investigation.html
-
-**For the First Time in 155 Years, This Beach Will Be Open Sunday**\
-`The Christian community in Ocean Grove, N.J., is challenging a state order that has compelled it to let its beach be used on Sunday mornings.`\
-https://nytimes.com/2024/05/21/nyregion/ocean-grove-nj-beach.html
 
