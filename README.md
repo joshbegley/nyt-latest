@@ -1,3 +1,7 @@
+**‘Ha Ha Ha Ha Ha Ha Ha’ Review: This Absurdist Clown Is Just Here to Help**\
+`A hit at Edinburgh Fringe last year, Julia Masli’s show arrives at SoHo Playhouse for its New York debut.`\
+https://nytimes.com/2024/05/21/theater/julie-masli-ha-ha-ha-ha-ha-ha-ha-review.html
+
 **Court Drops Charges in Deadly Wreck in Mediterranean**\
 `A court in Greece said the country lacked jurisdiction in the case, in which nine Egyptians were charged with smuggling. What comes next is unclear.`\
 https://nytimes.com/2024/05/21/world/europe/greece-shipwreck-egyptians-migrants.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/us/politics/guantanamo-hamas-israel-oman.html
 **Prosecutors and Trump’s Lawyers Will Jockey for an Edge With Jurors**\
 `The complex legal underpinnings of the case against Donald J. Trump will take center stage Tuesday afternoon, documents obtained by The New York Times show.`\
 https://nytimes.com/2024/05/21/nyregion/trump-trial-charging-conference.html
-
-**Scarlett Johansson’s Voice Isn’t the Only Thing A.I. Companies Want**\
-`They want your data, too.`\
-https://nytimes.com/live/2024/05/21/opinion/thepoint/openai-scarlett-johansson
 
