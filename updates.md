@@ -1,3 +1,11 @@
+**Court Drops Charges in Deadly Wreck in Mediterranean**\
+`A court in Greece said the country lacked jurisdiction in the case, in which nine Egyptians were charged with smuggling. What comes next is unclear.`\
+https://nytimes.com/2024/05/21/world/europe/greece-shipwreck-egyptians-migrants.html
+
+**7 New Songs You Should Hear Now**\
+`Hear tracks from Carly Pearce, Ibibio Sound Machine, John Cale and more.`\
+https://nytimes.com/2024/05/21/arts/music/amplifier-newsletter-new-songs.html
+
 **Four Lawmakers Denounce Plan to Ease Sanctions on Israeli Mining Executive**\
 `A White House proposal to allow the billionaire Dan Gertler to sell off his assets in the Democratic Republic of Congo sparks a bipartisan rebuke.`\
 https://nytimes.com/2024/05/21/us/politics/letter-dan-gertler-congo.html
