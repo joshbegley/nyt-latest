@@ -8,7 +8,7 @@ https://nytimes.com/2024/05/21/world/europe/zelensky-interview-times-transcript.
 
 **Pixar Lays Off 175 Workers as It Returns Its Focus to Films**\
 `The animation studio, which has struggled creatively and at the box office over the past few years, will stop making original shows for Disney+.`\
-https://nytimes.com/2024/05/21/business/media/pixar-layoffs.html
+https://nytimes.com/2024/05/21/business/media/pixar-layoffs-disney.html
 
 **Can Republicans Embrace Voting by Mail? Pennsylvania Offers a Test.**\
 `Republicans are now trying to sell voters on voting methods that the party has demonized for years. It won’t be easy.`\
