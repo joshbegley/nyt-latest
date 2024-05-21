@@ -1,5 +1,5 @@
 **Kerry Kennedy Leads ‘Heart-Wrenching’ Campaign Against Her Brother’s White House Bid**\
-`Robert F. Kennedy Jr’s sister has become the face of the Kennedy family effort to block his candidacy and re-elect President Biden. She has more at stake besides her relationship with her brother.`\
+`Robert F. Kennedy Jr.’s sister has become the face of the Kennedy family effort to block his candidacy and re-elect President Biden. She has more at stake besides her relationship with her brother.`\
 https://nytimes.com/2024/05/21/us/politics/kerry-kennedy-rfk.html
 
 **A Mural That Honors Black Performers at Rest**\
