@@ -1,3 +1,7 @@
+**After Anti-Israel Speeches, a Law School Curtails Graduation Traditions**\
+`CUNY Law School is known for its diversity and activism, and lately for strongly worded pro-Palestinian commencement addresses. This year, the administration canceled its annual student speech.`\
+https://nytimes.com/2024/05/21/nyregion/cuny-law-school-commencement-address-canceled.html
+
 **Stephen Colbert Slams Justice Alito for Using His Wife as a Scapegoat**\
 `Colbert joked that Alito “dropped a dime on his gal” when the Supreme Court justice blamed his wife for the flying of an upside-down American flag at their home shortly after Jan. 6.`\
 https://nytimes.com/2024/05/21/arts/television/stephen-colbert-justice-alito.html
