@@ -1,3 +1,7 @@
+**Prince Harry Cannot Include Rupert Murdoch in Lawsuit, Court Rules**\
+`A judge ruled that the prince and other plaintiffs could not expand their claims of unlawful actions by News Group Newspapers in the U.K. to include allegations regarding Rupert Murdoch.`\
+https://nytimes.com/2024/05/21/world/europe/prince-harry-lawsuit-rupert-murdoch.html
+
 **David Redden, Who Brought Ingenuity to the Auction Block, Dies at 75**\
 `He brought a P.T. Barnum-like showmanship to Sotheby’s, where he sold items like Babe Ruth’s bat and a research rover that had been left behind on the moon.`\
 https://nytimes.com/2024/05/21/business/david-redden-dead.html
