@@ -1,3 +1,7 @@
+**The Disease Detectives Trying to Keep the World Safe From Bird Flu**\
+`When a child in a small Cambodian town fell sick recently, his rapid decline set off a global disease surveillance system.`\
+https://nytimes.com/2024/05/20/health/bird-flu-tracking-cambodia.html
+
 **Down in the Dumps**\
 `Zachary David Levy is really rocking it.`\
 https://nytimes.com/2024/05/20/crosswords/daily-puzzle-2024-05-21.html

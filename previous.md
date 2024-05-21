@@ -1,3 +1,7 @@
+**The Disease Detectives Trying to Keep the World Safe From Bird Flu**\
+`When a child in a small Cambodian town fell sick recently, his rapid decline set off a global disease surveillance system.`\
+https://nytimes.com/2024/05/20/health/bird-flu-tracking-cambodia.html
+
 **Down in the Dumps**\
 `Zachary David Levy is really rocking it.`\
 https://nytimes.com/2024/05/20/crosswords/daily-puzzle-2024-05-21.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/opinion/columnists/trump-trial-apathy.html
 **Scarlett Johansson Said No, but OpenAI’s Virtual Assistant Sounds Just Like Her**\
 `Last week, the company released a chatbot with an option that sounded like the actress, who provided the voice of an A.I. system in the movie “Her.”`\
 https://nytimes.com/2024/05/20/technology/scarlett-johannson-openai-voice.html
-
-**A Tongue-Lashing for a Defense Witness Isn’t Great News for Trump**\
-`The witness tried to play judge, and the real judge was not pleased.`\
-https://nytimes.com/2024/05/20/opinion/trump-trial-costello-judge.html
 
