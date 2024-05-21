@@ -1,6 +1,10 @@
+**How Media Outlets Are Covering Justice Merchan in Trump’s Criminal Trial**\
+`Conservative outlets have criticized Justice Juan M. Merchan as politically motivated, while some liberal media organizations have praised him for muzzling Mr. Trump.`\
+https://nytimes.com/2024/05/21/business/media/judge-merchan-trump-trial-media.html
+
 **Why the Crash in Iran Was Almost Certainly an Accident**\
 `There’s very little reason for Israel or the U.S. to have engineered the death of the Iranian president.`\
-https://nytimes.com/live/2024/05/14/opinion/thepoint/iran-president-crash-death
+https://nytimes.com/live/2024/05/21/opinion/thepoint/iran-president-crash-death
 
 **A.I.’s Black Boxes Just Got a Little Less Mysterious**\
 `Researchers at the A.I. company Anthropic claim to have found clues about the inner workings of large language models, possibly helping to prevent their misuse and to curb their potential threats.`\
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/dining/we-wrote-a-cookbook.html
 **Elvis’s Granddaughter Sues to Block Sale of Graceland, Charging Fraud**\
 `His granddaughter, the actress Riley Keough, claims that a company is fraudulently planning to auction off Elvis’s home in Memphis.`\
 https://nytimes.com/2024/05/21/arts/music/graceland-sale-foreclosure-riley-keough.html
-
-**Giuliani and Other Trump Allies to Be Arraigned in Arizona Election Case**\
-`A total of 50 people, including former President Donald J. Trump, are now facing charges in four states related to efforts to keep Mr. Trump in power after he lost in 2020.`\
-https://nytimes.com/2024/05/21/us/giuliani-trump-arizona-fake-electors.html
 

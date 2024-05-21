@@ -1,3 +1,11 @@
+**How Media Outlets Are Covering Justice Merchan in Trump’s Criminal Trial**\
+`Conservative outlets have criticized Justice Juan M. Merchan as politically motivated, while some liberal media organizations have praised him for muzzling Mr. Trump.`\
+https://nytimes.com/2024/05/21/business/media/judge-merchan-trump-trial-media.html
+
+**Why the Crash in Iran Was Almost Certainly an Accident**\
+`There’s very little reason for Israel or the U.S. to have engineered the death of the Iranian president.`\
+https://nytimes.com/live/2024/05/21/opinion/thepoint/iran-president-crash-death
+
 **Why the Crash in Iran Was Almost Certainly an Accident**\
 `There’s very little reason for Israel or the U.S. to have engineered the death of the Iranian president.`\
 https://nytimes.com/live/2024/05/14/opinion/thepoint/iran-president-crash-death
