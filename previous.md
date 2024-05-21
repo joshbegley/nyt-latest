@@ -1,3 +1,19 @@
+**How India Is Coping With Extreme Heat**\
+`India is adapting to a new era of dangerous heat, even as climbing temperatures are making its transition to a cleaner economy more difficult.`\
+https://nytimes.com/2024/05/21/climate/india-extreme-heat.html
+
+**Russia Starts Tactical Nuclear Drills, in a Warning to Ukraine’s Allies**\
+`Moscow has said the exercise is a response to “provocative statements and threats of individual Western officials.”`\
+https://nytimes.com/2024/05/21/world/europe/russia-tactical-nuclear-exercise.html
+
+**Dr. Paul Parkman, Who Helped to Eliminate Rubella, Dies at 91**\
+`He also identified the virus, which can cause infants to be born with severe physical and mental impairments as well as causing miscarriages and stillbirths.`\
+https://nytimes.com/2024/05/21/health/paul-parkman-dead.html
+
+**Inquiry Seeks Source of Ketamine That Caused Matthew Perry’s Death**\
+`After investigators determined that ketamine had led to the death of the “Friends” star, federal and local law enforcement officials opened an inquiry into where he got it.`\
+https://nytimes.com/2024/05/21/arts/matthew-perry-ketamine-investigation.html
+
 **For the First Time in 155 Years, This Beach Will Be Open Sunday**\
 `The Christian community in Ocean Grove, N.J., is challenging a state order that has compelled it to let its beach be used on Sunday mornings.`\
 https://nytimes.com/2024/05/21/nyregion/ocean-grove-nj-beach.html
@@ -17,20 +33,4 @@ https://nytimes.com/2024/05/21/us/politics/mike-schmidt-prosecutor-portland-oreg
 **Trump Opens Door to Birth Control Restrictions, Then Tries to Close It**\
 `The former president suggested he might support letting states place restrictions on contraception, then said amid criticism that he didn’t support restrictions.`\
 https://nytimes.com/2024/05/21/us/politics/trump-birth-control-restrictions.html
-
-**Kerry Kennedy Leads ‘Heart-Wrenching’ Campaign Against Her Brother’s White House Bid**\
-`Robert F. Kennedy Jr.’s sister has become the face of the Kennedy family effort to block his candidacy and re-elect President Biden. She has more at stake besides her relationship with her brother.`\
-https://nytimes.com/2024/05/21/us/politics/kerry-kennedy-rfk.html
-
-**A Mural That Honors Black Performers at Rest**\
-`In Los Angeles, Thenjiwe Niki Nkosi has taken over the Hammer Museum’s lobby with paintings of larger-than-life gymnasts who refuse to pose.`\
-https://nytimes.com/interactive/2024/05/21/t-magazine/thenjiwe-niki-nkosi-hammer-museum.html
-
-**Kamala Harris Courts Union Members, an Up-for-Grabs Group of Voters**\
-`Speaking in Philadelphia to supportive members of a major labor union, the vice president sought to draw a sharp contrast with Donald Trump and build support with a bloc of crucial voters.`\
-https://nytimes.com/2024/05/21/us/politics/kamala-harris-unions-philadelphia.html
-
-**‘Ha Ha Ha Ha Ha Ha Ha’ Review: This Absurdist Clown Is Just Here to Help**\
-`A hit at Edinburgh Fringe last year, Julia Masli’s show arrives at SoHo Playhouse for its New York debut.`\
-https://nytimes.com/2024/05/21/theater/julie-masli-ha-ha-ha-ha-ha-ha-ha-review.html
 

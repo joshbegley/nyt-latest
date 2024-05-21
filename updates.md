@@ -1,3 +1,19 @@
+**How India Is Coping With Extreme Heat**\
+`India is adapting to a new era of dangerous heat, even as climbing temperatures are making its transition to a cleaner economy more difficult.`\
+https://nytimes.com/2024/05/21/climate/india-extreme-heat.html
+
+**Russia Starts Tactical Nuclear Drills, in a Warning to Ukraine’s Allies**\
+`Moscow has said the exercise is a response to “provocative statements and threats of individual Western officials.”`\
+https://nytimes.com/2024/05/21/world/europe/russia-tactical-nuclear-exercise.html
+
+**Dr. Paul Parkman, Who Helped to Eliminate Rubella, Dies at 91**\
+`He also identified the virus, which can cause infants to be born with severe physical and mental impairments as well as causing miscarriages and stillbirths.`\
+https://nytimes.com/2024/05/21/health/paul-parkman-dead.html
+
+**Inquiry Seeks Source of Ketamine That Caused Matthew Perry’s Death**\
+`After investigators determined that ketamine had led to the death of the “Friends” star, federal and local law enforcement officials opened an inquiry into where he got it.`\
+https://nytimes.com/2024/05/21/arts/matthew-perry-ketamine-investigation.html
+
 **For the First Time in 155 Years, This Beach Will Be Open Sunday**\
 `The Christian community in Ocean Grove, N.J., is challenging a state order that has compelled it to let its beach be used on Sunday mornings.`\
 https://nytimes.com/2024/05/21/nyregion/ocean-grove-nj-beach.html
