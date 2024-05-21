@@ -1,3 +1,11 @@
+**Read the letter**\
+`A letter sent by lawmakers who are members of the United States Helsinki Commission, a federal agency that promotes human rights issues globally, regarding Dan Gertler.`\
+https://nytimes.com/interactive/2024/05/21/us/20245-gertler-letter-from-us-congress.html
+
+**Pro-Palestinian protesters heckle Blinken as he testifies on Capitol Hill.**\
+`By Robert Jimison`\
+https://nytimes.com/live/2024/05/21/world/israel-gaza-war-hamas-rafah/pro-palestinian-protesters-heckle-blinken-as-he-testified-on-capitol-hill
+
 **Return of the Inflation Truthers**\
 `Cutting through the misconceptions and conspiracy theories.`\
 https://nytimes.com/2024/05/21/opinion/inflation-data-economy.html
