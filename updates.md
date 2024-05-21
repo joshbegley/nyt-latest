@@ -1,3 +1,7 @@
+**South Carolina Bans Gender Transition Care for Minors**\
+`With Gov. Henry McMaster’s signature, the state joins about two dozen others in passing laws that restrict or ban such medical care for transgender minors.`\
+https://nytimes.com/2024/05/21/us/south-carolina-transgender-care-ban.html
+
 **A Many-Splendored Self-Portrait of the Artist**\
 `Looking at his identity not as ramparts to defend but as curious paths to explore, René Treviño creates a survey-as-party and invites all the aspects of himself.`\
 https://nytimes.com/2024/05/21/arts/design/art-wellin-rene-trevino.html
