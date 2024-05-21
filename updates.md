@@ -1,3 +1,7 @@
+**Tuesday Briefing**\
+`The fallout after the death of Iran’s president.`\
+https://nytimes.com/2024/05/21/briefing/iran-president-death-israel-fbi.html
+
 **Haiti’s Gangs Grow Stronger as Kenyan-Led Force Prepares to Deploy**\
 `Gang leaders with suspected links to the 2021 Haitian president’s assassination now control key infrastructure, and pose a major threat to the incoming Kenya-led force.`\
 https://nytimes.com/2024/05/21/world/americas/haiti-gangs-weapons.html
