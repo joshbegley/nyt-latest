@@ -1,3 +1,7 @@
+**Biden Administration Will Release 1 Million Barrels of Gasoline**\
+`The sale, which was mandated by Congress, is timed to the summer driving season but unlikely to have more than a modest effect on gasoline prices.`\
+https://nytimes.com/2024/05/21/us/politics/biden-gasoline-reserve-sale.html
+
 **Zelensky Said the U.S. Should Do More to Help Ukraine**\
 `Also, lawyers defending Donald Trump rested their case. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/05/21/briefing/zelensky-ukraine-nato-trump-trial.html
