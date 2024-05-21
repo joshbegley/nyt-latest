@@ -1,3 +1,7 @@
+**Scarlett Johansson’s Statement About Her Interactions With Sam Altman**\
+`The actress released a lengthy statement about the company and the similarity of one of its A.I. voices.`\
+https://nytimes.com/2024/05/20/technology/scarlett-johansson-openai-statement.html
+
 **Brooklyn Protest Raises Doubts About N.Y.P.D. Commitment to New Tactics**\
 `Violent responses to pro-Palestinian activists follow a sweeping agreement aimed at striking an equilibrium between preserving public safety and the rights of protesters.`\
 https://nytimes.com/2024/05/20/nyregion/nypd-protests-settlement.html

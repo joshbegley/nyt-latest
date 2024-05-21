@@ -1,3 +1,7 @@
+**Scarlett Johansson’s Statement About Her Interactions With Sam Altman**\
+`The actress released a lengthy statement about the company and the similarity of one of its A.I. voices.`\
+https://nytimes.com/2024/05/20/technology/scarlett-johansson-openai-statement.html
+
 **Brooklyn Protest Raises Doubts About N.Y.P.D. Commitment to New Tactics**\
 `Violent responses to pro-Palestinian activists follow a sweeping agreement aimed at striking an equilibrium between preserving public safety and the rights of protesters.`\
 https://nytimes.com/2024/05/20/nyregion/nypd-protests-settlement.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/nyregion/adams-fbi-corruption-investigation-aide.
 **Biden says there is ‘no equivalence between Israel and Hamas.’**\
 `The president, s`\
 https://nytimes.com/2024/05/20/world/middleeast/biden-israel-gaza-genocide.html
-
-**Biden Says Israeli Military Assault in Gaza Is ‘Not Genocide’**\
-`At a celebration of Jewish Heritage Month, President Biden pledged support to Israel and condemned a decision by the prosecutor for the International Criminal Court to seek arrest warrants for top Israeli officials.`\
-https://nytimes.com/video/us/politics/100000009479218/biden-israel-gaza-genocide.html
 
