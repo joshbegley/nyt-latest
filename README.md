@@ -1,3 +1,15 @@
+**An Attack on Justice Merchan is an Attack on the Rule of Law**\
+`In Trump’s criminal trial, the judge has been eminently fair.`\
+https://nytimes.com/live/2024/05/21/opinion/thepoint/trump-trial-merchan-fairness
+
+**Who’s in More Trouble: Israel or Iran?**\
+`Iran’s rulers have forgotten that revolutions have a history of consuming their own.`\
+https://nytimes.com/2024/05/21/opinion/israel-iran-raisi-death.html
+
+**Bibi Is Choosing Stefanik and Trump. President Biden, Don’t Be Fooled.**\
+`I don’t think Biden fully understands his “old friend” Netanyahu. Israeli defense officials are sending a clear warning.`\
+https://nytimes.com/2024/05/21/opinion/netanyahu-gaza-war.html
+
 **‘Insane’ Heat Has Been Scorching Miami. It’s Not Even June.**\
 `The hottest May on record for the city has experts worried about the summer — and hurricane season — to come.`\
 https://nytimes.com/2024/05/21/us/miami-heat-summer-weather.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/05/21/nyregion/trump-hush-money-trial-takeaways.html
 **Loan or Bribe? Menendez Jurors Hear About $23,568 Mortgage Payoff.**\
 `Senator Robert Menendez’s wife never signed a loan document before a man also charged in the bribery case arranged to pay her mortgage, a witness testified.`\
 https://nytimes.com/2024/05/21/nyregion/robert-menendez-bribery-trial.html
-
-**The Viral Defiance of Jasmine Crockett**\
-`Descending to Marjorie Taylor Greene’s level can be satisfying, but it is also degrading.`\
-https://nytimes.com/live/2024/05/21/opinion/thepoint/jasmine-crockett-greene-insults
-
-**Wednesday Briefing: Zelensky Speaks to The Times**\
-`Also, funeral ceremonies begin for Iran’s president.`\
-https://nytimes.com/2024/05/21/world/asia/zelensky-times-iran-booker-asia.html
-
-**Jenny Erpenbeck’s ‘Kairos’ Wins the International Booker Prize**\
-`Translated by Michael Hofmann, it’s the first novel originally written in German to win the major literary award.`\
-https://nytimes.com/2024/05/21/books/international-booker-prize-winner-jenny-erpenbeck-kairos.html
 
