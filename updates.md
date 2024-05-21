@@ -1,3 +1,7 @@
+**A Mural That Honors Black Performers at Rest**\
+`In Los Angeles, Thenjiwe Niki Nkosi has taken over the Hammer Museum’s lobby with paintings of larger-than-life gymnasts who refuse to pose.`\
+https://nytimes.com/interactive/2024/05/21/t-magazine/thenjiwe-niki-nkosi-hammer-museum.html
+
 **Kamala Harris Courts Union Members, an Up-for-Grabs Group of Voters**\
 `Speaking in Philadelphia to supportive members of a major labor union, the vice president sought to draw a sharp contrast with Donald Trump and build support with a bloc of crucial voters.`\
 https://nytimes.com/2024/05/21/us/politics/kamala-harris-unions-philadelphia.html
