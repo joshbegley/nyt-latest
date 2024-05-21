@@ -1,3 +1,7 @@
+**Threats of Violence Become the New Normal for Politicians**\
+`Some elected officials in California are rethinking public office in the face of increasing harassment.`\
+https://nytimes.com/2024/05/21/us/politicians-harassment.html
+
 **Russian Forces Close In on Ukrainian Town in Northeast**\
 `Vovchansk has been a prime target of Russia’s offensive in the northeast as it seeks to push back Ukrainian troops from the border.`\
 https://nytimes.com/2024/05/21/world/europe/ukraine-russia-vovchansk-buffer-zone.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/climate/trump-campaign-oil-gas.html
 **Macy’s Reports Another Drop in Sales but Sees ‘Traction’ in Turnaround**\
 `The largest department store chain in the United States has not reported an increase in comparable-store sales since early 2022.`\
 https://nytimes.com/2024/05/21/business/macys-earnings.html
-
-**Gazans Say I.C.C. Prosecutor’s Pursuit of Hamas Leaders Is Misguided**\
-`Some said the decision to seek arrest warrants for both Israeli and Hamas leaders on war crimes charges seemed to equate victim with perpetrator.`\
-https://nytimes.com/2024/05/21/world/middleeast/gaza-icc-prosecutor-warrants.html
 
