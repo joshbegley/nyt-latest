@@ -1,3 +1,11 @@
+**David Redden, Who Brought Ingenuity to the Auction Block, Dies at 75**\
+`He brought a P.T. Barnum-like showmanship to Sotheby’s, where he sold items like Babe Ruth’s bat and a research rover that had been left behind on the moon.`\
+https://nytimes.com/2024/05/21/business/david-redden-dead.html
+
+**Key Players in Trump’s Georgia Criminal Case Face Voters**\
+`Fani T. Willis, the Fulton County district attorney, and Scott McAfee, the presiding judge in the case, have faced criticism over their decisions in the prosecution of the former president.`\
+https://nytimes.com/2024/05/21/us/politics/fani-willis-scott-mcafee-georgia-trump.html
+
 **Pixar Lays Off 175 Workers as It Returns Its Focus to Films**\
 `The animation studio, which has struggled over the past few years, will stop making original shows for Disney+.`\
 https://nytimes.com/2024/05/21/business/media/pixar-layoffs-disney.html
