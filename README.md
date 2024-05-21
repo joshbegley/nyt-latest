@@ -1,3 +1,7 @@
+**Newborn babies, doctors and patients are trapped at a hospital in northern Gaza.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2024/04/22/world/israel-gaza-war-hamas/newborn-babies-doctors-and-patients-are-trapped-at-a-hospital-in-northern-gaza
+
 **House G.O.P. Moves to Crack Down on Noncitizen Voting, Sowing False Narrative**\
 `The bills under consideration in the House have virtually no chance of becoming law, but Republicans are using them to amplify former President Donald J. Trump’s false claims of widespread illegal voting by noncitizens.`\
 https://nytimes.com/2024/05/21/us/politics/republicans-noncitizen-voting-false-narrative.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/opinion/netanyahu-gaza-war.html
 **‘Insane’ Heat Has Been Scorching Miami. It’s Not Even June.**\
 `The hottest May on record for the city has experts worried about the summer — and hurricane season — to come.`\
 https://nytimes.com/2024/05/21/us/miami-heat-summer-weather.html
-
-**What’s Behind the Security Warnings for Pride Events**\
-`Citing the potential for terrorism, the State Department, F.B.I. and Department of Homeland Security urged those attending L.G.B.T.Q. events to be vigilant. Here’s what to know.`\
-https://nytimes.com/2024/05/21/travel/pride-month-parade-security.html
 
