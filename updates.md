@@ -1,3 +1,7 @@
+**Gazans Say I.C.C. Prosecutor’s Pursuit of Hamas Leaders Is Misguided**\
+`Some said the decision to seek arrest warrants for both Israeli and Hamas leaders on war crimes charges seemed to equate victim with perpetrator.`\
+https://nytimes.com/2024/05/21/world/middleeast/gaza-icc-prosecutor-warrants.html
+
 **Has Fentanyl Peaked?**\
 `We explain a decline in overdose deaths.`\
 https://nytimes.com/2024/05/21/briefing/has-fentanyl-peaked.html

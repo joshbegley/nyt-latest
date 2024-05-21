@@ -1,3 +1,7 @@
+**Gazans Say I.C.C. Prosecutor’s Pursuit of Hamas Leaders Is Misguided**\
+`Some said the decision to seek arrest warrants for both Israeli and Hamas leaders on war crimes charges seemed to equate victim with perpetrator.`\
+https://nytimes.com/2024/05/21/world/middleeast/gaza-icc-prosecutor-warrants.html
+
 **Has Fentanyl Peaked?**\
 `We explain a decline in overdose deaths.`\
 https://nytimes.com/2024/05/21/briefing/has-fentanyl-peaked.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/weather/tornado-storms-midwest-weather-forecast.h
 **U.S. Seeks to Join Forces With Europe to Combat Excess Chinese Goods**\
 `Treasury Secretary Janet L. Yellen warned that China’s industrial strategy posed a global threat that requires a united response.`\
 https://nytimes.com/2024/05/21/business/janet-yellen-europe-china.html
-
-**V.A. Has Approved 1 Million Claims Under Burn Pit Law, Biden to Announce**\
-`The president is heading to New Hampshire to discuss care for veterans suffering from toxic exposure, an issue that resonates for him personally and, his campaign hopes, politically.`\
-https://nytimes.com/2024/05/21/us/politics/biden-burn-pits-va-pact-act.html
 
