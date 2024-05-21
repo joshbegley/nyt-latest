@@ -1,3 +1,7 @@
+**Adams vs. Adams: A Power Struggle in New York City Turns Ugly**\
+`The City Council speaker, Adrienne Adams, was expected to set in motion a plan to weaken Mayor Eric Adams’s authority. The mayor quickly fought back.`\
+https://nytimes.com/2024/05/21/nyregion/city-council-eric-adams.html
+
 **Sean Combs Accused of Sexual Assault in New Lawsuit**\
 `A former model sued the hip-hop mogul and accused him of forcing her to perform oral sex in 2003 at his recording studio. Mr. Combs has not yet responded.`\
 https://nytimes.com/2024/05/21/arts/music/sean-combs-diddy-accused-oral-sex-lawsuit.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/travel/pride-month-parade-security.html
 **Biden Administration Will Release 1 Million Barrels of Gasoline**\
 `The sale, which was mandated by Congress, is timed to the summer driving season but unlikely to have more than a modest effect on gasoline prices.`\
 https://nytimes.com/2024/05/21/us/politics/biden-gasoline-reserve-sale.html
-
-**Zelensky Said the U.S. Should Do More to Help Ukraine**\
-`Also, lawyers defending Donald Trump rested their case. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2024/05/21/briefing/zelensky-ukraine-nato-trump-trial.html
 
