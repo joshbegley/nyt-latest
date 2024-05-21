@@ -1,3 +1,7 @@
+**Crowds Attend Funeral Procession for Iran’s President**\
+`Large numbers congregated in the northwestern city of Tabriz in a memorial event for Ebrahim Raisi and Hossein Amir Abdollahian, the country’s foreign minister, who died in a helicopter crash.`\
+https://nytimes.com/video/world/middleeast/100000009479709/crowds-attend-funeral-procession-for-irans-president.html
+
 **After Raisi’s Death, Elections Pose Tricky Test for Iran’s Rulers**\
 `Iran’s political establishment must choose between opening the race and facing moderate rivals, or limiting candidates and risking the embarrassment of low turnout.`\
 https://nytimes.com/2024/05/21/world/middleeast/iran-election-president-death-ayatollah.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/movies/cannes-film-festival-2024-dogs.html
 **How to Deal With a Supreme Court That Can No Longer Be Shamed**\
 `Congress and the judiciary can no longer allow a few justices to trample on the court’s reputation.`\
 https://nytimes.com/2024/05/21/opinion/supreme-court-alito-flag.html
-
-**The Siblings Who Changed How We Party**\
-`When James and Alexa Hirschfeld started Paperless Post 15 years ago, some saw its digital invitations as a fad. Instead, they have become a fixture of events and have spawned imitators.`\
-https://nytimes.com/2024/05/21/style/the-siblings-who-changed-how-we-party.html
 
