@@ -26,7 +26,7 @@ https://nytimes.com/2024/05/21/world/middleeast/israel-netanyahu-icc-arrest-warr
 `Fossil fuel companies enjoyed record profits under President Biden. But his decision to pause permits for gas export terminals has whipped up industry support for his challenger.`\
 https://nytimes.com/2024/05/21/climate/trump-campaign-oil-gas.html
 
-**Macy’s Reports Another Drop in Sales**\
+**Macy’s Reports Another Drop in Sales but Sees ‘Traction’ in Turnaround**\
 `The largest department store chain in the United States has not reported an increase in comparable-store sales since early 2022.`\
 https://nytimes.com/2024/05/21/business/macys-earnings.html
 
