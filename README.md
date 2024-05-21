@@ -1,3 +1,15 @@
+**Bourbon Steak Lands in New York With a Local Wine List**\
+`Cafe Mado replaces Oxalis, Strange Delight channels the Big Easy and more restaurant news.`\
+https://nytimes.com/2024/05/21/dining/nyc-restaurant-news.html
+
+**Transcript: Ezra Klein Interviews James Pethokoukis**\
+`The May 21, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/05/21/podcasts/transcript-ezra-klein-interviews-james-pethokoukis.html
+
+**First Responders Treat Passengers Following Emergency Landing**\
+`One person died and several passengers were injured during a Singapore Airlines flight that was diverted to Bangkok, Thailand, due to severe turbulence.`\
+https://nytimes.com/video/world/asia/100000009479926/first-responders-treat-passengers-following-emergency-landing.html
+
 **How Media Outlets Are Covering Justice Merchan in Trump’s Criminal Trial**\
 `Conservative outlets have criticized Justice Juan M. Merchan as politically motivated, while some liberal media organizations have praised him for muzzling Mr. Trump.`\
 https://nytimes.com/2024/05/21/business/media/judge-merchan-trump-trial-media.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/05/21/us/politics/primaries-today-georgia-idaho-kentuck
 **A Quick Remark Becomes a Region’s Rallying Cry**\
 `Minnesota Timberwolves fans have picked up on a phrase uttered by their star, and are hardly put off by its mild vulgarity.`\
 https://nytimes.com/2024/05/21/sports/basketball/minnesota-anthony-edwards-slogan.html
-
-**Wirecutter Wants to Hear From You**\
-`Do you have a story idea, feedback on our coverage or a question for our journalists? Let us know.`\
-https://nytimes.com/article/wirecutter-feedback.html
-
-**We Wrote a Cookbook!**\
-`In it you’ll find 100 of my most favorite weeknight dinners, like chimichurri chicken, coconut-miso salmon curry and chile crisp fettuccine Alfredo.`\
-https://nytimes.com/2024/05/21/dining/we-wrote-a-cookbook.html
-
-**Elvis’s Granddaughter Sues to Block Sale of Graceland, Charging Fraud**\
-`His granddaughter, the actress Riley Keough, claims that a company is fraudulently planning to auction off Elvis’s home in Memphis.`\
-https://nytimes.com/2024/05/21/arts/music/graceland-sale-foreclosure-riley-keough.html
 
