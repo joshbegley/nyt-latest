@@ -1,3 +1,7 @@
+**Quote of the Day: A Call to Arrest Hamas Leaders and Netanyahu**\
+`Quotation of the Day for Tuesday, May 21, 2024`\
+https://nytimes.com/2024/05/20/pageoneplus/quote-of-the-day-a-call-to-arrest-hamas-leaders-and-netanyahu.html
+
 **The Disease Detectives Trying to Keep the World Safe From Bird Flu**\
 `When a child in a small Cambodian town fell sick recently, his rapid decline set off a global disease surveillance system.`\
 https://nytimes.com/2024/05/20/health/bird-flu-tracking-cambodia.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/05/19/world/iran-president-crash/analysts-and-offi
 **Trump Could Soon Be a Felon. Does It Matter?**\
 `A strange sense of anticlimax hangs over the Trump trial.`\
 https://nytimes.com/2024/05/20/opinion/columnists/trump-trial-apathy.html
-
-**Scarlett Johansson Said No, but OpenAI’s Virtual Assistant Sounds Just Like Her**\
-`Last week, the company released a chatbot with an option that sounded like the actress, who provided the voice of an A.I. system in the movie “Her.”`\
-https://nytimes.com/2024/05/20/technology/scarlett-johannson-openai-voice.html
 
