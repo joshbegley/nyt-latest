@@ -6,7 +6,7 @@ https://nytimes.com/2024/05/21/arts/music/sean-combs-diddy-accused-oral-sex-laws
 `Mr. Depardieu, 75, was seen striking the 79-year-old photographer Rino Barillari on the Via Veneto.`\
 https://nytimes.com/2024/05/21/movies/gerard-depardieu-rino-barillari.html
 
-**An Attack on Justice Merchan is an Attack on the Rule of Law**\
+**An Attack on Justice Merchan Is an Attack on the Rule of Law**\
 `In Trump’s criminal trial, the judge has been eminently fair.`\
 https://nytimes.com/live/2024/05/21/opinion/thepoint/trump-trial-merchan-fairness
 

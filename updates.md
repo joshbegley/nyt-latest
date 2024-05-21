@@ -1,3 +1,7 @@
+**An Attack on Justice Merchan Is an Attack on the Rule of Law**\
+`In Trump’s criminal trial, the judge has been eminently fair.`\
+https://nytimes.com/live/2024/05/21/opinion/thepoint/trump-trial-merchan-fairness
+
 **Sean Combs Accused of Sexual Assault in New Lawsuit**\
 `A former model sued the hip-hop mogul and accused him of forcing her to perform oral sex in 2003 at his recording studio. Mr. Combs has not yet responded.`\
 https://nytimes.com/2024/05/21/arts/music/sean-combs-diddy-accused-oral-sex-lawsuit.html
