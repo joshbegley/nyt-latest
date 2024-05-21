@@ -1,3 +1,7 @@
+**Storms Could Bring Tornadoes and Damaging Winds to Midwest Today**\
+`A few strong tornadoes, along with other severe weather, are possible from Kansas City to Milwaukee on Tuesday.`\
+https://nytimes.com/2024/05/21/weather/tornado-storms-midwest-weather-forecast.html
+
 **U.S. Seeks to Join Forces With Europe to Combat Excess Chinese Goods**\
 `Treasury Secretary Janet L. Yellen warned that China’s industrial strategy posed a global threat that requires a united response.`\
 https://nytimes.com/2024/05/21/business/janet-yellen-europe-china.html
