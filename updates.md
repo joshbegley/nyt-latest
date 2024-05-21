@@ -1,3 +1,11 @@
+**California Voters to Decide Who Will Finish McCarthy’s Term**\
+`Rep. Kevin McCarthy left Congress at the end of last year after being ousted as the House speaker. A special election on Tuesday will determine his Central Valley successor.`\
+https://nytimes.com/2024/05/21/us/politics/california-kevin-mccarthy.html
+
+**Tiny Love Stories: ‘He Said We Were Missing “The Magic”’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/05/21/style/tiny-modern-love-stories-he-said-we-were-missing-the-magic.html
+
 **Progressive Prosecutor in Portland Faces Bitter Challenge From Co-Worker**\
 `Mike Schmidt’s deputy at the Multnomah County D.A.’s Office has blamed him for Portland’s recent problems with drugs and crime.`\
 https://nytimes.com/2024/05/21/us/politics/mike-schmidt-prosecutor-portland-oregon.html
