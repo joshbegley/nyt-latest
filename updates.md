@@ -1,3 +1,7 @@
+**Down in the Dumps**\
+`Zachary David Levy is really rocking it.`\
+https://nytimes.com/2024/05/20/crosswords/daily-puzzle-2024-05-21.html
+
 **Scarlett Johansson Said No, but OpenAI’s Virtual Assistant Sounds Just Like Her**\
 `Last week, the company released a chatbot with an option that sounded like the actress, who provided the voice of an A.I. system in the movie “Her.”`\
 https://nytimes.com/2024/05/20/technology/scarlett-johannson-openai-voice.html

@@ -1,3 +1,7 @@
+**Down in the Dumps**\
+`Zachary David Levy is really rocking it.`\
+https://nytimes.com/2024/05/20/crosswords/daily-puzzle-2024-05-21.html
+
 **Dartmouth’s President Is Censured by Faculty Over Protest Actions**\
 `The president, Sian Leah Beilock, called in the police just hours after a pro-Palestinian encampment went up on campus. A bystander and a professor were injured.`\
 https://nytimes.com/2024/05/20/us/dartmouth-president-beilock-censure.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/technology/scarlett-johannson-openai-voice.html
 **A Tongue-Lashing for a Defense Witness Isn’t Great News for Trump**\
 `The witness tried to play judge, and the real judge was not pleased.`\
 https://nytimes.com/2024/05/20/opinion/trump-trial-costello-judge.html
-
-**What Does the Dow Hitting 40,000 Tell Us?**\
-`The stock market isn’t the economy — but its record high refutes conspiracy theories.`\
-https://nytimes.com/2024/05/20/opinion/trump-biden-stock-market-dow-jones.html
 
