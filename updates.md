@@ -1,3 +1,7 @@
+**Passenger Dies After Severe Turbulence on Flight From London to Singapore**\
+`Several other people were injured on the Singapore Airlines flight, which took off from Heathrow Airport in London on Monday, the airline said.`\
+https://nytimes.com/2024/05/21/world/asia/singapore-airlines-turbulence-death.html
+
 **Oil and Gas Billionaires Drum Up Dollars for Trump**\
 `Fossil fuel companies enjoyed record profits under President Biden. But his decision to pause permits for gas export terminals has whipped up industry support for his challenger.`\
 https://nytimes.com/2024/05/21/climate/trump-campaign-oil-gas.html
