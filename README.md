@@ -22,8 +22,8 @@ https://nytimes.com/2024/05/21/learning/word-of-the-day-apathetic.html
 `“The Hypocrisy of The Hague,” read the front page of one mainstream daily that has often been critical of Israel’s prime minister.`\
 https://nytimes.com/2024/05/21/world/middleeast/israel-netanyahu-icc-arrest-warrant.html
 
-**Oil and Gas Billionaires Drum Up Dollars for Trump**\
-`Fossil fuel companies enjoyed record profits under President Biden. But his decision to pause permits for gas export terminals has whipped up industry support for his challenger.`\
+**Biden and Big Oil Had a Truce. Now, It’s Collapsing.**\
+`Companies were enjoying record profits. But the president’s decision to pause permits for gas export terminals has whipped up industry support, and donations, for Donald Trump.`\
 https://nytimes.com/2024/05/21/climate/trump-campaign-oil-gas.html
 
 **Macy’s Reports Another Drop in Sales but Sees ‘Traction’ in Turnaround**\
