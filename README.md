@@ -1,3 +1,7 @@
+**Biden Administration Will Release 1 Million Barrels of Gasoline**\
+`The sale, which was mandated by Congress, is timed to the summer driving season but unlikely to have more than a modest effect on gasoline prices.`\
+https://nytimes.com/2024/05/21/us/politics/biden-gasoline-reserve-sale.html
+
 **Zelensky Said the U.S. Should Do More to Help Ukraine**\
 `Also, lawyers defending Donald Trump rested their case. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/05/21/briefing/zelensky-ukraine-nato-trump-trial.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/world/europe/britain-matthew-trickett-hong-kong-i
 **He Scouts Out the Stories You’ll Find Only in New York**\
 `James Barron, who has lived in the city for decades and since 2021 has written the New York Today newsletter, shared how he finds his characteristic quirky tales.`\
 https://nytimes.com/2024/05/21/insider/james-barron-new-york-today.html
-
-**A Fan Was Hit by a 110-M.P.H. Foul Ball. Now She’s on a Trading Card.**\
-`The trading card maker Topps said it made 110 custom cards for Liz McGuire, who was hit by a ball at a game in Toronto on Friday between the Blue Jays and the Tampa Bay Rays.`\
-https://nytimes.com/2024/05/21/sports/toronto-blue-jays-fan-foul-ball.html
 
