@@ -1,3 +1,11 @@
+**Sean Combs Accused of Sexual Assault in New Lawsuit**\
+`A former model sued the hip-hop mogul and accused him of forcing her to perform oral sex in 2003 at his recording studio. Mr. Combs has not yet responded.`\
+https://nytimes.com/2024/05/21/arts/music/sean-combs-diddy-accused-oral-sex-lawsuit.html
+
+**Gérard Depardieu Punches the ‘King of Paparazzi’ Outside Rome Cafe**\
+`Mr. Depardieu, 75, was seen striking the 79-year-old photographer Rino Barillari on the Via Veneto.`\
+https://nytimes.com/2024/05/21/movies/gerard-depardieu-rino-barillari.html
+
 **An Attack on Justice Merchan is an Attack on the Rule of Law**\
 `In Trump’s criminal trial, the judge has been eminently fair.`\
 https://nytimes.com/live/2024/05/21/opinion/thepoint/trump-trial-merchan-fairness

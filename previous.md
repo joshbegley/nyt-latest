@@ -1,3 +1,11 @@
+**Sean Combs Accused of Sexual Assault in New Lawsuit**\
+`A former model sued the hip-hop mogul and accused him of forcing her to perform oral sex in 2003 at his recording studio. Mr. Combs has not yet responded.`\
+https://nytimes.com/2024/05/21/arts/music/sean-combs-diddy-accused-oral-sex-lawsuit.html
+
+**Gérard Depardieu Punches the ‘King of Paparazzi’ Outside Rome Cafe**\
+`Mr. Depardieu, 75, was seen striking the 79-year-old photographer Rino Barillari on the Via Veneto.`\
+https://nytimes.com/2024/05/21/movies/gerard-depardieu-rino-barillari.html
+
 **An Attack on Justice Merchan is an Attack on the Rule of Law**\
 `In Trump’s criminal trial, the judge has been eminently fair.`\
 https://nytimes.com/live/2024/05/21/opinion/thepoint/trump-trial-merchan-fairness
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/21/us/politics/biden-gasoline-reserve-sale.html
 **Zelensky Said the U.S. Should Do More to Help Ukraine**\
 `Also, lawyers defending Donald Trump rested their case. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/05/21/briefing/zelensky-ukraine-nato-trump-trial.html
-
-**A Swift Defense and a Decision Ahead: 5 Takeaways From Trump’s Trial**\
-`Donald J. Trump’s lawyers called two witnesses and he was not one of them. Closing arguments will happen May 28.`\
-https://nytimes.com/2024/05/21/nyregion/trump-hush-money-trial-takeaways.html
-
-**Loan or Bribe? Menendez Jurors Hear About $23,568 Mortgage Payoff.**\
-`Senator Robert Menendez’s wife never signed a loan document before a man also charged in the bribery case arranged to pay her mortgage, a witness testified.`\
-https://nytimes.com/2024/05/21/nyregion/robert-menendez-bribery-trial.html
 
