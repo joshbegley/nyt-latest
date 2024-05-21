@@ -1,3 +1,11 @@
+**Elvis’s Granddaughter Sues to Block Sale of Graceland, Charging Fraud**\
+`His granddaughter, the actress Riley Keough, claims that a company is fraudulently planning to auction off Elvis’s home in Memphis.`\
+https://nytimes.com/2024/05/21/arts/music/graceland-sale-foreclosure-riley-keough.html
+
+**Giuliani and Other Trump Allies to Be Arraigned in Arizona Election Case**\
+`A total of 50 people, including former President Donald J. Trump, are now facing charges in four states related to efforts to keep Mr. Trump in power after he lost in 2020.`\
+https://nytimes.com/2024/05/21/us/giuliani-trump-arizona-fake-electors.html
+
 **A Black Teenager Was Wrongfully Executed in 1931. Now His Family Is Suing.**\
 `Alexander McClay Williams was 16 when he was executed in Pennsylvania for the murder of a 34-year-old white woman. His conviction was overturned in 2022.`\
 https://nytimes.com/2024/05/21/us/alexander-mcclay-williams-executed-lawsuit.html
