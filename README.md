@@ -1,3 +1,7 @@
+**Storms Could Bring Tornadoes and Damaging Winds to Midwest Today**\
+`A few strong tornadoes, along with other severe weather, are possible from Kansas City to Milwaukee on Tuesday.`\
+https://nytimes.com/2024/05/21/weather/tornado-storms-midwest-weather-forecast.html
+
 **U.S. Seeks to Join Forces With Europe to Combat Excess Chinese Goods**\
 `Treasury Secretary Janet L. Yellen warned that China’s industrial strategy posed a global threat that requires a united response.`\
 https://nytimes.com/2024/05/21/business/janet-yellen-europe-china.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/magazine/conferences-creativity.html
 **‘Bromakase’ Is the New Steakhouse**\
 `The power protein rituals of man dining are taking over the once staid world of premium sushi.`\
 https://nytimes.com/2024/05/21/dining/omakase.html
-
-**Orlando Museum of Art Gets a Gift With Strings and Tries to Cut Them**\
-`The museum has asked a Florida court to remove restrictions on a donor’s bequest amid a financial crisis in the wake of its failed, “fake” Basquiat show.`\
-https://nytimes.com/2024/05/21/arts/orlando-museum-of-art-gets-a-gift-with-strings-and-tries-to-cut-them.html
 
