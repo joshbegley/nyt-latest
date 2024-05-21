@@ -1,3 +1,15 @@
+**How Donald Trump’s Financial Future Became Tied to Trump Media**\
+`Mr. Trump has treated Trump Media, which runs his social network Truth Social, as a low-cost sideshow. Now a big portion of his wealth hinges on its success.`\
+https://nytimes.com/2024/05/21/business/donald-trump-wealth-trump-media.html
+
+**‘Outer Range’ Is a Dizzying Sci-Fi Drama, With Buffalo**\
+`The second season of this Amazon series, all of which is available now, cranks up both the time-travel and the outrageous soapiness.`\
+https://nytimes.com/2024/05/21/arts/television/outer-range-review.html
+
+**A Son of the Mexican Elite Who Can’t Escape His Roots**\
+`In a debut novel, history and family legacy — going back to the conquistadors — confound a man’s search for identity.`\
+https://nytimes.com/2024/05/21/books/review/nicolas-medina-mora-america-del-norte.html
+
 **Student Activism Over Gaza: Admirable or Ill Informed?**\
 `Readers discuss a guest essay responding to critics of the protests. Also: Faith, family and the G.O.P.; deep dish pizza.`\
 https://nytimes.com/2024/05/21/opinion/student-protests-israel-gaza.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/05/21/business/media/judge-merchan-trump-trial-media.ht
 **Why the Crash in Iran Was Almost Certainly an Accident**\
 `There’s very little reason for Israel or the U.S. to have engineered the death of the Iranian president.`\
 https://nytimes.com/live/2024/05/21/opinion/thepoint/iran-president-crash-death
-
-**A.I.’s Black Boxes Just Got a Little Less Mysterious**\
-`Researchers at the A.I. company Anthropic claim to have found clues about the inner workings of large language models, possibly helping to prevent their misuse and to curb their potential threats.`\
-https://nytimes.com/2024/05/21/technology/ai-language-models-anthropic.html
-
-**Up to 70 Percent of People With Asthma and COPD Go Undiagnosed**\
-`Here’s how to tell if you’re one of them.`\
-https://nytimes.com/2024/05/21/well/asthma-copd-diagnosis.html
-
-**What to Watch as Voters Head to Polls in Georgia, Oregon and Elsewhere**\
-`The Trump prosecutor Fani Willis will be on the ballot in Georgia, as will Scott McAfee, the judge overseeing the former president’s trial there.`\
-https://nytimes.com/2024/05/21/us/politics/primaries-today-georgia-idaho-kentucky-oregon.html
 
