@@ -1,3 +1,7 @@
+**‘Insane’ Heat Has Been Scorching Miami. It’s Not Even June.**\
+`The hottest May on record for the city has experts worried about the summer — and hurricane season — to come.`\
+https://nytimes.com/2024/05/21/us/miami-heat-summer-weather.html
+
 **What’s Behind the Security Warnings for Pride Events**\
 `Citing the potential for terrorism, the State Department, F.B.I. and Department of Homeland Security urged those attending L.G.B.T.Q. events to be vigilant. Here’s what to know.`\
 https://nytimes.com/2024/05/21/travel/pride-month-parade-security.html

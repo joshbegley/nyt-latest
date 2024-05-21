@@ -1,3 +1,7 @@
+**‘Insane’ Heat Has Been Scorching Miami. It’s Not Even June.**\
+`The hottest May on record for the city has experts worried about the summer — and hurricane season — to come.`\
+https://nytimes.com/2024/05/21/us/miami-heat-summer-weather.html
+
 **What’s Behind the Security Warnings for Pride Events**\
 `Citing the potential for terrorism, the State Department, F.B.I. and Department of Homeland Security urged those attending L.G.B.T.Q. events to be vigilant. Here’s what to know.`\
 https://nytimes.com/2024/05/21/travel/pride-month-parade-security.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/world/asia/zelensky-times-iran-booker-asia.html
 **Jenny Erpenbeck’s ‘Kairos’ Wins the International Booker Prize**\
 `Translated by Michael Hofmann, it’s the first novel originally written in German to win the major literary award.`\
 https://nytimes.com/2024/05/21/books/international-booker-prize-winner-jenny-erpenbeck-kairos.html
-
-**Briton Charged With Aiding Hong Kong’s Intelligence Service Is Found Dead**\
-`Matthew Trickett, one of three men accused of gathering information for the special administrative region of China, died in a park outside London, the police said.`\
-https://nytimes.com/2024/05/21/world/europe/britain-matthew-trickett-hong-kong-intelligence.html
 
