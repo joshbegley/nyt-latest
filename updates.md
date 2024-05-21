@@ -1,3 +1,7 @@
+**Live Updates: Former Cohen Legal Adviser Back on Stand in Trump Case**\
+`Robert Costello, who once advised Michael D. Cohen, the key witness against Donald J. Trump, resumed testifying a day after butting heads with the judge. The defense hopes to undermine Mr. Cohen, who paid the hush money at the center of the case.`\
+https://nytimes.com/live/2024/05/21/nyregion/trump-trial-hush-money
+
 **Election Updates: Trump posts a video with fictional newspaper articles about “a unified Reich” if he wins.**\
 ``\
 https://nytimes.com/live/2024/05/21/us/biden-trump-primary-election
