@@ -1,3 +1,7 @@
+**Prince Harry Cannot Include Rupert Murdoch in Lawsuit, Court Rules**\
+`A judge ruled that the prince and other plaintiffs could not expand their claims of unlawful actions by News Group Newspapers in the U.K. to include allegations regarding Rupert Murdoch.`\
+https://nytimes.com/2024/05/21/world/europe/prince-harry-lawsuit-rupert-murdoch.html
+
 **David Redden, Who Brought Ingenuity to the Auction Block, Dies at 75**\
 `He brought a P.T. Barnum-like showmanship to Sotheby’s, where he sold items like Babe Ruth’s bat and a research rover that had been left behind on the moon.`\
 https://nytimes.com/2024/05/21/business/david-redden-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/business/economy/fed-financial-survey-american-ho
 **How Donald Trump’s Financial Future Became Tied to Trump Media**\
 `Mr. Trump has treated Trump Media, which runs his social network Truth Social, as a low-cost sideshow. Now a big portion of his wealth hinges on its success.`\
 https://nytimes.com/2024/05/21/business/donald-trump-wealth-trump-media.html
-
-**‘Outer Range’ Is a Dizzying Sci-Fi Drama, With Buffalo**\
-`The second season of this Amazon series, all of which is available now, cranks up both the time-travel and the outrageous soapiness.`\
-https://nytimes.com/2024/05/21/arts/television/outer-range-review.html
 
