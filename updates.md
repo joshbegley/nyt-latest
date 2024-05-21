@@ -1,3 +1,7 @@
+**Prosecutors and Trump’s Lawyers Will Jockey for an Edge With Jurors**\
+`The complex legal underpinnings of the case against Donald J. Trump will take center stage Tuesday afternoon, documents obtained by The New York Times show.`\
+https://nytimes.com/2024/05/21/nyregion/trump-trial-charging-conference.html
+
 **Scarlett Johansson’s Voice Isn’t the Only Thing A.I. Companies Want**\
 `They want your data, too.`\
 https://nytimes.com/live/2024/05/21/opinion/thepoint/openai-scarlett-johansson

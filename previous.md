@@ -1,3 +1,7 @@
+**Prosecutors and Trump’s Lawyers Will Jockey for an Edge With Jurors**\
+`The complex legal underpinnings of the case against Donald J. Trump will take center stage Tuesday afternoon, documents obtained by The New York Times show.`\
+https://nytimes.com/2024/05/21/nyregion/trump-trial-charging-conference.html
+
 **Scarlett Johansson’s Voice Isn’t the Only Thing A.I. Companies Want**\
 `They want your data, too.`\
 https://nytimes.com/live/2024/05/21/opinion/thepoint/openai-scarlett-johansson
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/world/europe/zelensky-interview-times-transcript.
 **Pixar Lays Off 175 Workers as It Returns Its Focus to Films**\
 `The animation studio, which has struggled over the past few years, will stop making original shows for Disney+.`\
 https://nytimes.com/2024/05/21/business/media/pixar-layoffs-disney.html
-
-**Can Republicans Embrace Voting by Mail? Pennsylvania Offers a Test.**\
-`Republicans are now trying to sell voters on voting methods that the party has demonized for years. It won’t be easy.`\
-https://nytimes.com/2024/05/21/us/republicans-mail-voting-pennsylvania.html
 
