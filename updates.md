@@ -1,3 +1,7 @@
+**Zelensky Said the U.S. Should Do More to Help Ukraine**\
+`Also, lawyers defending Donald Trump rested their case. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/05/21/briefing/zelensky-ukraine-nato-trump-trial.html
+
 **A Swift Defense and a Decision Ahead: 5 Takeaways From Trump’s Trial**\
 `Donald J. Trump’s lawyers called two witnesses and he was not one of them. Closing arguments will happen May 28.`\
 https://nytimes.com/2024/05/21/nyregion/trump-hush-money-trial-takeaways.html
