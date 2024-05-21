@@ -1,3 +1,11 @@
+**Has Fentanyl Peaked?**\
+`We explain a decline in overdose deaths.`\
+https://nytimes.com/2024/05/21/briefing/has-fentanyl-peaked.html
+
+**Passenger Dies After Severe Turbulence on Flight From London to Singapore**\
+`Several others were injured on the Singapore Airlines flight, which took off from Heathrow Airport in London on Monday, the airline said.`\
+https://nytimes.com/2024/05/21/world/asia/singapore-airlines-turbulence-death.html
+
 **Crowds Attend Funeral Procession for Iran’s President**\
 `Large numbers congregated in the northwestern city of Tabriz in a memorial event for Ebrahim Raisi and Hossein Amir Abdollahian, the country’s foreign minister, after both men died in a helicopter crash.`\
 https://nytimes.com/video/world/middleeast/100000009479709/crowds-attend-funeral-procession-for-irans-president.html
