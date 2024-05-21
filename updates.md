@@ -1,3 +1,7 @@
+**An NBA Star’s Remark Becomes a Minnesota Rallying Cry**\
+`Minnesota Timberwolves fans have picked up on a phrase uttered by their star, and are hardly put off by its mild vulgarity.`\
+https://nytimes.com/2024/05/21/sports/basketball/minnesota-anthony-edwards-slogan.html
+
 **Bourbon Steak Lands in New York With a Local Wine List**\
 `Cafe Mado replaces Oxalis, Strange Delight channels the Big Easy and more restaurant news.`\
 https://nytimes.com/2024/05/21/dining/nyc-restaurant-news.html
