@@ -1,3 +1,7 @@
+**For the First Time in 155 Years, This Beach Will Be Open Sunday**\
+`The Christian community in Ocean Grove, N.J., is challenging a state order that has compelled it to let its beach be used on Sunday mornings.`\
+https://nytimes.com/2024/05/21/nyregion/ocean-grove-nj-beach.html
+
 **California Voters to Decide Who Will Finish McCarthy’s Term**\
 `Rep. Kevin McCarthy left Congress at the end of last year after being ousted as the House speaker. A special election on Tuesday will determine his Central Valley successor.`\
 https://nytimes.com/2024/05/21/us/politics/california-kevin-mccarthy-congress.html
