@@ -18,7 +18,7 @@ https://nytimes.com/2024/05/21/world/middleeast/gaza-icc-prosecutor-warrants.htm
 `We explain a decline in overdose deaths.`\
 https://nytimes.com/2024/05/21/briefing/has-fentanyl-peaked.html
 
-**Passenger Dies After Severe Turbulence on Flight From London to Singapore**\
+**One Dead After Severe Turbulence on Flight From London to Singapore**\
 `Several other people were injured on the Singapore Airlines flight, which took off from Heathrow Airport in London on Monday, the airline said.`\
 https://nytimes.com/2024/05/21/world/asia/singapore-airlines-turbulence-death.html
 
