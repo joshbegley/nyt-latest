@@ -1,3 +1,7 @@
+**South Carolina Bans Gender Transition Care for Minors**\
+`With Gov. Henry McMaster’s signature, the state joins about two dozen others in passing laws that restrict or ban such medical care for transgender minors.`\
+https://nytimes.com/2024/05/21/us/south-carolina-transgender-care-ban.html
+
 **A Many-Splendored Self-Portrait of the Artist**\
 `Looking at his identity not as ramparts to defend but as curious paths to explore, René Treviño creates a survey-as-party and invites all the aspects of himself.`\
 https://nytimes.com/2024/05/21/arts/design/art-wellin-rene-trevino.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/climate/india-extreme-heat.html
 **Russia Starts Tactical Nuclear Drills, in a Warning to Ukraine’s Allies**\
 `Moscow has said the exercise is a response to “provocative statements and threats of individual Western officials.”`\
 https://nytimes.com/2024/05/21/world/europe/russia-tactical-nuclear-exercise.html
-
-**Dr. Paul Parkman, Who Helped to Eliminate Rubella, Dies at 91**\
-`He also identified the virus, which can cause infants to be born with severe physical and mental impairments as well as causing miscarriages and stillbirths.`\
-https://nytimes.com/2024/05/21/health/paul-parkman-dead.html
 
