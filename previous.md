@@ -1,3 +1,15 @@
+**After Raisi’s Death, Elections Pose Tricky Test for Iran’s Rulers**\
+`Iran’s political establishment must choose between opening the race and facing moderate rivals, or limiting candidates and risking the embarrassment of low turnout.`\
+https://nytimes.com/2024/05/21/world/middleeast/iran-election-president-death-ayatollah.html
+
+**What Next for Iran, and Drama at the Trump Trial**\
+`Plus, Scarlett Johansson calls out OpenAI.`\
+https://nytimes.com/2024/05/21/podcasts/iran-president-future-trump-trial-costello.html
+
+**The Crypto Comeback**\
+`The fate of Sam Bankman-Fried’s FTX, and what it says about the improbable resurgence of cryptocurrencies.`\
+https://nytimes.com/2024/05/21/podcasts/the-daily/crypto-bitcoin-comeback.html
+
 **Storms Could Bring Tornadoes and Damaging Winds to Midwest Today**\
 `A few strong tornadoes, along with other severe weather, are possible from Kansas City to Milwaukee on Tuesday.`\
 https://nytimes.com/2024/05/21/weather/tornado-storms-midwest-weather-forecast.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/05/21/opinion/supreme-court-alito-flag.html
 **The Siblings Who Changed How We Party**\
 `When James and Alexa Hirschfeld started Paperless Post 15 years ago, some saw its digital invitations as a fad. Instead, they have become a fixture of events and have spawned imitators.`\
 https://nytimes.com/2024/05/21/style/the-siblings-who-changed-how-we-party.html
-
-**Justice Alito Is a True Believer**\
-`It is comforting to think that the red meat is for someone else.`\
-https://nytimes.com/2024/05/21/opinion/alito-flag-stop-the-steal.html
-
-**My Secret to Creative Rejuvenation? Conferences.**\
-`Vacations are cool, but sometimes you need more than an escape.`\
-https://nytimes.com/2024/05/21/magazine/conferences-creativity.html
-
-**‘Bromakase’ Is the New Steakhouse**\
-`The power protein rituals of man dining are taking over the once staid world of premium sushi.`\
-https://nytimes.com/2024/05/21/dining/omakase.html
 
