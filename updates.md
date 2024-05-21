@@ -1,3 +1,7 @@
+**Adams vs. Adams: A Power Struggle in New York City Turns Ugly**\
+`The City Council speaker, Adrienne Adams, was expected to set in motion a plan to weaken Mayor Eric Adams’s authority. The mayor quickly fought back.`\
+https://nytimes.com/2024/05/21/nyregion/city-council-eric-adams.html
+
 **An Attack on Justice Merchan Is an Attack on the Rule of Law**\
 `In Trump’s criminal trial, the judge has been eminently fair.`\
 https://nytimes.com/live/2024/05/21/opinion/thepoint/trump-trial-merchan-fairness
