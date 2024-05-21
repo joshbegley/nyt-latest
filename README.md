@@ -1,3 +1,7 @@
+**Student Activism Over Gaza: Admirable or Ill Informed?**\
+`Readers discuss a guest essay responding to critics of the protests. Also: Faith, family and the G.O.P.; deep dish pizza.`\
+https://nytimes.com/2024/05/21/opinion/student-protests-israel-gaza.html
+
 **Bourbon Steak Lands in New York With a Local Wine List**\
 `Cafe Mado replaces Oxalis, Strange Delight channels the Big Easy and more restaurant news.`\
 https://nytimes.com/2024/05/21/dining/nyc-restaurant-news.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/well/asthma-copd-diagnosis.html
 **What to Watch as Voters Head to Polls in Georgia, Oregon and Elsewhere**\
 `The Trump prosecutor Fani Willis will be on the ballot in Georgia, as will Scott McAfee, the judge overseeing the former president’s trial there.`\
 https://nytimes.com/2024/05/21/us/politics/primaries-today-georgia-idaho-kentucky-oregon.html
-
-**An NBA Star’s Remark Becomes a Minnesota Rallying Cry**\
-`Minnesota Timberwolves fans have picked up on a phrase uttered by their star, and are hardly put off by its mild vulgarity.`\
-https://nytimes.com/2024/05/21/sports/basketball/minnesota-anthony-edwards-slogan.html
 
