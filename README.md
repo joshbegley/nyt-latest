@@ -4,7 +4,7 @@ https://nytimes.com/2024/05/21/business/media/judge-merchan-trump-trial-media.ht
 
 **Why the Crash in Iran Was Almost Certainly an Accident**\
 `There’s very little reason for Israel or the U.S. to have engineered the death of the Iranian president.`\
-https://nytimes.com/live/2024/05/14/opinion/thepoint/iran-president-crash-death
+https://nytimes.com/live/2024/05/21/opinion/thepoint/iran-president-crash-death
 
 **A.I.’s Black Boxes Just Got a Little Less Mysterious**\
 `Researchers at the A.I. company Anthropic claim to have found clues about the inner workings of large language models, possibly helping to prevent their misuse and to curb their potential threats.`\
