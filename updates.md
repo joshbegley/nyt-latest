@@ -1,3 +1,11 @@
+**Why the Crash in Iran Was Almost Certainly an Accident**\
+`There’s very little reason for Israel or the U.S. to have engineered the death of the Iranian president.`\
+https://nytimes.com/live/2024/05/14/opinion/thepoint/iran-president-crash-death
+
+**A.I.’s Black Boxes Just Got a Little Less Mysterious**\
+`Researchers at the A.I. company Anthropic claim to have found clues about the inner workings of large language models, possibly helping to prevent their misuse and to curb their potential threats.`\
+https://nytimes.com/2024/05/21/technology/ai-language-models-anthropic.html
+
 **Up to 70 Percent of People With Asthma and COPD Go Undiagnosed**\
 `Here’s how to tell if you’re one of them.`\
 https://nytimes.com/2024/05/21/well/asthma-copd-diagnosis.html

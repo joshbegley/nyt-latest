@@ -1,3 +1,11 @@
+**Why the Crash in Iran Was Almost Certainly an Accident**\
+`There’s very little reason for Israel or the U.S. to have engineered the death of the Iranian president.`\
+https://nytimes.com/live/2024/05/14/opinion/thepoint/iran-president-crash-death
+
+**A.I.’s Black Boxes Just Got a Little Less Mysterious**\
+`Researchers at the A.I. company Anthropic claim to have found clues about the inner workings of large language models, possibly helping to prevent their misuse and to curb their potential threats.`\
+https://nytimes.com/2024/05/21/technology/ai-language-models-anthropic.html
+
 **Up to 70 Percent of People With Asthma and COPD Go Undiagnosed**\
 `Here’s how to tell if you’re one of them.`\
 https://nytimes.com/2024/05/21/well/asthma-copd-diagnosis.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/21/arts/music/graceland-sale-foreclosure-riley-keoug
 **Giuliani and Other Trump Allies to Be Arraigned in Arizona Election Case**\
 `A total of 50 people, including former President Donald J. Trump, are now facing charges in four states related to efforts to keep Mr. Trump in power after he lost in 2020.`\
 https://nytimes.com/2024/05/21/us/giuliani-trump-arizona-fake-electors.html
-
-**A Black Teenager Was Wrongfully Executed in 1931. Now His Family Is Suing.**\
-`Alexander McClay Williams was 16 when he was executed in Pennsylvania for the murder of a 34-year-old white woman. His conviction was overturned in 2022.`\
-https://nytimes.com/2024/05/21/us/alexander-mcclay-williams-executed-lawsuit.html
-
-**Trump Calls Cannes Biopic ‘Garbage’ and Says He Plans to Sue**\
-`The director of “The Apprentice” was unfazed by the threat to the film, which covers the ex-president’s relationships with his first wife and the fixer Roy Cohn.`\
-https://nytimes.com/2024/05/21/movies/trump-apprentice-biopic-cannes.html
 
