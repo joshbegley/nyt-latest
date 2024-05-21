@@ -1,3 +1,15 @@
+**What to Watch as Voters Head to Polls in Georgia, Oregon and Elsewhere**\
+`The Trump prosecutor Fani Willis will be on the ballot in Georgia, as will Scott McAfee, the judge overseeing the former president’s trial there.`\
+https://nytimes.com/2024/05/21/us/politics/primaries-today-georgia-idaho-kentucky-oregon.html
+
+**A Quick Remark Becomes a Region’s Rallying Cry**\
+`Minnesota Timberwolves fans have picked up on a phrase uttered by their star, and are hardly put off by its mild vulgarity.`\
+https://nytimes.com/2024/05/21/sports/basketball/minnesota-anthony-edwards-slogan.html
+
+**Wirecutter Wants to Hear From You**\
+`Do you have a story idea, feedback on our coverage or a question for our journalists? Let us know.`\
+https://nytimes.com/article/wirecutter-feedback.html
+
 **We Wrote a Cookbook!**\
 `In it you’ll find 100 of my most favorite weeknight dinners, like chimichurri chicken, coconut-miso salmon curry and chile crisp fettuccine Alfredo.`\
 https://nytimes.com/2024/05/21/dining/we-wrote-a-cookbook.html
@@ -22,12 +34,3 @@ https://nytimes.com/2024/05/21/movies/trump-apprentice-biopic-cannes.html
 `Nicholas II. orders a committee to devise some substitute for transportation.`\
 https://nytimes.com/2024/05/21/world/exile-siberia-soviet-union.html
 
-**Israel Seizes Camera From A.P., Citing Use of Its Images by Al Jazeera**\
-`The move was an escalation in Israel’s feud with the pan-Arab broadcaster Al Jazeera, and drew sharp criticism from The Associated Press.`\
-https://nytimes.com/2024/05/21/world/middleeast/israel-ap-al-jazeera-cameras.html
-
-**Top Oceans Court Says Nations Must Reduce Greenhouse Gas Emissions**\
-`Experts say the opinion, though nonbinding, is likely to lead to more claims for damages against polluting nations.`\
-https://nytimes.com/2024/05/21/world/europe/climate-islands-itlos-court-opinion.html
-
-**Jean Smart Is Having a Third Act for the Ages**\

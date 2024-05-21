@@ -1,3 +1,15 @@
+**What to Watch as Voters Head to Polls in Georgia, Oregon and Elsewhere**\
+`The Trump prosecutor Fani Willis will be on the ballot in Georgia, as will Scott McAfee, the judge overseeing the former president’s trial there.`\
+https://nytimes.com/2024/05/21/us/politics/primaries-today-georgia-idaho-kentucky-oregon.html
+
+**A Quick Remark Becomes a Region’s Rallying Cry**\
+`Minnesota Timberwolves fans have picked up on a phrase uttered by their star, and are hardly put off by its mild vulgarity.`\
+https://nytimes.com/2024/05/21/sports/basketball/minnesota-anthony-edwards-slogan.html
+
+**Wirecutter Wants to Hear From You**\
+`Do you have a story idea, feedback on our coverage or a question for our journalists? Let us know.`\
+https://nytimes.com/article/wirecutter-feedback.html
+
 **We Wrote a Cookbook!**\
 `In it you’ll find 100 of my most favorite weeknight dinners, like chimichurri chicken, coconut-miso salmon curry and chile crisp fettuccine Alfredo.`\
 https://nytimes.com/2024/05/21/dining/we-wrote-a-cookbook.html
