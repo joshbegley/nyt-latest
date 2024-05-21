@@ -1,3 +1,11 @@
+**Weekly Student News Quiz: Prime Minister Shot, Westminster Dog Show, Gen Z Trend**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2024/05/21/learning/21StudentNewsQuiz.html
+
+**Scarlett Johansson and OpenAI’s Trust Issues**\
+`The actress, who criticized the use of a soundalike voice for ChatGPT, is the latest to raise concerns about the artificial intelligence start-up’s practices.`\
+https://nytimes.com/2024/05/21/business/dealbook/scarlett-johansson-openai-chatgpt.html
+
 **Boys and Cologne**\
 `Do the teen and tween boys you know love high-end fragrances?`\
 https://nytimes.com/2024/05/21/learning/boys-and-cologne.html
