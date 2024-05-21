@@ -1,3 +1,7 @@
+**What’s Behind the Security Warnings for Pride Events**\
+`Citing the potential for terrorism, the State Department, F.B.I. and Department of Homeland Security urged those attending L.G.B.T.Q. events to be vigilant. Here’s what to know.`\
+https://nytimes.com/2024/05/21/travel/pride-month-parade-security.html
+
 **Biden Administration Will Release 1 Million Barrels of Gasoline**\
 `The sale, which was mandated by Congress, is timed to the summer driving season but unlikely to have more than a modest effect on gasoline prices.`\
 https://nytimes.com/2024/05/21/us/politics/biden-gasoline-reserve-sale.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/books/international-booker-prize-winner-jenny-erp
 **Briton Charged With Aiding Hong Kong’s Intelligence Service Is Found Dead**\
 `Matthew Trickett, one of three men accused of gathering information for the special administrative region of China, died in a park outside London, the police said.`\
 https://nytimes.com/2024/05/21/world/europe/britain-matthew-trickett-hong-kong-intelligence.html
-
-**He Scouts Out the Stories You’ll Find Only in New York**\
-`James Barron, who has lived in the city for decades and since 2021 has written the New York Today newsletter, shared how he finds his characteristic quirky tales.`\
-https://nytimes.com/2024/05/21/insider/james-barron-new-york-today.html
 
