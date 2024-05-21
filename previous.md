@@ -1,3 +1,7 @@
+**In Germany, Far-Right Plotters of an Improbable Coup to Go on Trial**\
+`Members of a group called the “United Patriots” are accused of planning to bring a prince into power by violently overthrowing the government.`\
+https://nytimes.com/2024/05/21/world/europe/germany-far-right-coup-trial.html
+
 **Trump’s Lawyers Are Expected to Rest Their Case on Tuesday**\
 `Prosecutors finished on Monday, after their final witness, Michael D. Cohen, stepped down from the stand after days of testimony. Then, things turned fractious.`\
 https://nytimes.com/2024/05/21/nyregion/trump-hush-money-trial-defense.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/arts/television/stephen-colbert-justice-alito.htm
 **Trump’s Reported Fund-Raising Tops Biden’s for First Time**\
 `The pace of giving to Donald Trump’s campaign and the Republican Party picked up in April, according to his advisers. But President Biden still has far more cash on hand.`\
 https://nytimes.com/2024/05/21/us/politics/trump-biden-fundraising.html
-
-**Tuesday Briefing**\
-`The fallout after the death of Iran’s president.`\
-https://nytimes.com/2024/05/21/briefing/iran-president-death-israel-fbi.html
 
