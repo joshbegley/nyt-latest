@@ -1,5 +1,5 @@
 **Russian Forces Close In on Ukrainian Town in Northeast**\
-`Vovchansk has been a prime target of Russia’s offensive in the northeast, as it seeks to push back Ukrainian troops from the border.`\
+`Vovchansk has been a prime target of Russia’s offensive in the northeast as it seeks to push back Ukrainian troops from the border.`\
 https://nytimes.com/2024/05/21/world/europe/ukraine-russia-vovchansk-buffer-zone.html
 
 **Weekly Student News Quiz: Prime Minister Shot, Westminster Dog Show, Gen Z Trend**\
