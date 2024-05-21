@@ -1,3 +1,15 @@
+**Wednesday Briefing: Zelensky Speaks to The Times**\
+`Also, funeral ceremonies begin for Iran’s president.`\
+https://nytimes.com/2024/05/21/world/asia/zelensky-times-iran-booker-asia.html
+
+**Jenny Erpenbeck’s ‘Kairos’ Wins the International Booker Prize**\
+`Translated by Michael Hofmann, it’s the first novel originally written in German to win the major literary award.`\
+https://nytimes.com/2024/05/21/books/international-booker-prize-winner-jenny-erpenbeck-kairos.html
+
+**Briton Charged With Aiding Hong Kong’s Intelligence Service Is Found Dead**\
+`Matthew Trickett, one of three men accused of gathering information for the special administrative region of China, died in a park outside London, the police said.`\
+https://nytimes.com/2024/05/21/world/europe/britain-matthew-trickett-hong-kong-intelligence.html
+
 **He Scouts Out the Stories You’ll Find Only in New York**\
 `James Barron, who has lived in the city for decades and since 2021 has written the New York Today newsletter, shared how he finds his characteristic quirky tales.`\
 https://nytimes.com/2024/05/21/insider/james-barron-new-york-today.html
