@@ -1,3 +1,7 @@
+**Stephen Colbert Slams Justice Alito for Using His Wife as a Scapegoat**\
+`Colbert joked that Alito “dropped a dime on his gal” when the Supreme Court justice blamed his wife for the flying of an upside-down American flag at their home shortly after Jan. 6.`\
+https://nytimes.com/2024/05/21/arts/television/stephen-colbert-justice-alito.html
+
 **Trump’s Reported Fund-Raising Tops Biden’s for First Time**\
 `The pace of giving to Donald Trump’s campaign and the Republican Party picked up in April, according to his advisers. But President Biden still has far more cash on hand.`\
 https://nytimes.com/2024/05/21/us/politics/trump-biden-fundraising.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/pageoneplus/quote-of-the-day-a-call-to-arrest-ham
 **The Disease Detectives Trying to Keep the World Safe From Bird Flu**\
 `When a child in a small Cambodian town fell sick recently, his rapid decline set off a global disease surveillance system.`\
 https://nytimes.com/2024/05/20/health/bird-flu-tracking-cambodia.html
-
-**Down in the Dumps**\
-`Zachary David Levy is really rocking it.`\
-https://nytimes.com/2024/05/20/crosswords/daily-puzzle-2024-05-21.html
 
