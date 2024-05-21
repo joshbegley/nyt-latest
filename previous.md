@@ -1,3 +1,7 @@
+**A Fan Was Hit by a 110-M.P.H. Foul Ball. Now She’s on a Trading Card.**\
+`The trading card maker Topps said it made 110 custom cards for Liz McGuire, who was hit by a ball at a game in Toronto on Friday between the Blue Jays and the Tampa Bay Rays.`\
+https://nytimes.com/2024/05/21/sports/toronto-blue-jays-fan-foul-ball.html
+
 **South Carolina Bans Gender Transition Care for Minors**\
 `With Gov. Henry McMaster’s signature, the state joins about two dozen others in passing laws that restrict or ban such medical care for transgender minors.`\
 https://nytimes.com/2024/05/21/us/south-carolina-transgender-care-ban.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/technology/c-gordon-bell-dead.html
 **How India Is Coping With Extreme Heat**\
 `India is adapting to a new era of dangerous heat, even as climbing temperatures are making its transition to a cleaner economy more difficult.`\
 https://nytimes.com/2024/05/21/climate/india-extreme-heat.html
-
-**Russia Starts Tactical Nuclear Drills, in a Warning to Ukraine’s Allies**\
-`Moscow has said the exercise is a response to “provocative statements and threats of individual Western officials.”`\
-https://nytimes.com/2024/05/21/world/europe/russia-tactical-nuclear-exercise.html
 
