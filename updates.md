@@ -1,3 +1,7 @@
+**Up to 70 Percent of People With Asthma and COPD Go Undiagnosed**\
+`Here’s how to tell if you’re one of them.`\
+https://nytimes.com/2024/05/21/well/asthma-copd-diagnosis.html
+
 **What to Watch as Voters Head to Polls in Georgia, Oregon and Elsewhere**\
 `The Trump prosecutor Fani Willis will be on the ballot in Georgia, as will Scott McAfee, the judge overseeing the former president’s trial there.`\
 https://nytimes.com/2024/05/21/us/politics/primaries-today-georgia-idaho-kentucky-oregon.html
