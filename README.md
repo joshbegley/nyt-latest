@@ -1,3 +1,7 @@
+**Sean Combs Accused of Sexual Assault in New Lawsuit**\
+`A former model sued the hip-hop mogul and accused him of forcing her to perform oral sex in 2003 at his recording studio. Mr. Combs has not yet responded.`\
+https://nytimes.com/2024/05/21/arts/music/sean-combs-diddy-accused-oral-sex-lawsuit.html
+
 **Gérard Depardieu Punches the ‘King of Paparazzi’ Outside Rome Cafe**\
 `Mr. Depardieu, 75, was seen striking the 79-year-old photographer Rino Barillari on the Via Veneto.`\
 https://nytimes.com/2024/05/21/movies/gerard-depardieu-rino-barillari.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/us/politics/biden-gasoline-reserve-sale.html
 **Zelensky Said the U.S. Should Do More to Help Ukraine**\
 `Also, lawyers defending Donald Trump rested their case. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/05/21/briefing/zelensky-ukraine-nato-trump-trial.html
-
-**A Swift Defense and a Decision Ahead: 5 Takeaways From Trump’s Trial**\
-`Donald J. Trump’s lawyers called two witnesses and he was not one of them. Closing arguments will happen May 28.`\
-https://nytimes.com/2024/05/21/nyregion/trump-hush-money-trial-takeaways.html
 
