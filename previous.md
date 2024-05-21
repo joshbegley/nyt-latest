@@ -1,3 +1,7 @@
+**Review: In ‘Three Houses,’ a Dark Karaoke Night of the Soul**\
+`It’s open mic at the post-pandemic cocktail bar where Dave Malloy’s hypnotic triptych of monodramas takes place.`\
+https://nytimes.com/2024/05/20/theater/three-houses-review-dave-malloy.html
+
 **Scarlett Johansson’s Statement About Her Interactions With Sam Altman**\
 `The actress released a lengthy statement about the company and the similarity of one of its A.I. voices.`\
 https://nytimes.com/2024/05/20/technology/scarlett-johansson-openai-statement.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/opinion/trump-biden-stock-market-dow-jones.html
 **City Hall Aide Is Cooperating With Corruption Investigation Into Adams**\
 `Eric Adams’s former liaison to the Turkish community, Rana Abbasova, had knowledge of some of the mayor’s dealings with Turkish officials.`\
 https://nytimes.com/2024/05/20/nyregion/adams-fbi-corruption-investigation-aide.html
-
-**Biden says there is ‘no equivalence between Israel and Hamas.’**\
-`The president, s`\
-https://nytimes.com/2024/05/20/world/middleeast/biden-israel-gaza-genocide.html
 
