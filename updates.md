@@ -1,3 +1,7 @@
+**One Dead After Severe Turbulence on Flight From London to Singapore**\
+`Several other people were injured on the Singapore Airlines flight, which took off from Heathrow Airport in London on Monday, the airline said.`\
+https://nytimes.com/2024/05/21/world/asia/singapore-airlines-turbulence-death.html
+
 **I.C.C. Warrant Request Appears to Shore Up Domestic Support for Netanyahu**\
 `“The Hypocrisy of The Hague,” read the front page of one mainstream daily that has often been critical of Israel’s prime minister.`\
 https://nytimes.com/2024/05/21/world/middleeast/israel-netanyahu-icc-arrest-warrant.html
