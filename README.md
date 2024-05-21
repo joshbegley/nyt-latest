@@ -1,3 +1,11 @@
+**Has Fentanyl Peaked?**\
+`We explain a decline in overdose deaths.`\
+https://nytimes.com/2024/05/21/briefing/has-fentanyl-peaked.html
+
+**Passenger Dies After Severe Turbulence on Flight From London to Singapore**\
+`Several others were injured on the Singapore Airlines flight, which took off from Heathrow Airport in London on Monday, the airline said.`\
+https://nytimes.com/2024/05/21/world/asia/singapore-airlines-turbulence-death.html
+
 **Crowds Attend Funeral Procession for Iran’s President**\
 `Large numbers congregated in the northwestern city of Tabriz in a memorial event for Ebrahim Raisi and Hossein Amir Abdollahian, the country’s foreign minister, after both men died in a helicopter crash.`\
 https://nytimes.com/video/world/middleeast/100000009479709/crowds-attend-funeral-procession-for-irans-president.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/21/business/janet-yellen-europe-china.html
 **V.A. Has Approved 1 Million Claims Under Burn Pit Law, Biden to Announce**\
 `The president is heading to New Hampshire to discuss care for veterans suffering from toxic exposure, an issue that resonates for him personally and, his campaign hopes, politically.`\
 https://nytimes.com/2024/05/21/us/politics/biden-burn-pits-va-pact-act.html
-
-**At Cannes, the Dogs Were Good Again This Year**\
-`The festival has long embraced canine stars like Messi, the hero of “Anatomy of a Fall,” while human stars are happy to take their furry friends along.`\
-https://nytimes.com/2024/05/21/movies/cannes-film-festival-2024-dogs.html
-
-**How to Deal With a Supreme Court That Can No Longer Be Shamed**\
-`Congress and the judiciary can no longer allow a few justices to trample on the court’s reputation.`\
-https://nytimes.com/2024/05/21/opinion/supreme-court-alito-flag.html
 
