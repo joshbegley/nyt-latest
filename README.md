@@ -1,7 +1,3 @@
-**1899: No More Exile To Siberia**\
-`Nicholas II. orders a committee to devise some substitute for transportation.`\
-https://nytimes.com/2024/05/21/world/exile-siberia-soviet-union.html
-
 **Israel Seizes Camera From A.P., Citing Use of Its Images by Al Jazeera**\
 `The move was an escalation in Israel’s feud with the pan-Arab broadcaster Al Jazeera, and drew sharp criticism from The Associated Press.`\
 https://nytimes.com/2024/05/21/world/middleeast/israel-ap-al-jazeera-cameras.html
