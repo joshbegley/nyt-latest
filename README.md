@@ -1,3 +1,7 @@
+**The Viral Defiance of Jasmine Crockett**\
+`Descending to Marjorie Taylor Greene’s level can be satisfying, but it is also degrading.`\
+https://nytimes.com/live/2024/05/21/opinion/thepoint/jasmine-crockett-greene-insults
+
 **Wednesday Briefing: Zelensky Speaks to The Times**\
 `Also, funeral ceremonies begin for Iran’s president.`\
 https://nytimes.com/2024/05/21/world/asia/zelensky-times-iran-booker-asia.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/arts/design/art-wellin-rene-trevino.html
 **Trump Chooses Not to Take the Stand, and the Defense Rests**\
 `Donald J. Trump’s lawyers mounted a minimal defense after prosecutors called 20 witnesses. Closing arguments in the first prosecution of an American president will take place May 28.`\
 https://nytimes.com/2024/05/21/nyregion/trump-hush-money-trial-testimony.html
-
-**Read the document**\
-`Motion filed by lawyers of Donald J. Trump in the documents case`\
-https://nytimes.com/interactive/2024/05/21/us/trump-mal-motion-to-suppress.html
 
