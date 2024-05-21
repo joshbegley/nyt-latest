@@ -1,3 +1,7 @@
+**Quote of the Day: A Call to Arrest Hamas Leaders and Netanyahu**\
+`Quotation of the Day for Tuesday, May 21, 2024`\
+https://nytimes.com/2024/05/20/pageoneplus/quote-of-the-day-a-call-to-arrest-hamas-leaders-and-netanyahu.html
+
 **The Disease Detectives Trying to Keep the World Safe From Bird Flu**\
 `When a child in a small Cambodian town fell sick recently, his rapid decline set off a global disease surveillance system.`\
 https://nytimes.com/2024/05/20/health/bird-flu-tracking-cambodia.html

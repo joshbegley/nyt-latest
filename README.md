@@ -1,3 +1,7 @@
+**Tensions Rise in Trump Trial After Cohen Completes Testimony**\
+`The prosecution rested its case against Donald J. Trump. Jonah Bromwich, a criminal justice reporter at The New York Times, gives his takeaways.`\
+https://nytimes.com/video/nyregion/100000009477974/tensions-rise-in-trump-trial-after-cohen-completes-testimony.html
+
 **Quote of the Day: A Call to Arrest Hamas Leaders and Netanyahu**\
 `Quotation of the Day for Tuesday, May 21, 2024`\
 https://nytimes.com/2024/05/20/pageoneplus/quote-of-the-day-a-call-to-arrest-hamas-leaders-and-netanyahu.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/nyregion/nypd-protests-settlement.html
 **Analysts and officials in Iran are apprehensive about what comes next.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/05/19/world/iran-president-crash/analysts-and-officials-in-iran-are-apprehensive-about-what-comes-next
-
-**Trump Could Soon Be a Felon. Does It Matter?**\
-`A strange sense of anticlimax hangs over the Trump trial.`\
-https://nytimes.com/2024/05/20/opinion/columnists/trump-trial-apathy.html
 
