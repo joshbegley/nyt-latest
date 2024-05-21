@@ -1,3 +1,11 @@
+**David Redden, Who Brought Ingenuity to the Auction Block, Dies at 75**\
+`He brought a P.T. Barnum-like showmanship to Sotheby’s, where he sold items like Babe Ruth’s bat and a research rover that had been left behind on the moon.`\
+https://nytimes.com/2024/05/21/business/david-redden-dead.html
+
+**Key Players in Trump’s Georgia Criminal Case Face Voters**\
+`Fani T. Willis, the Fulton County district attorney, and Scott McAfee, the presiding judge in the case, have faced criticism over their decisions in the prosecution of the former president.`\
+https://nytimes.com/2024/05/21/us/politics/fani-willis-scott-mcafee-georgia-trump.html
+
 **Lawyer’s Task Was to Get Cohen on the ‘Right Page’ for Trump**\
 `Robert J. Costello, the main witness for the defense, wrote an email showing that he was trying to conceal actions he took in the interest of Donald J. Trump.`\
 https://nytimes.com/2024/05/21/nyregion/robert-costello-cohen-trump.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/21/business/donald-trump-wealth-trump-media.html
 **‘Outer Range’ Is a Dizzying Sci-Fi Drama, With Buffalo**\
 `The second season of this Amazon series, all of which is available now, cranks up both the time-travel and the outrageous soapiness.`\
 https://nytimes.com/2024/05/21/arts/television/outer-range-review.html
-
-**A Son of the Mexican Elite Who Can’t Escape His Roots**\
-`In a debut novel, history and family legacy — going back to the conquistadors — confound a man’s search for identity.`\
-https://nytimes.com/2024/05/21/books/review/nicolas-medina-mora-america-del-norte.html
-
-**Student Activism Over Gaza: Admirable or Ill Informed?**\
-`Readers discuss a guest essay responding to critics of the protests. Also: Faith, family and the G.O.P.; deep dish pizza.`\
-https://nytimes.com/2024/05/21/opinion/student-protests-israel-gaza.html
 
