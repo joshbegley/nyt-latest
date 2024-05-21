@@ -1,3 +1,7 @@
+**We Wrote a Cookbook!**\
+`In it you’ll find 100 of my most favorite weeknight dinners, like chimichurri chicken, coconut-miso salmon curry and chile crisp fettuccine Alfredo.`\
+https://nytimes.com/2024/05/21/dining/we-wrote-a-cookbook.html
+
 **Elvis’s Granddaughter Sues to Block Sale of Graceland, Charging Fraud**\
 `His granddaughter, the actress Riley Keough, claims that a company is fraudulently planning to auction off Elvis’s home in Memphis.`\
 https://nytimes.com/2024/05/21/arts/music/graceland-sale-foreclosure-riley-keough.html
