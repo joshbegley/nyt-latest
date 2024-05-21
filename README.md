@@ -1,15 +1,3 @@
-**V.A. Has Approved 1 Million Claims Under Burn Pit Law, Biden to Announce**\
-`The president is heading to New Hampshire to discuss care for veterans suffering from toxic exposure, an issue that resonates for him personally and, his campaign hopes, politically.`\
-https://nytimes.com/2024/05/21/us/politics/biden-burn-pits-va-pact-act.html
-
-**At Cannes, the Dogs Were Good Again This Year**\
-`The festival has long embraced canine stars like Messi, the hero of “Anatomy of a Fall,” while human stars are happy to take their furry friends along.`\
-https://nytimes.com/2024/05/21/movies/cannes-film-festival-2024-dogs.html
-
-**How to Deal With a Supreme Court That Can No Longer Be Shamed**\
-`Congress and the judiciary can no longer allow a few justices to trample on the court’s reputation.`\
-https://nytimes.com/2024/05/21/opinion/supreme-court-alito-flag.html
-
 **The Siblings Who Changed How We Party**\
 `When James and Alexa Hirschfeld started Paperless Post 15 years ago, some saw its digital invitations as a fad. Instead, they have become a fixture of events and have spawned imitators.`\
 https://nytimes.com/2024/05/21/style/the-siblings-who-changed-how-we-party.html
@@ -33,4 +21,16 @@ https://nytimes.com/2024/05/21/arts/orlando-museum-of-art-gets-a-gift-with-strin
 **‘Butcher’ Tells the (Mostly) True Story of a Very Bad Gynecologist**\
 `Through the lens of a 19th-century doctor, Joyce Carol Oates explores gothic medical horror.`\
 https://nytimes.com/2024/05/21/books/review/butcher-joyce-carol-oates.html
+
+**How a $10 Fee on Your Car Insurance Bill Is Actually Spent**\
+`The fee collected by New York State is supposed to go toward fighting car thefts and fraud. But an audit found that the program was poorly run.`\
+https://nytimes.com/2024/05/21/nyregion/10-fee-car-insurance.html
+
+**For Kendrick and Drake, Family Matters**\
+`A rap battle got personal — and that was the point.`\
+https://nytimes.com/live/2024/05/14/opinion/thepoint/for-kendrick-and-drake-family-matters
+
+**Is the Party That Ended Apartheid Losing Its Grip on South Africa?**\
+`The African National Congress has long rested on its legacy. But increasingly that isn’t enough to persuade voters to keep it in power.`\
+https://nytimes.com/2024/05/21/magazine/south-africa-elections-anc.html
 
