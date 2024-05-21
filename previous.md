@@ -1,3 +1,7 @@
+**Kerry Kennedy Leads ‘Heart-Wrenching’ Campaign Against Her Brother’s White House Bid**\
+`Robert F. Kennedy Jr’s sister has become the face of the Kennedy family effort to block his candidacy and re-elect President Biden. She has more at stake besides her relationship with her brother.`\
+https://nytimes.com/2024/05/21/us/politics/kerry-kennedy-rfk.html
+
 **A Mural That Honors Black Performers at Rest**\
 `In Los Angeles, Thenjiwe Niki Nkosi has taken over the Hammer Museum’s lobby with paintings of larger-than-life gymnasts who refuse to pose.`\
 https://nytimes.com/interactive/2024/05/21/t-magazine/thenjiwe-niki-nkosi-hammer-museum.html
@@ -29,8 +33,4 @@ https://nytimes.com/interactive/2024/05/21/us/20245-gertler-letter-from-us-congr
 **Pro-Palestinian protesters heckle Blinken as he testifies on Capitol Hill.**\
 `By Robert Jimison`\
 https://nytimes.com/live/2024/05/21/world/israel-gaza-war-hamas-rafah/pro-palestinian-protesters-heckle-blinken-as-he-testified-on-capitol-hill
-
-**Return of the Inflation Truthers**\
-`Cutting through the misconceptions and conspiracy theories.`\
-https://nytimes.com/2024/05/21/opinion/inflation-data-economy.html
 
