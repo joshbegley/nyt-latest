@@ -1,3 +1,7 @@
+**Read a Transcript of Volodymyr Zelensky’s Interview With The Times**\
+`The Ukrainian president spoke to Times reporters in Kyiv for nearly an hour.`\
+https://nytimes.com/2024/05/21/world/europe/zelensky-interview-times-transcript.html
+
 **Pixar Lays Off 175 Workers as It Returns Its Focus to Films**\
 `The animation studio, which has struggled creatively and at the box office over the past few years, will stop making original shows for Disney+.`\
 https://nytimes.com/2024/05/21/business/media/pixar-layoffs.html
