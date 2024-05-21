@@ -1,3 +1,7 @@
+**House G.O.P. Moves to Crack Down on Noncitizen Voting, Sowing False Narrative**\
+`The bills under consideration in the House have virtually no chance of becoming law, but Republicans are using them to amplify former President Donald J. Trump’s false claims of widespread illegal voting by noncitizens.`\
+https://nytimes.com/2024/05/21/us/politics/republicans-noncitizen-voting-false-narrative.html
+
 **Adams vs. Adams: A Power Struggle in New York City Turns Ugly**\
 `The City Council speaker, Adrienne Adams, was expected to set in motion a plan to weaken Mayor Eric Adams’s authority. The mayor quickly fought back.`\
 https://nytimes.com/2024/05/21/nyregion/city-council-eric-adams.html
