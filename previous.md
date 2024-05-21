@@ -1,3 +1,7 @@
+**Kamala Harris Courts Union Members, an Up-for-Grabs Group of Voters**\
+`Speaking in Philadelphia to supportive members of a major labor union, the vice president sought to draw a sharp contrast with Donald Trump and build support with a bloc of crucial voters.`\
+https://nytimes.com/2024/05/21/us/politics/kamala-harris-unions-philadelphia.html
+
 **‘Ha Ha Ha Ha Ha Ha Ha’ Review: This Absurdist Clown Is Just Here to Help**\
 `A hit at Edinburgh Fringe last year, Julia Masli’s show arrives at SoHo Playhouse for its New York debut.`\
 https://nytimes.com/2024/05/21/theater/julie-masli-ha-ha-ha-ha-ha-ha-ha-review.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/opinion/inflation-data-economy.html
 **The U.S. Was Resettling Guantánamo Prisoners. The Hamas Attack Halted Those Plans.**\
 `The White House suspended a secret mission to transfer detainees to Oman in October after Congress members expressed concerns about Middle East instability.`\
 https://nytimes.com/2024/05/21/us/politics/guantanamo-hamas-israel-oman.html
-
-**Prosecutors and Trump’s Lawyers Will Jockey for an Edge With Jurors**\
-`The complex legal underpinnings of the case against Donald J. Trump will take center stage Tuesday afternoon, documents obtained by The New York Times show.`\
-https://nytimes.com/2024/05/21/nyregion/trump-trial-charging-conference.html
 

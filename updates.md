@@ -1,3 +1,7 @@
+**Kamala Harris Courts Union Members, an Up-for-Grabs Group of Voters**\
+`Speaking in Philadelphia to supportive members of a major labor union, the vice president sought to draw a sharp contrast with Donald Trump and build support with a bloc of crucial voters.`\
+https://nytimes.com/2024/05/21/us/politics/kamala-harris-unions-philadelphia.html
+
 **‘Ha Ha Ha Ha Ha Ha Ha’ Review: This Absurdist Clown Is Just Here to Help**\
 `A hit at Edinburgh Fringe last year, Julia Masli’s show arrives at SoHo Playhouse for its New York debut.`\
 https://nytimes.com/2024/05/21/theater/julie-masli-ha-ha-ha-ha-ha-ha-ha-review.html
