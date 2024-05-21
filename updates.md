@@ -1,3 +1,11 @@
+**Haiti’s Gangs Grow Stronger as Kenyan-Led Force Prepares to Deploy**\
+`Gang leaders with suspected links to the 2021 Haitian president’s assassination now control key infrastructure, and pose a major threat to the incoming Kenya-led force.`\
+https://nytimes.com/2024/05/21/world/americas/haiti-gangs-weapons.html
+
+**How a Haitian Gang Is Trying to Turn Itself Into a Militia**\
+`Haiti's gangs have always been deadly. But now at least one group is portraying itself as a paramilitary force, with more weapons, equipment and uniforms than ever before.`\
+https://nytimes.com/interactive/2024/05/21/world/americas/haiti-gangs-segonn-5.html
+
 **Trump Posts Video Online With Newspaper Headline About ‘Unified Reich’**\
 `The 30-second video shared from Donald Trump’s Truth Social account includes World War I-era newspaper clippings alongside fictional headlines presuming a Trump victory in November.`\
 https://nytimes.com/2024/05/20/us/donald-trump-reich-video.html
