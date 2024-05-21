@@ -1,3 +1,7 @@
+**Trump Lawyers Accuse Prosecutors of Misconduct in Documents Case**\
+`Prosecutors vehemently denied the accusations in newly unsealed motions that show how the former president’s defense team has used often-baseless assertions to undercut the indictment.`\
+https://nytimes.com/2024/05/21/us/politics/trump-lawyers-prosecutors-misconduct.html
+
 **C. Gordon Bell, Creator of a Personal Computer Prototype, Dies at 89**\
 `It cost $18,000 when it was introduced in 1965, but it bridged the world between room-size mainframes and the modern desktop.`\
 https://nytimes.com/2024/05/21/technology/c-gordon-bell-dead.html
