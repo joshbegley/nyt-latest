@@ -1,3 +1,7 @@
+**Up to 70 Percent of People With Asthma and COPD Go Undiagnosed**\
+`Here’s how to tell if you’re one of them.`\
+https://nytimes.com/2024/05/21/well/asthma-copd-diagnosis.html
+
 **What to Watch as Voters Head to Polls in Georgia, Oregon and Elsewhere**\
 `The Trump prosecutor Fani Willis will be on the ballot in Georgia, as will Scott McAfee, the judge overseeing the former president’s trial there.`\
 https://nytimes.com/2024/05/21/us/politics/primaries-today-georgia-idaho-kentucky-oregon.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/us/alexander-mcclay-williams-executed-lawsuit.htm
 **Trump Calls Cannes Biopic ‘Garbage’ and Says He Plans to Sue**\
 `The director of “The Apprentice” was unfazed by the threat to the film, which covers the ex-president’s relationships with his first wife and the fixer Roy Cohn.`\
 https://nytimes.com/2024/05/21/movies/trump-apprentice-biopic-cannes.html
-
-**1899: No More Exile To Siberia**\
-`Nicholas II. orders a committee to devise some substitute for transportation.`\
-https://nytimes.com/2024/05/21/world/exile-siberia-soviet-union.html
 
