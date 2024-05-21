@@ -1,3 +1,11 @@
+**Oil and Gas Billionaires Drum Up Dollars for Trump**\
+`Fossil fuel companies enjoyed record profits under President Biden. But his decision to pause permits for gas export terminals has whipped up industry support for his challenger.`\
+https://nytimes.com/2024/05/21/climate/trump-campaign-oil-gas.html
+
+**Macy’s Reports Another Drop in Sales**\
+`The largest department store chain in the United States has not reported an increase in comparable-store sales since early 2022.`\
+https://nytimes.com/2024/05/21/business/macys-earnings.html
+
 **Gazans Say I.C.C. Prosecutor’s Pursuit of Hamas Leaders Is Misguided**\
 `Some said the decision to seek arrest warrants for both Israeli and Hamas leaders on war crimes charges seemed to equate victim with perpetrator.`\
 https://nytimes.com/2024/05/21/world/middleeast/gaza-icc-prosecutor-warrants.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/21/podcasts/iran-president-future-trump-trial-costel
 **The Crypto Comeback**\
 `The fate of Sam Bankman-Fried’s FTX, and what it says about the improbable resurgence of cryptocurrencies.`\
 https://nytimes.com/2024/05/21/podcasts/the-daily/crypto-bitcoin-comeback.html
-
-**Storms Could Bring Tornadoes and Damaging Winds to Midwest Today**\
-`A few strong tornadoes, along with other severe weather, are possible from Kansas City to Milwaukee on Tuesday.`\
-https://nytimes.com/2024/05/21/weather/tornado-storms-midwest-weather-forecast.html
-
-**U.S. Seeks to Join Forces With Europe to Combat Excess Chinese Goods**\
-`Treasury Secretary Janet L. Yellen warned that China’s industrial strategy posed a global threat that requires a united response.`\
-https://nytimes.com/2024/05/21/business/janet-yellen-europe-china.html
 
