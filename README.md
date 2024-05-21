@@ -1,3 +1,7 @@
+**Trump Opens Door to Birth Control Restrictions, Then Tries to Close It**\
+`The former president suggested he might support letting states place restrictions on contraception, then said amid criticism that he didn’t support restrictions.`\
+https://nytimes.com/2024/05/21/us/politics/trump-birth-control-restrictions.html
+
 **Kerry Kennedy Leads ‘Heart-Wrenching’ Campaign Against Her Brother’s White House Bid**\
 `Robert F. Kennedy Jr.’s sister has become the face of the Kennedy family effort to block his candidacy and re-elect President Biden. She has more at stake besides her relationship with her brother.`\
 https://nytimes.com/2024/05/21/us/politics/kerry-kennedy-rfk.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/us/politics/letter-dan-gertler-congo.html
 **Read the letter**\
 `A letter sent by lawmakers who are members of the United States Helsinki Commission, a federal agency that promotes human rights issues globally, regarding Dan Gertler.`\
 https://nytimes.com/interactive/2024/05/21/us/20245-gertler-letter-from-us-congress.html
-
-**Pro-Palestinian protesters heckle Blinken as he testifies on Capitol Hill.**\
-`By Robert Jimison`\
-https://nytimes.com/live/2024/05/21/world/israel-gaza-war-hamas-rafah/pro-palestinian-protesters-heckle-blinken-as-he-testified-on-capitol-hill
 
