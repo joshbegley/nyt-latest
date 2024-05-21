@@ -1,4 +1,8 @@
 **U.S. Seeks to Join Forces With Europe to Combat Excess Chinese Goods**\
+`Treasury Secretary Janet L. Yellen warned that China’s industrial strategy posed a global threat that requires a united response.`\
+https://nytimes.com/2024/05/21/business/janet-yellen-europe-china.html
+
+**U.S. Seeks to Join Forces With Europe to Combat Excess Chinese Goods**\
 `Treasury Secretary Janet L. Yellen warned that China’s industrial strategy posed a global threat the requires a united response.`\
 https://nytimes.com/2024/05/21/business/janet-yellen-europe-china.html
 
