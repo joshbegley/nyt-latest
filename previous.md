@@ -1,3 +1,7 @@
+**Lawyer’s Task Was to Get Cohen on the ‘Right Page’ for Trump**\
+`Robert J. Costello, the main witness for the defense, wrote an email showing that he was trying to conceal actions he took in the interest of Donald J. Trump.`\
+https://nytimes.com/2024/05/21/nyregion/robert-costello-cohen-trump.html
+
 **Read a Transcript of Volodymyr Zelensky’s Interview With The Times**\
 `The Ukrainian president spoke to Times reporters in Kyiv for nearly an hour.`\
 https://nytimes.com/2024/05/21/world/europe/zelensky-interview-times-transcript.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/books/review/nicolas-medina-mora-america-del-nort
 **Student Activism Over Gaza: Admirable or Ill Informed?**\
 `Readers discuss a guest essay responding to critics of the protests. Also: Faith, family and the G.O.P.; deep dish pizza.`\
 https://nytimes.com/2024/05/21/opinion/student-protests-israel-gaza.html
-
-**Bourbon Steak Lands in New York With a Local Wine List**\
-`Cafe Mado replaces Oxalis, Strange Delight channels the Big Easy and more restaurant news.`\
-https://nytimes.com/2024/05/21/dining/nyc-restaurant-news.html
 
