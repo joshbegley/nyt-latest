@@ -1,3 +1,9 @@
+**U.N. official describes dire conditions for people fleeing Rafah.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/05/21/world/israel-gaza-war-hamas-rafah/un-official-describes-dire-conditions-for-people-fleeing-rafah
+
+**Israeli leaders rally around Netanyahu, and other news.**\
+
 **In Germany, Far-Right Plotters of an Improbable Coup to Go on Trial**\
 `Members of a group called the “United Patriots” are accused of planning to bring a prince into power by violently overthrowing the government.`\
 https://nytimes.com/2024/05/21/world/europe/germany-far-right-coup-trial.html
