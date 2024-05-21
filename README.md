@@ -10,6 +10,10 @@ https://nytimes.com/2024/05/21/nyregion/trump-michael-cohen-cross-examination.ht
 `Some elected officials in California are rethinking public office in the face of increasing harassment.`\
 https://nytimes.com/2024/05/21/us/politicians-harassment.html
 
+**Live Updates: Former Cohen Legal Adviser Back on Stand in Trump Case**\
+`Robert Costello, who once advised Michael D. Cohen, the key witness against Donald J. Trump, resumed testifying a day after butting heads with the judge. The defense hopes to undermine Mr. Cohen, who paid the hush money at the center of the case.`\
+https://nytimes.com/live/2024/05/21/nyregion/trump-trial-hush-money
+
 **Russian Forces Close In on Ukrainian Town in Northeast**\
 `Vovchansk has been a prime target of Russia’s offensive in the northeast as it seeks to push back Ukrainian troops from the border.`\
 https://nytimes.com/2024/05/21/world/europe/ukraine-russia-vovchansk-buffer-zone.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/learning/boys-and-cologne.html
 **Word of the Day: apathetic**\
 `This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/05/21/learning/word-of-the-day-apathetic.html
-
-**I.C.C. Warrant Request Appears to Shore Up Domestic Support for Netanyahu**\
-`“The Hypocrisy of The Hague,” read the front page of one mainstream daily that has often been critical of Israel’s prime minister.`\
-https://nytimes.com/2024/05/21/world/middleeast/israel-netanyahu-icc-arrest-warrant.html
 
