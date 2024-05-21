@@ -1,3 +1,7 @@
+**A Mural That Honors Black Performers at Rest**\
+`In Los Angeles, Thenjiwe Niki Nkosi has taken over the Hammer Museum’s lobby with paintings of larger-than-life gymnasts who refuse to pose.`\
+https://nytimes.com/interactive/2024/05/21/t-magazine/thenjiwe-niki-nkosi-hammer-museum.html
+
 **Kamala Harris Courts Union Members, an Up-for-Grabs Group of Voters**\
 `Speaking in Philadelphia to supportive members of a major labor union, the vice president sought to draw a sharp contrast with Donald Trump and build support with a bloc of crucial voters.`\
 https://nytimes.com/2024/05/21/us/politics/kamala-harris-unions-philadelphia.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/05/21/world/israel-gaza-war-hamas-rafah/pro-palest
 **Return of the Inflation Truthers**\
 `Cutting through the misconceptions and conspiracy theories.`\
 https://nytimes.com/2024/05/21/opinion/inflation-data-economy.html
-
-**The U.S. Was Resettling Guantánamo Prisoners. The Hamas Attack Halted Those Plans.**\
-`The White House suspended a secret mission to transfer detainees to Oman in October after Congress members expressed concerns about Middle East instability.`\
-https://nytimes.com/2024/05/21/us/politics/guantanamo-hamas-israel-oman.html
 
