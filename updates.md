@@ -1,3 +1,11 @@
+**Read the document**\
+`Motion filed by lawyers of Donald J. Trump in the documents case`\
+https://nytimes.com/interactive/2024/05/21/us/trump-mal-motion-to-suppress.html
+
+**Read the document**\
+`Government response to the Trump legal team’s filing in documents case`\
+https://nytimes.com/interactive/2024/05/21/us/trump-mal-motion-to-suppress-govt-response.html
+
 **Trump Lawyers Accuse Prosecutors of Misconduct in Documents Case**\
 `Prosecutors vehemently denied the accusations in newly unsealed motions that show how the former president’s defense team has used often-baseless assertions to undercut the indictment.`\
 https://nytimes.com/2024/05/21/us/politics/trump-lawyers-prosecutors-misconduct.html

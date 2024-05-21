@@ -1,3 +1,11 @@
+**Read the document**\
+`Motion filed by lawyers of Donald J. Trump in the documents case`\
+https://nytimes.com/interactive/2024/05/21/us/trump-mal-motion-to-suppress.html
+
+**Read the document**\
+`Government response to the Trump legal team’s filing in documents case`\
+https://nytimes.com/interactive/2024/05/21/us/trump-mal-motion-to-suppress-govt-response.html
+
 **Trump Lawyers Accuse Prosecutors of Misconduct in Documents Case**\
 `Prosecutors vehemently denied the accusations in newly unsealed motions that show how the former president’s defense team has used often-baseless assertions to undercut the indictment.`\
 https://nytimes.com/2024/05/21/us/politics/trump-lawyers-prosecutors-misconduct.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/21/arts/matthew-perry-ketamine-investigation.html
 **For the First Time in 155 Years, This Beach Will Be Open Sunday**\
 `The Christian community in Ocean Grove, N.J., is challenging a state order that has compelled it to let its beach be used on Sunday mornings.`\
 https://nytimes.com/2024/05/21/nyregion/ocean-grove-nj-beach.html
-
-**California Voters to Decide Who Will Finish McCarthy’s Term**\
-`Rep. Kevin McCarthy left Congress at the end of last year after being ousted as the House speaker. A special election on Tuesday will determine his Central Valley successor.`\
-https://nytimes.com/2024/05/21/us/politics/california-kevin-mccarthy-congress.html
-
-**Tiny Love Stories: ‘He Said We Were Missing “The Magic”’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2024/05/21/style/tiny-modern-love-stories-he-said-we-were-missing-the-magic.html
 
