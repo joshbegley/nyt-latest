@@ -1,3 +1,7 @@
+**A Many-Splendored Self-Portrait of the Artist**\
+`Looking at his identity not as ramparts to defend but as curious paths to explore, René Treviño creates a survey-as-party and invites all the aspects of himself.`\
+https://nytimes.com/2024/05/21/arts/design/art-wellin-rene-trevino.html
+
 **Trump Chooses Not to Take the Stand, and the Defense Rests**\
 `Donald J. Trump’s lawyers mounted a minimal defense after prosecutors called 20 witnesses. Closing arguments in the first prosecution of an American president will take place May 28.`\
 https://nytimes.com/2024/05/21/nyregion/trump-hush-money-trial-testimony.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/world/europe/russia-tactical-nuclear-exercise.htm
 **Dr. Paul Parkman, Who Helped to Eliminate Rubella, Dies at 91**\
 `He also identified the virus, which can cause infants to be born with severe physical and mental impairments as well as causing miscarriages and stillbirths.`\
 https://nytimes.com/2024/05/21/health/paul-parkman-dead.html
-
-**Inquiry Seeks Source of Ketamine That Caused Matthew Perry’s Death**\
-`After investigators determined that ketamine had led to the death of the “Friends” star, federal and local law enforcement officials opened an inquiry into where he got it.`\
-https://nytimes.com/2024/05/21/arts/matthew-perry-ketamine-investigation.html
 
