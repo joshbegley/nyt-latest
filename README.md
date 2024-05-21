@@ -1,3 +1,11 @@
+**Boys and Cologne**\
+`Do the teen and tween boys you know love high-end fragrances?`\
+https://nytimes.com/2024/05/21/learning/boys-and-cologne.html
+
+**Word of the Day: apathetic**\
+`This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/21/learning/word-of-the-day-apathetic.html
+
 **I.C.C. Warrant Request Appears to Shore Up Domestic Support for Netanyahu**\
 `“The Hypocrisy of The Hague,” read the front page of one mainstream daily that has often been critical of Israel’s prime minister.`\
 https://nytimes.com/2024/05/21/world/middleeast/israel-netanyahu-icc-arrest-warrant.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/05/21/world/asia/singapore-airlines-turbulence-death.ht
 **Crowds Attend Funeral Procession for Iran’s President**\
 `Large numbers congregated in the northwestern city of Tabriz in a memorial event for Ebrahim Raisi and Hossein Amir Abdollahian, the country’s foreign minister, after both men died in a helicopter crash.`\
 https://nytimes.com/video/world/middleeast/100000009479709/crowds-attend-funeral-procession-for-irans-president.html
-
-**After Raisi’s Death, Elections Pose Tricky Test for Iran’s Rulers**\
-`Iran’s political establishment must choose between opening the race and facing moderate rivals, or limiting candidates and risking the embarrassment of low turnout.`\
-https://nytimes.com/2024/05/21/world/middleeast/iran-election-president-death-ayatollah.html
-
-**What Next for Iran, and Drama at the Trump Trial**\
-`Plus, Scarlett Johansson calls out OpenAI.`\
-https://nytimes.com/2024/05/21/podcasts/iran-president-future-trump-trial-costello.html
 
