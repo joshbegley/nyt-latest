@@ -1,3 +1,7 @@
+**C. Gordon Bell, Creator of a Personal Computer Prototype, Dies at 89**\
+`It cost $18,000 when it was introduced in 1965, but it bridged the world between room-size mainframes and the modern desktop.`\
+https://nytimes.com/2024/05/21/technology/c-gordon-bell-dead.html
+
 **How India Is Coping With Extreme Heat**\
 `India is adapting to a new era of dangerous heat, even as climbing temperatures are making its transition to a cleaner economy more difficult.`\
 https://nytimes.com/2024/05/21/climate/india-extreme-heat.html

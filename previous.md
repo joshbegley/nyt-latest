@@ -1,3 +1,7 @@
+**C. Gordon Bell, Creator of a Personal Computer Prototype, Dies at 89**\
+`It cost $18,000 when it was introduced in 1965, but it bridged the world between room-size mainframes and the modern desktop.`\
+https://nytimes.com/2024/05/21/technology/c-gordon-bell-dead.html
+
 **How India Is Coping With Extreme Heat**\
 `India is adapting to a new era of dangerous heat, even as climbing temperatures are making its transition to a cleaner economy more difficult.`\
 https://nytimes.com/2024/05/21/climate/india-extreme-heat.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/style/tiny-modern-love-stories-he-said-we-were-mi
 **Progressive Prosecutor in Portland Faces Bitter Challenge From Co-Worker**\
 `Mike Schmidt’s deputy at the Multnomah County D.A.’s Office has blamed him for Portland’s recent problems with drugs and crime.`\
 https://nytimes.com/2024/05/21/us/politics/mike-schmidt-prosecutor-portland-oregon.html
-
-**Trump Opens Door to Birth Control Restrictions, Then Tries to Close It**\
-`The former president suggested he might support letting states place restrictions on contraception, then said amid criticism that he didn’t support restrictions.`\
-https://nytimes.com/2024/05/21/us/politics/trump-birth-control-restrictions.html
 
