@@ -1,3 +1,7 @@
+**Brooklyn Protest Raises Doubts About N.Y.P.D. Commitment to New Tactics**\
+`Violent responses to pro-Palestinian activists follow a sweeping agreement aimed at striking an equilibrium between preserving public safety and the rights of protesters.`\
+https://nytimes.com/2024/05/20/nyregion/nypd-protests-settlement.html
+
 **Analysts and officials in Iran are apprehensive about what comes next.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/05/19/world/iran-president-crash/analysts-and-officials-in-iran-are-apprehensive-about-what-comes-next
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/world/middleeast/biden-israel-gaza-genocide.html
 **Biden Says Israeli Military Assault in Gaza Is ‘Not Genocide’**\
 `At a celebration of Jewish Heritage Month, President Biden pledged support to Israel and condemned a decision by the prosecutor for the International Criminal Court to seek arrest warrants for top Israeli officials.`\
 https://nytimes.com/video/us/politics/100000009479218/biden-israel-gaza-genocide.html
-
-**Trump’s Eyes Wide Shut Strategy**\
-`The prosecution rested its case. And Trump rested his eyes.`\
-https://nytimes.com/2024/05/20/us/politics/trump-eyes-shut-strategy.html
 
