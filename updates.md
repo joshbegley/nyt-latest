@@ -1,3 +1,7 @@
+**Election Updates: Trump shares, then deletes, a video with headlines about a ‘unified Reich’ if he wins.**\
+``\
+https://nytimes.com/live/2024/05/21/us/biden-trump-primary-election
+
 **‘What’s the Problem?’ Zelensky Challenges West Over Hesitations.**\
 `“Shoot down what’s in the sky over Ukraine,” he said in a wide-ranging interview with The New York Times. “And give us the weapons to use against Russian forces on the borders.”`\
 https://nytimes.com/2024/05/21/world/europe/ukraine-zelensky-interview.html

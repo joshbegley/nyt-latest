@@ -6,7 +6,7 @@ https://nytimes.com/2024/05/21/world/europe/ukraine-zelensky-interview.html
 `President Volodymyr Zelensky of Ukraine urged NATO allies to play an active role in the war, saying it was a matter of defense.`\
 https://nytimes.com/video/world/europe/100000009479186/volodymyr-zelensky-ukraine-russia.html
 
-**Election Updates: Trump posts a video with fictional newspaper articles about “a unified Reich” if he wins.**\
+**Election Updates: Trump shares, then deletes, a video with headlines about a ‘unified Reich’ if he wins.**\
 ``\
 https://nytimes.com/live/2024/05/21/us/biden-trump-primary-election
 
