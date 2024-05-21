@@ -1,3 +1,7 @@
+**Student Activism Over Gaza: Admirable or Ill Informed?**\
+`Readers discuss a guest essay responding to critics of the protests. Also: Faith, family and the G.O.P.; deep dish pizza.`\
+https://nytimes.com/2024/05/21/opinion/student-protests-israel-gaza.html
+
 **An NBA Star’s Remark Becomes a Minnesota Rallying Cry**\
 `Minnesota Timberwolves fans have picked up on a phrase uttered by their star, and are hardly put off by its mild vulgarity.`\
 https://nytimes.com/2024/05/21/sports/basketball/minnesota-anthony-edwards-slogan.html
