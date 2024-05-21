@@ -1,3 +1,7 @@
+**Trump Posts Video Online With Newspaper Headline About ‘Unified Reich’**\
+`The 30-second video shared from Donald Trump’s Truth Social account includes World War I-era newspaper clippings alongside fictional headlines presuming a Trump victory in November.`\
+https://nytimes.com/2024/05/20/us/donald-trump-reich-video.html
+
 **Tensions Rise in Trump Trial After Cohen Completes Testimony**\
 `The prosecution rested its case against Donald J. Trump. Jonah Bromwich, a criminal justice reporter at The New York Times, gives his takeaways.`\
 https://nytimes.com/video/nyregion/100000009477974/tensions-rise-in-trump-trial-after-cohen-completes-testimony.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/20/technology/scarlett-johansson-openai-statement.ht
 **Brooklyn Protest Raises Doubts About N.Y.P.D. Commitment to New Tactics**\
 `Violent responses to pro-Palestinian activists follow a sweeping agreement aimed at striking an equilibrium between preserving public safety and the rights of protesters.`\
 https://nytimes.com/2024/05/20/nyregion/nypd-protests-settlement.html
-
-**Analysts and officials in Iran are apprehensive about what comes next.**\
-`By Farnaz Fassihi`\
-https://nytimes.com/live/2024/05/19/world/iran-president-crash/analysts-and-officials-in-iran-are-apprehensive-about-what-comes-next
 
