@@ -1,3 +1,7 @@
+**Trump Chooses Not to Take the Stand, and the Defense Rests**\
+`Donald J. Trump’s lawyers mounted a minimal defense after prosecutors called 20 witnesses. Closing arguments in the first prosecution of an American president will take place May 28.`\
+https://nytimes.com/2024/05/21/nyregion/trump-hush-money-trial-testimony.html
+
 **Read the document**\
 `Motion filed by lawyers of Donald J. Trump in the documents case`\
 https://nytimes.com/interactive/2024/05/21/us/trump-mal-motion-to-suppress.html
