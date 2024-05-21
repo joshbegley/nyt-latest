@@ -1,3 +1,7 @@
+**Four Lawmakers Denounce Plan to Ease Sanctions on Israeli Mining Executive**\
+`A White House proposal to allow the billionaire Dan Gertler to sell off his assets in the Democratic Republic of Congo sparks a bipartisan rebuke.`\
+https://nytimes.com/2024/05/21/us/politics/letter-dan-gertler-congo.html
+
 **Read the letter**\
 `A letter sent by lawmakers who are members of the United States Helsinki Commission, a federal agency that promotes human rights issues globally, regarding Dan Gertler.`\
 https://nytimes.com/interactive/2024/05/21/us/20245-gertler-letter-from-us-congress.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/world/middleeast/100000009480336/ap-israel-seizes-came
 **Prince Harry Cannot Include Rupert Murdoch in Lawsuit, Court Rules**\
 `A judge ruled that the prince and other plaintiffs could not expand their claims of unlawful actions by News Group Newspapers in the U.K. to include allegations regarding Rupert Murdoch.`\
 https://nytimes.com/2024/05/21/world/europe/prince-harry-lawsuit-rupert-murdoch.html
-
-**David Redden, Who Brought Ingenuity to the Auction Block, Dies at 75**\
-`He brought a P.T. Barnum-like showmanship to Sotheby’s, where he sold items like Babe Ruth’s bat and a research rover that had been left behind on the moon.`\
-https://nytimes.com/2024/05/21/business/david-redden-dead.html
 
