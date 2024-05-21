@@ -1,3 +1,11 @@
+**Russian Forces Close In on Ukrainian Town in Northeast**\
+`Vovchansk has been a prime target of Russia’s offensive in the northeast as it seeks to push back Ukrainian troops from the border.`\
+https://nytimes.com/2024/05/21/world/europe/ukraine-russia-vovchansk-buffer-zone.html
+
+**Biden and Big Oil Had a Truce. Now, It’s Collapsing.**\
+`Companies were enjoying record profits. But the president’s decision to pause permits for gas export terminals has whipped up industry support, and donations, for Donald Trump.`\
+https://nytimes.com/2024/05/21/climate/trump-campaign-oil-gas.html
+
 **Macy’s Reports Another Drop in Sales but Sees ‘Traction’ in Turnaround**\
 `The largest department store chain in the United States has not reported an increase in comparable-store sales since early 2022.`\
 https://nytimes.com/2024/05/21/business/macys-earnings.html
