@@ -1,3 +1,15 @@
+**Bourbon Steak Lands in New York With a Local Wine List**\
+`Cafe Mado replaces Oxalis, Strange Delight channels the Big Easy and more restaurant news.`\
+https://nytimes.com/2024/05/21/dining/nyc-restaurant-news.html
+
+**Transcript: Ezra Klein Interviews James Pethokoukis**\
+`The May 21, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/05/21/podcasts/transcript-ezra-klein-interviews-james-pethokoukis.html
+
+**First Responders Treat Passengers Following Emergency Landing**\
+`One person died and several passengers were injured during a Singapore Airlines flight that was diverted to Bangkok, Thailand, due to severe turbulence.`\
+https://nytimes.com/video/world/asia/100000009479926/first-responders-treat-passengers-following-emergency-landing.html
+
 **How Media Outlets Are Covering Justice Merchan in Trump’s Criminal Trial**\
 `Conservative outlets have criticized Justice Juan M. Merchan as politically motivated, while some liberal media organizations have praised him for muzzling Mr. Trump.`\
 https://nytimes.com/2024/05/21/business/media/judge-merchan-trump-trial-media.html
