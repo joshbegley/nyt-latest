@@ -1,3 +1,7 @@
+**A Day of Negative Headlines for Trump Points to a Cure for Voter ‘Amnesia’**\
+`In roughly 24 hours on Tuesday, former President Donald J. Trump reposted a video with an echo of Nazi Germany, hinted at restricting contraception and made news in two of the criminal cases against him.`\
+https://nytimes.com/2024/05/22/us/politics/trump-reich-contraception-trial.html
+
 **Tornado Pummels Wind Turbines in Iowa**\
 `The damage was unusual, experts say, because turbines are built to withstand extreme weather. Iowa is a wind powerhouse, with thousands of turbines.`\
 https://nytimes.com/2024/05/22/climate/tornado-wind-turbines-iowa.html
