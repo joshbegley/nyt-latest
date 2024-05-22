@@ -1,3 +1,11 @@
+**Three European Nations Recognized a Palestinian State**\
+`Also, another provocative flag was flown at Justice Alito’s home. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/05/22/briefing/europe-palestinian-state-israel-migrant-evictions.html
+
+**Shirley Conran, Author Best Known for the Steamy ‘Lace,’ Dies at 91**\
+`A divorced single mother, she started out to write a sex guide for schoolgirls and ended up with a tale of female autonomy that became a best-selling novel.`\
+https://nytimes.com/2024/05/22/books/shirley-conran-dead.html
+
 **Spain, Norway and Ireland Recognize Palestinian State, Further Isolating Israel**\
 `The moves, while largely symbolic, were welcomed by Palestinians and denounced by Prime Minister Benjamin Netanyahu, who called them “a prize for terrorism.”`\
 https://nytimes.com/2024/05/22/world/middleeast/spain-norway-ireland-palestinian-statehood-israel.html
@@ -14,7 +22,7 @@ https://nytimes.com/2024/05/22/nyregion/3-more-college-leaders-to-face-congress-
 `The justice’s beach house displayed an “Appeal to Heaven” flag, a symbol carried on Jan. 6 and associated with a push for a more Christian-minded government.`\
 https://nytimes.com/2024/05/22/us/justice-alito-flag-appeal-to-heaven.html
 
-**Hunter Biden’s Trial on Tax Charges Pushes to September**\
+**Hunter Biden’s Trial on Tax Charges Is Pushed to September**\
 `The judge presiding over the case in Los Angeles agreed to delay the start of his trial to Sept. 5.`\
 https://nytimes.com/2024/05/22/us/politics/hunter-biden-tax-trial-delayed.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/22/us/politics/nikki-haley-donald-trump.html
 **Popcast (Deluxe): Billie Eilish Is Done Hiding**\
 `A conversation about the pop singer’s new album, “Hit Me Hard and Soft.”`\
 https://nytimes.com/2024/05/22/arts/music/billie-eilish-popcast-deluxe.html
-
-**One of America’s Most Democratic Counties Prepares for a Trump Visit**\
-`Donald J. Trump’s first rally in New York in eight years will be in the Bronx. Borough residents had mixed reactions.`\
-https://nytimes.com/2024/05/22/nyregion/trump-bronx-rally-reaction.html
-
-**Thursday Briefing: How ‘America’s Monster’ Operated in Afghanistan**\
-`Plus, three European countries recognize a Palestinian state.`\
-https://nytimes.com/2024/05/22/world/asia/palestinian-afghanistan-norway-britain-asia.html
 
