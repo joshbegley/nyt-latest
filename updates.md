@@ -1,3 +1,11 @@
+**3 More College Leaders to Face Congress Over Antisemitism Claims**\
+`The heads of Rutgers, Northwestern and U.C.L.A. will be the first university leaders to testify since a wave of protest encampments roiled college campuses and led to roughly 3,000 arrests.`\
+https://nytimes.com/2024/05/22/nyregion/3-more-college-leaders-to-face-congress-over-antisemitism-claims.html
+
+**Haley Says She Will Vote for Trump, in Her First Appearance Since Dropping Out**\
+`Nikki Haley had sharp words for President Biden and some Republicans.`\
+https://nytimes.com/2024/05/22/us/politics/nikki-haley-donald-trump.html
+
 **Another Provocative Flag Was Flown at Another Alito Home**\
 `The justice’s beach house displayed an “Appeal to Heaven” flag, a symbol carried on Jan. 6 and associated with a push for a more Christian-minded government.`\
 https://nytimes.com/2024/05/22/us/justice-alito-flag-appeal-to-heaven.html
