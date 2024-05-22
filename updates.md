@@ -1,3 +1,7 @@
+**The Connections Companion No. 347**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/22/crosswords/connections-companion-347.html
+
 **Fed Minutes Show Officials Were Wary About Inflation at May Meeting**\
 `Federal Reserve policymakers were still willing to raise rates if the economy surprised them, notes from their most recent meeting suggested.`\
 https://nytimes.com/2024/05/22/business/economy/federal-reserve-minutes-may.html

@@ -1,3 +1,7 @@
+**The Connections Companion No. 347**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/22/crosswords/connections-companion-347.html
+
 **Fed Minutes Show Officials Were Wary About Inflation at May Meeting**\
 `Federal Reserve policymakers were still willing to raise rates if the economy surprised them, notes from their most recent meeting suggested.`\
 https://nytimes.com/2024/05/22/business/economy/federal-reserve-minutes-may.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/world/europe/icc-warrants-israel-hamas-khan.html
 **New ‘Richard III’ Raises an Old Question: Who Should Wear the Crown?**\
 `A production at the Shakespeare’s Globe theater faced criticism because a nondisabled actor plays the scheming king. But disputes like these miss the point, our critic writes.`\
 https://nytimes.com/2024/05/22/theater/richard-iii-shakespeares-globe-disability.html
-
-**Kristen Soltis Anderson**\
-`Kristen Soltis Anderson, a New York Times contributing opinion writer, covers American politics, elections, polling and the Republican Party.`\
-https://nytimes.com/column/kristen-soltis-anderson
 
