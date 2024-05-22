@@ -11,7 +11,7 @@ https://nytimes.com/2024/05/22/opinion/alito-flag.html
 https://nytimes.com/2024/05/22/magazine/retired-psychiatrist-former-patient-ethics.html
 
 **Frank Shrontz, 92, Dies; Led Boeing in the Last of Its Golden Years**\
-`Known for his leadership his and commitment to company culture, he left as chief executive in 1996, opening the door to a corporate makeover.`\
+`Known for his leadership and his commitment to company culture, he left as chief executive in 1996, opening the door to a corporate makeover.`\
 https://nytimes.com/2024/05/22/business/frank-shrontz-dead.html
 
 **Despite Setback, Neuralink’s First Brain-Implant Patient Stays Upbeat**\
