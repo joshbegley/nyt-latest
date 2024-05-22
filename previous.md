@@ -1,3 +1,7 @@
+**Trains Suspended Between New York and Philadelphia After Power Outage**\
+`Fallen electrical wires at Penn Station stopped Amtrak and New Jersey Transit trains, but did not affect the subway or the Long Island Rail Road, according to transit agencies.`\
+https://nytimes.com/2024/05/22/nyregion/amtrak-nj-transit-trains-suspended.html
+
 **Mayor Adams Fills a Key Commission With Allies and Donors**\
 `Mayor Eric Adams named 13 people to a prominent city commission that could remake city government. Most are loyalists or have ties to his inner circle.`\
 https://nytimes.com/2024/05/22/nyregion/adams-city-charter-commission.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/style/ayo-edebiri-jeremy-allen-white-dating.html
 **Eric Weinberg, ‘Scrubs’ Producer, Ordered to Stand Trial in Rape Case**\
 `The writer and producer was charged in October 2022 with sexually assaulting at least five women, prosecutors said.`\
 https://nytimes.com/2024/05/22/us/scrubs-eric-weinberg-charges.html
-
-**Kennedy Adviser Leaves Campaign, Citing ‘Hateful and Divisive Atmosphere’**\
-`Angela Stanton King, a former Trump supporter who joined the campaign in December, was a high-profile figure in Robert F. Kennedy Jr.’s circle.`\
-https://nytimes.com/2024/05/22/us/politics/rfk-jr-2024-election-adviser.html
 
