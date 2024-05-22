@@ -1,3 +1,7 @@
+**French Leader Heads to Pacific Outpost Gripped by Deadly Unrest**\
+`It remains unclear what strategy President Emmanuel Macron of France will pursue to defuse tensions in New Caledonia, where six people have died in recent days.`\
+https://nytimes.com/2024/05/22/world/asia/france-macron-new-caledonia.html
+
 **Late Night Laments That Donald Trump Didn’t Testify at His Trial**\
 `Jimmy Fallon said Trump wanted to take the stand in his criminal case on Tuesday, “but then he saw it was three steps without a handrail.”`\
 https://nytimes.com/2024/05/22/arts/television/late-night-donald-trump-testimony.html
