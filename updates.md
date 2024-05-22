@@ -1,3 +1,7 @@
+**Haley Says She Will Vote for Trump in the November Election**\
+`In her first public appearance since dropping her Republican presidential bid, Nikki Haley, the former Governor of South Carolina, said she would vote for former President Donald J. Trump.`\
+https://nytimes.com/video/us/politics/100000009483735/haley-trump-election.html
+
 **How Today’s Economy Could Matter in November**\
 `Some pollsters and economists believe voters form their perceptions of the economy over time.`\
 https://nytimes.com/2024/05/22/us/politics/economy-inflation-election.html
