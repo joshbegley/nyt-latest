@@ -1,3 +1,7 @@
+**Exit the Modest Merchant Prince**\
+`Bruce Nordstrom was both the force behind his family’s multibillion-dollar retail dynasty and a stealth godfather to the fashion trade.`\
+https://nytimes.com/2024/05/22/style/who-is-bruce-nordstrom.html
+
 **New York’s Palace Theater Gets an $80 Million Refresh (and 30 Feet Higher)**\
 `The Times Square landmark has been restored and refurbished. Take a look.`\
 https://nytimes.com/card/2024/05/22/theater/palace-theater-renovation
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/business/dealbook/nvidia-earnings-artificial-inte
 **After a Day of Deadly Storms, Iowa Awakens to Scenes of Devastation**\
 `Severe weather destroyed much of Greenfield, where officials were continuing search and rescue work overnight to determine the death toll.`\
 https://nytimes.com/2024/05/22/weather/greenfield-iowa-tornado.html
-
-**A Hidden History**\
-`A Times investigation uncovered a brutal campaign enacted by U.S.-backed forces during the war in Afghanistan.`\
-https://nytimes.com/2024/05/22/briefing/afghanistan-war-us-kandahar.html
 
