@@ -1,3 +1,7 @@
+**Eric Weinberg, ‘Scrubs’ Producer, Ordered to Stand Trial in Rape Case**\
+`The writer and producer was charged in October 2022 with sexually assaulting at least five women, prosecutors said.`\
+https://nytimes.com/2024/05/22/us/scrubs-eric-weinberg-charges.html
+
 **Kennedy Adviser Leaves Campaign, Citing ‘Hateful and Divisive Atmosphere’**\
 `Angela Stanton King, a former Trump supporter who joined the campaign in December, was a high-profile figure in Robert F. Kennedy Jr.’s circle.`\
 https://nytimes.com/2024/05/22/us/politics/rfk-jr-2024-election-adviser.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/nyregion/3-more-college-leaders-to-face-congress-
 **Another Provocative Flag Was Flown at Another Alito Home**\
 `The justice’s beach house displayed an “Appeal to Heaven” flag, a symbol carried on Jan. 6 and associated with a push for a more Christian-minded government.`\
 https://nytimes.com/2024/05/22/us/justice-alito-flag-appeal-to-heaven.html
-
-**Hunter Biden’s Trial on Tax Charges Is Pushed to September**\
-`The judge presiding over the case in Los Angeles agreed to delay the start of his trial to Sept. 5.`\
-https://nytimes.com/2024/05/22/us/politics/hunter-biden-tax-trial-delayed.html
 
