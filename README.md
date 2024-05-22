@@ -34,7 +34,7 @@ https://nytimes.com/2024/05/22/business/uk-inflation.html
 `By Emma Bubola`\
 https://nytimes.com/live/2024/05/22/world/israel-gaza-war-hamas-rafah/norways-recognition-carries-significance-because-of-its-role-in-1993-talks
 
-**Norway and Ireland Recognize a Palestinian State, Adding to Israel’s Isolation Over War**\
+**Spain, Norway and Ireland Recognize a Palestinian State, Adding to Israel’s Isolation Over War**\
 `The European nations joined scores of others that recognize Palestinian statehood, a move that Israel has long opposed.`\
 https://nytimes.com/live/2024/05/22/world/israel-gaza-war-hamas-rafah
 
