@@ -1,3 +1,11 @@
+**Two Wild Movies at Cannes Have Everybody Arguing**\
+`“The Substance” features Demi Moore in go-for-broke mode, while “Emilia Pérez” is a musical crime drama that defies description.`\
+https://nytimes.com/2024/05/22/movies/cannes-the-substance-emilia-perez.html
+
+**Sam Bankman-Fried Transferred Out of Brooklyn Jail**\
+`The FTX founder’s final destination wasn’t clear, but Mr. Bankman-Fried has told people close to him that he expected to be moved to a facility in Mendota, Calif.`\
+https://nytimes.com/2024/05/22/technology/sam-bankman-fried-transferred-jail.html
+
 **Review: In ‘Usus,’ Pig Latin Gets Lost in Translation**\
 `T. Adamson’s new comedy, which opens Clubbed Thumb’s popular Summerworks series at the Wild Project, is about a group of worked-up Franciscan friars.`\
 https://nytimes.com/2024/05/22/theater/usus-review.html
