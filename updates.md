@@ -1,3 +1,7 @@
+**Doug Emhoff Calls Trump a ‘Known Antisemite’ as Biden Team Steps Up Attacks**\
+`The remarks by Mr. Emhoff, the husband of Vice President Kamala Harris, represented an escalation of the Biden campaign’s attacks on Donald Trump over his language about Jews.`\
+https://nytimes.com/2024/05/21/us/politics/doug-emhoff-trump-antisemite.html
+
 **Corrections: May 22, 2024**\
 `Corrections that appeared in print on Wednesday, May 22, 2024.`\
 https://nytimes.com/2024/05/21/pageoneplus/corrections-may-22-2024.html
