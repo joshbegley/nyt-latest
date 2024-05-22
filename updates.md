@@ -1,3 +1,7 @@
+**Newborn babies, doctors and patients are trapped at a hospital in northern Gaza.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2024/05/21/world/israel-gaza-war-hamas-rafah/newborn-babies-doctors-and-patients-are-trapped-at-a-hospital-in-northern-gaza
+
 **First Aid Basics Everyone Should Know**\
 `This expert advice will help you attend to common injuries like cuts, burns and sprains — and know when to head to the doctor.`\
 https://nytimes.com/interactive/2024/05/21/well/live/first-aid-cuts-burns-rashes.html
