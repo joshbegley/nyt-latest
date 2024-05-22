@@ -1,3 +1,11 @@
+**Democrats See Wins in Losing Votes**\
+`The party is pursuing a “sword and shield” political strategy as Senator Chuck Schumer pushes showdown votes on border security and abortion rights ahead of this year’s elections.`\
+https://nytimes.com/2024/05/22/us/democrats-see-wins-in-losing-votes.html
+
+**The War Is Shifting Europe’s Politics Away From Israel**\
+`The recognition of Palestinian statehood by Spain, Ireland and Norway highlights the changing center of gravity, but there also are staunchly pro-Israel nations in Europe.`\
+https://nytimes.com/2024/05/22/world/middleeast/europe-israel-palestinian-state.html
+
 **Western Europe Is Starting to Send a Vital Warning to Israel**\
 `Netanyahu’s government can’t ignore what the world is saying about the need for a Palestinian state.`\
 https://nytimes.com/2024/05/22/opinion/europe-palestine-recognized-israel.html
