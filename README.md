@@ -1,3 +1,11 @@
+**Uvalde Settles With Victims’ Families Over School Shooting**\
+`The Texas city agreed to pay $2 million to families of schoolchildren who were shot in a 2022 massacre, and to overhaul its police force. The families are also suing other agencies.`\
+https://nytimes.com/2024/05/22/us/uvalde-lawsuit-settlement.html
+
+**Is New Haven the Pizza Capital of the U.S.? ‘They’re Outta Their Minds.’**\
+`A congresswoman from Connecticut plans to declare New Haven the city with the “best pizza in the country” on the House floor. New York City would like a word.`\
+https://nytimes.com/2024/05/22/nyregion/new-haven-pizza-capital.html
+
 **‘Evil’ Review: Is It Satan, or Is It Us? It’s Time to Find Out.**\
 `Michelle and Robert King’s macabre comedy about the possibility of demonic possession and the certainty of evil begins its final season.`\
 https://nytimes.com/2024/05/22/arts/television/evil-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/22/world/europe/uk-election-sunak-politics.html
 **What Does It Mean to Recognize a Palestinian State?**\
 `The move by three European countries fits into a long-term goal of Palestinian leaders to secure diplomatic acceptance, but the immediate impact may be limited.`\
 https://nytimes.com/2024/05/22/world/middleeast/palestinian-state.html
-
-**Health officials report that the death toll has risen to eight in Israel’s raid of Jenin.**\
-`By Raja Abdulrahim`\
-https://nytimes.com/live/2024/05/22/world/israel-gaza-palestinian-news/health-officials-report-that-the-death-toll-has-risen-to-eight-in-israels-raid-of-jenin
-
-**America Is Losing the Green Tech Race to China**\
-`The Biden administration seems to be in denial about China’s staggering advantage.`\
-https://nytimes.com/2024/05/22/opinion/america-green-tech-trade-war-china.html
 
