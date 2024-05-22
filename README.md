@@ -3,7 +3,7 @@
 https://nytimes.com/2024/05/22/climate/howler-monkeys-dead-mexico.html
 
 **3 More College Leaders to Face Congress Over Antisemitism Claims**\
-`The heads of Rutgers, Northwestern and U.C.L.A. will be the first university leaders to testify since a wave of protest encampments roiled college campuses and led to roughly 3,000 arrests.`\
+`The heads of Rutgers, Northwestern and U.C.L.A. will be the first university leaders to testify since a wave of protest encampments roiled college campuses.`\
 https://nytimes.com/2024/05/22/nyregion/3-more-college-leaders-to-face-congress-over-antisemitism-claims.html
 
 **Another Provocative Flag Was Flown at Another Alito Home**\
