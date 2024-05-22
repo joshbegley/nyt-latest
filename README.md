@@ -1,3 +1,7 @@
+**A Second Dairy Worker Has Contracted Bird Flu, C.D.C. Reports**\
+`The new case, in a Michigan farmworker, did not suggest that bird flu was widespread in people, health officials said, adding that the risk to the general public remained low.`\
+https://nytimes.com/2024/05/22/health/h5n1-bird-flu-dairy.html
+
 **Today’s Wordle Review No. 1,069**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/05/22/crosswords/wordle-review-1069.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/climate/tornado-wind-turbines-iowa.html
 **The War Is Shifting Europe’s Politics Away From Israel**\
 `The recognition of Palestinian statehood by Spain, Ireland and Norway highlights the changing center of gravity, but there also are staunchly pro-Israel nations in Europe.`\
 https://nytimes.com/2024/05/22/world/middleeast/europe-israel-palestinian-state.html
-
-**Western Europe Is Starting to Send a Vital Warning to Israel**\
-`Netanyahu’s government can’t ignore what the world is saying about the need for a Palestinian state.`\
-https://nytimes.com/2024/05/22/opinion/europe-palestine-recognized-israel.html
 
