@@ -1,3 +1,7 @@
+**Melissa Clark’s Go-To Pizza Recipe for Busy Nights**\
+`This olive oil-enriched recipe is the fastest version you can make from scratch — and it’s one of the best.`\
+https://nytimes.com/2024/05/22/dining/quick-pizza-recipe.html
+
 **A Second Dairy Worker Has Contracted Bird Flu, C.D.C. Reports**\
 `The new case, in a Michigan farmworker, did not suggest that bird flu was widespread in people, health officials said, adding that the risk to the general public remained low.`\
 https://nytimes.com/2024/05/22/health/h5n1-bird-flu-dairy.html

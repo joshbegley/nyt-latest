@@ -1,3 +1,11 @@
+**What’s in Our Queue? Kacey Musgraves and More**\
+`I’ve been a reporter at the Paris bureau of The New York Times for nearly a decade. Here are five things that I’ve been enjoying recently.`\
+https://nytimes.com/interactive/2024/05/22/arts/editor-recommendations-musgraves.html
+
+**Inside the Gala Where Usher Was In a Bidding War Over a Photo**\
+`This year’s gala for the Gordon Parks Foundation, which honors the legacy of the influential photographer, raised about $2.3 million, and drew out Alicia Keys, Colin Kaepernick and Ben Stiller.`\
+https://nytimes.com/2024/05/22/style/gordon-parks-gala-colin-kaepernick-alicia-keys.html
+
 **Melissa Clark’s Go-To Pizza Recipe for Busy Nights**\
 `This olive oil-enriched recipe is the fastest version you can make from scratch — and it’s one of the best.`\
 https://nytimes.com/2024/05/22/dining/quick-pizza-recipe.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/22/crosswords/connections-companion-347.html
 **Fed Minutes Show Officials Were Wary About Inflation at May Meeting**\
 `Federal Reserve policymakers were still willing to raise rates if the economy surprised them, notes from their most recent meeting suggested.`\
 https://nytimes.com/2024/05/22/business/economy/federal-reserve-minutes-may.html
-
-**A Day of Negative Headlines for Trump Points to a Cure for Voter ‘Amnesia’**\
-`In roughly 24 hours on Tuesday, former President Donald J. Trump reposted a video with an echo of Nazi Germany, hinted at restricting contraception and made news in two of the criminal cases against him.`\
-https://nytimes.com/2024/05/22/us/politics/trump-reich-contraception-trial.html
-
-**Tornado Pummels Wind Turbines in Iowa**\
-`The damage was unusual, experts say, because turbines are built to withstand extreme weather. Iowa is a wind powerhouse, with thousands of turbines.`\
-https://nytimes.com/2024/05/22/climate/tornado-wind-turbines-iowa.html
 
