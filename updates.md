@@ -1,3 +1,19 @@
+**The War Is Shifting Europe’s Politics Away From Israel**\
+`The recognition of Palestinian statehood by Spain, Ireland and Norway highlights the changing center of gravity, but there also are staunchly pro-Israel nations in Europe.`\
+https://nytimes.com/live/2024/05/22/world/israel-gaza-palestinian-news/europe-shifting-israel-palestine
+
+**Western Europe is Starting to Send a Vital Warning to Israel**\
+`Netanyahu’s government can’t ignore what the world is saying about the need for a Palestinian state.`\
+https://nytimes.com/2024/05/22/opinion/europe-palestine-recognized-israel.html
+
+**New footage is released of Hamas fighters taking female soldiers hostage.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/05/22/world/israel-gaza-palestinian-news/new-footage-is-released-of-hamas-fighters-taking-female-soldiers-hostage
+
+**Why a Prosecutor Went Public With Arrest Warrant Requests for Hamas and Israeli Leaders**\
+`What to know about Karim Khan’s decision to seek arrest warrants for three Hamas leaders as well as Israel’s prime minister, Benjamin Netanyahu, and defense minister, Yoav Gallant.`\
+https://nytimes.com/2024/05/22/world/europe/icc-warrants-israel-hamas-khan.html
+
 **Trump Falsely Claims Biden Administration Was ‘Locked & Loaded’ to Kill Him**\
 `Former President Donald J. Trump misrepresented a standard Justice Department policy to claim the F.B.I. was ready to kill him when searching his home in 2022.`\
 https://nytimes.com/2024/05/22/us/politics/trump-classified-documents-case-search.html

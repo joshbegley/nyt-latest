@@ -1,8 +1,20 @@
+**The War Is Shifting Europe’s Politics Away From Israel**\
+`The recognition of Palestinian statehood by Spain, Ireland and Norway highlights the changing center of gravity, but there also are staunchly pro-Israel nations in Europe.`\
+https://nytimes.com/live/2024/05/22/world/israel-gaza-palestinian-news/europe-shifting-israel-palestine
+
+**Western Europe is Starting to Send a Vital Warning to Israel**\
+`Netanyahu’s government can’t ignore what the world is saying about the need for a Palestinian state.`\
+https://nytimes.com/2024/05/22/opinion/europe-palestine-recognized-israel.html
+
+**New footage is released of Hamas fighters taking female soldiers hostage.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/05/22/world/israel-gaza-palestinian-news/new-footage-is-released-of-hamas-fighters-taking-female-soldiers-hostage
+
 **Trump Falsely Claims Biden Administration Was ‘Locked & Loaded’ to Kill Him**\
 `Former President Donald J. Trump misrepresented a standard Justice Department policy to claim the F.B.I. was ready to kill him when searching his home in 2022.`\
 https://nytimes.com/2024/05/22/us/politics/trump-classified-documents-case-search.html
 
-**Why I.C.C. Prosecutor Went Public With Arrest Warrant Requests for Hamas and Israeli Leaders**\
+**Why a Prosecutor Went Public With Arrest Warrant Requests for Hamas and Israeli Leaders**\
 `What to know about Karim Khan’s decision to seek arrest warrants for three Hamas leaders as well as Israel’s prime minister, Benjamin Netanyahu, and defense minister, Yoav Gallant.`\
 https://nytimes.com/2024/05/22/world/europe/icc-warrants-israel-hamas-khan.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/22/world/europe/nazi-wwii-deaths-alderney.html
 **Is Fluoridated Drinking Water Safe for Pregnant Women?**\
 `New research suggests a link between prenatal fluoride levels and behavioral issues in children. Experts are divided on the study’s significance.`\
 https://nytimes.com/2024/05/22/well/live/fluoride-pregnancy-water.html
-
-**Sunak Calls for a Snap General Election in the U.K.**\
-`Prime Minister Rishi Sunak of Britain announced July 4 as the date for general elections.`\
-https://nytimes.com/video/world/europe/100000009482728/sunak-calls-for-a-snap-general-election-in-the-uk.html
-
-**U.C.L.A. Removes Police Chief in the Wake of a Protest Melee**\
-`University of California, Los Angeles officials have been widely criticized for their failure to stop attacks on pro-Palestinian protesters at a campus demonstration.`\
-https://nytimes.com/2024/05/22/us/ucla-police-chief-removed.html
-
-**An Iowa Town Is Devastated by a Tornado**\
-`More than one person was killed in Greenfield, Iowa, on Tuesday when a tornado ripped through the city, destroying homes and buildings.`\
-https://nytimes.com/2024/05/22/us/tornado-greenfield-iowa-damage.html
 
