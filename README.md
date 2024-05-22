@@ -1,3 +1,7 @@
+**A Day of Negative Headlines for Trump Points to a Cure for Voter ‘Amnesia’**\
+`In roughly 24 hours on Tuesday, former President Donald J. Trump reposted a video with an echo of Nazi Germany, hinted at restricting contraception and made news in two of the criminal cases against him.`\
+https://nytimes.com/2024/05/22/us/politics/trump-reich-contraception-trial.html
+
 **Tornado Pummels Wind Turbines in Iowa**\
 `The damage was unusual, experts say, because turbines are built to withstand extreme weather. Iowa is a wind powerhouse, with thousands of turbines.`\
 https://nytimes.com/2024/05/22/climate/tornado-wind-turbines-iowa.html
@@ -33,8 +37,4 @@ https://nytimes.com/column/kristen-soltis-anderson
 **Staffing Crisis at Federal Prisons Highlighted in Oregon**\
 `Delays for medical care were severe enough to force one inmate at the prison to fake a suicide attempt to obtain treatment for a serious infection.`\
 https://nytimes.com/2024/05/22/us/politics/oregon-prison-staffing-shortage.html
-
-**Hundreds Added to World War II Death Toll of a Small English Channel Island**\
-`A panel of academics said it found more conclusive evidence of how many people were killed during the Nazi occupation of Alderney, one of the Channel Islands in British territory.`\
-https://nytimes.com/2024/05/22/world/europe/nazi-wwii-deaths-alderney.html
 
