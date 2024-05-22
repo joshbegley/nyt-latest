@@ -1,3 +1,7 @@
+**Food delivered through the U.S.-built pier in Gaza has not been distributed, Pentagon spokesman says.**\
+`By Gaya Gupta`\
+https://nytimes.com/2024/05/21/world/middleeast/gaza-aid-pier-food.html
+
 **Here’s Why Republicans Are Focusing on Voting by Noncitizens**\
 `House Republicans are pushing legislation to crack down on voting by noncitizens, which is allowed in some local elections but illegal — and exceedingly rare — at the federal level.`\
 https://nytimes.com/2024/05/21/us/politics/noncitizen-voting-explainer.html
