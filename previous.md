@@ -1,3 +1,7 @@
+**Testing the Nvidia Boom**\
+`Expectations are sky-high for the chipmaker’s latest earnings report. The company is at the center of Wall Street’s focus on artificial intelligence.`\
+https://nytimes.com/2024/05/22/business/dealbook/nvidia-earnings-artificial-intelligence.html
+
 **After a Day of Deadly Storms, Iowa Awakens to Scenes of Devastation**\
 `Severe weather destroyed much of Greenfield, where officials were continuing search and rescue work overnight to determine the death toll.`\
 https://nytimes.com/2024/05/22/weather/greenfield-iowa-tornado.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/podcasts/volodymyr-zelensky-interview-ukraine-war
 **The Gender Pay Gap Is a Culture Problem**\
 `Policy alone won’t get women what they deserve.`\
 https://nytimes.com/2024/05/22/opinion/gender-pay-gap.html
-
-**Biden Administration Cancels Another $7.7 Billion in Student Loans**\
-`The announcement applied to 160,000 federal loan borrowers and brings the total debt canceled by the administration to $167 billion.`\
-https://nytimes.com/2024/05/22/us/politics/biden-student-loan-relief.html
 

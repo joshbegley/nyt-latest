@@ -1,3 +1,7 @@
+**Testing the Nvidia Boom**\
+`Expectations are sky-high for the chipmaker’s latest earnings report. The company is at the center of Wall Street’s focus on artificial intelligence.`\
+https://nytimes.com/2024/05/22/business/dealbook/nvidia-earnings-artificial-intelligence.html
+
 **After a Day of Deadly Storms, Iowa Awakens to Scenes of Devastation**\
 `Severe weather destroyed much of Greenfield, where officials were continuing search and rescue work overnight to determine the death toll.`\
 https://nytimes.com/2024/05/22/weather/greenfield-iowa-tornado.html
