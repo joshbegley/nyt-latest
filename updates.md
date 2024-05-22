@@ -1,3 +1,7 @@
+**No Gaza Aid Delivered Through U.S.-Built Pier Has Been Distributed, Pentagon Says**\
+`The temporary pier is one of few remaining entry points for aid shipments since Israel began an incursion into Rafah, in southern Gaza, earlier this month.`\
+https://nytimes.com/2024/05/21/world/middleeast/gaza-aid-pier-food.html
+
 **Food delivered through the U.S.-built pier in Gaza has not been distributed, Pentagon spokesman says.**\
 `By Gaya Gupta`\
 https://nytimes.com/2024/05/21/world/middleeast/gaza-aid-pier-food.html
