@@ -1,3 +1,7 @@
+**Israel Responds to Move to Recognize Palestinian State by Withholding Funds**\
+`The finance minister’s office signaled that the decision, which could worsen the Palestinians’ dire economic crisis, was a response to Spain, Norway and Ireland recognizing Palestinian statehood.`\
+https://nytimes.com/2024/05/22/world/middleeast/israel-reacts-palestinian-finance.html
+
 **The L.A. Roller Rink Where the Years Glide By**\
 `Moonlight Rollerway has been hosting some of the city’s best skate parties for more than 60 years.`\
 https://nytimes.com/2024/05/22/t-magazine/moonlight-rollerway-skating-rink-los-angeles.html
