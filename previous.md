@@ -1,3 +1,7 @@
+**‘Dropping Very Dramatically’: What Deadly Turbulence Did to a Flight**\
+`Singapore Airlines flight SQ321 was a rare instance of turbulence resulting in a death.`\
+https://nytimes.com/2024/05/22/world/asia/singapore-airlines-flight-turbulence.html
+
 **Testing the Nvidia Boom**\
 `Expectations are sky-high for the chipmaker’s latest earnings report. The company is at the center of Wall Street’s focus on artificial intelligence.`\
 https://nytimes.com/2024/05/22/business/dealbook/nvidia-earnings-artificial-intelligence.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/crosswords/wordle-review.html
 **Zelensky Urges Allies to Do More, and Trump’s Defense Rests**\
 `Plus, America’s monster in Afghanistan.`\
 https://nytimes.com/2024/05/22/podcasts/volodymyr-zelensky-interview-ukraine-war-trump-trial.html
-
-**The Gender Pay Gap Is a Culture Problem**\
-`Policy alone won’t get women what they deserve.`\
-https://nytimes.com/2024/05/22/opinion/gender-pay-gap.html
 
