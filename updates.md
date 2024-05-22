@@ -1,3 +1,15 @@
+**Three European Nations Recognized a Palestinian State**\
+`Also, another provocative flag was flown at Justice Alito’s home. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/05/22/briefing/europe-palestinian-state-israel-migrant-evictions.html
+
+**Shirley Conran, Author Best Known for the Steamy ‘Lace,’ Dies at 91**\
+`A divorced single mother, she started out to write a sex guide for schoolgirls and ended up with a tale of female autonomy that became a best-selling novel.`\
+https://nytimes.com/2024/05/22/books/shirley-conran-dead.html
+
+**Hunter Biden’s Trial on Tax Charges Is Pushed to September**\
+`The judge presiding over the case in Los Angeles agreed to delay the start of his trial to Sept. 5.`\
+https://nytimes.com/2024/05/22/us/politics/hunter-biden-tax-trial-delayed.html
+
 **Spain, Norway and Ireland Recognize Palestinian State, Further Isolating Israel**\
 `The moves, while largely symbolic, were welcomed by Palestinians and denounced by Prime Minister Benjamin Netanyahu, who called them “a prize for terrorism.”`\
 https://nytimes.com/2024/05/22/world/middleeast/spain-norway-ireland-palestinian-statehood-israel.html
