@@ -1,3 +1,11 @@
+**One of America’s Most Democratic Counties Prepares for a Trump Visit**\
+`Donald J. Trump’s first rally in New York in eight years will be in the Bronx. Borough residents had mixed reactions.`\
+https://nytimes.com/2024/05/22/nyregion/trump-bronx-rally-reaction.html
+
+**Thursday Briefing: How ‘America’s Monster’ Operated in Afghanistan**\
+`Plus, three European countries recognize a Palestinian state.`\
+https://nytimes.com/2024/05/22/world/asia/palestinian-afghanistan-norway-britain-asia.html
+
 **What’s in Our Queue? Kacey Musgraves and More**\
 `I’ve been a reporter at the Paris bureau of The New York Times for nearly a decade. Here are five things that I’ve been enjoying recently.`\
 https://nytimes.com/interactive/2024/05/22/arts/editor-recommendations-musgraves.html
