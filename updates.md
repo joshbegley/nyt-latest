@@ -1,3 +1,7 @@
+**Wednesday Briefing**\
+`President Volodymyr Zelensky of Ukraine speaks to The Times`\
+https://nytimes.com/2024/05/22/briefing/zelensky-iran-guantanamo.html
+
 **Under Relentless Russian Assault, Ukraine Adopts a Defensive Crouch**\
 `As Moscow’s forces retake land from which they were ousted at the end of 2022, the Ukrainian military has adopted a strategy of fighting while slowly falling back to more heavily fortified positions.`\
 https://nytimes.com/2024/05/22/world/europe/ukraine-kharkiv-russia-defense.html
