@@ -1,3 +1,7 @@
+**What’s It Like Living Near Elevated Trains? Share Your Photos and Videos.**\
+`Here’s how to share shots and footage with The New York Times for a story featuring those who live near overhead trains in New York City.`\
+https://nytimes.com/2024/05/22/realestate/whats-it-like-living-near-elevated-trains-share-your-photos-and-videos.html
+
 **Democrats See Wins in Losing Votes**\
 `The party is pursuing a “sword and shield” political strategy as Senator Chuck Schumer pushes showdown votes on border security and abortion rights ahead of this year’s elections.`\
 https://nytimes.com/2024/05/22/us/democrats-see-wins-in-losing-votes.html

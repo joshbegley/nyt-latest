@@ -1,3 +1,7 @@
+**What’s It Like Living Near Elevated Trains? Share Your Photos and Videos.**\
+`Here’s how to share shots and footage with The New York Times for a story featuring those who live near overhead trains in New York City.`\
+https://nytimes.com/2024/05/22/realestate/whats-it-like-living-near-elevated-trains-share-your-photos-and-videos.html
+
 **Democrats See Wins in Losing Votes**\
 `The party is pursuing a “sword and shield” political strategy as Senator Chuck Schumer pushes showdown votes on border security and abortion rights ahead of this year’s elections.`\
 https://nytimes.com/2024/05/22/us/democrats-see-wins-in-losing-votes.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/22/world/israel-gaza-palestinian-news/new-foota
 **Trump Falsely Claims Biden Administration Was ‘Locked & Loaded’ to Kill Him**\
 `Former President Donald J. Trump misrepresented a standard Justice Department policy to claim the F.B.I. was ready to kill him when searching his home in 2022.`\
 https://nytimes.com/2024/05/22/us/politics/trump-classified-documents-case-search.html
-
-**Why a Prosecutor Went Public With Arrest Warrant Requests for Hamas and Israeli Leaders**\
-`What to know about Karim Khan’s decision to seek arrest warrants for three Hamas leaders as well as Israel’s prime minister, Benjamin Netanyahu, and defense minister, Yoav Gallant.`\
-https://nytimes.com/2024/05/22/world/europe/icc-warrants-israel-hamas-khan.html
 
