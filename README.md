@@ -1,3 +1,11 @@
+**Curry Roasted Half Chicken and Peppers for One**\
+`A solo supper that feels positively, well, positive.`\
+https://nytimes.com/2024/05/22/dining/curry-roasted-half-chicken-and-peppers-for-one.html
+
+**Judge Blocks Attempt to Sell Graceland, at Least for Now**\
+`Elvis’s granddaughter, the actress Riley Keough, had filed a lawsuit seeking to stop what her lawyers said was a fraudulent auction off her family home.`\
+https://nytimes.com/2024/05/22/arts/music/graceland-sale-elvis-riley-keough.html
+
 **To See the Past and Predict the Future, Try ‘Reading’ a Landscape**\
 `How well do you know your own backyard? Noah Charney thinks you should take another look.`\
 https://nytimes.com/2024/05/22/realestate/landscaping-gardening-neighborhood.html
@@ -29,12 +37,4 @@ https://nytimes.com/card/2024/05/22/theater/palace-theater-renovation
 **How Should the Stories of Migrants Be Told?**\
 `“The Silence of the Choir,” a novel by Mohamed Mbougar Sarr, follows 72 African refugees who have arrived in a Sicilian village.`\
 https://nytimes.com/2024/05/22/books/review/mohamed-mbougar-sarr-silence-of-the-choir.html
-
-**Israel Responds to Move to Recognize Palestinian State by Withholding Funds**\
-`The finance minister’s office signaled that the decision, which could worsen the Palestinians’ dire economic crisis, was a response to Spain, Norway and Ireland recognizing Palestinian statehood.`\
-https://nytimes.com/2024/05/22/world/middleeast/israel-reacts-palestinian-finance.html
-
-**The L.A. Roller Rink Where the Years Glide By**\
-`Moonlight Rollerway has been hosting some of the city’s best skate parties for more than 60 years.`\
-https://nytimes.com/2024/05/22/t-magazine/moonlight-rollerway-skating-rink-los-angeles.html
 
