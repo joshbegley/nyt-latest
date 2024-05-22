@@ -1,3 +1,7 @@
+**Israel Responds to Move to Recognize Palestinian State by Withholding Funds**\
+`The finance minister’s office signaled that the decision, which could worsen the Palestinians’ dire economic crisis, was a response to Spain, Norway and Ireland recognizing Palestinian statehood.`\
+https://nytimes.com/2024/05/22/world/middleeast/israel-reacts-palestinian-finance.html
+
 **The L.A. Roller Rink Where the Years Glide By**\
 `Moonlight Rollerway has been hosting some of the city’s best skate parties for more than 60 years.`\
 https://nytimes.com/2024/05/22/t-magazine/moonlight-rollerway-skating-rink-los-angeles.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/world/middleeast/ireland-palestinian-state-histor
 **House Panel Seeks F.B.I. Investigation Into Doping by Chinese Swimmers**\
 `The bipartisan request for a criminal inquiry relies on a law that gives the Justice Department the power to prosecute doping offenses that do not occur in the United States.`\
 https://nytimes.com/2024/05/22/us/politics/chinese-swimmers-doping-congress.html
-
-**Biden’s Open War on Hidden Fees**\
-`Targeting “junk fees” from the likes of airlines and credit-card companies has been a way for the president to show Americans that he’s acting to lower prices.`\
-https://nytimes.com/2024/05/22/podcasts/the-daily/hidden-fees.html
 
