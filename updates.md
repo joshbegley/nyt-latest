@@ -1,3 +1,15 @@
+**The Algebra Problem: How Middle School Math Became a National Flashpoint**\
+`Top students can benefit greatly by being offered the subject early. But many districts offer few Black and Latino eighth graders a chance to study it.`\
+https://nytimes.com/2024/05/22/nyregion/middle-school-math-algebra.html
+
+**Today’s Wordle Review No. 1,068**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/22/crosswords/wordle-review.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/05/22/crosswords/spelling-bee-forum.html
+
 **U.K. Inflation Falls to 2.3 Percent, Lowest in Three Years**\
 `The decline, which was less than economists expected, is nearing the Bank of England’s 2 percent target.`\
 https://nytimes.com/2024/05/22/business/uk-inflation.html

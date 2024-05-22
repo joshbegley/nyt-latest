@@ -1,3 +1,15 @@
+**The Algebra Problem: How Middle School Math Became a National Flashpoint**\
+`Top students can benefit greatly by being offered the subject early. But many districts offer few Black and Latino eighth graders a chance to study it.`\
+https://nytimes.com/2024/05/22/nyregion/middle-school-math-algebra.html
+
+**Today’s Wordle Review No. 1,068**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/22/crosswords/wordle-review.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/05/22/crosswords/spelling-bee-forum.html
+
 **U.K. Inflation Falls to 2.3 Percent, Lowest in Three Years**\
 `The decline, which was less than economists expected, is nearing the Bank of England’s 2 percent target.`\
 https://nytimes.com/2024/05/22/business/uk-inflation.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/22/learning/word-of-the-day-coalesce.html
 **Trump Prosecutor Wins, McCarthy’s Successor Is Set and Other Election Takeaways**\
 `In Georgia, the prosecutor and judge in Donald Trump’s criminal case won their races easily, and a Trump-backed California legislator will finish former Speaker Kevin McCarthy’s term.`\
 https://nytimes.com/2024/05/22/us/politics/elections-california-oregon-biden.html
-
-**Wednesday Briefing**\
-`President Volodymyr Zelensky of Ukraine speaks to The Times`\
-https://nytimes.com/2024/05/22/briefing/zelensky-iran-guantanamo.html
-
-**Under Relentless Russian Assault, Ukraine Adopts a Defensive Crouch**\
-`As Moscow’s forces retake land from which they were ousted at the end of 2022, the Ukrainian military has adopted a strategy of fighting while slowly falling back to more heavily fortified positions.`\
-https://nytimes.com/2024/05/22/world/europe/ukraine-kharkiv-russia-defense.html
-
-**Iran’s Use of Proxy Warfare Likely to Persist, Experts Say**\
-`The sudden death of President Ebrahim Raisi is not expected to affect the actions of groups like Hezbollah and the Houthis, which are vital to Iran’s power.`\
-https://nytimes.com/2024/05/22/world/middleeast/iran-proxies-raisi-death.html
 
