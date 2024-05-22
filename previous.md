@@ -1,3 +1,7 @@
+**Why Norway’s Recognition of a Palestinian State Carries Significance**\
+`Norway hosted the clandestine meetings in 1993 that led to the Oslo Accords, the framework for peace that came close to resolving the conflict.`\
+https://nytimes.com/2024/05/22/world/middleeast/norway-israel-palestinian-recognition.html
+
 **Iran’s Supreme Leader Leads Funeral Prayers for President**\
 `State TV in Iran reported that the political leader of Hamas, which Tehran has backed, was in the capital for the funeral. It was not immediately clear how many foreign dignitaries would attend.`\
 https://nytimes.com/2024/05/22/world/middleeast/iran-president-raisi-funeral.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/crosswords/spelling-bee-forum.html
 **U.K. Inflation Falls to 2.3 Percent, Lowest in Three Years**\
 `The decline, which was less than economists expected, is nearing the Bank of England’s 2 percent target.`\
 https://nytimes.com/2024/05/22/business/uk-inflation.html
-
-**More European nations recognize Palestinian statehood, a blow to Israel.**\
-`By Emma Bubola`\
-https://nytimes.com/live/2024/05/22/world/israel-gaza-palestinian-news/norways-recognition-carries-significance-because-of-its-role-in-1993-talks
 

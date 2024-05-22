@@ -1,3 +1,7 @@
+**Why Norway’s Recognition of a Palestinian State Carries Significance**\
+`Norway hosted the clandestine meetings in 1993 that led to the Oslo Accords, the framework for peace that came close to resolving the conflict.`\
+https://nytimes.com/2024/05/22/world/middleeast/norway-israel-palestinian-recognition.html
+
 **More European nations recognize Palestinian statehood, a blow to Israel.**\
 `By Emma Bubola`\
 https://nytimes.com/live/2024/05/22/world/israel-gaza-palestinian-news/norways-recognition-carries-significance-because-of-its-role-in-1993-talks
