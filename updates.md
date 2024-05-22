@@ -1,3 +1,7 @@
+**Sunak Announces U.K. Elections for July 4, Months Earlier Than Expected**\
+`The opposition Labour Party has been ahead in most polls by double digits in recent months.`\
+https://nytimes.com/2024/05/22/world/europe/uk-election-sunak-politics.html
+
 **What Does It Mean to Recognize a Palestinian State?**\
 `The move by three European countries fits into a long-term goal of Palestinian leaders to secure diplomatic acceptance, but the immediate impact may be limited.`\
 https://nytimes.com/2024/05/22/world/middleeast/palestinian-state.html
