@@ -1,3 +1,7 @@
+**Exit the Modest Merchant Prince**\
+`Bruce Nordstrom was both the force behind his family’s multibillion-dollar retail dynasty and a stealth godfather to the fashion trade.`\
+https://nytimes.com/2024/05/22/style/who-is-bruce-nordstrom.html
+
 **New York’s Palace Theater Gets an $80 Million Refresh (and 30 Feet Higher)**\
 `The Times Square landmark has been restored and refurbished. Take a look.`\
 https://nytimes.com/card/2024/05/22/theater/palace-theater-renovation
