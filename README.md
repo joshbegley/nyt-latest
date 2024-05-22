@@ -36,5 +36,5 @@ https://nytimes.com/2024/05/22/technology/nvidia-quarterly-earnings-results.html
 
 **Haley Says She Will Vote for Trump, in Her First Appearance Since Dropping Out**\
 `Nikki Haley had sharp words for President Biden and some Republicans.`\
-https://nytimes.com/2024/05/22/us/politics/nikki-haley-donald-trump.html
+https://nytimes.com/2024/05/22/us/politics/nikki-haley-biden-trump.html
 
