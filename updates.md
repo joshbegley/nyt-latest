@@ -1,3 +1,11 @@
+**After a Day of Deadly Storms, Iowa Awakens to Scenes of Devastation**\
+`Severe weather destroyed much of Greenfield, where officials were continuing search and rescue work overnight to determine the death toll.`\
+https://nytimes.com/2024/05/22/weather/greenfield-iowa-tornado.html
+
+**A Hidden History**\
+`A Times investigation uncovered a brutal campaign enacted by U.S.-backed forces during the war in Afghanistan.`\
+https://nytimes.com/2024/05/22/briefing/afghanistan-war-us-kandahar.html
+
 **Recognizing a Palestinian State, Ireland Nods to its Own History**\
 `Simon Harris, Ireland’s prime minister, invoked his nation’s struggle for independence from Britain and its decades of violent sectarian conflict.`\
 https://nytimes.com/2024/05/22/world/middleeast/ireland-palestinian-state-history.html
