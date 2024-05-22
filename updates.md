@@ -1,3 +1,15 @@
+**Under Relentless Russian Assault, Ukraine Adopts a Defensive Crouch**\
+`As Moscow’s forces retake land from which they were ousted at the end of 2022, the Ukrainian military has adopted a strategy of fighting while slowly falling back to more heavily fortified positions.`\
+https://nytimes.com/2024/05/22/world/europe/ukraine-kharkiv-russia-defense.html
+
+**Iran’s Use of Proxy Warfare Likely to Persist, Experts Say**\
+`The sudden death of President Ebrahim Raisi is not expected to affect the actions of groups like Hezbollah and the Houthis, which are vital to Iran’s power.`\
+https://nytimes.com/2024/05/22/world/middleeast/iran-proxies-raisi-death.html
+
+**Evacuation Point**\
+`As they evacuated from the fighting in Ukraine, the passengers already thought of what they left behind.`\
+https://nytimes.com/2024/05/22/world/europe/ukraine-kharkiv-region-evacuation.html
+
 **Democrats Favor Janelle Bynum in Bid to Flip Oregon Congressional Seat**\
 `In a race that could help decide control of the U.S. House, Democrats chose State Representative Bynum to compete against Lori Chavez-DeRemer, the Republican incumbent.`\
 https://nytimes.com/2024/05/21/us/politics/janelle-bynum-oregon-congressional-seat-race.html

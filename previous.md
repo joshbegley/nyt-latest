@@ -1,3 +1,15 @@
+**Under Relentless Russian Assault, Ukraine Adopts a Defensive Crouch**\
+`As Moscow’s forces retake land from which they were ousted at the end of 2022, the Ukrainian military has adopted a strategy of fighting while slowly falling back to more heavily fortified positions.`\
+https://nytimes.com/2024/05/22/world/europe/ukraine-kharkiv-russia-defense.html
+
+**Iran’s Use of Proxy Warfare Likely to Persist, Experts Say**\
+`The sudden death of President Ebrahim Raisi is not expected to affect the actions of groups like Hezbollah and the Houthis, which are vital to Iran’s power.`\
+https://nytimes.com/2024/05/22/world/middleeast/iran-proxies-raisi-death.html
+
+**Evacuation Point**\
+`As they evacuated from the fighting in Ukraine, the passengers already thought of what they left behind.`\
+https://nytimes.com/2024/05/22/world/europe/ukraine-kharkiv-region-evacuation.html
+
 **Democrats Favor Janelle Bynum in Bid to Flip Oregon Congressional Seat**\
 `In a race that could help decide control of the U.S. House, Democrats chose State Representative Bynum to compete against Lori Chavez-DeRemer, the Republican incumbent.`\
 https://nytimes.com/2024/05/21/us/politics/janelle-bynum-oregon-congressional-seat-race.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/21/crosswords/daily-puzzle-2024-05-22.html
 **Georgia Supreme Court Justice Fends Off Challenger Who Made Abortion Rights a Focus**\
 `Justice Andrew Pinson, who was appointed by the state’s Republican governor, faced an opponent who argued that the Georgia Constitution guaranteed the right to an abortion.`\
 https://nytimes.com/2024/05/21/us/politics/georgia-supreme-court-andrew-pinson.html
-
-**First Aid Basics Everyone Should Know**\
-`This expert advice will help you attend to common injuries like cuts, burns and sprains — and know when to head to the doctor.`\
-https://nytimes.com/interactive/2024/05/21/well/live/first-aid-cuts-burns-rashes.html
-
-**No Gaza Aid Delivered Through U.S.-Built Pier Has Been Distributed, Pentagon Says**\
-`The temporary pier is one of few remaining entry points for aid shipments since Israel began an incursion into Rafah, in southern Gaza, earlier this month.`\
-https://nytimes.com/2024/05/21/world/middleeast/gaza-aid-pier-food.html
-
-**Here’s Why Republicans Are Focusing on Voting by Noncitizens**\
-`House Republicans are pushing legislation to crack down on voting by noncitizens, which is allowed in some local elections but illegal — and exceedingly rare — at the federal level.`\
-https://nytimes.com/2024/05/21/us/politics/noncitizen-voting-explainer.html
 
