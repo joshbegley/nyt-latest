@@ -1,3 +1,7 @@
+**Popcast (Deluxe): Billie Eilish Is Done Hiding**\
+`A conversation about the pop singer’s new album, “Hit Me Hard and Soft.”`\
+https://nytimes.com/2024/05/22/arts/music/billie-eilish-popcast-deluxe.html
+
 **One of America’s Most Democratic Counties Prepares for a Trump Visit**\
 `Donald J. Trump’s first rally in New York in eight years will be in the Bronx. Borough residents had mixed reactions.`\
 https://nytimes.com/2024/05/22/nyregion/trump-bronx-rally-reaction.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/100000009482799/palestine-spain-norway-ireland.h
 **What’s It Like Living Near Elevated Trains? Share Your Photos and Videos.**\
 `Here’s how to share shots and footage with The New York Times for a story featuring those who live near overhead trains in New York City.`\
 https://nytimes.com/2024/05/22/realestate/whats-it-like-living-near-elevated-trains-share-your-photos-and-videos.html
-
-**Democrats See Wins in Losing Votes**\
-`The party is pursuing a “sword and shield” political strategy as Senator Chuck Schumer pushes showdown votes on border security and abortion rights ahead of this year’s elections.`\
-https://nytimes.com/2024/05/22/us/democrats-see-wins-in-losing-votes.html
 
