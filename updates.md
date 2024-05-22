@@ -1,4 +1,8 @@
 **U.K. Inflation Falls to 2.3 Percent, Lowest in Three Years**\
+`The decline, which was less than economists expected, is nearing the Bank of England’s 2 percent target.`\
+https://nytimes.com/2024/05/22/business/uk-inflation.html
+
+**U.K. Inflation Falls to 2.3 Percent, Lowest in Three Years**\
 `The decline, which was less than economists expected, is  nearing the Bank of England’s 2 percent target.`\
 https://nytimes.com/2024/05/22/business/uk-inflation.html
 
