@@ -1,3 +1,7 @@
+**U.C.L.A. Removes Police Chief in the Wake of a Protest Melee**\
+`University of California, Los Angeles officials have been widely criticized for their failure to stop attacks on pro-Palestinian protesters at a campus demonstration.`\
+https://nytimes.com/2024/05/22/us/ucla-police-chief-removed.html
+
 **An Iowa Town Is Devastated by a Tornado**\
 `More than one person was killed in Greenfield, Iowa, on Tuesday when a tornado ripped through the city, destroying homes and buildings.`\
 https://nytimes.com/2024/05/22/us/tornado-greenfield-iowa-damage.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/theater/usus-review.html
 **Judge Blocks Florida From Criminalizing Transport of Undocumented Immigrants**\
 `The provision was part of an effort to discourage unauthorized immigrants from living and working in Florida.`\
 https://nytimes.com/2024/05/22/us/florida-undocumented-immigrant-transport.html
-
-**‘A Completely Different Town Now’: A Community Reels From a Deadly Tornado**\
-`Multiple people died in Greenfield, Iowa, population 2,000, where search and rescue efforts were continuing on Wednesday.`\
-https://nytimes.com/2024/05/22/us/greenfield-iowa-tornado.html
 
