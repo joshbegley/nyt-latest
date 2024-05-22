@@ -1,3 +1,7 @@
+**‘Where Did Justine Go?’ One Woman Disappears Into Devotion**\
+`Justine Payton was drawn to a Hare Krishna ashram for its yoga, meditation and vegan meals. She’s still figuring out what went wrong.`\
+https://nytimes.com/2024/05/22/us/where-did-justine-go-one-woman-disappears-into-devotion.html
+
 **Justice Alito’s Blame-the-Wife Defense**\
 `Readers react to several articles about the upside-down flag flown at the justice’s home. Also: The taco court case; G.O.P. denial of benefits; Equinox and equity.`\
 https://nytimes.com/2024/05/22/opinion/alito-flag.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/dining/curry-roasted-half-chicken-and-peppers-for
 **Judge Blocks Attempt to Sell Graceland, at Least for Now**\
 `Elvis’s granddaughter, the actress Riley Keough, had filed a lawsuit seeking to stop what her lawyers said was a fraudulent auction of her family home.`\
 https://nytimes.com/2024/05/22/arts/music/graceland-sale-elvis-riley-keough.html
-
-**To See the Past and Predict the Future, Try ‘Reading’ a Landscape**\
-`How well do you know your own backyard? Noah Charney thinks you should take another look.`\
-https://nytimes.com/2024/05/22/realestate/landscaping-gardening-neighborhood.html
 
