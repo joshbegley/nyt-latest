@@ -1,3 +1,7 @@
+**Democrats Favor Janelle Bynum in Bid to Flip Oregon Congressional Seat**\
+`In a race that could help decide control of the U.S. House, Democrats chose State Representative Bynum to compete against Lori Chavez-DeRemer, the Republican incumbent.`\
+https://nytimes.com/2024/05/21/us/politics/janelle-bynum-oregon-congressional-seat-race.html
+
 **Power Struggle in Vietnam Brings Third President in Less Than 2 Years**\
 `But it remains unclear whether Gen. To Lam, the new president, can rise to the post of the top leader, the chief of the Vietnamese Communist Party.`\
 https://nytimes.com/2024/05/21/world/asia/vietnam-president-lam.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/21/world/middleeast/gaza-aid-pier-food.html
 **Here’s Why Republicans Are Focusing on Voting by Noncitizens**\
 `House Republicans are pushing legislation to crack down on voting by noncitizens, which is allowed in some local elections but illegal — and exceedingly rare — at the federal level.`\
 https://nytimes.com/2024/05/21/us/politics/noncitizen-voting-explainer.html
-
-**Trump Does Not Take the Stand, and the Defense Rests**\
-`The defense rested its case after Donald J. Trump declined to take the stand at his criminal trial. Jonah Bromwich, a criminal justice reporter at The New York Times, gives his takeaways.`\
-https://nytimes.com/video/nyregion/100000009481263/trump-does-not-take-the-stand-and-the-defense-rests.html
 
