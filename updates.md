@@ -1,3 +1,7 @@
+**OpenAI Strikes a Deal to License News Corp Content**\
+`The deal gives OpenAI’s chatbots access to new and archived material from The Wall Street Journal, The New York Post, MarketWatch and Barron’s, among others.`\
+https://nytimes.com/2024/05/22/business/media/openai-news-corp-content-deal.html
+
 **Three European Nations Recognized a Palestinian State**\
 `Also, another provocative flag was flown at Justice Alito’s home. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/05/22/briefing/europe-palestinian-state-israel-migrant-evictions.html
