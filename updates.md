@@ -1,3 +1,7 @@
+**Belgium’s 2024 Election: What to Know**\
+`Belgium, a small yet politically significant country, will hold federal, regional, and E.U. elections on June 9, for control of its complex, layered governance structure.`\
+https://nytimes.com/2024/05/22/world/europe/belgium-2024-election.html
+
 **Like Your Movies Odd and Grungy? Try Cultpix.**\
 `This streaming service collects low-budget, high-creativity movies with outsider status. We single out some of the best on offer.`\
 https://nytimes.com/2024/05/22/movies/cultpix-streaming-movies.html
