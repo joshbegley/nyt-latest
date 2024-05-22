@@ -1,3 +1,7 @@
+**3 More College Leaders to Face Congress Over Antisemitism Claims**\
+`The heads of Rutgers, Northwestern and U.C.L.A. will be the first university leaders to testify since a wave of protest encampments roiled college campuses and led to roughly 3,000 arrests.`\
+https://nytimes.com/2024/05/22/nyregion/3-more-college-leaders-to-face-congress-over-antisemitism-claims.html
+
 **Another Provocative Flag Was Flown at Another Alito Home**\
 `The justice’s beach house displayed an “Appeal to Heaven” flag, a symbol carried on Jan. 6 and associated with a push for a more Christian-minded government.`\
 https://nytimes.com/2024/05/22/us/justice-alito-flag-appeal-to-heaven.html
@@ -12,7 +16,7 @@ https://nytimes.com/2024/05/22/technology/nvidia-quarterly-earnings-results.html
 
 **Haley Says She Will Vote for Trump, in Her First Appearance Since Dropping Out**\
 `Nikki Haley had sharp words for President Biden and some Republicans.`\
-https://nytimes.com/2024/05/22/us/politics/in-first-speech-since-dropping-out-nikki-haley-criticizes-president-biden-and-republicans-on-foreign-policy.html
+https://nytimes.com/2024/05/22/us/politics/nikki-haley-donald-trump.html
 
 **Popcast (Deluxe): Billie Eilish Is Done Hiding**\
 `A conversation about the pop singer’s new album, “Hit Me Hard and Soft.”`\
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/05/22/arts/editor-recommendations-musgraves
 **Inside the Gala Where Usher Was In a Bidding War Over a Photo**\
 `This year’s gala for the Gordon Parks Foundation, which honors the legacy of the influential photographer, raised about $2.3 million, and drew out Alicia Keys, Colin Kaepernick and Ben Stiller.`\
 https://nytimes.com/2024/05/22/style/gordon-parks-gala-colin-kaepernick-alicia-keys.html
-
-**Melissa Clark’s Go-To Pizza Recipe for Busy Nights**\
-`This olive oil-enriched recipe is the fastest version you can make from scratch — and it’s one of the best.`\
-https://nytimes.com/2024/05/22/dining/quick-pizza-recipe.html
 
