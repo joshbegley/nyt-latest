@@ -20,7 +20,7 @@ https://nytimes.com/interactive/2024/05/22/nyregion/trump-hush-money-trial-trans
 
 **‘Where Did Justine Go?’ One Woman Disappears Into Devotion**\
 `Justine Payton was drawn to a Hare Krishna ashram for its yoga, meditation and vegan meals. She’s still figuring out what went wrong.`\
-https://nytimes.com/2024/05/22/us/where-did-justine-go-one-woman-disappears-into-devotion.html
+https://nytimes.com/2024/05/22/us/hare-krishna-yoga-justine-payton.html
 
 **Justice Alito’s Blame-the-Wife Defense**\
 `Readers react to several articles about the upside-down flag flown at the justice’s home. Also: The taco court case; G.O.P. denial of benefits; Equinox and equity.`\
