@@ -1,3 +1,7 @@
+**Dead Monkeys Are Falling From Trees Amid Brutal Heat in Mexico**\
+`The deaths of dozens of howler monkeys may be the latest sign of the danger extreme temperatures pose to wildlife around the world.`\
+https://nytimes.com/2024/05/22/climate/howler-monkeys-dead-mexico.html
+
 **3 More College Leaders to Face Congress Over Antisemitism Claims**\
 `The heads of Rutgers, Northwestern and U.C.L.A. will be the first university leaders to testify since a wave of protest encampments roiled college campuses and led to roughly 3,000 arrests.`\
 https://nytimes.com/2024/05/22/nyregion/3-more-college-leaders-to-face-congress-over-antisemitism-claims.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/world/asia/palestinian-afghanistan-norway-britain
 **What’s in Our Queue? Kacey Musgraves and More**\
 `I’ve been a reporter at the Paris bureau of The New York Times for nearly a decade. Here are five things that I’ve been enjoying recently.`\
 https://nytimes.com/interactive/2024/05/22/arts/editor-recommendations-musgraves.html
-
-**Inside the Gala Where Usher Was In a Bidding War Over a Photo**\
-`This year’s gala for the Gordon Parks Foundation, which honors the legacy of the influential photographer, raised about $2.3 million, and drew out Alicia Keys, Colin Kaepernick and Ben Stiller.`\
-https://nytimes.com/2024/05/22/style/gordon-parks-gala-colin-kaepernick-alicia-keys.html
 
