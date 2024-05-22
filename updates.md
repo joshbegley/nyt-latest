@@ -1,3 +1,11 @@
+**Uvalde Settles With Victims’ Families Over School Shooting**\
+`The Texas city agreed to pay $2 million to families of schoolchildren who were shot in a 2022 massacre, and to overhaul its police force. The families are also suing other agencies.`\
+https://nytimes.com/2024/05/22/us/uvalde-lawsuit-settlement.html
+
+**Is New Haven the Pizza Capital of the U.S.? ‘They’re Outta Their Minds.’**\
+`A congresswoman from Connecticut plans to declare New Haven the city with the “best pizza in the country” on the House floor. New York City would like a word.`\
+https://nytimes.com/2024/05/22/nyregion/new-haven-pizza-capital.html
+
 **‘Evil’ Review: Is It Satan, or Is It Us? It’s Time to Find Out.**\
 `Michelle and Robert King’s macabre comedy about the possibility of demonic possession and the certainty of evil begins its final season.`\
 https://nytimes.com/2024/05/22/arts/television/evil-review.html
