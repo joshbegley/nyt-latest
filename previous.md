@@ -1,3 +1,7 @@
+**Fed Minutes Show Officials Were Wary About Inflation at May Meeting**\
+`Federal Reserve policymakers were still willing to raise rates if the economy surprised them, notes from their most recent meeting suggested.`\
+https://nytimes.com/2024/05/22/business/economy/federal-reserve-minutes-may.html
+
 **A Day of Negative Headlines for Trump Points to a Cure for Voter ‘Amnesia’**\
 `In roughly 24 hours on Tuesday, former President Donald J. Trump reposted a video with an echo of Nazi Germany, hinted at restricting contraception and made news in two of the criminal cases against him.`\
 https://nytimes.com/2024/05/22/us/politics/trump-reich-contraception-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/theater/richard-iii-shakespeares-globe-disability
 **Kristen Soltis Anderson**\
 `Kristen Soltis Anderson, a New York Times contributing opinion writer, covers American politics, elections, polling and the Republican Party.`\
 https://nytimes.com/column/kristen-soltis-anderson
-
-**Staffing Crisis at Federal Prisons Highlighted in Oregon**\
-`Delays for medical care were severe enough to force one inmate at the prison to fake a suicide attempt to obtain treatment for a serious infection.`\
-https://nytimes.com/2024/05/22/us/politics/oregon-prison-staffing-shortage.html
 

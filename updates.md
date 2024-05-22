@@ -1,3 +1,7 @@
+**Fed Minutes Show Officials Were Wary About Inflation at May Meeting**\
+`Federal Reserve policymakers were still willing to raise rates if the economy surprised them, notes from their most recent meeting suggested.`\
+https://nytimes.com/2024/05/22/business/economy/federal-reserve-minutes-may.html
+
 **A Day of Negative Headlines for Trump Points to a Cure for Voter ‘Amnesia’**\
 `In roughly 24 hours on Tuesday, former President Donald J. Trump reposted a video with an echo of Nazi Germany, hinted at restricting contraception and made news in two of the criminal cases against him.`\
 https://nytimes.com/2024/05/22/us/politics/trump-reich-contraception-trial.html
