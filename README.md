@@ -1,3 +1,7 @@
+**French Leader Heads to Pacific Outpost Gripped by Deadly Unrest**\
+`It remains unclear what strategy President Emmanuel Macron of France will pursue to defuse tensions in New Caledonia, where six people have died in recent days.`\
+https://nytimes.com/2024/05/22/world/asia/france-macron-new-caledonia.html
+
 **Late Night Laments That Donald Trump Didn’t Testify at His Trial**\
 `Jimmy Fallon said Trump wanted to take the stand in his criminal case on Tuesday, “but then he saw it was three steps without a handrail.”`\
 https://nytimes.com/2024/05/22/arts/television/late-night-donald-trump-testimony.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/21/us/politics/janelle-bynum-oregon-congressional-se
 **Power Struggle in Vietnam Brings Third President in Less Than 2 Years**\
 `But it remains unclear whether Gen. To Lam, the new president, can rise to the post of the top leader, the chief of the Vietnamese Communist Party.`\
 https://nytimes.com/2024/05/21/world/asia/vietnam-president-lam.html
-
-**Doug Emhoff Calls Trump a ‘Known Antisemite’ as Biden Team Steps Up Attacks**\
-`The remarks by Mr. Emhoff, the husband of Vice President Kamala Harris, represented an escalation of the Biden campaign’s attacks on Donald Trump over his language about Jews.`\
-https://nytimes.com/2024/05/21/us/politics/doug-emhoff-trump-antisemite.html
 
