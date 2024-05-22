@@ -1,3 +1,11 @@
+**Inside the White House, a Debate Over Letting Ukraine Shoot U.S. Weapons Into Russia**\
+`After a sobering trip to Kyiv, Secretary of State Antony J. Blinken is urging the president to lift some restrictions on how Ukraine can use American arms.`\
+https://nytimes.com/2024/05/22/us/politics/white-house-ukraine-weapons-russia.html
+
+**Are Ayo Edebiri and Jeremy Allen White Dating?**\
+`Whether or not the rumors are true, the co-stars’ apparent bond continues to fascinate fans and serves as a reminder that some people are still rooting for love.`\
+https://nytimes.com/2024/05/22/style/ayo-edebiri-jeremy-allen-white-dating.html
+
 **Eric Weinberg, ‘Scrubs’ Producer, Ordered to Stand Trial in Rape Case**\
 `The writer and producer was charged in October 2022 with sexually assaulting at least five women, prosecutors said.`\
 https://nytimes.com/2024/05/22/us/scrubs-eric-weinberg-charges.html
