@@ -1,3 +1,15 @@
+**The L.A. Roller Rink Where the Years Glide By**\
+`Moonlight Rollerway has been hosting some of the city’s best skate parties for more than 60 years.`\
+https://nytimes.com/2024/05/22/t-magazine/moonlight-rollerway-skating-rink-los-angeles.html
+
+**A Reparations Effort in Palm Springs**\
+`Black and Latino families whose neighborhood was razed in the 1960s are seeking compensation from the city.`\
+https://nytimes.com/2024/05/22/us/palm-springs-reparations.html
+
+**Why Doesn’t My Husband Respect My Opinion About Moving?**\
+`After 20 years in a house that was never meant to be a “forever home,” a reader thinks it’s time for a move, but her husband refuses to consider her wishes.`\
+https://nytimes.com/2024/05/22/style/spouse-communication-respect.html
+
 **‘Dropping Very Dramatically’: What Deadly Turbulence Did to a Flight**\
 `Singapore Airlines flight SQ321 was a rare instance of turbulence resulting in a death.`\
 https://nytimes.com/2024/05/22/world/asia/singapore-airlines-flight-turbulence.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/22/us/politics/chinese-swimmers-doping-congress.html
 **Biden’s Open War on Hidden Fees**\
 `Targeting “junk fees” from the likes of airlines and credit-card companies has been a way for the president to show Americans that he’s acting to lower prices.`\
 https://nytimes.com/2024/05/22/podcasts/the-daily/hidden-fees.html
-
-**The Connections Companion No. 347**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/22/crosswords/connections-companion.html
-
-**Today’s Wordle Review No. 1,069**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/22/crosswords/wordle-review.html
-
-**Zelensky Urges Allies to Do More, and Trump’s Defense Rests**\
-`Plus, America’s monster in Afghanistan.`\
-https://nytimes.com/2024/05/22/podcasts/volodymyr-zelensky-interview-ukraine-war-trump-trial.html
 
