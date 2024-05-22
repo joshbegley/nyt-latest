@@ -1,3 +1,7 @@
+**Judge Blocks Florida From Criminalizing Transport of Undocumented Immigrants**\
+`The provision was part of an effort to discourage unauthorized immigrants from living and working in Florida.`\
+https://nytimes.com/2024/05/22/us/florida-undocumented-immigrant-transport.html
+
 **‘A Completely Different Town Now’: A Community Reels From a Deadly Tornado**\
 `Multiple people died in Greenfield, Iowa, population 2,000, where search and rescue efforts were continuing on Wednesday.`\
 https://nytimes.com/2024/05/22/us/greenfield-iowa-tornado.html
