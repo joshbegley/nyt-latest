@@ -1,3 +1,7 @@
+**Trump Prosecutor Wins, McCarthy’s Successor Is Set and Other Election Takeaways**\
+`In Georgia, the prosecutor and judge in Donald Trump’s criminal case won their races easily, and a Trump-backed California legislator will finish former Speaker Kevin McCarthy’s term.`\
+https://nytimes.com/2024/05/22/us/politics/elections-california-oregon-biden.html
+
 **Wednesday Briefing**\
 `President Volodymyr Zelensky of Ukraine speaks to The Times`\
 https://nytimes.com/2024/05/22/briefing/zelensky-iran-guantanamo.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/21/pageoneplus/corrections-may-22-2024.html
 **Midwest Storms Destroy Homes**\
 `The storms hit Iowa particularly hard, leaving a mess of debris in Greenfield. In the nearby city of Corning, a tornado touched down.`\
 https://nytimes.com/video/us/100000009481580/tornado-storms-midwest-weather-forecast.html
-
-**Up to this Point**\
-`Martin Schneider calls ’em like he sees ’em.`\
-https://nytimes.com/2024/05/21/crosswords/daily-puzzle-2024-05-22.html
 

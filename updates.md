@@ -1,3 +1,7 @@
+**Trump Prosecutor Wins, McCarthy’s Successor Is Set and Other Election Takeaways**\
+`In Georgia, the prosecutor and judge in Donald Trump’s criminal case won their races easily, and a Trump-backed California legislator will finish former Speaker Kevin McCarthy’s term.`\
+https://nytimes.com/2024/05/22/us/politics/elections-california-oregon-biden.html
+
 **Wednesday Briefing**\
 `President Volodymyr Zelensky of Ukraine speaks to The Times`\
 https://nytimes.com/2024/05/22/briefing/zelensky-iran-guantanamo.html
