@@ -1,3 +1,7 @@
+**Justice Alito’s Blame-the-Wife Defense**\
+`Readers react to several articles about the upside-down flag flown at the justice’s home. Also: The taco court case; G.O.P. denial of benefits; Equinox and equity.`\
+https://nytimes.com/2024/05/22/opinion/alito-flag.html
+
 **I’m a Retired Psychiatrist. Is It OK to Befriend a Former Patient?**\
 `The magazine’s Ethicist columnist on professional boundaries.`\
 https://nytimes.com/2024/05/22/magazine/retired-psychiatrist-former-patient-ethics.html

@@ -1,3 +1,7 @@
+**Justice Alito’s Blame-the-Wife Defense**\
+`Readers react to several articles about the upside-down flag flown at the justice’s home. Also: The taco court case; G.O.P. denial of benefits; Equinox and equity.`\
+https://nytimes.com/2024/05/22/opinion/alito-flag.html
+
 **I’m a Retired Psychiatrist. Is It OK to Befriend a Former Patient?**\
 `The magazine’s Ethicist columnist on professional boundaries.`\
 https://nytimes.com/2024/05/22/magazine/retired-psychiatrist-former-patient-ethics.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/arts/music/graceland-sale-elvis-riley-keough.html
 **To See the Past and Predict the Future, Try ‘Reading’ a Landscape**\
 `How well do you know your own backyard? Noah Charney thinks you should take another look.`\
 https://nytimes.com/2024/05/22/realestate/landscaping-gardening-neighborhood.html
-
-**She Just Earned Her Doctorate at 17. Now, She’ll Go to the Prom.**\
-`Dorothy Jean Tillman II of Chicago made history as the youngest person to earn a doctoral degree in integrated behavioral health at Arizona State University.`\
-https://nytimes.com/2024/05/22/us/dorothy-jean-tillman-chicago.html
 
