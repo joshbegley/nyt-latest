@@ -1,3 +1,7 @@
+**Vials of Blood Sent to R.N.C. Headquarters Prompt Lockdown**\
+`Hazardous materials teams responded to the Republican National Committee headquarters in Washington after a suspicious package was found.`\
+https://nytimes.com/2024/05/22/us/politics/rnc-lockdown-blood.html
+
 **Uvalde Settles With Victims’ Families Over School Shooting**\
 `The Texas city agreed to pay $2 million to families of schoolchildren who were shot in a 2022 massacre, and to overhaul its police force. The families are also suing other agencies.`\
 https://nytimes.com/2024/05/22/us/uvalde-lawsuit-settlement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/us/greenfield-iowa-tornado.html
 **Sunak Announces U.K. Elections for July 4, Months Earlier Than Expected**\
 `The opposition Labour Party has been ahead in most polls by double digits in recent months.`\
 https://nytimes.com/2024/05/22/world/europe/uk-election-sunak-politics.html
-
-**What Does It Mean to Recognize a Palestinian State?**\
-`The move by three European countries fits into a long-term goal of Palestinian leaders to secure diplomatic acceptance, but the immediate impact may be limited.`\
-https://nytimes.com/2024/05/22/world/middleeast/palestinian-state.html
 
