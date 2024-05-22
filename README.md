@@ -1,3 +1,7 @@
+**Staffing Crisis at Federal Prisons Highlighted in Oregon**\
+`Delays for medical care were severe enough to force one inmate at the prison to fake a suicide attempt to obtain treatment for a serious infection.`\
+https://nytimes.com/2024/05/22/us/politics/oregon-prison-staffing-shortage.html
+
 **Hundreds Added to World War II Death Toll of a Small English Channel Island**\
 `A panel of academics said it found more conclusive evidence of how many people were killed during the Nazi occupation of Alderney, one of the Channel Islands in British territory.`\
 https://nytimes.com/2024/05/22/world/europe/nazi-wwii-deaths-alderney.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/nyregion/new-haven-pizza-capital.html
 **‘Evil’ Review: Is It Satan, or Is It Us? It’s Time to Find Out.**\
 `Michelle and Robert King’s macabre comedy about the possibility of demonic possession and the certainty of evil begins its final season.`\
 https://nytimes.com/2024/05/22/arts/television/evil-review.html
-
-**Two Wild Movies at Cannes Have Everybody Arguing**\
-`“The Substance” features Demi Moore in go-for-broke mode, while “Emilia Pérez” is a musical crime drama that defies description.`\
-https://nytimes.com/2024/05/22/movies/cannes-the-substance-emilia-perez.html
 
