@@ -1,3 +1,7 @@
+**Late Night Laments That Donald Trump Didn’t Testify at His Trial**\
+`Jimmy Fallon said Trump wanted to take the stand in his criminal case on Tuesday, “but then he saw it was three steps without a handrail.”`\
+https://nytimes.com/2024/05/22/arts/television/late-night-donald-trump-testimony.html
+
 **Word of the Day: coalesce**\
 `This word has appeared in 113 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/05/22/learning/word-of-the-day-coalesce.html
