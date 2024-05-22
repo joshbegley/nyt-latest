@@ -1,3 +1,11 @@
+**She Just Earned Her Doctorate at 17. Now, She’ll Go to the Prom.**\
+`Dorothy Jean Tillman II of Chicago made history as the youngest person to earn a doctoral degree in integrated behavioral health at Arizona State University.`\
+https://nytimes.com/2024/05/22/us/dorothy-jean-tillman-chicago.html
+
+**Today’s Wordle Review No. 1,068**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/22/crosswords/wordle-review-1068.html
+
 **What We Know About the Ambani Wedding**\
 `Anant Ambani and Radhika Merchant’s pre-wedding in March caused a stir when photos and videos of their lavish celebration circulated on social media. Here’s what we know about their July nuptials.`\
 https://nytimes.com/2024/05/22/fashion/weddings/what-we-know-about-the-ambani-wedding.html

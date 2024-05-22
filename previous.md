@@ -1,3 +1,11 @@
+**She Just Earned Her Doctorate at 17. Now, She’ll Go to the Prom.**\
+`Dorothy Jean Tillman II of Chicago made history as the youngest person to earn a doctoral degree in integrated behavioral health at Arizona State University.`\
+https://nytimes.com/2024/05/22/us/dorothy-jean-tillman-chicago.html
+
+**Today’s Wordle Review No. 1,068**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/22/crosswords/wordle-review-1068.html
+
 **What We Know About the Ambani Wedding**\
 `Anant Ambani and Radhika Merchant’s pre-wedding in March caused a stir when photos and videos of their lavish celebration circulated on social media. Here’s what we know about their July nuptials.`\
 https://nytimes.com/2024/05/22/fashion/weddings/what-we-know-about-the-ambani-wedding.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/22/t-magazine/moonlight-rollerway-skating-rink-los-a
 **A Reparations Effort in Palm Springs**\
 `Black and Latino families whose neighborhood was razed in the 1960s are seeking compensation from the city.`\
 https://nytimes.com/2024/05/22/us/palm-springs-reparations.html
-
-**Why Doesn’t My Husband Respect My Opinion About Moving?**\
-`After 20 years in a house that was never meant to be a “forever home,” a reader thinks it’s time for a move, but her husband refuses to consider her wishes.`\
-https://nytimes.com/2024/05/22/style/spouse-communication-respect.html
-
-**‘Dropping Very Dramatically’: What Deadly Turbulence Did to a Flight**\
-`Singapore Airlines flight SQ321 was a rare instance of turbulence resulting in a death.`\
-https://nytimes.com/2024/05/22/world/asia/singapore-airlines-flight-turbulence.html
 
