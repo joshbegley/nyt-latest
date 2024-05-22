@@ -1,3 +1,11 @@
+**New York’s Palace Theater Gets an $80 Million Refresh (and 30 Feet Higher)**\
+`The Times Square landmark has been restored and refurbished. Take a look.`\
+https://nytimes.com/card/2024/05/22/theater/palace-theater-renovation
+
+**How Should the Stories of Migrants Be Told?**\
+`“The Silence of the Choir,” a novel by Mohamed Mbougar Sarr, follows 72 African refugees who have arrived in a Sicilian village.`\
+https://nytimes.com/2024/05/22/books/review/mohamed-mbougar-sarr-silence-of-the-choir.html
+
 **Israel Responds to Move to Recognize Palestinian State by Withholding Funds**\
 `The finance minister’s office signaled that the decision, which could worsen the Palestinians’ dire economic crisis, was a response to Spain, Norway and Ireland recognizing Palestinian statehood.`\
 https://nytimes.com/2024/05/22/world/middleeast/israel-reacts-palestinian-finance.html
