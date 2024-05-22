@@ -1,3 +1,7 @@
+**What We Know About the Ambani Wedding**\
+`Anant Ambani and Radhika Merchant’s pre-wedding in March caused a stir when photos and videos of their lavish celebration circulated on social media. Here’s what we know about their July nuptials.`\
+https://nytimes.com/2024/05/22/fashion/weddings/ambani-wedding.html
+
 **To See the Past and Predict the Future, Try ‘Reading’ a Landscape**\
 `How well do you know your own backyard? Noah Charney thinks you should take another look.`\
 https://nytimes.com/2024/05/22/realestate/landscaping-gardening-neighborhood.html

@@ -10,13 +10,13 @@ https://nytimes.com/2024/05/22/us/dorothy-jean-tillman-chicago.html
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/05/22/crosswords/wordle-review-1068.html
 
-**What We Know About the Ambani Wedding**\
-`Anant Ambani and Radhika Merchant’s pre-wedding in March caused a stir when photos and videos of their lavish celebration circulated on social media. Here’s what we know about their July nuptials.`\
-https://nytimes.com/2024/05/22/fashion/weddings/what-we-know-about-the-ambani-wedding.html
-
 **Kit Connor and Rachel Zegler Headline Broadway ‘Romeo and Juliet’**\
 `A production featuring the screen stars, with music by Jack Antonoff, will open in October at Circle in the Square.`\
 https://nytimes.com/2024/05/22/theater/kit-connor-rachel-zegler-romeo-juliet-broadway.html
+
+**What We Know About the Ambani Wedding**\
+`Anant Ambani and Radhika Merchant’s pre-wedding in March caused a stir when photos and videos of their lavish celebration circulated on social media. Here’s what we know about their July nuptials.`\
+https://nytimes.com/2024/05/22/fashion/weddings/ambani-wedding.html
 
 **Exit the Modest Merchant Prince**\
 `Bruce Nordstrom was both the force behind his family’s multibillion-dollar retail dynasty and a stealth godfather to the fashion trade.`\
