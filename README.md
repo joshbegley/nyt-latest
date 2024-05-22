@@ -1,3 +1,7 @@
+**Wednesday Briefing**\
+`President Volodymyr Zelensky of Ukraine speaks to The Times`\
+https://nytimes.com/2024/05/22/briefing/zelensky-iran-guantanamo.html
+
 **Under Relentless Russian Assault, Ukraine Adopts a Defensive Crouch**\
 `As Moscow’s forces retake land from which they were ousted at the end of 2022, the Ukrainian military has adopted a strategy of fighting while slowly falling back to more heavily fortified positions.`\
 https://nytimes.com/2024/05/22/world/europe/ukraine-kharkiv-russia-defense.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000009481580/tornado-storms-midwest-weather-fore
 **Up to this Point**\
 `Martin Schneider calls ’em like he sees ’em.`\
 https://nytimes.com/2024/05/21/crosswords/daily-puzzle-2024-05-22.html
-
-**Georgia Supreme Court Justice Fends Off Challenger Who Made Abortion Rights a Focus**\
-`Justice Andrew Pinson, who was appointed by the state’s Republican governor, faced an opponent who argued that the Georgia Constitution guaranteed the right to an abortion.`\
-https://nytimes.com/2024/05/21/us/politics/georgia-supreme-court-andrew-pinson.html
 
