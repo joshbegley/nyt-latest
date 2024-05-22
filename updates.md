@@ -1,3 +1,7 @@
+**Kennedy Adviser Leaves Campaign, Citing ‘Hateful and Divisive Atmosphere’**\
+`Angela Stanton King, a former Trump supporter who joined the campaign in December, was a high-profile figure in Robert F. Kennedy Jr.’s circle.`\
+https://nytimes.com/2024/05/22/us/politics/rfk-jr-2024-election-adviser.html
+
 **The Words That Defined the Week in Donald J. Trump’s Trial**\
 `An aggressive cross-examination, a judge’s scolding and then a pause before the jury considers the case.`\
 https://nytimes.com/2024/05/22/nyregion/trump-hush-money-trial-cohen-costello.html
