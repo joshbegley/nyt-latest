@@ -1,3 +1,11 @@
+**New York’s Palace Theater Gets an $80 Million Refresh (and 30 Feet Higher)**\
+`The Times Square landmark has been restored and refurbished. Take a look.`\
+https://nytimes.com/card/2024/05/22/theater/palace-theater-renovation
+
+**How Should the Stories of Migrants Be Told?**\
+`“The Silence of the Choir,” a novel by Mohamed Mbougar Sarr, follows 72 African refugees who have arrived in a Sicilian village.`\
+https://nytimes.com/2024/05/22/books/review/mohamed-mbougar-sarr-silence-of-the-choir.html
+
 **Israel Responds to Move to Recognize Palestinian State by Withholding Funds**\
 `The finance minister’s office signaled that the decision, which could worsen the Palestinians’ dire economic crisis, was a response to Spain, Norway and Ireland recognizing Palestinian statehood.`\
 https://nytimes.com/2024/05/22/world/middleeast/israel-reacts-palestinian-finance.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/22/weather/greenfield-iowa-tornado.html
 **A Hidden History**\
 `A Times investigation uncovered a brutal campaign enacted by U.S.-backed forces during the war in Afghanistan.`\
 https://nytimes.com/2024/05/22/briefing/afghanistan-war-us-kandahar.html
-
-**Recognizing a Palestinian State, Ireland Nods to its Own History**\
-`Simon Harris, Ireland’s prime minister, invoked his nation’s struggle for independence from Britain and its decades of violent sectarian conflict.`\
-https://nytimes.com/2024/05/22/world/middleeast/ireland-palestinian-state-history.html
-
-**House Panel Seeks F.B.I. Investigation Into Doping by Chinese Swimmers**\
-`The bipartisan request for a criminal inquiry relies on a law that gives the Justice Department the power to prosecute doping offenses that do not occur in the United States.`\
-https://nytimes.com/2024/05/22/us/politics/chinese-swimmers-doping-congress.html
 
