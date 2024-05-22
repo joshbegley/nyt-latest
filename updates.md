@@ -1,3 +1,7 @@
+**Western Europe Is Starting to Send a Vital Warning to Israel**\
+`Netanyahu’s government can’t ignore what the world is saying about the need for a Palestinian state.`\
+https://nytimes.com/2024/05/22/opinion/europe-palestine-recognized-israel.html
+
 **The Connections Companion No. 347**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/05/22/crosswords/connections-companion-347.html

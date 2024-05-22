@@ -18,7 +18,7 @@ https://nytimes.com/2024/05/22/climate/tornado-wind-turbines-iowa.html
 `The recognition of Palestinian statehood by Spain, Ireland and Norway highlights the changing center of gravity, but there also are staunchly pro-Israel nations in Europe.`\
 https://nytimes.com/2024/05/22/world/middleeast/europe-shifting-israel-palestine.html
 
-**Western Europe is Starting to Send a Vital Warning to Israel**\
+**Western Europe Is Starting to Send a Vital Warning to Israel**\
 `Netanyahu’s government can’t ignore what the world is saying about the need for a Palestinian state.`\
 https://nytimes.com/2024/05/22/opinion/europe-palestine-recognized-israel.html
 
