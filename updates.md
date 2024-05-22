@@ -1,3 +1,7 @@
+**Dominican President Abinader Wins Re-election in a Landslide**\
+`In election results made official Tuesday night, President Luis Abinader easily won his re-election bid, helped by restrictions on Haitian migrants, a vibrant economy and an anti-corruption drive.`\
+https://nytimes.com/2024/05/22/world/americas/dominican-president-abinader-wins-election.html
+
 **Justice Alito’s Blame-the-Wife Defense**\
 `Readers react to several articles about the upside-down flag flown at the justice’s home. Also: The taco court case; G.O.P. denial of benefits; Equinox and equity.`\
 https://nytimes.com/2024/05/22/opinion/alito-flag.html
