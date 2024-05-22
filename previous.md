@@ -36,5 +36,5 @@ https://nytimes.com/2024/05/22/business/uk-inflation.html
 
 **More European nations recognize Palestinian statehood, a blow to Israel.**\
 `By Emma Bubola`\
-https://nytimes.com/live/2024/05/22/world/israel-gaza-war-hamas-rafah/norways-recognition-carries-significance-because-of-its-role-in-1993-talks
+https://nytimes.com/live/2024/05/22/world/israel-gaza-palestinian-news/norways-recognition-carries-significance-because-of-its-role-in-1993-talks
 

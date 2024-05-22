@@ -1,3 +1,7 @@
+**More European nations recognize Palestinian statehood, a blow to Israel.**\
+`By Emma Bubola`\
+https://nytimes.com/live/2024/05/22/world/israel-gaza-palestinian-news/norways-recognition-carries-significance-because-of-its-role-in-1993-talks
+
 **Iran’s Supreme Leader Leads Funeral Prayers for President**\
 `State TV in Iran reported that the political leader of Hamas, which Tehran has backed, was in the capital for the funeral. It was not immediately clear how many foreign dignitaries would attend.`\
 https://nytimes.com/2024/05/22/world/middleeast/iran-president-raisi-funeral.html
