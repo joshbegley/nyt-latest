@@ -1,3 +1,7 @@
+**‘Where Did Justine Go?’ One Woman Disappears Into Devotion**\
+`Justine Payton was drawn to a Hare Krishna ashram for its yoga, meditation and vegan meals. She’s still figuring out what went wrong.`\
+https://nytimes.com/2024/05/22/us/hare-krishna-yoga-justine-payton.html
+
 **Sunak Announces U.K. Elections for July 4, Months Earlier Than Expected**\
 `The opposition Labour Party has been ahead in most polls by double digits in recent months.`\
 https://nytimes.com/2024/05/22/world/europe/uk-election-sunak-politics.html
