@@ -1,3 +1,7 @@
+**Voters Oust Progressive Prosecutor in Portland**\
+`Mike Schmidt lost to Nathan Vasquez, a deputy district attorney in Multnomah County, Ore., who blamed his boss for the area’s recent problems with drugs and crime.`\
+https://nytimes.com/2024/05/22/us/politics/portland-prosecutor-mike-schmidt-nathan-vasquez.html
+
 **Trains Suspended Between New York and Philadelphia After Power Outage**\
 `Fallen electrical wires at Penn Station stopped Amtrak and New Jersey Transit trains, but did not affect the subway or the Long Island Rail Road, according to transit agencies.`\
 https://nytimes.com/2024/05/22/nyregion/amtrak-nj-transit-trains-suspended.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/us/politics/white-house-ukraine-weapons-russia.ht
 **Are Ayo Edebiri and Jeremy Allen White Dating?**\
 `Whether or not the rumors are true, the co-stars’ apparent bond continues to fascinate fans and serves as a reminder that some people are still rooting for love.`\
 https://nytimes.com/2024/05/22/style/ayo-edebiri-jeremy-allen-white-dating.html
-
-**Eric Weinberg, ‘Scrubs’ Producer, Ordered to Stand Trial in Rape Case**\
-`The writer and producer was charged in October 2022 with sexually assaulting at least five women, prosecutors said.`\
-https://nytimes.com/2024/05/22/us/scrubs-eric-weinberg-charges.html
 
