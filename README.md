@@ -30,11 +30,11 @@ https://nytimes.com/2024/05/22/crosswords/spelling-bee-forum.html
 `The decline, which was less than economists expected, is nearing the Bank of England’s 2 percent target.`\
 https://nytimes.com/2024/05/22/business/uk-inflation.html
 
-**Norway’s recognition carries significance because of its role in 1993 talks.**\
+**More European nations recognize Palestinian statehood, a blow to Israel.**\
 `By Emma Bubola`\
 https://nytimes.com/live/2024/05/22/world/israel-gaza-war-hamas-rafah/norways-recognition-carries-significance-because-of-its-role-in-1993-talks
 
-**Norway Recognizes a Palestinian State, Adding to Israel’s Isolation Over War**\
-`The Scandinavian nation joined scores of others that recognize Palestinian statehood, a move that Israel has long opposed.`\
+**Norway and Ireland Recognize a Palestinian State, Adding to Israel’s Isolation Over War**\
+`The European nations joined scores of others that recognize Palestinian statehood, a move that Israel has long opposed.`\
 https://nytimes.com/live/2024/05/22/world/israel-gaza-war-hamas-rafah
 
