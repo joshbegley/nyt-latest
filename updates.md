@@ -1,3 +1,7 @@
+**Spain, Norway and Ireland Recognize Palestinian State, Further Isolating Israel**\
+`The moves, while largely symbolic, were welcomed by Palestinians and denounced by Prime Minister Benjamin Netanyahu, who called them “a prize for terrorism.”`\
+https://nytimes.com/2024/05/22/world/middleeast/spain-norway-ireland-palestinian-statehood-israel.html
+
 **Dead Monkeys Are Falling From Trees Amid Brutal Heat in Mexico**\
 `The deaths of dozens of howler monkeys may be the latest sign of the danger extreme temperatures pose to wildlife around the world.`\
 https://nytimes.com/2024/05/22/climate/howler-monkeys-mexico-heat.html

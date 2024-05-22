@@ -1,3 +1,7 @@
+**Spain, Norway and Ireland Recognize Palestinian State, Further Isolating Israel**\
+`The moves, while largely symbolic, were welcomed by Palestinians and denounced by Prime Minister Benjamin Netanyahu, who called them “a prize for terrorism.”`\
+https://nytimes.com/2024/05/22/world/middleeast/spain-norway-ireland-palestinian-statehood-israel.html
+
 **Dead Monkeys Are Falling From Trees Amid Brutal Heat in Mexico**\
 `The deaths of dozens of howler monkeys may be the latest sign of the danger extreme temperatures pose to wildlife around the world.`\
 https://nytimes.com/2024/05/22/climate/howler-monkeys-mexico-heat.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/nyregion/trump-bronx-rally-reaction.html
 **Thursday Briefing: How ‘America’s Monster’ Operated in Afghanistan**\
 `Plus, three European countries recognize a Palestinian state.`\
 https://nytimes.com/2024/05/22/world/asia/palestinian-afghanistan-norway-britain-asia.html
-
-**What’s in Our Queue? Kacey Musgraves and More**\
-`I’ve been a reporter at the Paris bureau of The New York Times for nearly a decade. Here are five things that I’ve been enjoying recently.`\
-https://nytimes.com/interactive/2024/05/22/arts/editor-recommendations-musgraves.html
 
