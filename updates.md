@@ -1,3 +1,7 @@
+**U.C.L.A. Removes Police Chief in the Wake of a Protest Melee**\
+`University of California, Los Angeles officials have been widely criticized for their failure to stop attacks on pro-Palestinian protesters at a campus demonstration.`\
+https://nytimes.com/2024/05/22/us/ucla-police-chief-removed.html
+
 **An Iowa Town Is Devastated by a Tornado**\
 `More than one person was killed in Greenfield, Iowa, on Tuesday when a tornado ripped through the city, destroying homes and buildings.`\
 https://nytimes.com/2024/05/22/us/tornado-greenfield-iowa-damage.html
