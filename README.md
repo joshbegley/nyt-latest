@@ -1,3 +1,7 @@
+**The Words That Defined the Week in Donald J. Trump’s Trial**\
+`An aggressive cross-examination, a judge’s scolding and then a pause before the jury considers the case.`\
+https://nytimes.com/2024/05/22/nyregion/trump-hush-money-trial-cohen-costello.html
+
 **OpenAI Strikes a Deal to License News Corp Content**\
 `The deal gives OpenAI’s chatbots access to new and archived material from The Wall Street Journal, The New York Post, MarketWatch and Barron’s, among others.`\
 https://nytimes.com/2024/05/22/business/media/openai-news-corp-content-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/us/politics/hunter-biden-tax-trial-delayed.html
 **Nvidia, Powered by A.I. Boom, Reports Soaring Revenue and Profits**\
 `The Silicon Valley company was again lifted by sales of its artificial intelligence chips, but it faces growing competition and heightened expectations.`\
 https://nytimes.com/2024/05/22/technology/nvidia-quarterly-earnings-results.html
-
-**Haley Says She Will Vote for Trump, in Her First Appearance Since Dropping Out**\
-`Nikki Haley had sharp words for President Biden and some Republicans.`\
-https://nytimes.com/2024/05/22/us/politics/nikki-haley-biden-trump.html
 
