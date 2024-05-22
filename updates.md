@@ -1,3 +1,7 @@
+**‘Where Did Justine Go?’ One Woman Disappears Into Devotion**\
+`Justine Payton was drawn to a Hare Krishna ashram for its yoga, meditation and vegan meals. She’s still figuring out what went wrong.`\
+https://nytimes.com/2024/05/22/us/where-did-justine-go-one-woman-disappears-into-devotion.html
+
 **Dominican President Abinader Wins Re-election in a Landslide**\
 `In election results made official Tuesday night, President Luis Abinader easily won his re-election bid, helped by restrictions on Haitian migrants, a vibrant economy and an anti-corruption drive.`\
 https://nytimes.com/2024/05/22/world/americas/dominican-president-abinader-wins-election.html
