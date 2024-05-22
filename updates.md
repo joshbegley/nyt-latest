@@ -1,3 +1,7 @@
+**Democrats Favor Janelle Bynum in Bid to Flip Oregon Congressional Seat**\
+`In a race that could help decide control of the U.S. House, Democrats chose State Representative Bynum to compete against Lori Chavez-DeRemer, the Republican incumbent.`\
+https://nytimes.com/2024/05/21/us/politics/janelle-bynum-oregon-congressional-seat-race.html
+
 **Power Struggle in Vietnam Brings Third President in Less Than 2 Years**\
 `But it remains unclear whether Gen. To Lam, the new president, can rise to the post of the top leader, the chief of the Vietnamese Communist Party.`\
 https://nytimes.com/2024/05/21/world/asia/vietnam-president-lam.html
