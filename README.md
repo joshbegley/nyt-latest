@@ -1,3 +1,19 @@
+**Who Was Abdul Raziq?**\
+`Uncovering the brutal career of a crucial American ally — and the hidden truths of the war in Afghanistan.`\
+https://nytimes.com/2024/05/22/magazine/abdul-raziq-afghanistan-war.html
+
+**New York Begins a New Wave of Evictions From Migrant Shelters**\
+`The evictions are part of an aggressive strategy to force some adult migrants out of city shelters after 30 or 60 days.`\
+https://nytimes.com/2024/05/22/nyregion/migrant-evictions-shelter-adams.html
+
+**New Stamp Design**\
+`This new French stamp is a scratch-and-sniff. If you could design a stamp, what would yours feature?`\
+https://nytimes.com/2024/05/22/learning/new-stamp-design.html
+
+**The Connections Companion No. 346**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/22/crosswords/connections-companion.html
+
 **The Algebra Problem: How Middle School Math Became a National Flashpoint**\
 `Top students can benefit greatly by being offered the subject early. But many districts offer few Black and Latino eighth graders a chance to study it.`\
 https://nytimes.com/2024/05/22/nyregion/middle-school-math-algebra.html
@@ -18,23 +34,7 @@ https://nytimes.com/2024/05/22/business/uk-inflation.html
 `By Emma Bubola`\
 https://nytimes.com/live/2024/05/22/world/israel-gaza-war-hamas-rafah/norways-recognition-carries-significance-because-of-its-role-in-1993-talks
 
-**Norway Recognizes a Palestinian State**\
-`The Scandinavian nation joined scores of others no longer willing to wait for Israel to negotiate an end to its decades of occupation of Palestinian territories.`\
+**Norway Recognizes a Palestinian State, Adding to Israel’s Isolation Over War**\
+`The Scandinavian nation joined scores of others that recognize Palestinian statehood, a move that Israel has long opposed.`\
 https://nytimes.com/live/2024/05/22/world/israel-gaza-war-hamas-rafah
-
-**French Leader Heads to Pacific Outpost Gripped by Deadly Unrest**\
-`It remains unclear what strategy President Emmanuel Macron of France will pursue to defuse tensions in New Caledonia, where six people have died in recent days.`\
-https://nytimes.com/2024/05/22/world/asia/france-macron-new-caledonia.html
-
-**Late Night Laments That Donald Trump Didn’t Testify at His Trial**\
-`Jimmy Fallon said Trump wanted to take the stand in his criminal case on Tuesday, “but then he saw it was three steps without a handrail.”`\
-https://nytimes.com/2024/05/22/arts/television/late-night-donald-trump-testimony.html
-
-**Word of the Day: coalesce**\
-`This word has appeared in 113 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/05/22/learning/word-of-the-day-coalesce.html
-
-**Trump Prosecutor Wins, McCarthy’s Successor Is Set and Other Election Takeaways**\
-`In Georgia, the prosecutor and judge in Donald Trump’s criminal case won their races easily, and a Trump-backed California legislator will finish former Speaker Kevin McCarthy’s term.`\
-https://nytimes.com/2024/05/22/us/politics/elections-california-oregon-biden.html
 
