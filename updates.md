@@ -1,3 +1,7 @@
+**Voters Oust Progressive Prosecutor in Portland**\
+`Mike Schmidt lost to Nathan Vasquez, a deputy district attorney in Multnomah County, Ore., who blamed his boss for the area’s recent problems with drugs and crime.`\
+https://nytimes.com/2024/05/22/us/politics/portland-prosecutor-mike-schmidt-nathan-vasquez.html
+
 **Trains Suspended Between New York and Philadelphia After Power Outage**\
 `Fallen electrical wires at Penn Station stopped Amtrak and New Jersey Transit trains, but did not affect the subway or the Long Island Rail Road, according to transit agencies.`\
 https://nytimes.com/2024/05/22/nyregion/amtrak-nj-transit-trains-suspended.html
