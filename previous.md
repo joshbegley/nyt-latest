@@ -1,3 +1,11 @@
+**Corrections: May 22, 2024**\
+`Corrections that appeared in print on Wednesday, May 22, 2024.`\
+https://nytimes.com/2024/05/21/pageoneplus/corrections-may-22-2024.html
+
+**Midwest Storms Destroy Homes**\
+`The storms hit Iowa particularly hard, leaving a mess of debris in Greenfield. In the nearby city of Corning, a tornado touched down.`\
+https://nytimes.com/video/us/100000009481580/tornado-storms-midwest-weather-forecast.html
+
 **Up to this Point**\
 `Martin Schneider calls ’em like he sees ’em.`\
 https://nytimes.com/2024/05/21/crosswords/daily-puzzle-2024-05-22.html
@@ -25,12 +33,4 @@ https://nytimes.com/video/nyregion/100000009481263/trump-does-not-take-the-stand
 **Corey Lewandowski, Trump’s First Campaign Manager, Is Brought Back for G.O.P. Convention**\
 `Mr. Lewandowski was pushed out of a pro-Trump super PAC that he had helped lead in 2021 after the wife of a donor accused him of making unwanted sexual advances.`\
 https://nytimes.com/2024/05/21/us/politics/corey-lewandowski-trump-convention-rnc.html
-
-**Newborn babies, doctors and patients are trapped at a hospital in northern Gaza.**\
-`By Anushka Patil`\
-https://nytimes.com/live/2024/05/21/world/israel-gaza-war-hamas-rafah/newborn-babies-doctors-and-patients-are-trapped-at-a-hospital-in-northern-gaza
-
-**House G.O.P. Moves to Crack Down on Noncitizen Voting, Sowing False Narrative**\
-`The bills under consideration in the House have virtually no chance of becoming law, but Republicans are using them to amplify former President Donald J. Trump’s false claims of widespread illegal voting by noncitizens.`\
-https://nytimes.com/2024/05/21/us/politics/republicans-noncitizen-voting-false-narrative.html
 
