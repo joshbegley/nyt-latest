@@ -1,3 +1,7 @@
+**How Today’s Economy Could Matter in November**\
+`Some pollsters and economists believe voters form their perceptions of the economy over time.`\
+https://nytimes.com/2024/05/22/us/politics/economy-inflation-election.html
+
 **Sparring in Trump Documents Hearing Highlights Case’s Slow Pace**\
 `A prosecutor got into a heated exchange with Judge Aileen Cannon over a minor point, as the case continues to crawl.`\
 https://nytimes.com/2024/05/22/us/politics/trump-documents-nauta-cannon.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/briefing/europe-palestinian-state-israel-migrant-
 **Shirley Conran, Author Best Known for the Steamy ‘Lace,’ Dies at 91**\
 `A divorced single mother, she started out to write a sex guide for schoolgirls and ended up with a tale of female autonomy that became a best-selling novel.`\
 https://nytimes.com/2024/05/22/books/shirley-conran-dead.html
-
-**Spain, Norway and Ireland Recognize Palestinian State, Further Isolating Israel**\
-`The moves, while largely symbolic, were welcomed by Palestinians and denounced by Prime Minister Benjamin Netanyahu, who called them “a prize for terrorism.”`\
-https://nytimes.com/2024/05/22/world/middleeast/spain-norway-ireland-palestinian-statehood-israel.html
 
