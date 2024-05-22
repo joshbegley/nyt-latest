@@ -1,3 +1,7 @@
+**Kennedy Adviser Leaves Campaign, Citing ‘Hateful and Divisive Atmosphere’**\
+`Angela Stanton King, a former Trump supporter who joined the campaign in December, was a high-profile figure in Robert F. Kennedy Jr.’s circle.`\
+https://nytimes.com/2024/05/22/us/politics/rfk-jr-2024-election-adviser.html
+
 **The Words That Defined the Week in Donald J. Trump’s Trial**\
 `An aggressive cross-examination, a judge’s scolding and then a pause before the jury considers the case.`\
 https://nytimes.com/2024/05/22/nyregion/trump-hush-money-trial-cohen-costello.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/us/justice-alito-flag-appeal-to-heaven.html
 **Hunter Biden’s Trial on Tax Charges Is Pushed to September**\
 `The judge presiding over the case in Los Angeles agreed to delay the start of his trial to Sept. 5.`\
 https://nytimes.com/2024/05/22/us/politics/hunter-biden-tax-trial-delayed.html
-
-**Nvidia, Powered by A.I. Boom, Reports Soaring Revenue and Profits**\
-`The Silicon Valley company was again lifted by sales of its artificial intelligence chips, but it faces growing competition and heightened expectations.`\
-https://nytimes.com/2024/05/22/technology/nvidia-quarterly-earnings-results.html
 
