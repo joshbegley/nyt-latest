@@ -1,3 +1,7 @@
+**How Today’s Economy Could Matter in November**\
+`Some pollsters and economists believe voters form their perceptions of the economy over time.`\
+https://nytimes.com/2024/05/22/us/politics/economy-inflation-election.html
+
 **Sparring in Trump Documents Hearing Highlights Case’s Slow Pace**\
 `A prosecutor got into a heated exchange with Judge Aileen Cannon over a minor point, as the case continues to crawl.`\
 https://nytimes.com/2024/05/22/us/politics/trump-documents-nauta-cannon.html
