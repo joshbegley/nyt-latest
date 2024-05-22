@@ -1,3 +1,7 @@
+**To See the Past and Predict the Future, Try ‘Reading’ a Landscape**\
+`How well do you know your own backyard? Noah Charney thinks you should take another look.`\
+https://nytimes.com/2024/05/22/realestate/landscaping-gardening-neighborhood.html
+
 **She Just Earned Her Doctorate at 17. Now, She’ll Go to the Prom.**\
 `Dorothy Jean Tillman II of Chicago made history as the youngest person to earn a doctoral degree in integrated behavioral health at Arizona State University.`\
 https://nytimes.com/2024/05/22/us/dorothy-jean-tillman-chicago.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/world/middleeast/israel-reacts-palestinian-financ
 **The L.A. Roller Rink Where the Years Glide By**\
 `Moonlight Rollerway has been hosting some of the city’s best skate parties for more than 60 years.`\
 https://nytimes.com/2024/05/22/t-magazine/moonlight-rollerway-skating-rink-los-angeles.html
-
-**A Reparations Effort in Palm Springs**\
-`Black and Latino families whose neighborhood was razed in the 1960s are seeking compensation from the city.`\
-https://nytimes.com/2024/05/22/us/palm-springs-reparations.html
 
