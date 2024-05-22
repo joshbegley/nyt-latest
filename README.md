@@ -1,6 +1,6 @@
 **Dead Monkeys Are Falling From Trees Amid Brutal Heat in Mexico**\
 `The deaths of dozens of howler monkeys may be the latest sign of the danger extreme temperatures pose to wildlife around the world.`\
-https://nytimes.com/2024/05/22/climate/howler-monkeys-dead-mexico.html
+https://nytimes.com/2024/05/22/climate/howler-monkeys-mexico-heat.html
 
 **3 More College Leaders to Face Congress Over Antisemitism Claims**\
 `The heads of Rutgers, Northwestern and U.C.L.A. will be the first university leaders to testify since a wave of protest encampments roiled college campuses.`\
