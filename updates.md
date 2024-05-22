@@ -1,3 +1,7 @@
+**‘A Completely Different Town Now’: A Community Reels From a Deadly Tornado**\
+`Multiple people died in Greenfield, Iowa, population 2,000, where search and rescue efforts were continuing on Wednesday.`\
+https://nytimes.com/2024/05/22/us/greenfield-iowa-tornado.html
+
 **‘Where Did Justine Go?’ One Woman Disappears Into Devotion**\
 `Justine Payton was drawn to a Hare Krishna ashram for its yoga, meditation and vegan meals. She’s still figuring out what went wrong.`\
 https://nytimes.com/2024/05/22/us/hare-krishna-yoga-justine-payton.html

@@ -1,3 +1,7 @@
+**‘A Completely Different Town Now’: A Community Reels From a Deadly Tornado**\
+`Multiple people died in Greenfield, Iowa, population 2,000, where search and rescue efforts were continuing on Wednesday.`\
+https://nytimes.com/2024/05/22/us/greenfield-iowa-tornado.html
+
 **Sunak Announces U.K. Elections for July 4, Months Earlier Than Expected**\
 `The opposition Labour Party has been ahead in most polls by double digits in recent months.`\
 https://nytimes.com/2024/05/22/world/europe/uk-election-sunak-politics.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/magazine/retired-psychiatrist-former-patient-ethi
 **Frank Shrontz, 92, Dies; Led Boeing in the Last of Its Golden Years**\
 `Known for his leadership and his commitment to company culture, he left as chief executive in 1996, opening the door to a corporate makeover.`\
 https://nytimes.com/2024/05/22/business/frank-shrontz-dead.html
-
-**Despite Setback, Neuralink’s First Brain-Implant Patient Stays Upbeat**\
-`Elon Musk’s first human experiment with a computerized brain device developed significant flaws, but the subject, who is paralyzed, has few regrets.`\
-https://nytimes.com/2024/05/22/health/elon-musk-brain-implant-arbaugh.html
 
