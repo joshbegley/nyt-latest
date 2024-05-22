@@ -1,3 +1,11 @@
+**Hundreds Added to World War II Death Toll of a Small English Channel Island**\
+`A panel of academics said it found more conclusive evidence of how many people were killed during the Nazi occupation of Alderney, one of the Channel Islands in British territory.`\
+https://nytimes.com/2024/05/22/world/europe/nazi-wwii-deaths-alderney.html
+
+**Is Fluoridated Drinking Water Safe for Pregnant Women?**\
+`New research suggests a link between prenatal fluoride levels and behavioral issues in children. Experts are divided on the study’s significance.`\
+https://nytimes.com/2024/05/22/well/live/fluoride-pregnancy-water.html
+
 **Sunak Calls for a Snap General Election in the U.K.**\
 `Prime Minister Rishi Sunak of Britain announced July 4 as the date for general elections.`\
 https://nytimes.com/video/world/europe/100000009482728/sunak-calls-for-a-snap-general-election-in-the-uk.html
