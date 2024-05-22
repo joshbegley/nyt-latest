@@ -1,3 +1,15 @@
+**What Does It Mean to Recognize a Palestinian State?**\
+`The move by three European countries fits into a long-term goal of Palestinian leaders to secure diplomatic acceptance, but the immediate impact may be limited.`\
+https://nytimes.com/2024/05/22/world/middleeast/palestinian-state.html
+
+**Health officials report that the death toll has risen to eight in Israel’s raid of Jenin.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/05/22/world/israel-gaza-palestinian-news/health-officials-report-that-the-death-toll-has-risen-to-eight-in-israels-raid-of-jenin
+
+**America Is Losing the Green Tech Race to China**\
+`The Biden administration seems to be in denial about China’s staggering advantage.`\
+https://nytimes.com/2024/05/22/opinion/america-green-tech-trade-war-china.html
+
 **Transcript of Trump Manhattan Trial, May 20, 2024**\
 `New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
 https://nytimes.com/interactive/2024/05/22/nyregion/trump-hush-money-trial-transcript-may-20.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/22/health/elon-musk-brain-implant-arbaugh.html
 **Dominican President Abinader Wins Re-election in a Landslide**\
 `In election results made official Tuesday night, President Luis Abinader easily won his re-election bid, helped by restrictions on Haitian migrants, a vibrant economy and an anti-corruption drive.`\
 https://nytimes.com/2024/05/22/world/americas/dominican-president-abinader-wins-election.html
-
-**Belgium’s 2024 Election: What to Know**\
-`Belgium, a small yet politically significant country, will hold federal, regional, and E.U. elections on June 9, for control of its complex, layered governance structure.`\
-https://nytimes.com/2024/05/22/world/europe/belgium-2024-election.html
-
-**Like Your Movies Odd and Grungy? Try Cultpix.**\
-`This streaming service collects low-budget, high-creativity movies with outsider status. We single out some of the best on offer.`\
-https://nytimes.com/2024/05/22/movies/cultpix-streaming-movies.html
-
-**Curry Roasted Half Chicken and Peppers for One**\
-`A solo supper that feels positively, well, positive.`\
-https://nytimes.com/2024/05/22/dining/curry-roasted-half-chicken-and-peppers-for-one.html
 
