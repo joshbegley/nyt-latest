@@ -1,3 +1,7 @@
+**In first speech since dropping out, Nikki Haley criticizes President Biden and Republicans on foreign policy.**\
+`Ms. Haley took old foes to task but did not mention Donald J. Trump.`\
+https://nytimes.com/live/2024/05/22/us/biden-trump-election/in-first-speech-since-dropping-out-nikki-haley-criticizes-president-biden-and-republicans-on-foreign-policy
+
 **Popcast (Deluxe): Billie Eilish Is Done Hiding**\
 `A conversation about the pop singer’s new album, “Hit Me Hard and Soft.”`\
 https://nytimes.com/2024/05/22/arts/music/billie-eilish-popcast-deluxe.html
