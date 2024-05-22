@@ -1,3 +1,7 @@
+**Mayor Adams Fills a Key Commission With Allies and Donors**\
+`Mayor Eric Adams named 13 people to a prominent city commission that could remake city government. Most are loyalists or have ties to his inner circle.`\
+https://nytimes.com/2024/05/22/nyregion/adams-city-charter-commission.html
+
 **Abortion Pills May Become Controlled Substances in Louisiana**\
 `A bill that is expected to pass would impose prison time and thousands of dollars in fines on people possessing the pills without a prescription.`\
 https://nytimes.com/2024/05/22/health/abortion-pills-louisiana-controlled-substance.html
@@ -19,7 +23,7 @@ https://nytimes.com/2024/05/22/us/politics/economy-inflation-election.html
 https://nytimes.com/2024/05/22/us/politics/trump-documents-nauta-cannon.html
 
 **Inside the White House, a Debate Over Letting Ukraine Shoot U.S. Weapons Into Russia**\
-`After a sobering trip to Kyiv, Secretary of State Antony J. Blinken is urging the president to lift some restrictions on how Ukraine can use American arms.`\
+`After a sobering trip to Kyiv, Secretary of State Antony J. Blinken is urging the president to lift restrictions on how Ukraine can use American arms.`\
 https://nytimes.com/2024/05/22/us/politics/white-house-ukraine-weapons-russia.html
 
 **Are Ayo Edebiri and Jeremy Allen White Dating?**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/us/scrubs-eric-weinberg-charges.html
 **Kennedy Adviser Leaves Campaign, Citing ‘Hateful and Divisive Atmosphere’**\
 `Angela Stanton King, a former Trump supporter who joined the campaign in December, was a high-profile figure in Robert F. Kennedy Jr.’s circle.`\
 https://nytimes.com/2024/05/22/us/politics/rfk-jr-2024-election-adviser.html
-
-**The Words That Defined the Week in Donald J. Trump’s Trial**\
-`An aggressive cross-examination, a judge’s scolding and then a pause before the jury considers the case.`\
-https://nytimes.com/2024/05/22/nyregion/trump-hush-money-trial-cohen-costello.html
 

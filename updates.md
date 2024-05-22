@@ -1,3 +1,11 @@
+**Mayor Adams Fills a Key Commission With Allies and Donors**\
+`Mayor Eric Adams named 13 people to a prominent city commission that could remake city government. Most are loyalists or have ties to his inner circle.`\
+https://nytimes.com/2024/05/22/nyregion/adams-city-charter-commission.html
+
+**Inside the White House, a Debate Over Letting Ukraine Shoot U.S. Weapons Into Russia**\
+`After a sobering trip to Kyiv, Secretary of State Antony J. Blinken is urging the president to lift restrictions on how Ukraine can use American arms.`\
+https://nytimes.com/2024/05/22/us/politics/white-house-ukraine-weapons-russia.html
+
 **Abortion Pills May Become Controlled Substances in Louisiana**\
 `A bill that is expected to pass would impose prison time and thousands of dollars in fines on people possessing the pills without a prescription.`\
 https://nytimes.com/2024/05/22/health/abortion-pills-louisiana-controlled-substance.html
