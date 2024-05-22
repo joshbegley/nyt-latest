@@ -1,3 +1,7 @@
+**Corey Lewandowski, Trump’s First Campaign Manager, Is Brought Back for G.O.P. Convention**\
+`Mr. Lewandowski was pushed out of a pro-Trump super PAC that he had helped lead in 2021 after the wife of a donor accused him of making unwanted sexual advances.`\
+https://nytimes.com/2024/05/21/us/politics/corey-lewandowski-trump-convention-rnc.html
+
 **Newborn babies, doctors and patients are trapped at a hospital in northern Gaza.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2024/04/22/world/israel-gaza-war-hamas/newborn-babies-doctors-and-patients-are-trapped-at-a-hospital-in-northern-gaza
