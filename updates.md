@@ -1,3 +1,7 @@
+**The Words That Defined the Week in Donald J. Trump’s Trial**\
+`An aggressive cross-examination, a judge’s scolding and then a pause before the jury considers the case.`\
+https://nytimes.com/2024/05/22/nyregion/trump-hush-money-trial-cohen-costello.html
+
 **Haley Says She Will Vote for Trump, in Her First Appearance Since Dropping Out**\
 `Nikki Haley had sharp words for President Biden and some Republicans.`\
 https://nytimes.com/2024/05/22/us/politics/nikki-haley-biden-trump.html
