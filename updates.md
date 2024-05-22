@@ -1,3 +1,7 @@
+**Up to this Point**\
+`Martin Schneider calls ’em like he sees ’em.`\
+https://nytimes.com/2024/05/21/crosswords/daily-puzzle-2024-05-22.html
+
 **Georgia Supreme Court Justice Fends Off Challenger Who Made Abortion Rights a Focus**\
 `Justice Andrew Pinson, who was appointed by the state’s Republican governor, faced an opponent who argued that the Georgia Constitution guaranteed the right to an abortion.`\
 https://nytimes.com/2024/05/21/us/politics/georgia-supreme-court-andrew-pinson.html
