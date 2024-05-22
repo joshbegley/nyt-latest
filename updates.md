@@ -1,3 +1,7 @@
+**Word of the Day: coalesce**\
+`This word has appeared in 113 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/22/learning/word-of-the-day-coalesce.html
+
 **Trump Prosecutor Wins, McCarthy’s Successor Is Set and Other Election Takeaways**\
 `In Georgia, the prosecutor and judge in Donald Trump’s criminal case won their races easily, and a Trump-backed California legislator will finish former Speaker Kevin McCarthy’s term.`\
 https://nytimes.com/2024/05/22/us/politics/elections-california-oregon-biden.html

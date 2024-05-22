@@ -1,3 +1,7 @@
+**Word of the Day: coalesce**\
+`This word has appeared in 113 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/22/learning/word-of-the-day-coalesce.html
+
 **Trump Prosecutor Wins, McCarthy’s Successor Is Set and Other Election Takeaways**\
 `In Georgia, the prosecutor and judge in Donald Trump’s criminal case won their races easily, and a Trump-backed California legislator will finish former Speaker Kevin McCarthy’s term.`\
 https://nytimes.com/2024/05/22/us/politics/elections-california-oregon-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/21/us/politics/doug-emhoff-trump-antisemite.html
 **Corrections: May 22, 2024**\
 `Corrections that appeared in print on Wednesday, May 22, 2024.`\
 https://nytimes.com/2024/05/21/pageoneplus/corrections-may-22-2024.html
-
-**Midwest Storms Destroy Homes**\
-`The storms hit Iowa particularly hard, leaving a mess of debris in Greenfield. In the nearby city of Corning, a tornado touched down.`\
-https://nytimes.com/video/us/100000009481580/tornado-storms-midwest-weather-forecast.html
 
