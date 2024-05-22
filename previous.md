@@ -1,3 +1,11 @@
+**Despite Setback, Neuralink’s First Brain-Implant Patient Stays Upbeat**\
+`Elon Musk’s first human experiment with a computerized brain device developed significant flaws, but the subject, who is paralyzed, has few regrets.`\
+https://nytimes.com/2024/05/22/health/elon-musk-brain-implant-arbaugh.html
+
+**Dominican President Abinader Wins Re-Election in a Landslide**\
+`In election results made official Tuesday night, President Luis Abinader easily won his re-election bid, helped by restrictions on Haitian migrants, a vibrant economy and an anti-corruption drive.`\
+https://nytimes.com/2024/05/22/world/americas/dominican-president-abinader-wins-election.html
+
 **Belgium’s 2024 Election: What to Know**\
 `Belgium, a small yet politically significant country, will hold federal, regional, and E.U. elections on June 9, for control of its complex, layered governance structure.`\
 https://nytimes.com/2024/05/22/world/europe/belgium-2024-election.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/22/crosswords/wordle-review-1068.html
 **Kit Connor and Rachel Zegler Headline Broadway ‘Romeo and Juliet’**\
 `A production featuring the screen stars, with music by Jack Antonoff, will open in October at Circle in the Square.`\
 https://nytimes.com/2024/05/22/theater/kit-connor-rachel-zegler-romeo-juliet-broadway.html
-
-**What We Know About the Ambani Wedding**\
-`Anant Ambani and Radhika Merchant’s pre-wedding in March caused a stir when photos and videos of their lavish celebration circulated on social media. Here’s what we know about their July nuptials.`\
-https://nytimes.com/2024/05/22/fashion/weddings/ambani-wedding.html
-
-**Exit the Modest Merchant Prince**\
-`Bruce Nordstrom was both the force behind his family’s multibillion-dollar retail dynasty and a stealth godfather to the fashion trade.`\
-https://nytimes.com/2024/05/22/style/who-is-bruce-nordstrom.html
 

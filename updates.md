@@ -1,3 +1,11 @@
+**Despite Setback, Neuralink’s First Brain-Implant Patient Stays Upbeat**\
+`Elon Musk’s first human experiment with a computerized brain device developed significant flaws, but the subject, who is paralyzed, has few regrets.`\
+https://nytimes.com/2024/05/22/health/elon-musk-brain-implant-arbaugh.html
+
+**Dominican President Abinader Wins Re-Election in a Landslide**\
+`In election results made official Tuesday night, President Luis Abinader easily won his re-election bid, helped by restrictions on Haitian migrants, a vibrant economy and an anti-corruption drive.`\
+https://nytimes.com/2024/05/22/world/americas/dominican-president-abinader-wins-election.html
+
 **Belgium’s 2024 Election: What to Know**\
 `Belgium, a small yet politically significant country, will hold federal, regional, and E.U. elections on June 9, for control of its complex, layered governance structure.`\
 https://nytimes.com/2024/05/22/world/europe/belgium-2024-election.html
