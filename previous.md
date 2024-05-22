@@ -1,3 +1,7 @@
+**Like Your Movies Odd and Grungy? Try Cultpix.**\
+`This streaming service collects low-budget, high-creativity movies with outsider status. We single out some of the best on offer.`\
+https://nytimes.com/2024/05/22/movies/cultpix-streaming-movies.html
+
 **Curry Roasted Half Chicken and Peppers for One**\
 `A solo supper that feels positively, well, positive.`\
 https://nytimes.com/2024/05/22/dining/curry-roasted-half-chicken-and-peppers-for-one.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/style/who-is-bruce-nordstrom.html
 **New York’s Palace Theater Gets an $80 Million Refresh (and 30 Feet Higher)**\
 `The Times Square landmark has been restored and refurbished. Take a look.`\
 https://nytimes.com/card/2024/05/22/theater/palace-theater-renovation
-
-**How Should the Stories of Migrants Be Told?**\
-`“The Silence of the Choir,” a novel by Mohamed Mbougar Sarr, follows 72 African refugees who have arrived in a Sicilian village.`\
-https://nytimes.com/2024/05/22/books/review/mohamed-mbougar-sarr-silence-of-the-choir.html
 
