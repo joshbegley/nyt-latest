@@ -1,3 +1,7 @@
+**Vials of Blood Sent to R.N.C. Headquarters Prompt Lockdown**\
+`Hazardous materials teams responded to the Republican National Committee headquarters in Washington after a suspicious package was found.`\
+https://nytimes.com/2024/05/22/us/politics/rnc-lockdown-blood.html
+
 **Uvalde Settles With Victims’ Families Over School Shooting**\
 `The Texas city agreed to pay $2 million to families of schoolchildren who were shot in a 2022 massacre, and to overhaul its police force. The families are also suing other agencies.`\
 https://nytimes.com/2024/05/22/us/uvalde-lawsuit-settlement.html
