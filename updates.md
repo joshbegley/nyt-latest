@@ -1,3 +1,7 @@
+**Georgia Supreme Court Justice Fends Off Challenger Who Made Abortion Rights a Focus**\
+`Justice Andrew Pinson, who was appointed by the state’s Republican governor, faced an opponent who argued that the Georgia Constitution guaranteed the right to an abortion.`\
+https://nytimes.com/2024/05/21/us/politics/georgia-supreme-court-andrew-pinson.html
+
 **Newborn babies, doctors and patients are trapped at a hospital in northern Gaza.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2024/05/21/world/israel-gaza-war-hamas-rafah/newborn-babies-doctors-and-patients-are-trapped-at-a-hospital-in-northern-gaza

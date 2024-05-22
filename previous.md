@@ -1,3 +1,7 @@
+**Georgia Supreme Court Justice Fends Off Challenger Who Made Abortion Rights a Focus**\
+`Justice Andrew Pinson, who was appointed by the state’s Republican governor, faced an opponent who argued that the Georgia Constitution guaranteed the right to an abortion.`\
+https://nytimes.com/2024/05/21/us/politics/georgia-supreme-court-andrew-pinson.html
+
 **First Aid Basics Everyone Should Know**\
 `This expert advice will help you attend to common injuries like cuts, burns and sprains — and know when to head to the doctor.`\
 https://nytimes.com/interactive/2024/05/21/well/live/first-aid-cuts-burns-rashes.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/us/politics/republicans-noncitizen-voting-false-n
 **Adams vs. Adams: A Power Struggle in New York City Turns Ugly**\
 `The City Council speaker, Adrienne Adams, was expected to set in motion a plan to weaken Mayor Eric Adams’s authority. The mayor quickly fought back.`\
 https://nytimes.com/2024/05/21/nyregion/city-council-eric-adams.html
-
-**Sean Combs Accused of Sexual Assault in New Lawsuit**\
-`A former model sued the hip-hop mogul and accused him of forcing her to perform oral sex in 2003 at his recording studio. Mr. Combs has not yet responded.`\
-https://nytimes.com/2024/05/21/arts/music/sean-combs-diddy-accused-oral-sex-lawsuit.html
 
