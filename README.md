@@ -1,3 +1,11 @@
+**One of America’s Most Democratic Counties Prepares for a Trump Visit**\
+`Donald J. Trump’s first rally in New York in eight years will be in the Bronx. Borough residents had mixed reactions.`\
+https://nytimes.com/2024/05/22/nyregion/trump-bronx-rally-reaction.html
+
+**Thursday Briefing: How ‘America’s Monster’ Operated in Afghanistan**\
+`Plus, three European countries recognize a Palestinian state.`\
+https://nytimes.com/2024/05/22/world/asia/palestinian-afghanistan-norway-britain-asia.html
+
 **What’s in Our Queue? Kacey Musgraves and More**\
 `I’ve been a reporter at the Paris bureau of The New York Times for nearly a decade. Here are five things that I’ve been enjoying recently.`\
 https://nytimes.com/interactive/2024/05/22/arts/editor-recommendations-musgraves.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/22/realestate/whats-it-like-living-near-elevated-tra
 **Democrats See Wins in Losing Votes**\
 `The party is pursuing a “sword and shield” political strategy as Senator Chuck Schumer pushes showdown votes on border security and abortion rights ahead of this year’s elections.`\
 https://nytimes.com/2024/05/22/us/democrats-see-wins-in-losing-votes.html
-
-**The Connections Companion No. 347**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/22/crosswords/connections-companion-347.html
-
-**Fed Minutes Show Officials Were Wary About Inflation at May Meeting**\
-`Federal Reserve policymakers were still willing to raise rates if the economy surprised them, notes from their most recent meeting suggested.`\
-https://nytimes.com/2024/05/22/business/economy/federal-reserve-minutes-may.html
 
