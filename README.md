@@ -1,3 +1,7 @@
+**Haley Says She Will Vote for Trump in the November Election**\
+`In her first public appearance since dropping her Republican presidential bid, Nikki Haley, the former Governor of South Carolina, said she would vote for former President Donald J. Trump.`\
+https://nytimes.com/video/us/politics/100000009483735/haley-trump-election.html
+
 **How Today’s Economy Could Matter in November**\
 `Some pollsters and economists believe voters form their perceptions of the economy over time.`\
 https://nytimes.com/2024/05/22/us/politics/economy-inflation-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/business/media/openai-news-corp-content-deal.html
 **Three European Nations Recognized a Palestinian State**\
 `Also, another provocative flag was flown at Justice Alito’s home. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/05/22/briefing/europe-palestinian-state-israel-migrant-evictions.html
-
-**Shirley Conran, Author Best Known for the Steamy ‘Lace,’ Dies at 91**\
-`A divorced single mother, she started out to write a sex guide for schoolgirls and ended up with a tale of female autonomy that became a best-selling novel.`\
-https://nytimes.com/2024/05/22/books/shirley-conran-dead.html
 
