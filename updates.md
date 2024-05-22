@@ -1,3 +1,7 @@
+**‘Evil’ Review: Is It Satan, or Is It Us? It’s Time to Find Out.**\
+`Michelle and Robert King’s macabre comedy about the possibility of demonic possession and the certainty of evil begins its final season.`\
+https://nytimes.com/2024/05/22/arts/television/evil-review.html
+
 **Two Wild Movies at Cannes Have Everybody Arguing**\
 `“The Substance” features Demi Moore in go-for-broke mode, while “Emilia Pérez” is a musical crime drama that defies description.`\
 https://nytimes.com/2024/05/22/movies/cannes-the-substance-emilia-perez.html

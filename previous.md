@@ -1,3 +1,7 @@
+**‘Evil’ Review: Is It Satan, or Is It Us? It’s Time to Find Out.**\
+`Michelle and Robert King’s macabre comedy about the possibility of demonic possession and the certainty of evil begins its final season.`\
+https://nytimes.com/2024/05/22/arts/television/evil-review.html
+
 **Two Wild Movies at Cannes Have Everybody Arguing**\
 `“The Substance” features Demi Moore in go-for-broke mode, while “Emilia Pérez” is a musical crime drama that defies description.`\
 https://nytimes.com/2024/05/22/movies/cannes-the-substance-emilia-perez.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/22/world/israel-gaza-palestinian-news/health-of
 **America Is Losing the Green Tech Race to China**\
 `The Biden administration seems to be in denial about China’s staggering advantage.`\
 https://nytimes.com/2024/05/22/opinion/america-green-tech-trade-war-china.html
-
-**Transcript of Trump Manhattan Trial, May 20, 2024**\
-`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
-https://nytimes.com/interactive/2024/05/22/nyregion/trump-hush-money-trial-transcript-may-20.html
 
