@@ -1,3 +1,15 @@
+**U.K. Inflation Falls to 2.3 Percent, Lowest in Three Years**\
+`The decline, which was less than economists expected, is  nearing the Bank of England’s 2 percent target.`\
+https://nytimes.com/2024/05/22/business/uk-inflation.html
+
+**Norway’s recognition carries significance because of its role in 1993 talks.**\
+`By Emma Bubola`\
+https://nytimes.com/live/2024/05/22/world/israel-gaza-war-hamas-rafah/norways-recognition-carries-significance-because-of-its-role-in-1993-talks
+
+**Norway Recognizes a Palestinian State**\
+`The Scandinavian nation joined scores of others no longer willing to wait for Israel to negotiate an end to its decades of occupation of Palestinian territories.`\
+https://nytimes.com/live/2024/05/22/world/israel-gaza-war-hamas-rafah
+
 **French Leader Heads to Pacific Outpost Gripped by Deadly Unrest**\
 `It remains unclear what strategy President Emmanuel Macron of France will pursue to defuse tensions in New Caledonia, where six people have died in recent days.`\
 https://nytimes.com/2024/05/22/world/asia/france-macron-new-caledonia.html
