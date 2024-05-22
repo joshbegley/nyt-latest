@@ -1,3 +1,7 @@
+**Transcript of Trump Manhattan Trial, May 20, 2024**\
+`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
+https://nytimes.com/interactive/2024/05/22/nyregion/trump-hush-money-trial-transcript-may-20.html
+
 **‘Where Did Justine Go?’ One Woman Disappears Into Devotion**\
 `Justine Payton was drawn to a Hare Krishna ashram for its yoga, meditation and vegan meals. She’s still figuring out what went wrong.`\
 https://nytimes.com/2024/05/22/us/where-did-justine-go-one-woman-disappears-into-devotion.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/movies/cultpix-streaming-movies.html
 **Curry Roasted Half Chicken and Peppers for One**\
 `A solo supper that feels positively, well, positive.`\
 https://nytimes.com/2024/05/22/dining/curry-roasted-half-chicken-and-peppers-for-one.html
-
-**Judge Blocks Attempt to Sell Graceland, at Least for Now**\
-`Elvis’s granddaughter, the actress Riley Keough, had filed a lawsuit seeking to stop what her lawyers said was a fraudulent auction of her family home.`\
-https://nytimes.com/2024/05/22/arts/music/graceland-sale-elvis-riley-keough.html
 
