@@ -1,3 +1,7 @@
+**First Aid Basics Everyone Should Know**\
+`This expert advice will help you attend to common injuries like cuts, burns and sprains — and know when to head to the doctor.`\
+https://nytimes.com/interactive/2024/05/21/well/live/first-aid-cuts-burns-rashes.html
+
 **No Gaza Aid Delivered Through U.S.-Built Pier Has Been Distributed, Pentagon Says**\
 `The temporary pier is one of few remaining entry points for aid shipments since Israel began an incursion into Rafah, in southern Gaza, earlier this month.`\
 https://nytimes.com/2024/05/21/world/middleeast/gaza-aid-pier-food.html
