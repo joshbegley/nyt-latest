@@ -1,3 +1,15 @@
+**I’m a Retired Psychiatrist. Is It OK to Befriend a Former Patient?**\
+`The magazine’s Ethicist columnist on professional boundaries.`\
+https://nytimes.com/2024/05/22/magazine/retired-psychiatrist-former-patient-ethics.html
+
+**Frank Shrontz, 92, Dies; Led Boeing in the Last of Its Golden Years**\
+`Known for his leadership his and commitment to company culture, he left as chief executive in 1996, opening the door to a corporate makeover.`\
+https://nytimes.com/2024/05/22/business/frank-shrontz-dead.html
+
+**Judge Blocks Attempt to Sell Graceland, at Least for Now**\
+`Elvis’s granddaughter, the actress Riley Keough, had filed a lawsuit seeking to stop what her lawyers said was a fraudulent auction of her family home.`\
+https://nytimes.com/2024/05/22/arts/music/graceland-sale-elvis-riley-keough.html
+
 **Despite Setback, Neuralink’s First Brain-Implant Patient Stays Upbeat**\
 `Elon Musk’s first human experiment with a computerized brain device developed significant flaws, but the subject, who is paralyzed, has few regrets.`\
 https://nytimes.com/2024/05/22/health/elon-musk-brain-implant-arbaugh.html

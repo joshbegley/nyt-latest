@@ -1,3 +1,11 @@
+**I’m a Retired Psychiatrist. Is It OK to Befriend a Former Patient?**\
+`The magazine’s Ethicist columnist on professional boundaries.`\
+https://nytimes.com/2024/05/22/magazine/retired-psychiatrist-former-patient-ethics.html
+
+**Frank Shrontz, 92, Dies; Led Boeing in the Last of Its Golden Years**\
+`Known for his leadership his and commitment to company culture, he left as chief executive in 1996, opening the door to a corporate makeover.`\
+https://nytimes.com/2024/05/22/business/frank-shrontz-dead.html
+
 **Despite Setback, Neuralink’s First Brain-Implant Patient Stays Upbeat**\
 `Elon Musk’s first human experiment with a computerized brain device developed significant flaws, but the subject, who is paralyzed, has few regrets.`\
 https://nytimes.com/2024/05/22/health/elon-musk-brain-implant-arbaugh.html
@@ -19,7 +27,7 @@ https://nytimes.com/2024/05/22/movies/cultpix-streaming-movies.html
 https://nytimes.com/2024/05/22/dining/curry-roasted-half-chicken-and-peppers-for-one.html
 
 **Judge Blocks Attempt to Sell Graceland, at Least for Now**\
-`Elvis’s granddaughter, the actress Riley Keough, had filed a lawsuit seeking to stop what her lawyers said was a fraudulent auction off her family home.`\
+`Elvis’s granddaughter, the actress Riley Keough, had filed a lawsuit seeking to stop what her lawyers said was a fraudulent auction of her family home.`\
 https://nytimes.com/2024/05/22/arts/music/graceland-sale-elvis-riley-keough.html
 
 **To See the Past and Predict the Future, Try ‘Reading’ a Landscape**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/22/realestate/landscaping-gardening-neighborhood.htm
 **She Just Earned Her Doctorate at 17. Now, She’ll Go to the Prom.**\
 `Dorothy Jean Tillman II of Chicago made history as the youngest person to earn a doctoral degree in integrated behavioral health at Arizona State University.`\
 https://nytimes.com/2024/05/22/us/dorothy-jean-tillman-chicago.html
-
-**Today’s Wordle Review No. 1,068**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/22/crosswords/wordle-review-1068.html
-
-**Kit Connor and Rachel Zegler Headline Broadway ‘Romeo and Juliet’**\
-`A production featuring the screen stars, with music by Jack Antonoff, will open in October at Circle in the Square.`\
-https://nytimes.com/2024/05/22/theater/kit-connor-rachel-zegler-romeo-juliet-broadway.html
 
