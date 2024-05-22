@@ -1,3 +1,11 @@
+**Curry Roasted Half Chicken and Peppers for One**\
+`A solo supper that feels positively, well, positive.`\
+https://nytimes.com/2024/05/22/dining/curry-roasted-half-chicken-and-peppers-for-one.html
+
+**Judge Blocks Attempt to Sell Graceland, at Least for Now**\
+`Elvis’s granddaughter, the actress Riley Keough, had filed a lawsuit seeking to stop what her lawyers said was a fraudulent auction off her family home.`\
+https://nytimes.com/2024/05/22/arts/music/graceland-sale-elvis-riley-keough.html
+
 **What We Know About the Ambani Wedding**\
 `Anant Ambani and Radhika Merchant’s pre-wedding in March caused a stir when photos and videos of their lavish celebration circulated on social media. Here’s what we know about their July nuptials.`\
 https://nytimes.com/2024/05/22/fashion/weddings/ambani-wedding.html
