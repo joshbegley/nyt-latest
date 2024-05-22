@@ -1,3 +1,11 @@
+**Abortion Pills May Become Controlled Substances in Louisiana**\
+`A bill that is expected to pass would impose prison time and thousands of dollars in fines on people possessing the pills without a prescription.`\
+https://nytimes.com/2024/05/22/health/abortion-pills-louisiana-controlled-substance.html
+
+**Read the Federal Judge’s Ruling**\
+`A federal judge temporarily blocked part of a Florida law that criminalized transporting into the state anyone who lacked lawful immigration status, raising new legal questions for other states pursuing similar measures.`\
+https://nytimes.com/interactive/2024/05/22/us/florida-undocumented-immigrant-transport.html
+
 **Haley Says She Will Vote for Trump in the November Election**\
 `In her first public appearance since dropping her Republican presidential bid, Nikki Haley, the former Governor of South Carolina, said she would vote for former President Donald J. Trump.`\
 https://nytimes.com/video/us/politics/100000009483735/haley-trump-election.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/22/us/politics/rfk-jr-2024-election-adviser.html
 **The Words That Defined the Week in Donald J. Trump’s Trial**\
 `An aggressive cross-examination, a judge’s scolding and then a pause before the jury considers the case.`\
 https://nytimes.com/2024/05/22/nyregion/trump-hush-money-trial-cohen-costello.html
-
-**OpenAI Strikes a Deal to License News Corp Content**\
-`The deal gives OpenAI’s chatbots access to new and archived material from The Wall Street Journal, The New York Post, MarketWatch and Barron’s, among others.`\
-https://nytimes.com/2024/05/22/business/media/openai-news-corp-content-deal.html
-
-**Three European Nations Recognized a Palestinian State**\
-`Also, another provocative flag was flown at Justice Alito’s home. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2024/05/22/briefing/europe-palestinian-state-israel-migrant-evictions.html
 

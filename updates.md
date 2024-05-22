@@ -1,3 +1,11 @@
+**Abortion Pills May Become Controlled Substances in Louisiana**\
+`A bill that is expected to pass would impose prison time and thousands of dollars in fines on people possessing the pills without a prescription.`\
+https://nytimes.com/2024/05/22/health/abortion-pills-louisiana-controlled-substance.html
+
+**Read the Federal Judge’s Ruling**\
+`A federal judge temporarily blocked part of a Florida law that criminalized transporting into the state anyone who lacked lawful immigration status, raising new legal questions for other states pursuing similar measures.`\
+https://nytimes.com/interactive/2024/05/22/us/florida-undocumented-immigrant-transport.html
+
 **Haley Says She Will Vote for Trump in the November Election**\
 `In her first public appearance since dropping her Republican presidential bid, Nikki Haley, the former Governor of South Carolina, said she would vote for former President Donald J. Trump.`\
 https://nytimes.com/video/us/politics/100000009483735/haley-trump-election.html
