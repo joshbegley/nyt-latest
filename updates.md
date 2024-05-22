@@ -1,3 +1,7 @@
+**An Iowa Town Is Devastated by a Tornado**\
+`More than one person was killed in Greenfield, Iowa, on Tuesday when a tornado ripped through the city, destroying homes and buildings.`\
+https://nytimes.com/2024/05/22/us/tornado-greenfield-iowa-damage.html
+
 **Vials of Blood Sent to R.N.C. Headquarters Prompt Lockdown**\
 `Hazardous materials teams responded to the Republican National Committee headquarters in Washington after a suspicious package was found.`\
 https://nytimes.com/2024/05/22/us/politics/rnc-lockdown-blood.html
