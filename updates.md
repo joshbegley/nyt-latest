@@ -1,3 +1,7 @@
+**Recognizing a Palestinian State, Ireland Nods to its Own History**\
+`Simon Harris, Ireland’s prime minister, invoked his nation’s struggle for independence from Britain and its decades of violent sectarian conflict.`\
+https://nytimes.com/2024/05/22/world/middleeast/ireland-palestinian-state-history.html
+
 **House Panel Seeks F.B.I. Investigation Into Doping by Chinese Swimmers**\
 `The bipartisan request for a criminal inquiry relies on a law that gives the Justice Department the power to prosecute doping offenses that do not occur in the United States.`\
 https://nytimes.com/2024/05/22/us/politics/chinese-swimmers-doping-congress.html
