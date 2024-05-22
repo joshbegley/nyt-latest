@@ -1,3 +1,7 @@
+**First Aid Basics Everyone Should Know**\
+`This expert advice will help you attend to common injuries like cuts, burns and sprains — and know when to head to the doctor.`\
+https://nytimes.com/interactive/2024/05/21/well/live/first-aid-cuts-burns-rashes.html
+
 **No Gaza Aid Delivered Through U.S.-Built Pier Has Been Distributed, Pentagon Says**\
 `The temporary pier is one of few remaining entry points for aid shipments since Israel began an incursion into Rafah, in southern Gaza, earlier this month.`\
 https://nytimes.com/2024/05/21/world/middleeast/gaza-aid-pier-food.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/nyregion/city-council-eric-adams.html
 **Sean Combs Accused of Sexual Assault in New Lawsuit**\
 `A former model sued the hip-hop mogul and accused him of forcing her to perform oral sex in 2003 at his recording studio. Mr. Combs has not yet responded.`\
 https://nytimes.com/2024/05/21/arts/music/sean-combs-diddy-accused-oral-sex-lawsuit.html
-
-**Gérard Depardieu Punches the ‘King of Paparazzi’ Outside Rome Cafe**\
-`Mr. Depardieu, 75, was seen striking the 79-year-old photographer Rino Barillari on the Via Veneto.`\
-https://nytimes.com/2024/05/21/movies/gerard-depardieu-rino-barillari.html
 
