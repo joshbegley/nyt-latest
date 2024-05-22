@@ -1,3 +1,23 @@
+**Who Was Abdul Raziq?**\
+`Uncovering the brutal career of a crucial American ally — and the hidden truths of the war in Afghanistan.`\
+https://nytimes.com/2024/05/22/magazine/abdul-raziq-afghanistan-war.html
+
+**New York Begins a New Wave of Evictions From Migrant Shelters**\
+`The evictions are part of an aggressive strategy to force some adult migrants out of city shelters after 30 or 60 days.`\
+https://nytimes.com/2024/05/22/nyregion/migrant-evictions-shelter-adams.html
+
+**New Stamp Design**\
+`This new French stamp is a scratch-and-sniff. If you could design a stamp, what would yours feature?`\
+https://nytimes.com/2024/05/22/learning/new-stamp-design.html
+
+**The Connections Companion No. 346**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/22/crosswords/connections-companion.html
+
+**Norway Recognizes a Palestinian State, Adding to Israel’s Isolation Over War**\
+`The Scandinavian nation joined scores of others that recognize Palestinian statehood, a move that Israel has long opposed.`\
+https://nytimes.com/live/2024/05/22/world/israel-gaza-war-hamas-rafah
+
 **The Algebra Problem: How Middle School Math Became a National Flashpoint**\
 `Top students can benefit greatly by being offered the subject early. But many districts offer few Black and Latino eighth graders a chance to study it.`\
 https://nytimes.com/2024/05/22/nyregion/middle-school-math-algebra.html
