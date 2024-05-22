@@ -20,7 +20,7 @@ https://nytimes.com/2024/05/21/us/politics/corey-lewandowski-trump-convention-rn
 
 **Newborn babies, doctors and patients are trapped at a hospital in northern Gaza.**\
 `By Anushka Patil`\
-https://nytimes.com/live/2024/04/22/world/israel-gaza-war-hamas/newborn-babies-doctors-and-patients-are-trapped-at-a-hospital-in-northern-gaza
+https://nytimes.com/live/2024/05/21/world/israel-gaza-war-hamas-rafah/newborn-babies-doctors-and-patients-are-trapped-at-a-hospital-in-northern-gaza
 
 **House G.O.P. Moves to Crack Down on Noncitizen Voting, Sowing False Narrative**\
 `The bills under consideration in the House have virtually no chance of becoming law, but Republicans are using them to amplify former President Donald J. Trump’s false claims of widespread illegal voting by noncitizens.`\
