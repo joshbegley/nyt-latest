@@ -1,3 +1,7 @@
+**Doug Emhoff Calls Trump a ‘Known Antisemite’ as Biden Team Steps Up Attacks**\
+`The remarks by Mr. Emhoff, the husband of Vice President Kamala Harris, represented an escalation of the Biden campaign’s attacks on Donald Trump over his language about Jews.`\
+https://nytimes.com/2024/05/21/us/politics/doug-emhoff-trump-antisemite.html
+
 **Corrections: May 22, 2024**\
 `Corrections that appeared in print on Wednesday, May 22, 2024.`\
 https://nytimes.com/2024/05/21/pageoneplus/corrections-may-22-2024.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/us/politics/noncitizen-voting-explainer.html
 **Trump Does Not Take the Stand, and the Defense Rests**\
 `The defense rested its case after Donald J. Trump declined to take the stand at his criminal trial. Jonah Bromwich, a criminal justice reporter at The New York Times, gives his takeaways.`\
 https://nytimes.com/video/nyregion/100000009481263/trump-does-not-take-the-stand-and-the-defense-rests.html
-
-**Corey Lewandowski, Trump’s First Campaign Manager, Is Brought Back for G.O.P. Convention**\
-`Mr. Lewandowski was pushed out of a pro-Trump super PAC that he had helped lead in 2021 after the wife of a donor accused him of making unwanted sexual advances.`\
-https://nytimes.com/2024/05/21/us/politics/corey-lewandowski-trump-convention-rnc.html
 
