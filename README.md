@@ -18,13 +18,13 @@ https://nytimes.com/2024/05/22/opinion/trump-history-transformative-president.ht
 `Charged with defrauding thousands of investors in the U.S. and overseas of more than $1 billion, Guo Wengui could face decades in prison.`\
 https://nytimes.com/2024/05/22/us/guo-wengui-fraud-trial.html
 
-**Kenyan President’s State Visit: An Antidote to U.S. Troubles in Africa?**\
-`The White House is hosting President William Ruto of Kenya for a state dinner this week, an embrace that both countries urgently need.`\
-https://nytimes.com/2024/05/22/world/africa/kenya-president-ruto-washington-visit.html
-
 **Peter Gallagher’s Marriage Advice? Don’t Get Divorced.**\
 `Having a decades-long marriage in Hollywood is rare, but actor Peter Gallagher has managed to make it 41 years with his wife, Paula Harwood.`\
 https://nytimes.com/2024/05/22/podcasts/peter-gallaghers-marriage-advice-dont-get-divorced.html
+
+**Kenyan President’s State Visit: An Antidote to U.S. Troubles in Africa?**\
+`The White House is hosting President William Ruto of Kenya for a state dinner this week, an embrace that both countries urgently need.`\
+https://nytimes.com/2024/05/22/world/africa/kenya-president-ruto-washington-visit.html
 
 **Schumer Plans Vote on Contraception Access, Teeing Up a Campaign Issue**\
 `Democrats are planning to spotlight Republicans’ opposition to legislation protecting birth control access nationwide, as part of an election-year push.`\
