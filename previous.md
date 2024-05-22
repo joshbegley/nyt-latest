@@ -1,3 +1,7 @@
+**Today’s Wordle Review No. 1,069**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/22/crosswords/wordle-review-1069.html
+
 **Spain, Norway and Ireland Recognize Palestinian Statehood**\
 `The closely coordinated announcements by the three nations served as a rebuke to Israel.`\
 https://nytimes.com/video/world/100000009482799/palestine-spain-norway-ireland.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/world/middleeast/europe-israel-palestinian-state.
 **Western Europe Is Starting to Send a Vital Warning to Israel**\
 `Netanyahu’s government can’t ignore what the world is saying about the need for a Palestinian state.`\
 https://nytimes.com/2024/05/22/opinion/europe-palestine-recognized-israel.html
-
-**New footage is released of Hamas fighters taking female soldiers hostage.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/05/22/world/israel-gaza-palestinian-news/new-footage-is-released-of-hamas-fighters-taking-female-soldiers-hostage
 
