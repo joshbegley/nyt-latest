@@ -1,3 +1,7 @@
+**Recognizing a Palestinian State, Ireland Nods to its Own History**\
+`Simon Harris, Ireland’s prime minister, invoked his nation’s struggle for independence from Britain and its decades of violent sectarian conflict.`\
+https://nytimes.com/2024/05/22/world/middleeast/ireland-palestinian-state-history.html
+
 **House Panel Seeks F.B.I. Investigation Into Doping by Chinese Swimmers**\
 `The bipartisan request for a criminal inquiry relies on a law that gives the Justice Department the power to prosecute doping offenses that do not occur in the United States.`\
 https://nytimes.com/2024/05/22/us/politics/chinese-swimmers-doping-congress.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/21/opinion/thepoint/trump-unified-reich-campaig
 **A Consequential President for All the Wrong Reasons**\
 `Trump has changed everything and nothing.`\
 https://nytimes.com/2024/05/22/opinion/trump-history-transformative-president.html
-
-**Fraud Trial to Begin for Chinese Billionaire Who Allied Himself With America’s Right**\
-`Charged with defrauding thousands of investors in the U.S. and overseas of more than $1 billion, Guo Wengui could face decades in prison.`\
-https://nytimes.com/2024/05/22/us/guo-wengui-fraud-trial.html
 
