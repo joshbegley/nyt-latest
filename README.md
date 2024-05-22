@@ -10,8 +10,8 @@ https://nytimes.com/2024/05/22/us/politics/hunter-biden-tax-trial-delayed.html
 `The Silicon Valley company was again lifted by sales of its artificial intelligence chips, but it faces growing competition and heightened expectations.`\
 https://nytimes.com/2024/05/22/technology/nvidia-quarterly-earnings-results.html
 
-**In first speech since dropping out, Nikki Haley criticizes President Biden and Republicans on foreign policy.**\
-`Ms. Haley took old foes to task but did not mention Donald J. Trump.`\
+**Haley Says She Will Vote for Trump, in Her First Appearance Since Dropping Out**\
+`Nikki Haley had sharp words for President Biden and some Republicans.`\
 https://nytimes.com/2024/05/22/us/politics/in-first-speech-since-dropping-out-nikki-haley-criticizes-president-biden-and-republicans-on-foreign-policy.html
 
 **Popcast (Deluxe): Billie Eilish Is Done Hiding**\
