@@ -1,3 +1,7 @@
+**Staffing Crisis at Federal Prisons Highlighted in Oregon**\
+`Delays for medical care were severe enough to force one inmate at the prison to fake a suicide attempt to obtain treatment for a serious infection.`\
+https://nytimes.com/2024/05/22/us/politics/oregon-prison-staffing-shortage.html
+
 **Hundreds Added to World War II Death Toll of a Small English Channel Island**\
 `A panel of academics said it found more conclusive evidence of how many people were killed during the Nazi occupation of Alderney, one of the Channel Islands in British territory.`\
 https://nytimes.com/2024/05/22/world/europe/nazi-wwii-deaths-alderney.html
