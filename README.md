@@ -1,3 +1,7 @@
+**Power Struggle in Vietnam Brings Third President in Less Than 2 Years**\
+`But it remains unclear whether Gen. To Lam, the new president, can rise to the post of the top leader, the chief of the Vietnamese Communist Party.`\
+https://nytimes.com/2024/05/21/world/asia/vietnam-president-lam.html
+
 **Doug Emhoff Calls Trump a ‘Known Antisemite’ as Biden Team Steps Up Attacks**\
 `The remarks by Mr. Emhoff, the husband of Vice President Kamala Harris, represented an escalation of the Biden campaign’s attacks on Donald Trump over his language about Jews.`\
 https://nytimes.com/2024/05/21/us/politics/doug-emhoff-trump-antisemite.html
