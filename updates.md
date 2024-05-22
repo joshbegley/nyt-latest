@@ -1,3 +1,7 @@
+**Frank Shrontz, 92, Dies; Led Boeing in the Last of Its Golden Years**\
+`Known for his leadership and his commitment to company culture, he left as chief executive in 1996, opening the door to a corporate makeover.`\
+https://nytimes.com/2024/05/22/business/frank-shrontz-dead.html
+
 **‘Where Did Justine Go?’ One Woman Disappears Into Devotion**\
 `Justine Payton was drawn to a Hare Krishna ashram for its yoga, meditation and vegan meals. She’s still figuring out what went wrong.`\
 https://nytimes.com/2024/05/22/us/where-did-justine-go-one-woman-disappears-into-devotion.html
