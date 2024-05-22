@@ -1,3 +1,7 @@
+**Iran’s Supreme Leader Leads Funeral Prayers for President**\
+`State TV in Iran reported that the political leader of Hamas, which Tehran has backed, was in the capital for the funeral. It was not immediately clear how many foreign dignitaries would attend.`\
+https://nytimes.com/2024/05/22/world/middleeast/iran-president-raisi-funeral.html
+
 **Spain, Norway and Ireland Recognize a Palestinian State, Adding to Israel’s Isolation Over War**\
 `The European nations joined scores of others that recognize Palestinian statehood, a move that Israel has long opposed.`\
 https://nytimes.com/live/2024/05/22/world/israel-gaza-war-hamas-rafah
