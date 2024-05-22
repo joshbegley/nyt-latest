@@ -1,3 +1,7 @@
+**Up to this Point**\
+`Martin Schneider calls ’em like he sees ’em.`\
+https://nytimes.com/2024/05/21/crosswords/daily-puzzle-2024-05-22.html
+
 **Georgia Supreme Court Justice Fends Off Challenger Who Made Abortion Rights a Focus**\
 `Justice Andrew Pinson, who was appointed by the state’s Republican governor, faced an opponent who argued that the Georgia Constitution guaranteed the right to an abortion.`\
 https://nytimes.com/2024/05/21/us/politics/georgia-supreme-court-andrew-pinson.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/05/21/world/israel-gaza-war-hamas-rafah/newborn-ba
 **House G.O.P. Moves to Crack Down on Noncitizen Voting, Sowing False Narrative**\
 `The bills under consideration in the House have virtually no chance of becoming law, but Republicans are using them to amplify former President Donald J. Trump’s false claims of widespread illegal voting by noncitizens.`\
 https://nytimes.com/2024/05/21/us/politics/republicans-noncitizen-voting-false-narrative.html
-
-**Adams vs. Adams: A Power Struggle in New York City Turns Ugly**\
-`The City Council speaker, Adrienne Adams, was expected to set in motion a plan to weaken Mayor Eric Adams’s authority. The mayor quickly fought back.`\
-https://nytimes.com/2024/05/21/nyregion/city-council-eric-adams.html
 
