@@ -1,3 +1,11 @@
+**What We Know About the Ambani Wedding**\
+`Anant Ambani and Radhika Merchant’s pre-wedding in March caused a stir when photos and videos of their lavish celebration circulated on social media. Here’s what we know about their July nuptials.`\
+https://nytimes.com/2024/05/22/fashion/weddings/what-we-know-about-the-ambani-wedding.html
+
+**Kit Connor and Rachel Zegler Headline Broadway ‘Romeo and Juliet’**\
+`A production featuring the screen stars, with music by Jack Antonoff, will open in October at Circle in the Square.`\
+https://nytimes.com/2024/05/22/theater/kit-connor-rachel-zegler-romeo-juliet-broadway.html
+
 **Exit the Modest Merchant Prince**\
 `Bruce Nordstrom was both the force behind his family’s multibillion-dollar retail dynasty and a stealth godfather to the fashion trade.`\
 https://nytimes.com/2024/05/22/style/who-is-bruce-nordstrom.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/22/style/spouse-communication-respect.html
 **‘Dropping Very Dramatically’: What Deadly Turbulence Did to a Flight**\
 `Singapore Airlines flight SQ321 was a rare instance of turbulence resulting in a death.`\
 https://nytimes.com/2024/05/22/world/asia/singapore-airlines-flight-turbulence.html
-
-**Testing the Nvidia Boom**\
-`Expectations are sky-high for the chipmaker’s latest earnings report. The company is at the center of Wall Street’s focus on artificial intelligence.`\
-https://nytimes.com/2024/05/22/business/dealbook/nvidia-earnings-artificial-intelligence.html
-
-**After a Day of Deadly Storms, Iowa Awakens to Scenes of Devastation**\
-`Severe weather destroyed much of Greenfield, where officials were continuing search and rescue work overnight to determine the death toll.`\
-https://nytimes.com/2024/05/22/weather/greenfield-iowa-tornado.html
 
