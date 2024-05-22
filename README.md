@@ -1,3 +1,7 @@
+**Review: In ‘Usus,’ Pig Latin Gets Lost in Translation**\
+`T. Adamson’s new comedy, which opens Clubbed Thumb’s popular Summerworks series at the Wild Project, is about a group of worked-up Franciscan friars.`\
+https://nytimes.com/2024/05/22/theater/usus-review.html
+
 **Judge Blocks Florida From Criminalizing Transport of Undocumented Immigrants**\
 `The provision was part of an effort to discourage unauthorized immigrants from living and working in Florida.`\
 https://nytimes.com/2024/05/22/us/florida-undocumented-immigrant-transport.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/us/hare-krishna-yoga-justine-payton.html
 **Justice Alito’s Blame-the-Wife Defense**\
 `Readers react to several articles about the upside-down flag flown at the justice’s home. Also: The taco court case; G.O.P. denial of benefits; Equinox and equity.`\
 https://nytimes.com/2024/05/22/opinion/alito-flag.html
-
-**I’m a Retired Psychiatrist. Is It OK to Befriend a Former Patient?**\
-`The magazine’s Ethicist columnist on professional boundaries.`\
-https://nytimes.com/2024/05/22/magazine/retired-psychiatrist-former-patient-ethics.html
 
