@@ -1,3 +1,11 @@
+**Hunter Biden’s Trial on Tax Charges Pushes to September**\
+`The judge presiding over the case in Los Angeles agreed to delay the start of his trial to Sept. 5.`\
+https://nytimes.com/2024/05/22/us/politics/hunter-biden-tax-trial-delayed.html
+
+**Nvidia, Powered by A.I. Boom, Reports Soaring Revenue and Profits**\
+`The Silicon Valley company was again lifted by sales of its artificial intelligence chips, but it faces growing competition and heightened expectations.`\
+https://nytimes.com/2024/05/22/technology/nvidia-quarterly-earnings-results.html
+
 **In first speech since dropping out, Nikki Haley criticizes President Biden and Republicans on foreign policy.**\
 `Ms. Haley took old foes to task but did not mention Donald J. Trump.`\
 https://nytimes.com/live/2024/05/22/us/biden-trump-election/in-first-speech-since-dropping-out-nikki-haley-criticizes-president-biden-and-republicans-on-foreign-policy
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/22/dining/quick-pizza-recipe.html
 **A Second Dairy Worker Has Contracted Bird Flu, C.D.C. Reports**\
 `The new case, in a Michigan farmworker, did not suggest that bird flu was widespread in people, health officials said, adding that the risk to the general public remained low.`\
 https://nytimes.com/2024/05/22/health/h5n1-bird-flu-dairy.html
-
-**Today’s Wordle Review No. 1,069**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/22/crosswords/wordle-review-1069.html
-
-**Spain, Norway and Ireland Recognize Palestinian Statehood**\
-`The closely coordinated announcements by the three nations served as a rebuke to Israel.`\
-https://nytimes.com/video/world/100000009482799/palestine-spain-norway-ireland.html
 

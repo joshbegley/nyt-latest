@@ -1,3 +1,11 @@
+**Hunter Biden’s Trial on Tax Charges Pushes to September**\
+`The judge presiding over the case in Los Angeles agreed to delay the start of his trial to Sept. 5.`\
+https://nytimes.com/2024/05/22/us/politics/hunter-biden-tax-trial-delayed.html
+
+**Nvidia, Powered by A.I. Boom, Reports Soaring Revenue and Profits**\
+`The Silicon Valley company was again lifted by sales of its artificial intelligence chips, but it faces growing competition and heightened expectations.`\
+https://nytimes.com/2024/05/22/technology/nvidia-quarterly-earnings-results.html
+
 **In first speech since dropping out, Nikki Haley criticizes President Biden and Republicans on foreign policy.**\
 `Ms. Haley took old foes to task but did not mention Donald J. Trump.`\
 https://nytimes.com/live/2024/05/22/us/biden-trump-election/in-first-speech-since-dropping-out-nikki-haley-criticizes-president-biden-and-republicans-on-foreign-policy
