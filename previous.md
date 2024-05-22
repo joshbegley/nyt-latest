@@ -1,6 +1,10 @@
+**Tornado Pummels Wind Turbines in Iowa**\
+`The damage was unusual, experts say, because turbines are built to withstand extreme weather. Iowa is a wind powerhouse, with thousands of turbines.`\
+https://nytimes.com/2024/05/22/climate/tornado-wind-turbines-iowa.html
+
 **The War Is Shifting Europe’s Politics Away From Israel**\
 `The recognition of Palestinian statehood by Spain, Ireland and Norway highlights the changing center of gravity, but there also are staunchly pro-Israel nations in Europe.`\
-https://nytimes.com/live/2024/05/22/world/israel-gaza-palestinian-news/europe-shifting-israel-palestine
+https://nytimes.com/2024/05/22/world/middleeast/europe-shifting-israel-palestine.html
 
 **Western Europe is Starting to Send a Vital Warning to Israel**\
 `Netanyahu’s government can’t ignore what the world is saying about the need for a Palestinian state.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/us/politics/oregon-prison-staffing-shortage.html
 **Hundreds Added to World War II Death Toll of a Small English Channel Island**\
 `A panel of academics said it found more conclusive evidence of how many people were killed during the Nazi occupation of Alderney, one of the Channel Islands in British territory.`\
 https://nytimes.com/2024/05/22/world/europe/nazi-wwii-deaths-alderney.html
-
-**Is Fluoridated Drinking Water Safe for Pregnant Women?**\
-`New research suggests a link between prenatal fluoride levels and behavioral issues in children. Experts are divided on the study’s significance.`\
-https://nytimes.com/2024/05/22/well/live/fluoride-pregnancy-water.html
 
