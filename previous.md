@@ -1,3 +1,7 @@
+**Sparring in Trump Documents Hearing Highlights Case’s Slow Pace**\
+`A prosecutor got into a heated exchange with Judge Aileen Cannon over a minor point, as the case continues to crawl.`\
+https://nytimes.com/2024/05/22/us/politics/trump-documents-nauta-cannon.html
+
 **Inside the White House, a Debate Over Letting Ukraine Shoot U.S. Weapons Into Russia**\
 `After a sobering trip to Kyiv, Secretary of State Antony J. Blinken is urging the president to lift some restrictions on how Ukraine can use American arms.`\
 https://nytimes.com/2024/05/22/us/politics/white-house-ukraine-weapons-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/books/shirley-conran-dead.html
 **Spain, Norway and Ireland Recognize Palestinian State, Further Isolating Israel**\
 `The moves, while largely symbolic, were welcomed by Palestinians and denounced by Prime Minister Benjamin Netanyahu, who called them “a prize for terrorism.”`\
 https://nytimes.com/2024/05/22/world/middleeast/spain-norway-ireland-palestinian-statehood-israel.html
-
-**Dead Monkeys Are Falling From Trees Amid Brutal Heat in Mexico**\
-`The deaths of dozens of howler monkeys may be the latest sign of the danger extreme temperatures pose to wildlife around the world.`\
-https://nytimes.com/2024/05/22/climate/howler-monkeys-mexico-heat.html
 

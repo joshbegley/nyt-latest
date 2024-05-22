@@ -1,3 +1,7 @@
+**Sparring in Trump Documents Hearing Highlights Case’s Slow Pace**\
+`A prosecutor got into a heated exchange with Judge Aileen Cannon over a minor point, as the case continues to crawl.`\
+https://nytimes.com/2024/05/22/us/politics/trump-documents-nauta-cannon.html
+
 **Inside the White House, a Debate Over Letting Ukraine Shoot U.S. Weapons Into Russia**\
 `After a sobering trip to Kyiv, Secretary of State Antony J. Blinken is urging the president to lift some restrictions on how Ukraine can use American arms.`\
 https://nytimes.com/2024/05/22/us/politics/white-house-ukraine-weapons-russia.html
