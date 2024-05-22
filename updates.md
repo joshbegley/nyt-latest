@@ -1,3 +1,7 @@
+**Spain, Norway and Ireland Recognize Palestinian Statehood**\
+`The closely coordinated announcements by the three nations served as a rebuke to Israel.`\
+https://nytimes.com/video/world/100000009482799/palestine-spain-norway-ireland.html
+
 **What’s It Like Living Near Elevated Trains? Share Your Photos and Videos.**\
 `Here’s how to share shots and footage with The New York Times for a story featuring those who live near overhead trains in New York City.`\
 https://nytimes.com/2024/05/22/realestate/whats-it-like-living-near-elevated-trains-share-your-photos-and-videos.html

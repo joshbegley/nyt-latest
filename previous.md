@@ -1,3 +1,7 @@
+**Spain, Norway and Ireland Recognize Palestinian Statehood**\
+`The closely coordinated announcements by the three nations served as a rebuke to Israel.`\
+https://nytimes.com/video/world/100000009482799/palestine-spain-norway-ireland.html
+
 **What’s It Like Living Near Elevated Trains? Share Your Photos and Videos.**\
 `Here’s how to share shots and footage with The New York Times for a story featuring those who live near overhead trains in New York City.`\
 https://nytimes.com/2024/05/22/realestate/whats-it-like-living-near-elevated-trains-share-your-photos-and-videos.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/opinion/europe-palestine-recognized-israel.html
 **New footage is released of Hamas fighters taking female soldiers hostage.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/05/22/world/israel-gaza-palestinian-news/new-footage-is-released-of-hamas-fighters-taking-female-soldiers-hostage
-
-**Trump Falsely Claims Biden Administration Was ‘Locked & Loaded’ to Kill Him**\
-`Former President Donald J. Trump misrepresented a standard Justice Department policy to claim the F.B.I. was ready to kill him when searching his home in 2022.`\
-https://nytimes.com/2024/05/22/us/politics/trump-classified-documents-case-search.html
 
