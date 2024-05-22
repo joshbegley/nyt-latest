@@ -1,3 +1,7 @@
+**U.K. Inflation Falls to 2.3 Percent, Lowest in Three Years**\
+`The decline, which was less than economists expected, is  nearing the Bank of England’s 2 percent target.`\
+https://nytimes.com/2024/05/22/business/uk-inflation.html
+
 **Norway’s recognition carries significance because of its role in 1993 talks.**\
 `By Emma Bubola`\
 https://nytimes.com/live/2024/05/22/world/israel-gaza-war-hamas-rafah/norways-recognition-carries-significance-because-of-its-role-in-1993-talks
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/world/europe/ukraine-kharkiv-russia-defense.html
 **Iran’s Use of Proxy Warfare Likely to Persist, Experts Say**\
 `The sudden death of President Ebrahim Raisi is not expected to affect the actions of groups like Hezbollah and the Houthis, which are vital to Iran’s power.`\
 https://nytimes.com/2024/05/22/world/middleeast/iran-proxies-raisi-death.html
-
-**Evacuation Point**\
-`As they evacuated from the fighting in Ukraine, the passengers already thought of what they left behind.`\
-https://nytimes.com/2024/05/22/world/europe/ukraine-kharkiv-region-evacuation.html
 
