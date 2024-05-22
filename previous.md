@@ -1,3 +1,19 @@
+**Trump Falsely Claims Biden Administration Was ‘Locked & Loaded’ to Kill Him**\
+`Former President Donald J. Trump misrepresented a standard Justice Department policy to claim the F.B.I. was ready to kill him when searching his home in 2022.`\
+https://nytimes.com/2024/05/22/us/politics/trump-classified-documents-case-search.html
+
+**Why I.C.C. Prosecutor Went Public With Arrest Warrant Requests for Hamas and Israeli Leaders**\
+`What to know about Karim Khan’s decision to seek arrest warrants for three Hamas leaders as well as Israel’s prime minister, Benjamin Netanyahu, and defense minister, Yoav Gallant.`\
+https://nytimes.com/2024/05/22/world/europe/icc-warrants-israel-hamas-khan.html
+
+**New ‘Richard III’ Raises an Old Question: Who Should Wear the Crown?**\
+`A production at the Shakespeare’s Globe theater faced criticism because a nondisabled actor plays the scheming king. But disputes like these miss the point, our critic writes.`\
+https://nytimes.com/2024/05/22/theater/richard-iii-shakespeares-globe-disability.html
+
+**Kristen Soltis Anderson**\
+`Kristen Soltis Anderson, a New York Times contributing opinion writer, covers American politics, elections, polling and the Republican Party.`\
+https://nytimes.com/column/kristen-soltis-anderson
+
 **Staffing Crisis at Federal Prisons Highlighted in Oregon**\
 `Delays for medical care were severe enough to force one inmate at the prison to fake a suicide attempt to obtain treatment for a serious infection.`\
 https://nytimes.com/2024/05/22/us/politics/oregon-prison-staffing-shortage.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/05/22/us/ucla-police-chief-removed.html
 **An Iowa Town Is Devastated by a Tornado**\
 `More than one person was killed in Greenfield, Iowa, on Tuesday when a tornado ripped through the city, destroying homes and buildings.`\
 https://nytimes.com/2024/05/22/us/tornado-greenfield-iowa-damage.html
-
-**Vials of Blood Sent to R.N.C. Headquarters Prompt Lockdown**\
-`Hazardous materials teams responded to the Republican National Committee headquarters in Washington after a suspicious package was found.`\
-https://nytimes.com/2024/05/22/us/politics/rnc-lockdown-blood.html
-
-**Uvalde Settles With Victims’ Families Over School Shooting**\
-`The Texas city agreed to pay $2 million to families of schoolchildren who were shot in a 2022 massacre, and to overhaul its police force. The families are also suing other agencies.`\
-https://nytimes.com/2024/05/22/us/uvalde-lawsuit-settlement.html
-
-**Is New Haven the Pizza Capital of the U.S.? ‘They’re Outta Their Minds.’**\
-`A congresswoman from Connecticut plans to declare New Haven the city with the “best pizza in the country” on the House floor. New York City would like a word.`\
-https://nytimes.com/2024/05/22/nyregion/new-haven-pizza-capital.html
-
-**‘Evil’ Review: Is It Satan, or Is It Us? It’s Time to Find Out.**\
-`Michelle and Robert King’s macabre comedy about the possibility of demonic possession and the certainty of evil begins its final season.`\
-https://nytimes.com/2024/05/22/arts/television/evil-review.html
 
