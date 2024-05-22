@@ -14,7 +14,7 @@ https://nytimes.com/2024/05/22/business/frank-shrontz-dead.html
 `Elon Musk’s first human experiment with a computerized brain device developed significant flaws, but the subject, who is paralyzed, has few regrets.`\
 https://nytimes.com/2024/05/22/health/elon-musk-brain-implant-arbaugh.html
 
-**Dominican President Abinader Wins Re-Election in a Landslide**\
+**Dominican President Abinader Wins Re-election in a Landslide**\
 `In election results made official Tuesday night, President Luis Abinader easily won his re-election bid, helped by restrictions on Haitian migrants, a vibrant economy and an anti-corruption drive.`\
 https://nytimes.com/2024/05/22/world/americas/dominican-president-abinader-wins-election.html
 
