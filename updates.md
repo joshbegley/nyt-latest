@@ -1,3 +1,7 @@
+**Popcast (Deluxe): Billie Eilish Is Done Hiding**\
+`A conversation about the pop singer’s new album, “Hit Me Hard and Soft.”`\
+https://nytimes.com/2024/05/22/arts/music/billie-eilish-popcast-deluxe.html
+
 **One of America’s Most Democratic Counties Prepares for a Trump Visit**\
 `Donald J. Trump’s first rally in New York in eight years will be in the Bronx. Borough residents had mixed reactions.`\
 https://nytimes.com/2024/05/22/nyregion/trump-bronx-rally-reaction.html
