@@ -1,3 +1,7 @@
+**An Iowa Town Is Devastated by a Tornado**\
+`More than one person was killed in Greenfield, Iowa, on Tuesday when a tornado ripped through the city, destroying homes and buildings.`\
+https://nytimes.com/2024/05/22/us/tornado-greenfield-iowa-damage.html
+
 **Vials of Blood Sent to R.N.C. Headquarters Prompt Lockdown**\
 `Hazardous materials teams responded to the Republican National Committee headquarters in Washington after a suspicious package was found.`\
 https://nytimes.com/2024/05/22/us/politics/rnc-lockdown-blood.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/us/florida-undocumented-immigrant-transport.html
 **‘A Completely Different Town Now’: A Community Reels From a Deadly Tornado**\
 `Multiple people died in Greenfield, Iowa, population 2,000, where search and rescue efforts were continuing on Wednesday.`\
 https://nytimes.com/2024/05/22/us/greenfield-iowa-tornado.html
-
-**Sunak Announces U.K. Elections for July 4, Months Earlier Than Expected**\
-`The opposition Labour Party has been ahead in most polls by double digits in recent months.`\
-https://nytimes.com/2024/05/22/world/europe/uk-election-sunak-politics.html
 
