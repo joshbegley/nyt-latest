@@ -1,3 +1,7 @@
+**Food delivered through the U.S.-built pier in Gaza has not been distributed, Pentagon spokesman says.**\
+`By Gaya Gupta`\
+https://nytimes.com/2024/05/21/world/middleeast/gaza-aid-pier-food.html
+
 **Here’s Why Republicans Are Focusing on Voting by Noncitizens**\
 `House Republicans are pushing legislation to crack down on voting by noncitizens, which is allowed in some local elections but illegal — and exceedingly rare — at the federal level.`\
 https://nytimes.com/2024/05/21/us/politics/noncitizen-voting-explainer.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/05/21/arts/music/sean-combs-diddy-accused-oral-sex-laws
 **Gérard Depardieu Punches the ‘King of Paparazzi’ Outside Rome Cafe**\
 `Mr. Depardieu, 75, was seen striking the 79-year-old photographer Rino Barillari on the Via Veneto.`\
 https://nytimes.com/2024/05/21/movies/gerard-depardieu-rino-barillari.html
-
-**An Attack on Justice Merchan Is an Attack on the Rule of Law**\
-`In Trump’s criminal trial, the judge has been eminently fair.`\
-https://nytimes.com/live/2024/05/21/opinion/thepoint/trump-trial-merchan-fairness
 
