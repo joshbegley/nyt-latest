@@ -1,3 +1,7 @@
+**Sunak Calls for a Snap General Election in the U.K.**\
+`Prime Minister Rishi Sunak of Britain announced July 4 as the date for general elections.`\
+https://nytimes.com/video/world/europe/100000009482728/sunak-calls-for-a-snap-general-election-in-the-uk.html
+
 **U.C.L.A. Removes Police Chief in the Wake of a Protest Melee**\
 `University of California, Los Angeles officials have been widely criticized for their failure to stop attacks on pro-Palestinian protesters at a campus demonstration.`\
 https://nytimes.com/2024/05/22/us/ucla-police-chief-removed.html

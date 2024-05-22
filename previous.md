@@ -1,3 +1,7 @@
+**Sunak Calls for a Snap General Election in the U.K.**\
+`Prime Minister Rishi Sunak of Britain announced July 4 as the date for general elections.`\
+https://nytimes.com/video/world/europe/100000009482728/sunak-calls-for-a-snap-general-election-in-the-uk.html
+
 **U.C.L.A. Removes Police Chief in the Wake of a Protest Melee**\
 `University of California, Los Angeles officials have been widely criticized for their failure to stop attacks on pro-Palestinian protesters at a campus demonstration.`\
 https://nytimes.com/2024/05/22/us/ucla-police-chief-removed.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/technology/sam-bankman-fried-transferred-jail.htm
 **Review: In ‘Usus,’ Pig Latin Gets Lost in Translation**\
 `T. Adamson’s new comedy, which opens Clubbed Thumb’s popular Summerworks series at the Wild Project, is about a group of worked-up Franciscan friars.`\
 https://nytimes.com/2024/05/22/theater/usus-review.html
-
-**Judge Blocks Florida From Criminalizing Transport of Undocumented Immigrants**\
-`The provision was part of an effort to discourage unauthorized immigrants from living and working in Florida.`\
-https://nytimes.com/2024/05/22/us/florida-undocumented-immigrant-transport.html
 

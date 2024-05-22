@@ -1,3 +1,11 @@
+**Hundreds Added to World War II Death Toll of a Small English Channel Island**\
+`A panel of academics said it found more conclusive evidence of how many people were killed during the Nazi occupation of Alderney, one of the Channel Islands in British territory.`\
+https://nytimes.com/2024/05/22/world/europe/nazi-wwii-deaths-alderney.html
+
+**Is Fluoridated Drinking Water Safe for Pregnant Women?**\
+`New research suggests a link between prenatal fluoride levels and behavioral issues in children. Experts are divided on the study’s significance.`\
+https://nytimes.com/2024/05/22/well/live/fluoride-pregnancy-water.html
+
 **Sunak Calls for a Snap General Election in the U.K.**\
 `Prime Minister Rishi Sunak of Britain announced July 4 as the date for general elections.`\
 https://nytimes.com/video/world/europe/100000009482728/sunak-calls-for-a-snap-general-election-in-the-uk.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/22/arts/television/evil-review.html
 **Two Wild Movies at Cannes Have Everybody Arguing**\
 `“The Substance” features Demi Moore in go-for-broke mode, while “Emilia Pérez” is a musical crime drama that defies description.`\
 https://nytimes.com/2024/05/22/movies/cannes-the-substance-emilia-perez.html
-
-**Sam Bankman-Fried Transferred Out of Brooklyn Jail**\
-`The FTX founder’s final destination wasn’t clear, but Mr. Bankman-Fried has told people close to him that he expected to be moved to a facility in Mendota, Calif.`\
-https://nytimes.com/2024/05/22/technology/sam-bankman-fried-transferred-jail.html
-
-**Review: In ‘Usus,’ Pig Latin Gets Lost in Translation**\
-`T. Adamson’s new comedy, which opens Clubbed Thumb’s popular Summerworks series at the Wild Project, is about a group of worked-up Franciscan friars.`\
-https://nytimes.com/2024/05/22/theater/usus-review.html
 
