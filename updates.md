@@ -1,4 +1,8 @@
 **Another Provocative Flag Was Flown at Another Alito Home**\
+`The justice’s beach house displayed an “Appeal to Heaven” flag, a symbol carried on Jan. 6 and associated with a push for a more Christian-minded government.`\
+https://nytimes.com/2024/05/22/us/justice-alito-flag-appeal-to-heaven.html
+
+**Another Provocative Flag Was Flown at Another Alito Home**\
 `The justice’s beach house displayed an “Appeal to Heaven” flag, a symbol carried on Jan. 6. and associated with a push for a more Christian-minded government.`\
 https://nytimes.com/2024/05/22/us/justice-alito-flag-appeal-to-heaven.html
 
