@@ -1,3 +1,7 @@
+**Another Provocative Flag Was Flown at Another Alito Home**\
+`The justice’s beach house displayed an “Appeal to Heaven” flag, a symbol carried on Jan. 6. and associated with a push for a more Christian-minded government.`\
+https://nytimes.com/2024/05/22/us/justice-alito-flag-appeal-to-heaven.html
+
 **Hunter Biden’s Trial on Tax Charges Pushes to September**\
 `The judge presiding over the case in Los Angeles agreed to delay the start of his trial to Sept. 5.`\
 https://nytimes.com/2024/05/22/us/politics/hunter-biden-tax-trial-delayed.html
@@ -8,7 +12,7 @@ https://nytimes.com/2024/05/22/technology/nvidia-quarterly-earnings-results.html
 
 **In first speech since dropping out, Nikki Haley criticizes President Biden and Republicans on foreign policy.**\
 `Ms. Haley took old foes to task but did not mention Donald J. Trump.`\
-https://nytimes.com/live/2024/05/22/us/biden-trump-election/in-first-speech-since-dropping-out-nikki-haley-criticizes-president-biden-and-republicans-on-foreign-policy
+https://nytimes.com/2024/05/22/us/politics/in-first-speech-since-dropping-out-nikki-haley-criticizes-president-biden-and-republicans-on-foreign-policy.html
 
 **Popcast (Deluxe): Billie Eilish Is Done Hiding**\
 `A conversation about the pop singer’s new album, “Hit Me Hard and Soft.”`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/style/gordon-parks-gala-colin-kaepernick-alicia-k
 **Melissa Clark’s Go-To Pizza Recipe for Busy Nights**\
 `This olive oil-enriched recipe is the fastest version you can make from scratch — and it’s one of the best.`\
 https://nytimes.com/2024/05/22/dining/quick-pizza-recipe.html
-
-**A Second Dairy Worker Has Contracted Bird Flu, C.D.C. Reports**\
-`The new case, in a Michigan farmworker, did not suggest that bird flu was widespread in people, health officials said, adding that the risk to the general public remained low.`\
-https://nytimes.com/2024/05/22/health/h5n1-bird-flu-dairy.html
 

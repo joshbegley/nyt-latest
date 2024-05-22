@@ -1,3 +1,11 @@
+**Another Provocative Flag Was Flown at Another Alito Home**\
+`The justice’s beach house displayed an “Appeal to Heaven” flag, a symbol carried on Jan. 6. and associated with a push for a more Christian-minded government.`\
+https://nytimes.com/2024/05/22/us/justice-alito-flag-appeal-to-heaven.html
+
+**In first speech since dropping out, Nikki Haley criticizes President Biden and Republicans on foreign policy.**\
+`Ms. Haley took old foes to task but did not mention Donald J. Trump.`\
+https://nytimes.com/2024/05/22/us/politics/in-first-speech-since-dropping-out-nikki-haley-criticizes-president-biden-and-republicans-on-foreign-policy.html
+
 **Hunter Biden’s Trial on Tax Charges Pushes to September**\
 `The judge presiding over the case in Los Angeles agreed to delay the start of his trial to Sept. 5.`\
 https://nytimes.com/2024/05/22/us/politics/hunter-biden-tax-trial-delayed.html
