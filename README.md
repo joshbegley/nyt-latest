@@ -1,3 +1,11 @@
+**After a Day of Deadly Storms, Iowa Awakens to Scenes of Devastation**\
+`Severe weather destroyed much of Greenfield, where officials were continuing search and rescue work overnight to determine the death toll.`\
+https://nytimes.com/2024/05/22/weather/greenfield-iowa-tornado.html
+
+**A Hidden History**\
+`A Times investigation uncovered a brutal campaign enacted by U.S.-backed forces during the war in Afghanistan.`\
+https://nytimes.com/2024/05/22/briefing/afghanistan-war-us-kandahar.html
+
 **Recognizing a Palestinian State, Ireland Nods to its Own History**\
 `Simon Harris, Ireland’s prime minister, invoked his nation’s struggle for independence from Britain and its decades of violent sectarian conflict.`\
 https://nytimes.com/2024/05/22/world/middleeast/ireland-palestinian-state-history.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/22/opinion/gender-pay-gap.html
 **Biden Administration Cancels Another $7.7 Billion in Student Loans**\
 `The announcement applied to 160,000 federal loan borrowers and brings the total debt canceled by the administration to $167 billion.`\
 https://nytimes.com/2024/05/22/us/politics/biden-student-loan-relief.html
-
-**I’m Donald Trump, and I Disapprove of the Message I Just Posted**\
-`Yet another instance when Trump refuses to take responsibility for a deeply offensive campaign video.`\
-https://nytimes.com/live/2024/05/21/opinion/thepoint/trump-unified-reich-campaign
-
-**A Consequential President for All the Wrong Reasons**\
-`Trump has changed everything and nothing.`\
-https://nytimes.com/2024/05/22/opinion/trump-history-transformative-president.html
 
