@@ -1,3 +1,7 @@
+**Transcript of Trump Manhattan Trial, May 20, 2024**\
+`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
+https://nytimes.com/interactive/2024/05/22/nyregion/trump-hush-money-trial-transcript-may-20.html
+
 **Frank Shrontz, 92, Dies; Led Boeing in the Last of Its Golden Years**\
 `Known for his leadership and his commitment to company culture, he left as chief executive in 1996, opening the door to a corporate makeover.`\
 https://nytimes.com/2024/05/22/business/frank-shrontz-dead.html
