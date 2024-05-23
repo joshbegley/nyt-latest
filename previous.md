@@ -20,7 +20,7 @@ https://nytimes.com/2024/05/23/world/europe/slovakia-fico-government-media.html
 
 **Norfolk Southern to Pay U.S. $310 Million for East Palestine Accident**\
 `The railroad company reached an agreement with the federal government to settle claims and costs from the 2023 derailment of a train carrying hazardous materials in the Ohio town.`\
-https://nytimes.com/2024/05/23/business/norfolk-southern-justice-department-east-palestine.html
+https://nytimes.com/2024/05/23/business/east-palestine-ohio-train-derailment-settlement.html
 
 **What’s in Your Hurricane Stash?**\
 `The hurricane season begins on June 1. We want to know how you prepare.`\

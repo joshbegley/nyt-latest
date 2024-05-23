@@ -1,3 +1,7 @@
+**Norfolk Southern to Pay U.S. $310 Million for East Palestine Accident**\
+`The railroad company reached an agreement with the federal government to settle claims and costs from the 2023 derailment of a train carrying hazardous materials in the Ohio town.`\
+https://nytimes.com/2024/05/23/business/east-palestine-ohio-train-derailment-settlement.html
+
 **How to Buy Yourself a Longer Life**\
 `If price is no object, neither is death.`\
 https://nytimes.com/2024/05/23/opinion/longevity-equinox-wellness-immortality.html
