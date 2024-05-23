@@ -1,3 +1,23 @@
+**Election Updates: Trump’s New York City trial has made for a very local presidential campaign.**\
+``\
+https://nytimes.com/live/2024/05/23/us/biden-trump-election
+
+**Pizza Deliveries and Bodega Stops: Trump’s Big Apple Campaign**\
+`Before and after appearing in a Manhattan courthouse, where he is on criminal trial, former President Donald J. Trump has been campaigning for president in unfriendly political territory.`\
+https://nytimes.com/2024/05/23/us/politics/trump-new-york-crowds.html
+
+**Who is Jonathan Holloway?**\
+`By Sharon Otterman`\
+https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/who-is-jonathan-holloway
+
+**Senate Democrats Open Inquiry Into Trump’s $1 Billion Request of Oil Industry**\
+`Two committees are seeking information from oil executives about a dinner where, the lawmakers say, the former president proposed a quid pro quo.`\
+https://nytimes.com/2024/05/23/climate/senate-democrats-open-inquiry-into-trumps-1-billion-request-of-oil-industry.html
+
+**Michael Schill has already dealt with several crises at Northwestern.**\
+`Northwestern U`\
+https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/michael-schill-has-already-dealt-with-several-crises-at-northwestern
+
 **How college and public school leaders have performed in past hearings.**\
 `By Alan Blinder`\
 https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/how-college-and-public-school-leaders-have-performed-in-past-hearings
@@ -17,24 +37,4 @@ https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/why-does-any
 **Cassie After Sean Combs Footage: ‘Open Your Heart to Believing Victims’**\
 `The singer, who sued the hip-hop mogul over allegations of rape and abuse, posted a statement after 2016 video emerged last week showing him assaulting her in a hotel.`\
 https://nytimes.com/2024/05/23/arts/music/cassie-diddy-sean-combs-statement.html
-
-**A general who became a university president advises: ‘Take time to tell it like it is.’**\
-`By Alan Blinder`\
-https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/a-general-who-became-a-university-president-advises-take-time-to-tell-it-like-it-is
-
-**Why Northwestern, U.C.L.A. and Rutgers Were Picked for the Hearing**\
-`The House committee’s school choices suggest a shift in focus, from the larger issue of campus antisemitism to pro-Palestinian encampments and their organizers.`\
-https://nytimes.com/2024/05/23/us/why-northwestern-ucla-rutgers-antisemitism-protests.html
-
-**What does the House committee want with these hearings?**\
-`By Stephanie Saul`\
-https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/what-does-the-house-committee-want-with-these-hearings
-
-**Live Updates: Leaders of Northwestern, U.C.L.A. and Rutgers Testifying Before Congress**\
-`It is the first hearing hosted by a Republican-led House committee since a wave of protest encampments spread across college campuses.`\
-https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing
-
-**A Mediterranean-Inspired Getaway in an Australian Surf Town**\
-`Plus: golden handbags, a Brooklyn boutique’s Tokyo pop-up and more recommendations from T Magazine.`\
-https://nytimes.com/2024/05/23/t-magazine/yamba-australia-il-delfino-inn.html
 
