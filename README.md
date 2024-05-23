@@ -1,3 +1,15 @@
+**N.Y.C. Public Schools Will Send 8th Graders to Visit Holocaust Museum**\
+`New York City plans to send eighth-grade students from across the city on field trips to the Museum of Jewish Heritage as part of an effort to address antisemitism.`\
+https://nytimes.com/2024/05/23/nyregion/students-holocaust-museum-nyc.html
+
+**Defense Strategy in Gilgo Murder Case: Blame a Corrupt Police Chief**\
+`The lawyer for Rex Heuermann, the man accused in the case, said the early involvement of a notorious Long Island police chief may have tainted the investigation.`\
+https://nytimes.com/2024/05/23/nyregion/gilgo-beach-murders-police-chief.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/05/23/crosswords/spelling-bee-forum.html
+
 **Jimmy Kimmel Roasts Republicans for Crying Wolf**\
 `President Biden “sent an elite team of ultraliberal F.B.I. agents to assassinate Donald Trump, but somehow he slipped out the back door,” Kimmel joked on Wednesday.`\
 https://nytimes.com/2024/05/23/arts/television/jimmy-kimmel-trump-classified-documents.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/23/briefing/afghanistan-britain-ukraine.html
 **Is Modi Worried? India’s Long-Deflated Opposition Finds Some Momentum.**\
 `After setting a very high bar for his party in the election, Prime Minister Narendra Modi often appears on the defensive as the voting nears its end.`\
 https://nytimes.com/2024/05/23/world/asia/india-election-modi-opposition.html
-
-**Stage Collapses at Campaign Rally in Mexico, Killing at Least 9**\
-`Strong wind caused the collapse in northern Mexico as a presidential hopeful campaigned for a local candidate, officials said. Dozens of people were injured.`\
-https://nytimes.com/2024/05/23/world/americas/mexico-candidate-stage-collapse.html
-
-**Can European Recognition Bring Palestinian Statehood Any Closer?**\
-`Not on its own, in all likelihood. But it reflects a growing, global exasperation with Israel that might eventually lend momentum to a two-state solution.`\
-https://nytimes.com/2024/05/23/world/middleeast/europe-recognition-palestinian-statehood.html
-
-**Corrections: May 23, 2024**\
-`Corrections that appeared in print on Thursday, May 23, 2024.`\
-https://nytimes.com/2024/05/22/pageoneplus/corrections-may-23-2024.html
 
