@@ -1,3 +1,7 @@
+**Stage Collapses in Mexico**\
+`Footage widely shared on social media shows strong winds buffeting the stage as it collapses.`\
+https://nytimes.com/video/world/americas/100000009483936/mexico-candidate-stage-collapse.html
+
 **N.Y.C. Public Schools Will Send 8th Graders to Visit Holocaust Museum**\
 `New York City plans to send eighth-grade students from across the city on field trips to the Museum of Jewish Heritage as part of an effort to address antisemitism.`\
 https://nytimes.com/2024/05/23/nyregion/students-holocaust-museum-nyc.html
