@@ -1,3 +1,11 @@
+**The Pop Songs You Hate Are Good for Democracy**\
+`Or, what I learned from my roommate’s unconscionable taste in music.`\
+https://nytimes.com/2024/05/23/opinion/the-pop-songs-you-hate-are-good-for-democracy.html
+
+**The Biden Clean Energy Boom**\
+`The president’s signature 2022 climate law has sparked a rapid clean energy boom but its political impact is a lot less clear.`\
+https://nytimes.com/2024/05/23/climate/the-biden-clean-energy-boom.html
+
 **House Candidate Who Pitched Herself as a ‘Renter’ Also Owns a $1.2 Million Home**\
 `Maggie Tamposi Goodlander, a Democrat and former White House aide, is running for an open seat in New Hampshire’s second district.`\
 https://nytimes.com/2024/05/23/us/politics/maggie-goodlander-house-candidate-home.html
