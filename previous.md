@@ -1,3 +1,7 @@
+**Far-Right E.U. Lawmakers Remove Germany’s AfD Party Before Elections**\
+`The exclusion is a sign that domestic troubles for the Alternative for Germany party are starting to spill into European Union politics before elections.`\
+https://nytimes.com/2024/05/23/world/europe/afd-germany-eu-parliament.html
+
 **Why Amtrak Is to Blame for a Hellish Night for New Jersey Commuters**\
 `Sharing tracks means that any disruption along the 427-mile Northeast Corridor, which links Boston to Washington D.C., can be felt by thousands of passengers.`\
 https://nytimes.com/2024/05/23/nyregion/amtrak-nj-transit-trains.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/23/books/review/new-books-recommendations.html
 **Sports Betting Company Drops Boris Johnson From Soccer Ad**\
 `The script for the advertisement called for the former prime minister to say ‘I told you I would get us back in Europe’ ahead of this summer’s soccer championship.`\
 https://nytimes.com/2024/05/23/world/europe/boris-johnson-paddy-power.html
-
-**Sand, Sea and Soul: These Architects Follow Nature**\
-`An architectural firm waited years to design for clients who wanted a modern look in the Hamptons — it uses the sky, the ocean and dunes as muses.`\
-https://nytimes.com/interactive/2024/05/23/realestate/hamptons-beach-house-architecture.html
 

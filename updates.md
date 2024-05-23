@@ -1,3 +1,7 @@
+**Far-Right E.U. Lawmakers Remove Germany’s AfD Party Before Elections**\
+`The exclusion is a sign that domestic troubles for the Alternative for Germany party are starting to spill into European Union politics before elections.`\
+https://nytimes.com/2024/05/23/world/europe/afd-germany-eu-parliament.html
+
 **Why Amtrak Is to Blame for a Hellish Night for New Jersey Commuters**\
 `Sharing tracks means that any disruption along the 427-mile Northeast Corridor, which links Boston to Washington D.C., can be felt by thousands of passengers.`\
 https://nytimes.com/2024/05/23/nyregion/amtrak-nj-transit-trains.html
