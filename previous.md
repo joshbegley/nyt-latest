@@ -1,3 +1,7 @@
+**Former Baltimore Prosecutor to Be Sentenced in Perjury Case**\
+`Marilyn Mosby, who rose to prominence for pursuing charges against police officers in the death of Freddie Gray, was found guilty of lying in mortgage applications.`\
+https://nytimes.com/2024/05/23/us/marilyn-mosby-baltimore-sentence.html
+
 **The Pop Songs You Hate Are Good for Democracy**\
 `Or, what I learned from my roommate’s unconscionable taste in music.`\
 https://nytimes.com/2024/05/23/opinion/alicia-keys-pop-music-democracy.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000009484814/live-nation-doj-ticketmaster-antitr
 **Joe Zucker, Prolific Painter of Innumerable Styles, Dies at 82**\
 `His art, which he described as “conceptual and literal,” used a variety of materials, including cotton, wood and even squeegee handles.`\
 https://nytimes.com/2024/05/23/arts/joe-zucker-dead.html
-
-**U.S. Military Faces Reality in Gaza as Aid Project Struggles**\
-`The Pentagon predicted that a stream of humanitarian aid would be arriving in Gaza via the floating pier, but little relief has reached the besieged strip, officials acknowledged this week.`\
-https://nytimes.com/2024/05/23/us/politics/pentagon-gaza-pier-aid.html
 

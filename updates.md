@@ -1,3 +1,7 @@
+**Former Baltimore Prosecutor to Be Sentenced in Perjury Case**\
+`Marilyn Mosby, who rose to prominence for pursuing charges against police officers in the death of Freddie Gray, was found guilty of lying in mortgage applications.`\
+https://nytimes.com/2024/05/23/us/marilyn-mosby-baltimore-sentence.html
+
 **The Pop Songs You Hate Are Good for Democracy**\
 `Or, what I learned from my roommate’s unconscionable taste in music.`\
 https://nytimes.com/2024/05/23/opinion/alicia-keys-pop-music-democracy.html
