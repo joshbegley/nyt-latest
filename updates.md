@@ -1,3 +1,7 @@
+**Power Outage Halts Northeast Corridor Trains**\
+`Fallen electrical wires in New Jersey brought Amtrak and New Jersey Transit service to a halt on the Northeast Corridor, leaving travelers stranded, according to transit agencies.`\
+https://nytimes.com/2024/05/22/nyregion/amtrak-nj-transit-trains-suspended.html
+
 **This Is the Life!**\
 `Wind your way through Adam Wagner’s puzzle.`\
 https://nytimes.com/2024/05/22/crosswords/daily-puzzle-2024-05-23.html
