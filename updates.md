@@ -1,3 +1,7 @@
+**Israel’s military says it is fighting near central Rafah, apparently expanding its operation in the city.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/05/23/world/israel-gaza-war-hamas/israels-military-says-it-is-fighting-near-central-rafah-apparently-expanding-its-operation-in-the-city
+
 **Nigel Farage to Skip U.K. Election So He Can Focus on Helping Trump**\
 `The populist British politician, a driving force behind Brexit, said he would not run in the July general election, citing the global importance of the American campaign.`\
 https://nytimes.com/2024/05/23/world/europe/nigel-farage-donald-trump-uk-election.html
