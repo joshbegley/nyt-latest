@@ -1,3 +1,23 @@
+**U.S. Military Faces Reality in Gaza as Aid Project Struggles**\
+`The Pentagon predicted that a stream of humanitarian aid would be arriving in Gaza via the floating pier, but little relief has reached the besieged strip, officials acknowledged this week.`\
+https://nytimes.com/2024/05/23/us/politics/pentagon-gaza-pier-aid.html
+
+**Louisiana Lawmakers Vote to Make Abortion Pills Controlled Substances**\
+`The legislation would make possession of the drugs without a prescription a crime in Louisiana, punishable with jail time.`\
+https://nytimes.com/2024/05/23/us/politics/louisiana-abortion-pills-controlled-substances.html
+
+**Billie Eilish and Taylor Swift Race for No. 1**\
+`The two pop music titans, locked in a close contest for the top of next week’s album chart, are stoking fans’ competitive spirit with a variety of digital tactics.`\
+https://nytimes.com/2024/05/23/arts/music/billie-eilish-taylor-swift-billboard-chart.html
+
+**When Antitrust Law Rescues Olivia and Taylor Fans**\
+`God, it’s brutal out here.`\
+https://nytimes.com/live/2024/05/21/opinion/thepoint/livenation-ticketmaster-doj-suit
+
+**As Trump Campaigns in New York, Biden Points Black Voters to His Rival’s Past**\
+`Ahead of Donald Trump’s political event in the Bronx, the Biden campaign released a television ad highlighting Mr. Trump’s treatment of Black people.`\
+https://nytimes.com/2024/05/23/us/politics/trump-biden-2024-campaign.html
+
 **Political Consultant Who Orchestrated Fake Biden Robocalls Is Indicted**\
 `The calls used an artificial-intelligence impersonation of President Biden to urge Democrats not to vote in New Hampshire’s presidential primary.`\
 https://nytimes.com/2024/05/23/us/politics/biden-robocalls-steve-kramer-democratic-primary.html
@@ -17,24 +37,4 @@ https://nytimes.com/live/2024/05/23/world/israel-gaza-war-hamas/israeli-forces-r
 **Once Critics of Trump, These Republicans Are Now Playing by His Rules**\
 `Republicans like Nikki Haley have had to contort themselves to overlook their criticisms of former President Donald J. Trump as they decide to back him after all.`\
 https://nytimes.com/2024/05/23/us/politics/trump-critics-endorsements.html
-
-**How the First Amendment adds a wrinkle to this antisemitism hearing.**\
-`Leaders of two public universities, which are bound by the First Amendment, will testify about antisemitism on campuses for the first time since Congress began scrutinizing the issue.`\
-https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/how-the-first-amendment-adds-a-wrinkle-to-this-antisemitism-hearing
-
-**Advancing Russian Troops Threaten to Reverse Some of Ukraine’s Hard-Won Gains**\
-`Such losses could hurt Ukrainian morale as Russia makes advances all along the front line.`\
-https://nytimes.com/2024/05/23/world/europe/ukraine-russia-battlefield-gains.html
-
-**Rutgers ended a protest encampment by deploying a carrot and a stick.**\
-`By Sharon Otterman`\
-https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/rutgers-ended-a-protest-encampment-by-deploying-a-carrot-and-a-stick
-
-**Russian Strikes on Kharkiv Kill Several People, Official Says**\
-`Footage from Ukraine’s state emergency service showed first responders putting out a fire in a destroyed building that the regional governor of Kharkiv described as a printing plant.`\
-https://nytimes.com/video/world/europe/100000009484363/russian-strikes-on-kharkiv-kill-several-people-official-says.html
-
-**Representative Ilhan Omar has defended pro-Palestinian students.**\
-`By Sharon Otterman`\
-https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/representative-ilhan-omar-has-defended-pro-palestinian-students
 
