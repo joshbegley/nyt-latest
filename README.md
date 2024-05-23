@@ -1,3 +1,7 @@
+**Why Northwestern, U.C.L.A. and Rutgers Were Picked for the Hearing**\
+`The House committee’s school choices suggest a shift in focus, from the larger issue of campus antisemitism to pro-Palestinian encampments and their organizers.`\
+https://nytimes.com/2024/05/23/us/why-northwestern-ucla-rutgers.html
+
 **What does the House committee want with these hearings?**\
 `By Stephanie Saul`\
 https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/what-does-the-house-committee-want-with-these-hearings
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/23/style/kristin-juszczyk-49ers-custom-jackets.html
 **Israel’s military says it is fighting near central Rafah, apparently expanding its operation in the city.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/05/23/world/israel-gaza-war-hamas/israels-military-says-it-is-fighting-near-central-rafah-apparently-expanding-its-operation-in-the-city
-
-**Nigel Farage to Skip U.K. Election So He Can Focus on Helping Trump**\
-`The populist British politician, a driving force behind Brexit, said he would not run in the July general election, citing the global importance of the American campaign.`\
-https://nytimes.com/2024/05/23/world/europe/nigel-farage-donald-trump-uk-election.html
 
