@@ -1,3 +1,7 @@
+**Stage Collapses at Campaign Rally in Mexico, Killing at Least 6**\
+`Strong wind caused the collapse in northern Mexico as a presidential candidate campaigned for a local candidate, officials said. Dozens of people were injured.`\
+https://nytimes.com/2024/05/23/world/americas/mexico-candidate-stage-collapse.html
+
 **Stage Structure Collapses in Mexico**\
 `First responders helped the injured after part of the stage fell over during a campaign rally.`\
 https://nytimes.com/video/world/americas/100000009483936/mexico-candidate-stage-collapse.html
