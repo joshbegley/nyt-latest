@@ -1,3 +1,7 @@
+**5 Stellar New Cookies in New York City**\
+`Becky Hughes will take a cookie over a pastry, every time. (Please don’t bully her.)`\
+https://nytimes.com/2024/05/23/dining/5-stellar-new-cookies-in-new-york-city.html
+
 **The Importance of a Personal Bridge Between the U.S. and China**\
 `The U.S. ambassador’s ties to former students in China could prove significant at a time of tension.`\
 https://nytimes.com/live/2024/05/21/opinion/thepoint/china-burns-university

@@ -1,3 +1,7 @@
+**5 Stellar New Cookies in New York City**\
+`Becky Hughes will take a cookie over a pastry, every time. (Please don’t bully her.)`\
+https://nytimes.com/2024/05/23/dining/5-stellar-new-cookies-in-new-york-city.html
+
 **The Importance of a Personal Bridge Between the U.S. and China**\
 `The U.S. ambassador’s ties to former students in China could prove significant at a time of tension.`\
 https://nytimes.com/live/2024/05/21/opinion/thepoint/china-burns-university
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/23/us/politics/house-passes-measure-to-repeal-dc-non
 **What business does Congress have questioning university presidents anyway?**\
 `By Kayla Guo`\
 https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/what-business-does-congress-have-questioning-university-presidents-anyway
-
-**As Israel’s Hard Line Stokes Anger Abroad, Netanyahu May Get Benefits at Home**\
-`Despite diplomatic blows this week, Israeli leaders are focused on their public, which still largely views the war with Hamas in Gaza as an existential conflict.`\
-https://nytimes.com/2024/05/23/world/middleeast/netanyahu-israel-gaza-war.html
 
