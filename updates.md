@@ -1,3 +1,7 @@
+**U.C.L.A. Students Form New Encampment While Chancellor Testifies in Congress**\
+`A small group of protesters barricaded an area for the encampment. The university appeared to be taking a hard line, as officers arrived on campus with riot helmets and batons.`\
+https://nytimes.com/2024/05/23/us/ucla-pro-palestinian-encampment.html
+
 **Sunak Says U.K. Won’t Send Asylum Seekers to Rwanda Before Election**\
 `The prime minister’s admission that a key political project will not begin before voters head to the polls puts the Conservatives in a risky position.`\
 https://nytimes.com/2024/05/23/world/europe/uk-sunak-election-rwanda.html

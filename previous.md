@@ -1,3 +1,7 @@
+**U.C.L.A. Students Form New Encampment While Chancellor Testifies in Congress**\
+`A small group of protesters barricaded an area for the encampment. The university appeared to be taking a hard line, as officers arrived on campus with riot helmets and batons.`\
+https://nytimes.com/2024/05/23/us/ucla-pro-palestinian-encampment.html
+
 **Sunak Says U.K. Won’t Send Asylum Seekers to Rwanda Before Election**\
 `The prime minister’s admission that a key political project will not begin before voters head to the polls puts the Conservatives in a risky position.`\
 https://nytimes.com/2024/05/23/world/europe/uk-sunak-election-rwanda.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/23/us/politics/maggie-goodlander-house-candidate-hom
 **From ‘The Sympathizer’ to ‘Past Lives,’ American Audiences Warm to Subtitles**\
 `In Hollywood today, not only are Asian and Asian American narratives more prominent than ever, but they are also being told in increasingly dynamic ways through the artful use of Asian languages.`\
 https://nytimes.com/interactive/2024/05/23/arts/asian-language-movies-subtitles.html
-
-**House Passes Measure to Repeal D.C. Noncitizen Voting Law**\
-`Fifty-two Democrats joined Republicans in favor of the legislation, which has little chance of enactment but offered the G.O.P. a chance to amplify Donald Trump’s false claims of widespread illegal voting by noncitizens.`\
-https://nytimes.com/2024/05/23/us/politics/house-passes-measure-to-repeal-dc-noncitizen-voting-law.html
 
