@@ -1,3 +1,11 @@
+**Border Deal Fails Again in the Senate as Democrats Seek Political Edge**\
+`Senator Chuck Schumer, the majority leader, brought up the bill, seeking to remind voters that it is Republicans who have stood in the way of a solution to the chaos at the border.`\
+https://nytimes.com/2024/05/23/us/politics/border-deal-senate-democrats.html
+
+**U.S. Launches Antitrust Lawsuit Against Live Nation**\
+`The Justice Department sued the concert giant, which owns Ticketmaster, calling for the company to be broken up due to claims that it maintained a monopoly in the live entertainment industry.`\
+https://nytimes.com/video/us/100000009484814/live-nation-doj-ticketmaster-antitrust.html
+
 **The Importance of a Personal Bridge Between the U.S. and China**\
 `The U.S. ambassador’s ties to former students in China could prove significant at a time of tension.`\
 https://nytimes.com/live/2024/05/21/opinion/thepoint/china-burns-university
