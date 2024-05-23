@@ -1,3 +1,7 @@
+**Thursday Briefing**\
+`Today, I’m handing the newsletter over to my colleague Azam Ahmed, who writes about a hidden history of the U.S. war in Afghanistan.`\
+https://nytimes.com/2024/05/23/briefing/afghanistan-britain-ukraine.html
+
 **Is Modi Worried? India’s Long-Deflated Opposition Finds Some Momentum.**\
 `After setting a very high bar for his party in the election, Prime Minister Narendra Modi often appears on the defensive as the voting nears its end.`\
 https://nytimes.com/2024/05/23/world/asia/india-election-modi-opposition.html

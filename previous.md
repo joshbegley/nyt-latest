@@ -1,3 +1,7 @@
+**Thursday Briefing**\
+`Today, I’m handing the newsletter over to my colleague Azam Ahmed, who writes about a hidden history of the U.S. war in Afghanistan.`\
+https://nytimes.com/2024/05/23/briefing/afghanistan-britain-ukraine.html
+
 **Is Modi Worried? India’s Long-Deflated Opposition Finds Some Momentum.**\
 `After setting a very high bar for his party in the election, Prime Minister Narendra Modi often appears on the defensive as the voting nears its end.`\
 https://nytimes.com/2024/05/23/world/asia/india-election-modi-opposition.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/05/22/nyregion/trump-hush-money-trial-trans
 **Former Trump Official Meets With Arab and Muslim American Leaders**\
 `The meeting in Michigan on Tuesday, led by Richard Grenell, acting director of national intelligence in the Trump administration, came as President Biden faces protests over his Israel policy.`\
 https://nytimes.com/2024/05/22/us/politics/trump-arab-americans.html
-
-**With Troubles at Home, Macron Pops Up 10,000 Miles Away**\
-`New Caledonia, a French territory in the Pacific, is on the brink of civil war as pro-independence activists protest a law that would expand voting rights.`\
-https://nytimes.com/2024/05/22/world/europe/macron-new-caledonia-france.html
 
