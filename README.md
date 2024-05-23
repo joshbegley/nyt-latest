@@ -1,3 +1,7 @@
+**Read the lawsuit against Live Nation**\
+`The Justice Department called for the company, which owns Ticketmaster, to be broken up.`\
+https://nytimes.com/interactive/2024/05/23/us/23livenation-lawsuit.html
+
 **Very Delicious Vegetarian Eating**\
 `Hetty Lui McKinnon shares tips and recipes for eating more meatless meals, like cold noodle salad with spicy peanut sauce, and cumin mushroom and green beans stir fry.`\
 https://nytimes.com/2024/05/23/dining/very-delicious-vegetarian-eating.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/23/us/supreme-court-south-carolina-voting-map.html
 **U.S. Calls for Breakup of Ticketmaster Owner**\
 `Accused of violating antitrust laws, Live Nation Entertainment faces a fight that could reshape the multibillion-dollar live music industry.`\
 https://nytimes.com/2024/05/23/technology/ticketmaster-live-nation-lawsuit-antitrust.html
-
-**U.K. 2024 General Election: What to Know**\
-`The governing Conservative Party could be voted out of power for the first time in 14 years.`\
-https://nytimes.com/2024/05/23/world/europe/uk-election.html
 
