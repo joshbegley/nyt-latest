@@ -1,3 +1,11 @@
+**Norfolk Southern to Pay U.S. $310 Million for East Palestine Accident**\
+`The railroad company reached an agreement with the federal government to settle claims and costs from the 2023 derailment of a train carrying hazardous materials in the Ohio town.`\
+https://nytimes.com/2024/05/23/business/norfolk-southern-justice-department-east-palestine.html
+
+**What’s in Your Hurricane Stash?**\
+`The hurricane season begins on June 1. We want to know how you prepare.`\
+https://nytimes.com/2024/05/23/us/hurricane-season-callout.html
+
 **Read the lawsuit against Live Nation**\
 `The Justice Department called for the company, which owns Ticketmaster, to be broken up.`\
 https://nytimes.com/interactive/2024/05/23/us/23livenation-lawsuit.html

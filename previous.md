@@ -1,3 +1,11 @@
+**Norfolk Southern to Pay U.S. $310 Million for East Palestine Accident**\
+`The railroad company reached an agreement with the federal government to settle claims and costs from the 2023 derailment of a train carrying hazardous materials in the Ohio town.`\
+https://nytimes.com/2024/05/23/business/norfolk-southern-justice-department-east-palestine.html
+
+**What’s in Your Hurricane Stash?**\
+`The hurricane season begins on June 1. We want to know how you prepare.`\
+https://nytimes.com/2024/05/23/us/hurricane-season-callout.html
+
 **Why Biden Is Behind in the Polls**\
 `Readers discuss a column by Ezra Klein. Also: Benjamin Netanyahu’s fate; Madonna at 65; a pediatrics group on gender-affirming care.`\
 https://nytimes.com/2024/05/23/opinion/biden-trump-polls.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/23/arts/dance/danceafrica-woolbright.html
 **Subway Killing Spurs Bill to Expand Medicaid Funds for Psychiatric Beds**\
 `A Democrat and a Republican from New York will introduce the “Michelle Go Act,” named after a woman who was killed when a mentally ill homeless man pushed her in front of a subway train.`\
 https://nytimes.com/2024/05/23/nyregion/medicaid-psychiatric-beds-michelle-go.html
-
-**Hurricane Season Could Have More Than Two Dozen Storms, NOAA Says**\
-`The Atlantic hurricane season is looking to be an extraordinary one, with 17 to 25 named storms predicted, experts said.`\
-https://nytimes.com/2024/05/23/weather/noaa-atlantic-hurricane-forecast-prediction.html
-
-**The protest at U.C.L.A. culminated in a violent attack by counterprotesters. Here’s what happened.**\
-`By Nicholas Bogel-Burroughs`\
-https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/the-protest-at-ucla-culminated-in-a-violent-attack-by-counterprotesters-heres-what-happened
 
