@@ -1,3 +1,11 @@
+**The Pop Songs You Hate Are Good for Democracy**\
+`Or, what I learned from my roommate’s unconscionable taste in music.`\
+https://nytimes.com/2024/05/23/opinion/the-pop-songs-you-hate-are-good-for-democracy.html
+
+**The Biden Clean Energy Boom**\
+`The president’s signature 2022 climate law has sparked a rapid clean energy boom but its political impact is a lot less clear.`\
+https://nytimes.com/2024/05/23/climate/the-biden-clean-energy-boom.html
+
 **House Candidate Who Pitched Herself as a ‘Renter’ Also Owns a $1.2 Million Home**\
 `Maggie Tamposi Goodlander, a Democrat and former White House aide, is running for an open seat in New Hampshire’s second district.`\
 https://nytimes.com/2024/05/23/us/politics/maggie-goodlander-house-candidate-home.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/23/arts/joe-zucker-dead.html
 **U.S. Military Faces Reality in Gaza as Aid Project Struggles**\
 `The Pentagon predicted that a stream of humanitarian aid would be arriving in Gaza via the floating pier, but little relief has reached the besieged strip, officials acknowledged this week.`\
 https://nytimes.com/2024/05/23/us/politics/pentagon-gaza-pier-aid.html
-
-**Louisiana Lawmakers Vote to Make Abortion Pills Controlled Substances**\
-`The legislation would make possession of the drugs without a prescription a crime in Louisiana, punishable with jail time.`\
-https://nytimes.com/2024/05/23/us/politics/louisiana-abortion-pills-controlled-substances.html
-
-**Billie Eilish and Taylor Swift Race for No. 1**\
-`The two pop music titans, locked in a close contest for the top of next week’s album chart, are stoking fans’ competitive spirit with a variety of digital tactics.`\
-https://nytimes.com/2024/05/23/arts/music/billie-eilish-taylor-swift-billboard-chart.html
 
