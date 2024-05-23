@@ -1,3 +1,11 @@
+**Trains Suspended Between New York and Philadelphia After Power Outage**\
+`Fallen electrical wires in New Jersey stopped Amtrak and New Jersey Transit trains, but did not affect the subway or the Long Island Rail Road, according to transit agencies.`\
+https://nytimes.com/2024/05/22/nyregion/amtrak-nj-transit-trains-suspended.html
+
+**Read the Federal Judge’s Ruling**\
+`A federal judge temporarily blocked part of a Florida law that criminalized transporting into the state anyone who lacked lawful immigration status, raising new legal questions for other states pursuing similar measures.`\
+https://nytimes.com/interactive/2024/05/22/us/florida-undocumented-immigrant-transport.html
+
 **This Is the Life!**\
 `Wind your way through Adam Wagner’s puzzle.`\
 https://nytimes.com/2024/05/22/crosswords/daily-puzzle-2024-05-23.html
