@@ -1,3 +1,7 @@
+**Ohio Elections Official Says He Will Soon Exclude Biden From the Ballot**\
+`The Biden campaign insists the issue will be resolved. Frank LaRose, the Republican secretary of state in Ohio, said he would bar the president over what is normally a minor procedural issue.`\
+https://nytimes.com/2024/05/22/us/politics/biden-ohio-ballot.html
+
 **U.S. Plans to Sue Ticketmaster Owner, Accusing It of Defending a Monopoly**\
 `Live Nation Entertainment, the concert giant that owns Ticketmaster, faces a fight that could reshape the multibillion-dollar live music industry.`\
 https://nytimes.com/2024/05/22/technology/doj-ticketmaster-live-nation-antitrust-suit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/us/politics/economy-inflation-election.html
 **Sparring in Trump Documents Hearing Highlights Case’s Slow Pace**\
 `A prosecutor got into a heated exchange with Judge Aileen Cannon over a minor point, as the case continues to crawl.`\
 https://nytimes.com/2024/05/22/us/politics/trump-documents-nauta-cannon.html
-
-**Inside the White House, a Debate Over Letting Ukraine Shoot U.S. Weapons Into Russia**\
-`After a sobering trip to Kyiv, Secretary of State Antony J. Blinken is urging the president to lift restrictions on how Ukraine can use American arms.`\
-https://nytimes.com/2024/05/22/us/politics/white-house-ukraine-weapons-russia.html
 
