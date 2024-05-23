@@ -1,3 +1,7 @@
+**Chinese Military Drills Surround Taiwan, and U.S. Plans to Sue Music Giant**\
+`Plus, another Alito flag controversy.`\
+https://nytimes.com/2024/05/23/podcasts/taiwan-china-military-drill-alito-flag-appeal-to-heaven.html
+
 **‘Solo’ Review: Listen to Your Heart**\
 `Sophie Dupuis’s sensitive French Canadian drama takes a turn when a young, starry-eyed drag queen (Théodore Pellerin) opens up to questionable figures.`\
 https://nytimes.com/2024/05/23/movies/solo-review.html
