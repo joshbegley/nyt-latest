@@ -1,3 +1,11 @@
+**In House Hearing, Republicans Demand Discipline for Student Protesters**\
+`Leaders of Northwestern, U.C.L.A. and Rutgers, drawing lessons from prior hearings, sought to avoid enraging either the Republicans on the committee or members of their own institutions.`\
+https://nytimes.com/2024/05/23/us/house-hearing-republicans-campus-antisemitism.html
+
+**C.I.A. Director to Meet With Israeli Counterpart This Weekend Over Cease-Fire Talks**\
+`It was unclear if negotiators from Egypt and Qatar would participate.`\
+https://nytimes.com/2024/05/23/world/middleeast/cia-burns-israel-hostages-cease-fire.html
+
 **U.C.L.A. Students Form New Encampment While Chancellor Testifies in Congress**\
 `A small group of protesters barricaded an area for the encampment. The university appeared to be taking a hard line, as officers arrived on campus with riot helmets and batons.`\
 https://nytimes.com/2024/05/23/us/ucla-pro-palestinian-encampment.html

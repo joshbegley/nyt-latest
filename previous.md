@@ -1,3 +1,11 @@
+**In House Hearing, Republicans Demand Discipline for Student Protesters**\
+`Leaders of Northwestern, U.C.L.A. and Rutgers, drawing lessons from prior hearings, sought to avoid enraging either the Republicans on the committee or members of their own institutions.`\
+https://nytimes.com/2024/05/23/us/house-hearing-republicans-campus-antisemitism.html
+
+**C.I.A. Director to Meet With Israeli Counterpart This Weekend Over Cease-Fire Talks**\
+`It was unclear if negotiators from Egypt and Qatar would participate.`\
+https://nytimes.com/2024/05/23/world/middleeast/cia-burns-israel-hostages-cease-fire.html
+
 **U.C.L.A. Students Form New Encampment While Chancellor Testifies in Congress**\
 `A small group of protesters barricaded an area for the encampment. The university appeared to be taking a hard line, as officers arrived on campus with riot helmets and batons.`\
 https://nytimes.com/2024/05/23/us/ucla-pro-palestinian-encampment.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/23/opinion/alicia-keys-pop-music-democracy.html
 **The Biden Clean Energy Boom**\
 `The president’s signature 2022 climate law has sparked a rapid clean energy boom but its political impact is a lot less clear.`\
 https://nytimes.com/2024/05/23/climate/the-biden-clean-energy-boom.html
-
-**House Candidate Who Pitched Herself as a ‘Renter’ Also Owns a $1.2 Million Home**\
-`Maggie Tamposi Goodlander, a Democrat and former White House aide, is running for an open seat in New Hampshire’s second district.`\
-https://nytimes.com/2024/05/23/us/politics/maggie-goodlander-house-candidate-home.html
-
-**From ‘The Sympathizer’ to ‘Past Lives,’ American Audiences Warm to Subtitles**\
-`In Hollywood today, not only are Asian and Asian American narratives more prominent than ever, but they are also being told in increasingly dynamic ways through the artful use of Asian languages.`\
-https://nytimes.com/interactive/2024/05/23/arts/asian-language-movies-subtitles.html
 
