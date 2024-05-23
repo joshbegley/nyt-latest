@@ -1,3 +1,7 @@
+**A general who became a university president advises: ‘Take time to tell it like it is.’**\
+`By Alan Blinder`\
+https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/a-general-who-became-a-university-president-advises-take-time-to-tell-it-like-it-is
+
 **Why Northwestern, U.C.L.A. and Rutgers Were Picked for the Hearing**\
 `The House committee’s school choices suggest a shift in focus, from the larger issue of campus antisemitism to pro-Palestinian encampments and their organizers.`\
 https://nytimes.com/2024/05/23/us/why-northwestern-ucla-rutgers-antisemitism-protests.html
