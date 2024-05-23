@@ -1,3 +1,15 @@
+**Advancing Russian Troops Threaten to Reverse Some of Ukraine’s Hard-Won Gains**\
+`Such losses could hurt Ukrainian morale as Russia makes advances all along the front line.`\
+https://nytimes.com/2024/05/23/world/europe/ukraine-russia-battlefield-gains.html
+
+**Rutgers ended a protest encampment by deploying a carrot and a stick.**\
+`By Sharon Otterman`\
+https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/rutgers-ended-a-protest-encampment-by-deploying-a-carrot-and-a-stick
+
+**Russian Strikes on Kharkiv Kill Several People, Official Says**\
+`Footage from Ukraine’s state emergency service showed first responders putting out a fire in a destroyed building that the regional governor of Kharkiv described as a printing plant.`\
+https://nytimes.com/video/world/europe/100000009484363/russian-strikes-on-kharkiv-kill-several-people-official-says.html
+
 **Russian Strikes on Kharkiv Kill Several People, Official Says**\
 `Footage from Ukraine’s state emergency service showed first responders putting out a fire in a destroyed building that the regional governor of Kharkiv described as a publishing house.`\
 https://nytimes.com/video/world/europe/100000009484363/russian-strikes-on-kharkiv-kill-several-people-official-says.html
