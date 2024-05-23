@@ -1,3 +1,11 @@
+**Trump Plays Up His Putin Ties in Claiming He Could Get Gershkovich Released**\
+`A spokesman for the Kremlin said President Vladimir V. Putin of Russia has had no contact with former President Donald J. Trump.`\
+https://nytimes.com/2024/05/23/us/politics/trump-evan-gershkovich-putin.html
+
+**Forecasts Predict Daunting Hurricane Season**\
+`According to major forecasts, it looks like it’s going to be an above-average hurricane season. Judson Jones, a meteorologist for The New York Times, explains why.`\
+https://nytimes.com/video/weather/100000009482207/forecasts-predict-daunting-hurricane-season.html
+
 **Read the lawsuit against Live Nation**\
 `The Justice Department called for the company, which owns Ticketmaster, to be broken up.`\
 https://nytimes.com/interactive/2024/05/23/us/23livenation-lawsuit.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/23/us/elise-stefanik-republican-antisemitism-hearing
 **Northwestern’s president is likely to face questions on incidents dating back to 2022.**\
 `By Ernesto Londoño`\
 https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/northwesterns-president-is-likely-to-face-questions-on-incidents-dating-back-to-2022
-
-**Supreme Court Sides With Republicans Over South Carolina Voting Map**\
-`The case concerned a constitutional puzzle: how to distinguish the roles of race and partisanship in drawing voting maps when Black voters overwhelmingly favor Democrats.`\
-https://nytimes.com/2024/05/23/us/supreme-court-south-carolina-voting-map.html
-
-**U.S. Calls for Breakup of Ticketmaster Owner**\
-`Accused of violating antitrust laws, Live Nation Entertainment faces a fight that could reshape the multibillion-dollar live music industry.`\
-https://nytimes.com/2024/05/23/technology/ticketmaster-live-nation-lawsuit-antitrust.html
 

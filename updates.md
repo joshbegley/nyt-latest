@@ -1,3 +1,11 @@
+**Trump Plays Up His Putin Ties in Claiming He Could Get Gershkovich Released**\
+`A spokesman for the Kremlin said President Vladimir V. Putin of Russia has had no contact with former President Donald J. Trump.`\
+https://nytimes.com/2024/05/23/us/politics/trump-evan-gershkovich-putin.html
+
+**Forecasts Predict Daunting Hurricane Season**\
+`According to major forecasts, it looks like it’s going to be an above-average hurricane season. Judson Jones, a meteorologist for The New York Times, explains why.`\
+https://nytimes.com/video/weather/100000009482207/forecasts-predict-daunting-hurricane-season.html
+
 **Read the lawsuit against Live Nation**\
 `The Justice Department called for the company, which owns Ticketmaster, to be broken up.`\
 https://nytimes.com/interactive/2024/05/23/us/23livenation-lawsuit.html
