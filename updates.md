@@ -1,3 +1,7 @@
+**Nigel Farage to Skip U.K. Election So He Can Focus on Helping Trump**\
+`The populist British politician, a driving force behind Brexit, said he would not run in the July general election, citing the global importance of the American campaign.`\
+https://nytimes.com/2024/05/23/world/europe/nigel-farage-donald-trump-uk-election.html
+
 **Chinese Military Drills Surround Taiwan, and U.S. Plans to Sue Music Giant**\
 `Plus, another Alito flag controversy.`\
 https://nytimes.com/2024/05/23/podcasts/taiwan-china-military-drill-alito-flag-appeal-to-heaven.html

@@ -1,3 +1,7 @@
+**Nigel Farage to Skip U.K. Election So He Can Focus on Helping Trump**\
+`The populist British politician, a driving force behind Brexit, said he would not run in the July general election, citing the global importance of the American campaign.`\
+https://nytimes.com/2024/05/23/world/europe/nigel-farage-donald-trump-uk-election.html
+
 **‘Solo’ Review: Listen to Your Heart**\
 `Sophie Dupuis’s sensitive French Canadian drama takes a turn when a young, starry-eyed drag queen (Théodore Pellerin) opens up to questionable figures.`\
 https://nytimes.com/2024/05/23/movies/solo-review.html
