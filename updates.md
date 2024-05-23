@@ -1,3 +1,7 @@
+**Here’s What to Know About Canada’s Wildfire Season**\
+`Despite a relatively wet spring, government officials are warning that persistent drought across Western Canada could leave the region vulnerable to major fires.`\
+https://nytimes.com/article/canada-wildfire-season-forecast.html
+
 **A Promise of ‘No Man Left Behind’ Leads to a Forest in England**\
 `A group led by archaeologists are searching for an American pilot who was killed when the B-17 he was flying crashed in eastern England in 1944.`\
 https://nytimes.com/2024/05/23/world/europe/missing-wwii-pilot-uk.html
