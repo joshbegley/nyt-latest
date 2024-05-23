@@ -22,8 +22,8 @@ https://nytimes.com/video/climate/100000009484020/howler-monkeys-mexico-heat.htm
 `This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/05/23/learning/word-of-the-day-hubbub.html
 
-**Stage Structure Collapses in Mexico**\
-`First responders helped the injured after part of the stage fell over during a campaign rally.`\
+**Stage Collapses in Mexico**\
+`Footage widely shared on social media shows strong winds buffeting the stage as it collapses.`\
 https://nytimes.com/video/world/americas/100000009483936/mexico-candidate-stage-collapse.html
 
 **Thousands of Commuters Stranded After Power Outage**\
