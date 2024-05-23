@@ -1,3 +1,7 @@
+**House Candidate Who Pitched Herself as a ‘Renter’ Also Owns a $1.2 Million Home**\
+`Maggie Tamposi Goodlander, a Democrat and former White House aide, is running for an open seat in New Hampshire’s second district.`\
+https://nytimes.com/2024/05/23/us/politics/maggie-goodlander-house-candidate-home.html
+
 **From ‘The Sympathizer’ to ‘Past Lives,’ American Audiences Warm to Subtitles**\
 `In Hollywood today, not only are Asian and Asian American narratives more prominent than ever, but they are also being told in increasingly dynamic ways through the artful use of Asian languages.`\
 https://nytimes.com/interactive/2024/05/23/arts/asian-language-movies-subtitles.html
