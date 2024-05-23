@@ -1,3 +1,7 @@
+**Stage Collapses at Campaign Rally in Mexico, Killing at Least 4**\
+`The stage collapsed in a northern city after a gust of wind blew through the area, officials said. At least 15 people were injured.`\
+https://nytimes.com/2024/05/23/world/americas/mexico-candidate-stage-collapse.html
+
 **Thursday Briefing**\
 `Today, I’m handing the newsletter over to my colleague Azam Ahmed, who writes about a hidden history of the U.S. war in Afghanistan.`\
 https://nytimes.com/2024/05/23/briefing/afghanistan-britain-ukraine.html
