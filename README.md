@@ -1,3 +1,7 @@
+**Hurricane Season Could Have More Than Two Dozen Storms, NOAA Say**\
+`The Atlantic hurricane season is looking to be an extraordinary one, with 17 to 25 named storms predicted, experts said.`\
+https://nytimes.com/2024/05/23/weather/noaa-atlantic-hurricane-forecast-prediction.html
+
 **The protest at U.C.L.A. culminated in a violent attack by counterprotesters. Here’s what happened.**\
 `By Nicholas Bogel-Burroughs`\
 https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/the-protest-at-ucla-culminated-in-a-violent-attack-by-counterprotesters-heres-what-happened
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/23/sports/autoracing/f1-monaco-grand-prix-track.html
 **Mercedes, Which Dominated F1 for Almost a Decade, Struggles to Catch Up**\
 `The team has spent months trying to determine what is wrong with its underperforming car. The search continues.`\
 https://nytimes.com/2024/05/23/sports/autoracing/f1-mercedes-team-challenges.html
-
-**Carlos Sainz Continues to Look for a Seat in Formula 1**\
-`He has won Ferrari’s only race this year, but will be out in 2025 when Lewis Hamilton moves over from Mercedes.`\
-https://nytimes.com/2024/05/23/sports/autoracing/f1-carlos-sainz-team.html
 
