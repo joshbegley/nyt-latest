@@ -1,3 +1,23 @@
+**F.D.A. Panel Endorses Safety of Colon-Cancer Blood Test**\
+`The Guardant Health Shield test, one committee member said, “is better than nothing for patients who are getting nothing, but it is not better than a colonoscopy.”`\
+https://nytimes.com/2024/05/23/health/colon-cancer-blood-test-guardant.html
+
+**Ari Emanuel Condemns Netanyahu, Drawing Boos at Jewish Group’s Gala**\
+`“For the good of Israel, he should go,” Emanuel, chief executive of the media group Endeavor, said of Benjamin Netanyahu, Israel’s conservative prime minister.`\
+https://nytimes.com/2024/05/23/arts/ari-emanuel-condemns-netanyahu.html
+
+**America Is Still Having a ‘Vibecession’**\
+`Most voters say that they’re doing OK but that the economy is bad.`\
+https://nytimes.com/2024/05/23/opinion/biden-trump-vibecession.html
+
+**Israel Pushes Deeper Into Rafah, Defying International Opinion**\
+`While the government has been hit with a string of diplomatic and legal defeats, the Israeli public’s support for the Gaza war remains strong.`\
+https://nytimes.com/2024/05/23/world/middleeast/israel-rafah-gaza.html
+
+**We Haven’t Hit Peak Populism Yet**\
+`Americans have traded their faith in the American dream for the same sour, populist mood as pretty much everybody else.`\
+https://nytimes.com/2024/05/23/opinion/populism-trump-elections.html
+
 **Lawmakers Dial Up Pressure on Alito to Recuse From Elections Cases**\
 `The outcry over Justice Samuel A. Alito Jr. comes amid fears about whether the American public will regard the Supreme Court’s rulings about Jan. 6 as fair.`\
 https://nytimes.com/2024/05/23/us/politics/lawmakers-alito-recuse.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/05/23/opinion/trump-unified-reich.html
 **Bob McCreadie, ‘the Master of Going Faster,’ Dies at 73**\
 `One of the winningest drivers in dirt racing history, he was a folk hero who cursed wildly, drove aggressively and crashed a lot.`\
 https://nytimes.com/2024/05/23/sports/autoracing/bob-mccreadie-dead.html
-
-**Far-Right E.U. Lawmakers Remove Germany’s AfD Party Before Elections**\
-`The exclusion is a sign that domestic troubles for the Alternative for Germany party are starting to spill into European Union politics before elections.`\
-https://nytimes.com/2024/05/23/world/europe/afd-germany-eu-parliament.html
-
-**Why Amtrak Is to Blame for a Hellish Night for New Jersey Commuters**\
-`Sharing tracks means that any disruption along the 427-mile Northeast Corridor, which links Boston to Washington D.C., can be felt by thousands of passengers.`\
-https://nytimes.com/2024/05/23/nyregion/amtrak-nj-transit-trains.html
-
-**Strike Over Campus Protests Expands to U.C. Davis and U.C.L.A.**\
-`Word of the broadened walkout in the University of California system came on the same day that U.C.L.A.’s chancellor testified before Congress on his handling of an hourslong attack on a pro-Palestinian encampment.`\
-https://nytimes.com/2024/05/23/us/uc-davis-los-angeles-campus-protest-strike.html
-
-**Justices Allowed a Contested Voting Map in South Carolina**\
-`Also, the U.S. called for the breakup of Ticketmaster’s owner. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2024/05/23/briefing/supreme-court-south-carolina-ticketmaster-lawsuit.html
-
-**Did Cate Blanchett Make a Pro-Palestinian Fashion Statement at Cannes?**\
-`The actress hasn’t said so, but some internet users think she did. Plus, a bleak week for small fashion brands and wedding dresses for fashion-forward brides.`\
-https://nytimes.com/2024/05/23/style/cate-blanchett-cannes-film-festival-dress.html
 
