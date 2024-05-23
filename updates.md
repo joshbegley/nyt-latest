@@ -1,3 +1,7 @@
+**Former Trump Official Meets With Arab and Muslim American Leaders**\
+`The meeting in Michigan on Tuesday, led by Richard Grenell, acting director of national intelligence in the Trump administration, came as President Biden faces protests over his Israel policy.`\
+https://nytimes.com/2024/05/22/us/politics/trump-arab-americans.html
+
 **With Troubles at Home, Macron Pops Up 10,000 Miles Away**\
 `New Caledonia, a French territory in the Pacific, is on the brink of civil war as pro-independence activists protest a law that would expand voting rights.`\
 https://nytimes.com/2024/05/22/world/europe/macron-new-caledonia-france.html
