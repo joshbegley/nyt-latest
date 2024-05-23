@@ -1,3 +1,7 @@
+**Some iPhone Customers Could Get Up to $349 in an Apple Settlement**\
+`A class-action lawsuit about audio issues in iPhone 7 and 7 Plus phones has led to a $35 million settlement, though the company denies the phones were faulty.`\
+https://nytimes.com/2024/05/23/business/apple-iphone-settlement.html
+
 **Sports Betting Company Cancels Ad Starring Boris Johnson**\
 `The script for the advertisement called for the former prime minister to appear in a soccer jersey to promote this summer’s European soccer championship.`\
 https://nytimes.com/2024/05/23/world/europe/boris-johnson-paddy-power.html

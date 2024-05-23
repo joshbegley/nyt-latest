@@ -8,7 +8,7 @@ https://nytimes.com/interactive/2024/05/23/realestate/hamptons-beach-house-archi
 
 **Some iPhone Customers Could Get Up to $349 in an Apple Settlement**\
 `A class-action lawsuit about audio issues in iPhone 7 and 7 Plus phones has led to a $35 million settlement, though the company denies the phones were faulty.`\
-https://nytimes.com/2024/05/23/us/apple-iphone-settlement.html
+https://nytimes.com/2024/05/23/business/apple-iphone-settlement.html
 
 **In House Hearing, Republicans Demand Discipline for Student Protesters**\
 `Leaders of Northwestern, U.C.L.A. and Rutgers, drawing lessons from prior hearings, sought to avoid enraging either the Republicans on the committee or members of their own institutions.`\
