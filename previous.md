@@ -1,3 +1,7 @@
+**Will Big Donors Follow Haley Back to Trump?**\
+`An endorsement of sorts by the former Republican presidential hopeful may provide cover to prominent backers to follow suit.`\
+https://nytimes.com/2024/05/23/business/dealbook/haley-trump-donors.html
+
 **The D.I.Y. Empire of Kristin Juszczyk**\
 `She made her own clothes to wear at her husband’s football games. Now she’s dressing the winner of the Indy 500.`\
 https://nytimes.com/2024/05/23/style/kristin-juszczyk-49ers-custom-jackets.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/23/podcasts/the-daily/icc-warrants.html
 **TikTok Moves to Limit Russian and Chinese Media’s Reach in Big Election Year**\
 `The platform will keep state-affiliated media accounts out of users’ feeds if they “attempt to reach communities outside their home country on current global events and affairs.”`\
 https://nytimes.com/2024/05/23/business/tiktok-russia-china-misinformation-elections.html
-
-**The Connections Companion No. 348, May 24, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/23/crosswords/connections-companion-348.html
 

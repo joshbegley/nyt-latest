@@ -1,3 +1,7 @@
+**Will Big Donors Follow Haley Back to Trump?**\
+`An endorsement of sorts by the former Republican presidential hopeful may provide cover to prominent backers to follow suit.`\
+https://nytimes.com/2024/05/23/business/dealbook/haley-trump-donors.html
+
 **The D.I.Y. Empire of Kristin Juszczyk**\
 `She made her own clothes to wear at her husband’s football games. Now she’s dressing the winner of the Indy 500.`\
 https://nytimes.com/2024/05/23/style/kristin-juszczyk-49ers-custom-jackets.html
