@@ -1,4 +1,8 @@
-**Leaders of Northwestern, U.C.L.A. and Rutgers to Testify Before Congress**\
+**What does the House committee want with these hearings?**\
+`By Stephanie Saul`\
+https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/what-does-the-house-committee-want-with-these-hearings
+
+**Live Updates: Leaders of Northwestern, U.C.L.A. and Rutgers to Testify Before Congress**\
 `It will be the first hearing hosted by a Republican-led House committee since a wave of protest encampments roiled college campuses.`\
 https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/23/world/israel-gaza-war-hamas/israels-military
 **Nigel Farage to Skip U.K. Election So He Can Focus on Helping Trump**\
 `The populist British politician, a driving force behind Brexit, said he would not run in the July general election, citing the global importance of the American campaign.`\
 https://nytimes.com/2024/05/23/world/europe/nigel-farage-donald-trump-uk-election.html
-
-**‘Solo’ Review: Listen to Your Heart**\
-`Sophie Dupuis’s sensitive French Canadian drama takes a turn when a young, starry-eyed drag queen (Théodore Pellerin) opens up to questionable figures.`\
-https://nytimes.com/2024/05/23/movies/solo-review.html
 

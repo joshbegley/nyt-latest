@@ -1,3 +1,23 @@
+**Leaders of Northwestern, U.C.L.A. and Rutgers to Testify Before Congress**\
+`It will be the first hearing hosted by a Republican-led House committee since a wave of protest encampments roiled college campuses.`\
+https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing
+
+**A Mediterranean-Inspired Getaway in an Australian Surf Town**\
+`Plus: golden handbags, a Brooklyn boutique’s Tokyo pop-up and more recommendations from T Magazine.`\
+https://nytimes.com/2024/05/23/t-magazine/yamba-australia-il-delfino-inn.html
+
+**Amtrak and N.J. Transit Service Resumes After Rush-Hour Meltdown**\
+`Service had been restored by late Wednesday night, but riders were warned Thursday morning to expect residual delays and cancellations.`\
+https://nytimes.com/2024/05/23/nyregion/amtrak-nj-transit-service.html
+
+**Game Reviews: Mysteries of the Afterlife and the Eerie Present**\
+`In a strong month for indie games, Hauntii is a hunt for memories and Crow Country offers retro survival in a creepy amusement park. The origami-like Paper Trail feels a bit thin.`\
+https://nytimes.com/2024/05/23/arts/reviews-hauntii-crow-country-paper-trail.html
+
+**U.C.L.A.’s Chancellor Will Testify Today on Capitol Hill**\
+`Gene Block is scheduled to be among the latest group of university leaders to be grilled about antisemitism on campus.`\
+https://nytimes.com/2024/05/23/us/gene-block-ucla-antisemitism-hearing.html
+
 **Will Big Donors Follow Haley Back to Trump?**\
 `An endorsement of sorts by the former Republican presidential hopeful may provide cover to prominent backers to follow suit.`\
 https://nytimes.com/2024/05/23/business/dealbook/haley-trump-donors.html
