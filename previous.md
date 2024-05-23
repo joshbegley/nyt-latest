@@ -10,7 +10,7 @@ https://nytimes.com/2024/05/22/us/politics/trump-arab-americans.html
 `New Caledonia, a French territory in the Pacific, is on the brink of civil war as pro-independence activists protest a law that would expand voting rights.`\
 https://nytimes.com/2024/05/22/world/europe/macron-new-caledonia-france.html
 
-**Ohio Elections Official Says He Will Soon Exclude Biden From the Ballot**\
+**Ohio Elections Official Threatens to Exclude Biden From the Ballot**\
 `The Biden campaign is considering suing to ensure the president is on the ballot, after the Republican secretary of state said he would bar him over what is normally a minor procedural issue.`\
 https://nytimes.com/2024/05/22/us/politics/biden-ohio-ballot.html
 
