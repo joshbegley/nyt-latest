@@ -1,3 +1,7 @@
+**U.S. Plans to Sue Ticketmaster Owner, Accusing It of Defending a Monopoly**\
+`Live Nation Entertainment, the concert giant that owns Ticketmaster, faces a fight that could reshape the multibillion-dollar live music industry.`\
+https://nytimes.com/2024/05/22/technology/doj-ticketmaster-live-nation-antitrust-suit.html
+
 **Voters Oust Progressive Prosecutor in Portland**\
 `Mike Schmidt lost to Nathan Vasquez, a deputy district attorney in Multnomah County, Ore., who blamed his boss for the area’s recent problems with drugs and crime.`\
 https://nytimes.com/2024/05/22/us/politics/portland-prosecutor-mike-schmidt-nathan-vasquez.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/us/politics/trump-documents-nauta-cannon.html
 **Inside the White House, a Debate Over Letting Ukraine Shoot U.S. Weapons Into Russia**\
 `After a sobering trip to Kyiv, Secretary of State Antony J. Blinken is urging the president to lift restrictions on how Ukraine can use American arms.`\
 https://nytimes.com/2024/05/22/us/politics/white-house-ukraine-weapons-russia.html
-
-**Are Ayo Edebiri and Jeremy Allen White Dating?**\
-`Whether or not the rumors are true, the co-stars’ apparent bond continues to fascinate fans and serves as a reminder that some people are still rooting for love.`\
-https://nytimes.com/2024/05/22/style/ayo-edebiri-jeremy-allen-white-dating.html
 
