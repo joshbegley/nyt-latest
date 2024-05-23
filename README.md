@@ -1,40 +1,40 @@
-**Here’s What to Know About Canada’s Wildfire Season**\
-`Despite a relatively wet spring, government officials are warning that persistent drought across Western Canada could leave the region vulnerable to major fires.`\
-https://nytimes.com/article/canada-wildfire-season-forecast.html
+**Foreign Interventions in Haiti: A Brief History**\
+`For decades, international soldiers have deployed to Haiti, sometimes leaving behind a troubled legacy.`\
+https://nytimes.com/2024/05/23/world/americas/haiti-kenya-us-intervention-history.html
 
-**A Promise of ‘No Man Left Behind’ Leads to a Forest in England**\
-`A group led by archaeologists are searching for an American pilot who was killed when the B-17 he was flying crashed in eastern England in 1944.`\
-https://nytimes.com/2024/05/23/world/europe/missing-wwii-pilot-uk.html
+**Harvard Braces for Graduation Protests, a Fitting End to a Stormy Year**\
+`The rancor started with a student letter that held Israel responsible for the violence of the Oct. 7 Hamas attacks. Now, 13 seniors are barred from graduation.`\
+https://nytimes.com/2024/05/23/us/harvards-graduation-protests-antisemitism.html
 
-**N.Y.C. Public Schools Will Send 8th Graders to Visit Holocaust Museum**\
-`New York City plans to send eighth-grade students from across the city on field trips to the Museum of Jewish Heritage as part of an effort to address antisemitism.`\
-https://nytimes.com/2024/05/23/nyregion/students-holocaust-museum-nyc.html
+**She Realized Her American Dream With a Hamptons House. Which One Did She Buy?**\
+`The French-born, California-based owner of a fashion brand wanted a house that could accommodate visits from her three sons and also serve as a rental property.`\
+https://nytimes.com/interactive/2024/05/23/realestate/hamptons-home-sale-hunt.html
 
-**Defense Strategy in Gilgo Murder Case: Blame a Corrupt Police Chief**\
-`The lawyer for Rex Heuermann, the man accused in the case, said the early involvement of a notorious Long Island police chief may have tainted the investigation.`\
-https://nytimes.com/2024/05/23/nyregion/gilgo-beach-murders-police-chief.html
+**Does New York City Really Need More Smoke Shops?**\
+`When it comes to weed, I’m getting cranky.`\
+https://nytimes.com/live/2024/05/21/opinion/thepoint/marijuana-shop-nyc
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/05/23/crosswords/spelling-bee-forum.html
+**What to Expect From the Latest Hearing on Campus Protests**\
+`The leaders of Northwestern, Rutgers and the University of California, Los Angeles, will be the latest educators questioned by Republicans over accusations of allowing antisemitism.`\
+https://nytimes.com/2024/05/23/us/what-to-expect-from-the-latest-hearing-on-campus-protests.html
 
-**Jimmy Kimmel Roasts Republicans for Crying Wolf**\
-`President Biden “sent an elite team of ultraliberal F.B.I. agents to assassinate Donald Trump, but somehow he slipped out the back door,” Kimmel joked on Wednesday.`\
-https://nytimes.com/2024/05/23/arts/television/jimmy-kimmel-trump-classified-documents.html
+**A Nuclear Iran Has Never Felt More Possible**\
+`Is 2024 the year that Iran finally decides it can no longer take chances with its security and races to build a nuclear bomb?`\
+https://nytimes.com/2024/05/23/opinion/iran-nuclear-president.html
 
-**Howler Monkeys Fall From Trees Amid Mexico Heat**\
-`Scientists are investigating the situation that has left more than a hundred howler monkeys dead and others dehydrated and in critical condition in southern Mexico.`\
-https://nytimes.com/video/climate/100000009484020/howler-monkeys-mexico-heat.html
+**Their Diplomas Came With Envelopes of Cash, and a Catch**\
+`The billionaire Rob Hale gave the 1,200 graduates of the University of Massachusetts Dartmouth a gift, and asked them to give, too.`\
+https://nytimes.com/2024/05/23/us/billionaire-rob-hale-umass-dartmouth-graduates-cash.html
 
-**Word of the Day: hubbub**\
-`This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/05/23/learning/word-of-the-day-hubbub.html
+**Why Joe Biden Isn’t Getting Credit for the Economy**\
+`To the people he needs to win over, prices still feel too high and wages too low.`\
+https://nytimes.com/2024/05/23/podcasts/why-joe-biden-isnt-getting-credit-for-the-economy.html
 
-**Thousands of Commuters Stranded After Power Outage**\
-`People milled around in Newark’s Penn Station and New York’s Penn Station after service on Amtrak and New Jersey Transit trains between the two hubs came to a halt.`\
-https://nytimes.com/video/us/100000009483966/amtrak-nj-transit-trains-suspended.html
+**When Oprah Loved Trump**\
+`Many Americans think of Donald Trump as a celebrity first and a politician second, no matter his record or offenses.`\
+https://nytimes.com/2024/05/23/opinion/trump-oprah-polls.html
 
-**Thursday Briefing**\
-`Today, I’m handing the newsletter over to my colleague Azam Ahmed, who writes about a hidden history of the U.S. war in Afghanistan.`\
-https://nytimes.com/2024/05/23/briefing/afghanistan-britain-ukraine.html
+**At MoMA, LaToya Ruby Frazier Asks What Our Monuments Should Be**\
+`The documentary photographer honors those who turn their energies to a social good. And our critic says this artist does the same.`\
+https://nytimes.com/2024/05/23/arts/design/latoya-ruby-frazier-moma-review.html
 
