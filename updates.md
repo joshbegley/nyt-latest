@@ -1,3 +1,11 @@
+**Restaurant Collapse Kills at Least 4 and Injures More Than 20 in Majorca**\
+`People were feared to be trapped after parts of the terraces of a multilevel beach restaurant fell down to the sidewalk on a Spanish island that is popular with tourists.`\
+https://nytimes.com/2024/05/23/world/europe/mallorca-spain-restaurant-collapse.html
+
+**With ‘Unified Reich’ the Trump Campaign Takes It Up a Notch**\
+`A generation of young Republican staff members appear to be developing terminal white nationalist brain. And they will staff the next Republican administration.`\
+https://nytimes.com/2024/05/23/opinion/trump-unified-reich.html
+
 **Bob McCreadie, ‘the Master of Going Faster,’ Dies at 73**\
 `One of the winningest drivers in dirt racing history, he was a folk hero who cursed wildly, drove aggressively and crashed a lot.`\
 https://nytimes.com/2024/05/23/sports/autoracing/bob-mccreadie-dead.html
