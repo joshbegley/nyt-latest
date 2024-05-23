@@ -1,3 +1,7 @@
+**Why does anyone agree to testify before Congress anyway?**\
+`By Annie Karni`\
+https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/why-does-anyone-agree-to-testify-before-congress-anyway
+
 **Cassie After Sean Combs Footage: ‘Open Your Heart to Believing Victims’**\
 `The singer, who sued the hip-hop mogul over allegations of rape and abuse, posted a statement after 2016 video emerged last week showing him assaulting her in a hotel.`\
 https://nytimes.com/2024/05/23/arts/music/cassie-diddy-sean-combs-statement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/23/arts/reviews-hauntii-crow-country-paper-trail.htm
 **U.C.L.A.’s Chancellor Will Testify Today on Capitol Hill**\
 `Gene Block is scheduled to be among the latest group of university leaders to be grilled about antisemitism on campus.`\
 https://nytimes.com/2024/05/23/us/gene-block-ucla-antisemitism-hearing.html
-
-**Will Big Donors Follow Haley Back to Trump?**\
-`An endorsement of sorts by the former Republican presidential hopeful may provide cover to prominent backers to follow suit.`\
-https://nytimes.com/2024/05/23/business/dealbook/haley-trump-donors.html
 
