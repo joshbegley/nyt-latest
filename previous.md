@@ -1,3 +1,7 @@
+**As Slovakia’s Prime Minister Remains Hospitalized, Politics Return to a Boil**\
+`Calls for unity after the shooting of Robert Fico last week have been largely ignored by the country’s politicians. Much of the tension has centered on a media law pushed by the government.`\
+https://nytimes.com/2024/05/23/world/europe/slovakia-fico-government-media.html
+
 **Norfolk Southern to Pay U.S. $310 Million for East Palestine Accident**\
 `The railroad company reached an agreement with the federal government to settle claims and costs from the 2023 derailment of a train carrying hazardous materials in the Ohio town.`\
 https://nytimes.com/2024/05/23/business/norfolk-southern-justice-department-east-palestine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/23/dining/very-delicious-vegetarian-eating.html
 **At DanceAfrica, the Enduring Power of Love**\
 `A couple with deep ties to the popular Brooklyn festival and its founder and longtime artistic director, Chuck Davis, recall when their wedding was part of the show.`\
 https://nytimes.com/2024/05/23/arts/dance/danceafrica-woolbright.html
-
-**Subway Killing Spurs Bill to Expand Medicaid Funds for Psychiatric Beds**\
-`A Democrat and a Republican from New York will introduce the “Michelle Go Act,” named after a woman who was killed when a mentally ill homeless man pushed her in front of a subway train.`\
-https://nytimes.com/2024/05/23/nyregion/medicaid-psychiatric-beds-michelle-go.html
 

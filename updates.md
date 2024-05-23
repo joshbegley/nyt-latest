@@ -1,3 +1,7 @@
+**As Slovakia’s Prime Minister Remains Hospitalized, Politics Return to a Boil**\
+`Calls for unity after the shooting of Robert Fico last week have been largely ignored by the country’s politicians. Much of the tension has centered on a media law pushed by the government.`\
+https://nytimes.com/2024/05/23/world/europe/slovakia-fico-government-media.html
+
 **Norfolk Southern to Pay U.S. $310 Million for East Palestine Accident**\
 `The railroad company reached an agreement with the federal government to settle claims and costs from the 2023 derailment of a train carrying hazardous materials in the Ohio town.`\
 https://nytimes.com/2024/05/23/business/norfolk-southern-justice-department-east-palestine.html
