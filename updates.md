@@ -1,3 +1,7 @@
+**Mayor Adams Fills a Key Commission With Allies and Donors**\
+`Mayor Eric Adams named 13 people to a prominent city commission that could remake city government. Most are loyalists or have ties to his inner circle.`\
+https://nytimes.com/2024/05/22/nyregion/eric-adams-nyc-charter-commission.html
+
 **Ohio Elections Official Says He Will Soon Exclude Biden From the Ballot**\
 `The Biden campaign insists the issue will be resolved. Frank LaRose, the Republican secretary of state in Ohio, said he would bar the president over what is normally a minor procedural issue.`\
 https://nytimes.com/2024/05/22/us/politics/biden-ohio-ballot.html

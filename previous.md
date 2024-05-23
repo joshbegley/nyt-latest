@@ -16,7 +16,7 @@ https://nytimes.com/2024/05/22/nyregion/amtrak-nj-transit-trains-suspended.html
 
 **Mayor Adams Fills a Key Commission With Allies and Donors**\
 `Mayor Eric Adams named 13 people to a prominent city commission that could remake city government. Most are loyalists or have ties to his inner circle.`\
-https://nytimes.com/2024/05/22/nyregion/adams-city-charter-commission.html
+https://nytimes.com/2024/05/22/nyregion/eric-adams-nyc-charter-commission.html
 
 **Abortion Pills May Become Controlled Substances in Louisiana**\
 `A bill that is expected to pass would impose prison time and thousands of dollars in fines on people possessing the pills without a prescription.`\
