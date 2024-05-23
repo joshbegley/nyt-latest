@@ -1,3 +1,7 @@
+**A Promise of ‘No Man Left Behind’ Leads to a Forest in England**\
+`A group led by archaeologists are searching for an American pilot who was killed when the B-17 he was flying crashed in eastern England in 1944.`\
+https://nytimes.com/2024/05/23/world/europe/missing-wwii-pilot-uk.html
+
 **N.Y.C. Public Schools Will Send 8th Graders to Visit Holocaust Museum**\
 `New York City plans to send eighth-grade students from across the city on field trips to the Museum of Jewish Heritage as part of an effort to address antisemitism.`\
 https://nytimes.com/2024/05/23/nyregion/students-holocaust-museum-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/23/briefing/afghanistan-britain-ukraine.html
 **Is Modi Worried? India’s Long-Deflated Opposition Finds Some Momentum.**\
 `After setting a very high bar for his party in the election, Prime Minister Narendra Modi often appears on the defensive as the voting nears its end.`\
 https://nytimes.com/2024/05/23/world/asia/india-election-modi-opposition.html
-
-**Stage Collapses at Campaign Rally in Mexico, Killing at Least 9**\
-`Strong wind caused the collapse in northern Mexico as a presidential hopeful campaigned for a local candidate, officials said. Dozens of people were injured.`\
-https://nytimes.com/2024/05/23/world/americas/mexico-candidate-stage-collapse.html
 
