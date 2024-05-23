@@ -1,3 +1,11 @@
+**The Importance of a Personal Bridge Between the U.S. and China**\
+`The U.S. ambassador’s ties to former students in China could prove significant at a time of tension.`\
+https://nytimes.com/live/2024/05/21/opinion/thepoint/china-burns-university
+
+**Border Deal Fails Again in the Senate as Democrats Seek Political Edge**\
+`Senator Chuck Schumer, the majority leader, scheduled a vote, seeking to remind voters that Republicans have stood in the way of a solution to the chaos at the border.`\
+https://nytimes.com/2024/05/23/us/politics/border-deal-senate-democrats.html
+
 **Former Baltimore Prosecutor to Be Sentenced in Perjury Case**\
 `Marilyn Mosby, who rose to prominence for pursuing charges against police officers in the death of Freddie Gray, was found guilty of lying in mortgage applications.`\
 https://nytimes.com/2024/05/23/us/marilyn-mosby-baltimore-sentence.html

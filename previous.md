@@ -1,3 +1,11 @@
+**The Importance of a Personal Bridge Between the U.S. and China**\
+`The U.S. ambassador’s ties to former students in China could prove significant at a time of tension.`\
+https://nytimes.com/live/2024/05/21/opinion/thepoint/china-burns-university
+
+**Border Deal Fails Again in the Senate as Democrats Seek Political Edge**\
+`Senator Chuck Schumer, the majority leader, scheduled a vote, seeking to remind voters that Republicans have stood in the way of a solution to the chaos at the border.`\
+https://nytimes.com/2024/05/23/us/politics/border-deal-senate-democrats.html
+
 **Former Baltimore Prosecutor to Be Sentenced in Perjury Case**\
 `Marilyn Mosby, who rose to prominence for pursuing charges against police officers in the death of Freddie Gray, was found guilty of lying in mortgage applications.`\
 https://nytimes.com/2024/05/23/us/marilyn-mosby-baltimore-sentence.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/what-busines
 **As Israel’s Hard Line Stokes Anger Abroad, Netanyahu May Get Benefits at Home**\
 `Despite diplomatic blows this week, Israeli leaders are focused on their public, which still largely views the war with Hamas in Gaza as an existential conflict.`\
 https://nytimes.com/2024/05/23/world/middleeast/netanyahu-israel-gaza-war.html
-
-**U.S. Launches Antitrust Lawsuit Against Live Nation**\
-`The Justice Department sued the concert giant, which owns Ticketmaster, calling for the company to be broken up due to claims that it maintained a monopoly in the live entertainment industry.`\
-https://nytimes.com/video/us/100000009484814/live-nation-doj-ticketmaster-antitrust.html
-
-**Joe Zucker, Prolific Painter of Innumerable Styles, Dies at 82**\
-`His art, which he described as “conceptual and literal,” used a variety of materials, including cotton, wood and even squeegee handles.`\
-https://nytimes.com/2024/05/23/arts/joe-zucker-dead.html
 
