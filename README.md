@@ -1,3 +1,7 @@
+**A Blistering Congressional Hearing Forces Accountability on Covid Origins**\
+`It all started with a single FOIA request.`\
+https://nytimes.com/live/2024/05/21/opinion/thepoint/covid-origins-foia-congress
+
 **Biden’s Powerful Reminder of Trump’s Racist History**\
 `But Democrats need to build stronger relationships with Black voters, not just run ads.`\
 https://nytimes.com/live/2024/05/21/opinion/thepoint/biden-trump-ad-racism
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/23/world/middleeast/cia-burns-israel-hostages-cease-
 **U.C.L.A. Students Form New Protest While Chancellor Testifies in Congress**\
 `A small group of protesters initially formed a new encampment early in the afternoon, but after the police moved in, they fled to an area by a nearby administrative building.`\
 https://nytimes.com/2024/05/23/us/ucla-pro-palestinian-encampment.html
-
-**Sunak Says U.K. Won’t Send Asylum Seekers to Rwanda Before Election**\
-`The prime minister’s admission that a key political project will not begin before voters head to the polls puts the Conservatives in a risky position.`\
-https://nytimes.com/2024/05/23/world/europe/uk-sunak-election-rwanda.html
 
