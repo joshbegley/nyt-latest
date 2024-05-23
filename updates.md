@@ -1,3 +1,11 @@
+**Tennessee Attorney General to Review Company’s Bid to Sell Graceland**\
+`The attorney general’s office said it is looking into Nausanny Investments’ effort to foreclose on Elvis Presley’s former home. His heirs called it a fraud.`\
+https://nytimes.com/2024/05/23/arts/tennessee-attorney-general-to-review-companys-bid-to-sell-graceland.html
+
+**The Full Guest List for Biden’s State Dinner With Kenya**\
+`The Bidens invited more than 450 guests, including Bill and Hillary Clinton, Carol Moseley Braun, Melinda Gates, Lester Holt, LeVar Burton and Sean Penn.`\
+https://nytimes.com/2024/05/23/us/politics/full-guest-list-biden-state-dinner-kenya.html
+
 **Cannabis Tops Alcohol as Americans’ Daily Drug of Choice**\
 `A new study shows a growing number of people are regularly using cannabis, while frequent alcohol consumption has remained stable.`\
 https://nytimes.com/2024/05/23/well/mind/marijuana-cannabis-alcohol-study.html
