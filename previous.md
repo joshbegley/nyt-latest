@@ -1,3 +1,7 @@
+**What business does Congress have questioning university presidents anyway?**\
+`By Kayla Guo`\
+https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/what-business-does-congress-have-questioning-university-presidents-anyway
+
 **As Israel’s Hard Line Stokes Anger Abroad, Netanyahu May Get Benefits at Home**\
 `Despite diplomatic blows this week, Israeli leaders are focused on their public, which still largely views the war with Hamas in Gaza as an existential conflict.`\
 https://nytimes.com/2024/05/23/world/middleeast/netanyahu-israel-gaza-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/23/us/politics/trump-biden-2024-campaign.html
 **Political Consultant Who Orchestrated Fake Biden Robocalls Is Indicted**\
 `The calls used an artificial-intelligence impersonation of President Biden to urge Democrats not to vote in New Hampshire’s presidential primary.`\
 https://nytimes.com/2024/05/23/us/politics/biden-robocalls-steve-kramer-democratic-primary.html
-
-**There’s a Salad for That**\
-`Grilled halloumi and zucchini with salsa verde if you’re the cookout grill master, charred bok choy and cannellinis if you’re a salad-toting guest.`\
-https://nytimes.com/2024/05/23/dining/memorial-day-salad-recipes.html
 

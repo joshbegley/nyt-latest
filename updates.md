@@ -1,3 +1,7 @@
+**What business does Congress have questioning university presidents anyway?**\
+`By Kayla Guo`\
+https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/what-business-does-congress-have-questioning-university-presidents-anyway
+
 **As Israel’s Hard Line Stokes Anger Abroad, Netanyahu May Get Benefits at Home**\
 `Despite diplomatic blows this week, Israeli leaders are focused on their public, which still largely views the war with Hamas in Gaza as an existential conflict.`\
 https://nytimes.com/2024/05/23/world/middleeast/netanyahu-israel-gaza-war.html
