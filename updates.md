@@ -1,3 +1,7 @@
+**There’s a Salad for That**\
+`Grilled halloumi and zucchini with salsa verde if you’re the cookout grill master, charred bok choy and cannellinis if you’re a salad-toting guest.`\
+https://nytimes.com/2024/05/23/dining/memorial-day-salad-recipes.html
+
 **U.S. Military Faces Reality in Gaza as Aid Project Struggles**\
 `The Pentagon predicted that a stream of humanitarian aid would be arriving in Gaza via the floating pier, but little relief has reached the besieged strip, officials acknowledged this week.`\
 https://nytimes.com/2024/05/23/us/politics/pentagon-gaza-pier-aid.html

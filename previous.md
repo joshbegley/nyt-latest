@@ -24,7 +24,7 @@ https://nytimes.com/2024/05/23/us/politics/biden-robocalls-steve-kramer-democrat
 
 **There’s a Salad for That**\
 `Grilled halloumi and zucchini with salsa verde if you’re the cookout grill master, charred bok choy and cannellinis if you’re a salad-toting guest.`\
-https://nytimes.com/2024/05/23/dining/theres-a-salad-for-that.html
+https://nytimes.com/2024/05/23/dining/memorial-day-salad-recipes.html
 
 **Graduation’s Pomp Goes On, No Matter the Circumstance**\
 `Commencement is the rare American ritual that still has rules. That’s why it’s ripe for disruption.`\

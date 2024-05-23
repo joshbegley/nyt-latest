@@ -1,3 +1,15 @@
+**As Israel’s Hard Line Stokes Anger Abroad, Netanyahu May Get Benefits at Home**\
+`Despite diplomatic blows this week, Israeli leaders are focused on their public, which still largely views the war with Hamas in Gaza as an existential conflict.`\
+https://nytimes.com/2024/05/23/world/middleeast/israel-gaza-netanyahu-analysis.html
+
+**U.S. Launches Antitrust Lawsuit Against Live Nation**\
+`The Justice Department sued the concert giant, which owns Ticketmaster, calling for the company to be broken up due to claims that it maintained a monopoly in the live entertainment industry.`\
+https://nytimes.com/video/us/100000009484814/live-nation-doj-ticketmaster-antitrust.html
+
+**Joe Zucker, Prolific Painter of Innumerable Styles, Dies at 82**\
+`His art, which he described as “conceptual and literal,” used a variety of materials, including cotton, wood and even squeegee handles.`\
+https://nytimes.com/2024/05/23/arts/joe-zucker-dead.html
+
 **U.S. Military Faces Reality in Gaza as Aid Project Struggles**\
 `The Pentagon predicted that a stream of humanitarian aid would be arriving in Gaza via the floating pier, but little relief has reached the besieged strip, officials acknowledged this week.`\
 https://nytimes.com/2024/05/23/us/politics/pentagon-gaza-pier-aid.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/23/us/politics/biden-robocalls-steve-kramer-democrat
 **There’s a Salad for That**\
 `Grilled halloumi and zucchini with salsa verde if you’re the cookout grill master, charred bok choy and cannellinis if you’re a salad-toting guest.`\
 https://nytimes.com/2024/05/23/dining/memorial-day-salad-recipes.html
-
-**Graduation’s Pomp Goes On, No Matter the Circumstance**\
-`Commencement is the rare American ritual that still has rules. That’s why it’s ripe for disruption.`\
-https://nytimes.com/2024/05/23/arts/graduation-commencement-protests.html
-
-**Israeli forces raided a major hospital in northern Gaza, forcing patients and staff to evacuate.**\
-`By Hiba Yazbek and Anushka Patil`\
-https://nytimes.com/live/2024/05/23/world/israel-gaza-war-hamas/israeli-forces-raided-a-major-hospital-in-northern-gaza-forcing-patients-and-staff-to-evacuate
-
-**Once Critics of Trump, These Republicans Are Now Playing by His Rules**\
-`Republicans like Nikki Haley have had to contort themselves to overlook their criticisms of former President Donald J. Trump as they decide to back him after all.`\
-https://nytimes.com/2024/05/23/us/politics/trump-critics-endorsements.html
 
