@@ -1,3 +1,7 @@
+**A Test of Cloud-Brightening Machines Poses No Health Risk, Officials Say**\
+`After halting a test of controversial technology to fight global warming, the city of Alameda, Calif., said it had found no “measurable health risk” from testing the giant salty mist-spraying fans.`\
+https://nytimes.com/2024/05/23/climate/cloud-brightening-geoengineering.html
+
 **Restaurant Collapse Kills at Least 4 and Injures More Than 20 in Majorca**\
 `People were feared to be trapped after parts of the terraces of a multilevel beach restaurant fell down to the sidewalk on a Spanish island that is popular with tourists.`\
 https://nytimes.com/2024/05/23/world/europe/mallorca-spain-restaurant-collapse.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/23/style/cate-blanchett-cannes-film-festival-dress.h
 **A Blistering Congressional Hearing Forces Accountability on Covid Origins**\
 `It all started with a single FOIA request.`\
 https://nytimes.com/live/2024/05/21/opinion/thepoint/covid-origins-foia-congress
-
-**Biden’s Powerful Reminder of Trump’s Racist History**\
-`But Democrats need to build stronger relationships with Black voters, not just run ads.`\
-https://nytimes.com/live/2024/05/21/opinion/thepoint/biden-trump-ad-racism
 
