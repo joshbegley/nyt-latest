@@ -1,3 +1,15 @@
+**There’s a Salad for That**\
+`Grilled halloumi and zucchini with salsa verde if you’re the cookout grill master, charred bok choy and cannellinis if you’re a salad-toting guest.`\
+https://nytimes.com/2024/05/23/dining/theres-a-salad-for-that.html
+
+**Graduation’s Pomp Goes On, No Matter the Circumstance**\
+`Commencement is the rare American ritual that still has rules. That’s why it’s ripe for disruption.`\
+https://nytimes.com/2024/05/23/arts/graduation-commencement-protests.html
+
+**Israeli forces raided a major hospital in northern Gaza, forcing patients and staff to evacuate.**\
+`By Hiba Yazbek and Anushka Patil`\
+https://nytimes.com/live/2024/05/23/world/israel-gaza-war-hamas/israeli-forces-raided-a-major-hospital-in-northern-gaza-forcing-patients-and-staff-to-evacuate
+
 **Once Critics of Trump, These Republicans Are Now Playing by His Rules**\
 `Republicans like Nikki Haley have had to contort themselves to overlook their criticisms of former President Donald J. Trump as they decide to back him after all.`\
 https://nytimes.com/2024/05/23/us/politics/trump-critics-endorsements.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/representati
 **Nikki Haley, Ever Pragmatic, Tries to Keep Her Options Open**\
 `Her long-term future, and that of her party, may come to pass one day. Or not.`\
 https://nytimes.com/live/2024/05/21/opinion/thepoint/haley-trump-future
-
-**How to Buy Yourself a Longer Life**\
-`If price is no object, neither is death.`\
-https://nytimes.com/2024/05/23/opinion/longevity-equinox-wellness-immortality.html
-
-**Fallout From Cyberattack at Ascension Hospitals Persists, Causing Delays in Patient Care**\
-`For two weeks at the 140-hospital system, doctors and nurses have had little access to digital records for patient histories, resorting to paper and faxes to treat people.`\
-https://nytimes.com/2024/05/23/health/cyberattack-ascension-hospitals-patient-data.html
-
-**With his probing questions, this freshman Republican has stood out in the hearings.**\
-`By Jeremy W. Peters`\
-https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/with-his-tough-questions-this-freshman-republican-has-stood-out-in-the-hearings
 
