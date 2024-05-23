@@ -1,3 +1,7 @@
+**Cassie After Sean Combs Footage: ‘Open Your Heart to Believing Victims’**\
+`The singer, who sued the hip-hop mogul over allegations of rape and abuse, posted a statement after 2016 video emerged last week showing him assaulting her in a hotel.`\
+https://nytimes.com/2024/05/23/arts/music/cassie-diddy-sean-combs-statement.html
+
 **A general who became a university president advises: ‘Take time to tell it like it is.’**\
 `By Alan Blinder`\
 https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/a-general-who-became-a-university-president-advises-take-time-to-tell-it-like-it-is
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/23/us/gene-block-ucla-antisemitism-hearing.html
 **Will Big Donors Follow Haley Back to Trump?**\
 `An endorsement of sorts by the former Republican presidential hopeful may provide cover to prominent backers to follow suit.`\
 https://nytimes.com/2024/05/23/business/dealbook/haley-trump-donors.html
-
-**The D.I.Y. Empire of Kristin Juszczyk**\
-`She made her own clothes to wear at her husband’s football games. Now she’s dressing the winner of the Indy 500.`\
-https://nytimes.com/2024/05/23/style/kristin-juszczyk-49ers-custom-jackets.html
 
