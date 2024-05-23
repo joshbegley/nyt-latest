@@ -1,6 +1,6 @@
 **In House Hearing, Republicans Demand Discipline for Student Protesters**\
 `Leaders of Northwestern, U.C.L.A. and Rutgers, drawing lessons from prior hearings, sought to avoid enraging either the Republicans on the committee or members of their own institutions.`\
-https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/house-hearing-republicans-campus-antisemitism
+https://nytimes.com/2024/05/23/us/house-hearing-republicans-campus-antisemitism.html
 
 **C.I.A. Director to Meet With Israeli Counterpart This Weekend Over Cease-Fire Talks**\
 `It was unclear if negotiators from Egypt and Qatar would participate.`\
