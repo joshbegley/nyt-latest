@@ -12,7 +12,7 @@ https://nytimes.com/2024/05/23/technology/ticketmaster-live-nation-lawsuit-antit
 
 **U.K. 2024 General Election: What to Know**\
 `The governing Conservative Party could be voted out of power for the first time in 14 years.`\
-https://nytimes.com/2024/05/23/world/europe/britain-2024-general-election.html
+https://nytimes.com/2024/05/23/world/europe/uk-general-election.html
 
 **Russia Detains Another Defense Official, in New Sign of Putin Shake-Up**\
 `Lt. Gen. Vadim Shamarin is accused of “large-scale” bribery, the latest in a series of high-profile arrests that have coincided with the appointment of a new defense minister.`\
