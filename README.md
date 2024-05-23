@@ -27,7 +27,7 @@ https://nytimes.com/2024/05/22/technology/doj-ticketmaster-live-nation-antitrust
 https://nytimes.com/2024/05/22/us/politics/portland-prosecutor-mike-schmidt-nathan-vasquez.html
 
 **Trains Suspended Between New York and Philadelphia After Power Outage**\
-`Fallen electrical wires in New Jersey stopped Amtrak and New Jersey Transit trains, but did not affect the subway or the Long Island Rail Road, according to transit agencies.`\
+`Fallen electrical wires in New Jersey brought Amtrak and New Jersey Transit service to a halt on the Northeast Corridor, leaving travelers stranded, according to transit agencies.`\
 https://nytimes.com/2024/05/22/nyregion/amtrak-nj-transit-trains-suspended.html
 
 **Mayor Adams Fills a Key Commission With Allies and Donors**\
