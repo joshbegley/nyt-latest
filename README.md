@@ -1,9 +1,13 @@
+**Tennessee Attorney General to Review Company’s Bid to Sell Graceland**\
+`The attorney general’s office said it is looking into Nausanny Investments’ effort to foreclose on Elvis Presley’s former home. His heirs called it a fraud.`\
+https://nytimes.com/2024/05/23/arts/tennessee-attorney-general-to-review-companys-bid-to-sell-graceland.html
+
 **Cannabis Tops Alcohol as Americans’ Daily Drug of Choice**\
 `A new study shows a growing number of people are regularly using cannabis, while frequent alcohol consumption has remained stable.`\
 https://nytimes.com/2024/05/23/well/mind/marijuana-cannabis-alcohol-study.html
 
 **The Full Guest List for Biden’s State Dinner With Kenya**\
-`The Bidens invited more than 450 guests, including Bill and Hillary Clinton, Carol Moseley Braun, Melinda Gates, Lester Holt and Sean Penn.`\
+`The Bidens invited more than 450 guests, including Bill and Hillary Clinton, Carol Moseley Braun, Melinda Gates, Lester Holt, LeVar Burton and Sean Penn.`\
 https://nytimes.com/2024/05/23/us/politics/full-guest-list-biden-state-dinner-kenya.html
 
 **F.D.A. Panel Endorses Safety of Colon-Cancer Blood Test**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/23/us/politics/lawmakers-alito-recuse.html
 **A Test of Cloud-Brightening Machines Poses No Health Risk, Officials Say**\
 `After halting a test of controversial technology to fight global warming, the city of Alameda, Calif., said it had found no “measurable health risk” from the giant salty-mist-spraying fans.`\
 https://nytimes.com/2024/05/23/climate/cloud-brightening-geoengineering.html
-
-**Restaurant Collapse Kills at Least 4 and Injures More Than 20 in Majorca**\
-`People were feared to be trapped after parts of the terraces of a multilevel beach restaurant fell down to the sidewalk on a Spanish island that is popular with tourists.`\
-https://nytimes.com/2024/05/23/world/europe/mallorca-spain-restaurant-collapse.html
 
