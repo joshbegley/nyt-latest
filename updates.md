@@ -1,3 +1,7 @@
+**Read the lawsuit against Live Nation**\
+`The Justice Department called for the company, which owns Ticketmaster, to be broken up.`\
+https://nytimes.com/interactive/2024/05/23/us/23livenation-lawsuit.html
+
 **Why Biden Is Behind in the Polls**\
 `Readers discuss a column by Ezra Klein. Also: Benjamin Netanyahu’s fate; Madonna at 65; a pediatrics group on gender-affirming care.`\
 https://nytimes.com/2024/05/23/opinion/biden-trump-polls.html

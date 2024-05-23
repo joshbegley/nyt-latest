@@ -15,7 +15,7 @@ https://nytimes.com/2024/05/23/us/politics/trump-evan-gershkovich-putin.html
 https://nytimes.com/video/weather/100000009482207/forecasts-predict-daunting-hurricane-season.html
 
 **Read the lawsuit against Live Nation**\
-`The Justice Department called for the company, which owns Ticketmaster, to be broken up`\
+`The Justice Department called for the company, which owns Ticketmaster, to be broken up.`\
 https://nytimes.com/interactive/2024/05/23/us/23livenation-lawsuit.html
 
 **Very Delicious Vegetarian Eating**\
