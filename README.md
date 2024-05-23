@@ -1,3 +1,7 @@
+**Quote of the Day: America’s Monster**\
+`Quotation of the Day for Thursday, May 23, 2024`\
+https://nytimes.com/2024/05/22/pageoneplus/quote-of-the-day-americas-monster.html
+
 **China Launches Military Drills Around Taiwan as ‘Punishment’**\
 `China said the sea and air drills were meant as a “stern warning” to its opponents after Taiwan’s new president asserted the island’s sovereignty in defiance of Beijing.`\
 https://nytimes.com/2024/05/22/world/asia/china-taiwan-drills.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/us/politics/portland-prosecutor-mike-schmidt-nath
 **Power Outage Halts Northeast Corridor Trains, Stranding Thousands**\
 `Fallen electrical wires in New Jersey brought Amtrak and New Jersey Transit service to a halt on the Northeast Corridor, leaving travelers stranded, according to transit agencies.`\
 https://nytimes.com/2024/05/22/nyregion/amtrak-nj-transit-trains-suspended.html
-
-**Mayor Adams Fills a Key Commission With Allies and Donors**\
-`Mayor Eric Adams named 13 people to a prominent city commission that could remake city government. Most are loyalists or have ties to his inner circle.`\
-https://nytimes.com/2024/05/22/nyregion/eric-adams-nyc-charter-commission.html
 
