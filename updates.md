@@ -1,3 +1,7 @@
+**Why Northwestern, U.C.L.A. and Rutgers Were Picked for the Hearing**\
+`The House committee’s school choices suggest a shift in focus, from the larger issue of campus antisemitism to pro-Palestinian encampments and their organizers.`\
+https://nytimes.com/2024/05/23/us/why-northwestern-ucla-rutgers.html
+
 **What does the House committee want with these hearings?**\
 `By Stephanie Saul`\
 https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/what-does-the-house-committee-want-with-these-hearings
