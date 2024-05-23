@@ -1,3 +1,7 @@
+**Ohio Governor Calls Special Legislative Session to Ensure Biden Is on Ballot**\
+`The General Assembly had adjourned earlier this week without a solution for a procedural issue that threatened to keep President Biden off the fall ballot.`\
+https://nytimes.com/2024/05/23/us/politics/biden-ohio-ballot-special-session.html
+
 **Tennessee Attorney General to Review Company’s Bid to Sell Graceland**\
 `The attorney general’s office said it is looking into Nausanny Investments’ effort to foreclose on Elvis Presley’s former home. His heirs called it a fraud.`\
 https://nytimes.com/2024/05/23/arts/tennessee-attorney-general-to-review-companys-bid-to-sell-graceland.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/23/opinion/populism-trump-elections.html
 **Lawmakers Dial Up Pressure on Alito to Recuse From Elections Cases**\
 `The outcry over Justice Samuel A. Alito Jr. comes amid fears about whether the American public will regard the Supreme Court’s rulings about Jan. 6 as fair.`\
 https://nytimes.com/2024/05/23/us/politics/lawmakers-alito-recuse.html
-
-**A Test of Cloud-Brightening Machines Poses No Health Risk, Officials Say**\
-`After halting a test of controversial technology to fight global warming, the city of Alameda, Calif., said it had found no “measurable health risk” from the giant salty-mist-spraying fans.`\
-https://nytimes.com/2024/05/23/climate/cloud-brightening-geoengineering.html
 
