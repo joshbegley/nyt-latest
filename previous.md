@@ -1,3 +1,7 @@
+**The D.I.Y. Empire of Kristin Juszczyk**\
+`She made her own clothes to wear at her husband’s football games. Now she’s dressing the winner of the Indy 500.`\
+https://nytimes.com/2024/05/23/style/kristin-juszczyk-49ers-custom-jackets.html
+
 **Israel’s military says it is fighting near central Rafah, apparently expanding its operation in the city.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/05/23/world/israel-gaza-war-hamas/israels-military-says-it-is-fighting-near-central-rafah-apparently-expanding-its-operation-in-the-city
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/23/business/tiktok-russia-china-misinformation-elect
 **The Connections Companion No. 348, May 24, 2024**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/05/23/crosswords/connections-companion-348.html
-
-**Today’s Wordle Review No. 1,070, May 24, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/23/crosswords/wordle-review.html
 
