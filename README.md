@@ -1,3 +1,7 @@
+**Here’s What to Know About Canada’s Wildfire Season**\
+`Despite a relatively wet spring, government officials are warning that persistent drought across Western Canada could leave the region vulnerable to major fires.`\
+https://nytimes.com/article/canada-wildfire-season-forecast.html
+
 **A Promise of ‘No Man Left Behind’ Leads to a Forest in England**\
 `A group led by archaeologists are searching for an American pilot who was killed when the B-17 he was flying crashed in eastern England in 1944.`\
 https://nytimes.com/2024/05/23/world/europe/missing-wwii-pilot-uk.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000009483966/amtrak-nj-transit-trains-suspended.
 **Thursday Briefing**\
 `Today, I’m handing the newsletter over to my colleague Azam Ahmed, who writes about a hidden history of the U.S. war in Afghanistan.`\
 https://nytimes.com/2024/05/23/briefing/afghanistan-britain-ukraine.html
-
-**Is Modi Worried? India’s Long-Deflated Opposition Finds Some Momentum.**\
-`After setting a very high bar for his party in the election, Prime Minister Narendra Modi often appears on the defensive as the voting nears its end.`\
-https://nytimes.com/2024/05/23/world/asia/india-election-modi-opposition.html
 
