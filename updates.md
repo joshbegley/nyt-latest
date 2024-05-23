@@ -1,3 +1,15 @@
+**As Israel’s Hard Line Stokes Anger Abroad, Netanyahu May Get Benefits at Home**\
+`Despite diplomatic blows this week, Israeli leaders are focused on their public, which still largely views the war with Hamas in Gaza as an existential conflict.`\
+https://nytimes.com/2024/05/23/world/middleeast/netanyahu-israel-gaza-war.html
+
+**U.S. Launches Antitrust Lawsuit Against Live Nation**\
+`The Justice Department sued the concert giant, which owns Ticketmaster, calling for the company to be broken up due to claims that it maintained a monopoly in the live entertainment industry.`\
+https://nytimes.com/video/us/100000009484814/live-nation-doj-ticketmaster-antitrust.html
+
+**Joe Zucker, Prolific Painter of Innumerable Styles, Dies at 82**\
+`His art, which he described as “conceptual and literal,” used a variety of materials, including cotton, wood and even squeegee handles.`\
+https://nytimes.com/2024/05/23/arts/joe-zucker-dead.html
+
 **There’s a Salad for That**\
 `Grilled halloumi and zucchini with salsa verde if you’re the cookout grill master, charred bok choy and cannellinis if you’re a salad-toting guest.`\
 https://nytimes.com/2024/05/23/dining/memorial-day-salad-recipes.html
