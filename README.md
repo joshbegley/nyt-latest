@@ -1,3 +1,7 @@
+**The Full Guest List for Biden’s State Dinner With Kenya**\
+`The Bidens invited more than 450 guests, including Bill and Hillary Clinton, Carol Moseley Braun, Melinda Gates, Lester Holt and Sean Penn.`\
+https://nytimes.com/2024/05/23/us/politics/full-guest-list-biden-state-dinner-kenya.html
+
 **F.D.A. Panel Endorses Safety of Colon-Cancer Blood Test**\
 `The Guardant Health Shield test, one committee member said, “is better than nothing for patients who are getting nothing, but it is not better than a colonoscopy.”`\
 https://nytimes.com/2024/05/23/health/colon-cancer-blood-test-guardant.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/23/world/europe/mallorca-spain-restaurant-collapse.h
 **With ‘Unified Reich’ the Trump Campaign Takes It Up a Notch**\
 `A generation of young Republican staff members appear to be developing terminal white nationalist brain. And they will staff the next Republican administration.`\
 https://nytimes.com/2024/05/23/opinion/trump-unified-reich.html
-
-**Bob McCreadie, ‘the Master of Going Faster,’ Dies at 73**\
-`One of the winningest drivers in dirt racing history, he was a folk hero who cursed wildly, drove aggressively and crashed a lot.`\
-https://nytimes.com/2024/05/23/sports/autoracing/bob-mccreadie-dead.html
 
