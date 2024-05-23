@@ -1,3 +1,7 @@
+**This Is the Life!**\
+`Wind your way through Adam Wagner’s puzzle.`\
+https://nytimes.com/2024/05/22/crosswords/daily-puzzle-2024-05-23.html
+
 **Ohio Elections Official Threatens to Exclude Biden From the Ballot**\
 `The Biden campaign is considering suing to ensure the president is on the ballot, after the Republican secretary of state said he would bar him over what is normally a minor procedural issue.`\
 https://nytimes.com/2024/05/22/us/politics/biden-ohio-ballot.html
