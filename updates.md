@@ -1,3 +1,11 @@
+**Hurricane Season Could Have More Than Two Dozen Storms, NOAA Say**\
+`The Atlantic hurricane season is looking to be an extraordinary one, with 17 to 25 named storms predicted, experts said.`\
+https://nytimes.com/2024/05/23/weather/noaa-atlantic-hurricane-forecast-prediction.html
+
+**The protest at U.C.L.A. culminated in a violent attack by counterprotesters. Here’s what happened.**\
+`By Nicholas Bogel-Burroughs`\
+https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/the-protest-at-ucla-culminated-in-a-violent-attack-by-counterprotesters-heres-what-happened
+
 **Elise Stefanik Has Gained Widespread Attention in Antisemitism Hearings**\
 `The Republican of New York was already a rising star within her party before the Israel-Hamas war turbocharged concerns about antisemitic incidents in American education.`\
 https://nytimes.com/2024/05/23/us/elise-stefanik-republican-antisemitism-hearings.html
