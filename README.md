@@ -1,3 +1,11 @@
+**How college and public school leaders have performed in past hearings.**\
+`By Alan Blinder`\
+https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/how-college-and-public-school-leaders-have-performed-in-past-hearings
+
+**In a City of Ancient Jewish Mysticism, Israelis Arm for a Fight**\
+`In Safed, a center of kabbalah, ordinary citizens shocked by the Oct. 7 attacks are carrying military-grade weapons.`\
+https://nytimes.com/2024/05/23/world/middleeast/israel-safed-guns.html
+
 **Virginia Foxx’s Focus on Antisemitism on College Campuses Has Raised Her Profile**\
 `The House member from North Carolina attributes her blunt conservative politics to her pulled-herself-up-by-her-bootstraps life.`\
 https://nytimes.com/2024/05/23/us/virginia-foxx-antisemitism.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing
 **A Mediterranean-Inspired Getaway in an Australian Surf Town**\
 `Plus: golden handbags, a Brooklyn boutique’s Tokyo pop-up and more recommendations from T Magazine.`\
 https://nytimes.com/2024/05/23/t-magazine/yamba-australia-il-delfino-inn.html
-
-**Game Reviews: Mysteries of the Afterlife and the Eerie Present**\
-`In a strong month for indie games, Hauntii is a hunt for memories and Crow Country offers retro survival in a creepy amusement park. The origami-like Paper Trail feels a bit thin.`\
-https://nytimes.com/2024/05/23/arts/reviews-hauntii-crow-country-paper-trail.html
-
-**Amtrak and N.J. Transit Service Resumes After Rush-Hour Meltdown**\
-`Service had been restored by late Wednesday night, but riders were warned Thursday morning to expect residual delays and cancellations.`\
-https://nytimes.com/2024/05/23/nyregion/amtrak-nj-transit-service.html
 
