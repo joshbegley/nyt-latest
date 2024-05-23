@@ -1,3 +1,7 @@
+**A Test of Cloud-Brightening Machines Poses No Health Risk, Officials Say**\
+`After halting a test of controversial technology to fight global warming, the city of Alameda, Calif., said it had found no “measurable health risk” from the giant salty-mist-spraying fans.`\
+https://nytimes.com/2024/05/23/climate/cloud-brightening-geoengineering.html
+
 **Restaurant Collapse Kills at Least 4 and Injures More Than 20 in Majorca**\
 `People were feared to be trapped after parts of the terraces of a multilevel beach restaurant fell down to the sidewalk on a Spanish island that is popular with tourists.`\
 https://nytimes.com/2024/05/23/world/europe/mallorca-spain-restaurant-collapse.html
