@@ -1,3 +1,11 @@
+**Representative Ilhan Omar has defended pro-Palestinian students.**\
+`By Sharon Otterman`\
+https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/representative-ilhan-omar-has-defended-pro-palestinian-students
+
+**Nikki Haley, Ever Pragmatic, Tries to Keep Her Options Open**\
+`Her long-term future, and that of her party, may come to pass one day. Or not.`\
+https://nytimes.com/live/2024/05/21/opinion/thepoint/haley-trump-future
+
 **With his probing questions, this freshman Republican has stood out in the hearings.**\
 `By Jeremy W. Peters`\
 https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/with-his-tough-questions-this-freshman-republican-has-stood-out-in-the-hearings

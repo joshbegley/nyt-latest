@@ -1,3 +1,11 @@
+**Representative Ilhan Omar has defended pro-Palestinian students.**\
+`By Sharon Otterman`\
+https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/representative-ilhan-omar-has-defended-pro-palestinian-students
+
+**Nikki Haley, Ever Pragmatic, Tries to Keep Her Options Open**\
+`Her long-term future, and that of her party, may come to pass one day. Or not.`\
+https://nytimes.com/live/2024/05/21/opinion/thepoint/haley-trump-future
+
 **How to Buy Yourself a Longer Life**\
 `If price is no object, neither is death.`\
 https://nytimes.com/2024/05/23/opinion/longevity-equinox-wellness-immortality.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/23/us/hurricane-season-callout.html
 **Why Biden Is Behind in the Polls**\
 `Readers discuss a column by Ezra Klein. Also: Benjamin Netanyahu’s fate; Madonna at 65; a pediatrics group on gender-affirming care.`\
 https://nytimes.com/2024/05/23/opinion/biden-trump-polls.html
-
-**Northwestern was among the first schools to reach an agreement with pro-Palestinian demonstrators.**\
-`By Ernesto Londoño`\
-https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/northwestern-was-among-the-first-schools-to-strike-a-deal-with-pro-palestinian-demonstrators
-
-**Trump Plays Up His Putin Ties in Claiming He Could Get Gershkovich Released**\
-`A spokesman for the Kremlin said President Vladimir V. Putin of Russia has had no contact with former President Donald J. Trump.`\
-https://nytimes.com/2024/05/23/us/politics/trump-evan-gershkovich-putin.html
 
