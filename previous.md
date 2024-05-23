@@ -1,3 +1,11 @@
+**Prosecutor in Trump Georgia Case to Appeal Judge’s Decision to Quash Six Charges**\
+`Thursday’s legal filing by Fani Willis creates a second substantive set of issues that must now be considered by the Georgia Court of Appeals before the election case can go to trial.`\
+https://nytimes.com/2024/05/23/us/fani-willis-trump-georgia-appeal.html
+
+**Pro-Palestinian Activism Marks CUNY Law Graduation Despite Speaker Ban**\
+`With speeches canceled, students at the CUNY School of Law ceremony chanted, carried signs and walked out.`\
+https://nytimes.com/2024/05/23/nyregion/pro-palestinian-walkout-cuny-law-ceremony.html
+
 **Ohio Governor Calls Special Legislative Session to Ensure Biden Is on Ballot**\
 `The General Assembly had adjourned earlier this week without a solution for a procedural issue that threatened to keep President Biden off the fall ballot.`\
 https://nytimes.com/2024/05/23/us/politics/biden-ohio-ballot-special-session.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/23/opinion/biden-trump-vibecession.html
 **Israel Pushes Deeper Into Rafah, Defying International Opinion**\
 `While the government has been hit with a string of diplomatic and legal defeats, the Israeli public’s support for the Gaza war remains strong.`\
 https://nytimes.com/2024/05/23/world/middleeast/israel-rafah-gaza.html
-
-**We Haven’t Hit Peak Populism Yet**\
-`Americans have traded their faith in the American dream for the same sour, populist mood as pretty much everybody else.`\
-https://nytimes.com/2024/05/23/opinion/populism-trump-elections.html
-
-**Lawmakers Dial Up Pressure on Alito to Recuse From Elections Cases**\
-`The outcry over Justice Samuel A. Alito Jr. comes amid fears about whether the American public will regard the Supreme Court’s rulings about Jan. 6 as fair.`\
-https://nytimes.com/2024/05/23/us/politics/lawmakers-alito-recuse.html
 
