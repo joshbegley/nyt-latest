@@ -1,3 +1,7 @@
+**Sunak Says U.K. Won’t Send Asylum Seekers to Rwanda Before Election**\
+`The prime minister’s admission that a key political project will not begin before voters head to the polls puts the Conservatives in a risky position.`\
+https://nytimes.com/2024/05/23/world/europe/uk-sunak-election-rwanda.html
+
 **5 Stellar New Cookies in New York City**\
 `Becky Hughes will take a cookie over a pastry, every time. (Please don’t bully her.)`\
 https://nytimes.com/2024/05/23/dining/5-stellar-new-cookies-in-new-york-city.html

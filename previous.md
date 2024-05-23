@@ -1,3 +1,7 @@
+**Sunak Says U.K. Won’t Send Asylum Seekers to Rwanda Before Election**\
+`The prime minister’s admission that a key political project will not begin before voters head to the polls puts the Conservatives in a risky position.`\
+https://nytimes.com/2024/05/23/world/europe/uk-sunak-election-rwanda.html
+
 **5 Stellar New Cookies in New York City**\
 `Becky Hughes will take a cookie over a pastry, every time. (Please don’t bully her.)`\
 https://nytimes.com/2024/05/23/dining/5-stellar-new-cookies-in-new-york-city.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/05/23/arts/asian-language-movies-subtitles.
 **House Passes Measure to Repeal D.C. Noncitizen Voting Law**\
 `Fifty-two Democrats joined Republicans in favor of the legislation, which has little chance of enactment but offered the G.O.P. a chance to amplify Donald Trump’s false claims of widespread illegal voting by noncitizens.`\
 https://nytimes.com/2024/05/23/us/politics/house-passes-measure-to-repeal-dc-noncitizen-voting-law.html
-
-**What business does Congress have questioning university presidents anyway?**\
-`By Kayla Guo`\
-https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/what-business-does-congress-have-questioning-university-presidents-anyway
 
