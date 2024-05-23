@@ -1,7 +1,3 @@
-**What’s in Your Hurricane Stash?**\
-`The hurricane season begins on June 1. We want to know how you prepare.`\
-https://nytimes.com/2024/05/23/us/hurricane-season-callout.html
-
 **Why Biden Is Behind in the Polls**\
 `Readers discuss a column by Ezra Klein. Also: Benjamin Netanyahu’s fate; Madonna at 65; a pediatrics group on gender-affirming care.`\
 https://nytimes.com/2024/05/23/opinion/biden-trump-polls.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/05/23/nyregion/medicaid-psychiatric-beds-michelle-go.ht
 **Hurricane Season Could Have More Than Two Dozen Storms, NOAA Says**\
 `The Atlantic hurricane season is looking to be an extraordinary one, with 17 to 25 named storms predicted, experts said.`\
 https://nytimes.com/2024/05/23/weather/noaa-atlantic-hurricane-forecast-prediction.html
+
+**The protest at U.C.L.A. culminated in a violent attack by counterprotesters. Here’s what happened.**\
+`By Nicholas Bogel-Burroughs`\
+https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/the-protest-at-ucla-culminated-in-a-violent-attack-by-counterprotesters-heres-what-happened
 
