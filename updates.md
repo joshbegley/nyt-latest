@@ -1,3 +1,15 @@
+**Sports Betting Company Cancels Ad Starring Boris Johnson**\
+`The script for the advertisement called for the former prime minister to appear in a soccer jersey to promote this summer’s European soccer championship.`\
+https://nytimes.com/2024/05/23/world/europe/boris-johnson-paddy-power.html
+
+**Sand, Sea and Soul: These Architects Follow Nature**\
+`An architectural firm waited years to design for clients who wanted a modern look in the Hamptons — it uses the sky, the ocean and dunes as muses.`\
+https://nytimes.com/interactive/2024/05/23/realestate/hamptons-beach-house-architecture.html
+
+**Some iPhone Customers Could Get Up to $349 in an Apple Settlement**\
+`A class-action lawsuit about audio issues in iPhone 7 and 7 Plus phones has led to a $35 million settlement, though the company denies the phones were faulty.`\
+https://nytimes.com/2024/05/23/us/apple-iphone-settlement.html
+
 **In House Hearing, Republicans Demand Discipline for Student Protesters**\
 `Leaders of Northwestern, U.C.L.A. and Rutgers, drawing lessons from prior hearings, sought to avoid enraging either the Republicans on the committee or members of their own institutions.`\
 https://nytimes.com/2024/05/23/us/house-hearing-republicans-campus-antisemitism.html
