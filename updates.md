@@ -1,3 +1,7 @@
+**House Passes Measure to Repeal D.C. Noncitizen Voting Law**\
+`Fifty-two Democrats joined Republicans in favor of the legislation, which has little chance of enactment but offered the G.O.P. a chance to amplify Donald Trump’s false claims of widespread illegal voting by noncitizens.`\
+https://nytimes.com/2024/05/23/us/politics/house-passes-measure-to-repeal-dc-noncitizen-voting-law.html
+
 **What business does Congress have questioning university presidents anyway?**\
 `By Kayla Guo`\
 https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/what-business-does-congress-have-questioning-university-presidents-anyway
