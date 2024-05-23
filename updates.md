@@ -1,3 +1,15 @@
+**N.Y.C. Public Schools Will Send 8th Graders to Visit Holocaust Museum**\
+`New York City plans to send eighth-grade students from across the city on field trips to the Museum of Jewish Heritage as part of an effort to address antisemitism.`\
+https://nytimes.com/2024/05/23/nyregion/students-holocaust-museum-nyc.html
+
+**Defense Strategy in Gilgo Murder Case: Blame a Corrupt Police Chief**\
+`The lawyer for Rex Heuermann, the man accused in the case, said the early involvement of a notorious Long Island police chief may have tainted the investigation.`\
+https://nytimes.com/2024/05/23/nyregion/gilgo-beach-murders-police-chief.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/05/23/crosswords/spelling-bee-forum.html
+
 **Jimmy Kimmel Roasts Republicans for Crying Wolf**\
 `President Biden “sent an elite team of ultraliberal F.B.I. agents to assassinate Donald Trump, but somehow he slipped out the back door,” Kimmel joked on Wednesday.`\
 https://nytimes.com/2024/05/23/arts/television/jimmy-kimmel-trump-classified-documents.html
