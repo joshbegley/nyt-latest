@@ -1,3 +1,7 @@
+**Lawmakers Dial Up Pressure on Alito to Recuse From Elections Cases**\
+`The outcry over Justice Samuel A. Alito Jr. comes amid fears about whether the American public will regard the Supreme Court’s rulings about Jan. 6 as fair.`\
+https://nytimes.com/2024/05/23/us/politics/lawmakers-alito-recuse.html
+
 **A Test of Cloud-Brightening Machines Poses No Health Risk, Officials Say**\
 `After halting a test of controversial technology to fight global warming, the city of Alameda, Calif., said it had found no “measurable health risk” from the giant salty-mist-spraying fans.`\
 https://nytimes.com/2024/05/23/climate/cloud-brightening-geoengineering.html
