@@ -1,3 +1,7 @@
+**Iran Prepares to Bury President Raisi**\
+`The president, who died in a helicopter crash, will be buried at a shrine in the northeastern city of Mashhad, his hometown.`\
+https://nytimes.com/2024/05/23/world/middleeast/iran-president-raisi-burial.html
+
 **Foreign Interventions in Haiti: A Brief History**\
 `For decades, international soldiers have deployed to Haiti, sometimes leaving behind a troubled legacy.`\
 https://nytimes.com/2024/05/23/world/americas/haiti-kenya-us-intervention-history.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/23/podcasts/why-joe-biden-isnt-getting-credit-for-th
 **When Oprah Loved Trump**\
 `Many Americans think of Donald Trump as a celebrity first and a politician second, no matter his record or offenses.`\
 https://nytimes.com/2024/05/23/opinion/trump-oprah-polls.html
-
-**At MoMA, LaToya Ruby Frazier Asks What Our Monuments Should Be**\
-`The documentary photographer honors those who turn their energies to a social good. And our critic says this artist does the same.`\
-https://nytimes.com/2024/05/23/arts/design/latoya-ruby-frazier-moma-review.html
 
