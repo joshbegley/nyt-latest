@@ -1,3 +1,7 @@
+**U.S. Plans to Sue Ticketmaster Owner, Accusing It of Defending a Monopoly**\
+`Live Nation Entertainment, the concert giant that owns Ticketmaster, faces a fight that could reshape the multibillion-dollar live music industry.`\
+https://nytimes.com/2024/05/22/technology/doj-ticketmaster-live-nation-antitrust-suit.html
+
 **Voters Oust Progressive Prosecutor in Portland**\
 `Mike Schmidt lost to Nathan Vasquez, a deputy district attorney in Multnomah County, Ore., who blamed his boss for the area’s recent problems with drugs and crime.`\
 https://nytimes.com/2024/05/22/us/politics/portland-prosecutor-mike-schmidt-nathan-vasquez.html
