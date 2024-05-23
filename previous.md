@@ -1,3 +1,7 @@
+**How to Buy Yourself a Longer Life**\
+`If price is no object, neither is death.`\
+https://nytimes.com/2024/05/23/opinion/longevity-equinox-wellness-immortality.html
+
 **Fallout From Cyberattack at Ascension Hospitals Persists, Causing Delays in Patient Care**\
 `For two weeks at the 140-hospital system, doctors and nurses have had little access to digital records for patient histories, resorting to paper and faxes to treat people.`\
 https://nytimes.com/2024/05/23/health/cyberattack-ascension-hospitals-patient-data.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/northwestern
 **Trump Plays Up His Putin Ties in Claiming He Could Get Gershkovich Released**\
 `A spokesman for the Kremlin said President Vladimir V. Putin of Russia has had no contact with former President Donald J. Trump.`\
 https://nytimes.com/2024/05/23/us/politics/trump-evan-gershkovich-putin.html
-
-**Forecasts Predict Daunting Hurricane Season**\
-`According to major forecasts, it looks like it’s going to be an above-average hurricane season. Judson Jones, a meteorologist for The New York Times, explains why.`\
-https://nytimes.com/video/weather/100000009482207/forecasts-predict-daunting-hurricane-season.html
 

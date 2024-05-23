@@ -1,3 +1,7 @@
+**How to Buy Yourself a Longer Life**\
+`If price is no object, neither is death.`\
+https://nytimes.com/2024/05/23/opinion/longevity-equinox-wellness-immortality.html
+
 **Fallout From Cyberattack at Ascension Hospitals Persists, Causing Delays in Patient Care**\
 `For two weeks at the 140-hospital system, doctors and nurses have had little access to digital records for patient histories, resorting to paper and faxes to treat people.`\
 https://nytimes.com/2024/05/23/health/cyberattack-ascension-hospitals-patient-data.html
