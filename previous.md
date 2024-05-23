@@ -18,10 +18,6 @@ https://nytimes.com/2024/05/23/podcasts/taiwan-china-military-drill-alito-flag-a
 `The I.C.C.’s chief prosecutor publicly seeks arrest warrants for the leaders of Israel and of Hamas.`\
 https://nytimes.com/2024/05/23/podcasts/the-daily/icc-warrants.html
 
-**Scanning the Dark Universe, Euclid Finds Scenes of Cosmic Light**\
-`The European Space Agency’s Euclid telescope’s latest release shows off the device’s capabilities.`\
-https://nytimes.com/2024/05/23/science/euclid-telescope-images.html
-
 **TikTok Moves to Limit Russian and Chinese Media’s Reach in Big Election Year**\
 `The platform will keep state-affiliated media accounts out of users’ feeds if they “attempt to reach communities outside their home country on current global events and affairs.”`\
 https://nytimes.com/2024/05/23/business/tiktok-russia-china-misinformation-elections.html
