@@ -1,3 +1,7 @@
+**Virginia Foxx’s Focus on Antisemitism on College Campuses Has Raised Her Profile**\
+`The House member from North Carolina attributes her blunt conservative politics to her pulled-herself-up-by-her-bootstraps life.`\
+https://nytimes.com/2024/05/23/us/virginia-foxx-antisemitism.html
+
 **Why does anyone agree to testify before Congress anyway?**\
 `By Annie Karni`\
 https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/why-does-anyone-agree-to-testify-before-congress-anyway
@@ -18,8 +22,8 @@ https://nytimes.com/2024/05/23/us/why-northwestern-ucla-rutgers-antisemitism-pro
 `By Stephanie Saul`\
 https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/what-does-the-house-committee-want-with-these-hearings
 
-**Live Updates: Leaders of Northwestern, U.C.L.A. and Rutgers to Testify Before Congress**\
-`It will be the first hearing hosted by a Republican-led House committee since a wave of protest encampments roiled college campuses.`\
+**Live Updates: Leaders of Northwestern, U.C.L.A. and Rutgers Testifying Before Congress**\
+`It is the first hearing hosted by a Republican-led House committee since a wave of protest encampments spread across college campuses.`\
 https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing
 
 **A Mediterranean-Inspired Getaway in an Australian Surf Town**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/23/nyregion/amtrak-nj-transit-service.html
 **Game Reviews: Mysteries of the Afterlife and the Eerie Present**\
 `In a strong month for indie games, Hauntii is a hunt for memories and Crow Country offers retro survival in a creepy amusement park. The origami-like Paper Trail feels a bit thin.`\
 https://nytimes.com/2024/05/23/arts/reviews-hauntii-crow-country-paper-trail.html
-
-**U.C.L.A.’s Chancellor Will Testify Today on Capitol Hill**\
-`Gene Block is scheduled to be among the latest group of university leaders to be grilled about antisemitism on campus.`\
-https://nytimes.com/2024/05/23/us/gene-block-ucla-antisemitism-hearing.html
 

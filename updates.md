@@ -1,3 +1,11 @@
+**Virginia Foxx’s Focus on Antisemitism on College Campuses Has Raised Her Profile**\
+`The House member from North Carolina attributes her blunt conservative politics to her pulled-herself-up-by-her-bootstraps life.`\
+https://nytimes.com/2024/05/23/us/virginia-foxx-antisemitism.html
+
+**Live Updates: Leaders of Northwestern, U.C.L.A. and Rutgers Testifying Before Congress**\
+`It is the first hearing hosted by a Republican-led House committee since a wave of protest encampments spread across college campuses.`\
+https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing
+
 **Why does anyone agree to testify before Congress anyway?**\
 `By Annie Karni`\
 https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/why-does-anyone-agree-to-testify-before-congress-anyway
