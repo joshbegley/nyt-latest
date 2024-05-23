@@ -1,3 +1,7 @@
+**Stage Structure Collapses in Mexico**\
+`First responders helped the injured after part of the stage fell over during a campaign rally.`\
+https://nytimes.com/video/world/americas/100000009483936/mexico-candidate-stage-collapse.html
+
 **Thousands of Commuters Stranded After Power Outage**\
 `People milled around in Newark’s Penn Station and New York’s Penn Station after service on Amtrak and New Jersey Transit trains between the two hubs came to a halt.`\
 https://nytimes.com/video/us/100000009483966/amtrak-nj-transit-trains-suspended.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/world/asia/china-taiwan-drills.html
 **This Is the Life!**\
 `Wind your way through Adam Wagner’s puzzle.`\
 https://nytimes.com/2024/05/22/crosswords/daily-puzzle-2024-05-23.html
-
-**Transcript of Trump Manhattan Trial, May 21, 2024**\
-`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
-https://nytimes.com/interactive/2024/05/22/nyregion/trump-hush-money-trial-transcript-may-21.html
 

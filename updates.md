@@ -1,3 +1,7 @@
+**Stage Structure Collapses in Mexico**\
+`First responders helped the injured after part of the stage fell over during a campaign rally.`\
+https://nytimes.com/video/world/americas/100000009483936/mexico-candidate-stage-collapse.html
+
 **Thousands of Commuters Stranded After Power Outage**\
 `People milled around in Newark’s Penn Station and New York’s Penn Station after service on Amtrak and New Jersey Transit trains between the two hubs came to a halt.`\
 https://nytimes.com/video/us/100000009483966/amtrak-nj-transit-trains-suspended.html
