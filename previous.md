@@ -1,3 +1,11 @@
+**Fallout From Cyberattack at Ascension Hospitals Persists, Causing Delays in Patient Care**\
+`For two weeks at the 140-hospital system, doctors and nurses have had little access to digital records for patient histories, resorting to paper and faxes to treat people.`\
+https://nytimes.com/2024/05/23/health/cyberattack-ascension-hospitals-patient-data.html
+
+**With his tough questions, this freshman Republican has stood out in the hearings.**\
+`By Jeremy W. Peters`\
+https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/with-his-tough-questions-this-freshman-republican-has-stood-out-in-the-hearings
+
 **Why Congress Loves Toying With University Presidents**\
 `Members of Congress aren’t going to tire of their tried-and-true tactics any time soon.`\
 https://nytimes.com/live/2024/05/21/opinion/thepoint/university-presidents-testify
@@ -18,7 +26,7 @@ https://nytimes.com/2024/05/23/us/hurricane-season-callout.html
 `Readers discuss a column by Ezra Klein. Also: Benjamin Netanyahu’s fate; Madonna at 65; a pediatrics group on gender-affirming care.`\
 https://nytimes.com/2024/05/23/opinion/biden-trump-polls.html
 
-**Northwestern was among the first schools to strike a deal with pro-Palestinian demonstrators.**\
+**Northwestern was among the first schools to reach an agreement with pro-Palestinian demonstrators.**\
 `By Ernesto Londoño`\
 https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/northwestern-was-among-the-first-schools-to-strike-a-deal-with-pro-palestinian-demonstrators
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/23/us/politics/trump-evan-gershkovich-putin.html
 **Forecasts Predict Daunting Hurricane Season**\
 `According to major forecasts, it looks like it’s going to be an above-average hurricane season. Judson Jones, a meteorologist for The New York Times, explains why.`\
 https://nytimes.com/video/weather/100000009482207/forecasts-predict-daunting-hurricane-season.html
-
-**Read the lawsuit against Live Nation**\
-`The Justice Department called for the company, which owns Ticketmaster, to be broken up.`\
-https://nytimes.com/interactive/2024/05/23/us/23livenation-lawsuit.html
-
-**Very Delicious Vegetarian Eating**\
-`Hetty Lui McKinnon shares tips and recipes for eating more meatless meals, like cold noodle salad with spicy peanut sauce, and cumin mushroom and green beans stir fry.`\
-https://nytimes.com/2024/05/23/dining/very-delicious-vegetarian-eating.html
 
