@@ -1,3 +1,15 @@
+**Strike Over Campus Protests Expands to U.C. Davis and U.C.L.A.**\
+`Word of the broadened walkout in the University of California system came on the same day that U.C.L.A.’s chancellor testified before Congress on his handling of an hourslong attack on a pro-Palestinian encampment.`\
+https://nytimes.com/2024/05/23/us/uc-davis-los-angeles-campus-protest-strike.html
+
+**Justices Allowed a Contested Voting Map in South Carolina**\
+`Also, the U.S. called for the breakup of Ticketmaster’s owner. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/05/23/briefing/supreme-court-south-carolina-ticketmaster-lawsuit.html
+
+**Did Cate Blanchett Make a Pro-Palestinian Fashion Statement at Cannes?**\
+`The actress hasn’t said so, but some internet users think she did. Plus, a bleak week for small fashion brands and wedding dresses for fashion-forward brides.`\
+https://nytimes.com/2024/05/23/style/cate-blanchett-cannes-film-festival-dress.html
+
 **A Blistering Congressional Hearing Forces Accountability on Covid Origins**\
 `It all started with a single FOIA request.`\
 https://nytimes.com/live/2024/05/21/opinion/thepoint/covid-origins-foia-congress

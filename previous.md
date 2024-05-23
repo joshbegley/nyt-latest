@@ -1,3 +1,15 @@
+**Strike Over Campus Protests Expands to U.C. Davis and U.C.L.A.**\
+`Word of the broadened walkout in the University of California system came on the same day that U.C.L.A.’s chancellor testified before Congress on his handling of an hourslong attack on a pro-Palestinian encampment.`\
+https://nytimes.com/2024/05/23/us/uc-davis-los-angeles-campus-protest-strike.html
+
+**Justices Allowed a Contested Voting Map in South Carolina**\
+`Also, the U.S. called for the breakup of Ticketmaster’s owner. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/05/23/briefing/supreme-court-south-carolina-ticketmaster-lawsuit.html
+
+**Did Cate Blanchett Make a Pro-Palestinian Fashion Statement at Cannes?**\
+`The actress hasn’t said so, but some internet users think she did. Plus, a bleak week for small fashion brands and wedding dresses for fashion-forward brides.`\
+https://nytimes.com/2024/05/23/style/cate-blanchett-cannes-film-festival-dress.html
+
 **A Blistering Congressional Hearing Forces Accountability on Covid Origins**\
 `It all started with a single FOIA request.`\
 https://nytimes.com/live/2024/05/21/opinion/thepoint/covid-origins-foia-congress
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2024/05/23/realestate/hamptons-beach-house-archi
 **Some iPhone Customers Could Get Up to $349 in an Apple Settlement**\
 `A class-action lawsuit about audio issues in iPhone 7 and 7 Plus phones has led to a $35 million settlement, though the company denies the phones were faulty.`\
 https://nytimes.com/2024/05/23/business/apple-iphone-settlement.html
-
-**In House Hearing, Republicans Demand Discipline for Student Protesters**\
-`Leaders of Northwestern, U.C.L.A. and Rutgers, drawing lessons from prior hearings, sought to avoid enraging either the Republicans on the committee or members of their own institutions.`\
-https://nytimes.com/2024/05/23/us/house-hearing-republicans-campus-antisemitism.html
-
-**C.I.A. Director to Meet With Israeli Counterpart This Weekend Over Cease-Fire Talks**\
-`It was unclear if negotiators from Egypt and Qatar would participate.`\
-https://nytimes.com/2024/05/23/world/middleeast/cia-burns-israel-hostages-cease-fire.html
-
-**U.C.L.A. Students Form New Protest While Chancellor Testifies in Congress**\
-`A small group of protesters initially formed a new encampment early in the afternoon, but after the police moved in, they fled to an area by a nearby administrative building.`\
-https://nytimes.com/2024/05/23/us/ucla-pro-palestinian-encampment.html
 
