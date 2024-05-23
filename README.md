@@ -30,11 +30,11 @@ https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing
 `Plus: golden handbags, a Brooklyn boutique’s Tokyo pop-up and more recommendations from T Magazine.`\
 https://nytimes.com/2024/05/23/t-magazine/yamba-australia-il-delfino-inn.html
 
-**Amtrak and N.J. Transit Service Resumes After Rush-Hour Meltdown**\
-`Service had been restored by late Wednesday night, but riders were warned Thursday morning to expect residual delays and cancellations.`\
-https://nytimes.com/2024/05/23/nyregion/amtrak-nj-transit-service.html
-
 **Game Reviews: Mysteries of the Afterlife and the Eerie Present**\
 `In a strong month for indie games, Hauntii is a hunt for memories and Crow Country offers retro survival in a creepy amusement park. The origami-like Paper Trail feels a bit thin.`\
 https://nytimes.com/2024/05/23/arts/reviews-hauntii-crow-country-paper-trail.html
+
+**Amtrak and N.J. Transit Service Resumes After Rush-Hour Meltdown**\
+`Service had been restored by late Wednesday night, but riders were warned Thursday morning to expect residual delays and cancellations.`\
+https://nytimes.com/2024/05/23/nyregion/amtrak-nj-transit-service.html
 
