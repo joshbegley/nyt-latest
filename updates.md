@@ -1,3 +1,7 @@
+**Why Congress Loves Toying With University Presidents**\
+`Members of Congress aren’t going to tire of their tried-and-true tactics any time soon.`\
+https://nytimes.com/live/2024/05/21/opinion/thepoint/university-presidents-testify
+
 **As Slovakia’s Prime Minister Remains Hospitalized, Politics Return to a Boil**\
 `Calls for unity after the shooting of Robert Fico last week have been largely ignored by the country’s politicians. Much of the tension has centered on a media law pushed by the government.`\
 https://nytimes.com/2024/05/23/world/europe/slovakia-fico-government-media.html
