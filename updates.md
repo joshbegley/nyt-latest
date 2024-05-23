@@ -1,3 +1,7 @@
+**With his probing questions, this freshman Republican has stood out in the hearings.**\
+`By Jeremy W. Peters`\
+https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/with-his-tough-questions-this-freshman-republican-has-stood-out-in-the-hearings
+
 **Norfolk Southern to Pay U.S. $310 Million for East Palestine Accident**\
 `The railroad company reached an agreement with the federal government to settle claims and costs from the 2023 derailment of a train carrying hazardous materials in the Ohio town.`\
 https://nytimes.com/2024/05/23/business/east-palestine-ohio-train-derailment-settlement.html
