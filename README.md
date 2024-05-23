@@ -1,3 +1,7 @@
+**Thousands of Commuters Stranded After Power Outage**\
+`People milled around in Newark’s Penn Station and New York’s Penn Station after service on Amtrak and New Jersey Transit trains between the two hubs came to a halt.`\
+https://nytimes.com/video/us/100000009483966/amtrak-nj-transit-trains-suspended.html
+
 **Thursday Briefing**\
 `Today, I’m handing the newsletter over to my colleague Azam Ahmed, who writes about a hidden history of the U.S. war in Afghanistan.`\
 https://nytimes.com/2024/05/23/briefing/afghanistan-britain-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/crosswords/daily-puzzle-2024-05-23.html
 **Transcript of Trump Manhattan Trial, May 21, 2024**\
 `New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
 https://nytimes.com/interactive/2024/05/22/nyregion/trump-hush-money-trial-transcript-may-21.html
-
-**Former Trump Official Meets With Arab and Muslim American Leaders**\
-`The meeting in Michigan on Tuesday, led by Richard Grenell, acting director of national intelligence in the Trump administration, came as President Biden faces protests over his Israel policy.`\
-https://nytimes.com/2024/05/22/us/politics/trump-arab-americans.html
 
