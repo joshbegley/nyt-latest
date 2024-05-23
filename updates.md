@@ -1,3 +1,19 @@
+**Very Delicious Vegetarian Eating**\
+`Hetty Lui McKinnon shares tips and recipes for eating more meatless meals, like cold noodle salad with spicy peanut sauce, and cumin mushroom and green beans stir fry.`\
+https://nytimes.com/2024/05/23/dining/very-delicious-vegetarian-eating.html
+
+**At DanceAfrica, the Enduring Power of Love**\
+`A couple with deep ties to the popular Brooklyn festival and its founder and longtime artistic director, Chuck Davis, recall when their wedding was part of the show.`\
+https://nytimes.com/2024/05/23/arts/dance/danceafrica-woolbright.html
+
+**Medicaid Funding Would Expand Psychiatric Beds Under New Bill**\
+`A Democrat and a Republican from New York will introduce the “Michelle Go Act,” named after a woman who was killed when a mentally ill homeless man pushed her in front of a subway train.`\
+https://nytimes.com/2024/05/23/nyregion/medicaid-psychiatric-beds-michelle-go.html
+
+**Hurricane Season Could Have More Than Two Dozen Storms, NOAA Says**\
+`The Atlantic hurricane season is looking to be an extraordinary one, with 17 to 25 named storms predicted, experts said.`\
+https://nytimes.com/2024/05/23/weather/noaa-atlantic-hurricane-forecast-prediction.html
+
 **Hurricane Season Could Have More Than Two Dozen Storms, NOAA Say**\
 `The Atlantic hurricane season is looking to be an extraordinary one, with 17 to 25 named storms predicted, experts said.`\
 https://nytimes.com/2024/05/23/weather/noaa-atlantic-hurricane-forecast-prediction.html

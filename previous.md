@@ -1,4 +1,16 @@
-**Hurricane Season Could Have More Than Two Dozen Storms, NOAA Say**\
+**Very Delicious Vegetarian Eating**\
+`Hetty Lui McKinnon shares tips and recipes for eating more meatless meals, like cold noodle salad with spicy peanut sauce, and cumin mushroom and green beans stir fry.`\
+https://nytimes.com/2024/05/23/dining/very-delicious-vegetarian-eating.html
+
+**At DanceAfrica, the Enduring Power of Love**\
+`A couple with deep ties to the popular Brooklyn festival and its founder and longtime artistic director, Chuck Davis, recall when their wedding was part of the show.`\
+https://nytimes.com/2024/05/23/arts/dance/danceafrica-woolbright.html
+
+**Medicaid Funding Would Expand Psychiatric Beds Under New Bill**\
+`A Democrat and a Republican from New York will introduce the “Michelle Go Act,” named after a woman who was killed when a mentally ill homeless man pushed her in front of a subway train.`\
+https://nytimes.com/2024/05/23/nyregion/medicaid-psychiatric-beds-michelle-go.html
+
+**Hurricane Season Could Have More Than Two Dozen Storms, NOAA Says**\
 `The Atlantic hurricane season is looking to be an extraordinary one, with 17 to 25 named storms predicted, experts said.`\
 https://nytimes.com/2024/05/23/weather/noaa-atlantic-hurricane-forecast-prediction.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/23/technology/ticketmaster-live-nation-lawsuit-antit
 **U.K. 2024 General Election: What to Know**\
 `The governing Conservative Party could be voted out of power for the first time in 14 years.`\
 https://nytimes.com/2024/05/23/world/europe/uk-election.html
-
-**Russia Detains Another Defense Official, in New Sign of Putin Shake-Up**\
-`Lt. Gen. Vadim Shamarin is accused of “large-scale” bribery, the latest in a series of high-profile arrests that have coincided with the appointment of a new defense minister.`\
-https://nytimes.com/2024/05/23/world/europe/russia-defense-official-arrested-corruption.html
-
-**The Limitations, and Thrills, of the Monaco Grand Prix**\
-`The narrow track and large cars hinder overtaking, but, oh boy, do those tight roads make qualifying hair-raising.`\
-https://nytimes.com/2024/05/23/sports/autoracing/f1-monaco-grand-prix-track.html
-
-**Mercedes, Which Dominated F1 for Almost a Decade, Struggles to Catch Up**\
-`The team has spent months trying to determine what is wrong with its underperforming car. The search continues.`\
-https://nytimes.com/2024/05/23/sports/autoracing/f1-mercedes-team-challenges.html
 
