@@ -1,10 +1,6 @@
-**A general who became a university president advises: ‘Take time to tell it like it is.’**\
-`By Alan Blinder`\
-https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/a-general-who-became-a-university-president-advises-take-time-to-tell-it-like-it-is
-
 **Why Northwestern, U.C.L.A. and Rutgers Were Picked for the Hearing**\
 `The House committee’s school choices suggest a shift in focus, from the larger issue of campus antisemitism to pro-Palestinian encampments and their organizers.`\
-https://nytimes.com/2024/05/23/us/why-northwestern-ucla-rutgers.html
+https://nytimes.com/2024/05/23/us/why-northwestern-ucla-rutgers-antisemitism-protests.html
 
 **What does the House committee want with these hearings?**\
 `By Stephanie Saul`\
@@ -37,4 +33,8 @@ https://nytimes.com/2024/05/23/business/dealbook/haley-trump-donors.html
 **The D.I.Y. Empire of Kristin Juszczyk**\
 `She made her own clothes to wear at her husband’s football games. Now she’s dressing the winner of the Indy 500.`\
 https://nytimes.com/2024/05/23/style/kristin-juszczyk-49ers-custom-jackets.html
+
+**Israel’s military says it is fighting near central Rafah, apparently expanding its operation in the city.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/05/23/world/israel-gaza-war-hamas/israels-military-says-it-is-fighting-near-central-rafah-apparently-expanding-its-operation-in-the-city
 
