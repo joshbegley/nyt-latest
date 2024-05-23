@@ -1,3 +1,7 @@
+**Word of the Day: hubbub**\
+`This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/23/learning/word-of-the-day-hubbub.html
+
 **Stage Collapses at Campaign Rally in Mexico, Killing at Least 6**\
 `Strong wind caused the collapse in northern Mexico as a presidential candidate campaigned for a local candidate, officials said. Dozens of people were injured.`\
 https://nytimes.com/2024/05/23/world/americas/mexico-candidate-stage-collapse.html

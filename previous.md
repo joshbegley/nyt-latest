@@ -1,3 +1,7 @@
+**Word of the Day: hubbub**\
+`This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/23/learning/word-of-the-day-hubbub.html
+
 **Stage Structure Collapses in Mexico**\
 `First responders helped the injured after part of the stage fell over during a campaign rally.`\
 https://nytimes.com/video/world/americas/100000009483936/mexico-candidate-stage-collapse.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/pageoneplus/quote-of-the-day-americas-monster.htm
 **China Launches Military Drills Around Taiwan as ‘Punishment’**\
 `China said the sea and air drills were meant as a “stern warning” to its opponents after Taiwan’s new president asserted the island’s sovereignty in defiance of Beijing.`\
 https://nytimes.com/2024/05/22/world/asia/china-taiwan-drills.html
-
-**This Is the Life!**\
-`Wind your way through Adam Wagner’s puzzle.`\
-https://nytimes.com/2024/05/22/crosswords/daily-puzzle-2024-05-23.html
 
