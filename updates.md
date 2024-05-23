@@ -1,3 +1,5 @@
+**Israeli forces pull back from Jenin, and other news.**\
+
 **Foreign Interventions in Haiti: A Brief History**\
 `For decades, international soldiers have deployed to Haiti, sometimes leaving behind a troubled legacy.`\
 https://nytimes.com/2024/05/23/world/americas/haiti-kenya-us-intervention-history.html
