@@ -1,3 +1,7 @@
+**Russian Strikes on Kharkiv Kill Several People, Official Says**\
+`Footage from Ukraine’s state emergency service showed first responders putting out a fire in a destroyed building that the regional governor of Kharkiv described as a publishing house.`\
+https://nytimes.com/video/world/europe/100000009484363/russian-strikes-on-kharkiv-kill-several-people-official-says.html
+
 **Representative Ilhan Omar has defended pro-Palestinian students.**\
 `By Sharon Otterman`\
 https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/representative-ilhan-omar-has-defended-pro-palestinian-students

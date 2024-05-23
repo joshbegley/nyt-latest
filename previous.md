@@ -1,3 +1,7 @@
+**Russian Strikes on Kharkiv Kill Several People, Official Says**\
+`Footage from Ukraine’s state emergency service showed first responders putting out a fire in a destroyed building that the regional governor of Kharkiv described as a publishing house.`\
+https://nytimes.com/video/world/europe/100000009484363/russian-strikes-on-kharkiv-kill-several-people-official-says.html
+
 **Representative Ilhan Omar has defended pro-Palestinian students.**\
 `By Sharon Otterman`\
 https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/representative-ilhan-omar-has-defended-pro-palestinian-students
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/23/business/east-palestine-ohio-train-derailment-set
 **What’s in Your Hurricane Stash?**\
 `The hurricane season begins on June 1. We want to know how you prepare.`\
 https://nytimes.com/2024/05/23/us/hurricane-season-callout.html
-
-**Why Biden Is Behind in the Polls**\
-`Readers discuss a column by Ezra Klein. Also: Benjamin Netanyahu’s fate; Madonna at 65; a pediatrics group on gender-affirming care.`\
-https://nytimes.com/2024/05/23/opinion/biden-trump-polls.html
 
