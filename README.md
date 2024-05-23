@@ -1,6 +1,6 @@
 **The Pop Songs You Hate Are Good for Democracy**\
 `Or, what I learned from my roommate’s unconscionable taste in music.`\
-https://nytimes.com/2024/05/23/opinion/the-pop-songs-you-hate-are-good-for-democracy.html
+https://nytimes.com/2024/05/23/opinion/alicia-keys-pop-music-democracy.html
 
 **The Biden Clean Energy Boom**\
 `The president’s signature 2022 climate law has sparked a rapid clean energy boom but its political impact is a lot less clear.`\
