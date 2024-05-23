@@ -1,3 +1,7 @@
+**House Candidate Who Pitched Herself as a ‘Renter’ Also Owns a $1.2 Million Home**\
+`Maggie Tamposi Goodlander, a Democrat and former White House aide, is running for an open seat in New Hampshire’s second district.`\
+https://nytimes.com/2024/05/23/us/politics/maggie-goodlander-house-candidate-home.html
+
 **From ‘The Sympathizer’ to ‘Past Lives,’ American Audiences Warm to Subtitles**\
 `In Hollywood today, not only are Asian and Asian American narratives more prominent than ever, but they are also being told in increasingly dynamic ways through the artful use of Asian languages.`\
 https://nytimes.com/interactive/2024/05/23/arts/asian-language-movies-subtitles.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/23/us/politics/louisiana-abortion-pills-controlled-s
 **Billie Eilish and Taylor Swift Race for No. 1**\
 `The two pop music titans, locked in a close contest for the top of next week’s album chart, are stoking fans’ competitive spirit with a variety of digital tactics.`\
 https://nytimes.com/2024/05/23/arts/music/billie-eilish-taylor-swift-billboard-chart.html
-
-**When Antitrust Law Rescues Olivia and Taylor Fans**\
-`God, it’s brutal out here.`\
-https://nytimes.com/live/2024/05/21/opinion/thepoint/livenation-ticketmaster-doj-suit
 
