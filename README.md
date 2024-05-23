@@ -1,3 +1,7 @@
+**Why Amtrak Is to Blame for a Hellish Night for New Jersey Commuters**\
+`Sharing tracks means that any disruption along the 427-mile Northeast Corridor, which links Boston to Washington D.C., can be felt by thousands of passengers.`\
+https://nytimes.com/2024/05/23/nyregion/amtrak-nj-transit-trains.html
+
 **Strike Over Campus Protests Expands to U.C. Davis and U.C.L.A.**\
 `Word of the broadened walkout in the University of California system came on the same day that U.C.L.A.’s chancellor testified before Congress on his handling of an hourslong attack on a pro-Palestinian encampment.`\
 https://nytimes.com/2024/05/23/us/uc-davis-los-angeles-campus-protest-strike.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/23/world/europe/boris-johnson-paddy-power.html
 **Sand, Sea and Soul: These Architects Follow Nature**\
 `An architectural firm waited years to design for clients who wanted a modern look in the Hamptons — it uses the sky, the ocean and dunes as muses.`\
 https://nytimes.com/interactive/2024/05/23/realestate/hamptons-beach-house-architecture.html
-
-**Some iPhone Customers Could Get Up to $349 in an Apple Settlement**\
-`A class-action lawsuit about audio issues in iPhone 7 and 7 Plus phones has led to a $35 million settlement, though the company denies the phones were faulty.`\
-https://nytimes.com/2024/05/23/business/apple-iphone-settlement.html
 
