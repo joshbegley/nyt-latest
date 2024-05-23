@@ -1,3 +1,7 @@
+**Lawmakers Dial Up Pressure on Alito to Recuse From Elections Cases**\
+`The outcry over Justice Samuel A. Alito Jr. comes amid fears about whether the American public will regard the Supreme Court’s rulings about Jan. 6 as fair.`\
+https://nytimes.com/2024/05/23/us/politics/lawmakers-alito-recuse.html
+
 **A Test of Cloud-Brightening Machines Poses No Health Risk, Officials Say**\
 `After halting a test of controversial technology to fight global warming, the city of Alameda, Calif., said it had found no “measurable health risk” from the giant salty-mist-spraying fans.`\
 https://nytimes.com/2024/05/23/climate/cloud-brightening-geoengineering.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/23/briefing/supreme-court-south-carolina-ticketmaste
 **Did Cate Blanchett Make a Pro-Palestinian Fashion Statement at Cannes?**\
 `The actress hasn’t said so, but some internet users think she did. Plus, a bleak week for small fashion brands and wedding dresses for fashion-forward brides.`\
 https://nytimes.com/2024/05/23/style/cate-blanchett-cannes-film-festival-dress.html
-
-**A Blistering Congressional Hearing Forces Accountability on Covid Origins**\
-`It all started with a single FOIA request.`\
-https://nytimes.com/live/2024/05/21/opinion/thepoint/covid-origins-foia-congress
 
