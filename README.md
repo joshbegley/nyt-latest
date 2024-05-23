@@ -1,3 +1,7 @@
+**Jimmy Kimmel Roasts Republicans for Crying Wolf**\
+`President Biden “sent an elite team of ultraliberal F.B.I. agents to assassinate Donald Trump, but somehow he slipped out the back door,” Kimmel joked on Wednesday.`\
+https://nytimes.com/2024/05/23/arts/television/jimmy-kimmel-trump-classified-documents.html
+
 **Howler Monkeys Fall From Trees Amid Mexico Heat**\
 `Scientists are investigating the situation that has left more than a hundred howler monkeys dead and others dehydrated and in critical condition in southern Mexico.`\
 https://nytimes.com/video/climate/100000009484020/howler-monkeys-mexico-heat.html
@@ -22,8 +26,8 @@ https://nytimes.com/2024/05/23/briefing/afghanistan-britain-ukraine.html
 `After setting a very high bar for his party in the election, Prime Minister Narendra Modi often appears on the defensive as the voting nears its end.`\
 https://nytimes.com/2024/05/23/world/asia/india-election-modi-opposition.html
 
-**Stage Collapses at Campaign Rally in Mexico, Killing at Least 6**\
-`Strong wind caused the collapse in northern Mexico as a presidential candidate campaigned for a local candidate, officials said. Dozens of people were injured.`\
+**Stage Collapses at Campaign Rally in Mexico, Killing at Least 9**\
+`Strong wind caused the collapse in northern Mexico as a presidential hopeful campaigned for a local candidate, officials said. Dozens of people were injured.`\
 https://nytimes.com/2024/05/23/world/americas/mexico-candidate-stage-collapse.html
 
 **Can European Recognition Bring Palestinian Statehood Any Closer?**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/23/world/middleeast/europe-recognition-palestinian-s
 **Corrections: May 23, 2024**\
 `Corrections that appeared in print on Thursday, May 23, 2024.`\
 https://nytimes.com/2024/05/22/pageoneplus/corrections-may-23-2024.html
-
-**Quote of the Day: America’s Monster**\
-`Quotation of the Day for Thursday, May 23, 2024`\
-https://nytimes.com/2024/05/22/pageoneplus/quote-of-the-day-americas-monster.html
 
