@@ -1,3 +1,7 @@
+**Political Consultant Who Orchestrated Fake Biden Robocalls Is Indicted**\
+`The calls used an artificial-intelligence impersonation of President Biden to urge Democrats not to vote in New Hampshire’s presidential primary.`\
+https://nytimes.com/2024/05/23/us/politics/biden-robocalls-steve-kramer-democratic-primary.html
+
 **There’s a Salad for That**\
 `Grilled halloumi and zucchini with salsa verde if you’re the cookout grill master, charred bok choy and cannellinis if you’re a salad-toting guest.`\
 https://nytimes.com/2024/05/23/dining/theres-a-salad-for-that.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000009484363/russian-strikes-on-kharki
 **Representative Ilhan Omar has defended pro-Palestinian students.**\
 `By Sharon Otterman`\
 https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/representative-ilhan-omar-has-defended-pro-palestinian-students
-
-**Nikki Haley, Ever Pragmatic, Tries to Keep Her Options Open**\
-`Her long-term future, and that of her party, may come to pass one day. Or not.`\
-https://nytimes.com/live/2024/05/21/opinion/thepoint/haley-trump-future
 
