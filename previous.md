@@ -1,3 +1,7 @@
+**Bob McCreadie, ‘the Master of Going Faster,’ Dies at 73**\
+`One of the winningest drivers in dirt racing history, he was a folk hero who cursed wildly, drove aggressively and crashed a lot.`\
+https://nytimes.com/2024/05/23/sports/autoracing/bob-mccreadie-dead.html
+
 **Far-Right E.U. Lawmakers Remove Germany’s AfD Party Before Elections**\
 `The exclusion is a sign that domestic troubles for the Alternative for Germany party are starting to spill into European Union politics before elections.`\
 https://nytimes.com/2024/05/23/world/europe/afd-germany-eu-parliament.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/23/world/asia/gaza-aid-pier-china-taiwan-asia.html
 **6 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/05/23/books/review/new-books-recommendations.html
-
-**Sports Betting Company Drops Boris Johnson From Soccer Ad**\
-`The script for the advertisement called for the former prime minister to say ‘I told you I would get us back in Europe’ ahead of this summer’s soccer championship.`\
-https://nytimes.com/2024/05/23/world/europe/boris-johnson-paddy-power.html
 

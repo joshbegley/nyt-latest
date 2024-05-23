@@ -1,3 +1,7 @@
+**Bob McCreadie, ‘the Master of Going Faster,’ Dies at 73**\
+`One of the winningest drivers in dirt racing history, he was a folk hero who cursed wildly, drove aggressively and crashed a lot.`\
+https://nytimes.com/2024/05/23/sports/autoracing/bob-mccreadie-dead.html
+
 **Far-Right E.U. Lawmakers Remove Germany’s AfD Party Before Elections**\
 `The exclusion is a sign that domestic troubles for the Alternative for Germany party are starting to spill into European Union politics before elections.`\
 https://nytimes.com/2024/05/23/world/europe/afd-germany-eu-parliament.html
