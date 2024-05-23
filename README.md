@@ -1,5 +1,5 @@
 **A Test of Cloud-Brightening Machines Poses No Health Risk, Officials Say**\
-`After halting a test of controversial technology to fight global warming, the city of Alameda, Calif., said it had found no “measurable health risk” from testing the giant salty mist-spraying fans.`\
+`After halting a test of controversial technology to fight global warming, the city of Alameda, Calif., said it had found no “measurable health risk” from the giant salty-mist-spraying fans.`\
 https://nytimes.com/2024/05/23/climate/cloud-brightening-geoengineering.html
 
 **Restaurant Collapse Kills at Least 4 and Injures More Than 20 in Majorca**\
