@@ -19,7 +19,7 @@ https://nytimes.com/2024/05/23/arts/tennessee-attorney-general-to-review-company
 https://nytimes.com/2024/05/23/well/mind/marijuana-cannabis-alcohol-study.html
 
 **The Full Guest List for Biden’s State Dinner With Kenya**\
-`The Bidens invited more than 450 guests, including Bill and Hillary Clinton, Carol Moseley Braun, Melinda Gates, Lester Holt, LeVar Burton and Sean Penn.`\
+`The Bidens invited more than 450 guests, including Barack Obama, Bill and Hillary Clinton, Carol Moseley Braun, Melinda Gates, Lester Holt, LeVar Burton and Sean Penn.`\
 https://nytimes.com/2024/05/23/us/politics/full-guest-list-biden-state-dinner-kenya.html
 
 **F.D.A. Panel Endorses Safety of Colon-Cancer Blood Test**\

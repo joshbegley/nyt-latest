@@ -1,3 +1,7 @@
+**The Full Guest List for Biden’s State Dinner With Kenya**\
+`The Bidens invited more than 450 guests, including Barack Obama, Bill and Hillary Clinton, Carol Moseley Braun, Melinda Gates, Lester Holt, LeVar Burton and Sean Penn.`\
+https://nytimes.com/2024/05/23/us/politics/full-guest-list-biden-state-dinner-kenya.html
+
 **Prosecutor in Trump Georgia Case to Appeal Judge’s Decision to Quash Six Charges**\
 `Thursday’s legal filing by Fani Willis creates a second substantive set of issues that must now be considered by the Georgia Court of Appeals before the election case can go to trial.`\
 https://nytimes.com/2024/05/23/us/fani-willis-trump-georgia-appeal.html
