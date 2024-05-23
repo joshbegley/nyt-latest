@@ -10,8 +10,8 @@ https://nytimes.com/2024/05/23/movies/queen-of-the-deuce-review.html
 `We explain the history of Biden’s immigration policy and explain what’s likely to happen next.`\
 https://nytimes.com/2024/05/23/briefing/addressing-immigration.html
 
-**Chinese Military Drills Surround Taiwan, and Another Alito Flag Controversy**\
-`Plus, a U.S. plan to take on Ticketmaster.`\
+**Chinese Military Drills Surround Taiwan, and U.S. Plans to Sue Music Giant**\
+`Plus, another Alito flag controversy.`\
 https://nytimes.com/2024/05/23/podcasts/taiwan-china-military-drill-alito-flag-appeal-to-heaven.html
 
 **The World’s Court vs. Israel’s Leaders**\
