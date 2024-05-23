@@ -1,3 +1,7 @@
+**This Is the Life!**\
+`Wind your way through Adam Wagner’s puzzle.`\
+https://nytimes.com/2024/05/22/crosswords/daily-puzzle-2024-05-23.html
+
 **Trains Suspended Between New York and Philadelphia After Power Outage**\
 `Fallen electrical wires in New Jersey stopped Amtrak and New Jersey Transit trains, but did not affect the subway or the Long Island Rail Road, according to transit agencies.`\
 https://nytimes.com/2024/05/22/nyregion/amtrak-nj-transit-trains-suspended.html

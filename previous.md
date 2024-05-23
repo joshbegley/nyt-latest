@@ -1,3 +1,7 @@
+**This Is the Life!**\
+`Wind your way through Adam Wagner’s puzzle.`\
+https://nytimes.com/2024/05/22/crosswords/daily-puzzle-2024-05-23.html
+
 **Transcript of Trump Manhattan Trial, May 21, 2024**\
 `New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
 https://nytimes.com/interactive/2024/05/22/nyregion/trump-hush-money-trial-transcript-may-21.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/nyregion/eric-adams-nyc-charter-commission.html
 **Abortion Pills May Become Controlled Substances in Louisiana**\
 `A bill that is expected to pass would impose prison time and thousands of dollars in fines on people possessing the pills without a prescription.`\
 https://nytimes.com/2024/05/22/health/abortion-pills-louisiana-controlled-substance.html
-
-**Read the Federal Judge’s Ruling**\
-`A federal judge temporarily blocked part of a Florida law that criminalized transporting into the state anyone who lacked lawful immigration status, raising new legal questions for other states pursuing similar measures.`\
-https://nytimes.com/interactive/2024/05/22/us/florida-undocumented-immigrant-transport.html
 
