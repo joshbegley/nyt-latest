@@ -1,3 +1,11 @@
+**What does the House committee want with these hearings?**\
+`By Stephanie Saul`\
+https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/what-does-the-house-committee-want-with-these-hearings
+
+**Live Updates: Leaders of Northwestern, U.C.L.A. and Rutgers to Testify Before Congress**\
+`It will be the first hearing hosted by a Republican-led House committee since a wave of protest encampments roiled college campuses.`\
+https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing
+
 **Leaders of Northwestern, U.C.L.A. and Rutgers to Testify Before Congress**\
 `It will be the first hearing hosted by a Republican-led House committee since a wave of protest encampments roiled college campuses.`\
 https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing
