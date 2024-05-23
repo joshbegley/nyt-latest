@@ -1,3 +1,7 @@
+**The protest at U.C.L.A. culminated in a violent attack by counterprotesters. Here’s what happened.**\
+`By Nicholas Bogel-Burroughs`\
+https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/the-protest-at-ucla-culminated-in-a-violent-attack-by-counterprotesters-heres-what-happened
+
 **Elise Stefanik Has Gained Widespread Attention in Antisemitism Hearings**\
 `The Republican of New York was already a rising star within her party before the Israel-Hamas war turbocharged concerns about antisemitic incidents in American education.`\
 https://nytimes.com/2024/05/23/us/elise-stefanik-republican-antisemitism-hearings.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/23/sports/autoracing/f1-mercedes-team-challenges.htm
 **Carlos Sainz Continues to Look for a Seat in Formula 1**\
 `He has won Ferrari’s only race this year, but will be out in 2025 when Lewis Hamilton moves over from Mercedes.`\
 https://nytimes.com/2024/05/23/sports/autoracing/f1-carlos-sainz-team.html
-
-**Gene Block has dealt with several on-campus protests in 17 years of leading U.C.L.A.**\
-`By Nicholas Bogel-Burroughs`\
-https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/gene-block-has-dealt-with-several-on-campus-protests-in-17-years-of-leading-ucla
 
