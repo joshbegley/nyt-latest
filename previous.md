@@ -1,3 +1,7 @@
+**With Troubles at Home, Macron Pops Up 10,000 Miles Away**\
+`New Caledonia, a French territory in the Pacific, is on the brink of civil war as pro-independence activists protest a law that would expand voting rights.`\
+https://nytimes.com/2024/05/22/world/europe/macron-new-caledonia-france.html
+
 **Ohio Elections Official Says He Will Soon Exclude Biden From the Ballot**\
 `The Biden campaign insists the issue will be resolved. Frank LaRose, the Republican secretary of state in Ohio, said he would bar the president over what is normally a minor procedural issue.`\
 https://nytimes.com/2024/05/22/us/politics/biden-ohio-ballot.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009483735/haley-trump-election.html
 **How Today’s Economy Could Matter in November**\
 `Some pollsters and economists believe voters form their perceptions of the economy over time.`\
 https://nytimes.com/2024/05/22/us/politics/economy-inflation-election.html
-
-**Sparring in Trump Documents Hearing Highlights Case’s Slow Pace**\
-`A prosecutor got into a heated exchange with Judge Aileen Cannon over a minor point, as the case continues to crawl.`\
-https://nytimes.com/2024/05/22/us/politics/trump-documents-nauta-cannon.html
 

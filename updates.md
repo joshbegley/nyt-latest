@@ -1,3 +1,7 @@
+**With Troubles at Home, Macron Pops Up 10,000 Miles Away**\
+`New Caledonia, a French territory in the Pacific, is on the brink of civil war as pro-independence activists protest a law that would expand voting rights.`\
+https://nytimes.com/2024/05/22/world/europe/macron-new-caledonia-france.html
+
 **Mayor Adams Fills a Key Commission With Allies and Donors**\
 `Mayor Eric Adams named 13 people to a prominent city commission that could remake city government. Most are loyalists or have ties to his inner circle.`\
 https://nytimes.com/2024/05/22/nyregion/eric-adams-nyc-charter-commission.html
