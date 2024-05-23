@@ -1,3 +1,7 @@
+**Read the lawsuit against Live Nation**\
+`The Justice Department called for the company, which owns Ticketmaster, to be broken up.`\
+https://nytimes.com/interactive/2024/05/23/us/23livenation-lawsuit.html
+
 **Very Delicious Vegetarian Eating**\
 `Hetty Lui McKinnon shares tips and recipes for eating more meatless meals, like cold noodle salad with spicy peanut sauce, and cumin mushroom and green beans stir fry.`\
 https://nytimes.com/2024/05/23/dining/very-delicious-vegetarian-eating.html
