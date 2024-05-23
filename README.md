@@ -6,7 +6,7 @@ https://nytimes.com/2024/05/23/opinion/longevity-equinox-wellness-immortality.ht
 `For two weeks at the 140-hospital system, doctors and nurses have had little access to digital records for patient histories, resorting to paper and faxes to treat people.`\
 https://nytimes.com/2024/05/23/health/cyberattack-ascension-hospitals-patient-data.html
 
-**With his tough questions, this freshman Republican has stood out in the hearings.**\
+**With his probing questions, this freshman Republican has stood out in the hearings.**\
 `By Jeremy W. Peters`\
 https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/with-his-tough-questions-this-freshman-republican-has-stood-out-in-the-hearings
 
