@@ -11,7 +11,7 @@ https://nytimes.com/2024/05/22/us/politics/trump-arab-americans.html
 https://nytimes.com/2024/05/22/world/europe/macron-new-caledonia-france.html
 
 **Ohio Elections Official Says He Will Soon Exclude Biden From the Ballot**\
-`The Biden campaign insists the issue will be resolved. Frank LaRose, the Republican secretary of state in Ohio, said he would bar the president over what is normally a minor procedural issue.`\
+`The Biden campaign is considering suing to ensure the president is on the ballot, after the Republican secretary of state said he would bar him over what is normally a minor procedural issue.`\
 https://nytimes.com/2024/05/22/us/politics/biden-ohio-ballot.html
 
 **U.S. Plans to Sue Ticketmaster Owner, Accusing It of Defending a Monopoly**\
