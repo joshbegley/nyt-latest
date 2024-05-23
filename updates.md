@@ -1,3 +1,11 @@
+**Cannabis Tops Alcohol as Americans’ Daily Drug of Choice**\
+`A new study shows a growing number of people are regularly using cannabis, while frequent alcohol consumption has remained stable.`\
+https://nytimes.com/2024/05/23/well/mind/marijuana-cannabis-alcohol-study.html
+
+**The Full Guest List for Biden’s State Dinner With Kenya**\
+`The Bidens invited more than 450 guests, including Bill and Hillary Clinton, Carol Moseley Braun, Melinda Gates, Lester Holt and Sean Penn.`\
+https://nytimes.com/2024/05/23/us/politics/full-guest-list-biden-state-dinner-kenya.html
+
 **F.D.A. Panel Endorses Safety of Colon-Cancer Blood Test**\
 `The Guardant Health Shield test, one committee member said, “is better than nothing for patients who are getting nothing, but it is not better than a colonoscopy.”`\
 https://nytimes.com/2024/05/23/health/colon-cancer-blood-test-guardant.html
