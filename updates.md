@@ -1,3 +1,11 @@
+**Elise Stefanik Has Gained Widespread Attention in Antisemitism Hearings**\
+`The Republican of New York was already a rising star within her party before the Israel-Hamas war turbocharged concerns about antisemitic incidents in American education.`\
+https://nytimes.com/2024/05/23/us/elise-stefanik-republican-antisemitism-hearings.html
+
+**U.K. 2024 General Election: What to Know**\
+`The governing Conservative Party could be voted out of power for the first time in 14 years.`\
+https://nytimes.com/2024/05/23/world/europe/uk-election.html
+
 **U.K. 2024 General Election: What to Know**\
 `The governing Conservative Party could be voted out of power for the first time in 14 years.`\
 https://nytimes.com/2024/05/23/world/europe/uk-general-election.html

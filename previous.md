@@ -1,3 +1,7 @@
+**Elise Stefanik Has Gained Widespread Attention in Antisemitism Hearings**\
+`The Republican of New York was already a rising star within her party before the Israel-Hamas war turbocharged concerns about antisemitic incidents in American education.`\
+https://nytimes.com/2024/05/23/us/elise-stefanik-republican-antisemitism-hearings.html
+
 **Northwestern’s president is likely to face questions on incidents dating back to 2022.**\
 `By Ernesto Londoño`\
 https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/northwesterns-president-is-likely-to-face-questions-on-incidents-dating-back-to-2022
@@ -12,7 +16,7 @@ https://nytimes.com/2024/05/23/technology/ticketmaster-live-nation-lawsuit-antit
 
 **U.K. 2024 General Election: What to Know**\
 `The governing Conservative Party could be voted out of power for the first time in 14 years.`\
-https://nytimes.com/2024/05/23/world/europe/uk-general-election.html
+https://nytimes.com/2024/05/23/world/europe/uk-election.html
 
 **Russia Detains Another Defense Official, in New Sign of Putin Shake-Up**\
 `Lt. Gen. Vadim Shamarin is accused of “large-scale” bribery, the latest in a series of high-profile arrests that have coincided with the appointment of a new defense minister.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/23/sports/autoracing/f1-carlos-sainz-team.html
 **Gene Block has dealt with several on-campus protests in 17 years of leading U.C.L.A.**\
 `By Nicholas Bogel-Burroughs`\
 https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/gene-block-has-dealt-with-several-on-campus-protests-in-17-years-of-leading-ucla
-
-**Election Updates: Trump’s New York City trial has made for a very local presidential campaign.**\
-``\
-https://nytimes.com/live/2024/05/23/us/biden-trump-election
 
