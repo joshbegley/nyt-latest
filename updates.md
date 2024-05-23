@@ -1,3 +1,7 @@
+**Sunak Says U.K. Won’t Send Asylum Seekers to Rwanda Before Election**\
+`The prime minister’s admission that a key political project will not begin before voters head to the polls puts the Conservatives in a risky position.`\
+https://nytimes.com/2024/05/23/world/europe/uk-sunak-election-rwanda.html
+
 **A Blistering Congressional Hearing Forces Accountability on Covid Origins**\
 `It all started with a single FOIA request.`\
 https://nytimes.com/live/2024/05/21/opinion/thepoint/covid-origins-foia-congress
