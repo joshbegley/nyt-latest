@@ -1,3 +1,11 @@
+**A Blistering Congressional Hearing Forces Accountability on Covid Origins**\
+`It all started with a single FOIA request.`\
+https://nytimes.com/live/2024/05/21/opinion/thepoint/covid-origins-foia-congress
+
+**Biden’s Powerful Reminder of Trump’s Racist History**\
+`But Democrats need to build stronger relationships with Black voters, not just run ads.`\
+https://nytimes.com/live/2024/05/21/opinion/thepoint/biden-trump-ad-racism
+
 **Friday Briefing: Aid Trickles Through Gaza Pier**\
 `Also, China holds ‘punishment’ drills around Taiwan.`\
 https://nytimes.com/2024/05/23/world/asia/gaza-aid-pier-china-taiwan-asia.html
@@ -26,15 +34,7 @@ https://nytimes.com/2024/05/23/us/house-hearing-republicans-campus-antisemitism.
 `It was unclear if negotiators from Egypt and Qatar would participate.`\
 https://nytimes.com/2024/05/23/world/middleeast/cia-burns-israel-hostages-cease-fire.html
 
-**U.C.L.A. Students Form New Encampment While Chancellor Testifies in Congress**\
-`A small group of protesters barricaded an area for the encampment. The university appeared to be taking a hard line, as officers arrived on campus with riot helmets and batons.`\
+**U.C.L.A. Students Form New Protest While Chancellor Testifies in Congress**\
+`A small group of protesters initially formed a new encampment early in the afternoon, but after the police moved in, they fled to an area by a nearby administrative building.`\
 https://nytimes.com/2024/05/23/us/ucla-pro-palestinian-encampment.html
-
-**Sunak Says U.K. Won’t Send Asylum Seekers to Rwanda Before Election**\
-`The prime minister’s admission that a key political project will not begin before voters head to the polls puts the Conservatives in a risky position.`\
-https://nytimes.com/2024/05/23/world/europe/uk-sunak-election-rwanda.html
-
-**5 Stellar New Cookies in New York City**\
-`Becky Hughes will take a cookie over a pastry, every time. (Please don’t bully her.)`\
-https://nytimes.com/2024/05/23/dining/5-stellar-new-cookies-in-new-york-city.html
 
