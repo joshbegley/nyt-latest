@@ -22,10 +22,6 @@ https://nytimes.com/video/climate/100000009484020/howler-monkeys-mexico-heat.htm
 `This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/05/23/learning/word-of-the-day-hubbub.html
 
-**Stage Collapses in Mexico**\
-`Footage widely shared on social media shows strong winds buffeting the stage as it collapses.`\
-https://nytimes.com/video/world/americas/100000009483936/mexico-candidate-stage-collapse.html
-
 **Thousands of Commuters Stranded After Power Outage**\
 `People milled around in Newark’s Penn Station and New York’s Penn Station after service on Amtrak and New Jersey Transit trains between the two hubs came to a halt.`\
 https://nytimes.com/video/us/100000009483966/amtrak-nj-transit-trains-suspended.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/05/23/briefing/afghanistan-britain-ukraine.html
 **Is Modi Worried? India’s Long-Deflated Opposition Finds Some Momentum.**\
 `After setting a very high bar for his party in the election, Prime Minister Narendra Modi often appears on the defensive as the voting nears its end.`\
 https://nytimes.com/2024/05/23/world/asia/india-election-modi-opposition.html
+
+**Stage Collapses at Campaign Rally in Mexico, Killing at Least 9**\
+`Strong wind caused the collapse in northern Mexico as a presidential hopeful campaigned for a local candidate, officials said. Dozens of people were injured.`\
+https://nytimes.com/2024/05/23/world/americas/mexico-candidate-stage-collapse.html
 
