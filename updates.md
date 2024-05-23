@@ -1,3 +1,19 @@
+**Why Biden Is Behind in the Polls**\
+`Readers discuss a column by Ezra Klein. Also: Benjamin Netanyahu’s fate; Madonna at 65; a pediatrics group on gender-affirming care.`\
+https://nytimes.com/2024/05/23/opinion/biden-trump-polls.html
+
+**Northwestern was among the first schools to strike a deal with pro-Palestinian demonstrators.**\
+`By Ernesto Londoño`\
+https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/northwestern-was-among-the-first-schools-to-strike-a-deal-with-pro-palestinian-demonstrators
+
+**Read the lawsuit against Live Nation**\
+`The Justice Department called for the company, which owns Ticketmaster, to be broken up`\
+https://nytimes.com/interactive/2024/05/23/us/23livenation-lawsuit.html
+
+**Subway Killing Spurs Bill to Expand Medicaid Funds for Psychiatric Beds**\
+`A Democrat and a Republican from New York will introduce the “Michelle Go Act,” named after a woman who was killed when a mentally ill homeless man pushed her in front of a subway train.`\
+https://nytimes.com/2024/05/23/nyregion/medicaid-psychiatric-beds-michelle-go.html
+
 **Trump Plays Up His Putin Ties in Claiming He Could Get Gershkovich Released**\
 `A spokesman for the Kremlin said President Vladimir V. Putin of Russia has had no contact with former President Donald J. Trump.`\
 https://nytimes.com/2024/05/23/us/politics/trump-evan-gershkovich-putin.html
