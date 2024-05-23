@@ -1,3 +1,11 @@
+**Once Critics of Trump, These Republicans Are Now Playing by His Rules**\
+`Republicans like Nikki Haley have had to contort themselves to overlook their criticisms of former President Donald J. Trump as they decide to back him after all.`\
+https://nytimes.com/2024/05/23/us/politics/trump-critics-endorsements.html
+
+**How the First Amendment adds a wrinkle to this antisemitism hearing.**\
+`Leaders of two public universities, which are bound by the First Amendment, will testify about antisemitism on campuses for the first time since Congress began scrutinizing the issue.`\
+https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/how-the-first-amendment-adds-a-wrinkle-to-this-antisemitism-hearing
+
 **Advancing Russian Troops Threaten to Reverse Some of Ukraine’s Hard-Won Gains**\
 `Such losses could hurt Ukrainian morale as Russia makes advances all along the front line.`\
 https://nytimes.com/2024/05/23/world/europe/ukraine-russia-battlefield-gains.html
