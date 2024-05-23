@@ -1,3 +1,7 @@
+**Transcript of Trump Manhattan Trial, May 21, 2024**\
+`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
+https://nytimes.com/interactive/2024/05/22/nyregion/trump-hush-money-trial-transcript-may-21.html
+
 **Former Trump Official Meets With Arab and Muslim American Leaders**\
 `The meeting in Michigan on Tuesday, led by Richard Grenell, acting director of national intelligence in the Trump administration, came as President Biden faces protests over his Israel policy.`\
 https://nytimes.com/2024/05/22/us/politics/trump-arab-americans.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/health/abortion-pills-louisiana-controlled-substa
 **Read the Federal Judge’s Ruling**\
 `A federal judge temporarily blocked part of a Florida law that criminalized transporting into the state anyone who lacked lawful immigration status, raising new legal questions for other states pursuing similar measures.`\
 https://nytimes.com/interactive/2024/05/22/us/florida-undocumented-immigrant-transport.html
-
-**Haley Says She Will Vote for Trump in the November Election**\
-`In her first public appearance since dropping her Republican presidential bid, Nikki Haley, the former Governor of South Carolina, said she would vote for former President Donald J. Trump.`\
-https://nytimes.com/video/us/politics/100000009483735/haley-trump-election.html
 
