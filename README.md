@@ -1,3 +1,7 @@
+**Leaders of Northwestern, U.C.L.A. and Rutgers to Testify Before Congress**\
+`It will be the first hearing hosted by a Republican-led House committee since a wave of protest encampments roiled college campuses.`\
+https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing
+
 **A Mediterranean-Inspired Getaway in an Australian Surf Town**\
 `Plus: golden handbags, a Brooklyn boutique’s Tokyo pop-up and more recommendations from T Magazine.`\
 https://nytimes.com/2024/05/23/t-magazine/yamba-australia-il-delfino-inn.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/23/world/europe/nigel-farage-donald-trump-uk-electio
 **‘Solo’ Review: Listen to Your Heart**\
 `Sophie Dupuis’s sensitive French Canadian drama takes a turn when a young, starry-eyed drag queen (Théodore Pellerin) opens up to questionable figures.`\
 https://nytimes.com/2024/05/23/movies/solo-review.html
-
-**‘Queen of the Deuce’ Review: A Mother of Invention**\
-`This warm remembrance of a Times Square legend is too careful with its iconoclastic heroine.`\
-https://nytimes.com/2024/05/23/movies/queen-of-the-deuce-review.html
 
