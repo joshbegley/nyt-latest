@@ -1,3 +1,11 @@
+**‘Solo’ Review: Listen to Your Heart**\
+`Sophie Dupuis’s sensitive French Canadian drama takes a turn when a young, starry-eyed drag queen (Théodore Pellerin) opens up to questionable figures.`\
+https://nytimes.com/2024/05/23/movies/solo-review.html
+
+**‘Queen of the Deuce’ Review: A Mother of Invention**\
+`This warm remembrance of a Times Square legend is too careful with its iconoclastic heroine.`\
+https://nytimes.com/2024/05/23/movies/queen-of-the-deuce-review.html
+
 **Addressing Immigration**\
 `We explain the history of Biden’s immigration policy and explain what’s likely to happen next.`\
 https://nytimes.com/2024/05/23/briefing/addressing-immigration.html
