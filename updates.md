@@ -1,3 +1,7 @@
+**Ohio Governor Calls Special Legislative Session to Ensure Biden Is on Ballot**\
+`The General Assembly had adjourned earlier this week without a solution for a procedural issue that threatened to keep President Biden off the fall ballot.`\
+https://nytimes.com/2024/05/23/us/politics/biden-ohio-ballot-special-session.html
+
 **Tennessee Attorney General to Review Company’s Bid to Sell Graceland**\
 `The attorney general’s office said it is looking into Nausanny Investments’ effort to foreclose on Elvis Presley’s former home. His heirs called it a fraud.`\
 https://nytimes.com/2024/05/23/arts/tennessee-attorney-general-to-review-companys-bid-to-sell-graceland.html
