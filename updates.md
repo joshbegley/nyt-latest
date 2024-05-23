@@ -1,3 +1,15 @@
+**Friday Briefing: Aid Trickles Through Gaza Pier**\
+`Also, China holds ‘punishment’ drills around Taiwan.`\
+https://nytimes.com/2024/05/23/world/asia/gaza-aid-pier-china-taiwan-asia.html
+
+**6 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/05/23/books/review/new-books-recommendations.html
+
+**Sports Betting Company Drops Boris Johnson From Soccer Ad**\
+`The script for the advertisement called for the former prime minister to say ‘I told you I would get us back in Europe’ ahead of this summer’s soccer championship.`\
+https://nytimes.com/2024/05/23/world/europe/boris-johnson-paddy-power.html
+
 **Some iPhone Customers Could Get Up to $349 in an Apple Settlement**\
 `A class-action lawsuit about audio issues in iPhone 7 and 7 Plus phones has led to a $35 million settlement, though the company denies the phones were faulty.`\
 https://nytimes.com/2024/05/23/business/apple-iphone-settlement.html

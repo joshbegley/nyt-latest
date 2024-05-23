@@ -1,5 +1,13 @@
-**Sports Betting Company Cancels Ad Starring Boris Johnson**\
-`The script for the advertisement called for the former prime minister to appear in a soccer jersey to promote this summer’s European soccer championship.`\
+**Friday Briefing: Aid Trickles Through Gaza Pier**\
+`Also, China holds ‘punishment’ drills around Taiwan.`\
+https://nytimes.com/2024/05/23/world/asia/gaza-aid-pier-china-taiwan-asia.html
+
+**6 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/05/23/books/review/new-books-recommendations.html
+
+**Sports Betting Company Drops Boris Johnson From Soccer Ad**\
+`The script for the advertisement called for the former prime minister to say ‘I told you I would get us back in Europe’ ahead of this summer’s soccer championship.`\
 https://nytimes.com/2024/05/23/world/europe/boris-johnson-paddy-power.html
 
 **Sand, Sea and Soul: These Architects Follow Nature**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/23/world/europe/uk-sunak-election-rwanda.html
 **5 Stellar New Cookies in New York City**\
 `Becky Hughes will take a cookie over a pastry, every time. (Please don’t bully her.)`\
 https://nytimes.com/2024/05/23/dining/5-stellar-new-cookies-in-new-york-city.html
-
-**The Importance of a Personal Bridge Between the U.S. and China**\
-`The U.S. ambassador’s ties to former students in China could prove significant at a time of tension.`\
-https://nytimes.com/live/2024/05/21/opinion/thepoint/china-burns-university
-
-**Border Deal Fails Again in the Senate as Democrats Seek Political Edge**\
-`Senator Chuck Schumer, the majority leader, brought up the bill, seeking to remind voters that it is Republicans who have stood in the way of a solution to the chaos at the border.`\
-https://nytimes.com/2024/05/23/us/politics/border-deal-senate-democrats.html
 
