@@ -26,7 +26,7 @@ https://nytimes.com/2024/05/23/dining/very-delicious-vegetarian-eating.html
 `A couple with deep ties to the popular Brooklyn festival and its founder and longtime artistic director, Chuck Davis, recall when their wedding was part of the show.`\
 https://nytimes.com/2024/05/23/arts/dance/danceafrica-woolbright.html
 
-**Medicaid Funding Would Expand Psychiatric Beds Under New Bill**\
+**Subway Killing Spurs Bill to Expand Medicaid Funds for Psychiatric Beds**\
 `A Democrat and a Republican from New York will introduce the “Michelle Go Act,” named after a woman who was killed when a mentally ill homeless man pushed her in front of a subway train.`\
 https://nytimes.com/2024/05/23/nyregion/medicaid-psychiatric-beds-michelle-go.html
 
