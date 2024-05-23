@@ -1,3 +1,7 @@
+**Power Outage Halts Northeast Corridor Trains, Stranding Thousands**\
+`Fallen electrical wires in New Jersey brought Amtrak and New Jersey Transit service to a halt on the Northeast Corridor, leaving travelers stranded, according to transit agencies.`\
+https://nytimes.com/2024/05/22/nyregion/amtrak-nj-transit-trains-suspended.html
+
 **China Launches Military Drills Around Taiwan as ‘Punishment’**\
 `China said the sea and air drills were meant as a “stern warning” to its opponents after Taiwan’s new president asserted the island’s sovereignty in defiance of Beijing.`\
 https://nytimes.com/2024/05/22/world/asia/china-taiwan-drills.html
