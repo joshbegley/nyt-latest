@@ -1,3 +1,19 @@
+**A Mediterranean-Inspired Getaway in an Australian Surf Town**\
+`Plus: golden handbags, a Brooklyn boutique’s Tokyo pop-up and more recommendations from T Magazine.`\
+https://nytimes.com/2024/05/23/t-magazine/yamba-australia-il-delfino-inn.html
+
+**Amtrak and N.J. Transit Service Resumes After Rush-Hour Meltdown**\
+`Service had been restored by late Wednesday night, but riders were warned Thursday morning to expect residual delays and cancellations.`\
+https://nytimes.com/2024/05/23/nyregion/amtrak-nj-transit-service.html
+
+**Game Reviews: Mysteries of the Afterlife and the Eerie Present**\
+`In a strong month for indie games, Hauntii is a hunt for memories and Crow Country offers retro survival in a creepy amusement park. The origami-like Paper Trail feels a bit thin.`\
+https://nytimes.com/2024/05/23/arts/reviews-hauntii-crow-country-paper-trail.html
+
+**U.C.L.A.’s Chancellor Will Testify Today on Capitol Hill**\
+`Gene Block is scheduled to be among the latest group of university leaders to be grilled about antisemitism on campus.`\
+https://nytimes.com/2024/05/23/us/gene-block-ucla-antisemitism-hearing.html
+
 **Will Big Donors Follow Haley Back to Trump?**\
 `An endorsement of sorts by the former Republican presidential hopeful may provide cover to prominent backers to follow suit.`\
 https://nytimes.com/2024/05/23/business/dealbook/haley-trump-donors.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/05/23/movies/solo-review.html
 **‘Queen of the Deuce’ Review: A Mother of Invention**\
 `This warm remembrance of a Times Square legend is too careful with its iconoclastic heroine.`\
 https://nytimes.com/2024/05/23/movies/queen-of-the-deuce-review.html
-
-**Addressing Immigration**\
-`We explain the history of Biden’s immigration policy and explain what’s likely to happen next.`\
-https://nytimes.com/2024/05/23/briefing/addressing-immigration.html
-
-**Chinese Military Drills Surround Taiwan, and U.S. Plans to Sue Music Giant**\
-`Plus, another Alito flag controversy.`\
-https://nytimes.com/2024/05/23/podcasts/taiwan-china-military-drill-alito-flag-appeal-to-heaven.html
-
-**The World’s Court vs. Israel’s Leaders**\
-`The I.C.C.’s chief prosecutor publicly seeks arrest warrants for the leaders of Israel and of Hamas.`\
-https://nytimes.com/2024/05/23/podcasts/the-daily/icc-warrants.html
-
-**TikTok Moves to Limit Russian and Chinese Media’s Reach in Big Election Year**\
-`The platform will keep state-affiliated media accounts out of users’ feeds if they “attempt to reach communities outside their home country on current global events and affairs.”`\
-https://nytimes.com/2024/05/23/business/tiktok-russia-china-misinformation-elections.html
 
