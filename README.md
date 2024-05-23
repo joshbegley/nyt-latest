@@ -6,8 +6,8 @@ https://nytimes.com/2024/05/23/world/asia/gaza-aid-pier-china-taiwan-asia.html
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/05/23/books/review/new-books-recommendations.html
 
-**Sports Betting Company Cancels Ad Starring Boris Johnson**\
-`The script for the advertisement called for the former prime minister to appear in a soccer jersey to promote this summer’s European soccer championship.`\
+**Sports Betting Company Drops Boris Johnson From Soccer Ad**\
+`The script for the advertisement called for the former prime minister to say ‘I told you I would get us back in Europe’ ahead of this summer’s soccer championship.`\
 https://nytimes.com/2024/05/23/world/europe/boris-johnson-paddy-power.html
 
 **Sand, Sea and Soul: These Architects Follow Nature**\
