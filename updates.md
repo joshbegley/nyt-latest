@@ -1,3 +1,19 @@
+**The Limitations, and Thrills, of the Monaco Grand Prix**\
+`The narrow track and large cars hinder overtaking, but, oh boy, do those tight roads make qualifying hair-raising.`\
+https://nytimes.com/2024/05/23/sports/autoracing/f1-monaco-grand-prix-track.html
+
+**Mercedes, Which Dominated F1 for Almost a Decade, Struggles to Catch Up**\
+`The team has spent months trying to determine what is wrong with its underperforming car. The search continues.`\
+https://nytimes.com/2024/05/23/sports/autoracing/f1-mercedes-team-challenges.html
+
+**Carlos Sainz Continues to Look for a Seat in Formula 1**\
+`He has won Ferrari’s only race this year, but will be out in 2025 when Lewis Hamilton moves over from Mercedes.`\
+https://nytimes.com/2024/05/23/sports/autoracing/f1-carlos-sainz-team.html
+
+**Gene Block has dealt with several on-campus protests in 17 years of leading U.C.L.A.**\
+`By Nicholas Bogel-Burroughs`\
+https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/gene-block-has-dealt-with-several-on-campus-protests-in-17-years-of-leading-ucla
+
 **Election Updates: Trump’s New York City trial has made for a very local presidential campaign.**\
 ``\
 https://nytimes.com/live/2024/05/23/us/biden-trump-election

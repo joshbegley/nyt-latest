@@ -1,3 +1,19 @@
+**The Limitations, and Thrills, of the Monaco Grand Prix**\
+`The narrow track and large cars hinder overtaking, but, oh boy, do those tight roads make qualifying hair-raising.`\
+https://nytimes.com/2024/05/23/sports/autoracing/f1-monaco-grand-prix-track.html
+
+**Mercedes, Which Dominated F1 for Almost a Decade, Struggles to Catch Up**\
+`The team has spent months trying to determine what is wrong with its underperforming car. The search continues.`\
+https://nytimes.com/2024/05/23/sports/autoracing/f1-mercedes-team-challenges.html
+
+**Carlos Sainz Continues to Look for a Seat in Formula 1**\
+`He has won Ferrari’s only race this year, but will be out in 2025 when Lewis Hamilton moves over from Mercedes.`\
+https://nytimes.com/2024/05/23/sports/autoracing/f1-carlos-sainz-team.html
+
+**Gene Block has dealt with several on-campus protests in 17 years of leading U.C.L.A.**\
+`By Nicholas Bogel-Burroughs`\
+https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/gene-block-has-dealt-with-several-on-campus-protests-in-17-years-of-leading-ucla
+
 **Election Updates: Trump’s New York City trial has made for a very local presidential campaign.**\
 ``\
 https://nytimes.com/live/2024/05/23/us/biden-trump-election
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/michael-schi
 **How college and public school leaders have performed in past hearings.**\
 `By Alan Blinder`\
 https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/how-college-and-public-school-leaders-have-performed-in-past-hearings
-
-**In a City of Ancient Jewish Mysticism, Israelis Arm for a Fight**\
-`In Safed, a center of kabbalah, ordinary citizens shocked by the Oct. 7 attacks are carrying military-grade weapons.`\
-https://nytimes.com/2024/05/23/world/middleeast/israel-safed-guns.html
-
-**Virginia Foxx’s Focus on Antisemitism on College Campuses Has Raised Her Profile**\
-`The House member from North Carolina attributes her blunt conservative politics to her pulled-herself-up-by-her-bootstraps life.`\
-https://nytimes.com/2024/05/23/us/virginia-foxx-antisemitism.html
-
-**Why does anyone agree to testify before Congress anyway?**\
-`By Annie Karni`\
-https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/why-does-anyone-agree-to-testify-before-congress-anyway
-
-**Cassie After Sean Combs Footage: ‘Open Your Heart to Believing Victims’**\
-`The singer, who sued the hip-hop mogul over allegations of rape and abuse, posted a statement after 2016 video emerged last week showing him assaulting her in a hotel.`\
-https://nytimes.com/2024/05/23/arts/music/cassie-diddy-sean-combs-statement.html
 
