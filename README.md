@@ -1,3 +1,7 @@
+**Why Congress Loves Toying With University Presidents**\
+`Members of Congress aren’t going to tire of their tried-and-true tactics any time soon.`\
+https://nytimes.com/live/2024/05/21/opinion/thepoint/university-presidents-testify
+
 **As Slovakia’s Prime Minister Remains Hospitalized, Politics Return to a Boil**\
 `Calls for unity after the shooting of Robert Fico last week have been largely ignored by the country’s politicians. Much of the tension has centered on a media law pushed by the government.`\
 https://nytimes.com/2024/05/23/world/europe/slovakia-fico-government-media.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/05/23/us/23livenation-lawsuit.html
 **Very Delicious Vegetarian Eating**\
 `Hetty Lui McKinnon shares tips and recipes for eating more meatless meals, like cold noodle salad with spicy peanut sauce, and cumin mushroom and green beans stir fry.`\
 https://nytimes.com/2024/05/23/dining/very-delicious-vegetarian-eating.html
-
-**At DanceAfrica, the Enduring Power of Love**\
-`A couple with deep ties to the popular Brooklyn festival and its founder and longtime artistic director, Chuck Davis, recall when their wedding was part of the show.`\
-https://nytimes.com/2024/05/23/arts/dance/danceafrica-woolbright.html
 
