@@ -1,3 +1,7 @@
+**Howler Monkeys Fall From Trees Amid Mexico Heat**\
+`Scientists are investigating the situation that has left more than a hundred howler monkeys dead and others dehydrated and in critical condition in southern Mexico.`\
+https://nytimes.com/video/climate/100000009484020/howler-monkeys-mexico-heat.html
+
 **Word of the Day: hubbub**\
 `This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/05/23/learning/word-of-the-day-hubbub.html

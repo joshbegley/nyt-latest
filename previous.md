@@ -1,3 +1,7 @@
+**Howler Monkeys Fall From Trees Amid Mexico Heat**\
+`Scientists are investigating the situation that has left more than a hundred howler monkeys dead and others dehydrated and in critical condition in southern Mexico.`\
+https://nytimes.com/video/climate/100000009484020/howler-monkeys-mexico-heat.html
+
 **Word of the Day: hubbub**\
 `This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/05/23/learning/word-of-the-day-hubbub.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/22/pageoneplus/corrections-may-23-2024.html
 **Quote of the Day: America’s Monster**\
 `Quotation of the Day for Thursday, May 23, 2024`\
 https://nytimes.com/2024/05/22/pageoneplus/quote-of-the-day-americas-monster.html
-
-**China Launches Military Drills Around Taiwan as ‘Punishment’**\
-`China said the sea and air drills were meant as a “stern warning” to its opponents after Taiwan’s new president asserted the island’s sovereignty in defiance of Beijing.`\
-https://nytimes.com/2024/05/22/world/asia/china-taiwan-drills.html
 
