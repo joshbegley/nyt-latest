@@ -1,3 +1,7 @@
+**Political Consultant Who Orchestrated Fake Biden Robocalls Is Indicted**\
+`The calls used an artificial-intelligence impersonation of President Biden to urge Democrats not to vote in New Hampshire’s presidential primary.`\
+https://nytimes.com/2024/05/23/us/politics/biden-robocalls-steve-kramer-democratic-primary.html
+
 **There’s a Salad for That**\
 `Grilled halloumi and zucchini with salsa verde if you’re the cookout grill master, charred bok choy and cannellinis if you’re a salad-toting guest.`\
 https://nytimes.com/2024/05/23/dining/theres-a-salad-for-that.html
