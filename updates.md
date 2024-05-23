@@ -1,3 +1,7 @@
+**Quote of the Day: America’s Monster**\
+`Quotation of the Day for Thursday, May 23, 2024`\
+https://nytimes.com/2024/05/22/pageoneplus/quote-of-the-day-americas-monster.html
+
 **Power Outage Halts Northeast Corridor Trains, Stranding Thousands**\
 `Fallen electrical wires in New Jersey brought Amtrak and New Jersey Transit service to a halt on the Northeast Corridor, leaving travelers stranded, according to transit agencies.`\
 https://nytimes.com/2024/05/22/nyregion/amtrak-nj-transit-trains-suspended.html
