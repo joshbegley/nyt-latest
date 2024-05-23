@@ -1,3 +1,7 @@
+**Why Amtrak Is to Blame for a Hellish Night for New Jersey Commuters**\
+`Sharing tracks means that any disruption along the 427-mile Northeast Corridor, which links Boston to Washington D.C., can be felt by thousands of passengers.`\
+https://nytimes.com/2024/05/23/nyregion/amtrak-nj-transit-trains.html
+
 **Strike Over Campus Protests Expands to U.C. Davis and U.C.L.A.**\
 `Word of the broadened walkout in the University of California system came on the same day that U.C.L.A.’s chancellor testified before Congress on his handling of an hourslong attack on a pro-Palestinian encampment.`\
 https://nytimes.com/2024/05/23/us/uc-davis-los-angeles-campus-protest-strike.html
