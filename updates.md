@@ -1,3 +1,7 @@
+**Ohio Elections Official Says He Will Soon Exclude Biden From the Ballot**\
+`The Biden campaign is considering suing to ensure the president is on the ballot, after the Republican secretary of state said he would bar him over what is normally a minor procedural issue.`\
+https://nytimes.com/2024/05/22/us/politics/biden-ohio-ballot.html
+
 **Transcript of Trump Manhattan Trial, May 21, 2024**\
 `New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
 https://nytimes.com/interactive/2024/05/22/nyregion/trump-hush-money-trial-transcript-may-21.html
