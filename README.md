@@ -14,8 +14,8 @@ https://nytimes.com/2024/05/23/briefing/afghanistan-britain-ukraine.html
 `After setting a very high bar for his party in the election, Prime Minister Narendra Modi often appears on the defensive as the voting nears its end.`\
 https://nytimes.com/2024/05/23/world/asia/india-election-modi-opposition.html
 
-**Stage Collapses at Campaign Rally in Northern Mexico, Killing at Least 5**\
-`Strong wind caused the stage to collapse during an event for a mayoral election attended by a presidential candidate, officials said. Dozens of people were injured.`\
+**Stage Collapses at Campaign Rally in Mexico, Killing at Least 6**\
+`Strong wind caused the collapse in northern Mexico as a presidential candidate campaigned for a local candidate, officials said. Dozens of people were injured.`\
 https://nytimes.com/2024/05/23/world/americas/mexico-candidate-stage-collapse.html
 
 **Can European Recognition Bring Palestinian Statehood Any Closer?**\
