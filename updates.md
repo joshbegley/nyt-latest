@@ -1,3 +1,15 @@
+**Is Modi Worried? India’s Long-Deflated Opposition Finds Some Momentum.**\
+`After setting a very high bar for his party in the election, Prime Minister Narendra Modi often appears on the defensive as the voting nears its end.`\
+https://nytimes.com/2024/05/23/world/asia/india-election-modi-opposition.html
+
+**Stage Collapses at Campaign Rally in Mexico, Causing Injuries**\
+`A presidential candidate, Jorge Álvarez Máynez, said people were injured when a stage collapsed in a northern city after a gust of wind blew through the area.`\
+https://nytimes.com/2024/05/23/world/americas/mexico-candidate-stage-collapse.html
+
+**Can European Recognition Bring Palestinian Statehood Any Closer?**\
+`Not on its own, in all likelihood. But it reflects a growing, global exasperation with Israel that might eventually lend momentum to a two-state solution.`\
+https://nytimes.com/2024/05/23/world/middleeast/europe-recognition-palestinian-statehood.html
+
 **Corrections: May 23, 2024**\
 `Corrections that appeared in print on Thursday, May 23, 2024.`\
 https://nytimes.com/2024/05/22/pageoneplus/corrections-may-23-2024.html

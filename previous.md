@@ -1,3 +1,15 @@
+**Is Modi Worried? India’s Long-Deflated Opposition Finds Some Momentum.**\
+`After setting a very high bar for his party in the election, Prime Minister Narendra Modi often appears on the defensive as the voting nears its end.`\
+https://nytimes.com/2024/05/23/world/asia/india-election-modi-opposition.html
+
+**Stage Collapses at Campaign Rally in Mexico, Causing Injuries**\
+`A presidential candidate, Jorge Álvarez Máynez, said people were injured when a stage collapsed in a northern city after a gust of wind blew through the area.`\
+https://nytimes.com/2024/05/23/world/americas/mexico-candidate-stage-collapse.html
+
+**Can European Recognition Bring Palestinian Statehood Any Closer?**\
+`Not on its own, in all likelihood. But it reflects a growing, global exasperation with Israel that might eventually lend momentum to a two-state solution.`\
+https://nytimes.com/2024/05/23/world/middleeast/europe-recognition-palestinian-statehood.html
+
 **Corrections: May 23, 2024**\
 `Corrections that appeared in print on Thursday, May 23, 2024.`\
 https://nytimes.com/2024/05/22/pageoneplus/corrections-may-23-2024.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/22/us/politics/trump-arab-americans.html
 **With Troubles at Home, Macron Pops Up 10,000 Miles Away**\
 `New Caledonia, a French territory in the Pacific, is on the brink of civil war as pro-independence activists protest a law that would expand voting rights.`\
 https://nytimes.com/2024/05/22/world/europe/macron-new-caledonia-france.html
-
-**Ohio Elections Official Threatens to Exclude Biden From the Ballot**\
-`The Biden campaign is considering suing to ensure the president is on the ballot, after the Republican secretary of state said he would bar him over what is normally a minor procedural issue.`\
-https://nytimes.com/2024/05/22/us/politics/biden-ohio-ballot.html
-
-**U.S. Plans to Sue Ticketmaster Owner, Accusing It of Defending a Monopoly**\
-`Live Nation Entertainment, the concert giant that owns Ticketmaster, faces a fight that could reshape the multibillion-dollar live music industry.`\
-https://nytimes.com/2024/05/22/technology/doj-ticketmaster-live-nation-antitrust-suit.html
-
-**Voters Oust Progressive Prosecutor in Portland**\
-`Mike Schmidt lost to Nathan Vasquez, a deputy district attorney in Multnomah County, Ore., who blamed his boss for the area’s recent problems with drugs and crime.`\
-https://nytimes.com/2024/05/22/us/politics/portland-prosecutor-mike-schmidt-nathan-vasquez.html
 
