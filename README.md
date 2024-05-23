@@ -26,7 +26,7 @@ https://nytimes.com/2024/05/22/technology/doj-ticketmaster-live-nation-antitrust
 `Mike Schmidt lost to Nathan Vasquez, a deputy district attorney in Multnomah County, Ore., who blamed his boss for the area’s recent problems with drugs and crime.`\
 https://nytimes.com/2024/05/22/us/politics/portland-prosecutor-mike-schmidt-nathan-vasquez.html
 
-**Trains Suspended Between New York and Philadelphia After Power Outage**\
+**Power Outage Halts Northeast Corridor Trains**\
 `Fallen electrical wires in New Jersey brought Amtrak and New Jersey Transit service to a halt on the Northeast Corridor, leaving travelers stranded, according to transit agencies.`\
 https://nytimes.com/2024/05/22/nyregion/amtrak-nj-transit-trains-suspended.html
 
