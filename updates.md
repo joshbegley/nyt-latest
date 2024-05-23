@@ -1,3 +1,15 @@
+**Northwestern’s president is likely to face questions on incidents dating back to 2022.**\
+`By Ernesto Londoño`\
+https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/northwesterns-president-is-likely-to-face-questions-on-incidents-dating-back-to-2022
+
+**Supreme Court Sides With Republicans Over South Carolina Voting Map**\
+`The case concerned a constitutional puzzle: how to distinguish the roles of race and partisanship in drawing voting maps when Black voters overwhelmingly favor Democrats.`\
+https://nytimes.com/2024/05/23/us/supreme-court-south-carolina-voting-map.html
+
+**U.S. Calls for Breakup of Ticketmaster Owner**\
+`Accused of violating antitrust laws, Live Nation Entertainment faces a fight that could reshape the multibillion-dollar live music industry.`\
+https://nytimes.com/2024/05/23/technology/ticketmaster-live-nation-lawsuit-antitrust.html
+
 **U.K. 2024 General Election: What to Know**\
 `The governing Conservative Party could be voted out of power for the first time in 14 years.`\
 https://nytimes.com/2024/05/23/world/europe/britain-2024-general-election.html

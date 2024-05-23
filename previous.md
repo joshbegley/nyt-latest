@@ -1,3 +1,15 @@
+**Northwestern’s president is likely to face questions on incidents dating back to 2022.**\
+`By Ernesto Londoño`\
+https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/northwesterns-president-is-likely-to-face-questions-on-incidents-dating-back-to-2022
+
+**Supreme Court Sides With Republicans Over South Carolina Voting Map**\
+`The case concerned a constitutional puzzle: how to distinguish the roles of race and partisanship in drawing voting maps when Black voters overwhelmingly favor Democrats.`\
+https://nytimes.com/2024/05/23/us/supreme-court-south-carolina-voting-map.html
+
+**U.S. Calls for Breakup of Ticketmaster Owner**\
+`Accused of violating antitrust laws, Live Nation Entertainment faces a fight that could reshape the multibillion-dollar live music industry.`\
+https://nytimes.com/2024/05/23/technology/ticketmaster-live-nation-lawsuit-antitrust.html
+
 **U.K. 2024 General Election: What to Know**\
 `The governing Conservative Party could be voted out of power for the first time in 14 years.`\
 https://nytimes.com/2024/05/23/world/europe/britain-2024-general-election.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/gene-block-h
 **Election Updates: Trump’s New York City trial has made for a very local presidential campaign.**\
 ``\
 https://nytimes.com/live/2024/05/23/us/biden-trump-election
-
-**Pizza Deliveries and Bodega Stops: Trump’s Big Apple Campaign**\
-`Before and after appearing in a Manhattan courthouse, where he is on criminal trial, former President Donald J. Trump has been campaigning for president in unfriendly political territory.`\
-https://nytimes.com/2024/05/23/us/politics/trump-new-york-crowds.html
-
-**Who is Jonathan Holloway?**\
-`By Sharon Otterman`\
-https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/who-is-jonathan-holloway
-
-**Senate Democrats Open Inquiry Into Trump’s $1 Billion Request of Oil Industry**\
-`Two committees are seeking information from oil executives about a dinner where, the lawmakers say, the former president proposed a quid pro quo.`\
-https://nytimes.com/2024/05/23/climate/senate-democrats-open-inquiry-into-trumps-1-billion-request-of-oil-industry.html
 
