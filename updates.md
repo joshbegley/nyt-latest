@@ -1,3 +1,7 @@
+**Corrections: May 23, 2024**\
+`Corrections that appeared in print on Thursday, May 23, 2024.`\
+https://nytimes.com/2024/05/22/pageoneplus/corrections-may-23-2024.html
+
 **Quote of the Day: America’s Monster**\
 `Quotation of the Day for Thursday, May 23, 2024`\
 https://nytimes.com/2024/05/22/pageoneplus/quote-of-the-day-americas-monster.html
