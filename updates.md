@@ -1,3 +1,11 @@
+**Why does anyone agree to testify before Congress anyway?**\
+`By Annie Karni`\
+https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/why-does-anyone-agree-to-testify-before-congress-anyway
+
+**Cassie After Sean Combs Footage: ‘Open Your Heart to Believing Victims’**\
+`The singer, who sued the hip-hop mogul over allegations of rape and abuse, posted a statement after 2016 video emerged last week showing him assaulting her in a hotel.`\
+https://nytimes.com/2024/05/23/arts/music/cassie-diddy-sean-combs-statement.html
+
 **A general who became a university president advises: ‘Take time to tell it like it is.’**\
 `By Alan Blinder`\
 https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/a-general-who-became-a-university-president-advises-take-time-to-tell-it-like-it-is
