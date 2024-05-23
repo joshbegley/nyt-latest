@@ -1,3 +1,11 @@
+**Jimmy Kimmel Roasts Republicans for Crying Wolf**\
+`President Biden “sent an elite team of ultraliberal F.B.I. agents to assassinate Donald Trump, but somehow he slipped out the back door,” Kimmel joked on Wednesday.`\
+https://nytimes.com/2024/05/23/arts/television/jimmy-kimmel-trump-classified-documents.html
+
+**Stage Collapses at Campaign Rally in Mexico, Killing at Least 9**\
+`Strong wind caused the collapse in northern Mexico as a presidential hopeful campaigned for a local candidate, officials said. Dozens of people were injured.`\
+https://nytimes.com/2024/05/23/world/americas/mexico-candidate-stage-collapse.html
+
 **Howler Monkeys Fall From Trees Amid Mexico Heat**\
 `Scientists are investigating the situation that has left more than a hundred howler monkeys dead and others dehydrated and in critical condition in southern Mexico.`\
 https://nytimes.com/video/climate/100000009484020/howler-monkeys-mexico-heat.html
