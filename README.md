@@ -1,3 +1,7 @@
+**House Passes Measure to Repeal D.C. Noncitizen Voting Law**\
+`Fifty-two Democrats joined Republicans in favor of the legislation, which has little chance of enactment but offered the G.O.P. a chance to amplify Donald Trump’s false claims of widespread illegal voting by noncitizens.`\
+https://nytimes.com/2024/05/23/us/politics/house-passes-measure-to-repeal-dc-noncitizen-voting-law.html
+
 **What business does Congress have questioning university presidents anyway?**\
 `By Kayla Guo`\
 https://nytimes.com/live/2024/05/23/us/college-antisemitism-hearing/what-business-does-congress-have-questioning-university-presidents-anyway
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/21/opinion/thepoint/livenation-ticketmaster-doj
 **As Trump Campaigns in New York, Biden Points Black Voters to His Rival’s Past**\
 `Ahead of Donald Trump’s political event in the Bronx, the Biden campaign released a television ad highlighting Mr. Trump’s treatment of Black people.`\
 https://nytimes.com/2024/05/23/us/politics/trump-biden-2024-campaign.html
-
-**Political Consultant Who Orchestrated Fake Biden Robocalls Is Indicted**\
-`The calls used an artificial-intelligence impersonation of President Biden to urge Democrats not to vote in New Hampshire’s presidential primary.`\
-https://nytimes.com/2024/05/23/us/politics/biden-robocalls-steve-kramer-democratic-primary.html
 
