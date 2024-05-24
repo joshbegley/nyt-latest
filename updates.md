@@ -1,3 +1,11 @@
+**Ozempic Cuts Risk of Chronic Kidney Disease Complications, Study Finds**\
+`A major clinical trial showed such promising results that the drug’s maker halted it early.`\
+https://nytimes.com/2024/05/24/well/ozempic-kidney-disease-semaglutide.html
+
+**Ukraine Starts Freeing Some Prisoners to Join Its Military**\
+`At least 50 convicts have been freed under a new law that allows them to serve in exchange for the possibility of parole, part of an effort to replenish Ukraine’s depleted forces.`\
+https://nytimes.com/2024/05/24/world/europe/ukraine-russia-war-prisoners.html
+
 **A Week of Diplomatic Blows to Israel, and Congress Criticizes Alito**\
 `Plus, a big step toward college athlete pay.`\
 https://nytimes.com/2024/05/24/podcasts/rafah-invasion-icc-south-africa-alito-congress-response.html

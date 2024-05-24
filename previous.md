@@ -1,3 +1,11 @@
+**Ozempic Cuts Risk of Chronic Kidney Disease Complications, Study Finds**\
+`A major clinical trial showed such promising results that the drug’s maker halted it early.`\
+https://nytimes.com/2024/05/24/well/ozempic-kidney-disease-semaglutide.html
+
+**Ukraine Starts Freeing Some Prisoners to Join Its Military**\
+`At least 50 convicts have been freed under a new law that allows them to serve in exchange for the possibility of parole, part of an effort to replenish Ukraine’s depleted forces.`\
+https://nytimes.com/2024/05/24/world/europe/ukraine-russia-war-prisoners.html
+
 **A Week of Diplomatic Blows to Israel, and Congress Criticizes Alito**\
 `Plus, a big step toward college athlete pay.`\
 https://nytimes.com/2024/05/24/podcasts/rafah-invasion-icc-south-africa-alito-congress-response.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/24/world/europe/barcelona-women-soccer-champions-lea
 **Here It Comes: Another Hot Summer in Europe**\
 `Extreme heat and other weather challenges are in the forecast this summer, and travel advisers, tourists and local officials are getting prepared.`\
 https://nytimes.com/2024/05/24/travel/heat-waves-europe-tourists.html
-
-**The New Hospitality? Customers Can Sue Restaurants Over Pricing.**\
-`A California law aimed at banning hidden fees has put restaurant service charges at risk. But it could still change.`\
-https://nytimes.com/2024/05/24/dining/restaurant-service-charges-california.html
-
-**6 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://nytimes.com/2024/05/24/movies/6-new-movies-our-critics-are-talking-about-this-week.html
 
