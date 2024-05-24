@@ -1,3 +1,7 @@
+**Israel says its military operations in Rafah don’t — and won’t — violate the World Court’s order.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/05/24/world/israel-gaza-war-hamas-rafah/israel-says-its-military-operations-in-rafah-dont-and-wont-violate-the-world-courts-order
+
 **‘Furiosa: A Mad Max Saga’: What Do Critics Say? What Do You Say?**\
 `The reviews all agree that the follow-up to “Fury Road” feels sadder and heavier. But is that a good thing? That’s where the disagreements start.`\
 https://nytimes.com/2024/05/24/movies/furiosa-a-mad-max-saga-review-recap.html
