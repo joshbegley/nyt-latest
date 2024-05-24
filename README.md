@@ -1,3 +1,7 @@
+**The Best of Late Night This Week**\
+`The hosts spent much of the week riffing on the news that flags associated with the Jan. 6 insurrection were flown at two of Supreme Court Justice Samuel Alito’s homes. Here’s what they had to say.`\
+https://nytimes.com/interactive/2024/05/24/arts/television/best-of-late-night-samuel-alito.html
+
 **Cher and the Jonas Brothers Dazzle the French Riviera**\
 `Demi Moore, Michelle Yeoh and Andie MacDowell and many more attended the amfAR gala, the unofficial closing party for the Cannes Film Festival.`\
 https://nytimes.com/2024/05/24/style/cher-jonas-brothers-cannes-amfar-gala.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/24/movies/atlas-review.html
 **Aid and human rights groups hailed the international court’s ruling, but said nations must pressure Israel to comply.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/05/24/world/israel-gaza-war-hamas-rafah/aid-and-human-rights-groups-hailed-the-international-courts-ruling-but-said-nations-must-pressure-israel-to-comply
-
-**What’s Spanish for ‘Chutzpah’?**\
-`Spain is yet another government that suppresses independence-seekers at home while applauding those abroad.`\
-https://nytimes.com/live/2024/05/21/opinion/thepoint/spain-palestine-recognition
 
