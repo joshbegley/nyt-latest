@@ -1,3 +1,7 @@
+**The Emails at the Heart of the Government’s Ticketmaster Case**\
+`Live Nation Entertainment, which owns Ticketmaster, is accused of violating antitrust laws. The Justice Department drew on the concert behemoth’s internal communications in its lawsuit.`\
+https://nytimes.com/2024/05/24/arts/music/ticketmaster-live-nation-emails.html
+
 **Chinese Billionaire Accused of Fraud Didn’t Need the Money, Lawyers Say**\
 `Prosecutors put Guo Wengui on trial in New York for defrauding investors of $1 billion. His lawyers told jurors he was building an anti-Communist movement.`\
 https://nytimes.com/2024/05/24/us/chinese-billionaire-accused-of-fraud-didnt-need-the-money-lawyers-say.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/24/world/israel-gaza-war-hamas-rafah/here-is-wh
 **Uvalde Families Sue Instagram and Activision Over Promotion of Guns**\
 `Families of the victims of a 2022 school shooting accused the social media site, the makers of “Call of Duty” and a rifle maker of “grooming” a teenage gunman.`\
 https://nytimes.com/2024/05/24/us/uvalde-gun-instagram-activision-lawsuit.html
-
-**Fred Roos, Casting Director and Coppola Collaborator, Dies at 89**\
-`Widely considered to have the best eye for talent in Hollywood, he shared the best-picture Oscar with Francis Ford Coppola for “The Godfather Part II.”`\
-https://nytimes.com/2024/05/24/movies/fred-roos-dead.html
 

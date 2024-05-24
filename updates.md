@@ -1,3 +1,7 @@
+**The Emails at the Heart of the Government’s Ticketmaster Case**\
+`Live Nation Entertainment, which owns Ticketmaster, is accused of violating antitrust laws. The Justice Department drew on the concert behemoth’s internal communications in its lawsuit.`\
+https://nytimes.com/2024/05/24/arts/music/ticketmaster-live-nation-emails.html
+
 **Chinese Billionaire Accused of Fraud Didn’t Need the Money, Lawyers Say**\
 `Prosecutors put Guo Wengui on trial in New York for defrauding investors of $1 billion. His lawyers told jurors he was building an anti-Communist movement.`\
 https://nytimes.com/2024/05/24/us/chinese-billionaire-accused-of-fraud-didnt-need-the-money-lawyers-say.html
