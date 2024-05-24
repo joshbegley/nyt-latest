@@ -1,3 +1,7 @@
+**Sean Kingston Arrested on Fraud and Theft Charges After Raid at His Home**\
+`Mr. Kingston, a singer and rapper, best known for his 2007 hit single “Beautiful Girls,” was taken into custody on Thursday. His mother was also arrested.`\
+https://nytimes.com/2024/05/24/arts/music/sean-kingston-arrested.html
+
 **Judge Denies Alec Baldwin’s Bid to Dismiss Manslaughter Indictment**\
 `The ruling increases the likelihood that Mr. Baldwin will stand trial this summer in the fatal shooting of a cinematographer on the set of the film “Rust.”`\
 https://nytimes.com/2024/05/24/arts/alec-baldwin-rust-case.html
