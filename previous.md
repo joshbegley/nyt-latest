@@ -1,3 +1,7 @@
+**Judge John Hodgman on What Constitutes ‘Visiting’ a State**\
+`Does it count if you never leave the car?`\
+https://nytimes.com/2024/05/24/magazine/judge-john-hodgman-travel-state-humor.html
+
 **Read the I.C.J. Ruling on Israel’s Rafah Offensive**\
 `The International Court of Justice ruled on Friday that Israel must immediately halt its military offensive in the southern Gaza city of Rafah, dealing another blow to the country as it faces increasing international isolation.`\
 https://nytimes.com/interactive/2024/05/24/us/israelruling.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/24/us/politics/robert-deniro-trump-biden-ad.html
 **Morgan Spurlock, Documentarian Known for ‘Super Size Me,’ Dies at 53**\
 `His 2004 film, which was nominated for an Oscar, followed Mr. Spurlock as he ate nothing but McDonald’s for a month.`\
 https://nytimes.com/2024/05/24/arts/morgan-spurlock-dead-super-size-me.html
-
-**When Age Catches Up to a Tennis Player**\
-`They consider their bodies and the results on the court to determine when to hang it up.`\
-https://nytimes.com/2024/05/24/sports/tennis/french-open-players-age.html
 
