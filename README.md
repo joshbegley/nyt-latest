@@ -1,3 +1,7 @@
+**‘Zarqa’ Is a Madcap Canadian Comedy**\
+`This new YouTube sitcom from the creator of “Little Mosque on the Prairie” follows a divorced Muslim mother trying to pull one over on her ex.`\
+https://nytimes.com/2024/05/24/arts/television/zarqa.html
+
 **‘Romeo and Juliet’ Review: Plenty of Style, but Little Love**\
 `The London production, starring Tom Holland, sold out in hours. But its understated rendering of the central romance may leave some theatergoers wanting more.`\
 https://nytimes.com/2024/05/24/theater/tom-holland-romeo-and-juliet.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/24/crosswords/connections-companion-349.html
 **Today’s Wordle Review No. 1,071, May 25, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/05/24/crosswords/wordle-review.html
-
-**How FaceTime Calls With Mom Became a TV Hit**\
-`What started as a way for the filmmaker Josh Seftel and his mother, Pat, to stay in touch has become a popular feature on “CBS Sunday Morning.”`\
-https://nytimes.com/2024/05/24/style/josh-seftel-mom-pat-cbs.html
 
