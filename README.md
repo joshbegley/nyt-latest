@@ -1,3 +1,7 @@
+**Israel says its military operations in Rafah don’t — and won’t — violate the World Court’s order.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/05/24/world/israel-gaza-war-hamas-rafah/israel-says-its-military-operations-in-rafah-dont-and-wont-violate-the-world-courts-order
+
 **‘Furiosa: A Mad Max Saga’: What Do Critics Say? What Do You Say?**\
 `The reviews all agree that the follow-up to “Fury Road” feels sadder and heavier. But is that a good thing? That’s where the disagreements start.`\
 https://nytimes.com/2024/05/24/movies/furiosa-a-mad-max-saga-review-recap.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/24/technology/google-ai-overview-search.html
 **The Best Books of the Year (So Far)**\
 `The nonfiction and novels we can’t stop thinking about.`\
 https://nytimes.com/2024/05/24/books/best-books-2024-so-far.html
-
-**The court’s decision highlights Israel’s growing diplomatic isolation.**\
-`By Patrick Kingsley`\
-https://nytimes.com/live/2024/05/24/world/israel-gaza-war-hamas-rafah/the-courts-decision-highlights-israels-growing-diplomatic-isolation
 
