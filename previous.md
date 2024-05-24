@@ -1,3 +1,7 @@
+**Caleb Carr, Author of Dark Histories, Dies at 68**\
+`His own dark history prompted him to write about and investigate the roots of violence, notably in his best-selling novel “The Alienist.”`\
+https://nytimes.com/2024/05/24/books/caleb-carr-dead.html
+
 **U.C.L.A. Police Make First Arrest in Attack on Protest Encampment**\
 `Edan On, an 18-year-old, was charged with assault.`\
 https://nytimes.com/2024/05/24/us/ucla-protest-arrest-edan-on.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/24/arts/design/art-nudity-models.html
 **She Was More Than the Woman Who Made Julia Child Famous**\
 `In “The Editor,” Sara B. Franklin argues that Judith Jones was a “publishing legend,” transcending industry sexism to champion cookbooks — and Anne Frank.`\
 https://nytimes.com/2024/05/24/books/review/the-editor-judith-jones-sara-franklin.html
-
-**Brooke Shields Elected President of Labor Union Actors’ Equity**\
-`She takes office immediately. The previous leader, Kate Shindle, had been president since 2015, and did not run again.`\
-https://nytimes.com/2024/05/24/theater/brooke-shields-president-actors-equity.html
 

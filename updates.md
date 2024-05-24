@@ -1,3 +1,7 @@
+**Caleb Carr, Author of Dark Histories, Dies at 68**\
+`His own dark history prompted him to write about and investigate the roots of violence, notably in his best-selling novel “The Alienist.”`\
+https://nytimes.com/2024/05/24/books/caleb-carr-dead.html
+
 **U.C.L.A. Police Make First Arrest in Attack on Protest Encampment**\
 `Edan On, an 18-year-old, was charged with assault.`\
 https://nytimes.com/2024/05/24/us/ucla-protest-arrest-edan-on.html
