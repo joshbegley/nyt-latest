@@ -1,5 +1,5 @@
-**Three Missionaries in Haiti Killed in Gang Attack**\
-`The latest assault by Haitian gangs left three missionaries, including two Americans dead in Port-au-Prince.`\
+**Three Missionaries in Haiti Are Killed in Gang Attack**\
+`The latest assault by Haitian gangs left the three people, including two Americans, dead in Port-au-Prince.`\
 https://nytimes.com/2024/05/24/world/americas/haiti-gang-attack-missionaries-dead.html
 
 **50 Years Ago, Chris Evert and Bjorn Borg Changed Tennis**\
