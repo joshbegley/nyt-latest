@@ -1,3 +1,7 @@
+**After Outcry, Chuck E. Cheese Says It Will Keep More Animatronic Bands**\
+`Plans to phase out most of Chuck E. Cheese’s animatronic bands prompted fans to plead for their survival. The bands will now play on at three additional locations.`\
+https://nytimes.com/2024/05/24/business/chuck-e-cheese-band-animatronic.html
+
 **Interest on Federal Student Loans Is Rising to 6.53%**\
 `The rate for undergraduate loans is up from 5.5 percent this past school year and higher than it has been in more than a decade.`\
 https://nytimes.com/2024/05/24/your-money/federal-student-loans-interest-rates.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/24/business/dealbook/ncaa-student-athletes-pay.html
 **Kabosu, Shiba Inu Who Helped Define the Doge Meme, Dies at 18**\
 `The dog, whose face helped spread the popular doge meme and later became the logo of the Dogecoin cryptocurrency, died on Friday.`\
 https://nytimes.com/2024/05/24/world/asia/kabosu-doge-meme-dead.html
-
-**Landslide Buries Village in Papua New Guinea, Killing at Least 3**\
-`Many more were missing in the Pacific nation as recovery and rescue efforts were delayed by a blocked highway and fallen boulders.`\
-https://nytimes.com/2024/05/24/world/australia/papua-new-guinea-landslide.html
 

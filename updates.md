@@ -1,3 +1,7 @@
+**After Outcry, Chuck E. Cheese Says It Will Keep More Animatronic Bands**\
+`Plans to phase out most of Chuck E. Cheese’s animatronic bands prompted fans to plead for their survival. The bands will now play on at three additional locations.`\
+https://nytimes.com/2024/05/24/business/chuck-e-cheese-band-animatronic.html
+
 **Interest on Federal Student Loans Is Rising to 6.53%**\
 `The rate for undergraduate loans is up from 5.5 percent this past school year and higher than it has been in more than a decade.`\
 https://nytimes.com/2024/05/24/your-money/federal-student-loans-interest-rates.html
