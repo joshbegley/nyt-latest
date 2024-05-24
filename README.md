@@ -1,3 +1,7 @@
+**The N.C.A.A.’s Landmark Athlete-Pay Settlement, Explained**\
+`The $2.8 billion agreement announced on Thursday would, if approved by a judge, allow college athletes to share team revenue for the first time. Here is what we know.`\
+https://nytimes.com/2024/05/24/us/ncaa-settlement-college-athletes-payments.html
+
 **Are You Wearing Sunscreen the Right Way?**\
 `And other essential questions about protecting your skin from the sun, answered by experts.`\
 https://nytimes.com/article/spf-sunscreen-skin-care-routine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/24/opinion/red-lobster-bankruptcy-economy.html
 **Can I Use A.I. to Grade My Students’ Papers?**\
 `The magazine’s Ethicist columnist on artificial intelligence platforms, and whether it’s hypocritical for teachers to use these tools while forbidding students from doing the same.`\
 https://nytimes.com/2024/05/24/magazine/ai-essays-grading-ethics.html
-
-**NASA Astronauts to Wait Another Week for Boeing Starliner Launch**\
-`Officials from NASA and Boeing say they have worked out a solution to a helium leak that has kept the Starliner astronaut capsule grounded.`\
-https://nytimes.com/2024/05/24/science/boeing-starliner-nasa-launch.html
 
