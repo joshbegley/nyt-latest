@@ -1,3 +1,7 @@
+**The ‘Nontraditional’ Bridal Brand Capturing Hearts Online**\
+`Madison Chamberlain is carving a niche with her vibrant, over-the-top bridal designs.`\
+https://nytimes.com/2024/05/24/style/madison-chamberlain-bridal-designer.html
+
 **Trump Warms Up to Bringing Haley ‘On Our Team in Some Form’**\
 `The former president praised Nikki Haley, once his bitter rival for the Republican nomination, a day after she said that she would vote for him.`\
 https://nytimes.com/2024/05/24/us/politics/donald-trump-nikki-haley.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/24/weather/memorial-day-forecast-tornado-storms.html
 **A State Fund That Helps Children Hurt at Birth Is Quietly Suspended**\
 `New York officials said the fund would accept new beneficiaries for the rest of the year, but a projected shortfall of at least $3.2 billion raises questions about its future.`\
 https://nytimes.com/2024/05/24/nyregion/medical-indemnity-fund-malpractice.html
-
-**‘Old’ Amsterdam Looks Back at New Amsterdam Through Indigenous Eyes**\
-`The violent history of the Dutch colony that is now New York is not well known in the Netherlands. The curators of a new exhibition want to change that.`\
-https://nytimes.com/2024/05/24/arts/design/amsterdam-museum-indigenous-new-york.html
 
