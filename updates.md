@@ -1,3 +1,7 @@
+**Did You Recently Choose Between Renting and Buying? We Want to Hear About It.**\
+`The New York Times is telling the stories of people who made this difficult choice. Maybe we can tell yours.`\
+https://nytimes.com/2024/05/24/upshot/renting-or-buying-decision.html
+
 **Would You Want a Robot to Speak at Your Graduation?**\
 `An A.I. robot gave a commencement address at a university in Buffalo. What do you think? Who would you want to speak at your graduation?`\
 https://nytimes.com/2024/05/24/learning/would-you-want-a-robot-to-speak-at-your-graduation.html
