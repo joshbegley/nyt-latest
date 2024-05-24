@@ -1,3 +1,11 @@
+**Israeli Forces Cut Off Access to Kamal Adwan Hospital in Northern Gaza**\
+`Israeli bombardments and raids have put many of Gaza’s hospitals out of operation and only a few remain even partially functional.`\
+https://nytimes.com/2024/05/24/world/middleeast/israel-gaza-kamal-adwan-hospital.html
+
+**Bird Flu Virus Found in Beef Tissue**\
+`Federal officials said that muscle from a sick dairy cow had tested positive for the virus, but reiterated that the commercial meat supply was safe.`\
+https://nytimes.com/2024/05/24/health/bird-flu-beef.html
+
 **Countries Struggle to Agree on Treaty to Prepare the World for the Next Pandemic**\
 `Among the sticking points are equitable access to vaccines and financing to set up surveillance systems.`\
 https://nytimes.com/2024/05/24/health/pandemic-treaty-vaccines.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/24/arts/music/review-a-delightful-orfeo-returns-to-t
 **Where New Yorkers Start Being Polite and Stop Getting Real**\
 `The Portal, a video art installation connecting the city with Dublin, is open again, now with safeguards. But does changing the rules change the artwork?`\
 https://nytimes.com/2024/05/24/arts/television/the-portal-new-york.html
-
-**Fixing the Calamity in U.S. Math Knowledge Starts With Algebra**\
-`Giving up means that math scores will continue to plummet and racial gaps will grow.`\
-https://nytimes.com/2024/05/21/opinion/algebra-math-racial-gap.html
-
-**I Was a Nude Model for a Half Hour. Revelatory? Actually, Yes.**\
-`Two shows — an art fair in Brooklyn and an Yves Klein exhibition uptown — ask if nude art can still inspire or shock. I joined in to find out.`\
-https://nytimes.com/2024/05/24/arts/design/art-nudity-models.html
 
