@@ -1,3 +1,15 @@
+**Uvalde Families Sue Instagram and Activision Over Promotion of Guns**\
+`Families of the victims of a 2022 school shooting accused the social media site, the makers of “Call of Duty” and a rifle maker of “grooming” a teenage gunman.`\
+https://nytimes.com/2024/05/24/us/uvalde-gun-instagram-activision-lawsuit.html
+
+**Fred Roos, Casting Director and Coppola Collaborator, Dies at 89**\
+`Widely considered to have the best eye for talent in Hollywood, he shared the best-picture Oscar with Francis Ford Coppola for “The Godfather Part II.”`\
+https://nytimes.com/2024/05/24/movies/fred-roos-dead.html
+
+**Biden’s Chance to Do the Right Thing in Gaza**\
+`The U.S. should side with the International Court of Justice in the Gaza war.`\
+https://nytimes.com/2024/05/24/opinion/bidens-chance-to-do-the-right-thing-in-gaza.html
+
 **The N.C.A.A.’s Landmark Athlete-Pay Settlement, Explained**\
 `The $2.8 billion agreement announced on Thursday would, if approved by a judge, allow college athletes to share team revenue for the first time. Here is what we know.`\
 https://nytimes.com/2024/05/24/us/ncaa-settlement-college-athletes-payments.html
