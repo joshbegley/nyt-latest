@@ -1,3 +1,11 @@
+**The 8 Weeks Spent Freeing the Dali From a Baltimore Bridge **\
+`The container ship hit the Key Bridge in the early morning hours of March 26 and more than 2,000 people have been involved in the salvage and recovery operation.`\
+https://nytimes.com/card/2024/05/24/us/baltimore-bridge-dali-ship
+
+**The Top U.N. Court Told Israel to Halt Its Rafah Offensive**\
+`Also, countries failed to agree on how to prepare for the next pandemic. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/05/24/briefing/icj-israel-rajah-offensive-pandemic-treaty.html
+
 **Lloyd Austin to Undergo Procedure to Address Bladder Issue**\
 `The Pentagon called the procedure a “minimally invasive,” nonsurgical follow-up to previous treatment, and said the defense secretary would temporarily turn over his duties to his deputy.`\
 https://nytimes.com/2024/05/24/us/politics/lloyd-austin-medical-procedure.html
