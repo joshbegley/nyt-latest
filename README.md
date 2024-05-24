@@ -1,3 +1,11 @@
+**World Court Orders Israel to Halt Its Military Offensive Into Rafah**\
+`The International Court of Justice has no means to enforce its order in the Gazan city, but the ruling added pressure on the government of Prime Minister Benjamin Netanyahu of Israel.`\
+https://nytimes.com/2024/05/24/world/middleeast/icj-israel-gaza-rafah-ruling.html
+
+**Menendez Judge Bars Some Prosecution Evidence in Bribery Trial**\
+`The ruling could undermine prosecutors’ ability to prove certain elements of the bribery case against Senator Robert Menendez, a New Jersey Democrat.`\
+https://nytimes.com/2024/05/24/nyregion/menendez-bribery-case-evidence.html
+
 **The Anti-Trump Republicans Worried About the Biden Campaign**\
 `Some G.O.P. Trump opponents want to hear more from the Biden campaign. It says it’s on it.`\
 https://nytimes.com/2024/05/24/us/politics/trump-biden-republicans.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/24/arts/music/ticketmaster-live-nation-emails.html
 **Chinese Billionaire Accused of Fraud Didn’t Need the Money, Lawyers Say**\
 `Prosecutors put Guo Wengui on trial in New York for defrauding investors of $1 billion. His lawyers told jurors he was building an anti-Communist movement.`\
 https://nytimes.com/2024/05/24/us/chinese-billionaire-accused-of-fraud-didnt-need-the-money-lawyers-say.html
-
-**John Koerner, Bluesman Who Inspired a Young Bob Dylan, Dies at 85**\
-`A spindly guitarist nicknamed Spider, Mr. Koerner was Mr. Dylan’s first friend in the scruffy world of Minneapolis bohemia where he learned about folk music.`\
-https://nytimes.com/2024/05/24/arts/music/spider-john-koerner-dead.html
-
-**Justice Sotomayor Describes Frustration With Being a Liberal on the Supreme Court**\
-`In a conversation at Harvard, the justice spoke of her despair at some of the court’s decisions, but she urged optimism and a focus on future generations.`\
-https://nytimes.com/2024/05/24/us/politics/sonia-sotomayor-supreme-court.html
 
