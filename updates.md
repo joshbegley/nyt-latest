@@ -1,3 +1,19 @@
+**The court’s decision highlights Israel’s growing diplomatic isolation.**\
+`By Patrick Kingsley`\
+https://nytimes.com/live/2024/05/24/world/israel-gaza-war-hamas-rafah/the-courts-decision-highlights-israels-growing-diplomatic-isolation
+
+**Israeli Forces Cut Off Access to Kamal Adwan Hospital in Northern Gaza**\
+`Israeli bombardments and raids have put many of Gaza’s hospitals out of operation and only a few remain even partially functional.`\
+https://nytimes.com/2024/05/24/world/middleeast/israel-gaza-kamal-adwan-hospital.html
+
+**Bird Flu Virus Found in Beef Tissue**\
+`Federal officials said that muscle from a sick dairy cow had tested positive for the virus, but reiterated that the commercial meat supply was safe.`\
+https://nytimes.com/2024/05/24/health/bird-flu-beef.html
+
+**Countries Fail to Agree on Treaty to Prepare the World for the Next Pandemic**\
+`Negotiators plan to ask for more time. Among the sticking points are equitable access to vaccines and financing to set up surveillance systems.`\
+https://nytimes.com/2024/05/24/health/pandemic-treaty-vaccines.html
+
 **Countries Struggle to Agree on Treaty to Prepare the World for the Next Pandemic**\
 `Among the sticking points are equitable access to vaccines and financing to set up surveillance systems.`\
 https://nytimes.com/2024/05/24/health/pandemic-treaty-vaccines.html
