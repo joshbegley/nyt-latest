@@ -1,3 +1,7 @@
+**Raw Milk’s Risks Don’t Stop Right-Wing Commentators From Defiantly Pushing It**\
+`On sites like Infowars, Gab and Rumble, federal concerns about raw milk are seen as overreach, but there are serious health risks and no scientifically proven benefits.`\
+https://nytimes.com/2024/05/24/business/raw-milk-bird-flu-infowars-disinformation.html
+
 **Milk Containing Bird-Flu Virus Can Sicken Mice, Study Finds**\
 `The results bolster evidence that virus-laden raw milk may be unsafe for humans.`\
 https://nytimes.com/2024/05/24/health/raw-milk-bird-flu-virus-mice.html
