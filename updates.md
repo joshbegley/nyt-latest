@@ -1,3 +1,7 @@
+**‘Romeo and Juliet’ Review: Plenty of Style, but Little Love**\
+`The London production, starring Tom Holland, sold out in hours. But its understated rendering of the central romance may leave some theatergoers wanting more.`\
+https://nytimes.com/2024/05/24/theater/tom-holland-romeo-and-juliet.html
+
 **Israeli Forces Recover Bodies of 3 More Hostages in Northern Gaza**\
 `The bodies were found in Jabaliya, where the Israeli military has been trying to root out a renewed Hamas insurgency.`\
 https://nytimes.com/2024/05/24/world/middleeast/israel-hostage-bodies-gaza-hamas.html

@@ -1,3 +1,7 @@
+**‘Romeo and Juliet’ Review: Plenty of Style, but Little Love**\
+`The London production, starring Tom Holland, sold out in hours. But its understated rendering of the central romance may leave some theatergoers wanting more.`\
+https://nytimes.com/2024/05/24/theater/tom-holland-romeo-and-juliet.html
+
 **Israeli Forces Recover Bodies of 3 More Hostages in Northern Gaza**\
 `The bodies were found in Jabaliya, where the Israeli military has been trying to root out a renewed Hamas insurgency.`\
 https://nytimes.com/2024/05/24/world/middleeast/israel-hostage-bodies-gaza-hamas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/24/crosswords/wordle-review.html
 **How FaceTime Calls With Mom Became a TV Hit**\
 `What started as a way for the filmmaker Josh Seftel and his mother, Pat, to stay in touch has become a popular feature on “CBS Sunday Morning.”`\
 https://nytimes.com/2024/05/24/style/josh-seftel-mom-pat-cbs.html
-
-**Meet the Jimi Hendrix of the Sahara**\
-`Our music reporter on Mdou Moctar and other African guitar heroes`\
-https://nytimes.com/2024/05/24/podcasts/meet-the-jimi-hendrix-of-the-sahara.html
 
