@@ -1,3 +1,7 @@
+**A Polling Risk for Trump**\
+`His advantage may not be as stable as it looks.`\
+https://nytimes.com/2024/05/24/briefing/a-polling-risk-for-trump.html
+
 **Ozempic Cuts Risk of Chronic Kidney Disease Complications, Study Finds**\
 `A major clinical trial showed such promising results that the drug’s maker halted it early.`\
 https://nytimes.com/2024/05/24/well/ozempic-kidney-disease-semaglutide.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/24/podcasts/meet-the-jimi-hendrix-of-the-sahara.html
 **The Capital of Women’s Soccer**\
 `The success of Barcelona’s team has made Catalonia a laboratory for finding out what happens when the women’s game has prominence similar to the men’s.`\
 https://nytimes.com/2024/05/24/world/europe/barcelona-women-soccer-champions-league.html
-
-**Here It Comes: Another Hot Summer in Europe**\
-`Extreme heat and other weather challenges are in the forecast this summer, and travel advisers, tourists and local officials are getting prepared.`\
-https://nytimes.com/2024/05/24/travel/heat-waves-europe-tourists.html
 
