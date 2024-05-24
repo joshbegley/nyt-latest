@@ -1,3 +1,11 @@
+**She Was More Than the Woman Who Made Julia Child Famous**\
+`In “The Editor,” Sara B. Franklin argues that Judith Jones was a “publishing legend,” transcending industry sexism to champion cookbooks — and Anne Frank.`\
+https://nytimes.com/2024/05/24/books/review/the-editor-judith-jones-sara-franklin.html
+
+**Brooke Shields Elected President of Labor Union Actors’ Equity**\
+`She takes office immediately. The previous leader, Kate Shindle, had been president since 2015, and did not run again.`\
+https://nytimes.com/2024/05/24/theater/brooke-shields-president-actors-equity.html
+
 **Judge John Hodgman on What Constitutes ‘Visiting’ a State**\
 `Does it count if you never leave the car?`\
 https://nytimes.com/2024/05/24/magazine/judge-john-hodgman-travel-state-humor.html
