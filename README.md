@@ -1,3 +1,7 @@
+**At the Kenya State Dinner, Jill Biden Is True Blue**\
+`In Sergio Hudson, the first lady is stepping up her fashion diplomacy game.`\
+https://nytimes.com/2024/05/24/style/jill-biden-kenya-state-dinner-fashion.html
+
 **Did You Recently Choose Between Renting and Buying? We Want to Hear About It.**\
 `The New York Times is telling the stories of people who made this difficult choice. Maybe we can tell yours.`\
 https://nytimes.com/2024/05/24/upshot/renting-or-buying-decision.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/24/theater/tom-holland-romeo-and-juliet.html
 **Israeli Forces Recover Bodies of 3 More Hostages in Northern Gaza**\
 `The bodies were found in Jabaliya, where the Israeli military has been trying to root out a renewed Hamas insurgency.`\
 https://nytimes.com/2024/05/24/world/middleeast/israel-hostage-bodies-gaza-hamas.html
-
-**A Polling Risk for Trump**\
-`His advantage may not be as stable as it looks.`\
-https://nytimes.com/2024/05/24/briefing/a-polling-risk-for-trump.html
 
