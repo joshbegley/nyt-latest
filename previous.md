@@ -1,3 +1,11 @@
+**Lloyd Austin to Undergo Procedure to Address Bladder Issue**\
+`The Pentagon called the procedure a “minimally invasive,” nonsurgical follow-up to previous treatment, and said the defense secretary would temporarily turn over his duties to his deputy.`\
+https://nytimes.com/2024/05/24/us/politics/lloyd-austin-medical-procedure.html
+
+**Courting Black Voters, Trump Turns to Rappers Accused in Gang Murder Plot**\
+`The joint appearance was one in a series of the former president’s blunt and sometimes clumsy overtures to court Black voters, and particularly Black men.`\
+https://nytimes.com/2024/05/24/us/politics/trump-rappers-bronx.html
+
 **Here is what legal scholars have to say about the ruling.**\
 `By Marlise Simons`\
 https://nytimes.com/live/2024/05/24/world/israel-gaza-war-hamas-rafah/here-is-what-legal-scholars-have-to-say-about-the-ruling
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/24/business/uaw-mercedes-benz-nlrb-election.html
 **Are These Drones Too Chinese to Pass U.S. Muster in an Anti-China Moment?**\
 `U.S.-based Anzu Robotics is selling drones using technology from DJI, a Chinese firm that is the target of efforts by lawmakers to limit Chinese technology in America.`\
 https://nytimes.com/2024/05/24/business/china-drones-anzu-dji.html
-
-**New York Man Who Grabbed Officer’s Pepper Spray on Jan. 6 Pleads Guilty**\
-`Troy Weeks was at “the site of some of the most violent attacks against law enforcement” during the U.S. Capitol riot, prosecutors said.`\
-https://nytimes.com/2024/05/24/nyregion/troy-weeks-jan-6-guilty-plea.html
-
-**The Best of Late Night This Week**\
-`The hosts spent much of the week riffing on the news that flags associated with the Jan. 6 insurrection were flown at two of Supreme Court Justice Samuel Alito’s homes. Here’s what they had to say.`\
-https://nytimes.com/interactive/2024/05/24/arts/television/best-of-late-night-samuel-alito.html
 

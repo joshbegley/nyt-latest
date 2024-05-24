@@ -1,3 +1,11 @@
+**Lloyd Austin to Undergo Procedure to Address Bladder Issue**\
+`The Pentagon called the procedure a “minimally invasive,” nonsurgical follow-up to previous treatment, and said the defense secretary would temporarily turn over his duties to his deputy.`\
+https://nytimes.com/2024/05/24/us/politics/lloyd-austin-medical-procedure.html
+
+**Courting Black Voters, Trump Turns to Rappers Accused in Gang Murder Plot**\
+`The joint appearance was one in a series of the former president’s blunt and sometimes clumsy overtures to court Black voters, and particularly Black men.`\
+https://nytimes.com/2024/05/24/us/politics/trump-rappers-bronx.html
+
 **Here is what legal scholars have to say about the ruling.**\
 `By Marlise Simons`\
 https://nytimes.com/live/2024/05/24/world/israel-gaza-war-hamas-rafah/here-is-what-legal-scholars-have-to-say-about-the-ruling
