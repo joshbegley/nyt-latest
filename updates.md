@@ -1,3 +1,7 @@
+**Here is what legal scholars have to say about the ruling.**\
+`By Marlise Simons`\
+https://nytimes.com/live/2024/05/24/world/israel-gaza-war-hamas-rafah/here-is-what-legal-scholars-have-to-say-about-the-ruling
+
 **Biden’s Chance to Do the Right Thing in Gaza**\
 `The U.S. should side with the International Court of Justice in the Gaza war.`\
 https://nytimes.com/2024/05/24/opinion/biden-gaza-ukraine-war.html
