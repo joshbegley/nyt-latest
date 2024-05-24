@@ -1,3 +1,7 @@
+**Audience Report: The Stones and Their Fans Spend the Night Together**\
+`The Rolling Stones played in New Jersey and a multi-generational crowd came out to greet them.`\
+https://nytimes.com/card/2024/05/24/arts/music/rolling-stones-fans
+
 **Blackstone’s Chief, a G.O.P. Megadonor, Says He Will Again Back Trump**\
 `Stephen A. Schwarzman, the billionaire co-founder and chief executive of the investment group, had previously called for a “new generation of leaders.”`\
 https://nytimes.com/2024/05/24/us/politics/blackstone-stephen-schwarzman-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/24/us/politics/lloyd-austin-medical-procedure.html
 **Courting Black Voters, Trump Turns to Rappers Accused in Gang Murder Plot**\
 `The joint appearance was one in a series of the former president’s blunt and sometimes clumsy overtures to court Black voters, and particularly Black men.`\
 https://nytimes.com/2024/05/24/us/politics/trump-rappers-bronx.html
-
-**Here is what legal scholars have to say about the ruling.**\
-`By Marlise Simons`\
-https://nytimes.com/live/2024/05/24/world/israel-gaza-war-hamas-rafah/here-is-what-legal-scholars-have-to-say-about-the-ruling
 
