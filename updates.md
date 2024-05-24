@@ -1,3 +1,7 @@
+**Blackstone’s Chief, a G.O.P. Megadonor, Says He Will Again Back Trump**\
+`Stephen A. Schwarzman, the billionaire co-founder and chief executive of the investment group, had previously called for a “new generation of leaders.”`\
+https://nytimes.com/2024/05/24/us/politics/blackstone-stephen-schwarzman-trump.html
+
 **The Emails at the Heart of the Government’s Ticketmaster Case**\
 `Live Nation Entertainment, which owns Ticketmaster, is accused of violating antitrust laws. The Justice Department drew on the concert behemoth’s internal communications in its lawsuit.`\
 https://nytimes.com/2024/05/24/arts/music/ticketmaster-live-nation-emails.html

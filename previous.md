@@ -1,3 +1,7 @@
+**Blackstone’s Chief, a G.O.P. Megadonor, Says He Will Again Back Trump**\
+`Stephen A. Schwarzman, the billionaire co-founder and chief executive of the investment group, had previously called for a “new generation of leaders.”`\
+https://nytimes.com/2024/05/24/us/politics/blackstone-stephen-schwarzman-trump.html
+
 **The Emails at the Heart of the Government’s Ticketmaster Case**\
 `Live Nation Entertainment, which owns Ticketmaster, is accused of violating antitrust laws. The Justice Department drew on the concert behemoth’s internal communications in its lawsuit.`\
 https://nytimes.com/2024/05/24/arts/music/ticketmaster-live-nation-emails.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/24/us/politics/trump-rappers-bronx.html
 **Here is what legal scholars have to say about the ruling.**\
 `By Marlise Simons`\
 https://nytimes.com/live/2024/05/24/world/israel-gaza-war-hamas-rafah/here-is-what-legal-scholars-have-to-say-about-the-ruling
-
-**Uvalde Families Sue Instagram and Activision Over Promotion of Guns**\
-`Families of the victims of a 2022 school shooting accused the social media site, the makers of “Call of Duty” and a rifle maker of “grooming” a teenage gunman.`\
-https://nytimes.com/2024/05/24/us/uvalde-gun-instagram-activision-lawsuit.html
 
