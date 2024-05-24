@@ -1,3 +1,15 @@
+**A State Fund That Helps Children Hurt at Birth Is Quietly Suspended**\
+`New York officials said the fund would accept new beneficiaries for the rest of the year, but a projected shortfall of at least $3.2 billion raises questions about its future.`\
+https://nytimes.com/2024/05/24/nyregion/medical-indemnity-fund-malpractice.html
+
+**‘Old’ Amsterdam Looks Back at New Amsterdam Through Indigenous Eyes**\
+`The violent history of the Dutch colony that is now New York is not well known in the Netherlands. The curators of a new exhibition want to change that.`\
+https://nytimes.com/2024/05/24/arts/design/amsterdam-museum-indigenous-new-york.html
+
+**Election Updates: Tom Cotton emerges as a top contender in Trump’s V.P. race.**\
+``\
+https://nytimes.com/live/2024/05/24/us/biden-trump-election
+
 **Weinstein’s Lawyer Tried to Intimidate Witnesses, Prosecutors Charge**\
 `Arthur Aidala, one of Harvey Weinstein’s lawyers, has questioned a witness’s credibility as prosecutors seek to retry Mr. Weinstein on sex crimes charges.`\
 https://nytimes.com/2024/05/24/nyregion/harvey-weinstein-lawyer-aidala.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/24/style/jill-biden-kenya-state-dinner-fashion.html
 **Did You Recently Choose Between Renting and Buying? We Want to Hear About It.**\
 `The New York Times is telling the stories of people who made this difficult choice. Maybe we can tell yours.`\
 https://nytimes.com/2024/05/24/upshot/renting-or-buying-decision.html
-
-**Would You Want a Robot to Speak at Your Graduation?**\
-`An A.I. robot gave a commencement address at a university in Buffalo. What do you think? Who would you want to speak at your graduation?`\
-https://nytimes.com/2024/05/24/learning/would-you-want-a-robot-to-speak-at-your-graduation.html
-
-**Transcript: Ezra Klein Interviews Holly Herndon**\
-`The May 24, 2024, episode of “The Ezra Klein Show.”`\
-https://nytimes.com/2024/05/24/podcasts/transcript-ezra-klein-interviews-holly-herndon.html
-
-**Are University Athletes About to Earn a Big Payday?**\
-`A $2.8 billion class-action settlement proposal could finally erase the notion that college stars are amateurs — though the plan has drawn skeptics.`\
-https://nytimes.com/2024/05/24/business/dealbook/ncaa-student-athletes-pay.html
 
