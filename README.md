@@ -34,7 +34,7 @@ https://nytimes.com/card/2024/05/24/us/baltimore-bridge-dali-ship
 `Also, countries failed to agree on how to prepare for the next pandemic. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/05/24/briefing/icj-israel-rajah-offensive-pandemic-treaty.html
 
-**Lloyd Austin to Undergo Procedure to Address Bladder Issue**\
+**Lloyd Austin to Undergo Procedure Related to Bladder Issue**\
 `The Pentagon called the procedure a “minimally invasive,” nonsurgical follow-up to previous treatment, and said the defense secretary would temporarily turn over his duties to his deputy.`\
 https://nytimes.com/2024/05/24/us/politics/lloyd-austin-medical-procedure.html
 
