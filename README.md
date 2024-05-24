@@ -1,3 +1,15 @@
+**U.C.L.A. Police Make First Arrest in Attack on Protest Encampment**\
+`Edan On, an 18-year-old, was charged with assault.`\
+https://nytimes.com/2024/05/24/us/ucla-protest-arrest-edan-on.html
+
+**Food Rots on Trucks Outside Closed Rafah Border**\
+`A driver in Egypt said the onions on his truck have spoiled after being in the sun for a month, with shipments of aid and commercial food unable to enter Gaza amid Israel’s offensive on Rafah.`\
+https://nytimes.com/video/world/middleeast/100000009486472/gaza-food-aid-trucks-rafah-egypt.html
+
+**A Mexican Taco Stand Goes From Local Favorite to Michelin Darling**\
+`Taquería El Califa de León, in Mexico City, became the first Mexican taco stand to win a Michelin star. Since then, it has been deluged with customers and fame.`\
+https://nytimes.com/2024/05/24/world/americas/taqueria-el-califa-de-leon-mexico-city-michelin-star.html
+
 **The Big Number: $48.75**\
 `A series of cryptic social media posts was all it took to push up the stock price of the otherwise struggling video game retailer GameStop.`\
 https://nytimes.com/interactive/2024/05/24/business/gamestop-stock-meme.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/24/books/review/the-editor-judith-jones-sara-frankli
 **Brooke Shields Elected President of Labor Union Actors’ Equity**\
 `She takes office immediately. The previous leader, Kate Shindle, had been president since 2015, and did not run again.`\
 https://nytimes.com/2024/05/24/theater/brooke-shields-president-actors-equity.html
-
-**Judge John Hodgman on What Constitutes ‘Visiting’ a State**\
-`Does it count if you never leave the car?`\
-https://nytimes.com/2024/05/24/magazine/judge-john-hodgman-travel-state-humor.html
-
-**Read the I.C.J. Ruling on Israel’s Rafah Offensive**\
-`The International Court of Justice ruled on Friday that Israel must immediately halt its military offensive in the southern Gaza city of Rafah, dealing another blow to the country as it faces increasing international isolation.`\
-https://nytimes.com/interactive/2024/05/24/us/israelruling.html
-
-**Nikki Haley’s Path Back to Donald Trump**\
-`Readers offer their analysis of why she said she would vote for him. Also: Blaming the wife; maligning Justice Juan Merchan; a caregiver’s story.`\
-https://nytimes.com/2024/05/24/opinion/nikki-haley-donald-trump.html
 
