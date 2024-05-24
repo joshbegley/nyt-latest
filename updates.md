@@ -1,3 +1,7 @@
+**The ‘Nontraditional’ Bridal Brand Capturing Hearts Online**\
+`Madison Chamberlain is carving a niche with her vibrant, over-the-top bridal designs.`\
+https://nytimes.com/2024/05/24/style/madison-chamberlain-bridal-designer.html
+
 **Raw Milk Containing Bird-Flu Virus Can Sicken Mice, Study Finds**\
 `The results bolster evidence that virus-laden raw milk may be unsafe for humans.`\
 https://nytimes.com/2024/05/24/health/raw-milk-bird-flu-virus-mice.html
