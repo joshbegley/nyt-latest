@@ -1,3 +1,15 @@
+**‘The Beach Boys’ Review: How to Make Good Vibrations**\
+`This Disney documentary looks at the family ties and sweet harmonies that turned a California band into a popular treasure.`\
+https://nytimes.com/2024/05/24/movies/beach-boys-review.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/05/24/crosswords/spelling-bee-forum.html
+
+**Friends?**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2024/05/24/learning/friends.html
+
 **‘The Daily Show’ Skewers Samuel Alito Over Another Provocative Flag**\
 `“Did this guy get a two-for-one deal at the MAGA flag store?” Michael Kosta said of the Supreme Court justice on Thursday’s “The Daily Show.”`\
 https://nytimes.com/2024/05/24/arts/television/late-night-samuel-alito-flag.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/24/pageoneplus/quotation-of-the-day-patient-care-del
 **Corrections: May 24, 2024**\
 `Corrections that appeared in print on Friday, May 24, 2024.`\
 https://nytimes.com/2024/05/24/pageoneplus/corrections-may-24-2024.html
-
-**Marriage Made an Actor Out of Me**\
-`I deserved an Oscar for my performances as best supporting wife and mother. After my divorce, I could no longer pretend to be someone I’m not.`\
-https://nytimes.com/2024/05/24/style/modern-love-marriage-made-an-actor-out-of-me.html
-
-**Her Runway Strut Caught His Eye. But She Made the First Move.**\
-`Mitchell Karr met Veronica McCracken on her first day of work at an architectural firm, but it was at an interior design fashion show a year and a half later when sparks began to fly.`\
-https://nytimes.com/2024/05/24/style/mitchell-karr-veronica-mccracken-wedding.html
-
-**First She Scored a Spot at Her Restaurant. Then She Won a Place in Her Heart.**\
-`The actress Maria Bello and the Michelin-starred chef Dominique Crenn said they owe their journey to the “three C’s”: cancer, Covid and, now, commitment.`\
-https://nytimes.com/2024/05/24/style/maria-bello-dominique-crenn-wedding.html
 
