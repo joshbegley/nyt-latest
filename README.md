@@ -1,3 +1,7 @@
+**Egypt’s President Agrees to Reopen Crossing for Gaza Aid After Biden Call**\
+`Fuel and humanitarian aid will be able to enter Gaza through Kerem Shalom, an Israeli-operated crossing, the White House said.`\
+https://nytimes.com/2024/05/24/world/middleeast/biden-egypt-gaza-aid.html
+
 **Want to Better Understand America? Consider All-You-Can-Eat Shrimp.**\
 `The downfall of Red Lobster suggests consumers are parched for value.`\
 https://nytimes.com/2024/05/24/opinion/red-lobster-bankruptcy-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/21/opinion/thepoint/spain-palestine-recognition
 **The Rolling Stones Really Might Never Stop**\
 `During a 19-song set at MetLife Stadium that spanned 60 years, the band tapped into what seems like a bottomless well of rock ’n’ roll energy.`\
 https://nytimes.com/2024/05/24/arts/music/rolling-stones-live-review.html
-
-**A Bouquet of Songs for May Flowers**\
-`Tom Petty, Patrice Rushen, Billie Eilish and more.`\
-https://nytimes.com/2024/05/24/arts/music/amplifier-newsletter-may-flowers.html
 
