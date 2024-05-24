@@ -1,3 +1,7 @@
+**U.A.W. Seeks a New Election at Mercedes-Benz Plants in Alabama**\
+`The union, which lost an organizing vote at two factories last week, argued to federal officials that the automaker had violated labor laws.`\
+https://nytimes.com/2024/05/24/business/uaw-mercedes-benz-nlrb-election.html
+
 **Are These Drones Too Chinese to Pass U.S. Muster in an Anti-China Moment?**\
 `U.S.-based Anzu Robotics is selling drones using technology from DJI, a Chinese firm that is the target of efforts by lawmakers to limit Chinese technology in America.`\
 https://nytimes.com/2024/05/24/business/china-drones-anzu-dji.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/24/science/boeing-starliner-nasa-launch.html
 **Israel says its military operations in Rafah don’t — and won’t — violate the World Court’s order.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/05/24/world/israel-gaza-war-hamas-rafah/israel-says-its-military-operations-in-rafah-dont-and-wont-violate-the-world-courts-order
-
-**‘Furiosa: A Mad Max Saga’: What Do Critics Say? What Do You Say?**\
-`The reviews all agree that the follow-up to “Fury Road” feels sadder and heavier. But is that a good thing? That’s where the disagreements start.`\
-https://nytimes.com/2024/05/24/movies/furiosa-a-mad-max-saga-review-recap.html
 
