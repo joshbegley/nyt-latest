@@ -1,3 +1,19 @@
+**The Big Number: $48.75**\
+`A series of cryptic social media posts was all it took to push up the stock price of the otherwise struggling video game retailer GameStop.`\
+https://nytimes.com/interactive/2024/05/24/business/gamestop-stock-meme.html
+
+**Review: A Delightful ‘Orfeo’ Returns to the Met Opera**\
+`The countertenor Anthony Roth Costanzo stars in a revival of Mark Morris’s witty, sensitively choreographed production.`\
+https://nytimes.com/2024/05/24/arts/music/review-a-delightful-orfeo-returns-to-the-met-opera.html
+
+**Where New Yorkers Start Being Polite and Stop Getting Real**\
+`The Portal, a video art installation connecting the city with Dublin, is open again, now with safeguards. But does changing the rules change the artwork?`\
+https://nytimes.com/2024/05/24/arts/television/the-portal-new-york.html
+
+**Fixing the Calamity in U.S. Math Knowledge Starts With Algebra**\
+`Giving up means that math scores will continue to plummet and racial gaps will grow.`\
+https://nytimes.com/live/2024/05/21/opinion/thepoint/algebra-math-racial-gap
+
 **I Was a Nude Model for a Half Hour. Revelatory? Actually, Yes.**\
 `Two shows — an art fair in Brooklyn and an Yves Klein exhibition uptown — ask if nude art can still inspire or shock. I joined in to find out.`\
 https://nytimes.com/2024/05/24/arts/design/art-nudity-models.html
