@@ -1,3 +1,7 @@
+**A Polling Risk for Trump**\
+`His advantage may not be as stable as it looks.`\
+https://nytimes.com/2024/05/24/briefing/a-polling-risk-for-trump.html
+
 **Ozempic Cuts Risk of Chronic Kidney Disease Complications, Study Finds**\
 `A major clinical trial showed such promising results that the drug’s maker halted it early.`\
 https://nytimes.com/2024/05/24/well/ozempic-kidney-disease-semaglutide.html
