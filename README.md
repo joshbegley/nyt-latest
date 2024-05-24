@@ -1,3 +1,19 @@
+**Milk Containing Bird-Flu Virus Can Sicken Mice, Study Finds**\
+`The results bolster evidence that virus-laden raw milk may be unsafe for humans.`\
+https://nytimes.com/2024/05/24/health/raw-milk-bird-flu-virus-mice.html
+
+**In the Bronx, Trump Imagines His New York Glory Days**\
+`For most New Yorkers, though, his early days are just a bad memory.`\
+https://nytimes.com/live/2024/05/21/opinion/thepoint/trump-bronx-new-york
+
+**Hsieh Su-Wei, at 38, Is a Dominant Force in Doubles**\
+`She has won seven majors, including the French Open twice.`\
+https://nytimes.com/2024/05/24/sports/tennis/french-open-hsieh-su-wei-doubles.html
+
+**How to Clean Your Grill**\
+`Don't leave those burnt pieces from last year.`\
+https://nytimes.com/interactive/2024/05/24/smarter-living/wirecutter/clean-grill.html
+
 **Memorial Day Weekend Forecast Sees More Storms Across the Country**\
 `After several days of severe storms, more are likely across portions of the United States during the long weekend as stifling summer heat settles in across the South.`\
 https://nytimes.com/2024/05/24/weather/memorial-day-forecast-tornado-storms.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/05/24/nyregion/harvey-weinstein-lawyer-aidala.html
 **After Outcry, Chuck E. Cheese Says It Will Keep More Animatronic Bands**\
 `Plans to phase out most of Chuck E. Cheese’s animatronic bands prompted fans to plead for their survival. The bands will now play on at three additional locations.`\
 https://nytimes.com/2024/05/24/business/chuck-e-cheese-band-animatronic.html
-
-**Interest on Federal Student Loans Is Rising to 6.53%**\
-`The rate for undergraduate loans is up from 5.5 percent this past school year and higher than it has been in more than a decade.`\
-https://nytimes.com/2024/05/24/your-money/federal-student-loans-interest-rates.html
-
-**The Business Ties That Bind the U.S. and China Are Strong but Fraying**\
-`The prospects for future commerce, and peace, are intertwined, our columnist writes.`\
-https://nytimes.com/2024/05/24/business/united-states-china-chips-profits.html
-
-**How Algebra Became a Flashpoint in Schools**\
-`A tug of war in San Francisco over whether to teach algebra in eighth or ninth grade gets at wider national questions about serving all students fairly.`\
-https://nytimes.com/2024/05/24/us/algebra-achievement-gap.html
-
-**At the Kenya State Dinner, Jill Biden Is True Blue**\
-`In Sergio Hudson, the first lady is stepping up her fashion diplomacy game.`\
-https://nytimes.com/2024/05/24/style/jill-biden-kenya-state-dinner-fashion.html
 
