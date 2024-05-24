@@ -1,3 +1,11 @@
+**The Anti-Trump Republicans Worried About the Biden Campaign**\
+`Some G.O.P. Trump opponents want to hear more from the Biden campaign. It says it’s on it.`\
+https://nytimes.com/2024/05/24/us/politics/trump-biden-republicans.html
+
+**Kennedy and Trump Go to Battle Over Libertarians**\
+`Robert F. Kennedy Jr. made his case to the Libertarian Party convention on Friday, jumping into a fight over right-leaning, independent-minded voters.`\
+https://nytimes.com/2024/05/24/us/politics/robert-kennedy-donald-trump-campaign-liberatarians.html
+
 **Sean Kingston Arrested on Fraud and Theft Charges After Raid at His Home**\
 `Mr. Kingston, a singer and rapper, best known for his 2007 hit single “Beautiful Girls,” was taken into custody on Thursday. His mother was also arrested.`\
 https://nytimes.com/2024/05/24/arts/music/sean-kingston-arrested.html

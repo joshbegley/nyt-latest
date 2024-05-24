@@ -1,3 +1,11 @@
+**The Anti-Trump Republicans Worried About the Biden Campaign**\
+`Some G.O.P. Trump opponents want to hear more from the Biden campaign. It says it’s on it.`\
+https://nytimes.com/2024/05/24/us/politics/trump-biden-republicans.html
+
+**Kennedy and Trump Go to Battle Over Libertarians**\
+`Robert F. Kennedy Jr. made his case to the Libertarian Party convention on Friday, jumping into a fight over right-leaning, independent-minded voters.`\
+https://nytimes.com/2024/05/24/us/politics/robert-kennedy-donald-trump-campaign-liberatarians.html
+
 **Sean Kingston Arrested on Fraud and Theft Charges After Raid at His Home**\
 `Mr. Kingston, a singer and rapper, best known for his 2007 hit single “Beautiful Girls,” was taken into custody on Thursday. His mother was also arrested.`\
 https://nytimes.com/2024/05/24/arts/music/sean-kingston-arrested.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/24/arts/music/spider-john-koerner-dead.html
 **Justice Sotomayor Describes Frustration With Being a Liberal on the Supreme Court**\
 `In a conversation at Harvard, the justice spoke of her despair at some of the court’s decisions, but she urged optimism and a focus on future generations.`\
 https://nytimes.com/2024/05/24/us/politics/sonia-sotomayor-supreme-court.html
-
-**The 8 Weeks Spent Freeing the Dali From a Baltimore Bridge **\
-`The container ship hit the Key Bridge in the early morning hours of March 26 and more than 2,000 people have been involved in the salvage and recovery operation.`\
-https://nytimes.com/card/2024/05/24/us/baltimore-bridge-dali-ship
-
-**The Top U.N. Court Told Israel to Halt Its Rafah Offensive**\
-`Also, countries failed to agree on how to prepare for the next pandemic. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2024/05/24/briefing/icj-israel-rajah-offensive-pandemic-treaty.html
 
