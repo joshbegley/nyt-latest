@@ -1,3 +1,11 @@
+**How FaceTime Calls With Mom Became a TV Hit**\
+`What started as a way for the filmmaker Josh Seftel and his mother, Pat, to stay in touch has become a popular feature on “CBS Sunday Morning.”`\
+https://nytimes.com/2024/05/24/style/josh-seftel-mom-pat-cbs.html
+
+**Meet the Jimi Hendrix of the Sahara**\
+`Our music reporter on Mdou Moctar and other African guitar heroes`\
+https://nytimes.com/2024/05/24/podcasts/meet-the-jimi-hendrix-of-the-sahara.html
+
 **The Capital of Women’s Soccer**\
 `The success of Barcelona’s team has made Catalonia a laboratory for finding out what happens when the women’s game has prominence similar to the men’s.`\
 https://nytimes.com/2024/05/24/world/europe/barcelona-women-soccer-champions-league.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/05/24/us/politics/trump-election-results-do
 **5 Things to Do This Weekend**\
 `A selection of entertainment highlights this weekend, including “Furiosa: A Mad Max Saga."`\
 https://nytimes.com/interactive/2024/05/24/arts/weekend-editors-picks-furiosa-mad-max-saga.html
-
-**Haley as Veep? Don’t Bet on It**\
-`A Haley-Trump partnership would reek of rank opportunism.`\
-https://nytimes.com/live/2024/05/21/opinion/thepoint/nikki-haley-vice-president
-
-**Royce White Once Led George Floyd Protests. Now He’s a MAGA Senate Candidate.**\
-`Alex Jones, Steve Bannon and the left-to-right pipeline.`\
-https://nytimes.com/2024/05/24/opinion/royce-white-senate-maga.html
 

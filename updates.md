@@ -1,3 +1,11 @@
+**How FaceTime Calls With Mom Became a TV Hit**\
+`What started as a way for the filmmaker Josh Seftel and his mother, Pat, to stay in touch has become a popular feature on “CBS Sunday Morning.”`\
+https://nytimes.com/2024/05/24/style/josh-seftel-mom-pat-cbs.html
+
+**Meet the Jimi Hendrix of the Sahara**\
+`Our music reporter on Mdou Moctar and other African guitar heroes`\
+https://nytimes.com/2024/05/24/podcasts/meet-the-jimi-hendrix-of-the-sahara.html
+
 **The Capital of Women’s Soccer**\
 `The success of Barcelona’s team has made Catalonia a laboratory for finding out what happens when the women’s game has prominence similar to the men’s.`\
 https://nytimes.com/2024/05/24/world/europe/barcelona-women-soccer-champions-league.html
