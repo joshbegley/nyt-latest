@@ -1,3 +1,7 @@
+**A Week of Diplomatic Blows to Israel, and Congress Criticizes Alito**\
+`Plus, a big step toward college athlete pay.`\
+https://nytimes.com/2024/05/24/podcasts/rafah-invasion-icc-south-africa-alito-congress-response.html
+
 **Whales Have an Alphabet**\
 `Until the 1960s, it was uncertain whether whales made any sounds at all.`\
 https://nytimes.com/2024/05/24/podcasts/the-daily/whales-song.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/24/dining/restaurant-service-charges-california.html
 **6 New Movies Our Critics Are Talking About This Week**\
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
 https://nytimes.com/2024/05/24/movies/6-new-movies-our-critics-are-talking-about-this-week.html
-
-**ScarJo vs. ChatGPT, Neuralink’s First Patient Opens Up, and Microsoft’s A.I. PCs**\
-`“Did you ever think we would have a literal Avenger fighting back against the relentless march of A.I.? Because that’s sort of what this story is about.”`\
-https://nytimes.com/2024/05/24/podcasts/scarjo-vs-chatgpt-neuralinks-first-patient-opens-up-and-microsofts-ai-pcs.html
 
