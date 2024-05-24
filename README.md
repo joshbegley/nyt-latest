@@ -1,3 +1,7 @@
+**Weinstein’s Lawyer Tried to Intimidate Witnesses, Prosecutors Charge**\
+`Arthur Aidala, one of Harvey Weinstein’s lawyers, has questioned a witness’s credibility as prosecutors seek to retry Mr. Weinstein on sex crimes charges.`\
+https://nytimes.com/2024/05/24/nyregion/harvey-weinstein-lawyer-aidala.html
+
 **After Outcry, Chuck E. Cheese Says It Will Keep More Animatronic Bands**\
 `Plans to phase out most of Chuck E. Cheese’s animatronic bands prompted fans to plead for their survival. The bands will now play on at three additional locations.`\
 https://nytimes.com/2024/05/24/business/chuck-e-cheese-band-animatronic.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/24/podcasts/transcript-ezra-klein-interviews-holly-h
 **Are University Athletes About to Earn a Big Payday?**\
 `A $2.8 billion class-action settlement proposal could finally erase the notion that college stars are amateurs — though the plan has drawn skeptics.`\
 https://nytimes.com/2024/05/24/business/dealbook/ncaa-student-athletes-pay.html
-
-**Kabosu, Shiba Inu Who Helped Define the Doge Meme, Dies at 18**\
-`The dog, whose face helped spread the popular doge meme and later became the logo of the Dogecoin cryptocurrency, died on Friday.`\
-https://nytimes.com/2024/05/24/world/asia/kabosu-doge-meme-dead.html
 
