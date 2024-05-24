@@ -1,3 +1,7 @@
+**Weinstein’s Lawyer Tried to Intimidate Witnesses, Prosecutors Charge**\
+`Arthur Aidala, one of Harvey Weinstein’s lawyers, has questioned a witness’s credibility as prosecutors seek to retry Mr. Weinstein on sex crimes charges.`\
+https://nytimes.com/2024/05/24/nyregion/harvey-weinstein-lawyer-aidala.html
+
 **After Outcry, Chuck E. Cheese Says It Will Keep More Animatronic Bands**\
 `Plans to phase out most of Chuck E. Cheese’s animatronic bands prompted fans to plead for their survival. The bands will now play on at three additional locations.`\
 https://nytimes.com/2024/05/24/business/chuck-e-cheese-band-animatronic.html
