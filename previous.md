@@ -1,3 +1,7 @@
+**Judge Denies Alec Baldwin’s Bid to Dismiss Manslaughter Indictment**\
+`The ruling increases the likelihood that Mr. Baldwin will stand trial this summer in the fatal shooting of a cinematographer on the set of the film “Rust.”`\
+https://nytimes.com/2024/05/24/arts/alec-baldwin-rust-case.html
+
 **Audience Report: The Stones and Their Fans Spend the Night Together**\
 `The Rolling Stones played in New Jersey and a multi-generational crowd came out to greet them.`\
 https://nytimes.com/card/2024/05/24/arts/music/rolling-stones-fans
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/24/briefing/icj-israel-rajah-offensive-pandemic-trea
 **Lloyd Austin to Undergo Procedure to Address Bladder Issue**\
 `The Pentagon called the procedure a “minimally invasive,” nonsurgical follow-up to previous treatment, and said the defense secretary would temporarily turn over his duties to his deputy.`\
 https://nytimes.com/2024/05/24/us/politics/lloyd-austin-medical-procedure.html
-
-**Courting Black Voters, Trump Turns to Rappers Accused in Gang Murder Plot**\
-`The joint appearance was one in a series of the former president’s blunt and sometimes clumsy overtures to court Black voters, and particularly Black men.`\
-https://nytimes.com/2024/05/24/us/politics/trump-rappers-bronx.html
 

@@ -1,3 +1,7 @@
+**Judge Denies Alec Baldwin’s Bid to Dismiss Manslaughter Indictment**\
+`The ruling increases the likelihood that Mr. Baldwin will stand trial this summer in the fatal shooting of a cinematographer on the set of the film “Rust.”`\
+https://nytimes.com/2024/05/24/arts/alec-baldwin-rust-case.html
+
 **Audience Report: The Stones and Their Fans Spend the Night Together**\
 `The Rolling Stones played in New Jersey and a multi-generational crowd came out to greet them.`\
 https://nytimes.com/card/2024/05/24/arts/music/rolling-stones-fans
