@@ -1,3 +1,7 @@
+**The N.C.A.A.’s Landmark Athlete-Pay Settlement, Explained**\
+`The $2.8 billion agreement announced on Thursday would, if approved by a judge, allow college athletes to share team revenue for the first time. Here is what we know.`\
+https://nytimes.com/2024/05/24/us/ncaa-settlement-college-athletes-payments.html
+
 **Are You Wearing Sunscreen the Right Way?**\
 `And other essential questions about protecting your skin from the sun, answered by experts.`\
 https://nytimes.com/article/spf-sunscreen-skin-care-routine.html
