@@ -1,3 +1,11 @@
+**Aid and human rights groups hailed the international court’s ruling, but said nations must pressure Israel to comply.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/05/24/world/israel-gaza-war-hamas-rafah/aid-and-human-rights-groups-hailed-the-international-courts-ruling-but-said-nations-must-pressure-israel-to-comply
+
+**What’s Spanish for ‘Chutzpah’?**\
+`Spain is yet another government that suppresses independence-seekers at home while applauding those abroad.`\
+https://nytimes.com/live/2024/05/21/opinion/thepoint/spain-palestine-recognition
+
 **The Rolling Stones Really Might Never Stop**\
 `During a 19-song set at MetLife Stadium that spanned 60 years, the band tapped into what seems like a bottomless well of rock ’n’ roll energy.`\
 https://nytimes.com/2024/05/24/arts/music/rolling-stones-live-review.html
