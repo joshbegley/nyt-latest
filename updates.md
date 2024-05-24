@@ -1,3 +1,7 @@
+**NASA Astronauts to Wait Another Week for Boeing Starliner Launch**\
+`Officials from NASA and Boeing say they have worked out a solution to a helium leak that has kept the Starliner astronaut capsule grounded.`\
+https://nytimes.com/2024/05/24/science/boeing-starliner-nasa-launch.html
+
 **Israel says its military operations in Rafah don’t — and won’t — violate the World Court’s order.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/05/24/world/israel-gaza-war-hamas-rafah/israel-says-its-military-operations-in-rafah-dont-and-wont-violate-the-world-courts-order
