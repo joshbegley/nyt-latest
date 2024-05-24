@@ -1,3 +1,15 @@
+**Hot dogs, hot slaw and plenty of ranch**\
+`The point, on a long weekend that heralds the start of a new season, is to cook with the intention of delivering pleasure as much as sustenance.`\
+https://nytimes.com/2024/05/24/dining/memorial-day-weekend-recipes-hot-dogs.html
+
+**Younger Adults Are Missing Early Warning Signs of Colon Cancer**\
+`A new analysis of dozens of studies has identified the most common warning symptoms in adults under 50, whose rates of colon and rectal cancer are on the rise.`\
+https://nytimes.com/2024/05/24/health/colon-cancer-warning-signs.html
+
+**Five Horror Movies to Stream Now**\
+`This month’s villains include naughty gay ghosts, savage seniors and a dangerously unhinged bro.`\
+https://nytimes.com/2024/05/24/movies/five-horror-movies-to-stream-now.html
+
 **Robert De Niro Narrates an Anti-Trump Ad for Biden**\
 `The ad uses the actor’s distinctive voice to try to remind voters of the chaos of Donald Trump’s presidency and warn them about a second Trump term.`\
 https://nytimes.com/2024/05/24/us/politics/robert-deniro-trump-biden-ad.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/24/style/madison-chamberlain-bridal-designer.html
 **Trump Warms Up to Bringing Haley ‘On Our Team in Some Form’**\
 `The former president praised Nikki Haley, once his bitter rival for the Republican nomination, a day after she said that she would vote for him.`\
 https://nytimes.com/2024/05/24/us/politics/donald-trump-nikki-haley.html
-
-**Review: In ‘The Fires,’ a Triptych of Stories About Gay Men and Love**\
-`Raja Feather Kelly makes his playwriting debut with a spellbinding story of three generations of Black men at Soho Rep.`\
-https://nytimes.com/2024/05/24/theater/fires-review-raja-feather-kelly.html
-
-**Raw Milk’s Risks Don’t Stop Right-Wing Commentators From Defiantly Pushing It**\
-`On sites like Infowars, Gab and Rumble, federal concerns about raw milk are seen as overreach, but there are serious health risks and no scientifically proven benefits.`\
-https://nytimes.com/2024/05/24/business/raw-milk-bird-flu-infowars-disinformation.html
-
-**Raw Milk Containing Bird-Flu Virus Can Sicken Mice, Study Finds**\
-`The results bolster evidence that virus-laden raw milk may be unsafe for humans.`\
-https://nytimes.com/2024/05/24/health/raw-milk-bird-flu-virus-mice.html
 
