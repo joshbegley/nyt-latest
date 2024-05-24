@@ -1,3 +1,7 @@
+**Some Eye Shadows**\
+`Carolyn Davies Lynch opens our solving weekend.`\
+https://nytimes.com/2024/05/24/crosswords/daily-puzzle-2024-05-24.html
+
 **‘The Beach Boys’ Review: How to Make Good Vibrations**\
 `This Disney documentary looks at the family ties and sweet harmonies that turned a California band into a popular treasure.`\
 https://nytimes.com/2024/05/24/movies/beach-boys-review.html

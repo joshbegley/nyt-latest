@@ -1,3 +1,7 @@
+**Some Eye Shadows**\
+`Carolyn Davies Lynch opens our solving weekend.`\
+https://nytimes.com/2024/05/24/crosswords/daily-puzzle-2024-05-24.html
+
 **‘The Beach Boys’ Review: How to Make Good Vibrations**\
 `This Disney documentary looks at the family ties and sweet harmonies that turned a California band into a popular treasure.`\
 https://nytimes.com/2024/05/24/movies/beach-boys-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/24/business/china-property-crisis.html
 **Quotation of the Day: Patient Care Delayed as Fallout From Hack on Hospitals Persists**\
 `Quotation of the Day for Friday, May 24, 2024.`\
 https://nytimes.com/2024/05/24/pageoneplus/quotation-of-the-day-patient-care-delayed-as-fallout-from-hack-on-hospitals-persists.html
-
-**Corrections: May 24, 2024**\
-`Corrections that appeared in print on Friday, May 24, 2024.`\
-https://nytimes.com/2024/05/24/pageoneplus/corrections-may-24-2024.html
 
