@@ -1,3 +1,7 @@
+**New York Man Who Grabbed Officer’s Pepper Spray on Jan. 6 Pleads Guilty**\
+`Troy Weeks was at “the site of some of the most violent attacks against law enforcement” during the U.S. Capitol riot, prosecutors said.`\
+https://nytimes.com/2024/05/24/nyregion/troy-weeks-jan-6-guilty-plea.html
+
 **The Best of Late Night This Week**\
 `The hosts spent much of the week riffing on the news that flags associated with the Jan. 6 insurrection were flown at two of Supreme Court Justice Samuel Alito’s homes. Here’s what they had to say.`\
 https://nytimes.com/interactive/2024/05/24/arts/television/best-of-late-night-samuel-alito.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/24/movies/furiosa-a-mad-max-saga-review-recap.html
 **‘Atlas’ Review: A.I. Shrugged**\
 `Jennifer Lopez stars in a sci-fi action thriller that wonders whether artificial intelligence is really all that bad.`\
 https://nytimes.com/2024/05/24/movies/atlas-review.html
-
-**Aid and human rights groups hailed the international court’s ruling, but said nations must pressure Israel to comply.**\
-`By Raja Abdulrahim`\
-https://nytimes.com/live/2024/05/24/world/israel-gaza-war-hamas-rafah/aid-and-human-rights-groups-hailed-the-international-courts-ruling-but-said-nations-must-pressure-israel-to-comply
 
