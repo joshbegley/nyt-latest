@@ -1,3 +1,7 @@
+**‘Doctor Who’ Episode 4 Recap: Now You See Her**\
+`A strong episode focuses on Ruby, the Doctor’s companion, and the mysterious older woman who starts following her from a distance.`\
+https://nytimes.com/2024/05/24/arts/television/doctor-who-episode-4-recap.html
+
 **World Court Orders Israel to Halt Its Military Offensive Into Rafah**\
 `The International Court of Justice has no means to enforce its order in the Gazan city, but the ruling added pressure on the government of Prime Minister Benjamin Netanyahu of Israel.`\
 https://nytimes.com/2024/05/24/world/middleeast/icj-israel-gaza-rafah-ruling.html
