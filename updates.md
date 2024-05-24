@@ -1,3 +1,7 @@
+**At the Kenya State Dinner, Jill Biden Is True Blue**\
+`In Sergio Hudson, the first lady is stepping up her fashion diplomacy game.`\
+https://nytimes.com/2024/05/24/style/jill-biden-kenya-state-dinner-fashion.html
+
 **Did You Recently Choose Between Renting and Buying? We Want to Hear About It.**\
 `The New York Times is telling the stories of people who made this difficult choice. Maybe we can tell yours.`\
 https://nytimes.com/2024/05/24/upshot/renting-or-buying-decision.html
