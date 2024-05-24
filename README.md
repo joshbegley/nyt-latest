@@ -1,3 +1,7 @@
+**U.S. Approves Investment Product Tied to Popular Cryptocurrency Ether**\
+`The Securities and Exchange Commission gave its blessing to a fund that tracks the price of the most valuable cryptocurrency after Bitcoin.`\
+https://nytimes.com/2024/05/23/technology/ether-etf-sec.html
+
 **Italian Teenager to Become the First Millennial Saint**\
 `Pope Francis attributed a second miracle to Carlo Acutis, one of the last steps toward canonization.`\
 https://nytimes.com/2024/05/23/world/europe/carlo-acutis-saint-catholic.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/23/us/politics/biden-ohio-ballot-special-session.htm
 **Tennessee Attorney General to Review Company’s Bid to Sell Graceland**\
 `The attorney general’s office said it is looking into Nausanny Investments’ effort to foreclose on Elvis Presley’s former home. His heirs called it a fraud.`\
 https://nytimes.com/2024/05/23/arts/tennessee-attorney-general-to-review-companys-bid-to-sell-graceland.html
-
-**Cannabis Tops Alcohol as Americans’ Daily Drug of Choice**\
-`A new study shows a growing number of people are regularly using cannabis, while frequent alcohol consumption has remained stable.`\
-https://nytimes.com/2024/05/23/well/mind/marijuana-cannabis-alcohol-study.html
 
