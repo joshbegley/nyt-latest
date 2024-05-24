@@ -1,3 +1,11 @@
+**Kabosu, Shiba Inu Who Helped Define the Doge Meme, Dies at 18**\
+`The dog, whose face helped spread the popular doge meme and later became the logo of the Dogecoin cryptocurrency, died on Friday.`\
+https://nytimes.com/2024/05/24/world/asia/kabosu-doge-meme-dead.html
+
+**Landslide Buries Village in Papua New Guinea, Killing at Least 3**\
+`Many more were missing in the Pacific nation as recovery and rescue efforts were delayed by a blocked highway and fallen boulders.`\
+https://nytimes.com/2024/05/24/world/australia/papua-new-guinea-landslide.html
+
 **‘Zarqa’ Is a Madcap Canadian Comedy**\
 `This new YouTube sitcom from the creator of “Little Mosque on the Prairie” follows a divorced Muslim mother trying to pull one over on her ex.`\
 https://nytimes.com/2024/05/24/arts/television/zarqa.html
