@@ -1,3 +1,11 @@
+**‘Furiosa: A Mad Max Saga’: What Do Critics Say? What Do You Say?**\
+`The reviews all agree that the follow-up to “Fury Road” feels sadder and heavier. But is that a good thing? That’s where the disagreements start.`\
+https://nytimes.com/2024/05/24/movies/furiosa-a-mad-max-saga-review-recap.html
+
+**‘Atlas’ Review: A.I. Shrugged**\
+`Jennifer Lopez stars in a sci-fi action thriller that wonders whether artificial intelligence is really all that bad.`\
+https://nytimes.com/2024/05/24/movies/atlas-review.html
+
 **Google’s A.I. Search Errors Cause a Furor Online**\
 `The company’s latest A.I. search feature has erroneously told users to eat glue and rocks, provoking a backlash among users.`\
 https://nytimes.com/2024/05/24/technology/google-ai-overview-search.html

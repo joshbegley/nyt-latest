@@ -1,3 +1,11 @@
+**‘Furiosa: A Mad Max Saga’: What Do Critics Say? What Do You Say?**\
+`The reviews all agree that the follow-up to “Fury Road” feels sadder and heavier. But is that a good thing? That’s where the disagreements start.`\
+https://nytimes.com/2024/05/24/movies/furiosa-a-mad-max-saga-review-recap.html
+
+**‘Atlas’ Review: A.I. Shrugged**\
+`Jennifer Lopez stars in a sci-fi action thriller that wonders whether artificial intelligence is really all that bad.`\
+https://nytimes.com/2024/05/24/movies/atlas-review.html
+
 **Aid and human rights groups hailed the international court’s ruling, but said nations must pressure Israel to comply.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/05/24/world/israel-gaza-war-hamas-rafah/aid-and-human-rights-groups-hailed-the-international-courts-ruling-but-said-nations-must-pressure-israel-to-comply
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/24/books/best-books-2024-so-far.html
 **The court’s decision highlights Israel’s growing diplomatic isolation.**\
 `By Patrick Kingsley`\
 https://nytimes.com/live/2024/05/24/world/israel-gaza-war-hamas-rafah/the-courts-decision-highlights-israels-growing-diplomatic-isolation
-
-**Israeli Forces Cut Off Access to Kamal Adwan Hospital in Northern Gaza**\
-`Israeli bombardments and raids have put many of Gaza’s hospitals out of operation and only a few remain even partially functional.`\
-https://nytimes.com/2024/05/24/world/middleeast/israel-gaza-kamal-adwan-hospital.html
-
-**Bird Flu Virus Found in Beef Tissue**\
-`Muscle from a sick dairy cow tested positive for the virus. The meat did not enter the commercial food supply, which officials said remained safe.`\
-https://nytimes.com/2024/05/24/health/bird-flu-beef.html
 
