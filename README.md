@@ -1,3 +1,11 @@
+**48 Attempts to Understand the Creative Spirit**\
+`In “The Work of Art,” famed creators from the worlds of film, fashion, theater and more explore the hidden alchemy of their craft.`\
+https://nytimes.com/2024/05/24/books/review/the-work-of-art-adam-moss.html
+
+**These Teens Adopted an Orphaned Oil Well. Their Goal: Shut It Down.**\
+`Students, nonprofit groups and others are fund-raising to cap highly polluting oil and gas wells abandoned by industry.`\
+https://nytimes.com/2024/05/24/climate/orphan-wells-capping-methane-leaks.html
+
 **What Set the A.T.F. and an Airport Leader on the Path to a Deadly Encounter?**\
 `Bryan Malinowski was the executive director of the airport in Little Rock, Ark., and sold firearms at gun shows. Federal agents believed he was breaking the law.`\
 https://nytimes.com/2024/05/24/us/bryan-malinowski-arkansas-atf-guns.html
