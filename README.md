@@ -1,3 +1,7 @@
+**The Best Books of the Year (So Far)**\
+`The nonfiction and novels we can’t stop thinking about.`\
+https://nytimes.com/2024/05/24/books/best-books-2024-so-far.html
+
 **The court’s decision highlights Israel’s growing diplomatic isolation.**\
 `By Patrick Kingsley`\
 https://nytimes.com/live/2024/05/24/world/israel-gaza-war-hamas-rafah/the-courts-decision-highlights-israels-growing-diplomatic-isolation
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/24/world/americas/taqueria-el-califa-de-leon-mexico-
 **The Big Number: $48.75**\
 `A series of cryptic social media posts was all it took to push up the stock price of the otherwise struggling video game retailer GameStop.`\
 https://nytimes.com/interactive/2024/05/24/business/gamestop-stock-meme.html
-
-**Review: A Delightful ‘Orfeo’ Returns to the Met Opera**\
-`The countertenor Anthony Roth Costanzo stars in a revival of Mark Morris’s witty, sensitively choreographed production.`\
-https://nytimes.com/2024/05/24/arts/music/review-a-delightful-orfeo-returns-to-the-met-opera.html
 
