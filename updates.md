@@ -1,3 +1,7 @@
+**Memorial Day Weekend Forecast Sees More Storms Across the Country**\
+`After several days of severe storms, more are likely across portions of the United States during the long weekend as stifling summer heat settles in across the South.`\
+https://nytimes.com/2024/05/24/weather/memorial-day-forecast-tornado-storms.html
+
 **A State Fund That Helps Children Hurt at Birth Is Quietly Suspended**\
 `New York officials said the fund would accept new beneficiaries for the rest of the year, but a projected shortfall of at least $3.2 billion raises questions about its future.`\
 https://nytimes.com/2024/05/24/nyregion/medical-indemnity-fund-malpractice.html
