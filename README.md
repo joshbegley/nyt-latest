@@ -1,3 +1,7 @@
+**Are These Drones Too Chinese to Pass U.S. Muster in an Anti-China Moment?**\
+`U.S.-based Anzu Robotics is selling drones using technology from DJI, a Chinese firm that is the target of efforts by lawmakers to limit Chinese technology in America.`\
+https://nytimes.com/2024/05/24/business/china-drones-anzu-dji.html
+
 **New York Man Who Grabbed Officer’s Pepper Spray on Jan. 6 Pleads Guilty**\
 `Troy Weeks was at “the site of some of the most violent attacks against law enforcement” during the U.S. Capitol riot, prosecutors said.`\
 https://nytimes.com/2024/05/24/nyregion/troy-weeks-jan-6-guilty-plea.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/24/world/israel-gaza-war-hamas-rafah/israel-say
 **‘Furiosa: A Mad Max Saga’: What Do Critics Say? What Do You Say?**\
 `The reviews all agree that the follow-up to “Fury Road” feels sadder and heavier. But is that a good thing? That’s where the disagreements start.`\
 https://nytimes.com/2024/05/24/movies/furiosa-a-mad-max-saga-review-recap.html
-
-**‘Atlas’ Review: A.I. Shrugged**\
-`Jennifer Lopez stars in a sci-fi action thriller that wonders whether artificial intelligence is really all that bad.`\
-https://nytimes.com/2024/05/24/movies/atlas-review.html
 
