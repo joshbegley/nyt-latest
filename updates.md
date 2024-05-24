@@ -1,3 +1,7 @@
+**Friday Briefing**\
+`We’re covering a stumbling U.S. aid effort in Gaza and the latest Chinese military drills around Taiwan.`\
+https://nytimes.com/2024/05/24/briefing/gaza-china-taiwan-ukraine.html
+
 **Russia, in New Push, Increasingly Disrupts Ukraine’s Starlink Service**\
 `Russia has deployed advanced tech to interfere with Elon Musk’s satellite internet service, Ukrainian officials said, leading to more outages on the northern front battle line.`\
 https://nytimes.com/2024/05/24/technology/ukraine-russia-starlink.html

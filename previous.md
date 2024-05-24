@@ -1,3 +1,7 @@
+**Friday Briefing**\
+`We’re covering a stumbling U.S. aid effort in Gaza and the latest Chinese military drills around Taiwan.`\
+https://nytimes.com/2024/05/24/briefing/gaza-china-taiwan-ukraine.html
+
 **Russia, in New Push, Increasingly Disrupts Ukraine’s Starlink Service**\
 `Russia has deployed advanced tech to interfere with Elon Musk’s satellite internet service, Ukrainian officials said, leading to more outages on the northern front battle line.`\
 https://nytimes.com/2024/05/24/technology/ukraine-russia-starlink.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/24/style/nora-oneill-gabriel-grand-wedding.html
 **Decades in the Making, a New Era Dawns for the N.C.A.A.: Paying Athletes Directly**\
 `If approved by a judge, the $2.8 billion settlement of an antitrust lawsuit would allow for the first revenue-sharing plan for college athletes. The question now: How will it work?`\
 https://nytimes.com/2024/05/23/us/ncaa-athletes-payments.html
-
-**Obama Is a Surprise Guest Among Allies at Biden’s State Dinner for Kenya**\
-`The state dinner was held in honor of the African nation, but it was clear that the night was about keeping Democratic allies close as President Biden heads into the heat of the 2024 campaign season.`\
-https://nytimes.com/2024/05/23/us/politics/biden-state-dinner-kenya.html
 
