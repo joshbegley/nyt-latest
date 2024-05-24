@@ -1,3 +1,7 @@
+**Italian Teenager to Become the First Millennial Saint**\
+`Pope Francis attributed a second miracle to Carlo Acutis, one of the last steps toward canonization.`\
+https://nytimes.com/2024/05/23/world/europe/carlo-acutis-saint-catholic.html
+
 **G.O.P. and Secret Service Clash Again Over Convention Protest Zone**\
 `Lawyers for the Republican National Convention asked again for the Secret Service to relocate a protest zone for the party’s convention in July. The agency quickly pushed back.`\
 https://nytimes.com/2024/05/23/us/politics/republican-national-convention-protest-zone.html
