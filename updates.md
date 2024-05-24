@@ -1,3 +1,11 @@
+**Facing Possible Cash Crunch, Giant Real Estate Fund Limits Withdrawals**\
+`Starwood Real Estate Investment Trust is restricting what investors can redeem rather than sell its properties to raise cash.`\
+https://nytimes.com/2024/05/23/business/starwood-reit-limits-withdrawals.html
+
+**Review: ‘The Hours Are Feminine,’ a Family Braces for a Storm**\
+`In José Rivera’s latest play, a Puerto Rican family moves to Long Island in 1960, contending both with Hurricane Donna and their neighbors’ hostility.`\
+https://nytimes.com/2024/05/23/theater/review-the-hours-are-feminine.html
+
 **The Full Guest List for Biden’s State Dinner With Kenya**\
 `The Bidens invited more than 450 guests, including Barack Obama, Bill and Hillary Clinton, Carol Moseley Braun, Melinda Gates, Lester Holt, LeVar Burton and Sean Penn.`\
 https://nytimes.com/2024/05/23/us/politics/full-guest-list-biden-state-dinner-kenya.html
