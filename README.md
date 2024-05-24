@@ -1,3 +1,11 @@
+**She Was More Than the Woman Who Made Julia Child Famous**\
+`In “The Editor,” Sara B. Franklin argues that Judith Jones was a “publishing legend,” transcending industry sexism to champion cookbooks — and Anne Frank.`\
+https://nytimes.com/2024/05/24/books/review/the-editor-judith-jones-sara-franklin.html
+
+**Brooke Shields Elected President of Labor Union Actors’ Equity**\
+`She takes office immediately. The previous leader, Kate Shindle, had been president since 2015, and did not run again.`\
+https://nytimes.com/2024/05/24/theater/brooke-shields-president-actors-equity.html
+
 **Judge John Hodgman on What Constitutes ‘Visiting’ a State**\
 `Does it count if you never leave the car?`\
 https://nytimes.com/2024/05/24/magazine/judge-john-hodgman-travel-state-humor.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/24/health/colon-cancer-warning-signs.html
 **Five Horror Movies to Stream Now**\
 `This month’s villains include naughty gay ghosts, savage seniors and a dangerously unhinged bro.`\
 https://nytimes.com/2024/05/24/movies/five-horror-movies-to-stream-now.html
-
-**Robert De Niro Narrates an Anti-Trump Ad for Biden**\
-`The ad uses the actor’s distinctive voice to try to remind voters of the chaos of Donald Trump’s presidency and warn them about a second Trump term.`\
-https://nytimes.com/2024/05/24/us/politics/robert-deniro-trump-biden-ad.html
-
-**Morgan Spurlock, Documentarian Known for ‘Super Size Me,’ Dies at 53**\
-`His 2004 film, which was nominated for an Oscar, followed Mr. Spurlock as he ate nothing but McDonald’s for a month.`\
-https://nytimes.com/2024/05/24/arts/morgan-spurlock-dead-super-size-me.html
 
