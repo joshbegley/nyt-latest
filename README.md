@@ -1,3 +1,7 @@
+**Google’s A.I. Search Errors Cause a Furor Online**\
+`The company’s latest A.I. search feature has erroneously told users to eat glue and rocks, sparking a backlash among users.`\
+https://nytimes.com/2024/05/24/technology/google-ai-overview-search.html
+
 **The Best Books of the Year (So Far)**\
 `The nonfiction and novels we can’t stop thinking about.`\
 https://nytimes.com/2024/05/24/books/best-books-2024-so-far.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009486472/gaza-food-aid-trucks-
 **A Mexican Taco Stand Goes From Local Favorite to Michelin Darling**\
 `Taquería El Califa de León, in Mexico City, became the first Mexican taco stand to win a Michelin star. Since then, it has been deluged with customers and fame.`\
 https://nytimes.com/2024/05/24/world/americas/taqueria-el-califa-de-leon-mexico-city-michelin-star.html
-
-**The Big Number: $48.75**\
-`A series of cryptic social media posts was all it took to push up the stock price of the otherwise struggling video game retailer GameStop.`\
-https://nytimes.com/interactive/2024/05/24/business/gamestop-stock-meme.html
 
