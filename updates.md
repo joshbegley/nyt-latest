@@ -1,3 +1,11 @@
+**Three Missionaries in Haiti Killed in Gang Attack**\
+`The latest assault by Haitian gangs left three missionaries, including two Americans dead in Port-au-Prince.`\
+https://nytimes.com/2024/05/24/world/americas/haiti-gang-attack-missionaries-dead.html
+
+**50 Years Ago, Chris Evert and Bjorn Borg Changed Tennis**\
+`As teenagers, they brought the two-handed backhand to the sport — and to their first major championships, both at the French Open.`\
+https://nytimes.com/2024/05/24/sports/tennis/french-open-chris-evert-bjorn-borg.html
+
 **Hot dogs, hot slaw and plenty of ranch**\
 `The point, on a long weekend that heralds the start of a new season, is to cook with the intention of delivering pleasure as much as sustenance.`\
 https://nytimes.com/2024/05/24/dining/memorial-day-weekend-recipes-hot-dogs.html
