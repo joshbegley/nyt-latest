@@ -1,3 +1,11 @@
+**A Bouquet of Songs for May Flowers**\
+`Tom Petty, Patrice Rushen, Billie Eilish and more.`\
+https://nytimes.com/2024/05/24/arts/music/amplifier-newsletter-may-flowers.html
+
+**Harrison Butker’s Very American Traditionalism**\
+`How Latin Mass Catholics embody the spirit of Vatican II.`\
+https://nytimes.com/2024/05/24/opinion/harrison-butker-catholicism.html
+
 **Google’s A.I. Search Errors Cause a Furor Online**\
 `The company’s latest A.I. search feature has erroneously told users to eat glue and rocks, sparking a backlash among users.`\
 https://nytimes.com/2024/05/24/technology/google-ai-overview-search.html
