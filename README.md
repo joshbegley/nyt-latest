@@ -1,3 +1,7 @@
+**What’s Spanish for ‘Chutzpah’?**\
+`Spain is yet another government that suppresses independence-seekers at home while applauding those abroad.`\
+https://nytimes.com/live/2024/05/21/opinion/thepoint/spain-palestine-recognition
+
 **The Rolling Stones Really Might Never Stop**\
 `During a 19-song set at MetLife Stadium that spanned 60 years, the band tapped into what seems like a bottomless well of rock ’n’ roll energy.`\
 https://nytimes.com/2024/05/24/arts/music/rolling-stones-live-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/24/health/bird-flu-beef.html
 **Countries Fail to Agree on Treaty to Prepare the World for the Next Pandemic**\
 `Negotiators plan to ask for more time. Among the sticking points are equitable access to vaccines and financing to set up surveillance systems.`\
 https://nytimes.com/2024/05/24/health/pandemic-treaty-vaccines.html
-
-**Caleb Carr, Author of Dark Histories, Dies at 68**\
-`His own dark history prompted him to write about and investigate the roots of violence, notably in his best-selling novel “The Alienist.”`\
-https://nytimes.com/2024/05/24/books/caleb-carr-dead.html
 

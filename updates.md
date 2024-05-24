@@ -1,3 +1,7 @@
+**The Rolling Stones Really Might Never Stop**\
+`During a 19-song set at MetLife Stadium that spanned 60 years, the band tapped into what seems like a bottomless well of rock ’n’ roll energy.`\
+https://nytimes.com/2024/05/24/arts/music/rolling-stones-live-review.html
+
 **A Bouquet of Songs for May Flowers**\
 `Tom Petty, Patrice Rushen, Billie Eilish and more.`\
 https://nytimes.com/2024/05/24/arts/music/amplifier-newsletter-may-flowers.html

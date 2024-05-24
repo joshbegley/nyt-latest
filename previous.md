@@ -1,3 +1,7 @@
+**The Rolling Stones Really Might Never Stop**\
+`During a 19-song set at MetLife Stadium that spanned 60 years, the band tapped into what seems like a bottomless well of rock ’n’ roll energy.`\
+https://nytimes.com/2024/05/24/arts/music/rolling-stones-live-review.html
+
 **A Bouquet of Songs for May Flowers**\
 `Tom Petty, Patrice Rushen, Billie Eilish and more.`\
 https://nytimes.com/2024/05/24/arts/music/amplifier-newsletter-may-flowers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/24/health/pandemic-treaty-vaccines.html
 **Caleb Carr, Author of Dark Histories, Dies at 68**\
 `His own dark history prompted him to write about and investigate the roots of violence, notably in his best-selling novel “The Alienist.”`\
 https://nytimes.com/2024/05/24/books/caleb-carr-dead.html
-
-**U.C.L.A. Police Make First Arrest in Attack on Protest Encampment**\
-`Edan On, an 18-year-old, was charged with assault.`\
-https://nytimes.com/2024/05/24/us/ucla-protest-arrest-edan-on.html
 
