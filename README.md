@@ -1,3 +1,7 @@
+**Are University Athletes About to Earn a Big Payday?**\
+`A $2.8 billion class-action settlement proposal could finally erase the notion that college stars are amateurs — though the plan has drawn skeptics.`\
+https://nytimes.com/2024/05/24/business/dealbook/ncaa-student-athletes-pay.html
+
 **Kabosu, Shiba Inu Who Helped Define the Doge Meme, Dies at 18**\
 `The dog, whose face helped spread the popular doge meme and later became the logo of the Dogecoin cryptocurrency, died on Friday.`\
 https://nytimes.com/2024/05/24/world/asia/kabosu-doge-meme-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/24/world/europe/ukraine-russia-war-prisoners.html
 **A Week of Diplomatic Blows to Israel, and Congress Criticizes Alito**\
 `Plus, a big step toward college athlete pay.`\
 https://nytimes.com/2024/05/24/podcasts/rafah-invasion-icc-south-africa-alito-congress-response.html
-
-**Whales Have an Alphabet**\
-`Until the 1960s, it was uncertain whether whales made any sounds at all.`\
-https://nytimes.com/2024/05/24/podcasts/the-daily/whales-song.html
 
