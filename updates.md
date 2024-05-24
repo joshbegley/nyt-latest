@@ -1,3 +1,7 @@
+**Nikki Haley’s Path Back to Donald Trump**\
+`Readers offer their analysis of why she said she would vote for him. Also: Blaming the wife; maligning Justice Juan Merchan; a caregiver’s story.`\
+https://nytimes.com/2024/05/24/opinion/nikki-haley-donald-trump.html
+
 **Three Missionaries in Haiti Are Killed in Gang Attack**\
 `The latest assault by Haitian gangs left the three people, including two Americans, dead in Port-au-Prince.`\
 https://nytimes.com/2024/05/24/world/americas/haiti-gang-attack-missionaries-dead.html
