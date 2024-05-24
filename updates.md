@@ -1,3 +1,11 @@
+**Robert De Niro Narrates an Anti-Trump Ad for Biden**\
+`The ad uses the actor’s distinctive voice to try to remind voters of the chaos of Donald Trump’s presidency and warn them about a second Trump term.`\
+https://nytimes.com/2024/05/24/us/politics/robert-deniro-trump-biden-ad.html
+
+**Morgan Spurlock, Documentarian Known for ‘Super Size Me,’ Dies at 53**\
+`His 2004 film, which was nominated for an Oscar, followed Mr. Spurlock as he ate nothing but McDonald’s for a month.`\
+https://nytimes.com/2024/05/24/arts/morgan-spurlock-dead-super-size-me.html
+
 **When Age Catches Up to a Tennis Player**\
 `They consider their bodies and the results on the court to determine when to hang it up.`\
 https://nytimes.com/2024/05/24/sports/tennis/french-open-players-age.html
