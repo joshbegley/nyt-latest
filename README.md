@@ -1,3 +1,7 @@
+**Nikki Haley’s Path Back to Donald Trump**\
+`Readers offer their analysis of why she said she would vote for him. Also: Blaming the wife; maligning Justice Juan Merchan; a caregiver’s story.`\
+https://nytimes.com/2024/05/24/opinion/nikki-haley-donald-trump.html
+
 **Three Missionaries in Haiti Are Killed in Gang Attack**\
 `The latest assault by Haitian gangs left the three people, including two Americans, dead in Port-au-Prince.`\
 https://nytimes.com/2024/05/24/world/americas/haiti-gang-attack-missionaries-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/24/sports/tennis/french-open-players-age.html
 **Why We Should Have Nice Things**\
 `Modern soccer shouldn’t be set up to rob fans of their joy.`\
 https://nytimes.com/2024/05/24/world/europe/bayer-leverkusen-xabi-alonso.html
-
-**International Court of Justice Orders Israel to Stop Its Assault on Rafah**\
-`The United Nations top court has no means of enforcing its ruling, but the decision places further international pressure on Israel over its conduct in Gaza.`\
-https://nytimes.com/video/world/middleeast/100000009486569/israel-rafah-gaza-icj-un-court.html
 
