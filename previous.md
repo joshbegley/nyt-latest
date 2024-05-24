@@ -1,3 +1,7 @@
+**When Age Catches Up to a Tennis Player**\
+`They consider their bodies and the results on the court to determine when to hang it up.`\
+https://nytimes.com/2024/05/24/sports/tennis/french-open-players-age.html
+
 **Why We Should Have Nice Things**\
 `Modern soccer shouldn’t be set up to rob fans of their joy.`\
 https://nytimes.com/2024/05/24/world/europe/bayer-leverkusen-xabi-alonso.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/21/opinion/thepoint/trump-bronx-new-york
 **Hsieh Su-Wei, at 38, Is a Dominant Force in Doubles**\
 `She has won seven majors, including the French Open twice.`\
 https://nytimes.com/2024/05/24/sports/tennis/french-open-hsieh-su-wei-doubles.html
-
-**How to Clean Your Grill**\
-`Don't leave those burnt pieces from last year.`\
-https://nytimes.com/interactive/2024/05/24/smarter-living/wirecutter/clean-grill.html
 
