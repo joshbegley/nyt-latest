@@ -1,3 +1,7 @@
+**At a Trump Rally in the Bronx, Chants of ‘Build the Wall’**\
+`Speaking to a more diverse crowd than his events usually draw, Donald Trump made a series of pledges to New Yorkers and railed against President Biden and the migrant crisis.`\
+https://nytimes.com/2024/05/23/us/politics/trump-rally-bronx-nyc.html
+
 **Facing Possible Cash Crunch, Giant Real Estate Fund Limits Withdrawals**\
 `Starwood Real Estate Investment Trust is restricting what investors can redeem rather than sell its properties to raise cash.`\
 https://nytimes.com/2024/05/23/business/starwood-reit-limits-withdrawals.html
