@@ -1,3 +1,7 @@
+**Countries Struggle to Agree on Treaty to Prepare the World for the Next Pandemic**\
+`Among the sticking points are equitable access to vaccines and financing to set up surveillance systems.`\
+https://nytimes.com/2024/05/24/health/pandemic-treaty-vaccines.html
+
 **Caleb Carr, Author of Dark Histories, Dies at 68**\
 `His own dark history prompted him to write about and investigate the roots of violence, notably in his best-selling novel “The Alienist.”`\
 https://nytimes.com/2024/05/24/books/caleb-carr-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/21/opinion/algebra-math-racial-gap.html
 **I Was a Nude Model for a Half Hour. Revelatory? Actually, Yes.**\
 `Two shows — an art fair in Brooklyn and an Yves Klein exhibition uptown — ask if nude art can still inspire or shock. I joined in to find out.`\
 https://nytimes.com/2024/05/24/arts/design/art-nudity-models.html
-
-**She Was More Than the Woman Who Made Julia Child Famous**\
-`In “The Editor,” Sara B. Franklin argues that Judith Jones was a “publishing legend,” transcending industry sexism to champion cookbooks — and Anne Frank.`\
-https://nytimes.com/2024/05/24/books/review/the-editor-judith-jones-sara-franklin.html
 
