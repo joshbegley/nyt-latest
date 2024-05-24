@@ -1,3 +1,15 @@
+**Egypt’s President Agrees to Reopen Crossing for Gaza Aid After Biden Call**\
+`Fuel and humanitarian aid will be able to enter Gaza through Kerem Shalom, an Israeli-operated crossing, the White House said.`\
+https://nytimes.com/2024/05/24/world/middleeast/biden-egypt-gaza-aid.html
+
+**Want to Better Understand America? Consider All-You-Can-Eat Shrimp.**\
+`The downfall of Red Lobster suggests consumers are parched for value.`\
+https://nytimes.com/2024/05/24/opinion/red-lobster-bankruptcy-economy.html
+
+**Can I Use A.I. to Grade My Students’ Papers?**\
+`The magazine’s Ethicist columnist on artificial intelligence platforms, and whether it’s hypocritical for teachers to use these tools while forbidding students from doing the same.`\
+https://nytimes.com/2024/05/24/magazine/ai-essays-grading-ethics.html
+
 **NASA Astronauts to Wait Another Week for Boeing Starliner Launch**\
 `Officials from NASA and Boeing say they have worked out a solution to a helium leak that has kept the Starliner astronaut capsule grounded.`\
 https://nytimes.com/2024/05/24/science/boeing-starliner-nasa-launch.html
