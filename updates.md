@@ -1,3 +1,7 @@
+**A Week of Diplomatic Blows to Israel, and Congress Criticizes Alito**\
+`Plus, a big step toward college athlete pay.`\
+https://nytimes.com/2024/05/24/podcasts/rafah-invasion-icc-south-africa-alito-congress-response.html
+
 **Whales Have an Alphabet**\
 `Until the 1960s, it was uncertain whether whales made any sounds at all.`\
 https://nytimes.com/2024/05/24/podcasts/the-daily/whales-song.html
