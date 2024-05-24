@@ -1,3 +1,7 @@
+**John Koerner, Bluesman Who Inspired a Young Bob Dylan, Dies at 85**\
+`A spindly guitarist nicknamed Spider, Mr. Koerner was Mr. Dylan’s first friend in the scruffy world of Minneapolis bohemia where he learned about folk music.`\
+https://nytimes.com/2024/05/24/arts/music/spider-john-koerner-dead.html
+
 **Justice Sotomayor Describes Frustration With Being a Liberal on the Supreme Court**\
 `In a conversation at Harvard, the justice spoke of her despair at some of the court’s decisions, but she urged optimism and a focus on future generations.`\
 https://nytimes.com/2024/05/24/us/politics/sonia-sotomayor-supreme-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/24/movies/fred-roos-dead.html
 **Biden’s Chance to Do the Right Thing in Gaza**\
 `The U.S. should side with the International Court of Justice in the Gaza war.`\
 https://nytimes.com/2024/05/24/opinion/biden-gaza-ukraine-war.html
-
-**The N.C.A.A.’s Landmark Athlete-Pay Settlement, Explained**\
-`The $2.8 billion agreement announced on Thursday would, if approved by a judge, allow college athletes to share team revenue for the first time. Here is what we know.`\
-https://nytimes.com/2024/05/24/us/ncaa-settlement-college-athletes-payments.html
 

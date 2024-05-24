@@ -1,3 +1,7 @@
+**John Koerner, Bluesman Who Inspired a Young Bob Dylan, Dies at 85**\
+`A spindly guitarist nicknamed Spider, Mr. Koerner was Mr. Dylan’s first friend in the scruffy world of Minneapolis bohemia where he learned about folk music.`\
+https://nytimes.com/2024/05/24/arts/music/spider-john-koerner-dead.html
+
 **Justice Sotomayor Describes Frustration With Being a Liberal on the Supreme Court**\
 `In a conversation at Harvard, the justice spoke of her despair at some of the court’s decisions, but she urged optimism and a focus on future generations.`\
 https://nytimes.com/2024/05/24/us/politics/sonia-sotomayor-supreme-court.html
