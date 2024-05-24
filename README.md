@@ -1,3 +1,7 @@
+**Israeli Forces Recover Bodies of 3 More Hostages in Northern Gaza**\
+`The bodies were found in Jabaliya, where the Israeli military has been trying to root out a renewed Hamas insurgency.`\
+https://nytimes.com/2024/05/24/world/middleeast/israel-hostage-bodies-gaza-hamas.html
+
 **A Polling Risk for Trump**\
 `His advantage may not be as stable as it looks.`\
 https://nytimes.com/2024/05/24/briefing/a-polling-risk-for-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/24/style/josh-seftel-mom-pat-cbs.html
 **Meet the Jimi Hendrix of the Sahara**\
 `Our music reporter on Mdou Moctar and other African guitar heroes`\
 https://nytimes.com/2024/05/24/podcasts/meet-the-jimi-hendrix-of-the-sahara.html
-
-**The Capital of Women’s Soccer**\
-`The success of Barcelona’s team has made Catalonia a laboratory for finding out what happens when the women’s game has prominence similar to the men’s.`\
-https://nytimes.com/2024/05/24/world/europe/barcelona-women-soccer-champions-league.html
 
