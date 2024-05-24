@@ -1,3 +1,7 @@
+**Decades in the Making, a New Era Dawns for the N.C.A.A.: Paying Athletes Directly**\
+`If approved by a judge, the $2.8 billion settlement of an antitrust lawsuit would allow for the first revenue-sharing plan for college athletes. The question now: How will it work?`\
+https://nytimes.com/2024/05/23/us/ncaa-athletes-payments.html
+
 **Obama Is a Surprise Guest Among Allies at Biden’s State Dinner for Kenya**\
 `The state dinner was held in honor of the African nation, but it was clear that the night was about keeping Democratic allies close as President Biden heads into the heat of the 2024 campaign season.`\
 https://nytimes.com/2024/05/23/us/politics/biden-state-dinner-kenya.html
