@@ -1,3 +1,7 @@
+**Would You Want a Robot to Speak at Your Graduation?**\
+`An A.I. robot gave a commencement address at a university in Buffalo. What do you think? Who would you want to speak at your graduation?`\
+https://nytimes.com/2024/05/24/learning/would-you-want-a-robot-to-speak-at-your-graduation.html
+
 **Transcript: Ezra Klein Interviews Holly Herndon**\
 `The May 24, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/05/24/podcasts/transcript-ezra-klein-interviews-holly-herndon.html
