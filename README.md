@@ -1,3 +1,15 @@
+**Whales Have an Alphabet**\
+`Until the 1960s, it was uncertain whether whales made any sounds at all.`\
+https://nytimes.com/2024/05/24/podcasts/the-daily/whales-song.html
+
+**The Connections Companion No. 349**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/24/crosswords/connections-companion-349.html
+
+**Today’s Wordle Review No. 1,071, May 25, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/24/crosswords/wordle-review.html
+
 **How FaceTime Calls With Mom Became a TV Hit**\
 `What started as a way for the filmmaker Josh Seftel and his mother, Pat, to stay in touch has become a popular feature on “CBS Sunday Morning.”`\
 https://nytimes.com/2024/05/24/style/josh-seftel-mom-pat-cbs.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/24/movies/6-new-movies-our-critics-are-talking-about
 **ScarJo vs. ChatGPT, Neuralink’s First Patient Opens Up, and Microsoft’s A.I. PCs**\
 `“Did you ever think we would have a literal Avenger fighting back against the relentless march of A.I.? Because that’s sort of what this story is about.”`\
 https://nytimes.com/2024/05/24/podcasts/scarjo-vs-chatgpt-neuralinks-first-patient-opens-up-and-microsofts-ai-pcs.html
-
-**How to Make the Most of Summer**\
-`You don’t need a vacation to embrace a sunnier state of mind.`\
-https://nytimes.com/2024/05/24/well/mind/summer-work-routine.html
-
-**Trump’s Pattern of Sowing Election Doubt Intensifies in 2024**\
-`A false, familiar claim by the former president — that the contest in which he’s participating is “rigged” — has reached a fever pitch in this cycle.`\
-https://nytimes.com/interactive/2024/05/24/us/politics/trump-election-results-doubt.html
-
-**5 Things to Do This Weekend**\
-`A selection of entertainment highlights this weekend, including “Furiosa: A Mad Max Saga."`\
-https://nytimes.com/interactive/2024/05/24/arts/weekend-editors-picks-furiosa-mad-max-saga.html
 
