@@ -1,3 +1,11 @@
+**Facing Possible Cash Crunch, Giant Real Estate Fund Limits Withdrawals**\
+`Starwood Real Estate Investment Trust is restricting what investors can redeem rather than sell its properties to raise cash.`\
+https://nytimes.com/2024/05/23/business/starwood-reit-limits-withdrawals.html
+
+**Review: ‘The Hours Are Feminine,’ a Family Braces for a Storm**\
+`In José Rivera’s latest play, a Puerto Rican family moves to Long Island in 1960, contending both with Hurricane Donna and their neighbors’ hostility.`\
+https://nytimes.com/2024/05/23/theater/review-the-hours-are-feminine.html
+
 **Prosecutor in Trump Georgia Case to Appeal Judge’s Decision to Quash Six Charges**\
 `Thursday’s legal filing by Fani Willis creates a second substantive set of issues that must now be considered by the Georgia Court of Appeals before the election case can go to trial.`\
 https://nytimes.com/2024/05/23/us/fani-willis-trump-georgia-appeal.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/23/health/colon-cancer-blood-test-guardant.html
 **Ari Emanuel Condemns Netanyahu, Drawing Boos at Jewish Group’s Gala**\
 `“For the good of Israel, he should go,” Emanuel, chief executive of the media group Endeavor, said of Benjamin Netanyahu, Israel’s conservative prime minister.`\
 https://nytimes.com/2024/05/23/arts/ari-emanuel-condemns-netanyahu.html
-
-**America Is Still Having a ‘Vibecession’**\
-`Most voters say that they’re doing OK but that the economy is bad.`\
-https://nytimes.com/2024/05/23/opinion/biden-trump-vibecession.html
-
-**Israel Pushes Deeper Into Rafah, Defying International Opinion**\
-`While the government has been hit with a string of diplomatic and legal defeats, the Israeli public’s support for the Gaza war remains strong.`\
-https://nytimes.com/2024/05/23/world/middleeast/israel-rafah-gaza.html
 
