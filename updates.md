@@ -1,3 +1,7 @@
+**Cher and the Jonas Brothers Dazzle the French Riviera**\
+`Demi Moore, Michelle Yeoh and Diane Kruger and many more attended the amfAR gala, the unofficial closing party for the Cannes Film Festival.`\
+https://nytimes.com/2024/05/24/style/cher-jonas-brothers-cannes-amfar-gala.html
+
 **Are These Drones Too Chinese to Pass U.S. Muster in an Anti-China Moment?**\
 `U.S.-based Anzu Robotics is selling drones using technology from DJI, a Chinese firm that is the target of efforts by lawmakers to limit Chinese technology in America.`\
 https://nytimes.com/2024/05/24/business/china-drones-anzu-dji.html
