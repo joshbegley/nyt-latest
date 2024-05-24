@@ -1,3 +1,15 @@
+**Whales Have an Alphabet**\
+`Until the 1960s, it was uncertain whether whales made any sounds at all.`\
+https://nytimes.com/2024/05/24/podcasts/the-daily/whales-song.html
+
+**The Connections Companion No. 349**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/24/crosswords/connections-companion-349.html
+
+**Today’s Wordle Review No. 1,071, May 25, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/24/crosswords/wordle-review.html
+
 **How FaceTime Calls With Mom Became a TV Hit**\
 `What started as a way for the filmmaker Josh Seftel and his mother, Pat, to stay in touch has become a popular feature on “CBS Sunday Morning.”`\
 https://nytimes.com/2024/05/24/style/josh-seftel-mom-pat-cbs.html
