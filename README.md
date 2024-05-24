@@ -7,7 +7,7 @@ https://nytimes.com/live/2024/05/24/world/israel-gaza-war-hamas-rafah/the-courts
 https://nytimes.com/2024/05/24/world/middleeast/israel-gaza-kamal-adwan-hospital.html
 
 **Bird Flu Virus Found in Beef Tissue**\
-`Federal officials said that muscle from a sick dairy cow had tested positive for the virus, but reiterated that the commercial meat supply was safe.`\
+`Muscle from a sick dairy cow tested positive for the virus. The meat did not enter the commercial food supply, which officials said remained safe.`\
 https://nytimes.com/2024/05/24/health/bird-flu-beef.html
 
 **Countries Fail to Agree on Treaty to Prepare the World for the Next Pandemic**\
