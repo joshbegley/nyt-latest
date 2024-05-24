@@ -1,11 +1,3 @@
-**The 8 Weeks Spent Freeing the Dali From a Baltimore Bridge **\
-`The container ship hit the Key Bridge in the early morning hours of March 26 and more than 2,000 people have been involved in the salvage and recovery operation.`\
-https://nytimes.com/card/2024/05/24/us/baltimore-bridge-dali-ship
-
-**The Top U.N. Court Told Israel to Halt Its Rafah Offensive**\
-`Also, countries failed to agree on how to prepare for the next pandemic. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2024/05/24/briefing/icj-israel-rajah-offensive-pandemic-treaty.html
-
 **Lloyd Austin to Undergo Procedure to Address Bladder Issue**\
 `The Pentagon called the procedure a “minimally invasive,” nonsurgical follow-up to previous treatment, and said the defense secretary would temporarily turn over his duties to his deputy.`\
 https://nytimes.com/2024/05/24/us/politics/lloyd-austin-medical-procedure.html
@@ -37,4 +29,12 @@ https://nytimes.com/2024/05/24/us/ncaa-settlement-college-athletes-payments.html
 **Are You Wearing Sunscreen the Right Way?**\
 `And other essential questions about protecting your skin from the sun, answered by experts.`\
 https://nytimes.com/article/spf-sunscreen-skin-care-routine.html
+
+**U.A.W. Seeks a New Election at Mercedes-Benz Plants in Alabama**\
+`The union, which lost an organizing vote at two factories last week, argued to federal officials that the automaker had violated labor laws.`\
+https://nytimes.com/2024/05/24/business/uaw-mercedes-benz-nlrb-election.html
+
+**Are These Drones Too Chinese to Pass U.S. Muster in an Anti-China Moment?**\
+`U.S.-based Anzu Robotics is selling drones using technology from DJI, a Chinese firm that is the target of efforts by lawmakers to limit Chinese technology in America.`\
+https://nytimes.com/2024/05/24/business/china-drones-anzu-dji.html
 
