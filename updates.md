@@ -1,3 +1,7 @@
+**Biden’s Chance to Do the Right Thing in Gaza**\
+`The U.S. should side with the International Court of Justice in the Gaza war.`\
+https://nytimes.com/2024/05/24/opinion/biden-gaza-ukraine-war.html
+
 **Uvalde Families Sue Instagram and Activision Over Promotion of Guns**\
 `Families of the victims of a 2022 school shooting accused the social media site, the makers of “Call of Duty” and a rifle maker of “grooming” a teenage gunman.`\
 https://nytimes.com/2024/05/24/us/uvalde-gun-instagram-activision-lawsuit.html
