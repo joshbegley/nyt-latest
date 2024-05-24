@@ -1,3 +1,7 @@
+**Cher and the Jonas Brothers Dazzle the French Riviera**\
+`Demi Moore, Michelle Yeoh and Andie MacDowell and many more attended the amfAR gala, the unofficial closing party for the Cannes Film Festival.`\
+https://nytimes.com/2024/05/24/style/cher-jonas-brothers-cannes-amfar-gala.html
+
 **Egypt’s President Agrees to Reopen Crossing for Gaza Aid After Biden Call**\
 `Fuel and humanitarian aid will be able to enter Gaza through Kerem Shalom, an Israeli-operated crossing, the White House said.`\
 https://nytimes.com/2024/05/24/world/middleeast/biden-egypt-gaza-aid.html
