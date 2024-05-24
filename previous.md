@@ -12,7 +12,7 @@ https://nytimes.com/2024/05/24/arts/television/the-portal-new-york.html
 
 **Fixing the Calamity in U.S. Math Knowledge Starts With Algebra**\
 `Giving up means that math scores will continue to plummet and racial gaps will grow.`\
-https://nytimes.com/live/2024/05/21/opinion/thepoint/algebra-math-racial-gap
+https://nytimes.com/2024/05/21/opinion/algebra-math-racial-gap.html
 
 **I Was a Nude Model for a Half Hour. Revelatory? Actually, Yes.**\
 `Two shows — an art fair in Brooklyn and an Yves Klein exhibition uptown — ask if nude art can still inspire or shock. I joined in to find out.`\

@@ -1,3 +1,7 @@
+**Fixing the Calamity in U.S. Math Knowledge Starts With Algebra**\
+`Giving up means that math scores will continue to plummet and racial gaps will grow.`\
+https://nytimes.com/2024/05/21/opinion/algebra-math-racial-gap.html
+
 **The Big Number: $48.75**\
 `A series of cryptic social media posts was all it took to push up the stock price of the otherwise struggling video game retailer GameStop.`\
 https://nytimes.com/interactive/2024/05/24/business/gamestop-stock-meme.html
