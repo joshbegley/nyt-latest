@@ -1,3 +1,7 @@
+**‘The Daily Show’ Skewers Samuel Alito Over Another Provocative Flag**\
+`“Did this guy get a two-for-one deal at the MAGA flag store?” Michael Kosta said of the Supreme Court justice on Thursday’s “The Daily Show.”`\
+https://nytimes.com/2024/05/24/arts/television/late-night-samuel-alito-flag.html
+
 **Word of the Day: pseudonym**\
 `This word has appeared in 108 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/05/24/learning/word-of-the-day-pseudonym.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/24/style/mitchell-karr-veronica-mccracken-wedding.ht
 **First She Scored a Spot at Her Restaurant. Then She Won a Place in Her Heart.**\
 `The actress Maria Bello and the Michelin-starred chef Dominique Crenn said they owe their journey to the “three C’s”: cancer, Covid and, now, commitment.`\
 https://nytimes.com/2024/05/24/style/maria-bello-dominique-crenn-wedding.html
-
-**A Jaw-Dropping Question is Answered a Decade Later**\
-`Nora O’Neill and Gabriel Grand began dating in 2014. Ms. O’Neill’s twin had an inkling then that the relationship was going to get serious.`\
-https://nytimes.com/2024/05/24/style/nora-oneill-gabriel-grand-wedding.html
 

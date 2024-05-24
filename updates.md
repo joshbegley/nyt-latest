@@ -1,3 +1,7 @@
+**‘The Daily Show’ Skewers Samuel Alito Over Another Provocative Flag**\
+`“Did this guy get a two-for-one deal at the MAGA flag store?” Michael Kosta said of the Supreme Court justice on Thursday’s “The Daily Show.”`\
+https://nytimes.com/2024/05/24/arts/television/late-night-samuel-alito-flag.html
+
 **Word of the Day: pseudonym**\
 `This word has appeared in 108 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/05/24/learning/word-of-the-day-pseudonym.html
