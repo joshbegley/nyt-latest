@@ -1,3 +1,7 @@
+**Justice Sotomayor Describes Frustration With Being a Liberal on the Supreme Court**\
+`In a conversation at Harvard, the justice spoke of her despair at some of the court’s decisions, but she urged optimism and a focus on future generations.`\
+https://nytimes.com/2024/05/24/us/politics/sonia-sotomayor-supreme-court.html
+
 **The 8 Weeks Spent Freeing the Dali From a Baltimore Bridge **\
 `The container ship hit the Key Bridge in the early morning hours of March 26 and more than 2,000 people have been involved in the salvage and recovery operation.`\
 https://nytimes.com/card/2024/05/24/us/baltimore-bridge-dali-ship
