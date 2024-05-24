@@ -1,3 +1,11 @@
+**World Court Orders Israel to Halt Its Military Offensive Into Rafah**\
+`The International Court of Justice has no means to enforce its order in the Gazan city, but the ruling added pressure on the government of Prime Minister Benjamin Netanyahu of Israel.`\
+https://nytimes.com/2024/05/24/world/middleeast/icj-israel-gaza-rafah-ruling.html
+
+**Menendez Judge Bars Some Prosecution Evidence in Bribery Trial**\
+`The ruling could undermine prosecutors’ ability to prove certain elements of the bribery case against Senator Robert Menendez, a New Jersey Democrat.`\
+https://nytimes.com/2024/05/24/nyregion/menendez-bribery-case-evidence.html
+
 **The Anti-Trump Republicans Worried About the Biden Campaign**\
 `Some G.O.P. Trump opponents want to hear more from the Biden campaign. It says it’s on it.`\
 https://nytimes.com/2024/05/24/us/politics/trump-biden-republicans.html
