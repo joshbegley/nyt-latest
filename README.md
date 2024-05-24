@@ -1,3 +1,11 @@
+**Why We Should Have Nice Things**\
+`Modern soccer shouldn’t be set up to rob fans of their joy.`\
+https://nytimes.com/2024/05/24/world/europe/bayer-leverkusen-xabi-alonso.html
+
+**International Court of Justice Orders Israel to Stop Its Assault on Rafah**\
+`The United Nations top court has no means of enforcing its ruling, but the decision places further international pressure on Israel over its conduct in Gaza.`\
+https://nytimes.com/video/world/middleeast/100000009486569/israel-rafah-gaza-icj-un-court.html
+
 **The ‘Nontraditional’ Bridal Brand Capturing Hearts Online**\
 `Madison Chamberlain is carving a niche with her vibrant, over-the-top bridal designs.`\
 https://nytimes.com/2024/05/24/style/madison-chamberlain-bridal-designer.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/24/sports/tennis/french-open-hsieh-su-wei-doubles.ht
 **How to Clean Your Grill**\
 `Don't leave those burnt pieces from last year.`\
 https://nytimes.com/interactive/2024/05/24/smarter-living/wirecutter/clean-grill.html
-
-**Memorial Day Weekend Forecast Sees More Storms Across the Country**\
-`After several days of severe storms, more are likely across portions of the United States during the long weekend as stifling summer heat settles in across the South.`\
-https://nytimes.com/2024/05/24/weather/memorial-day-forecast-tornado-storms.html
-
-**A State Fund That Helps Children Hurt at Birth Is Quietly Suspended**\
-`New York officials said the fund would accept new beneficiaries for the rest of the year, but a projected shortfall of at least $3.2 billion raises questions about its future.`\
-https://nytimes.com/2024/05/24/nyregion/medical-indemnity-fund-malpractice.html
 
