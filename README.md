@@ -1,3 +1,7 @@
+**Aid and human rights groups hailed the international court’s ruling, but said nations must pressure Israel to comply.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/05/24/world/israel-gaza-war-hamas-rafah/aid-and-human-rights-groups-hailed-the-international-courts-ruling-but-said-nations-must-pressure-israel-to-comply
+
 **What’s Spanish for ‘Chutzpah’?**\
 `Spain is yet another government that suppresses independence-seekers at home while applauding those abroad.`\
 https://nytimes.com/live/2024/05/21/opinion/thepoint/spain-palestine-recognition
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/24/world/middleeast/israel-gaza-kamal-adwan-hospital
 **Bird Flu Virus Found in Beef Tissue**\
 `Muscle from a sick dairy cow tested positive for the virus. The meat did not enter the commercial food supply, which officials said remained safe.`\
 https://nytimes.com/2024/05/24/health/bird-flu-beef.html
-
-**Countries Fail to Agree on Treaty to Prepare the World for the Next Pandemic**\
-`Negotiators plan to ask for more time. Among the sticking points are equitable access to vaccines and financing to set up surveillance systems.`\
-https://nytimes.com/2024/05/24/health/pandemic-treaty-vaccines.html
 
