@@ -1,3 +1,7 @@
+**Raw Milk Containing Bird-Flu Virus Can Sicken Mice, Study Finds**\
+`The results bolster evidence that virus-laden raw milk may be unsafe for humans.`\
+https://nytimes.com/2024/05/24/health/raw-milk-bird-flu-virus-mice.html
+
 **Trump Warms Up to Bringing Haley ‘On Our Team in Some Form’**\
 `The former president praised Nikki Haley, once his bitter rival for the Republican nomination, a day after she said that she would vote for him.`\
 https://nytimes.com/2024/05/24/us/politics/donald-trump-nikki-haley.html
