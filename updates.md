@@ -1,3 +1,11 @@
+**G.O.P. and Secret Service Clash Again Over Convention Protest Zone**\
+`Lawyers for the Republican National Convention asked again for the Secret Service to relocate a protest zone for the party’s convention in July. The agency quickly pushed back.`\
+https://nytimes.com/2024/05/23/us/politics/republican-national-convention-protest-zone.html
+
+**Facing Possible Cash Crunch, Giant Real Estate Fund Limits Withdrawals**\
+`Starwood Real Estate Income Trust is restricting what investors can redeem rather than sell its properties to raise cash.`\
+https://nytimes.com/2024/05/23/business/starwood-reit-limits-withdrawals.html
+
 **At a Trump Rally in the Bronx, Chants of ‘Build the Wall’**\
 `Speaking to a more diverse crowd than his events usually draw, Donald Trump made a series of pledges to New Yorkers and railed against President Biden and the migrant crisis.`\
 https://nytimes.com/2024/05/23/us/politics/trump-rally-bronx-nyc.html

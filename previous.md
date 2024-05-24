@@ -1,9 +1,13 @@
+**G.O.P. and Secret Service Clash Again Over Convention Protest Zone**\
+`Lawyers for the Republican National Convention asked again for the Secret Service to relocate a protest zone for the party’s convention in July. The agency quickly pushed back.`\
+https://nytimes.com/2024/05/23/us/politics/republican-national-convention-protest-zone.html
+
 **At a Trump Rally in the Bronx, Chants of ‘Build the Wall’**\
 `Speaking to a more diverse crowd than his events usually draw, Donald Trump made a series of pledges to New Yorkers and railed against President Biden and the migrant crisis.`\
 https://nytimes.com/2024/05/23/us/politics/trump-rally-bronx-nyc.html
 
 **Facing Possible Cash Crunch, Giant Real Estate Fund Limits Withdrawals**\
-`Starwood Real Estate Investment Trust is restricting what investors can redeem rather than sell its properties to raise cash.`\
+`Starwood Real Estate Income Trust is restricting what investors can redeem rather than sell its properties to raise cash.`\
 https://nytimes.com/2024/05/23/business/starwood-reit-limits-withdrawals.html
 
 **Review: ‘The Hours Are Feminine,’ a Family Braces for a Storm**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/23/well/mind/marijuana-cannabis-alcohol-study.html
 **The Full Guest List for Biden’s State Dinner With Kenya**\
 `The Bidens invited more than 450 guests, including Barack Obama, Bill and Hillary Clinton, Carol Moseley Braun, Melinda Gates, Lester Holt, LeVar Burton and Sean Penn.`\
 https://nytimes.com/2024/05/23/us/politics/full-guest-list-biden-state-dinner-kenya.html
-
-**F.D.A. Panel Endorses Safety of Colon-Cancer Blood Test**\
-`The Guardant Health Shield test, one committee member said, “is better than nothing for patients who are getting nothing, but it is not better than a colonoscopy.”`\
-https://nytimes.com/2024/05/23/health/colon-cancer-blood-test-guardant.html
 
