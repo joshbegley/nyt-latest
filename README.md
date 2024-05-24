@@ -1,3 +1,7 @@
+**The court’s decision highlights Israel’s growing diplomatic isolation.**\
+`By Patrick Kingsley`\
+https://nytimes.com/live/2024/05/24/world/israel-gaza-war-hamas-rafah/the-courts-decision-highlights-israels-growing-diplomatic-isolation
+
 **Israeli Forces Cut Off Access to Kamal Adwan Hospital in Northern Gaza**\
 `Israeli bombardments and raids have put many of Gaza’s hospitals out of operation and only a few remain even partially functional.`\
 https://nytimes.com/2024/05/24/world/middleeast/israel-gaza-kamal-adwan-hospital.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/05/24/business/gamestop-stock-meme.html
 **Review: A Delightful ‘Orfeo’ Returns to the Met Opera**\
 `The countertenor Anthony Roth Costanzo stars in a revival of Mark Morris’s witty, sensitively choreographed production.`\
 https://nytimes.com/2024/05/24/arts/music/review-a-delightful-orfeo-returns-to-the-met-opera.html
-
-**Where New Yorkers Start Being Polite and Stop Getting Real**\
-`The Portal, a video art installation connecting the city with Dublin, is open again, now with safeguards. But does changing the rules change the artwork?`\
-https://nytimes.com/2024/05/24/arts/television/the-portal-new-york.html
 
