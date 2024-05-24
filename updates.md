@@ -1,3 +1,7 @@
+**Countries Struggle to Agree on Treaty to Prepare the World for the Next Pandemic**\
+`Among the sticking points are equitable access to vaccines and financing to set up surveillance systems.`\
+https://nytimes.com/2024/05/24/health/pandemic-treaty-vaccines.html
+
 **Caleb Carr, Author of Dark Histories, Dies at 68**\
 `His own dark history prompted him to write about and investigate the roots of violence, notably in his best-selling novel “The Alienist.”`\
 https://nytimes.com/2024/05/24/books/caleb-carr-dead.html
