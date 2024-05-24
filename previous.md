@@ -1,3 +1,7 @@
+**Transcript: Ezra Klein Interviews Holly Herndon**\
+`The May 24, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/05/24/podcasts/transcript-ezra-klein-interviews-holly-herndon.html
+
 **Are University Athletes About to Earn a Big Payday?**\
 `A $2.8 billion class-action settlement proposal could finally erase the notion that college stars are amateurs — though the plan has drawn skeptics.`\
 https://nytimes.com/2024/05/24/business/dealbook/ncaa-student-athletes-pay.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/24/well/ozempic-kidney-disease-semaglutide.html
 **Ukraine Starts Freeing Some Prisoners to Join Its Military**\
 `At least 50 convicts have been freed under a new law that allows them to serve in exchange for the possibility of parole, part of an effort to replenish Ukraine’s depleted forces.`\
 https://nytimes.com/2024/05/24/world/europe/ukraine-russia-war-prisoners.html
-
-**A Week of Diplomatic Blows to Israel, and Congress Criticizes Alito**\
-`Plus, a big step toward college athlete pay.`\
-https://nytimes.com/2024/05/24/podcasts/rafah-invasion-icc-south-africa-alito-congress-response.html
 

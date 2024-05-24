@@ -1,3 +1,7 @@
+**Transcript: Ezra Klein Interviews Holly Herndon**\
+`The May 24, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/05/24/podcasts/transcript-ezra-klein-interviews-holly-herndon.html
+
 **Are University Athletes About to Earn a Big Payday?**\
 `A $2.8 billion class-action settlement proposal could finally erase the notion that college stars are amateurs — though the plan has drawn skeptics.`\
 https://nytimes.com/2024/05/24/business/dealbook/ncaa-student-athletes-pay.html
