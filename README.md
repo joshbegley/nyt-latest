@@ -10,8 +10,8 @@ https://nytimes.com/2024/05/24/world/middleeast/israel-gaza-kamal-adwan-hospital
 `Federal officials said that muscle from a sick dairy cow had tested positive for the virus, but reiterated that the commercial meat supply was safe.`\
 https://nytimes.com/2024/05/24/health/bird-flu-beef.html
 
-**Countries Struggle to Agree on Treaty to Prepare the World for the Next Pandemic**\
-`Among the sticking points are equitable access to vaccines and financing to set up surveillance systems.`\
+**Countries Fail to Agree on Treaty to Prepare the World for the Next Pandemic**\
+`Negotiators plan to ask for more time. Among the sticking points are equitable access to vaccines and financing to set up surveillance systems.`\
 https://nytimes.com/2024/05/24/health/pandemic-treaty-vaccines.html
 
 **Caleb Carr, Author of Dark Histories, Dies at 68**\
