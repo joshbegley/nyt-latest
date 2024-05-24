@@ -1,3 +1,7 @@
+**Chinese Billionaire Accused of Fraud Didn’t Need the Money, Lawyers Say**\
+`Prosecutors put Guo Wengui on trial in New York for defrauding investors of $1 billion. His lawyers told jurors he was building an anti-Communist movement.`\
+https://nytimes.com/2024/05/24/us/chinese-billionaire-accused-of-fraud-didnt-need-the-money-lawyers-say.html
+
 **John Koerner, Bluesman Who Inspired a Young Bob Dylan, Dies at 85**\
 `A spindly guitarist nicknamed Spider, Mr. Koerner was Mr. Dylan’s first friend in the scruffy world of Minneapolis bohemia where he learned about folk music.`\
 https://nytimes.com/2024/05/24/arts/music/spider-john-koerner-dead.html

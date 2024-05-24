@@ -1,3 +1,7 @@
+**Chinese Billionaire Accused of Fraud Didn’t Need the Money, Lawyers Say**\
+`Prosecutors put Guo Wengui on trial in New York for defrauding investors of $1 billion. His lawyers told jurors he was building an anti-Communist movement.`\
+https://nytimes.com/2024/05/24/us/chinese-billionaire-accused-of-fraud-didnt-need-the-money-lawyers-say.html
+
 **John Koerner, Bluesman Who Inspired a Young Bob Dylan, Dies at 85**\
 `A spindly guitarist nicknamed Spider, Mr. Koerner was Mr. Dylan’s first friend in the scruffy world of Minneapolis bohemia where he learned about folk music.`\
 https://nytimes.com/2024/05/24/arts/music/spider-john-koerner-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/24/us/uvalde-gun-instagram-activision-lawsuit.html
 **Fred Roos, Casting Director and Coppola Collaborator, Dies at 89**\
 `Widely considered to have the best eye for talent in Hollywood, he shared the best-picture Oscar with Francis Ford Coppola for “The Godfather Part II.”`\
 https://nytimes.com/2024/05/24/movies/fred-roos-dead.html
-
-**Biden’s Chance to Do the Right Thing in Gaza**\
-`The U.S. should side with the International Court of Justice in the Gaza war.`\
-https://nytimes.com/2024/05/24/opinion/biden-gaza-ukraine-war.html
 
