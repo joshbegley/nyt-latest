@@ -1,3 +1,7 @@
+**Word of the Day: pseudonym**\
+`This word has appeared in 108 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/24/learning/word-of-the-day-pseudonym.html
+
 **Friday Briefing**\
 `We’re covering a stumbling U.S. aid effort in Gaza and the latest Chinese military drills around Taiwan.`\
 https://nytimes.com/2024/05/24/briefing/gaza-china-taiwan-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/24/style/maria-bello-dominique-crenn-wedding.html
 **A Jaw-Dropping Question is Answered a Decade Later**\
 `Nora O’Neill and Gabriel Grand began dating in 2014. Ms. O’Neill’s twin had an inkling then that the relationship was going to get serious.`\
 https://nytimes.com/2024/05/24/style/nora-oneill-gabriel-grand-wedding.html
-
-**Decades in the Making, a New Era Dawns for the N.C.A.A.: Paying Athletes Directly**\
-`If approved by a judge, the $2.8 billion settlement of an antitrust lawsuit would allow for the first revenue-sharing plan for college athletes. The question now: How will it work?`\
-https://nytimes.com/2024/05/23/us/ncaa-athletes-payments.html
 

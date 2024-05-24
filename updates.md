@@ -1,3 +1,7 @@
+**Word of the Day: pseudonym**\
+`This word has appeared in 108 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/24/learning/word-of-the-day-pseudonym.html
+
 **Friday Briefing**\
 `We’re covering a stumbling U.S. aid effort in Gaza and the latest Chinese military drills around Taiwan.`\
 https://nytimes.com/2024/05/24/briefing/gaza-china-taiwan-ukraine.html
