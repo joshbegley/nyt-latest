@@ -1,3 +1,15 @@
+**Interest on Federal Student Loans Is Rising to 6.53%**\
+`The rate for undergraduate loans is up from 5.5 percent this past school year and higher than it has been in more than a decade.`\
+https://nytimes.com/2024/05/24/your-money/federal-student-loans-interest-rates.html
+
+**The Business Ties That Bind the U.S. and China Are Strong but Fraying**\
+`The prospects for future commerce, and peace, are intertwined, our columnist writes.`\
+https://nytimes.com/2024/05/24/business/united-states-china-chips-profits.html
+
+**How Algebra Became a Flashpoint in Schools**\
+`A tug of war in San Francisco over whether to teach algebra in eighth or ninth grade gets at wider national questions about serving all students fairly.`\
+https://nytimes.com/2024/05/24/us/algebra-achievement-gap.html
+
 **At the Kenya State Dinner, Jill Biden Is True Blue**\
 `In Sergio Hudson, the first lady is stepping up her fashion diplomacy game.`\
 https://nytimes.com/2024/05/24/style/jill-biden-kenya-state-dinner-fashion.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/24/world/asia/kabosu-doge-meme-dead.html
 **Landslide Buries Village in Papua New Guinea, Killing at Least 3**\
 `Many more were missing in the Pacific nation as recovery and rescue efforts were delayed by a blocked highway and fallen boulders.`\
 https://nytimes.com/2024/05/24/world/australia/papua-new-guinea-landslide.html
-
-**‘Zarqa’ Is a Madcap Canadian Comedy**\
-`This new YouTube sitcom from the creator of “Little Mosque on the Prairie” follows a divorced Muslim mother trying to pull one over on her ex.`\
-https://nytimes.com/2024/05/24/arts/television/zarqa.html
-
-**‘Romeo and Juliet’ Review: Plenty of Style, but Little Love**\
-`The London production, starring Tom Holland, sold out in hours. But its understated rendering of the central romance may leave some theatergoers wanting more.`\
-https://nytimes.com/2024/05/24/theater/tom-holland-romeo-and-juliet.html
-
-**Israeli Forces Recover Bodies of 3 More Hostages in Northern Gaza**\
-`The bodies were found in Jabaliya, where the Israeli military has been trying to root out a renewed Hamas insurgency.`\
-https://nytimes.com/2024/05/24/world/middleeast/israel-hostage-bodies-gaza-hamas.html
 
