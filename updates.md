@@ -1,3 +1,7 @@
+**Obama Is a Surprise Guest Among Allies at Biden’s State Dinner for Kenya**\
+`The state dinner was held in honor of the African nation, but it was clear that the night was about keeping Democratic allies close as President Biden heads into the heat of the 2024 campaign season.`\
+https://nytimes.com/2024/05/23/us/politics/biden-state-dinner-kenya.html
+
 **U.S. Approves Investment Product Tied to Popular Cryptocurrency Ether**\
 `The Securities and Exchange Commission gave its blessing to a fund that tracks the price of the most valuable cryptocurrency after Bitcoin.`\
 https://nytimes.com/2024/05/23/technology/ether-etf-sec.html
