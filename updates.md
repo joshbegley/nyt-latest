@@ -1,3 +1,7 @@
+**Are You Wearing Sunscreen the Right Way?**\
+`And other essential questions about protecting your skin from the sun, answered by experts.`\
+https://nytimes.com/article/spf-sunscreen-skin-care-routine.html
+
 **U.A.W. Seeks a New Election at Mercedes-Benz Plants in Alabama**\
 `The union, which lost an organizing vote at two factories last week, argued to federal officials that the automaker had violated labor laws.`\
 https://nytimes.com/2024/05/24/business/uaw-mercedes-benz-nlrb-election.html

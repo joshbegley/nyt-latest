@@ -1,3 +1,7 @@
+**Are You Wearing Sunscreen the Right Way?**\
+`And other essential questions about protecting your skin from the sun, answered by experts.`\
+https://nytimes.com/article/spf-sunscreen-skin-care-routine.html
+
 **U.A.W. Seeks a New Election at Mercedes-Benz Plants in Alabama**\
 `The union, which lost an organizing vote at two factories last week, argued to federal officials that the automaker had violated labor laws.`\
 https://nytimes.com/2024/05/24/business/uaw-mercedes-benz-nlrb-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/24/magazine/ai-essays-grading-ethics.html
 **NASA Astronauts to Wait Another Week for Boeing Starliner Launch**\
 `Officials from NASA and Boeing say they have worked out a solution to a helium leak that has kept the Starliner astronaut capsule grounded.`\
 https://nytimes.com/2024/05/24/science/boeing-starliner-nasa-launch.html
-
-**Israel says its military operations in Rafah don’t — and won’t — violate the World Court’s order.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/05/24/world/israel-gaza-war-hamas-rafah/israel-says-its-military-operations-in-rafah-dont-and-wont-violate-the-world-courts-order
 
