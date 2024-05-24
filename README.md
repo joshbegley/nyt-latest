@@ -1,3 +1,11 @@
+**A Bouquet of Songs for May Flowers**\
+`Tom Petty, Patrice Rushen, Billie Eilish and more.`\
+https://nytimes.com/2024/05/24/arts/music/amplifier-newsletter-may-flowers.html
+
+**Harrison Butker’s Very American Traditionalism**\
+`How Latin Mass Catholics embody the spirit of Vatican II.`\
+https://nytimes.com/2024/05/24/opinion/harrison-butker-catholicism.html
+
 **Google’s A.I. Search Errors Cause a Furor Online**\
 `The company’s latest A.I. search feature has erroneously told users to eat glue and rocks, sparking a backlash among users.`\
 https://nytimes.com/2024/05/24/technology/google-ai-overview-search.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/24/books/caleb-carr-dead.html
 **U.C.L.A. Police Make First Arrest in Attack on Protest Encampment**\
 `Edan On, an 18-year-old, was charged with assault.`\
 https://nytimes.com/2024/05/24/us/ucla-protest-arrest-edan-on.html
-
-**Food Rots on Trucks Outside Closed Rafah Border**\
-`A driver in Egypt said the onions on his truck have spoiled after being in the sun for a month, with shipments of aid and commercial food unable to enter Gaza amid Israel’s offensive on Rafah.`\
-https://nytimes.com/video/world/middleeast/100000009486472/gaza-food-aid-trucks-rafah-egypt.html
-
-**A Mexican Taco Stand Goes From Local Favorite to Michelin Darling**\
-`Taquería El Califa de León, in Mexico City, became the first Mexican taco stand to win a Michelin star. Since then, it has been deluged with customers and fame.`\
-https://nytimes.com/2024/05/24/world/americas/taqueria-el-califa-de-leon-mexico-city-michelin-star.html
 
