@@ -1,3 +1,7 @@
+**Read the I.C.J. Ruling on Israel’s Rafah Offensive**\
+`The International Court of Justice ruled on Friday that Israel must immediately halt its military offensive in the southern Gaza city of Rafah, dealing another blow to the country as it faces increasing international isolation.`\
+https://nytimes.com/interactive/2024/05/24/us/israelruling.html
+
 **Nikki Haley’s Path Back to Donald Trump**\
 `Readers offer their analysis of why she said she would vote for him. Also: Blaming the wife; maligning Justice Juan Merchan; a caregiver’s story.`\
 https://nytimes.com/2024/05/24/opinion/nikki-haley-donald-trump.html
