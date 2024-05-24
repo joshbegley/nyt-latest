@@ -1,3 +1,7 @@
+**‘Zarqa’ Is a Madcap Canadian Comedy**\
+`This new YouTube sitcom from the creator of “Little Mosque on the Prairie” follows a divorced Muslim mother trying to pull one over on her ex.`\
+https://nytimes.com/2024/05/24/arts/television/zarqa.html
+
 **‘Romeo and Juliet’ Review: Plenty of Style, but Little Love**\
 `The London production, starring Tom Holland, sold out in hours. But its understated rendering of the central romance may leave some theatergoers wanting more.`\
 https://nytimes.com/2024/05/24/theater/tom-holland-romeo-and-juliet.html
