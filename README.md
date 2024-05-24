@@ -1,7 +1,3 @@
-**Would You Want a Robot to Speak at Your Graduation?**\
-`An A.I. robot gave a commencement address at a university in Buffalo. What do you think? Who would you want to speak at your graduation?`\
-https://nytimes.com/2024/05/24/learning/would-you-want-a-robot-to-speak-at-your-graduation.html
-
 **Transcript: Ezra Klein Interviews Holly Herndon**\
 `The May 24, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/05/24/podcasts/transcript-ezra-klein-interviews-holly-herndon.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/05/24/briefing/a-polling-risk-for-trump.html
 **Ozempic Cuts Risk of Chronic Kidney Disease Complications, Study Finds**\
 `A major clinical trial showed such promising results that the drug’s maker halted it early.`\
 https://nytimes.com/2024/05/24/well/ozempic-kidney-disease-semaglutide.html
+
+**Ukraine Starts Freeing Some Prisoners to Join Its Military**\
+`At least 50 convicts have been freed under a new law that allows them to serve in exchange for the possibility of parole, part of an effort to replenish Ukraine’s depleted forces.`\
+https://nytimes.com/2024/05/24/world/europe/ukraine-russia-war-prisoners.html
 
