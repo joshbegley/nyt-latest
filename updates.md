@@ -1,3 +1,7 @@
+**U.S. Approves Investment Product Tied to Popular Cryptocurrency Ether**\
+`The Securities and Exchange Commission gave its blessing to a fund that tracks the price of the most valuable cryptocurrency after Bitcoin.`\
+https://nytimes.com/2024/05/23/technology/ether-etf-sec.html
+
 **Italian Teenager to Become the First Millennial Saint**\
 `Pope Francis attributed a second miracle to Carlo Acutis, one of the last steps toward canonization.`\
 https://nytimes.com/2024/05/23/world/europe/carlo-acutis-saint-catholic.html
