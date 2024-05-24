@@ -1,3 +1,15 @@
+**‘The Beach Boys’ Review: How to Make Good Vibrations**\
+`This Disney documentary looks at the family ties and sweet harmonies that turned a California band into a popular treasure.`\
+https://nytimes.com/2024/05/24/movies/beach-boys-review.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/05/24/crosswords/spelling-bee-forum.html
+
+**Friends?**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2024/05/24/learning/friends.html
+
 **‘The Daily Show’ Skewers Samuel Alito Over Another Provocative Flag**\
 `“Did this guy get a two-for-one deal at the MAGA flag store?” Michael Kosta said of the Supreme Court justice on Thursday’s “The Daily Show.”`\
 https://nytimes.com/2024/05/24/arts/television/late-night-samuel-alito-flag.html
