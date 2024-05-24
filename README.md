@@ -1,3 +1,11 @@
+**Want to Better Understand America? Consider All-You-Can-Eat Shrimp.**\
+`The downfall of Red Lobster suggests consumers are parched for value.`\
+https://nytimes.com/2024/05/24/opinion/red-lobster-bankruptcy-economy.html
+
+**Can I Use A.I. to Grade My Students’ Papers?**\
+`The magazine’s Ethicist columnist on artificial intelligence platforms, and whether it’s hypocritical for teachers to use these tools while forbidding students from doing the same.`\
+https://nytimes.com/2024/05/24/magazine/ai-essays-grading-ethics.html
+
 **NASA Astronauts to Wait Another Week for Boeing Starliner Launch**\
 `Officials from NASA and Boeing say they have worked out a solution to a helium leak that has kept the Starliner astronaut capsule grounded.`\
 https://nytimes.com/2024/05/24/science/boeing-starliner-nasa-launch.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/24/arts/music/rolling-stones-live-review.html
 **A Bouquet of Songs for May Flowers**\
 `Tom Petty, Patrice Rushen, Billie Eilish and more.`\
 https://nytimes.com/2024/05/24/arts/music/amplifier-newsletter-may-flowers.html
-
-**Harrison Butker’s Very American Traditionalism**\
-`How Latin Mass Catholics embody the spirit of Vatican II.`\
-https://nytimes.com/2024/05/24/opinion/harrison-butker-catholicism.html
-
-**Google’s A.I. Search Errors Cause a Furor Online**\
-`The company’s latest A.I. search feature has erroneously told users to eat glue and rocks, provoking a backlash among users.`\
-https://nytimes.com/2024/05/24/technology/google-ai-overview-search.html
 
