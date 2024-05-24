@@ -1,3 +1,11 @@
+**The Best Books of the Year (So Far)**\
+`The nonfiction and novels we can’t stop thinking about.`\
+https://nytimes.com/2024/05/24/books/best-books-2024-so-far.html
+
+**Bird Flu Virus Found in Beef Tissue**\
+`Muscle from a sick dairy cow tested positive for the virus. The meat did not enter the commercial food supply, which officials said remained safe.`\
+https://nytimes.com/2024/05/24/health/bird-flu-beef.html
+
 **The court’s decision highlights Israel’s growing diplomatic isolation.**\
 `By Patrick Kingsley`\
 https://nytimes.com/live/2024/05/24/world/israel-gaza-war-hamas-rafah/the-courts-decision-highlights-israels-growing-diplomatic-isolation
