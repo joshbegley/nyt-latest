@@ -1,3 +1,11 @@
+**Robert De Niro Narrates an Anti-Trump Ad for Biden**\
+`The ad uses the actor’s distinctive voice to try to remind voters of the chaos of Donald Trump’s presidency and warn them about a second Trump term.`\
+https://nytimes.com/2024/05/24/us/politics/robert-deniro-trump-biden-ad.html
+
+**Morgan Spurlock, Documentarian Known for ‘Super Size Me,’ Dies at 53**\
+`His 2004 film, which was nominated for an Oscar, followed Mr. Spurlock as he ate nothing but McDonald’s for a month.`\
+https://nytimes.com/2024/05/24/arts/morgan-spurlock-dead-super-size-me.html
+
 **When Age Catches Up to a Tennis Player**\
 `They consider their bodies and the results on the court to determine when to hang it up.`\
 https://nytimes.com/2024/05/24/sports/tennis/french-open-players-age.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/24/business/raw-milk-bird-flu-infowars-disinformatio
 **Raw Milk Containing Bird-Flu Virus Can Sicken Mice, Study Finds**\
 `The results bolster evidence that virus-laden raw milk may be unsafe for humans.`\
 https://nytimes.com/2024/05/24/health/raw-milk-bird-flu-virus-mice.html
-
-**In the Bronx, Trump Imagines His New York Glory Days**\
-`For most New Yorkers, though, his early days are just a bad memory.`\
-https://nytimes.com/live/2024/05/21/opinion/thepoint/trump-bronx-new-york
-
-**Hsieh Su-Wei, at 38, Is a Dominant Force in Doubles**\
-`She has won seven majors, including the French Open twice.`\
-https://nytimes.com/2024/05/24/sports/tennis/french-open-hsieh-su-wei-doubles.html
 
