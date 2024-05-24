@@ -1,3 +1,15 @@
+**U.C.L.A. Police Make First Arrest in Attack on Protest Encampment**\
+`Edan On, an 18-year-old, was charged with assault.`\
+https://nytimes.com/2024/05/24/us/ucla-protest-arrest-edan-on.html
+
+**Food Rots on Trucks Outside Closed Rafah Border**\
+`A driver in Egypt said the onions on his truck have spoiled after being in the sun for a month, with shipments of aid and commercial food unable to enter Gaza amid Israel’s offensive on Rafah.`\
+https://nytimes.com/video/world/middleeast/100000009486472/gaza-food-aid-trucks-rafah-egypt.html
+
+**A Mexican Taco Stand Goes From Local Favorite to Michelin Darling**\
+`Taquería El Califa de León, in Mexico City, became the first Mexican taco stand to win a Michelin star. Since then, it has been deluged with customers and fame.`\
+https://nytimes.com/2024/05/24/world/americas/taqueria-el-califa-de-leon-mexico-city-michelin-star.html
+
 **Fixing the Calamity in U.S. Math Knowledge Starts With Algebra**\
 `Giving up means that math scores will continue to plummet and racial gaps will grow.`\
 https://nytimes.com/2024/05/21/opinion/algebra-math-racial-gap.html
