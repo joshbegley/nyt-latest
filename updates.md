@@ -1,3 +1,7 @@
+**I Was a Nude Model for a Half Hour. Revelatory? Actually, Yes.**\
+`Two shows — an art fair in Brooklyn and an Yves Klein exhibition uptown — ask if nude art can still inspire or shock. I joined in to find out.`\
+https://nytimes.com/2024/05/24/arts/design/art-nudity-models.html
+
 **She Was More Than the Woman Who Made Julia Child Famous**\
 `In “The Editor,” Sara B. Franklin argues that Judith Jones was a “publishing legend,” transcending industry sexism to champion cookbooks — and Anne Frank.`\
 https://nytimes.com/2024/05/24/books/review/the-editor-judith-jones-sara-franklin.html
