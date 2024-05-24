@@ -1,3 +1,19 @@
+**The Big Number: $48.75**\
+`A series of cryptic social media posts was all it took to push up the stock price of the otherwise struggling video game retailer GameStop.`\
+https://nytimes.com/interactive/2024/05/24/business/gamestop-stock-meme.html
+
+**Review: A Delightful ‘Orfeo’ Returns to the Met Opera**\
+`The countertenor Anthony Roth Costanzo stars in a revival of Mark Morris’s witty, sensitively choreographed production.`\
+https://nytimes.com/2024/05/24/arts/music/review-a-delightful-orfeo-returns-to-the-met-opera.html
+
+**Where New Yorkers Start Being Polite and Stop Getting Real**\
+`The Portal, a video art installation connecting the city with Dublin, is open again, now with safeguards. But does changing the rules change the artwork?`\
+https://nytimes.com/2024/05/24/arts/television/the-portal-new-york.html
+
+**Fixing the Calamity in U.S. Math Knowledge Starts With Algebra**\
+`Giving up means that math scores will continue to plummet and racial gaps will grow.`\
+https://nytimes.com/live/2024/05/21/opinion/thepoint/algebra-math-racial-gap
+
 **I Was a Nude Model for a Half Hour. Revelatory? Actually, Yes.**\
 `Two shows — an art fair in Brooklyn and an Yves Klein exhibition uptown — ask if nude art can still inspire or shock. I joined in to find out.`\
 https://nytimes.com/2024/05/24/arts/design/art-nudity-models.html
@@ -21,20 +37,4 @@ https://nytimes.com/interactive/2024/05/24/us/israelruling.html
 **Nikki Haley’s Path Back to Donald Trump**\
 `Readers offer their analysis of why she said she would vote for him. Also: Blaming the wife; maligning Justice Juan Merchan; a caregiver’s story.`\
 https://nytimes.com/2024/05/24/opinion/nikki-haley-donald-trump.html
-
-**Three Missionaries in Haiti Are Killed in Gang Attack**\
-`The latest assault by Haitian gangs left the three people, including two Americans, dead in Port-au-Prince.`\
-https://nytimes.com/2024/05/24/world/americas/haiti-gang-attack-missionaries-dead.html
-
-**50 Years Ago, Chris Evert and Bjorn Borg Changed Tennis**\
-`As teenagers, they brought the two-handed backhand to the sport — and to their first major championships, both at the French Open.`\
-https://nytimes.com/2024/05/24/sports/tennis/french-open-chris-evert-bjorn-borg.html
-
-**Younger Adults Are Missing Early Warning Signs of Colon Cancer**\
-`A new analysis of dozens of studies has identified the most common warning symptoms in adults under 50, whose rates of colon and rectal cancer are on the rise.`\
-https://nytimes.com/2024/05/24/health/colon-cancer-warning-signs.html
-
-**Hot dogs, hot slaw and plenty of ranch**\
-`The point, on a long weekend that heralds the start of a new season, is to cook with the intention of delivering pleasure as much as sustenance.`\
-https://nytimes.com/2024/05/24/dining/memorial-day-weekend-recipes-hot-dogs.html
 
