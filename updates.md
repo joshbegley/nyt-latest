@@ -1,3 +1,7 @@
+**Google’s A.I. Search Errors Cause a Furor Online**\
+`The company’s latest A.I. search feature has erroneously told users to eat glue and rocks, provoking a backlash among users.`\
+https://nytimes.com/2024/05/24/technology/google-ai-overview-search.html
+
 **Aid and human rights groups hailed the international court’s ruling, but said nations must pressure Israel to comply.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/05/24/world/israel-gaza-war-hamas-rafah/aid-and-human-rights-groups-hailed-the-international-courts-ruling-but-said-nations-must-pressure-israel-to-comply

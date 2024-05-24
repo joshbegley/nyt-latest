@@ -19,7 +19,7 @@ https://nytimes.com/2024/05/24/arts/music/amplifier-newsletter-may-flowers.html
 https://nytimes.com/2024/05/24/opinion/harrison-butker-catholicism.html
 
 **Google’s A.I. Search Errors Cause a Furor Online**\
-`The company’s latest A.I. search feature has erroneously told users to eat glue and rocks, sparking a backlash among users.`\
+`The company’s latest A.I. search feature has erroneously told users to eat glue and rocks, provoking a backlash among users.`\
 https://nytimes.com/2024/05/24/technology/google-ai-overview-search.html
 
 **The Best Books of the Year (So Far)**\
