@@ -30,11 +30,11 @@ https://nytimes.com/2024/05/24/world/americas/haiti-gang-attack-missionaries-dea
 `As teenagers, they brought the two-handed backhand to the sport — and to their first major championships, both at the French Open.`\
 https://nytimes.com/2024/05/24/sports/tennis/french-open-chris-evert-bjorn-borg.html
 
-**Hot dogs, hot slaw and plenty of ranch**\
-`The point, on a long weekend that heralds the start of a new season, is to cook with the intention of delivering pleasure as much as sustenance.`\
-https://nytimes.com/2024/05/24/dining/memorial-day-weekend-recipes-hot-dogs.html
-
 **Younger Adults Are Missing Early Warning Signs of Colon Cancer**\
 `A new analysis of dozens of studies has identified the most common warning symptoms in adults under 50, whose rates of colon and rectal cancer are on the rise.`\
 https://nytimes.com/2024/05/24/health/colon-cancer-warning-signs.html
+
+**Hot dogs, hot slaw and plenty of ranch**\
+`The point, on a long weekend that heralds the start of a new season, is to cook with the intention of delivering pleasure as much as sustenance.`\
+https://nytimes.com/2024/05/24/dining/memorial-day-weekend-recipes-hot-dogs.html
 
