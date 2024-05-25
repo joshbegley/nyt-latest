@@ -1,3 +1,7 @@
+**Bawdy Comedy ‘Anora’ Wins Palme d’Or at Cannes Film Festival**\
+`The movie about a sex worker, from the American filmmaker Sean Baker, took the top prize at a ceremony that also honored George Lucas.`\
+https://nytimes.com/2024/05/25/movies/anora-palme-dor-sean-baker.html
+
 **Biden Delivers Commencement Address at West Point**\
 `President Biden called on graduates of the U.S. Military Academy to honor their oath to protect American democracy against threats abroad and — in an indirect reference to former President Donald J. Trump — at home.`\
 https://nytimes.com/video/us/politics/100000009488323/biden-west-point-commencement.html

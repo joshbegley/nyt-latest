@@ -1,3 +1,7 @@
+**Bawdy Comedy ‘Anora’ Wins Palme d’Or at Cannes Film Festival**\
+`The movie about a sex worker, from the American filmmaker Sean Baker, took the top prize at a ceremony that also honored George Lucas.`\
+https://nytimes.com/2024/05/25/movies/anora-palme-dor-sean-baker.html
+
 **Biden Delivers Commencement Address at West Point**\
 `President Biden called on graduates of the U.S. Military Academy to honor their oath to protect American democracy against threats abroad and — in an indirect reference to former President Donald J. Trump — at home.`\
 https://nytimes.com/video/us/politics/100000009488323/biden-west-point-commencement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/25/world/asia/mount-everest-summit-dead.html
 **As Israel continues its Rafah offensive, some Gazans choose to stay.**\
 `By Raja Abdulrahim and Bilal Shbair`\
 https://nytimes.com/live/2024/05/25/world/israel-gaza-war-hamas-rafah/as-israel-continues-its-rafah-offensive-some-gazans-choose-to-stay
-
-**Preliminary cease-fire discussions were held this weekend in Paris, officials said.**\
-`For months, Qatar, the United States and Egypt have been trying to cajole Israel and Hamas into accepting a truce and an exchange of captives that could help bring the seven-month war to a close.`\
-https://nytimes.com/live/2024/05/25/world/israel-gaza-war-hamas-rafah/negotiators-hope-to-restart-israel-gaza-hostage-and-cease-fire-talks-within-a-week-officials-say
 
