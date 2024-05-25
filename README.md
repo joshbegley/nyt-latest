@@ -1,3 +1,7 @@
+**Why Do Aid Groups Stay in Lawless Haiti?**\
+`Two American missionaries and a Haitian aid director were killed, the latest gang violence against aid groups in Haiti’s capital.`\
+https://nytimes.com/2024/05/25/world/americas/why-do-aid-groups-stay-in-lawless-haiti.html
+
 **Roughly Speaking**\
 `John Kugelman’s Sunday puzzle might sting a little, but don’t take it personally.`\
 https://nytimes.com/2024/05/25/crosswords/daily-puzzle-2024-05-26.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/25/world/asia/india-fire-amusement-park.html
 **Some U.S. Weapons Stymied by Russian Jamming in Ukraine**\
 `Two classified Ukrainian reports show that some U.S. precision-guided weapons are vulnerable to electronic warfare, an element in Ukraine’s recent battlefield setbacks.`\
 https://nytimes.com/2024/05/25/world/europe/us-weapons-russia-jamming-ukraine.html
-
-**Adele Faber, Who Helped to Change How Parents Talk to Children, Dies at 96**\
-`With her collaborator, Elaine Mazlish, she wrote “How to Talk So Kids Will Listen & Listen So Kids Will Talk” and other books that have endured as parenting bibles.`\
-https://nytimes.com/2024/05/25/parenting/adele-faber-dead.html
 
