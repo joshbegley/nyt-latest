@@ -1,4 +1,4 @@
-**Many in College Sports Are Feeling Unsettled About N.C.A.A.’s Pay Plan**\
+**N.C.A.A. Athletes’ Pay Deal Raises Questions About Future of College Sports**\
 `The landmark settlement made many wonder what the reality — and impact — of revenue-sharing plans with college athletes would look like.`\
 https://nytimes.com/2024/05/24/us/ncaa-payments-athletes-reaction.html
 
