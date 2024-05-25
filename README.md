@@ -1,3 +1,7 @@
+**The Netflix Chief’s Plan to Get You to Binge Even More**\
+`Ted Sarandos helped lead Netflix to victory in streaming, but the war for your attention isn’t over.`\
+https://nytimes.com/2024/05/25/magazine/ted-sarandos-netflix-interview.html
+
 **How Trump’s Trial Fueled His Presidential Campaign**\
 `Donald Trump’s Manhattan criminal trial has had a profound impact on the 2024 presidential race. Jonathan Swan breaks down the politics of the case, and its galvanizing effect on the Republican Party base.`\
 https://nytimes.com/video/us/politics/100000009483084/trump-trial-2024-campaign.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/25/business/dogs-at-work-roxane-gay-work-friend.html
 **Overheard at the Met Gala**\
 `A look beyond the red carpet at the fans who staked out a spot to see the fashion and glamour in person.`\
 https://nytimes.com/2024/05/25/arts/overheard-met-gala.html
-
-**Harry Hamlin Got Into Gardening Because of ‘The Martian’**\
-`“If he can do it on Mars,” said the actor, now starring in the cooking show “In the Kitchen With Harry Hamlin,” “I can do it in my backyard.”`\
-https://nytimes.com/2024/05/25/arts/television/harry-hamlin-in-the-kitchen.html
 
