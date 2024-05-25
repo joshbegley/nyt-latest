@@ -1,3 +1,15 @@
+**After Billions of Dollars in Losses, Canada Post Warns It May Run Out of Cash**\
+`While the post office considers plans to revamp its business model, any major fixes are likely to be politically vexing.`\
+https://nytimes.com/2024/05/25/world/canada/canada-post-losses.html
+
+**The Connections Companion No. 350, May 26, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/25/crosswords/connections-companion-350.html
+
+**Today’s Wordle Review No. 1,072, May 26, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/25/crosswords/wordle-review-1072.html
+
 **Drones Have Offered Last Line of Defense for a Strategic Ukrainian Town**\
 `Short of troops and artillery, soldiers increasingly have been relying on pilotless drones to drop explosives and supplies to hold Chasiv Yar. But how long can they slow the Russian advance?`\
 https://nytimes.com/2024/05/25/world/europe/ukraine-drones-defense-chasiv-yar.html
