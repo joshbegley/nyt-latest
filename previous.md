@@ -1,3 +1,11 @@
+**G7 Finance Ministers Close Ranks as Tensions with Russia and China Fester**\
+`Western economic officials projected a united front, and braced for retaliation, as they prepped tougher sanctions and tariffs.`\
+https://nytimes.com/2024/05/25/business/economy/g7-finance-ministers-close-ranks-as-tensions-with-russia-and-china-fester.html
+
+**Sometimes, Obsession Finds Its Outlet in a Book. Here Are 2.**\
+`A Gwendolyn Brooks biography; a Bill Cunningham photo collection.`\
+https://nytimes.com/2024/05/25/books/read-like-wind-recommendations.html
+
 **Lists!!!**\
 `How they organize the chaos of the world, for good and for bad.`\
 https://nytimes.com/2024/05/25/podcasts/lists.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/25/opinion/fresh-air-fund.html
 **Foster Care and Child Welfare**\
 `Readers discuss a guest essay about removing children from troubled homes.`\
 https://nytimes.com/2024/05/25/opinion/foster-care-child-welfare.html
-
-**African Music to the World**\
-`Artists from the continent are breaking into the Western mainstream. We’ve got a playlist for your weekend cookout.`\
-https://nytimes.com/2024/05/25/briefing/african-music-to-the-world.html
-
-**After Billions of Dollars in Losses, Canada Post Warns It May Run Out of Cash**\
-`While the post office considers plans to revamp its business model, any major fixes are likely to be politically vexing.`\
-https://nytimes.com/2024/05/25/world/canada/canada-post-losses.html
 

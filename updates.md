@@ -1,3 +1,11 @@
+**G7 Finance Ministers Close Ranks as Tensions with Russia and China Fester**\
+`Western economic officials projected a united front, and braced for retaliation, as they prepped tougher sanctions and tariffs.`\
+https://nytimes.com/2024/05/25/business/economy/g7-finance-ministers-close-ranks-as-tensions-with-russia-and-china-fester.html
+
+**Sometimes, Obsession Finds Its Outlet in a Book. Here Are 2.**\
+`A Gwendolyn Brooks biography; a Bill Cunningham photo collection.`\
+https://nytimes.com/2024/05/25/books/read-like-wind-recommendations.html
+
 **Lists!!!**\
 `How they organize the chaos of the world, for good and for bad.`\
 https://nytimes.com/2024/05/25/podcasts/lists.html
