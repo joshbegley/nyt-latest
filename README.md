@@ -1,3 +1,7 @@
+**5 Mount Everest Climbers Are Dead and 3 Missing This Summit Season**\
+`Unnerving videos have circulated, showing a snarl of climbers on the summit ridge even as fewer permits were issued this year. Eighteen climbers died in 2023.`\
+https://nytimes.com/2024/05/25/world/asia/mount-everest-summit-dead.html
+
 **As Israel continues its Rafah offensive, some Gazans choose to stay.**\
 `By Raja Abdulrahim and Bilal Shbair`\
 https://nytimes.com/live/2024/05/25/world/israel-gaza-war-hamas-rafah/as-israel-continues-its-rafah-offensive-some-gazans-choose-to-stay
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/25/business/economy/g7-finance-ministers-close-ranks
 **Sometimes, Obsession Finds Its Outlet in a Book. Here Are 2.**\
 `A Gwendolyn Brooks biography; a Bill Cunningham photo collection.`\
 https://nytimes.com/2024/05/25/books/read-like-wind-recommendations.html
-
-**Lists!!!**\
-`How they organize the chaos of the world, for good and for bad.`\
-https://nytimes.com/2024/05/25/podcasts/lists.html
 
