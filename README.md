@@ -1,3 +1,11 @@
+**Some U.S. Weapons Stymied by Russian Jamming in Ukraine**\
+`Two classified Ukrainian reports show that some U.S. precision-guided weapons are vulnerable to electronic warfare, an element in Ukraine’s recent battlefield setbacks.`\
+https://nytimes.com/2024/05/25/world/europe/us-weapons-russia-jamming-ukraine.html
+
+**Adele Faber, Who Helped to Change How Parents Talk to Children, Dies at 96**\
+`With her collaborator, Elaine Mazlish, she wrote “How to Talk So Kids Will Listen & Listen So Kids Will Talk” and other books that have endured as parenting bibles.`\
+https://nytimes.com/2024/05/25/parenting/adele-faber-dead.html
+
 **New Jersey Man Gets 12 Years for Violent Acts During Jan. 6 Riot**\
 `Christopher Joseph Quaglin rushed the police and grabbed an officer by the neck during the U.S. Capitol riot, prosecutors said.`\
 https://nytimes.com/2024/05/25/nyregion/nj-capitol-riot-sentence.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/25/movies/mohammad-rasoulof-cannes-the-seed-of-the-s
 **‘Sedition Panda,’ a Jan. 6 Rioter, Is Convicted of Assaulting an Officer**\
 `Jesse James Rumson, known as Sedition Panda for the costume head he wore, was found guilty of eight charges related to his participation in the breach of the U.S. Capitol.`\
 https://nytimes.com/2024/05/25/us/politics/sedition-panda-jan-6-convicted.html
-
-**Crowds for Raisi Show Support for Iranian State, Supreme Leader Says**\
-`Ayatollah Ali Khamenei pointed to the turnout at memorials for Iran’s president at a time when external critics say popular backing for the Islamic Republic has weakened.`\
-https://nytimes.com/2024/05/25/world/middleeast/iran-khamenei-raisi-crowds.html
-
-**Ukraine Steps Up Attacks With U.S. Long-Range Missiles**\
-`The assaults have hit military targets in Russian-occupied territory in Ukraine. Pressure is now mounting on Washington to let Kyiv fire the missiles into Russia itself.`\
-https://nytimes.com/2024/05/25/world/europe/ukraine-russia-long-range-missiles.html
 
