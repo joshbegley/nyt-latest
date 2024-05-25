@@ -1,3 +1,7 @@
+**‘New Territory’ for Americans: Deadly Heat in the Workplace**\
+`Deaths are rising sharply, and the Biden administration is trying to respond. Its plan faces big hurdles.`\
+https://nytimes.com/2024/05/25/climate/extreme-heat-workplace.html
+
 **At Least 22 Dead in Fire at Amusement Park in India, Police Say**\
 `Officers said the cause of the fire was still under investigation, but they plan to file a negligence charge against the owner of the facility.`\
 https://nytimes.com/2024/05/25/world/asia/india-fire-amusement-park.html
