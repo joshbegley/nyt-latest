@@ -1,3 +1,7 @@
+**As Israel continues its Rafah offensive, some Gazans choose to stay.**\
+`By Raja Abdulrahim and Bilal Shbair`\
+https://nytimes.com/live/2024/05/25/world/israel-gaza-war-hamas-rafah/as-israel-continues-its-rafah-offensive-some-gazans-choose-to-stay
+
 **Israel Continues to Fight in Rafah, Despite the World Court Order, Officials Say**\
 `The court on Friday ordered Israel to suspend its military offensive and “any other action” in Rafah that might wholly or partly destroy the Palestinian population there.`\
 https://nytimes.com/2024/05/25/world/middleeast/icj-idf-rafah-offensive.html
