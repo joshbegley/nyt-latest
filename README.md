@@ -32,7 +32,7 @@ https://nytimes.com/2024/05/25/world/europe/ukraine-russia-long-range-missiles.h
 
 **G7 Finance Ministers Close Ranks as Tensions with Russia and China Fester**\
 `Western economic officials projected a united front, and braced for retaliation, as they prepped tougher sanctions and tariffs.`\
-https://nytimes.com/2024/05/25/business/economy/g7-finance-ministers-close-ranks-as-tensions-with-russia-and-china-fester.html
+https://nytimes.com/2024/05/25/business/economy/g7-ukraine-russia-assets-china.html
 
 **Sometimes, Obsession Finds Its Outlet in a Book. Here Are 2.**\
 `A Gwendolyn Brooks biography; a Bill Cunningham photo collection.`\
