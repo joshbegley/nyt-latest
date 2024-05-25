@@ -1,3 +1,7 @@
+**New Jersey Man Gets 12 Years for Violent Acts During Jan. 6 Riot**\
+`Christopher Joseph Quaglin rushed the police and grabbed an officer by the neck during the U.S. Capitol riot, prosecutors said.`\
+https://nytimes.com/2024/05/25/nyregion/nj-capitol-riot-sentence.html
+
 **The Alito Family’s ‘Appeal to Heaven’**\
 `When it comes to Justice Alito, we’re in uncharted territory.`\
 https://nytimes.com/2024/05/25/opinion/justice-alito-flag.html
