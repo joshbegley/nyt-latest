@@ -1,3 +1,11 @@
+**Some U.S. Weapons Stymied by Russian Jamming in Ukraine**\
+`Two classified Ukrainian reports show that some U.S. precision-guided weapons are vulnerable to electronic warfare, an element in Ukraine’s recent battlefield setbacks.`\
+https://nytimes.com/2024/05/25/world/europe/us-weapons-russia-jamming-ukraine.html
+
+**Adele Faber, Who Helped to Change How Parents Talk to Children, Dies at 96**\
+`With her collaborator, Elaine Mazlish, she wrote “How to Talk So Kids Will Listen & Listen So Kids Will Talk” and other books that have endured as parenting bibles.`\
+https://nytimes.com/2024/05/25/parenting/adele-faber-dead.html
+
 **New Jersey Man Gets 12 Years for Violent Acts During Jan. 6 Riot**\
 `Christopher Joseph Quaglin rushed the police and grabbed an officer by the neck during the U.S. Capitol riot, prosecutors said.`\
 https://nytimes.com/2024/05/25/nyregion/nj-capitol-riot-sentence.html
