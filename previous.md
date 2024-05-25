@@ -1,3 +1,7 @@
+**Hundreds Feared Dead in Papua New Guinea Landslide**\
+`Nearly 4,000 people live in villages that were engulfed, a local official said. Unstable debris was complicating search and rescue efforts in a rural part of the Pacific nation.`\
+https://nytimes.com/2024/05/25/world/australia/papua-new-guinea-landslide.html
+
 **Xi Jinping’s Recipe for Total Control: An Army of Eyes and Ears**\
 `Reviving a Mao-era surveillance campaign, the authorities are tracking residents, schoolchildren and businesses to forestall any potential unrest.`\
 https://nytimes.com/2024/05/25/world/asia/china-surveillance-xi.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/24/world/middleeast/icj-israel-gaza-rafah-ruling.htm
 **Menendez Judge Bars Some Prosecution Evidence in Bribery Trial**\
 `The ruling could undermine prosecutors’ ability to prove certain elements of the bribery case against Senator Robert Menendez, a New Jersey Democrat.`\
 https://nytimes.com/2024/05/24/nyregion/menendez-bribery-case-evidence.html
-
-**The Anti-Trump Republicans Worried About the Biden Campaign**\
-`Some G.O.P. Trump opponents want to hear more from the Biden campaign. It says it’s on it.`\
-https://nytimes.com/2024/05/24/us/politics/trump-biden-republicans.html
 

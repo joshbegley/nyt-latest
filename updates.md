@@ -1,3 +1,7 @@
+**Hundreds Feared Dead in Papua New Guinea Landslide**\
+`Nearly 4,000 people live in villages that were engulfed, a local official said. Unstable debris was complicating search and rescue efforts in a rural part of the Pacific nation.`\
+https://nytimes.com/2024/05/25/world/australia/papua-new-guinea-landslide.html
+
 **Xi Jinping’s Recipe for Total Control: An Army of Eyes and Ears**\
 `Reviving a Mao-era surveillance campaign, the authorities are tracking residents, schoolchildren and businesses to forestall any potential unrest.`\
 https://nytimes.com/2024/05/25/world/asia/china-surveillance-xi.html
