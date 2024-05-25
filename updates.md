@@ -1,3 +1,7 @@
+**Michael Sugrue, Whose Philosophy Lectures Were a YouTube Hit, Dies at 66**\
+`After an academic career spent in near obscurity, he became an internet phenomenon during the pandemic by uploading talks he had given three decades earlier.`\
+https://nytimes.com/2024/05/25/education/michael-sugrue-dead.html
+
 **Bawdy Comedy ‘Anora’ Wins Palme d’Or at Cannes Film Festival**\
 `The movie about a sex worker, from the American filmmaker Sean Baker, took the top prize at a ceremony that also honored George Lucas.`\
 https://nytimes.com/2024/05/25/movies/anora-palme-dor-sean-baker.html

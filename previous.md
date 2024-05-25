@@ -1,3 +1,7 @@
+**Michael Sugrue, Whose Philosophy Lectures Were a YouTube Hit, Dies at 66**\
+`After an academic career spent in near obscurity, he became an internet phenomenon during the pandemic by uploading talks he had given three decades earlier.`\
+https://nytimes.com/2024/05/25/education/michael-sugrue-dead.html
+
 **Bawdy Comedy ‘Anora’ Wins Palme d’Or at Cannes Film Festival**\
 `The movie about a sex worker, from the American filmmaker Sean Baker, took the top prize at a ceremony that also honored George Lucas.`\
 https://nytimes.com/2024/05/25/movies/anora-palme-dor-sean-baker.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/25/opinion/justice-alito-flag.html
 **5 Mount Everest Climbers Are Dead and 3 Missing This Summit Season**\
 `Unnerving videos have circulated, showing a snarl of climbers on the summit ridge even as fewer permits were issued this year. Eighteen climbers died in 2023.`\
 https://nytimes.com/2024/05/25/world/asia/mount-everest-summit-dead.html
-
-**As Israel continues its Rafah offensive, some Gazans choose to stay.**\
-`By Raja Abdulrahim and Bilal Shbair`\
-https://nytimes.com/live/2024/05/25/world/israel-gaza-war-hamas-rafah/as-israel-continues-its-rafah-offensive-some-gazans-choose-to-stay
 
