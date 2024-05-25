@@ -1,3 +1,15 @@
+**After Billions of Dollars in Losses, Canada Post Warns It May Run Out of Cash**\
+`While the post office considers plans to revamp its business model, any major fixes are likely to be politically vexing.`\
+https://nytimes.com/2024/05/25/world/canada/canada-post-losses.html
+
+**The Connections Companion No. 350, May 26, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/25/crosswords/connections-companion-350.html
+
+**Today’s Wordle Review No. 1,072, May 26, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/25/crosswords/wordle-review-1072.html
+
 **Drones Have Offered Last Line of Defense for a Strategic Ukrainian Town**\
 `Short of troops and artillery, soldiers increasingly have been relying on pilotless drones to drop explosives and supplies to hold Chasiv Yar. But how long can they slow the Russian advance?`\
 https://nytimes.com/2024/05/25/world/europe/ukraine-drones-defense-chasiv-yar.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/25/world/middleeast/israel-gaza-rafah.html
 **Calls, Search Parties, Drones: 17 Hours to Find Iran’s President**\
 `As a frenzied quest began for the fallen helicopter of President Ebrahim Raisi, Iran moved to control possible threats from abroad and unrest at home.`\
 https://nytimes.com/2024/05/25/world/middleeast/iran-raisi-helicopter-crash.html
-
-**How Donald Trump Still Lives in the 1980s**\
-`The greed-is-good era was the last time his preferred public image was intact, and he’s been returning there in ways large and small as he sits through his criminal trial in Manhattan.`\
-https://nytimes.com/2024/05/25/us/politics/trump-1980s-manhattan.html
-
-**What’s on TV This Week: ‘Grey’s Anatomy’ and ‘Ren Faire’**\
-`The long-running medical show wraps up its 20th season. HBO airs a new documentary series about a renaissance fair in Texas.`\
-https://nytimes.com/2024/05/25/movies/whats-on-tv-this-week-greys-anatomy-and-ren-faire.html
-
-**Don’t Blame the Office Dog for the Human Problem**\
-`Someone needs skills training.`\
-https://nytimes.com/2024/05/25/business/dogs-at-work-roxane-gay-work-friend.html
 
