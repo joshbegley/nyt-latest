@@ -1,3 +1,7 @@
+**As Israel continues its Rafah offensive, some Gazans choose to stay.**\
+`By Raja Abdulrahim and Bilal Shbair`\
+https://nytimes.com/live/2024/05/25/world/israel-gaza-war-hamas-rafah/as-israel-continues-its-rafah-offensive-some-gazans-choose-to-stay
+
 **Negotiators hope to restart Israel-Gaza hostage and cease-fire talks within a week, officials say.**\
 `For months, Qatar, the United States and Egypt have been trying to cajole Israel and Hamas into accepting a truce and an exchange of captives that could help bring the seven-month war to a close.`\
 https://nytimes.com/live/2024/05/25/world/israel-gaza-war-hamas-rafah/negotiators-hope-to-restart-israel-gaza-hostage-and-cease-fire-talks-within-a-week-officials-say
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/25/books/read-like-wind-recommendations.html
 **Lists!!!**\
 `How they organize the chaos of the world, for good and for bad.`\
 https://nytimes.com/2024/05/25/podcasts/lists.html
-
-**Israel Continues to Fight in Rafah, Despite the World Court Order, Officials Say**\
-`The court on Friday ordered Israel to suspend its military offensive and “any other action” in Rafah that might wholly or partly destroy the Palestinian population there.`\
-https://nytimes.com/2024/05/25/world/middleeast/icj-idf-rafah-offensive.html
 
