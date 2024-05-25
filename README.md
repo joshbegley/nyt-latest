@@ -1,3 +1,7 @@
+**Prosecutors Seek to Bar Trump From Attacking F.B.I. Agents in Documents Case**\
+`The prosecutors said the former president had made “grossly misleading” assertions about the F.B.I.’s search of Mar-a-Lago that could endanger the agents involved.`\
+https://nytimes.com/2024/05/24/us/politics/trump-fbi-agents-documents-case.html
+
 **Red Sauce**\
 `The poetic plot thickens in this themeless thicket by David P. Williams.`\
 https://nytimes.com/2024/05/24/crosswords/daily-puzzle-2024-05-25.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/24/arts/music/sean-kingston-arrested.html
 **Judge Denies Alec Baldwin’s Bid to Dismiss Manslaughter Indictment**\
 `The ruling increases the likelihood that Mr. Baldwin will stand trial this summer in the fatal shooting of a cinematographer on the set of the film “Rust.”`\
 https://nytimes.com/2024/05/24/arts/alec-baldwin-rust-case.html
-
-**Audience Report: The Stones and Their Fans Spend the Night Together**\
-`The Rolling Stones played in New Jersey and a multi-generational crowd came out to greet them.`\
-https://nytimes.com/card/2024/05/24/arts/music/rolling-stones-fans
 
