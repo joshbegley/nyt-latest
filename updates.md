@@ -1,3 +1,7 @@
+**Grayson Murray, Winner of Two PGA Tour Titles, Dies at 30**\
+`Mr. Murray, who was outspoken about his depression and alcohol abuse, had begun a comeback after several volatile years, winning this year’s Sony Open in Hawaii.`\
+https://nytimes.com/2024/05/25/sports/grayson-murray-pga-golf-dead.html
+
 **Why Do Aid Groups Stay in Lawless Haiti?**\
 `Two American missionaries and a Haitian aid director were killed, the latest gang violence against aid groups in Haiti’s capital.`\
 https://nytimes.com/2024/05/25/world/americas/why-do-aid-groups-stay-in-lawless-haiti.html

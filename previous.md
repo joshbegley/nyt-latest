@@ -6,7 +6,7 @@ https://nytimes.com/2024/05/25/world/americas/why-do-aid-groups-stay-in-lawless-
 `John Kugelman’s Sunday puzzle might sting a little, but don’t take it personally.`\
 https://nytimes.com/2024/05/25/crosswords/daily-puzzle-2024-05-26.html
 
-**Grayson Murray, Winner of Two PGA Tours, Dies at 30**\
+**Grayson Murray, Winner of Two PGA Tour Titles, Dies at 30**\
 `Mr. Murray, who was outspoken about his depression and alcohol abuse, had begun a comeback after several volatile years, winning this year’s Sony Open in Hawaii.`\
 https://nytimes.com/2024/05/25/sports/grayson-murray-pga-golf-dead.html
 
