@@ -1,3 +1,11 @@
+**Roughly Speaking**\
+`John Kugelman’s Sunday puzzle might sting a little, but don’t take it personally.`\
+https://nytimes.com/2024/05/25/crosswords/daily-puzzle-2024-05-26.html
+
+**Grayson Murray, Winner of Two PGA Tours, Dies at 30**\
+`Mr. Murray, who was outspoken about his depression and alcohol abuse, had begun a comeback after several volatile years, winning this year’s Sony Open in Hawaii.`\
+https://nytimes.com/2024/05/25/sports/grayson-murray-pga-golf-dead.html
+
 **Russia Bombs Hardware Superstore in Kharkiv, Killing 6, Ukraine Says**\
 `It was the latest attack in a sustained bombing campaign that has made life increasingly dangerous for civilians in the northeastern Ukrainian city.`\
 https://nytimes.com/2024/05/25/world/europe/russia-kharkiv-bombing-superstore-mall-ukraine.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/25/world/europe/us-weapons-russia-jamming-ukraine.ht
 **Adele Faber, Who Helped to Change How Parents Talk to Children, Dies at 96**\
 `With her collaborator, Elaine Mazlish, she wrote “How to Talk So Kids Will Listen & Listen So Kids Will Talk” and other books that have endured as parenting bibles.`\
 https://nytimes.com/2024/05/25/parenting/adele-faber-dead.html
-
-**New Jersey Man Gets 12 Years for Violent Acts During Jan. 6 Riot**\
-`Christopher Joseph Quaglin rushed the police and grabbed an officer by the neck during the U.S. Capitol riot, prosecutors said.`\
-https://nytimes.com/2024/05/25/nyregion/nj-capitol-riot-sentence.html
-
-**The Alito Family’s ‘Appeal to Heaven’**\
-`When it comes to Justice Alito, we’re in uncharted territory.`\
-https://nytimes.com/2024/05/25/opinion/justice-alito-flag.html
 

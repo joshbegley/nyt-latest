@@ -1,3 +1,11 @@
+**Roughly Speaking**\
+`John Kugelman’s Sunday puzzle might sting a little, but don’t take it personally.`\
+https://nytimes.com/2024/05/25/crosswords/daily-puzzle-2024-05-26.html
+
+**Grayson Murray, Winner of Two PGA Tours, Dies at 30**\
+`Mr. Murray, who was outspoken about his depression and alcohol abuse, had begun a comeback after several volatile years, winning this year’s Sony Open in Hawaii.`\
+https://nytimes.com/2024/05/25/sports/grayson-murray-pga-golf-dead.html
+
 **Russia Bombs Hardware Superstore in Kharkiv, Killing 6, Ukraine Says**\
 `It was the latest attack in a sustained bombing campaign that has made life increasingly dangerous for civilians in the northeastern Ukrainian city.`\
 https://nytimes.com/2024/05/25/world/europe/russia-kharkiv-bombing-superstore-mall-ukraine.html
