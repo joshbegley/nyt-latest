@@ -1,3 +1,7 @@
+**‘New Territory’ for Americans: Deadly Heat in the Workplace**\
+`Deaths are rising sharply, and the Biden administration is trying to respond. Its plan faces big hurdles.`\
+https://nytimes.com/2024/05/25/climate/extreme-heat-workplace.html
+
 **At Least 22 Dead in Fire at Amusement Park in India, Police Say**\
 `Officers said the cause of the fire was still under investigation, but they plan to file a negligence charge against the owner of the facility.`\
 https://nytimes.com/2024/05/25/world/asia/india-fire-amusement-park.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/25/world/israel-gaza-war-hamas-rafah/negotiator
 **The Only Ice Cream Recipe You’ll Ever Need**\
 `That’s it. That’s the recipe title. Happy summer.`\
 https://nytimes.com/2024/05/25/dining/the-only-ice-cream-recipe-youll-ever-need.html
-
-**Director Who Fled Iran Brings a Movie and a Message of Hope to Cannes**\
-`At a news conference for his film “The Seed of the Sacred Fig,” Mohammad Rasoulof reveled details of his escape from the country to avoid a prison sentence.`\
-https://nytimes.com/2024/05/25/movies/mohammad-rasoulof-cannes-the-seed-of-the-sacred-fig.html
 
