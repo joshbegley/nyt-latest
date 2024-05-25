@@ -1,3 +1,7 @@
+**‘Sedition Panda,’ a Jan. 6 Rioter, Is Convicted of Assaulting an Officer**\
+`Jesse James Rumson, known as Sedition Panda for the costume head he wore, was found guilty of eight charges related to his participation in the breach of the U.S. Capitol.`\
+https://nytimes.com/2024/05/25/us/politics/sedition-panda-jan-6-convicted.html
+
 **Crowds for Raisi Show Support for Iranian State, Supreme Leader Says**\
 `Ayatollah Ali Khamenei pointed to the turnout at memorials for Iran’s president at a time when external critics say popular backing for the Islamic Republic has weakened.`\
 https://nytimes.com/2024/05/25/world/middleeast/iran-khamenei-raisi-crowds.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/25/opinion/parks-hiking-outdoors.html
 **Kindness in the Time of Cicadapocalypse**\
 `Trillions of bugs will descend on us this summer — and the experience might help us become better people.`\
 https://nytimes.com/2024/05/25/opinion/cicadas-kindness-awe.html
-
-**Biden Underestimates How Much Black Americans Care About This Issue**\
-`The data shows that Black Americans are growing increasingly concerned about the effects of climate change, from heat waves to extreme flooding.`\
-https://nytimes.com/2024/05/25/opinion/biden-black-americans-climate-change.html
 

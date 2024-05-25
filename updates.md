@@ -1,3 +1,7 @@
+**‘Sedition Panda,’ a Jan. 6 Rioter, Is Convicted of Assaulting an Officer**\
+`Jesse James Rumson, known as Sedition Panda for the costume head he wore, was found guilty of eight charges related to his participation in the breach of the U.S. Capitol.`\
+https://nytimes.com/2024/05/25/us/politics/sedition-panda-jan-6-convicted.html
+
 **Crowds for Raisi Show Support for Iranian State, Supreme Leader Says**\
 `Ayatollah Ali Khamenei pointed to the turnout at memorials for Iran’s president at a time when external critics say popular backing for the Islamic Republic has weakened.`\
 https://nytimes.com/2024/05/25/world/middleeast/iran-khamenei-raisi-crowds.html
