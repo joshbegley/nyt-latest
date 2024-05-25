@@ -1,3 +1,7 @@
+**Lists!!!**\
+`How they organize the chaos of the world, for good and for bad.`\
+https://nytimes.com/2024/05/25/podcasts/lists.html
+
 **Israel is continuing to fight in Rafah, despite the World Court order, officials say.**\
 `By Patrick Kingsley`\
 https://nytimes.com/live/2024/05/25/world/israel-gaza-war-hamas-rafah/israel-is-continuing-to-fight-in-rafah-despite-the-world-court-order-officials-say
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/25/briefing/african-music-to-the-world.html
 **After Billions of Dollars in Losses, Canada Post Warns It May Run Out of Cash**\
 `While the post office considers plans to revamp its business model, any major fixes are likely to be politically vexing.`\
 https://nytimes.com/2024/05/25/world/canada/canada-post-losses.html
-
-**The Connections Companion No. 350, May 26, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/25/crosswords/connections-companion-350.html
 
