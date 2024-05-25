@@ -1,3 +1,7 @@
+**Russia Bombs Hardware Superstore in Kharkiv, Killing 6, Ukraine Says**\
+`It was the latest attack in a sustained bombing campaign that has made life increasingly dangerous for civilians in the northeastern Ukrainian city.`\
+https://nytimes.com/2024/05/25/world/europe/russia-kharkiv-bombing-superstore-mall-ukraine.html
+
 **‘New Territory’ for Americans: Deadly Heat in the Workplace**\
 `Deaths are rising sharply, and the Biden administration is trying to respond. Its plan faces big hurdles.`\
 https://nytimes.com/2024/05/25/climate/extreme-heat-biden-workplace.html

@@ -1,3 +1,7 @@
+**Russia Bombs Hardware Superstore in Kharkiv, Killing 6, Ukraine Says**\
+`It was the latest attack in a sustained bombing campaign that has made life increasingly dangerous for civilians in the northeastern Ukrainian city.`\
+https://nytimes.com/2024/05/25/world/europe/russia-kharkiv-bombing-superstore-mall-ukraine.html
+
 **Michael Sugrue, Whose Philosophy Lectures Were a YouTube Hit, Dies at 66**\
 `After an academic career spent in near obscurity, he became an internet phenomenon during the pandemic by uploading talks he had given three decades earlier.`\
 https://nytimes.com/2024/05/25/education/michael-sugrue-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/25/nyregion/nj-capitol-riot-sentence.html
 **The Alito Family’s ‘Appeal to Heaven’**\
 `When it comes to Justice Alito, we’re in uncharted territory.`\
 https://nytimes.com/2024/05/25/opinion/justice-alito-flag.html
-
-**5 Mount Everest Climbers Are Dead and 3 Missing This Summit Season**\
-`Unnerving videos have circulated, showing a snarl of climbers on the summit ridge even as fewer permits were issued this year. Eighteen climbers died in 2023.`\
-https://nytimes.com/2024/05/25/world/asia/mount-everest-summit-dead.html
 
