@@ -1,3 +1,7 @@
+**The Netflix Chief’s Plan to Get You to Binge Even More**\
+`Ted Sarandos helped lead Netflix to victory in streaming, but the war for your attention isn’t over.`\
+https://nytimes.com/2024/05/25/magazine/ted-sarandos-netflix-interview.html
+
 **How Trump’s Trial Fueled His Presidential Campaign**\
 `Donald Trump’s Manhattan criminal trial has had a profound impact on the 2024 presidential race. Jonathan Swan breaks down the politics of the case, and its galvanizing effect on the Republican Party base.`\
 https://nytimes.com/video/us/politics/100000009483084/trump-trial-2024-campaign.html
