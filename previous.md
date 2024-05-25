@@ -1,3 +1,11 @@
+**Negotiators hope to restart Israel-Gaza hostage and cease-fire talks within a week, officials say.**\
+`For months, Qatar, the United States and Egypt have been trying to cajole Israel and Hamas into accepting a truce and an exchange of captives that could help bring the seven-month war to a close.`\
+https://nytimes.com/live/2024/05/25/world/israel-gaza-war-hamas-rafah/negotiators-hope-to-restart-israel-gaza-hostage-and-cease-fire-talks-within-a-week-officials-say
+
+**The Only Ice Cream Recipe You’ll Ever Need**\
+`That’s it. That’s the recipe title. Happy summer.`\
+https://nytimes.com/2024/05/25/dining/the-only-ice-cream-recipe-youll-ever-need.html
+
 **Director Who Fled Iran Brings a Movie and a Message of Hope to Cannes**\
 `At a news conference for his film “The Seed of the Sacred Fig,” Mohammad Rasoulof reveled details of his escape from the country to avoid a prison sentence.`\
 https://nytimes.com/2024/05/25/movies/mohammad-rasoulof-cannes-the-seed-of-the-sacred-fig.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/25/podcasts/lists.html
 **Israel is continuing to fight in Rafah, despite the World Court order, officials say.**\
 `By Patrick Kingsley`\
 https://nytimes.com/live/2024/05/25/world/israel-gaza-war-hamas-rafah/israel-is-continuing-to-fight-in-rafah-despite-the-world-court-order-officials-say
-
-**Men Fear Me, Society Shames Me, and I Love My Life**\
-`My story shows there are other, fulfilling ways to live.`\
-https://nytimes.com/2024/05/25/opinion/women-aging-main-character.html
-
-**America’s Trails Are a Wonder, and They Need Our Help**\
-`There aren’t enough workers to maintain the pathways through our public lands.`\
-https://nytimes.com/2024/05/25/opinion/parks-hiking-outdoors.html
 
