@@ -1,3 +1,7 @@
+**Biden Delivers Commencement Address at West Point**\
+`President Biden called on graduates of the U.S. Military Academy to honor their oath to protect American democracy against threats abroad and — in an indirect reference to former President Donald J. Trump — at home.`\
+https://nytimes.com/video/us/politics/100000009488323/biden-west-point-commencement.html
+
 **‘New Territory’ for Americans: Deadly Heat in the Workplace**\
 `Deaths are rising sharply, and the Biden administration is trying to respond. Its plan faces big hurdles.`\
 https://nytimes.com/2024/05/25/climate/extreme-heat-workplace.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/25/world/israel-gaza-war-hamas-rafah/as-israel-
 **Preliminary cease-fire discussions were held this weekend in Paris, officials said.**\
 `For months, Qatar, the United States and Egypt have been trying to cajole Israel and Hamas into accepting a truce and an exchange of captives that could help bring the seven-month war to a close.`\
 https://nytimes.com/live/2024/05/25/world/israel-gaza-war-hamas-rafah/negotiators-hope-to-restart-israel-gaza-hostage-and-cease-fire-talks-within-a-week-officials-say
-
-**The Only Ice Cream Recipe You’ll Ever Need**\
-`That’s it. That’s the recipe title. Happy summer.`\
-https://nytimes.com/2024/05/25/dining/the-only-ice-cream-recipe-youll-ever-need.html
 

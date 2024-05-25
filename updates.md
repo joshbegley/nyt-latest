@@ -1,3 +1,7 @@
+**Biden Delivers Commencement Address at West Point**\
+`President Biden called on graduates of the U.S. Military Academy to honor their oath to protect American democracy against threats abroad and — in an indirect reference to former President Donald J. Trump — at home.`\
+https://nytimes.com/video/us/politics/100000009488323/biden-west-point-commencement.html
+
 **‘New Territory’ for Americans: Deadly Heat in the Workplace**\
 `Deaths are rising sharply, and the Biden administration is trying to respond. Its plan faces big hurdles.`\
 https://nytimes.com/2024/05/25/climate/extreme-heat-workplace.html
