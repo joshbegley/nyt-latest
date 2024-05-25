@@ -1,3 +1,7 @@
+**Red Sauce**\
+`The poetic plot thickens in this themeless thicket by David P. Williams.`\
+https://nytimes.com/2024/05/24/crosswords/daily-puzzle-2024-05-25.html
+
 **N.C.A.A. Athletes’ Pay Deal Raises Questions About Future of College Sports**\
 `The landmark settlement made many wonder what the reality — and impact — of revenue-sharing plans with college athletes would look like.`\
 https://nytimes.com/2024/05/24/us/ncaa-payments-athletes-reaction.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/24/arts/alec-baldwin-rust-case.html
 **Audience Report: The Stones and Their Fans Spend the Night Together**\
 `The Rolling Stones played in New Jersey and a multi-generational crowd came out to greet them.`\
 https://nytimes.com/card/2024/05/24/arts/music/rolling-stones-fans
-
-**Blackstone’s Chief, a G.O.P. Megadonor, Says He Will Again Back Trump**\
-`Stephen A. Schwarzman, the billionaire co-founder and chief executive of the investment group, had previously called for a “new generation of leaders.”`\
-https://nytimes.com/2024/05/24/us/politics/blackstone-stephen-schwarzman-trump.html
 

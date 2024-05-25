@@ -1,3 +1,7 @@
+**Red Sauce**\
+`The poetic plot thickens in this themeless thicket by David P. Williams.`\
+https://nytimes.com/2024/05/24/crosswords/daily-puzzle-2024-05-25.html
+
 **N.C.A.A. Athletes’ Pay Deal Raises Questions About Future of College Sports**\
 `The landmark settlement made many wonder what the reality — and impact — of revenue-sharing plans with college athletes would look like.`\
 https://nytimes.com/2024/05/24/us/ncaa-payments-athletes-reaction.html
