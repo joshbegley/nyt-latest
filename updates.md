@@ -1,3 +1,7 @@
+**Israel Continues to Fight in Rafah, Despite the World Court Order, Officials Say**\
+`By Patrick Kingsley`\
+https://nytimes.com/2024/05/25/world/middleeast/icj-idf-rafah-offensive.html
+
 **Negotiators hope to restart Israel-Gaza hostage and cease-fire talks within a week, officials say.**\
 `For months, Qatar, the United States and Egypt have been trying to cajole Israel and Hamas into accepting a truce and an exchange of captives that could help bring the seven-month war to a close.`\
 https://nytimes.com/live/2024/05/25/world/israel-gaza-war-hamas-rafah/negotiators-hope-to-restart-israel-gaza-hostage-and-cease-fire-talks-within-a-week-officials-say

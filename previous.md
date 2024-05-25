@@ -34,7 +34,7 @@ https://nytimes.com/2024/05/25/books/read-like-wind-recommendations.html
 `How they organize the chaos of the world, for good and for bad.`\
 https://nytimes.com/2024/05/25/podcasts/lists.html
 
-**Israel is continuing to fight in Rafah, despite the World Court order, officials say.**\
+**Israel Continues to Fight in Rafah, Despite the World Court Order, Officials Say**\
 `By Patrick Kingsley`\
-https://nytimes.com/live/2024/05/25/world/israel-gaza-war-hamas-rafah/israel-is-continuing-to-fight-in-rafah-despite-the-world-court-order-officials-say
+https://nytimes.com/2024/05/25/world/middleeast/icj-idf-rafah-offensive.html
 
