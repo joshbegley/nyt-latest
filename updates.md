@@ -1,3 +1,11 @@
+**Trump Will Address the Libertarian Convention. Some Members Are Outraged.**\
+`The Libertarian Party’s invitation to former President Donald J. Trump to speak at its convention on Saturday has stirred deep tensions among leaders and delegates — and many plan to express them.`\
+https://nytimes.com/2024/05/25/us/politics/trump-libertarian-convention.html
+
+**Zack Norman, Actor Who Juggled Multiple Professions, Dies at 83**\
+`Best known for movies like “Romancing the Stone,” he also made a mark as a producer, a real estate developer and the butt of a Generation X-friendly television gag.`\
+https://nytimes.com/2024/05/25/movies/zack-norman-dead.html
+
 **Grayson Murray, Winner of Two PGA Tour Titles, Dies at 30**\
 `Mr. Murray, who was outspoken about his depression and alcohol abuse, had begun a comeback after several volatile years, winning this year’s Sony Open in Hawaii.`\
 https://nytimes.com/2024/05/25/sports/grayson-murray-pga-golf-dead.html
