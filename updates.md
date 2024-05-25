@@ -1,3 +1,7 @@
+**At Least 22 Dead in Fire at Amusement Park in India, Police Say**\
+`Officers said the cause of the fire was still under investigation, but they plan to file a negligence charge against the owner of the facility.`\
+https://nytimes.com/2024/05/25/world/asia/india-fire-amusement-park.html
+
 **Some U.S. Weapons Stymied by Russian Jamming in Ukraine**\
 `Two classified Ukrainian reports show that some U.S. precision-guided weapons are vulnerable to electronic warfare, an element in Ukraine’s recent battlefield setbacks.`\
 https://nytimes.com/2024/05/25/world/europe/us-weapons-russia-jamming-ukraine.html

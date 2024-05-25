@@ -1,3 +1,7 @@
+**At Least 22 Dead in Fire at Amusement Park in India, Police Say**\
+`Officers said the cause of the fire was still under investigation, but they plan to file a negligence charge against the owner of the facility.`\
+https://nytimes.com/2024/05/25/world/asia/india-fire-amusement-park.html
+
 **Some U.S. Weapons Stymied by Russian Jamming in Ukraine**\
 `Two classified Ukrainian reports show that some U.S. precision-guided weapons are vulnerable to electronic warfare, an element in Ukraine’s recent battlefield setbacks.`\
 https://nytimes.com/2024/05/25/world/europe/us-weapons-russia-jamming-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/25/dining/the-only-ice-cream-recipe-youll-ever-need.
 **Director Who Fled Iran Brings a Movie and a Message of Hope to Cannes**\
 `At a news conference for his film “The Seed of the Sacred Fig,” Mohammad Rasoulof reveled details of his escape from the country to avoid a prison sentence.`\
 https://nytimes.com/2024/05/25/movies/mohammad-rasoulof-cannes-the-seed-of-the-sacred-fig.html
-
-**‘Sedition Panda,’ a Jan. 6 Rioter, Is Convicted of Assaulting an Officer**\
-`Jesse James Rumson, known as Sedition Panda for the costume head he wore, was found guilty of eight charges related to his participation in the breach of the U.S. Capitol.`\
-https://nytimes.com/2024/05/25/us/politics/sedition-panda-jan-6-convicted.html
 
