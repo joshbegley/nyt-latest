@@ -1,3 +1,7 @@
+**African Music to the World**\
+`Artists from the continent are breaking into the Western mainstream. We’ve got a playlist for your weekend cookout.`\
+https://nytimes.com/2024/05/25/briefing/african-music-to-the-world.html
+
 **After Billions of Dollars in Losses, Canada Post Warns It May Run Out of Cash**\
 `While the post office considers plans to revamp its business model, any major fixes are likely to be politically vexing.`\
 https://nytimes.com/2024/05/25/world/canada/canada-post-losses.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/25/us/politics/biden-commencement-west-point.html
 **Condemnation Slows, but Does Not Stall, Israel’s Assault on Rafah**\
 `Despite fierce criticism, Israel insists it must take control of Rafah and the border with Egypt to prevent future arms smuggling.`\
 https://nytimes.com/2024/05/25/world/middleeast/israel-gaza-rafah.html
-
-**Calls, Search Parties, Drones: 17 Hours to Find Iran’s President**\
-`As a frenzied quest began for the fallen helicopter of President Ebrahim Raisi, Iran moved to control possible threats from abroad and unrest at home.`\
-https://nytimes.com/2024/05/25/world/middleeast/iran-raisi-helicopter-crash.html
 

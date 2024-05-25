@@ -1,3 +1,7 @@
+**African Music to the World**\
+`Artists from the continent are breaking into the Western mainstream. We’ve got a playlist for your weekend cookout.`\
+https://nytimes.com/2024/05/25/briefing/african-music-to-the-world.html
+
 **After Billions of Dollars in Losses, Canada Post Warns It May Run Out of Cash**\
 `While the post office considers plans to revamp its business model, any major fixes are likely to be politically vexing.`\
 https://nytimes.com/2024/05/25/world/canada/canada-post-losses.html
