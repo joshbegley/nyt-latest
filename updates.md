@@ -1,3 +1,7 @@
+**Why Do Aid Groups Stay in Lawless Haiti?**\
+`Two American missionaries and a Haitian aid director were killed, the latest gang violence against aid groups in Haiti’s capital.`\
+https://nytimes.com/2024/05/25/world/americas/why-do-aid-groups-stay-in-lawless-haiti.html
+
 **Roughly Speaking**\
 `John Kugelman’s Sunday puzzle might sting a little, but don’t take it personally.`\
 https://nytimes.com/2024/05/25/crosswords/daily-puzzle-2024-05-26.html
