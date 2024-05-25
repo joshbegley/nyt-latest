@@ -1,3 +1,7 @@
+**The Alito Family’s ‘Appeal to Heaven’**\
+`When it comes to Justice Alito, we’re in uncharted territory.`\
+https://nytimes.com/2024/05/25/opinion/justice-alito-flag.html
+
 **G7 Finance Ministers Close Ranks as Tensions with Russia and China Fester**\
 `Western economic officials projected a united front, and braced for retaliation, as they prepped tougher sanctions and tariffs.`\
 https://nytimes.com/2024/05/25/business/economy/g7-ukraine-russia-assets-china.html

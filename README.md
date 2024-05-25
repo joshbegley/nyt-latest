@@ -1,3 +1,7 @@
+**New Jersey Man Gets 12 Years for Violent Acts During Jan. 6 Riot**\
+`Christopher Joseph Quaglin rushed the police and grabbed an officer by the neck during the U.S. Capitol riot, prosecutors said.`\
+https://nytimes.com/2024/05/25/nyregion/nj-capitol-riot-sentence.html
+
 **The Alito Family’s ‘Appeal to Heaven’**\
 `When it comes to Justice Alito, we’re in uncharted territory.`\
 https://nytimes.com/2024/05/25/opinion/justice-alito-flag.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/25/world/middleeast/iran-khamenei-raisi-crowds.html
 **Ukraine Steps Up Attacks With U.S. Long-Range Missiles**\
 `The assaults have hit military targets in Russian-occupied territory in Ukraine. Pressure is now mounting on Washington to let Kyiv fire the missiles into Russia itself.`\
 https://nytimes.com/2024/05/25/world/europe/ukraine-russia-long-range-missiles.html
-
-**G7 Finance Ministers Close Ranks as Tensions with Russia and China Fester**\
-`Western economic officials projected a united front, and braced for retaliation, as they prepped tougher sanctions and tariffs.`\
-https://nytimes.com/2024/05/25/business/economy/g7-ukraine-russia-assets-china.html
 
