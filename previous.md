@@ -1,3 +1,7 @@
+**Ukraine Steps Up Attacks With U.S. Long-Range Missiles**\
+`The assaults have hit military targets in Russian-occupied territory in Ukraine. Pressure is now mounting on Washington to let Kyiv fire the missiles into Russia itself.`\
+https://nytimes.com/2024/05/25/world/europe/ukraine-russia-long-range-missiles.html
+
 **G7 Finance Ministers Close Ranks as Tensions with Russia and China Fester**\
 `Western economic officials projected a united front, and braced for retaliation, as they prepped tougher sanctions and tariffs.`\
 https://nytimes.com/2024/05/25/business/economy/g7-finance-ministers-close-ranks-as-tensions-with-russia-and-china-fester.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/25/opinion/biden-black-americans-climate-change.html
 **Exploring the World Beyond Queens**\
 `The Fresh Air Fund gave one Queens native a year of career exploration and outdoor activities.`\
 https://nytimes.com/2024/05/25/opinion/fresh-air-fund.html
-
-**Foster Care and Child Welfare**\
-`Readers discuss a guest essay about removing children from troubled homes.`\
-https://nytimes.com/2024/05/25/opinion/foster-care-child-welfare.html
 
