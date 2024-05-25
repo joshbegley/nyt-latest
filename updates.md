@@ -1,3 +1,7 @@
+**5 Mount Everest Climbers Are Dead and 3 Missing This Summit Season**\
+`Unnerving videos have circulated, showing a snarl of climbers on the summit ridge even as fewer permits were issued this year. Eighteen climbers died in 2023.`\
+https://nytimes.com/2024/05/25/world/asia/mount-everest-summit-dead.html
+
 **Preliminary cease-fire discussions were held this weekend in Paris, officials said.**\
 `For months, Qatar, the United States and Egypt have been trying to cajole Israel and Hamas into accepting a truce and an exchange of captives that could help bring the seven-month war to a close.`\
 https://nytimes.com/live/2024/05/25/world/israel-gaza-war-hamas-rafah/negotiators-hope-to-restart-israel-gaza-hostage-and-cease-fire-talks-within-a-week-officials-say
