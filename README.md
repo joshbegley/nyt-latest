@@ -2,7 +2,7 @@
 `By Raja Abdulrahim and Bilal Shbair`\
 https://nytimes.com/live/2024/05/25/world/israel-gaza-war-hamas-rafah/as-israel-continues-its-rafah-offensive-some-gazans-choose-to-stay
 
-**Negotiators hope to restart Israel-Gaza hostage and cease-fire talks within a week, officials say.**\
+**Preliminary cease-fire discussions were held this weekend in Paris, officials said.**\
 `For months, Qatar, the United States and Egypt have been trying to cajole Israel and Hamas into accepting a truce and an exchange of captives that could help bring the seven-month war to a close.`\
 https://nytimes.com/live/2024/05/25/world/israel-gaza-war-hamas-rafah/negotiators-hope-to-restart-israel-gaza-hostage-and-cease-fire-talks-within-a-week-officials-say
 
