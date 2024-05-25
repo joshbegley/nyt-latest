@@ -1,3 +1,7 @@
+**Director Who Fled Iran Brings a Movie and a Message of Hope to Cannes**\
+`At a news conference for his film “The Seed of the Sacred Fig,” Mohammad Rasoulof reveled details of his escape from the country to avoid a prison sentence.`\
+https://nytimes.com/2024/05/25/movies/mohammad-rasoulof-cannes-the-seed-of-the-sacred-fig.html
+
 **‘Sedition Panda,’ a Jan. 6 Rioter, Is Convicted of Assaulting an Officer**\
 `Jesse James Rumson, known as Sedition Panda for the costume head he wore, was found guilty of eight charges related to his participation in the breach of the U.S. Capitol.`\
 https://nytimes.com/2024/05/25/us/politics/sedition-panda-jan-6-convicted.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/25/opinion/women-aging-main-character.html
 **America’s Trails Are a Wonder, and They Need Our Help**\
 `There aren’t enough workers to maintain the pathways through our public lands.`\
 https://nytimes.com/2024/05/25/opinion/parks-hiking-outdoors.html
-
-**Kindness in the Time of Cicadapocalypse**\
-`Trillions of bugs will descend on us this summer — and the experience might help us become better people.`\
-https://nytimes.com/2024/05/25/opinion/cicadas-kindness-awe.html
 
