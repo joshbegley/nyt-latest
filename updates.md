@@ -1,3 +1,7 @@
+**Drones Have Offered Last Line of Defense for a Strategic Ukrainian Town**\
+`Short of troops and artillery, soldiers increasingly have been relying on pilotless drones to drop explosives and supplies to hold Chasiv Yar. But how long can they slow the Russian advance?`\
+https://nytimes.com/2024/05/25/world/europe/ukraine-drones-defense-chasiv-yar.html
+
 **The Netflix Chief’s Plan to Get You to Binge Even More**\
 `Ted Sarandos helped lead Netflix to victory in streaming, but the war for your attention isn’t over.`\
 https://nytimes.com/2024/05/25/magazine/ted-sarandos-netflix-interview.html
