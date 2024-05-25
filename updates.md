@@ -1,3 +1,15 @@
+**Xi Jinping’s Recipe for Total Control: An Army of Eyes and Ears**\
+`Reviving a Mao-era surveillance campaign, the authorities are tracking residents, schoolchildren and businesses to forestall any potential unrest.`\
+https://nytimes.com/2024/05/25/world/asia/china-surveillance-xi.html
+
+**Sometimes U.S. and U.K. Politics Seem in Lock Step. Not This Year.**\
+`In 2016, Britain voted for Brexit and America for Trump, heralding a populist wave. Both countries face pivotal elections this year — but their paths appear to have diverged.`\
+https://nytimes.com/2024/05/25/world/europe/uk-general-election-britain.html
+
+**Quotation of the Day: Study Bolsters Evidence Raw Milk May Be a Risk for Bird Flu in Humans**\
+`Quotation of the Day for Saturday, May 25, 2024.`\
+https://nytimes.com/2024/05/25/pageoneplus/quotation-of-the-day-study-bolsters-evidence-raw-milk-may-be-a-risk-for-bird-flu-in-humans.html
+
 **Prosecutors Seek to Bar Trump From Attacking F.B.I. Agents in Documents Case**\
 `The prosecutors said the former president had made “grossly misleading” assertions about the F.B.I.’s search of Mar-a-Lago that could endanger the agents involved.`\
 https://nytimes.com/2024/05/24/us/politics/trump-fbi-agents-documents-case.html
