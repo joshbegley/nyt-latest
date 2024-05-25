@@ -1,3 +1,7 @@
+**The Alito Family’s ‘Appeal to Heaven’**\
+`When it comes to Justice Alito, we’re in uncharted territory.`\
+https://nytimes.com/2024/05/25/opinion/justice-alito-flag.html
+
 **5 Mount Everest Climbers Are Dead and 3 Missing This Summit Season**\
 `Unnerving videos have circulated, showing a snarl of climbers on the summit ridge even as fewer permits were issued this year. Eighteen climbers died in 2023.`\
 https://nytimes.com/2024/05/25/world/asia/mount-everest-summit-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/25/world/europe/ukraine-russia-long-range-missiles.h
 **G7 Finance Ministers Close Ranks as Tensions with Russia and China Fester**\
 `Western economic officials projected a united front, and braced for retaliation, as they prepped tougher sanctions and tariffs.`\
 https://nytimes.com/2024/05/25/business/economy/g7-ukraine-russia-assets-china.html
-
-**Sometimes, Obsession Finds Its Outlet in a Book. Here Are 2.**\
-`A Gwendolyn Brooks biography; a Bill Cunningham photo collection.`\
-https://nytimes.com/2024/05/25/books/read-like-wind-recommendations.html
 
