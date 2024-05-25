@@ -1,3 +1,7 @@
+**Crowds for Raisi Show Support for Iranian State, Supreme Leader Says**\
+`Ayatollah Ali Khamenei pointed to the turnout at memorials for Iran’s president at a time when external critics say popular backing for the Islamic Republic has weakened.`\
+https://nytimes.com/2024/05/25/world/middleeast/iran-khamenei-raisi-crowds.html
+
 **Ukraine Steps Up Attacks With U.S. Long-Range Missiles**\
 `The assaults have hit military targets in Russian-occupied territory in Ukraine. Pressure is now mounting on Washington to let Kyiv fire the missiles into Russia itself.`\
 https://nytimes.com/2024/05/25/world/europe/ukraine-russia-long-range-missiles.html

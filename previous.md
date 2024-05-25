@@ -1,3 +1,7 @@
+**Crowds for Raisi Show Support for Iranian State, Supreme Leader Says**\
+`Ayatollah Ali Khamenei pointed to the turnout at memorials for Iran’s president at a time when external critics say popular backing for the Islamic Republic has weakened.`\
+https://nytimes.com/2024/05/25/world/middleeast/iran-khamenei-raisi-crowds.html
+
 **Ukraine Steps Up Attacks With U.S. Long-Range Missiles**\
 `The assaults have hit military targets in Russian-occupied territory in Ukraine. Pressure is now mounting on Washington to let Kyiv fire the missiles into Russia itself.`\
 https://nytimes.com/2024/05/25/world/europe/ukraine-russia-long-range-missiles.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/25/opinion/cicadas-kindness-awe.html
 **Biden Underestimates How Much Black Americans Care About This Issue**\
 `The data shows that Black Americans are growing increasingly concerned about the effects of climate change, from heat waves to extreme flooding.`\
 https://nytimes.com/2024/05/25/opinion/biden-black-americans-climate-change.html
-
-**Exploring the World Beyond Queens**\
-`The Fresh Air Fund gave one Queens native a year of career exploration and outdoor activities.`\
-https://nytimes.com/2024/05/25/opinion/fresh-air-fund.html
 
