@@ -1,3 +1,7 @@
+**‘New Territory’ for Americans: Deadly Heat in the Workplace**\
+`Deaths are rising sharply, and the Biden administration is trying to respond. Its plan faces big hurdles.`\
+https://nytimes.com/2024/05/25/climate/extreme-heat-biden-workplace.html
+
 **Michael Sugrue, Whose Philosophy Lectures Were a YouTube Hit, Dies at 66**\
 `After an academic career spent in near obscurity, he became an internet phenomenon during the pandemic by uploading talks he had given three decades earlier.`\
 https://nytimes.com/2024/05/25/education/michael-sugrue-dead.html
