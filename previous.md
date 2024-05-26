@@ -1,3 +1,15 @@
+**Marjorie Taylor Greene Has a Decision to Make**\
+`Her craziest-clown-at-the-carnival act seems to have descended into a sad clown party of one.`\
+https://nytimes.com/2024/05/26/opinion/marjorie-taylor-greene-newt-gingrich.html
+
+**How Should We Honor the Dead of Our Failed Wars?**\
+`We owe it to the dead to remember what mattered to them, and the ideals they held, as well as how those ideals were betrayed.`\
+https://nytimes.com/2024/05/26/opinion/memorial-day-faiiled-wars.html
+
+**I’m an Indian Muslim, and I’m Scared to Say So**\
+`In Modi’s Hindu-nationalist India, Muslims have to deny who we are.`\
+https://nytimes.com/2024/05/26/opinion/india-muslim-modi-election.html
+
 **Amateur Historians Heard Tales of a Lost Tudor Palace. Then, They Dug It Up.**\
 `In a small English village, a group of dedicated locals has unearthed the remains of a long-vanished palace that had been home to Henry VIII’s grandmother.`\
 https://nytimes.com/2024/05/26/world/europe/england-collyweston-tudor-palace.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/25/movies/zack-norman-dead.html
 **Why Do Aid Groups Stay in Lawless Haiti?**\
 `Two American missionaries and a Haitian aid director were killed, the latest gang violence against aid groups in Haiti’s capital.`\
 https://nytimes.com/2024/05/25/world/americas/why-do-aid-groups-stay-in-lawless-haiti.html
-
-**Roughly Speaking**\
-`John Kugelman’s Sunday puzzle might sting a little, but don’t take it personally.`\
-https://nytimes.com/2024/05/25/crosswords/daily-puzzle-2024-05-26.html
-
-**Grayson Murray, Winner of Two PGA Tour Titles, Dies at 30**\
-`Mr. Murray, who was outspoken about his depression and alcohol abuse, had begun a comeback after several volatile years, winning this year’s Sony Open in Hawaii.`\
-https://nytimes.com/2024/05/25/sports/grayson-murray-pga-golf-dead.html
-
-**Russia Bombs Hardware Superstore in Kharkiv, Killing 11, Ukraine Says**\
-`It was the latest attack in a sustained bombing campaign that has made life increasingly dangerous for civilians in the northeastern Ukrainian city.`\
-https://nytimes.com/2024/05/25/world/europe/russia-kharkiv-bombing-superstore-mall-ukraine.html
 

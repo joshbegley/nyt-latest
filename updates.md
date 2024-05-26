@@ -1,3 +1,15 @@
+**Marjorie Taylor Greene Has a Decision to Make**\
+`Her craziest-clown-at-the-carnival act seems to have descended into a sad clown party of one.`\
+https://nytimes.com/2024/05/26/opinion/marjorie-taylor-greene-newt-gingrich.html
+
+**How Should We Honor the Dead of Our Failed Wars?**\
+`We owe it to the dead to remember what mattered to them, and the ideals they held, as well as how those ideals were betrayed.`\
+https://nytimes.com/2024/05/26/opinion/memorial-day-faiiled-wars.html
+
+**I’m an Indian Muslim, and I’m Scared to Say So**\
+`In Modi’s Hindu-nationalist India, Muslims have to deny who we are.`\
+https://nytimes.com/2024/05/26/opinion/india-muslim-modi-election.html
+
 **Russia Bombs Hardware Superstore in Kharkiv, Killing 11, Ukraine Says**\
 `It was the latest attack in a sustained bombing campaign that has made life increasingly dangerous for civilians in the northeastern Ukrainian city.`\
 https://nytimes.com/2024/05/25/world/europe/russia-kharkiv-bombing-superstore-mall-ukraine.html
