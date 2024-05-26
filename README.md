@@ -1,3 +1,7 @@
+**Tim Scott says Biden’s education policy ‘resegregates schools.’**\
+`The South Carolina senator and vice-presidential contender continued the Trump campaign’s efforts to court Black voters with a focus on education and the economy.`\
+https://nytimes.com/2024/05/26/us/politics/tim-scott-trump-black-voters-schools.html
+
 **Don Perlin, Comic Book Artist Who Found Success Late, Dies at 94**\
 `His Moon Knight was a hit in the 1970s, 30 years after he began his career. Bloodshot, another popular superhero, followed two decades later.`\
 https://nytimes.com/2024/05/26/arts/don-perlin-dead.html
@@ -26,15 +30,11 @@ https://nytimes.com/2024/05/26/world/asia/india-fire-death-infants-safety.html
 `How to be there for a friend in need.`\
 https://nytimes.com/2024/05/26/opinion/food-grief-joan-nathan.html
 
-**Biden Wants to Bring Big Dreams Back to Rural America**\
+**Biden Wants to Send Billions to Rural America. But This Must Happen First.**\
 `All that money is meaningless unless it reaches local communities.`\
 https://nytimes.com/2024/05/26/opinion/biden-rural-america.html
 
 **Russia Plans New Offensive in Ukraine’s Northeast, Zelensky Says**\
 `Moscow is again amassing forces near the border, President Volodymyr Zelensky of Ukraine warned. His comments came as officials said that a Russian strike had killed at least 16 people in Kharkiv.`\
 https://nytimes.com/2024/05/26/world/europe/russia-offensive-ukraine-northeast.html
-
-**Summer Begins**\
-`Memorial Day is the starting gun of a new season. Here’s a guide on how to spend the summer months.`\
-https://nytimes.com/2024/05/26/briefing/summer-guide-memorial-day.html
 
