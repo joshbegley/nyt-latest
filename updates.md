@@ -1,3 +1,7 @@
+**Tornadoes Leave Heavy Damage in Texas and Oklahoma**\
+`Rescue teams were beginning to assess the destruction early Sunday after storms overnight damaged homes, downed power lines and flipped trucks.`\
+https://nytimes.com/2024/05/26/us/tornadoes-storms-texas-oklahoma.html
+
 **Optimistic About the War in Ukraine, Putin Unleashes a Purge at Home**\
 `Despite years of criticism, President Vladimir V. Putin has only now changed his defense minister and allowed high-level corruption arrests.`\
 https://nytimes.com/2024/05/26/world/europe/russia-corruption-putin.html
