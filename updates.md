@@ -1,3 +1,7 @@
+**Quotation of the Day: The Last Line of Defense for a Key Eastern Town**\
+`Quotation of the Day for Sunday, May 26, 2024.`\
+https://nytimes.com/2024/05/25/pageoneplus/quotation-of-the-day-the-last-line-of-defense-for-a-key-eastern-town.html
+
 **Richard Sherman, Songwriter of Many Spoonfuls of Sugar, Dies at 95**\
 `He and his brother, Robert, teamed up to write the songs for “Mary Poppins” and other Disney classics. They also gave the world “It’s a Small World (After All).”`\
 https://nytimes.com/2024/05/25/arts/music/richard-m-sherman-dead.html
