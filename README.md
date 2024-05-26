@@ -1,3 +1,7 @@
+**Idaho Drag Performer Wins Over $1.1 Million in Defamation Suit Against Blogger**\
+`The jury unanimously sided with the performer in a case against a blogger who made false claims that the artist had exposed himself to a crowd at a pride event in 2022.`\
+https://nytimes.com/2024/05/26/us/eric-posey-drag-performer-defamation-case.html
+
 **Veteran Survives Grizzly’s Attack After It Bites Into Can of Bear Spray**\
 `Shayne Patrick Burke, a disabled veteran in the Army Reserve, said the attack was “the most violent” thing he had experienced, including being shot at.`\
 https://nytimes.com/2024/05/26/us/grizzly-bear-attack-grand-teton.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/26/opinion/social-security.html
 **Simple, Summery, Spicy Grilled Shrimp**\
 `And if it’s cool and overcast: bo ssam, cured and slow roasted and served with lettuce, rice and a raft of condiments.`\
 https://nytimes.com/2024/05/26/dining/simple-summery-spicy-grilled-shrimp.html
-
-**Israel’s military says the rockets came from Rafah, where its troops have been advancing.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/05/26/world/israel-gaza-war-hamas-rafah/israels-military-says-the-rockets-came-from-rafah-where-its-troops-have-been-advancing
 
