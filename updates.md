@@ -1,3 +1,7 @@
+**Don Perlin, Comic Book Artist Who Found Success Late, Dies at 94**\
+`His Moon Knight was a hit in the 1970s, 30 years after he began his career. Bloodshot, another popular superhero, followed two decades later.`\
+https://nytimes.com/2024/05/26/arts/don-perlin-dead.html
+
 **12 Injured After Turbulence on Flight From Qatar to Ireland**\
 `The Dublin Airport said that a Qatar Airways flight from Doha landed in Ireland after a dozen people were injured by turbulence.`\
 https://nytimes.com/2024/05/26/world/europe/qatar-airways-turbulence-dublin-flight.html
