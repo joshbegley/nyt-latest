@@ -27,7 +27,7 @@ https://nytimes.com/2024/05/26/opinion/food-grief-joan-nathan.html
 https://nytimes.com/2024/05/26/opinion/biden-rural-america.html
 
 **Russia Plans New Offensive in Ukraine’s Northeast, Zelensky Says**\
-`Moscow is again amassing forces near the border, President Volodymyr Zelensky said. His comments came as officials said that a Russian strike had killed at least 14 people in Kharkiv.`\
+`Moscow is again amassing forces near the border, President Volodymyr Zelensky of Ukraine warned. His comments came as officials said that a Russian strike had killed at least 16 people in Kharkiv.`\
 https://nytimes.com/2024/05/26/world/europe/russia-offensive-ukraine-northeast.html
 
 **Summer Begins**\
