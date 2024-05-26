@@ -1,3 +1,19 @@
+**Israel’s military says the rockets came from Rafah, where its troops have been advancing.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/05/26/world/israel-gaza-war-hamas-rafah/israels-military-says-the-rockets-came-from-rafah-where-its-troops-have-been-advancing
+
+**Two Deadly Fires in Rapid Succession Expose India’s Gaps in Safety**\
+`Disasters over the weekend that claimed at least 34 lives prompted condolences, arrests and finger-pointing. But systemic change remains elusive, analysts say.`\
+https://nytimes.com/2024/05/26/world/asia/india-fire-death-infants-safety.html
+
+**What Joan Nathan Taught Me About the Power of Showing Up**\
+`How to be there for a friend in need.`\
+https://nytimes.com/2024/05/26/opinion/food-grief-joan-nathan.html
+
+**Biden Wants to Bring Big Dreams Back to Rural America**\
+`All that money is meaningless unless it reaches local communities.`\
+https://nytimes.com/2024/05/26/opinion/biden-rural-america.html
+
 **Russia Plans New Offensive in Ukraine’s Northeast, Zelensky Says**\
 `Moscow was again amassing forces near the border, President Volodymyr Zelensky said. His comments came as officials said that a Russian strike had killed at least 14 people in Kharkiv.`\
 https://nytimes.com/2024/05/26/world/europe/russia-offensive-ukraine-northeast.html
