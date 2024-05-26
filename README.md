@@ -1,3 +1,7 @@
+**Tornadoes Leave Heavy Damage in Texas and Oklahoma**\
+`Rescue teams were beginning to assess the destruction early Sunday after storms overnight damaged homes, downed power lines and flipped trucks.`\
+https://nytimes.com/2024/05/26/us/tornadoes-storms-texas-oklahoma.html
+
 **Optimistic About the War in Ukraine, Putin Unleashes a Purge at Home**\
 `Despite years of criticism, President Vladimir V. Putin has only now changed his defense minister and allowed high-level corruption arrests.`\
 https://nytimes.com/2024/05/26/world/europe/russia-corruption-putin.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/26/style/summer-house-west-wilson.html
 **How a Profane Joke on Twitter Spawned a Legal Army**\
 `A litigation team built from the sharpest, funniest tweeters is suing Elon Musk.`\
 https://nytimes.com/2024/05/26/nyregion/twitter-lawyers-threadnought-elon-musk.html
-
-**Reebok Isn’t a ‘Hobby’ for Shaquille O’Neal**\
-`After pushing to be in charge of the company’s return to basketball, the Hall of Famer understands the stakes. “If this doesn’t work, everyone’s leaving,” he said.`\
-https://nytimes.com/2024/05/26/style/shaquille-oneal-reebok.html
 
