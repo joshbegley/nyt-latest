@@ -1,3 +1,7 @@
+**12 Injured After Turbulence on Flight From Qatar to Ireland**\
+`The Dublin Airport said that a Qatar Airways flight from Doha landed in Ireland after a dozen people were injured by turbulence.`\
+https://nytimes.com/2024/05/26/world/europe/qatar-airways-turbulence-dublin-flight.html
+
 **Russia Plans New Offensive in Ukraine’s Northeast, Zelensky Says**\
 `Moscow is again amassing forces near the border, President Volodymyr Zelensky of Ukraine warned. His comments came as officials said that a Russian strike had killed at least 16 people in Kharkiv.`\
 https://nytimes.com/2024/05/26/world/europe/russia-offensive-ukraine-northeast.html
