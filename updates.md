@@ -1,5 +1,9 @@
 **Tim Scott says Biden’s education policy ‘resegregates schools.’**\
 `The South Carolina senator and vice-presidential contender continued the Trump campaign’s efforts to court Black voters with a focus on education and the economy.`\
+https://nytimes.com/live/2024/05/26/us/biden-trump-election/tim-scott-trump-black-voters-schools
+
+**Tim Scott says Biden’s education policy ‘resegregates schools.’**\
+`The South Carolina senator and vice-presidential contender continued the Trump campaign’s efforts to court Black voters with a focus on education and the economy.`\
 https://nytimes.com/2024/05/26/us/politics/tim-scott-trump-black-voters-schools.html
 
 **Biden Wants to Send Billions to Rural America. But This Must Happen First.**\
