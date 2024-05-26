@@ -1,3 +1,7 @@
+**Her A.I. Arm**\
+`Sarah de Lagarde has a bionic limb, powered in part by artificial intelligence, which gets better at predicting what she wants to do the more she uses it. `\
+https://nytimes.com/card/2024/05/26/technology/ai-prosthetic-arm
+
 **Monday Briefing: Ukraine Fears a Russian Push Near Kharkiv**\
 `Also, Hamas fires missiles at central Israel`\
 https://nytimes.com/2024/05/26/briefing/monday-briefing-ukraine-fears-a-russian-push-near-kharkiv.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/26/arts/don-perlin-dead.html
 **12 Injured After Turbulence on Flight From Qatar to Ireland**\
 `The Dublin Airport said that a Qatar Airways flight from Doha landed in Ireland after a dozen people were injured by turbulence.`\
 https://nytimes.com/2024/05/26/world/europe/qatar-airways-turbulence-dublin-flight.html
-
-**Debating the Best Way to Fix Social Security**\
-`Readers discuss Peter Coy’s proposal to reduce benefits. Also: Singapore’s view; an Ithaca man’s tragic death; MSNBC’s role in our democracy.`\
-https://nytimes.com/2024/05/26/opinion/social-security.html
 

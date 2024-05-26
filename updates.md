@@ -1,3 +1,7 @@
+**Her A.I. Arm**\
+`Sarah de Lagarde has a bionic limb, powered in part by artificial intelligence, which gets better at predicting what she wants to do the more she uses it. `\
+https://nytimes.com/card/2024/05/26/technology/ai-prosthetic-arm
+
 **Monday Briefing: Ukraine Fears a Russian Push Near Kharkiv**\
 `Also, Hamas fires missiles at central Israel`\
 https://nytimes.com/2024/05/26/briefing/monday-briefing-ukraine-fears-a-russian-push-near-kharkiv.html
