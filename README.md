@@ -1,3 +1,7 @@
+**Heavy Storms Pummel the Southern Plains**\
+`At least a dozen people were killed after severe weather, including reported tornadoes, battered parts of Texas, Oklahoma and Arkansas.`\
+https://nytimes.com/video/us/100000009488818/texas-tornado-storm.html
+
 **‘Furiosa’ Is a Box Office Dud, Adding to Hollywood Woes**\
 `Memorial Day weekend ticket sales in North America are expected to total $125 million, down 40 percent from last year.`\
 https://nytimes.com/2024/05/26/business/media/furiosa-box-office-memorial-day-weekend.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/26/world/israel-gaza-war-hamas-rafah/israels-mi
 **Two Deadly Fires in Rapid Succession Expose India’s Gaps in Safety**\
 `Disasters over the weekend that claimed at least 34 lives prompted condolences, arrests and finger-pointing. But systemic change remains elusive, analysts say.`\
 https://nytimes.com/2024/05/26/world/asia/india-fire-death-infants-safety.html
-
-**What Joan Nathan Taught Me About the Power of Showing Up**\
-`How to be there for a friend in need.`\
-https://nytimes.com/2024/05/26/opinion/food-grief-joan-nathan.html
 
