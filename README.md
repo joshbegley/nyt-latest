@@ -1,3 +1,7 @@
+**Optimistic About the War in Ukraine, Putin Unleashes a Purge at Home**\
+`Despite years of criticism, President Vladimir V. Putin has only now changed his defense minister and allowed high-level corruption arrests.`\
+https://nytimes.com/2024/05/26/world/europe/russia-corruption-putin.html
+
 **A Skyscraper Refurbished in Miniature and Memory**\
 `A model of The New York Times’s old headquarters in Times Square was missing the gargoyles that once adorned the building. Enter a graphics editor with a passion on the side.`\
 https://nytimes.com/2024/05/26/insider/times-tower-times-square.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/26/nyregion/twitter-lawyers-threadnought-elon-musk.h
 **Reebok Isn’t a ‘Hobby’ for Shaquille O’Neal**\
 `After pushing to be in charge of the company’s return to basketball, the Hall of Famer understands the stakes. “If this doesn’t work, everyone’s leaving,” he said.`\
 https://nytimes.com/2024/05/26/style/shaquille-oneal-reebok.html
-
-**Marjorie Taylor Greene Has a Decision to Make**\
-`Her craziest-clown-at-the-carnival act seems to have descended into a sad clown party of one.`\
-https://nytimes.com/2024/05/26/opinion/marjorie-taylor-greene-newt-gingrich.html
 
