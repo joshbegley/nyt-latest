@@ -1,3 +1,7 @@
+**Sanford L. Smith, Creator of Prestigious Art Fairs, Dies at 84**\
+`Over four decades, he produced more than 150 events. Some dealers reported selling more in a weekend at a Smith fair than in a year in their galleries.`\
+https://nytimes.com/2024/05/26/arts/sanford-l-smith-dead.html
+
 **Tim Scott says Biden’s education policy ‘resegregates schools.’**\
 `The South Carolina senator and vice-presidential contender continued the Trump campaign’s efforts to court Black voters with a focus on education and the economy.`\
 https://nytimes.com/live/2024/05/26/us/biden-trump-election/tim-scott-trump-black-voters-schools
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/26/opinion/food-grief-joan-nathan.html
 **Biden Wants to Send Billions to Rural America. But This Must Happen First.**\
 `All that money is meaningless unless it reaches local communities.`\
 https://nytimes.com/2024/05/26/opinion/biden-rural-america.html
-
-**Russia Plans New Offensive in Ukraine’s Northeast, Zelensky Says**\
-`Moscow is again amassing forces near the border, President Volodymyr Zelensky of Ukraine warned. His comments came as officials said that a Russian strike had killed at least 16 people in Kharkiv.`\
-https://nytimes.com/2024/05/26/world/europe/russia-offensive-ukraine-northeast.html
 
