@@ -1,3 +1,7 @@
+**Richard Sherman, Songwriter of Many Spoonfuls of Sugar, Dies at 95**\
+`He and his brother, Robert, teamed up to write the songs for “Mary Poppins” and other Disney classics. They also gave the world “It’s a Small World (After All).”`\
+https://nytimes.com/2024/05/25/arts/music/richard-m-sherman-dead.html
+
 **Trump Will Address the Libertarian Convention. Some Members Are Outraged.**\
 `The Libertarian Party’s invitation to former President Donald J. Trump to speak at its convention on Saturday has stirred deep tensions among leaders and delegates — and many plan to express them.`\
 https://nytimes.com/2024/05/25/us/politics/trump-libertarian-convention.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/25/movies/anora-palme-dor-sean-baker.html
 **Biden Delivers Commencement Address at West Point**\
 `President Biden called on graduates of the U.S. Military Academy to honor their oath to protect American democracy against threats abroad and — in an indirect reference to former President Donald J. Trump — at home.`\
 https://nytimes.com/video/us/politics/100000009488323/biden-west-point-commencement.html
-
-**‘New Territory’ for Americans: Deadly Heat in the Workplace**\
-`Deaths are rising sharply, and the Biden administration is trying to respond. Its plan faces big hurdles.`\
-https://nytimes.com/2024/05/25/climate/extreme-heat-biden-workplace.html
 
