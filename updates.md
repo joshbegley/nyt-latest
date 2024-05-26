@@ -1,3 +1,7 @@
+**Trump Tells Libertarians to Nominate Him, and Mocks Them When They Boo**\
+`Former President Donald J. Trump’s appearance before the Libertarian Party on Saturday was without modern precedent: the presumptive nominee of one party addressing the convention of another.`\
+https://nytimes.com/2024/05/25/us/politics/trump-libertarian-convention.html
+
 **Quotation of the Day: The Last Line of Defense for a Key Eastern Town**\
 `Quotation of the Day for Sunday, May 26, 2024.`\
 https://nytimes.com/2024/05/25/pageoneplus/quotation-of-the-day-the-last-line-of-defense-for-a-key-eastern-town.html

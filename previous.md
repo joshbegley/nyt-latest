@@ -6,8 +6,8 @@ https://nytimes.com/2024/05/25/pageoneplus/quotation-of-the-day-the-last-line-of
 `He and his brother, Robert, teamed up to write the songs for “Mary Poppins” and other Disney classics. They also gave the world “It’s a Small World (After All).”`\
 https://nytimes.com/2024/05/25/arts/music/richard-m-sherman-dead.html
 
-**Trump Will Address the Libertarian Convention. Some Members Are Outraged.**\
-`The Libertarian Party’s invitation to former President Donald J. Trump to speak at its convention on Saturday has stirred deep tensions among leaders and delegates — and many plan to express them.`\
+**Trump Tells Libertarians to Nominate Him, and Mocks Them When They Boo**\
+`Former President Donald J. Trump’s appearance before the Libertarian Party on Saturday was without modern precedent: the presumptive nominee of one party addressing the convention of another.`\
 https://nytimes.com/2024/05/25/us/politics/trump-libertarian-convention.html
 
 **Zack Norman, Actor Who Juggled Multiple Professions, Dies at 83**\
