@@ -1,3 +1,7 @@
+**‘Furiosa’ Is a Box Office Dud, Adding to Hollywood Woes**\
+`Memorial Day weekend ticket sales in North America are expected to total $125 million, down 40 percent from last year.`\
+https://nytimes.com/2024/05/26/business/media/furiosa-box-office-memorial-day-weekend.html
+
 **Sanford L. Smith, Creator of Prestigious Art Fairs, Dies at 84**\
 `Over four decades, he produced more than 150 events. Some dealers reported selling more in a weekend at a Smith fair than in a year in their galleries.`\
 https://nytimes.com/2024/05/26/arts/sanford-l-smith-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/26/world/asia/india-fire-death-infants-safety.html
 **What Joan Nathan Taught Me About the Power of Showing Up**\
 `How to be there for a friend in need.`\
 https://nytimes.com/2024/05/26/opinion/food-grief-joan-nathan.html
-
-**Biden Wants to Send Billions to Rural America. But This Must Happen First.**\
-`All that money is meaningless unless it reaches local communities.`\
-https://nytimes.com/2024/05/26/opinion/biden-rural-america.html
 
