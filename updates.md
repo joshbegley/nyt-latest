@@ -1,3 +1,7 @@
+**Idaho Drag Performer Wins Over $1.1 Million in Defamation Suit Against Blogger**\
+`The jury unanimously sided with the performer in a case against a blogger who made false claims that the artist had exposed himself to a crowd at a pride event in 2022.`\
+https://nytimes.com/2024/05/26/us/eric-posey-drag-performer-defamation-case.html
+
 **Veteran Survives Grizzly’s Attack After It Bites Into Can of Bear Spray**\
 `Shayne Patrick Burke, a disabled veteran in the Army Reserve, said the attack was “the most violent” thing he had experienced, including being shot at.`\
 https://nytimes.com/2024/05/26/us/grizzly-bear-attack-grand-teton.html
