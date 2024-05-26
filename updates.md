@@ -1,3 +1,7 @@
+**Optimistic About the War in Ukraine, Putin Unleashes a Purge at Home**\
+`Despite years of criticism, President Vladimir V. Putin has only now changed his defense minister and allowed high-level corruption arrests.`\
+https://nytimes.com/2024/05/26/world/europe/russia-corruption-putin.html
+
 **A Skyscraper Refurbished in Miniature and Memory**\
 `A model of The New York Times’s old headquarters in Times Square was missing the gargoyles that once adorned the building. Enter a graphics editor with a passion on the side.`\
 https://nytimes.com/2024/05/26/insider/times-tower-times-square.html
