@@ -1,3 +1,7 @@
+**Sanford L. Smith, Creator of Prestigious Art Fairs, Dies at 84**\
+`Over four decades, he produced more than 150 events. Some dealers reported selling more in a weekend at a Smith fair than in a year in their galleries.`\
+https://nytimes.com/2024/05/26/arts/sanford-l-smith-dead.html
+
 **Tim Scott says Biden’s education policy ‘resegregates schools.’**\
 `The South Carolina senator and vice-presidential contender continued the Trump campaign’s efforts to court Black voters with a focus on education and the economy.`\
 https://nytimes.com/live/2024/05/26/us/biden-trump-election/tim-scott-trump-black-voters-schools
