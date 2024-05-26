@@ -1,5 +1,5 @@
 **Heavy Storms Pummel the Southern Plains**\
-`At least a dozen people were killed after severe weather, including reported tornadoes, battered parts of Texas, Oklahoma and Arkansas.`\
+`More than a dozen people were killed after severe weather, including reported tornadoes, battered parts of Texas, Oklahoma and Arkansas.`\
 https://nytimes.com/video/us/100000009488818/texas-tornado-storm.html
 
 **‘Furiosa’ Is a Box Office Dud, Adding to Hollywood Woes**\
