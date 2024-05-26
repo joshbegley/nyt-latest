@@ -1,3 +1,7 @@
+**12 Injured After Turbulence on Flight From Qatar to Ireland**\
+`The Dublin Airport said that a Qatar Airways flight from Doha landed in Ireland after a dozen people were injured by turbulence.`\
+https://nytimes.com/2024/05/26/world/europe/dublin-qatar-airways-flight-turbulence.html
+
 **Debating the Best Way to Fix Social Security**\
 `Readers discuss Peter Coy’s proposal to reduce benefits. Also: Singapore’s view; an Ithaca man’s tragic death; MSNBC’s role in our democracy.`\
 https://nytimes.com/2024/05/26/opinion/social-security.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/26/briefing/summer-guide-memorial-day.html
 **Death Toll in Papua New Guinea Landslide Estimated to Be at Least 670**\
 `More than 48 hours after the disaster, its full extent remains unclear, with aid slow to reach survivors and conditions on the ground still dangerous.`\
 https://nytimes.com/2024/05/26/world/asia/papua-new-guinea-landslide-death.html
-
-**Do Not Allow Putin to Capture Another Pawn in Europe**\
-`Georgia’s new law against “foreign influence” is actually a troubling sign of Putin’s influence in Ukraine’s neighbors.`\
-https://nytimes.com/2024/05/26/opinion/georgia-foreign-agent-russia.html
 
