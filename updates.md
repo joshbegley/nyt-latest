@@ -1,3 +1,7 @@
+**Richard Sherman, Songwriter of Many Spoonfuls of Sugar, Dies at 95**\
+`He and his brother, Robert, teamed up to write the songs for “Mary Poppins” and other Disney classics. They also gave the world “It’s a Small World (After All).”`\
+https://nytimes.com/2024/05/25/arts/music/richard-m-sherman-dead.html
+
 **Trump Will Address the Libertarian Convention. Some Members Are Outraged.**\
 `The Libertarian Party’s invitation to former President Donald J. Trump to speak at its convention on Saturday has stirred deep tensions among leaders and delegates — and many plan to express them.`\
 https://nytimes.com/2024/05/25/us/politics/trump-libertarian-convention.html
