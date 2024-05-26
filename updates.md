@@ -1,3 +1,7 @@
+**Russia Plans New Offensive in Ukraine’s Northeast, Zelensky Says**\
+`Moscow was again amassing forces near the border, President Volodymyr Zelensky said. His comments came as officials said that a Russian strike had killed at least 14 people in Kharkiv.`\
+https://nytimes.com/2024/05/26/world/europe/russia-offensive-ukraine-northeast.html
+
 **Summer Begins**\
 `Memorial Day is the starting gun of a new season. Here’s a guide on how to spend the summer months.`\
 https://nytimes.com/2024/05/26/briefing/summer-guide-memorial-day.html
