@@ -1,3 +1,7 @@
+**Summer Begins**\
+`Memorial Day is the starting gun of a new season. Here’s a guide on how to spend the summer months.`\
+https://nytimes.com/2024/05/26/briefing/summer-guide-memorial-day.html
+
 **Death Toll in Papua New Guinea Landslide Estimated to Be at Least 670**\
 `More than 48 hours after the disaster, its full extent remains unclear, with aid slow to reach survivors and conditions on the ground still dangerous.`\
 https://nytimes.com/2024/05/26/world/asia/papua-new-guinea-landslide-death.html
