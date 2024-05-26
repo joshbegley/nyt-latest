@@ -1,3 +1,7 @@
+**Israeli airstrike kills dozens in a Rafah tent camp, Gazan authorities say. Israel says it targeted a Hamas compound.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2024/05/26/world/israel-gaza-war-hamas-rafah/israeli-airstrike-kills-dozens-in-a-rafah-tent-camp-gazan-authorities-say-israel-says-it-targeted-a-hamas-compound
+
 **In Most Cases**\
 `Christopher Youngs’s crossword is more than the sum of its parts.`\
 https://nytimes.com/2024/05/26/crosswords/daily-puzzle-2024-05-27.html

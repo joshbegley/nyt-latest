@@ -1,3 +1,7 @@
+**Israeli airstrike kills dozens in a Rafah tent camp, Gazan authorities say. Israel says it targeted a Hamas compound.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2024/05/26/world/israel-gaza-war-hamas-rafah/israeli-airstrike-kills-dozens-in-a-rafah-tent-camp-gazan-authorities-say-israel-says-it-targeted-a-hamas-compound
+
 **In Most Cases**\
 `Christopher Youngs’s crossword is more than the sum of its parts.`\
 https://nytimes.com/2024/05/26/crosswords/daily-puzzle-2024-05-27.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/26/arts/sanford-l-smith-dead.html
 **Tim Scott says Biden’s education policy ‘resegregates schools.’**\
 `The South Carolina senator and vice-presidential contender continued the Trump campaign’s efforts to court Black voters with a focus on education and the economy.`\
 https://nytimes.com/live/2024/05/26/us/biden-trump-election/tim-scott-trump-black-voters-schools
-
-**Don Perlin, Comic Book Artist Who Found Success Late, Dies at 94**\
-`His Moon Knight was a hit in the 1970s, 30 years after he began his career. Bloodshot, another popular superhero, followed two decades later.`\
-https://nytimes.com/2024/05/26/arts/don-perlin-dead.html
 
