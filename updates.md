@@ -1,3 +1,7 @@
+**Veteran Survives Grizzly’s Attack After It Bites Into Can of Bear Spray**\
+`Shayne Patrick Burke, a disabled veteran in the Army Reserve, said the attack was “the most violent” thing he had experienced, including being shot at.`\
+https://nytimes.com/2024/05/26/us/grizzly-bear-attack-grand-teton.html
+
 **Heavy Storms Pummel the Southern Plains**\
 `More than a dozen people were killed after severe weather, including reported tornadoes, battered parts of Texas, Oklahoma and Arkansas.`\
 https://nytimes.com/video/us/100000009488818/texas-tornado-storm.html
