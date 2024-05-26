@@ -1,3 +1,11 @@
+**Tim Scott says Biden’s education policy ‘resegregates schools.’**\
+`The South Carolina senator and vice-presidential contender continued the Trump campaign’s efforts to court Black voters with a focus on education and the economy.`\
+https://nytimes.com/2024/05/26/us/politics/tim-scott-trump-black-voters-schools.html
+
+**Biden Wants to Send Billions to Rural America. But This Must Happen First.**\
+`All that money is meaningless unless it reaches local communities.`\
+https://nytimes.com/2024/05/26/opinion/biden-rural-america.html
+
 **Don Perlin, Comic Book Artist Who Found Success Late, Dies at 94**\
 `His Moon Knight was a hit in the 1970s, 30 years after he began his career. Bloodshot, another popular superhero, followed two decades later.`\
 https://nytimes.com/2024/05/26/arts/don-perlin-dead.html
