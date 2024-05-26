@@ -1,3 +1,7 @@
+**Russia Plans New Offensive in Ukraine’s Northeast, Zelensky Says**\
+`Moscow is again amassing forces near the border, President Volodymyr Zelensky said. His comments came as officials said that a Russian strike had killed at least 14 people in Kharkiv.`\
+https://nytimes.com/2024/05/26/world/europe/russia-offensive-ukraine-northeast.html
+
 **Israel’s military says the rockets came from Rafah, where its troops have been advancing.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/05/26/world/israel-gaza-war-hamas-rafah/israels-military-says-the-rockets-came-from-rafah-where-its-troops-have-been-advancing
