@@ -1,3 +1,9 @@
+**The aid expected to enter Gaza had been languishing in Egypt.**\
+`By Vivek Shankar and Aaron Boxerman`\
+https://nytimes.com/live/2024/05/26/world/israel-gaza-war-hamas-rafah/the-aid-expected-to-enter-gaza-had-been-languishing-in-egypt
+
+**Tel Aviv protests lead to arrests, and other news.**\
+
 **A Medium-Rare Goodbye**\
 `Pietro’s, an old-guard Italian steakhouse, said farewell to its longtime address in Midtown Manhattan with a crew of regulars.`\
 https://nytimes.com/2024/05/26/style/pietros-manhattan-steak-house-goodbye.html
