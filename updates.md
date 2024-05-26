@@ -1,3 +1,7 @@
+**Russia Bombs Hardware Superstore in Kharkiv, Killing 11, Ukraine Says**\
+`It was the latest attack in a sustained bombing campaign that has made life increasingly dangerous for civilians in the northeastern Ukrainian city.`\
+https://nytimes.com/2024/05/25/world/europe/russia-kharkiv-bombing-superstore-mall-ukraine.html
+
 **Amateur Historians Heard Tales of a Lost Tudor Palace. Then, They Dug It Up.**\
 `In a small English village, a group of dedicated locals has unearthed the remains of a long-vanished palace that had been home to Henry VIII’s grandmother.`\
 https://nytimes.com/2024/05/26/world/europe/england-collyweston-tudor-palace.html
