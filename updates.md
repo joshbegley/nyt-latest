@@ -1,3 +1,7 @@
+**Monday Briefing: Ukraine Fears a Russian Push Near Kharkiv**\
+`Also, Hamas fires missiles at central Israel`\
+https://nytimes.com/2024/05/26/briefing/monday-briefing-ukraine-fears-a-russian-push-near-kharkiv.html
+
 **Idaho Drag Performer Wins Over $1.1 Million in Defamation Suit Against Blogger**\
 `The jury unanimously sided with the performer in a case against a blogger who made false claims that the artist had exposed himself to a crowd at a pride event in 2022.`\
 https://nytimes.com/2024/05/26/us/eric-posey-drag-performer-defamation-case.html

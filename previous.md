@@ -1,3 +1,7 @@
+**Monday Briefing: Ukraine Fears a Russian Push Near Kharkiv**\
+`Also, Hamas fires missiles at central Israel`\
+https://nytimes.com/2024/05/26/briefing/monday-briefing-ukraine-fears-a-russian-push-near-kharkiv.html
+
 **Idaho Drag Performer Wins Over $1.1 Million in Defamation Suit Against Blogger**\
 `The jury unanimously sided with the performer in a case against a blogger who made false claims that the artist had exposed himself to a crowd at a pride event in 2022.`\
 https://nytimes.com/2024/05/26/us/eric-posey-drag-performer-defamation-case.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/26/world/europe/qatar-airways-turbulence-dublin-flig
 **Debating the Best Way to Fix Social Security**\
 `Readers discuss Peter Coy’s proposal to reduce benefits. Also: Singapore’s view; an Ithaca man’s tragic death; MSNBC’s role in our democracy.`\
 https://nytimes.com/2024/05/26/opinion/social-security.html
-
-**Simple, Summery, Spicy Grilled Shrimp**\
-`And if it’s cool and overcast: bo ssam, cured and slow roasted and served with lettuce, rice and a raft of condiments.`\
-https://nytimes.com/2024/05/26/dining/simple-summery-spicy-grilled-shrimp.html
 
