@@ -1,3 +1,7 @@
+**Tornadoes Hit Southern Plains, Killing at Least 2 in Texas**\
+`Rescue teams were beginning to assess the destruction early Sunday after storms overnight damaged homes, downed power lines and flipped trucks.`\
+https://nytimes.com/2024/05/26/us/tornadoes-storms-texas-oklahoma.html
+
 **Tornadoes Leave Heavy Damage in Texas and Oklahoma**\
 `Rescue teams were beginning to assess the destruction early Sunday after storms overnight damaged homes, downed power lines and flipped trucks.`\
 https://nytimes.com/2024/05/26/us/tornadoes-storms-texas-oklahoma.html
