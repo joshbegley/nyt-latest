@@ -1,3 +1,11 @@
+**Debating the Best Way to Fix Social Security**\
+`Readers discuss Peter Coy’s proposal to reduce benefits. Also: Singapore’s view; an Ithaca man’s tragic death; MSNBC’s role in our democracy.`\
+https://nytimes.com/2024/05/26/opinion/social-security.html
+
+**Simple, Summery, Spicy Grilled Shrimp**\
+`And if it’s cool and overcast: bo ssam, cured and slow roasted and served with lettuce, rice and a raft of condiments.`\
+https://nytimes.com/2024/05/26/dining/simple-summery-spicy-grilled-shrimp.html
+
 **Russia Plans New Offensive in Ukraine’s Northeast, Zelensky Says**\
 `Moscow is again amassing forces near the border, President Volodymyr Zelensky said. His comments came as officials said that a Russian strike had killed at least 14 people in Kharkiv.`\
 https://nytimes.com/2024/05/26/world/europe/russia-offensive-ukraine-northeast.html

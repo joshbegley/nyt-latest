@@ -1,3 +1,11 @@
+**Debating the Best Way to Fix Social Security**\
+`Readers discuss Peter Coy’s proposal to reduce benefits. Also: Singapore’s view; an Ithaca man’s tragic death; MSNBC’s role in our democracy.`\
+https://nytimes.com/2024/05/26/opinion/social-security.html
+
+**Simple, Summery, Spicy Grilled Shrimp**\
+`And if it’s cool and overcast: bo ssam, cured and slow roasted and served with lettuce, rice and a raft of condiments.`\
+https://nytimes.com/2024/05/26/dining/simple-summery-spicy-grilled-shrimp.html
+
 **Israel’s military says the rockets came from Rafah, where its troops have been advancing.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/05/26/world/israel-gaza-war-hamas-rafah/israels-military-says-the-rockets-came-from-rafah-where-its-troops-have-been-advancing
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/26/world/asia/papua-new-guinea-landslide-death.html
 **Do Not Allow Putin to Capture Another Pawn in Europe**\
 `Georgia’s new law against “foreign influence” is actually a troubling sign of Putin’s influence in Ukraine’s neighbors.`\
 https://nytimes.com/2024/05/26/opinion/georgia-foreign-agent-russia.html
-
-**The Connections Companion No. 351, May 27, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/26/crosswords/connections-companion-351.html
-
-**Today’s Wordle Review No. 1,073, May 27, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/26/crosswords/wordle-review-1073.html
 
