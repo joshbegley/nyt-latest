@@ -1,3 +1,11 @@
+**Amateur Historians Heard Tales of a Lost Tudor Palace. Then, They Dug It Up.**\
+`In a small English village, a group of dedicated locals has unearthed the remains of a long-vanished palace that had been home to Henry VIII’s grandmother.`\
+https://nytimes.com/2024/05/26/world/europe/england-collyweston-tudor-palace.html
+
+**Free Food? Modi Makes Sure Every Indian Knows Whom to Thank for It.**\
+`India’s welfare programs improve lives. Prime Minister Narendra Modi’s party uses its vast machinery to ensure the handouts also create loyal voters.`\
+https://nytimes.com/2024/05/26/world/asia/india-welfare-modi.html
+
 **Quotation of the Day: The Last Line of Defense for a Key Eastern Town**\
 `Quotation of the Day for Sunday, May 26, 2024.`\
 https://nytimes.com/2024/05/25/pageoneplus/quotation-of-the-day-the-last-line-of-defense-for-a-key-eastern-town.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/25/sports/grayson-murray-pga-golf-dead.html
 **Russia Bombs Hardware Superstore in Kharkiv, Killing 6, Ukraine Says**\
 `It was the latest attack in a sustained bombing campaign that has made life increasingly dangerous for civilians in the northeastern Ukrainian city.`\
 https://nytimes.com/2024/05/25/world/europe/russia-kharkiv-bombing-superstore-mall-ukraine.html
-
-**Michael Sugrue, Whose Philosophy Lectures Were a YouTube Hit, Dies at 66**\
-`After an academic career spent in near obscurity, he became an internet phenomenon during the pandemic by uploading talks he had given three decades earlier.`\
-https://nytimes.com/2024/05/25/education/michael-sugrue-dead.html
-
-**Bawdy Comedy ‘Anora’ Wins Palme d’Or at Cannes Film Festival**\
-`The movie about a sex worker, from the American filmmaker Sean Baker, took the top prize at a ceremony that also honored George Lucas.`\
-https://nytimes.com/2024/05/25/movies/anora-palme-dor-sean-baker.html
 
