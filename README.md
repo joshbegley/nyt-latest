@@ -1,3 +1,7 @@
+**Israeli strike near a Lebanese hospital stokes the flare-up along a volatile border.**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/05/27/world/israel-gaza-war-hamas-rafah/israeli-strike-near-a-lebanese-hospital-stokes-the-flare-up-along-a-volatile-border
+
 **Stanley Goldstein, Who Helped Make CVS a Pharmacy Giant, Dies at 89**\
 `The small chain that he, a brother and a third partner opened in 1963 had become the nation’s largest by the time he retired as its chief executive three decades later.`\
 https://nytimes.com/2024/05/27/business/stanley-goldstein-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/27/arts/seattle-museum-walkout-gaza.html
 **Voices Carry at La MaMa, but Only a Few Rise Above the Din**\
 `The La MaMa Moves! Dance Festival 2024 featured a high ratio of talking to dancing.`\
 https://nytimes.com/2024/05/27/arts/dance/la-mama-moves-dance-festival.html
-
-**Gazans Look Through Ashes After Israeli Strike on Rafah**\
-`Displaced Palestinians mourned the dead and sifted through the debris of a tent camp in Rafah, Gaza, that was devastated by an Israeli strike.`\
-https://nytimes.com/video/world/middleeast/100000009489688/rafah-tent-camp-airstrike.html
 
