@@ -1,3 +1,7 @@
+**Nicki Minaj Apologizes for Postponed Show After Video Appears to Show Arrest**\
+`In a video posted live by Minaj to Instagram, the rapper appeared to step into a law enforcement vehicle after being accused of “carrying drugs.”`\
+https://nytimes.com/2024/05/26/us/nikki-minaj-arrest-manchester-concert-postponed.html
+
 **Israeli airstrike kills dozens in a Rafah tent camp, Gazan authorities say. Israel says it targeted a Hamas compound.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2024/05/26/world/israel-gaza-war-hamas-rafah/israeli-airstrike-kills-dozens-in-a-rafah-tent-camp-gazan-authorities-say-israel-says-it-targeted-a-hamas-compound
