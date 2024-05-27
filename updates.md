@@ -1,3 +1,7 @@
+**Netanyahu Calls Civilian Deaths in Rafah Strike a ‘Tragic Accident’**\
+`The strike on Sunday, which Israeli officials said targeted two Hamas leaders taking cover near a civilian encampment, ignited a fire that killed 45 people, according to the Gazan authorities.`\
+https://nytimes.com/2024/05/27/world/middleeast/israel-rafah-civilian-deaths.html
+
 **Israeli strike near a Lebanese hospital stokes the flare-up along a volatile border.**\
 `By Euan Ward`\
 https://nytimes.com/live/2024/05/27/world/israel-gaza-war-hamas-rafah/israeli-strike-near-a-lebanese-hospital-stokes-the-flare-up-along-a-volatile-border
