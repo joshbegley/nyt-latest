@@ -1,3 +1,5 @@
+**Macron says Israeli operations in Rafah ‘must stop,’ and more news.**\
+
 **Quotation of the Day: She Passed the Audition, but Then Came Boot Camp**\
 `Quotation of the Day for Monday, May 27, 2024.`\
 https://nytimes.com/2024/05/27/pageoneplus/quotation-of-the-day-she-passed-the-audition-but-then-came-boot-camp.html
