@@ -1,3 +1,11 @@
+**The Stench of Climate Change Denial**\
+`What overflowing septic tanks tell us about the future.`\
+https://nytimes.com/2024/05/27/opinion/climate-change.html
+
+**Bill Walton, N.B.A. Hall of Famer and Broadcasting Star, Dies at 71**\
+`He won championships in high school, college (U.C.L.A.) and the pros (Trail Blazers and Celtics) before turning to TV as a talkative game analyst for college ball.`\
+https://nytimes.com/2024/05/27/sports/basketball/bill-walton-dead.html
+
 **Ransomware Group Claims Responsibility for Christie’s Hack**\
 `The hacking group RansomHub is threatening to release “sensitive personal information” about the auction house’s clients.`\
 https://nytimes.com/2024/05/27/arts/design/hackers-claim-christies-attack.html

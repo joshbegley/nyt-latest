@@ -1,3 +1,7 @@
+**The Stench of Climate Change Denial**\
+`What overflowing septic tanks tell us about the future.`\
+https://nytimes.com/2024/05/27/opinion/climate-change.html
+
 **Ransomware Group Claims Responsibility for Christie’s Hack**\
 `The hacking group RansomHub is threatening to release “sensitive personal information” about the auction house’s clients.`\
 https://nytimes.com/2024/05/27/arts/design/hackers-claim-christies-attack.html
@@ -15,7 +19,7 @@ https://nytimes.com/live/2024/05/27/world/israel-gaza-war-hamas-rafah/israeli-st
 https://nytimes.com/2024/05/27/business/stanley-goldstein-dead.html
 
 **Bill Walton, N.B.A. Hall of Famer and Broadcasting Star, Dies at 71**\
-`A dominant, colorful center, he won championships in high school, at U.C.L.A. and with the Trail Blazers and the Celtics before becoming a TV commentator.`\
+`He won championships in high school, college (U.C.L.A.) and the pros (Trail Blazers and Celtics) before turning to TV as a talkative game analyst for college ball.`\
 https://nytimes.com/2024/05/27/sports/basketball/bill-walton-dead.html
 
 **Tuesday Briefing: Netanyahu Calls Rafah Deaths a ‘Tragic Accident’**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/27/business/economy/amazon-fedex-ups-union.html
 **No, Americans Are Not Completely Stupid About Inflation**\
 `People may not fully understand the economy, but their feelings about it contain some wisdom.`\
 https://nytimes.com/2024/05/27/opinion/inflation-economics-stefanie-stantcheva.html
-
-**World leaders denounced the deadly strike in Rafah, saying it shows the need for a cease-fire.**\
-`By Alexandra E. Petri`\
-https://nytimes.com/live/2024/05/27/world/israel-gaza-war-hamas-rafah/world-leaders-denounced-the-deadly-strike-in-rafah-saying-it-shows-the-need-for-a-cease-fire
 
