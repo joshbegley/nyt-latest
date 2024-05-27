@@ -1,3 +1,15 @@
+**Biden Marks Memorial Day With Message About Freedom as Trump Lashes Out**\
+`An earlier message from Donald J. Trump was more traditional, but it was quickly followed by one wishing a happy Memorial Day to “Human Scum.”`\
+https://nytimes.com/2024/05/27/us/politics/biden-trump-memorial-day.html
+
+**Trump Elevates a Conservative ‘Warrior’ on Education**\
+`Byron Donalds is best known as a Trump defender and potential vice-presidential pick. But in Florida, the congressman and his wife made a name — and a business — in the charter school movement.`\
+https://nytimes.com/2024/05/27/us/politics/trump-campaign-byron-donalds-florida.html
+
+**The Unlikely Women Fighting for Abortion Rights**\
+`The end of Roe has turned women who terminated pregnancies for medical reasons into a political force.`\
+https://nytimes.com/2024/05/27/us/abortion-women-tfmr.html
+
 **Shooting Near Rafah Border Crossing Kills a Member of Egypt’s Security Forces**\
 `The Israeli military reported the shooting on the border, but neither country said who opened fire. An investigation was underway.`\
 https://nytimes.com/2024/05/27/world/middleeast/egypt-shooting-border-crossing-rafah.html
