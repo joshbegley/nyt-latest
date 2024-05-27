@@ -1,4 +1,4 @@
-**Netanyahu Calls Civilian Deaths in Rafah Strike a ‘Tragic Accident’**\
+**Facing Global Outrage, Netanyahu Calls Civilian Deaths in Rafah Strike ‘Tragic Accident’**\
 `The strike on Sunday, which Israeli officials said targeted two Hamas leaders taking cover near a civilian encampment, ignited a fire that killed 45 people, according to the Gazan authorities.`\
 https://nytimes.com/2024/05/27/world/middleeast/israel-rafah-civilian-deaths.html
 
