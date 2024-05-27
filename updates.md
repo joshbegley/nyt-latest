@@ -1,3 +1,7 @@
+**Voices Carry at La MaMa, but Only a Few Rise Above the Din**\
+`The La MaMa Moves! Dance Festival 2024 featured a high ratio of talking to dancing.`\
+https://nytimes.com/2024/05/27/arts/dance/la-mama-moves-dance-festival.html
+
 **Gazans Look Through Ashes After Israeli Strike on Rafah**\
 `Displaced Palestinians mourned the dead and sifted through the debris of a tent camp in Rafah, Gaza, that was devastated by an Israeli strike.`\
 https://nytimes.com/video/world/middleeast/100000009489688/rafah-tent-camp-airstrike.html
