@@ -1,3 +1,7 @@
+**Libertarians Skip Over Trump and R.F.K. Jr. for Chase Oliver**\
+`The party selected Mr. Oliver as its presidential nominee. He ran for a Senate seat in Georgia in 2022.`\
+https://nytimes.com/2024/05/26/us/politics/chase-oliver-libertarian-nominee.html
+
 **Nicki Minaj Apologizes for Postponed Show After Video Appears to Show Arrest**\
 `In a video posted live by Minaj to Instagram, the rapper appeared to step into a law enforcement vehicle after being accused of “carrying drugs.”`\
 https://nytimes.com/2024/05/26/us/nikki-minaj-arrest-manchester-concert-postponed.html

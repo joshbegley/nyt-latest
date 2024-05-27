@@ -1,3 +1,7 @@
+**Libertarians Skip Over Trump and R.F.K. Jr. for Chase Oliver**\
+`The party selected Mr. Oliver as its presidential nominee. He ran for a Senate seat in Georgia in 2022.`\
+https://nytimes.com/2024/05/26/us/politics/chase-oliver-libertarian-nominee.html
+
 **Nicki Minaj Apologizes for Postponed Show After Video Appears to Show Arrest**\
 `In a video posted live by Minaj to Instagram, the rapper appeared to step into a law enforcement vehicle after being accused of “carrying drugs.”`\
 https://nytimes.com/2024/05/26/us/nikki-minaj-arrest-manchester-concert-postponed.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000009488818/texas-tornado-storm.html
 **‘Furiosa’ Is a Box Office Dud, Adding to Hollywood Woes**\
 `Memorial Day weekend ticket sales in North America are expected to total $125 million, down 40 percent from last year.`\
 https://nytimes.com/2024/05/26/business/media/furiosa-box-office-memorial-day-weekend.html
-
-**Sanford L. Smith, Creator of Prestigious Art Fairs, Dies at 84**\
-`Over four decades, he produced more than 150 events. Some dealers reported selling more in a weekend at a Smith fair than in a year in their galleries.`\
-https://nytimes.com/2024/05/26/arts/sanford-l-smith-dead.html
 
