@@ -1,3 +1,7 @@
+**I’ve Seen the Biden-Trump Rematch Before, and It Was Scary**\
+`Russia’s election in 1996 is a cautionary tale for America.`\
+https://nytimes.com/2024/05/27/opinion/trump-biden-yeltsin-russia.html
+
 **Monday Briefing**\
 `We’re covering a Ukrainian warning of a new Russian offensive as well as a Hamas strike on Israel.`\
 https://nytimes.com/2024/05/27/briefing/ukraine-russia-gaza-papua-new-guinea.html
