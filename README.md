@@ -1,3 +1,7 @@
+**Netanyahu Calls Civilian Deaths in Rafah Strike a ‘Tragic Accident’**\
+`The strike on Sunday, which Israeli officials said targeted two Hamas leaders taking cover near a civilian encampment, ignited a fire that killed 45 people, according to the Gazan authorities.`\
+https://nytimes.com/2024/05/27/world/middleeast/israel-rafah-civilian-deaths.html
+
 **Israeli strike near a Lebanese hospital stokes the flare-up along a volatile border.**\
 `By Euan Ward`\
 https://nytimes.com/live/2024/05/27/world/israel-gaza-war-hamas-rafah/israeli-strike-near-a-lebanese-hospital-stokes-the-flare-up-along-a-volatile-border
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/27/world/israel-gaza-war-hamas-rafah/world-lead
 **Museum Workers Walk Out, Describing Exhibit as Aligned With Zionism**\
 `The Wing Luke Museum in Seattle temporarily closed after employees criticized an exhibition, saying it wrongly conflated anti-Zionism with antisemitism.`\
 https://nytimes.com/2024/05/27/arts/seattle-museum-walkout-gaza.html
-
-**Voices Carry at La MaMa, but Only a Few Rise Above the Din**\
-`The La MaMa Moves! Dance Festival 2024 featured a high ratio of talking to dancing.`\
-https://nytimes.com/2024/05/27/arts/dance/la-mama-moves-dance-festival.html
 
