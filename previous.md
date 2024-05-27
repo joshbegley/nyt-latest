@@ -1,3 +1,7 @@
+**Papua New Guinea Landslide Has Buried 2,000 People, Officials Say**\
+`Just getting to survivors has proved to be an enormous challenge, with a blocked highway and unstable ground “posing ongoing danger” to rescue workers.`\
+https://nytimes.com/2024/05/27/world/australia/papua-new-guinea-landslide.html
+
 **The Star Witness Who Never Testified at Trump’s Trial**\
 `Donald J. Trump’s lawyers are expected to highlight the absence of Allen Weisselberg, Mr. Trump’s former finance chief, who is serving jail time for perjury.`\
 https://nytimes.com/2024/05/27/nyregion/trump-trial-hush-money-weisselberg.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/27/opinion/trump-biden-yeltsin-russia.html
 **Monday Briefing**\
 `We’re covering a Ukrainian warning of a new Russian offensive as well as a Hamas strike on Israel.`\
 https://nytimes.com/2024/05/27/briefing/ukraine-russia-gaza-papua-new-guinea.html
-
-**How China Pulled So Far Ahead on Industrial Policy**\
-`The United States and Europe are trying to catch up to a rival skilled in using all the levers of government and banking to dominate global manufacturing.`\
-https://nytimes.com/2024/05/27/business/economy/china-us-tariffs.html
 

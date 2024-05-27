@@ -1,3 +1,7 @@
+**Papua New Guinea Landslide Has Buried 2,000 People, Officials Say**\
+`Just getting to survivors has proved to be an enormous challenge, with a blocked highway and unstable ground “posing ongoing danger” to rescue workers.`\
+https://nytimes.com/2024/05/27/world/australia/papua-new-guinea-landslide.html
+
 **The Star Witness Who Never Testified at Trump’s Trial**\
 `Donald J. Trump’s lawyers are expected to highlight the absence of Allen Weisselberg, Mr. Trump’s former finance chief, who is serving jail time for perjury.`\
 https://nytimes.com/2024/05/27/nyregion/trump-trial-hush-money-weisselberg.html
