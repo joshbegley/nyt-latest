@@ -1,3 +1,5 @@
+**Aid trucks from Egypt enter Gaza, and more news.**\
+
 **Onstage, Witches and Cossacks Strike a Chord With Ukrainians**\
 `A play based on an 19th-century literary classic is a smash hit among Ukrainians who see in the story cultural and historical echoes of what they face after two years of war.`\
 https://nytimes.com/2024/05/27/world/europe/ukrainians-witches-theater-play.html
