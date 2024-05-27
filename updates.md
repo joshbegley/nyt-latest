@@ -1,3 +1,7 @@
+**‘General Hospital’ Actor Reported Killed in Shooting in Los Angeles**\
+`Johnny Wactor was fatally shot when he interrupted a person who was stealing his vehicle’s catalytic converter, his mother told a news outlet.`\
+https://nytimes.com/2024/05/27/us/johnny-wactor-killed-la-car-theft.html
+
 **The Delivery Business Shows Why Unions Are Struggling to Expand**\
 `The Teamsters union has made little headway in organizing workers at Amazon and FedEx despite wage and other gains it secured at UPS last year.`\
 https://nytimes.com/2024/05/27/business/economy/amazon-fedex-ups-union.html
