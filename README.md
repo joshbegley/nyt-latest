@@ -1,4 +1,4 @@
-**A shooting near the Rafah border crossing killed a member of Egypt’s security forces.**\
+**Shooting Near Rafah Border Crossing Kills a Member of Egypt’s Security Forces**\
 `The Israeli military reported the shooting on the border, but neither country said who opened fire. An investigation was underway.`\
 https://nytimes.com/2024/05/27/world/middleeast/egypt-shooting-border-crossing-rafah.html
 
