@@ -1,3 +1,7 @@
+**500,000 Without Power in 9 States After Deadly Storms**\
+`Millions of people in the Southeast were under tornado watches on Monday, after powerful storms over the weekend left at least 18 dead.`\
+https://nytimes.com/2024/05/27/us/memorial-day-weekend-storms.html
+
 **Papua New Guinea Landslide Has Buried 2,000 People, Officials Say**\
 `Just getting to survivors has proved to be an enormous challenge, with a blocked highway and unstable ground “posing ongoing danger” to rescue workers.`\
 https://nytimes.com/2024/05/27/world/australia/papua-new-guinea-landslide.html
