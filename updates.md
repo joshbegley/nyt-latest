@@ -1,3 +1,7 @@
+**Israeli strike near a Lebanese hospital stokes the flare-up along a volatile border.**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/05/27/world/israel-gaza-war-hamas-rafah/israeli-strike-near-a-lebanese-hospital-stokes-the-flare-up-along-a-volatile-border
+
 **Bill Walton, N.B.A. Hall of Famer and Broadcasting Star, Dies at 71**\
 `A dominant, colorful center, he won championships in high school, at U.C.L.A. and with the Trail Blazers and the Celtics before becoming a TV commentator.`\
 https://nytimes.com/2024/05/27/sports/basketball/bill-walton-dead.html
