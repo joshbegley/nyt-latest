@@ -1,3 +1,7 @@
+**World leaders denounced the deadly strike in Rafah, saying it shows the need for a cease-fire.**\
+`By Alexandra E. Petri`\
+https://nytimes.com/live/2024/05/27/world/israel-gaza-war-hamas-rafah/world-leaders-denounced-the-deadly-strike-in-rafah-saying-it-shows-the-need-for-a-cease-fire
+
 **Museum Workers Walk Out, Describing Exhibit as Aligned With Zionism**\
 `The Wing Luke Museum in Seattle temporarily closed after employees criticized an exhibition, saying it wrongly conflated anti-Zionism with antisemitism.`\
 https://nytimes.com/2024/05/27/arts/seattle-museum-walkout-gaza.html
