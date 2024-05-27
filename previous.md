@@ -1,3 +1,7 @@
+**‘Bluets’ Review: This Maggie Nelson Adaptation Is All About the Vibes**\
+`How do you bring an almost plotless book of elliptical fragments to the stage? The director Katie Mitchell has tried with three actors, four screens and three bottles of whiskey.`\
+https://nytimes.com/2024/05/27/theater/bluets-royal-court-theater-ben-whishaw.html
+
 **Here Comes Manhattanhenge 2024: When and How to Watch**\
 `The annual event brings New Yorkers together to celebrate longer days, warmer weather and epic summer sunsets.`\
 https://nytimes.com/article/manhattanhenge-2024-time-how-to-watch.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/27/climate/trump-electric-vehicles.html
 **Michelle Buteau Sashays Into the Lead**\
 `Once relegated to supporting roles, this comedian is a star of the film “Babes” and is moving to a bigger stage, Radio City Music Hall, for her new special.`\
 https://nytimes.com/2024/05/27/movies/michelle-buteau-babes-netflix.html
-
-**Charred bodies and screams: Witnesses describe scenes of horror at a camp.**\
-`By Hiba Yazbek and Abu Bakr Bashir`\
-https://nytimes.com/live/2024/05/27/world/israel-gaza-war-hamas-rafah/charred-bodies-and-screams-witnesses-describe-scenes-of-horror-at-a-camp
 

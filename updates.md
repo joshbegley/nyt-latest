@@ -1,3 +1,7 @@
+**‘Bluets’ Review: This Maggie Nelson Adaptation Is All About the Vibes**\
+`How do you bring an almost plotless book of elliptical fragments to the stage? The director Katie Mitchell has tried with three actors, four screens and three bottles of whiskey.`\
+https://nytimes.com/2024/05/27/theater/bluets-royal-court-theater-ben-whishaw.html
+
 **Here Comes Manhattanhenge 2024: When and How to Watch**\
 `The annual event brings New Yorkers together to celebrate longer days, warmer weather and epic summer sunsets.`\
 https://nytimes.com/article/manhattanhenge-2024-time-how-to-watch.html
