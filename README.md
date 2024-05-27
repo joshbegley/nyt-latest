@@ -1,3 +1,7 @@
+**‘General Hospital’ Actor Reported Killed in Shooting in Los Angeles**\
+`Johnny Wactor was fatally shot when he interrupted a person who was stealing his vehicle’s catalytic converter, his mother told a news outlet.`\
+https://nytimes.com/2024/05/27/us/johnny-wactor-killed-la-car-theft.html
+
 **The Delivery Business Shows Why Unions Are Struggling to Expand**\
 `The Teamsters union has made little headway in organizing workers at Amazon and FedEx despite wage and other gains it secured at UPS last year.`\
 https://nytimes.com/2024/05/27/business/economy/amazon-fedex-ups-union.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/27/us/politics/trump-campaign-byron-donalds-florida.
 **The Unlikely Women Fighting for Abortion Rights**\
 `The end of Roe has turned women who terminated pregnancies for medical reasons into a political force.`\
 https://nytimes.com/2024/05/27/us/abortion-women-tfmr.html
-
-**Shooting Near Rafah Border Crossing Kills a Member of Egypt’s Security Forces**\
-`The Israeli military reported the shooting on the border, but neither country said who opened fire. An investigation was underway.`\
-https://nytimes.com/2024/05/27/world/middleeast/egypt-shooting-border-crossing-rafah.html
 
