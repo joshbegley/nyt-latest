@@ -1,3 +1,7 @@
+**Can Trump Really Slam the Brakes on Electric Vehicles?**\
+`He has vowed to shred President Biden’s E.V. policies and has threatened that “You won’t be able to sell those cars.”`\
+https://nytimes.com/2024/05/27/climate/trump-electric-vehicles.html
+
 **Michelle Buteau Sashays Into the Lead**\
 `Once relegated to supporting roles, this comedian is a star of the film “Babes” and is moving to a bigger stage, Radio City Music Hall, for her new special.`\
 https://nytimes.com/2024/05/27/movies/michelle-buteau-babes-netflix.html

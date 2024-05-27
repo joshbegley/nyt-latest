@@ -1,3 +1,7 @@
+**Can Trump Really Slam the Brakes on Electric Vehicles?**\
+`He has vowed to shred President Biden’s E.V. policies and has threatened that “You won’t be able to sell those cars.”`\
+https://nytimes.com/2024/05/27/climate/trump-electric-vehicles.html
+
 **Michelle Buteau Sashays Into the Lead**\
 `Once relegated to supporting roles, this comedian is a star of the film “Babes” and is moving to a bigger stage, Radio City Music Hall, for her new special.`\
 https://nytimes.com/2024/05/27/movies/michelle-buteau-babes-netflix.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/27/podcasts/papua-new-guinea-landslide-rafah-airstri
 **The Connections Companion No. 352, May 28, 2024**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/05/27/crosswords/connections-companion-352.html
-
-**Today’s Wordle Review No. 1,074, May 28, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/27/crosswords/wordle-review-1074.html
 
