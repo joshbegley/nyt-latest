@@ -1,3 +1,7 @@
+**Michelle Buteau Sashays Into the Lead**\
+`Once relegated to supporting roles, this comedian is a star of the film “Babes” and is moving to a bigger stage, Radio City Music Hall, for her new special.`\
+https://nytimes.com/2024/05/27/movies/michelle-buteau-babes-netflix.html
+
 **Charred bodies and screams: Witnesses describe scenes of horror at a camp.**\
 `By Hiba Yazbek and Abu Bakr Bashir`\
 https://nytimes.com/live/2024/05/27/world/israel-gaza-war-hamas-rafah/charred-bodies-and-screams-witnesses-describe-scenes-of-horror-at-a-camp
@@ -34,4 +38,3 @@ https://nytimes.com/2024/05/27/crosswords/connections-companion-352.html
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/05/27/crosswords/wordle-review-1074.html
 
-**Macron says Israeli operations in Rafah ‘must stop,’ and more news.**\

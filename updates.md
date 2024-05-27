@@ -1,3 +1,7 @@
+**Michelle Buteau Sashays Into the Lead**\
+`Once relegated to supporting roles, this comedian is a star of the film “Babes” and is moving to a bigger stage, Radio City Music Hall, for her new special.`\
+https://nytimes.com/2024/05/27/movies/michelle-buteau-babes-netflix.html
+
 **Charred bodies and screams: Witnesses describe scenes of horror at a camp.**\
 `By Hiba Yazbek and Abu Bakr Bashir`\
 https://nytimes.com/live/2024/05/27/world/israel-gaza-war-hamas-rafah/charred-bodies-and-screams-witnesses-describe-scenes-of-horror-at-a-camp
