@@ -1,3 +1,11 @@
+**The Delivery Business Shows Why Unions Are Struggling to Expand**\
+`The Teamsters union has made little headway in organizing workers at Amazon and FedEx despite wage and other gains it secured at UPS last year.`\
+https://nytimes.com/2024/05/27/business/economy/amazon-fedex-ups-union.html
+
+**No, Americans Are Not Completely Stupid About Inflation**\
+`People may not fully understand the economy, but their feelings about it contain some wisdom.`\
+https://nytimes.com/2024/05/27/opinion/inflation-economics-stefanie-stantcheva.html
+
 **World leaders denounced the deadly strike in Rafah, saying it shows the need for a cease-fire.**\
 `By Alexandra E. Petri`\
 https://nytimes.com/live/2024/05/27/world/israel-gaza-war-hamas-rafah/world-leaders-denounced-the-deadly-strike-in-rafah-saying-it-shows-the-need-for-a-cease-fire
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/27/us/abortion-women-tfmr.html
 **Shooting Near Rafah Border Crossing Kills a Member of Egypt’s Security Forces**\
 `The Israeli military reported the shooting on the border, but neither country said who opened fire. An investigation was underway.`\
 https://nytimes.com/2024/05/27/world/middleeast/egypt-shooting-border-crossing-rafah.html
-
-**N.J. Officials Briefly Close Popular Boardwalk, Citing ‘Civil Unrest’**\
-`The officials offered few details as to why they declared a state of emergency in Wildwood on one of the busiest weekends of the year.`\
-https://nytimes.com/2024/05/27/nyregion/wildwood-boardwalk-civil-unrest.html
-
-**‘Bluets’ Review: This Maggie Nelson Adaptation Is All About the Vibes**\
-`How do you bring an almost plotless book of elliptical fragments to the stage? The director Katie Mitchell has tried with three actors, four screens and three bottles of whiskey.`\
-https://nytimes.com/2024/05/27/theater/bluets-royal-court-theater-ben-whishaw.html
 
