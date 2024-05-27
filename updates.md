@@ -1,3 +1,7 @@
+**Monday Briefing**\
+`We’re covering a Ukrainian warning of a new Russian offensive as well as a Hamas strike on Israel.`\
+https://nytimes.com/2024/05/27/briefing/ukraine-russia-gaza-papua-new-guinea.html
+
 **How China Pulled So Far Ahead on Industrial Policy**\
 `The United States and Europe are trying to catch up to a rival skilled in using all the levers of government and banking to dominate global manufacturing.`\
 https://nytimes.com/2024/05/27/business/economy/china-us-tariffs.html
