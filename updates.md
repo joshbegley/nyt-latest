@@ -1,3 +1,7 @@
+**Here Comes Manhattanhenge 2024: When and How to Watch**\
+`The annual event brings New Yorkers together to celebrate longer days, warmer weather and epic summer sunsets.`\
+https://nytimes.com/article/manhattanhenge-2024-time-how-to-watch.html
+
 **North Korea Launches Long-Range Rocket Carrying Satellite, Seoul Says**\
 `The launch came hours after North Korea announced a plan to put a military spy satellite into orbit.`\
 https://nytimes.com/2024/05/27/world/asia/north-korea-satellite-spy.html
