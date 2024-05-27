@@ -1,3 +1,7 @@
+**Quotation of the Day: She Passed the Audition, but Then Came Boot Camp**\
+`Quotation of the Day for Monday, May 27, 2024.`\
+https://nytimes.com/2024/05/27/pageoneplus/quotation-of-the-day-she-passed-the-audition-but-then-came-boot-camp.html
+
 **U.S. Lawmakers Visit Taiwan and Vow Support in Face of Chinese Military Drills**\
 `A bipartisan delegation promised to stand by the island’s newly elected president, Lai Ching-te, after Beijing surrounded the self-governing island with naval vessels and aircraft.`\
 https://nytimes.com/2024/05/27/world/asia/us-visit-taiwan-president-china-drills.html

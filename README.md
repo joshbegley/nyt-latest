@@ -22,4 +22,4 @@ https://nytimes.com/2024/05/27/crosswords/connections-companion-352.html
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/05/27/crosswords/wordle-review-1074.html
 
-**Aid trucks from Egypt enter Gaza, and more news.**\
+**Macron says Israeli operations in Rafah ‘must stop,’ and more news.**\
