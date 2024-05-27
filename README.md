@@ -1,40 +1,40 @@
-**Wayne Brady and Nichelle Lewis on Striving for Excellence in ‘The Wiz’**\
-`The veteran and the newcomer each had their own fears as they joined the Broadway revival of the beloved all-Black musical.`\
-https://nytimes.com/2024/05/27/theater/wiz-wayne-brady-nichelle-lewis.html
+**Lessons from Judge David Tatel’s Guide Dog on Blindness and Vision**\
+`In a new memoir, a retired federal appeals court judge who was once a leading candidate for the Supreme Court reflects on candor and independence.`\
+https://nytimes.com/2024/05/27/us/david-tatel-vision-blindness-supreme-court.html
 
-**The Cicadas Are Here. You Have Nothing to Fear.**\
-`An ode to one creature’s brief time in the sun.`\
-https://nytimes.com/2024/05/27/opinion/cicadas-double-brood-renkl.html
+**Access to Aid in Gaza Was Dire. Now, It’s Worse.**\
+`The amount of food aid and other basic necessities making it into the enclave has shrunk so much that humanitarian officials say their operations are at risk of shutting down.`\
+https://nytimes.com/interactive/2024/05/27/world/middleeast/gaza-food-aid-crossings.html
 
-**Pride Events in New York: Here’s How to Celebrate**\
-`It’s a month of dance parties, film festivals, drag shows and street fairs ahead of the city’s official march on June 30.`\
-https://nytimes.com/2024/05/27/arts/pride-events-nyc.html
+**Can I Wear Neon Without Looking Like a Highlighter?**\
+`Our fashion critic shares tips for a reader who is hesitant to wear ultrabright clothing.`\
+https://nytimes.com/2024/05/27/style/how-to-wear-neon-bright-clothing.html
 
-**Across New York City, Building Young Dancers On and Off the Stage**\
-`As Ballet Tech, a tuition-free public school, prepares for its Joyce season, Dionne Figgins teaches the students to see the big picture of their art form.`\
-https://nytimes.com/2024/05/27/arts/dance/ballet-tech-dionne-figgins.html
+**Rafah Tent Camp Ablaze After Airstrike**\
+`The Israeli military said the attack was aimed at a Hamas compound and killed two senior leaders.`\
+https://nytimes.com/video/world/middleeast/100000009489117/rafah-tent-camp-airstrike.html
 
-**Carin León Is Bringing Música Mexicana and Country Ever Closer**\
-`“There are no limits for music,” the Mexican singer-songwriter said.“There’s just good music and bad music.”`\
-https://nytimes.com/2024/05/27/arts/music/carin-leon-musica-mexicana-country-boca-chueca.html
+**Conjuring ‘Bridgerton’ at the Beach**\
+`Selkie, a brand known for fairy-tale dresses, has expanded into swimwear with bathing suits full of ruffles, ribbons and ruching.`\
+https://nytimes.com/2024/05/27/style/selkie-bridgerton-swimwear.html
 
-**My Life in the Brat Pack, Reconsidered**\
-`The past can look very different with the passage of time.`\
-https://nytimes.com/2024/05/27/opinion/brat-pack-andrew-mccarthy.html
+**A Tiny Museum Takes the High Road and Shows the Way Forward**\
+`Nashville’s Parthenon proves that doing the right thing with looted artifacts doesn’t have to be a fight.`\
+https://nytimes.com/2024/05/27/opinion/nashville-museum-artifacts-mexico.html
 
-**Soccer Was Out, So He Became a Novelist Instead**\
-`Chigozie Obioma, the fifth of 12 children in a Nigerian family, dreamed of following in Maradona’s footsteps. Bouts of malaria drove him to books — and changed his life.`\
-https://nytimes.com/2024/05/27/books/booksupdate/chigozie-obioma-road-to-country.html
+**The Brilliant Comic Who Shined Brightest Out of the Spotlight**\
+`A new biography of the performer, writer and director Elaine May has the intensity to match its subject.`\
+https://nytimes.com/2024/05/27/books/review/carrie-courogen-miss-may-does-not-exist.html
 
-**What Gen Z Gets Wrong About Sunscreen**\
-`Surveys suggest young adults are soaking up misinformation about sunscreen and skin cancer. Here are the basics for staying safe.`\
-https://nytimes.com/2024/05/27/well/live/sunscreen-skin-cancer-gen-z.html
+**$5 Million Homes in California**\
+`A four-bedroom house with a detached studio in Los Angeles, a 1907 Mediterranean-style home in San Francisco and a French Country-style retreat in Sonoma.`\
+https://nytimes.com/2024/05/27/realestate/5-million-dollar-homes-california.html
 
-**What’s Love Got to Do With It? This Lusty Tennis Novel May Know.**\
-`Teddy Wayne takes a swing at sex, class and sporty intrigue in his latest novel, “The Winner.”`\
-https://nytimes.com/2024/05/27/books/review/winner-teddy-wayne.html
+**‘Accordion Hands’ and ‘Caterpillar Eyebrows’: Trump Meets the Female Gaze**\
+`Does it matter that the courtroom sketch artists drawing his trial are all women?`\
+https://nytimes.com/2024/05/27/opinion/trump-trial-courtroom-artists.html
 
-**TikTok Rediscovers an Old Rural Beauty Secret**\
-`Social media fans of Bag Balm, a moisturizer originally made for cows’ udders, say it’s just the thing for “slugging.”`\
-https://nytimes.com/2024/05/27/style/bag-balm-beauty-secret-tiktok.html
+**How ‘Zionist’ Became a Bad Word in Publishing**\
+`A litmus test has emerged across wide swaths of the literary world, effectively excluding Jews from full participation unless they denounce Israel.`\
+https://nytimes.com/2024/05/27/opinion/publishing-literary-antisemitism.html
 
