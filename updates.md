@@ -1,3 +1,7 @@
+**No Ordinary Music Gig**\
+`The appeal — and challenges — of being a military musician.`\
+https://nytimes.com/2024/05/27/briefing/military-bands-memorial-day.html
+
 **Deadly Landslide in Papua New Guinea, and Israeli Strike Kills Dozens in Rafah Camp**\
 `Plus, the box office battle of “Garfield” and “Furiosa.”`\
 https://nytimes.com/2024/05/27/podcasts/papua-new-guinea-landslide-rafah-airstrike-gaza.html
