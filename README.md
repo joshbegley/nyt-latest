@@ -26,7 +26,7 @@ https://nytimes.com/2024/05/27/us/politics/a-soldiers-final-journey-home.html
 `Premier military bands offer rare stability for classical musicians, who consider them a strong alternative to traditional orchestras. But signing up means shipping out.`\
 https://nytimes.com/2024/05/27/arts/music/military-bands-west-point-army.html
 
-**600,000 Without Power in 13 States After Deadly Storms**\
+**500,000 Without Power in 9 States After Deadly Storms**\
 `Millions of people in the Southeast were under tornado watches on Monday, after powerful storms over the weekend left at least 18 dead.`\
 https://nytimes.com/2024/05/27/us/memorial-day-weekend-storms.html
 
