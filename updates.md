@@ -1,3 +1,7 @@
+**Charred bodies and screams: Witnesses describe scenes of horror at a camp.**\
+`By Hiba Yazbek and Abu Bakr Bashir`\
+https://nytimes.com/live/2024/05/27/world/israel-gaza-war-hamas-rafah/charred-bodies-and-screams-witnesses-describe-scenes-of-horror-at-a-camp
+
 **Musk’s A.I. Firm Raises $6 Billion in Race With Rivals**\
 `Mr. Musk, who founded xAI last year, has said the business “still has a lot of catching up to do” as it looks to compete with well-funded companies like OpenAI.`\
 https://nytimes.com/2024/05/27/business/elon-musk-xai-funding.html
