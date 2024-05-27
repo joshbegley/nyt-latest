@@ -1,3 +1,7 @@
+**U.S. Lawmakers Visit Taiwan and Vow Support in Face of Chinese Military Drills**\
+`A bipartisan delegation promised to stand by the island’s newly elected president, Lai Ching-te, after Beijing surrounded the self-governing island with naval vessels and aircraft.`\
+https://nytimes.com/2024/05/27/world/asia/us-visit-taiwan-president-china-drills.html
+
 **No Ordinary Music Gig**\
 `The appeal — and challenges — of being a military musician.`\
 https://nytimes.com/2024/05/27/briefing/military-bands-memorial-day.html
