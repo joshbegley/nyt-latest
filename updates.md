@@ -1,3 +1,7 @@
+**Gazans Look Through Ashes After Israeli Strike on Rafah**\
+`Displaced Palestinians mourned the dead and sifted through the debris of a tent camp in Rafah, Gaza, that was devastated by an Israeli strike.`\
+https://nytimes.com/video/world/middleeast/100000009489688/rafah-tent-camp-airstrike.html
+
 **Biden Marks Memorial Day With Message About Freedom as Trump Lashes Out**\
 `An earlier message from Donald J. Trump was more traditional, but it was quickly followed by one wishing a happy Memorial Day to “Human Scum.”`\
 https://nytimes.com/2024/05/27/us/politics/biden-trump-memorial-day.html

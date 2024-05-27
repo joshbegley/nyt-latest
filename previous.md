@@ -1,3 +1,7 @@
+**Gazans Look Through Ashes After Israeli Strike on Rafah**\
+`Displaced Palestinians mourned the dead and sifted through the debris of a tent camp in Rafah, Gaza, that was devastated by an Israeli strike.`\
+https://nytimes.com/video/world/middleeast/100000009489688/rafah-tent-camp-airstrike.html
+
 **Biden Marks Memorial Day With Message About Freedom as Trump Lashes Out**\
 `An earlier message from Donald J. Trump was more traditional, but it was quickly followed by one wishing a happy Memorial Day to “Human Scum.”`\
 https://nytimes.com/2024/05/27/us/politics/biden-trump-memorial-day.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/27/world/asia/north-korea-satellite-spy.html
 **Memo to Orchestras: Do More Opera**\
 `The Cleveland Orchestra’s staging of Mozart’s “The Magic Flute” was a reminder that ensembles can help fill the gap as opera grows harder to find.`\
 https://nytimes.com/2024/05/27/arts/music/magic-flute-mozart-cleveland-orchestra.html
-
-**The blast and subsequent fires killed at least 45 people, Gazan officials said.**\
-`By Isabel Kershner`\
-https://nytimes.com/live/2024/05/27/world/israel-gaza-war-hamas-rafah/the-blast-and-subsequent-fires-killed-at-least-45-people-gazan-officials-said
 
