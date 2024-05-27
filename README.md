@@ -1,3 +1,7 @@
+**Onstage, Witches and Cossacks Strike a Chord With Ukrainians**\
+`A play based on an 18th-century literary classic is a smash hit among Ukrainians who see in the story cultural and historical echoes of what they face after two years of war.`\
+https://nytimes.com/2024/05/27/world/europe/ukrainians-witches-theater-play.html
+
 **China, Japan and South Korea Hold Regional Summit Overshadowed by U.S.**\
 `In the first trilateral meeting since 2019, the neighbors sought common ground in trade and cultural exchange while tiptoeing around thorny security issues.`\
 https://nytimes.com/2024/05/27/world/asia/china-japan-korea-trilateral.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/27/books/review/carrie-courogen-miss-may-does-not-ex
 **$5 Million Homes in California**\
 `A four-bedroom house with a detached studio in Los Angeles, a 1907 Mediterranean-style home in San Francisco and a French Country-style retreat in Sonoma.`\
 https://nytimes.com/2024/05/27/realestate/5-million-dollar-homes-california.html
-
-**‘Accordion Hands’ and ‘Caterpillar Eyebrows’: Trump Meets the Female Gaze**\
-`Does it matter that the courtroom sketch artists drawing his trial are all women?`\
-https://nytimes.com/2024/05/27/opinion/trump-trial-courtroom-artists.html
 
