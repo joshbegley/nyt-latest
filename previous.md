@@ -1,3 +1,7 @@
+**Museum Workers Walk Out, Describing Exhibit as Aligned With Zionism**\
+`The Wing Luke Museum in Seattle temporarily closed after employees criticized an exhibition, saying it wrongly conflated anti-Zionism with antisemitism.`\
+https://nytimes.com/2024/05/27/arts/seattle-museum-walkout-gaza.html
+
 **Voices Carry at La MaMa, but Only a Few Rise Above the Din**\
 `The La MaMa Moves! Dance Festival 2024 featured a high ratio of talking to dancing.`\
 https://nytimes.com/2024/05/27/arts/dance/la-mama-moves-dance-festival.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/27/theater/bluets-royal-court-theater-ben-whishaw.ht
 **Here Comes Manhattanhenge 2024: When and How to Watch**\
 `The annual event brings New Yorkers together to celebrate longer days, warmer weather and epic summer sunsets.`\
 https://nytimes.com/article/manhattanhenge-2024-time-how-to-watch.html
-
-**North Korean Rocket Carrying Spy Satellite Explodes After Takeoff**\
-`Kim Jong-un, the leader of North Korea, has made deploying a fleet of spy satellites one of his country’s latest ​military ambitions.`\
-https://nytimes.com/2024/05/27/world/asia/north-korea-satellite-spy.html
 

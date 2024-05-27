@@ -1,3 +1,7 @@
+**Museum Workers Walk Out, Describing Exhibit as Aligned With Zionism**\
+`The Wing Luke Museum in Seattle temporarily closed after employees criticized an exhibition, saying it wrongly conflated anti-Zionism with antisemitism.`\
+https://nytimes.com/2024/05/27/arts/seattle-museum-walkout-gaza.html
+
 **Voices Carry at La MaMa, but Only a Few Rise Above the Din**\
 `The La MaMa Moves! Dance Festival 2024 featured a high ratio of talking to dancing.`\
 https://nytimes.com/2024/05/27/arts/dance/la-mama-moves-dance-festival.html
