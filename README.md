@@ -1,3 +1,7 @@
+**Here Comes Manhattanhenge 2024: When and How to Watch**\
+`The annual event brings New Yorkers together to celebrate longer days, warmer weather and epic summer sunsets.`\
+https://nytimes.com/article/manhattanhenge-2024-time-how-to-watch.html
+
 **North Korea Launches Long-Range Rocket Carrying Satellite, Seoul Says**\
 `The launch came hours after North Korea announced a plan to put a military spy satellite into orbit.`\
 https://nytimes.com/2024/05/27/world/asia/north-korea-satellite-spy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/27/movies/michelle-buteau-babes-netflix.html
 **Charred bodies and screams: Witnesses describe scenes of horror at a camp.**\
 `By Hiba Yazbek and Abu Bakr Bashir`\
 https://nytimes.com/live/2024/05/27/world/israel-gaza-war-hamas-rafah/charred-bodies-and-screams-witnesses-describe-scenes-of-horror-at-a-camp
-
-**Biden Doesn’t Want You Buying an E.V. From China. Here’s Why.**\
-`The president wants to shift America’s car fleet toward electric vehicles, but not at the expense of American jobs or national security.`\
-https://nytimes.com/2024/05/27/business/biden-evs.html
 
