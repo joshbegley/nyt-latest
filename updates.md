@@ -1,3 +1,7 @@
+**Bill Walton, N.B.A. Hall of Famer and Broadcasting Star, Dies at 71**\
+`He won championships in high school, college (U.C.L.A.) and the pros (Trail Blazers and Celtics) before turning to TV as a talkative game analyst in the college ranks.`\
+https://nytimes.com/2024/05/27/sports/basketball/bill-walton-dead.html
+
 **The Stench of Climate Change Denial**\
 `What overflowing septic tanks tell us about the future.`\
 https://nytimes.com/2024/05/27/opinion/climate-change.html
