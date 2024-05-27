@@ -1,3 +1,15 @@
+**Biden Marks Memorial Day With Message About Freedom as Trump Lashes Out**\
+`An earlier message from Donald J. Trump was more traditional, but it was quickly followed by one wishing a happy Memorial Day to “Human Scum.”`\
+https://nytimes.com/2024/05/27/us/politics/biden-trump-memorial-day.html
+
+**Trump Elevates a Conservative ‘Warrior’ on Education**\
+`Byron Donalds is best known as a Trump defender and potential vice-presidential pick. But in Florida, the congressman and his wife made a name — and a business — in the charter school movement.`\
+https://nytimes.com/2024/05/27/us/politics/trump-campaign-byron-donalds-florida.html
+
+**The Unlikely Women Fighting for Abortion Rights**\
+`The end of Roe has turned women who terminated pregnancies for medical reasons into a political force.`\
+https://nytimes.com/2024/05/27/us/abortion-women-tfmr.html
+
 **Shooting Near Rafah Border Crossing Kills a Member of Egypt’s Security Forces**\
 `The Israeli military reported the shooting on the border, but neither country said who opened fire. An investigation was underway.`\
 https://nytimes.com/2024/05/27/world/middleeast/egypt-shooting-border-crossing-rafah.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/27/arts/music/magic-flute-mozart-cleveland-orchestra
 **The blast and subsequent fires killed at least 45 people, Gazan officials said.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/05/27/world/israel-gaza-war-hamas-rafah/the-blast-and-subsequent-fires-killed-at-least-45-people-gazan-officials-said
-
-**‘Delicious, Easy, Healthy and Affordable’**\
-`Yasmin Fahr’s new recipe for one-pot chicken meatballs with greens is already proving to be a weeknight winner.`\
-https://nytimes.com/2024/05/27/dining/delicious-easy-healthy-and-affordable.html
-
-**Rivers of Lava on Venus Reveal a More Volcanically Active Planet**\
-`New software let scientists re-examine old radar images, providing some of the strongest evidence yet that volcanoes continue to reshape the hellish planet.`\
-https://nytimes.com/2024/05/27/science/venus-volcanoes-lava.html
-
-**Justices’ ‘Disturbing’ Ruling in South Carolina Gerrymandering Case**\
-`Readers are skeptical of the decision’s argument that the redistricting was not race-based. Also: Questions for Republicans; purebred dogs; chatbot therapy; criticism of Israel.`\
-https://nytimes.com/2024/05/27/opinion/supreme-court-south-carolina-gerrymander.html
 
