@@ -2,7 +2,7 @@
 `The president wants to shift America’s car fleet toward electric vehicles, but not at the expense of American jobs or national security.`\
 https://nytimes.com/2024/05/27/business/biden-evs.html
 
-**Musk’s A.I. Firm Raises $6 Billion in Race with Rivals**\
+**Musk’s A.I. Firm Raises $6 Billion in Race With Rivals**\
 `Mr. Musk, who founded xAI last year, has said the business “still has a lot of catching up to do” as it looks to compete with well-funded companies like OpenAI.`\
 https://nytimes.com/2024/05/27/business/elon-musk-xai-funding.html
 
