@@ -1,3 +1,7 @@
+**North Korean Rocket Carrying Spy Satellite Explodes After Takeoff**\
+`Kim Jong-un, the leader of North Korea, has made deploying a fleet of spy satellites one of his country’s latest ​military ambitions.`\
+https://nytimes.com/2024/05/27/world/asia/north-korea-satellite-spy.html
+
 **‘Bluets’ Review: This Maggie Nelson Adaptation Is All About the Vibes**\
 `How do you bring an almost plotless book of elliptical fragments to the stage? The director Katie Mitchell has tried with three actors, four screens and three bottles of whiskey.`\
 https://nytimes.com/2024/05/27/theater/bluets-royal-court-theater-ben-whishaw.html
