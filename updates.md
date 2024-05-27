@@ -1,3 +1,19 @@
+**The blast and subsequent fires killed at least 45 people, Gazan officials said.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/05/27/world/israel-gaza-war-hamas-rafah/the-blast-and-subsequent-fires-killed-at-least-45-people-gazan-officials-said
+
+**‘Delicious, Easy, Healthy and Affordable’**\
+`Yasmin Fahr’s new recipe for one-pot chicken meatballs with greens is already proving to be a weeknight winner.`\
+https://nytimes.com/2024/05/27/dining/delicious-easy-healthy-and-affordable.html
+
+**Rivers of Lava on Venus Reveal a More Volcanically Active Planet**\
+`New software let scientists re-examine old radar images, providing some of the strongest evidence yet that volcanoes continue to reshape the hellish planet.`\
+https://nytimes.com/2024/05/27/science/venus-volcanoes-lava.html
+
+**Justices’ ‘Disturbing’ Ruling in South Carolina Gerrymandering Case**\
+`Readers are skeptical of the decision’s argument that the redistricting was not race-based. Also: Questions for Republicans; purebred dogs; chatbot therapy; criticism of Israel.`\
+https://nytimes.com/2024/05/27/opinion/supreme-court-south-carolina-gerrymander.html
+
 **Can Trump Really Slam the Brakes on Electric Vehicles?**\
 `He has vowed to shred President Biden’s E.V. policies and has threatened that “You won’t be able to sell those cars.”`\
 https://nytimes.com/2024/05/27/climate/trump-electric-vehicles.html

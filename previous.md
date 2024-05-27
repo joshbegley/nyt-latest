@@ -1,3 +1,19 @@
+**The blast and subsequent fires killed at least 45 people, Gazan officials said.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/05/27/world/israel-gaza-war-hamas-rafah/the-blast-and-subsequent-fires-killed-at-least-45-people-gazan-officials-said
+
+**‘Delicious, Easy, Healthy and Affordable’**\
+`Yasmin Fahr’s new recipe for one-pot chicken meatballs with greens is already proving to be a weeknight winner.`\
+https://nytimes.com/2024/05/27/dining/delicious-easy-healthy-and-affordable.html
+
+**Rivers of Lava on Venus Reveal a More Volcanically Active Planet**\
+`New software let scientists re-examine old radar images, providing some of the strongest evidence yet that volcanoes continue to reshape the hellish planet.`\
+https://nytimes.com/2024/05/27/science/venus-volcanoes-lava.html
+
+**Justices’ ‘Disturbing’ Ruling in South Carolina Gerrymandering Case**\
+`Readers are skeptical of the decision’s argument that the redistricting was not race-based. Also: Questions for Republicans; purebred dogs; chatbot therapy; criticism of Israel.`\
+https://nytimes.com/2024/05/27/opinion/supreme-court-south-carolina-gerrymander.html
+
 **Can Trump Really Slam the Brakes on Electric Vehicles?**\
 `He has vowed to shred President Biden’s E.V. policies and has threatened that “You won’t be able to sell those cars.”`\
 https://nytimes.com/2024/05/27/climate/trump-electric-vehicles.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/05/27/business/elon-musk-xai-funding.html
 **Quotation of the Day: She Passed the Audition, but Then Came Boot Camp**\
 `Quotation of the Day for Monday, May 27, 2024.`\
 https://nytimes.com/2024/05/27/pageoneplus/quotation-of-the-day-she-passed-the-audition-but-then-came-boot-camp.html
-
-**U.S. Lawmakers Visit Taiwan and Vow Support in Face of Chinese Military Drills**\
-`A bipartisan delegation promised to stand by the island’s newly elected president, Lai Ching-te, after Beijing surrounded the self-governing island with naval vessels and aircraft.`\
-https://nytimes.com/2024/05/27/world/asia/us-visit-taiwan-president-china-drills.html
-
-**No Ordinary Music Gig**\
-`The appeal — and challenges — of being a military musician.`\
-https://nytimes.com/2024/05/27/briefing/military-bands-memorial-day.html
-
-**Deadly Landslide in Papua New Guinea, and Israeli Strike Kills Dozens in Rafah Camp**\
-`Plus, the box office battle of “Garfield” and “Furiosa.”`\
-https://nytimes.com/2024/05/27/podcasts/papua-new-guinea-landslide-rafah-airstrike-gaza.html
-
-**The Connections Companion No. 352, May 28, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/27/crosswords/connections-companion-352.html
 
