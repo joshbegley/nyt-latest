@@ -1,3 +1,7 @@
+**Musk’s A.I. Firm Raises $6 Billion in Race with Rivals**\
+`Mr. Musk, who founded xAI last year, has said the business “still has a lot of catching up to do” as it looks to compete with well-funded companies like OpenAI.`\
+https://nytimes.com/2024/05/27/business/elon-musk-xai-funding.html
+
 **Quotation of the Day: She Passed the Audition, but Then Came Boot Camp**\
 `Quotation of the Day for Monday, May 27, 2024.`\
 https://nytimes.com/2024/05/27/pageoneplus/quotation-of-the-day-she-passed-the-audition-but-then-came-boot-camp.html
