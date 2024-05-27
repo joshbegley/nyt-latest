@@ -1,3 +1,7 @@
+**A shooting near the Rafah border crossing killed a member of Egypt’s security forces.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/05/27/world/israel-gaza-war-hamas-rafah/a-shooting-near-the-rafah-border-crossing-killed-a-member-of-egypts-security-forces
+
 **N.J. Officials Briefly Close Popular Boardwalk, Citing ‘Civil Unrest’**\
 `The officials offered few details as to why they declared a state of emergency in Wildwood on one of the busiest weekends of the year.`\
 https://nytimes.com/2024/05/27/nyregion/wildwood-boardwalk-civil-unrest.html
