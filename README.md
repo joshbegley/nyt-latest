@@ -1,3 +1,7 @@
+**A shooting near the Rafah border crossing killed a member of Egypt’s security forces.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/05/27/world/israel-gaza-war-hamas-rafah/a-shooting-near-the-rafah-border-crossing-killed-a-member-of-egypts-security-forces
+
 **N.J. Officials Briefly Close Popular Boardwalk, Citing ‘Civil Unrest’**\
 `The officials offered few details as to why they declared a state of emergency in Wildwood on one of the busiest weekends of the year.`\
 https://nytimes.com/2024/05/27/nyregion/wildwood-boardwalk-civil-unrest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/27/science/venus-volcanoes-lava.html
 **Justices’ ‘Disturbing’ Ruling in South Carolina Gerrymandering Case**\
 `Readers are skeptical of the decision’s argument that the redistricting was not race-based. Also: Questions for Republicans; purebred dogs; chatbot therapy; criticism of Israel.`\
 https://nytimes.com/2024/05/27/opinion/supreme-court-south-carolina-gerrymander.html
-
-**Can Trump Really Slam the Brakes on Electric Vehicles?**\
-`He has vowed to shred President Biden’s E.V. policies and has threatened that “You won’t be able to sell those cars.”`\
-https://nytimes.com/2024/05/27/climate/trump-electric-vehicles.html
 
