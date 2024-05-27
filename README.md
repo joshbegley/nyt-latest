@@ -1,3 +1,7 @@
+**World leaders denounced the deadly strike in Rafah, saying it shows the need for a cease-fire.**\
+`By Alexandra E. Petri`\
+https://nytimes.com/live/2024/05/27/world/israel-gaza-war-hamas-rafah/world-leaders-denounced-the-deadly-strike-in-rafah-saying-it-shows-the-need-for-a-cease-fire
+
 **Museum Workers Walk Out, Describing Exhibit as Aligned With Zionism**\
 `The Wing Luke Museum in Seattle temporarily closed after employees criticized an exhibition, saying it wrongly conflated anti-Zionism with antisemitism.`\
 https://nytimes.com/2024/05/27/arts/seattle-museum-walkout-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/27/nyregion/wildwood-boardwalk-civil-unrest.html
 **‘Bluets’ Review: This Maggie Nelson Adaptation Is All About the Vibes**\
 `How do you bring an almost plotless book of elliptical fragments to the stage? The director Katie Mitchell has tried with three actors, four screens and three bottles of whiskey.`\
 https://nytimes.com/2024/05/27/theater/bluets-royal-court-theater-ben-whishaw.html
-
-**Here Comes Manhattanhenge 2024: When and How to Watch**\
-`The annual event brings New Yorkers together to celebrate longer days, warmer weather and epic summer sunsets.`\
-https://nytimes.com/article/manhattanhenge-2024-time-how-to-watch.html
 
