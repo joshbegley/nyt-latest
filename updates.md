@@ -1,3 +1,11 @@
+**The Delivery Business Shows Why Unions Are Struggling to Expand**\
+`The Teamsters union has made little headway in organizing workers at Amazon and FedEx despite wage and other gains it secured at UPS last year.`\
+https://nytimes.com/2024/05/27/business/economy/amazon-fedex-ups-union.html
+
+**No, Americans Are Not Completely Stupid About Inflation**\
+`People may not fully understand the economy, but their feelings about it contain some wisdom.`\
+https://nytimes.com/2024/05/27/opinion/inflation-economics-stefanie-stantcheva.html
+
 **World leaders denounced the deadly strike in Rafah, saying it shows the need for a cease-fire.**\
 `By Alexandra E. Petri`\
 https://nytimes.com/live/2024/05/27/world/israel-gaza-war-hamas-rafah/world-leaders-denounced-the-deadly-strike-in-rafah-saying-it-shows-the-need-for-a-cease-fire
