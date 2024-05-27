@@ -1,3 +1,7 @@
+**Stanley Goldstein, Who Helped Make CVS a Pharmacy Giant, Dies at 89**\
+`The small chain that he, a brother and a third partner opened in 1963 had become the nation’s largest by the time he retired as its chief executive three decades later.`\
+https://nytimes.com/2024/05/27/business/stanley-goldstein-dead.html
+
 **Bill Walton, N.B.A. Hall of Famer and Broadcasting Star, Dies at 71**\
 `A dominant, colorful center (when he wasn’t injured), he won championships in high school, at U.C.L.A. and with the Trail Blazers and the Celtics before becoming a TV commentator.`\
 https://nytimes.com/2024/05/27/sports/basketball/bill-walton-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/27/arts/dance/la-mama-moves-dance-festival.html
 **Gazans Look Through Ashes After Israeli Strike on Rafah**\
 `Displaced Palestinians mourned the dead and sifted through the debris of a tent camp in Rafah, Gaza, that was devastated by an Israeli strike.`\
 https://nytimes.com/video/world/middleeast/100000009489688/rafah-tent-camp-airstrike.html
-
-**Biden Marks Memorial Day With Message About Freedom as Trump Lashes Out**\
-`An earlier message from Donald J. Trump was more traditional, but it was quickly followed by one wishing a happy Memorial Day to “Human Scum.”`\
-https://nytimes.com/2024/05/27/us/politics/biden-trump-memorial-day.html
 
