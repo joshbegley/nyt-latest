@@ -1,3 +1,7 @@
+**Tuesday Briefing: Netanyahu Calls Rafah Deaths a ‘Tragic Accident’**\
+`Plus, the toll from the Papua New Guinea landslide`\
+https://nytimes.com/2024/05/27/briefing/rafah-strike-landslide.html
+
 **‘General Hospital’ Actor Reported Killed in Shooting in Los Angeles**\
 `Johnny Wactor was fatally shot when he interrupted a person who was stealing his vehicle’s catalytic converter, his mother told a news outlet.`\
 https://nytimes.com/2024/05/27/us/johnny-wactor-killed-la-car-theft.html
