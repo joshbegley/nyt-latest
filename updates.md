@@ -1,3 +1,7 @@
+**N.J. Officials Briefly Close Popular Boardwalk, Citing ‘Civil Unrest’**\
+`The officials offered few details as to why they declared a state of emergency in Wildwood on one of the busiest weekends of the year.`\
+https://nytimes.com/2024/05/27/nyregion/wildwood-boardwalk-civil-unrest.html
+
 **North Korean Rocket Carrying Spy Satellite Explodes After Takeoff**\
 `Kim Jong-un, the leader of North Korea, has made deploying a fleet of spy satellites one of his country’s latest ​military ambitions.`\
 https://nytimes.com/2024/05/27/world/asia/north-korea-satellite-spy.html
