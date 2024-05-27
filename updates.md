@@ -1,3 +1,7 @@
+**Bill Walton, N.B.A. Hall of Famer and Broadcasting Star, Dies at 71**\
+`A dominant, colorful center when he wasn’t injured, he won championships in high school, at U.C.L.A. and with the Trail Blazers and the Celtics before becoming a TV commentator.`\
+https://nytimes.com/2024/05/27/sports/basketball/bill-walton-dead.html
+
 **Tuesday Briefing: Netanyahu Calls Rafah Deaths a ‘Tragic Accident’**\
 `Plus, the toll from the Papua New Guinea landslide`\
 https://nytimes.com/2024/05/27/briefing/rafah-strike-landslide.html

@@ -1,3 +1,7 @@
+**Bill Walton, N.B.A. Hall of Famer and Broadcasting Star, Dies at 71**\
+`A dominant, colorful center when he wasn’t injured, he won championships in high school, at U.C.L.A. and with the Trail Blazers and the Celtics before becoming a TV commentator.`\
+https://nytimes.com/2024/05/27/sports/basketball/bill-walton-dead.html
+
 **Tuesday Briefing: Netanyahu Calls Rafah Deaths a ‘Tragic Accident’**\
 `Plus, the toll from the Papua New Guinea landslide`\
 https://nytimes.com/2024/05/27/briefing/rafah-strike-landslide.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009489688/rafah-tent-camp-airst
 **Biden Marks Memorial Day With Message About Freedom as Trump Lashes Out**\
 `An earlier message from Donald J. Trump was more traditional, but it was quickly followed by one wishing a happy Memorial Day to “Human Scum.”`\
 https://nytimes.com/2024/05/27/us/politics/biden-trump-memorial-day.html
-
-**Trump Elevates a Conservative ‘Warrior’ on Education**\
-`Byron Donalds is best known as a Trump defender and potential vice-presidential pick. But in Florida, the congressman and his wife made a name — and a business — in the charter school movement.`\
-https://nytimes.com/2024/05/27/us/politics/trump-campaign-byron-donalds-florida.html
 
