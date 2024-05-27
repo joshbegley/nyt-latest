@@ -1,40 +1,40 @@
-**Papua New Guinea Landslide Has Buried 2,000 People, Officials Say**\
-`Just getting to survivors has proved to be an enormous challenge, with a blocked highway and unstable ground “posing ongoing danger” to rescue workers.`\
-https://nytimes.com/2024/05/27/world/australia/papua-new-guinea-landslide.html
+**Wayne Brady and Nichelle Lewis on Striving for Excellence in ‘The Wiz’**\
+`The veteran and the newcomer each had their own fears as they joined the Broadway revival of the beloved all-Black musical.`\
+https://nytimes.com/2024/05/27/theater/wiz-wayne-brady-nichelle-lewis.html
 
-**The Star Witness Who Never Testified at Trump’s Trial**\
-`Donald J. Trump’s lawyers are expected to highlight the absence of Allen Weisselberg, Mr. Trump’s former finance chief, who is serving jail time for perjury.`\
-https://nytimes.com/2024/05/27/nyregion/trump-trial-hush-money-weisselberg.html
+**The Cicadas Are Here. You Have Nothing to Fear.**\
+`An ode to one creature’s brief time in the sun.`\
+https://nytimes.com/2024/05/27/opinion/cicadas-double-brood-renkl.html
 
-**Street Wars: Have E-Bikes Made New York City a ‘Nightmare’?**\
-`E-bikes zoom down streets, zigzag around cars and zip across sidewalks, changing the way some residents view the streets.`\
-https://nytimes.com/2024/05/27/nyregion/street-wars-e-bikes.html
+**Pride Events in New York: Here’s How to Celebrate**\
+`It’s a month of dance parties, film festivals, drag shows and street fairs ahead of the city’s official march on June 30.`\
+https://nytimes.com/2024/05/27/arts/pride-events-nyc.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/05/27/crosswords/spelling-bee-forum.html
+**Across New York City, Building Young Dancers On and Off the Stage**\
+`As Ballet Tech, a tuition-free public school, prepares for its Joyce season, Dionne Figgins teaches the students to see the big picture of their art form.`\
+https://nytimes.com/2024/05/27/arts/dance/ballet-tech-dionne-figgins.html
 
-**The Push to Control Plastic Waste in New York: What to Know**\
-`As plastic continues to fill landfills and oceans, city and state leaders are backing state legislation to curb it.`\
-https://nytimes.com/2024/05/27/nyregion/the-push-to-control-plastic-waste-in-new-york-what-to-know.html
+**Carin León Is Bringing Música Mexicana and Country Ever Closer**\
+`“There are no limits for music,” the Mexican singer-songwriter said.“There’s just good music and bad music.”`\
+https://nytimes.com/2024/05/27/arts/music/carin-leon-musica-mexicana-country-boca-chueca.html
 
-**A Soldier’s Final Journey Home**\
-`Sgt. Kennedy Sanders was killed in a drone attack on a U.S. outpost in Jordan. A collection of photos offers a glimpse into her life.`\
-https://nytimes.com/2024/05/27/us/politics/a-soldiers-final-journey-home.html
+**My Life in the Brat Pack, Reconsidered**\
+`The past can look very different with the passage of time.`\
+https://nytimes.com/2024/05/27/opinion/brat-pack-andrew-mccarthy.html
 
-**She Landed One of Music’s Great Gigs, but First Came Boot Camp**\
-`Premier military bands offer rare stability for classical musicians, who consider them a strong alternative to traditional orchestras. But signing up means shipping out.`\
-https://nytimes.com/2024/05/27/arts/music/military-bands-west-point-army.html
+**Soccer Was Out, So He Became a Novelist Instead**\
+`Chigozie Obioma, the fifth of 12 children in a Nigerian family, dreamed of following in Maradona’s footsteps. Bouts of malaria drove him to books — and changed his life.`\
+https://nytimes.com/2024/05/27/books/booksupdate/chigozie-obioma-road-to-country.html
 
-**500,000 Without Power in 9 States After Deadly Storms**\
-`Millions of people in the Southeast were under tornado watches on Monday, after powerful storms over the weekend left at least 18 dead.`\
-https://nytimes.com/2024/05/27/us/memorial-day-weekend-storms.html
+**What Gen Z Gets Wrong About Sunscreen**\
+`Surveys suggest young adults are soaking up misinformation about sunscreen and skin cancer. Here are the basics for staying safe.`\
+https://nytimes.com/2024/05/27/well/live/sunscreen-skin-cancer-gen-z.html
 
-**I’ve Seen the Biden-Trump Rematch Before, and It Was Scary**\
-`Russia’s election in 1996 is a cautionary tale for America.`\
-https://nytimes.com/2024/05/27/opinion/trump-biden-yeltsin-russia.html
+**What’s Love Got to Do With It? This Lusty Tennis Novel May Know.**\
+`Teddy Wayne takes a swing at sex, class and sporty intrigue in his latest novel, “The Winner.”`\
+https://nytimes.com/2024/05/27/books/review/winner-teddy-wayne.html
 
-**Monday Briefing**\
-`We’re covering a Ukrainian warning of a new Russian offensive as well as a Hamas strike on Israel.`\
-https://nytimes.com/2024/05/27/briefing/ukraine-russia-gaza-papua-new-guinea.html
+**TikTok Rediscovers an Old Rural Beauty Secret**\
+`Social media fans of Bag Balm, a moisturizer originally made for cows’ udders, say it’s just the thing for “slugging.”`\
+https://nytimes.com/2024/05/27/style/bag-balm-beauty-secret-tiktok.html
 
