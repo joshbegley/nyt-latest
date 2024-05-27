@@ -1,3 +1,7 @@
+**China, Japan and South Korea Hold Regional Summit Overshadowed by U.S.**\
+`In the first trilateral meeting since 2019, the neighbors sought common ground in trade and cultural exchange while tiptoeing around thorny security issues.`\
+https://nytimes.com/2024/05/27/world/asia/china-japan-korea-trilateral.html
+
 **Lessons from Judge David Tatel’s Guide Dog on Blindness and Vision**\
 `In a new memoir, a retired federal appeals court judge who was once a leading candidate for the Supreme Court reflects on candor and independence.`\
 https://nytimes.com/2024/05/27/us/david-tatel-vision-blindness-supreme-court.html
