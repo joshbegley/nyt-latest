@@ -1,3 +1,7 @@
+**Voices Carry at La MaMa, but Only a Few Rise Above the Din**\
+`The La MaMa Moves! Dance Festival 2024 featured a high ratio of talking to dancing.`\
+https://nytimes.com/2024/05/27/arts/dance/la-mama-moves-dance-festival.html
+
 **Gazans Look Through Ashes After Israeli Strike on Rafah**\
 `Displaced Palestinians mourned the dead and sifted through the debris of a tent camp in Rafah, Gaza, that was devastated by an Israeli strike.`\
 https://nytimes.com/video/world/middleeast/100000009489688/rafah-tent-camp-airstrike.html
@@ -33,8 +37,4 @@ https://nytimes.com/article/manhattanhenge-2024-time-how-to-watch.html
 **North Korean Rocket Carrying Spy Satellite Explodes After Takeoff**\
 `Kim Jong-un, the leader of North Korea, has made deploying a fleet of spy satellites one of his country’s latest ​military ambitions.`\
 https://nytimes.com/2024/05/27/world/asia/north-korea-satellite-spy.html
-
-**Memo to Orchestras: Do More Opera**\
-`The Cleveland Orchestra’s staging of Mozart’s “The Magic Flute” was a reminder that ensembles can help fill the gap as opera grows harder to find.`\
-https://nytimes.com/2024/05/27/arts/music/magic-flute-mozart-cleveland-orchestra.html
 
