@@ -1,3 +1,7 @@
+**N.J. Officials Briefly Close Popular Boardwalk, Citing ‘Civil Unrest’**\
+`The officials offered few details as to why they declared a state of emergency in Wildwood on one of the busiest weekends of the year.`\
+https://nytimes.com/2024/05/27/nyregion/wildwood-boardwalk-civil-unrest.html
+
 **‘Bluets’ Review: This Maggie Nelson Adaptation Is All About the Vibes**\
 `How do you bring an almost plotless book of elliptical fragments to the stage? The director Katie Mitchell has tried with three actors, four screens and three bottles of whiskey.`\
 https://nytimes.com/2024/05/27/theater/bluets-royal-court-theater-ben-whishaw.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/27/opinion/supreme-court-south-carolina-gerrymander.
 **Can Trump Really Slam the Brakes on Electric Vehicles?**\
 `He has vowed to shred President Biden’s E.V. policies and has threatened that “You won’t be able to sell those cars.”`\
 https://nytimes.com/2024/05/27/climate/trump-electric-vehicles.html
-
-**Michelle Buteau Sashays Into the Lead**\
-`Once relegated to supporting roles, this comedian is a star of the film “Babes” and is moving to a bigger stage, Radio City Music Hall, for her new special.`\
-https://nytimes.com/2024/05/27/movies/michelle-buteau-babes-netflix.html
 
