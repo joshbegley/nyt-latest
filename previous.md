@@ -1,3 +1,11 @@
+**North Korea Launches Long-Range Rocket Carrying Satellite, Seoul Says**\
+`The launch came hours after North Korea announced a plan to put a military spy satellite into orbit.`\
+https://nytimes.com/2024/05/27/world/asia/north-korea-satellite-spy.html
+
+**Memo to Orchestras: Do More Opera**\
+`The Cleveland Orchestra’s staging of Mozart’s “The Magic Flute” was a reminder that ensembles can help fill the gap as opera grows harder to find.`\
+https://nytimes.com/2024/05/27/arts/music/magic-flute-mozart-cleveland-orchestra.html
+
 **The blast and subsequent fires killed at least 45 people, Gazan officials said.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/05/27/world/israel-gaza-war-hamas-rafah/the-blast-and-subsequent-fires-killed-at-least-45-people-gazan-officials-said
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/05/27/world/israel-gaza-war-hamas-rafah/charred-bo
 **Biden Doesn’t Want You Buying an E.V. From China. Here’s Why.**\
 `The president wants to shift America’s car fleet toward electric vehicles, but not at the expense of American jobs or national security.`\
 https://nytimes.com/2024/05/27/business/biden-evs.html
-
-**Musk’s A.I. Firm Raises $6 Billion in Race With Rivals**\
-`Mr. Musk, who founded xAI last year, has said the business “still has a lot of catching up to do” as it looks to compete with well-funded companies like OpenAI.`\
-https://nytimes.com/2024/05/27/business/elon-musk-xai-funding.html
-
-**Quotation of the Day: She Passed the Audition, but Then Came Boot Camp**\
-`Quotation of the Day for Monday, May 27, 2024.`\
-https://nytimes.com/2024/05/27/pageoneplus/quotation-of-the-day-she-passed-the-audition-but-then-came-boot-camp.html
 

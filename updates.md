@@ -1,3 +1,11 @@
+**North Korea Launches Long-Range Rocket Carrying Satellite, Seoul Says**\
+`The launch came hours after North Korea announced a plan to put a military spy satellite into orbit.`\
+https://nytimes.com/2024/05/27/world/asia/north-korea-satellite-spy.html
+
+**Memo to Orchestras: Do More Opera**\
+`The Cleveland Orchestra’s staging of Mozart’s “The Magic Flute” was a reminder that ensembles can help fill the gap as opera grows harder to find.`\
+https://nytimes.com/2024/05/27/arts/music/magic-flute-mozart-cleveland-orchestra.html
+
 **The blast and subsequent fires killed at least 45 people, Gazan officials said.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/05/27/world/israel-gaza-war-hamas-rafah/the-blast-and-subsequent-fires-killed-at-least-45-people-gazan-officials-said
