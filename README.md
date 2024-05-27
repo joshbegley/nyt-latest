@@ -1,3 +1,7 @@
+**I’ve Seen the Biden-Trump Rematch Before, and It Was Scary**\
+`Russia’s election in 1996 is a cautionary tale for America.`\
+https://nytimes.com/2024/05/27/opinion/trump-biden-yeltsin-russia.html
+
 **Monday Briefing**\
 `We’re covering a Ukrainian warning of a new Russian offensive as well as a Hamas strike on Israel.`\
 https://nytimes.com/2024/05/27/briefing/ukraine-russia-gaza-papua-new-guinea.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/26/world/israel-gaza-war-hamas-rafah/israeli-ai
 **In Most Cases**\
 `Christopher Youngs’s crossword is more than the sum of its parts.`\
 https://nytimes.com/2024/05/26/crosswords/daily-puzzle-2024-05-27.html
-
-**Her A.I. Arm**\
-`Sarah de Lagarde has a bionic limb, powered in part by artificial intelligence, which gets better at predicting what she wants to do the more she uses it. `\
-https://nytimes.com/card/2024/05/26/technology/ai-prosthetic-arm
 
