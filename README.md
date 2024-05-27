@@ -6,8 +6,8 @@ https://nytimes.com/2024/05/27/theater/bluets-royal-court-theater-ben-whishaw.ht
 `The annual event brings New Yorkers together to celebrate longer days, warmer weather and epic summer sunsets.`\
 https://nytimes.com/article/manhattanhenge-2024-time-how-to-watch.html
 
-**North Korea Launches Long-Range Rocket Carrying Satellite, Seoul Says**\
-`The launch came hours after North Korea announced a plan to put a military spy satellite into orbit.`\
+**North Korean Rocket Carrying Spy Satellite Explodes After Takeoff**\
+`Kim Jong-un, the leader of North Korea, has made deploying a fleet of spy satellites one of his country’s latest ​military ambitions.`\
 https://nytimes.com/2024/05/27/world/asia/north-korea-satellite-spy.html
 
 **Memo to Orchestras: Do More Opera**\
