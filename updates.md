@@ -1,3 +1,15 @@
+**If Trump Is Convicted, How Will Biden’s Team Go on the Attack?**\
+`A guilty verdict in New York would be a gift for Democrats — but if it comes, the Biden campaign is unlikely to tear up its 2024 playbook.`\
+https://nytimes.com/2024/05/28/us/politics/trump-convicted-biden.html
+
+**Legacy of Flaco, Escaped Zoo Owl, to Live at Museum in His Neighborhood**\
+`Remains from the Eurasian eagle-owl, whose year on the loose captivated New York City, will be kept at the American Museum of Natural History.`\
+https://nytimes.com/2024/05/28/nyregion/flaco-owl-natural-history-museum.html
+
+**Trump’s ‘Dystopian Deportation Scheme’**\
+`Readers discuss two opinion pieces about Donald Trump’s plans if elected. Also: Gaza’s ruined hospitals; Florida’s climate law; a G.O.P. double standard; pregnancy calories.`\
+https://nytimes.com/2024/05/28/opinion/donald-trump-deportation.html
+
 **Need a Refresher on Trump’s Criminal Trial? Catch Up Here.**\
 `Donald J. Trump has been charged with 34 felony counts in the first criminal case against an American president. Defense lawyers and prosecutors are making their closing arguments on Tuesday.`\
 https://nytimes.com/2024/05/28/nyregion/trump-criminal-trial-hush-money.html

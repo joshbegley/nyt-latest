@@ -1,3 +1,15 @@
+**If Trump Is Convicted, How Will Biden’s Team Go on the Attack?**\
+`A guilty verdict in New York would be a gift for Democrats — but if it comes, the Biden campaign is unlikely to tear up its 2024 playbook.`\
+https://nytimes.com/2024/05/28/us/politics/trump-convicted-biden.html
+
+**Legacy of Flaco, Escaped Zoo Owl, to Live at Museum in His Neighborhood**\
+`Remains from the Eurasian eagle-owl, whose year on the loose captivated New York City, will be kept at the American Museum of Natural History.`\
+https://nytimes.com/2024/05/28/nyregion/flaco-owl-natural-history-museum.html
+
+**Trump’s ‘Dystopian Deportation Scheme’**\
+`Readers discuss two opinion pieces about Donald Trump’s plans if elected. Also: Gaza’s ruined hospitals; Florida’s climate law; a G.O.P. double standard; pregnancy calories.`\
+https://nytimes.com/2024/05/28/opinion/donald-trump-deportation.html
+
 **Need a Refresher on Trump’s Criminal Trial? Catch Up Here.**\
 `Donald J. Trump has been charged with 34 felony counts in the first criminal case against an American president. Defense lawyers and prosecutors are making their closing arguments on Tuesday.`\
 https://nytimes.com/2024/05/28/nyregion/trump-criminal-trial-hush-money.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/28/arts/music/taylor-swift-billie-eilish-album-chart
 **Four Inmates Escape Unnoticed From Louisiana Jail Through 8-Inch Gap**\
 `Two of the escapees were back in jail after being found in a dumpster, while two remained at large, officials said. Their escapes went undetected for hours.`\
 https://nytimes.com/2024/05/28/us/louisiana-manhunt-escape-jail.html
-
-**Georgia’s Ruling Party Secures a Contentious Foreign-Agent Law**\
-`The Parliament, controlled by the Georgian Dream party, overrode a presidential veto of a bill critics say could undermine the country’s efforts to join the European Union.`\
-https://nytimes.com/2024/05/28/world/europe/georgia-foreign-agents-law-passes.html
-
-**Biden’s Campaign Trolls Trump Outside the Courthouse, in a First**\
-`Holding a news conference with Robert De Niro and two former Capitol Police officers, the Biden campaign signaled it was growing more assertive on Donald Trump’s legal troubles.`\
-https://nytimes.com/2024/05/28/nyregion/robert-de-niro-trump-biden-campaign.html
-
-**I.R.S. Failed to Police Puerto Rico Tax Break, Whistle-Blower Says**\
-`An insider accused the agency of failing to scrutinize a lucrative tax break in Puerto Rico designed to lure wealthy Americans to the island.`\
-https://nytimes.com/2024/05/28/business/irs-puerto-rico-tax.html
 
