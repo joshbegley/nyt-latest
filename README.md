@@ -1,3 +1,7 @@
+**Adam Neumann Gives Up on Buying Back WeWork**\
+`The co-founder of the shared-office company, who stepped down under pressure before the firm went bankrupt, announced an audacious takeover bid earlier this year.`\
+https://nytimes.com/2024/05/28/business/dealbook/adam-neumann-wework.html
+
 **Closing Arguments Are Coming in Trump’s Trial. Here’s How They Work.**\
 `Each side will have an opportunity to summarize its case before the jury begins to deliberate.`\
 https://nytimes.com/2024/05/28/nyregion/what-are-closing-arguments.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/28/business/dealbook/oil-chevron-exxon-activist-inve
 **Calls Mount to Let Ukraine Strike Russia With Western Weapons**\
 `The U.S. and other allies have banned Ukraine from firing Western weapons into Russia. Kyiv says that has handcuffed its ability to prevent cross-border attacks.`\
 https://nytimes.com/2024/05/28/world/europe/ukraine-weapons-russia.html
-
-**The Connections Companion No. 353, May 29, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/28/crosswords/connections-companion-353.html
 
