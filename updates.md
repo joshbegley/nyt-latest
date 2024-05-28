@@ -1,3 +1,7 @@
+**South Africa Is Becoming Something New, and It’s Not Good**\
+`The country is in the midst of another complex transformation.`\
+https://nytimes.com/2024/05/28/opinion/south-africa-election-anc.html
+
 **Tuesday Briefing**\
 `We’re covering Israel’s offensive in Rafah and the death toll from the Papua New Guinea landslide.`\
 https://nytimes.com/2024/05/28/briefing/rafah-airstrike-papua-new-guinea-china-clean-energy.html
