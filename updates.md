@@ -1,3 +1,7 @@
+**What We Know About the Papua New Guinea Landslide**\
+`Nearly five days after the disaster hit a remote section of the country, officials have started evacuating residents. But the scale of the death toll remains uncertain.`\
+https://nytimes.com/2024/05/28/world/asia/papua-new-guinea-landslide.html
+
 **The Alitos and Their Flags**\
 `The saga of a Supreme Court justice, his wife and two symbols adopted by people campaigning to overturn the result of the 2020 election.`\
 https://nytimes.com/2024/05/28/podcasts/the-daily/the-alitos-and-their-flags.html
