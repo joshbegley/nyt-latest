@@ -1,3 +1,11 @@
+**Democrats Adopt Nomination Plan to Allow Biden on the Ohio Ballot**\
+`Party leaders said they would nominate the president via a virtual roll call of delegates before the national convention, overcoming a glitch that had threatened to keep him off the November ballot.`\
+https://nytimes.com/2024/05/28/us/democrats-biden-ohio-ballot.html
+
+**Harris says deadly airstrike in Rafah is beyond tragic.**\
+`By Zolan Kanno-Youngs and Erica L. Green`\
+https://nytimes.com/live/2024/05/28/world/israel-gaza-war-hamas-rafah/harris-says-deadly-airstrike-in-rafah-is-beyond-tragic
+
 **Tiny Love Stories: ‘Also, He’s a Magician’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/05/28/style/tiny-modern-love-stories-also-hes-a-magician.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/28/business/media/daily-beast-buyouts.html
 **Israel had not ordered Palestinians to leave the area it struck on Sunday.**\
 `By Lauren Leatherby`\
 https://nytimes.com/live/2024/05/28/world/israel-gaza-war-hamas-rafah/israel-had-not-ordered-palestinians-to-leave-the-area-it-struck-on-sunday
-
-**What Donald Trump’s Lawyer Said in His Closing Argument**\
-`The former president was taken advantage of by liars, his lawyer, Todd Blanche, said while arguing that he should be found not guilty of the 34 felonies he is charged with.`\
-https://nytimes.com/2024/05/28/nyregion/closing-argument-trump-lawyer.html
-
-**Judge Denies Limited Gag Order Request in Trump Documents Case**\
-`The decision was made on procedural grounds and left open the possibility that federal prosecutors could try again to restrict Donald Trump from making statements that could endanger F.B.I. agents.`\
-https://nytimes.com/2024/05/28/us/politics/gag-order-denied-trump-documents.html
 
