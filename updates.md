@@ -1,3 +1,7 @@
+**At Trump Trial’s Closings, Lawyers Weave Facts Into Clashing Accounts**\
+`A defense lawyer painted Donald J. Trump as the victim of unscrupulous people, but a prosecutor said Mr. Trump had directed a scheme to conceal a hush-money payment.`\
+https://nytimes.com/2024/05/28/nyregion/trump-hush-money-trial-closings.html
+
 **Man Charged With Hate Crimes in New York City Street Attacks**\
 `Skiboky Stora, 40, is accused of targeting people he believed were white, female or Jewish. He was arrested in March after one of his alleged victims shared her story on TikTok.`\
 https://nytimes.com/2024/05/28/nyregion/skibody-stora-hate-crimes-random-attacks.html

@@ -1,3 +1,7 @@
+**At Trump Trial’s Closings, Lawyers Weave Facts Into Clashing Accounts**\
+`A defense lawyer painted Donald J. Trump as the victim of unscrupulous people, but a prosecutor said Mr. Trump had directed a scheme to conceal a hush-money payment.`\
+https://nytimes.com/2024/05/28/nyregion/trump-hush-money-trial-closings.html
+
 **Man Charged With Hate Crimes in New York City Street Attacks**\
 `Skiboky Stora, 40, is accused of targeting people he believed were white, female or Jewish. He was arrested in March after one of his alleged victims shared her story on TikTok.`\
 https://nytimes.com/2024/05/28/nyregion/skibody-stora-hate-crimes-random-attacks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/28/opinion/inflation-federal-reserve-rates.html
 **Marco Rubio Wants to Be Trump’s Vice President. He Doesn’t Want to Audition.**\
 `The last time the Florida senator lived in Donald J. Trump’s orbit he was mocked and defeated. As he returns, he’s trying to do it on his terms.`\
 https://nytimes.com/2024/05/28/us/politics/marco-rubio-trump-vp.html
-
-**Biden Moves to Open U.S. Banks to Cuba’s Private Sector**\
-`The rules will allow Cuban entrepreneurs to open bank accounts in the United States, making it easier for them to expand and encouraging other Cubans to start businesses.`\
-https://nytimes.com/2024/05/28/world/americas/biden-us-banks-cuba.html
 
