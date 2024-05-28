@@ -1,3 +1,7 @@
+**The Israeli military said it was engaging in ‘close-quarters combat.’**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/05/28/world/israel-gaza-war-hamas-rafah/the-israeli-military-said-it-was-engaging-in-close-quarters-combat
+
 **Do You Know the Manhattan Locations of These Children’s Books?**\
 `This urban island is home to a huge number of popular books for younger readers. Try this short quiz to see how many you recognize.`\
 https://nytimes.com/interactive/2024/05/28/books/review/nyc-kids-quiz.html
