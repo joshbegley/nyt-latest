@@ -6,8 +6,8 @@ https://nytimes.com/live/2024/05/21/opinion/thepoint/trump-trial-defense
 `In a tight battle that had fans hustling to support their favorite star, “The Tortured Poets Department” outsold “Hit Me Hard and Soft.”`\
 https://nytimes.com/2024/05/28/arts/music/taylor-swift-billie-eilish-album-chart.html
 
-**Understaffing and an 8-Inch Gap Helped Four Louisiana Inmates Escape**\
-`Two of the escapees were back in jail after being found in a dumpster, while the others remained at large, officials said.`\
+**Four Inmates Escape Unnoticed From Louisiana Jail Through 8-Inch Gap**\
+`Two of the escapees were back in jail after being found in a dumpster, while two remained at large, officials said. Their escapes went undetected for hours.`\
 https://nytimes.com/2024/05/28/us/louisiana-manhunt-escape-jail.html
 
 **Georgia’s Ruling Party Secures a Contentious Foreign-Agent Law**\

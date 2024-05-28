@@ -1,3 +1,7 @@
+**Four Inmates Escape Unnoticed From Louisiana Jail Through 8-Inch Gap**\
+`Two of the escapees were back in jail after being found in a dumpster, while two remained at large, officials said. Their escapes went undetected for hours.`\
+https://nytimes.com/2024/05/28/us/louisiana-manhunt-escape-jail.html
+
 **There’s Nothing Simple or Obvious About Trump’s Trial Defense**\
 `In fact, his legal team’s arguments have always been internally inconsistent.`\
 https://nytimes.com/live/2024/05/21/opinion/thepoint/trump-trial-defense
