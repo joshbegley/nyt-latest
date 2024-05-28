@@ -1,3 +1,7 @@
+**Have You Enrolled in Georgia’s Medicaid Work Requirement Program? We’d Like to Hear From You.**\
+`We’re hoping to speak with people who have tried enrolling in or have been covered by Georgia Pathways, the Medicaid work requirement program. We want to know what the experience was like.`\
+https://nytimes.com/2024/05/28/us/have-you-enrolled-in-georgias-medicaid-work-requirement-program-wed-like-to-hear-from-you.html
+
 **State Senator Opposes Casino Proposal in Queens, Rebuffing Mets Owner**\
 `Jessica Ramos, a state senator from Queens who is considering a run for mayor, moved to stop a proposal from Steven Cohen, the billionaire owner of the New York Mets.`\
 https://nytimes.com/2024/05/28/nyregion/jessica-ramos-cohen-casino.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/28/us/politics/trump-convicted-biden.html
 **Legacy of Flaco, Escaped Zoo Owl, to Live at Museum in His Neighborhood**\
 `Remains from the Eurasian eagle-owl, whose year on the loose captivated New York City, will be kept at the American Museum of Natural History.`\
 https://nytimes.com/2024/05/28/nyregion/flaco-owl-natural-history-museum.html
-
-**Trump’s ‘Dystopian Deportation Scheme’**\
-`Readers discuss two opinion pieces about Donald Trump’s plans if elected. Also: Gaza’s ruined hospitals; Florida’s climate law; a G.O.P. double standard; pregnancy calories.`\
-https://nytimes.com/2024/05/28/opinion/donald-trump-deportation.html
 
