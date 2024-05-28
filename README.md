@@ -1,3 +1,7 @@
+**Blinken Travels to Eastern Europe as Russia Presses War in Ukraine**\
+`Secretary of State Antony J. Blinken aims to show support for Moldova, which is under threat from Russia, and plans to attend a NATO meeting in the Czech Republic.`\
+https://nytimes.com/2024/05/28/us/politics/blinken-russia-czech-republic-moldova.html
+
 **Pope Francis’ Remarkable Act of Contrition**\
 `Even popes are fallible.`\
 https://nytimes.com/live/2024/05/21/opinion/thepoint/pope-francis-gay-slur
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/28/climate/how-to-fix-carbon-offsets.html
 **Democrats Adopt Nomination Plan to Allow Biden on the Ohio Ballot**\
 `Party leaders said they would nominate the president via a virtual roll call of delegates before the national convention, overcoming a glitch that had threatened to keep him off the November ballot.`\
 https://nytimes.com/2024/05/28/us/democrats-biden-ohio-ballot.html
-
-**Harris says deadly airstrike in Rafah is beyond tragic.**\
-`By Zolan Kanno-Youngs and Erica L. Green`\
-https://nytimes.com/live/2024/05/28/world/israel-gaza-war-hamas-rafah/harris-says-deadly-airstrike-in-rafah-is-beyond-tragic
 
