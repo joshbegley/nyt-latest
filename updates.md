@@ -1,3 +1,7 @@
+**Big Oil’s Winning Streak Forces Activist Investors to Regroup**\
+`Climate-focused shareholders are rethinking their tactics ahead of this week’s annual meetings at Exxon Mobil and Chevron.`\
+https://nytimes.com/2024/05/28/business/dealbook/oil-chevron-exxon-activist-investors.html
+
 **Calls Mount to Let Ukraine Strike Russia With Western Weapons**\
 `The U.S. and other allies have banned Ukraine from firing Western weapons into Russia. Kyiv says that has handcuffed its ability to prevent cross-border attacks.`\
 https://nytimes.com/2024/05/28/world/europe/ukraine-weapons-russia.html
