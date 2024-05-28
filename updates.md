@@ -1,3 +1,15 @@
+**Closing Arguments Are Coming in Trump’s Trial. Here’s How They Work.**\
+`Each side will have an opportunity to summarize its case before the jury begins to deliberate.`\
+https://nytimes.com/2024/05/28/nyregion/what-are-closing-arguments.html
+
+**A Final Graduation Requirement: Making Sense of Protest**\
+`As students in Columbia’s class of 2024 received their diplomas, many of them were grappling with what intense activism on campus would mean to their futures.`\
+https://nytimes.com/2024/05/28/business/columbia-campus-protests-graduation.html
+
+**More of the Best Books About California**\
+`We’re adding love letters and cautionary tales to our Golden State reading list.`\
+https://nytimes.com/2024/05/28/us/best-books-california.html
+
 **Trump’s Trial Has Entered Its Final Stages. Here’s What Comes Next.**\
 `In the seventh week of trial, closing arguments will be made and the jury will start deliberations.`\
 https://nytimes.com/2024/05/28/nyregion/trump-trial-jury-deliberations.html
