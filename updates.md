@@ -1,3 +1,7 @@
+**Tuesday Briefing**\
+`We’re covering Israel’s offensive in Rafah and the death toll from the Papua New Guinea landslide.`\
+https://nytimes.com/2024/05/28/briefing/rafah-airstrike-papua-new-guinea-china-clean-energy.html
+
 **London Moves to Revive Its Reputation as a Financial Hub**\
 `As fears have grown that the city is losing its attractiveness for publicly traded businesses, Britain’s government is making changes to bring them back.`\
 https://nytimes.com/2024/05/28/business/london-financial-center-ipo-europe.html
