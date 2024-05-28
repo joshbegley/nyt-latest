@@ -1,7 +1,3 @@
-**When Roller-Skating Nuns Came to the Opera House**\
-`The choreographer Florentina Holzinger’s shows feature circus performers and abundant nudity. Now, she’s bringing her experimental approach to opera.`\
-https://nytimes.com/2024/05/28/arts/music/florentina-holzinger-sancta.html
-
 **Adam Neumann Gives Up on Buying Back WeWork**\
 `The co-founder of the shared-office company, who stepped down under pressure before the firm went bankrupt, announced an audacious takeover bid earlier this year.`\
 https://nytimes.com/2024/05/28/business/dealbook/adam-neumann-wework.html
@@ -37,4 +33,8 @@ https://nytimes.com/interactive/2024/05/28/books/review/nyc-kids-quiz.html
 **Big Oil’s Winning Streak Forces Activist Investors to Regroup**\
 `Climate-focused shareholders are rethinking their tactics ahead of this week’s annual meetings at Exxon Mobil and Chevron.`\
 https://nytimes.com/2024/05/28/business/dealbook/oil-chevron-exxon-activist-investors.html
+
+**Calls Mount to Let Ukraine Strike Russia With Western Weapons**\
+`The U.S. and other allies have banned Ukraine from firing Western weapons into Russia. Kyiv says that has handcuffed its ability to prevent cross-border attacks.`\
+https://nytimes.com/2024/05/28/world/europe/ukraine-weapons-russia.html
 
