@@ -1,3 +1,7 @@
+**Cyclone Remal Tears Through Bangladesh, Killing at Least 13**\
+`The storm, the first of the season, hit the South Asian country and neighboring India after weeks of intense heat. Millions were left without power.`\
+https://nytimes.com/2024/05/28/world/asia/cyclone-remal-bangladesh-india.html
+
 **Defense Lawyers to Begin Closing Arguments in Trump’s Criminal Trial**\
 `After prosecutors get their turn, the case could be in the hands of the jury as early as Wednesday.`\
 https://nytimes.com/2024/05/28/nyregion/trump-trial-closing-arguments.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/28/briefing/rafah-airstrike-papua-new-guinea-china-c
 **London Moves to Revive Its Reputation as a Financial Hub**\
 `As fears have grown that the city is losing its attractiveness for publicly traded businesses, Britain’s government is making changes to bring them back.`\
 https://nytimes.com/2024/05/28/business/london-financial-center-ipo-europe.html
-
-**How the Tree Lobster Escaped Extinction**\
-`The Lord Howe Island stick insect vanished from its home, but an effort at zoos in San Diego and Melbourne highlights the possibilities and challenges of conserving invertebrate animals.`\
-https://nytimes.com/2024/05/28/science/stick-insect-extinction-tree-lobster.html
 

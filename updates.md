@@ -1,3 +1,7 @@
+**Cyclone Remal Tears Through Bangladesh, Killing at Least 13**\
+`The storm, the first of the season, hit the South Asian country and neighboring India after weeks of intense heat. Millions were left without power.`\
+https://nytimes.com/2024/05/28/world/asia/cyclone-remal-bangladesh-india.html
+
 **Defense Lawyers to Begin Closing Arguments in Trump’s Criminal Trial**\
 `After prosecutors get their turn, the case could be in the hands of the jury as early as Wednesday.`\
 https://nytimes.com/2024/05/28/nyregion/trump-trial-closing-arguments.html
