@@ -1,3 +1,7 @@
+**Both Sides Delivered Closing Arguments at Trump’s Trial**\
+`Also, Israel pushed on in Rafah. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/05/28/briefing/trump-trial-closing-arguments-graceland-sale.html
+
 **Senators See Possible Conflicts of Interest in Health Care Pricing Tools**\
 `A data analytics firm that helps insurers collect big fees while leaving some patients with unpaid bills has been summoned to explain its business model.`\
 https://nytimes.com/2024/05/28/us/senators-see-possible-conflicts-of-interest-in-health-care-pricing-tools.html
