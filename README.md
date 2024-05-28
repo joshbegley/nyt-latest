@@ -1,3 +1,11 @@
+**What to Watch in the Texas Runoff Elections**\
+`Representative Tony Gonzales is facing a challenge from a gun rights activist, and voters will decide which Republican will face Representative Henry Cuellar this fall.`\
+https://nytimes.com/2024/05/28/us/politics/texas-runoff-elections.html
+
+**The Daily Beast’s New Bosses Plan Buyouts to Cut Losses**\
+`The leadership duo has looked for money-saving measures since joining the digital tabloid in April.`\
+https://nytimes.com/2024/05/28/business/media/daily-beast-buyouts.html
+
 **Israel had not ordered Palestinians to leave the area it struck on Sunday.**\
 `By Lauren Leatherby`\
 https://nytimes.com/live/2024/05/28/world/israel-gaza-war-hamas-rafah/israel-had-not-ordered-palestinians-to-leave-the-area-it-struck-on-sunday
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/elections/100000009490899/robert-de-niro-trump-thre
 **Forgione Brings Its Rustic Charm to the Former Danube Space**\
 `Little Banchan Shop opens on Pier 57, Asia Shabazz is the new executive chef at Contento and more restaurant news.`\
 https://nytimes.com/2024/05/28/dining/nyc-restaurant-news.html
-
-**Harvard Should Say Less. Maybe All Schools Should.**\
-`Let’s spare universities from having to decide which world events deserve official statements.`\
-https://nytimes.com/2024/05/28/opinion/university-statements-harvard-kalven.html
-
-**Who Plotted to Sell Graceland? An Identity Thief Raises His Hand.**\
-`A person using an email for the company seeking to foreclose on the former home of Elvis Presley says his ring was behind the threat to sell the beloved landmark.`\
-https://nytimes.com/2024/05/28/arts/music/graceland-fraud-identity-thief-emails.html
 
