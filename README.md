@@ -1,3 +1,15 @@
+**The ‘Home Alone’ House Is for Sale (Booby Traps Not Included)**\
+`The house in Winnetka, Ill., where Kevin McCallister battled two hapless burglars in the 1990 film, is on the market for the first time in more than a decade. List price: $5.25 million.`\
+https://nytimes.com/2024/05/28/realestate/luxury/home-alone-house-for-sale.html
+
+**‘He Will Never Leave,’ Robert De Niro Warns of Second Trump Term**\
+`Robert De Niro spoke on behalf of the Biden campaign outside the New York City courthouse where Donald J. Trump’s criminal trial is being held.`\
+https://nytimes.com/video/us/elections/100000009490899/robert-de-niro-trump-threat.html
+
+**Forgione Brings Its Rustic Charm to the Former Danube Space**\
+`Little Banchan Shop opens on Pier 57, Asia Shabazz is the new executive chef at Contento and more restaurant news.`\
+https://nytimes.com/2024/05/28/dining/nyc-restaurant-news.html
+
 **Harvard Should Say Less. Maybe All Schools Should.**\
 `Let’s spare universities from having to decide which world events deserve official statements.`\
 https://nytimes.com/2024/05/28/opinion/university-statements-harvard-kalven.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/28/opinion/donald-trump-deportation.html
 **Need a Refresher on Trump’s Criminal Trial? Catch Up Here.**\
 `Donald J. Trump has been charged with 34 felony counts in the first criminal case against an American president. Defense lawyers and prosecutors are making their closing arguments on Tuesday.`\
 https://nytimes.com/2024/05/28/nyregion/trump-criminal-trial-hush-money.html
-
-**Is Shrimp Good for You?**\
-`Americans love their prawns. So how healthy are they — for us and for the planet?`\
-https://nytimes.com/2024/05/28/well/eat/shrimp-prawns-health-risks-benefits.html
-
-**BuzzFeed Clashes With Vivek Ramaswamy**\
-`The former G.O.P. presidential candidate, who has invested in BuzzFeed, believes the company needs to pivot. He wants to see commentators like Tucker Carlson in its lineup.`\
-https://nytimes.com/2024/05/28/business/media/buzzfeed-vivek-ramaswamy.html
-
-**Throngs Waited Through the Weekend for Courtroom Seats. Few Got Them.**\
-`Most members of the public who tried to see closing arguments in the first trial of an American president walked away disappointed Monday.`\
-https://nytimes.com/2024/05/28/nyregion/courtroom-seats-trump-trial.html
 
