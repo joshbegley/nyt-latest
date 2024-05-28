@@ -3,7 +3,7 @@
 https://nytimes.com/2024/05/28/us/politics/texas-runoff-elections.html
 
 **The Daily Beast’s New Bosses Plan Buyouts to Cut Losses**\
-`The leadership duo has looked for money-saving measures since joining the digital tabloid in April.`\
+`The two leaders have looked for money-saving measures since joining the digital tabloid in April.`\
 https://nytimes.com/2024/05/28/business/media/daily-beast-buyouts.html
 
 **Israel had not ordered Palestinians to leave the area it struck on Sunday.**\

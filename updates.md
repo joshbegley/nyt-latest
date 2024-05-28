@@ -1,3 +1,7 @@
+**The Daily Beast’s New Bosses Plan Buyouts to Cut Losses**\
+`The two leaders have looked for money-saving measures since joining the digital tabloid in April.`\
+https://nytimes.com/2024/05/28/business/media/daily-beast-buyouts.html
+
 **What to Watch in the Texas Runoff Elections**\
 `Representative Tony Gonzales is facing a challenge from a gun rights activist, and voters will decide which Republican will face Representative Henry Cuellar this fall.`\
 https://nytimes.com/2024/05/28/us/politics/texas-runoff-elections.html
