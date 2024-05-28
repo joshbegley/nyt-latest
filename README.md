@@ -1,3 +1,11 @@
+**I.R.S. Failed to Police Puerto Rico Tax Break, Whistle-Blower Says**\
+`An insider accused the agency of failing to scrutinize a lucrative tax break in Puerto Rico designed to lure wealthy Americans to the island.`\
+https://nytimes.com/2024/05/28/business/irs-puerto-rico-tax.html
+
+**Say Hello to Our Summer 100**\
+`The 100 recipes (shrimp scampi with tomatoes and corn, watermelon chaat, perfect peach cobbler) to cook on repeat all summer.`\
+https://nytimes.com/2024/05/28/dining/say-hello-to-our-summer-100.html
+
 **The 15 Most Unforgettable Looks From Cannes**\
 `The festival is over, but the style is here to stay.`\
 https://nytimes.com/2024/05/28/style/the-15-most-unforgettable-looks-from-cannes.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/28/business/dealbook/adam-neumann-wework.html
 **Closing Arguments Are Coming in Trump’s Trial. Here’s How They Work.**\
 `Each side will have an opportunity to summarize its case before the jury begins to deliberate.`\
 https://nytimes.com/2024/05/28/nyregion/what-are-closing-arguments.html
-
-**A Final Graduation Requirement: Making Sense of Protest**\
-`As students in Columbia’s class of 2024 received their diplomas, many of them were grappling with what intense activism on campus would mean to their futures.`\
-https://nytimes.com/2024/05/28/business/columbia-campus-protests-graduation.html
-
-**More of the Best Books About California**\
-`We’re adding love letters and cautionary tales to our Golden State reading list.`\
-https://nytimes.com/2024/05/28/us/best-books-california.html
 
