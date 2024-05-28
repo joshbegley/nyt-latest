@@ -1,3 +1,7 @@
+**R.F.K. Jr. Denounces the Removal of Confederate Statues**\
+`The independent presidential candidate Robert F. Kennedy Jr. said on a recent podcast that he had a “visceral reaction” to the removal of statues glorifying Confederate leaders.`\
+https://nytimes.com/2024/05/28/us/politics/rfk-jr-confederate-statues-removal.html
+
 **Both Sides Delivered Closing Arguments at Trump’s Trial**\
 `Also, Israel pushed on in Rafah. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/05/28/briefing/trump-trial-closing-arguments-graceland-sale.html
