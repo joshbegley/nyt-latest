@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘Also, He’s a Magician’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/05/28/style/tiny-modern-love-stories-also-hes-a-magician.html
+
 **Man Who Invaded Nancy Pelosi’s Home Apologizes for Attacking Her Husband**\
 `David DePape’s federal sentencing hearing was reopened to give him a chance to address the court, but his apology did not persuade the judge to change his sentence.`\
 https://nytimes.com/2024/05/28/us/nancy-pelosi-david-depape-apology-sentence.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/28/nyregion/closing-argument-trump-lawyer.html
 **Judge Denies Limited Gag Order Request in Trump Documents Case**\
 `The decision was made on procedural grounds and left open the possibility that federal prosecutors could try again to restrict Donald Trump from making statements that could endanger F.B.I. agents.`\
 https://nytimes.com/2024/05/28/us/politics/gag-order-denied-trump-documents.html
-
-**Have You Enrolled in Georgia’s Medicaid Work Requirement Program? We’d Like to Hear From You.**\
-`We’re hoping to speak with people who have tried enrolling in or have been covered by Georgia Pathways, the Medicaid work requirement program. We want to know what the experience was like.`\
-https://nytimes.com/2024/05/28/us/have-you-enrolled-in-georgias-medicaid-work-requirement-program-wed-like-to-hear-from-you.html
 
