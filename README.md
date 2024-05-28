@@ -1,3 +1,7 @@
+**Judge Denies Limited Gag Order Request in Trump Documents Case**\
+`The decision was made on procedural grounds and left open the possibility that federal prosecutors could try again to restrict Donald Trump from making statements that could endanger F.B.I. agents.`\
+https://nytimes.com/2024/05/28/us/politics/gag-order-denied-trump-documents.html
+
 **Have You Enrolled in Georgia’s Medicaid Work Requirement Program? We’d Like to Hear From You.**\
 `We’re hoping to speak with people who have tried enrolling in or have been covered by Georgia Pathways, the Medicaid work requirement program. We want to know what the experience was like.`\
 https://nytimes.com/2024/05/28/us/have-you-enrolled-in-georgias-medicaid-work-requirement-program-wed-like-to-hear-from-you.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/28/technology/ryan-salame-ftx-executive-sentenced.ht
 **If Trump Is Convicted, How Will Biden’s Team Go on the Attack?**\
 `A guilty verdict in New York would be a gift for Democrats — but if it comes, the Biden campaign is unlikely to tear up its 2024 playbook.`\
 https://nytimes.com/2024/05/28/us/politics/trump-convicted-biden.html
-
-**Legacy of Flaco, Escaped Zoo Owl, to Live at Museum in His Neighborhood**\
-`Remains from the Eurasian eagle-owl, whose year on the loose captivated New York City, will be kept at the American Museum of Natural History.`\
-https://nytimes.com/2024/05/28/nyregion/flaco-owl-natural-history-museum.html
 
