@@ -1,3 +1,7 @@
+**Both Sides Delivered Closing Arguments at Trump’s Trial**\
+`Also, Israel pushed on in Rafah. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/05/28/briefing/trump-trial-closing-arguments-graceland-sale.html
+
 **Senators See Possible Conflicts of Interest in Health Care Pricing Tools**\
 `A data analytics firm that helps insurers collect big fees while leaving some patients with unpaid bills has been summoned to explain its business model.`\
 https://nytimes.com/2024/05/28/us/senators-see-possible-conflicts-of-interest-in-health-care-pricing-tools.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/28/arts/music/bill-walton-grateful-dead.html
 **At Trump Trial’s Closings, Lawyers Weave Facts Into Clashing Accounts**\
 `A defense lawyer painted Donald J. Trump as the victim of unscrupulous people, but a prosecutor said Mr. Trump had directed a scheme to conceal a hush-money payment.`\
 https://nytimes.com/2024/05/28/nyregion/trump-hush-money-trial-closings.html
-
-**Man Charged With Hate Crimes in New York City Street Attacks**\
-`Skiboky Stora, 40, is accused of targeting people he believed were white, female or Jewish. He was arrested in March after one of his alleged victims shared her story on TikTok.`\
-https://nytimes.com/2024/05/28/nyregion/skibody-stora-hate-crimes-random-attacks.html
 
