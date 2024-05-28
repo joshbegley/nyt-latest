@@ -1,3 +1,15 @@
+**The Alitos and Their Flags**\
+`The saga of a Supreme Court justice, his wife and two symbols adopted by people campaigning to overturn the result of the 2020 election.`\
+https://nytimes.com/2024/05/28/podcasts/the-daily/the-alitos-and-their-flags.html
+
+**OpenAI Says It Has Begun Training a New Flagship A.I. Model**\
+`The advanced A.I. system would succeed GPT-4, which powers ChatGPT. The company has also created a new safety committee to address A.I.’s risks.`\
+https://nytimes.com/2024/05/28/technology/openai-gpt4-new-model.html
+
+**Today’s Wordle Review No. 1,075, May 29, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/28/crosswords/wordle-review-1075.html
+
 **The previously announced moves serve as a rebuke to Israel.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/05/28/world/israel-gaza-war-hamas-rafah/the-previously-announced-moves-serve-as-a-rebuke-to-israel
