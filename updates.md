@@ -1,3 +1,7 @@
+**Cyclone Remal Tears Through India and Bangladesh, Killing at Least 23**\
+`The storm, the first of the season, hit the South Asian countries after weeks of intense heat. Millions were left without power.`\
+https://nytimes.com/2024/05/28/world/asia/cyclone-remal-bangladesh-india.html
+
 **Cyclone Remal Tears Through Bangladesh, Killing at Least 13**\
 `The storm, the first of the season, hit the South Asian country and neighboring India after weeks of intense heat. Millions were left without power.`\
 https://nytimes.com/2024/05/28/world/asia/cyclone-remal-bangladesh-india.html
