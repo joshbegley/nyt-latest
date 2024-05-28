@@ -1,3 +1,7 @@
+**More Palestinians were leaving Rafah after ‘a bloody and very difficult night.’**\
+`By Hiba Yazbek`\
+https://nytimes.com/live/2024/05/28/world/israel-gaza-war-hamas-rafah/more-palestinians-were-fleeing-rafah-after-a-bloody-and-very-difficult-night
+
 **Two More ‘Succession’ Actors Are Broadway Bound, in ‘Job’**\
 `Peter Friedman and Sydney Lemmon will star in the two-hander, a psychological thriller that previously found success downtown.`\
 https://nytimes.com/2024/05/28/theater/job-broadway-peter-friedman-sydney-lemmon.html
