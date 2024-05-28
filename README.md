@@ -1,3 +1,7 @@
+**Calls Mount to Let Ukraine Strike Russia With Western Weapons**\
+`The U.S. and other allies have banned Ukraine from firing Western weapons into Russia. Kyiv says that has handcuffed its ability to prevent cross-border attacks.`\
+https://nytimes.com/2024/05/28/world/europe/ukraine-weapons-russia.html
+
 **The Connections Companion No. 353, May 29, 2024**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/05/28/crosswords/connections-companion-353.html
