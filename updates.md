@@ -1,3 +1,11 @@
+**Netanyahu Is Sorry/Not Sorry for the Killings in Rafah**\
+`The endless apologies for tragic mistakes sound hollow.`\
+https://nytimes.com/live/2024/05/28/opinion/thepoint/israel-rafah-apology
+
+**Senators See Possible Conflicts of Interest in Health Care Pricing Tools**\
+`A data analytics firm that helps insurers collect big fees while leaving some patients with unpaid bills has been summoned to explain its business model.`\
+https://nytimes.com/2024/05/28/us/senate-multiplan-health-care-pricing.html
+
 **What Is the ‘Access Hollywood’ Tape, and How Does It Factor Into Trump’s Trial?**\
 `Prosecutors have mentioned the tape at various stages of Donald J. Trump’s criminal trial, including during closing arguments on Tuesday.`\
 https://nytimes.com/2024/05/28/nyregion/access-hollywood-tape-trump-trial.html
