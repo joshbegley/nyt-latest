@@ -1,3 +1,11 @@
+**NYU Nurse Is Fired After Calling the Gaza War a ‘Genocide’ in Speech**\
+`NYU Langone Health gave the nurse, Hesen Jabr, an award for her work. She said hospital officials then fired her because she made pro-Palestinian remarks in an acceptance speech.`\
+https://nytimes.com/2024/05/28/nyregion/nyu-langone-nurse-fired-gaza-war.html
+
+**U.N. says it is struggling to keep operating in Gaza because of Israel’s expanding offensive.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/05/28/world/israel-gaza-war-hamas-rafah/un-says-it-is-struggling-to-keep-operating-in-gaza-because-of-israels-expanding-offensive
+
 **Israel Pushes Into Rafah as Displaced Palestinians Search for Safety**\
 `The Israeli military said it had deployed additional combat troops to the southern Gaza Strip, even as a growing chorus of voices demand an end to the fighting.`\
 https://nytimes.com/2024/05/28/world/middleeast/gaza-war-rafah.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/28/us/michigan-trooper-murder.html
 **The Alitos, the Neighborhood Clash and the Upside-Down Flag**\
 `Inside the escalating conflict on a bucolic suburban street that Justice Alito said prompted a “Stop the Steal” symbol at his home.`\
 https://nytimes.com/2024/05/28/us/justice-alito-neighbors-stop-steal-flag.html
-
-**Netanyahu Is Sorry/Not Sorry for the Killings in Rafah**\
-`The endless apologies for tragic mistakes sound hollow.`\
-https://nytimes.com/live/2024/05/28/opinion/thepoint/israel-rafah-apology
-
-**What Is the ‘Access Hollywood’ Tape, and How Does It Factor Into Trump’s Trial?**\
-`Prosecutors have mentioned the tape at various stages of Donald J. Trump’s criminal trial, including during closing arguments on Tuesday.`\
-https://nytimes.com/2024/05/28/nyregion/access-hollywood-tape-trump-trial.html
 

@@ -1,3 +1,11 @@
+**NYU Nurse Is Fired After Calling the Gaza War a ‘Genocide’ in Speech**\
+`NYU Langone Health gave the nurse, Hesen Jabr, an award for her work. She said hospital officials then fired her because she made pro-Palestinian remarks in an acceptance speech.`\
+https://nytimes.com/2024/05/28/nyregion/nyu-langone-nurse-fired-gaza-war.html
+
+**U.N. says it is struggling to keep operating in Gaza because of Israel’s expanding offensive.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/05/28/world/israel-gaza-war-hamas-rafah/un-says-it-is-struggling-to-keep-operating-in-gaza-because-of-israels-expanding-offensive
+
 **Israel Pushes Into Rafah as Displaced Palestinians Search for Safety**\
 `The Israeli military said it had deployed additional combat troops to the southern Gaza Strip, even as a growing chorus of voices demand an end to the fighting.`\
 https://nytimes.com/2024/05/28/world/middleeast/gaza-war-rafah.html
