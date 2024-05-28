@@ -1,3 +1,11 @@
+**Harvard Should Say Less. Maybe All Schools Should.**\
+`Let’s spare universities from having to decide which world events deserve official statements.`\
+https://nytimes.com/2024/05/28/opinion/university-statements-harvard-kalven.html
+
+**Who Plotted to Sell Graceland? An Identity Thief Raises His Hand.**\
+`A person using an email for the company seeking to foreclose on the former home of Elvis Presley says his ring was behind the threat to sell the beloved landmark.`\
+https://nytimes.com/2024/05/28/arts/music/graceland-fraud-identity-thief-emails.html
+
 **Top FTX Executive Sentenced to Seven and a Half Years in Prison**\
 `Ryan Salame, the head of FTX’s subsidiary in the Bahamas, was the first of Sam Bankman-Fried’s deputies to be sentenced since the crypto exchange collapsed in November 2022.`\
 https://nytimes.com/2024/05/28/technology/ryan-salame-ftx-executive-sentenced.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/28/business/media/buzzfeed-vivek-ramaswamy.html
 **Throngs Waited Through the Weekend for Courtroom Seats. Few Got Them.**\
 `Most members of the public who tried to see closing arguments in the first trial of an American president walked away disappointed Monday.`\
 https://nytimes.com/2024/05/28/nyregion/courtroom-seats-trump-trial.html
-
-**There’s Nothing Simple or Obvious About Trump’s Trial Defense**\
-`In fact, his legal team’s arguments have always been internally inconsistent.`\
-https://nytimes.com/live/2024/05/21/opinion/thepoint/trump-trial-defense
-
-**Taylor Swift Prevails Over Billie Eilish for a Fifth Week at No. 1**\
-`In a tight battle that had fans hustling to support their favorite star, “The Tortured Poets Department” outsold “Hit Me Hard and Soft.”`\
-https://nytimes.com/2024/05/28/arts/music/taylor-swift-billie-eilish-album-chart.html
 

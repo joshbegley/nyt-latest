@@ -1,3 +1,11 @@
+**Harvard Should Say Less. Maybe All Schools Should.**\
+`Let’s spare universities from having to decide which world events deserve official statements.`\
+https://nytimes.com/2024/05/28/opinion/university-statements-harvard-kalven.html
+
+**Who Plotted to Sell Graceland? An Identity Thief Raises His Hand.**\
+`A person using an email for the company seeking to foreclose on the former home of Elvis Presley says his ring was behind the threat to sell the beloved landmark.`\
+https://nytimes.com/2024/05/28/arts/music/graceland-fraud-identity-thief-emails.html
+
 **Top FTX Executive Sentenced to Seven and a Half Years in Prison**\
 `Ryan Salame, the head of FTX’s subsidiary in the Bahamas, was the first of Sam Bankman-Fried’s deputies to be sentenced since the crypto exchange collapsed in November 2022.`\
 https://nytimes.com/2024/05/28/technology/ryan-salame-ftx-executive-sentenced.html
