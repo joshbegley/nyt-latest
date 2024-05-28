@@ -1,3 +1,7 @@
+**R.F.K. Jr. Denounces the Removal of Confederate Statues**\
+`The independent presidential candidate Robert F. Kennedy Jr. said on a recent podcast that he had a “visceral reaction” to the removal of statues glorifying Confederate leaders.`\
+https://nytimes.com/2024/05/28/us/politics/rfk-jr-confederate-statues-removal.html
+
 **Both Sides Delivered Closing Arguments at Trump’s Trial**\
 `Also, Israel pushed on in Rafah. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/05/28/briefing/trump-trial-closing-arguments-graceland-sale.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009491181/mawasi-strike-gaza-is
 **Bill Walton’s Long, Special Relationship With the Grateful Dead**\
 `“It wasn’t like he was a fan,” the drummer Mickey Hart said. “He was part of our family.”`\
 https://nytimes.com/2024/05/28/arts/music/bill-walton-grateful-dead.html
-
-**At Trump Trial’s Closings, Lawyers Weave Facts Into Clashing Accounts**\
-`A defense lawyer painted Donald J. Trump as the victim of unscrupulous people, but a prosecutor said Mr. Trump had directed a scheme to conceal a hush-money payment.`\
-https://nytimes.com/2024/05/28/nyregion/trump-hush-money-trial-closings.html
 
