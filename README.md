@@ -12,7 +12,7 @@ https://nytimes.com/2024/05/28/us/politics/blinken-russia-czech-republic-moldova
 
 **Pope Francis’ Remarkable Act of Contrition**\
 `Even popes are fallible.`\
-https://nytimes.com/live/2024/05/21/opinion/thepoint/pope-francis-gay-slur
+https://nytimes.com/live/2024/05/28/opinion/thepoint/pope-francis-gay-slur
 
 **Its Future in Doubt, the Freewheeling ‘Inside the NBA’ Is on Edge Instead**\
 `Next season could be the last for TNT’s influential and beloved studio show, and Charles Barkley, for one, will not be going quietly.`\
@@ -36,5 +36,5 @@ https://nytimes.com/2024/05/28/us/harvard-university-statements-empathy.html
 
 **The Trump Team’s Inept Closing Argument Blew Up**\
 `The judge excoriated the team for implying that the jury has anything to do with Trump’s incarceration.`\
-https://nytimes.com/live/2024/05/21/opinion/thepoint/trump-defense-closing-argument
+https://nytimes.com/live/2024/05/28/opinion/thepoint/trump-defense-closing-argument
 
