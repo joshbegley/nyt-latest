@@ -1,3 +1,7 @@
+**Two More ‘Succession’ Actors Are Broadway Bound, in ‘Job’**\
+`Peter Friedman and Sydney Lemmon will star in the two-hander, a psychological thriller that previously found success downtown.`\
+https://nytimes.com/2024/05/28/theater/job-broadway-peter-friedman-sydney-lemmon.html
+
 **Lawyers to Plastics Makers: Prepare for ‘Astronomical’ PFAS Lawsuits**\
 `At an industry presentation about dangerous “forever chemicals,” lawyers predicted a wave of lawsuits that could dwarf asbestos litigation, audio from the event revealed.`\
 https://nytimes.com/2024/05/28/climate/pfas-forever-chemicals-industry-lawsuits.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/28/us/best-books-california.html
 **Trump’s Trial Has Entered Its Final Stages. Here’s What Comes Next.**\
 `In the seventh week of trial, closing arguments will be made and the jury will start deliberations.`\
 https://nytimes.com/2024/05/28/nyregion/trump-trial-jury-deliberations.html
-
-**Live Updates: Defense Begins Closing Arguments in Trump’s Criminal Trial**\
-`Donald J. Trump faces 34 felony counts of falsifying business records in connection with a hush-money payment to a porn star before the 2016 election. The case could be in the jury’s hands by Wednesday.`\
-https://nytimes.com/live/2024/05/28/nyregion/trump-trial-closing-arguments
 
