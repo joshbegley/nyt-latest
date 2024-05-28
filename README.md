@@ -1,3 +1,7 @@
+**The Connections Companion No. 353, May 29, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/28/crosswords/connections-companion-353.html
+
 **China’s Role in Ukraine**\
 `Russia has been able to keep paying for the war, despite sanctions. How? U.S. officials point to Beijing.`\
 https://nytimes.com/2024/05/28/briefing/china-russia-ukraine-war-sanctions.html
