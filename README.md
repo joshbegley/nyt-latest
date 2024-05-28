@@ -1,3 +1,19 @@
+**On the Dangers of Inflation Brain**\
+`Is the Fed, among others, focused on the wrong problem?`\
+https://nytimes.com/2024/05/28/opinion/inflation-federal-reserve-rates.html
+
+**Marco Rubio Wants to Be Trump’s Vice President. He Doesn’t Want to Audition.**\
+`The last time the Florida senator lived in Donald J. Trump’s orbit he was mocked and defeated. As he returns, he’s trying to do it on his terms.`\
+https://nytimes.com/2024/05/28/us/politics/marco-rubio-trump-vp.html
+
+**Biden Moves to Open U.S. Banks to Cuba’s Private Sector**\
+`The rules will allow Cuban entrepreneurs to open bank accounts in the United States, making it easier for them to expand and encouraging other Cubans to start businesses.`\
+https://nytimes.com/2024/05/28/world/americas/biden-us-banks-cuba.html
+
+**Harvard Says It Will No Longer Take Positions on Matters Outside of the University**\
+`The policy could ease pressure on the school to issue statements on current events. Officials were criticized for their handling of the Oct. 7 Hamas attacks.`\
+https://nytimes.com/2024/05/28/us/harvard-university-statements-empathy.html
+
 **The Trump Team’s Inept Closing Argument Blew Up**\
 `The judge excoriated the team for implying that the jury has anything to do with Trump’s incarceration.`\
 https://nytimes.com/live/2024/05/21/opinion/thepoint/trump-defense-closing-argument
@@ -21,20 +37,4 @@ https://nytimes.com/2024/05/28/style/tiny-modern-love-stories-also-hes-a-magicia
 **Man Who Invaded Nancy Pelosi’s Home Apologizes for Attacking Her Husband**\
 `David DePape’s federal sentencing hearing was reopened to give him a chance to address the court, but his apology did not persuade the judge to change his sentence.`\
 https://nytimes.com/2024/05/28/us/nancy-pelosi-david-depape-apology-sentence.html
-
-**Gazan officials say a strike killed 21 in Al-Mawasi.**\
-`By Hiba Yazbek and Abu Bakr Bashir`\
-https://nytimes.com/live/2024/05/28/world/israel-gaza-war-hamas-rafah/gazan-officials-say-a-strike-killed-21-in-al-mawasi
-
-**The Trump Team’s Big Lie About the ‘Access Hollywood’ Tape**\
-`In 2016, the campaign was deeply worried about it.`\
-https://nytimes.com/live/2024/05/21/opinion/thepoint/trump-defense-access-hollywood
-
-**Music’s Most Neglected Day of the Week**\
-`Seven songs for Tuesdays from Stevie Wonder, iLoveMakonnen and more.`\
-https://nytimes.com/2024/05/28/arts/music/amplifier-newsletter-tuesday-songs.html
-
-**What to Watch in the Texas Runoff Elections**\
-`Representative Tony Gonzales is facing a challenge from a gun rights activist, and voters will decide which Republican will face Representative Henry Cuellar this fall.`\
-https://nytimes.com/2024/05/28/us/politics/texas-runoff-elections.html
 
