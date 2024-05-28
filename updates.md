@@ -1,3 +1,11 @@
+**Man Who Invaded Nancy Pelosi’s Home Apologizes for Attacking Her Husband**\
+`David DePape’s federal sentencing hearing was reopened to give him a chance to address the court, but his apology did not persuade the judge to change his sentence.`\
+https://nytimes.com/2024/05/28/us/nancy-pelosi-david-depape-apology-sentence.html
+
+**Gazan officials say a strike killed 21 in Al-Mawasi.**\
+`By Hiba Yazbek and Abu Bakr Bashir`\
+https://nytimes.com/live/2024/05/28/world/israel-gaza-war-hamas-rafah/gazan-officials-say-a-strike-killed-21-in-al-mawasi
+
 **The Trump Team’s Big Lie About the ‘Access Hollywood’ Tape**\
 `In 2016, the campaign was deeply worried about it.`\
 https://nytimes.com/live/2024/05/21/opinion/thepoint/trump-defense-access-hollywood

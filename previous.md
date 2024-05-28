@@ -1,3 +1,11 @@
+**Man Who Invaded Nancy Pelosi’s Home Apologizes for Attacking Her Husband**\
+`David DePape’s federal sentencing hearing was reopened to give him a chance to address the court, but his apology did not persuade the judge to change his sentence.`\
+https://nytimes.com/2024/05/28/us/nancy-pelosi-david-depape-apology-sentence.html
+
+**Gazan officials say a strike killed 21 in Al-Mawasi.**\
+`By Hiba Yazbek and Abu Bakr Bashir`\
+https://nytimes.com/live/2024/05/28/world/israel-gaza-war-hamas-rafah/gazan-officials-say-a-strike-killed-21-in-al-mawasi
+
 **The Trump Team’s Big Lie About the ‘Access Hollywood’ Tape**\
 `In 2016, the campaign was deeply worried about it.`\
 https://nytimes.com/live/2024/05/21/opinion/thepoint/trump-defense-access-hollywood
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/28/us/politics/gag-order-denied-trump-documents.html
 **Have You Enrolled in Georgia’s Medicaid Work Requirement Program? We’d Like to Hear From You.**\
 `We’re hoping to speak with people who have tried enrolling in or have been covered by Georgia Pathways, the Medicaid work requirement program. We want to know what the experience was like.`\
 https://nytimes.com/2024/05/28/us/have-you-enrolled-in-georgias-medicaid-work-requirement-program-wed-like-to-hear-from-you.html
-
-**State Senator Opposes Casino Proposal in Queens, Rebuffing Mets Owner**\
-`Jessica Ramos, a state senator from Queens who is considering a run for mayor, moved to stop a proposal from Steven Cohen, the billionaire owner of the New York Mets.`\
-https://nytimes.com/2024/05/28/nyregion/jessica-ramos-cohen-casino.html
-
-**The ‘Home Alone’ House Is for Sale (Booby Traps Not Included)**\
-`The house in Winnetka, Ill., where Kevin McCallister battled two hapless burglars in the 1990 film is on the market for the first time in more than a decade. List price: $5.25 million.`\
-https://nytimes.com/2024/05/28/realestate/luxury/home-alone-house-for-sale.html
 
