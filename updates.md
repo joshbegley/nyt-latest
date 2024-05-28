@@ -1,3 +1,7 @@
+**Why Lawmakers Are Brawling and People Are Protesting in Taiwan**\
+`Supporters of President Lai Ching-te are protesting legislative amendments introduced by the opposition that would limit his authority.`\
+https://nytimes.com/2024/05/28/world/asia/taiwan-protest-fight.html
+
 **What We Know About the Papua New Guinea Landslide**\
 `Nearly five days after the disaster hit a remote section of the country, officials have started evacuating residents. But the scale of the death toll remains uncertain.`\
 https://nytimes.com/2024/05/28/world/asia/papua-new-guinea-landslide.html
