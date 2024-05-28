@@ -1,3 +1,19 @@
+**Lawyers to Plastics Makers: Prepare for ‘Astronomical’ PFAS Lawsuits**\
+`At an industry presentation about dangerous “forever chemicals,” lawyers predicted a wave of lawsuits that could dwarf asbestos litigation, audio from the event revealed.`\
+https://nytimes.com/2024/05/28/climate/pfas-forever-chemicals-industry-lawsuits.html
+
+**More Palestinians were fleeing Rafah after ‘a bloody and very difficult night.’**\
+`By Hiba Yazbek`\
+https://nytimes.com/live/2024/05/28/world/israel-gaza-war-hamas-rafah/more-palestinians-were-fleeing-rafah-after-a-bloody-and-very-difficult-night
+
+**Pope Issues Apology After Reports That He Used Offensive Slang Word**\
+`Francis’ remark, referring to gay men, came during what was supposed to be a closed-door meeting with Italian bishops last week.`\
+https://nytimes.com/2024/05/28/world/europe/pope-apology-slang-gay-men.html
+
+**When Roller-Skating Nuns Came to the Opera House**\
+`The choreographer Florentina Holzinger’s shows feature circus performers and abundant nudity. Now, she’s bringing her experimental approach to opera.`\
+https://nytimes.com/2024/05/28/arts/music/florentina-holzinger-sancta.html
+
 **Live Updates: Defense Begins Closing Arguments in Trump’s Criminal Trial**\
 `Donald J. Trump faces 34 felony counts of falsifying business records in connection with a hush-money payment to a porn star before the 2016 election. The case could be in the jury’s hands by Wednesday.`\
 https://nytimes.com/live/2024/05/28/nyregion/trump-trial-closing-arguments
