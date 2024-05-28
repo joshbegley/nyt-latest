@@ -1,3 +1,11 @@
+**The Trump Team’s Inept Closing Argument Blew Up**\
+`The judge excoriated the team for implying that the jury has anything to do with Trump’s incarceration.`\
+https://nytimes.com/live/2024/05/21/opinion/thepoint/trump-defense-closing-argument
+
+**How to Fix Carbon Offsets**\
+`Carbon offsets have been heavily criticized as greenwashing, but they have a hidden benefit: getting crucial climate funds to developing nations.`\
+https://nytimes.com/2024/05/28/climate/how-to-fix-carbon-offsets.html
+
 **Democrats Adopt Nomination Plan to Allow Biden on the Ohio Ballot**\
 `Party leaders said they would nominate the president via a virtual roll call of delegates before the national convention, overcoming a glitch that had threatened to keep him off the November ballot.`\
 https://nytimes.com/2024/05/28/us/democrats-biden-ohio-ballot.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/28/arts/music/amplifier-newsletter-tuesday-songs.htm
 **What to Watch in the Texas Runoff Elections**\
 `Representative Tony Gonzales is facing a challenge from a gun rights activist, and voters will decide which Republican will face Representative Henry Cuellar this fall.`\
 https://nytimes.com/2024/05/28/us/politics/texas-runoff-elections.html
-
-**The Daily Beast’s New Bosses Plan Buyouts to Cut Losses**\
-`The two leaders have looked for money-saving measures since joining the digital tabloid in April.`\
-https://nytimes.com/2024/05/28/business/media/daily-beast-buyouts.html
-
-**Israel had not ordered Palestinians to leave the area it struck on Sunday.**\
-`By Lauren Leatherby`\
-https://nytimes.com/live/2024/05/28/world/israel-gaza-war-hamas-rafah/israel-had-not-ordered-palestinians-to-leave-the-area-it-struck-on-sunday
 
