@@ -1,3 +1,7 @@
+**Word of the Day: amiable**\
+`This word has appeared in 60 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/28/learning/word-of-the-day-amiable.html
+
 **South Africa Is Becoming Something New, and It’s Not Good**\
 `The country is in the midst of another complex transformation.`\
 https://nytimes.com/2024/05/28/opinion/south-africa-election-anc.html
