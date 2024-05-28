@@ -1,3 +1,7 @@
+**The Trump Team’s Big Lie About the ‘Access Hollywood’ Tape**\
+`In 2016, the campaign was deeply worried about it.`\
+https://nytimes.com/live/2024/05/21/opinion/thepoint/trump-defense-access-hollywood
+
 **Music’s Most Neglected Day of the Week**\
 `Seven songs for Tuesdays from Stevie Wonder, iLoveMakonnen and more.`\
 https://nytimes.com/2024/05/28/arts/music/amplifier-newsletter-tuesday-songs.html

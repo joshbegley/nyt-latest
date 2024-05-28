@@ -1,3 +1,7 @@
+**The Trump Team’s Big Lie About the ‘Access Hollywood’ Tape**\
+`In 2016, the campaign was deeply worried about it.`\
+https://nytimes.com/live/2024/05/21/opinion/thepoint/trump-defense-access-hollywood
+
 **Music’s Most Neglected Day of the Week**\
 `Seven songs for Tuesdays from Stevie Wonder, iLoveMakonnen and more.`\
 https://nytimes.com/2024/05/28/arts/music/amplifier-newsletter-tuesday-songs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/28/nyregion/jessica-ramos-cohen-casino.html
 **The ‘Home Alone’ House Is for Sale (Booby Traps Not Included)**\
 `The house in Winnetka, Ill., where Kevin McCallister battled two hapless burglars in the 1990 film is on the market for the first time in more than a decade. List price: $5.25 million.`\
 https://nytimes.com/2024/05/28/realestate/luxury/home-alone-house-for-sale.html
-
-**‘He Will Never Leave,’ Robert De Niro Warns of Second Trump Term**\
-`Robert De Niro spoke on behalf of the Biden campaign outside the New York City courthouse where Donald J. Trump’s criminal trial is being held.`\
-https://nytimes.com/video/us/elections/100000009490899/robert-de-niro-trump-threat.html
 
