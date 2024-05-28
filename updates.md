@@ -1,3 +1,7 @@
+**Rare Wu-Tang Clan Album to Be Played at Exhibit in Tasmania**\
+`The sole known copy of the album “Once Upon a Time in Shaolin” was not to be heard by the public until 2103. Some fans will be able to hear a selection of the 31 tracks at a museum in Hobart, Tasmania.`\
+https://nytimes.com/2024/05/28/arts/music/wutang-shaolin-tasmania-exhibit.html
+
 **Gaza’s Historic Heart, Now in Ruins**\
 `The Great Omari Mosque, built on an ancient holy site, is one of the many treasured landmarks damaged in Israel’s military offensive.`\
 https://nytimes.com/interactive/2024/05/28/arts/gaza-omari-mosque.html

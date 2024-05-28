@@ -1,3 +1,7 @@
+**Rare Wu-Tang Clan Album to Be Played at Exhibit in Tasmania**\
+`The sole known copy of the album “Once Upon a Time in Shaolin” was not to be heard by the public until 2103. Some fans will be able to hear a selection of the 31 tracks at a museum in Hobart, Tasmania.`\
+https://nytimes.com/2024/05/28/arts/music/wutang-shaolin-tasmania-exhibit.html
+
 **Gaza’s Historic Heart, Now in Ruins**\
 `The Great Omari Mosque, built on an ancient holy site, is one of the many treasured landmarks damaged in Israel’s military offensive.`\
 https://nytimes.com/interactive/2024/05/28/arts/gaza-omari-mosque.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/28/us/harvard-university-statements-empathy.html
 **The Trump Team’s Inept Closing Argument Blew Up**\
 `The judge excoriated the team for implying that the jury has anything to do with Trump’s incarceration.`\
 https://nytimes.com/live/2024/05/21/opinion/thepoint/trump-defense-closing-argument
-
-**How to Fix Carbon Offsets**\
-`Carbon offsets have been heavily criticized as greenwashing, but they have a hidden benefit: getting crucial climate funds to developing nations.`\
-https://nytimes.com/2024/05/28/climate/how-to-fix-carbon-offsets.html
 
