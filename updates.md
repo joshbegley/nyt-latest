@@ -1,3 +1,7 @@
+**The 15 Most Unforgettable Looks From Cannes**\
+`The festival is over, but the style is here to stay.`\
+https://nytimes.com/2024/05/28/style/the-15-most-unforgettable-looks-from-cannes.html
+
 **More Palestinians were leaving Rafah after ‘a bloody and very difficult night.’**\
 `By Hiba Yazbek`\
 https://nytimes.com/live/2024/05/28/world/israel-gaza-war-hamas-rafah/more-palestinians-were-fleeing-rafah-after-a-bloody-and-very-difficult-night
