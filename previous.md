@@ -1,3 +1,7 @@
+**Live Updates: Closing Arguments to Begin in Trump Criminal Trial**\
+`Donald J. Trump faces 34 felony counts of falsifying business records in connection with a hush-money payment made to a porn star before the 2016 election. The case could be in the jury’s hands as early as Wednesday.`\
+https://nytimes.com/live/2024/05/28/nyregion/trump-trial-closing-arguments
+
 **The Israeli military said it was engaging in ‘close-quarters combat.’**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/05/28/world/israel-gaza-war-hamas-rafah/the-israeli-military-said-it-was-engaging-in-close-quarters-combat
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/28/world/asia/papua-new-guinea-landslide.html
 **The Alitos and Their Flags**\
 `The saga of a Supreme Court justice, his wife and two symbols adopted by people campaigning to overturn the result of the 2020 election.`\
 https://nytimes.com/2024/05/28/podcasts/the-daily/the-alitos-and-their-flags.html
-
-**OpenAI Says It Has Begun Training a New Flagship A.I. Model**\
-`The advanced A.I. system would succeed GPT-4, which powers ChatGPT. The company has also created a new safety committee to address A.I.’s risks.`\
-https://nytimes.com/2024/05/28/technology/openai-gpt4-new-model.html
 
