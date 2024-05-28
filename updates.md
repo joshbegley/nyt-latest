@@ -1,3 +1,7 @@
+**Ellis Island**\
+`In the early 1970s, two high school filmmakers ventured out in a rowboat to make a 16-millimeter film about an abandoned space nearby: Ellis Island.`\
+https://nytimes.com/video/opinion/100000009295567/ellis-island.html
+
 **Climate Change Added a Month’s Worth of Extra-Hot Days in Past Year**\
 `Since last May, the average person experienced 26 more days of abnormal warmth than they would have without global warming, a new analysis found.`\
 https://nytimes.com/2024/05/28/climate/extreme-heat-worldwide.html
