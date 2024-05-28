@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘Also, He’s a Magician’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/05/28/style/tiny-modern-love-stories-also-hes-a-magician.html
+
 **Man Who Invaded Nancy Pelosi’s Home Apologizes for Attacking Her Husband**\
 `David DePape’s federal sentencing hearing was reopened to give him a chance to address the court, but his apology did not persuade the judge to change his sentence.`\
 https://nytimes.com/2024/05/28/us/nancy-pelosi-david-depape-apology-sentence.html
