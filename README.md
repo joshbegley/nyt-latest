@@ -1,3 +1,7 @@
+**The 15 Most Unforgettable Looks From Cannes**\
+`The festival is over, but the style is here to stay.`\
+https://nytimes.com/2024/05/28/style/the-15-most-unforgettable-looks-from-cannes.html
+
 **Two More ‘Succession’ Actors Are Broadway Bound, in ‘Job’**\
 `Peter Friedman and Sydney Lemmon will star in the two-hander, a psychological thriller that previously found success downtown.`\
 https://nytimes.com/2024/05/28/theater/job-broadway-peter-friedman-sydney-lemmon.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/28/business/columbia-campus-protests-graduation.html
 **More of the Best Books About California**\
 `We’re adding love letters and cautionary tales to our Golden State reading list.`\
 https://nytimes.com/2024/05/28/us/best-books-california.html
-
-**Trump’s Trial Has Entered Its Final Stages. Here’s What Comes Next.**\
-`In the seventh week of trial, closing arguments will be made and the jury will start deliberations.`\
-https://nytimes.com/2024/05/28/nyregion/trump-trial-jury-deliberations.html
 
