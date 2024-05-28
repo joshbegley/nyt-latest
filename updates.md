@@ -1,3 +1,7 @@
+**There’s Nothing Simple or Obvious About Trump’s Trial Defense**\
+`In fact, his legal team’s arguments have always been internally inconsistent.`\
+https://nytimes.com/live/2024/05/21/opinion/thepoint/trump-trial-defense
+
 **Taylor Swift Prevails Over Billie Eilish for a Fifth Week at No. 1**\
 `In a tight battle that had fans hustling to support their favorite star, “The Tortured Poets Department” outsold “Hit Me Hard and Soft.”`\
 https://nytimes.com/2024/05/28/arts/music/taylor-swift-billie-eilish-album-chart.html

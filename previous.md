@@ -1,3 +1,7 @@
+**There’s Nothing Simple or Obvious About Trump’s Trial Defense**\
+`In fact, his legal team’s arguments have always been internally inconsistent.`\
+https://nytimes.com/live/2024/05/21/opinion/thepoint/trump-trial-defense
+
 **Taylor Swift Prevails Over Billie Eilish for a Fifth Week at No. 1**\
 `In a tight battle that had fans hustling to support their favorite star, “The Tortured Poets Department” outsold “Hit Me Hard and Soft.”`\
 https://nytimes.com/2024/05/28/arts/music/taylor-swift-billie-eilish-album-chart.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/28/theater/job-broadway-peter-friedman-sydney-lemmon
 **Lawyers to Plastics Makers: Prepare for ‘Astronomical’ PFAS Lawsuits**\
 `At an industry presentation about dangerous “forever chemicals,” lawyers predicted a wave of lawsuits that could dwarf asbestos litigation, audio from the event revealed.`\
 https://nytimes.com/2024/05/28/climate/pfas-forever-chemicals-industry-lawsuits.html
-
-**More Palestinians were leaving Rafah after ‘a bloody and very difficult night.’**\
-`By Hiba Yazbek`\
-https://nytimes.com/live/2024/05/28/world/israel-gaza-war-hamas-rafah/more-palestinians-were-fleeing-rafah-after-a-bloody-and-very-difficult-night
 
