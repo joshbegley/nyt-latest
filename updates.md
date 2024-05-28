@@ -1,3 +1,7 @@
+**Music’s Most Neglected Day of the Week**\
+`Seven songs for Tuesdays from Stevie Wonder, iLoveMakonnen and more.`\
+https://nytimes.com/2024/05/28/arts/music/amplifier-newsletter-tuesday-songs.html
+
 **The Daily Beast’s New Bosses Plan Buyouts to Cut Losses**\
 `The two leaders have looked for money-saving measures since joining the digital tabloid in April.`\
 https://nytimes.com/2024/05/28/business/media/daily-beast-buyouts.html
