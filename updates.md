@@ -1,3 +1,15 @@
+**Sue Johnson, Psychologist Who Took a Scientific View of Love, Dies at 76**\
+`She believed the bond between adults was as sustaining as that between parent and child, and developed a therapy to strengthen and repair broken relationships.`\
+https://nytimes.com/2024/05/28/health/sue-johnson-dead.html
+
+**What Barack Obama Understood About America**\
+`Our society is losing sight of qualities that kept America strong, like responsibility and civility but also the capacity to feel shame.`\
+https://nytimes.com/2024/05/28/opinion/trump-civility-society.html
+
+**Do We Still Understand How Wars Are Won?**\
+`Israel and Ukraine don’t have the luxury of fighting fecklessly.`\
+https://nytimes.com/2024/05/28/opinion/israel-ukraine-war-us.html
+
 **Michigan Trooper Charged With Murder in Death of Fleeing Man**\
 `Detective Sgt. Brian Keely was charged in the death of Samuel Sterling, who was fatally struck by an unmarked police S.U.V. in suburban Grand Rapids last month.`\
 https://nytimes.com/2024/05/28/us/michigan-trooper-murder.html
