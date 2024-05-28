@@ -1,3 +1,7 @@
+**Bill Walton’s Long, Special Relationship With the Grateful Dead**\
+`“It wasn’t like he was a fan,” the drummer Mickey Hart said. “He was part of our family.”`\
+https://nytimes.com/2024/05/28/arts/music/bill-walton-grateful-dead.html
+
 **At Trump Trial’s Closings, Lawyers Weave Facts Into Clashing Accounts**\
 `A defense lawyer painted Donald J. Trump as the victim of unscrupulous people, but a prosecutor said Mr. Trump had directed a scheme to conceal a hush-money payment.`\
 https://nytimes.com/2024/05/28/nyregion/trump-hush-money-trial-closings.html

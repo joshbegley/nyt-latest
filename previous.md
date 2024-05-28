@@ -1,3 +1,7 @@
+**Bill Walton’s Long, Special Relationship With the Grateful Dead**\
+`“It wasn’t like he was a fan,” the drummer Mickey Hart said. “He was part of our family.”`\
+https://nytimes.com/2024/05/28/arts/music/bill-walton-grateful-dead.html
+
 **At Trump Trial’s Closings, Lawyers Weave Facts Into Clashing Accounts**\
 `A defense lawyer painted Donald J. Trump as the victim of unscrupulous people, but a prosecutor said Mr. Trump had directed a scheme to conceal a hush-money payment.`\
 https://nytimes.com/2024/05/28/nyregion/trump-hush-money-trial-closings.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/28/business/inside-the-nba-tnt-barkley.html
 **On the Dangers of Inflation Brain**\
 `Is the Fed, among others, focused on the wrong problem?`\
 https://nytimes.com/2024/05/28/opinion/inflation-federal-reserve-rates.html
-
-**Marco Rubio Wants to Be Trump’s Vice President. He Doesn’t Want to Audition.**\
-`The last time the Florida senator lived in Donald J. Trump’s orbit he was mocked and defeated. As he returns, he’s trying to do it on his terms.`\
-https://nytimes.com/2024/05/28/us/politics/marco-rubio-trump-vp.html
 
