@@ -1,3 +1,7 @@
+**Blinken Travels to Eastern Europe as Russia Presses War in Ukraine**\
+`Secretary of State Antony J. Blinken aims to show support for Moldova, which is under threat from Russia, and plans to attend a NATO meeting in the Czech Republic.`\
+https://nytimes.com/2024/05/28/us/politics/blinken-russia-czech-republic-moldova.html
+
 **Pope Francis’ Remarkable Act of Contrition**\
 `Even popes are fallible.`\
 https://nytimes.com/live/2024/05/21/opinion/thepoint/pope-francis-gay-slur
