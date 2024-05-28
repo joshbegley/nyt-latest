@@ -1,3 +1,7 @@
+**Netanyahu Is Sorry/Not Sorry for the Killings in Rafah**\
+`The endless apologies for tragic mistakes sound hollow.`\
+https://nytimes.com/live/2024/05/28/opinion/thepoint/israel-rafah-apology
+
 **What Is the ‘Access Hollywood’ Tape, and How Does It Factor Into Trump’s Trial?**\
 `Prosecutors have mentioned the tape at various stages of Donald J. Trump’s criminal trial, including during closing arguments on Tuesday.`\
 https://nytimes.com/2024/05/28/nyregion/access-hollywood-tape-trump-trial.html
@@ -12,7 +16,7 @@ https://nytimes.com/2024/05/28/briefing/trump-trial-closing-arguments-graceland-
 
 **Senators See Possible Conflicts of Interest in Health Care Pricing Tools**\
 `A data analytics firm that helps insurers collect big fees while leaving some patients with unpaid bills has been summoned to explain its business model.`\
-https://nytimes.com/2024/05/28/us/senators-see-possible-conflicts-of-interest-in-health-care-pricing-tools.html
+https://nytimes.com/2024/05/28/us/senate-multiplan-health-care-pricing.html
 
 **Wednesday Briefing: Closing Arguments in Trump’s Criminal Trial**\
 `Plus, South Africa goes to the polls`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/28/business/energy-environment/chevron-hess-exxon-mo
 **Five New Hotels and Spas Built for Bathing**\
 `From southern Japan to the English countryside, these properties put the focus on therapeutic waters.`\
 https://nytimes.com/2024/05/28/t-magazine/hot-spring-thermal-bath-hotel-spa-japan-england-italy.html
-
-**Strike Kills Displaced Gazans in Al-Mawasi, Officials Say**\
-`More than 20 people were killed and dozens more were injured when a strike hit a tent encampment for displaced Palestinians, Gazan officials said.`\
-https://nytimes.com/video/world/middleeast/100000009491181/mawasi-strike-gaza-israel.html
 
