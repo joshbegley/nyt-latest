@@ -1,3 +1,11 @@
+**BuzzFeed Clashes With Vivek Ramaswamy**\
+`The former G.O.P. presidential candidate, who has invested in BuzzFeed, believes the company needs to pivot. He wants to see commentators like Tucker Carlson in its lineup.`\
+https://nytimes.com/2024/05/28/business/media/buzzfeed-vivek-ramaswamy.html
+
+**Throngs Waited Through the Weekend for Courtroom Seats. Few Got Them.**\
+`Most members of the public who tried to see closing arguments in the first trial of an American president walked away disappointed Monday.`\
+https://nytimes.com/2024/05/28/nyregion/courtroom-seats-trump-trial.html
+
 **There’s Nothing Simple or Obvious About Trump’s Trial Defense**\
 `In fact, his legal team’s arguments have always been internally inconsistent.`\
 https://nytimes.com/live/2024/05/21/opinion/thepoint/trump-trial-defense
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/28/dining/say-hello-to-our-summer-100.html
 **The 15 Most Unforgettable Looks From Cannes**\
 `The festival is over, but the style is here to stay.`\
 https://nytimes.com/2024/05/28/style/the-15-most-unforgettable-looks-from-cannes.html
-
-**Two More ‘Succession’ Actors Are Broadway Bound, in ‘Job’**\
-`Peter Friedman and Sydney Lemmon will star in the two-hander, a psychological thriller that previously found success downtown.`\
-https://nytimes.com/2024/05/28/theater/job-broadway-peter-friedman-sydney-lemmon.html
-
-**Lawyers to Plastics Makers: Prepare for ‘Astronomical’ PFAS Lawsuits**\
-`At an industry presentation about dangerous “forever chemicals,” lawyers predicted a wave of lawsuits that could dwarf asbestos litigation, audio from the event revealed.`\
-https://nytimes.com/2024/05/28/climate/pfas-forever-chemicals-industry-lawsuits.html
 

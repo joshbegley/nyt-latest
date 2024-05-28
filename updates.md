@@ -1,3 +1,11 @@
+**BuzzFeed Clashes With Vivek Ramaswamy**\
+`The former G.O.P. presidential candidate, who has invested in BuzzFeed, believes the company needs to pivot. He wants to see commentators like Tucker Carlson in its lineup.`\
+https://nytimes.com/2024/05/28/business/media/buzzfeed-vivek-ramaswamy.html
+
+**Throngs Waited Through the Weekend for Courtroom Seats. Few Got Them.**\
+`Most members of the public who tried to see closing arguments in the first trial of an American president walked away disappointed Monday.`\
+https://nytimes.com/2024/05/28/nyregion/courtroom-seats-trump-trial.html
+
 **Four Inmates Escape Unnoticed From Louisiana Jail Through 8-Inch Gap**\
 `Two of the escapees were back in jail after being found in a dumpster, while two remained at large, officials said. Their escapes went undetected for hours.`\
 https://nytimes.com/2024/05/28/us/louisiana-manhunt-escape-jail.html
