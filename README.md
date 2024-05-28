@@ -1,3 +1,7 @@
+**Word of the Day: amiable**\
+`This word has appeared in 60 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/28/learning/word-of-the-day-amiable.html
+
 **South Africa Is Becoming Something New, and It’s Not Good**\
 `The country is in the midst of another complex transformation.`\
 https://nytimes.com/2024/05/28/opinion/south-africa-election-anc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/27/pageoneplus/quote-of-the-day-manhattanhenge-is-ni
 **Call Me Your Darling Angel**\
 `This Tuesday debut puzzle is full of fun facts.`\
 https://nytimes.com/2024/05/27/crosswords/daily-puzzle-2024-05-28.html
-
-**‘I’ve Never Seen Anything Like It.’ Tornado Devastates Arkansas Town.**\
-`Rogers, Ark., was one of many places hit hard by the rash of storms over Memorial Day weekend across the South.`\
-https://nytimes.com/2024/05/27/us/arkansas-storms-rogers.html
 
