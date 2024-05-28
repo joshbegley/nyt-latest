@@ -1,3 +1,11 @@
+**Democrats Adopt Nomination Plan to Allow Biden on the Ohio Ballot**\
+`Party leaders said they would nominate the president via a virtual roll call of delegates before the national convention, overcoming a glitch that had threatened to keep him off the November ballot.`\
+https://nytimes.com/2024/05/28/us/democrats-biden-ohio-ballot.html
+
+**Harris says deadly airstrike in Rafah is beyond tragic.**\
+`By Zolan Kanno-Youngs and Erica L. Green`\
+https://nytimes.com/live/2024/05/28/world/israel-gaza-war-hamas-rafah/harris-says-deadly-airstrike-in-rafah-is-beyond-tragic
+
 **Tiny Love Stories: ‘Also, He’s a Magician’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/05/28/style/tiny-modern-love-stories-also-hes-a-magician.html
