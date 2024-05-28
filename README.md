@@ -1,3 +1,7 @@
+**South Africa Is Becoming Something New, and It’s Not Good**\
+`The country is in the midst of another complex transformation.`\
+https://nytimes.com/2024/05/28/opinion/south-africa-election-anc.html
+
 **Tuesday Briefing**\
 `We’re covering Israel’s offensive in Rafah and the death toll from the Papua New Guinea landslide.`\
 https://nytimes.com/2024/05/28/briefing/rafah-airstrike-papua-new-guinea-china-clean-energy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/27/crosswords/daily-puzzle-2024-05-28.html
 **‘I’ve Never Seen Anything Like It.’ Tornado Devastates Arkansas Town.**\
 `Rogers, Ark., was one of many places hit hard by the rash of storms over Memorial Day weekend across the South.`\
 https://nytimes.com/2024/05/27/us/arkansas-storms-rogers.html
-
-**Trump Lawyers Assail Limited Gag Order Request in Documents Case**\
-`The latest battle over what the former president can say about a continuing legal case came after he falsely suggested that F.B.I. agents were authorized to shoot him when they searched Mar-a-Lago.`\
-https://nytimes.com/2024/05/27/nyregion/trump-documents-jack-smith-gag-order.html
 
