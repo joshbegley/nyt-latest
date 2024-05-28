@@ -1,3 +1,7 @@
+**Top FTX Executive Sentenced to Seven and a Half Years in Prison**\
+`Ryan Salame, the head of FTX’s subsidiary in the Bahamas, was the first of Sam Bankman-Fried’s deputies to be sentenced since the crypto exchange collapsed in November 2022.`\
+https://nytimes.com/2024/05/28/technology/ryan-salame-ftx-executive-sentenced.html
+
 **If Trump Is Convicted, How Will Biden’s Team Go on the Attack?**\
 `A guilty verdict in New York would be a gift for Democrats — but if it comes, the Biden campaign is unlikely to tear up its 2024 playbook.`\
 https://nytimes.com/2024/05/28/us/politics/trump-convicted-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/21/opinion/thepoint/trump-trial-defense
 **Taylor Swift Prevails Over Billie Eilish for a Fifth Week at No. 1**\
 `In a tight battle that had fans hustling to support their favorite star, “The Tortured Poets Department” outsold “Hit Me Hard and Soft.”`\
 https://nytimes.com/2024/05/28/arts/music/taylor-swift-billie-eilish-album-chart.html
-
-**Four Inmates Escape Unnoticed From Louisiana Jail Through 8-Inch Gap**\
-`Two of the escapees were back in jail after being found in a dumpster, while two remained at large, officials said. Their escapes went undetected for hours.`\
-https://nytimes.com/2024/05/28/us/louisiana-manhunt-escape-jail.html
 
