@@ -1,3 +1,7 @@
+**Trump’s Trial Has Entered Its Final Stages. Here’s What Comes Next.**\
+`In the seventh week of trial, closing arguments will be made and the jury will start deliberations.`\
+https://nytimes.com/2024/05/28/nyregion/trump-trial-jury-deliberations.html
+
 **Live Updates: Closing Arguments to Begin in Trump Criminal Trial**\
 `Donald J. Trump faces 34 felony counts of falsifying business records in connection with a hush-money payment made to a porn star before the 2016 election. The case could be in the jury’s hands as early as Wednesday.`\
 https://nytimes.com/live/2024/05/28/nyregion/trump-trial-closing-arguments
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/28/world/asia/taiwan-protest-fight.html
 **What We Know About the Papua New Guinea Landslide**\
 `Nearly five days after the disaster hit a remote section of the country, officials have started evacuating residents. But the scale of the death toll remains uncertain.`\
 https://nytimes.com/2024/05/28/world/asia/papua-new-guinea-landslide.html
-
-**The Alitos and Their Flags**\
-`The saga of a Supreme Court justice, his wife and two symbols adopted by people campaigning to overturn the result of the 2020 election.`\
-https://nytimes.com/2024/05/28/podcasts/the-daily/the-alitos-and-their-flags.html
 

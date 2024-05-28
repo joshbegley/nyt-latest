@@ -1,3 +1,7 @@
+**Trump’s Trial Has Entered Its Final Stages. Here’s What Comes Next.**\
+`In the seventh week of trial, closing arguments will be made and the jury will start deliberations.`\
+https://nytimes.com/2024/05/28/nyregion/trump-trial-jury-deliberations.html
+
 **Live Updates: Closing Arguments to Begin in Trump Criminal Trial**\
 `Donald J. Trump faces 34 felony counts of falsifying business records in connection with a hush-money payment made to a porn star before the 2016 election. The case could be in the jury’s hands as early as Wednesday.`\
 https://nytimes.com/live/2024/05/28/nyregion/trump-trial-closing-arguments
