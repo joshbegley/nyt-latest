@@ -1,5 +1,5 @@
 **BuzzFeed Clashes With Vivek Ramaswamy**\
-`The former G.O.P. presidential candidate, who has invested in BuzzFeed, believes the company needs to pivot. He wants to see commentators like Tucker Carlson on its staff.`\
+`The former G.O.P. presidential candidate, who has invested in BuzzFeed, believes the company needs to pivot. He wants to see commentators like Tucker Carlson in its lineup.`\
 https://nytimes.com/2024/05/28/business/media/buzzfeed-vivek-ramaswamy.html
 
 **Throngs Waited Through the Weekend for Courtroom Seats. Few Got Them.**\
