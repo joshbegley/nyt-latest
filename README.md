@@ -1,3 +1,7 @@
+**Do You Know the Manhattan Locations of These Children’s Books?**\
+`This urban island is home to a huge number of popular books for younger readers. Try this short quiz to see how many you recognize.`\
+https://nytimes.com/interactive/2024/05/28/books/review/nyc-kids-quiz.html
+
 **Big Oil’s Winning Streak Forces Activist Investors to Regroup**\
 `Climate-focused shareholders are rethinking their tactics ahead of this week’s annual meetings at Exxon Mobil and Chevron.`\
 https://nytimes.com/2024/05/28/business/dealbook/oil-chevron-exxon-activist-investors.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/28/technology/openai-gpt4-new-model.html
 **Today’s Wordle Review No. 1,075, May 29, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/05/28/crosswords/wordle-review-1075.html
-
-**The previously announced moves serve as a rebuke to Israel.**\
-`By Cassandra Vinograd`\
-https://nytimes.com/live/2024/05/28/world/israel-gaza-war-hamas-rafah/the-previously-announced-moves-serve-as-a-rebuke-to-israel
 
