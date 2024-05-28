@@ -1,4 +1,4 @@
-**Wu-Tang Clan’s Rare Album to Be Played at Exhibit in Tasmania**\
+**Rare Wu-Tang Clan Album to Be Played at Exhibit in Tasmania**\
 `The sole known copy of the album “Once Upon a Time in Shaolin” was not to be heard by the public until 2103. Some fans will be able to hear a selection of the 31 tracks at a museum in Hobart, Tasmania.`\
 https://nytimes.com/2024/05/28/arts/music/wutang-shaolin-tasmania-exhibit.html
 
