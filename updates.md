@@ -1,3 +1,7 @@
+**Live Updates: Defense Begins Closing Arguments in Trump’s Criminal Trial**\
+`Donald J. Trump faces 34 felony counts of falsifying business records in connection with a hush-money payment to a porn star before the 2016 election. The case could be in the jury’s hands by Wednesday.`\
+https://nytimes.com/live/2024/05/28/nyregion/trump-trial-closing-arguments
+
 **Adam Neumann Gives Up on Buying Back WeWork**\
 `The co-founder of the shared-office company, who stepped down under pressure before the firm went bankrupt, announced an audacious takeover bid earlier this year.`\
 https://nytimes.com/2024/05/28/business/dealbook/adam-neumann-wework.html

@@ -18,8 +18,8 @@ https://nytimes.com/2024/05/28/us/best-books-california.html
 `In the seventh week of trial, closing arguments will be made and the jury will start deliberations.`\
 https://nytimes.com/2024/05/28/nyregion/trump-trial-jury-deliberations.html
 
-**Live Updates: Closing Arguments to Begin in Trump Criminal Trial**\
-`Donald J. Trump faces 34 felony counts of falsifying business records in connection with a hush-money payment made to a porn star before the 2016 election. The case could be in the jury’s hands as early as Wednesday.`\
+**Live Updates: Defense Begins Closing Arguments in Trump’s Criminal Trial**\
+`Donald J. Trump faces 34 felony counts of falsifying business records in connection with a hush-money payment to a porn star before the 2016 election. The case could be in the jury’s hands by Wednesday.`\
 https://nytimes.com/live/2024/05/28/nyregion/trump-trial-closing-arguments
 
 **The Israeli military said it was engaging in ‘close-quarters combat.’**\
