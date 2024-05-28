@@ -1,3 +1,15 @@
+**Closing Arguments Are Coming in Trump’s Trial. Here’s How They Work.**\
+`Each side will have an opportunity to summarize its case before the jury begins to deliberate.`\
+https://nytimes.com/2024/05/28/nyregion/what-are-closing-arguments.html
+
+**A Final Graduation Requirement: Making Sense of Protest**\
+`As students in Columbia’s class of 2024 received their diplomas, many of them were grappling with what intense activism on campus would mean to their futures.`\
+https://nytimes.com/2024/05/28/business/columbia-campus-protests-graduation.html
+
+**More of the Best Books About California**\
+`We’re adding love letters and cautionary tales to our Golden State reading list.`\
+https://nytimes.com/2024/05/28/us/best-books-california.html
+
 **Trump’s Trial Has Entered Its Final Stages. Here’s What Comes Next.**\
 `In the seventh week of trial, closing arguments will be made and the jury will start deliberations.`\
 https://nytimes.com/2024/05/28/nyregion/trump-trial-jury-deliberations.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/28/world/europe/ukraine-weapons-russia.html
 **The Connections Companion No. 353, May 29, 2024**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/05/28/crosswords/connections-companion-353.html
-
-**China’s Role in Ukraine**\
-`Russia has been able to keep paying for the war, despite sanctions. How? U.S. officials point to Beijing.`\
-https://nytimes.com/2024/05/28/briefing/china-russia-ukraine-war-sanctions.html
-
-**Why Lawmakers Are Brawling and People Are Protesting in Taiwan**\
-`Supporters of President Lai Ching-te are protesting legislative amendments introduced by the opposition that would limit his authority.`\
-https://nytimes.com/2024/05/28/world/asia/taiwan-protest-fight.html
-
-**What We Know About the Papua New Guinea Landslide**\
-`Nearly five days after the disaster hit a remote section of the country, officials have started evacuating residents. But the scale of the death toll remains uncertain.`\
-https://nytimes.com/2024/05/28/world/asia/papua-new-guinea-landslide.html
 
