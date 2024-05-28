@@ -1,3 +1,7 @@
+**Call Me Your Darling Angel**\
+`This Tuesday debut puzzle is full of fun facts.`\
+https://nytimes.com/2024/05/27/crosswords/daily-puzzle-2024-05-28.html
+
 **‘I’ve Never Seen Anything Like It.’ Tornado Devastates Arkansas Town.**\
 `Rogers, Ark., was one of many places hit hard by the rash of storms over Memorial Day weekend across the South.`\
 https://nytimes.com/2024/05/27/us/arkansas-storms-rogers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/27/sports/basketball/bill-walton-dead.html
 **Tuesday Briefing: Netanyahu Calls Rafah Deaths a ‘Tragic Accident’**\
 `Plus, the toll from the Papua New Guinea landslide`\
 https://nytimes.com/2024/05/27/briefing/rafah-strike-landslide.html
-
-**‘General Hospital’ Actor Reported Killed in Shooting in Los Angeles**\
-`Johnny Wactor was fatally shot when he interrupted a person who was stealing his vehicle’s catalytic converter, his mother told a news outlet.`\
-https://nytimes.com/2024/05/27/us/johnny-wactor-killed-la-car-theft.html
 
