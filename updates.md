@@ -1,3 +1,9 @@
+**The previously announced moves serve as a rebuke to Israel.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/05/28/world/israel-gaza-war-hamas-rafah/the-previously-announced-moves-serve-as-a-rebuke-to-israel
+
+**The U.N. says about 1 million people have fled Rafah, and other news.**\
+
 **Trump Leans Into an Outlaw Image as His Criminal Trial Concludes**\
 `Preparing for a potential verdict in Manhattan, the former president has increasingly aligned himself with fellow defendants and people convicted of crimes.`\
 https://nytimes.com/2024/05/28/us/politics/trump-criminals.html
