@@ -1,3 +1,7 @@
+**Climate Change Added a Month’s Worth of Extra-Hot Days in Past Year**\
+`Since last May, the average person experienced 26 more days of abnormal warmth than they would have without global warming, a new analysis found.`\
+https://nytimes.com/2024/05/28/climate/extreme-heat-worldwide.html
+
 **Cyclone Remal Tears Through India and Bangladesh, Killing at Least 23**\
 `The storm, the first of the season, hit the South Asian countries after weeks of intense heat. Millions were left without power.`\
 https://nytimes.com/2024/05/28/world/asia/cyclone-remal-bangladesh-india.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/28/opinion/south-africa-election-anc.html
 **Tuesday Briefing**\
 `We’re covering Israel’s offensive in Rafah and the death toll from the Papua New Guinea landslide.`\
 https://nytimes.com/2024/05/28/briefing/rafah-airstrike-papua-new-guinea-china-clean-energy.html
-
-**London Moves to Revive Its Reputation as a Financial Hub**\
-`As fears have grown that the city is losing its attractiveness for publicly traded businesses, Britain’s government is making changes to bring them back.`\
-https://nytimes.com/2024/05/28/business/london-financial-center-ipo-europe.html
 
