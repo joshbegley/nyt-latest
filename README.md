@@ -1,5 +1,9 @@
+**State Senator Opposes Casino Proposal in Queens, Rebuffing Mets Owner**\
+`Jessica Ramos, a state senator from Queens who is considering a run for mayor, moved to stop a proposal from Steven Cohen, the billionaire owner of the New York Mets.`\
+https://nytimes.com/2024/05/28/nyregion/jessica-ramos-cohen-casino.html
+
 **The ‘Home Alone’ House Is for Sale (Booby Traps Not Included)**\
-`The house in Winnetka, Ill., where Kevin McCallister battled two hapless burglars in the 1990 film, is on the market for the first time in more than a decade. List price: $5.25 million.`\
+`The house in Winnetka, Ill., where Kevin McCallister battled two hapless burglars in the 1990 film is on the market for the first time in more than a decade. List price: $5.25 million.`\
 https://nytimes.com/2024/05/28/realestate/luxury/home-alone-house-for-sale.html
 
 **‘He Will Never Leave,’ Robert De Niro Warns of Second Trump Term**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/28/nyregion/flaco-owl-natural-history-museum.html
 **Trump’s ‘Dystopian Deportation Scheme’**\
 `Readers discuss two opinion pieces about Donald Trump’s plans if elected. Also: Gaza’s ruined hospitals; Florida’s climate law; a G.O.P. double standard; pregnancy calories.`\
 https://nytimes.com/2024/05/28/opinion/donald-trump-deportation.html
-
-**Need a Refresher on Trump’s Criminal Trial? Catch Up Here.**\
-`Donald J. Trump has been charged with 34 felony counts in the first criminal case against an American president. Defense lawyers and prosecutors are making their closing arguments on Tuesday.`\
-https://nytimes.com/2024/05/28/nyregion/trump-criminal-trial-hush-money.html
 
