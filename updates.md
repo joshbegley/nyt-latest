@@ -1,3 +1,11 @@
+**Man Charged With Hate Crimes in New York City Street Attacks**\
+`Skiboky Stora, 40, is accused of targeting people he believed were white, female or Jewish. He was arrested in March after one of his alleged victims shared her story on TikTok.`\
+https://nytimes.com/2024/05/28/nyregion/skibody-stora-hate-crimes-random-attacks.html
+
+**U.S. Pier for Gaza Aid Damaged by Rough Seas**\
+`Army engineers are working to put the pier back together, and Defense Department officials hope it will be operational again in about a week.`\
+https://nytimes.com/2024/05/28/us/politics/gaza-pier-damaged.html
+
 **Pope Francis’ Remarkable Act of Contrition**\
 `Even popes are fallible.`\
 https://nytimes.com/live/2024/05/28/opinion/thepoint/pope-francis-gay-slur

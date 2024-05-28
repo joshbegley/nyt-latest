@@ -1,3 +1,11 @@
+**Man Charged With Hate Crimes in New York City Street Attacks**\
+`Skiboky Stora, 40, is accused of targeting people he believed were white, female or Jewish. He was arrested in March after one of his alleged victims shared her story on TikTok.`\
+https://nytimes.com/2024/05/28/nyregion/skibody-stora-hate-crimes-random-attacks.html
+
+**U.S. Pier for Gaza Aid Damaged by Rough Seas**\
+`Army engineers are working to put the pier back together, and Defense Department officials hope it will be operational again in about a week.`\
+https://nytimes.com/2024/05/28/us/politics/gaza-pier-damaged.html
+
 **Rare Wu-Tang Clan Album to Be Played at Exhibit in Tasmania**\
 `The sole known copy of the album “Once Upon a Time in Shaolin” was not to be heard by the public until 2103. Some fans will be able to hear a selection of the 31 tracks at a museum in Hobart, Tasmania.`\
 https://nytimes.com/2024/05/28/arts/music/wutang-shaolin-tasmania-exhibit.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/28/us/politics/marco-rubio-trump-vp.html
 **Biden Moves to Open U.S. Banks to Cuba’s Private Sector**\
 `The rules will allow Cuban entrepreneurs to open bank accounts in the United States, making it easier for them to expand and encouraging other Cubans to start businesses.`\
 https://nytimes.com/2024/05/28/world/americas/biden-us-banks-cuba.html
-
-**Harvard Says It Will No Longer Take Positions on Matters Outside of the University**\
-`The policy could ease pressure on the school to issue statements on current events. Officials were criticized for their handling of the Oct. 7 Hamas attacks.`\
-https://nytimes.com/2024/05/28/us/harvard-university-statements-empathy.html
-
-**The Trump Team’s Inept Closing Argument Blew Up**\
-`The judge excoriated the team for implying that the jury has anything to do with Trump’s incarceration.`\
-https://nytimes.com/live/2024/05/28/opinion/thepoint/trump-defense-closing-argument
 
