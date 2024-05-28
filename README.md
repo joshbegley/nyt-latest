@@ -1,3 +1,7 @@
+**Quote of the Day: Manhattanhenge Is Nigh, So Get the Camera Ready and Watch Out for Traffic**\
+`Quotation of the Day for Tuesday, May 28, 2024.`\
+https://nytimes.com/2024/05/27/pageoneplus/quote-of-the-day-manhattanhenge-is-nigh-so-get-the-camera-ready-and-watch-out-for-traffic.html
+
 **Call Me Your Darling Angel**\
 `This Tuesday debut puzzle is full of fun facts.`\
 https://nytimes.com/2024/05/27/crosswords/daily-puzzle-2024-05-28.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/27/business/stanley-goldstein-dead.html
 **Bill Walton, N.B.A. Hall of Famer and Broadcasting Star, Dies at 71**\
 `He won championships in high school, college (U.C.L.A.) and the pros (Trail Blazers and Celtics) before turning to TV as a talkative game analyst in the college ranks.`\
 https://nytimes.com/2024/05/27/sports/basketball/bill-walton-dead.html
-
-**Tuesday Briefing: Netanyahu Calls Rafah Deaths a ‘Tragic Accident’**\
-`Plus, the toll from the Papua New Guinea landslide`\
-https://nytimes.com/2024/05/27/briefing/rafah-strike-landslide.html
 
