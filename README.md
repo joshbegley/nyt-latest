@@ -1,3 +1,11 @@
+**Missed Trump’s Criminal Trial? Catch Up Here.**\
+`Donald J. Trump has been charged with 34 felony counts in the first criminal case against an American president. Defense lawyers and prosecutors are making their closing arguments on Tuesday.`\
+https://nytimes.com/2024/05/28/nyregion/trump-criminal-trial-hush-money.html
+
+**Is Shrimp Good for You?**\
+`Americans love their prawns. So how healthy are they — for us and for the planet?`\
+https://nytimes.com/2024/05/28/well/eat/shrimp-prawns-health-risks-benefits.html
+
 **BuzzFeed Clashes With Vivek Ramaswamy**\
 `The former G.O.P. presidential candidate, who has invested in BuzzFeed, believes the company needs to pivot. He wants to see commentators like Tucker Carlson in its lineup.`\
 https://nytimes.com/2024/05/28/business/media/buzzfeed-vivek-ramaswamy.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/28/nyregion/robert-de-niro-trump-biden-campaign.html
 **I.R.S. Failed to Police Puerto Rico Tax Break, Whistle-Blower Says**\
 `An insider accused the agency of failing to scrutinize a lucrative tax break in Puerto Rico designed to lure wealthy Americans to the island.`\
 https://nytimes.com/2024/05/28/business/irs-puerto-rico-tax.html
-
-**Say Hello to Our Summer 100**\
-`The 100 recipes (shrimp scampi with tomatoes and corn, watermelon chaat, perfect peach cobbler) to cook on repeat all summer.`\
-https://nytimes.com/2024/05/28/dining/say-hello-to-our-summer-100.html
-
-**The 15 Most Unforgettable Looks From Cannes**\
-`The festival is over, but the style is here to stay.`\
-https://nytimes.com/2024/05/28/style/the-15-most-unforgettable-looks-from-cannes.html
 
