@@ -1,3 +1,11 @@
+**Pope Francis’ Remarkable Act of Contrition**\
+`Even popes are fallible.`\
+https://nytimes.com/live/2024/05/21/opinion/thepoint/pope-francis-gay-slur
+
+**Its Future in Doubt, the Freewheeling ‘Inside the NBA’ Is on Edge Instead**\
+`Next season could be the last for TNT’s influential and beloved studio show, and Charles Barkley, for one, will not be going quietly.`\
+https://nytimes.com/2024/05/28/business/inside-the-nba-tnt-barkley.html
+
 **On the Dangers of Inflation Brain**\
 `Is the Fed, among others, focused on the wrong problem?`\
 https://nytimes.com/2024/05/28/opinion/inflation-federal-reserve-rates.html
