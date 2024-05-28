@@ -1,3 +1,7 @@
+**Trump Lawyers Assail Limited Gag Order Request in Documents Case**\
+`The latest battle over what the former president can say about a continuing legal case came after he falsely suggested that F.B.I. agents were authorized to shoot him when they searched Mar-a-Lago.`\
+https://nytimes.com/2024/05/27/nyregion/trump-documents-jack-smith-gag-order.html
+
 **Bill Walton, N.B.A. Hall of Famer and Broadcasting Star, Dies at 71**\
 `He won championships in high school, college (U.C.L.A.) and the pros (Trail Blazers and Celtics) before turning to TV as a talkative game analyst in the college ranks.`\
 https://nytimes.com/2024/05/27/sports/basketball/bill-walton-dead.html
