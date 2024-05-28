@@ -1,3 +1,7 @@
+**Israel had not ordered Palestinians to leave the area it struck on Sunday.**\
+`By Lauren Leatherby`\
+https://nytimes.com/live/2024/05/28/world/israel-gaza-war-hamas-rafah/israel-had-not-ordered-palestinians-to-leave-the-area-it-struck-on-sunday
+
 **What Donald Trump’s Lawyer Said in His Closing Argument**\
 `The former president was taken advantage of by liars, his lawyer, Todd Blanche, said while arguing that he should be found not guilty of the 34 felonies he is charged with.`\
 https://nytimes.com/2024/05/28/nyregion/closing-argument-trump-lawyer.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/28/opinion/university-statements-harvard-kalven.html
 **Who Plotted to Sell Graceland? An Identity Thief Raises His Hand.**\
 `A person using an email for the company seeking to foreclose on the former home of Elvis Presley says his ring was behind the threat to sell the beloved landmark.`\
 https://nytimes.com/2024/05/28/arts/music/graceland-fraud-identity-thief-emails.html
-
-**Top FTX Executive Sentenced to Seven and a Half Years in Prison**\
-`Ryan Salame, the head of FTX’s subsidiary in the Bahamas, was the first of Sam Bankman-Fried’s deputies to be sentenced since the crypto exchange collapsed in November 2022.`\
-https://nytimes.com/2024/05/28/technology/ryan-salame-ftx-executive-sentenced.html
 
