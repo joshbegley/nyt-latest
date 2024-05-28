@@ -1,3 +1,7 @@
+**Taylor Swift Prevails Over Billie Eilish for a Fifth Week at No. 1**\
+`In a tight battle that had fans hustling to support their favorite star, “The Tortured Poets Department” outsold “Hit Me Hard and Soft.”`\
+https://nytimes.com/2024/05/28/arts/music/taylor-swift-billie-eilish-album-chart.html
+
 **Understaffing and an 8-Inch Gap Helped Four Louisiana Inmates Escape**\
 `Two of the escapees were back in jail after being found in a dumpster, while the others remained at large, officials said.`\
 https://nytimes.com/2024/05/28/us/louisiana-manhunt-escape-jail.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/28/climate/pfas-forever-chemicals-industry-lawsuits.
 **More Palestinians were leaving Rafah after ‘a bloody and very difficult night.’**\
 `By Hiba Yazbek`\
 https://nytimes.com/live/2024/05/28/world/israel-gaza-war-hamas-rafah/more-palestinians-were-fleeing-rafah-after-a-bloody-and-very-difficult-night
-
-**Pope Issues Apology After Reports That He Used Offensive Slang Word**\
-`Francis’ remark, referring to gay men, came during what was supposed to be a closed-door meeting with Italian bishops last week.`\
-https://nytimes.com/2024/05/28/world/europe/pope-apology-slang-gay-men.html
 
