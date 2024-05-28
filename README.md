@@ -1,3 +1,7 @@
+**Music’s Most Neglected Day of the Week**\
+`Seven songs for Tuesdays from Stevie Wonder, iLoveMakonnen and more.`\
+https://nytimes.com/2024/05/28/arts/music/amplifier-newsletter-tuesday-songs.html
+
 **What to Watch in the Texas Runoff Elections**\
 `Representative Tony Gonzales is facing a challenge from a gun rights activist, and voters will decide which Republican will face Representative Henry Cuellar this fall.`\
 https://nytimes.com/2024/05/28/us/politics/texas-runoff-elections.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/28/realestate/luxury/home-alone-house-for-sale.html
 **‘He Will Never Leave,’ Robert De Niro Warns of Second Trump Term**\
 `Robert De Niro spoke on behalf of the Biden campaign outside the New York City courthouse where Donald J. Trump’s criminal trial is being held.`\
 https://nytimes.com/video/us/elections/100000009490899/robert-de-niro-trump-threat.html
-
-**Forgione Brings Its Rustic Charm to the Former Danube Space**\
-`Little Banchan Shop opens on Pier 57, Asia Shabazz is the new executive chef at Contento and more restaurant news.`\
-https://nytimes.com/2024/05/28/dining/nyc-restaurant-news.html
 
