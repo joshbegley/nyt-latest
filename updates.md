@@ -1,3 +1,11 @@
+**Michigan Trooper Charged With Murder in Death of Fleeing Man**\
+`Detective Sgt. Brian Keely was charged in the death of Samuel Sterling, who was fatally struck by an unmarked police S.U.V. in suburban Grand Rapids last month.`\
+https://nytimes.com/2024/05/28/us/michigan-trooper-murder.html
+
+**The Alitos, the Neighborhood Clash and the Upside-Down Flag**\
+`Inside the escalating conflict on a bucolic suburban street that Justice Alito said prompted a “Stop the Steal” symbol at his home.`\
+https://nytimes.com/2024/05/28/us/justice-alito-neighbors-stop-steal-flag.html
+
 **Netanyahu Is Sorry/Not Sorry for the Killings in Rafah**\
 `The endless apologies for tragic mistakes sound hollow.`\
 https://nytimes.com/live/2024/05/28/opinion/thepoint/israel-rafah-apology
