@@ -1,3 +1,7 @@
+**Wednesday Briefing: Closing Arguments in Trump’s Criminal Trial**\
+`Plus, South Africa goes to the polls`\
+https://nytimes.com/2024/05/28/briefing/trump-trial-rafah.html
+
 **Stream These 12 Movies and Shows Before They Leave Netflix in June**\
 `Mark Wahlberg and Reese Witherspoon when they were kids-ish, Clint Eastwood as a drug mule on the other side of life, and Meryl Streep in “Out of Africa.”`\
 https://nytimes.com/2024/05/28/movies/netflix-leaving-june.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/28/nyregion/skibody-stora-hate-crimes-random-attacks
 **U.S. Pier for Gaza Aid Damaged by Rough Seas**\
 `Army engineers are working to put the pier back together, and Defense Department officials hope it will be operational again in about a week.`\
 https://nytimes.com/2024/05/28/us/politics/gaza-pier-damaged.html
-
-**Rare Wu-Tang Clan Album to Be Played at Exhibit in Tasmania**\
-`The sole known copy of the album “Once Upon a Time in Shaolin” was not to be heard by the public until 2103. Some fans will be able to hear a selection of the 31 tracks at a museum in Hobart, Tasmania.`\
-https://nytimes.com/2024/05/28/arts/music/wutang-shaolin-tasmania-exhibit.html
 
