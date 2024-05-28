@@ -1,3 +1,11 @@
+**Israel Pushes Into Rafah as Displaced Palestinians Search for Safety**\
+`The Israeli military said it had deployed additional combat troops to the southern Gaza Strip, even as a growing chorus of voices demand an end to the fighting.`\
+https://nytimes.com/2024/05/28/world/middleeast/gaza-war-rafah.html
+
+**Gas Explosion Rips Facade Off Ohio Building, Injuring at Least 7**\
+`One person was in critical condition at a hospital after the midafternoon episode in Youngstown.`\
+https://nytimes.com/2024/05/28/us/gas-explosion-youngstown-ohio.html
+
 **Health Officials Tried to Evade Public Records Laws, Lawmakers Say**\
 `N.I.H. officials suggested federal record keepers helped them hide emails. If so, “that’s really damaging to trust in all of government,” one expert said.`\
 https://nytimes.com/2024/05/28/health/nih-officials-foia-hidden-emails-covid.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/05/28/opinion/thepoint/israel-rafah-apology
 **What Is the ‘Access Hollywood’ Tape, and How Does It Factor Into Trump’s Trial?**\
 `Prosecutors have mentioned the tape at various stages of Donald J. Trump’s criminal trial, including during closing arguments on Tuesday.`\
 https://nytimes.com/2024/05/28/nyregion/access-hollywood-tape-trump-trial.html
-
-**R.F.K. Jr. Denounces the Removal of Confederate Statues**\
-`The independent presidential candidate Robert F. Kennedy Jr. said on a recent podcast that he had a “visceral reaction” to the removal of statues glorifying Confederate leaders.`\
-https://nytimes.com/2024/05/28/us/politics/rfk-jr-confederate-statues-removal.html
-
-**Both Sides Delivered Closing Arguments at Trump’s Trial**\
-`Also, Israel pushed on in Rafah. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2024/05/28/briefing/trump-trial-closing-arguments-graceland-sale.html
 
