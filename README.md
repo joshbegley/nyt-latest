@@ -1,3 +1,7 @@
+**Pope Francis’ Remarkable Act of Contrition**\
+`Even popes are fallible.`\
+https://nytimes.com/live/2024/05/21/opinion/thepoint/pope-francis-gay-slur
+
 **Its Future in Doubt, the Freewheeling ‘Inside the NBA’ Is on Edge Instead**\
 `Next season could be the last for TNT’s influential and beloved studio show, and Charles Barkley, for one, will not be going quietly.`\
 https://nytimes.com/2024/05/28/business/inside-the-nba-tnt-barkley.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/28/us/democrats-biden-ohio-ballot.html
 **Harris says deadly airstrike in Rafah is beyond tragic.**\
 `By Zolan Kanno-Youngs and Erica L. Green`\
 https://nytimes.com/live/2024/05/28/world/israel-gaza-war-hamas-rafah/harris-says-deadly-airstrike-in-rafah-is-beyond-tragic
-
-**Tiny Love Stories: ‘Also, He’s a Magician’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2024/05/28/style/tiny-modern-love-stories-also-hes-a-magician.html
 
