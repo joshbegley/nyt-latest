@@ -1,3 +1,7 @@
+**Gaza’s Historic Heart, Now in Ruins**\
+`The Great Omari Mosque, built on an ancient holy site, is one of the many treasured landmarks damaged in Israel’s military offensive.`\
+https://nytimes.com/interactive/2024/05/28/arts/gaza-omari-mosque.html
+
 **Blinken Travels to Eastern Europe as Russia Presses War in Ukraine**\
 `Secretary of State Antony J. Blinken aims to show support for Moldova, which is under threat from Russia, and plans to attend a NATO meeting in the Czech Republic.`\
 https://nytimes.com/2024/05/28/us/politics/blinken-russia-czech-republic-moldova.html

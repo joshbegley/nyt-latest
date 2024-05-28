@@ -1,3 +1,7 @@
+**Gaza’s Historic Heart, Now in Ruins**\
+`The Great Omari Mosque, built on an ancient holy site, is one of the many treasured landmarks damaged in Israel’s military offensive.`\
+https://nytimes.com/interactive/2024/05/28/arts/gaza-omari-mosque.html
+
 **Blinken Travels to Eastern Europe as Russia Presses War in Ukraine**\
 `Secretary of State Antony J. Blinken aims to show support for Moldova, which is under threat from Russia, and plans to attend a NATO meeting in the Czech Republic.`\
 https://nytimes.com/2024/05/28/us/politics/blinken-russia-czech-republic-moldova.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/21/opinion/thepoint/trump-defense-closing-argum
 **How to Fix Carbon Offsets**\
 `Carbon offsets have been heavily criticized as greenwashing, but they have a hidden benefit: getting crucial climate funds to developing nations.`\
 https://nytimes.com/2024/05/28/climate/how-to-fix-carbon-offsets.html
-
-**Democrats Adopt Nomination Plan to Allow Biden on the Ohio Ballot**\
-`Party leaders said they would nominate the president via a virtual roll call of delegates before the national convention, overcoming a glitch that had threatened to keep him off the November ballot.`\
-https://nytimes.com/2024/05/28/us/democrats-biden-ohio-ballot.html
 
