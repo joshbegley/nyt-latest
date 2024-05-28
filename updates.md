@@ -1,3 +1,15 @@
+**Understaffing and an 8-Inch Gap Helped Four Louisiana Inmates Escape**\
+`Two of the escapees were back in jail after being found in a dumpster, while the others remained at large, officials said.`\
+https://nytimes.com/2024/05/28/us/louisiana-manhunt-escape-jail.html
+
+**Georgia’s Ruling Party Secures a Contentious Foreign-Agent Law**\
+`The Parliament, controlled by the Georgian Dream party, overrode a presidential veto of a bill critics say could undermine the country’s efforts to join the European Union.`\
+https://nytimes.com/2024/05/28/world/europe/georgia-foreign-agents-law-passes.html
+
+**Biden’s Campaign Trolls Trump Outside the Courthouse, in a First**\
+`Holding a news conference with Robert De Niro and two former Capitol Police officers, the Biden campaign signaled it was growing more assertive on Donald Trump’s legal troubles.`\
+https://nytimes.com/2024/05/28/nyregion/robert-de-niro-trump-biden-campaign.html
+
 **I.R.S. Failed to Police Puerto Rico Tax Break, Whistle-Blower Says**\
 `An insider accused the agency of failing to scrutinize a lucrative tax break in Puerto Rico designed to lure wealthy Americans to the island.`\
 https://nytimes.com/2024/05/28/business/irs-puerto-rico-tax.html

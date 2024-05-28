@@ -1,3 +1,15 @@
+**Understaffing and an 8-Inch Gap Helped Four Louisiana Inmates Escape**\
+`Two of the escapees were back in jail after being found in a dumpster, while the others remained at large, officials said.`\
+https://nytimes.com/2024/05/28/us/louisiana-manhunt-escape-jail.html
+
+**Georgia’s Ruling Party Secures a Contentious Foreign-Agent Law**\
+`The Parliament, controlled by the Georgian Dream party, overrode a presidential veto of a bill critics say could undermine the country’s efforts to join the European Union.`\
+https://nytimes.com/2024/05/28/world/europe/georgia-foreign-agents-law-passes.html
+
+**Biden’s Campaign Trolls Trump Outside the Courthouse, in a First**\
+`Holding a news conference with Robert De Niro and two former Capitol Police officers, the Biden campaign signaled it was growing more assertive on Donald Trump’s legal troubles.`\
+https://nytimes.com/2024/05/28/nyregion/robert-de-niro-trump-biden-campaign.html
+
 **I.R.S. Failed to Police Puerto Rico Tax Break, Whistle-Blower Says**\
 `An insider accused the agency of failing to scrutinize a lucrative tax break in Puerto Rico designed to lure wealthy Americans to the island.`\
 https://nytimes.com/2024/05/28/business/irs-puerto-rico-tax.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/05/28/world/israel-gaza-war-hamas-rafah/more-pales
 **Pope Issues Apology After Reports That He Used Offensive Slang Word**\
 `Francis’ remark, referring to gay men, came during what was supposed to be a closed-door meeting with Italian bishops last week.`\
 https://nytimes.com/2024/05/28/world/europe/pope-apology-slang-gay-men.html
-
-**When Roller-Skating Nuns Came to the Opera House**\
-`The choreographer Florentina Holzinger’s shows feature circus performers and abundant nudity. Now, she’s bringing her experimental approach to opera.`\
-https://nytimes.com/2024/05/28/arts/music/florentina-holzinger-sancta.html
-
-**Adam Neumann Gives Up on Buying Back WeWork**\
-`The co-founder of the shared-office company, who stepped down under pressure before the firm went bankrupt, announced an audacious takeover bid earlier this year.`\
-https://nytimes.com/2024/05/28/business/dealbook/adam-neumann-wework.html
-
-**Closing Arguments Are Coming in Trump’s Trial. Here’s How They Work.**\
-`Each side will have an opportunity to summarize its case before the jury begins to deliberate.`\
-https://nytimes.com/2024/05/28/nyregion/what-are-closing-arguments.html
 
