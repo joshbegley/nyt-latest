@@ -1,3 +1,7 @@
+**Call Me Your Darling Angel**\
+`This Tuesday debut puzzle is full of fun facts.`\
+https://nytimes.com/2024/05/27/crosswords/daily-puzzle-2024-05-28.html
+
 **‘I’ve Never Seen Anything Like It.’ Tornado Devastates Arkansas Town.**\
 `Rogers, Ark., was one of many places hit hard by the rash of storms over Memorial Day weekend across the South.`\
 https://nytimes.com/2024/05/27/us/arkansas-storms-rogers.html
