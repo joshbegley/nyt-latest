@@ -1,3 +1,7 @@
+**What Donald Trump’s Lawyer Said in His Closing Argument**\
+`The former president was taken advantage of by liars, his lawyer, Todd Blanche, said while arguing that he should be found not guilty of the 34 felonies he is charged with.`\
+https://nytimes.com/2024/05/28/nyregion/closing-argument-trump-lawyer.html
+
 **Judge Denies Limited Gag Order Request in Trump Documents Case**\
 `The decision was made on procedural grounds and left open the possibility that federal prosecutors could try again to restrict Donald Trump from making statements that could endanger F.B.I. agents.`\
 https://nytimes.com/2024/05/28/us/politics/gag-order-denied-trump-documents.html
