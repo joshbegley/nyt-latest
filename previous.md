@@ -1,4 +1,4 @@
-**Missed Trump’s Criminal Trial? Catch Up Here.**\
+**Need a Refresher on Trump’s Criminal Trial? Catch Up Here.**\
 `Donald J. Trump has been charged with 34 felony counts in the first criminal case against an American president. Defense lawyers and prosecutors are making their closing arguments on Tuesday.`\
 https://nytimes.com/2024/05/28/nyregion/trump-criminal-trial-hush-money.html
 
