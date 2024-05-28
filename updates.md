@@ -1,3 +1,15 @@
+**What to Watch in the Texas Runoff Elections**\
+`Representative Tony Gonzales is facing a challenge from a gun rights activist, and voters will decide which Republican will face Representative Henry Cuellar this fall.`\
+https://nytimes.com/2024/05/28/us/politics/texas-runoff-elections.html
+
+**The Daily Beast’s New Bosses Plan Buyouts to Cut Losses**\
+`The leadership duo has looked for money-saving measures since joining the digital tabloid in April.`\
+https://nytimes.com/2024/05/28/business/media/daily-beast-buyouts.html
+
+**Israel had not ordered Palestinians to leave the area it struck on Sunday.**\
+`By Lauren Leatherby`\
+https://nytimes.com/live/2024/05/28/world/israel-gaza-war-hamas-rafah/israel-had-not-ordered-palestinians-to-leave-the-area-it-struck-on-sunday
+
 **What Donald Trump’s Lawyer Said in His Closing Argument**\
 `The former president was taken advantage of by liars, his lawyer, Todd Blanche, said while arguing that he should be found not guilty of the 34 felonies he is charged with.`\
 https://nytimes.com/2024/05/28/nyregion/closing-argument-trump-lawyer.html
