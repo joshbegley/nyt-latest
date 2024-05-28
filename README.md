@@ -1,3 +1,7 @@
+**What Is the ‘Access Hollywood’ Tape, and How Does It Factor Into Trump’s Trial?**\
+`Prosecutors have mentioned the tape at various stages of Donald J. Trump’s criminal trial, including during closing arguments on Tuesday.`\
+https://nytimes.com/2024/05/28/nyregion/access-hollywood-tape-trump-trial.html
+
 **R.F.K. Jr. Denounces the Removal of Confederate Statues**\
 `The independent presidential candidate Robert F. Kennedy Jr. said on a recent podcast that he had a “visceral reaction” to the removal of statues glorifying Confederate leaders.`\
 https://nytimes.com/2024/05/28/us/politics/rfk-jr-confederate-statues-removal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/28/t-magazine/hot-spring-thermal-bath-hotel-spa-japa
 **Strike Kills Displaced Gazans in Al-Mawasi, Officials Say**\
 `More than 20 people were killed and dozens more were injured when a strike hit a tent encampment for displaced Palestinians, Gazan officials said.`\
 https://nytimes.com/video/world/middleeast/100000009491181/mawasi-strike-gaza-israel.html
-
-**Bill Walton’s Long, Special Relationship With the Grateful Dead**\
-`“It wasn’t like he was a fan,” the drummer Mickey Hart said. “He was part of our family.”`\
-https://nytimes.com/2024/05/28/arts/music/bill-walton-grateful-dead.html
 
