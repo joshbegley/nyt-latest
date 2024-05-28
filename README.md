@@ -1,40 +1,40 @@
-**Ellis Island**\
-`In the early 1970s, two high school filmmakers ventured out in a rowboat to make a 16-millimeter film about an abandoned space nearby: Ellis Island.`\
-https://nytimes.com/video/opinion/100000009295567/ellis-island.html
+**Trump Leans Into an Outlaw Image as His Criminal Trial Concludes**\
+`Preparing for a potential verdict in Manhattan, the former president has increasingly aligned himself with fellow defendants and people convicted of crimes.`\
+https://nytimes.com/2024/05/28/us/politics/trump-criminals.html
 
-**Climate Change Added a Month’s Worth of Extra-Hot Days in Past Year**\
-`Since last May, the average person experienced 26 more days of abnormal warmth than they would have without global warming, a new analysis found.`\
-https://nytimes.com/2024/05/28/climate/extreme-heat-worldwide.html
+**How Quickly Would a Trump Verdict Sink In for Voters?**\
+`Opinions can easily change in the five months between the trial and the election.`\
+https://nytimes.com/live/2024/05/21/opinion/thepoint/trump-verdict-biden-philadelphia
 
-**Cyclone Remal Tears Through India and Bangladesh, Killing at Least 23**\
-`The storm, the first of the season, hit the South Asian countries after weeks of intense heat. Millions were left without power.`\
-https://nytimes.com/2024/05/28/world/asia/cyclone-remal-bangladesh-india.html
+**Damaging Winds and ‘Very Large Hail’ Are Possible in Central Texas**\
+`Forecasters said there was a moderate risk of severe weather for Tuesday after powerful storms swept through large sections of the country over the Memorial Day weekend.`\
+https://nytimes.com/2024/05/28/us/storms-texas.html
 
-**Defense Lawyers to Begin Closing Arguments in Trump’s Criminal Trial**\
-`After prosecutors get their turn, the case could be in the hands of the jury as early as Wednesday.`\
-https://nytimes.com/2024/05/28/nyregion/trump-trial-closing-arguments.html
+**The Untold Story of the Network That Took Down Roe v. Wade**\
+`A conservative Christian coalition’s plan to end the federal right to abortion began just days after Trump’s 2016 election.`\
+https://nytimes.com/2024/05/28/magazine/roe-v-wade-christian-network.html
 
-**When Reporters Need a Voice, Sometimes They Ask the Crowd**\
-`Reader callouts are like fliers on a digital bulletin board. They help journalists find sources — and discover stories they didn’t know they were looking for.`\
-https://nytimes.com/2024/05/28/insider/reader-callouts.html
+**Carbon Offsets, a Much-Criticized Climate Tool, Get Federal Guidelines**\
+`The new principles aim to define ‘high-integrity’ offsets amid concerns that current practices often don’t cut greenhouse gas emissions as claimed.`\
+https://nytimes.com/2024/05/28/climate/yellen-carbon-offset-market.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/05/28/crosswords/spelling-bee-forum.html
+**Melinda French Gates: Why I’m Donating $1 Billion for Women’s Rights**\
+`A philanthropist is focusing on gender issues around the world, including abortion access in the United States.`\
+https://nytimes.com/2024/05/28/opinion/melinda-french-gates-abortion.html
 
-**Congestion Pricing Could Bring Cleaner Air. But Maybe Not for Everyone.**\
-`Officials expect New York City’s new tolling system to reduce air pollution, as well as carbon emissions. The impact may be uneven.`\
-https://nytimes.com/2024/05/28/nyregion/congestion-pricing-air-pollution.html
+**Will Roy Cohn Save Donald Trump’s Hide One Last Time?**\
+`The wily lawyer taught Mr. Trump how to manipulate people and the law, and it’s all on display in a Lower Manhattan courtroom.`\
+https://nytimes.com/2024/05/28/opinion/roy-cohn-trump-court.html
 
-**A Deadline Approaches on a Campaign Against Plastic Waste**\
-`The New York State Legislature is reviewing a bill that could reduce the state’s use of plastic packaging by a whopping 50 percent.`\
-https://nytimes.com/2024/05/28/nyregion/plastics-ny-bill.html
+**Eyeing Trump, but on the Fence: How Tuned-Out Voters Could Decide 2024**\
+`Politically disengaged Americans are increasingly Trump-curious, but President Biden has a shot at winning some of them back. Reaching them in a changed media environment will be his challenge.`\
+https://nytimes.com/2024/05/28/us/politics/trump-biden-voters.html
 
-**Word of the Day: amiable**\
-`This word has appeared in 60 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/05/28/learning/word-of-the-day-amiable.html
+**Ted Cruz Has Some Strong Opinions About College Sports**\
+`Money is changing college sports in big and small ways. Jane Coaston interviews Ted Cruz about how some conservatives want to regulate college athletics.`\
+https://nytimes.com/2024/05/28/opinion/ted-cruz-ncaa-transfer.html
 
-**South Africa Is Becoming Something New, and It’s Not Good**\
-`The country is in the midst of another complex transformation.`\
-https://nytimes.com/2024/05/28/opinion/south-africa-election-anc.html
+**Sun, Sun, Sun. Here It Comes.**\
+`Spring’s warmth is a flirt, but New Yorkers are ready for the season’s unpredictability.`\
+https://nytimes.com/2024/05/28/style/sun-sun-sun-here-it-comes.html
 
