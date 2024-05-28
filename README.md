@@ -1,3 +1,7 @@
+**Senators See Possible Conflicts of Interest in Health Care Pricing Tools**\
+`A data analytics firm that helps insurers collect big fees while leaving some patients with unpaid bills has been summoned to explain its business model.`\
+https://nytimes.com/2024/05/28/us/senators-see-possible-conflicts-of-interest-in-health-care-pricing-tools.html
+
 **Wednesday Briefing: Closing Arguments in Trump’s Criminal Trial**\
 `Plus, South Africa goes to the polls`\
 https://nytimes.com/2024/05/28/briefing/trump-trial-rafah.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/28/nyregion/trump-hush-money-trial-closings.html
 **Man Charged With Hate Crimes in New York City Street Attacks**\
 `Skiboky Stora, 40, is accused of targeting people he believed were white, female or Jewish. He was arrested in March after one of his alleged victims shared her story on TikTok.`\
 https://nytimes.com/2024/05/28/nyregion/skibody-stora-hate-crimes-random-attacks.html
-
-**U.S. Pier for Gaza Aid Damaged by Rough Seas**\
-`Army engineers are working to put the pier back together, and Defense Department officials hope it will be operational again in about a week.`\
-https://nytimes.com/2024/05/28/us/politics/gaza-pier-damaged.html
 
