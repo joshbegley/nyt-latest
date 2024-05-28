@@ -1,3 +1,7 @@
+**Its Future in Doubt, the Freewheeling ‘Inside the NBA’ Is on Edge Instead**\
+`Next season could be the last for TNT’s influential and beloved studio show, and Charles Barkley, for one, will not be going quietly.`\
+https://nytimes.com/2024/05/28/business/inside-the-nba-tnt-barkley.html
+
 **On the Dangers of Inflation Brain**\
 `Is the Fed, among others, focused on the wrong problem?`\
 https://nytimes.com/2024/05/28/opinion/inflation-federal-reserve-rates.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/28/world/israel-gaza-war-hamas-rafah/harris-say
 **Tiny Love Stories: ‘Also, He’s a Magician’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/05/28/style/tiny-modern-love-stories-also-hes-a-magician.html
-
-**Man Who Invaded Nancy Pelosi’s Home Apologizes for Attacking Her Husband**\
-`David DePape’s federal sentencing hearing was reopened to give him a chance to address the court, but his apology did not persuade the judge to change his sentence.`\
-https://nytimes.com/2024/05/28/us/nancy-pelosi-david-depape-apology-sentence.html
 
