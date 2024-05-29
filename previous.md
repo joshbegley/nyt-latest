@@ -1,3 +1,7 @@
+**The Tories Will Lose the Election. But What Will Labour Win?**\
+`British voters are fed up with the Tories, and a change election seems inevitable. But Labour does not seem poised to capitalize on the moment.`\
+https://nytimes.com/2024/05/29/opinion/tories-labour-britain-snap-election.html
+
 **South Africans Vote, Many Hoping for Change as Seismic as Mandela’s Rise**\
 `In a high-stakes national election, the African National Congress, which has governed for three decades since the end of apartheid, may lose its outright majority for the first time.`\
 https://nytimes.com/2024/05/29/world/africa/south-africa-vote-election-anc.html
@@ -21,10 +25,6 @@ https://nytimes.com/live/2024/05/29/world/israel-gaza-war-hamas-rafah/israel-dec
 **Alito Refuses Calls for Recusal Over Display of Provocative Flags**\
 `“My wife is fond of flying flags,” the justice wrote in a letter to members of Congress who had demanded he step down from two cases related to the Jan. 6 attack. “I am not.”`\
 https://nytimes.com/2024/05/29/us/alito-supreme-court-recusal-flag.html
-
-**The Tories Will Lose the Election. But What Will Labour Win?**\
-`British voters are fed up with the Tories, and a change election seems inevitable. But Labour does not seem poised to capitalize on the moment.`\
-https://nytimes.com/2024/05/29/opinion/tories-labour-britain-snap-election.html
 
 **What’s in Our Queue? ‘Mr. & Mrs. Smith’ and More**\
 `I just wrapped up a reporting fellowship at The Times, covering space, physics and the intersection of science and society. Here are five things I’ve been indulging in lately.`\
