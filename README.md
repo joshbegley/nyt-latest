@@ -1,3 +1,7 @@
+**Have You Ever Seen a Corgi Race?**\
+`At the Summer Corgi Nationals, the country’s finest racing corgis, and their over-the-top owners, celebrated everything about the breed.`\
+https://nytimes.com/card/2024/05/29/style/corgi-nationals-santa-anita
+
 **A senior Israeli official said that the war would last at least through the end of the year.**\
 `By Aaron Boxerman and Gabby Sobelman`\
 https://nytimes.com/live/2024/05/29/world/israel-gaza-war-hamas-rafah/a-senior-israeli-official-said-that-the-war-would-last-at-least-through-the-end-of-the-year
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/29/world/middleeast/all-eyes-on-rafah.html
 **Another Big Oil Deal Despite Regulatory Pushback and Market Volatility**\
 `ConocoPhillips has agreed to buy Marathon Oil for $22.5 billion, as consolidation in the U.S. energy sector shows little sign of slowing down.`\
 https://nytimes.com/2024/05/29/business/dealbook/oil-merger-conocophillips-marathon.html
-
-**American Airlines Is Accused of Discrimination in Lawsuit**\
-`Three Black men said they and five other Black men were removed from a Phoenix-to-New York flight in January for about an hour because of a complaint about body odor.`\
-https://nytimes.com/2024/05/29/business/american-airlines-discrimination-lawsuit-black-men.html
 
