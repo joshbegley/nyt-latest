@@ -1,3 +1,11 @@
+**The Best True Crime to Stream: Digital Dating and Coercive Control**\
+`Four picks across television, film and podcasting that explore a devastating, yet slippery, type of manipulation.`\
+https://nytimes.com/2024/05/29/arts/true-crime-streaming-coercive-control-catfish.html
+
+**Can You Guess the Country? A New Geography Photo Quiz for Students**\
+`Test your geography knowledge using photographs from around the world.`\
+https://nytimes.com/interactive/2024/05/29/learning/28CountryPhotoQuizLN.html
+
 **Jury Deliberations Are Starting in Trump’s Trial. Here’s How They Work.**\
 `The 12 unidentified jurors will retreat behind closed doors and start to debate whether the first president to be criminally prosecuted has committed felony crimes.`\
 https://nytimes.com/2024/05/29/nyregion/jury-deliberations-trump-trial.html
