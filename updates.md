@@ -1,3 +1,7 @@
+**126 Degrees: New Delhi Sweats Through Its Hottest Recorded Day**\
+`For weeks now, temperatures in several states in northern India have been well over 110, and hospitals have been reporting a rise in heatstroke.`\
+https://nytimes.com/2024/05/29/world/asia/india-delhi-hottest-day-ever.html
+
 **What Penalties Could Trump Face if He Is Convicted?**\
 `Each of the 34 counts carries the possibility of up to four years in prison, but incarceration is not a given: Justice Juan M. Merchan could instead opt to impose a sentence of probation, with no prison time.`\
 https://nytimes.com/2024/05/29/nyregion/trump-convicted-jail-penalties.html
