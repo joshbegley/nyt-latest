@@ -1,3 +1,11 @@
+**Prosecutors Leave the Jury With a Mountain of Evidence Against Trump**\
+`But it’s not easy for jurors to stay attentive after a long day of closing arguments.`\
+https://nytimes.com/live/2024/05/28/opinion/thepoint/trump-trial-closing-arguments
+
+**Menendez Jurors Hear Audio and See Texts From Seized Phones**\
+`Prosecutors introduced private messages between Senator Robert Menendez and his future wife to show what they say was the start of a bribery conspiracy.`\
+https://nytimes.com/2024/05/28/nyregion/robert-nadine-menendez-text-messages.html
+
 **I.M.F. Is Upbeat on China’s Growth but Questions Industrial Policy**\
 `Surging exports and factory investment are buoying China’s output, but the housing market faces serious troubles and industrial policies may hurt other countries.`\
 https://nytimes.com/2024/05/28/business/imf-china-economy.html
