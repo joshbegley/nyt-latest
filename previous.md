@@ -1,3 +1,11 @@
+**‘Bad Breath Rapist’ Is Captured After Nearly 17 Years on the Run**\
+`Tuen Kit Lee, 55, who was convicted in 2007 of raping a woman in Massachusetts, had been living with a woman in California who “never knew who he really was,” the police said.`\
+https://nytimes.com/2024/05/29/us/bad-breath-rapist-captured.html
+
+**Americans Raced to Get Their Families Out of Gaza. Then the Border Slammed Shut.**\
+`The closure this month of the Rafah border crossing into Egypt, the only way out for civilians, has thrown an already complicated system into disarray.`\
+https://nytimes.com/2024/05/29/us/politics/gaza-relatives-escape.html
+
 **Nikki Haley’s Valentine to Civilian Death**\
 `It was message of savage revenge, with little apparent concern for whose blood will actually be shed.`\
 https://nytimes.com/live/2024/05/28/opinion/thepoint/nikki-haley-israel-gaza
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/29/opinion/tories-labour-britain-snap-election.html
 **South Africans Vote, Many Hoping for Change as Seismic as Mandela’s Rise**\
 `In a high-stakes national election, the African National Congress, which has governed for three decades since the end of apartheid, may lose its outright majority for the first time.`\
 https://nytimes.com/2024/05/29/world/africa/south-africa-vote-election-anc.html
-
-**Review: For ‘Molly Sweeney,’ Not Seeing Was Never the Obstacle**\
-`The Irish Rep ends its season-long Brian Friel survey with the story of a blind woman who undergoes an operation to try to restore her sight.`\
-https://nytimes.com/2024/05/29/theater/molly-sweeney-review.html
-
-**Blinken Hints U.S. May Accept Ukrainian Strikes in Russia With American Arms**\
-`Secretary of State Antony J. Blinken made his remarks after some European leaders called on President Biden to lift the restrictions he has imposed on Ukraine’s use of U.S. weapons.`\
-https://nytimes.com/2024/05/29/world/europe/blinken-ukraine-weapons-russia.html
 

@@ -1,3 +1,11 @@
+**‘Bad Breath Rapist’ Is Captured After Nearly 17 Years on the Run**\
+`Tuen Kit Lee, 55, who was convicted in 2007 of raping a woman in Massachusetts, had been living with a woman in California who “never knew who he really was,” the police said.`\
+https://nytimes.com/2024/05/29/us/bad-breath-rapist-captured.html
+
+**Americans Raced to Get Their Families Out of Gaza. Then the Border Slammed Shut.**\
+`The closure this month of the Rafah border crossing into Egypt, the only way out for civilians, has thrown an already complicated system into disarray.`\
+https://nytimes.com/2024/05/29/us/politics/gaza-relatives-escape.html
+
 **Nikki Haley’s Valentine to Civilian Death**\
 `It was message of savage revenge, with little apparent concern for whose blood will actually be shed.`\
 https://nytimes.com/live/2024/05/28/opinion/thepoint/nikki-haley-israel-gaza
