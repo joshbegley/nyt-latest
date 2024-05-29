@@ -1,3 +1,7 @@
+**U.S. officials have pressed Israel to use more GBU-39s, which they say can reduce civilian casualties.**\
+`A Times visual analysis found that munition debris filmed at the scene were remnants of a GBU-39, a bomb designed and manufactured in the United States.`\
+https://nytimes.com/live/2024/05/29/world/israel-gaza-war-hamas-rafah/israel-used-us-made-gbu-39-bombs-in-a-strike-that-killed-45
+
 **Israel Used U.S.-Made Bombs in Strike That Killed Dozens Near Rafah**\
 `The munitions used in an attack on a camp for displaced people were identified by weapons experts and a Times visual analysis.`\
 https://nytimes.com/live/2024/05/29/world/israel-gaza-war-hamas-rafah
