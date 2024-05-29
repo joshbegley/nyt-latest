@@ -1,3 +1,11 @@
+**Former Intelligence Chief Tapped as Next Dutch Prime Minister**\
+`Dick Schoof is poised to be the country’s first new leader in over 13 years. His selection came as a relative surprise, after more than six months of negotiations to form a governing coalition.`\
+https://nytimes.com/2024/05/29/world/europe/netherlands-prime-minister-dick-schoof.html
+
+**The Stalled Pandemic Accords Offer an Opportunity for Vaccine Equity**\
+`Pandemics don’t care about nation-state borders.`\
+https://nytimes.com/live/2024/05/28/opinion/thepoint/the-stalled-pandemic-accords-offer-an-opportunity-for-vaccine-equity
+
 **Read the Jury Instructions in the Trump Manhattan Criminal Trial**\
 `The judge in former President Donald J. Trump’s Manhattan criminal trial, Juan M. Merchan, issued instructions to jurors on Wednesday that serve as a guide to applying the law in deliberations.`\
 https://nytimes.com/interactive/2024/05/29/nyregion/judge-trump-hush-money-trial-jury-instructions.html
