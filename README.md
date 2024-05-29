@@ -19,7 +19,7 @@ https://nytimes.com/2024/05/29/world/africa/south-africa-vote-election-anc.html
 https://nytimes.com/2024/05/29/theater/molly-sweeney-review.html
 
 **Blinken Hints U.S. May Accept Ukrainian Strikes in Russia With American Arms**\
-`Secretary of State Antony J. Blinken made his remarks after some European leaders called on President Biden to lift the restrictions he as imposed on Ukraine’s use of U.S. weapons.`\
+`Secretary of State Antony J. Blinken made his remarks after some European leaders called on President Biden to lift the restrictions he has imposed on Ukraine’s use of U.S. weapons.`\
 https://nytimes.com/2024/05/29/world/europe/blinken-ukraine-weapons-russia.html
 
 **Jamie Raskin: How to Force Justices Alito and Thomas to Recuse Themselves in the Jan. 6 Cases**\
