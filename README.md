@@ -1,40 +1,40 @@
-**How to Escape the Olympics in Paris This Summer**\
-`Even if you’re visiting for the Games, you may want to take a cultural break like a local.`\
-https://nytimes.com/2024/05/29/arts/olympics-paris-things-to-do-france.html
+**Justice Alito’s Wife Has Managed to Avoid the Spotlight Until Now**\
+`Martha-Ann Alito has built a limited public life since moving to Washington that has mainly centered on apolitical projects and charity work.`\
+https://nytimes.com/2024/05/29/us/politics/martha-ann-alito.html
 
-**Watch: Campaign Ads From Democrats in 6 Close Senate Races**\
-`In each state, a Democrat leads the Senate race while Donald Trump leads the presidential race.`\
-https://nytimes.com/2024/05/29/briefing/the-morning-senate-campaign-ads.html
+**Perhaps Lost in the Polling: The Race Is Still Close**\
+`Biden has mostly held his support among white voters, and Pennsylvania, Michigan and Wisconsin probably offer his clearest path to victory.`\
+https://nytimes.com/2024/05/29/upshot/biden-polls-election-map.html
 
-**Israel Used U.S.-Made Bombs in Strike That Killed Dozens Near Rafah**\
-`The munitions used in an attack on a camp for displaced people were identified by weapons experts and a Times visual analysis.`\
-https://nytimes.com/live/2024/05/29/world/israel-gaza-war-hamas-rafah
+**America’s Military Is Not Prepared for War — or Peace**\
+`The U.S. military is not sized or equipped to deal with new global threats.`\
+https://nytimes.com/2024/05/29/opinion/us-military-war.html
 
-**U.S. officials have pressed Israel to use more GBU-39s, which they say can reduce civilian casualties.**\
-`A Times visual analysis found that munition debris filmed at the scene were remnants of a GBU-39, a bomb designed and manufactured in the United States.`\
-https://nytimes.com/live/2024/05/29/world/israel-gaza-war-hamas-rafah/israel-used-us-made-gbu-39-bombs-in-a-strike-that-killed-45
+**Big Money. College Athletes and the N.C.A.A.: A Timeline**\
+`The landmark settlement that would create a revenue-sharing plan is part of a long arc of profits in college sports.`\
+https://nytimes.com/2024/05/29/us/ncaa-college-athletes-pay-history.html
 
-**Jury Will Consider Felony Charges Against Trump on Wednesday**\
-`After the judge instructs them on the law, 12 New Yorkers will retreat behind closed doors to weigh Donald J. Trump’s fate.`\
-https://nytimes.com/2024/05/29/nyregion/trump-trial-jury-charges.html
+**The Gender Gap Is Now a Gender Gulf**\
+`The consequences for America’s political future are enormous — and a little unpredictable.`\
+https://nytimes.com/2024/05/29/opinion/gender-gap-biden-trump-2024.html
 
-**In ‘Where to Eat,’ Digesting the Complex New York Dining Scene**\
-`In her weekly newsletter, Nikita Richardson takes readers through New York’s five boroughs and offers suggestions, tips and advice for dining out.`\
-https://nytimes.com/2024/05/29/insider/where-to-eat-new-york.html
+**With Payments to College Athletes, Another Fight Looms for Women**\
+`Despite gains, women still lag far behind men in the little-regulated industry of college sports. A proposed revenue-sharing deal could create new clashes over equality.`\
+https://nytimes.com/2024/05/29/us/payments-college-athletes-women.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/05/29/crosswords/spelling-bee-forum.html
+**A Border Runs Through Their Families. Now It’s a Front Line.**\
+`In northeastern Ukraine, and in the part of Russia it touches, the war strains the emotions of people with relatives, and family histories, that span both sides.`\
+https://nytimes.com/2024/05/29/world/europe/russia-ukraine-border.html
 
-**Word of the Day: synopsis**\
-`This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/05/29/learning/word-of-the-day-synopsis.html
+**Emerging Portrait of Judge in Trump Documents Case: Prepared, Prickly and Slow**\
+`Judge Aileen Cannon’s handling of court hearings offers insights into how the case accusing Donald Trump of illegally retaining classified material has become bogged down in unresolved issues.`\
+https://nytimes.com/2024/05/29/us/politics/trump-documents-judge-aileen-cannon.html
 
-**Texas Congressman Wins Runoff, Bolstering G.O.P. Effort to Hold House**\
-`Representative Tony Gonzales’s narrow victory over a far-right challenger came after a divisive race for the party, and most likely strengthened Republicans’ grip on the border district.`\
-https://nytimes.com/2024/05/29/us/elections/tony-gonzales-brandon-herrera-texas.html
+**The Battle Over College Speech Will Outlive the Encampments**\
+`For the first time since the Vietnam War, university demonstrations have led to a rethinking of who sets the terms for language in academia.`\
+https://nytimes.com/2024/05/29/magazine/columbia-protests-free-speech.html
 
-**Wednesday Briefing**\
-`We’re covering closing arguments in Donald Trump’s trial and Election Day in South Africa.`\
-https://nytimes.com/2024/05/29/briefing/trump-trial-rafah-south-africa.html
+**New York Fleet Week, the Movie**\
+`Cue the landmarks, the skyline, the King Kong vistas when some 2,300 members of the Navy, the Marines and the Coast Guard cruise into town.`\
+https://nytimes.com/2024/05/29/style/fleet-week-nyc.html
 
