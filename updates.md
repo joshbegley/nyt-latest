@@ -1,3 +1,7 @@
+**New Weinstein Accusers Have Come Forward, Prosecutors Say**\
+`Harvey Weinstein, the disgraced producer, is already facing a retrial after his 2020 sex crimes conviction was overturned last month.`\
+https://nytimes.com/2024/05/29/nyregion/harvey-weinstein-sexual-assault-accusations.html
+
 **Trump’s Fate Is Now in the Hands of the Jury**\
 `Also, home insurance rates are clobbering consumers. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/05/29/briefing/trump-trial-jury-deliberations-south-africa-election.html
