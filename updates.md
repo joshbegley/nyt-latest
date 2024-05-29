@@ -1,3 +1,7 @@
+**Team Biden’s Urgent Pitch to Black Voters in Philadelphia**\
+`But it’s not easy to get tuned-out voters to care.`\
+https://nytimes.com/live/2024/05/28/opinion/thepoint/biden-campaign-black-voters-philadelphia
+
 **The Scene Outside the Trump Trial Mellows as Deliberations Start. Sort of.**\
 `Even a more sedate day outside the trial of Donald J. Trump includes spectacle and confrontation.`\
 https://nytimes.com/2024/05/29/nyregion/collect-pond-park-trump-scene.html
