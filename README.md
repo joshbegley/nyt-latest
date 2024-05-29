@@ -4,7 +4,7 @@ https://nytimes.com/interactive/2024/us/politics/biden-trump-2024-campaign.html
 
 **A new cease-fire proposal circulates at the U.N., driven by outrage over Israel’s strike on a tent camp.**\
 `By Farnaz Fassihi`\
-https://nytimes.com/live/2024/05/29/world/israel-gaza-war-hamas-rafah/algeria-gaza-ceasefire-proposal-un
+https://nytimes.com/2024/05/29/world/middleeast/algeria-gaza-ceasefire-proposal-un.html
 
 **From Allies and Advisers, Pressure Grows on Biden to Allow Attacks on Russian Territory**\
 `President Biden is weighing fears of escalation with a nuclear-armed adversary as he considers whether to let Ukraine shoot American weapons into Russia.`\
