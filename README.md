@@ -1,3 +1,11 @@
+**Is Trump Starting to Worry About a Conviction?**\
+`Railing at the judge, he said Mother Theresa couldn’t beat the charges.`\
+https://nytimes.com/live/2024/05/28/opinion/thepoint/trump-trial-jury
+
+**Susanne Page, Who Took Rare Photos of the Hopi and Navajo, Dies at 86**\
+`She was the first photographer allowed to document life among the Hopi, in the Southwest, since the early 20th century. Her work appeared in books and magazines.`\
+https://nytimes.com/2024/05/29/arts/susanne-page-dead.html
+
 **Richard Ellis, ‘Poet Laureate’ of Deep-Sea Creatures, Dies at 86**\
 `His prodigious paintings of whales and his books about sharks, giant squid and tuna were acclaimed for melding science with art.`\
 https://nytimes.com/2024/05/29/science/richard-ellis-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/05/28/opinion/thepoint/nikki-haley-israel-gaza
 **Audra McDonald to Star in ‘Gypsy’ Revival on Broadway This Fall**\
 `The six-time Tony-winning actress will play musical theater’s most famous stage mother in a production directed by George C. Wolfe.`\
 https://nytimes.com/2024/05/29/theater/audra-mcdonald-broadway-gypsy.html
-
-**This Easy Party Menu Makes Summer Classics Extra Special**\
-`The former Chez Panisse chef David Tanis puts his spin on a well-known seasonal bill of fare: a salad, burger and a crumble.`\
-https://nytimes.com/2024/05/29/dining/lamb-burger-salad-crumble-summer-menu.html
-
-**House Ethics Panel Will Investigate Cuellar on Bribery Charges**\
-`The committee voted unanimously to scrutinize the Texas Democrat’s conduct after his indictment this month on federal bribery and corruption charges.`\
-https://nytimes.com/2024/05/29/us/politics/house-ethics-panel-henry-cuellar-bribery-charges.html
 
