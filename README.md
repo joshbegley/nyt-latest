@@ -1,3 +1,7 @@
+**Welcome Back, Pandas! Two Furry Diplomats Are Headed to D.C. Zoo**\
+`The pandas, Bao Li and Qing Bao, will be flown to the Smithsonian National Zoo from China before the end of the year.`\
+https://nytimes.com/2024/05/29/us/politics/panda-dc-zoo-china.html
+
 **Nikki Haley Writes ‘Finish Them’ on Artillery Shell in Israel**\
 `Her visit came just days after Israel drew international condemnation for a strike that killed dozens of Gazan civilians in a camp for displaced Palestinians.`\
 https://nytimes.com/2024/05/29/us/politics/nikki-haley-finish-them-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/29/dining/this-is-the-pizza-i-make-at-home.html
 **At City Ballet, a Once-in-a-Generation Dancer Arrives**\
 `Mira Nadon, the rising New York City Ballet principal, is coming off her best season yet. And it’s only the beginning.`\
 https://nytimes.com/2024/05/29/arts/dance/mira-nadon-new-york-city-ballet.html
-
-**The 6 Women Who Shaped America’s Most Macho President**\
-`In “The Loves of Theodore Roosevelt,” Edward F. O’Keefe explores the informal kitchen cabinet that helped Roosevelt, the 26th president, speak softly and carry a big stick.`\
-https://nytimes.com/2024/05/29/books/review/the-loves-of-theodore-roosevelt.html
 
