@@ -1,3 +1,11 @@
+**The Scene Outside the Trump Trial Mellows as Deliberations Start. Sort of.**\
+`Even a more sedate day outside the trial of Donald J. Trump includes spectacle and confrontation.`\
+https://nytimes.com/2024/05/29/nyregion/collect-pond-park-trump-scene.html
+
+**In a Texas G.O.P. at War With Itself, the Hard Right Is Gaining**\
+`The speaker of the State House, Dade Phelan, survived a primary challenge from a Trump-backed activist, but many other Republican incumbents were ousted in bitter primary races.`\
+https://nytimes.com/2024/05/29/us/texas-republican-primaries-dade-phelan.html
+
 **Thursday Briefing: A Hard Choice for the U.S. on Russia Attacks**\
 `Plus, New Delhi’s hottest day`\
 https://nytimes.com/2024/05/29/briefing/ukraine-new-delhi.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/29/arts/susanne-page-dead.html
 **Richard Ellis, ‘Poet Laureate’ of Deep-Sea Creatures, Dies at 86**\
 `His prodigious paintings of whales and his books about sharks, giant squid and tuna were acclaimed for melding science with art.`\
 https://nytimes.com/2024/05/29/science/richard-ellis-dead.html
-
-**Two Giant Pandas Will Head to D.C.’s National Zoo From China**\
-`The Smithsonian’s National Zoo and Conservation Biology Institute said that pandas, Bao Li and Qing Bao, will be flown over before the end of the year.`\
-https://nytimes.com/video/us/100000009493816/panda-dc-zoo-china.html
-
-**Biden Asks What Trump Would Have Done if Capitol Rioters Were Black**\
-`“What do you think would have happened if Black Americans had stormed the Capitol?” the president said at a rally in Philadelphia. “I don’t think he’d be talking about pardons.”`\
-https://nytimes.com/2024/05/29/us/politics/biden-black-voters-philadelphia.html
 
