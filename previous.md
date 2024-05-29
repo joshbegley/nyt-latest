@@ -1,3 +1,7 @@
+**Amid Orchestral Waves, the Sound of Cultures Conversing**\
+`“Natural History,” performed in Cincinnati, is a collaboration between the composer Michael Gordon and the Native American ensemble Steiger Butte Drum.`\
+https://nytimes.com/2024/05/29/arts/music/michael-gordon-natural-history-klamath-tribe.html
+
 **Welcome Back, Pandas! Two Furry Diplomats Are Headed to D.C. Zoo**\
 `The pandas, Bao Li and Qing Bao, will be flown to the Smithsonian National Zoo from China before the end of the year.`\
 https://nytimes.com/2024/05/29/us/politics/panda-dc-zoo-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/29/world/middleeast/gaza-rafah-aid-hospitals.html
 **This Is the Pizza I Make at Home**\
 `It splits the difference between pizza and focaccia, with an airy, olive-oil-enriched dough that can be adorned with whatever toppings you love (anchovies, of course!).`\
 https://nytimes.com/2024/05/29/dining/this-is-the-pizza-i-make-at-home.html
-
-**At City Ballet, a Once-in-a-Generation Dancer Arrives**\
-`Mira Nadon, the rising New York City Ballet principal, is coming off her best season yet. And it’s only the beginning.`\
-https://nytimes.com/2024/05/29/arts/dance/mira-nadon-new-york-city-ballet.html
 

@@ -1,3 +1,7 @@
+**Amid Orchestral Waves, the Sound of Cultures Conversing**\
+`“Natural History,” performed in Cincinnati, is a collaboration between the composer Michael Gordon and the Native American ensemble Steiger Butte Drum.`\
+https://nytimes.com/2024/05/29/arts/music/michael-gordon-natural-history-klamath-tribe.html
+
 **Jury Deliberations Are Starting in Trump’s Trial. Here’s How They Work.**\
 `The 12 unidentified jurors have retreated behind closed doors and started to debate whether the first president to be criminally prosecuted has committed felony crimes.`\
 https://nytimes.com/2024/05/29/nyregion/jury-deliberations-trump-trial.html
