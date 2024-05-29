@@ -1,3 +1,7 @@
+**How to Escape the Olympics in Paris This Summer**\
+`Even if you’re visiting for the Games, you may want to take a cultural break like a local.`\
+https://nytimes.com/2024/05/29/arts/olympics-paris-things-to-do-france.html
+
 **Watch: Campaign Ads From Democrats in 6 Close Senate Races**\
 `In each state, a Democrat leads the Senate race while Donald Trump leads the presidential race.`\
 https://nytimes.com/2024/05/29/briefing/the-morning-senate-campaign-ads.html
