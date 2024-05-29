@@ -1,3 +1,7 @@
+**It’s Over to the Jury**\
+`After closing arguments, the Manhattan trial is in the endgame.`\
+https://nytimes.com/2024/05/28/us/politics/trump-trial-closing-argument-jury-deliberation.html
+
 **NYU Nurse Is Fired After Calling the Gaza War a ‘Genocide’ in Speech**\
 `NYU Langone Health gave the nurse, Hesen Jabr, an award for her work. She said hospital officials then fired her because she made pro-Palestinian remarks in an acceptance speech.`\
 https://nytimes.com/2024/05/28/nyregion/nyu-langone-nurse-fired-gaza-war.html

@@ -1,3 +1,7 @@
+**It’s Over to the Jury**\
+`After closing arguments, the Manhattan trial is in the endgame.`\
+https://nytimes.com/2024/05/28/us/politics/trump-trial-closing-argument-jury-deliberation.html
+
 **NYU Nurse Is Fired After Calling the Gaza War a ‘Genocide’ in Speech**\
 `NYU Langone Health gave the nurse, Hesen Jabr, an award for her work. She said hospital officials then fired her because she made pro-Palestinian remarks in an acceptance speech.`\
 https://nytimes.com/2024/05/28/nyregion/nyu-langone-nurse-fired-gaza-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/28/opinion/israel-ukraine-war-us.html
 **Michigan Trooper Charged With Murder in Death of Fleeing Man**\
 `Detective Sgt. Brian Keely was charged in the death of Samuel Sterling, who was fatally struck by an unmarked police S.U.V. in suburban Grand Rapids last month.`\
 https://nytimes.com/2024/05/28/us/michigan-trooper-murder.html
-
-**The Alitos, the Neighborhood Clash and the Upside-Down Flag**\
-`Inside the escalating conflict on a bucolic suburban street that Justice Alito said prompted a “Stop the Steal” symbol at his home.`\
-https://nytimes.com/2024/05/28/us/justice-alito-neighbors-stop-steal-flag.html
 
