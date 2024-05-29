@@ -1,3 +1,7 @@
+**Audra McDonald to Star in ‘Gypsy’ Revival on Broadway This Fall**\
+`The six-time Tony-winning actress will play musical theater’s most famous stage mother in a production directed by George C. Wolfe.`\
+https://nytimes.com/2024/05/29/theater/audra-mcdonald-broadway-gypsy.html
+
 **This Easy Party Menu Makes Summer Classics Extra Special**\
 `The former Chez Panisse chef David Tanis puts his spin on a well-known seasonal bill of fare: a salad, burger and a crumble.`\
 https://nytimes.com/2024/05/29/dining/lamb-burger-salad-crumble-summer-menu.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/29/world/europe/blinken-ukraine-weapons-russia.html
 **Jamie Raskin: How to Force Justices Alito and Thomas to Recuse Themselves in the Jan. 6 Cases**\
 `Can Justices Thomas and Alito really decide for themselves whether they can be impartial in cases related to Jan. 6?`\
 https://nytimes.com/2024/05/29/opinion/alito-thomas-recuse-trump-jan-6.html
-
-**Israel Says It Has ‘Tactical Control’ of Gaza Corridor Bordering Egypt**\
-`Hamas tunnels into Egypt make it essential for Israel to control the corridor, Israel says, but Egypt says there are no such tunnels.`\
-https://nytimes.com/2024/05/29/world/middleeast/israel-gaza-egypt-corridor-control.html
 

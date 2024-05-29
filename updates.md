@@ -1,3 +1,7 @@
+**Audra McDonald to Star in ‘Gypsy’ Revival on Broadway This Fall**\
+`The six-time Tony-winning actress will play musical theater’s most famous stage mother in a production directed by George C. Wolfe.`\
+https://nytimes.com/2024/05/29/theater/audra-mcdonald-broadway-gypsy.html
+
 **Israel Says It Has ‘Tactical Control’ of Gaza Corridor Bordering Egypt**\
 `Hamas tunnels into Egypt make it essential for Israel to control the corridor, Israel says, but Egypt says there are no such tunnels.`\
 https://nytimes.com/2024/05/29/world/middleeast/israel-gaza-egypt-corridor-control.html
