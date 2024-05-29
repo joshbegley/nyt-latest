@@ -1,3 +1,7 @@
+**Latest North Korean Offensive: Dumping Trash on South Korea From the Sky**\
+`The South Korean military said on Wednesday that it found hundreds of balloons carrying garbage from North Korea.`\
+https://nytimes.com/2024/05/29/world/asia/north-korea-trash-balloons-south.html
+
 **Justice Alito’s Wife Has Managed to Avoid the Spotlight Until Now**\
 `Martha-Ann Alito has built a limited public life since moving to Washington that has mainly centered on apolitical projects and charity work.`\
 https://nytimes.com/2024/05/29/us/politics/martha-ann-alito.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/29/us/politics/trump-documents-judge-aileen-cannon.h
 **The Battle Over College Speech Will Outlive the Encampments**\
 `For the first time since the Vietnam War, university demonstrations have led to a rethinking of who sets the terms for language in academia.`\
 https://nytimes.com/2024/05/29/magazine/columbia-protests-free-speech.html
-
-**New York Fleet Week, the Movie**\
-`Cue the landmarks, the skyline, the King Kong vistas when some 2,300 members of the Navy, the Marines and the Coast Guard cruise into town.`\
-https://nytimes.com/2024/05/29/style/fleet-week-nyc.html
 
