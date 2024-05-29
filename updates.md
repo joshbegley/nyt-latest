@@ -1,3 +1,7 @@
+**Jury Deliberations Are Starting in Trump’s Trial. Here’s How They Work.**\
+`The 12 unidentified jurors will retreat behind closed doors and start to debate whether the first president to be criminally prosecuted has committed felony crimes.`\
+https://nytimes.com/2024/05/29/nyregion/jury-deliberations-trump-trial.html
+
 **Sleepless in Seattle as a Hellcat Roars Through the Streets**\
 `The modified Dodge Charger roaming Seattle’s downtown by night has infuriated residents. But it seems no one can stop it.`\
 https://nytimes.com/2024/05/29/us/seattle-belltown-hellcat.html
