@@ -1,3 +1,7 @@
+**Closing Arguments Finished, Trump’s Case Heads to the Jury**\
+`The prosecution and the defense made their final pitches to jurors. Jonah Bromwich, a criminal justice reporter at The New York Times, gives his takeaways.`\
+https://nytimes.com/video/nyregion/100000009492424/closing-arguments-finished-trumps-case-heads-to-the-jury.html
+
 **Briefly Open to a Fair-Looking Election, Venezuela Reverses Course Again**\
 `Officials rescinded an invitation to E.U. observers for the presidential vote in July, in another sign that Nicolás Maduro is unlikely to cede power regardless of the result.`\
 https://nytimes.com/2024/05/28/world/americas/venezuela-election-maduro.html
