@@ -1,3 +1,11 @@
+**Billionaire Plans Dive to the Titanic in a Newly Designed Submersible**\
+`Larry Connor, 74, who made his wealth in real estate, said he’s building a new acrylic-hulled submersible that will be certified and rigorously tested to show that deep sea exploration is safe.`\
+https://nytimes.com/2024/05/28/science/titanic-submersible-ohio-billionaire.html
+
+**Republican Navy Veteran Will Face Henry Cuellar in South Texas**\
+`The congressional district has slightly moved in favor of Republicans after Mr. Cuellar, a centrist Democrat, was indicted on federal charges.`\
+https://nytimes.com/2024/05/28/us/politics/henry-cuellar-jay-furman.html
+
 **Trump’s Case Heads to the Jury: 5 Takeaways From Closing Arguments**\
 `Defense lawyers and prosecutors tried strategy and stagecraft to sway jurors. The panel of 12 New Yorkers will get the case Wednesday morning.`\
 https://nytimes.com/2024/05/28/nyregion/trump-trial-closing-argument-takeways.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/28/world/middleeast/gaza-war-rafah.html
 **Health Officials Tried to Evade Public Records Laws, Lawmakers Say**\
 `N.I.H. officials suggested federal record keepers helped them hide emails. If so, “that’s really damaging to trust in all of government,” one expert said.`\
 https://nytimes.com/2024/05/28/health/nih-officials-foia-hidden-emails-covid.html
-
-**Sue Johnson, Psychologist Who Took a Scientific View of Love, Dies at 76**\
-`She believed the bond between adults was as sustaining as that between parent and child, and developed a therapy to strengthen and repair broken relationships.`\
-https://nytimes.com/2024/05/28/health/sue-johnson-dead.html
-
-**What Barack Obama Understood About America**\
-`Our society is losing sight of qualities that kept America strong, like responsibility and civility but also the capacity to feel shame.`\
-https://nytimes.com/2024/05/28/opinion/trump-civility-society.html
 

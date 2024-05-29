@@ -1,3 +1,11 @@
+**Billionaire Plans Dive to the Titanic in a Newly Designed Submersible**\
+`Larry Connor, 74, who made his wealth in real estate, said he’s building a new acrylic-hulled submersible that will be certified and rigorously tested to show that deep sea exploration is safe.`\
+https://nytimes.com/2024/05/28/science/titanic-submersible-ohio-billionaire.html
+
+**Republican Navy Veteran Will Face Henry Cuellar in South Texas**\
+`The congressional district has slightly moved in favor of Republicans after Mr. Cuellar, a centrist Democrat, was indicted on federal charges.`\
+https://nytimes.com/2024/05/28/us/politics/henry-cuellar-jay-furman.html
+
 **Trump’s Case Heads to the Jury: 5 Takeaways From Closing Arguments**\
 `Defense lawyers and prosecutors tried strategy and stagecraft to sway jurors. The panel of 12 New Yorkers will get the case Wednesday morning.`\
 https://nytimes.com/2024/05/28/nyregion/trump-trial-closing-argument-takeways.html
