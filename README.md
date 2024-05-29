@@ -1,3 +1,11 @@
+**What to See in N.Y.C. Galleries in June**\
+`This week in Newly Reviewed, Max Lakin covers Alan Saret’s delicately chaotic sculptures, Jamie Nares’s two-venue retrospective and Robert Irwin’s panels of teal and smoky brown acrylic.`\
+https://nytimes.com/2024/05/29/arts/what-to-see-nyc-galleries-june.html
+
+**Barry Kemp, Who Unearthed Insights About Ancient Egypt, Dies at 84**\
+`The archaeologist wrote widely on everyday life under the pharaohs and did much of his fieldwork at Amarna, considered the Egyptian version of Pompeii.`\
+https://nytimes.com/2024/05/29/world/africa/barry-kemp-dead.html
+
 **Person Is Killed in Running Jet Engine at Amsterdam Airport**\
 `It was not immediately clear how the person ended up in the engine at Schiphol Airport on Wednesday.`\
 https://nytimes.com/2024/05/29/world/europe/klm-engine-death-amsterdam-airport.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/29/nyregion/grimaldis-pizzeria-wage-theft.html
 **‘Bad Breath Rapist’ Is Captured After Nearly 17 Years on the Run**\
 `Tuen Kit Lee, 55, who was convicted in 2007 of raping a woman in Massachusetts, had been living with a woman in California who “never knew who he really was,” the police said.`\
 https://nytimes.com/2024/05/29/us/bad-breath-rapist-captured.html
-
-**Americans Raced to Get Their Families Out of Gaza. Then the Border Slammed Shut.**\
-`The closure this month of the Rafah border crossing into Egypt, the only way out for civilians, has thrown an already complicated system into disarray.`\
-https://nytimes.com/2024/05/29/us/politics/gaza-relatives-escape.html
-
-**Nikki Haley’s Valentine to Civilian Death**\
-`It was message of savage revenge, with little apparent concern for whose blood will actually be shed.`\
-https://nytimes.com/live/2024/05/28/opinion/thepoint/nikki-haley-israel-gaza
 
