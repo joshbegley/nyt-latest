@@ -1,3 +1,11 @@
+**Is Trump Starting to Worry About a Conviction?**\
+`Railing at the judge, he said Mother Theresa couldn’t beat the charges.`\
+https://nytimes.com/live/2024/05/28/opinion/thepoint/trump-trial-jury
+
+**Susanne Page, Who Took Rare Photos of the Hopi and Navajo, Dies at 86**\
+`She was the first photographer allowed to document life among the Hopi, in the Southwest, since the early 20th century. Her work appeared in books and magazines.`\
+https://nytimes.com/2024/05/29/arts/susanne-page-dead.html
+
 **Richard Ellis, ‘Poet Laureate’ of Deep-Sea Creatures, Dies at 86**\
 `His prodigious paintings of whales and his books about sharks, giant squid and tuna were acclaimed for melding science with art.`\
 https://nytimes.com/2024/05/29/science/richard-ellis-dead.html
