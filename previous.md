@@ -1,4 +1,4 @@
-**I.M.F. Is Upbeat on China’s Growth But Questions Industrial Policy**\
+**I.M.F. Is Upbeat on China’s Growth but Questions Industrial Policy**\
 `Surging exports and factory investment are buoying China’s output, but the housing market faces serious troubles and industrial policies may hurt other countries.`\
 https://nytimes.com/2024/05/28/business/imf-china-economy.html
 
