@@ -1,3 +1,15 @@
+**This Is the Pizza I Make at Home**\
+`It splits the difference between pizza and focaccia, with an airy, olive-oil-enriched dough that can be adorned with whatever toppings you love (anchovies, of course!).`\
+https://nytimes.com/2024/05/29/dining/this-is-the-pizza-i-make-at-home.html
+
+**At City Ballet, a Once-in-a-Generation Dancer Arrives**\
+`Mira Nadon, the rising New York City Ballet principal, is coming off her best season yet. And it’s only the beginning.`\
+https://nytimes.com/2024/05/29/arts/dance/mira-nadon-new-york-city-ballet.html
+
+**The 6 Women Who Shaped America’s Most Macho President**\
+`In “The Loves of Theodore Roosevelt,” Edward F. O’Keefe explores the informal kitchen cabinet that helped Roosevelt, the 26th president, speak softly and carry a big stick.`\
+https://nytimes.com/2024/05/29/books/review/the-loves-of-theodore-roosevelt.html
+
 **‘Defeat by Truth’: Biden’s Gaza Critics Start an Anti-Trump Campaign**\
 `The effort by Black faith leaders and activists signals that at least some of President Biden’s critics on the left will work to defeat his Republican rival.`\
 https://nytimes.com/2024/05/29/us/politics/biden-trump-gaza-campaign.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/29/us/new-yale-president-maurie-mcinnis.html
 **Once a Sheriff’s Deputy in Florida, Now a Source of Disinformation From Russia**\
 `In 2016, Russia used an army of trolls to interfere in the U.S. presidential election. This year, an American given asylum in Moscow may be accomplishing much the same thing all by himself.`\
 https://nytimes.com/2024/05/29/business/mark-dougan-russia-disinformation.html
-
-**126 Degrees: New Delhi Sweats Through Its Hottest Recorded Day**\
-`For weeks now, temperatures in several states in northern India have been well over 110, and hospitals have been reporting a rise in heatstroke.`\
-https://nytimes.com/2024/05/29/world/asia/india-delhi-hottest-day-ever.html
-
-**What Penalties Could Trump Face if He Is Convicted?**\
-`Each of the 34 counts carries the possibility of up to four years in prison, but incarceration is not a given: Justice Juan M. Merchan could instead opt to impose a sentence of probation, with no prison time.`\
-https://nytimes.com/2024/05/29/nyregion/trump-convicted-jail-penalties.html
-
-**The Textbooks Were Wrong About That Map of the Tongue’s Taste Buds**\
-`The perception of taste is remarkably complex, not only on the tongue but in organs throughout the body.`\
-https://nytimes.com/2024/05/29/science/taste-buds-tongue-map.html
 
