@@ -1,3 +1,15 @@
+**Welcome Back, Pandas! Two Furry Diplomats Are Headed to D.C. Zoo**\
+`The pandas, Bao Li and Qing Bao, will be flown to the Smithsonian National Zoo from China before the end of the year.`\
+https://nytimes.com/2024/05/29/us/politics/panda-dc-zoo-china.html
+
+**Nikki Haley Writes ‘Finish Them’ on Artillery Shell in Israel**\
+`Her visit came just days after Israel drew international condemnation for a strike that killed dozens of Gazan civilians in a camp for displaced Palestinians.`\
+https://nytimes.com/2024/05/29/us/politics/nikki-haley-finish-them-israel.html
+
+**I’m Worried About Overfishing. Should I Give Up Fish?**\
+`The magazine’s Ethicist columnist on the limits of personal responsibility.`\
+https://nytimes.com/2024/05/29/magazine/ethics-of-eating-fish-pescatarian.html
+
 **The Best True Crime to Stream: Digital Dating and Coercive Control**\
 `Four picks across television, film and podcasting that explore a devastating, yet slippery, type of manipulation.`\
 https://nytimes.com/2024/05/29/arts/true-crime-streaming-coercive-control-catfish.html
