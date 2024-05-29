@@ -1,3 +1,7 @@
+**Which Cannes Films Might Become Oscar Contenders?**\
+`Films backed by the studio Neon have won Cannes and gone on to Oscar nominations regularly in the last few years. That’s one reason to keep an eye on “Anora.”`\
+https://nytimes.com/2024/05/29/movies/cannes-oscar-nominations.html
+
 **Judge’s Instructions Will Be a Road Map for Jury Weighing Trump’s Fate**\
 `Justice Juan M. Merchan is expected to explain the 34 charges of falsifying business records that Donald J. Trump faces. It is no simple task.`\
 https://nytimes.com/2024/05/29/nyregion/trump-trial-jury-instructions-judge.html
