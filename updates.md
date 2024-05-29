@@ -1,3 +1,7 @@
+**What’s in Our Queue? ‘Mr. & Mrs. Smith’ and More**\
+`I just wrapped up a reporting fellowship at The Times, covering space, physics and the intersection of science and society. Here are five things I’ve been indulging in lately.`\
+https://nytimes.com/interactive/2024/05/29/arts/editors-recommendations-smith.html
+
 **Pentagon Opens Ammunition Factory to Keep Arms Flowing to Ukraine**\
 `A plant still under construction in Mesquite, Texas, will soon turn out 30,000 artillery shells each month, roughly doubling current U.S. output.`\
 https://nytimes.com/2024/05/29/us/pentagon-ammunition-ukraine-russia.html

@@ -1,3 +1,7 @@
+**What’s in Our Queue? ‘Mr. & Mrs. Smith’ and More**\
+`I just wrapped up a reporting fellowship at The Times, covering space, physics and the intersection of science and society. Here are five things I’ve been indulging in lately.`\
+https://nytimes.com/interactive/2024/05/29/arts/editors-recommendations-smith.html
+
 **Pentagon Opens Ammunition Factory to Keep Arms Flowing to Ukraine**\
 `A plant still under construction in Mesquite, Texas, will soon turn out 30,000 artillery shells each month, roughly doubling current U.S. output.`\
 https://nytimes.com/2024/05/29/us/pentagon-ammunition-ukraine-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/100000009492905/rafah-strike-global-protests.htm
 **U.S. Will Not Withdraw Military Aid After Rafah Strike, Kirby Says**\
 `John F. Kirby, a White House spokesman, condemned the deadly Israeli airstrike in Rafah, but said that the attack was not enough to change U.S. policy.`\
 https://nytimes.com/video/us/politics/100000009493140/rafah-strike-israel-biden.html
-
-**Amid Orchestral Waves, the Sound of Cultures Conversing**\
-`“Natural History,” performed in Cincinnati, is a collaboration between the composer Michael Gordon and the Native American ensemble Steiger Butte Drum.`\
-https://nytimes.com/2024/05/29/arts/music/michael-gordon-natural-history-klamath-tribe.html
 
