@@ -1,3 +1,11 @@
+**Home Insurance Is Clobbering Consumers. Yet It’s Barely Counted as Inflation.**\
+`Skyrocketing premiums are hitting homeowners hard, but they barely factor into common price measures.`\
+https://nytimes.com/2024/05/29/business/economy/home-insurance-inflation.html
+
+**No Sophomore Slump for ‘We Are Lady Parts’**\
+`The comedy about a Muslim punk band returns for a raucous encore.`\
+https://nytimes.com/2024/05/29/arts/television/we-are-lady-parts-review.html
+
 **Former Intelligence Chief Tapped as Next Dutch Prime Minister**\
 `Dick Schoof is poised to be the country’s first new leader in over 13 years. His selection came as a relative surprise, after more than six months of negotiations to form a governing coalition.`\
 https://nytimes.com/2024/05/29/world/europe/netherlands-prime-minister-dick-schoof.html
