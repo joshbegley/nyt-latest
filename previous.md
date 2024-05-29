@@ -1,3 +1,7 @@
+**Quote of the Day: Small-Town Teams Are Conjuring Fans With Offbeat Brands**\
+`Quotation of the Day for Wednesday, May 29, 2024.`\
+https://nytimes.com/2024/05/28/pageoneplus/quote-of-the-day-small-town-teams-are-conjuring-fans-with-offbeat-brands.html
+
 **Corrections: May 29, 2024**\
 `Corrections that appeared in print on Wednesday, May 29, 2024.`\
 https://nytimes.com/2024/05/28/pageoneplus/corrections-may-29-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/28/business/imf-china-economy.html
 **Catch in the Act**\
 `Jeanne Breen makes her New York Times debut with a puzzle in collaboration with Jeff Chen.`\
 https://nytimes.com/2024/05/28/crosswords/daily-puzzle-2024-05-29.html
-
-**Haiti Names New Prime Minister to Try to Lead Country Out of Crisis**\
-`Garry Conille is taking on the office just ahead of the arrival of a Kenyan-led international police force charged with helping restore order to the violence-torn nation.`\
-https://nytimes.com/2024/05/28/world/americas/haiti-conille-prime-minister.html
 
