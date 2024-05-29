@@ -1,3 +1,7 @@
+**Which Cannes Films Might Become Oscar Contenders?**\
+`Films backed by the studio Neon have won Cannes and gone on to Oscar nominations regularly in the last few years. That’s one reason to keep an eye on “Anora.”`\
+https://nytimes.com/2024/05/29/movies/cannes-oscar-nominations.html
+
 **Judge’s Instructions Will Be a Road Map for Jury Weighing Trump’s Fate**\
 `Justice Juan M. Merchan is expected to explain the 34 charges of falsifying business records that Donald J. Trump faces. It is no simple task.`\
 https://nytimes.com/2024/05/29/nyregion/trump-trial-jury-instructions-judge.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/29/world/israel-gaza-war-hamas-rafah/a-senior-i
 **You Can’t Perform a Good Marriage**\
 `Ashley Madison and the pitfalls of a public relationship.`\
 https://nytimes.com/2024/05/29/opinion/ashley-madison.html
-
-**Apex, the Largest Stegosaurus Fossil Ever Found, Heads to Auction**\
-`The specimen, found by the paleontologist Jason Cooper, could be auctioned for millions of dollars by Sotheby’s.`\
-https://nytimes.com/2024/05/29/science/stegosaurus-fossil-auction-sothebys.html
 
