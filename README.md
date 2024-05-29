@@ -1,3 +1,7 @@
+**Volcano Erupts in Iceland, Spewing Lava 150 Feet Into the Air**\
+`Guests staying at the Blue Lagoon spa and surrounding hotels were ordered to evacuate hours before the eruption occurred.`\
+https://nytimes.com/2024/05/29/world/europe/iceland-volcano-erupts-grindavik.html
+
 **Jury in Trump Case Will Weigh a Monumental Decision in a Utilitarian Space**\
 `Jurors are considering the former president’s fate in a room as unexceptional as the dry ledger entries, checks and invoices at the heart of his trial.`\
 https://nytimes.com/2024/05/29/nyregion/trump-trial-courtroom-jury-decision.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/29/us/alito-supreme-court-recusal-flag.html
 **What’s in Our Queue? ‘Mr. & Mrs. Smith’ and More**\
 `I just wrapped up a reporting fellowship at The Times, covering space, physics and the intersection of science and society. Here are five things I’ve been indulging in lately.`\
 https://nytimes.com/interactive/2024/05/29/arts/editors-recommendations-smith.html
-
-**Pentagon Opens Ammunition Factory to Keep Arms Flowing to Ukraine**\
-`A plant still under construction in Mesquite, Texas, will soon turn out 30,000 artillery shells each month, roughly doubling current U.S. output.`\
-https://nytimes.com/2024/05/29/us/pentagon-ammunition-ukraine-russia.html
 
