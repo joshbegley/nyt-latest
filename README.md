@@ -1,3 +1,11 @@
+**Former Intelligence Chief Tapped as Next Dutch Prime Minister**\
+`Dick Schoof is poised to be the country’s first new leader in over 13 years. His selection came as a relative surprise, after more than six months of negotiations to form a governing coalition.`\
+https://nytimes.com/2024/05/29/world/europe/netherlands-prime-minister-dick-schoof.html
+
+**The Stalled Pandemic Accords Offer an Opportunity for Vaccine Equity**\
+`Pandemics don’t care about nation-state borders.`\
+https://nytimes.com/live/2024/05/28/opinion/thepoint/the-stalled-pandemic-accords-offer-an-opportunity-for-vaccine-equity
+
 **Read the Jury Instructions in the Trump Manhattan Criminal Trial**\
 `The judge in former President Donald J. Trump’s Manhattan criminal trial, Juan M. Merchan, issued instructions to jurors on Wednesday that serve as a guide to applying the law in deliberations.`\
 https://nytimes.com/interactive/2024/05/29/nyregion/judge-trump-hush-money-trial-jury-instructions.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/29/magazine/ethics-of-eating-fish-pescatarian.html
 **The Best True Crime to Stream: Digital Dating and Coercive Control**\
 `Four picks across television, film and podcasting that explore a devastating, yet slippery, type of manipulation.`\
 https://nytimes.com/2024/05/29/arts/true-crime-streaming-coercive-control-catfish.html
-
-**Can You Guess the Country? A New Geography Photo Quiz for Students**\
-`Test your geography knowledge using photographs from around the world.`\
-https://nytimes.com/interactive/2024/05/29/learning/28CountryPhotoQuizLN.html
-
-**Jury Deliberations Are Starting in Trump’s Trial. Here’s How They Work.**\
-`The 12 unidentified jurors have retreated behind closed doors and started to debate whether the first president to be criminally prosecuted has committed felony crimes.`\
-https://nytimes.com/2024/05/29/nyregion/jury-deliberations-trump-trial.html
 
