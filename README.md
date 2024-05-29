@@ -1,3 +1,11 @@
+**Israel declares it has ‘tactical control’ over a strategic Gaza corridor on the border with Egypt.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/05/29/world/israel-gaza-war-hamas-rafah/israel-declares-it-has-tactical-control-over-strategic-gaza-corridor-on-the-border-with-egypt
+
+**Alito Refuses Calls for Recusal Over Display of Provocative Flags**\
+`“My wife is fond of flying flags,” the justice wrote in a letter to members of Congress who had demanded he step down from two cases related to the Jan. 6 attack. “I am not.”`\
+https://nytimes.com/2024/05/29/us/alito-supreme-court-recusal-flag.html
+
 **The Tories Will Lose the Election. But What Will Labour Win?**\
 `British voters are fed up with the Tories, and a change election seems inevitable. But Labour does not seem poised to capitalize on the moment.`\
 https://nytimes.com/2024/05/29/opinion/tories-labour-britain-snap-election.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/29/world/europe/netherlands-prime-minister-dick-scho
 **The Stalled Pandemic Accords Offer an Opportunity for Vaccine Equity**\
 `Pandemics don’t care about nation-state borders.`\
 https://nytimes.com/live/2024/05/28/opinion/thepoint/the-stalled-pandemic-accords-offer-an-opportunity-for-vaccine-equity
-
-**Read the Jury Instructions in the Trump Manhattan Criminal Trial**\
-`The judge in former President Donald J. Trump’s Manhattan criminal trial, Juan M. Merchan, issued instructions to jurors on Wednesday that serve as a guide to applying the law in deliberations.`\
-https://nytimes.com/interactive/2024/05/29/nyregion/judge-trump-hush-money-trial-jury-instructions.html
-
-**Pro-Palestinian Protesters March in Cities Around the World**\
-`Pro-Palestinian demonstrators marched by the thousands and some clashed with police after an Israeli strike killed dozens of people at a tent camp sheltering displaced people in Rafah, Gaza.`\
-https://nytimes.com/video/world/100000009492905/rafah-strike-global-protests.html
 
