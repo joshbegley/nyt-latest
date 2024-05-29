@@ -1,5 +1,9 @@
 **An 81-Year-Old ‘Serial Slingshot Shooter’ Is Arrested After Decade of Mischief**\
 `Residents in Azusa, Calif., have been plagued by broken windows for years. The police say they have found the man who did it.`\
+https://nytimes.com/2024/05/29/us/man-arrested-slingshot-azusa-california.html
+
+**An 81-Year-Old ‘Serial Slingshot Shooter’ Is Arrested After Decade of Mischief**\
+`Residents in Azusa, Calif., have been plagued by broken windows for years. The police say they have found the man who did it.`\
 https://nytimes.com/2024/05/29/sports/man-arrested-slingshot-azusa-california.html
 
 **Divisions Set to Deepen in Georgia After Foreign Influence Law Passes**\
