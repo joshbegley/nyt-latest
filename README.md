@@ -1,3 +1,11 @@
+**Divisions Set to Deepen in Georgia After Foreign Influence Law Passes**\
+`Many Georgians see restrictions on organizations that receive international funding as a sign their country is moving away from the West and toward a Russia they abhor.`\
+https://nytimes.com/2024/05/29/world/europe/georgia-protests-russia.html
+
+**‘All Eyes on Rafah’ Surges on Social Media After a Deadly Israeli Strike**\
+`The slogan, which has been a touchstone for pro-Palestinian demonstrators for months, ricocheted across social media this week.`\
+https://nytimes.com/2024/05/29/world/middleeast/all-eyes-on-rafah.html
+
 **Another Big Oil Deal Despite Regulatory Pushback and Market Volatility**\
 `ConocoPhillips has agreed to buy Marathon Oil for $22.5 billion, as consolidation in the U.S. energy sector shows little sign of slowing down.`\
 https://nytimes.com/2024/05/29/business/dealbook/oil-merger-conocophillips-marathon.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/29/briefing/democrats-who-are-winning.html
 **Biden and Harris Make New Push to Strengthen Support From Black Voters**\
 `In their latest effort to court a crucial group of voters, the two leading Democrats will roll out an initiative called Black Voters for Biden-Harris at a rally in Philadelphia.`\
 https://nytimes.com/2024/05/29/us/politics/biden-harris-black-voters.html
-
-**The Closing Arguments in the Trump Trial**\
-`What happened during the last day of arguments at the historic criminal trial in Manhattan.`\
-https://nytimes.com/2024/05/29/podcasts/the-daily/closing-arguments-trump-trial.html
-
-**Jury to Consider Trump Charges, and U.S.-Made Bombs Were Used in Rafah Strike**\
-`Plus, a plot to sell Graceland.`\
-https://nytimes.com/2024/05/29/podcasts/jury-trump-us-bombs-rafah.html
 
