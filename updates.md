@@ -1,3 +1,7 @@
+**18 Charged in Gang Violence That Killed Two 16-Year-Old Boys**\
+`The authorities said those charged were as young as 15 when they committed crimes around Brooklyn that included murder.`\
+https://nytimes.com/2024/05/29/nyregion/gang-violence-murder-charges-brooklyn.html
+
 **Volcano Erupts in Iceland**\
 `Nearly 800 guests staying at the Blue Lagoon spa and surrounding hotels were ordered to evacuate hours before a volcano in southwestern Iceland erupted.`\
 https://nytimes.com/video/world/europe/100000009494513/iceland-volcano-eruption.html

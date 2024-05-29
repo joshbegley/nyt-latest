@@ -1,3 +1,7 @@
+**18 Charged in Gang Violence That Killed Two 16-Year-Old Boys**\
+`The authorities said those charged were as young as 15 when they committed crimes around Brooklyn that included murder.`\
+https://nytimes.com/2024/05/29/nyregion/gang-violence-murder-charges-brooklyn.html
+
 **Volcano Erupts in Iceland**\
 `Nearly 800 guests staying at the Blue Lagoon spa and surrounding hotels were ordered to evacuate hours before a volcano in southwestern Iceland erupted.`\
 https://nytimes.com/video/world/europe/100000009494513/iceland-volcano-eruption.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/29/briefing/trump-trial-jury-deliberations-south-afr
 **Team Biden’s Urgent Pitch to Black Voters in Philadelphia**\
 `But it’s not easy to get tuned-out voters to care.`\
 https://nytimes.com/live/2024/05/28/opinion/thepoint/biden-campaign-black-voters-philadelphia
-
-**The Scene Outside the Trump Trial Mellows as Deliberations Start. Sort of.**\
-`Even a more sedate day outside the trial of Donald J. Trump includes spectacle and confrontation.`\
-https://nytimes.com/2024/05/29/nyregion/collect-pond-park-trump-scene.html
 
