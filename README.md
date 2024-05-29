@@ -1,3 +1,11 @@
+**Prosecutors Leave the Jury With a Mountain of Evidence Against Trump**\
+`But it’s not easy for jurors to stay attentive after a long day of closing arguments.`\
+https://nytimes.com/live/2024/05/28/opinion/thepoint/trump-trial-closing-arguments
+
+**Menendez Jurors Hear Audio and See Texts From Seized Phones**\
+`Prosecutors introduced private messages between Senator Robert Menendez and his future wife to show what they say was the start of a bribery conspiracy.`\
+https://nytimes.com/2024/05/28/nyregion/robert-nadine-menendez-text-messages.html
+
 **I.M.F. Is Upbeat on China’s Growth but Questions Industrial Policy**\
 `Surging exports and factory investment are buoying China’s output, but the housing market faces serious troubles and industrial policies may hurt other countries.`\
 https://nytimes.com/2024/05/28/business/imf-china-economy.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/28/nyregion/trump-trial-prosecution-argument.html
 **It’s Over to the Jury**\
 `After closing arguments, the Manhattan trial is in the endgame.`\
 https://nytimes.com/2024/05/28/us/politics/trump-trial-closing-argument-jury-deliberation.html
-
-**NYU Nurse Is Fired After Calling the Gaza War a ‘Genocide’ in Speech**\
-`NYU Langone Health gave the nurse, Hesen Jabr, an award for her work. She said hospital officials then fired her because she made pro-Palestinian remarks in an acceptance speech.`\
-https://nytimes.com/2024/05/28/nyregion/nyu-langone-nurse-fired-gaza-war.html
-
-**U.N. says it is struggling to keep operating in Gaza because of Israel’s expanding offensive.**\
-`By Farnaz Fassihi`\
-https://nytimes.com/live/2024/05/28/world/israel-gaza-war-hamas-rafah/un-says-it-is-struggling-to-keep-operating-in-gaza-because-of-israels-expanding-offensive
 
