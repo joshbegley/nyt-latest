@@ -1,3 +1,7 @@
+**Texas Congressman Wins Runoff, Bolstering G.O.P. Effort to Hold House**\
+`Representative Tony Gonzales’s narrow victory over a far-right challenger came after a divisive race for the party, and most likely strengthened Republicans’ grip on the border district.`\
+https://nytimes.com/2024/05/29/us/elections/tony-gonzales-brandon-herrera-texas.html
+
 **Wednesday Briefing**\
 `We’re covering closing arguments in Donald Trump’s trial and Election Day in South Africa.`\
 https://nytimes.com/2024/05/29/briefing/trump-trial-rafah-south-africa.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/28/pageoneplus/quote-of-the-day-small-town-teams-are
 **Corrections: May 29, 2024**\
 `Corrections that appeared in print on Wednesday, May 29, 2024.`\
 https://nytimes.com/2024/05/28/pageoneplus/corrections-may-29-2024.html
-
-**Closing Arguments Finished, Trump’s Case Heads to the Jury**\
-`The prosecution and the defense made their final pitches to jurors. Jonah Bromwich, a criminal justice reporter at The New York Times, gives his takeaways.`\
-https://nytimes.com/video/nyregion/100000009492424/closing-arguments-finished-trumps-case-heads-to-the-jury.html
 
