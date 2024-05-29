@@ -1,3 +1,7 @@
+**Word of the Day: synopsis**\
+`This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/29/learning/word-of-the-day-synopsis.html
+
 **Texas Congressman Wins Runoff, Bolstering G.O.P. Effort to Hold House**\
 `Representative Tony Gonzales’s narrow victory over a far-right challenger came after a divisive race for the party, and most likely strengthened Republicans’ grip on the border district.`\
 https://nytimes.com/2024/05/29/us/elections/tony-gonzales-brandon-herrera-texas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/29/world/africa/south-africa-election-opposition-par
 **Quote of the Day: Small-Town Teams Are Conjuring Fans With Offbeat Brands**\
 `Quotation of the Day for Wednesday, May 29, 2024.`\
 https://nytimes.com/2024/05/28/pageoneplus/quote-of-the-day-small-town-teams-are-conjuring-fans-with-offbeat-brands.html
-
-**Corrections: May 29, 2024**\
-`Corrections that appeared in print on Wednesday, May 29, 2024.`\
-https://nytimes.com/2024/05/28/pageoneplus/corrections-may-29-2024.html
 

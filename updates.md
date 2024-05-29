@@ -1,3 +1,7 @@
+**Word of the Day: synopsis**\
+`This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/29/learning/word-of-the-day-synopsis.html
+
 **Texas Congressman Wins Runoff, Bolstering G.O.P. Effort to Hold House**\
 `Representative Tony Gonzales’s narrow victory over a far-right challenger came after a divisive race for the party, and most likely strengthened Republicans’ grip on the border district.`\
 https://nytimes.com/2024/05/29/us/elections/tony-gonzales-brandon-herrera-texas.html
