@@ -1,3 +1,7 @@
+**In the ‘Demandingly Joyful Company’ of Socrates and Plato**\
+`Responses to an essay about the role of liberal arts in higher education. Also: Tim Scott; political violence; saving Marilyn Monroe’s house; FAFSA.`\
+https://nytimes.com/2024/05/29/opinion/college-humanities-liberal-arts.html
+
 **Home Insurance Is Clobbering Consumers. Yet It’s Barely Counted as Inflation.**\
 `Skyrocketing premiums are hitting homeowners hard, but they barely factor into common price measures.`\
 https://nytimes.com/2024/05/29/business/economy/home-insurance-inflation.html

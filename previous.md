@@ -1,3 +1,7 @@
+**In the ‘Demandingly Joyful Company’ of Socrates and Plato**\
+`Responses to an essay about the role of liberal arts in higher education. Also: Tim Scott; political violence; saving Marilyn Monroe’s house; FAFSA.`\
+https://nytimes.com/2024/05/29/opinion/college-humanities-liberal-arts.html
+
 **Home Insurance Is Clobbering Consumers. Yet It’s Barely Counted as Inflation.**\
 `Skyrocketing premiums are hitting homeowners hard, but they barely factor into common price measures.`\
 https://nytimes.com/2024/05/29/business/economy/home-insurance-inflation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/29/arts/music/michael-gordon-natural-history-klamath
 **Welcome Back, Pandas! Two Furry Diplomats Are Headed to D.C. Zoo**\
 `The pandas, Bao Li and Qing Bao, will be flown to the Smithsonian National Zoo from China before the end of the year.`\
 https://nytimes.com/2024/05/29/us/politics/panda-dc-zoo-china.html
-
-**Nikki Haley Writes ‘Finish Them’ on Artillery Shell in Israel**\
-`Her visit came just days after Israel drew international condemnation for a strike that killed dozens of Gazan civilians in a camp for displaced Palestinians.`\
-https://nytimes.com/2024/05/29/us/politics/nikki-haley-finish-them-israel.html
 
