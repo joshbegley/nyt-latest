@@ -1,3 +1,7 @@
+**Here’s What the Prosecution Said in Its Closing Argument in the Trump Trial**\
+`Donald J. Trump orchestrated a conspiracy that influenced the outcome of the 2016 election, the prosecutor, Joshua Steinglass, said.`\
+https://nytimes.com/2024/05/28/nyregion/trump-trial-prosecution-argument.html
+
 **It’s Over to the Jury**\
 `After closing arguments, the Manhattan trial is in the endgame.`\
 https://nytimes.com/2024/05/28/us/politics/trump-trial-closing-argument-jury-deliberation.html
