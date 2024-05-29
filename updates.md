@@ -1,3 +1,7 @@
+**The Tories Will Lose the Election. But What Will Labour Win?**\
+`British voters are fed up with the Tories, and a change election seems inevitable. But Labour does not seem poised to capitalize on the moment.`\
+https://nytimes.com/2024/05/29/opinion/tories-labour-britain-snap-election.html
+
 **What’s in Our Queue? ‘Mr. & Mrs. Smith’ and More**\
 `I just wrapped up a reporting fellowship at The Times, covering space, physics and the intersection of science and society. Here are five things I’ve been indulging in lately.`\
 https://nytimes.com/interactive/2024/05/29/arts/editors-recommendations-smith.html

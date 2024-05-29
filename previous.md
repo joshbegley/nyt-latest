@@ -1,3 +1,7 @@
+**The Tories Will Lose the Election. But What Will Labour Win?**\
+`British voters are fed up with the Tories, and a change election seems inevitable. But Labour does not seem poised to capitalize on the moment.`\
+https://nytimes.com/2024/05/29/opinion/tories-labour-britain-snap-election.html
+
 **What’s in Our Queue? ‘Mr. & Mrs. Smith’ and More**\
 `I just wrapped up a reporting fellowship at The Times, covering space, physics and the intersection of science and society. Here are five things I’ve been indulging in lately.`\
 https://nytimes.com/interactive/2024/05/29/arts/editors-recommendations-smith.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/05/29/nyregion/judge-trump-hush-money-trial
 **Pro-Palestinian Protesters March in Cities Around the World**\
 `Pro-Palestinian demonstrators marched by the thousands and some clashed with police after an Israeli strike killed dozens of people at a tent camp sheltering displaced people in Rafah, Gaza.`\
 https://nytimes.com/video/world/100000009492905/rafah-strike-global-protests.html
-
-**U.S. Will Not Withdraw Military Aid After Rafah Strike, Kirby Says**\
-`John F. Kirby, a White House spokesman, condemned the deadly Israeli airstrike in Rafah, but said that the attack was not enough to change U.S. policy.`\
-https://nytimes.com/video/us/politics/100000009493140/rafah-strike-israel-biden.html
 
