@@ -1,3 +1,7 @@
+**Owner and Manager of Grimaldi’s Pizzeria Plead Guilty to Wage Theft**\
+`The owner, Anthony Piscina, 63, and the manager, Frank Santora, 71, pleaded guilty to stealing more than $32,000 in wages from 18 employees.`\
+https://nytimes.com/2024/05/29/nyregion/grimaldis-pizzeria-wage-theft.html
+
 **‘Bad Breath Rapist’ Is Captured After Nearly 17 Years on the Run**\
 `Tuen Kit Lee, 55, who was convicted in 2007 of raping a woman in Massachusetts, had been living with a woman in California who “never knew who he really was,” the police said.`\
 https://nytimes.com/2024/05/29/us/bad-breath-rapist-captured.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/29/nyregion/trump-trial-courtroom-jury-decision.html
 **The Tories Will Lose the Election. But What Will Labour Win?**\
 `British voters are fed up with the Tories, and a change election seems inevitable. But Labour does not seem poised to capitalize on the moment.`\
 https://nytimes.com/2024/05/29/opinion/tories-labour-britain-snap-election.html
-
-**South Africans Vote, Many Hoping for Change as Seismic as Mandela’s Rise**\
-`In a high-stakes national election, the African National Congress, which has governed for three decades since the end of apartheid, may lose its outright majority for the first time.`\
-https://nytimes.com/2024/05/29/world/africa/south-africa-vote-election-anc.html
 
