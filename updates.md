@@ -1,3 +1,11 @@
+**Sleepless in Seattle as a Hellcat Roars Through the Streets**\
+`The modified Dodge Charger roaming Seattle’s downtown by night has infuriated residents. But it seems no one can stop it.`\
+https://nytimes.com/2024/05/29/us/seattle-belltown-hellcat.html
+
+**Aid Groups in Rafah Say Israel’s Advance Is Pushing Them Out**\
+`Hospitals, clinics and kitchens are shutting down, and transporting the wounded is a challenge on roads choked with debris and fleeing refugees.`\
+https://nytimes.com/2024/05/29/world/middleeast/gaza-rafah-aid-hospitals.html
+
 **This Is the Pizza I Make at Home**\
 `It splits the difference between pizza and focaccia, with an airy, olive-oil-enriched dough that can be adorned with whatever toppings you love (anchovies, of course!).`\
 https://nytimes.com/2024/05/29/dining/this-is-the-pizza-i-make-at-home.html
