@@ -1,3 +1,7 @@
+**This Easy Party Menu Makes Summer Classics Extra Special**\
+`The former Chez Panisse chef David Tanis puts his spin on a well-known seasonal bill of fare: a salad, burger and a crumble.`\
+https://nytimes.com/2024/05/29/dining/lamb-burger-salad-crumble-summer-menu.html
+
 **House Ethics Panel Will Investigate Cuellar on Bribery Charges**\
 `The committee voted unanimously to scrutinize the Texas Democrat’s conduct after his indictment this month on federal bribery and corruption charges.`\
 https://nytimes.com/2024/05/29/us/politics/house-ethics-panel-henry-cuellar-bribery-charges.html
