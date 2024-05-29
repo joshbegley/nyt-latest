@@ -1,3 +1,7 @@
+**Watch: Campaign Ads From Democrats in 6 Close Senate Races**\
+`In each state, a Democrat leads the Senate race while Donald Trump leads the presidential race.`\
+https://nytimes.com/2024/05/29/briefing/the-morning-senate-campaign-ads.html
+
 **Israel Used U.S.-Made Bombs in Strike That Killed Dozens Near Rafah**\
 `The munitions used in an attack on a camp for displaced people were identified by weapons experts and a Times visual analysis.`\
 https://nytimes.com/live/2024/05/29/world/israel-gaza-war-hamas-rafah
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/29/briefing/trump-trial-rafah-south-africa.html
 **Ancient Skull With Brain Cancer Preserves Clues to Egyptian Medicine**\
 `Cuts in the cranium, which is more than 4,000 years old, hint that people in the ancient civilization attempted to treat a scourge that persists today.`\
 https://nytimes.com/2024/05/29/science/brain-cancer-ancient-egypt-skull.html
-
-**A Show That Makes Young Japanese Pine for the ‘Inappropriate’ 1980s**\
-`A surprise television hit, now on Netflix, has people talking about what Japan has lost with today’s changed sensibilities.`\
-https://nytimes.com/2024/05/29/world/asia/japan-extremely-inappropriate.html
 
