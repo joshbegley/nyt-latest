@@ -1,3 +1,7 @@
+**Wednesday Briefing**\
+`We’re covering closing arguments in Donald Trump’s trial and Election Day in South Africa.`\
+https://nytimes.com/2024/05/29/briefing/trump-trial-rafah-south-africa.html
+
 **Ancient Skull With Brain Cancer Preserves Clues to Egyptian Medicine**\
 `Cuts in the cranium, which is more than 4,000 years old, hint that people in the ancient civilization attempted to treat a scourge that persists today.`\
 https://nytimes.com/2024/05/29/science/brain-cancer-ancient-egypt-skull.html
