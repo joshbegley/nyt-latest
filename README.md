@@ -2,8 +2,8 @@
 `President Biden and former President Donald J. Trump’s rematch is testing their ability to make the traditional appearances on the trail that voters have come to expect.`\
 https://nytimes.com/interactive/2024/us/politics/biden-trump-2024-campaign.html
 
-**A new cease-fire proposal circulates at the U.N., driven by outrage over Israel’s strike on a tent camp.**\
-`By Farnaz Fassihi`\
+**New Cease-Fire Proposal Circulates at U.N., Driven by Outrage Over Israel’s Strike on a Tent Camp**\
+`Algeria, the only Arab representative in the current makeup of the Security Council, drafted the resolution.`\
 https://nytimes.com/2024/05/29/world/middleeast/algeria-gaza-ceasefire-proposal-un.html
 
 **From Allies and Advisers, Pressure Grows on Biden to Allow Attacks on Russian Territory**\
