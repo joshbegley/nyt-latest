@@ -1,3 +1,7 @@
+**Team Biden’s Urgent Pitch to Black Voters in Philadelphia**\
+`But it’s not easy to get tuned-out voters to care.`\
+https://nytimes.com/live/2024/05/28/opinion/thepoint/biden-campaign-black-voters-philadelphia
+
 **The Scene Outside the Trump Trial Mellows as Deliberations Start. Sort of.**\
 `Even a more sedate day outside the trial of Donald J. Trump includes spectacle and confrontation.`\
 https://nytimes.com/2024/05/29/nyregion/collect-pond-park-trump-scene.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/28/opinion/thepoint/trump-trial-jury
 **Susanne Page, Who Took Rare Photos of the Hopi and Navajo, Dies at 86**\
 `She was the first photographer allowed to document life among the Hopi, in the Southwest, since the early 20th century. Her work appeared in books and magazines.`\
 https://nytimes.com/2024/05/29/arts/susanne-page-dead.html
-
-**Richard Ellis, ‘Poet Laureate’ of Deep-Sea Creatures, Dies at 86**\
-`His prodigious paintings of whales and his books about sharks, giant squid and tuna were acclaimed for melding science with art.`\
-https://nytimes.com/2024/05/29/science/richard-ellis-dead.html
 
