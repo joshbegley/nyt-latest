@@ -1,3 +1,7 @@
+**Is Trump Starting to Worry About a Conviction?**\
+`Railing at the judge, he said Mother Teresa couldn’t beat the charges.`\
+https://nytimes.com/live/2024/05/28/opinion/thepoint/trump-trial-jury
+
 **Person Is Killed in Running Jet Engine at Amsterdam Airport**\
 `It was not immediately clear how the person ended up in the engine at Schiphol Airport on Wednesday.`\
 https://nytimes.com/2024/05/29/world/europe/klm-engine-death-amsterdam-airport.html

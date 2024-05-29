@@ -3,7 +3,7 @@
 https://nytimes.com/2024/05/29/world/europe/klm-engine-death-amsterdam-airport.html
 
 **Is Trump Starting to Worry About a Conviction?**\
-`Railing at the judge, he said Mother Theresa couldn’t beat the charges.`\
+`Railing at the judge, he said Mother Teresa couldn’t beat the charges.`\
 https://nytimes.com/live/2024/05/28/opinion/thepoint/trump-trial-jury
 
 **Susanne Page, Who Took Rare Photos of the Hopi and Navajo, Dies at 86**\
