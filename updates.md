@@ -1,3 +1,11 @@
+**I.M.F. Is Upbeat on China’s Growth But Questions Industrial Policy**\
+`Surging exports and factory investment are buoying China’s output, but the housing market faces serious troubles and industrial policies may hurt other countries.`\
+https://nytimes.com/2024/05/28/business/imf-china-economy.html
+
+**Catch in the Act**\
+`Jeanne Breen makes her New York Times debut with a puzzle in collaboration with Jeff Chen.`\
+https://nytimes.com/2024/05/28/crosswords/daily-puzzle-2024-05-29.html
+
 **Haiti Names New Prime Minister to Try to Lead Country Out of Crisis**\
 `Garry Conille is taking on the office just ahead of the arrival of a Kenyan-led international police force charged with helping restore order to the violence-torn nation.`\
 https://nytimes.com/2024/05/28/world/americas/haiti-conille-prime-minister.html
