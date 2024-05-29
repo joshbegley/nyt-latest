@@ -1,3 +1,27 @@
+**Have You Ever Seen a Corgi Race?**\
+`At the Summer Corgi Nationals, the country’s finest racing corgis, and their over-the-top owners, celebrated everything about the breed.`\
+https://nytimes.com/card/2024/05/29/style/corgi-nationals-santa-anita
+
+**A senior Israeli official said that the war would last at least through the end of the year.**\
+`By Aaron Boxerman and Gabby Sobelman`\
+https://nytimes.com/live/2024/05/29/world/israel-gaza-war-hamas-rafah/a-senior-israeli-official-said-that-the-war-would-last-at-least-through-the-end-of-the-year
+
+**You Can’t Perform a Good Marriage**\
+`Ashley Madison and the pitfalls of a public relationship.`\
+https://nytimes.com/2024/05/29/opinion/ashley-madison.html
+
+**Apex, the Largest Stegosaurus Fossil Ever Found, Heads to Auction**\
+`The specimen, found by the paleontologist Jason Cooper, could be auctioned for millions of dollars by Sotheby’s.`\
+https://nytimes.com/2024/05/29/science/stegosaurus-fossil-auction-sothebys.html
+
+**Why Can’t I Break Into My New Boyfriend’s Friend Group?**\
+`A reader is anxious about the language barrier keeping her from bonding with her partner’s friends. A two-week group vacation has ramped up the urgency.`\
+https://nytimes.com/2024/05/29/style/partner-friend-group.html
+
+**This Is How Close We Live to Gun Violence**\
+`The New York Times mapped where and how the number of fatal shootings in the United States has grown since 2020.`\
+https://nytimes.com/2024/05/29/us/pandemic-gun-violence.html
+
 **An 81-Year-Old ‘Serial Slingshot Shooter’ Is Arrested After Decade of Mischief**\
 `Residents in Azusa, Calif., have been plagued by broken windows for years. The police say they have found the man who did it.`\
 https://nytimes.com/2024/05/29/us/man-arrested-slingshot-azusa-california.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/05/29/world/middleeast/all-eyes-on-rafah.html
 **Another Big Oil Deal Despite Regulatory Pushback and Market Volatility**\
 `ConocoPhillips has agreed to buy Marathon Oil for $22.5 billion, as consolidation in the U.S. energy sector shows little sign of slowing down.`\
 https://nytimes.com/2024/05/29/business/dealbook/oil-merger-conocophillips-marathon.html
-
-**American Airlines Is Accused of Discrimination in Lawsuit**\
-`Three Black men said they and five other Black men were removed from a Phoenix-to-New York flight in January for about an hour because of a complaint about body odor.`\
-https://nytimes.com/2024/05/29/business/american-airlines-discrimination-lawsuit-black-men.html
-
-**ConocoPhillips to Acquire Marathon Oil in $22.5 Billion Deal**\
-`The takeover is the latest in a wave of consolidation sweeping the oil industry, with the biggest players rushing to acquire smaller rivals.`\
-https://nytimes.com/2024/05/29/business/dealbook/marathon-oil-conocophillips-deal.html
-
-**‘I’ll be strong for you.’ A former hostage awaits her husband’s release.**\
-`By Nadav Gavrielov`\
-https://nytimes.com/live/2024/05/29/world/israel-gaza-war-hamas-rafah/ill-be-strong-for-you-a-former-hostage-awaits-her-husbands-release
-
-**Thousands around the world protest after the deadly Israeli strike in Rafah.**\
-`By Aurelien Breeden`\
-https://nytimes.com/live/2024/05/29/world/israel-gaza-war-hamas-rafah/thousands-around-the-world-protest-after-the-deadly-israeli-strike-in-rafah
-
-**In This English Countryside Race, the Winner Takes the … Cheese**\
-`Every year, thousands gather at a steep hill in southwestern England to watch competitors hurtle themselves after a coveted prize: a wheel of Double Gloucester.`\
-https://nytimes.com/2024/05/29/world/europe/uk-gloucester-cheese-rolling.html
-
-**Democrats Who Are Winning**\
-`We examine if populism is crucial to that appeal.`\
-https://nytimes.com/2024/05/29/briefing/democrats-who-are-winning.html
 
