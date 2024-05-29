@@ -1,3 +1,7 @@
+**Pro-Palestinian Protesters March in Cities Around the World**\
+`Pro-Palestinian demonstrators marched by the thousands and some clashed with police after an Israeli strike killed dozens of people at a tent camp sheltering displaced people in Rafah, Gaza.`\
+https://nytimes.com/video/world/100000009492905/rafah-strike-global-protests.html
+
 **U.S. Will Not Withdraw Military Aid After Rafah Strike, Kirby Says**\
 `John F. Kirby, a White House spokesman, condemned the deadly Israeli airstrike in Rafah, but said that the attack was not enough to change U.S. policy.`\
 https://nytimes.com/video/us/politics/100000009493140/rafah-strike-israel-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/29/nyregion/jury-deliberations-trump-trial.html
 **Sleepless in Seattle as a Hellcat Roars Through the Streets**\
 `The modified Dodge Charger roaming Seattle’s downtown by night has infuriated residents. But it seems no one can stop it.`\
 https://nytimes.com/2024/05/29/us/seattle-belltown-hellcat.html
-
-**Aid Groups in Rafah Say Israel’s Advance Is Pushing Them Out**\
-`Hospitals, clinics and kitchens are shutting down, and transporting the wounded is a challenge on roads choked with debris and fleeing refugees.`\
-https://nytimes.com/2024/05/29/world/middleeast/gaza-rafah-aid-hospitals.html
 
