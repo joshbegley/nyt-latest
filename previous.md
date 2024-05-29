@@ -10,13 +10,13 @@ https://nytimes.com/2024/05/28/nyregion/nyu-langone-nurse-fired-gaza-war.html
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/05/28/world/israel-gaza-war-hamas-rafah/un-says-it-is-struggling-to-keep-operating-in-gaza-because-of-israels-expanding-offensive
 
-**Israel Pushes Into Rafah as Displaced Palestinians Search for Safety**\
-`The Israeli military said it had deployed additional combat troops to the southern Gaza Strip, even as a growing chorus of voices demand an end to the fighting.`\
-https://nytimes.com/2024/05/28/world/middleeast/gaza-war-rafah.html
-
 **Gas Explosion Rips Facade Off Ohio Building, Injuring at Least 7**\
 `One person was in critical condition at a hospital after the midafternoon episode in Youngstown.`\
 https://nytimes.com/2024/05/28/us/gas-explosion-youngstown-ohio.html
+
+**Israel Pushes Into Rafah as Displaced Palestinians Search for Safety**\
+`The Israeli military said it had deployed additional combat troops to the southern Gaza Strip, even as a growing chorus of voices demand an end to the fighting.`\
+https://nytimes.com/2024/05/28/world/middleeast/gaza-war-rafah.html
 
 **Health Officials Tried to Evade Public Records Laws, Lawmakers Say**\
 `N.I.H. officials suggested federal record keepers helped them hide emails. If so, “that’s really damaging to trust in all of government,” one expert said.`\
