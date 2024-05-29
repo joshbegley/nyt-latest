@@ -2,7 +2,7 @@
 `The assessment, at odds with Prime Minister Benjamin Netanyahu’s assertion that the country is “on the brink of victory,” came as Israel claimed control of a key buffer strip along Egypt’s border.`\
 https://nytimes.com/2024/05/29/world/middleeast/gaza-israel-corridor-rafah.html
 
-**How a Coterie of Rappers Became Trump Evangelists**\
+**How a Group of Rappers Became Trump Evangelists**\
 `The seemingly transactional relationship between hip-hop artists and a politician with legal troubles.`\
 https://nytimes.com/2024/05/29/opinion/trump-rappers.html
 
