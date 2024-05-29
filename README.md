@@ -1,3 +1,7 @@
+**Thursday Briefing: A Hard Choice for the U.S. on Russia Attacks**\
+`Plus, New Delhi’s hottest day`\
+https://nytimes.com/2024/05/29/briefing/ukraine-new-delhi.html
+
 **Popcast (Deluxe): Did Dua Lipa Flop? + Miserable Pop Music Films**\
 `Discussing the imperfect rollout of Dua Lipa’s latest album, “Radical Optimism,” and the recent music movies “Back to Black” and “The Idea of You.”`\
 https://nytimes.com/2024/05/29/arts/music/dua-lipa-amy-winehouse-popcast-deluxe.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000009493816/panda-dc-zoo-china.html
 **Biden Asks What Trump Would Have Done if Capitol Rioters Were Black**\
 `“What do you think would have happened if Black Americans had stormed the Capitol?” the president said at a rally in Philadelphia. “I don’t think he’d be talking about pardons.”`\
 https://nytimes.com/2024/05/29/us/politics/biden-black-voters-philadelphia.html
-
-**Owner and Manager of Grimaldi’s Pizzeria Plead Guilty to Wage Theft**\
-`The owner, Anthony Piscina, 63, and the manager, Frank Santora, 71, pleaded guilty to stealing more than $32,000 in wages from 18 employees.`\
-https://nytimes.com/2024/05/29/nyregion/grimaldis-pizzeria-wage-theft.html
 
