@@ -1,3 +1,11 @@
+**Judge’s Instructions Will Be a Road Map for Jury Weighing Trump’s Fate**\
+`Justice Juan M. Merchan is expected to explain the 34 charges of falsifying business records that Donald J. Trump faces. It is no simple task.`\
+https://nytimes.com/2024/05/29/nyregion/trump-trial-jury-instructions-judge.html
+
+**Yale Chooses Head of Stony Brook University to Be New President**\
+`Maurie D. McInnis, a cultural historian, will be the first woman to serve as the school’s permanent president.`\
+https://nytimes.com/2024/05/29/us/new-yale-president-maurie-mcinnis.html
+
 **Once a Sheriff’s Deputy in Florida, Now a Source of Disinformation From Russia**\
 `In 2016, Russia used an army of trolls to interfere in the U.S. presidential election. This year, an American given asylum in Moscow may be accomplishing much the same thing all by himself.`\
 https://nytimes.com/2024/05/29/business/mark-dougan-russia-disinformation.html
