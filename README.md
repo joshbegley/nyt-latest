@@ -1,5 +1,5 @@
-**Jury in Trump Case Will Make a Monumental Decision in a Utilitarian Space**\
-`Jurors are weighing the former president’s fate in a room as unexceptional as the dry ledger entries, checks and invoices at the heart of his trial.`\
+**Jury in Trump Case Will Weigh a Monumental Decision in a Utilitarian Space**\
+`Jurors are considering the former president’s fate in a room as unexceptional as the dry ledger entries, checks and invoices at the heart of his trial.`\
 https://nytimes.com/2024/05/29/nyregion/trump-trial-courtroom-jury-decision.html
 
 **The Tories Will Lose the Election. But What Will Labour Win?**\
