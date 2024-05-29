@@ -1,3 +1,7 @@
+**This Easy Party Menu Makes Summer Classics Extra Special**\
+`The former Chez Panisse chef David Tanis puts his spin on a well-known seasonal bill of fare: a salad, burger and a crumble.`\
+https://nytimes.com/2024/05/29/dining/lamb-burger-salad-crumble-summer-menu.html
+
 **House Ethics Panel Will Investigate Cuellar on Bribery Charges**\
 `The committee voted unanimously to scrutinize the Texas Democrat’s conduct after his indictment this month on federal bribery and corruption charges.`\
 https://nytimes.com/2024/05/29/us/politics/house-ethics-panel-henry-cuellar-bribery-charges.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/29/opinion/alito-thomas-recuse-trump-jan-6.html
 **Israel declares it has ‘tactical control’ over a strategic Gaza corridor on the border with Egypt.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/05/29/world/israel-gaza-war-hamas-rafah/israel-declares-it-has-tactical-control-over-strategic-gaza-corridor-on-the-border-with-egypt
-
-**Alito Refuses Calls for Recusal Over Display of Provocative Flags**\
-`“My wife is fond of flying flags,” the justice wrote in a letter to members of Congress who had demanded he step down from two cases related to the Jan. 6 attack. “I am not.”`\
-https://nytimes.com/2024/05/29/us/alito-supreme-court-recusal-flag.html
 
