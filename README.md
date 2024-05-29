@@ -1,3 +1,11 @@
+**Sleepless in Seattle as a Hellcat Roars Through the Streets**\
+`The modified Dodge Charger roaming Seattle’s downtown by night has infuriated residents. But it seems no one can stop it.`\
+https://nytimes.com/2024/05/29/us/seattle-belltown-hellcat.html
+
+**Aid Groups in Rafah Say Israel’s Advance Is Pushing Them Out**\
+`Hospitals, clinics and kitchens are shutting down, and transporting the wounded is a challenge on roads choked with debris and fleeing refugees.`\
+https://nytimes.com/2024/05/29/world/middleeast/gaza-rafah-aid-hospitals.html
+
 **This Is the Pizza I Make at Home**\
 `It splits the difference between pizza and focaccia, with an airy, olive-oil-enriched dough that can be adorned with whatever toppings you love (anchovies, of course!).`\
 https://nytimes.com/2024/05/29/dining/this-is-the-pizza-i-make-at-home.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/29/movies/cannes-oscar-nominations.html
 **Judge’s Instructions Will Be a Road Map for Jury Weighing Trump’s Fate**\
 `Justice Juan M. Merchan is expected to explain the 34 charges of falsifying business records that Donald J. Trump faces. It is no simple task.`\
 https://nytimes.com/2024/05/29/nyregion/trump-trial-jury-instructions-judge.html
-
-**Yale Chooses Head of Stony Brook University to Be New President**\
-`Maurie D. McInnis, a cultural historian, will be the first woman to serve as the school’s permanent president.`\
-https://nytimes.com/2024/05/29/us/new-yale-president-maurie-mcinnis.html
-
-**Once a Sheriff’s Deputy in Florida, Now a Source of Disinformation From Russia**\
-`In 2016, Russia used an army of trolls to interfere in the U.S. presidential election. This year, an American given asylum in Moscow may be accomplishing much the same thing all by himself.`\
-https://nytimes.com/2024/05/29/business/mark-dougan-russia-disinformation.html
 
