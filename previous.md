@@ -1,3 +1,7 @@
+**Person Is Killed in Running Jet Engine at Amsterdam Airport**\
+`It was not immediately clear how the person ended up in the engine at Schiphol Airport on Wednesday.`\
+https://nytimes.com/2024/05/29/world/europe/klm-engine-death-amsterdam-airport.html
+
 **Is Trump Starting to Worry About a Conviction?**\
 `Railing at the judge, he said Mother Theresa couldn’t beat the charges.`\
 https://nytimes.com/live/2024/05/28/opinion/thepoint/trump-trial-jury
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/29/us/politics/gaza-relatives-escape.html
 **Nikki Haley’s Valentine to Civilian Death**\
 `It was message of savage revenge, with little apparent concern for whose blood will actually be shed.`\
 https://nytimes.com/live/2024/05/28/opinion/thepoint/nikki-haley-israel-gaza
-
-**Audra McDonald to Star in ‘Gypsy’ Revival on Broadway This Fall**\
-`The six-time Tony-winning actress will play musical theater’s most famous stage mother in a production directed by George C. Wolfe.`\
-https://nytimes.com/2024/05/29/theater/audra-mcdonald-broadway-gypsy.html
 
