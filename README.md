@@ -1,3 +1,11 @@
+**Nikki Haley Writes ‘Finish Them’ on Artillery Shell in Israel**\
+`Her visit came just days after Israel drew international condemnation for a strike that killed dozens of Gazan civilians in a camp for displaced Palestinians.`\
+https://nytimes.com/2024/05/29/us/politics/nikki-haley-finish-them-israel.html
+
+**I’m Worried About Overfishing. Should I Give Up Fish?**\
+`The magazine’s Ethicist columnist on the limits of personal responsibility.`\
+https://nytimes.com/2024/05/29/magazine/ethics-of-eating-fish-pescatarian.html
+
 **The Best True Crime to Stream: Digital Dating and Coercive Control**\
 `Four picks across television, film and podcasting that explore a devastating, yet slippery, type of manipulation.`\
 https://nytimes.com/2024/05/29/arts/true-crime-streaming-coercive-control-catfish.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/29/arts/dance/mira-nadon-new-york-city-ballet.html
 **The 6 Women Who Shaped America’s Most Macho President**\
 `In “The Loves of Theodore Roosevelt,” Edward F. O’Keefe explores the informal kitchen cabinet that helped Roosevelt, the 26th president, speak softly and carry a big stick.`\
 https://nytimes.com/2024/05/29/books/review/the-loves-of-theodore-roosevelt.html
-
-**‘Defeat by Truth’: Biden’s Gaza Critics Start an Anti-Trump Campaign**\
-`The effort by Black faith leaders and activists signals that at least some of President Biden’s critics on the left will work to defeat his Republican rival.`\
-https://nytimes.com/2024/05/29/us/politics/biden-trump-gaza-campaign.html
-
-**Teen’s Missing AirPod Leads to Arrest of Driver Accused of Hitting Him**\
-`Lochlan Nicol of Jensen Beach, Fla., was riding his bike when he was struck by an S.U.V. His AirPod landed inside the vehicle, allowing investigators to track down the driver.`\
-https://nytimes.com/2024/05/29/us/airpod-hit-and-run-florida.html
 
