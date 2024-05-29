@@ -1,3 +1,7 @@
+**The Textbooks Were Wrong About That Map of the Tongue’s Taste Buds**\
+`The perception of taste is remarkably complex, not only on the tongue but in organs throughout the body.`\
+https://nytimes.com/2024/05/29/science/taste-buds-tongue-map.html
+
 **Have You Ever Seen a Corgi Race?**\
 `At the Summer Corgi Nationals, the country’s finest racing corgis, and their over-the-top owners, celebrated everything about the breed.`\
 https://nytimes.com/card/2024/05/29/style/corgi-nationals-santa-anita
