@@ -1,3 +1,11 @@
+**Thursday Briefing: A Hard Choice for the U.S. on Russia Attacks**\
+`Plus, New Delhi’s hottest day`\
+https://nytimes.com/2024/05/29/briefing/ukraine-new-delhi.html
+
+**Popcast (Deluxe): Did Dua Lipa Flop? + Miserable Pop Music Films**\
+`Discussing the imperfect rollout of Dua Lipa’s latest album, “Radical Optimism,” and the recent music movies “Back to Black” and “The Idea of You.”`\
+https://nytimes.com/2024/05/29/arts/music/dua-lipa-amy-winehouse-popcast-deluxe.html
+
 **What to See in N.Y.C. Galleries in June**\
 `This week in Newly Reviewed, Max Lakin covers Alan Saret’s delicately chaotic sculptures, Jamie Nares’s two-venue retrospective and Robert Irwin’s panels of teal and smoky brown acrylic.`\
 https://nytimes.com/2024/05/29/arts/what-to-see-nyc-galleries-june.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000009493816/panda-dc-zoo-china.html
 **Biden Asks What Trump Would Have Done if Capitol Rioters Were Black**\
 `“What do you think would have happened if Black Americans had stormed the Capitol?” the president said at a rally in Philadelphia. “I don’t think he’d be talking about pardons.”`\
 https://nytimes.com/2024/05/29/us/politics/biden-black-voters-philadelphia.html
-
-**Owner and Manager of Grimaldi’s Pizzeria Plead Guilty to Wage Theft**\
-`The owner, Anthony Piscina, 63, and the manager, Frank Santora, 71, pleaded guilty to stealing more than $32,000 in wages from 18 employees.`\
-https://nytimes.com/2024/05/29/nyregion/grimaldis-pizzeria-wage-theft.html
-
-**‘Bad Breath Rapist’ Is Captured After Nearly 17 Years on the Run**\
-`Tuen Kit Lee, 55, who was convicted in 2007 of raping a woman in Massachusetts, had been living with a woman in California who “never knew who he really was,” the police said.`\
-https://nytimes.com/2024/05/29/us/bad-breath-rapist-captured.html
 

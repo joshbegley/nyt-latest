@@ -1,3 +1,11 @@
+**Thursday Briefing: A Hard Choice for the U.S. on Russia Attacks**\
+`Plus, New Delhi’s hottest day`\
+https://nytimes.com/2024/05/29/briefing/ukraine-new-delhi.html
+
+**Popcast (Deluxe): Did Dua Lipa Flop? + Miserable Pop Music Films**\
+`Discussing the imperfect rollout of Dua Lipa’s latest album, “Radical Optimism,” and the recent music movies “Back to Black” and “The Idea of You.”`\
+https://nytimes.com/2024/05/29/arts/music/dua-lipa-amy-winehouse-popcast-deluxe.html
+
 **What to See in N.Y.C. Galleries in June**\
 `This week in Newly Reviewed, Max Lakin covers Alan Saret’s delicately chaotic sculptures, Jamie Nares’s two-venue retrospective and Robert Irwin’s panels of teal and smoky brown acrylic.`\
 https://nytimes.com/2024/05/29/arts/what-to-see-nyc-galleries-june.html
