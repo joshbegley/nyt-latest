@@ -1,3 +1,7 @@
+**Trump’s Case Heads to the Jury: 5 Takeaways From Closing Arguments**\
+`Defense lawyers and prosecutors tried strategy and stagecraft to sway jurors. The panel of 12 New Yorkers will get the case Wednesday morning.`\
+https://nytimes.com/2024/05/28/nyregion/trump-trial-closing-argument-takeways.html
+
 **Here’s What the Prosecution Said in Its Closing Argument in the Trump Trial**\
 `Donald J. Trump orchestrated a conspiracy that influenced the outcome of the 2016 election, the prosecutor, Joshua Steinglass, said.`\
 https://nytimes.com/2024/05/28/nyregion/trump-trial-prosecution-argument.html
