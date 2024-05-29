@@ -1,3 +1,7 @@
+**Trump’s Fate Is Now in the Hands of the Jury**\
+`Also, home insurance rates are clobbering consumers. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/05/29/briefing/trump-trial-jury-deliberations-south-africa-election.html
+
 **Team Biden’s Urgent Pitch to Black Voters in Philadelphia**\
 `But it’s not easy to get tuned-out voters to care.`\
 https://nytimes.com/live/2024/05/28/opinion/thepoint/biden-campaign-black-voters-philadelphia
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/29/world/europe/klm-engine-death-amsterdam-airport.h
 **Is Trump Starting to Worry About a Conviction?**\
 `Railing at the judge, he said Mother Teresa couldn’t beat the charges.`\
 https://nytimes.com/live/2024/05/28/opinion/thepoint/trump-trial-jury
-
-**Susanne Page, Who Took Rare Photos of the Hopi and Navajo, Dies at 86**\
-`She was the first photographer allowed to document life among the Hopi, in the Southwest, since the early 20th century. Her work appeared in books and magazines.`\
-https://nytimes.com/2024/05/29/arts/susanne-page-dead.html
 

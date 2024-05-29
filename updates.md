@@ -1,3 +1,7 @@
+**Trump’s Fate Is Now in the Hands of the Jury**\
+`Also, home insurance rates are clobbering consumers. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/05/29/briefing/trump-trial-jury-deliberations-south-africa-election.html
+
 **Team Biden’s Urgent Pitch to Black Voters in Philadelphia**\
 `But it’s not easy to get tuned-out voters to care.`\
 https://nytimes.com/live/2024/05/28/opinion/thepoint/biden-campaign-black-voters-philadelphia
