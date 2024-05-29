@@ -1,3 +1,7 @@
+**What Penalties Could Trump Face if He Is Convicted?**\
+`Each of the 34 counts carries the possibility of up to four years in prison, but incarceration is not a given: Justice Juan M. Merchan could instead opt to impose a sentence of probation, with no prison time.`\
+https://nytimes.com/2024/05/29/nyregion/trump-convicted-jail-penalties.html
+
 **The Textbooks Were Wrong About That Map of the Tongue’s Taste Buds**\
 `The perception of taste is remarkably complex, not only on the tongue but in organs throughout the body.`\
 https://nytimes.com/2024/05/29/science/taste-buds-tongue-map.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/29/us/man-arrested-slingshot-azusa-california.html
 **Divisions Set to Deepen in Georgia After Foreign Influence Law Passes**\
 `Many Georgians see restrictions on organizations that receive international funding as a sign their country is moving away from the West and toward a Russia they abhor.`\
 https://nytimes.com/2024/05/29/world/europe/georgia-protests-russia.html
-
-**‘All Eyes on Rafah’ Surges on Social Media After a Deadly Israeli Strike**\
-`The slogan, which has been a touchstone for pro-Palestinian demonstrators for months, ricocheted across social media this week.`\
-https://nytimes.com/2024/05/29/world/middleeast/all-eyes-on-rafah.html
 
