@@ -1,3 +1,7 @@
+**Haiti Names New Prime Minister to Try to Lead Country Out of Crisis**\
+`Garry Conille is taking on the office just ahead of the arrival of a Kenyan-led international police force charged with helping restore order to the violence-torn nation.`\
+https://nytimes.com/2024/05/28/world/americas/haiti-conille-prime-minister.html
+
 **Billionaire Plans Dive to the Titanic in a Newly Designed Submersible**\
 `Larry Connor, 74, who made his wealth in real estate, said he’s building a new acrylic-hulled submersible that will be certified and rigorously tested to show that deep sea exploration is safe.`\
 https://nytimes.com/2024/05/28/science/titanic-submersible-ohio-billionaire.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/28/us/gas-explosion-youngstown-ohio.html
 **Israel Pushes Into Rafah as Displaced Palestinians Search for Safety**\
 `The Israeli military said it had deployed additional combat troops to the southern Gaza Strip, even as a growing chorus of voices demand an end to the fighting.`\
 https://nytimes.com/2024/05/28/world/middleeast/gaza-war-rafah.html
-
-**Health Officials Tried to Evade Public Records Laws, Lawmakers Say**\
-`N.I.H. officials suggested federal record keepers helped them hide emails. If so, “that’s really damaging to trust in all of government,” one expert said.`\
-https://nytimes.com/2024/05/28/health/nih-officials-foia-hidden-emails-covid.html
 
