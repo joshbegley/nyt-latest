@@ -1,3 +1,11 @@
+**Tracking Biden and Trump on the Campaign Trail**\
+`President Biden and former President Donald J. Trump’s rematch is testing their ability to make the traditional appearances on the trail that voters have come to expect.`\
+https://nytimes.com/interactive/2024/us/politics/biden-trump-2024-campaign.html
+
+**A new cease-fire proposal circulates at the U.N., driven by outrage over Israel’s strike on a tent camp.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/05/29/world/israel-gaza-war-hamas-rafah/algeria-gaza-ceasefire-proposal-un
+
 **From Allies and Advisers, Pressure Grows on Biden to Allow Attacks on Russian Territory**\
 `President Biden is weighing fears of escalation with a nuclear-armed adversary as he considers whether to reverse his ban on shooting American weapons into Russia.`\
 https://nytimes.com/2024/05/29/us/politics/biden-ukraine-russia-weapons.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/29/us/texas-republican-primaries-dade-phelan.html
 **Thursday Briefing: A Hard Choice for the U.S. on Russia Attacks**\
 `Plus, New Delhi’s hottest day`\
 https://nytimes.com/2024/05/29/briefing/ukraine-new-delhi.html
-
-**Popcast (Deluxe): Did Dua Lipa Flop? + Miserable Pop Music Films**\
-`Discussing the imperfect rollout of Dua Lipa’s latest album, “Radical Optimism,” and the recent music movies “Back to Black” and “The Idea of You.”`\
-https://nytimes.com/2024/05/29/arts/music/dua-lipa-amy-winehouse-popcast-deluxe.html
-
-**What to See in N.Y.C. Galleries in June**\
-`This week in Newly Reviewed, Max Lakin covers Alan Saret’s delicately chaotic sculptures, Jamie Nares’s two-venue retrospective and Robert Irwin’s panels of teal and smoky brown acrylic.`\
-https://nytimes.com/2024/05/29/arts/what-to-see-nyc-galleries-june.html
 
