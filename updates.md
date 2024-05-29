@@ -1,3 +1,11 @@
+**Former Intelligence Chief Tapped as Next Dutch Prime Minister**\
+`Dick Schoof is poised to be the country’s first new leader in over 13 years. His selection came as a relative surprise, after more than six months of negotiations to form a governing coalition.`\
+https://nytimes.com/2024/05/29/world/europe/netherlands-prime-minister-dick-schoof.html
+
+**The Stalled Pandemic Accords Offer an Opportunity for Vaccine Equity**\
+`Pandemics don’t care about nation-state borders.`\
+https://nytimes.com/live/2024/05/28/opinion/thepoint/the-stalled-pandemic-accords-offer-an-opportunity-for-vaccine-equity
+
 **Blinken Hints U.S. May Accept Ukrainian Strikes in Russia With American Arms**\
 `Secretary of State Antony J. Blinken made his remarks after some European leaders called on President Biden to lift the restrictions he as imposed on Ukraine’s use of U.S. weapons.`\
 https://nytimes.com/2024/05/29/world/europe/blinken-ukraine-weapons-russia.html
