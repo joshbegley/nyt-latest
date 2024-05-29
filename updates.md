@@ -1,3 +1,7 @@
+**Texas Congressman Wins Runoff, Bolstering G.O.P. Effort to Hold House**\
+`Representative Tony Gonzales’s narrow victory over a far-right challenger came after a divisive race for the party, and most likely strengthened Republicans’ grip on the border district.`\
+https://nytimes.com/2024/05/29/us/elections/tony-gonzales-brandon-herrera-texas.html
+
 **Wednesday Briefing**\
 `We’re covering closing arguments in Donald Trump’s trial and Election Day in South Africa.`\
 https://nytimes.com/2024/05/29/briefing/trump-trial-rafah-south-africa.html
