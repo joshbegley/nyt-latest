@@ -1,3 +1,7 @@
+**ConocoPhillips to Acquire Marathon Oil in $22.5 Billion Deal**\
+`The takeover is the latest in a wave of consolidation sweeping the oil industry, with the biggest players rushing to acquire smaller rivals.`\
+https://nytimes.com/2024/05/29/business/dealbook/marathon-oil-conocophillips-deal.html
+
 **‘I’ll be strong for you.’ A former hostage awaits her husband’s release.**\
 `By Nadav Gavrielov`\
 https://nytimes.com/live/2024/05/29/world/israel-gaza-war-hamas-rafah/ill-be-strong-for-you-a-former-hostage-awaits-her-husbands-release
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/29/crosswords/connections-companion-354.html
 **Wordle Review No. 1,076, May 30, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/05/29/crosswords/wordle-review-1076.html
-
-**Latest North Korean Offensive: Dumping Trash on South Korea From the Sky**\
-`North Korea has resumed an unusual operation to show its displeasure with South Korea.`\
-https://nytimes.com/2024/05/29/world/asia/north-korea-trash-balloons-south.html
 

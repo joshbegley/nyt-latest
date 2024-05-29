@@ -1,3 +1,7 @@
+**ConocoPhillips to Acquire Marathon Oil in $22.5 Billion Deal**\
+`The takeover is the latest in a wave of consolidation sweeping the oil industry, with the biggest players rushing to acquire smaller rivals.`\
+https://nytimes.com/2024/05/29/business/dealbook/marathon-oil-conocophillips-deal.html
+
 **Latest North Korean Offensive: Dumping Trash on South Korea From the Sky**\
 `North Korea has resumed an unusual operation to show its displeasure with South Korea.`\
 https://nytimes.com/2024/05/29/world/asia/north-korea-trash-balloons-south.html
