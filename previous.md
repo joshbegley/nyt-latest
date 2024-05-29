@@ -1,3 +1,7 @@
+**An 81-Year-Old ‘Serial Slingshot Shooter’ Is Arrested After Decade of Mischief**\
+`Residents in Azusa, Calif., have been plagued by broken windows for years. The police say they have found the man who did it.`\
+https://nytimes.com/2024/05/29/sports/man-arrested-slingshot-azusa-california.html
+
 **Divisions Set to Deepen in Georgia After Foreign Influence Law Passes**\
 `Many Georgians see restrictions on organizations that receive international funding as a sign their country is moving away from the West and toward a Russia they abhor.`\
 https://nytimes.com/2024/05/29/world/europe/georgia-protests-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/29/world/europe/uk-gloucester-cheese-rolling.html
 **Democrats Who Are Winning**\
 `We examine if populism is crucial to that appeal.`\
 https://nytimes.com/2024/05/29/briefing/democrats-who-are-winning.html
-
-**Biden and Harris Make New Push to Strengthen Support From Black Voters**\
-`In their latest effort to court a crucial group of voters, the two leading Democrats will roll out an initiative called Black Voters for Biden-Harris at a rally in Philadelphia.`\
-https://nytimes.com/2024/05/29/us/politics/biden-harris-black-voters.html
 

@@ -1,3 +1,7 @@
+**An 81-Year-Old ‘Serial Slingshot Shooter’ Is Arrested After Decade of Mischief**\
+`Residents in Azusa, Calif., have been plagued by broken windows for years. The police say they have found the man who did it.`\
+https://nytimes.com/2024/05/29/sports/man-arrested-slingshot-azusa-california.html
+
 **Divisions Set to Deepen in Georgia After Foreign Influence Law Passes**\
 `Many Georgians see restrictions on organizations that receive international funding as a sign their country is moving away from the West and toward a Russia they abhor.`\
 https://nytimes.com/2024/05/29/world/europe/georgia-protests-russia.html
