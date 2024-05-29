@@ -1,3 +1,7 @@
+**‘I’ll be strong for you.’ A former hostage awaits her husband’s release.**\
+`By Nadav Gavrielov`\
+https://nytimes.com/live/2024/05/29/world/israel-gaza-war-hamas-rafah/ill-be-strong-for-you-a-former-hostage-awaits-her-husbands-release
+
 **Thousands around the world protest after the deadly Israeli strike in Rafah.**\
 `By Aurelien Breeden`\
 https://nytimes.com/live/2024/05/29/world/israel-gaza-war-hamas-rafah/thousands-around-the-world-protest-after-the-deadly-israeli-strike-in-rafah
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/29/crosswords/wordle-review-1076.html
 **Latest North Korean Offensive: Dumping Trash on South Korea From the Sky**\
 `The South Korean military said on Wednesday that it found hundreds of balloons carrying garbage from North Korea.`\
 https://nytimes.com/2024/05/29/world/asia/north-korea-trash-balloons-south.html
-
-**Justice Alito’s Wife Has Managed to Avoid the Spotlight Until Now**\
-`Martha-Ann Alito has built a limited public life since moving to Washington that has mainly centered on apolitical projects and charity work.`\
-https://nytimes.com/2024/05/29/us/politics/martha-ann-alito.html
 
