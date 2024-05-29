@@ -1,3 +1,7 @@
+**The Textbooks Were Wrong About That Map of the Tongue’s Taste Buds**\
+`The perception of taste is remarkably complex, not only on the tongue but in organs throughout the body.`\
+https://nytimes.com/2024/05/29/science/taste-buds-tongue-map.html
+
 **Have You Ever Seen a Corgi Race?**\
 `At the Summer Corgi Nationals, the country’s finest racing corgis, and their over-the-top owners, celebrated everything about the breed.`\
 https://nytimes.com/card/2024/05/29/style/corgi-nationals-santa-anita
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/29/world/europe/georgia-protests-russia.html
 **‘All Eyes on Rafah’ Surges on Social Media After a Deadly Israeli Strike**\
 `The slogan, which has been a touchstone for pro-Palestinian demonstrators for months, ricocheted across social media this week.`\
 https://nytimes.com/2024/05/29/world/middleeast/all-eyes-on-rafah.html
-
-**Another Big Oil Deal Despite Regulatory Pushback and Market Volatility**\
-`ConocoPhillips has agreed to buy Marathon Oil for $22.5 billion, as consolidation in the U.S. energy sector shows little sign of slowing down.`\
-https://nytimes.com/2024/05/29/business/dealbook/oil-merger-conocophillips-marathon.html
 
