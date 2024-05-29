@@ -1,3 +1,7 @@
+**Pentagon Opens Ammunition Factory to Keep Arms Flowing to Ukraine**\
+`A plant still under construction in Mesquite, Texas, will soon turn out 30,000 artillery shells each month, roughly doubling current U.S. output.`\
+https://nytimes.com/2024/05/29/us/pentagon-ammunition-ukraine-russia.html
+
 **In the ‘Demandingly Joyful Company’ of Socrates and Plato**\
 `Responses to an essay about the role of liberal arts in higher education. Also: Tim Scott; political violence; saving Marilyn Monroe’s house; FAFSA.`\
 https://nytimes.com/2024/05/29/opinion/college-humanities-liberal-arts.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009493140/rafah-strike-israel-biden.
 **Amid Orchestral Waves, the Sound of Cultures Conversing**\
 `“Natural History,” performed in Cincinnati, is a collaboration between the composer Michael Gordon and the Native American ensemble Steiger Butte Drum.`\
 https://nytimes.com/2024/05/29/arts/music/michael-gordon-natural-history-klamath-tribe.html
-
-**Welcome Back, Pandas! Two Furry Diplomats Are Headed to D.C. Zoo**\
-`The pandas, Bao Li and Qing Bao, will be flown to the Smithsonian National Zoo from China before the end of the year.`\
-https://nytimes.com/2024/05/29/us/politics/panda-dc-zoo-china.html
 
