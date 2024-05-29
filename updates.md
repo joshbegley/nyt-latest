@@ -1,3 +1,7 @@
+**Volcano Erupts in Iceland, Spewing Lava 150 Feet Into the Air**\
+`Guests staying at the Blue Lagoon spa and surrounding hotels were ordered to evacuate hours before the eruption occurred.`\
+https://nytimes.com/2024/05/29/world/europe/iceland-volcano-erupts-grindavik.html
+
 **Jury in Trump Case Will Weigh a Monumental Decision in a Utilitarian Space**\
 `Jurors are considering the former president’s fate in a room as unexceptional as the dry ledger entries, checks and invoices at the heart of his trial.`\
 https://nytimes.com/2024/05/29/nyregion/trump-trial-courtroom-jury-decision.html
