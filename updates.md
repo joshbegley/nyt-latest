@@ -1,3 +1,7 @@
+**Israel declares it has ‘tactical control’ over a strategic Gaza corridor on the border with Egypt.**\
+`By Aaron Boxerman`\
+https://nytimes.com/2024/05/29/world/middleeast/israel-gaza-egypt-corridor-control.html
+
 **This Easy Party Menu Makes Summer Classics Extra Special**\
 `The former Chez Panisse chef David Tanis puts his spin on a well-known seasonal bill of fare: a salad, burger and a crumble.`\
 https://nytimes.com/2024/05/29/dining/lamb-burger-salad-crumble-summer-menu.html

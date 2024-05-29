@@ -36,5 +36,5 @@ https://nytimes.com/2024/05/29/opinion/alito-thomas-recuse-trump-jan-6.html
 
 **Israel declares it has ‘tactical control’ over a strategic Gaza corridor on the border with Egypt.**\
 `By Aaron Boxerman`\
-https://nytimes.com/live/2024/05/29/world/israel-gaza-war-hamas-rafah/israel-declares-it-has-tactical-control-over-strategic-gaza-corridor-on-the-border-with-egypt
+https://nytimes.com/2024/05/29/world/middleeast/israel-gaza-egypt-corridor-control.html
 
