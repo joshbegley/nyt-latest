@@ -1,3 +1,11 @@
+**Texas House Speaker Survives Challenge From Hard Right**\
+`Dade Phelan, the speaker of the Texas House, defeated a party activist and first-time candidate backed by former President Donald J. Trump in a bitter contest.`\
+https://nytimes.com/2024/05/28/us/politics/phelan-texas-house-speaker-runoff.html
+
+**Texas Storms Topple Power Lines and Trees**\
+`Sparks flew behind one Dallas home as a powerful storm system brought high winds, heavy rain and large hail.`\
+https://nytimes.com/video/us/100000009492514/storms-tornado-forecast-texas.html
+
 **Prosecutors Leave the Jury With a Mountain of Evidence Against Trump**\
 `But it’s not easy for jurors to stay attentive after a long day of closing arguments.`\
 https://nytimes.com/live/2024/05/28/opinion/thepoint/trump-trial-closing-arguments
