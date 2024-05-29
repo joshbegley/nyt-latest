@@ -1,3 +1,7 @@
+**Pentagon Opens Ammunition Factory to Keep Arms Flowing to Ukraine**\
+`A plant still under construction in Mesquite, Texas, will soon turn out 30,000 artillery shells each month, roughly doubling current U.S. output.`\
+https://nytimes.com/2024/05/29/us/pentagon-ammunition-ukraine-russia.html
+
 **In the ‘Demandingly Joyful Company’ of Socrates and Plato**\
 `Responses to an essay about the role of liberal arts in higher education. Also: Tim Scott; political violence; saving Marilyn Monroe’s house; FAFSA.`\
 https://nytimes.com/2024/05/29/opinion/college-humanities-liberal-arts.html
