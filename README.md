@@ -1,3 +1,11 @@
+**Israel Used U.S.-Made Bombs in Strike That Killed Dozens Near Rafah**\
+`The munitions used in an attack on a camp for displaced people were identified by weapons experts and a Times visual analysis.`\
+https://nytimes.com/live/2024/05/29/world/israel-gaza-war-hamas-rafah
+
+**Israel used U.S.-made GBU-39 bombs in a strike that killed 45.**\
+`A Times visual analysis found that munition debris filmed at the scene were remnants of a GBU-39, a bomb designed and manufactured in the United States.`\
+https://nytimes.com/2024/05/29/world/middleeast/israel-used-us-made-gbu-39-bombs-in-a-strike-that-killed-45.html
+
 **Jury Will Consider Felony Charges Against Trump on Wednesday**\
 `After the judge instructs them on the law, 12 New Yorkers will retreat behind closed doors to weigh Donald J. Trump’s fate.`\
 https://nytimes.com/2024/05/29/nyregion/trump-trial-jury-charges.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/29/science/brain-cancer-ancient-egypt-skull.html
 **A Show That Makes Young Japanese Pine for the ‘Inappropriate’ 1980s**\
 `A surprise television hit, now on Netflix, has people talking about what Japan has lost with today’s changed sensibilities.`\
 https://nytimes.com/2024/05/29/world/asia/japan-extremely-inappropriate.html
-
-**Saudi Arabia Eyes a Future Beyond Oil**\
-`The kingdom is trying to juggle its still-vital petroleum industry with alternative energy sources like wind and solar as it faces pressure to lower carbon emissions.`\
-https://nytimes.com/2024/05/29/business/saudi-arabia-renewable-energy-solar-wind.html
-
-**South Africa’s Black Elites Sour on the President They Championed**\
-`In pivotal elections on Wednesday, President Cyril Ramaphosa and his African National Congress party are struggling to keep the support of Black middle- and upper-class voters.`\
-https://nytimes.com/2024/05/29/world/africa/south-africa-election-president-ramaphosa.html
 
