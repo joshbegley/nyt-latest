@@ -7,7 +7,7 @@ https://nytimes.com/interactive/2024/us/politics/biden-trump-2024-campaign.html
 https://nytimes.com/live/2024/05/29/world/israel-gaza-war-hamas-rafah/algeria-gaza-ceasefire-proposal-un
 
 **From Allies and Advisers, Pressure Grows on Biden to Allow Attacks on Russian Territory**\
-`President Biden is weighing fears of escalation with a nuclear-armed adversary as he considers whether to reverse his ban on shooting American weapons into Russia.`\
+`President Biden is weighing fears of escalation with a nuclear-armed adversary as he considers whether to let Ukraine shoot American weapons into Russia.`\
 https://nytimes.com/2024/05/29/us/politics/biden-ukraine-russia-weapons.html
 
 **Trump’s Hush-Money Trial Heads Into the Unknown as Jury Deliberations Begin**\
