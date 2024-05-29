@@ -1,3 +1,7 @@
+**Weinstein May Face New Charges as More Accusers Emerge, Prosecutors Say**\
+`Harvey Weinstein, the disgraced producer, is already facing a retrial after his 2020 sex crimes conviction was overturned last month.`\
+https://nytimes.com/2024/05/29/nyregion/harvey-weinstein-sexual-assault-accusations.html
+
 **Bette Nash, Longest-Serving Flight Attendant in the World, Dies at 88**\
 `A Guinness record-holder, she started flying in 1957, and never stopped. Her regular route from Washington to Boston was nicknamed the Nash Dash.`\
 https://nytimes.com/2024/05/29/obituaries/bette-nash-dead.html

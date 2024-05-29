@@ -18,7 +18,7 @@ https://nytimes.com/2024/05/29/us/politics/biden-ukraine-russia-weapons.html
 `The start of jury deliberation in the former president’s criminal trial is a moment of genuine uncertainty.`\
 https://nytimes.com/2024/05/29/us/politics/trump-election-criminal-trial.html
 
-**New Weinstein Accusers Have Come Forward, Prosecutors Say**\
+**Weinstein May Face New Charges as More Accusers Emerge, Prosecutors Say**\
 `Harvey Weinstein, the disgraced producer, is already facing a retrial after his 2020 sex crimes conviction was overturned last month.`\
 https://nytimes.com/2024/05/29/nyregion/harvey-weinstein-sexual-assault-accusations.html
 
