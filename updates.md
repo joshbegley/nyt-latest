@@ -1,3 +1,7 @@
+**‘I’ll be strong for you.’ A former hostage awaits her husband’s release.**\
+`By Nadav Gavrielov`\
+https://nytimes.com/live/2024/05/29/world/israel-gaza-war-hamas-rafah/ill-be-strong-for-you-a-former-hostage-awaits-her-husbands-release
+
 **Thousands around the world protest after the deadly Israeli strike in Rafah.**\
 `By Aurelien Breeden`\
 https://nytimes.com/live/2024/05/29/world/israel-gaza-war-hamas-rafah/thousands-around-the-world-protest-after-the-deadly-israeli-strike-in-rafah
