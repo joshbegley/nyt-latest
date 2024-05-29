@@ -1,3 +1,11 @@
+**Blinken Hints U.S. May Accept Ukrainian Strikes in Russia With American Arms**\
+`Secretary of State Antony J. Blinken made his remarks after some European leaders called on President Biden to lift the restrictions he as imposed on Ukraine’s use of U.S. weapons.`\
+https://nytimes.com/2024/05/29/world/europe/blinken-ukraine-weapons-russia.html
+
+**Jamie Raskin: How to Force Justices Alito and Thomas to Recuse Themselves in the Jan. 6 Cases**\
+`Can Justices Thomas and Alito really decide for themselves whether they can be impartial in cases related to Jan. 6?`\
+https://nytimes.com/2024/05/29/opinion/alito-thomas-recuse-trump-jan-6.html
+
 **Israel declares it has ‘tactical control’ over a strategic Gaza corridor on the border with Egypt.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/05/29/world/israel-gaza-war-hamas-rafah/israel-declares-it-has-tactical-control-over-strategic-gaza-corridor-on-the-border-with-egypt
