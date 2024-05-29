@@ -1,3 +1,15 @@
+**Jury Will Consider Felony Charges Against Trump on Wednesday**\
+`After the judge instructs them on the law, 12 New Yorkers will retreat behind closed doors to weigh Donald J. Trump’s fate.`\
+https://nytimes.com/2024/05/29/nyregion/trump-trial-jury-charges.html
+
+**In ‘Where to Eat,’ Digesting the Complex New York Dining Scene**\
+`In her weekly newsletter, Nikita Richardson takes readers through New York’s five boroughs and offers suggestions, tips and advice for dining out.`\
+https://nytimes.com/2024/05/29/insider/where-to-eat-new-york.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/05/29/crosswords/spelling-bee-forum.html
+
 **Word of the Day: synopsis**\
 `This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/05/29/learning/word-of-the-day-synopsis.html
