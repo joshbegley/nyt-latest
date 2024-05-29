@@ -1,3 +1,11 @@
+**What to See in N.Y.C. Galleries in June**\
+`This week in Newly Reviewed, Max Lakin covers Alan Saret’s delicately chaotic sculptures, Jamie Nares’s two-venue retrospective and Robert Irwin’s panels of teal and smoky brown acrylic.`\
+https://nytimes.com/2024/05/29/arts/what-to-see-nyc-galleries-june.html
+
+**Barry Kemp, Who Unearthed Insights About Ancient Egypt, Dies at 84**\
+`The archaeologist wrote widely on everyday life under the pharaohs and did much of his fieldwork at Amarna, considered the Egyptian version of Pompeii.`\
+https://nytimes.com/2024/05/29/world/africa/barry-kemp-dead.html
+
 **Is Trump Starting to Worry About a Conviction?**\
 `Railing at the judge, he said Mother Teresa couldn’t beat the charges.`\
 https://nytimes.com/live/2024/05/28/opinion/thepoint/trump-trial-jury
