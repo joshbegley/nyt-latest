@@ -1,3 +1,7 @@
+**Teen’s Missing AirPod Leads to Arrest of Driver Accused of Hitting Him**\
+`Lochlan Nicol of Jensen Beach, Fla., was riding his bike when he was struck by an S.U.V. His AirPod landed inside the vehicle, allowing investigators to track down the driver.`\
+https://nytimes.com/2024/05/29/us/airpod-hit-and-run-florida.html
+
 **The Author Started as a Skeptic. He Came Out a Believer in Pure Evil.**\
 `“The Devil’s Best Trick,” Randall Sullivan’s in-depth occult investigation, is not for the easily frightened.`\
 https://nytimes.com/2024/05/29/books/review/randall-sullivan-the-devils-best-trick.html
