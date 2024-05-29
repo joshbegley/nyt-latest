@@ -1,3 +1,7 @@
+**Blinken Hints U.S. May Accept Ukrainian Strikes in Russia With American Arms**\
+`Secretary of State Antony J. Blinken made his remarks after some European leaders called on President Biden to lift the restrictions he has imposed on Ukraine’s use of U.S. weapons.`\
+https://nytimes.com/2024/05/29/world/europe/blinken-ukraine-weapons-russia.html
+
 **Volcano Erupts in Iceland, Spewing Lava 150 Feet Into the Air**\
 `Guests staying at the Blue Lagoon spa and surrounding hotels were ordered to evacuate hours before the eruption occurred.`\
 https://nytimes.com/2024/05/29/world/europe/iceland-volcano-erupts-grindavik.html
