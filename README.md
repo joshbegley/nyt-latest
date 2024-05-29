@@ -1,3 +1,19 @@
+**Gaza Offensive to Last at Least to Year’s End, Israeli Official Says**\
+`The assessment, at odds with Prime Minister Benjamin Netanyahu’s assertion that the country is “on the brink of victory,” came as Israel claimed control of a key buffer strip along Egypt’s border.`\
+https://nytimes.com/2024/05/29/world/middleeast/gaza-israel-corridor-rafah.html
+
+**How a Coterie of Rappers Became Trump Evangelists**\
+`The seemingly transactional relationship between hip-hop artists and a politician with legal troubles.`\
+https://nytimes.com/2024/05/29/opinion/trump-rappers.html
+
+**Robert F. Kennedy Jr. Is Worse Than a Spoiler**\
+`Voting for an independent candidate in a presidential contest does not make you principled.`\
+https://nytimes.com/2024/05/29/opinion/nicole-shanahan-rfk-jr-third-party.html
+
+**Less Marriage, Less Sex, Less Agreement**\
+`Bonds between men and women may be eroding when we need them most.`\
+https://nytimes.com/2024/05/29/opinion/marriage-sex-gender-divide.html
+
 **18 Charged in Gang Violence That Killed Two 16-Year-Old Boys**\
 `The authorities said those charged were as young as 15 when they committed crimes around Brooklyn that included murder.`\
 https://nytimes.com/2024/05/29/nyregion/gang-violence-murder-charges-brooklyn.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/05/29/world/middleeast/algeria-gaza-ceasefire-proposal-
 **From Allies and Advisers, Pressure Grows on Biden to Allow Attacks on Russian Territory**\
 `President Biden is weighing fears of escalation with a nuclear-armed adversary as he considers whether to let Ukraine shoot American weapons into Russia.`\
 https://nytimes.com/2024/05/29/us/politics/biden-ukraine-russia-weapons.html
-
-**Trump’s Hush-Money Trial Heads Into the Unknown as Jury Deliberations Begin**\
-`The start of jury deliberation in the former president’s criminal trial is a moment of genuine uncertainty.`\
-https://nytimes.com/2024/05/29/us/politics/trump-election-criminal-trial.html
-
-**Weinstein May Face New Charges as More Accusers Emerge, Prosecutors Say**\
-`Harvey Weinstein, the disgraced producer, is already facing a retrial after his 2020 sex crimes conviction was overturned last month.`\
-https://nytimes.com/2024/05/29/nyregion/harvey-weinstein-sexual-assault-accusations.html
-
-**Trump’s Fate Is Now in the Hands of the Jury**\
-`Also, home insurance rates are clobbering consumers. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2024/05/29/briefing/trump-trial-jury-deliberations-south-africa-election.html
-
-**Team Biden’s Urgent Pitch to Black Voters in Philadelphia**\
-`But it’s not easy to get tuned-out voters to care.`\
-https://nytimes.com/live/2024/05/28/opinion/thepoint/biden-campaign-black-voters-philadelphia
 
