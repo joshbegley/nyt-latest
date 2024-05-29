@@ -1,3 +1,7 @@
+**Read the Jury Instructions in the Trump Manhattan Criminal Trial**\
+`The judge in former President Donald J. Trump’s Manhattan criminal trial, Juan M. Merchan, issued instructions to jurors on Wednesday that serve as a guide to applying the law in deliberations.`\
+https://nytimes.com/interactive/2024/05/29/nyregion/judge-trump-hush-money-trial-jury-instructions.html
+
 **Pro-Palestinian Protesters March in Cities Around the World**\
 `Pro-Palestinian demonstrators marched by the thousands and some clashed with police after an Israeli strike killed dozens of people at a tent camp sheltering displaced people in Rafah, Gaza.`\
 https://nytimes.com/video/world/100000009492905/rafah-strike-global-protests.html
