@@ -1,3 +1,7 @@
+**Here’s What the Prosecution Said in Its Closing Argument in the Trump Trial**\
+`Donald J. Trump orchestrated a conspiracy that influenced the outcome of the 2016 election, the prosecutor, Joshua Steinglass, said.`\
+https://nytimes.com/2024/05/28/nyregion/trump-trial-prosecution-argument.html
+
 **It’s Over to the Jury**\
 `After closing arguments, the Manhattan trial is in the endgame.`\
 https://nytimes.com/2024/05/28/us/politics/trump-trial-closing-argument-jury-deliberation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/28/opinion/trump-civility-society.html
 **Do We Still Understand How Wars Are Won?**\
 `Israel and Ukraine don’t have the luxury of fighting fecklessly.`\
 https://nytimes.com/2024/05/28/opinion/israel-ukraine-war-us.html
-
-**Michigan Trooper Charged With Murder in Death of Fleeing Man**\
-`Detective Sgt. Brian Keely was charged in the death of Samuel Sterling, who was fatally struck by an unmarked police S.U.V. in suburban Grand Rapids last month.`\
-https://nytimes.com/2024/05/28/us/michigan-trooper-murder.html
 
