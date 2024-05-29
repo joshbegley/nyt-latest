@@ -1,3 +1,11 @@
+**Israel declares it has ‘tactical control’ over a strategic Gaza corridor on the border with Egypt.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/05/29/world/israel-gaza-war-hamas-rafah/israel-declares-it-has-tactical-control-over-strategic-gaza-corridor-on-the-border-with-egypt
+
+**Alito Refuses Calls for Recusal Over Display of Provocative Flags**\
+`“My wife is fond of flying flags,” the justice wrote in a letter to members of Congress who had demanded he step down from two cases related to the Jan. 6 attack. “I am not.”`\
+https://nytimes.com/2024/05/29/us/alito-supreme-court-recusal-flag.html
+
 **The Tories Will Lose the Election. But What Will Labour Win?**\
 `British voters are fed up with the Tories, and a change election seems inevitable. But Labour does not seem poised to capitalize on the moment.`\
 https://nytimes.com/2024/05/29/opinion/tories-labour-britain-snap-election.html
