@@ -1,3 +1,11 @@
+**Another Big Oil Deal Despite Regulatory Pushback and Market Volatility**\
+`ConocoPhillips has agreed to buy Marathon Oil for $22.5 billion, as consolidation in the U.S. energy sector shows little sign of slowing down.`\
+https://nytimes.com/2024/05/29/business/dealbook/oil-merger-conocophillips-marathon.html
+
+**American Airlines Is Accused of Discrimination in Lawsuit**\
+`Three Black men said they and five other Black men were removed from a Phoenix-to-New York flight in January for about an hour because of a complaint about body odor.`\
+https://nytimes.com/2024/05/29/business/american-airlines-discrimination-lawsuit-black-men.html
+
 **ConocoPhillips to Acquire Marathon Oil in $22.5 Billion Deal**\
 `The takeover is the latest in a wave of consolidation sweeping the oil industry, with the biggest players rushing to acquire smaller rivals.`\
 https://nytimes.com/2024/05/29/business/dealbook/marathon-oil-conocophillips-deal.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/29/podcasts/the-daily/closing-arguments-trump-trial.
 **Jury to Consider Trump Charges, and U.S.-Made Bombs Were Used in Rafah Strike**\
 `Plus, a plot to sell Graceland.`\
 https://nytimes.com/2024/05/29/podcasts/jury-trump-us-bombs-rafah.html
-
-**The Connections Companion No. 354, May 30, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/29/crosswords/connections-companion-354.html
-
-**Wordle Review No. 1,076, May 30, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/29/crosswords/wordle-review-1076.html
 
