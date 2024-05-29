@@ -2,9 +2,9 @@
 `The munitions used in an attack on a camp for displaced people were identified by weapons experts and a Times visual analysis.`\
 https://nytimes.com/live/2024/05/29/world/israel-gaza-war-hamas-rafah
 
-**Israel used U.S.-made GBU-39 bombs in a strike that killed 45.**\
+**U.S. officials have pressed Israel to use more GBU-39s, which they say can reduce civilian casualties.**\
 `A Times visual analysis found that munition debris filmed at the scene were remnants of a GBU-39, a bomb designed and manufactured in the United States.`\
-https://nytimes.com/2024/05/29/world/middleeast/israel-used-us-made-gbu-39-bombs-in-a-strike-that-killed-45.html
+https://nytimes.com/live/2024/05/29/world/israel-gaza-war-hamas-rafah/israel-used-us-made-gbu-39-bombs-in-a-strike-that-killed-45
 
 **Jury Will Consider Felony Charges Against Trump on Wednesday**\
 `After the judge instructs them on the law, 12 New Yorkers will retreat behind closed doors to weigh Donald J. Trump’s fate.`\
