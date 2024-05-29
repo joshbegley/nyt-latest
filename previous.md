@@ -1,3 +1,19 @@
+**The Closing Arguments in the Trump Trial**\
+`What happened during the last day of arguments at the historic criminal trial in Manhattan.`\
+https://nytimes.com/2024/05/29/podcasts/the-daily/closing-arguments-trump-trial.html
+
+**Jury to Consider Trump Charges, and U.S.-Made Bombs Were Used in Rafah Strike**\
+`Plus, a plot to sell Graceland.`\
+https://nytimes.com/2024/05/29/podcasts/jury-trump-us-bombs-rafah.html
+
+**The Connections Companion No. 354, May 30, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/29/crosswords/connections-companion-354.html
+
+**Wordle Review No. 1,076, May 30, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/29/crosswords/wordle-review-1076.html
+
 **Latest North Korean Offensive: Dumping Trash on South Korea From the Sky**\
 `The South Korean military said on Wednesday that it found hundreds of balloons carrying garbage from North Korea.`\
 https://nytimes.com/2024/05/29/world/asia/north-korea-trash-balloons-south.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/05/29/us/ncaa-college-athletes-pay-history.html
 **The Gender Gap Is Now a Gender Gulf**\
 `The consequences for America’s political future are enormous — and a little unpredictable.`\
 https://nytimes.com/2024/05/29/opinion/gender-gap-biden-trump-2024.html
-
-**With Payments to College Athletes, Another Fight Looms for Women**\
-`Despite gains, women still lag far behind men in the little-regulated industry of college sports. A proposed revenue-sharing deal could create new clashes over equality.`\
-https://nytimes.com/2024/05/29/us/payments-college-athletes-women.html
-
-**A Border Runs Through Their Families. Now It’s a Front Line.**\
-`In northeastern Ukraine, and in the part of Russia it touches, the war strains the emotions of people with relatives, and family histories, that span both sides.`\
-https://nytimes.com/2024/05/29/world/europe/russia-ukraine-border.html
-
-**Emerging Portrait of Judge in Trump Documents Case: Prepared, Prickly and Slow**\
-`Judge Aileen Cannon’s handling of court hearings offers insights into how the case accusing Donald Trump of illegally retaining classified material has become bogged down in unresolved issues.`\
-https://nytimes.com/2024/05/29/us/politics/trump-documents-judge-aileen-cannon.html
-
-**The Battle Over College Speech Will Outlive the Encampments**\
-`For the first time since the Vietnam War, university demonstrations have led to a rethinking of who sets the terms for language in academia.`\
-https://nytimes.com/2024/05/29/magazine/columbia-protests-free-speech.html
 
