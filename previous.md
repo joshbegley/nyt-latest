@@ -1,3 +1,11 @@
+**Thousands around the world protest after the deadly Israeli strike in Rafah.**\
+`By Aurelien Breeden`\
+https://nytimes.com/live/2024/05/29/world/israel-gaza-war-hamas-rafah/thousands-around-the-world-protest-after-the-deadly-israeli-strike-in-rafah
+
+**In This English Countryside Race, the Winner Takes the … Cheese**\
+`Every year, thousands gather at a steep hill in southwestern England to watch competitors hurtle themselves after a coveted prize: a wheel of Double Gloucester.`\
+https://nytimes.com/2024/05/29/world/europe/uk-gloucester-cheese-rolling.html
+
 **Democrats Who Are Winning**\
 `We examine if populism is crucial to that appeal.`\
 https://nytimes.com/2024/05/29/briefing/democrats-who-are-winning.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/29/world/asia/north-korea-trash-balloons-south.html
 **Justice Alito’s Wife Has Managed to Avoid the Spotlight Until Now**\
 `Martha-Ann Alito has built a limited public life since moving to Washington that has mainly centered on apolitical projects and charity work.`\
 https://nytimes.com/2024/05/29/us/politics/martha-ann-alito.html
-
-**Perhaps Lost in the Polling: The Race Is Still Close**\
-`Biden has mostly held his support among white voters, and Pennsylvania, Michigan and Wisconsin probably offer his clearest path to victory.`\
-https://nytimes.com/2024/05/29/upshot/biden-polls-election-map.html
-
-**America’s Military Is Not Prepared for War — or Peace**\
-`The U.S. military is not sized or equipped to deal with new global threats.`\
-https://nytimes.com/2024/05/29/opinion/us-military-war.html
 

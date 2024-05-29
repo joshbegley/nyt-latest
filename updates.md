@@ -1,3 +1,11 @@
+**Thousands around the world protest after the deadly Israeli strike in Rafah.**\
+`By Aurelien Breeden`\
+https://nytimes.com/live/2024/05/29/world/israel-gaza-war-hamas-rafah/thousands-around-the-world-protest-after-the-deadly-israeli-strike-in-rafah
+
+**In This English Countryside Race, the Winner Takes the … Cheese**\
+`Every year, thousands gather at a steep hill in southwestern England to watch competitors hurtle themselves after a coveted prize: a wheel of Double Gloucester.`\
+https://nytimes.com/2024/05/29/world/europe/uk-gloucester-cheese-rolling.html
+
 **Democrats Who Are Winning**\
 `We examine if populism is crucial to that appeal.`\
 https://nytimes.com/2024/05/29/briefing/democrats-who-are-winning.html
