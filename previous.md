@@ -1,3 +1,7 @@
+**Briefly Open to a Fair-Looking Election, Venezuela Reverses Course Again**\
+`Officials rescinded an invitation to E.U. observers for the presidential vote in July, in another sign that Nicolás Maduro is unlikely to cede power regardless of the result.`\
+https://nytimes.com/2024/05/28/world/americas/venezuela-election-maduro.html
+
 **Texas House Speaker Survives Challenge From Hard Right**\
 `Dade Phelan, the speaker of the Texas House, defeated a party activist and first-time candidate backed by former President Donald J. Trump in a bitter contest.`\
 https://nytimes.com/2024/05/28/us/politics/phelan-texas-house-speaker-runoff.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/28/science/titanic-submersible-ohio-billionaire.html
 **Republican Navy Veteran Will Face Henry Cuellar in South Texas**\
 `The congressional district has slightly moved in favor of Republicans after Mr. Cuellar, a centrist Democrat, was indicted on federal charges.`\
 https://nytimes.com/2024/05/28/us/politics/henry-cuellar-jay-furman.html
-
-**Trump’s Case Heads to the Jury: 5 Takeaways From Closing Arguments**\
-`Defense lawyers and prosecutors tried strategy and stagecraft to sway jurors. The panel of 12 New Yorkers will get the case Wednesday morning.`\
-https://nytimes.com/2024/05/28/nyregion/trump-trial-closing-argument-takeways.html
 

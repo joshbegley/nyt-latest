@@ -1,3 +1,7 @@
+**Briefly Open to a Fair-Looking Election, Venezuela Reverses Course Again**\
+`Officials rescinded an invitation to E.U. observers for the presidential vote in July, in another sign that Nicolás Maduro is unlikely to cede power regardless of the result.`\
+https://nytimes.com/2024/05/28/world/americas/venezuela-election-maduro.html
+
 **Texas House Speaker Survives Challenge From Hard Right**\
 `Dade Phelan, the speaker of the Texas House, defeated a party activist and first-time candidate backed by former President Donald J. Trump in a bitter contest.`\
 https://nytimes.com/2024/05/28/us/politics/phelan-texas-house-speaker-runoff.html
