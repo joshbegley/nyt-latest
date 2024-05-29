@@ -1,3 +1,11 @@
+**Democrats Who Are Winning**\
+`We examine if populism is crucial to that appeal.`\
+https://nytimes.com/2024/05/29/briefing/democrats-who-are-winning.html
+
+**Biden and Harris Make New Push to Strengthen Support From Black Voters**\
+`In their latest effort to court a crucial group of voters, the two leading Democrats will roll out an initiative called Black Voters for Biden-Harris at a rally in Philadelphia.`\
+https://nytimes.com/2024/05/29/us/politics/biden-harris-black-voters.html
+
 **The Closing Arguments in the Trump Trial**\
 `What happened during the last day of arguments at the historic criminal trial in Manhattan.`\
 https://nytimes.com/2024/05/29/podcasts/the-daily/closing-arguments-trump-trial.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/29/upshot/biden-polls-election-map.html
 **America’s Military Is Not Prepared for War — or Peace**\
 `The U.S. military is not sized or equipped to deal with new global threats.`\
 https://nytimes.com/2024/05/29/opinion/us-military-war.html
-
-**Big Money. College Athletes and the N.C.A.A.: A Timeline**\
-`The landmark settlement that would create a revenue-sharing plan is part of a long arc of profits in college sports.`\
-https://nytimes.com/2024/05/29/us/ncaa-college-athletes-pay-history.html
-
-**The Gender Gap Is Now a Gender Gulf**\
-`The consequences for America’s political future are enormous — and a little unpredictable.`\
-https://nytimes.com/2024/05/29/opinion/gender-gap-biden-trump-2024.html
 

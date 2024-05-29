@@ -1,3 +1,11 @@
+**Democrats Who Are Winning**\
+`We examine if populism is crucial to that appeal.`\
+https://nytimes.com/2024/05/29/briefing/democrats-who-are-winning.html
+
+**Biden and Harris Make New Push to Strengthen Support From Black Voters**\
+`In their latest effort to court a crucial group of voters, the two leading Democrats will roll out an initiative called Black Voters for Biden-Harris at a rally in Philadelphia.`\
+https://nytimes.com/2024/05/29/us/politics/biden-harris-black-voters.html
+
 **The Closing Arguments in the Trump Trial**\
 `What happened during the last day of arguments at the historic criminal trial in Manhattan.`\
 https://nytimes.com/2024/05/29/podcasts/the-daily/closing-arguments-trump-trial.html
