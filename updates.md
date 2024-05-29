@@ -1,3 +1,19 @@
+**South Africans Vote, Many Hoping for Change as Seismic as Mandela’s Rise**\
+`In a high-stakes national election, the African National Congress, which has governed for three decades since the end of apartheid, may lose its outright majority for the first time.`\
+https://nytimes.com/2024/05/29/world/africa/south-africa-vote-election-anc.html
+
+**Review: For ‘Molly Sweeney,’ Not Seeing Was Never the Obstacle**\
+`The Irish Rep ends its season-long Brian Friel survey with the story of a blind woman who undergoes an operation to try to restore her sight.`\
+https://nytimes.com/2024/05/29/theater/molly-sweeney-review.html
+
+**Blinken Hints U.S. May Accept Ukrainian Strikes in Russia With American Arms**\
+`Secretary of State Antony J. Blinken made his remarks after some European leaders called on President Biden to lift the restrictions he as imposed on Ukraine’s use of U.S. weapons.`\
+https://nytimes.com/2024/05/29/world/europe/blinken-ukraine-weapons-russia.html
+
+**Jamie Raskin: How to Force Justices Alito and Thomas to Recuse Themselves in the Jan. 6 Cases**\
+`Can Justices Thomas and Alito really decide for themselves whether they can be impartial in cases related to Jan. 6?`\
+https://nytimes.com/2024/05/29/opinion/alito-thomas-recuse-trump-jan-6.html
+
 **Former Intelligence Chief Tapped as Next Dutch Prime Minister**\
 `Dick Schoof is poised to be the country’s first new leader in over 13 years. His selection came as a relative surprise, after more than six months of negotiations to form a governing coalition.`\
 https://nytimes.com/2024/05/29/world/europe/netherlands-prime-minister-dick-schoof.html
