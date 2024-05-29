@@ -1,3 +1,11 @@
+**From Allies and Advisers, Pressure Grows on Biden to Allow Attacks on Russian Territory**\
+`President Biden is weighing fears of escalation with a nuclear-armed adversary as he considers whether to reverse his ban on shooting American weapons into Russia.`\
+https://nytimes.com/2024/05/29/us/politics/biden-ukraine-russia-weapons.html
+
+**Trump’s Hush-Money Trial Heads Into the Unknown as Jury Deliberations Begin**\
+`The start of jury deliberation in the former president’s criminal trial is a moment of genuine uncertainty.`\
+https://nytimes.com/2024/05/29/us/politics/trump-election-criminal-trial.html
+
 **New Weinstein Accusers Have Come Forward, Prosecutors Say**\
 `Harvey Weinstein, the disgraced producer, is already facing a retrial after his 2020 sex crimes conviction was overturned last month.`\
 https://nytimes.com/2024/05/29/nyregion/harvey-weinstein-sexual-assault-accusations.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/29/arts/music/dua-lipa-amy-winehouse-popcast-deluxe.
 **What to See in N.Y.C. Galleries in June**\
 `This week in Newly Reviewed, Max Lakin covers Alan Saret’s delicately chaotic sculptures, Jamie Nares’s two-venue retrospective and Robert Irwin’s panels of teal and smoky brown acrylic.`\
 https://nytimes.com/2024/05/29/arts/what-to-see-nyc-galleries-june.html
-
-**Barry Kemp, Who Unearthed Insights About Ancient Egypt, Dies at 84**\
-`The archaeologist wrote widely on everyday life under the pharaohs and did much of his fieldwork at Amarna, considered the Egyptian version of Pompeii.`\
-https://nytimes.com/2024/05/29/world/africa/barry-kemp-dead.html
-
-**Person Is Killed in Running Jet Engine at Amsterdam Airport**\
-`It was not immediately clear how the person ended up in the engine at Schiphol Airport on Wednesday.`\
-https://nytimes.com/2024/05/29/world/europe/klm-engine-death-amsterdam-airport.html
 
