@@ -1,3 +1,7 @@
+**The Author Started as a Skeptic. He Came Out a Believer in Pure Evil.**\
+`“The Devil’s Best Trick,” Randall Sullivan’s in-depth occult investigation, is not for the easily frightened.`\
+https://nytimes.com/2024/05/29/books/review/randall-sullivan-the-devils-best-trick.html
+
 **Which Cannes Films Might Become Oscar Contenders?**\
 `Films backed by the studio Neon have won Cannes and gone on to Oscar nominations regularly in the last few years. That’s one reason to keep an eye on “Anora.”`\
 https://nytimes.com/2024/05/29/movies/cannes-oscar-nominations.html
@@ -33,8 +37,4 @@ https://nytimes.com/card/2024/05/29/style/corgi-nationals-santa-anita
 **A senior Israeli official said that the war would last at least through the end of the year.**\
 `By Aaron Boxerman and Gabby Sobelman`\
 https://nytimes.com/live/2024/05/29/world/israel-gaza-war-hamas-rafah/a-senior-israeli-official-said-that-the-war-would-last-at-least-through-the-end-of-the-year
-
-**You Can’t Perform a Good Marriage**\
-`Ashley Madison and the pitfalls of a public relationship.`\
-https://nytimes.com/2024/05/29/opinion/ashley-madison.html
 
