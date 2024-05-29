@@ -1,3 +1,7 @@
+**Biden Asks What Trump Would Have Done if Capitol Rioters Were Black**\
+`“What do you think would have happened if Black Americans had stormed the Capitol?” the president said at a rally in Philadelphia. “I don’t think he’d be talking about pardons.”`\
+https://nytimes.com/2024/05/29/us/politics/biden-black-voters-philadelphia.html
+
 **Owner and Manager of Grimaldi’s Pizzeria Plead Guilty to Wage Theft**\
 `The owner, Anthony Piscina, 63, and the manager, Frank Santora, 71, pleaded guilty to stealing more than $32,000 in wages from 18 employees.`\
 https://nytimes.com/2024/05/29/nyregion/grimaldis-pizzeria-wage-theft.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/29/world/europe/iceland-volcano-erupts-grindavik.htm
 **Jury in Trump Case Will Weigh a Monumental Decision in a Utilitarian Space**\
 `Jurors are considering the former president’s fate in a room as unexceptional as the dry ledger entries, checks and invoices at the heart of his trial.`\
 https://nytimes.com/2024/05/29/nyregion/trump-trial-courtroom-jury-decision.html
-
-**The Tories Will Lose the Election. But What Will Labour Win?**\
-`British voters are fed up with the Tories, and a change election seems inevitable. But Labour does not seem poised to capitalize on the moment.`\
-https://nytimes.com/2024/05/29/opinion/tories-labour-britain-snap-election.html
 
