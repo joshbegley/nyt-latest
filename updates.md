@@ -1,3 +1,7 @@
+**U.S. Will Not Withdraw Military Aid After Rafah Strike, Kirby Says**\
+`John F. Kirby, a White House spokesman, condemned the deadly Israeli airstrike in Rafah, but said that the attack was not enough to change U.S. policy.`\
+https://nytimes.com/video/us/politics/100000009493140/rafah-strike-israel-biden.html
+
 **Amid Orchestral Waves, the Sound of Cultures Conversing**\
 `“Natural History,” performed in Cincinnati, is a collaboration between the composer Michael Gordon and the Native American ensemble Steiger Butte Drum.`\
 https://nytimes.com/2024/05/29/arts/music/michael-gordon-natural-history-klamath-tribe.html

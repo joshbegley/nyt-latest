@@ -1,3 +1,7 @@
+**U.S. Will Not Withdraw Military Aid After Rafah Strike, Kirby Says**\
+`John F. Kirby, a White House spokesman, condemned the deadly Israeli airstrike in Rafah, but said that the attack was not enough to change U.S. policy.`\
+https://nytimes.com/video/us/politics/100000009493140/rafah-strike-israel-biden.html
+
 **Amid Orchestral Waves, the Sound of Cultures Conversing**\
 `“Natural History,” performed in Cincinnati, is a collaboration between the composer Michael Gordon and the Native American ensemble Steiger Butte Drum.`\
 https://nytimes.com/2024/05/29/arts/music/michael-gordon-natural-history-klamath-tribe.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/29/us/seattle-belltown-hellcat.html
 **Aid Groups in Rafah Say Israel’s Advance Is Pushing Them Out**\
 `Hospitals, clinics and kitchens are shutting down, and transporting the wounded is a challenge on roads choked with debris and fleeing refugees.`\
 https://nytimes.com/2024/05/29/world/middleeast/gaza-rafah-aid-hospitals.html
-
-**This Is the Pizza I Make at Home**\
-`It splits the difference between pizza and focaccia, with an airy, olive-oil-enriched dough that can be adorned with whatever toppings you love (anchovies, of course!).`\
-https://nytimes.com/2024/05/29/dining/this-is-the-pizza-i-make-at-home.html
 
