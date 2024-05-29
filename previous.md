@@ -1,3 +1,7 @@
+**Jury in Trump Case Will Weigh a Monumental Decision in a Utilitarian Space**\
+`Jurors are considering the former president’s fate in a room as unexceptional as the dry ledger entries, checks and invoices at the heart of his trial.`\
+https://nytimes.com/2024/05/29/nyregion/trump-trial-courtroom-jury-decision.html
+
 **The Tories Will Lose the Election. But What Will Labour Win?**\
 `British voters are fed up with the Tories, and a change election seems inevitable. But Labour does not seem poised to capitalize on the moment.`\
 https://nytimes.com/2024/05/29/opinion/tories-labour-britain-snap-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/05/29/arts/editors-recommendations-smith.ht
 **Pentagon Opens Ammunition Factory to Keep Arms Flowing to Ukraine**\
 `A plant still under construction in Mesquite, Texas, will soon turn out 30,000 artillery shells each month, roughly doubling current U.S. output.`\
 https://nytimes.com/2024/05/29/us/pentagon-ammunition-ukraine-russia.html
-
-**In the ‘Demandingly Joyful Company’ of Socrates and Plato**\
-`Responses to an essay about the role of liberal arts in higher education. Also: Tim Scott; political violence; saving Marilyn Monroe’s house; FAFSA.`\
-https://nytimes.com/2024/05/29/opinion/college-humanities-liberal-arts.html
 

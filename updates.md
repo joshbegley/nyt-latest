@@ -1,3 +1,7 @@
+**Jury in Trump Case Will Weigh a Monumental Decision in a Utilitarian Space**\
+`Jurors are considering the former president’s fate in a room as unexceptional as the dry ledger entries, checks and invoices at the heart of his trial.`\
+https://nytimes.com/2024/05/29/nyregion/trump-trial-courtroom-jury-decision.html
+
 **South Africans Vote, Many Hoping for Change as Seismic as Mandela’s Rise**\
 `In a high-stakes national election, the African National Congress, which has governed for three decades since the end of apartheid, may lose its outright majority for the first time.`\
 https://nytimes.com/2024/05/29/world/africa/south-africa-vote-election-anc.html
