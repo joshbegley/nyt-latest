@@ -1,3 +1,11 @@
+**Richard Ellis, ‘Poet Laureate’ of Deep-Sea Creatures, Dies at 86**\
+`His prodigious paintings of whales and his books about sharks, giant squid and tuna were acclaimed for melding science with art.`\
+https://nytimes.com/2024/05/29/science/richard-ellis-dead.html
+
+**Two Giant Pandas Will Head to D.C.’s National Zoo From China**\
+`The Smithsonian’s National Zoo and Conservation Biology Institute said that pandas, Bao Li and Qing Bao, will be flown over before the end of the year.`\
+https://nytimes.com/video/us/100000009493816/panda-dc-zoo-china.html
+
 **Biden Asks What Trump Would Have Done if Capitol Rioters Were Black**\
 `“What do you think would have happened if Black Americans had stormed the Capitol?” the president said at a rally in Philadelphia. “I don’t think he’d be talking about pardons.”`\
 https://nytimes.com/2024/05/29/us/politics/biden-black-voters-philadelphia.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/29/dining/lamb-burger-salad-crumble-summer-menu.html
 **House Ethics Panel Will Investigate Cuellar on Bribery Charges**\
 `The committee voted unanimously to scrutinize the Texas Democrat’s conduct after his indictment this month on federal bribery and corruption charges.`\
 https://nytimes.com/2024/05/29/us/politics/house-ethics-panel-henry-cuellar-bribery-charges.html
-
-**Volcano Erupts in Iceland, Spewing Lava 150 Feet Into the Air**\
-`Guests staying at the Blue Lagoon spa and surrounding hotels were ordered to evacuate hours before the eruption occurred.`\
-https://nytimes.com/2024/05/29/world/europe/iceland-volcano-erupts-grindavik.html
-
-**Jury in Trump Case Will Weigh a Monumental Decision in a Utilitarian Space**\
-`Jurors are considering the former president’s fate in a room as unexceptional as the dry ledger entries, checks and invoices at the heart of his trial.`\
-https://nytimes.com/2024/05/29/nyregion/trump-trial-courtroom-jury-decision.html
 
