@@ -1,3 +1,11 @@
+**Bette Nash, Longest-Serving Flight Attendant in the World, Dies at 88**\
+`A Guinness record-holder, she started flying in 1957, and never stopped. Her regular route from Washington to Boston was nicknamed the Nash Dash.`\
+https://nytimes.com/2024/05/29/obituaries/bette-nash-dead.html
+
+**New Cease-Fire Proposal Circulates at U.N., Driven by Outrage Over Israel’s Strike on a Tent Camp**\
+`Algeria, the only Arab representative in the current makeup of the Security Council, drafted the resolution.`\
+https://nytimes.com/2024/05/29/world/middleeast/algeria-gaza-ceasefire-proposal-un.html
+
 **A new cease-fire proposal circulates at the U.N., driven by outrage over Israel’s strike on a tent camp.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/2024/05/29/world/middleeast/algeria-gaza-ceasefire-proposal-un.html
