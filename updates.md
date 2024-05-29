@@ -1,3 +1,7 @@
+**Jury Deliberations Are Starting in Trump’s Trial. Here’s How They Work.**\
+`The 12 unidentified jurors have retreated behind closed doors and started to debate whether the first president to be criminally prosecuted has committed felony crimes.`\
+https://nytimes.com/2024/05/29/nyregion/jury-deliberations-trump-trial.html
+
 **Welcome Back, Pandas! Two Furry Diplomats Are Headed to D.C. Zoo**\
 `The pandas, Bao Li and Qing Bao, will be flown to the Smithsonian National Zoo from China before the end of the year.`\
 https://nytimes.com/2024/05/29/us/politics/panda-dc-zoo-china.html
