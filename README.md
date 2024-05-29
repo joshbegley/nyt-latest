@@ -1,3 +1,7 @@
+**Nikki Haley’s Valentine to Civilian Death**\
+`It was message of savage revenge, with little apparent concern for whose blood will actually be shed.`\
+https://nytimes.com/live/2024/05/28/opinion/thepoint/nikki-haley-israel-gaza
+
 **Audra McDonald to Star in ‘Gypsy’ Revival on Broadway This Fall**\
 `The six-time Tony-winning actress will play musical theater’s most famous stage mother in a production directed by George C. Wolfe.`\
 https://nytimes.com/2024/05/29/theater/audra-mcdonald-broadway-gypsy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/29/theater/molly-sweeney-review.html
 **Blinken Hints U.S. May Accept Ukrainian Strikes in Russia With American Arms**\
 `Secretary of State Antony J. Blinken made his remarks after some European leaders called on President Biden to lift the restrictions he has imposed on Ukraine’s use of U.S. weapons.`\
 https://nytimes.com/2024/05/29/world/europe/blinken-ukraine-weapons-russia.html
-
-**Jamie Raskin: How to Force Justices Alito and Thomas to Recuse Themselves in the Jan. 6 Cases**\
-`Can Justices Thomas and Alito really decide for themselves whether they can be impartial in cases related to Jan. 6?`\
-https://nytimes.com/2024/05/29/opinion/alito-thomas-recuse-trump-jan-6.html
 
