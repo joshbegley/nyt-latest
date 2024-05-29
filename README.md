@@ -1,3 +1,7 @@
+**Read the Jury Instructions in the Trump Manhattan Criminal Trial**\
+`The judge in former President Donald J. Trump’s Manhattan criminal trial, Juan M. Merchan, issued instructions to jurors on Wednesday that serve as a guide to applying the law in deliberations.`\
+https://nytimes.com/interactive/2024/05/29/nyregion/judge-trump-hush-money-trial-jury-instructions.html
+
 **Pro-Palestinian Protesters March in Cities Around the World**\
 `Pro-Palestinian demonstrators marched by the thousands and some clashed with police after an Israeli strike killed dozens of people at a tent camp sheltering displaced people in Rafah, Gaza.`\
 https://nytimes.com/video/world/100000009492905/rafah-strike-global-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/05/29/learning/28CountryPhotoQuizLN.html
 **Jury Deliberations Are Starting in Trump’s Trial. Here’s How They Work.**\
 `The 12 unidentified jurors have retreated behind closed doors and started to debate whether the first president to be criminally prosecuted has committed felony crimes.`\
 https://nytimes.com/2024/05/29/nyregion/jury-deliberations-trump-trial.html
-
-**Sleepless in Seattle as a Hellcat Roars Through the Streets**\
-`The modified Dodge Charger roaming Seattle’s downtown by night has infuriated residents. But it seems no one can stop it.`\
-https://nytimes.com/2024/05/29/us/seattle-belltown-hellcat.html
 
