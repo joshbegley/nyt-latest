@@ -1,3 +1,7 @@
+**Volcano Erupts in Iceland**\
+`Nearly 800 guests staying at the Blue Lagoon spa and surrounding hotels were ordered to evacuate hours before a volcano in southwestern Iceland erupted.`\
+https://nytimes.com/video/world/europe/100000009494513/iceland-volcano-eruption.html
+
 **Weinstein May Face New Charges as More Accusers Emerge, Prosecutors Say**\
 `Harvey Weinstein, the disgraced producer, is already facing a retrial after his 2020 sex crimes conviction was overturned last month.`\
 https://nytimes.com/2024/05/29/nyregion/harvey-weinstein-sexual-assault-accusations.html

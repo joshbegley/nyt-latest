@@ -1,3 +1,7 @@
+**Volcano Erupts in Iceland**\
+`Nearly 800 guests staying at the Blue Lagoon spa and surrounding hotels were ordered to evacuate hours before a volcano in southwestern Iceland erupted.`\
+https://nytimes.com/video/world/europe/100000009494513/iceland-volcano-eruption.html
+
 **Bette Nash, Longest-Serving Flight Attendant in the World, Dies at 88**\
 `A Guinness record-holder, she started flying in 1957, and never stopped. Her regular route from Washington to Boston was nicknamed the Nash Dash.`\
 https://nytimes.com/2024/05/29/obituaries/bette-nash-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/28/opinion/thepoint/biden-campaign-black-voters
 **The Scene Outside the Trump Trial Mellows as Deliberations Start. Sort of.**\
 `Even a more sedate day outside the trial of Donald J. Trump includes spectacle and confrontation.`\
 https://nytimes.com/2024/05/29/nyregion/collect-pond-park-trump-scene.html
-
-**In a Texas G.O.P. at War With Itself, the Hard Right Is Gaining**\
-`The speaker of the State House, Dade Phelan, survived a primary challenge from a Trump-backed activist, but many other Republican incumbents were ousted in bitter primary races.`\
-https://nytimes.com/2024/05/29/us/texas-republican-primaries-dade-phelan.html
 
