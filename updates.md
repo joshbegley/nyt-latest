@@ -1,3 +1,7 @@
+**Israel Says It Has ‘Tactical Control’ of Gaza Corridor Bordering Egypt**\
+`Hamas tunnels into Egypt make it essential for Israel to control the corridor, Israel says, but Egypt says there are no such tunnels.`\
+https://nytimes.com/2024/05/29/world/middleeast/israel-gaza-egypt-corridor-control.html
+
 **Israel declares it has ‘tactical control’ over a strategic Gaza corridor on the border with Egypt.**\
 `By Aaron Boxerman`\
 https://nytimes.com/2024/05/29/world/middleeast/israel-gaza-egypt-corridor-control.html

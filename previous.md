@@ -34,7 +34,7 @@ https://nytimes.com/2024/05/29/world/europe/blinken-ukraine-weapons-russia.html
 `Can Justices Thomas and Alito really decide for themselves whether they can be impartial in cases related to Jan. 6?`\
 https://nytimes.com/2024/05/29/opinion/alito-thomas-recuse-trump-jan-6.html
 
-**Israel declares it has ‘tactical control’ over a strategic Gaza corridor on the border with Egypt.**\
-`By Aaron Boxerman`\
+**Israel Says It Has ‘Tactical Control’ of Gaza Corridor Bordering Egypt**\
+`Hamas tunnels into Egypt make it essential for Israel to control the corridor, Israel says, but Egypt says there are no such tunnels.`\
 https://nytimes.com/2024/05/29/world/middleeast/israel-gaza-egypt-corridor-control.html
 
