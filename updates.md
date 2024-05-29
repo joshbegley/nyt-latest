@@ -1,3 +1,15 @@
+**Hold the French Fries! Paris Olympics Chart a New Gastronomic Course.**\
+`The environment will come first as France tries to revitalize the global image of its cuisine.`\
+https://nytimes.com/2024/05/29/world/europe/olympics-food-french-cuisine.html
+
+**Can South Africa’s Opposition Parties Break Through?**\
+`A record 51 parties are competing to unseat the long-ruling African National Congress in the national election on Wednesday. Here’s why it won’t be easy.`\
+https://nytimes.com/2024/05/29/world/africa/south-africa-election-opposition-parties.html
+
+**Quote of the Day: Small-Town Teams Are Conjuring Fans With Offbeat Brands**\
+`Quotation of the Day for Wednesday, May 29, 2024.`\
+https://nytimes.com/2024/05/28/pageoneplus/quote-of-the-day-small-town-teams-are-conjuring-fans-with-offbeat-brands.html
+
 **Jury Will Consider Felony Charges Against Trump on Wednesday**\
 `After the judge instructs them on the law, 12 New Yorkers will retreat behind closed doors to weigh Donald J. Trump’s fate.`\
 https://nytimes.com/2024/05/29/nyregion/trump-trial-jury-charges.html
