@@ -1,3 +1,7 @@
+**House Ethics Panel Will Investigate Cuellar on Bribery Charges**\
+`The committee voted unanimously to scrutinize the Texas Democrat’s conduct after his indictment this month on federal bribery and corruption charges.`\
+https://nytimes.com/2024/05/29/us/politics/house-ethics-panel-henry-cuellar-bribery-charges.html
+
 **Blinken Hints U.S. May Accept Ukrainian Strikes in Russia With American Arms**\
 `Secretary of State Antony J. Blinken made his remarks after some European leaders called on President Biden to lift the restrictions he has imposed on Ukraine’s use of U.S. weapons.`\
 https://nytimes.com/2024/05/29/world/europe/blinken-ukraine-weapons-russia.html

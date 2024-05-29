@@ -1,3 +1,7 @@
+**House Ethics Panel Will Investigate Cuellar on Bribery Charges**\
+`The committee voted unanimously to scrutinize the Texas Democrat’s conduct after his indictment this month on federal bribery and corruption charges.`\
+https://nytimes.com/2024/05/29/us/politics/house-ethics-panel-henry-cuellar-bribery-charges.html
+
 **Volcano Erupts in Iceland, Spewing Lava 150 Feet Into the Air**\
 `Guests staying at the Blue Lagoon spa and surrounding hotels were ordered to evacuate hours before the eruption occurred.`\
 https://nytimes.com/2024/05/29/world/europe/iceland-volcano-erupts-grindavik.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/29/world/israel-gaza-war-hamas-rafah/israel-dec
 **Alito Refuses Calls for Recusal Over Display of Provocative Flags**\
 `“My wife is fond of flying flags,” the justice wrote in a letter to members of Congress who had demanded he step down from two cases related to the Jan. 6 attack. “I am not.”`\
 https://nytimes.com/2024/05/29/us/alito-supreme-court-recusal-flag.html
-
-**What’s in Our Queue? ‘Mr. & Mrs. Smith’ and More**\
-`I just wrapped up a reporting fellowship at The Times, covering space, physics and the intersection of science and society. Here are five things I’ve been indulging in lately.`\
-https://nytimes.com/interactive/2024/05/29/arts/editors-recommendations-smith.html
 
