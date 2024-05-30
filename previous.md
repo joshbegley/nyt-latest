@@ -1,3 +1,19 @@
+**‘This Is About Systemic Change’: F.A.A. Outlines Boeing’s Action Plan**\
+`Mike Whitaker, the administrator of the Federal Aviation Administration, shared Boeing’s plan to improve the quality and safety of their planes, amid scandals that placed the aircraft manufacturer at the center of several investigations.`\
+https://nytimes.com/video/us/politics/100000009495871/boeing-faa-airline-planes.html
+
+**Tulsi Gabbard Says She’d ‘Be Honored’ to Be Trump’s Running Mate**\
+`The former Hawaii congresswoman, who became estranged from the Democratic Party, has drawn intrigue from Donald J. Trump but is considered a long shot.`\
+https://nytimes.com/2024/05/30/us/politics/tulsi-gabbard-trump-vp.html
+
+**Charles Barkley’s Barbs Infuriate and Fuel Players**\
+`With the future of “Inside the NBA” in flux, athletes say their respect for Barkley means his unsparing evaluations are a rite of passage.`\
+https://nytimes.com/2024/05/30/arts/television/charles-barkley-inside-the-nba.html
+
+**Ukrainian Drone Strikes Target Russian Nuclear Radar Stations**\
+`A radar facility more than 1,100 miles into Russia was damaged, satellite imagery showed. The attacks have drawn concern from U.S. officials.`\
+https://nytimes.com/2024/05/30/world/europe/ukraine-drones-russia-nuclear.html
+
 **A ‘Carnival’ of Signs, Spats and Skin Outside the Trump Trial**\
 `The Naked Cowboy appeared, briefly, in the park outside the courthouse where a jury of 12 New Yorkers will decide the criminal case against Donald J. Trump.`\
 https://nytimes.com/2024/05/30/nyregion/collect-pond-park-crowd-trump.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/05/30/world/israel-gaza-war-hamas-rafah/rafah-offe
 **Taking the Fight to Russia: The West Weighs Ukraine’s Use of Its Weapons**\
 `More NATO allies are backing Kyiv’s pleas to allow its forces to conduct strikes in Russian territory with Western weapons.`\
 https://nytimes.com/2024/05/30/world/europe/ukraine-russia-weapons-strike.html
-
-**South Africans Turn Away from Ruling Party, Early Election Results Show**\
-`As votes trickled in, the power and influence of the African National Congress, which has led the country for 30 years, appeared to be waning.`\
-https://nytimes.com/2024/05/30/world/africa/south-africa-election-anc.html
-
-**Objections to Alito’s Refusal to Recuse**\
-`Readers discuss the flag controversy involving the justice’s wife. Also: Math for all, not just the few; medical consent; Robert F. Kennedy Jr. and history.`\
-https://nytimes.com/2024/05/30/opinion/alito-supreme-court-recusal.html
-
-**Ángel Hernández Made Baseball Great**\
-`We all love to hate the ump show.`\
-https://nytimes.com/live/2024/05/28/opinion/thepoint/angel-hernandez-retirement-umpire
-
-**6 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2024/05/30/books/review/new-books-recommendations.html
 
