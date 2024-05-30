@@ -1,3 +1,7 @@
+**At the Scripps bee, hard work, not age, can spell success.**\
+`Sanil Thorat, 8, was the youngest of 245 participants at the 2024 Scripps National Spelling Bee.`\
+https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee/scripps-bee-sanil-thorat
+
 **What Is Your Reaction to Trump’s Conviction on 34 Felony Counts?**\
 `Donald J. Trump is the first American president to be declared a felon, a stain he will carry as he seeks to regain the presidency.`\
 https://nytimes.com/2024/05/30/learning/what-is-your-reaction-to-trumps-conviction-on-34-felony-counts.html
