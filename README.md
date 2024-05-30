@@ -1,3 +1,11 @@
+**Trump’s campaign donor website crashes after guilty verdict.**\
+`Mr. Trump began soliciting donations off his felony conviction almost immediately after the verdict`\
+https://nytimes.com/2024/05/30/us/politics/trump-winred-crash-donations.html
+
+**Top Minnesota Democrats Call on State Senator Charged With Burglary to Resign**\
+`A Democratic state lawmaker was charged with burglary in April. Her fate could threaten a slim majority Democrats have in the Minnesota Senate.`\
+https://nytimes.com/2024/05/30/us/minnesota-democratic-senator-burglary.html
+
 **Here is the latest.**\
 `By Emily Schmall`\
 https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee/here-is-the-latest
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee/champion-habits-to-s
 **Trump Reacts to Guilty Verdict**\
 `Donald J. Trump was convicted on Thursday of falsifying records to cover up a sex scandal that threatened to derail his 2016 presidential campaign.`\
 https://nytimes.com/video/us/politics/100000009496730/trump-trial-verdict.html
-
-**Trump Verdict Gets Little Reaction From the White House**\
-`“We respect the rule of law,” a spokesman for the White House Counsel’s Office said after former President Donald J. Trump’s conviction in the hush-money case.`\
-https://nytimes.com/2024/05/30/us/politics/biden-trump-reaction.html
-
-**Read the Verdict Sheet in the Trump Manhattan Criminal Trial**\
-`Former President Donald J. Trump was convicted on Thursday on all 34 counts of falsifying business records by a jury of 12 New Yorkers, who deliberated over two days.`\
-https://nytimes.com/interactive/2024/05/30/nyregion/trump-trial-verdict-document-manhattan-criminal.html
 
