@@ -1,3 +1,7 @@
+**Episode 5: Wolves**\
+`On a taxi ride, Sam meets a Chihuahua.`\
+https://nytimes.com/2024/05/30/podcasts/animal-episode-5-wolves.html
+
 **Episode 6: Bats**\
 `Sam stares into another hole.`\
 https://nytimes.com/2024/05/30/podcasts/animal-episode-6-bats.html

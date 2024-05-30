@@ -1,3 +1,7 @@
+**Episode 5: Wolves**\
+`On a taxi ride, Sam meets a Chihuahua.`\
+https://nytimes.com/2024/05/30/podcasts/animal-episode-5-wolves.html
+
 **Episode 6: Bats**\
 `Sam stares into another hole.`\
 https://nytimes.com/2024/05/30/podcasts/animal-episode-6-bats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/30/arts/television/charles-barkley-inside-the-nba.ht
 **Ukrainian Drone Strikes Target Russian Nuclear Radar Stations**\
 `A radar facility more than 1,100 miles into Russia was damaged, satellite imagery showed. The attacks have drawn concern from U.S. officials.`\
 https://nytimes.com/2024/05/30/world/europe/ukraine-drones-russia-nuclear.html
-
-**A ‘Carnival’ of Signs, Spats and Skin Outside the Trump Trial**\
-`The Naked Cowboy appeared, briefly, in the park outside the courthouse where a jury of 12 New Yorkers will decide the criminal case against Donald J. Trump.`\
-https://nytimes.com/2024/05/30/nyregion/collect-pond-park-crowd-trump.html
 
