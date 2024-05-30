@@ -1,3 +1,11 @@
+**The Right Kind of Tipping Point**\
+`Global carbon dioxide emissions might have already peaked, according to new estimates, signaling a potentially monumental shift.`\
+https://nytimes.com/2024/05/30/climate/carbon-emissions-falling-global.html
+
+**The Words That Defined Closing Arguments in Donald Trump’s Trial**\
+`Defense lawyers and prosecutors deployed their best lines to win jurors to their side. The panel of 12 New Yorkers then went behind closed doors.`\
+https://nytimes.com/2024/05/30/nyregion/closing-arguments-donald-trump-trial.html
+
 **‘This Is About Systemic Change’: F.A.A. Outlines Boeing’s Action Plan**\
 `Mike Whitaker, the administrator of the Federal Aviation Administration, shared Boeing’s plan to improve the quality and safety of their planes, amid scandals that placed the aircraft manufacturer at the center of several investigations.`\
 https://nytimes.com/video/us/politics/100000009495871/boeing-faa-airline-planes.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/30/world/middleeast/what-is-the-philadelphi-corridor
 **How Republicans in Key Senate Races Are Flip-Flopping on Abortion**\
 `Several G.O.P. Senate candidates used to embrace anti-abortion views. Now they are shifting their positions on an issue that has become an electoral liability for their party.`\
 https://nytimes.com/2024/05/30/us/politics/republican-senate-races-abortion.html
-
-**Rafah offensive is worsening the plight around Gaza, aid agencies warn.**\
-`Deteriorating conditions across the Gaza Strip on Thursday were underscored by a strike that killed two medics and scenes of vast urban destruction farther north.`\
-https://nytimes.com/live/2024/05/30/world/israel-gaza-war-hamas-rafah/rafah-offensive-is-worsening-the-plight-around-gaza-aid-agencies-warn
-
-**Taking the Fight to Russia: The West Weighs Ukraine’s Use of Its Weapons**\
-`More NATO allies are backing Kyiv’s pleas to allow its forces to conduct strikes in Russian territory with Western weapons.`\
-https://nytimes.com/2024/05/30/world/europe/ukraine-russia-weapons-strike.html
 
