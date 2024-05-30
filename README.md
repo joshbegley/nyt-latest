@@ -1,3 +1,11 @@
+**Episode 6: Bats**\
+`Sam stares into another hole.`\
+https://nytimes.com/2024/05/30/podcasts/animal-episode-6-bats.html
+
+**Bird Flu Has Infected a Third U.S. Farmworker**\
+`The worker had respiratory symptoms, unlike the first two. But the risk to the public remains low, federal health officials said.`\
+https://nytimes.com/2024/05/30/health/bird-flu-infection-farmworker.html
+
 **Departing House Members Ask: ‘Why Am I Here?’**\
 `A wave of retirees from both parties, including committee chairs and rising stars, say that serving in Congress is no longer worth the frustration.`\
 https://nytimes.com/2024/05/30/us/politics/house-retirees.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/30/world/europe/ukraine-drones-russia-nuclear.html
 **A ‘Carnival’ of Signs, Spats and Skin Outside the Trump Trial**\
 `The Naked Cowboy appeared, briefly, in the park outside the courthouse where a jury of 12 New Yorkers will decide the criminal case against Donald J. Trump.`\
 https://nytimes.com/2024/05/30/nyregion/collect-pond-park-crowd-trump.html
-
-**Boeing Gives F.A.A. Plan to Address Systemic Quality-Control Issues**\
-`The action plan is the latest in a series of moves by the F.A.A. to push for safety improvements throughout Boeing during a tumultuous year for the company.`\
-https://nytimes.com/2024/05/30/us/politics/boeing-faa-quality-control-plan.html
-
-**What Is the Philadelphi Corridor, and Why Does It Matter?**\
-`An eight-mile-long strip of land between the Gaza Strip and Egypt is the latest focus of the Israeli assault on Hamas.`\
-https://nytimes.com/2024/05/30/world/middleeast/what-is-the-philadelphi-corridor.html
 
