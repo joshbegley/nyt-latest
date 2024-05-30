@@ -1,3 +1,5 @@
+**An Israeli official says the Gaza offensive will continue for several months, and other news.**\
+
 **Trump Jurors to Review Evidence as They Consider a Verdict in His Trial**\
 `The panel will begin Thursday by hearing again about a tabloid publisher who helped Donald J. Trump bury unflattering news.`\
 https://nytimes.com/2024/05/30/nyregion/trumps-jury-verdict.html
