@@ -1,3 +1,7 @@
+**Corrections: May 30, 2024**\
+`Corrections that appeared in print on Thursday, May 30, 2024.`\
+https://nytimes.com/2024/05/29/pageoneplus/corrections-may-30-2024.html
+
 **Walks in the Park**\
 `Shh … Royce Ferguson’s puzzle holds secrets.`\
 https://nytimes.com/2024/05/29/crosswords/daily-puzzle-2024-05-30.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/29/opinion/marriage-sex-gender-divide.html
 **18 Charged in Gang Violence That Killed Two 16-Year-Old Boys**\
 `The authorities said those charged were as young as 15 when they committed crimes around Brooklyn that included murder.`\
 https://nytimes.com/2024/05/29/nyregion/gang-violence-murder-charges-brooklyn.html
-
-**Volcano Erupts in Iceland**\
-`Nearly 800 guests staying at the Blue Lagoon spa and surrounding hotels were ordered to evacuate hours before a volcano in southwestern Iceland erupted.`\
-https://nytimes.com/video/world/europe/100000009494513/iceland-volcano-eruption.html
 
