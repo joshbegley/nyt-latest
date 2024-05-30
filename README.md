@@ -1,3 +1,11 @@
+**South Africans Turn Away from Ruling Party, Early Election Results Show**\
+`As votes trickled in, the power and influence of the African National Congress, which has led the country for 30 years, appeared to be waning.`\
+https://nytimes.com/2024/05/30/world/africa/south-africa-election-anc.html
+
+**Objections to Alito’s Refusal to Recuse**\
+`Readers discuss the flag controversy involving the justice’s wife. Also: Math for all, not just the few; medical consent; Robert F. Kennedy Jr. and history.`\
+https://nytimes.com/2024/05/30/opinion/alito-supreme-court-recusal.html
+
 **Ángel Hernández Made Baseball Great**\
 `We all love to hate the ump show.`\
 https://nytimes.com/live/2024/05/28/opinion/thepoint/angel-hernandez-retirement-umpire
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/30/nyregion/written-jury-instructions-trump-judge.ht
 **Jury in Trump’s Trial Rehears Testimony and Judge’s Instructions**\
 `The jurors’ requests included specific testimony from David Pecker, the former publisher of The National Enquirer, and Michael D. Cohen, Donald J. Trump’s former fixer.`\
 https://nytimes.com/2024/05/30/nyregion/trump-jury-instructions-testimony.html
-
-**‘The Dead Don’t Hurt’ Review: A Foursquare Western From Viggo Mortensen**\
-`Mortensen gives his film a nested, at times unnecessarily complicated structure, but with performances this good, it’s hard to mind much.`\
-https://nytimes.com/2024/05/30/movies/the-dead-dont-hurt-review.html
-
-**The World Needs an Action Hero. Enter Twyla Tharp (and Camus).**\
-`Leading off the summer season at Little Island in Manhattan, the choreographer presents “How Long Blues,” with T Bone Burnett and David Mansfield.`\
-https://nytimes.com/2024/05/30/arts/dance/twyla-tharp-how-long-blues-little-island.html
 
