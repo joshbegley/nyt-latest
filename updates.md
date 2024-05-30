@@ -1,3 +1,11 @@
+**The Outdoor Dining Season Opener**\
+`Rooftop beers and pretzels at Greats of Craft, natural wine and pop-ups at Frog, and more reasons to get outside.`\
+https://nytimes.com/2024/05/30/dining/the-outdoor-dining-season-opener.html
+
+**Episode 4: Ferrets**\
+`Sam soothes his anxiety by visiting a convention center in Ohio.`\
+https://nytimes.com/2024/05/30/podcasts/animal-episode-4-ferrets.html
+
 **Episode 5: Wolves**\
 `On a taxi ride, Sam meets a Chihuahua.`\
 https://nytimes.com/2024/05/30/podcasts/animal-episode-5-wolves.html

@@ -1,3 +1,11 @@
+**The Outdoor Dining Season Opener**\
+`Rooftop beers and pretzels at Greats of Craft, natural wine and pop-ups at Frog, and more reasons to get outside.`\
+https://nytimes.com/2024/05/30/dining/the-outdoor-dining-season-opener.html
+
+**Episode 4: Ferrets**\
+`Sam soothes his anxiety by visiting a convention center in Ohio.`\
+https://nytimes.com/2024/05/30/podcasts/animal-episode-4-ferrets.html
+
 **Episode 5: Wolves**\
 `On a taxi ride, Sam meets a Chihuahua.`\
 https://nytimes.com/2024/05/30/podcasts/animal-episode-5-wolves.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000009495871/boeing-faa-airline-planes.
 **Tulsi Gabbard Says She’d ‘Be Honored’ to Be Trump’s Running Mate**\
 `The former Hawaii congresswoman, who became estranged from the Democratic Party, has drawn intrigue from Donald J. Trump but is considered a long shot.`\
 https://nytimes.com/2024/05/30/us/politics/tulsi-gabbard-trump-vp.html
-
-**Charles Barkley’s Barbs Infuriate and Fuel Players**\
-`With the future of “Inside the NBA” in flux, athletes say their respect for Barkley means his unsparing evaluations are a rite of passage.`\
-https://nytimes.com/2024/05/30/arts/television/charles-barkley-inside-the-nba.html
-
-**Ukrainian Drone Strikes Target Russian Nuclear Radar Stations**\
-`A radar facility more than 1,100 miles into Russia was damaged, satellite imagery showed. The attacks have drawn concern from U.S. officials.`\
-https://nytimes.com/2024/05/30/world/europe/ukraine-drones-russia-nuclear.html
 
