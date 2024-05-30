@@ -1,3 +1,7 @@
+**Future journalists struggled with spelling, too.**\
+`By The New York Times`\
+https://nytimes.com/live/2022/06/02/us/scripps-spelling-bee/future-journalists-struggled-with-spelling-too
+
 **DNA From a Discarded Fork Leads to Arrest in Brutal Cold-Case Murder**\
 `A 41-year-old Florida man has been charged in the 2009 stabbing death of his uncle in Queens.`\
 https://nytimes.com/2024/05/30/nyregion/fork-dna-queens-murder.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/30/briefing/donald-trump-guilty.html
 **Trump Convicted on All Counts to Become America’s First Felon President**\
 `A Manhattan jury found that he had falsified business records to conceal a sex scandal that could have hindered his 2016 campaign for the White House.`\
 https://nytimes.com/2024/05/30/nyregion/trump-convicted-hush-money-trial.html
-
-**If Trump’s Conviction Lands Him in Prison, the Secret Service Goes Too**\
-`The former president could face probation or prison time. Either option would be without precedent.`\
-https://nytimes.com/2024/05/30/nyregion/trump-prison-secret-service.html
 

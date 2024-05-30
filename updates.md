@@ -1,3 +1,7 @@
+**Future journalists struggled with spelling, too.**\
+`By The New York Times`\
+https://nytimes.com/live/2022/06/02/us/scripps-spelling-bee/future-journalists-struggled-with-spelling-too
+
 **DNA From a Discarded Fork Leads to Arrest in Brutal Cold-Case Murder**\
 `A 41-year-old Florida man has been charged in the 2009 stabbing death of his uncle in Queens.`\
 https://nytimes.com/2024/05/30/nyregion/fork-dna-queens-murder.html
