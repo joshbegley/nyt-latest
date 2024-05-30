@@ -1,3 +1,7 @@
+**Patriotism, Diversity and the Election**\
+`We explore the battle for Senate control.`\
+https://nytimes.com/2024/05/30/briefing/senate-elections-democrats-2024.html
+
 **Trump Deliberations Continue, and New Delhi’s Hottest Recorded Day**\
 `Plus, Justice Samuel Alito refuses recusal calls.`\
 https://nytimes.com/2024/05/30/podcasts/trump-deliberations-india-climate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/30/us/politics/mccormick-casey-pennsylvania.html
 **What Women Voters Really Want**\
 `It’s a political question at the heart of 2024 and the premise of Trump’s criminal trial. We check in with two female pollsters who wrote a book in 2005, claiming to know … one of whom happens to be Kellyanne Conway.`\
 https://nytimes.com/2024/05/30/podcasts/what-women-voters-really-want.html
-
-**A First-Time Buyer at 66, She Tested her $220,000 Budget in Illinois. Which House Did She Buy?**\
-`After years of living in employer-provided housing, a retired pastor decided to put down roots in Peoria, Ill. Could she afford the single-story, three-bedroom house she wanted?`\
-https://nytimes.com/interactive/2024/05/30/realestate/peoria-illinois-home-sale-hunt.html
 
