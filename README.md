@@ -1,3 +1,7 @@
+**Israel Must Stop Its Campaign Against UNRWA**\
+`The commissioner of UNRWA calls for an end to Israeli attacks, both physical and verbal, against its staff and buildings.`\
+https://nytimes.com/2024/05/30/opinion/israel-gaza-un-unrwa.html
+
 **New Scandal Engulfs South Korean Leader in Wake of Marine’s Death**\
 `President Yoon Suk Yeol has been accused of intervening in a probe into an accidental death during a peacetime search and rescue operation.`\
 https://nytimes.com/2024/05/30/world/asia/korea-marine-yoon-impeachment.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/29/crosswords/daily-puzzle-2024-05-30.html
 **His License Suspended, a Man Appears in Court From Behind the Wheel**\
 `A defendant charged with driving with a suspended license appeared via Zoom while driving. “I don’t know why he would do that,” a perplexed judge said.`\
 https://nytimes.com/2024/05/29/us/driving-zoom-court-suspended-license.html
-
-**Hong Kong Convicts Democracy Activists in Largest National Security Trial**\
-`As part of China’s crackdown on even peaceful dissent, a court in Hong Kong convicted 14 people, who now face prison time along with dozens of others.`\
-https://nytimes.com/2024/05/29/world/asia/hong-kong-national-security.html
 
