@@ -1,3 +1,15 @@
+**Outside the Courthouse, Waiting for a Verdict**\
+`By Adam Gray`\
+https://nytimes.com/card/2024/05/30/nyregion/trump-trial-waiting
+
+**Europe Banned Russia’s RT Network. Its Content Is Still Spreading.**\
+`A study found that hundreds of sites, many without obvious Kremlin links, copied Russian propaganda and spread it to unsuspecting audiences ahead of the E.U. election.`\
+https://nytimes.com/2024/05/30/business/media/russia-rt-disinformation-europe-ban.html
+
+**Supreme Court Clears Way for N.R.A. to Pursue First Amendment Challenge**\
+`The opinion, by Justice Sonia Sotomayor, found that the gun rights group had plausibly claimed a First Amendment violation.`\
+https://nytimes.com/2024/05/30/us/supreme-court-nra-first-amendment.html
+
 **Europe Banned Russia’s RT Network. Its Content Is Still Spreading.**\
 `A study found that hundreds of sites, many without obvious Kremlin links, copied Russian propaganda and spread it to unsuspecting audiences ahead of the E.U. election.`\
 https://nytimes.com/2024/05/30/business/media/europe-banned-russias-rt-network-its-content-is-still-spreading.html
