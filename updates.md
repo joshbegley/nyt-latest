@@ -1,3 +1,7 @@
+**After Conviction, Trump Says ‘Real Verdict’ Will Come in November**\
+`Former President Donald J. Trump, speaking in the courthouse hallway, repeated his unfounded claims that the case was an attempt to interference with his White House bid, and insisted he was innocent.`\
+https://nytimes.com/live/2024/05/30/nyregion/trump-trial-verdict/after-conviction-trump-says-real-verdict-will-come-in-november
+
 **Trump’s G.O.P. Allies Assail His Guilty Verdict in New York Case**\
 `Republicans urged the former president to appeal the verdict after a jury found him guilty of all 34 criminal counts.`\
 https://nytimes.com/2024/05/30/us/politics/trump-verdict-republicans-reaction.html
