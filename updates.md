@@ -1,3 +1,7 @@
+**Patriotism, Diversity and the Election**\
+`We explore the battle for Senate control.`\
+https://nytimes.com/2024/05/30/briefing/senate-elections-democrats-2024.html
+
 **Trump Deliberations Continue, and New Delhi’s Hottest Recorded Day**\
 `Plus, Justice Samuel Alito refuses recusal calls.`\
 https://nytimes.com/2024/05/30/podcasts/trump-deliberations-india-climate.html
