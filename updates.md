@@ -1,3 +1,7 @@
+**‘Ukraine Has Gone Through a Terrible Period’: A Q. and A. With Frederick and Kimberly Kagan**\
+`We’re at a crucial moment in the war.`\
+https://nytimes.com/2024/05/30/opinion/ukraine-russia-war-history.html
+
 **Champion habits to spell S-U-C-C-E-S-S.**\
 `The spellers who get to the final round of the Scripps National Spelling Bee need more than just an affinity for words. Here’s what the coaches have to say.`\
 https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee/champion-habits-to-spell-s-u-c-c-e-s-s

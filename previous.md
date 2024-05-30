@@ -14,7 +14,7 @@ https://nytimes.com/2024/05/30/us/politics/biden-trump-reaction.html
 `Former President Donald J. Trump was convicted on Thursday on all 34 counts of falsifying business records by a jury of 12 New Yorkers, who deliberated over two days.`\
 https://nytimes.com/interactive/2024/05/30/nyregion/trump-trial-verdict-document-manhattan-criminal.html
 
-**‘Ukraine Has Gone Through a Terrible Period’: A Q. and A. with Frederick and Kimberly Kagan**\
+**‘Ukraine Has Gone Through a Terrible Period’: A Q. and A. With Frederick and Kimberly Kagan**\
 `We’re at a crucial moment in the war.`\
 https://nytimes.com/2024/05/30/opinion/ukraine-russia-war-history.html
 
