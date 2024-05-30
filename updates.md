@@ -1,3 +1,7 @@
+**Chief Justice Rejects Call for Alito’s Recusal in Jan. 6 Cases After Flag Incidents**\
+`In a letter to Democratic senators, Chief Justice John G. Roberts Jr. said that individual justices decide when to recuse. He declined to meet with the senators to discuss court ethics.`\
+https://nytimes.com/2024/05/30/us/politics/roberts-alito-supreme-court-flag-ethics.html
+
 **Episode 1: Walnut**\
 `A hole in Sam’s floor sparks a crisis.`\
 https://nytimes.com/2024/05/30/podcasts/animal-episode-1-walnut.html

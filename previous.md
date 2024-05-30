@@ -1,3 +1,7 @@
+**Chief Justice Rejects Call for Alito’s Recusal in Jan. 6 Cases After Flag Incidents**\
+`In a letter to Democratic senators, Chief Justice John G. Roberts Jr. said that individual justices decide when to recuse. He declined to meet with the senators to discuss court ethics.`\
+https://nytimes.com/2024/05/30/us/politics/roberts-alito-supreme-court-flag-ethics.html
+
 **Episode 1: Walnut**\
 `A hole in Sam’s floor sparks a crisis.`\
 https://nytimes.com/2024/05/30/podcasts/animal-episode-1-walnut.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/30/podcasts/animal-episode-5-wolves.html
 **Episode 6: Bats**\
 `Sam stares into another hole.`\
 https://nytimes.com/2024/05/30/podcasts/animal-episode-6-bats.html
-
-**Bird Flu Has Infected a Third U.S. Farmworker**\
-`The worker had respiratory symptoms, unlike the first two. But the risk to the public remains low, federal health officials said.`\
-https://nytimes.com/2024/05/30/health/bird-flu-infection-farmworker.html
 
