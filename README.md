@@ -1,3 +1,19 @@
+**Champion habits to spell S-U-C-C-E-S-S.**\
+`The spellers who get to the final round of the Scripps National Spelling Bee need more than just an affinity for words. Here’s what the coaches have to say.`\
+https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee/champion-habits-to-spell-s-u-c-c-e-s-s
+
+**Trump Reacts to Guilty Verdict**\
+`Donald J. Trump was convicted on Thursday of falsifying records to cover up a sex scandal that threatened to derail his 2016 presidential campaign.`\
+https://nytimes.com/video/us/politics/100000009496730/trump-trial-verdict.html
+
+**Trump Verdict Gets Little Reaction From the White House**\
+`“We respect the rule of law,” a spokesman for the White House Counsel’s Office said after former President Donald J. Trump’s conviction in the hush-money case.`\
+https://nytimes.com/2024/05/30/us/politics/biden-trump-reaction.html
+
+**Read the Verdict Sheet in the Trump Manhattan Criminal Trial**\
+`Former President Donald J. Trump was convicted on Thursday on all 34 counts of falsifying business records by a jury of 12 New Yorkers, who deliberated over two days.`\
+https://nytimes.com/interactive/2024/05/30/nyregion/trump-trial-verdict-document-manhattan-criminal.html
+
 **‘Ukraine Has Gone Through a Terrible Period’: A Q. and A. with Frederick and Kimberly Kagan**\
 `We’re at a crucial moment in the war.`\
 https://nytimes.com/2024/05/30/opinion/ukraine-russia-war-history.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee/scripps-bee-sanil-th
 **What Is Your Reaction to Trump’s Conviction on 34 Felony Counts?**\
 `Donald J. Trump is the first American president to be declared a felon, a stain he will carry as he seeks to regain the presidency.`\
 https://nytimes.com/2024/05/30/learning/what-is-your-reaction-to-trumps-conviction-on-34-felony-counts.html
-
-**‘Guilty,’ and History Is Made**\
-`A single word rings out in a Manhattan courtroom as Donald Trump becomes the first American president convicted of a crime.`\
-https://nytimes.com/2024/05/30/us/politics/trump-trial-guilty-verdict.html
-
-**The Trump Verdict: Americans React**\
-`Initial reactions nationwide to former President Donald J. Trump’s conviction on all 34 counts of falsifying business records.`\
-https://nytimes.com/2024/05/30/nyregion/trump-guilty-verdict-react.html
-
-**Here is some advice from two contestants who came back for their fourth national competition.**\
-`By Emily Schmall`\
-https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee/here-is-some-advice-from-two-contestants-who-came-back-for-their-fourth-national-competition
-
-**What if This Is Our Last Real Election?**\
-`The stakes for our democracy should be obvious.`\
-https://nytimes.com/2024/05/30/opinion/biden-trump-election.html
 
