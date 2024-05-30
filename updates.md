@@ -1,3 +1,7 @@
+**Time to Examine Why New York Fared Poorly Early in the Pandemic**\
+`Albany needs to conduct a thorough review.`\
+https://nytimes.com/live/2024/05/28/opinion/thepoint/covid-new-york
+
 **John Lennon’s Guitar From ‘Help!’ Is Sold for $2.9 Million at Auction**\
 `After appearing in multiple albums by the Beatles, the instrument was forgotten for more than 50 years before it turned up in the attic of a British countryside home.`\
 https://nytimes.com/2024/05/30/arts/music/john-lennon-guitar-auction-sold-beatles.html
