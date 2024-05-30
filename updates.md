@@ -1,3 +1,7 @@
+**Ángel Hernández Made Baseball Great**\
+`We all love to hate the ump show.`\
+https://nytimes.com/live/2024/05/28/opinion/thepoint/angel-hernandez-retirement-umpire
+
 **6 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/05/30/books/review/new-books-recommendations.html
