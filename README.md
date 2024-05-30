@@ -1,3 +1,7 @@
+**DNA From a Discarded Fork Leads to Arrest in Brutal Cold-Case Murder**\
+`A 41-year-old Florida man has been charged in the 2009 stabbing death of his uncle in Queens.`\
+https://nytimes.com/2024/05/30/nyregion/fork-dna-queens-murder.html
+
 **Trump Is Guilty on All Counts**\
 `Also, Biden will allow Ukraine to use U.S. weapons in Russia. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/05/30/briefing/trump-guilty-new-york-trial-ukraine-weapons.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/30/nyregion/trump-convicted-hush-money-trial.html
 **If Trump’s Conviction Lands Him in Prison, the Secret Service Goes Too**\
 `The former president could face probation or prison time. Either option would be without precedent.`\
 https://nytimes.com/2024/05/30/nyregion/trump-prison-secret-service.html
-
-**Trump Has Been Convicted. Here’s What Happens Next.**\
-`Donald J. Trump has promised to appeal, but he may face limits on his ability to travel and to vote as he campaigns for the White House.`\
-https://nytimes.com/2024/05/30/nyregion/trump-conviction-hush-money-trial.html
 
