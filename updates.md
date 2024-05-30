@@ -1,3 +1,7 @@
+**Man Charged After Attempted Attack Outside Jewish School in New York**\
+`A suspect faces hate crime and other charges after police say he yelled antisemitic statements and drove toward pedestrians onto a sidewalk.`\
+https://nytimes.com/2024/05/30/nyregion/man-charged-jewish-school-attack.html
+
 **Israel Must Stop Its Campaign Against UNRWA**\
 `The commissioner of UNRWA calls for an end to Israeli attacks, both physical and verbal, against its staff and buildings.`\
 https://nytimes.com/2024/05/30/opinion/israel-gaza-un-unrwa.html
