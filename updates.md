@@ -1,3 +1,7 @@
+**A ‘Carnival’ of Signs, Spats and Skin Outside the Trump Trial**\
+`The Naked Cowboy appeared, briefly, in the park outside the courthouse where a jury of 12 New Yorkers will decide the criminal case against Donald J. Trump.`\
+https://nytimes.com/2024/05/30/nyregion/collect-pond-park-crowd-trump.html
+
 **What Is the Philadelphi Corridor, and Why Does It Matter?**\
 `An eight-mile-long strip of land between the Gaza Strip and Egypt is the latest focus of the Israeli assault on Hamas.`\
 https://nytimes.com/2024/05/30/world/middleeast/what-is-the-philadelphi-corridor.html

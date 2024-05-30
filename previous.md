@@ -1,3 +1,7 @@
+**A ‘Carnival’ of Signs, Spats and Skin Outside the Trump Trial**\
+`The Naked Cowboy appeared, briefly, in the park outside the courthouse where a jury of 12 New Yorkers will decide the criminal case against Donald J. Trump.`\
+https://nytimes.com/2024/05/30/nyregion/collect-pond-park-crowd-trump.html
+
 **Boeing Gives F.A.A. Plan to Address Systemic Quality-Control Issues**\
 `The action plan is the latest in a series of moves by the F.A.A. to push for safety improvements throughout Boeing during a tumultuous year for the company.`\
 https://nytimes.com/2024/05/30/us/politics/boeing-faa-quality-control-plan.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/28/opinion/thepoint/angel-hernandez-retirement-
 **6 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/05/30/books/review/new-books-recommendations.html
-
-**This is how jury deliberations work.**\
-`By Kate Christobek`\
-https://nytimes.com/live/2024/05/30/nyregion/trump-trial-verdict/heres-how-jury-deliberations-work
 
