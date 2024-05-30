@@ -1,3 +1,11 @@
+**The Most Delicious Way to Make Wild Salmon**\
+`Leaner than farmed fish and far more flavorful, wild salmon is in season now. Here’s how to cook and savor it.`\
+https://nytimes.com/article/wild-salmon.html
+
+**After Hack, Christie’s Gives Details of Compromised Client Data**\
+`Its disclosure came after RansomHub claimed responsibility for the cyberattack and threatened to release client data on the dark web.`\
+https://nytimes.com/2024/05/30/arts/design/christies-hack-client-data.html
+
 **PTSD Has Surged Among College Students**\
 `The prevalence of post-traumatic stress disorder among college students rose to 7.5 percent in 2022, more than double the rate five years earlier, researchers found.`\
 https://nytimes.com/2024/05/30/health/ptsd-diagnoses-rising-college-students.html
