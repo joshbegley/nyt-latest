@@ -1,3 +1,11 @@
+**‘Ren Faire’ Is ‘Succession’ With Turkey Legs**\
+`An engrossing documentary debuting Sunday on HBO, it chronicles a Renaissance festival impresario’s effort to find a worthy heir.`\
+https://nytimes.com/2024/05/30/arts/television/ren-faire-is-succession-with-turkey-legs.html
+
+**Episode 3: Manatees**\
+`Sam makes his underwater dreams a reality.`\
+https://nytimes.com/2024/05/30/podcasts/animal-episode-3-manatees.html
+
 **The Outdoor Dining Season Opener**\
 `Rooftop beers and pretzels at Greats of Craft, natural wine and pop-ups at Frog, and more reasons to get outside.`\
 https://nytimes.com/2024/05/30/dining/the-outdoor-dining-season-opener.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/30/climate/carbon-emissions-falling-global.html
 **The Words That Defined Closing Arguments in Donald Trump’s Trial**\
 `Defense lawyers and prosecutors deployed their best lines to win jurors to their side. The panel of 12 New Yorkers then went behind closed doors.`\
 https://nytimes.com/2024/05/30/nyregion/closing-arguments-donald-trump-trial.html
-
-**‘This Is About Systemic Change’: F.A.A. Outlines Boeing’s Action Plan**\
-`Mike Whitaker, the administrator of the Federal Aviation Administration, shared Boeing’s plan to improve the quality and safety of their planes, amid scandals that placed the aircraft manufacturer at the center of several investigations.`\
-https://nytimes.com/video/us/politics/100000009495871/boeing-faa-airline-planes.html
-
-**Tulsi Gabbard Says She’d ‘Be Honored’ to Be Trump’s Running Mate**\
-`The former Hawaii congresswoman, who became estranged from the Democratic Party, has drawn intrigue from Donald J. Trump but is considered a long shot.`\
-https://nytimes.com/2024/05/30/us/politics/tulsi-gabbard-trump-vp.html
 
