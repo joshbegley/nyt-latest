@@ -1,3 +1,7 @@
+**6 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/05/30/books/review/new-books-recommendations.html
+
 **Here’s how jury deliberations work.**\
 `By Kate Christobek`\
 https://nytimes.com/live/2024/05/30/nyregion/trump-trial-verdict/heres-how-jury-deliberations-work
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/30/arts/dance/twyla-tharp-how-long-blues-little-isla
 **A Look at California Today, and Tomorrow**\
 `Soumya Karlamangla, who writes The Times’s California newsletter, wants to balance uplifting stories and hard news happening in the Golden State.`\
 https://nytimes.com/2024/05/30/insider/california-today-newsletter.html
-
-**The Most Delicious Way to Make Wild Salmon**\
-`Leaner than farmed fish and far more flavorful, wild salmon is in season now. Here’s how to cook and savor it.`\
-https://nytimes.com/article/wild-salmon.html
 
