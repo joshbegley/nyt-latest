@@ -1,3 +1,15 @@
+**How Republicans in Key Senate Races Are Flip-Flopping on Abortion**\
+`Several G.O.P. Senate candidates used to embrace anti-abortion views. Now they are shifting their positions on an issue that has become an electoral liability for their party.`\
+https://nytimes.com/2024/05/30/us/politics/republican-senate-races-abortion.html
+
+**Rafah offensive is worsening the plight around Gaza, aid agencies warn.**\
+`Deteriorating conditions across the Gaza Strip on Thursday were underscored by a strike that killed two medics and scenes of vast urban destruction farther north.`\
+https://nytimes.com/live/2024/05/30/world/israel-gaza-war-hamas-rafah/rafah-offensive-is-worsening-the-plight-around-gaza-aid-agencies-warn
+
+**Taking the Fight to Russia: The West Weighs Ukraine’s Use of Its Weapons**\
+`More NATO allies are backing Kyiv’s pleas to allow its forces to conduct strikes in Russian territory with Western weapons.`\
+https://nytimes.com/2024/05/30/world/europe/ukraine-russia-us-weapons-strike.html
+
 **This is how jury deliberations work.**\
 `By Kate Christobek`\
 https://nytimes.com/live/2024/05/30/nyregion/trump-trial-verdict/heres-how-jury-deliberations-work
