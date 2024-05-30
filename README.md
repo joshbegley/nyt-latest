@@ -1,3 +1,11 @@
+**What Is Your Reaction to Trump’s Conviction on 34 Felony Counts?**\
+`Donald J. Trump is the first American president to be declared a felon, a stain he will carry as he seeks to regain the presidency.`\
+https://nytimes.com/2024/05/30/learning/what-is-your-reaction-to-trumps-conviction-on-34-felony-counts.html
+
+**‘Guilty,’ and History Is Made**\
+`A single word rings out in a Manhattan courtroom as Donald Trump becomes the first American president convicted of a crime.`\
+https://nytimes.com/2024/05/30/us/politics/trump-trial-guilty-verdict.html
+
 **The Trump Verdict: Americans React**\
 `Initial reactions nationwide to former President Donald J. Trump’s conviction on all 34 counts of falsifying business records.`\
 https://nytimes.com/2024/05/30/nyregion/trump-guilty-verdict-react.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/30/us/politics/trump-verdict-republicans-reaction.ht
 **Here are the rules of the Spelling Bee.**\
 `By Alexandra E. Petri`\
 https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee/here-are-the-rules-of-the-spelling-bee
-
-**Trump cites a litany of misleading claims after the verdict in the Manhattan trial.**\
-`Some of Donald J. Trump’s assertions lacked evidence. Others were merely exaggerated.`\
-https://nytimes.com/2024/05/30/nyregion/trump-verdict-claims-fact-check.html
-
-**Elon Musk’s X to Host Election Town Hall With Donald Trump**\
-`The social media platform will produce video town halls with Mr. Trump and Robert F. Kennedy Jr., extending its push into politics.`\
-https://nytimes.com/2024/05/30/technology/x-town-hall-trump.html
 
