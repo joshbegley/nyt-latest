@@ -1,3 +1,7 @@
+**Congestion Pricing’s Latest Challenger: New York City Truckers**\
+`The industry that moves nearly 90 percent of goods within the city is suing to challenge the policy, claiming it unfairly burdens their business.`\
+https://nytimes.com/2024/05/30/nyregion/congestion-pricing-trucks-nyc.html
+
 **Live Updates: Jury to Review Testimony on Day 2 of Trump Trial Deliberations**\
 `The 12 New Yorkers deciding the criminal case against Donald J. Trump ended their first day of deliberations by asking to hear some testimony and the judge’s instructions again. Mr. Trump is charged with 34 felony counts related to a hush-money payment to a porn star.`\
 https://nytimes.com/live/2024/05/30/nyregion/trump-trial-verdict
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/30/arts/design/eike-schmidt-florence-mayor-uffizi.ht
 **What’s Behind Elon Musk’s Bromance with Donald Trump**\
 `The Republican is courting the mogul to bolster his re-election fight, but  the Biden campaign sees a political opportunity to exploit.`\
 https://nytimes.com/2024/05/30/business/dealbook/elon-musk-bromance-donald-trump-biden.html
-
-**Gaza and Egypt share a sensitive border that the Israeli military has moved to control.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/05/30/world/israel-gaza-war-hamas-rafah/gaza-and-egypt-share-a-sensitive-border-that-the-israeli-military-has-moved-to-control
 
