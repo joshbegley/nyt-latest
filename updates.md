@@ -1,3 +1,7 @@
+**Inflation and the Problem of McMisinformation**\
+`The Big Mac vibes are all wrong.`\
+https://nytimes.com/live/2024/05/28/opinion/thepoint/krugman-mcdonalds-inflation
+
 **PTSD Has Surged Among College Students**\
 `The prevalence of post-traumatic stress disorder among college students rose to 7.5 percent in 2022, more than double the rate five years earlier, researchers found.`\
 https://nytimes.com/2024/05/30/science/ptsd-diagnoses-rising-college-students.html
