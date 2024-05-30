@@ -35,6 +35,6 @@ https://nytimes.com/2024/05/30/nyregion/fork-dna-queens-murder.html
 https://nytimes.com/2024/05/30/briefing/trump-guilty-new-york-trial-ukraine-weapons.html
 
 **Live Updates: Scripps National Spelling Bee Will Crown a New Champion**\
-`The finalists, all under 16 years old, are set to take the final stage at 8 p.m. Eastern time.`\
+`The eight remaining finalists, all under 16 years old, are set to take the final stage at 8 p.m. Eastern time.`\
 https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee
 

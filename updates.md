@@ -1,3 +1,7 @@
+**Live Updates: Scripps National Spelling Bee Will Crown a New Champion**\
+`The eight remaining finalists, all under 16 years old, are set to take the final stage at 8 p.m. Eastern time.`\
+https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee
+
 **After Conviction, Trump Says ‘Real Verdict’ Will Come in November**\
 `Former President Donald J. Trump, speaking in the courthouse hallway, repeated his unfounded claims that the case was an attempt to interference with his White House bid, and insisted he was innocent.`\
 https://nytimes.com/live/2024/05/30/nyregion/trump-trial-verdict/after-conviction-trump-says-real-verdict-will-come-in-november
