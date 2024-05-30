@@ -1,3 +1,15 @@
+**Europe Banned Russia’s RT Network. Its Content Is Still Spreading.**\
+`A study found that hundreds of sites, many without obvious Kremlin links, copied Russian propaganda and spread it to unsuspecting audiences ahead of the E.U. election.`\
+https://nytimes.com/2024/05/30/business/media/europe-banned-russias-rt-network-its-content-is-still-spreading.html
+
+**Cleveland Museum of Art to Return a Rare Ancient Icon to Libya**\
+`A 2,200-year-old sculpture of a bearded man carved from basalt, unearthed in the 1930s, is believed to have been stolen in the early 1940s.`\
+https://nytimes.com/2024/05/30/arts/design/statue.html
+
+**Supreme Court Allows N.R.A. to Pursue First Amendment Challenge Against New York Official**\
+`The opinion, by Justice Sonia Sotomayor, found that the gun rights group had plausibly claimed a First Amendment violation.`\
+https://nytimes.com/2024/05/30/us/supreme-court-nra-first-amendment.html
+
 **There’s a Program to Cancel Private Student Debt. Most Don’t Know About It.**\
 `A nonprofit group is publicizing the relief program that Navient, a large lender, created for students who attended for-profit schools that misled them.`\
 https://nytimes.com/2024/05/30/business/navient-private-student-loan-debt.html
