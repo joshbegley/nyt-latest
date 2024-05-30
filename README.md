@@ -1,11 +1,3 @@
-**Election Updates: A pro-McCormick super PAC plans a $30 million ad blitz in Pennsylvania.**\
-``\
-https://nytimes.com/live/2024/05/30/us/biden-trump-election
-
-**Does P-22, the Celebrity Big Cat of Los Angeles, Have a Successor?**\
-`More than a year after the death of P-22, the beloved mountain lion who made Griffith Park his home, another has been spotted nearby.`\
-https://nytimes.com/2024/05/30/us/hollywood-mountain-lion-p22-p122.html
-
 **Congestion Pricing’s Latest Challenger: New York City Truckers**\
 `The industry that moves nearly 90 percent of goods within the city is suing to challenge the policy, claiming it unfairly burdens their business.`\
 https://nytimes.com/2024/05/30/nyregion/congestion-pricing-trucks-nyc.html
@@ -37,4 +29,12 @@ https://nytimes.com/2024/05/30/style/calvin-klein-veronica-leoni-new-designer.ht
 **Ukraine Warns of Deepening Russian Threat in the North**\
 `Analysts say an offensive in the Kharkiv or Sumy regions could stretch Ukrainian troops to the breaking point and allow Moscow to punch through.`\
 https://nytimes.com/2024/05/30/world/europe/ukraine-russia-offensive-north.html
+
+**Trading Art for Politics, Former Uffizi Chief Runs for Mayor of Florence**\
+`Eike Schmidt, the former director of the Uffizi Galleries, is facing an uphill battle in his bid to become mayor, but he’s counting on his cultural clout to win.`\
+https://nytimes.com/2024/05/30/arts/design/eike-schmidt-florence-mayor-uffizi.html
+
+**What’s Behind Elon Musk’s Bromance with Donald Trump**\
+`The Republican is courting the mogul to bolster his re-election fight, but  the Biden campaign sees a political opportunity to exploit.`\
+https://nytimes.com/2024/05/30/business/dealbook/elon-musk-bromance-donald-trump-biden.html
 
