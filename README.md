@@ -4,7 +4,7 @@ https://nytimes.com/2024/05/30/us/politics/boeing-faa-quality-control-plan.html
 
 **What Is the Philadelphi Corridor, and Why Does It Matter?**\
 `An eight-mile-long strip of land between the Gaza Strip and Egypt is the latest focus of the Israeli assault on Hamas.`\
-https://nytimes.com/2024/05/30/world/middleeast/what-is-the-philadelphi-corridor-and-why-does-it-matter.html
+https://nytimes.com/2024/05/30/world/middleeast/what-is-the-philadelphi-corridor.html
 
 **How Republicans in Key Senate Races Are Flip-Flopping on Abortion**\
 `Several G.O.P. Senate candidates used to embrace anti-abortion views. Now they are shifting their positions on an issue that has become an electoral liability for their party.`\
