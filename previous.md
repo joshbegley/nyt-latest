@@ -1,3 +1,7 @@
+**Why the Trump Trial Jurors Didn’t Get the Judge’s Instructions in Writing**\
+`While common sense suggests a written copy would be helpful for jurors as they deliberate, the law does not allow it.`\
+https://nytimes.com/2024/05/30/nyregion/written-jury-instructions-trump-judge.html
+
 **Jury in Trump’s Trial Rehears Testimony and Judge’s Instructions**\
 `The jurors’ requests included specific testimony from David Pecker, the former publisher of The National Enquirer, and Michael D. Cohen, Donald J. Trump’s former fixer.`\
 https://nytimes.com/2024/05/30/nyregion/trump-jury-instructions-testimony.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/30/theater/madison-ferris-danny-gomez.html
 **PTSD Has Surged Among College Students**\
 `The prevalence of post-traumatic stress disorder among college students rose to 7.5 percent in 2022, more than double the rate five years earlier, researchers found.`\
 https://nytimes.com/2024/05/30/health/ptsd-diagnoses-rising-college-students.html
-
-**Grilled Chicken With Tomatoes and Corn, Mango Sticky-Rice Popsicles and the Nicest Niçoise**\
-`And many more hits from our Summer 100.`\
-https://nytimes.com/2024/05/30/dining/grilled-chicken-with-tomatoes-and-corn-mango-sticky-rice-popsicles-and-the-nicest-nicoise.html
 
