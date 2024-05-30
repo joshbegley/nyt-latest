@@ -1,3 +1,7 @@
+**What’s Behind Elon Musk’s Bromance with Donald Trump**\
+`The Republican is courting the mogul to bolster his re-election fight, but  the Biden campaign sees a political opportunity to exploit.`\
+https://nytimes.com/2024/05/30/business/dealbook/elon-musk-bromance-donald-trump-biden.html
+
 **Gaza and Egypt share a sensitive border that the Israeli military has moved to control.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/05/30/world/israel-gaza-war-hamas-rafah/gaza-and-egypt-share-a-sensitive-border-that-the-israeli-military-has-moved-to-control

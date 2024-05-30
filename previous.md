@@ -1,3 +1,7 @@
+**What’s Behind Elon Musk’s Bromance with Donald Trump**\
+`The Republican is courting the mogul to bolster his re-election fight, but  the Biden campaign sees a political opportunity to exploit.`\
+https://nytimes.com/2024/05/30/business/dealbook/elon-musk-bromance-donald-trump-biden.html
+
 **Gaza and Egypt share a sensitive border that the Israeli military has moved to control.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/05/30/world/israel-gaza-war-hamas-rafah/gaza-and-egypt-share-a-sensitive-border-that-the-israeli-military-has-moved-to-control
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/30/movies/backspot-review.html
 **Time to Examine Why New York Fared Poorly Early in the Pandemic**\
 `Albany needs to conduct a thorough review.`\
 https://nytimes.com/live/2024/05/28/opinion/thepoint/covid-new-york
-
-**John Lennon’s Guitar From ‘Help!’ Is Sold for $2.9 Million at Auction**\
-`After appearing in multiple albums by the Beatles, the instrument was forgotten for more than 50 years before it turned up in the attic of a British countryside home.`\
-https://nytimes.com/2024/05/30/arts/music/john-lennon-guitar-auction-sold-beatles.html
 
