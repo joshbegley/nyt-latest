@@ -1,10 +1,14 @@
+**Trump’s G.O.P. Allies Assail His Guilty Verdict in New York Case**\
+`Republicans urged the former president to appeal the verdict after a jury found him guilty of all 34 criminal counts.`\
+https://nytimes.com/2024/05/30/us/politics/trump-verdict-republicans-reaction.html
+
 **Here are the rules of the Spelling Bee.**\
 `By Alexandra E. Petri`\
 https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee/here-are-the-rules-of-the-spelling-bee
 
-**Trump cites a litany of claims after the verdict in the Manhattan trial.**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/05/30/nyregion/trump-trial-verdict/trump-cites-a-litany-of-claims-after-the-verdict-in-the-manhattan-trial
+**Trump cites a litany of inaccurate claims after the verdict in the Manhattan trial.**\
+`The claims, with no e`\
+https://nytimes.com/live/2024/05/30/nyregion/trump-trial-verdict/trump-verdict-claims-fact-check
 
 **Elon Musk’s X to Host Election Town Hall With Donald Trump**\
 `The social media platform will produce video town halls with Mr. Trump and Robert F. Kennedy Jr., extending its push into politics.`\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee
 **How A.I. Has Changed Music, and What’s Coming Next**\
 `Artificial intelligence has become the dominant disrupter to music creation and distribution. And it’s only getting started.`\
 https://nytimes.com/2024/05/30/arts/music/popcast-artificial-intelligence-ai.html
-
-**U.S. Accuses Hyundai and Two Other Companies of Using Child Labor**\
-`The Labor Department filed a lawsuit accusing Hyundai, one of its suppliers and a staffing company of jointly employing a 13-year-old on an auto body parts assembly line in Alabama.`\
-https://nytimes.com/2024/05/30/business/hyundai-child-labor-lawsuit.html
 

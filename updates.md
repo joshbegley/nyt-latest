@@ -1,3 +1,11 @@
+**Trump’s G.O.P. Allies Assail His Guilty Verdict in New York Case**\
+`Republicans urged the former president to appeal the verdict after a jury found him guilty of all 34 criminal counts.`\
+https://nytimes.com/2024/05/30/us/politics/trump-verdict-republicans-reaction.html
+
+**Trump cites a litany of inaccurate claims after the verdict in the Manhattan trial.**\
+`The claims, with no e`\
+https://nytimes.com/live/2024/05/30/nyregion/trump-trial-verdict/trump-verdict-claims-fact-check
+
 **Here are the rules of the Spelling Bee.**\
 `By Alexandra E. Petri`\
 https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee/here-are-the-rules-of-the-spelling-bee
