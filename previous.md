@@ -3,11 +3,11 @@
 https://nytimes.com/2024/05/30/nyregion/trump-trial-unanimous-verdict-misinformation.html
 
 **Animal**\
-`In a broken world, what can we gain by looking another animal in the eye? "Animal" is a six-part, round-the-world journey in search of an answer.`\
+`In a broken world, what can we gain by looking another animal in the eye? Join the writer Sam Anderson on a six-part, round-the-world journey in search of an answer.`\
 https://nytimes.com/column/animal-podcast
 
 **Idaho Man Is Found Guilty of Murder in ‘Doomsday’ Killings**\
-`Chad Daybell was convicted of first-degree murder in the deaths of his first wife and two of current wife’s children. His wife, Lori Vallow Daybell, was previously sentenced to life in prison.`\
+`Chad Daybell was convicted of first-degree murder in the deaths of his first wife and two of his current wife’s children. His wife, Lori Vallow Daybell, was previously sentenced to life in prison.`\
 https://nytimes.com/2024/05/30/us/chad-daybell-doomsday-murder-verdict.html
 
 **Trump’s Trial and Lincoln’s Example Make 2024 a Character Test**\
