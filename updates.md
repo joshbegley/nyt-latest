@@ -1,3 +1,23 @@
+**DNA From a Discarded Fork Leads to Arrest in Brutal Cold-Case Murder**\
+`A 41-year-old Florida man has been charged in the 2009 stabbing death of his uncle in Queens.`\
+https://nytimes.com/2024/05/30/nyregion/fork-dna-queens-murder.html
+
+**Trump Is Guilty on All Counts**\
+`Also, Biden will allow Ukraine to use U.S. weapons in Russia. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/05/30/briefing/trump-guilty-new-york-trial-ukraine-weapons.html
+
+**Live Updates: Scripps National Spelling Bee Will Crown a New Champion**\
+`The finalists, all under 16 years old, are set to take the final stage at 8 p.m. Eastern time.`\
+https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee
+
+**How A.I. Has Changed Music, and What’s Coming Next**\
+`Artificial intelligence has become the dominant disrupter to music creation and distribution. And it’s only getting started.`\
+https://nytimes.com/2024/05/30/arts/music/popcast-artificial-intelligence-ai.html
+
+**U.S. Accuses Hyundai and Two Other Companies of Using Child Labor**\
+`The Labor Department filed a lawsuit accusing Hyundai, one of its suppliers and a staffing company of jointly employing a 13-year-old on an auto body parts assembly line in Alabama.`\
+https://nytimes.com/2024/05/30/business/hyundai-child-labor-lawsuit.html
+
 **Albert S. Ruddy, 94, Dies; Producer Won an Oscar for ‘The Godfather’**\
 `A creator of the sitcom “Hogan’s Heroes,” he went on to win a second Academy Award for “Million Dollar Baby,” the boxing film starring Hilary Swank and Clint Eastwood.`\
 https://nytimes.com/2024/05/30/movies/albert-s-ruddy-dead.html
