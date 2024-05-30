@@ -1,3 +1,7 @@
+**Why Are People So Down About the Economy? Theories Abound.**\
+`Things look strong on paper, but many Americans remain unconvinced. We asked economic officials, the woman who coined “vibecession” and Charlamagne Tha God what they think is happening.`\
+https://nytimes.com/2024/05/30/business/economy/inflation-economy-americans.html
+
 **Word of the Day: exhume**\
 `This word has appeared in 10 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/05/30/learning/word-of-the-day-exhume.html
