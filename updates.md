@@ -1,3 +1,11 @@
+**Cleveland Museum of Art to Return a Rare Ancient Icon to Libya**\
+`A 2,200-year-old sculpture of a bearded man carved from basalt, unearthed in the 1930s, is believed to have been stolen in the early 1940s.`\
+https://nytimes.com/2024/05/30/arts/design/statue.html
+
+**Supreme Court Allows N.R.A. to Pursue First Amendment Challenge Against New York Official**\
+`The opinion, by Justice Sonia Sotomayor, found that the gun rights group had plausibly claimed a First Amendment violation.`\
+https://nytimes.com/2024/05/30/us/supreme-court-nra-first-amendment.html
+
 **Why Are People So Down About the Economy? Theories Abound.**\
 `Things look strong on paper, but many Americans remain unconvinced. We asked economic officials, the woman who coined “vibecession” and Charlamagne Tha God what they think is happening.`\
 https://nytimes.com/2024/05/30/business/economy/inflation-economy-americans.html
