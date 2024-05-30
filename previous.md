@@ -1,3 +1,27 @@
+**‘Haikyu!! The Dumpster Battle’ Review: Drama on the Court**\
+`This film extends the story told in an anime series about high school volleyball teams.`\
+https://nytimes.com/2024/05/30/movies/haikyu-the-dumpster-battle-review.html
+
+**‘The Young Wife’ Review: Dancing With Cold Feet**\
+`A beleaguered bride spirals on her wedding day in Tayarisha Poe’s stylish but overly familiar comedy-drama.`\
+https://nytimes.com/2024/05/30/movies/the-young-wife-review.html
+
+**‘The Great Lillian Hall’ Review: A Star Is Fading**\
+`Jessica Lange is ideally cast as a grande dame of the theater who is facing a reckoning in this well-crafted melodrama by Michael Cristofer.`\
+https://nytimes.com/2024/05/30/movies/great-lillian-hall-review.html
+
+**‘In a Violent Nature’ Review: Killing Them Softly**\
+`Chris Nash’s ultraviolent horror movie is an unexpectedly serene, almost dreamlike meditation on a murderous psyche.`\
+https://nytimes.com/2024/05/30/movies/in-a-violent-nature-review-killing-them-softly.html
+
+**‘Ezra’ Review: This Father Doesn’t Know Best**\
+`This drama centers on a boy with autism and his divorced dad, with a cast featuring Robert De Niro, Rose Byrne, Whoopi Goldberg and Bobby Cannavale.`\
+https://nytimes.com/2024/05/30/movies/ezra-review.html
+
+**‘Backspot’ Review: Cheer Squad Drama**\
+`This queer high school movie, starring Devery Jacobs and Evan Rachel Wood, channels an after-school special without the coming-out trauma.`\
+https://nytimes.com/2024/05/30/movies/backspot-review.html
+
 **Time to Examine Why New York Fared Poorly Early in the Pandemic**\
 `Albany needs to conduct a thorough review.`\
 https://nytimes.com/live/2024/05/28/opinion/thepoint/covid-new-york
@@ -13,28 +37,4 @@ https://nytimes.com/2024/05/30/briefing/senate-elections-democrats-2024.html
 **Trump Deliberations Continue, and New Delhi’s Hottest Recorded Day**\
 `Plus, Justice Samuel Alito refuses recusal calls.`\
 https://nytimes.com/2024/05/30/podcasts/trump-deliberations-india-climate.html
-
-**The Government Takes On Ticketmaster**\
-`Explaining a case that could reshape the multibillion-dollar live entertainment industry.`\
-https://nytimes.com/2024/05/30/podcasts/the-daily/the-government-takes-on-ticketmaster.html
-
-**The Connections Companion No. 355, May 31, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/30/crosswords/connections-companion-355.html
-
-**Wordle Review No. 1,077, May 31, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/05/30/crosswords/wordle-review-1077.html
-
-**A ‘Laundry List’ or a ‘Feel’: Biden and Trump’s Clashing Appeals to Black Voters**\
-`President Biden and former President Donald J. Trump both see Black outreach as critical to winning in November. But their approaches differ in fundamental and revealing ways.`\
-https://nytimes.com/2024/05/30/us/politics/trump-biden-black-voters.html
-
-**Experts Question Alito’s Failure to Recuse Himself in Flag Controversy**\
-`Legal ethicists welcomed the fact that the justice gave reasons for staying on two Jan. 6 cases, a break from court tradition. But they said his rationale was open to criticism.`\
-https://nytimes.com/2024/05/30/us/politics/alito-flags-recusal.html
-
-**After 100 Years of Pizza, the Future of Totonno’s Is in Question**\
-`One family has owned the beloved Coney Island pizzeria through fire, flood and a pandemic. Now the business is up for sale.`\
-https://nytimes.com/2024/05/30/dining/totonnos-pizza-nyc.html
 
