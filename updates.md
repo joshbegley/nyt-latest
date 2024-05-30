@@ -1,3 +1,11 @@
+**Ukraine Warns of Deepening Russian Threat in the North**\
+`Analysts say an offensive in the Kharkiv or Sumy regions could stretch Ukrainian troops to the breaking point and allow Moscow to punch through.`\
+https://nytimes.com/2024/05/30/world/europe/ukraine-russia-offensive-north.html
+
+**Trading Art for Politics, Former Uffizi Chief Runs for Mayor of Florence**\
+`Eike Schmidt, the former director of the Uffizi Galleries, is facing an uphill battle in his bid to become mayor, but he’s counting on his cultural clout to win.`\
+https://nytimes.com/2024/05/30/arts/design/eike-schmidt-florence-mayor-uffizi.html
+
 **What’s Behind Elon Musk’s Bromance with Donald Trump**\
 `The Republican is courting the mogul to bolster his re-election fight, but  the Biden campaign sees a political opportunity to exploit.`\
 https://nytimes.com/2024/05/30/business/dealbook/elon-musk-bromance-donald-trump-biden.html

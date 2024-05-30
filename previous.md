@@ -1,3 +1,11 @@
+**Ukraine Warns of Deepening Russian Threat in the North**\
+`Analysts say an offensive in the Kharkiv or Sumy regions could stretch Ukrainian troops to the breaking point and allow Moscow to punch through.`\
+https://nytimes.com/2024/05/30/world/europe/ukraine-russia-offensive-north.html
+
+**Trading Art for Politics, Former Uffizi Chief Runs for Mayor of Florence**\
+`Eike Schmidt, the former director of the Uffizi Galleries, is facing an uphill battle in his bid to become mayor, but he’s counting on his cultural clout to win.`\
+https://nytimes.com/2024/05/30/arts/design/eike-schmidt-florence-mayor-uffizi.html
+
 **What’s Behind Elon Musk’s Bromance with Donald Trump**\
 `The Republican is courting the mogul to bolster his re-election fight, but  the Biden campaign sees a political opportunity to exploit.`\
 https://nytimes.com/2024/05/30/business/dealbook/elon-musk-bromance-donald-trump-biden.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/30/movies/in-a-violent-nature-review-killing-them-so
 **‘Ezra’ Review: This Father Doesn’t Know Best**\
 `This drama centers on a boy with autism and his divorced dad, with a cast featuring Robert De Niro, Rose Byrne, Whoopi Goldberg and Bobby Cannavale.`\
 https://nytimes.com/2024/05/30/movies/ezra-review.html
-
-**‘Backspot’ Review: Cheer Squad Drama**\
-`This queer high school movie, starring Devery Jacobs and Evan Rachel Wood, channels an after-school special without the coming-out trauma.`\
-https://nytimes.com/2024/05/30/movies/backspot-review.html
-
-**Time to Examine Why New York Fared Poorly Early in the Pandemic**\
-`Albany needs to conduct a thorough review.`\
-https://nytimes.com/live/2024/05/28/opinion/thepoint/covid-new-york
 
