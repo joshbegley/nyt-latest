@@ -1,3 +1,7 @@
+**Transcript of Trump Manhattan Trial, May 29, 2024**\
+`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
+https://nytimes.com/interactive/2024/05/30/nyregion/trump-hush-money-trial-transcript-may-29.html
+
 **The Trump Conviction: How an 8-Year Reporting Trail Connected the Dots**\
 `As rumors circulated of Donald J. Trump’s reported infidelity, two accounts of women being paid to stay silent about their encounters became central to his indictment.`\
 https://nytimes.com/2024/05/30/nyregion/stormy-daniels-karen-mcdougal-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/30/nyregion/prosecutors-case-against-trump.html
 **Biden fund-raises off Trump’s guilty verdict as Democrats celebrate the trial’s outcome.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/05/30/nyregion/trump-trial-verdict/biden-fund-raises-off-trumps-guilty-verdict-as-democrats-celebrate-the-trials-outcome
-
-**Trump’s Guilty Verdict Reverberates Through New York City, His Hometown**\
-`In the place where Donald J. Trump first made his name, reactions mirrored the nation’s: exultation and deflation. At Trump Tower, the defendant pumped his fist for a crowd of hundreds.`\
-https://nytimes.com/2024/05/30/nyregion/nyc-trump-guilty-reaction.html
 
