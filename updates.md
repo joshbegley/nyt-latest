@@ -1,3 +1,7 @@
+**‘The Dead Don’t Hurt’ Review: A Foursquare Western From Viggo Mortensen**\
+`Mortensen gives his film a nested, at times unnecessarily complicated structure, but with performances this good, it’s hard to mind much.`\
+https://nytimes.com/2024/05/30/movies/the-dead-dont-hurt-review.html
+
 **The World Needs an Action Hero. Enter Twyla Tharp (and Camus).**\
 `Leading off the summer season at Little Island in Manhattan, the choreographer presents “How Long Blues,” with T Bone Burnett and David Mansfield.`\
 https://nytimes.com/2024/05/30/arts/dance/twyla-tharp-how-long-blues-little-island.html
