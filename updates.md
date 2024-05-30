@@ -1,5 +1,9 @@
 **What Is the Philadelphi Corridor, and Why Does It Matter?**\
 `An eight-mile-long strip of land between the Gaza Strip and Egypt is the latest focus of the Israeli assault on Hamas.`\
+https://nytimes.com/2024/05/30/world/middleeast/what-is-the-philadelphi-corridor.html
+
+**What Is the Philadelphi Corridor, and Why Does It Matter?**\
+`An eight-mile-long strip of land between the Gaza Strip and Egypt is the latest focus of the Israeli assault on Hamas.`\
 https://nytimes.com/2024/05/30/world/middleeast/what-is-the-philadelphi-corridor-and-why-does-it-matter.html
 
 **Taking the Fight to Russia: The West Weighs Ukraine’s Use of Its Weapons**\
