@@ -1,7 +1,3 @@
-**For Trump, ‘Guilty’ May Not Matter**\
-`The conviction may be a mere bump in the road. It could even be a political accelerant.`\
-https://nytimes.com/2024/05/30/opinion/trump-guilty-verdict-defense.html
-
 **Trump Can Proceed With Lawsuit Against His Niece, Court Rules**\
 `The case concerns Mary L. Trump’s disclosure of financial documents to a team of reporters at The New York Times.`\
 https://nytimes.com/2024/05/30/business/media/donald-trump-niece-lawsuit.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/05/30/opinion/trump-trial-guilty-felony.html
 **Ex-Professor Gets More Than 5 Years in Prison for California ‘Arson Spree’**\
 `Gary Stephen Maynard, 49, of San Jose, Calif., admitted to setting four fires in 2021, including one behind firefighters who were already battling a large blaze.`\
 https://nytimes.com/2024/05/30/us/gary-maynard-california-fires-sentencing.html
+
+**Egypt Faces Hard Choices After Israeli Seizure of Gaza’s Southern Border**\
+`Egypt’s government is weighing its “cornerstone” relationship with Israel against the economic damage the war in Gaza is inflicting and against the domestic outrage over the devastation there.`\
+https://nytimes.com/2024/05/30/world/middleeast/egypt-gaza-corridor-israel.html
 
