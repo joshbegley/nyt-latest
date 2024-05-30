@@ -1,3 +1,7 @@
+**After Conviction, Trump Says ‘Real Verdict’ Will Come in November**\
+`Former President Donald J. Trump, speaking in the courthouse hallway, repeated his unfounded claims that the case was an attempt to interfere with his White House bid, and insisted he was innocent.`\
+https://nytimes.com/2024/05/30/nyregion/trump-real-verdict-election.html
+
 **At the Scripps bee, hard work, not age, can spell success.**\
 `Sanil Thorat, 8, was the youngest of 245 participants at the 2024 Scripps National Spelling Bee.`\
 https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee/scripps-bee-sanil-thorat

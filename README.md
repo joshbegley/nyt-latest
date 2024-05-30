@@ -1,3 +1,19 @@
+**‘Ukraine Has Gone Through a Terrible Period’: A Q. and A. with Frederick and Kimberly Kagan**\
+`We’re at a crucial moment in the war.`\
+https://nytimes.com/2024/05/30/opinion/ukraine-russia-war-history.html
+
+**How Prosecutors Made the Case Against Trump**\
+`Over six weeks and the testimony of 20 witnesses, prosecutors wove a sprawling story of election interference and falsified business records.`\
+https://nytimes.com/2024/05/30/nyregion/prosecutors-case-against-trump.html
+
+**Biden fund-raises off Trump’s guilty verdict as Democrats celebrate the trial’s outcome.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/05/30/nyregion/trump-trial-verdict/biden-fund-raises-off-trumps-guilty-verdict-as-democrats-celebrate-the-trials-outcome
+
+**Trump’s Guilty Verdict Reverberates Through New York City, His Hometown**\
+`In the place where Donald J. Trump first made his name, reactions mirrored the nation’s: exultation and deflation. At Trump Tower, the defendant pumped his fist for a crowd of hundreds.`\
+https://nytimes.com/2024/05/30/nyregion/nyc-trump-guilty-reaction.html
+
 **At the Scripps bee, hard work, not age, can spell success.**\
 `Sanil Thorat, 8, was the youngest of 245 participants at the 2024 Scripps National Spelling Bee.`\
 https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee/scripps-bee-sanil-thorat
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee/here-is-some-advice-
 **What if This Is Our Last Real Election?**\
 `The stakes for our democracy should be obvious.`\
 https://nytimes.com/2024/05/30/opinion/biden-trump-election.html
-
-**‘Is That Your Verdict?’ As Trump Seethes, a Jury Says ‘Yes.’**\
-`A former president endures a ritual of democracy.`\
-https://nytimes.com/live/2024/05/28/opinion/thepoint/trump-trial-jury-verdict
-
-**This Is What It Was Like Inside the Courtroom When the Trump Verdict Was Read**\
-`Late on the second day of deliberations, the judge returned to the courtroom with the announcement of a verdict.`\
-https://nytimes.com/2024/05/30/nyregion/trump-verdict-court.html
-
-**After Conviction, Trump Says ‘Real Verdict’ Will Come in November**\
-`Former President Donald J. Trump, speaking in the courthouse hallway, repeated his unfounded claims that the case was an attempt to interfere with his White House bid, and insisted he was innocent.`\
-https://nytimes.com/2024/05/30/nyregion/trump-real-verdict-election.html
-
-**Trump’s G.O.P. Allies Assail His Guilty Verdict in New York Case**\
-`Republicans urged the former president to appeal the verdict after a jury found him guilty of all 34 criminal counts.`\
-https://nytimes.com/2024/05/30/us/politics/trump-verdict-republicans-reaction.html
 

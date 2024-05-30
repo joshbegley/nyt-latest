@@ -31,7 +31,7 @@ https://nytimes.com/live/2024/05/28/opinion/thepoint/trump-trial-jury-verdict
 https://nytimes.com/2024/05/30/nyregion/trump-verdict-court.html
 
 **After Conviction, Trump Says ‘Real Verdict’ Will Come in November**\
-`Former President Donald J. Trump, speaking in the courthouse hallway, repeated his unfounded claims that the case was an attempt to interference with his White House bid, and insisted he was innocent.`\
+`Former President Donald J. Trump, speaking in the courthouse hallway, repeated his unfounded claims that the case was an attempt to interfere with his White House bid, and insisted he was innocent.`\
 https://nytimes.com/2024/05/30/nyregion/trump-real-verdict-election.html
 
 **Trump’s G.O.P. Allies Assail His Guilty Verdict in New York Case**\
