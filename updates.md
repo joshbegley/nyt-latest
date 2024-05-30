@@ -1,3 +1,7 @@
+**Live Updates: Jury to Review Testimony on Day 2 of Trump Trial Deliberations**\
+`The 12 New Yorkers deciding the criminal case against Donald J. Trump ended their first day of deliberations by asking to rehear testimony and some of the judge’s instructions. Mr. Trump is charged with 34 felony counts related to a hush-money payment to a porn star.`\
+https://nytimes.com/live/2024/05/30/nyregion/trump-trial-verdict
+
 **Election Updates: A pro-McCormick super PAC plans a $30 million ad blitz in Pennsylvania.**\
 ``\
 https://nytimes.com/live/2024/05/30/us/biden-trump-election

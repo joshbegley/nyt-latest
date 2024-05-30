@@ -11,7 +11,7 @@ https://nytimes.com/2024/05/30/us/hollywood-mountain-lion-p22-p122.html
 https://nytimes.com/2024/05/30/nyregion/congestion-pricing-trucks-nyc.html
 
 **Live Updates: Jury to Review Testimony on Day 2 of Trump Trial Deliberations**\
-`The 12 New Yorkers deciding the criminal case against Donald J. Trump ended their first day of deliberations by asking to hear some testimony and the judge’s instructions again. Mr. Trump is charged with 34 felony counts related to a hush-money payment to a porn star.`\
+`The 12 New Yorkers deciding the criminal case against Donald J. Trump ended their first day of deliberations by asking to rehear testimony and some of the judge’s instructions. Mr. Trump is charged with 34 felony counts related to a hush-money payment to a porn star.`\
 https://nytimes.com/live/2024/05/30/nyregion/trump-trial-verdict
 
 **U.S. Economic Growth in First Quarter Was Milder Than Initial Reading**\
