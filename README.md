@@ -1,3 +1,7 @@
+**Word of the Day: exhume**\
+`This word has appeared in 10 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/30/learning/word-of-the-day-exhume.html
+
 **The Best Move for the Trump Jury: A Split Decision**\
 `A trial-watcher’s prediction.`\
 https://nytimes.com/live/2024/05/28/opinion/thepoint/trump-trial-jury-prediction
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/30/t-magazine/jewelry-caitlin-mociun-crzm.html
 **Will California Have a Summer Covid Surge?**\
 `The answer is probably yes.`\
 https://nytimes.com/2024/05/30/us/california-summer-covid.html
-
-**‘Young Woman and the Sea’ Review: Fighting Sexism and Rough Waters**\
-`Daisy Ridley plays Gertrude Ederle, who persuades her father to pay for swim lessons, and then goes on to be a pioneer.`\
-https://nytimes.com/2024/05/30/movies/young-woman-and-the-sea-review.html
 
