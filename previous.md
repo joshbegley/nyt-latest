@@ -20,7 +20,7 @@ https://nytimes.com/2024/05/30/business/media/russia-rt-disinformation-europe-ba
 
 **Cleveland Museum of Art to Return a Rare Ancient Icon to Libya**\
 `A 2,200-year-old sculpture of a bearded man carved from basalt, unearthed in the 1930s, is believed to have been stolen in the early 1940s.`\
-https://nytimes.com/2024/05/30/arts/design/statue.html
+https://nytimes.com/2024/05/30/arts/design/cleveland-museum-of-art-statue-libya.html
 
 **Supreme Court Clears Way for N.R.A. to Pursue First Amendment Challenge**\
 `The opinion, by Justice Sonia Sotomayor, found that the gun rights group had plausibly claimed a First Amendment violation.`\
