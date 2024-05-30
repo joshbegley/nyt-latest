@@ -1,3 +1,7 @@
+**Here is the latest.**\
+`By Emily Schmall`\
+https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee/here-is-the-latest
+
 **Going Behind the Scenes of ‘Popcast (Deluxe)’**\
 `The weekly culture roundup show, hosted by Jon Caramanica and Joe Coscarelli, celebrates its first anniversary on May 31.`\
 https://nytimes.com/2024/05/30/insider/popcast-deluxe-podcast.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/30/us/politics/biden-trump-reaction.html
 **Read the Verdict Sheet in the Trump Manhattan Criminal Trial**\
 `Former President Donald J. Trump was convicted on Thursday on all 34 counts of falsifying business records by a jury of 12 New Yorkers, who deliberated over two days.`\
 https://nytimes.com/interactive/2024/05/30/nyregion/trump-trial-verdict-document-manhattan-criminal.html
-
-**‘Ukraine Has Gone Through a Terrible Period’: A Q. and A. With Frederick and Kimberly Kagan**\
-`We’re at a crucial moment in the war.`\
-https://nytimes.com/2024/05/30/opinion/ukraine-russia-war-history.html
 

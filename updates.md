@@ -1,3 +1,7 @@
+**Here is the latest.**\
+`By Emily Schmall`\
+https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee/here-is-the-latest
+
 **Going Behind the Scenes of ‘Popcast (Deluxe)’**\
 `The weekly culture roundup show, hosted by Jon Caramanica and Joe Coscarelli, celebrates its first anniversary on May 31.`\
 https://nytimes.com/2024/05/30/insider/popcast-deluxe-podcast.html
