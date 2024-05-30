@@ -1,3 +1,7 @@
+**Hong Kong Convicts Democracy Activists in Largest National Security Trial**\
+`Forty-five pro-democracy activists now face prison time as Beijing cracks down on even peaceful political opposition. Two others were acquitted.`\
+https://nytimes.com/2024/05/29/world/asia/hong-kong-national-security.html
+
 **Corrections: May 30, 2024**\
 `Corrections that appeared in print on Thursday, May 30, 2024.`\
 https://nytimes.com/2024/05/29/pageoneplus/corrections-may-30-2024.html
