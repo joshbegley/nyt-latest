@@ -3,7 +3,7 @@
 https://nytimes.com/2024/05/30/technology/x-town-hall-trump.html
 
 **Slovak Prime Minister Leaves Hospital 2 Weeks After Assassination Attempt**\
-`Prime Minister Robert Fico was shot during a meeting with supporters. The hospital’s director told a TV station Mr. Fico could continue treatment at home.`\
+`Prime Minister Robert Fico had been shot during a meeting with supporters. The hospital’s director told a TV station Mr. Fico could continue treatment at home.`\
 https://nytimes.com/2024/05/30/world/europe/slovakia-prime-minister-fico-hospital-release.html
 
 **Future journalists struggled with spelling, too.**\
