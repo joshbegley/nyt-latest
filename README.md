@@ -1,3 +1,7 @@
+**Albert S. Ruddy, 94, Dies; Producer’s First Oscar Was for ‘The Godfather’**\
+`A creator of the sitcom “Hogan’s Heroes,” he won a second Academy Award for “Million Dollar Baby,” the boxing film starring Hilary Swank and Clint Eastwood.`\
+https://nytimes.com/2024/05/30/movies/albert-s-ruddy-dead.html
+
 **How Trump’s Team Blew It**\
 `The defense failed to focus on the most important things.`\
 https://nytimes.com/2024/05/30/opinion/trump-trial-defense.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/30/us/chad-daybell-doomsday-murder-verdict.html
 **Trump’s Trial and Lincoln’s Example Make 2024 a Character Test**\
 `The wrong kind of history is being made at the courthouse.`\
 https://nytimes.com/live/2024/05/28/opinion/thepoint/trump-trial-lincoln-history
-
-**Biden to Allow Ukraine to Use U.S. Weapons to Strike Inside Russia**\
-`The permission is intended solely for Ukraine to attack military sites in Russia being used to attack the Kharkiv area, U.S. officials said.`\
-https://nytimes.com/2024/05/30/us/politics/biden-ukraine-russia-weapons.html
 
