@@ -1,3 +1,7 @@
+**This is how jury deliberations work.**\
+`By Kate Christobek`\
+https://nytimes.com/live/2024/05/30/nyregion/trump-trial-verdict/heres-how-jury-deliberations-work
+
 **South Africans Turn Away from Ruling Party, Early Election Results Show**\
 `As votes trickled in, the power and influence of the African National Congress, which has led the country for 30 years, appeared to be waning.`\
 https://nytimes.com/2024/05/30/world/africa/south-africa-election-anc.html

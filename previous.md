@@ -14,7 +14,7 @@ https://nytimes.com/live/2024/05/28/opinion/thepoint/angel-hernandez-retirement-
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/05/30/books/review/new-books-recommendations.html
 
-**Here’s how jury deliberations work.**\
+**This is how jury deliberations work.**\
 `By Kate Christobek`\
 https://nytimes.com/live/2024/05/30/nyregion/trump-trial-verdict/heres-how-jury-deliberations-work
 
