@@ -1,3 +1,7 @@
+**Corrections: May 30, 2024**\
+`Corrections that appeared in print on Thursday, May 30, 2024.`\
+https://nytimes.com/2024/05/29/pageoneplus/corrections-may-30-2024.html
+
 **Walks in the Park**\
 `Shh … Royce Ferguson’s puzzle holds secrets.`\
 https://nytimes.com/2024/05/29/crosswords/daily-puzzle-2024-05-30.html
