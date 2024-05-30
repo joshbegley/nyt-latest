@@ -1,3 +1,7 @@
+**Trump Can Proceed With Lawsuit Against His Niece, Court Rules**\
+`The case concerns Mary L. Trump’s disclosure of financial documents to a team of reporters at The New York Times.`\
+https://nytimes.com/2024/05/30/business/media/donald-trump-niece-lawsuit.html
+
 **Friday Briefing: Trump is found guilty on all counts**\
 `Plus, the U.S. will let Ukraine use American weapons to strike inside Russia`\
 https://nytimes.com/2024/05/30/briefing/donald-trump-guilty.html
