@@ -1,5 +1,5 @@
 **The Trump Manhattan Criminal Verdict, Count By Count**\
-`Former President Donald J. Trump had faced 34 felony charges of falsifying business records, related to the reimbursement of hush money paid to the porn star Stormy Daniels in order to cover up a sex scandal around the 2016 presidential election.`\
+`Former President Donald J. Trump faces 34 felony charges of falsifying business records, related to the reimbursement of hush money paid to the porn star Stormy Daniels in order to cover up a sex scandal around the 2016 presidential election.`\
 https://nytimes.com/interactive/2024/05/30/nyregion/trump-hush-money-verdict.html
 
 **Trump and His Allies Push False Account of What the Judge Told Jurors**\
