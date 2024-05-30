@@ -1,3 +1,7 @@
+**Departing House Members Ask: ‘Why Am I Here?’**\
+`A wave of retirees from both parties, including committee chairs and rising stars, say that serving in Congress is no longer worth the frustration.`\
+https://nytimes.com/2024/05/30/us/politics/house-retirees.html
+
 **The Right Kind of Tipping Point**\
 `Global carbon dioxide emissions might have already peaked, according to new estimates, signaling a potentially monumental shift.`\
 https://nytimes.com/2024/05/30/climate/carbon-emissions-falling-global.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/30/us/politics/boeing-faa-quality-control-plan.html
 **What Is the Philadelphi Corridor, and Why Does It Matter?**\
 `An eight-mile-long strip of land between the Gaza Strip and Egypt is the latest focus of the Israeli assault on Hamas.`\
 https://nytimes.com/2024/05/30/world/middleeast/what-is-the-philadelphi-corridor.html
-
-**How Republicans in Key Senate Races Are Flip-Flopping on Abortion**\
-`Several G.O.P. Senate candidates used to embrace anti-abortion views. Now they are shifting their positions on an issue that has become an electoral liability for their party.`\
-https://nytimes.com/2024/05/30/us/politics/republican-senate-races-abortion.html
 

@@ -1,3 +1,11 @@
+**The Right Kind of Tipping Point**\
+`Global carbon dioxide emissions might have already peaked, according to new estimates, signaling a potentially monumental shift.`\
+https://nytimes.com/2024/05/30/climate/carbon-emissions-falling-global.html
+
+**The Words That Defined Closing Arguments in Donald Trump’s Trial**\
+`Defense lawyers and prosecutors deployed their best lines to win jurors to their side. The panel of 12 New Yorkers then went behind closed doors.`\
+https://nytimes.com/2024/05/30/nyregion/closing-arguments-donald-trump-trial.html
+
 **‘This Is About Systemic Change’: F.A.A. Outlines Boeing’s Action Plan**\
 `Mike Whitaker, the administrator of the Federal Aviation Administration, shared Boeing’s plan to improve the quality and safety of their planes, amid scandals that placed the aircraft manufacturer at the center of several investigations.`\
 https://nytimes.com/video/us/politics/100000009495871/boeing-faa-airline-planes.html
