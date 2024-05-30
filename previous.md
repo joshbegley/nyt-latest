@@ -1,3 +1,11 @@
+**Going Behind the Scenes of ‘Popcast (Deluxe)’**\
+`The weekly culture roundup show, hosted by Jon Caramanica and Joe Coscarelli, celebrates its first anniversary on May 31.`\
+https://nytimes.com/2024/05/30/insider/popcast-deluxe-podcast.html
+
+**Here are the eight finalists.**\
+`By Emmett Lindner`\
+https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee/here-are-the-eight-finalists
+
 **Transcript of Trump Manhattan Trial, May 29, 2024**\
 `New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
 https://nytimes.com/interactive/2024/05/30/nyregion/trump-hush-money-trial-transcript-may-29.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/05/30/nyregion/trump-trial-verdict-document
 **‘Ukraine Has Gone Through a Terrible Period’: A Q. and A. With Frederick and Kimberly Kagan**\
 `We’re at a crucial moment in the war.`\
 https://nytimes.com/2024/05/30/opinion/ukraine-russia-war-history.html
-
-**How Prosecutors Made the Case Against Trump**\
-`Over six weeks and the testimony of 20 witnesses, prosecutors wove a sprawling story of election interference and falsified business records.`\
-https://nytimes.com/2024/05/30/nyregion/prosecutors-case-against-trump.html
-
-**Biden fund-raises off Trump’s guilty verdict as Democrats celebrate the trial’s outcome.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/05/30/nyregion/trump-trial-verdict/biden-fund-raises-off-trumps-guilty-verdict-as-democrats-celebrate-the-trials-outcome
 

@@ -1,3 +1,11 @@
+**Going Behind the Scenes of ‘Popcast (Deluxe)’**\
+`The weekly culture roundup show, hosted by Jon Caramanica and Joe Coscarelli, celebrates its first anniversary on May 31.`\
+https://nytimes.com/2024/05/30/insider/popcast-deluxe-podcast.html
+
+**Here are the eight finalists.**\
+`By Emmett Lindner`\
+https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee/here-are-the-eight-finalists
+
 **Transcript of Trump Manhattan Trial, May 29, 2024**\
 `New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
 https://nytimes.com/interactive/2024/05/30/nyregion/trump-hush-money-trial-transcript-may-29.html
