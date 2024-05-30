@@ -1,3 +1,11 @@
+**Episode 6: Bats**\
+`Sam stares into another hole.`\
+https://nytimes.com/2024/05/30/podcasts/animal-episode-6-bats.html
+
+**Bird Flu Has Infected a Third U.S. Farmworker**\
+`The worker had respiratory symptoms, unlike the first two. But the risk to the public remains low, federal health officials said.`\
+https://nytimes.com/2024/05/30/health/bird-flu-infection-farmworker.html
+
 **Departing House Members Ask: ‘Why Am I Here?’**\
 `A wave of retirees from both parties, including committee chairs and rising stars, say that serving in Congress is no longer worth the frustration.`\
 https://nytimes.com/2024/05/30/us/politics/house-retirees.html
