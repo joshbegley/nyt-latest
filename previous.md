@@ -1,3 +1,23 @@
+**Live Updates: Jury to Review Testimony as Deliberations Resume in Trump Trial**\
+`The 12 New Yorkers deciding the criminal case against Donald J. Trump ended their first day of deliberations by asking to hear some testimony and the judge’s instructions again. Mr. Trump is charged with 34 felony counts related to a hush-money payment to a porn star.`\
+https://nytimes.com/live/2024/05/30/nyregion/trump-trial-verdict
+
+**U.S. Economic Growth in First Quarter Was Milder Than Initial Reading**\
+`Consumers eased up on spending in the face of rising prices and high interest rates, Commerce Department data shows.`\
+https://nytimes.com/2024/05/30/business/economy/us-economic-growth-first-quarter.html
+
+**One Designer’s Take on the Perfect Silver Chain**\
+`Plus: a bright boutique hotel in Laos, dance music at MoMA and more recommendations from T Magazine.`\
+https://nytimes.com/2024/05/30/t-magazine/jewelry-caitlin-mociun-crzm.html
+
+**Will California Have a Summer Covid Surge?**\
+`The answer is probably yes.`\
+https://nytimes.com/2024/05/30/us/california-summer-covid.html
+
+**‘Young Woman and the Sea’ Review: Fighting Sexism and Rough Waters**\
+`Daisy Ridley plays Gertrude Ederle, who persuades her father to pay for swim lessons, and then goes on to be a pioneer.`\
+https://nytimes.com/2024/05/30/movies/young-woman-and-the-sea-review.html
+
 **Calvin Klein Names a New Designer and Plans a Runway Return**\
 `Veronica Leoni will be the first woman to run the brand.`\
 https://nytimes.com/2024/05/30/style/calvin-klein-veronica-leoni-new-designer.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/05/30/business/dealbook/elon-musk-bromance-donald-trump
 **Gaza and Egypt share a sensitive border that the Israeli military has moved to control.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/05/30/world/israel-gaza-war-hamas-rafah/gaza-and-egypt-share-a-sensitive-border-that-the-israeli-military-has-moved-to-control
-
-**Spain Approves Amnesty for Participants in 2017 Catalan Independence Vote**\
-`The measure has divided Spain in recent months, and opponents vowed to keep trying to block it.`\
-https://nytimes.com/2024/05/30/world/europe/spain-catalonia-independence-amnesty.html
-
-**‘Haikyu!! The Dumpster Battle’ Review: Drama on the Court**\
-`This film extends the story told in an anime series about high school volleyball teams.`\
-https://nytimes.com/2024/05/30/movies/haikyu-the-dumpster-battle-review.html
-
-**‘The Young Wife’ Review: Dancing With Cold Feet**\
-`A beleaguered bride spirals on her wedding day in Tayarisha Poe’s stylish but overly familiar comedy-drama.`\
-https://nytimes.com/2024/05/30/movies/the-young-wife-review.html
-
-**‘The Great Lillian Hall’ Review: A Star Is Fading**\
-`Jessica Lange is ideally cast as a grande dame of the theater who is facing a reckoning in this well-crafted melodrama by Michael Cristofer.`\
-https://nytimes.com/2024/05/30/movies/great-lillian-hall-review.html
-
-**‘In a Violent Nature’ Review: Killing Them Softly**\
-`Chris Nash’s ultraviolent horror movie is an unexpectedly serene, almost dreamlike meditation on a murderous psyche.`\
-https://nytimes.com/2024/05/30/movies/in-a-violent-nature-review-killing-them-softly.html
 
