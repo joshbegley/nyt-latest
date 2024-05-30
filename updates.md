@@ -1,3 +1,11 @@
+**South Africans Turn Away from Ruling Party, Early Election Results Show**\
+`As votes trickled in, the power and influence of the African National Congress, which has led the country for 30 years, appeared to be waning.`\
+https://nytimes.com/2024/05/30/world/africa/south-africa-election-anc.html
+
+**Objections to Alito’s Refusal to Recuse**\
+`Readers discuss the flag controversy involving the justice’s wife. Also: Math for all, not just the few; medical consent; Robert F. Kennedy Jr. and history.`\
+https://nytimes.com/2024/05/30/opinion/alito-supreme-court-recusal.html
+
 **Ángel Hernández Made Baseball Great**\
 `We all love to hate the ump show.`\
 https://nytimes.com/live/2024/05/28/opinion/thepoint/angel-hernandez-retirement-umpire
