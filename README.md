@@ -1,3 +1,7 @@
+**New Scandal Engulfs South Korean Leader in Wake of Marine’s Death**\
+`President Yoon Suk Yeol has been accused of intervening in a probe into an accidental death during a peacetime search and rescue operation.`\
+https://nytimes.com/2024/05/30/world/asia/korea-marine-yoon-impeachment.html
+
 **Thursday Briefing**\
 `Good morning. We’re covering a push to allow U.S. weapons in strikes within Russia as well as New Delhi’s record heat.`\
 https://nytimes.com/2024/05/30/briefing/ukraine-russia-new-delhi-heat-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/29/us/driving-zoom-court-suspended-license.html
 **Hong Kong Convicts Democracy Activists in Largest National Security Trial**\
 `As part of China’s crackdown on even peaceful dissent, a court in Hong Kong convicted 14 people, who now face prison time along with dozens of others.`\
 https://nytimes.com/2024/05/29/world/asia/hong-kong-national-security.html
-
-**Activist Investor Nelson Peltz Is Said to Sell His Disney Stake**\
-`A billionaire who was critical of Disney’s management, Mr. Peltz lost an expensive battle for a place on the company’s board.`\
-https://nytimes.com/2024/05/29/business/nelson-peltz-disney-shares.html
 
