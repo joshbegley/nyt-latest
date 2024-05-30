@@ -1,3 +1,7 @@
+**The Best Move for the Trump Jury: A Split Decision**\
+`A trial-watcher’s prediction.`\
+https://nytimes.com/live/2024/05/28/opinion/thepoint/trump-trial-jury-prediction
+
 **There’s a Program to Cancel Private Student Debt. Most Don’t Know About It.**\
 `A nonprofit group is publicizing the relief program that Navient, a large lender, created for students who attended for-profit schools that misled them.`\
 https://nytimes.com/2024/05/30/business/theres-a-program-to-cancel-private-student-debt-most-dont-know-about-it.html
@@ -15,7 +19,7 @@ https://nytimes.com/2024/05/30/us/hollywood-mountain-lion-p22-p122.html
 https://nytimes.com/2024/05/30/nyregion/congestion-pricing-trucks-nyc.html
 
 **Live Updates: Jury to Review Testimony on Day 2 of Trump Trial Deliberations**\
-`The 12 New Yorkers deciding the criminal case against Donald J. Trump ended their first day of deliberations by asking to rehear testimony and some of the judge’s instructions. Mr. Trump is charged with 34 felony counts related to a hush-money payment to a porn star.`\
+`The 12 New Yorkers deciding the criminal case against Donald J. Trump are back in the courtroom after asking to rehear testimony and some of the judge’s instructions. The case stems from a hush-money payment to a porn star.`\
 https://nytimes.com/live/2024/05/30/nyregion/trump-trial-verdict
 
 **U.S. Economic Growth in First Quarter Was Milder Than Initial Reading**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/30/us/california-summer-covid.html
 **‘Young Woman and the Sea’ Review: Fighting Sexism and Rough Waters**\
 `Daisy Ridley plays Gertrude Ederle, who persuades her father to pay for swim lessons, and then goes on to be a pioneer.`\
 https://nytimes.com/2024/05/30/movies/young-woman-and-the-sea-review.html
-
-**Calvin Klein Names a New Designer and Plans a Runway Return**\
-`Veronica Leoni will be the first woman to run the brand.`\
-https://nytimes.com/2024/05/30/style/calvin-klein-veronica-leoni-new-designer.html
 
