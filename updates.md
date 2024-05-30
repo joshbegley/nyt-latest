@@ -1,3 +1,11 @@
+**Girls of Color Are Getting Their Periods Earlier. No One Quite Knows Why.**\
+`Researchers have linked early menstruation to an increased risk of health problems later in life.`\
+https://nytimes.com/2024/05/30/well/live/girls-period-menstrual-cycle-study.html
+
+**What if the Disabled Characters Were Just Going About Their Day?**\
+`Madison Ferris and Danny J. Gomez star in the meet-cute “All of Me” — proof that depictions of disability onstage don’t have to be “a buzz kill,” as Ferris puts it.`\
+https://nytimes.com/2024/05/30/theater/madison-ferris-danny-gomez.html
+
 **Cleveland Museum of Art to Return a Rare Ancient Icon to Libya**\
 `A 2,200-year-old sculpture of a bearded man carved from basalt, unearthed in the 1930s, is believed to have been stolen in the early 1940s.`\
 https://nytimes.com/2024/05/30/arts/design/cleveland-museum-of-art-statue-libya.html
