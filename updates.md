@@ -1,3 +1,15 @@
+**PTSD Has Surged Among College Students**\
+`The prevalence of post-traumatic stress disorder among college students rose to 7.5 percent in 2022, more than double the rate five years earlier, researchers found.`\
+https://nytimes.com/2024/05/30/science/ptsd-diagnoses-rising-college-students.html
+
+**Grilled Chicken With Tomatoes and Corn, Mango Sticky-Rice Popsicles and the Nicest Niçoise**\
+`And many more hits from our Summer 100.`\
+https://nytimes.com/2024/05/30/dining/grilled-chicken-with-tomatoes-and-corn-mango-sticky-rice-popsicles-and-the-nicest-nicoise.html
+
+**Inflation and the problem of McMisinformation**\
+`The Big Mac vibes are all wrong.`\
+https://nytimes.com/live/2024/05/28/opinion/thepoint/krugman-mcdonalds-inflation
+
 **Outside the Courthouse, Waiting for a Verdict**\
 `By Adam Gray`\
 https://nytimes.com/card/2024/05/30/nyregion/trump-trial-waiting
