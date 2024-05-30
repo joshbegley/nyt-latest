@@ -1,3 +1,7 @@
+**Idaho Man Is Found Guilty of Murder in ‘Doomsday’ Killings**\
+`Chad Daybell was convicted of first-degree murder in the deaths of his first wife and two of current wife’s children. His wife, Lori Vallow Daybell, was previously sentenced to life in prison.`\
+https://nytimes.com/2024/05/30/us/chad-daybell-doomsday-murder-verdict.html
+
 **Trump’s Trial and Lincoln’s Example Make 2024 a Character Test**\
 `The wrong kind of history is being made at the courthouse.`\
 https://nytimes.com/live/2024/05/28/opinion/thepoint/trump-trial-lincoln-history
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/30/podcasts/animal-episode-3-manatees.html
 **The Outdoor Dining Season Opener**\
 `Rooftop beers and pretzels at Greats of Craft, natural wine and pop-ups at Frog, and more reasons to get outside.`\
 https://nytimes.com/2024/05/30/dining/the-outdoor-dining-season-opener.html
-
-**Episode 4: Ferrets**\
-`Sam soothes his anxiety by visiting a convention center in Ohio.`\
-https://nytimes.com/2024/05/30/podcasts/animal-episode-4-ferrets.html
 
