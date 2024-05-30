@@ -1,3 +1,15 @@
+**How Republicans in Key Senate Races Are Flip-Flopping on Abortion**\
+`Several G.O.P. Senate candidates used to embrace anti-abortion views. Now they are shifting their positions on an issue that has become an electoral liability for their party.`\
+https://nytimes.com/2024/05/30/us/politics/republican-senate-races-abortion.html
+
+**Rafah offensive is worsening the plight around Gaza, aid agencies warn.**\
+`Deteriorating conditions across the Gaza Strip on Thursday were underscored by a strike that killed two medics and scenes of vast urban destruction farther north.`\
+https://nytimes.com/live/2024/05/30/world/israel-gaza-war-hamas-rafah/rafah-offensive-is-worsening-the-plight-around-gaza-aid-agencies-warn
+
+**Taking the Fight to Russia: The West Weighs Ukraine’s Use of Its Weapons**\
+`More NATO allies are backing Kyiv’s pleas to allow its forces to conduct strikes in Russian territory with Western weapons.`\
+https://nytimes.com/2024/05/30/world/europe/ukraine-russia-us-weapons-strike.html
+
 **South Africans Turn Away from Ruling Party, Early Election Results Show**\
 `As votes trickled in, the power and influence of the African National Congress, which has led the country for 30 years, appeared to be waning.`\
 https://nytimes.com/2024/05/30/world/africa/south-africa-election-anc.html
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2024/05/30/nyregion/trump-hush-money-trial-trans
 **OpenAI Says Russia and China Used Its A.I. in Covert Campaigns**\
 `Iran and an Israeli company also exploited the tools in online influence efforts, but none gained much traction, an OpenAI report said.`\
 https://nytimes.com/2024/05/30/technology/openai-influence-campaigns-report.html
-
-**Get Your Sauce Library Card**\
-`Build a sauce library — rich peanut sauce, herby cilantro-mint chutney, lemon-caper dressing — and return to it all week for salads, grain bowls and other easy dinners.`\
-https://nytimes.com/2024/05/30/dining/get-your-sauce-library-card.html
-
-**Why the Trump Trial Jurors Didn’t Get the Judge’s Instructions in Writing**\
-`While common sense suggests a written copy would be helpful for jurors as they deliberate, the law does not allow it.`\
-https://nytimes.com/2024/05/30/nyregion/written-jury-instructions-trump-judge.html
-
-**Jury in Trump’s Trial Rehears Testimony and Judge’s Instructions**\
-`The jurors’ requests included specific testimony from David Pecker, the former publisher of The National Enquirer, and Michael D. Cohen, Donald J. Trump’s former fixer.`\
-https://nytimes.com/2024/05/30/nyregion/trump-jury-instructions-testimony.html
 
