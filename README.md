@@ -1,3 +1,7 @@
+**Man Charged After Attempted Attack Outside Jewish School in New York**\
+`A suspect faces hate crime and other charges after police say he yelled antisemitic statements and drove toward pedestrians onto a sidewalk.`\
+https://nytimes.com/2024/05/30/nyregion/man-charged-jewish-school-attack.html
+
 **Israel Must Stop Its Campaign Against UNRWA**\
 `The commissioner of UNRWA calls for an end to Israeli attacks, both physical and verbal, against its staff and buildings.`\
 https://nytimes.com/2024/05/30/opinion/israel-gaza-un-unrwa.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/29/pageoneplus/corrections-may-30-2024.html
 **Walks in the Park**\
 `Shh … Royce Ferguson’s puzzle holds secrets.`\
 https://nytimes.com/2024/05/29/crosswords/daily-puzzle-2024-05-30.html
-
-**His License Suspended, a Man Appears in Court From Behind the Wheel**\
-`A defendant charged with driving with a suspended license appeared via Zoom while driving. “I don’t know why he would do that,” a perplexed judge said.`\
-https://nytimes.com/2024/05/29/us/driving-zoom-court-suspended-license.html
 
