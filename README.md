@@ -1,3 +1,11 @@
+**Girls of Color Are Getting Their Periods Earlier. No One Quite Knows Why.**\
+`Researchers have linked early menstruation to an increased risk of health problems later in life.`\
+https://nytimes.com/2024/05/30/well/live/girls-period-menstrual-cycle-study.html
+
+**What if the Disabled Characters Were Just Going About Their Day?**\
+`Madison Ferris and Danny J. Gomez star in the meet-cute “All of Me” — proof that depictions of disability onstage don’t have to be “a buzz kill,” as Ferris puts it.`\
+https://nytimes.com/2024/05/30/theater/madison-ferris-danny-gomez.html
+
 **PTSD Has Surged Among College Students**\
 `The prevalence of post-traumatic stress disorder among college students rose to 7.5 percent in 2022, more than double the rate five years earlier, researchers found.`\
 https://nytimes.com/2024/05/30/science/ptsd-diagnoses-rising-college-students.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/30/us/supreme-court-nra-first-amendment.html
 **Why Are People So Down About the Economy? Theories Abound.**\
 `Things look strong on paper, but many Americans remain unconvinced. We asked economic officials, the woman who coined “vibecession” and Charlamagne Tha God what they think is happening.`\
 https://nytimes.com/2024/05/30/business/economy/inflation-economy-americans.html
-
-**Word of the Day: exhume**\
-`This word has appeared in 10 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/05/30/learning/word-of-the-day-exhume.html
-
-**The Best Move for the Trump Jury: A Split Decision**\
-`A trial-watcher’s prediction.`\
-https://nytimes.com/live/2024/05/28/opinion/thepoint/trump-trial-jury-prediction
 
