@@ -22,13 +22,13 @@ https://nytimes.com/2024/05/30/podcasts/what-women-voters-really-want.html
 `After years of living in employer-provided housing, a retired pastor decided to put down roots in Peoria, Ill. Could she afford the single-story, three-bedroom house she wanted?`\
 https://nytimes.com/interactive/2024/05/30/realestate/peoria-illinois-home-sale-hunt.html
 
-**New Housing Crisis for San Francisco: Where to Put the Sea Lions**\
-`The sea lion population at the city’s Pier 39 reached 2,000 this week, setting a record.`\
-https://nytimes.com/2024/05/30/us/san-francisco-sea-lions.html
-
 **Unconventional Sex Let Anglerfish Conquer the Deep Ocean**\
 `During a chaotic period some 50 million years ago, the strange deep-sea creatures left the ocean bottom and thrived by clamping onto their mates.`\
 https://nytimes.com/2024/05/30/science/anglerfish-evolution-sex.html
+
+**New Housing Crisis for San Francisco: Where to Put the Sea Lions**\
+`The sea lion population at the city’s Pier 39 reached 2,000 this week, setting a record.`\
+https://nytimes.com/2024/05/30/us/san-francisco-sea-lions.html
 
 **Election Security, Trump-Style**\
 `There are people who really believe the fraud claims in their hearts and people who don’t but know how to make it sound like they do. Both seem likely to be a part of the Trump future.`\
