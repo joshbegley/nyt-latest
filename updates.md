@@ -1,3 +1,15 @@
+**Trump and His Allies Push False Account of What the Judge Told Jurors**\
+`A tweet from a Fox News anchor falsely said that the jury would not have to settle unanimously on a charge to find the former president guilty.`\
+https://nytimes.com/2024/05/30/nyregion/trump-trial-unanimous-verdict-misinformation.html
+
+**Animal**\
+`In a broken world, what can we gain by looking another animal in the eye? "Animal" is a six-part, round-the-world journey in search of an answer.`\
+https://nytimes.com/column/animal-podcast
+
+**Idaho Man Is Found Guilty of Murder in ‘Doomsday’ Killings**\
+`Chad Daybell was convicted of first-degree murder in the deaths of his first wife and two of current wife’s children. His wife, Lori Vallow Daybell, was previously sentenced to life in prison.`\
+https://nytimes.com/2024/05/30/us/chad-daybell-doomsday-murder-verdict.html
+
 **Trump’s Trial and Lincoln’s Example Make 2024 a Character Test**\
 `The wrong kind of history is being made at the courthouse.`\
 https://nytimes.com/live/2024/05/28/opinion/thepoint/trump-trial-lincoln-history

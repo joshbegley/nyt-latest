@@ -1,3 +1,15 @@
+**Trump and His Allies Push False Account of What the Judge Told Jurors**\
+`A tweet from a Fox News anchor falsely said that the jury would not have to settle unanimously on a charge to find the former president guilty.`\
+https://nytimes.com/2024/05/30/nyregion/trump-trial-unanimous-verdict-misinformation.html
+
+**Animal**\
+`In a broken world, what can we gain by looking another animal in the eye? "Animal" is a six-part, round-the-world journey in search of an answer.`\
+https://nytimes.com/column/animal-podcast
+
+**Idaho Man Is Found Guilty of Murder in ‘Doomsday’ Killings**\
+`Chad Daybell was convicted of first-degree murder in the deaths of his first wife and two of current wife’s children. His wife, Lori Vallow Daybell, was previously sentenced to life in prison.`\
+https://nytimes.com/2024/05/30/us/chad-daybell-doomsday-murder-verdict.html
+
 **Trump’s Trial and Lincoln’s Example Make 2024 a Character Test**\
 `The wrong kind of history is being made at the courthouse.`\
 https://nytimes.com/live/2024/05/28/opinion/thepoint/trump-trial-lincoln-history
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/30/podcasts/animal-episode-2-puffins.html
 **‘Ren Faire’ Is ‘Succession’ With Turkey Legs**\
 `An engrossing documentary debuting Sunday on HBO, it chronicles a Renaissance festival impresario’s effort to find a worthy heir.`\
 https://nytimes.com/2024/05/30/arts/television/ren-faire-is-succession-with-turkey-legs.html
-
-**Episode 3: Manatees**\
-`Sam makes his underwater dreams a reality.`\
-https://nytimes.com/2024/05/30/podcasts/animal-episode-3-manatees.html
-
-**The Outdoor Dining Season Opener**\
-`Rooftop beers and pretzels at Greats of Craft, natural wine and pop-ups at Frog, and more reasons to get outside.`\
-https://nytimes.com/2024/05/30/dining/the-outdoor-dining-season-opener.html
-
-**Episode 4: Ferrets**\
-`Sam soothes his anxiety by visiting a convention center in Ohio.`\
-https://nytimes.com/2024/05/30/podcasts/animal-episode-4-ferrets.html
 
