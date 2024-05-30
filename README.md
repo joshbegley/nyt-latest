@@ -1,3 +1,19 @@
+**Trump Deliberations Continue, and New Delhi’s Hottest Recorded Day**\
+`Plus, Justice Samuel Alito refuses recusal calls.`\
+https://nytimes.com/2024/05/30/podcasts/trump-deliberations-india-climate.html
+
+**The Government Takes On Ticketmaster**\
+`Explaining a case that could reshape the multibillion-dollar live entertainment industry.`\
+https://nytimes.com/2024/05/30/podcasts/the-daily/the-government-takes-on-ticketmaster.html
+
+**The Connections Companion No. 355, May 31, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/30/crosswords/connections-companion-355.html
+
+**Wordle Review No. 1,077, May 31, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/30/crosswords/wordle-review-1077.html
+
 **A ‘Laundry List’ or a ‘Feel’: Biden and Trump’s Clashing Appeals to Black Voters**\
 `President Biden and former President Donald J. Trump both see Black outreach as critical to winning in November. But their approaches differ in fundamental and revealing ways.`\
 https://nytimes.com/2024/05/30/us/politics/trump-biden-black-voters.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/05/30/podcasts/what-women-voters-really-want.html
 **A First-Time Buyer at 66, She Tested her $220,000 Budget in Illinois. Which House Did She Buy?**\
 `After years of living in employer-provided housing, a retired pastor decided to put down roots in Peoria, Ill. Could she afford the single-story, three-bedroom house she wanted?`\
 https://nytimes.com/interactive/2024/05/30/realestate/peoria-illinois-home-sale-hunt.html
-
-**Unconventional Sex Let Anglerfish Conquer the Deep Ocean**\
-`During a chaotic period some 50 million years ago, the strange deep-sea creatures left the ocean bottom and thrived by clamping onto their mates.`\
-https://nytimes.com/2024/05/30/science/anglerfish-evolution-sex.html
-
-**New Housing Crisis for San Francisco: Where to Put the Sea Lions**\
-`The sea lion population at the city’s Pier 39 reached 2,000 this week, setting a record.`\
-https://nytimes.com/2024/05/30/us/san-francisco-sea-lions.html
-
-**Election Security, Trump-Style**\
-`There are people who really believe the fraud claims in their hearts and people who don’t but know how to make it sound like they do. Both seem likely to be a part of the Trump future.`\
-https://nytimes.com/2024/05/30/opinion/election-security-trump-style.html
-
-**How A.S.M.R. Took Over the World**\
-`Our internet culture reporter explains why all the videos you’re watching sound so similar.`\
-https://nytimes.com/2024/05/30/podcasts/how-asmr-took-over-the-world.html
 
