@@ -1,3 +1,11 @@
+**Election Updates: A pro-McCormick super PAC plans a $30 million ad blitz in Pennsylvania.**\
+``\
+https://nytimes.com/live/2024/05/30/us/biden-trump-election
+
+**Does P-22, the Celebrity Big Cat of Los Angeles, Have a Successor?**\
+`More than a year after the death of P-22, the beloved mountain lion who made Griffith Park his home, another has been spotted nearby.`\
+https://nytimes.com/2024/05/30/us/hollywood-mountain-lion-p22-p122.html
+
 **Congestion Pricing’s Latest Challenger: New York City Truckers**\
 `The industry that moves nearly 90 percent of goods within the city is suing to challenge the policy, claiming it unfairly burdens their business.`\
 https://nytimes.com/2024/05/30/nyregion/congestion-pricing-trucks-nyc.html
