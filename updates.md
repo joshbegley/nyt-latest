@@ -1,3 +1,7 @@
+**Here are the rules of the Spelling Bee.**\
+`By Alexandra E. Petri`\
+https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee/here-are-the-rules-of-the-spelling-bee
+
 **Trump cites a litany of claims after the verdict in the Manhattan trial.**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/05/30/nyregion/trump-trial-verdict/trump-cites-a-litany-of-claims-after-the-verdict-in-the-manhattan-trial
