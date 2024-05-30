@@ -1,3 +1,7 @@
+**His License Suspended, a Man Appears in Court From Behind the Wheel**\
+`A defendant charged with driving with a suspended license appeared via Zoom while driving. “I don’t know why he would do that,” a perplexed judge said.`\
+https://nytimes.com/2024/05/29/us/driving-zoom-court-suspended-license.html
+
 **Hong Kong to Rule on Democracy Activists in Largest National Security Trial**\
 `Forty-seven pro-democracy activists face prison time for holding a primary election as Beijing cracks down on even peaceful political opposition.`\
 https://nytimes.com/2024/05/29/world/asia/hong-kong-national-security.html
