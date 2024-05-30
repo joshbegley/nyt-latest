@@ -1,3 +1,7 @@
+**Activist Investor Nelson Peltz Is Said to Sell His Disney Stake**\
+`A billionaire who was critical of Disney’s management, Mr. Peltz lost an expensive battle for a place on the company’s board.`\
+https://nytimes.com/2024/05/29/business/nelson-peltz-disney-shares.html
+
 **Gaza Offensive to Last at Least to Year’s End, Israeli Official Says**\
 `The assessment, at odds with Prime Minister Benjamin Netanyahu’s assertion that the country is “on the brink of victory,” came as Israel claimed control of a key buffer strip along Egypt’s border.`\
 https://nytimes.com/2024/05/29/world/middleeast/gaza-israel-corridor-rafah.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/us/politics/biden-trump-2024-campaign.html
 **New Cease-Fire Proposal Circulates at U.N., Driven by Outrage Over Israel’s Strike on a Tent Camp**\
 `Algeria, the only Arab representative in the current makeup of the Security Council, drafted the resolution.`\
 https://nytimes.com/2024/05/29/world/middleeast/algeria-gaza-ceasefire-proposal-un.html
-
-**From Allies and Advisers, Pressure Grows on Biden to Allow Attacks on Russian Territory**\
-`President Biden is weighing fears of escalation with a nuclear-armed adversary as he considers whether to let Ukraine shoot American weapons into Russia.`\
-https://nytimes.com/2024/05/29/us/politics/biden-ukraine-russia-weapons.html
 
