@@ -1,3 +1,7 @@
+**Hong Kong to Rule on Democracy Activists in Largest National Security Trial**\
+`Forty-seven pro-democracy activists face prison time for holding a primary election as Beijing cracks down on even peaceful political opposition.`\
+https://nytimes.com/2024/05/29/world/asia/hong-kong-national-security.html
+
 **Activist Investor Nelson Peltz Is Said to Sell His Disney Stake**\
 `A billionaire who was critical of Disney’s management, Mr. Peltz lost an expensive battle for a place on the company’s board.`\
 https://nytimes.com/2024/05/29/business/nelson-peltz-disney-shares.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/29/obituaries/bette-nash-dead.html
 **Tracking Biden and Trump on the Campaign Trail**\
 `President Biden and former President Donald J. Trump’s rematch is testing their ability to make the traditional appearances on the trail that voters have come to expect.`\
 https://nytimes.com/interactive/2024/us/politics/biden-trump-2024-campaign.html
-
-**New Cease-Fire Proposal Circulates at U.N., Driven by Outrage Over Israel’s Strike on a Tent Camp**\
-`Algeria, the only Arab representative in the current makeup of the Security Council, drafted the resolution.`\
-https://nytimes.com/2024/05/29/world/middleeast/algeria-gaza-ceasefire-proposal-un.html
 

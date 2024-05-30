@@ -1,3 +1,7 @@
+**Hong Kong to Rule on Democracy Activists in Largest National Security Trial**\
+`Forty-seven pro-democracy activists face prison time for holding a primary election as Beijing cracks down on even peaceful political opposition.`\
+https://nytimes.com/2024/05/29/world/asia/hong-kong-national-security.html
+
 **Activist Investor Nelson Peltz Is Said to Sell His Disney Stake**\
 `A billionaire who was critical of Disney’s management, Mr. Peltz lost an expensive battle for a place on the company’s board.`\
 https://nytimes.com/2024/05/29/business/nelson-peltz-disney-shares.html
