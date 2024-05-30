@@ -1,3 +1,7 @@
+**Jury in Trump’s Trial Rehears Testimony and Judge’s Instructions**\
+`The jurors’ requests included specific testimony from David Pecker, the former publisher of The National Enquirer, and Michael D. Cohen, Donald J. Trump’s former fixer.`\
+https://nytimes.com/2024/05/30/nyregion/trump-jury-instructions-testimony.html
+
 **‘The Dead Don’t Hurt’ Review: A Foursquare Western From Viggo Mortensen**\
 `Mortensen gives his film a nested, at times unnecessarily complicated structure, but with performances this good, it’s hard to mind much.`\
 https://nytimes.com/2024/05/30/movies/the-dead-dont-hurt-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/30/health/ptsd-diagnoses-rising-college-students.htm
 **Grilled Chicken With Tomatoes and Corn, Mango Sticky-Rice Popsicles and the Nicest Niçoise**\
 `And many more hits from our Summer 100.`\
 https://nytimes.com/2024/05/30/dining/grilled-chicken-with-tomatoes-and-corn-mango-sticky-rice-popsicles-and-the-nicest-nicoise.html
-
-**Inflation and the Problem of McMisinformation**\
-`The Big Mac vibes are all wrong.`\
-https://nytimes.com/live/2024/05/28/opinion/thepoint/krugman-mcdonalds-inflation
 
