@@ -16,7 +16,7 @@ https://nytimes.com/live/2024/05/30/world/israel-gaza-war-hamas-rafah/rafah-offe
 
 **Taking the Fight to Russia: The West Weighs Ukraine’s Use of Its Weapons**\
 `More NATO allies are backing Kyiv’s pleas to allow its forces to conduct strikes in Russian territory with Western weapons.`\
-https://nytimes.com/2024/05/30/world/europe/ukraine-russia-us-weapons-strike.html
+https://nytimes.com/2024/05/30/world/europe/ukraine-russia-weapons-strike.html
 
 **South Africans Turn Away from Ruling Party, Early Election Results Show**\
 `As votes trickled in, the power and influence of the African National Congress, which has led the country for 30 years, appeared to be waning.`\

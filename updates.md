@@ -1,3 +1,7 @@
+**Taking the Fight to Russia: The West Weighs Ukraine’s Use of Its Weapons**\
+`More NATO allies are backing Kyiv’s pleas to allow its forces to conduct strikes in Russian territory with Western weapons.`\
+https://nytimes.com/2024/05/30/world/europe/ukraine-russia-weapons-strike.html
+
 **Boeing Gives F.A.A. Plan to Address Systemic Quality-Control Issues**\
 `The action plan is the latest in a series of moves by the F.A.A. to push for safety improvements throughout Boeing during a tumultuous year for the company.`\
 https://nytimes.com/2024/05/30/us/politics/boeing-faa-quality-control-plan.html
