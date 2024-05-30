@@ -1,3 +1,11 @@
+**Boeing Gives F.A.A. Plan to Address Systemic Quality-Control Issues**\
+`The action plan is the latest in a series of moves by the F.A.A. to push for safety improvements throughout Boeing during a tumultuous year for the company.`\
+https://nytimes.com/2024/05/30/us/politics/boeing-faa-quality-control-plan.html
+
+**What Is the Philadelphi Corridor, and Why Does it Matter?**\
+`An eight-mile-long strip of land between the Gaza Strip and Egypt is the latest focus of the Israeli assault on Hamas.`\
+https://nytimes.com/2024/05/30/world/middleeast/what-is-the-philadelphi-corridor-and-why-does-it-matter.html
+
 **How Republicans in Key Senate Races Are Flip-Flopping on Abortion**\
 `Several G.O.P. Senate candidates used to embrace anti-abortion views. Now they are shifting their positions on an issue that has become an electoral liability for their party.`\
 https://nytimes.com/2024/05/30/us/politics/republican-senate-races-abortion.html

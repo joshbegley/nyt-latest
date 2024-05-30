@@ -1,3 +1,11 @@
+**Boeing Gives F.A.A. Plan to Address Systemic Quality-Control Issues**\
+`The action plan is the latest in a series of moves by the F.A.A. to push for safety improvements throughout Boeing during a tumultuous year for the company.`\
+https://nytimes.com/2024/05/30/us/politics/boeing-faa-quality-control-plan.html
+
+**What Is the Philadelphi Corridor, and Why Does it Matter?**\
+`An eight-mile-long strip of land between the Gaza Strip and Egypt is the latest focus of the Israeli assault on Hamas.`\
+https://nytimes.com/2024/05/30/world/middleeast/what-is-the-philadelphi-corridor-and-why-does-it-matter.html
+
 **How Republicans in Key Senate Races Are Flip-Flopping on Abortion**\
 `Several G.O.P. Senate candidates used to embrace anti-abortion views. Now they are shifting their positions on an issue that has become an electoral liability for their party.`\
 https://nytimes.com/2024/05/30/us/politics/republican-senate-races-abortion.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/30/books/review/new-books-recommendations.html
 **This is how jury deliberations work.**\
 `By Kate Christobek`\
 https://nytimes.com/live/2024/05/30/nyregion/trump-trial-verdict/heres-how-jury-deliberations-work
-
-**Transcript of Trump Manhattan Trial, May 28, 2024**\
-`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
-https://nytimes.com/interactive/2024/05/30/nyregion/trump-hush-money-trial-transcript-may-28.html
-
-**OpenAI Says Russia and China Used Its A.I. in Covert Campaigns**\
-`Iran and an Israeli company also exploited the tools in online influence efforts, but none gained much traction, an OpenAI report said.`\
-https://nytimes.com/2024/05/30/technology/openai-influence-campaigns-report.html
 
