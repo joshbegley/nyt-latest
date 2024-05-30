@@ -1,3 +1,19 @@
+**Trump Is Guilty on All Counts**\
+`Also, Biden will allow Ukraine to use U.S. weapons in Russia. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/05/30/briefing/trump-guilty-new-york-trial-ukraine-weapons.html
+
+**Live Updates: Scripps National Spelling Bee Will Crown a New Champion**\
+`The finalists, all under 16 years old, are set to take the final stage at 8 p.m. Eastern time.`\
+https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee
+
+**How A.I. Has Changed Music, and What’s Coming Next**\
+`Artificial intelligence has become the dominant disrupter to music creation and distribution. And it’s only getting started.`\
+https://nytimes.com/2024/05/30/arts/music/popcast-artificial-intelligence-ai.html
+
+**U.S. Accuses Hyundai and Two Other Companies of Using Child Labor**\
+`The Labor Department filed a lawsuit accusing Hyundai, one of its suppliers and a staffing company of jointly employing a 13-year-old on an auto body parts assembly line in Alabama.`\
+https://nytimes.com/2024/05/30/business/hyundai-child-labor-lawsuit.html
+
 **For Trump, ‘Guilty’ May Not Matter**\
 `The conviction may be a mere bump in the road. It could even be a political accelerant.`\
 https://nytimes.com/2024/05/30/opinion/trump-guilty-verdict-defense.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/05/30/nyregion/trump-prison-secret-service.html
 **Trump Has Been Convicted. Here’s What Happens Next.**\
 `Donald J. Trump has promised to appeal, but he may face limits on his ability to travel and to vote as he campaigns for the White House.`\
 https://nytimes.com/2024/05/30/nyregion/trump-conviction-hush-money-trial.html
-
-**Albert S. Ruddy, 94, Dies; Producer Won an Oscar for ‘The Godfather’**\
-`A creator of the sitcom “Hogan’s Heroes,” he went on to win a second Academy Award for “Million Dollar Baby,” the boxing film starring Hilary Swank and Clint Eastwood.`\
-https://nytimes.com/2024/05/30/movies/albert-s-ruddy-dead.html
-
-**How Trump’s Team Blew It**\
-`The defense failed to focus on the most important things.`\
-https://nytimes.com/2024/05/30/opinion/trump-trial-defense.html
-
-**Donald Trump, Felon**\
-`The former president’s conviction in a New York criminal trial revealed, yet again, why he is unfit for office.`\
-https://nytimes.com/2024/05/30/opinion/trump-trial-guilty-felony.html
-
-**Ex-Professor Gets More Than 5 Years in Prison for California ‘Arson Spree’**\
-`Gary Stephen Maynard, 49, of San Jose, Calif., admitted to setting four fires in 2021, including one behind firefighters who were already battling a large blaze.`\
-https://nytimes.com/2024/05/30/us/gary-maynard-california-fires-sentencing.html
 

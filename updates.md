@@ -1,3 +1,7 @@
+**Albert S. Ruddy, 94, Dies; Producer Won an Oscar for ‘The Godfather’**\
+`A creator of the sitcom “Hogan’s Heroes,” he went on to win a second Academy Award for “Million Dollar Baby,” the boxing film starring Hilary Swank and Clint Eastwood.`\
+https://nytimes.com/2024/05/30/movies/albert-s-ruddy-dead.html
+
 **For Trump, ‘Guilty’ May Not Matter**\
 `The conviction may be a mere bump in the road. It could even be a political accelerant.`\
 https://nytimes.com/2024/05/30/opinion/trump-guilty-verdict-defense.html
