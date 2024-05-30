@@ -1,3 +1,7 @@
+**New Scandal Engulfs South Korean Leader in Wake of Marine’s Death**\
+`President Yoon Suk Yeol has been accused of intervening in a probe into an accidental death during a peacetime search and rescue operation.`\
+https://nytimes.com/2024/05/30/world/asia/korea-marine-yoon-impeachment.html
+
 **Thursday Briefing**\
 `Good morning. We’re covering a push to allow U.S. weapons in strikes within Russia as well as New Delhi’s record heat.`\
 https://nytimes.com/2024/05/30/briefing/ukraine-russia-new-delhi-heat-gaza.html
