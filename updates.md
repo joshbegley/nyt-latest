@@ -1,3 +1,7 @@
+**Walks in the Park**\
+`Shh … Royce Ferguson’s puzzle holds secrets.`\
+https://nytimes.com/2024/05/29/crosswords/daily-puzzle-2024-05-30.html
+
 **His License Suspended, a Man Appears in Court From Behind the Wheel**\
 `A defendant charged with driving with a suspended license appeared via Zoom while driving. “I don’t know why he would do that,” a perplexed judge said.`\
 https://nytimes.com/2024/05/29/us/driving-zoom-court-suspended-license.html

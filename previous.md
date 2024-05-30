@@ -1,3 +1,7 @@
+**Walks in the Park**\
+`Shh … Royce Ferguson’s puzzle holds secrets.`\
+https://nytimes.com/2024/05/29/crosswords/daily-puzzle-2024-05-30.html
+
 **His License Suspended, a Man Appears in Court From Behind the Wheel**\
 `A defendant charged with driving with a suspended license appeared via Zoom while driving. “I don’t know why he would do that,” a perplexed judge said.`\
 https://nytimes.com/2024/05/29/us/driving-zoom-court-suspended-license.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/29/nyregion/gang-violence-murder-charges-brooklyn.ht
 **Volcano Erupts in Iceland**\
 `Nearly 800 guests staying at the Blue Lagoon spa and surrounding hotels were ordered to evacuate hours before a volcano in southwestern Iceland erupted.`\
 https://nytimes.com/video/world/europe/100000009494513/iceland-volcano-eruption.html
-
-**Bette Nash, Longest-Serving Flight Attendant in the World, Dies at 88**\
-`A Guinness record-holder, she started flying in 1957, and never stopped. Her regular route from Washington to Boston was nicknamed the Nash Dash.`\
-https://nytimes.com/2024/05/29/obituaries/bette-nash-dead.html
 
