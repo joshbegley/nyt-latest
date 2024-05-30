@@ -1,3 +1,19 @@
+**Thursday Briefing**\
+`Good morning. We’re covering a push to allow U.S. weapons in strikes within Russia as well as New Delhi’s record heat.`\
+https://nytimes.com/2024/05/30/briefing/ukraine-russia-new-delhi-heat-gaza.html
+
+**Sudden Drop in Altitude and Speed Caused Injuries on Singapore Airlines Flight**\
+`A man died and more than 70 other people were injured last week when a flight to Singapore from London hit sudden turbulence.`\
+https://nytimes.com/2024/05/30/world/asia/singapore-airlines-flight-turbulence.html
+
+**What the I.C.J. Ruling Actually Means for Israel’s Offensive in Rafah**\
+`There is a substantial consensus among legal experts that Israel cannot continue its current Rafah offensive without violating the court’s order.`\
+https://nytimes.com/2024/05/30/world/europe/icj-israel-rafah-offensive-explained.html
+
+**How to Watch the Scripps National Spelling Bee**\
+`The finals on Thursday night will determine which of the remaining spellers takes home $50,000.`\
+https://nytimes.com/2024/05/30/us/how-to-watch-the-scripps-national-spelling-bee.html
+
 **Quote of the Day: It’s Tradition in England: 8-Pound Wheels of Glory**\
 `Quotation of the Day for Thursday, May 30, 2024`\
 https://nytimes.com/2024/05/29/pageoneplus/quote-of-the-day-its-tradition-in-england-8-pound-wheels-of-glory.html
@@ -15,26 +31,10 @@ https://nytimes.com/2024/05/29/crosswords/daily-puzzle-2024-05-30.html
 https://nytimes.com/2024/05/29/us/driving-zoom-court-suspended-license.html
 
 **Hong Kong Convicts Democracy Activists in Largest National Security Trial**\
-`Forty-five pro-democracy activists now face prison time as Beijing cracks down on even peaceful political opposition. Two others were acquitted.`\
+`As part of China’s crackdown on even peaceful dissent, a court in Hong Kong convicted 14 people, who now face prison time along with dozens of others.`\
 https://nytimes.com/2024/05/29/world/asia/hong-kong-national-security.html
 
 **Activist Investor Nelson Peltz Is Said to Sell His Disney Stake**\
 `A billionaire who was critical of Disney’s management, Mr. Peltz lost an expensive battle for a place on the company’s board.`\
 https://nytimes.com/2024/05/29/business/nelson-peltz-disney-shares.html
-
-**Gaza Offensive to Last at Least to Year’s End, Israeli Official Says**\
-`The assessment, at odds with Prime Minister Benjamin Netanyahu’s assertion that the country is “on the brink of victory,” came as Israel claimed control of a key buffer strip along Egypt’s border.`\
-https://nytimes.com/2024/05/29/world/middleeast/gaza-israel-corridor-rafah.html
-
-**How a Group of Rappers Became Trump Evangelists**\
-`The seemingly transactional relationship between hip-hop artists and a politician with legal troubles.`\
-https://nytimes.com/2024/05/29/opinion/trump-rappers.html
-
-**Robert F. Kennedy Jr. Is Worse Than a Spoiler**\
-`Voting for an independent candidate in a presidential contest does not make you principled.`\
-https://nytimes.com/2024/05/29/opinion/nicole-shanahan-rfk-jr-third-party.html
-
-**Less Marriage, Less Sex, Less Agreement**\
-`Bonds between men and women may be eroding when we need them most.`\
-https://nytimes.com/2024/05/29/opinion/marriage-sex-gender-divide.html
 
