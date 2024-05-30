@@ -1,3 +1,7 @@
+**Spain Approves Amnesty for Participants in 2017 Catalan Independence Vote**\
+`The measure has divided Spain in recent months, and opponents vowed to keep trying to block it.`\
+https://nytimes.com/2024/05/30/world/europe/spain-catalonia-independence-amnesty.html
+
 **‘Haikyu!! The Dumpster Battle’ Review: Drama on the Court**\
 `This film extends the story told in an anime series about high school volleyball teams.`\
 https://nytimes.com/2024/05/30/movies/haikyu-the-dumpster-battle-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/30/arts/music/john-lennon-guitar-auction-sold-beatle
 **Patriotism, Diversity and the Election**\
 `We explore the battle for Senate control.`\
 https://nytimes.com/2024/05/30/briefing/senate-elections-democrats-2024.html
-
-**Trump Deliberations Continue, and New Delhi’s Hottest Recorded Day**\
-`Plus, Justice Samuel Alito refuses recusal calls.`\
-https://nytimes.com/2024/05/30/podcasts/trump-deliberations-india-climate.html
 
