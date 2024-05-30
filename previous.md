@@ -1,3 +1,11 @@
+**Elon Musk’s X to Host Election Town Hall With Donald Trump**\
+`The social media platform will produce video town halls with Mr. Trump and Robert F. Kennedy Jr., extending its push into politics.`\
+https://nytimes.com/2024/05/30/technology/x-town-hall-trump.html
+
+**Slovak Prime Minister Leaves Hospital 2 Weeks After Assassination Attempt**\
+`Prime Minister Robert Fico had been shot during a meeting with supporters. The hospital’s director told a TV station Mr. Fico could continue treatment at home.`\
+https://nytimes.com/2024/05/30/world/europe/slovakia-prime-minister-fico-hospital-release.html
+
 **Future journalists struggled with spelling, too.**\
 `By The New York Times`\
 https://nytimes.com/live/2022/06/02/us/scripps-spelling-bee/future-journalists-struggled-with-spelling-too
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/30/opinion/trump-guilty-verdict-defense.html
 **Trump Can Proceed With Lawsuit Against His Niece, Court Rules**\
 `The case concerns Mary L. Trump’s disclosure of financial documents to a team of reporters at The New York Times.`\
 https://nytimes.com/2024/05/30/business/media/donald-trump-niece-lawsuit.html
-
-**Friday Briefing: Trump is found guilty on all counts**\
-`Plus, the U.S. will let Ukraine use American weapons to strike inside Russia`\
-https://nytimes.com/2024/05/30/briefing/donald-trump-guilty.html
-
-**Trump Convicted on All Counts to Become America’s First Felon President**\
-`A Manhattan jury found that he had falsified business records to conceal a sex scandal that could have hindered his 2016 campaign for the White House.`\
-https://nytimes.com/2024/05/30/nyregion/trump-convicted-hush-money-trial.html
 

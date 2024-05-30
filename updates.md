@@ -1,3 +1,11 @@
+**Elon Musk’s X to Host Election Town Hall With Donald Trump**\
+`The social media platform will produce video town halls with Mr. Trump and Robert F. Kennedy Jr., extending its push into politics.`\
+https://nytimes.com/2024/05/30/technology/x-town-hall-trump.html
+
+**Slovak Prime Minister Leaves Hospital 2 Weeks After Assassination Attempt**\
+`Prime Minister Robert Fico had been shot during a meeting with supporters. The hospital’s director told a TV station Mr. Fico could continue treatment at home.`\
+https://nytimes.com/2024/05/30/world/europe/slovakia-prime-minister-fico-hospital-release.html
+
 **Future journalists struggled with spelling, too.**\
 `By The New York Times`\
 https://nytimes.com/live/2022/06/02/us/scripps-spelling-bee/future-journalists-struggled-with-spelling-too
