@@ -1,3 +1,7 @@
+**Here are the rules of the Spelling Bee.**\
+`By Alexandra E. Petri`\
+https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee/here-are-the-rules-of-the-spelling-bee
+
 **Trump cites a litany of claims after the verdict in the Manhattan trial.**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/05/30/nyregion/trump-trial-verdict/trump-cites-a-litany-of-claims-after-the-verdict-in-the-manhattan-trial
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/30/arts/music/popcast-artificial-intelligence-ai.htm
 **U.S. Accuses Hyundai and Two Other Companies of Using Child Labor**\
 `The Labor Department filed a lawsuit accusing Hyundai, one of its suppliers and a staffing company of jointly employing a 13-year-old on an auto body parts assembly line in Alabama.`\
 https://nytimes.com/2024/05/30/business/hyundai-child-labor-lawsuit.html
-
-**For Trump, ‘Guilty’ May Not Matter**\
-`The conviction may be a mere bump in the road. It could even be a political accelerant.`\
-https://nytimes.com/2024/05/30/opinion/trump-guilty-verdict-defense.html
 
