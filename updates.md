@@ -1,3 +1,7 @@
+**Gaza and Egypt share a sensitive border that the Israeli military has moved to control.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/05/30/world/israel-gaza-war-hamas-rafah/gaza-and-egypt-share-a-sensitive-border-that-the-israeli-military-has-moved-to-control
+
 **Spain Approves Amnesty for Participants in 2017 Catalan Independence Vote**\
 `The measure has divided Spain in recent months, and opponents vowed to keep trying to block it.`\
 https://nytimes.com/2024/05/30/world/europe/spain-catalonia-independence-amnesty.html

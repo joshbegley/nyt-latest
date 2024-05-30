@@ -1,3 +1,7 @@
+**Gaza and Egypt share a sensitive border that the Israeli military has moved to control.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/05/30/world/israel-gaza-war-hamas-rafah/gaza-and-egypt-share-a-sensitive-border-that-the-israeli-military-has-moved-to-control
+
 **Spain Approves Amnesty for Participants in 2017 Catalan Independence Vote**\
 `The measure has divided Spain in recent months, and opponents vowed to keep trying to block it.`\
 https://nytimes.com/2024/05/30/world/europe/spain-catalonia-independence-amnesty.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/28/opinion/thepoint/covid-new-york
 **John Lennon’s Guitar From ‘Help!’ Is Sold for $2.9 Million at Auction**\
 `After appearing in multiple albums by the Beatles, the instrument was forgotten for more than 50 years before it turned up in the attic of a British countryside home.`\
 https://nytimes.com/2024/05/30/arts/music/john-lennon-guitar-auction-sold-beatles.html
-
-**Patriotism, Diversity and the Election**\
-`We explore the battle for Senate control.`\
-https://nytimes.com/2024/05/30/briefing/senate-elections-democrats-2024.html
 
