@@ -6,7 +6,7 @@ https://nytimes.com/2024/05/30/world/asia/korea-marine-yoon-impeachment.html
 `Good morning. We’re covering a push to allow U.S. weapons in strikes within Russia as well as New Delhi’s record heat.`\
 https://nytimes.com/2024/05/30/briefing/ukraine-russia-new-delhi-heat-gaza.html
 
-**Sudden Drop in Altitude and Speed Caused Injuries on Singapore Airlines Flight**\
+**Singapore Releases Initial Report on Deadly Turbulence That Hit Flight**\
 `A man died and more than 70 other people were injured last week when a flight to Singapore from London hit sudden turbulence.`\
 https://nytimes.com/2024/05/30/world/asia/singapore-airlines-flight-turbulence.html
 
