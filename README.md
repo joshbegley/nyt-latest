@@ -1,3 +1,7 @@
+**Here’s how jury deliberations work.**\
+`By Kate Christobek`\
+https://nytimes.com/live/2024/05/30/nyregion/trump-trial-verdict/heres-how-jury-deliberations-work
+
 **Transcript of Trump Manhattan Trial, May 28, 2024**\
 `New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
 https://nytimes.com/interactive/2024/05/30/nyregion/trump-hush-money-trial-transcript-may-28.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/30/insider/california-today-newsletter.html
 **The Most Delicious Way to Make Wild Salmon**\
 `Leaner than farmed fish and far more flavorful, wild salmon is in season now. Here’s how to cook and savor it.`\
 https://nytimes.com/article/wild-salmon.html
-
-**After Hack, Christie’s Gives Details of Compromised Client Data**\
-`Its disclosure came after RansomHub claimed responsibility for the cyberattack and threatened to release client data on the dark web.`\
-https://nytimes.com/2024/05/30/arts/design/christies-hack-client-data.html
 
