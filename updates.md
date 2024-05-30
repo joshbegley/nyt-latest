@@ -1,3 +1,11 @@
+**‘Ren Faire’ Is ‘Succession’ With Turkey Legs**\
+`An engrossing documentary debuting Sunday on HBO, it chronicles a Renaissance festival impresario’s effort to find a worthy heir.`\
+https://nytimes.com/2024/05/30/arts/television/ren-faire-is-succession-with-turkey-legs.html
+
+**Episode 3: Manatees**\
+`Sam makes his underwater dreams a reality.`\
+https://nytimes.com/2024/05/30/podcasts/animal-episode-3-manatees.html
+
 **The Outdoor Dining Season Opener**\
 `Rooftop beers and pretzels at Greats of Craft, natural wine and pop-ups at Frog, and more reasons to get outside.`\
 https://nytimes.com/2024/05/30/dining/the-outdoor-dining-season-opener.html
