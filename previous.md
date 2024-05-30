@@ -1,3 +1,11 @@
+**If Trump’s Conviction Lands Him in Prison, the Secret Service Goes Too**\
+`The former president could face probation or prison time. Either option would be without precedent.`\
+https://nytimes.com/2024/05/30/nyregion/trump-prison-secret-service.html
+
+**Trump Has Been Convicted. Here’s What Happens Next.**\
+`Donald J. Trump has promised to appeal, but he may face limits on his ability to travel and to vote as he campaigns for the White House.`\
+https://nytimes.com/2024/05/30/nyregion/trump-conviction-hush-money-trial.html
+
 **Albert S. Ruddy, 94, Dies; Producer’s First Oscar Was for ‘The Godfather’**\
 `A creator of the sitcom “Hogan’s Heroes,” he won a second Academy Award for “Million Dollar Baby,” the boxing film starring Hilary Swank and Clint Eastwood.`\
 https://nytimes.com/2024/05/30/movies/albert-s-ruddy-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/30/nyregion/trump-trial-unanimous-verdict-misinforma
 **Animal**\
 `In a broken world, what can we gain by looking another animal in the eye? Join the writer Sam Anderson on a six-part, round-the-world journey in search of an answer.`\
 https://nytimes.com/column/animal-podcast
-
-**Idaho Man Is Found Guilty of Murder in ‘Doomsday’ Killings**\
-`Chad Daybell was convicted of first-degree murder in the deaths of his first wife and two of his current wife’s children. His wife, Lori Vallow Daybell, was previously sentenced to life in prison.`\
-https://nytimes.com/2024/05/30/us/chad-daybell-doomsday-murder-verdict.html
-
-**Trump’s Trial and Lincoln’s Example Make 2024 a Character Test**\
-`The wrong kind of history is being made at the courthouse.`\
-https://nytimes.com/live/2024/05/28/opinion/thepoint/trump-trial-lincoln-history
 

@@ -1,3 +1,11 @@
+**If Trump’s Conviction Lands Him in Prison, the Secret Service Goes Too**\
+`The former president could face probation or prison time. Either option would be without precedent.`\
+https://nytimes.com/2024/05/30/nyregion/trump-prison-secret-service.html
+
+**Trump Has Been Convicted. Here’s What Happens Next.**\
+`Donald J. Trump has promised to appeal, but he may face limits on his ability to travel and to vote as he campaigns for the White House.`\
+https://nytimes.com/2024/05/30/nyregion/trump-conviction-hush-money-trial.html
+
 **Albert S. Ruddy, 94, Dies; Producer’s First Oscar Was for ‘The Godfather’**\
 `A creator of the sitcom “Hogan’s Heroes,” he won a second Academy Award for “Million Dollar Baby,” the boxing film starring Hilary Swank and Clint Eastwood.`\
 https://nytimes.com/2024/05/30/movies/albert-s-ruddy-dead.html
