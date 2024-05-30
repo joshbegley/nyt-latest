@@ -1,3 +1,7 @@
+**Israel Must Stop Its Campaign Against UNRWA**\
+`The commissioner of UNRWA calls for an end to Israeli attacks, both physical and verbal, against its staff and buildings.`\
+https://nytimes.com/2024/05/30/opinion/israel-gaza-un-unrwa.html
+
 **Singapore Releases Initial Report on Deadly Turbulence That Hit Flight**\
 `A man died and more than 70 other people were injured last week when a flight to Singapore from London hit sudden turbulence.`\
 https://nytimes.com/2024/05/30/world/asia/singapore-airlines-flight-turbulence.html
