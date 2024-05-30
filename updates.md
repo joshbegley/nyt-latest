@@ -1,3 +1,15 @@
+**Episode 1: Walnut**\
+`A hole in Sam’s floor sparks a crisis.`\
+https://nytimes.com/2024/05/30/podcasts/animal-episode-1-walnut.html
+
+**Medline Recalls 1.5 Million Adult Bed Rails After 2 Deaths**\
+`Federal regulators said that the portable bed rails posed a serious entrapment hazard and a risk of death by asphyxiation.`\
+https://nytimes.com/2024/05/30/business/medline-bed-rail-recall.html
+
+**Episode 2: Puffins**\
+`As his daughter prepares to leave for college, Sam visits a remote island.`\
+https://nytimes.com/2024/05/30/podcasts/animal-episode-2-puffins.html
+
 **‘Ren Faire’ Is ‘Succession’ With Turkey Legs**\
 `An engrossing documentary debuting Sunday on HBO, it chronicles a Renaissance festival impresario’s effort to find a worthy heir.`\
 https://nytimes.com/2024/05/30/arts/television/ren-faire-is-succession-with-turkey-legs.html

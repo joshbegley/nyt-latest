@@ -1,3 +1,15 @@
+**Episode 1: Walnut**\
+`A hole in Sam’s floor sparks a crisis.`\
+https://nytimes.com/2024/05/30/podcasts/animal-episode-1-walnut.html
+
+**Medline Recalls 1.5 Million Adult Bed Rails After 2 Deaths**\
+`Federal regulators said that the portable bed rails posed a serious entrapment hazard and a risk of death by asphyxiation.`\
+https://nytimes.com/2024/05/30/business/medline-bed-rail-recall.html
+
+**Episode 2: Puffins**\
+`As his daughter prepares to leave for college, Sam visits a remote island.`\
+https://nytimes.com/2024/05/30/podcasts/animal-episode-2-puffins.html
+
 **‘Ren Faire’ Is ‘Succession’ With Turkey Legs**\
 `An engrossing documentary debuting Sunday on HBO, it chronicles a Renaissance festival impresario’s effort to find a worthy heir.`\
 https://nytimes.com/2024/05/30/arts/television/ren-faire-is-succession-with-turkey-legs.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/30/podcasts/animal-episode-6-bats.html
 **Bird Flu Has Infected a Third U.S. Farmworker**\
 `The worker had respiratory symptoms, unlike the first two. But the risk to the public remains low, federal health officials said.`\
 https://nytimes.com/2024/05/30/health/bird-flu-infection-farmworker.html
-
-**Departing House Members Ask: ‘Why Am I Here?’**\
-`A wave of retirees from both parties, including committee chairs and rising stars, say that serving in Congress is no longer worth the frustration.`\
-https://nytimes.com/2024/05/30/us/politics/house-retirees.html
-
-**The Right Kind of Tipping Point**\
-`Global carbon dioxide emissions might have already peaked, according to new estimates, signaling a potentially monumental shift.`\
-https://nytimes.com/2024/05/30/climate/carbon-emissions-falling-global.html
-
-**The Words That Defined Closing Arguments in Donald Trump’s Trial**\
-`Defense lawyers and prosecutors deployed their best lines to win jurors to their side. The panel of 12 New Yorkers then went behind closed doors.`\
-https://nytimes.com/2024/05/30/nyregion/closing-arguments-donald-trump-trial.html
 
