@@ -1,3 +1,7 @@
+**His License Suspended, a Man Appears in Court From Behind the Wheel**\
+`A defendant charged with driving with a suspended license appeared via Zoom while driving. “I don’t know why he would do that,” a perplexed judge said.`\
+https://nytimes.com/2024/05/29/us/driving-zoom-court-suspended-license.html
+
 **Hong Kong to Rule on Democracy Activists in Largest National Security Trial**\
 `Forty-seven pro-democracy activists face prison time for holding a primary election as Beijing cracks down on even peaceful political opposition.`\
 https://nytimes.com/2024/05/29/world/asia/hong-kong-national-security.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000009494513/iceland-volcano-eruption.
 **Bette Nash, Longest-Serving Flight Attendant in the World, Dies at 88**\
 `A Guinness record-holder, she started flying in 1957, and never stopped. Her regular route from Washington to Boston was nicknamed the Nash Dash.`\
 https://nytimes.com/2024/05/29/obituaries/bette-nash-dead.html
-
-**Tracking Biden and Trump on the Campaign Trail**\
-`President Biden and former President Donald J. Trump’s rematch is testing their ability to make the traditional appearances on the trail that voters have come to expect.`\
-https://nytimes.com/interactive/2024/us/politics/biden-trump-2024-campaign.html
 
