@@ -1,3 +1,7 @@
+**Quote of the Day: It’s Tradition in England: 8-Pound Wheels of Glory**\
+`Quotation of the Day for Thursday, May 30, 2024`\
+https://nytimes.com/2024/05/29/pageoneplus/quote-of-the-day-its-tradition-in-england-8-pound-wheels-of-glory.html
+
 **Hong Kong Convicts Democracy Activists in Largest National Security Trial**\
 `Forty-five pro-democracy activists now face prison time as Beijing cracks down on even peaceful political opposition. Two others were acquitted.`\
 https://nytimes.com/2024/05/29/world/asia/hong-kong-national-security.html

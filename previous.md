@@ -1,3 +1,7 @@
+**Quote of the Day: It’s Tradition in England: 8-Pound Wheels of Glory**\
+`Quotation of the Day for Thursday, May 30, 2024`\
+https://nytimes.com/2024/05/29/pageoneplus/quote-of-the-day-its-tradition-in-england-8-pound-wheels-of-glory.html
+
 **Corrections: May 30, 2024**\
 `Corrections that appeared in print on Thursday, May 30, 2024.`\
 https://nytimes.com/2024/05/29/pageoneplus/corrections-may-30-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/29/opinion/nicole-shanahan-rfk-jr-third-party.html
 **Less Marriage, Less Sex, Less Agreement**\
 `Bonds between men and women may be eroding when we need them most.`\
 https://nytimes.com/2024/05/29/opinion/marriage-sex-gender-divide.html
-
-**18 Charged in Gang Violence That Killed Two 16-Year-Old Boys**\
-`The authorities said those charged were as young as 15 when they committed crimes around Brooklyn that included murder.`\
-https://nytimes.com/2024/05/29/nyregion/gang-violence-murder-charges-brooklyn.html
 
