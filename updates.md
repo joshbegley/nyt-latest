@@ -1,3 +1,11 @@
+**What Is Your Reaction to Trump’s Conviction on 34 Felony Counts?**\
+`Donald J. Trump is the first American president to be declared a felon, a stain he will carry as he seeks to regain the presidency.`\
+https://nytimes.com/2024/05/30/learning/what-is-your-reaction-to-trumps-conviction-on-34-felony-counts.html
+
+**‘Guilty,’ and History Is Made**\
+`A single word rings out in a Manhattan courtroom as Donald Trump becomes the first American president convicted of a crime.`\
+https://nytimes.com/2024/05/30/us/politics/trump-trial-guilty-verdict.html
+
 **The Trump Verdict: Americans React**\
 `Initial reactions nationwide to former President Donald J. Trump’s conviction on all 34 counts of falsifying business records.`\
 https://nytimes.com/2024/05/30/nyregion/trump-guilty-verdict-react.html
