@@ -1,3 +1,7 @@
+**Time to Examine Why New York Fared Poorly Early in the Pandemic**\
+`Albany needs to conduct a thorough review.`\
+https://nytimes.com/live/2024/05/28/opinion/thepoint/covid-new-york
+
 **John Lennon’s Guitar From ‘Help!’ Is Sold for $2.9 Million at Auction**\
 `After appearing in multiple albums by the Beatles, the instrument was forgotten for more than 50 years before it turned up in the attic of a British countryside home.`\
 https://nytimes.com/2024/05/30/arts/music/john-lennon-guitar-auction-sold-beatles.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/30/us/politics/alito-flags-recusal.html
 **After 100 Years of Pizza, the Future of Totonno’s Is in Question**\
 `One family has owned the beloved Coney Island pizzeria through fire, flood and a pandemic. Now the business is up for sale.`\
 https://nytimes.com/2024/05/30/dining/totonnos-pizza-nyc.html
-
-**Pro-McCormick Super PAC Plans $30 Million Ad Blitz in Pennsylvania**\
-`Senator Bob Casey’s re-election campaign and the campaign arm of Senate Democrats have so far spent the most in a race that could determine control of the closely divided chamber.`\
-https://nytimes.com/2024/05/30/us/politics/mccormick-casey-pennsylvania.html
 
