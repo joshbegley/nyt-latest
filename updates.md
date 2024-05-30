@@ -1,3 +1,7 @@
+**The Trump Conviction: How an 8-Year Reporting Trail Connected the Dots**\
+`As rumors circulated of Donald J. Trump’s reported infidelity, two accounts of women being paid to stay silent about their encounters became central to his indictment.`\
+https://nytimes.com/2024/05/30/nyregion/stormy-daniels-karen-mcdougal-trump.html
+
 **Trump Had Good Fortune So Far With His Four Cases. Then Came a Verdict.**\
 `Until the jury’s decision on Thursday, the four criminal cases that threatened Donald Trump’s freedom were stumbling along, pleasing his advisers.`\
 https://nytimes.com/2024/05/30/us/politics/trump-verdict-analysis.html
