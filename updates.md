@@ -1,3 +1,7 @@
+**Activist Investor Nelson Peltz Is Said to Sell His Disney Stake**\
+`A billionaire who was critical of Disney’s management, Mr. Peltz lost an expensive battle for a place on the company’s board.`\
+https://nytimes.com/2024/05/29/business/nelson-peltz-disney-shares.html
+
 **How a Group of Rappers Became Trump Evangelists**\
 `The seemingly transactional relationship between hip-hop artists and a politician with legal troubles.`\
 https://nytimes.com/2024/05/29/opinion/trump-rappers.html
