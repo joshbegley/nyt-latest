@@ -1,3 +1,7 @@
+**Egypt Faces Hard Choices After Israeli Seizure of Gaza’s Southern Border**\
+`Egypt’s government is weighing its “cornerstone” relationship with Israel against the economic damage the war in Gaza is inflicting and against the domestic outrage over the devastation there.`\
+https://nytimes.com/2024/05/30/world/middleeast/egypt-gaza-corridor-israel.html
+
 **The Trump Manhattan Criminal Verdict, Count By Count**\
 `Former President Donald J. Trump faces 34 felony charges of falsifying business records, related to the reimbursement of hush money paid to the porn star Stormy Daniels in order to cover up a sex scandal around the 2016 presidential election.`\
 https://nytimes.com/interactive/2024/05/30/nyregion/trump-hush-money-verdict.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/30/podcasts/animal-episode-1-walnut.html
 **Medline Recalls 1.5 Million Adult Bed Rails After 2 Deaths**\
 `Federal regulators said that the portable bed rails posed a serious entrapment hazard and a risk of death by asphyxiation.`\
 https://nytimes.com/2024/05/30/business/medline-bed-rail-recall.html
-
-**Episode 2: Puffins**\
-`As his daughter prepares to leave for college, Sam visits a remote island.`\
-https://nytimes.com/2024/05/30/podcasts/animal-episode-2-puffins.html
 
