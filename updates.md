@@ -1,3 +1,7 @@
+**Word of the Day: exhume**\
+`This word has appeared in 10 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/30/learning/word-of-the-day-exhume.html
+
 **The Best Move for the Trump Jury: A Split Decision**\
 `A trial-watcher’s prediction.`\
 https://nytimes.com/live/2024/05/28/opinion/thepoint/trump-trial-jury-prediction
