@@ -1,3 +1,7 @@
+**Transcript of Trump Manhattan Trial, May 28, 2024**\
+`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
+https://nytimes.com/interactive/2024/05/30/nyregion/trump-hush-money-trial-transcript-may-28.html
+
 **OpenAI Says Russia and China Used Its A.I. in Covert Campaigns**\
 `Iran and an Israeli company also exploited the tools in online influence efforts, but none gained much traction, an OpenAI report said.`\
 https://nytimes.com/2024/05/30/technology/openai-influence-campaigns-report.html
