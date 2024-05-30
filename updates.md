@@ -1,3 +1,7 @@
+**Trump Had Good Fortune So Far With His Four Cases. Then Came a Verdict.**\
+`Until the jury’s decision on Thursday, the four criminal cases that threatened Donald Trump’s freedom were stumbling along, pleasing his advisers.`\
+https://nytimes.com/2024/05/30/us/politics/trump-verdict-analysis.html
+
 **‘Ukraine Has Gone Through a Terrible Period’: A Q. and A. With Frederick and Kimberly Kagan**\
 `We’re at a crucial moment in the war.`\
 https://nytimes.com/2024/05/30/opinion/ukraine-russia-war-history.html
