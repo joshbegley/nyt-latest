@@ -6,9 +6,9 @@ https://nytimes.com/2024/05/30/us/politics/trump-verdict-republicans-reaction.ht
 `By Alexandra E. Petri`\
 https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee/here-are-the-rules-of-the-spelling-bee
 
-**Trump cites a litany of claims after the verdict in the Manhattan trial.**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/05/30/nyregion/trump-trial-verdict/trump-cites-a-litany-of-claims-after-the-verdict-in-the-manhattan-trial
+**Trump cites a litany of inaccurate claims after the verdict in the Manhattan trial.**\
+`The claims, with no e`\
+https://nytimes.com/live/2024/05/30/nyregion/trump-trial-verdict/trump-verdict-claims-fact-check
 
 **Elon Musk’s X to Host Election Town Hall With Donald Trump**\
 `The social media platform will produce video town halls with Mr. Trump and Robert F. Kennedy Jr., extending its push into politics.`\
