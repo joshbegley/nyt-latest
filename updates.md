@@ -1,3 +1,7 @@
+**Singapore Releases Initial Report on Deadly Turbulence That Hit Flight**\
+`A man died and more than 70 other people were injured last week when a flight to Singapore from London hit sudden turbulence.`\
+https://nytimes.com/2024/05/30/world/asia/singapore-airlines-flight-turbulence.html
+
 **New Scandal Engulfs South Korean Leader in Wake of Marine’s Death**\
 `President Yoon Suk Yeol has been accused of intervening in a probe into an accidental death during a peacetime search and rescue operation.`\
 https://nytimes.com/2024/05/30/world/asia/korea-marine-yoon-impeachment.html
