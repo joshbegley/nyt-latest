@@ -1,3 +1,11 @@
+**The Best Move for the Trump Jury: A Split Decision**\
+`A trial-watcher’s prediction.`\
+https://nytimes.com/live/2024/05/28/opinion/thepoint/trump-trial-jury-prediction
+
+**Live Updates: Jury to Review Testimony on Day 2 of Trump Trial Deliberations**\
+`The 12 New Yorkers deciding the criminal case against Donald J. Trump are back in the courtroom after asking to rehear testimony and some of the judge’s instructions. The case stems from a hush-money payment to a porn star.`\
+https://nytimes.com/live/2024/05/30/nyregion/trump-trial-verdict
+
 **There’s a Program to Cancel Private Student Debt. Most Don’t Know About It.**\
 `A nonprofit group is publicizing the relief program that Navient, a large lender, created for students who attended for-profit schools that misled them.`\
 https://nytimes.com/2024/05/30/business/theres-a-program-to-cancel-private-student-debt-most-dont-know-about-it.html
