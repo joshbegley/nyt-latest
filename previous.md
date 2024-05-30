@@ -1,3 +1,7 @@
+**The Trump Manhattan Criminal Verdict, Count By Count**\
+`Former President Donald J. Trump faces 34 felony charges of falsifying business records, related to the reimbursement of hush money paid to the porn star Stormy Daniels in order to cover up a sex scandal around the 2016 presidential election.`\
+https://nytimes.com/interactive/2024/05/30/nyregion/trump-hush-money-verdict.html
+
 **Trump and His Allies Push False Account of What the Judge Told Jurors**\
 `A tweet from a Fox News anchor falsely said that the jury would not have to settle unanimously on a charge to find the former president guilty.`\
 https://nytimes.com/2024/05/30/nyregion/trump-trial-unanimous-verdict-misinformation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/30/business/medline-bed-rail-recall.html
 **Episode 2: Puffins**\
 `As his daughter prepares to leave for college, Sam visits a remote island.`\
 https://nytimes.com/2024/05/30/podcasts/animal-episode-2-puffins.html
-
-**‘Ren Faire’ Is ‘Succession’ With Turkey Legs**\
-`An engrossing documentary debuting Sunday on HBO, it chronicles a Renaissance festival impresario’s effort to find a worthy heir.`\
-https://nytimes.com/2024/05/30/arts/television/ren-faire-is-succession-with-turkey-legs.html
 
