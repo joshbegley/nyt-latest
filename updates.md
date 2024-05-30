@@ -1,3 +1,7 @@
+**John Lennon’s Guitar From ‘Help!’ Is Sold for $2.9 Million at Auction**\
+`After appearing in multiple albums by the Beatles, the instrument was forgotten for more than 50 years before it turned up in the attic of a British countryside home.`\
+https://nytimes.com/2024/05/30/arts/music/john-lennon-guitar-auction-sold-beatles.html
+
 **Patriotism, Diversity and the Election**\
 `We explore the battle for Senate control.`\
 https://nytimes.com/2024/05/30/briefing/senate-elections-democrats-2024.html

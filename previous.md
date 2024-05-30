@@ -1,3 +1,7 @@
+**John Lennon’s Guitar From ‘Help!’ Is Sold for $2.9 Million at Auction**\
+`After appearing in multiple albums by the Beatles, the instrument was forgotten for more than 50 years before it turned up in the attic of a British countryside home.`\
+https://nytimes.com/2024/05/30/arts/music/john-lennon-guitar-auction-sold-beatles.html
+
 **Patriotism, Diversity and the Election**\
 `We explore the battle for Senate control.`\
 https://nytimes.com/2024/05/30/briefing/senate-elections-democrats-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/30/dining/totonnos-pizza-nyc.html
 **Pro-McCormick Super PAC Plans $30 Million Ad Blitz in Pennsylvania**\
 `Senator Bob Casey’s re-election campaign and the campaign arm of Senate Democrats have so far spent the most in a race that could determine control of the closely divided chamber.`\
 https://nytimes.com/2024/05/30/us/politics/mccormick-casey-pennsylvania.html
-
-**What Women Voters Really Want**\
-`It’s a political question at the heart of 2024 and the premise of Trump’s criminal trial. We check in with two female pollsters who wrote a book in 2005, claiming to know … one of whom happens to be Kellyanne Conway.`\
-https://nytimes.com/2024/05/30/podcasts/what-women-voters-really-want.html
 
