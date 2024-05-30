@@ -1,3 +1,15 @@
+**PTSD Has Surged Among College Students**\
+`The prevalence of post-traumatic stress disorder among college students rose to 7.5 percent in 2022, more than double the rate five years earlier, researchers found.`\
+https://nytimes.com/2024/05/30/science/ptsd-diagnoses-rising-college-students.html
+
+**Grilled Chicken With Tomatoes and Corn, Mango Sticky-Rice Popsicles and the Nicest Niçoise**\
+`And many more hits from our Summer 100.`\
+https://nytimes.com/2024/05/30/dining/grilled-chicken-with-tomatoes-and-corn-mango-sticky-rice-popsicles-and-the-nicest-nicoise.html
+
+**Inflation and the problem of McMisinformation**\
+`The Big Mac vibes are all wrong.`\
+https://nytimes.com/live/2024/05/28/opinion/thepoint/krugman-mcdonalds-inflation
+
 **Outside the Courthouse, Waiting for a Verdict**\
 `By Adam Gray`\
 https://nytimes.com/card/2024/05/30/nyregion/trump-trial-waiting
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/30/learning/word-of-the-day-exhume.html
 **The Best Move for the Trump Jury: A Split Decision**\
 `A trial-watcher’s prediction.`\
 https://nytimes.com/live/2024/05/28/opinion/thepoint/trump-trial-jury-prediction
-
-**There’s a Program to Cancel Private Student Debt. Most Don’t Know About It.**\
-`A nonprofit group is publicizing the relief program that Navient, a large lender, created for students who attended for-profit schools that misled them.`\
-https://nytimes.com/2024/05/30/business/navient-private-student-loan-debt.html
-
-**Election Updates: A pro-McCormick super PAC plans a $30 million ad blitz in Pennsylvania.**\
-``\
-https://nytimes.com/live/2024/05/30/us/biden-trump-election
-
-**Does P-22, the Celebrity Big Cat of Los Angeles, Have a Successor?**\
-`More than a year after the death of P-22, the beloved mountain lion who made Griffith Park his home, another has been spotted nearby.`\
-https://nytimes.com/2024/05/30/us/hollywood-mountain-lion-p22-p122.html
 
