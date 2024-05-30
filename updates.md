@@ -1,3 +1,5 @@
+**China’s leader supports an independent Palestinian state, and other news.**\
+
 **An Israeli official says the Gaza offensive will continue for several months, and other news.**\
 
 **Trump Jurors to Review Evidence as They Consider a Verdict in His Trial**\
