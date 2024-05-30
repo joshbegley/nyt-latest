@@ -1,3 +1,11 @@
+**The Trump Verdict: Americans React**\
+`Initial reactions nationwide to former President Donald J. Trump’s conviction on all 34 counts of falsifying business records.`\
+https://nytimes.com/2024/05/30/nyregion/trump-guilty-verdict-react.html
+
+**This Is What It Was Like Inside the Courtroom When the Trump Verdict Was Read**\
+`Late on the second day of deliberations, the judge returned to the courtroom with the announcement of a verdict.`\
+https://nytimes.com/2024/05/30/nyregion/trump-verdict-court.html
+
 **The Trump Verdict: Voters React**\
 `Initial reactions nationwide to former President Donald J. Trump’s conviction on all 34 counts of falsifying business records.`\
 https://nytimes.com/2024/05/30/nyregion/trump-guilty-verdict-voters-react.html
