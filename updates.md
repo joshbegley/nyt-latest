@@ -1,3 +1,11 @@
+**The World Needs an Action Hero. Enter Twyla Tharp (and Camus).**\
+`Leading off the summer season at Little Island in Manhattan, the choreographer presents “How Long Blues,” with T Bone Burnett and David Mansfield.`\
+https://nytimes.com/2024/05/30/arts/dance/twyla-tharp-how-long-blues-little-island.html
+
+**A Look at California Today, and Tomorrow**\
+`Soumya Karlamangla, who writes The Times’s California newsletter, wants to balance uplifting stories and hard news happening in the Golden State.`\
+https://nytimes.com/2024/05/30/insider/california-today-newsletter.html
+
 **The Most Delicious Way to Make Wild Salmon**\
 `Leaner than farmed fish and far more flavorful, wild salmon is in season now. Here’s how to cook and savor it.`\
 https://nytimes.com/article/wild-salmon.html
