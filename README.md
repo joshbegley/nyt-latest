@@ -1,3 +1,11 @@
+**The World Needs an Action Hero. Enter Twyla Tharp (and Camus).**\
+`Leading off the summer season at Little Island in Manhattan, the choreographer presents “How Long Blues,” with T Bone Burnett and David Mansfield.`\
+https://nytimes.com/2024/05/30/arts/dance/twyla-tharp-how-long-blues-little-island.html
+
+**A Look at California Today, and Tomorrow**\
+`Soumya Karlamangla, who writes The Times’s California newsletter, wants to balance uplifting stories and hard news happening in the Golden State.`\
+https://nytimes.com/2024/05/30/insider/california-today-newsletter.html
+
 **The Most Delicious Way to Make Wild Salmon**\
 `Leaner than farmed fish and far more flavorful, wild salmon is in season now. Here’s how to cook and savor it.`\
 https://nytimes.com/article/wild-salmon.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/05/28/opinion/thepoint/krugman-mcdonalds-inflation
 **Outside the Courthouse, Waiting for a Verdict**\
 `By Adam Gray`\
 https://nytimes.com/card/2024/05/30/nyregion/trump-trial-waiting
-
-**Europe Banned Russia’s RT Network. Its Content Is Still Spreading.**\
-`A study found that hundreds of sites, many without obvious Kremlin links, copied Russian propaganda and spread it to unsuspecting audiences ahead of the E.U. election.`\
-https://nytimes.com/2024/05/30/business/media/russia-rt-disinformation-europe-ban.html
-
-**Cleveland Museum of Art to Return a Rare Ancient Icon to Libya**\
-`A 2,200-year-old sculpture of a bearded man carved from basalt, unearthed in the 1930s, is believed to have been stolen in the early 1940s.`\
-https://nytimes.com/2024/05/30/arts/design/cleveland-museum-of-art-statue-libya.html
 
