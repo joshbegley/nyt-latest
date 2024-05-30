@@ -1,3 +1,19 @@
+**Trump Deliberations Continue, and New Delhi’s Hottest Recorded Day**\
+`Plus, Justice Samuel Alito refuses recusal calls.`\
+https://nytimes.com/2024/05/30/podcasts/trump-deliberations-india-climate.html
+
+**The Government Takes On Ticketmaster**\
+`Explaining a case that could reshape the multibillion-dollar live entertainment industry.`\
+https://nytimes.com/2024/05/30/podcasts/the-daily/the-government-takes-on-ticketmaster.html
+
+**The Connections Companion No. 355, May 31, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/30/crosswords/connections-companion-355.html
+
+**Wordle Review No. 1,077, May 31, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/30/crosswords/wordle-review-1077.html
+
 **A ‘Laundry List’ or a ‘Feel’: Biden and Trump’s Clashing Appeals to Black Voters**\
 `President Biden and former President Donald J. Trump both see Black outreach as critical to winning in November. But their approaches differ in fundamental and revealing ways.`\
 https://nytimes.com/2024/05/30/us/politics/trump-biden-black-voters.html
