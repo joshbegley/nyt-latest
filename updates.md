@@ -1,3 +1,7 @@
+**Calvin Klein Names a New Designer and Plans a Runway Return**\
+`Veronica Leoni will be the first woman to run the brand.`\
+https://nytimes.com/2024/05/30/style/calvin-klein-veronica-leoni-new-designer.html
+
 **Ukraine Warns of Deepening Russian Threat in the North**\
 `Analysts say an offensive in the Kharkiv or Sumy regions could stretch Ukrainian troops to the breaking point and allow Moscow to punch through.`\
 https://nytimes.com/2024/05/30/world/europe/ukraine-russia-offensive-north.html
