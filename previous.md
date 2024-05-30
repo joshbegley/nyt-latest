@@ -8,7 +8,7 @@ https://nytimes.com/2024/05/30/theater/madison-ferris-danny-gomez.html
 
 **PTSD Has Surged Among College Students**\
 `The prevalence of post-traumatic stress disorder among college students rose to 7.5 percent in 2022, more than double the rate five years earlier, researchers found.`\
-https://nytimes.com/2024/05/30/science/ptsd-diagnoses-rising-college-students.html
+https://nytimes.com/2024/05/30/health/ptsd-diagnoses-rising-college-students.html
 
 **Grilled Chicken With Tomatoes and Corn, Mango Sticky-Rice Popsicles and the Nicest Niçoise**\
 `And many more hits from our Summer 100.`\

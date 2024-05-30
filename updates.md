@@ -1,3 +1,7 @@
+**PTSD Has Surged Among College Students**\
+`The prevalence of post-traumatic stress disorder among college students rose to 7.5 percent in 2022, more than double the rate five years earlier, researchers found.`\
+https://nytimes.com/2024/05/30/health/ptsd-diagnoses-rising-college-students.html
+
 **Girls of Color Are Getting Their Periods Earlier. No One Quite Knows Why.**\
 `Researchers have linked early menstruation to an increased risk of health problems later in life.`\
 https://nytimes.com/2024/05/30/well/live/girls-period-menstrual-cycle-study.html
