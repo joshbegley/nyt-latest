@@ -1,3 +1,7 @@
+**Here’s how jury deliberations work.**\
+`By Kate Christobek`\
+https://nytimes.com/live/2024/05/30/nyregion/trump-trial-verdict/heres-how-jury-deliberations-work
+
 **Transcript of Trump Manhattan Trial, May 28, 2024**\
 `New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
 https://nytimes.com/interactive/2024/05/30/nyregion/trump-hush-money-trial-transcript-may-28.html
