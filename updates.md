@@ -1,3 +1,15 @@
+**Trump Jurors to Review Evidence as They Consider a Verdict in His Trial**\
+`The panel will begin Thursday by hearing again about a tabloid publisher who helped Donald J. Trump bury unflattering news.`\
+https://nytimes.com/2024/05/30/nyregion/trumps-jury-verdict.html
+
+**Menendez’s Blame-My-Wife Strategy Has Its Risks**\
+`Senator Robert Menendez is accused of a complicated corruption scheme. His lawyers have tried to shift the blame to his wife, Nadine, who is also charged.`\
+https://nytimes.com/2024/05/30/nyregion/robert-nadine-menendez-bribery-trial.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/05/30/crosswords/spelling-bee-forum.html
+
 **Man Charged After Attempted Attack Outside Jewish School in New York**\
 `A suspect faces hate crime and other charges after police say he yelled antisemitic statements and drove toward pedestrians onto a sidewalk.`\
 https://nytimes.com/2024/05/30/nyregion/man-charged-jewish-school-attack.html

@@ -1,3 +1,15 @@
+**Trump Jurors to Review Evidence as They Consider a Verdict in His Trial**\
+`The panel will begin Thursday by hearing again about a tabloid publisher who helped Donald J. Trump bury unflattering news.`\
+https://nytimes.com/2024/05/30/nyregion/trumps-jury-verdict.html
+
+**Menendez’s Blame-My-Wife Strategy Has Its Risks**\
+`Senator Robert Menendez is accused of a complicated corruption scheme. His lawyers have tried to shift the blame to his wife, Nadine, who is also charged.`\
+https://nytimes.com/2024/05/30/nyregion/robert-nadine-menendez-bribery-trial.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/05/30/crosswords/spelling-bee-forum.html
+
 **Man Charged After Attempted Attack Outside Jewish School in New York**\
 `A suspect faces hate crime and other charges after police say he yelled antisemitic statements and drove toward pedestrians onto a sidewalk.`\
 https://nytimes.com/2024/05/30/nyregion/man-charged-jewish-school-attack.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/30/world/europe/icj-israel-rafah-offensive-explained
 **How to Watch the Scripps National Spelling Bee**\
 `The finals on Thursday night will determine which of the remaining spellers takes home $50,000.`\
 https://nytimes.com/2024/05/30/us/how-to-watch-the-scripps-national-spelling-bee.html
-
-**Quote of the Day: It’s Tradition in England: 8-Pound Wheels of Glory**\
-`Quotation of the Day for Thursday, May 30, 2024`\
-https://nytimes.com/2024/05/29/pageoneplus/quote-of-the-day-its-tradition-in-england-8-pound-wheels-of-glory.html
-
-**Corrections: May 30, 2024**\
-`Corrections that appeared in print on Thursday, May 30, 2024.`\
-https://nytimes.com/2024/05/29/pageoneplus/corrections-may-30-2024.html
-
-**Walks in the Park**\
-`Shh … Royce Ferguson’s puzzle holds secrets.`\
-https://nytimes.com/2024/05/29/crosswords/daily-puzzle-2024-05-30.html
 
