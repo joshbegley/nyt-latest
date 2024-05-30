@@ -1,3 +1,7 @@
+**Calvin Klein Names a New Designer and Plans a Runway Return**\
+`Veronica Leoni will be the first woman to run the brand.`\
+https://nytimes.com/2024/05/30/style/calvin-klein-veronica-leoni-new-designer.html
+
 **Ukraine Warns of Deepening Russian Threat in the North**\
 `Analysts say an offensive in the Kharkiv or Sumy regions could stretch Ukrainian troops to the breaking point and allow Moscow to punch through.`\
 https://nytimes.com/2024/05/30/world/europe/ukraine-russia-offensive-north.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/30/movies/great-lillian-hall-review.html
 **‘In a Violent Nature’ Review: Killing Them Softly**\
 `Chris Nash’s ultraviolent horror movie is an unexpectedly serene, almost dreamlike meditation on a murderous psyche.`\
 https://nytimes.com/2024/05/30/movies/in-a-violent-nature-review-killing-them-softly.html
-
-**‘Ezra’ Review: This Father Doesn’t Know Best**\
-`This drama centers on a boy with autism and his divorced dad, with a cast featuring Robert De Niro, Rose Byrne, Whoopi Goldberg and Bobby Cannavale.`\
-https://nytimes.com/2024/05/30/movies/ezra-review.html
 
