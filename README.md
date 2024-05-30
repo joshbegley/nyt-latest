@@ -1,3 +1,7 @@
+**Trump cites a litany of claims after the verdict in the Manhattan trial.**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/05/30/nyregion/trump-trial-verdict/trump-cites-a-litany-of-claims-after-the-verdict-in-the-manhattan-trial
+
 **Elon Musk’s X to Host Election Town Hall With Donald Trump**\
 `The social media platform will produce video town halls with Mr. Trump and Robert F. Kennedy Jr., extending its push into politics.`\
 https://nytimes.com/2024/05/30/technology/x-town-hall-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/30/business/hyundai-child-labor-lawsuit.html
 **For Trump, ‘Guilty’ May Not Matter**\
 `The conviction may be a mere bump in the road. It could even be a political accelerant.`\
 https://nytimes.com/2024/05/30/opinion/trump-guilty-verdict-defense.html
-
-**Trump Can Proceed With Lawsuit Against His Niece, Court Rules**\
-`The case concerns Mary L. Trump’s disclosure of financial documents to a team of reporters at The New York Times.`\
-https://nytimes.com/2024/05/30/business/media/donald-trump-niece-lawsuit.html
 
