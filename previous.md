@@ -1,40 +1,40 @@
-**How a Self-Published Book Broke ‘All the Rules’ and Became a Best Seller**\
-`Keila Shaheen’s “The Shadow Work Journal” shows how radically book sales and marketing have been changed by TikTok.`\
-https://nytimes.com/2024/05/30/books/booksupdate/keila-shaheen-shadow-work-journal-tiktok.html
+**A ‘Laundry List’ or a ‘Feel’: Biden and Trump’s Clashing Appeals to Black Voters**\
+`President Biden and former President Donald J. Trump both see Black outreach as critical to winning in November. But their approaches differ in fundamental and revealing ways.`\
+https://nytimes.com/2024/05/30/us/politics/trump-biden-black-voters.html
 
-**5 Classical Music Albums You Can Listen to Right Now**\
-`John Adams’s opera “Girls of the Golden West,” a recital program by Barbara Hannigan and a collection of Elgar symphonies are among the highlights.`\
-https://nytimes.com/2024/05/30/arts/music/classical-music-albums-may.html
+**Experts Question Alito’s Failure to Recuse Himself in Flag Controversy**\
+`Legal ethicists welcomed the fact that the justice gave reasons for staying on two Jan. 6 cases, a break from court tradition. But they said his rationale was open to criticism.`\
+https://nytimes.com/2024/05/30/us/politics/alito-flags-recusal.html
 
-**‘All Rejections’: What Happened to Entry-Level Jobs in America?**\
-`The class of 2024 is highly educated and still struggling to find work.`\
-https://nytimes.com/2024/05/30/opinion/graduate-job-market.html
+**After 100 Years of Pizza, the Future of Totonno’s Is in Question**\
+`One family has owned the beloved Coney Island pizzeria through fire, flood and a pandemic. Now the business is up for sale.`\
+https://nytimes.com/2024/05/30/dining/totonnos-pizza-nyc.html
 
-**Three Great Documentaries to Stream**\
-`A past look at tough times in New York, and current looks at struggles in North Korea and China.`\
-https://nytimes.com/2024/05/30/movies/documentaries-streaming.html
+**Pro-McCormick Super PAC Plans $30 Million Ad Blitz in Pennsylvania**\
+`Senator Bob Casey’s re-election campaign and the campaign arm of Senate Democrats have so far spent the most in a race that could determine control of the closely divided chamber.`\
+https://nytimes.com/2024/05/30/us/politics/mccormick-casey-pennsylvania.html
 
-**More N.Y.C. Rentals Are Available. But Can You Afford One?**\
-`Inventory has grown over the past year, though prices continue to rise as well — just not as fast.`\
-https://nytimes.com/2024/05/30/realestate/nyc-rentals-available-price.html
+**What Women Voters Really Want**\
+`It’s a political question at the heart of 2024 and the premise of Trump’s criminal trial. We check in with two female pollsters who wrote a book in 2005, claiming to know … one of whom happens to be Kellyanne Conway.`\
+https://nytimes.com/2024/05/30/podcasts/what-women-voters-really-want.html
 
-**Homes for Sale in New York and New Jersey**\
-`This week’s properties are a four-bedroom in Glen Cove, N.Y., and a five-bedroom in Jersey City, N.J.`\
-https://nytimes.com/2024/05/30/realestate/housing-market-near-nyc.html
+**A First-Time Buyer at 66, She Tested her $220,000 Budget in Illinois. Which House Did She Buy?**\
+`After years of living in employer-provided housing, a retired pastor decided to put down roots in Peoria, Ill. Could she afford the single-story, three-bedroom house she wanted?`\
+https://nytimes.com/interactive/2024/05/30/realestate/peoria-illinois-home-sale-hunt.html
 
-**Homes for Sale in Manhattan and Queens**\
-`This week’s properties on the Upper East Side, in Chelsea and Kew Gardens.`\
-https://nytimes.com/2024/05/30/realestate/housing-market-nyc.html
+**New Housing Crisis for San Francisco: Where to Put the Sea Lions**\
+`The sea lion population at the city’s Pier 39 reached 2,000 this week, setting a record.`\
+https://nytimes.com/2024/05/30/us/san-francisco-sea-lions.html
 
-**Delays and Allegations Cool Off Africa’s Hottest Art Event**\
-`Artists are struggling on with side exhibitions despite the postponement of the official biennale in Dakar, Senegal, and the disappearance from view of its champion, Kehinde Wiley.`\
-https://nytimes.com/2024/05/30/arts/design/dakar-art-biennale-kehinde-wiley.html
+**Unconventional Sex Let Anglerfish Conquer the Deep Ocean**\
+`During a chaotic period some 50 million years ago, the strange deep-sea creatures left the ocean bottom and thrived by clamping onto their mates.`\
+https://nytimes.com/2024/05/30/science/anglerfish-evolution-sex.html
 
-**‘Robot Dreams’ Review: A Friendship That Is Far From Mechanical**\
-`This animated film from Pablo Berger is a silent wonder that says everything about love.`\
-https://nytimes.com/2024/05/30/movies/robot-dreams-review.html
+**Election Security, Trump-Style**\
+`There are people who really believe the fraud claims in their hearts and people who don’t but know how to make it sound like they do. Both seem likely to be a part of the Trump future.`\
+https://nytimes.com/2024/05/30/opinion/election-security-trump-style.html
 
-**The Fight Over Taxes Shows the Enormous Policy Stakes of the Trump-Biden Election**\
-`This is a choice between two fundamentally different visions for our country.`\
-https://nytimes.com/2024/05/30/opinion/trump-biden-taxes.html
+**How A.S.M.R. Took Over the World**\
+`Our internet culture reporter explains why all the videos you’re watching sound so similar.`\
+https://nytimes.com/2024/05/30/podcasts/how-asmr-took-over-the-world.html
 
