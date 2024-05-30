@@ -1,3 +1,11 @@
+**Friday Briefing: Trump is found guilty on all counts**\
+`Plus, the U.S. will let Ukraine use American weapons to strike inside Russia`\
+https://nytimes.com/2024/05/30/briefing/donald-trump-guilty.html
+
+**Trump Convicted on All Counts to Become America’s First Felon President**\
+`A Manhattan jury found that he had falsified business records to conceal a sex scandal that could have hindered his 2016 campaign for the White House.`\
+https://nytimes.com/2024/05/30/nyregion/trump-convicted-hush-money-trial.html
+
 **If Trump’s Conviction Lands Him in Prison, the Secret Service Goes Too**\
 `The former president could face probation or prison time. Either option would be without precedent.`\
 https://nytimes.com/2024/05/30/nyregion/trump-prison-secret-service.html
@@ -26,15 +34,7 @@ https://nytimes.com/2024/05/30/us/gary-maynard-california-fires-sentencing.html
 `Egypt’s government is weighing its “cornerstone” relationship with Israel against the economic damage the war in Gaza is inflicting and against the domestic outrage over the devastation there.`\
 https://nytimes.com/2024/05/30/world/middleeast/egypt-gaza-corridor-israel.html
 
-**The Trump Manhattan Guilty Criminal Verdict, Count By Count**\
+**The Trump Manhattan Criminal Verdict, Count By Count**\
 `Former President Donald J. Trump faced 34 felony charges of falsifying business records, related to the reimbursement of hush money paid to the porn star Stormy Daniels in order to cover up a sex scandal around the 2016 presidential election.`\
 https://nytimes.com/interactive/2024/05/30/nyregion/trump-hush-money-verdict.html
-
-**Trump and His Allies Push False Account of What the Judge Told Jurors**\
-`A tweet from a Fox News anchor falsely said that the jury would not have to settle unanimously on a charge to find the former president guilty.`\
-https://nytimes.com/2024/05/30/nyregion/trump-trial-unanimous-verdict-misinformation.html
-
-**Animal**\
-`In a broken world, what can we gain by looking another animal in the eye? Join the writer Sam Anderson on a six-part, round-the-world journey in search of an answer.`\
-https://nytimes.com/column/animal-podcast
 

@@ -1,3 +1,15 @@
+**Friday Briefing: Trump is found guilty on all counts**\
+`Plus, the U.S. will let Ukraine use American weapons to strike inside Russia`\
+https://nytimes.com/2024/05/30/briefing/donald-trump-guilty.html
+
+**Trump Convicted on All Counts to Become America’s First Felon President**\
+`A Manhattan jury found that he had falsified business records to conceal a sex scandal that could have hindered his 2016 campaign for the White House.`\
+https://nytimes.com/2024/05/30/nyregion/trump-convicted-hush-money-trial.html
+
+**The Trump Manhattan Criminal Verdict, Count By Count**\
+`Former President Donald J. Trump faced 34 felony charges of falsifying business records, related to the reimbursement of hush money paid to the porn star Stormy Daniels in order to cover up a sex scandal around the 2016 presidential election.`\
+https://nytimes.com/interactive/2024/05/30/nyregion/trump-hush-money-verdict.html
+
 **If Trump’s Conviction Lands Him in Prison, the Secret Service Goes Too**\
 `The former president could face probation or prison time. Either option would be without precedent.`\
 https://nytimes.com/2024/05/30/nyregion/trump-prison-secret-service.html
