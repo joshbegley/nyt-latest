@@ -1,3 +1,11 @@
+**OpenAI Says Russia and China Used Its A.I. in Covert Campaigns**\
+`Iran and an Israeli company also exploited the tools in online influence efforts, but none gained much traction, an OpenAI report said.`\
+https://nytimes.com/2024/05/30/technology/openai-influence-campaigns-report.html
+
+**Get Your Sauce Library Card**\
+`Build a sauce library — rich peanut sauce, herby cilantro-mint chutney, lemon-caper dressing — and return to it all week for salads, grain bowls and other easy dinners.`\
+https://nytimes.com/2024/05/30/dining/get-your-sauce-library-card.html
+
 **Why the Trump Trial Jurors Didn’t Get the Judge’s Instructions in Writing**\
 `While common sense suggests a written copy would be helpful for jurors as they deliberate, the law does not allow it.`\
 https://nytimes.com/2024/05/30/nyregion/written-jury-instructions-trump-judge.html

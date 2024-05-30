@@ -1,3 +1,11 @@
+**OpenAI Says Russia and China Used Its A.I. in Covert Campaigns**\
+`Iran and an Israeli company also exploited the tools in online influence efforts, but none gained much traction, an OpenAI report said.`\
+https://nytimes.com/2024/05/30/technology/openai-influence-campaigns-report.html
+
+**Get Your Sauce Library Card**\
+`Build a sauce library — rich peanut sauce, herby cilantro-mint chutney, lemon-caper dressing — and return to it all week for salads, grain bowls and other easy dinners.`\
+https://nytimes.com/2024/05/30/dining/get-your-sauce-library-card.html
+
 **Why the Trump Trial Jurors Didn’t Get the Judge’s Instructions in Writing**\
 `While common sense suggests a written copy would be helpful for jurors as they deliberate, the law does not allow it.`\
 https://nytimes.com/2024/05/30/nyregion/written-jury-instructions-trump-judge.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/30/arts/design/christies-hack-client-data.html
 **Girls of Color Are Getting Their Periods Earlier. No One Quite Knows Why.**\
 `Researchers have linked early menstruation to an increased risk of health problems later in life.`\
 https://nytimes.com/2024/05/30/well/live/girls-period-menstrual-cycle-study.html
-
-**What if the Disabled Characters Were Just Going About Their Day?**\
-`Madison Ferris and Danny J. Gomez star in the meet-cute “All of Me” — proof that depictions of disability onstage don’t have to be “a buzz kill,” as Ferris puts it.`\
-https://nytimes.com/2024/05/30/theater/madison-ferris-danny-gomez.html
-
-**PTSD Has Surged Among College Students**\
-`The prevalence of post-traumatic stress disorder among college students rose to 7.5 percent in 2022, more than double the rate five years earlier, researchers found.`\
-https://nytimes.com/2024/05/30/health/ptsd-diagnoses-rising-college-students.html
 
