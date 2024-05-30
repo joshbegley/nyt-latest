@@ -1,3 +1,7 @@
+**There’s a Program to Cancel Private Student Debt. Most Don’t Know About It.**\
+`A nonprofit group is publicizing the relief program that Navient, a large lender, created for students who attended for-profit schools that misled them.`\
+https://nytimes.com/2024/05/30/business/theres-a-program-to-cancel-private-student-debt-most-dont-know-about-it.html
+
 **Election Updates: A pro-McCormick super PAC plans a $30 million ad blitz in Pennsylvania.**\
 ``\
 https://nytimes.com/live/2024/05/30/us/biden-trump-election
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/30/movies/young-woman-and-the-sea-review.html
 **Calvin Klein Names a New Designer and Plans a Runway Return**\
 `Veronica Leoni will be the first woman to run the brand.`\
 https://nytimes.com/2024/05/30/style/calvin-klein-veronica-leoni-new-designer.html
-
-**Ukraine Warns of Deepening Russian Threat in the North**\
-`Analysts say an offensive in the Kharkiv or Sumy regions could stretch Ukrainian troops to the breaking point and allow Moscow to punch through.`\
-https://nytimes.com/2024/05/30/world/europe/ukraine-russia-offensive-north.html
 
