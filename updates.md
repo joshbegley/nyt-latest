@@ -1,3 +1,7 @@
+**Trump cites a litany of claims after the verdict in the Manhattan trial.**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/05/30/nyregion/trump-trial-verdict/trump-cites-a-litany-of-claims-after-the-verdict-in-the-manhattan-trial
+
 **Elon Musk’s X to Host Election Town Hall With Donald Trump**\
 `The social media platform will produce video town halls with Mr. Trump and Robert F. Kennedy Jr., extending its push into politics.`\
 https://nytimes.com/2024/05/30/technology/x-town-hall-trump.html
