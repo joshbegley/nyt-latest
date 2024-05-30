@@ -1,3 +1,7 @@
+**After Conviction, Trump Says ‘Real Verdict’ Will Come in November**\
+`Former President Donald J. Trump, speaking in the courthouse hallway, repeated his unfounded claims that the case was an attempt to interference with his White House bid, and insisted he was innocent.`\
+https://nytimes.com/live/2024/05/30/nyregion/trump-trial-verdict/after-conviction-trump-says-real-verdict-will-come-in-november
+
 **Trump’s G.O.P. Allies Assail His Guilty Verdict in New York Case**\
 `Republicans urged the former president to appeal the verdict after a jury found him guilty of all 34 criminal counts.`\
 https://nytimes.com/2024/05/30/us/politics/trump-verdict-republicans-reaction.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/30/briefing/trump-guilty-new-york-trial-ukraine-weap
 **Live Updates: Scripps National Spelling Bee Will Crown a New Champion**\
 `The finalists, all under 16 years old, are set to take the final stage at 8 p.m. Eastern time.`\
 https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee
-
-**How A.I. Has Changed Music, and What’s Coming Next**\
-`Artificial intelligence has become the dominant disrupter to music creation and distribution. And it’s only getting started.`\
-https://nytimes.com/2024/05/30/arts/music/popcast-artificial-intelligence-ai.html
 
