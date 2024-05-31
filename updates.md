@@ -1,3 +1,7 @@
+**California Man Accused in Slingshot Vandalism Dies at 81**\
+`Prince King, who was arrested last week, had faced five felony vandalism charges in Azusa, Calif.`\
+https://nytimes.com/2024/05/31/us/serial-slingshot-shooter-dead.html
+
 **On Live TV, a Historic Verdict Felt Both Enormous and Small**\
 `Donald Trump’s convictions made for a stunning moment of history, followed by hours of politics talk.`\
 https://nytimes.com/2024/05/31/arts/television/trump-trial-tv.html
