@@ -1,3 +1,7 @@
+**‘It’s time for this war to end’ in Gaza, Biden says.**\
+`By Zolan Kanno-Youngs and David E. Sanger`\
+https://nytimes.com/live/2024/05/31/world/israel-gaza-war-hamas-rafah/biden-israel-remarks-speech
+
 **Seven Weeks, 22 Witnesses: Highlights From the Criminal Trial of Donald Trump**\
 `The former president was convicted of 34 felony counts of falsifying business records to cover up a sex scandal that threatened to derail his 2016 campaign.`\
 https://nytimes.com/2024/05/31/nyregion/trump-trial-highlights.html
