@@ -1,3 +1,7 @@
+**‘The Jury Has Spoken’: Manhattan D.A. Speaks After Trump Guilty Verdict**\
+`The district attorney, Alvin L. Bragg, became the first prosecutor to bring a criminal case against a United States president. On Thursday, he won.`\
+https://nytimes.com/2024/05/30/nyregion/alvin-bragg-trump-trial.html
+
 **The Jury That Convicted Donald Trump**\
 `They heard weeks of testimony in Donald J. Trump’s criminal trial. Then the 12 New Yorkers who made up the jury stuck to the task at hand.`\
 https://nytimes.com/2024/05/30/nyregion/trump-trial-jury.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/30/podcasts/inside-the-courtroom-where-trump-was-con
 **Trump’s Campaign Donor Website Crashes After Guilty Verdict**\
 `Mr. Trump began soliciting donations off his felony conviction almost immediately after the verdict.`\
 https://nytimes.com/2024/05/30/us/politics/trump-winred-crash-donations.html
-
-**Top Minnesota Democrats Call on State Senator Charged With Burglary to Resign**\
-`A Democratic state lawmaker was charged with burglary in April. Her fate could threaten a slim majority Democrats have in the Minnesota Senate.`\
-https://nytimes.com/2024/05/30/us/minnesota-democratic-senator-burglary.html
 
