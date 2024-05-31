@@ -1,3 +1,5 @@
+**How to Support Someone Grieving the Loss of a Pet**\
+
 **Why Megadonors Are Unfazed by Donald Trump’s Guilty Verdict**\
 `Money flowed into the former president’s re-election campaign from Wall Street and Silicon Valley following Thursday’s historic conviction.`\
 https://nytimes.com/2024/05/31/business/dealbook/megadonors-donald-trump-guilty-verdict.html
