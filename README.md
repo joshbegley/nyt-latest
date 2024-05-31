@@ -1,3 +1,15 @@
+**The Best Gifts for Teachers**\
+`According to teachers.`\
+https://nytimes.com/interactive/2024/05/31/smarter-living/wirecutter/teacher-gifts.html
+
+**What My Dog Taught Me About Mortality**\
+`Walnut rescued me from death more than once—but not in the way you might think.`\
+https://nytimes.com/interactive/2024/05/31/magazine/dog-animals-death-mortality.html
+
+**Why Can’t College Grads Find Jobs? Here Are Some Theories — and Fixes.**\
+`Applicants have ways to better their odds, but employers need to make changes, too.`\
+https://nytimes.com/2024/05/31/opinion/college-graduates-jobs-unemployment.html
+
 **Biden Endorses Israeli Cease-Fire Proposal**\
 `‘It’s time for this war to end’ said President Biden during his speech on Friday where he outlined a new three-phase proposal from the Israeli government which ideally would lead to a permanent cease-fire.`\
 https://nytimes.com/video/us/politics/100000009498035/biden-cease-fire.html
@@ -16,7 +28,7 @@ https://nytimes.com/2024/05/31/business/anchor-hamdi-ulukaya-chobani-ceo.html
 
 **Johnson says the Supreme Court should step in to overturn Trump’s conviction.**\
 `By Luke Broadwater`\
-https://nytimes.com/live/2024/05/31/nyregion/trump-news-guilty-verdict/johnson-says-the-supreme-court-should-step-in-to-overturn-trumps-conviction
+https://nytimes.com/2024/05/31/nyregion/johnson-says-the-supreme-court-should-step-in-to-overturn-trumps-conviction.html
 
 **On the Brazilian Coast, a Tropical Town Beloved by Artists and Makers**\
 `A guide to Paraty, on the Costa Verde, with tips on where to stay, shop and island hop from the artist Vik Muniz and four other insiders.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/31/t-magazine/paraty-brazil-travel-guide.html
 **Revisiting the Women Who Defined Lilith Fair’s Sound**\
 `Hear songs by Sarah McLachlan, Tracy Chapman, Meredith Brooks and more.`\
 https://nytimes.com/2024/05/31/arts/music/amplifier-newsletter-lilith-fair.html
-
-**‘It’s time for this war to end’ in Gaza, Biden says.**\
-`By Zolan Kanno-Youngs and David E. Sanger`\
-https://nytimes.com/live/2024/05/31/world/israel-gaza-war-hamas-rafah/biden-israel-remarks-speech
-
-**Trump Says He Will Appeal, Setting Off a Long Legal Journey**\
-`New York’s appellate system could take years to dispose of the case. The speaker of the House said the Supreme Court should intercede.`\
-https://nytimes.com/2024/05/31/nyregion/trump-trial-appeal.html
-
-**Trump Rails Against His Guilty Verdict, Claiming ‘Sick People’ Are Behind His Prosecution**\
-`The day after Donald J. Trump was convicted by a Manhattan jury, the former president stood inside Trump Tower on Friday and made a series of misleading statements about his trial.`\
-https://nytimes.com/2024/05/31/us/politics/trump-speech-guilty-verdict.html
 
