@@ -1,3 +1,7 @@
+**California Man Accused in Slingshot Vandalism Dies at 81**\
+`Prince King, who was arrested last week, had faced five felony vandalism charges in Azusa, Calif.`\
+https://nytimes.com/2024/05/31/us/serial-slingshot-shooter-dead.html
+
 **On Live TV, a Historic Verdict Felt Both Enormous and Small**\
 `Donald Trump’s convictions made for a stunning moment of history, followed by hours of politics talk.`\
 https://nytimes.com/2024/05/31/arts/television/trump-trial-tv.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/dining/my-simplest-grilled-salmon-a-summertime-st
 **Overlooked No More: Hansa Mehta, Who Fought for Women’s Equality in India and Beyond**\
 `For Mehta, women’s rights were human rights, and in all her endeavors she took women’s participation in public and political realms to new heights.`\
 https://nytimes.com/2024/05/31/obituaries/hansa-mehta-overlooked.html
-
-**Electricity From Coal Is Pricey. Should Consumers Have to Pay?**\
-`Environmental groups are making a new economic argument against coal, the heaviest polluting fossil fuel. Some regulators are listening.`\
-https://nytimes.com/2024/05/31/climate/electricity-from-coal-is-pricey-should-consumers-have-to-pay.html
 
