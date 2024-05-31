@@ -1,3 +1,11 @@
+**I Was Skeptical of the ‘Zombie’ Trump Case. I Stand Corrected.**\
+`The prosecutors convinced me — as they clearly and overwhelmingly convinced the jury.`\
+https://nytimes.com/2024/05/31/opinion/trump-trial-defense.html
+
+**Partisanship largely prevails in Arizona suburbs after verdict.**\
+`The New York Times is interviewing people across the swing states in the aftermath of the conviction of former President Donald J. Trump.`\
+https://nytimes.com/live/2024/05/31/nyregion/trump-news-guilty-verdict/partisanship-largely-prevails-in-arizona-suburbs-after-verdict
+
 **Clarence Sasser, 76, Vietnam Medic Honored for Life-Saving Valor, Dies**\
 `A Medal of Honor recipient, he was repeatedly wounded in an ambush. Despite his injuries, he ran through gunfire and “swam” through mud to reach his comrades.`\
 https://nytimes.com/2024/05/31/us/clarence-sasser-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/31/nyregion/michelle-troconis-murder-sentencing-conn
 **In Philadelphia, Trump verdict elicits both anxiety and satisfaction.**\
 `By Maya King`\
 https://nytimes.com/live/2024/05/31/nyregion/trump-news-guilty-verdict/in-philadelphia-reaction-to-the-verdict-ranges-from-elation-to-frustration
-
-**Trump’s Conviction Brings Him Into a ‘New World’**\
-`Donald J. Trump’s historic felony convictions may not alter the presidential race right now, but they have punctured his sense of invincibility in a courtroom, The New York Times’s Maggie Haberman explains.`\
-https://nytimes.com/video/us/politics/100000009497555/trumps-conviction-brings-him-into-a-new-world.html
-
-**Trump’s Conviction Binds the G.O.P. Even Closer to Him**\
-`Prominent Republicans, including congressional leaders, ex-rivals and potential running mates, basked in the energy, and fund-raising, of an outraged base.`\
-https://nytimes.com/2024/05/31/us/politics/trump-conviction-gop-reaction.html
 

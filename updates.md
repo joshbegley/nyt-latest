@@ -1,3 +1,11 @@
+**I Was Skeptical of the ‘Zombie’ Trump Case. I Stand Corrected.**\
+`The prosecutors convinced me — as they clearly and overwhelmingly convinced the jury.`\
+https://nytimes.com/2024/05/31/opinion/trump-trial-defense.html
+
+**Partisanship largely prevails in Arizona suburbs after verdict.**\
+`The New York Times is interviewing people across the swing states in the aftermath of the conviction of former President Donald J. Trump.`\
+https://nytimes.com/live/2024/05/31/nyregion/trump-news-guilty-verdict/partisanship-largely-prevails-in-arizona-suburbs-after-verdict
+
 **Clarence Sasser, 76, Vietnam Medic Honored for Life-Saving Valor, Dies**\
 `A Medal of Honor recipient, he was repeatedly wounded in an ambush. Despite his injuries, he ran through gunfire and “swam” through mud to reach his comrades.`\
 https://nytimes.com/2024/05/31/us/clarence-sasser-dead.html
