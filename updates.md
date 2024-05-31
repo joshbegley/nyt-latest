@@ -1,3 +1,11 @@
+**Transcript: Ezra Klein Interviews D. Graham Burnett**\
+`The May 31, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/05/31/podcasts/transcript-ezra-klein-interviews-d-graham-burnett.html
+
+**Fox News and MSNBC Notch Rating Wins After Trump’s Verdict**\
+`In prime time, MSNBC scored a rare Nielsen victory. Earlier, when the news broke, Fox News attracted the biggest live audience.`\
+https://nytimes.com/2024/05/31/business/media/trump-verdict-tv-ratings.html
+
 **Israel Pushes Deeper Into Rafah, but Gaza Exit Plan Remains Unclear**\
 `The Israeli military withdrew its forces from the northern town of Jabaliya in Gaza on Friday, leaving behind scenes of devastation, returning residents said.`\
 https://nytimes.com/2024/05/31/world/middleeast/israel-rafah-gaza-offensive.html
