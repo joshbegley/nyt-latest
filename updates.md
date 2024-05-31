@@ -1,3 +1,11 @@
+**A 7th Grader’s Electric Tiebreaking Performance Earns Spelling Bee Championship**\
+`Bruhat Soma spelled a stunning 29 words correctly in a 90-second spell-off to win the Scripps National Spelling Bee.`\
+https://nytimes.com/2024/05/30/us/bruhat-soma-spelling-bee-champion.html
+
+**A fast-paced spell-off capped the night: Takeaways from the spelling bee.**\
+`Bruhat Soma overcame Faizan Zaki, spelling a series of words at lighting speeds, in their tiebreaking round to secure the Scripps Bee trophy.`\
+https://nytimes.com/2024/05/30/us/scripps-national-spelling-bee-takeaways.html
+
 **Trump Guilty on All Counts in Hush-Money Case**\
 `Donald J. Trump was convicted on 34 felony counts of falsifying records to cover up a sex scandal that threatened his ascent to the White House in 2016. Jonah Bromwich, a criminal justice reporter at The New York Times, gives his takeaways.`\
 https://nytimes.com/video/nyregion/100000009496841/trump-guilty-on-all-counts-in-hush-money-case.html

@@ -1,3 +1,11 @@
+**A 7th Grader’s Electric Tiebreaking Performance Earns Spelling Bee Championship**\
+`Bruhat Soma spelled a stunning 29 words correctly in a 90-second spell-off to win the Scripps National Spelling Bee.`\
+https://nytimes.com/2024/05/30/us/bruhat-soma-spelling-bee-champion.html
+
+**A fast-paced spell-off capped the night: Takeaways from the spelling bee.**\
+`Bruhat Soma overcame Faizan Zaki, spelling a series of words at lighting speeds, in their tiebreaking round to secure the Scripps Bee trophy.`\
+https://nytimes.com/2024/05/30/us/scripps-national-spelling-bee-takeaways.html
+
 **Trump Guilty on All Counts in Hush-Money Case**\
 `Donald J. Trump was convicted on 34 felony counts of falsifying records to cover up a sex scandal that threatened his ascent to the White House in 2016. Jonah Bromwich, a criminal justice reporter at The New York Times, gives his takeaways.`\
 https://nytimes.com/video/nyregion/100000009496841/trump-guilty-on-all-counts-in-hush-money-case.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/30/nyregion/trump-trial-jury.html
 **Will It Matter? Searching for Clues in the Polls About a Trump Conviction.**\
 `He may not lose support at all, but recent backing from young and nonwhite voters might be likelier to fade.`\
 https://nytimes.com/2024/05/30/upshot/polling-trump-verdict-conviction.html
-
-**Ex-President, Felon and Candidate: 5 Takeaways From Trump’s Conviction**\
-`Donald J. Trump will live the life of a New York convict until he is sentenced on July 11. He faces as long as four years in prison.`\
-https://nytimes.com/2024/05/30/nyregion/trump-trial-takeaways.html
-
-**Robert F. Kennedy Jr., Echoing Trump, Calls Manhattan Case Politically Motivated**\
-`The independent presidential candidate said he believed Mr. Trump’s conviction would only help the former president at the ballot box.`\
-https://nytimes.com/2024/05/30/nyregion/robert-f-kennedy-jr-trump-conviction.html
 
