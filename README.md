@@ -1,3 +1,19 @@
+**Book Club: Let’s Talk About ‘James,’ by Percival Everett**\
+`Everett’s latest novel revisits “The Adventures of Huckleberry Finn” from the perspective of Huck’s fellow runaway.`\
+https://nytimes.com/2024/05/31/books/review/31podcast-percival-everett-james-book-club.html
+
+**Southern Baptists Plan to Vote on Whether to Oppose I.V.F.**\
+`A proposal to be considered at the Southern Baptist Convention in June would advance fetal personhood and call on adherents to reject in vitro fertilization as immoral.`\
+https://nytimes.com/2024/05/31/us/ivf-vote-southern-baptists.html
+
+**Bird Flu Doesn’t Have to Become History’s Most Avoidable Disaster**\
+`If we don’t test for H5N1, we won’t find it.`\
+https://nytimes.com/live/2024/05/28/opinion/thepoint/bird-flu-michigan
+
+**Vermont to Require Fossil-Fuel Companies to Pay for Climate Damage**\
+`Under the country’s first “climate superfund” law, Vermont will charge large emitters for climate-related damage to the state.`\
+https://nytimes.com/2024/05/31/climate/vermont-law-fossil-fuel-climate-damage.html
+
 **The Best Gifts for Teachers**\
 `According to teachers.`\
 https://nytimes.com/interactive/2024/05/31/smarter-living/wirecutter/teacher-gifts.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/05/31/nyregion/trump-trial-highlights.html
 **Birubala Rabha, Who Fought Against Witch Hunting in India, Dies at 75**\
 `She traveled from village to village in a crusade to stop a practice in which women are accused of being witches and harshly punished, and even killed, for it.`\
 https://nytimes.com/2024/05/31/world/asia/birubala-rabha-dead.html
-
-**Chobani Yogurt Founder Buys Anchor Brewing Company**\
-`Hamdi Ulukaya called the craft brewer, said to be the country’s oldest, a “grand jewel.” Anchor’s former owner, Sapporo, put it into liquidation last year, citing the effects of the pandemic.`\
-https://nytimes.com/2024/05/31/business/anchor-hamdi-ulukaya-chobani-ceo.html
-
-**Johnson Says Supreme Court Should Step In to Overturn Trump’s Conviction**\
-`Speaking to Fox News, Speaker Mike Johnson, a steadfast supporter of former President Donald J. Trump, also boasted about the National Republican Campaign Committee’s fund-raising numbers.`\
-https://nytimes.com/2024/05/31/nyregion/mike-johnson-trump-conviction.html
-
-**On the Brazilian Coast, a Tropical Town Beloved by Artists and Makers**\
-`A guide to Paraty, on the Costa Verde, with tips on where to stay, shop and island hop from the artist Vik Muniz and four other insiders.`\
-https://nytimes.com/2024/05/31/t-magazine/paraty-brazil-travel-guide.html
-
-**Revisiting the Women Who Defined Lilith Fair’s Sound**\
-`Hear songs by Sarah McLachlan, Tracy Chapman, Meredith Brooks and more.`\
-https://nytimes.com/2024/05/31/arts/music/amplifier-newsletter-lilith-fair.html
 
