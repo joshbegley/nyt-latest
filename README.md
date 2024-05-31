@@ -1,3 +1,11 @@
+**Why I Love the Sydney Opera House**\
+`The art is accessible, the attendees cut across the social spectrum and the architecture beguiles.`\
+https://nytimes.com/2024/05/31/world/australia/sydney-opera-house.html
+
+**Britain’s Prime Minister Plays His Last Card**\
+`“Now is the moment for Britain to choose its future,” Rishi Sunak told an indifferent nation as water soaked into his suit.`\
+https://nytimes.com/2024/05/31/opinion/uk-general-election-rishi-sunak.html
+
 **Friday Briefing**\
 `Good morning. We’re covering the verdict in Donald Trump’s criminal trial and U.S. permission for Ukraine to use American weapons inside Russia.`\
 https://nytimes.com/2024/05/31/briefing/trump-guilty-verdict-ukraine-us-weapons.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/31/style/dolly-meckler-jordan-cohen-wedding.html
 **A Match Made in Church Sparks a Journey of Self-Discovery**\
 `Jonathan Stewart was dating a woman and grappling with his sexuality when he met Enrico Lagasca. Mr. Lagasca, who developed a crush on him, was surprised to learn that Mr. Stewart felt the same way.`\
 https://nytimes.com/2024/05/31/fashion/weddings/jonathan-stewart-enrico-lagasca-wedding.html
-
-**Wall Street Lands on India, Looking for Profits It Can’t Find in China**\
-`Stock markets in Mumbai have surged as big global investors hope India can become a source of growth. It won’t be so easy.`\
-https://nytimes.com/2024/05/31/business/india-foreign-investors.html
-
-**Quote of the Day:**\
-`Quotation of the Day for Friday, May 31, 2024`\
-https://nytimes.com/2024/05/30/pageoneplus/quote-of-the-day.html
 
