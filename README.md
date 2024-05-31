@@ -1,3 +1,7 @@
+**Marian Robinson, Michelle Obama’s Mother, Dies at 86**\
+`Her death was announced in a statement by Barack Obama, Michelle Obama and other members of the family.`\
+https://nytimes.com/2024/05/31/us/marian-robinson-dead.html
+
 **Six Injured in Stabbing in Germany**\
 `A police officer and an anti-Islamist activist were among the victims, according to the authorities, who have not released information on a motive.`\
 https://nytimes.com/2024/05/31/world/europe/activist-officer-stabbing-germany.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/us/politics/israel-netanyahu-congress.html
 **Retired Navy Admiral Is Arrested on Bribery Charges**\
 `Federal prosecutors said that Robert P. Burke, who was the Navy’s second-highest-ranking officer, had steered a government contract to a company in exchange for a job at the firm.`\
 https://nytimes.com/2024/05/31/us/navy-admiral-arrested-bribery-scheme.html
-
-**What we know about the latest Israeli cease-fire proposal.**\
-`By Jesus Jiménez and Aaron Boxerman`\
-https://nytimes.com/live/2024/05/31/world/israel-gaza-war-hamas-rafah/what-we-know-about-the-latest-israeli-cease-fire-proposal
 
