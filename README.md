@@ -1,3 +1,7 @@
+**Inflation Ticks Up in the Eurozone**\
+`Consumer prices rose 2.6 percent in the year through May, slightly higher than expected. Still, the European Central Bank seems prepared to cut interest rates next week.`\
+https://nytimes.com/2024/05/31/business/eurozone-inflation-may.html
+
 **How Many Americans Will Rationalize Voting for a Felon?**\
 `Three Opinion writers on the Donald Trump hush-money verdict.`\
 https://nytimes.com/2024/05/31/opinion/donald-trump-guilty-jail-stormy-daniels.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/realestate/2-million-homes-in-buenos-aires.html
 **6 Wild Swimming Spots in California, Beyond the Coast**\
 `The beach may beckon, but these freshwater swimming holes and hot springs show another side of the state: Granite canyons, emerald pools and ancient redwood groves.`\
 https://nytimes.com/2024/05/31/travel/wild-swimming-freshwater-california.html
-
-**Beguiling Photos That Lift the Curtain on North Korea**\
-`The photographer Tariq Zaidi captures everyday images of a hidden society at work and at play.`\
-https://nytimes.com/2024/05/31/books/review/north-korea-the-peoples-paradise-tariq-zaidi.html
 
