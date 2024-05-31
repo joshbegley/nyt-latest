@@ -1,1 +1,1 @@
-**I Hate Sleeping in a Tent. So I Turned My Car Into a Cozy Camping Haven. **\
+**How to Support Someone Grieving the Loss of a Pet**\
