@@ -1,3 +1,7 @@
+**Judge John Hodgman on Compulsory Game Nights**\
+`Can you enjoin your spouse to play a board game she has no interest in?`\
+https://nytimes.com/2024/05/31/magazine/judge-john-hodgman-on-compulsory-game-nights.html
+
 **In Philadelphia, Trump verdict elicits both anxiety and satisfaction.**\
 `By Maya King`\
 https://nytimes.com/live/2024/05/31/nyregion/trump-news-guilty-verdict/in-philadelphia-reaction-to-the-verdict-ranges-from-elation-to-frustration
