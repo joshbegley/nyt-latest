@@ -1,3 +1,7 @@
+**Ticketmaster Confirms Data Breach. Here’s What to Know.**\
+`The hacking group ShinyHunters has claimed responsibility for stealing the user information of more than 500 million Ticketmaster customers.`\
+https://nytimes.com/2024/05/31/business/ticketmaster-hack-data-breach.html
+
 **Former U.S. Agriculture Official Says Menendez Told Him to ‘Stop Interfering’**\
 `Jurors in Senator Robert Menendez’s bribery trial heard directly from a witness who recounted Mr. Menendez’s efforts to flex his political muscle.`\
 https://nytimes.com/2024/05/31/nyregion/robert-menendez-bribery-trial.html
