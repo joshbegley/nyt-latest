@@ -1,3 +1,7 @@
+**Prosecutors Try Again to Limit Trump’s Statements in Documents Case**\
+`After having an earlier motion rejected on procedural grounds, the special counsel’s office made a new appeal to the judge to bar the former president from attacking F.B.I. agents in the case.`\
+https://nytimes.com/2024/05/31/us/politics/trump-fbi-agents-documents-case.html
+
 **Marian Robinson, Michelle Obama’s Mother, Dies at 86**\
 `Her death was announced in a statement by Barack Obama, Michelle Obama and other members of the family.`\
 https://nytimes.com/2024/05/31/us/marian-robinson-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/world/middleeast/israel-rafah-gaza-offensive.html
 **Congressional Leaders, Divided Over War, Invite Netanyahu to Deliver Joint Address**\
 `The bipartisan invitation masked political divisions over the prime minister’s handling of the war against Hamas, including the recent attacks he has orchestrated in Rafah.`\
 https://nytimes.com/2024/05/31/us/politics/israel-netanyahu-congress.html
-
-**Retired Navy Admiral Is Arrested on Bribery Charges**\
-`Federal prosecutors said that Robert P. Burke, who was the Navy’s second-highest-ranking officer, had steered a government contract to a company in exchange for a job at the firm.`\
-https://nytimes.com/2024/05/31/us/navy-admiral-arrested-bribery-scheme.html
 
