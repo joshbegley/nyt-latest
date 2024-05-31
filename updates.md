@@ -1,3 +1,11 @@
+**Why I Love the Sydney Opera House**\
+`The art is accessible, the attendees cut across the social spectrum and the architecture beguiles.`\
+https://nytimes.com/2024/05/31/world/australia/sydney-opera-house.html
+
+**Britain’s Prime Minister Plays His Last Card**\
+`“Now is the moment for Britain to choose its future,” Rishi Sunak told an indifferent nation as water soaked into his suit.`\
+https://nytimes.com/2024/05/31/opinion/uk-general-election-rishi-sunak.html
+
 **Friday Briefing**\
 `Good morning. We’re covering the verdict in Donald Trump’s criminal trial and U.S. permission for Ukraine to use American weapons inside Russia.`\
 https://nytimes.com/2024/05/31/briefing/trump-guilty-verdict-ukraine-us-weapons.html
