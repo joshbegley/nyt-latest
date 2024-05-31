@@ -1,3 +1,15 @@
+**Revisiting the Women Who Defined Lilith Fair’s Sound**\
+`Hear songs by Sarah McLachlan, Tracy Chapman, Meredith Brooks and more.`\
+https://nytimes.com/2024/05/31/arts/music/amplifier-newsletter-lilith-fair.html
+
+**‘It’s time for this war to end’ in Gaza, Biden says.**\
+`By Zolan Kanno-Youngs`\
+https://nytimes.com/live/2024/05/31/world/israel-gaza-war-hamas-rafah/biden-says-of-its-time-for-this-war-to-end-in-gaza
+
+**Trump Says He Will Appeal, Setting Off a Long Legal Journey**\
+`New York’s appellate system could take years to dispose of the case. The speaker of the House said the Supreme Court should intercede.`\
+https://nytimes.com/2024/05/31/nyregion/trump-trial-appeal.html
+
 **Trump Rails Against His Guilty Verdict, Claiming ‘Sick People’ Are Behind His Prosecution**\
 `The day after Donald J. Trump was convicted by a Manhattan jury, the former president stood inside Trump Tower on Friday and made a series of misleading statements about his trial.`\
 https://nytimes.com/2024/05/31/us/politics/trump-speech-guilty-verdict.html
