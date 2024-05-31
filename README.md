@@ -1,3 +1,7 @@
+**The Dark Rhetoric After Trump’s Conviction**\
+`The former president sought to weaponize the verdict to undermine trust in the justice system.`\
+https://nytimes.com/2024/05/30/us/politics/trump-convicted-election-republicans.html
+
 **Hopeful Yet Cautious, Biden’s Team Aims to Exploit Trump’s Conviction**\
 `The verdict in Manhattan gave the president and his allies a new way to frame the race: a choice between someone who is a felon and someone who is not.`\
 https://nytimes.com/2024/05/30/us/politics/biden-trump-verdict.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee/here-are-the-eight-f
 **Transcript of Trump Manhattan Trial, May 29, 2024**\
 `Update on May 30: New York State’s court released transcripts from each day of the Manhattan criminal trial of former President Donald J. Trump, who was convicted on 34 counts of falsifying business records to cover up a sex scandal that threatened to derail his 2016 presidential campaign.`\
 https://nytimes.com/interactive/2024/05/30/nyregion/trump-hush-money-trial-transcript-may-29.html
-
-**The Trump Conviction: How an 8-Year Reporting Trail Connected the Dots**\
-`As rumors circulated of Donald J. Trump’s reported infidelity, two accounts of women being paid to stay silent about their encounters became central to his indictment.`\
-https://nytimes.com/2024/05/30/nyregion/stormy-daniels-karen-mcdougal-trump.html
 
