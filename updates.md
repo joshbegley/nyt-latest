@@ -1,3 +1,23 @@
+**The Best Gifts for Teachers**\
+`According to teachers.`\
+https://nytimes.com/interactive/2024/05/31/smarter-living/wirecutter/teacher-gifts.html
+
+**What My Dog Taught Me About Mortality**\
+`Walnut rescued me from death more than once—but not in the way you might think.`\
+https://nytimes.com/interactive/2024/05/31/magazine/dog-animals-death-mortality.html
+
+**Why Can’t College Grads Find Jobs? Here Are Some Theories — and Fixes.**\
+`Applicants have ways to better their odds, but employers need to make changes, too.`\
+https://nytimes.com/2024/05/31/opinion/college-graduates-jobs-unemployment.html
+
+**Biden Endorses Israeli Cease-Fire Proposal**\
+`‘It’s time for this war to end’ said President Biden during his speech on Friday where he outlined a new three-phase proposal from the Israeli government which ideally would lead to a permanent cease-fire.`\
+https://nytimes.com/video/us/politics/100000009498035/biden-cease-fire.html
+
+**Johnson says the Supreme Court should step in to overturn Trump’s conviction.**\
+`By Luke Broadwater`\
+https://nytimes.com/2024/05/31/nyregion/johnson-says-the-supreme-court-should-step-in-to-overturn-trumps-conviction.html
+
 **‘It’s time for this war to end’ in Gaza, Biden says.**\
 `By Zolan Kanno-Youngs and David E. Sanger`\
 https://nytimes.com/live/2024/05/31/world/israel-gaza-war-hamas-rafah/biden-israel-remarks-speech
