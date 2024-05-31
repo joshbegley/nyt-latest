@@ -1,3 +1,7 @@
+**The End of a Maestro’s Era Approaches at the Philharmonic**\
+`Jaap van Zweden returned to the New York Philharmonic to lead some of his final programs as the orchestra’s music director.`\
+https://nytimes.com/2024/05/31/arts/music/jaap-van-zweden-ny-philharmonic.html
+
 **Five International Movies to Stream Now**\
 `This month’s picks include an Indian political thriller, a beautiful tale of coming-of-middle-age from Georgia and more.`\
 https://nytimes.com/2024/05/31/movies/international-movies-streaming.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/nyregion/donald-trump-pardon-himself.html
 **Why Greece Is Betting Big on American Gas**\
 `Even as it pivots to solar and wind for itself, Greece aims to become a natural gas supplier across Europe. Among its strongest backers is the United States.`\
 https://nytimes.com/2024/05/31/climate/greece-europe-natural-gas-lng.html
-
-**‘Trump Lost His Trial. American Justice Won.’**\
-`Readers offer a range of reactions and reflections.`\
-https://nytimes.com/2024/05/31/opinion/letters/donald-trump-trial-conviction.html
 
