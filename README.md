@@ -1,3 +1,7 @@
+**How Partisan Media Outlets Covered Trump’s Guilty Verdict**\
+`Conservative outlets blasted former President Donald J. Trump’s criminal conviction as a sham, while liberal outlets divided on the import.`\
+https://nytimes.com/2024/05/31/business/media/trump-verdict-media-coverage.html
+
 **Doug Ingle, the Voice of Iron Butterfly, Is Dead at 78**\
 `His biggest hit, “In-A-Gadda-Da-Vida,” was a 17-minute psychedelic journey that epitomized 1960s rock indulgence. But after just a few years in the limelight, he walked away.`\
 https://nytimes.com/2024/05/31/arts/music/doug-ingle-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/arts/television/trump-trial-tv.html
 **Eminem Loses the Magic, and 10 More New Songs**\
 `Hear tracks by Clairo, Nathy Peluso, Nick Cave & the Bad Seeds and others.`\
 https://nytimes.com/2024/05/31/arts/music/playlist-eminem-clairo-shaboozey.html
-
-**The End of a Maestro’s Era Approaches at the Philharmonic**\
-`Jaap van Zweden returned to the New York Philharmonic to lead some of his final programs as the orchestra’s music director.`\
-https://nytimes.com/2024/05/31/arts/music/jaap-van-zweden-ny-philharmonic.html
 
