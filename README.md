@@ -1,3 +1,7 @@
+**After a Guilty Verdict, Trump Shifted to Campaign Mode**\
+`Also, Biden endorsed Israel’s cease-fire proposal. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/05/31/briefing/trump-verdict-response-biden-cease-fire.html
+
 **Trump’s Conviction Renews Push to Strip His Name From a New York Park**\
 `Legislative efforts to rename Donald J. Trump State Park in northern Westchester County have failed so far, but some lawmakers want to try again.`\
 https://nytimes.com/2024/05/31/nyregion/trump-park-taconic-ny.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/us/clarence-sasser-dead.html
 **Extraordinary Circumstances, Ordinary Due Process**\
 `Donald Trump’s New York trial played out in the midst of a presidential campaign, but despite claims from him and his allies that the proceedings were rigged, he had all the rights of any defendant.`\
 https://nytimes.com/2024/05/31/us/politics/trump-trial-verdict-court.html
-
-**In the crucial swing state of North Carolina, divided voters agree on one thing: They are worried.**\
-`By Eduardo Medina`\
-https://nytimes.com/live/2024/05/31/nyregion/trump-news-guilty-verdict/in-the-crucial-swing-state-of-north-carolina-divided-voters-agree-on-one-thing-they-are-worried
 
