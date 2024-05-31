@@ -1,40 +1,40 @@
-**10 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://nytimes.com/2024/05/31/movies/new-movies-this-week-critics.html
+**Five Years After Virginia Beach Shooting, ‘No One Is Getting Better’**\
+`The city will dedicate a memorial site on Friday. For some of the families who lost loved ones, the commemoration is a reminder of unanswered questions.`\
+https://nytimes.com/2024/05/31/us/virginia-beach-shooting-memorial.html
 
-**She Made an Offer on a Condo. Then the Seller Learned She Was Black.**\
-`A Black woman claims a white homeowner tried to pull out of a sale because of her race.`\
-https://nytimes.com/2024/05/31/realestate/race-home-buying-raven-baxter.html
+**‘Trump Is Now a Felon, and That Will Matter’: 7 Writers on the Guilty Verdict**\
+`Times Opinion writers reflect on an extraordinary development in American political history.`\
+https://nytimes.com/2024/05/31/opinion/trump-trial-verdict.html
 
-**Your Mind Is Being Fracked**\
-`The historian of science D. Graham Burnett on what’s at stake in the rise of an extractive attention economy and how we can reclaim our attention.`\
-https://nytimes.com/2024/05/31/opinion/ezra-klein-podcast-d-graham-burnett.html
+**The New ChatGPT Offers a Lesson in A.I. Hype**\
+`OpenAI released GPT-4o, its latest chatbot technology, in a partly finished state. It has much to prove.`\
+https://nytimes.com/2024/05/31/technology/personaltech/chatgpt-4o-openai-review.html
 
-**‘Jim Henson Idea Man’: In a Joyful Weirdo, Lessons for Young Artists**\
-`This Ron Howard documentary doesn’t ignore the Muppet mastermind’s faults, but the tribute has a lot to teach creators everywhere.`\
-https://nytimes.com/2024/05/31/movies/jim-henson-sesame-street-documentary.html
+**Where Zendaya and Kate Moss Go for a Dose of Ibiza Style**\
+`The actress and the supermodel are among the A-listers who have gravitated to the glamorous aesthetic of the merchant-turned-designer Annie Doble.`\
+https://nytimes.com/2024/05/31/fashion/zendaya-kate-moss-annies-ibiza.html
 
-**Carl Radke on His Tumultuous Journey Through ‘Summer House’**\
-`From getting sober, grieving the loss of his brother and calling off his engagement, Radke has let viewers in on the most intimate moments of his life.`\
-https://nytimes.com/2024/05/31/arts/television/carl-radke-on-his-tumultuous-journey-through-summer-house.html
+**How to ‘Gray Rock’ Conversations With Difficult People**\
+`Some say that becoming as dull as a rock is an effective way to disengage.`\
+https://nytimes.com/2024/05/31/well/mind/gray-rock-method.html
 
-**Google Is Using A.I. to Answer Your Health Questions. Should You Trust It?**\
-`Experts say the new feature may offer dubious advice in response to personal health queries.`\
-https://nytimes.com/2024/05/31/well/live/google-ai-health-information.html
+**How I Learned to Stop Worrying and Love the Prom**\
+`Even with all the text chains and drama.`\
+https://nytimes.com/2024/05/31/style/managing-daughter-prom.html
 
-**How Stop-Motion Yetis Emerged From Film Hibernation**\
-`“The Primevals,” a movie in the lineage of “Jason and the Argonauts,” was filmed 30 years ago. It has finally been released.`\
-https://nytimes.com/2024/05/31/arts/the-primevals-stop-motion.html
+**$2 Million Homes in Buenos Aires**\
+`A three-bedroom apartment in a modern tower, a duplex with a rooftop soccer pitch, and an 1898 mansion configured as a hotel.`\
+https://nytimes.com/2024/05/31/realestate/2-million-homes-in-buenos-aires.html
 
-**When the Stage Harnesses the Power of the Movies**\
-`Adaptations of films will be a factor at the Tonys this year. Surprisingly the best of these shows are not always the most faithful.`\
-https://nytimes.com/2024/05/31/movies/the-notebook-the-outsiders-broadway.html
+**6 Wild Swimming Spots in California, Beyond the Coast**\
+`The beach may beckon, but these freshwater swimming holes and hot springs show another side of the state: Granite canyons, emerald pools and ancient redwood groves.`\
+https://nytimes.com/2024/05/31/travel/wild-swimming-freshwater-california.html
 
-**Joking Aside, the ‘Hacks’ Showrunners Explain That Final Twist**\
-`In an interview, Lucia Aniello, Paul W. Downs and Jen Statsky discussed the Season 3 finale and if the anything-for-a-laugh ethos is worth it. (Short answer: Yes.)`\
-https://nytimes.com/2024/05/31/arts/television/joking-aside-the-hacks-showrunners-explain-that-final-twist.html
+**Beguiling Photos That Lift the Curtain on North Korea**\
+`The photographer Tariq Zaidi captures everyday images of a hidden society at work and at play.`\
+https://nytimes.com/2024/05/31/books/review/north-korea-the-peoples-paradise-tariq-zaidi.html
 
-**3 Sultry, Summery New Thrillers**\
-`If your idea of a beach read involves murder, we’ve got you covered.`\
-https://nytimes.com/2024/05/31/books/review/new-thrillers.html
+**Sports Gambling Is a Ticking Time Bomb**\
+`Betting puts pressure on pro athletes. The cracks are starting to show.`\
+https://nytimes.com/2024/05/31/opinion/sports-gambling-betting-athletes.html
 

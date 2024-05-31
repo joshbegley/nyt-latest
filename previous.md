@@ -1,37 +1,40 @@
-**What Is Fair Housing?**\
-`There are laws to protect people from discrimination in buying, renting and living in their homes.`\
-https://nytimes.com/2024/05/31/realestate/what-is-fair-housing.html
+**10 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://nytimes.com/2024/05/31/movies/new-movies-this-week-critics.html
 
-**As U.S. Shifts Policy on Striking Into Russia, Kharkiv Is Hit Again**\
-`After weeks of entreaties, Ukraine won permission to hit targets inside Russia with American-made weapons, a tactic that it says will help it defend territory in the northeast.`\
-https://nytimes.com/2024/05/31/world/europe/us-ukraine-kharkiv.html
+**She Made an Offer on a Condo. Then the Seller Learned She Was Black.**\
+`A Black woman claims a white homeowner tried to pull out of a sale because of her race.`\
+https://nytimes.com/2024/05/31/realestate/race-home-buying-raven-baxter.html
 
-**Donald Trump to Speak on Friday in Wake of His Conviction**\
-`America for the first time has a former president who is a felon, and he’s running for the White House again.`\
-https://nytimes.com/2024/05/31/nyregion/trump-speech-verdict-conviction.html
+**Your Mind Is Being Fracked**\
+`The historian of science D. Graham Burnett on what’s at stake in the rise of an extractive attention economy and how we can reclaim our attention.`\
+https://nytimes.com/2024/05/31/opinion/ezra-klein-podcast-d-graham-burnett.html
 
-**The Very Brief Life of a World-Class Cricket Stadium on Long Island**\
-`Built in 100 days for the Cricket World Cup, the stadium will host nine matches before it is dismantled.`\
-https://nytimes.com/2024/05/31/nyregion/cricket-t20-world-cup-long-island-new-york.html
+**‘Jim Henson Idea Man’: In a Joyful Weirdo, Lessons for Young Artists**\
+`This Ron Howard documentary doesn’t ignore the Muppet mastermind’s faults, but the tribute has a lot to teach creators everywhere.`\
+https://nytimes.com/2024/05/31/movies/jim-henson-sesame-street-documentary.html
 
-**Victims of Random Street Attacks Face an Outdated Police System**\
-`Standard practices are not helping the victims — and they also prevent the attackers from getting help they need.`\
-https://nytimes.com/2024/05/31/nyregion/random-attacks-new-york-city-women.html
+**Carl Radke on His Tumultuous Journey Through ‘Summer House’**\
+`From getting sober, grieving the loss of his brother and calling off his engagement, Radke has let viewers in on the most intimate moments of his life.`\
+https://nytimes.com/2024/05/31/arts/television/carl-radke-on-his-tumultuous-journey-through-summer-house.html
 
-**Senate and House Races to Watch in New Jersey**\
-`On June 4, Democrats and Republicans will choose nominees for the U.S. Senate. In the House, Representative Rob Menendez faces a strong primary challenge.`\
-https://nytimes.com/2024/05/31/nyregion/new-jersey-june-4-primary-election.html
+**Google Is Using A.I. to Answer Your Health Questions. Should You Trust It?**\
+`Experts say the new feature may offer dubious advice in response to personal health queries.`\
+https://nytimes.com/2024/05/31/well/live/google-ai-health-information.html
 
-**How 3 Texas Teenagers Grew Up to Be Broadway Stars (and Stayed Friends)**\
-`Trey Curtis and J. Quinton Johnson are performing in “Hamilton.” Their friend Vincent Jamal Hooper is Simba in “The Lion King.”`\
-https://nytimes.com/2024/05/31/nyregion/texas-friends-hamilton-lion-king-stars.html
+**How Stop-Motion Yetis Emerged From Film Hibernation**\
+`“The Primevals,” a movie in the lineage of “Jason and the Argonauts,” was filmed 30 years ago. It has finally been released.`\
+https://nytimes.com/2024/05/31/arts/the-primevals-stop-motion.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/05/31/crosswords/spelling-bee-forum.html
+**When the Stage Harnesses the Power of the Movies**\
+`Adaptations of films will be a factor at the Tonys this year. Surprisingly the best of these shows are not always the most faithful.`\
+https://nytimes.com/2024/05/31/movies/the-notebook-the-outsiders-broadway.html
 
-**U.S. and Chinese Defense Chiefs Hold First In-Person Talks Since 2022**\
-`Lloyd J. Austin III is meeting his Chinese counterpart as both countries try to show they can manage their disputes over Taiwan and the South China Sea.`\
-https://nytimes.com/2024/05/31/world/asia/us-china-military-talks.html
+**Joking Aside, the ‘Hacks’ Showrunners Explain That Final Twist**\
+`In an interview, Lucia Aniello, Paul W. Downs and Jen Statsky discussed the Season 3 finale and if the anything-for-a-laugh ethos is worth it. (Short answer: Yes.)`\
+https://nytimes.com/2024/05/31/arts/television/joking-aside-the-hacks-showrunners-explain-that-final-twist.html
 
-**Slovenia to recognize a Palestinian state, and other news.**\
+**3 Sultry, Summery New Thrillers**\
+`If your idea of a beach read involves murder, we’ve got you covered.`\
+https://nytimes.com/2024/05/31/books/review/new-thrillers.html
+
