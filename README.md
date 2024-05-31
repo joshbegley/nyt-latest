@@ -1,3 +1,7 @@
+**Robert F. Kennedy Jr., Echoing Trump, Calls Manhattan Case Politically Motivated**\
+`The independent presidential candidate said he believed Mr. Trump’s conviction would only help the former president at the ballot box.`\
+https://nytimes.com/2024/05/30/nyregion/robert-f-kennedy-jr-trump-conviction.html
+
 **The Dark Rhetoric After Trump’s Conviction**\
 `The former president sought to weaponize the verdict to undermine trust in the justice system.`\
 https://nytimes.com/2024/05/30/us/politics/trump-convicted-election-republicans.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/30/insider/popcast-deluxe-podcast.html
 **Here are the eight finalists.**\
 `By Emmett Lindner`\
 https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee/here-are-the-eight-finalists
-
-**Transcript of Trump Manhattan Trial, May 29, 2024**\
-`Update on May 30: New York State’s court released transcripts from each day of the Manhattan criminal trial of former President Donald J. Trump, who was convicted on 34 counts of falsifying business records to cover up a sex scandal that threatened to derail his 2016 presidential campaign.`\
-https://nytimes.com/interactive/2024/05/30/nyregion/trump-hush-money-trial-transcript-may-29.html
 
