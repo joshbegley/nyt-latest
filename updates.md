@@ -1,3 +1,7 @@
+**How Many Americans Will Rationalize Voting for a Felon?**\
+`Three Opinion writers on the Donald Trump hush-money verdict.`\
+https://nytimes.com/2024/05/31/opinion/donald-trump-guilty-jail-stormy-daniels.html
+
 **Five Years After Virginia Beach Shooting, ‘No One Is Getting Better’**\
 `The city will dedicate a memorial site on Friday. For some of the families who lost loved ones, the commemoration is a reminder of unanswered questions.`\
 https://nytimes.com/2024/05/31/us/virginia-beach-shooting-memorial.html

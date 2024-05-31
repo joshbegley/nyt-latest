@@ -1,3 +1,7 @@
+**How Many Americans Will Rationalize Voting for a Felon?**\
+`Three Opinion writers on the Donald Trump hush-money verdict.`\
+https://nytimes.com/2024/05/31/opinion/donald-trump-guilty-jail-stormy-daniels.html
+
 **Five Years After Virginia Beach Shooting, ‘No One Is Getting Better’**\
 `The city will dedicate a memorial site on Friday. For some of the families who lost loved ones, the commemoration is a reminder of unanswered questions.`\
 https://nytimes.com/2024/05/31/us/virginia-beach-shooting-memorial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/travel/wild-swimming-freshwater-california.html
 **Beguiling Photos That Lift the Curtain on North Korea**\
 `The photographer Tariq Zaidi captures everyday images of a hidden society at work and at play.`\
 https://nytimes.com/2024/05/31/books/review/north-korea-the-peoples-paradise-tariq-zaidi.html
-
-**Sports Gambling Is a Ticking Time Bomb**\
-`Betting puts pressure on pro athletes. The cracks are starting to show.`\
-https://nytimes.com/2024/05/31/opinion/sports-gambling-betting-athletes.html
 
