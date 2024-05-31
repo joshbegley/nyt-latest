@@ -1,3 +1,7 @@
+**What the Nation Needs to Hear from Trump (but Won’t)**\
+`Instead, he will probably ask his supporters to join him in outrage.`\
+https://nytimes.com/live/2024/05/28/opinion/thepoint/trump-remarks-verdict-guilty
+
 **Elon Musk Lobbies on X for His $46.5 Billion Tesla Pay Package**\
 `The Tesla chief executive is taking to his social media company to press shareholders to vote for a critical pay package on June 13.`\
 https://nytimes.com/2024/05/31/technology/elon-musk-x-tesla-pay.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/us/san-francisco-flag-alito.html
 **Institute of Contemporary Art, Los Angeles Plans an Upgrade**\
 `The downtown museum will purchase its building, incorporate artist residencies and add a cafe that will have a collaborative twist.`\
 https://nytimes.com/2024/05/31/arts/design/institute-of-contemporary-art-los-angeles-upgrade.html
-
-**‘Buy Now, Pay Later’ Borrowers Get More Safeguards With New Rule**\
-`Shoppers who use the popular installment loans will be guaranteed some of the same consumer protections that traditional credit cards provide.`\
-https://nytimes.com/2024/05/31/business/buy-now-pay-later-protections.html
 
