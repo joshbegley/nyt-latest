@@ -1,3 +1,7 @@
+**What we know about the latest Israeli cease-fire proposal.**\
+`By Jesus Jiménez and Aaron Boxerman`\
+https://nytimes.com/live/2024/05/31/world/israel-gaza-war-hamas-rafah/what-we-know-about-the-latest-israeli-cease-fire-proposal
+
 **Six of Trump’s Dumbest Trial Mistakes**\
 `The problem with having a volcanic egotist as a client.`\
 https://nytimes.com/live/2024/05/28/opinion/thepoint/trump-trial-mistakes
