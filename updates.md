@@ -1,3 +1,11 @@
+**Jac Venza, Who Delivered Culture to Public Television, Dies at 97**\
+`By making entertainment as well as education part of its mission, he gave the world “Masterpiece Theater,” “Great Performances” and other enduring programs.`\
+https://nytimes.com/2024/05/31/arts/television/jac-venza-dead.html
+
+**Netflix Wins $8.8 Million in Fight Over Planned TV Series**\
+`An arbitrator awarded Netflix damages from the Hollywood director Carl Erik Rinsch, who had been developing a high-profile TV series, “Conquest.”`\
+https://nytimes.com/2024/05/31/business/carl-rinsch-netflix.html
+
 **Trump’s Conviction Gives His Talkative Hometown Something New to Dispute**\
 `The day after Donald J. Trump became a felon, New Yorkers debated the meaning of the trial in buildings and neighborhoods where his family left its mark.`\
 https://nytimes.com/2024/05/31/nyregion/trump-verdict-nyc-reaction.html
