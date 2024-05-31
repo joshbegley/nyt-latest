@@ -1,3 +1,7 @@
+**Select All Images With Bicycles**\
+`Aiden Deshong captures our hearts with a lively yet accessible Friday puzzle.`\
+https://nytimes.com/2024/05/30/crosswords/daily-puzzle-2024-05-31.html
+
 **‘The Jury Has Spoken’: Manhattan D.A. Speaks After Trump Guilty Verdict**\
 `The district attorney, Alvin L. Bragg, became the first prosecutor to bring a criminal case against a United States president. On Thursday, he won.`\
 https://nytimes.com/2024/05/30/nyregion/alvin-bragg-trump-trial.html
@@ -7,7 +11,7 @@ https://nytimes.com/2024/05/30/nyregion/alvin-bragg-trump-trial.html
 https://nytimes.com/2024/05/30/nyregion/trump-trial-jury.html
 
 **Searching for Clues in the Polls About a Trump Conviction**\
-`He may not lose support at all, but he depends on the backing of many young and nonwhite voters who haven’t voted for him in the past and who might be likelier to leave his side.`\
+`He may not lose support at all, but recent backing from young and nonwhite voters might be likelier to fade.`\
 https://nytimes.com/2024/05/30/upshot/polling-trump-verdict-conviction.html
 
 **Ex-President, Felon and Candidate: 5 Takeaways From Trump’s Conviction**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/30/business/media/trump-verdict-media-coverage.html
 **Inside the Courthouse Where Trump Was Convicted**\
 `A special report.`\
 https://nytimes.com/2024/05/30/podcasts/inside-the-courtroom-where-trump-was-convicted.html
-
-**Trump’s Campaign Donor Website Crashes After Guilty Verdict**\
-`Mr. Trump began soliciting donations off his felony conviction almost immediately after the verdict.`\
-https://nytimes.com/2024/05/30/us/politics/trump-winred-crash-donations.html
 

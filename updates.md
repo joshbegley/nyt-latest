@@ -1,3 +1,11 @@
+**Select All Images With Bicycles**\
+`Aiden Deshong captures our hearts with a lively yet accessible Friday puzzle.`\
+https://nytimes.com/2024/05/30/crosswords/daily-puzzle-2024-05-31.html
+
+**Searching for Clues in the Polls About a Trump Conviction**\
+`He may not lose support at all, but recent backing from young and nonwhite voters might be likelier to fade.`\
+https://nytimes.com/2024/05/30/upshot/polling-trump-verdict-conviction.html
+
 **Searching for Clues in the Polls About a Trump Conviction**\
 `He may not lose support at all, but he depends on the backing of many young and nonwhite voters who haven’t voted for him in the past and who might be likelier to leave his side.`\
 https://nytimes.com/2024/05/30/upshot/polling-trump-verdict-conviction.html
