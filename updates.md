@@ -1,3 +1,19 @@
+**Hopeful Yet Cautious, Biden’s Team Aims to Exploit Trump’s Conviction**\
+`The verdict in Manhattan gave the president and his allies a new way to frame the race: a choice between someone who is a felon and someone who is not.`\
+https://nytimes.com/2024/05/30/us/politics/biden-trump-verdict.html
+
+**A Historic Verdict Made for Riveting TV. Then the Punditry Began.**\
+`Every major TV network broke in to daytime programming to present a rare moment of political and legal suspense.`\
+https://nytimes.com/2024/05/30/business/media/trump-verdict-media-coverage.html
+
+**Inside the Courtroom Where Trump Was Convicted**\
+`A special report.`\
+https://nytimes.com/2024/05/30/podcasts/inside-the-courtroom-where-trump-was-convicted.html
+
+**Trump’s Campaign Donor Website Crashes After Guilty Verdict**\
+`Mr. Trump began soliciting donations off his felony conviction almost immediately after the verdict`\
+https://nytimes.com/2024/05/30/us/politics/trump-winred-crash-donations.html
+
 **Trump’s campaign donor website crashes after guilty verdict.**\
 `Mr. Trump began soliciting donations off his felony conviction almost immediately after the verdict`\
 https://nytimes.com/2024/05/30/us/politics/trump-winred-crash-donations.html
