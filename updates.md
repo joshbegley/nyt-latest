@@ -1,3 +1,7 @@
+**Wait, We’ve Been Flying the Flag the Alitos Had? San Francisco Takes It Down.**\
+`Critics slammed Justice Samuel A. Alito Jr. after the “Appeal to Heaven” flag was flown outside his vacation home, but it had billowed in the heart of San Francisco for 60 years.`\
+https://nytimes.com/2024/05/31/us/san-francisco-flag-alito.html
+
 **Elon Musk Lobbies on X for His $46.5 Billion Tesla Pay Package**\
 `The Tesla chief executive is taking to his social media company to press shareholders to vote for a critical pay package on June 13.`\
 https://nytimes.com/2024/05/31/technology/elon-musk-x-tesla-pay.html
