@@ -1,3 +1,7 @@
+**Trump’s Conviction Binds the G.O.P. Even Closer to Him**\
+`Prominent Republicans, including congressional leaders, ex-rivals and potential running mates, basked in the energy, and fund-raising, of an outraged base.`\
+https://nytimes.com/2024/05/31/us/politics/trump-conviction-gop-reaction.html
+
 **Woman Sentenced to 14 Years in Death of Connecticut Mother Who Vanished**\
 `Michelle Troconis was convicted of several crimes in the killing of Jennifer Dulos, who disappeared five years ago and whose body has never been found.`\
 https://nytimes.com/2024/05/31/nyregion/michelle-troconis-murder-sentencing-connecticut.html
