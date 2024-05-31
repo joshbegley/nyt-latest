@@ -1,3 +1,7 @@
+**Six of Trump’s Dumbest Trial Mistakes**\
+`The problem with having a volcanic egotist as a client.`\
+https://nytimes.com/live/2024/05/28/opinion/thepoint/trump-trial-mistakes
+
 **After a Guilty Verdict, Trump Shifted to Campaign Mode**\
 `Also, Biden endorsed Israel’s cease-fire proposal. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/05/31/briefing/trump-verdict-response-biden-cease-fire.html

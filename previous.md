@@ -1,3 +1,7 @@
+**Six of Trump’s Dumbest Trial Mistakes**\
+`The problem with having a volcanic egotist as a client.`\
+https://nytimes.com/live/2024/05/28/opinion/thepoint/trump-trial-mistakes
+
 **After a Guilty Verdict, Trump Shifted to Campaign Mode**\
 `Also, Biden endorsed Israel’s cease-fire proposal. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/05/31/briefing/trump-verdict-response-biden-cease-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/05/31/nyregion/trump-news-guilty-verdict/partisans
 **Clarence Sasser, 76, Vietnam Medic Honored for Life-Saving Valor, Dies**\
 `A Medal of Honor recipient, he was repeatedly wounded in an ambush. Despite his injuries, he ran through gunfire and “swam” through mud to reach his comrades.`\
 https://nytimes.com/2024/05/31/us/clarence-sasser-dead.html
-
-**Extraordinary Circumstances, Ordinary Due Process**\
-`Donald Trump’s New York trial played out in the midst of a presidential campaign, but despite claims from him and his allies that the proceedings were rigged, he had all the rights of any defendant.`\
-https://nytimes.com/2024/05/31/us/politics/trump-trial-verdict-court.html
 
