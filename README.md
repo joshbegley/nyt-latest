@@ -7,7 +7,7 @@ https://nytimes.com/2024/05/30/nyregion/alvin-bragg-trump-trial.html
 https://nytimes.com/2024/05/30/nyregion/trump-trial-jury.html
 
 **Searching for Clues in the Polls About a Trump Conviction**\
-`He may not lose support at all, but he depends on the support of many young and nonwhite voters who haven’t voted for him in the past and who might be likelier to leave his side.`\
+`He may not lose support at all, but he depends on the backing of many young and nonwhite voters who haven’t voted for him in the past and who might be likelier to leave his side.`\
 https://nytimes.com/2024/05/30/upshot/polling-trump-verdict-conviction.html
 
 **Ex-President, Felon and Candidate: 5 Takeaways From Trump’s Conviction**\
