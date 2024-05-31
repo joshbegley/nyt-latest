@@ -10,7 +10,7 @@ https://nytimes.com/2024/05/30/nyregion/alvin-bragg-trump-trial.html
 `They heard weeks of testimony in Donald J. Trump’s criminal trial. Then the 12 New Yorkers who made up the jury stuck to the task at hand.`\
 https://nytimes.com/2024/05/30/nyregion/trump-trial-jury.html
 
-**Searching for Clues in the Polls About a Trump Conviction**\
+**Will It Matter? Searching for Clues in the Polls About a Trump Conviction.**\
 `He may not lose support at all, but recent backing from young and nonwhite voters might be likelier to fade.`\
 https://nytimes.com/2024/05/30/upshot/polling-trump-verdict-conviction.html
 
