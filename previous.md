@@ -1,3 +1,7 @@
+**Watch an Ambush at the Bullet Farm in ‘Furiosa’**\
+`The director George Miller narrates a sequence from his film, featuring Anya Taylor-Joy and Tom Burke.`\
+https://nytimes.com/2024/05/31/movies/furiosa-clip.html
+
 **‘Furiosa’ | Anatomy of a Scene**\
 `The director George Miller narrates a sequence from his film featuring Anya Taylor-Joy and Tom Burke.`\
 https://nytimes.com/video/movies/100000009497568/furiosa-scene.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/business/economy/alzheimers-disease-personal-fina
 **Scientists Find the Largest Known Genome Inside a Small Plant**\
 `A fern from a Pacific island carries 50 times as much DNA as humans do.`\
 https://nytimes.com/2024/05/31/science/largest-genome-fern-plant.html
-
-**My Simplest Grilled Salmon, a Summertime Staple**\
-`With orzo salad and a heavy pitcher of lemonade, that’s dinner tonight. Tomorrow’s breakfast: Jordan Marsh’s blueberry muffins.`\
-https://nytimes.com/2024/05/31/dining/my-simplest-grilled-salmon-a-summertime-staple.html
 

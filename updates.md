@@ -1,3 +1,7 @@
+**Watch an Ambush at the Bullet Farm in ‘Furiosa’**\
+`The director George Miller narrates a sequence from his film, featuring Anya Taylor-Joy and Tom Burke.`\
+https://nytimes.com/2024/05/31/movies/furiosa-clip.html
+
 **‘Furiosa’ | Anatomy of a Scene**\
 `The director George Miller narrates a sequence from his film featuring Anya Taylor-Joy and Tom Burke.`\
 https://nytimes.com/video/movies/100000009497568/furiosa-scene.html
