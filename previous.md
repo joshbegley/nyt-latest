@@ -1,3 +1,7 @@
+**On the Brazilian Coast, a Tropical Town Beloved by Artists and Makers**\
+`A guide to Paraty, on the Costa Verde, with tips on where to stay, shop and island hop from the artist Vik Muniz and four other insiders.`\
+https://nytimes.com/2024/05/31/t-magazine/paraty-brazil-travel-guide.html
+
 **Revisiting the Women Who Defined Lilith Fair’s Sound**\
 `Hear songs by Sarah McLachlan, Tracy Chapman, Meredith Brooks and more.`\
 https://nytimes.com/2024/05/31/arts/music/amplifier-newsletter-lilith-fair.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/05/31/business/elon-musk-artificial-intelli
 **F.D.A.’s Review of MDMA Cites Health Risks and Study Flaws**\
 `The agency’s staff analysis suggests that approval of the illegal drug known as Ecstasy for treatment of PTSD is far from certain, with advisers meeting next week to consider the proposed therapy.`\
 https://nytimes.com/2024/05/31/health/mdma-fda-ptsd-treatment.html
-
-**How Partisan Media Outlets Covered Trump’s Guilty Verdict**\
-`Conservative outlets blasted former President Donald J. Trump’s criminal conviction as a sham, while liberal outlets divided on the import.`\
-https://nytimes.com/2024/05/31/business/media/trump-verdict-media-coverage.html
 

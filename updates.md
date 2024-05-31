@@ -1,3 +1,7 @@
+**On the Brazilian Coast, a Tropical Town Beloved by Artists and Makers**\
+`A guide to Paraty, on the Costa Verde, with tips on where to stay, shop and island hop from the artist Vik Muniz and four other insiders.`\
+https://nytimes.com/2024/05/31/t-magazine/paraty-brazil-travel-guide.html
+
 **Revisiting the Women Who Defined Lilith Fair’s Sound**\
 `Hear songs by Sarah McLachlan, Tracy Chapman, Meredith Brooks and more.`\
 https://nytimes.com/2024/05/31/arts/music/amplifier-newsletter-lilith-fair.html
