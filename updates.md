@@ -1,3 +1,7 @@
+**Eminem Loses the Magic, and 10 More New Songs**\
+`Hear tracks by Clairo, Nathy Peluso, Nick Cave & the Bad Seeds and others.`\
+https://nytimes.com/2024/05/31/arts/music/playlist-eminem-clairo-shaboozey.html
+
 **The End of a Maestro’s Era Approaches at the Philharmonic**\
 `Jaap van Zweden returned to the New York Philharmonic to lead some of his final programs as the orchestra’s music director.`\
 https://nytimes.com/2024/05/31/arts/music/jaap-van-zweden-ny-philharmonic.html

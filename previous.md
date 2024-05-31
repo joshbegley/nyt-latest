@@ -1,3 +1,7 @@
+**Eminem Loses the Magic, and 10 More New Songs**\
+`Hear tracks by Clairo, Nathy Peluso, Nick Cave & the Bad Seeds and others.`\
+https://nytimes.com/2024/05/31/arts/music/playlist-eminem-clairo-shaboozey.html
+
 **The End of a Maestro’s Era Approaches at the Philharmonic**\
 `Jaap van Zweden returned to the New York Philharmonic to lead some of his final programs as the orchestra’s music director.`\
 https://nytimes.com/2024/05/31/arts/music/jaap-van-zweden-ny-philharmonic.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/climate/electricity-from-coal-is-pricey-should-co
 **Why Trump Couldn’t Pardon Himself in Hush-Money Case if Re-Elected**\
 `Donald J. Trump is now a felon in New York State, and presidential pardon power does not extend to state cases.`\
 https://nytimes.com/2024/05/31/nyregion/donald-trump-pardon-himself.html
-
-**Why Greece Is Betting Big on American Gas**\
-`Even as it pivots to solar and wind for itself, Greece aims to become a natural gas supplier across Europe. Among its strongest backers is the United States.`\
-https://nytimes.com/2024/05/31/climate/greece-europe-natural-gas-lng.html
 
