@@ -1,3 +1,11 @@
+**What Is Fair Housing?**\
+`There are laws to protect people from discrimination in buying, renting and living in their homes.`\
+https://nytimes.com/2024/05/31/realestate/what-is-fair-housing.html
+
+**As U.S. Shifts Policy on Striking Into Russia, Kharkiv Is Hit Again**\
+`After weeks of entreaties, Ukraine won permission to hit targets inside Russia with American-made weapons, a tactic that it says will help it defend territory in the northeast.`\
+https://nytimes.com/2024/05/31/world/europe/us-ukraine-kharkiv.html
+
 **Donald Trump to Speak on Friday in Wake of His Conviction**\
 `America for the first time has a former president who is a felon, and he’s running for the White House again.`\
 https://nytimes.com/2024/05/31/nyregion/trump-speech-verdict-conviction.html
