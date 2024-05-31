@@ -1,3 +1,7 @@
+**Elon Musk Lobbies on X for His $46.5 Billion Tesla Pay Package**\
+`The Tesla chief executive is taking to his social media company to press shareholders to vote for a critical pay package on June 13.`\
+https://nytimes.com/2024/05/31/technology/elon-musk-x-tesla-pay.html
+
 **At a Moment of National Trauma, Biden Feels Compelled to Stay on the Sidelines**\
 `While presidents typically play a pastoral role after court cases that tear at the national fabric, the incumbent was effectively conflicted out.`\
 https://nytimes.com/2024/05/31/us/politics/biden-trump-guilty-verdict.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/business/buy-now-pay-later-protections.html
 **Institute of Contemporary Art, Los Angeles Plans an Upgrade**\
 `The downtown museum will purchase its building, incorporate artist residencies and add a cafe that will have a collaborative twist.`\
 https://nytimes.com/2024/05/31/arts/design/institute-of-contemporary-art-los-angeles-upgrade.html
-
-**Fixing Social Security Is an Election Issue Nobody Talks About**\
-`A small tax increase would make the essential national retirement program secure for decades, our columnist says, but lawmakers would have to take action.`\
-https://nytimes.com/2024/05/31/business/social-security-election-trust-funds.html
 
