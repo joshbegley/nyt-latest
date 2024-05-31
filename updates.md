@@ -1,3 +1,7 @@
+**Inflation Remains Steady, With Signs of Further Cooling**\
+`The Federal Reserve has been waiting for firmer evidence that rapid price increases are behind it.`\
+https://nytimes.com/2024/05/31/business/inflation-pce-federal-reserve.html
+
 **At a Moment of National Trauma, Biden Feels Compelled to Stay on the Sidelines**\
 `While presidents typically play a pastoral role after court cases that tear at the national fabric, the incumbent was effectively conflicted out.`\
 https://nytimes.com/2024/05/31/us/politics/biden-trump-guilty-verdict.html
