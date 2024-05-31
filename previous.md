@@ -1,3 +1,11 @@
+**Nora Cortiñas, 94, a Founder of Argentina’s Mothers of the ‘Disappeared,’ Dies**\
+`Ms. Cortiñas became a key member of a group of women whose children had been taken by the military dictatorship that led Argentina from 1976 to 1983.`\
+https://nytimes.com/2024/05/31/world/americas/nora-cortinas-dead.html
+
+**A Wisconsin voter pauses on the idea of voting for a felon. But just for a moment.**\
+`The New York Times is interviewing people across multiple swing states.`\
+https://nytimes.com/live/2024/05/31/nyregion/trump-news-guilty-verdict/a-wisconsin-voter-pauses-on-the-idea-of-voting-for-a-felon-but-just-for-a-moment
+
 **What’s the Best Advice You’ve Received About Fatherhood?**\
 `With Father’s Day around the corner, we’re looking for tips you’d like to pass on.`\
 https://nytimes.com/2024/05/31/well/family/advice-for-dads-callout.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/31/magazine/judge-john-hodgman-on-compulsory-game-ni
 **Biden Reacts to Trump’s Guilty Verdict**\
 `President Biden said the verdict in Donald J. Trump’s trial reaffirmed “the American principle that no one is above the law,” and he criticized the former president and his allies for their complaints about the outcome.`\
 https://nytimes.com/video/us/politics/100000009498697/biden-trump-verdict.html
-
-**After the Trump Verdict, the TikTok Trial Began**\
-`Late into Thursday night, social media users debated the outcome of Donald J. Trump’s hush-money trial. Even Michael Cohen got in on the action.`\
-https://nytimes.com/2024/05/31/style/trump-verdict-tiktok-cohen.html
-
-**Woman Sentenced to 14 Years in Death of Connecticut Mother Who Vanished**\
-`Michelle Troconis was convicted of several crimes in the killing of Jennifer Dulos, who disappeared five years ago and whose body has never been found.`\
-https://nytimes.com/2024/05/31/nyregion/michelle-troconis-murder-sentencing-connecticut.html
 

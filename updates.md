@@ -1,3 +1,11 @@
+**Nora Cortiñas, 94, a Founder of Argentina’s Mothers of the ‘Disappeared,’ Dies**\
+`Ms. Cortiñas became a key member of a group of women whose children had been taken by the military dictatorship that led Argentina from 1976 to 1983.`\
+https://nytimes.com/2024/05/31/world/americas/nora-cortinas-dead.html
+
+**A Wisconsin voter pauses on the idea of voting for a felon. But just for a moment.**\
+`The New York Times is interviewing people across multiple swing states.`\
+https://nytimes.com/live/2024/05/31/nyregion/trump-news-guilty-verdict/a-wisconsin-voter-pauses-on-the-idea-of-voting-for-a-felon-but-just-for-a-moment
+
 **What’s the Best Advice You’ve Received About Fatherhood?**\
 `With Father’s Day around the corner, we’re looking for tips you’d like to pass on.`\
 https://nytimes.com/2024/05/31/well/family/advice-for-dads-callout.html
