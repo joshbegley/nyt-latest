@@ -1,3 +1,7 @@
+**The world’s news media plays the Trump case prominently — though not everywhere.**\
+`Pretty extensively.`\
+https://nytimes.com/live/2024/05/31/nyregion/trump-news-trial-guilty/the-worlds-news-media-plays-the-trump-case-prominently-though-not-everywhere
+
 **Trump Media Stock Falls After Guilty Verdict**\
 `Shares of the Truth Social parent began to slip immediately after former President Donald Trump, the company’s largest investor, was convicted in his hush-money trial.`\
 https://nytimes.com/2024/05/31/business/trump-media-stock-falls-after-guilty-verdict.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/crosswords/wordle-review-1078.html
 **A Matter of Survival as South Asia’s Heat Wave Reaches 127 Degrees**\
 `Pakistan and India are sweltering. For laborers, not working because of the extreme temperatures can mean not eating.`\
 https://nytimes.com/2024/05/31/world/asia/pakistan-india-heat-wave.html
-
-**Inflation Ticks Up in the Eurozone**\
-`Consumer prices rose 2.6 percent in the year through May, slightly higher than expected. Still, the European Central Bank seems prepared to cut interest rates next week.`\
-https://nytimes.com/2024/05/31/business/eurozone-inflation-may.html
 
