@@ -1,3 +1,11 @@
+**Congressional Leaders, Divided Over War, Invite Netanyahu to Deliver Joint Address**\
+`The bipartisan invitation masked political divisions over the prime minister’s handling of the war against Hamas, including the recent attacks he has orchestrated in Rafah.`\
+https://nytimes.com/2024/05/31/us/politics/israel-netanyahu-congress.html
+
+**Retired Navy Admiral Is Arrested on Bribery Charges**\
+`Federal prosecutors said that Robert P. Burke, who was the Navy’s second-highest-ranking officer, had steered a government contract to a company in exchange for a job at the firm.`\
+https://nytimes.com/2024/05/31/us/navy-admiral-arrested-bribery-scheme.html
+
 **What we know about the latest Israeli cease-fire proposal.**\
 `By Jesus Jiménez and Aaron Boxerman`\
 https://nytimes.com/live/2024/05/31/world/israel-gaza-war-hamas-rafah/what-we-know-about-the-latest-israeli-cease-fire-proposal

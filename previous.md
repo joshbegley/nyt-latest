@@ -1,3 +1,11 @@
+**Congressional Leaders, Divided Over War, Invite Netanyahu to Deliver Joint Address**\
+`The bipartisan invitation masked political divisions over the prime minister’s handling of the war against Hamas, including the recent attacks he has orchestrated in Rafah.`\
+https://nytimes.com/2024/05/31/us/politics/israel-netanyahu-congress.html
+
+**Retired Navy Admiral Is Arrested on Bribery Charges**\
+`Federal prosecutors said that Robert P. Burke, who was the Navy’s second-highest-ranking officer, had steered a government contract to a company in exchange for a job at the firm.`\
+https://nytimes.com/2024/05/31/us/navy-admiral-arrested-bribery-scheme.html
+
 **What we know about the latest Israeli cease-fire proposal.**\
 `By Jesus Jiménez and Aaron Boxerman`\
 https://nytimes.com/live/2024/05/31/world/israel-gaza-war-hamas-rafah/what-we-know-about-the-latest-israeli-cease-fire-proposal
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/05/31/nyregion/trump-news-guilty-verdict/a-wiscons
 **What’s the Best Advice You’ve Received About Fatherhood?**\
 `With Father’s Day around the corner, we’re looking for tips you’d like to pass on.`\
 https://nytimes.com/2024/05/31/well/family/advice-for-dads-callout.html
-
-**I Was Skeptical of the ‘Zombie’ Trump Case. I Stand Corrected.**\
-`The prosecutors convinced me — as they clearly and overwhelmingly convinced the jury.`\
-https://nytimes.com/2024/05/31/opinion/trump-trial-defense.html
-
-**Partisanship largely prevails in Arizona suburbs after verdict.**\
-`The New York Times is interviewing people across the swing states in the aftermath of the conviction of former President Donald J. Trump.`\
-https://nytimes.com/live/2024/05/31/nyregion/trump-news-guilty-verdict/partisanship-largely-prevails-in-arizona-suburbs-after-verdict
 
