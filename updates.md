@@ -1,3 +1,7 @@
+**Trump’s Campaign Donor Website Crashes After Guilty Verdict**\
+`Mr. Trump began soliciting donations off his felony conviction almost immediately after the verdict.`\
+https://nytimes.com/2024/05/30/us/politics/trump-winred-crash-donations.html
+
 **Robert F. Kennedy Jr., Echoing Trump, Calls Manhattan Case Politically Motivated**\
 `The independent presidential candidate said he believed Mr. Trump’s conviction would only help the former president at the ballot box.`\
 https://nytimes.com/2024/05/30/nyregion/robert-f-kennedy-jr-trump-conviction.html
