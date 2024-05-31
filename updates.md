@@ -1,3 +1,7 @@
+**Trump Media Stock Swings After Guilty Verdict**\
+`Shares of the Truth Social parent slipped immediately after former President Donald Trump, the company’s largest investor, was convicted in his hush-money trial, before mounting a comeback.`\
+https://nytimes.com/2024/05/31/business/trump-media-stock-falls-after-guilty-verdict.html
+
 **The world’s news media plays the Trump case prominently — though not everywhere.**\
 `Pretty extensively.`\
 https://nytimes.com/live/2024/05/31/nyregion/trump-news-trial-guilty/the-worlds-news-media-plays-the-trump-case-prominently-though-not-everywhere
