@@ -1,3 +1,15 @@
+**Woman Sentenced to 14 Years in Death of Connecticut Mother Who Vanished**\
+`Michelle Troconis was convicted of several crimes in the killing of Jennifer Dulos, who disappeared five years ago and whose body has never been found.`\
+https://nytimes.com/2024/05/31/nyregion/michelle-troconis-murder-sentencing-connecticut.html
+
+**In Philadelphia, reaction to the verdict ranges from elation to frustration.**\
+`By Maya King`\
+https://nytimes.com/live/2024/05/31/nyregion/trump-news-guilty-verdict/in-philadelphia-reaction-to-the-verdict-ranges-from-elation-to-frustration
+
+**Trump’s Conviction Brings Him Into a ‘New World’**\
+`Donald J. Trump’s historic felony convictions may not alter the presidential race right now, but they have punctured his sense of invincibility in a courtroom, The New York Times’s Maggie Haberman explains.`\
+https://nytimes.com/video/us/politics/100000009497555/trumps-conviction-brings-him-into-a-new-world.html
+
 **Trump’s Conviction Fuses the G.O.P. Even Closer to Him**\
 `Prominent Republicans, including congressional leaders, ex-rivals and potential running mates, basked in the energy, and fund-raising, of an outraged base.`\
 https://nytimes.com/2024/05/31/us/politics/trump-conviction-gop-reaction.html
