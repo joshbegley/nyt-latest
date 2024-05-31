@@ -1,3 +1,7 @@
+**Johnson says the Supreme Court should step in to overturn Trump’s conviction.**\
+`By Luke Broadwater`\
+https://nytimes.com/live/2024/05/31/nyregion/trump-news-guilty-verdict/johnson-says-the-supreme-court-should-step-in-to-overturn-trumps-conviction
+
 **On the Brazilian Coast, a Tropical Town Beloved by Artists and Makers**\
 `A guide to Paraty, on the Costa Verde, with tips on where to stay, shop and island hop from the artist Vik Muniz and four other insiders.`\
 https://nytimes.com/2024/05/31/t-magazine/paraty-brazil-travel-guide.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/business/media/cnn-nbc-trump-speech.html
 **The Big Number: $6 Billion**\
 `Elon Musk’s artificial intelligence company, xAI, announced last Sunday that it had raised $6 billion, which would go toward developing new products and research and development efforts.`\
 https://nytimes.com/interactive/2024/05/31/business/elon-musk-artificial-intelligence.html
-
-**F.D.A.’s Review of MDMA Cites Health Risks and Study Flaws**\
-`The agency’s staff analysis suggests that approval of the illegal drug known as Ecstasy for treatment of PTSD is far from certain, with advisers meeting next week to consider the proposed therapy.`\
-https://nytimes.com/2024/05/31/health/mdma-fda-ptsd-treatment.html
 
