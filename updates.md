@@ -1,3 +1,7 @@
+**Trump Rails Against His Guilty Verdict, Claiming ‘Sick People’ Are Behind His Prosecution**\
+`The day after Donald J. Trump was convicted by a Manhattan jury, the former president stood inside Trump Tower on Friday and made a series of misleading statements about his trial.`\
+https://nytimes.com/2024/05/31/us/politics/trump-speech-guilty-verdict.html
+
 **Trump Is ‘Honored’ by a Verdict That Should Shame Him**\
 `A better human being might have expressed some remorse.`\
 https://nytimes.com/2024/05/28/opinion/trump-speech-verdict.html

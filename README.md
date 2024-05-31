@@ -1,3 +1,15 @@
+**Revisiting the Women Who Defined Lilith Fair’s Sound**\
+`Hear songs by Sarah McLachlan, Tracy Chapman, Meredith Brooks and more.`\
+https://nytimes.com/2024/05/31/arts/music/amplifier-newsletter-lilith-fair.html
+
+**‘It’s time for this war to end’ in Gaza, Biden says.**\
+`By Zolan Kanno-Youngs`\
+https://nytimes.com/live/2024/05/31/world/israel-gaza-war-hamas-rafah/biden-says-of-its-time-for-this-war-to-end-in-gaza
+
+**Trump Says He Will Appeal, Setting Off a Long Legal Journey**\
+`New York’s appellate system could take years to dispose of the case. The speaker of the House said the Supreme Court should intercede.`\
+https://nytimes.com/2024/05/31/nyregion/trump-trial-appeal.html
+
 **Trump Rails Against His Guilty Verdict, Claiming ‘Sick People’ Are Behind His Prosecution**\
 `The day after Donald J. Trump was convicted by a Manhattan jury, the former president stood inside Trump Tower on Friday and made a series of misleading statements about his trial.`\
 https://nytimes.com/2024/05/31/us/politics/trump-speech-guilty-verdict.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/31/health/mdma-fda-ptsd-treatment.html
 **How Partisan Media Outlets Covered Trump’s Guilty Verdict**\
 `Conservative outlets blasted former President Donald J. Trump’s criminal conviction as a sham, while liberal outlets divided on the import.`\
 https://nytimes.com/2024/05/31/business/media/trump-verdict-media-coverage.html
-
-**Doug Ingle, the Voice of Iron Butterfly, Is Dead at 78**\
-`His biggest hit, “In-A-Gadda-Da-Vida,” was a 17-minute psychedelic journey that epitomized 1960s rock indulgence. But after just a few years in the limelight, he walked away.`\
-https://nytimes.com/2024/05/31/arts/music/doug-ingle-dead.html
-
-**Learn to Make the Juiciest Steak With This Hot Restaurant Trick**\
-`Basting your steaks with butter is the secret to perfectly cooked meat at home.`\
-https://nytimes.com/2024/05/31/dining/how-to-cook-steak.html
-
-**Manchin Becomes an Independent, Leaving Options Open for Another Run**\
-`The party switch was the culmination of a long breakup with the Democratic Party by the conservative senator from West Virginia.`\
-https://nytimes.com/2024/05/31/us/politics/joe-manchin-independent.html
 
