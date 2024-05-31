@@ -1,3 +1,7 @@
+**Jac Venza, Who Delivered Culture to Public Television, Dies at 97**\
+`By making entertainment as well as education part of its mission, he gave the world “American Masters,” “Great Performances” and other enduring programs.`\
+https://nytimes.com/2024/05/31/arts/television/jac-venza-dead.html
+
 **Trump’s Conviction Binds the G.O.P. Even Closer to Him**\
 `Prominent Republicans, including congressional leaders, ex-rivals and potential running mates, basked in the energy, and fund-raising, of an outraged base.`\
 https://nytimes.com/2024/05/31/us/politics/trump-conviction-gop-reaction.html
