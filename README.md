@@ -1,5 +1,5 @@
 **Select All Images With Bicycles**\
-`Aiden Deshong captures our hearts with a lively yet accessible Friday puzzle.`\
+`Aidan Deshong captures our hearts with a lively yet accessible Friday puzzle.`\
 https://nytimes.com/2024/05/30/crosswords/daily-puzzle-2024-05-31.html
 
 **‘The Jury Has Spoken’: Manhattan D.A. Speaks After Trump Guilty Verdict**\
