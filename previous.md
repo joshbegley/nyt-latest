@@ -1,4 +1,4 @@
-**Trump is ‘Honored’ by a Verdict That Should Have Shamed Him**\
+**Trump Is ‘Honored’ by a Verdict That Should Shame Him**\
 `A better human being might have expressed some remorse.`\
 https://nytimes.com/2024/05/28/opinion/trump-speech-verdict.html
 
