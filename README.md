@@ -1,3 +1,7 @@
+**On Live TV, a Historic Verdict Felt Both Enormous and Small**\
+`Donald Trump’s convictions made for a stunning moment of history, followed by hours of politics talk.`\
+https://nytimes.com/2024/05/31/arts/television/trump-trial-tv.html
+
 **Eminem Loses the Magic, and 10 More New Songs**\
 `Hear tracks by Clairo, Nathy Peluso, Nick Cave & the Bad Seeds and others.`\
 https://nytimes.com/2024/05/31/arts/music/playlist-eminem-clairo-shaboozey.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/obituaries/hansa-mehta-overlooked.html
 **Electricity From Coal Is Pricey. Should Consumers Have to Pay?**\
 `Environmental groups are making a new economic argument against coal, the heaviest polluting fossil fuel. Some regulators are listening.`\
 https://nytimes.com/2024/05/31/climate/electricity-from-coal-is-pricey-should-consumers-have-to-pay.html
-
-**Why Trump Couldn’t Pardon Himself in Hush-Money Case if Re-Elected**\
-`Donald J. Trump is now a felon in New York State, and presidential pardon power does not extend to state cases.`\
-https://nytimes.com/2024/05/31/nyregion/donald-trump-pardon-himself.html
 
