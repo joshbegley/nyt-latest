@@ -1,3 +1,19 @@
+**Alzheimer’s Takes a Financial Toll Long Before Diagnosis, Study Finds**\
+`New research shows that people who develop dementia often begin falling behind on bills years earlier.`\
+https://nytimes.com/2024/05/31/business/economy/alzheimers-disease-personal-finance.html
+
+**Scientists Find the Largest Known Genome Inside a Small Plant**\
+`A fern from a Pacific island carries 50 times as much DNA as humans do.`\
+https://nytimes.com/2024/05/31/science/largest-genome-fern-plant.html
+
+**My Simplest Grilled Salmon, a Summertime Staple**\
+`With orzo salad and a heavy pitcher of lemonade, that’s dinner tonight. Tomorrow’s breakfast: Jordan Marsh’s blueberry muffins.`\
+https://nytimes.com/2024/05/31/dining/my-simplest-grilled-salmon-a-summertime-staple.html
+
+**Overlooked No More: Hansa Mehta, Who Fought for Women’s Equality in India and Beyond**\
+`For Mehta, women’s rights were human rights, and in all her endeavors she took women’s participation in public and political realms to new heights.`\
+https://nytimes.com/2024/05/31/obituaries/hansa-mehta-overlooked.html
+
 **Electricity From Coal Is Pricey. Should Consumers Have to Pay?**\
 `Environmental groups are making a new economic argument against coal, the heaviest polluting fossil fuel. Some regulators are listening.`\
 https://nytimes.com/2024/05/31/climate/electricity-from-coal-is-pricey-should-consumers-have-to-pay.html
