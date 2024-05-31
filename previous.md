@@ -1,3 +1,11 @@
+**Guilty**\
+`Donald J. Trump was convicted on all 34 counts in Manhattan. This is what it was like inside the courtroom.`\
+https://nytimes.com/2024/05/31/podcasts/the-daily/trump-guilty.html
+
+**Trump Rails Against Felony Conviction, and U.S. Shifts Ukraine Policy**\
+`Plus, a nail-biting Spelling Bee final.`\
+https://nytimes.com/2024/05/31/podcasts/trump-verdict-us-ukraine.html
+
 **The Connections Companion No. 356, June 1, 2024**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/05/31/crosswords/connections-companion-356.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/31/opinion/trump-trial-verdict.html
 **The New ChatGPT Offers a Lesson in A.I. Hype**\
 `OpenAI released GPT-4o, its latest chatbot technology, in a partly finished state. It has much to prove.`\
 https://nytimes.com/2024/05/31/technology/personaltech/chatgpt-4o-openai-review.html
-
-**Where Zendaya and Kate Moss Go for a Dose of Ibiza Style**\
-`The actress and the supermodel are among the A-listers who have gravitated to the glamorous aesthetic of the merchant-turned-designer Annie Doble.`\
-https://nytimes.com/2024/05/31/fashion/zendaya-kate-moss-annies-ibiza.html
-
-**How to ‘Gray Rock’ Conversations With Difficult People**\
-`Some say that becoming as dull as a rock is an effective way to disengage.`\
-https://nytimes.com/2024/05/31/well/mind/gray-rock-method.html
 

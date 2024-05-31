@@ -1,3 +1,11 @@
+**Guilty**\
+`Donald J. Trump was convicted on all 34 counts in Manhattan. This is what it was like inside the courtroom.`\
+https://nytimes.com/2024/05/31/podcasts/the-daily/trump-guilty.html
+
+**Trump Rails Against Felony Conviction, and U.S. Shifts Ukraine Policy**\
+`Plus, a nail-biting Spelling Bee final.`\
+https://nytimes.com/2024/05/31/podcasts/trump-verdict-us-ukraine.html
+
 **The Connections Companion No. 356, June 1, 2024**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/05/31/crosswords/connections-companion-356.html
