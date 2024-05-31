@@ -1,3 +1,15 @@
+**The Connections Companion No. 356, June 1, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/31/crosswords/connections-companion-356.html
+
+**Wordle Review No. 1,078, June 1, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/05/31/crosswords/wordle-review-1078.html
+
+**A Matter of Survival as South Asia’s Heat Wave Reaches 127 Degrees**\
+`Pakistan and India are sweltering. For the many laborers who can’t afford to miss a day’s pay, “It’s a choice between working and collapsing from the heat.”`\
+https://nytimes.com/2024/05/31/world/asia/pakistan-india-heat-wave.html
+
 **Inflation Ticks Up in the Eurozone**\
 `Consumer prices rose 2.6 percent in the year through May, slightly higher than expected. Still, the European Central Bank seems prepared to cut interest rates next week.`\
 https://nytimes.com/2024/05/31/business/eurozone-inflation-may.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/31/fashion/zendaya-kate-moss-annies-ibiza.html
 **How to ‘Gray Rock’ Conversations With Difficult People**\
 `Some say that becoming as dull as a rock is an effective way to disengage.`\
 https://nytimes.com/2024/05/31/well/mind/gray-rock-method.html
-
-**How I Learned to Stop Worrying and Love the Prom**\
-`Even with all the text chains and drama.`\
-https://nytimes.com/2024/05/31/style/managing-daughter-prom.html
-
-**$2 Million Homes in Buenos Aires**\
-`A three-bedroom apartment in a modern tower, a duplex with a rooftop soccer pitch, and an 1898 mansion configured as a hotel.`\
-https://nytimes.com/2024/05/31/realestate/2-million-homes-in-buenos-aires.html
-
-**6 Wild Swimming Spots in California, Beyond the Coast**\
-`The beach may beckon, but these freshwater swimming holes and hot springs show another side of the state: Granite canyons, emerald pools and ancient redwood groves.`\
-https://nytimes.com/2024/05/31/travel/wild-swimming-freshwater-california.html
 
