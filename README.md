@@ -1,3 +1,15 @@
+**Trump is ‘Honored’ by a Verdict That Should Have Shamed Him**\
+`A better human being might have expressed some remorse.`\
+https://nytimes.com/2024/05/28/opinion/trump-speech-verdict.html
+
+**Whirlwind Romances Are Not Reserved for Thin Women**\
+`An article skeptical of the central love connection in the new season of “Bridgerton” has fans rushing to contest the idea that catching a gentleman’s eye is a size-restricted pursuit.`\
+https://nytimes.com/2024/05/31/style/bridgerton-nicola-coughlan-fatphobia.html
+
+**News Organizations Cut Away From Trump’s Misleading Speech**\
+`It was the latest example of journalists having to weigh the news value of a major political moment against the challenges of reporting on a candidate who regularly speaks in falsehoods.`\
+https://nytimes.com/2024/05/31/business/media/cnn-nbc-trump-speech.html
+
 **The Big Number: $6 Billion**\
 `Elon Musk’s artificial intelligence company, xAI, announced last Sunday that it had raised $6 billion, which would go toward developing new products and research and development efforts.`\
 https://nytimes.com/interactive/2024/05/31/business/elon-musk-artificial-intelligence.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/31/us/politics/joe-manchin-independent.html
 **Palestinian residents returning to Jabaliya in northern Gaza find wide devastation.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/05/31/world/israel-gaza-war-hamas-rafah/palestinian-residents-returning-to-jabaliya-in-northern-gaza-find-wide-devastation
-
-**Watch an Ambush at the Bullet Farm in ‘Furiosa’**\
-`The director George Miller narrates a sequence from his film, featuring Anya Taylor-Joy and Tom Burke.`\
-https://nytimes.com/2024/05/31/movies/furiosa-clip.html
-
-**‘Furiosa’ | Anatomy of a Scene**\
-`The director George Miller narrates a sequence from his film featuring Anya Taylor-Joy and Tom Burke.`\
-https://nytimes.com/video/movies/100000009497568/furiosa-scene.html
-
-**California Man Accused in Slingshot Vandalism Dies at 81**\
-`Prince King, who was arrested last week, had faced five felony vandalism charges in Azusa, Calif.`\
-https://nytimes.com/2024/05/31/us/serial-slingshot-shooter-dead.html
 
