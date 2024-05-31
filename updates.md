@@ -1,3 +1,7 @@
+**Elon Musk Lobbies on X for His $46.5 Billion Tesla Pay Package**\
+`The Tesla chief executive is taking to his social media company to press shareholders to vote for a critical pay package on June 13.`\
+https://nytimes.com/2024/05/31/technology/elon-musk-x-tesla-pay.html
+
 **Inflation Remains Steady, With Signs of Further Cooling**\
 `The Federal Reserve has been waiting for firmer evidence that rapid price increases are behind it.`\
 https://nytimes.com/2024/05/31/business/inflation-pce-federal-reserve.html
