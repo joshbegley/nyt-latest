@@ -1,3 +1,7 @@
+**After a Guilty Verdict, Trump Shifted to Campaign Mode**\
+`Also, Biden endorsed Israel’s cease-fire proposal. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/05/31/briefing/trump-verdict-response-biden-cease-fire.html
+
 **Trump’s Conviction Renews Push to Strip His Name From a New York Park**\
 `Legislative efforts to rename Donald J. Trump State Park in northern Westchester County have failed so far, but some lawmakers want to try again.`\
 https://nytimes.com/2024/05/31/nyregion/trump-park-taconic-ny.html
