@@ -1,3 +1,7 @@
+**Here are a few key moments, and words, from this year’s Scripps spelling bee.**\
+`Desmotrope and apophasis were among the onerous terms that dashed dreams of a championship win.`\
+https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee/here-are-a-few-key-moments-and-words-from-this-years-scripps-spelling-bee
+
 **Two Killed in Shooting in Minneapolis**\
 `Two police officers were also injured after a person opened fire south of downtown on Thursday, the authorities said.`\
 https://nytimes.com/2024/05/30/us/minneapolis-shooting-officers-injured.html
