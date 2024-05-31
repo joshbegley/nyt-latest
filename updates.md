@@ -1,3 +1,7 @@
+**Deepfake of U.S. Official Appears After Shift on Ukraine Attacks in Russia**\
+`A manufactured video fabricated comments by the State Department spokesman, Matthew Miller.`\
+https://nytimes.com/2024/05/31/us/politics/deepfake-us-official-russia.html
+
 **Donald Trump Was Convicted Here? Who Knew?**\
 `On Friday, the Manhattan Criminal Courthouse swiftly returned to processing mundane mayhem after weeks of intensity and chaos from former President Donald J. Trump’s trial.`\
 https://nytimes.com/2024/05/31/nyregion/trump-manhattan-courthouse.html
