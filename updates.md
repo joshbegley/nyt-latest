@@ -1,3 +1,7 @@
+**‘Doctor Who’ Episode 5 Recap: Bursting the Bubble**\
+`The Doctor saves a rich wannabe vlogger from being eaten by a giant slug, but a final twist leaves him reeling.`\
+https://nytimes.com/2024/05/31/arts/television/doctor-who-episode-5-recap.html
+
 **For Trump, a Deflating Blow, and Then a Bounce Back**\
 `A day after Donald J. Trump left the courthouse shellshocked, he emerged on his home turf revitalized and railing against his rivals.`\
 https://nytimes.com/2024/05/31/us/politics/donald-trump-trial-conviction-campaign.html
