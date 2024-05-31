@@ -1,3 +1,7 @@
+**Trump’s Conviction Gives His Talkative Hometown Something New to Dispute**\
+`The day after Donald J. Trump became a felon, New Yorkers debated the meaning of the trial in buildings and neighborhoods where his family left its mark.`\
+https://nytimes.com/2024/05/31/nyregion/trump-verdict-nyc-reaction.html
+
 **Book Club: Let’s Talk About ‘James,’ by Percival Everett**\
 `Everett’s latest novel revisits “The Adventures of Huckleberry Finn” from the perspective of Huck’s fellow runaway.`\
 https://nytimes.com/2024/05/31/books/review/31podcast-percival-everett-james-book-club.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009498035/biden-cease-fire.html
 **Seven Weeks, 22 Witnesses: Highlights From the Criminal Trial of Donald Trump**\
 `The former president was convicted of 34 felony counts of falsifying business records to cover up a sex scandal that threatened to derail his 2016 campaign.`\
 https://nytimes.com/2024/05/31/nyregion/trump-trial-highlights.html
-
-**Birubala Rabha, Who Fought Against Witch Hunting in India, Dies at 75**\
-`She traveled from village to village in a crusade to stop a practice in which women are accused of being witches and harshly punished, and even killed, for it.`\
-https://nytimes.com/2024/05/31/world/asia/birubala-rabha-dead.html
 

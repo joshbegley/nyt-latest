@@ -1,3 +1,19 @@
+**Book Club: Let’s Talk About ‘James,’ by Percival Everett**\
+`Everett’s latest novel revisits “The Adventures of Huckleberry Finn” from the perspective of Huck’s fellow runaway.`\
+https://nytimes.com/2024/05/31/books/review/31podcast-percival-everett-james-book-club.html
+
+**Southern Baptists Plan to Vote on Whether to Oppose I.V.F.**\
+`A proposal to be considered at the Southern Baptist Convention in June would advance fetal personhood and call on adherents to reject in vitro fertilization as immoral.`\
+https://nytimes.com/2024/05/31/us/ivf-vote-southern-baptists.html
+
+**Bird Flu Doesn’t Have to Become History’s Most Avoidable Disaster**\
+`If we don’t test for H5N1, we won’t find it.`\
+https://nytimes.com/live/2024/05/28/opinion/thepoint/bird-flu-michigan
+
+**Vermont to Require Fossil-Fuel Companies to Pay for Climate Damage**\
+`Under the country’s first “climate superfund” law, Vermont will charge large emitters for climate-related damage to the state.`\
+https://nytimes.com/2024/05/31/climate/vermont-law-fossil-fuel-climate-damage.html
+
 **Johnson Says Supreme Court Should Step In to Overturn Trump’s Conviction**\
 `Speaking to Fox News, Speaker Mike Johnson, a steadfast supporter of former President Donald J. Trump, also boasted about the National Republican Campaign Committee’s fund-raising numbers.`\
 https://nytimes.com/2024/05/31/nyregion/mike-johnson-trump-conviction.html
