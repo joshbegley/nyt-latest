@@ -1,3 +1,7 @@
+**Transcript of Trump Manhattan Trial, May 29, 2024**\
+`Update on May 30: New York State’s court released transcripts from each day of the Manhattan criminal trial of former President Donald J. Trump, who was convicted on 34 counts of falsifying business records to cover up a sex scandal that threatened to derail his 2016 presidential campaign.`\
+https://nytimes.com/interactive/2024/05/30/nyregion/trump-hush-money-trial-transcript-may-29.html
+
 **Hopeful Yet Cautious, Biden’s Team Aims to Exploit Trump’s Conviction**\
 `The verdict in Manhattan gave the president and his allies a new way to frame the race: a choice between someone who is a felon and someone who is not.`\
 https://nytimes.com/2024/05/30/us/politics/biden-trump-verdict.html
