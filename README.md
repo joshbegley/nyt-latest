@@ -1,3 +1,7 @@
+**The Conviction of Donald J. Trump**\
+`He is the first U.S. president, current or former, to be a felon.`\
+https://nytimes.com/2024/05/31/briefing/the-conviction-of-donald-j-trump.html
+
 **Guilty**\
 `Donald J. Trump was convicted on all 34 counts in Manhattan. This is what it was like inside the courtroom.`\
 https://nytimes.com/2024/05/31/podcasts/the-daily/trump-guilty.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/us/virginia-beach-shooting-memorial.html
 **‘Trump Is Now a Felon, and That Will Matter’: 7 Writers on the Guilty Verdict**\
 `Times Opinion writers reflect on an extraordinary development in American political history.`\
 https://nytimes.com/2024/05/31/opinion/trump-trial-verdict.html
-
-**The New ChatGPT Offers a Lesson in A.I. Hype**\
-`OpenAI released GPT-4o, its latest chatbot technology, in a partly finished state. It has much to prove.`\
-https://nytimes.com/2024/05/31/technology/personaltech/chatgpt-4o-openai-review.html
 
