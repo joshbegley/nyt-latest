@@ -1,3 +1,11 @@
+**Israel’s push into central Rafah defies international pressure.**\
+`By Aaron Boxerman and Lauren Leatherby`\
+https://nytimes.com/live/2024/05/31/world/israel-gaza-war-hamas-rafah/israels-push-into-central-rafah-defies-international-pressure
+
+**Donald Trump to Speak on Friday in Wake of His Conviction**\
+`America for the first time has a former president who is a felon, and he’s running for the White House again.`\
+https://nytimes.com/live/2024/05/31/nyregion/trump-news-trial-guilty
+
 **The Conviction of Donald J. Trump**\
 `He is the first U.S. president, current or former, to be a felon.`\
 https://nytimes.com/2024/05/31/briefing/the-conviction-of-donald-j-trump.html
