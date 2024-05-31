@@ -1,3 +1,7 @@
+**Bracing for Start of Trial in Gun Case, Hunter Biden Is Squeezed for Money**\
+`The cash crunch could limit his ability to hire expert witnesses or other specialists for his legal defense, people close to the situation said.`\
+https://nytimes.com/2024/05/31/us/politics/hunter-biden-trial-money.html
+
 **Transcript: Ezra Klein Interviews D. Graham Burnett**\
 `The May 31, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/05/31/podcasts/transcript-ezra-klein-interviews-d-graham-burnett.html

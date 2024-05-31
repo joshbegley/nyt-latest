@@ -1,3 +1,7 @@
+**Bracing for Start of Trial in Gun Case, Hunter Biden Is Squeezed for Money**\
+`The cash crunch could limit his ability to hire expert witnesses or other specialists for his legal defense, people close to the situation said.`\
+https://nytimes.com/2024/05/31/us/politics/hunter-biden-trial-money.html
+
 **Transcript: Ezra Klein Interviews D. Graham Burnett**\
 `The May 31, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/05/31/podcasts/transcript-ezra-klein-interviews-d-graham-burnett.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/briefing/trump-verdict-response-biden-cease-fire.
 **Trump’s Conviction Renews Push to Strip His Name From a New York Park**\
 `Legislative efforts to rename Donald J. Trump State Park in northern Westchester County have failed so far, but some lawmakers want to try again.`\
 https://nytimes.com/2024/05/31/nyregion/trump-park-taconic-ny.html
-
-**Jennifer Lopez Cancels Summer Tour**\
-`The singer and actress said she was “heartsick and devastated” about the decision, which comes on the heels of a hit Netflix movie and persistent rumors about her marriage.`\
-https://nytimes.com/2024/05/31/arts/music/jennifer-lopez-tour-canceled.html
 
