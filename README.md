@@ -1,3 +1,7 @@
+**Birubala Rabha, Who Fought Against Witch Hunting in India, Dies at 75**\
+`She traveled from village to village in a crusade to stop a practice in which women are accused of being witches and harshly punished, and even killed, for it.`\
+https://nytimes.com/2024/05/31/world/asia/birubala-rabha-dead.html
+
 **Chobani Yogurt Founder Buys Anchor Brewing Company**\
 `Hamdi Ulukaya called the craft brewer, said to be the country’s oldest, a “grand jewel.” Anchor’s former owner, Sapporo, put it into liquidation last year, citing the effects of the pandemic.`\
 https://nytimes.com/2024/05/31/business/anchor-hamdi-ulukaya-chobani-ceo.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/28/opinion/trump-speech-verdict.html
 **Whirlwind Romances Are Not Reserved for Thin Women**\
 `An article skeptical of the central love connection in the new season of “Bridgerton” has fans rushing to contest the idea that catching a gentleman’s eye is a size-restricted pursuit.`\
 https://nytimes.com/2024/05/31/style/bridgerton-nicola-coughlan-fatphobia.html
-
-**News Organizations Cut Away From Trump’s Misleading Speech**\
-`It was the latest example of journalists having to weigh the news value of a major political moment against the challenges of reporting on a candidate who regularly speaks in falsehoods.`\
-https://nytimes.com/2024/05/31/business/media/cnn-nbc-trump-speech.html
 
