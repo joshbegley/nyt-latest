@@ -1,3 +1,7 @@
+**Trump’s Conviction Fuses the G.O.P. Even Closer to Him**\
+`Prominent Republicans, including congressional leaders, ex-rivals and potential running mates, basked in the energy, and fund-raising, of an outraged base.`\
+https://nytimes.com/2024/05/31/us/politics/trump-conviction-gop-reaction.html
+
 **Jac Venza, Who Delivered Culture to Public Television, Dies at 97**\
 `By making entertainment as well as education part of its mission, he gave the world “Masterpiece Theater,” “Great Performances” and other enduring programs.`\
 https://nytimes.com/2024/05/31/arts/television/jac-venza-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/05/31/smarter-living/wirecutter/teacher-gif
 **What My Dog Taught Me About Mortality**\
 `Walnut rescued me from death more than once—but not in the way you might think.`\
 https://nytimes.com/interactive/2024/05/31/magazine/dog-animals-death-mortality.html
-
-**Why Can’t College Grads Find Jobs? Here Are Some Theories — and Fixes.**\
-`Applicants have ways to better their odds, but employers need to make changes, too.`\
-https://nytimes.com/2024/05/31/opinion/college-graduates-jobs-unemployment.html
 
