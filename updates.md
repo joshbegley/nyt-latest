@@ -1,3 +1,7 @@
+**How Partisan Media Outlets Covered Trump’s Guilty Verdict**\
+`Conservative outlets blasted former President Donald J. Trump’s criminal conviction as a sham, while liberal outlets divided on the import.`\
+https://nytimes.com/2024/05/31/business/media/trump-verdict-media-coverage.html
+
 **Doug Ingle, the Voice of Iron Butterfly, Is Dead at 78**\
 `His biggest hit, “In-A-Gadda-Da-Vida,” was a 17-minute psychedelic journey that epitomized 1960s rock indulgence. But after just a few years in the limelight, he walked away.`\
 https://nytimes.com/2024/05/31/arts/music/doug-ingle-dead.html
