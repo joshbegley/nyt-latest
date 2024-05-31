@@ -6,7 +6,7 @@ https://nytimes.com/2024/05/31/us/politics/deepfake-us-official-russia.html
 `On Friday, the Manhattan Criminal Courthouse swiftly returned to processing mundane mayhem after weeks of intensity and chaos from former President Donald J. Trump’s trial.`\
 https://nytimes.com/2024/05/31/nyregion/trump-manhattan-courthouse.html
 
-**U.S. Agriculture Official Says Menendez Told Him to ‘Stop Interfering’**\
+**Former U.S. Agriculture Official Says Menendez Told Him to ‘Stop Interfering’**\
 `Jurors in Senator Robert Menendez’s bribery trial heard directly from a witness who recounted Mr. Menendez’s efforts to flex his political muscle.`\
 https://nytimes.com/2024/05/31/nyregion/robert-menendez-bribery-trial.html
 

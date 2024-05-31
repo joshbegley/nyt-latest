@@ -1,3 +1,7 @@
+**Former U.S. Agriculture Official Says Menendez Told Him to ‘Stop Interfering’**\
+`Jurors in Senator Robert Menendez’s bribery trial heard directly from a witness who recounted Mr. Menendez’s efforts to flex his political muscle.`\
+https://nytimes.com/2024/05/31/nyregion/robert-menendez-bribery-trial.html
+
 **Deepfake of U.S. Official Appears After Shift on Ukraine Attacks in Russia**\
 `A manufactured video fabricated comments by the State Department spokesman, Matthew Miller.`\
 https://nytimes.com/2024/05/31/us/politics/deepfake-us-official-russia.html
