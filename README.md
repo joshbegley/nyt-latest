@@ -1,3 +1,7 @@
+**What we know about the latest Israeli cease-fire proposal.**\
+`By Jesus Jiménez and Aaron Boxerman`\
+https://nytimes.com/live/2024/05/31/world/israel-gaza-war-hamas-rafah/what-we-know-about-the-latest-israeli-cease-fire-proposal
+
 **Six of Trump’s Dumbest Trial Mistakes**\
 `The problem with having a volcanic egotist as a client.`\
 https://nytimes.com/live/2024/05/28/opinion/thepoint/trump-trial-mistakes
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/opinion/trump-trial-defense.html
 **Partisanship largely prevails in Arizona suburbs after verdict.**\
 `The New York Times is interviewing people across the swing states in the aftermath of the conviction of former President Donald J. Trump.`\
 https://nytimes.com/live/2024/05/31/nyregion/trump-news-guilty-verdict/partisanship-largely-prevails-in-arizona-suburbs-after-verdict
-
-**Clarence Sasser, 76, Vietnam Medic Honored for Life-Saving Valor, Dies**\
-`A Medal of Honor recipient, he was repeatedly wounded in an ambush. Despite his injuries, he ran through gunfire and “swam” through mud to reach his comrades.`\
-https://nytimes.com/2024/05/31/us/clarence-sasser-dead.html
 
