@@ -1,3 +1,7 @@
+**For Trump, a Deflating Blow, and Then a Bounce Back**\
+`A day after Donald J. Trump left the courthouse shellshocked, he emerged on his home turf revitalized and railing against his rivals.`\
+https://nytimes.com/2024/05/31/us/politics/donald-trump-trial-conviction-campaign.html
+
 **Ticketmaster Confirms Data Breach. Here’s What to Know.**\
 `The hacking group ShinyHunters has claimed responsibility for stealing the user information of more than 500 million Ticketmaster customers.`\
 https://nytimes.com/2024/05/31/business/ticketmaster-hack-data-breach.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/us/marian-robinson-dead.html
 **Six Injured in Stabbing in Germany**\
 `A police officer and an anti-Islamist activist were among the victims, according to the authorities, who have not released information on a motive.`\
 https://nytimes.com/2024/05/31/world/europe/activist-officer-stabbing-germany.html
-
-**Texas Supreme Court Rejects Challenge on Exceptions to Abortion Ban**\
-`The court on Friday unanimously reversed a ruling that had expanded the definition of what counts as a medical emergency under the state’s strict abortion ban.`\
-https://nytimes.com/2024/05/31/us/texas-abortion-ban-supreme-court.html
 

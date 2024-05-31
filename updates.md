@@ -1,3 +1,7 @@
+**For Trump, a Deflating Blow, and Then a Bounce Back**\
+`A day after Donald J. Trump left the courthouse shellshocked, he emerged on his home turf revitalized and railing against his rivals.`\
+https://nytimes.com/2024/05/31/us/politics/donald-trump-trial-conviction-campaign.html
+
 **Ticketmaster Confirms Data Breach. Here’s What to Know.**\
 `The hacking group ShinyHunters has claimed responsibility for stealing the user information of more than 500 million Ticketmaster customers.`\
 https://nytimes.com/2024/05/31/business/ticketmaster-hack-data-breach.html
