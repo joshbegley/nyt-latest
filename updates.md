@@ -1,3 +1,7 @@
+**What the Nation Needs to Hear from Trump (but Won’t)**\
+`Instead, he will probably ask his supporters to join him in outrage.`\
+https://nytimes.com/live/2024/05/28/opinion/thepoint/trump-remarks-verdict-guilty
+
 **Wait, We’ve Been Flying the Flag the Alitos Had? San Francisco Takes It Down.**\
 `Critics slammed Justice Samuel A. Alito Jr. after the “Appeal to Heaven” flag was flown outside his vacation home, but it had billowed in the heart of San Francisco for 60 years.`\
 https://nytimes.com/2024/05/31/us/san-francisco-flag-alito.html
