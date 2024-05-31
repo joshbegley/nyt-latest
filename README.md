@@ -1,3 +1,7 @@
+**Trump’s Conviction Brings Him Into a ‘New World’**\
+`Donald J. Trump’s historic felony convictions may not alter the presidential race right now, but they have punctured his sense of invincibility in a courtroom, The New York Times’s Maggie Haberman explains.`\
+https://nytimes.com/video/us/politics/100000009497555/trumps-conviction-brings-him-into-a-new-world.html
+
 **Trump’s Conviction Fuses the G.O.P. Even Closer to Him**\
 `Prominent Republicans, including congressional leaders, ex-rivals and potential running mates, basked in the energy, and fund-raising, of an outraged base.`\
 https://nytimes.com/2024/05/31/us/politics/trump-conviction-gop-reaction.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/climate/vermont-law-fossil-fuel-climate-damage.ht
 **The Best Gifts for Teachers**\
 `According to teachers.`\
 https://nytimes.com/interactive/2024/05/31/smarter-living/wirecutter/teacher-gifts.html
-
-**What My Dog Taught Me About Mortality**\
-`Walnut rescued me from death more than once—but not in the way you might think.`\
-https://nytimes.com/interactive/2024/05/31/magazine/dog-animals-death-mortality.html
 
