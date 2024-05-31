@@ -1,3 +1,7 @@
+**At a Moment of National Trauma, Biden Feels Compelled to Stay on the Sidelines**\
+`While presidents typically play a pastoral role after court cases that tear at the national fabric, the incumbent was effectively conflicted out.`\
+https://nytimes.com/2024/05/31/us/politics/biden-trump-guilty-verdict.html
+
 **Borussia Dortmund and the Idea That Anything Is Possible**\
 `Can an underdog still have its day in the Champions League? The sport should hope so.`\
 https://nytimes.com/2024/05/31/world/europe/champions-league-final-dortmund-madrid.html
