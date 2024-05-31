@@ -19,7 +19,7 @@ https://nytimes.com/2024/05/30/business/media/trump-verdict-media-coverage.html
 https://nytimes.com/2024/05/30/podcasts/inside-the-courtroom-where-trump-was-convicted.html
 
 **Trump’s Campaign Donor Website Crashes After Guilty Verdict**\
-`Mr. Trump began soliciting donations off his felony conviction almost immediately after the verdict`\
+`Mr. Trump began soliciting donations off his felony conviction almost immediately after the verdict.`\
 https://nytimes.com/2024/05/30/us/politics/trump-winred-crash-donations.html
 
 **Top Minnesota Democrats Call on State Senator Charged With Burglary to Resign**\
