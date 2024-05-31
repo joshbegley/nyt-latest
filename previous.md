@@ -1,3 +1,7 @@
+**Word of the Day: strenuous**\
+`This word has appeared in 79 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/31/learning/word-of-the-day-strenuous.html
+
 **Why I Love the Sydney Opera House**\
 `The art is accessible, the attendees cut across the social spectrum and the architecture beguiles.`\
 https://nytimes.com/2024/05/31/world/australia/sydney-opera-house.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/style/jen-tullock-marie-ronn-wedding.html
 **They Swiped and Immediately ‘Clicked’**\
 `Dolly Meckler said that she and Jordan Cohen got along right away because they “speak the same language.” Both work in social media and connected nearly four years ago on a dating app.`\
 https://nytimes.com/2024/05/31/style/dolly-meckler-jordan-cohen-wedding.html
-
-**A Match Made in Church Sparks a Journey of Self-Discovery**\
-`Jonathan Stewart was dating a woman and grappling with his sexuality when he met Enrico Lagasca. Mr. Lagasca, who developed a crush on him, was surprised to learn that Mr. Stewart felt the same way.`\
-https://nytimes.com/2024/05/31/fashion/weddings/jonathan-stewart-enrico-lagasca-wedding.html
 

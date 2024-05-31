@@ -1,3 +1,7 @@
+**Word of the Day: strenuous**\
+`This word has appeared in 79 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/05/31/learning/word-of-the-day-strenuous.html
+
 **Why I Love the Sydney Opera House**\
 `The art is accessible, the attendees cut across the social spectrum and the architecture beguiles.`\
 https://nytimes.com/2024/05/31/world/australia/sydney-opera-house.html
