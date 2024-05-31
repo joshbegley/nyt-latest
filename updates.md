@@ -1,3 +1,11 @@
+**Biden Reacts to Trump’s Guilty Verdict**\
+`President Biden said the verdict in Donald J. Trump’s trial reaffirmed “the American principle that no one is above the law,” and he criticized the former president and his allies for their complaints about the outcome.`\
+https://nytimes.com/video/us/politics/100000009498697/biden-trump-verdict.html
+
+**After the Trump Verdict, the TikTok Trial Began**\
+`Late into Thursday night, social media users debated the outcome of Donald J. Trump’s hush-money trial. Even Michael Cohen got in on the action.`\
+https://nytimes.com/2024/05/31/style/trump-verdict-tiktok-cohen.html
+
 **Jac Venza, Who Delivered Culture to Public Television, Dies at 97**\
 `By making entertainment as well as education part of its mission, he gave the world “American Masters,” “Great Performances” and other enduring programs.`\
 https://nytimes.com/2024/05/31/arts/television/jac-venza-dead.html

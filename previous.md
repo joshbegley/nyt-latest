@@ -1,3 +1,11 @@
+**Biden Reacts to Trump’s Guilty Verdict**\
+`President Biden said the verdict in Donald J. Trump’s trial reaffirmed “the American principle that no one is above the law,” and he criticized the former president and his allies for their complaints about the outcome.`\
+https://nytimes.com/video/us/politics/100000009498697/biden-trump-verdict.html
+
+**After the Trump Verdict, the TikTok Trial Began**\
+`Late into Thursday night, social media users debated the outcome of Donald J. Trump’s hush-money trial. Even Michael Cohen got in on the action.`\
+https://nytimes.com/2024/05/31/style/trump-verdict-tiktok-cohen.html
+
 **Woman Sentenced to 14 Years in Death of Connecticut Mother Who Vanished**\
 `Michelle Troconis was convicted of several crimes in the killing of Jennifer Dulos, who disappeared five years ago and whose body has never been found.`\
 https://nytimes.com/2024/05/31/nyregion/michelle-troconis-murder-sentencing-connecticut.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/31/nyregion/trump-verdict-nyc-reaction.html
 **Book Club: Let’s Talk About ‘James,’ by Percival Everett**\
 `Everett’s latest novel revisits “The Adventures of Huckleberry Finn” from the perspective of Huck’s fellow runaway.`\
 https://nytimes.com/2024/05/31/books/review/31podcast-percival-everett-james-book-club.html
-
-**Southern Baptists Plan to Vote on Whether to Oppose I.V.F.**\
-`A proposal to be considered at the Southern Baptist Convention in June would advance fetal personhood and call on adherents to reject in vitro fertilization as immoral.`\
-https://nytimes.com/2024/05/31/us/ivf-vote-southern-baptists.html
-
-**Bird Flu Doesn’t Have to Become History’s Most Avoidable Disaster**\
-`If we don’t test for H5N1, we won’t find it.`\
-https://nytimes.com/live/2024/05/28/opinion/thepoint/bird-flu-michigan
 
