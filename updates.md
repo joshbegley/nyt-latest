@@ -1,3 +1,11 @@
+**Searching for Clues in the Polls About a Trump Conviction**\
+`He may not lose support at all, but he depends on the support of many young and nonwhite voters who haven’t voted for him in the past and who might be likelier to leave his side.`\
+https://nytimes.com/2024/05/30/upshot/polling-trump-verdict-conviction.html
+
+**Ex-President, Felon and Candidate: 5 Takeaways From Trump’s Conviction**\
+`Donald J. Trump will live the life of a New York convict until he is sentenced on July 11. He faces as long as four years in prison.`\
+https://nytimes.com/2024/05/30/nyregion/trump-trial-takeaways.html
+
 **Trump’s Campaign Donor Website Crashes After Guilty Verdict**\
 `Mr. Trump began soliciting donations off his felony conviction almost immediately after the verdict.`\
 https://nytimes.com/2024/05/30/us/politics/trump-winred-crash-donations.html
