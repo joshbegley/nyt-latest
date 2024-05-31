@@ -1,3 +1,11 @@
+**Borussia Dortmund and the Idea That Anything Is Possible**\
+`Can an underdog still have its day in the Champions League? The sport should hope so.`\
+https://nytimes.com/2024/05/31/world/europe/champions-league-final-dortmund-madrid.html
+
+**Upside-Down Flags Become Symbol for Republicans Protesting Trump Verdict**\
+`The symbol has gained traction on the right since the revelation that an upside down flag flew outside the home of Justice Samuel A. Alito Jr. in 2021.`\
+https://nytimes.com/2024/05/31/us/politics/upside-down-flags.html
+
 **Building a Tractor-Trailer Fit for ‘Furiosa’**\
 `Members of the creative team explain what it took to turn the War Rig into “a beautiful chrome stage.”`\
 https://nytimes.com/2024/05/31/movies/mad-max-furiosa-war-rig.html
