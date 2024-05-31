@@ -15,7 +15,7 @@ https://nytimes.com/video/us/politics/100000009497555/trumps-conviction-brings-h
 https://nytimes.com/2024/05/31/us/politics/trump-conviction-gop-reaction.html
 
 **Jac Venza, Who Delivered Culture to Public Television, Dies at 97**\
-`By making entertainment as well as education part of its mission, he gave the world “Masterpiece Theater,” “Great Performances” and other enduring programs.`\
+`By making entertainment as well as education part of its mission, he gave the world “American Masters,” “Great Performances” and other enduring programs.`\
 https://nytimes.com/2024/05/31/arts/television/jac-venza-dead.html
 
 **Netflix Wins $8.8 Million in Fight Over Planned TV Series**\
