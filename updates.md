@@ -1,3 +1,7 @@
+**Doug Ingle, the Voice of Iron Butterfly, Is Dead at 78**\
+`His biggest hit, “In-A-Gadda-Da-Vida,” was a 17-minute psychedelic journey that epitomized 1960s rock indulgence. But after just a few years in the limelight, he walked away.`\
+https://nytimes.com/2024/05/31/arts/music/doug-ingle-dead.html
+
 **Learn to Make the Juiciest Steak With This Hot Restaurant Trick**\
 `Basting your steaks with butter is the secret to perfectly cooked meat at home.`\
 https://nytimes.com/2024/05/31/dining/how-to-cook-steak.html
