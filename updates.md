@@ -1,3 +1,7 @@
+**Robert F. Kennedy Jr., Echoing Trump, Calls Manhattan Case Politically Motivated**\
+`The independent presidential candidate said he believed Mr. Trump’s conviction would only help the former president at the ballot box.`\
+https://nytimes.com/2024/05/30/nyregion/robert-f-kennedy-jr-trump-conviction.html
+
 **Inside the Courthouse Where Trump Was Convicted**\
 `A special report.`\
 https://nytimes.com/2024/05/30/podcasts/inside-the-courtroom-where-trump-was-convicted.html
