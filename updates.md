@@ -1,3 +1,7 @@
+**Trump’s Conviction Gives His Talkative Hometown Something New to Dispute**\
+`The day after Donald J. Trump became a felon, New Yorkers debated the meaning of the trial in buildings and neighborhoods where his family left its mark.`\
+https://nytimes.com/2024/05/31/nyregion/trump-verdict-nyc-reaction.html
+
 **Book Club: Let’s Talk About ‘James,’ by Percival Everett**\
 `Everett’s latest novel revisits “The Adventures of Huckleberry Finn” from the perspective of Huck’s fellow runaway.`\
 https://nytimes.com/2024/05/31/books/review/31podcast-percival-everett-james-book-club.html
