@@ -1,3 +1,11 @@
+**Israel’s push into central Rafah defies international pressure.**\
+`By Aaron Boxerman and Lauren Leatherby`\
+https://nytimes.com/live/2024/05/31/world/israel-gaza-war-hamas-rafah/israels-push-into-central-rafah-defies-international-pressure
+
+**Donald Trump to Speak on Friday in Wake of His Conviction**\
+`America for the first time has a former president who is a felon, and he’s running for the White House again.`\
+https://nytimes.com/live/2024/05/31/nyregion/trump-news-trial-guilty
+
 **The Conviction of Donald J. Trump**\
 `He is the first U.S. president, current or former, to be a felon.`\
 https://nytimes.com/2024/05/31/briefing/the-conviction-of-donald-j-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/31/business/eurozone-inflation-may.html
 **How Many Americans Will Rationalize Voting for a Felon?**\
 `Three Opinion writers on the Donald Trump hush-money verdict.`\
 https://nytimes.com/2024/05/31/opinion/donald-trump-guilty-jail-stormy-daniels.html
-
-**Five Years After Virginia Beach Shooting, ‘No One Is Getting Better’**\
-`The city will dedicate a memorial site on Friday. For some of the families who lost loved ones, the commemoration is a reminder of unanswered questions.`\
-https://nytimes.com/2024/05/31/us/virginia-beach-shooting-memorial.html
-
-**‘Trump Is Now a Felon, and That Will Matter’: 7 Writers on the Guilty Verdict**\
-`Times Opinion writers reflect on an extraordinary development in American political history.`\
-https://nytimes.com/2024/05/31/opinion/trump-trial-verdict.html
 
