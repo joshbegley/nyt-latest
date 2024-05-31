@@ -1,3 +1,7 @@
+**Ticketmaster Confirms Data Breach. Here’s What to Know.**\
+`The hacking group ShinyHunters has claimed responsibility for stealing the user information of more than 500 million Ticketmaster customers.`\
+https://nytimes.com/2024/05/31/business/ticketmaster-hack-data-breach.html
+
 **Deepfake of U.S. Official Appears After Shift on Ukraine Attacks in Russia**\
 `A manufactured video fabricated comments by the State Department spokesman, Matthew Miller.`\
 https://nytimes.com/2024/05/31/us/politics/deepfake-us-official-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/world/europe/activist-officer-stabbing-germany.ht
 **Texas Supreme Court Rejects Challenge on Exceptions to Abortion Ban**\
 `The court on Friday unanimously reversed a ruling that had expanded the definition of what counts as a medical emergency under the state’s strict abortion ban.`\
 https://nytimes.com/2024/05/31/us/texas-abortion-ban-supreme-court.html
-
-**Darryl Hickman, Prolific Child Actor of the 1940s, Dies at 92**\
-`He was in “The Grapes of Wrath” and other films. As an adult, he was seen often on TV. He later oversaw daytime programming at CBS and taught acting.`\
-https://nytimes.com/2024/05/31/movies/darryl-hickman-dead.html
 
