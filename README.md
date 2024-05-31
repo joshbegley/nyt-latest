@@ -1,3 +1,7 @@
+**What’s the Best Advice You’ve Received About Fatherhood?**\
+`With Father’s Day around the corner, we’re looking for tips you’d like to pass on.`\
+https://nytimes.com/2024/05/31/well/family/advice-for-dads-callout.html
+
 **I Was Skeptical of the ‘Zombie’ Trump Case. I Stand Corrected.**\
 `The prosecutors convinced me — as they clearly and overwhelmingly convinced the jury.`\
 https://nytimes.com/2024/05/31/opinion/trump-trial-defense.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/style/trump-verdict-tiktok-cohen.html
 **Woman Sentenced to 14 Years in Death of Connecticut Mother Who Vanished**\
 `Michelle Troconis was convicted of several crimes in the killing of Jennifer Dulos, who disappeared five years ago and whose body has never been found.`\
 https://nytimes.com/2024/05/31/nyregion/michelle-troconis-murder-sentencing-connecticut.html
-
-**In Philadelphia, Trump verdict elicits both anxiety and satisfaction.**\
-`By Maya King`\
-https://nytimes.com/live/2024/05/31/nyregion/trump-news-guilty-verdict/in-philadelphia-reaction-to-the-verdict-ranges-from-elation-to-frustration
 
