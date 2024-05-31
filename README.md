@@ -1,3 +1,7 @@
+**Judge John Hodgman on Compulsory Game Nights**\
+`Can you enjoin your spouse to play a board game she has no interest in?`\
+https://nytimes.com/2024/05/31/magazine/judge-john-hodgman-on-compulsory-game-nights.html
+
 **Biden Reacts to Trump’s Guilty Verdict**\
 `President Biden said the verdict in Donald J. Trump’s trial reaffirmed “the American principle that no one is above the law,” and he criticized the former president and his allies for their complaints about the outcome.`\
 https://nytimes.com/video/us/politics/100000009498697/biden-trump-verdict.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/business/carl-rinsch-netflix.html
 **Trump’s Conviction Gives His Talkative Hometown Something New to Dispute**\
 `The day after Donald J. Trump became a felon, New Yorkers debated the meaning of the trial in buildings and neighborhoods where his family left its mark.`\
 https://nytimes.com/2024/05/31/nyregion/trump-verdict-nyc-reaction.html
-
-**Book Club: Let’s Talk About ‘James,’ by Percival Everett**\
-`Everett’s latest novel revisits “The Adventures of Huckleberry Finn” from the perspective of Huck’s fellow runaway.`\
-https://nytimes.com/2024/05/31/books/review/31podcast-percival-everett-james-book-club.html
 
