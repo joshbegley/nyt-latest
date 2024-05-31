@@ -1,3 +1,11 @@
+**Quote of the Day:**\
+`Quotation of the Day for Friday, May 31, 2024`\
+https://nytimes.com/2024/05/30/pageoneplus/quote-of-the-day.html
+
+**Quote of the Day: 14 Convicted of Subversion in Hong Kong**\
+`Quotation of the Day for Friday, May 31, 2024.`\
+https://nytimes.com/2024/05/30/pageoneplus/quote-of-the-day-14-convicted-of-subversion-in-hong-kong.html
+
 **A 7th Grader’s Electric Tiebreaking Performance Earns Spelling Bee Championship**\
 `Bruhat Soma spelled a stunning 29 words correctly in a 90-second spell-off to win the Scripps National Spelling Bee.`\
 https://nytimes.com/2024/05/30/us/bruhat-soma-spelling-bee-champion.html
