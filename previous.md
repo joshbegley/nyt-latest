@@ -1,3 +1,11 @@
+**Five International Movies to Stream Now**\
+`This month’s picks include an Indian political thriller, a beautiful tale of coming-of-middle-age from Georgia and more.`\
+https://nytimes.com/2024/05/31/movies/international-movies-streaming.html
+
+**Blinken Hints U.S. May Allow Ukraine Greater Latitude to Strike in Russia**\
+`The U.S. secretary of state suggested that Ukraine’s use of American-supplied arms could expand beyond the current limitation to strikes in the Kharkiv area.`\
+https://nytimes.com/2024/05/31/world/europe/ukraine-weapons-united-states-blinken.html
+
 **Alzheimer’s Takes a Financial Toll Long Before Diagnosis, Study Finds**\
 `New research shows that people who develop dementia often begin falling behind on bills years earlier.`\
 https://nytimes.com/2024/05/31/business/economy/alzheimers-disease-personal-finance.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/31/climate/greece-europe-natural-gas-lng.html
 **‘Trump Lost His Trial. American Justice Won.’**\
 `Readers offer a range of reactions and reflections.`\
 https://nytimes.com/2024/05/31/opinion/letters/donald-trump-trial-conviction.html
-
-**Trump Announces $34.8 Million Fund-Raising Haul After Guilty Verdict**\
-`Cash has been one of President Biden’s advantages so far in 2024, and post-conviction money will help Mr. Trump close the gap with the Democratic incumbent.`\
-https://nytimes.com/2024/05/31/us/politics/trump-fundraising-verdict.html
-
-**What the Nation Needs to Hear From Trump (but Won’t)**\
-`Instead, he will probably ask his supporters to join him in outrage.`\
-https://nytimes.com/live/2024/05/28/opinion/thepoint/trump-remarks-verdict-guilty
 

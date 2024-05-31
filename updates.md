@@ -1,3 +1,11 @@
+**Five International Movies to Stream Now**\
+`This month’s picks include an Indian political thriller, a beautiful tale of coming-of-middle-age from Georgia and more.`\
+https://nytimes.com/2024/05/31/movies/international-movies-streaming.html
+
+**Blinken Hints U.S. May Allow Ukraine Greater Latitude to Strike in Russia**\
+`The U.S. secretary of state suggested that Ukraine’s use of American-supplied arms could expand beyond the current limitation to strikes in the Kharkiv area.`\
+https://nytimes.com/2024/05/31/world/europe/ukraine-weapons-united-states-blinken.html
+
 **Alzheimer’s Takes a Financial Toll Long Before Diagnosis, Study Finds**\
 `New research shows that people who develop dementia often begin falling behind on bills years earlier.`\
 https://nytimes.com/2024/05/31/business/economy/alzheimers-disease-personal-finance.html
