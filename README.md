@@ -1,3 +1,11 @@
+**Why Trump Couldn’t Pardon Himself in Hush-Money Case if Re-Elected**\
+`Donald J. Trump is now a felon in New York State, and presidential pardon power does not extend to state cases.`\
+https://nytimes.com/2024/05/31/nyregion/donald-trump-pardon-himself.html
+
+**Why Greece Is Betting Big on American Gas**\
+`Even as it pivots to solar and wind for itself, Greece aims to become a natural gas supplier across Europe. Among its strongest backers is the United States.`\
+https://nytimes.com/2024/05/31/climate/greece-europe-natural-gas-lng.html
+
 **‘Trump Lost His Trial. American Justice Won.’**\
 `Readers offer a range of reactions and reflections.`\
 https://nytimes.com/2024/05/31/opinion/letters/donald-trump-trial-conviction.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/31/us/politics/upside-down-flags.html
 **Building a Tractor-Trailer Fit for ‘Furiosa’**\
 `Members of the creative team explain what it took to turn the War Rig into “a beautiful chrome stage.”`\
 https://nytimes.com/2024/05/31/movies/mad-max-furiosa-war-rig.html
-
-**Big Ticket: N.Y.’s Top Sales and Listings in May**\
-`May's top listings included Drew Barrymore's estate in the Hamptons.`\
-https://nytimes.com/interactive/2024/05/31/realestate/luxury/nyc-home-sales.html
-
-**Inflation Remains Steady, With Signs of Further Cooling**\
-`The Federal Reserve has been waiting for firmer evidence that rapid price increases are behind it.`\
-https://nytimes.com/2024/05/31/business/inflation-pce-federal-reserve.html
 
