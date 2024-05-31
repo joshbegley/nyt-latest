@@ -1,3 +1,7 @@
+**Here are a few key moments, and words, from this year’s Scripps spelling bee.**\
+`Desmotrope and apophasis were among the onerous terms that dashed dreams of a championship win.`\
+https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee/here-are-a-few-key-moments-and-words-from-this-years-scripps-spelling-bee
+
 **Two Killed in Shooting in Minneapolis**\
 `Two police officers were also injured after a person opened fire south of downtown on Thursday, the authorities said.`\
 https://nytimes.com/2024/05/30/us/minneapolis-shooting-officers-injured.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/30/nyregion/robert-f-kennedy-jr-trump-conviction.htm
 **The Dark Rhetoric After Trump’s Conviction**\
 `The former president sought to weaponize the verdict to undermine trust in the justice system.`\
 https://nytimes.com/2024/05/30/us/politics/trump-convicted-election-republicans.html
-
-**Hopeful Yet Cautious, Biden’s Team Aims to Exploit Trump’s Conviction**\
-`The verdict in Manhattan gave the president and his allies a new way to frame the race: a choice between someone who is a felon and someone who is not.`\
-https://nytimes.com/2024/05/30/us/politics/biden-trump-verdict.html
 
