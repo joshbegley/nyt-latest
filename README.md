@@ -28,13 +28,13 @@ https://nytimes.com/2024/05/31/business/inflation-pce-federal-reserve.html
 
 **Wait, We’ve Been Flying the Flag the Alitos Had? San Francisco Takes It Down.**\
 `Critics slammed Justice Samuel A. Alito Jr. after the “Appeal to Heaven” flag was flown outside his vacation home, but it had billowed in the heart of San Francisco for 60 years.`\
-https://nytimes.com/2024/05/31/us/wait-weve-been-flying-the-flag-the-alitos-had-san-francisco-takes-it-down.html
-
-**‘Buy Now, Pay Later’ Borrowers Get More Safeguards With New Rule**\
-`Shoppers who use the popular installment loans will be guaranteed some of the same consumer protections that traditional credit cards provide.`\
-https://nytimes.com/2024/05/31/business/buy-now-pay-later-protections.html
+https://nytimes.com/2024/05/31/us/san-francisco-flag-alito.html
 
 **Institute of Contemporary Art, Los Angeles Plans an Upgrade**\
 `The downtown museum will purchase its building, incorporate artist residencies and add a cafe that will have a collaborative twist.`\
 https://nytimes.com/2024/05/31/arts/design/institute-of-contemporary-art-los-angeles-upgrade.html
+
+**‘Buy Now, Pay Later’ Borrowers Get More Safeguards With New Rule**\
+`Shoppers who use the popular installment loans will be guaranteed some of the same consumer protections that traditional credit cards provide.`\
+https://nytimes.com/2024/05/31/business/buy-now-pay-later-protections.html
 
