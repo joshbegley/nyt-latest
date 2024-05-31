@@ -1,3 +1,7 @@
+**Hopeful Yet Cautious, Biden’s Team Aims to Exploit Trump’s Conviction**\
+`The verdict in Manhattan gave the president and his allies a new way to frame the race: a choice between someone who is a felon and someone who is not.`\
+https://nytimes.com/2024/05/30/us/politics/biden-trump-verdict.html
+
 **A Historic Verdict Made for Riveting TV. Then the Punditry Began.**\
 `Every major TV network broke in to daytime programming to present a rare moment of political and legal suspense.`\
 https://nytimes.com/2024/05/30/business/media/trump-verdict-media-coverage.html
@@ -6,7 +10,7 @@ https://nytimes.com/2024/05/30/business/media/trump-verdict-media-coverage.html
 `A special report.`\
 https://nytimes.com/2024/05/30/podcasts/inside-the-courtroom-where-trump-was-convicted.html
 
-**Trump’s campaign donor website crashes after guilty verdict.**\
+**Trump’s Campaign Donor Website Crashes After Guilty Verdict**\
 `Mr. Trump began soliciting donations off his felony conviction almost immediately after the verdict`\
 https://nytimes.com/2024/05/30/us/politics/trump-winred-crash-donations.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/05/30/nyregion/trump-hush-money-trial-trans
 **The Trump Conviction: How an 8-Year Reporting Trail Connected the Dots**\
 `As rumors circulated of Donald J. Trump’s reported infidelity, two accounts of women being paid to stay silent about their encounters became central to his indictment.`\
 https://nytimes.com/2024/05/30/nyregion/stormy-daniels-karen-mcdougal-trump.html
-
-**Trump Had Good Fortune So Far With His Four Cases. Then Came a Verdict.**\
-`Until the jury’s decision on Thursday, the four criminal cases that threatened Donald Trump’s freedom were stumbling along, pleasing his advisers.`\
-https://nytimes.com/2024/05/30/us/politics/trump-verdict-analysis.html
 
