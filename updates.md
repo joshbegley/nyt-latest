@@ -1,3 +1,11 @@
+**Extraordinary Circumstances, Ordinary Due Process**\
+`Donald Trump’s New York trial played out in the midst of a presidential campaign, but despite claims from him and his allies that the proceedings were rigged, he had all the rights of any defendant.`\
+https://nytimes.com/2024/05/31/us/politics/extraordinary-circumstances-ordinary-due-process.html
+
+**In the crucial swing state of North Carolina, divided voters agree on one thing: They are worried.**\
+`By Eduardo Medina`\
+https://nytimes.com/live/2024/05/31/nyregion/trump-news-guilty-verdict/in-the-crucial-swing-state-of-north-carolina-divided-voters-agree-on-one-thing-they-are-worried
+
 **Judge John Hodgman on Compulsory Game Nights**\
 `Can you enjoin your spouse to play a board game she has no interest in?`\
 https://nytimes.com/2024/05/31/magazine/judge-john-hodgman-on-compulsory-game-nights.html

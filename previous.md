@@ -1,3 +1,11 @@
+**Extraordinary Circumstances, Ordinary Due Process**\
+`Donald Trump’s New York trial played out in the midst of a presidential campaign, but despite claims from him and his allies that the proceedings were rigged, he had all the rights of any defendant.`\
+https://nytimes.com/2024/05/31/us/politics/extraordinary-circumstances-ordinary-due-process.html
+
+**In the crucial swing state of North Carolina, divided voters agree on one thing: They are worried.**\
+`By Eduardo Medina`\
+https://nytimes.com/live/2024/05/31/nyregion/trump-news-guilty-verdict/in-the-crucial-swing-state-of-north-carolina-divided-voters-agree-on-one-thing-they-are-worried
+
 **Judge John Hodgman on Compulsory Game Nights**\
 `Can you enjoin your spouse to play a board game she has no interest in?`\
 https://nytimes.com/2024/05/31/magazine/judge-john-hodgman-on-compulsory-game-nights.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/31/us/politics/trump-conviction-gop-reaction.html
 **Jac Venza, Who Delivered Culture to Public Television, Dies at 97**\
 `By making entertainment as well as education part of its mission, he gave the world “American Masters,” “Great Performances” and other enduring programs.`\
 https://nytimes.com/2024/05/31/arts/television/jac-venza-dead.html
-
-**Netflix Wins $8.8 Million in Fight Over Planned TV Series**\
-`An arbitrator awarded Netflix damages from the Hollywood director Carl Erik Rinsch, who had been developing a high-profile TV series, “Conquest.”`\
-https://nytimes.com/2024/05/31/business/carl-rinsch-netflix.html
-
-**Trump’s Conviction Gives His Talkative Hometown Something New to Dispute**\
-`The day after Donald J. Trump became a felon, New Yorkers debated the meaning of the trial in buildings and neighborhoods where his family left its mark.`\
-https://nytimes.com/2024/05/31/nyregion/trump-verdict-nyc-reaction.html
 
