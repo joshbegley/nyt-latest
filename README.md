@@ -1,7 +1,3 @@
-**Ex-President, Felon and Candidate: 5 Takeaways From Trump’s Conviction**\
-`Donald J. Trump will live the life of a New York convict until he is sentenced on July 11. He faces as long as four years in prison.`\
-https://nytimes.com/2024/05/30/nyregion/trump-trial-takeaways.html
-
 **Robert F. Kennedy Jr., Echoing Trump, Calls Manhattan Case Politically Motivated**\
 `The independent presidential candidate said he believed Mr. Trump’s conviction would only help the former president at the ballot box.`\
 https://nytimes.com/2024/05/30/nyregion/robert-f-kennedy-jr-trump-conviction.html
@@ -37,4 +33,8 @@ https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee/here-is-the-latest
 **Going Behind the Scenes of ‘Popcast (Deluxe)’**\
 `The weekly culture roundup show, hosted by Jon Caramanica and Joe Coscarelli, celebrates its first anniversary on May 31.`\
 https://nytimes.com/2024/05/30/insider/popcast-deluxe-podcast.html
+
+**Here are the eight finalists.**\
+`By Emmett Lindner`\
+https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee/here-are-the-eight-finalists
 
