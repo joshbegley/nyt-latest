@@ -10,7 +10,7 @@ https://nytimes.com/2024/05/31/style/trump-verdict-tiktok-cohen.html
 `Michelle Troconis was convicted of several crimes in the killing of Jennifer Dulos, who disappeared five years ago and whose body has never been found.`\
 https://nytimes.com/2024/05/31/nyregion/michelle-troconis-murder-sentencing-connecticut.html
 
-**In Philadelphia, reaction to the verdict ranges from elation to frustration.**\
+**In Philadelphia, Trump verdict elicits both anxiety and satisfaction.**\
 `By Maya King`\
 https://nytimes.com/live/2024/05/31/nyregion/trump-news-guilty-verdict/in-philadelphia-reaction-to-the-verdict-ranges-from-elation-to-frustration
 
