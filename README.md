@@ -1,3 +1,11 @@
+**Trump’s Conviction Renews Push to Strip His Name From a New York Park**\
+`Legislative efforts to rename Donald J. Trump State Park in northern Westchester County have failed so far, but some lawmakers want to try again.`\
+https://nytimes.com/2024/05/31/nyregion/trump-park-taconic-ny.html
+
+**Jennifer Lopez Cancels Summer Tour**\
+`The singer and actress said she was “heartsick and devastated” about the decision, which comes on the heels of a hit Netflix movie and persistent rumors about her marriage.`\
+https://nytimes.com/2024/05/31/arts/music/jennifer-lopez-tour-canceled.html
+
 **Nora Cortiñas, 94, a Founder of Argentina’s Mothers of the ‘Disappeared,’ Dies**\
 `Ms. Cortiñas became a key member of a group of women whose children had been taken by the military dictatorship that led Argentina from 1976 to 1983.`\
 https://nytimes.com/2024/05/31/world/americas/nora-cortinas-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/31/us/politics/trump-trial-verdict-court.html
 **In the crucial swing state of North Carolina, divided voters agree on one thing: They are worried.**\
 `By Eduardo Medina`\
 https://nytimes.com/live/2024/05/31/nyregion/trump-news-guilty-verdict/in-the-crucial-swing-state-of-north-carolina-divided-voters-agree-on-one-thing-they-are-worried
-
-**Judge John Hodgman on Compulsory Game Nights**\
-`Can you enjoin your spouse to play a board game she has no interest in?`\
-https://nytimes.com/2024/05/31/magazine/judge-john-hodgman-on-compulsory-game-nights.html
-
-**Biden Reacts to Trump’s Guilty Verdict**\
-`President Biden said the verdict in Donald J. Trump’s trial reaffirmed “the American principle that no one is above the law,” and he criticized the former president and his allies for their complaints about the outcome.`\
-https://nytimes.com/video/us/politics/100000009498697/biden-trump-verdict.html
 
