@@ -1,3 +1,7 @@
+**Biden Endorses Israeli Cease-Fire Proposal**\
+`‘It’s time for this war to end’ said President Biden during his speech on Friday where he outlined a new three-phase proposal from the Israeli government which ideally would lead to a permanent cease-fire.`\
+https://nytimes.com/video/us/politics/100000009498035/biden-cease-fire.html
+
 **Seven Weeks, 22 Witnesses: Highlights From the Criminal Trial of Donald Trump**\
 `The former president was convicted of 34 felony counts of falsifying business records to cover up a sex scandal that threatened to derail his 2016 campaign.`\
 https://nytimes.com/2024/05/31/nyregion/trump-trial-highlights.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/nyregion/trump-trial-appeal.html
 **Trump Rails Against His Guilty Verdict, Claiming ‘Sick People’ Are Behind His Prosecution**\
 `The day after Donald J. Trump was convicted by a Manhattan jury, the former president stood inside Trump Tower on Friday and made a series of misleading statements about his trial.`\
 https://nytimes.com/2024/05/31/us/politics/trump-speech-guilty-verdict.html
-
-**Trump Is ‘Honored’ by a Verdict That Should Shame Him**\
-`A better human being might have expressed some remorse.`\
-https://nytimes.com/2024/05/28/opinion/trump-speech-verdict.html
 
