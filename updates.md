@@ -1,3 +1,7 @@
+**What’s the Best Advice You’ve Received About Fatherhood?**\
+`With Father’s Day around the corner, we’re looking for tips you’d like to pass on.`\
+https://nytimes.com/2024/05/31/well/family/advice-for-dads-callout.html
+
 **I Was Skeptical of the ‘Zombie’ Trump Case. I Stand Corrected.**\
 `The prosecutors convinced me — as they clearly and overwhelmingly convinced the jury.`\
 https://nytimes.com/2024/05/31/opinion/trump-trial-defense.html
