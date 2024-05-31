@@ -1,3 +1,11 @@
+**Trump’s campaign donor website crashes after guilty verdict.**\
+`Mr. Trump began soliciting donations off his felony conviction almost immediately after the verdict`\
+https://nytimes.com/2024/05/30/us/politics/trump-winred-crash-donations.html
+
+**Top Minnesota Democrats Call on State Senator Charged With Burglary to Resign**\
+`A Democratic state lawmaker was charged with burglary in April. Her fate could threaten a slim majority Democrats have in the Minnesota Senate.`\
+https://nytimes.com/2024/05/30/us/minnesota-democratic-senator-burglary.html
+
 **Here is the latest.**\
 `By Emily Schmall`\
 https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee/here-is-the-latest
