@@ -1,3 +1,7 @@
+**Trump Rails Against His Guilty Verdict, Claiming ‘Sick People’ Are Behind His Prosecution**\
+`The day after Donald J. Trump was convicted by a Manhattan jury, the former president stood inside Trump Tower on Friday and made a series of misleading statements about his trial.`\
+https://nytimes.com/2024/05/31/us/politics/trump-speech-guilty-verdict.html
+
 **Trump Is ‘Honored’ by a Verdict That Should Shame Him**\
 `A better human being might have expressed some remorse.`\
 https://nytimes.com/2024/05/28/opinion/trump-speech-verdict.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/dining/how-to-cook-steak.html
 **Manchin Becomes an Independent, Leaving Options Open for Another Run**\
 `The party switch was the culmination of a long breakup with the Democratic Party by the conservative senator from West Virginia.`\
 https://nytimes.com/2024/05/31/us/politics/joe-manchin-independent.html
-
-**Palestinian residents returning to Jabaliya in northern Gaza find wide devastation.**\
-`By Raja Abdulrahim`\
-https://nytimes.com/live/2024/05/31/world/israel-gaza-war-hamas-rafah/palestinian-residents-returning-to-jabaliya-in-northern-gaza-find-wide-devastation
 
