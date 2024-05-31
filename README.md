@@ -1,3 +1,11 @@
+**Transcript: Ezra Klein Interviews D. Graham Burnett**\
+`The May 31, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/05/31/podcasts/transcript-ezra-klein-interviews-d-graham-burnett.html
+
+**Fox News and MSNBC Notch Rating Wins After Trump’s Verdict**\
+`In prime time, MSNBC scored a rare Nielsen victory. Earlier, when the news broke, Fox News attracted the biggest live audience.`\
+https://nytimes.com/2024/05/31/business/media/trump-verdict-tv-ratings.html
+
 **Israel Pushes Deeper Into Rafah, but Gaza Exit Plan Remains Unclear**\
 `The Israeli military withdrew its forces from the northern town of Jabaliya in Gaza on Friday, leaving behind scenes of devastation, returning residents said.`\
 https://nytimes.com/2024/05/31/world/middleeast/israel-rafah-gaza-offensive.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/31/nyregion/trump-park-taconic-ny.html
 **Jennifer Lopez Cancels Summer Tour**\
 `The singer and actress said she was “heartsick and devastated” about the decision, which comes on the heels of a hit Netflix movie and persistent rumors about her marriage.`\
 https://nytimes.com/2024/05/31/arts/music/jennifer-lopez-tour-canceled.html
-
-**Nora Cortiñas, 94, a Founder of Argentina’s Mothers of the ‘Disappeared,’ Dies**\
-`Ms. Cortiñas became a key member of a group of women whose children had been taken by the military dictatorship that led Argentina from 1976 to 1983.`\
-https://nytimes.com/2024/05/31/world/americas/nora-cortinas-dead.html
-
-**A Wisconsin voter pauses on the idea of voting for a felon. But just for a moment.**\
-`The New York Times is interviewing people across multiple swing states.`\
-https://nytimes.com/live/2024/05/31/nyregion/trump-news-guilty-verdict/a-wisconsin-voter-pauses-on-the-idea-of-voting-for-a-felon-but-just-for-a-moment
 
