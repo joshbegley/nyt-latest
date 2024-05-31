@@ -1,3 +1,7 @@
+**The Conviction of Donald J. Trump**\
+`He is the first U.S. president, current or former, to be a felon.`\
+https://nytimes.com/2024/05/31/briefing/the-conviction-of-donald-j-trump.html
+
 **A Matter of Survival as South Asia’s Heat Wave Reaches 127 Degrees**\
 `Pakistan and India are sweltering. For laborers, not working because of the extreme temperatures can mean not eating.`\
 https://nytimes.com/2024/05/31/world/asia/pakistan-india-heat-wave.html
