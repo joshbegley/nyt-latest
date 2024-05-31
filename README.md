@@ -4,7 +4,7 @@ https://nytimes.com/2024/05/31/us/clarence-sasser-dead.html
 
 **Extraordinary Circumstances, Ordinary Due Process**\
 `Donald Trump’s New York trial played out in the midst of a presidential campaign, but despite claims from him and his allies that the proceedings were rigged, he had all the rights of any defendant.`\
-https://nytimes.com/2024/05/31/us/politics/extraordinary-circumstances-ordinary-due-process.html
+https://nytimes.com/2024/05/31/us/politics/trump-trial-verdict-court.html
 
 **In the crucial swing state of North Carolina, divided voters agree on one thing: They are worried.**\
 `By Eduardo Medina`\
