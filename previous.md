@@ -1,3 +1,7 @@
+**The Jury That Convicted Donald Trump**\
+`They heard weeks of testimony in Donald J. Trump’s criminal trial. Then the 12 New Yorkers who made up the jury stuck to the task at hand.`\
+https://nytimes.com/2024/05/30/nyregion/trump-trial-jury.html
+
 **Searching for Clues in the Polls About a Trump Conviction**\
 `He may not lose support at all, but he depends on the support of many young and nonwhite voters who haven’t voted for him in the past and who might be likelier to leave his side.`\
 https://nytimes.com/2024/05/30/upshot/polling-trump-verdict-conviction.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/30/us/politics/trump-winred-crash-donations.html
 **Top Minnesota Democrats Call on State Senator Charged With Burglary to Resign**\
 `A Democratic state lawmaker was charged with burglary in April. Her fate could threaten a slim majority Democrats have in the Minnesota Senate.`\
 https://nytimes.com/2024/05/30/us/minnesota-democratic-senator-burglary.html
-
-**Here is the latest.**\
-`By Emily Schmall`\
-https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee/here-is-the-latest
 

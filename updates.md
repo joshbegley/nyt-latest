@@ -1,3 +1,7 @@
+**The Jury That Convicted Donald Trump**\
+`They heard weeks of testimony in Donald J. Trump’s criminal trial. Then the 12 New Yorkers who made up the jury stuck to the task at hand.`\
+https://nytimes.com/2024/05/30/nyregion/trump-trial-jury.html
+
 **Searching for Clues in the Polls About a Trump Conviction**\
 `He may not lose support at all, but he depends on the support of many young and nonwhite voters who haven’t voted for him in the past and who might be likelier to leave his side.`\
 https://nytimes.com/2024/05/30/upshot/polling-trump-verdict-conviction.html
