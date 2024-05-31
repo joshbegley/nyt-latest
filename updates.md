@@ -1,3 +1,7 @@
+**On Live TV, a Historic Verdict Felt Both Enormous and Small**\
+`Donald Trump’s convictions made for a stunning moment of history, followed by hours of politics talk.`\
+https://nytimes.com/2024/05/31/arts/television/trump-trial-tv.html
+
 **Eminem Loses the Magic, and 10 More New Songs**\
 `Hear tracks by Clairo, Nathy Peluso, Nick Cave & the Bad Seeds and others.`\
 https://nytimes.com/2024/05/31/arts/music/playlist-eminem-clairo-shaboozey.html
