@@ -1,3 +1,15 @@
+**Donald Trump Was Convicted Here? Who Knew?**\
+`On Friday, the Manhattan Criminal Courthouse swiftly returned to processing mundane mayhem after weeks of intensity and chaos from former President Donald J. Trump’s trial.`\
+https://nytimes.com/2024/05/31/nyregion/trump-manhattan-courthouse.html
+
+**U.S. Agriculture Official Says Menendez Told Him to ‘Stop Interfering’**\
+`Jurors in Senator Robert Menendez’s bribery trial heard directly from a witness who recounted Mr. Menendez’s efforts to flex his political muscle.`\
+https://nytimes.com/2024/05/31/nyregion/robert-menendez-bribery-trial.html
+
+**The Trump Case May Come to Define Alvin Bragg. He Has Other Work to Do.**\
+`A day after winning what may be the most consequential trial in the history of the Manhattan district attorney’s office, Mr. Bragg was in a far quieter courtroom.`\
+https://nytimes.com/2024/05/31/nyregion/trump-conviction-alvin-bragg.html
+
 **The Ecstasy, Agony and Awkwardness of the Trump Conviction**\
 `The verdict is cold comfort for many on the left who worry it won’t change his front-runner status.`\
 https://nytimes.com/2024/05/31/us/politics/trump-conviction-reaction-election.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/31/movies/darryl-hickman-dead.html
 **Bracing for Start of Trial in Gun Case, Hunter Biden Is Squeezed for Money**\
 `The cash crunch could limit his ability to hire expert witnesses or other specialists for his legal defense, people close to the situation said.`\
 https://nytimes.com/2024/05/31/us/politics/hunter-biden-trial-money.html
-
-**Transcript: Ezra Klein Interviews D. Graham Burnett**\
-`The May 31, 2024, episode of “The Ezra Klein Show.”`\
-https://nytimes.com/2024/05/31/podcasts/transcript-ezra-klein-interviews-d-graham-burnett.html
-
-**Fox News and MSNBC Notch Rating Wins After Trump’s Verdict**\
-`In prime time, MSNBC scored a rare Nielsen victory. Earlier, when the news broke, Fox News attracted the biggest live audience.`\
-https://nytimes.com/2024/05/31/business/media/trump-verdict-tv-ratings.html
-
-**Israel Pushes Deeper Into Rafah, but Gaza Exit Plan Remains Unclear**\
-`The Israeli military withdrew its forces from the northern town of Jabaliya in Gaza on Friday, leaving behind scenes of devastation, returning residents said.`\
-https://nytimes.com/2024/05/31/world/middleeast/israel-rafah-gaza-offensive.html
 
