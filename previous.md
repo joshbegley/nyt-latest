@@ -1,6 +1,10 @@
+**Clarence Sasser, 76, Vietnam Medic Honored for Life-Saving Valor, Dies**\
+`A Medal of Honor recipient, he was repeatedly wounded in an ambush. Despite his injuries, he ran through gunfire and “swam” through mud to reach his comrades.`\
+https://nytimes.com/2024/05/31/us/clarence-sasser-dead.html
+
 **Extraordinary Circumstances, Ordinary Due Process**\
 `Donald Trump’s New York trial played out in the midst of a presidential campaign, but despite claims from him and his allies that the proceedings were rigged, he had all the rights of any defendant.`\
-https://nytimes.com/2024/05/31/us/politics/extraordinary-circumstances-ordinary-due-process.html
+https://nytimes.com/2024/05/31/us/politics/trump-trial-verdict-court.html
 
 **In the crucial swing state of North Carolina, divided voters agree on one thing: They are worried.**\
 `By Eduardo Medina`\
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009497555/trumps-conviction-brings-h
 **Trump’s Conviction Binds the G.O.P. Even Closer to Him**\
 `Prominent Republicans, including congressional leaders, ex-rivals and potential running mates, basked in the energy, and fund-raising, of an outraged base.`\
 https://nytimes.com/2024/05/31/us/politics/trump-conviction-gop-reaction.html
-
-**Jac Venza, Who Delivered Culture to Public Television, Dies at 97**\
-`By making entertainment as well as education part of its mission, he gave the world “American Masters,” “Great Performances” and other enduring programs.`\
-https://nytimes.com/2024/05/31/arts/television/jac-venza-dead.html
 
