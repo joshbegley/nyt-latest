@@ -12,7 +12,7 @@ https://nytimes.com/2024/05/31/arts/music/amplifier-newsletter-lilith-fair.html
 
 **‘It’s time for this war to end’ in Gaza, Biden says.**\
 `By Zolan Kanno-Youngs`\
-https://nytimes.com/live/2024/05/31/world/israel-gaza-war-hamas-rafah/biden-says-of-its-time-for-this-war-to-end-in-gaza
+https://nytimes.com/live/2024/05/31/world/israel-gaza-war-hamas-rafah/biden-israel-remarks-speech
 
 **Trump Says He Will Appeal, Setting Off a Long Legal Journey**\
 `New York’s appellate system could take years to dispose of the case. The speaker of the House said the Supreme Court should intercede.`\
