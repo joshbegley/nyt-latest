@@ -1,3 +1,9 @@
+**U.S. and Chinese Defense Chiefs Hold First in-Person Talks Since 2022**\
+`Lloyd J. Austin III is meeting his Chinese counterpart as both countries try to show they can manage their disputes over Taiwan and the South China Sea.`\
+https://nytimes.com/2024/05/31/world/asia/us-china-military-talks.html
+
+**Slovenia to recognize a Palestinian state, and other news.**\
+
 **Word of the Day: strenuous**\
 `This word has appeared in 79 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/05/31/learning/word-of-the-day-strenuous.html
