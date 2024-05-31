@@ -1,3 +1,7 @@
+**A Matter of Survival as South Asia’s Heat Wave Reaches 127 Degrees**\
+`Pakistan and India are sweltering. For laborers, not working because of the extreme temperatures can mean not eating.`\
+https://nytimes.com/2024/05/31/world/asia/pakistan-india-heat-wave.html
+
 **Guilty**\
 `Donald J. Trump was convicted on all 34 counts in Manhattan. This is what it was like inside the courtroom.`\
 https://nytimes.com/2024/05/31/podcasts/the-daily/trump-guilty.html

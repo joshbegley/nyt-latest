@@ -15,7 +15,7 @@ https://nytimes.com/2024/05/31/crosswords/connections-companion-356.html
 https://nytimes.com/2024/05/31/crosswords/wordle-review-1078.html
 
 **A Matter of Survival as South Asia’s Heat Wave Reaches 127 Degrees**\
-`Pakistan and India are sweltering. For the many laborers who can’t afford to miss a day’s pay, “It’s a choice between working and collapsing from the heat.”`\
+`Pakistan and India are sweltering. For laborers, not working because of the extreme temperatures can mean not eating.`\
 https://nytimes.com/2024/05/31/world/asia/pakistan-india-heat-wave.html
 
 **Inflation Ticks Up in the Eurozone**\
