@@ -1,3 +1,7 @@
+**The Ecstasy, Agony and Awkwardness of the Trump Conviction**\
+`The verdict is cold comfort for many on the left who worry it won’t change his front-runner status.`\
+https://nytimes.com/2024/05/31/us/politics/trump-conviction-reaction-election.html
+
 **Prosecutors Try Again to Limit Trump’s Statements in Documents Case**\
 `After having an earlier motion rejected on procedural grounds, the special counsel’s office made a new appeal to the judge to bar the former president from attacking F.B.I. agents in the case.`\
 https://nytimes.com/2024/05/31/us/politics/trump-fbi-agents-documents-case.html
