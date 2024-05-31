@@ -1,3 +1,11 @@
+**Two Killed in Shooting in Minneapolis**\
+`Two police officers were also injured after a person opened fire south of downtown on Thursday, the authorities said.`\
+https://nytimes.com/2024/05/30/us/minneapolis-shooting-officers-injured.html
+
+**Convicted, Trump Blames Judge, Jury and a Country ‘Gone to Hell’**\
+`Moments after a jury found him guilty, Donald J. Trump worked his conviction into the story of persecution at the center of his presidential campaign.`\
+https://nytimes.com/2024/05/30/us/politics/donald-trump-trial-conviction.html
+
 **Select All Images With Bicycles**\
 `Aidan Deshong captures our hearts with a lively yet accessible Friday puzzle.`\
 https://nytimes.com/2024/05/30/crosswords/daily-puzzle-2024-05-31.html

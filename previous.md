@@ -1,3 +1,11 @@
+**Two Killed in Shooting in Minneapolis**\
+`Two police officers were also injured after a person opened fire south of downtown on Thursday, the authorities said.`\
+https://nytimes.com/2024/05/30/us/minneapolis-shooting-officers-injured.html
+
+**Convicted, Trump Blames Judge, Jury and a Country ‘Gone to Hell’**\
+`Moments after a jury found him guilty, Donald J. Trump worked his conviction into the story of persecution at the center of his presidential campaign.`\
+https://nytimes.com/2024/05/30/us/politics/donald-trump-trial-conviction.html
+
 **Select All Images With Bicycles**\
 `Aidan Deshong captures our hearts with a lively yet accessible Friday puzzle.`\
 https://nytimes.com/2024/05/30/crosswords/daily-puzzle-2024-05-31.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/30/us/politics/trump-convicted-election-republicans.
 **Hopeful Yet Cautious, Biden’s Team Aims to Exploit Trump’s Conviction**\
 `The verdict in Manhattan gave the president and his allies a new way to frame the race: a choice between someone who is a felon and someone who is not.`\
 https://nytimes.com/2024/05/30/us/politics/biden-trump-verdict.html
-
-**A Historic Verdict Made for Riveting TV. Then the Punditry Began.**\
-`Every major TV network broke in to daytime programming to present a rare moment of political and legal suspense.`\
-https://nytimes.com/2024/05/30/business/media/trump-verdict-media-coverage.html
-
-**Inside the Courthouse Where Trump Was Convicted**\
-`A special report.`\
-https://nytimes.com/2024/05/30/podcasts/inside-the-courtroom-where-trump-was-convicted.html
 
