@@ -1,3 +1,7 @@
+**Johnson Says Supreme Court Should Step In to Overturn Trump’s Conviction**\
+`Speaking to Fox News, Speaker Mike Johnson, a steadfast supporter of former President Donald J. Trump, also boasted about the National Republican Campaign Committee’s fund-raising numbers.`\
+https://nytimes.com/2024/05/31/nyregion/mike-johnson-trump-conviction.html
+
 **The Best Gifts for Teachers**\
 `According to teachers.`\
 https://nytimes.com/interactive/2024/05/31/smarter-living/wirecutter/teacher-gifts.html

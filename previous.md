@@ -26,9 +26,9 @@ https://nytimes.com/2024/05/31/world/asia/birubala-rabha-dead.html
 `Hamdi Ulukaya called the craft brewer, said to be the country’s oldest, a “grand jewel.” Anchor’s former owner, Sapporo, put it into liquidation last year, citing the effects of the pandemic.`\
 https://nytimes.com/2024/05/31/business/anchor-hamdi-ulukaya-chobani-ceo.html
 
-**Johnson says the Supreme Court should step in to overturn Trump’s conviction.**\
-`By Luke Broadwater`\
-https://nytimes.com/2024/05/31/nyregion/johnson-says-the-supreme-court-should-step-in-to-overturn-trumps-conviction.html
+**Johnson Says Supreme Court Should Step In to Overturn Trump’s Conviction**\
+`Speaking to Fox News, Speaker Mike Johnson, a steadfast supporter of former President Donald J. Trump, also boasted about the National Republican Campaign Committee’s fund-raising numbers.`\
+https://nytimes.com/2024/05/31/nyregion/mike-johnson-trump-conviction.html
 
 **On the Brazilian Coast, a Tropical Town Beloved by Artists and Makers**\
 `A guide to Paraty, on the Costa Verde, with tips on where to stay, shop and island hop from the artist Vik Muniz and four other insiders.`\
