@@ -23,7 +23,7 @@ https://nytimes.com/2024/05/31/t-magazine/paraty-brazil-travel-guide.html
 https://nytimes.com/2024/05/31/arts/music/amplifier-newsletter-lilith-fair.html
 
 **‘It’s time for this war to end’ in Gaza, Biden says.**\
-`By Zolan Kanno-Youngs`\
+`By Zolan Kanno-Youngs and David E. Sanger`\
 https://nytimes.com/live/2024/05/31/world/israel-gaza-war-hamas-rafah/biden-israel-remarks-speech
 
 **Trump Says He Will Appeal, Setting Off a Long Legal Journey**\
