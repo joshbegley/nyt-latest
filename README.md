@@ -1,3 +1,11 @@
+**‘Trump Lost His Trial. American Justice Won.’**\
+`Readers offer a range of reactions and reflections.`\
+https://nytimes.com/2024/05/31/opinion/letters/donald-trump-trial-conviction.html
+
+**Trump Announces $34.8 Million Fund-Raising Haul After Guilty Verdict**\
+`Cash has been one of President Biden’s advantages so far in 2024, and post-conviction money will help Mr. Trump close the gap with the Democratic incumbent.`\
+https://nytimes.com/2024/05/31/us/politics/trump-fundraising-verdict.html
+
 **What the Nation Needs to Hear from Trump (but Won’t)**\
 `Instead, he will probably ask his supporters to join him in outrage.`\
 https://nytimes.com/live/2024/05/28/opinion/thepoint/trump-remarks-verdict-guilty
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/05/31/realestate/luxury/nyc-home-sales.html
 **Inflation Remains Steady, With Signs of Further Cooling**\
 `The Federal Reserve has been waiting for firmer evidence that rapid price increases are behind it.`\
 https://nytimes.com/2024/05/31/business/inflation-pce-federal-reserve.html
-
-**Wait, We’ve Been Flying the Flag the Alitos Had? San Francisco Takes It Down.**\
-`Critics slammed Justice Samuel A. Alito Jr. after the “Appeal to Heaven” flag was flown outside his vacation home, but it had billowed in the heart of San Francisco for 60 years.`\
-https://nytimes.com/2024/05/31/us/san-francisco-flag-alito.html
-
-**Institute of Contemporary Art, Los Angeles Plans an Upgrade**\
-`The downtown museum will purchase its building, incorporate artist residencies and add a cafe that will have a collaborative twist.`\
-https://nytimes.com/2024/05/31/arts/design/institute-of-contemporary-art-los-angeles-upgrade.html
 
