@@ -1,3 +1,7 @@
+**Friday Briefing**\
+`Good morning. We’re covering the verdict in Donald Trump’s criminal trial and U.S. permission for Ukraine to use American weapons inside Russia.`\
+https://nytimes.com/2024/05/31/briefing/trump-guilty-verdict-ukraine-us-weapons.html
+
 **OPEC to Meet Amid Signs of Waning Influence on Oil Prices**\
 `Major producers, including Saudi Arabia and Russia, are set to gather virtually on Sunday. They are expected to maintain production cuts amid signs of a softening market.`\
 https://nytimes.com/2024/05/31/business/opec-meeting-oil-prices.html
