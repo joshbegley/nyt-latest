@@ -1,3 +1,7 @@
+**At a Moment of National Trauma, Biden Feels Compelled to Stay on the Sidelines**\
+`While presidents typically play a pastoral role after court cases that tear at the national fabric, the incumbent was effectively conflicted out.`\
+https://nytimes.com/2024/05/31/us/politics/biden-trump-guilty-verdict.html
+
 **Borussia Dortmund and the Idea That Anything Is Possible**\
 `Can an underdog still have its day in the Champions League? The sport should hope so.`\
 https://nytimes.com/2024/05/31/world/europe/champions-league-final-dortmund-madrid.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/arts/design/institute-of-contemporary-art-los-ang
 **Fixing Social Security Is an Election Issue Nobody Talks About**\
 `A small tax increase would make the essential national retirement program secure for decades, our columnist says, but lawmakers would have to take action.`\
 https://nytimes.com/2024/05/31/business/social-security-election-trust-funds.html
-
-**Catalina Island Scraps Plan to Shoot 2,000 Deer From Helicopters**\
-`Officials of the conservancy that owns most of the island say they will try other ways to remove nonnative deer that are harming the ecosystem.`\
-https://nytimes.com/2024/05/31/us/santa-catalina-island-deer.html
 
