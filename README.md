@@ -1,3 +1,7 @@
+**‘Doctor Who’ Episode 5 Recap: Bursting the Bubble**\
+`The Doctor saves a rich wannabe vlogger from being eaten by a giant slug, but a final twist leaves him reeling.`\
+https://nytimes.com/2024/05/31/arts/television/doctor-who-episode-5-recap.html
+
 **For Trump, a Deflating Blow, and Then a Bounce Back**\
 `A day after Donald J. Trump left the courthouse shellshocked, he emerged on his home turf revitalized and railing against his rivals.`\
 https://nytimes.com/2024/05/31/us/politics/donald-trump-trial-conviction-campaign.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/us/politics/trump-fbi-agents-documents-case.html
 **Marian Robinson, Michelle Obama’s Mother, Dies at 86**\
 `Her death was announced in a statement by Barack Obama, Michelle Obama and other members of the family.`\
 https://nytimes.com/2024/05/31/us/marian-robinson-dead.html
-
-**Six Injured in Stabbing in Germany**\
-`A police officer and an anti-Islamist activist were among the victims, according to the authorities, who have not released information on a motive.`\
-https://nytimes.com/2024/05/31/world/europe/activist-officer-stabbing-germany.html
 
