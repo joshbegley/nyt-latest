@@ -1,3 +1,7 @@
+**Big Ticket: N.Y.’s Top Sales and Listings in May**\
+`May's top listings included Drew Barrymore's estate in the Hamptons.`\
+https://nytimes.com/interactive/2024/05/31/realestate/luxury/nyc-home-sales.html
+
 **Inflation Remains Steady, With Signs of Further Cooling**\
 `The Federal Reserve has been waiting for firmer evidence that rapid price increases are behind it.`\
 https://nytimes.com/2024/05/31/business/inflation-remains-steady-with-signs-of-further-cooling.html
