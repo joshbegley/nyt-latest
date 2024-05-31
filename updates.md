@@ -1,3 +1,7 @@
+**Johnson says the Supreme Court should step in to overturn Trump’s conviction.**\
+`By Luke Broadwater`\
+https://nytimes.com/live/2024/05/31/nyregion/trump-news-guilty-verdict/johnson-says-the-supreme-court-should-step-in-to-overturn-trumps-conviction
+
 **On the Brazilian Coast, a Tropical Town Beloved by Artists and Makers**\
 `A guide to Paraty, on the Costa Verde, with tips on where to stay, shop and island hop from the artist Vik Muniz and four other insiders.`\
 https://nytimes.com/2024/05/31/t-magazine/paraty-brazil-travel-guide.html
