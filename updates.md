@@ -1,3 +1,7 @@
+**Trump Media Stock Falls After Guilty Verdict**\
+`Shares of the Truth Social parent began to slip immediately after former President Donald Trump, the company’s largest investor, was convicted in his hush-money trial.`\
+https://nytimes.com/2024/05/31/business/trump-media-stock-falls-after-guilty-verdict.html
+
 **Israel’s push into central Rafah defies international pressure.**\
 `By Aaron Boxerman and Lauren Leatherby`\
 https://nytimes.com/live/2024/05/31/world/israel-gaza-war-hamas-rafah/israels-push-into-central-rafah-defies-international-pressure

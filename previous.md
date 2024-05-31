@@ -1,3 +1,7 @@
+**Trump Media Stock Falls After Guilty Verdict**\
+`Shares of the Truth Social parent began to slip immediately after former President Donald Trump, the company’s largest investor, was convicted in his hush-money trial.`\
+https://nytimes.com/2024/05/31/business/trump-media-stock-falls-after-guilty-verdict.html
+
 **Israel’s push into central Rafah defies international pressure.**\
 `By Aaron Boxerman and Lauren Leatherby`\
 https://nytimes.com/live/2024/05/31/world/israel-gaza-war-hamas-rafah/israels-push-into-central-rafah-defies-international-pressure
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/world/asia/pakistan-india-heat-wave.html
 **Inflation Ticks Up in the Eurozone**\
 `Consumer prices rose 2.6 percent in the year through May, slightly higher than expected. Still, the European Central Bank seems prepared to cut interest rates next week.`\
 https://nytimes.com/2024/05/31/business/eurozone-inflation-may.html
-
-**How Many Americans Will Rationalize Voting for a Felon?**\
-`Three Opinion writers on the Donald Trump hush-money verdict.`\
-https://nytimes.com/2024/05/31/opinion/donald-trump-guilty-jail-stormy-daniels.html
 
