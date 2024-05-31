@@ -1,3 +1,7 @@
+**Inflation Ticks Up in the Eurozone**\
+`Consumer prices rose 2.6 percent in the year through May, slightly higher than expected. Still, the European Central Bank seems prepared to cut interest rates next week.`\
+https://nytimes.com/2024/05/31/business/eurozone-inflation-may.html
+
 **How Many Americans Will Rationalize Voting for a Felon?**\
 `Three Opinion writers on the Donald Trump hush-money verdict.`\
 https://nytimes.com/2024/05/31/opinion/donald-trump-guilty-jail-stormy-daniels.html
