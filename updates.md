@@ -1,3 +1,7 @@
+**Trump Guilty on All Counts in Hush-Money Case**\
+`Donald J. Trump was convicted on 34 felony counts of falsifying records to cover up a sex scandal that threatened his ascent to the White House in 2016. Jonah Bromwich, a criminal justice reporter at The New York Times, gives his takeaways.`\
+https://nytimes.com/video/nyregion/100000009496841/trump-guilty-on-all-counts-in-hush-money-case.html
+
 **Here are a few key moments, and words, from this year’s Scripps spelling bee.**\
 `Desmotrope and apophasis were among the onerous terms that dashed dreams of a championship win.`\
 https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee/here-are-a-few-key-moments-and-words-from-this-years-scripps-spelling-bee
