@@ -1,3 +1,7 @@
+**Electricity From Coal Is Pricey. Should Consumers Have to Pay?**\
+`Environmental groups are making a new economic argument against coal, the heaviest polluting fossil fuel. Some regulators are listening.`\
+https://nytimes.com/2024/05/31/climate/electricity-from-coal-is-pricey-should-consumers-have-to-pay.html
+
 **Why Trump Couldn’t Pardon Himself in Hush-Money Case if Re-Elected**\
 `Donald J. Trump is now a felon in New York State, and presidential pardon power does not extend to state cases.`\
 https://nytimes.com/2024/05/31/nyregion/donald-trump-pardon-himself.html
