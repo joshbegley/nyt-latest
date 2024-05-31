@@ -1,3 +1,7 @@
+**Chobani Yogurt Founder Buys Anchor Brewing Company**\
+`Hamdi Ulukaya called the craft brewer, said to be the country’s oldest, a “grand jewel.” Anchor’s former owner, Sapporo, put it into liquidation last year, citing the effects of the pandemic.`\
+https://nytimes.com/2024/05/31/business/anchor-hamdi-ulukaya-chobani-ceo.html
+
 **Johnson says the Supreme Court should step in to overturn Trump’s conviction.**\
 `By Luke Broadwater`\
 https://nytimes.com/live/2024/05/31/nyregion/trump-news-guilty-verdict/johnson-says-the-supreme-court-should-step-in-to-overturn-trumps-conviction
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/style/bridgerton-nicola-coughlan-fatphobia.html
 **News Organizations Cut Away From Trump’s Misleading Speech**\
 `It was the latest example of journalists having to weigh the news value of a major political moment against the challenges of reporting on a candidate who regularly speaks in falsehoods.`\
 https://nytimes.com/2024/05/31/business/media/cnn-nbc-trump-speech.html
-
-**The Big Number: $6 Billion**\
-`Elon Musk’s artificial intelligence company, xAI, announced last Sunday that it had raised $6 billion, which would go toward developing new products and research and development efforts.`\
-https://nytimes.com/interactive/2024/05/31/business/elon-musk-artificial-intelligence.html
 
