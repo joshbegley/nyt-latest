@@ -1,3 +1,11 @@
+**Chobani Yogurt Founder Buys Anchor Brewing Company**\
+`Hamdi Ulukaya called the craft brewer, said to be the country’s oldest, a “grand jewel.” Anchor’s former owner, Sapporo, put it into liquidation last year, citing the effects of the pandemic.`\
+https://nytimes.com/2024/05/31/business/anchor-hamdi-ulukaya-chobani-ceo.html
+
+**‘It’s time for this war to end’ in Gaza, Biden says.**\
+`By Zolan Kanno-Youngs`\
+https://nytimes.com/live/2024/05/31/world/israel-gaza-war-hamas-rafah/biden-israel-remarks-speech
+
 **Johnson says the Supreme Court should step in to overturn Trump’s conviction.**\
 `By Luke Broadwater`\
 https://nytimes.com/live/2024/05/31/nyregion/trump-news-guilty-verdict/johnson-says-the-supreme-court-should-step-in-to-overturn-trumps-conviction
