@@ -1,3 +1,11 @@
+**Woman Sentenced to 14 Years in Death of Connecticut Mother Who Vanished**\
+`Michelle Troconis was convicted of several crimes in the killing of Jennifer Dulos, who disappeared five years ago and whose body has never been found.`\
+https://nytimes.com/2024/05/31/nyregion/michelle-troconis-murder-sentencing-connecticut.html
+
+**In Philadelphia, reaction to the verdict ranges from elation to frustration.**\
+`By Maya King`\
+https://nytimes.com/live/2024/05/31/nyregion/trump-news-guilty-verdict/in-philadelphia-reaction-to-the-verdict-ranges-from-elation-to-frustration
+
 **Trump’s Conviction Brings Him Into a ‘New World’**\
 `Donald J. Trump’s historic felony convictions may not alter the presidential race right now, but they have punctured his sense of invincibility in a courtroom, The New York Times’s Maggie Haberman explains.`\
 https://nytimes.com/video/us/politics/100000009497555/trumps-conviction-brings-him-into-a-new-world.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/31/us/ivf-vote-southern-baptists.html
 **Bird Flu Doesn’t Have to Become History’s Most Avoidable Disaster**\
 `If we don’t test for H5N1, we won’t find it.`\
 https://nytimes.com/live/2024/05/28/opinion/thepoint/bird-flu-michigan
-
-**Vermont to Require Fossil-Fuel Companies to Pay for Climate Damage**\
-`Under the country’s first “climate superfund” law, Vermont will charge large emitters for climate-related damage to the state.`\
-https://nytimes.com/2024/05/31/climate/vermont-law-fossil-fuel-climate-damage.html
-
-**The Best Gifts for Teachers**\
-`According to teachers.`\
-https://nytimes.com/interactive/2024/05/31/smarter-living/wirecutter/teacher-gifts.html
 
