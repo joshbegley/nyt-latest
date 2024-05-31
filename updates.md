@@ -1,3 +1,7 @@
+**F.D.A.’s Review of MDMA Cites Health Risks and Study Flaws**\
+`The agency’s staff analysis suggests that approval of the illegal drug known as Ecstasy for treatment of PTSD is far from certain, with advisers meeting next week to consider the proposed therapy.`\
+https://nytimes.com/2024/05/31/health/mdma-fda-ptsd-treatment.html
+
 **How Partisan Media Outlets Covered Trump’s Guilty Verdict**\
 `Conservative outlets blasted former President Donald J. Trump’s criminal conviction as a sham, while liberal outlets divided on the import.`\
 https://nytimes.com/2024/05/31/business/media/trump-verdict-media-coverage.html
