@@ -1,3 +1,11 @@
+**Quote of the Day:**\
+`Quotation of the Day for Friday, May 31, 2024`\
+https://nytimes.com/2024/05/30/pageoneplus/quote-of-the-day.html
+
+**Quote of the Day: 14 Convicted of Subversion in Hong Kong**\
+`Quotation of the Day for Friday, May 31, 2024.`\
+https://nytimes.com/2024/05/30/pageoneplus/quote-of-the-day-14-convicted-of-subversion-in-hong-kong.html
+
 **A 7th Grader’s Electric Tiebreaking Performance Earns Spelling Bee Championship**\
 `Bruhat Soma spelled a stunning 29 words correctly in a 90-second spell-off to win the Scripps National Spelling Bee.`\
 https://nytimes.com/2024/05/30/us/bruhat-soma-spelling-bee-champion.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/30/crosswords/daily-puzzle-2024-05-31.html
 **‘The Jury Has Spoken’: Manhattan D.A. Speaks After Trump Guilty Verdict**\
 `The district attorney, Alvin L. Bragg, became the first prosecutor to bring a criminal case against a United States president. On Thursday, he won.`\
 https://nytimes.com/2024/05/30/nyregion/alvin-bragg-trump-trial.html
-
-**The Jury That Convicted Donald Trump**\
-`They heard weeks of testimony in Donald J. Trump’s criminal trial. Then the 12 New Yorkers who made up the jury stuck to the task at hand.`\
-https://nytimes.com/2024/05/30/nyregion/trump-trial-jury.html
-
-**Will It Matter? Searching for Clues in the Polls About a Trump Conviction.**\
-`He may not lose support at all, but recent backing from young and nonwhite voters might be likelier to fade.`\
-https://nytimes.com/2024/05/30/upshot/polling-trump-verdict-conviction.html
 
