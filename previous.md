@@ -10,7 +10,7 @@ https://nytimes.com/2024/05/30/us/politics/biden-trump-verdict.html
 `Every major TV network broke in to daytime programming to present a rare moment of political and legal suspense.`\
 https://nytimes.com/2024/05/30/business/media/trump-verdict-media-coverage.html
 
-**Inside the Courtroom Where Trump Was Convicted**\
+**Inside the Courthouse Where Trump Was Convicted**\
 `A special report.`\
 https://nytimes.com/2024/05/30/podcasts/inside-the-courtroom-where-trump-was-convicted.html
 

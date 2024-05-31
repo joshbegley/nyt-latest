@@ -1,3 +1,7 @@
+**Inside the Courthouse Where Trump Was Convicted**\
+`A special report.`\
+https://nytimes.com/2024/05/30/podcasts/inside-the-courtroom-where-trump-was-convicted.html
+
 **The Dark Rhetoric After Trump’s Conviction**\
 `The former president sought to weaponize the verdict to undermine trust in the justice system.`\
 https://nytimes.com/2024/05/30/us/politics/trump-convicted-election-republicans.html
