@@ -1,3 +1,7 @@
+**Israel Pushes Deeper Into Rafah, but Gaza Exit Plan Remains Unclear**\
+`The Israeli military withdrew its forces from the northern town of Jabaliya in Gaza on Friday, leaving behind scenes of devastation, returning residents said.`\
+https://nytimes.com/2024/05/31/world/middleeast/israel-rafah-gaza-offensive.html
+
 **Congressional Leaders, Divided Over War, Invite Netanyahu to Deliver Joint Address**\
 `The bipartisan invitation masked political divisions over the prime minister’s handling of the war against Hamas, including the recent attacks he has orchestrated in Rafah.`\
 https://nytimes.com/2024/05/31/us/politics/israel-netanyahu-congress.html

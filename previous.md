@@ -1,3 +1,7 @@
+**Israel Pushes Deeper Into Rafah, but Gaza Exit Plan Remains Unclear**\
+`The Israeli military withdrew its forces from the northern town of Jabaliya in Gaza on Friday, leaving behind scenes of devastation, returning residents said.`\
+https://nytimes.com/2024/05/31/world/middleeast/israel-rafah-gaza-offensive.html
+
 **Congressional Leaders, Divided Over War, Invite Netanyahu to Deliver Joint Address**\
 `The bipartisan invitation masked political divisions over the prime minister’s handling of the war against Hamas, including the recent attacks he has orchestrated in Rafah.`\
 https://nytimes.com/2024/05/31/us/politics/israel-netanyahu-congress.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/world/americas/nora-cortinas-dead.html
 **A Wisconsin voter pauses on the idea of voting for a felon. But just for a moment.**\
 `The New York Times is interviewing people across multiple swing states.`\
 https://nytimes.com/live/2024/05/31/nyregion/trump-news-guilty-verdict/a-wisconsin-voter-pauses-on-the-idea-of-voting-for-a-felon-but-just-for-a-moment
-
-**What’s the Best Advice You’ve Received About Fatherhood?**\
-`With Father’s Day around the corner, we’re looking for tips you’d like to pass on.`\
-https://nytimes.com/2024/05/31/well/family/advice-for-dads-callout.html
 
