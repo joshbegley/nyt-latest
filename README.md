@@ -1,3 +1,11 @@
+**A Historic Verdict Made for Riveting TV. Then the Punditry Began.**\
+`Every major TV network broke in to daytime programming to present a rare moment of political and legal suspense.`\
+https://nytimes.com/2024/05/30/business/media/trump-verdict-media-coverage.html
+
+**Inside the Courtroom Where Trump Was Convicted**\
+`A special report.`\
+https://nytimes.com/2024/05/30/podcasts/inside-the-courtroom-where-trump-was-convicted.html
+
 **Trump’s campaign donor website crashes after guilty verdict.**\
 `Mr. Trump began soliciting donations off his felony conviction almost immediately after the verdict`\
 https://nytimes.com/2024/05/30/us/politics/trump-winred-crash-donations.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/05/30/nyregion/stormy-daniels-karen-mcdougal-trump.html
 **Trump Had Good Fortune So Far With His Four Cases. Then Came a Verdict.**\
 `Until the jury’s decision on Thursday, the four criminal cases that threatened Donald Trump’s freedom were stumbling along, pleasing his advisers.`\
 https://nytimes.com/2024/05/30/us/politics/trump-verdict-analysis.html
-
-**Champion habits to spell S-U-C-C-E-S-S.**\
-`The spellers who get to the final round of the Scripps National Spelling Bee need more than just an affinity for words. Here’s what the coaches have to say.`\
-https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee/champion-habits-to-spell-s-u-c-c-e-s-s
-
-**Trump Reacts to Guilty Verdict**\
-`Donald J. Trump was convicted on Thursday of falsifying records to cover up a sex scandal that threatened to derail his 2016 presidential campaign.`\
-https://nytimes.com/video/us/politics/100000009496730/trump-trial-verdict.html
 
