@@ -1,3 +1,15 @@
+**Six Injured in Stabbing in Germany**\
+`A police officer and an anti-Islamist activist were among the victims, according to the authorities, who have not released information on a motive.`\
+https://nytimes.com/2024/05/31/world/europe/activist-officer-stabbing-germany.html
+
+**Texas Supreme Court Rejects Challenge on Exceptions to Abortion Ban**\
+`The court on Friday unanimously reversed a ruling that had expanded the definition of what counts as a medical emergency under the state’s strict abortion ban.`\
+https://nytimes.com/2024/05/31/us/texas-abortion-ban-supreme-court.html
+
+**Darryl Hickman, Prolific Child Actor of the 1940s, Dies at 92**\
+`He was in “The Grapes of Wrath” and other films. As an adult, he was seen often on TV. He later oversaw daytime programming at CBS and taught acting.`\
+https://nytimes.com/2024/05/31/movies/darryl-hickman-dead.html
+
 **Bracing for Start of Trial in Gun Case, Hunter Biden Is Squeezed for Money**\
 `The cash crunch could limit his ability to hire expert witnesses or other specialists for his legal defense, people close to the situation said.`\
 https://nytimes.com/2024/05/31/us/politics/hunter-biden-trial-money.html

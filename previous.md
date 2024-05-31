@@ -1,3 +1,15 @@
+**Six Injured in Stabbing in Germany**\
+`A police officer and an anti-Islamist activist were among the victims, according to the authorities, who have not released information on a motive.`\
+https://nytimes.com/2024/05/31/world/europe/activist-officer-stabbing-germany.html
+
+**Texas Supreme Court Rejects Challenge on Exceptions to Abortion Ban**\
+`The court on Friday unanimously reversed a ruling that had expanded the definition of what counts as a medical emergency under the state’s strict abortion ban.`\
+https://nytimes.com/2024/05/31/us/texas-abortion-ban-supreme-court.html
+
+**Darryl Hickman, Prolific Child Actor of the 1940s, Dies at 92**\
+`He was in “The Grapes of Wrath” and other films. As an adult, he was seen often on TV. He later oversaw daytime programming at CBS and taught acting.`\
+https://nytimes.com/2024/05/31/movies/darryl-hickman-dead.html
+
 **Bracing for Start of Trial in Gun Case, Hunter Biden Is Squeezed for Money**\
 `The cash crunch could limit his ability to hire expert witnesses or other specialists for his legal defense, people close to the situation said.`\
 https://nytimes.com/2024/05/31/us/politics/hunter-biden-trial-money.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/05/31/us/navy-admiral-arrested-bribery-scheme.html
 **What we know about the latest Israeli cease-fire proposal.**\
 `By Jesus Jiménez and Aaron Boxerman`\
 https://nytimes.com/live/2024/05/31/world/israel-gaza-war-hamas-rafah/what-we-know-about-the-latest-israeli-cease-fire-proposal
-
-**Six of Trump’s Dumbest Trial Mistakes**\
-`The problem with having a volcanic egotist as a client.`\
-https://nytimes.com/live/2024/05/28/opinion/thepoint/trump-trial-mistakes
-
-**After a Guilty Verdict, Trump Shifted to Campaign Mode**\
-`Also, Biden endorsed Israel’s cease-fire proposal. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2024/05/31/briefing/trump-verdict-response-biden-cease-fire.html
-
-**Trump’s Conviction Renews Push to Strip His Name From a New York Park**\
-`Legislative efforts to rename Donald J. Trump State Park in northern Westchester County have failed so far, but some lawmakers want to try again.`\
-https://nytimes.com/2024/05/31/nyregion/trump-park-taconic-ny.html
 
