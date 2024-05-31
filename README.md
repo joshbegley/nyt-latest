@@ -31,7 +31,7 @@ https://nytimes.com/2024/05/30/insider/popcast-deluxe-podcast.html
 https://nytimes.com/live/2024/05/30/us/scripps-spelling-bee/here-are-the-eight-finalists
 
 **Transcript of Trump Manhattan Trial, May 29, 2024**\
-`New York State’s court system is releasing transcripts from each day of the Manhattan criminal trial against former President Donald J. Trump.`\
+`Update on May 30: New York State’s court released transcripts from each day of the Manhattan criminal trial of former President Donald J. Trump, who was convicted on 34 counts of falsifying business records to cover up a sex scandal that threatened to derail his 2016 presidential campaign.`\
 https://nytimes.com/interactive/2024/05/30/nyregion/trump-hush-money-trial-transcript-may-29.html
 
 **The Trump Conviction: How an 8-Year Reporting Trail Connected the Dots**\
