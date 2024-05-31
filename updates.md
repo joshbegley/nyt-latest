@@ -1,3 +1,7 @@
+**Prosecutors Try Again to Limit Trump’s Statements in Documents Case**\
+`After having an earlier motion rejected on procedural grounds, the special counsel’s office made a new appeal to the judge to bar the former president from attacking F.B.I. agents in the case.`\
+https://nytimes.com/2024/05/31/us/politics/trump-fbi-agents-documents-case.html
+
 **Marian Robinson, Michelle Obama’s Mother, Dies at 86**\
 `Her death was announced in a statement by Barack Obama, Michelle Obama and other members of the family.`\
 https://nytimes.com/2024/05/31/us/marian-robinson-dead.html
