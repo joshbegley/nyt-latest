@@ -1,3 +1,7 @@
+**‘Furiosa’ | Anatomy of a Scene**\
+`The director George Miller narrates a sequence from his film featuring Anya Taylor-Joy and Tom Burke.`\
+https://nytimes.com/video/movies/100000009497568/furiosa-scene.html
+
 **California Man Accused in Slingshot Vandalism Dies at 81**\
 `Prince King, who was arrested last week, had faced five felony vandalism charges in Azusa, Calif.`\
 https://nytimes.com/2024/05/31/us/serial-slingshot-shooter-dead.html

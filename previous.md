@@ -1,3 +1,7 @@
+**‘Furiosa’ | Anatomy of a Scene**\
+`The director George Miller narrates a sequence from his film featuring Anya Taylor-Joy and Tom Burke.`\
+https://nytimes.com/video/movies/100000009497568/furiosa-scene.html
+
 **California Man Accused in Slingshot Vandalism Dies at 81**\
 `Prince King, who was arrested last week, had faced five felony vandalism charges in Azusa, Calif.`\
 https://nytimes.com/2024/05/31/us/serial-slingshot-shooter-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/science/largest-genome-fern-plant.html
 **My Simplest Grilled Salmon, a Summertime Staple**\
 `With orzo salad and a heavy pitcher of lemonade, that’s dinner tonight. Tomorrow’s breakfast: Jordan Marsh’s blueberry muffins.`\
 https://nytimes.com/2024/05/31/dining/my-simplest-grilled-salmon-a-summertime-staple.html
-
-**Overlooked No More: Hansa Mehta, Who Fought for Women’s Equality in India and Beyond**\
-`For Mehta, women’s rights were human rights, and in all her endeavors she took women’s participation in public and political realms to new heights.`\
-https://nytimes.com/2024/05/31/obituaries/hansa-mehta-overlooked.html
 
