@@ -1,3 +1,7 @@
+**Building a Tractor-Trailer Fit for ‘Furiosa’**\
+`Members of the creative team explain what it took to turn the War Rig into “a beautiful chrome stage.”`\
+https://nytimes.com/2024/05/31/movies/mad-max-furiosa-war-rig.html
+
 **Big Ticket: N.Y.’s Top Sales and Listings in May**\
 `May's top listings included Drew Barrymore's estate in the Hamptons.`\
 https://nytimes.com/interactive/2024/05/31/realestate/luxury/nyc-home-sales.html
