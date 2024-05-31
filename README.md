@@ -1,3 +1,11 @@
+**Jac Venza, Who Delivered Culture to Public Television, Dies at 97**\
+`By making entertainment as well as education part of its mission, he gave the world “Masterpiece Theater,” “Great Performances” and other enduring programs.`\
+https://nytimes.com/2024/05/31/arts/television/jac-venza-dead.html
+
+**Netflix Wins $8.8 Million in Fight Over Planned TV Series**\
+`An arbitrator awarded Netflix damages from the Hollywood director Carl Erik Rinsch, who had been developing a high-profile TV series, “Conquest.”`\
+https://nytimes.com/2024/05/31/business/carl-rinsch-netflix.html
+
 **Trump’s Conviction Gives His Talkative Hometown Something New to Dispute**\
 `The day after Donald J. Trump became a felon, New Yorkers debated the meaning of the trial in buildings and neighborhoods where his family left its mark.`\
 https://nytimes.com/2024/05/31/nyregion/trump-verdict-nyc-reaction.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/05/31/magazine/dog-animals-death-mortality.
 **Why Can’t College Grads Find Jobs? Here Are Some Theories — and Fixes.**\
 `Applicants have ways to better their odds, but employers need to make changes, too.`\
 https://nytimes.com/2024/05/31/opinion/college-graduates-jobs-unemployment.html
-
-**Biden Endorses Israeli Cease-Fire Proposal**\
-`‘It’s time for this war to end’ said President Biden during his speech on Friday where he outlined a new three-phase proposal from the Israeli government which ideally would lead to a permanent cease-fire.`\
-https://nytimes.com/video/us/politics/100000009498035/biden-cease-fire.html
-
-**Seven Weeks, 22 Witnesses: Highlights From the Criminal Trial of Donald Trump**\
-`The former president was convicted of 34 felony counts of falsifying business records to cover up a sex scandal that threatened to derail his 2016 campaign.`\
-https://nytimes.com/2024/05/31/nyregion/trump-trial-highlights.html
 
