@@ -1,3 +1,7 @@
+**Deepfake of U.S. Official Appears After Shift on Ukraine Attacks in Russia**\
+`A manufactured video fabricated comments by the State Department spokesman, Matthew Miller.`\
+https://nytimes.com/2024/05/31/us/politics/deepfake-us-official-russia.html
+
 **Donald Trump Was Convicted Here? Who Knew?**\
 `On Friday, the Manhattan Criminal Courthouse swiftly returned to processing mundane mayhem after weeks of intensity and chaos from former President Donald J. Trump’s trial.`\
 https://nytimes.com/2024/05/31/nyregion/trump-manhattan-courthouse.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/us/texas-abortion-ban-supreme-court.html
 **Darryl Hickman, Prolific Child Actor of the 1940s, Dies at 92**\
 `He was in “The Grapes of Wrath” and other films. As an adult, he was seen often on TV. He later oversaw daytime programming at CBS and taught acting.`\
 https://nytimes.com/2024/05/31/movies/darryl-hickman-dead.html
-
-**Bracing for Start of Trial in Gun Case, Hunter Biden Is Squeezed for Money**\
-`The cash crunch could limit his ability to hire expert witnesses or other specialists for his legal defense, people close to the situation said.`\
-https://nytimes.com/2024/05/31/us/politics/hunter-biden-trial-money.html
 
