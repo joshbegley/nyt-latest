@@ -1,3 +1,7 @@
+**Marian Robinson, Michelle Obama’s Mother, Dies at 86**\
+`Her death was announced in a statement by Barack Obama, Michelle Obama and other members of the family.`\
+https://nytimes.com/2024/05/31/us/marian-robinson-dead.html
+
 **Six Injured in Stabbing in Germany**\
 `A police officer and an anti-Islamist activist were among the victims, according to the authorities, who have not released information on a motive.`\
 https://nytimes.com/2024/05/31/world/europe/activist-officer-stabbing-germany.html
