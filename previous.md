@@ -1,3 +1,7 @@
+**Why Megadonors Are Unfazed by Donald Trump’s Guilty Verdict**\
+`Money flowed into the former president’s re-election campaign from Wall Street and Silicon Valley following Thursday’s historic conviction.`\
+https://nytimes.com/2024/05/31/business/dealbook/megadonors-donald-trump-guilty-verdict.html
+
 **The world’s news media plays the Trump case prominently — though not everywhere.**\
 `Pretty extensively.`\
 https://nytimes.com/live/2024/05/31/nyregion/trump-news-trial-guilty/the-worlds-news-media-plays-the-trump-case-prominently-though-not-everywhere
@@ -10,7 +14,7 @@ https://nytimes.com/2024/05/31/business/trump-media-stock-falls-after-guilty-ver
 `By Aaron Boxerman and Lauren Leatherby`\
 https://nytimes.com/live/2024/05/31/world/israel-gaza-war-hamas-rafah/israels-push-into-central-rafah-defies-international-pressure
 
-**Donald Trump to Speak on Friday in Wake of His Conviction**\
+**Live Updates: Donald Trump to Speak on Friday in Wake of His Conviction**\
 `America for the first time has a former president who is a felon, and he’s running for the White House again.`\
 https://nytimes.com/live/2024/05/31/nyregion/trump-news-trial-guilty
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/crosswords/connections-companion-356.html
 **Wordle Review No. 1,078, June 1, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/05/31/crosswords/wordle-review-1078.html
-
-**A Matter of Survival as South Asia’s Heat Wave Reaches 127 Degrees**\
-`Pakistan and India are sweltering. For laborers, not working because of the extreme temperatures can mean not eating.`\
-https://nytimes.com/2024/05/31/world/asia/pakistan-india-heat-wave.html
 

@@ -1,3 +1,11 @@
+**Why Megadonors Are Unfazed by Donald Trump’s Guilty Verdict**\
+`Money flowed into the former president’s re-election campaign from Wall Street and Silicon Valley following Thursday’s historic conviction.`\
+https://nytimes.com/2024/05/31/business/dealbook/megadonors-donald-trump-guilty-verdict.html
+
+**Live Updates: Donald Trump to Speak on Friday in Wake of His Conviction**\
+`America for the first time has a former president who is a felon, and he’s running for the White House again.`\
+https://nytimes.com/live/2024/05/31/nyregion/trump-news-trial-guilty
+
 **Trump Media Stock Swings After Guilty Verdict**\
 `Shares of the Truth Social parent slipped immediately after former President Donald Trump, the company’s largest investor, was convicted in his hush-money trial, before mounting a comeback.`\
 https://nytimes.com/2024/05/31/business/trump-media-stock-falls-after-guilty-verdict.html
