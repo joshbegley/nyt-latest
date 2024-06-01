@@ -1,3 +1,11 @@
+**Election Updates: Trump goes from court to Trump Tower to the octagon for a U.F.C. fight.**\
+``\
+https://nytimes.com/live/2024/06/01/us/biden-trump-election
+
+**Donald Trump, now a convict, heads to a U.F.C. match in New Jersey.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/06/01/us/biden-trump-election/donald-trump-now-a-convict-heads-to-a-ufc-match-in-newark
+
 **Some of the astronauts’ luggage is not going to make it to the space station.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/some-of-the-astronauts-luggage-is-not-going-to-make-it-to-the-space-station
