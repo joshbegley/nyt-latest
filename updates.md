@@ -1,3 +1,7 @@
+**That Other Guy**\
+`People tethered to a particular someone else, whether they like it or not.`\
+https://nytimes.com/2024/06/01/podcasts/this-american-life-that-other-guy-nyt-audio.html
+
 **Holy Cow, 34 for 45!**\
 `But the real verdict comes on 11/5.`\
 https://nytimes.com/2024/06/01/opinion/donald-trump-trial.html

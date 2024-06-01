@@ -1,3 +1,7 @@
+**That Other Guy**\
+`People tethered to a particular someone else, whether they like it or not.`\
+https://nytimes.com/2024/06/01/podcasts/this-american-life-that-other-guy-nyt-audio.html
+
 **Holy Cow, 34 for 45!**\
 `But the real verdict comes on 11/5.`\
 https://nytimes.com/2024/06/01/opinion/donald-trump-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/heres-what-t
 **Live Updates: NASA Astronauts Prepare for 1st Launch on Boeing’s Starliner**\
 `Butch Wilmore and Suni Williams are returning to the launchpad at Cape Canaveral after a flight in May was scrubbed shortly before liftoff.`\
 https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch
-
-**It’s June Again**\
-`Summer returns, and with it all the feelings and fantasies and fears we associate with the season.`\
-https://nytimes.com/2024/06/01/briefing/its-june-again.html
 
