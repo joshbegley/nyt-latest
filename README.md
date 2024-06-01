@@ -1,3 +1,7 @@
+**What is Boeing’s Starliner spacecraft?**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/what-is-boeings-starliner-spacecraft
+
 **The Starliner astronauts have been patient. Then they had to wait again.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/the-starliner-astronauts-have-been-patient-then-they-had-to-wait-again
