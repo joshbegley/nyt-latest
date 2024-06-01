@@ -1,3 +1,7 @@
+**Netanyahu says that Israel’s demands for ending the war ‘have not changed.’**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/06/01/world/israel-gaza-war-hamas-rafah/netanyahu-says-that-israels-demands-for-ending-the-war-have-not-changed
+
 **Warnings of Election Meddling by China Never Reached the Prime Minister**\
 `A watchdog agency found roadblocks to the flow of information both within the spy agency and the public service.`\
 https://nytimes.com/2024/06/01/world/canada/warnings-of-election-meddling-by-china-never-reached-the-prime-minister.html
