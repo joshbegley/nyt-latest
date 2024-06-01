@@ -1,3 +1,9 @@
+**2 Books to Help You Go Gray Gracefully**\
+`Ditch the dye; live with style.`\
+https://nytimes.com/2024/06/01/books/read-like-wind-going-gray.html
+
+**World leaders and officials welcome the cease-fire proposal, and other news.**\
+
 **Scenes From a Historic Verdict**\
 `A photographer captured the crowds outside the courthouse during Trump’s trial — and as the historic verdict came down.`\
 https://nytimes.com/2024/06/01/opinion/donald-trump-verdict.html
