@@ -1,3 +1,7 @@
+**U Tin Oo, Embattled Pro-Democracy Leader in Myanmar, Dies at 97**\
+`Once one of his country’s most powerful figures, he helped found its main opposition party. “I had to face up to the harm I did to people when I served in the army,” he said.`\
+https://nytimes.com/2024/06/01/world/asia/u-tin-oo-dead.html
+
 **Typecasting**\
 `Luke W. Schreiber’s debut Sunday puzzle is full of character(s).`\
 https://nytimes.com/2024/06/01/crosswords/daily-puzzle-2024-06-02.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/01/us/chad-daybell-convicted-idaho-jury.html
 **How a Retirement Withdrawal Can Lead to a Perjury Conviction**\
 `A prominent lawyer was recently sentenced to home confinement for falsely claiming hardship to withdraw funds. How desperate must you be to take money out?`\
 https://nytimes.com/2024/06/01/business/retirement-hardship-withdrawal-marilyn-mosby.html
-
-**Sam Butcher, Who Gave the World Precious Moments, Dies at 85**\
-`His childlike porcelain characters thrilled and inspired generations of collectors. They also made him a millionaire.`\
-https://nytimes.com/2024/06/01/business/sam-butcher-dead.html
 
