@@ -1,3 +1,7 @@
+**How Trump’s Most Loyal Supporters Are Responding to the Verdict**\
+`Many saw in the jury’s finding a rejection of themselves, of their values and even of democracy itself.`\
+https://nytimes.com/2024/05/31/us/trump-verdict-voters.html
+
 **Trump and Allies Assail Conviction With Faulty Claims**\
 `After former President Donald J. Trump was found guilty, he and a number of conservative figures in the news media and lawmakers on the right have spread false and misleading claims about the Manhattan case.`\
 https://nytimes.com/2024/05/31/us/politics/trump-speech-fact-check.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/nyregion/trump-manhattan-courthouse.html
 **Former U.S. Agriculture Official Says Menendez Told Him to ‘Stop Interfering’**\
 `Jurors in Senator Robert Menendez’s bribery trial heard directly from a witness who recounted Mr. Menendez’s efforts to flex his political muscle.`\
 https://nytimes.com/2024/05/31/nyregion/robert-menendez-bribery-trial.html
-
-**The Trump Case May Come to Define Alvin Bragg. He Has Other Work to Do.**\
-`A day after winning what may be the most consequential trial in the history of the Manhattan district attorney’s office, Mr. Bragg was in a far quieter courtroom.`\
-https://nytimes.com/2024/05/31/nyregion/trump-conviction-alvin-bragg.html
 

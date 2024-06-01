@@ -1,3 +1,7 @@
+**How Trump’s Most Loyal Supporters Are Responding to the Verdict**\
+`Many saw in the jury’s finding a rejection of themselves, of their values and even of democracy itself.`\
+https://nytimes.com/2024/05/31/us/trump-verdict-voters.html
+
 **Trump and Allies Assail Conviction With Faulty Claims**\
 `After former President Donald J. Trump was found guilty, he and a number of conservative figures in the news media and lawmakers on the right have spread false and misleading claims about the Manhattan case.`\
 https://nytimes.com/2024/05/31/us/politics/trump-speech-fact-check.html
