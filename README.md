@@ -1,3 +1,7 @@
+**How a Retirement Withdrawal Can Lead to a Perjury Conviction**\
+`A prominent lawyer was recently sentenced to home confinement for falsely claiming hardship to withdraw funds. How desperate must you be to take money out?`\
+https://nytimes.com/2024/06/01/business/retirement-hardship-withdrawal-marilyn-mosby.html
+
 **Sam Butcher, Who Gave the World Precious Moments, Dies at 85**\
 `His childlike porcelain characters thrilled and inspired generations of collectors. They also made him a millionaire.`\
 https://nytimes.com/2024/06/01/business/sam-butcher-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/01/us/biden-trump-election/donald-trump-now-a-c
 **Some of the astronauts’ luggage is not going to make it to the space station.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/some-of-the-astronauts-luggage-is-not-going-to-make-it-to-the-space-station
-
-**What is Boeing’s Starliner spacecraft?**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/what-is-boeings-starliner-spacecraft
 
