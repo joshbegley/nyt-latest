@@ -1,3 +1,7 @@
+**Idaho Man in ‘Doomsday’ Killings Should Get Death Penalty, Jury Finds**\
+`Chad Daybell was convicted on Thursday in the murders of his first wife and two children of his current spouse, Lori Vallow Daybell. The couple’s extreme beliefs drew attention to the case.`\
+https://nytimes.com/2024/06/01/us/chad-daybell-convicted-idaho-jury.html
+
 **How a Retirement Withdrawal Can Lead to a Perjury Conviction**\
 `A prominent lawyer was recently sentenced to home confinement for falsely claiming hardship to withdraw funds. How desperate must you be to take money out?`\
 https://nytimes.com/2024/06/01/business/retirement-hardship-withdrawal-marilyn-mosby.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/01/us/biden-trump-election
 **Donald Trump, now a convict, heads to a U.F.C. match in New Jersey.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/06/01/us/biden-trump-election/donald-trump-now-a-convict-heads-to-a-ufc-match-in-newark
-
-**Some of the astronauts’ luggage is not going to make it to the space station.**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/some-of-the-astronauts-luggage-is-not-going-to-make-it-to-the-space-station
 

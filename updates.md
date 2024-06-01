@@ -1,3 +1,7 @@
+**Idaho Man in ‘Doomsday’ Killings Should Get Death Penalty, Jury Finds**\
+`Chad Daybell was convicted on Thursday in the murders of his first wife and two children of his current spouse, Lori Vallow Daybell. The couple’s extreme beliefs drew attention to the case.`\
+https://nytimes.com/2024/06/01/us/chad-daybell-convicted-idaho-jury.html
+
 **How a Retirement Withdrawal Can Lead to a Perjury Conviction**\
 `A prominent lawyer was recently sentenced to home confinement for falsely claiming hardship to withdraw funds. How desperate must you be to take money out?`\
 https://nytimes.com/2024/06/01/business/retirement-hardship-withdrawal-marilyn-mosby.html
