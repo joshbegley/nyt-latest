@@ -1,40 +1,40 @@
-**U.N. official describes ‘beyond crisis’ conditions facing people who fled Rafah.**\
-`By Victoria Kim`\
-https://nytimes.com/live/2024/06/01/world/israel-gaza-war-hamas-rafah/un-official-describes-beyond-crisis-conditions-facing-people-who-fled-rafah
+**She’s 98, and Walked Past Corpses to Escape Russian Attacks**\
+`“If only everything would stop,” said Lidiia Lomikovska, who walked to safety after her town was attacked. But for civilians in the Donetsk region of Ukraine, it is not stopping.`\
+https://nytimes.com/2024/06/01/world/europe/ukraine-donetsk-civilians.html
 
-**Trump Verdict Confirms How Far Former Master of New York City Has Fallen**\
-`Donald J. Trump was for decades a creature of New York. But in recent years, the city that helped make him seems more eager to break him.`\
-https://nytimes.com/2024/06/01/nyregion/donald-trump-new-york-nyc.html
+**Security Deposits: Your Landlord May Owe You More Than You Think**\
+`Landlords are required to put security deposits in interest-bearing bank accounts. How much of that interest goes to you?`\
+https://nytimes.com/2024/06/01/realestate/security-deposit-interest-account.html
 
-**Trump Has Few Ways to Overturn His Conviction as a New York Felon**\
-`New York appellate courts rarely overturn a jury decision without evidence of serious errors. The judge in Donald J. Trump’s case closed off many avenues.`\
-https://nytimes.com/2024/06/01/nyregion/trump-appeal-conviction.html
+**They’re Asian. They’re American. But, They Wonder, Are They Asian American?**\
+`Bhutanese Americans are the newest citizens of Asian descent. But many do not identify strongly as Asian Americans, reflecting the complexity of the label.`\
+https://nytimes.com/2024/06/01/us/asian-american-identity-bhutanese.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/06/01/crosswords/spelling-bee-forum.html
+**He’s Obsessed With Sports and Politics. His Novels Are, Too.**\
+`Joseph O’Neill’s fiction incorporates his real-world interests in ways that can surprise even him. His latest novel, “Godwin,” is about an adrift hero searching for a soccer superstar.`\
+https://nytimes.com/2024/06/01/books/joseph-oneill-godwin.html
 
-**How Michael Rainey Jr. of ‘Power Book II: Ghost’ Spends His Sundays**\
-`Mr. Rainey starts his day with tea, and then it’s time for fancy cars, making beats and Call of Duty with his friends.`\
-https://nytimes.com/2024/06/01/nyregion/michael-rainey-jr-power-ghost-starz.html
+**Google’s A.I. Search Leaves Publishers Scrambling**\
+`Since Google overhauled its search engine, publishers have tried to assess the danger to their brittle business models while calling for government intervention.`\
+https://nytimes.com/2024/06/01/technology/google-ai-search-publishers.html
 
-**Doctor-Assisted Death Is Legal in 10 States. Could New York Be No. 11?**\
-`Activists have renewed attention on legislation related to the emotional issue of so-called medical aid in dying that has long languished in Albany.`\
-https://nytimes.com/2024/06/01/nyregion/euthanasia-assisted-suicide-ny.html
+**This Director Has Been Busy Since He Was 25**\
+`Nathan Silver’s ninth feature film, “Between the Temples,” continues his work as someone who is unafraid of emotional and narrative complexity.`\
+https://nytimes.com/2024/06/01/movies/nathan-silver-tribeca.html
 
-**Worried About Youth Crime, Newark Revives an 11 P.M. Curfew**\
-`Newark has begun enforcing a longstanding law that prohibits people under 18 from being out late at night.`\
-https://nytimes.com/2024/06/01/nyregion/newark-teen-curfew.html
+**In the West Bank, Guns and a Locked Gate Signal a Town’s New Residents**\
+`Since the war in Gaza began, armed Israeli settlers, often accompanied by the army, have stepped up seizures of land long used by Palestinians.`\
+https://nytimes.com/2024/06/01/world/middleeast/west-bank-settlers-land-tuqu-takoa.html
 
-**Russia Bombards Ukraine with Missiles, Ukraine Says**\
-`The large-scale air assault appeared to be targeting western Ukraine, including places near borders with NATO allies.`\
-https://nytimes.com/2024/06/01/world/europe/russia-ukraine-air-attacks.html
+**Behind the Scenes at the Tribeca Festival**\
+`From the ticket booth and the red carpet to a restaurant and a theater, here are stories from people not in the spotlight.`\
+https://nytimes.com/2024/06/01/movies/tribeca-festival-staff-fans.html
 
-**The Champions League’s Most Bitter Rivalry May Be Off the Field**\
-`No club has won European soccer’s richest prize more than Real Madrid, but its recent dominance has been accompanied by a bruising fight over the tournament’s future.`\
-https://nytimes.com/2024/06/01/world/europe/real-madrid-uefa-champions-league.html
+**The 7 Grueling Months to Reclaim the Bookstore Dream a Fire Stole**\
+`A fire left Lucy Yu’s literary hub in Chinatown gutted. She was determined to rebuild it.`\
+https://nytimes.com/2024/06/01/business/yu-me-bookshop-fire.html
 
-**Scandals and Missteps Slow Momentum of Germany’s Far Right**\
-`The Alternative for Germany party remains strong, but a growing pushback at home and abroad may be blunting its surge.`\
-https://nytimes.com/2024/06/01/world/europe/germany-afd-far-right-scandal.html
+**He Could Be the Next Lionel Messi. If Anyone Can Find Him.**\
+`In Joseph O’Neill’s new novel, the search for an African sports prodigy is wrapped around a story of American workplace dysfunction.`\
+https://nytimes.com/2024/06/01/books/review/joseph-oneill-godwin.html
 
