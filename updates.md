@@ -1,3 +1,7 @@
+**Quotation of the Day: Laborers Who Take Time Off in Pakistan’s Record Heat Risk Going Hungry**\
+`Quotation of the Day for Sunday, June 2, 2024.`\
+https://nytimes.com/2024/06/01/pageoneplus/quotation-of-the-day-laborers-who-take-time-off-in-pakistans-record-heat-risk-going-hungry.html
+
 **U Tin Oo, Embattled Pro-Democracy Leader in Myanmar, Dies at 97**\
 `Once one of his country’s most powerful figures, he helped found its main opposition party. “I had to face up to the harm I did to people when I served in the army,” he said.`\
 https://nytimes.com/2024/06/01/world/asia/u-tin-oo-dead.html
