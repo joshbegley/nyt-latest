@@ -1,3 +1,7 @@
+**South Africa Is Not a Metaphor**\
+`The country’s story of liberation has been both a symbol of hope and a burden. Now it’s time for reality.`\
+https://nytimes.com/2024/06/01/opinion/south-africa-election-israel-apartheid.html
+
 **That Other Guy**\
 `People tethered to a particular someone else, whether they like it or not.`\
 https://nytimes.com/2024/06/01/podcasts/this-american-life-that-other-guy-nyt-audio.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/01/opinion/opioid-overdoses.html
 **Here’s what to know about Starliner’s latest launch attempt.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/heres-what-to-know-about-starliners-latest-launch-attempt
-
-**Live Updates: NASA Astronauts Prepare for 1st Launch on Boeing’s Starliner**\
-`Butch Wilmore and Suni Williams are returning to the launchpad at Cape Canaveral after a flight in May was scrubbed shortly before liftoff.`\
-https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch
 
