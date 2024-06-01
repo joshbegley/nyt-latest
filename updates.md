@@ -1,3 +1,7 @@
+**Trump and Allies Assail Conviction With Faulty Claims**\
+`After former President Donald J. Trump was found guilty, he and a number of conservative figures in the news media and lawmakers on the right have spread false and misleading claims about the Manhattan case.`\
+https://nytimes.com/2024/05/31/us/politics/trump-speech-fact-check.html
+
 **Florida Deputy Who Fatally Shot Airman Is Fired**\
 `The Okaloosa County Sheriff’s Office said that the use of deadly force during the May 3 encounter at the airman’s apartment was unreasonable.`\
 https://nytimes.com/2024/05/31/us/florida-deputy-airman-roger-fortson.html

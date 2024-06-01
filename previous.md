@@ -1,3 +1,7 @@
+**Trump and Allies Assail Conviction With Faulty Claims**\
+`After former President Donald J. Trump was found guilty, he and a number of conservative figures in the news media and lawmakers on the right have spread false and misleading claims about the Manhattan case.`\
+https://nytimes.com/2024/05/31/us/politics/trump-speech-fact-check.html
+
 **Florida Deputy Who Fatally Shot Airman Is Fired**\
 `The Okaloosa County Sheriff’s Office said that the use of deadly force during the May 3 encounter at the airman’s apartment was unreasonable.`\
 https://nytimes.com/2024/05/31/us/florida-deputy-airman-roger-fortson.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/nyregion/robert-menendez-bribery-trial.html
 **The Trump Case May Come to Define Alvin Bragg. He Has Other Work to Do.**\
 `A day after winning what may be the most consequential trial in the history of the Manhattan district attorney’s office, Mr. Bragg was in a far quieter courtroom.`\
 https://nytimes.com/2024/05/31/nyregion/trump-conviction-alvin-bragg.html
-
-**The Ecstasy, Agony and Awkwardness of the Trump Conviction**\
-`The verdict is cold comfort for many on the left who worry it won’t change his front-runner status.`\
-https://nytimes.com/2024/05/31/us/politics/trump-conviction-reaction-election.html
 
