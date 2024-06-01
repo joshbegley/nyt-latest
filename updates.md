@@ -1,3 +1,7 @@
+**Florida Deputy Who Fatally Shot Airman Is Fired**\
+`The Okaloosa County Sheriff’s Office said that the use of deadly force during the May 3 encounter at the airman’s apartment was unreasonable.`\
+https://nytimes.com/2024/05/31/us/florida-deputy-airman-roger-fortson.html
+
 **Ohio Legislature Passes Bill Ensuring Biden’s Spot on the Ballot**\
 `The bill, which Gov. Mike DeWine, a Republican, is expected to sign this weekend, appeared to end the possibility that President Biden would not be on the state’s ballot in November.`\
 https://nytimes.com/2024/05/31/us/politics/biden-ohio-ballot.html
