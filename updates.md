@@ -1,3 +1,7 @@
+**‘2,000 Mules’ Producer Apologizes to Man Depicted Committing Election Fraud**\
+`Salem Media Group, which co-produced the 2022 film, issued the apology to a Georgia man who was falsely depicted as stuffing a ballot box near Atlanta.`\
+https://nytimes.com/2024/05/31/us/politics/2000-mules-salem-georgia-apology.html
+
 **Cram In**\
 `Eric Warren’s Saturday debut fits a lot of fun into tight spaces.`\
 https://nytimes.com/2024/05/31/crosswords/daily-puzzle-2024-06-01.html
