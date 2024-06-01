@@ -1,3 +1,7 @@
+**Russia Bombards Ukraine with Missiles, Ukraine Says**\
+`The large-scale air assault appeared to be targeting western Ukraine, including places near borders with NATO allies.`\
+https://nytimes.com/2024/06/01/world/europe/russia-ukraine-air-attacks.html
+
 **The Champions League’s Most Bitter Rivalry May Be Off the Field**\
 `No club has won European soccer’s richest prize more than Real Madrid, but its recent dominance has been accompanied by a bruising fight over the tournament’s future.`\
 https://nytimes.com/2024/06/01/world/europe/real-madrid-uefa-champions-league.html
