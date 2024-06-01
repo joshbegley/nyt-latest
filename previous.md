@@ -1,3 +1,7 @@
+**Boeing’s aviation safety record is under heavy scrutiny this year.**\
+`By Niraj Chokshi`\
+https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/boeings-aviation-safety-record-is-under-heavy-scrutiny-this-year
+
 **‘Everyone Sat Stunned After the First Bite’**\
 `Chez Panisse’s blueberry cobbler has that effect.`\
 https://nytimes.com/2024/06/01/dining/everyone-sat-stunned-after-the-first-bite.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/01/world/asia/india-election-modi.html
 **Companies Counter Pushback on Price Increases With Promotions**\
 `“The consumer was a fat pig — now there’s nothing left, and they need to feed the pig again,” one banker told DealBook.`\
 https://nytimes.com/2024/06/01/business/dealbook/companies-counter-pushback-on-price-increases-with-promotions.html
-
-**2 Books to Help You Go Gray Gracefully**\
-`Ditch the dye; live with style.`\
-https://nytimes.com/2024/06/01/books/read-like-wind-going-gray.html
 

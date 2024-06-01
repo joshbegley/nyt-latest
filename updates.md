@@ -1,3 +1,7 @@
+**Boeing’s aviation safety record is under heavy scrutiny this year.**\
+`By Niraj Chokshi`\
+https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/boeings-aviation-safety-record-is-under-heavy-scrutiny-this-year
+
 **‘Everyone Sat Stunned After the First Bite’**\
 `Chez Panisse’s blueberry cobbler has that effect.`\
 https://nytimes.com/2024/06/01/dining/everyone-sat-stunned-after-the-first-bite.html
