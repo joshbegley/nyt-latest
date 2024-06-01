@@ -1,3 +1,7 @@
+**Yael Dayan, Israeli Writer, Politician and Daughter of War Hero, Dies at 85**\
+`She was hailed for her books and admired for promoting women’s rights. But her support for a two-state solution to the Palestinian conflict angered many.`\
+https://nytimes.com/2024/06/01/world/middleeast/yael-dayan-dead.html
+
 **In Gaza, a university lecturer asks of the latest cease-fire proposal: Who will govern us after the war?**\
 `By Raja Abdulrahim and Ameera Harouda`\
 https://nytimes.com/live/2024/06/01/world/israel-gaza-war-hamas-rafah/in-gaza-a-university-lecturer-asks-of-the-latest-cease-fire-proposal-who-will-govern-us-after-the-war
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/01/dining/everyone-sat-stunned-after-the-first-bite.
 **What Donald Trump Didn’t Say After His Trial**\
 `In his post-verdict remarks, the former president sounded more like an aggrieved New York businessman than the political martyr his supporters believe him to be.`\
 https://nytimes.com/2024/06/01/books/review/donald-trump-speech-verdict.html
-
-**Election Updates: Trump goes from court to Trump Tower to the octagon for a U.F.C. fight.**\
-``\
-https://nytimes.com/live/2024/06/01/us/biden-trump-election
 
