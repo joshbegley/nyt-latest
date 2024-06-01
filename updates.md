@@ -1,3 +1,11 @@
+**Cram In**\
+`Eric Warren’s Saturday debut fits a lot of fun into tight spaces.`\
+https://nytimes.com/2024/05/31/crosswords/daily-puzzle-2024-06-01.html
+
+**Biden Dons Kansas City Helmet to Celebrate Its Super Bowl Victory**\
+`Taylor Swift was not at the White House to celebrate with her boyfriend, Travis Kelce, but kicker Harrison Butker, who recently drew controversy for a commencement speech, attended.`\
+https://nytimes.com/2024/05/31/us/politics/biden-kansas-city-chiefs-super-bowl.html
+
 **Biden Dons a Chiefs Helmet to Celebrate Their Super Bowl Victory**\
 `Taylor Swift was not at the White House to celebrate with her boyfriend, Travis Kelce, but kicker Harrison Butker, who recently drew controversy for a commencement speech, attended.`\
 https://nytimes.com/2024/05/31/us/politics/biden-kansas-city-chiefs-super-bowl.html
