@@ -1,4 +1,8 @@
-**Idaho Man in ‘Doomsday’ Killings Should Get Death Penalty, Jury Finds**\
+**In Gaza, a university lecturer asks of the latest cease-fire proposal: Who will govern us after the war?**\
+`By Raja Abdulrahim and Ameera Harouda`\
+https://nytimes.com/live/2024/06/01/world/israel-gaza-war-hamas-rafah/in-gaza-a-university-lecturer-asks-of-the-latest-cease-fire-proposal-who-will-govern-us-after-the-war
+
+**Idaho Man in ‘Doomsday’ Killings Is Sentenced to Death**\
 `Chad Daybell was convicted on Thursday in the murders of his first wife and two children of his current spouse, Lori Vallow Daybell. The couple’s extreme beliefs drew attention to the case.`\
 https://nytimes.com/2024/06/01/us/chad-daybell-convicted-idaho-jury.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/01/books/review/donald-trump-speech-verdict.html
 **Election Updates: Trump goes from court to Trump Tower to the octagon for a U.F.C. fight.**\
 ``\
 https://nytimes.com/live/2024/06/01/us/biden-trump-election
-
-**Donald Trump, now a convict, heads to a U.F.C. match in New Jersey.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/06/01/us/biden-trump-election/donald-trump-now-a-convict-heads-to-a-ufc-match-in-newark
 
