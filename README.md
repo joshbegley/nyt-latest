@@ -1,0 +1,40 @@
+**‘He’s Had Great Challenges’: Giuliani Holds 80th Birthday Amid Many Woes**\
+`The indicted and increasingly isolated former New York mayor celebrated his birthday over pasta and meatballs. Donald J. Trump sent a video.`\
+https://nytimes.com/2024/06/01/us/politics/rudy-giuliani-birthday-donald-trump-new-york.html
+
+**Demonstrators in Tel Aviv and other cities call on Netanyahu to accept the cease-fire proposal.**\
+`By Alexandra E. Petri`\
+https://nytimes.com/live/2024/06/01/world/israel-gaza-war-hamas-rafah/demonstrators-in-tel-aviv-and-other-cities-call-on-netanyahu-to-accept-the-cease-fire-proposal
+
+**After Biden’s Push for Truce, Netanyahu Calls Israel’s War Plans Unchanged**\
+`The timing of the remarks seemed to rebuff the president’s hopes for a speedy end to the war. But some analysts said the prime minister was aiming at domestic supporters, not the White House.`\
+https://nytimes.com/2024/06/01/world/middleeast/netanyahu-biden-israel-gaza-cease-fire.html
+
+**Yael Dayan, Israeli Writer, Politician and Daughter of War Hero, Dies at 85**\
+`She was hailed for her books and admired for promoting women’s rights. But her support for a two-state solution to the Palestinian conflict angered many.`\
+https://nytimes.com/2024/06/01/world/middleeast/yael-dayan-dead.html
+
+**In Gaza, a university lecturer asks of the latest cease-fire proposal: Who will govern us after the war?**\
+`By Raja Abdulrahim and Ameera Harouda`\
+https://nytimes.com/live/2024/06/01/world/israel-gaza-war-hamas-rafah/in-gaza-a-university-lecturer-asks-of-the-latest-cease-fire-proposal-who-will-govern-us-after-the-war
+
+**Idaho Man in ‘Doomsday’ Killings Is Sentenced to Death**\
+`Chad Daybell was convicted on Thursday in the murders of his first wife and two children of his current spouse, Lori Vallow Daybell. The couple’s extreme beliefs drew attention to the case.`\
+https://nytimes.com/2024/06/01/us/chad-daybell-convicted-idaho-jury.html
+
+**How a Retirement Withdrawal Can Lead to a Perjury Conviction**\
+`A prominent lawyer was recently sentenced to home confinement for falsely claiming hardship to withdraw funds. How desperate must you be to take money out?`\
+https://nytimes.com/2024/06/01/business/retirement-hardship-withdrawal-marilyn-mosby.html
+
+**Sam Butcher, Who Gave the World Precious Moments, Dies at 85**\
+`His childlike porcelain characters thrilled and inspired generations of collectors. They also made him a millionaire.`\
+https://nytimes.com/2024/06/01/business/sam-butcher-dead.html
+
+**Here’s the flight plan for Starliner’s journey.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/heres-the-flight-plan-for-starliners-journey
+
+**Boeing’s Starliner capsule has had a long, difficult road to human spaceflight.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/boeings-starliner-capsule-has-had-a-long-difficult-road-to-human-spaceflight
+
