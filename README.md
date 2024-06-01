@@ -1,3 +1,35 @@
+**Democrats Push Biden to Make Trump’s Felonies a Top 2024 Issue**\
+`Interviews with dozens of Democrats reveal a party hungry to tell voters that Donald Trump’s conviction makes him unfit for office, and hopeful that President Biden will lead the way.`\
+https://nytimes.com/2024/06/01/us/politics/trump-conviction-biden-democrats.html
+
+**My Friend Asked for Clothing Donations and Then Sold Them on Poshmark. Do I Confront Her?**\
+`The magazine’s Ethicist columnist on how to handle deception by a friend.`\
+https://nytimes.com/2024/06/01/magazine/teacher-stealing-donations-what-do-i-do.html
+
+**Google Rolls Back A.I. Search Feature After Flubs and Flaws**\
+`Google appears to have turned off its new A.I. Overviews for a number of searches as it works to minimize errors.`\
+https://nytimes.com/2024/06/01/technology/google-ai-overviews-rollback.html
+
+**The Best Movies and TV Shows Coming to Amazon, AMC+, Disney+, Hulu, and More in June**\
+`“The Boys,” “Orphan Black: Echoes,” “The Bear” and “The Acolyte” will be streaming.`\
+https://nytimes.com/2024/06/01/arts/television/june-stsreaming-movies-tv-shows.html
+
+**Bacon, Banter and the Business of a Diner**\
+`“I try to make people feel good.” How one New Jersey diner keeps the doors open.`\
+https://nytimes.com/2024/06/01/business/new-jersey-diner-bendix.html
+
+**‘Sugar’ Actress Kirby on the Only Album She Really Needs**\
+`She co-starred in the Apple TV+ show with Colin Farrell after appearing in “Killing Eve” and “Barry.” Now when she does a red carpet, she knows to go with Doc Martens.`\
+https://nytimes.com/2024/06/01/arts/television/kirby-sugar.html
+
+**The History of Black Baseball Players, on Full Display**\
+`As the number of African American players dwindles, a new exhibit at the Hall of Fame traces 150 years of Black baseball feats, stars and obstacles.`\
+https://nytimes.com/2024/06/01/arts/design/baseball-black-players-hall-of-fame.html
+
+**The Very Online Afterlife of Franz Kafka**\
+`One hundred years after his death, the Czech writer circulates as a pop idol of digital alienation.`\
+https://nytimes.com/2024/06/01/arts/franz-kafka-tiktok-centennial.html
+
 **She’s 98, and Walked Past Corpses to Escape Russian Attacks**\
 `“If only everything would stop,” said Lidiia Lomikovska, who walked to safety after her town was attacked. But for civilians in the Donetsk region of Ukraine, it is not stopping.`\
 https://nytimes.com/2024/06/01/world/europe/ukraine-donetsk-civilians.html
@@ -5,36 +37,4 @@ https://nytimes.com/2024/06/01/world/europe/ukraine-donetsk-civilians.html
 **Security Deposits: Your Landlord May Owe You More Than You Think**\
 `Landlords are required to put security deposits in interest-bearing bank accounts. How much of that interest goes to you?`\
 https://nytimes.com/2024/06/01/realestate/security-deposit-interest-account.html
-
-**They’re Asian. They’re American. But, They Wonder, Are They Asian American?**\
-`Bhutanese Americans are the newest citizens of Asian descent. But many do not identify strongly as Asian Americans, reflecting the complexity of the label.`\
-https://nytimes.com/2024/06/01/us/asian-american-identity-bhutanese.html
-
-**He’s Obsessed With Sports and Politics. His Novels Are, Too.**\
-`Joseph O’Neill’s fiction incorporates his real-world interests in ways that can surprise even him. His latest novel, “Godwin,” is about an adrift hero searching for a soccer superstar.`\
-https://nytimes.com/2024/06/01/books/joseph-oneill-godwin.html
-
-**Google’s A.I. Search Leaves Publishers Scrambling**\
-`Since Google overhauled its search engine, publishers have tried to assess the danger to their brittle business models while calling for government intervention.`\
-https://nytimes.com/2024/06/01/technology/google-ai-search-publishers.html
-
-**This Director Has Been Busy Since He Was 25**\
-`Nathan Silver’s ninth feature film, “Between the Temples,” continues his work as someone who is unafraid of emotional and narrative complexity.`\
-https://nytimes.com/2024/06/01/movies/nathan-silver-tribeca.html
-
-**In the West Bank, Guns and a Locked Gate Signal a Town’s New Residents**\
-`Since the war in Gaza began, armed Israeli settlers, often accompanied by the army, have stepped up seizures of land long used by Palestinians.`\
-https://nytimes.com/2024/06/01/world/middleeast/west-bank-settlers-land-tuqu-takoa.html
-
-**Behind the Scenes at the Tribeca Festival**\
-`From the ticket booth and the red carpet to a restaurant and a theater, here are stories from people not in the spotlight.`\
-https://nytimes.com/2024/06/01/movies/tribeca-festival-staff-fans.html
-
-**The 7 Grueling Months to Reclaim the Bookstore Dream a Fire Stole**\
-`A fire left Lucy Yu’s literary hub in Chinatown gutted. She was determined to rebuild it.`\
-https://nytimes.com/2024/06/01/business/yu-me-bookshop-fire.html
-
-**He Could Be the Next Lionel Messi. If Anyone Can Find Him.**\
-`In Joseph O’Neill’s new novel, the search for an African sports prodigy is wrapped around a story of American workplace dysfunction.`\
-https://nytimes.com/2024/06/01/books/review/joseph-oneill-godwin.html
 
