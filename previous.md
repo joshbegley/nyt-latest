@@ -1,3 +1,7 @@
+**As Voting Ends in India, Modi Awaits a Verdict on His 10 Years in Power**\
+`While a newly united opposition seemed to gain some traction, it faced an uphill task in unseating a deeply entrenched prime minister.`\
+https://nytimes.com/2024/06/01/world/asia/india-election-modi.html
+
 **Companies Counter Pushback on Price Increases With Promotions**\
 `“The consumer was a fat pig — now there’s nothing left, and they need to feed the pig again,” one banker told DealBook.`\
 https://nytimes.com/2024/06/01/business/dealbook/companies-counter-pushback-on-price-increases-with-promotions.html
