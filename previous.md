@@ -1,3 +1,7 @@
+**Richard Linklater Sees the Killer Inside Us All**\
+`David Marchese talks to the acclaimed director about his new film, “Hit Man,” and life’s big questions.`\
+https://nytimes.com/2024/06/01/magazine/richard-linklater-interview.html
+
 **Trump Verdict Hardens Many Views, but Changes Some, Too**\
 `For the remaining undecided voters, the decision to pick former President Donald J. Trump could be more difficult now that he is a felon.`\
 https://nytimes.com/2024/06/01/us/politics/trump-verdict-voters-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/01/arts/television/june-stsreaming-movies-tv-shows.h
 **Bacon, Banter and the Business of a Diner**\
 `“I try to make people feel good.” How one New Jersey diner keeps the doors open.`\
 https://nytimes.com/2024/06/01/business/new-jersey-diner-bendix.html
-
-**‘Sugar’ Actress Kirby on the Only Album She Really Needs**\
-`She co-starred in the Apple TV+ show with Colin Farrell after appearing in “Killing Eve” and “Barry.” Now when she does a red carpet, she knows to go with Doc Martens.`\
-https://nytimes.com/2024/06/01/arts/television/kirby-sugar.html
 
