@@ -1,3 +1,7 @@
+**What Donald Trump Didn’t Say After His Trial**\
+`In his post-verdict remarks, the former president sounded less like a political martyr than like a motorist trying to talk his way out of a speeding ticket.`\
+https://nytimes.com/2024/06/01/books/review/donald-trump-speech-verdict.html
+
 **Election Updates: Trump goes from court to Trump Tower to the octagon for a U.F.C. fight.**\
 ``\
 https://nytimes.com/live/2024/06/01/us/biden-trump-election
