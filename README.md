@@ -1,3 +1,7 @@
+**Typecasting**\
+`Luke W. Schreiber’s debut Sunday puzzle is full of character(s).`\
+https://nytimes.com/2024/06/01/crosswords/daily-puzzle-2024-06-02.html
+
 **Robert Pickton, Notorious Canadian Serial Killer, Dies at 74**\
 `Convicted in the murder of six women (though he boasted of killing many more), he died of unspecified injuries after being assaulted in prison.`\
 https://nytimes.com/2024/06/01/world/canada/robert-pickton-notorious-canadian-serial-killer-dies-at-74.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/01/business/retirement-hardship-withdrawal-marilyn-m
 **Sam Butcher, Who Gave the World Precious Moments, Dies at 85**\
 `His childlike porcelain characters thrilled and inspired generations of collectors. They also made him a millionaire.`\
 https://nytimes.com/2024/06/01/business/sam-butcher-dead.html
-
-**Here’s the flight plan for Starliner’s journey.**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/heres-the-flight-plan-for-starliners-journey
 
