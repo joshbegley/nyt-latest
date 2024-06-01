@@ -1,3 +1,19 @@
+**Scandals and Missteps Slow Momentum of Germany’s Far Right**\
+`The Alternative for Germany party remains strong, but a growing pushback at home and abroad may be blunting its surge.`\
+https://nytimes.com/2024/06/01/world/europe/germany-afd-far-right-scandal.html
+
+**How Rhubarb Conquered Germany, Then the World**\
+`A tongue-twisting rap by a Berlin duo has spotlighted Germans’ love of their springtime produce. Now if only they could find a rhyme for asparagus.`\
+https://nytimes.com/2024/06/01/world/europe/germany-rhubarb-rap.html
+
+**A Small Army Combating a Flood of Deepfakes in India’s Election**\
+`Social media is awash with A.I.-altered audio, clipped video and manipulated images. Fact-checkers want to save the public from deception.`\
+https://nytimes.com/2024/06/01/world/asia/india-election-deepfakes.html
+
+**German Soccer Team’s Deal With a Weapons Maker Prompts Some Boos**\
+`For some fans of Borussia Dortmund, an advertising deal with Rheinmetall, a major arms manufacturer, has overshadowed the run-up to the Champions League final on Saturday.`\
+https://nytimes.com/2024/06/01/business/dortmund-rheinmetall-sponsorship.html
+
 **Corrections: June 1, 2024**\
 `Corrections that appeared in print on Saturday, June 1, 2024.`\
 https://nytimes.com/2024/05/31/pageoneplus/corrections-june-1-2024.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/05/31/us/politics/biden-kansas-city-chiefs-super-bowl.h
 **How Trump’s Most Loyal Supporters Are Responding to the Verdict**\
 `Many saw in the jury’s finding a rejection of themselves, of their values and even of democracy itself.`\
 https://nytimes.com/2024/05/31/us/trump-verdict-voters.html
-
-**Trump and Allies Assail Conviction With Faulty Claims**\
-`After former President Donald J. Trump was found guilty, he and a number of conservative figures in the news media and lawmakers on the right have spread false and misleading claims about the Manhattan case.`\
-https://nytimes.com/2024/05/31/us/politics/trump-speech-fact-check.html
-
-**Florida Deputy Who Fatally Shot Airman Is Fired**\
-`The Okaloosa County Sheriff’s Office said that the use of deadly force during the May 3 encounter at the airman’s apartment was unreasonable.`\
-https://nytimes.com/2024/05/31/us/florida-deputy-airman-roger-fortson.html
-
-**Ohio Legislature Passes Bill Ensuring Biden’s Spot on the Ballot**\
-`The bill, which Gov. Mike DeWine, a Republican, is expected to sign this weekend, appeared to end the possibility that President Biden would not be on the state’s ballot in November.`\
-https://nytimes.com/2024/05/31/us/politics/biden-ohio-ballot.html
-
-**‘Doctor Who’ Episode 5 Recap: Bursting the Bubble**\
-`The Doctor saves a rich wannabe vlogger from being eaten by a giant slug, but a final twist leaves him reeling.`\
-https://nytimes.com/2024/05/31/arts/television/doctor-who-episode-5-recap.html
 
