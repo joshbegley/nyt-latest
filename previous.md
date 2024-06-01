@@ -1,3 +1,7 @@
+**The Starliner astronauts have been patient. Then they had to wait again.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/the-starliner-astronauts-have-been-patient-then-they-had-to-wait-again
+
 **As Voting Ends in India, Modi Awaits a Verdict on His 10 Years in Power**\
 `While a newly united opposition seemed to gain some traction, it faced an uphill task in unseating a deeply entrenched prime minister.`\
 https://nytimes.com/2024/06/01/world/asia/india-election-modi.html
