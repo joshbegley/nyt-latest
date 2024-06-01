@@ -1,3 +1,7 @@
+**Scenes From a Historic Verdict**\
+`A photographer captured the crowds outside the courthouse during Trump’s trial — and as the historic verdict came down.`\
+https://nytimes.com/2024/06/01/opinion/donald-trump-verdict.html
+
 **South Africa Is Not a Metaphor**\
 `The country’s story of liberation has been both a symbol of hope and a burden. Now it’s time for reality.`\
 https://nytimes.com/2024/06/01/opinion/south-africa-election-israel-apartheid.html
