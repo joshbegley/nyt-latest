@@ -1,3 +1,7 @@
+**Notre-Dame Rises Again ... in Lego**\
+`With rose windows, bell towers and a central spire, this model of the famed Paris cathedral is all the hype among adult fans of Lego, known as AFOLs.`\
+https://nytimes.com/2024/06/01/world/europe/lego-notre-dame-cathedral.html
+
 **Richard Linklater Sees the Killer Inside Us All**\
 `David Marchese talks to the acclaimed director about his new film, “Hit Man,” and life’s big questions.`\
 https://nytimes.com/2024/06/01/magazine/richard-linklater-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/01/technology/google-ai-overviews-rollback.html
 **The Best Movies and TV Shows Coming to Amazon, AMC+, Disney+, Hulu, and More in June**\
 `“The Boys,” “Orphan Black: Echoes,” “The Bear” and “The Acolyte” will be streaming.`\
 https://nytimes.com/2024/06/01/arts/television/june-stsreaming-movies-tv-shows.html
-
-**Bacon, Banter and the Business of a Diner**\
-`“I try to make people feel good.” How one New Jersey diner keeps the doors open.`\
-https://nytimes.com/2024/06/01/business/new-jersey-diner-bendix.html
 
