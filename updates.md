@@ -1,3 +1,7 @@
+**‘He’s Had Great Challenges’: Giuliani Holds 80th Birthday Amid Many Woes**\
+`The indicted and increasingly isolated former New York mayor celebrated his birthday over pasta and meatballs. Donald J. Trump sent a video.`\
+https://nytimes.com/2024/06/01/us/politics/rudy-giuliani-birthday-donald-trump-new-york.html
+
 **Demonstrators in Tel Aviv and other cities call on Netanyahu to accept the cease-fire proposal.**\
 `By Alexandra E. Petri`\
 https://nytimes.com/live/2024/06/01/world/israel-gaza-war-hamas-rafah/demonstrators-in-tel-aviv-and-other-cities-call-on-netanyahu-to-accept-the-cease-fire-proposal

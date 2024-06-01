@@ -1,3 +1,7 @@
+**‘He’s Had Great Challenges’: Giuliani Holds 80th Birthday Amid Many Woes**\
+`The indicted and increasingly isolated former New York mayor celebrated his birthday over pasta and meatballs. Donald J. Trump sent a video.`\
+https://nytimes.com/2024/06/01/us/politics/rudy-giuliani-birthday-donald-trump-new-york.html
+
 **Demonstrators in Tel Aviv and other cities call on Netanyahu to accept the cease-fire proposal.**\
 `By Alexandra E. Petri`\
 https://nytimes.com/live/2024/06/01/world/israel-gaza-war-hamas-rafah/demonstrators-in-tel-aviv-and-other-cities-call-on-netanyahu-to-accept-the-cease-fire-proposal
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/heres-the-fl
 **Boeing’s Starliner capsule has had a long, difficult road to human spaceflight.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/boeings-starliner-capsule-has-had-a-long-difficult-road-to-human-spaceflight
-
-**Boeing’s aviation safety record is under heavy scrutiny this year.**\
-`By Niraj Chokshi`\
-https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/boeings-aviation-safety-record-is-under-heavy-scrutiny-this-year
 
