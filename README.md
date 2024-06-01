@@ -30,9 +30,9 @@ https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/some-of-the-
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/what-is-boeings-starliner-spacecraft
 
-**The Starliner astronauts have been patient. Then they had to wait again.**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/the-starliner-astronauts-have-been-patient-then-they-had-to-wait-again
+**Meet Suni Williams and Butch Wilmore, the NASA Astronauts Riding on Boeing’s Starliner**\
+`After a May 6 liftoff was scrubbed, the astronauts returned to their home base in Houston and continued their preparations for Saturday’s flight.`\
+https://nytimes.com/2024/06/01/science/suni-williams-butch-wilmore-boeing-starliner-crew.html
 
 **As Voting Ends in India, Modi Awaits a Verdict on His 10 Years in Power**\
 `While a newly united opposition seemed to gain some traction, exit polls showed the popular and entrenched prime minister was winning a third term.`\
