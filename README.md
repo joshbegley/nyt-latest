@@ -1,3 +1,7 @@
+**Ohio Legislature Passes Bill Ensuring Biden’s Spot on the Ballot**\
+`The bill, which Gov. Mike DeWine, a Republican, is expected to sign this weekend, appeared to end the possibility that President Biden would not be on the state’s ballot in November.`\
+https://nytimes.com/2024/05/31/us/politics/biden-ohio-ballot.html
+
 **‘Doctor Who’ Episode 5 Recap: Bursting the Bubble**\
 `The Doctor saves a rich wannabe vlogger from being eaten by a giant slug, but a final twist leaves him reeling.`\
 https://nytimes.com/2024/05/31/arts/television/doctor-who-episode-5-recap.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/us/politics/trump-conviction-reaction-election.ht
 **Prosecutors Try Again to Limit Trump’s Statements in Documents Case**\
 `After having an earlier motion rejected on procedural grounds, the special counsel’s office made a new appeal to the judge to bar the former president from attacking F.B.I. agents in the case.`\
 https://nytimes.com/2024/05/31/us/politics/trump-fbi-agents-documents-case.html
-
-**Marian Robinson, Michelle Obama’s Mother, Dies at 86**\
-`Her death was announced in a statement by Barack Obama, Michelle Obama and other members of the family.`\
-https://nytimes.com/2024/05/31/us/marian-robinson-dead.html
 
