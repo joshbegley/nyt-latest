@@ -1,3 +1,7 @@
+**U.N. official describes ‘beyond crisis’ conditions facing people who fled Rafah.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/06/01/world/israel-gaza-war-hamas-rafah/un-official-describes-beyond-crisis-conditions-facing-people-who-fled-rafah
+
 **Trump Verdict Confirms How Far Former Master of New York City Has Fallen**\
 `Donald J. Trump was for decades a creature of New York. But in recent years, the city that helped make him seems more eager to break him.`\
 https://nytimes.com/2024/06/01/nyregion/donald-trump-new-york-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/01/world/europe/real-madrid-uefa-champions-league.ht
 **Scandals and Missteps Slow Momentum of Germany’s Far Right**\
 `The Alternative for Germany party remains strong, but a growing pushback at home and abroad may be blunting its surge.`\
 https://nytimes.com/2024/06/01/world/europe/germany-afd-far-right-scandal.html
-
-**How Rhubarb Conquered Germany, Then the World**\
-`A tongue-twisting rap by a Berlin duo has spotlighted Germans’ love of their springtime produce. Now if only they could find a rhyme for asparagus.`\
-https://nytimes.com/2024/06/01/world/europe/germany-rhubarb-rap.html
 
