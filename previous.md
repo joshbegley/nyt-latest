@@ -1,40 +1,40 @@
-**U.N. official describes ‘beyond crisis’ conditions facing people who fled Rafah.**\
-`By Victoria Kim`\
-https://nytimes.com/live/2024/06/01/world/israel-gaza-war-hamas-rafah/un-official-describes-beyond-crisis-conditions-facing-people-who-fled-rafah
+**Democrats Push Biden to Make Trump’s Felonies a Top 2024 Issue**\
+`Interviews with dozens of Democrats reveal a party hungry to tell voters that Donald Trump’s conviction makes him unfit for office, and hopeful that President Biden will lead the way.`\
+https://nytimes.com/2024/06/01/us/politics/trump-conviction-biden-democrats.html
 
-**Trump Verdict Confirms How Far Former Master of New York City Has Fallen**\
-`Donald J. Trump was for decades a creature of New York. But in recent years, the city that helped make him seems more eager to break him.`\
-https://nytimes.com/2024/06/01/nyregion/donald-trump-new-york-nyc.html
+**My Friend Asked for Clothing Donations and Then Sold Them on Poshmark. Do I Confront Her?**\
+`The magazine’s Ethicist columnist on how to handle deception by a friend.`\
+https://nytimes.com/2024/06/01/magazine/teacher-stealing-donations-what-do-i-do.html
 
-**Trump Has Few Ways to Overturn His Conviction as a New York Felon**\
-`New York appellate courts rarely overturn a jury decision without evidence of serious errors. The judge in Donald J. Trump’s case closed off many avenues.`\
-https://nytimes.com/2024/06/01/nyregion/trump-appeal-conviction.html
+**Google Rolls Back A.I. Search Feature After Flubs and Flaws**\
+`Google appears to have turned off its new A.I. Overviews for a number of searches as it works to minimize errors.`\
+https://nytimes.com/2024/06/01/technology/google-ai-overviews-rollback.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/06/01/crosswords/spelling-bee-forum.html
+**The Best Movies and TV Shows Coming to Amazon, AMC+, Disney+, Hulu, and More in June**\
+`“The Boys,” “Orphan Black: Echoes,” “The Bear” and “The Acolyte” will be streaming.`\
+https://nytimes.com/2024/06/01/arts/television/june-stsreaming-movies-tv-shows.html
 
-**How Michael Rainey Jr. of ‘Power Book II: Ghost’ Spends His Sundays**\
-`Mr. Rainey starts his day with tea, and then it’s time for fancy cars, making beats and Call of Duty with his friends.`\
-https://nytimes.com/2024/06/01/nyregion/michael-rainey-jr-power-ghost-starz.html
+**Bacon, Banter and the Business of a Diner**\
+`“I try to make people feel good.” How one New Jersey diner keeps the doors open.`\
+https://nytimes.com/2024/06/01/business/new-jersey-diner-bendix.html
 
-**Doctor-Assisted Death Is Legal in 10 States. Could New York Be No. 11?**\
-`Activists have renewed attention on legislation related to the emotional issue of so-called medical aid in dying that has long languished in Albany.`\
-https://nytimes.com/2024/06/01/nyregion/euthanasia-assisted-suicide-ny.html
+**‘Sugar’ Actress Kirby on the Only Album She Really Needs**\
+`She co-starred in the Apple TV+ show with Colin Farrell after appearing in “Killing Eve” and “Barry.” Now when she does a red carpet, she knows to go with Doc Martens.`\
+https://nytimes.com/2024/06/01/arts/television/kirby-sugar.html
 
-**Worried About Youth Crime, Newark Revives an 11 P.M. Curfew**\
-`Newark has begun enforcing a longstanding law that prohibits people under 18 from being out late at night.`\
-https://nytimes.com/2024/06/01/nyregion/newark-teen-curfew.html
+**The History of Black Baseball Players, on Full Display**\
+`As the number of African American players dwindles, a new exhibit at the Hall of Fame traces 150 years of Black baseball feats, stars and obstacles.`\
+https://nytimes.com/2024/06/01/arts/design/baseball-black-players-hall-of-fame.html
 
-**Russia Bombards Ukraine with Missiles, Ukraine Says**\
-`The large-scale air assault appeared to be targeting western Ukraine, including places near borders with NATO allies.`\
-https://nytimes.com/2024/06/01/world/europe/russia-ukraine-air-attacks.html
+**The Very Online Afterlife of Franz Kafka**\
+`One hundred years after his death, the Czech writer circulates as a pop idol of digital alienation.`\
+https://nytimes.com/2024/06/01/arts/franz-kafka-tiktok-centennial.html
 
-**The Champions League’s Most Bitter Rivalry May Be Off the Field**\
-`No club has won European soccer’s richest prize more than Real Madrid, but its recent dominance has been accompanied by a bruising fight over the tournament’s future.`\
-https://nytimes.com/2024/06/01/world/europe/real-madrid-uefa-champions-league.html
+**She’s 98, and Walked Past Corpses to Escape Russian Attacks**\
+`“If only everything would stop,” said Lidiia Lomikovska, who walked to safety after her town was attacked. But for civilians in the Donetsk region of Ukraine, it is not stopping.`\
+https://nytimes.com/2024/06/01/world/europe/ukraine-donetsk-civilians.html
 
-**Scandals and Missteps Slow Momentum of Germany’s Far Right**\
-`The Alternative for Germany party remains strong, but a growing pushback at home and abroad may be blunting its surge.`\
-https://nytimes.com/2024/06/01/world/europe/germany-afd-far-right-scandal.html
+**Security Deposits: Your Landlord May Owe You More Than You Think**\
+`Landlords are required to put security deposits in interest-bearing bank accounts. How much of that interest goes to you?`\
+https://nytimes.com/2024/06/01/realestate/security-deposit-interest-account.html
 
