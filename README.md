@@ -1,3 +1,7 @@
+**‘2,000 Mules’ Producer Apologizes to Man Depicted Committing Election Fraud**\
+`Salem Media Group, which co-produced the 2022 film, issued the apology to a Georgia man who was falsely depicted as stuffing a ballot box near Atlanta.`\
+https://nytimes.com/2024/05/31/us/politics/2000-mules-salem-georgia-apology.html
+
 **Cram In**\
 `Eric Warren’s Saturday debut fits a lot of fun into tight spaces.`\
 https://nytimes.com/2024/05/31/crosswords/daily-puzzle-2024-06-01.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/us/politics/donald-trump-trial-conviction-campaig
 **Ticketmaster Confirms Data Breach. Here’s What to Know.**\
 `The hacking group ShinyHunters has claimed responsibility for stealing the user information of more than 500 million Ticketmaster customers.`\
 https://nytimes.com/2024/05/31/business/ticketmaster-hack-data-breach.html
-
-**Deepfake of U.S. Official Appears After Shift on Ukraine Attacks in Russia**\
-`A manufactured video fabricated comments by the State Department spokesman, Matthew Miller.`\
-https://nytimes.com/2024/05/31/us/politics/deepfake-us-official-russia.html
 
