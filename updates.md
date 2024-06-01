@@ -1,3 +1,7 @@
+**What Donald Trump Didn’t Say After His Trial**\
+`In his post-verdict remarks, the former president sounded more like an aggrieved New York businessman than the political martyr his supporters believe him to be.`\
+https://nytimes.com/2024/06/01/books/review/donald-trump-speech-verdict.html
+
 **Boeing’s aviation safety record is under heavy scrutiny this year.**\
 `By Niraj Chokshi`\
 https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/boeings-aviation-safety-record-is-under-heavy-scrutiny-this-year
