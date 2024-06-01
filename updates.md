@@ -1,3 +1,7 @@
+**It’s June Again**\
+`Summer returns, and with it all the feelings and fantasies and fears we associate with the season.`\
+https://nytimes.com/2024/06/01/briefing/its-june-again.html
+
 **Netanyahu says that Israel’s demands for ending the war ‘have not changed.’**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/06/01/world/israel-gaza-war-hamas-rafah/netanyahu-says-that-israels-demands-for-ending-the-war-have-not-changed

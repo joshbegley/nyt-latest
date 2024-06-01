@@ -1,3 +1,7 @@
+**It’s June Again**\
+`Summer returns, and with it all the feelings and fantasies and fears we associate with the season.`\
+https://nytimes.com/2024/06/01/briefing/its-june-again.html
+
 **Netanyahu says that Israel’s demands for ending the war ‘have not changed.’**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/06/01/world/israel-gaza-war-hamas-rafah/netanyahu-says-that-israels-demands-for-ending-the-war-have-not-changed
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/01/us/politics/trump-verdict-voters-election.html
 **A 9/11 Charity Provides a Financial Safety Net to a Giuliani Firm**\
 `Five months after filing for bankruptcy, the former New York City mayor disclosed his company’s income from a foundation established to honor a firefighter killed on Sept. 11, 2001.`\
 https://nytimes.com/2024/06/01/us/politics/rudy-giuliani-finances-charity.html
-
-**Why Mexico May Elect a Female President Before the United States**\
-`Having a woman as president will be a milestone in a country where gender-based violence is so common. But how much will change remains unclear.`\
-https://nytimes.com/2024/06/01/world/americas/mexico-presidential-election-women.html
 
