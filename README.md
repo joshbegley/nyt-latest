@@ -2,7 +2,7 @@
 `By Raja Abdulrahim and Ameera Harouda`\
 https://nytimes.com/live/2024/06/01/world/israel-gaza-war-hamas-rafah/in-gaza-a-university-lecturer-asks-of-the-latest-cease-fire-proposal-who-will-govern-us-after-the-war
 
-**Idaho Man in ‘Doomsday’ Killings Sentenced to Death**\
+**Idaho Man in ‘Doomsday’ Killings Is Sentenced to Death**\
 `Chad Daybell was convicted on Thursday in the murders of his first wife and two children of his current spouse, Lori Vallow Daybell. The couple’s extreme beliefs drew attention to the case.`\
 https://nytimes.com/2024/06/01/us/chad-daybell-convicted-idaho-jury.html
 
