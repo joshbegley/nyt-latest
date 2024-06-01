@@ -1,3 +1,7 @@
+**The Champions League’s Most Bitter Rivalry May Be Off the Field**\
+`No club has won European soccer’s richest prize more than Real Madrid, but its recent dominance has been accompanied by a bruising fight over the tournament’s future.`\
+https://nytimes.com/2024/06/01/world/europe/real-madrid-uefa-champions-league.html
+
 **Scandals and Missteps Slow Momentum of Germany’s Far Right**\
 `The Alternative for Germany party remains strong, but a growing pushback at home and abroad may be blunting its surge.`\
 https://nytimes.com/2024/06/01/world/europe/germany-afd-far-right-scandal.html
