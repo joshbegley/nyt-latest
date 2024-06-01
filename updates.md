@@ -1,3 +1,7 @@
+**Sam Butcher, Who Gave the World Precious Moments, Dies at 85**\
+`His childlike porcelain characters thrilled and inspired generations of collectors. They also made him a millionaire.`\
+https://nytimes.com/2024/06/01/business/sam-butcher-dead.html
+
 **Here’s the flight plan for Starliner’s journey.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/heres-the-flight-plan-for-starliners-journey
