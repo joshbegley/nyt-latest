@@ -1,3 +1,7 @@
+**Here’s the flight plan for Starliner’s journey.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/heres-the-flight-plan-for-starliners-journey
+
 **Meet Suni Williams and Butch Wilmore, the NASA Astronauts Riding on Boeing’s Starliner**\
 `After a May 6 liftoff was scrubbed, the astronauts returned to their home base in Houston and continued their preparations for Saturday’s flight.`\
 https://nytimes.com/2024/06/01/science/suni-williams-butch-wilmore-boeing-starliner-crew.html

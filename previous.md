@@ -1,3 +1,7 @@
+**Here’s the flight plan for Starliner’s journey.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/heres-the-flight-plan-for-starliners-journey
+
 **Boeing’s Starliner capsule has had a long, difficult road to human spaceflight.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/boeings-starliner-capsule-has-had-a-long-difficult-road-to-human-spaceflight
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/what-is-boei
 **Meet Suni Williams and Butch Wilmore, the NASA Astronauts Riding on Boeing’s Starliner**\
 `After a May 6 liftoff was scrubbed, the astronauts returned to their home base in Houston and continued their preparations for Saturday’s flight.`\
 https://nytimes.com/2024/06/01/science/suni-williams-butch-wilmore-boeing-starliner-crew.html
-
-**As Voting Ends in India, Modi Awaits a Verdict on His 10 Years in Power**\
-`While a newly united opposition seemed to gain some traction, exit polls showed the popular and entrenched prime minister was winning a third term.`\
-https://nytimes.com/2024/06/01/world/asia/india-election-modi.html
 
