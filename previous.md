@@ -1,3 +1,19 @@
+**Warnings of Election Meddling by China Never Reached the Prime Minister**\
+`A watchdog agency found roadblocks to the flow of information both within the spy agency and the public service.`\
+https://nytimes.com/2024/06/01/world/canada/warnings-of-election-meddling-by-china-never-reached-the-prime-minister.html
+
+**The Connections Companion No. 357, June 2, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/01/crosswords/connections-companion-357.html
+
+**Wordle Review No. 1,079, June 2, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/01/crosswords/wordle-review-1079.html
+
+**South African Voters Reject the Party That Freed Them From Apartheid**\
+`The African National Congress received less than 50 percent of the national vote for the first time since gaining power 30 years ago, setting the nation on an uncharted course.`\
+https://nytimes.com/2024/06/01/world/africa/south-africa-election-results.html
+
 **Notre-Dame Rises Again ... in Lego**\
 `With rose windows, bell towers and a central spire, this model of the famed Paris cathedral is all the hype among adult fans of Lego, known as AFOLs.`\
 https://nytimes.com/2024/06/01/world/europe/lego-notre-dame-cathedral.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/06/01/world/americas/mexico-presidential-election-women
 **Elaine May, Ahead of Her Time**\
 `For the brilliant comedian, writer and director, Hollywood success was elusive. A new book offers perspective on the rocky career.`\
 https://nytimes.com/2024/06/01/arts/elaine-may-ahead-of-her-time.html
-
-**Democrats Push Biden to Make Trump’s Felonies a Top 2024 Issue**\
-`Interviews with dozens of Democrats reveal a party hungry to tell voters that Donald Trump’s conviction makes him unfit for office, and hopeful that President Biden will lead the way.`\
-https://nytimes.com/2024/06/01/us/politics/trump-conviction-biden-democrats.html
-
-**My Friend Asked for Clothing Donations and Then Sold Them on Poshmark. Do I Confront Her?**\
-`The magazine’s Ethicist columnist on how to handle deception by a friend.`\
-https://nytimes.com/2024/06/01/magazine/teacher-stealing-donations-what-do-i-do.html
-
-**Google Rolls Back A.I. Search Feature After Flubs and Flaws**\
-`Google appears to have turned off its new A.I. Overviews for a number of searches as it works to minimize errors.`\
-https://nytimes.com/2024/06/01/technology/google-ai-overviews-rollback.html
-
-**The Best Movies and TV Shows Coming to Amazon, AMC+, Disney+, Hulu, and More in June**\
-`“The Boys,” “Orphan Black: Echoes,” “The Bear” and “The Acolyte” will be streaming.`\
-https://nytimes.com/2024/06/01/arts/television/june-stsreaming-movies-tv-shows.html
 
