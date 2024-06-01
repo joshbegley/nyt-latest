@@ -1,3 +1,7 @@
+**After Biden’s Call for Truce, Netanyahu Says Israel’s War Plans Are Unchanged**\
+`The timing seemed to rebuff the president’s hopes for a speedy end to the war. But some analysts said Mr. Netanyahu’s remarks were aimed at his supporters, not the White House.`\
+https://nytimes.com/2024/06/01/world/middleeast/netanyahu-biden-peace-gaza-hamas.html
+
 **Yael Dayan, Israeli Writer, Politician and Daughter of War Hero, Dies at 85**\
 `She was hailed for her books and admired for promoting women’s rights. But her support for a two-state solution to the Palestinian conflict angered many.`\
 https://nytimes.com/2024/06/01/world/middleeast/yael-dayan-dead.html
