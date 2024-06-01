@@ -1,3 +1,7 @@
+**‘Everyone Sat Stunned After the First Bite’**\
+`Chez Panisse’s blueberry cobbler has that effect.`\
+https://nytimes.com/2024/06/01/dining/everyone-sat-stunned-after-the-first-bite.html
+
 **What Donald Trump Didn’t Say After His Trial**\
 `In his post-verdict remarks, the former president sounded less like a political martyr than like a motorist trying to talk his way out of a speeding ticket.`\
 https://nytimes.com/2024/06/01/books/review/donald-trump-speech-verdict.html
@@ -34,4 +38,3 @@ https://nytimes.com/2024/06/01/business/dealbook/companies-counter-pushback-on-p
 `Ditch the dye; live with style.`\
 https://nytimes.com/2024/06/01/books/read-like-wind-going-gray.html
 
-**World leaders and officials welcome the cease-fire proposal, and other news.**\
