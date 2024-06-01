@@ -1,3 +1,7 @@
+**Netanyahu says that Israel’s demands for ending the war ‘have not changed.’**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/06/01/world/israel-gaza-war-hamas-rafah/netanyahu-says-that-israels-demands-for-ending-the-war-have-not-changed
+
 **Warnings of Election Meddling by China Never Reached the Prime Minister**\
 `A watchdog agency found roadblocks to the flow of information both within the spy agency and the public service.`\
 https://nytimes.com/2024/06/01/world/canada/warnings-of-election-meddling-by-china-never-reached-the-prime-minister.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/01/us/politics/rudy-giuliani-finances-charity.html
 **Why Mexico May Elect a Female President Before the United States**\
 `Having a woman as president will be a milestone in a country where gender-based violence is so common. But how much will change remains unclear.`\
 https://nytimes.com/2024/06/01/world/americas/mexico-presidential-election-women.html
-
-**Elaine May, Ahead of Her Time**\
-`For the brilliant comedian, writer and director, Hollywood success was elusive. A new book offers perspective on the rocky career.`\
-https://nytimes.com/2024/06/01/arts/elaine-may-ahead-of-her-time.html
 
