@@ -1,3 +1,7 @@
+**Some of the astronauts’ luggage is not going to make it to the space station.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/some-of-the-astronauts-luggage-is-not-going-to-make-it-to-the-space-station
+
 **What is Boeing’s Starliner spacecraft?**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/what-is-boeings-starliner-spacecraft
