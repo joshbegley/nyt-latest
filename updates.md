@@ -1,3 +1,7 @@
+**Corrections: June 2, 2024**\
+`Corrections that appeared in print on Sunday, June 2, 2024.`\
+https://nytimes.com/2024/06/01/pageoneplus/corrections-june-2-2024.html
+
 **Quotation of the Day: Laborers Who Take Time Off in Pakistan’s Record Heat Risk Going Hungry**\
 `Quotation of the Day for Sunday, June 2, 2024.`\
 https://nytimes.com/2024/06/01/pageoneplus/quotation-of-the-day-laborers-who-take-time-off-in-pakistans-record-heat-risk-going-hungry.html

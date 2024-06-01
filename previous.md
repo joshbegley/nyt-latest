@@ -1,3 +1,7 @@
+**Corrections: June 2, 2024**\
+`Corrections that appeared in print on Sunday, June 2, 2024.`\
+https://nytimes.com/2024/06/01/pageoneplus/corrections-june-2-2024.html
+
 **Quotation of the Day: Laborers Who Take Time Off in Pakistan’s Record Heat Risk Going Hungry**\
 `Quotation of the Day for Sunday, June 2, 2024.`\
 https://nytimes.com/2024/06/01/pageoneplus/quotation-of-the-day-laborers-who-take-time-off-in-pakistans-record-heat-risk-going-hungry.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/01/world/middleeast/yael-dayan-dead.html
 **In Gaza, a university lecturer asks of the latest cease-fire proposal: Who will govern us after the war?**\
 `By Raja Abdulrahim and Ameera Harouda`\
 https://nytimes.com/live/2024/06/01/world/israel-gaza-war-hamas-rafah/in-gaza-a-university-lecturer-asks-of-the-latest-cease-fire-proposal-who-will-govern-us-after-the-war
-
-**Idaho Man in ‘Doomsday’ Killings Is Sentenced to Death**\
-`Chad Daybell was convicted on Thursday in the murders of his first wife and two children of his current spouse, Lori Vallow Daybell. The couple’s extreme beliefs drew attention to the case.`\
-https://nytimes.com/2024/06/01/us/chad-daybell-convicted-idaho-jury.html
 
