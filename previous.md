@@ -1,3 +1,7 @@
+**Boeing’s Starliner capsule has had a long, difficult road to human spaceflight.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/boeings-starliner-capsule-has-had-a-long-difficult-road-to-human-spaceflight
+
 **Boeing’s aviation safety record is under heavy scrutiny this year.**\
 `By Niraj Chokshi`\
 https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/boeings-aviation-safety-record-is-under-heavy-scrutiny-this-year
@@ -31,10 +35,6 @@ https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/what-is-boei
 https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/the-starliner-astronauts-have-been-patient-then-they-had-to-wait-again
 
 **As Voting Ends in India, Modi Awaits a Verdict on His 10 Years in Power**\
-`While a newly united opposition seemed to gain some traction, it faced an uphill task in unseating a deeply entrenched prime minister.`\
+`While a newly united opposition seemed to gain some traction, exit polls showed the popular and entrenched prime minister was winning a third term.`\
 https://nytimes.com/2024/06/01/world/asia/india-election-modi.html
-
-**Companies Counter Pushback on Price Increases With Promotions**\
-`“The consumer was a fat pig — now there’s nothing left, and they need to feed the pig again,” one banker told DealBook.`\
-https://nytimes.com/2024/06/01/business/dealbook/companies-counter-pushback-on-price-increases-with-promotions.html
 

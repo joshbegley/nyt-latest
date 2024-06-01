@@ -1,3 +1,11 @@
+**Boeing’s Starliner capsule has had a long, difficult road to human spaceflight.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/boeings-starliner-capsule-has-had-a-long-difficult-road-to-human-spaceflight
+
+**As Voting Ends in India, Modi Awaits a Verdict on His 10 Years in Power**\
+`While a newly united opposition seemed to gain some traction, exit polls showed the popular and entrenched prime minister was winning a third term.`\
+https://nytimes.com/2024/06/01/world/asia/india-election-modi.html
+
 **What Donald Trump Didn’t Say After His Trial**\
 `In his post-verdict remarks, the former president sounded more like an aggrieved New York businessman than the political martyr his supporters believe him to be.`\
 https://nytimes.com/2024/06/01/books/review/donald-trump-speech-verdict.html
