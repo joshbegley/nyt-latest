@@ -1,3 +1,7 @@
+**Demonstrators in Tel Aviv and other cities call on Netanyahu to accept the cease-fire proposal.**\
+`By Alexandra E. Petri`\
+https://nytimes.com/live/2024/06/01/world/israel-gaza-war-hamas-rafah/demonstrators-in-tel-aviv-and-other-cities-call-on-netanyahu-to-accept-the-cease-fire-proposal
+
 **After Biden’s Push for Truce, Netanyahu Calls Israel’s War Plans Unchanged**\
 `The timing of the remarks seemed to rebuff the president’s hopes for a speedy end to the war. But some analysts said the prime minister was aiming at domestic supporters, not the White House.`\
 https://nytimes.com/2024/06/01/world/middleeast/netanyahu-biden-israel-gaza-cease-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/boeings-star
 **Boeing’s aviation safety record is under heavy scrutiny this year.**\
 `By Niraj Chokshi`\
 https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/boeings-aviation-safety-record-is-under-heavy-scrutiny-this-year
-
-**‘Everyone Sat Stunned After the First Bite’**\
-`Chez Panisse’s blueberry cobbler has that effect.`\
-https://nytimes.com/2024/06/01/dining/everyone-sat-stunned-after-the-first-bite.html
 
