@@ -1,3 +1,7 @@
+**Notre-Dame Rises Again ... in Lego**\
+`With rose windows, bell towers and a central spire, this model of the famed Paris cathedral is all the hype among adult fans of Lego, known as AFOLs.`\
+https://nytimes.com/2024/06/01/world/europe/lego-notre-dame-cathedral.html
+
 **Richard Linklater Sees the Killer Inside Us All**\
 `David Marchese talks to the acclaimed director about his new film, “Hit Man,” and life’s big questions.`\
 https://nytimes.com/2024/06/01/magazine/richard-linklater-interview.html
