@@ -1,3 +1,7 @@
+**The Champions League’s Most Bitter Rivalry May Be Off the Field**\
+`No club has won European soccer’s richest prize more than Real Madrid, but its recent dominance has been accompanied by a bruising fight over the tournament’s future.`\
+https://nytimes.com/2024/06/01/world/europe/real-madrid-uefa-champions-league.html
+
 **Scandals and Missteps Slow Momentum of Germany’s Far Right**\
 `The Alternative for Germany party remains strong, but a growing pushback at home and abroad may be blunting its surge.`\
 https://nytimes.com/2024/06/01/world/europe/germany-afd-far-right-scandal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/crosswords/daily-puzzle-2024-06-01.html
 **Biden Dons Kansas City Helmet to Celebrate Its Super Bowl Victory**\
 `Taylor Swift was not at the White House to celebrate with her boyfriend, Travis Kelce, but kicker Harrison Butker, who recently drew controversy for a commencement speech, attended.`\
 https://nytimes.com/2024/05/31/us/politics/biden-kansas-city-chiefs-super-bowl.html
-
-**How Trump’s Most Loyal Supporters Are Responding to the Verdict**\
-`Many saw in the jury’s finding a rejection of themselves, of their values and even of democracy itself.`\
-https://nytimes.com/2024/05/31/us/trump-verdict-voters.html
 
