@@ -1,3 +1,19 @@
+**Trump Verdict Hardens Many Views, but Changes Some, Too**\
+`For the remaining undecided voters, the decision to pick former President Donald J. Trump could be more difficult now that he is a felon.`\
+https://nytimes.com/2024/06/01/us/politics/trump-verdict-voters-election.html
+
+**A 9/11 Charity Provides a Financial Safety Net to a Giuliani Firm**\
+`Five months after filing for bankruptcy, the former New York City mayor disclosed his company’s income from a foundation established to honor a firefighter killed on Sept. 11, 2001.`\
+https://nytimes.com/2024/06/01/us/politics/rudy-giuliani-finances-charity.html
+
+**Why Mexico May Elect a Female President Before the United States**\
+`Having a woman as president will be a milestone in a country where gender-based violence is so common. But how much will change remains unclear.`\
+https://nytimes.com/2024/06/01/world/americas/mexico-presidential-election-women.html
+
+**Elaine May, Ahead of Her Time**\
+`For the brilliant comedian, writer and director, Hollywood success was elusive. A new book offers perspective on the rocky career.`\
+https://nytimes.com/2024/06/01/arts/elaine-may-ahead-of-her-time.html
+
 **Democrats Push Biden to Make Trump’s Felonies a Top 2024 Issue**\
 `Interviews with dozens of Democrats reveal a party hungry to tell voters that Donald Trump’s conviction makes him unfit for office, and hopeful that President Biden will lead the way.`\
 https://nytimes.com/2024/06/01/us/politics/trump-conviction-biden-democrats.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/06/01/business/new-jersey-diner-bendix.html
 **‘Sugar’ Actress Kirby on the Only Album She Really Needs**\
 `She co-starred in the Apple TV+ show with Colin Farrell after appearing in “Killing Eve” and “Barry.” Now when she does a red carpet, she knows to go with Doc Martens.`\
 https://nytimes.com/2024/06/01/arts/television/kirby-sugar.html
-
-**The History of Black Baseball Players, on Full Display**\
-`As the number of African American players dwindles, a new exhibit at the Hall of Fame traces 150 years of Black baseball feats, stars and obstacles.`\
-https://nytimes.com/2024/06/01/arts/design/baseball-black-players-hall-of-fame.html
-
-**The Very Online Afterlife of Franz Kafka**\
-`One hundred years after his death, the Czech writer circulates as a pop idol of digital alienation.`\
-https://nytimes.com/2024/06/01/arts/franz-kafka-tiktok-centennial.html
-
-**She’s 98, and Walked Past Corpses to Escape Russian Attacks**\
-`“If only everything would stop,” said Lidiia Lomikovska, who walked to safety after her town was attacked. But for civilians in the Donetsk region of Ukraine, it is not stopping.`\
-https://nytimes.com/2024/06/01/world/europe/ukraine-donetsk-civilians.html
-
-**Security Deposits: Your Landlord May Owe You More Than You Think**\
-`Landlords are required to put security deposits in interest-bearing bank accounts. How much of that interest goes to you?`\
-https://nytimes.com/2024/06/01/realestate/security-deposit-interest-account.html
 

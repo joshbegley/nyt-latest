@@ -1,3 +1,19 @@
+**Trump Verdict Hardens Many Views, but Changes Some, Too**\
+`For the remaining undecided voters, the decision to pick former President Donald J. Trump could be more difficult now that he is a felon.`\
+https://nytimes.com/2024/06/01/us/politics/trump-verdict-voters-election.html
+
+**A 9/11 Charity Provides a Financial Safety Net to a Giuliani Firm**\
+`Five months after filing for bankruptcy, the former New York City mayor disclosed his company’s income from a foundation established to honor a firefighter killed on Sept. 11, 2001.`\
+https://nytimes.com/2024/06/01/us/politics/rudy-giuliani-finances-charity.html
+
+**Why Mexico May Elect a Female President Before the United States**\
+`Having a woman as president will be a milestone in a country where gender-based violence is so common. But how much will change remains unclear.`\
+https://nytimes.com/2024/06/01/world/americas/mexico-presidential-election-women.html
+
+**Elaine May, Ahead of Her Time**\
+`For the brilliant comedian, writer and director, Hollywood success was elusive. A new book offers perspective on the rocky career.`\
+https://nytimes.com/2024/06/01/arts/elaine-may-ahead-of-her-time.html
+
 **Democrats Push Biden to Make Trump’s Felonies a Top 2024 Issue**\
 `Interviews with dozens of Democrats reveal a party hungry to tell voters that Donald Trump’s conviction makes him unfit for office, and hopeful that President Biden will lead the way.`\
 https://nytimes.com/2024/06/01/us/politics/trump-conviction-biden-democrats.html
