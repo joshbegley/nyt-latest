@@ -1,3 +1,7 @@
+**Biden Dons a Chiefs Helmet to Celebrate Their Super Bowl Victory**\
+`Taylor Swift was not at the White House to celebrate with her boyfriend, Travis Kelce, but kicker Harrison Butker, who recently drew controversy for a commencement speech, attended.`\
+https://nytimes.com/2024/05/31/us/politics/biden-kansas-city-chiefs-super-bowl.html
+
 **How Trump’s Most Loyal Supporters Are Responding to the Verdict**\
 `Many saw in the jury’s finding a rejection of themselves, of their values and even of democracy itself.`\
 https://nytimes.com/2024/05/31/us/trump-verdict-voters.html
