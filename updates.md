@@ -1,3 +1,7 @@
+**Robert Pickton, Notorious Canadian Serial Killer, Dies at 74**\
+`Convicted in the murder of six women (though he boasted of killing many more), he died of unspecified injuries after being assaulted in prison.`\
+https://nytimes.com/2024/06/01/world/canada/robert-pickton-notorious-canadian-serial-killer-dies-at-74.html
+
 **‘He’s Had Great Challenges’: Giuliani Holds 80th Birthday Amid Many Woes**\
 `The indicted and increasingly isolated former New York mayor celebrated his birthday over pasta and meatballs. Donald J. Trump sent a video.`\
 https://nytimes.com/2024/06/01/us/politics/rudy-giuliani-birthday-donald-trump-new-york.html

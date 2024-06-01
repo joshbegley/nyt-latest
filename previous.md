@@ -1,3 +1,7 @@
+**Robert Pickton, Notorious Canadian Serial Killer, Dies at 74**\
+`Convicted in the murder of six women (though he boasted of killing many more), he died of unspecified injuries after being assaulted in prison.`\
+https://nytimes.com/2024/06/01/world/canada/robert-pickton-notorious-canadian-serial-killer-dies-at-74.html
+
 **‘He’s Had Great Challenges’: Giuliani Holds 80th Birthday Amid Many Woes**\
 `The indicted and increasingly isolated former New York mayor celebrated his birthday over pasta and meatballs. Donald J. Trump sent a video.`\
 https://nytimes.com/2024/06/01/us/politics/rudy-giuliani-birthday-donald-trump-new-york.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/01/business/sam-butcher-dead.html
 **Here’s the flight plan for Starliner’s journey.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/heres-the-flight-plan-for-starliners-journey
-
-**Boeing’s Starliner capsule has had a long, difficult road to human spaceflight.**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2024/06/01/science/boeing-starliner-launch/boeings-starliner-capsule-has-had-a-long-difficult-road-to-human-spaceflight
 
