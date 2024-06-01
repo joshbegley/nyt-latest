@@ -1,3 +1,7 @@
+**Biden Dons a Chiefs Helmet to Celebrate Their Super Bowl Victory**\
+`Taylor Swift was not at the White House to celebrate with her boyfriend, Travis Kelce, but kicker Harrison Butker, who recently drew controversy for a commencement speech, attended.`\
+https://nytimes.com/2024/05/31/us/politics/biden-kansas-city-chiefs-super-bowl.html
+
 **How Trump’s Most Loyal Supporters Are Responding to the Verdict**\
 `Many saw in the jury’s finding a rejection of themselves, of their values and even of democracy itself.`\
 https://nytimes.com/2024/05/31/us/trump-verdict-voters.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/05/31/us/politics/deepfake-us-official-russia.html
 **Donald Trump Was Convicted Here? Who Knew?**\
 `On Friday, the Manhattan Criminal Courthouse swiftly returned to processing mundane mayhem after weeks of intensity and chaos from former President Donald J. Trump’s trial.`\
 https://nytimes.com/2024/05/31/nyregion/trump-manhattan-courthouse.html
-
-**Former U.S. Agriculture Official Says Menendez Told Him to ‘Stop Interfering’**\
-`Jurors in Senator Robert Menendez’s bribery trial heard directly from a witness who recounted Mr. Menendez’s efforts to flex his political muscle.`\
-https://nytimes.com/2024/05/31/nyregion/robert-menendez-bribery-trial.html
 
