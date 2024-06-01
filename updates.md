@@ -1,3 +1,7 @@
+**South Africa Is Not a Metaphor**\
+`The country’s story of liberation has been both a symbol of hope and a burden. Now it’s time for reality.`\
+https://nytimes.com/2024/06/01/opinion/south-africa-election-israel-apartheid.html
+
 **That Other Guy**\
 `People tethered to a particular someone else, whether they like it or not.`\
 https://nytimes.com/2024/06/01/podcasts/this-american-life-that-other-guy-nyt-audio.html
