@@ -1,3 +1,7 @@
+**Netanyahu may be forced to choose between a cease-fire and political survival.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/06/02/world/israel-gaza-war-hamas-rafah/netanyahu-may-be-forced-to-choose-between-a-cease-fire-and-political-survival
+
 **Stuck at the Start**\
 `In the last few years, many Americans have gotten stuck in their starter house.`\
 https://nytimes.com/2024/06/02/briefing/starter-homes-housing-market.html
