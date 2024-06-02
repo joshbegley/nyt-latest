@@ -1,3 +1,7 @@
+**After Pipes Burst in Atlanta, Many Residents Lose Water, Then Patience**\
+`Major main breaks resulted in closed businesses, canceled events and angry residents who were upset over a lack of updates.`\
+https://nytimes.com/2024/06/01/us/atlanta-water-disruption.html
+
 **Corrections: June 2, 2024**\
 `Corrections that appeared in print on Sunday, June 2, 2024.`\
 https://nytimes.com/2024/06/01/pageoneplus/corrections-june-2-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/01/world/middleeast/netanyahu-biden-israel-gaza-ceas
 **Yael Dayan, Israeli Writer, Politician and Daughter of War Hero, Dies at 85**\
 `She was hailed for her books and admired for promoting women’s rights. But her support for a two-state solution to the Palestinian conflict angered many.`\
 https://nytimes.com/2024/06/01/world/middleeast/yael-dayan-dead.html
-
-**In Gaza, a university lecturer asks of the latest cease-fire proposal: Who will govern us after the war?**\
-`By Raja Abdulrahim and Ameera Harouda`\
-https://nytimes.com/live/2024/06/01/world/israel-gaza-war-hamas-rafah/in-gaza-a-university-lecturer-asks-of-the-latest-cease-fire-proposal-who-will-govern-us-after-the-war
 

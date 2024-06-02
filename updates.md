@@ -1,3 +1,7 @@
+**After Pipes Burst in Atlanta, Many Residents Lose Water, Then Patience**\
+`Major main breaks resulted in closed businesses, canceled events and angry residents who were upset over a lack of updates.`\
+https://nytimes.com/2024/06/01/us/atlanta-water-disruption.html
+
 **Corrections: June 2, 2024**\
 `Corrections that appeared in print on Sunday, June 2, 2024.`\
 https://nytimes.com/2024/06/01/pageoneplus/corrections-june-2-2024.html
