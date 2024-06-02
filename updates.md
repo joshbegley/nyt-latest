@@ -1,3 +1,9 @@
+**The meeting will focus on reopening the Rafah crossing.**\
+`By Aaron Boxerman and Mike Ives`\
+https://nytimes.com/live/2024/06/02/world/israel-gaza-war-hamas-rafah/the-meeting-will-focus-on-reopening-the-rafah-crossing
+
+**Two of Netanyahu’s coalition partners push back on a cease-fire proposal, and other news.**\
+
 **Why Did North Korea Bombard the South With Trash Balloons?**\
 `The unusual offensive, across the world’s most heavily fortified border, is a revival of a Cold War era tactic. The South has threatened to respond by blasting K-pop.`\
 https://nytimes.com/2024/06/02/world/asia/north-korea-trash-balloons.html
