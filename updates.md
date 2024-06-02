@@ -1,3 +1,7 @@
+**Netanyahu May Face a Choice Between a Truce and His Government’s Survival**\
+`The Israeli prime minister has been put on the spot by President Biden’s announcement outlining a proposal for a truce.`\
+https://nytimes.com/2024/06/02/world/middleeast/netanyahu-biden-truce-proposal.html
+
 **Hunter Biden to Go on Trial in Gun Case, Days After Trump Was Convicted**\
 `On Monday in Delaware, one of two trials will begin in which President Biden’s son will defend himself during a presidential election year.`\
 https://nytimes.com/2024/06/02/us/politics/hunter-biden-gun-trial-delaware.html
