@@ -1,3 +1,7 @@
+**Amid chants of ‘We love Trump,’ the former president watches a U.F.C. event in New Jersey.**\
+`By Shawn McCreesh`\
+https://nytimes.com/live/2024/06/01/us/biden-trump-election/trump-ufc-newark
+
 **From Texas to Michigan, a Punishing Month of Tornadoes **\
 `More than 500 tornadoes were reported, the most of any month in at least five years.`\
 https://nytimes.com/card/2024/06/02/us/may-tornado-destruction
