@@ -1,3 +1,7 @@
+**Intense Security at Peaceful Parade for Israel in Manhattan**\
+`The annual parade focused this year on the hostages in Gaza. Thousands marched, and with many streets blocked off, there were few protesters.`\
+https://nytimes.com/2024/06/02/nyregion/israel-war-parade-protest.html
+
 **Teacher Placed on Leave Over ‘Mock Slave Auction’ in Classroom**\
 `The teacher in Massachusetts, who has not been named, was placed on leave after also using a racial slur, the school superintendent said.`\
 https://nytimes.com/2024/06/02/us/teacher-slave-auction-boston.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/02/us/politics/hunter-biden-gun-trial-delaware.html
 **1 Dead and 24 Wounded in Akron Shooting, Police Say**\
 `Details about what led up to the shooting in Akron, Ohio, were unclear. At least two of those wounded were in critical condition, officials said.`\
 https://nytimes.com/2024/06/02/us/akron-ohio-shooting.html
-
-**Trump Joins TikTok, the App He Once Tried to Ban**\
-`The former president has recently embraced the platform as he seeks to reach younger voters.`\
-https://nytimes.com/2024/06/02/us/politics/trump-tiktok.html
 
