@@ -1,3 +1,7 @@
+**Mexicans Go to Polls in Historic Election, as 2 Women Vie to Lead the Country**\
+`The voting is very likely to put a woman in the country’s presidency for the first time ever, showcasing the immense strides that females have made in Mexico’s political scene.`\
+https://nytimes.com/2024/06/02/world/americas/mexico-election.html
+
 **Civil Liberties Make for Strange Bedfellows**\
 `Sonia Sotomayor helped protect the country from Donald Trump, and she did it in an unexpected way.`\
 https://nytimes.com/2024/06/02/opinion/supreme-court-nra-aclu.html
