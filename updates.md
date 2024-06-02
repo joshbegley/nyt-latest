@@ -1,3 +1,7 @@
+**Wildfire East of San Francisco Prompts Evacuations and Highway Shutdown**\
+`The blaze, the Corral Fire, began Saturday afternoon, has burned more than 12,000 acres and was only 13 percent contained early Sunday.`\
+https://nytimes.com/2024/06/02/us/california-wildfire-evacuations.html
+
 **Should Trump Be Sentenced to Prison? Two Opposing Views.**\
 `Two legal experts weigh in.`\
 https://nytimes.com/2024/06/02/opinion/trump-prison-time-sentencing.html
