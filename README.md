@@ -1,3 +1,7 @@
+**Trump gets the friendly treatment from Fox News, in his first post-verdict interview.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/06/02/us/biden-trump-election/trump-gets-the-friendly-treatment-from-fox-news-in-his-first-post-verdict-interview
+
 **Netanyahu May Face a Choice Between a Truce and His Government’s Survival**\
 `The Israeli prime minister has been put on the spot by President Biden’s announcement outlining a proposal for a truce.`\
 https://nytimes.com/2024/06/02/world/middleeast/netanyahu-biden-truce-proposal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/02/us/california-wildfire-evacuations.html
 **Should Trump Be Sentenced to Prison? Two Opposing Views.**\
 `Two legal experts weigh in.`\
 https://nytimes.com/2024/06/02/opinion/trump-prison-time-sentencing.html
-
-**Hunter Biden Should Take a Plea Deal. Quickly.**\
-`The case against him is strong.`\
-https://nytimes.com/2024/06/02/opinion/hunter-biden-plea-deal.html
 
