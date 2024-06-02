@@ -1,3 +1,11 @@
+**The Widespread Harm of Nuclear Testing**\
+`Readers, including Christie Brinkley, discuss the dangers. Also: About apostrophes; oversight of legislative initiatives; congestion pricing.`\
+https://nytimes.com/2024/06/02/opinion/nuclear-testing.html
+
+**Grilled Soy-Basted Chicken With Spicy Cashews, a Five-Star Reader Favorite**\
+`“I would love to leave a review, but I’m so busy swooning and drooling, I’m not sure I can concentrate.”`\
+https://nytimes.com/2024/06/02/dining/grilled-soy-basted-chicken-with-spicy-cashews-a-five-star-reader-favorite.html
+
 **South Africa Confronts Israel and Its Own Democracy**\
 `Lydia Polgreen reports from Cape Town about the myth of the country’s exceptionalism and its moral authority in the war on Gaza.`\
 https://nytimes.com/2024/06/02/opinion/south-africa-election-israel-rafah.html
