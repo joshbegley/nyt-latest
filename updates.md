@@ -1,3 +1,7 @@
+**Hot Off the Presses**\
+`Alana Platt makes her New York Times debut.`\
+https://nytimes.com/2024/06/02/crosswords/daily-puzzle-2024-06-03.html
+
 **Monday Briefing: What’s Next for South Africa**\
 `Also, India’s elections and internet in the Amazon.`\
 https://nytimes.com/2024/06/02/world/asia/south-africa-anc-india-israel-asia.html
