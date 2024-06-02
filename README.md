@@ -1,3 +1,7 @@
+**Wordle Review No. 1,080, June 3, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/02/crosswords/wordle-review-1080.html
+
 **Philadelphia’s University of the Arts Announces Sudden Closing**\
 `The institution’s financial woes were widely known, but the announcement surprised students and faculty members.`\
 https://nytimes.com/2024/06/02/arts/design/philadelphias-arts-university-closing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/02/us/teacher-slave-auction-boston.html
 **David Levy, Ex-Laborer Who Became a Top Israeli Leader, Dies at 86**\
 `A native of Morocco, he often embodied the resentment of North Africans and Middle Eastern Jews toward European Israelis.`\
 https://nytimes.com/2024/06/02/obituaries/david-levy-dead.html
-
-**What’s Next for South Africa After Voters Rebuked Its Reigning Party?**\
-`A look at the leaders who could shape the country’s future after the African National Congress’s poor showing in elections.`\
-https://nytimes.com/2024/06/02/world/africa/south-africa-elections-government.html
 
