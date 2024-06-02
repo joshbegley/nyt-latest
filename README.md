@@ -1,3 +1,7 @@
+**Teacher Placed on Leave Over ‘Mock Slave Auction’ in Classroom**\
+`The teacher in Massachusetts, who has not been named, was placed on leave after also using a racial slur, the school superintendent said.`\
+https://nytimes.com/2024/06/02/us/teacher-slave-auction-boston.html
+
 **David Levy, Ex-Laborer Who Became a Top Israeli Leader, Dies at 86**\
 `A native of Morocco, he often embodied the resentment of North Africans and Middle Eastern Jews toward European Israelis.`\
 https://nytimes.com/2024/06/02/obituaries/david-levy-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/02/us/akron-ohio-shooting.html
 **Trump Joins TikTok, the App He Once Tried to Ban**\
 `The former president has recently embraced the platform as he seeks to reach younger voters.`\
 https://nytimes.com/2024/06/02/us/politics/trump-tiktok.html
-
-**The Widespread Harm of Nuclear Testing**\
-`Readers, including Christie Brinkley, discuss the dangers. Also: About apostrophes; oversight of legislative initiatives; congestion pricing.`\
-https://nytimes.com/2024/06/02/opinion/nuclear-testing.html
 
