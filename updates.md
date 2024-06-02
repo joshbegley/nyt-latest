@@ -1,3 +1,7 @@
+**Monday Briefing: What’s Next for South Africa**\
+`Also, India’s elections and internet in the Amazon.`\
+https://nytimes.com/2024/06/02/world/asia/south-africa-anc-india-israel-asia.html
+
 **Lara Trump, R.N.C. Leader, Denounces Larry Hogan for Accepting Trump Verdict**\
 `Ms. Trump refused to say whether the Republicans should support Mr. Hogan, a prized recruit who gave the party a chance of picking up a Democratic Senate seat in Maryland.`\
 https://nytimes.com/2024/06/02/us/politics/lara-trump-larry-hogan.html

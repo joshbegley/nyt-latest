@@ -1,3 +1,7 @@
+**Monday Briefing: What’s Next for South Africa**\
+`Also, India’s elections and internet in the Amazon.`\
+https://nytimes.com/2024/06/02/world/asia/south-africa-anc-india-israel-asia.html
+
 **2024 Mexico Presidential Election: Live Results**\
 `See results and maps for Mexico’s 2024 presidential election.`\
 https://nytimes.com/interactive/2024/06/02/world/americas/results-mexico-presidential-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/02/us/politics/donald-trump-ufc-newark-dana-white.ht
 **OPEC Plans a Gradual Unwinding of Production Cuts**\
 `The group announced after its meeting on Sunday that it would be extending production cuts into 2025 and laid out plans for phasing out voluntary cuts. Whether the strategy will work remains to be seen.`\
 https://nytimes.com/2024/06/02/business/opec-oil-production-cuts.html
-
-**Trump gets the friendly treatment from Fox News, in his first post-verdict interview.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/06/02/us/biden-trump-election/trump-gets-the-friendly-treatment-from-fox-news-in-his-first-post-verdict-interview
 
