@@ -1,3 +1,7 @@
+**Stuck at the Start**\
+`In the last few years, many Americans have gotten stuck in their starter house.`\
+https://nytimes.com/2024/06/02/briefing/starter-homes-housing-market.html
+
 **Civil Liberties Make for Strange Bedfellows**\
 `Sonia Sotomayor helped protect the country from Donald Trump, and she did it in an unexpected way.`\
 https://nytimes.com/2024/06/02/opinion/supreme-court-nra-aclu.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/02/us/politics/as-hunter-bidens-trial-nears-presiden
 **Is This Season of ‘Hacks’ Trolling Jerry Seinfeld?**\
 `The comedian’s philosophies about the audience and comedy are contradicted in characterizations and plot lines on the Max series.`\
 https://nytimes.com/2024/06/02/arts/television/jerry-seinfeld-hacks.html
-
-**How We Found 46 Ukrainian Children Taken by Russian Officials**\
-`The New York Times traced how a web of politicians aligned with President Vladimir Putin’s party carried out a campaign to permanently transfer Ukrainian children from Kherson.`\
-https://nytimes.com/video/world/europe/100000009497389/tracking-ukrainian-children-russia.html
 
