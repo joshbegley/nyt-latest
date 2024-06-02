@@ -1,3 +1,23 @@
+**From Texas to Michigan, a Punishing Month of Tornadoes **\
+`More than 500 tornadoes were reported, the most of any month in at least five years.`\
+https://nytimes.com/card/2024/06/02/us/may-tornado-destruction
+
+**‘A.N.C. Has Been Humbled’: a Couple’s Vote Explains Why**\
+`Some South African voters welcomed the defeat of the African National Congress in last week’s elections, even as they remain wary of the country’s political future.`\
+https://nytimes.com/2024/06/02/world/africa/south-africa-election-anc-voters.html
+
+**As Challenges Pile Up, a Spate of Summitry Spotlights Western Resolve**\
+`Wars in Ukraine and Gaza, along with Donald J. Trump’s candidacy, are testing the Western alliance. But starting with the 80th anniversary of D-Day this week, leaders have a rare opportunity to showcase unity.`\
+https://nytimes.com/2024/06/02/world/europe/dday-nato-summits-western-alliance.html
+
+**The Internet’s Final Frontier: Remote Amazon Tribes**\
+`Elon Musk’s Starlink has connected an isolated tribe to the outside world — and divided it from within.`\
+https://nytimes.com/2024/06/02/world/americas/starlink-internet-elon-musk-brazil-amazon.html
+
+**A Pacific Island With Ties to Taiwan Was Hacked. Was It Political?**\
+`Palau’s claims that China orchestrated the attack remain unproven. But it’s clear that the breach presents a danger for another ally of Palau: the United States.`\
+https://nytimes.com/2024/06/02/world/asia/palau-taiwan-china-hack.html
+
 **After Pipes Burst in Atlanta, Many Residents Lose Water, Then Patience**\
 `Major main breaks resulted in closed businesses, canceled events and angry residents who were upset over a lack of updates.`\
 https://nytimes.com/2024/06/01/us/atlanta-water-disruption.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/06/01/world/asia/u-tin-oo-dead.html
 **Typecasting**\
 `Luke W. Schreiber’s debut Sunday puzzle is full of character(s).`\
 https://nytimes.com/2024/06/01/crosswords/daily-puzzle-2024-06-02.html
-
-**Robert Pickton, Notorious Canadian Serial Killer, Dies at 74**\
-`Convicted in the murder of six women (though he boasted of killing many more), he died of unspecified injuries after being assaulted in prison.`\
-https://nytimes.com/2024/06/01/world/canada/robert-pickton-notorious-canadian-serial-killer-dies-at-74.html
-
-**‘He’s Had Great Challenges’: Giuliani Holds 80th Birthday Amid Many Woes**\
-`The indicted and increasingly isolated former New York mayor celebrated his birthday over pasta and meatballs. Donald J. Trump sent a video.`\
-https://nytimes.com/2024/06/01/us/politics/rudy-giuliani-birthday-donald-trump-new-york.html
-
-**Demonstrators in Tel Aviv and other cities call on Netanyahu to accept the cease-fire proposal.**\
-`By Alexandra E. Petri`\
-https://nytimes.com/live/2024/06/01/world/israel-gaza-war-hamas-rafah/demonstrators-in-tel-aviv-and-other-cities-call-on-netanyahu-to-accept-the-cease-fire-proposal
-
-**After Biden’s Push for Truce, Netanyahu Calls Israel’s War Plans Unchanged**\
-`The timing of the remarks seemed to rebuff the president’s hopes for a speedy end to the war. But some analysts said the prime minister was aiming at domestic supporters, not the White House.`\
-https://nytimes.com/2024/06/01/world/middleeast/netanyahu-biden-israel-gaza-cease-fire.html
-
-**Yael Dayan, Israeli Writer, Politician and Daughter of War Hero, Dies at 85**\
-`She was hailed for her books and admired for promoting women’s rights. But her support for a two-state solution to the Palestinian conflict angered many.`\
-https://nytimes.com/2024/06/01/world/middleeast/yael-dayan-dead.html
 

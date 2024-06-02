@@ -1,3 +1,23 @@
+**From Texas to Michigan, a Punishing Month of Tornadoes **\
+`More than 500 tornadoes were reported, the most of any month in at least five years.`\
+https://nytimes.com/card/2024/06/02/us/may-tornado-destruction
+
+**‘A.N.C. Has Been Humbled’: a Couple’s Vote Explains Why**\
+`Some South African voters welcomed the defeat of the African National Congress in last week’s elections, even as they remain wary of the country’s political future.`\
+https://nytimes.com/2024/06/02/world/africa/south-africa-election-anc-voters.html
+
+**As Challenges Pile Up, a Spate of Summitry Spotlights Western Resolve**\
+`Wars in Ukraine and Gaza, along with Donald J. Trump’s candidacy, are testing the Western alliance. But starting with the 80th anniversary of D-Day this week, leaders have a rare opportunity to showcase unity.`\
+https://nytimes.com/2024/06/02/world/europe/dday-nato-summits-western-alliance.html
+
+**The Internet’s Final Frontier: Remote Amazon Tribes**\
+`Elon Musk’s Starlink has connected an isolated tribe to the outside world — and divided it from within.`\
+https://nytimes.com/2024/06/02/world/americas/starlink-internet-elon-musk-brazil-amazon.html
+
+**A Pacific Island With Ties to Taiwan Was Hacked. Was It Political?**\
+`Palau’s claims that China orchestrated the attack remain unproven. But it’s clear that the breach presents a danger for another ally of Palau: the United States.`\
+https://nytimes.com/2024/06/02/world/asia/palau-taiwan-china-hack.html
+
 **After Pipes Burst in Atlanta, Many Residents Lose Water, Then Patience**\
 `Major main breaks resulted in closed businesses, canceled events and angry residents who were upset over a lack of updates.`\
 https://nytimes.com/2024/06/01/us/atlanta-water-disruption.html
