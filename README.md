@@ -1,3 +1,15 @@
+**Civil Liberties Make for Strange Bedfellows**\
+`Sonia Sotomayor helped protect the country from Donald Trump, and she did it in an unexpected way.`\
+https://nytimes.com/2024/06/02/opinion/supreme-court-nra-aclu.html
+
+**The Connections Companion No. 358, June 3, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/02/crosswords/connections-companion-358.html
+
+**Why the New Human Case of Bird Flu Is So Alarming**\
+`The virus is changing.`\
+https://nytimes.com/2024/06/02/opinion/bird-flu-case-respiratory.html
+
 **A Felon in the Oval Office Would Test the American System**\
 `The system of checks and balances established in the Constitution was meant to hold wayward presidents accountable, but some wonder how it will work if the next president is already a felon.`\
 https://nytimes.com/2024/06/02/us/politics/trump-presidency-checks-balances.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/02/arts/television/jerry-seinfeld-hacks.html
 **How We Found 46 Ukrainian Children Taken by Russian Officials**\
 `The New York Times traced how a web of politicians aligned with President Vladimir Putin’s party carried out a campaign to permanently transfer Ukrainian children from Kherson.`\
 https://nytimes.com/video/world/europe/100000009497389/tracking-ukrainian-children-russia.html
-
-**The Ghost Trees of Chicago**\
-`Residents have been covering their trees in mesh to protect them from the emerging broods, and the effect is pretty eerie.`\
-https://nytimes.com/2024/06/02/science/cicadas-trees-wrapped-chicago.html
-
-**They Revolutionized Shopping, With Tea Sandwiches on the Side**\
-`In “When Women Ran Fifth Avenue,” Julie Satow celebrates the savvy leaders who made Bonwit, Bendel’s and Lord & Taylor into retail meccas of their moment.`\
-https://nytimes.com/2024/06/02/books/review/when-women-ran-fifth-avenue-julie-satow.html
-
-**The Age of Brooke Shields**\
-`The model and actress has three new titles: Netflix rom-com star, union boss and C.E.O. of a beauty brand aimed at women over 40.`\
-https://nytimes.com/2024/06/02/style/brooke-shields-commence-hair-care.html
 
