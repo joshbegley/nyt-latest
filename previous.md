@@ -1,3 +1,7 @@
+**In Singapore, China Warns U.S. While Zelensky Seeks Support**\
+`The annual Shangri-La Dialogue became a stage for competing demands on U.S. global power, including the war in Ukraine and tensions over Taiwan.`\
+https://nytimes.com/2024/06/02/world/asia/zelensky-singapore-ukraine-china.html
+
 **Amid chants of ‘We love Trump,’ the former president watches a U.F.C. event in New Jersey.**\
 `By Shawn McCreesh`\
 https://nytimes.com/live/2024/06/01/us/biden-trump-election/trump-ufc-newark
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/01/pageoneplus/corrections-june-2-2024.html
 **Quotation of the Day: Laborers Who Take Time Off in Pakistan’s Record Heat Risk Going Hungry**\
 `Quotation of the Day for Sunday, June 2, 2024.`\
 https://nytimes.com/2024/06/01/pageoneplus/quotation-of-the-day-laborers-who-take-time-off-in-pakistans-record-heat-risk-going-hungry.html
-
-**U Tin Oo, Embattled Pro-Democracy Leader in Myanmar, Dies at 97**\
-`Once one of his country’s most powerful figures, he helped found its main opposition party. “I had to face up to the harm I did to people when I served in the army,” he said.`\
-https://nytimes.com/2024/06/01/world/asia/u-tin-oo-dead.html
 

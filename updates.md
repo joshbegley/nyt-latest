@@ -1,3 +1,7 @@
+**In Singapore, China Warns U.S. While Zelensky Seeks Support**\
+`The annual Shangri-La Dialogue became a stage for competing demands on U.S. global power, including the war in Ukraine and tensions over Taiwan.`\
+https://nytimes.com/2024/06/02/world/asia/zelensky-singapore-ukraine-china.html
+
 **Amid chants of ‘We love Trump,’ the former president watches a U.F.C. event in New Jersey.**\
 `By Shawn McCreesh`\
 https://nytimes.com/live/2024/06/01/us/biden-trump-election/trump-ufc-newark
