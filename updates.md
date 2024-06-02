@@ -1,3 +1,7 @@
+**Wildfire Near San Francisco Prompts Evacuations and Highway Shutdown**\
+`The blaze, the Corral Fire, began Saturday afternoon, has burned more than 12,000 acres and was only 13 percent contained early Sunday.`\
+https://nytimes.com/2024/06/02/us/california-wildfire-evacuations.html
+
 **Give Yourself Permission to Not Have Sex**\
 `Intentional periods of sexual abstinence can help us better understand the nature of our desire. If we do Dry January, why not Dry Spell July?`\
 https://nytimes.com/2024/06/02/opinion/temporary-celibacy-sex-abstinence.html

@@ -10,7 +10,7 @@ https://nytimes.com/2024/06/02/dining/grilled-soy-basted-chicken-with-spicy-cash
 `Lydia Polgreen reports from Cape Town about the myth of the country’s exceptionalism and its moral authority in the war on Gaza.`\
 https://nytimes.com/2024/06/02/opinion/south-africa-election-israel-rafah.html
 
-**Wildfire East of San Francisco Prompts Evacuations and Highway Shutdown**\
+**Wildfire Near San Francisco Prompts Evacuations and Highway Shutdown**\
 `The blaze, the Corral Fire, began Saturday afternoon, has burned more than 12,000 acres and was only 13 percent contained early Sunday.`\
 https://nytimes.com/2024/06/02/us/california-wildfire-evacuations.html
 
