@@ -1,3 +1,7 @@
+**Lara Trump, R.N.C. Leader, Denounces Larry Hogan for Accepting Trump Verdict**\
+`Ms. Trump refused to say whether the Republicans should support Mr. Hogan, a prized recruit who gave the party a chance of picking up a Democratic Senate seat in Maryland.`\
+https://nytimes.com/2024/06/02/us/politics/lara-trump-larry-hogan.html
+
 **2024 Mexico Presidential Election: Live Results**\
 `See results and maps for Mexico’s 2024 presidential election.`\
 https://nytimes.com/interactive/2024/06/02/world/americas/results-mexico-presidential-election.html
