@@ -1,3 +1,7 @@
+**Why Did North Korea Bombard the South With Trash Balloons?**\
+`The unusual offensive, across the world’s most heavily fortified border, is a revival of a Cold War era tactic. The South has threatened to respond by blasting K-pop.`\
+https://nytimes.com/2024/06/02/world/asia/north-korea-trash-balloons.html
+
 **Archival Treasures ‘Hidden in Plain Sight’**\
 `The Times’s clippings library, with millions of pieces of reference material, can tell its own stories.`\
 https://nytimes.com/2024/06/02/insider/newspaper-archives.html

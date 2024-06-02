@@ -1,3 +1,7 @@
+**Why Did North Korea Bombard the South With Trash Balloons?**\
+`The unusual offensive, across the world’s most heavily fortified border, is a revival of a Cold War era tactic. The South has threatened to respond by blasting K-pop.`\
+https://nytimes.com/2024/06/02/world/asia/north-korea-trash-balloons.html
+
 **Archival Treasures ‘Hidden in Plain Sight’**\
 `The Times’s clippings library, with millions of pieces of reference material, can tell its own stories.`\
 https://nytimes.com/2024/06/02/insider/newspaper-archives.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/02/opinion/trump-trial-juan-merchan.html
 **In Singapore, China Warns U.S. While Zelensky Seeks Support**\
 `The annual Shangri-La Dialogue became a stage for competing demands on U.S. global power, including the war in Ukraine and tensions over Taiwan.`\
 https://nytimes.com/2024/06/02/world/asia/zelensky-singapore-ukraine-china.html
-
-**Amid chants of ‘We love Trump,’ the former president watches a U.F.C. event in New Jersey.**\
-`By Shawn McCreesh`\
-https://nytimes.com/live/2024/06/01/us/biden-trump-election/trump-ufc-newark
 
