@@ -1,3 +1,7 @@
+**Rupert Murdoch Marries for the Fifth Time**\
+`Mr. Murdoch, the 93-year-old media mogul, married Elena Zhukova, a retired molecular biologist, Saturday at Moraga, his Bel Air vineyard estate in Los Angeles.`\
+https://nytimes.com/2024/06/02/style/rupert-murdoch-wedding.html
+
 **Intense Security at Peaceful Parade for Israel in Manhattan**\
 `The annual parade focused this year on the hostages in Gaza. Thousands marched, and with many streets blocked off, there were few protesters.`\
 https://nytimes.com/2024/06/02/nyregion/israel-war-parade-protest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/02/world/middleeast/netanyahu-biden-truce-proposal.h
 **Hunter Biden to Go on Trial in Gun Case, Days After Trump Was Convicted**\
 `On Monday in Delaware, one of two trials will begin in which President Biden’s son will defend himself during a presidential election year.`\
 https://nytimes.com/2024/06/02/us/politics/hunter-biden-gun-trial-delaware.html
-
-**1 Dead and 24 Wounded in Akron Shooting, Police Say**\
-`Details about what led up to the shooting in Akron, Ohio, were unclear. At least two of those wounded were in critical condition, officials said.`\
-https://nytimes.com/2024/06/02/us/akron-ohio-shooting.html
 
