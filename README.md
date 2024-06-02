@@ -1,3 +1,7 @@
+**Netanyahu may be forced to choose between a cease-fire and political survival.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/06/02/world/israel-gaza-war-hamas-rafah/netanyahu-may-be-forced-to-choose-between-a-cease-fire-and-political-survival
+
 **Stuck at the Start**\
 `In the last few years, many Americans have gotten stuck in their starter house.`\
 https://nytimes.com/2024/06/02/briefing/starter-homes-housing-market.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/02/world/americas/mexico-election.html
 **As Hunter Biden’s Trial Nears, President Biden Pulls Him Close**\
 `President Biden has weathered years of scandals surrounding his son. But people close to both men say the president has refused to treat him as a political liability.`\
 https://nytimes.com/2024/06/02/us/politics/as-hunter-bidens-trial-nears-president-biden-pulls-him-close.html
-
-**Is This Season of ‘Hacks’ Trolling Jerry Seinfeld?**\
-`The comedian’s philosophies about the audience and comedy are contradicted in characterizations and plot lines on the Max series.`\
-https://nytimes.com/2024/06/02/arts/television/jerry-seinfeld-hacks.html
 
