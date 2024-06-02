@@ -1,4 +1,4 @@
-**Netanyahu may be forced to choose between a cease-fire and political survival.**\
+**Netanyahu may be forced to choose between a cease-fire and his government’s survival.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/06/02/world/israel-gaza-war-hamas-rafah/netanyahu-may-be-forced-to-choose-between-a-cease-fire-and-political-survival
 
