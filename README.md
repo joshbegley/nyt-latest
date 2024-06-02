@@ -1,3 +1,7 @@
+**After Verdict, Trump Revels in Embrace of His Most Avid Base: Male Fans**\
+`The former president’s appearance at a U.F.C. fight in Newark on Saturday night showcased his hypermasculine appeal, and his defiance.`\
+https://nytimes.com/2024/06/02/us/politics/donald-trump-ufc-newark-dana-white.html
+
 **OPEC Plans a Gradual Unwinding of Production Cuts**\
 `The group announced after its meeting on Sunday that it would be extending production cuts into 2025 and laid out plans for phasing out voluntary cuts. Whether the strategy will work remains to be seen.`\
 https://nytimes.com/2024/06/02/business/opec-oil-production-cuts.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/02/dining/grilled-soy-basted-chicken-with-spicy-cash
 **South Africa Confronts Israel and Its Own Democracy**\
 `Lydia Polgreen reports from Cape Town about the myth of the country’s exceptionalism and its moral authority in the war on Gaza.`\
 https://nytimes.com/2024/06/02/opinion/south-africa-election-israel-rafah.html
-
-**Wildfire Near San Francisco Prompts Evacuations and Highway Shutdown**\
-`The blaze, the Corral Fire, began Saturday afternoon, has burned more than 12,000 acres and was only 13 percent contained early Sunday.`\
-https://nytimes.com/2024/06/02/us/california-wildfire-evacuations.html
 
