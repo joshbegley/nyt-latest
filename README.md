@@ -1,4 +1,4 @@
-**1 Killed and 24 Wounded in Akron Shooting, Police Say**\
+**1 Dead and 24 Wounded in Akron Shooting, Police Say**\
 `Details about what led up to the shooting in Akron, Ohio, were unclear. At least two of those wounded were in critical condition, officials said.`\
 https://nytimes.com/2024/06/02/us/akron-ohio-shooting.html
 
