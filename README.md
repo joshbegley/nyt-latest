@@ -22,7 +22,7 @@ https://nytimes.com/2024/06/02/opinion/trump-prison-time-sentencing.html
 `The case against him is strong.`\
 https://nytimes.com/2024/06/02/opinion/hunter-biden-plea-deal.html
 
-**The Case for (Temporary) Celibacy**\
+**Give Yourself Permission to Not Have Sex**\
 `Intentional periods of sexual abstinence can help us better understand the nature of our desire. If we do Dry January, why not Dry Spell July?`\
 https://nytimes.com/2024/06/02/opinion/temporary-celibacy-sex-abstinence.html
 
