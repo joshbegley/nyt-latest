@@ -1,3 +1,7 @@
+**Wildfire East of San Francisco Prompts Evacuations and Highway Shutdown**\
+`The blaze, the Corral Fire, began Saturday afternoon, has burned more than 12,000 acres and was only 13 percent contained early Sunday.`\
+https://nytimes.com/2024/06/02/us/california-wildfire-evacuations.html
+
 **Should Trump Be Sentenced to Prison? Two Opposing Views.**\
 `Two legal experts weigh in.`\
 https://nytimes.com/2024/06/02/opinion/trump-prison-time-sentencing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/02/opinion/bird-flu-case-respiratory.html
 **A Felon in the Oval Office Would Test the American System**\
 `The system of checks and balances established in the Constitution was meant to hold wayward presidents accountable, but some wonder how it will work if the next president is already a felon.`\
 https://nytimes.com/2024/06/02/us/politics/trump-presidency-checks-balances.html
-
-**Here’s Where Trump’s Other Cases Stand**\
-`After being convicted in a Manhattan courtroom, the former president still faces charges in three criminal prosecutions, all of which are tangled up in procedural delays.`\
-https://nytimes.com/2024/06/02/us/politics/trump-cases-status.html
 
