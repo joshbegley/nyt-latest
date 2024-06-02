@@ -1,3 +1,7 @@
+**What’s Next for South Africa After Voters Rebuked Its Reigning Party?**\
+`A look at the leaders who could shape the country’s future after the African National Congress’s poor showing in elections.`\
+https://nytimes.com/2024/06/02/world/africa/south-africa-elections-government.html
+
 **After Verdict, Trump Revels in Embrace of His Most Avid Base: Male Fans**\
 `The former president’s appearance at a U.F.C. fight in Newark on Saturday night showcased his hypermasculine appeal, and his defiance.`\
 https://nytimes.com/2024/06/02/us/politics/donald-trump-ufc-newark-dana-white.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/02/opinion/nuclear-testing.html
 **Grilled Soy-Basted Chicken With Spicy Cashews, a Five-Star Reader Favorite**\
 `“I would love to leave a review, but I’m so busy swooning and drooling, I’m not sure I can concentrate.”`\
 https://nytimes.com/2024/06/02/dining/grilled-soy-basted-chicken-with-spicy-cashews-a-five-star-reader-favorite.html
-
-**South Africa Confronts Israel and Its Own Democracy**\
-`Lydia Polgreen reports from Cape Town about the myth of the country’s exceptionalism and its moral authority in the war on Gaza.`\
-https://nytimes.com/2024/06/02/opinion/south-africa-election-israel-rafah.html
 
