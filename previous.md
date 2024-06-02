@@ -1,3 +1,15 @@
+**Should Trump Be Sentenced to Prison? Two Opposing Views.**\
+`Two legal experts weigh in.`\
+https://nytimes.com/2024/06/02/opinion/trump-prison-time-sentencing.html
+
+**Hunter Biden Should Take a Plea Deal. Quickly.**\
+`The case against him is strong.`\
+https://nytimes.com/2024/06/02/opinion/hunter-biden-plea-deal.html
+
+**The Case for (Temporary) Celibacy**\
+`Intentional periods of sexual abstinence can help us better understand the nature of our desire. If we do Dry January, why not Dry Spell July?`\
+https://nytimes.com/2024/06/02/opinion/temporary-celibacy-sex-abstinence.html
+
 **Netanyahu may be forced to choose between a cease-fire and his government’s survival.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/06/02/world/israel-gaza-war-hamas-rafah/netanyahu-may-be-forced-to-choose-between-a-cease-fire-and-political-survival
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/02/us/politics/trump-presidency-checks-balances.html
 **Here’s Where Trump’s Other Cases Stand**\
 `After being convicted in a Manhattan courtroom, the former president still faces charges in three criminal prosecutions, all of which are tangled up in procedural delays.`\
 https://nytimes.com/2024/06/02/us/politics/trump-cases-status.html
-
-**After Trump’s Conviction, a National Enquirer Editor Sends His Regrets**\
-`For Barry Levine, a former top journalist at the supermarket tabloid, the former president’s trial was its own kind of tear-jerker.`\
-https://nytimes.com/2024/06/02/style/national-enquirer-journalist-trump-conviction.html
-
-**Mexicans Go to Polls in Historic Election, as 2 Women Vie to Lead the Country**\
-`The voting is very likely to put a woman in the country’s presidency for the first time ever, showcasing the immense strides that females have made in Mexico’s political scene.`\
-https://nytimes.com/2024/06/02/world/americas/mexico-election.html
-
-**As Hunter Biden’s Trial Nears, President Biden Pulls Him Close**\
-`President Biden has weathered years of scandals surrounding his son. But people close to both men say the president has refused to treat him as a political liability.`\
-https://nytimes.com/2024/06/02/us/politics/as-hunter-bidens-trial-nears-president-biden-pulls-him-close.html
 

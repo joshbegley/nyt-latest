@@ -1,3 +1,15 @@
+**Should Trump Be Sentenced to Prison? Two Opposing Views.**\
+`Two legal experts weigh in.`\
+https://nytimes.com/2024/06/02/opinion/trump-prison-time-sentencing.html
+
+**Hunter Biden Should Take a Plea Deal. Quickly.**\
+`The case against him is strong.`\
+https://nytimes.com/2024/06/02/opinion/hunter-biden-plea-deal.html
+
+**The Case for (Temporary) Celibacy**\
+`Intentional periods of sexual abstinence can help us better understand the nature of our desire. If we do Dry January, why not Dry Spell July?`\
+https://nytimes.com/2024/06/02/opinion/temporary-celibacy-sex-abstinence.html
+
 **Netanyahu may be forced to choose between a cease-fire and his government’s survival.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/06/02/world/israel-gaza-war-hamas-rafah/netanyahu-may-be-forced-to-choose-between-a-cease-fire-and-political-survival
