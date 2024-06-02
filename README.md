@@ -1,3 +1,11 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/06/02/crosswords/spelling-bee-forum.html
+
+**Congestion Pricing Ignites an Old Rift: Drivers vs. Transit Riders**\
+`As New York City prepares to roll out its tolling program on June 30, the divide between those who love their cars and those who embrace their subway lines has only grown.`\
+https://nytimes.com/2024/06/02/nyregion/congestion-pricing-traffic-nyc.html
+
 **Yoav Gallant Has Shown Defiance. Will He Again?**\
 `Israel is facing a stark choice about its future. Defense Minister Yoav Gallant represents a critical role in the path it takes.`\
 https://nytimes.com/2024/06/02/opinion/yoav-gallant-israel-defense.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/02/world/europe/dday-nato-summits-western-alliance.h
 **The Internet’s Final Frontier: Remote Amazon Tribes**\
 `Elon Musk’s Starlink has connected an isolated tribe to the outside world — and divided it from within.`\
 https://nytimes.com/2024/06/02/world/americas/starlink-internet-elon-musk-brazil-amazon.html
-
-**A Pacific Island With Ties to Taiwan Was Hacked. Was It Political?**\
-`Palau’s claims that China orchestrated the attack remain unproven. But it’s clear that the breach presents a danger for another ally of Palau: the United States.`\
-https://nytimes.com/2024/06/02/world/asia/palau-taiwan-china-hack.html
-
-**After Pipes Burst in Atlanta, Many Residents Lose Water, Then Patience**\
-`Major main breaks resulted in closed businesses, canceled events and angry residents who were upset over a lack of updates.`\
-https://nytimes.com/2024/06/01/us/atlanta-water-disruption.html
 
