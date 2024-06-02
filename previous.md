@@ -1,3 +1,7 @@
+**South Africa Confronts Israel and Its Own Democracy**\
+`Lydia Polgreen reports from Cape Town about the myth of the country’s exceptionalism and its moral authority in the war on Gaza.`\
+https://nytimes.com/2024/06/02/opinion/south-africa-election-israel-rafah.html
+
 **Wildfire East of San Francisco Prompts Evacuations and Highway Shutdown**\
 `The blaze, the Corral Fire, began Saturday afternoon, has burned more than 12,000 acres and was only 13 percent contained early Sunday.`\
 https://nytimes.com/2024/06/02/us/california-wildfire-evacuations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/02/crosswords/connections-companion-358.html
 **Why the New Human Case of Bird Flu Is So Alarming**\
 `The virus is changing.`\
 https://nytimes.com/2024/06/02/opinion/bird-flu-case-respiratory.html
-
-**A Felon in the Oval Office Would Test the American System**\
-`The system of checks and balances established in the Constitution was meant to hold wayward presidents accountable, but some wonder how it will work if the next president is already a felon.`\
-https://nytimes.com/2024/06/02/us/politics/trump-presidency-checks-balances.html
 
