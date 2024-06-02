@@ -22,7 +22,7 @@ https://nytimes.com/2024/06/02/us/politics/trump-cases-status.html
 `For Barry Levine, a former top journalist at the supermarket tabloid, the former president’s trial was its own kind of tear-jerker.`\
 https://nytimes.com/2024/06/02/style/national-enquirer-journalist-trump-conviction.html
 
-**Mexicans Go to Polls in Historic Election, as 2 Women Vie to Rule the Country**\
+**Mexicans Go to Polls in Historic Election, as 2 Women Vie to Lead the Country**\
 `The voting is very likely to put a woman in the country’s presidency for the first time ever, showcasing the immense strides that females have made in Mexico’s political scene.`\
 https://nytimes.com/2024/06/02/world/americas/mexico-election.html
 
