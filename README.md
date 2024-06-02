@@ -1,3 +1,19 @@
+**A Felon in the Oval Office Would Test the American System**\
+`The system of checks and balances established in the Constitution was meant to hold wayward presidents accountable, but some wonder how it will work if the next president is already a felon.`\
+https://nytimes.com/2024/06/02/us/politics/trump-presidency-checks-balances.html
+
+**Here’s Where Trump’s Other Cases Stand**\
+`After being convicted in a Manhattan courtroom, the former president still faces charges in three criminal prosecutions, all of which are tangled up in procedural delays.`\
+https://nytimes.com/2024/06/02/us/politics/trump-cases-status.html
+
+**After Trump’s Conviction, a National Enquirer Editor Sends His Regrets**\
+`For Barry Levine, a former top journalist at the supermarket tabloid, the former president’s trial was its own kind of tear-jerker.`\
+https://nytimes.com/2024/06/02/style/national-enquirer-journalist-trump-conviction.html
+
+**Mexicans Go to Polls in Historic Election, as 2 Women Vie to Rule the Country**\
+`The voting is very likely to put a woman in the country’s presidency for the first time ever, showcasing the immense strides that females have made in Mexico’s political scene.`\
+https://nytimes.com/2024/06/02/world/americas/mexico-election.html
+
 **As Hunter Biden’s Trial Nears, President Biden Pulls Him Close**\
 `President Biden has weathered years of scandals surrounding his son. But people close to both men say the president has refused to treat him as a political liability.`\
 https://nytimes.com/2024/06/02/us/politics/as-hunter-bidens-trial-nears-president-biden-pulls-him-close.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/06/02/books/review/when-women-ran-fifth-avenue-julie-sa
 **The Age of Brooke Shields**\
 `The model and actress has three new titles: Netflix rom-com star, union boss and C.E.O. of a beauty brand aimed at women over 40.`\
 https://nytimes.com/2024/06/02/style/brooke-shields-commence-hair-care.html
-
-**N.H.L.’s Move to Salt Lake City Is Latest Sports Downsizing**\
-`Professional leagues are embracing smaller markets in their search for newer stadiums and arenas and the potential for more devoted fan bases.`\
-https://nytimes.com/2024/06/02/business/nhl-salt-lake-city-phoenix.html
-
-**They Spent Their Life Savings on Life Coaching**\
-`Some people who wanted to improve their lives and careers through coaching found themselves trapped in what they described as a pyramid scheme.`\
-https://nytimes.com/2024/06/02/business/life-coach-debt-savings.html
-
-**Is Nonviolent Resistance Past Its Prime?**\
-`In “We Refuse,” Kellie Carter Jackson explores the many forms of activism that oppressed people have resorted to and offers a more nuanced picture of their lives.`\
-https://nytimes.com/2024/06/02/books/review/we-refuse-kellie-carter-jackson.html
-
-**Anatomy of a Success Story: How One Artist Broke Through**\
-`Hugo McCloud has gone from designing fountains and furniture to his fifth show with an established New York gallery.`\
-https://nytimes.com/2024/06/02/arts/design/art-career-path.html
 
