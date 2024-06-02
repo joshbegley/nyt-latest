@@ -1,3 +1,7 @@
+**David Levy, Ex-Laborer Who Became a Top Israeli Leader, Dies at 86**\
+`A native of Morocco, he often embodied the resentment of North Africans and Middle Eastern Jews toward European Israelis.`\
+https://nytimes.com/2024/06/02/obituaries/david-levy-dead.html
+
 **What’s Next for South Africa After Voters Rebuked Its Reigning Party?**\
 `A look at the leaders who could shape the country’s future after the African National Congress’s poor showing in elections.`\
 https://nytimes.com/2024/06/02/world/africa/south-africa-elections-government.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/02/us/politics/trump-tiktok.html
 **The Widespread Harm of Nuclear Testing**\
 `Readers, including Christie Brinkley, discuss the dangers. Also: About apostrophes; oversight of legislative initiatives; congestion pricing.`\
 https://nytimes.com/2024/06/02/opinion/nuclear-testing.html
-
-**Grilled Soy-Basted Chicken With Spicy Cashews, a Five-Star Reader Favorite**\
-`“I would love to leave a review, but I’m so busy swooning and drooling, I’m not sure I can concentrate.”`\
-https://nytimes.com/2024/06/02/dining/grilled-soy-basted-chicken-with-spicy-cashews-a-five-star-reader-favorite.html
 
