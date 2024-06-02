@@ -1,3 +1,7 @@
+**Philadelphia’s University of the Arts Announces Sudden Closing**\
+`The institution’s financial woes were widely known, but the announcement surprised students and faculty members.`\
+https://nytimes.com/2024/06/02/arts/design/philadelphias-arts-university-closing.html
+
 **Hot Off the Presses**\
 `Alana Platt makes her New York Times debut.`\
 https://nytimes.com/2024/06/02/crosswords/daily-puzzle-2024-06-03.html
