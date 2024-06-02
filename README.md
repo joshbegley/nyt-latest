@@ -1,3 +1,27 @@
+**Archival Treasures ‘Hidden in Plain Sight’**\
+`The Times’s clippings library, with millions of pieces of reference material, can tell its own stories.`\
+https://nytimes.com/2024/06/02/insider/newspaper-archives.html
+
+**A Productive Chat on the Significance of ‘Slack’**\
+`Once referring to those prone to idle behavior, the word has come somewhat full circle.`\
+https://nytimes.com/2024/06/02/insider/slack-word-origin.html
+
+**The Floating Traffic Jam That Freaked Us All Out**\
+`The coronavirus pandemic schooled the world in the essential role of global supply chains. Have we learned anything from it?`\
+https://nytimes.com/2024/06/02/business/economy/covid-pandemic-global-supply-chains.html
+
+**‘A Building Employee Greeted Us With a Broad Smile Every Day’**\
+`Recalling a first job, trading places in a crowded subway car and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2024/06/02/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/06/02/crosswords/spelling-bee-forum.html
+
+**Congestion Pricing Ignites an Old Rift: Drivers vs. Transit Riders**\
+`As New York City prepares to roll out its tolling program on June 30, the divide between those who love their cars and those who embrace their subway lines has only grown.`\
+https://nytimes.com/2024/06/02/nyregion/congestion-pricing-traffic-nyc.html
+
 **Yoav Gallant Has Shown Defiance. Will He Again?**\
 `Israel is facing a stark choice about its future. Defense Minister Yoav Gallant represents a critical role in the path it takes.`\
 https://nytimes.com/2024/06/02/opinion/yoav-gallant-israel-defense.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/06/02/world/asia/zelensky-singapore-ukraine-china.html
 **Amid chants of ‘We love Trump,’ the former president watches a U.F.C. event in New Jersey.**\
 `By Shawn McCreesh`\
 https://nytimes.com/live/2024/06/01/us/biden-trump-election/trump-ufc-newark
-
-**From Texas to Michigan, a Punishing Month of Tornadoes **\
-`More than 500 tornadoes were reported, the most of any month in at least five years.`\
-https://nytimes.com/card/2024/06/02/us/may-tornado-destruction
-
-**‘A.N.C. Has Been Humbled’: a Couple’s Vote Explains Why**\
-`Some South African voters welcomed the defeat of the African National Congress in last week’s elections, even as they remain wary of the country’s political future.`\
-https://nytimes.com/2024/06/02/world/africa/south-africa-election-anc-voters.html
-
-**As Challenges Pile Up, a Spate of Summitry Spotlights Western Resolve**\
-`Wars in Ukraine and Gaza, along with Donald J. Trump’s candidacy, are testing the Western alliance. But starting with the 80th anniversary of D-Day this week, leaders have a rare opportunity to showcase unity.`\
-https://nytimes.com/2024/06/02/world/europe/dday-nato-summits-western-alliance.html
-
-**The Internet’s Final Frontier: Remote Amazon Tribes**\
-`Elon Musk’s Starlink has connected an isolated tribe to the outside world — and divided it from within.`\
-https://nytimes.com/2024/06/02/world/americas/starlink-internet-elon-musk-brazil-amazon.html
-
-**A Pacific Island With Ties to Taiwan Was Hacked. Was It Political?**\
-`Palau’s claims that China orchestrated the attack remain unproven. But it’s clear that the breach presents a danger for another ally of Palau: the United States.`\
-https://nytimes.com/2024/06/02/world/asia/palau-taiwan-china-hack.html
-
-**After Pipes Burst in Atlanta, Many Residents Lose Water, Then Patience**\
-`Major main breaks resulted in closed businesses, canceled events and angry residents who were upset over a lack of updates.`\
-https://nytimes.com/2024/06/01/us/atlanta-water-disruption.html
 
