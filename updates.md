@@ -1,3 +1,7 @@
+**Hunter Biden to Go on Trial in Gun Case, Days After Trump Was Convicted**\
+`On Monday in Delaware, one of two trials will begin in which President Biden’s son will defend himself during a presidential election year.`\
+https://nytimes.com/2024/06/02/us/politics/hunter-biden-gun-trial-delaware.html
+
 **1 Dead and 24 Wounded in Akron Shooting, Police Say**\
 `Details about what led up to the shooting in Akron, Ohio, were unclear. At least two of those wounded were in critical condition, officials said.`\
 https://nytimes.com/2024/06/02/us/akron-ohio-shooting.html

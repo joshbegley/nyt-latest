@@ -1,3 +1,7 @@
+**Hunter Biden to Go on Trial in Gun Case, Days After Trump Was Convicted**\
+`On Monday in Delaware, one of two trials will begin in which President Biden’s son will defend himself during a presidential election year.`\
+https://nytimes.com/2024/06/02/us/politics/hunter-biden-gun-trial-delaware.html
+
 **1 Dead and 24 Wounded in Akron Shooting, Police Say**\
 `Details about what led up to the shooting in Akron, Ohio, were unclear. At least two of those wounded were in critical condition, officials said.`\
 https://nytimes.com/2024/06/02/us/akron-ohio-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/02/opinion/hunter-biden-plea-deal.html
 **Give Yourself Permission to Not Have Sex**\
 `Intentional periods of sexual abstinence can help us better understand the nature of our desire. If we do Dry January, why not Dry Spell July?`\
 https://nytimes.com/2024/06/02/opinion/temporary-celibacy-sex-abstinence.html
-
-**Netanyahu may be forced to choose between a cease-fire and his government’s survival.**\
-`By Isabel Kershner`\
-https://nytimes.com/live/2024/06/02/world/israel-gaza-war-hamas-rafah/netanyahu-may-be-forced-to-choose-between-a-cease-fire-and-political-survival
 
