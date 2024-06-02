@@ -1,3 +1,7 @@
+**Give Yourself Permission to Not Have Sex**\
+`Intentional periods of sexual abstinence can help us better understand the nature of our desire. If we do Dry January, why not Dry Spell July?`\
+https://nytimes.com/2024/06/02/opinion/temporary-celibacy-sex-abstinence.html
+
 **The Widespread Harm of Nuclear Testing**\
 `Readers, including Christie Brinkley, discuss the dangers. Also: About apostrophes; oversight of legislative initiatives; congestion pricing.`\
 https://nytimes.com/2024/06/02/opinion/nuclear-testing.html
