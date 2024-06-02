@@ -1,3 +1,15 @@
+**Civil Liberties Make for Strange Bedfellows**\
+`Sonia Sotomayor helped protect the country from Donald Trump, and she did it in an unexpected way.`\
+https://nytimes.com/2024/06/02/opinion/supreme-court-nra-aclu.html
+
+**The Connections Companion No. 358, June 3, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/02/crosswords/connections-companion-358.html
+
+**Why the New Human Case of Bird Flu Is So Alarming**\
+`The virus is changing.`\
+https://nytimes.com/2024/06/02/opinion/bird-flu-case-respiratory.html
+
 **A Felon in the Oval Office Would Test the American System**\
 `The system of checks and balances established in the Constitution was meant to hold wayward presidents accountable, but some wonder how it will work if the next president is already a felon.`\
 https://nytimes.com/2024/06/02/us/politics/trump-presidency-checks-balances.html
