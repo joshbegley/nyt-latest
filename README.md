@@ -16,7 +16,7 @@ https://nytimes.com/2024/06/02/us/akron-ohio-shooting.html
 
 **Trump Joins TikTok, the App He Once Tried to Ban**\
 `The former president has recently embraced the platform as he seeks to reach younger voters.`\
-https://nytimes.com/live/2024/06/02/us/biden-trump-election/trump-tiktok
+https://nytimes.com/2024/06/02/us/politics/trump-tiktok.html
 
 **The Widespread Harm of Nuclear Testing**\
 `Readers, including Christie Brinkley, discuss the dangers. Also: About apostrophes; oversight of legislative initiatives; congestion pricing.`\
