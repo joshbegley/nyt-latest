@@ -1,3 +1,11 @@
+**Yoav Gallant Has Shown Defiance. Will He Again?**\
+`Israel is facing a stark choice about its future. Defense Minister Yoav Gallant represents a critical role in the path it takes.`\
+https://nytimes.com/2024/06/02/opinion/yoav-gallant-israel-defense.html
+
+**I Supervised New York City Judges. Juan Merchan Put on a Master Class in the Trump Trial.**\
+`This is how judges can remain pillars for the rule of law in America.`\
+https://nytimes.com/2024/06/02/opinion/trump-trial-juan-merchan.html
+
 **In Singapore, China Warns U.S. While Zelensky Seeks Support**\
 `The annual Shangri-La Dialogue became a stage for competing demands on U.S. global power, including the war in Ukraine and tensions over Taiwan.`\
 https://nytimes.com/2024/06/02/world/asia/zelensky-singapore-ukraine-china.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/02/world/asia/palau-taiwan-china-hack.html
 **After Pipes Burst in Atlanta, Many Residents Lose Water, Then Patience**\
 `Major main breaks resulted in closed businesses, canceled events and angry residents who were upset over a lack of updates.`\
 https://nytimes.com/2024/06/01/us/atlanta-water-disruption.html
-
-**Corrections: June 2, 2024**\
-`Corrections that appeared in print on Sunday, June 2, 2024.`\
-https://nytimes.com/2024/06/01/pageoneplus/corrections-june-2-2024.html
-
-**Quotation of the Day: Laborers Who Take Time Off in Pakistan’s Record Heat Risk Going Hungry**\
-`Quotation of the Day for Sunday, June 2, 2024.`\
-https://nytimes.com/2024/06/01/pageoneplus/quotation-of-the-day-laborers-who-take-time-off-in-pakistans-record-heat-risk-going-hungry.html
 
