@@ -1,3 +1,7 @@
+**Philadelphia’s University of the Arts Announces Sudden Closing**\
+`The institution’s financial woes were widely known, but the announcement surprised students and faculty members.`\
+https://nytimes.com/2024/06/02/arts/design/philadelphias-arts-university-closing.html
+
 **Hot Off the Presses**\
 `Alana Platt makes her New York Times debut.`\
 https://nytimes.com/2024/06/02/crosswords/daily-puzzle-2024-06-03.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/02/obituaries/david-levy-dead.html
 **What’s Next for South Africa After Voters Rebuked Its Reigning Party?**\
 `A look at the leaders who could shape the country’s future after the African National Congress’s poor showing in elections.`\
 https://nytimes.com/2024/06/02/world/africa/south-africa-elections-government.html
-
-**After Verdict, Trump Revels in Embrace of His Most Avid Base: Male Fans**\
-`The former president’s appearance at a U.F.C. fight in Newark on Saturday night showcased his hypermasculine appeal, and his defiance.`\
-https://nytimes.com/2024/06/02/us/politics/donald-trump-ufc-newark-dana-white.html
 
