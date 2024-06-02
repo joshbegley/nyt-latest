@@ -1,3 +1,7 @@
+**Lara Trump, R.N.C. Leader, Denounces Larry Hogan for Accepting Trump Verdict**\
+`Ms. Trump refused to say whether the Republicans should support Mr. Hogan, a prized recruit who gave the party a chance of picking up a Democratic Senate seat in Maryland.`\
+https://nytimes.com/live/2024/06/02/us/biden-trump-election/lara-trump-rnc-leader-denounces-larry-hogan-for-accepting-trump-verdict
+
 **Rupert Murdoch Marries for the Fifth Time**\
 `Mr. Murdoch, the 93-year-old media mogul, married Elena Zhukova, a retired molecular biologist, Saturday at Moraga, his Bel Air vineyard estate in Los Angeles.`\
 https://nytimes.com/2024/06/02/style/rupert-murdoch-wedding.html
