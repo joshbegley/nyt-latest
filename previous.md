@@ -1,3 +1,11 @@
+**1 Dead and 24 Wounded in Akron Shooting, Police Say**\
+`Details about what led up to the shooting in Akron, Ohio, were unclear. At least two of those wounded were in critical condition, officials said.`\
+https://nytimes.com/2024/06/02/us/akron-ohio-shooting.html
+
+**Trump Joins TikTok, the App He Once Tried to Ban**\
+`The former president has recently embraced the platform as he seeks to reach younger voters.`\
+https://nytimes.com/live/2024/06/02/us/biden-trump-election/trump-tiktok
+
 **The Widespread Harm of Nuclear Testing**\
 `Readers, including Christie Brinkley, discuss the dangers. Also: About apostrophes; oversight of legislative initiatives; congestion pricing.`\
 https://nytimes.com/2024/06/02/opinion/nuclear-testing.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/02/opinion/temporary-celibacy-sex-abstinence.html
 **Netanyahu may be forced to choose between a cease-fire and his government’s survival.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/06/02/world/israel-gaza-war-hamas-rafah/netanyahu-may-be-forced-to-choose-between-a-cease-fire-and-political-survival
-
-**Stuck at the Start**\
-`In the last few years, many Americans have gotten stuck in their starter house.`\
-https://nytimes.com/2024/06/02/briefing/starter-homes-housing-market.html
-
-**Civil Liberties Make for Strange Bedfellows**\
-`Sonia Sotomayor helped protect the country from Donald Trump, and she did it in an unexpected way.`\
-https://nytimes.com/2024/06/02/opinion/supreme-court-nra-aclu.html
 

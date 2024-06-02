@@ -1,3 +1,11 @@
+**1 Dead and 24 Wounded in Akron Shooting, Police Say**\
+`Details about what led up to the shooting in Akron, Ohio, were unclear. At least two of those wounded were in critical condition, officials said.`\
+https://nytimes.com/2024/06/02/us/akron-ohio-shooting.html
+
+**Trump Joins TikTok, the App He Once Tried to Ban**\
+`The former president has recently embraced the platform as he seeks to reach younger voters.`\
+https://nytimes.com/live/2024/06/02/us/biden-trump-election/trump-tiktok
+
 **Wildfire Near San Francisco Prompts Evacuations and Highway Shutdown**\
 `The blaze, the Corral Fire, began Saturday afternoon, has burned more than 12,000 acres and was only 13 percent contained early Sunday.`\
 https://nytimes.com/2024/06/02/us/california-wildfire-evacuations.html
