@@ -1,3 +1,7 @@
+**Netanyahu will meet with Ben-Gvir to discuss Israel’s cease-fire proposal, an official says.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/06/03/world/israel-gaza-war-hamas/netanyahu-will-meet-with-ben-gvir-to-discuss-israels-cease-fire-proposal-an-official-says
+
 **Two N.Y.P.D. Officers Shot Overnight in Queens**\
 `The officers were trying to pull over a man they said was riding a motorbike the wrong way down a one-way street. Both officers and the suspect are expected to survive, police officials said.`\
 https://nytimes.com/2024/06/03/nyregion/nypd-officers-shot-queens.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/03/podcasts/the-daily/how-trumps-conviction-could-re
 **Mexico Elects First Female President, and Hunter Biden Goes on Trial**\
 `Plus, Simone Biles sets a record.`\
 https://nytimes.com/2024/06/03/podcasts/mexico-president-hunter-biden.html
-
-**Wordle Review No. 1,081, June 4, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/06/03/crosswords/wordle-review-1081.html
 

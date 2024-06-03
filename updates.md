@@ -1,3 +1,7 @@
+**Netanyahu will meet with Ben-Gvir to discuss Israel’s cease-fire proposal, an official says.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/06/03/world/israel-gaza-war-hamas/netanyahu-will-meet-with-ben-gvir-to-discuss-israels-cease-fire-proposal-an-official-says
+
 **Two N.Y.P.D. Officers Shot Overnight in Queens**\
 `The officers were trying to pull over a man they said was riding a motorbike the wrong way down a one-way street. Both officers and the suspect are expected to survive, police officials said.`\
 https://nytimes.com/2024/06/03/nyregion/nypd-officers-shot-queens.html
