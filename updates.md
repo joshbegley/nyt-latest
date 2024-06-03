@@ -1,3 +1,7 @@
+**GameStop Stock Surges Again on Social Media Buzz**\
+`A post on a long-dormant Reddit account suggested the trader known as Roaring Kitty had amassed a large stake in the video game retailer.`\
+https://nytimes.com/2024/06/03/business/dealbook/gamestop-stock-roaring-kitty.html
+
 **A New Search for Ripples in Space From the Beginning of Time**\
 `As it studies cosmic microwaves, the Simons Observatory in Chile aims to help prove or disprove cosmic inflation, a notion that the universe expanded rapidly in the moment after the Big Bang.`\
 https://nytimes.com/2024/06/03/science/cosmic-inflation-microwave-background-simons-observatory.html
