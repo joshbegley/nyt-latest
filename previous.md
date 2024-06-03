@@ -1,3 +1,15 @@
+**A New Search for Ripples in Space From the Beginning of Time**\
+`As it studies cosmic microwaves, the Simons Observatory in Chile aims to help prove or disprove cosmic inflation, a notion that the universe expanded rapidly in the moment after the Big Bang.`\
+https://nytimes.com/2024/06/03/science/cosmic-inflation-microwave-background-simons-observatory.html
+
+**Rules banning electronics in the courtroom make speedy reporting on Hunter Biden’s trial tricky.**\
+`By Eileen Sullivan`\
+https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/rules-banning-electronics-in-the-courtroom-make-speedy-reporting-on-hunter-bidens-trial-tricky
+
+**U.C. Strike to Expand to Three More Campuses**\
+`Graduate teaching assistants and researchers plan to walk off the job at U.C. Santa Barbara, U.C. San Diego and U.C. Irvine, a week before final exams.`\
+https://nytimes.com/2024/06/03/us/uc-strike-expands.html
+
 **Confidential correspondence and interviews give a look inside the collapse of Hunter Biden’s plea deal.**\
 `An examination of confidential correspondence and interviews with those close to Mr. Biden and lawyers involved in the case show how the agreement ultimately fell apart amid schisms and withering external pressures.`\
 https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/confidential-correspondence-and-interviews-give-a-look-inside-the-collapse-of-hunter-bidens-plea-deal
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/03/nyregion/nypd-officers-shot-queens.html
 **MicroStrategy and Its Founder to Pay $40 Million in Tax Fraud Lawsuit**\
 `Michael Saylor did not pay any income taxes to Washington despite living there from 2005 through 2020, the attorney general for the District of Columbia said.`\
 https://nytimes.com/2024/06/03/business/dealbook/microstrategy-michael-saylor-tax-fraud.html
-
-**A Crypto Bull’s Big Tax Settlement**\
-`The technology company MicroStrategy and its founder, Michael Saylor, agreed to a $40 million deal to end a lawsuit accusing him of evading income tax.`\
-https://nytimes.com/2024/06/03/business/dealbook/saylor-microstrategy-tax-settlement.html
-
-**In Delhi’s Parched Slums, Life Hangs on a Hose and a Prayer**\
-`A heat wave has left water in short supply across India’s capital region. The poorest are left to crowd around tankers to get whatever they can.`\
-https://nytimes.com/2024/06/03/world/asia/india-delhi-heat-water.html
-
-**Western U.S. Braces for Excessively High Temperatures as Heat Dome Arrives**\
-`Record-breaking temperatures that have contributed to deaths and power failures in Mexico are forecast to move north this week.`\
-https://nytimes.com/2024/06/03/us/excessive-heat-wave-forecast-texas-california.html
 
