@@ -1,5 +1,5 @@
 **Prosecutor Drops Murder Charges Against Minnesota Trooper Amid Pushback**\
-`The prosecution of Ryan Londregan, the Minnesota state trooper who fatally shot a motorist last year, sparked rare bipartisan outrage.`\
+`The prosecution of Ryan Londregan, a white Minnesota state trooper who fatally shot a Black motorist last year, sparked rare bipartisan outrage.`\
 https://nytimes.com/2024/06/02/us/minnesota-charges-trooper-londregan.html
 
 **Washington Post Editor Sally Buzbee to Step Down**\
