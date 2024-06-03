@@ -1,3 +1,7 @@
+**Research Finds Significant Racial Disparities in Medicaid Re-enrollment**\
+`Among those who could not complete the process of renewing their Medicaid coverage, Black and Hispanic Americans were twice as likely as white people to lose their health insurance, a new study found.`\
+https://nytimes.com/2024/06/03/us/politics/medicaid-reenrollment-black-hispanic.html
+
 **Rep. Jamaal Bowman Loses Support of an Ex-Colleague Over Israel**\
 `Mondaire Jones, a fellow Black progressive who entered Congress with Mr. Bowman after the 2020 election, is endorsing Mr. Bowman’s challenger, George Latimer.`\
 https://nytimes.com/2024/06/03/nyregion/jamaal-bowman-mondaire-jones.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/03/opinion/mexico-new-president-violence.html
 **Jacob Zuma Gets His Revenge on South African Party That Shunned Him**\
 `A new party led by Mr. Zuma, a former president forced out over corruption allegations, helped ensure that the African National Congress fell short of an outright majority for the first time since the end of apartheid.`\
 https://nytimes.com/2024/06/03/world/africa/south-africa-jacob-zuma.html
-
-**Senator Menendez, on Trial, Files to Run for Re-election as an Independent**\
-`An aide dropped off paperwork in Trenton, N.J., while the senator was in a federal courthouse in Manhattan. He has until the middle of August to withdraw.`\
-https://nytimes.com/2024/06/03/nyregion/senator-robert-menendez-independent-campaign.html
 
