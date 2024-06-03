@@ -1,3 +1,7 @@
+**Washington Post Editor Sally Buzbee to Step Down**\
+`Matt Murray, the former editor in chief of The Wall Street Journal, will take her place.`\
+https://nytimes.com/2024/06/02/business/media/washington-post-editor-sally-buzbee-to-step-down.html
+
 **A Sticking Point in Paramount and Skydance Talks: Who Pays For a Lawsuit?**\
 `A special committee of Paramount’s board of directors supports a merger with Skydance, a studio that has increased its offer in recent days. But the deal isn’t done yet.`\
 https://nytimes.com/2024/06/02/business/paramount-skydance-talks-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/02/style/rupert-murdoch-wedding.html
 **Intense Security at Peaceful Parade for Israel in Manhattan**\
 `The annual parade focused this year on the hostages in Gaza. Thousands marched, and with many streets blocked off, there were few protesters.`\
 https://nytimes.com/2024/06/02/nyregion/israel-war-parade-protest.html
-
-**Teacher Placed on Leave Over ‘Mock Slave Auction’ in Classroom**\
-`The teacher in Massachusetts, who has not been named, was placed on leave after also using a racial slur, the school superintendent said.`\
-https://nytimes.com/2024/06/02/us/teacher-slave-auction-boston.html
 
