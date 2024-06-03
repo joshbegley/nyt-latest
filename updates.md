@@ -1,3 +1,11 @@
+**A Mazda, a Gift Bag of $120,000 and a Dismissed Juror**\
+`A stranger dropped off cash at a juror’s house and offered more if she voted to acquit defendants charged with defrauding federal food programs.`\
+https://nytimes.com/2024/06/03/us/jury-bribe-feeding-our-future-fraud.html
+
+**Margot Benacerraf, Award-Winning Venezuelan Documentarian, Dies at 97**\
+`She made only two films, but her “Araya,” a rumination on the daily rituals of salt-mine laborers, became an enduring work of Latin American cinema.`\
+https://nytimes.com/2024/06/03/movies/margot-benacerraf-dead.html
+
 **Book Club: Come Discuss ‘Headshot,’ by Rita Bullwinkel**\
 `For The Book Review Podcast’s June book club, we’ll talk about “Headshot,” Rita Bullwinkel’s fierce and searching novel about the high-octane world of youth women’s boxing.`\
 https://nytimes.com/2024/06/03/books/review/headshot-rita-bullwinkel-book-club.html
