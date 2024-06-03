@@ -1,3 +1,7 @@
+**For those who fled Rafah, even finding a place to pitch a tent is hard.**\
+`By Hiba Yazbek and Ameera Harouda`\
+https://nytimes.com/live/2024/06/03/world/israel-gaza-war-hamas/for-those-who-fled-rafah-even-finding-a-place-to-pitch-a-tent-is-hard
+
 **Jean Guerrero**\
 `Jean Guerrero, a New York Times contributing opinion writer, covers politics, U.S. Latinos and the American West.`\
 https://nytimes.com/column/jean-guerrero
