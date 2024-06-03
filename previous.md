@@ -1,3 +1,7 @@
+**Biden Plans Asylum Restrictions for Migrants**\
+`Also, Mexico elected its first woman president. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/06/03/briefing/biden-border-restrictions-mexico-president.html
+
 **Israeli airstrikes on Syria kill a general from a branch Iran’s Revolutionary Guards.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/06/03/world/israel-gaza-war-hamas/israeli-airstrikes-on-syria-kill-a-general-from-a-branch-irans-revolutionary-guards
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/03/climate/brazil-floods-climate-change.html
 **Voters Turn Mexico’s Governing Party Into the Dominant Party**\
 `Expectations were high for the leftist Morena party, and it exceeded them, potentially giving President-elect Claudia Sheinbaum and her allies the power to enact systemic change.`\
 https://nytimes.com/2024/06/03/world/americas/mexico-election-morena-results.html
-
-**Consumer Bureau to Create ‘Corporate Offender’ Registry**\
-`Most companies will be required to report government and court orders penalizing them for consumer protection violations.`\
-https://nytimes.com/2024/06/03/business/consumer-bureau-corporate-offender-registry.html
 
