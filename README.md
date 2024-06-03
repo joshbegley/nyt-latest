@@ -1,3 +1,7 @@
+**Taylor Swift Is No. 1 Again, With Little Competition on the Way**\
+`“The Tortured Poets Department” earns a sixth week atop the Billboard 200, while the latest from Twenty One Pilots opens at No. 3 with big numbers for a rock album.`\
+https://nytimes.com/2024/06/03/arts/music/taylor-swift-tortured-poets-six-weeks-chart.html
+
 **For Her Third Album, Angélica Garcia Adds Her First Language: Spanish**\
 `“Gemelo” is a largely electronic exploration of all kinds of dualities: “With any music I make from now on, I’m going to be writing in both languages.”`\
 https://nytimes.com/2024/06/03/arts/music/angelica-garcia-gemelo.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/03/climate/claudia-sheinbaum-climate-scientist-mexic
 **Kilauea Volcano Erupts on Hawaii’s Big Island**\
 `The volcano erupted three times in 2023. There did not appear to be any immediate danger to residents on Monday.`\
 https://nytimes.com/2024/06/03/us/hawaii-volcano-eruption-kilauea.html
-
-**Washington Post Newsroom Reels From Sudden Editor Exit**\
-`Sally Buzbee, who has been editor of The Washington Post since 2021, chafed at a major reorganization by newspaper’s chief executive.`\
-https://nytimes.com/2024/06/03/business/media/washington-post-sally-buzbee-exit.html
 
