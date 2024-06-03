@@ -1,3 +1,7 @@
+**Hunter Biden will also face trial in September, over a scheme to evade federal taxes on millions in income from foreign businesses.**\
+`By Glenn Thrush and Michael S. Schmidt`\
+https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/hunter-biden-will-also-face-trial-in-september-over-a-scheme-to-evade-federal-taxes-on-millions-in-income-from-foreign-businesse
+
 **Price Pendulum Swings Back to Discounts, Within Limits**\
 `The pandemic shopping boom led many retailers to widen profit margins by charging more. Now value is the watchword as consumers grow choosier.`\
 https://nytimes.com/2024/06/03/business/economy/retailers-prices-discounts-inflation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/03/business/media/washington-post-sally-buzbee-exit.
 **Floods Break Dams and Submerge Highways in Southern Germany**\
 `Several towns declared states of emergency and evacuated citizens as water submerged streets and highways and derailed a high-speed train.`\
 https://nytimes.com/2024/06/03/world/europe/germany-floods.html
-
-**Holocaust Museums Debate What to Say About the Israel-Hamas War**\
-`Students are bringing up antisemitic tropes and asking survivors and docents: What is Palestine? Is there a genocide in Gaza?`\
-https://nytimes.com/2024/06/03/us/holocaust-museums-israel-hamas-war.html
 

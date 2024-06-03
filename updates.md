@@ -1,3 +1,7 @@
+**Hunter Biden will also face trial in September, over a scheme to evade federal taxes on millions in income from foreign businesses.**\
+`By Glenn Thrush and Michael S. Schmidt`\
+https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/hunter-biden-will-also-face-trial-in-september-over-a-scheme-to-evade-federal-taxes-on-millions-in-income-from-foreign-businesse
+
 **Price Pendulum Swings Back to Discounts, Within Limits**\
 `The pandemic shopping boom led many retailers to widen profit margins by charging more. Now value is the watchword as consumers grow choosier.`\
 https://nytimes.com/2024/06/03/business/economy/retailers-prices-discounts-inflation.html
