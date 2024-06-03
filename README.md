@@ -1,3 +1,7 @@
+**Quote of the Day: Tired of Chaos and Leaving House by the Dozens**\
+`Quotation of the Day for Monday, June 3, 2024.`\
+https://nytimes.com/2024/06/02/pageoneplus/quote-of-the-day-tired-of-chaos-and-leaving-house-by-the-dozens.html
+
 **Puerto Rico Governor Loses Primary to Former Ally**\
 `Jenniffer González-Colón, the island’s nonvoting member of Congress, defeated Gov. Pedro R. Pierluisi four years after they appeared on the same ticket.`\
 https://nytimes.com/2024/06/02/us/puerto-rico-governor-primary-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/02/world/asia/south-africa-anc-india-israel-asia.htm
 **2024 Mexico Presidential Election: Live Results**\
 `See results and maps for Mexico’s 2024 presidential election.`\
 https://nytimes.com/interactive/2024/06/02/world/americas/results-mexico-presidential-election.html
-
-**Lara Trump, R.N.C. Leader, Denounces Larry Hogan for Accepting Trump Verdict**\
-`Ms. Trump refused to say whether the Republicans should support Mr. Hogan, a prized recruit who gave the party a chance of picking up a Democratic Senate seat in Maryland.`\
-https://nytimes.com/2024/06/02/us/politics/lara-trump-larry-hogan.html
 
