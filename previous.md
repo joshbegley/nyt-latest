@@ -1,3 +1,7 @@
+**What to Know About Claudia Sheinbaum, Mexico’s Newly Elected President**\
+`Here are five key insights into Mexico’s new president as people wonder whether she will diverge from Andrés Manuel López Obrador’s policies or focus on cementing his legacy.`\
+https://nytimes.com/2024/06/03/world/americas/mexico-claudia-sheinbaum-president.html
+
 **Word of the Day: introspection**\
 `This word has appeared in 75 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/06/03/learning/word-of-the-day-introspection.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/02/pageoneplus/quote-of-the-day-tired-of-chaos-and-l
 **Puerto Rico Governor Loses Primary to Former Ally**\
 `Representative Jenniffer González-Colón, the island’s nonvoting member of Congress, defeated Gov. Pedro R. Pierluisi four years after they appeared on the same ticket.`\
 https://nytimes.com/2024/06/02/us/puerto-rico-governor-primary-election.html
-
-**Prosecutor Drops Murder Charges Against Minnesota Trooper Amid Pushback**\
-`The prosecution of Ryan Londregan, a white Minnesota state trooper who fatally shot a Black motorist last year, sparked rare bipartisan outrage.`\
-https://nytimes.com/2024/06/02/us/minnesota-charges-trooper-londregan.html
 

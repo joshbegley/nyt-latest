@@ -1,3 +1,7 @@
+**What to Know About Claudia Sheinbaum, Mexico’s Newly Elected President**\
+`Here are five key insights into Mexico’s new president as people wonder whether she will diverge from Andrés Manuel López Obrador’s policies or focus on cementing his legacy.`\
+https://nytimes.com/2024/06/03/world/americas/mexico-claudia-sheinbaum-president.html
+
 **Word of the Day: introspection**\
 `This word has appeared in 75 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/06/03/learning/word-of-the-day-introspection.html
