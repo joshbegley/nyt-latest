@@ -1,3 +1,7 @@
+**Confidential correspondence and interviews give a look inside the collapse of Hunter Biden’s plea deal.**\
+`An examination of confidential correspondence and interviews with those close to Mr. Biden and lawyers involved in the case show how the agreement ultimately fell apart amid schisms and withering external pressures.`\
+https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/confidential-correspondence-and-interviews-give-a-look-inside-the-collapse-of-hunter-bidens-plea-deal
+
 **Here are the gun charges Hunter Biden faces.**\
 `The heart of the federal case against the president’s son — that he lied about drug use on a federal form when he purchased a handgun — is not typically the basis for a stand-alone prosecution.`\
 https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/here-are-the-gun-charges-hunter-biden-faces
