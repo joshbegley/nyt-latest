@@ -1,3 +1,11 @@
+**Trump’s Whining About a Weaponized Justice System Is a Projection**\
+`His second term would be even more corrupt and vindictive than his first.`\
+https://nytimes.com/2024/06/03/opinion/trumps-weaponized-justice-system.html
+
+**Should Biden Downplay His Own Success?**\
+`A radical idea: The administration should just tell the truth.`\
+https://nytimes.com/2024/06/03/opinion/biden-economy.html
+
 **Janis Paige, Star of Broadway’s ‘The Pajama Game,’ Is Dead at 101**\
 `She first made her mark in the all-star 1944 movie “Hollywood Canteen” before finding acclaim on the musical stage. Movie and TV roles followed.`\
 https://nytimes.com/2024/06/03/theater/janis-paige-dead.html

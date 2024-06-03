@@ -1,3 +1,11 @@
+**Trump’s Whining About a Weaponized Justice System Is a Projection**\
+`His second term would be even more corrupt and vindictive than his first.`\
+https://nytimes.com/2024/06/03/opinion/trumps-weaponized-justice-system.html
+
+**Should Biden Downplay His Own Success?**\
+`A radical idea: The administration should just tell the truth.`\
+https://nytimes.com/2024/06/03/opinion/biden-economy.html
+
 **Janis Paige, Star of Broadway’s ‘The Pajama Game,’ Is Dead at 101**\
 `She first made her mark in the all-star 1944 movie “Hollywood Canteen” before finding acclaim on the musical stage. Movie and TV roles followed.`\
 https://nytimes.com/2024/06/03/theater/janis-paige-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/03/us/politics/medicaid-reenrollment-black-hispanic.
 **Rep. Jamaal Bowman Loses Ex-Ally’s Support Over Criticism of Israel**\
 `Mondaire Jones, a fellow Black progressive who entered Congress with Mr. Bowman after the 2020 election, is endorsing Mr. Bowman’s challenger, George Latimer.`\
 https://nytimes.com/2024/06/03/nyregion/jamaal-bowman-mondaire-jones.html
-
-**During Impassioned Defense of Trump, Congressman’s 6-Year-Old Steals the Spotlight**\
-`As Representative John Rose castigated the former president’s criminal conviction, his young son locked in with the C-SPAN cameras, making a series of contorted faces in a moment that circulated widely online.`\
-https://nytimes.com/2024/06/03/us/politics/trump-defense-congressman-son-steals-spotlight.html
-
-**People With Criminal Records React to Trump Verdict: ‘Now You Understand’**\
-`The New York jury’s decision stirred conflicting emotions, including surprise at the responses of many on the left.`\
-https://nytimes.com/2024/06/03/us/trump-verdict-felony-convictions.html
 
