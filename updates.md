@@ -1,3 +1,7 @@
+**Wordle Review No. 1,080, June 3, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/02/crosswords/wordle-review-1080.html
+
 **Philadelphia’s University of the Arts Announces Sudden Closing**\
 `The institution’s financial woes were widely known, but the announcement surprised students and faculty members.`\
 https://nytimes.com/2024/06/02/arts/design/philadelphias-arts-university-closing.html
