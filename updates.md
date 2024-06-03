@@ -1,3 +1,7 @@
+**Western U.S. Braces for Excessively High Temperatures as Heat Dome Arrives**\
+`Record-breaking temperatures that have contributed to deaths and power failures in Mexico are forecast to move north this week.`\
+https://nytimes.com/2024/06/03/us/excessive-heat-wave-forecast-texas-california.html
+
 **Western U.S. Braces for Excessive High Temperatures as Heat Dome Arrives**\
 `Record-breaking temperatures that have contributed to deaths and power failures in Mexico are forecast to move north this week.`\
 https://nytimes.com/2024/06/03/us/excessive-heat-wave-forecast-texas-california.html
