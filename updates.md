@@ -1,3 +1,11 @@
+**Ford Rescues a Detroit Train Station as It Plots Its Own Future**\
+`The automaker paid $90 million for the ravaged Michigan Central Station in 2018, and will spend millions more to create a hub of businesses focused on transportation.`\
+https://nytimes.com/2024/06/03/realestate/ford-detroit-michigan-central-station.html
+
+**The Make-or-Break Question for a New Roommate: Do You Drink?**\
+`A Brooklyn woman who has been sober for three years needed a roommate. But alcohol would not be allowed in the apartment. Some people thought that was a joke.`\
+https://nytimes.com/2024/06/03/realestate/sober-living-house-roommate.html
+
 **Mexico Elects Its First Female President**\
 `Claudia Sheinbaum was projected to win the presidential race in a landslide victory, which was a vote of confidence to continue the leftist policies of her predecessor, Andrés Manuel López Obrador.`\
 https://nytimes.com/video/world/americas/100000009500580/mexico-elects-its-first-female-president.html
