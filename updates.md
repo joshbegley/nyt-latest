@@ -1,3 +1,7 @@
+**The Israeli military’s operation in Rafah risks upsetting a delicate peace with Egypt, a pillar of its national security for decades.**\
+`By Vivian Yee and Emad Mekay`\
+https://nytimes.com/live/2024/06/03/world/israel-gaza-war-hamas/the-israeli-militarys-operation-in-rafah-risks-upsetting-a-delicate-peace-with-egypt-a-pillar-of-its-national-security-for-decad
+
 **A Myanmar Rebel Group Is Accused of Persecuting Rohingya**\
 `Allegations against the Arakan Army, a key force in the fight against the junta, threaten to revive old horrors of sectarian atrocities.`\
 https://nytimes.com/2024/06/03/world/asia/myanmar-rebel-rohingya.html
