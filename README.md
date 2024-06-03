@@ -1,3 +1,7 @@
+**Floods Break Dams and Submerge Highways in Southern Germany**\
+`Several towns declared states of emergency and evacuated citizens as water submerged streets and highways and derailed a high-speed train.`\
+https://nytimes.com/2024/06/03/world/europe/germany-floods.html
+
 **Holocaust Museums Debate What to Say About the Israel-Hamas War**\
 `Students are bringing up antisemitic tropes and asking survivors and docents: What is Palestine? Is there a genocide in Gaza?`\
 https://nytimes.com/2024/06/03/us/holocaust-museums-israel-hamas-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/house-republicans-flai
 **Hunter Biden’s family members joined him in court after a weekend together.**\
 `By Eileen Sullivan`\
 https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/hunter-bidens-family-members-joined-him-in-court-after-a-weekend-together
-
-**Jackson Lee, Veteran Democrat in Congress, Says She Has Pancreatic Cancer**\
-`The Texas congresswoman, who has served in the House for nearly three decades, said she had begun treatment and would work with leaders to be present for votes in Washington.`\
-https://nytimes.com/2024/06/03/us/politics/sheila-jackson-lee-pancreatic-cancer.html
 

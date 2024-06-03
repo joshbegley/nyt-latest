@@ -1,3 +1,11 @@
+**Holocaust Museums Debate What to Say About the Israel-Hamas War**\
+`Students are bringing up antisemitic tropes and asking survivors and docents: What is Palestine? Is there a genocide in Gaza?`\
+https://nytimes.com/2024/06/03/us/holocaust-museums-israel-hamas-war.html
+
+**Towns in Southern Germany Declare States of Emergency After Flooding**\
+`The German Weather Office reported that between Friday at noon and Monday at noon more than a month’s worth of rain fell, submerging streets and highways, breaking a dam, and derailing a high-speed train.`\
+https://nytimes.com/video/world/europe/100000009500888/germany-weather-flooding-rain.html
+
 **Nigel Farage Says He Will Run in U.K. Election, in Blow to Conservatives**\
 `The champion of Brexit reversed his previous pledge not to stand for Parliament, in a boost to his Reform Party, which hopes to take seats from the governing Conservatives.`\
 https://nytimes.com/2024/06/03/world/europe/nigel-farage-says-he-will-run-in-uk-election-in-blow-to-conservatives.html

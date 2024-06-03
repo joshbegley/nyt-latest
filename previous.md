@@ -1,3 +1,11 @@
+**Holocaust Museums Debate What to Say About the Israel-Hamas War**\
+`Students are bringing up antisemitic tropes and asking survivors and docents: What is Palestine? Is there a genocide in Gaza?`\
+https://nytimes.com/2024/06/03/us/holocaust-museums-israel-hamas-war.html
+
+**Towns in Southern Germany Declare States of Emergency After Flooding**\
+`The German Weather Office reported that between Friday at noon and Monday at noon more than a month’s worth of rain fell, submerging streets and highways, breaking a dam, and derailing a high-speed train.`\
+https://nytimes.com/video/world/europe/100000009500888/germany-weather-flooding-rain.html
+
 **Nigel Farage Says He Will Run in U.K. Election, in Blow to Conservatives**\
 `The champion of Brexit reversed his previous pledge not to stand for Parliament, in a boost to his Reform Party, which hopes to take seats from the governing Conservatives.`\
 https://nytimes.com/2024/06/03/world/europe/nigel-farage-says-he-will-run-in-uk-election-in-blow-to-conservatives.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/hunter-bidens-family-m
 **Jackson Lee, Veteran Democrat in Congress, Says She Has Pancreatic Cancer**\
 `The Texas congresswoman, who has served in the House for nearly three decades, said she had begun treatment and would work with leaders to be present for votes in Washington.`\
 https://nytimes.com/2024/06/03/us/politics/sheila-jackson-lee-pancreatic-cancer.html
-
-**Trump’s Harder Line on Immigration Appears to Resonate, Polls Show**\
-`As the 2024 presidential election ramps up, here is what polls say about public views on the growing number of migrants.`\
-https://nytimes.com/2024/06/03/us/politics/trump-immigration-deportations.html
-
-**Hunter Biden and his financial supporters are squeezed for money as his trial begins.**\
-`By Glenn Thrush and Mattathias Schwartz`\
-https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/hunter-biden-and-his-financial-supporters-are-squeezed-for-money-as-his-trial-begins
 
