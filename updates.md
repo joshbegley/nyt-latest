@@ -1,3 +1,7 @@
+**Arrest Threatens Nepal’s Standing as South Asia’s Model for Free Speech**\
+`A media executive was arrested after his company published critical reports about a powerful government minister.`\
+https://nytimes.com/2024/06/03/world/asia/nepal-media-arrest.html
+
 **Where Do Those Painted White ‘Ghost Bikes’ Come From?**\
 `White bikes across the city serve as memorials — and calls for awareness about the dangers cyclists face.`\
 https://nytimes.com/2024/06/03/nyregion/street-wars-ghost-bikes-new-york-city.html
