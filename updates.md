@@ -1,3 +1,7 @@
+**Shuttered Accounts**\
+`Articles in this series examine what appears to be a growing phenomenon: Banks that shut down customers’ checking accounts without warning, explanation or recourse.`\
+https://nytimes.com/series/shuttered-accounts
+
 **A Mazda, a Gift Bag of $120,000 and a Dismissed Juror**\
 `A stranger dropped off cash at a juror’s house and offered more if she voted to acquit defendants charged with defrauding federal food programs.`\
 https://nytimes.com/2024/06/03/us/jury-bribe-feeding-our-future-fraud.html

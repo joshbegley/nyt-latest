@@ -1,3 +1,7 @@
+**Shuttered Accounts**\
+`Articles in this series examine what appears to be a growing phenomenon: Banks that shut down customers’ checking accounts without warning, explanation or recourse.`\
+https://nytimes.com/series/shuttered-accounts
+
 **A Mazda, a Gift Bag of $120,000 and a Dismissed Juror**\
 `A stranger dropped off cash at a juror’s house and offered more if she voted to acquit defendants charged with defrauding federal food programs.`\
 https://nytimes.com/2024/06/03/us/jury-bribe-feeding-our-future-fraud.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/03/arts/music/taylor-swift-tortured-poets-six-weeks-
 **For Her Third Album, Angélica Garcia Adds Her First Language: Spanish**\
 `“Gemelo” is a largely electronic exploration of all kinds of dualities: “With any music I make from now on, I’m going to be writing in both languages.”`\
 https://nytimes.com/2024/06/03/arts/music/angelica-garcia-gemelo.html
-
-**Hunter Biden will also face trial in September, over a scheme to evade federal taxes on millions in income from foreign businesses.**\
-`By Glenn Thrush and Michael S. Schmidt`\
-https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/hunter-biden-will-also-face-trial-in-september-over-a-scheme-to-evade-federal-taxes-on-millions-in-income-from-foreign-businesse
 
