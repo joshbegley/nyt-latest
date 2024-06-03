@@ -1,3 +1,7 @@
+**Mexico’s New President Has a Daunting Job: Stop the Blood Bath**\
+`Claudia Sheinbaum has shown she can take a pragmatic approach to crime.`\
+https://nytimes.com/2024/06/03/opinion/mexico-new-president-violence.html
+
 **Jacob Zuma Gets His Revenge on South African Party that Shunned Him**\
 `A new party led by Mr. Zuma, a former president forced out over corruption allegations, helped ensure that the African National Congress fell short of an outright majority for the first time since the end of apartheid.`\
 https://nytimes.com/2024/06/03/world/africa/south-africa-jacob-zuma.html
