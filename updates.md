@@ -1,3 +1,7 @@
+**Epoch Times Executive Accused of Laundering $67 Million**\
+`Weidong Guan was charged with three counts in a scheme that the Justice Department said caused revenue to surge for the company, which has promoted Donald Trump and conspiracy theories.`\
+https://nytimes.com/2024/06/03/us/politics/epoch-times-money-laundering-doj.html
+
 **Harvard’s Largest Faculty Division Will No Longer Require Diversity Statements**\
 `Instead, the Faculty of Arts and Sciences will require applicants to describe their “efforts to strengthen academic communities,” a senior university leader said an email.`\
 https://nytimes.com/2024/06/03/us/harvard-diversity-statements.html
