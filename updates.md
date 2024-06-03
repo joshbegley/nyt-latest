@@ -1,3 +1,15 @@
+**Rep. Jamaal Bowman Loses Support of an Ex-Colleague Over Israel**\
+`Mondaire Jones, a fellow Black progressive who entered Congress with Mr. Bowman after the 2020 election, is endorsing Mr. Bowman’s challenger, George Latimer.`\
+https://nytimes.com/2024/06/03/nyregion/jamaal-bowman-mondaire-jones.html
+
+**During Impassioned Defense of Trump, Congressman’s 6-Year-Old Steals the Spotlight**\
+`As Representative John Rose castigated the former president’s criminal conviction, his young son locked in with the C-SPAN cameras, making a series of contorted faces in a moment that circulated widely online.`\
+https://nytimes.com/2024/06/03/us/politics/trump-defense-congressman-son-steals-spotlight.html
+
+**People With Criminal Records React to Trump Verdict: ‘Now You Understand’**\
+`The New York jury’s decision stirred conflicting emotions, including surprise at the responses of many on the left.`\
+https://nytimes.com/2024/06/03/us/trump-verdict-felony-convictions.html
+
 **Biden Plans Asylum Restrictions for Migrants**\
 `Also, Mexico elected its first woman president. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/06/03/briefing/biden-border-restrictions-mexico-president.html
