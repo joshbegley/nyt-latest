@@ -1,3 +1,7 @@
+**Sally Buzbee, Washington Post Editor, to Leave Role**\
+`Matt Murray, the former editor in chief of The Wall Street Journal, will take her place temporarily.`\
+https://nytimes.com/2024/06/02/business/media/washington-post-sally-buzbee-step-down.html
+
 **Washington Post Editor Sally Buzbee to Leave Role**\
 `Matt Murray, the former editor in chief of The Wall Street Journal, will take her place temporarily.`\
 https://nytimes.com/2024/06/02/business/media/washington-post-sally-buzbee-step-down.html
