@@ -1,3 +1,23 @@
+**Where Do Those Painted White ‘Ghost Bikes’ Come From?**\
+`White bikes across the city serve as memorials — and calls for awareness about the dangers cyclists face.`\
+https://nytimes.com/2024/06/03/nyregion/street-wars-ghost-bikes-new-york-city.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/06/03/crosswords/spelling-bee-forum.html
+
+**New Yorkers Who Need Help With Rent Can (Finally) Join a List for Help**\
+`A waiting list for federal housing vouchers that has been closed for nearly 15 years is reopening, providing a lifeline for families struggling to afford the city’s high rent.`\
+https://nytimes.com/2024/06/03/nyregion/section8-housing-vouchers-waiting-list-nyc.html
+
+**Liberals Find a TV Prescription for Election Jitters: Monday Nights**\
+`Once a week, Rachel Maddow and Jon Stewart are luring viewers back to basic cable.`\
+https://nytimes.com/2024/06/03/business/media/jon-stewart-rachel-maddow-tv.html
+
+**Plastics and Social Media: N.Y. Lawmakers’ End-of-Session Targets**\
+`With one week left in the 2024 legislative session, New York lawmakers are rushing to address various environmental and health-related initiatives.`\
+https://nytimes.com/2024/06/03/nyregion/albany-legislature-plastics.html
+
 **What to Know About Claudia Sheinbaum, Mexico’s Newly Elected President**\
 `Here are five key insights into Mexico’s new president as people wonder whether she will diverge from Andrés Manuel López Obrador’s policies or focus on cementing his legacy.`\
 https://nytimes.com/2024/06/03/world/americas/mexico-claudia-sheinbaum-president.html
