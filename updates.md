@@ -1,3 +1,7 @@
+**Trump’s Second Term Would Be Even More Corrupt and Vindictive Than His First**\
+`Republican whining about a weaponized justice system is a projection.`\
+https://nytimes.com/2024/06/03/opinion/trumps-weaponized-justice-system.html
+
 **Breeder Ordered to Pay $35 Million for Mistreating Beagles**\
 `Inotiv, whose subsidiaries pleaded guilty to two criminal counts, agreed to pay the record-setting amount. More than 4,000 beagles were rescued in 2022 from its facility in Virginia, where many were ill and injured.`\
 https://nytimes.com/2024/06/03/us/envigo-beagles-abuse-breeder-guilty.html
