@@ -1,3 +1,7 @@
+**Jean Guerrero**\
+`Jean Guerrero, a New York Times contributing opinion writer, covers politics, U.S. Latinos and the American West.`\
+https://nytimes.com/column/jean-guerrero
+
 **Shuttered Accounts**\
 `Articles in this series examine what appears to be a growing phenomenon: Banks that shut down customers’ checking accounts without warning, explanation or recourse.`\
 https://nytimes.com/series/shuttered-accounts
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/03/world/americas/mexico-women-president-latin-ameri
 **Taylor Swift Is No. 1 Again, With Little Competition on the Way**\
 `“The Tortured Poets Department” earns a sixth week atop the Billboard 200, while the latest from Twenty One Pilots opens at No. 3 with big numbers for a rock album.`\
 https://nytimes.com/2024/06/03/arts/music/taylor-swift-tortured-poets-six-weeks-chart.html
-
-**For Her Third Album, Angélica Garcia Adds Her First Language: Spanish**\
-`“Gemelo” is a largely electronic exploration of all kinds of dualities: “With any music I make from now on, I’m going to be writing in both languages.”`\
-https://nytimes.com/2024/06/03/arts/music/angelica-garcia-gemelo.html
 

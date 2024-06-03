@@ -1,3 +1,7 @@
+**Jean Guerrero**\
+`Jean Guerrero, a New York Times contributing opinion writer, covers politics, U.S. Latinos and the American West.`\
+https://nytimes.com/column/jean-guerrero
+
 **Shuttered Accounts**\
 `Articles in this series examine what appears to be a growing phenomenon: Banks that shut down customers’ checking accounts without warning, explanation or recourse.`\
 https://nytimes.com/series/shuttered-accounts
