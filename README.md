@@ -1,3 +1,7 @@
+**Tuesday Briefing: Mexico Elects Its First Woman President**\
+`Also, the U.S. is poised to change its asylum policy.`\
+https://nytimes.com/2024/06/03/world/asia/mexico-president-biden-asylum-israel-asia.html
+
 **Mexico’s New President Has a Daunting Job: Stop the Blood Bath**\
 `Claudia Sheinbaum has shown she can take a pragmatic approach to crime.`\
 https://nytimes.com/2024/06/03/opinion/mexico-new-president-violence.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/06/03/nyregion/trump-hush-money-trial-trans
 **Are Wedding Sneakers the Ultimate Power Flex?**\
 `Rupert Murdoch’s fifth marriage, this time to Elena Zhukova, seemed a casual affair, though some disapproved of the suit-sneaker combination.`\
 https://nytimes.com/2024/06/03/style/rupert-murdoch-wedding-sneakers.html
-
-**An Israeli military official said he expected ‘difficult questions’ about how the hostages died.**\
-`By Anushka Patil`\
-https://nytimes.com/live/2024/06/03/world/israel-gaza-war-hamas/an-israeli-military-official-said-he-expected-difficult-questions-about-how-the-hostages-died
 
