@@ -2,8 +2,8 @@
 `The prosecution of Ryan Londregan, a white Minnesota state trooper who fatally shot a Black motorist last year, sparked rare bipartisan outrage.`\
 https://nytimes.com/2024/06/02/us/minnesota-charges-trooper-londregan.html
 
-**Washington Post Editor Sally Buzbee to Step Down**\
-`Matt Murray, the former editor in chief of The Wall Street Journal, will take her place.`\
+**Washington Post Editor Sally Buzbee to Leave Role**\
+`Matt Murray, the former editor in chief of The Wall Street Journal, will take her place temporarily.`\
 https://nytimes.com/2024/06/02/business/media/washington-post-sally-buzbee-step-down.html
 
 **A Sticking Point in Paramount and Skydance Talks: Who Pays For a Lawsuit?**\
