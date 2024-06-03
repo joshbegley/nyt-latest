@@ -1,3 +1,7 @@
+**Trump’s Harder Line on Immigration Appears to Resonate, Polls Show**\
+`As the 2024 presidential election ramps up, here is what polls say about public views on the growing number of migrants.`\
+https://nytimes.com/2024/06/03/us/politics/trump-immigration-deportations.html
+
 **Hunter Biden and his financial supporters are squeezed for money as his trial begins.**\
 `By Glenn Thrush and Mattathias Schwartz`\
 https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/hunter-biden-and-his-financial-supporters-are-squeezed-for-money-as-his-trial-begins
