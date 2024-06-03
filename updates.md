@@ -1,3 +1,15 @@
+**What’s on TV This Week: Lots of Bravo and ‘Fantasma’**\
+`“Summer House” and “The Valley” wrap up as “Below Deck Mediterranean” starts a new season. HBO airs a new show from Julio Torres.`\
+https://nytimes.com/2024/06/03/arts/television/whats-on-tv-this-week-lots-of-bravo-and-fantasma.html
+
+**First They Came for My Country’s Future. Now They’re Destroying Its Past.**\
+`There was no place for rogue militias in the Sudan we dreamed of.`\
+https://nytimes.com/2024/06/03/opinion/sudan-darfur-rsf.html
+
+**My Country Shows What Europe Has Become**\
+`For all its singularity, Belgium tells a quintessentially European story.`\
+https://nytimes.com/2024/06/03/opinion/belgium-election-europe.html
+
 **Monday Briefing**\
 `South Africa rejects the party that ended apartheid.`\
 https://nytimes.com/2024/06/03/briefing/south-africa-mexico-election.html
