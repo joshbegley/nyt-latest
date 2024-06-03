@@ -1,3 +1,7 @@
+**Janis Paige, Star of Broadway’s ‘The Pajama Game,’ Is Dead at 101**\
+`She first made her mark in the all-star 1944 movie “Hollywood Canteen” before finding acclaim on the musical stage. Movie and TV roles followed.`\
+https://nytimes.com/2024/06/03/theater/janis-paige-dead.html
+
 **A Senator’s Son Fights for Political Survival**\
 `This year’s political landscape is consumed with trials and powerful family entanglements.`\
 https://nytimes.com/2024/06/03/us/politics/menendez-nj-primary-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/03/us/politics/trump-defense-congressman-son-steals-
 **People With Criminal Records React to Trump Verdict: ‘Now You Understand’**\
 `The New York jury’s decision stirred conflicting emotions, including surprise at the responses of many on the left.`\
 https://nytimes.com/2024/06/03/us/trump-verdict-felony-convictions.html
-
-**Biden Plans Asylum Restrictions for Migrants**\
-`Also, Mexico elected its first woman president. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2024/06/03/briefing/biden-border-restrictions-mexico-president.html
 

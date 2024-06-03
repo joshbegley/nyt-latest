@@ -1,3 +1,7 @@
+**Janis Paige, Star of Broadway’s ‘The Pajama Game,’ Is Dead at 101**\
+`She first made her mark in the all-star 1944 movie “Hollywood Canteen” before finding acclaim on the musical stage. Movie and TV roles followed.`\
+https://nytimes.com/2024/06/03/theater/janis-paige-dead.html
+
 **A Senator’s Son Fights for Political Survival**\
 `This year’s political landscape is consumed with trials and powerful family entanglements.`\
 https://nytimes.com/2024/06/03/us/politics/menendez-nj-primary-election.html
