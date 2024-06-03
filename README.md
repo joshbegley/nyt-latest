@@ -1,3 +1,7 @@
+**Trump’s Harder Line on Immigration Appears to Resonate, Polls Show**\
+`As the 2024 presidential election ramps up, here is what polls say about public views on the growing number of migrants.`\
+https://nytimes.com/2024/06/03/us/politics/trump-immigration-deportations.html
+
 **Hunter Biden and his financial supporters are squeezed for money as his trial begins.**\
 `By Glenn Thrush and Mattathias Schwartz`\
 https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/hunter-biden-and-his-financial-supporters-are-squeezed-for-money-as-his-trial-begins
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/03/science/cosmic-inflation-microwave-background-sim
 **Rules banning electronics in the courtroom make speedy reporting on Hunter Biden’s trial tricky.**\
 `By Eileen Sullivan`\
 https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/rules-banning-electronics-in-the-courtroom-make-speedy-reporting-on-hunter-bidens-trial-tricky
-
-**U.C. Strike to Expand to Three More Campuses**\
-`Graduate teaching assistants and researchers plan to walk off the job at U.C. Santa Barbara, U.C. San Diego and U.C. Irvine, a week before final exams.`\
-https://nytimes.com/2024/06/03/us/uc-strike-expands.html
 

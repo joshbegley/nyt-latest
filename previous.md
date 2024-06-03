@@ -1,3 +1,7 @@
+**Hunter Biden and his financial supporters are squeezed for money as his trial begins.**\
+`By Glenn Thrush and Mattathias Schwartz`\
+https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/hunter-biden-and-his-financial-supporters-are-squeezed-for-money-as-his-trial-begins
+
 **Trump schedules a series of fund-raisers with his trial over.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/06/03/us/trump-biden-election/welcome-to-the-post-conviction-campaign
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/rules-banning-electron
 **U.C. Strike to Expand to Three More Campuses**\
 `Graduate teaching assistants and researchers plan to walk off the job at U.C. Santa Barbara, U.C. San Diego and U.C. Irvine, a week before final exams.`\
 https://nytimes.com/2024/06/03/us/uc-strike-expands.html
-
-**Confidential correspondence and interviews give a look inside the collapse of Hunter Biden’s plea deal.**\
-`An examination of confidential correspondence and interviews with those close to Mr. Biden and lawyers involved in the case show how the agreement ultimately fell apart amid schisms and withering external pressures.`\
-https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/confidential-correspondence-and-interviews-give-a-look-inside-the-collapse-of-hunter-bidens-plea-deal
 

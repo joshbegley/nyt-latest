@@ -1,3 +1,7 @@
+**Hunter Biden and his financial supporters are squeezed for money as his trial begins.**\
+`By Glenn Thrush and Mattathias Schwartz`\
+https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/hunter-biden-and-his-financial-supporters-are-squeezed-for-money-as-his-trial-begins
+
 **Trump schedules a series of fund-raisers with his trial over.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/06/03/us/trump-biden-election/welcome-to-the-post-conviction-campaign
