@@ -1,3 +1,11 @@
+**Jacob Zuma Gets His Revenge on South African Party That Shunned Him**\
+`A new party led by Mr. Zuma, a former president forced out over corruption allegations, helped ensure that the African National Congress fell short of an outright majority for the first time since the end of apartheid.`\
+https://nytimes.com/2024/06/03/world/africa/south-africa-jacob-zuma.html
+
+**The Incoming Mexican President Remains Linked to Her Predecessor**\
+`Scheinbaum retains AMLO’s core populist worldview.`\
+https://nytimes.com/live/2024/05/28/opinion/thepoint/scheinbaum-amlo-feminism
+
 **Tuesday Briefing: Mexico Elects Its First Woman President**\
 `Also, the U.S. is poised to change its asylum policy.`\
 https://nytimes.com/2024/06/03/world/asia/mexico-president-biden-asylum-israel-asia.html
