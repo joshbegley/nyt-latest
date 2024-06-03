@@ -1,3 +1,11 @@
+**Trump and R.N.C. Announce $141 Million Haul in May**\
+`The total, which was fueled in part by his criminal conviction and cannot be confirmed until filings this month, is likely to help Donald Trump close the cash gap with President Biden.`\
+https://nytimes.com/2024/06/03/us/politics/trump-fundraising-conviction.html
+
+**What Ukraine Has Lost**\
+`We measured every town, street and building blown apart in Ukraine to show the first comprehensive picture of where people can’t return home.`\
+https://nytimes.com/interactive/2024/06/03/world/europe/ukraine-destruction.html
+
 **Netanyahu’s Far-Right Partners Reject Cease-Fire Compromise**\
 `Two coalition members threated to topple Israel’s government if Prime Minister Benjamin Netanyahu accepted a deal for a cease-fire and the release of hostages that stopped short of Hamas’s total destruction.`\
 https://nytimes.com/2024/06/03/world/middleeast/israel-hamas-netanyahu-ceasefire.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/06/03/world/israel-gaza-war-hamas/israeli-airstrik
 **When Anti-Fur Protesters Are at the Front Door**\
 `The designer Marc Jacobs said he was bullied into renouncing fur — which he claims his brand stopped using in 2018 — after activists targeted his employees.`\
 https://nytimes.com/2024/06/03/style/marc-jacobs-anti-fur-protesters.html
-
-**Tuesday Briefing: Mexico Elects Its First Woman President**\
-`Also, the U.S. is poised to change its asylum policy.`\
-https://nytimes.com/2024/06/03/world/asia/mexico-president-biden-asylum-israel-asia.html
-
-**Mexico’s New President Has a Daunting Job: Stop the Blood Bath**\
-`Claudia Sheinbaum has shown she can take a pragmatic approach to crime.`\
-https://nytimes.com/2024/06/03/opinion/mexico-new-president-violence.html
 

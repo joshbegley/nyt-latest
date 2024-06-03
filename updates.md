@@ -1,3 +1,11 @@
+**Trump and R.N.C. Announce $141 Million Haul in May**\
+`The total, which was fueled in part by his criminal conviction and cannot be confirmed until filings this month, is likely to help Donald Trump close the cash gap with President Biden.`\
+https://nytimes.com/2024/06/03/us/politics/trump-fundraising-conviction.html
+
+**What Ukraine Has Lost**\
+`We measured every town, street and building blown apart in Ukraine to show the first comprehensive picture of where people can’t return home.`\
+https://nytimes.com/interactive/2024/06/03/world/europe/ukraine-destruction.html
+
 **Netanyahu’s Far-Right Partners Reject Cease-Fire Compromise**\
 `Two coalition members threated to topple Israel’s government if Prime Minister Benjamin Netanyahu accepted a deal for a cease-fire and the release of hostages that stopped short of Hamas’s total destruction.`\
 https://nytimes.com/2024/06/03/world/middleeast/israel-hamas-netanyahu-ceasefire.html
