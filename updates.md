@@ -1,3 +1,7 @@
+**Harvard’s Faculty of Arts and Sciences Will No Longer Require Diversity Statements**\
+`Instead, the university’s largest faculty division will require applicants to describe their “efforts to strengthen academic communities,” according to an email.`\
+https://nytimes.com/2024/06/03/us/harvard-diversity-statements.html
+
 **Trump’s Second Term Would Be Even More Corrupt and Vindictive Than His First**\
 `Republican whining about a weaponized justice system is a projection.`\
 https://nytimes.com/2024/06/03/opinion/trumps-weaponized-justice-system.html
