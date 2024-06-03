@@ -1,3 +1,11 @@
+**A Mazda, a Gift Bag of $120,000 and a Dismissed Juror**\
+`A stranger dropped off cash at a juror’s house and offered more if she voted to acquit defendants charged with defrauding federal food programs.`\
+https://nytimes.com/2024/06/03/us/jury-bribe-feeding-our-future-fraud.html
+
+**Margot Benacerraf, Award-Winning Venezuelan Documentarian, Dies at 97**\
+`She made only two films, but her “Araya,” a rumination on the daily rituals of salt-mine laborers, became an enduring work of Latin American cinema.`\
+https://nytimes.com/2024/06/03/movies/margot-benacerraf-dead.html
+
 **Book Club: Come Discuss ‘Headshot,’ by Rita Bullwinkel**\
 `For The Book Review Podcast’s June book club, we’ll talk about “Headshot,” Rita Bullwinkel’s fierce and searching novel about the high-octane world of youth women’s boxing.`\
 https://nytimes.com/2024/06/03/books/review/headshot-rita-bullwinkel-book-club.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/03/arts/music/angelica-garcia-gemelo.html
 **Hunter Biden will also face trial in September, over a scheme to evade federal taxes on millions in income from foreign businesses.**\
 `By Glenn Thrush and Michael S. Schmidt`\
 https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/hunter-biden-will-also-face-trial-in-september-over-a-scheme-to-evade-federal-taxes-on-millions-in-income-from-foreign-businesse
-
-**Price Pendulum Swings Back to Discounts, Within Limits**\
-`The pandemic shopping boom led many retailers to widen profit margins by charging more. Now value is the watchword as consumers grow choosier.`\
-https://nytimes.com/2024/06/03/business/economy/retailers-prices-discounts-inflation.html
-
-**Car Deals Vanished During the Pandemic. They’re Coming Back.**\
-`Automakers and dealers are starting to offer discounts, low-interest loans and other incentives to lure buyers as the supply of cars grows.`\
-https://nytimes.com/2024/06/03/business/economy/new-car-deals-incentives-interest-rates.html
 
