@@ -1,3 +1,7 @@
+**Floods Break Dams and Submerge Highways in Southern Germany**\
+`Several towns declared states of emergency and evacuated citizens as water submerged streets and highways and derailed a high-speed train.`\
+https://nytimes.com/2024/06/03/world/europe/germany-floods.html
+
 **Holocaust Museums Debate What to Say About the Israel-Hamas War**\
 `Students are bringing up antisemitic tropes and asking survivors and docents: What is Palestine? Is there a genocide in Gaza?`\
 https://nytimes.com/2024/06/03/us/holocaust-museums-israel-hamas-war.html
