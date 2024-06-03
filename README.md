@@ -1,3 +1,7 @@
+**Puerto Rico Governor Loses Primary to Former Ally**\
+`Jenniffer González-Colón, the island’s nonvoting member of Congress, defeated Gov. Pedro R. Pierluisi four years after they appeared on the same ticket.`\
+https://nytimes.com/2024/06/02/us/puerto-rico-governor-primary-election.html
+
 **Prosecutor Drops Murder Charges Against Minnesota Trooper Amid Pushback**\
 `The prosecution of Ryan Londregan, a white Minnesota state trooper who fatally shot a Black motorist last year, sparked rare bipartisan outrage.`\
 https://nytimes.com/2024/06/02/us/minnesota-charges-trooper-londregan.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/06/02/world/americas/results-mexico-preside
 **Lara Trump, R.N.C. Leader, Denounces Larry Hogan for Accepting Trump Verdict**\
 `Ms. Trump refused to say whether the Republicans should support Mr. Hogan, a prized recruit who gave the party a chance of picking up a Democratic Senate seat in Maryland.`\
 https://nytimes.com/2024/06/02/us/politics/lara-trump-larry-hogan.html
-
-**Rupert Murdoch Marries for the Fifth Time**\
-`Mr. Murdoch, the 93-year-old media mogul, married Elena Zhukova, a retired molecular biologist, Saturday at Moraga, his Bel Air vineyard estate in Los Angeles.`\
-https://nytimes.com/2024/06/02/style/rupert-murdoch-wedding.html
 
