@@ -1,3 +1,7 @@
+**Netanyahu’s Far-Right Partners Reject Cease-Fire Compromise**\
+`Two coalition members threated to topple Israel’s government if Prime Minister Benjamin Netanyahu accepted a deal for a cease-fire and the release of hostages that stopped short of Hamas’s total destruction.`\
+https://nytimes.com/2024/06/03/world/middleeast/israel-hamas-netanyahu-ceasefire.html
+
 **Research Finds Significant Racial Disparities in Medicaid Re-enrollment**\
 `Among those who could not complete the process of renewing their Medicaid coverage, Black and Hispanic Americans were twice as likely as white people to lose their health insurance, a new study found.`\
 https://nytimes.com/2024/06/03/us/politics/medicaid-reenrollment-black-hispanic.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/03/world/asia/mexico-president-biden-asylum-israel-a
 **Mexico’s New President Has a Daunting Job: Stop the Blood Bath**\
 `Claudia Sheinbaum has shown she can take a pragmatic approach to crime.`\
 https://nytimes.com/2024/06/03/opinion/mexico-new-president-violence.html
-
-**Jacob Zuma Gets His Revenge on South African Party That Shunned Him**\
-`A new party led by Mr. Zuma, a former president forced out over corruption allegations, helped ensure that the African National Congress fell short of an outright majority for the first time since the end of apartheid.`\
-https://nytimes.com/2024/06/03/world/africa/south-africa-jacob-zuma.html
 
