@@ -1,3 +1,7 @@
+**For Her Third Album, Angélica Garcia Adds Her First Language: Spanish**\
+`“Gemelo” is a largely electronic exploration of all kinds of dualities: “With any music I make from now on, I’m going to be writing in both languages.”`\
+https://nytimes.com/2024/06/03/arts/music/angelica-garcia-gemelo.html
+
 **Hunter Biden will also face trial in September, over a scheme to evade federal taxes on millions in income from foreign businesses.**\
 `By Glenn Thrush and Michael S. Schmidt`\
 https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/hunter-biden-will-also-face-trial-in-september-over-a-scheme-to-evade-federal-taxes-on-millions-in-income-from-foreign-businesse
