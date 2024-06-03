@@ -1,3 +1,11 @@
+**A Senator’s Son Fights for Political Survival**\
+`This year’s political landscape is consumed with trials and powerful family entanglements.`\
+https://nytimes.com/2024/06/03/us/politics/menendez-nj-primary-election.html
+
+**Trump Almost Certainly Won’t Go on Trial in Georgia This Year. Here’s Why.**\
+`The state appeals court tentatively set oral arguments for October on whether the prosecutor in the Georgia election interference case should be disqualified.`\
+https://nytimes.com/2024/06/03/us/trump-fani-willis-georgia-appeal.html
+
 **Trump and R.N.C. Announce $141 Million Haul in May**\
 `The total, which was fueled in part by his criminal conviction and cannot be confirmed until filings this month, is likely to help Donald Trump close the cash gap with President Biden.`\
 https://nytimes.com/2024/06/03/us/politics/trump-fundraising-conviction.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/03/us/trump-verdict-felony-convictions.html
 **Biden Plans Asylum Restrictions for Migrants**\
 `Also, Mexico elected its first woman president. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/06/03/briefing/biden-border-restrictions-mexico-president.html
-
-**Israeli airstrikes on Syria kill a general from a branch Iran’s Revolutionary Guards.**\
-`By Farnaz Fassihi`\
-https://nytimes.com/live/2024/06/03/world/israel-gaza-war-hamas/israeli-airstrikes-on-syria-kill-a-general-from-a-branch-irans-revolutionary-guards
-
-**When Anti-Fur Protesters Are at the Front Door**\
-`The designer Marc Jacobs said he was bullied into renouncing fur — which he claims his brand stopped using in 2018 — after activists targeted his employees.`\
-https://nytimes.com/2024/06/03/style/marc-jacobs-anti-fur-protesters.html
 
