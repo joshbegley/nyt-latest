@@ -1,3 +1,11 @@
+**Trump seems more focused on fund-raisers than campaign events.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/06/03/us/trump-biden-election/welcome-to-the-post-conviction-campaign
+
+**Leading up to the trial, President Biden has chosen to pull his son closer.**\
+`By Katie Rogers`\
+https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/leading-up-to-the-trial-president-biden-has-chosen-to-pull-his-son-closer
+
 **Larry Bensky, a Fixture of Left-Wing Radio, Is Dead at 87**\
 `A self-described activist-journalist, he was for many years the national affairs correspondent for the community-focused Pacifica network.`\
 https://nytimes.com/2024/06/03/business/media/larry-bensky-dead.html

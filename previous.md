@@ -1,3 +1,11 @@
+**Trump seems more focused on fund-raisers than campaign events.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/06/03/us/trump-biden-election/welcome-to-the-post-conviction-campaign
+
+**Leading up to the trial, President Biden has chosen to pull his son closer.**\
+`By Katie Rogers`\
+https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/leading-up-to-the-trial-president-biden-has-chosen-to-pull-his-son-closer
+
 **Larry Bensky, a Fixture of Left-Wing Radio, Is Dead at 87**\
 `A self-described activist-journalist, he was for many years the national affairs correspondent for the community-focused Pacifica network.`\
 https://nytimes.com/2024/06/03/business/media/larry-bensky-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/03/us/uc-strike-expands.html
 **Confidential correspondence and interviews give a look inside the collapse of Hunter Biden’s plea deal.**\
 `An examination of confidential correspondence and interviews with those close to Mr. Biden and lawyers involved in the case show how the agreement ultimately fell apart amid schisms and withering external pressures.`\
 https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/confidential-correspondence-and-interviews-give-a-look-inside-the-collapse-of-hunter-bidens-plea-deal
-
-**Here are the gun charges Hunter Biden faces.**\
-`The heart of the federal case against the president’s son — that he lied about drug use on a federal form when he purchased a handgun — is not typically the basis for a stand-alone prosecution.`\
-https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/here-are-the-gun-charges-hunter-biden-faces
-
-**Here’s the latest on the trial.**\
-`By Glenn Thrush`\
-https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/heres-the-latest-on-the-trial
 
