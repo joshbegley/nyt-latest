@@ -1,3 +1,7 @@
+**Senator Menendez, on Trial, Files to Run for Re-election as an Independent**\
+`An aide dropped off paperwork in Trenton, N.J., while the senator was in a federal courthouse in Manhattan. He has until the middle of August to withdraw.`\
+https://nytimes.com/2024/06/03/nyregion/senator-robert-menendez-independent-campaign.html
+
 **The Incoming Mexican President Remains Linked to her Predecessor**\
 `Scheinbaum retains AMLO’s core populist worldview.`\
 https://nytimes.com/live/2024/05/28/opinion/thepoint/scheinbaum-amlo-feminism
