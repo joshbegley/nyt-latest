@@ -1,3 +1,7 @@
+**Toyota and Other Japanese Carmakers Say They Mishandled Safety Tests**\
+`The Japanese authorities had told the companies to conduct investigations into their compliance with national standards for safety and other issues.`\
+https://nytimes.com/2024/06/03/business/japan-toyota-testing-investigation.html
+
 **Is Pants Sizing Sexist?**\
 `Our critic examines the history of women’s trousers and “the sheer ridiculousness of the current state of sizing.”`\
 https://nytimes.com/2024/06/03/style/mens-pants-women-sizes.html
