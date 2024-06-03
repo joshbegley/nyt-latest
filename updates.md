@@ -1,3 +1,7 @@
+**In Delhi’s Parched Slums, Life Hangs on a Hose and a Prayer**\
+`A heat wave has left water in short supply across India’s capital region. The poorest are left to crowd around tankers to get whatever they can.`\
+https://nytimes.com/2024/06/03/world/asia/india-delhi-heat-water.html
+
 **Western U.S. Braces for Excessively High Temperatures as Heat Dome Arrives**\
 `Record-breaking temperatures that have contributed to deaths and power failures in Mexico are forecast to move north this week.`\
 https://nytimes.com/2024/06/03/us/excessive-heat-wave-forecast-texas-california.html
