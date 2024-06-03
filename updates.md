@@ -1,3 +1,7 @@
+**When Anti-Fur Protesters Are at the Front Door**\
+`The designer Marc Jacobs said he was bullied into renouncing fur — which he claims his brand stopped using in 2018 — after activists targeted his employees.`\
+https://nytimes.com/2024/06/03/style/marc-jacobs-anti-fur-protesters.html
+
 **Jacob Zuma Gets His Revenge on South African Party That Shunned Him**\
 `A new party led by Mr. Zuma, a former president forced out over corruption allegations, helped ensure that the African National Congress fell short of an outright majority for the first time since the end of apartheid.`\
 https://nytimes.com/2024/06/03/world/africa/south-africa-jacob-zuma.html
