@@ -1,3 +1,7 @@
+**Taylor Swift Is No. 1 Again, With Little Competition on the Way**\
+`“The Tortured Poets Department” earns a sixth week atop the Billboard 200, while the latest from Twenty One Pilots opens at No. 3 with big numbers for a rock album.`\
+https://nytimes.com/2024/06/03/arts/music/taylor-swift-tortured-poets-six-weeks-chart.html
+
 **For Her Third Album, Angélica Garcia Adds Her First Language: Spanish**\
 `“Gemelo” is a largely electronic exploration of all kinds of dualities: “With any music I make from now on, I’m going to be writing in both languages.”`\
 https://nytimes.com/2024/06/03/arts/music/angelica-garcia-gemelo.html
