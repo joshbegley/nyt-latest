@@ -1,5 +1,9 @@
 **Washington Post Editor Sally Buzbee to Step Down**\
 `Matt Murray, the former editor in chief of The Wall Street Journal, will take her place.`\
+https://nytimes.com/2024/06/02/business/media/washington-post-sally-buzbee-step-down.html
+
+**Washington Post Editor Sally Buzbee to Step Down**\
+`Matt Murray, the former editor in chief of The Wall Street Journal, will take her place.`\
 https://nytimes.com/2024/06/02/business/media/washington-post-editor-sally-buzbee-to-step-down.html
 
 **A Sticking Point in Paramount and Skydance Talks: Who Pays For a Lawsuit?**\
