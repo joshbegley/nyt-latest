@@ -1,3 +1,7 @@
+**Israeli airstrikes on Syria kill a general from a branch Iran’s Revolutionary Guards.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/06/03/world/israel-gaza-war-hamas/israeli-airstrikes-on-syria-kill-a-general-from-a-branch-irans-revolutionary-guards
+
 **When Anti-Fur Protesters Are at the Front Door**\
 `The designer Marc Jacobs said he was bullied into renouncing fur — which he claims his brand stopped using in 2018 — after activists targeted his employees.`\
 https://nytimes.com/2024/06/03/style/marc-jacobs-anti-fur-protesters.html

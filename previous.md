@@ -1,3 +1,7 @@
+**Israeli airstrikes on Syria kill a general from a branch Iran’s Revolutionary Guards.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/06/03/world/israel-gaza-war-hamas/israeli-airstrikes-on-syria-kill-a-general-from-a-branch-irans-revolutionary-guards
+
 **When Anti-Fur Protesters Are at the Front Door**\
 `The designer Marc Jacobs said he was bullied into renouncing fur — which he claims his brand stopped using in 2018 — after activists targeted his employees.`\
 https://nytimes.com/2024/06/03/style/marc-jacobs-anti-fur-protesters.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/03/world/americas/mexico-election-morena-results.htm
 **Consumer Bureau to Create ‘Corporate Offender’ Registry**\
 `Most companies will be required to report government and court orders penalizing them for consumer protection violations.`\
 https://nytimes.com/2024/06/03/business/consumer-bureau-corporate-offender-registry.html
-
-**Transcript of Trump Manhattan Trial, May 30, 2024**\
-`New York State’s court released transcripts from each day of the Manhattan criminal trial of former President Donald J. Trump, who was convicted on 34 counts of falsifying business records to cover up a sex scandal that threatened to derail his 2016 presidential campaign.`\
-https://nytimes.com/interactive/2024/06/03/nyregion/trump-hush-money-trial-transcript-may-30.html
 
