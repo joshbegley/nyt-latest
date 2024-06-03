@@ -1,3 +1,7 @@
+**Biden Expected to Sign Executive Order Restricting Asylum**\
+`The move, expected on Tuesday, would allow the president to temporarily seal the border and suspend longtime protections for asylum seekers in the United States.`\
+https://nytimes.com/2024/06/03/us/politics/biden-immigration-asylum-order.html
+
 **A Guide to Managing Covid This Summer**\
 `Experts say cases could rise in the coming weeks. Here’s what to know about symptoms, testing and treatment.`\
 https://nytimes.com/2024/06/03/well/live/covid-symptoms-treatment-flirt-variants.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/hunter-biden-and-his-f
 **Trump schedules a series of fund-raisers with his trial over.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/06/03/us/trump-biden-election/welcome-to-the-post-conviction-campaign
-
-**Leading up to the trial, President Biden has chosen to pull his son closer.**\
-`By Katie Rogers`\
-https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/leading-up-to-the-trial-president-biden-has-chosen-to-pull-his-son-closer
 
