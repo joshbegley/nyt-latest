@@ -1,3 +1,15 @@
+**Terry Robards, 84, Dies; Lifted Fine Wines in America as a Times Critic**\
+`In columns and notably “The New York Times Book of Wine,” he introduced Americans to European and premium domestic varieties in the 1970s and ’80s.`\
+https://nytimes.com/2024/06/03/dining/terry-robards-dead.html
+
+**Donald Trump as Felon: The Fallout**\
+`Readers counter his supporters’ criticism of the verdict and cite his history of fraudulent behavior. Also: A plea for shorter campaigns; inaction on guns; Elon Musk.`\
+https://nytimes.com/2024/06/03/opinion/donald-trump-conviction.html
+
+**12-Year-Old Boy Is Charged in Killing of 14-Year-Old Cousin in Brooklyn**\
+`The 12-year-old boy was arrested on Sunday night, hours after the police said he shot and killed another boy in an apartment in the Brownsville neighborhood.`\
+https://nytimes.com/2024/06/03/nyregion/brooklyn-teenager-shot-dead.html
+
 **Mexico Joins List of Latin American Nations That Have Elected Female Presidents**\
 `In contrast to the United States, the region has had more than a dozen female leaders, many in democracies that were once under the sway of authoritarian governments.`\
 https://nytimes.com/2024/06/03/world/americas/mexico-women-president-latin-america.html

@@ -1,3 +1,15 @@
+**Terry Robards, 84, Dies; Lifted Fine Wines in America as a Times Critic**\
+`In columns and notably “The New York Times Book of Wine,” he introduced Americans to European and premium domestic varieties in the 1970s and ’80s.`\
+https://nytimes.com/2024/06/03/dining/terry-robards-dead.html
+
+**Donald Trump as Felon: The Fallout**\
+`Readers counter his supporters’ criticism of the verdict and cite his history of fraudulent behavior. Also: A plea for shorter campaigns; inaction on guns; Elon Musk.`\
+https://nytimes.com/2024/06/03/opinion/donald-trump-conviction.html
+
+**12-Year-Old Boy Is Charged in Killing of 14-Year-Old Cousin in Brooklyn**\
+`The 12-year-old boy was arrested on Sunday night, hours after the police said he shot and killed another boy in an apartment in the Brownsville neighborhood.`\
+https://nytimes.com/2024/06/03/nyregion/brooklyn-teenager-shot-dead.html
+
 **Mexico Joins List of Latin American Nations That Have Elected Female Presidents**\
 `In contrast to the United States, the region has had more than a dozen female leaders, many in democracies that were once under the sway of authoritarian governments.`\
 https://nytimes.com/2024/06/03/world/americas/mexico-women-president-latin-america.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/03/business/economy/new-car-deals-incentives-interes
 **Electric Cars Are Suddenly Becoming Affordable**\
 `More efficient manufacturing, falling battery costs and intense competition are lowering sticker prices for battery-powered models to within striking distance of gasoline cars.`\
 https://nytimes.com/2024/06/03/business/electric-cars-becoming-affordable.html
-
-**How Many Literary A.I. Characters and Plots Do You Know?**\
-`Some science fiction authors have been using the concept of artificial intelligence in their books for decades. Try this short quiz to see how many works you remember.`\
-https://nytimes.com/interactive/2024/06/03/books/review/ai-fiction-quiz.html
-
-**Adventures in Space and Time With Stockhausen**\
-`It is nearly impossible to stage Stockhausen’s seven-opera cycle “Licht.” But “Inside Light” brings a portion of it to the Park Avenue Armory.`\
-https://nytimes.com/2024/06/03/arts/music/stockhausen-inside-light-park-avenue-armory.html
-
-**A Climate Scientist Is Voted President of an Oil Country. Now What?**\
-`Claudia Sheinbaum, Mexico’s next leader, is an academic and a politician. Here’s what her track record reveals.`\
-https://nytimes.com/2024/06/03/climate/claudia-sheinbaum-climate-scientist-mexico.html
 
