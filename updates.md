@@ -1,3 +1,7 @@
+**Mexico Elects Its First Female President**\
+`Claudia Sheinbaum was projected to win the presidential race in a landslide victory, which was a vote of confidence to continue the leftist policies of her predecessor, Andrés Manuel López Obrador.`\
+https://nytimes.com/video/world/americas/100000009500580/mexico-elects-its-first-female-president.html
+
 **Arrest Threatens Nepal’s Standing as South Asia’s Model for Free Speech**\
 `A media executive was arrested after his company published critical reports about a powerful government minister.`\
 https://nytimes.com/2024/06/03/world/asia/nepal-media-arrest.html
