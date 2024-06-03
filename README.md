@@ -1,40 +1,21 @@
-**Toyota and Other Japanese Carmakers Say They Mishandled Safety Tests**\
-`The Japanese authorities had told the companies to conduct investigations into their compliance with national standards for safety and other issues.`\
-https://nytimes.com/2024/06/03/business/japan-toyota-testing-investigation.html
+**How Trump’s Conviction Could Reshape the Election**\
+`The guilty verdict in his Manhattan criminal trial is set to become a key piece in the 2024 campaign.`\
+https://nytimes.com/2024/06/03/podcasts/the-daily/how-trumps-conviction-could-reshape-the-election.html
 
-**Is Pants Sizing Sexist?**\
-`Our critic examines the history of women’s trousers and “the sheer ridiculousness of the current state of sizing.”`\
-https://nytimes.com/2024/06/03/style/mens-pants-women-sizes.html
+**Mexico Elects First Female President, and Hunter Biden Goes on Trial**\
+`Plus, Simone Biles sets a record.`\
+https://nytimes.com/2024/06/03/podcasts/mexico-president-hunter-biden.html
 
-**On the Pleasures and Risks of Rereading a Beloved Book**\
-`At the very least, it’s a chance to remember who we were when we first experienced it.`\
-https://nytimes.com/2024/06/03/opinion/rereading-beloved-books.html
+**Wordle Review No. 1,081, June 4, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/03/crosswords/wordle-review-1081.html
 
-**What Are Eco-Friendly Ways to Control Backyard Bugs?**\
-`Meet the “bucket of doom” and other methods to manage mosquitoes and ticks.`\
-https://nytimes.com/2024/06/03/climate/ask-nyt-bug-control.html
+**The Connections Companion No. 359, June 4, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/03/crosswords/connections-companion-359.html
 
-**After the Verdict, Both Campaigns Brace for Its Impact**\
-`Even a modest shift toward Biden would be significant.`\
-https://nytimes.com/live/2024/05/28/opinion/thepoint/biden-trump-verdict-polls
+**The Israeli military’s operation in Rafah risks upsetting a delicate peace with Egypt, a pillar of its national security for decades.**\
+`By Vivian Yee and Emad Mekay`\
+https://nytimes.com/live/2024/06/03/world/israel-gaza-war-hamas/the-israeli-militarys-operation-in-rafah-risks-upsetting-a-delicate-peace-with-egypt-a-pillar-of-its-national-security-for-decad
 
-**Time Flies When You’re Being Convicted**\
-`Is it still true that there’s no such thing as bad publicity?`\
-https://nytimes.com/2024/06/03/opinion/trump-trial-alito-flags.html
-
-**Gold Bars, Steakhouse Dinners and Fast Talkers: The Menendez Trial**\
-`The trial of Senator Robert Menendez of New Jersey could last another month in federal court in Lower Manhattan.`\
-https://nytimes.com/2024/06/03/nyregion/menendez-trial-what-to-know.html
-
-**Fauci to Face Grilling by Republican Committee on Covid Origins**\
-`Over 15 months, a House panel has not linked Dr. Fauci to the beginnings of the pandemic. But it found emails suggesting aides were skirting public records laws.`\
-https://nytimes.com/2024/06/03/science/fauci-hearing-covid-origins.html
-
-**Why the Pandemic Probably Started in a Lab, in 5 Key Points**\
-`The world must not continue to bear the intolerable risks of research with the potential to cause pandemics.`\
-https://nytimes.com/interactive/2024/06/03/opinion/covid-lab-leak.html
-
-**Another Milestone in Mexico: Its First Jewish President**\
-`Claudia Sheinbaum was born to Jewish parents, but she has played down her heritage on the campaign trail.`\
-https://nytimes.com/2024/06/03/world/americas/claudia-sheinbaum-jewish-mexico-president.html
-
+**The remains of a man who was believed to be a hostage are identified in Israel, and other news.**\
