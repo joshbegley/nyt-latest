@@ -1,3 +1,11 @@
+**Quote of the Day: Tired of Chaos and Leaving House by the Dozens**\
+`Quotation of the Day for Monday, June 3, 2024.`\
+https://nytimes.com/2024/06/02/pageoneplus/quote-of-the-day-tired-of-chaos-and-leaving-house-by-the-dozens.html
+
+**Puerto Rico Governor Loses Primary to Former Ally**\
+`Jenniffer González-Colón, the island’s nonvoting member of Congress, defeated Gov. Pedro R. Pierluisi four years after they appeared on the same ticket.`\
+https://nytimes.com/2024/06/02/us/puerto-rico-governor-primary-election.html
+
 **Sally Buzbee, Washington Post Editor, to Leave Role**\
 `Matt Murray, the former editor in chief of The Wall Street Journal, will take her place temporarily.`\
 https://nytimes.com/2024/06/02/business/media/washington-post-sally-buzbee-step-down.html
