@@ -1,3 +1,7 @@
+**Mexico’s New President Has a Daunting Job: Stop the Blood Bath**\
+`Claudia Sheinbaum has shown she can take a pragmatic approach to crime.`\
+https://nytimes.com/2024/06/03/opinion/mexico-new-president-violence.html
+
 **Jacob Zuma Gets His Revenge on South African Party that Shunned Him**\
 `A new party led by Mr. Zuma, a former president forced out over corruption allegations, helped ensure that the African National Congress fell short of an outright majority for the first time since the end of apartheid.`\
 https://nytimes.com/2024/06/03/world/africa/south-africa-jacob-zuma.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/03/style/rupert-murdoch-wedding-sneakers.html
 **An Israeli military official said he expected ‘difficult questions’ about how the hostages died.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2024/06/03/world/israel-gaza-war-hamas/an-israeli-military-official-said-he-expected-difficult-questions-about-how-the-hostages-died
-
-**Stolen Remains Found in Plastic Bag Traced to Woman Born 160 Years Ago**\
-`Skeletal remains found in Oxnard, Calif., in 1985 have been identified as those of Gertrude Elliott-Littlehale, a musician whose grave was desecrated after her death in 1915.`\
-https://nytimes.com/2024/06/03/us/skeletal-remains-plastic-bag-identified-1864.html
 
