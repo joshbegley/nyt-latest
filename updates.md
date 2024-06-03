@@ -1,3 +1,7 @@
+**A Crypto Bull’s Big Tax Settlement**\
+`The technology company MicroStrategy and its founder, Michael Saylor, agreed to a $40 million deal to end a lawsuit accusing him of evading income tax.`\
+https://nytimes.com/2024/06/03/business/dealbook/saylor-microstrategy-tax-settlement.html
+
 **In Delhi’s Parched Slums, Life Hangs on a Hose and a Prayer**\
 `A heat wave has left water in short supply across India’s capital region. The poorest are left to crowd around tankers to get whatever they can.`\
 https://nytimes.com/2024/06/03/world/asia/india-delhi-heat-water.html
