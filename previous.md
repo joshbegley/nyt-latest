@@ -1,5 +1,5 @@
-**Harvard’s Faculty of Arts and Sciences Will No Longer Require Diversity Statements**\
-`Instead, the university’s largest faculty division will require applicants to describe their “efforts to strengthen academic communities,” according to an email.`\
+**Harvard’s Largest Faculty Division Will No Longer Require Diversity Statements**\
+`Instead, the Faculty of Arts and Sciences will require applicants to describe their “efforts to strengthen academic communities,” according to an email.`\
 https://nytimes.com/2024/06/03/us/harvard-diversity-statements.html
 
 **Breeder Ordered to Pay $35 Million for Mistreating Beagles**\
