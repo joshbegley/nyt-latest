@@ -1,3 +1,7 @@
+**Monday Briefing**\
+`South Africa rejects the party that ended apartheid.`\
+https://nytimes.com/2024/06/03/briefing/south-africa-mexico-election.html
+
 **A Surging Hard Right Stumbles Over Its Own Divisions**\
 `Elections starting this week for the European Parliament could leave far-right parties with more power than ever, but also expose the fissures among them.`\
 https://nytimes.com/2024/06/03/world/europe/european-union-parliament-election-far-right.html

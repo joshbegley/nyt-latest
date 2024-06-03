@@ -1,3 +1,7 @@
+**Monday Briefing**\
+`South Africa rejects the party that ended apartheid.`\
+https://nytimes.com/2024/06/03/briefing/south-africa-mexico-election.html
+
 **A Surging Hard Right Stumbles Over Its Own Divisions**\
 `Elections starting this week for the European Parliament could leave far-right parties with more power than ever, but also expose the fissures among them.`\
 https://nytimes.com/2024/06/03/world/europe/european-union-parliament-election-far-right.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/02/crosswords/wordle-review-1080.html
 **Philadelphia’s University of the Arts Announces Sudden Closing**\
 `The institution’s financial woes were widely known, but the announcement surprised students and faculty members.`\
 https://nytimes.com/2024/06/02/arts/design/philadelphias-arts-university-closing.html
-
-**Hot Off the Presses**\
-`Alana Platt makes her New York Times debut.`\
-https://nytimes.com/2024/06/02/crosswords/daily-puzzle-2024-06-03.html
 
