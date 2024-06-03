@@ -1,3 +1,7 @@
+**Mexico Elects Claudia Sheinbaum**\
+`We explain why so many Mexican citizens are happy with their country’s direction.`\
+https://nytimes.com/2024/06/03/briefing/mexico-election-claudia-sheinbaum-amlo.html
+
 **The Israeli military’s operation in Rafah risks upsetting a delicate peace with Egypt, a pillar of its national security for decades.**\
 `By Vivian Yee and Emad Mekay`\
 https://nytimes.com/live/2024/06/03/world/israel-gaza-war-hamas/the-israeli-militarys-operation-in-rafah-risks-upsetting-a-delicate-peace-with-egypt-a-pillar-of-its-national-security-for-decad
