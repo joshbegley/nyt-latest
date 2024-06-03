@@ -1,3 +1,7 @@
+**House Republicans, flailing in their drive to impeach Biden, look to related targets.**\
+`Lacking evidence or the votes to support impeachment charges against President Biden, Republicans are considering criminal referrals against him and his allies instead.`\
+https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/house-republicans-flailing-in-their-drive-to-impeach-biden-look-to-related-targets
+
 **Hunter Biden’s family members joined him in court after a weekend together.**\
 `By Eileen Sullivan`\
 https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/hunter-bidens-family-members-joined-him-in-court-after-a-weekend-together
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/03/business/china-mi6-espionage-britain-spying.html
 **How common is a prosecution for the gun charges Hunter Biden faces?**\
 `By Glenn Thrush`\
 https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/how-common-is-a-prosecution-for-the-gun-charges-hunter-biden-faces
-
-**GameStop Stock Surges Again on Social Media Buzz**\
-`A post on a long-dormant Reddit account suggested the trader known as Roaring Kitty had amassed a large stake in the video game retailer.`\
-https://nytimes.com/2024/06/03/business/dealbook/gamestop-stock-roaring-kitty.html
 

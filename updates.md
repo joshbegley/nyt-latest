@@ -1,3 +1,7 @@
+**House Republicans, flailing in their drive to impeach Biden, look to related targets.**\
+`Lacking evidence or the votes to support impeachment charges against President Biden, Republicans are considering criminal referrals against him and his allies instead.`\
+https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/house-republicans-flailing-in-their-drive-to-impeach-biden-look-to-related-targets
+
 **Hunter Biden’s family members joined him in court after a weekend together.**\
 `By Eileen Sullivan`\
 https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/hunter-bidens-family-members-joined-him-in-court-after-a-weekend-together
