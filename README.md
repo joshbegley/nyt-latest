@@ -1,5 +1,5 @@
 **A Sticking Point in Paramount and Skydance Talks: Who Pays For a Lawsuit?**\
-`A special committee of Paramount’s board of directors supports a deal with Skydance, a studio that has increased its offer in recent days. But the deal isn’t done yet.`\
+`A special committee of Paramount’s board of directors supports a merger with Skydance, a studio that has increased its offer in recent days. But the deal isn’t done yet.`\
 https://nytimes.com/2024/06/02/business/paramount-skydance-talks-lawsuit.html
 
 **Wordle Review No. 1,080, June 3, 2024**\
