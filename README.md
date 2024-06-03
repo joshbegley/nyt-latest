@@ -1,3 +1,7 @@
+**Breeder Ordered to Pay $35 Million for Mistreating Beagles**\
+`Inotiv, whose subsidiaries pleaded guilty to two criminal counts, agreed to pay the record-setting amount. More than 4,000 beagles were rescued in 2022 from its facility in Virginia, where many were ill and injured.`\
+https://nytimes.com/2024/06/03/us/envigo-beagles-abuse-breeder-guilty.html
+
 **Trump’s Whining About a Weaponized Justice System Is a Projection**\
 `His second term would be even more corrupt and vindictive than his first.`\
 https://nytimes.com/2024/06/03/opinion/trumps-weaponized-justice-system.html
@@ -27,14 +31,10 @@ https://nytimes.com/2024/06/03/us/politics/trump-fundraising-conviction.html
 https://nytimes.com/interactive/2024/06/03/world/europe/ukraine-destruction.html
 
 **Netanyahu’s Far-Right Partners Reject Cease-Fire Compromise**\
-`Two coalition members threated to topple Israel’s government if Prime Minister Benjamin Netanyahu accepted a deal for a cease-fire and the release of hostages that stopped short of Hamas’s total destruction.`\
+`Two coalition members threatened to topple Israel’s government if Prime Minister Benjamin Netanyahu accepted a deal for a cease-fire and the release of hostages that stopped short of Hamas’s total destruction.`\
 https://nytimes.com/2024/06/03/world/middleeast/israel-hamas-netanyahu-ceasefire.html
 
 **Research Finds Significant Racial Disparities in Medicaid Re-enrollment**\
 `Among those who could not complete the process of renewing their Medicaid coverage, Black and Hispanic Americans were twice as likely as white people to lose their health insurance, a new study found.`\
 https://nytimes.com/2024/06/03/us/politics/medicaid-reenrollment-black-hispanic.html
-
-**Rep. Jamaal Bowman Loses Ex-Ally’s Support Over Criticism of Israel**\
-`Mondaire Jones, a fellow Black progressive who entered Congress with Mr. Bowman after the 2020 election, is endorsing Mr. Bowman’s challenger, George Latimer.`\
-https://nytimes.com/2024/06/03/nyregion/jamaal-bowman-mondaire-jones.html
 
