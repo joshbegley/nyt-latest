@@ -1,3 +1,7 @@
+**How common is a prosecution for the gun charges Hunter Biden faces?**\
+`By Glenn Thrush`\
+https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/how-common-is-a-prosecution-for-the-gun-charges-hunter-biden-faces
+
 **GameStop Stock Surges Again on Social Media Buzz**\
 `A post on a long-dormant Reddit account suggested the trader known as Roaring Kitty had amassed a large stake in the video game retailer.`\
 https://nytimes.com/2024/06/03/business/dealbook/gamestop-stock-roaring-kitty.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/03/us/hunter-biden-trial
 **Netanyahu will meet with Ben-Gvir to discuss Israel’s cease-fire proposal, an official says.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/06/03/world/israel-gaza-war-hamas/netanyahu-will-meet-with-ben-gvir-to-discuss-israels-cease-fire-proposal-an-official-says
-
-**Two N.Y.P.D. Officers Shot Overnight in Queens**\
-`The officers were trying to pull over a man they said was riding a motorbike the wrong way down a one-way street. Both officers and the suspect are expected to survive, police officials said.`\
-https://nytimes.com/2024/06/03/nyregion/nypd-officers-shot-queens.html
 
