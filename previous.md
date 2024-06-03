@@ -14,8 +14,4 @@ https://nytimes.com/2024/06/03/crosswords/wordle-review-1081.html
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/06/03/crosswords/connections-companion-359.html
 
-**The Israeli military’s operation in Rafah risks upsetting a delicate peace with Egypt, a pillar of its national security for decades.**\
-`By Vivian Yee and Emad Mekay`\
-https://nytimes.com/live/2024/06/03/world/israel-gaza-war-hamas/the-israeli-militarys-operation-in-rafah-risks-upsetting-a-delicate-peace-with-egypt-a-pillar-of-its-national-security-for-decad
-
 **The remains of a man who was believed to be a hostage are identified in Israel, and other news.**\
