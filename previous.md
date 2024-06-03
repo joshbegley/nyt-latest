@@ -1,3 +1,7 @@
+**Jackson Lee, Veteran Democrat in Congress, Says She Has Pancreatic Cancer**\
+`The Texas congresswoman, who has served in the House for nearly three decades, said she had begun treatment and would work with leaders to be present for votes in Washington.`\
+https://nytimes.com/2024/06/03/us/politics/sheila-jackson-lee-pancreatic-cancer.html
+
 **Trump’s Harder Line on Immigration Appears to Resonate, Polls Show**\
 `As the 2024 presidential election ramps up, here is what polls say about public views on the growing number of migrants.`\
 https://nytimes.com/2024/06/03/us/politics/trump-immigration-deportations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/03/business/dealbook/gamestop-stock-roaring-kitty.ht
 **A New Search for Ripples in Space From the Beginning of Time**\
 `As it studies cosmic microwaves, the Simons Observatory in Chile aims to help prove or disprove cosmic inflation, a notion that the universe expanded rapidly in the moment after the Big Bang.`\
 https://nytimes.com/2024/06/03/science/cosmic-inflation-microwave-background-simons-observatory.html
-
-**Rules banning electronics in the courtroom make speedy reporting on Hunter Biden’s trial tricky.**\
-`By Eileen Sullivan`\
-https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/rules-banning-electronics-in-the-courtroom-make-speedy-reporting-on-hunter-bidens-trial-tricky
 

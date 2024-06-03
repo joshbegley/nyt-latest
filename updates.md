@@ -1,3 +1,7 @@
+**Jackson Lee, Veteran Democrat in Congress, Says She Has Pancreatic Cancer**\
+`The Texas congresswoman, who has served in the House for nearly three decades, said she had begun treatment and would work with leaders to be present for votes in Washington.`\
+https://nytimes.com/2024/06/03/us/politics/sheila-jackson-lee-pancreatic-cancer.html
+
 **Trump’s Harder Line on Immigration Appears to Resonate, Polls Show**\
 `As the 2024 presidential election ramps up, here is what polls say about public views on the growing number of migrants.`\
 https://nytimes.com/2024/06/03/us/politics/trump-immigration-deportations.html
