@@ -1,3 +1,11 @@
+**Breeder Ordered to Pay $35 Million for Mistreating Beagles**\
+`Inotiv, whose subsidiaries pleaded guilty to two criminal counts, agreed to pay the record-setting amount. More than 4,000 beagles were rescued in 2022 from its facility in Virginia, where many were ill and injured.`\
+https://nytimes.com/2024/06/03/us/envigo-beagles-abuse-breeder-guilty.html
+
+**Netanyahu’s Far-Right Partners Reject Cease-Fire Compromise**\
+`Two coalition members threatened to topple Israel’s government if Prime Minister Benjamin Netanyahu accepted a deal for a cease-fire and the release of hostages that stopped short of Hamas’s total destruction.`\
+https://nytimes.com/2024/06/03/world/middleeast/israel-hamas-netanyahu-ceasefire.html
+
 **Trump’s Whining About a Weaponized Justice System Is a Projection**\
 `His second term would be even more corrupt and vindictive than his first.`\
 https://nytimes.com/2024/06/03/opinion/trumps-weaponized-justice-system.html
