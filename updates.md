@@ -1,3 +1,7 @@
+**Rep. Jamaal Bowman Loses Ex-Ally’s Support Over Criticism of Israel**\
+`Mondaire Jones, a fellow Black progressive who entered Congress with Mr. Bowman after the 2020 election, is endorsing Mr. Bowman’s challenger, George Latimer.`\
+https://nytimes.com/2024/06/03/nyregion/jamaal-bowman-mondaire-jones.html
+
 **Trump and R.N.C. Announce $141 Million Haul in May**\
 `The total, which was fueled in part by his criminal conviction and cannot be confirmed until filings this month, is likely to help Donald Trump close the cash gap with President Biden.`\
 https://nytimes.com/2024/06/03/us/politics/trump-fundraising-conviction.html
