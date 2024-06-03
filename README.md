@@ -1,3 +1,7 @@
+**When Anti-Fur Protesters Are at the Front Door**\
+`The designer Marc Jacobs said he was bullied into renouncing fur — which he claims his brand stopped using in 2018 — after activists targeted his employees.`\
+https://nytimes.com/2024/06/03/style/marc-jacobs-anti-fur-protesters.html
+
 **Tuesday Briefing: Mexico Elects Its First Woman President**\
 `Also, the U.S. is poised to change its asylum policy.`\
 https://nytimes.com/2024/06/03/world/asia/mexico-president-biden-asylum-israel-asia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/03/business/consumer-bureau-corporate-offender-regis
 **Transcript of Trump Manhattan Trial, May 30, 2024**\
 `New York State’s court released transcripts from each day of the Manhattan criminal trial of former President Donald J. Trump, who was convicted on 34 counts of falsifying business records to cover up a sex scandal that threatened to derail his 2016 presidential campaign.`\
 https://nytimes.com/interactive/2024/06/03/nyregion/trump-hush-money-trial-transcript-may-30.html
-
-**Are Wedding Sneakers the Ultimate Power Flex?**\
-`Rupert Murdoch’s fifth marriage, this time to Elena Zhukova, seemed a casual affair, though some disapproved of the suit-sneaker combination.`\
-https://nytimes.com/2024/06/03/style/rupert-murdoch-wedding-sneakers.html
 
