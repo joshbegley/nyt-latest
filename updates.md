@@ -1,3 +1,11 @@
+**Two N.Y.P.D. Officers Shot Overnight in Queens**\
+`The officers were trying to pull over a man they said was riding a motorbike the wrong way down a one-way street. Both officers and the suspect are expected to survive, police officials said.`\
+https://nytimes.com/2024/06/03/nyregion/nypd-officers-shot-queens.html
+
+**MicroStrategy and Its Founder to Pay $40 Million in Tax Fraud Lawsuit**\
+`Michael Saylor did not pay any income taxes to Washington despite living there from 2005 through 2020, the attorney general for the District of Columbia said.`\
+https://nytimes.com/2024/06/03/business/dealbook/microstrategy-michael-saylor-tax-fraud.html
+
 **A Crypto Bull’s Big Tax Settlement**\
 `The technology company MicroStrategy and its founder, Michael Saylor, agreed to a $40 million deal to end a lawsuit accusing him of evading income tax.`\
 https://nytimes.com/2024/06/03/business/dealbook/saylor-microstrategy-tax-settlement.html
