@@ -1,3 +1,7 @@
+**A Sticking Point in Paramount and Skydance Talks: Who Pays For a Lawsuit?**\
+`A special committee of Paramount’s board of directors supports a merger with Skydance, a studio that has increased its offer in recent days. But the deal isn’t done yet.`\
+https://nytimes.com/2024/06/02/business/paramount-skydance-talks-lawsuit.html
+
 **Wordle Review No. 1,080, June 3, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/06/02/crosswords/wordle-review-1080.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/02/nyregion/israel-war-parade-protest.html
 **Teacher Placed on Leave Over ‘Mock Slave Auction’ in Classroom**\
 `The teacher in Massachusetts, who has not been named, was placed on leave after also using a racial slur, the school superintendent said.`\
 https://nytimes.com/2024/06/02/us/teacher-slave-auction-boston.html
-
-**David Levy, Ex-Laborer Who Became a Top Israeli Leader, Dies at 86**\
-`A native of Morocco, he often embodied the resentment of North Africans and Middle Eastern Jews toward European Israelis.`\
-https://nytimes.com/2024/06/02/obituaries/david-levy-dead.html
 
