@@ -1,3 +1,7 @@
+**The Incoming Mexican President Remains Linked to her Predecessor**\
+`Scheinbaum retains AMLO’s core populist worldview.`\
+https://nytimes.com/live/2024/05/28/opinion/thepoint/scheinbaum-amlo-feminism
+
 **Deadly Floods in Brazil Were Worsened by Climate Change, Study Finds**\
 `The country’s south received three months’ rain in two weeks. Global warming has made such deluges twice as likely as before, scientists said.`\
 https://nytimes.com/2024/06/03/climate/brazil-floods-climate-change.html
