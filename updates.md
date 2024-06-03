@@ -1,3 +1,7 @@
+**Larry Bensky, a Fixture of Left-Wing Radio, Is Dead at 87**\
+`A self-described activist-journalist, he was for many years the national affairs correspondent for the community-focused Pacifica network.`\
+https://nytimes.com/2024/06/03/business/media/larry-bensky-dead.html
+
 **Beijing Claims U.K. Recruited Chinese State Officials as Spies**\
 `The accusation from China came a few weeks after Britain charged three men with assisting Hong Kong’s intelligence service.`\
 https://nytimes.com/2024/06/03/business/china-mi6-espionage-britain-spying.html

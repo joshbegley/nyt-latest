@@ -1,3 +1,7 @@
+**Larry Bensky, a Fixture of Left-Wing Radio, Is Dead at 87**\
+`A self-described activist-journalist, he was for many years the national affairs correspondent for the community-focused Pacifica network.`\
+https://nytimes.com/2024/06/03/business/media/larry-bensky-dead.html
+
 **Beijing Claims U.K. Recruited Chinese State Officials as Spies**\
 `The accusation from China came a few weeks after Britain charged three men with assisting Hong Kong’s intelligence service.`\
 https://nytimes.com/2024/06/03/business/china-mi6-espionage-britain-spying.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/here-are-the-gun-charg
 **Here’s the latest on the trial.**\
 `By Glenn Thrush`\
 https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/heres-the-latest-on-the-trial
-
-**Live Updates: Hunter Biden’s Trial in Gun Case to Begin**\
-`The president’s son goes on trial in Wilmington, Del., on three charges that he lied about his drug use on a federal firearms application in 2018. The unusual prosecution carries stiff penalties: up to 25 years in prison and a $750,000 fine.`\
-https://nytimes.com/live/2024/06/03/us/hunter-biden-trial
 
