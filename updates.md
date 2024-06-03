@@ -1,3 +1,11 @@
+**A Senator’s Son Fights for Political Survival**\
+`This year’s political landscape is consumed with trials and powerful family entanglements.`\
+https://nytimes.com/2024/06/03/us/politics/menendez-nj-primary-election.html
+
+**Trump Almost Certainly Won’t Go on Trial in Georgia This Year. Here’s Why.**\
+`The state appeals court tentatively set oral arguments for October on whether the prosecutor in the Georgia election interference case should be disqualified.`\
+https://nytimes.com/2024/06/03/us/trump-fani-willis-georgia-appeal.html
+
 **Rep. Jamaal Bowman Loses Ex-Ally’s Support Over Criticism of Israel**\
 `Mondaire Jones, a fellow Black progressive who entered Congress with Mr. Bowman after the 2020 election, is endorsing Mr. Bowman’s challenger, George Latimer.`\
 https://nytimes.com/2024/06/03/nyregion/jamaal-bowman-mondaire-jones.html
