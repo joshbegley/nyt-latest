@@ -1,3 +1,7 @@
+**Mexico Joins List of Latin American Nations That Have Elected Female Presidents**\
+`In contrast to the United States, the region has had more than a dozen female leaders, many in democracies that were once under the sway of authoritarian governments.`\
+https://nytimes.com/2024/06/03/world/americas/mexico-women-president-latin-america.html
+
 **Taylor Swift Is No. 1 Again, With Little Competition on the Way**\
 `“The Tortured Poets Department” earns a sixth week atop the Billboard 200, while the latest from Twenty One Pilots opens at No. 3 with big numbers for a rock album.`\
 https://nytimes.com/2024/06/03/arts/music/taylor-swift-tortured-poets-six-weeks-chart.html

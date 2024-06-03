@@ -1,3 +1,7 @@
+**Mexico Joins List of Latin American Nations That Have Elected Female Presidents**\
+`In contrast to the United States, the region has had more than a dozen female leaders, many in democracies that were once under the sway of authoritarian governments.`\
+https://nytimes.com/2024/06/03/world/americas/mexico-women-president-latin-america.html
+
 **Taylor Swift Is No. 1 Again, With Little Competition on the Way**\
 `“The Tortured Poets Department” earns a sixth week atop the Billboard 200, while the latest from Twenty One Pilots opens at No. 3 with big numbers for a rock album.`\
 https://nytimes.com/2024/06/03/arts/music/taylor-swift-tortured-poets-six-weeks-chart.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/03/arts/music/stockhausen-inside-light-park-avenue-a
 **A Climate Scientist Is Voted President of an Oil Country. Now What?**\
 `Claudia Sheinbaum, Mexico’s next leader, is an academic and a politician. Here’s what her track record reveals.`\
 https://nytimes.com/2024/06/03/climate/claudia-sheinbaum-climate-scientist-mexico.html
-
-**Kilauea Volcano Erupts on Hawaii’s Big Island**\
-`The volcano erupted three times in 2023. There did not appear to be any immediate danger to residents on Monday.`\
-https://nytimes.com/2024/06/03/us/hawaii-volcano-eruption-kilauea.html
 
