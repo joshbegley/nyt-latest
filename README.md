@@ -1,6 +1,6 @@
 **Washington Post Editor Sally Buzbee to Step Down**\
 `Matt Murray, the former editor in chief of The Wall Street Journal, will take her place.`\
-https://nytimes.com/2024/06/02/business/media/washington-post-editor-sally-buzbee-to-step-down.html
+https://nytimes.com/2024/06/02/business/media/washington-post-sally-buzbee-step-down.html
 
 **A Sticking Point in Paramount and Skydance Talks: Who Pays For a Lawsuit?**\
 `A special committee of Paramount’s board of directors supports a merger with Skydance, a studio that has increased its offer in recent days. But the deal isn’t done yet.`\
