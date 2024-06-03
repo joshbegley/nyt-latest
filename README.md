@@ -1,3 +1,7 @@
+**Remains Found in Plastic Bag Traced to Woman Born 160 Years Ago**\
+`Skeletal remains found in Oxnard, Calif., in 1985 have been identified as those of Gertrude Elliott-Littlehale, a musician whose grave was desecrated after her death in 1915.`\
+https://nytimes.com/2024/06/03/us/skeletal-remains-plastic-bag-identified-1864.html
+
 **Join the ‘The Daily’ Podcast at the Tribeca Festival**\
 `The show’s hosts, Michael Barbaro and Sabrina Tavernise, share how the podcast gets made in a special event on June 9 in New York City.`\
 https://nytimes.com/2024/06/03/podcasts/join-the-the-daily-podcast-at-the-tribeca-festival.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/03/books/review/headshot-rita-bullwinkel-book-club.h
 **Terry Robards, 84, Dies; Lifted Fine Wines in America as a Times Critic**\
 `In columns and notably “The New York Times Book of Wine,” he introduced Americans to European and premium domestic varieties in the 1970s and ’80s.`\
 https://nytimes.com/2024/06/03/dining/terry-robards-dead.html
-
-**Donald Trump as Felon: The Fallout**\
-`Readers counter his supporters’ criticism of the verdict and cite his history of fraudulent behavior. Also: A plea for shorter campaigns; inaction on guns; Elon Musk.`\
-https://nytimes.com/2024/06/03/opinion/donald-trump-conviction.html
 
