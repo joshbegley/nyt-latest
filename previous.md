@@ -1,3 +1,7 @@
+**Julio Torres and Friends Toast Their Latest Bizarro Creation**\
+`The writer and director celebrated with a roomful of comedians on the rise before an advance screening of “Fantasmas,” his new HBO series.`\
+https://nytimes.com/2024/06/03/style/julio-torres-fantasmas-hbo.html
+
 **For those who fled Rafah, even finding a place to pitch a tent is hard.**\
 `By Hiba Yazbek and Ameera Harouda`\
 https://nytimes.com/live/2024/06/03/world/israel-gaza-war-hamas/for-those-who-fled-rafah-even-finding-a-place-to-pitch-a-tent-is-hard
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/03/opinion/donald-trump-conviction.html
 **12-Year-Old Boy Is Charged in Killing of 14-Year-Old Cousin in Brooklyn**\
 `The 12-year-old boy was arrested on Sunday night, hours after the police said he shot and killed another boy in an apartment in the Brownsville neighborhood.`\
 https://nytimes.com/2024/06/03/nyregion/brooklyn-teenager-shot-dead.html
-
-**Mexico Joins List of Latin American Nations That Have Elected Female Presidents**\
-`In contrast to the United States, the region has had more than a dozen female leaders, many in democracies that were once under the sway of authoritarian governments.`\
-https://nytimes.com/2024/06/03/world/americas/mexico-women-president-latin-america.html
 

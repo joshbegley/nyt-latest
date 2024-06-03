@@ -1,3 +1,7 @@
+**Julio Torres and Friends Toast Their Latest Bizarro Creation**\
+`The writer and director celebrated with a roomful of comedians on the rise before an advance screening of “Fantasmas,” his new HBO series.`\
+https://nytimes.com/2024/06/03/style/julio-torres-fantasmas-hbo.html
+
 **For those who fled Rafah, even finding a place to pitch a tent is hard.**\
 `By Hiba Yazbek and Ameera Harouda`\
 https://nytimes.com/live/2024/06/03/world/israel-gaza-war-hamas/for-those-who-fled-rafah-even-finding-a-place-to-pitch-a-tent-is-hard
