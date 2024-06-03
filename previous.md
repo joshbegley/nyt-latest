@@ -1,3 +1,7 @@
+**Beijing Claims U.K. Recruited Chinese State Officials as Spies**\
+`The accusation from China came a few weeks after Britain charged three men with assisting Hong Kong’s intelligence service.`\
+https://nytimes.com/2024/06/03/business/china-mi6-espionage-britain-spying.html
+
 **How common is a prosecution for the gun charges Hunter Biden faces?**\
 `By Glenn Thrush`\
 https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/how-common-is-a-prosecution-for-the-gun-charges-hunter-biden-faces
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/heres-the-latest-on-th
 **Live Updates: Hunter Biden’s Trial in Gun Case to Begin**\
 `The president’s son goes on trial in Wilmington, Del., on three charges that he lied about his drug use on a federal firearms application in 2018. The unusual prosecution carries stiff penalties: up to 25 years in prison and a $750,000 fine.`\
 https://nytimes.com/live/2024/06/03/us/hunter-biden-trial
-
-**Netanyahu will meet with Ben-Gvir to discuss Israel’s cease-fire proposal, an official says.**\
-`By Adam Rasgon`\
-https://nytimes.com/live/2024/06/03/world/israel-gaza-war-hamas/netanyahu-will-meet-with-ben-gvir-to-discuss-israels-cease-fire-proposal-an-official-says
 

@@ -1,3 +1,7 @@
+**Beijing Claims U.K. Recruited Chinese State Officials as Spies**\
+`The accusation from China came a few weeks after Britain charged three men with assisting Hong Kong’s intelligence service.`\
+https://nytimes.com/2024/06/03/business/china-mi6-espionage-britain-spying.html
+
 **How common is a prosecution for the gun charges Hunter Biden faces?**\
 `By Glenn Thrush`\
 https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/how-common-is-a-prosecution-for-the-gun-charges-hunter-biden-faces
