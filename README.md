@@ -1,3 +1,7 @@
+**Confidential correspondence and interviews give a look inside the collapse of Hunter Biden’s plea deal.**\
+`An examination of confidential correspondence and interviews with those close to Mr. Biden and lawyers involved in the case show how the agreement ultimately fell apart amid schisms and withering external pressures.`\
+https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/confidential-correspondence-and-interviews-give-a-look-inside-the-collapse-of-hunter-bidens-plea-deal
+
 **Here are the gun charges Hunter Biden faces.**\
 `The heart of the federal case against the president’s son — that he lied about drug use on a federal form when he purchased a handgun — is not typically the basis for a stand-alone prosecution.`\
 https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/here-are-the-gun-charges-hunter-biden-faces
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/03/world/asia/india-delhi-heat-water.html
 **Western U.S. Braces for Excessively High Temperatures as Heat Dome Arrives**\
 `Record-breaking temperatures that have contributed to deaths and power failures in Mexico are forecast to move north this week.`\
 https://nytimes.com/2024/06/03/us/excessive-heat-wave-forecast-texas-california.html
-
-**Mexico Elects Claudia Sheinbaum**\
-`We explain why so many Mexican citizens are happy with their country’s direction.`\
-https://nytimes.com/2024/06/03/briefing/mexico-election-claudia-sheinbaum-amlo.html
 

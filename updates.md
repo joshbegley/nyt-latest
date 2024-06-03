@@ -1,3 +1,15 @@
+**Here are the gun charges Hunter Biden faces.**\
+`The heart of the federal case against the president’s son — that he lied about drug use on a federal form when he purchased a handgun — is not typically the basis for a stand-alone prosecution.`\
+https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/here-are-the-gun-charges-hunter-biden-faces
+
+**Here’s the latest on the trial.**\
+`By Glenn Thrush`\
+https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/heres-the-latest-on-the-trial
+
+**Live Updates: Hunter Biden’s Trial in Gun Case to Begin**\
+`The president’s son goes on trial in Wilmington, Del., on three charges that he lied about his drug use on a federal firearms application in 2018. The unusual prosecution carries stiff penalties: up to 25 years in prison and a $750,000 fine.`\
+https://nytimes.com/live/2024/06/03/us/hunter-biden-trial
+
 **Netanyahu will meet with Ben-Gvir to discuss Israel’s cease-fire proposal, an official says.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/06/03/world/israel-gaza-war-hamas/netanyahu-will-meet-with-ben-gvir-to-discuss-israels-cease-fire-proposal-an-official-says
