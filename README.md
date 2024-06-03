@@ -1,3 +1,7 @@
+**The Incoming Mexican President Remains Linked to her Predecessor**\
+`Scheinbaum retains AMLO’s core populist worldview.`\
+https://nytimes.com/live/2024/05/28/opinion/thepoint/scheinbaum-amlo-feminism
+
 **Deadly Floods in Brazil Were Worsened by Climate Change, Study Finds**\
 `The country’s south received three months’ rain in two weeks. Global warming has made such deluges twice as likely as before, scientists said.`\
 https://nytimes.com/2024/06/03/climate/brazil-floods-climate-change.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/03/podcasts/join-the-the-daily-podcast-at-the-tribec
 **Julio Torres and Friends Toast Their Latest Bizarro Creation**\
 `The writer and director celebrated with a roomful of comedians on the rise before an advance screening of “Fantasmas,” his new HBO series.`\
 https://nytimes.com/2024/06/03/style/julio-torres-fantasmas-hbo.html
-
-**For those who fled Rafah, even finding a place to pitch a tent is hard.**\
-`By Hiba Yazbek and Ameera Harouda`\
-https://nytimes.com/live/2024/06/03/world/israel-gaza-war-hamas/for-those-who-fled-rafah-even-finding-a-place-to-pitch-a-tent-is-hard
 
