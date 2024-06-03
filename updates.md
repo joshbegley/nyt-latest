@@ -1,3 +1,7 @@
+**Trump schedules a series of fund-raisers with his trial over.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/06/03/us/trump-biden-election/welcome-to-the-post-conviction-campaign
+
 **Trump seems more focused on fund-raisers than campaign events.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/06/03/us/trump-biden-election/welcome-to-the-post-conviction-campaign
