@@ -1,3 +1,7 @@
+**Mexico Elects Claudia Sheinbaum**\
+`We explain why so many Mexican citizens are happy with their country’s direction.`\
+https://nytimes.com/2024/06/03/briefing/mexico-election-claudia-sheinbaum-amlo.html
+
 **A Myanmar Rebel Group Is Accused of Persecuting Rohingya**\
 `Allegations against the Arakan Army, a key force in the fight against the junta, threaten to revive old horrors of sectarian atrocities.`\
 https://nytimes.com/2024/06/03/world/asia/myanmar-rebel-rohingya.html
