@@ -1,3 +1,15 @@
+**Here are the gun charges Hunter Biden faces.**\
+`The heart of the federal case against the president’s son — that he lied about drug use on a federal form when he purchased a handgun — is not typically the basis for a stand-alone prosecution.`\
+https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/here-are-the-gun-charges-hunter-biden-faces
+
+**Here’s the latest on the trial.**\
+`By Glenn Thrush`\
+https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/heres-the-latest-on-the-trial
+
+**Live Updates: Hunter Biden’s Trial in Gun Case to Begin**\
+`The president’s son goes on trial in Wilmington, Del., on three charges that he lied about his drug use on a federal firearms application in 2018. The unusual prosecution carries stiff penalties: up to 25 years in prison and a $750,000 fine.`\
+https://nytimes.com/live/2024/06/03/us/hunter-biden-trial
+
 **Netanyahu will meet with Ben-Gvir to discuss Israel’s cease-fire proposal, an official says.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/06/03/world/israel-gaza-war-hamas/netanyahu-will-meet-with-ben-gvir-to-discuss-israels-cease-fire-proposal-an-official-says
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/03/us/excessive-heat-wave-forecast-texas-california.
 **Mexico Elects Claudia Sheinbaum**\
 `We explain why so many Mexican citizens are happy with their country’s direction.`\
 https://nytimes.com/2024/06/03/briefing/mexico-election-claudia-sheinbaum-amlo.html
-
-**A Myanmar Rebel Group Is Accused of Persecuting Rohingya**\
-`Allegations against the Arakan Army, a key force in the fight against the junta, threaten to revive old horrors of sectarian atrocities.`\
-https://nytimes.com/2024/06/03/world/asia/myanmar-rebel-rohingya.html
-
-**How Trump’s Conviction Could Reshape the Election**\
-`The guilty verdict in his Manhattan criminal trial is set to become a key piece in the 2024 campaign.`\
-https://nytimes.com/2024/06/03/podcasts/the-daily/how-trumps-conviction-could-reshape-the-election.html
-
-**Mexico Elects First Female President, and Hunter Biden Goes on Trial**\
-`Plus, Simone Biles sets a record.`\
-https://nytimes.com/2024/06/03/podcasts/mexico-president-hunter-biden.html
 
