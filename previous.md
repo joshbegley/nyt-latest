@@ -1,3 +1,7 @@
+**Join the ‘The Daily’ Podcast at the Tribeca Festival**\
+`The show’s hosts, Michael Barbaro and Sabrina Tavernise, share how the podcast gets made in a special event on June 9 in New York City.`\
+https://nytimes.com/2024/06/03/podcasts/join-the-the-daily-podcast-at-the-tribeca-festival.html
+
 **Julio Torres and Friends Toast Their Latest Bizarro Creation**\
 `The writer and director celebrated with a roomful of comedians on the rise before an advance screening of “Fantasmas,” his new HBO series.`\
 https://nytimes.com/2024/06/03/style/julio-torres-fantasmas-hbo.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/03/dining/terry-robards-dead.html
 **Donald Trump as Felon: The Fallout**\
 `Readers counter his supporters’ criticism of the verdict and cite his history of fraudulent behavior. Also: A plea for shorter campaigns; inaction on guns; Elon Musk.`\
 https://nytimes.com/2024/06/03/opinion/donald-trump-conviction.html
-
-**12-Year-Old Boy Is Charged in Killing of 14-Year-Old Cousin in Brooklyn**\
-`The 12-year-old boy was arrested on Sunday night, hours after the police said he shot and killed another boy in an apartment in the Brownsville neighborhood.`\
-https://nytimes.com/2024/06/03/nyregion/brooklyn-teenager-shot-dead.html
 
