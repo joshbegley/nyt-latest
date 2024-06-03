@@ -1,3 +1,7 @@
+**Book Club: Come Discuss ‘Headshot,’ by Rita Bullwinkel**\
+`For The Book Review Podcast’s June book club, we’ll talk about “Headshot,” Rita Bullwinkel’s fierce and searching novel about the high-octane world of youth women’s boxing.`\
+https://nytimes.com/2024/06/03/books/review/headshot-rita-bullwinkel-book-club.html
+
 **Terry Robards, 84, Dies; Lifted Fine Wines in America as a Times Critic**\
 `In columns and notably “The New York Times Book of Wine,” he introduced Americans to European and premium domestic varieties in the 1970s and ’80s.`\
 https://nytimes.com/2024/06/03/dining/terry-robards-dead.html
