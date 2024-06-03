@@ -1,3 +1,7 @@
+**Prosecutor Drops Murder Charges Against Minnesota Trooper Amid Pushback**\
+`The prosecution of Ryan Londregan, the Minnesota state trooper who fatally shot a motorist last year, sparked rare bipartisan outrage.`\
+https://nytimes.com/2024/06/02/us/minnesota-charges-trooper-londregan.html
+
 **Washington Post Editor Sally Buzbee to Step Down**\
 `Matt Murray, the former editor in chief of The Wall Street Journal, will take her place.`\
 https://nytimes.com/2024/06/02/business/media/washington-post-sally-buzbee-step-down.html

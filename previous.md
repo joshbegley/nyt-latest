@@ -1,3 +1,7 @@
+**Prosecutor Drops Murder Charges Against Minnesota Trooper Amid Pushback**\
+`The prosecution of Ryan Londregan, the Minnesota state trooper who fatally shot a motorist last year, sparked rare bipartisan outrage.`\
+https://nytimes.com/2024/06/02/us/minnesota-charges-trooper-londregan.html
+
 **Washington Post Editor Sally Buzbee to Step Down**\
 `Matt Murray, the former editor in chief of The Wall Street Journal, will take her place.`\
 https://nytimes.com/2024/06/02/business/media/washington-post-sally-buzbee-step-down.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/02/us/politics/lara-trump-larry-hogan.html
 **Rupert Murdoch Marries for the Fifth Time**\
 `Mr. Murdoch, the 93-year-old media mogul, married Elena Zhukova, a retired molecular biologist, Saturday at Moraga, his Bel Air vineyard estate in Los Angeles.`\
 https://nytimes.com/2024/06/02/style/rupert-murdoch-wedding.html
-
-**Intense Security at Peaceful Parade for Israel in Manhattan**\
-`The annual parade focused this year on the hostages in Gaza. Thousands marched, and with many streets blocked off, there were few protesters.`\
-https://nytimes.com/2024/06/02/nyregion/israel-war-parade-protest.html
 
