@@ -1,3 +1,7 @@
+**Biden Expected to Sign Executive Order Restricting Asylum**\
+`The move, expected on Tuesday, would allow the president to temporarily seal the border and suspend longtime protections for asylum seekers in the United States.`\
+https://nytimes.com/2024/06/03/us/politics/biden-immigration-asylum-order.html
+
 **A Guide to Managing Covid This Summer**\
 `Experts say cases could rise in the coming weeks. Here’s what to know about symptoms, testing and treatment.`\
 https://nytimes.com/2024/06/03/well/live/covid-symptoms-treatment-flirt-variants.html
