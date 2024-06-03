@@ -1,3 +1,7 @@
+**GameStop Stock Surges Again on Social Media Buzz**\
+`A post on a long-dormant Reddit account suggested the trader known as Roaring Kitty had amassed a large stake in the video game retailer.`\
+https://nytimes.com/2024/06/03/business/dealbook/gamestop-stock-roaring-kitty.html
+
 **A New Search for Ripples in Space From the Beginning of Time**\
 `As it studies cosmic microwaves, the Simons Observatory in Chile aims to help prove or disprove cosmic inflation, a notion that the universe expanded rapidly in the moment after the Big Bang.`\
 https://nytimes.com/2024/06/03/science/cosmic-inflation-microwave-background-simons-observatory.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/03/world/israel-gaza-war-hamas/netanyahu-will-m
 **Two N.Y.P.D. Officers Shot Overnight in Queens**\
 `The officers were trying to pull over a man they said was riding a motorbike the wrong way down a one-way street. Both officers and the suspect are expected to survive, police officials said.`\
 https://nytimes.com/2024/06/03/nyregion/nypd-officers-shot-queens.html
-
-**MicroStrategy and Its Founder to Pay $40 Million in Tax Fraud Lawsuit**\
-`Michael Saylor did not pay any income taxes to Washington despite living there from 2005 through 2020, the attorney general for the District of Columbia said.`\
-https://nytimes.com/2024/06/03/business/dealbook/microstrategy-michael-saylor-tax-fraud.html
 
