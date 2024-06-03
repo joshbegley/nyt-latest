@@ -1,3 +1,7 @@
+**How common is a prosecution for the gun charges Hunter Biden faces?**\
+`By Glenn Thrush`\
+https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/how-common-is-a-prosecution-for-the-gun-charges-hunter-biden-faces
+
 **GameStop Stock Surges Again on Social Media Buzz**\
 `A post on a long-dormant Reddit account suggested the trader known as Roaring Kitty had amassed a large stake in the video game retailer.`\
 https://nytimes.com/2024/06/03/business/dealbook/gamestop-stock-roaring-kitty.html
