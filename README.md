@@ -1,3 +1,15 @@
+**What’s on TV This Week: Lots of Bravo and ‘Fantasma’**\
+`“Summer House” and “The Valley” wrap up as “Below Deck Mediterranean” starts a new season. HBO airs a new show from Julio Torres.`\
+https://nytimes.com/2024/06/03/arts/television/whats-on-tv-this-week-lots-of-bravo-and-fantasma.html
+
+**First They Came for My Country’s Future. Now They’re Destroying Its Past.**\
+`There was no place for rogue militias in the Sudan we dreamed of.`\
+https://nytimes.com/2024/06/03/opinion/sudan-darfur-rsf.html
+
+**My Country Shows What Europe Has Become**\
+`For all its singularity, Belgium tells a quintessentially European story.`\
+https://nytimes.com/2024/06/03/opinion/belgium-election-europe.html
+
 **Monday Briefing**\
 `South Africa rejects the party that ended apartheid.`\
 https://nytimes.com/2024/06/03/briefing/south-africa-mexico-election.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/02/us/minnesota-charges-trooper-londregan.html
 **Sally Buzbee, Washington Post Editor, to Leave Role**\
 `Matt Murray, the former editor in chief of The Wall Street Journal, will take her place temporarily.`\
 https://nytimes.com/2024/06/02/business/media/washington-post-sally-buzbee-step-down.html
-
-**A Sticking Point in Paramount and Skydance Talks: Who Pays For a Lawsuit?**\
-`A special committee of Paramount’s board of directors supports a merger with Skydance, a studio that has increased its offer in recent days. But the deal isn’t done yet.`\
-https://nytimes.com/2024/06/02/business/paramount-skydance-talks-lawsuit.html
-
-**Wordle Review No. 1,080, June 3, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/06/02/crosswords/wordle-review-1080.html
-
-**Philadelphia’s University of the Arts Announces Sudden Closing**\
-`The institution’s financial woes were widely known, but the announcement surprised students and faculty members.`\
-https://nytimes.com/2024/06/02/arts/design/philadelphias-arts-university-closing.html
 
