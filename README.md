@@ -1,3 +1,7 @@
+**Epoch Times Executive Accused of Laundering $67 Million**\
+`Weidong Guan was charged with three counts in a scheme that the Justice Department said caused revenue to surge for the company, which has promoted Donald Trump and conspiracy theories.`\
+https://nytimes.com/2024/06/03/us/politics/epoch-times-money-laundering-doj.html
+
 **Harvard’s Largest Faculty Division Will No Longer Require Diversity Statements**\
 `Instead, the Faculty of Arts and Sciences will require applicants to describe their “efforts to strengthen academic communities,” a senior university leader said an email.`\
 https://nytimes.com/2024/06/03/us/harvard-diversity-statements.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/03/us/politics/trump-fundraising-conviction.html
 **What Ukraine Has Lost**\
 `We measured every town, street and building blown apart in Ukraine to show the first comprehensive picture of where people can’t return home.`\
 https://nytimes.com/interactive/2024/06/03/world/europe/ukraine-destruction.html
-
-**Netanyahu’s Far-Right Partners Reject Cease-Fire Compromise**\
-`Two coalition members threatened to topple Israel’s government if Prime Minister Benjamin Netanyahu accepted a deal for a cease-fire and the release of hostages that stopped short of Hamas’s total destruction.`\
-https://nytimes.com/2024/06/03/world/middleeast/israel-hamas-netanyahu-ceasefire.html
 
