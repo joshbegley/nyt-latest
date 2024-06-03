@@ -1,3 +1,11 @@
+**Word of the Day: introspection**\
+`This word has appeared in 75 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/06/03/learning/word-of-the-day-introspection.html
+
+**Puerto Rico Governor Loses Primary to Former Ally**\
+`Representative Jenniffer González-Colón, the island’s nonvoting member of Congress, defeated Gov. Pedro R. Pierluisi four years after they appeared on the same ticket.`\
+https://nytimes.com/2024/06/02/us/puerto-rico-governor-primary-election.html
+
 **What’s on TV This Week: Lots of Bravo and ‘Fantasma’**\
 `“Summer House” and “The Valley” wrap up as “Below Deck Mediterranean” starts a new season. HBO airs a new show from Julio Torres.`\
 https://nytimes.com/2024/06/03/arts/television/whats-on-tv-this-week-lots-of-bravo-and-fantasma.html
