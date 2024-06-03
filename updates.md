@@ -1,3 +1,7 @@
+**A Myanmar Rebel Group Is Accused of Persecuting Rohingya**\
+`Allegations against the Arakan Army, a key force in the fight against the junta, threaten to revive old horrors of sectarian atrocities.`\
+https://nytimes.com/2024/06/03/world/asia/myanmar-rebel-rohingya.html
+
 **How Trump’s Conviction Could Reshape the Election**\
 `The guilty verdict in his Manhattan criminal trial is set to become a key piece in the 2024 campaign.`\
 https://nytimes.com/2024/06/03/podcasts/the-daily/how-trumps-conviction-could-reshape-the-election.html
