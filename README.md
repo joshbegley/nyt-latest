@@ -1,3 +1,15 @@
+**A Guide to Managing Covid This Summer**\
+`Experts say cases could rise in the coming weeks. Here’s what to know about symptoms, testing and treatment.`\
+https://nytimes.com/2024/06/03/well/live/covid-symptoms-treatment-flirt-variants.html
+
+**Why Caffeine Can Make You Anxious**\
+`And what to do about it.`\
+https://nytimes.com/2024/06/03/well/mind/caffeine-anxiety.html
+
+**A Pantry Pasta Perfect for the Season**\
+`Ali Slagle’s new lemon-garlic linguine is light, bright and ready for the bits and bobs of summer produce and herbs that need using up.`\
+https://nytimes.com/2024/06/03/dining/a-pantry-pasta-perfect-for-the-season.html
+
 **House Republicans, flailing in their drive to impeach Biden, look to related targets.**\
 `Lacking evidence or the votes to support impeachment charges against President Biden, Republicans are considering criminal referrals against him and his allies instead.`\
 https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/house-republicans-flailing-in-their-drive-to-impeach-biden-look-to-related-targets
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/06/03/us/trump-biden-election/welcome-to-the-post-
 **Leading up to the trial, President Biden has chosen to pull his son closer.**\
 `By Katie Rogers`\
 https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/leading-up-to-the-trial-president-biden-has-chosen-to-pull-his-son-closer
-
-**Larry Bensky, a Fixture of Left-Wing Radio, Is Dead at 87**\
-`A self-described activist-journalist, he was for many years the national affairs correspondent for the community-focused Pacifica network.`\
-https://nytimes.com/2024/06/03/business/media/larry-bensky-dead.html
-
-**Beijing Claims U.K. Recruited Chinese State Officials as Spies**\
-`The accusation from China came a few weeks after Britain charged three men with assisting Hong Kong’s intelligence service.`\
-https://nytimes.com/2024/06/03/business/china-mi6-espionage-britain-spying.html
-
-**How common is a prosecution for the gun charges Hunter Biden faces?**\
-`By Glenn Thrush`\
-https://nytimes.com/live/2024/06/03/us/hunter-biden-trial/how-common-is-a-prosecution-for-the-gun-charges-hunter-biden-faces
 
