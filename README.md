@@ -1,3 +1,7 @@
+**Book Club: Come Discuss ‘Headshot,’ by Rita Bullwinkel**\
+`For The Book Review Podcast’s June book club, we’ll talk about “Headshot,” Rita Bullwinkel’s fierce and searching novel about the high-octane world of youth women’s boxing.`\
+https://nytimes.com/2024/06/03/books/review/headshot-rita-bullwinkel-book-club.html
+
 **Terry Robards, 84, Dies; Lifted Fine Wines in America as a Times Critic**\
 `In columns and notably “The New York Times Book of Wine,” he introduced Americans to European and premium domestic varieties in the 1970s and ’80s.`\
 https://nytimes.com/2024/06/03/dining/terry-robards-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/03/business/economy/retailers-prices-discounts-infla
 **Car Deals Vanished During the Pandemic. They’re Coming Back.**\
 `Automakers and dealers are starting to offer discounts, low-interest loans and other incentives to lure buyers as the supply of cars grows.`\
 https://nytimes.com/2024/06/03/business/economy/new-car-deals-incentives-interest-rates.html
-
-**Electric Cars Are Suddenly Becoming Affordable**\
-`More efficient manufacturing, falling battery costs and intense competition are lowering sticker prices for battery-powered models to within striking distance of gasoline cars.`\
-https://nytimes.com/2024/06/03/business/electric-cars-becoming-affordable.html
 
