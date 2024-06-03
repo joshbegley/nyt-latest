@@ -1,3 +1,7 @@
+**Arrest Threatens Nepal’s Standing as South Asia’s Model for Free Speech**\
+`A media executive was arrested after his company published critical reports about a powerful government minister.`\
+https://nytimes.com/2024/06/03/world/asia/nepal-media-arrest.html
+
 **Where Do Those Painted White ‘Ghost Bikes’ Come From?**\
 `White bikes across the city serve as memorials — and calls for awareness about the dangers cyclists face.`\
 https://nytimes.com/2024/06/03/nyregion/street-wars-ghost-bikes-new-york-city.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/03/arts/television/whats-on-tv-this-week-lots-of-bra
 **First They Came for My Country’s Future. Now They’re Destroying Its Past.**\
 `There was no place for rogue militias in the Sudan we dreamed of.`\
 https://nytimes.com/2024/06/03/opinion/sudan-darfur-rsf.html
-
-**My Country Shows What Europe Has Become**\
-`For all its singularity, Belgium tells a quintessentially European story.`\
-https://nytimes.com/2024/06/03/opinion/belgium-election-europe.html
 
