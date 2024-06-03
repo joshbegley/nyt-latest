@@ -1,3 +1,7 @@
+**Tuesday Briefing: Mexico Elects Its First Woman President**\
+`Also, the U.S. is poised to change its asylum policy.`\
+https://nytimes.com/2024/06/03/world/asia/mexico-president-biden-asylum-israel-asia.html
+
 **Mexico’s New President Has a Daunting Job: Stop the Blood Bath**\
 `Claudia Sheinbaum has shown she can take a pragmatic approach to crime.`\
 https://nytimes.com/2024/06/03/opinion/mexico-new-president-violence.html
