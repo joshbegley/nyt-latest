@@ -1,3 +1,15 @@
+**Deadly Floods in Brazil Were Worsened by Climate Change, Study Finds**\
+`The country’s south received three months’ rain in two weeks. Global warming has made such deluges twice as likely as before, scientists said.`\
+https://nytimes.com/2024/06/03/climate/brazil-floods-climate-change.html
+
+**Voters Turn Mexico’s Governing Party Into the Dominant Party**\
+`Expectations were high for the leftist Morena party, and it exceeded them, potentially giving President-elect Claudia Sheinbaum and her allies the power to enact systemic change.`\
+https://nytimes.com/2024/06/03/world/americas/mexico-election-morena-results.html
+
+**Consumer Bureau to Create ‘Corporate Offender’ Registry**\
+`Most companies will be required to report government and court orders penalizing them for consumer protection violations.`\
+https://nytimes.com/2024/06/03/business/consumer-bureau-corporate-offender-registry.html
+
 **Transcript of Trump Manhattan Trial, May 30, 2024**\
 `New York State’s court released transcripts from each day of the Manhattan criminal trial of former President Donald J. Trump, who was convicted on 34 counts of falsifying business records to cover up a sex scandal that threatened to derail his 2016 presidential campaign.`\
 https://nytimes.com/interactive/2024/06/03/nyregion/trump-hush-money-trial-transcript-may-30.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/03/style/julio-torres-fantasmas-hbo.html
 **For those who fled Rafah, even finding a place to pitch a tent is hard.**\
 `By Hiba Yazbek and Ameera Harouda`\
 https://nytimes.com/live/2024/06/03/world/israel-gaza-war-hamas/for-those-who-fled-rafah-even-finding-a-place-to-pitch-a-tent-is-hard
-
-**Jean Guerrero**\
-`Jean Guerrero, a New York Times contributing opinion writer, covers politics, U.S. Latinos and the American West.`\
-https://nytimes.com/column/jean-guerrero
-
-**Shuttered Accounts**\
-`Articles in this series examine what appears to be a growing phenomenon: Banks that shut down customers’ checking accounts without warning, explanation or recourse.`\
-https://nytimes.com/series/shuttered-accounts
-
-**A Mazda, a Gift Bag of $120,000 and a Dismissed Juror**\
-`A stranger dropped off cash at a juror’s house and offered more if she voted to acquit defendants charged with defrauding federal food programs.`\
-https://nytimes.com/2024/06/03/us/jury-bribe-feeding-our-future-fraud.html
 
