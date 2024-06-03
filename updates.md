@@ -1,3 +1,7 @@
+**Research Finds Significant Racial Disparities in Medicaid Re-enrollment**\
+`Among those who could not complete the process of renewing their Medicaid coverage, Black and Hispanic Americans were twice as likely as white people to lose their health insurance, a new study found.`\
+https://nytimes.com/2024/06/03/us/politics/medicaid-reenrollment-black-hispanic.html
+
 **Rep. Jamaal Bowman Loses Support of an Ex-Colleague Over Israel**\
 `Mondaire Jones, a fellow Black progressive who entered Congress with Mr. Bowman after the 2020 election, is endorsing Mr. Bowman’s challenger, George Latimer.`\
 https://nytimes.com/2024/06/03/nyregion/jamaal-bowman-mondaire-jones.html
