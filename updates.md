@@ -1,3 +1,7 @@
+**Jacob Zuma Gets His Revenge on South African Party that Shunned Him**\
+`A new party led by Mr. Zuma, a former president forced out over corruption allegations, helped ensure that the African National Congress fell short of an outright majority for the first time since the end of apartheid.`\
+https://nytimes.com/2024/06/03/world/africa/south-africa-jacob-zuma.html
+
 **Senator Menendez, on Trial, Files to Run for Re-election as an Independent**\
 `An aide dropped off paperwork in Trenton, N.J., while the senator was in a federal courthouse in Manhattan. He has until the middle of August to withdraw.`\
 https://nytimes.com/2024/06/03/nyregion/senator-robert-menendez-independent-campaign.html
