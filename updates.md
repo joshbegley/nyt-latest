@@ -1,3 +1,11 @@
+**A Surging Hard Right Stumbles Over Its Own Divisions**\
+`Elections starting this week for the European Parliament could leave far-right parties with more power than ever, but also expose the fissures among them.`\
+https://nytimes.com/2024/06/03/world/europe/european-union-parliament-election-far-right.html
+
+**Fake News Reports and Videos Seek to Undermine the Paris Olympics**\
+`Russian propagandists are spoofing broadcasters and mimicking French and U.S. intelligence agencies to stoke fear about security at the Games.`\
+https://nytimes.com/2024/06/03/us/politics/russia-disinformation-olympics-paris.html
+
 **Quote of the Day: Tired of Chaos and Leaving House by the Dozens**\
 `Quotation of the Day for Monday, June 3, 2024.`\
 https://nytimes.com/2024/06/02/pageoneplus/quote-of-the-day-tired-of-chaos-and-leaving-house-by-the-dozens.html
