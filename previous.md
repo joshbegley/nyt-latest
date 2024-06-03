@@ -1,3 +1,27 @@
+**Price Pendulum Swings Back to Discounts, Within Limits**\
+`The pandemic shopping boom led many retailers to widen profit margins by charging more. Now value is the watchword as consumers grow choosier.`\
+https://nytimes.com/2024/06/03/business/economy/retailers-prices-discounts-inflation.html
+
+**Car Deals Vanished During the Pandemic. They’re Coming Back.**\
+`Automakers and dealers are starting to offer discounts, low-interest loans and other incentives to lure buyers as the supply of cars grows.`\
+https://nytimes.com/2024/06/03/business/economy/new-car-deals-incentives-interest-rates.html
+
+**Electric Cars Are Suddenly Becoming Affordable**\
+`More efficient manufacturing, falling battery costs and intense competition are lowering sticker prices for battery-powered models to within striking distance of gasoline cars.`\
+https://nytimes.com/2024/06/03/business/electric-cars-becoming-affordable.html
+
+**How Many Literary A.I. Characters and Plots Do You Know?**\
+`Some science fiction authors have been using the concept of artificial intelligence in their books for decades. Try this short quiz to see how many works you remember.`\
+https://nytimes.com/interactive/2024/06/03/books/review/ai-fiction-quiz.html
+
+**Adventures in Space and Time With Stockhausen**\
+`It is nearly impossible to stage Stockhausen’s seven-opera cycle “Licht.” But “Inside Light” brings a portion of it to the Park Avenue Armory.`\
+https://nytimes.com/2024/06/03/arts/music/stockhausen-inside-light-park-avenue-armory.html
+
+**A Climate Scientist Is Voted President of an Oil Country. Now What?**\
+`Claudia Sheinbaum, Mexico’s next leader, is an academic and a politician. Here’s what her track record reveals.`\
+https://nytimes.com/2024/06/03/climate/claudia-sheinbaum-climate-scientist-mexico.html
+
 **Kilauea Volcano Erupts on Hawaii’s Big Island**\
 `The volcano erupted three times in 2023. There did not appear to be any immediate danger to residents on Monday.`\
 https://nytimes.com/2024/06/03/us/hawaii-volcano-eruption-kilauea.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/06/03/world/europe/germany-floods.html
 **Holocaust Museums Debate What to Say About the Israel-Hamas War**\
 `Students are bringing up antisemitic tropes and asking survivors and docents: What is Palestine? Is there a genocide in Gaza?`\
 https://nytimes.com/2024/06/03/us/holocaust-museums-israel-hamas-war.html
-
-**Towns in Southern Germany Declare States of Emergency After Flooding**\
-`The German Weather Office reported that between Friday at noon and Monday at noon more than a month’s worth of rain fell, submerging streets and highways, breaking a dam, and derailing a high-speed train.`\
-https://nytimes.com/video/world/europe/100000009500888/germany-weather-flooding-rain.html
-
-**Nigel Farage Says He Will Run in U.K. Election, in Blow to Conservatives**\
-`The champion of Brexit reversed his previous pledge not to stand for Parliament, in a boost to his Reform Party, which hopes to take seats from the governing Conservatives.`\
-https://nytimes.com/2024/06/03/world/europe/nigel-farage-says-he-will-run-in-uk-election-in-blow-to-conservatives.html
-
-**Biden Expected to Sign Executive Order Restricting Asylum**\
-`The move, expected on Tuesday, would allow the president to temporarily seal the border and suspend longtime protections for asylum seekers in the United States.`\
-https://nytimes.com/2024/06/03/us/politics/biden-immigration-asylum-order.html
-
-**A Guide to Managing Covid This Summer**\
-`Experts say cases could rise in the coming weeks. Here’s what to know about symptoms, testing and treatment.`\
-https://nytimes.com/2024/06/03/well/live/covid-symptoms-treatment-flirt-variants.html
-
-**Why Caffeine Can Make You Anxious**\
-`And what to do about it.`\
-https://nytimes.com/2024/06/03/well/mind/caffeine-anxiety.html
-
-**A Pantry Pasta Perfect for the Season**\
-`Ali Slagle’s new lemon-garlic linguine is light, bright and ready for the bits and bobs of summer produce and herbs that need using up.`\
-https://nytimes.com/2024/06/03/dining/a-pantry-pasta-perfect-for-the-season.html
 
