@@ -1,3 +1,15 @@
+**Transcript of Trump Manhattan Trial, May 30, 2024**\
+`New York State’s court released transcripts from each day of the Manhattan criminal trial of former President Donald J. Trump, who was convicted on 34 counts of falsifying business records to cover up a sex scandal that threatened to derail his 2016 presidential campaign.`\
+https://nytimes.com/interactive/2024/06/03/nyregion/trump-hush-money-trial-transcript-may-30.html
+
+**Are Wedding Sneakers the Ultimate Power Flex?**\
+`Rupert Murdoch’s fifth marriage, this time to Elena Zhukova, seemed a casual affair, though some disapproved of the suit-sneaker combination.`\
+https://nytimes.com/2024/06/03/style/rupert-murdoch-wedding-sneakers.html
+
+**An Israeli military official said he expected ‘difficult questions’ about how the hostages died.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2024/06/03/world/israel-gaza-war-hamas/an-israeli-military-official-said-he-expected-difficult-questions-about-how-the-hostages-died
+
 **Stolen Remains Found in Plastic Bag Traced to Woman Born 160 Years Ago**\
 `Skeletal remains found in Oxnard, Calif., in 1985 have been identified as those of Gertrude Elliott-Littlehale, a musician whose grave was desecrated after her death in 1915.`\
 https://nytimes.com/2024/06/03/us/skeletal-remains-plastic-bag-identified-1864.html
@@ -25,16 +37,4 @@ https://nytimes.com/series/shuttered-accounts
 **A Mazda, a Gift Bag of $120,000 and a Dismissed Juror**\
 `A stranger dropped off cash at a juror’s house and offered more if she voted to acquit defendants charged with defrauding federal food programs.`\
 https://nytimes.com/2024/06/03/us/jury-bribe-feeding-our-future-fraud.html
-
-**Margot Benacerraf, Award-Winning Venezuelan Documentarian, Dies at 97**\
-`She made only two films, but her “Araya,” a rumination on the daily rituals of salt-mine laborers, became an enduring work of Latin American cinema.`\
-https://nytimes.com/2024/06/03/movies/margot-benacerraf-dead.html
-
-**Book Club: Come Discuss ‘Headshot,’ by Rita Bullwinkel**\
-`For The Book Review Podcast’s June book club, we’ll talk about “Headshot,” Rita Bullwinkel’s fierce and searching novel about the high-octane world of youth women’s boxing.`\
-https://nytimes.com/2024/06/03/books/review/headshot-rita-bullwinkel-book-club.html
-
-**Terry Robards, 84, Dies; Lifted Fine Wines in America as a Times Critic**\
-`In columns and notably “The New York Times Book of Wine,” he introduced Americans to European and premium domestic varieties in the 1970s and ’80s.`\
-https://nytimes.com/2024/06/03/dining/terry-robards-dead.html
 
