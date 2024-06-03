@@ -1,3 +1,7 @@
+**Senator Menendez, on Trial, Files to Run for Re-election as an Independent**\
+`An aide dropped off paperwork in Trenton, N.J., while the senator was in a federal courthouse in Manhattan. He has until the middle of August to withdraw.`\
+https://nytimes.com/2024/06/03/nyregion/senator-robert-menendez-independent-campaign.html
+
 **The Incoming Mexican President Remains Linked to her Predecessor**\
 `Scheinbaum retains AMLO’s core populist worldview.`\
 https://nytimes.com/live/2024/05/28/opinion/thepoint/scheinbaum-amlo-feminism
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/03/us/skeletal-remains-plastic-bag-identified-1864.h
 **Join the ‘The Daily’ Podcast at the Tribeca Festival**\
 `The show’s hosts, Michael Barbaro and Sabrina Tavernise, share how the podcast gets made in a special event on June 9 in New York City.`\
 https://nytimes.com/2024/06/03/podcasts/join-the-the-daily-podcast-at-the-tribeca-festival.html
-
-**Julio Torres and Friends Toast Their Latest Bizarro Creation**\
-`The writer and director celebrated with a roomful of comedians on the rise before an advance screening of “Fantasmas,” his new HBO series.`\
-https://nytimes.com/2024/06/03/style/julio-torres-fantasmas-hbo.html
 
