@@ -14,7 +14,7 @@ https://nytimes.com/2024/06/04/technology/openai-culture-whistleblowers.html
 `By Glenn Thrush`\
 https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/leo-wise-who-was-assigned-the-case-just-before-the-plea-deal-collapsed-is-known-as-an-aggressive-prosecutor
 
-**Jill Biden turned out to support Hunter Biden on the first day of his trial.**\
+**Jill Biden has turned out to support Hunter Biden in the first days of the trial.**\
 `By Glenn Thrush`\
 https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/jill-biden-turned-out-to-support-hunter-biden-on-the-first-day-of-his-trial
 

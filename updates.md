@@ -1,3 +1,7 @@
+**Jill Biden has turned out to support Hunter Biden in the first days of the trial.**\
+`By Glenn Thrush`\
+https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/jill-biden-turned-out-to-support-hunter-biden-on-the-first-day-of-his-trial
+
 **For Heroes of D-Day, This Reunion Might Be a ‘Last Hurrah’**\
 `It is 80 years since the Allied invasion of Normandy, and the average age of veterans hovers at 100. Once they are gone, how will their sacrifices be remembered?`\
 https://nytimes.com/2024/06/04/d-day-reunion-ww-ii-veterans.html
