@@ -1,3 +1,7 @@
+**PTSD Treatments Are Falling Short for Many Patients**\
+`The F.D.A. is weighing whether to approve MDMA-assisted therapy as a new option.`\
+https://nytimes.com/2024/06/04/well/ptsd-treatment-mdma.html
+
 **The Big Hurdle Between R.F.K. Jr. and the Debate Stage (It’s Not a Poll)**\
 `The independent presidential candidate Robert F. Kennedy Jr. has said he’s confident he will qualify. But CNN’s rules have put an urgently ticking clock on his already-critical ballot access efforts.`\
 https://nytimes.com/2024/06/04/us/politics/rfk-jr-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/arts/music/sean-combs-diddy-sell-stake-revolt.htm
 **Jez Butterworth’s ‘The Hills of California’ to Open on Broadway**\
 `The play, about a group of English sisters who reunite at their mother’s deathbed, plans to open in New York in September. It ends a London run this month.`\
 https://nytimes.com/2024/06/04/theater/jez-butterworth-hills-california-broadway.html
-
-**The Restaurant at Bedford Post Reopens With Tavern Fare**\
-`Nomad Tea Parlour offers dim sum and takes on Chinese American specialties, Veselka opens an outpost in Williamsburg and more restaurant news.`\
-https://nytimes.com/2024/06/04/dining/nyc-restaurant-news.html
 
