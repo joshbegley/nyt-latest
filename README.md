@@ -1,3 +1,15 @@
+**At Museums, a Revolution Gains Momentum**\
+`Faced with dwindling attendance and changing demographics, museum directors are shifting their approach, with an eye toward “radical hospitality.”`\
+https://nytimes.com/2024/06/03/arts/design/museums-strategy-increase-attendance.html
+
+**Lots and Lots**\
+`Daniel Bodily takes a hands-off approach.`\
+https://nytimes.com/2024/06/03/crosswords/daily-puzzle-2024-06-04.html
+
+**Tapping Art’s Power to Heal Wounds and Open ‘Spaces of Connectedness’**\
+`Artists and community organizations around the world are increasingly turning to art to create positive social change.`\
+https://nytimes.com/2024/06/03/arts/art-power-healing.html
+
 **Qatar Aims to Increase its Influence in the Realms of Art and Film**\
 `The Art for Tomorrow conference in Venice provides an opportunity for the Middle East at large to change how it’s portrayed.`\
 https://nytimes.com/2024/06/03/arts/qatar-art-film-middle-east.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/03/us/politics/epoch-times-money-laundering-doj.html
 **Harvard’s Largest Faculty Division Will No Longer Require Diversity Statements**\
 `Instead, the Faculty of Arts and Sciences will require applicants to describe their “efforts to strengthen academic communities,” a senior university leader said an email.`\
 https://nytimes.com/2024/06/03/us/harvard-diversity-statements.html
-
-**Breeder Ordered to Pay $35 Million for Mistreating Beagles**\
-`Inotiv, whose subsidiaries pleaded guilty to two criminal counts, agreed to pay the record-setting amount. More than 4,000 beagles were rescued in 2022 from its facility in Virginia, where many were ill and injured.`\
-https://nytimes.com/2024/06/03/us/envigo-beagles-abuse-breeder-guilty.html
-
-**Trump’s Second Term Would Be Even More Corrupt and Vindictive Than His First**\
-`Republican whining about a weaponized justice system is a projection.`\
-https://nytimes.com/2024/06/03/opinion/trumps-weaponized-justice-system.html
-
-**Should Biden Downplay His Own Success?**\
-`A radical idea: The administration should just tell the truth.`\
-https://nytimes.com/2024/06/03/opinion/biden-economy.html
 
