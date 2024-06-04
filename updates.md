@@ -1,3 +1,7 @@
+**In Israel and Ukraine, Biden Navigates Two of America’s Most Difficult Allies**\
+`President Biden has promised to support the two countries for as long as it takes. Both their wars appear to be at critical turning points.`\
+https://nytimes.com/2024/06/03/us/politics/biden-israel-ukraine.html
+
 **Epoch Times Executive Accused of Laundering $67 Million**\
 `Weidong Guan was charged with three counts in a scheme that the Justice Department said caused revenue to surge for the company, which has promoted Donald Trump and conspiracy theories.`\
 https://nytimes.com/2024/06/03/us/politics/epoch-times-money-laundering-doj.html

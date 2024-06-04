@@ -1,3 +1,7 @@
+**In Israel and Ukraine, Biden Navigates Two of America’s Most Difficult Allies**\
+`President Biden has promised to support the two countries for as long as it takes. Both their wars appear to be at critical turning points.`\
+https://nytimes.com/2024/06/03/us/politics/biden-israel-ukraine.html
+
 **Epoch Times Executive Accused of Laundering $67 Million**\
 `Weidong Guan was charged with three counts in a scheme that the Justice Department said caused revenue to surge for the company, which has promoted Donald Trump and conspiracy theories.`\
 https://nytimes.com/2024/06/03/us/politics/epoch-times-money-laundering-doj.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/03/us/trump-fani-willis-georgia-appeal.html
 **Trump and R.N.C. Announce $141 Million Haul in May**\
 `The total, which was fueled in part by his criminal conviction and cannot be confirmed until filings this month, is likely to help Donald Trump close the cash gap with President Biden.`\
 https://nytimes.com/2024/06/03/us/politics/trump-fundraising-conviction.html
-
-**What Ukraine Has Lost**\
-`We measured every town, street and building blown apart in Ukraine to show the first comprehensive picture of where people can’t return home.`\
-https://nytimes.com/interactive/2024/06/03/world/europe/ukraine-destruction.html
 
