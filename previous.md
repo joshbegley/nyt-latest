@@ -1,3 +1,7 @@
+**Hostage families, initially optimistic on a new cease-fire deal, feel hope slipping away.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/06/04/world/israel-gaza-war-hamas/hostage-families-initially-optimistic-on-a-new-cease-fire-deal-feel-hope-slipping-away
+
 **Traveling to Europe, Biden Will Find Both Solidarity and Isolation**\
 `The president leaves on Tuesday to mark the 80th anniversary of the D-Day invasion in France, where he will rally American allies in defense of Ukraine even as he defies them on the war in Gaza.`\
 https://nytimes.com/2024/06/04/us/politics/biden-europe-israel-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/well/ptsd-treatment-mdma.html
 **The Big Hurdle Between R.F.K. Jr. and the Debate Stage (It’s Not a Poll)**\
 `The independent presidential candidate Robert F. Kennedy Jr. has said he’s confident he will qualify. But CNN’s rules have put an urgently ticking clock on his already-critical ballot access efforts.`\
 https://nytimes.com/2024/06/04/us/politics/rfk-jr-debate.html
-
-**Two veteran politicians from regional parties are poised to play kingmakers.**\
-`By Mujib Mashal and Hari Kumar`\
-https://nytimes.com/live/2024/06/03/world/india-election-results/two-veteran-politicians-from-regional-parties-are-poised-to-play-kingmakers
 
