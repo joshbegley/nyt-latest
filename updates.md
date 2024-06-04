@@ -1,3 +1,11 @@
+**Would a Banana Republic Put the President’s Son on Trial?**\
+`There’s no basis for the MAGA complaint that Biden has broken the justice system.`\
+https://nytimes.com/live/2024/06/04/opinion/thepoint/would-a-banana-republic-put-the-presidents-son-on-trial
+
+**Wendell Pierce Claims Discrimination in Trying to Rent a Harlem Apartment**\
+`The renowned character actor, best known for playing Detective Bunk Moreland on HBO’s “The Wire,” says a white landlord rejected his rental application.`\
+https://nytimes.com/2024/06/04/realestate/wendell-pierce-harlem-apartment-racism.html
+
 **India’s Modi Thanks Supporters After Winning Third Term**\
 `Prime Minister Narendra Modi and his party narrowly won India’s general election, making him the second ever leader in India to secure a third term.`\
 https://nytimes.com/video/world/asia/100000009503278/modi-victory-speech.html
