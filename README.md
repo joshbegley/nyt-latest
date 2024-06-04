@@ -1,3 +1,7 @@
+**University of the Arts President Resigns After School Announces Closure**\
+`Kerry Walk announced last week that the institution would close on June 7, leaving hundreds of students in academic limbo.`\
+https://nytimes.com/2024/06/04/arts/design/university-arts-kerry-walk-philadelphia.html
+
 **A Year After Orange Skies Covered N.Y.C., Residents Get Another Air Quality Alert**\
 `This time ozone, not smoke, was to blame.`\
 https://nytimes.com/2024/06/04/weather/air-quality-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/world/europe/ukraine-strikes-russia-western-weapo
 **Alec and Hilaria Baldwin and Their 7 Children Get a Reality TV Series**\
 `“We’re inviting you into our home,” the actor, who is set to stand trial next month on an involuntary manslaughter charge, said as he announced a show about his family on TLC.`\
 https://nytimes.com/2024/06/04/arts/television/alec-baldwin-hilaria-children-reality-tv.html
-
-**Tiny Love Stories: ‘We Met at a Gay Bar Called Woody’s’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2024/06/04/style/tiny-modern-love-stories-we-met-at-a-gay-bar-called-woodys.html
 
