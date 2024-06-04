@@ -1,3 +1,15 @@
+**Corrections: June 4, 2024**\
+`Corrections that appeared in print on Tuesday, June 4, 2024.`\
+https://nytimes.com/2024/06/03/pageoneplus/corrections-june-4-2024.html
+
+**Quote of the Day: Cracks Emerge in Hard Right Across Europe**\
+`Quotation of the Day for Tuesday, June 4, 2024.`\
+https://nytimes.com/2024/06/03/pageoneplus/quote-of-the-day-cracks-emerge-in-hard-right-across-europe.html
+
+**Live Updates: India Releases Election Results as Modi Seeks Third Term**\
+`Exit polls show Prime Minister Narendra Modi’s party winning a majority. More than 600 million people cast ballots in an election seen as a referendum on Mr. Modi’s 10 years in power.`\
+https://nytimes.com/live/2024/06/03/world/india-election-results
+
 **Woman Declared Dead Is Found Alive at Funeral Home**\
 `Constance Glantz, 74, of Lincoln, Neb., was pronounced dead in a nursing home. A funeral home employee preparing her body realized that she was breathing.`\
 https://nytimes.com/2024/06/03/us/nebraska-dead-woman-alive-funeral-home.html

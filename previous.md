@@ -1,3 +1,11 @@
+**Corrections: June 4, 2024**\
+`Corrections that appeared in print on Tuesday, June 4, 2024.`\
+https://nytimes.com/2024/06/03/pageoneplus/corrections-june-4-2024.html
+
+**Quote of the Day: Cracks Emerge in Hard Right Across Europe**\
+`Quotation of the Day for Tuesday, June 4, 2024.`\
+https://nytimes.com/2024/06/03/pageoneplus/quote-of-the-day-cracks-emerge-in-hard-right-across-europe.html
+
 **Woman Declared Dead Is Found Alive at Funeral Home**\
 `Constance Glantz, 74, of Lincoln, Neb., was pronounced dead in a nursing home. A funeral home employee preparing her body realized that she was breathing.`\
 https://nytimes.com/2024/06/03/us/nebraska-dead-woman-alive-funeral-home.html
@@ -14,7 +22,7 @@ https://nytimes.com/2024/06/03/us/politics/trump-convicted-felon-biden.html
 `By Mujib Mashal and Alex Travelli`\
 https://nytimes.com/live/2024/06/03/world/india-election-results/heres-the-latest-on-the-election-in-india
 
-**Live Updates: India Starts Releasing Election Results as Modi Seeks Third Term**\
+**Live Updates: India Releases Election Results as Modi Seeks Third Term**\
 `Exit polls show Prime Minister Narendra Modi’s party winning a majority. More than 600 million people cast ballots in an election seen as a referendum on Mr. Modi’s 10 years in power.`\
 https://nytimes.com/live/2024/06/03/world/india-election-results
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/03/arts/design/museums-strategy-increase-attendance.
 **Lots and Lots**\
 `Daniel Bodily takes a hands-off approach.`\
 https://nytimes.com/2024/06/03/crosswords/daily-puzzle-2024-06-04.html
-
-**Tapping Art’s Power to Heal Wounds and Open ‘Spaces of Connectedness’**\
-`Artists and community organizations around the world are increasingly turning to art to create positive social change.`\
-https://nytimes.com/2024/06/03/arts/art-power-healing.html
-
-**Qatar Aims to Increase its Influence in the Realms of Art and Film**\
-`The Art for Tomorrow conference in Venice provides an opportunity for the Middle East at large to change how it’s portrayed.`\
-https://nytimes.com/2024/06/03/arts/qatar-art-film-middle-east.html
 
