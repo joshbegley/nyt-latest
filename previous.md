@@ -1,3 +1,19 @@
+**Tuesday Briefing**\
+`Mexico’s new president.`\
+https://nytimes.com/2024/06/04/briefing/elections-mexico-india.html
+
+**Meet the One Man Everyone Trusts on U.K. Election Nights**\
+`Prof. John Curtice, a polling guru with a formidable intellect and an infectious smile, has contributed to Britain’s TV election coverage since 1979.`\
+https://nytimes.com/2024/06/04/world/europe/uk-election-john-curtice-exit-poll.html
+
+**Before a Debate, the U.K. Election Campaign Just Got Messier**\
+`The surprise candidacy of Nigel Farage, a Trump ally and architect of Brexit, unsettled a stagnant campaign before a first TV debate Tuesday night.`\
+https://nytimes.com/2024/06/04/world/europe/uk-election-debate-sunak-starmer-farage.html
+
+**As China’s Internet Disappears, ‘We Lose Parts of Our Collective Memory’**\
+`The number of Chinese websites is shrinking and posts are being removed and censored, stoking fears about what happens when history is erased.`\
+https://nytimes.com/2024/06/04/business/china-internet-censorship.html
+
 **Corrections: June 4, 2024**\
 `Corrections that appeared in print on Tuesday, June 4, 2024.`\
 https://nytimes.com/2024/06/03/pageoneplus/corrections-june-4-2024.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/06/03/us/politics/trump-convicted-felon-biden.html
 **Here’s the latest on the election in India.**\
 `By Mujib Mashal and Alex Travelli`\
 https://nytimes.com/live/2024/06/03/world/india-election-results/heres-the-latest-on-the-election-in-india
-
-**Live Updates: India Releases Election Results as Modi Seeks Third Term**\
-`Exit polls show Prime Minister Narendra Modi’s party winning a majority. More than 600 million people cast ballots in an election seen as a referendum on Mr. Modi’s 10 years in power.`\
-https://nytimes.com/live/2024/06/03/world/india-election-results
-
-**Can A.I. Rethink Art? Should it?**\
-`There is an increasing overlap between art and artificial intelligence. Some celebrate it, while others worry.`\
-https://nytimes.com/2024/06/03/arts/ai-art-overlap.html
-
-**At Museums, a Revolution Gains Momentum**\
-`Faced with dwindling attendance and changing demographics, museum directors are shifting their approach, with an eye toward “radical hospitality.”`\
-https://nytimes.com/2024/06/03/arts/design/museums-strategy-increase-attendance.html
-
-**Lots and Lots**\
-`Daniel Bodily takes a hands-off approach.`\
-https://nytimes.com/2024/06/03/crosswords/daily-puzzle-2024-06-04.html
 
