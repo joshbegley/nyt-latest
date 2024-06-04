@@ -1,3 +1,7 @@
+**Garland to Rebuke Attacks on Justice Dept.**\
+`Attorney General Merrick B. Garland is expected to warn Republicans that their attacks are feeding “heinous” threats against career agents and prosecutors.`\
+https://nytimes.com/2024/06/04/us/politics/garland-republicans-justice-department.html
+
 **Early Election Results Suggest Sharp Turnaround for Indian National Congress**\
 `India’s beleaguered main opposition party was on track to surpass expectations and nearly double its share of parliamentary seats from 2019.`\
 https://nytimes.com/2024/06/04/world/asia/indian-national-congress-rahul-gandhi-election.html
