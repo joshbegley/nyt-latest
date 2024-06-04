@@ -1,3 +1,7 @@
+**Gizmodo Sold to European Media Company**\
+`The tech website’s publisher, G/O Media, sold Gizmodo to the digital media and tech company Keleops.`\
+https://nytimes.com/2024/06/04/business/media/gizmodo-sold-keleops.html
+
 **In Shift, Biden Issues Order Allowing Temporary Border Closure to Migrants**\
 `The move shows how drastically immigration politics have shifted in the United States. The American Civil Liberties Union said it planned to challenge the order in court.`\
 https://nytimes.com/2024/06/04/us/politics/biden-executive-order-border-asylum.html
