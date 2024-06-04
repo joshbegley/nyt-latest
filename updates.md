@@ -1,3 +1,7 @@
+**Needing Help to Stay in Power, Modi Loses His Aura of Invincibility**\
+`While Narendra Modi appeared to secure a third term as India’s leader, the election was closer than expected, forcing him to rely on coalition partners that don’t share his Hindu nationalist agenda.`\
+https://nytimes.com/2024/06/04/world/asia/modi-india-election.html
+
 **A ‘House of the Dragon’ Party With Not One Silvery Wig in Sight**\
 `At the Season 2 premiere of HBO’s “Game of Thrones” prequel, the cast mingled over cocktails as early clips from the series suggested that “war is coming.”`\
 https://nytimes.com/2024/06/04/style/house-of-dragon-season-2-premiere.html
