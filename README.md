@@ -1,3 +1,7 @@
+**2024 India General Election: Live Results**\
+`See results and maps from India’s 2024 Lok Sabha elections.`\
+https://nytimes.com/interactive/2024/06/03/world/asia/results-india-lok-sabha-election.html
+
 **Trading Glitch Sends Some Shares on a Wild Ride**\
 `Berkshire Hathaway showed a drop of 99 percent before trading was halted and the technical problem corrected.`\
 https://nytimes.com/2024/06/03/business/nyse-trading-glitch-berkshire-hathaway.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/03/opinion/biden-economy.html
 **Janis Paige, Star of Broadway’s ‘The Pajama Game,’ Is Dead at 101**\
 `She first made her mark in the all-star 1944 movie “Hollywood Canteen” before finding acclaim on the musical stage. Movie and TV roles followed.`\
 https://nytimes.com/2024/06/03/theater/janis-paige-dead.html
-
-**A Senator’s Son Fights for Political Survival**\
-`This year’s political landscape is consumed with trials and powerful family entanglements.`\
-https://nytimes.com/2024/06/03/us/politics/menendez-nj-primary-election.html
 
