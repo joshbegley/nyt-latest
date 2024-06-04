@@ -1,3 +1,7 @@
+**When Hydropower Runs Dry**\
+`The struggle of the world’s largest source of renewable last year could have important implications for the fight against climate change.`\
+https://nytimes.com/2024/06/04/climate/global-hydropower-decline.html
+
 **Gizmodo Sold to European Media Company**\
 `The tech website’s publisher, G/O Media, sold Gizmodo to the digital media and tech company Keleops.`\
 https://nytimes.com/2024/06/04/business/media/gizmodo-sold-keleops.html
