@@ -1,3 +1,7 @@
+**Fingers Point as Biden Closes Border to Asylum Seekers**\
+`The president blamed Donald Trump and Republicans for the failure of a previous immigration plan. Mr. Trump called the new action too little, too late.`\
+https://nytimes.com/2024/06/04/us/politics/trump-biden-border-gop-democrats.html
+
 **Would a Banana Republic Put the President’s Son on Trial?**\
 `There’s no basis for the MAGA complaint that Biden has broken the justice system.`\
 https://nytimes.com/live/2024/06/04/opinion/thepoint/would-a-banana-republic-put-the-presidents-son-on-trial
