@@ -1,3 +1,7 @@
+**In Shift, Biden Issues Order Allowing Temporary Border Closure to Migrants**\
+`The move shows how drastically immigration politics have shifted in the United States. The American Civil Liberties Union said it planned to challenge the order in court.`\
+https://nytimes.com/2024/06/04/us/politics/biden-executive-order-border-asylum.html
+
 **Needing Help to Stay in Office, Modi No Longer Appears All-Powerful**\
 `While Narendra Modi appeared to secure a third term as India’s leader, the election was closer than expected, forcing him to rely on coalition partners that don’t share his Hindu nationalist agenda.`\
 https://nytimes.com/2024/06/04/world/asia/modi-india-election.html

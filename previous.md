@@ -26,7 +26,7 @@ https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/a-prosecutor-inclu
 `The final season of “Sweet Tooth” and a Richard Linklater rom-com highlight this month’s slate.`\
 https://nytimes.com/2024/06/04/arts/television/netflix-new-movies-shows-june.html
 
-**Biden Issues Executive Order to Temporarily Seal the Border to Asylum Seekers**\
+**In Shift, Biden Issues Order Allowing Temporary Border Closure to Migrants**\
 `The move shows how drastically immigration politics have shifted in the United States. The American Civil Liberties Union said it planned to challenge the order in court.`\
 https://nytimes.com/2024/06/04/us/politics/biden-executive-order-border-asylum.html
 
