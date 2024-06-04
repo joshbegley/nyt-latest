@@ -1,3 +1,11 @@
+**Modi Struggles to Stay on Top: 4 Takeaways From India’s Election**\
+`The prime minister will keep his job, but his aura has been diminished and his leadership has fundamentally changed as the country’s multiparty democracy springs back to life.`\
+https://nytimes.com/2024/06/04/world/asia/india-election-2024-takeaways.html
+
+**Biden’s Crackdown on Migrants Reflects a New Reality for Democrats**\
+`Advocates of the right to asylum can’t defend the system when it’s broken.`\
+https://nytimes.com/2024/05/28/opinion/biden-asylum-migrants.html
+
 **We’re Entering a Joyful New Era of Lesbian Fashion**\
 `Pairing silky garments with butch suiting, women are pushing back against stereotypical ideas about dressing, on the red carpet and beyond.`\
 https://nytimes.com/2024/06/04/t-magazine/lesbian-fashion-kristen-stewart.html

@@ -1,3 +1,11 @@
+**Modi Struggles to Stay on Top: 4 Takeaways From India’s Election**\
+`The prime minister will keep his job, but his aura has been diminished and his leadership has fundamentally changed as the country’s multiparty democracy springs back to life.`\
+https://nytimes.com/2024/06/04/world/asia/india-election-2024-takeaways.html
+
+**Biden’s Crackdown on Migrants Reflects a New Reality for Democrats**\
+`Advocates of the right to asylum can’t defend the system when it’s broken.`\
+https://nytimes.com/2024/05/28/opinion/biden-asylum-migrants.html
+
 **We’re Entering a Joyful New Era of Lesbian Fashion**\
 `Pairing silky garments with butch suiting, women are pushing back against stereotypical ideas about dressing, on the red carpet and beyond.`\
 https://nytimes.com/2024/06/04/t-magazine/lesbian-fashion-kristen-stewart.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/04/opinion/inflation-fed-recession.html
 **Ex-Agent Who Criticized F.B.I. to Congress Has Security Clearance Reinstated**\
 `Marcus Allen was also awarded back pay and resigned from the bureau after reaching a settlement agreement, his lawyer said.`\
 https://nytimes.com/2024/06/04/us/politics/fbi-agent-security-clearance-jan-6.html
-
-**A ‘House of the Dragon’ Party With Not One Silvery Wig in Sight**\
-`At the Season 2 premiere of HBO’s “Game of Thrones” prequel, the cast mingled over cocktails as early clips from the series suggested that “war is coming.”`\
-https://nytimes.com/2024/06/04/style/house-of-dragon-season-2-premiere.html
-
-**The Ultimate Charli XCX Primer**\
-`Prep for the arrival of her new album, “Brat,” with 11 songs from her catalog (and 10 bonus tracks!).`\
-https://nytimes.com/2024/06/04/arts/music/amplifier-newsletter-charli-xcx.html
 
