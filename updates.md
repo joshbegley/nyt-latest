@@ -1,3 +1,7 @@
+**‘Bad Boys: Ride or Die’ Review: Older, but Never Wiser**\
+`In their latest buddy cop movie, Will Smith and Martin Lawrence are still speeding through Miami. The franchise has rarely felt so assured, relaxed and knowingly funny.`\
+https://nytimes.com/2024/06/04/movies/bad-boys-ride-or-die-review.html
+
 **To Restrict Migrants, Biden Leans on Trump’s Favorite Immigration Law**\
 `President Biden’s executive action addresses one of his most serious political vulnerabilities ahead of the presidential election.`\
 https://nytimes.com/2024/06/04/us/politics/biden-migrants-trump.html
