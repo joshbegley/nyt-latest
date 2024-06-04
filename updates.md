@@ -1,3 +1,7 @@
+**Ron Edmonds, 77, Whose Camera Captured the Shooting of Reagan, Dies**\
+`Working for The Associated Press, he won a Pulitzer Prize for his sequence of photos showing the president being struck by a bullet while three others fell wounded.`\
+https://nytimes.com/2024/06/04/business/media/ron-edmonds-dead.html
+
 **This D-Day, Europe Needs to Resolve to Get Its Act Together**\
 `People, and nations, succeed or fail to the extent that they refuse to hand over responsibility for their fates to others.`\
 https://nytimes.com/2024/06/04/opinion/columnists/dday-nato-europe.html

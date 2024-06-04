@@ -1,3 +1,7 @@
+**Ron Edmonds, 77, Whose Camera Captured the Shooting of Reagan, Dies**\
+`Working for The Associated Press, he won a Pulitzer Prize for his sequence of photos showing the president being struck by a bullet while three others fell wounded.`\
+https://nytimes.com/2024/06/04/business/media/ron-edmonds-dead.html
+
 **This D-Day, Europe Needs to Resolve to Get Its Act Together**\
 `People, and nations, succeed or fail to the extent that they refuse to hand over responsibility for their fates to others.`\
 https://nytimes.com/2024/06/04/opinion/columnists/dday-nato-europe.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/us/politics/after-trumps-conviction-house-republi
 **Garland Says He ‘Will Not Be Intimidated’ by House Republicans**\
 `Attorney General Merrick B. Garland, testifying before the House Judiciary Committee, defended the Justice Department against false accusations made by former President Donald J. Trump and his congressional allies.`\
 https://nytimes.com/video/us/politics/100000009504419/merrick-garland-republicans-house.html
-
-**Both Democrats and Republicans Embrace Border Politics**\
-`Also, India’s election was closer than expected. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2024/06/04/briefing/arizona-biden-border-politics-india-election.html
 
