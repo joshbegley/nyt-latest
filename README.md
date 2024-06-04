@@ -1,3 +1,7 @@
+**For Heroes of D-Day, This Reunion Might Be a ‘Last Hurrah’**\
+`It is 80 years since the Allied invasion of Normandy, and the average age of veterans hovers at 100. Once they are gone, how will their sacrifices be remembered?`\
+https://nytimes.com/2024/06/04/d-day-reunion-ww-ii-veterans.html
+
 **A Developing Heat Wave Will Be a ‘Shock to the System’**\
 `Inland parts of the state are expected to reach triple-digit temperatures this week.`\
 https://nytimes.com/2024/06/04/us/heat-wave.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/business/dealbook/bill-ackman-pershing-square-ipo
 **Garland to Rebuke Attacks on Justice Dept.**\
 `Attorney General Merrick B. Garland is expected to warn Republicans that their attacks are feeding “heinous” threats against career agents and prosecutors.`\
 https://nytimes.com/2024/06/04/us/politics/garland-republicans-justice-department.html
-
-**Early Election Results Suggest Sharp Turnaround for Indian National Congress**\
-`India’s beleaguered main opposition party was on track to surpass expectations and nearly double its share of parliamentary seats from 2019.`\
-https://nytimes.com/2024/06/04/world/asia/indian-national-congress-rahul-gandhi-election.html
 
