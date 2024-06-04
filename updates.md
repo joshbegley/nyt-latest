@@ -1,3 +1,11 @@
+**Brother Marquis, Member of Rap Group 2 Live Crew, Dies**\
+`Born Mark Ross, he was a well-known member of the group, which fueled a debate about artistic freedom.`\
+https://nytimes.com/2024/06/03/arts/music/brother-marquis-dead.html
+
+**Biden Goes After Trump’s Felon Status at Connecticut Fund-Raiser**\
+`Democrats had been clamoring for the president to ratchet up his criticism of his predecessor.`\
+https://nytimes.com/2024/06/03/us/politics/trump-convicted-felon-biden.html
+
 **Here’s the latest on the election in India.**\
 `By Mujib Mashal and Alex Travelli`\
 https://nytimes.com/live/2024/06/03/world/india-election-results/heres-the-latest-on-the-election-in-india
