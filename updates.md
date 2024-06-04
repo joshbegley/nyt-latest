@@ -1,3 +1,7 @@
+**After Trump’s Conviction, House Republicans Vow Again to Target His Foes**\
+`Speaker Mike Johnson announced a “three-pronged approach” for how Republicans on Capitol Hill would push back against the prosecutions of the former president.`\
+https://nytimes.com/2024/06/04/us/politics/after-trumps-conviction-house-republicans-vow-again-to-target-his-foes.html
+
 **Garland Says He ‘Will Not Be Intimidated’ by House Republicans**\
 `Attorney General Merrick B. Garland, testifying before the House Judiciary Committee, defended the Justice Department against false accusations made by former President Donald J. Trump and his congressional allies.`\
 https://nytimes.com/video/us/politics/100000009504419/merrick-garland-republicans-house.html
