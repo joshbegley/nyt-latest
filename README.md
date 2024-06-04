@@ -1,3 +1,12 @@
+**Public Theater Takes Shakespeare in the Park Out on the Town**\
+`The Delacorte Theater is being renovated, so a musical version of “The Comedy of Errors” is touring some of the city’s outdoor spaces.`\
+https://nytimes.com/2024/06/04/theater/public-theater-comedy-of-errors.html
+
+**When Designing a Dream Home, Choose Timelessly Stylish Tiles**\
+`The Spanish tile maker Porcelanosa shares six tips for incorporating tiles into designs.  
+`\
+https://nytimes.com/paidpost/when-designing-a-dream-home-choose-timelessly-stylish-tiles/porcelanosa/when-designing-a-dream-home-choose-timelessly-stylish-tiles.html
+
 **The Climate Challenges That India’s Next Government Will Face**\
 `Farmers have repeatedly protested over grievances tied to global warming, a major political and economic test given the importance of India’s rural economy.`\
 https://nytimes.com/2024/06/04/climate/modi-climate-india-election.html
@@ -29,12 +38,4 @@ https://nytimes.com/2024/06/04/arts/music/opera-star-aigul-akhmetshina.html
 **Primaries will cement a crucial Senate race in Montana.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/06/04/us/trump-biden-election/primaries-will-cement-a-crucial-senate-race-in-montana
-
-**How Did Cats Take Over the World? One Bizarre Drawing at a Time.**\
-`In “Catland,” Kathryn Hughes has a theory about our obsession with our feline friends — and one cat lover in particular.`\
-https://nytimes.com/2024/06/04/books/review/catland-kathryn-hughes.html
-
-**Family Discovers Rare T. Rex Fossil in North Dakota**\
-`Two brothers, their father and a cousin were hiking in the North Dakota Badlands in 2022 when they found the bones of a juvenile Tyrannosaurus rex.`\
-https://nytimes.com/2024/06/04/science/t-rex-fossil-denver-north-dakota.html
 
