@@ -1,3 +1,7 @@
+**Biden Issues Executive Order to Temporarily Seal the Border to Asylum Seekers**\
+`The American Civil Liberties Union said it planned challenge the executive action in court.`\
+https://nytimes.com/2024/06/04/us/politics/biden-executive-order-border-asylum.html
+
 **The Big Hurdle Between R.F.K. Jr. and the Debate Stage (It’s Not a Poll)**\
 `The independent presidential candidate Robert F. Kennedy Jr. has said he’s confident he will qualify. But CNN’s rules have put an urgently ticking clock on his already-critical ballot access efforts.`\
 https://nytimes.com/2024/06/04/us/politics/rfk-jr-debate.html
