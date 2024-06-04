@@ -1,3 +1,7 @@
+**2024 India General Election: Live Results**\
+`See results and maps from India’s 2024 Lok Sabha elections.`\
+https://nytimes.com/interactive/2024/06/03/world/asia/results-india-lok-sabha-election.html
+
 **Trading Glitch Sends Some Shares on a Wild Ride**\
 `Berkshire Hathaway showed a drop of 99 percent before trading was halted and the technical problem corrected.`\
 https://nytimes.com/2024/06/03/business/nyse-trading-glitch-berkshire-hathaway.html
