@@ -1,3 +1,7 @@
+**Nonny Hogrogian, 92, Honored Illustrator of Children’s Books, Dies**\
+`A two-time Caldecott Medal winner, she brought multiculturalism to children’s literature by evoking her Armenian heritage.`\
+https://nytimes.com/2024/06/04/books/nonny-hogrogian-dead.html
+
 **What to Know About Claudia Sheinbaum, Mexico’s President-Elect**\
 `Claudia Sheinbaum’s list of accolades is long: She has earned a Ph.`\
 https://nytimes.com/video/world/americas/100000009504420/what-to-know-about-claudia-sheinbaum-mexicos-president-elect.html
