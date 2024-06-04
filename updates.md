@@ -1,3 +1,7 @@
+**Can Bill Ackman Cash in on His Growing Fame?**\
+`The billionaire investor’s profile has soared on social media. That could help him grow Pershing Square, his financial empire.`\
+https://nytimes.com/2024/06/04/business/dealbook/bill-ackman-pershing-square-ipo.html
+
 **Garland to Rebuke Attacks on Justice Dept.**\
 `Attorney General Merrick B. Garland is expected to warn Republicans that their attacks are feeding “heinous” threats against career agents and prosecutors.`\
 https://nytimes.com/2024/06/04/us/politics/garland-republicans-justice-department.html
