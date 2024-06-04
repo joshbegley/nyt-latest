@@ -1,3 +1,7 @@
+**F.D.A. Panel Weighs MDMA Therapy and Its Risks**\
+`An independent group of experts is meeting Tuesday to consider whether to allow use of this illegal drug, also known as Ecstasy, to treat PTSD.`\
+https://nytimes.com/2024/06/04/health/mdma-ptsd-fda.html
+
 **War Erupts Over the Prospect of a New Club in East Hampton**\
 `Scott Sartiano proposed bringing his Manhattan-based members-only hot spot, Zero Bond, to a historic village inn. Local residents are not rolling out the red carpet.`\
 https://nytimes.com/2024/06/04/realestate/east-hampton-zero-bond-club.html
@@ -34,8 +38,4 @@ https://nytimes.com/2024/06/04/world/africa/rwanda-2024-election.html
 **A Rare Type of Voice Gets a New Audience**\
 `A revival of Handel’s “Giulio Cesare” this summer at Glyndebourne, an English opera festival, features three countertenors with three different sounds.`\
 https://nytimes.com/2024/06/04/arts/music/handel-opera-glynebourne-festival.html
-
-**‘The Singer in the Village’ Who Became an Opera Star**\
-`During a break at the Royal Opera House, Aigul Akhmetshina discussed her action-packed career, “Carmen” and her mission to spread her love of opera.`\
-https://nytimes.com/2024/06/04/arts/music/opera-star-aigul-akhmetshina.html
 
