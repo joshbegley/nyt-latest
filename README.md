@@ -1,3 +1,7 @@
+**Can Bill Ackman Cash in on His Growing Fame?**\
+`The billionaire investor’s profile has soared on social media. That could help him grow Pershing Square, his financial empire.`\
+https://nytimes.com/2024/06/04/business/dealbook/bill-ackman-pershing-square-ipo.html
+
 **Garland to Rebuke Attacks on Justice Dept.**\
 `Attorney General Merrick B. Garland is expected to warn Republicans that their attacks are feeding “heinous” threats against career agents and prosecutors.`\
 https://nytimes.com/2024/06/04/us/politics/garland-republicans-justice-department.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/us/politics/house-democrats-contraceptive-vote.ht
 **The Republican Party’s Decay Began Long Before Trump**\
 `In the past, the G.O.P. could’ve prevented a candidate like Donald Trump from running. But Daniel Schlozman and Sam Rosenfeld argue the party structure has been “hollowed out” over the years.`\
 https://nytimes.com/2024/06/04/opinion/ezra-klein-podcast-sam-rosenfeld-daniel-schlozman.html
-
-**As Solar Power Surges, U.S. Wind Is in Trouble**\
-`A 2022 climate law was expected to set off a boom in renewable energy. So far, that’s only come partly true.`\
-https://nytimes.com/interactive/2024/06/04/climate/us-wind-energy-solar-power.html
 
