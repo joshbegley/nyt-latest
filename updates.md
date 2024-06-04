@@ -1,3 +1,11 @@
+**Garland Says He ‘Will Not Be Intimidated’ by House Republicans**\
+`Attorney General Merrick B. Garland, testifying before the House Judiciary Committee, defended the Justice Department against false accusations made by former President Donald J. Trump and his congressional allies.`\
+https://nytimes.com/video/us/politics/100000009504419/merrick-garland-republicans-house.html
+
+**Both Democrats and Republicans Embrace Border Politics**\
+`Also, India’s election was closer than expected. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/06/04/briefing/arizona-biden-border-politics-india-election.html
+
 **Muhammad Ali’s Childhood Home Goes on the Market**\
 `The boxing champion lived in the one-story house in Louisville, Ky., which in recent years became a museum. It’s listed for sale, along with two neighboring properties, for $1.5 million.`\
 https://nytimes.com/2024/06/04/sports/muhammad-ali-childhood-home-sale.html

@@ -1,3 +1,11 @@
+**Garland Says He ‘Will Not Be Intimidated’ by House Republicans**\
+`Attorney General Merrick B. Garland, testifying before the House Judiciary Committee, defended the Justice Department against false accusations made by former President Donald J. Trump and his congressional allies.`\
+https://nytimes.com/video/us/politics/100000009504419/merrick-garland-republicans-house.html
+
+**Both Democrats and Republicans Embrace Border Politics**\
+`Also, India’s election was closer than expected. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/06/04/briefing/arizona-biden-border-politics-india-election.html
+
 **Muhammad Ali’s Childhood Home Goes on the Market**\
 `The boxing champion lived in the one-story house in Louisville, Ky., which in recent years became a museum. It’s listed for sale, along with two neighboring properties, for $1.5 million.`\
 https://nytimes.com/2024/06/04/sports/muhammad-ali-childhood-home-sale.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/asia/100000009503278/modi-victory-speech.html
 **Bringing a New York Street Scene to Life in ‘Robot Dreams’**\
 `The director Pablo Berger dissects a frame from his Oscar-nominated animated film about the friendship between a dog and a robot.`\
 https://nytimes.com/interactive/2024/06/04/movies/pablo-berger-robot-dreams-movie.html
-
-**Wednesday Briefing: Modi’s Bruising Path to a Third Term**\
-`Also, a Times analysis of the destruction in Ukraine.`\
-https://nytimes.com/2024/06/04/world/asia/modi-election-results-bjp-ukraine-asia.html
-
-**House Votes to Impose Sanctions on I.C.C. Officials Over Israel Prosecution**\
-`The Republican-written bill, which the White House strongly opposes, stands little chance of becoming law after lawmakers failed to reach a bipartisan deal on penalizing measures.`\
-https://nytimes.com/2024/06/04/us/politics/house-vote-icc-israel.html
 
