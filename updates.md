@@ -1,3 +1,7 @@
+**How Did Cats Take Over the World? One Bizarre Drawing at a Time.**\
+`In “Catland,” Kathryn Hughes has a theory about our obsession with our feline friends — and one cat lover in particular.`\
+https://nytimes.com/2024/06/04/books/review/catland-kathryn-hughes.html
+
 **Family Discovers Rare T. Rex Fossil in North Dakota**\
 `Two brothers, their father and a cousin were hiking in the North Dakota Badlands in 2022 when they found the bones of a juvenile Tyrannosaurus rex.`\
 https://nytimes.com/2024/06/04/science/t-rex-fossil-denver-north-dakota.html

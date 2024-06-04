@@ -1,3 +1,7 @@
+**How Did Cats Take Over the World? One Bizarre Drawing at a Time.**\
+`In “Catland,” Kathryn Hughes has a theory about our obsession with our feline friends — and one cat lover in particular.`\
+https://nytimes.com/2024/06/04/books/review/catland-kathryn-hughes.html
+
 **Family Discovers Rare T. Rex Fossil in North Dakota**\
 `Two brothers, their father and a cousin were hiking in the North Dakota Badlands in 2022 when they found the bones of a juvenile Tyrannosaurus rex.`\
 https://nytimes.com/2024/06/04/science/t-rex-fossil-denver-north-dakota.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/heres-the-latest-o
 **Here are the felony charges Hunter Biden faces in the gun case.**\
 `By Glenn Thrush`\
 https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/here-are-the-gun-charges-hunter-biden-faces
-
-**Hunter Biden Trial Live Updates: Prosecution to Begin Laying Out Its Case**\
-`The president’s son is accused of lying about his drug use when he bought a handgun in 2018. Prosecutors are expected to elicit testimony from people by his side during his darkest days.`\
-https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial
 
