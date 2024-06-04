@@ -1,3 +1,15 @@
+**Muhammad Ali’s Childhood Home Goes on the Market**\
+`The boxing champion lived in the one-story house in Louisville, Ky., which in recent years became a museum. It’s listed for sale, along with two neighboring properties, for $1.5 million.`\
+https://nytimes.com/2024/06/04/sports/muhammad-ali-childhood-home-sale.html
+
+**Transcript: Ezra Klein Interviews Sam Rosenfeld and Daniel Schlozman**\
+`The June 4, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/06/04/podcasts/transcript-ezra-klein-interviews-sam-rosenfeld-and-daniel-schlozman.html
+
+**Nonny Hogrogian Dies at 92; Infused Her Illustrations With Old-World Wonder**\
+`A two-time Caldecott Medal winner, she brought multiculturalism to children’s books by drawing on her Armenian heritage.`\
+https://nytimes.com/2024/06/04/books/nonny-hogrogian-dead.html
+
 **Fingers Point as Biden Closes Border to Asylum Seekers**\
 `The president blamed Donald Trump and Republicans for the failure of a previous immigration plan. Mr. Trump called the new action too little, too late.`\
 https://nytimes.com/2024/06/04/us/politics/trump-biden-border-gop-democrats.html
