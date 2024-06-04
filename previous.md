@@ -1,3 +1,7 @@
+**House Votes to Impose Sanctions on I.C.C. Officials Over Israel Prosecution**\
+`The Republican-written bill, which the White House strongly opposes, stands little chance of becoming law after lawmakers failed to reach a bipartisan deal on penalizing measures.`\
+https://nytimes.com/2024/06/04/us/politics/house-vote-icc-israel.html
+
 **University of the Arts President Resigns After School Announces Closure**\
 `Kerry Walk announced last week that the institution would close on June 7, leaving hundreds of students in academic limbo.`\
 https://nytimes.com/2024/06/04/arts/design/university-arts-kerry-walk-philadelphia.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009504073/biden-border-immigration.h
 **Ukraine Strikes Into Russia With Western Weapons, Official Says**\
 `The official said Ukraine had destroyed missile launchers in the Russian region of Belgorod using an American-made rocket system.`\
 https://nytimes.com/2024/06/04/world/europe/ukraine-strikes-russia-western-weapons.html
-
-**Alec and Hilaria Baldwin and Their 7 Children Get a Reality TV Series**\
-`“We’re inviting you into our home,” the actor, who is set to stand trial next month on an involuntary manslaughter charge, said as he announced a show about his family on TLC.`\
-https://nytimes.com/2024/06/04/arts/television/alec-baldwin-hilaria-children-reality-tv.html
 

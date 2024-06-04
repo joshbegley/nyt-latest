@@ -1,3 +1,7 @@
+**House Votes to Impose Sanctions on I.C.C. Officials Over Israel Prosecution**\
+`The Republican-written bill, which the White House strongly opposes, stands little chance of becoming law after lawmakers failed to reach a bipartisan deal on penalizing measures.`\
+https://nytimes.com/2024/06/04/us/politics/house-vote-icc-israel.html
+
 **University of the Arts President Resigns After School Announces Closure**\
 `Kerry Walk announced last week that the institution would close on June 7, leaving hundreds of students in academic limbo.`\
 https://nytimes.com/2024/06/04/arts/design/university-arts-kerry-walk-philadelphia.html
