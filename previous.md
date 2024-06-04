@@ -1,3 +1,7 @@
+**Gazans Pin Hopes on New Truce Proposal, but Remain Skeptical**\
+`A cease-fire plan described by President Biden has stirred cautious optimism after nearly eight months of war in the Gaza Strip.`\
+https://nytimes.com/2024/06/04/world/middleeast/israel-hamas-ceasefire-proposal-gaza.html
+
 **F.D.A. Panel Rejects MDMA-Aided Therapy for PTSD**\
 `An independent group of experts expressed concerns that the data from clinical trials did not outweigh risks for treatment of post-traumatic stress disorder.`\
 https://nytimes.com/2024/06/04/health/fda-mdma-therapy-ptsd.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/us/politics/trump-biden-border-gop-democrats.html
 **Would a Banana Republic Put the President’s Son on Trial?**\
 `There’s no basis for the MAGA complaint that Biden has broken the justice system.`\
 https://nytimes.com/live/2024/06/04/opinion/thepoint/would-a-banana-republic-put-the-presidents-son-on-trial
-
-**Wendell Pierce Claims Discrimination in Trying to Rent a Harlem Apartment**\
-`The renowned character actor, best known for playing Detective Bunk Moreland on HBO’s “The Wire,” says a white landlord rejected his rental application.`\
-https://nytimes.com/2024/06/04/realestate/wendell-pierce-harlem-apartment-racism.html
 
