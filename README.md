@@ -1,3 +1,7 @@
+**The Big Hurdle Between R.F.K. Jr. and the Debate Stage (It’s Not a Poll)**\
+`The independent presidential candidate Robert F. Kennedy Jr. has said he’s confident he will qualify. But CNN’s rules have put an urgently ticking clock on his already-critical ballot access efforts.`\
+https://nytimes.com/2024/06/04/us/politics/rfk-jr-debate.html
+
 **Two veteran politicians from regional parties are poised to play kingmakers.**\
 `By Mujib Mashal and Hari Kumar`\
 https://nytimes.com/live/2024/06/03/world/india-election-results/two-veteran-politicians-from-regional-parties-are-poised-to-play-kingmakers
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/theater/jez-butterworth-hills-california-broadway
 **The Restaurant at Bedford Post Reopens With Tavern Fare**\
 `Nomad Tea Parlour offers dim sum and takes on Chinese American specialties, Veselka opens an outpost in Williamsburg and more restaurant news.`\
 https://nytimes.com/2024/06/04/dining/nyc-restaurant-news.html
-
-**Some Gazans Call on Hamas to Accept Cease-Fire Proposal, But Remain Skeptical**\
-`After months of bombardment, many in Gaza believe Hamas should make any compromise necessary to end the war.`\
-https://nytimes.com/2024/06/04/world/middleeast/some-gazans-call-on-hamas-to-accept-cease-fire-proposal-but-remain-skeptical.html
 
