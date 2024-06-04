@@ -1,3 +1,7 @@
+**‘Antihero’ or ‘Felon’: 11 Undecided Voters Struggle With How to See Trump Post-Verdict**\
+`The group discusses the trial, the verdict and its possible influence on the 2024 election.`\
+https://nytimes.com/interactive/2024/06/04/opinion/trump-verdict-focus-group.html
+
 **Photos from India capture a hard-fought election campaign.**\
 `By John Yoon and Atul Loke`\
 https://nytimes.com/live/2024/06/03/world/india-election-results/photos-from-india-capture-a-hard-fought-election-campaign
