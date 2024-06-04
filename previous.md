@@ -1,3 +1,11 @@
+**Protesters Want Charges Dropped. What Is the Right Price for Civil Disobedience?**\
+`Students have clearly broken codes of conduct and, in some cases, the law. But the question of whether and how to discipline them is vexing universities.`\
+https://nytimes.com/2024/06/04/us/politics/college-protests-charges-students.html
+
+**Transplanted Pig Kidney Is Removed From Patient**\
+`The organ, from a genetically modified animal, failed because of a lack of blood flow, surgeons said, but did not appear to have been rejected by the body.`\
+https://nytimes.com/2024/06/04/health/kidney-transplant-pig-pisano.html
+
 **When Hydropower Runs Dry**\
 `The struggle of the world’s largest source of renewable last year could have important implications for the fight against climate change.`\
 https://nytimes.com/2024/06/04/climate/global-hydropower-decline.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/04/opinion/psychiatry-dangerous-patient.html
 **A prosecutor includes ‘No one is above the law’ in his opening statement, echoing cases against Trump.**\
 `By Glenn Thrush`\
 https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/a-prosecutor-includes-no-one-is-above-the-law-in-his-opening-statement-echoing-cases-against-trump
-
-**The Best Movies and TV Shows Coming to Netflix in June**\
-`The final season of “Sweet Tooth” and a Richard Linklater rom-com highlight this month’s slate.`\
-https://nytimes.com/2024/06/04/arts/television/netflix-new-movies-shows-june.html
-
-**In Shift, Biden Issues Order Allowing Temporary Border Closure to Migrants**\
-`The move shows how drastically immigration politics have shifted in the United States. The American Civil Liberties Union said it planned to challenge the order in court.`\
-https://nytimes.com/2024/06/04/us/politics/biden-executive-order-border-asylum.html
 
