@@ -1,3 +1,15 @@
+**Stephen Colbert Counts Down to Donald Trump’s Sentencing**\
+`Colbert showed off his “Countdown to Sentencing Advent Calendar,” which contained a bottle of bourbon.`\
+https://nytimes.com/2024/06/04/arts/television/stephen-colbert-trump-sentencing-countdown.html
+
+**A Reporter Whose Beat Blends Sports and Culture**\
+`Emmanuel Morgan is enticed by how athletes and sports leagues are increasingly dipping into music, television and other media.`\
+https://nytimes.com/2024/06/04/insider/sports-pop-culture.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/06/04/crosswords/spelling-bee-forum.html
+
 **Word of the Day: empathetic**\
 `This word has appeared in 155 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/06/04/learning/word-of-the-day-empathetic.html
