@@ -1,3 +1,7 @@
+**Biden says there is ‘every reason’ to believe Netanyahu is prolonging the war for political reasons.**\
+`By David E. Sanger`\
+https://nytimes.com/live/2024/06/04/world/israel-gaza-war-hamas/biden-says-there-is-every-reason-to-believe-netanyahu-is-prolonging-the-war-for-political-reasons
+
 **‘There Is No Ethan’ Is a Jaw-Dropping Tale of Digital Deception**\
 `Reading Anna Akbari’s memoir of online manipulation, you think you’ve seen it all — then you keep reading.`\
 https://nytimes.com/2024/06/04/books/review/there-is-no-ethan-anna-akbari.html
