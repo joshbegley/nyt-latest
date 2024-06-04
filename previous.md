@@ -18,8 +18,8 @@ https://nytimes.com/2024/06/04/us/politics/biden-europe-israel-ukraine.html
 `It is the fifth battleground state to prosecute former President Donald J. Trump’s supporters for trying to overturn his defeat in the 2020 election.`\
 https://nytimes.com/2024/06/04/us/politics/wisconsin-charges-3-trump-allies-in-fake-electors-scheme.html
 
-**Protesters Want Charges Dropped. What Is the Right Price for Civil Disobedience?**\
-`Students have clearly broken codes of conduct and, in some cases, the law. But the question of whether and how to discipline them is vexing universities.`\
+**Students Want Charges Dropped. What Is the Right Price for Protests?**\
+`At pro-Palestinian demonstrations, students have broken codes of conduct and, sometimes, the law. But the question of whether and how to discipline them is vexing universities.`\
 https://nytimes.com/2024/06/04/us/politics/college-protests-charges-students.html
 
 **Transplanted Pig Kidney Is Removed From Patient**\

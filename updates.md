@@ -1,3 +1,7 @@
+**Students Want Charges Dropped. What Is the Right Price for Protests?**\
+`At pro-Palestinian demonstrations, students have broken codes of conduct and, sometimes, the law. But the question of whether and how to discipline them is vexing universities.`\
+https://nytimes.com/2024/06/04/us/politics/college-protests-charges-students.html
+
 **Needing Help to Stay in Power, Modi Loses His Aura of Invincibility**\
 `While Narendra Modi appeared to secure a third term as India’s leader, the election was closer than expected, forcing him to rely on coalition partners that don’t share his Hindu nationalist agenda.`\
 https://nytimes.com/2024/06/04/world/asia/modi-india-election.html
