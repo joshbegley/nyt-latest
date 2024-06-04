@@ -1,3 +1,7 @@
+**A Year After Orange Skies Covered N.Y.C., Residents Get Another Air Quality Alert**\
+`This time ozone, not smoke, was to blame.`\
+https://nytimes.com/2024/06/04/weather/air-quality-nyc.html
+
 **‘Bad Boys: Ride or Die’ Review: Older, but Never Wiser**\
 `In their latest buddy cop movie, Will Smith and Martin Lawrence are still speeding through Miami. The franchise has rarely felt so assured, relaxed and knowingly funny.`\
 https://nytimes.com/2024/06/04/movies/bad-boys-ride-or-die-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/arts/television/alec-baldwin-hilaria-children-rea
 **Tiny Love Stories: ‘We Met at a Gay Bar Called Woody’s’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/06/04/style/tiny-modern-love-stories-we-met-at-a-gay-bar-called-woodys.html
-
-**It’s rare for a defendant to face the same gun charges as Hunter Biden without an underlying crime.**\
-`By Glenn Thrush`\
-https://nytimes.com/live/2024/06/04/us/hunter-biden-trial/its-rare-for-a-defendant-to-face-the-same-gun-charges-as-hunter-biden-without-an-underlying-crime
 
