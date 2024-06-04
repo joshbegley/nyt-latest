@@ -1,3 +1,7 @@
+**Rival U.K. Political Leaders Clash in Bad-Tempered Election Debate**\
+`Prime Minister Rishi Sunak, fighting to narrow a substantial polling gap, adopted an aggressive approach against his Labour Party opponent, Keir Starmer.`\
+https://nytimes.com/2024/06/04/world/europe/sunak-starmer-britain-prime-minister-debate.html
+
 **Senator Menendez Enjoyed a Steakhouse Dinner, as the F.B.I. Watched**\
 `At Senator Robert Menendez’s bribery trial, an investigator described surveilling diners at a Washington restaurant. Among them were Mr. Menendez and an Egyptian official.`\
 https://nytimes.com/2024/06/04/nyregion/fbi-surveillance-robert-nadine-menendez.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/world/middleeast/israel-hamas-ceasefire-proposal-
 **F.D.A. Panel Rejects MDMA-Aided Therapy for PTSD**\
 `An independent group of experts expressed concerns that the data from clinical trials did not outweigh risks for treatment of post-traumatic stress disorder.`\
 https://nytimes.com/2024/06/04/health/fda-mdma-therapy-ptsd.html
-
-**After Trump’s Conviction, House Republicans Vow Again to Target His Foes**\
-`Speaker Mike Johnson announced a “three-pronged approach” for how Republicans on Capitol Hill would push back against the prosecutions of the former president.`\
-https://nytimes.com/2024/06/04/us/politics/after-trumps-conviction-house-republicans-vow-again-to-target-his-foes.html
 
