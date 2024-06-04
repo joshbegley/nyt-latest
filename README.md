@@ -22,7 +22,7 @@ https://nytimes.com/2024/06/03/us/politics/trump-convicted-felon-biden.html
 `By Mujib Mashal and Alex Travelli`\
 https://nytimes.com/live/2024/06/03/world/india-election-results/heres-the-latest-on-the-election-in-india
 
-**Live Updates: India Starts Releasing Election Results as Modi Seeks Third Term**\
+**Live Updates: India Releases Election Results as Modi Seeks Third Term**\
 `Exit polls show Prime Minister Narendra Modi’s party winning a majority. More than 600 million people cast ballots in an election seen as a referendum on Mr. Modi’s 10 years in power.`\
 https://nytimes.com/live/2024/06/03/world/india-election-results
 
