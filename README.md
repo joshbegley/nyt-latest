@@ -1,3 +1,11 @@
+**Two veteran politicians from regional parties are poised to play kingmakers.**\
+`By Mujib Mashal and Hari Kumar`\
+https://nytimes.com/live/2024/06/03/world/india-election-results/two-veteran-politicians-from-regional-parties-are-poised-to-play-kingmakers
+
+**Psychiatry and the Dangerous Patient**\
+`Two psychiatrists respond to a Science Times article. Also: Dr. Fauci’s grilling in the House; a shortage of immigration lawyers; presidential rankings.`\
+https://nytimes.com/2024/06/04/opinion/psychiatry-dangerous-patient.html
+
 **A prosecutor includes ‘No one is above the law’ in his opening statement, echoing cases against Trump.**\
 `By Glenn Thrush`\
 https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/a-prosecutor-includes-no-one-is-above-the-law-in-his-opening-statement-echoing-cases-against-trump
@@ -7,7 +15,7 @@ https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/a-prosecutor-inclu
 https://nytimes.com/2024/06/04/arts/television/netflix-new-movies-shows-june.html
 
 **Biden Issues Executive Order to Temporarily Seal the Border to Asylum Seekers**\
-`The order reflects how drastically immigration politics have shifted in the United States as the number of people crossing into the country has surged.`\
+`The American Civil Liberties Union said it planned to challenge the executive action in court.`\
 https://nytimes.com/2024/06/04/us/politics/biden-executive-order-border-asylum.html
 
 **Modi’s party may lose Ayodhya, where he opened a giant Hindu temple.**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/04/dining/nyc-restaurant-news.html
 **Some Gazans Call on Hamas to Accept Cease-Fire Proposal, But Remain Skeptical**\
 `After months of bombardment, many in Gaza believe Hamas should make any compromise necessary to end the war.`\
 https://nytimes.com/2024/06/04/world/middleeast/some-gazans-call-on-hamas-to-accept-cease-fire-proposal-but-remain-skeptical.html
-
-**The-Dream, Hitmaker for Beyoncé and Rihanna, Is Accused of Rape**\
-`In a lawsuit, a former protégée of Terius Gesteelde-Diamant says he entangled her in an abusive relationship. Mr. Gesteelde-Diamant called the allegations “untrue and defamatory.”`\
-https://nytimes.com/2024/06/04/arts/music/the-dream-rape-lawsuit-terius-gesteelde-diamant.html
-
-**‘The Acolyte’ Review: ‘Star Wars’ an Even Longer Time Ago**\
-`The franchise’s latest series on Disney+ is set before there was even an empire to strike back.`\
-https://nytimes.com/2024/06/04/arts/television/star-wars-the-acolyte-review.html
 
