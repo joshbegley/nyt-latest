@@ -1,3 +1,11 @@
+**The government’s case against Hunter Biden is expected to point to his own words.**\
+`By Eileen Sullivan`\
+https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/the-governments-case-against-hunter-biden-is-expected-to-point-to-his-own-words
+
+**Louisiana Passes Surgical Castration Bill for Child Molesters**\
+`The bill, if signed by the governor, would be the first to allow a judge to order surgical procedures for those who commit sex crimes against children.`\
+https://nytimes.com/2024/06/04/us/louisiana-castration-bill.html
+
 **Linguine With Zucchini, Corn and Shrimp is Superbly Summery**\
 `As are lomo saltado, and a snap pea and herb salad with spicy peanut sauce.`\
 https://nytimes.com/2024/06/04/dining/summer-linguine-recipe.html
@@ -29,13 +37,4 @@ https://nytimes.com/2024/06/04/health/mdma-ptsd-fda.html
 **Feud Erupts Over the Prospect of a New Club in the Hamptons**\
 `Scott Sartiano proposed bringing his Manhattan-based members-only hot spot, Zero Bond, to a historic village inn. Local residents are not rolling out the red carpet.`\
 https://nytimes.com/2024/06/04/realestate/east-hampton-zero-bond-club.html
-
-**Public Theater Takes Shakespeare in the Park Out on the Town**\
-`The Delacorte Theater is being renovated, so a musical version of “The Comedy of Errors” is touring some of the city’s outdoor spaces.`\
-https://nytimes.com/2024/06/04/theater/public-theater-comedy-of-errors.html
-
-**When Designing a Dream Home, Choose Timelessly Stylish Tiles**\
-`The Spanish tile maker Porcelanosa shares six tips for incorporating tiles into designs.  
-`\
-https://nytimes.com/paidpost/when-designing-a-dream-home-choose-timelessly-stylish-tiles/porcelanosa/when-designing-a-dream-home-choose-timelessly-stylish-tiles.html
 

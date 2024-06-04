@@ -1,3 +1,11 @@
+**The government’s case against Hunter Biden is expected to point to his own words.**\
+`By Eileen Sullivan`\
+https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/the-governments-case-against-hunter-biden-is-expected-to-point-to-his-own-words
+
+**Louisiana Passes Surgical Castration Bill for Child Molesters**\
+`The bill, if signed by the governor, would be the first to allow a judge to order surgical procedures for those who commit sex crimes against children.`\
+https://nytimes.com/2024/06/04/us/louisiana-castration-bill.html
+
 **Linguine With Zucchini, Corn and Shrimp is Superbly Summery**\
 `As are lomo saltado, and a snap pea and herb salad with spicy peanut sauce.`\
 https://nytimes.com/2024/06/04/dining/summer-linguine-recipe.html
