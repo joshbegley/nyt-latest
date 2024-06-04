@@ -1,3 +1,7 @@
+**Congressman’s Son Makes Faces During His Father’s Speech**\
+`Representative John W. Rose, Republican of Tennessee, unsuspectingly delivered a defense of former President Donald J. Trump on the House floor while his son Guy, age 6, put on a show behind him.`\
+https://nytimes.com/video/us/politics/100000009503182/john-rose-kid-faces.html
+
 **Biden says there is ‘every reason’ to believe Netanyahu is prolonging the war for political reasons.**\
 `By David E. Sanger`\
 https://nytimes.com/live/2024/06/04/world/israel-gaza-war-hamas/biden-says-there-is-every-reason-to-believe-netanyahu-is-prolonging-the-war-for-political-reasons
