@@ -1,3 +1,7 @@
+**Feud Erupts Over the Prospect of a New Club in the Hamptons**\
+`Scott Sartiano proposed bringing his Manhattan-based members-only hot spot, Zero Bond, to a historic village inn. Local residents are not rolling out the red carpet.`\
+https://nytimes.com/2024/06/04/realestate/east-hampton-zero-bond-club.html
+
 **Congressman’s Son Makes Faces During His Father’s Speech**\
 `Representative John W. Rose, Republican of Tennessee, unsuspectingly delivered a defense of former President Donald J. Trump on the House floor while his son Guy, age 6, put on a show behind him.`\
 https://nytimes.com/video/us/politics/100000009503182/john-rose-kid-faces.html

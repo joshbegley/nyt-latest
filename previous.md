@@ -22,7 +22,7 @@ https://nytimes.com/2024/06/04/us/politics/montana-democrats.html
 `An independent group of experts is meeting Tuesday to consider whether to allow use of this illegal drug, also known as Ecstasy, to treat PTSD.`\
 https://nytimes.com/2024/06/04/health/mdma-ptsd-fda.html
 
-**War Erupts Over the Prospect of a New Club in East Hampton**\
+**Feud Erupts Over the Prospect of a New Club in the Hamptons**\
 `Scott Sartiano proposed bringing his Manhattan-based members-only hot spot, Zero Bond, to a historic village inn. Local residents are not rolling out the red carpet.`\
 https://nytimes.com/2024/06/04/realestate/east-hampton-zero-bond-club.html
 
