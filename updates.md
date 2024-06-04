@@ -1,3 +1,7 @@
+**San Diego Is Once Again a Top Migrant Entry Point**\
+`Asylum seekers from around the world are trying to enter the United States through California, and immigrant traffic there has reached its highest level in decades.`\
+https://nytimes.com/2024/06/04/us/san-diego-migrants-california.html
+
 **The government’s case against Hunter Biden is expected to point to his own words.**\
 `By Eileen Sullivan`\
 https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/the-governments-case-against-hunter-biden-is-expected-to-point-to-his-own-words
