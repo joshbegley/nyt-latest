@@ -1,3 +1,11 @@
+**What to Know About Claudia Sheinbaum, Mexico’s President-Elect**\
+`Claudia Sheinbaum’s list of accolades is long: She has earned a Ph.`\
+https://nytimes.com/video/world/americas/100000009504420/what-to-know-about-claudia-sheinbaum-mexicos-president-elect.html
+
+**Rob Burrow, Rugby Star and A.L.S. Campaigner, Dies at 41**\
+`The “Mighty Atom” enjoyed a glittering professional career in Britain before gaining more acclaim for his charity efforts after a diagnosis of motor neuron disease.`\
+https://nytimes.com/2024/06/04/sports/rob-burrow-dead.html
+
 **Gazans Pin Hopes on New Truce Proposal, but Remain Skeptical**\
 `A cease-fire plan described by President Biden has stirred cautious optimism after nearly eight months of war in the Gaza Strip.`\
 https://nytimes.com/2024/06/04/world/middleeast/israel-hamas-ceasefire-proposal-gaza.html
