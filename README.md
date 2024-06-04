@@ -1,3 +1,7 @@
+**When Hydropower Runs Dry**\
+`The struggle of the world’s largest source of renewable last year could have important implications for the fight against climate change.`\
+https://nytimes.com/2024/06/04/climate/global-hydropower-decline.html
+
 **Gizmodo Sold to European Media Company**\
 `The tech website’s publisher, G/O Media, sold Gizmodo to the digital media and tech company Keleops.`\
 https://nytimes.com/2024/06/04/business/media/gizmodo-sold-keleops.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/arts/television/netflix-new-movies-shows-june.htm
 **In Shift, Biden Issues Order Allowing Temporary Border Closure to Migrants**\
 `The move shows how drastically immigration politics have shifted in the United States. The American Civil Liberties Union said it planned to challenge the order in court.`\
 https://nytimes.com/2024/06/04/us/politics/biden-executive-order-border-asylum.html
-
-**Modi’s party may lose Ayodhya, where he opened a giant Hindu temple.**\
-`By Hari Kumar and Alex Travelli`\
-https://nytimes.com/live/2024/06/03/world/india-election-results/modis-party-may-lose-ayodhya-where-he-opened-a-giant-hindu-temple
 
