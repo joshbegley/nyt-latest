@@ -1,3 +1,7 @@
+**Linguine With Zucchini, Corn and Shrimp is Superbly Summery**\
+`As are lomo saltado, and a snap pea and herb salad with spicy peanut sauce.`\
+https://nytimes.com/2024/06/04/dining/summer-linguine-recipe.html
+
 **Feud Erupts Over the Prospect of a New Club in the Hamptons**\
 `Scott Sartiano proposed bringing his Manhattan-based members-only hot spot, Zero Bond, to a historic village inn. Local residents are not rolling out the red carpet.`\
 https://nytimes.com/2024/06/04/realestate/east-hampton-zero-bond-club.html
