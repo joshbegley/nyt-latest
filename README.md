@@ -1,3 +1,15 @@
+**A Conversation With President Zelensky**\
+`In a wide-ranging interview, President Volodymyr Zelensky of Ukraine challenged the West’s hesitations.`\
+https://nytimes.com/2024/06/04/podcasts/the-daily/a-conversation-with-president-zelensky.html
+
+**The Connections Companion No. 360, June 5, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/04/crosswords/connections-companion-360.html
+
+**Wordle Review No. 1,082, June 5, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/04/crosswords/wordle-review-1082.html
+
 **Climate Group Is Running Ads on Biden Policies in Wisconsin and Michigan**\
 `The group, which has ties to Gov. Jay Inslee of Washington, has a $1 million plan for TV spots playing up the president’s record on green power.`\
 https://nytimes.com/2024/06/04/us/politics/biden-ads-climate-wisconsin-michigan.html
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2024/06/04/dining/trademark-food-quiz.html
 **Why We Must Keep the Memory of D-Day Alive**\
 `What we’ll fight for is who we are.`\
 https://nytimes.com/2024/06/04/opinion/d-day-80th-anniversary-veterans.html
-
-**The Verdict Is In on the Supreme Court**\
-`It’s corrupt, rotten and hurting America.`\
-https://nytimes.com/2024/06/04/opinion/columnists/supreme-court-alito-flag.html
-
-**In Arizona, Immigration Policies of the Moment Mimic the Policies of the Past**\
-`Republicans are hoping a proposal revisiting the tough immigration policies of a decade ago will turn out voters.`\
-https://nytimes.com/2024/06/04/us/arizona-immigration-law.html
-
-**How Nurses Known as ‘Black Angels’ Helped Save TB Patients**\
-`An exhibition honors the hundreds of Black nurses who cared for tuberculosis patients in the mid-20th century after white nurses fled a Staten Island hospital.`\
-https://nytimes.com/2024/06/04/nyregion/tuberculosis-black-nurses-staten-island.html
 
