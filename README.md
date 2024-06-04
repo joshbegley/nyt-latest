@@ -1,3 +1,7 @@
+**Gizmodo Sold to European Media Company**\
+`The tech website’s publisher, G/O Media, sold Gizmodo to the digital media and tech company Keleops.`\
+https://nytimes.com/2024/06/04/business/media/gizmodo-sold-keleops.html
+
 **Needing Help to Stay in Office, Modi No Longer Appears All-Powerful**\
 `While Narendra Modi appeared to secure a third term as India’s leader, the election was closer than expected, forcing him to rely on coalition partners that don’t share his Hindu nationalist agenda.`\
 https://nytimes.com/2024/06/04/world/asia/modi-india-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/us/politics/biden-executive-order-border-asylum.h
 **Modi’s party may lose Ayodhya, where he opened a giant Hindu temple.**\
 `By Hari Kumar and Alex Travelli`\
 https://nytimes.com/live/2024/06/03/world/india-election-results/modis-party-may-lose-ayodhya-where-he-opened-a-giant-hindu-temple
-
-**Sean Combs Sells Stake in Revolt, the Media Company He Founded**\
-`After a wave of lawsuits accusing Mr. Combs of sexual assault, the two are “completely separated and dissociated from each other,” the company’s chief executive said.`\
-https://nytimes.com/2024/06/04/arts/music/sean-combs-diddy-sell-stake-revolt.html
 
