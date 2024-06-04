@@ -1,3 +1,7 @@
+**Biden says there is ‘every reason’ to believe Netanyahu is prolonging the war for political reasons.**\
+`By David E. Sanger`\
+https://nytimes.com/live/2024/06/04/world/israel-gaza-war-hamas/biden-says-there-is-every-reason-to-believe-netanyahu-is-prolonging-the-war-for-political-reasons
+
 **‘There Is No Ethan’ Is a Jaw-Dropping Tale of Digital Deception**\
 `Reading Anna Akbari’s memoir of online manipulation, you think you’ve seen it all — then you keep reading.`\
 https://nytimes.com/2024/06/04/books/review/there-is-no-ethan-anna-akbari.html
@@ -34,8 +38,4 @@ https://nytimes.com/2024/06/04/climate/modi-climate-india-election.html
 **Modi’s party tried to woo more voters in India’s south, with mixed results.**\
 `By Pragati K.B.`\
 https://nytimes.com/live/2024/06/03/world/india-election-results/modis-party-tried-to-woo-more-voters-in-indias-south-with-mixed-results
-
-**Jury selection gave a surprising glimpse into Delaware itself.**\
-`By Glenn Thrush and Eileen Sullivan`\
-https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/jury-selection-gave-a-surprising-glimpse-into-delaware-itself
 
