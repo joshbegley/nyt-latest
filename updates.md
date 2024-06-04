@@ -1,3 +1,11 @@
+**Sean Combs Sells Stake in Revolt, the Media Company He Founded**\
+`After a wave of lawsuits accusing Mr. Combs of sexual assault, the two are “completely separated and dissociated from each other,” the company’s chief executive said.`\
+https://nytimes.com/2024/06/04/arts/music/sean-combs-diddy-sell-stake-revolt.html
+
+**Jez Butterworth’s ‘The Hills of California’ to Open on Broadway**\
+`The play, about a group of English sisters who reunite at their mother’s deathbed, plans to open in New York in September. It ends a London run this month.`\
+https://nytimes.com/2024/06/04/theater/jez-butterworth-hills-california-broadway.html
+
 **The Restaurant at Bedford Post Reopens With Tavern Fare**\
 `Nomad Tea Parlour offers dim sum and takes on Chinese American specialties, Veselka opens an outpost in Williamsburg and more restaurant news.`\
 https://nytimes.com/2024/06/04/dining/nyc-restaurant-news.html

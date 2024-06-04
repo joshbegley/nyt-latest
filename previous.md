@@ -1,3 +1,11 @@
+**Sean Combs Sells Stake in Revolt, the Media Company He Founded**\
+`After a wave of lawsuits accusing Mr. Combs of sexual assault, the two are “completely separated and dissociated from each other,” the company’s chief executive said.`\
+https://nytimes.com/2024/06/04/arts/music/sean-combs-diddy-sell-stake-revolt.html
+
+**Jez Butterworth’s ‘The Hills of California’ to Open on Broadway**\
+`The play, about a group of English sisters who reunite at their mother’s deathbed, plans to open in New York in September. It ends a London run this month.`\
+https://nytimes.com/2024/06/04/theater/jez-butterworth-hills-california-broadway.html
+
 **The Restaurant at Bedford Post Reopens With Tavern Fare**\
 `Nomad Tea Parlour offers dim sum and takes on Chinese American specialties, Veselka opens an outpost in Williamsburg and more restaurant news.`\
 https://nytimes.com/2024/06/04/dining/nyc-restaurant-news.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/04/us/louisiana-castration-bill.html
 **Linguine With Zucchini, Corn and Shrimp is Superbly Summery**\
 `As are lomo saltado, and a snap pea and herb salad with spicy peanut sauce.`\
 https://nytimes.com/2024/06/04/dining/summer-linguine-recipe.html
-
-**Congressman’s Son Makes Faces During His Father’s Speech**\
-`Representative John W. Rose, Republican of Tennessee, unsuspectingly delivered a defense of former President Donald J. Trump on the House floor while his son Guy, age 6, put on a show behind him.`\
-https://nytimes.com/video/us/politics/100000009503182/john-rose-kid-faces.html
-
-**Biden says there is ‘every reason’ to believe Netanyahu is prolonging the war for political reasons.**\
-`By David E. Sanger`\
-https://nytimes.com/live/2024/06/04/world/israel-gaza-war-hamas/biden-says-there-is-every-reason-to-believe-netanyahu-is-prolonging-the-war-for-political-reasons
 
