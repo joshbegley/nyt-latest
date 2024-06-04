@@ -1,3 +1,15 @@
+**Jury selection gave a surprising glimpse into Delaware itself.**\
+`By Glenn Thrush and Eileen Sullivan`\
+https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/jury-selection-gave-a-surprising-glimpse-into-delaware-itself
+
+**A Changing of the Guard at the Royal Opera**\
+`Antonio Pappano says the London house, where he is wrapping up 22 years as music director, “will always be my home.”`\
+https://nytimes.com/2024/06/04/arts/music/antonio-pappano-royal-opera-departure-interview.html
+
+**Rwanda’s 2024 Election: What to Know**\
+`President Paul Kagame led Rwanda out of the genocide, but has since dominated the country like a colossus. He is running for a fourth term after winning three elections.`\
+https://nytimes.com/2024/06/04/world/africa/rwanda-2024-election.html
+
 **A Rare Type of Voice Gets a New Audience**\
 `A revival of Handel’s “Giulio Cesare” this summer at Glyndebourne, an English opera festival, features three countertenors with three different sounds.`\
 https://nytimes.com/2024/06/04/arts/music/handel-opera-glynebourne-festival.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/04/world/asia/india-stock-market-election.html
 **For Heroes of D-Day, This Reunion Might Be a ‘Last Hurrah’**\
 `It is 80 years since the Allied invasion of Normandy, and the average age of veterans hovers at 100. Once they are gone, how will their sacrifices be remembered?`\
 https://nytimes.com/2024/06/04/d-day-reunion-ww-ii-veterans.html
-
-**A Developing Heat Wave Will Be a ‘Shock to the System’**\
-`Inland parts of the state are expected to reach triple-digit temperatures this week.`\
-https://nytimes.com/2024/06/04/us/heat-wave.html
-
-**OpenAI Insiders Warn of a ‘Reckless’ Race for Dominance**\
-`A group of current and former employees are calling for sweeping changes to the artificial intelligence industry, including greater transparency and protections for whistle-blowers.`\
-https://nytimes.com/2024/06/04/technology/openai-culture-whistleblowers.html
-
-**Leo Wise, who was assigned the case just before the plea deal collapsed, is known as an aggressive prosecutor.**\
-`By Glenn Thrush`\
-https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/leo-wise-who-was-assigned-the-case-just-before-the-plea-deal-collapsed-is-known-as-an-aggressive-prosecutor
 
