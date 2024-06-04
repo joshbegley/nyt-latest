@@ -1,3 +1,7 @@
+**Qatar Aims to Increase its Influence in the Realms of Art and Film**\
+`The Art for Tomorrow conference in Venice provides an opportunity for the Middle East at large to change how it’s portrayed.`\
+https://nytimes.com/2024/06/03/arts/qatar-art-film-middle-east.html
+
 **2024 India General Election: Live Results**\
 `See results and maps from India’s 2024 Lok Sabha elections.`\
 https://nytimes.com/interactive/2024/06/03/world/asia/results-india-lok-sabha-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/03/opinion/trumps-weaponized-justice-system.html
 **Should Biden Downplay His Own Success?**\
 `A radical idea: The administration should just tell the truth.`\
 https://nytimes.com/2024/06/03/opinion/biden-economy.html
-
-**Janis Paige, Star of Broadway’s ‘The Pajama Game,’ Is Dead at 101**\
-`She first made her mark in the all-star 1944 movie “Hollywood Canteen” before finding acclaim on the musical stage. Movie and TV roles followed.`\
-https://nytimes.com/2024/06/03/theater/janis-paige-dead.html
 
