@@ -1,3 +1,11 @@
+**‘The Singer in the Village’ Who Became an Opera Star**\
+`During a break at the Royal Opera House, Aigul Akhmetshina discussed her action-packed career, “Carmen” and her mission to spread her love of opera.`\
+https://nytimes.com/2024/06/04/arts/music/opera-star-aigul-akhmetshina.html
+
+**Primaries will cement a crucial Senate race in Montana.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/06/04/us/trump-biden-election/primaries-will-cement-a-crucial-senate-race-in-montana
+
 **How Did Cats Take Over the World? One Bizarre Drawing at a Time.**\
 `In “Catland,” Kathryn Hughes has a theory about our obsession with our feline friends — and one cat lover in particular.`\
 https://nytimes.com/2024/06/04/books/review/catland-kathryn-hughes.html

@@ -1,3 +1,7 @@
+**A Rare Type of Voice Gets a New Audience**\
+`A revival of Handel’s “Giulio Cesare” this summer at Glyndebourne, an English opera festival, features three countertenors with three different sounds.`\
+https://nytimes.com/2024/06/04/arts/music/handel-opera-glynebourne-festival.html
+
 **‘The Singer in the Village’ Who Became an Opera Star**\
 `During a break at the Royal Opera House, Aigul Akhmetshina discussed her action-packed career, “Carmen” and her mission to spread her love of opera.`\
 https://nytimes.com/2024/06/04/arts/music/opera-star-aigul-akhmetshina.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/technology/openai-culture-whistleblowers.html
 **Leo Wise, who was assigned the case just before the plea deal collapsed, is known as an aggressive prosecutor.**\
 `By Glenn Thrush`\
 https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/leo-wise-who-was-assigned-the-case-just-before-the-plea-deal-collapsed-is-known-as-an-aggressive-prosecutor
-
-**Jill Biden has turned out to support Hunter Biden in the first days of the trial.**\
-`By Glenn Thrush`\
-https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/jill-biden-turned-out-to-support-hunter-biden-on-the-first-day-of-his-trial
 
