@@ -1,3 +1,7 @@
+**Can A.I. Rethink Art? Should it?**\
+`There is an increasing overlap between art and artificial intelligence. Some celebrate it, while others worry.`\
+https://nytimes.com/2024/06/03/arts/ai-art-overlap.html
+
 **At Museums, a Revolution Gains Momentum**\
 `Faced with dwindling attendance and changing demographics, museum directors are shifting their approach, with an eye toward “radical hospitality.”`\
 https://nytimes.com/2024/06/03/arts/design/museums-strategy-increase-attendance.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/03/us/politics/biden-israel-ukraine.html
 **Epoch Times Executive Accused of Laundering $67 Million**\
 `Weidong Guan was charged with three counts in a scheme that the Justice Department said caused revenue to surge for the company, which has promoted Donald Trump and conspiracy theories.`\
 https://nytimes.com/2024/06/03/us/politics/epoch-times-money-laundering-doj.html
-
-**Harvard’s Largest Faculty Division Will No Longer Require Diversity Statements**\
-`Instead, the Faculty of Arts and Sciences will require applicants to describe their “efforts to strengthen academic communities,” a senior university leader said an email.`\
-https://nytimes.com/2024/06/03/us/harvard-diversity-statements.html
 
