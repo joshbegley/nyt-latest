@@ -1,3 +1,15 @@
+**This D-Day, Europe Needs to Resolve to Get Its Act Together**\
+`People, and nations, succeed or fail to the extent that they refuse to hand over responsibility for their fates to others.`\
+https://nytimes.com/2024/06/04/opinion/columnists/dday-nato-europe.html
+
+**How Biden’s Asylum Order Works**\
+`The president issued an executive order that essentially blocks asylum claims at the southern border, a major shift in how the United States has handled claims for protection.`\
+https://nytimes.com/2024/06/04/us/politics/biden-immigration-asylum-order-explainer.html
+
+**Halsey, Dealing With Illness, Announces New Album and Song**\
+`The pop star did not specify what illness they were confronting in their announcement.`\
+https://nytimes.com/2024/06/04/arts/halsey-illness-new-album.html
+
 **What to Know About Claudia Sheinbaum, Mexico’s President-Elect**\
 `Claudia Sheinbaum’s list of accolades is long: She has earned a Ph.`\
 https://nytimes.com/video/world/americas/100000009504420/what-to-know-about-claudia-sheinbaum-mexicos-president-elect.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/us/politics/100000009504419/merrick-garland-republican
 **Both Democrats and Republicans Embrace Border Politics**\
 `Also, India’s election was closer than expected. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/06/04/briefing/arizona-biden-border-politics-india-election.html
-
-**Muhammad Ali’s Childhood Home Goes on the Market**\
-`The boxing champion lived in the one-story house in Louisville, Ky., which in recent years became a museum. It’s listed for sale, along with two neighboring properties, for $1.5 million.`\
-https://nytimes.com/2024/06/04/sports/muhammad-ali-childhood-home-sale.html
-
-**Transcript: Ezra Klein Interviews Sam Rosenfeld and Daniel Schlozman**\
-`The June 4, 2024, episode of “The Ezra Klein Show.”`\
-https://nytimes.com/2024/06/04/podcasts/transcript-ezra-klein-interviews-sam-rosenfeld-and-daniel-schlozman.html
-
-**Nonny Hogrogian, 92, Honored Illustrator of Children’s Books, Dies**\
-`A two-time Caldecott Medal winner, she brought multiculturalism to children’s literature by evoking her Armenian heritage.`\
-https://nytimes.com/2024/06/04/books/nonny-hogrogian-dead.html
 

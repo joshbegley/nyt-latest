@@ -1,3 +1,15 @@
+**This D-Day, Europe Needs to Resolve to Get Its Act Together**\
+`People, and nations, succeed or fail to the extent that they refuse to hand over responsibility for their fates to others.`\
+https://nytimes.com/2024/06/04/opinion/columnists/dday-nato-europe.html
+
+**How Biden’s Asylum Order Works**\
+`The president issued an executive order that essentially blocks asylum claims at the southern border, a major shift in how the United States has handled claims for protection.`\
+https://nytimes.com/2024/06/04/us/politics/biden-immigration-asylum-order-explainer.html
+
+**Halsey, Dealing With Illness, Announces New Album and Song**\
+`The pop star did not specify what illness they were confronting in their announcement.`\
+https://nytimes.com/2024/06/04/arts/halsey-illness-new-album.html
+
 **Nonny Hogrogian, 92, Honored Illustrator of Children’s Books, Dies**\
 `A two-time Caldecott Medal winner, she brought multiculturalism to children’s literature by evoking her Armenian heritage.`\
 https://nytimes.com/2024/06/04/books/nonny-hogrogian-dead.html
