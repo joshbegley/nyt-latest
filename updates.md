@@ -1,3 +1,7 @@
+**University of the Arts President Resigns After School Announces Closure**\
+`Kerry Walk announced last week that the institution would close on June 7, leaving hundreds of students in academic limbo.`\
+https://nytimes.com/2024/06/04/arts/design/university-arts-kerry-walk-philadelphia.html
+
 **A Year After Orange Skies Covered N.Y.C., Residents Get Another Air Quality Alert**\
 `This time ozone, not smoke, was to blame.`\
 https://nytimes.com/2024/06/04/weather/air-quality-nyc.html
