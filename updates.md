@@ -1,3 +1,19 @@
+**A Developing Heat Wave Will Be a ‘Shock to the System’**\
+`Inland parts of the state are expected to reach triple-digit temperatures this week.`\
+https://nytimes.com/2024/06/04/us/heat-wave.html
+
+**OpenAI Insiders Warn of a ‘Reckless’ Race for Dominance**\
+`A group of current and former employees are calling for sweeping changes to the artificial intelligence industry, including greater transparency and protections for whistle-blowers.`\
+https://nytimes.com/2024/06/04/technology/openai-culture-whistleblowers.html
+
+**Leo Wise, who was assigned the case just before the plea deal collapsed, is known as an aggressive prosecutor.**\
+`By Glenn Thrush`\
+https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/leo-wise-who-was-assigned-the-case-just-before-the-plea-deal-collapsed-is-known-as-an-aggressive-prosecutor
+
+**Here are the felony charges Hunter Biden faces in the gun case.**\
+`By Glenn Thrush`\
+https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/here-are-the-gun-charges-hunter-biden-faces
+
 **Jill Biden turned out to support Hunter Biden on the first day of his trial.**\
 `By Glenn Thrush`\
 https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/jill-biden-turned-out-to-support-hunter-biden-on-the-first-day-of-his-trial
