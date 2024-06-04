@@ -1,3 +1,7 @@
+**Biden Issues Order to Curb Immigration at Southern Border**\
+`President Biden’s executive order prevents migrants from seeking asylum at the U.S.-Mexico border when crossings surge.`\
+https://nytimes.com/video/us/politics/100000009504073/biden-border-immigration.html
+
 **Ukraine Strikes Into Russia With Western Weapons, Official Says**\
 `The official said Ukraine had destroyed missile launchers in the Russian region of Belgorod using an American-made rocket system.`\
 https://nytimes.com/2024/06/04/world/europe/ukraine-strikes-russia-western-weapons.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/arts/music/amplifier-newsletter-charli-xcx.html
 **Hostage families, initially optimistic on a new cease-fire deal, feel hope slipping away.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/06/04/world/israel-gaza-war-hamas/hostage-families-initially-optimistic-on-a-new-cease-fire-deal-feel-hope-slipping-away
-
-**Traveling to Europe, Biden Will Find Both Solidarity and Isolation**\
-`The president leaves on Tuesday to mark the 80th anniversary of the D-Day invasion in France, where he will rally American allies in defense of Ukraine even as he defies them on the war in Gaza.`\
-https://nytimes.com/2024/06/04/us/politics/biden-europe-israel-ukraine.html
 
