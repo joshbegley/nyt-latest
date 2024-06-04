@@ -1,3 +1,7 @@
+**‘There Is No Ethan’ Is a Jaw-Dropping Tale of Digital Deception**\
+`Reading Anna Akbari’s memoir of online manipulation, you think you’ve seen it all — then you keep reading.`\
+https://nytimes.com/2024/06/04/books/review/there-is-no-ethan-anna-akbari.html
+
 **For some jurors, getting to the trial could be a challenge.**\
 `By Zach Montague`\
 https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/for-some-jurors-getting-to-the-trial-could-be-a-challenge
@@ -34,8 +38,4 @@ https://nytimes.com/live/2024/06/03/world/india-election-results/modis-party-tri
 **Jury selection gave a surprising glimpse into Delaware itself.**\
 `By Glenn Thrush and Eileen Sullivan`\
 https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/jury-selection-gave-a-surprising-glimpse-into-delaware-itself
-
-**A Changing of the Guard at the Royal Opera**\
-`Antonio Pappano says the London house, where he is wrapping up 22 years as music director, “will always be my home.”`\
-https://nytimes.com/2024/06/04/arts/music/antonio-pappano-royal-opera-departure-interview.html
 
