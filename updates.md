@@ -1,3 +1,7 @@
+**How Modi Capitalized on India’s Economic Rise**\
+`Prime Minister Narendra Modi inherited a big and growing economy, kept it going and worked to put his imprint on every aspect of its success.`\
+https://nytimes.com/2024/06/04/world/asia/india-election-economy.html
+
 **Tuesday Briefing**\
 `Mexico’s new president.`\
 https://nytimes.com/2024/06/04/briefing/elections-mexico-india.html
