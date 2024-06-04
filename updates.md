@@ -1,3 +1,11 @@
+**Trading Glitch Sends Some Shares on a Wild Ride**\
+`Berkshire Hathaway showed a drop of 99 percent before trading was halted and the technical problem corrected.`\
+https://nytimes.com/2024/06/03/business/nyse-trading-glitch-berkshire-hathaway.html
+
+**The Low-Key British Newshound Taking Charge of The Washington Post**\
+`Robert Winnett is virtually unknown in the U.S. and keeps a low profile in his native Britain, too. This fall, he will oversee the newsroom of Woodward and Bernstein.`\
+https://nytimes.com/2024/06/03/business/media/robert-winnett-washington-post.html
+
 **In Israel and Ukraine, Biden Navigates Two of America’s Most Difficult Allies**\
 `President Biden has promised to support the two countries for as long as it takes. Both their wars appear to be at critical turning points.`\
 https://nytimes.com/2024/06/03/us/politics/biden-israel-ukraine.html
