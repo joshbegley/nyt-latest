@@ -1,3 +1,7 @@
+**Wednesday Briefing: Modi’s Bruising Path to a Third Term**\
+`Also, a Times analysis of the destruction in Ukraine.`\
+https://nytimes.com/2024/06/04/world/asia/modi-election-results-bjp-ukraine-asia.html
+
 **House Votes to Impose Sanctions on I.C.C. Officials Over Israel Prosecution**\
 `The Republican-written bill, which the White House strongly opposes, stands little chance of becoming law after lawmakers failed to reach a bipartisan deal on penalizing measures.`\
 https://nytimes.com/2024/06/04/us/politics/house-vote-icc-israel.html

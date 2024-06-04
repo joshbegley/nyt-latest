@@ -1,3 +1,7 @@
+**Wednesday Briefing: Modi’s Bruising Path to a Third Term**\
+`Also, a Times analysis of the destruction in Ukraine.`\
+https://nytimes.com/2024/06/04/world/asia/modi-election-results-bjp-ukraine-asia.html
+
 **House Votes to Impose Sanctions on I.C.C. Officials Over Israel Prosecution**\
 `The Republican-written bill, which the White House strongly opposes, stands little chance of becoming law after lawmakers failed to reach a bipartisan deal on penalizing measures.`\
 https://nytimes.com/2024/06/04/us/politics/house-vote-icc-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/t-magazine/lesbian-fashion-kristen-stewart.html
 **Biden Issues Order to Curb Immigration at Southern Border**\
 `President Biden’s executive order prevents migrants from seeking asylum at the U.S.-Mexico border when crossings surge.`\
 https://nytimes.com/video/us/politics/100000009504073/biden-border-immigration.html
-
-**Ukraine Strikes Into Russia With Western Weapons, Official Says**\
-`The official said Ukraine had destroyed missile launchers in the Russian region of Belgorod using an American-made rocket system.`\
-https://nytimes.com/2024/06/04/world/europe/ukraine-strikes-russia-western-weapons.html
 
