@@ -1,5 +1,5 @@
-**The Climate Challenges That Would Face India’s Modi in a Third Term**\
-`Farmers have repeatedly protested over grievances tied to global warming, a major test for the prime minister given the importance of India’s rural economy.`\
+**The Climate Challenges That India’s Next Government Will Face**\
+`Farmers have repeatedly protested over grievances tied to global warming, a major political and economic test given the importance of India’s rural economy.`\
 https://nytimes.com/2024/06/04/climate/modi-climate-india-election.html
 
 **Modi’s party tried to woo more voters in India’s south, with mixed results.**\
