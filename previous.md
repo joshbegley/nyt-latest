@@ -1,3 +1,11 @@
+**The Best Movies and TV Shows Coming to Netflix in June**\
+`The final season of “Sweet Tooth” and a Richard Linklater rom-com highlight this month’s slate.`\
+https://nytimes.com/2024/06/04/arts/television/netflix-new-movies-shows-june.html
+
+**Biden Issues Executive Order to Temporarily Seal the Border to Asylum Seekers**\
+`The order reflects how drastically immigration politics have shifted in the United States as the number of people crossing into the country has surged.`\
+https://nytimes.com/2024/06/04/us/politics/biden-executive-order-border-asylum.html
+
 **Modi’s party may lose Ayodhya, where he opened a giant Hindu temple.**\
 `By Hari Kumar and Alex Travelli`\
 https://nytimes.com/live/2024/06/03/world/india-election-results/modis-party-may-lose-ayodhya-where-he-opened-a-giant-hindu-temple
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/04/arts/television/star-wars-the-acolyte-review.html
 **San Diego Is Once Again a Top Migrant Entry Point**\
 `Asylum seekers from around the world are trying to enter the United States through California, and immigrant traffic there has reached its highest level in decades.`\
 https://nytimes.com/2024/06/04/us/san-diego-migrants-california.html
-
-**The government’s case against Hunter Biden is expected to point to his own words.**\
-`By Eileen Sullivan`\
-https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/the-governments-case-against-hunter-biden-is-expected-to-point-to-his-own-words
-
-**Louisiana Passes Surgical Castration Bill for Child Molesters**\
-`The bill, if signed by the governor, would be the first to allow a judge to order surgical procedures for those who commit sex crimes against children.`\
-https://nytimes.com/2024/06/04/us/louisiana-castration-bill.html
 
