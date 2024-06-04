@@ -1,3 +1,7 @@
+**Senator Menendez Enjoyed a Steakhouse Dinner, as the F.B.I. Watched**\
+`At Senator Robert Menendez’s bribery trial, an investigator described surveilling diners at a Washington restaurant. Among them were Mr. Menendez and an Egyptian official.`\
+https://nytimes.com/2024/06/04/nyregion/fbi-surveillance-robert-nadine-menendez.html
+
 **Ron Edmonds, 77, Whose Camera Captured the Shooting of Reagan, Dies**\
 `Working for The Associated Press, he won a Pulitzer Prize for his sequence of photos showing the president being struck by a bullet while three others fell wounded.`\
 https://nytimes.com/2024/06/04/business/media/ron-edmonds-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/health/fda-mdma-therapy-ptsd.html
 **After Trump’s Conviction, House Republicans Vow Again to Target His Foes**\
 `Speaker Mike Johnson announced a “three-pronged approach” for how Republicans on Capitol Hill would push back against the prosecutions of the former president.`\
 https://nytimes.com/2024/06/04/us/politics/after-trumps-conviction-house-republicans-vow-again-to-target-his-foes.html
-
-**Garland Says He ‘Will Not Be Intimidated’ by House Republicans**\
-`Attorney General Merrick B. Garland, testifying before the House Judiciary Committee, defended the Justice Department against false accusations made by former President Donald J. Trump and his congressional allies.`\
-https://nytimes.com/video/us/politics/100000009504419/merrick-garland-republicans-house.html
 
