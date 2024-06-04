@@ -1,3 +1,7 @@
+**Devastation in Ukraine**\
+`Measuring every town, street and building blown apart since the Russian invasion.`\
+https://nytimes.com/2024/06/04/briefing/ukraine-russia-damage.html
+
 **A Conversation With President Zelensky**\
 `In a wide-ranging interview, President Volodymyr Zelensky of Ukraine challenged the West’s hesitations.`\
 https://nytimes.com/2024/06/04/podcasts/the-daily/a-conversation-with-president-zelensky.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/world/americas/mexico-president-sheinbaum-amlo.ht
 **Can Confetti Cake Be Trademarked? Or Idaho Potatoes? Take Our Quiz.**\
 `Whether a food brand gets special protection hinges on complicated (and not always consistent) legal calculations. How good are you at spotting a real trademark?`\
 https://nytimes.com/interactive/2024/06/04/dining/trademark-food-quiz.html
-
-**Why We Must Keep the Memory of D-Day Alive**\
-`What we’ll fight for is who we are.`\
-https://nytimes.com/2024/06/04/opinion/d-day-80th-anniversary-veterans.html
 
