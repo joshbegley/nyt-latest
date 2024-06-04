@@ -1,3 +1,15 @@
+**A Developing Heat Wave Will Be a ‘Shock to the System’**\
+`Inland parts of the state are expected to reach triple-digit temperatures this week.`\
+https://nytimes.com/2024/06/04/us/heat-wave.html
+
+**OpenAI Insiders Warn of a ‘Reckless’ Race for Dominance**\
+`A group of current and former employees are calling for sweeping changes to the artificial intelligence industry, including greater transparency and protections for whistle-blowers.`\
+https://nytimes.com/2024/06/04/technology/openai-culture-whistleblowers.html
+
+**Leo Wise, who was assigned the case just before the plea deal collapsed, is known as an aggressive prosecutor.**\
+`By Glenn Thrush`\
+https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/leo-wise-who-was-assigned-the-case-just-before-the-plea-deal-collapsed-is-known-as-an-aggressive-prosecutor
+
 **Jill Biden turned out to support Hunter Biden on the first day of his trial.**\
 `By Glenn Thrush`\
 https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/jill-biden-turned-out-to-support-hunter-biden-on-the-first-day-of-his-trial
@@ -6,7 +18,7 @@ https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/jill-biden-turned-
 `The president’s son is accused of lying about his drug use i`\
 https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/heres-the-latest-on-hunter-bidens-gun-trial
 
-**Here are the gun charges Hunter Biden faces.**\
+**Here are the felony charges Hunter Biden faces in the gun case.**\
 `By Glenn Thrush`\
 https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/here-are-the-gun-charges-hunter-biden-faces
 
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/04/us/politics/garland-republicans-justice-departmen
 **Early Election Results Suggest Sharp Turnaround for Indian National Congress**\
 `India’s beleaguered main opposition party was on track to surpass expectations and nearly double its share of parliamentary seats from 2019.`\
 https://nytimes.com/2024/06/04/world/asia/indian-national-congress-rahul-gandhi-election.html
-
-**Devastation in Ukraine**\
-`Measuring every town, street and building blown apart since the Russian invasion.`\
-https://nytimes.com/2024/06/04/briefing/ukraine-russia-damage.html
-
-**A Conversation With President Zelensky**\
-`In a wide-ranging interview, President Volodymyr Zelensky of Ukraine challenged the West’s hesitations.`\
-https://nytimes.com/2024/06/04/podcasts/the-daily/a-conversation-with-president-zelensky.html
-
-**The Connections Companion No. 360, June 5, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/06/04/crosswords/connections-companion-360.html
 
