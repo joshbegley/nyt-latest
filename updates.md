@@ -1,3 +1,7 @@
+**A Year After Orange Skies Covered N.Y.C., Residents Get Another Air Quality Alert**\
+`This time ozone, not smoke, was to blame.`\
+https://nytimes.com/2024/06/04/weather/air-quality-nyc.html
+
 **‘Bad Boys: Ride or Die’ Review: Older, but Never Wiser**\
 `In their latest buddy cop movie, Will Smith and Martin Lawrence are still speeding through Miami. The franchise has rarely felt so assured, relaxed and knowingly funny.`\
 https://nytimes.com/2024/06/04/movies/bad-boys-ride-or-die-review.html
