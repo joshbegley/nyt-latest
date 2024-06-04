@@ -34,7 +34,7 @@ https://nytimes.com/2024/06/04/sports/muhammad-ali-childhood-home-sale.html
 `The June 4, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/06/04/podcasts/transcript-ezra-klein-interviews-sam-rosenfeld-and-daniel-schlozman.html
 
-**Nonny Hogrogian Dies at 92; Infused Her Illustrations With Old-World Wonder**\
-`A two-time Caldecott Medal winner, she brought multiculturalism to children’s books by drawing on her Armenian heritage.`\
+**Nonny Hogrogian, 92, Honored Illustrator of Children’s Books, Dies**\
+`A two-time Caldecott Medal winner, she brought multiculturalism to children’s literature by evoking her Armenian heritage.`\
 https://nytimes.com/2024/06/04/books/nonny-hogrogian-dead.html
 
