@@ -1,3 +1,15 @@
+**Jury selection gave a surprising glimpse into Delaware itself.**\
+`By Glenn Thrush and Eileen Sullivan`\
+https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/jury-selection-gave-a-surprising-glimpse-into-delaware-itself
+
+**A Changing of the Guard at the Royal Opera**\
+`Antonio Pappano says the London house, where he is wrapping up 22 years as music director, “will always be my home.”`\
+https://nytimes.com/2024/06/04/arts/music/antonio-pappano-royal-opera-departure-interview.html
+
+**Rwanda’s 2024 Election: What to Know**\
+`President Paul Kagame led Rwanda out of the genocide, but has since dominated the country like a colossus. He is running for a fourth term after winning three elections.`\
+https://nytimes.com/2024/06/04/world/africa/rwanda-2024-election.html
+
 **A Rare Type of Voice Gets a New Audience**\
 `A revival of Handel’s “Giulio Cesare” this summer at Glyndebourne, an English opera festival, features three countertenors with three different sounds.`\
 https://nytimes.com/2024/06/04/arts/music/handel-opera-glynebourne-festival.html
