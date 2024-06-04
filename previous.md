@@ -1,3 +1,7 @@
+**Woman Declared Dead Is Found Alive at Funeral Home**\
+`Constance Glantz, 74, of Lincoln, Neb., was pronounced dead in a nursing home. A funeral home employee preparing her body realized that she was breathing.`\
+https://nytimes.com/2024/06/03/us/nebraska-dead-woman-alive-funeral-home.html
+
 **Brother Marquis, Member of Rap Group 2 Live Crew, Dies**\
 `Born Mark Ross, he was a well-known member of the group, which fueled a debate about artistic freedom.`\
 https://nytimes.com/2024/06/03/arts/music/brother-marquis-dead.html
@@ -10,7 +14,7 @@ https://nytimes.com/2024/06/03/us/politics/trump-convicted-felon-biden.html
 `By Mujib Mashal and Alex Travelli`\
 https://nytimes.com/live/2024/06/03/world/india-election-results/heres-the-latest-on-the-election-in-india
 
-**Live Updates: India to Release Election Results as Modi Seeks Third Term**\
+**Live Updates: India Starts Releasing Election Results as Modi Seeks Third Term**\
 `Exit polls show Prime Minister Narendra Modi’s party winning a majority. More than 600 million people cast ballots in an election seen as a referendum on Mr. Modi’s 10 years in power.`\
 https://nytimes.com/live/2024/06/03/world/india-election-results
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/03/arts/art-power-healing.html
 **Qatar Aims to Increase its Influence in the Realms of Art and Film**\
 `The Art for Tomorrow conference in Venice provides an opportunity for the Middle East at large to change how it’s portrayed.`\
 https://nytimes.com/2024/06/03/arts/qatar-art-film-middle-east.html
-
-**2024 India General Election: Live Results**\
-`See results and maps from India’s 2024 Lok Sabha elections.`\
-https://nytimes.com/interactive/2024/06/03/world/asia/results-india-lok-sabha-election.html
 
