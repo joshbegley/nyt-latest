@@ -1,3 +1,11 @@
+**What to Know About Claudia Sheinbaum, Mexico’s President-Elect**\
+`Claudia Sheinbaum’s list of accolades is long: She has earned a Ph.`\
+https://nytimes.com/video/world/americas/100000009504420/what-to-know-about-claudia-sheinbaum-mexicos-president-elect.html
+
+**Rob Burrow, Rugby Star and A.L.S. Campaigner, Dies at 41**\
+`The “Mighty Atom” enjoyed a glittering professional career in Britain before gaining more acclaim for his charity efforts after a diagnosis of motor neuron disease.`\
+https://nytimes.com/2024/06/04/sports/rob-burrow-dead.html
+
 **Gazans Pin Hopes on New Truce Proposal, but Remain Skeptical**\
 `A cease-fire plan described by President Biden has stirred cautious optimism after nearly eight months of war in the Gaza Strip.`\
 https://nytimes.com/2024/06/04/world/middleeast/israel-hamas-ceasefire-proposal-gaza.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/04/podcasts/transcript-ezra-klein-interviews-sam-ros
 **Nonny Hogrogian Dies at 92; Infused Her Illustrations With Old-World Wonder**\
 `A two-time Caldecott Medal winner, she brought multiculturalism to children’s books by drawing on her Armenian heritage.`\
 https://nytimes.com/2024/06/04/books/nonny-hogrogian-dead.html
-
-**Fingers Point as Biden Closes Border to Asylum Seekers**\
-`The president blamed Donald Trump and Republicans for the failure of a previous immigration plan. Mr. Trump called the new action too little, too late.`\
-https://nytimes.com/2024/06/04/us/politics/trump-biden-border-gop-democrats.html
-
-**Would a Banana Republic Put the President’s Son on Trial?**\
-`There’s no basis for the MAGA complaint that Biden has broken the justice system.`\
-https://nytimes.com/live/2024/06/04/opinion/thepoint/would-a-banana-republic-put-the-presidents-son-on-trial
 
