@@ -1,3 +1,11 @@
+**Here’s the latest on the election in India.**\
+`By Mujib Mashal and Alex Travelli`\
+https://nytimes.com/live/2024/06/03/world/india-election-results/heres-the-latest-on-the-election-in-india
+
+**Live Updates: India to Release Election Results as Modi Seeks Third Term**\
+`Exit polls show Prime Minister Narendra Modi’s party winning a majority. More than 600 million people cast ballots in an election seen as a referendum on Mr. Modi’s 10 years in power.`\
+https://nytimes.com/live/2024/06/03/world/india-election-results
+
 **Can A.I. Rethink Art? Should it?**\
 `There is an increasing overlap between art and artificial intelligence. Some celebrate it, while others worry.`\
 https://nytimes.com/2024/06/03/arts/ai-art-overlap.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/03/business/nyse-trading-glitch-berkshire-hathaway.h
 **The Low-Key British Newshound Taking Charge of The Washington Post**\
 `Robert Winnett is virtually unknown in the U.S. and keeps a low profile in his native Britain, too. This fall, he will oversee the newsroom of Woodward and Bernstein.`\
 https://nytimes.com/2024/06/03/business/media/robert-winnett-washington-post.html
-
-**In Israel and Ukraine, Biden Navigates Two of America’s Most Difficult Allies**\
-`President Biden has promised to support the two countries for as long as it takes. Both their wars appear to be at critical turning points.`\
-https://nytimes.com/2024/06/03/us/politics/biden-israel-ukraine.html
-
-**Epoch Times Executive Accused of Laundering $67 Million**\
-`Weidong Guan was charged with three counts in a scheme that the Justice Department said caused revenue to surge for the company, which has promoted Donald Trump and conspiracy theories.`\
-https://nytimes.com/2024/06/03/us/politics/epoch-times-money-laundering-doj.html
 

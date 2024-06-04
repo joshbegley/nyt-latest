@@ -1,3 +1,11 @@
+**Brother Marquis, Member of Rap Group 2 Live Crew, Dies**\
+`Born Mark Ross, he was a well-known member of the group, which fueled a debate about artistic freedom.`\
+https://nytimes.com/2024/06/03/arts/music/brother-marquis-dead.html
+
+**Biden Goes After Trump’s Felon Status at Connecticut Fund-Raiser**\
+`Democrats had been clamoring for the president to ratchet up his criticism of his predecessor.`\
+https://nytimes.com/2024/06/03/us/politics/trump-convicted-felon-biden.html
+
 **Here’s the latest on the election in India.**\
 `By Mujib Mashal and Alex Travelli`\
 https://nytimes.com/live/2024/06/03/world/india-election-results/heres-the-latest-on-the-election-in-india
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/03/arts/qatar-art-film-middle-east.html
 **2024 India General Election: Live Results**\
 `See results and maps from India’s 2024 Lok Sabha elections.`\
 https://nytimes.com/interactive/2024/06/03/world/asia/results-india-lok-sabha-election.html
-
-**Trading Glitch Sends Some Shares on a Wild Ride**\
-`Berkshire Hathaway showed a drop of 99 percent before trading was halted and the technical problem corrected.`\
-https://nytimes.com/2024/06/03/business/nyse-trading-glitch-berkshire-hathaway.html
-
-**The Low-Key British Newshound Taking Charge of The Washington Post**\
-`Robert Winnett is virtually unknown in the U.S. and keeps a low profile in his native Britain, too. This fall, he will oversee the newsroom of Woodward and Bernstein.`\
-https://nytimes.com/2024/06/03/business/media/robert-winnett-washington-post.html
 
