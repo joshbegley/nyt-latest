@@ -1,3 +1,11 @@
+**Goodbye Inflation, Hello Recession?**\
+`The landing is almost here, but will it be soft?`\
+https://nytimes.com/2024/06/04/opinion/inflation-fed-recession.html
+
+**Ex-Agent Who Criticized F.B.I. to Congress Has Security Clearance Reinstated**\
+`Marcus Allen was also awarded back pay and resigned from the bureau after reaching a settlement agreement, his lawyer said.`\
+https://nytimes.com/2024/06/04/us/politics/fbi-agent-security-clearance-jan-6.html
+
 **A ‘House of the Dragon’ Party With Not One Silvery Wig in Sight**\
 `At the Season 2 premiere of HBO’s “Game of Thrones” prequel, the cast mingled over cocktails as early clips from the series suggested that “war is coming.”`\
 https://nytimes.com/2024/06/04/style/house-of-dragon-season-2-premiere.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/04/health/kidney-transplant-pig-pisano.html
 **When Hydropower Runs Dry**\
 `The struggle of the world’s largest source of renewable last year could have important implications for the fight against climate change.`\
 https://nytimes.com/2024/06/04/climate/global-hydropower-decline.html
-
-**Gizmodo Sold to European Media Company**\
-`The tech website’s publisher, G/O Media, sold Gizmodo to the digital media and tech company Keleops.`\
-https://nytimes.com/2024/06/04/business/media/gizmodo-sold-keleops.html
-
-**Needing Help to Stay in Power, Modi Loses His Aura of Invincibility**\
-`While Narendra Modi appeared to secure a third term as India’s leader, the election was closer than expected, forcing him to rely on coalition partners that don’t share his Hindu nationalist agenda.`\
-https://nytimes.com/2024/06/04/world/asia/modi-india-election.html
 
