@@ -1,3 +1,15 @@
+**At Museums, a Revolution Gains Momentum**\
+`Faced with dwindling attendance and changing demographics, museum directors are shifting their approach, with an eye toward “radical hospitality.”`\
+https://nytimes.com/2024/06/03/arts/design/museums-strategy-increase-attendance.html
+
+**Lots and Lots**\
+`Daniel Bodily takes a hands-off approach.`\
+https://nytimes.com/2024/06/03/crosswords/daily-puzzle-2024-06-04.html
+
+**Tapping Art’s Power to Heal Wounds and Open ‘Spaces of Connectedness’**\
+`Artists and community organizations around the world are increasingly turning to art to create positive social change.`\
+https://nytimes.com/2024/06/03/arts/art-power-healing.html
+
 **Qatar Aims to Increase its Influence in the Realms of Art and Film**\
 `The Art for Tomorrow conference in Venice provides an opportunity for the Middle East at large to change how it’s portrayed.`\
 https://nytimes.com/2024/06/03/arts/qatar-art-film-middle-east.html
