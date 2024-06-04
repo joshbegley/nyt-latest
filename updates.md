@@ -1,3 +1,7 @@
+**Needing Help to Stay in Office, Modi No Longer Appears All-Powerful**\
+`While Narendra Modi appeared to secure a third term as India’s leader, the election was closer than expected, forcing him to rely on coalition partners that don’t share his Hindu nationalist agenda.`\
+https://nytimes.com/2024/06/04/world/asia/modi-india-election.html
+
 **PTSD Treatments Are Falling Short for Many Patients**\
 `The F.D.A. is weighing whether to approve MDMA-assisted therapy as a new option.`\
 https://nytimes.com/2024/06/04/well/ptsd-treatment-mdma.html
