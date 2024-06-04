@@ -1,3 +1,7 @@
+**Senator Menendez Enjoyed a Steakhouse Dinner, as the F.B.I. Watched**\
+`At Senator Robert Menendez’s bribery trial, an investigator described surveilling diners at a Washington restaurant. Among them were Mr. Menendez and an Egyptian official.`\
+https://nytimes.com/2024/06/04/nyregion/fbi-surveillance-robert-nadine-menendez.html
+
 **Ron Edmonds, 77, Whose Camera Captured the Shooting of Reagan, Dies**\
 `Working for The Associated Press, he won a Pulitzer Prize for his sequence of photos showing the president being struck by a bullet while three others fell wounded.`\
 https://nytimes.com/2024/06/04/business/media/ron-edmonds-dead.html
