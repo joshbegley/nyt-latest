@@ -1,3 +1,5 @@
+**Strikes spark wildfires in northern Israel, and other news.**\
+
 **Stephen Colbert Counts Down to Donald Trump’s Sentencing**\
 `Colbert showed off his “Countdown to Sentencing Advent Calendar,” which contained a bottle of bourbon.`\
 https://nytimes.com/2024/06/04/arts/television/stephen-colbert-trump-sentencing-countdown.html
