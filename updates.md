@@ -1,3 +1,7 @@
+**To Restrict Migrants, Biden Leans on Trump’s Favorite Immigration Law**\
+`President Biden’s executive action addresses one of his most serious political vulnerabilities ahead of the presidential election.`\
+https://nytimes.com/2024/06/04/us/politics/biden-migrants-trump.html
+
 **Modi Struggles to Stay on Top: 4 Takeaways From India’s Election**\
 `The prime minister will keep his job, but his aura has been diminished and his leadership has fundamentally changed as the country’s multiparty democracy springs back to life.`\
 https://nytimes.com/2024/06/04/world/asia/india-election-2024-takeaways.html

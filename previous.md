@@ -1,3 +1,7 @@
+**To Restrict Migrants, Biden Leans on Trump’s Favorite Immigration Law**\
+`President Biden’s executive action addresses one of his most serious political vulnerabilities ahead of the presidential election.`\
+https://nytimes.com/2024/06/04/us/politics/biden-migrants-trump.html
+
 **Modi Struggles to Stay on Top: 4 Takeaways From India’s Election**\
 `The prime minister will keep his job, but his aura has been diminished and his leadership has fundamentally changed as the country’s multiparty democracy springs back to life.`\
 https://nytimes.com/2024/06/04/world/asia/india-election-2024-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/04/us/hunter-biden-trial/its-rare-for-a-defenda
 **Goodbye Inflation, Hello Recession?**\
 `The landing is almost here, but will it be soft?`\
 https://nytimes.com/2024/06/04/opinion/inflation-fed-recession.html
-
-**Ex-Agent Who Criticized F.B.I. to Congress Has Security Clearance Reinstated**\
-`Marcus Allen was also awarded back pay and resigned from the bureau after reaching a settlement agreement, his lawyer said.`\
-https://nytimes.com/2024/06/04/us/politics/fbi-agent-security-clearance-jan-6.html
 
