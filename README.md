@@ -1,3 +1,7 @@
+**War Erupts Over the Prospect of a New Club in East Hampton**\
+`Scott Sartiano proposed bringing his Manhattan-based members-only hot spot, Zero Bond, to a historic village inn. Local residents are not rolling out the red carpet.`\
+https://nytimes.com/2024/06/04/realestate/east-hampton-zero-bond-club.html
+
 **Public Theater Takes Shakespeare in the Park Out on the Town**\
 `The Delacorte Theater is being renovated, so a musical version of “The Comedy of Errors” is touring some of the city’s outdoor spaces.`\
 https://nytimes.com/2024/06/04/theater/public-theater-comedy-of-errors.html
@@ -34,8 +38,4 @@ https://nytimes.com/2024/06/04/arts/music/handel-opera-glynebourne-festival.html
 **‘The Singer in the Village’ Who Became an Opera Star**\
 `During a break at the Royal Opera House, Aigul Akhmetshina discussed her action-packed career, “Carmen” and her mission to spread her love of opera.`\
 https://nytimes.com/2024/06/04/arts/music/opera-star-aigul-akhmetshina.html
-
-**Primaries will cement a crucial Senate race in Montana.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/06/04/us/trump-biden-election/primaries-will-cement-a-crucial-senate-race-in-montana
 
