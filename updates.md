@@ -1,3 +1,7 @@
+**The Climate Challenges That India’s Next Government Will Face**\
+`Farmers have repeatedly protested over grievances tied to global warming, a major political and economic test given the importance of India’s rural economy.`\
+https://nytimes.com/2024/06/04/climate/modi-climate-india-election.html
+
 **Modi’s party tried to woo more voters in India’s south, with mixed results.**\
 `By Pragati K.B.`\
 https://nytimes.com/live/2024/06/03/world/india-election-results/modis-party-tried-to-woo-more-voters-in-indias-south-with-mixed-results
