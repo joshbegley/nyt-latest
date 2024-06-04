@@ -1,3 +1,7 @@
+**Modi’s party tried to woo more voters in India’s south, with mixed results.**\
+`By Pragati K.B.`\
+https://nytimes.com/live/2024/06/03/world/india-election-results/modis-party-tried-to-woo-more-voters-in-indias-south-with-mixed-results
+
 **Jury selection gave a surprising glimpse into Delaware itself.**\
 `By Glenn Thrush and Eileen Sullivan`\
 https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/jury-selection-gave-a-surprising-glimpse-into-delaware-itself
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/science/t-rex-fossil-denver-north-dakota.html
 **India’s Stock Market Tumbles on Close-Run Election Result**\
 `A bull run came to an abrupt end when Narendra Modi’s party fell short of expectations.`\
 https://nytimes.com/2024/06/04/world/asia/india-stock-market-election.html
-
-**For Heroes of D-Day, This Reunion Might Be a ‘Last Hurrah’**\
-`It is 80 years since the Allied invasion of Normandy, and the average age of veterans hovers at 100. Once they are gone, how will their sacrifices be remembered?`\
-https://nytimes.com/2024/06/04/d-day-reunion-ww-ii-veterans.html
 
