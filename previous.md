@@ -1,3 +1,7 @@
+**A ‘House of the Dragon’ Party With Not One Silvery Wig in Sight**\
+`At the Season 2 premiere of HBO’s “Game of Thrones” prequel, the cast mingled over cocktails as early clips from the series suggested that “war is coming.”`\
+https://nytimes.com/2024/06/04/style/house-of-dragon-season-2-premiere.html
+
 **The Ultimate Charli XCX Primer**\
 `Prep for the arrival of her new album, “Brat,” with 11 songs from her catalog (and 10 bonus tracks!).`\
 https://nytimes.com/2024/06/04/arts/music/amplifier-newsletter-charli-xcx.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/business/media/gizmodo-sold-keleops.html
 **Needing Help to Stay in Office, Modi No Longer Appears All-Powerful**\
 `While Narendra Modi appeared to secure a third term as India’s leader, the election was closer than expected, forcing him to rely on coalition partners that don’t share his Hindu nationalist agenda.`\
 https://nytimes.com/2024/06/04/world/asia/modi-india-election.html
-
-**PTSD Treatments Are Falling Short for Many Patients**\
-`The F.D.A. is weighing whether to approve MDMA-assisted therapy as a new option.`\
-https://nytimes.com/2024/06/04/well/ptsd-treatment-mdma.html
 

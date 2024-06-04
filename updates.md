@@ -1,3 +1,7 @@
+**A ‘House of the Dragon’ Party With Not One Silvery Wig in Sight**\
+`At the Season 2 premiere of HBO’s “Game of Thrones” prequel, the cast mingled over cocktails as early clips from the series suggested that “war is coming.”`\
+https://nytimes.com/2024/06/04/style/house-of-dragon-season-2-premiere.html
+
 **The Ultimate Charli XCX Primer**\
 `Prep for the arrival of her new album, “Brat,” with 11 songs from her catalog (and 10 bonus tracks!).`\
 https://nytimes.com/2024/06/04/arts/music/amplifier-newsletter-charli-xcx.html
