@@ -1,3 +1,11 @@
+**Traveling to Europe, Biden Will Find Both Solidarity and Isolation**\
+`The president leaves on Tuesday to mark the 80th anniversary of the D-Day invasion in France, where he will rally American allies in defense of Ukraine even as he defies them on the war in Gaza.`\
+https://nytimes.com/2024/06/04/us/politics/biden-europe-israel-ukraine.html
+
+**Wisconsin Charges 3 Trump Allies in Fake Electors Scheme**\
+`It is the fifth battleground state to prosecute former President Donald J. Trump’s supporters for trying to overturn his defeat in the 2020 election.`\
+https://nytimes.com/2024/06/04/us/politics/wisconsin-charges-3-trump-allies-in-fake-electors-scheme.html
+
 **Protesters Want Charges Dropped. What Is the Right Price for Civil Disobedience?**\
 `Students have clearly broken codes of conduct and, in some cases, the law. But the question of whether and how to discipline them is vexing universities.`\
 https://nytimes.com/2024/06/04/us/politics/college-protests-charges-students.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/04/us/politics/rfk-jr-debate.html
 **Two veteran politicians from regional parties are poised to play kingmakers.**\
 `By Mujib Mashal and Hari Kumar`\
 https://nytimes.com/live/2024/06/03/world/india-election-results/two-veteran-politicians-from-regional-parties-are-poised-to-play-kingmakers
-
-**Psychiatry and the Dangerous Patient**\
-`Two psychiatrists respond to a Science Times article. Also: Dr. Fauci’s grilling in the House; a shortage of immigration lawyers; presidential rankings.`\
-https://nytimes.com/2024/06/04/opinion/psychiatry-dangerous-patient.html
-
-**A prosecutor includes ‘No one is above the law’ in his opening statement, echoing cases against Trump.**\
-`By Glenn Thrush`\
-https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/a-prosecutor-includes-no-one-is-above-the-law-in-his-opening-statement-echoing-cases-against-trump
 
