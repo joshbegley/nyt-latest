@@ -1,3 +1,7 @@
+**F.D.A. Panel Rejects MDMA-Aided Therapy for PTSD**\
+`An independent group of experts expressed concerns that the data from clinical trials did not outweigh risks for treatment of post-traumatic stress disorder.`\
+https://nytimes.com/2024/06/04/health/fda-mdma-therapy-ptsd.html
+
 **After Trump’s Conviction, House Republicans Vow Again to Target His Foes**\
 `Speaker Mike Johnson announced a “three-pronged approach” for how Republicans on Capitol Hill would push back against the prosecutions of the former president.`\
 https://nytimes.com/2024/06/04/us/politics/after-trumps-conviction-house-republicans-vow-again-to-target-his-foes.html

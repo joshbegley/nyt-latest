@@ -1,3 +1,7 @@
+**F.D.A. Panel Rejects MDMA-Aided Therapy for PTSD**\
+`An independent group of experts expressed concerns that the data from clinical trials did not outweigh risks for treatment of post-traumatic stress disorder.`\
+https://nytimes.com/2024/06/04/health/fda-mdma-therapy-ptsd.html
+
 **After Trump’s Conviction, House Republicans Vow Again to Target His Foes**\
 `Speaker Mike Johnson announced a “three-pronged approach” for how Republicans on Capitol Hill would push back against the prosecutions of the former president.`\
 https://nytimes.com/2024/06/04/us/politics/after-trumps-conviction-house-republicans-vow-again-to-target-his-foes.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/04/opinion/thepoint/would-a-banana-republic-put
 **Wendell Pierce Claims Discrimination in Trying to Rent a Harlem Apartment**\
 `The renowned character actor, best known for playing Detective Bunk Moreland on HBO’s “The Wire,” says a white landlord rejected his rental application.`\
 https://nytimes.com/2024/06/04/realestate/wendell-pierce-harlem-apartment-racism.html
-
-**India’s Modi Thanks Supporters After Winning Third Term**\
-`Prime Minister Narendra Modi and his party narrowly won India’s general election, making him the second ever leader in India to secure a third term.`\
-https://nytimes.com/video/world/asia/100000009503278/modi-victory-speech.html
 
