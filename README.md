@@ -19,7 +19,7 @@ https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/a-prosecutor-inclu
 https://nytimes.com/2024/06/04/arts/television/netflix-new-movies-shows-june.html
 
 **Biden Issues Executive Order to Temporarily Seal the Border to Asylum Seekers**\
-`The American Civil Liberties Union said it planned to challenge the executive action in court.`\
+`The American Civil Liberties Union said it planned challenge the executive action in court.`\
 https://nytimes.com/2024/06/04/us/politics/biden-executive-order-border-asylum.html
 
 **Modi’s party may lose Ayodhya, where he opened a giant Hindu temple.**\
