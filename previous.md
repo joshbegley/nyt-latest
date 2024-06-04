@@ -1,3 +1,19 @@
+**Jill Biden turned out to support Hunter Biden on the first day of his trial.**\
+`By Glenn Thrush`\
+https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/jill-biden-turned-out-to-support-hunter-biden-on-the-first-day-of-his-trial
+
+**Here’s the latest on Hunter Biden’s gun trial.**\
+`The president’s son is accused of lying about his drug use i`\
+https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/heres-the-latest-on-hunter-bidens-gun-trial
+
+**Here are the gun charges Hunter Biden faces.**\
+`By Glenn Thrush`\
+https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/here-are-the-gun-charges-hunter-biden-faces
+
+**Hunter Biden Trial Live Updates: Prosecution to Begin Laying Out Its Case**\
+`The president’s son is accused of lying about his drug use when he bought a handgun in 2018. Prosecutors are expected to elicit testimony from people by his side during his darkest days.`\
+https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial
+
 **Can Bill Ackman Cash in on His Growing Fame?**\
 `The billionaire investor’s profile has soared on social media. That could help him grow Pershing Square, his financial empire.`\
 https://nytimes.com/2024/06/04/business/dealbook/bill-ackman-pershing-square-ipo.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/06/04/podcasts/the-daily/a-conversation-with-president-
 **The Connections Companion No. 360, June 5, 2024**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/06/04/crosswords/connections-companion-360.html
-
-**Wordle Review No. 1,082, June 5, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/06/04/crosswords/wordle-review-1082.html
-
-**Climate Group Is Running Ads on Biden Policies in Wisconsin and Michigan**\
-`The group, which has ties to Gov. Jay Inslee of Washington, has a $1 million plan for TV spots playing up the president’s record on green power.`\
-https://nytimes.com/2024/06/04/us/politics/biden-ads-climate-wisconsin-michigan.html
-
-**House Democrats Begin Bid to Force Contraceptive Vote, Pressuring G.O.P.**\
-`By starting a discharge petition on legislation to codify the right to contraceptive access, Democrats aim to spotlight Republican opposition to the bill, part of a broader push to highlight the issue for voters.`\
-https://nytimes.com/2024/06/04/us/politics/house-democrats-contraceptive-vote.html
-
-**The Republican Party’s Decay Began Long Before Trump**\
-`In the past, the G.O.P. could’ve prevented a candidate like Donald Trump from running. But Daniel Schlozman and Sam Rosenfeld argue the party structure has been “hollowed out” over the years.`\
-https://nytimes.com/2024/06/04/opinion/ezra-klein-podcast-sam-rosenfeld-daniel-schlozman.html
 
