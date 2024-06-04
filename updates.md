@@ -1,3 +1,15 @@
+**A Conversation With President Zelensky**\
+`In a wide-ranging interview, President Volodymyr Zelensky of Ukraine challenged the West’s hesitations.`\
+https://nytimes.com/2024/06/04/podcasts/the-daily/a-conversation-with-president-zelensky.html
+
+**The Connections Companion No. 360, June 5, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/04/crosswords/connections-companion-360.html
+
+**Wordle Review No. 1,082, June 5, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/04/crosswords/wordle-review-1082.html
+
 **Climate Group Is Running Ads on Biden Policies in Wisconsin and Michigan**\
 `The group, which has ties to Gov. Jay Inslee of Washington, has a $1 million plan for TV spots playing up the president’s record on green power.`\
 https://nytimes.com/2024/06/04/us/politics/biden-ads-climate-wisconsin-michigan.html
