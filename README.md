@@ -1,3 +1,7 @@
+**It’s rare for a defendant to face the same gun charges as Hunter Biden without an underlying crime.**\
+`By Glenn Thrush`\
+https://nytimes.com/live/2024/06/04/us/hunter-biden-trial/its-rare-for-a-defendant-to-face-the-same-gun-charges-as-hunter-biden-without-an-underlying-crime
+
 **Goodbye Inflation, Hello Recession?**\
 `The landing is almost here, but will it be soft?`\
 https://nytimes.com/2024/06/04/opinion/inflation-fed-recession.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/us/politics/college-protests-charges-students.htm
 **Transplanted Pig Kidney Is Removed From Patient**\
 `The organ, from a genetically modified animal, failed because of a lack of blood flow, surgeons said, but did not appear to have been rejected by the body.`\
 https://nytimes.com/2024/06/04/health/kidney-transplant-pig-pisano.html
-
-**When Hydropower Runs Dry**\
-`The struggle of the world’s largest source of renewable last year could have important implications for the fight against climate change.`\
-https://nytimes.com/2024/06/04/climate/global-hydropower-decline.html
 
