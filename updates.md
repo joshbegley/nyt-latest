@@ -1,3 +1,19 @@
+**The Big Hurdle Between R.F.K. Jr. and the Debate Stage (It’s Not a Poll)**\
+`The independent presidential candidate Robert F. Kennedy Jr. has said he’s confident he will qualify. But CNN’s rules have put an urgently ticking clock on his already-critical ballot access efforts.`\
+https://nytimes.com/2024/06/04/us/politics/rfk-jr-debate.html
+
+**Two veteran politicians from regional parties are poised to play kingmakers.**\
+`By Mujib Mashal and Hari Kumar`\
+https://nytimes.com/live/2024/06/03/world/india-election-results/two-veteran-politicians-from-regional-parties-are-poised-to-play-kingmakers
+
+**Psychiatry and the Dangerous Patient**\
+`Two psychiatrists respond to a Science Times article. Also: Dr. Fauci’s grilling in the House; a shortage of immigration lawyers; presidential rankings.`\
+https://nytimes.com/2024/06/04/opinion/psychiatry-dangerous-patient.html
+
+**Biden Issues Executive Order to Temporarily Seal the Border to Asylum Seekers**\
+`The American Civil Liberties Union said it planned to challenge the executive action in court.`\
+https://nytimes.com/2024/06/04/us/politics/biden-executive-order-border-asylum.html
+
 **A prosecutor includes ‘No one is above the law’ in his opening statement, echoing cases against Trump.**\
 `By Glenn Thrush`\
 https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/a-prosecutor-includes-no-one-is-above-the-law-in-his-opening-statement-echoing-cases-against-trump
