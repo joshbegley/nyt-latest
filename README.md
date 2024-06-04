@@ -1,3 +1,15 @@
+**Muhammad Ali’s Childhood Home Goes on the Market**\
+`The boxing champion lived in the one-story house in Louisville, Ky., which in recent years became a museum. It’s listed for sale, along with two neighboring properties, for $1.5 million.`\
+https://nytimes.com/2024/06/04/sports/muhammad-ali-childhood-home-sale.html
+
+**Transcript: Ezra Klein Interviews Sam Rosenfeld and Daniel Schlozman**\
+`The June 4, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/06/04/podcasts/transcript-ezra-klein-interviews-sam-rosenfeld-and-daniel-schlozman.html
+
+**Nonny Hogrogian Dies at 92; Infused Her Illustrations With Old-World Wonder**\
+`A two-time Caldecott Medal winner, she brought multiculturalism to children’s books by drawing on her Armenian heritage.`\
+https://nytimes.com/2024/06/04/books/nonny-hogrogian-dead.html
+
 **Fingers Point as Biden Closes Border to Asylum Seekers**\
 `The president blamed Donald Trump and Republicans for the failure of a previous immigration plan. Mr. Trump called the new action too little, too late.`\
 https://nytimes.com/2024/06/04/us/politics/trump-biden-border-gop-democrats.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/04/world/asia/modi-election-results-bjp-ukraine-asia
 **House Votes to Impose Sanctions on I.C.C. Officials Over Israel Prosecution**\
 `The Republican-written bill, which the White House strongly opposes, stands little chance of becoming law after lawmakers failed to reach a bipartisan deal on penalizing measures.`\
 https://nytimes.com/2024/06/04/us/politics/house-vote-icc-israel.html
-
-**University of the Arts President Resigns After School Announces Closure**\
-`Kerry Walk announced last week that the institution would close on June 7, leaving hundreds of students in academic limbo.`\
-https://nytimes.com/2024/06/04/arts/design/university-arts-kerry-walk-philadelphia.html
-
-**A Year After Orange Skies Covered N.Y.C., Residents Get Another Air Quality Alert**\
-`This time ozone, not smoke, was to blame.`\
-https://nytimes.com/2024/06/04/weather/air-quality-nyc.html
-
-**‘Bad Boys: Ride or Die’ Review: Older, but Never Wiser**\
-`In their latest buddy cop movie, Will Smith and Martin Lawrence are still speeding through Miami. The franchise has rarely felt so assured, relaxed and knowingly funny.`\
-https://nytimes.com/2024/06/04/movies/bad-boys-ride-or-die-review.html
 
