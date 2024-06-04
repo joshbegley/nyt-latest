@@ -1,3 +1,7 @@
+**Early Election Results Suggest Sharp Turnaround for Indian National Congress**\
+`India’s beleaguered main opposition party was on track to surpass expectations and nearly double its share of parliamentary seats from 2019.`\
+https://nytimes.com/2024/06/04/world/asia/indian-national-congress-rahul-gandhi-election.html
+
 **Devastation in Ukraine**\
 `Measuring every town, street and building blown apart since the Russian invasion.`\
 https://nytimes.com/2024/06/04/briefing/ukraine-russia-damage.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/06/04/climate/us-wind-energy-solar-power.ht
 **As Mexico Elects Claudia Sheinbaum, the Departing President Begins His Farewell**\
 `President Andrés Manuel López Obrador, who has been a defining figure in Mexican politics, has said he will retire to a family ranch after his term ends. Some expect his influence will continue.`\
 https://nytimes.com/2024/06/04/world/americas/mexico-president-sheinbaum-amlo.html
-
-**Can Confetti Cake Be Trademarked? Or Idaho Potatoes? Take Our Quiz.**\
-`Whether a food brand gets special protection hinges on complicated (and not always consistent) legal calculations. How good are you at spotting a real trademark?`\
-https://nytimes.com/interactive/2024/06/04/dining/trademark-food-quiz.html
 
