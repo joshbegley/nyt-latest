@@ -1,3 +1,7 @@
+**Word of the Day: empathetic**\
+`This word has appeared in 155 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/06/04/learning/word-of-the-day-empathetic.html
+
 **‘Antihero’ or ‘Felon’: 11 Undecided Voters Struggle With How to See Trump Post-Verdict**\
 `The group discusses the trial, the verdict and its possible influence on the 2024 election.`\
 https://nytimes.com/interactive/2024/06/04/opinion/trump-verdict-focus-group.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/03/pageoneplus/corrections-june-4-2024.html
 **Quote of the Day: Cracks Emerge in Hard Right Across Europe**\
 `Quotation of the Day for Tuesday, June 4, 2024.`\
 https://nytimes.com/2024/06/03/pageoneplus/quote-of-the-day-cracks-emerge-in-hard-right-across-europe.html
-
-**Woman Declared Dead Is Found Alive at Funeral Home**\
-`Constance Glantz, 74, of Lincoln, Neb., was pronounced dead in a nursing home. A funeral home employee preparing her body realized that she was breathing.`\
-https://nytimes.com/2024/06/03/us/nebraska-dead-woman-alive-funeral-home.html
 
