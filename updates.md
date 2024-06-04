@@ -1,3 +1,15 @@
+**‘There Is No Ethan’ Is a Jaw-Dropping Tale of Digital Deception**\
+`Reading Anna Akbari’s memoir of online manipulation, you think you’ve seen it all — then you keep reading.`\
+https://nytimes.com/2024/06/04/books/review/there-is-no-ethan-anna-akbari.html
+
+**For some jurors, getting to the trial could be a challenge.**\
+`By Zach Montague`\
+https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/for-some-jurors-getting-to-the-trial-could-be-a-challenge
+
+**In Red Montana, Two Democrats Take a New Political Approach: Attack**\
+`Democrats in Republican states have tended toward soft-spoken moderation, but Ryan Busse and Raph Graybill have charted a different course in trying to take down Gov. Greg Gianforte.`\
+https://nytimes.com/2024/06/04/us/politics/montana-democrats.html
+
 **F.D.A. Panel Weighs MDMA Therapy and Its Risks**\
 `An independent group of experts is meeting Tuesday to consider whether to allow use of this illegal drug, also known as Ecstasy, to treat PTSD.`\
 https://nytimes.com/2024/06/04/health/mdma-ptsd-fda.html
