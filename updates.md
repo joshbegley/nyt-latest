@@ -1,3 +1,15 @@
+**It’s rare for a defendant to face the same gun charges as Hunter Biden without an underlying crime.**\
+`By Glenn Thrush`\
+https://nytimes.com/live/2024/06/04/us/hunter-biden-trial/its-rare-for-a-defendant-to-face-the-same-gun-charges-as-hunter-biden-without-an-underlying-crime
+
+**Goodbye Inflation, Hello Recession?**\
+`The landing is almost here, but will it be soft?`\
+https://nytimes.com/2024/06/04/opinion/inflation-fed-recession.html
+
+**Ex-Agent Who Criticized F.B.I. to Congress Has Security Clearance Reinstated**\
+`Marcus Allen was also awarded back pay and resigned from the bureau after reaching a settlement agreement, his lawyer said.`\
+https://nytimes.com/2024/06/04/us/politics/fbi-agent-security-clearance-jan-6.html
+
 **Students Want Charges Dropped. What Is the Right Price for Protests?**\
 `At pro-Palestinian demonstrations, students have broken codes of conduct and, sometimes, the law. But the question of whether and how to discipline them is vexing universities.`\
 https://nytimes.com/2024/06/04/us/politics/college-protests-charges-students.html
