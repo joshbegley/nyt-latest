@@ -1,3 +1,7 @@
+**Modi’s party may lose Ayodhya, where he opened a giant Hindu temple.**\
+`By Hari Kumar and Alex Travelli`\
+https://nytimes.com/live/2024/06/03/world/india-election-results/modis-party-may-lose-ayodhya-where-he-opened-a-giant-hindu-temple
+
 **Sean Combs Sells Stake in Revolt, the Media Company He Founded**\
 `After a wave of lawsuits accusing Mr. Combs of sexual assault, the two are “completely separated and dissociated from each other,” the company’s chief executive said.`\
 https://nytimes.com/2024/06/04/arts/music/sean-combs-diddy-sell-stake-revolt.html
