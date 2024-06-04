@@ -1,4 +1,8 @@
 **Biden Issues Executive Order to Temporarily Seal the Border to Asylum Seekers**\
+`The move shows how drastically immigration politics have shifted in the United States. The American Civil Liberties Union said it planned to challenge the order in court.`\
+https://nytimes.com/2024/06/04/us/politics/biden-executive-order-border-asylum.html
+
+**Biden Issues Executive Order to Temporarily Seal the Border to Asylum Seekers**\
 `The American Civil Liberties Union said it planned challenge the executive action in court.`\
 https://nytimes.com/2024/06/04/us/politics/biden-executive-order-border-asylum.html
 
