@@ -1,3 +1,7 @@
+**Rival U.K. Political Leaders Clash in Bad-Tempered Election Debate**\
+`Prime Minister Rishi Sunak, fighting to narrow a substantial polling gap, adopted an aggressive approach against his Labour Party opponent, Keir Starmer.`\
+https://nytimes.com/2024/06/04/world/europe/sunak-starmer-britain-prime-minister-debate.html
+
 **Senator Menendez Enjoyed a Steakhouse Dinner, as the F.B.I. Watched**\
 `At Senator Robert Menendez’s bribery trial, an investigator described surveilling diners at a Washington restaurant. Among them were Mr. Menendez and an Egyptian official.`\
 https://nytimes.com/2024/06/04/nyregion/fbi-surveillance-robert-nadine-menendez.html
