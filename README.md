@@ -1,3 +1,7 @@
+**How Modi Capitalized on India’s Economic Rise**\
+`Prime Minister Narendra Modi inherited a big and growing economy, kept it going and worked to put his imprint on every aspect of its success.`\
+https://nytimes.com/2024/06/04/world/asia/india-election-economy.html
+
 **Tuesday Briefing**\
 `Mexico’s new president.`\
 https://nytimes.com/2024/06/04/briefing/elections-mexico-india.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/03/arts/music/brother-marquis-dead.html
 **Biden Goes After Trump’s Felon Status at Connecticut Fund-Raiser**\
 `Democrats had been clamoring for the president to ratchet up his criticism of his predecessor.`\
 https://nytimes.com/2024/06/03/us/politics/trump-convicted-felon-biden.html
-
-**Here’s the latest on the election in India.**\
-`By Mujib Mashal and Alex Travelli`\
-https://nytimes.com/live/2024/06/03/world/india-election-results/heres-the-latest-on-the-election-in-india
 
