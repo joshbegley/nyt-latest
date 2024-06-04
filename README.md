@@ -1,3 +1,11 @@
+**Would a Banana Republic Put the President’s Son on Trial?**\
+`There’s no basis for the MAGA complaint that Biden has broken the justice system.`\
+https://nytimes.com/live/2024/06/04/opinion/thepoint/would-a-banana-republic-put-the-presidents-son-on-trial
+
+**Wendell Pierce Claims Discrimination in Trying to Rent a Harlem Apartment**\
+`The renowned character actor, best known for playing Detective Bunk Moreland on HBO’s “The Wire,” says a white landlord rejected his rental application.`\
+https://nytimes.com/2024/06/04/realestate/wendell-pierce-harlem-apartment-racism.html
+
 **India’s Modi Thanks Supporters After Winning Third Term**\
 `Prime Minister Narendra Modi and his party narrowly won India’s general election, making him the second ever leader in India to secure a third term.`\
 https://nytimes.com/video/world/asia/100000009503278/modi-victory-speech.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/04/movies/bad-boys-ride-or-die-review.html
 **To Restrict Migrants, Biden Leans on Trump’s Favorite Immigration Law**\
 `President Biden’s executive action addresses one of his most serious political vulnerabilities ahead of the presidential election.`\
 https://nytimes.com/2024/06/04/us/politics/biden-migrants-trump.html
-
-**Modi Struggles to Stay on Top: 4 Takeaways From India’s Election**\
-`The prime minister will keep his job, but his aura has been diminished and his leadership has fundamentally changed as the country’s multiparty democracy springs back to life.`\
-https://nytimes.com/2024/06/04/world/asia/india-election-2024-takeaways.html
-
-**Biden’s Crackdown on Migrants Reflects a New Reality for Democrats**\
-`Advocates of the right to asylum can’t defend the system when it’s broken.`\
-https://nytimes.com/2024/05/28/opinion/biden-asylum-migrants.html
 
