@@ -1,3 +1,11 @@
+**India’s Modi Thanks Supporters After Winning Third Term**\
+`Prime Minister Narendra Modi and his party narrowly won India’s general election, making him the second ever leader in India to secure a third term.`\
+https://nytimes.com/video/world/asia/100000009503278/modi-victory-speech.html
+
+**Bringing a New York Street Scene to Life in ‘Robot Dreams’**\
+`The director Pablo Berger dissects a frame from his Oscar-nominated animated film about the friendship between a dog and a robot.`\
+https://nytimes.com/interactive/2024/06/04/movies/pablo-berger-robot-dreams-movie.html
+
 **Wednesday Briefing: Modi’s Bruising Path to a Third Term**\
 `Also, a Times analysis of the destruction in Ukraine.`\
 https://nytimes.com/2024/06/04/world/asia/modi-election-results-bjp-ukraine-asia.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/04/world/asia/india-election-2024-takeaways.html
 **Biden’s Crackdown on Migrants Reflects a New Reality for Democrats**\
 `Advocates of the right to asylum can’t defend the system when it’s broken.`\
 https://nytimes.com/2024/05/28/opinion/biden-asylum-migrants.html
-
-**We’re Entering a Joyful New Era of Lesbian Fashion**\
-`Pairing silky garments with butch suiting, women are pushing back against stereotypical ideas about dressing, on the red carpet and beyond.`\
-https://nytimes.com/2024/06/04/t-magazine/lesbian-fashion-kristen-stewart.html
-
-**Biden Issues Order to Curb Immigration at Southern Border**\
-`President Biden’s executive order prevents migrants from seeking asylum at the U.S.-Mexico border when crossings surge.`\
-https://nytimes.com/video/us/politics/100000009504073/biden-border-immigration.html
 

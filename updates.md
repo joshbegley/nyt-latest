@@ -1,3 +1,11 @@
+**India’s Modi Thanks Supporters After Winning Third Term**\
+`Prime Minister Narendra Modi and his party narrowly won India’s general election, making him the second ever leader in India to secure a third term.`\
+https://nytimes.com/video/world/asia/100000009503278/modi-victory-speech.html
+
+**Bringing a New York Street Scene to Life in ‘Robot Dreams’**\
+`The director Pablo Berger dissects a frame from his Oscar-nominated animated film about the friendship between a dog and a robot.`\
+https://nytimes.com/interactive/2024/06/04/movies/pablo-berger-robot-dreams-movie.html
+
 **Wednesday Briefing: Modi’s Bruising Path to a Third Term**\
 `Also, a Times analysis of the destruction in Ukraine.`\
 https://nytimes.com/2024/06/04/world/asia/modi-election-results-bjp-ukraine-asia.html
