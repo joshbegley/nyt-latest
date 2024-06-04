@@ -1,3 +1,7 @@
+**Early Election Results Suggest Sharp Turnaround for Indian National Congress**\
+`India’s beleaguered main opposition party was on track to surpass expectations and nearly double its share of parliamentary seats from 2019.`\
+https://nytimes.com/2024/06/04/world/asia/indian-national-congress-rahul-gandhi-election.html
+
 **Devastation in Ukraine**\
 `Measuring every town, street and building blown apart since the Russian invasion.`\
 https://nytimes.com/2024/06/04/briefing/ukraine-russia-damage.html
