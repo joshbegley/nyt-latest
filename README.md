@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘We Met at a Gay Bar Called Woody’s’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/06/04/style/tiny-modern-love-stories-we-met-at-a-gay-bar-called-woodys.html
+
 **It’s rare for a defendant to face the same gun charges as Hunter Biden without an underlying crime.**\
 `By Glenn Thrush`\
 https://nytimes.com/live/2024/06/04/us/hunter-biden-trial/its-rare-for-a-defendant-to-face-the-same-gun-charges-as-hunter-biden-without-an-underlying-crime
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/us/politics/wisconsin-charges-3-trump-allies-in-f
 **Students Want Charges Dropped. What Is the Right Price for Protests?**\
 `At pro-Palestinian demonstrations, students have broken codes of conduct and, sometimes, the law. But the question of whether and how to discipline them is vexing universities.`\
 https://nytimes.com/2024/06/04/us/politics/college-protests-charges-students.html
-
-**Transplanted Pig Kidney Is Removed From Patient**\
-`The organ, from a genetically modified animal, failed because of a lack of blood flow, surgeons said, but did not appear to have been rejected by the body.`\
-https://nytimes.com/2024/06/04/health/kidney-transplant-pig-pisano.html
 
