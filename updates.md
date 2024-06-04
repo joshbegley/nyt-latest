@@ -1,3 +1,7 @@
+**Can A.I. Rethink Art? Should it?**\
+`There is an increasing overlap between art and artificial intelligence. Some celebrate it, while others worry.`\
+https://nytimes.com/2024/06/03/arts/ai-art-overlap.html
+
 **At Museums, a Revolution Gains Momentum**\
 `Faced with dwindling attendance and changing demographics, museum directors are shifting their approach, with an eye toward “radical hospitality.”`\
 https://nytimes.com/2024/06/03/arts/design/museums-strategy-increase-attendance.html
