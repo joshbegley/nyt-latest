@@ -1,3 +1,7 @@
+**After Trump’s Conviction, House Republicans Vow Again to Target His Foes**\
+`Speaker Mike Johnson announced a “three-pronged approach” for how Republicans on Capitol Hill would push back against the prosecutions of the former president.`\
+https://nytimes.com/2024/06/04/us/politics/after-trumps-conviction-house-republicans-vow-again-to-target-his-foes.html
+
 **Garland Says He ‘Will Not Be Intimidated’ by House Republicans**\
 `Attorney General Merrick B. Garland, testifying before the House Judiciary Committee, defended the Justice Department against false accusations made by former President Donald J. Trump and his congressional allies.`\
 https://nytimes.com/video/us/politics/100000009504419/merrick-garland-republicans-house.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/realestate/wendell-pierce-harlem-apartment-racism
 **India’s Modi Thanks Supporters After Winning Third Term**\
 `Prime Minister Narendra Modi and his party narrowly won India’s general election, making him the second ever leader in India to secure a third term.`\
 https://nytimes.com/video/world/asia/100000009503278/modi-victory-speech.html
-
-**Bringing a New York Street Scene to Life in ‘Robot Dreams’**\
-`The director Pablo Berger dissects a frame from his Oscar-nominated animated film about the friendship between a dog and a robot.`\
-https://nytimes.com/interactive/2024/06/04/movies/pablo-berger-robot-dreams-movie.html
 
