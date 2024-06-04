@@ -1,3 +1,11 @@
+**The Restaurant at Bedford Post Reopens With Tavern Fare**\
+`Nomad Tea Parlour offers dim sum and takes on Chinese American specialties, Veselka opens an outpost in Williamsburg and more restaurant news.`\
+https://nytimes.com/2024/06/04/dining/nyc-restaurant-news.html
+
+**Some Gazans Call on Hamas to Accept Cease-Fire Proposal, But Remain Skeptical**\
+`After months of bombardment, many in Gaza believe Hamas should make any compromise necessary to end the war.`\
+https://nytimes.com/2024/06/04/world/middleeast/some-gazans-call-on-hamas-to-accept-cease-fire-proposal-but-remain-skeptical.html
+
 **The-Dream, Hitmaker for Beyoncé and Rihanna, Is Accused of Rape**\
 `In a lawsuit, a former protégée of Terius Gesteelde-Diamant says he entangled her in an abusive relationship. Mr. Gesteelde-Diamant called the allegations “untrue and defamatory.”`\
 https://nytimes.com/2024/06/04/arts/music/the-dream-rape-lawsuit-terius-gesteelde-diamant.html

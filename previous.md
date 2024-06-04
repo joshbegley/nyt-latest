@@ -1,3 +1,11 @@
+**The Restaurant at Bedford Post Reopens With Tavern Fare**\
+`Nomad Tea Parlour offers dim sum and takes on Chinese American specialties, Veselka opens an outpost in Williamsburg and more restaurant news.`\
+https://nytimes.com/2024/06/04/dining/nyc-restaurant-news.html
+
+**Some Gazans Call on Hamas to Accept Cease-Fire Proposal, But Remain Skeptical**\
+`After months of bombardment, many in Gaza believe Hamas should make any compromise necessary to end the war.`\
+https://nytimes.com/2024/06/04/world/middleeast/some-gazans-call-on-hamas-to-accept-cease-fire-proposal-but-remain-skeptical.html
+
 **The-Dream, Hitmaker for Beyoncé and Rihanna, Is Accused of Rape**\
 `In a lawsuit, a former protégée of Terius Gesteelde-Diamant says he entangled her in an abusive relationship. Mr. Gesteelde-Diamant called the allegations “untrue and defamatory.”`\
 https://nytimes.com/2024/06/04/arts/music/the-dream-rape-lawsuit-terius-gesteelde-diamant.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000009503182/john-rose-kid-faces.html
 **Biden says there is ‘every reason’ to believe Netanyahu is prolonging the war for political reasons.**\
 `By David E. Sanger`\
 https://nytimes.com/live/2024/06/04/world/israel-gaza-war-hamas/biden-says-there-is-every-reason-to-believe-netanyahu-is-prolonging-the-war-for-political-reasons
-
-**‘There Is No Ethan’ Is a Jaw-Dropping Tale of Digital Deception**\
-`Reading Anna Akbari’s memoir of online manipulation, you think you’ve seen it all — then you keep reading.`\
-https://nytimes.com/2024/06/04/books/review/there-is-no-ethan-anna-akbari.html
-
-**For some jurors, getting to the trial could be a challenge.**\
-`By Zach Montague`\
-https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/for-some-jurors-getting-to-the-trial-could-be-a-challenge
 
