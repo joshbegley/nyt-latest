@@ -1,3 +1,7 @@
+**Photos from India capture a hard-fought election campaign.**\
+`By John Yoon and Atul Loke`\
+https://nytimes.com/live/2024/06/03/world/india-election-results/photos-from-india-capture-a-hard-fought-election-campaign
+
 **How Modi Capitalized on India’s Economic Rise**\
 `Prime Minister Narendra Modi inherited a big and growing economy, kept it going and worked to put his imprint on every aspect of its success.`\
 https://nytimes.com/2024/06/04/world/asia/india-election-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/03/us/nebraska-dead-woman-alive-funeral-home.html
 **Brother Marquis, Member of Rap Group 2 Live Crew, Dies**\
 `Born Mark Ross, he was a well-known member of the group, which fueled a debate about artistic freedom.`\
 https://nytimes.com/2024/06/03/arts/music/brother-marquis-dead.html
-
-**Biden Goes After Trump’s Felon Status at Connecticut Fund-Raiser**\
-`Democrats had been clamoring for the president to ratchet up his criticism of his predecessor.`\
-https://nytimes.com/2024/06/03/us/politics/trump-convicted-felon-biden.html
 
