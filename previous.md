@@ -1,3 +1,11 @@
+**Ukraine Strikes Into Russia With Western Weapons, Official Says**\
+`The official said Ukraine had destroyed missile launchers in the Russian region of Belgorod using an American-made rocket system.`\
+https://nytimes.com/2024/06/04/world/europe/ukraine-strikes-russia-western-weapons.html
+
+**Alec and Hilaria Baldwin and Their 7 Children Get a Reality TV Series**\
+`“We’re inviting you into our home,” the actor, who is set to stand trial next month on an involuntary manslaughter charge, said as he announced a show about his family on TLC.`\
+https://nytimes.com/2024/06/04/arts/television/alec-baldwin-hilaria-children-reality-tv.html
+
 **Tiny Love Stories: ‘We Met at a Gay Bar Called Woody’s’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/06/04/style/tiny-modern-love-stories-we-met-at-a-gay-bar-called-woodys.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/06/04/world/israel-gaza-war-hamas/hostage-families
 **Traveling to Europe, Biden Will Find Both Solidarity and Isolation**\
 `The president leaves on Tuesday to mark the 80th anniversary of the D-Day invasion in France, where he will rally American allies in defense of Ukraine even as he defies them on the war in Gaza.`\
 https://nytimes.com/2024/06/04/us/politics/biden-europe-israel-ukraine.html
-
-**Wisconsin Charges 3 Trump Allies in Fake Electors Scheme**\
-`It is the fifth battleground state to prosecute former President Donald J. Trump’s supporters for trying to overturn his defeat in the 2020 election.`\
-https://nytimes.com/2024/06/04/us/politics/wisconsin-charges-3-trump-allies-in-fake-electors-scheme.html
-
-**Students Want Charges Dropped. What Is the Right Price for Protests?**\
-`At pro-Palestinian demonstrations, students have broken codes of conduct and, sometimes, the law. But the question of whether and how to discipline them is vexing universities.`\
-https://nytimes.com/2024/06/04/us/politics/college-protests-charges-students.html
 

@@ -1,3 +1,11 @@
+**Ukraine Strikes Into Russia With Western Weapons, Official Says**\
+`The official said Ukraine had destroyed missile launchers in the Russian region of Belgorod using an American-made rocket system.`\
+https://nytimes.com/2024/06/04/world/europe/ukraine-strikes-russia-western-weapons.html
+
+**Alec and Hilaria Baldwin and Their 7 Children Get a Reality TV Series**\
+`“We’re inviting you into our home,” the actor, who is set to stand trial next month on an involuntary manslaughter charge, said as he announced a show about his family on TLC.`\
+https://nytimes.com/2024/06/04/arts/television/alec-baldwin-hilaria-children-reality-tv.html
+
 **Tiny Love Stories: ‘We Met at a Gay Bar Called Woody’s’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/06/04/style/tiny-modern-love-stories-we-met-at-a-gay-bar-called-woodys.html
