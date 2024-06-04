@@ -1,3 +1,7 @@
+**A prosecutor includes ‘No one is above the law’ in his opening statement, echoing cases against Trump.**\
+`By Glenn Thrush`\
+https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/a-prosecutor-includes-no-one-is-above-the-law-in-his-opening-statement-echoing-cases-against-trump
+
 **The Best Movies and TV Shows Coming to Netflix in June**\
 `The final season of “Sweet Tooth” and a Richard Linklater rom-com highlight this month’s slate.`\
 https://nytimes.com/2024/06/04/arts/television/netflix-new-movies-shows-june.html

@@ -1,3 +1,7 @@
+**A prosecutor includes ‘No one is above the law’ in his opening statement, echoing cases against Trump.**\
+`By Glenn Thrush`\
+https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/a-prosecutor-includes-no-one-is-above-the-law-in-his-opening-statement-echoing-cases-against-trump
+
 **The Best Movies and TV Shows Coming to Netflix in June**\
 `The final season of “Sweet Tooth” and a Richard Linklater rom-com highlight this month’s slate.`\
 https://nytimes.com/2024/06/04/arts/television/netflix-new-movies-shows-june.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/arts/music/the-dream-rape-lawsuit-terius-gesteeld
 **‘The Acolyte’ Review: ‘Star Wars’ an Even Longer Time Ago**\
 `The franchise’s latest series on Disney+ is set before there was even an empire to strike back.`\
 https://nytimes.com/2024/06/04/arts/television/star-wars-the-acolyte-review.html
-
-**San Diego Is Once Again a Top Migrant Entry Point**\
-`Asylum seekers from around the world are trying to enter the United States through California, and immigrant traffic there has reached its highest level in decades.`\
-https://nytimes.com/2024/06/04/us/san-diego-migrants-california.html
 
