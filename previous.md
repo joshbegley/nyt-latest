@@ -1,3 +1,11 @@
+**The-Dream, Hitmaker for Beyoncé and Rihanna, Is Accused of Rape**\
+`In a lawsuit, a former protégée of Terius Gesteelde-Diamant says he entangled her in an abusive relationship. Mr. Gesteelde-Diamant called the allegations “untrue and defamatory.”`\
+https://nytimes.com/2024/06/04/arts/music/the-dream-rape-lawsuit-terius-gesteelde-diamant.html
+
+**‘The Acolyte’ Review: ‘Star Wars’ an Even Longer Time Ago**\
+`The franchise’s latest series on Disney+ is set before there was even an empire to strike back.`\
+https://nytimes.com/2024/06/04/arts/television/star-wars-the-acolyte-review.html
+
 **San Diego Is Once Again a Top Migrant Entry Point**\
 `Asylum seekers from around the world are trying to enter the United States through California, and immigrant traffic there has reached its highest level in decades.`\
 https://nytimes.com/2024/06/04/us/san-diego-migrants-california.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/04/books/review/there-is-no-ethan-anna-akbari.html
 **For some jurors, getting to the trial could be a challenge.**\
 `By Zach Montague`\
 https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/for-some-jurors-getting-to-the-trial-could-be-a-challenge
-
-**In Red Montana, Two Democrats Take a New Political Approach: Attack**\
-`Democrats in Republican states have tended toward soft-spoken moderation, but Ryan Busse and Raph Graybill have charted a different course in trying to take down Gov. Greg Gianforte.`\
-https://nytimes.com/2024/06/04/us/politics/montana-democrats.html
-
-**F.D.A. Panel Weighs MDMA Therapy and Its Risks**\
-`An independent group of experts is meeting Tuesday to consider whether to allow use of this illegal drug, also known as Ecstasy, to treat PTSD.`\
-https://nytimes.com/2024/06/04/health/mdma-ptsd-fda.html
 
