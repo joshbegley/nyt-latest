@@ -1,3 +1,7 @@
+**Word of the Day: empathetic**\
+`This word has appeared in 155 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/06/04/learning/word-of-the-day-empathetic.html
+
 **‘Antihero’ or ‘Felon’: 11 Undecided Voters Struggle With How to See Trump Post-Verdict**\
 `The group discusses the trial, the verdict and its possible influence on the 2024 election.`\
 https://nytimes.com/interactive/2024/06/04/opinion/trump-verdict-focus-group.html
