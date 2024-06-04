@@ -1,3 +1,7 @@
+**We’re Entering a Joyful New Era of Lesbian Fashion**\
+`Pairing silky garments with butch suiting, women are pushing back against stereotypical ideas about dressing, on the red carpet and beyond.`\
+https://nytimes.com/2024/06/04/t-magazine/lesbian-fashion-kristen-stewart.html
+
 **Biden Issues Order to Curb Immigration at Southern Border**\
 `President Biden’s executive order prevents migrants from seeking asylum at the U.S.-Mexico border when crossings surge.`\
 https://nytimes.com/video/us/politics/100000009504073/biden-border-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/style/house-of-dragon-season-2-premiere.html
 **The Ultimate Charli XCX Primer**\
 `Prep for the arrival of her new album, “Brat,” with 11 songs from her catalog (and 10 bonus tracks!).`\
 https://nytimes.com/2024/06/04/arts/music/amplifier-newsletter-charli-xcx.html
-
-**Hostage families, initially optimistic on a new cease-fire deal, feel hope slipping away.**\
-`By Adam Rasgon`\
-https://nytimes.com/live/2024/06/04/world/israel-gaza-war-hamas/hostage-families-initially-optimistic-on-a-new-cease-fire-deal-feel-hope-slipping-away
 

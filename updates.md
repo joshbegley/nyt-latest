@@ -1,3 +1,7 @@
+**We’re Entering a Joyful New Era of Lesbian Fashion**\
+`Pairing silky garments with butch suiting, women are pushing back against stereotypical ideas about dressing, on the red carpet and beyond.`\
+https://nytimes.com/2024/06/04/t-magazine/lesbian-fashion-kristen-stewart.html
+
 **Biden Issues Order to Curb Immigration at Southern Border**\
 `President Biden’s executive order prevents migrants from seeking asylum at the U.S.-Mexico border when crossings surge.`\
 https://nytimes.com/video/us/politics/100000009504073/biden-border-immigration.html
