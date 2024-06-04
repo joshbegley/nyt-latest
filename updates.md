@@ -1,3 +1,7 @@
+**The Ultimate Charli XCX Primer**\
+`Prep for the arrival of her new album, “Brat,” with 11 songs from her catalog (and 10 bonus tracks!).`\
+https://nytimes.com/2024/06/04/arts/music/amplifier-newsletter-charli-xcx.html
+
 **Hostage families, initially optimistic on a new cease-fire deal, feel hope slipping away.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/06/04/world/israel-gaza-war-hamas/hostage-families-initially-optimistic-on-a-new-cease-fire-deal-feel-hope-slipping-away

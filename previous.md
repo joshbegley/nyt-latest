@@ -1,3 +1,7 @@
+**The Ultimate Charli XCX Primer**\
+`Prep for the arrival of her new album, “Brat,” with 11 songs from her catalog (and 10 bonus tracks!).`\
+https://nytimes.com/2024/06/04/arts/music/amplifier-newsletter-charli-xcx.html
+
 **Hostage families, initially optimistic on a new cease-fire deal, feel hope slipping away.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/06/04/world/israel-gaza-war-hamas/hostage-families-initially-optimistic-on-a-new-cease-fire-deal-feel-hope-slipping-away
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/world/asia/modi-india-election.html
 **PTSD Treatments Are Falling Short for Many Patients**\
 `The F.D.A. is weighing whether to approve MDMA-assisted therapy as a new option.`\
 https://nytimes.com/2024/06/04/well/ptsd-treatment-mdma.html
-
-**The Big Hurdle Between R.F.K. Jr. and the Debate Stage (It’s Not a Poll)**\
-`The independent presidential candidate Robert F. Kennedy Jr. has said he’s confident he will qualify. But CNN’s rules have put an urgently ticking clock on his already-critical ballot access efforts.`\
-https://nytimes.com/2024/06/04/us/politics/rfk-jr-debate.html
 
