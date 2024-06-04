@@ -1,3 +1,11 @@
+**For some jurors, getting to the trial could be a challenge.**\
+`By Zach Montague`\
+https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/for-some-jurors-getting-to-the-trial-could-be-a-challenge
+
+**In Red Montana, Two Democrats Take a New Political Approach: Attack**\
+`Democrats in Republican states have tended toward soft-spoken moderation, but Ryan Busse and Raph Graybill have charted a different course in trying to take down Gov. Greg Gianforte.`\
+https://nytimes.com/2024/06/04/us/politics/montana-democrats.html
+
 **F.D.A. Panel Weighs MDMA Therapy and Its Risks**\
 `An independent group of experts is meeting Tuesday to consider whether to allow use of this illegal drug, also known as Ecstasy, to treat PTSD.`\
 https://nytimes.com/2024/06/04/health/mdma-ptsd-fda.html
@@ -30,12 +38,4 @@ https://nytimes.com/live/2024/06/04/us/hunter-biden-gun-trial/jury-selection-gav
 **A Changing of the Guard at the Royal Opera**\
 `Antonio Pappano says the London house, where he is wrapping up 22 years as music director, “will always be my home.”`\
 https://nytimes.com/2024/06/04/arts/music/antonio-pappano-royal-opera-departure-interview.html
-
-**Rwanda’s 2024 Election: What to Know**\
-`President Paul Kagame led Rwanda out of the genocide, but has since dominated the country like a colossus. He is running for a fourth term after winning three elections.`\
-https://nytimes.com/2024/06/04/world/africa/rwanda-2024-election.html
-
-**A Rare Type of Voice Gets a New Audience**\
-`A revival of Handel’s “Giulio Cesare” this summer at Glyndebourne, an English opera festival, features three countertenors with three different sounds.`\
-https://nytimes.com/2024/06/04/arts/music/handel-opera-glynebourne-festival.html
 
