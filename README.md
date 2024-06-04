@@ -1,3 +1,7 @@
+**Halsey, Dealing With Illness, Announces New Album and Song**\
+`The pop star did not specify what illness they were confronting in their announcement.`\
+https://nytimes.com/2024/06/04/arts/halsey-illness-new-album.html
+
 **What to Know About Claudia Sheinbaum, Mexico’s President-Elect**\
 `Claudia Sheinbaum’s list of accolades is long: She has earned a Ph.`\
 https://nytimes.com/video/world/americas/100000009504420/what-to-know-about-claudia-sheinbaum-mexicos-president-elect.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/sports/muhammad-ali-childhood-home-sale.html
 **Transcript: Ezra Klein Interviews Sam Rosenfeld and Daniel Schlozman**\
 `The June 4, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/06/04/podcasts/transcript-ezra-klein-interviews-sam-rosenfeld-and-daniel-schlozman.html
-
-**Nonny Hogrogian, 92, Honored Illustrator of Children’s Books, Dies**\
-`A two-time Caldecott Medal winner, she brought multiculturalism to children’s literature by evoking her Armenian heritage.`\
-https://nytimes.com/2024/06/04/books/nonny-hogrogian-dead.html
 
