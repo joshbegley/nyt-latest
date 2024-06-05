@@ -1,3 +1,7 @@
+**Maryland’s Popular Republican Senate Candidate Incurs Trump’s Wrath**\
+`When former Gov. Larry Hogan asked Americans to “respect the verdict,” the Trump team turned on his Senate candidacy, jeopardizing a potential Republican pickup opportunity.`\
+https://nytimes.com/2024/06/05/us/politics/larry-hogan-trump.html
+
 **Hunter Biden’s Ex-Wife, a Key Witness, Is Expected to Testify in Gun Trial**\
 `She is one of three women expected to testify about their relationships with the president’s son and his struggles with alcoholism and addiction.`\
 https://nytimes.com/2024/06/05/us/elections/hunter-biden-ex-wife-kathleen-buhle.html
