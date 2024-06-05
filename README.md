@@ -1,3 +1,11 @@
+**Did Boeing Just Fix Its Very Bad Year?**\
+`Even so, today’s launch feels like the last hurrah of an era of American space that is on its way out.`\
+https://nytimes.com/live/2024/06/04/opinion/thepoint/boeing-starliner-launch
+
+**Biden’s New Order Leaves Migrants at Border in Limbo Over Asylum Fate**\
+`In Mexican cities along the border with the United States, migrants were taking a wait-and-see approach to a restrictive new executive action.`\
+https://nytimes.com/2024/06/05/world/americas/migrants-us-mexico-border-biden.html
+
 **F.D.A. Advisers Recommend a New Covid Vaccine Formula for the Fall**\
 `The panel endorsed targeting a variant of the coronavirus that is now receding, though some officials suggested aiming at newer versions of the virus that have emerged in recent weeks.`\
 https://nytimes.com/2024/06/05/health/covid-vaccine-autumn.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/05/arts/television/clipped-review.html
 **‘What Became of Us’ Review: Reflections on a Family’s Immigration Tale**\
 `Shayan Lotfi’s topical play about a family building a new life in a new country leaves the details vague, deliberately.`\
 https://nytimes.com/2024/06/05/theater/what-became-of-us-review.html
-
-**Rock Climber Gets Life in Prison for Sexual Assaults at Yosemite**\
-`The climber was sentenced on two counts of aggravated sexual abuse and one count of abusive sexual contact in the 2016 assault of a woman during a weekend trip.`\
-https://nytimes.com/2024/06/05/us/charles-barrett-sentenced-assault-yosemite.html
-
-**A Russian American Is Sentenced in Russia Over Social Media Posts**\
-`The latest detention of an American national in Russia has renewed fears that the Kremlin is seeking to use U.S. citizens as bargaining chips.`\
-https://nytimes.com/2024/06/05/world/europe/russian-american-sentenced-social-media.html
 
