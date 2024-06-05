@@ -1,3 +1,7 @@
+**Boeing’s Starliner capsule has had a long, difficult road to human spaceflight.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2024/06/05/science/boeing-launch-starliner-nasa/boeings-starliner-capsule-has-had-a-long-difficult-road-to-human-spaceflight
+
 **Trump says he might ‘have to’ prosecute his political opponents.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/06/05/us/trump-biden-election/trump-says-he-might-have-to-prosecute-his-political-opponents
