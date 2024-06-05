@@ -1,3 +1,7 @@
+**18 people are arrested at an annual Jewish nationalist march through East Jerusalem.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/06/05/world/israel-gaza-war-hamas/violence-breaks-out-at-an-annual-jewish-nationalist-march-through-east-jerusalem
+
 **A Russian American Is Sentenced in Russia Over Social Media Posts**\
 `The latest detention of an American national in Russia has renewed fears that the Kremlin is seeking to use U.S. citizens as bargaining chips.`\
 https://nytimes.com/2024/06/05/world/europe/russian-american-sentenced-social-media.html
