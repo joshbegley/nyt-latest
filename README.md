@@ -1,3 +1,7 @@
+**The Bird Flu Virus Adapted to Sea Mammals. It May Not Be Done Yet.**\
+`Huge die-offs of elephant seals occurred after the virus gained nearly 20 troublesome new mutations, scientists found.`\
+https://nytimes.com/2024/06/05/health/bird-flu-mutations-mammals.html
+
 **Supporters of Congestion Pricing Are Furious at Hochul’s ‘Betrayal’**\
 `Advocates who have been fighting for decades for the program were shocked by the governor’s sudden move and its impact on funding for the city’s subways.`\
 https://nytimes.com/2024/06/05/nyregion/congestion-pricing-supporters.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/05/opinion/covid-school-attendance-pandemic-closings
 **U.S. Counterterrorism Chief Is Stepping Down**\
 `The official, Christine Abizaid, recently warned that the Hamas attacks in Israel, and the Gaza conflict, had energized terrorist threats worldwide.`\
 https://nytimes.com/2024/06/05/us/politics/us-counterterrorism-chief-resigns.html
-
-**Court Strikes Down S.E.C.’s Fee Disclosure Rule for Funds**\
-`Private equity and hedge funds had appealed the regulator’s August ruling requiring them to disclose their fees and expenses to investors.`\
-https://nytimes.com/2024/06/05/business/court-sec-fee-disclosure-rule-funds.html
 
