@@ -1,3 +1,7 @@
+**N.Y.P.D. Moves to Revoke Trump’s License to Carry a Gun**\
+`Former President Donald J. Trump had a concealed carry license and had three pistols.`\
+https://nytimes.com/2024/06/05/nyregion/trump-gun-license-nypd.html
+
 **A New Hurdle for Asylum Seekers: 4 Hours to Find a Lawyer**\
 `The new time constraint comes after President Biden announced a near-total ban on asylum on the southern border.`\
 https://nytimes.com/2024/06/05/us/politics/biden-asylum-restrictions-laywer.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/06/05/us/elections/times-siena-recontact-st
 **Small Shift Toward Biden After Trump Verdict**\
 `We reached nearly 2,000 people who participated in previous Times/Siena polls to see if any had changed their minds.`\
 https://nytimes.com/2024/06/05/upshot/polling-trump-conviction-voters.html
-
-**What Happens Now That Congestion Pricing Has Been Halted**\
-`First the Metropolitan Transportation Authority must vote. Then Gov. Kathy Hochul may seek another way to shore up the finances of the transit system.`\
-https://nytimes.com/2024/06/05/nyregion/what-happens-next-congestion-pricing.html
 
