@@ -1,3 +1,7 @@
+**Dollar Tree Explores Sale of Family Dollar**\
+`Family Dollar has struggled with its operations in recent years, and Dollar Tree said in March that it would close nearly 1,000 of the stores.`\
+https://nytimes.com/2024/06/05/business/family-dollar-dollar-tree-sale.html
+
 **Israel’s government wants to extend its Al Jazeera ban, and other news.**\
 
 **Europe’s Fed Problem**\
