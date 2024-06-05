@@ -1,3 +1,15 @@
+**Far-Right Politician Attacked With Box Cutter in Germany**\
+`The authorities said the attack did not appear to be targeted. But it came days after members of an anti-Islam group were stabbed in the same city, raising fears about violence before E.U. elections.`\
+https://nytimes.com/2024/06/05/world/europe/heinrich-koch-far-right-boxcutter-attack.html
+
+**Space is a small but important part of Boeing’s business.**\
+`By Niraj Chokshi`\
+https://nytimes.com/live/2024/06/05/science/boeing-launch-starliner-nasa/space-is-a-small-but-important-part-of-boeings-business
+
+**What is Boeing’s Starliner spacecraft?**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2024/06/05/science/boeing-launch-starliner-nasa/what-is-boeings-starliner-spacecraft
+
 **Space is a small but important part of Boeing’s business.**\
 `By Niraj Chokshi`\
 https://nytimes.com/live/2024/06/05/science/boeing-starliner-launch/space-is-a-small-but-important-part-of-boeings-business

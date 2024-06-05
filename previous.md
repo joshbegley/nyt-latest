@@ -1,6 +1,10 @@
+**Far-Right Politician Attacked With Box Cutter in Germany**\
+`The authorities said the attack did not appear to be targeted. But it came days after members of an anti-Islam group were stabbed in the same city, raising fears about violence before E.U. elections.`\
+https://nytimes.com/2024/06/05/world/europe/heinrich-koch-far-right-boxcutter-attack.html
+
 **Space is a small but important part of Boeing’s business.**\
 `By Niraj Chokshi`\
-https://nytimes.com/live/2024/06/05/science/boeing-starliner-launch/space-is-a-small-but-important-part-of-boeings-business
+https://nytimes.com/live/2024/06/05/science/boeing-launch-starliner-nasa/space-is-a-small-but-important-part-of-boeings-business
 
 **Dollar Tree Explores Sale of Family Dollar**\
 `Family Dollar has struggled with its operations in recent years, and Dollar Tree said in March that it would close nearly 1,000 of the stores.`\
@@ -20,7 +24,7 @@ https://nytimes.com/video/world/europe/100000009505161/sunak-and-starmer-debate-
 
 **What is Boeing’s Starliner spacecraft?**\
 `By Kenneth Chang`\
-https://nytimes.com/live/2024/06/05/science/boeing-starliner-launch/what-is-boeings-starliner-spacecraft
+https://nytimes.com/live/2024/06/05/science/boeing-launch-starliner-nasa/what-is-boeings-starliner-spacecraft
 
 **As the C.I.A. chief and a White House envoy head to the region, Israel and Hamas appear to still be at odds over the length of a cease-fire.**\
 `By Adam Rasgon and Julian E. Barnes`\
