@@ -1,3 +1,7 @@
+**The Beauty of Embracing Aging**\
+`I remind myself to relish every summer day.`\
+https://nytimes.com/2024/06/05/opinion/aging-older-family.html
+
 **Moscow Could Target Countries Supplying Weapons to Ukraine, Putin Says**\
 `President Vladimir V. Putin said that since Western governments were allowing long-range missiles to be used on Russia, it could do the same.`\
 https://nytimes.com/2024/06/05/us/putin-russia-ukraine-germany.html
