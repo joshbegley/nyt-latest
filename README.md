@@ -18,4 +18,4 @@ https://nytimes.com/live/2024/06/05/science/boeing-starliner-launch/what-is-boei
 `By Adam Rasgon and Julian E. Barnes`\
 https://nytimes.com/live/2024/06/05/world/israel-gaza-war-hamas/as-the-cia-chief-and-a-white-house-envoy-head-to-tisrael-and-hamas-appear-to-still-be-at-odds-over-the-length-of-a-cease-fire
 
-**Israel signs a deal for U.S. fighter jets, and other news.**\
+**Israel’s government wants to extend its Al Jazeera ban, and other news.**\
