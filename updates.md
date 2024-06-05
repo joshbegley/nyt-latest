@@ -1,3 +1,7 @@
+**The President’s Son: A Routine Gun Case, but Abnormal in Every Way**\
+`At Hunter Biden’s trial, he listened with the jury to his own voice on the audio version of his memoir. “We’ve all been inside rooms we can’t afford to die in,’’ he heard himself say.`\
+https://nytimes.com/2024/06/04/us/politics/hunter-biden-trial.html
+
 **Andy Kim Wins Democratic Primary for the U.S. Senate**\
 `The victory makes Mr. Kim, 41, a favorite to be elected New Jersey’s next U.S. senator.`\
 https://nytimes.com/2024/06/04/nyregion/andy-kim-nj-primary-senate.html
