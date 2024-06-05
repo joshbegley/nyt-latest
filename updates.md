@@ -1,3 +1,7 @@
+**Clash Over Phone Hacking Article Preceded Exit of Washington Post Editor**\
+`Will Lewis, the chief executive of The Washington Post, objected to coverage of a legal development involving him in a phone hacking case.`\
+https://nytimes.com/2024/06/05/business/media/washington-post-buzbee-lewis.html
+
 **N.Y.P.D. Moves to Revoke Trump’s License to Carry a Gun**\
 `Former President Donald J. Trump had a concealed carry license and had three pistols.`\
 https://nytimes.com/2024/06/05/nyregion/trump-gun-license-nypd.html

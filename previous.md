@@ -1,3 +1,7 @@
+**Clash Over Phone Hacking Article Preceded Exit of Washington Post Editor**\
+`Will Lewis, the chief executive of The Washington Post, objected to coverage of a legal development involving him in a phone hacking case.`\
+https://nytimes.com/2024/06/05/business/media/washington-post-buzbee-lewis.html
+
 **N.Y.P.D. Moves to Revoke Trump’s License to Carry a Gun**\
 `Former President Donald J. Trump had a concealed carry license and had three pistols.`\
 https://nytimes.com/2024/06/05/nyregion/trump-gun-license-nypd.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/05/us/politics/contraception-bill-senate-democrats.h
 **Results: Times/Siena Recontact Study of Previous Poll Respondents**\
 `Results of a recontact study in June re-interviewing 1,897 registered voters who had taken a Times/Siena poll in April or May, before the verdict in Donald J. Trump’s trial in New York.`\
 https://nytimes.com/interactive/2024/06/05/us/elections/times-siena-recontact-study-results.html
-
-**Small Shift Toward Biden After Trump Verdict**\
-`We reached nearly 2,000 people who participated in previous Times/Siena polls to see if any had changed their minds.`\
-https://nytimes.com/2024/06/05/upshot/polling-trump-conviction-voters.html
 
