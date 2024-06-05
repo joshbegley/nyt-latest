@@ -1,3 +1,15 @@
+**Some of the astronauts’ luggage is not going to make it to the space station.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2024/06/05/science/boeing-launch-starliner-nasa/some-of-the-astronauts-luggage-is-not-going-to-make-it-to-the-space-station
+
+**Here’s a Closer Look at the Hurdles to a Cease-Fire Deal**\
+`Neither Israel or Hamas have said definitively whether they would accept or reject a proposal outlined by President Biden, but sizable gaps between the two sides appear to remain.`\
+https://nytimes.com/2024/06/05/world/middleeast/israel-hamas-cease-fire-negotiations.html
+
+**The Shyamalans: A Family That Scares Together**\
+`Saleka and Ishana Night Shyamalan are collaborating with their father, M. Night Shyamalan, on the thrillers “The Watchers” and “Trap.” The release dates are a happy coincidence.`\
+https://nytimes.com/2024/06/05/movies/saleka-and-ishana-shyamalan-interview.html
+
 **Blissfully Crunchy Hot Honey Chicken**\
 `A coating of crushed cornflakes gives these cutlets a shaggy golden crust, ready to trap a drizzling of hot honey.`\
 https://nytimes.com/2024/06/05/dining/blissfully-crunchy-hot-honey-chicken.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/05/world/europe/king-charles-bank-notes-uk.html
 **How Electric Car Batteries Might Aid the Grid (and Win Over Drivers)**\
 `Automakers are exploring energy storage as a way to help utilities and save customers money, turning an expensive component into an industry asset.`\
 https://nytimes.com/2024/06/05/business/energy-environment/electric-car-batteries-grid.html
-
-**How Would Congestion Pricing Work in New York City?**\
-`The tolling program aims to diminish traffic while raising money for mass transit.`\
-https://nytimes.com/2024/06/05/nyregion/what-is-congestion-pricing-nyc.html
-
-**Here’s the revised flight plan for the Starliner’s journey.**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2024/06/05/science/boeing-launch-starliner-nasa/heres-the-revised-flight-plan-for-the-starliners-journey
-
-**‘Hanging by a Thread’: U.N. Chief Warns of Missing Key Climate Target**\
-`His comments came as the world body’s weather agency said it expected Earth to soon surpass the record high temperatures experienced in 2023.`\
-https://nytimes.com/2024/06/05/climate/global-warming-outlook.html
 
