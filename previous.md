@@ -12,7 +12,7 @@ https://nytimes.com/2024/06/05/technology/personaltech/digitize-family-photos-ge
 
 **E.P.A. Moves to Limit Toxic Chemical Used in Hundreds of Products**\
 `The chemical, N-Methylpyrrolidone, or NMP, has been linked to miscarriages, reduced male fertility and other health problems.`\
-https://nytimes.com/2024/06/05/climate/epa-moves-to-limit-toxic-chemical-used-in-hundreds-of-products.html
+https://nytimes.com/2024/06/05/climate/epa-nmp-chemical-ban.html
 
 **Is It Disrespectful to My Dead Father to Speak to His Estranged Brother?**\
 `A reader’s uncle and aunt were touched when she sent them a Christmas card, but her sister thinks the gesture was a betrayal of their father’s memory.`\

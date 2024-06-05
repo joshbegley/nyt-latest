@@ -1,3 +1,7 @@
+**E.P.A. Moves to Limit Toxic Chemical Used in Hundreds of Products**\
+`The chemical, N-Methylpyrrolidone, or NMP, has been linked to miscarriages, reduced male fertility and other health problems.`\
+https://nytimes.com/2024/06/05/climate/epa-nmp-chemical-ban.html
+
 **Boeing’s Starliner capsule has had a long, difficult road to human spaceflight.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/06/05/science/boeing-launch-starliner-nasa/boeings-starliner-capsule-has-had-a-long-difficult-road-to-human-spaceflight
