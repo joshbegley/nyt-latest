@@ -1,3 +1,11 @@
+**Parnelli Jones, Champion Auto Racer and Record Setter, Is Dead at 90**\
+`He was one of the greatest drivers of the 1960s and ’70s, winning six times at Indianapolis and four times in NASCAR events while setting speed marks.`\
+https://nytimes.com/2024/06/04/sports/autoracing/parnelli-jones-dead.html
+
+**D.A. Seeks to Overturn Texas Governor’s Pardon of Man Who Killed Protester**\
+`The prosecutor accused the governor of violating the constitutional separation of powers doctrine by intervening with the actions of a court.`\
+https://nytimes.com/2024/06/04/us/abbott-pardon-daniel-perry-texas.html
+
 **Rival U.K. Political Leaders Clash in Bad-Tempered Election Debate**\
 `Prime Minister Rishi Sunak, fighting to narrow a substantial polling gap, adopted an aggressive approach against his Labour Party opponent, Keir Starmer.`\
 https://nytimes.com/2024/06/04/world/europe/sunak-starmer-britain-prime-minister-debate.html
