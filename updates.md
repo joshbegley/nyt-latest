@@ -1,3 +1,7 @@
+**Columbia Law Review Website Is Taken Offline Over Article Criticizing Israel**\
+`The board of directors of the student-run publication said that the article, by a Palestinian human rights lawyer, had not been subject to sufficient review.`\
+https://nytimes.com/2024/06/04/nyregion/columbia-law-review-website.html
+
 **Call on the High Seas**\
 `David Rockow gets organized.`\
 https://nytimes.com/2024/06/04/crosswords/daily-puzzle-2024-06-05.html
