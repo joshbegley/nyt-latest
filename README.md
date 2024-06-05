@@ -1,3 +1,11 @@
+**What Happens Now That Congestion Pricing Has Been Halted**\
+`First the Metropolitan Transportation Authority must vote. Then Gov. Kathy Hochul may seek another way to shore up the finances of the transit system.`\
+https://nytimes.com/2024/06/05/nyregion/what-happens-next-congestion-pricing.html
+
+**Thursday Briefing: A Special Report From Sudan**\
+`Also, the 80th anniversary of D-Day.`\
+https://nytimes.com/2024/06/05/world/asia/sudan-israel-heat-dday-india-asia.html
+
 **House Republicans Issue Criminal Referrals of Hunter and James Biden**\
 `The referrals, which accuse the president’s son and brother of lying about his involvement in their business dealings, carry no force of law but are the latest bid by Republicans to target the Biden family.`\
 https://nytimes.com/2024/06/05/us/politics/republicans-criminal-referrals-hunter-and-james-biden.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/06/04/opinion/thepoint/boeing-starliner-launch
 **Biden’s New Order Leaves Migrants at Border in Limbo Over Asylum Fate**\
 `In Mexican cities along the border with the United States, migrants were taking a wait-and-see approach to a restrictive new executive action.`\
 https://nytimes.com/2024/06/05/world/americas/migrants-us-mexico-border-biden.html
-
-**F.D.A. Advisers Recommend a New Covid Vaccine Formula for the Fall**\
-`The panel endorsed targeting a variant of the coronavirus that is now receding, though some officials suggested aiming at newer versions of the virus that have emerged in recent weeks.`\
-https://nytimes.com/2024/06/05/health/covid-vaccine-autumn.html
-
-**Julia Fox: The Popcast (Deluxe) Interview**\
-`The actress, writer and New York icon discusses her post-Kanye career, what it’s like to see her past go viral and the history of “It Girl” pop songs.`\
-https://nytimes.com/2024/06/05/arts/music/julia-fox-interview-popcast-deluxe.html
 
