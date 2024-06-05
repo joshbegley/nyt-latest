@@ -1,3 +1,7 @@
+**Herb Conaway Wins House Primary in Andy Kim’s District**\
+`Mr. Kim, who represents District 3 in New Jersey, is running for the Senate seat held by Robert Menendez.`\
+https://nytimes.com/2024/06/04/nyregion/new-jersey-district-three-primary.html
+
 **Rob Menendez, a Senator’s Son, Staves off a Primary Challenge**\
 `Rob Menendez, a freshman member of Congress, beat Ravi Bhalla, the mayor of Hoboken, N.J.`\
 https://nytimes.com/2024/06/04/nyregion/new-jersey-house-district-8.html
