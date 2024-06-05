@@ -1,3 +1,7 @@
+**The New Kingmakers Who Could Make or Break Modi’s Government**\
+`Two veterans of bare-knuckled Indian politics have the Parliament votes the prime minister will need, but neither is aligned with his Hindu-first vision.`\
+https://nytimes.com/2024/06/05/world/asia/india-elections-modi-coalition.html
+
 **Far-Right Politician Attacked With Box Cutter in Germany**\
 `The authorities said the attack did not appear to be targeted. But it came days after members of an anti-Islam group were stabbed in the same city, raising fears about violence before E.U. elections.`\
 https://nytimes.com/2024/06/05/world/europe/heinrich-koch-far-right-boxcutter-attack.html
