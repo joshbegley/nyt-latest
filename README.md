@@ -1,3 +1,11 @@
+**How Top N.Y. Officials Helped a Lobbyist Cash in on State Government**\
+`The acting budget director, Sandra Beattie, helped a friend and former lawmaker land lobbying and consulting deals, investigators said.`\
+https://nytimes.com/2024/06/05/nyregion/ny-balboni-lobbyist-investigation.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/06/05/crosswords/spelling-bee-forum.html
+
 **Late Night Reacts to President Biden’s Border Closure Order**\
 `“The Daily Show” host Ronny Chieng joked that the president “has decided to start trying to win the election” with a temporary order affecting asylum seekers.`\
 https://nytimes.com/2024/06/05/arts/television/late-night-biden-border.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/05/business/economy/europe-economy-competitiveness.h
 **E.C.B. Is Likely to Leapfrog the Fed on Interest Rate Cuts**\
 `With eurozone inflation falling, the European Central Bank has signaled it is ready to lower rates this week, diverging from the U.S. Federal Reserve.`\
 https://nytimes.com/2024/06/05/business/european-central-bank-interest-rates.html
-
-**Quote of the Day: Marking 80 Years After D-Day With a ‘Last Hurrah’**\
-`Quotation of the Day for Wednesday, June 5, 2024.`\
-https://nytimes.com/2024/06/04/pageoneplus/quote-of-the-day-marking-80-years-after-d-day-with-a-last-hurrah.html
-
-**Hochul Pushes for Congestion Pricing Delay in Last-Minute Reversal**\
-`Gov. Kathy Hochul wants to postpone a plan to charge motorists to enter Manhattan’s business district, citing fears that it will hurt the city’s economy.`\
-https://nytimes.com/2024/06/04/nyregion/congestion-pricing-hochul-delayed.html
 
