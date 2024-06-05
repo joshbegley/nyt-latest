@@ -1,3 +1,7 @@
+**Trump Asks Judge to Lift N.Y. Gag Order Following Conviction**\
+`Citing statements by Stormy Daniels and Michael Cohen, and an upcoming presidential debate, Donald J. Trump’s lawyers asked a judge to lift the order.`\
+https://nytimes.com/2024/06/04/nyregion/trump-trial-conviction-gag-order.html
+
 **Parnelli Jones, Champion Auto Racer and Record Setter, Is Dead at 90**\
 `He was one of the greatest drivers of the 1960s and ’70s, winning six times at Indianapolis and four times in NASCAR events while setting speed marks.`\
 https://nytimes.com/2024/06/04/sports/autoracing/parnelli-jones-dead.html

@@ -1,3 +1,7 @@
+**Trump Asks Judge to Lift N.Y. Gag Order Following Conviction**\
+`Citing statements by Stormy Daniels and Michael Cohen, and an upcoming presidential debate, Donald J. Trump’s lawyers asked a judge to lift the order.`\
+https://nytimes.com/2024/06/04/nyregion/trump-trial-conviction-gag-order.html
+
 **Parnelli Jones, Champion Auto Racer and Record Setter, Is Dead at 90**\
 `He was one of the greatest drivers of the 1960s and ’70s, winning six times at Indianapolis and four times in NASCAR events while setting speed marks.`\
 https://nytimes.com/2024/06/04/sports/autoracing/parnelli-jones-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/arts/halsey-illness-new-album.html
 **What to Know About Claudia Sheinbaum, Mexico’s President-Elect**\
 `Claudia Sheinbaum’s list of accolades is long: She has earned a Ph.`\
 https://nytimes.com/video/world/americas/100000009504420/what-to-know-about-claudia-sheinbaum-mexicos-president-elect.html
-
-**Rob Burrow, Rugby Star and A.L.S. Campaigner, Dies at 41**\
-`The “Mighty Atom” enjoyed a glittering professional career in Britain before gaining more acclaim for his charity efforts after a diagnosis of motor neuron disease.`\
-https://nytimes.com/2024/06/04/sports/rob-burrow-dead.html
 
