@@ -1,3 +1,11 @@
+**Costco Plans to Stop Selling Books Year-Round**\
+`The decision, which will be implemented in January 2025, could significantly impact publishers.`\
+https://nytimes.com/2024/06/05/books/costco-will-stop-selling-books-year-round.html
+
+**Judge Reshuffles Hearings in Trump Documents Case**\
+`The new schedule set by Judge Aileen Cannon reflects the array of legal issues that she has yet to resolve amid efforts by the former president’s legal team to delay the trial.`\
+https://nytimes.com/2024/06/05/us/politics/trump-documents-case-hearings.html
+
 **Boeing Carries NASA Astronauts to Orbit in ‘Milestone’ Starliner Flight**\
 `The launch marks a long-delayed win for the aerospace giant, and the next step in NASA’s reliance on the private sector for its human spaceflight program.`\
 https://nytimes.com/2024/06/05/science/nasa-boeing-starliner-launch.html

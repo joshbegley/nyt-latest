@@ -1,3 +1,11 @@
+**Costco Plans to Stop Selling Books Year-Round**\
+`The decision, which will be implemented in January 2025, could significantly impact publishers.`\
+https://nytimes.com/2024/06/05/books/costco-will-stop-selling-books-year-round.html
+
+**Judge Reshuffles Hearings in Trump Documents Case**\
+`The new schedule set by Judge Aileen Cannon reflects the array of legal issues that she has yet to resolve amid efforts by the former president’s legal team to delay the trial.`\
+https://nytimes.com/2024/06/05/us/politics/trump-documents-case-hearings.html
+
 **Boeing Carries NASA Astronauts to Orbit in ‘Milestone’ Starliner Flight**\
 `The launch marks a long-delayed win for the aerospace giant, and the next step in NASA’s reliance on the private sector for its human spaceflight program.`\
 https://nytimes.com/2024/06/05/science/nasa-boeing-starliner-launch.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/05/us/politics/byron-donalds-trump-jim-crow.html
 **A former girlfriend, Zoe Kestan, describes Hunter Biden’s drug-fueled partying.**\
 `By Glenn Thrush and Zach Montague`\
 https://nytimes.com/live/2024/06/05/us/hunter-biden-trial-news/a-former-girlfriend-zoe-kestan-describes-hunter-bidens-drug-fueled-partying
-
-**Erich Anderson, Actor in ‘Friday the 13th’ and ‘Felicity,’ Dies at 67**\
-`Mr. Anderson had a breakout role in “Friday the 13th” and went on to appear in more than 300 TV episodes, including a recurring role as the father on “Felicity.”`\
-https://nytimes.com/2024/06/05/arts/erich-anderson-dead.html
-
-**The Bird Flu Virus Adapted to Sea Mammals. It May Not Be Done Yet.**\
-`Huge die-offs of elephant seals occurred after the virus gained nearly 20 troublesome new mutations, scientists found.`\
-https://nytimes.com/2024/06/05/health/bird-flu-mutations-mammals.html
 
