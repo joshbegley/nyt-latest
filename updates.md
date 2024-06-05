@@ -1,3 +1,7 @@
+**As Hunter Biden Stands Trial, a Republican Noise Machine Goes Silent**\
+`Republicans have gone after Hunter Biden for years, but his trial on gun charges undermines their views on gun rights and on a “weaponized” Justice Department.`\
+https://nytimes.com/2024/06/05/us/politics/hunter-biden-republicans.html
+
 **Some Republicans say a seldom-pursued charge is veering into public humiliation for Hunter Biden.**\
 `By Glenn Thrush`\
 https://nytimes.com/live/2024/06/05/us/hunter-biden-trial-news/some-republicans-say-a-seldom-pursued-charge-is-veering-into-public-humiliation-for-hunter-biden
