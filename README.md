@@ -6,7 +6,7 @@ https://nytimes.com/2024/06/05/climate/alameda-cloud-brightening-geoengineering.
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/06/05/science/boeing-launch-starliner-nasa/does-nasa-need-another-ride-to-the-space-station-elon-musk-says-no
 
-**Maryland’s Popular Republican Senate Candidate Incurs Trump’s Wrath**\
+**Larry Hogan Incurs Trump’s Wrath After Telling Americans to ‘Respect the Verdict’**\
 `When former Gov. Larry Hogan asked Americans to “respect the verdict,” the Trump team turned on his Senate candidacy, jeopardizing a potential Republican pickup opportunity.`\
 https://nytimes.com/2024/06/05/us/politics/larry-hogan-trump.html
 
