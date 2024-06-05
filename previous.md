@@ -1,3 +1,7 @@
+**Here’s the revised flight plan for the Starliner’s journey.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2024/06/05/science/boeing-launch-starliner-nasa/heres-the-revised-flight-plan-for-the-starliners-journey
+
 **‘Hanging by a Thread’: U.N. Chief Warns of Missing Key Climate Target**\
 `His comments came as the world body’s weather agency said it expected Earth to soon surpass the record high temperatures experienced in 2023.`\
 https://nytimes.com/2024/06/05/climate/global-warming-outlook.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/05/science/boeing-launch-starliner-nasa/boeings
 **Trump says he might ‘have to’ prosecute his political opponents.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/06/05/us/trump-biden-election/trump-says-he-might-have-to-prosecute-his-political-opponents
-
-**Finding Your Roots With Help From Your Phone**\
-`Everyday tools and free apps on your mobile device can help you collect, translate and digitize new material for your family-tree files.`\
-https://nytimes.com/2024/06/05/technology/personaltech/digitize-family-photos-genealogy-phone.html
 
