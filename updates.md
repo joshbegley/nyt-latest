@@ -1,3 +1,7 @@
+**Republican Leaders Seek to Avenge Trump**\
+`Also, New York’s governor halted its congestion pricing plan. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/06/05/briefing/trump-republicans-revenge-new-york-tolls.html
+
 **G.O.P. Blocks Contraception Bill in Senate as Democrats Seek Political Edge**\
 `Democrats scheduled the vote despite Republican opposition, hoping to highlight an issue on which the G.O.P. is at odds with the vast majority of Americans.`\
 https://nytimes.com/2024/06/05/us/politics/contraception-bill-senate-democrats.html
