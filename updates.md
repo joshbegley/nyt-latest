@@ -1,3 +1,7 @@
+**Corrections: June 5, 2024**\
+`Corrections that appeared in print on Wednesday, June 5, 2024.`\
+https://nytimes.com/2024/06/04/pageoneplus/corrections-june-5-2024.html
+
 **Tim Sheehy Wins G.O.P. Nod to Challenge Tester for Senate in Montana**\
 `Mr. Sheehy will face a formidable opponent in Senator Jon Tester, the Democratic incumbent who has survived past challenges in his red state by leaning on his farming roots and bipartisan brand.`\
 https://nytimes.com/2024/06/04/us/politics/tim-sheehy-montana-senate-jon-tester.html
