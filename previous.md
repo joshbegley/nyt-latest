@@ -1,3 +1,7 @@
+**New York Is the Toughest Place in the Country to Apply for Asylum**\
+`Tens of thousands of migrants have flocked to New York City in recent years, seeking one of the few legal pathways to permanent residency in the United States.`\
+https://nytimes.com/2024/06/05/nyregion/new-york-asylum.html
+
 **Clash Over Phone Hacking Article Preceded Exit of Washington Post Editor**\
 `Will Lewis, the chief executive of The Washington Post, objected to coverage of a legal development involving him in a phone hacking case.`\
 https://nytimes.com/2024/06/05/business/media/washington-post-buzbee-lewis.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/05/briefing/trump-republicans-revenge-new-york-tolls
 **G.O.P. Blocks Contraception Bill in Senate as Democrats Seek Political Edge**\
 `Democrats scheduled the vote despite Republican opposition, hoping to highlight an issue on which the G.O.P. is at odds with the vast majority of Americans.`\
 https://nytimes.com/2024/06/05/us/politics/contraception-bill-senate-democrats.html
-
-**Results: Times/Siena Recontact Study of Previous Poll Respondents**\
-`Results of a recontact study in June re-interviewing 1,897 registered voters who had taken a Times/Siena poll in April or May, before the verdict in Donald J. Trump’s trial in New York.`\
-https://nytimes.com/interactive/2024/06/05/us/elections/times-siena-recontact-study-results.html
 
