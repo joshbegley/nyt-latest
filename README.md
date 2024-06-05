@@ -1,3 +1,7 @@
+**Trump’s Vows to Prosecute Rivals Put Rule of Law on the Ballot**\
+`Donald Trump’s promise to seek retribution challenges long-established norms. The election could hinge in part on what kind of justice system the country believes it has now and wants in the future.`\
+https://nytimes.com/2024/06/05/us/trump-retribution-justice.html
+
 **Republican Leaders Seek to Avenge Trump**\
 `Also, New York’s governor halted its congestion pricing plan. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/06/05/briefing/trump-republicans-revenge-new-york-tolls.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/05/us/trump-georgia-election-case-fani-willis.html
 **Larry Allen, Dominant N.F.L. Lineman, Dies at 52**\
 `Even on the star-studded Dallas Cowboys roster of the 1990s, he stood out with his head-turning strength and bone-rattling pancake blocks.`\
 https://nytimes.com/2024/06/05/sports/football/larry-allen-dead.html
-
-**U.N. Nuclear Watchdog Censures Iran and Demands Access for Inspectors**\
-`The International Atomic Energy Agency acted in the face of Iran’s refusal to allow experts to examine its stepped-up nuclear enrichment program.`\
-https://nytimes.com/2024/06/05/world/middleeast/iran-nuclear-iaea.html
 
