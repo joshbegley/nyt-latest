@@ -1,3 +1,7 @@
+**U.N. Nuclear Watchdog Censures Iran and Demands Access for Inspectors**\
+`The International Atomic Energy Agency acted in the face of Iran’s refusal to allow experts to examine its stepped-up nuclear enrichment program.`\
+https://nytimes.com/2024/06/05/world/middleeast/iran-nuclear-iaea.html
+
 **Let’s Talk About Hollywood Portrayals of Asian and Asian American Men (and Real-Life Romance)**\
 `Please tell us your thoughts on representation of Asian and Asian American men you have seen onscreen, and how those portrayals may have affected your romantic life.`\
 https://nytimes.com/2024/06/05/arts/asian-american-movies-tv-representation-relationships.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/05/us/detroit-conservancy-nonprofit-theft.html
 **As Biden Pushes for Truce in Gaza, Tensions Rise in Lebanon**\
 `After a barrage from Hezbollah militants on northern Israel, Prime Minister Benjamin Netanyahu threatened a “very intense” military response.`\
 https://nytimes.com/2024/06/05/world/middleeast/biden-israel-hezbollah-gaza.html
-
-**Slovak Prime Minister Speaks Publicly for First Time Since Assassination Attempt**\
-`Robert Fico said in a video address that he hoped to return to work in the coming weeks. He blamed the political opposition for the attack, a notion that the parties have strongly denied.`\
-https://nytimes.com/2024/06/05/world/europe/slovakia-prime-minister-robert-fico-speech.html
 
