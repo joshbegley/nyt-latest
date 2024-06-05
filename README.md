@@ -1,3 +1,7 @@
+**Rob Menendez, a Senator’s Son, Staves off a Primary Challenge**\
+`Rob Menendez, a freshman member of Congress, beat Ravi Bhalla, the mayor of Hoboken, N.J.`\
+https://nytimes.com/2024/06/04/nyregion/new-jersey-house-district-8.html
+
 **Review: In ‘Breaking the Story,’ All’s Unfair in Love and War**\
 `Maggie Siff plays a war journalist facing the most dangerous assignment of her life: domesticity.`\
 https://nytimes.com/2024/06/04/theater/breaking-the-story-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/world/europe/sunak-starmer-britain-prime-minister
 **Senator Menendez Enjoyed a Steakhouse Dinner, as the F.B.I. Watched**\
 `At Senator Robert Menendez’s bribery trial, an investigator described surveilling diners at a Washington restaurant. Among them were Mr. Menendez and an Egyptian official.`\
 https://nytimes.com/2024/06/04/nyregion/fbi-surveillance-robert-nadine-menendez.html
-
-**Ron Edmonds, 77, Whose Camera Captured the Shooting of Reagan, Dies**\
-`Working for The Associated Press, he won a Pulitzer Prize for his sequence of photos showing the president being struck by a bullet while three others fell wounded.`\
-https://nytimes.com/2024/06/04/business/media/ron-edmonds-dead.html
 
