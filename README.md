@@ -1,3 +1,15 @@
+**Hunter Biden’s Ex-Wife, a Key Witness, Is Expected to Testify in Gun Trial**\
+`She is one of three women expected to testify about their relationships with the president’s son and his struggles with alcoholism and addiction.`\
+https://nytimes.com/2024/06/05/us/elections/hunter-biden-ex-wife-kathleen-buhle.html
+
+**Allies Warn Former Fighter Pilots Not to Train Chinese Military Members**\
+`A new bulletin says China is trying to step up recruitment of Western-trained fighter pilots to improve its air combat capability.`\
+https://nytimes.com/2024/06/05/us/politics/us-china-pilots-allies.html
+
+**Starliner has cost Boeing $1.4 billion more than it planned to spend.**\
+`By Niraj Chokshi`\
+https://nytimes.com/live/2024/06/05/science/boeing-launch-starliner-nasa/starliner-has-cost-boeing-1-4-billion-more-than-it-planned-to-spend
+
 **Boeing’s Starliner capsule has had a long, difficult road to human spaceflight.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/06/05/science/boeing-launch-starliner-nasa/boeings-starliner-capsule-has-had-a-long-difficult-road-to-human-spaceflight
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/05/world/asia/india-elections-modi-coalition.html
 **Far-Right Politician Attacked With Box Cutter in Germany**\
 `The authorities said the attack did not appear to be targeted. But it came days after members of an anti-Islam group were stabbed in the same city, raising fears about violence before E.U. elections.`\
 https://nytimes.com/2024/06/05/world/europe/heinrich-koch-far-right-boxcutter-attack.html
-
-**Space is a small but important part of Boeing’s business.**\
-`By Niraj Chokshi`\
-https://nytimes.com/live/2024/06/05/science/boeing-launch-starliner-nasa/space-is-a-small-but-important-part-of-boeings-business
-
-**Dollar Tree Explores Sale of Family Dollar**\
-`Family Dollar has struggled with its operations in recent years, and Dollar Tree said in March that it would close nearly 1,000 of the stores.`\
-https://nytimes.com/2024/06/05/business/family-dollar-dollar-tree-sale.html
-
-**Europe’s Fed Problem**\
-`The European Central Bank is widely expected to cut interest rates on Thursday. But how low it can go may ultimately depend on the Federal Reserve.`\
-https://nytimes.com/2024/06/05/business/dealbook/ecb-fed-interest-rates.html
 
