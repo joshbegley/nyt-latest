@@ -1,3 +1,15 @@
+**How Will Trump’s Conviction Affect the Election?**\
+`Readers offer their analyses in response to various Opinion writers. Also: Foster children; free school meals.`\
+https://nytimes.com/2024/06/05/opinion/donald-trump-conviction-election.html
+
+**London Hospitals Face Major Disruptions After Cyberattack**\
+`A system used by several major London hospitals was targeted in a ransomware cyberattack, forcing the cancellation of services and the diversion of patients.`\
+https://nytimes.com/2024/06/05/world/europe/london-hospitals-cyberattack.html
+
+**Pro Skier and Partner Fall to Their Deaths in the Italian Alps**\
+`Jean Daniel Pession, a speed skier on the World Cup circuit, and his girlfriend, Elisa Arlian, fell more than 2,000 feet.`\
+https://nytimes.com/2024/06/05/world/europe/skiers-dead-mountain-italy.html
+
 **Rahul Gandhi, Long on the Ropes, Looks Set for an Unexpected Comeback**\
 `The Indian National Congress and its leader registered a far stronger showing in India’s elections than many expected.`\
 https://nytimes.com/2024/06/05/world/asia/india-congress-rahul-gandhi.html
