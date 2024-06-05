@@ -23,7 +23,7 @@ https://nytimes.com/2024/06/05/business/european-central-bank-interest-rates.htm
 https://nytimes.com/2024/06/04/pageoneplus/quote-of-the-day-marking-80-years-after-d-day-with-a-last-hurrah.html
 
 **Hochul Pushes for Congestion Pricing Delay in Last-Minute Reversal**\
-`Gov. Kathy Hochul wants to postpone a plan to charge motorists to enter Manhattan’s business district because she fears it will hurt the city’s economy.`\
+`Gov. Kathy Hochul wants to postpone a plan to charge motorists to enter Manhattan’s business district, citing fears that it will hurt the city’s economy.`\
 https://nytimes.com/2024/06/04/nyregion/congestion-pricing-hochul-delayed.html
 
 **Corrections: June 5, 2024**\
