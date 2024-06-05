@@ -1,3 +1,11 @@
+**Collectors Line Up in London as King Charles Bank Notes Are Released**\
+`A steady stream of people lined up at the Bank of England on Wednesday to get what they hoped would be collector’s items: the first bank notes featuring the portrait of King Charles III.`\
+https://nytimes.com/2024/06/05/world/europe/king-charles-bank-notes-uk.html
+
+**How Electric Car Batteries Might Aid the Grid (and Win Over Drivers)**\
+`Automakers are exploring energy storage as a way to help utilities and save customers money, turning an expensive component into an industry asset.`\
+https://nytimes.com/2024/06/05/business/energy-environment/electric-car-batteries-grid.html
+
 **How Would Congestion Pricing Work in New York City?**\
 `The tolling program aims to diminish traffic while raising money for mass transit.`\
 https://nytimes.com/2024/06/05/nyregion/what-is-congestion-pricing-nyc.html
