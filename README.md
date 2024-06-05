@@ -1,3 +1,7 @@
+**As Hunter Biden Stands Trial, a Republican Noise Machine Goes Silent**\
+`Republicans have gone after Hunter Biden for years, but his trial on gun charges undermines their views on gun rights and on a “weaponized” Justice Department.`\
+https://nytimes.com/2024/06/05/us/politics/hunter-biden-republicans.html
+
 **Some Republicans say a seldom-pursued charge is veering into public humiliation for Hunter Biden.**\
 `By Glenn Thrush`\
 https://nytimes.com/live/2024/06/05/us/hunter-biden-trial-news/some-republicans-say-a-seldom-pursued-charge-is-veering-into-public-humiliation-for-hunter-biden
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/05/arts/music/zack-winokur-little-island.html
 **Israel says it has launched a new operation in central Gaza and health officials report dozens dead.**\
 `Israel said it launched operations “above and below ground” against Hamas militants. The only hospital in the area is overwhelmed by the wounded, medics say.`\
 https://nytimes.com/live/2024/06/05/world/israel-gaza-war-hamas/israel-says-it-has-launched-a-new-operation-in-central-gaza-and-health-officials-report-dozens-dead
-
-**Hochul Halts Congestion Pricing in a Stunning 11th-Hour Shift**\
-`Weeks before New York was to charge motorists to enter Manhattan’s business district, Gov. Kathy Hochul postponed the program citing economic concerns.`\
-https://nytimes.com/2024/06/05/nyregion/congestion-pricing-pause-hochul.html
 
