@@ -1,3 +1,11 @@
+**Julia Fox: The Popcast (Deluxe) Interview**\
+`The actress, writer and New York icon discusses her post-Kanye career, what it’s like to see her past go viral and the history of “It Girl” pop songs.`\
+https://nytimes.com/2024/06/05/arts/music/julia-fox-interview-popcast-deluxe.html
+
+**What’s in Our Queue? Tems and More**\
+`I’m the West Africa bureau chief, covering 25 countries. Here are five things I’ve been enjoying lately.`\
+https://nytimes.com/interactive/2024/06/05/arts/editors-recommendations-tems.html
+
 **Officer of Detroit Nonprofit Accused of Stealing $40 Million**\
 `Prosecutors said the financial chief of the Detroit Riverfront Conservancy used the group’s funds for personal purchases from Louis Vuitton and a diamond dealer.`\
 https://nytimes.com/2024/06/05/us/detroit-conservancy-nonprofit-theft.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/05/world/europe/russian-american-sentenced-social-me
 **Here are the witnesses who may testify for the prosecution.**\
 `By Zach Montague`\
 https://nytimes.com/live/2024/06/05/us/hunter-biden-trial-news/here-are-the-witnesses-who-may-testify-for-the-prosecution
-
-**Rekindling Love Takes More Than a Good Match. Just Ask J. Lo and Ben Affleck.**\
-`Sometimes getting back with an ex means dealing with undesired scrutiny and doubters.`\
-https://nytimes.com/2024/06/05/style/jennifer-lopez-ben-affleck-relationship.html
-
-**Bob Kelley, Who Made the Kelley Blue Book an Authority on Cars, Dies at 96**\
-`He knew all the data that went into determining a vehicle’s price, but he insisted that it was as much an art as it was a science.`\
-https://nytimes.com/2024/06/05/business/bob-kelley-dead.html
 
