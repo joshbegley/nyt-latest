@@ -1,3 +1,7 @@
+**U.S. Counterterrorism Chief Is Stepping Down**\
+`The official, Christine Abizaid, recently warned that the Hamas attacks in Israel, and the Gaza conflict, had energized terrorist threats worldwide.`\
+https://nytimes.com/2024/06/05/us/politics/us-counterterrorism-chief-resigns.html
+
 **What Did Jenna Lyons Sell at Her Stoop Sale?**\
 `A garment she wore to Michelle Obama’s birthday party was just one of the things the former J. Crew president and reality television star added to the sale.`\
 https://nytimes.com/2024/06/05/style/jenna-lyons-closet-sale.html
