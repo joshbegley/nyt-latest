@@ -1,3 +1,11 @@
+**Officer of Detroit Nonprofit Accused of Stealing $40 Million**\
+`Prosecutors said the financial chief of the Detroit Riverfront Conservancy used the group’s funds for personal purchases from Louis Vuitton and a diamond dealer.`\
+https://nytimes.com/2024/06/05/us/detroit-conservancy-nonprofit-theft.html
+
+**As Biden Pushes for Truce in Gaza, Tensions Rise in Lebanon**\
+`After a barrage from Hezbollah militants on northern Israel, Prime Minister Benjamin Netanyahu threatened a “very intense” military response.`\
+https://nytimes.com/2024/06/05/world/middleeast/biden-israel-hezbollah-gaza.html
+
 **As Biden Pushes for Truce in Gaza, Tensions Rise in Lebanon**\
 `After a barrage from Hezbollah militants on northern Israel, Prime Minister Benjamin Netanyahu threatened a “very intense” military response.`\
 https://nytimes.com/2024/06/05/world/middleeast/biden-peace-igaza-lebanon-israel.html

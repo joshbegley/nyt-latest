@@ -1,6 +1,10 @@
+**Officer of Detroit Nonprofit Accused of Stealing $40 Million**\
+`Prosecutors said the financial chief of the Detroit Riverfront Conservancy used the group’s funds for personal purchases from Louis Vuitton and a diamond dealer.`\
+https://nytimes.com/2024/06/05/us/detroit-conservancy-nonprofit-theft.html
+
 **As Biden Pushes for Truce in Gaza, Tensions Rise in Lebanon**\
 `After a barrage from Hezbollah militants on northern Israel, Prime Minister Benjamin Netanyahu threatened a “very intense” military response.`\
-https://nytimes.com/2024/06/05/world/middleeast/biden-peace-igaza-lebanon-israel.html
+https://nytimes.com/2024/06/05/world/middleeast/biden-israel-hezbollah-gaza.html
 
 **Slovak Prime Minister Speaks Publicly for First Time Since Assassination Attempt**\
 `Robert Fico said in a video address that he hoped to return to work in the coming weeks. He blamed the political opposition for the attack, a notion that the parties have strongly denied.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/05/style/jennifer-lopez-ben-affleck-relationship.htm
 **Bob Kelley, Who Made the Kelley Blue Book an Authority on Cars, Dies at 96**\
 `He knew all the data that went into determining a vehicle’s price, but he insisted that it was as much an art as it was a science.`\
 https://nytimes.com/2024/06/05/business/bob-kelley-dead.html
-
-**Costco Plans to Stop Selling Books Year-Round**\
-`The decision, which will be implemented in January 2025, could significantly impact publishers.`\
-https://nytimes.com/2024/06/05/books/costco-books.html
 
