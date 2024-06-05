@@ -1,3 +1,7 @@
+**Does NASA need another ride to the space station? Elon Musk says no.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2024/06/05/science/boeing-launch-starliner-nasa/does-nasa-need-another-ride-to-the-space-station-elon-musk-says-no
+
 **Hunter Biden’s Ex-Wife, a Key Witness, Is Expected to Testify in Gun Trial**\
 `She is one of three women expected to testify about their relationships with the president’s son and his struggles with alcoholism and addiction.`\
 https://nytimes.com/2024/06/04/us/elections/hunter-biden-ex-wife-kathleen-buhle.html
