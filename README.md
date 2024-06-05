@@ -1,3 +1,7 @@
+**Corrections: June 5, 2024**\
+`Corrections that appeared in print on Wednesday, June 5, 2024.`\
+https://nytimes.com/2024/06/04/pageoneplus/corrections-june-5-2024.html
+
 **Tim Sheehy Wins G.O.P. Nod to Challenge Tester for Senate in Montana**\
 `Mr. Sheehy will face a formidable opponent in Senator Jon Tester, the Democratic incumbent who has survived past challenges in his red state by leaning on his farming roots and bipartisan brand.`\
 https://nytimes.com/2024/06/04/us/politics/tim-sheehy-montana-senate-jon-tester.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/us/politics/hunter-biden-trial.html
 **Andy Kim Wins Democratic Senate Primary; Rob Menendez Survives Challenge**\
 `The victory makes Mr. Kim a favorite to replace Mr. Menendez’s father, Senator Robert Menendez, who is on trial, charged with corruption — a detail that became central to his son’s re-election race.`\
 https://nytimes.com/2024/06/04/nyregion/andy-kim-nj-primary-senate.html
-
-**Andy Kim Wins Democratic Senate Primary in New Jersey**\
-`Mr. Kim jumped into the race shortly after the incumbent, Senator Robert Menendez, was indicted on federal corruption charges.`\
-https://nytimes.com/2024/06/04/nyregion/new-jersey-senate-primary.html
 
