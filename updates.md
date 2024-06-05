@@ -1,3 +1,7 @@
+**A New Hurdle for Asylum-Seekers: 4 Hours to Find a Lawyer**\
+`The new time constraint comes after President Biden announced a near-total ban on asylum on the southern border.`\
+https://nytimes.com/2024/06/05/us/politics/biden-asylum-restrictions-laywer.html
+
 **The Beauty of Embracing Aging**\
 `I remind myself to relish every summer day.`\
 https://nytimes.com/2024/06/05/opinion/aging-older-family.html
