@@ -1,3 +1,7 @@
+**Hochul Pushes for Congestion Pricing Delay in Last-Minute Reversal**\
+`Gov. Kathy Hochul wants to postpone a plan to charge motorists to enter Manhattan’s business district because she fears it will hurt the city’s economy.`\
+https://nytimes.com/2024/06/04/nyregion/congestion-pricing-hochul-delayed.html
+
 **Corrections: June 5, 2024**\
 `Corrections that appeared in print on Wednesday, June 5, 2024.`\
 https://nytimes.com/2024/06/04/pageoneplus/corrections-june-5-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/theater/breaking-the-story-review.html
 **The President’s Son: A Routine Gun Case, but Abnormal in Every Way**\
 `At Hunter Biden’s trial, he listened with the jury to his own voice on the audio version of his memoir. “We’ve all been inside rooms we can’t afford to die in,’’ he heard himself say.`\
 https://nytimes.com/2024/06/04/us/politics/hunter-biden-trial.html
-
-**Andy Kim Wins Democratic Senate Primary; Rob Menendez Survives Challenge**\
-`The victory makes Mr. Kim a favorite to replace Mr. Menendez’s father, Senator Robert Menendez, who is on trial, charged with corruption — a detail that became central to his son’s re-election race.`\
-https://nytimes.com/2024/06/04/nyregion/andy-kim-nj-primary-senate.html
 
