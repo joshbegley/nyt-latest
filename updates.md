@@ -1,3 +1,7 @@
+**Rob Menendez, a Senator’s Son, Staves off a Primary Challenge**\
+`Rob Menendez, a freshman member of Congress, beat Ravi Bhalla, the mayor of Hoboken, N.J.`\
+https://nytimes.com/2024/06/04/nyregion/new-jersey-house-district-8.html
+
 **Review: In ‘Breaking the Story,’ All’s Unfair in Love and War**\
 `Maggie Siff plays a war journalist facing the most dangerous assignment of her life: domesticity.`\
 https://nytimes.com/2024/06/04/theater/breaking-the-story-review.html
