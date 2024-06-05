@@ -1,3 +1,15 @@
+**As Biden Pushes for Truce in Gaza, Tensions Rise in Lebanon**\
+`After a barrage from Hezbollah militants on northern Israel, Prime Minister Benjamin Netanyahu threatened a “very intense” military response.`\
+https://nytimes.com/2024/06/05/world/middleeast/biden-peace-igaza-lebanon-israel.html
+
+**Slovak Prime Minister Speaks Publicly for First Time Since Assassination Attempt**\
+`Robert Fico said in a video address that he hoped to return to work in the coming weeks. He blamed the political opposition for the attack, a notion that the parties have strongly denied.`\
+https://nytimes.com/2024/06/05/world/europe/slovakia-prime-minister-robert-fico-speech.html
+
+**‘Clipped’ Is a Juicy Sports Docudrama**\
+`The latest gossipy sports show, it recreates the scandal surrounding Donald Sterling, the former owner of the Los Angeles Clippers who was banned from the N.B.A. for life in 2014.`\
+https://nytimes.com/2024/06/05/arts/television/clipped-review.html
+
 **‘What Became of Us’ Review: Reflections on a Family’s Immigration Tale**\
 `Shayan Lotfi’s topical play about a family building a new life in a new country leaves the details vague, deliberately.`\
 https://nytimes.com/2024/06/05/theater/what-became-of-us-review.html
