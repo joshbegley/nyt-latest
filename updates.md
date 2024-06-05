@@ -1,3 +1,15 @@
+**Hunter Biden’s Ex-Wife, a Key Witness, Is Expected to Testify in Gun Trial**\
+`She is one of three women expected to testify about their relationships with the president’s son and his struggles with alcoholism and addiction.`\
+https://nytimes.com/2024/06/05/us/elections/hunter-biden-ex-wife-kathleen-buhle.html
+
+**Allies Warn Former Fighter Pilots Not to Train Chinese Military Members**\
+`A new bulletin says China is trying to step up recruitment of Western-trained fighter pilots to improve its air combat capability.`\
+https://nytimes.com/2024/06/05/us/politics/us-china-pilots-allies.html
+
+**Starliner has cost Boeing $1.4 billion more than it planned to spend.**\
+`By Niraj Chokshi`\
+https://nytimes.com/live/2024/06/05/science/boeing-launch-starliner-nasa/starliner-has-cost-boeing-1-4-billion-more-than-it-planned-to-spend
+
 **E.P.A. Moves to Limit Toxic Chemical Used in Hundreds of Products**\
 `The chemical, N-Methylpyrrolidone, or NMP, has been linked to miscarriages, reduced male fertility and other health problems.`\
 https://nytimes.com/2024/06/05/climate/epa-nmp-chemical-ban.html
