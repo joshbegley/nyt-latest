@@ -1,3 +1,7 @@
+**Review: In ‘Breaking the Story,’ All’s Unfair in Love and War**\
+`Maggie Siff plays a war journalist facing the most dangerous assignment of her life: domesticity.`\
+https://nytimes.com/2024/06/04/theater/breaking-the-story-review.html
+
 **The President’s Son: A Routine Gun Case, but Abnormal in Every Way**\
 `At Hunter Biden’s trial, he listened with the jury to his own voice on the audio version of his memoir. “We’ve all been inside rooms we can’t afford to die in,’’ he heard himself say.`\
 https://nytimes.com/2024/06/04/us/politics/hunter-biden-trial.html
