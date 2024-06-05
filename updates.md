@@ -1,3 +1,7 @@
+**U.N. Nuclear Watchdog Censures Iran and Demands Access for Inspectors**\
+`The International Atomic Energy Agency acted in the face of Iran’s refusal to allow experts to examine its stepped-up nuclear enrichment program.`\
+https://nytimes.com/2024/06/05/world/middleeast/iran-nuclear-iaea.html
+
 **Let’s Talk About Hollywood Portrayals of Asian and Asian American Men (and Real-Life Romance)**\
 `Please tell us your thoughts on representation of Asian and Asian American men you have seen onscreen, and how those portrayals may have affected your romantic life.`\
 https://nytimes.com/2024/06/05/arts/asian-american-movies-tv-representation-relationships.html
