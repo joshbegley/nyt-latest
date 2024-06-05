@@ -1,3 +1,7 @@
+**Quote of the Day: Marking 80 Years After D-Day With a ‘Last Hurrah’**\
+`Quotation of the Day for Wednesday, June 5, 2024.`\
+https://nytimes.com/2024/06/04/pageoneplus/quote-of-the-day-marking-80-years-after-d-day-with-a-last-hurrah.html
+
 **Hochul Pushes for Congestion Pricing Delay in Last-Minute Reversal**\
 `Gov. Kathy Hochul wants to postpone a plan to charge motorists to enter Manhattan’s business district because she fears it will hurt the city’s economy.`\
 https://nytimes.com/2024/06/04/nyregion/congestion-pricing-hochul-delayed.html
