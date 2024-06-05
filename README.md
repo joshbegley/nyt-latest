@@ -1,3 +1,7 @@
+**As Ukraine’s Summer Starts With Blackouts, Worries Over Winter Begin**\
+`Recent rolling power outages have raised alarm about what will happen when cold weather arrives and energy consumption goes even higher.`\
+https://nytimes.com/2024/06/05/world/europe/ukraine-energy-blackouts-summer-i.html
+
 **Time to End New York’s Barrier to Jobs for Migrants**\
 `By Mara Gay`\
 https://nytimes.com/live/2024/06/04/opinion/thepoint/time-to-end-new-yorks-barrier-to-jobs-for-migrants
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/05/style/lauren-hutton-model.html
 **Hunter Biden’s Paintings: Not Quite the Refuge He Sought**\
 `The president’s son started selling his artwork several years ago, drawing potential ethics concerns that were discussed in congressional testimony this year.`\
 https://nytimes.com/2024/06/05/arts/hunter-biden-art-sales.html
-
-**$700,000 Homes in Connecticut, New Jersey and Georgia**\
-`A three-bedroom condominium in a converted Gothic Revival church in New Haven, an 1873 rowhouse in Lambertville and a 1938 bungalow in Atlanta.`\
-https://nytimes.com/2024/06/05/realestate/700000-homes-in-connecticut-new-jersey-and-georgia.html
 
