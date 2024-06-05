@@ -1,3 +1,7 @@
+**House Republicans Issue Criminal Referrals of Hunter and James Biden**\
+`The referrals, which accuse the president’s son and brother of lying about his involvement in their business dealings, carry no force of law but are the latest bid by Republicans to target the Biden family.`\
+https://nytimes.com/2024/06/05/us/politics/republicans-criminal-referrals-hunter-and-james-biden.html
+
 **Georgia Appeals Court Stays Most Proceedings in Trump Election Case**\
 `The order means the prosecution of Donald J. Trump in Georgia is effectively frozen, at least through the presidential election.`\
 https://nytimes.com/2024/06/05/us/trump-georgia-election-case-fani-willis.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/05/health/covid-vaccine-autumn.html
 **Julia Fox: The Popcast (Deluxe) Interview**\
 `The actress, writer and New York icon discusses her post-Kanye career, what it’s like to see her past go viral and the history of “It Girl” pop songs.`\
 https://nytimes.com/2024/06/05/arts/music/julia-fox-interview-popcast-deluxe.html
-
-**What’s in Our Queue? Tems and More**\
-`I’m the West Africa bureau chief, covering 25 countries. Here are five things I’ve been enjoying lately.`\
-https://nytimes.com/interactive/2024/06/05/arts/editors-recommendations-tems.html
 
