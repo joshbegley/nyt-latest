@@ -1,3 +1,11 @@
+**Let’s Talk About Hollywood Portrayals of Asian and Asian American Men (and Real-Life Romance)**\
+`Please tell us your thoughts on representation of Asian and Asian American men you have seen onscreen, and how those portrayals may have affected your romantic life.`\
+https://nytimes.com/2024/06/05/arts/asian-american-movies-tv-representation-relationships.html
+
+**Bertien van Manen, a Roving Photographer of Daily Life, Dies at 89**\
+`Inspired by Robert Frank’s book “The Americans,” she traveled to China, Russia and the coal mines of Kentucky to capture intimate glimpses of everyday routines.`\
+https://nytimes.com/2024/06/05/arts/bertien-van-manen-dead.html
+
 **Did Boeing Just Fix Its Very Bad Year?**\
 `Even so, today’s launch feels like the last hurrah of an era of American space that is on its way out.`\
 https://nytimes.com/live/2024/06/04/opinion/thepoint/boeing-starliner-launch
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/05/world/middleeast/biden-israel-hezbollah-gaza.html
 **Slovak Prime Minister Speaks Publicly for First Time Since Assassination Attempt**\
 `Robert Fico said in a video address that he hoped to return to work in the coming weeks. He blamed the political opposition for the attack, a notion that the parties have strongly denied.`\
 https://nytimes.com/2024/06/05/world/europe/slovakia-prime-minister-robert-fico-speech.html
-
-**‘Clipped’ Is a Juicy Sports Docudrama**\
-`The latest gossipy sports show, it recreates the scandal surrounding Donald Sterling, the former owner of the Los Angeles Clippers who was banned from the N.B.A. for life in 2014.`\
-https://nytimes.com/2024/06/05/arts/television/clipped-review.html
-
-**‘What Became of Us’ Review: Reflections on a Family’s Immigration Tale**\
-`Shayan Lotfi’s topical play about a family building a new life in a new country leaves the details vague, deliberately.`\
-https://nytimes.com/2024/06/05/theater/what-became-of-us-review.html
 
