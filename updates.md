@@ -1,3 +1,7 @@
+**Questions Dog a Case Involving a Suspended License and a Viral Video**\
+`Video of a man appearing behind the wheel via Zoom for a court hearing over a suspended license drew widespread attention. But there’s more to the story.`\
+https://nytimes.com/2024/06/04/us/corey-harris-zoom-suspended-license.html
+
 **Columbia Law Review Website Is Taken Offline Over Article Criticizing Israel**\
 `The board of directors of the student-run publication said that the article, by a Palestinian human rights lawyer, had not been subject to sufficient review.`\
 https://nytimes.com/2024/06/04/nyregion/columbia-law-review-website.html

@@ -1,3 +1,7 @@
+**Questions Dog a Case Involving a Suspended License and a Viral Video**\
+`Video of a man appearing behind the wheel via Zoom for a court hearing over a suspended license drew widespread attention. But there’s more to the story.`\
+https://nytimes.com/2024/06/04/us/corey-harris-zoom-suspended-license.html
+
 **Columbia Law Review Website Is Taken Offline Over Article Criticizing Israel**\
 `The board of directors of the student-run publication said that the article, by a Palestinian human rights lawyer, had not been subject to sufficient review.`\
 https://nytimes.com/2024/06/04/nyregion/columbia-law-review-website.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/nyregion/new-jersey-senate-primary.html
 **Trump Asks Judge to Lift N.Y. Gag Order Following Conviction**\
 `Citing statements by Stormy Daniels and Michael Cohen, and an upcoming presidential debate, Donald J. Trump’s lawyers asked a judge to lift the order.`\
 https://nytimes.com/2024/06/04/nyregion/trump-trial-conviction-gag-order.html
-
-**Parnelli Jones, Champion Auto Racer and Record Setter, Is Dead at 90**\
-`He was one of the greatest drivers of the 1960s and ’70s, winning six times at Indianapolis and four times in NASCAR events while setting speed marks.`\
-https://nytimes.com/2024/06/04/sports/autoracing/parnelli-jones-dead.html
 
