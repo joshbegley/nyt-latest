@@ -1,3 +1,7 @@
+**Some Republicans say a seldom-pursued charge is veering into public humiliation for Hunter Biden.**\
+`By Glenn Thrush`\
+https://nytimes.com/live/2024/06/05/us/hunter-biden-trial-news/some-republicans-say-a-seldom-pursued-charge-is-veering-into-public-humiliation-for-hunter-biden
+
 **Do I Tell the Woman With a Heart Condition She Can’t Swim With Us?**\
 `The magazine’s ethicist columnist on what to do when forced to play lifeguard.`\
 https://nytimes.com/2024/06/05/magazine/swimming-without-lifeguard-ethics.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/05/world/israel-gaza-war-hamas/israel-says-it-h
 **Hochul Halts Congestion Pricing in a Stunning 11th-Hour Shift**\
 `Weeks before New York was to charge motorists to enter Manhattan’s business district, Gov. Kathy Hochul postponed the program citing economic concerns.`\
 https://nytimes.com/2024/06/05/nyregion/congestion-pricing-pause-hochul.html
-
-**‘Hitler and the Nazis’ Review: Building a Case for Alarm**\
-`Joe Berlinger’s six-part documentary for Netflix asks whether we should see our future in Germany’s past.`\
-https://nytimes.com/2024/06/05/arts/television/hitler-and-the-nazis-netflix-review.html
 
