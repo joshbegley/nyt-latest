@@ -1,3 +1,7 @@
+**Boeing Carries NASA Astronauts to Orbit in ‘Milestone’ Starliner Flight**\
+`The launch marks a long-delayed win for the aerospace giant, and the next step in NASA’s reliance on the private sector for its human spaceflight program.`\
+https://nytimes.com/2024/06/05/science/nasa-boeing-starliner-launch.html
+
 **In Congestion Pricing Reversal, Hochul Finds Odd Allies, Including Trump**\
 `Gov. Kathy Hochul’s abrupt decision to delay the long-awaited plan put her in line with the former president, who has a habit of attacking New York, his hometown.`\
 https://nytimes.com/2024/06/05/nyregion/trump-congestion-pricing-hochul.html
