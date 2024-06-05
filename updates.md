@@ -1,3 +1,7 @@
+**Erich Anderson, Actor in ‘Friday the 13th’ and ‘Felicity,’ Dies at 67**\
+`Mr. Anderson had a breakout role in “Friday the 13th” and went on to appear in more than 300 TV episodes, including a recurring role as the father on “Felicity.”`\
+https://nytimes.com/2024/06/05/arts/erich-anderson-dead.html
+
 **The Bird Flu Virus Adapted to Sea Mammals. It May Not Be Done Yet.**\
 `Huge die-offs of elephant seals occurred after the virus gained nearly 20 troublesome new mutations, scientists found.`\
 https://nytimes.com/2024/06/05/health/bird-flu-mutations-mammals.html
