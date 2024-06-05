@@ -1,3 +1,7 @@
+**A New Hurdle for Asylum-Seekers: 4 Hours to Find a Lawyer**\
+`The new time constraint comes after President Biden announced a near-total ban on asylum on the southern border.`\
+https://nytimes.com/2024/06/05/us/politics/biden-asylum-restrictions-laywer.html
+
 **The Beauty of Embracing Aging**\
 `I remind myself to relish every summer day.`\
 https://nytimes.com/2024/06/05/opinion/aging-older-family.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/05/upshot/polling-trump-conviction-voters.html
 **What Happens Now That Congestion Pricing Has Been Halted**\
 `First the Metropolitan Transportation Authority must vote. Then Gov. Kathy Hochul may seek another way to shore up the finances of the transit system.`\
 https://nytimes.com/2024/06/05/nyregion/what-happens-next-congestion-pricing.html
-
-**Thursday Briefing: A Special Report From Sudan**\
-`Also, the 80th anniversary of D-Day.`\
-https://nytimes.com/2024/06/05/world/asia/sudan-israel-heat-dday-india-asia.html
 
