@@ -1,3 +1,7 @@
+**Review: ‘What’s the Point?’ Oona Doherty’s Resonant Ambivalence**\
+`The choreographer’s “Navy Blue” is the rare work to express the emotions of life in pandemic lockdown.`\
+https://nytimes.com/2024/06/05/arts/dance/review-oona-doherty-navy-blue.html
+
 **As Hunter Biden Stands Trial, a Republican Noise Machine Goes Silent**\
 `Republicans have gone after Hunter Biden for years, but his trial on gun charges undermines their views on gun rights and on a “weaponized” Justice Department.`\
 https://nytimes.com/2024/06/05/us/politics/hunter-biden-republicans.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/05/business/court-sec-fee-disclosure-rule-funds.html
 **Little Island Gets a Reboot, With a Rising Star at the Helm**\
 `Zack Winokur, an ambitious dancer-turned-director, now has a New York stage to call his own as the park’s artistic leader.`\
 https://nytimes.com/2024/06/05/arts/music/zack-winokur-little-island.html
-
-**Israel says it has launched a new operation in central Gaza and health officials report dozens dead.**\
-`Israel said it launched operations “above and below ground” against Hamas militants. The only hospital in the area is overwhelmed by the wounded, medics say.`\
-https://nytimes.com/live/2024/06/05/world/israel-gaza-war-hamas/israel-says-it-has-launched-a-new-operation-in-central-gaza-and-health-officials-report-dozens-dead
 
