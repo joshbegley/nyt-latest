@@ -1,3 +1,7 @@
+**‘What Became of Us’ Review: Reflections on a Family’s Immigration Tale**\
+`Shayan Lotfi’s topical play about a family building a new life in a new country leaves the details vague, deliberately.`\
+https://nytimes.com/2024/06/05/theater/what-became-of-us-review.html
+
 **Rock Climber Gets Life in Prison for Sexual Assaults at Yosemite**\
 `The climber was sentenced on two counts of aggravated sexual abuse and one count of abusive sexual contact in the 2016 assault of a woman during a weekend trip.`\
 https://nytimes.com/2024/06/05/us/charles-barrett-sentenced-assault-yosemite.html
