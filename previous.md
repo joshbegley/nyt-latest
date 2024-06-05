@@ -1,5 +1,5 @@
 **Pro-Palestinian Protesters Occupy Stanford President’s Office**\
-`Demonstrators took over the office at dawn and demanded that Stanford University trustees vote on divestment from companies said to support Israels military.`\
+`Demonstrators took over the office at dawn and demanded that Stanford University trustees vote on divestment from companies said to support Israel's military.`\
 https://nytimes.com/2024/06/05/us/stanford-protest-israel-gaza.html
 
 **How NASA ended up paying for private rides to orbit.**\
