@@ -1,3 +1,7 @@
+**Some Republicans say a seldom-pursued charge is veering into public humiliation for Hunter Biden.**\
+`By Glenn Thrush`\
+https://nytimes.com/live/2024/06/05/us/hunter-biden-trial-news/some-republicans-say-a-seldom-pursued-charge-is-veering-into-public-humiliation-for-hunter-biden
+
 **Do I Tell the Woman With a Heart Condition She Can’t Swim With Us?**\
 `The magazine’s ethicist columnist on what to do when forced to play lifeguard.`\
 https://nytimes.com/2024/06/05/magazine/swimming-without-lifeguard-ethics.html
