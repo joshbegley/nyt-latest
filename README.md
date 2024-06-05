@@ -1,8 +1,12 @@
+**Netanyahu warned of ‘very intense’ action against Hezbollah in Lebanon, as talk of a new war intensifies.**\
+`By Michael Levenson`\
+https://nytimes.com/live/2024/06/05/world/israel-gaza-war-hamas/netanyahu-warned-of-very-intense-action-against-hezbollah-in-lebanon-as-talk-of-a-new-war-intensifies
+
 **Gov. Hochul’s Unwarranted Retreat on Congestion Pricing**\
 `A vitally important public policy was derailed over political concerns.`\
 https://nytimes.com/2024/06/04/opinion/gov-hochuls-unwarranted-retreat-on-congestion-pricing.html
 
-**Why Children are Missing More School Now**\
+**Why Children Are Missing More School Now**\
 `Norms on attendance have changed, but it’s about more than Covid-era school closings.`\
 https://nytimes.com/2024/06/05/opinion/covid-school-attendance-pandemic-closings.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/05/arts/television/hitler-and-the-nazis-netflix-revi
 **Kathleen Buhle describes when she first learned that her husband smoked crack.**\
 `By Eileen Sullivan`\
 https://nytimes.com/live/2024/06/05/us/hunter-biden-trial-news/kathleen-buhle-describes-when-she-first-learned-that-her-husband-smoked-crack
-
-**It Was Legal Boilerplate. Trump Made It Sound Like a Threat to His Life.**\
-`The former president’s lies about the F.B.I. being prepared to kill him during the search of Mar-a-Lago took his attacks on the justice system and the rule of law to another level.`\
-https://nytimes.com/2024/06/05/us/politics/trump-fbi-documents-threats.html
 
