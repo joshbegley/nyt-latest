@@ -1,3 +1,7 @@
+**Boeing Carries NASA Astronauts to Orbit in ‘Milestone’ Starliner Flight**\
+`The launch marks a long-delayed win for the aerospace giant, and the next step in NASA’s reliance on the private sector for its human spaceflight program.`\
+https://nytimes.com/2024/06/05/science/nasa-boeing-starliner-launch.html
+
 **In Congestion Pricing Reversal, Hochul Finds Odd Allies, Including Trump**\
 `Gov. Kathy Hochul’s abrupt decision to delay the long-awaited plan put her in line with the former president, who has a habit of attacking New York, his hometown.`\
 https://nytimes.com/2024/06/05/nyregion/trump-congestion-pricing-hochul.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/05/arts/erich-anderson-dead.html
 **The Bird Flu Virus Adapted to Sea Mammals. It May Not Be Done Yet.**\
 `Huge die-offs of elephant seals occurred after the virus gained nearly 20 troublesome new mutations, scientists found.`\
 https://nytimes.com/2024/06/05/health/bird-flu-mutations-mammals.html
-
-**Supporters of Congestion Pricing Are Furious at Hochul’s ‘Betrayal’**\
-`Advocates who have been fighting for decades for the program were shocked by the governor’s sudden move and its impact on funding for the city’s subways.`\
-https://nytimes.com/2024/06/05/nyregion/congestion-pricing-supporters.html
 
