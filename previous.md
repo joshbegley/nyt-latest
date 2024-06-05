@@ -1,3 +1,15 @@
+**Finding Your Roots With Help From Your Phone**\
+`Everyday tools and free apps on your mobile device can help you collect, translate and digitize new material for your family-tree files.`\
+https://nytimes.com/2024/06/05/technology/personaltech/digitize-family-photos-genealogy-phone.html
+
+**E.P.A. Moves to Limit Toxic Chemical Used in Hundreds of Products**\
+`The chemical, N-Methylpyrrolidone, or NMP, has been linked to miscarriages, reduced male fertility and other health problems.`\
+https://nytimes.com/2024/06/05/climate/epa-moves-to-limit-toxic-chemical-used-in-hundreds-of-products.html
+
+**Is It Disrespectful to My Dead Father to Speak to His Estranged Brother?**\
+`A reader’s uncle and aunt were touched when she sent them a Christmas card, but her sister thinks the gesture was a betrayal of their father’s memory.`\
+https://nytimes.com/2024/06/05/style/grudges-family-member-estrangement.html
+
 **The New Kingmakers Who Could Make or Break Modi’s Government**\
 `Two veterans of bare-knuckled Indian politics have the Parliament votes the prime minister will need, but neither is aligned with his Hindu-first vision.`\
 https://nytimes.com/2024/06/05/world/asia/india-elections-modi-coalition.html
@@ -26,12 +38,3 @@ https://nytimes.com/2024/06/05/us/alameda-cloud-brightening-climate-change.html
 `Prime Minister Rishi Sunak of Britain and Keir Starmer, the Labour leader, clashed over taxes, health care policy and immigration during a televised debate.`\
 https://nytimes.com/video/world/europe/100000009505161/sunak-and-starmer-debate-key-issues-ahead-of-election.html
 
-**What is Boeing’s Starliner spacecraft?**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2024/06/05/science/boeing-launch-starliner-nasa/what-is-boeings-starliner-spacecraft
-
-**As the C.I.A. chief and a White House envoy head to the region, Israel and Hamas appear to still be at odds over the length of a cease-fire.**\
-`By Adam Rasgon and Julian E. Barnes`\
-https://nytimes.com/live/2024/06/05/world/israel-gaza-war-hamas/as-the-cia-chief-and-a-white-house-envoy-head-to-tisrael-and-hamas-appear-to-still-be-at-odds-over-the-length-of-a-cease-fire
-
-**Israel’s government wants to extend its Al Jazeera ban, and other news.**\
