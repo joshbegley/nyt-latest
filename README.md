@@ -1,3 +1,11 @@
+**Pro-Palestinian Protesters Occupy Stanford President’s Office**\
+`Demonstrators took over the office at dawn and demanded that Stanford University trustees vote on divestment from companies said to support Israels military.`\
+https://nytimes.com/2024/06/05/us/stanford-protest-israel-gaza.html
+
+**How NASA ended up paying for private rides to orbit.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2024/06/05/science/boeing-launch-starliner-nasa/how-nasa-ended-up-paying-for-private-rides-to-orbit
+
 **Part of the government’s case will rely on the testimony of Hunter Biden’s ex-wife.**\
 `By Glenn Thrush`\
 https://nytimes.com/live/2024/06/05/us/hunter-biden-trial-news/part-of-the-governments-case-will-rely-on-the-testimony-of-hunter-bidens-ex-wife
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/05/movies/tribeca-festival-standouts.html
 **New Report Underscores the Seriousness of Long Covid**\
 `The National Academies said the condition could involve up to 200 symptoms, make it difficult for people to work and last for months or years.`\
 https://nytimes.com/2024/06/05/health/long-covid-symptoms-recovery.html
-
-**Narendra Modi Fell to Earth After Making It All About Himself**\
-`The Indian leader used his singular persona to lift his party to new heights. Then the opposition found a way to use his cult of personality against him.`\
-https://nytimes.com/2024/06/05/world/asia/india-election-modi.html
-
-**India Keeps Its Glorious, Messy Tradition Alive**\
-`The voters have spoken: They want to keep their democracy.`\
-https://nytimes.com/2024/06/05/opinion/india-election-modi-bjp-democracy.html
 
