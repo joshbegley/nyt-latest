@@ -1,3 +1,7 @@
+**As Ukraine’s Summer Starts With Blackouts, Worries Over Winter Begin**\
+`Recent rolling power outages have raised alarm about what will happen when cold weather arrives and energy consumption goes even higher.`\
+https://nytimes.com/2024/06/05/world/europe/ukraine-energy-blackouts-summer-i.html
+
 **Time to End New York’s Barrier to Jobs for Migrants**\
 `By Mara Gay`\
 https://nytimes.com/live/2024/06/04/opinion/thepoint/time-to-end-new-yorks-barrier-to-jobs-for-migrants
