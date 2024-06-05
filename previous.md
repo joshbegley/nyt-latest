@@ -1,3 +1,11 @@
+**Indian Voters Have Finally Woken Up**\
+`Narendra Modi is a diminished figure after a disappointing election showing that could imperil his visions for an intolerant Hindu state.`\
+https://nytimes.com/2024/06/05/opinion/india-election-modi.html
+
+**Word of the Day: sheepishly**\
+`This word has appeared in 37 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/06/05/learning/word-of-the-day-sheepishly.html
+
 **Wednesday Briefing**\
 `Narendra Modi’s election setback in India.`\
 https://nytimes.com/2024/06/05/briefing/india-elections-ukraine-damage.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/04/nyregion/congestion-pricing-hochul-delayed.html
 **Corrections: June 5, 2024**\
 `Corrections that appeared in print on Wednesday, June 5, 2024.`\
 https://nytimes.com/2024/06/04/pageoneplus/corrections-june-5-2024.html
-
-**Tim Sheehy Wins G.O.P. Nod to Challenge Tester for Senate in Montana**\
-`Mr. Sheehy will face a formidable opponent in Senator Jon Tester, the Democratic incumbent who has survived past challenges in his red state by leaning on his farming roots and bipartisan brand.`\
-https://nytimes.com/2024/06/04/us/politics/tim-sheehy-montana-senate-jon-tester.html
-
-**Questions Dog a Case Involving a Suspended License and a Viral Video**\
-`Video of a man appearing behind the wheel via Zoom for a court hearing over a suspended license drew widespread attention. But there’s more to the story.`\
-https://nytimes.com/2024/06/04/us/corey-harris-zoom-suspended-license.html
 

@@ -1,3 +1,11 @@
+**Indian Voters Have Finally Woken Up**\
+`Narendra Modi is a diminished figure after a disappointing election showing that could imperil his visions for an intolerant Hindu state.`\
+https://nytimes.com/2024/06/05/opinion/india-election-modi.html
+
+**Word of the Day: sheepishly**\
+`This word has appeared in 37 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/06/05/learning/word-of-the-day-sheepishly.html
+
 **Hochul Pushes for Congestion Pricing Delay in Last-Minute Reversal**\
 `Gov. Kathy Hochul wants to postpone a plan to charge motorists to enter Manhattan’s business district, citing fears that it will hurt the city’s economy.`\
 https://nytimes.com/2024/06/04/nyregion/congestion-pricing-hochul-delayed.html
