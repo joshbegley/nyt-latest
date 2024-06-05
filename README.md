@@ -1,3 +1,7 @@
+**Trump says he might ‘have to’ prosecute his political opponents.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/06/05/us/trump-biden-election/trump-says-he-might-have-to-prosecute-his-political-opponents
+
 **Finding Your Roots With Help From Your Phone**\
 `Everyday tools and free apps on your mobile device can help you collect, translate and digitize new material for your family-tree files.`\
 https://nytimes.com/2024/06/05/technology/personaltech/digitize-family-photos-genealogy-phone.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/05/business/dealbook/ecb-fed-interest-rates.html
 **Alameda City Council Votes to Stop Cloud Brightening Test**\
 `City officials decided to block testing of an experimental technology to fight global warming, even though experts hired by the city found that it posed no health risk to residents.`\
 https://nytimes.com/2024/06/05/us/alameda-cloud-brightening-climate-change.html
-
-**Sunak and Starmer Debate Key Issues Ahead of Election**\
-`Prime Minister Rishi Sunak of Britain and Keir Starmer, the Labour leader, clashed over taxes, health care policy and immigration during a televised debate.`\
-https://nytimes.com/video/world/europe/100000009505161/sunak-and-starmer-debate-key-issues-ahead-of-election.html
 
