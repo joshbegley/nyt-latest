@@ -1,3 +1,11 @@
+**U.S. Counterterrorism Chief Stepping Down**\
+`The official, Christine Abizaid, recently warned that the Hamas attacks in Israel, and the Gaza conflict, had energized terrorist threats worldwide.`\
+https://nytimes.com/2024/06/05/us/politics/us-counterterrorism-chief-resigns.html
+
+**Court Strikes Down S.E.C.’s Fee Disclosure Rule for Funds**\
+`Private equity and hedge funds had appealed the regulator’s August ruling requiring them to disclose their fees and expenses to investors.`\
+https://nytimes.com/2024/06/05/business/court-sec-fee-disclosure-rule-funds.html
+
 **Little Island Gets a Reboot, With a Rising Star at the Helm**\
 `Zack Winokur, an ambitious dancer-turned-director, now has a New York stage to call his own as the park’s artistic leader.`\
 https://nytimes.com/2024/06/05/arts/music/zack-winokur-little-island.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/05/style/what-did-jenna-lyons-sell-at-her-stoop-sale
 **For Victims of Human Rights Violations, Family Matters**\
 `Notes from the Oslo Freedom Forum.`\
 https://nytimes.com/live/2024/06/04/opinion/thepoint/family-activist-political-oppression
-
-**How Will Trump’s Conviction Affect the Election?**\
-`Readers offer their analyses in response to various Opinion writers. Also: Foster children; free school meals.`\
-https://nytimes.com/2024/06/05/opinion/donald-trump-conviction-election.html
-
-**London Hospitals Face Major Disruptions After Cyberattack**\
-`A system used by several major London hospitals was targeted in a ransomware cyberattack, forcing the cancellation of services and the diversion of patients.`\
-https://nytimes.com/2024/06/05/world/europe/london-hospitals-cyberattack.html
 
