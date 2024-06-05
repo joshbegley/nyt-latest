@@ -1,3 +1,7 @@
+**Kathleen Buhle describes when she first learned that her husband smoked crack.**\
+`By Eileen Sullivan`\
+https://nytimes.com/live/2024/06/05/us/hunter-biden-trial-news/kathleen-buhle-describes-when-she-first-learned-that-her-husband-smoked-crack
+
 **It Was Legal Boilerplate. Trump Made It Sound Like a Threat to His Life.**\
 `The former president’s lies about the F.B.I. being prepared to kill him during the search of Mar-a-Lago took his attacks on the justice system and the rule of law to another level.`\
 https://nytimes.com/2024/06/05/us/politics/trump-fbi-documents-threats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/05/business/texas-stock-exchange.html
 **Pro-Palestinian Protesters Occupy Stanford President’s Office**\
 `Demonstrators took over the office at dawn and demanded that Stanford University trustees vote on divestment from companies said to support Israel's military.`\
 https://nytimes.com/2024/06/05/us/stanford-protest-israel-gaza.html
-
-**How NASA ended up paying for private rides to orbit.**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2024/06/05/science/boeing-launch-starliner-nasa/how-nasa-ended-up-paying-for-private-rides-to-orbit
 
