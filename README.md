@@ -1,3 +1,7 @@
+**Moscow Could Target Countries Supplying Weapons to Ukraine, Putin Says**\
+`President Vladimir V. Putin said that since Western governments were allowing long-range missiles to be used on Russia, it could do the same.`\
+https://nytimes.com/2024/06/05/us/putin-russia-ukraine-germany.html
+
 **Can Biden Use Trump’s Signature Issue — Immigration — Against Him?**\
 `His executive order curbing asylum aligned him with a broad swath of the public in an election year.`\
 https://nytimes.com/2024/06/05/us/politics/biden-trump-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/05/world/asia/sudan-israel-heat-dday-india-asia.html
 **House Republicans Issue Criminal Referrals of Hunter and James Biden**\
 `The referrals, which accuse the president’s son and brother of lying about his involvement in their business dealings, carry no force of law but are the latest bid by Republicans to target the Biden family.`\
 https://nytimes.com/2024/06/05/us/politics/republicans-criminal-referrals-hunter-and-james-biden.html
-
-**Georgia Appeals Court Stays Most Proceedings in Trump Election Case**\
-`The order means the prosecution of Donald J. Trump in Georgia is effectively frozen, at least through the presidential election.`\
-https://nytimes.com/2024/06/05/us/trump-georgia-election-case-fani-willis.html
 
