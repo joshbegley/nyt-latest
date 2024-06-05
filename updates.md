@@ -1,3 +1,7 @@
+**Rock Climber Gets Life in Prison for Sexual Assaults at Yosemite**\
+`The climber was sentenced on two counts of aggravated sexual abuse and one count of abusive sexual contact in the 2016 assault of a woman during a weekend trip.`\
+https://nytimes.com/2024/06/05/us/charles-barrett-sentenced-assault-yosemite.html
+
 **18 people are arrested at an annual Jewish nationalist march through East Jerusalem.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/06/05/world/israel-gaza-war-hamas/violence-breaks-out-at-an-annual-jewish-nationalist-march-through-east-jerusalem
