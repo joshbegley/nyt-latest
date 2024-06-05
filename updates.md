@@ -1,3 +1,11 @@
+**Did Boeing Just Fix Its Very Bad Year?**\
+`Even so, today’s launch feels like the last hurrah of an era of American space that is on its way out.`\
+https://nytimes.com/live/2024/06/04/opinion/thepoint/boeing-starliner-launch
+
+**Biden’s New Order Leaves Migrants at Border in Limbo Over Asylum Fate**\
+`In Mexican cities along the border with the United States, migrants were taking a wait-and-see approach to a restrictive new executive action.`\
+https://nytimes.com/2024/06/05/world/americas/migrants-us-mexico-border-biden.html
+
 **F.D.A. Advisers Recommend a New Covid Vaccine Formula for the Fall**\
 `The panel endorsed targeting a variant of the coronavirus that is now receding, though some officials suggested aiming at newer versions of the virus that have emerged in recent weeks.`\
 https://nytimes.com/2024/06/05/health/covid-vaccine-autumn.html
