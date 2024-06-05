@@ -1,3 +1,7 @@
+**Rahul Gandhi, Long on the Ropes, Looks Set for an Unexpected Comeback**\
+`The Indian National Congress and its leader registered a far stronger showing in India’s elections than many expected.`\
+https://nytimes.com/2024/06/05/world/asia/india-congress-rahul-gandhi.html
+
 **New Stock Exchange in Texas Takes Aim at N.Y.S.E. and Nasdaq**\
 `The Texas Stock Exchange, based in Dallas, has the backing of BlackRock and Citadel Securities. But challengers to the dominant New York markets have gained little traction.`\
 https://nytimes.com/2024/06/05/business/texas-stock-exchange.html
@@ -14,8 +18,8 @@ https://nytimes.com/live/2024/06/05/science/boeing-launch-starliner-nasa/how-nas
 `By Glenn Thrush`\
 https://nytimes.com/live/2024/06/05/us/hunter-biden-trial-news/part-of-the-governments-case-will-rely-on-the-testimony-of-hunter-bidens-ex-wife
 
-**Live Updates: Hunter Biden’s Ex-Wife, a Key Witness, Is Expected to Testify**\
-`She is one of three women expected to describe their relationships with the president’s son and his struggles with alcoholism and addiction. He is accused of lying about his drug use on a federal form when he purchased a gun.`\
+**Live Updates: Hunter Biden’s Ex-Wife Takes the Stand**\
+`She is one of three women expected to describe their relationships with the president’s son and his struggles with alcoholism and addiction. He is being tried on charges of lying about his drug use on a federal form when he purchased a gun.`\
 https://nytimes.com/live/2024/06/05/us/hunter-biden-trial-news
 
 **Some of the astronauts’ luggage is not going to make it to the space station.**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/05/movies/saleka-and-ishana-shyamalan-interview.html
 **Blissfully Crunchy Hot Honey Chicken**\
 `A coating of crushed cornflakes gives these cutlets a shaggy golden crust, ready to trap a drizzling of hot honey.`\
 https://nytimes.com/2024/06/05/dining/blissfully-crunchy-hot-honey-chicken.html
-
-**At the Tribeca Festival, Vision and Vibes**\
-`The festival favors abundance, which can make it easy for cinema fans (and critics) to miss the loveliest trees for the sheer breadth of forest.`\
-https://nytimes.com/2024/06/05/movies/tribeca-festival-standouts.html
 
