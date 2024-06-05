@@ -1,3 +1,7 @@
+**‘Hanging by a Thread’: U.N. Chief Warns of Missing Key Climate Target**\
+`His comments came as the world body’s weather agency said it expected Earth to soon surpass the record high temperatures experienced in 2023.`\
+https://nytimes.com/2024/06/05/climate/global-warming-outlook.html
+
 **California City Leaders End Cloud-Brightening Test, Overruling Staff**\
 `The City Council in Alameda, Calif., voted to stop tests of a device that could one day cool the Earth. Scientists and city staff had previously concluded the tests posed no risk.`\
 https://nytimes.com/2024/06/05/climate/alameda-cloud-brightening-geoengineering.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/05/us/trump-biden-election/trump-says-he-might-
 **Finding Your Roots With Help From Your Phone**\
 `Everyday tools and free apps on your mobile device can help you collect, translate and digitize new material for your family-tree files.`\
 https://nytimes.com/2024/06/05/technology/personaltech/digitize-family-photos-genealogy-phone.html
-
-**E.P.A. Moves to Limit Toxic Chemical Used in Hundreds of Products**\
-`The chemical, N-Methylpyrrolidone, or NMP, has been linked to miscarriages, reduced male fertility and other health problems.`\
-https://nytimes.com/2024/06/05/climate/epa-nmp-chemical-ban.html
 
