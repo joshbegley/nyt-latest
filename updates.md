@@ -1,3 +1,5 @@
+**Israel’s government wants to extend its Al Jazeera ban, and other news.**\
+
 **Europe’s Fed Problem**\
 `The European Central Bank is widely expected to cut interest rates on Thursday. But how low it can go may ultimately depend on the Federal Reserve.`\
 https://nytimes.com/2024/06/05/business/dealbook/ecb-fed-interest-rates.html
