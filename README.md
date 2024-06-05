@@ -14,8 +14,8 @@ https://nytimes.com/2024/06/04/theater/breaking-the-story-review.html
 `At Hunter Biden’s trial, he listened with the jury to his own voice on the audio version of his memoir. “We’ve all been inside rooms we can’t afford to die in,’’ he heard himself say.`\
 https://nytimes.com/2024/06/04/us/politics/hunter-biden-trial.html
 
-**Andy Kim Wins Democratic Primary for the U.S. Senate**\
-`The victory makes Mr. Kim, 41, a favorite to be elected New Jersey’s next U.S. senator.`\
+**Andy Kim Wins Democratic Senate Primary; Rob Menendez Survives Challenge**\
+`The victory makes Mr. Kim a favorite to replace Mr. Menendez’s father, Senator Robert Menendez, who is on trial — a detail that became central to his son’s race.`\
 https://nytimes.com/2024/06/04/nyregion/andy-kim-nj-primary-senate.html
 
 **Andy Kim Wins Democratic Senate Primary in New Jersey**\
