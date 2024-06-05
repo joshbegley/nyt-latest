@@ -1,3 +1,7 @@
+**Republican Leaders Seek to Avenge Trump**\
+`Also, New York’s governor halted its congestion pricing plan. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/06/05/briefing/trump-republicans-revenge-new-york-tolls.html
+
 **G.O.P. Blocks Contraception Bill in Senate as Democrats Seek Political Edge**\
 `Democrats scheduled the vote despite Republican opposition, hoping to highlight an issue on which the G.O.P. is at odds with the vast majority of Americans.`\
 https://nytimes.com/2024/06/05/us/politics/contraception-bill-senate-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/05/sports/football/larry-allen-dead.html
 **U.N. Nuclear Watchdog Censures Iran and Demands Access for Inspectors**\
 `The International Atomic Energy Agency acted in the face of Iran’s refusal to allow experts to examine its stepped-up nuclear enrichment program.`\
 https://nytimes.com/2024/06/05/world/middleeast/iran-nuclear-iaea.html
-
-**Let’s Talk About Hollywood Portrayals of Asian and Asian American Men (and Real-Life Romance)**\
-`Please tell us your thoughts on representation of Asian and Asian American men you have seen onscreen, and how those portrayals may have affected your romantic life.`\
-https://nytimes.com/2024/06/05/arts/asian-american-movies-tv-representation-relationships.html
 
