@@ -1,3 +1,7 @@
+**New Stock Exchange in Texas Takes Aim at N.Y.S.E. and Nasdaq**\
+`The Texas Stock Exchange, based in Dallas, has the backing of BlackRock and Citadel Securities. But challengers to the dominant New York markets have gained little traction.`\
+https://nytimes.com/2024/06/05/business/texas-stock-exchange.html
+
 **Pro-Palestinian Protesters Occupy Stanford President’s Office**\
 `Demonstrators took over the office at dawn and demanded that Stanford University trustees vote on divestment from companies said to support Israel's military.`\
 https://nytimes.com/2024/06/05/us/stanford-protest-israel-gaza.html
