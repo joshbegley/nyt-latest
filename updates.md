@@ -1,3 +1,11 @@
+**Julia Fox: The Popcast (Deluxe) Interview**\
+`The actress, writer and New York icon discusses her post-Kanye career, what it’s like to see her past go viral and the history of “It Girl” pop songs.`\
+https://nytimes.com/2024/06/05/arts/music/julia-fox-interview-popcast-deluxe.html
+
+**What’s in Our Queue? Tems and More**\
+`I’m the West Africa bureau chief, covering 25 countries. Here are five things I’ve been enjoying lately.`\
+https://nytimes.com/interactive/2024/06/05/arts/editors-recommendations-tems.html
+
 **Officer of Detroit Nonprofit Accused of Stealing $40 Million**\
 `Prosecutors said the financial chief of the Detroit Riverfront Conservancy used the group’s funds for personal purchases from Louis Vuitton and a diamond dealer.`\
 https://nytimes.com/2024/06/05/us/detroit-conservancy-nonprofit-theft.html
