@@ -1,3 +1,11 @@
+**Netanyahu warned of ‘very intense’ action against Hezbollah in Lebanon, as talk of a new war intensifies.**\
+`By Michael Levenson`\
+https://nytimes.com/live/2024/06/05/world/israel-gaza-war-hamas/netanyahu-warned-of-very-intense-action-against-hezbollah-in-lebanon-as-talk-of-a-new-war-intensifies
+
+**Why Children Are Missing More School Now**\
+`Norms on attendance have changed, but it’s about more than Covid-era school closings.`\
+https://nytimes.com/2024/06/05/opinion/covid-school-attendance-pandemic-closings.html
+
 **Gov. Hochul’s Unwarranted Retreat on Congestion Pricing**\
 `A vitally important public policy was derailed over political concerns.`\
 https://nytimes.com/2024/06/04/opinion/gov-hochuls-unwarranted-retreat-on-congestion-pricing.html
