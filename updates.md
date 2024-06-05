@@ -1,3 +1,11 @@
+**How Top N.Y. Officials Helped a Lobbyist Cash in on State Government**\
+`The acting budget director, Sandra Beattie, helped a friend and former lawmaker land lobbying and consulting deals, investigators said.`\
+https://nytimes.com/2024/06/05/nyregion/ny-balboni-lobbyist-investigation.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/06/05/crosswords/spelling-bee-forum.html
+
 **Late Night Reacts to President Biden’s Border Closure Order**\
 `“The Daily Show” host Ronny Chieng joked that the president “has decided to start trying to win the election” with a temporary order affecting asylum seekers.`\
 https://nytimes.com/2024/06/05/arts/television/late-night-biden-border.html
