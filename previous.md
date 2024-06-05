@@ -1,3 +1,7 @@
+**Can Biden Use Trump’s Signature Issue — Immigration — Against Him?**\
+`His executive order curbing asylum aligned him with a broad swath of the public in an election year.`\
+https://nytimes.com/2024/06/05/us/politics/biden-trump-immigration.html
+
 **Trump’s Vows to Prosecute Rivals Put Rule of Law on the Ballot**\
 `Donald Trump’s promise to seek retribution challenges long-established norms. The election could hinge in part on what kind of justice system the country believes it has now and wants in the future.`\
 https://nytimes.com/2024/06/05/us/trump-retribution-justice.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/05/us/politics/republicans-criminal-referrals-hunter
 **Georgia Appeals Court Stays Most Proceedings in Trump Election Case**\
 `The order means the prosecution of Donald J. Trump in Georgia is effectively frozen, at least through the presidential election.`\
 https://nytimes.com/2024/06/05/us/trump-georgia-election-case-fani-willis.html
-
-**Larry Allen, Dominant N.F.L. Lineman, Dies at 52**\
-`Even on the star-studded Dallas Cowboys roster of the 1990s, he stood out with his head-turning strength and bone-rattling pancake blocks.`\
-https://nytimes.com/2024/06/05/sports/football/larry-allen-dead.html
 

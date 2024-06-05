@@ -1,3 +1,7 @@
+**Can Biden Use Trump’s Signature Issue — Immigration — Against Him?**\
+`His executive order curbing asylum aligned him with a broad swath of the public in an election year.`\
+https://nytimes.com/2024/06/05/us/politics/biden-trump-immigration.html
+
 **Trump’s Vows to Prosecute Rivals Put Rule of Law on the Ballot**\
 `Donald Trump’s promise to seek retribution challenges long-established norms. The election could hinge in part on what kind of justice system the country believes it has now and wants in the future.`\
 https://nytimes.com/2024/06/05/us/trump-retribution-justice.html
