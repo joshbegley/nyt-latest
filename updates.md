@@ -1,3 +1,7 @@
+**G.O.P. Blocks Contraception Bill in Senate as Democrats Seek Political Edge**\
+`Democrats scheduled the vote despite Republican opposition, hoping to highlight an issue on which the G.O.P. is at odds with the vast majority of Americans.`\
+https://nytimes.com/2024/06/05/us/politics/contraception-bill-senate-democrats.html
+
 **Results: Times/Siena Recontact Study of Previous Poll Respondents**\
 `Results of a recontact study in June re-interviewing 1,897 registered voters who had taken a Times/Siena poll in April or May, before the verdict in Donald J. Trump’s trial in New York.`\
 https://nytimes.com/interactive/2024/06/05/us/elections/times-siena-recontact-study-results.html
