@@ -1,3 +1,19 @@
+**A Russian American Is Sentenced in Russia Over Social Media Posts**\
+`The latest detention of an American national in Russia has renewed fears that the Kremlin is seeking to use U.S. citizens as bargaining chips.`\
+https://nytimes.com/2024/06/05/world/europe/russian-american-sentenced-social-media.html
+
+**Here are the witnesses who may testify for the prosecution.**\
+`By Zach Montague`\
+https://nytimes.com/live/2024/06/05/us/hunter-biden-trial-news/here-are-the-witnesses-who-may-testify-for-the-prosecution
+
+**Rekindling Love Takes More Than a Good Match. Just Ask J. Lo and Ben Affleck.**\
+`Sometimes getting back with an ex means dealing with undesired scrutiny and doubters.`\
+https://nytimes.com/2024/06/05/style/jennifer-lopez-ben-affleck-relationship.html
+
+**Bob Kelley, Who Made the Kelley Blue Book an Authority on Cars, Dies at 96**\
+`He knew all the data that went into determining a vehicle’s price, but he insisted that it was as much an art as it was a science.`\
+https://nytimes.com/2024/06/05/business/bob-kelley-dead.html
+
 **Costco Plans to Stop Selling Books Year-Round**\
 `The decision, which will be implemented in January 2025, could significantly impact publishers.`\
 https://nytimes.com/2024/06/05/books/costco-books.html

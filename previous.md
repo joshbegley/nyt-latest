@@ -1,3 +1,19 @@
+**A Russian American Is Sentenced in Russia Over Social Media Posts**\
+`The latest detention of an American national in Russia has renewed fears that the Kremlin is seeking to use U.S. citizens as bargaining chips.`\
+https://nytimes.com/2024/06/05/world/europe/russian-american-sentenced-social-media.html
+
+**Here are the witnesses who may testify for the prosecution.**\
+`By Zach Montague`\
+https://nytimes.com/live/2024/06/05/us/hunter-biden-trial-news/here-are-the-witnesses-who-may-testify-for-the-prosecution
+
+**Rekindling Love Takes More Than a Good Match. Just Ask J. Lo and Ben Affleck.**\
+`Sometimes getting back with an ex means dealing with undesired scrutiny and doubters.`\
+https://nytimes.com/2024/06/05/style/jennifer-lopez-ben-affleck-relationship.html
+
+**Bob Kelley, Who Made the Kelley Blue Book an Authority on Cars, Dies at 96**\
+`He knew all the data that went into determining a vehicle’s price, but he insisted that it was as much an art as it was a science.`\
+https://nytimes.com/2024/06/05/business/bob-kelley-dead.html
+
 **Costco Plans to Stop Selling Books Year-Round**\
 `The decision, which will be implemented in January 2025, could significantly impact publishers.`\
 https://nytimes.com/2024/06/05/books/costco-books.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/06/05/us/politics/far-right-senate-trump.html
 **Violence breaks out at an annual Jewish nationalist march through East Jerusalem.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/06/05/world/israel-gaza-war-hamas/violence-breaks-out-at-an-annual-jewish-nationalist-march-through-east-jerusalem
-
-**MoMA’s Garden Party Honors Joan Jonas, LaToya Ruby Frazier and Refik Anadol**\
-`The annual event raised more than $5.5 million and drew influential artists, collectors and benefactors to the museum.`\
-https://nytimes.com/2024/06/05/style/moma-joan-jonas-latoya-ruby-frazier.html
-
-**A Cease-Fire in Gaza Might Be the Easy Part. Fulfilling It Will Be Harder.**\
-`The proposal backed by President Biden is deeply political and aims at stopping the war at least for now. But Israel rejects a permanent cease-fire and Hamas has its own reasons for reluctance.`\
-https://nytimes.com/2024/06/05/world/europe/israel-gaza-cease-fire-negotiations.html
-
-**Byron Donalds, Trump V.P. Contender, Suggests Jim Crow Era Had an Upside**\
-`The Republican congressman from Florida was visiting Philadelphia to persuade Black voters to support former President Donald J. Trump.`\
-https://nytimes.com/2024/06/05/us/politics/byron-donalds-trump-jim-crow.html
-
-**A former girlfriend, Zoe Kestan, describes Hunter Biden’s drug-fueled partying.**\
-`By Glenn Thrush and Zach Montague`\
-https://nytimes.com/live/2024/06/05/us/hunter-biden-trial-news/a-former-girlfriend-zoe-kestan-describes-hunter-bidens-drug-fueled-partying
 
