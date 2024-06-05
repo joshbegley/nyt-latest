@@ -1,3 +1,7 @@
+**Call on the High Seas**\
+`David Rockow gets organized.`\
+https://nytimes.com/2024/06/04/crosswords/daily-puzzle-2024-06-05.html
+
 **Herb Conaway Wins House Primary in Andy Kim’s District**\
 `Mr. Kim, who represents District 3 in New Jersey, is running for the Senate seat held by Robert Menendez.`\
 https://nytimes.com/2024/06/04/nyregion/new-jersey-district-three-primary.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/sports/autoracing/parnelli-jones-dead.html
 **D.A. Seeks to Overturn Texas Governor’s Pardon of Man Who Killed Protester**\
 `The prosecutor accused the governor of violating the constitutional separation of powers doctrine by intervening with the actions of a court.`\
 https://nytimes.com/2024/06/04/us/abbott-pardon-daniel-perry-texas.html
-
-**Rival U.K. Political Leaders Clash in Bad-Tempered Election Debate**\
-`Prime Minister Rishi Sunak, fighting to narrow a substantial polling gap, adopted an aggressive approach against his Labour Party opponent, Keir Starmer.`\
-https://nytimes.com/2024/06/04/world/europe/sunak-starmer-britain-prime-minister-debate.html
 
