@@ -32,7 +32,7 @@ https://nytimes.com/2024/06/05/us/politics/trump-fbi-documents-threats.html
 
 **What Did Jenna Lyons Sell at Her Stoop Sale?**\
 `A garment she wore to Michelle Obama’s birthday party was just one of the things the former J. Crew president and reality television star added to the sale.`\
-https://nytimes.com/2024/06/05/style/what-did-jenna-lyons-sell-at-her-stoop-sale.html
+https://nytimes.com/2024/06/05/style/jenna-lyons-closet-sale.html
 
 **For Victims of Human Rights Violations, Family Matters**\
 `Notes from the Oslo Freedom Forum.`\
