@@ -1,3 +1,19 @@
+**A Deadly Ambush, a Giant Manhunt and 3 Weeks With No Arrest**\
+`The aftermath of a brazen attack on a prison convoy has raised uncomfortable questions for France’s justice system.`\
+https://nytimes.com/2024/06/05/world/europe/france-prisoner-manhunt.html
+
+**Amanda Knox to Face Italian Court for Slander Retrial Over 2007 Killing**\
+`The American, who spent several years in jail but was exonerated in 2015 of the killing of her housemate in Italy, will defend herself against a charge related to the case.`\
+https://nytimes.com/2024/06/05/world/europe/amanda-knox-italy-slander-case.html
+
+**Europe Has Fallen Behind the U.S. and China. Can It Catch Up?**\
+`A “competitiveness crisis” is raising alarms for officials and business leaders in the European Union, where investment, income and productivity are lagging.`\
+https://nytimes.com/2024/06/05/business/economy/europe-economy-competitiveness.html
+
+**E.C.B. Is Likely to Leapfrog the Fed on Interest Rate Cuts**\
+`With eurozone inflation falling, the European Central Bank has signaled it is ready to lower rates this week, diverging from the U.S. Federal Reserve.`\
+https://nytimes.com/2024/06/05/business/european-central-bank-interest-rates.html
+
 **Quote of the Day: Marking 80 Years After D-Day With a ‘Last Hurrah’**\
 `Quotation of the Day for Wednesday, June 5, 2024.`\
 https://nytimes.com/2024/06/04/pageoneplus/quote-of-the-day-marking-80-years-after-d-day-with-a-last-hurrah.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/06/04/us/corey-harris-zoom-suspended-license.html
 **Columbia Law Review Website Is Taken Offline Over Article Criticizing Israel**\
 `The board of directors of the student-run publication said that the article, by a Palestinian human rights lawyer, had not been subject to sufficient review.`\
 https://nytimes.com/2024/06/04/nyregion/columbia-law-review-website.html
-
-**Call on the High Seas**\
-`David Rockow gets organized.`\
-https://nytimes.com/2024/06/04/crosswords/daily-puzzle-2024-06-05.html
-
-**Herb Conaway Wins House Primary in Andy Kim’s District**\
-`Mr. Kim, who represents District 3 in New Jersey, is running for the Senate seat held by Robert Menendez.`\
-https://nytimes.com/2024/06/04/nyregion/new-jersey-district-three-primary.html
-
-**Rob Menendez, a Senator’s Son, Staves Off a Primary Challenge**\
-`Rob Menendez, a freshman member of Congress, beat Ravi Bhalla, the mayor of Hoboken, N.J.`\
-https://nytimes.com/2024/06/04/nyregion/new-jersey-house-district-8.html
-
-**Review: In ‘Breaking the Story,’ All’s Unfair in Love and War**\
-`Maggie Siff plays a war journalist facing the most dangerous assignment of her life: domesticity.`\
-https://nytimes.com/2024/06/04/theater/breaking-the-story-review.html
 

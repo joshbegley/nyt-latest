@@ -1,3 +1,19 @@
+**A Deadly Ambush, a Giant Manhunt and 3 Weeks With No Arrest**\
+`The aftermath of a brazen attack on a prison convoy has raised uncomfortable questions for France’s justice system.`\
+https://nytimes.com/2024/06/05/world/europe/france-prisoner-manhunt.html
+
+**Amanda Knox to Face Italian Court for Slander Retrial Over 2007 Killing**\
+`The American, who spent several years in jail but was exonerated in 2015 of the killing of her housemate in Italy, will defend herself against a charge related to the case.`\
+https://nytimes.com/2024/06/05/world/europe/amanda-knox-italy-slander-case.html
+
+**Europe Has Fallen Behind the U.S. and China. Can It Catch Up?**\
+`A “competitiveness crisis” is raising alarms for officials and business leaders in the European Union, where investment, income and productivity are lagging.`\
+https://nytimes.com/2024/06/05/business/economy/europe-economy-competitiveness.html
+
+**E.C.B. Is Likely to Leapfrog the Fed on Interest Rate Cuts**\
+`With eurozone inflation falling, the European Central Bank has signaled it is ready to lower rates this week, diverging from the U.S. Federal Reserve.`\
+https://nytimes.com/2024/06/05/business/european-central-bank-interest-rates.html
+
 **Quote of the Day: Marking 80 Years After D-Day With a ‘Last Hurrah’**\
 `Quotation of the Day for Wednesday, June 5, 2024.`\
 https://nytimes.com/2024/06/04/pageoneplus/quote-of-the-day-marking-80-years-after-d-day-with-a-last-hurrah.html
