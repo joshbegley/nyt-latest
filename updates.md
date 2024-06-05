@@ -1,3 +1,7 @@
+**BoErich Anderson, Actor in ‘Friday the 13th’ and ‘Felicity,’ Dies at 67**\
+`Mr. Anderson had a breakout role in “Friday the 13th” and went on to appear in more than 300 TV episodes, including a recurring role as the father on “Felicity.”`\
+https://nytimes.com/2024/06/05/arts/erich-anderson-dead.html
+
 **Byron Donalds, Trump V.P. Contender, Suggests Jim Crow Era Had an Upside**\
 `The Republican congressman from Florida was visiting Philadelphia to persuade Black voters to support former President Donald J. Trump.`\
 https://nytimes.com/2024/06/05/us/politics/byron-donalds-trump-jim-crow.html

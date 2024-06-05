@@ -1,3 +1,7 @@
+**A Cease-Fire in Gaza Might Be the Easy Part. Fulfilling It Will Be Harder.**\
+`The proposal backed by President Biden is deeply political and aims at stopping the war at least for now. But Israel rejects a permanent cease-fire and Hamas has its own reasons for reluctance.`\
+https://nytimes.com/2024/06/05/world/europe/israel-gaza-cease-fire-negotiations.html
+
 **Byron Donalds, Trump V.P. Contender, Suggests Jim Crow Era Had an Upside**\
 `The Republican congressman from Florida was visiting Philadelphia to persuade Black voters to support former President Donald J. Trump.`\
 https://nytimes.com/2024/06/05/us/politics/byron-donalds-trump-jim-crow.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/05/us/hunter-biden-trial-news/some-republicans-
 **Do I Tell the Woman With a Heart Condition She Can’t Swim With Us?**\
 `The magazine’s ethicist columnist on what to do when forced to play lifeguard.`\
 https://nytimes.com/2024/06/05/magazine/swimming-without-lifeguard-ethics.html
-
-**Netanyahu warns of ‘very intense’ action against Hezbollah in Lebanon, as talk of a new war intensifies.**\
-`By Michael Levenson`\
-https://nytimes.com/live/2024/06/05/world/israel-gaza-war-hamas/israel-hezbollah-netanyahu
 

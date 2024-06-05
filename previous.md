@@ -6,7 +6,7 @@ https://nytimes.com/2024/06/05/us/politics/byron-donalds-trump-jim-crow.html
 `By Glenn Thrush and Zach Montague`\
 https://nytimes.com/live/2024/06/05/us/hunter-biden-trial-news/a-former-girlfriend-zoe-kestan-describes-hunter-bidens-drug-fueled-partying
 
-**Erich Anderson, Actor in ‘Friday the 13th’ and ‘Felicity,’ Dies at 67**\
+**BoErich Anderson, Actor in ‘Friday the 13th’ and ‘Felicity,’ Dies at 67**\
 `Mr. Anderson had a breakout role in “Friday the 13th” and went on to appear in more than 300 TV episodes, including a recurring role as the father on “Felicity.”`\
 https://nytimes.com/2024/06/05/arts/erich-anderson-dead.html
 
