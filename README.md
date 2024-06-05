@@ -1,3 +1,7 @@
+**Does NASA need another ride to the space station? Elon Musk says no.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2024/06/05/science/boeing-launch-starliner-nasa/does-nasa-need-another-ride-to-the-space-station-elon-musk-says-no
+
 **Maryland’s Popular Republican Senate Candidate Incurs Trump’s Wrath**\
 `When former Gov. Larry Hogan asked Americans to “respect the verdict,” the Trump team turned on his Senate candidacy, jeopardizing a potential Republican pickup opportunity.`\
 https://nytimes.com/2024/06/05/us/politics/larry-hogan-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/05/climate/epa-nmp-chemical-ban.html
 **Is It Disrespectful to My Dead Father to Speak to His Estranged Brother?**\
 `A reader’s uncle and aunt were touched when she sent them a Christmas card, but her sister thinks the gesture was a betrayal of their father’s memory.`\
 https://nytimes.com/2024/06/05/style/grudges-family-member-estrangement.html
-
-**The New Kingmakers Who Could Make or Break Modi’s Government**\
-`Two veterans of bare-knuckled Indian politics have the Parliament votes the prime minister will need, but neither is aligned with his Hindu-first vision.`\
-https://nytimes.com/2024/06/05/world/asia/india-elections-modi-coalition.html
 
