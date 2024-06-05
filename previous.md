@@ -4,7 +4,7 @@ https://nytimes.com/2024/06/05/us/politics/larry-hogan-trump.html
 
 **Hunter Biden’s Ex-Wife, a Key Witness, Is Expected to Testify in Gun Trial**\
 `She is one of three women expected to testify about their relationships with the president’s son and his struggles with alcoholism and addiction.`\
-https://nytimes.com/2024/06/05/us/elections/hunter-biden-ex-wife-kathleen-buhle.html
+https://nytimes.com/2024/06/04/us/elections/hunter-biden-ex-wife-kathleen-buhle.html
 
 **Allies Warn Former Fighter Pilots Not to Train Chinese Military Members**\
 `A new bulletin says China is trying to step up recruitment of Western-trained fighter pilots to improve its air combat capability.`\
