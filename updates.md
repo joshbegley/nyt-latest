@@ -1,3 +1,11 @@
+**Let’s Talk About Hollywood Portrayals of Asian and Asian American Men (and Real-Life Romance)**\
+`Please tell us your thoughts on representation of Asian and Asian American men you have seen onscreen, and how those portrayals may have affected your romantic life.`\
+https://nytimes.com/2024/06/05/arts/asian-american-movies-tv-representation-relationships.html
+
+**Bertien van Manen, a Roving Photographer of Daily Life, Dies at 89**\
+`Inspired by Robert Frank’s book “The Americans,” she traveled to China, Russia and the coal mines of Kentucky to capture intimate glimpses of everyday routines.`\
+https://nytimes.com/2024/06/05/arts/bertien-van-manen-dead.html
+
 **Did Boeing Just Fix Its Very Bad Year?**\
 `Even so, today’s launch feels like the last hurrah of an era of American space that is on its way out.`\
 https://nytimes.com/live/2024/06/04/opinion/thepoint/boeing-starliner-launch
