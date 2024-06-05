@@ -1,3 +1,7 @@
+**Andy Kim Wins Democratic Senate Primary; Rob Menendez Survives Challenge**\
+`The victory makes Mr. Kim a favorite to replace Mr. Menendez’s father, Senator Robert Menendez, who is on trial — a detail that became central to his son’s race.`\
+https://nytimes.com/2024/06/04/nyregion/andy-kim-nj-primary-senate.html
+
 **Herb Conaway Wins House Primary in Andy Kim’s District**\
 `Mr. Kim, who represents District 3 in New Jersey, is running for the Senate seat held by Robert Menendez.`\
 https://nytimes.com/2024/06/04/nyregion/new-jersey-district-three-primary.html
