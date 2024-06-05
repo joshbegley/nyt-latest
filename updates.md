@@ -1,3 +1,11 @@
+**Rahul Gandhi, Long on the Ropes, Looks Set for an Unexpected Comeback**\
+`The Indian National Congress and its leader registered a far stronger showing in India’s elections than many expected.`\
+https://nytimes.com/2024/06/05/world/asia/india-congress-rahul-gandhi.html
+
+**Live Updates: Hunter Biden’s Ex-Wife Takes the Stand**\
+`She is one of three women expected to describe their relationships with the president’s son and his struggles with alcoholism and addiction. He is being tried on charges of lying about his drug use on a federal form when he purchased a gun.`\
+https://nytimes.com/live/2024/06/05/us/hunter-biden-trial-news
+
 **New Stock Exchange in Texas Takes Aim at N.Y.S.E. and Nasdaq**\
 `The Texas Stock Exchange, based in Dallas, has the backing of BlackRock and Citadel Securities. But challengers to the dominant New York markets have gained little traction.`\
 https://nytimes.com/2024/06/05/business/texas-stock-exchange.html
