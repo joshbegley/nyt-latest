@@ -1,3 +1,7 @@
+**‘What Became of Us’ Review: Reflections on a Family’s Immigration Tale**\
+`Shayan Lotfi’s topical play about a family building a new life in a new country leaves the details vague, deliberately.`\
+https://nytimes.com/2024/06/05/theater/what-became-of-us-review.html
+
 **Rock Climber Gets Life in Prison for Sexual Assaults at Yosemite**\
 `The climber was sentenced on two counts of aggravated sexual abuse and one count of abusive sexual contact in the 2016 assault of a woman during a weekend trip.`\
 https://nytimes.com/2024/06/05/us/charles-barrett-sentenced-assault-yosemite.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/05/science/nasa-boeing-starliner-launch.html
 **In Congestion Pricing Reversal, Hochul Finds Odd Allies, Including Trump**\
 `Gov. Kathy Hochul’s abrupt decision to delay the long-awaited plan put her in line with the former president, who has a habit of attacking New York, his hometown.`\
 https://nytimes.com/2024/06/05/nyregion/trump-congestion-pricing-hochul.html
-
-**Far-Right Vows to Tie Up the Senate to Avenge Trump Are So Far Mostly Empty**\
-`To date, the effort has not produced results, as the Republicans who have promised to hold up nominees and legislation are the ones who usually oppose them anyway.`\
-https://nytimes.com/2024/06/05/us/politics/far-right-senate-trump.html
 
