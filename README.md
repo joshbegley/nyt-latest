@@ -1,4 +1,4 @@
-**U.S. Counterterrorism Chief Stepping Down**\
+**U.S. Counterterrorism Chief Is Stepping Down**\
 `The official, Christine Abizaid, recently warned that the Hamas attacks in Israel, and the Gaza conflict, had energized terrorist threats worldwide.`\
 https://nytimes.com/2024/06/05/us/politics/us-counterterrorism-chief-resigns.html
 
