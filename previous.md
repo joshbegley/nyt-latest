@@ -1,3 +1,11 @@
+**Results: Times/Siena Recontact Study of Previous Poll Respondents**\
+`Results of a recontact study in June re-interviewing 1,897 registered voters who had taken a Times/Siena poll in April or May, before the verdict in Donald J. Trump’s trial in New York.`\
+https://nytimes.com/interactive/2024/06/05/us/elections/times-siena-recontact-study-results.html
+
+**Small Shift Toward Biden After Trump Verdict**\
+`We reached nearly 2,000 people who participated in previous Times/Siena polls to see if any had changed their minds.`\
+https://nytimes.com/2024/06/05/upshot/polling-trump-conviction-voters.html
+
 **What Happens Now That Congestion Pricing Has Been Halted**\
 `First the Metropolitan Transportation Authority must vote. Then Gov. Kathy Hochul may seek another way to shore up the finances of the transit system.`\
 https://nytimes.com/2024/06/05/nyregion/what-happens-next-congestion-pricing.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/05/arts/asian-american-movies-tv-representation-rela
 **Bertien van Manen, a Roving Photographer of Daily Life, Dies at 89**\
 `Inspired by Robert Frank’s book “The Americans,” she traveled to China, Russia and the coal mines of Kentucky to capture intimate glimpses of everyday routines.`\
 https://nytimes.com/2024/06/05/arts/bertien-van-manen-dead.html
-
-**Did Boeing Just Fix Its Very Bad Year?**\
-`Even so, today’s launch feels like the last hurrah of an era of American space that is on its way out.`\
-https://nytimes.com/live/2024/06/04/opinion/thepoint/boeing-starliner-launch
-
-**Biden’s New Order Leaves Migrants at Border in Limbo Over Asylum Fate**\
-`In Mexican cities along the border with the United States, migrants were taking a wait-and-see approach to a restrictive new executive action.`\
-https://nytimes.com/2024/06/05/world/americas/migrants-us-mexico-border-biden.html
 

@@ -1,3 +1,11 @@
+**Results: Times/Siena Recontact Study of Previous Poll Respondents**\
+`Results of a recontact study in June re-interviewing 1,897 registered voters who had taken a Times/Siena poll in April or May, before the verdict in Donald J. Trump’s trial in New York.`\
+https://nytimes.com/interactive/2024/06/05/us/elections/times-siena-recontact-study-results.html
+
+**Small Shift Toward Biden After Trump Verdict**\
+`We reached nearly 2,000 people who participated in previous Times/Siena polls to see if any had changed their minds.`\
+https://nytimes.com/2024/06/05/upshot/polling-trump-conviction-voters.html
+
 **What Happens Now That Congestion Pricing Has Been Halted**\
 `First the Metropolitan Transportation Authority must vote. Then Gov. Kathy Hochul may seek another way to shore up the finances of the transit system.`\
 https://nytimes.com/2024/06/05/nyregion/what-happens-next-congestion-pricing.html
