@@ -14,7 +14,7 @@ https://nytimes.com/2024/06/04/crosswords/daily-puzzle-2024-06-05.html
 `Mr. Kim, who represents District 3 in New Jersey, is running for the Senate seat held by Robert Menendez.`\
 https://nytimes.com/2024/06/04/nyregion/new-jersey-district-three-primary.html
 
-**Rob Menendez, a Senator’s Son, Staves off a Primary Challenge**\
+**Rob Menendez, a Senator’s Son, Staves Off a Primary Challenge**\
 `Rob Menendez, a freshman member of Congress, beat Ravi Bhalla, the mayor of Hoboken, N.J.`\
 https://nytimes.com/2024/06/04/nyregion/new-jersey-house-district-8.html
 
@@ -27,7 +27,7 @@ https://nytimes.com/2024/06/04/theater/breaking-the-story-review.html
 https://nytimes.com/2024/06/04/us/politics/hunter-biden-trial.html
 
 **Andy Kim Wins Democratic Senate Primary; Rob Menendez Survives Challenge**\
-`The victory makes Mr. Kim a favorite to replace Mr. Menendez’s father, Senator Robert Menendez, who is on trial — a detail that became central to his son’s race.`\
+`The victory makes Mr. Kim a favorite to replace Mr. Menendez’s father, Senator Robert Menendez, who is on trial, charged with corruption — a detail that became central to his son’s re-election race.`\
 https://nytimes.com/2024/06/04/nyregion/andy-kim-nj-primary-senate.html
 
 **Andy Kim Wins Democratic Senate Primary in New Jersey**\

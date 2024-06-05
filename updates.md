@@ -1,3 +1,11 @@
+**Rob Menendez, a Senator’s Son, Staves Off a Primary Challenge**\
+`Rob Menendez, a freshman member of Congress, beat Ravi Bhalla, the mayor of Hoboken, N.J.`\
+https://nytimes.com/2024/06/04/nyregion/new-jersey-house-district-8.html
+
+**Andy Kim Wins Democratic Senate Primary; Rob Menendez Survives Challenge**\
+`The victory makes Mr. Kim a favorite to replace Mr. Menendez’s father, Senator Robert Menendez, who is on trial, charged with corruption — a detail that became central to his son’s re-election race.`\
+https://nytimes.com/2024/06/04/nyregion/andy-kim-nj-primary-senate.html
+
 **Questions Dog a Case Involving a Suspended License and a Viral Video**\
 `Video of a man appearing behind the wheel via Zoom for a court hearing over a suspended license drew widespread attention. But there’s more to the story.`\
 https://nytimes.com/2024/06/04/us/corey-harris-zoom-suspended-license.html
