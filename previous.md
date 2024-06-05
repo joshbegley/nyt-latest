@@ -1,3 +1,7 @@
+**Tim Sheehy Wins G.O.P. Nod to Challenge Tester for Senate in Montana**\
+`Mr. Sheehy will face a formidable opponent in Senator Jon Tester, the Democratic incumbent who has survived past challenges in his red state by leaning on his farming roots and bipartisan brand.`\
+https://nytimes.com/2024/06/04/us/politics/tim-sheehy-montana-senate-jon-tester.html
+
 **Questions Dog a Case Involving a Suspended License and a Viral Video**\
 `Video of a man appearing behind the wheel via Zoom for a court hearing over a suspended license drew widespread attention. But there’s more to the story.`\
 https://nytimes.com/2024/06/04/us/corey-harris-zoom-suspended-license.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/nyregion/andy-kim-nj-primary-senate.html
 **Andy Kim Wins Democratic Senate Primary in New Jersey**\
 `Mr. Kim jumped into the race shortly after the incumbent, Senator Robert Menendez, was indicted on federal corruption charges.`\
 https://nytimes.com/2024/06/04/nyregion/new-jersey-senate-primary.html
-
-**Trump Asks Judge to Lift N.Y. Gag Order Following Conviction**\
-`Citing statements by Stormy Daniels and Michael Cohen, and an upcoming presidential debate, Donald J. Trump’s lawyers asked a judge to lift the order.`\
-https://nytimes.com/2024/06/04/nyregion/trump-trial-conviction-gag-order.html
 

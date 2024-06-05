@@ -1,3 +1,7 @@
+**Tim Sheehy Wins G.O.P. Nod to Challenge Tester for Senate in Montana**\
+`Mr. Sheehy will face a formidable opponent in Senator Jon Tester, the Democratic incumbent who has survived past challenges in his red state by leaning on his farming roots and bipartisan brand.`\
+https://nytimes.com/2024/06/04/us/politics/tim-sheehy-montana-senate-jon-tester.html
+
 **Rob Menendez, a Senator’s Son, Staves Off a Primary Challenge**\
 `Rob Menendez, a freshman member of Congress, beat Ravi Bhalla, the mayor of Hoboken, N.J.`\
 https://nytimes.com/2024/06/04/nyregion/new-jersey-house-district-8.html
