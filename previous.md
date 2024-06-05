@@ -1,3 +1,15 @@
+**Israel says it has launched a new operation in central Gaza and health officials report dozens dead.**\
+`Israel said it launched operations “above and below ground” against Hamas militants. The only hospital in the area is overwhelmed by the wounded, medics say.`\
+https://nytimes.com/live/2024/06/05/world/israel-gaza-war-hamas/israel-says-it-has-launched-a-new-operation-in-central-gaza-and-health-officials-report-dozens-dead
+
+**Hochul Halts Congestion Pricing in a Stunning 11th-Hour Shift**\
+`Weeks before New York was to charge motorists to enter Manhattan’s business district, Gov. Kathy Hochul postponed the program citing economic concerns.`\
+https://nytimes.com/2024/06/05/nyregion/congestion-pricing-pause-hochul.html
+
+**‘Hitler and the Nazis’ Review: Building a Case for Alarm**\
+`Joe Berlinger’s six-part documentary for Netflix asks whether we should see our future in Germany’s past.`\
+https://nytimes.com/2024/06/05/arts/television/hitler-and-the-nazis-netflix-review.html
+
 **Kathleen Buhle describes when she first learned that her husband smoked crack.**\
 `By Eileen Sullivan`\
 https://nytimes.com/live/2024/06/05/us/hunter-biden-trial-news/kathleen-buhle-describes-when-she-first-learned-that-her-husband-smoked-crack
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/05/world/europe/london-hospitals-cyberattack.html
 **Pro Skier and Partner Fall to Their Deaths in the Italian Alps**\
 `Jean Daniel Pession, a speed skier on the World Cup circuit, and his girlfriend, Elisa Arlian, fell more than 2,000 feet.`\
 https://nytimes.com/2024/06/05/world/europe/skiers-dead-mountain-italy.html
-
-**Rahul Gandhi, Long on the Ropes, Looks Set for an Unexpected Comeback**\
-`The Indian National Congress and its leader registered a far stronger showing in India’s elections than many expected.`\
-https://nytimes.com/2024/06/05/world/asia/india-congress-rahul-gandhi.html
-
-**New Stock Exchange in Texas Takes Aim at N.Y.S.E. and Nasdaq**\
-`The Texas Stock Exchange, based in Dallas, has the backing of BlackRock and Citadel Securities. But challengers to the dominant New York markets have gained little traction.`\
-https://nytimes.com/2024/06/05/business/texas-stock-exchange.html
-
-**Pro-Palestinian Protesters Occupy Stanford President’s Office**\
-`Demonstrators took over the office at dawn and demanded that Stanford University trustees vote on divestment from companies said to support Israel's military.`\
-https://nytimes.com/2024/06/05/us/stanford-protest-israel-gaza.html
 

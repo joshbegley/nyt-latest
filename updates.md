@@ -1,3 +1,15 @@
+**Israel says it has launched a new operation in central Gaza and health officials report dozens dead.**\
+`Israel said it launched operations “above and below ground” against Hamas militants. The only hospital in the area is overwhelmed by the wounded, medics say.`\
+https://nytimes.com/live/2024/06/05/world/israel-gaza-war-hamas/israel-says-it-has-launched-a-new-operation-in-central-gaza-and-health-officials-report-dozens-dead
+
+**Hochul Halts Congestion Pricing in a Stunning 11th-Hour Shift**\
+`Weeks before New York was to charge motorists to enter Manhattan’s business district, Gov. Kathy Hochul postponed the program citing economic concerns.`\
+https://nytimes.com/2024/06/05/nyregion/congestion-pricing-pause-hochul.html
+
+**‘Hitler and the Nazis’ Review: Building a Case for Alarm**\
+`Joe Berlinger’s six-part documentary for Netflix asks whether we should see our future in Germany’s past.`\
+https://nytimes.com/2024/06/05/arts/television/hitler-and-the-nazis-netflix-review.html
+
 **Kathleen Buhle describes when she first learned that her husband smoked crack.**\
 `By Eileen Sullivan`\
 https://nytimes.com/live/2024/06/05/us/hunter-biden-trial-news/kathleen-buhle-describes-when-she-first-learned-that-her-husband-smoked-crack
