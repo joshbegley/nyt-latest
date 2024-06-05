@@ -1,3 +1,11 @@
+**Pro-Palestinian Protesters Occupy Stanford President’s Office**\
+`Demonstrators took over the office at dawn and demanded that Stanford University trustees vote on divestment from companies said to support Israels military.`\
+https://nytimes.com/2024/06/05/us/stanford-protest-israel-gaza.html
+
+**How NASA ended up paying for private rides to orbit.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2024/06/05/science/boeing-launch-starliner-nasa/how-nasa-ended-up-paying-for-private-rides-to-orbit
+
 **Part of the government’s case will rely on the testimony of Hunter Biden’s ex-wife.**\
 `By Glenn Thrush`\
 https://nytimes.com/live/2024/06/05/us/hunter-biden-trial-news/part-of-the-governments-case-will-rely-on-the-testimony-of-hunter-bidens-ex-wife
