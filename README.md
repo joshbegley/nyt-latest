@@ -1,3 +1,11 @@
+**Collectors Line Up in London as King Charles Bank Notes Are Released**\
+`A steady stream of people lined up at the Bank of England on Wednesday to get what they hoped would be collector’s items: the first bank notes featuring the portrait of King Charles III.`\
+https://nytimes.com/2024/06/05/world/europe/king-charles-bank-notes-uk.html
+
+**How Electric Car Batteries Might Aid the Grid (and Win Over Drivers)**\
+`Automakers are exploring energy storage as a way to help utilities and save customers money, turning an expensive component into an industry asset.`\
+https://nytimes.com/2024/06/05/business/energy-environment/electric-car-batteries-grid.html
+
 **How Would Congestion Pricing Work in New York City?**\
 `The tolling program aims to diminish traffic while raising money for mass transit.`\
 https://nytimes.com/2024/06/05/nyregion/what-is-congestion-pricing-nyc.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/04/us/elections/hunter-biden-ex-wife-kathleen-buhle.
 **Allies Warn Former Fighter Pilots Not to Train Chinese Military Members**\
 `A new bulletin says China is trying to step up recruitment of Western-trained fighter pilots to improve its air combat capability.`\
 https://nytimes.com/2024/06/05/us/politics/us-china-pilots-allies.html
-
-**Starliner has cost Boeing $1.4 billion more than it planned to spend.**\
-`By Niraj Chokshi`\
-https://nytimes.com/live/2024/06/05/science/boeing-launch-starliner-nasa/starliner-has-cost-boeing-1-4-billion-more-than-it-planned-to-spend
-
-**Boeing’s Starliner capsule has had a long, difficult road to human spaceflight.**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2024/06/05/science/boeing-launch-starliner-nasa/boeings-starliner-capsule-has-had-a-long-difficult-road-to-human-spaceflight
 
