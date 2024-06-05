@@ -1,3 +1,7 @@
+**Quote of the Day: Marking 80 Years After D-Day With a ‘Last Hurrah’**\
+`Quotation of the Day for Wednesday, June 5, 2024.`\
+https://nytimes.com/2024/06/04/pageoneplus/quote-of-the-day-marking-80-years-after-d-day-with-a-last-hurrah.html
+
 **Hochul Pushes for Congestion Pricing Delay in Last-Minute Reversal**\
 `Gov. Kathy Hochul wants to postpone a plan to charge motorists to enter Manhattan’s business district because she fears it will hurt the city’s economy.`\
 https://nytimes.com/2024/06/04/nyregion/congestion-pricing-hochul-delayed.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/nyregion/new-jersey-house-district-8.html
 **Review: In ‘Breaking the Story,’ All’s Unfair in Love and War**\
 `Maggie Siff plays a war journalist facing the most dangerous assignment of her life: domesticity.`\
 https://nytimes.com/2024/06/04/theater/breaking-the-story-review.html
-
-**The President’s Son: A Routine Gun Case, but Abnormal in Every Way**\
-`At Hunter Biden’s trial, he listened with the jury to his own voice on the audio version of his memoir. “We’ve all been inside rooms we can’t afford to die in,’’ he heard himself say.`\
-https://nytimes.com/2024/06/04/us/politics/hunter-biden-trial.html
 
