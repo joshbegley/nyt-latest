@@ -1,3 +1,7 @@
+**Supporters of Congestion Pricing Are Furious at Hochul’s ‘Betrayal’**\
+`Advocates who have been fighting for decades for the program were shocked by the governor’s sudden move and its impact on funding for the city’s subways.`\
+https://nytimes.com/2024/06/05/nyregion/congestion-pricing-supporters.html
+
 **Review: ‘What’s the Point?’ Oona Doherty’s Resonant Ambivalence**\
 `The choreographer’s “Navy Blue” is the rare work to express the emotions of life in pandemic lockdown.`\
 https://nytimes.com/2024/06/05/arts/dance/review-oona-doherty-navy-blue.html
