@@ -1,3 +1,11 @@
+**Gov. Hochul’s Unwarranted Retreat on Congestion Pricing**\
+`A vitally important public policy was derailed over political concerns.`\
+https://nytimes.com/2024/06/04/opinion/gov-hochuls-unwarranted-retreat-on-congestion-pricing.html
+
+**Why Children are Missing More School Now**\
+`Norms on attendance have changed, but it’s about more than Covid-era school closings.`\
+https://nytimes.com/2024/06/05/opinion/covid-school-attendance-pandemic-closings.html
+
 **U.S. Counterterrorism Chief Is Stepping Down**\
 `The official, Christine Abizaid, recently warned that the Hamas attacks in Israel, and the Gaza conflict, had energized terrorist threats worldwide.`\
 https://nytimes.com/2024/06/05/us/politics/us-counterterrorism-chief-resigns.html
