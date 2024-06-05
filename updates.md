@@ -1,3 +1,7 @@
+**Moscow Could Target Countries Supplying Weapons to Ukraine, Putin Says**\
+`President Vladimir V. Putin said that since Western governments were allowing long-range missiles to be used on Russia, it could do the same.`\
+https://nytimes.com/2024/06/05/us/putin-russia-ukraine-germany.html
+
 **Can Biden Use Trump’s Signature Issue — Immigration — Against Him?**\
 `His executive order curbing asylum aligned him with a broad swath of the public in an election year.`\
 https://nytimes.com/2024/06/05/us/politics/biden-trump-immigration.html
