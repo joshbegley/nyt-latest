@@ -1,3 +1,7 @@
+**Violence breaks out at an annual Jewish nationalist march through East Jerusalem.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/06/05/world/israel-gaza-war-hamas/violence-breaks-out-at-an-annual-jewish-nationalist-march-through-east-jerusalem
+
 **MoMA’s Garden Party Honors Joan Jonas, LaToya Ruby Frazier and Refik Anadol**\
 `The annual event raised more than $5.5 million and drew influential artists, collectors and benefactors to the museum.`\
 https://nytimes.com/2024/06/05/style/moma-joan-jonas-latoya-ruby-frazier.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/05/arts/dance/review-oona-doherty-navy-blue.html
 **As Hunter Biden Stands Trial, a Republican Noise Machine Goes Silent**\
 `Republicans have gone after Hunter Biden for years, but his trial on gun charges undermines their views on gun rights and on a “weaponized” Justice Department.`\
 https://nytimes.com/2024/06/05/us/politics/hunter-biden-republicans.html
-
-**Some Republicans say a seldom-pursued charge is veering into public humiliation for Hunter Biden.**\
-`By Glenn Thrush`\
-https://nytimes.com/live/2024/06/05/us/hunter-biden-trial-news/some-republicans-say-a-seldom-pursued-charge-is-veering-into-public-humiliation-for-hunter-biden
 

@@ -1,3 +1,7 @@
+**Violence breaks out at an annual Jewish nationalist march through East Jerusalem.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/06/05/world/israel-gaza-war-hamas/violence-breaks-out-at-an-annual-jewish-nationalist-march-through-east-jerusalem
+
 **MoMA’s Garden Party Honors Joan Jonas, LaToya Ruby Frazier and Refik Anadol**\
 `The annual event raised more than $5.5 million and drew influential artists, collectors and benefactors to the museum.`\
 https://nytimes.com/2024/06/05/style/moma-joan-jonas-latoya-ruby-frazier.html
