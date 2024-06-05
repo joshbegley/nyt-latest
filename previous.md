@@ -1,40 +1,40 @@
-**How Top N.Y. Officials Helped a Lobbyist Cash in on State Government**\
-`The acting budget director, Sandra Beattie, helped a friend and former lawmaker land lobbying and consulting deals, investigators said.`\
-https://nytimes.com/2024/06/05/nyregion/ny-balboni-lobbyist-investigation.html
+**Israel Secretly Targets U.S. Lawmakers With Influence Campaign on Gaza War**\
+`Israel’s Ministry of Diaspora Affairs ordered the operation, which used fake social media accounts urging U.S. lawmakers to fund Israel’s military, according to officials and documents about the effort.`\
+https://nytimes.com/2024/06/05/technology/israel-campaign-gaza-social-media.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/06/05/crosswords/spelling-bee-forum.html
+**It’s Crazy to Think Trump Wants to Be a Felon**\
+`The truth of the former president is very far from the myth.`\
+https://nytimes.com/2024/06/05/opinion/trump-verdict-felon-campaign.html
 
-**Late Night Reacts to President Biden’s Border Closure Order**\
-`“The Daily Show” host Ronny Chieng joked that the president “has decided to start trying to win the election” with a temporary order affecting asylum seekers.`\
-https://nytimes.com/2024/06/05/arts/television/late-night-biden-border.html
+**Will A.I. Be a Creator or a Destroyer of Worlds?**\
+`The implications for politics reach well beyond deep fakes.`\
+https://nytimes.com/2024/06/05/opinion/will-ai-be-a-creator-or-a-destroyer-of-worlds.html
 
-**Indian Voters Have Finally Woken Up**\
-`Narendra Modi is a diminished figure after a disappointing election showing that could imperil his visions for an intolerant Hindu state.`\
-https://nytimes.com/2024/06/05/opinion/india-election-modi.html
+**Trump Super PAC Says It Took In Nearly $70 Million in May**\
+`In a memo for donors obtained by The New York Times, the group also said it viewed Pennsylvania as critical to the Trump campaign’s success in November.`\
+https://nytimes.com/2024/06/05/us/politics/trump-super-pac-fundraising.html
 
-**Word of the Day: sheepishly**\
-`This word has appeared in 37 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/06/05/learning/word-of-the-day-sheepishly.html
+**The D-Day Battle France Chose to Forget. Until Now.**\
+`Far from Normandy’s beaches, French paratroopers and resistance members fought a rear-guard action to keep the Nazis at bay. But its tragic end had made it a battle to forget.`\
+https://nytimes.com/2024/06/05/the-d-day-battle-france-chose-to-forget-until-now.html
 
-**Wednesday Briefing**\
-`Narendra Modi’s election setback in India.`\
-https://nytimes.com/2024/06/05/briefing/india-elections-ukraine-damage.html
+**As Ukraine Rebuilds Its Identity, Folk Songs Are the New Cool**\
+`Faced with Russia’s efforts to erase Ukrainian culture, people have embraced traditional music as a way to reconnect with their past and affirm their identity.`\
+https://nytimes.com/2024/06/05/arts/music/ukraine-folk-music.html
 
-**A Deadly Ambush, a Giant Manhunt and 3 Weeks With No Arrest**\
-`The aftermath of a brazen attack on a prison convoy has raised uncomfortable questions for France’s justice system.`\
-https://nytimes.com/2024/06/05/world/europe/france-prisoner-manhunt.html
+**Their Florida ‘Paradise’ Keeps Flooding, but Some Can’t Afford a Solution**\
+`In the Shore Acres neighborhood of St. Petersburg, rising water has become a constant threat. Many residents cannot afford to elevate their homes or move.`\
+https://nytimes.com/2024/06/05/us/their-florida-paradise-keeps-flooding-but-some-cant-afford-a-solution.html
 
-**Amanda Knox Faces Italian Court for Slander Retrial Over 2007 Killing**\
-`The American, who spent several years in jail but was exonerated in 2015 of the killing of her housemate in Italy, is defending herself against a charge related to the case.`\
-https://nytimes.com/2024/06/05/world/europe/amanda-knox-italy-slander-case.html
+**I Spent Three Years Talking to Boys. Here’s What I Found.**\
+`Under patriarchy, boys and men get everything, except the thing that’s most worth having.`\
+https://nytimes.com/2024/06/05/opinion/boys-parenting-loneliness.html
 
-**Europe Has Fallen Behind the U.S. and China. Can It Catch Up?**\
-`A “competitiveness crisis” is raising alarms for officials and business leaders in the European Union, where investment, income and productivity are lagging.`\
-https://nytimes.com/2024/06/05/business/economy/europe-economy-competitiveness.html
+**A War on the Nile Pushes Sudan Toward the Abyss**\
+`A year of fighting has turned the once proud capital, Khartoum, into a charred battleground. Millions have fled. Now a famine threatens in one of Africa’s biggest countries.`\
+https://nytimes.com/2024/06/05/world/africa/sudan-khartoum-darfur-war.html
 
-**E.C.B. Is Likely to Leapfrog the Fed on Interest Rate Cuts**\
-`With eurozone inflation falling, the European Central Bank has signaled it is ready to lower rates this week, diverging from the U.S. Federal Reserve.`\
-https://nytimes.com/2024/06/05/business/european-central-bank-interest-rates.html
+**Salvadoran Sweet Bread to Brighten Up Your Morning**\
+`Earthy queso duro blando is at the heart of a Salvadoran quesadilla, which allows for interpretation.`\
+https://nytimes.com/2024/06/05/magazine/salvadoran-sweet-bread-recipe.html
 
