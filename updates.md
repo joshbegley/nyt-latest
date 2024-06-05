@@ -1,3 +1,19 @@
+**Kathleen Buhle describes when she first learned that her husband smoked crack.**\
+`By Eileen Sullivan`\
+https://nytimes.com/live/2024/06/05/us/hunter-biden-trial-news/kathleen-buhle-describes-when-she-first-learned-that-her-husband-smoked-crack
+
+**It Was Legal Boilerplate. Trump Made It Sound Like a Threat to His Life.**\
+`The former president’s lies about the F.B.I. being prepared to kill him during the search of Mar-a-Lago took his attacks on the justice system and the rule of law to another level.`\
+https://nytimes.com/2024/06/05/us/politics/trump-fbi-documents-threats.html
+
+**What Did Jenna Lyons Sell at Her Stoop Sale?**\
+`A garment she wore to Michelle Obama’s birthday party was just one of the things the former J. Crew president and reality television star added to the sale.`\
+https://nytimes.com/2024/06/05/style/what-did-jenna-lyons-sell-at-her-stoop-sale.html
+
+**For Victims of Human Rights Violations, Family Matters**\
+`Notes from the Oslo Freedom Forum.`\
+https://nytimes.com/live/2024/06/04/opinion/thepoint/family-activist-political-oppression
+
 **How Will Trump’s Conviction Affect the Election?**\
 `Readers offer their analyses in response to various Opinion writers. Also: Foster children; free school meals.`\
 https://nytimes.com/2024/06/05/opinion/donald-trump-conviction-election.html
