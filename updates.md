@@ -1,3 +1,9 @@
+**As the C.I.A. chief and a White House envoy head to the region, Israel and Hamas appear to still be at odds over the length of a cease-fire.**\
+`By Adam Rasgon and Julian E. Barnes`\
+https://nytimes.com/live/2024/06/05/world/israel-gaza-war-hamas/as-the-cia-chief-and-a-white-house-envoy-head-to-tisrael-and-hamas-appear-to-still-be-at-odds-over-the-length-of-a-cease-fire
+
+**Israel signs a deal for U.S. fighter jets, and other news.**\
+
 **Want to See Bison at Yellowstone? You’re Likely Not Prepared.**\
 `An 83-year-old woman was gored Saturday by a bison. Experts offered advice on how to avoid a similar situation.`\
 https://nytimes.com/2024/06/05/us/bison-attack-yellowstone-gore-safety.html
