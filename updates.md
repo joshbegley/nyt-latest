@@ -1,3 +1,7 @@
+**Hochul Pushes for Congestion Pricing Delay in Last-Minute Reversal**\
+`Gov. Kathy Hochul wants to postpone a plan to charge motorists to enter Manhattan’s business district because she fears it will hurt the city’s economy.`\
+https://nytimes.com/2024/06/04/nyregion/congestion-pricing-hochul-delayed.html
+
 **Corrections: June 5, 2024**\
 `Corrections that appeared in print on Wednesday, June 5, 2024.`\
 https://nytimes.com/2024/06/04/pageoneplus/corrections-june-5-2024.html
