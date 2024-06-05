@@ -1,3 +1,7 @@
+**‘Hanging by a Thread’: U.N. Chief Warns of Missing Key Climate Target**\
+`His comments came as the world body’s weather agency said it expected Earth to soon surpass the record high temperatures experienced in 2023.`\
+https://nytimes.com/2024/06/05/climate/global-warming-outlook.html
+
 **Larry Hogan Incurs Trump’s Wrath After Telling Americans to ‘Respect the Verdict’**\
 `When former Gov. Larry Hogan asked Americans to “respect the verdict,” the Trump team turned on his Senate candidacy, jeopardizing a potential Republican pickup opportunity.`\
 https://nytimes.com/2024/06/05/us/politics/larry-hogan-trump.html
