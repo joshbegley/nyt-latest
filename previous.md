@@ -1,3 +1,11 @@
+**Georgia Appeals Court Stays Most Proceedings in Trump Election Case**\
+`The order means the prosecution of Donald J. Trump in Georgia is effectively frozen, at least through the presidential election.`\
+https://nytimes.com/2024/06/05/us/trump-georgia-election-case-fani-willis.html
+
+**Larry Allen, Dominant N.F.L. Lineman, Dies at 52**\
+`Even on the star-studded Dallas Cowboys roster of the 1990s, he stood out with his head-turning strength and bone-rattling pancake blocks.`\
+https://nytimes.com/2024/06/05/sports/football/larry-allen-dead.html
+
 **U.N. Nuclear Watchdog Censures Iran and Demands Access for Inspectors**\
 `The International Atomic Energy Agency acted in the face of Iran’s refusal to allow experts to examine its stepped-up nuclear enrichment program.`\
 https://nytimes.com/2024/06/05/world/middleeast/iran-nuclear-iaea.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/05/arts/music/julia-fox-interview-popcast-deluxe.htm
 **What’s in Our Queue? Tems and More**\
 `I’m the West Africa bureau chief, covering 25 countries. Here are five things I’ve been enjoying lately.`\
 https://nytimes.com/interactive/2024/06/05/arts/editors-recommendations-tems.html
-
-**Officer of Detroit Nonprofit Accused of Stealing $40 Million**\
-`Prosecutors said the financial chief of the Detroit Riverfront Conservancy used the group’s funds for personal purchases from Louis Vuitton and a diamond dealer.`\
-https://nytimes.com/2024/06/05/us/detroit-conservancy-nonprofit-theft.html
-
-**As Biden Pushes for Truce in Gaza, Tensions Rise in Lebanon**\
-`After a barrage from Hezbollah militants on northern Israel, Prime Minister Benjamin Netanyahu threatened a “very intense” military response.`\
-https://nytimes.com/2024/06/05/world/middleeast/biden-israel-hezbollah-gaza.html
 

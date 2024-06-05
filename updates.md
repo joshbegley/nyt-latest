@@ -1,3 +1,11 @@
+**Georgia Appeals Court Stays Most Proceedings in Trump Election Case**\
+`The order means the prosecution of Donald J. Trump in Georgia is effectively frozen, at least through the presidential election.`\
+https://nytimes.com/2024/06/05/us/trump-georgia-election-case-fani-willis.html
+
+**Larry Allen, Dominant N.F.L. Lineman, Dies at 52**\
+`Even on the star-studded Dallas Cowboys roster of the 1990s, he stood out with his head-turning strength and bone-rattling pancake blocks.`\
+https://nytimes.com/2024/06/05/sports/football/larry-allen-dead.html
+
 **U.N. Nuclear Watchdog Censures Iran and Demands Access for Inspectors**\
 `The International Atomic Energy Agency acted in the face of Iran’s refusal to allow experts to examine its stepped-up nuclear enrichment program.`\
 https://nytimes.com/2024/06/05/world/middleeast/iran-nuclear-iaea.html
