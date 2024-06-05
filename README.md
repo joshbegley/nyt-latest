@@ -1,3 +1,7 @@
+**Erich Anderson, Actor in ‘Friday the 13th’ and ‘Felicity,’ Dies at 67**\
+`Mr. Anderson had a breakout role in “Friday the 13th” and went on to appear in more than 300 TV episodes, including a recurring role as the father on “Felicity.”`\
+https://nytimes.com/2024/06/05/arts/erich-anderson-dead.html
+
 **The Bird Flu Virus Adapted to Sea Mammals. It May Not Be Done Yet.**\
 `Huge die-offs of elephant seals occurred after the virus gained nearly 20 troublesome new mutations, scientists found.`\
 https://nytimes.com/2024/06/05/health/bird-flu-mutations-mammals.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/opinion/gov-hochuls-unwarranted-retreat-on-conges
 **Why Children Are Missing More School Now**\
 `Norms on attendance have changed, but it’s about more than Covid-era school closings.`\
 https://nytimes.com/2024/06/05/opinion/covid-school-attendance-pandemic-closings.html
-
-**U.S. Counterterrorism Chief Is Stepping Down**\
-`The official, Christine Abizaid, recently warned that the Hamas attacks in Israel, and the Gaza conflict, had energized terrorist threats worldwide.`\
-https://nytimes.com/2024/06/05/us/politics/us-counterterrorism-chief-resigns.html
 
