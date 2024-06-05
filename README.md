@@ -1,3 +1,7 @@
+**In Congestion Pricing Reversal, Hochul Finds Odd Allies, Including Trump**\
+`Gov. Kathy Hochul’s abrupt decision to delay the long-awaited plan put her in line with the former president, who has a habit of attacking New York, his hometown.`\
+https://nytimes.com/2024/06/05/nyregion/trump-congestion-pricing-hochul.html
+
 **Far-Right Vows to Tie Up the Senate to Avenge Trump Are So Far Mostly Empty**\
 `To date, the effort has not produced results, as the Republicans who have promised to hold up nominees and legislation are the ones who usually oppose them anyway.`\
 https://nytimes.com/2024/06/05/us/politics/far-right-senate-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/05/health/bird-flu-mutations-mammals.html
 **Supporters of Congestion Pricing Are Furious at Hochul’s ‘Betrayal’**\
 `Advocates who have been fighting for decades for the program were shocked by the governor’s sudden move and its impact on funding for the city’s subways.`\
 https://nytimes.com/2024/06/05/nyregion/congestion-pricing-supporters.html
-
-**Review: ‘What’s the Point?’ Oona Doherty’s Resonant Ambivalence**\
-`The choreographer’s “Navy Blue” is the rare work to express the emotions of life in pandemic lockdown.`\
-https://nytimes.com/2024/06/05/arts/dance/review-oona-doherty-navy-blue.html
 

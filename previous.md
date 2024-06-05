@@ -1,3 +1,7 @@
+**Far-Right Vows to Tie Up the Senate to Avenge Trump Are So Far Mostly Empty**\
+`To date, the effort has not produced results, as the Republicans who have promised to hold up nominees and legislation are the ones who usually oppose them anyway.`\
+https://nytimes.com/2024/06/05/us/politics/far-right-senate-trump.html
+
 **Violence breaks out at an annual Jewish nationalist march through East Jerusalem.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/06/05/world/israel-gaza-war-hamas/violence-breaks-out-at-an-annual-jewish-nationalist-march-through-east-jerusalem
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/05/nyregion/congestion-pricing-supporters.html
 **Review: ‘What’s the Point?’ Oona Doherty’s Resonant Ambivalence**\
 `The choreographer’s “Navy Blue” is the rare work to express the emotions of life in pandemic lockdown.`\
 https://nytimes.com/2024/06/05/arts/dance/review-oona-doherty-navy-blue.html
-
-**As Hunter Biden Stands Trial, a Republican Noise Machine Goes Silent**\
-`Republicans have gone after Hunter Biden for years, but his trial on gun charges undermines their views on gun rights and on a “weaponized” Justice Department.`\
-https://nytimes.com/2024/06/05/us/politics/hunter-biden-republicans.html
 

@@ -1,3 +1,7 @@
+**Far-Right Vows to Tie Up the Senate to Avenge Trump Are So Far Mostly Empty**\
+`To date, the effort has not produced results, as the Republicans who have promised to hold up nominees and legislation are the ones who usually oppose them anyway.`\
+https://nytimes.com/2024/06/05/us/politics/far-right-senate-trump.html
+
 **Violence breaks out at an annual Jewish nationalist march through East Jerusalem.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/06/05/world/israel-gaza-war-hamas/violence-breaks-out-at-an-annual-jewish-nationalist-march-through-east-jerusalem
