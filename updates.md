@@ -1,3 +1,7 @@
+**How Would Congestion Pricing Work in New York City?**\
+`The tolling program aims to diminish traffic while raising money for mass transit.`\
+https://nytimes.com/2024/06/05/nyregion/what-is-congestion-pricing-nyc.html
+
 **Here’s the revised flight plan for the Starliner’s journey.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/06/05/science/boeing-launch-starliner-nasa/heres-the-revised-flight-plan-for-the-starliners-journey
