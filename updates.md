@@ -1,3 +1,7 @@
+**Trump says he might ‘have to’ prosecute his political opponents.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/06/05/us/trump-biden-election/trump-says-he-might-have-to-prosecute-his-political-opponents
+
 **Finding Your Roots With Help From Your Phone**\
 `Everyday tools and free apps on your mobile device can help you collect, translate and digitize new material for your family-tree files.`\
 https://nytimes.com/2024/06/05/technology/personaltech/digitize-family-photos-genealogy-phone.html
