@@ -1,3 +1,23 @@
+**Time to End New York’s Barrier to Jobs for Migrants**\
+`By Mara Gay`\
+https://nytimes.com/live/2024/06/04/opinion/thepoint/time-to-end-new-yorks-barrier-to-jobs-for-migrants
+
+**A Brooklyn Doughnut Shop Opens a Portal Into a Sweeter Past**\
+`Peter Pan, born in the 1950s in Greenpoint, conjures more than memories for the illustrator Rachelle Meyer.`\
+https://nytimes.com/2024/06/05/dining/peter-pan-doughnuts.html
+
+**Luther Vandross, Pop Perfectionist, Didn’t Want You to Hear These Albums**\
+`Early records reveal that his sumptuous voice and longing lyrics were there from the start. Out of print since 1977, “This Close to You” will be available Friday.`\
+https://nytimes.com/2024/06/05/arts/music/luther-vandross-albums.html
+
+**The G.O.P. Push for Post-Verdict Payback: ‘Fight Fire With Fire’**\
+`Republican leaders in and out of government are publicly pushing to prosecute Democrats as legal retribution for Donald Trump’s felony conviction.`\
+https://nytimes.com/2024/06/05/us/politics/trump-conviction-gop-revenge.html
+
+**5 Minutes That Will Make You Love South African Jazz**\
+`The country has a rich, original relationship to jazz, with American techniques layered into regional traditions and rhythms. Explore 50 years of recordings picked by musicians, poets and writers.`\
+https://nytimes.com/2024/06/05/arts/music/south-african-jazz-music.html
+
 **Students Walk Out Over Gun Violence That Is Close to Home**\
 `In Crown Heights, Brooklyn, middle-school students are protesting gun violence in partnership with a community group.`\
 https://nytimes.com/2024/06/05/nyregion/students-gun-violence-walkout.html
