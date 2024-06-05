@@ -1,3 +1,7 @@
+**Dollar Tree Explores Sale of Family Dollar**\
+`Family Dollar has struggled with its operations in recent years, and Dollar Tree said in March that it would close nearly 1,000 of the stores.`\
+https://nytimes.com/2024/06/05/business/family-dollar-dollar-tree-sale.html
+
 **Europe’s Fed Problem**\
 `The European Central Bank is widely expected to cut interest rates on Thursday. But how low it can go may ultimately depend on the Federal Reserve.`\
 https://nytimes.com/2024/06/05/business/dealbook/ecb-fed-interest-rates.html
