@@ -26,8 +26,8 @@ https://nytimes.com/2024/06/05/briefing/india-elections-ukraine-damage.html
 `The aftermath of a brazen attack on a prison convoy has raised uncomfortable questions for France’s justice system.`\
 https://nytimes.com/2024/06/05/world/europe/france-prisoner-manhunt.html
 
-**Amanda Knox to Face Italian Court for Slander Retrial Over 2007 Killing**\
-`The American, who spent several years in jail but was exonerated in 2015 of the killing of her housemate in Italy, will defend herself against a charge related to the case.`\
+**Amanda Knox Faces Italian Court for Slander Retrial Over 2007 Killing**\
+`The American, who spent several years in jail but was exonerated in 2015 of the killing of her housemate in Italy, is defending herself against a charge related to the case.`\
 https://nytimes.com/2024/06/05/world/europe/amanda-knox-italy-slander-case.html
 
 **Europe Has Fallen Behind the U.S. and China. Can It Catch Up?**\

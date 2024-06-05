@@ -1,3 +1,7 @@
+**Amanda Knox Faces Italian Court for Slander Retrial Over 2007 Killing**\
+`The American, who spent several years in jail but was exonerated in 2015 of the killing of her housemate in Italy, is defending herself against a charge related to the case.`\
+https://nytimes.com/2024/06/05/world/europe/amanda-knox-italy-slander-case.html
+
 **How Top N.Y. Officials Helped a Lobbyist Cash in on State Government**\
 `The acting budget director, Sandra Beattie, helped a friend and former lawmaker land lobbying and consulting deals, investigators said.`\
 https://nytimes.com/2024/06/05/nyregion/ny-balboni-lobbyist-investigation.html
