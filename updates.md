@@ -1,3 +1,7 @@
+**Wednesday Briefing**\
+`Narendra Modi’s election setback in India.`\
+https://nytimes.com/2024/06/05/briefing/india-elections-ukraine-damage.html
+
 **A Deadly Ambush, a Giant Manhunt and 3 Weeks With No Arrest**\
 `The aftermath of a brazen attack on a prison convoy has raised uncomfortable questions for France’s justice system.`\
 https://nytimes.com/2024/06/05/world/europe/france-prisoner-manhunt.html
