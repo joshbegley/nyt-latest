@@ -1,3 +1,7 @@
+**Larry Hogan Incurs Trump’s Wrath After Telling Americans to ‘Respect the Verdict’**\
+`When former Gov. Larry Hogan asked Americans to “respect the verdict,” the Trump team turned on his Senate candidacy, jeopardizing a potential Republican pickup opportunity.`\
+https://nytimes.com/2024/06/05/us/politics/larry-hogan-trump.html
+
 **California City Leaders End Cloud-Brightening Test, Overruling Staff**\
 `The City Council in Alameda, Calif., voted to stop tests of a device that could one day cool the Earth. Scientists and city staff had previously concluded the tests posed no risk.`\
 https://nytimes.com/2024/06/05/climate/alameda-cloud-brightening-geoengineering.html
