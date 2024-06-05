@@ -1,3 +1,23 @@
+**Blissfully Crunchy Hot Honey Chicken**\
+`A coating of crushed cornflakes gives these cutlets a shaggy golden crust, ready to trap a drizzling of hot honey.`\
+https://nytimes.com/2024/06/05/dining/blissfully-crunchy-hot-honey-chicken.html
+
+**At the Tribeca Festival, Vision and Vibes**\
+`The festival favors abundance, which can make it easy for cinema fans (and critics) to miss the loveliest trees for the sheer breadth of forest.`\
+https://nytimes.com/2024/06/05/movies/tribeca-festival-standouts.html
+
+**New Report Underscores the Seriousness of Long Covid**\
+`The National Academies said the condition could involve up to 200 symptoms, make it difficult for people to work and last for months or years.`\
+https://nytimes.com/2024/06/05/health/long-covid-symptoms-recovery.html
+
+**Narendra Modi Fell to Earth After Making It All About Himself**\
+`The Indian leader used his singular persona to lift his party to new heights. Then the opposition found a way to use his cult of personality against him.`\
+https://nytimes.com/2024/06/05/world/asia/india-election-modi.html
+
+**India Keeps Its Glorious, Messy Tradition Alive**\
+`The voters have spoken: They want to keep their democracy.`\
+https://nytimes.com/2024/06/05/opinion/india-election-modi-bjp-democracy.html
+
 **Collectors Line Up in London as King Charles Bank Notes Are Released**\
 `A steady stream of people lined up at the Bank of England on Wednesday to get what they hoped would be collector’s items: the first bank notes featuring the portrait of King Charles III.`\
 https://nytimes.com/2024/06/05/world/europe/king-charles-bank-notes-uk.html
@@ -17,24 +37,4 @@ https://nytimes.com/live/2024/06/05/science/boeing-launch-starliner-nasa/heres-t
 **‘Hanging by a Thread’: U.N. Chief Warns of Missing Key Climate Target**\
 `His comments came as the world body’s weather agency said it expected Earth to soon surpass the record high temperatures experienced in 2023.`\
 https://nytimes.com/2024/06/05/climate/global-warming-outlook.html
-
-**California City Leaders End Cloud-Brightening Test, Overruling Staff**\
-`The City Council in Alameda, Calif., voted to stop tests of a device that could one day cool the Earth. Scientists and city staff had previously concluded the tests posed no risk.`\
-https://nytimes.com/2024/06/05/climate/alameda-cloud-brightening-geoengineering.html
-
-**Does NASA need another ride to the space station? Elon Musk says no.**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2024/06/05/science/boeing-launch-starliner-nasa/does-nasa-need-another-ride-to-the-space-station-elon-musk-says-no
-
-**Larry Hogan Incurs Trump’s Wrath After Telling Americans to ‘Respect the Verdict’**\
-`When former Gov. Larry Hogan asked Americans to “respect the verdict,” the Trump team turned on his Senate candidacy, jeopardizing a potential Republican pickup opportunity.`\
-https://nytimes.com/2024/06/05/us/politics/larry-hogan-trump.html
-
-**Hunter Biden’s Ex-Wife, a Key Witness, Is Expected to Testify in Gun Trial**\
-`She is one of three women expected to testify about their relationships with the president’s son and his struggles with alcoholism and addiction.`\
-https://nytimes.com/2024/06/04/us/elections/hunter-biden-ex-wife-kathleen-buhle.html
-
-**Allies Warn Former Fighter Pilots Not to Train Chinese Military Members**\
-`A new bulletin says China is trying to step up recruitment of Western-trained fighter pilots to improve its air combat capability.`\
-https://nytimes.com/2024/06/05/us/politics/us-china-pilots-allies.html
 
