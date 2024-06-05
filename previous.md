@@ -1,3 +1,7 @@
+**Israel Secretly Targets U.S. Lawmakers, and Biden Visits Europe**\
+`Plus, what our reporter witnessed in Sudan.`\
+https://nytimes.com/2024/06/05/podcasts/biden-europe-israel.html
+
 **It’s Wedding Season: Here Come the Owls**\
 `What better way to deliver the rings to the bride and groom?`\
 https://nytimes.com/2024/06/05/world/europe/owls-at-weddings.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/05/arts/music/luther-vandross-albums.html
 **The G.O.P. Push for Post-Verdict Payback: ‘Fight Fire With Fire’**\
 `Republican leaders in and out of government are publicly pushing to prosecute Democrats as legal retribution for Donald Trump’s felony conviction.`\
 https://nytimes.com/2024/06/05/us/politics/trump-conviction-gop-revenge.html
-
-**5 Minutes That Will Make You Love South African Jazz**\
-`The country has a rich, original relationship to jazz, with American techniques layered into regional traditions and rhythms. Explore 50 years of recordings picked by musicians, poets and writers.`\
-https://nytimes.com/2024/06/05/arts/music/south-african-jazz-music.html
 

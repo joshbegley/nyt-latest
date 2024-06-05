@@ -1,3 +1,7 @@
+**Israel Secretly Targets U.S. Lawmakers, and Biden Visits Europe**\
+`Plus, what our reporter witnessed in Sudan.`\
+https://nytimes.com/2024/06/05/podcasts/biden-europe-israel.html
+
 **It’s Wedding Season: Here Come the Owls**\
 `What better way to deliver the rings to the bride and groom?`\
 https://nytimes.com/2024/06/05/world/europe/owls-at-weddings.html
