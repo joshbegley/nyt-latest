@@ -1,3 +1,11 @@
+**Andy Kim Wins Democratic Primary for the U.S. Senate**\
+`The victory makes Mr. Kim, 41, a favorite to be elected New Jersey’s next U.S. senator.`\
+https://nytimes.com/2024/06/04/nyregion/andy-kim-nj-primary-senate.html
+
+**Andy Kim Wins Democratic Senate Primary in New Jersey**\
+`Mr. Kim jumped into the race shortly after the incumbent, Senator Robert Menendez, was indicted on federal corruption charges.`\
+https://nytimes.com/2024/06/04/nyregion/new-jersey-senate-primary.html
+
 **Trump Asks Judge to Lift N.Y. Gag Order Following Conviction**\
 `Citing statements by Stormy Daniels and Michael Cohen, and an upcoming presidential debate, Donald J. Trump’s lawyers asked a judge to lift the order.`\
 https://nytimes.com/2024/06/04/nyregion/trump-trial-conviction-gag-order.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/04/opinion/columnists/dday-nato-europe.html
 **How Biden’s Asylum Order Works**\
 `The president issued an executive order that essentially blocks asylum claims at the southern border, a major shift in how the United States has handled claims for protection.`\
 https://nytimes.com/2024/06/04/us/politics/biden-immigration-asylum-order-explainer.html
-
-**Halsey, Dealing With Illness, Announces New Album and Song**\
-`The pop star did not specify what illness they were confronting in their announcement.`\
-https://nytimes.com/2024/06/04/arts/halsey-illness-new-album.html
-
-**What to Know About Claudia Sheinbaum, Mexico’s President-Elect**\
-`Claudia Sheinbaum’s list of accolades is long: She has earned a Ph.`\
-https://nytimes.com/video/world/americas/100000009504420/what-to-know-about-claudia-sheinbaum-mexicos-president-elect.html
 
