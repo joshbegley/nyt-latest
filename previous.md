@@ -1,3 +1,7 @@
+**Little Island Gets a Reboot, With a Rising Star at the Helm**\
+`Zack Winokur, an ambitious dancer-turned-director, now has a New York stage to call his own as the park’s artistic leader.`\
+https://nytimes.com/2024/06/05/arts/music/zack-winokur-little-island.html
+
 **Israel says it has launched a new operation in central Gaza and health officials report dozens dead.**\
 `Israel said it launched operations “above and below ground” against Hamas militants. The only hospital in the area is overwhelmed by the wounded, medics say.`\
 https://nytimes.com/live/2024/06/05/world/israel-gaza-war-hamas/israel-says-it-has-launched-a-new-operation-in-central-gaza-and-health-officials-report-dozens-dead
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/05/opinion/donald-trump-conviction-election.html
 **London Hospitals Face Major Disruptions After Cyberattack**\
 `A system used by several major London hospitals was targeted in a ransomware cyberattack, forcing the cancellation of services and the diversion of patients.`\
 https://nytimes.com/2024/06/05/world/europe/london-hospitals-cyberattack.html
-
-**Pro Skier and Partner Fall to Their Deaths in the Italian Alps**\
-`Jean Daniel Pession, a speed skier on the World Cup circuit, and his girlfriend, Elisa Arlian, fell more than 2,000 feet.`\
-https://nytimes.com/2024/06/05/world/europe/skiers-dead-mountain-italy.html
 

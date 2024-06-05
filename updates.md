@@ -1,3 +1,7 @@
+**Little Island Gets a Reboot, With a Rising Star at the Helm**\
+`Zack Winokur, an ambitious dancer-turned-director, now has a New York stage to call his own as the park’s artistic leader.`\
+https://nytimes.com/2024/06/05/arts/music/zack-winokur-little-island.html
+
 **Israel says it has launched a new operation in central Gaza and health officials report dozens dead.**\
 `Israel said it launched operations “above and below ground” against Hamas militants. The only hospital in the area is overwhelmed by the wounded, medics say.`\
 https://nytimes.com/live/2024/06/05/world/israel-gaza-war-hamas/israel-says-it-has-launched-a-new-operation-in-central-gaza-and-health-officials-report-dozens-dead
