@@ -1,3 +1,7 @@
+**The Bird Flu Virus Adapted to Sea Mammals. It May Not Be Done Yet.**\
+`Huge die-offs of elephant seals occurred after the virus gained nearly 20 troublesome new mutations, scientists found.`\
+https://nytimes.com/2024/06/05/health/bird-flu-mutations-mammals.html
+
 **Supporters of Congestion Pricing Are Furious at Hochul’s ‘Betrayal’**\
 `Advocates who have been fighting for decades for the program were shocked by the governor’s sudden move and its impact on funding for the city’s subways.`\
 https://nytimes.com/2024/06/05/nyregion/congestion-pricing-supporters.html
