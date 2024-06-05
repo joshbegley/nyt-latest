@@ -1,3 +1,7 @@
+**Rock Climber Gets Life in Prison for Sexual Assaults at Yosemite**\
+`The climber was sentenced on two counts of aggravated sexual abuse and one count of abusive sexual contact in the 2016 assault of a woman during a weekend trip.`\
+https://nytimes.com/2024/06/05/us/charles-barrett-sentenced-assault-yosemite.html
+
 **A Russian American Is Sentenced in Russia Over Social Media Posts**\
 `The latest detention of an American national in Russia has renewed fears that the Kremlin is seeking to use U.S. citizens as bargaining chips.`\
 https://nytimes.com/2024/06/05/world/europe/russian-american-sentenced-social-media.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/05/nyregion/trump-congestion-pricing-hochul.html
 **Far-Right Vows to Tie Up the Senate to Avenge Trump Are So Far Mostly Empty**\
 `To date, the effort has not produced results, as the Republicans who have promised to hold up nominees and legislation are the ones who usually oppose them anyway.`\
 https://nytimes.com/2024/06/05/us/politics/far-right-senate-trump.html
-
-**18 people are arrested at an annual Jewish nationalist march through East Jerusalem.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/06/05/world/israel-gaza-war-hamas/violence-breaks-out-at-an-annual-jewish-nationalist-march-through-east-jerusalem
 
