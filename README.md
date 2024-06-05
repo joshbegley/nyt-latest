@@ -26,9 +26,9 @@ https://nytimes.com/live/2024/06/05/us/hunter-biden-trial-news/some-republicans-
 `The magazine’s ethicist columnist on what to do when forced to play lifeguard.`\
 https://nytimes.com/2024/06/05/magazine/swimming-without-lifeguard-ethics.html
 
-**Netanyahu warned of ‘very intense’ action against Hezbollah in Lebanon, as talk of a new war intensifies.**\
+**Netanyahu warns of ‘very intense’ action against Hezbollah in Lebanon, as talk of a new war intensifies.**\
 `By Michael Levenson`\
-https://nytimes.com/live/2024/06/05/world/israel-gaza-war-hamas/netanyahu-warned-of-very-intense-action-against-hezbollah-in-lebanon-as-talk-of-a-new-war-intensifies
+https://nytimes.com/live/2024/06/05/world/israel-gaza-war-hamas/israel-hezbollah-netanyahu
 
 **Gov. Hochul’s Unwarranted Retreat on Congestion Pricing**\
 `A vitally important public policy was derailed over political concerns.`\
