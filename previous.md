@@ -1,3 +1,7 @@
+**F.D.A. Advisers Recommend a New Covid Vaccine Formula for the Fall**\
+`The panel endorsed targeting a variant of the coronavirus that is now receding, though some officials suggested aiming at newer versions of the virus that have emerged in recent weeks.`\
+https://nytimes.com/2024/06/05/health/covid-vaccine-autumn.html
+
 **Julia Fox: The Popcast (Deluxe) Interview**\
 `The actress, writer and New York icon discusses her post-Kanye career, what it’s like to see her past go viral and the history of “It Girl” pop songs.`\
 https://nytimes.com/2024/06/05/arts/music/julia-fox-interview-popcast-deluxe.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/05/us/charles-barrett-sentenced-assault-yosemite.htm
 **A Russian American Is Sentenced in Russia Over Social Media Posts**\
 `The latest detention of an American national in Russia has renewed fears that the Kremlin is seeking to use U.S. citizens as bargaining chips.`\
 https://nytimes.com/2024/06/05/world/europe/russian-american-sentenced-social-media.html
-
-**Here are the witnesses who may testify for the prosecution.**\
-`By Zach Montague`\
-https://nytimes.com/live/2024/06/05/us/hunter-biden-trial-news/here-are-the-witnesses-who-may-testify-for-the-prosecution
 
