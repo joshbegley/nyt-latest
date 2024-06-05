@@ -1,3 +1,7 @@
+**Trump’s Vows to Prosecute Rivals Put Rule of Law on the Ballot**\
+`Donald Trump’s promise to seek retribution challenges long-established norms. The election could hinge in part on what kind of justice system the country believes it has now and wants in the future.`\
+https://nytimes.com/2024/06/05/us/trump-retribution-justice.html
+
 **Republican Leaders Seek to Avenge Trump**\
 `Also, New York’s governor halted its congestion pricing plan. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/06/05/briefing/trump-republicans-revenge-new-york-tolls.html
