@@ -1,3 +1,7 @@
+**Boeing’s Starliner capsule has had a long, difficult road to human spaceflight.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2024/06/05/science/boeing-launch-starliner-nasa/boeings-starliner-capsule-has-had-a-long-difficult-road-to-human-spaceflight
+
 **Trump says he might ‘have to’ prosecute his political opponents.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/06/05/us/trump-biden-election/trump-says-he-might-have-to-prosecute-his-political-opponents
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/05/business/family-dollar-dollar-tree-sale.html
 **Europe’s Fed Problem**\
 `The European Central Bank is widely expected to cut interest rates on Thursday. But how low it can go may ultimately depend on the Federal Reserve.`\
 https://nytimes.com/2024/06/05/business/dealbook/ecb-fed-interest-rates.html
-
-**Alameda City Council Votes to Stop Cloud Brightening Test**\
-`City officials decided to block testing of an experimental technology to fight global warming, even though experts hired by the city found that it posed no health risk to residents.`\
-https://nytimes.com/2024/06/05/us/alameda-cloud-brightening-climate-change.html
 
