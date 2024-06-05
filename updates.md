@@ -1,3 +1,15 @@
+**MoMA’s Garden Party Honors Joan Jonas, LaToya Ruby Frazier and Refik Anadol**\
+`The annual event raised more than $5.5 million and drew influential artists, collectors and benefactors to the museum.`\
+https://nytimes.com/2024/06/05/style/moma-joan-jonas-latoya-ruby-frazier.html
+
+**A Cease-Fire in Gaza Might Be the Easy Part. Fulfilling It Will Be Harder.**\
+`The proposal backed by President Biden is deeply political and aims at stopping the war at least for now. But Israel rejects a permanent cease-fire and Hamas has its own reasons for reluctance.`\
+https://nytimes.com/2024/06/05/world/europe/israel-gaza-cease-fire-negotiations.html
+
+**Erich Anderson, Actor in ‘Friday the 13th’ and ‘Felicity,’ Dies at 67**\
+`Mr. Anderson had a breakout role in “Friday the 13th” and went on to appear in more than 300 TV episodes, including a recurring role as the father on “Felicity.”`\
+https://nytimes.com/2024/06/05/arts/erich-anderson-dead.html
+
 **BoErich Anderson, Actor in ‘Friday the 13th’ and ‘Felicity,’ Dies at 67**\
 `Mr. Anderson had a breakout role in “Friday the 13th” and went on to appear in more than 300 TV episodes, including a recurring role as the father on “Felicity.”`\
 https://nytimes.com/2024/06/05/arts/erich-anderson-dead.html
