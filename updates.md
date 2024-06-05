@@ -1,5 +1,9 @@
 **Costco Plans to Stop Selling Books Year-Round**\
 `The decision, which will be implemented in January 2025, could significantly impact publishers.`\
+https://nytimes.com/2024/06/05/books/costco-books.html
+
+**Costco Plans to Stop Selling Books Year-Round**\
+`The decision, which will be implemented in January 2025, could significantly impact publishers.`\
 https://nytimes.com/2024/06/05/books/costco-will-stop-selling-books-year-round.html
 
 **Judge Reshuffles Hearings in Trump Documents Case**\

@@ -1,6 +1,6 @@
 **Costco Plans to Stop Selling Books Year-Round**\
 `The decision, which will be implemented in January 2025, could significantly impact publishers.`\
-https://nytimes.com/2024/06/05/books/costco-will-stop-selling-books-year-round.html
+https://nytimes.com/2024/06/05/books/costco-books.html
 
 **Judge Reshuffles Hearings in Trump Documents Case**\
 `The new schedule set by Judge Aileen Cannon reflects the array of legal issues that she has yet to resolve amid efforts by the former president’s legal team to delay the trial.`\
