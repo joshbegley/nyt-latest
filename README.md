@@ -1,3 +1,7 @@
+**Columbia Law Review Website Is Taken Offline Over Article Criticizing Israel**\
+`The board of directors of the student-run publication said that the article, by a Palestinian human rights lawyer, had not been subject to sufficient review.`\
+https://nytimes.com/2024/06/04/nyregion/columbia-law-review-website.html
+
 **Call on the High Seas**\
 `David Rockow gets organized.`\
 https://nytimes.com/2024/06/04/crosswords/daily-puzzle-2024-06-05.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/nyregion/trump-trial-conviction-gag-order.html
 **Parnelli Jones, Champion Auto Racer and Record Setter, Is Dead at 90**\
 `He was one of the greatest drivers of the 1960s and ’70s, winning six times at Indianapolis and four times in NASCAR events while setting speed marks.`\
 https://nytimes.com/2024/06/04/sports/autoracing/parnelli-jones-dead.html
-
-**D.A. Seeks to Overturn Texas Governor’s Pardon of Man Who Killed Protester**\
-`The prosecutor accused the governor of violating the constitutional separation of powers doctrine by intervening with the actions of a court.`\
-https://nytimes.com/2024/06/04/us/abbott-pardon-daniel-perry-texas.html
 
