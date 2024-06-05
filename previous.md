@@ -1,3 +1,7 @@
+**Late Night Reacts to President Biden’s Border Closure Order**\
+`“The Daily Show” host Ronny Chieng joked that the president “has decided to start trying to win the election” with a temporary order affecting asylum seekers.`\
+https://nytimes.com/2024/06/05/arts/television/late-night-biden-border.html
+
 **Indian Voters Have Finally Woken Up**\
 `Narendra Modi is a diminished figure after a disappointing election showing that could imperil his visions for an intolerant Hindu state.`\
 https://nytimes.com/2024/06/05/opinion/india-election-modi.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/04/pageoneplus/quote-of-the-day-marking-80-years-aft
 **Hochul Pushes for Congestion Pricing Delay in Last-Minute Reversal**\
 `Gov. Kathy Hochul wants to postpone a plan to charge motorists to enter Manhattan’s business district, citing fears that it will hurt the city’s economy.`\
 https://nytimes.com/2024/06/04/nyregion/congestion-pricing-hochul-delayed.html
-
-**Corrections: June 5, 2024**\
-`Corrections that appeared in print on Wednesday, June 5, 2024.`\
-https://nytimes.com/2024/06/04/pageoneplus/corrections-june-5-2024.html
 

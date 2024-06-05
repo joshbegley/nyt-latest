@@ -1,3 +1,7 @@
+**Late Night Reacts to President Biden’s Border Closure Order**\
+`“The Daily Show” host Ronny Chieng joked that the president “has decided to start trying to win the election” with a temporary order affecting asylum seekers.`\
+https://nytimes.com/2024/06/05/arts/television/late-night-biden-border.html
+
 **Indian Voters Have Finally Woken Up**\
 `Narendra Modi is a diminished figure after a disappointing election showing that could imperil his visions for an intolerant Hindu state.`\
 https://nytimes.com/2024/06/05/opinion/india-election-modi.html
