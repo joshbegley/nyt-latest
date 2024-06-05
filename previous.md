@@ -1,3 +1,11 @@
+**Part of the government’s case will rely on the testimony of Hunter Biden’s ex-wife.**\
+`By Glenn Thrush`\
+https://nytimes.com/live/2024/06/05/us/hunter-biden-trial-news/part-of-the-governments-case-will-rely-on-the-testimony-of-hunter-bidens-ex-wife
+
+**Live Updates: Hunter Biden’s Ex-Wife, a Key Witness, Is Expected to Testify**\
+`She is one of three women expected to describe their relationships with the president’s son and his struggles with alcoholism and addiction. He is accused of lying about his drug use on a federal form when he purchased a gun.`\
+https://nytimes.com/live/2024/06/05/us/hunter-biden-trial-news
+
 **Some of the astronauts’ luggage is not going to make it to the space station.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/06/05/science/boeing-launch-starliner-nasa/some-of-the-astronauts-luggage-is-not-going-to-make-it-to-the-space-station
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/05/world/asia/india-election-modi.html
 **India Keeps Its Glorious, Messy Tradition Alive**\
 `The voters have spoken: They want to keep their democracy.`\
 https://nytimes.com/2024/06/05/opinion/india-election-modi-bjp-democracy.html
-
-**Collectors Line Up in London as King Charles Bank Notes Are Released**\
-`A steady stream of people lined up at the Bank of England on Wednesday to get what they hoped would be collector’s items: the first bank notes featuring the portrait of King Charles III.`\
-https://nytimes.com/2024/06/05/world/europe/king-charles-bank-notes-uk.html
-
-**How Electric Car Batteries Might Aid the Grid (and Win Over Drivers)**\
-`Automakers are exploring energy storage as a way to help utilities and save customers money, turning an expensive component into an industry asset.`\
-https://nytimes.com/2024/06/05/business/energy-environment/electric-car-batteries-grid.html
 
