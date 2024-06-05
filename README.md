@@ -1,3 +1,7 @@
+**The Beauty of Embracing Aging**\
+`I remind myself to relish every summer day.`\
+https://nytimes.com/2024/06/05/opinion/aging-older-family.html
+
 **Moscow Could Target Countries Supplying Weapons to Ukraine, Putin Says**\
 `President Vladimir V. Putin said that since Western governments were allowing long-range missiles to be used on Russia, it could do the same.`\
 https://nytimes.com/2024/06/05/us/putin-russia-ukraine-germany.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/05/nyregion/what-happens-next-congestion-pricing.htm
 **Thursday Briefing: A Special Report From Sudan**\
 `Also, the 80th anniversary of D-Day.`\
 https://nytimes.com/2024/06/05/world/asia/sudan-israel-heat-dday-india-asia.html
-
-**House Republicans Issue Criminal Referrals of Hunter and James Biden**\
-`The referrals, which accuse the president’s son and brother of lying about his involvement in their business dealings, carry no force of law but are the latest bid by Republicans to target the Biden family.`\
-https://nytimes.com/2024/06/05/us/politics/republicans-criminal-referrals-hunter-and-james-biden.html
 
