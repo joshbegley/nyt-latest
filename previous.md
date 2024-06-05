@@ -1,3 +1,7 @@
+**California City Leaders End Cloud-Brightening Test, Overruling Staff**\
+`The City Council in Alameda, Calif., voted to stop tests of a device that could one day cool the Earth. Scientists and city staff had previously concluded the tests posed no risk.`\
+https://nytimes.com/2024/06/05/climate/alameda-cloud-brightening-geoengineering.html
+
 **Does NASA need another ride to the space station? Elon Musk says no.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/06/05/science/boeing-launch-starliner-nasa/does-nasa-need-another-ride-to-the-space-station-elon-musk-says-no
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/05/technology/personaltech/digitize-family-photos-ge
 **E.P.A. Moves to Limit Toxic Chemical Used in Hundreds of Products**\
 `The chemical, N-Methylpyrrolidone, or NMP, has been linked to miscarriages, reduced male fertility and other health problems.`\
 https://nytimes.com/2024/06/05/climate/epa-nmp-chemical-ban.html
-
-**Is It Disrespectful to My Dead Father to Speak to His Estranged Brother?**\
-`A reader’s uncle and aunt were touched when she sent them a Christmas card, but her sister thinks the gesture was a betrayal of their father’s memory.`\
-https://nytimes.com/2024/06/05/style/grudges-family-member-estrangement.html
 

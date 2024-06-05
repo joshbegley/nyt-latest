@@ -1,3 +1,7 @@
+**California City Leaders End Cloud-Brightening Test, Overruling Staff**\
+`The City Council in Alameda, Calif., voted to stop tests of a device that could one day cool the Earth. Scientists and city staff had previously concluded the tests posed no risk.`\
+https://nytimes.com/2024/06/05/climate/alameda-cloud-brightening-geoengineering.html
+
 **Does NASA need another ride to the space station? Elon Musk says no.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/06/05/science/boeing-launch-starliner-nasa/does-nasa-need-another-ride-to-the-space-station-elon-musk-says-no
