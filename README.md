@@ -2,7 +2,7 @@
 `A handful of injuries were reported in Gaithersburg, a suburb of the nation’s capital.`\
 https://nytimes.com/2024/06/05/us/tornado-maryland-washington-dc.html
 
-**Prosecutors Use Texts to Depict Menendez and his Wife as Collaborators**\
+**Prosecutors Use Texts to Depict Menendez and His Wife as Collaborators**\
 `Senator Robert Menendez is accused of bribery and corruption. His lawyers have attempted to shift the blame to his wife, Nadine.`\
 https://nytimes.com/2024/06/05/nyregion/robert-menendez-bribery-mercedes.html
 
