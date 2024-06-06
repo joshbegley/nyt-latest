@@ -1,3 +1,15 @@
+**Does Gov. Hochul, a Buffalo Native, Really Get New York City?**\
+`Governor Hochul is more of an outsider to New York City than most of her predecessors. Critics say that put her at a disadvantage in dealing with congestion pricing.`\
+https://nytimes.com/2024/06/06/nyregion/hochul-congestion-pricing.html
+
+**Israeli Strike Kills Dozens at Civilian Shelter in Gaza**\
+`The Israeli military said it had been targeting militants who were hiding in the complex in an effort to evade attack. The former U.N. school was housing 6,000 displaced Gazans.`\
+https://nytimes.com/2024/06/06/world/middleeast/israel-gaza-school-killing.html
+
+**Kennedy’s Campaign Is Accused of Lying About His New York Residency**\
+`A group aligned with President Biden has challenged his ballot petition with New York State officials, arguing he should not be on the fall ballot.`\
+https://nytimes.com/2024/06/06/us/politics/rfk-jr-ny-residency-challenged.html
+
 **‘Mama! Mama!’ Israeli Strike Sets Off Chaos at Gazan Hospital**\
 `Al Aqsa Martyrs Hospital, inundated by a rapidly rising casualty count, is so full that the crowds themselves are hampering treatment.`\
 https://nytimes.com/2024/06/06/world/middleeast/gaza-hospital-israel-airstrike.html
