@@ -1,3 +1,7 @@
+**From Field to Feast: At These Venues, What You Eat Is Grown on Site**\
+`The farm-to-table concept has been around for a while, but some couples expect more than simply fresh cuisine at their wedding. They want to be fully immersed in the farm experience.`\
+https://nytimes.com/2024/06/06/style/from-field-to-feast-at-these-venues-what-you-eat-is-grown-on-site.html
+
 **Former N.J. Attorney General Takes the Stand in Menendez Bribery Trial**\
 `Prosecutors say Senator Robert Menendez contacted Gurbir S. Grewal in an effort to quash an insurance fraud investigation on behalf of an ally.`\
 https://nytimes.com/2024/06/06/nyregion/gurbir-grewal-robert-menendez-bribery-trial.html
