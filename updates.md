@@ -1,3 +1,7 @@
+**The U.N. says at least 450 people have been killed at its facilities in Gaza during the war.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/06/06/world/israel-gaza-war-hamas/the-un-says-at-least-450-people-have-been-killed-at-its-facilities-in-gaza
+
 **10 Books About L.G.B.T.Q. Mental Health and Well-Being**\
 `Therapists and other experts recommend their favorite titles.`\
 https://nytimes.com/2024/06/06/well/mind/lgbtq-books-mental-health.html
