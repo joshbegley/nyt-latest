@@ -1,3 +1,7 @@
+**The Lost Art of the Negative**\
+`Film cameras are seeing another renaissance. But some new photographers are leaving something behind: the tea-colored originals that determine the life of pictures.`\
+https://nytimes.com/2024/06/06/arts/film-photography-negatives.html
+
 **Air-Conditioning Gives Us a False Sense of Security**\
 `Why heat waves are the harbinger of what’s to come.`\
 https://nytimes.com/2024/06/06/opinion/heat-wave-air-conditioning.html

@@ -1,3 +1,7 @@
+**The Lost Art of the Negative**\
+`Film cameras are seeing another renaissance. But some new photographers are leaving something behind: the tea-colored originals that determine the life of pictures.`\
+https://nytimes.com/2024/06/06/arts/film-photography-negatives.html
+
 **Air-Conditioning Gives Us a False Sense of Security**\
 `Why heat waves are the harbinger of what’s to come.`\
 https://nytimes.com/2024/06/06/opinion/heat-wave-air-conditioning.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/arts/television/review-fantasmas-julio-torres.htm
 **Prison Time Is the Real Factor in the Trump Verdict’s Impact on 2024**\
 `How voters will react to a candidate’s sentencing is fraught with uncertainty.`\
 https://nytimes.com/2024/06/06/opinion/trump-prison-time.html
-
-**San Francisco Jewish Museum Has a Blank Space for Dissenting Artists**\
-`A museum’s unusual tactic in a contretemps with protesters brings visibility to their walkout.`\
-https://nytimes.com/2024/06/06/arts/design/sanfrancisco-jewish-museum-blank.html
 
