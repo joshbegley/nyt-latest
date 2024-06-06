@@ -1,3 +1,11 @@
+**Forty Years Later, Biden Seeks to Echo Reagan’s Legacy of American Leadership**\
+`At Pointe du Hoc in Normandy, President Biden plans to follow one of the former president’s most iconic speeches with his own testimonial to democracy and the need to resist isolationism.`\
+https://nytimes.com/2024/06/06/us/politics/biden-reagan-normandy-dday-speech.html
+
+**Late-Night Dining Is Back. Sort Of.**\
+`By Nikita Richardson`\
+https://nytimes.com/2024/06/06/dining/late-night-dining-is-back-sort-of.html
+
 **Boeing’s Starliner Overcomes Malfunctioning Thrusters to Dock at Space Station**\
 `Two NASA astronauts, Butch Wilmore and Suni Williams, opened the hatch of the spacecraft and boarded the outpost in orbit.`\
 https://nytimes.com/2024/06/06/science/boeing-starliner-space-station-docking.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/06/business/media/td-allman-dead.html
 **Video Analysis Shows Israeli Strike Used Bomb That Appeared to Be U.S.-Made**\
 `A video of munitions debris filmed at the school complex in central Gaza where thousands of Palestinians were sheltering showed remnants of a GBU-39, a bomb that is designed and manufactured by Boeing.`\
 https://nytimes.com/2024/06/06/world/middleeast/israel-gaza-strike-us-bomb.html
-
-**Bertien van Manen’s Glimpses of the World**\
-`Using point-and-shoot cameras, she traveled to China, Russia and the coal mines of Kentucky to capture everyday life.`\
-https://nytimes.com/2024/06/06/arts/bertien-van-manens-glimpses-of-the-world.html
-
-**The World Heads to the Polls**\
-`Hundreds of millions of people around the world have recently voted in elections with important climate issues like extreme heat and coal dependence.`\
-https://nytimes.com/2024/06/06/climate/global-elections-climate-change-policy.html
 
