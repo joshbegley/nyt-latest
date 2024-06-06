@@ -1,3 +1,7 @@
+**Storm Damages Homes in Washington Suburbs Amid Tornado Warnings**\
+`A handful of injuries were reported in Gaithersburg, Md., a suburb of the nation’s capital. Baltimore is also under a tornado warning.`\
+https://nytimes.com/2024/06/05/us/tornado-maryland-washington-dc.html
+
 **Review: In a Nostalgic Revival, ‘Home’ Is Where the Heart Was**\
 `Samm-Art Williams’s 1979 play about the uprooting of a Black farmer returns to Broadway for the first time.`\
 https://nytimes.com/2024/06/05/theater/home-review-roundabout-theater.html
