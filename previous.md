@@ -1,3 +1,11 @@
+**One trial down. But will there be others?**\
+`We catch up on the state of Trump’s three other criminal cases.`\
+https://nytimes.com/2024/06/06/us/politics/trump-trial-next-cases.html
+
+**Washington Post C.E.O. Promised Interview for Ignoring Scandal, NPR Reporter Says**\
+`David Folkenflik of NPR wrote that the offer, in exchange for agreeing to stop his coverage of a phone hacking scandal, was made “repeatedly — and heatedly.”`\
+https://nytimes.com/2024/06/06/business/media/washington-post-will-lewis-npr.html
+
 **T.D. Allman, Assertive Globe-Trotting Journalist, Dies at 79**\
 `Reporting from more than 80 countries, he combined close observation with sharp conclusions that pointed the finger at misdeeds or abuse of power. He was an author as well.`\
 https://nytimes.com/2024/06/06/business/media/td-allman-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/06/style/from-field-to-feast-at-these-venues-what-yo
 **Former N.J. Attorney General Takes the Stand in Menendez Bribery Trial**\
 `Prosecutors say Senator Robert Menendez contacted Gurbir S. Grewal in an effort to quash an insurance fraud investigation on behalf of an ally.`\
 https://nytimes.com/2024/06/06/nyregion/gurbir-grewal-robert-menendez-bribery-trial.html
-
-**Penn Bans Protest Encampments From Its Campus**\
-`The new rules, which would significantly rein in demonstrations at the university, come on the heels of a nationwide wave of student activism against Israel’s military actions in Gaza.`\
-https://nytimes.com/2024/06/06/us/penn-ban-encampments-campus-protests-gaza.html
-
-**Airstrike Kills Dozens at Former School Sheltering Palestinians**\
-`An Israeli airstrike hit a United Nations school complex that served as a shelter for thousands of displaced Palestinians in central Gaza.`\
-https://nytimes.com/video/world/middleeast/100000009507543/unrwa-school-israeli-strike.html
 

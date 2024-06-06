@@ -1,3 +1,11 @@
+**One trial down. But will there be others?**\
+`We catch up on the state of Trump’s three other criminal cases.`\
+https://nytimes.com/2024/06/06/us/politics/trump-trial-next-cases.html
+
+**Washington Post C.E.O. Promised Interview for Ignoring Scandal, NPR Reporter Says**\
+`David Folkenflik of NPR wrote that the offer, in exchange for agreeing to stop his coverage of a phone hacking scandal, was made “repeatedly — and heatedly.”`\
+https://nytimes.com/2024/06/06/business/media/washington-post-will-lewis-npr.html
+
 **Video analysis shows Israel’s strike used a bomb that appeared to be U.S.-made.**\
 `By Christiaan Triebert and Neil Collier`\
 https://nytimes.com/live/2024/06/06/world/israel-gaza-war-hamas/video-shows-israel-used-a-us-made-bomb-in-a-deadly-strike-on-a-shelter-for-displaced-palestinians
