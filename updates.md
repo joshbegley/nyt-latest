@@ -1,3 +1,7 @@
+**The Truth About Prebiotic Sodas**\
+`Are they actually good for your gut health?`\
+https://nytimes.com/2024/06/06/well/prebiotic-soda-poppi-olipop.html
+
 **The Best Berry Cakes Start With These Two Tips**\
 `Some berries are better suited to certain desserts. Here’s how to make sure your seasonal fruit shines bright.`\
 https://nytimes.com/2024/06/06/dining/best-berry-cake.html
