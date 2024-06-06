@@ -1,3 +1,7 @@
+**Woman Who Says She Inspired ‘Baby Reindeer’ Character Sues Netflix**\
+`Fiona Harvey claims that the series, which has been promoted as based on a true story, defamed her by basing the character Martha, a convicted stalker, on her.`\
+https://nytimes.com/2024/06/06/arts/baby-reindeer-lawsuit.html
+
 **Harry Roland, ‘The World Trade Center Man,’ Dies at 70**\
 `Within months of the terrorist attacks of Sept. 11, 2001, and continuing almost until his death, he was a street orator hollering about that day’s loss and destruction.`\
 https://nytimes.com/2024/06/06/nyregion/harry-roland-dead.html
