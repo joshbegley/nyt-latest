@@ -1,3 +1,7 @@
+**In Normandy, Biden Linked the War in Ukraine With D-Day**\
+`Also, an Israeli strike killed dozens in central Gaza. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/06/06/briefing/biden-speech-d-day-israel-gaza-strike.html
+
 **Does Gov. Hochul, a Buffalo Native, Really Get New York City?**\
 `Governor Hochul is more of an outsider to New York City than most of her predecessors. Critics say that put her at a disadvantage in dealing with congestion pricing.`\
 https://nytimes.com/2024/06/06/nyregion/hochul-congestion-pricing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/opinion/maga-constitution-trump.html
 **Friday Briefing: Narendra Modi’s India**\
 `We explain what to expect from his third term.`\
 https://nytimes.com/2024/06/06/world/asia/india-dday-strike-gaza-swiatek-asia.html
-
-**Mexico’s Presidents Get Only One Term. Is That a Good Thing?**\
-`Examining the rare one-term presidential limit.`\
-https://nytimes.com/2024/06/06/world/europe/interpreter-mexico-presidents.html
 
