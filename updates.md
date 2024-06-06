@@ -1,3 +1,7 @@
+**Are Big Music Tours Really in Trouble?**\
+`High-profile cancellations from Jennifer Lopez and the Black Keys have armchair analysts talking. But industry insiders say live music is still thriving.`\
+https://nytimes.com/2024/06/06/arts/music/tours-jlo-black-keys.html
+
 **Zelensky Shares Emotional Moment With U.S. Veteran at D-Day Ceremony**\
 `The veteran, Melvin Hurwitz, embraced the Ukrainian president and called him “the savior of the people.” Mr. Zelensky told Mr. Hurwitz that he and his fellow World War II veterans had “saved Europe.”`\
 https://nytimes.com/2024/06/06/world/europe/zelensky-d-day-veteran.html

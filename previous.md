@@ -1,3 +1,7 @@
+**Are Big Music Tours Really in Trouble?**\
+`High-profile cancellations from Jennifer Lopez and the Black Keys have armchair analysts talking. But industry insiders say live music is still thriving.`\
+https://nytimes.com/2024/06/06/arts/music/tours-jlo-black-keys.html
+
 **Zelensky Shares Emotional Moment With U.S. Veteran at D-Day Ceremony**\
 `The veteran, Melvin Hurwitz, embraced the Ukrainian president and called him “the savior of the people.” Mr. Zelensky told Mr. Hurwitz that he and his fellow World War II veterans had “saved Europe.”`\
 https://nytimes.com/2024/06/06/world/europe/zelensky-d-day-veteran.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/nyregion/joro-spiders-invasion.html
 **Woman Who Says She Inspired ‘Baby Reindeer’ Character Sues Netflix**\
 `Fiona Harvey claims that the series, which has been promoted as based on a true story, defamed her by basing the character Martha, a convicted stalker, on her.`\
 https://nytimes.com/2024/06/06/arts/baby-reindeer-lawsuit.html
-
-**Harry Roland, ‘The World Trade Center Man,’ Dies at 70**\
-`Within months of the terrorist attacks of Sept. 11, 2001, and continuing almost until his death, he was a street orator hollering about that day’s loss and destruction.`\
-https://nytimes.com/2024/06/06/nyregion/harry-roland-dead.html
 
