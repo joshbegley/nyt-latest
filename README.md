@@ -1,3 +1,7 @@
+**Jamaal Bowman Lands Endorsement From Elizabeth Warren**\
+`Locked in a hotly contested primary against George Latimer, Mr. Bowman got a lifeline from Ms. Warren, a progressive senator from Massachusetts.`\
+https://nytimes.com/2024/06/06/us/politics/jamaal-bowman-elizabeth-warren.html
+
 **When Will the Heat End? Western U.S. Braces for Peak Temperatures.**\
 `Nearly 19 million people across the Southwest were under an excessive heat warning Thursday, when several cities were expected to tie or even break heat records.`\
 https://nytimes.com/2024/06/06/weather/heat-wave-forecast-california-nevada-arizona.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/podcasts/trump-georgia-gaza.html
 **At 45, He Vies With Women Half His Age, Seeking an Olympic First**\
 `If Bill May makes the U.S. Olympic team, he will become the first man ever to compete in artistic swimming, formerly known as synchronized swimming, at the Games.`\
 https://nytimes.com/2024/06/06/us/synchronized-swimming-olympics.html
-
-**The Connections Companion No. 362, June 7, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/06/06/crosswords/connections-companion-362.html
 
