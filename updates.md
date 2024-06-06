@@ -1,3 +1,7 @@
+**Hochul’s Payroll Tax Is No Substitute for Congestion Pricing**\
+`New York lawmakers should stick to their promise and refuse the governor’s demand.`\
+https://nytimes.com/live/2024/06/04/opinion/thepoint/hochul-congestion-pricing-tax
+
 **One trial down. But will there be others?**\
 `We catch up on the state of Trump’s three other criminal cases.`\
 https://nytimes.com/2024/06/06/us/politics/trump-trial-next-cases.html

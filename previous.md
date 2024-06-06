@@ -1,3 +1,7 @@
+**Hochul’s Payroll Tax Is No Substitute for Congestion Pricing**\
+`New York lawmakers should stick to their promise and refuse the governor’s demand.`\
+https://nytimes.com/live/2024/06/04/opinion/thepoint/hochul-congestion-pricing-tax
+
 **One trial down. But will there be others?**\
 `We catch up on the state of Trump’s three other criminal cases.`\
 https://nytimes.com/2024/06/06/us/politics/trump-trial-next-cases.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/opinion/new-york-traffic-congestion-pricing.html
 **From Field to Feast: At These Venues, What You Eat Is Grown on Site**\
 `The farm-to-table concept has been around for a while, but some couples expect more than simply fresh cuisine at their wedding. They want to be fully immersed in the farm experience.`\
 https://nytimes.com/2024/06/06/style/from-field-to-feast-at-these-venues-what-you-eat-is-grown-on-site.html
-
-**Former N.J. Attorney General Takes the Stand in Menendez Bribery Trial**\
-`Prosecutors say Senator Robert Menendez contacted Gurbir S. Grewal in an effort to quash an insurance fraud investigation on behalf of an ally.`\
-https://nytimes.com/2024/06/06/nyregion/gurbir-grewal-robert-menendez-bribery-trial.html
 
