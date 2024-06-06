@@ -1,3 +1,7 @@
+**World War II Veteran Dies at 102 While Traveling to D-Day Event in France**\
+`Robert Persichitti witnessed the raising of the U.S. flag at Iwo Jima. He died at a hospital in Germany.`\
+https://nytimes.com/2024/06/05/us/wwii-veteran-dies-dday-event.html
+
 **Kennedy Calls for Secret Service Detail on Anniversary of Father’s Killing**\
 `Robert F. Kennedy Jr., the independent presidential candidate, criticized the Biden administration for denying him Secret Service protection.`\
 https://nytimes.com/2024/06/05/us/politics/rfk-jr-secret-service.html
