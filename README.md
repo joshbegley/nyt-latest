@@ -1,3 +1,7 @@
+**Johnson Names Hard-Right Trump Allies to Intelligence Panel, Prompting Concerns**\
+`Both Representatives Scott Perry of Pennsylvania and Ronny Jackson of Texas are close allies of the former president who have faced legal and ethical issues.`\
+https://nytimes.com/2024/06/06/us/politics/perry-jackson-house-intelligence.html
+
 **30 Shows to Watch This Summer**\
 `Returning favorites include “The Bear,” “House of the Dragon” and “Only Murders in the Building.” Among the new arrivals? Jake Gyllenhaal and Natalie Portman.`\
 https://nytimes.com/2024/06/06/arts/television/summer-tv-premieres-house-of-the-dragon-the-bear.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/us/politics/steve-bannon-surrender.html
 **Donald Trump, Crime and Punishment**\
 `Readers discuss various options for sentencing the former president. Also: The congestion-pricing reversal; immigration policy; fossil-free insurance.`\
 https://nytimes.com/2024/06/06/opinion/donald-trump-sentencing.html
-
-**SpaceX’s Starship Rocket Completes First Return From Space**\
-`Elon Musk’s giant rocket, which launched from Starbase in Boca Chica, Texas, survived re-entry on its fourth test flight.`\
-https://nytimes.com/video/science/space/100000009507441/spacex-starship-test-flight.html
 
