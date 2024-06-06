@@ -1,3 +1,7 @@
+**Is This the End for Mandatory D.E.I. Statements?**\
+`Harvard and M.I.T. no longer require applicants for teaching jobs to explain how they would serve underrepresented groups. Other schools may follow.`\
+https://nytimes.com/2024/06/06/us/politics/dei-statements-harvard-massachusetts-institute-of-technology.html
+
 **Crucial Witness in Hunter Biden Trial Has Long History With President’s Family**\
 `Hallie Biden, Hunter Biden’s onetime girlfriend and the widow of his brother, Beau, is likely to offer the most complete account of actions laid out in the indictment against him.`\
 https://nytimes.com/2024/06/06/us/politics/hallie-biden-hunter-gun-trial-testimony.html

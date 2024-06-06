@@ -1,3 +1,7 @@
+**Is This the End for Mandatory D.E.I. Statements?**\
+`Harvard and M.I.T. no longer require applicants for teaching jobs to explain how they would serve underrepresented groups. Other schools may follow.`\
+https://nytimes.com/2024/06/06/us/politics/dei-statements-harvard-massachusetts-institute-of-technology.html
+
 **Crucial Witness in Hunter Biden Trial Has Long History With President’s Family**\
 `Hallie Biden, Hunter Biden’s onetime girlfriend and the widow of his brother, Beau, is likely to offer the most complete account of actions laid out in the indictment against him.`\
 https://nytimes.com/2024/06/06/us/politics/hallie-biden-hunter-gun-trial-testimony.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/business/european-central-bank-interest-rates.htm
 **Word of the Day: garner**\
 `This word has appeared in 314 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/06/06/learning/word-of-the-day-garner.html
-
-**Regulators Take on the Giants of A.I.**\
-`The Federal Trade Commission and Justice Department are set to proceed with investigations into the dominance of Nvidia, Microsoft and OpenAI.`\
-https://nytimes.com/2024/06/06/business/dealbook/antitrust-justice-ftc-nvidia-microsoft-openai.html
 
