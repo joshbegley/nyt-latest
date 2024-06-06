@@ -1,3 +1,11 @@
+**When Will the Heat End? Western U.S. Braces for Peak Heat.**\
+`Nearly 19 million people across the Southwest were under an excessive heat warning Thursday, when several cities were expected to tie or even break heat records.`\
+https://nytimes.com/2024/06/06/weather/heat-wave-forecast-california-nevada-arizona.html
+
+**Larry Hogan Committed an Unpardonable Republican Sin**\
+`By Michelle Cottle`\
+https://nytimes.com/live/2024/06/04/opinion/thepoint/larry-hogan-republican
+
 **‘Longing’ Review: A Test of Paternity**\
 `Richard Gere plays it way too cool as a man learning about the son he didn’t know he had.`\
 https://nytimes.com/2024/06/06/movies/longing-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/06/us/synchronized-swimming-olympics.html
 **The Connections Companion No. 362, June 7, 2024**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/06/06/crosswords/connections-companion-362.html
-
-**Wordle Review No. 1,084, June 7, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/06/06/crosswords/wordle-review-1084.html
-
-**The Lost Art of the Negative**\
-`Film cameras are seeing another renaissance. But some new photographers are leaving something behind: the tea-colored originals that determine the life of pictures.`\
-https://nytimes.com/2024/06/06/arts/film-photography-negatives.html
 

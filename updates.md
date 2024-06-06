@@ -1,3 +1,11 @@
+**When Will the Heat End? Western U.S. Braces for Peak Heat.**\
+`Nearly 19 million people across the Southwest were under an excessive heat warning Thursday, when several cities were expected to tie or even break heat records.`\
+https://nytimes.com/2024/06/06/weather/heat-wave-forecast-california-nevada-arizona.html
+
+**Larry Hogan Committed an Unpardonable Republican Sin**\
+`By Michelle Cottle`\
+https://nytimes.com/live/2024/06/04/opinion/thepoint/larry-hogan-republican
+
 **‘Longing’ Review: A Test of Paternity**\
 `Richard Gere plays it way too cool as a man learning about the son he didn’t know he had.`\
 https://nytimes.com/2024/06/06/movies/longing-review.html
