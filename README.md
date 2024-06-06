@@ -24,7 +24,7 @@ https://nytimes.com/2024/06/06/podcasts/the-daily/world-health-assembly-pandemic
 
 **Tim Scott Makes New Push to Woo Black and Hispanic Republicans**\
 `The $14 million effort by Mr. Scott’s super PAC comes as the South Carolina senator is said to be high on Donald Trump’s list of potential running mates.`\
-https://nytimes.com/2024/06/06/us/politics/tim-scott-makes-new-push-to-woo-black-and-hispanic-republicans.html
+https://nytimes.com/2024/06/06/us/politics/tim-scott-black-hispanic-republicans-trump.html
 
 **Court Delays Trump’s Georgia Case, and U.N. Warns of ‘Climate Hell’**\
 `Plus, inside a base where Israel has detained Gazans.`\
