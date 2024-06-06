@@ -1,3 +1,5 @@
+**Can a Sound Bath Wash Away Your Worries? **\
+
 **Mitsuko Uchida Says What She Thinks**\
 `The star pianist sat for a candid, occasionally tense interview in which she discussed creativity, the pandemic and why she doesn’t conduct Beethoven.`\
 https://nytimes.com/2024/06/06/arts/music/mitsuko-uchida-ojai-festival.html
