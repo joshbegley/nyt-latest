@@ -1,3 +1,11 @@
+**Mike Lynch, U.K. Tech Mogul, Is Acquitted of Fraud**\
+`Mr. Lynch, who was accused of defrauding Hewlett-Packard after it paid $11 billion for his software company, spent a decade working to clear his name.`\
+https://nytimes.com/2024/06/06/business/dealbook/mike-lynch-autonomy-fraud-hp.html
+
+**In Normandy, Biden Linked the War in Ukraine With D-Day**\
+`Also, an Israeli strike killed dozens in central Gaza. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/06/06/briefing/biden-speech-d-day-israel-gaza-strike.html
+
 **Does Gov. Hochul, a Buffalo Native, Really Get New York City?**\
 `Governor Hochul is more of an outsider to New York City than most of her predecessors. Critics say that put her at a disadvantage in dealing with congestion pricing.`\
 https://nytimes.com/2024/06/06/nyregion/hochul-congestion-pricing.html
