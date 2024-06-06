@@ -1,3 +1,11 @@
+**California Supreme Court Allows U.C. Berkeley to Build at People’s Park**\
+`The state’s highest court rejected arguments that a proposed student housing project would violate laws on noise pollution.`\
+https://nytimes.com/2024/06/06/us/california-berkeley-peoples-park.html
+
+**Video analysis shows Israel’s strike used a bomb that appeared to be U.S.-made.**\
+`A review by The New York Times found that munitions debris`\
+https://nytimes.com/live/2024/06/06/world/israel-gaza-war-hamas/israel-gaza-strike-us-bomb
+
 **Hochul’s Payroll Tax Is No Substitute for Congestion Pricing**\
 `New York lawmakers should stick to their promise and refuse the governor’s demand.`\
 https://nytimes.com/live/2024/06/04/opinion/thepoint/hochul-congestion-pricing-tax

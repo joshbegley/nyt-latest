@@ -1,3 +1,7 @@
+**California Supreme Court Allows U.C. Berkeley to Build at People’s Park**\
+`The state’s highest court rejected arguments that a proposed student housing project would violate laws on noise pollution.`\
+https://nytimes.com/2024/06/06/us/california-berkeley-peoples-park.html
+
 **Hochul’s Payroll Tax Is No Substitute for Congestion Pricing**\
 `New York lawmakers should stick to their promise and refuse the governor’s demand.`\
 https://nytimes.com/live/2024/06/04/opinion/thepoint/hochul-congestion-pricing-tax
@@ -15,8 +19,8 @@ https://nytimes.com/2024/06/06/business/media/washington-post-will-lewis-npr.htm
 https://nytimes.com/2024/06/06/business/media/td-allman-dead.html
 
 **Video analysis shows Israel’s strike used a bomb that appeared to be U.S.-made.**\
-`By Christiaan Triebert and Neil Collier`\
-https://nytimes.com/live/2024/06/06/world/israel-gaza-war-hamas/video-shows-israel-used-a-us-made-bomb-in-a-deadly-strike-on-a-shelter-for-displaced-palestinians
+`A review by The New York Times found that munitions debris`\
+https://nytimes.com/live/2024/06/06/world/israel-gaza-war-hamas/israel-gaza-strike-us-bomb
 
 **Bertien van Manen’s Glimpses of the World**\
 `Using point-and-shoot cameras, she traveled to China, Russia and the coal mines of Kentucky to capture everyday life.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/us/thomas-creech-idaho-botched-execution.html
 **Kathy Hochul Just Upended a Lot More Than Congestion Pricing**\
 `A congestion pricing plan years in the making was suddenly postponed, threatening mass transit and ensuring continued traffic nightmares.`\
 https://nytimes.com/2024/06/06/opinion/new-york-traffic-congestion-pricing.html
-
-**From Field to Feast: At These Venues, What You Eat Is Grown on Site**\
-`The farm-to-table concept has been around for a while, but some couples expect more than simply fresh cuisine at their wedding. They want to be fully immersed in the farm experience.`\
-https://nytimes.com/2024/06/06/style/from-field-to-feast-at-these-venues-what-you-eat-is-grown-on-site.html
 
