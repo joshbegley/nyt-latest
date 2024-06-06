@@ -1,3 +1,7 @@
+**U.S. Adds Tariffs to Shield Struggling Solar Industry**\
+`American solar manufacturers are pushing for further protections for their new factories against cheaply priced imports from China.`\
+https://nytimes.com/2024/06/06/business/economy/tariffs-solar-industry-china.html
+
 **In Paris, Using Dance to Uncover Hidden History**\
 `Benjamin Millepied, an organizer of La Ville Dansée — a daylong event in Paris and its environs — wants “to tell the invisible stories of the city.”`\
 https://nytimes.com/2024/06/06/arts/dance/ville-dansee-benjamin-millepied-paris.html
