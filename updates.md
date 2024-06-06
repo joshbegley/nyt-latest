@@ -1,3 +1,15 @@
+**A Beginners Guide to Male Hair Loss**\
+`Male-pattern baldness hits half of men by age 50. Here’s what to know about treatment and prevention.``\
+https://nytimes.com/2024/06/06/well/live/hair-loss-treatment-men.html
+
+**Did a Group of Irish Tweens Write the Song of Summer?**\
+`Think you can stop what they do? I doubt it.`\
+https://nytimes.com/2024/06/06/style/irish-kids-spark-rap.html
+
+**Pesto Pasta Bubbles!**\
+`That is, pearl couscous risotto with pesto, tomatoes and mozzarella.`\
+https://nytimes.com/2024/06/06/dining/pesto-pasta-bubbles.html
+
 **Crucial Witness in Hunter Biden Trial Offers Detailed Portrait of His Drug Use**\
 `Hallie Biden, Mr. Biden’s ex-girlfriend and the widow of his brother, Beau, described his self-destructive behavior around the time he applied for a gun in 2018.`\
 https://nytimes.com/2024/06/06/us/politics/hallie-biden-hunter-gun-trial-testimony.html
