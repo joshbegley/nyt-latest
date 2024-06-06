@@ -1,3 +1,7 @@
+**Kathy Hochul Just Upended a Lot More Than Congestion Pricing**\
+`A congestion pricing plan years in the making was suddenly postponed, threatening mass transit and ensuring continued traffic nightmares.`\
+https://nytimes.com/2024/06/06/opinion/new-york-traffic-congestion-pricing.html
+
 **From Field to Feast: At These Venues, What You Eat Is Grown on Site**\
 `The farm-to-table concept has been around for a while, but some couples expect more than simply fresh cuisine at their wedding. They want to be fully immersed in the farm experience.`\
 https://nytimes.com/2024/06/06/style/from-field-to-feast-at-these-venues-what-you-eat-is-grown-on-site.html
