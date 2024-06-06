@@ -1,3 +1,11 @@
+**T.D. Allman, Assertive Globe-Trotting Journalist, Dies at 79**\
+`Reporting from more than 80 countries, he combined close observation with sharp conclusions that pointed the finger at misdeeds or abuse of power. He was an author as well.`\
+https://nytimes.com/2024/06/06/business/media/td-allman-dead.html
+
+**Video shows Israel used a U.S.-made bomb in a deadly strike on a shelter for displaced Palestinians.**\
+`By Christiaan Triebert and Neil Collier`\
+https://nytimes.com/live/2024/06/06/world/israel-gaza-war-hamas/video-shows-israel-used-a-us-made-bomb-in-a-deadly-strike-on-a-shelter-for-displaced-palestinians
+
 **Bertien van Manen’s Glimpses of the World**\
 `Using point-and-shoot cameras, she traveled to China, Russia and the coal mines of Kentucky to capture everyday life.`\
 https://nytimes.com/2024/06/06/opinion/bertien-van-manens-glimpses-of-the-world.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/06/us/penn-ban-encampments-campus-protests-gaza.html
 **Airstrike Kills Dozens at Former School Sheltering Palestinians**\
 `An Israeli airstrike hit a United Nations school complex that served as a shelter for thousands of displaced Palestinians in central Gaza.`\
 https://nytimes.com/video/world/middleeast/100000009507543/unrwa-school-israeli-strike.html
-
-**Is the Fed Behind the Curve?**\
-`The case for rate cuts in America and Europe is almost identical.`\
-https://nytimes.com/live/2024/06/04/opinion/thepoint/ecb-rate-cut
-
-**Johnson Names Hard-Right Trump Allies to Intelligence Panel, Prompting Concerns**\
-`Both Representatives Scott Perry of Pennsylvania and Ronny Jackson of Texas are close allies of the former president who have faced legal and ethical issues.`\
-https://nytimes.com/2024/06/06/us/politics/perry-jackson-house-intelligence.html
 
