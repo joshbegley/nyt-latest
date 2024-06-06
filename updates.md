@@ -1,3 +1,7 @@
+**Papua New Guinea to End Search for Landslide Victims**\
+`The death toll remained unclear weeks after the tragedy, but there are signs the number of victims may have been much lower than previously thought.`\
+https://nytimes.com/2024/06/06/world/asia/papua-new-guinea-to-end-search-for-landslide-victims.html
+
 **Train Crash in Czech Republic Kills 4 and Injures More Than 20**\
 `The passenger train was traveling overnight when it hit a freight train.`\
 https://nytimes.com/2024/06/06/world/europe/czech-train-crash.html
