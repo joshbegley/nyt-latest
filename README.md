@@ -1,3 +1,7 @@
+**Stephen Colbert Finds the Focus on Biden’s Age to Be Old News**\
+`“You heard that right, ladies and gentlemen: Joe Biden is old,” Colbert said of a Wall Street Journal article on the president’s aptitude.`\
+https://nytimes.com/2024/06/06/arts/television/stephen-colbert-biden-age.html
+
 **Train Crash in Czech Republic Kills 4, Injures More Than 20**\
 `The passenger train was traveling overnight when it hit a freight train.`\
 https://nytimes.com/2024/06/06/world/europe/czech-train-crash.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/style/a-fashion-lioness-in-winter.html
 **D-Day at 80**\
 `This anniversary of World War II’s pivotal battle has a somber tone, as the event disappears from living memory and extremism again threatens Europe.`\
 https://nytimes.com/2024/06/06/world/europe/dday-80th-anniversary-veterans-remember.html
-
-**Inside the Base Where Israel Has Detained Thousands of Gazans**\
-`Since Israel invaded Gaza, the Sde Teiman military base has filled with blindfolded, handcuffed detainees, held without charge or legal representation.`\
-https://nytimes.com/2024/06/06/world/middleeast/israel-gaza-detention-base.html
 
