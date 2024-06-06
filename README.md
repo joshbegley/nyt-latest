@@ -22,9 +22,9 @@ https://nytimes.com/2024/06/06/business/media/washington-post-will-lewis-npr.htm
 `Reporting from more than 80 countries, he combined close observation with sharp conclusions that pointed the finger at misdeeds or abuse of power. He was an author as well.`\
 https://nytimes.com/2024/06/06/business/media/td-allman-dead.html
 
-**Video analysis shows Israel’s strike used a bomb that appeared to be U.S.-made.**\
-`A review by The New York Times found that munitions debris`\
-https://nytimes.com/live/2024/06/06/world/israel-gaza-war-hamas/israel-gaza-strike-us-bomb
+**Video Analysis Shows Israeli Strike Used Bomb That Appeared to Be U.S.-Made**\
+`A video of munitions debris filmed at the school complex in central Gaza where thousands of Palestinians were sheltering showed remnants of a GBU-39, a bomb that is designed and manufactured by Boeing.`\
+https://nytimes.com/2024/06/06/world/middleeast/israel-gaza-strike-us-bomb.html
 
 **Bertien van Manen’s Glimpses of the World**\
 `Using point-and-shoot cameras, she traveled to China, Russia and the coal mines of Kentucky to capture everyday life.`\
