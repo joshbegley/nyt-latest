@@ -1,3 +1,7 @@
+**MAGA Turns Against the Constitution**\
+`Not everything is in crisis.`\
+https://nytimes.com/2024/06/06/opinion/maga-constitution-trump.html
+
 **Friday Briefing: Narendra Modi’s India**\
 `We explain what to expect from his third term.`\
 https://nytimes.com/2024/06/06/world/asia/india-dday-strike-gaza-swiatek-asia.html

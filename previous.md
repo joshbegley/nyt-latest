@@ -1,3 +1,7 @@
+**MAGA Turns Against the Constitution**\
+`Not everything is in crisis.`\
+https://nytimes.com/2024/06/06/opinion/maga-constitution-trump.html
+
 **Friday Briefing: Narendra Modi’s India**\
 `We explain what to expect from his third term.`\
 https://nytimes.com/2024/06/06/world/asia/india-dday-strike-gaza-swiatek-asia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/science/boeing-starliner-space-station-docking.ht
 **The N-Word Would Work Differently for Trump**\
 `Black people already know who he is and what they think of him.`\
 https://nytimes.com/2024/06/06/opinion/n-word-trump.html
-
-**California Supreme Court Allows U.C. Berkeley to Build at People’s Park**\
-`The state’s highest court rejected arguments that a proposed student housing project would violate laws on noise pollution.`\
-https://nytimes.com/2024/06/06/us/california-berkeley-peoples-park.html
 
