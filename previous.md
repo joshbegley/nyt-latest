@@ -18,4 +18,4 @@ https://nytimes.com/2024/06/06/nyregion/new-jersey-open-records-phil-murphy.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/06/06/crosswords/spelling-bee-forum.html
 
-**C.I.A. director holds talks in Qatar, and other news.**\
+**The C.I.A. director holds talks in Qatar, and other news.**\

@@ -1,3 +1,5 @@
+**The C.I.A. director holds talks in Qatar, and other news.**\
+
 **Congestion Pricing Delay Leaves the M.T.A.’s Budget in Limbo**\
 `The M.T.A. had planned on $15 billion in financing backed by the tolls of congestion pricing for a number of crucial upgrades and repairs to the aging transit system.`\
 https://nytimes.com/2024/06/06/nyregion/congestion-pricing-mta-budget-nyc.html
