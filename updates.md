@@ -1,3 +1,7 @@
+**The N-Word Would Work Differently for Trump**\
+`Black people already know who he is and what they think of him.`\
+https://nytimes.com/2024/06/06/opinion/n-word-trump.html
+
 **California Supreme Court Allows U.C. Berkeley to Build at People’s Park**\
 `The state’s highest court rejected arguments that a proposed student housing project would violate laws on noise pollution.`\
 https://nytimes.com/2024/06/06/us/california-berkeley-peoples-park.html

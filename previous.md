@@ -1,3 +1,7 @@
+**The N-Word Would Work Differently for Trump**\
+`Black people already know who he is and what they think of him.`\
+https://nytimes.com/2024/06/06/opinion/n-word-trump.html
+
 **California Supreme Court Allows U.C. Berkeley to Build at People’s Park**\
 `The state’s highest court rejected arguments that a proposed student housing project would violate laws on noise pollution.`\
 https://nytimes.com/2024/06/06/us/california-berkeley-peoples-park.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/climate/global-elections-climate-change-policy.ht
 **A Condemned Killer Thought, ‘This Is My Day to Die.’ Then It Wasn’t.**\
 `At 73, Thomas Creech is one of the few people to have survived a botched execution. Now he waits to see if the state will try again.`\
 https://nytimes.com/2024/06/06/us/thomas-creech-idaho-botched-execution.html
-
-**Kathy Hochul Just Upended a Lot More Than Congestion Pricing**\
-`A congestion pricing plan years in the making was suddenly postponed, threatening mass transit and ensuring continued traffic nightmares.`\
-https://nytimes.com/2024/06/06/opinion/new-york-traffic-congestion-pricing.html
 
