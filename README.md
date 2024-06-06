@@ -1,3 +1,7 @@
+**Samsung Faces First Strike in Its 86 Years of Business**\
+`The South Korean tech giant is at odds with some of its employees as it is trying to reassure investors that its memory chip business can meet demand.`\
+https://nytimes.com/2024/06/06/business/samsung-first-strike-chips.html
+
 **Jill Biden, a Fierce Protector of Hunter Biden, Leaves France for Wilmington**\
 `The first lady’s departure from a high-profile foreign trip was a dramatic illustration of the Biden family’s personal priorities. She is expected to return to France on Saturday.`\
 https://nytimes.com/2024/06/06/us/politics/hunter-biden-jill-biden-gun-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/06/world/israel-gaza-war-hamas/the-us-will-wait
 **U.S. Official Responds to Israeli Strike on a U.N. School in Gaza**\
 `Matthew Miller, a State Department spokesman, said the United States was waiting on more information about the strike in central Gaza before considering any calls for further action.`\
 https://nytimes.com/video/world/middleeast/100000009509017/matt-miller-un-school-airstrike.html
-
-**Eight Legs and the Size of a Hand: All About the Joro Spider**\
-`Scientists expect the large, brightly colored spider to arrive in the Northeast sometime this year.`\
-https://nytimes.com/2024/06/06/nyregion/joro-spiders-invasion.html
 
