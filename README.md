@@ -1,3 +1,11 @@
+**Word of the Day: garner**\
+`This word has appeared in 314 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/06/06/learning/word-of-the-day-garner.html
+
+**Regulators Take on the Giants of A.I.**\
+`The Federal Trade Commission and Justice Department are set to proceed with investigations into the dominance of Nvidia, Microsoft and OpenAI.`\
+https://nytimes.com/2024/06/06/business/dealbook/antitrust-justice-ftc-nvidia-microsoft-openai.html
+
 **Jamaal Bowman Lands Endorsement From Elizabeth Warren**\
 `Locked in a hotly contested primary against George Latimer, Mr. Bowman got a lifeline from Ms. Warren, a progressive senator from Massachusetts.`\
 https://nytimes.com/2024/06/06/us/politics/jamaal-bowman-elizabeth-warren.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/06/podcasts/the-daily/world-health-assembly-pandemic
 **Tim Scott Makes New Push to Woo Black and Hispanic Republicans**\
 `The $14 million effort by Mr. Scott’s super PAC comes as the South Carolina senator is said to be high on Donald Trump’s list of potential running mates.`\
 https://nytimes.com/2024/06/06/us/politics/tim-scott-black-hispanic-republicans-trump.html
-
-**Court Delays Trump’s Georgia Case, and U.N. Warns of ‘Climate Hell’**\
-`Plus, inside a base where Israel has detained Gazans.`\
-https://nytimes.com/2024/06/06/podcasts/trump-georgia-gaza.html
-
-**At 45, He Vies With Women Half His Age, Seeking an Olympic First**\
-`If Bill May makes the U.S. Olympic team, he will become the first man ever to compete in artistic swimming, formerly known as synchronized swimming, at the Games.`\
-https://nytimes.com/2024/06/06/us/synchronized-swimming-olympics.html
 
