@@ -1,3 +1,11 @@
+**Forty Years Later, Biden Seeks to Echo Reagan’s Legacy of American Leadership**\
+`At Pointe du Hoc in Normandy, President Biden plans to follow one of the former president’s most iconic speeches with his own testimonial to democracy and the need to resist isolationism.`\
+https://nytimes.com/2024/06/06/us/politics/biden-reagan-normandy-dday-speech.html
+
+**Late-Night Dining Is Back. Sort Of.**\
+`By Nikita Richardson`\
+https://nytimes.com/2024/06/06/dining/late-night-dining-is-back-sort-of.html
+
 **Boeing’s Starliner Overcomes Malfunctioning Thrusters to Dock at Space Station**\
 `Two NASA astronauts, Butch Wilmore and Suni Williams, opened the hatch of the spacecraft and boarded the outpost in orbit.`\
 https://nytimes.com/2024/06/06/science/boeing-starliner-space-station-docking.html
