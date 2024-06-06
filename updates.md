@@ -1,3 +1,7 @@
+**U.S. Clears Way for Antitrust Inquiries of Nvidia, Microsoft and OpenAI**\
+`The Justice Department and the Federal Trade Commission agreed to divide responsibility for investigating three major players in the artificial intelligence industry.`\
+https://nytimes.com/2024/06/05/technology/nvidia-microsoft-openai-antitrust-doj-ftc.html
+
 **World War II Veteran Dies at 102 While Traveling to D-Day Event in France**\
 `Robert Persichitti witnessed the raising of the U.S. flag at Iwo Jima. He died at a hospital in Germany.`\
 https://nytimes.com/2024/06/05/us/wwii-veteran-dies-dday-event.html
