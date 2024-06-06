@@ -1,3 +1,7 @@
+**Hunter Biden’s Addiction Upended His Family. Has Your Family Had Similar Woes?**\
+`His marriage fell apart as his addiction to crack cocaine deepened. The Times would like to speak with families shaken by a loved one’s drug addiction.`\
+https://nytimes.com/2024/06/06/health/hunter-biden-drug-addiction.html
+
 **Mike Lynch, U.K. Tech Mogul, Is Acquitted of Fraud**\
 `Mr. Lynch, who was accused of defrauding Hewlett-Packard after it paid $11 billion for his software company, spent a decade working to clear his name.`\
 https://nytimes.com/2024/06/06/business/dealbook/mike-lynch-autonomy-fraud-hp.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/realestate/oklahoma-tallest-building.html
 **What to Know About Biden’s Executive Order on Immigration**\
 `The president issued an executive order that essentially blocks asylum claims at the southern border, a major shift in how the United States has handled claims for protection.`\
 https://nytimes.com/video/us/politics/100000009508652/what-to-know-about-bidens-executive-order-on-immigration.html
-
-**MAGA Turns Against the Constitution**\
-`Not everything is in crisis.`\
-https://nytimes.com/2024/06/06/opinion/maga-constitution-trump.html
 
