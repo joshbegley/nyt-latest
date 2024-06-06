@@ -1,3 +1,11 @@
+**Former Wisconsin Prison Warden and Employees Charged in Inmate Deaths**\
+`Inmates had complained about a monthslong lockdown that cut them off from family members and timely medical care.`\
+https://nytimes.com/2024/06/05/us/waupun-prison-warden-deaths.html
+
+**Restructuring Leads to Layoffs at Little, Brown**\
+`The shake up at the Hachette Book Group imprint comes at a time when publishers are feeling pressured by sluggish print sales and rising supply chain costs.`\
+https://nytimes.com/2024/06/05/books/hachette-layoffs.html
+
 **Storm Damages Homes in Maryland Amid Tornado Warnings**\
 `A handful of injuries were reported in Gaithersburg, a suburb of the nation’s capital.`\
 https://nytimes.com/2024/06/05/us/tornado-maryland-washington-dc.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/05/business/media/washington-post-buzbee-lewis.html
 **N.Y.P.D. Moves to Revoke Trump’s License to Carry a Gun**\
 `Former President Donald J. Trump had a concealed carry license and had three pistols.`\
 https://nytimes.com/2024/06/05/nyregion/trump-gun-license-nypd.html
-
-**A New Hurdle for Asylum Seekers: 4 Hours to Find a Lawyer**\
-`The new time constraint comes after President Biden announced a near-total ban on asylum on the southern border.`\
-https://nytimes.com/2024/06/05/us/politics/biden-asylum-restrictions-laywer.html
-
-**The Beauty of Embracing Aging**\
-`I remind myself to relish every summer day.`\
-https://nytimes.com/2024/06/05/opinion/aging-older-family.html
 

@@ -1,3 +1,11 @@
+**Former Wisconsin Prison Warden and Employees Charged in Inmate Deaths**\
+`Inmates had complained about a monthslong lockdown that cut them off from family members and timely medical care.`\
+https://nytimes.com/2024/06/05/us/waupun-prison-warden-deaths.html
+
+**Restructuring Leads to Layoffs at Little, Brown**\
+`The shake up at the Hachette Book Group imprint comes at a time when publishers are feeling pressured by sluggish print sales and rising supply chain costs.`\
+https://nytimes.com/2024/06/05/books/hachette-layoffs.html
+
 **Prosecutors Use Texts to Depict Menendez and His Wife as Collaborators**\
 `Senator Robert Menendez is accused of bribery and corruption. His lawyers have attempted to shift the blame to his wife, Nadine.`\
 https://nytimes.com/2024/06/05/nyregion/robert-menendez-bribery-mercedes.html
