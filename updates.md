@@ -1,3 +1,11 @@
+**Rush-Hour Delays Again Hit New Jersey Transit Commuters**\
+`A track inspection held up travelers for more than an hour, two weeks after a suspension of service stopped all Amtrak trains into New York’s Penn Station.`\
+https://nytimes.com/2024/06/05/nyregion/penn-station-delays-njtransit.html
+
+**Hunter Biden’s Laptop Makes a Brief Appearance at His Trial**\
+`As the prosecutor waved the silver Apple MacBook Pro, the jury gazed at it as if expecting sparks to fly from it.`\
+https://nytimes.com/2024/06/05/us/politics/hunter-biden-trial.html
+
 **New York Is the Toughest Place in the Country to Apply for Asylum**\
 `Tens of thousands of migrants have flocked to New York City in recent years, seeking one of the few legal pathways to permanent residency in the United States.`\
 https://nytimes.com/2024/06/05/nyregion/new-york-asylum.html

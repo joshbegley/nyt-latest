@@ -1,3 +1,11 @@
+**Rush-Hour Delays Again Hit New Jersey Transit Commuters**\
+`A track inspection held up travelers for more than an hour, two weeks after a suspension of service stopped all Amtrak trains into New York’s Penn Station.`\
+https://nytimes.com/2024/06/05/nyregion/penn-station-delays-njtransit.html
+
+**Hunter Biden’s Laptop Makes a Brief Appearance at His Trial**\
+`As the prosecutor waved the silver Apple MacBook Pro, the jury gazed at it as if expecting sparks to fly from it.`\
+https://nytimes.com/2024/06/05/us/politics/hunter-biden-trial.html
+
 **New York Is the Toughest Place in the Country to Apply for Asylum**\
 `Tens of thousands of migrants have flocked to New York City in recent years, seeking one of the few legal pathways to permanent residency in the United States.`\
 https://nytimes.com/2024/06/05/nyregion/new-york-asylum.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/05/us/politics/biden-trump-immigration.html
 **Trump’s Vows to Prosecute Rivals Put Rule of Law on the Ballot**\
 `Donald Trump’s promise to seek retribution challenges long-established norms. The election could hinge in part on what kind of justice system the country believes it has now and wants in the future.`\
 https://nytimes.com/2024/06/05/us/trump-retribution-justice.html
-
-**Republican Leaders Seek to Avenge Trump**\
-`Also, New York’s governor halted its congestion pricing plan. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2024/06/05/briefing/trump-republicans-revenge-new-york-tolls.html
-
-**G.O.P. Blocks Contraception Bill in Senate as Democrats Seek Political Edge**\
-`Democrats scheduled the vote despite Republican opposition, hoping to highlight an issue on which the G.O.P. is at odds with the vast majority of Americans.`\
-https://nytimes.com/2024/06/05/us/politics/contraception-bill-senate-democrats.html
 
