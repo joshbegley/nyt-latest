@@ -1,3 +1,7 @@
+**The U.S. will ‘wait and see’ how Israel details the strike before calling for further action, an official says.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2024/06/06/world/israel-gaza-war-hamas/the-us-will-wait-and-see-how-israel-details-the-strike-before-calling-for-further-action-an-official-says
+
 **U.S. Official Responds to Israeli Strike on a U.N. School in Gaza**\
 `Matthew Miller, a State Department spokesman, said the United States was waiting on more information about the strike in central Gaza before considering any calls for further action.`\
 https://nytimes.com/video/world/middleeast/100000009509017/matt-miller-un-school-airstrike.html

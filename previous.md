@@ -1,3 +1,7 @@
+**The U.S. will ‘wait and see’ how Israel details the strike before calling for further action, an official says.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2024/06/06/world/israel-gaza-war-hamas/the-us-will-wait-and-see-how-israel-details-the-strike-before-calling-for-further-action-an-official-says
+
 **U.S. Official Responds to Israeli Strike on a U.N. School in Gaza**\
 `Matthew Miller, a State Department spokesman, said the United States was waiting on more information about the strike in central Gaza before considering any calls for further action.`\
 https://nytimes.com/video/world/middleeast/100000009509017/matt-miller-un-school-airstrike.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/health/hunter-biden-drug-addiction.html
 **Mike Lynch, U.K. Tech Mogul, Is Acquitted of Fraud**\
 `Mr. Lynch, who was accused of defrauding Hewlett-Packard after it paid $11 billion for his software company, spent a decade working to clear his name.`\
 https://nytimes.com/2024/06/06/business/dealbook/mike-lynch-autonomy-fraud-hp.html
-
-**In Normandy, Biden Linked the War in Ukraine With D-Day**\
-`Also, an Israeli strike killed dozens in central Gaza. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2024/06/06/briefing/biden-speech-d-day-israel-gaza-strike.html
 
