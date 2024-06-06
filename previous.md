@@ -1,5 +1,5 @@
 **Boeing’s Starliner Overcomes Malfunctioning Thrusters to Dock at Space Station**\
-`Two NASA astronauts, Butch Wilmore and Suni Williams, will soon open the hatch of the spacecraft and board the outpost in orbit.`\
+`Two NASA astronauts, Butch Wilmore and Suni Williams,opened the hatch of the spacecraft and boarded the outpost in orbit.`\
 https://nytimes.com/2024/06/06/science/boeing-starliner-space-station-docking.html
 
 **The N-Word Would Work Differently for Trump**\
