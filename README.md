@@ -1,3 +1,7 @@
+**The Truth About Prebiotic Sodas**\
+`Are they actually good for your gut health?`\
+https://nytimes.com/2024/06/06/well/prebiotic-soda-poppi-olipop.html
+
 **The Best Berry Cakes Start With These Two Tips**\
 `Some berries are better suited to certain desserts. Here’s how to make sure your seasonal fruit shines bright.`\
 https://nytimes.com/2024/06/06/dining/best-berry-cake.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/us/politics/biden-inflation-greedflation-economy.
 **Gilgo Beach Serial Killing Suspect Is Charged With 2 More Murders**\
 `Rex Heuermann, who has been accused of killing four women, has been charged with the murders of two more.`\
 https://nytimes.com/2024/06/06/nyregion/gilgo-beach-rex-heuermann.html
-
-**Have Wine for Breakfast, Put On a 51-Pound Suit and Get to the Battlefield**\
-`Greek soldiers recreated ancient life conditions in a study to determine if the Dendra panoply, armor used by the Mycenaeans some 3,500 years ago, could stand up to combat. Study authors found it did.`\
-https://nytimes.com/2024/06/06/science/ancient-greek-armor-marines-study.html
 
