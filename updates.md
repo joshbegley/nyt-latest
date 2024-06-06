@@ -1,3 +1,7 @@
+**Friday Briefing: Narendra Modi’s India**\
+`We explain what to expect from his third term.`\
+https://nytimes.com/2024/06/06/world/asia/india-dday-strike-gaza-swiatek-asia.html
+
 **Mexico’s Presidents Get Only One Term. Is That a Good Thing?**\
 `Examining the rare one-term presidential limit.`\
 https://nytimes.com/2024/06/06/world/europe/interpreter-mexico-presidents.html
