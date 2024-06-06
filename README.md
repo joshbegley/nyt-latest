@@ -1,3 +1,7 @@
+**Woman Who Says She Inspired ‘Baby Reindeer’ Character Sues Netflix**\
+`Fiona Harvey claims that the series, which has been promoted as based on a true story, defamed her by basing the character Martha, a convicted stalker, on her.`\
+https://nytimes.com/2024/06/06/arts/baby-reindeer-lawsuit.html
+
 **Harry Roland, ‘The World Trade Center Man,’ Dies at 70**\
 `Within months of the terrorist attacks of Sept. 11, 2001, and continuing almost until his death, he was a street orator hollering about that day’s loss and destruction.`\
 https://nytimes.com/2024/06/06/nyregion/harry-roland-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/nyregion/hochul-congestion-pricing.html
 **Israeli Strike Kills Dozens at Civilian Shelter in Gaza**\
 `The Israeli military said it had been targeting militants who were hiding in the complex in an effort to evade attack. The former U.N. school was housing 6,000 displaced Gazans.`\
 https://nytimes.com/2024/06/06/world/middleeast/israel-gaza-school-killing.html
-
-**Kennedy’s Campaign Is Accused of Lying About His New York Residency**\
-`A group aligned with President Biden has challenged his ballot petition with New York State officials, arguing he should not be on the fall ballot.`\
-https://nytimes.com/2024/06/06/us/politics/rfk-jr-ny-residency-challenged.html
 
