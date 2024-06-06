@@ -1,3 +1,7 @@
+**Europe Is Coming Alive**\
+`The European Union’s democratic deficit is slowly beginning to evaporate.`\
+https://nytimes.com/2024/06/06/opinion/elections-europe-eu.html
+
 **Thursday Briefing**\
 `War in Sudan caused the world’s largest displacement crisis.`\
 https://nytimes.com/2024/06/06/briefing/sudan-war-israel-influence.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/technology/bnn-breaking-ai-generated-news.html
 **Guess Who’s Angry at China’s Real Estate Bailout: Homeowners**\
 `China has relaxed or eliminated measures on home buying to spur new purchases. This has made a vocal constituency of existing homeowners very unhappy.`\
 https://nytimes.com/2024/06/06/business/china-real-estate-restrictions.html
-
-**Corrections: June 6, 2024**\
-`Corrections that appeared in print on Thursday, June 6, 2024.`\
-https://nytimes.com/2024/06/05/pageoneplus/corrections-june-6-2024.html
 

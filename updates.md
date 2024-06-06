@@ -1,3 +1,7 @@
+**Europe Is Coming Alive**\
+`The European Union’s democratic deficit is slowly beginning to evaporate.`\
+https://nytimes.com/2024/06/06/opinion/elections-europe-eu.html
+
 **Thursday Briefing**\
 `War in Sudan caused the world’s largest displacement crisis.`\
 https://nytimes.com/2024/06/06/briefing/sudan-war-israel-influence.html
