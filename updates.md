@@ -1,3 +1,11 @@
+**N.A.A.C.P. Calls on Biden to Halt Arms Deliveries to Israel**\
+`The announcement adds to the pressure the president is facing on the issue from leaders in the Black community, a group that is key to his re-election.`\
+https://nytimes.com/2024/06/06/us/politics/naacp-biden-arms-deliveries-israel.html
+
+**7 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/06/06/books/review/7-new-books-we-recommend-this-week.html
+
 **Hunter Biden’s Addiction Upended His Family. Has Your Family Had Similar Woes?**\
 `His marriage fell apart as his addiction to crack cocaine deepened. The Times would like to speak with families shaken by a loved one’s drug addiction.`\
 https://nytimes.com/2024/06/06/health/hunter-biden-drug-addiction.html

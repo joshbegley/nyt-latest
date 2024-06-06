@@ -1,3 +1,11 @@
+**N.A.A.C.P. Calls on Biden to Halt Arms Deliveries to Israel**\
+`The announcement adds to the pressure the president is facing on the issue from leaders in the Black community, a group that is key to his re-election.`\
+https://nytimes.com/2024/06/06/us/politics/naacp-biden-arms-deliveries-israel.html
+
+**7 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/06/06/books/review/7-new-books-we-recommend-this-week.html
+
 **Hunter Biden’s Addiction Upended His Family. Has Your Family Had Similar Woes?**\
 `His marriage fell apart as his addiction to crack cocaine deepened. The Times would like to speak with families shaken by a loved one’s drug addiction.`\
 https://nytimes.com/2024/06/06/health/hunter-biden-drug-addiction.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/06/world/middleeast/gaza-hospital-israel-airstrike.h
 **Is Black Wine the New Orange?**\
 `Once maligned, teinturier grapes — and the inky drinks they produce — are finding new fans. Here are the bottles to try.`\
 https://nytimes.com/2024/06/06/t-magazine/black-wine-teinturier-grapes.html
-
-**Oklahoma Stakes Its Claim to the Tallest Building in the U.S.**\
-`The Oklahoma City Council voted this week to clear the way for a 1,907-foot tower, surpassing One World Trade Center in New York.`\
-https://nytimes.com/2024/06/06/realestate/oklahoma-tallest-building.html
-
-**What to Know About Biden’s Executive Order on Immigration**\
-`The president issued an executive order that essentially blocks asylum claims at the southern border, a major shift in how the United States has handled claims for protection.`\
-https://nytimes.com/video/us/politics/100000009508652/what-to-know-about-bidens-executive-order-on-immigration.html
 
