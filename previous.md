@@ -1,3 +1,11 @@
+**‘Mama! Mama!’ Israeli Strike Sets Off Chaos at Gazan Hospital**\
+`Al Aqsa Martyrs Hospital, inundated by a rapidly rising casualty count, is so full that the crowds themselves are hampering treatment.`\
+https://nytimes.com/2024/06/06/world/middleeast/gaza-hospital-israel-airstrike.html
+
+**Is Black Wine the New Orange?**\
+`Once maligned, teinturier grapes — and the inky drinks they produce — are finding new fans. Here are the bottles to try.`\
+https://nytimes.com/2024/06/06/t-magazine/black-wine-teinturier-grapes.html
+
 **Oklahoma Stakes Its Claim to the Tallest Building in the U.S.**\
 `The Oklahoma City Council voted this week to clear the way for a 1,907-foot tower, surpassing One World Trade Center in New York.`\
 https://nytimes.com/2024/06/06/realestate/oklahoma-tallest-building.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/06/arts/television/queenie-hulu.html
 **New Jersey’s Leaders Celebrate Shelving of Congestion Pricing**\
 `But transit advocates said the suspension of the tolling program was no victory for the state’s beleaguered commuters.`\
 https://nytimes.com/2024/06/06/nyregion/nj-congestion-pricing-hochul.html
-
-**Forty Years Later, Biden Seeks to Echo Reagan’s Legacy of American Leadership**\
-`At Pointe du Hoc in Normandy, President Biden plans to follow one of the former president’s most iconic speeches with his own testimonial to democracy and the need to resist isolationism.`\
-https://nytimes.com/2024/06/06/us/politics/biden-reagan-normandy-dday-speech.html
-
-**Late-Night Dining Is Back. Sort Of.**\
-`By Nikita Richardson`\
-https://nytimes.com/2024/06/06/dining/late-night-dining-is-back-sort-of.html
 
