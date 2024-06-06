@@ -1,3 +1,7 @@
+**Stephen Colbert Finds the Focus on Biden’s Age to Be Old News**\
+`“You heard that right, ladies and gentlemen: Joe Biden is old,” Colbert said of a Wall Street Journal article on the president’s aptitude.`\
+https://nytimes.com/2024/06/06/arts/television/stephen-colbert-biden-age.html
+
 **Train Crash in Czech Republic Kills 4, Injures More Than 20**\
 `The passenger train was traveling overnight when it hit a freight train.`\
 https://nytimes.com/2024/06/06/world/europe/czech-train-crash.html
