@@ -1,3 +1,7 @@
+**European Central Bank Cuts Interest Rates for First Time Since 2019**\
+`The reduction comes as inflation in the eurozone cools, prompting the E.C.B. to move before the Federal Reserve in the United States, where rates remain high.`\
+https://nytimes.com/2024/06/06/business/european-central-bank-interest-rates.html
+
 **Word of the Day: garner**\
 `This word has appeared in 314 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/06/06/learning/word-of-the-day-garner.html
