@@ -1,3 +1,7 @@
+**More Than 400,000 Customers Without Power in Santiago, Chile**\
+`A tree fell on a high-voltage transmission tower early Thursday, knocking out power to parts of the Chilean capital.`\
+https://nytimes.com/2024/06/06/world/americas/chile-power-outage.html
+
 **Stephen Colbert Finds the Focus on Biden’s Age to Be Old News**\
 `“You heard that right, ladies and gentlemen: Joe Biden is old,” Colbert said of a Wall Street Journal article on the president’s aptitude.`\
 https://nytimes.com/2024/06/06/arts/television/stephen-colbert-biden-age.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/style/confirm-or-deny-diane-von-furstenberg-editi
 **A Fashion Lioness in Winter**\
 `As she settles into her final act, Diane von Furstenberg looks back on a life of love, sex and money. “I will laugh when I die,” she says.`\
 https://nytimes.com/2024/06/06/style/a-fashion-lioness-in-winter.html
-
-**D-Day at 80**\
-`This anniversary of World War II’s pivotal battle has a somber tone, as the event disappears from living memory and extremism again threatens Europe.`\
-https://nytimes.com/2024/06/06/world/europe/dday-80th-anniversary-veterans-remember.html
 

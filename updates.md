@@ -1,3 +1,7 @@
+**More Than 400,000 Customers Without Power in Santiago, Chile**\
+`A tree fell on a high-voltage transmission tower early Thursday, knocking out power to parts of the Chilean capital.`\
+https://nytimes.com/2024/06/06/world/americas/chile-power-outage.html
+
 **Stephen Colbert Finds the Focus on Biden’s Age to Be Old News**\
 `“You heard that right, ladies and gentlemen: Joe Biden is old,” Colbert said of a Wall Street Journal article on the president’s aptitude.`\
 https://nytimes.com/2024/06/06/arts/television/stephen-colbert-biden-age.html
