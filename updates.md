@@ -1,3 +1,7 @@
+**Narendra Modi’s India**\
+`We explain what to expect from his third term.`\
+https://nytimes.com/2024/06/06/briefing/modis-india.html
+
 **Modi’s India**\
 `We explain what to expect from his third term.`\
 https://nytimes.com/2024/06/06/briefing/modis-india.html
