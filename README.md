@@ -1,3 +1,11 @@
+**Oklahoma Stakes Its Claim to the Tallest Building in the U.S.**\
+`The Oklahoma City Council voted this week to clear the way for a 1,907-foot tower, surpassing One World Trade Center in New York.`\
+https://nytimes.com/2024/06/06/realestate/oklahoma-tallest-building.html
+
+**What to Know About Biden’s Executive Order on Immigration**\
+`The president issued an executive order that essentially blocks asylum claims at the southern border, a major shift in how the United States has handled claims for protection.`\
+https://nytimes.com/video/us/politics/100000009508652/what-to-know-about-bidens-executive-order-on-immigration.html
+
 **MAGA Turns Against the Constitution**\
 `Not everything is in crisis.`\
 https://nytimes.com/2024/06/06/opinion/maga-constitution-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/06/us/politics/biden-reagan-normandy-dday-speech.htm
 **Late-Night Dining Is Back. Sort Of.**\
 `By Nikita Richardson`\
 https://nytimes.com/2024/06/06/dining/late-night-dining-is-back-sort-of.html
-
-**Boeing’s Starliner Overcomes Malfunctioning Thrusters to Dock at Space Station**\
-`Two NASA astronauts, Butch Wilmore and Suni Williams, opened the hatch of the spacecraft and boarded the outpost in orbit.`\
-https://nytimes.com/2024/06/06/science/boeing-starliner-space-station-docking.html
-
-**The N-Word Would Work Differently for Trump**\
-`Black people already know who he is and what they think of him.`\
-https://nytimes.com/2024/06/06/opinion/n-word-trump.html
 
