@@ -1,3 +1,7 @@
+**Share Your Experiences With Eviction Laws in Illinois**\
+`The New York Times would like to hear from tenants and landlords in Illinois who were penalized under crime-free housing ordinances.`\
+https://nytimes.com/2024/06/06/us/share-your-experiences-with-eviction-laws-in-illinois.html
+
 **‘Banel & Adama’ Review: A Parable of Two Young Lovers**\
 `The filmmaker Ramata-Toulaye Sy illuminates this elliptical story, set in unnamed Senegalese village, with daubs of strong colors and strikingly vivid imagery.`\
 https://nytimes.com/2024/06/06/movies/banel-adama-review-ramata-toulaye-sy.html

@@ -1,3 +1,7 @@
+**Share Your Experiences With Eviction Laws in Illinois**\
+`The New York Times would like to hear from tenants and landlords in Illinois who were penalized under crime-free housing ordinances.`\
+https://nytimes.com/2024/06/06/us/share-your-experiences-with-eviction-laws-in-illinois.html
+
 **‘Banel & Adama’ Review: A Parable of Two Young Lovers**\
 `The filmmaker Ramata-Toulaye Sy illuminates this elliptical story, set in unnamed Senegalese village, with daubs of strong colors and strikingly vivid imagery.`\
 https://nytimes.com/2024/06/06/movies/banel-adama-review-ramata-toulaye-sy.html
@@ -34,4 +38,3 @@ https://nytimes.com/video/science/space/100000009507441/spacex-starship-test-fli
 `President Biden compared the principles of World War II to Russia’s invasion of Ukraine during his address at the 80th anniversary of D-Day on the beaches of Normandy.`\
 https://nytimes.com/video/us/politics/100000009507738/biden-d-day-speech.html
 
-**Do You Need a Food Processor, a Blender, or Both? Here’s How to Figure It Out. **\
