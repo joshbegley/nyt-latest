@@ -1,3 +1,11 @@
+**Jamaal Bowman Lands Endorsement From Elizabeth Warren**\
+`Locked in a hotly contested primary against George Latimer, Mr. Bowman got a lifeline from Ms. Warren, a progressive senator from Massachusetts.`\
+https://nytimes.com/2024/06/06/us/politics/jamaal-bowman-elizabeth-warren.html
+
+**Tim Scott Makes New Push to Woo Black and Hispanic Republicans**\
+`The $14 million effort by Mr. Scott’s super PAC comes as the South Carolina senator is said to be high on Donald Trump’s list of potential running mates.`\
+https://nytimes.com/2024/06/06/us/politics/tim-scott-black-hispanic-republicans-trump.html
+
 **When Will the Heat End? Western U.S. Braces for Peak Temperatures.**\
 `Nearly 19 million people across the Southwest were under an excessive heat warning Thursday, when several cities were expected to tie or even break heat records.`\
 https://nytimes.com/2024/06/06/weather/heat-wave-forecast-california-nevada-arizona.html
