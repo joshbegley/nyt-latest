@@ -1,3 +1,7 @@
+**30 Shows to Watch This Summer**\
+`Returning favorites include “The Bear,” “House of the Dragon” and “Only Murders in the Building.” Among the new arrivals? Jake Gyllenhaal and Natalie Portman.`\
+https://nytimes.com/2024/06/06/arts/television/summer-tv-premieres-house-of-the-dragon-the-bear.html
+
 **Share Your Experiences With Eviction Laws in Illinois**\
 `The New York Times would like to hear from tenants and landlords in Illinois who were penalized under crime-free housing ordinances.`\
 https://nytimes.com/2024/06/06/us/share-your-experiences-with-eviction-laws-in-illinois.html

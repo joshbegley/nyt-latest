@@ -1,3 +1,7 @@
+**30 Shows to Watch This Summer**\
+`Returning favorites include “The Bear,” “House of the Dragon” and “Only Murders in the Building.” Among the new arrivals? Jake Gyllenhaal and Natalie Portman.`\
+https://nytimes.com/2024/06/06/arts/television/summer-tv-premieres-house-of-the-dragon-the-bear.html
+
 **Share Your Experiences With Eviction Laws in Illinois**\
 `The New York Times would like to hear from tenants and landlords in Illinois who were penalized under crime-free housing ordinances.`\
 https://nytimes.com/2024/06/06/us/share-your-experiences-with-eviction-laws-in-illinois.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/opinion/donald-trump-sentencing.html
 **SpaceX’s Starship Rocket Completes First Return From Space**\
 `Elon Musk’s giant rocket, which launched from Starbase in Boca Chica, Texas, survived re-entry on its fourth test flight.`\
 https://nytimes.com/video/science/space/100000009507441/spacex-starship-test-flight.html
-
-**Biden Warns Against Russian Tyranny in D-Day Speech**\
-`President Biden compared the principles of World War II to Russia’s invasion of Ukraine during his address at the 80th anniversary of D-Day on the beaches of Normandy.`\
-https://nytimes.com/video/us/politics/100000009507738/biden-d-day-speech.html
 
