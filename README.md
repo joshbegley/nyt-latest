@@ -1,3 +1,19 @@
+**Judge Dismisses Attempted Murder Charge Over Attack at Pelosi Home**\
+`Defense lawyers used a double jeopardy argument, saying their client had been convicted in federal court for acts that are now the subject of a state trial. Other charges remain.`\
+https://nytimes.com/2024/06/06/us/david-depape-paul-pelosi-charges.html
+
+**The Sins of the Educated Class**\
+`Progressive elites aren’t helping the people they say they’re fighting for, and they’re hurting the rest of us.`\
+https://nytimes.com/2024/06/06/opinion/elites-progressives-universities.html
+
+**Why You Shouldn’t Obsess About the National Debt**\
+`It’s a political problem, not an economic crisis.`\
+https://nytimes.com/2024/06/06/opinion/national-debt-us-taxes.html
+
+**Video Captures Emotional Moment Between Zelensky and U.S. Veteran**\
+`At the 80th anniversary of the D-Day landings, Melvin Hurwitz, an American World War II veteran, embraced President Volodymyr Zelensky of Ukraine and called him “the savior of the people.”`\
+https://nytimes.com/video/world/europe/100000009509097/zelensky-dday-veteran.html
+
 **The U.S. will ‘wait and see’ how Israel details the strike before calling for further action, an official says.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2024/06/06/world/israel-gaza-war-hamas/the-us-will-wait-and-see-how-israel-details-the-strike-before-calling-for-further-action-an-official-says
@@ -21,20 +37,4 @@ https://nytimes.com/2024/06/06/nyregion/harry-roland-dead.html
 **Israel’s Military Defends Strike on U.N. School Building, Saying Its Target Was 30 Militants**\
 `Hamas and Islamic Jihad fighters were hiding inside three classrooms, a military spokesman said.`\
 https://nytimes.com/2024/06/06/world/middleeast/israel-hamas-gaza-un-school.html
-
-**N.A.A.C.P. Calls on Biden to Halt Arms Deliveries to Israel**\
-`The announcement adds to the pressure the president is facing on the issue from leaders in the Black community, a group that is key to his re-election.`\
-https://nytimes.com/2024/06/06/us/politics/naacp-biden-arms-deliveries-israel.html
-
-**7 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2024/06/06/books/review/7-new-books-we-recommend-this-week.html
-
-**Hunter Biden’s Addiction Upended His Family. Has Your Family Had Similar Woes?**\
-`His marriage fell apart as his addiction to crack cocaine deepened. The Times would like to speak with families shaken by a loved one’s drug addiction.`\
-https://nytimes.com/2024/06/06/health/hunter-biden-drug-addiction.html
-
-**Mike Lynch, U.K. Tech Mogul, Is Acquitted of Fraud**\
-`Mr. Lynch, who was accused of defrauding Hewlett-Packard after it paid $11 billion for his software company, spent a decade working to clear his name.`\
-https://nytimes.com/2024/06/06/business/dealbook/mike-lynch-autonomy-fraud-hp.html
 
