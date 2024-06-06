@@ -1,3 +1,7 @@
+**Gilgo Beach Serial Killing Suspect Is Charged With 2 More Murders**\
+`Rex Heuermann, who has been accused of killing four women, has been charged with the murders of two more.`\
+https://nytimes.com/2024/06/06/nyregion/gilgo-beach-rex-heuermann.html
+
 **Have Wine for Breakfast, Put On a 51-Pound Suit and Get to the Battlefield**\
 `Greek soldiers recreated ancient life conditions in a study to determine if the Dendra panoply, armor used by the Mycenaeans some 3,500 years ago, could stand up to combat. Study authors found it did.`\
 https://nytimes.com/2024/06/06/science/ancient-greek-armor-marines-study.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/us/politics/biden-trump-veterans-d-day.html
 **How to Pick the Winner of the Belmont (or Any Other Horse Race)**\
 `Here’s what to look for, and what to avoid, when betting on a pony at the track.`\
 https://nytimes.com/2024/06/06/sports/horse-racing/belmont-betting-winning-horse.html
-
-**European Central Bank Cuts Interest Rates for First Time Since 2019**\
-`The reduction comes as inflation in the eurozone cools, prompting the E.C.B. to move before the Federal Reserve in the United States, where rates remain high.`\
-https://nytimes.com/2024/06/06/business/european-central-bank-interest-rates.html
 
