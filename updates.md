@@ -1,3 +1,7 @@
+**How to Pick the Winner of the Belmont (or Any Other Horse Race)**\
+`Here’s what to look for, and what to avoid, when betting on a pony at the track.`\
+https://nytimes.com/2024/06/06/sports/horse-racing/belmont-betting-winning-horse.html
+
 **European Central Bank Cuts Interest Rates for First Time Since 2019**\
 `The reduction comes as inflation in the eurozone cools, prompting the E.C.B. to move before the Federal Reserve in the United States, where rates remain high.`\
 https://nytimes.com/2024/06/06/business/european-central-bank-interest-rates.html
