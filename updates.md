@@ -1,3 +1,7 @@
+**Boeing’s Starliner Overcomes Malfunctioning Thrusters to Dock at Space Station**\
+`Two NASA astronauts, Butch Wilmore and Suni Williams, will soon open the hatch of the spacecraft and board the outpost in orbit.`\
+https://nytimes.com/2024/06/06/science/boeing-starliner-space-station-docking.html
+
 **Video Analysis Shows Israeli Strike Used Bomb That Appeared to Be U.S.-Made**\
 `A video of munitions debris filmed at the school complex in central Gaza where thousands of Palestinians were sheltering showed remnants of a GBU-39, a bomb that is designed and manufactured by Boeing.`\
 https://nytimes.com/2024/06/06/world/middleeast/israel-gaza-strike-us-bomb.html
