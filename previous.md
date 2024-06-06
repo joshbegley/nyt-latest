@@ -1,40 +1,40 @@
-**36 Hours in Brooklyn**\
-`Summer in Brooklyn rewards spontaneity, so this packed guide requires no restaurant reservations or advance planning.`\
-https://nytimes.com/interactive/2024/06/06/travel/things-to-do-brooklyn.html
+**Air-Conditioning Gives Us a False Sense of Security**\
+`Why heat waves are the harbinger of what’s to come.`\
+https://nytimes.com/2024/06/06/opinion/heat-wave-air-conditioning.html
 
-**U.C. Berkeley’s Leader, a Free Speech Champion, Has Advice for Today’s Students: Tone It Down**\
-`“Just because you have the right to say something doesn’t mean it’s right to say,” said Carol Christ, who is retiring as chancellor at the end of this month.`\
-https://nytimes.com/2024/06/06/us/berkeley-carol-christ-protest-free-speech.html
+**‘It’s Not 2016 Anymore’: Trump Finds Friends in Silicon Valley**\
+`Donald Trump is heading to San Francisco for a fund-raiser, and his host, the tech entrepreneur David Sacks, hopes to portray Silicon Valley as a more MAGA-welcoming place.`\
+https://nytimes.com/2024/06/06/us/politics/trump-sacks-silicon-valley-donors.html
 
-**Plans for an Ailing Forest Include Logging, and Some Are Suspicious**\
-`Officials in Oregon say they need to cut trees, including some healthy ones. The reaction shows how complex land management has become as forest health declines.`\
-https://nytimes.com/2024/06/06/climate/forest-logging-oregon.html
+**A French Expat Tries Buying in Dubai. What Could She Find for Under $1 Million?**\
+`After six years in the United Arab Emirates’ most populous city, a public-relations pro decided to put down roots and invest long-term. Here’s what she found.`\
+https://nytimes.com/interactive/2024/06/06/realestate/dubai-apartments-sale-hunt.html
 
-**She Sought Answers on How to Raise Boys**\
-`Ruth Whippman had three sons and a lot of questions. In her memoir “Boy Mom,” she hopes to offer parents some of the reporting she gathered on the road to understanding her children.`\
-https://nytimes.com/2024/06/06/style/boy-mom-ruth-whippman.html
+**Trump’s Conviction Made These Voters Rethink Their Choice for President**\
+`Conversations with nearly 2,000 voters showed a small number had changed their minds about Donald J. Trump. Here’s what a few said about why.`\
+https://nytimes.com/2024/06/06/us/politics/donald-trump-biden-trial.html
 
-**Jacqueline Winspear Read a History of Cocaine as Research**\
-`“No one should be surprised by a writer’s library,” says the author of the Maisie Dobbs series, about a World War I battlefield nurse turned private investigator. The series’ 18th and final book is “The Comfort of Ghosts.”`\
-https://nytimes.com/2024/06/06/books/review/jacqueline-winspear-maisie-dobbs-by-the-book.html
+**Francis Ford Coppola: ‘You Can’t Be an Artist and Be Safe’**\
+`The filmmaker talks about the inspirations for the characters in “Megalopolis” and “The Godfather,” and responds to recent allegations.`\
+https://nytimes.com/2024/06/06/movies/francis-ford-coppola-megalopolis-godfather.html
 
-**This Judge Is Blind. He Wishes Our Justice System Were, Too.**\
-`In a new memoir, David S. Tatel recounts a remarkable career as a civil rights lawyer and federal judge, and the challenges of contending with the disease that took his vision.`\
-https://nytimes.com/2024/06/06/books/review/vision-david-s-tatel.html
+**Mitch McConnell: We Cannot Repeat the Mistakes of the 1930s**\
+`On the 80th anniversary of D-Day, we are forgetting the lessons of World War II.`\
+https://nytimes.com/2024/06/06/opinion/mcconnell-military-spending-d-day.html
 
-**Congestion Pricing Delay Leaves the M.T.A.’s Budget in Limbo**\
-`The M.T.A. had planned on $15 billion in financing backed by the tolls of congestion pricing for a number of crucial upgrades and repairs to the aging transit system.`\
-https://nytimes.com/2024/06/06/nyregion/congestion-pricing-mta-budget-nyc.html
+**Trump’s Guilty. Does Anyone Care?**\
+`Some voters are moving away from the former president, but conversations with people still on the fence show a wide range of issues on their mind beyond a criminal conviction.`\
+https://nytimes.com/2024/06/06/podcasts/trumps-guilty-does-anyone-care.html
 
-**A Project Explores the Artistic Power of Loss**\
-`Artists spoke to The Times about how grief and loss drive creativity. Photographs accompanying the text allow space for readers to insert their own emotions.`\
-https://nytimes.com/2024/06/06/insider/a-project-explores-the-artistic-power-of-loss.html
+**Review: ‘Fantasmas’ Journeys to the Center of Julio Torres’s Mind**\
+`In the comic fabulist’s dazzling new HBO series, sketch comedy meets sketch fantasy.`\
+https://nytimes.com/2024/06/06/arts/television/review-fantasmas-julio-torres.html
 
-**What Does the Mayor’s ‘City of Yes’ Proposal Mean for New Yorkers?**\
-`The City Council will vote Thursday on one of Mayor Eric Adams’s plans to update New York City’s zoning rules. His next proposal, to build more housing, could be contentious.`\
-https://nytimes.com/2024/06/06/nyregion/nyc-city-of-yes-zoning-proposals-housing-manufacturing.html
+**Prison Time Is the Real Factor in the Trump Verdict’s Impact on 2024**\
+`How voters will react to a candidate’s sentencing is fraught with uncertainty.`\
+https://nytimes.com/2024/06/06/opinion/trump-prison-time.html
 
-**New Jersey Law Will Limit Access to Government Records**\
-`Gov. Philip D. Murphy signed the legislation, insisting it would not encourage public corruption.`\
-https://nytimes.com/2024/06/06/nyregion/new-jersey-open-records-phil-murphy.html
+**San Francisco Jewish Museum Has a Blank Space for Dissenting Artists**\
+`A museum’s unusual tactic in a contretemps with protesters brings visibility to their walkout.`\
+https://nytimes.com/2024/06/06/arts/design/sanfrancisco-jewish-museum-blank.html
 
