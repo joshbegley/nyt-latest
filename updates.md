@@ -1,3 +1,7 @@
+**Train Crash in Czech Republic Kills 4 and Injures More Than 20**\
+`The passenger train was traveling overnight when it hit a freight train.`\
+https://nytimes.com/2024/06/06/world/europe/czech-train-crash.html
+
 **More Than 400,000 Customers Without Power in Santiago, Chile**\
 `A tree fell on a high-voltage transmission tower early Thursday, knocking out power to parts of the Chilean capital.`\
 https://nytimes.com/2024/06/06/world/americas/chile-power-outage.html
