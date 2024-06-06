@@ -1,3 +1,7 @@
+**The Best Berry Cakes Start With These Two Tips**\
+`Some berries are better suited to certain desserts. Here’s how to make sure your seasonal fruit shines bright.`\
+https://nytimes.com/2024/06/06/dining/best-berry-cake.html
+
 **Search Underway in Greece for British TV Doctor Michael Mosley**\
 `Mr. Mosely, a popular science journalist, disappeared while on a walk on the Greek island of Symi. He was last seen at a bus stop on Wednesday afternoon.`\
 https://nytimes.com/2024/06/06/world/europe/michael-mosley-missing-greece-new.html

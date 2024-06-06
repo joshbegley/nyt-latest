@@ -1,3 +1,7 @@
+**The Best Berry Cakes Start With These Two Tips**\
+`Some berries are better suited to certain desserts. Here’s how to make sure your seasonal fruit shines bright.`\
+https://nytimes.com/2024/06/06/dining/best-berry-cake.html
+
 **Search Underway in Greece for British TV Doctor Michael Mosley**\
 `Mr. Mosely, a popular science journalist, disappeared while on a walk on the Greek island of Symi. He was last seen at a bus stop on Wednesday afternoon.`\
 https://nytimes.com/2024/06/06/world/europe/michael-mosley-missing-greece-new.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/nyregion/gilgo-beach-rex-heuermann.html
 **Have Wine for Breakfast, Put On a 51-Pound Suit and Get to the Battlefield**\
 `Greek soldiers recreated ancient life conditions in a study to determine if the Dendra panoply, armor used by the Mycenaeans some 3,500 years ago, could stand up to combat. Study authors found it did.`\
 https://nytimes.com/2024/06/06/science/ancient-greek-armor-marines-study.html
-
-**Is This the End for Mandatory D.E.I. Statements?**\
-`Harvard and M.I.T. no longer require applicants for teaching jobs to explain how they would serve underrepresented groups. Other schools may follow.`\
-https://nytimes.com/2024/06/06/us/politics/dei-statements-harvard-massachusetts-institute-of-technology.html
 
