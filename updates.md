@@ -1,3 +1,7 @@
+**Samsung Faces First Strike in Its History**\
+`The South Korean tech giant is at odds with some of its employees as it is trying to reassure investors that its memory chip business can meet demand.`\
+https://nytimes.com/2024/06/06/business/samsung-first-strike-chips.html
+
 **Samsung Faces First Strike in Its 86 Years of Business**\
 `The South Korean tech giant is at odds with some of its employees as it is trying to reassure investors that its memory chip business can meet demand.`\
 https://nytimes.com/2024/06/06/business/samsung-first-strike-chips.html
