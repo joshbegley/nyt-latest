@@ -1,3 +1,7 @@
+**U.S. Official Responds to Israeli Strike on a U.N. School in Gaza**\
+`Matthew Miller, a State Department spokesman, said the United States was waiting on more information about the strike in central Gaza before considering any calls for further action.`\
+https://nytimes.com/video/world/middleeast/100000009509017/matt-miller-un-school-airstrike.html
+
 **Eight Legs and the Size of a Hand: All About the Joro Spider**\
 `Scientists expect the large, brightly colored spider to arrive in the Northeast sometime this year.`\
 https://nytimes.com/2024/06/06/nyregion/joro-spiders-invasion.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/business/dealbook/mike-lynch-autonomy-fraud-hp.ht
 **In Normandy, Biden Linked the War in Ukraine With D-Day**\
 `Also, an Israeli strike killed dozens in central Gaza. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/06/06/briefing/biden-speech-d-day-israel-gaza-strike.html
-
-**Does Gov. Hochul, a Buffalo Native, Really Get New York City?**\
-`Governor Hochul is more of an outsider to New York City than most of her predecessors. Critics say that put her at a disadvantage in dealing with congestion pricing.`\
-https://nytimes.com/2024/06/06/nyregion/hochul-congestion-pricing.html
 
