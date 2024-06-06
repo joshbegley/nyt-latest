@@ -1,3 +1,11 @@
+**Mexico’s Presidents Get Only One Term. Is That a Good Thing?**\
+`Examining the rare one-term presidential limit.`\
+https://nytimes.com/2024/06/06/world/europe/interpreter-mexico-presidents.html
+
+**South Africa’s President Announces Plan to Form National Unity Government**\
+`President Cyril Ramaphosa’s party, the African National Congress, is seeking a broad alliance after it failed to win enough seats in last week’s election to form a government on its own.`\
+https://nytimes.com/2024/06/06/world/africa/south-africa-ramaphosa-new-government.html
+
 **‘Queenie’ Is a Fun Coming-of-Age Show**\
 `This smart and poppy British series melds the good parts of the semi-autobiographical sadcom with more predictable rom-com traditions.`\
 https://nytimes.com/2024/06/06/arts/television/queenie-hulu.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/06/us/california-berkeley-peoples-park.html
 **Hochul’s Payroll Tax Is No Substitute for Congestion Pricing**\
 `New York lawmakers should stick to their promise and refuse the governor’s demand.`\
 https://nytimes.com/live/2024/06/04/opinion/thepoint/hochul-congestion-pricing-tax
-
-**One trial down. But will there be others?**\
-`We catch up on the state of Trump’s three other criminal cases.`\
-https://nytimes.com/2024/06/06/us/politics/trump-trial-next-cases.html
-
-**Washington Post C.E.O. Promised Interview for Ignoring Scandal, NPR Reporter Says**\
-`David Folkenflik of NPR wrote that the offer, in exchange for agreeing to stop his coverage of a phone hacking scandal, was made “repeatedly — and heatedly.”`\
-https://nytimes.com/2024/06/06/business/media/washington-post-will-lewis-npr.html
 
