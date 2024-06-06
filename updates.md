@@ -1,3 +1,7 @@
+**The World Heads to the Polls**\
+`Hundreds of millions of people around the world have recently voted in elections with important climate issues like extreme heat and coal dependence.`\
+https://nytimes.com/2024/06/06/climate/global-elections-climate-change-policy.html
+
 **A Condemned Killer Thought, ‘This Is My Day to Die.’ Then It Wasn’t.**\
 `At 73, Thomas Creech is one of the few people to have survived a botched execution. Now he waits to see if the state will try again.`\
 https://nytimes.com/2024/06/06/us/thomas-creech-idaho-botched-execution.html
