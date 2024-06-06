@@ -1,3 +1,7 @@
+**Zelensky Shares Emotional Moment With U.S. Veteran at D-Day Ceremony**\
+`The veteran, Melvin Hurwitz, embraced the Ukrainian president and called him “the savior of the people.” Mr. Zelensky told Mr. Hurwitz that he and his fellow World War II veterans had “saved Europe.”`\
+https://nytimes.com/2024/06/06/world/europe/zelensky-d-day-veteran.html
+
 **Judge Dismisses Attempted Murder Charge Over Attack at Pelosi Home**\
 `Defense lawyers used a double jeopardy argument, saying their client had been convicted in federal court for acts that are now the subject of a state trial. Other charges remain.`\
 https://nytimes.com/2024/06/06/us/david-depape-paul-pelosi-charges.html

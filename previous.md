@@ -1,3 +1,7 @@
+**Zelensky Shares Emotional Moment With U.S. Veteran at D-Day Ceremony**\
+`The veteran, Melvin Hurwitz, embraced the Ukrainian president and called him “the savior of the people.” Mr. Zelensky told Mr. Hurwitz that he and his fellow World War II veterans had “saved Europe.”`\
+https://nytimes.com/2024/06/06/world/europe/zelensky-d-day-veteran.html
+
 **Judge Dismisses Attempted Murder Charge Over Attack at Pelosi Home**\
 `Defense lawyers used a double jeopardy argument, saying their client had been convicted in federal court for acts that are now the subject of a state trial. Other charges remain.`\
 https://nytimes.com/2024/06/06/us/david-depape-paul-pelosi-charges.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/arts/baby-reindeer-lawsuit.html
 **Harry Roland, ‘The World Trade Center Man,’ Dies at 70**\
 `Within months of the terrorist attacks of Sept. 11, 2001, and continuing almost until his death, he was a street orator hollering about that day’s loss and destruction.`\
 https://nytimes.com/2024/06/06/nyregion/harry-roland-dead.html
-
-**Israel’s Military Defends Strike on U.N. School Building, Saying Its Target Was 30 Militants**\
-`Hamas and Islamic Jihad fighters were hiding inside three classrooms, a military spokesman said.`\
-https://nytimes.com/2024/06/06/world/middleeast/israel-hamas-gaza-un-school.html
 
