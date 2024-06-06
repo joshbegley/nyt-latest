@@ -1,3 +1,7 @@
+**Jill Biden, a Fierce Protector of Hunter Biden, Leaves France for Wilmington**\
+`The first lady’s departure from a high-profile foreign trip was a dramatic illustration of the Biden family’s personal priorities. She is expected to return to France on Saturday.`\
+https://nytimes.com/2024/06/06/us/politics/hunter-biden-jill-biden-gun-trial.html
+
 **Are Big Music Tours Really in Trouble?**\
 `High-profile cancellations from Jennifer Lopez and the Black Keys have armchair analysts talking. But industry insiders say live music is still thriving.`\
 https://nytimes.com/2024/06/06/arts/music/tours-jlo-black-keys.html

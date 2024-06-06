@@ -1,3 +1,7 @@
+**Jill Biden, a Fierce Protector of Hunter Biden, Leaves France for Wilmington**\
+`The first lady’s departure from a high-profile foreign trip was a dramatic illustration of the Biden family’s personal priorities. She is expected to return to France on Saturday.`\
+https://nytimes.com/2024/06/06/us/politics/hunter-biden-jill-biden-gun-trial.html
+
 **Are Big Music Tours Really in Trouble?**\
 `High-profile cancellations from Jennifer Lopez and the Black Keys have armchair analysts talking. But industry insiders say live music is still thriving.`\
 https://nytimes.com/2024/06/06/arts/music/tours-jlo-black-keys.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009509017/matt-miller-un-school
 **Eight Legs and the Size of a Hand: All About the Joro Spider**\
 `Scientists expect the large, brightly colored spider to arrive in the Northeast sometime this year.`\
 https://nytimes.com/2024/06/06/nyregion/joro-spiders-invasion.html
-
-**Woman Who Says She Inspired ‘Baby Reindeer’ Character Sues Netflix**\
-`Fiona Harvey claims that the series, which has been promoted as based on a true story, defamed her by basing the character Martha, a convicted stalker, on her.`\
-https://nytimes.com/2024/06/06/arts/baby-reindeer-lawsuit.html
 
