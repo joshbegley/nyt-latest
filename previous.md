@@ -1,3 +1,7 @@
+**A Condemned Killer Thought, ‘This Is My Day to Die.’ Then It Wasn’t.**\
+`At 73, Thomas Creech is one of the few people to have survived a botched execution. Now he waits to see if the state will try again.`\
+https://nytimes.com/2024/06/06/us/thomas-creech-idaho-botched-execution.html
+
 **Kathy Hochul Just Upended a Lot More Than Congestion Pricing**\
 `A congestion pricing plan years in the making was suddenly postponed, threatening mass transit and ensuring continued traffic nightmares.`\
 https://nytimes.com/2024/06/06/opinion/new-york-traffic-congestion-pricing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/arts/television/summer-tv-premieres-house-of-the-
 **Share Your Experiences With Eviction Laws in Illinois**\
 `The New York Times would like to hear from tenants and landlords in Illinois who were penalized under crime-free housing ordinances.`\
 https://nytimes.com/2024/06/06/us/share-your-experiences-with-eviction-laws-in-illinois.html
-
-**‘Banel & Adama’ Review: A Parable of Two Young Lovers**\
-`The filmmaker Ramata-Toulaye Sy illuminates this elliptical story, set in unnamed Senegalese village, with daubs of strong colors and strikingly vivid imagery.`\
-https://nytimes.com/2024/06/06/movies/banel-adama-review-ramata-toulaye-sy.html
 
