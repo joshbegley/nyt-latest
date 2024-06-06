@@ -1,3 +1,7 @@
+**Biden Shut the Border to Asylum Seekers. The Question Is Whether the Order Can Be Enforced.**\
+`There are still ways for people to cross the U.S.-Mexico border illegally, particularly without any new resources to help guard the 2,000-mile frontier.`\
+https://nytimes.com/2024/06/06/us/politics/biden-asylum-seekers-enforcement.html
+
 **Samsung Faces First Strike in Its History**\
 `The South Korean tech giant is at odds with some of its employees as it is trying to reassure investors that its memory chip business can meet demand.`\
 https://nytimes.com/2024/06/06/business/samsung-first-strike-chips.html
