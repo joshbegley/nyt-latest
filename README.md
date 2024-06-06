@@ -1,3 +1,7 @@
+**Harry Roland, ‘The World Trade Center Man,’ Dies at 70**\
+`Within months of the terrorist attacks of Sept. 11, 2001, and continuing almost until his death, he was a street orator hollering about that day’s loss and destruction.`\
+https://nytimes.com/2024/06/06/nyregion/harry-roland-dead.html
+
 **Israel’s Military Defends Strike on U.N. School Building, Saying Its Target Was 30 Militants**\
 `Hamas and Islamic Jihad fighters were hiding inside three classrooms, a military spokesman said.`\
 https://nytimes.com/2024/06/06/world/middleeast/israel-hamas-gaza-un-school.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/world/middleeast/israel-gaza-school-killing.html
 **Kennedy’s Campaign Is Accused of Lying About His New York Residency**\
 `A group aligned with President Biden has challenged his ballot petition with New York State officials, arguing he should not be on the fall ballot.`\
 https://nytimes.com/2024/06/06/us/politics/rfk-jr-ny-residency-challenged.html
-
-**‘Mama! Mama!’ Israeli Strike Sets Off Chaos at Gazan Hospital**\
-`Al Aqsa Martyrs Hospital, inundated by a rapidly rising casualty count, is so full that the crowds themselves are hampering treatment.`\
-https://nytimes.com/2024/06/06/world/middleeast/gaza-hospital-israel-airstrike.html
 
