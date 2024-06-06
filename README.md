@@ -1,3 +1,7 @@
+**Israel’s Military Defends Strike on U.N. School Building, Saying Its Target Was 30 Militants**\
+`Hamas and Islamic Jihad fighters were hiding inside three classrooms, a military spokesman said.`\
+https://nytimes.com/2024/06/06/world/middleeast/israel-hamas-gaza-un-school.html
+
 **N.A.A.C.P. Calls on Biden to Halt Arms Deliveries to Israel**\
 `The announcement adds to the pressure the president is facing on the issue from leaders in the Black community, a group that is key to his re-election.`\
 https://nytimes.com/2024/06/06/us/politics/naacp-biden-arms-deliveries-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/us/politics/rfk-jr-ny-residency-challenged.html
 **‘Mama! Mama!’ Israeli Strike Sets Off Chaos at Gazan Hospital**\
 `Al Aqsa Martyrs Hospital, inundated by a rapidly rising casualty count, is so full that the crowds themselves are hampering treatment.`\
 https://nytimes.com/2024/06/06/world/middleeast/gaza-hospital-israel-airstrike.html
-
-**Is Black Wine the New Orange?**\
-`Once maligned, teinturier grapes — and the inky drinks they produce — are finding new fans. Here are the bottles to try.`\
-https://nytimes.com/2024/06/06/t-magazine/black-wine-teinturier-grapes.html
 
