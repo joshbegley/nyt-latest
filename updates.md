@@ -1,3 +1,7 @@
+**Former N.J. Attorney General Takes the Stand in Menendez Bribery Trial**\
+`Prosecutors say Senator Robert Menendez contacted Gurbir S. Grewal in an effort to quash an insurance fraud investigation on behalf of an ally.`\
+https://nytimes.com/2024/06/06/nyregion/gurbir-grewal-robert-menendez-bribery-trial.html
+
 **Penn Bans Protest Encampments From Its Campus**\
 `The new rules, which would significantly rein in demonstrations at the university, come on the heels of a nationwide wave of student activism against Israel’s military actions in Gaza.`\
 https://nytimes.com/2024/06/06/us/penn-ban-encampments-campus-protests-gaza.html

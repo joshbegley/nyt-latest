@@ -1,3 +1,7 @@
+**Former N.J. Attorney General Takes the Stand in Menendez Bribery Trial**\
+`Prosecutors say Senator Robert Menendez contacted Gurbir S. Grewal in an effort to quash an insurance fraud investigation on behalf of an ally.`\
+https://nytimes.com/2024/06/06/nyregion/gurbir-grewal-robert-menendez-bribery-trial.html
+
 **Penn Bans Protest Encampments From Its Campus**\
 `The new rules, which would significantly rein in demonstrations at the university, come on the heels of a nationwide wave of student activism against Israel’s military actions in Gaza.`\
 https://nytimes.com/2024/06/06/us/penn-ban-encampments-campus-protests-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/dining/what-to-do-with-all-those-canned-black-bea
 **The U.N. says at least 450 people have been killed at its facilities in Gaza during the war.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/06/06/world/israel-gaza-war-hamas/the-un-says-at-least-450-people-have-been-killed-at-its-facilities-in-gaza
-
-**10 Books About L.G.B.T.Q. Mental Health and Well-Being**\
-`Therapists and other experts recommend their favorite titles.`\
-https://nytimes.com/2024/06/06/well/mind/lgbtq-books-mental-health.html
 
