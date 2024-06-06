@@ -1,3 +1,11 @@
+**Corrections: June 6, 2024**\
+`Corrections that appeared in print on Thursday, June 6, 2024.`\
+https://nytimes.com/2024/06/05/pageoneplus/corrections-june-6-2024.html
+
+**Quote of the Day: Voters’ Message to Modi: It’s Not All About You**\
+`Quotation of the Day for Thursday, June 6, 2024.`\
+https://nytimes.com/2024/06/05/pageoneplus/quote-of-the-day-voters-message-to-modi-its-not-all-about-you.html
+
 **U.S. Clears Way for Antitrust Inquiries of Nvidia, Microsoft and OpenAI**\
 `The Justice Department and the Federal Trade Commission agreed to divide responsibility for investigating three major players in the artificial intelligence industry.`\
 https://nytimes.com/2024/06/05/technology/nvidia-microsoft-openai-antitrust-doj-ftc.html
@@ -26,15 +34,7 @@ https://nytimes.com/2024/06/05/us/waupun-prison-warden-deaths.html
 `The shake up at the Hachette Book Group imprint comes at a time when publishers are feeling pressured by sluggish print sales and rising supply chain costs.`\
 https://nytimes.com/2024/06/05/books/hachette-layoffs.html
 
-**Storm Damages Homes in Washington Suburbs Amid Tornado Warnings**\
-`A handful of injuries were reported in Gaithersburg, Md., a suburb of the nation’s capital. Baltimore is also under a tornado warning and flood watch.`\
+**Storms Kill Child in Michigan and Damages Homes in Maryland**\
+`Reported tornadoes downed a tree onto a home, killing a two-year-old boy in Livonia, Mi., and did damage in the Washington, D.C. suburbs.`\
 https://nytimes.com/2024/06/05/us/tornado-maryland-washington-dc.html
-
-**Prosecutors Use Texts to Depict Menendez and His Wife as Collaborators**\
-`Senator Robert Menendez is accused of bribery and corruption. His lawyers have attempted to shift the blame to his wife, Nadine.`\
-https://nytimes.com/2024/06/05/nyregion/robert-menendez-bribery-mercedes.html
-
-**Chanel Designer Steps Down**\
-`Virginie Viard, who replaced Karl Lagerfeld at the French fashion house, spent nearly 30 years at the company.`\
-https://nytimes.com/2024/06/05/style/chanel-virginie-viard.html
 
