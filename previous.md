@@ -1,3 +1,15 @@
+**Penn Bans Protest Encampments From Its Campus**\
+`The new rules, which would significantly rein in demonstrations at the university, come on the heels of a nationwide wave of student activism against Israel’s military actions in Gaza.`\
+https://nytimes.com/2024/06/06/us/penn-ban-encampments-campus-protests-gaza.html
+
+**Airstrike Kills Dozens at Former School Sheltering Palestinians**\
+`An Israeli airstrike hit a United Nations school complex that served as a shelter for thousands of displaced Palestinians in central Gaza.`\
+https://nytimes.com/video/world/middleeast/100000009507543/unrwa-school-israeli-strike.html
+
+**Is the Fed Behind the Curve?**\
+`The case for rate cuts in America and Europe is almost identical.`\
+https://nytimes.com/live/2024/06/04/opinion/thepoint/ecb-rate-cut
+
 **Johnson Names Hard-Right Trump Allies to Intelligence Panel, Prompting Concerns**\
 `Both Representatives Scott Perry of Pennsylvania and Ronny Jackson of Texas are close allies of the former president who have faced legal and ethical issues.`\
 https://nytimes.com/2024/06/06/us/politics/perry-jackson-house-intelligence.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/06/06/world/israel-gaza-war-hamas/the-un-says-at-l
 **10 Books About L.G.B.T.Q. Mental Health and Well-Being**\
 `Therapists and other experts recommend their favorite titles.`\
 https://nytimes.com/2024/06/06/well/mind/lgbtq-books-mental-health.html
-
-**‘Becoming Karl Lagerfeld’ Seeks to Capture the Man Behind the Glasses**\
-`Set in the 1970s, the series depicts the designer’s personal and professional evolution and revolves around an intense love story.`\
-https://nytimes.com/2024/06/06/arts/television/becoming-karl-lagerfeld.html
-
-**Judge Orders Bannon to Surrender for Prison Term by July 1**\
-`The outspoken Trump ally was convicted two years ago of contempt of Congress for refusing to comply with a subpoena from the House Jan. 6 committee. He faces a four-month sentence.`\
-https://nytimes.com/2024/06/06/us/politics/steve-bannon-surrender.html
-
-**Donald Trump, Crime and Punishment**\
-`Readers discuss various options for sentencing the former president. Also: The congestion-pricing reversal; immigration policy; fossil-free insurance.`\
-https://nytimes.com/2024/06/06/opinion/donald-trump-sentencing.html
 

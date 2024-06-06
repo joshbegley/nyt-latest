@@ -1,3 +1,15 @@
+**Penn Bans Protest Encampments From Its Campus**\
+`The new rules, which would significantly rein in demonstrations at the university, come on the heels of a nationwide wave of student activism against Israel’s military actions in Gaza.`\
+https://nytimes.com/2024/06/06/us/penn-ban-encampments-campus-protests-gaza.html
+
+**Airstrike Kills Dozens at Former School Sheltering Palestinians**\
+`An Israeli airstrike hit a United Nations school complex that served as a shelter for thousands of displaced Palestinians in central Gaza.`\
+https://nytimes.com/video/world/middleeast/100000009507543/unrwa-school-israeli-strike.html
+
+**Is the Fed Behind the Curve?**\
+`The case for rate cuts in America and Europe is almost identical.`\
+https://nytimes.com/live/2024/06/04/opinion/thepoint/ecb-rate-cut
+
 **Johnson Names Hard-Right Trump Allies to Intelligence Panel, Prompting Concerns**\
 `Both Representatives Scott Perry of Pennsylvania and Ronny Jackson of Texas are close allies of the former president who have faced legal and ethical issues.`\
 https://nytimes.com/2024/06/06/us/politics/perry-jackson-house-intelligence.html
