@@ -1,3 +1,7 @@
+**Kathy Hochul Just Upended a Lot More Than Congestion Pricing**\
+`A congestion pricing plan years in the making was suddenly postponed, threatening mass transit and ensuring continued traffic nightmares.`\
+https://nytimes.com/2024/06/06/opinion/new-york-traffic-congestion-pricing.html
+
 **From Field to Feast: At These Venues, What You Eat Is Grown on Site**\
 `The farm-to-table concept has been around for a while, but some couples expect more than simply fresh cuisine at their wedding. They want to be fully immersed in the farm experience.`\
 https://nytimes.com/2024/06/06/style/from-field-to-feast-at-these-venues-what-you-eat-is-grown-on-site.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/us/share-your-experiences-with-eviction-laws-in-i
 **‘Banel & Adama’ Review: A Parable of Two Young Lovers**\
 `The filmmaker Ramata-Toulaye Sy illuminates this elliptical story, set in unnamed Senegalese village, with daubs of strong colors and strikingly vivid imagery.`\
 https://nytimes.com/2024/06/06/movies/banel-adama-review-ramata-toulaye-sy.html
-
-**What to Do With All Those Canned Black Beans You’ve Inadvertently Stockpiled**\
-`Stir into one-pot rice and beans, tuck into enchiladas, pile up with caramelized plantains and drape over cheese grits.`\
-https://nytimes.com/2024/06/06/dining/what-to-do-with-all-those-canned-black-beans-youve-inadvertently-stockpiled.html
 
