@@ -1,3 +1,7 @@
+**How to Pick the Winner of the Belmont (or Any Other Horse Race)**\
+`Here’s what to look for, and what to avoid, when betting on a pony at the track.`\
+https://nytimes.com/2024/06/06/sports/horse-racing/belmont-betting-winning-horse.html
+
 **European Central Bank Cuts Interest Rates for First Time Since 2019**\
 `The reduction comes as inflation in the eurozone cools, prompting the E.C.B. to move before the Federal Reserve in the United States, where rates remain high.`\
 https://nytimes.com/2024/06/06/business/european-central-bank-interest-rates.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/movies/i-used-to-be-funny-review.html
 **Narendra Modi’s India**\
 `We explain what to expect from his third term.`\
 https://nytimes.com/2024/06/06/briefing/modis-india.html
-
-**The Fight Over the Next Pandemic**\
-`The deadline for a new international pandemic plan was last week. So far, negotiations have failed.`\
-https://nytimes.com/2024/06/06/podcasts/the-daily/world-health-assembly-pandemic.html
 
