@@ -1,3 +1,11 @@
+**‘Banel & Adama’ Review: A Parable of Two Young Lovers**\
+`The filmmaker Ramata-Toulaye Sy illuminates this elliptical story, set in unnamed Senegalese village, with daubs of strong colors and strikingly vivid imagery.`\
+https://nytimes.com/2024/06/06/movies/banel-adama-review-ramata-toulaye-sy.html
+
+**What to Do With All Those Canned Black Beans You’ve Inadvertently Stockpiled**\
+`Stir into one-pot rice and beans, tuck into enchiladas, pile up with caramelized plantains and drape over cheese grits.`\
+https://nytimes.com/2024/06/06/dining/what-to-do-with-all-those-canned-black-beans-youve-inadvertently-stockpiled.html
+
 **The U.N. says at least 450 people have been killed at its facilities in Gaza during the war.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/06/06/world/israel-gaza-war-hamas/the-un-says-at-least-450-people-have-been-killed-at-its-facilities-in-gaza
