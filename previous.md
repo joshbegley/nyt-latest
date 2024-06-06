@@ -22,8 +22,8 @@ https://nytimes.com/2024/06/06/science/ancient-greek-armor-marines-study.html
 `Harvard and M.I.T. no longer require applicants for teaching jobs to explain how they would serve underrepresented groups. Other schools may follow.`\
 https://nytimes.com/2024/06/06/us/politics/dei-statements-harvard-massachusetts-institute-of-technology.html
 
-**Crucial Witness in Hunter Biden Trial Has Long History With President’s Family**\
-`Hallie Biden, Hunter Biden’s onetime girlfriend and the widow of his brother, Beau, is likely to offer the most complete account of actions laid out in the indictment against him.`\
+**Crucial Witness in Hunter Biden Trial Offers Detailed Portrait of His Drug Use**\
+`Hallie Biden, Mr. Biden’s ex-girlfriend and the widow of his brother, Beau, described his self-destructive behavior around the time he applied for a gun in 2018.`\
 https://nytimes.com/2024/06/06/us/politics/hallie-biden-hunter-gun-trial-testimony.html
 
 **Here are the latest developments.**\

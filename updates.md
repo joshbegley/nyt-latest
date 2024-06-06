@@ -1,3 +1,7 @@
+**Crucial Witness in Hunter Biden Trial Offers Detailed Portrait of His Drug Use**\
+`Hallie Biden, Mr. Biden’s ex-girlfriend and the widow of his brother, Beau, described his self-destructive behavior around the time he applied for a gun in 2018.`\
+https://nytimes.com/2024/06/06/us/politics/hallie-biden-hunter-gun-trial-testimony.html
+
 **U.S. Adds Tariffs to Shield Struggling Solar Industry**\
 `American solar manufacturers are pushing for further protections for their new factories against cheaply priced imports from China.`\
 https://nytimes.com/2024/06/06/business/economy/tariffs-solar-industry-china.html
