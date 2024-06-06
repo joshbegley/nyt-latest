@@ -1,3 +1,7 @@
+**European Central Bank Cuts Interest Rates for First Time Since 2019**\
+`The reduction comes as inflation in the eurozone cools, prompting the E.C.B. to move before the Federal Reserve in the United States, where rates remain high.`\
+https://nytimes.com/2024/06/06/business/european-central-bank-interest-rates.html
+
 **Word of the Day: garner**\
 `This word has appeared in 314 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/06/06/learning/word-of-the-day-garner.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/briefing/modis-india.html
 **The Fight Over the Next Pandemic**\
 `The deadline for a new international pandemic plan was last week. So far, negotiations have failed.`\
 https://nytimes.com/2024/06/06/podcasts/the-daily/world-health-assembly-pandemic.html
-
-**Tim Scott Makes New Push to Woo Black and Hispanic Republicans**\
-`The $14 million effort by Mr. Scott’s super PAC comes as the South Carolina senator is said to be high on Donald Trump’s list of potential running mates.`\
-https://nytimes.com/2024/06/06/us/politics/tim-scott-black-hispanic-republicans-trump.html
 
