@@ -1,3 +1,7 @@
+**From Field to Feast: At These Venues, What You Eat Is Grown on Site**\
+`The farm-to-table concept has been around for a while, but some couples expect more than simply fresh cuisine at their wedding. They want to be fully immersed in the farm experience.`\
+https://nytimes.com/2024/06/06/style/from-field-to-feast-at-these-venues-what-you-eat-is-grown-on-site.html
+
 **Former N.J. Attorney General Takes the Stand in Menendez Bribery Trial**\
 `Prosecutors say Senator Robert Menendez contacted Gurbir S. Grewal in an effort to quash an insurance fraud investigation on behalf of an ally.`\
 https://nytimes.com/2024/06/06/nyregion/gurbir-grewal-robert-menendez-bribery-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/movies/banel-adama-review-ramata-toulaye-sy.html
 **What to Do With All Those Canned Black Beans You’ve Inadvertently Stockpiled**\
 `Stir into one-pot rice and beans, tuck into enchiladas, pile up with caramelized plantains and drape over cheese grits.`\
 https://nytimes.com/2024/06/06/dining/what-to-do-with-all-those-canned-black-beans-youve-inadvertently-stockpiled.html
-
-**The U.N. says at least 450 people have been killed at its facilities in Gaza during the war.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/06/06/world/israel-gaza-war-hamas/the-un-says-at-least-450-people-have-been-killed-at-its-facilities-in-gaza
 
