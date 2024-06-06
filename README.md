@@ -1,3 +1,7 @@
+**Storm Damages Homes in Maryland Amid Tornado Warnings**\
+`A handful of injuries were reported in Gaithersburg, a suburb of the nation’s capital.`\
+https://nytimes.com/2024/06/05/us/tornado-maryland-washington-dc.html
+
 **Prosecutors Use Texts to Depict Menendez and his Wife as Collaborators**\
 `Senator Robert Menendez is accused of bribery and corruption. His lawyers have attempted to shift the blame to his wife, Nadine.`\
 https://nytimes.com/2024/06/05/nyregion/robert-menendez-bribery-mercedes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/05/us/politics/biden-asylum-restrictions-laywer.html
 **The Beauty of Embracing Aging**\
 `I remind myself to relish every summer day.`\
 https://nytimes.com/2024/06/05/opinion/aging-older-family.html
-
-**Moscow Could Target Countries Supplying Weapons to Ukraine, Putin Says**\
-`President Vladimir V. Putin said that since Western governments were allowing long-range missiles to be used on Russia, it could do the same.`\
-https://nytimes.com/2024/06/05/us/putin-russia-ukraine-germany.html
 
