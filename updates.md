@@ -1,3 +1,7 @@
+**Progressives Urge Biden to Push Harder on ‘Greedflation’**\
+`It’s a moniker about corporate price increases that has bolstered some Democratic senators, and now the president is being encouraged to lean in on the issue for his economic messaging.`\
+https://nytimes.com/2024/06/06/us/politics/biden-inflation-greedflation-economy.html
+
 **Gilgo Beach Serial Killing Suspect Is Charged With 2 More Murders**\
 `Rex Heuermann, who has been accused of killing four women, has been charged with the murders of two more.`\
 https://nytimes.com/2024/06/06/nyregion/gilgo-beach-rex-heuermann.html

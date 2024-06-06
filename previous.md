@@ -1,3 +1,7 @@
+**Progressives Urge Biden to Push Harder on ‘Greedflation’**\
+`It’s a moniker about corporate price increases that has bolstered some Democratic senators, and now the president is being encouraged to lean in on the issue for his economic messaging.`\
+https://nytimes.com/2024/06/06/us/politics/biden-inflation-greedflation-economy.html
+
 **Gilgo Beach Serial Killing Suspect Is Charged With 2 More Murders**\
 `Rex Heuermann, who has been accused of killing four women, has been charged with the murders of two more.`\
 https://nytimes.com/2024/06/06/nyregion/gilgo-beach-rex-heuermann.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/us/california-cars-speeding-technology.html
 **Biden Uses D-Day Anniversary to Swat at Trump on Veterans Issues**\
 `The president’s campaign released a digital ad featuring three veterans criticizing Donald Trump as ‘a draft dodger,’ unfit to be commander in chief.`\
 https://nytimes.com/2024/06/06/us/politics/biden-trump-veterans-d-day.html
-
-**How to Pick the Winner of the Belmont (or Any Other Horse Race)**\
-`Here’s what to look for, and what to avoid, when betting on a pony at the track.`\
-https://nytimes.com/2024/06/06/sports/horse-racing/belmont-betting-winning-horse.html
 
