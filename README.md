@@ -8,7 +8,7 @@ https://nytimes.com/live/2024/06/06/world/israel-gaza-war-hamas/video-shows-isra
 
 **Bertien van Manen’s Glimpses of the World**\
 `Using point-and-shoot cameras, she traveled to China, Russia and the coal mines of Kentucky to capture everyday life.`\
-https://nytimes.com/2024/06/06/opinion/bertien-van-manens-glimpses-of-the-world.html
+https://nytimes.com/2024/06/06/arts/bertien-van-manens-glimpses-of-the-world.html
 
 **The World Heads to the Polls**\
 `Hundreds of millions of people around the world have recently voted in elections with important climate issues like extreme heat and coal dependence.`\
