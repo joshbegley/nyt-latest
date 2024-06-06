@@ -1,3 +1,11 @@
+**Harry Roland, ‘The World Trade Center Man,’ Dies at 70**\
+`Within months of the terrorist attacks of Sept. 11, 2001, and continuing almost until his death, he was a street orator hollering about that day’s loss and destruction.`\
+https://nytimes.com/2024/06/06/nyregion/harry-roland-dead.html
+
+**Israel’s Military Defends Strike on U.N. School Building, Saying Its Target Was 30 Militants**\
+`Hamas and Islamic Jihad fighters were hiding inside three classrooms, a military spokesman said.`\
+https://nytimes.com/2024/06/06/world/middleeast/israel-hamas-gaza-un-school.html
+
 **N.A.A.C.P. Calls on Biden to Halt Arms Deliveries to Israel**\
 `The announcement adds to the pressure the president is facing on the issue from leaders in the Black community, a group that is key to his re-election.`\
 https://nytimes.com/2024/06/06/us/politics/naacp-biden-arms-deliveries-israel.html
