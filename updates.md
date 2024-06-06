@@ -1,3 +1,7 @@
+**Chanel Designer Steps Down**\
+`Virginie Viard, who replaced Karl Lagerfeld at the French fashion house, spent nearly 30 years at the company.`\
+https://nytimes.com/2024/06/05/style/chanel-virginie-viard.html
+
 **Rush-Hour Delays Again Hit New Jersey Transit Commuters**\
 `A track inspection held up travelers for more than an hour, two weeks after a suspension of service stopped all Amtrak trains into New York’s Penn Station.`\
 https://nytimes.com/2024/06/05/nyregion/penn-station-delays-njtransit.html

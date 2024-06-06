@@ -1,3 +1,7 @@
+**Chanel Designer Steps Down**\
+`Virginie Viard, who replaced Karl Lagerfeld at the French fashion house, spent nearly 30 years at the company.`\
+https://nytimes.com/2024/06/05/style/chanel-virginie-viard.html
+
 **Rush-Hour Delays Again Hit New Jersey Transit Commuters**\
 `A track inspection held up travelers for more than an hour, two weeks after a suspension of service stopped all Amtrak trains into New York’s Penn Station.`\
 https://nytimes.com/2024/06/05/nyregion/penn-station-delays-njtransit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/05/us/putin-russia-ukraine-germany.html
 **Can Biden Use Trump’s Signature Issue — Immigration — Against Him?**\
 `His executive order curbing asylum aligned him with a broad swath of the public in an election year.`\
 https://nytimes.com/2024/06/05/us/politics/biden-trump-immigration.html
-
-**Trump’s Vows to Prosecute Rivals Put Rule of Law on the Ballot**\
-`Donald Trump’s promise to seek retribution challenges long-established norms. The election could hinge in part on what kind of justice system the country believes it has now and wants in the future.`\
-https://nytimes.com/2024/06/05/us/trump-retribution-justice.html
 
