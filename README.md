@@ -10,8 +10,8 @@ https://nytimes.com/2024/06/05/us/waupun-prison-warden-deaths.html
 `The shake up at the Hachette Book Group imprint comes at a time when publishers are feeling pressured by sluggish print sales and rising supply chain costs.`\
 https://nytimes.com/2024/06/05/books/hachette-layoffs.html
 
-**Storm Damages Homes in Maryland Amid Tornado Warnings**\
-`A handful of injuries were reported in Gaithersburg, a suburb of the nation’s capital.`\
+**Storm Damages Homes in Washington Suburbs Amid Tornado Warnings**\
+`A handful of injuries were reported in Gaithersburg, Md., a suburb of the nation’s capital. Baltimore is also under a tornado warning.`\
 https://nytimes.com/2024/06/05/us/tornado-maryland-washington-dc.html
 
 **Prosecutors Use Texts to Depict Menendez and His Wife as Collaborators**\

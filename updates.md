@@ -1,3 +1,7 @@
+**Review: In a Nostalgic Revival, ‘Home’ Is Where the Heart Was**\
+`Samm-Art Williams’s 1979 play about the uprooting of a Black farmer returns to Broadway for the first time.`\
+https://nytimes.com/2024/06/05/theater/home-review-roundabout-theater.html
+
 **Former Wisconsin Prison Warden and Employees Charged in Inmate Deaths**\
 `Inmates had complained about a monthslong lockdown that cut them off from family members and timely medical care.`\
 https://nytimes.com/2024/06/05/us/waupun-prison-warden-deaths.html
