@@ -1,3 +1,7 @@
+**Donald Trump, Crime and Punishment**\
+`Readers discuss various options for sentencing the former president. Also: The congestion-pricing reversal; immigration policy; fossil-free insurance.`\
+https://nytimes.com/2024/06/06/opinion/donald-trump-sentencing.html
+
 **SpaceX’s Starship Rocket Completes First Return From Space**\
 `Elon Musk’s giant rocket, which launched from Starbase in Boca Chica, Texas, survived re-entry on its fourth test flight.`\
 https://nytimes.com/video/science/space/100000009507441/spacex-starship-test-flight.html
