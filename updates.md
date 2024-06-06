@@ -1,3 +1,7 @@
+**In Paris, Using Dance to Uncover Hidden History**\
+`Benjamin Millepied, an organizer of La Ville Dansée — a daylong event in Paris and its environs — wants “to tell the invisible stories of the city.”`\
+https://nytimes.com/2024/06/06/arts/dance/ville-dansee-benjamin-millepied-paris.html
+
 **Progressives Urge Biden to Push Harder on ‘Greedflation’**\
 `It’s a moniker about corporate price increases that has bolstered some Democratic senators, and now the president is being encouraged to lean in on the issue for his economic messaging.`\
 https://nytimes.com/2024/06/06/us/politics/biden-inflation-greedflation-economy.html
