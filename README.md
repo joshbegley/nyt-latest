@@ -1,3 +1,7 @@
+**Papua New Guinea to End Search for Landslide Victims**\
+`The death toll remained unclear weeks after the tragedy, but there are signs the number of victims may have been much lower than previously thought.`\
+https://nytimes.com/2024/06/06/world/asia/papua-new-guinea-to-end-search-for-landslide-victims.html
+
 **More Than 400,000 Customers Without Power in Santiago, Chile**\
 `A tree fell on a high-voltage transmission tower early Thursday, knocking out power to parts of the Chilean capital.`\
 https://nytimes.com/2024/06/06/world/americas/chile-power-outage.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/world/europe/biden-dday-ukraine-russia.html
 **Confirm or Deny: Diane von Furstenberg Edition**\
 `The fashion designer reacts to a series of saucy statements about her grand life and career.`\
 https://nytimes.com/2024/06/06/style/confirm-or-deny-diane-von-furstenberg-edition.html
-
-**A Fashion Lioness in Winter**\
-`As she settles into her final act, Diane von Furstenberg looks back on a life of love, sex and money. “I will laugh when I die,” she says.`\
-https://nytimes.com/2024/06/06/style/a-fashion-lioness-in-winter.html
 
