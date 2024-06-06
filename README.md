@@ -1,3 +1,7 @@
+**World War II Veteran Dies at 102 While Traveling to D-Day Event in France**\
+`Robert Persichitti witnessed the raising of the U.S. flag at Iwo Jima. He died at a hospital in Germany.`\
+https://nytimes.com/2024/06/05/us/wwii-veteran-dies-dday-event.html
+
 **Kennedy Calls for Secret Service Detail on Anniversary of Father’s Killing**\
 `Robert F. Kennedy Jr., the independent presidential candidate, criticized the Biden administration for denying him Secret Service protection.`\
 https://nytimes.com/2024/06/05/us/politics/rfk-jr-secret-service.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/05/style/chanel-virginie-viard.html
 **Rush-Hour Delays Again Hit New Jersey Transit Commuters**\
 `A track inspection held up travelers for more than an hour, two weeks after a suspension of service stopped all Amtrak trains into New York’s Penn Station.`\
 https://nytimes.com/2024/06/05/nyregion/penn-station-delays-njtransit.html
-
-**Hunter Biden’s Laptop Makes a Brief Appearance at His Trial**\
-`As the prosecutor waved the silver Apple MacBook Pro, the jury gazed at it as if expecting sparks to fly from it.`\
-https://nytimes.com/2024/06/05/us/politics/hunter-biden-trial.html
 
