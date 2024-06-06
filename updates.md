@@ -1,3 +1,7 @@
+**Video Analysis Shows Israeli Strike Used Bomb That Appeared to Be U.S.-Made**\
+`A video of munitions debris filmed at the school complex in central Gaza where thousands of Palestinians were sheltering showed remnants of a GBU-39, a bomb that is designed and manufactured by Boeing.`\
+https://nytimes.com/2024/06/06/world/middleeast/israel-gaza-strike-us-bomb.html
+
 **The N-Word Would Work Differently for Trump**\
 `Black people already know who he is and what they think of him.`\
 https://nytimes.com/2024/06/06/opinion/n-word-trump.html
