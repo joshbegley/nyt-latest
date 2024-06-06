@@ -1,3 +1,7 @@
+**Have Wine for Breakfast, Put On a 51-Pound Suit and Get to the Battlefield**\
+`Greek soldiers recreated ancient life conditions in a study to determine if the Dendra panoply, armor used by the Mycenaeans some 3,500 years ago, could stand up to combat. Study authors found it did.`\
+https://nytimes.com/2024/06/06/science/ancient-greek-armor-marines-study.html
+
 **Is This the End for Mandatory D.E.I. Statements?**\
 `Harvard and M.I.T. no longer require applicants for teaching jobs to explain how they would serve underrepresented groups. Other schools may follow.`\
 https://nytimes.com/2024/06/06/us/politics/dei-statements-harvard-massachusetts-institute-of-technology.html

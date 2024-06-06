@@ -1,3 +1,7 @@
+**Have Wine for Breakfast, Put On a 51-Pound Suit and Get to the Battlefield**\
+`Greek soldiers recreated ancient life conditions in a study to determine if the Dendra panoply, armor used by the Mycenaeans some 3,500 years ago, could stand up to combat. Study authors found it did.`\
+https://nytimes.com/2024/06/06/science/ancient-greek-armor-marines-study.html
+
 **Is This the End for Mandatory D.E.I. Statements?**\
 `Harvard and M.I.T. no longer require applicants for teaching jobs to explain how they would serve underrepresented groups. Other schools may follow.`\
 https://nytimes.com/2024/06/06/us/politics/dei-statements-harvard-massachusetts-institute-of-technology.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/sports/horse-racing/belmont-betting-winning-horse
 **European Central Bank Cuts Interest Rates for First Time Since 2019**\
 `The reduction comes as inflation in the eurozone cools, prompting the E.C.B. to move before the Federal Reserve in the United States, where rates remain high.`\
 https://nytimes.com/2024/06/06/business/european-central-bank-interest-rates.html
-
-**Word of the Day: garner**\
-`This word has appeared in 314 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/06/06/learning/word-of-the-day-garner.html
 
