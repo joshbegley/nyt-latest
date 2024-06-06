@@ -1,3 +1,11 @@
+**Crucial Witness in Hunter Biden Trial Has Long History With President’s Family**\
+`Hallie Biden, Hunter Biden’s onetime girlfriend and the widow of his brother, Beau, is likely to offer the most complete account of actions laid out in the indictment against him.`\
+https://nytimes.com/2024/06/06/us/politics/hallie-biden-hunter-gun-trial-testimony.html
+
+**Here are the latest developments.**\
+`By Aaron Boxerman and Victoria Kim`\
+https://nytimes.com/live/2024/06/06/world/israel-gaza-war-hamas/here-are-the-latest-developments
+
 **Election Updates: Tim Scott made a new push to woo Black and Hispanic voters.**\
 ``\
 https://nytimes.com/live/2024/06/06/us/trump-biden-election
