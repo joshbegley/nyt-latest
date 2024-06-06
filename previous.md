@@ -1,3 +1,15 @@
+**10 Books About L.G.B.T.Q. Mental Health and Well-Being**\
+`Therapists and other experts recommend their favorite titles.`\
+https://nytimes.com/2024/06/06/well/mind/lgbtq-books-mental-health.html
+
+**‘Becoming Karl Lagerfeld’ Seeks to Capture the Man Behind the Glasses**\
+`Set in the 1970s, the series depicts the designer’s personal and professional evolution and revolves around an intense love story.`\
+https://nytimes.com/2024/06/06/arts/television/becoming-karl-lagerfeld.html
+
+**Judge Orders Bannon to Surrender for Prison Term by July 1**\
+`The outspoken Trump ally was convicted two years ago of contempt of Congress for refusing to comply with a subpoena from the House Jan. 6 committee. He faces a four-month sentence.`\
+https://nytimes.com/2024/06/06/us/politics/steve-bannon-surrender.html
+
 **Donald Trump, Crime and Punishment**\
 `Readers discuss various options for sentencing the former president. Also: The congestion-pricing reversal; immigration policy; fossil-free insurance.`\
 https://nytimes.com/2024/06/06/opinion/donald-trump-sentencing.html
