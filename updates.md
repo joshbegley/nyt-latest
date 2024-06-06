@@ -1,3 +1,7 @@
+**Train Crash in Czech Republic Kills 4, Injures More Than 20**\
+`The passenger train was traveling overnight when it hit a freight train.`\
+https://nytimes.com/2024/06/06/world/europe/czech-train-crash.html
+
 **Maryland Tornado Sweeps Through Traffic**\
 `At an intersection in Gaithersburg, strong winds shook cars, sent debris flying and caused a power line to spark.`\
 https://nytimes.com/video/us/100000009507112/tornado-maryland-gaithersburg-traffic.html

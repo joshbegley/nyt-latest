@@ -1,3 +1,7 @@
+**Train Crash in Czech Republic Kills 4, Injures More Than 20**\
+`The passenger train was traveling overnight when it hit a freight train.`\
+https://nytimes.com/2024/06/06/world/europe/czech-train-crash.html
+
 **Maryland Tornado Sweeps Through Traffic**\
 `At an intersection in Gaithersburg, strong winds shook cars, sent debris flying and caused a power line to spark.`\
 https://nytimes.com/video/us/100000009507112/tornado-maryland-gaithersburg-traffic.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/world/europe/dday-80th-anniversary-veterans-remem
 **Inside the Base Where Israel Has Detained Thousands of Gazans**\
 `Since Israel invaded Gaza, the Sde Teiman military base has filled with blindfolded, handcuffed detainees, held without charge or legal representation.`\
 https://nytimes.com/2024/06/06/world/middleeast/israel-gaza-detention-base.html
-
-**The Life, Death and Rebirth of an A.I.-Generated News Outlet**\
-`BNN Breaking had millions of readers, an international team of journalists and a publishing deal with Microsoft. But it was just an A.I. chop shop.`\
-https://nytimes.com/2024/06/06/technology/bnn-breaking-ai-generated-news.html
 
