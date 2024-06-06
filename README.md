@@ -1,3 +1,7 @@
+**Prosecutors Use Texts to Depict Menendez and his Wife as Collaborators**\
+`Senator Robert Menendez is accused of bribery and corruption. His lawyers have attempted to shift the blame to his wife, Nadine.`\
+https://nytimes.com/2024/06/05/nyregion/robert-menendez-bribery-mercedes.html
+
 **Chanel Designer Steps Down**\
 `Virginie Viard, who replaced Karl Lagerfeld at the French fashion house, spent nearly 30 years at the company.`\
 https://nytimes.com/2024/06/05/style/chanel-virginie-viard.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/05/opinion/aging-older-family.html
 **Moscow Could Target Countries Supplying Weapons to Ukraine, Putin Says**\
 `President Vladimir V. Putin said that since Western governments were allowing long-range missiles to be used on Russia, it could do the same.`\
 https://nytimes.com/2024/06/05/us/putin-russia-ukraine-germany.html
-
-**Can Biden Use Trump’s Signature Issue — Immigration — Against Him?**\
-`His executive order curbing asylum aligned him with a broad swath of the public in an election year.`\
-https://nytimes.com/2024/06/05/us/politics/biden-trump-immigration.html
 
