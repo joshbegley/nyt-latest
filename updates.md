@@ -1,3 +1,7 @@
+**Maryland Tornado Sweeps Through Traffic**\
+`At an intersection in Gaithersburg, strong winds shook cars, sent debris flying and caused a power line to spark.`\
+https://nytimes.com/video/us/100000009507112/tornado-maryland-gaithersburg-traffic.html
+
 **Europe Is Coming Alive**\
 `The European Union’s democratic deficit is slowly beginning to evaporate.`\
 https://nytimes.com/2024/06/06/opinion/elections-europe-eu.html
