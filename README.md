@@ -1,3 +1,7 @@
+**Mike Lynch, U.K. Tech Mogul, Is Acquitted of Fraud**\
+`Mr. Lynch, who was accused of defrauding Hewlett-Packard after it paid $11 billion for his software company, spent a decade working to clear his name.`\
+https://nytimes.com/2024/06/06/business/dealbook/mike-lynch-autonomy-fraud-hp.html
+
 **In Normandy, Biden Linked the War in Ukraine With D-Day**\
 `Also, an Israeli strike killed dozens in central Gaza. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/06/06/briefing/biden-speech-d-day-israel-gaza-strike.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009508652/what-to-know-about-bidens-
 **MAGA Turns Against the Constitution**\
 `Not everything is in crisis.`\
 https://nytimes.com/2024/06/06/opinion/maga-constitution-trump.html
-
-**Friday Briefing: Narendra Modi’s India**\
-`We explain what to expect from his third term.`\
-https://nytimes.com/2024/06/06/world/asia/india-dday-strike-gaza-swiatek-asia.html
 
