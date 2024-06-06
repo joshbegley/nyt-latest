@@ -1,3 +1,7 @@
+**Modi’s India**\
+`We explain what to expect from his third term.`\
+https://nytimes.com/2024/06/06/briefing/modis-india.html
+
 **The Fight Over the Next Pandemic**\
 `The deadline for a new international pandemic plan was last week. So far, negotiations have failed.`\
 https://nytimes.com/2024/06/06/podcasts/the-daily/world-health-assembly-pandemic.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/opinion/heat-wave-air-conditioning.html
 **‘It’s Not 2016 Anymore’: Trump Finds Friends in Silicon Valley**\
 `Donald Trump is heading to San Francisco for a fund-raiser, and his host, the tech entrepreneur David Sacks, hopes to portray Silicon Valley as a more MAGA-welcoming place.`\
 https://nytimes.com/2024/06/06/us/politics/trump-sacks-silicon-valley-donors.html
-
-**A French Expat Tries Buying in Dubai. What Could She Find for Under $1 Million?**\
-`After six years in the United Arab Emirates’ most populous city, a public-relations pro decided to put down roots and invest long-term. Here’s what she found.`\
-https://nytimes.com/interactive/2024/06/06/realestate/dubai-apartments-sale-hunt.html
 

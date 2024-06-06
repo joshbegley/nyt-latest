@@ -1,3 +1,7 @@
+**Modi’s India**\
+`We explain what to expect from his third term.`\
+https://nytimes.com/2024/06/06/briefing/modis-india.html
+
 **The Fight Over the Next Pandemic**\
 `The deadline for a new international pandemic plan was last week. So far, negotiations have failed.`\
 https://nytimes.com/2024/06/06/podcasts/the-daily/world-health-assembly-pandemic.html
