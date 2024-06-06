@@ -1,3 +1,7 @@
+**U.S. Adds Tariffs to Shield Struggling Solar Industry**\
+`American solar manufacturers are pushing for further protections for their new factories against cheaply priced imports from China.`\
+https://nytimes.com/2024/06/06/business/economy/tariffs-solar-industry-china.html
+
 **In Paris, Using Dance to Uncover Hidden History**\
 `Benjamin Millepied, an organizer of La Ville Dansée — a daylong event in Paris and its environs — wants “to tell the invisible stories of the city.”`\
 https://nytimes.com/2024/06/06/arts/dance/ville-dansee-benjamin-millepied-paris.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/06/us/trump-biden-election
 **Father’s Day Gift Guide: Colorful Watches, Japanese Toolboxes and More**\
 `What T Magazine’s editors and contributors are eyeing for our own paternal figures, including Western gear and mini synthesizers.`\
 https://nytimes.com/2024/06/06/t-magazine/fathers-day-gift-guide-watches-cowboy.html
-
-**Your Car May Soon Have to Warn You When You Are Speeding**\
-`California lawmakers are considering a bill that would require all new cars to be equipped to signal drivers when they exceed the speed limit by more than 10 m.p.h.`\
-https://nytimes.com/2024/06/06/us/california-cars-speeding-technology.html
 
