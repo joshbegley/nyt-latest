@@ -2,13 +2,13 @@
 `Reporting from more than 80 countries, he combined close observation with sharp conclusions that pointed the finger at misdeeds or abuse of power. He was an author as well.`\
 https://nytimes.com/2024/06/06/business/media/td-allman-dead.html
 
-**Video shows Israel used a U.S.-made bomb in a deadly strike on a shelter for displaced Palestinians.**\
+**Video analysis shows Israel’s strike used a bomb that appeared to be U.S.-made.**\
 `By Christiaan Triebert and Neil Collier`\
 https://nytimes.com/live/2024/06/06/world/israel-gaza-war-hamas/video-shows-israel-used-a-us-made-bomb-in-a-deadly-strike-on-a-shelter-for-displaced-palestinians
 
 **Bertien van Manen’s Glimpses of the World**\
 `Using point-and-shoot cameras, she traveled to China, Russia and the coal mines of Kentucky to capture everyday life.`\
-https://nytimes.com/2024/06/06/opinion/bertien-van-manens-glimpses-of-the-world.html
+https://nytimes.com/2024/06/06/arts/bertien-van-manens-glimpses-of-the-world.html
 
 **The World Heads to the Polls**\
 `Hundreds of millions of people around the world have recently voted in elections with important climate issues like extreme heat and coal dependence.`\
