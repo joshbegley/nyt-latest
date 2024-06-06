@@ -1,3 +1,5 @@
+**C.I.A. director holds talks in Qatar, and other news.**\
+
 **Papua New Guinea to End Search for Landslide Victims**\
 `The death toll remained unclear weeks after the tragedy, but there are signs the number of victims may have been much lower than previously thought.`\
 https://nytimes.com/2024/06/06/world/asia/papua-new-guinea-to-end-search-for-landslide-victims.html
