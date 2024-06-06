@@ -1,3 +1,7 @@
+**Search Underway in Greece for British TV Doctor Michael Mosley**\
+`Mr. Mosely, a popular science journalist, disappeared while on a walk on the Greek island of Symi. He was last seen at a bus stop on Wednesday afternoon.`\
+https://nytimes.com/2024/06/06/world/europe/michael-mosley-missing-greece-new.html
+
 **A Beginners Guide to Male Hair Loss**\
 `Male-pattern baldness hits half of men by age 50. Here’s what to know about treatment and prevention.``\
 https://nytimes.com/2024/06/06/well/live/hair-loss-treatment-men.html

@@ -1,3 +1,7 @@
+**Search Underway in Greece for British TV Doctor Michael Mosley**\
+`Mr. Mosely, a popular science journalist, disappeared while on a walk on the Greek island of Symi. He was last seen at a bus stop on Wednesday afternoon.`\
+https://nytimes.com/2024/06/06/world/europe/michael-mosley-missing-greece-new.html
+
 **A Beginners Guide to Male Hair Loss**\
 `Male-pattern baldness hits half of men by age 50. Here’s what to know about treatment and prevention.``\
 https://nytimes.com/2024/06/06/well/live/hair-loss-treatment-men.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/science/ancient-greek-armor-marines-study.html
 **Is This the End for Mandatory D.E.I. Statements?**\
 `Harvard and M.I.T. no longer require applicants for teaching jobs to explain how they would serve underrepresented groups. Other schools may follow.`\
 https://nytimes.com/2024/06/06/us/politics/dei-statements-harvard-massachusetts-institute-of-technology.html
-
-**Crucial Witness in Hunter Biden Trial Offers Detailed Portrait of His Drug Use**\
-`Hallie Biden, Mr. Biden’s ex-girlfriend and the widow of his brother, Beau, described his self-destructive behavior around the time he applied for a gun in 2018.`\
-https://nytimes.com/2024/06/06/us/politics/hallie-biden-hunter-gun-trial-testimony.html
 
