@@ -1,3 +1,7 @@
+**Biden Shut the Border to Asylum Seekers. The Question Is Whether the Order Can Be Enforced.**\
+`There are still ways for people to cross the U.S.-Mexico border illegally, particularly without any new resources to help guard the 2,000-mile frontier.`\
+https://nytimes.com/2024/06/06/us/politics/biden-asylum-seekers-enforcement.html
+
 **Samsung Faces First Strike in Its History**\
 `The South Korean tech giant is at odds with some of its employees as it is trying to reassure investors that its memory chip business can meet demand.`\
 https://nytimes.com/2024/06/06/business/samsung-first-strike-chips.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000009509097/zelensky-dday-veteran.htm
 **The U.S. will ‘wait and see’ how Israel details the strike before calling for further action, an official says.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2024/06/06/world/israel-gaza-war-hamas/the-us-will-wait-and-see-how-israel-details-the-strike-before-calling-for-further-action-an-official-says
-
-**U.S. Official Responds to Israeli Strike on a U.N. School in Gaza**\
-`Matthew Miller, a State Department spokesman, said the United States was waiting on more information about the strike in central Gaza before considering any calls for further action.`\
-https://nytimes.com/video/world/middleeast/100000009509017/matt-miller-un-school-airstrike.html
 
