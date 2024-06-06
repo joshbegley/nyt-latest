@@ -1,3 +1,11 @@
+**‘Longing’ Review: A Test of Paternity**\
+`Richard Gere plays it way too cool as a man learning about the son he didn’t know he had.`\
+https://nytimes.com/2024/06/06/movies/longing-review.html
+
+**‘I Used to Be Funny’ Review: Bruising Punchlines**\
+`The film, which stars Rachel Sennott as a stand-up comedian, looks at the aftereffects of trauma on a character who wields quips as both weapon and shield.`\
+https://nytimes.com/2024/06/06/movies/i-used-to-be-funny-review.html
+
 **Narendra Modi’s India**\
 `We explain what to expect from his third term.`\
 https://nytimes.com/2024/06/06/briefing/modis-india.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/06/crosswords/wordle-review-1084.html
 **The Lost Art of the Negative**\
 `Film cameras are seeing another renaissance. But some new photographers are leaving something behind: the tea-colored originals that determine the life of pictures.`\
 https://nytimes.com/2024/06/06/arts/film-photography-negatives.html
-
-**Air-Conditioning Gives Us a False Sense of Security**\
-`Why heat waves are the harbinger of what’s to come.`\
-https://nytimes.com/2024/06/06/opinion/heat-wave-air-conditioning.html
-
-**‘It’s Not 2016 Anymore’: Trump Finds Friends in Silicon Valley**\
-`Donald Trump is heading to San Francisco for a fund-raiser, and his host, the tech entrepreneur David Sacks, hopes to portray Silicon Valley as a more MAGA-welcoming place.`\
-https://nytimes.com/2024/06/06/us/politics/trump-sacks-silicon-valley-donors.html
 

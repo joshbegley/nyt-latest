@@ -1,3 +1,11 @@
+**‘Longing’ Review: A Test of Paternity**\
+`Richard Gere plays it way too cool as a man learning about the son he didn’t know he had.`\
+https://nytimes.com/2024/06/06/movies/longing-review.html
+
+**‘I Used to Be Funny’ Review: Bruising Punchlines**\
+`The film, which stars Rachel Sennott as a stand-up comedian, looks at the aftereffects of trauma on a character who wields quips as both weapon and shield.`\
+https://nytimes.com/2024/06/06/movies/i-used-to-be-funny-review.html
+
 **Narendra Modi’s India**\
 `We explain what to expect from his third term.`\
 https://nytimes.com/2024/06/06/briefing/modis-india.html
