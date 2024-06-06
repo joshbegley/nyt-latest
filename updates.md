@@ -1,3 +1,7 @@
+**Samsung Faces First Strike in Its 86 Years of Business**\
+`The South Korean tech giant is at odds with some of its employees as it is trying to reassure investors that its memory chip business can meet demand.`\
+https://nytimes.com/2024/06/06/business/samsung-first-strike-chips.html
+
 **Jill Biden, a Fierce Protector of Hunter Biden, Leaves France for Wilmington**\
 `The first lady’s departure from a high-profile foreign trip was a dramatic illustration of the Biden family’s personal priorities. She is expected to return to France on Saturday.`\
 https://nytimes.com/2024/06/06/us/politics/hunter-biden-jill-biden-gun-trial.html
