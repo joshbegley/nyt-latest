@@ -1,3 +1,7 @@
+**Bird With Vestigial Wings**\
+`Michael Lieberman is not the person he used to be.`\
+https://nytimes.com/2024/06/05/crosswords/daily-puzzle-2024-06-06.html
+
 **Review: In a Nostalgic Revival, ‘Home’ Is Where the Heart Was**\
 `Samm-Art Williams’s 1979 play about the uprooting of a Black farmer returns to Broadway for the first time.`\
 https://nytimes.com/2024/06/05/theater/home-review-roundabout-theater.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/05/us/politics/hunter-biden-trial.html
 **New York Is the Toughest Place in the Country to Apply for Asylum**\
 `Tens of thousands of migrants have flocked to New York City in recent years, seeking one of the few legal pathways to permanent residency in the United States.`\
 https://nytimes.com/2024/06/05/nyregion/new-york-asylum.html
-
-**Clash Over Phone Hacking Article Preceded Exit of Washington Post Editor**\
-`Will Lewis, the chief executive of The Washington Post, objected to coverage of a legal development involving him in a phone hacking case.`\
-https://nytimes.com/2024/06/05/business/media/washington-post-buzbee-lewis.html
 
