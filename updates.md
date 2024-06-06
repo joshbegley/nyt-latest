@@ -1,3 +1,7 @@
+**Kennedy Calls for Secret Service Detail on Anniversary of Father’s Killing**\
+`Robert F. Kennedy Jr., the independent presidential candidate, criticized the Biden administration for denying him Secret Service protection.`\
+https://nytimes.com/2024/06/05/us/politics/rfk-jr-secret-service.html
+
 **Bird With Vestigial Wings**\
 `Michael Lieberman is not the person he used to be.`\
 https://nytimes.com/2024/06/05/crosswords/daily-puzzle-2024-06-06.html
