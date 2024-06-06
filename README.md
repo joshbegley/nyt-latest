@@ -1,3 +1,7 @@
+**Boeing’s Starliner Overcomes Malfunctioning Thrusters to Dock at Space Station**\
+`Two NASA astronauts, Butch Wilmore and Suni Williams, will soon open the hatch of the spacecraft and board the outpost in orbit.`\
+https://nytimes.com/2024/06/06/science/boeing-starliner-space-station-docking.html
+
 **The N-Word Would Work Differently for Trump**\
 `Black people already know who he is and what they think of him.`\
 https://nytimes.com/2024/06/06/opinion/n-word-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/arts/bertien-van-manens-glimpses-of-the-world.htm
 **The World Heads to the Polls**\
 `Hundreds of millions of people around the world have recently voted in elections with important climate issues like extreme heat and coal dependence.`\
 https://nytimes.com/2024/06/06/climate/global-elections-climate-change-policy.html
-
-**A Condemned Killer Thought, ‘This Is My Day to Die.’ Then It Wasn’t.**\
-`At 73, Thomas Creech is one of the few people to have survived a botched execution. Now he waits to see if the state will try again.`\
-https://nytimes.com/2024/06/06/us/thomas-creech-idaho-botched-execution.html
 
