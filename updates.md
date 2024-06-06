@@ -1,3 +1,7 @@
+**Johnson Names Hard-Right Trump Allies to Intelligence Panel, Prompting Concerns**\
+`Both Representatives Scott Perry of Pennsylvania and Ronny Jackson of Texas are close allies of the former president who have faced legal and ethical issues.`\
+https://nytimes.com/2024/06/06/us/politics/perry-jackson-house-intelligence.html
+
 **30 Shows to Watch This Summer**\
 `Returning favorites include “The Bear,” “House of the Dragon” and “Only Murders in the Building.” Among the new arrivals? Jake Gyllenhaal and Natalie Portman.`\
 https://nytimes.com/2024/06/06/arts/television/summer-tv-premieres-house-of-the-dragon-the-bear.html
