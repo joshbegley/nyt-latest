@@ -1,3 +1,11 @@
+**Mitsuko Uchida Says What She Thinks**\
+`The star pianist sat for a candid, occasionally tense interview in which she discussed creativity, the pandemic and why she doesn’t conduct Beethoven.`\
+https://nytimes.com/2024/06/06/arts/music/mitsuko-uchida-ojai-festival.html
+
+**Gazans Weep and Pray Over Loved Ones Killed in Attack on Former School**\
+`The deadly strike on a United Nations school-turned-shelter is a bitter reminder, Gazans say, that each place they flee eventually gets caught up in the bloodshed.`\
+https://nytimes.com/2024/06/06/world/middleeast/gaza-un-school-strike.html
+
 **The Truth About Prebiotic Sodas**\
 `Are they actually good for your gut health?`\
 https://nytimes.com/2024/06/06/well/prebiotic-soda-poppi-olipop.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/06/business/economy/tariffs-solar-industry-china.htm
 **In Paris, Using Dance to Uncover Hidden History**\
 `Benjamin Millepied, an organizer of La Ville Dansée — a daylong event in Paris and its environs — wants “to tell the invisible stories of the city.”`\
 https://nytimes.com/2024/06/06/arts/dance/ville-dansee-benjamin-millepied-paris.html
-
-**Progressives Urge Biden to Push Harder on ‘Greedflation’**\
-`It’s a moniker about corporate price increases that has bolstered some Democratic senators, and now the president is being encouraged to lean in on the issue for his economic messaging.`\
-https://nytimes.com/2024/06/06/us/politics/biden-inflation-greedflation-economy.html
-
-**Gilgo Beach Serial Killing Suspect Is Charged With 2 More Murders**\
-`Rex Heuermann, who has been accused of killing four women, has been charged with the murders of two more.`\
-https://nytimes.com/2024/06/06/nyregion/gilgo-beach-rex-heuermann.html
 

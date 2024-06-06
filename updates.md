@@ -1,3 +1,11 @@
+**Mitsuko Uchida Says What She Thinks**\
+`The star pianist sat for a candid, occasionally tense interview in which she discussed creativity, the pandemic and why she doesn’t conduct Beethoven.`\
+https://nytimes.com/2024/06/06/arts/music/mitsuko-uchida-ojai-festival.html
+
+**Gazans Weep and Pray Over Loved Ones Killed in Attack on Former School**\
+`The deadly strike on a United Nations school-turned-shelter is a bitter reminder, Gazans say, that each place they flee eventually gets caught up in the bloodshed.`\
+https://nytimes.com/2024/06/06/world/middleeast/gaza-un-school-strike.html
+
 **The Truth About Prebiotic Sodas**\
 `Are they actually good for your gut health?`\
 https://nytimes.com/2024/06/06/well/prebiotic-soda-poppi-olipop.html
