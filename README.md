@@ -1,3 +1,7 @@
+**New Jersey’s Leaders Celebrate Shelving of Congestion Pricing**\
+`But transit advocates said the suspension of the tolling program was no victory for the state’s beleaguered commuters.`\
+https://nytimes.com/2024/06/06/nyregion/nj-congestion-pricing-hochul.html
+
 **Forty Years Later, Biden Seeks to Echo Reagan’s Legacy of American Leadership**\
 `At Pointe du Hoc in Normandy, President Biden plans to follow one of the former president’s most iconic speeches with his own testimonial to democracy and the need to resist isolationism.`\
 https://nytimes.com/2024/06/06/us/politics/biden-reagan-normandy-dday-speech.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/business/media/washington-post-will-lewis-npr.htm
 **T.D. Allman, Assertive Globe-Trotting Journalist, Dies at 79**\
 `Reporting from more than 80 countries, he combined close observation with sharp conclusions that pointed the finger at misdeeds or abuse of power. He was an author as well.`\
 https://nytimes.com/2024/06/06/business/media/td-allman-dead.html
-
-**Video Analysis Shows Israeli Strike Used Bomb That Appeared to Be U.S.-Made**\
-`A video of munitions debris filmed at the school complex in central Gaza where thousands of Palestinians were sheltering showed remnants of a GBU-39, a bomb that is designed and manufactured by Boeing.`\
-https://nytimes.com/2024/06/06/world/middleeast/israel-gaza-strike-us-bomb.html
 
