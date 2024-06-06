@@ -1,3 +1,7 @@
+**New Jersey’s Leaders Celebrate Shelving of Congestion Pricing**\
+`But transit advocates said the suspension of the tolling program was no victory for the state’s beleaguered commuters.`\
+https://nytimes.com/2024/06/06/nyregion/nj-congestion-pricing-hochul.html
+
 **Forty Years Later, Biden Seeks to Echo Reagan’s Legacy of American Leadership**\
 `At Pointe du Hoc in Normandy, President Biden plans to follow one of the former president’s most iconic speeches with his own testimonial to democracy and the need to resist isolationism.`\
 https://nytimes.com/2024/06/06/us/politics/biden-reagan-normandy-dday-speech.html
