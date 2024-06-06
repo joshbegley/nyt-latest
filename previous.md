@@ -1,3 +1,7 @@
+**‘Queenie’ Is a Fun Coming-of-Age Show**\
+`This smart and poppy British series melds the good parts of the semi-autobiographical sadcom with more predictable rom-com traditions.`\
+https://nytimes.com/2024/06/06/arts/television/queenie-hulu.html
+
 **New Jersey’s Leaders Celebrate Shelving of Congestion Pricing**\
 `But transit advocates said the suspension of the tolling program was no victory for the state’s beleaguered commuters.`\
 https://nytimes.com/2024/06/06/nyregion/nj-congestion-pricing-hochul.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/us/politics/trump-trial-next-cases.html
 **Washington Post C.E.O. Promised Interview for Ignoring Scandal, NPR Reporter Says**\
 `David Folkenflik of NPR wrote that the offer, in exchange for agreeing to stop his coverage of a phone hacking scandal, was made “repeatedly — and heatedly.”`\
 https://nytimes.com/2024/06/06/business/media/washington-post-will-lewis-npr.html
-
-**T.D. Allman, Assertive Globe-Trotting Journalist, Dies at 79**\
-`Reporting from more than 80 countries, he combined close observation with sharp conclusions that pointed the finger at misdeeds or abuse of power. He was an author as well.`\
-https://nytimes.com/2024/06/06/business/media/td-allman-dead.html
 
