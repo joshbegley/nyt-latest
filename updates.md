@@ -1,3 +1,11 @@
+**Word of the Day: garner**\
+`This word has appeared in 314 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/06/06/learning/word-of-the-day-garner.html
+
+**Regulators Take on the Giants of A.I.**\
+`The Federal Trade Commission and Justice Department are set to proceed with investigations into the dominance of Nvidia, Microsoft and OpenAI.`\
+https://nytimes.com/2024/06/06/business/dealbook/antitrust-justice-ftc-nvidia-microsoft-openai.html
+
 **Jamaal Bowman Lands Endorsement From Elizabeth Warren**\
 `Locked in a hotly contested primary against George Latimer, Mr. Bowman got a lifeline from Ms. Warren, a progressive senator from Massachusetts.`\
 https://nytimes.com/2024/06/06/us/politics/jamaal-bowman-elizabeth-warren.html
