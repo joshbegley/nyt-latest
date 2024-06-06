@@ -1,3 +1,7 @@
+**Eight Legs and the Size of a Hand: All About the Joro Spider**\
+`Scientists expect the large, brightly colored spider to arrive in the Northeast sometime this year.`\
+https://nytimes.com/2024/06/06/nyregion/joro-spiders-invasion.html
+
 **Woman Who Says She Inspired ‘Baby Reindeer’ Character Sues Netflix**\
 `Fiona Harvey claims that the series, which has been promoted as based on a true story, defamed her by basing the character Martha, a convicted stalker, on her.`\
 https://nytimes.com/2024/06/06/arts/baby-reindeer-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/briefing/biden-speech-d-day-israel-gaza-strike.ht
 **Does Gov. Hochul, a Buffalo Native, Really Get New York City?**\
 `Governor Hochul is more of an outsider to New York City than most of her predecessors. Critics say that put her at a disadvantage in dealing with congestion pricing.`\
 https://nytimes.com/2024/06/06/nyregion/hochul-congestion-pricing.html
-
-**Israeli Strike Kills Dozens at Civilian Shelter in Gaza**\
-`The Israeli military said it had been targeting militants who were hiding in the complex in an effort to evade attack. The former U.N. school was housing 6,000 displaced Gazans.`\
-https://nytimes.com/2024/06/06/world/middleeast/israel-gaza-school-killing.html
 

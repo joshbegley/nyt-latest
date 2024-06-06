@@ -1,3 +1,7 @@
+**Eight Legs and the Size of a Hand: All About the Joro Spider**\
+`Scientists expect the large, brightly colored spider to arrive in the Northeast sometime this year.`\
+https://nytimes.com/2024/06/06/nyregion/joro-spiders-invasion.html
+
 **Woman Who Says She Inspired ‘Baby Reindeer’ Character Sues Netflix**\
 `Fiona Harvey claims that the series, which has been promoted as based on a true story, defamed her by basing the character Martha, a convicted stalker, on her.`\
 https://nytimes.com/2024/06/06/arts/baby-reindeer-lawsuit.html
