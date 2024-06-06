@@ -1,3 +1,11 @@
+**Crucial Witness in Hunter Biden Trial Has Long History With President’s Family**\
+`Hallie Biden, Hunter Biden’s onetime girlfriend and the widow of his brother, Beau, is likely to offer the most complete account of actions laid out in the indictment against him.`\
+https://nytimes.com/2024/06/06/us/politics/hallie-biden-hunter-gun-trial-testimony.html
+
+**Here are the latest developments.**\
+`By Aaron Boxerman and Victoria Kim`\
+https://nytimes.com/live/2024/06/06/world/israel-gaza-war-hamas/here-are-the-latest-developments
+
 **Election Updates: Tim Scott made a new push to woo Black and Hispanic voters.**\
 ``\
 https://nytimes.com/live/2024/06/06/us/trump-biden-election
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/06/learning/word-of-the-day-garner.html
 **Regulators Take on the Giants of A.I.**\
 `The Federal Trade Commission and Justice Department are set to proceed with investigations into the dominance of Nvidia, Microsoft and OpenAI.`\
 https://nytimes.com/2024/06/06/business/dealbook/antitrust-justice-ftc-nvidia-microsoft-openai.html
-
-**Jamaal Bowman Lands Endorsement From Elizabeth Warren**\
-`Locked in a hotly contested primary against George Latimer, Mr. Bowman got a lifeline from Ms. Warren, a progressive senator from Massachusetts.`\
-https://nytimes.com/2024/06/06/us/politics/jamaal-bowman-elizabeth-warren.html
-
-**When Will the Heat End? Western U.S. Braces for Peak Temperatures.**\
-`Nearly 19 million people across the Southwest were under an excessive heat warning Thursday, when several cities were expected to tie or even break heat records.`\
-https://nytimes.com/2024/06/06/weather/heat-wave-forecast-california-nevada-arizona.html
 
