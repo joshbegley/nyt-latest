@@ -1,3 +1,7 @@
+**Prosecutors Use Texts to Depict Menendez and his Wife as Collaborators**\
+`Senator Robert Menendez is accused of bribery and corruption. His lawyers have attempted to shift the blame to his wife, Nadine.`\
+https://nytimes.com/2024/06/05/nyregion/robert-menendez-bribery-mercedes.html
+
 **Chanel Designer Steps Down**\
 `Virginie Viard, who replaced Karl Lagerfeld at the French fashion house, spent nearly 30 years at the company.`\
 https://nytimes.com/2024/06/05/style/chanel-virginie-viard.html
