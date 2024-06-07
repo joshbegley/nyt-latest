@@ -1,3 +1,7 @@
+**‘Queenie’ Captures Black British Womanhood, in Its Mess and Glory**\
+`The coming-of-age show, streaming on Hulu, follows a 25-year-old living in south London, navigating the gulf between her reality and what she wants.`\
+https://nytimes.com/2024/06/07/arts/television/queenie-hulu-candice-carty-williams.html
+
 **Wage Growth Exceeds Forecasts, Potentially Deterring Fed Rate Cuts**\
 `The latest data could add to fears that the labor market remains too hot to bring inflation fully under control.`\
 https://nytimes.com/2024/06/07/business/economy/wage-growth-exceeds-forecasts-potentially-deterring-fed-rate-cuts.html
