@@ -7,7 +7,7 @@ https://nytimes.com/2024/06/07/nyregion/nypd-road-rage-shooting-charges.html
 https://nytimes.com/2024/06/07/us/politics/biden-hunter-addiction.html
 
 **Roaring Kitty Talked GameStop and Chugged Beer. Shares Plunged.**\
-`Keith Gill, the investor who spurred the meme stock mania in 2021, attracted a huge audience for his public return Friday. But his favorite buy dropped.`\
+`Keith Gill, the investor who spurred the meme stock mania in 2021, attracted a huge audience for his public return to livestreaming Friday. But his favorite buy dropped.`\
 https://nytimes.com/2024/06/07/business/roaring-kitty-gamestop-keith-gill.html
 
 **School and Police Officials in Vermont Apologize for Mock Shooting Drill**\

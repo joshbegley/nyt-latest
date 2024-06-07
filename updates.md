@@ -1,3 +1,7 @@
+**Roaring Kitty Talked GameStop and Chugged Beer. Shares Plunged.**\
+`Keith Gill, the investor who spurred the meme stock mania in 2021, attracted a huge audience for his public return to livestreaming Friday. But his favorite buy dropped.`\
+https://nytimes.com/2024/06/07/business/roaring-kitty-gamestop-keith-gill.html
+
 **N.Y.P.D. Officer Accused of Critically Wounding Man in Off-Duty Shooting**\
 `Prosecutors said Officer Hieu Tran shot the driver of a truck at a New Jersey intersection in an apparent road rage episode and then drove off. He has been charged with attempted murder.`\
 https://nytimes.com/2024/06/07/nyregion/nypd-road-rage-shooting-charges.html
