@@ -1,3 +1,7 @@
+**A pier for aid shipments, damaged in rough seas, has been restored to the Gaza shore, the U.S. says.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas/a-pier-for-aid-shipments-damaged-in-rough-seas-has-been-restored-to-the-gaza-shore-the-us-says
+
 **Glen Powell Is Absolutely Willing to Play the Hollywood Game**\
 `In a town littered with would-be superstars, he’s trying to beat the odds by giving studios what they crave. It’s no coincidence he’s everywhere.`\
 https://nytimes.com/2024/06/07/movies/glen-powell-hit-man-twisters.html
