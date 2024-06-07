@@ -1,3 +1,7 @@
+**Clarence Thomas, in Financial Disclosure, Acknowledges 2019 Trips Paid by Harlan Crow**\
+`The justice amended an earlier filing to include vacations to Bali and an exclusive California club paid for by the Texas billionaire Harlan Crow.`\
+https://nytimes.com/2024/06/07/us/supreme-court-disclosures-gifts.html
+
 **A Look at Saudi Arabia’s Big Bet on Tourism**\
 `To witness the kingdom’s profound transformation and assess its ambitious tourism projects, a New York Times journalist spent a month on the road there.`\
 https://nytimes.com/video/travel/100000009510142/a-look-at-saudi-arabias-big-bet-on-tourism.html

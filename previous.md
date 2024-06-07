@@ -1,3 +1,7 @@
+**Clarence Thomas, in Financial Disclosure, Acknowledges 2019 Trips Paid by Harlan Crow**\
+`The justice amended an earlier filing to include vacations to Bali and an exclusive California club paid for by the Texas billionaire Harlan Crow.`\
+https://nytimes.com/2024/06/07/us/supreme-court-disclosures-gifts.html
+
 **A Beloved Artist Supplants a Corporation on a Concert Hall Marquee**\
 `The Philadelphia Orchestra will honor Marian Anderson, the great contralto.`\
 https://nytimes.com/live/2024/06/04/opinion/thepoint/a-beloved-artist-supplants-a-corporation-on-a-concert-hall-marquee
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000009509976/zelenskyy-biden.html
 **A pier for aid shipments, damaged in rough seas, has been restored to the Gaza shore, the U.S. says.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas/a-pier-for-aid-shipments-damaged-in-rough-seas-has-been-restored-to-the-gaza-shore-the-us-says
-
-**Glen Powell Is Absolutely Willing to Play the Hollywood Game**\
-`In a town littered with would-be superstars, he’s trying to beat the odds by giving studios what they crave. It’s no coincidence he’s everywhere.`\
-https://nytimes.com/2024/06/07/movies/glen-powell-hit-man-twisters.html
 
