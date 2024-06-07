@@ -1,3 +1,7 @@
+**School and Police Officials in Vermont Apologize for Mock Shooting Drill**\
+`The exercise upset some high school students who were on a field trip to the Burlington Police Department this week.`\
+https://nytimes.com/2024/06/07/us/mock-shooting-school-burlington-police.html
+
 **The U.S. military says its forces destroyed Houthi drones and missiles for a second day.**\
 `By Anjana Sankar and Farnaz Fassihi`\
 https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas/houthi-un-yemen
