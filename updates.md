@@ -1,3 +1,7 @@
+**Live Updates: U.S. Hiring Rises Strongly**\
+`Hiring levels were unexpectedly robust. The data for May showed a gain of 272,000 jobs.`\
+https://nytimes.com/live/2024/06/07/business/jobs-report-may-economy
+
 **8 New Movies Our Critics Are Talking About This Week**\
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
 https://nytimes.com/2024/06/07/movies/new-movies-this-week-critics.html
