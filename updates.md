@@ -1,3 +1,8 @@
+**What Does It Take to Solve a Pet’s Poop Problem? Advanced A.I.**\
+`For PETKIT, products featuring next-generation pet health pre-screening and diagnostics mark more than a decade of data-driven innovation.
+`\
+https://nytimes.com/paidpost/petkit/what-does-it-take-to-solve-a-pets-poop-problem-advanced-ai/what-does-it-take-to-solve-a-pets-poop-problem-advanced-ai.html
+
 **Netanyahu Is Set to Address Congress on July 24**\
 `The political divide over the Israeli prime minister was evident even in the announcement of when he would appear, with Republican and Democratic leaders issuing separate statements.`\
 https://nytimes.com/2024/06/06/world/middleeast/netanyahu-is-set-to-address-congress-on-july-24.html
