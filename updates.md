@@ -1,3 +1,11 @@
+**An Israeli strike kills the mayor of the town where a school complex-turned-mass shelter was hit.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas/an-israeli-strike-kills-the-mayor-of-the-town-where-a-school-complex-turned-mass-shelter-was-hit
+
+**The U.N. is adding Israel and Hamas to list of countries and groups that harm children in conflict zones.**\
+`By Farnaz Fassihi and Aaron Boxerman`\
+https://nytimes.com/2024/06/07/world/middleeast/un-children-israel-hamas.html
+
 **A Belmont in Saratoga**\
 `By Victor J. Blue and Melissa Hoppert`\
 https://nytimes.com/card/2024/06/07/business/belmont-saratoga-preview

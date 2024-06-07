@@ -1,3 +1,7 @@
+**An Israeli strike kills the mayor of the town where a school complex-turned-mass shelter was hit.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas/an-israeli-strike-kills-the-mayor-of-the-town-where-a-school-complex-turned-mass-shelter-was-hit
+
 **Are American Workers’ Wages Really Lagging Behind Productivity?**\
 `The answer to this decades-old debate depends on which workers you’re talking about.`\
 https://nytimes.com/2024/06/07/opinion/wages-productivity-inequality.html
@@ -24,7 +28,7 @@ https://nytimes.com/2024/06/07/us/state-legislatures-transgender-bills.html
 
 **The U.N. is adding Israel and Hamas to list of countries and groups that harm children in conflict zones.**\
 `By Farnaz Fassihi and Aaron Boxerman`\
-https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas/un-children
+https://nytimes.com/2024/06/07/world/middleeast/un-children-israel-hamas.html
 
 **U.S. Tightens Car Mileage Rules, Part of Strategy to Fight Climate Change**\
 `The new measure, which could reshape the American auto market, is designed to encourage sales of electric vehicles and hybrids.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/climate/biden-mileage-electric-vehicles.html
 **My Starting Five Songs From Boston and Dallas**\
 `Catch the N.B.A. Finals spirit with Erykah Badu, Pixies, Kelly Clarkson and more.`\
 https://nytimes.com/2024/06/07/arts/music/amplifier-newsletter-boston-dallas-songs.html
-
-**A Belmont in Saratoga**\
-`By Victor J. Blue and Melissa Hoppert`\
-https://nytimes.com/card/2024/06/07/business/belmont-saratoga-preview
 
