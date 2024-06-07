@@ -1,3 +1,15 @@
+**Glen Powell Is Absolutely Willing to Play the Hollywood Game**\
+`In a town littered with would-be superstars, he’s trying to beat the odds by giving studios what they crave. It’s no coincidence he’s everywhere.`\
+https://nytimes.com/2024/06/07/movies/glen-powell-hit-man-twisters.html
+
+**Griddle Me This**\
+`Specifically: blackened chicken breasts, buttermilk pancakes, smash burgers and fish tacos.`\
+https://nytimes.com/2024/06/07/dining/griddle-me-this.html
+
+**Five Science Fiction Movies to Stream Now**\
+`This month’s sci-fi picks include alienoids, bionic athletes and a little creature named Godzilla.`\
+https://nytimes.com/2024/06/07/movies/science-fiction-movies-streaming-godzilla-minus-one.html
+
 **Thieves Stole Thousands of Lego Sets in L.A., Police Say**\
 `Just to confirm, the theft ring’s focus is, indeed, Lego.`\
 https://nytimes.com/2024/06/07/us/stolen-legos-lapd-arrested.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/07/business/economy/what-to-make-of-the-jobs-reports
 **‘Queenie’ Captures Black British Womanhood, in Its Mess and Glory**\
 `The coming-of-age show, streaming on Hulu, follows a 25-year-old living in south London, navigating the gulf between her reality and what she wants.`\
 https://nytimes.com/2024/06/07/arts/television/queenie-hulu-candice-carty-williams.html
-
-**Wage Growth Exceeds Forecasts, Potentially Deterring Fed Rate Cuts**\
-`The latest data could add to fears that the labor market remains too hot to bring inflation fully under control.`\
-https://nytimes.com/2024/06/07/business/economy/wage-growth-exceeds-forecasts-potentially-deterring-fed-rate-cuts.html
-
-**EMTs Get a New Way to Treat Heat Victims: Body-Sized Ice Cocoons**\
-`In overheated Phoenix, firefighters are carrying giant plastic, ice-filled bags to quickly cool people, a technique pioneered in the military and at sporting events.`\
-https://nytimes.com/2024/06/07/climate/heat-victims-emt-ice-body-bags.html
-
-**Prosecutors in Hunter Biden Trial Rest Their Case**\
-`The trial is likely to nudge into a second week, with Mr. Biden’s lawyers expected to mount their defense as early as Friday.`\
-https://nytimes.com/2024/06/07/us/politics/hunter-biden-trial-prosecution.html
 

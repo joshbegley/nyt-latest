@@ -1,3 +1,15 @@
+**Glen Powell Is Absolutely Willing to Play the Hollywood Game**\
+`In a town littered with would-be superstars, he’s trying to beat the odds by giving studios what they crave. It’s no coincidence he’s everywhere.`\
+https://nytimes.com/2024/06/07/movies/glen-powell-hit-man-twisters.html
+
+**Griddle Me This**\
+`Specifically: blackened chicken breasts, buttermilk pancakes, smash burgers and fish tacos.`\
+https://nytimes.com/2024/06/07/dining/griddle-me-this.html
+
+**Five Science Fiction Movies to Stream Now**\
+`This month’s sci-fi picks include alienoids, bionic athletes and a little creature named Godzilla.`\
+https://nytimes.com/2024/06/07/movies/science-fiction-movies-streaming-godzilla-minus-one.html
+
 **Prosecutors in Hunter Biden Trial Rest Their Case**\
 `The trial is likely to nudge into a second week, with Mr. Biden’s lawyers expected to mount their defense as early as Friday.`\
 https://nytimes.com/2024/06/07/us/politics/hunter-biden-trial-prosecution.html
