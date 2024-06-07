@@ -1,3 +1,7 @@
+**Biden Has a Historically Strong Job Market. It May Not Be Enough.**\
+`Job gains continue to surge, and the unemployment rate remains low, but as the president seeks re-election, voters say they care more about high prices.`\
+https://nytimes.com/2024/06/07/business/biden-job-market-economy-inflation.html
+
 **3.75%**\
 `The European Central Bank’s new interest rate, its first cut in five years.`\
 https://nytimes.com/2024/06/07/business/european-central-bank-interest-rates.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/us/trumps-former-chief-of-staff-pleads-not-guilty
 **Clarence Thomas, in Financial Disclosure, Acknowledges 2019 Trips Paid by Harlan Crow**\
 `The justice amended an earlier filing to include vacations to Bali and an exclusive California club paid for by the Texas billionaire Harlan Crow.`\
 https://nytimes.com/2024/06/07/us/supreme-court-disclosures-gifts.html
-
-**A Beloved Artist Supplants a Corporation on a Concert Hall Marquee**\
-`The Philadelphia Orchestra will honor Marian Anderson, the great contralto.`\
-https://nytimes.com/live/2024/06/04/opinion/thepoint/a-beloved-artist-supplants-a-corporation-on-a-concert-hall-marquee
 
