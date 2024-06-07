@@ -1,3 +1,11 @@
+**Republicans Are ‘Running Out of States’ to Pass New Transgender Restrictions**\
+`In an election year, efforts to pass limits on transgender rights have slowed in Republican-led legislatures.`\
+https://nytimes.com/2024/06/07/us/state-legislatures-trasngender-bills.html
+
+**U.N. adds Israel to list of countries and groups that harm children in conflict zones.**\
+`By Farnaz Fassihi and Aaron Boxerman`\
+https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas/un-children
+
 **Biden Administration Tightens Mileage Standards to Buoy E.V.s**\
 `The new rule requires automakers to achieve an average of 65 miles per gallon across all models by 2031.`\
 https://nytimes.com/2024/06/07/climate/biden-mileage-electric-vehicles.html
