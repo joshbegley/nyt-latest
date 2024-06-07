@@ -1,3 +1,19 @@
+**Alvin Bragg’s Next Decision on Trump Presents a Political Quandary**\
+`The Manhattan district attorney must present a sentencing recommendation to the judge. He could face backlash whether he opts for leniency or for a harsh sentence.`\
+https://nytimes.com/2024/06/07/nyregion/alvin-bragg-donald-trump-jail-probation.html
+
+**52 Musicians, 24 Judges: Inside New York’s Subway Performance Auditions**\
+`Applications for the Metropolitan Transportation Authority’s Music Under New York program are creeping back up after a pandemic slump.`\
+https://nytimes.com/2024/06/07/nyregion/subway-musicians-auditions-mta.html
+
+**A Photographer Widens His Gaze to Loss, and It’s a Gain**\
+`Pieces add up to an archive of a life lived deeply in Lyle Ashton Harris’s compelling survey at the Queens Museum.`\
+https://nytimes.com/2024/06/07/arts/design/lyle-ashton-harris-artist-queens-museum.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/06/07/crosswords/spelling-bee-forum.html
+
 **Jimmy Fallon Teases Trump for His Criteria for a Running Mate**\
 `“He likes people who are rich and have hot wives,” Fallon said. “Well, at least he’s taking this seriously.”`\
 https://nytimes.com/2024/06/07/arts/television/late-night-trump-running-mate.html
