@@ -1,3 +1,7 @@
+**Samsung Workers Strike, the First in the Company’s History**\
+`The South Korean tech giant is at odds with some of its employees as it is trying to reassure investors that its memory chip business can meet demand.`\
+https://nytimes.com/2024/06/06/business/samsung-first-strike-chips.html
+
 **A New ‘Hunger Games’ Book by Suzanne Collins Is Coming in 2025**\
 `“Sunrise on the Reaping” is the latest book in Collins’s hit series, which generated a legion of fans. It will also be made into a movie.`\
 https://nytimes.com/2024/06/06/arts/hunger-games-suzanne-collins-sunrise-reaping.html
