@@ -1,3 +1,7 @@
+**As Fighting Rages in Ukraine, a Struggle Is On for Artillery Supremacy**\
+`Ukrainian forces say U.S. shells are making a difference. Across the border, they say, Russia is trying to get its artillery nearer targets like the city of Kharkiv.`\
+https://nytimes.com/2024/06/07/world/europe/ukraine-war-russia-artillery.html
+
 **A Four-Hour-Long Hotel Review That Is Actually About So Much More**\
 `Jenny Nicholson’s granular critique of Disney’s Galactic Starcruiser experience reflects the fraught relationship between studios and fans right now.`\
 https://nytimes.com/2024/06/07/movies/jenny-nicholson-disney-star-wars-hotel-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/06/07/arts/weekend-editors-picks-hit-man.ht
 **Pat Sajak, the Cool, Unflappable, Reliable Host, Signs Off**\
 `In 41 seasons at the helm of “Wheel of Fortune,” Mr. Sajak, whose final episode as host airs on Friday, has been a durable fixture of the American cultural landscape.`\
 https://nytimes.com/2024/06/07/style/pat-sajak-wheel-of-fortune-host.html
-
-**Donald Trump’s Mob Rule**\
-`Why the MAGA movement loves Mafiosi.`\
-https://nytimes.com/2024/06/07/opinion/donald-trump-mob-maga.html
 
