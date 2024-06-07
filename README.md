@@ -1,3 +1,11 @@
+**China’s Exports Surge as Trade Tensions Near Boiling Point**\
+`China’s trade surplus soared, helping to lift the country’s economy even as consumer spending slows because of a sharp housing contraction.`\
+https://nytimes.com/2024/06/07/business/china-export-trade-surplus.html
+
+**U.S. Scores Historic Cricket Win, but Only Pakistan Notices**\
+`Many Americans were oblivious to the magnitude of the World Cup victory against Pakistan on Thursday. But the pain was sharp in the cricket-mad nation.`\
+https://nytimes.com/2024/06/07/sports/cricket/pakistan-cricket-fans-react.html
+
 **Alvin Bragg’s Next Decision on Trump Presents a Political Quandary**\
 `The Manhattan district attorney must present a sentencing recommendation to the judge. He could face backlash whether he opts for leniency or for a harsh sentence.`\
 https://nytimes.com/2024/06/07/nyregion/alvin-bragg-donald-trump-jail-probation.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/07/world/australia/new-zealand-american-emigrants.ht
 **Word of the Day: archaic**\
 `This word has appeared in 73 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/06/07/learning/word-of-the-day-archaic.html
-
-**In New Caledonia, ‘No Confidence’ With France After Violent Protests**\
-`An uneasy stalemate exists in the South Pacific territory as Paris continues to enforce a nightly curfew and a ban on the sale of alcohol.`\
-https://nytimes.com/2024/06/07/world/asia/new-caledonia-france-unrest.html
-
-**For the First French Town Liberated on D-Day, History Is Personal**\
-`Some aging residents of Ste.-Mère-Église in Normandy can still recall the American paratroopers who dropped into their backyard. It’s been a love affair ever since.`\
-https://nytimes.com/2024/06/07/world/europe/france-normandy-d-day-history.html
 
