@@ -1,4 +1,4 @@
-**Clarence Thomas, in Financial Disclosure, Acknowledges Trips Paid by Harlan Crow**\
+**Clarence Thomas, in Financial Disclosure, Acknowledges 2019 Trips Paid by Harlan Crow**\
 `The justice amended an earlier filing to include vacations to Bali and an exclusive California club paid for by the Texas billionaire Harlan Crow.`\
 https://nytimes.com/2024/06/07/us/supreme-court-disclosures-gifts.html
 
