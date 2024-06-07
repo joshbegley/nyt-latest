@@ -1,3 +1,7 @@
+**Israel’s Military Defends Strike on U.N. School Building in Gaza**\
+`The attack was targeting about 30 Hamas and Islamic Jihad fighters who were hiding inside three classrooms, a military spokesman said.`\
+https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas
+
 **Americans Head to New Zealand and Leave ‘the Chaos’ Behind**\
 `The Pacific island nation has become an object of fascination for some Americans who no longer want to deal with the U.S. political divide.`\
 https://nytimes.com/2024/06/07/world/australia/new-zealand-american-emigrants.html
