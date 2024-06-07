@@ -1,3 +1,7 @@
+**Live Updates: U.S. Hiring Rises Strongly**\
+`The pace of hiring was unexpectedly robust in May, showing a gain of 272,000 jobs, but it wasn’t all good news: The unemployment rate ticked up, to 4 percent.`\
+https://nytimes.com/live/2024/06/07/business/jobs-report-may-economy
+
 **Where India Turned Against Modi**\
 `Maps show how Modi lost support throughout the country, including in areas that had embraced his party’s Hindu-nationalist ideology.`\
 https://nytimes.com/interactive/2024/06/07/world/asia/india-election-map.html

@@ -23,7 +23,7 @@ https://nytimes.com/2024/06/07/business/dealbook/donald-trump-big-tech-fundraise
 https://nytimes.com/2024/06/07/business/jobs-report-markets.html
 
 **Live Updates: U.S. Hiring Rises Strongly**\
-`The pace of hiring was unexpectedly robust in May, showing a gain of 272,000 jobs, but the unemployment rate ticked up slightly, to 4 percent.`\
+`The pace of hiring was unexpectedly robust in May, showing a gain of 272,000 jobs, but it wasn’t all good news: The unemployment rate ticked up, to 4 percent.`\
 https://nytimes.com/live/2024/06/07/business/jobs-report-may-economy
 
 **5 Children’s Movies to Stream Now**\
