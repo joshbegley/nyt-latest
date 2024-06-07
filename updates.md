@@ -1,3 +1,7 @@
+**Netanyahu Threatened ‘Very Intense Action’ at the Lebanon Border. What Is Happening There?**\
+`Here’s a closer look at the clashes between Israel and the Lebanese militia Hezbollah, which have raised fears of a broader Middle East conflict.`\
+https://nytimes.com/2024/06/07/world/middleeast/hezbollah-lebanon-israel.html
+
 **Demand for summer help appears to be strong.**\
 `By Lydia DePillis`\
 https://nytimes.com/live/2024/06/07/business/jobs-report-may-economy/demand-for-summer-help-appears-to-be-strong
