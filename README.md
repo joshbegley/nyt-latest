@@ -1,3 +1,7 @@
+**Trump Says He Will Announce His Running Mate at Convention**\
+`The former president, who has a knack for building an audience since his reality TV days, is narrowing down the field of contenders.`\
+https://nytimes.com/2024/06/07/us/politics/trump-vp-running-mate.html
+
 **Biden Apologizes to Zelensky for Delayed Military Assistance**\
 `President Biden met with President Volodymyr Zelensky of Ukraine and apologized for the delay in approving military assistance, blaming it on conservative Republican opposition.`\
 https://nytimes.com/video/world/europe/100000009509976/zelenskyy-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/07/us/trump-biden-election/trump-makes-rare-vis
 **A Club Soccer Fight Intrudes on Euro 2024**\
 `The European Championship starts in a week. So why are the headlines about Manchester City?`\
 https://nytimes.com/2024/06/07/world/europe/euro-2024.html
-
-**Businessman Who Admitted to Trying to Bribe Menendez Expected to Testify**\
-`Jose Uribe is cooperating with the government. Prosecutors say he sought Senator Robert Menendez’s help to stave off fraud investigations into two allies.`\
-https://nytimes.com/2024/06/07/nyregion/jose-uribe-menendez-trial-bribery.html
 
