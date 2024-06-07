@@ -1,3 +1,7 @@
+**Mitch McConnell’s Warning Against Isolationism**\
+`Readers agree with his argument but criticize his complicity in G.O.P. policies. Also: D-Day at 80; Republican “law and order”; universities’ voices; A.I. as C.E.O.`\
+https://nytimes.com/2024/06/07/opinion/mitch-mcconnell-isolationism-d-day.html
+
 **Before the Olympics, the Fabulous French Fashion Flex**\
 `Christian Dior, Balenciaga, Chanel, Hermès and Louis Vuitton have turned cruise shows into diplomatic currency.`\
 https://nytimes.com/2024/06/07/style/dior-hermes-balenciaga-chanel-cruise.html
