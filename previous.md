@@ -1,10 +1,10 @@
-**A Look at Saudi Arabia’s Big Bet on Tourism**\
-`To witness the kingdom’s profound transformation and assess its ambitious tourism projects, a New York Times journalist spent a month on the road there.`\
-https://nytimes.com/video/travel/100000009510142/a-look-at-saudi-arabias-big-bet-on-tourism.html
-
 **A Beloved Artist Supplants a Corporation on a Concert Hall Marquee**\
 `The Philadelphia Orchestra will honor Marian Anderson, the great contralto.`\
 https://nytimes.com/live/2024/06/04/opinion/thepoint/a-beloved-artist-supplants-a-corporation-on-a-concert-hall-marquee
+
+**A Look at Saudi Arabia’s Big Bet on Tourism**\
+`To witness the kingdom’s profound transformation and assess its ambitious tourism projects, a New York Times journalist spent a month on the road there.`\
+https://nytimes.com/video/travel/100000009510142/a-look-at-saudi-arabias-big-bet-on-tourism.html
 
 **Latinos on the Border, Once Reliable Democrats, Waver Over Migrant Surges**\
 `In South Texas, where Latinos are the majority in most communities, there is skepticism over President Biden’s new asylum ban and whether it will yield the long-term border security that residents are hoping for.`\
