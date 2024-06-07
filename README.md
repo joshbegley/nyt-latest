@@ -1,3 +1,7 @@
+**Donald Trump’s Budding Bromance with Tech Moguls**\
+`A week after his criminal conviction, the former president was in deep-blue San Francisco raising money from some of Silicon Valley’s best-connected entrepreneurs and investors.`\
+https://nytimes.com/2024/06/07/business/dealbook/donald-trump-big-tech-fundraiser.html
+
 **Markets Poised to Take a Jobs Slowdown in Stride**\
 `Stocks have recently set records as investors bet that the Federal Reserve might opt to cut interest rates sooner than previously expected.`\
 https://nytimes.com/2024/06/07/business/jobs-report-markets.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/crosswords/connections-companion-363.html
 **Wordle Review No. 1,085, June 8, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/06/07/crosswords/wordle-review-1085.html
-
-**As Fighting Rages in Ukraine, a Struggle Is On for Artillery Supremacy**\
-`Ukrainian forces say U.S. shells are making a difference. Across the border, they say, Russia is trying to get its artillery nearer targets like the city of Kharkiv.`\
-https://nytimes.com/2024/06/07/world/europe/ukraine-war-russia-artillery.html
 
