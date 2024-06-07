@@ -18,8 +18,8 @@ https://nytimes.com/2024/06/07/us/state-legislatures-trasngender-bills.html
 `By Farnaz Fassihi and Aaron Boxerman`\
 https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas/un-children
 
-**Biden Administration Tightens Mileage Standards to Buoy E.V.s**\
-`The new rule requires automakers to achieve an average of 65 miles per gallon across all models by 2031.`\
+**U.S. Tightens Car Mileage Rules, Part of Strategy to Fight Climate Change**\
+`The shift, which could reshape the American auto market, is designed to encourage sales of electric vehicles and hybrids.`\
 https://nytimes.com/2024/06/07/climate/biden-mileage-electric-vehicles.html
 
 **My Starting Five Songs From Boston and Dallas**\
