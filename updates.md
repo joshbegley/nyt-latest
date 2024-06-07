@@ -1,3 +1,7 @@
+**In New Caledonia, ‘No Confidence’ With France After Violent Protests**\
+`An uneasy stalemate exists in the South Pacific territory as Paris continues to enforce a nightly curfew and a ban on the sale of alcohol.`\
+https://nytimes.com/2024/06/07/world/asia/new-caledonia-france-unrest.html
+
 **For the First French Town Liberated on D-Day, History Is Personal**\
 `Some aging residents of Ste.-Mère-Église in Normandy can still recall the American paratroopers who dropped into their backyard. It’s been a love affair ever since.`\
 https://nytimes.com/2024/06/07/world/europe/france-normandy-d-day-history.html
