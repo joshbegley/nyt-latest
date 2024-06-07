@@ -1,3 +1,11 @@
+**The Best of Late Night This Week**\
+`Most hosts were off after Memorial Day, which meant this week was their first chance to discuss former President Trump’s guilty verdict. Here’s what they had to say.`\
+https://nytimes.com/interactive/2024/06/07/arts/television/best-of-late-night-trump-verdict.html
+
+**Plant and Krauss Cover a Led Zeppelin Classic, and 12 More New Songs**\
+`Hear tracks by Soccer Mommy, Tems, Floating Points and others.`\
+https://nytimes.com/2024/06/07/arts/music/playlist-sabrina-carpenter-charli-xcx-halsey.html
+
 **A Billionaire’s Urban Dream Opens for the Summer**\
 `Andy Cohen, Fran Lebowitz and hundreds more gathered at Little Island, Barry Diller’s one-of-a-kind park on the Hudson River, for a new dance performance by Twyla Tharp.`\
 https://nytimes.com/2024/06/07/style/little-island-andy-cohen-fran-lebowitz.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/07/us/h-bruce-franklin-dead.html
 **Biden Has a Historically Strong Job Market. It May Not Be Enough.**\
 `Job gains continue to surge, and the unemployment rate remains low, but as the president seeks re-election, voters say they care more about high prices.`\
 https://nytimes.com/2024/06/07/business/biden-job-market-economy-inflation.html
-
-**3.75%**\
-`The European Central Bank’s new interest rate, its first cut in five years.`\
-https://nytimes.com/2024/06/07/business/european-central-bank-interest-rates.html
-
-**Transcript: Ezra Klein Interviews Annie Lowrey**\
-`The June 7, 2024, episode of “The Ezra Klein Show.”`\
-https://nytimes.com/2024/06/07/podcasts/transcript-ezra-klein-interviews-annie-lowrey.html
 
