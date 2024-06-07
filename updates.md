@@ -1,3 +1,15 @@
+**Are American Workers’ Wages Really Lagging Behind Productivity?**\
+`The answer to this decades-old debate depends on which workers you’re talking about.`\
+https://nytimes.com/2024/06/07/opinion/wages-productivity-inequality.html
+
+**Can I Lie About How I Lost Weight?**\
+`The magazine’s Ethicist columnist on what your friends have a right to know about your health.`\
+https://nytimes.com/2024/06/07/magazine/weight-loss-lie-zepbound-ethics.html
+
+**Republicans Are ‘Running Out of States’ to Pass New Transgender Restrictions**\
+`In an election year, efforts to pass limits on transgender rights have slowed in Republican-led legislatures.`\
+https://nytimes.com/2024/06/07/us/state-legislatures-transgender-bills.html
+
 **U.S. Tightens Car Mileage Rules, Part of Strategy to Fight Climate Change**\
 `The new measure, which could reshape the American auto market, is designed to encourage sales of electric vehicles and hybrids.`\
 https://nytimes.com/2024/06/07/climate/biden-mileage-electric-vehicles.html

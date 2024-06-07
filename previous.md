@@ -1,3 +1,11 @@
+**Are American Workers’ Wages Really Lagging Behind Productivity?**\
+`The answer to this decades-old debate depends on which workers you’re talking about.`\
+https://nytimes.com/2024/06/07/opinion/wages-productivity-inequality.html
+
+**Can I Lie About How I Lost Weight?**\
+`The magazine’s Ethicist columnist on what your friends have a right to know about your health.`\
+https://nytimes.com/2024/06/07/magazine/weight-loss-lie-zepbound-ethics.html
+
 **5 Convicted in Federal Fraud Trial Imperiled by a Gift Bag of Cash**\
 `Prosecutors accused the defendants of stealing millions of dollars from programs meant to feed children. A juror was replaced after officials said she was apparently offered a bribe of $120,000 to acquit.`\
 https://nytimes.com/2024/06/07/us/federal-fraud-trial-minnesota.html
@@ -12,7 +20,7 @@ https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas/blinken-plans-to
 
 **Republicans Are ‘Running Out of States’ to Pass New Transgender Restrictions**\
 `In an election year, efforts to pass limits on transgender rights have slowed in Republican-led legislatures.`\
-https://nytimes.com/2024/06/07/us/state-legislatures-trasngender-bills.html
+https://nytimes.com/2024/06/07/us/state-legislatures-transgender-bills.html
 
 **The U.N. is adding Israel and Hamas to list of countries and groups that harm children in conflict zones.**\
 `By Farnaz Fassihi and Aaron Boxerman`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/07/arts/music/amplifier-newsletter-boston-dallas-son
 **A Belmont in Saratoga**\
 `By Victor J. Blue and Melissa Hoppert`\
 https://nytimes.com/card/2024/06/07/business/belmont-saratoga-preview
-
-**The Best of Late Night This Week**\
-`Most hosts were off after Memorial Day, which meant this week was their first chance to discuss former President Trump’s guilty verdict. Here’s what they had to say.`\
-https://nytimes.com/interactive/2024/06/07/arts/television/best-of-late-night-trump-verdict.html
-
-**Plant and Krauss Cover a Led Zeppelin Classic, and 12 More New Songs**\
-`Hear tracks by Soccer Mommy, Tems, Floating Points and others.`\
-https://nytimes.com/2024/06/07/arts/music/playlist-sabrina-carpenter-charli-xcx-halsey.html
 
