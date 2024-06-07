@@ -1,3 +1,7 @@
+**YouTuber Who Had Lamborghini Shot With Fireworks From a Helicopter Is Arrested**\
+`Suk Min Choi, also known as Alex Choi, landed in trouble for directing the stunt recorded last year and posted to his YouTube channel, prosecutors said.`\
+https://nytimes.com/2024/06/07/us/youtuber-fireworks-lamborghini-helicopter.html
+
 **Blinken plans to return to the Middle East next week.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas/blinken-plans-to-return-to-the-middle-east-next-week
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/arts/music/playlist-sabrina-carpenter-charli-xcx-
 **A Billionaire’s Urban Dream Opens for the Summer**\
 `Andy Cohen, Fran Lebowitz and hundreds more gathered at Little Island, Barry Diller’s one-of-a-kind park on the Hudson River, for a new dance performance by Twyla Tharp.`\
 https://nytimes.com/2024/06/07/style/little-island-andy-cohen-fran-lebowitz.html
-
-**White Politician Poised for Power Faces Hurdle in South Africa**\
-`As John Steenhuisen, who leads the second-largest party, negotiates for a place in the government, he must overcome perceptions that his Democratic Alliance favors the interests of white people.`\
-https://nytimes.com/2024/06/07/world/africa/white-politician-south-africa.html
 
