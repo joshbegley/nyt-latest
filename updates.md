@@ -1,3 +1,11 @@
+**H. Bruce Franklin, Scholar Who Embraced Radical Politics, Dies at 90**\
+`A cultural historian, he was fired by Stanford University in 1972 over an anti-Vietnam War speech that became a cause célèbre of academic freedom.`\
+https://nytimes.com/2024/06/07/us/h-bruce-franklin-dead.html
+
+**Biden Has a Historically Strong Job Market. It May Not Be Enough.**\
+`Job gains continue to surge, and the unemployment rate remains low, but as the president seeks re-election, voters say they care more about high prices.`\
+https://nytimes.com/2024/06/07/business/biden-job-market-economy-inflation.html
+
 **3.75%**\
 `The European Central Bank’s new interest rate, its first cut in five years.`\
 https://nytimes.com/2024/06/07/business/european-central-bank-interest-rates.html

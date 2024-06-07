@@ -1,3 +1,11 @@
+**H. Bruce Franklin, Scholar Who Embraced Radical Politics, Dies at 90**\
+`A cultural historian, he was fired by Stanford University in 1972 over an anti-Vietnam War speech that became a cause célèbre of academic freedom.`\
+https://nytimes.com/2024/06/07/us/h-bruce-franklin-dead.html
+
+**Biden Has a Historically Strong Job Market. It May Not Be Enough.**\
+`Job gains continue to surge, and the unemployment rate remains low, but as the president seeks re-election, voters say they care more about high prices.`\
+https://nytimes.com/2024/06/07/business/biden-job-market-economy-inflation.html
+
 **3.75%**\
 `The European Central Bank’s new interest rate, its first cut in five years.`\
 https://nytimes.com/2024/06/07/business/european-central-bank-interest-rates.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/07/world/europe/savio-manchester-city-girona.html
 **Trump’s Former Chief of Staff Pleads Not Guilty in Arizona Election Case**\
 `Mark Meadows, who was the White House chief of staff in 2020, is accused of taking part in an effort to reverse Donald Trump’s loss in Arizona.`\
 https://nytimes.com/2024/06/07/us/trumps-former-chief-of-staff-pleads-not-guilty-in-arizona-election-case.html
-
-**Clarence Thomas, in Financial Disclosure, Acknowledges 2019 Trips Paid by Harlan Crow**\
-`The justice amended an earlier filing to include vacations to Bali and an exclusive California club paid for by the Texas billionaire Harlan Crow.`\
-https://nytimes.com/2024/06/07/us/supreme-court-disclosures-gifts.html
-
-**A Beloved Artist Supplants a Corporation on a Concert Hall Marquee**\
-`The Philadelphia Orchestra will honor Marian Anderson, the great contralto.`\
-https://nytimes.com/live/2024/06/04/opinion/thepoint/a-beloved-artist-supplants-a-corporation-on-a-concert-hall-marquee
 
