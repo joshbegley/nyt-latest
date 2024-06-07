@@ -1,3 +1,15 @@
+**U.S. Considers Expanded Nuclear Arsenal, a Reversal of Decades of Cuts**\
+`China’s expansion and Russia’s threats of using nuclear weapons in Ukraine and in space have changed a U.S. drive to reduce nuclear weapons.`\
+https://nytimes.com/2024/06/07/us/politics/us-nuclear-russia-china.html
+
+**$365 to Book a Table for 2 in New York? A New Law Could Stop That.**\
+`A bill passed by state lawmakers this week would prohibit third-party services from selling restaurant reservations without the restaurant’s approval.`\
+https://nytimes.com/2024/06/07/nyregion/new-york-state-reservation-fraud.html
+
+**Jeannette Charles, Who Doubled for the Queen, Is Dead at 96**\
+`She bore a startling resemblance to Elizabeth II. In “The Naked Gun” and other movies, and in comedy sketches on TV, she wore the crown lightly.`\
+https://nytimes.com/2024/06/07/movies/jeannette-charles-dead.html
+
 **Judge John Hodgman on the Limits of Tall Privilege**\
 `If you’re tall, can you put your hiking boots on the dining table?`\
 https://nytimes.com/2024/06/07/magazine/judge-john-hodgman-on-the-limits-of-tall-privilege.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/07/nyregion/congestion-pricing-nyc-economy.html
 **Senate Democrats Face Escalating Calls for Broader Investigation Into High Court**\
 `They say their options are limited by the court’s status as a separate branch of government and deep Republican opposition.`\
 https://nytimes.com/2024/06/07/us/politics/senate-democrats-supreme-court-ethics.html
-
-**U.S. Fund for Nuclear Radiation Victims Set to Expire Amid Impasse in Congress**\
-`Lawmakers are looking for a way to extend the program to compensate victims of government-caused nuclear contamination who fell ill, and some are seeking to expand it.`\
-https://nytimes.com/2024/06/07/world/europe/reca-nuclear-radiation-congress.html
-
-**Can I Opt Out of Meta’s A.I. Scraping? Sort Of.**\
-`Social media users voiced worries about a move by Meta to use information from public Instagram and Facebook posts to train its A.I. But the scraping has already begun. Here’s what to know.`\
-https://nytimes.com/2024/06/07/technology/meta-ai-scraping-policy.html
-
-**Elin Hilderbrand Says Goodbye to Nantucket Summers**\
-`The author discusses her new novel, “Swan Song,” which she says is the last beach read she intends to write.`\
-https://nytimes.com/2024/06/07/books/review/elin-hilderbrand-says-goodbye-to-nantucket-summers.html
 

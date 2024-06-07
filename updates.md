@@ -1,3 +1,15 @@
+**U.S. Considers Expanded Nuclear Arsenal, a Reversal of Decades of Cuts**\
+`China’s expansion and Russia’s threats of using nuclear weapons in Ukraine and in space have changed a U.S. drive to reduce nuclear weapons.`\
+https://nytimes.com/2024/06/07/us/politics/us-nuclear-russia-china.html
+
+**$365 to Book a Table for 2 in New York? A New Law Could Stop That.**\
+`A bill passed by state lawmakers this week would prohibit third-party services from selling restaurant reservations without the restaurant’s approval.`\
+https://nytimes.com/2024/06/07/nyregion/new-york-state-reservation-fraud.html
+
+**Jeannette Charles, Who Doubled for the Queen, Is Dead at 96**\
+`She bore a startling resemblance to Elizabeth II. In “The Naked Gun” and other movies, and in comedy sketches on TV, she wore the crown lightly.`\
+https://nytimes.com/2024/06/07/movies/jeannette-charles-dead.html
+
 **Judge John Hodgman on the Limits of Tall Privilege**\
 `If you’re tall, can you put your hiking boots on the dining table?`\
 https://nytimes.com/2024/06/07/magazine/judge-john-hodgman-on-the-limits-of-tall-privilege.html
