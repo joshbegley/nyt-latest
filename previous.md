@@ -1,3 +1,7 @@
+**Fight Theory**\
+`We offer one explanation for public opinion about President Biden’s record.`\
+https://nytimes.com/2024/06/07/briefing/fight-theory.html
+
 **British Leader Apologizes for Leaving D-Day Commemoration Early**\
 `Prime Minister Rishi Sunak conceded that he made a major public relations misstep in the heat of a general election campaign.`\
 https://nytimes.com/2024/06/07/world/europe/rishi-sunak-d-day-commemoration.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/health/cancer-black-women.html
 **With Belmont in Saratoga, Horse Racing’s History and Hope Are Linked**\
 `The storied track is hosting the Triple Crown race as progress around safety and increased capital investment lift the battered sport’s prospects.`\
 https://nytimes.com/2024/06/07/business/belmont-stakes-saratoga-springs.html
-
-**Long Before the Woke, There Were the Wide Awake**\
-`In a democracy, how far is too far?`\
-https://nytimes.com/2024/06/07/opinion/civil-war-wide-awakes-free-speech.html
 

@@ -1,3 +1,7 @@
+**Fight Theory**\
+`We offer one explanation for public opinion about President Biden’s record.`\
+https://nytimes.com/2024/06/07/briefing/fight-theory.html
+
 **British Leader Apologizes for Leaving D-Day Commemoration Early**\
 `Prime Minister Rishi Sunak conceded that he made a major public relations misstep in the heat of a general election campaign.`\
 https://nytimes.com/2024/06/07/world/europe/rishi-sunak-d-day-commemoration.html
