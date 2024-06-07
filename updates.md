@@ -1,3 +1,7 @@
+**A Belmont in Saratoga**\
+`By Victor J. Blue and Melissa Hoppert`\
+https://nytimes.com/card/2024/06/07/business/belmont-saratoga-preview
+
 **The Best of Late Night This Week**\
 `Most hosts were off after Memorial Day, which meant this week was their first chance to discuss former President Trump’s guilty verdict. Here’s what they had to say.`\
 https://nytimes.com/interactive/2024/06/07/arts/television/best-of-late-night-trump-verdict.html
