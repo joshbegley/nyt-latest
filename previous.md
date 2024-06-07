@@ -1,3 +1,7 @@
+**Demand for summer help appears to be strong.**\
+`By Lydia DePillis`\
+https://nytimes.com/live/2024/06/07/business/jobs-report-may-economy/demand-for-summer-help-appears-to-be-strong
+
 **Donald Trump’s Budding Bromance with Tech Moguls**\
 `A week after his criminal conviction, the former president was in deep-blue San Francisco raising money from some of Silicon Valley’s best-connected entrepreneurs and investors.`\
 https://nytimes.com/2024/06/07/business/dealbook/donald-trump-big-tech-fundraiser.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/podcasts/gaza-school-strike-gun-trial.html
 **The Connections Companion No. 363, June 8, 2024**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/06/07/crosswords/connections-companion-363.html
-
-**Wordle Review No. 1,085, June 8, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/06/07/crosswords/wordle-review-1085.html
 
