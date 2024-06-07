@@ -1,3 +1,43 @@
+**For the First French Town Liberated on D-Day, History Is Personal**\
+`Some aging residents of Ste.-Mère-Église in Normandy can still recall the American paratroopers who dropped into their backyard. It’s been a love affair ever since.`\
+https://nytimes.com/2024/06/07/world/europe/france-normandy-d-day-history.html
+
+**The E.U. Is Voting. It’s Never Mattered More.**\
+`Hundreds of millions of voters are electing a European Parliament this weekend. The outcome will help tip the balance of the continent’s struggle between unity and nationalism.`\
+https://nytimes.com/2024/06/07/world/europe/eu-parliament-election.html
+
+**Friday Briefing**\
+`What could come next for India.`\
+https://nytimes.com/2024/06/07/briefing/india-modi-election.html
+
+**Between the Offensives: Images From a Journey in Ukraine’s Borderland**\
+`Photographs from two trips along Ukraine’s northeastern border regions, in the months before Russia renewed an offensive there, reveal loss and transformation.`\
+https://nytimes.com/2024/06/07/world/europe/ukraine-border-russia-sumy-kharkiv-photos.html
+
+**A Careful Dance: How Hezbollah and Israel Have Kept the Lid on a Wider War**\
+`Both sides have their reasons for calibrating their attacks to avoid a regional conflict.`\
+https://nytimes.com/2024/06/07/world/middleeast/lebanon-israel-hezbollah.html
+
+**Quotation of the Day: Tone It Down, Advises U.C. Berkeley’s Leader, a Protest Veteran**\
+`Quotation of the Day for Friday, June 7, 2024.`\
+https://nytimes.com/2024/06/07/pageoneplus/quotation-of-the-day-tone-it-down-advises-uc-berkeleys-leader-a-protest-veteran.html
+
+**Two Women Redefine What it Means to Marry Your Best Friend**\
+`After 32 years of platonic friendship, Sheri Cole and Beth Moore decided to marry for the security and legal protection.`\
+https://nytimes.com/2024/06/07/style/sheri-cole-beth-moore-best-friends-wedding.html
+
+**Corrections: June 7, 2024**\
+`Corrections that appeared in print on Friday, June 7, 2024.`\
+https://nytimes.com/2024/06/07/pageoneplus/corrections-june-7-2024.html
+
+**India’s Modi, Humbled by Voters, Faces Potent Economic Struggles**\
+`With his grip on political power weakened, the Indian prime minister is confronting the same formidable challenge — how to generate hundreds of millions of jobs.`\
+https://nytimes.com/2024/06/07/business/india-election-modi-economy.html
+
+**He Wanted to Date Younger Women**\
+`Which made me angry at him — and then at myself.`\
+https://nytimes.com/2024/06/07/style/modern-love-he-wanted-to-date-younger-women.html
+
 **What Does It Take to Solve a Pet’s Poop Problem? Advanced A.I.**\
 `For PETKIT, products featuring next-generation pet health pre-screening and diagnostics mark more than a decade of data-driven innovation.
 `\
