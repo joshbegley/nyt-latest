@@ -1,3 +1,11 @@
+**Watch a Sisterhood of Budding Ballerinas**\
+`By Gia Kourlas`\
+https://nytimes.com/card/2024/06/07/arts/dance/school-american-ballet-serenade
+
+**Gone in a Six-Year Flash: Farewell to the New York Phil’s Maestro**\
+`The pandemic-derailed tenure of Jaap van Zweden, the orchestra’s music director, was too short to give us a full sense of him, as man or maestro.`\
+https://nytimes.com/2024/06/07/arts/music/jaap-van-zweden-new-york-philharmonic-farewell.html
+
 **What to know about the latest jobs report.**\
 `By Lydia DePillis`\
 https://nytimes.com/live/2024/06/07/business/may-jobs-report/what-to-know-about-the-latest-jobs-report
