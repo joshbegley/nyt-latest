@@ -1,3 +1,11 @@
+**A Club Soccer Fight Intrudes on Euro 2024**\
+`The European Championship starts in a week. So why are the headlines about Manchester City?`\
+https://nytimes.com/2024/06/07/world/europe/euro-2024.html
+
+**Businessman Who Admitted to Trying to Bribe Menendez Expected to Testify**\
+`Jose Uribe, who has pleaded guilty, is cooperating with the government.`\
+https://nytimes.com/2024/06/07/nyregion/jose-uribe-menendez-trial-bribery.html
+
 **What to Make of the Jobs Report’s Mixed Signals**\
 `The monthly data is drawn from two surveys. This time, one was quite strong, and the other flashed warning signs.`\
 https://nytimes.com/2024/06/07/business/economy/what-to-make-of-the-jobs-reports-mixed-signals.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/07/your-money/pet-insurance-dogs.html
 **The Sky’s the Limit for C.E.O. Pay**\
 `With new executive pay disclosures, the big picture is still riches at the top and lagging wages for most of the rank-and-file, our columnist says.`\
 https://nytimes.com/2024/06/07/business/ceo-pay-compensation-stock-market.html
-
-**Israel presses on with its central Gaza offensive after a deadly strike on a shelter.**\
-`By Bilal Shbair and Aaron Boxerman`\
-https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas/israel-presses-on-with-its-central-gaza-offensive-after-a-deadly-strike-on-a-shelter
-
-**Summer Reading Contest, Week 1: What Got Your Attention in The Times This Week?**\
-`To participate, submit your response here by June 14 at 9 a.m. Eastern. This week’s winners will be announced by June 26.`\
-https://nytimes.com/2024/06/07/learning/summer-reading-contest-week-1-what-got-your-attention-in-the-times-this-week.html
 

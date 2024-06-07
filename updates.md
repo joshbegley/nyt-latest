@@ -1,3 +1,11 @@
+**A Club Soccer Fight Intrudes on Euro 2024**\
+`The European Championship starts in a week. So why are the headlines about Manchester City?`\
+https://nytimes.com/2024/06/07/world/europe/euro-2024.html
+
+**Businessman Who Admitted to Trying to Bribe Menendez Expected to Testify**\
+`Jose Uribe, who has pleaded guilty, is cooperating with the government.`\
+https://nytimes.com/2024/06/07/nyregion/jose-uribe-menendez-trial-bribery.html
+
 **What to Make of the Jobs Report’s Mixed Signals**\
 `The monthly data is drawn from two surveys. This time, one was quite strong, and the other flashed warning signs.`\
 https://nytimes.com/2024/06/07/business/economy/what-to-make-of-the-jobs-reports-mixed-signals.html
