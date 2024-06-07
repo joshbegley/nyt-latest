@@ -1,3 +1,15 @@
+**How Partisan Media Outlets Covered Biden’s Immigration Order**\
+`Conservative media outlets criticized the executive order as being too lenient, while the liberal outlets that covered it said it was harmful to migrants.`\
+https://nytimes.com/2024/06/07/business/media/media-coverage-biden-immigration-order.html
+
+**Hunter Biden’s Revolver Case Exposes Republican Hypocrisy**\
+`Many of the people doing the loudest howling about the president’s son oppose gun control.`\
+https://nytimes.com/live/2024/06/04/opinion/thepoint/hunter-biden-gun
+
+**Is New York’s Economy Too Fragile for Congestion Pricing? Many Say No.**\
+`Gov. Kathy Hochul said she halted the tolling plan because of New York City’s unstable economic recovery. Experts say the alternatives are worse.`\
+https://nytimes.com/2024/06/07/nyregion/congestion-pricing-nyc-economy.html
+
 **Senate Democrats Face Escalating Calls for Broader Investigation Into High Court**\
 `They say their options are limited by the court’s status as a separate branch of government and deep Republican opposition.`\
 https://nytimes.com/2024/06/07/us/politics/senate-democrats-supreme-court-ethics.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/07/opinion/wages-productivity-inequality.html
 **Can I Lie About How I Lost Weight?**\
 `The magazine’s Ethicist columnist on what your friends have a right to know about your health.`\
 https://nytimes.com/2024/06/07/magazine/weight-loss-lie-zepbound-ethics.html
-
-**5 Convicted in Federal Fraud Trial Imperiled by a Gift Bag of Cash**\
-`Prosecutors accused the defendants of stealing millions of dollars from programs meant to feed children. A juror was replaced after officials said she was apparently offered a bribe of $120,000 to acquit.`\
-https://nytimes.com/2024/06/07/us/federal-fraud-trial-minnesota.html
-
-**YouTuber Who Had Lamborghini Shot With Fireworks From a Helicopter Is Arrested**\
-`Suk Min Choi, also known as Alex Choi, landed in trouble for directing the stunt recorded last year and posted to his YouTube channel, prosecutors said.`\
-https://nytimes.com/2024/06/07/us/youtuber-fireworks-lamborghini-helicopter.html
-
-**Blinken to Visit Israel and Three Arab States Next Week**\
-`The U.S. secretary of state is expected to visit Israel, Egypt, Qatar and Jordan over three days.`\
-https://nytimes.com/2024/06/07/world/middleeast/blinken-israel-arab-states-middle-east.html
 
