@@ -1,3 +1,11 @@
+**Stars Singing Under the Stars: A Global Gala Celebrates Opera**\
+`Italy’s government pulled out all the stops to celebrate one of Italy’s most important national art forms.`\
+https://nytimes.com/2024/06/07/world/europe/italy-opera-gala.html
+
+**What We Know About Israel’s Deadly Strike on U.N. School Complex in Gaza**\
+`By Bilal Shbair, Aaron Boxerman, Erika Solomon and Abu Bakr Bashir`\
+https://nytimes.com/2024/06/07/world/middleeast/israel-strike-un-school-gaza.html
+
 **New York Should Lead the Way on Congestion Pricing, Not Delay It**\
 `Gov. Kathy Hochul’s misguided decision would be a huge setback for the quality of life in the nation’s largest city.`\
 https://nytimes.com/2024/06/07/opinion/editorials/new-york-congestion-pricing-hochul.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/07/movies/jeannette-charles-dead.html
 **Judge John Hodgman on the Limits of Tall Privilege**\
 `If you’re tall, can you put your hiking boots on the dining table?`\
 https://nytimes.com/2024/06/07/magazine/judge-john-hodgman-on-the-limits-of-tall-privilege.html
-
-**Alex Jones Seeks to Liquidate His Assets to Pay Damages to Sandy Hook Families**\
-`But money to the families would fall far short of the more than $1.4 billion they were awarded by juries for Mr. Jones’s lies about the 2012 school massacre.`\
-https://nytimes.com/2024/06/07/us/politics/alex-jones-sandy-hook.html
-
-**Putin, at Economic Forum, Again Talks About Nuclear War**\
-`The Russian leader’s chatter about nuclear weapons has picked up since the U.S. allowed Ukraine to use its conventional weapons against military targets in Russia.`\
-https://nytimes.com/2024/06/07/us/putin-forum-nuclear-war.html
 
