@@ -1,3 +1,7 @@
+**Can I Opt Out of Meta’s A.I. Scraping? Sort Of.**\
+`Social media users voiced worries about a move by Meta to use information from public Instagram and Facebook posts to train its A.I. But the scraping has already begun. Here’s what to know.`\
+https://nytimes.com/2024/06/07/technology/meta-ai-scraping-policy.html
+
 **Elin Hilderbrand Says Goodbye to Nantucket Summers**\
 `The author discusses her new novel, “Swan Song,” which she says is the last beach read she intends to write.`\
 https://nytimes.com/2024/06/07/books/review/elin-hilderbrand-says-goodbye-to-nantucket-summers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/us/state-legislatures-transgender-bills.html
 **The U.N. is adding Israel and Hamas to list of countries and groups that harm children in conflict zones.**\
 `By Farnaz Fassihi and Aaron Boxerman`\
 https://nytimes.com/2024/06/07/world/middleeast/un-children-israel-hamas.html
-
-**U.S. Tightens Car Mileage Rules, Part of Strategy to Fight Climate Change**\
-`The new measure, which could reshape the American auto market, is designed to encourage sales of electric vehicles and hybrids.`\
-https://nytimes.com/2024/06/07/climate/biden-mileage-electric-vehicles.html
 
