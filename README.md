@@ -1,3 +1,7 @@
+**Jimmy Fallon Teases Trump for His Criteria for a Running Mate**\
+`“He likes people who are rich and have hot wives,” Fallon said. “Well, at least he’s taking this seriously.”`\
+https://nytimes.com/2024/06/07/arts/television/late-night-trump-running-mate.html
+
 **Israel’s Military Defends Strike on U.N. School Building in Gaza**\
 `The attack was targeting about 30 Hamas and Islamic Jihad fighters who were hiding inside three classrooms, a military spokesman said.`\
 https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/world/europe/ukraine-border-russia-sumy-kharkiv-p
 **A Careful Dance: How Hezbollah and Israel Have Kept the Lid on a Wider War**\
 `Both sides have their reasons for calibrating their attacks to avoid a regional conflict.`\
 https://nytimes.com/2024/06/07/world/middleeast/lebanon-israel-hezbollah.html
-
-**Quotation of the Day: Tone It Down, Advises U.C. Berkeley’s Leader, a Protest Veteran**\
-`Quotation of the Day for Friday, June 7, 2024.`\
-https://nytimes.com/2024/06/07/pageoneplus/quotation-of-the-day-tone-it-down-advises-uc-berkeleys-leader-a-protest-veteran.html
 
