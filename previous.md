@@ -1,40 +1,40 @@
-**A Conversation With Prime Minister Justin Trudeau of Canada, and an OpenAI Whistle-Blower Speaks Out**\
-`It turns out A.I. is surprisingly Canadian.`\
-https://nytimes.com/2024/06/07/podcasts/hardfork-justin-trudeau-whistleblower.html
+**A Four-Hour-Long Hotel Review That Is Actually About So Much More**\
+`Jenny Nicholson’s granular critique of Disney’s Galactic Starcruiser experience reflects the fraught relationship between studios and fans right now.`\
+https://nytimes.com/2024/06/07/movies/jenny-nicholson-disney-star-wars-hotel-review.html
 
-**Japan Likes Tourists, Just Not This Many**\
-`The country has politely handled travelers for years, but as international visitors spill into previously untouristed spots, some residents are frustrated.`\
-https://nytimes.com/2024/06/07/world/asia/japan-mount-fuji-kyoto-tourism.html
+**Cancer Researchers Begin Large Long-Term Study of Black Women**\
+`The American Cancer Society hopes to enroll 100,000 women and follow them for three decades to discover what’s causing higher case and death rates.`\
+https://nytimes.com/2024/06/07/health/cancer-black-women.html
 
-**‘Hit Man’ Says Contract Killers Aren’t Real. Here’s the Truth.**\
-`The romantic shenanigans are the stuff of Hollywood, but the film’s fake contract killer is based on a real man profiled in a Texas Monthly article.`\
-https://nytimes.com/2024/06/07/movies/hit-man-netflix-true-story.html
+**With Belmont in Saratoga, Horse Racing’s History and Hope Are Linked**\
+`The storied track is hosting the Triple Crown race as progress around safety and increased capital investment lift the battered sport’s prospects.`\
+https://nytimes.com/2024/06/07/business/belmont-stakes-saratoga-springs.html
 
-**How a Designer Makes a Bed, in Five Easy Steps**\
-`You may think you know how to make your bed — but here’s how to make it a lot better.`\
-https://nytimes.com/2024/06/07/realestate/how-to-make-a-bed.html
+**Long Before the Woke, There Were the Wide Awake**\
+`In a democracy, how far is too far?`\
+https://nytimes.com/2024/06/07/opinion/civil-war-wide-awakes-free-speech.html
 
-**Summer of Dupes: Alternatives in the Aegean**\
-`Between Turkey and Greece, there are plenty of spectacular spots for a seaside vacation. So why not go beyond the usual suspects? Here are five lesser-known choices.`\
-https://nytimes.com/2024/06/07/travel/greece-turkey-alternatives.html
+**Is Trump Attracting Men? Or Is Biden Repelling Them?**\
+`Three men of Opinion debate.`\
+https://nytimes.com/2024/06/07/opinion/trump-biden-men-masculinity.html
 
-**Japan Runs on Vending Machines. It’s About to Break Millions of Them.**\
-`New yen notes set to be introduced this summer won’t be compatible with many machines that businesses like ramen shops rely on.`\
-https://nytimes.com/2024/06/07/world/asia/japan-bank-notes-vending-machines.html
+**En_ of an E_a: As Pat Sajak Signs Off, a Look Back at ‘Wheel of Fortune’**\
+`The host departs this week after more than four decades leading one of the most watched shows on syndicated American TV.`\
+https://nytimes.com/2024/06/07/arts/television/pat-sajak-wheel-of-fortune.html
 
-**From the I.R.A. to the Principal’s Office, a Life’s Evolution Echoes Belfast’s**\
-`Jim McCann was an I.R.A. member who, convicted of attempted murder, spent 18 years in jail. Now, he’s an educator, and his turn away from violence mirrors Northern Ireland’s embrace of peace.`\
-https://nytimes.com/2024/06/07/world/europe/northern-ireland-ira-school-principal.html
+**Minority Groups’ Uninsured Rate Has Plunged in Recent Years, Reports Find**\
+`The percentages of Black, Hispanic, Asian and Native Americans without insurance have all fallen, often by around half, since the Affordable Care Act took effect, easing disparities in coverage.`\
+https://nytimes.com/2024/06/07/us/health-insurance-minority-groups.html
 
-**Biden to Meet With Zelensky as Ukraine Seeks Revival on Battlefield**\
-`The two presidents are scheduled to sit down in France, where they are visiting to mark the 80th anniversary of the Normandy invasion during World War II.`\
-https://nytimes.com/2024/06/07/world/europe/biden-zelensky-meeting-ukraine.html
+**5 Things to Do This Weekend**\
+`A selection of entertainment highlights this weekend, including “Hit Man,” which is coming to Netflix today.`\
+https://nytimes.com/interactive/2024/06/07/arts/weekend-editors-picks-hit-man.html
 
-**China’s Exports Surge as Trade Tensions Near Boiling Point**\
-`China’s trade surplus soared, helping to lift the country’s economy even as consumer spending slows because of a sharp housing contraction.`\
-https://nytimes.com/2024/06/07/business/china-export-trade-surplus.html
+**Pat Sajak, the Cool, Unflappable, Reliable Host, Signs Off**\
+`In 41 seasons at the helm of “Wheel of Fortune,” Mr. Sajak, whose final episode as host airs on Friday, has been a durable fixture of the American cultural landscape.`\
+https://nytimes.com/2024/06/07/style/pat-sajak-wheel-of-fortune-host.html
 
-**U.S. Scores Historic Cricket Win, but Only Pakistan Notices**\
-`Many Americans were oblivious to the magnitude of the World Cup victory against Pakistan on Thursday. But the pain was sharp in the cricket-mad nation.`\
-https://nytimes.com/2024/06/07/sports/cricket/pakistan-cricket-fans-react.html
+**Donald Trump’s Mob Rule**\
+`Why the MAGA movement loves Mafiosi.`\
+https://nytimes.com/2024/06/07/opinion/donald-trump-mob-maga.html
 
