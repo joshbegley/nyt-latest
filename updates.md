@@ -1,3 +1,7 @@
+**Prosecutors in Hunter Biden Trial Rest Their Case**\
+`The trial is likely to nudge into a second week, with Mr. Biden’s lawyers expected to mount their defense as early as Friday.`\
+https://nytimes.com/2024/06/07/us/politics/hunter-biden-trial-prosecution.html
+
 **Thieves Stole Thousands of Lego Sets in L.A., Police Say**\
 `Just to confirm, the theft ring’s focus is, indeed, Lego.`\
 https://nytimes.com/2024/06/07/us/stolen-legos-lapd-arrested.html
