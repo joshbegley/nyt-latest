@@ -1,3 +1,11 @@
+**A Look at Saudi Arabia’s Big Bet on Tourism**\
+`To witness the kingdom’s profound transformation and assess its ambitious tourism projects, a New York Times journalist spent a month on the road there.`\
+https://nytimes.com/video/travel/100000009510142/a-look-at-saudi-arabias-big-bet-on-tourism.html
+
+**A Beloved Artist Supplants a Corporation on a Concert Hall Marquee**\
+`The Philadelphia Orchestra will honor Marian Anderson, the great contralto.`\
+https://nytimes.com/live/2024/06/04/opinion/thepoint/a-beloved-artist-supplants-a-corporation-on-a-concert-hall-marquee
+
 **Latinos on the Border, Once Reliable Democrats, Waver Over Migrant Surges**\
 `In South Texas, where Latinos are the majority in most communities, there is skepticism over President Biden’s new asylum ban and whether it will yield the long-term border security that residents are hoping for.`\
 https://nytimes.com/2024/06/07/us/immigration-border-latinos-biden.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas/a-pier-for-aid-s
 **Glen Powell Is Absolutely Willing to Play the Hollywood Game**\
 `In a town littered with would-be superstars, he’s trying to beat the odds by giving studios what they crave. It’s no coincidence he’s everywhere.`\
 https://nytimes.com/2024/06/07/movies/glen-powell-hit-man-twisters.html
-
-**Griddle Me This**\
-`Specifically: blackened chicken breasts, buttermilk pancakes, smash burgers and fish tacos.`\
-https://nytimes.com/2024/06/07/dining/griddle-me-this.html
-
-**Five Science Fiction Movies to Stream Now**\
-`This month’s sci-fi picks include alienoids, bionic athletes and a little creature named Godzilla.`\
-https://nytimes.com/2024/06/07/movies/science-fiction-movies-streaming-godzilla-minus-one.html
 
