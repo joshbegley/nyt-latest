@@ -1,3 +1,7 @@
+**School and Police Officials in Vermont Apologize for Mock Shooting Drill**\
+`The exercise upset some high school students who were on a field trip to the Burlington Police Department this week.`\
+https://nytimes.com/2024/06/07/us/mock-shooting-school-burlington-police.html
+
 **The U.S. military says its forces destroyed Houthi drones and missiles for a second day.**\
 `By Anjana Sankar and Farnaz Fassihi`\
 https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas/houthi-un-yemen
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/us/stolen-luggage-apple-watch-florida.html
 **Have You Applied for Federal Compensation for Nuclear Radiation Exposure? We Want to Hear From You.**\
 `We’re hoping to speak to people who have filed a claim through the Radiation Exposure Compensation Act. We want to know what the experience was like.`\
 https://nytimes.com/2024/06/07/us/politics/reca-callout.html
-
-**U.S. Considers Expanded Nuclear Arsenal, a Reversal of Decades of Cuts**\
-`China’s expansion and Russia’s threats of using nuclear weapons in Ukraine and in space have changed a U.S. drive to reduce nuclear weapons.`\
-https://nytimes.com/2024/06/07/us/politics/us-nuclear-russia-china.html
 
