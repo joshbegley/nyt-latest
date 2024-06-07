@@ -1,3 +1,7 @@
+**New York Should Lead the Way on Congestion Pricing, Not Delay It**\
+`Gov. Kathy Hochul’s misguided decision would be a huge setback for the quality of life in the nation’s largest city.`\
+https://nytimes.com/2024/06/07/opinion/editorials/new-york-congestion-pricing-hochul.html
+
 **Latinos for Trump Rebrands to Add ‘American’ to Its Name**\
 `Trump’s Latino outreach effort aims to emphasize citizenship as he makes inroads with these voters, even as he ramps up inflammatory talk about immigrants.`\
 https://nytimes.com/2024/06/07/us/politics/latinos-trump-americans.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/us/politics/alex-jones-sandy-hook.html
 **Putin, at Economic Forum, Again Talks About Nuclear War**\
 `The Russian leader’s chatter about nuclear weapons has picked up since the U.S. allowed Ukraine to use its conventional weapons against military targets in Russia.`\
 https://nytimes.com/2024/06/07/us/putin-forum-nuclear-war.html
-
-**How Partisan Media Outlets Covered Biden’s Immigration Order**\
-`Conservative media outlets criticized the executive order as being too lenient, while the liberal outlets that covered it said it was harmful to migrants.`\
-https://nytimes.com/2024/06/07/business/media/media-coverage-biden-immigration-order.html
 
