@@ -1,3 +1,7 @@
+**Biden Says He Would Not Pardon His Son in Felony Gun Trial**\
+`In a wide-ranging interview with ABC News, the president touched on Hunter Biden’s trial, Donald Trump’s felony conviction and the war in Gaza.`\
+https://nytimes.com/2024/06/06/us/politics/biden-pardon-hunter-gun-trial-trump.html
+
 **In First Event as a Felon, Trump Rails Against Border Crisis in Arizona**\
 `The former president said his criminal trial had been “rigged” and took aim at President Biden’s handling of the border, saying the influx of migrants had turned Arizona into a “dumping ground.”`\
 https://nytimes.com/2024/06/06/us/politics/trump-arizona-immigration-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/arts/music/tours-jlo-black-keys.html
 **Zelensky Shares Emotional Moment With U.S. Veteran at D-Day Ceremony**\
 `The veteran, Melvin Hurwitz, embraced the Ukrainian president and called him “the savior of the people.” Mr. Zelensky told Mr. Hurwitz that he and his fellow World War II veterans had “saved Europe.”`\
 https://nytimes.com/2024/06/06/world/europe/zelensky-d-day-veteran.html
-
-**Judge Dismisses Attempted Murder Charge Over Attack at Pelosi Home**\
-`Defense lawyers used a double jeopardy argument, saying their client had been convicted in federal court for acts that are now the subject of a state trial. Other charges remain.`\
-https://nytimes.com/2024/06/06/us/david-depape-paul-pelosi-charges.html
 
