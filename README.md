@@ -2,7 +2,7 @@
 `In an election year, efforts to pass limits on transgender rights have slowed in Republican-led legislatures.`\
 https://nytimes.com/2024/06/07/us/state-legislatures-trasngender-bills.html
 
-**U.N. adds Israel to list of countries and groups that harm children in conflict zones.**\
+**The U.N. is adding Israel to list of countries and groups that harm children in conflict zones.**\
 `By Farnaz Fassihi and Aaron Boxerman`\
 https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas/un-children
 
