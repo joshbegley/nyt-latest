@@ -1,3 +1,7 @@
+**Children Among Dozens Killed in Attack on Sudanese Village**\
+`Videos showed paramilitaries opening fire on the village in what had been Sudan’s breadbasket region, causing the latest mass civilian casualties in a brutal yearlong war.`\
+https://nytimes.com/2024/06/06/world/africa/sudan-wad-al-noura-assault-jazeera-province.html
+
 **Biden Shut the Border to Asylum Seekers. The Question Is Whether the Order Can Be Enforced.**\
 `There are still ways for people to cross the U.S.-Mexico border illegally, particularly without any new resources to help guard the 2,000-mile frontier.`\
 https://nytimes.com/2024/06/06/us/politics/biden-asylum-seekers-enforcement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/opinion/national-debt-us-taxes.html
 **Video Captures Emotional Moment Between Zelensky and U.S. Veteran**\
 `At the 80th anniversary of the D-Day landings, Melvin Hurwitz, an American World War II veteran, embraced President Volodymyr Zelensky of Ukraine and called him “the savior of the people.”`\
 https://nytimes.com/video/world/europe/100000009509097/zelensky-dday-veteran.html
-
-**The U.S. will ‘wait and see’ how Israel details the strike before calling for further action, an official says.**\
-`By Anushka Patil`\
-https://nytimes.com/live/2024/06/06/world/israel-gaza-war-hamas/the-us-will-wait-and-see-how-israel-details-the-strike-before-calling-for-further-action-an-official-says
 
