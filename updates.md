@@ -1,4 +1,8 @@
 **U.S. Tightens Car Mileage Rules, Part of Strategy to Fight Climate Change**\
+`The new measure, which could reshape the American auto market, is designed to encourage sales of electric vehicles and hybrids.`\
+https://nytimes.com/2024/06/07/climate/biden-mileage-electric-vehicles.html
+
+**U.S. Tightens Car Mileage Rules, Part of Strategy to Fight Climate Change**\
 `The shift, which could reshape the American auto market, is designed to encourage sales of electric vehicles and hybrids.`\
 https://nytimes.com/2024/06/07/climate/biden-mileage-electric-vehicles.html
 
