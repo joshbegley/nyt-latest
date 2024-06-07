@@ -7,7 +7,7 @@ https://nytimes.com/live/2024/06/07/us/trump-biden-election/trump-makes-rare-vis
 https://nytimes.com/2024/06/07/world/europe/euro-2024.html
 
 **Businessman Who Admitted to Trying to Bribe Menendez Expected to Testify**\
-`Jose Uribe, who has pleaded guilty, is cooperating with the government.`\
+`Jose Uribe is cooperating with the government. Prosecutors say he sought Senator Robert Menendez’s help to stave off fraud investigations into two allies.`\
 https://nytimes.com/2024/06/07/nyregion/jose-uribe-menendez-trial-bribery.html
 
 **What to Make of the Jobs Report’s Mixed Signals**\
