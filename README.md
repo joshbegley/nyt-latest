@@ -26,10 +26,6 @@ https://nytimes.com/2024/06/07/crosswords/spelling-bee-forum.html
 `“He likes people who are rich and have hot wives,” Fallon said. “Well, at least he’s taking this seriously.”`\
 https://nytimes.com/2024/06/07/arts/television/late-night-trump-running-mate.html
 
-**Israel’s Military Defends Strike on U.N. School Building in Gaza**\
-`The attack was targeting about 30 Hamas and Islamic Jihad fighters who were hiding inside three classrooms, a military spokesman said.`\
-https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas
-
 **Americans Head to New Zealand and Leave ‘the Chaos’ Behind**\
 `The Pacific island nation has become an object of fascination for some Americans who no longer want to deal with the U.S. political divide.`\
 https://nytimes.com/2024/06/07/world/australia/new-zealand-american-emigrants.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/06/07/world/australia/new-zealand-american-emigrants.ht
 **Word of the Day: archaic**\
 `This word has appeared in 73 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/06/07/learning/word-of-the-day-archaic.html
+
+**In New Caledonia, ‘No Confidence’ With France After Violent Protests**\
+`An uneasy stalemate exists in the South Pacific territory as Paris continues to enforce a nightly curfew and a ban on the sale of alcohol.`\
+https://nytimes.com/2024/06/07/world/asia/new-caledonia-france-unrest.html
 
