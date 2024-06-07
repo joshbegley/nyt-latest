@@ -1,3 +1,15 @@
+**How Partisan Media Outlets Covered Biden’s Immigration Order**\
+`Conservative media outlets criticized the executive order as being too lenient, while the liberal outlets that covered it said it was harmful to migrants.`\
+https://nytimes.com/2024/06/07/business/media/media-coverage-biden-immigration-order.html
+
+**Hunter Biden’s Revolver Case Exposes Republican Hypocrisy**\
+`Many of the people doing the loudest howling about the president’s son oppose gun control.`\
+https://nytimes.com/live/2024/06/04/opinion/thepoint/hunter-biden-gun
+
+**Is New York’s Economy Too Fragile for Congestion Pricing? Many Say No.**\
+`Gov. Kathy Hochul said she halted the tolling plan because of New York City’s unstable economic recovery. Experts say the alternatives are worse.`\
+https://nytimes.com/2024/06/07/nyregion/congestion-pricing-nyc-economy.html
+
 **Blinken to Visit Israel and Three Arab States Next Week**\
 `The U.S. secretary of state is expected to visit Israel, Egypt, Qatar and Jordan over three days.`\
 https://nytimes.com/2024/06/07/world/middleeast/blinken-israel-arab-states-middle-east.html
