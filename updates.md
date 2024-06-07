@@ -1,3 +1,11 @@
+**Biden Administration Tightens Mileage Standards to Buoy E.V.s**\
+`The new rule requires all new cars sold in the United States to average 65 miles per gallon by 3031.`\
+https://nytimes.com/2024/06/07/climate/biden-mileage-electric-vehicles.html
+
+**My Starting Five Songs From Boston and Dallas**\
+`Catch the N.B.A. Finals spirit with Erykah Badu, Pixies, Kelly Clarkson and more.`\
+https://nytimes.com/2024/06/07/arts/music/amplifier-newsletter-boston-dallas-songs.html
+
 **A Belmont in Saratoga**\
 `By Victor J. Blue and Melissa Hoppert`\
 https://nytimes.com/card/2024/06/07/business/belmont-saratoga-preview
