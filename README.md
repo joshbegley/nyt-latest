@@ -1,5 +1,5 @@
 **Biden Administration Tightens Mileage Standards to Buoy E.V.s**\
-`The new rule requires all new cars sold in the United States to average 65 miles per gallon by 3031.`\
+`The new rule requires automakers to achieve an average of 65 miles per gallon across all models by 2031.`\
 https://nytimes.com/2024/06/07/climate/biden-mileage-electric-vehicles.html
 
 **My Starting Five Songs From Boston and Dallas**\
