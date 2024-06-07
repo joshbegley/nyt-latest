@@ -1,3 +1,7 @@
+**Elin Hilderbrand Says Goodbye to Nantucket Summers**\
+`The author discusses her new novel, “Swan Song,” which she says is the last beach read she intends to write.`\
+https://nytimes.com/2024/06/07/books/review/elin-hilderbrand-says-goodbye-to-nantucket-summers.html
+
 **An Israeli strike kills the mayor of the town where a school complex-turned-mass shelter was hit.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas/an-israeli-strike-kills-the-mayor-of-the-town-where-a-school-complex-turned-mass-shelter-was-hit
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/world/middleeast/un-children-israel-hamas.html
 **U.S. Tightens Car Mileage Rules, Part of Strategy to Fight Climate Change**\
 `The new measure, which could reshape the American auto market, is designed to encourage sales of electric vehicles and hybrids.`\
 https://nytimes.com/2024/06/07/climate/biden-mileage-electric-vehicles.html
-
-**My Starting Five Songs From Boston and Dallas**\
-`Catch the N.B.A. Finals spirit with Erykah Badu, Pixies, Kelly Clarkson and more.`\
-https://nytimes.com/2024/06/07/arts/music/amplifier-newsletter-boston-dallas-songs.html
 
