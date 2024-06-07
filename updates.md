@@ -1,3 +1,11 @@
+**China’s Exports Surge as Trade Tensions Near Boiling Point**\
+`China’s trade surplus soared, helping to lift the country’s economy even as consumer spending slows because of a sharp housing contraction.`\
+https://nytimes.com/2024/06/07/business/china-export-trade-surplus.html
+
+**U.S. Scores Historic Cricket Win, but Only Pakistan Notices**\
+`Many Americans were oblivious to the magnitude of the World Cup victory against Pakistan on Thursday. But the pain was sharp in the cricket-mad nation.`\
+https://nytimes.com/2024/06/07/sports/cricket/pakistan-cricket-fans-react.html
+
 **Alvin Bragg’s Next Decision on Trump Presents a Political Quandary**\
 `The Manhattan district attorney must present a sentencing recommendation to the judge. He could face backlash whether he opts for leniency or for a harsh sentence.`\
 https://nytimes.com/2024/06/07/nyregion/alvin-bragg-donald-trump-jail-probation.html
