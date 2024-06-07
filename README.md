@@ -28,7 +28,7 @@ https://nytimes.com/2024/06/07/us/state-legislatures-transgender-bills.html
 
 **The U.N. is adding Israel and Hamas to list of countries and groups that harm children in conflict zones.**\
 `By Farnaz Fassihi and Aaron Boxerman`\
-https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas/un-children
+https://nytimes.com/2024/06/07/world/middleeast/un-children-israel-hamas.html
 
 **U.S. Tightens Car Mileage Rules, Part of Strategy to Fight Climate Change**\
 `The new measure, which could reshape the American auto market, is designed to encourage sales of electric vehicles and hybrids.`\
