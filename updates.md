@@ -1,3 +1,23 @@
+**What to Know About the Prosecution of David DePape**\
+`A judge dismissed some state charges against the assailant who broke into Nancy Pelosi’s house in 2022, but he still faces life in prison if convicted.`\
+https://nytimes.com/2024/06/07/us/david-depape-nancy-pelosi.html
+
+**Looking for Pet Insurance? Some Dog Breeds Will Cost More to Cover.**\
+`Premiums for big dogs and purebreds are generally higher. But as one expert put it, “Every dog can get sick.” Here’s what to know about coverage.`\
+https://nytimes.com/2024/06/07/your-money/pet-insurance-dogs.html
+
+**The Sky’s the Limit for C.E.O. Pay**\
+`With new executive pay disclosures, the big picture is still riches at the top and lagging wages for most of the rank-and-file, our columnist says.`\
+https://nytimes.com/2024/06/07/business/ceo-pay-compensation-stock-market.html
+
+**Israel presses on with its central Gaza offensive after a deadly strike on a shelter.**\
+`By Bilal Shbair and Aaron Boxerman`\
+https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas/israel-presses-on-with-its-central-gaza-offensive-after-a-deadly-strike-on-a-shelter
+
+**Summer Reading Contest, Week 1: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by June 14 at 9 a.m. Eastern. This week’s winners will be announced by June 26.`\
+https://nytimes.com/2024/06/07/learning/summer-reading-contest-week-1-what-got-your-attention-in-the-times-this-week.html
+
 **Live Updates: U.S. Hiring Rises Strongly**\
 `The pace of hiring was unexpectedly robust in May, showing a gain of 272,000 jobs, but it wasn’t all good news: The unemployment rate ticked up, to 4 percent.`\
 https://nytimes.com/live/2024/06/07/business/jobs-report-may-economy
