@@ -1,3 +1,7 @@
+**Netanyahu Is Set to Address Congress on July 24**\
+`The political divide over the Israeli prime minister was evident even in the announcement of when he would appear, with Republican and Democratic leaders issuing separate statements.`\
+https://nytimes.com/2024/06/06/world/middleeast/netanyahu-is-set-to-address-congress-on-july-24.html
+
 **Trump Defends Vow to Prosecute Rivals, Saying ‘Sometimes Revenge Can Be Justified’**\
 `In recent days, sympathetic interviewers gave Donald Trump the chance to walk back or soften his vows of retribution, and instead he backed his position against Democrats.`\
 https://nytimes.com/2024/06/06/us/politics/trump-retribution-revenge-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/us/politics/biden-asylum-seekers-enforcement.html
 **Samsung Workers Strike, the First in the Company’s History**\
 `The South Korean tech giant is at odds with some of its employees as it is trying to reassure investors that its memory chip business can meet demand.`\
 https://nytimes.com/2024/06/06/business/samsung-first-strike-chips.html
-
-**Jill Biden, a Fierce Protector of Hunter Biden, Leaves France for Wilmington**\
-`The first lady’s departure from a high-profile foreign trip was a dramatic illustration of the Biden family’s personal priorities. She is expected to return to France on Saturday.`\
-https://nytimes.com/2024/06/06/us/politics/hunter-biden-jill-biden-gun-trial.html
 

@@ -1,3 +1,7 @@
+**Netanyahu Is Set to Address Congress on July 24**\
+`The political divide over the Israeli prime minister was evident even in the announcement of when he would appear, with Republican and Democratic leaders issuing separate statements.`\
+https://nytimes.com/2024/06/06/world/middleeast/netanyahu-is-set-to-address-congress-on-july-24.html
+
 **Trump Defends Vow to Prosecute Rivals, Saying ‘Sometimes Revenge Can Be Justified’**\
 `In recent days, sympathetic interviewers gave Donald Trump the chance to walk back or soften his vows of retribution, and instead he backed his position against Democrats.`\
 https://nytimes.com/2024/06/06/us/politics/trump-retribution-revenge-democrats.html
