@@ -1,3 +1,11 @@
+**Thieves Stole Thousands of Lego Sets in L.A., Police Say**\
+`Just to confirm, the theft ring’s focus is, indeed, Lego.`\
+https://nytimes.com/2024/06/07/us/stolen-legos-lapd-arrested.html
+
+**England’s Social Event of the Year: The Duke of Westminster’s Wedding**\
+`Hugh Grosvenor, the seventh Duke of Westminster, married Olivia Henson today at the Chester Cathedral in Chester, England, with Prince William serving as usher.`\
+https://nytimes.com/2024/06/07/fashion/weddings/duke-of-westminster-wedding.html
+
 **Businessman Who Admitted to Trying to Bribe Menendez Expected to Testify**\
 `Jose Uribe is cooperating with the government. Prosecutors say he sought Senator Robert Menendez’s help to stave off fraud investigations into two allies.`\
 https://nytimes.com/2024/06/07/nyregion/jose-uribe-menendez-trial-bribery.html
