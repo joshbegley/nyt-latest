@@ -1,3 +1,7 @@
+**Washington Post Leaders Look to Quell Anxiety**\
+`Will Lewis, the chief executive, pledged to employees to ‘improve how well I listen,’ while Matt Murray, the new editor, tried to reassure staff members.`\
+https://nytimes.com/2024/06/07/business/media/washington-post-newsroom.html
+
 **Hunter Biden Is on Trial, but All Eyes Are on the Biden Women**\
 `The women called to testify have at different times tried to support a man whose history of addiction continues to hit them with shrapnel.`\
 https://nytimes.com/2024/06/07/us/politics/hunter-biden-naomi-jill-hallie-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/us/politics/biden-hunter-addiction.html
 **Roaring Kitty Talked GameStop and Chugged Beer. Shares Plunged.**\
 `Keith Gill, the investor who spurred the meme stock mania in 2021, attracted a huge audience for his public return to livestreaming Friday. But his favorite buy dropped.`\
 https://nytimes.com/2024/06/07/business/roaring-kitty-gamestop-keith-gill.html
-
-**School and Police Officials in Vermont Apologize for Mock Shooting Drill**\
-`The exercise upset some high school students who were on a field trip to the Burlington Police Department this week.`\
-https://nytimes.com/2024/06/07/us/mock-shooting-school-burlington-police.html
 
