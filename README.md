@@ -20,7 +20,7 @@ https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas/blinken-plans-to
 
 **Republicans Are ‘Running Out of States’ to Pass New Transgender Restrictions**\
 `In an election year, efforts to pass limits on transgender rights have slowed in Republican-led legislatures.`\
-https://nytimes.com/2024/06/07/us/state-legislatures-trasngender-bills.html
+https://nytimes.com/2024/06/07/us/state-legislatures-transgender-bills.html
 
 **The U.N. is adding Israel and Hamas to list of countries and groups that harm children in conflict zones.**\
 `By Farnaz Fassihi and Aaron Boxerman`\
