@@ -34,7 +34,7 @@ https://nytimes.com/2024/06/07/us/federal-fraud-trial-minnesota.html
 `Suk Min Choi, also known as Alex Choi, landed in trouble for directing the stunt recorded last year and posted to his YouTube channel, prosecutors said.`\
 https://nytimes.com/2024/06/07/us/youtuber-fireworks-lamborghini-helicopter.html
 
-**Blinken plans to return to the Middle East next week.**\
+**Blinken to Visit Israel and Three Arab States Next Week**\
 `The U.S. secretary of state is expected to visit Israel, Egypt, Qatar and Jordan over three days.`\
 https://nytimes.com/2024/06/07/world/middleeast/blinken-israel-arab-states-middle-east.html
 
