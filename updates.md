@@ -1,3 +1,7 @@
+**The U.S. military says its forces destroyed Houthi drones and missiles for a second day.**\
+`By Anjana Sankar and Farnaz Fassihi`\
+https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas/houthi-un-yemen
+
 **U.S. Hiring and Wages Rose More Than Expected**\
 `Also, Biden pushes for more E.V.s. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/06/07/briefing/us-job-market-biden-ev-push.html

@@ -1,3 +1,7 @@
+**The U.S. military says its forces destroyed Houthi drones and missiles for a second day.**\
+`By Anjana Sankar and Farnaz Fassihi`\
+https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas/houthi-un-yemen
+
 **U.S. Hiring and Wages Rose More Than Expected**\
 `Also, Biden pushes for more E.V.s. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/06/07/briefing/us-job-market-biden-ev-push.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/us/politics/reca-callout.html
 **U.S. Considers Expanded Nuclear Arsenal, a Reversal of Decades of Cuts**\
 `China’s expansion and Russia’s threats of using nuclear weapons in Ukraine and in space have changed a U.S. drive to reduce nuclear weapons.`\
 https://nytimes.com/2024/06/07/us/politics/us-nuclear-russia-china.html
-
-**$365 to Book a Table for 2 in New York? A New Law Could Stop That.**\
-`A bill passed by state lawmakers this week would prohibit third-party services from selling restaurant reservations without the restaurant’s approval.`\
-https://nytimes.com/2024/06/07/nyregion/new-york-state-reservation-fraud.html
 
