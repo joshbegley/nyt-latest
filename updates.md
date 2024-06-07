@@ -1,3 +1,7 @@
+**Doing Long-Distance**\
+`Alice Liang and Christina Iverson open our solving weekend.`\
+https://nytimes.com/2024/06/06/crosswords/daily-puzzle-2024-06-07.html
+
 **Biden Says He Would Not Pardon His Son in Felony Gun Trial**\
 `In a wide-ranging interview with ABC News, the president touched on Hunter Biden’s trial, Donald Trump’s felony conviction and the war in Gaza.`\
 https://nytimes.com/2024/06/06/us/politics/biden-pardon-hunter-gun-trial-trump.html
