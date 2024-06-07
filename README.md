@@ -1,3 +1,11 @@
+**Thieves Stole Thousands of Lego Sets in L.A., Police Say**\
+`Just to confirm, the theft ring’s focus is, indeed, Lego.`\
+https://nytimes.com/2024/06/07/us/stolen-legos-lapd-arrested.html
+
+**England’s Social Event of the Year: The Duke of Westminster’s Wedding**\
+`Hugh Grosvenor, the seventh Duke of Westminster, married Olivia Henson today at the Chester Cathedral in Chester, England, with Prince William serving as usher.`\
+https://nytimes.com/2024/06/07/fashion/weddings/duke-of-westminster-wedding.html
+
 **Trump makes rare visit to San Francisco to court the conservative elite.**\
 `At a fund-raiser hosted by David Sacks, the former president regaled wealthy Silicon Valley entrepreneurs and denounced the city as unsafe.`\
 https://nytimes.com/live/2024/06/07/us/trump-biden-election/trump-makes-rare-visit-to-san-francisco-to-court-the-conservative-elite
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/07/climate/heat-victims-emt-ice-body-bags.html
 **Prosecutors in Hunter Biden Trial Are Expected to Rest Their Case**\
 `The trial is likely to nudge into a second week, with Mr. Biden’s lawyers expected to mount their defense as early as Friday.`\
 https://nytimes.com/2024/06/07/us/politics/hunter-biden-trial-prosecution.html
-
-**What to Know About the Prosecution of David DePape**\
-`A judge dismissed some state charges against the assailant who broke into Nancy Pelosi’s house in 2022, but he still faces life in prison if convicted.`\
-https://nytimes.com/2024/06/07/us/david-depape-nancy-pelosi.html
-
-**Looking for Pet Insurance? Some Dog Breeds Will Cost More to Cover.**\
-`Premiums for big dogs and purebreds are generally higher. But as one expert put it, “Every dog can get sick.” Here’s what to know about coverage.`\
-https://nytimes.com/2024/06/07/your-money/pet-insurance-dogs.html
 
