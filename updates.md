@@ -1,3 +1,7 @@
+**An Israeli strike kills the mayor of the town where a school complex-turned-mass shelter was hit.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas/an-israeli-strike-kills-the-mayor-of-the-town-where-a-school-complex-turned-mass-shelter-was-hit
+
 **Are American Workers’ Wages Really Lagging Behind Productivity?**\
 `The answer to this decades-old debate depends on which workers you’re talking about.`\
 https://nytimes.com/2024/06/07/opinion/wages-productivity-inequality.html
