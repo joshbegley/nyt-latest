@@ -1,3 +1,7 @@
+**British Leader Apologizes for Leaving D-Day Commemoration Early**\
+`Prime Minister Rishi Sunak conceded that he made a major public relations misstep in the heat of a general election campaign.`\
+https://nytimes.com/2024/06/07/world/europe/rishi-sunak-d-day-commemoration.html
+
 **Real Teenagers, Fake Nudes: The Rise of Deepfakes in American Schools**\
 `Students are using artificial intelligence to create sexually explicit images of their classmates.`\
 https://nytimes.com/2024/06/07/podcasts/the-daily/deepfake-nudes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/business/belmont-stakes-saratoga-springs.html
 **Long Before the Woke, There Were the Wide Awake**\
 `In a democracy, how far is too far?`\
 https://nytimes.com/2024/06/07/opinion/civil-war-wide-awakes-free-speech.html
-
-**Is Trump Attracting Men? Or Is Biden Repelling Them?**\
-`Three men of Opinion debate.`\
-https://nytimes.com/2024/06/07/opinion/trump-biden-men-masculinity.html
 
