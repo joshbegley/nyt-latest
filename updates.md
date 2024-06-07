@@ -1,3 +1,11 @@
+**Americans Head to New Zealand and Leave ‘the Chaos’ Behind**\
+`The Pacific island nation has become an object of fascination for some Americans who no longer want to deal with the U.S. political divide.`\
+https://nytimes.com/2024/06/07/world/australia/new-zealand-american-emigrants.html
+
+**Word of the Day: archaic**\
+`This word has appeared in 73 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/06/07/learning/word-of-the-day-archaic.html
+
 **In New Caledonia, ‘No Confidence’ With France After Violent Protests**\
 `An uneasy stalemate exists in the South Pacific territory as Paris continues to enforce a nightly curfew and a ban on the sale of alcohol.`\
 https://nytimes.com/2024/06/07/world/asia/new-caledonia-france-unrest.html
