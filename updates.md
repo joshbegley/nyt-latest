@@ -1,5 +1,9 @@
 **Real Teenagers, Fake Nudes: The Rise of Deepfakes in American Schools**\
 `Students are using artificial intelligence to create sexually explicit images of their classmates.`\
+https://nytimes.com/2024/06/07/podcasts/the-daily/deepfake-nudes.html
+
+**Real Teenagers, Fake Nudes: The Rise of Deepfakes in American Schools**\
+`Students are using artificial intelligence to create sexually explicit images of their classmates.`\
 https://nytimes.com/2024/06/07/podcasts/the-daily/real-teenagers-fake-nudes-the-rise-of-deepfakes-in-american-schools.html
 
 **Israel Defends Strike on School, and Hallie Biden Testifies in Gun Trial**\
