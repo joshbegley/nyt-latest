@@ -35,6 +35,6 @@ https://nytimes.com/2024/06/07/us/federal-fraud-trial-minnesota.html
 https://nytimes.com/2024/06/07/us/youtuber-fireworks-lamborghini-helicopter.html
 
 **Blinken plans to return to the Middle East next week.**\
-`By Michael Crowley`\
-https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas/blinken-plans-to-return-to-the-middle-east-next-week
+`The U.S. secretary of state is expected to visit Israel, Egypt, Qatar and Jordan over three days.`\
+https://nytimes.com/2024/06/07/world/middleeast/blinken-israel-arab-states-middle-east.html
 
