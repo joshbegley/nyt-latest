@@ -1,3 +1,7 @@
+**Latinos for Trump Rebrands to Add ‘Americans’ to Its Name**\
+`Trump’s Latino outreach effort aims to emphasize citizenship as he makes inroads with these voters, even as he ramps up inflammatory talk about immigrants.`\
+https://nytimes.com/2024/06/07/us/politics/latinos-trump-americans.html
+
 **They May Be the ‘50 Best,’ but Are They Actually Restaurants?**\
 `This year’s list of the World’s 50 Best Restaurants is largely a tribute to places where a meal turns into an overbearing ordeal.`\
 https://nytimes.com/2024/06/07/dining/what-makes-a-50-best-restaurant.html
