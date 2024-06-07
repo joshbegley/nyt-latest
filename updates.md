@@ -1,3 +1,7 @@
+**What to know about the latest jobs report.**\
+`By Lydia DePillis`\
+https://nytimes.com/live/2024/06/07/business/may-jobs-report/what-to-know-about-the-latest-jobs-report
+
 **Trump Says He Will Announce His Running Mate at Convention**\
 `The former president, who has a knack for building an audience since his reality TV days, is narrowing down the field of contenders.`\
 https://nytimes.com/2024/06/07/us/politics/trump-vp-running-mate.html

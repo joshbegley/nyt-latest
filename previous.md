@@ -1,3 +1,7 @@
+**What to know about the latest jobs report.**\
+`By Lydia DePillis`\
+https://nytimes.com/live/2024/06/07/business/may-jobs-report/what-to-know-about-the-latest-jobs-report
+
 **Trump Says He Will Announce His Running Mate at Convention**\
 `The former president, who has a knack for building an audience since his reality TV days, is narrowing down the field of contenders.`\
 https://nytimes.com/2024/06/07/us/politics/trump-vp-running-mate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/fashion/weddings/duke-of-westminster-wedding.html
 **Trump makes rare visit to San Francisco to court the conservative elite.**\
 `At a fund-raiser hosted by David Sacks, the former president regaled wealthy Silicon Valley entrepreneurs and denounced the city as unsafe.`\
 https://nytimes.com/live/2024/06/07/us/trump-biden-election/trump-makes-rare-visit-to-san-francisco-to-court-the-conservative-elite
-
-**A Club Soccer Fight Intrudes on Euro 2024**\
-`The European Championship starts in a week. So why are the headlines about Manchester City?`\
-https://nytimes.com/2024/06/07/world/europe/euro-2024.html
 
