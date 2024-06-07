@@ -1,3 +1,7 @@
+**In First Event as a Felon, Trump Rails Against Border Crisis in Arizona**\
+`The former president said his criminal trial had been “rigged” and took aim at President Biden’s handling of the border, saying the influx of migrants had turned Arizona into a “dumping ground.”`\
+https://nytimes.com/2024/06/06/us/politics/trump-arizona-immigration-biden.html
+
 **In the court of public opinion, both sides make their case for following international law.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/06/06/world/israel-gaza-war-hamas/in-the-court-of-public-opinion-both-sides-make-their-case-for-following-international-law
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/world/europe/zelensky-d-day-veteran.html
 **Judge Dismisses Attempted Murder Charge Over Attack at Pelosi Home**\
 `Defense lawyers used a double jeopardy argument, saying their client had been convicted in federal court for acts that are now the subject of a state trial. Other charges remain.`\
 https://nytimes.com/2024/06/06/us/david-depape-paul-pelosi-charges.html
-
-**The Sins of the Educated Class**\
-`Progressive elites aren’t helping the people they say they’re fighting for, and they’re hurting the rest of us.`\
-https://nytimes.com/2024/06/06/opinion/elites-progressives-universities.html
 

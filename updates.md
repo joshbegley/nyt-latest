@@ -1,3 +1,7 @@
+**In First Event as a Felon, Trump Rails Against Border Crisis in Arizona**\
+`The former president said his criminal trial had been “rigged” and took aim at President Biden’s handling of the border, saying the influx of migrants had turned Arizona into a “dumping ground.”`\
+https://nytimes.com/2024/06/06/us/politics/trump-arizona-immigration-biden.html
+
 **In the court of public opinion, both sides make their case for following international law.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/06/06/world/israel-gaza-war-hamas/in-the-court-of-public-opinion-both-sides-make-their-case-for-following-international-law
