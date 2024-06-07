@@ -1,3 +1,7 @@
+**A Belmont in Saratoga**\
+`By Victor J. Blue and Melissa Hoppert`\
+https://nytimes.com/card/2024/06/07/business/belmont-saratoga-preview
+
 **The Best of Late Night This Week**\
 `Most hosts were off after Memorial Day, which meant this week was their first chance to discuss former President Trump’s guilty verdict. Here’s what they had to say.`\
 https://nytimes.com/interactive/2024/06/07/arts/television/best-of-late-night-trump-verdict.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/06/07/us/politics/thomas-clarence-annual-20
 **H. Bruce Franklin, Scholar Who Embraced Radical Politics, Dies at 90**\
 `A cultural historian, he was fired by Stanford University in 1972 over an anti-Vietnam War speech that became a cause célèbre of academic freedom.`\
 https://nytimes.com/2024/06/07/us/h-bruce-franklin-dead.html
-
-**Biden Has a Historically Strong Job Market. It May Not Be Enough.**\
-`Job gains continue to surge, and the unemployment rate remains low, but as the president seeks re-election, voters say they care more about high prices.`\
-https://nytimes.com/2024/06/07/business/biden-job-market-economy-inflation.html
 
