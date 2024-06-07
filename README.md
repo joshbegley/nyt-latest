@@ -1,3 +1,7 @@
+**A pier for aid shipments, damaged in rough seas, has been restored to the Gaza shore, the U.S. says.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas/a-pier-for-aid-shipments-damaged-in-rough-seas-has-been-restored-to-the-gaza-shore-the-us-says
+
 **Glen Powell Is Absolutely Willing to Play the Hollywood Game**\
 `In a town littered with would-be superstars, he’s trying to beat the odds by giving studios what they crave. It’s no coincidence he’s everywhere.`\
 https://nytimes.com/2024/06/07/movies/glen-powell-hit-man-twisters.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/nyregion/jose-uribe-menendez-trial-bribery.html
 **What to Make of the Jobs Report’s Mixed Signals**\
 `The monthly data is drawn from two surveys. This time, one was quite strong, and the other flashed warning signs.`\
 https://nytimes.com/2024/06/07/business/economy/what-to-make-of-the-jobs-reports-mixed-signals.html
-
-**‘Queenie’ Captures Black British Womanhood, in Its Mess and Glory**\
-`The coming-of-age show, streaming on Hulu, follows a 25-year-old living in south London, navigating the gulf between her reality and what she wants.`\
-https://nytimes.com/2024/06/07/arts/television/queenie-hulu-candice-carty-williams.html
 
