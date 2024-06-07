@@ -1,3 +1,7 @@
+**Latinos on the Border, Once Reliable Democrats, Waver Over Migrant Surges**\
+`In South Texas, where Latinos are the majority in most communities, there is skepticism over President Biden’s new asylum ban and whether it will yield the long-term border security that residents are hoping for.`\
+https://nytimes.com/2024/06/07/us/immigration-border-latinos-biden.html
+
 **Watch a Sisterhood of Budding Ballerinas**\
 `By Gia Kourlas`\
 https://nytimes.com/card/2024/06/07/arts/dance/school-american-ballet-serenade
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/dining/griddle-me-this.html
 **Five Science Fiction Movies to Stream Now**\
 `This month’s sci-fi picks include alienoids, bionic athletes and a little creature named Godzilla.`\
 https://nytimes.com/2024/06/07/movies/science-fiction-movies-streaming-godzilla-minus-one.html
-
-**Thieves Stole Thousands of Lego Sets in L.A., Police Say**\
-`Just to confirm, the theft ring’s focus is, indeed, Lego.`\
-https://nytimes.com/2024/06/07/us/stolen-legos-lapd-arrested.html
 

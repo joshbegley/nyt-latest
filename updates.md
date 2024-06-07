@@ -1,3 +1,7 @@
+**Latinos on the Border, Once Reliable Democrats, Waver Over Migrant Surges**\
+`In South Texas, where Latinos are the majority in most communities, there is skepticism over President Biden’s new asylum ban and whether it will yield the long-term border security that residents are hoping for.`\
+https://nytimes.com/2024/06/07/us/immigration-border-latinos-biden.html
+
 **Watch a Sisterhood of Budding Ballerinas**\
 `By Gia Kourlas`\
 https://nytimes.com/card/2024/06/07/arts/dance/school-american-ballet-serenade
