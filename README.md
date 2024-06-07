@@ -1,5 +1,9 @@
-**They May Be the ‘50 Best,’ but Are They Actually Restaurants?**\
-`This year’s list of the World’s 50 Best Restaurants is largely a tribute to places where a meal turns into an overbearing ordeal.`\
+**U.S. Hiring and Wages Rose More Than Expected**\
+`Also, Biden pushes for more E.V.s. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/06/07/briefing/us-job-market-biden-ev-push.html
+
+**Are These Really ‘the World’s 50 Best Restaurants’?**\
+`This year’s list is largely a tribute to places where the pleasures of eating give way to an overbearing ordeal.`\
 https://nytimes.com/2024/06/07/dining/what-makes-a-50-best-restaurant.html
 
 **Stars Singing Under the Stars: A Global Gala Celebrates Opera**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/us/politics/us-nuclear-russia-china.html
 **$365 to Book a Table for 2 in New York? A New Law Could Stop That.**\
 `A bill passed by state lawmakers this week would prohibit third-party services from selling restaurant reservations without the restaurant’s approval.`\
 https://nytimes.com/2024/06/07/nyregion/new-york-state-reservation-fraud.html
-
-**Jeannette Charles, Who Doubled for the Queen, Is Dead at 96**\
-`She bore a startling resemblance to Elizabeth II. In “The Naked Gun” and other movies, and in comedy sketches on TV, she wore the crown lightly.`\
-https://nytimes.com/2024/06/07/movies/jeannette-charles-dead.html
 
