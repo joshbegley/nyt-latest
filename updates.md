@@ -1,3 +1,11 @@
+**The Best of Late Night This Week**\
+`Most hosts were off after Memorial Day, which meant this week was their first chance to discuss former President Trump’s guilty verdict. Here’s what they had to say.`\
+https://nytimes.com/interactive/2024/06/07/arts/television/best-of-late-night-trump-verdict.html
+
+**Plant and Krauss Cover a Led Zeppelin Classic, and 12 More New Songs**\
+`Hear tracks by Soccer Mommy, Tems, Floating Points and others.`\
+https://nytimes.com/2024/06/07/arts/music/playlist-sabrina-carpenter-charli-xcx-halsey.html
+
 **A Billionaire’s Urban Dream Opens for the Summer**\
 `Andy Cohen, Fran Lebowitz and hundreds more gathered at Little Island, Barry Diller’s one-of-a-kind park on the Hudson River, for a new dance performance by Twyla Tharp.`\
 https://nytimes.com/2024/06/07/style/little-island-andy-cohen-fran-lebowitz.html
