@@ -1,3 +1,7 @@
+**Latinos for Trump Rebrands to Add ‘American’ to Its Name**\
+`Trump’s Latino outreach effort aims to emphasize citizenship as he makes inroads with these voters, even as he ramps up inflammatory talk about immigrants.`\
+https://nytimes.com/2024/06/07/us/politics/latinos-trump-americans.html
+
 **Apple Watch in Stolen Luggage Leads to Airport Worker’s House, Police Say**\
 `The Sheriff’s Office in Broward County, Fla., said an airport worker had been charged with stealing a woman’s bag, which had her Apple Watch inside.`\
 https://nytimes.com/2024/06/07/us/stolen-luggage-apple-watch-florida.html

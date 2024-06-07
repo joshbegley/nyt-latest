@@ -1,3 +1,7 @@
+**Latinos for Trump Rebrands to Add ‘American’ to Its Name**\
+`Trump’s Latino outreach effort aims to emphasize citizenship as he makes inroads with these voters, even as he ramps up inflammatory talk about immigrants.`\
+https://nytimes.com/2024/06/07/us/politics/latinos-trump-americans.html
+
 **Apple Watch in Stolen Luggage Leads to Airport Worker’s House, Police Say**\
 `The Sheriff’s Office in Broward County, Fla., said an airport worker had been charged with stealing a woman’s bag, which had her Apple Watch inside.`\
 https://nytimes.com/2024/06/07/us/stolen-luggage-apple-watch-florida.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/us/putin-forum-nuclear-war.html
 **How Partisan Media Outlets Covered Biden’s Immigration Order**\
 `Conservative media outlets criticized the executive order as being too lenient, while the liberal outlets that covered it said it was harmful to migrants.`\
 https://nytimes.com/2024/06/07/business/media/media-coverage-biden-immigration-order.html
-
-**Hunter Biden’s Revolver Case Exposes Republican Hypocrisy**\
-`Many of the people doing the loudest howling about the president’s son oppose gun control.`\
-https://nytimes.com/live/2024/06/04/opinion/thepoint/hunter-biden-gun
 
