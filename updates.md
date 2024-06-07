@@ -1,3 +1,7 @@
+**Blinken to Visit Israel and Three Arab States Next Week**\
+`The U.S. secretary of state is expected to visit Israel, Egypt, Qatar and Jordan over three days.`\
+https://nytimes.com/2024/06/07/world/middleeast/blinken-israel-arab-states-middle-east.html
+
 **Senate Democrats Face Escalating Calls for Broader Investigation Into High Court**\
 `They say their options are limited by the court’s status as a separate branch of government and deep Republican opposition.`\
 https://nytimes.com/2024/06/07/us/politics/senate-democrats-supreme-court-ethics.html
