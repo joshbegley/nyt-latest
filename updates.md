@@ -1,3 +1,7 @@
+**Trump makes rare visit to San Francisco to court the conservative elite.**\
+`At a fund-raiser hosted by David Sacks, the former president regaled wealthy Silicon Valley entrepreneurs and denounced the city as unsafe.`\
+https://nytimes.com/live/2024/06/07/us/trump-biden-election/trump-makes-rare-visit-to-san-francisco-to-court-the-conservative-elite
+
 **A Club Soccer Fight Intrudes on Euro 2024**\
 `The European Championship starts in a week. So why are the headlines about Manchester City?`\
 https://nytimes.com/2024/06/07/world/europe/euro-2024.html
