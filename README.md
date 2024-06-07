@@ -1,4 +1,4 @@
-**Israel Push in Central Gaza Targets Hamas Fighters**\
+**Israel’s Push in Central Gaza Targets Hamas Fighters**\
 `The Israeli military said it killed militants in central Gaza on Friday, a day after a strike on a former school, where Gazan officials say civilians were killed.`\
 https://nytimes.com/2024/06/07/world/middleeast/central-gaza-israel-hamas.html
 
