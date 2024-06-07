@@ -1,3 +1,15 @@
+**Before the Olympics, the Fabulous French Fashion Flex**\
+`Christian Dior, Balenciaga, Chanel, Hermès and Louis Vuitton have turned cruise shows into diplomatic currency.`\
+https://nytimes.com/2024/06/07/style/dior-hermes-balenciaga-chanel-cruise.html
+
+**Team Ownership Rules Complicate a Soccer Star’s Next Move**\
+`The rise of multiclub networks introduced a web of conflicts to European soccer, and could block a young Brazilian’s heralded transfer to Manchester City.`\
+https://nytimes.com/2024/06/07/world/europe/savio-manchester-city-girona.html
+
+**Trump’s Former Chief of Staff Pleads Not Guilty in Arizona Election Case**\
+`Mark Meadows, who was the White House chief of staff in 2020, is accused of taking part in an effort to reverse Donald Trump’s loss in Arizona.`\
+https://nytimes.com/2024/06/07/us/trumps-former-chief-of-staff-pleads-not-guilty-in-arizona-election-case.html
+
 **Clarence Thomas, in Financial Disclosure, Acknowledges 2019 Trips Paid by Harlan Crow**\
 `The justice amended an earlier filing to include vacations to Bali and an exclusive California club paid for by the Texas billionaire Harlan Crow.`\
 https://nytimes.com/2024/06/07/us/supreme-court-disclosures-gifts.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/07/arts/music/jaap-van-zweden-new-york-philharmonic-
 **What to know about the latest jobs report.**\
 `By Lydia DePillis`\
 https://nytimes.com/live/2024/06/07/business/may-jobs-report/what-to-know-about-the-latest-jobs-report
-
-**Trump Says He Will Announce His Running Mate at Convention**\
-`The former president, who has a knack for building an audience since his reality TV days, is narrowing down the field of contenders.`\
-https://nytimes.com/2024/06/07/us/politics/trump-vp-running-mate.html
-
-**Biden Apologizes to Zelensky for Delayed Military Assistance**\
-`President Biden met with President Volodymyr Zelensky of Ukraine and apologized for the delay in approving military assistance, blaming it on conservative Republican opposition.`\
-https://nytimes.com/video/world/europe/100000009509976/zelenskyy-biden.html
-
-**A pier for aid shipments, damaged in rough seas, has been restored to the Gaza shore, the U.S. says.**\
-`By Michael Crowley`\
-https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas/a-pier-for-aid-shipments-damaged-in-rough-seas-has-been-restored-to-the-gaza-shore-the-us-says
 

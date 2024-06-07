@@ -1,3 +1,15 @@
+**Before the Olympics, the Fabulous French Fashion Flex**\
+`Christian Dior, Balenciaga, Chanel, Hermès and Louis Vuitton have turned cruise shows into diplomatic currency.`\
+https://nytimes.com/2024/06/07/style/dior-hermes-balenciaga-chanel-cruise.html
+
+**Team Ownership Rules Complicate a Soccer Star’s Next Move**\
+`The rise of multiclub networks introduced a web of conflicts to European soccer, and could block a young Brazilian’s heralded transfer to Manchester City.`\
+https://nytimes.com/2024/06/07/world/europe/savio-manchester-city-girona.html
+
+**Trump’s Former Chief of Staff Pleads Not Guilty in Arizona Election Case**\
+`Mark Meadows, who was the White House chief of staff in 2020, is accused of taking part in an effort to reverse Donald Trump’s loss in Arizona.`\
+https://nytimes.com/2024/06/07/us/trumps-former-chief-of-staff-pleads-not-guilty-in-arizona-election-case.html
+
 **Clarence Thomas, in Financial Disclosure, Acknowledges 2019 Trips Paid by Harlan Crow**\
 `The justice amended an earlier filing to include vacations to Bali and an exclusive California club paid for by the Texas billionaire Harlan Crow.`\
 https://nytimes.com/2024/06/07/us/supreme-court-disclosures-gifts.html

@@ -1,3 +1,7 @@
+**Mitch McConnell’s Warning Against Isolationism**\
+`Readers agree with his argument but criticize his complicity in G.O.P. policies. Also: D-Day at 80; Republican “law and order”; universities’ voices; A.I. as C.E.O.`\
+https://nytimes.com/2024/06/07/opinion/mitch-mcconnell-isolationism-d-day.html
+
 **Before the Olympics, the Fabulous French Fashion Flex**\
 `Christian Dior, Balenciaga, Chanel, Hermès and Louis Vuitton have turned cruise shows into diplomatic currency.`\
 https://nytimes.com/2024/06/07/style/dior-hermes-balenciaga-chanel-cruise.html
@@ -33,8 +37,4 @@ https://nytimes.com/card/2024/06/07/arts/dance/school-american-ballet-serenade
 **Gone in a Six-Year Flash: Farewell to the New York Phil’s Maestro**\
 `The pandemic-derailed tenure of Jaap van Zweden, the orchestra’s music director, was too short to give us a full sense of him, as man or maestro.`\
 https://nytimes.com/2024/06/07/arts/music/jaap-van-zweden-new-york-philharmonic-farewell.html
-
-**What to know about the latest jobs report.**\
-`By Lydia DePillis`\
-https://nytimes.com/live/2024/06/07/business/may-jobs-report/what-to-know-about-the-latest-jobs-report
 
