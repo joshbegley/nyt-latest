@@ -1,3 +1,7 @@
+**‘Roaring Kitty’ Came Back, Chugging Beer and Talking GameStop. Shares Plunged.**\
+`Keith Gill, the investor who spurred the meme stock mania in 2021, attracted a huge audience for his public return Friday. But his favorite buy dropped.`\
+https://nytimes.com/2024/06/07/business/roaring-kitty-gamestop-keith-gill.html
+
 **School and Police Officials in Vermont Apologize for Mock Shooting Drill**\
 `The exercise upset some high school students who were on a field trip to the Burlington Police Department this week.`\
 https://nytimes.com/2024/06/07/us/mock-shooting-school-burlington-police.html
