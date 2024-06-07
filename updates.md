@@ -1,3 +1,7 @@
+**In the court of public opinion, both sides make their case for following international law.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/06/06/world/israel-gaza-war-hamas/in-the-court-of-public-opinion-both-sides-make-their-case-for-following-international-law
+
 **Samsung Workers Strike, the First in the Company’s History**\
 `The South Korean tech giant is at odds with some of its employees as it is trying to reassure investors that its memory chip business can meet demand.`\
 https://nytimes.com/2024/06/06/business/samsung-first-strike-chips.html
