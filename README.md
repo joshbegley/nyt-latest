@@ -1,3 +1,7 @@
+**In the court of public opinion, both sides make their case for following international law.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/06/06/world/israel-gaza-war-hamas/in-the-court-of-public-opinion-both-sides-make-their-case-for-following-international-law
+
 **A New ‘Hunger Games’ Book by Suzanne Collins Is Coming in 2025**\
 `“Sunrise on the Reaping” is the latest book in Collins’s hit series, which generated a legion of fans. It will also be made into a movie.`\
 https://nytimes.com/2024/06/06/arts/hunger-games-suzanne-collins-sunrise-reaping.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/us/david-depape-paul-pelosi-charges.html
 **The Sins of the Educated Class**\
 `Progressive elites aren’t helping the people they say they’re fighting for, and they’re hurting the rest of us.`\
 https://nytimes.com/2024/06/06/opinion/elites-progressives-universities.html
-
-**Why You Shouldn’t Obsess About the National Debt**\
-`It’s a political problem, not an economic crisis.`\
-https://nytimes.com/2024/06/06/opinion/national-debt-us-taxes.html
 
