@@ -1,3 +1,15 @@
+**Judge John Hodgman on the Limits of Tall Privilege**\
+`If you’re tall, can you put your hiking boots on the dining table?`\
+https://nytimes.com/2024/06/07/magazine/judge-john-hodgman-on-the-limits-of-tall-privilege.html
+
+**Alex Jones Seeks to Liquidate His Assets to Pay Damages to Sandy Hook Families**\
+`But money to the families would fall far short of the more than $1.4 billion they were awarded by juries for Mr. Jones’s lies about the 2012 school massacre.`\
+https://nytimes.com/2024/06/07/us/politics/alex-jones-sandy-hook.html
+
+**Putin, at Economic Forum, Again Talks About Nuclear War**\
+`The Russian leader’s chatter about nuclear weapons has picked up since the U.S. allowed Ukraine to use its conventional weapons against military targets in Russia.`\
+https://nytimes.com/2024/06/07/us/putin-forum-nuclear-war.html
+
 **How Partisan Media Outlets Covered Biden’s Immigration Order**\
 `Conservative media outlets criticized the executive order as being too lenient, while the liberal outlets that covered it said it was harmful to migrants.`\
 https://nytimes.com/2024/06/07/business/media/media-coverage-biden-immigration-order.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/07/technology/meta-ai-scraping-policy.html
 **Elin Hilderbrand Says Goodbye to Nantucket Summers**\
 `The author discusses her new novel, “Swan Song,” which she says is the last beach read she intends to write.`\
 https://nytimes.com/2024/06/07/books/review/elin-hilderbrand-says-goodbye-to-nantucket-summers.html
-
-**An Israeli strike kills the mayor of the town where a school complex-turned-mass shelter was hit.**\
-`By Raja Abdulrahim`\
-https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas/an-israeli-strike-kills-the-mayor-of-the-town-where-a-school-complex-turned-mass-shelter-was-hit
-
-**Are American Workers’ Wages Really Lagging Behind Productivity?**\
-`The answer to this decades-old debate depends on which workers you’re talking about.`\
-https://nytimes.com/2024/06/07/opinion/wages-productivity-inequality.html
-
-**Can I Lie About How I Lost Weight?**\
-`The magazine’s Ethicist columnist on what your friends have a right to know about your health.`\
-https://nytimes.com/2024/06/07/magazine/weight-loss-lie-zepbound-ethics.html
 
