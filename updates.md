@@ -1,3 +1,7 @@
+**3.75%**\
+`The European Central Bank’s new interest rate, its first cut in five years.`\
+https://nytimes.com/2024/06/07/business/european-central-bank-interest-rates.html
+
 **Transcript: Ezra Klein Interviews Annie Lowrey**\
 `The June 7, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/06/07/podcasts/transcript-ezra-klein-interviews-annie-lowrey.html

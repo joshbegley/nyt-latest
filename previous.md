@@ -1,3 +1,7 @@
+**3.75%**\
+`The European Central Bank’s new interest rate, its first cut in five years.`\
+https://nytimes.com/2024/06/07/business/european-central-bank-interest-rates.html
+
 **Transcript: Ezra Klein Interviews Annie Lowrey**\
 `The June 7, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/06/07/podcasts/transcript-ezra-klein-interviews-annie-lowrey.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/us/supreme-court-disclosures-gifts.html
 **A Beloved Artist Supplants a Corporation on a Concert Hall Marquee**\
 `The Philadelphia Orchestra will honor Marian Anderson, the great contralto.`\
 https://nytimes.com/live/2024/06/04/opinion/thepoint/a-beloved-artist-supplants-a-corporation-on-a-concert-hall-marquee
-
-**A Look at Saudi Arabia’s Big Bet on Tourism**\
-`To witness the kingdom’s profound transformation and assess its ambitious tourism projects, a New York Times journalist spent a month on the road there.`\
-https://nytimes.com/video/travel/100000009510142/a-look-at-saudi-arabias-big-bet-on-tourism.html
 
