@@ -1,3 +1,7 @@
+**Biden Administration Tightens Mileage Standards to Buoy E.V.s**\
+`The new rule requires all new cars sold in the United States to average 65 miles per gallon by 3031.`\
+https://nytimes.com/2024/06/07/climate/biden-mileage-electric-vehicles.html
+
 **My Starting Five Songs From Boston and Dallas**\
 `Catch the N.B.A. Finals spirit with Erykah Badu, Pixies, Kelly Clarkson and more.`\
 https://nytimes.com/2024/06/07/arts/music/amplifier-newsletter-boston-dallas-songs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/arts/design/university-of-the-arts-philadelphia-a
 **Mike Pence Derailed His Political Career Opposing Trump. Can He Revive It?**\
 `The former vice president wants to climb back to relevance as a keeper of the flame for traditional conservatism. The Trump camp calls him “Judas Pence.”`\
 https://nytimes.com/2024/06/07/us/politics/donald-trump-mike-pence-campaign-2024.html
-
-**Read Justice Clarence Thomas’s Financial Disclosures for 2023**\
-`The Supreme Court justice also included an amendment for his 2019 filing.`\
-https://nytimes.com/interactive/2024/06/07/us/politics/thomas-clarence-annual-2023.html
 
