@@ -1,3 +1,7 @@
+**Businessman Who Admitted to Trying to Bribe Menendez Expected to Testify**\
+`Jose Uribe is cooperating with the government. Prosecutors say he sought Senator Robert Menendez’s help to stave off fraud investigations into two allies.`\
+https://nytimes.com/2024/06/07/nyregion/jose-uribe-menendez-trial-bribery.html
+
 **Trump makes rare visit to San Francisco to court the conservative elite.**\
 `At a fund-raiser hosted by David Sacks, the former president regaled wealthy Silicon Valley entrepreneurs and denounced the city as unsafe.`\
 https://nytimes.com/live/2024/06/07/us/trump-biden-election/trump-makes-rare-visit-to-san-francisco-to-court-the-conservative-elite
