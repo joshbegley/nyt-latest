@@ -1,3 +1,7 @@
+**In New Caledonia, ‘No Confidence’ With France After Violent Protests**\
+`An uneasy stalemate exists in the South Pacific territory as Paris continues to enforce a nightly curfew and a ban on the sale of alcohol.`\
+https://nytimes.com/2024/06/07/world/asia/new-caledonia-france-unrest.html
+
 **For the First French Town Liberated on D-Day, History Is Personal**\
 `Some aging residents of Ste.-Mère-Église in Normandy can still recall the American paratroopers who dropped into their backyard. It’s been a love affair ever since.`\
 https://nytimes.com/2024/06/07/world/europe/france-normandy-d-day-history.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/pageoneplus/corrections-june-7-2024.html
 **India’s Modi, Humbled by Voters, Faces Potent Economic Struggles**\
 `With his grip on political power weakened, the Indian prime minister is confronting the same formidable challenge — how to generate hundreds of millions of jobs.`\
 https://nytimes.com/2024/06/07/business/india-election-modi-economy.html
-
-**He Wanted to Date Younger Women**\
-`Which made me angry at him — and then at myself.`\
-https://nytimes.com/2024/06/07/style/modern-love-he-wanted-to-date-younger-women.html
 
