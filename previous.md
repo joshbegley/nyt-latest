@@ -1,3 +1,7 @@
+**Where India Turned Against Modi**\
+`Maps show how Modi lost support throughout the country, including in areas that had embraced his party’s Hindu-nationalist ideology.`\
+https://nytimes.com/interactive/2024/06/07/world/asia/india-election-map.html
+
 **8 New Movies Our Critics Are Talking About This Week**\
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
 https://nytimes.com/2024/06/07/movies/new-movies-this-week-critics.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/briefing/fight-theory.html
 **British Leader Apologizes for Leaving D-Day Commemoration Early**\
 `Prime Minister Rishi Sunak conceded that he made a major public relations misstep in the heat of a general election campaign.`\
 https://nytimes.com/2024/06/07/world/europe/rishi-sunak-d-day-commemoration.html
-
-**Real Teenagers, Fake Nudes: The Rise of Deepfakes in American Schools**\
-`Students are using artificial intelligence to create sexually explicit images of their classmates.`\
-https://nytimes.com/2024/06/07/podcasts/the-daily/deepfake-nudes.html
 
