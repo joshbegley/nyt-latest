@@ -1,8 +1,12 @@
+**Blinken plans to return to the Middle East next week.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas/blinken-plans-to-return-to-the-middle-east-next-week
+
 **Republicans Are ‘Running Out of States’ to Pass New Transgender Restrictions**\
 `In an election year, efforts to pass limits on transgender rights have slowed in Republican-led legislatures.`\
 https://nytimes.com/2024/06/07/us/state-legislatures-trasngender-bills.html
 
-**U.N. adds Israel to list of countries and groups that harm children in conflict zones.**\
+**The U.N. is adding Israel and Hamas to list of countries and groups that harm children in conflict zones.**\
 `By Farnaz Fassihi and Aaron Boxerman`\
 https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas/un-children
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/style/little-island-andy-cohen-fran-lebowitz.html
 **White Politician Poised for Power Faces Hurdle in South Africa**\
 `As John Steenhuisen, who leads the second-largest party, negotiates for a place in the government, he must overcome perceptions that his Democratic Alliance favors the interests of white people.`\
 https://nytimes.com/2024/06/07/world/africa/white-politician-south-africa.html
-
-**What’s the Best Way to Honor Sophie in Song?**\
-`Recent tracks from Charli XCX, A.G. Cook, Caroline Polachek and St. Vincent capture the producer’s philosophy and humanity, but not necessarily her signature sound.`\
-https://nytimes.com/2024/06/07/arts/music/sophie-tribute-songs-charli-xcx.html
 

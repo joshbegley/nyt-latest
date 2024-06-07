@@ -1,3 +1,11 @@
+**Blinken plans to return to the Middle East next week.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas/blinken-plans-to-return-to-the-middle-east-next-week
+
+**The U.N. is adding Israel and Hamas to list of countries and groups that harm children in conflict zones.**\
+`By Farnaz Fassihi and Aaron Boxerman`\
+https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas/un-children
+
 **Republicans Are ‘Running Out of States’ to Pass New Transgender Restrictions**\
 `In an election year, efforts to pass limits on transgender rights have slowed in Republican-led legislatures.`\
 https://nytimes.com/2024/06/07/us/state-legislatures-trasngender-bills.html
