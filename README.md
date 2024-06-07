@@ -1,3 +1,11 @@
+**EMTs Get a New Way to Treat Heat Victims: Body-Sized Ice Cocoons**\
+`In overheated Phoenix, firefighters are carrying giant plastic, ice-filled bags to quickly cool people, a technique pioneered in the military and at sporting events.`\
+https://nytimes.com/2024/06/07/climate/heat-victims-emt-ice-body-bags.html
+
+**Prosecutors in Hunter Biden Trial Are Expected to Rest Their Case**\
+`The trial is likely to nudge into a second week, with Mr. Biden’s lawyers expected to mount their defense as early as Friday.`\
+https://nytimes.com/2024/06/07/us/politics/hunter-biden-trial-prosecution.html
+
 **What to Know About the Prosecution of David DePape**\
 `A judge dismissed some state charges against the assailant who broke into Nancy Pelosi’s house in 2022, but he still faces life in prison if convicted.`\
 https://nytimes.com/2024/06/07/us/david-depape-nancy-pelosi.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/07/movies/new-movies-this-week-critics.html
 **Netanyahu Threatened ‘Very Intense Action’ at the Lebanon Border. What Is Happening There?**\
 `Here’s a closer look at the clashes between Israel and the Lebanese militia Hezbollah, which have raised fears of a broader Middle East conflict.`\
 https://nytimes.com/2024/06/07/world/middleeast/hezbollah-lebanon-israel.html
-
-**Demand for summer help appears to be strong.**\
-`By Lydia DePillis`\
-https://nytimes.com/live/2024/06/07/business/jobs-report-may-economy/demand-for-summer-help-appears-to-be-strong
-
-**Donald Trump’s Budding Bromance with Tech Moguls**\
-`A week after his criminal conviction, the former president was in deep-blue San Francisco raising money from some of Silicon Valley’s best-connected entrepreneurs and investors.`\
-https://nytimes.com/2024/06/07/business/dealbook/donald-trump-big-tech-fundraiser.html
 
