@@ -1,3 +1,11 @@
+**‘Doctor Who’ Episode 6 Recap: A Charming Rogue**\
+`The Doctor and Ruby head back to Regency England in a meta meditation on cosplay and obsessive TV fandom.`\
+https://nytimes.com/2024/06/07/arts/television/doctor-who-episode-6-recap.html
+
+**The Best Beach and Surf Gear**\
+`How to maximize your day at the beach.`\
+https://nytimes.com/interactive/2024/06/07/smarter-living/wirecutter/best-beach-gear.html
+
 **Washington Post Leaders Look to Quell Anxiety**\
 `Will Lewis, the chief executive, pledged to employees to ‘improve how well I listen,’ while Matt Murray, the new editor, tried to reassure staff members.`\
 https://nytimes.com/2024/06/07/business/media/washington-post-newsroom.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/07/world/middleeast/central-gaza-israel-hamas.html
 **N.Y.P.D. Officer Accused of Critically Wounding Man in Off-Duty Shooting**\
 `Prosecutors said Officer Hieu Tran shot the driver of a truck at a New Jersey intersection in an apparent road rage episode and then drove off. He has been charged with attempted murder.`\
 https://nytimes.com/2024/06/07/nyregion/nypd-road-rage-shooting-charges.html
-
-**The Biden Family’s Public Reckoning With Addiction**\
-`President Biden is keeping his son close, and acknowledging his addiction, while he’s on trial.`\
-https://nytimes.com/2024/06/07/us/politics/biden-hunter-addiction.html
-
-**Roaring Kitty Talked GameStop and Chugged Beer. Shares Plunged.**\
-`Keith Gill, the investor who spurred the meme stock mania in 2021, attracted a huge audience for his public return to livestreaming Friday. But his favorite buy dropped.`\
-https://nytimes.com/2024/06/07/business/roaring-kitty-gamestop-keith-gill.html
 
