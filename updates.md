@@ -1,3 +1,7 @@
+**Elin Hilderbrand Says Goodbye to Nantucket Summers**\
+`The author discusses her new novel, “Swan Song,” which she says is the last beach read she intends to write.`\
+https://nytimes.com/2024/06/07/books/review/elin-hilderbrand-says-goodbye-to-nantucket-summers.html
+
 **An Israeli strike kills the mayor of the town where a school complex-turned-mass shelter was hit.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas/an-israeli-strike-kills-the-mayor-of-the-town-where-a-school-complex-turned-mass-shelter-was-hit
