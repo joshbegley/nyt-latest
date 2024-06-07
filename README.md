@@ -1,3 +1,7 @@
+**Doing Long-Distance**\
+`Alice Liang and Christina Iverson open our solving weekend.`\
+https://nytimes.com/2024/06/06/crosswords/daily-puzzle-2024-06-07.html
+
 **Biden Says He Would Not Pardon His Son in Felony Gun Trial**\
 `In a wide-ranging interview with ABC News, the president touched on Hunter Biden’s trial, Donald Trump’s felony conviction and the war in Gaza.`\
 https://nytimes.com/2024/06/06/us/politics/biden-pardon-hunter-gun-trial-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/us/politics/hunter-biden-jill-biden-gun-trial.htm
 **Are Big Music Tours Really in Trouble?**\
 `High-profile cancellations from Jennifer Lopez and the Black Keys have armchair analysts talking. But industry insiders say live music is still thriving.`\
 https://nytimes.com/2024/06/06/arts/music/tours-jlo-black-keys.html
-
-**Zelensky Shares Emotional Moment With U.S. Veteran at D-Day Ceremony**\
-`The veteran, Melvin Hurwitz, embraced the Ukrainian president and called him “the savior of the people.” Mr. Zelensky told Mr. Hurwitz that he and his fellow World War II veterans had “saved Europe.”`\
-https://nytimes.com/2024/06/06/world/europe/zelensky-d-day-veteran.html
 
