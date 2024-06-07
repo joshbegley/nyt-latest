@@ -1,3 +1,15 @@
+**Markets Poised to Take a Jobs Slowdown in Stride**\
+`Stocks have recently set records as investors bet that the Federal Reserve might opt to cut interest rates sooner than previously expected.`\
+https://nytimes.com/2024/06/07/business/jobs-report-markets.html
+
+**Live Updates: Jobs Report Expected to Show Solid Hiring**\
+`Hiring levels have eased slightly but remain strong. The data for May is expected to show a gain of 190,000 jobs.`\
+https://nytimes.com/live/2024/06/07/business/jobs-report-may-economy
+
+**5 Children’s Movies to Stream Now**\
+`This month’s picks include an animated musical comedy starring Brittany Howard and a Marvel superhero adventure packed with martial arts.`\
+https://nytimes.com/2024/06/07/movies/kids-movies-streaming.html
+
 **Fight Theory**\
 `We offer one explanation for public opinion about President Biden’s record.`\
 https://nytimes.com/2024/06/07/briefing/fight-theory.html
