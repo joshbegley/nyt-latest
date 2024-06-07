@@ -1,3 +1,11 @@
+**Senate Democrats Face Escalating Calls for Broader Investigation Into High Court**\
+`They say their options are limited by the court’s status as a separate branch of government and deep Republican opposition.`\
+https://nytimes.com/2024/06/07/us/politics/senate-democrats-supreme-court-ethics.html
+
+**U.S. Fund for Nuclear Radiation Victims Set to Expire Amid Impasse in Congress**\
+`Lawmakers are looking for a way to extend the program to compensate victims of government-caused nuclear contamination who fell ill, and some are seeking to expand it.`\
+https://nytimes.com/2024/06/07/world/europe/reca-nuclear-radiation-congress.html
+
 **Can I Opt Out of Meta’s A.I. Scraping? Sort Of.**\
 `Social media users voiced worries about a move by Meta to use information from public Instagram and Facebook posts to train its A.I. But the scraping has already begun. Here’s what to know.`\
 https://nytimes.com/2024/06/07/technology/meta-ai-scraping-policy.html
