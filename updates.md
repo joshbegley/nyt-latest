@@ -1,4 +1,8 @@
 **Live Updates: U.S. Hiring Rises Strongly**\
+`The pace of hiring was unexpectedly robust in May, showing a gain of 272,000 jobs, but the unemployment rate ticked up slightly, to 4 percent.`\
+https://nytimes.com/live/2024/06/07/business/jobs-report-may-economy
+
+**Live Updates: U.S. Hiring Rises Strongly**\
 `The pace of hiring was unexpectedly robust in May, showing a gain of 272,000 jobs.`\
 https://nytimes.com/live/2024/06/07/business/jobs-report-may-economy
 
