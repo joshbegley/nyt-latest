@@ -1,3 +1,7 @@
+**Jimmy Fallon Teases Trump for His Criteria for a Running Mate**\
+`“He likes people who are rich and have hot wives,” Fallon said. “Well, at least he’s taking this seriously.”`\
+https://nytimes.com/2024/06/07/arts/television/late-night-trump-running-mate.html
+
 **Israel’s Military Defends Strike on U.N. School Building in Gaza**\
 `The attack was targeting about 30 Hamas and Islamic Jihad fighters who were hiding inside three classrooms, a military spokesman said.`\
 https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas
