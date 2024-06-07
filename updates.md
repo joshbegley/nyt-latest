@@ -1,3 +1,7 @@
+**As Fighting Rages in Ukraine, a Struggle Is On for Artillery Supremacy**\
+`Ukrainian forces say U.S. shells are making a difference. Across the border, they say, Russia is trying to get its artillery nearer targets like the city of Kharkiv.`\
+https://nytimes.com/2024/06/07/world/europe/ukraine-war-russia-artillery.html
+
 **A Four-Hour-Long Hotel Review That Is Actually About So Much More**\
 `Jenny Nicholson’s granular critique of Disney’s Galactic Starcruiser experience reflects the fraught relationship between studios and fans right now.`\
 https://nytimes.com/2024/06/07/movies/jenny-nicholson-disney-star-wars-hotel-review.html
