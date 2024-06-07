@@ -1,3 +1,7 @@
+**Have You Applied for Federal Compensation for Nuclear Radiation Exposure? We Want to Hear From You.**\
+`We’re hoping to speak to people who have filed a claim through the Radiation Exposure Compensation Act. We want to know what the experience was like.`\
+https://nytimes.com/2024/06/07/us/politics/reca-callout.html
+
 **U.S. Considers Expanded Nuclear Arsenal, a Reversal of Decades of Cuts**\
 `China’s expansion and Russia’s threats of using nuclear weapons in Ukraine and in space have changed a U.S. drive to reduce nuclear weapons.`\
 https://nytimes.com/2024/06/07/us/politics/us-nuclear-russia-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/04/opinion/thepoint/hunter-biden-gun
 **Is New York’s Economy Too Fragile for Congestion Pricing? Many Say No.**\
 `Gov. Kathy Hochul said she halted the tolling plan because of New York City’s unstable economic recovery. Experts say the alternatives are worse.`\
 https://nytimes.com/2024/06/07/nyregion/congestion-pricing-nyc-economy.html
-
-**Senate Democrats Face Escalating Calls for Broader Investigation Into High Court**\
-`They say their options are limited by the court’s status as a separate branch of government and deep Republican opposition.`\
-https://nytimes.com/2024/06/07/us/politics/senate-democrats-supreme-court-ethics.html
 
