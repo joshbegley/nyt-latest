@@ -1,3 +1,19 @@
+**Real Teenagers, Fake Nudes: The Rise of Deepfakes in American Schools**\
+`Students are using artificial intelligence to create sexually explicit images of their classmates.`\
+https://nytimes.com/2024/06/07/podcasts/the-daily/real-teenagers-fake-nudes-the-rise-of-deepfakes-in-american-schools.html
+
+**Israel Defends Strike on School, and Hallie Biden Testifies in Gun Trial**\
+`Plus, Pat Sajak leaves “Wheel of Fortune.”`\
+https://nytimes.com/2024/06/07/podcasts/gaza-school-strike-gun-trial.html
+
+**The Connections Companion No. 363, June 8, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/07/crosswords/connections-companion-363.html
+
+**Wordle Review No. 1,085, June 8, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/07/crosswords/wordle-review-1085.html
+
 **As Fighting Rages in Ukraine, a Struggle Is On for Artillery Supremacy**\
 `Ukrainian forces say U.S. shells are making a difference. Across the border, they say, Russia is trying to get its artillery nearer targets like the city of Kharkiv.`\
 https://nytimes.com/2024/06/07/world/europe/ukraine-war-russia-artillery.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/06/07/opinion/civil-war-wide-awakes-free-speech.html
 **Is Trump Attracting Men? Or Is Biden Repelling Them?**\
 `Three men of Opinion debate.`\
 https://nytimes.com/2024/06/07/opinion/trump-biden-men-masculinity.html
-
-**En_ of an E_a: As Pat Sajak Signs Off, a Look Back at ‘Wheel of Fortune’**\
-`The host departs this week after more than four decades leading one of the most watched shows on syndicated American TV.`\
-https://nytimes.com/2024/06/07/arts/television/pat-sajak-wheel-of-fortune.html
-
-**Minority Groups’ Uninsured Rate Has Plunged in Recent Years, Reports Find**\
-`The percentages of Black, Hispanic, Asian and Native Americans without insurance have all fallen, often by around half, since the Affordable Care Act took effect, easing disparities in coverage.`\
-https://nytimes.com/2024/06/07/us/health-insurance-minority-groups.html
-
-**5 Things to Do This Weekend**\
-`A selection of entertainment highlights this weekend, including “Hit Man,” which is coming to Netflix today.`\
-https://nytimes.com/interactive/2024/06/07/arts/weekend-editors-picks-hit-man.html
-
-**Pat Sajak, the Cool, Unflappable, Reliable Host, Signs Off**\
-`In 41 seasons at the helm of “Wheel of Fortune,” Mr. Sajak, whose final episode as host airs on Friday, has been a durable fixture of the American cultural landscape.`\
-https://nytimes.com/2024/06/07/style/pat-sajak-wheel-of-fortune-host.html
 
