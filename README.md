@@ -1,9 +1,13 @@
+**They May Be the ‘50 Best,’ but Are They Actually Restaurants?**\
+`This year’s list of the World’s 50 Best Restaurants is largely a tribute to places where a meal turns into an overbearing ordeal.`\
+https://nytimes.com/2024/06/07/dining/what-makes-a-50-best-restaurant.html
+
 **Stars Singing Under the Stars: A Global Gala Celebrates Opera**\
 `Italy’s government pulled out all the stops to celebrate one of Italy’s most important national art forms.`\
 https://nytimes.com/2024/06/07/world/europe/italy-opera-gala.html
 
 **What We Know About Israel’s Deadly Strike on U.N. School Complex in Gaza**\
-`By Bilal Shbair, Aaron Boxerman, Erika Solomon and Abu Bakr Bashir`\
+`Israel said it struck three classrooms used by 20 to 30 Palestinian militants. Gazan health authorities said that many women and children were among the dozens killed.`\
 https://nytimes.com/2024/06/07/world/middleeast/israel-strike-un-school-gaza.html
 
 **New York Should Lead the Way on Congestion Pricing, Not Delay It**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/nyregion/new-york-state-reservation-fraud.html
 **Jeannette Charles, Who Doubled for the Queen, Is Dead at 96**\
 `She bore a startling resemblance to Elizabeth II. In “The Naked Gun” and other movies, and in comedy sketches on TV, she wore the crown lightly.`\
 https://nytimes.com/2024/06/07/movies/jeannette-charles-dead.html
-
-**Judge John Hodgman on the Limits of Tall Privilege**\
-`If you’re tall, can you put your hiking boots on the dining table?`\
-https://nytimes.com/2024/06/07/magazine/judge-john-hodgman-on-the-limits-of-tall-privilege.html
 
