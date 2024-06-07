@@ -1,3 +1,7 @@
+**8 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://nytimes.com/2024/06/07/movies/new-movies-this-week-critics.html
+
 **Netanyahu Threatened ‘Very Intense Action’ at the Lebanon Border. What Is Happening There?**\
 `Here’s a closer look at the clashes between Israel and the Lebanese militia Hezbollah, which have raised fears of a broader Middle East conflict.`\
 https://nytimes.com/2024/06/07/world/middleeast/hezbollah-lebanon-israel.html
