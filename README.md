@@ -1,3 +1,7 @@
+**Netanyahu Threatened ‘Very Intense Action’ at the Lebanon Border. What Is Happening There?**\
+`Here’s a closer look at the clashes between Israel and the Lebanese militia Hezbollah, which have raised fears of a broader Middle East conflict.`\
+https://nytimes.com/2024/06/07/world/middleeast/hezbollah-lebanon-israel.html
+
 **Demand for summer help appears to be strong.**\
 `By Lydia DePillis`\
 https://nytimes.com/live/2024/06/07/business/jobs-report-may-economy/demand-for-summer-help-appears-to-be-strong
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/podcasts/the-daily/deepfake-nudes.html
 **Israel Defends Strike on School, and Hallie Biden Testifies in Gun Trial**\
 `Plus, Pat Sajak leaves “Wheel of Fortune.”`\
 https://nytimes.com/2024/06/07/podcasts/gaza-school-strike-gun-trial.html
-
-**The Connections Companion No. 363, June 8, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/06/07/crosswords/connections-companion-363.html
 
