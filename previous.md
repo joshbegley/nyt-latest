@@ -1,3 +1,7 @@
+**Wage Growth Exceeds Forecasts, Potentially Deterring Fed Rate Cuts**\
+`The latest data could add to fears that the labor market remains too hot to bring inflation fully under control.`\
+https://nytimes.com/2024/06/07/business/economy/wage-growth-exceeds-forecasts-potentially-deterring-fed-rate-cuts.html
+
 **EMTs Get a New Way to Treat Heat Victims: Body-Sized Ice Cocoons**\
 `In overheated Phoenix, firefighters are carrying giant plastic, ice-filled bags to quickly cool people, a technique pioneered in the military and at sporting events.`\
 https://nytimes.com/2024/06/07/climate/heat-victims-emt-ice-body-bags.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/06/07/world/asia/india-election-map.html
 **8 New Movies Our Critics Are Talking About This Week**\
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
 https://nytimes.com/2024/06/07/movies/new-movies-this-week-critics.html
-
-**Netanyahu Threatened ‘Very Intense Action’ at the Lebanon Border. What Is Happening There?**\
-`Here’s a closer look at the clashes between Israel and the Lebanese militia Hezbollah, which have raised fears of a broader Middle East conflict.`\
-https://nytimes.com/2024/06/07/world/middleeast/hezbollah-lebanon-israel.html
 

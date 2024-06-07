@@ -1,3 +1,7 @@
+**Wage Growth Exceeds Forecasts, Potentially Deterring Fed Rate Cuts**\
+`The latest data could add to fears that the labor market remains too hot to bring inflation fully under control.`\
+https://nytimes.com/2024/06/07/business/economy/wage-growth-exceeds-forecasts-potentially-deterring-fed-rate-cuts.html
+
 **EMTs Get a New Way to Treat Heat Victims: Body-Sized Ice Cocoons**\
 `In overheated Phoenix, firefighters are carrying giant plastic, ice-filled bags to quickly cool people, a technique pioneered in the military and at sporting events.`\
 https://nytimes.com/2024/06/07/climate/heat-victims-emt-ice-body-bags.html
