@@ -1,3 +1,7 @@
+**Trump Says He Will Announce His Running Mate at Convention**\
+`The former president, who has a knack for building an audience since his reality TV days, is narrowing down the field of contenders.`\
+https://nytimes.com/2024/06/07/us/politics/trump-vp-running-mate.html
+
 **Biden Apologizes to Zelensky for Delayed Military Assistance**\
 `President Biden met with President Volodymyr Zelensky of Ukraine and apologized for the delay in approving military assistance, blaming it on conservative Republican opposition.`\
 https://nytimes.com/video/world/europe/100000009509976/zelenskyy-biden.html
