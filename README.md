@@ -1,3 +1,7 @@
+**5 Convicted in Federal Fraud Trial Imperiled by a Gift Bag of Cash**\
+`Prosecutors accused the defendants of stealing millions of dollars from programs meant to feed children. A juror was replaced after officials said she was apparently offered a bribe of $120,000 to acquit.`\
+https://nytimes.com/2024/06/07/us/federal-fraud-trial-minnesota.html
+
 **YouTuber Who Had Lamborghini Shot With Fireworks From a Helicopter Is Arrested**\
 `Suk Min Choi, also known as Alex Choi, landed in trouble for directing the stunt recorded last year and posted to his YouTube channel, prosecutors said.`\
 https://nytimes.com/2024/06/07/us/youtuber-fireworks-lamborghini-helicopter.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/06/07/arts/television/best-of-late-night-tr
 **Plant and Krauss Cover a Led Zeppelin Classic, and 12 More New Songs**\
 `Hear tracks by Soccer Mommy, Tems, Floating Points and others.`\
 https://nytimes.com/2024/06/07/arts/music/playlist-sabrina-carpenter-charli-xcx-halsey.html
-
-**A Billionaire’s Urban Dream Opens for the Summer**\
-`Andy Cohen, Fran Lebowitz and hundreds more gathered at Little Island, Barry Diller’s one-of-a-kind park on the Hudson River, for a new dance performance by Twyla Tharp.`\
-https://nytimes.com/2024/06/07/style/little-island-andy-cohen-fran-lebowitz.html
 
