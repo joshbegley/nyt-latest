@@ -1,3 +1,7 @@
+**YouTuber Who Had Lamborghini Shot With Fireworks From a Helicopter Is Arrested**\
+`Suk Min Choi, also known as Alex Choi, landed in trouble for directing the stunt recorded last year and posted to his YouTube channel, prosecutors said.`\
+https://nytimes.com/2024/06/07/us/youtuber-fireworks-lamborghini-helicopter.html
+
 **Blinken plans to return to the Middle East next week.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas/blinken-plans-to-return-to-the-middle-east-next-week
