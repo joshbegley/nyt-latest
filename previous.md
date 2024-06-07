@@ -1,3 +1,7 @@
+**Israel’s Push in Central Gaza Targets Hamas Fighters**\
+`The Israeli military said it killed militants in central Gaza on Friday, a day after a strike on a former school, where Gazan officials say civilians were killed.`\
+https://nytimes.com/2024/06/07/world/middleeast/central-gaza-israel-hamas.html
+
 **N.Y.P.D. Officer Accused of Critically Wounding Man in Off-Duty Shooting**\
 `Prosecutors said Officer Hieu Tran shot the driver of a truck at a New Jersey intersection in an apparent road rage episode and then drove off. He has been charged with attempted murder.`\
 https://nytimes.com/2024/06/07/nyregion/nypd-road-rage-shooting-charges.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/world/europe/italy-opera-gala.html
 **What We Know About Israel’s Deadly Strike on U.N. School Complex in Gaza**\
 `Israel said it struck three classrooms used by 20 to 30 Palestinian militants. Gazan health authorities said that many women and children were among the dozens killed.`\
 https://nytimes.com/2024/06/07/world/middleeast/israel-strike-un-school-gaza.html
-
-**New York Should Lead the Way on Congestion Pricing, Not Delay It**\
-`Gov. Kathy Hochul’s misguided decision would be a huge setback for the quality of life in the nation’s largest city.`\
-https://nytimes.com/2024/06/07/opinion/editorials/new-york-congestion-pricing-hochul.html
 
