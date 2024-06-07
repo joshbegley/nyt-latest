@@ -1,3 +1,11 @@
+**Republicans Are ‘Running Out of States’ to Pass New Transgender Restrictions**\
+`In an election year, efforts to pass limits on transgender rights have slowed in Republican-led legislatures.`\
+https://nytimes.com/2024/06/07/us/state-legislatures-trasngender-bills.html
+
+**U.N. adds Israel to list of countries and groups that harm children in conflict zones.**\
+`By Farnaz Fassihi and Aaron Boxerman`\
+https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas/un-children
+
 **Biden Administration Tightens Mileage Standards to Buoy E.V.s**\
 `The new rule requires automakers to achieve an average of 65 miles per gallon across all models by 2031.`\
 https://nytimes.com/2024/06/07/climate/biden-mileage-electric-vehicles.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/07/world/africa/white-politician-south-africa.html
 **What’s the Best Way to Honor Sophie in Song?**\
 `Recent tracks from Charli XCX, A.G. Cook, Caroline Polachek and St. Vincent capture the producer’s philosophy and humanity, but not necessarily her signature sound.`\
 https://nytimes.com/2024/06/07/arts/music/sophie-tribute-songs-charli-xcx.html
-
-**Closure of Philadelphia Art School Spurs Review by State Attorney General**\
-`The abrupt closure of the University of the Arts affects hundreds of faculty members and more than a thousand students.`\
-https://nytimes.com/2024/06/07/arts/design/university-of-the-arts-philadelphia-attorney-general.html
-
-**Mike Pence Derailed His Political Career Opposing Trump. Can He Revive It?**\
-`The former vice president wants to climb back to relevance as a keeper of the flame for traditional conservatism. The Trump camp calls him “Judas Pence.”`\
-https://nytimes.com/2024/06/07/us/politics/donald-trump-mike-pence-campaign-2024.html
 
