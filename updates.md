@@ -1,3 +1,11 @@
+**U.S. Hiring and Wages Rose More Than Expected**\
+`Also, Biden pushes for more E.V.s. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/06/07/briefing/us-job-market-biden-ev-push.html
+
+**Are These Really ‘the World’s 50 Best Restaurants’?**\
+`This year’s list is largely a tribute to places where the pleasures of eating give way to an overbearing ordeal.`\
+https://nytimes.com/2024/06/07/dining/what-makes-a-50-best-restaurant.html
+
 **Latinos for Trump Rebrands to Add ‘Americans’ to Its Name**\
 `Trump’s Latino outreach effort aims to emphasize citizenship as he makes inroads with these voters, even as he ramps up inflammatory talk about immigrants.`\
 https://nytimes.com/2024/06/07/us/politics/latinos-trump-americans.html
