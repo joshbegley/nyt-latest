@@ -1,3 +1,7 @@
+**Biden to Meet With Zelensky as Ukraine Seeks Revival on Battlefield**\
+`The two presidents are scheduled to sit down in France, where they are visiting to mark the 80th anniversary of the Normandy invasion during World War II.`\
+https://nytimes.com/2024/06/07/world/europe/biden-zelensky-meeting-ukraine.html
+
 **China’s Exports Surge as Trade Tensions Near Boiling Point**\
 `China’s trade surplus soared, helping to lift the country’s economy even as consumer spending slows because of a sharp housing contraction.`\
 https://nytimes.com/2024/06/07/business/china-export-trade-surplus.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/world/australia/new-zealand-american-emigrants.ht
 **Word of the Day: archaic**\
 `This word has appeared in 73 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/06/07/learning/word-of-the-day-archaic.html
-
-**In New Caledonia, ‘No Confidence’ With France After Violent Protests**\
-`An uneasy stalemate exists in the South Pacific territory as Paris continues to enforce a nightly curfew and a ban on the sale of alcohol.`\
-https://nytimes.com/2024/06/07/world/asia/new-caledonia-france-unrest.html
 
