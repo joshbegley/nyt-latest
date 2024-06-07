@@ -1,3 +1,7 @@
+**Biden to Meet With Zelensky as Ukraine Seeks Revival on Battlefield**\
+`The two presidents are scheduled to sit down in France, where they are visiting to mark the 80th anniversary of the Normandy invasion during World War II.`\
+https://nytimes.com/2024/06/07/world/europe/biden-zelensky-meeting-ukraine.html
+
 **In New Caledonia, ‘No Confidence’ With France After Violent Protests**\
 `An uneasy stalemate exists in the South Pacific territory as Paris continues to enforce a nightly curfew and a ban on the sale of alcohol.`\
 https://nytimes.com/2024/06/07/world/asia/new-caledonia-france-unrest.html
