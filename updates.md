@@ -1,3 +1,15 @@
+**N.Y.P.D. Officer Accused of Critically Wounding Man in Off-Duty Shooting**\
+`Prosecutors said Officer Hieu Tran shot the driver of a truck at a New Jersey intersection in an apparent road rage episode and then drove off. He has been charged with attempted murder.`\
+https://nytimes.com/2024/06/07/nyregion/nypd-road-rage-shooting-charges.html
+
+**The Biden Family’s Public Reckoning With Addiction**\
+`President Biden is keeping his son close, and acknowledging his addiction, while he’s on trial.`\
+https://nytimes.com/2024/06/07/us/politics/biden-hunter-addiction.html
+
+**Are These Really ‘the World’s 50 Best Restaurants’?**\
+`The places on this year’s “50 Best” list are endurance tests, theatrical spectacles, monuments to ego and — the two most frightening words in dining — “immersive experiences.”`\
+https://nytimes.com/2024/06/07/dining/what-makes-a-50-best-restaurant.html
+
 **Roaring Kitty Talked GameStop and Chugged Beer. Shares Plunged.**\
 `Keith Gill, the investor who spurred the meme stock mania in 2021, attracted a huge audience for his public return Friday. But his favorite buy dropped.`\
 https://nytimes.com/2024/06/07/business/roaring-kitty-gamestop-keith-gill.html
