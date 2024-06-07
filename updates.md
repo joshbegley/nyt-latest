@@ -1,3 +1,7 @@
+**Biden Apologizes to Zelensky for Delayed Military Assistance**\
+`President Biden met with President Volodymyr Zelensky of Ukraine and apologized for the delay in approving military assistance, blaming it on conservative Republican opposition.`\
+https://nytimes.com/video/world/europe/100000009509976/zelenskyy-biden.html
+
 **A pier for aid shipments, damaged in rough seas, has been restored to the Gaza shore, the U.S. says.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas/a-pier-for-aid-shipments-damaged-in-rough-seas-has-been-restored-to-the-gaza-shore-the-us-says

@@ -1,3 +1,7 @@
+**Biden Apologizes to Zelensky for Delayed Military Assistance**\
+`President Biden met with President Volodymyr Zelensky of Ukraine and apologized for the delay in approving military assistance, blaming it on conservative Republican opposition.`\
+https://nytimes.com/video/world/europe/100000009509976/zelenskyy-biden.html
+
 **A pier for aid shipments, damaged in rough seas, has been restored to the Gaza shore, the U.S. says.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas/a-pier-for-aid-shipments-damaged-in-rough-seas-has-been-restored-to-the-gaza-shore-the-us-says
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/world/europe/euro-2024.html
 **Businessman Who Admitted to Trying to Bribe Menendez Expected to Testify**\
 `Jose Uribe is cooperating with the government. Prosecutors say he sought Senator Robert Menendez’s help to stave off fraud investigations into two allies.`\
 https://nytimes.com/2024/06/07/nyregion/jose-uribe-menendez-trial-bribery.html
-
-**What to Make of the Jobs Report’s Mixed Signals**\
-`The monthly data is drawn from two surveys. This time, one was quite strong, and the other flashed warning signs.`\
-https://nytimes.com/2024/06/07/business/economy/what-to-make-of-the-jobs-reports-mixed-signals.html
 
