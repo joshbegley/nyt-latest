@@ -1,3 +1,7 @@
+**Apple Watch in Stolen Luggage Leads to Airport Worker’s House, Police Say**\
+`The Sheriff’s Office in Broward County, Fla., said an airport worker had been charged with stealing a woman’s bag, which had her Apple Watch inside.`\
+https://nytimes.com/2024/06/07/us/stolen-luggage-apple-watch-florida.html
+
 **Have You Applied for Federal Compensation for Nuclear Radiation Exposure? We Want to Hear From You.**\
 `We’re hoping to speak to people who have filed a claim through the Radiation Exposure Compensation Act. We want to know what the experience was like.`\
 https://nytimes.com/2024/06/07/us/politics/reca-callout.html
