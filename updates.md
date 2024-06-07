@@ -1,3 +1,7 @@
+**A Belmont in Saratoga**\
+`By Victor J. Blue and Melissa Hoppert`\
+https://nytimes.com/card/2024/06/07/business/belmont-saratoga-preview
+
 **An Israeli strike kills the mayor of the town where a school complex-turned-mass shelter was hit.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/06/07/world/israel-gaza-war-hamas/an-israeli-strike-kills-the-mayor-of-the-town-where-a-school-complex-turned-mass-shelter-was-hit
