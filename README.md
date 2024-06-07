@@ -1,3 +1,7 @@
+**Trump makes rare visit to San Francisco to court the conservative elite.**\
+`At a fund-raiser hosted by David Sacks, the former president regaled wealthy Silicon Valley entrepreneurs and denounced the city as unsafe.`\
+https://nytimes.com/live/2024/06/07/us/trump-biden-election/trump-makes-rare-visit-to-san-francisco-to-court-the-conservative-elite
+
 **A Club Soccer Fight Intrudes on Euro 2024**\
 `The European Championship starts in a week. So why are the headlines about Manchester City?`\
 https://nytimes.com/2024/06/07/world/europe/euro-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/us/david-depape-nancy-pelosi.html
 **Looking for Pet Insurance? Some Dog Breeds Will Cost More to Cover.**\
 `Premiums for big dogs and purebreds are generally higher. But as one expert put it, “Every dog can get sick.” Here’s what to know about coverage.`\
 https://nytimes.com/2024/06/07/your-money/pet-insurance-dogs.html
-
-**The Sky’s the Limit for C.E.O. Pay**\
-`With new executive pay disclosures, the big picture is still riches at the top and lagging wages for most of the rank-and-file, our columnist says.`\
-https://nytimes.com/2024/06/07/business/ceo-pay-compensation-stock-market.html
 
