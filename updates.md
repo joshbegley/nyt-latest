@@ -1,3 +1,11 @@
+**EMTs Get a New Way to Treat Heat Victims: Body-Sized Ice Cocoons**\
+`In overheated Phoenix, firefighters are carrying giant plastic, ice-filled bags to quickly cool people, a technique pioneered in the military and at sporting events.`\
+https://nytimes.com/2024/06/07/climate/heat-victims-emt-ice-body-bags.html
+
+**Prosecutors in Hunter Biden Trial Are Expected to Rest Their Case**\
+`The trial is likely to nudge into a second week, with Mr. Biden’s lawyers expected to mount their defense as early as Friday.`\
+https://nytimes.com/2024/06/07/us/politics/hunter-biden-trial-prosecution.html
+
 **What to Know About the Prosecution of David DePape**\
 `A judge dismissed some state charges against the assailant who broke into Nancy Pelosi’s house in 2022, but he still faces life in prison if convicted.`\
 https://nytimes.com/2024/06/07/us/david-depape-nancy-pelosi.html
