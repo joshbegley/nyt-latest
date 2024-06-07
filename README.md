@@ -14,7 +14,7 @@ https://nytimes.com/2024/06/07/world/middleeast/israel-strike-un-school-gaza.htm
 `Gov. Kathy Hochul’s misguided decision would be a huge setback for the quality of life in the nation’s largest city.`\
 https://nytimes.com/2024/06/07/opinion/editorials/new-york-congestion-pricing-hochul.html
 
-**Latinos for Trump Rebrands to Add ‘American’ to Its Name**\
+**Latinos for Trump Rebrands to Add ‘Americans’ to Its Name**\
 `Trump’s Latino outreach effort aims to emphasize citizenship as he makes inroads with these voters, even as he ramps up inflammatory talk about immigrants.`\
 https://nytimes.com/2024/06/07/us/politics/latinos-trump-americans.html
 
