@@ -1,3 +1,7 @@
+**Donald Trump’s Budding Bromance with Tech Moguls**\
+`A week after his criminal conviction, the former president was in deep-blue San Francisco raising money from some of Silicon Valley’s best-connected entrepreneurs and investors.`\
+https://nytimes.com/2024/06/07/business/dealbook/donald-trump-big-tech-fundraiser.html
+
 **Markets Poised to Take a Jobs Slowdown in Stride**\
 `Stocks have recently set records as investors bet that the Federal Reserve might opt to cut interest rates sooner than previously expected.`\
 https://nytimes.com/2024/06/07/business/jobs-report-markets.html
