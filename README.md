@@ -1,3 +1,11 @@
+**Americans Head to New Zealand and Leave ‘the Chaos’ Behind**\
+`The Pacific island nation has become an object of fascination for some Americans who no longer want to deal with the U.S. political divide.`\
+https://nytimes.com/2024/06/07/world/australia/new-zealand-american-emigrants.html
+
+**Word of the Day: archaic**\
+`This word has appeared in 73 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/06/07/learning/word-of-the-day-archaic.html
+
 **In New Caledonia, ‘No Confidence’ With France After Violent Protests**\
 `An uneasy stalemate exists in the South Pacific territory as Paris continues to enforce a nightly curfew and a ban on the sale of alcohol.`\
 https://nytimes.com/2024/06/07/world/asia/new-caledonia-france-unrest.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/07/pageoneplus/quotation-of-the-day-tone-it-down-adv
 **Two Women Redefine What it Means to Marry Your Best Friend**\
 `After 32 years of platonic friendship, Sheri Cole and Beth Moore decided to marry for the security and legal protection.`\
 https://nytimes.com/2024/06/07/style/sheri-cole-beth-moore-best-friends-wedding.html
-
-**Corrections: June 7, 2024**\
-`Corrections that appeared in print on Friday, June 7, 2024.`\
-https://nytimes.com/2024/06/07/pageoneplus/corrections-june-7-2024.html
-
-**India’s Modi, Humbled by Voters, Faces Potent Economic Struggles**\
-`With his grip on political power weakened, the Indian prime minister is confronting the same formidable challenge — how to generate hundreds of millions of jobs.`\
-https://nytimes.com/2024/06/07/business/india-election-modi-economy.html
 
