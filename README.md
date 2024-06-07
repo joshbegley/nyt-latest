@@ -1,3 +1,15 @@
+**Closure of Philadelphia Art School Spurs Review by State Attorney General**\
+`The abrupt closure of the University of the Arts affects hundreds of faculty members and more than a thousand students.`\
+https://nytimes.com/2024/06/07/arts/design/university-of-the-arts-philadelphia-attorney-general.html
+
+**Mike Pence Derailed His Political Career Opposing Trump. Can He Revive It?**\
+`The former vice president wants to climb back to relevance as a keeper of the flame for traditional conservatism. The Trump camp calls him “Judas Pence.”`\
+https://nytimes.com/2024/06/07/us/politics/donald-trump-mike-pence-campaign-2024.html
+
+**Read Justice Clarence Thomas’s Financial Disclosures for 2023**\
+`The Supreme Court justice also included in his 2023 form an amendment for his 2019 filing.`\
+https://nytimes.com/interactive/2024/06/07/us/politics/thomas-clarence-annual-2023.html
+
 **H. Bruce Franklin, Scholar Who Embraced Radical Politics, Dies at 90**\
 `A cultural historian, he was fired by Stanford University in 1972 over an anti-Vietnam War speech that became a cause célèbre of academic freedom.`\
 https://nytimes.com/2024/06/07/us/h-bruce-franklin-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/07/t-magazine/button-up-shirts-women.html
 **Mitch McConnell’s Warning Against Isolationism**\
 `Readers agree with his argument but criticize his complicity in G.O.P. policies. Also: D-Day at 80; Republican “law and order”; universities’ voices; A.I. as C.E.O.`\
 https://nytimes.com/2024/06/07/opinion/mitch-mcconnell-isolationism-d-day.html
-
-**Before the Olympics, the Fabulous French Fashion Flex**\
-`Christian Dior, Balenciaga, Chanel, Hermès and Louis Vuitton have turned cruise shows into diplomatic currency.`\
-https://nytimes.com/2024/06/07/style/dior-hermes-balenciaga-chanel-cruise.html
-
-**Team Ownership Rules Complicate a Soccer Star’s Next Move**\
-`The rise of multiclub networks introduced a web of conflicts to European soccer, and could block a young Brazilian’s heralded transfer to Manchester City.`\
-https://nytimes.com/2024/06/07/world/europe/savio-manchester-city-girona.html
-
-**Trump’s Former Chief of Staff Pleads Not Guilty in Arizona Election Case**\
-`Mark Meadows, who was the White House chief of staff in 2020, is accused of taking part in an effort to reverse Donald Trump’s loss in Arizona.`\
-https://nytimes.com/2024/06/07/us/trumps-former-chief-of-staff-pleads-not-guilty-in-arizona-election-case.html
 
