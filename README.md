@@ -1,3 +1,11 @@
+**A Billionaire’s Urban Dream Opens for the Summer**\
+`Andy Cohen, Fran Lebowitz and hundreds more gathered at Little Island, Barry Diller’s one-of-a-kind park on the Hudson River, for a new dance performance by Twyla Tharp.`\
+https://nytimes.com/2024/06/07/style/little-island-andy-cohen-fran-lebowitz.html
+
+**White Politician Poised for Power Faces Hurdle in South Africa**\
+`As John Steenhuisen, who leads the second-largest party, negotiates for a place in the government, he must overcome perceptions that his Democratic Alliance favors the interests of white people.`\
+https://nytimes.com/2024/06/07/world/africa/white-politician-south-africa.html
+
 **What’s the Best Way to Honor Sophie in Song?**\
 `Recent tracks from Charli XCX, A.G. Cook, Caroline Polachek and St. Vincent capture the producer’s philosophy and humanity, but not necessarily her signature sound.`\
 https://nytimes.com/2024/06/07/arts/music/sophie-tribute-songs-charli-xcx.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/07/business/european-central-bank-interest-rates.htm
 **Transcript: Ezra Klein Interviews Annie Lowrey**\
 `The June 7, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/06/07/podcasts/transcript-ezra-klein-interviews-annie-lowrey.html
-
-**Biden Speaks on Democracy During State Visit to France**\
-`The president delivered his speech in Normandy where 40 years ago, former president Ronald Reagan paid tribute to the U.S. Army Rangers who scaled the cliffs of Pointe du Hoc in World War II.`\
-https://nytimes.com/video/us/politics/100000009509827/biden-normandy-democracy.html
-
-**The Best New Button-Up Shirts for Women**\
-`The timeless, trend-proof closet staple continues to evolve.`\
-https://nytimes.com/2024/06/07/t-magazine/button-up-shirts-women.html
 
