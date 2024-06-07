@@ -1,3 +1,15 @@
+**Transcript: Ezra Klein Interviews Annie Lowrey**\
+`The June 7, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/06/07/podcasts/transcript-ezra-klein-interviews-annie-lowrey.html
+
+**Biden Speaks on Democracy During State Visit to France**\
+`The president delivered his speech in Normandy where 40 years ago, former president Ronald Reagan paid tribute to the U.S. Army Rangers who scaled the cliffs of Pointe du Hoc in World War II.`\
+https://nytimes.com/video/us/politics/100000009509827/biden-normandy-democracy.html
+
+**The Best New Button-Up Shirts for Women**\
+`The timeless, trend-proof closet staple continues to evolve.`\
+https://nytimes.com/2024/06/07/t-magazine/button-up-shirts-women.html
+
 **Mitch McConnell’s Warning Against Isolationism**\
 `Readers agree with his argument but criticize his complicity in G.O.P. policies. Also: D-Day at 80; Republican “law and order”; universities’ voices; A.I. as C.E.O.`\
 https://nytimes.com/2024/06/07/opinion/mitch-mcconnell-isolationism-d-day.html
