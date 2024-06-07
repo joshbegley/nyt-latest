@@ -1,3 +1,31 @@
+**A Conversation With Prime Minister Justin Trudeau of Canada, and an OpenAI Whistle-Blower Speaks Out**\
+`It turns out A.I. is surprisingly Canadian.`\
+https://nytimes.com/2024/06/07/podcasts/hardfork-justin-trudeau-whistleblower.html
+
+**Japan Likes Tourists, Just Not This Many**\
+`The country has politely handled travelers for years, but as international visitors spill into previously untouristed spots, some residents are frustrated.`\
+https://nytimes.com/2024/06/07/world/asia/japan-mount-fuji-kyoto-tourism.html
+
+**‘Hit Man’ Says Contract Killers Aren’t Real. Here’s the Truth.**\
+`The romantic shenanigans are the stuff of Hollywood, but the film’s fake contract killer is based on a real man profiled in a Texas Monthly article.`\
+https://nytimes.com/2024/06/07/movies/hit-man-netflix-true-story.html
+
+**How a Designer Makes a Bed, in Five Easy Steps**\
+`You may think you know how to make your bed — but here’s how to make it a lot better.`\
+https://nytimes.com/2024/06/07/realestate/how-to-make-a-bed.html
+
+**Summer of Dupes: Alternatives in the Aegean**\
+`Between Turkey and Greece, there are plenty of spectacular spots for a seaside vacation. So why not go beyond the usual suspects? Here are five lesser-known choices.`\
+https://nytimes.com/2024/06/07/travel/greece-turkey-alternatives.html
+
+**Japan Runs on Vending Machines. It’s About to Break Millions of Them.**\
+`New yen notes set to be introduced this summer won’t be compatible with many machines that businesses like ramen shops rely on.`\
+https://nytimes.com/2024/06/07/world/asia/japan-bank-notes-vending-machines.html
+
+**From the I.R.A. to the Principal’s Office, a Life’s Evolution Echoes Belfast’s**\
+`Jim McCann was an I.R.A. member who, convicted of attempted murder, spent 18 years in jail. Now, he’s an educator, and his turn away from violence mirrors Northern Ireland’s embrace of peace.`\
+https://nytimes.com/2024/06/07/world/europe/northern-ireland-ira-school-principal.html
+
 **Biden to Meet With Zelensky as Ukraine Seeks Revival on Battlefield**\
 `The two presidents are scheduled to sit down in France, where they are visiting to mark the 80th anniversary of the Normandy invasion during World War II.`\
 https://nytimes.com/2024/06/07/world/europe/biden-zelensky-meeting-ukraine.html
@@ -9,32 +37,4 @@ https://nytimes.com/2024/06/07/business/china-export-trade-surplus.html
 **U.S. Scores Historic Cricket Win, but Only Pakistan Notices**\
 `Many Americans were oblivious to the magnitude of the World Cup victory against Pakistan on Thursday. But the pain was sharp in the cricket-mad nation.`\
 https://nytimes.com/2024/06/07/sports/cricket/pakistan-cricket-fans-react.html
-
-**Alvin Bragg’s Next Decision on Trump Presents a Political Quandary**\
-`The Manhattan district attorney must present a sentencing recommendation to the judge. He could face backlash whether he opts for leniency or for a harsh sentence.`\
-https://nytimes.com/2024/06/07/nyregion/alvin-bragg-donald-trump-jail-probation.html
-
-**52 Musicians, 24 Judges: Inside New York’s Subway Performance Auditions**\
-`Applications for the Metropolitan Transportation Authority’s Music Under New York program are creeping back up after a pandemic slump.`\
-https://nytimes.com/2024/06/07/nyregion/subway-musicians-auditions-mta.html
-
-**A Photographer Widens His Gaze to Loss, and It’s a Gain**\
-`Pieces add up to an archive of a life lived deeply in Lyle Ashton Harris’s compelling survey at the Queens Museum.`\
-https://nytimes.com/2024/06/07/arts/design/lyle-ashton-harris-artist-queens-museum.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/06/07/crosswords/spelling-bee-forum.html
-
-**Jimmy Fallon Teases Trump for His Criteria for a Running Mate**\
-`“He likes people who are rich and have hot wives,” Fallon said. “Well, at least he’s taking this seriously.”`\
-https://nytimes.com/2024/06/07/arts/television/late-night-trump-running-mate.html
-
-**Americans Head to New Zealand and Leave ‘the Chaos’ Behind**\
-`The Pacific island nation has become an object of fascination for some Americans who no longer want to deal with the U.S. political divide.`\
-https://nytimes.com/2024/06/07/world/australia/new-zealand-american-emigrants.html
-
-**Word of the Day: archaic**\
-`This word has appeared in 73 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/06/07/learning/word-of-the-day-archaic.html
 
