@@ -1,3 +1,15 @@
+**They May Be the ‘50 Best,’ but Are They Actually Restaurants?**\
+`This year’s list of the World’s 50 Best Restaurants is largely a tribute to places where a meal turns into an overbearing ordeal.`\
+https://nytimes.com/2024/06/07/dining/what-makes-a-50-best-restaurant.html
+
+**Stars Singing Under the Stars: A Global Gala Celebrates Opera**\
+`Italy’s government pulled out all the stops to celebrate one of Italy’s most important national art forms.`\
+https://nytimes.com/2024/06/07/world/europe/italy-opera-gala.html
+
+**What We Know About Israel’s Deadly Strike on U.N. School Complex in Gaza**\
+`Israel said it struck three classrooms used by 20 to 30 Palestinian militants. Gazan health authorities said that many women and children were among the dozens killed.`\
+https://nytimes.com/2024/06/07/world/middleeast/israel-strike-un-school-gaza.html
+
 **New York Should Lead the Way on Congestion Pricing, Not Delay It**\
 `Gov. Kathy Hochul’s misguided decision would be a huge setback for the quality of life in the nation’s largest city.`\
 https://nytimes.com/2024/06/07/opinion/editorials/new-york-congestion-pricing-hochul.html
