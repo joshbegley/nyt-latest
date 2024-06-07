@@ -1,3 +1,7 @@
+**A New ‘Hunger Games’ Book by Suzanne Collins Is Coming in 2025**\
+`“Sunrise on the Reaping” is the latest book in Collins’s hit series, which generated a legion of fans. It will also be made into a movie.`\
+https://nytimes.com/2024/06/06/arts/hunger-games-suzanne-collins-sunrise-reaping.html
+
 **Children Among Dozens Killed in Attack on Sudanese Village**\
 `Videos showed paramilitaries opening fire on the village in what had been Sudan’s breadbasket region, causing the latest mass civilian casualties in a brutal yearlong war.`\
 https://nytimes.com/2024/06/06/world/africa/sudan-wad-al-noura-assault-jazeera-province.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/06/opinion/elites-progressives-universities.html
 **Why You Shouldn’t Obsess About the National Debt**\
 `It’s a political problem, not an economic crisis.`\
 https://nytimes.com/2024/06/06/opinion/national-debt-us-taxes.html
-
-**Video Captures Emotional Moment Between Zelensky and U.S. Veteran**\
-`At the 80th anniversary of the D-Day landings, Melvin Hurwitz, an American World War II veteran, embraced President Volodymyr Zelensky of Ukraine and called him “the savior of the people.”`\
-https://nytimes.com/video/world/europe/100000009509097/zelensky-dday-veteran.html
 
