@@ -1,3 +1,7 @@
+**My Starting Five Songs From Boston and Dallas**\
+`Catch the N.B.A. Finals spirit with Erykah Badu, Pixies, Kelly Clarkson and more.`\
+https://nytimes.com/2024/06/07/arts/music/amplifier-newsletter-boston-dallas-songs.html
+
 **A Belmont in Saratoga**\
 `By Victor J. Blue and Melissa Hoppert`\
 https://nytimes.com/card/2024/06/07/business/belmont-saratoga-preview
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/us/politics/donald-trump-mike-pence-campaign-2024
 **Read Justice Clarence Thomas’s Financial Disclosures for 2023**\
 `The Supreme Court justice also included an amendment for his 2019 filing.`\
 https://nytimes.com/interactive/2024/06/07/us/politics/thomas-clarence-annual-2023.html
-
-**H. Bruce Franklin, Scholar Who Embraced Radical Politics, Dies at 90**\
-`A cultural historian, he was fired by Stanford University in 1972 over an anti-Vietnam War speech that became a cause célèbre of academic freedom.`\
-https://nytimes.com/2024/06/07/us/h-bruce-franklin-dead.html
 
