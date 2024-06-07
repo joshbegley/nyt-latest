@@ -1,4 +1,4 @@
-**‘Roaring Kitty’ Came Back, Chugging Beer and Talking GameStop. Shares Plunged.**\
+**Roaring Kitty Talked GameStop and Chugged Beer. Shares Plunged.**\
 `Keith Gill, the investor who spurred the meme stock mania in 2021, attracted a huge audience for his public return Friday. But his favorite buy dropped.`\
 https://nytimes.com/2024/06/07/business/roaring-kitty-gamestop-keith-gill.html
 
