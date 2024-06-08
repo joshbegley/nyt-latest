@@ -1,3 +1,7 @@
+**Weeks Before Prison, a Defiant Bannon Is Still Rallying MAGA World**\
+`The onetime adviser to former President Donald J. Trump has framed his impending imprisonment as an act of patriotism.`\
+https://nytimes.com/2024/06/07/us/politics/steve-bannon-bob-good-trump-prison.html
+
 **N.Y. Lawmakers End Session Without Replacing Congestion Pricing Revenue**\
 `State Senate Democrats rebuked Gov. Kathy Hochul over her decision to halt a long-developed plan to charge drivers tolls to enter Manhattan’s downtown core.`\
 https://nytimes.com/2024/06/07/nyregion/mta-congestion-pricing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/us/politics/rfk-jr-ballot-florida-reform-party.ht
 **If Trump Wins**\
 `Donald Trump and his closest allies are planning a radical reshaping of American government. Here are some of the policy stakes if he regains power in 2025.`\
 https://nytimes.com/interactive/2024/06/07/us/politics/trump-policy-list-2025.html
-
-**Denmark’s Prime Minister Is Attacked in Copenhagen Square**\
-`Mette Frederiksen, who has led the country since 2019, was “beaten,” her office said. The police said an arrest had been made, but a motive is unclear.`\
-https://nytimes.com/2024/06/07/world/europe/denmark-prime-minister-attacked-mette-frederiksen.html
 
