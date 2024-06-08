@@ -1,3 +1,7 @@
+**The Darker Side of Julia Louis-Dreyfus**\
+`The actress is taking on serious roles, trying to overcome self-doubt and sharing more about her personal life — but she’s not done being funny.`\
+https://nytimes.com/2024/06/08/magazine/julia-louis-dreyfus-interview.html
+
 **The Women Rethinking Marriage and Family Life Because of Miranda July**\
 `The author’s new novel, “All Fours,” has spurred a whisper network of women fantasizing about desire and freedom.`\
 https://nytimes.com/2024/06/08/style/miranda-july-all-fours-group-texts.html

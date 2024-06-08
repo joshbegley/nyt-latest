@@ -1,3 +1,7 @@
+**The Darker Side of Julia Louis-Dreyfus**\
+`The actress is taking on serious roles, trying to overcome self-doubt and sharing more about her personal life — but she’s not done being funny.`\
+https://nytimes.com/2024/06/08/magazine/julia-louis-dreyfus-interview.html
+
 **The Women Rethinking Marriage and Family Life Because of Miranda July**\
 `The author’s new novel, “All Fours,” has spurred a whisper network of women fantasizing about desire and freedom.`\
 https://nytimes.com/2024/06/08/style/miranda-july-all-fours-group-texts.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/08/arts/design/urs-fischer-las-vegas-fontainebleau.h
 **President Biden’s Action on Immigration Is a Tough Sell in This Border County**\
 `Republicans and Democrats alike in Cochise County, Ariz., a place where many have long felt their needs are ignored, eyed the executive order with skepticism.`\
 https://nytimes.com/2024/06/08/us/politics/biden-immigration-border.html
-
-**When the Money Is Under the Mattress. Or in the Freezer. Or a Shoebox.**\
-`Older people who stash large sums of cash in their homes think it’s safer there than anyplace else. But they could be creating huge headaches for their heirs.`\
-https://nytimes.com/2024/06/08/business/cash-at-home-retirement.html
 
