@@ -26,7 +26,7 @@ https://nytimes.com/2024/06/08/opinion/alzheimers-mom-family-diagnosis.html
 `As the country becomes increasingly divided, Brownsville comes together.`\
 https://nytimes.com/2024/06/08/opinion/border-charro-days-brownsville.html
 
-**The freed hostages are in good medical condition, Israeli authorities said.**\
+**Here is the latest news on the freed hostages.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/06/08/world/israel-gaza-war-hamas/the-freed-hostages-are-in-good-medical-condition-israeli-authorities-said
 
