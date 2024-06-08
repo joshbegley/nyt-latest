@@ -1,3 +1,7 @@
+**The last functioning hospitals in Gaza may soon be out of service, the health ministry warns.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/06/08/world/israel-gaza-war-hamas/the-last-functioning-hospitals-in-gaza-may-soon-be-out-of-service-the-health-ministry-warns
+
 **Israeli news outlets break the quiet of the Sabbath to cover the release of four hostages.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/06/08/world/israel-gaza-war-hamas/israeli-news-outlets-break-the-quiet-of-the-sabbath-to-cover-the-return-of-four-hostages
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/08/opinion/donald-trump-trial.html
 **The Return of Pandas Is Proof We Can Still Have Good Things**\
 `The return of pandas to our zoos means more to Americans than just a burst of fleeting joy.`\
 https://nytimes.com/2024/06/08/opinion/panda-china-us-zoo.html
-
-**An Object Lesson From Covid on How to Destroy Public Trust**\
-`Officials should have told us what they knew, or at least leveled with us about what they didn’t know.`\
-https://nytimes.com/2024/06/08/opinion/covid-fauci-hearings-health.html
 
