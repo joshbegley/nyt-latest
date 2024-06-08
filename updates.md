@@ -1,3 +1,7 @@
+**Howard University Votes to Revoke Sean Combs’s Honorary Degree**\
+`In a unanimous decision, the university’s board of trustees also moved to disband a scholarship in Mr. Combs’s name amid investigations into abuse allegations.`\
+https://nytimes.com/2024/06/08/arts/music/howard-diddy-honorary-degree.html
+
 **For many Israelis, the rescue was a reason to celebrate after a grim stretch.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/06/08/world/israel-gaza-war-hamas/for-many-israelis-the-rescue-was-a-reason-to-celebrate-after-a-grim-stretch
