@@ -1,3 +1,7 @@
+**Stand-Up Comics Are Divided Over the Growing Presence of Crowd Work**\
+`Crowd work has grown more common, with some comedians now focusing their acts on it and sharing clips of their exchanges with audience members. But some comics say it takes away from the craft.`\
+https://nytimes.com/2024/06/08/style/stand-up-comedy-audience.html
+
 **The Darker Side of Julia Louis-Dreyfus**\
 `The actress is taking on serious roles, trying to overcome self-doubt and sharing more about her personal life — but she’s not done being funny.`\
 https://nytimes.com/2024/06/08/magazine/julia-louis-dreyfus-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/08/realestate/im-choking-on-my-neighbors-smoke-but-s
 **Can Big Art Make It in Las Vegas? Urs Fischer Weighs In.**\
 `The desert entertainment mecca is “artificial, but in a good way,” says the Swiss artist. His 46-foot-tall, gold-leaf sculpture is the city’s latest addition.`\
 https://nytimes.com/2024/06/08/arts/design/urs-fischer-las-vegas-fontainebleau.html
-
-**President Biden’s Action on Immigration Is a Tough Sell in This Border County**\
-`Republicans and Democrats alike in Cochise County, Ariz., a place where many have long felt their needs are ignored, eyed the executive order with skepticism.`\
-https://nytimes.com/2024/06/08/us/politics/biden-immigration-border.html
 
