@@ -1,6 +1,6 @@
 **Here’s How Israel’s Mission to Rescue Four Hostages Unfolded**\
 `The operation required weeks of planning and received the final go-ahead just a few minutes before it began, according to Israeli officials.`\
-https://nytimes.com/2024/06/08/world/middleeast/israel-mission-hostages-unfolded.html
+https://nytimes.com/2024/06/08/world/middleeast/israel-mission-hostages-nuseirat.html
 
 **In Final Analysis, N.Y. Legislative Session Is Defined by Its Omissions**\
 `The State Legislature passed a climate bill that would force polluters to pay into a “cost recovery” fund, but the focus of the session’s last days was on the collapse of congestion pricing.`\
