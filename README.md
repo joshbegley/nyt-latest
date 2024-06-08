@@ -30,9 +30,9 @@ https://nytimes.com/2024/06/08/arts/music/howard-diddy-honorary-degree.html
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/06/08/world/israel-gaza-war-hamas/for-many-israelis-the-rescue-was-a-reason-to-celebrate-after-a-grim-stretch
 
-**Hospital officials say more than 200 people were killed in central Gaza.**\
-`By Raja Abdulrahim`\
-https://nytimes.com/live/2024/06/08/world/israel-gaza-war-hamas/hospital-officials-say-more-than-200-people-were-killed-in-central-gaza
+**Scores Killed in Central Gaza After Israeli Strikes, Hospital Officials Say**\
+`Video footage showed people running for cover as a powerful airstrike exploded near them. The attack appeared to have hit a market.`\
+https://nytimes.com/2024/06/08/world/middleeast/israel-strikes-central-gaza.html
 
 **Saratoga’s Crowning Moment**\
 `The Belmont Stakes arrives at Saratoga Race Course.`\
