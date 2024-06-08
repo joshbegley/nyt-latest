@@ -1,3 +1,7 @@
+**Quiet Time**\
+`Zachary Schiff’s debut puzzle moves softly, but keeps us in suspense.`\
+https://nytimes.com/2024/06/08/crosswords/daily-puzzle-2024-06-09.html
+
 **Swimmer Trying to Make Olympic History Is Left Off the U.S. Team**\
 `When the sport of artistic swimming, formerly synchronized swimming, announced it would allow men to compete in the Paris Games, Bill May saw his chance. But the U.S. team chose only women.`\
 https://nytimes.com/2024/06/08/us/synchronized-swimming-bill-may.html
