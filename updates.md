@@ -1,3 +1,7 @@
+**Stage Opening, Perhaps**\
+`Daniel Sheremeta makes a sweeping Saturday debut.`\
+https://nytimes.com/2024/06/07/crosswords/daily-puzzle-2024-06-08.html
+
 **William A. Anders, Who Flew on First Manned Orbit of the Moon, Dies at 90**\
 `During the 1968 Apollo 8 mission, his color photograph of an emerging Earth, known as “Earthrise,” became an icon and driving force for the environmental movement.`\
 https://nytimes.com/2024/06/07/science/william-a-anders-dead.html

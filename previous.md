@@ -1,3 +1,7 @@
+**Stage Opening, Perhaps**\
+`Daniel Sheremeta makes a sweeping Saturday debut.`\
+https://nytimes.com/2024/06/07/crosswords/daily-puzzle-2024-06-08.html
+
 **‘The Time Has Come to Say Goodbye’: Pat Sajak Bids Farewell to ‘Wheel of Fortune’**\
 `The host thanked the show’s viewers and had special words for his co-star, Vanna White, before he signed off for the final time.`\
 https://nytimes.com/2024/06/07/arts/television/wheel-of-fortune-pat-sajak-final-show.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/business/media/washington-post-newsroom.html
 **Hunter Biden Is on Trial, but All Eyes Are on the Biden Women**\
 `The women called to testify have at different times tried to support a man whose history of addiction continues to hit them with shrapnel.`\
 https://nytimes.com/2024/06/07/us/politics/hunter-biden-naomi-jill-hallie-trial.html
-
-**Alvin Bragg Agrees to Testify Before Congress About Trump Case**\
-`The Manhattan district attorney suggested to a Republican congressman that he would testify only after former President Donald J. Trump is sentenced in July.`\
-https://nytimes.com/2024/06/07/nyregion/alvin-bragg-trump-conviction.html
 
