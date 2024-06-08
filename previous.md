@@ -1,3 +1,7 @@
+**Scare Easily? These 2 Thrillers Are Worth It.**\
+`Complicated sisters; messy neighbors.`\
+https://nytimes.com/2024/06/08/books/read-like-wind-recommendations-thrillers.html
+
 **Blank Screen**\
 `If you’ve been having trouble finding a show to watch, you’re not alone.`\
 https://nytimes.com/2024/06/08/briefing/blank-screen.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/08/world/israel-gaza-war-hamas/the-freed-hostag
 **How Will Employers Regard Today’s Student Activists?**\
 `Readers discuss a column by Pamela Paul about college protesters’ job prospects and future careers.`\
 https://nytimes.com/2024/06/08/opinion/student-activists-employers.html
-
-**Come Retribution**\
-`Donald Trump has a plan for his second term: retribution. We check in with the people who’ve crossed him to hear how they feel about that.`\
-https://nytimes.com/2024/06/08/podcasts/come-retribution.html
 

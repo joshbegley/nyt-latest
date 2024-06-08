@@ -1,3 +1,7 @@
+**Scare Easily? These 2 Thrillers Are Worth It.**\
+`Complicated sisters; messy neighbors.`\
+https://nytimes.com/2024/06/08/books/read-like-wind-recommendations-thrillers.html
+
 **Here is the latest news on the freed hostages.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/06/08/world/israel-gaza-war-hamas/the-freed-hostages-are-in-good-medical-condition-israeli-authorities-said
