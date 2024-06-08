@@ -1,3 +1,7 @@
+**Here is the latest news on the freed hostages.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/06/08/world/israel-gaza-war-hamas/the-freed-hostages-are-in-good-medical-condition-israeli-authorities-said
+
 **Blank Screen**\
 `If you’ve been having trouble finding a show to watch, you’re not alone.`\
 https://nytimes.com/2024/06/08/briefing/blank-screen.html
