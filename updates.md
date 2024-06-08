@@ -1,3 +1,7 @@
+**Spiced Chicken and Rice, Extremely Nice**\
+`And extremely fragrant and flavorful, thanks to turmeric and cardamom, nutty roasted pistachios and sweet golden raisins.`\
+https://nytimes.com/2024/06/08/dining/spiced-chicken-and-rice-extremely-nice.html
+
 **Who Are the Four Hostages Rescued in Gaza?**\
 `Since the Hamas-led terrorist attack on Oct. 7, Israel has only freed a small number of hostages through military force.`\
 https://nytimes.com/2024/06/08/world/middleeast/who-are-the-four-hostages-rescued-in-gaza.html
