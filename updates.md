@@ -1,3 +1,11 @@
+**Sigmund Rolat, Who Used His Wealth to Memorialize Polish Jews, Dies at 93**\
+`A Holocaust survivor and a shipping financier, he returned to his home country, where his parents and brother perished, to help build a museum and other memorials.`\
+https://nytimes.com/2024/06/08/world/europe/sigmund-rolat-dead.html
+
+**Scores Killed in Central Gaza After Israeli Strikes, Hospital Officials Say**\
+`Video footage showed people running for cover as a powerful airstrike exploded near them. The attack appeared to have hit a market.`\
+https://nytimes.com/2024/06/08/world/middleeast/israel-strikes-central-gaza.html
+
 **House Ethics Panel Looks Into Nancy Mace’s Use of Reimbursement Program**\
 `The committee will decide whether to open a formal investigation into expense reports filed by the South Carolina Republican.`\
 https://nytimes.com/2024/06/08/us/politics/nancy-mace-ethics.html
