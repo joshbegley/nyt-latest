@@ -1,3 +1,7 @@
+**Biden’s Border Crackdown Could Disproportionately Affect Families**\
+`Parents with children represent 40 percent of migrants who crossed the southern border this year. Now, they will be turned back within days, according to a memo obtained by The New York Times.`\
+https://nytimes.com/2024/06/08/us/politics/biden-border-crackdown-families.html
+
 **What Makes Katie Ledecky Swim?**\
 `As she prepares for the Paris Games, the seven-time Olympic gold medalist talks about the doping accusations against her competitors and how she stays focused while swimming 1,900 miles a year.`\
 https://nytimes.com/2024/06/08/style/katie-ledecky-swimming-olympics-memoir.html

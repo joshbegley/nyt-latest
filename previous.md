@@ -1,3 +1,7 @@
+**Biden’s Border Crackdown Could Disproportionately Affect Families**\
+`Parents with children represent 40 percent of migrants who crossed the southern border this year. Now, they will be turned back within days, according to a memo obtained by The New York Times.`\
+https://nytimes.com/2024/06/08/us/politics/biden-border-crackdown-families.html
+
 **What Makes Katie Ledecky Swim?**\
 `As she prepares for the Paris Games, the seven-time Olympic gold medalist talks about the doping accusations against her competitors and how she stays focused while swimming 1,900 miles a year.`\
 https://nytimes.com/2024/06/08/style/katie-ledecky-swimming-olympics-memoir.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/08/opinion/covid-fauci-hearings-health.html
 **My Mom Had Alzheimer’s. Now I Do Too. But I Learned From Her Not to Despair.**\
 `A son reflects on his mother’s life with Alzheimer’s, and what it has taught him as he faces his own diagnosis with the disease.`\
 https://nytimes.com/2024/06/08/opinion/alzheimers-mom-family-diagnosis.html
-
-**This Glorious Celebration Shows What Border Communities Can Be**\
-`As the country becomes increasingly divided, Brownsville comes together.`\
-https://nytimes.com/2024/06/08/opinion/border-charro-days-brownsville.html
 
