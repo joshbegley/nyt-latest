@@ -1,5 +1,5 @@
 **University of California Workers Ordered to End Strike Over Protest Grievances**\
-`An Orange County judge halted the labor action by academic workers after the university system said it was causing students “irreparable harm.”`\
+`An Orange County judge halted the labor action by academic workers after the university system said the walkout was causing students “irreparable harm.”`\
 https://nytimes.com/2024/06/07/us/university-of-california-strike.html
 
 **Kari Lake Delivered a Speech in Front of a Confederate Flag**\
