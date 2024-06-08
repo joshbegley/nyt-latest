@@ -1,3 +1,7 @@
+**Stanford Becomes Latest School to Reinstate Test Scores Requirement**\
+`The university joins a small but growing number of elite colleges requiring SAT or ACT scores in applications once again.`\
+https://nytimes.com/2024/06/08/us/stanford-standardized-tests.html
+
 **Days After Border Closes for Most Migrants, Manageable Crowds but More Anxiety**\
 `Shelters along the border were quieter on Friday and Saturday compared with previous months, but many hoping to cross into the U.S. felt stranded and fearful.`\
 https://nytimes.com/2024/06/08/us/biden-executive-order-mexico-border.html

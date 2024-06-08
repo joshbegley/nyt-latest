@@ -1,3 +1,7 @@
+**Stanford Becomes Latest School to Reinstate Test Scores Requirement**\
+`The university joins a small but growing number of elite colleges requiring SAT or ACT scores in applications once again.`\
+https://nytimes.com/2024/06/08/us/stanford-standardized-tests.html
+
 **Days After Border Closes for Most Migrants, Manageable Crowds but More Anxiety**\
 `Shelters along the border were quieter on Friday and Saturday compared with previous months, but many hoping to cross into the U.S. felt stranded and fearful.`\
 https://nytimes.com/2024/06/08/us/biden-executive-order-mexico-border.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/08/us/politics/kamala-harris-trump-michigan.html
 **At a weekly hostage rally in Tel Aviv, hope emerges with the return of four from Gaza.**\
 `By Adam Sella`\
 https://nytimes.com/live/2024/06/08/world/israel-gaza-war-hamas/at-a-weekly-hostage-rally-in-tel-aviv-hope-emerges-with-the-return-of-four-from-gaza
-
-**Here’s How Israel’s Mission to Rescue Four Hostages Unfolded**\
-`The operation required weeks of planning and received the final go-ahead just a few minutes before it began, according to Israeli officials.`\
-https://nytimes.com/2024/06/08/world/middleeast/israel-mission-hostages-nuseirat.html
 
