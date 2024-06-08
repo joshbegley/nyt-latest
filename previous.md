@@ -1,3 +1,7 @@
+**House Ethics Panel Looks Into Nancy Mace’s Use of Reimbursement Program**\
+`The committee will decide whether to open a formal investigation into expense reports filed by the South Carolina Republican.`\
+https://nytimes.com/2024/06/08/us/politics/nancy-mace-ethics.html
+
 **‘Cheaters Don’t Like Getting Caught’: Harris to Blast Trump in Michigan**\
 `In prepared remarks, Vice President Kamala Harris argues that Donald J. Trump’s guilty verdict should disqualify him for the presidency.`\
 https://nytimes.com/2024/06/08/us/politics/kamala-harris-trump-michigan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/08/business/saratoga-belmont-stakes.html
 **Biden and Macron Talk Togetherness, With No Mention of Discord Over Gaza**\
 `The two presidents, in a brief appearance before reporters, declined to take questions, in a departure from tradition.`\
 https://nytimes.com/2024/06/08/world/europe/biden-macron.html
-
-**U.S. Intelligence Helped Israel Rescue Four Hostages in Gaza**\
-`Intelligence collection and analysis teams from the U.S. and the U.K. have been in Israel throughout the war.`\
-https://nytimes.com/2024/06/08/world/middleeast/us-intelligence-israel-hostage-rescue.html
 
