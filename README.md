@@ -1,3 +1,7 @@
+**A Gazan health official says scores are dead as Israel carries out intense bombardments.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/06/08/world/israel-gaza-war-hamas/a-gazan-health-official-says-scores-are-dead-as-israel-carries-out-intense-bombardments
+
 **Spiced Chicken and Rice, Extremely Nice**\
 `And extremely fragrant and flavorful, thanks to turmeric and cardamom, nutty roasted pistachios and sweet golden raisins.`\
 https://nytimes.com/2024/06/08/dining/spiced-chicken-and-rice-extremely-nice.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/08/business/dealbook/tesla-elon-musk-pay.html
 **Scare Easily? These 2 Thrillers Are Worth It.**\
 `Complicated sisters; messy neighbors.`\
 https://nytimes.com/2024/06/08/books/read-like-wind-recommendations-thrillers.html
-
-**Blank Screen**\
-`If you’ve been having trouble finding a show to watch, you’re not alone.`\
-https://nytimes.com/2024/06/08/briefing/blank-screen.html
 
