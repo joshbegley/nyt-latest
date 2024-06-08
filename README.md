@@ -1,3 +1,7 @@
+**William A. Anders, Who Flew on First Manned Orbit of the Moon, Dies at 90**\
+`During the 1968 Apollo 8 mission, his color photograph of an emerging Earth, known as “Earthrise,” became an icon and driving force for the environmental movement.`\
+https://nytimes.com/2024/06/07/science/william-a-anders-dead.html
+
 **Weeks Before Prison, a Defiant Bannon Is Still Rallying MAGA World**\
 `The onetime adviser to former President Donald J. Trump has framed his impending imprisonment as an act of patriotism.`\
 https://nytimes.com/2024/06/07/us/politics/steve-bannon-bob-good-trump-prison.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/nyregion/alvin-bragg-trump-conviction.html
 **R.F.K. Jr. Will Be on the Ballot in Florida, His Campaign Says**\
 `The minor but storied Reform Party, which is backing Robert F. Kennedy Jr., had its ballot access restored, a significant boon for the independent candidate.`\
 https://nytimes.com/2024/06/07/us/politics/rfk-jr-ballot-florida-reform-party.html
-
-**If Trump Wins**\
-`Donald Trump and his closest allies are planning a radical reshaping of American government. Here are some of the policy stakes if he regains power in 2025.`\
-https://nytimes.com/interactive/2024/06/07/us/politics/trump-policy-list-2025.html
 
