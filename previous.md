@@ -1,3 +1,7 @@
+**For many Israelis, the rescue was a reason to celebrate after a grim stretch.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/06/08/world/israel-gaza-war-hamas/for-many-israelis-the-rescue-was-a-reason-to-celebrate-after-a-grim-stretch
+
 **Hospital officials say more than 200 people were killed in central Gaza.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/06/08/world/israel-gaza-war-hamas/hospital-officials-say-more-than-200-people-were-killed-in-central-gaza
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/08/dining/spiced-chicken-and-rice-extremely-nice.htm
 **Who Are the Four Hostages Rescued in Gaza?**\
 `Since the Hamas-led terrorist attack on Oct. 7, Israel has freed only a small number of hostages through military force.`\
 https://nytimes.com/2024/06/08/world/middleeast/who-are-the-four-hostages-rescued-in-gaza.html
-
-**As Trump Rallies in the Southwest, Extreme Heat Threatens MAGA Faithful**\
-`Eleven people were treated for heat exhaustion at a recent Trump event in Phoenix. Temperatures for a rally in Las Vegas on Sunday are expected to approach 105 degrees.`\
-https://nytimes.com/2024/06/08/us/politics/trump-nevada-rally-heat.html
 

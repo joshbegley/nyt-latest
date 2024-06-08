@@ -1,3 +1,7 @@
+**For many Israelis, the rescue was a reason to celebrate after a grim stretch.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/06/08/world/israel-gaza-war-hamas/for-many-israelis-the-rescue-was-a-reason-to-celebrate-after-a-grim-stretch
+
 **Hospital officials say more than 200 people were killed in central Gaza.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/06/08/world/israel-gaza-war-hamas/hospital-officials-say-more-than-200-people-were-killed-in-central-gaza
