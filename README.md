@@ -1,3 +1,7 @@
+**Tesla Shareholders Will Vote on Elon Musk’s Big Payday. What Happens Then?**\
+`The company has lobbied to reinstate the package awarded to Musk six years ago — now worth about $56 billion — after a Delaware judge voided it.`\
+https://nytimes.com/2024/06/08/business/dealbook/tesla-elon-musk-pay.html
+
 **Scare Easily? These 2 Thrillers Are Worth It.**\
 `Complicated sisters; messy neighbors.`\
 https://nytimes.com/2024/06/08/books/read-like-wind-recommendations-thrillers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/08/opinion/border-charro-days-brownsville.html
 **Here is the latest news on the freed hostages.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/06/08/world/israel-gaza-war-hamas/the-freed-hostages-are-in-good-medical-condition-israeli-authorities-said
-
-**How Will Employers Regard Today’s Student Activists?**\
-`Readers discuss a column by Pamela Paul about college protesters’ job prospects and future careers.`\
-https://nytimes.com/2024/06/08/opinion/student-activists-employers.html
 
