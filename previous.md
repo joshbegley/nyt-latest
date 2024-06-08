@@ -1,3 +1,7 @@
+**Kari Lake Delivered a Speech in Front of a Confederate Flag**\
+`Appearing at a Trump-themed merchandise store in Show Low, Ariz., Ms. Lake repeated lies about the 2020 election’s having been stolen from former President Donald J. Trump.`\
+https://nytimes.com/2024/06/07/us/politics/kari-lake-confederate-flag.html
+
 **Stage Opening, Perhaps**\
 `Daniel Sheremeta makes a sweeping Saturday debut.`\
 https://nytimes.com/2024/06/07/crosswords/daily-puzzle-2024-06-08.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/06/07/smarter-living/wirecutter/best-beach-
 **Washington Post Leaders Look to Quell Anxiety**\
 `Will Lewis, the chief executive, pledged to employees to “improve how well I listen,” while Matt Murray, the new editor, tried to reassure staff members.`\
 https://nytimes.com/2024/06/07/business/media/washington-post-newsroom.html
-
-**Hunter Biden Is on Trial, but All Eyes Are on the Biden Women**\
-`The women called to testify have at different times tried to support a man whose history of addiction continues to hit them with shrapnel.`\
-https://nytimes.com/2024/06/07/us/politics/hunter-biden-naomi-jill-hallie-trial.html
 

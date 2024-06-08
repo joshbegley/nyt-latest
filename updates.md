@@ -1,3 +1,7 @@
+**Kari Lake Delivered a Speech in Front of a Confederate Flag**\
+`Appearing at a Trump-themed merchandise store in Show Low, Ariz., Ms. Lake repeated lies about the 2020 election’s having been stolen from former President Donald J. Trump.`\
+https://nytimes.com/2024/06/07/us/politics/kari-lake-confederate-flag.html
+
 **Stage Opening, Perhaps**\
 `Daniel Sheremeta makes a sweeping Saturday debut.`\
 https://nytimes.com/2024/06/07/crosswords/daily-puzzle-2024-06-08.html
