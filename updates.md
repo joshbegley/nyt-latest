@@ -1,3 +1,7 @@
+**N.Y. Lawmakers End Session Without Replacing Congestion Pricing Revenue**\
+`State Senate Democrats rebuked Gov. Kathy Hochul over her decision to halt a long-developed plan to charge drivers tolls to enter Manhattan’s downtown core.`\
+https://nytimes.com/2024/06/07/nyregion/mta-congestion-pricing.html
+
 **Washington Post Leaders Look to Quell Anxiety**\
 `Will Lewis, the chief executive, pledged to employees to “improve how well I listen,” while Matt Murray, the new editor, tried to reassure staff members.`\
 https://nytimes.com/2024/06/07/business/media/washington-post-newsroom.html

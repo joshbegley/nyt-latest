@@ -1,3 +1,7 @@
+**N.Y. Lawmakers End Session Without Replacing Congestion Pricing Revenue**\
+`State Senate Democrats rebuked Gov. Kathy Hochul over her decision to halt a long-developed plan to charge drivers tolls to enter Manhattan’s downtown core.`\
+https://nytimes.com/2024/06/07/nyregion/mta-congestion-pricing.html
+
 **Washington Post Shake-Up Brings Fresh Eyes to an Old Scandal**\
 `The newspaper’s new publisher argued against coverage of British phone hacking. Instead, he has invited renewed scrutiny.`\
 https://nytimes.com/2024/06/07/world/europe/washington-post-publisher-scandal.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/06/07/us/politics/trump-policy-list-2025.ht
 **Denmark’s Prime Minister Is Attacked in Copenhagen Square**\
 `Mette Frederiksen, who has led the country since 2019, was “beaten,” her office said. The police said an arrest had been made, but a motive is unclear.`\
 https://nytimes.com/2024/06/07/world/europe/denmark-prime-minister-attacked-mette-frederiksen.html
-
-**Israel’s Push in Central Gaza Targets Hamas Fighters**\
-`The Israeli military said it killed militants in central Gaza on Friday, a day after a strike on a former school, where Gazan officials say civilians were killed.`\
-https://nytimes.com/2024/06/07/world/middleeast/central-gaza-israel-hamas.html
 
