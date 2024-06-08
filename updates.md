@@ -1,3 +1,7 @@
+**Stand-Up Comics Are Divided Over the Growing Presence of Crowd Work**\
+`Crowd work has grown more common, with some comedians now focusing their acts on it and sharing clips of their exchanges with audience members. But some comics say it takes away from the craft.`\
+https://nytimes.com/2024/06/08/style/stand-up-comedy-audience.html
+
 **A Small American Bomb Killing Palestinians by the Dozen in Gaza**\
 `The GBU-39 is increasingly the weapon of choice for the Israeli military, and was used in two recent mass-casualty events.`\
 https://nytimes.com/2024/06/08/world/middleeast/us-israel-bomb-gbu39-gaza.html
