@@ -14,7 +14,7 @@ https://nytimes.com/2024/06/08/style/who-is-a-rodent-man.html
 `From Broadway to the city’s smaller stages, a flurry of shows with wide-ranging appeal, familiar faces and rising talent.`\
 https://nytimes.com/2024/06/08/theater/pride-month-2024-theater.html
 
-**A Small American Bomb Packing a Lethal Punch in Gaza**\
+**A Small American Bomb Killing Civilians by the Dozen in Gaza**\
 `The GBU-39 is increasingly the weapon of choice for the Israeli military, and was used in two recent mass-casualty events.`\
 https://nytimes.com/2024/06/08/world/middleeast/us-israel-bomb-gbu39-gaza.html
 

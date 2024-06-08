@@ -1,3 +1,7 @@
+**A Small American Bomb Killing Civilians by the Dozen in Gaza**\
+`The GBU-39 is increasingly the weapon of choice for the Israeli military, and was used in two recent mass-casualty events.`\
+https://nytimes.com/2024/06/08/world/middleeast/us-israel-bomb-gbu39-gaza.html
+
 **The Darker Side of Julia Louis-Dreyfus**\
 `The actress is taking on serious roles, trying to overcome self-doubt and sharing more about her personal life — but she’s not done being funny.`\
 https://nytimes.com/2024/06/08/magazine/julia-louis-dreyfus-interview.html
