@@ -1,4 +1,4 @@
-**Israel Rescued Four Hostages in Operation That Palestinian Officials Said Killed Scores**\
+**Israel Rescues Four Hostages in Operation That Palestinian Officials Say Killed Scores**\
 `Four hostages were rescued by Israeli forces after being held in Gaza since the Hamas-led attack on Oct. 7, the Israeli military said. The rescue operation in the town of Nuseirat in central Gaza unleashed a heavy aerial bombardment that killed scores, according to hospital officials in the area.`\
 https://nytimes.com/video/world/middleeast/100000009511970/nuseirat-gaza-israeli-hostages.html
 
