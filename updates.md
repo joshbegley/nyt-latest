@@ -1,3 +1,7 @@
+**A Small American Bomb Killing Palestinians by the Dozen in Gaza**\
+`The GBU-39 is increasingly the weapon of choice for the Israeli military, and was used in two recent mass-casualty events.`\
+https://nytimes.com/2024/06/08/world/middleeast/us-israel-bomb-gbu39-gaza.html
+
 **A Small American Bomb Killing Civilians by the Dozen in Gaza**\
 `The GBU-39 is increasingly the weapon of choice for the Israeli military, and was used in two recent mass-casualty events.`\
 https://nytimes.com/2024/06/08/world/middleeast/us-israel-bomb-gbu39-gaza.html
