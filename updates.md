@@ -1,3 +1,7 @@
+**William A. Anders, Who Flew on First Manned Orbit of the Moon, Dies at 90**\
+`During the 1968 Apollo 8 mission, his color photograph of an emerging Earth, known as “Earthrise,” became an icon and driving force for the environmental movement.`\
+https://nytimes.com/2024/06/07/science/william-a-anders-dead.html
+
 **Weeks Before Prison, a Defiant Bannon Is Still Rallying MAGA World**\
 `The onetime adviser to former President Donald J. Trump has framed his impending imprisonment as an act of patriotism.`\
 https://nytimes.com/2024/06/07/us/politics/steve-bannon-bob-good-trump-prison.html
