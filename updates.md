@@ -1,3 +1,7 @@
+**Blank Screen**\
+`If you’ve been having trouble finding a show to watch, you’re not alone.`\
+https://nytimes.com/2024/06/08/briefing/blank-screen.html
+
 **Why Biden Is Right to Curb Immigration**\
 `His executive order limiting asylum seekers may be political, but that doesn’t mean it’s wrong.`\
 https://nytimes.com/2024/06/08/opinion/biden-trump-immigration.html
