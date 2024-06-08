@@ -1,3 +1,7 @@
+**Come Retribution**\
+`Donald Trump has a plan for his second term: retribution. We check in with the people who’ve crossed him to hear how they feel about that.`\
+https://nytimes.com/2024/06/08/podcasts/come-retribution.html
+
 **Did Politicians Break the Law by Aiding Foreign Influence Efforts?**\
 `A report by a parliamentary committee said that politicians, who were not named, had helped China, India and other countries meddle in Canadian politics.`\
 https://nytimes.com/2024/06/08/canada-politicians-foreign-interference.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/08/theater/pride-month-2024-theater.html
 **A Small American Bomb Killing Palestinians by the Dozen in Gaza**\
 `The GBU-39 is increasingly the weapon of choice for the Israeli military, and was used in two recent mass-casualty events.`\
 https://nytimes.com/2024/06/08/world/middleeast/us-israel-bomb-gbu39-gaza.html
-
-**The Best Way to Get a Refund When Your Airline’s Wi-Fi Is Terrible**\
-`We compiled shortcuts and links for every big U.S. carrier — and some little-known tips that should make it easier to get your money back.`\
-https://nytimes.com/2024/06/08/your-money/airline-wifi-refund.html
 
