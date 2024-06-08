@@ -1,3 +1,7 @@
+**U.S. Intelligence Helped Israel Rescue Four Hostages in Gaza**\
+`Intelligence collection and analysis teams from the U.S. and the U.K. have been in Israel throughout the war.`\
+https://nytimes.com/2024/06/08/world/middleeast/us-intelligence-helped-israel-rescue-four-hostages-in-gaza.html
+
 **No, Byron Donalds, Jim Crow Didn’t Create Stronger Black Families**\
 `The era of southern apartheid is inseparable from poverty, exploitation and violence.`\
 https://nytimes.com/2024/06/08/opinion/byron-donalds-black-families-slavery.html
