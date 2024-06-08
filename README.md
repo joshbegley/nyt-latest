@@ -1,3 +1,7 @@
+**Who Are the Four Hostages Rescued in Gaza?**\
+`Since the Hamas-led terrorist attack on Oct. 7, Israel has only freed a small number of hostages through military force.`\
+https://nytimes.com/2024/06/08/world/middleeast/who-are-the-four-hostages-rescued-in-gaza.html
+
 **As Trump Rallies in the Southwest, Extreme Heat Threatens MAGA Faithful**\
 `Eleven people were treated for heat exhaustion at a recent Trump event in Phoenix. Temperatures for a rally in Las Vegas on Sunday are expected to approach 105 degrees.`\
 https://nytimes.com/2024/06/08/us/politics/trump-nevada-rally-heat.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/08/briefing/blank-screen.html
 **Why Biden Is Right to Curb Immigration**\
 `His executive order limiting asylum seekers may be political, but that doesn’t mean it’s wrong.`\
 https://nytimes.com/2024/06/08/opinion/biden-trump-immigration.html
-
-**The Woes of Donald Trump Will Never Rise to the Level of Public Tragedy**\
-`For months now, he has been spinning his tale of tyranny and martyrdom, styling himself as the victim of an administration that plays dirty.`\
-https://nytimes.com/2024/06/08/opinion/donald-trump-trial.html
 
