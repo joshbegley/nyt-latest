@@ -1,3 +1,7 @@
+**‘The Time Has Come to Say Goodbye’: Pat Sajak Bids Farewell to ‘Wheel of Fortune’**\
+`The host thanked the show’s viewers and had special words for his co-star, Vanna White, before he signed off for the final time.`\
+https://nytimes.com/2024/06/07/arts/television/wheel-of-fortune-pat-sajak-final-show.html
+
 **William A. Anders, Who Flew on First Manned Orbit of the Moon, Dies at 90**\
 `During the 1968 Apollo 8 mission, his color photograph of an emerging Earth, known as “Earthrise,” became an icon and driving force for the environmental movement.`\
 https://nytimes.com/2024/06/07/science/william-a-anders-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/us/politics/hunter-biden-naomi-jill-hallie-trial.
 **Alvin Bragg Agrees to Testify Before Congress About Trump Case**\
 `The Manhattan district attorney suggested to a Republican congressman that he would testify only after former President Donald J. Trump is sentenced in July.`\
 https://nytimes.com/2024/06/07/nyregion/alvin-bragg-trump-conviction.html
-
-**R.F.K. Jr. Will Be on the Ballot in Florida, His Campaign Says**\
-`The minor but storied Reform Party, which is backing Robert F. Kennedy Jr., had its ballot access restored, a significant boon for the independent candidate.`\
-https://nytimes.com/2024/06/07/us/politics/rfk-jr-ballot-florida-reform-party.html
 
