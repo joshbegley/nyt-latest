@@ -1,3 +1,7 @@
+**George Clooney Complained to White House About Biden’s Criticism of I.C.C.**\
+`The actor contacted a top official to protest the president’s denunciation of the move to seek arrest warrants for top Israeli officials over the war in Gaza, a case his wife worked on.`\
+https://nytimes.com/2024/06/07/us/politics/george-clooney-biden-white-house-icc.html
+
 **University of California Workers Ordered to End Strike Over Protest Grievances**\
 `An Orange County judge halted the labor action by academic workers after the university system said the walkout was causing students “irreparable harm.”`\
 https://nytimes.com/2024/06/07/us/university-of-california-strike.html
