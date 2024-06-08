@@ -1,3 +1,7 @@
+**Canadian Auto Parts Billionaire Faces Sexual Assault Charges**\
+`A police force outside Toronto said that charges against Frank Stronach, 91, relate to episodes from as long ago as the 1980s and as recent as last year.`\
+https://nytimes.com/2024/06/07/world/americas/frank-stronach-arrest-sex-charges.html
+
 **George Clooney Complained to White House About Biden’s Criticism of I.C.C.**\
 `The actor contacted a top official to protest the president’s denunciation of the move to seek arrest warrants for top Israeli officials over the war in Gaza, a case his wife worked on.`\
 https://nytimes.com/2024/06/07/us/politics/george-clooney-biden-white-house-icc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/nyregion/mta-congestion-pricing.html
 **Washington Post Shake-Up Brings Fresh Eyes to an Old Scandal**\
 `The newspaper’s new publisher argued against coverage of British phone hacking. Instead, he has invited renewed scrutiny.`\
 https://nytimes.com/2024/06/07/world/europe/washington-post-publisher-scandal.html
-
-**‘Doctor Who’ Episode 6 Recap: A Charming Rogue**\
-`The Doctor and Ruby head back to Regency England in a meta meditation on cosplay and obsessive TV fandom.`\
-https://nytimes.com/2024/06/07/arts/television/doctor-who-episode-6-recap.html
 

@@ -1,3 +1,7 @@
+**Canadian Auto Parts Billionaire Faces Sexual Assault Charges**\
+`A police force outside Toronto said that charges against Frank Stronach, 91, relate to episodes from as long ago as the 1980s and as recent as last year.`\
+https://nytimes.com/2024/06/07/world/americas/frank-stronach-arrest-sex-charges.html
+
 **George Clooney Complained to White House About Biden’s Criticism of I.C.C.**\
 `The actor contacted a top official to protest the president’s denunciation of the move to seek arrest warrants for top Israeli officials over the war in Gaza, a case his wife worked on.`\
 https://nytimes.com/2024/06/07/us/politics/george-clooney-biden-white-house-icc.html
