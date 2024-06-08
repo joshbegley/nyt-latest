@@ -1,3 +1,7 @@
+**Biden and Macron Talk Togetherness, With No Mention of Discord Over Gaza**\
+`The two presidents, in a brief appearance before reporters, declined to take questions, in a departure from tradition.`\
+https://nytimes.com/2024/06/08/world/europe/biden-macron.html
+
 **U.S. Intelligence Helped Israel Rescue Four Hostages in Gaza**\
 `Intelligence collection and analysis teams from the U.S. and the U.K. have been in Israel throughout the war.`\
 https://nytimes.com/2024/06/08/world/middleeast/us-intelligence-israel-hostage-rescue.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/08/world/israel-gaza-war-hamas/the-last-functio
 **Israeli news outlets break the quiet of the Sabbath to cover the release of four hostages.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/06/08/world/israel-gaza-war-hamas/israeli-news-outlets-break-the-quiet-of-the-sabbath-to-cover-the-return-of-four-hostages
-
-**Biden’s Border Crackdown Could Disproportionately Affect Families**\
-`Parents with children represent 40 percent of migrants who crossed the southern border this year. Now, they will be turned back within days, according to a memo obtained by The New York Times.`\
-https://nytimes.com/2024/06/08/us/politics/biden-border-crackdown-families.html
 
