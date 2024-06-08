@@ -1,3 +1,7 @@
+**Tesla Shareholders Will Vote on Elon Musk’s Big Payday. What Happens Then?**\
+`The company has lobbied to reinstate the package awarded to Musk six years ago — now worth about $56 billion — after a Delaware judge voided it.`\
+https://nytimes.com/2024/06/08/business/dealbook/tesla-elon-musk-pay.html
+
 **Scare Easily? These 2 Thrillers Are Worth It.**\
 `Complicated sisters; messy neighbors.`\
 https://nytimes.com/2024/06/08/books/read-like-wind-recommendations-thrillers.html
