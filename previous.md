@@ -1,3 +1,7 @@
+**As Trump Rallies in the Southwest, Extreme Heat Threatens MAGA Faithful**\
+`Eleven people were treated for heat exhaustion at a recent Trump event in Phoenix. Temperatures for a rally in Las Vegas on Sunday are expected to approach 105 degrees.`\
+https://nytimes.com/2024/06/08/us/politics/trump-nevada-rally-heat.html
+
 **The last functioning hospitals in Gaza may soon be out of service, the health ministry warns.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/06/08/world/israel-gaza-war-hamas/the-last-functioning-hospitals-in-gaza-may-soon-be-out-of-service-the-health-ministry-warns
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/08/opinion/biden-trump-immigration.html
 **The Woes of Donald Trump Will Never Rise to the Level of Public Tragedy**\
 `For months now, he has been spinning his tale of tyranny and martyrdom, styling himself as the victim of an administration that plays dirty.`\
 https://nytimes.com/2024/06/08/opinion/donald-trump-trial.html
-
-**The Return of Pandas Is Proof We Can Still Have Good Things**\
-`The return of pandas to our zoos means more to Americans than just a burst of fleeting joy.`\
-https://nytimes.com/2024/06/08/opinion/panda-china-us-zoo.html
 
