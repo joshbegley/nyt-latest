@@ -1,3 +1,7 @@
+**Hospital officials say more than 200 people were killed in central Gaza.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/06/08/world/israel-gaza-war-hamas/hospital-officials-say-more-than-200-people-were-killed-in-central-gaza
+
 **Saratoga’s Crowning Moment**\
 `The Belmont Stakes arrives at Saratoga Race Course.`\
 https://nytimes.com/2024/06/08/business/saratoga-belmont-stakes.html
@@ -20,7 +24,7 @@ https://nytimes.com/2024/06/08/books/jurgen-moltmann-dead.html
 
 **A Gazan health official says scores are dead as Israel carries out intense bombardments.**\
 `By Raja Abdulrahim`\
-https://nytimes.com/live/2024/06/08/world/israel-gaza-war-hamas/a-gazan-health-official-says-scores-are-dead-as-israel-carries-out-intense-bombardments
+https://nytimes.com/2024/06/08/world/middleeast/a-gazan-health-official-says-scores-are-dead-as-israel-carries-out-intense-bombardments.html
 
 **Spiced Chicken and Rice, Extremely Nice**\
 `And extremely fragrant and flavorful, thanks to turmeric and cardamom, nutty roasted pistachios and sweet golden raisins.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/08/world/middleeast/who-are-the-four-hostages-rescue
 **As Trump Rallies in the Southwest, Extreme Heat Threatens MAGA Faithful**\
 `Eleven people were treated for heat exhaustion at a recent Trump event in Phoenix. Temperatures for a rally in Las Vegas on Sunday are expected to approach 105 degrees.`\
 https://nytimes.com/2024/06/08/us/politics/trump-nevada-rally-heat.html
-
-**The last functioning hospitals in Gaza may soon be out of service, the health ministry warns.**\
-`By Raja Abdulrahim`\
-https://nytimes.com/live/2024/06/08/world/israel-gaza-war-hamas/the-last-functioning-hospitals-in-gaza-may-soon-be-out-of-service-the-health-ministry-warns
 
