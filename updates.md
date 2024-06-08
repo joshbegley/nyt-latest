@@ -1,3 +1,7 @@
+**Washington Post Leaders Look to Quell Anxiety**\
+`Will Lewis, the chief executive, pledged to employees to “improve how well I listen,” while Matt Murray, the new editor, tried to reassure staff members.`\
+https://nytimes.com/2024/06/07/business/media/washington-post-newsroom.html
+
 **Washington Post Shake-Up Brings Fresh Eyes to an Old Scandal**\
 `The newspaper’s new publisher argued against coverage of British phone hacking. Instead, he has invited renewed scrutiny.`\
 https://nytimes.com/2024/06/07/world/europe/washington-post-publisher-scandal.html
