@@ -11,7 +11,7 @@ https://nytimes.com/2024/06/07/science/william-a-anders-dead.html
 https://nytimes.com/2024/06/07/us/politics/steve-bannon-bob-good-trump-prison.html
 
 **N.Y. Lawmakers End Session Without Replacing Congestion Pricing Revenue**\
-`State Senate Democrats rebuked Gov. Kathy Hochul over her decision to halt a long-developed plan to charge drivers tolls to enter Manhattan’s downtown core.`\
+`State Senate Democrats rebuked Gov. Kathy Hochul over her decision to halt a long-developed plan to charge drivers tolls to enter Manhattan’s core.`\
 https://nytimes.com/2024/06/07/nyregion/mta-congestion-pricing.html
 
 **Washington Post Shake-Up Brings Fresh Eyes to an Old Scandal**\
