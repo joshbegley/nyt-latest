@@ -1,3 +1,15 @@
+**Did Politicians Break the Law by Aiding Foreign Influence Efforts?**\
+`A report by a parliamentary committee said that politicians, who were not named, had helped China, India and other countries meddle in Canadian politics.`\
+https://nytimes.com/2024/06/08/canada-politicians-foreign-interference.html
+
+**The Connections Companion No. 364, June 9, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/08/crosswords/connections-companion-364.html
+
+**Wordle Review No. 1,086, June 9, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/08/crosswords/wordle-review-1086.html
+
 **Stand-Up Comics Are Divided Over the Growing Presence of Crowd Work**\
 `Crowd work has grown more common, with some comedians now focusing their acts on it and sharing clips of their exchanges with audience members. But some comics say it takes away from the craft.`\
 https://nytimes.com/2024/06/08/style/stand-up-comedy-audience.html
