@@ -1,3 +1,15 @@
+**Swimmer Trying to Make Olympic History Is Left Off the U.S. Team**\
+`When the sport of artistic swimming, formerly synchronized swimming, announced it would allow men to compete in the Paris Games, Bill May saw his chance. But the U.S. team chose only women.`\
+https://nytimes.com/2024/06/08/us/synchronized-swimming-bill-may.html
+
+**What is known about the hostages still in Gaza?**\
+`By Ephrat Livni`\
+https://nytimes.com/2024/06/08/world/middleeast/what-is-known-about-the-hostages-still-in-gaza.html
+
+**Israel Rescues 4 Hostages in Assault That Killed Scores of Gazans**\
+`The news was met with jubilation in Israel, where tensions over the hostages’ safety have been rising in recent months.`\
+https://nytimes.com/2024/06/08/world/middleeast/israel-hostages-nuseirat-gaza.html
+
 **Sigmund Rolat, Who Used His Wealth to Memorialize Polish Jews, Dies at 93**\
 `A Holocaust survivor and a shipping financier, he returned to his home country, where his parents and brother perished, to help build a museum and other memorials.`\
 https://nytimes.com/2024/06/08/world/europe/sigmund-rolat-dead.html

@@ -1,3 +1,15 @@
+**Swimmer Trying to Make Olympic History Is Left Off the U.S. Team**\
+`When the sport of artistic swimming, formerly synchronized swimming, announced it would allow men to compete in the Paris Games, Bill May saw his chance. But the U.S. team chose only women.`\
+https://nytimes.com/2024/06/08/us/synchronized-swimming-bill-may.html
+
+**What is known about the hostages still in Gaza?**\
+`By Ephrat Livni`\
+https://nytimes.com/2024/06/08/world/middleeast/what-is-known-about-the-hostages-still-in-gaza.html
+
+**Israel Rescues 4 Hostages in Assault That Killed Scores of Gazans**\
+`The news was met with jubilation in Israel, where tensions over the hostages’ safety have been rising in recent months.`\
+https://nytimes.com/2024/06/08/world/middleeast/israel-hostages-nuseirat-gaza.html
+
 **Sigmund Rolat, Who Used His Wealth to Memorialize Polish Jews, Dies at 93**\
 `A Holocaust survivor and a shipping financier, he returned to his home country, where his parents and brother perished, to help build a museum and other memorials.`\
 https://nytimes.com/2024/06/08/world/europe/sigmund-rolat-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/08/nyregion/congestion-pricing-legislature-ny.html
 **Howard University Votes to Revoke Sean Combs’s Honorary Degree**\
 `In a unanimous decision, the university’s board of trustees also moved to disband a scholarship in Mr. Combs’s name amid investigations into abuse allegations.`\
 https://nytimes.com/2024/06/08/arts/music/howard-diddy-honorary-degree.html
-
-**For many Israelis, the rescue was a reason to celebrate after a grim stretch.**\
-`By Isabel Kershner`\
-https://nytimes.com/live/2024/06/08/world/israel-gaza-war-hamas/for-many-israelis-the-rescue-was-a-reason-to-celebrate-after-a-grim-stretch
-
-**Scores Killed in Central Gaza After Israeli Strikes, Hospital Officials Say**\
-`Video footage showed people running for cover as a powerful airstrike exploded near them. The attack appeared to have hit a market.`\
-https://nytimes.com/2024/06/08/world/middleeast/israel-strikes-central-gaza.html
-
-**Saratoga’s Crowning Moment**\
-`The Belmont Stakes arrives at Saratoga Race Course.`\
-https://nytimes.com/2024/06/08/business/saratoga-belmont-stakes.html
 
