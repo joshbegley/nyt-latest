@@ -1,3 +1,7 @@
+**What Makes Katie Ledecky Swim?**\
+`As she prepares for the Paris Games, the seven-time Olympic gold medalist talks about the doping accusations against her competitors and how she stays focused while swimming 1,900 miles a year.`\
+https://nytimes.com/2024/06/08/style/katie-ledecky-swimming-olympics-memoir.html
+
 **Tesla Shareholders Will Vote on Elon Musk’s Big Payday. What Happens Then?**\
 `The company has lobbied to reinstate the package awarded to Musk six years ago — now worth about $56 billion — after a Delaware judge voided it.`\
 https://nytimes.com/2024/06/08/business/dealbook/tesla-elon-musk-pay.html
