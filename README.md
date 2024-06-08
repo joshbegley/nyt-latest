@@ -11,7 +11,7 @@ https://nytimes.com/2024/06/07/arts/television/doctor-who-episode-6-recap.html
 https://nytimes.com/interactive/2024/06/07/smarter-living/wirecutter/best-beach-gear.html
 
 **Washington Post Leaders Look to Quell Anxiety**\
-`Will Lewis, the chief executive, pledged to employees to ‘improve how well I listen,’ while Matt Murray, the new editor, tried to reassure staff members.`\
+`Will Lewis, the chief executive, pledged to employees to “improve how well I listen,” while Matt Murray, the new editor, tried to reassure staff members.`\
 https://nytimes.com/2024/06/07/business/media/washington-post-newsroom.html
 
 **Hunter Biden Is on Trial, but All Eyes Are on the Biden Women**\
