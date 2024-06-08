@@ -1,3 +1,7 @@
+**‘Cheaters Don’t Like Getting Caught’: Harris to Blast Trump in Michigan**\
+`In prepared remarks, Vice President Kamala Harris argues that Donald J. Trump’s guilty verdict should disqualify him for the presidency.`\
+https://nytimes.com/2024/06/08/us/politics/kamala-harris-trump-michigan.html
+
 **At a weekly hostage rally in Tel Aviv, hope emerges with the return of four from Gaza.**\
 `By Adam Sella`\
 https://nytimes.com/live/2024/06/08/world/israel-gaza-war-hamas/at-a-weekly-hostage-rally-in-tel-aviv-hope-emerges-with-the-return-of-four-from-gaza
