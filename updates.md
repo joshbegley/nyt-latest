@@ -1,3 +1,7 @@
+**Who Are the Four Hostages Rescued in Gaza?**\
+`Since the Hamas-led terrorist attack on Oct. 7, Israel has freed only a small number of hostages through military force.`\
+https://nytimes.com/2024/06/08/world/middleeast/who-are-the-four-hostages-rescued-in-gaza.html
+
 **Saratoga’s Crowning Moment**\
 `The Belmont Stakes arrives at Saratoga Race Course.`\
 https://nytimes.com/2024/06/08/business/saratoga-belmont-stakes.html

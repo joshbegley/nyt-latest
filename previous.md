@@ -27,7 +27,7 @@ https://nytimes.com/live/2024/06/08/world/israel-gaza-war-hamas/a-gazan-health-o
 https://nytimes.com/2024/06/08/dining/spiced-chicken-and-rice-extremely-nice.html
 
 **Who Are the Four Hostages Rescued in Gaza?**\
-`Since the Hamas-led terrorist attack on Oct. 7, Israel has only freed a small number of hostages through military force.`\
+`Since the Hamas-led terrorist attack on Oct. 7, Israel has freed only a small number of hostages through military force.`\
 https://nytimes.com/2024/06/08/world/middleeast/who-are-the-four-hostages-rescued-in-gaza.html
 
 **As Trump Rallies in the Southwest, Extreme Heat Threatens MAGA Faithful**\
