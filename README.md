@@ -1,3 +1,7 @@
+**Washington Post Shake-Up Brings Fresh Eyes to an Old Scandal**\
+`The newspaper’s new publisher argued against coverage of British phone hacking. Instead, he has invited renewed scrutiny.`\
+https://nytimes.com/2024/06/07/world/europe/washington-post-publisher-scandal.html
+
 **‘Doctor Who’ Episode 6 Recap: A Charming Rogue**\
 `The Doctor and Ruby head back to Regency England in a meta meditation on cosplay and obsessive TV fandom.`\
 https://nytimes.com/2024/06/07/arts/television/doctor-who-episode-6-recap.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/world/europe/denmark-prime-minister-attacked-mett
 **Israel’s Push in Central Gaza Targets Hamas Fighters**\
 `The Israeli military said it killed militants in central Gaza on Friday, a day after a strike on a former school, where Gazan officials say civilians were killed.`\
 https://nytimes.com/2024/06/07/world/middleeast/central-gaza-israel-hamas.html
-
-**N.Y.P.D. Officer Accused of Critically Wounding Man in Off-Duty Shooting**\
-`Prosecutors said Officer Hieu Tran shot the driver of a truck at a New Jersey intersection in an apparent road rage episode and then drove off. He has been charged with attempted murder.`\
-https://nytimes.com/2024/06/07/nyregion/nypd-road-rage-shooting-charges.html
 
