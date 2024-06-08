@@ -1,3 +1,19 @@
+**The Cats of Old San Juan Are Being Run Out of Town. Locals Can Sympathize.**\
+`A federal plan to remove feral cats from a historic site in Puerto Rico’s capital has upset some residents, who are also feeling pushed out as housing costs soar.`\
+https://nytimes.com/2024/06/08/us/puerto-rico-old-san-juan-cats.html
+
+**The Doula Has Entered the Chat**\
+`Many doulas, relied upon for pregnancy and childbirth support, have gone virtual. Experts say that’s a good thing.`\
+https://nytimes.com/2024/06/08/well/family/virtual-doula-care.html
+
+**The Best Thrillers of the Year So Far**\
+`These twisty suspense novels will keep you on the edge of your seat.`\
+https://nytimes.com/2024/06/08/books/review/best-thrillers-books.html
+
+**It Called Itself a Yoga School. Prosecutors Say It Was a Sex Cult.**\
+`The Buenos Aires Yoga School promised spiritual salvation, but former members and prosecutors say it pushed some female members into prostitution as it cultivated powerful friends.`\
+https://nytimes.com/2024/06/08/world/americas/argentina-yoga-school-sex-cult.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/06/08/crosswords/spelling-bee-forum.html

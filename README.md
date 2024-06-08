@@ -1,40 +1,40 @@
-**The Cats of Old San Juan Are Being Run Out of Town. Locals Can Sympathize.**\
-`A federal plan to remove feral cats from a historic site in Puerto Rico’s capital has upset some residents, who are also feeling pushed out as housing costs soar.`\
-https://nytimes.com/2024/06/08/us/puerto-rico-old-san-juan-cats.html
+**The Women Rethinking Marriage and Family Life Because of Miranda July**\
+`The author’s new novel, “All Fours,” has spurred a whisper network of women fantasizing about desire and freedom.`\
+https://nytimes.com/2024/06/08/style/miranda-july-all-fours-group-texts.html
 
-**The Doula Has Entered the Chat**\
-`Many doulas, relied upon for pregnancy and childbirth support, have gone virtual. Experts say that’s a good thing.`\
-https://nytimes.com/2024/06/08/well/family/virtual-doula-care.html
+**Who Is a ‘Rodent Man’?**\
+`A new term has cropped up to describe the faces of certain Hollywood actors, prompting many conversations — especially among the Styles team.`\
+https://nytimes.com/2024/06/08/style/who-is-a-rodent-man.html
 
-**The Best Thrillers of the Year So Far**\
-`These twisty suspense novels will keep you on the edge of your seat.`\
-https://nytimes.com/2024/06/08/books/review/best-thrillers-books.html
+**Pride Month 2024: An Abundance of Theater of All Stripes**\
+`From Broadway to the city’s smaller stages, a flurry of shows with wide-ranging appeal, familiar faces and rising talent.`\
+https://nytimes.com/2024/06/08/theater/pride-month-2024-theater.html
 
-**It Called Itself a Yoga School. Prosecutors Say It Was a Sex Cult.**\
-`The Buenos Aires Yoga School promised spiritual salvation, but former members and prosecutors say it pushed some female members into prostitution as it cultivated powerful friends.`\
-https://nytimes.com/2024/06/08/world/americas/argentina-yoga-school-sex-cult.html
+**A Small American Bomb Packing a Lethal Punch in Gaza**\
+`The GBU-39 is increasingly the weapon of choice for the Israeli military, and was used in two recent mass-casualty events.`\
+https://nytimes.com/2024/06/08/world/middleeast/us-israel-bomb-gbu39-gaza.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/06/08/crosswords/spelling-bee-forum.html
+**The Best Way to Get a Refund When Your Airline’s Wi-Fi Is Terrible**\
+`We compiled shortcuts and links for every big U.S. carrier — and some little-known tips that should make it easier to get your money back.`\
+https://nytimes.com/2024/06/08/your-money/airline-wifi-refund.html
 
-**A Neighborhood Battles Illegal Weed Shops: ‘We’ve Been Begging for Help’**\
-`Alarmed by the proliferation of unlicensed stores, Lower East Side residents have banded together to track the shops and push for the authorities to shut them down.`\
-https://nytimes.com/2024/06/08/nyregion/lower-east-side-cannabis-stores.html
+**The British Aren’t Coming. They’re Here.**\
+`As a historic presidential election looms, several of America’s largest and most powerful newsrooms are now being led by English journalists. Why?`\
+https://nytimes.com/2024/06/08/business/media/british-invasion-media.html
 
-**Inside a Factory Where a Home Is Made Every 30 Minutes**\
-`The U.S. once looked to offsite construction as an efficient way to build lots of housing and drive down costs. Sweden has embraced the idea and put it into practice. Francesca Mari, a contributor to The New York Times, breaks down the process.`\
-https://nytimes.com/video/headway/100000009487143/inside-a-factory-where-a-home-is-made-every-30-minutes.html
+**I’m Choking on My Neighbor’s Smoke. But She’s Rent-Stabilized. What Can I Do?**\
+`When it comes to rent-stabilized tenants, legal claims against co-ops are tricky. Ultimately, it’s the apartment’s owner who must take action.`\
+https://nytimes.com/2024/06/08/realestate/im-choking-on-my-neighbors-smoke-but-shes-rent-stabilized-what-can-i-do.html
 
-**How an American Dream of Housing Became a Reality in Sweden**\
-`The U.S. once looked to modular construction as an efficient way to build lots of housing at scale, but Sweden picked up the idea and put it into practice`\
-https://nytimes.com/2024/06/08/headway/how-an-american-dream-of-housing-became-a-reality-in-sweden.html
+**Can Big Art Make It in Las Vegas? Urs Fischer Weighs In.**\
+`The desert entertainment mecca is “artificial, but in a good way,” says the Swiss artist. His 46-foot-tall, gold-leaf sculpture is the city’s latest addition.`\
+https://nytimes.com/2024/06/08/arts/design/urs-fischer-las-vegas-fontainebleau.html
 
-**How Matt Williams, the Creator of ‘Roseanne,’ Spends His Sundays**\
-`Mr. Williams loves people-watching and pasta with his wife. But when he’s writing on Sundays? No judgment allowed.`\
-https://nytimes.com/2024/06/08/nyregion/matt-williams-roseanne.html
+**President Biden’s Action on Immigration Is a Tough Sell in This Border County**\
+`Republicans and Democrats alike in Cochise County, Ariz., a place where many have long felt their needs are ignored, eyed the executive order with skepticism.`\
+https://nytimes.com/2024/06/08/us/politics/biden-immigration-border.html
 
-**Vietnam Arrests Prominent Journalist for Facebook Posts**\
-`Truong Huy San was accused of “abusing democratic freedoms,” a charge that rights groups say has been frequently used against critics of the government.`\
-https://nytimes.com/2024/06/08/world/asia/vietnam-journalist-arrest.html
+**When the Money Is Under the Mattress. Or in the Freezer. Or a Shoebox.**\
+`Older people who stash large sums of cash in their homes think it’s safer there than anyplace else. But they could be creating huge headaches for their heirs.`\
+https://nytimes.com/2024/06/08/business/cash-at-home-retirement.html
 
