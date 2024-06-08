@@ -1,3 +1,23 @@
+**Macron Hosts Biden in Paris, Honoring a Not Always Easy Bond**\
+`The friendship between France and the U.S. endures. But tensions have mounted over the wars in Gaza and Ukraine, and how Europe can step out of America’s shadow.`\
+https://nytimes.com/2024/06/08/world/europe/macron-biden-france-us.html
+
+**Jordan Bardella, the New Face of France’s Right**\
+`Charismatic and clean cut, shorn of the Le Pen name, the young National Rally leader seems poised to take his party to its best showing ever in European elections on Sunday.`\
+https://nytimes.com/2024/06/08/world/europe/jordan-bardella-france-eu-elections.html
+
+**‘The Bachelor,’ but Make It Belgian Politics**\
+`A reality show called “The Conclave” put Belgium’s political rivals together in a medieval château for a weekend. Can they put aside their differences and help keep the country from coming apart?`\
+https://nytimes.com/2024/06/08/world/europe/belgian-election-the-conclave-show-tv.html
+
+**Corrections: June 8, 2024**\
+`Corrections that appeared in print on Saturday, June 8, 2024.`\
+https://nytimes.com/2024/06/08/pageoneplus/corrections-june-8-2024.html
+
+**Quotation of the Day: Affordable Housing Faces a Threat as Insurance Costs Soar**\
+`Quotation of the Day for Saturday, June 8, 2024.`\
+https://nytimes.com/2024/06/08/pageoneplus/quotation-of-the-day-affordable-housing-faces-a-threat-as-insurance-costs-soar.html
+
 **Canadian Auto Parts Billionaire Faces Sexual Assault Charges**\
 `A police force outside Toronto said that charges against Frank Stronach, 91, relate to episodes from as long ago as the 1980s and as recent as last year.`\
 https://nytimes.com/2024/06/07/world/americas/frank-stronach-arrest-sex-charges.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/06/07/us/politics/kari-lake-confederate-flag.html
 **Stage Opening, Perhaps**\
 `Daniel Sheremeta makes a sweeping Saturday debut.`\
 https://nytimes.com/2024/06/07/crosswords/daily-puzzle-2024-06-08.html
-
-**‘The Time Has Come to Say Goodbye’: Pat Sajak Bids Farewell to ‘Wheel of Fortune’**\
-`The host thanked the show’s viewers and had special words for his co-star, Vanna White, before he signed off for the final time.`\
-https://nytimes.com/2024/06/07/arts/television/wheel-of-fortune-pat-sajak-final-show.html
-
-**William A. Anders, Who Flew on First Manned Orbit of the Moon, Dies at 90**\
-`During the 1968 Apollo 8 mission, his color photograph of an emerging Earth, known as “Earthrise,” became an icon and driving force for the environmental movement.`\
-https://nytimes.com/2024/06/07/science/william-a-anders-dead.html
-
-**Weeks Before Prison, a Defiant Bannon Is Still Rallying MAGA World**\
-`The onetime adviser to former President Donald J. Trump has framed his impending imprisonment as an act of patriotism.`\
-https://nytimes.com/2024/06/07/us/politics/steve-bannon-bob-good-trump-prison.html
-
-**N.Y. Lawmakers End Session Without Replacing Congestion Pricing Revenue**\
-`State Senate Democrats rebuked Gov. Kathy Hochul over her decision to halt a long-developed plan to charge drivers tolls to enter Manhattan’s core.`\
-https://nytimes.com/2024/06/07/nyregion/mta-congestion-pricing.html
-
-**Washington Post Shake-Up Brings Fresh Eyes to an Old Scandal**\
-`The newspaper’s new publisher argued against coverage of British phone hacking. Instead, he has invited renewed scrutiny.`\
-https://nytimes.com/2024/06/07/world/europe/washington-post-publisher-scandal.html
 
