@@ -1,3 +1,7 @@
+**Days After Border Closes for Most Migrants, Manageable Crowds but More Anxiety**\
+`Shelters along the border were quieter on Friday and Saturday compared with previous months, but many hoping to cross into the U.S. felt stranded and fearful.`\
+https://nytimes.com/2024/06/08/us/biden-executive-order-mexico-border.html
+
 **Quiet Time**\
 `Zachary Schiff’s debut puzzle moves softly, but keeps us in suspense.`\
 https://nytimes.com/2024/06/08/crosswords/daily-puzzle-2024-06-09.html
