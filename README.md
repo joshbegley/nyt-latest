@@ -1,3 +1,7 @@
+**Blank Screen**\
+`If you’ve been having trouble finding a show to watch, you’re not alone.`\
+https://nytimes.com/2024/06/08/briefing/blank-screen.html
+
 **Why Biden Is Right to Curb Immigration**\
 `His executive order limiting asylum seekers may be political, but that doesn’t mean it’s wrong.`\
 https://nytimes.com/2024/06/08/opinion/biden-trump-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/08/opinion/student-activists-employers.html
 **Come Retribution**\
 `Donald Trump has a plan for his second term: retribution. We check in with the people who’ve crossed him to hear how they feel about that.`\
 https://nytimes.com/2024/06/08/podcasts/come-retribution.html
-
-**Did Politicians Break the Law by Aiding Foreign Influence Efforts?**\
-`A report by a parliamentary committee said that politicians, who were not named, had helped China, India and other countries meddle in Canadian politics.`\
-https://nytimes.com/2024/06/08/canada-politicians-foreign-interference.html
 
