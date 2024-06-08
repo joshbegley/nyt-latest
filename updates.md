@@ -1,3 +1,7 @@
+**William A. Anders, Who Flew on First Manned Orbit of the Moon, Dies at 90**\
+`During the 1968 Apollo 8 mission, his color photograph of an emerging Earth, known as “Earthrise,” became an icon and driving force for the environmental movement.`\
+https://nytimes.com/2024/06/07/science/william-a-anders-dead.html
+
 **N.Y. Lawmakers End Session Without Replacing Congestion Pricing Revenue**\
 `State Senate Democrats rebuked Gov. Kathy Hochul over her decision to halt a long-developed plan to charge drivers tolls to enter Manhattan’s core.`\
 https://nytimes.com/2024/06/07/nyregion/mta-congestion-pricing.html
