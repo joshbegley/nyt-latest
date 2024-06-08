@@ -1,3 +1,7 @@
+**Washington Post Shake-Up Brings Fresh Eyes to an Old Scandal**\
+`The newspaper’s new publisher argued against coverage of British phone hacking. Instead, he has invited renewed scrutiny.`\
+https://nytimes.com/2024/06/07/world/europe/washington-post-publisher-scandal.html
+
 **‘Doctor Who’ Episode 6 Recap: A Charming Rogue**\
 `The Doctor and Ruby head back to Regency England in a meta meditation on cosplay and obsessive TV fandom.`\
 https://nytimes.com/2024/06/07/arts/television/doctor-who-episode-6-recap.html
