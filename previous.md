@@ -1,3 +1,7 @@
+**Jürgen Moltmann, Who Reconciled Religion With Suffering, Dies at 98**\
+`Considered one of the leading Christian theologians of the 20th century, he insisted that any established set of beliefs had to confront the implications of Auschwitz.`\
+https://nytimes.com/2024/06/08/books/jurgen-moltmann-dead.html
+
 **A Gazan health official says scores are dead as Israel carries out intense bombardments.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/06/08/world/israel-gaza-war-hamas/a-gazan-health-official-says-scores-are-dead-as-israel-carries-out-intense-bombardments
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/08/style/katie-ledecky-swimming-olympics-memoir.html
 **Tesla Shareholders Will Vote on Elon Musk’s Big Payday. What Happens Then?**\
 `The company has lobbied to reinstate the package awarded to Musk six years ago — now worth about $56 billion — after a Delaware judge voided it.`\
 https://nytimes.com/2024/06/08/business/dealbook/tesla-elon-musk-pay.html
-
-**Scare Easily? These 2 Thrillers Are Worth It.**\
-`Complicated sisters; messy neighbors.`\
-https://nytimes.com/2024/06/08/books/read-like-wind-recommendations-thrillers.html
 
