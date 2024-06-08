@@ -1,3 +1,11 @@
+**Vietnam Arrests Prominent Journalist for Facebook Posts**\
+`Truong Huy San was accused of “abusing democratic freedoms,” a charge that rights groups say has been frequently used against critics of the government.`\
+https://nytimes.com/2024/06/08/world/asia/vietnam-journalist-arrest.html
+
+**Benny Gantz schedules a news conference for Saturday evening.**\
+`By Matthew Mpoke Bigg and Aaron Boxerman`\
+https://nytimes.com/live/2024/06/08/world/israel-gaza-war-hamas/benny-gantz-schedules-a-news-conference-for-saturday-evening
+
 **Macron Hosts Biden in Paris, Honoring a Not Always Easy Bond**\
 `The friendship between France and the U.S. endures. But tensions have mounted over the wars in Gaza and Ukraine, and how Europe can step out of America’s shadow.`\
 https://nytimes.com/2024/06/08/world/europe/macron-biden-france-us.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/07/us/politics/george-clooney-biden-white-house-icc.
 **University of California Workers Ordered to End Strike Over Protest Grievances**\
 `An Orange County judge halted the labor action by academic workers after the university system said the walkout was causing students “irreparable harm.”`\
 https://nytimes.com/2024/06/07/us/university-of-california-strike.html
-
-**Kari Lake Delivered a Speech in Front of a Confederate Flag**\
-`Appearing at a Trump-themed merchandise store in Show Low, Ariz., Ms. Lake repeated lies about the 2020 election’s having been stolen from former President Donald J. Trump.`\
-https://nytimes.com/2024/06/07/us/politics/kari-lake-confederate-flag.html
-
-**Stage Opening, Perhaps**\
-`Daniel Sheremeta makes a sweeping Saturday debut.`\
-https://nytimes.com/2024/06/07/crosswords/daily-puzzle-2024-06-08.html
 

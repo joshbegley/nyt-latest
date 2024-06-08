@@ -1,3 +1,11 @@
+**Vietnam Arrests Prominent Journalist for Facebook Posts**\
+`Truong Huy San was accused of “abusing democratic freedoms,” a charge that rights groups say has been frequently used against critics of the government.`\
+https://nytimes.com/2024/06/08/world/asia/vietnam-journalist-arrest.html
+
+**Benny Gantz schedules a news conference for Saturday evening.**\
+`By Matthew Mpoke Bigg and Aaron Boxerman`\
+https://nytimes.com/live/2024/06/08/world/israel-gaza-war-hamas/benny-gantz-schedules-a-news-conference-for-saturday-evening
+
 **Macron Hosts Biden in Paris, Honoring a Not Always Easy Bond**\
 `The friendship between France and the U.S. endures. But tensions have mounted over the wars in Gaza and Ukraine, and how Europe can step out of America’s shadow.`\
 https://nytimes.com/2024/06/08/world/europe/macron-biden-france-us.html
