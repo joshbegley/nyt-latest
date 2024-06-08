@@ -1,3 +1,15 @@
+**Did Politicians Break the Law by Aiding Foreign Influence Efforts?**\
+`A report by a parliamentary committee said that politicians, who were not named, had helped China, India and other countries meddle in Canadian politics.`\
+https://nytimes.com/2024/06/08/canada-politicians-foreign-interference.html
+
+**The Connections Companion No. 364, June 9, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/08/crosswords/connections-companion-364.html
+
+**Wordle Review No. 1,086, June 9, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/08/crosswords/wordle-review-1086.html
+
 **Stand-Up Comics Are Divided Over the Growing Presence of Crowd Work**\
 `Crowd work has grown more common, with some comedians now focusing their acts on it and sharing clips of their exchanges with audience members. But some comics say it takes away from the craft.`\
 https://nytimes.com/2024/06/08/style/stand-up-comedy-audience.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/08/world/middleeast/us-israel-bomb-gbu39-gaza.html
 **The Best Way to Get a Refund When Your Airline’s Wi-Fi Is Terrible**\
 `We compiled shortcuts and links for every big U.S. carrier — and some little-known tips that should make it easier to get your money back.`\
 https://nytimes.com/2024/06/08/your-money/airline-wifi-refund.html
-
-**The British Aren’t Coming. They’re Here.**\
-`As a historic presidential election looms, several of America’s largest and most powerful newsrooms are now being led by English journalists. Why?`\
-https://nytimes.com/2024/06/08/business/media/british-invasion-media.html
-
-**I’m Choking on My Neighbor’s Smoke. But She’s Rent-Stabilized. What Can I Do?**\
-`When it comes to rent-stabilized tenants, legal claims against co-ops are tricky. Ultimately, it’s the apartment’s owner who must take action.`\
-https://nytimes.com/2024/06/08/realestate/im-choking-on-my-neighbors-smoke-but-shes-rent-stabilized-what-can-i-do.html
-
-**Can Big Art Make It in Las Vegas? Urs Fischer Weighs In.**\
-`The desert entertainment mecca is “artificial, but in a good way,” says the Swiss artist. His 46-foot-tall, gold-leaf sculpture is the city’s latest addition.`\
-https://nytimes.com/2024/06/08/arts/design/urs-fischer-las-vegas-fontainebleau.html
 
