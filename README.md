@@ -1,3 +1,7 @@
+**Israeli news outlets break the quiet of the Sabbath to cover the release of four hostages.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/06/08/world/israel-gaza-war-hamas/israeli-news-outlets-break-the-quiet-of-the-sabbath-to-cover-the-return-of-four-hostages
+
 **Biden’s Border Crackdown Could Disproportionately Affect Families**\
 `Parents with children represent 40 percent of migrants who crossed the southern border this year. Now, they will be turned back within days, according to a memo obtained by The New York Times.`\
 https://nytimes.com/2024/06/08/us/politics/biden-border-crackdown-families.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/08/opinion/panda-china-us-zoo.html
 **An Object Lesson From Covid on How to Destroy Public Trust**\
 `Officials should have told us what they knew, or at least leveled with us about what they didn’t know.`\
 https://nytimes.com/2024/06/08/opinion/covid-fauci-hearings-health.html
-
-**My Mom Had Alzheimer’s. Now I Do Too. But I Learned From Her Not to Despair.**\
-`A son reflects on his mother’s life with Alzheimer’s, and what it has taught him as he faces his own diagnosis with the disease.`\
-https://nytimes.com/2024/06/08/opinion/alzheimers-mom-family-diagnosis.html
 
