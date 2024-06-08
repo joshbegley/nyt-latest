@@ -1,3 +1,11 @@
+**Hospital officials say more than 200 people were killed in central Gaza.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/06/08/world/israel-gaza-war-hamas/hospital-officials-say-more-than-200-people-were-killed-in-central-gaza
+
+**A Gazan health official says scores are dead as Israel carries out intense bombardments.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/2024/06/08/world/middleeast/a-gazan-health-official-says-scores-are-dead-as-israel-carries-out-intense-bombardments.html
+
 **Who Are the Four Hostages Rescued in Gaza?**\
 `Since the Hamas-led terrorist attack on Oct. 7, Israel has freed only a small number of hostages through military force.`\
 https://nytimes.com/2024/06/08/world/middleeast/who-are-the-four-hostages-rescued-in-gaza.html
