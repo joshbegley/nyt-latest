@@ -1,3 +1,7 @@
+**At a weekly hostage rally in Tel Aviv, hope emerges with the return of four from Gaza.**\
+`By Adam Sella`\
+https://nytimes.com/live/2024/06/08/world/israel-gaza-war-hamas/at-a-weekly-hostage-rally-in-tel-aviv-hope-emerges-with-the-return-of-four-from-gaza
+
 **Here’s How Israel’s Mission to Rescue Four Hostages Unfolded**\
 `The operation required weeks of planning and received the final go-ahead just a few minutes before it began, according to Israeli officials.`\
 https://nytimes.com/2024/06/08/world/middleeast/israel-mission-hostages-nuseirat.html

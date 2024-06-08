@@ -1,3 +1,7 @@
+**At a weekly hostage rally in Tel Aviv, hope emerges with the return of four from Gaza.**\
+`By Adam Sella`\
+https://nytimes.com/live/2024/06/08/world/israel-gaza-war-hamas/at-a-weekly-hostage-rally-in-tel-aviv-hope-emerges-with-the-return-of-four-from-gaza
+
 **Here’s How Israel’s Mission to Rescue Four Hostages Unfolded**\
 `The operation required weeks of planning and received the final go-ahead just a few minutes before it began, according to Israeli officials.`\
 https://nytimes.com/2024/06/08/world/middleeast/israel-mission-hostages-nuseirat.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/08/world/middleeast/us-intelligence-israel-hostage-r
 **No, Byron Donalds, Jim Crow Didn’t Create Stronger Black Families**\
 `The era of southern apartheid is inseparable from poverty, exploitation and violence.`\
 https://nytimes.com/2024/06/08/opinion/byron-donalds-black-families-slavery.html
-
-**Jürgen Moltmann, Who Reconciled Religion With Suffering, Dies at 98**\
-`Considered one of the leading Christian theologians of the 20th century, he insisted that any established set of beliefs had to confront the implications of Auschwitz.`\
-https://nytimes.com/2024/06/08/books/jurgen-moltmann-dead.html
 
