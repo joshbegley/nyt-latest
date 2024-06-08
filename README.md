@@ -1,3 +1,7 @@
+**Sigmund Rolat, Who Used His Wealth to Memorialize Polish Jews, Dies at 93**\
+`A Holocaust survivor and a shipping financier, he returned to his home country, where his parents and brother perished, to help build a museum and other memorials.`\
+https://nytimes.com/2024/06/08/world/europe/sigmund-rolat-dead.html
+
 **House Ethics Panel Looks Into Nancy Mace’s Use of Reimbursement Program**\
 `The committee will decide whether to open a formal investigation into expense reports filed by the South Carolina Republican.`\
 https://nytimes.com/2024/06/08/us/politics/nancy-mace-ethics.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/08/world/israel-gaza-war-hamas/hospital-officia
 **Saratoga’s Crowning Moment**\
 `The Belmont Stakes arrives at Saratoga Race Course.`\
 https://nytimes.com/2024/06/08/business/saratoga-belmont-stakes.html
-
-**Biden and Macron Talk Togetherness, With No Mention of Discord Over Gaza**\
-`The two presidents, in a brief appearance before reporters, declined to take questions, in a departure from tradition.`\
-https://nytimes.com/2024/06/08/world/europe/biden-macron.html
 
