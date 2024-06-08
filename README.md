@@ -1,3 +1,7 @@
+**In Final Analysis, N.Y. Legislative Session Is Defined by Its Omissions**\
+`The State Legislature passed a climate bill that would force polluters to pay into a “cost recovery” fund, but the focus of the session’s last days was on the collapse of congestion pricing.`\
+https://nytimes.com/2024/06/08/nyregion/congestion-pricing-legislature-ny.html
+
 **Howard University Votes to Revoke Sean Combs’s Honorary Degree**\
 `In a unanimous decision, the university’s board of trustees also moved to disband a scholarship in Mr. Combs’s name amid investigations into abuse allegations.`\
 https://nytimes.com/2024/06/08/arts/music/howard-diddy-honorary-degree.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/08/books/jurgen-moltmann-dead.html
 **A Gazan health official says scores are dead as Israel carries out intense bombardments.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/2024/06/08/world/middleeast/a-gazan-health-official-says-scores-are-dead-as-israel-carries-out-intense-bombardments.html
-
-**Spiced Chicken and Rice, Extremely Nice**\
-`And extremely fragrant and flavorful, thanks to turmeric and cardamom, nutty roasted pistachios and sweet golden raisins.`\
-https://nytimes.com/2024/06/08/dining/spiced-chicken-and-rice-extremely-nice.html
 
