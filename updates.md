@@ -1,3 +1,7 @@
+**Who Are the Four Hostages Rescued in Gaza?**\
+`Since the Hamas-led terrorist attack on Oct. 7, Israel has only freed a small number of hostages through military force.`\
+https://nytimes.com/2024/06/08/world/middleeast/who-are-the-four-hostages-rescued-in-gaza.html
+
 **As Trump Rallies in the Southwest, Extreme Heat Threatens MAGA Faithful**\
 `Eleven people were treated for heat exhaustion at a recent Trump event in Phoenix. Temperatures for a rally in Las Vegas on Sunday are expected to approach 105 degrees.`\
 https://nytimes.com/2024/06/08/us/politics/trump-nevada-rally-heat.html
