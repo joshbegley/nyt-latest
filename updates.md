@@ -1,3 +1,7 @@
+**No, Byron Donalds, Jim Crow Didn’t Create Stronger Black Families**\
+`The era of southern apartheid is inseparable from poverty, exploitation and violence.`\
+https://nytimes.com/2024/06/08/opinion/byron-donalds-black-families-slavery.html
+
 **Jürgen Moltmann, Who Reconciled Religion With Suffering, Dies at 98**\
 `Considered one of the leading Christian theologians of the 20th century, he insisted that any established set of beliefs had to confront the implications of Auschwitz.`\
 https://nytimes.com/2024/06/08/books/jurgen-moltmann-dead.html
