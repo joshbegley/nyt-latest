@@ -1,3 +1,7 @@
+**Saratoga’s Crowning Moment**\
+`The Belmont Stakes arrives at Saratoga Race Course.`\
+https://nytimes.com/2024/06/08/business/saratoga-belmont-stakes.html
+
 **Biden and Macron Talk Togetherness, With No Mention of Discord Over Gaza**\
 `The two presidents, in a brief appearance before reporters, declined to take questions, in a departure from tradition.`\
 https://nytimes.com/2024/06/08/world/europe/biden-macron.html
