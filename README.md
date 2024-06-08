@@ -1,3 +1,23 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/06/08/crosswords/spelling-bee-forum.html
+
+**A Neighborhood Battles Illegal Weed Shops: ‘We’ve Been Begging for Help’**\
+`Alarmed by the proliferation of unlicensed stores, Lower East Side residents have banded together to track the shops and push for the authorities to shut them down.`\
+https://nytimes.com/2024/06/08/nyregion/lower-east-side-cannabis-stores.html
+
+**Inside a Factory Where a Home Is Made Every 30 Minutes**\
+`The U.S. once looked to offsite construction as an efficient way to build lots of housing and drive down costs. Sweden has embraced the idea and put it into practice. Francesca Mari, a contributor to The New York Times, breaks down the process.`\
+https://nytimes.com/video/headway/100000009487143/inside-a-factory-where-a-home-is-made-every-30-minutes.html
+
+**How an American Dream of Housing Became a Reality in Sweden**\
+`The U.S. once looked to modular construction as an efficient way to build lots of housing at scale, but Sweden picked up the idea and put it into practice`\
+https://nytimes.com/2024/06/08/headway/how-an-american-dream-of-housing-became-a-reality-in-sweden.html
+
+**How Matt Williams, the Creator of ‘Roseanne,’ Spends His Sundays**\
+`Mr. Williams loves people-watching and pasta with his wife. But when he’s writing on Sundays? No judgment allowed.`\
+https://nytimes.com/2024/06/08/nyregion/matt-williams-roseanne.html
+
 **Vietnam Arrests Prominent Journalist for Facebook Posts**\
 `Truong Huy San was accused of “abusing democratic freedoms,” a charge that rights groups say has been frequently used against critics of the government.`\
 https://nytimes.com/2024/06/08/world/asia/vietnam-journalist-arrest.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/06/08/world/europe/jordan-bardella-france-eu-elections.
 **‘The Bachelor,’ but Make It Belgian Politics**\
 `A reality show called “The Conclave” put Belgium’s political rivals together in a medieval château for a weekend. Can they put aside their differences and help keep the country from coming apart?`\
 https://nytimes.com/2024/06/08/world/europe/belgian-election-the-conclave-show-tv.html
-
-**Corrections: June 8, 2024**\
-`Corrections that appeared in print on Saturday, June 8, 2024.`\
-https://nytimes.com/2024/06/08/pageoneplus/corrections-june-8-2024.html
-
-**Quotation of the Day: Affordable Housing Faces a Threat as Insurance Costs Soar**\
-`Quotation of the Day for Saturday, June 8, 2024.`\
-https://nytimes.com/2024/06/08/pageoneplus/quotation-of-the-day-affordable-housing-faces-a-threat-as-insurance-costs-soar.html
-
-**Canadian Auto Parts Billionaire Faces Sexual Assault Charges**\
-`A police force outside Toronto said that charges against Frank Stronach, 91, relate to episodes from as long ago as the 1980s and as recent as last year.`\
-https://nytimes.com/2024/06/07/world/americas/frank-stronach-arrest-sex-charges.html
-
-**George Clooney Complained to White House About Biden’s Criticism of I.C.C.**\
-`The actor contacted a top official to protest the president’s denunciation of the move to seek arrest warrants for top Israeli officials over the war in Gaza, a case his wife worked on.`\
-https://nytimes.com/2024/06/07/us/politics/george-clooney-biden-white-house-icc.html
-
-**University of California Workers Ordered to End Strike Over Protest Grievances**\
-`An Orange County judge halted the labor action by academic workers after the university system said the walkout was causing students “irreparable harm.”`\
-https://nytimes.com/2024/06/07/us/university-of-california-strike.html
 
