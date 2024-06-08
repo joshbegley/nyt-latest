@@ -1,3 +1,7 @@
+**University of California Workers Ordered to End Strike Over Protest Grievances**\
+`An Orange County judge ruled that the labor action by academic workers was causing students “irreparable harm.”`\
+https://nytimes.com/2024/06/07/us/university-of-california-strike.html
+
 **Kari Lake Delivered a Speech in Front of a Confederate Flag**\
 `Appearing at a Trump-themed merchandise store in Show Low, Ariz., Ms. Lake repeated lies about the 2020 election’s having been stolen from former President Donald J. Trump.`\
 https://nytimes.com/2024/06/07/us/politics/kari-lake-confederate-flag.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/07/arts/television/doctor-who-episode-6-recap.html
 **The Best Beach and Surf Gear**\
 `How to maximize your day at the beach.`\
 https://nytimes.com/interactive/2024/06/07/smarter-living/wirecutter/best-beach-gear.html
-
-**Washington Post Leaders Look to Quell Anxiety**\
-`Will Lewis, the chief executive, pledged to employees to “improve how well I listen,” while Matt Murray, the new editor, tried to reassure staff members.`\
-https://nytimes.com/2024/06/07/business/media/washington-post-newsroom.html
 
