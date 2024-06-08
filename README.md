@@ -1,3 +1,7 @@
+**Howard University Votes to Revoke Sean Combs’s Honorary Degree**\
+`In a unanimous decision, the university’s board of trustees also moved to disband a scholarship in Mr. Combs’s name amid investigations into abuse allegations.`\
+https://nytimes.com/2024/06/08/arts/music/howard-diddy-honorary-degree.html
+
 **For many Israelis, the rescue was a reason to celebrate after a grim stretch.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/06/08/world/israel-gaza-war-hamas/for-many-israelis-the-rescue-was-a-reason-to-celebrate-after-a-grim-stretch
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/08/world/middleeast/a-gazan-health-official-says-sco
 **Spiced Chicken and Rice, Extremely Nice**\
 `And extremely fragrant and flavorful, thanks to turmeric and cardamom, nutty roasted pistachios and sweet golden raisins.`\
 https://nytimes.com/2024/06/08/dining/spiced-chicken-and-rice-extremely-nice.html
-
-**Who Are the Four Hostages Rescued in Gaza?**\
-`Since the Hamas-led terrorist attack on Oct. 7, Israel has freed only a small number of hostages through military force.`\
-https://nytimes.com/2024/06/08/world/middleeast/who-are-the-four-hostages-rescued-in-gaza.html
 
