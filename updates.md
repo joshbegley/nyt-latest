@@ -1,3 +1,11 @@
+**‘Music Speaks to Some Deep Need Among Humans’**\
+`Responses to a Science Times article about the evolution of music across cultures. Also: Accepting election results; honoring the dead; fear of crime.`\
+https://nytimes.com/2024/06/09/opinion/music-evolution-cultures.html
+
+**Make Maangchi’s Bulgogi**\
+`I especially like it on Sundays, when I can slice the meat in the morning after breakfast and keep it in the garlicky, pear-sweetened soy marinade all day.`\
+https://nytimes.com/2024/06/09/dining/how-to-make-bulgogi.html
+
 **The audacious operation did little to resolve the many challenges facing Israel’s government.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/06/09/world/israel-gaza-war-hamas/the-audacious-operation-did-little-to-resolve-the-many-challenges-facing-israels-government

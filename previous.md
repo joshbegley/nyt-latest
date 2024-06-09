@@ -1,3 +1,11 @@
+**‘Music Speaks to Some Deep Need Among Humans’**\
+`Responses to a Science Times article about the evolution of music across cultures. Also: Accepting election results; honoring the dead; fear of crime.`\
+https://nytimes.com/2024/06/09/opinion/music-evolution-cultures.html
+
+**Make Maangchi’s Bulgogi**\
+`I especially like it on Sundays, when I can slice the meat in the morning after breakfast and keep it in the garlicky, pear-sweetened soy marinade all day.`\
+https://nytimes.com/2024/06/09/dining/how-to-make-bulgogi.html
+
 **Our Fathers Marched With M.L.K. Here’s What They Would Say to Activists Today.**\
 `We are turning to the lessons of the interfaith leaders of the Civil Rights Movement`\
 https://nytimes.com/2024/06/09/opinion/mlk-march-race-black-jewish.html
