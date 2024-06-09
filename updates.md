@@ -1,3 +1,7 @@
+**Mountain Landslide Destroys Section of Highway to Jackson, Wyo.**\
+`The road, linking Idaho with Wyoming, is a key route to Jackson Hole, a tourism hub. It had been closed to traffic before the landslide.`\
+https://nytimes.com/2024/06/09/us/jackson-hole-highway-closed.html
+
 **The Day My Old Church Canceled Me Was a Very Sad Day**\
 `There is a difference between peace and capitulation.`\
 https://nytimes.com/2024/06/09/opinion/presbyterian-church-evangelical-canceled.html
