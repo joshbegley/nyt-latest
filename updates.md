@@ -1,3 +1,11 @@
+**Tester and Sheehy attack — and agree — in first debate of Montana’s Senate race.**\
+`By Kellen Browning`\
+https://nytimes.com/live/2024/06/09/us/biden-trump-election-sunday-shows/montana-senate-debate-tester-sheehy
+
+**The Surprising Power of Texting a Friend**\
+`Welcome to the 5-Day Friendship Challenge! Today is a light lift — just pick up your phone.`\
+https://nytimes.com/2024/06/09/well/live/texting-friends-benefits.html
+
 **Benny Gantz Resigns From Israel’s War Cabinet**\
 `Benny Gantz, a centrist figure and a key member of Israel’s war cabinet, said his party was leaving the country’s emergency government over Prime Minister Benjamin Netanyahu’s handling of the war in Gaza.`\
 https://nytimes.com/video/world/middleeast/100000009512607/benny-gantz-israel-war-cabinet.html

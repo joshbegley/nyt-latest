@@ -1,3 +1,7 @@
+**Major Muddle**\
+`You’ll have to use all of your senses to solve Kareem Ayas’s crossword.`\
+https://nytimes.com/2024/06/09/crosswords/daily-puzzle-2024-06-10.html
+
 **Tester and Sheehy attack — and agree — in first debate of Montana’s Senate race.**\
 `By Kellen Browning`\
 https://nytimes.com/live/2024/06/09/us/biden-trump-election-sunday-shows/montana-senate-debate-tester-sheehy
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/09/world/europe/belgium-european-elections.html
 **In ‘Dark Noon,’ Hollywood Westerns Get a South African Reboot**\
 `At St. Ann’s Warehouse, a collaboration between a Danish director and a South African troupe that questions the tropes of Western films.`\
 https://nytimes.com/2024/06/09/theater/dark-noon-st-anns-warehouse.html
-
-**Battered by Far Right in E.U. Vote, Macron Calls for New Elections in France**\
-`The president’s decision, on the eve of the summer Olympic Games that begin in Paris in July, ushered in a period of deep political uncertainty in France.`\
-https://nytimes.com/2024/06/09/world/europe/france-european-elections.html
 
