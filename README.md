@@ -22,4 +22,4 @@ https://nytimes.com/2024/06/09/crosswords/connections-companion-365.html
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/06/09/crosswords/wordle-review-1087.html
 
-**Member of Israeli war cabinet who threatened to resign will speak, and other news.**\
+**A member of Israel’s war cabinet who threatened to resign will speak, and other news.**\
