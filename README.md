@@ -1,3 +1,7 @@
+**Iran Names Six Candidates for President, Including Parliament Speaker**\
+`The June 28 election to succeed President Ebrahim Raisi, who died in a helicopter crash last month, comes as the country faces acute domestic and international challenges.`\
+https://nytimes.com/2024/06/09/world/middleeast/iran-names-six-candidates-for-president-including-parliament-speaker.html
+
 **After 50 Years and a Tornado Warning, an Oklahoma High School Class Graduates**\
 `In 1974, a high school commencement ceremony in Moore, Okla., was interrupted by a tornado warning. Decades later, students finally turned their tassels.`\
 https://nytimes.com/2024/06/09/us/oklahoma-graduation-tornado-warning.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/09/briefing/driving-apps-insurance-tracking.html
 **Mountain Landslide Destroys Section of Highway to Jackson, Wyo.**\
 `The road, linking Idaho with Wyoming, is a key route to Jackson Hole, a tourism hub. It had been closed to traffic before the landslide.`\
 https://nytimes.com/2024/06/09/us/jackson-hole-highway-closed.html
-
-**The Day My Old Church Canceled Me Was a Very Sad Day**\
-`There is a difference between peace and capitulation.`\
-https://nytimes.com/2024/06/09/opinion/presbyterian-church-evangelical-canceled.html
 
