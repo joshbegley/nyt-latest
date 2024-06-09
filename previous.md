@@ -1,3 +1,7 @@
+**Kia Recalls Telluride SUV Over Fire Risk; Urging Owners to Park Outside**\
+`About 460,000 vehicles could be affected by the recall, which stems from a problem with the vehicle’s front power seat motor.`\
+https://nytimes.com/2024/06/08/automobiles/kia-recall-fire-telluride.html
+
 **Israel Rescues Four Hostages in Operation That Palestinian Officials Say Killed Scores**\
 `Four hostages were rescued by Israeli forces after being held in Gaza since the Hamas-led attack on Oct. 7, the Israeli military said. The rescue operation in the town of Nuseirat in central Gaza unleashed a heavy aerial bombardment that killed scores, according to hospital officials in the area.`\
 https://nytimes.com/video/world/middleeast/100000009511970/nuseirat-gaza-israeli-hostages.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/08/world/europe/sigmund-rolat-dead.html
 **House Ethics Panel Looks Into Nancy Mace’s Use of Reimbursement Program**\
 `The committee will decide whether to open a formal investigation into expense reports filed by the South Carolina Republican.`\
 https://nytimes.com/2024/06/08/us/politics/nancy-mace-ethics.html
-
-**‘Cheaters Don’t Like Getting Caught’: Harris Blasts Trump in Michigan**\
-`Vice President Kamala Harris argues that Donald J. Trump’s guilty verdict should disqualify him for the presidency.`\
-https://nytimes.com/2024/06/08/us/politics/kamala-harris-trump-michigan.html
 

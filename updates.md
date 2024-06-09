@@ -1,3 +1,7 @@
+**Kia Recalls Telluride SUV Over Fire Risk; Urging Owners to Park Outside**\
+`About 460,000 vehicles could be affected by the recall, which stems from a problem with the vehicle’s front power seat motor.`\
+https://nytimes.com/2024/06/08/automobiles/kia-recall-fire-telluride.html
+
 **‘Cheaters Don’t Like Getting Caught’: Harris Blasts Trump in Michigan**\
 `Vice President Kamala Harris argues that Donald J. Trump’s guilty verdict should disqualify him for the presidency.`\
 https://nytimes.com/2024/06/08/us/politics/kamala-harris-trump-michigan.html
