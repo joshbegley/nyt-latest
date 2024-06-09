@@ -1,3 +1,7 @@
+**Trump Will Have Virtual Interview With Probation Official on Monday**\
+`The former president, who was convicted of 34 felonies by a Manhattan jury, is required to have an interview as the city’s Probation Department prepares a pre-sentencing report.`\
+https://nytimes.com/2024/06/09/nyregion/trump-probation-officer-hush-money-verdict.html
+
 **Monday Briefing: Macron Calls New French Legislative Elections**\
 `Also, Benny Gantz leaves Israel’s government.`\
 https://nytimes.com/2024/06/09/world/asia/macron-elections-eu-gantz-asia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/09/world/europe/european-parliament-elections-far-ri
 **Review: ‘Inside Light’ Gives a Taste of Stockhausen’s Opera Epic**\
 `At the Park Avenue Armory, a five-hour selection of pieces from the 29-hour “Licht” cycle is best appreciated as a marathon performance.`\
 https://nytimes.com/2024/06/09/arts/music/review-inside-light-stockhausen-park-avenue-armory.html
-
-**Suspect in Sacramento Mass Shooting in 2022 Dies in County Jail**\
-`The suspect, who faced murder and firearms charges in connection to the shooting that killed six people, was found unresponsive at the jail. Details of his death were unclear.`\
-https://nytimes.com/2024/06/09/us/sacramento-mass-shooting-suspect-dead.html
 
