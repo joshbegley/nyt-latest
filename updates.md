@@ -1,3 +1,7 @@
+**The audacious operation did little to resolve the many challenges facing Israel’s government.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/06/09/world/israel-gaza-war-hamas/the-audacious-operation-did-little-to-resolve-the-many-challenges-facing-israels-government
+
 **A member of Israel’s war cabinet who threatened to resign will speak, and other news.**\
 
 **Our Fathers Marched With M.L.K. Here’s What They Would Say to Activists Today.**\

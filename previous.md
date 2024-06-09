@@ -22,4 +22,8 @@ https://nytimes.com/2024/06/09/crosswords/connections-companion-365.html
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/06/09/crosswords/wordle-review-1087.html
 
+**The audacious operation did little to resolve the many challenges facing Israel’s government.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/06/09/world/israel-gaza-war-hamas/the-audacious-operation-did-little-to-resolve-the-many-challenges-facing-israels-government
+
 **A member of Israel’s war cabinet who threatened to resign will speak, and other news.**\
