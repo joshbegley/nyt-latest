@@ -1,3 +1,7 @@
+**Now Playing: The Press Tour (Shh, It’s Better Than the Movie)**\
+`For Jennifer Lopez, Sterling K. Brown, Dakota Johnson and others, the standard publicity push isn’t so standard anymore.`\
+https://nytimes.com/2024/06/09/movies/jennifer-lopez-sterling-k-brown-zendaya-press-tour.html
+
 **Personal Conflicts, Even Violence, Are Not Uncommon in Long-Term Care**\
 `Arguments, verbal abuse and aggression are not unusual in elder care settings. Better staffing and training can ease the tensions, experts say.`\
 https://nytimes.com/2024/06/09/science/conflicts-violence-long-term-care.html
