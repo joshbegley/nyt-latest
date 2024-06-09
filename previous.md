@@ -34,7 +34,7 @@ https://nytimes.com/2024/06/09/world/americas/mexico-sheinbaum-amlo-peso.html
 `Governors and senators laid out the cases for their candidates, with questionable claims and contravening positions.`\
 https://nytimes.com/2024/06/09/us/politics/trump-biden-immigration-kristi-noem.html
 
-**Flemish Nationalists Thwart Ascent of Secessionist Party as They Win Belgian Elections**\
+**Flemish Nationalists Thwart Ascent of Secessionist Party in Belgian Elections**\
 `The New Flemish Alliance’s victory will bring relief to the country’s political establishment, which had long been bracing for a victory by the far-right party Vlaams Belang.`\
 https://nytimes.com/2024/06/09/world/europe/belgium-european-elections.html
 

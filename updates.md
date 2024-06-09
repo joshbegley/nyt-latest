@@ -1,3 +1,7 @@
+**Flemish Nationalists Thwart Ascent of Secessionist Party in Belgian Elections**\
+`The New Flemish Alliance’s victory will bring relief to the country’s political establishment, which had long been bracing for a victory by the far-right party Vlaams Belang.`\
+https://nytimes.com/2024/06/09/world/europe/belgium-european-elections.html
+
 **Biden Administration Considers Protection for Undocumented Spouses of U.S. Citizens**\
 `The steps under consideration include protecting them from deportation and providing access to work permits, according to three officials with knowledge of the discussions.`\
 https://nytimes.com/2024/06/09/us/politics/biden-protection-undocumented-spouses.html
