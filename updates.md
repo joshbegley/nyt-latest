@@ -1,3 +1,7 @@
+**Quote of the Day: A County Clerk’s Lonely Quest vs. Die-Hard Election Deniers**\
+`Quotation of the Day for Sunday, June 9, 2024.`\
+https://nytimes.com/2024/06/08/pageoneplus/quote-of-the-day-a-county-clerks-lonely-quest-vs-die-hard-election-deniers.html
+
 **French-American Friendship in Four Courses**\
 `Under Emmanuel Macron, “culinary diplomacy” is back on the menu, with a lavish dinner fortifying an old alliance at a tense historical moment.`\
 https://nytimes.com/2024/06/08/world/europe/state-dinner-paris-biden-macron.html
