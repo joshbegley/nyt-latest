@@ -1,3 +1,7 @@
+**Now Playing: The Press Tour (Shh, It’s Better Than the Movie)**\
+`For Jennifer Lopez, Sterling K. Brown, Dakota Johnson and others, the standard publicity push isn’t so standard anymore.`\
+https://nytimes.com/2024/06/09/movies/jennifer-lopez-sterling-k-brown-zendaya-press-tour.html
+
 **Personal Conflicts, Even Violence, Are Not Uncommon in Long-Term Care**\
 `Arguments, verbal abuse and aggression are not unusual in elder care settings. Better staffing and training can ease the tensions, experts say.`\
 https://nytimes.com/2024/06/09/science/conflicts-violence-long-term-care.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/09/us/politics/biden-history-fact-check.html
 **Growing Up With Joan Didion and Dominick Dunne, in the Land of Make-Believe**\
 `In his memoir “The Friday Afternoon Club,” the Hollywood hyphenate Griffin Dunne, best known for his role in Martin Scorsese’s “After Hours,” recounts his privileged upbringing.`\
 https://nytimes.com/2024/06/09/books/review/friday-afternoon-club-griffin-dunne.html
-
-**25 Years Ago, ‘Hannibal’ Marked the Rise of a New Kind of Blockbuster**\
-`Thomas Harris’s book came at a pivotal moment: One of the last smash hits of the ’90s, it was also one of the first big releases of the hyper-speed, hyper-opinionated internet era.`\
-https://nytimes.com/2024/06/09/books/booksupdate/25-years-thomas-harris-hannibal-lecter.html
 
