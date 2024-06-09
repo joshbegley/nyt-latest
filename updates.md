@@ -1,3 +1,7 @@
+**Major Muddle**\
+`You’ll have to use all of your senses to solve Kareem Ayas’s crossword.`\
+https://nytimes.com/2024/06/09/crosswords/daily-puzzle-2024-06-10.html
+
 **Tester and Sheehy attack — and agree — in first debate of Montana’s Senate race.**\
 `By Kellen Browning`\
 https://nytimes.com/live/2024/06/09/us/biden-trump-election-sunday-shows/montana-senate-debate-tester-sheehy
