@@ -1,3 +1,7 @@
+**A Friendship Forged by the Appeal of Being a ‘Bad Woman’**\
+`In Marcela Fuentes’s novel, “Malas,” a troubled teenager finds refuge in music and in a recluse with a dark history.`\
+https://nytimes.com/2024/06/09/books/review/marcela-fuentes-malas.html
+
 **Far Right Surges in European Parliament Elections, Early Data Shows**\
 `Voters across the European Union were expected to deliver major gains to anti-immigrant, nationalist parties, challenging leaders in Germany and France.`\
 https://nytimes.com/2024/06/09/world/europe/european-parliament-elections-far-right.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/09/us/oklahoma-graduation-tornado-warning.html
 **An Israeli raid leaves a Gaza hospital packed with the wounded.**\
 `By Aaron Boxerman and Adam Rasgon`\
 https://nytimes.com/live/2024/06/09/world/israel-gaza-war-hamas/an-israeli-raid-leaves-a-gaza-hospital-packed-with-the-wounded
-
-**Israel’s Euphoria Over Hostage Rescue May Be Fleeting**\
-`The operation conducted by Israel’s military to free four hostages resulted in a high death toll among Palestinians and has not resolved the challenges facing the Israeli government.`\
-https://nytimes.com/2024/06/09/world/middleeast/netanyahu-israel-gaza.html
 
