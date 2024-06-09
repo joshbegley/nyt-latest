@@ -34,7 +34,7 @@ https://nytimes.com/2024/06/08/world/europe/sigmund-rolat-dead.html
 `The committee will decide whether to open a formal investigation into expense reports filed by the South Carolina Republican.`\
 https://nytimes.com/2024/06/08/us/politics/nancy-mace-ethics.html
 
-**‘Cheaters Don’t Like Getting Caught’: Harris to Blast Trump in Michigan**\
+**‘Cheaters Don’t Like Getting Caught’: Harris Blasts Trump in Michigan**\
 `Vice President Kamala Harris argues that Donald J. Trump’s guilty verdict should disqualify him for the presidency.`\
 https://nytimes.com/2024/06/08/us/politics/kamala-harris-trump-michigan.html
 
