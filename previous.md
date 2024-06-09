@@ -1,3 +1,7 @@
+**Monday Briefing: Macron Calls New French Legislative Elections**\
+`Also, Benny Gantz leaves Israel’s government.`\
+https://nytimes.com/2024/06/09/world/asia/macron-elections-eu-gantz-asia.html
+
 **Mexico’s Leftists Won Big. Investors Are Worried.**\
 `The peso had its worst week since the pandemic as markets reacted to fears that the government would pass constitutional changes seen as dismantling democratic checks and balances.`\
 https://nytimes.com/2024/06/09/world/americas/mexico-sheinbaum-amlo-peso.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/09/arts/music/review-inside-light-stockhausen-park-a
 **Suspect in Sacramento Mass Shooting in 2022 Dies in County Jail**\
 `The suspect, who faced murder and firearms charges in connection to the shooting that killed six people, was found unresponsive at the jail. Details of his death were unclear.`\
 https://nytimes.com/2024/06/09/us/sacramento-mass-shooting-suspect-dead.html
-
-**Gantz had called on Netanyahu to provide answers about the war.**\
-`By Adam Rasgon`\
-https://nytimes.com/live/2024/06/09/world/israel-gaza-war-hamas/gantz-threatened-to-resign-last-month
 

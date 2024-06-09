@@ -1,3 +1,7 @@
+**Monday Briefing: Macron Calls New French Legislative Elections**\
+`Also, Benny Gantz leaves Israel’s government.`\
+https://nytimes.com/2024/06/09/world/asia/macron-elections-eu-gantz-asia.html
+
 **Mexico’s Leftists Won Big. Investors Are Worried.**\
 `The peso had its worst week since the pandemic as markets reacted to fears that the government would pass constitutional changes seen as dismantling democratic checks and balances.`\
 https://nytimes.com/2024/06/09/world/americas/mexico-sheinbaum-amlo-peso.html
