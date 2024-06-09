@@ -1,40 +1,40 @@
-**British TV Doctor Michael Mosley Found Dead in Greece**\
-`Mr. Mosley, a British medical journalist and documentary maker, disappeared last week while on a trip on the Greek island of Symi.`\
-https://nytimes.com/2024/06/09/world/europe/michael-mosley-greece.html
+**Personal Conflicts, Even Violence, Are Not Uncommon in Long-Term Care**\
+`Arguments, verbal abuse and aggression are not unusual in elder care settings. Better staffing and training can ease the tensions, experts say.`\
+https://nytimes.com/2024/06/09/science/conflicts-violence-long-term-care.html
 
-**A Kinetic Piece of Art Will Stop Moving**\
-`“Moveable Type,” in which screens flash fragments from The Times’s news report, has been in the lobby of the company’s headquarters since 2007.`\
-https://nytimes.com/2024/06/09/insider/moveable-type-removed.html
+**Hey, Siri! Let’s Talk About How Apple Is Giving You an A.I. Makeover.**\
+`Apple, a latecomer to artificial intelligence, has struck a deal with OpenAI and developed tools to improve its Siri voice assistant, which it is set to showcase on Monday.`\
+https://nytimes.com/2024/06/09/technology/siri-apple-ai-chatgpt.html
 
-**How Governor Hochul Decided to Kill Congestion Pricing in New York**\
-`Although the governor said she long feared the program might hurt New York City’s economy, she never disclosed her reservations, leaving some feeling betrayed.`\
-https://nytimes.com/2024/06/09/nyregion/hochul-congestion-pricing.html
+**What’s Behind TikTok’s Beef With Chipotle?**\
+`A series of popular videos on the platform encourage users to protest the restaurant chain’s portion sizes by walking out without paying or filming workers.`\
+https://nytimes.com/2024/06/09/style/tiktok-chipotle-portions-customers.html
 
-**‘Dragging a Small Roller Bag, I Found My Way to the Correct Subway Line’**\
-`A solo trip to the Upper West Side, a bonus at the shoe-repair place and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2024/06/09/nyregion/metropolitan-diary.html
+**Trump’s Energy Guy Talked a Green Game but Now Sells Big Oil Priorities**\
+`Doug Burgum, the Republican governor of North Dakota, has stepped into the spotlight as a cheerleader for oil and former President Donald J. Trump.`\
+https://nytimes.com/2024/06/09/climate/burgum-energy-trump-oil.html
 
-**This Old-School Pizzeria Stays Open by Playing Itself on TV**\
-`Sam’s Restaurant in Cobble Hill, run by 67-year-old Louis Migliaccio, has long been a go-to spot for film crews looking for a bit of Brooklyn charm.`\
-https://nytimes.com/2024/06/09/nyregion/brooklyn-sams-retaurant-movie-set.html
+**‘Bad Boys’ Ticket Buyers Toss Will Smith a Career Lifeline**\
+`Mr. Smith’s first wide-release film since he slapped Chris Rock at the Oscars two years ago arrived to a hefty $53 million at the North American box office.`\
+https://nytimes.com/2024/06/09/business/will-smith-bad-boys-ride-or-die.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/06/09/crosswords/spelling-bee-forum.html
+**Where New Tent Cities Are Rising in Central Gaza**\
+`Satellite imagery shows a dense community of tents going up in central Gaza, where Palestinians are once again seeking shelter from the fighting.`\
+https://nytimes.com/interactive/2024/06/09/world/middleeast/gaza-tents.html
 
-**Where O.J. Simpson Found Acceptance, No Questions Asked**\
-`Las Vegas became a refuge that many believe Mr. Simpson did not deserve in his final years. There, he found an unlikely group of friends.`\
-https://nytimes.com/2024/06/09/us/oj-simpson-las-vegas-golf.html
+**For Trump, Doug Burgum Emerges as a Safe Option, and a Wild Card**\
+`Mr. Burgum, North Dakota’s governor, is a prime contender in the former president’s search for a running mate, but he remains untested on the national stage.`\
+https://nytimes.com/2024/06/09/us/politics/burgum-trump-vp-search.html
 
-**Chet Walker, N.B.A. Champion and Movie Producer, Dies at 84**\
-`A vital member of the 1966-67 champion Philadelphia 76ers, he later produced a TV series based on the life on the point guard Isiah Thomas’s mother.`\
-https://nytimes.com/2024/06/09/sports/basketball/chet-walker-dead.html
+**Biden Loves to Tell Tall Tales. We Cut Them Down to Size.**\
+`By President Biden’s account, he was a fierce civil rights activist in his youth, had an uncle who fell prey to cannibals and used to drive an 18-wheeler.`\
+https://nytimes.com/2024/06/09/us/politics/biden-history-fact-check.html
 
-**Corrections: June 9, 2024**\
-`Corrections that appeared in print on Sunday, June 9, 2024.`\
-https://nytimes.com/2024/06/09/pageoneplus/corrections-june-9-2024.html
+**Growing Up With Joan Didion and Dominick Dunne, in the Land of Make-Believe**\
+`In his memoir “The Friday Afternoon Club,” the Hollywood hyphenate Griffin Dunne, best known for his role in Martin Scorsese’s “After Hours,” recounts his privileged upbringing.`\
+https://nytimes.com/2024/06/09/books/review/friday-afternoon-club-griffin-dunne.html
 
-**Modi, Striking a Modest Tone, to Be Sworn In for a Third Term**\
-`Forced into a coalition government, the prime minister faces the challenge of governing differently than he has so far in two decades in elected office.`\
-https://nytimes.com/2024/06/09/world/asia/india-changed-modi-swearing-in.html
+**25 Years Ago, ‘Hannibal’ Marked the Rise of a New Kind of Blockbuster**\
+`Thomas Harris’s book came at a pivotal moment: One of the last smash hits of the ’90s, it was also one of the first big releases of the hyper-speed, hyper-opinionated internet era.`\
+https://nytimes.com/2024/06/09/books/booksupdate/25-years-thomas-harris-hannibal-lecter.html
 
