@@ -1,3 +1,5 @@
+**Blinken will go to the Middle East, and other news.**\
+
 **Now Playing: The Press Tour (Shh, It’s Better Than the Movie)**\
 `For Jennifer Lopez, Sterling K. Brown, Dakota Johnson and others, the standard publicity push isn’t so standard anymore.`\
 https://nytimes.com/2024/06/09/movies/jennifer-lopez-sterling-k-brown-zendaya-press-tour.html
