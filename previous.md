@@ -1,3 +1,7 @@
+**Modi, Striking a Modest Tone, to Be Sworn In for a Third Term**\
+`Forced into a coalition government, the prime minister faces the challenge of governing differently than he has so far in two decades in elected office.`\
+https://nytimes.com/2024/06/09/world/asia/india-changed-modi-swearing-in.html
+
 **The Unabomber, Me and the Poisoned Myth of the American West**\
 `The Unabomber personified how we use the West as a mirror for the dark, untamed aspects of our national character.`\
 https://nytimes.com/2024/06/09/opinion/unabomber-novel-american-west.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009511970/nuseirat-gaza-israeli
 **Stanford Becomes Latest School to Reinstate Test Scores Requirement**\
 `The university joins a small but growing number of elite colleges requiring SAT or ACT scores in applications once again.`\
 https://nytimes.com/2024/06/08/us/stanford-standardized-tests.html
-
-**Days After Border Closes for Most Migrants, Manageable Crowds but More Anxiety**\
-`Shelters along the border were quieter on Friday and Saturday compared with previous months, but many hoping to cross into the U.S. felt stranded and fearful.`\
-https://nytimes.com/2024/06/08/us/biden-executive-order-mexico-border.html
 
