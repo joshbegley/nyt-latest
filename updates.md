@@ -1,3 +1,7 @@
+**An Israeli raid leaves a Gaza hospital packed with the wounded.**\
+`By Aaron Boxerman and Adam Rasgon`\
+https://nytimes.com/live/2024/06/09/world/israel-gaza-war-hamas/an-israeli-raid-leaves-a-gaza-hospital-packed-with-the-wounded
+
 **Israel’s Euphoria Over Hostage Rescue May Be Fleeting**\
 `The operation conducted by Israel’s military to free four hostages resulted in a high death toll among Palestinians and has not resolved the challenges facing the Israeli government.`\
 https://nytimes.com/2024/06/09/world/middleeast/netanyahu-israel-gaza.html

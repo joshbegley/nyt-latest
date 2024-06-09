@@ -1,3 +1,7 @@
+**An Israeli raid leaves a Gaza hospital packed with the wounded.**\
+`By Aaron Boxerman and Adam Rasgon`\
+https://nytimes.com/live/2024/06/09/world/israel-gaza-war-hamas/an-israeli-raid-leaves-a-gaza-hospital-packed-with-the-wounded
+
 **Israel’s Euphoria Over Hostage Rescue May Be Fleeting**\
 `The operation conducted by Israel’s military to free four hostages resulted in a high death toll among Palestinians and has not resolved the challenges facing the Israeli government.`\
 https://nytimes.com/2024/06/09/world/middleeast/netanyahu-israel-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/09/opinion/presbyterian-church-evangelical-canceled.
 **The Connections Companion No. 365, June 10, 2024**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/06/09/crosswords/connections-companion-365.html
-
-**Wordle Review No. 1,087, June 10, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/06/09/crosswords/wordle-review-1087.html
 
