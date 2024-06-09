@@ -1,3 +1,7 @@
+**Butterfly or Firefly: What’s Your Friendship Style?**\
+`We each connect with our social networks in our own way, though there are some universal threads. Take this quiz to find your friendship style, and sign up for Well’s 5-Day Friendship Challenge.`\
+https://nytimes.com/interactive/2024/06/09/well/mind/friendship-style-quiz.html
+
 **‘Music Speaks to Some Deep Need Among Humans’**\
 `Responses to a Science Times article about the evolution of music across cultures. Also: Accepting election results; honoring the dead; fear of crime.`\
 https://nytimes.com/2024/06/09/opinion/music-evolution-cultures.html
