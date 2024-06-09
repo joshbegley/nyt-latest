@@ -1,3 +1,7 @@
+**Biden Administration Considers Protection for Undocumented Spouses of U.S. Citizens**\
+`The steps under consideration include protecting them from deportation and providing access to work permits, according to three officials with knowledge of the discussions.`\
+https://nytimes.com/2024/06/09/us/politics/biden-protection-undocumented-spouses.html
+
 **Major Muddle**\
 `You’ll have to use all of your senses to solve Kareem Ayas’s crossword.`\
 https://nytimes.com/2024/06/09/crosswords/daily-puzzle-2024-06-10.html
