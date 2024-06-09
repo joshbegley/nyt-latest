@@ -1,3 +1,7 @@
+**Chet Walker, N.B.A. Champion and Movie Producer, Dies at 84**\
+`A vital member of the 1966-67 champion Philadelphia 76ers, he later produced a TV series based on the life on the point guard Isiah Thomas’s mother.`\
+https://nytimes.com/2024/06/09/sports/basketball/chet-walker-dead.html
+
 **Corrections: June 9, 2024**\
 `Corrections that appeared in print on Sunday, June 9, 2024.`\
 https://nytimes.com/2024/06/09/pageoneplus/corrections-june-9-2024.html
