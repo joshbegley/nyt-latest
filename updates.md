@@ -1,3 +1,11 @@
+**The Unabomber, Me and the Poisoned Myth of the American West**\
+`The Unabomber personified how we use the West as a mirror for the dark, untamed aspects of our national character.`\
+https://nytimes.com/2024/06/09/opinion/unabomber-novel-american-west.html
+
+**A Promise to Grads With ‘No Promise’**\
+`No matter what seemingly hopeless mess you have made, everything can still work out.`\
+https://nytimes.com/2024/06/09/opinion/high-school-graduation-future.html
+
 **The E.U. Votes: What We’re Watching For**\
 `The main things to know as voters in 27 countries head to the ballot box to shape the next five years of European Union policies.`\
 https://nytimes.com/2024/06/09/world/europe/the-eu-votes-what-were-watching-for.html
