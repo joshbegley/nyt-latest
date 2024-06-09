@@ -1,3 +1,7 @@
+**Our Fathers Marched With M.L.K. Here’s What They Would Say to Activists Today.**\
+`We are turning to the lessons of the interfaith leaders of the Civil Rights Movement`\
+https://nytimes.com/2024/06/09/opinion/mlk-march-race-black-jewish.html
+
 **Your Driving, Tracked**\
 `We explore the apps that are quietly tracking drivers’ habits.`\
 https://nytimes.com/2024/06/09/briefing/driving-apps-insurance-tracking.html
