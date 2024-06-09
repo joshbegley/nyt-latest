@@ -1,3 +1,5 @@
+**A member of Israel’s war cabinet who threatened to resign will speak, and other news.**\
+
 **Our Fathers Marched With M.L.K. Here’s What They Would Say to Activists Today.**\
 `We are turning to the lessons of the interfaith leaders of the Civil Rights Movement`\
 https://nytimes.com/2024/06/09/opinion/mlk-march-race-black-jewish.html
