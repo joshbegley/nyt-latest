@@ -1,3 +1,7 @@
+**Iran Names Six Candidates for President, Including Parliament Speaker**\
+`The June 28 election to succeed President Ebrahim Raisi, who died in a helicopter crash last month, comes as the country faces acute domestic and international challenges.`\
+https://nytimes.com/2024/06/09/world/middleeast/iran-election-parliament-speaker.html
+
 **Far Right Surges in European Parliament Elections, Early Data Shows**\
 `Voters across the European Union were expected to deliver major gains to anti-immigrant, nationalist parties, challenging leaders in Germany and France.`\
 https://nytimes.com/2024/06/09/world/europe/european-parliament-elections-far-right.html
