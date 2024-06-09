@@ -1,3 +1,7 @@
+**Israel’s Euphoria Over Hostage Rescue May Be Fleeting**\
+`The operation conducted by Israel’s military to free four hostages resulted in a high death toll among Palestinians and has not resolved the challenges facing the Israeli government.`\
+https://nytimes.com/2024/06/09/world/middleeast/netanyahu-israel-gaza.html
+
 **Butterfly or Firefly: What’s Your Friendship Style?**\
 `We each connect with our social networks in our own way, though there are some universal threads. Take this quiz to find your friendship style, and sign up for Well’s 5-Day Friendship Challenge.`\
 https://nytimes.com/interactive/2024/06/09/well/mind/friendship-style-quiz.html
