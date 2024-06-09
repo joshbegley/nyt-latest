@@ -1,3 +1,7 @@
+**Corrections: June 9, 2024**\
+`Corrections that appeared in print on Sunday, June 9, 2024.`\
+https://nytimes.com/2024/06/09/pageoneplus/corrections-june-9-2024.html
+
 **Modi, Striking a Modest Tone, to Be Sworn In for a Third Term**\
 `Forced into a coalition government, the prime minister faces the challenge of governing differently than he has so far in two decades in elected office.`\
 https://nytimes.com/2024/06/09/world/asia/india-changed-modi-swearing-in.html
