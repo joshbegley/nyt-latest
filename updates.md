@@ -1,3 +1,7 @@
+**Battered by Far Right in E.U. Vote, Macron Calls for New Elections in France**\
+`The president’s decision, on the eve of the summer Olympic Games that begin in Paris in July, ushered in a period of deep political uncertainty in France.`\
+https://nytimes.com/2024/06/09/world/europe/france-european-elections.html
+
 **Trump Will Have Virtual Interview With Probation Official on Monday**\
 `The former president, who was convicted of 34 felonies by a Manhattan jury, is required to have an interview as the city’s Probation Department prepares a pre-sentencing report.`\
 https://nytimes.com/2024/06/09/nyregion/trump-probation-officer-hush-money-verdict.html
