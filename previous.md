@@ -1,3 +1,11 @@
+**What Made New York Great? Leadership. Where Is It Now?**\
+`The city was built on bold ideas. Suddenly Gov. Kathy Hochul paused a game-changing plan to fight congestion. Can we still do big things in a polarized moment?`\
+https://nytimes.com/2024/06/09/arts/nyc-hochul-congestion-pricing.html
+
+**Biden Visits a Military Cemetery in France That Trump Once Snubbed**\
+`President Biden wrapped up a five-day trip by visiting a cemetery for American soldiers killed in World War I that Donald J. Trump skipped during a similar trip in 2018.`\
+https://nytimes.com/2024/06/09/world/europe/biden-trump-france-cemetery.html
+
 **Iran Names Six Candidates for President, Including Parliament Speaker**\
 `The June 28 election to succeed President Ebrahim Raisi, who died in a helicopter crash last month, comes as the country faces acute domestic and international challenges.`\
 https://nytimes.com/2024/06/09/world/middleeast/iran-names-six-candidates-for-president-including-parliament-speaker.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/09/dining/how-to-make-bulgogi.html
 **Our Fathers Marched With M.L.K. Here’s What They Would Say to Activists Today.**\
 `We are turning to the lessons of the interfaith leaders of the Civil Rights Movement`\
 https://nytimes.com/2024/06/09/opinion/mlk-march-race-black-jewish.html
-
-**Your Driving, Tracked**\
-`We explore the apps that are quietly tracking drivers’ habits.`\
-https://nytimes.com/2024/06/09/briefing/driving-apps-insurance-tracking.html
-
-**Mountain Landslide Destroys Section of Highway to Jackson, Wyo.**\
-`The road, linking Idaho with Wyoming, is a key route to Jackson Hole, a tourism hub. It had been closed to traffic before the landslide.`\
-https://nytimes.com/2024/06/09/us/jackson-hole-highway-closed.html
 
