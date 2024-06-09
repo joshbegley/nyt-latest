@@ -35,6 +35,6 @@ https://nytimes.com/2024/06/08/world/europe/sigmund-rolat-dead.html
 https://nytimes.com/2024/06/08/us/politics/nancy-mace-ethics.html
 
 **‘Cheaters Don’t Like Getting Caught’: Harris to Blast Trump in Michigan**\
-`In prepared remarks, Vice President Kamala Harris argues that Donald J. Trump’s guilty verdict should disqualify him for the presidency.`\
+`Vice President Kamala Harris argues that Donald J. Trump’s guilty verdict should disqualify him for the presidency.`\
 https://nytimes.com/2024/06/08/us/politics/kamala-harris-trump-michigan.html
 
