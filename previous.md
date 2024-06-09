@@ -1,3 +1,7 @@
+**Suspect in Sacramento Mass Shooting in 2022 Dies in County Jail**\
+`The suspect, who faced murder and firearms charges in connection to the shooting that killed six people, was found unresponsive at the jail. Details of his death were unclear.`\
+https://nytimes.com/2024/06/09/us/sacramento-mass-shooting-suspect-dead.html
+
 **Gantz threatened to resign last month.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/06/09/world/israel-gaza-war-hamas/gantz-threatened-to-resign-last-month
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/06/09/well/mind/friendship-style-quiz.html
 **‘Music Speaks to Some Deep Need Among Humans’**\
 `Responses to a Science Times article about the evolution of music across cultures. Also: Accepting election results; honoring the dead; fear of crime.`\
 https://nytimes.com/2024/06/09/opinion/music-evolution-cultures.html
-
-**Make Maangchi’s Bulgogi**\
-`I especially like it on Sundays, when I can slice the meat in the morning after breakfast and keep it in the garlicky, pear-sweetened soy marinade all day.`\
-https://nytimes.com/2024/06/09/dining/how-to-make-bulgogi.html
 
