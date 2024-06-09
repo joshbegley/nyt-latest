@@ -1,3 +1,11 @@
+**The Unabomber, Me and the Poisoned Myth of the American West**\
+`The Unabomber personified how we use the West as a mirror for the dark, untamed aspects of our national character.`\
+https://nytimes.com/2024/06/09/opinion/unabomber-novel-american-west.html
+
+**A Promise to Grads With ‘No Promise’**\
+`No matter what seemingly hopeless mess you have made, everything can still work out.`\
+https://nytimes.com/2024/06/09/opinion/high-school-graduation-future.html
+
 **The E.U. Votes: What We’re Watching For**\
 `The main things to know as voters in 27 countries head to the ballot box to shape the next five years of European Union policies.`\
 https://nytimes.com/2024/06/09/world/europe/the-eu-votes-what-were-watching-for.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/08/us/stanford-standardized-tests.html
 **Days After Border Closes for Most Migrants, Manageable Crowds but More Anxiety**\
 `Shelters along the border were quieter on Friday and Saturday compared with previous months, but many hoping to cross into the U.S. felt stranded and fearful.`\
 https://nytimes.com/2024/06/08/us/biden-executive-order-mexico-border.html
-
-**Quiet Time**\
-`Zachary Schiff’s debut puzzle moves softly, but keeps us in suspense.`\
-https://nytimes.com/2024/06/08/crosswords/daily-puzzle-2024-06-09.html
-
-**Swimmer Trying to Make Olympic History Is Left Off the U.S. Team**\
-`When the sport of artistic swimming, formerly synchronized swimming, announced it would allow men to compete in the Paris Games, Bill May saw his chance. But the U.S. team chose only women.`\
-https://nytimes.com/2024/06/08/us/synchronized-swimming-bill-may.html
 
