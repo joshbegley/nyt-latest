@@ -1,3 +1,7 @@
+**Flemish Nationalists Thwart Ascent of Secessionist Party as They Win Belgian Elections**\
+`The New Flemish Alliance’s victory will bring relief to the country’s political establishment, which had long been bracing for a victory by the far-right party Vlaams Belang.`\
+https://nytimes.com/2024/06/09/world/europe/belgium-european-elections.html
+
 **In ‘Dark Noon,’ Hollywood Westerns Get a South African Reboot**\
 `At St. Ann’s Warehouse, a collaboration between a Danish director and a South African troupe that questions the tropes of Western films.`\
 https://nytimes.com/2024/06/09/theater/dark-noon-st-anns-warehouse.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/09/arts/nyc-hochul-congestion-pricing.html
 **Biden Visits a Military Cemetery in France That Trump Once Snubbed**\
 `President Biden wrapped up a five-day trip by visiting a cemetery for American soldiers killed in World War I that Donald J. Trump skipped during a similar trip in 2018.`\
 https://nytimes.com/2024/06/09/world/europe/biden-trump-france-cemetery.html
-
-**Iran Names Six Candidates for President, Including Parliament Speaker**\
-`The June 28 election to succeed President Ebrahim Raisi, who died in a helicopter crash last month, comes as the country faces acute domestic and international challenges.`\
-https://nytimes.com/2024/06/09/world/middleeast/iran-election-parliament-speaker.html
 
