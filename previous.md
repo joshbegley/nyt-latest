@@ -1,3 +1,7 @@
+**The Other War: How Israel Scours Gaza for Clues About the Hostages**\
+`The rescue of four Israelis in Gaza in a ferocious assault over the weekend offered a glimpse into an ambitious intelligence operation aimed at bringing home those held by Hamas.`\
+https://nytimes.com/2024/06/09/world/middleeast/gaza-hostage-rescues-israel.html
+
 **Biden Administration Considers Protection for Undocumented Spouses of U.S. Citizens**\
 `The steps under consideration include protecting them from deportation and providing access to work permits, according to three officials with knowledge of the discussions.`\
 https://nytimes.com/2024/06/09/us/politics/biden-protection-undocumented-spouses.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/09/world/americas/mexico-sheinbaum-amlo-peso.html
 **Trump and Biden Surrogates Go Toe-to-Toe on Sunday Shows**\
 `Governors and senators laid out the cases for their candidates, with questionable claims and contravening positions.`\
 https://nytimes.com/2024/06/09/us/politics/trump-biden-immigration-kristi-noem.html
-
-**Flemish Nationalists Thwart Ascent of Secessionist Party in Belgian Elections**\
-`The New Flemish Alliance’s victory will bring relief to the country’s political establishment, which had long been bracing for a victory by the far-right party Vlaams Belang.`\
-https://nytimes.com/2024/06/09/world/europe/belgium-european-elections.html
 
