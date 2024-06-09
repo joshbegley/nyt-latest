@@ -1,3 +1,7 @@
+**French-American Friendship in Four Courses**\
+`Under Emmanuel Macron, “culinary diplomacy” is back on the menu, with a lavish dinner fortifying an old alliance at a tense historical moment.`\
+https://nytimes.com/2024/06/08/world/europe/state-dinner-paris-biden-macron.html
+
 **Protest Against Gaza War Draws Thousands to the White House**\
 `The demonstration included ringing the White House grounds with a red banner showing the names of the more than 36,000 Palestinians killed during the war.`\
 https://nytimes.com/2024/06/08/us/politics/white-house-gaza-protest.html

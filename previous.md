@@ -1,3 +1,7 @@
+**French-American Friendship in Four Courses**\
+`Under Emmanuel Macron, “culinary diplomacy” is back on the menu, with a lavish dinner fortifying an old alliance at a tense historical moment.`\
+https://nytimes.com/2024/06/08/world/europe/state-dinner-paris-biden-macron.html
+
 **Protest Against Gaza War Draws Thousands to the White House**\
 `The demonstration included ringing the White House grounds with a red banner showing the names of the more than 36,000 Palestinians killed during the war.`\
 https://nytimes.com/2024/06/08/us/politics/white-house-gaza-protest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/08/world/middleeast/what-is-known-about-the-hostages
 **Israel Rescues 4 Hostages in Assault That Killed Scores of Gazans**\
 `The news was met with jubilation in Israel, where tensions over the hostages’ safety have been rising in recent months.`\
 https://nytimes.com/2024/06/08/world/middleeast/israel-hostages-nuseirat-gaza.html
-
-**Sigmund Rolat, Who Used His Wealth to Memorialize Polish Jews, Dies at 93**\
-`A Holocaust survivor and a shipping financier, he returned to his home country, where his parents and brother perished, to help build a museum and other memorials.`\
-https://nytimes.com/2024/06/08/world/europe/sigmund-rolat-dead.html
 
