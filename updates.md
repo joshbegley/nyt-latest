@@ -1,3 +1,7 @@
+**Review: ‘Inside Light’ Gives a Taste of Stockhausen’s Opera Epic**\
+`At the Park Avenue Armory, a five-hour selection of pieces from the 29-hour “Licht” cycle is best appreciated as a marathon performance.`\
+https://nytimes.com/2024/06/09/arts/music/review-inside-light-stockhausen-park-avenue-armory.html
+
 **Suspect in Sacramento Mass Shooting in 2022 Dies in County Jail**\
 `The suspect, who faced murder and firearms charges in connection to the shooting that killed six people, was found unresponsive at the jail. Details of his death were unclear.`\
 https://nytimes.com/2024/06/09/us/sacramento-mass-shooting-suspect-dead.html
