@@ -1,3 +1,7 @@
+**Trump Will Have Virtual Interview With Probation Official on Monday**\
+`The former president, who was convicted of 34 felonies by a Manhattan jury, is required to have an interview as the city’s Probation Department prepares a pre-sentencing report.`\
+https://nytimes.com/2024/06/09/nyregion/trump-probation-officer-hush-money-verdict.html
+
 **Monday Briefing: Macron Calls New French Legislative Elections**\
 `Also, Benny Gantz leaves Israel’s government.`\
 https://nytimes.com/2024/06/09/world/asia/macron-elections-eu-gantz-asia.html
