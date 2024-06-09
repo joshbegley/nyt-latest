@@ -1,3 +1,7 @@
+**Far Right Surges in European Parliament Elections, Early Data Shows**\
+`Voters across the European Union were expected to deliver major gains to anti-immigrant, nationalist parties, challenging leaders in Germany and France.`\
+https://nytimes.com/2024/06/09/world/europe/european-parliament-elections-far-right.html
+
 **Review: ‘Inside Light’ Gives a Taste of Stockhausen’s Opera Epic**\
 `At the Park Avenue Armory, a five-hour selection of pieces from the 29-hour “Licht” cycle is best appreciated as a marathon performance.`\
 https://nytimes.com/2024/06/09/arts/music/review-inside-light-stockhausen-park-avenue-armory.html

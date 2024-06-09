@@ -1,3 +1,7 @@
+**Far Right Surges in European Parliament Elections, Early Data Shows**\
+`Voters across the European Union were expected to deliver major gains to anti-immigrant, nationalist parties, challenging leaders in Germany and France.`\
+https://nytimes.com/2024/06/09/world/europe/european-parliament-elections-far-right.html
+
 **Review: ‘Inside Light’ Gives a Taste of Stockhausen’s Opera Epic**\
 `At the Park Avenue Armory, a five-hour selection of pieces from the 29-hour “Licht” cycle is best appreciated as a marathon performance.`\
 https://nytimes.com/2024/06/09/arts/music/review-inside-light-stockhausen-park-avenue-armory.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/09/world/israel-gaza-war-hamas/an-israeli-raid-
 **Israel’s Euphoria Over Hostage Rescue May Be Fleeting**\
 `The operation conducted by Israel’s military to free four hostages resulted in a high death toll among Palestinians and has not resolved the challenges facing the Israeli government.`\
 https://nytimes.com/2024/06/09/world/middleeast/netanyahu-israel-gaza.html
-
-**Butterfly or Firefly: What’s Your Friendship Style?**\
-`We each connect with our social networks in our own way, though there are some universal threads. Take this quiz to find your friendship style, and sign up for Well’s 5-Day Friendship Challenge.`\
-https://nytimes.com/interactive/2024/06/09/well/mind/friendship-style-quiz.html
 
