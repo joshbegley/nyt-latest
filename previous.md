@@ -7,7 +7,7 @@ https://nytimes.com/2024/06/09/world/europe/belgium-european-elections.html
 https://nytimes.com/2024/06/09/theater/dark-noon-st-anns-warehouse.html
 
 **France’s Far Right Is Triumphant in European Elections**\
-`The results did not come as a surprise, but they were a blunt disavowal of President Emmanuel Macron,`\
+`The results did not come as a surprise, but they were a blunt disavowal of President Emmanuel Macron.`\
 https://nytimes.com/2024/06/09/world/europe/france-european-elections.html
 
 **A Friendship Forged by the Appeal of Being a ‘Bad Woman’**\

@@ -1,3 +1,7 @@
+**France’s Far Right Is Triumphant in European Elections**\
+`The results did not come as a surprise, but they were a blunt disavowal of President Emmanuel Macron.`\
+https://nytimes.com/2024/06/09/world/europe/france-european-elections.html
+
 **Flemish Nationalists Thwart Ascent of Secessionist Party as They Win Belgian Elections**\
 `The New Flemish Alliance’s victory will bring relief to the country’s political establishment, which had long been bracing for a victory by the far-right party Vlaams Belang.`\
 https://nytimes.com/2024/06/09/world/europe/belgium-european-elections.html
