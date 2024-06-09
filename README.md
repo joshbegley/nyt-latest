@@ -1,3 +1,7 @@
+**Corrections: June 9, 2024**\
+`Corrections that appeared in print on Sunday, June 9, 2024.`\
+https://nytimes.com/2024/06/09/pageoneplus/corrections-june-9-2024.html
+
 **Modi, Striking a Modest Tone, to Be Sworn In for a Third Term**\
 `Forced into a coalition government, the prime minister faces the challenge of governing differently than he has so far in two decades in elected office.`\
 https://nytimes.com/2024/06/09/world/asia/india-changed-modi-swearing-in.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/08/automobiles/kia-recall-fire-telluride.html
 **Israel Rescues Four Hostages in Operation That Palestinian Officials Say Killed Scores**\
 `Four hostages were rescued by Israeli forces after being held in Gaza since the Hamas-led attack on Oct. 7, the Israeli military said. The rescue operation in the town of Nuseirat in central Gaza unleashed a heavy aerial bombardment that killed scores, according to hospital officials in the area.`\
 https://nytimes.com/video/world/middleeast/100000009511970/nuseirat-gaza-israeli-hostages.html
-
-**Stanford Becomes Latest School to Reinstate Test Scores Requirement**\
-`The university joins a small but growing number of elite colleges requiring SAT or ACT scores in applications once again.`\
-https://nytimes.com/2024/06/08/us/stanford-standardized-tests.html
 
