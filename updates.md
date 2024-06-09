@@ -1,3 +1,5 @@
+**Member of Israeli war cabinet who threatened to resign will speak, and other news.**\
+
 **Mountain Landslide Destroys Section of Highway to Jackson, Wyo.**\
 `The road, linking Idaho with Wyoming, is a key route to Jackson Hole, a tourism hub. It had been closed to traffic before the landslide.`\
 https://nytimes.com/2024/06/09/us/jackson-hole-highway-closed.html
