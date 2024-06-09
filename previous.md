@@ -1,3 +1,7 @@
+**The E.U. Votes: What We’re Watching For**\
+`The main things to know as voters in 27 countries head to the ballot box to shape the next five years of European Union policies.`\
+https://nytimes.com/2024/06/09/world/europe/the-eu-votes-what-were-watching-for.html
+
 **Quote of the Day: A County Clerk’s Lonely Quest vs. Die-Hard Election Deniers**\
 `Quotation of the Day for Sunday, June 9, 2024.`\
 https://nytimes.com/2024/06/08/pageoneplus/quote-of-the-day-a-county-clerks-lonely-quest-vs-die-hard-election-deniers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/08/crosswords/daily-puzzle-2024-06-09.html
 **Swimmer Trying to Make Olympic History Is Left Off the U.S. Team**\
 `When the sport of artistic swimming, formerly synchronized swimming, announced it would allow men to compete in the Paris Games, Bill May saw his chance. But the U.S. team chose only women.`\
 https://nytimes.com/2024/06/08/us/synchronized-swimming-bill-may.html
-
-**What is known about the hostages still in Gaza?**\
-`By Ephrat Livni`\
-https://nytimes.com/2024/06/08/world/middleeast/what-is-known-about-the-hostages-still-in-gaza.html
 

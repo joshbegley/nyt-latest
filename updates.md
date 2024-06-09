@@ -1,3 +1,7 @@
+**The E.U. Votes: What We’re Watching For**\
+`The main things to know as voters in 27 countries head to the ballot box to shape the next five years of European Union policies.`\
+https://nytimes.com/2024/06/09/world/europe/the-eu-votes-what-were-watching-for.html
+
 **Quote of the Day: A County Clerk’s Lonely Quest vs. Die-Hard Election Deniers**\
 `Quotation of the Day for Sunday, June 9, 2024.`\
 https://nytimes.com/2024/06/08/pageoneplus/quote-of-the-day-a-county-clerks-lonely-quest-vs-die-hard-election-deniers.html
