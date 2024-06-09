@@ -1,3 +1,7 @@
+**Butterfly or Firefly: What’s Your Friendship Style?**\
+`We each connect with our social networks in our own way, though there are some universal threads. Take this quiz to find your friendship style, and sign up for Well’s 5-Day Friendship Challenge.`\
+https://nytimes.com/interactive/2024/06/09/well/mind/friendship-style-quiz.html
+
 **‘Music Speaks to Some Deep Need Among Humans’**\
 `Responses to a Science Times article about the evolution of music across cultures. Also: Accepting election results; honoring the dead; fear of crime.`\
 https://nytimes.com/2024/06/09/opinion/music-evolution-cultures.html
@@ -29,9 +33,5 @@ https://nytimes.com/2024/06/09/crosswords/connections-companion-365.html
 **Wordle Review No. 1,087, June 10, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/06/09/crosswords/wordle-review-1087.html
-
-**The audacious operation did little to resolve the many challenges facing Israel’s government.**\
-`By Isabel Kershner`\
-https://nytimes.com/live/2024/06/09/world/israel-gaza-war-hamas/the-audacious-operation-did-little-to-resolve-the-many-challenges-facing-israels-government
 
 **A member of Israel’s war cabinet who threatened to resign will speak, and other news.**\
