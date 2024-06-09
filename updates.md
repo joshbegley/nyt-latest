@@ -1,3 +1,7 @@
+**British TV Doctor Michael Mosley Found Dead in Greece**\
+`Mr. Mosley, a British medical journalist and documentary maker, disappeared last week while on a trip on the Greek island of Symi.`\
+https://nytimes.com/2024/06/09/world/europe/michael-mosley-greece.html
+
 **A Kinetic Piece of Art Will Stop Moving**\
 `“Moveable Type,” in which screens flash fragments from The Times’s news report, has been in the lobby of the company’s headquarters since 2007.`\
 https://nytimes.com/2024/06/09/insider/moveable-type-removed.html
