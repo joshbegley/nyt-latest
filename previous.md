@@ -1,3 +1,11 @@
+**In ‘Dark Noon,’ Hollywood Westerns Get a South African Reboot**\
+`At St. Ann’s Warehouse, a collaboration between a Danish director and a South African troupe that questions the tropes of Western films.`\
+https://nytimes.com/2024/06/09/theater/dark-noon-st-anns-warehouse.html
+
+**France’s Far Right Is Triumphant in European Elections**\
+`The results did not come as a surprise, but they were a blunt disavowal of President Emmanuel Macron,`\
+https://nytimes.com/2024/06/09/world/europe/france-european-elections.html
+
 **A Friendship Forged by the Appeal of Being a ‘Bad Woman’**\
 `In Marcela Fuentes’s novel, “Malas,” a troubled teenager finds refuge in music and in a recluse with a dark history.`\
 https://nytimes.com/2024/06/09/books/review/marcela-fuentes-malas.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/09/world/europe/biden-trump-france-cemetery.html
 **Iran Names Six Candidates for President, Including Parliament Speaker**\
 `The June 28 election to succeed President Ebrahim Raisi, who died in a helicopter crash last month, comes as the country faces acute domestic and international challenges.`\
 https://nytimes.com/2024/06/09/world/middleeast/iran-election-parliament-speaker.html
-
-**After 50 Years and a Tornado Warning, an Oklahoma High School Class Graduates**\
-`In 1974, a high school commencement ceremony in Moore, Okla., was interrupted by a tornado warning. Decades later, students finally turned their tassels.`\
-https://nytimes.com/2024/06/09/us/oklahoma-graduation-tornado-warning.html
-
-**An Israeli raid leaves a Gaza hospital packed with the wounded.**\
-`By Aaron Boxerman and Adam Rasgon`\
-https://nytimes.com/live/2024/06/09/world/israel-gaza-war-hamas/an-israeli-raid-leaves-a-gaza-hospital-packed-with-the-wounded
 

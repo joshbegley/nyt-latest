@@ -1,3 +1,11 @@
+**In ‘Dark Noon,’ Hollywood Westerns Get a South African Reboot**\
+`At St. Ann’s Warehouse, a collaboration between a Danish director and a South African troupe that questions the tropes of Western films.`\
+https://nytimes.com/2024/06/09/theater/dark-noon-st-anns-warehouse.html
+
+**France’s Far Right Is Triumphant in European Elections**\
+`The results did not come as a surprise, but they were a blunt disavowal of President Emmanuel Macron,`\
+https://nytimes.com/2024/06/09/world/europe/france-european-elections.html
+
 **Far Right Surges in European Parliament Elections, Early Data Shows**\
 `Voters in the European Union were expected to deliver gains to anti-immigrant, nationalist parties, challenging leaders in Germany and France.`\
 https://nytimes.com/2024/06/09/world/europe/european-parliament-elections-far-right.html
