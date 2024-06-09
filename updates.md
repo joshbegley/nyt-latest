@@ -1,3 +1,7 @@
+**Flemish Nationalists Thwart Ascent of Secessionist Party as They Win Belgian Elections**\
+`The New Flemish Alliance’s victory will bring relief to the country’s political establishment, which had long been bracing for a victory by the far-right party Vlaams Belang.`\
+https://nytimes.com/2024/06/09/world/europe/belgium-european-elections.html
+
 **In ‘Dark Noon,’ Hollywood Westerns Get a South African Reboot**\
 `At St. Ann’s Warehouse, a collaboration between a Danish director and a South African troupe that questions the tropes of Western films.`\
 https://nytimes.com/2024/06/09/theater/dark-noon-st-anns-warehouse.html
