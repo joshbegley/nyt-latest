@@ -1,3 +1,7 @@
+**Gantz threatened to resign last month.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/06/09/world/israel-gaza-war-hamas/gantz-threatened-to-resign-last-month
+
 **What Made New York Great? Leadership. Where Is It Now?**\
 `The city was built on bold ideas. Suddenly Gov. Kathy Hochul paused a game-changing plan to fight congestion. Can we still do big things in a polarized moment?`\
 https://nytimes.com/2024/06/09/arts/nyc-hochul-congestion-pricing.html
