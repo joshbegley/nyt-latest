@@ -1,3 +1,7 @@
+**After 50 Years and a Tornado Warning, an Oklahoma High School Class Graduates**\
+`In 1974, a high school commencement ceremony in Moore, Okla., was interrupted by a tornado warning. Decades later, students finally turned their tassels.`\
+https://nytimes.com/2024/06/09/us/oklahoma-graduation-tornado-warning.html
+
 **An Israeli raid leaves a Gaza hospital packed with the wounded.**\
 `By Aaron Boxerman and Adam Rasgon`\
 https://nytimes.com/live/2024/06/09/world/israel-gaza-war-hamas/an-israeli-raid-leaves-a-gaza-hospital-packed-with-the-wounded
