@@ -1,3 +1,11 @@
+**Battered by Far Right in European Vote, Macron Calls New Legislative Elections in France**\
+`Mr. Macron’s decision, on the eve of the summer Olympic Games that begin in Paris in July, ushered in a period of deep political uncertainty in France.`\
+https://nytimes.com/2024/06/09/world/europe/france-european-elections.html
+
+**Gantz had called on Netanyahu to provide answers about the war.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/06/09/world/israel-gaza-war-hamas/gantz-threatened-to-resign-last-month
+
 **France’s Far Right Is Triumphant in European Elections**\
 `The results did not come as a surprise, but they were a blunt disavowal of President Emmanuel Macron.`\
 https://nytimes.com/2024/06/09/world/europe/france-european-elections.html
