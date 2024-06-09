@@ -26,7 +26,7 @@ https://nytimes.com/2024/06/09/arts/music/review-inside-light-stockhausen-park-a
 `The suspect, who faced murder and firearms charges in connection to the shooting that killed six people, was found unresponsive at the jail. Details of his death were unclear.`\
 https://nytimes.com/2024/06/09/us/sacramento-mass-shooting-suspect-dead.html
 
-**Gantz threatened to resign last month.**\
+**Gantz had called on Netanyahu to provide answers about the war.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/06/09/world/israel-gaza-war-hamas/gantz-threatened-to-resign-last-month
 
