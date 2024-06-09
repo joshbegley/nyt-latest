@@ -1,3 +1,7 @@
+**Far Right Surges in European Parliament Elections, Early Data Shows**\
+`Voters in the European Union were expected to deliver gains to anti-immigrant, nationalist parties, challenging leaders in Germany and France.`\
+https://nytimes.com/2024/06/09/world/europe/european-parliament-elections-far-right.html
+
 **A Friendship Forged by the Appeal of Being a ‘Bad Woman’**\
 `In Marcela Fuentes’s novel, “Malas,” a troubled teenager finds refuge in music and in a recluse with a dark history.`\
 https://nytimes.com/2024/06/09/books/review/marcela-fuentes-malas.html
