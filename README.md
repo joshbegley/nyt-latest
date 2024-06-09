@@ -1,3 +1,7 @@
+**Gantz threatened to resign last month.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/06/09/world/israel-gaza-war-hamas/gantz-threatened-to-resign-last-month
+
 **What Made New York Great? Leadership. Where Is It Now?**\
 `The city was built on bold ideas. Suddenly Gov. Kathy Hochul paused a game-changing plan to fight congestion. Can we still do big things in a polarized moment?`\
 https://nytimes.com/2024/06/09/arts/nyc-hochul-congestion-pricing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/09/opinion/music-evolution-cultures.html
 **Make Maangchi’s Bulgogi**\
 `I especially like it on Sundays, when I can slice the meat in the morning after breakfast and keep it in the garlicky, pear-sweetened soy marinade all day.`\
 https://nytimes.com/2024/06/09/dining/how-to-make-bulgogi.html
-
-**Our Fathers Marched With M.L.K. Here’s What They Would Say to Activists Today.**\
-`We are turning to the lessons of the interfaith leaders of the Civil Rights Movement`\
-https://nytimes.com/2024/06/09/opinion/mlk-march-race-black-jewish.html
 
