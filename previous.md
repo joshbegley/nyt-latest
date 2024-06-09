@@ -1,3 +1,7 @@
+**Benny Gantz Resigns From Israel’s War Cabinet**\
+`Benny Gantz, a centrist figure and a key member of Israel’s war cabinet, said his party was leaving the country’s emergency government over Prime Minister Benjamin Netanyahu’s handling of the war in Gaza.`\
+https://nytimes.com/video/world/middleeast/100000009512607/benny-gantz-israel-war-cabinet.html
+
 **Trump Will Have Virtual Interview With Probation Official on Monday**\
 `The former president, who was convicted of 34 felonies by a Manhattan jury, is required to have an interview as the city’s Probation Department prepares a pre-sentencing report.`\
 https://nytimes.com/2024/06/09/nyregion/trump-probation-officer-hush-money-verdict.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/09/books/review/marcela-fuentes-malas.html
 **Far Right Surges in European Parliament Elections, Early Data Shows**\
 `Voters in the European Union were expected to deliver gains to anti-immigrant, nationalist parties, challenging leaders in Germany and France.`\
 https://nytimes.com/2024/06/09/world/europe/european-parliament-elections-far-right.html
-
-**Review: ‘Inside Light’ Gives a Taste of Stockhausen’s Opera Epic**\
-`At the Park Avenue Armory, a five-hour selection of pieces from the 29-hour “Licht” cycle is best appreciated as a marathon performance.`\
-https://nytimes.com/2024/06/09/arts/music/review-inside-light-stockhausen-park-avenue-armory.html
 

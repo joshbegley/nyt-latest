@@ -1,3 +1,7 @@
+**Benny Gantz Resigns From Israel’s War Cabinet**\
+`Benny Gantz, a centrist figure and a key member of Israel’s war cabinet, said his party was leaving the country’s emergency government over Prime Minister Benjamin Netanyahu’s handling of the war in Gaza.`\
+https://nytimes.com/video/world/middleeast/100000009512607/benny-gantz-israel-war-cabinet.html
+
 **Battered by Far Right in E.U. Vote, Macron Calls for New Elections in France**\
 `The president’s decision, on the eve of the summer Olympic Games that begin in Paris in July, ushered in a period of deep political uncertainty in France.`\
 https://nytimes.com/2024/06/09/world/europe/france-european-elections.html
