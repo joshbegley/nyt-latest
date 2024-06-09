@@ -24,7 +24,7 @@ https://nytimes.com/2024/06/09/world/europe/biden-trump-france-cemetery.html
 
 **Iran Names Six Candidates for President, Including Parliament Speaker**\
 `The June 28 election to succeed President Ebrahim Raisi, who died in a helicopter crash last month, comes as the country faces acute domestic and international challenges.`\
-https://nytimes.com/2024/06/09/world/middleeast/iran-names-six-candidates-for-president-including-parliament-speaker.html
+https://nytimes.com/2024/06/09/world/middleeast/iran-election-parliament-speaker.html
 
 **After 50 Years and a Tornado Warning, an Oklahoma High School Class Graduates**\
 `In 1974, a high school commencement ceremony in Moore, Okla., was interrupted by a tornado warning. Decades later, students finally turned their tassels.`\
