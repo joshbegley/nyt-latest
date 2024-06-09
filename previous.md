@@ -1,3 +1,7 @@
+**Mexico’s Leftists Won Big. Investors Are Worried.**\
+`The peso had its worst week since the pandemic as markets reacted to fears that the government would pass constitutional changes seen as dismantling democratic checks and balances.`\
+https://nytimes.com/2024/06/09/world/americas/mexico-sheinbaum-amlo-peso.html
+
 **Trump and Biden Surrogates Go Toe-to-Toe on Sunday Shows**\
 `Governors and senators laid out the cases for their candidates, with questionable claims and contravening positions.`\
 https://nytimes.com/2024/06/09/us/politics/trump-biden-immigration-kristi-noem.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/09/us/sacramento-mass-shooting-suspect-dead.html
 **Gantz had called on Netanyahu to provide answers about the war.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/06/09/world/israel-gaza-war-hamas/gantz-threatened-to-resign-last-month
-
-**What Made New York Great? Leadership. Where Is It Now?**\
-`The city was built on bold ideas. Suddenly Gov. Kathy Hochul paused a game-changing plan to fight congestion. Can we still do big things in a polarized moment?`\
-https://nytimes.com/2024/06/09/arts/nyc-hochul-congestion-pricing.html
 

@@ -1,3 +1,7 @@
+**Mexico’s Leftists Won Big. Investors Are Worried.**\
+`The peso had its worst week since the pandemic as markets reacted to fears that the government would pass constitutional changes seen as dismantling democratic checks and balances.`\
+https://nytimes.com/2024/06/09/world/americas/mexico-sheinbaum-amlo-peso.html
+
 **Trump and Biden Surrogates Go Toe-to-Toe on Sunday Shows**\
 `Governors and senators laid out the cases for their candidates, with questionable claims and contravening positions.`\
 https://nytimes.com/2024/06/09/us/politics/trump-biden-immigration-kristi-noem.html
