@@ -1,3 +1,7 @@
+**Your Driving, Tracked**\
+`We explore the apps that are quietly tracking drivers’ habits.`\
+https://nytimes.com/2024/06/09/briefing/driving-apps-insurance-tracking.html
+
 **Mountain Landslide Destroys Section of Highway to Jackson, Wyo.**\
 `The road, linking Idaho with Wyoming, is a key route to Jackson Hole, a tourism hub. It had been closed to traffic before the landslide.`\
 https://nytimes.com/2024/06/09/us/jackson-hole-highway-closed.html
