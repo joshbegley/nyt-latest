@@ -1,3 +1,7 @@
+**British TV Doctor Michael Mosley Found Dead in Greece**\
+`Mr. Mosley, a British medical journalist and documentary maker, disappeared last week while on a trip on the Greek island of Symi.`\
+https://nytimes.com/2024/06/09/world/europe/michael-mosley-greece.html
+
 **A Kinetic Piece of Art Will Stop Moving**\
 `“Moveable Type,” in which screens flash fragments from The Times’s news report, has been in the lobby of the company’s headquarters since 2007.`\
 https://nytimes.com/2024/06/09/insider/moveable-type-removed.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/09/pageoneplus/corrections-june-9-2024.html
 **Modi, Striking a Modest Tone, to Be Sworn In for a Third Term**\
 `Forced into a coalition government, the prime minister faces the challenge of governing differently than he has so far in two decades in elected office.`\
 https://nytimes.com/2024/06/09/world/asia/india-changed-modi-swearing-in.html
-
-**The Unabomber, Me and the Poisoned Myth of the American West**\
-`The Unabomber personified how we use the West as a mirror for the dark, untamed aspects of our national character.`\
-https://nytimes.com/2024/06/09/opinion/unabomber-novel-american-west.html
 
