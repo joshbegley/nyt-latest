@@ -1,3 +1,7 @@
+**Chet Walker, N.B.A. Champion and Movie Producer, Dies at 84**\
+`A vital member of the 1966-67 champion Philadelphia 76ers, he later produced a TV series based on the life on the point guard Isiah Thomas’s mother.`\
+https://nytimes.com/2024/06/09/sports/basketball/chet-walker-dead.html
+
 **Corrections: June 9, 2024**\
 `Corrections that appeared in print on Sunday, June 9, 2024.`\
 https://nytimes.com/2024/06/09/pageoneplus/corrections-june-9-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/08/us/politics/white-house-gaza-protest.html
 **Kia Recalls Telluride SUV Over Fire Risk; Urging Owners to Park Outside**\
 `About 460,000 vehicles could be affected by the recall, which stems from a problem with the vehicle’s front power seat motor.`\
 https://nytimes.com/2024/06/08/automobiles/kia-recall-fire-telluride.html
-
-**Israel Rescues Four Hostages in Operation That Palestinian Officials Say Killed Scores**\
-`Four hostages were rescued by Israeli forces after being held in Gaza since the Hamas-led attack on Oct. 7, the Israeli military said. The rescue operation in the town of Nuseirat in central Gaza unleashed a heavy aerial bombardment that killed scores, according to hospital officials in the area.`\
-https://nytimes.com/video/world/middleeast/100000009511970/nuseirat-gaza-israeli-hostages.html
 
