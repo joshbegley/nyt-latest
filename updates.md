@@ -1,3 +1,7 @@
+**A Friendship Forged by the Appeal of Being a ‘Bad Woman’**\
+`In Marcela Fuentes’s novel, “Malas,” a troubled teenager finds refuge in music and in a recluse with a dark history.`\
+https://nytimes.com/2024/06/09/books/review/marcela-fuentes-malas.html
+
 **Iran Names Six Candidates for President, Including Parliament Speaker**\
 `The June 28 election to succeed President Ebrahim Raisi, who died in a helicopter crash last month, comes as the country faces acute domestic and international challenges.`\
 https://nytimes.com/2024/06/09/world/middleeast/iran-election-parliament-speaker.html
