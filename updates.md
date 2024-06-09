@@ -1,3 +1,7 @@
+**Trump and Biden Surrogates Go Toe-to-Toe on Sunday Shows**\
+`Governors and senators laid out the cases for their candidates, with questionable claims and contravening positions.`\
+https://nytimes.com/2024/06/09/us/politics/trump-biden-immigration-kristi-noem.html
+
 **Battered by Far Right in European Vote, Macron Calls New Legislative Elections in France**\
 `Mr. Macron’s decision, on the eve of the summer Olympic Games that begin in Paris in July, ushered in a period of deep political uncertainty in France.`\
 https://nytimes.com/2024/06/09/world/europe/france-european-elections.html
