@@ -1,3 +1,7 @@
+**Protest Against Gaza War Draws Thousands to the White House**\
+`The demonstration included ringing the White House grounds with a red banner showing the names of the more than 36,000 Palestinians killed during the war.`\
+https://nytimes.com/2024/06/08/us/politics/white-house-gaza-protest.html
+
 **Kia Recalls Telluride SUV Over Fire Risk; Urging Owners to Park Outside**\
 `About 460,000 vehicles could be affected by the recall, which stems from a problem with the vehicle’s front power seat motor.`\
 https://nytimes.com/2024/06/08/automobiles/kia-recall-fire-telluride.html

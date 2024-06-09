@@ -1,3 +1,7 @@
+**Protest Against Gaza War Draws Thousands to the White House**\
+`The demonstration included ringing the White House grounds with a red banner showing the names of the more than 36,000 Palestinians killed during the war.`\
+https://nytimes.com/2024/06/08/us/politics/white-house-gaza-protest.html
+
 **Kia Recalls Telluride SUV Over Fire Risk; Urging Owners to Park Outside**\
 `About 460,000 vehicles could be affected by the recall, which stems from a problem with the vehicle’s front power seat motor.`\
 https://nytimes.com/2024/06/08/automobiles/kia-recall-fire-telluride.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/08/world/middleeast/israel-hostages-nuseirat-gaza.ht
 **Sigmund Rolat, Who Used His Wealth to Memorialize Polish Jews, Dies at 93**\
 `A Holocaust survivor and a shipping financier, he returned to his home country, where his parents and brother perished, to help build a museum and other memorials.`\
 https://nytimes.com/2024/06/08/world/europe/sigmund-rolat-dead.html
-
-**House Ethics Panel Looks Into Nancy Mace’s Use of Reimbursement Program**\
-`The committee will decide whether to open a formal investigation into expense reports filed by the South Carolina Republican.`\
-https://nytimes.com/2024/06/08/us/politics/nancy-mace-ethics.html
 
