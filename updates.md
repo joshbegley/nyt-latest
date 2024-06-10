@@ -1,3 +1,7 @@
+**Apple Entered the A.I. Fray**\
+`Also, the F.D.A.’s advisers endorsed a new Alzheimer’s drug. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/06/10/briefing/apple-ai-blinken-middle-east-tour-elephants.html
+
 **James M. Lawson Jr., a Top Strategist for Dr. King, Is Dead at 95**\
 `After studying Gandhi’s principles of civil disobedience in India, he joined the 1960s civil rights movement and became an architect of it as a nonviolent struggle.`\
 https://nytimes.com/2024/06/10/us/james-m-lawson-jr-dr-dead.html
