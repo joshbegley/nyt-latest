@@ -1,3 +1,7 @@
+**Jean-Philippe Allard, Jazz Producer and Musicians’ Advocate, Dies at 67**\
+`He called himself a “professional listener,” and he tended to develop lifelong relationships with the artists he worked with.`\
+https://nytimes.com/2024/06/09/arts/music/jean-philippe-allard-dead.html
+
 **India-Pakistan Cricket World Cup Match Brings 34,000 Fans to Long Island**\
 `Security was tight, but the mood was jubilant in the temporary stadium in Nassau County, where India won 119-113 in a highly anticipated showdown.`\
 https://nytimes.com/2024/06/09/nyregion/india-pakistan-cricket-world-cup.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009512607/benny-gantz-israel-wa
 **Trump Will Have Virtual Interview With Probation Official on Monday**\
 `The former president, who was convicted of 34 felonies by a Manhattan jury, is required to have an interview as the city’s Probation Department prepares a pre-sentencing report.`\
 https://nytimes.com/2024/06/09/nyregion/trump-probation-officer-hush-money-verdict.html
-
-**Monday Briefing: Macron Calls New French Legislative Elections**\
-`Also, Benny Gantz leaves Israel’s government.`\
-https://nytimes.com/2024/06/09/world/asia/macron-elections-eu-gantz-asia.html
 
