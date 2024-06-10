@@ -1,3 +1,7 @@
+**Israel’s Parliament Revives Bill on Drafting Ultra-Orthodox Men Into Military**\
+`The vote was aimed at keeping the divisive issue in the hands of legislators instead of judges, who have repeatedly determined that an exemption should not stand.`\
+https://nytimes.com/2024/06/10/world/middleeast/israel-haredi-orthodox-draft-bill.html
+
 **Colorado’s Trumpified G.O.P. Says to Burn Pride Flags**\
 `The MAGA movement tears another state Republican Party apart.`\
 https://nytimes.com/2024/06/10/opinion/colorado-gop-pride.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/10/us/obama-center-chicago.html
 **M.T.A. Will Push to Run Subway Safely With Toll Plan Halted, Chief Says**\
 `Janno Lieber said the Metropolitan Transportation Authority was reining in its ambitions after Gov. Kathy Hochul moved to halt congestion pricing.`\
 https://nytimes.com/2024/06/10/nyregion/mta-janno-lieber-congestion-pricing.html
-
-**Trump’s Vegas Strategy: Run on Bad Luck**\
-`At his first rally since his conviction, Trump complained about the odds being stacked against him.`\
-https://nytimes.com/2024/06/10/us/politics/trump-vegas-strategy.html
 
