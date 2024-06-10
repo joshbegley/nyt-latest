@@ -1,3 +1,11 @@
+**Fear for the Other**\
+`Small but mighty acts of empathy can help us assuage the feelings of isolation and divisiveness that followed the Covid pandemic.`\
+https://nytimes.com/2024/06/10/special-series/fear-covid-politics-other.html
+
+**A Cave Explorer Died 99 Years Ago. Now His Story Is Broadway Bound.**\
+`“Floyd Collins,” a musical about a trapped spelunker and the media circus surrounding his failed rescue, had a brief Off Broadway run in 1996.`\
+https://nytimes.com/2024/06/10/theater/floyd-collins-broadway.html
+
 **How ‘The Outsiders’ Staged a Broadway Fight Club**\
 `To produce this Tony-nominated show’s climactic rumble, the creators, cast and crew gave it everything they've got. `\
 https://nytimes.com/card/2024/06/10/theater/outsiders-rumble
