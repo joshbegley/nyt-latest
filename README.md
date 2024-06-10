@@ -1,3 +1,7 @@
+**The Big Ideas: What Do We Fear?**\
+`In this series, writers respond to a single question: What do we fear?`\
+https://nytimes.com/column/the-big-ideas-what-do-we-fear
+
 **Can You Find The 14 Book Titles Hidden in This Block of Text?**\
 `Try your hand at uncovering a reading list of thrillers in this Title Search puzzle.`\
 https://nytimes.com/interactive/2024/06/10/books/review/dystopian-thrillers-puzzle.html
@@ -33,8 +37,4 @@ https://nytimes.com/card/2024/06/10/theater/outsiders-rumble
 **Biden goes abroad again, and Trump turns 78: the week ahead in politics.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/06/10/us/biden-trump-election/biden-trump-election
-
-**Election Updates: Biden heads back to Europe this week, while Trump has a birthday party.**\
-``\
-https://nytimes.com/live/2024/06/10/us/biden-trump-election
 
