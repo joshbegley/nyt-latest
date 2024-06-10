@@ -1,3 +1,7 @@
+**Bull Escapes Arena at Oregon Rodeo**\
+`The bull ran back to the livestock holding pens where it was secured by rodeo pickup men and placed into a pen, according to the Sisters Rodeo Association.`\
+https://nytimes.com/video/us/100000009513063/bull-escape-rodeo-sisters-oregon.html
+
 **What to Know About France’s Snap Parliamentary Elections**\
 `President Emmanuel Macron’s surprise call for new elections in France’s lower house of Parliament is seen as a gamble.`\
 https://nytimes.com/2024/06/10/world/europe/france-election-macron-explained.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/10/crosswords/connections-companion-366.html
 **Blinken meets with Egypt’s president before traveling to Israel.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/06/10/world/israel-gaza-war-hamas/blinken-arrives-in-egypt-to-discuss-the-latest-cease-fire-proposal
-
-**It’s a Trial a Minute Around Here**\
-`Here’s looking at you, Hunter.`\
-https://nytimes.com/2024/06/10/opinion/border-hunter-joe-biden.html
 
