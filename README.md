@@ -1,3 +1,7 @@
+**Could a software update play a critical role in decarbonizing the US power grid? An MIT research team says yes.**\
+`Modernizing the grid’s software will allow for more accurate supply and demand prediction and will better incorporate renewable energy sources `\
+https://nytimes.com/paidpost/2024-06-03/.html
+
 **The Rise of Bookstores With a Social Mission**\
 `The pandemic fueled a boom in social justice movements and indie bookstores. The two come together in these worker-owned shops.`\
 https://nytimes.com/2024/06/10/books/counterculture-bookstores-social-movements.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/10/science/elephants-names-rumbles.html
 **How to Bake Wild Salmon**\
 `Lean fillets of wild Alaskan Pacific salmon turn tender and rich with Ali Slagle’s ingenious recipe.`\
 https://nytimes.com/2024/06/10/dining/how-to-bake-wild-salmon.html
-
-**Taylor Swift Bests K-Pop Band to Stay No. 1 for Seventh Week**\
-`Swift’s ‘The Tortured Poets Department’ held off Ateez’s ‘Golden Hour: Part.1.’ The singer-songwriter Shaboozey opened at No. 5.`\
-https://nytimes.com/2024/06/10/arts/music/taylor-swift-tortured-poets-ateez-billboard.html
 
