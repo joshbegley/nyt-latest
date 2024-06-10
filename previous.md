@@ -1,3 +1,7 @@
+**Three Injured After Bull Jumps the Fence at an Oregon Rodeo**\
+`While the crowd sang “God Bless the U.S.A.,” the bull leaped across a barrier into the stands and raced through the grounds of the rodeo before being captured.`\
+https://nytimes.com/2024/06/10/us/bull-escapes-rodeo-oregon.html
+
 **Wordle Review No. 1,088, June 11, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/06/10/crosswords/wordle-review-1088.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/10/briefing/internet-supreme-court-first-amendment.h
 **As His Political Alliance Breaks Up, Netanyahu Faces a Battle at Home**\
 `The Israeli prime minister is likely to become more dependent on the right-wing partners in his coalition government after the centrist Benny Gantz and his party pulled out of it.`\
 https://nytimes.com/2024/06/10/world/middleeast/netanyahu-gantz-resigns-israel.html
-
-**The Rise and Fall of Congestion Pricing in New York**\
-`The decision to shelve a long-awaited tolling plan was attributed to concerns about the city’s coronavirus pandemic recovery.`\
-https://nytimes.com/2024/06/10/podcasts/the-daily/congestion-pricing-new-york.html
 

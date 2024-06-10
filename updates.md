@@ -1,3 +1,7 @@
+**Three Injured After Bull Jumps the Fence at an Oregon Rodeo**\
+`While the crowd sang “God Bless the U.S.A.,” the bull leaped across a barrier into the stands and raced through the grounds of the rodeo before being captured.`\
+https://nytimes.com/2024/06/10/us/bull-escapes-rodeo-oregon.html
+
 **Wordle Review No. 1,088, June 11, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/06/10/crosswords/wordle-review-1088.html
