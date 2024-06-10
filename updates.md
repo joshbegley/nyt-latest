@@ -1,3 +1,11 @@
+**Baltimore City Council to Hold Hearings on Drug Overdoses**\
+`The city’s overdose epidemic has killed nearly 6,000 people since 2018, a death rate never before seen in a major U.S. city.`\
+https://nytimes.com/2024/06/10/us/baltimore-drug-overdoses-city-council-hearings.html
+
+**Israel’s Parliament Revives Bill on Drafting Ultra-Orthodox Men Into Military**\
+`The vote was aimed at keeping the divisive issue in the hands of legislators instead of judges, who have repeatedly determined that an exemption should not stand.`\
+https://nytimes.com/2024/06/10/world/middleeast/israel-haredi-orthodox-draft-bill.html
+
 **Colorado’s Trumpified G.O.P. Says to Burn Pride Flags**\
 `The MAGA movement tears another state Republican Party apart.`\
 https://nytimes.com/2024/06/10/opinion/colorado-gop-pride.html
