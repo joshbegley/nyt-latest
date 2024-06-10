@@ -1,3 +1,7 @@
+**Trump Endorses Sam Brown in Nevada’s Key Senate Race**\
+`Mr. Brown, a former Army captain, is the leading candidate in a crowded field of Republicans vying take on Senator Jacky Rosen, a vulnerable Democratic incumbent in a presidential battleground.`\
+https://nytimes.com/2024/06/09/us/politics/trump-endorsement-sam-brown.html
+
 **Debby Lee Cohen, Who Helped Prune Plastic From Schools, Dies at 64**\
 `Her successful campaign against foam lunch trays in New York City led to similar city and statewide bans — and taught a group of fifth graders how to take on City Hall.`\
 https://nytimes.com/2024/06/09/education/debby-lee-cohen-dead.html
