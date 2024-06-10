@@ -1,3 +1,7 @@
+**European Parliament Elections: Key Takeaways**\
+`The voting across 27 members of the European Union was a gauge of popular political sentiment at an unsettling moment on the continent. The right did well, but the center held.`\
+https://nytimes.com/2024/06/10/world/europe/european-parliament-elections-key-takeaways.html
+
 **Gantz Quits Israel Government in Dispute With Netanyahu Over Gaza**\
 `The resignation exposed the divisions at the top of the Israeli leadership over the future of the war and its aftermath.`\
 https://nytimes.com/2024/06/10/world/middleeast/gantz-quits-israel-netanyahu.html
