@@ -1,3 +1,19 @@
+**No One Told the Cows Not to Lick the Artwork**\
+`The Basel Social Club is a rebellious alternative to the more buttoned-up art fair that descends on the Swiss city of Basel each year.`\
+https://nytimes.com/2024/06/10/arts/design/basel-social-club.html
+
+**The Runners-Up of Our ‘Where We Are’ Photo Essay Contest**\
+`A glimpse into nine close-knit and compelling communities, as documented by teenagers.`\
+https://nytimes.com/2024/06/10/learning/the-runners-up-of-our-where-we-are-photo-essay-contest.html
+
+**Fourteen of the 15 members voted in favor, with Russia abstaining.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/06/10/world/israel-gaza-war-hamas/the-un-security-council-passes-a-us-backed-cease-fire-resolution
+
+**The L.A. Derby Dolls Take Up Space**\
+`Chloe Moon Flaherty, age 18, documents a community that “embraces the unconventional.”`\
+https://nytimes.com/2024/06/10/learning/the-la-derby-dolls-take-up-space.html
+
 **The Winners of Our Teen Photo Essay Contest Depict Community and Why It Matters**\
 `From 528 teen entries, we have chosen 10 extraordinary pieces. Take a look.`\
 https://nytimes.com/2024/06/10/learning/the-winners-of-our-teen-photo-essay-contest-depict-community-and-why-it-matters.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/06/10/opinion/israel-economy-gaza.html
 **Behind the Republican Effort to Win Over Black Men**\
 `The party is trying to make inroads with Black voters, a key demographic for Democrats, which could swing the 2024 election.`\
 https://nytimes.com/2024/06/10/us/politics/2024-election-gop-black-men-voters.html
-
-**Apple Jumps Into A.I. Fray With Apple Intelligence**\
-`While other big tech companies have aggressively tried to add artificial intelligence into products, the iPhone maker has taken a more cautious approach.`\
-https://nytimes.com/2024/06/10/technology/apple-intelligence-openai.html
-
-**Assessing Trump’s Denial That He’s Called Veterans ‘Losers’ and ‘Suckers’**\
-`A Biden campaign ad revived comments that Donald Trump reportedly made disparaging military members. The remarks are in dispute.`\
-https://nytimes.com/live/2024/06/10/us/biden-trump-election/assessing-trumps-denial-that-hes-called-veterans-losers-and-suckers
-
-**Aircraft Carrying Malawi’s Vice President Is Missing**\
-`A search is underway after the aircraft carrying Vice President Saulos Chilima and nine other people vanished.`\
-https://nytimes.com/2024/06/10/world/africa/malawi-saulos-chilima-plane.html
-
-**In Germany, Far-Right Party Rises to 2nd Place in E.U. Election**\
-`The AfD’s gains were a sharp rebuke to Chancellor Olaf Scholz’s governing coalition and a sign of the rightward political shift across the continent.`\
-https://nytimes.com/2024/06/10/world/europe/germany-afd-eu-election.html
 
