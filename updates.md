@@ -1,3 +1,11 @@
+**In Calling Elections in France, Macron Makes a Huge Gamble**\
+`The president has challenged voters to test the sincerity of their support for the far right. Are the French just letting off steam, or do they really mean it?`\
+https://nytimes.com/2024/06/10/world/europe/france-macron-elections-analysis.html
+
+**Unwinding Wordle: Accelerating Your Solve**\
+`Tips for the game derived from our solver data, plus more from the game’s editor and its devoted community of solvers.`\
+https://nytimes.com/2024/06/10/crosswords/unwinding-wordle-tips.html
+
 **Teamsters President Asks for Speaking Slot at Both Parties’ Conventions**\
 `Having Sean O’Brien at the Republican National Convention would be politically useful to former President Donald J. Trump, even absent an endorsement. The union has yet to back a candidate.`\
 https://nytimes.com/2024/06/10/us/politics/teamsters-president-conventions.html
