@@ -1,3 +1,7 @@
+**Monday Briefing**\
+`The French president calls for new elections.`\
+https://nytimes.com/2024/06/10/briefing/france-election-israel-resign.html
+
 **Landslide in Wyoming Causes Part of a Highway to Collapse**\
 `Aerial footage shows a section of the damaged road, which links Idaho with Jackson, Wyo.`\
 https://nytimes.com/video/us/100000009512805/wyoming-landslide-jackson-teton-pass.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/09/us/politics/biden-protection-undocumented-spouses
 **Major Muddle**\
 `You’ll have to use all of your senses to solve Kareem Ayas’s crossword.`\
 https://nytimes.com/2024/06/09/crosswords/daily-puzzle-2024-06-10.html
-
-**Tester and Sheehy attack — and agree — in first debate of Montana’s Senate race.**\
-`By Kellen Browning`\
-https://nytimes.com/live/2024/06/09/us/biden-trump-election-sunday-shows/montana-senate-debate-tester-sheehy
 

@@ -1,3 +1,7 @@
+**Monday Briefing**\
+`The French president calls for new elections.`\
+https://nytimes.com/2024/06/10/briefing/france-election-israel-resign.html
+
 **Landslide in Wyoming Causes Part of a Highway to Collapse**\
 `Aerial footage shows a section of the damaged road, which links Idaho with Jackson, Wyo.`\
 https://nytimes.com/video/us/100000009512805/wyoming-landslide-jackson-teton-pass.html
