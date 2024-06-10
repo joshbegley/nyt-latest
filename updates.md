@@ -1,3 +1,7 @@
+**Dog Runs 4 Miles to Get Help After Owner Crashes Truck in a Ravine**\
+`Brandon Garrett was stranded overnight in a ravine in Oregon after his truck crashed. One of the four dogs he was traveling with found help.`\
+https://nytimes.com/2024/06/10/us/oregon-dog-owner-rescue.html
+
 **Law Enforcement Unit Is Formed to Crack Down on Illegal E-Cigarettes**\
 `Agents from various federal agencies will focus on unauthorized candy-flavored and nicotine-laden vapes that have flooded the U.S. market from overseas.`\
 https://nytimes.com/2024/06/10/health/e-cigarettes-law-enforcement-import-ban.html
