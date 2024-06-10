@@ -1,3 +1,7 @@
+**In Germany, Far-Right Party Rises to 2nd Place in E.U. Election**\
+`The AfD’s gains were a sharp rebuke to Chancellor Olaf Scholz’s governing coalition and a sign of the rightward political shift across the continent.`\
+https://nytimes.com/2024/06/10/world/europe/germany-afd-eu-election.html
+
 **Behind the Republican Effort to Win Over Black Men**\
 `The party is trying to make inroads with Black voters, a key demographic for Democrats, which could swing the 2024 election.`\
 https://nytimes.com/2024/06/10/us/politics/2024-election-gop-black-men-voters.html

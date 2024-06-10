@@ -16,7 +16,7 @@ https://nytimes.com/2024/06/10/world/africa/aircraft-carrying-malawis-vice-presi
 
 **In Germany, Far-Right Party Rises to 2nd Place in E.U. Election**\
 `The AfD’s gains were a sharp rebuke to Chancellor Olaf Scholz’s governing coalition and a sign of the rightward political shift across the continent.`\
-https://nytimes.com/2024/06/10/world/europe/germany-adf-eu-election.html
+https://nytimes.com/2024/06/10/world/europe/germany-afd-eu-election.html
 
 **What Is the Best Way to Cut an Onion?**\
 `The cookbook author Kenji López-Alt dives deep into a question of his own, with computer models and all.`\
