@@ -1,3 +1,7 @@
+**Amid Outcry, Academy Museum to Revise Exhibit on Hollywood’s Jewish Roots**\
+`When the museum first opened, it was criticized for omitting Hollywood’s Jewish pioneers. Now it is under fire for what its new exhibit says about them.`\
+https://nytimes.com/2024/06/10/movies/academy-museum-jewish-exhibition.html
+
 **Advisory Panel of Experts Endorses F.D.A. Approval of New Alzheimer’s Drug**\
 `The modest benefits of the treatment, donanemab, made by Eli Lilly, outweigh the risks, the panel concluded unanimously.`\
 https://nytimes.com/2024/06/10/health/alzheimers-treatment-donanemab.html
