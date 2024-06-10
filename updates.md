@@ -1,3 +1,7 @@
+**Blinken begins a three-day Middle East trip in Egypt.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/06/10/world/israel-gaza-war-hamas/blinken-arrives-in-egypt-to-discuss-the-latest-cease-fire-proposal
+
 **Read a Judge’s Letter of Recommendation for Elias Irizarry**\
 `A letter of recommendation from Judge Tanya S. Chutkan to the Citadel for Elias Irizarry.`\
 https://nytimes.com/interactive/2024/06/10/us/chutkan-letter-re-irizarry.html
