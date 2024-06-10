@@ -1,3 +1,7 @@
+**Landslide in Wyoming Causes Part of a Highway to Collapse**\
+`Aerial footage shows a section of the damaged road, which links Idaho with Jackson, Wyo.`\
+https://nytimes.com/video/us/100000009512805/wyoming-landslide-jackson-teton-pass.html
+
 **Trump Endorses Sam Brown in Nevada’s Key Senate Race**\
 `Mr. Brown, a former Army captain, is the leading candidate in a crowded field of Republicans vying to take on Senator Jacky Rosen, a vulnerable Democratic incumbent in a presidential battleground.`\
 https://nytimes.com/2024/06/09/us/politics/trump-endorsement-sam-brown.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/09/crosswords/daily-puzzle-2024-06-10.html
 **Tester and Sheehy attack — and agree — in first debate of Montana’s Senate race.**\
 `By Kellen Browning`\
 https://nytimes.com/live/2024/06/09/us/biden-trump-election-sunday-shows/montana-senate-debate-tester-sheehy
-
-**The Surprising Power of Texting a Friend**\
-`Welcome to the 5-Day Friendship Challenge! Today is a light lift — just pick up your phone.`\
-https://nytimes.com/2024/06/09/well/live/texting-friends-benefits.html
 
