@@ -1,3 +1,7 @@
+**Key Question in Menendez Case: Did He Know About Alleged Mercedes Deal?**\
+`A businessman testified that he had bribed Senator Robert Menendez. The senator’s lawyers have attempted to shift blame for any wrongdoing to his wife.`\
+https://nytimes.com/2024/06/10/nyregion/robert-menendez-bribery-trial.html
+
 **California’s New State Park Opens This Week**\
 `Dos Rios, near Modesto in the Central Valley, offers new green space in a part of the state that has little of it.`\
 https://nytimes.com/2024/06/10/us/californias-new-state-park-dos-rios.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/10/podcasts/the-daily/congestion-pricing-new-york.ht
 **Israeli Hostage Rescue Fallout, and Far Right Wreaks Havoc in Europe**\
 `Plus, Apple’s Siri gets an A.I. makeover.`\
 https://nytimes.com/2024/06/10/podcasts/israel-hostages-apple.html
-
-**The Connections Companion No. 366, June 11, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/06/10/crosswords/connections-companion-366.html
 
