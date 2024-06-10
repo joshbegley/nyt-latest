@@ -10,7 +10,7 @@ https://nytimes.com/2024/06/10/world/europe/russia-women-inmates-ukraine.html
 `It has nothing to do with law or politics.`\
 https://nytimes.com/2024/06/10/opinion/the-one-thing-everyone-is-missing-about-hunter-bidens-case.html
 
-**Major Environmental Group to Study How to Artificially Cool the Earth**\
+**Environmental Group to Study Effects of Artificially Cooling Earth**\
 `The Environmental Defense Fund, entering controversial territory, will spend millions of dollars examining the impact of reflecting sunlight into space as global warming worsens.`\
 https://nytimes.com/2024/06/10/climate/edf-solar-geoengineering-research.html
 
