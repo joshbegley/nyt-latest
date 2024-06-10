@@ -1,3 +1,7 @@
+**Bannon and Others on the Right Celebrate European Parliament Elections**\
+`A far-right wave did not fully materialize in Europe, but influential figures on the right nevertheless sought to tie the results to U.S. politics.`\
+https://nytimes.com/2024/06/10/us/politics/steve-bannon-european-parliament-elections.html
+
 **U.N. Passes Gaza Cease-Fire Resolution as Blinken Presses Israel and Hamas**\
 `The Security Council endorsed a U.S.-backed plan, while Secretary of State Antony J. Blinken visited the Middle East to lobby for it, but Hamas and Israel were noncommittal.`\
 https://nytimes.com/2024/06/10/world/middleeast/security-council-gaza-ceasefire-blinken.html
