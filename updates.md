@@ -1,3 +1,11 @@
+**The Winners of Our Teen Photo Essay Contest Depict Community and Why It Matters**\
+`From 528 teen entries, we have chosen 10 extraordinary pieces. Take a look.`\
+https://nytimes.com/2024/06/10/learning/the-winners-of-our-teen-photo-essay-contest-depict-community-and-why-it-matters.html
+
+**Why the Head of One of New York’s Most Elite Schools Quit**\
+`The leader of Collegiate School in Manhattan stepped down after an internal report found “problems of religious and cultural bias.”`\
+https://nytimes.com/2024/06/10/nyregion/collegiate-school-head-israel-gaza.html
+
 **Bowman Makes Amends With Democratic Socialists After Rift Over Israel**\
 `Rep. Jamaal Bowman of New York told members of the socialist group that his views on Israel aligned with theirs, and insisted that he never quit the group, despite earlier claims.`\
 https://nytimes.com/2024/06/10/nyregion/jamaal-bowman-dsa-israel.html

@@ -1,3 +1,11 @@
+**The Winners of Our Teen Photo Essay Contest Depict Community and Why It Matters**\
+`From 528 teen entries, we have chosen 10 extraordinary pieces. Take a look.`\
+https://nytimes.com/2024/06/10/learning/the-winners-of-our-teen-photo-essay-contest-depict-community-and-why-it-matters.html
+
+**Why the Head of One of New York’s Most Elite Schools Quit**\
+`The leader of Collegiate School in Manhattan stepped down after an internal report found “problems of religious and cultural bias.”`\
+https://nytimes.com/2024/06/10/nyregion/collegiate-school-head-israel-gaza.html
+
 **Bowman Makes Amends With Democratic Socialists After Rift Over Israel**\
 `Rep. Jamaal Bowman of New York told members of the socialist group that his views on Israel aligned with theirs, and insisted that he never quit the group, despite earlier claims.`\
 https://nytimes.com/2024/06/10/nyregion/jamaal-bowman-dsa-israel.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/10/world/africa/malawi-saulos-chilima-plane.html
 **In Germany, Far-Right Party Rises to 2nd Place in E.U. Election**\
 `The AfD’s gains were a sharp rebuke to Chancellor Olaf Scholz’s governing coalition and a sign of the rightward political shift across the continent.`\
 https://nytimes.com/2024/06/10/world/europe/germany-afd-eu-election.html
-
-**What Is the Best Way to Cut an Onion?**\
-`The cookbook author Kenji López-Alt dives deep into a question of his own, with computer models and all.`\
-https://nytimes.com/article/how-to-cut-onion.html
-
-**Law Enforcement Unit Is Formed to Crack Down on Illegal E-Cigarettes**\
-`Agents from various federal agencies will focus on unauthorized candy-flavored and nicotine-laden vapes that have flooded the U.S. market from overseas.`\
-https://nytimes.com/2024/06/10/health/e-cigarettes-law-enforcement-import-ban.html
 
