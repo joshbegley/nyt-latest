@@ -1,3 +1,7 @@
+**Taylor Swift Bests K-Pop Band to Stay No. 1 for Seventh Week**\
+`Swift’s ‘The Tortured Poets Department’ held off Ateez’s ‘Golden Hour: Part.1.’ The singer-songwriter Shaboozey opened at No. 5.`\
+https://nytimes.com/2024/06/10/arts/music/taylor-swift-tortured-poets-ateez-billboard.html
+
 **The Big Ideas: What Do We Fear?**\
 `In this series, writers respond to a single question: What do we fear?`\
 https://nytimes.com/column/the-big-ideas-what-do-we-fear
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/10/theater/floyd-collins-broadway.html
 **How ‘The Outsiders’ Staged a Broadway Fight Club**\
 `To produce this Tony-nominated show’s climactic rumble, the creators, cast and crew gave it everything they've got. `\
 https://nytimes.com/card/2024/06/10/theater/outsiders-rumble
-
-**Biden goes abroad again, and Trump turns 78: the week ahead in politics.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/06/10/us/biden-trump-election/biden-trump-election
 
