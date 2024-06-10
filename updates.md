@@ -1,3 +1,7 @@
+**Could a software update play a critical role in decarbonizing the US power grid? An MIT research team says yes.**\
+`Modernizing the grid’s software will allow for more accurate supply and demand prediction and will better incorporate renewable energy sources `\
+https://nytimes.com/paidpost/2024-06-03/.html
+
 **The Rise of Bookstores With a Social Mission**\
 `The pandemic fueled a boom in social justice movements and indie bookstores. The two come together in these worker-owned shops.`\
 https://nytimes.com/2024/06/10/books/counterculture-bookstores-social-movements.html
