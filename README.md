@@ -1,3 +1,7 @@
+**Can Apple Think Different on A.I.?**\
+`Wall Street and Silicon Valley will be watching the company’s developers conference closely for signs of whether the iPhone maker can finally catch up on artificial intelligence.`\
+https://nytimes.com/2024/06/10/business/dealbook/apple-ai-siri.html
+
 **Read a Judge’s Letter of Recommendation for Elias Irizarry**\
 `A letter of recommendation from Judge Tanya S. Chutkan to the Citadel for Elias Irizarry.`\
 https://nytimes.com/interactive/2024/06/10/us/chutkan-letter-re-irizarry.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/10/opinion/border-hunter-joe-biden.html
 **This Year, It’s Democrats Who Are Waving the Flag of Freedom**\
 `A new Biden ad borrows an old Republican tone.`\
 https://nytimes.com/live/2024/06/04/opinion/thepoint/biden-trump-democrats-freedom
-
-**In Arizona, Life Sentences for Juveniles Test Supreme Court Precedents**\
-`The justices will soon decide whether to hear a case that could affect more than two dozen youths sentenced to die in prison.`\
-https://nytimes.com/2024/06/10/us/supreme-court-arizona-life-sentence-juveniles.html
 
