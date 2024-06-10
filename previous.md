@@ -1,3 +1,7 @@
+**Debby Lee Cohen, Who Helped Prune Plastic From Schools, Dies at 64**\
+`Her successful campaign against foam lunch trays in New York City led to similar city and statewide bans — and taught a group of fifth graders how to take on City Hall.`\
+https://nytimes.com/2024/06/09/education/debby-lee-cohen-dead.html
+
 **Jean-Philippe Allard, Jazz Producer and Musicians’ Advocate, Dies at 67**\
 `He called himself a “professional listener,” and he tended to develop lifelong relationships with the artists he worked with.`\
 https://nytimes.com/2024/06/09/arts/music/jean-philippe-allard-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/09/well/live/texting-friends-benefits.html
 **Benny Gantz Resigns From Israel’s War Cabinet**\
 `Benny Gantz, a centrist figure and a key member of Israel’s war cabinet, said his party was leaving the country’s emergency government over Prime Minister Benjamin Netanyahu’s handling of the war in Gaza.`\
 https://nytimes.com/video/world/middleeast/100000009512607/benny-gantz-israel-war-cabinet.html
-
-**Trump Will Have Virtual Interview With Probation Official on Monday**\
-`The former president, who was convicted of 34 felonies by a Manhattan jury, is required to have an interview as the city’s Probation Department prepares a pre-sentencing report.`\
-https://nytimes.com/2024/06/09/nyregion/trump-probation-officer-hush-money-verdict.html
 

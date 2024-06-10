@@ -1,3 +1,7 @@
+**Debby Lee Cohen, Who Helped Prune Plastic From Schools, Dies at 64**\
+`Her successful campaign against foam lunch trays in New York City led to similar city and statewide bans — and taught a group of fifth graders how to take on City Hall.`\
+https://nytimes.com/2024/06/09/education/debby-lee-cohen-dead.html
+
 **Jean-Philippe Allard, Jazz Producer and Musicians’ Advocate, Dies at 67**\
 `He called himself a “professional listener,” and he tended to develop lifelong relationships with the artists he worked with.`\
 https://nytimes.com/2024/06/09/arts/music/jean-philippe-allard-dead.html
