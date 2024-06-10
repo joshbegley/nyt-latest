@@ -1,3 +1,7 @@
+**Quotation of the Day: Border Area Seeking Help Is Skeptical of Biden Order**\
+`Quotation of the Day for Monday, June 10, 2024.`\
+https://nytimes.com/2024/06/10/pageoneplus/quotation-of-the-day-border-area-seeking-help-is-skeptical-of-biden-order.html
+
 **What’s on TV This Week: Celine Dion and the Stanley Cup Finals**\
 `The pop star does her first interview on NBC since her stiff person syndrome diagnosis. And the Oilers and the Panthers compete in the pro hockey championship.`\
 https://nytimes.com/2024/06/10/arts/television/whats-on-tv-this-week-celine-dion-and-the-stanley-cup-finals.html
