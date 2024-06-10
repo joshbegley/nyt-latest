@@ -1,3 +1,7 @@
+**Advisory Panel of Experts Endorses F.D.A. Approval of New Alzheimer’s Drug**\
+`The modest benefits of the treatment, donanemab, made by Eli Lilly, outweigh the risks, the panel concluded unanimously.`\
+https://nytimes.com/2024/06/10/health/alzheimers-treatment-donanemab.html
+
 **Tuesday Briefing: U.N. Adopts U.S.-Backed Cease-Fire Resolution**\
 `Also, the center held in Europe and Apple unveiled new A.I. features.`\
 https://nytimes.com/2024/06/10/world/asia/un-cease-fire-gaza-apple-asia.html

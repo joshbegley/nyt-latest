@@ -1,3 +1,7 @@
+**Advisory Panel of Experts Endorses F.D.A. Approval of New Alzheimer’s Drug**\
+`The modest benefits of the treatment, donanemab, made by Eli Lilly, outweigh the risks, the panel concluded unanimously.`\
+https://nytimes.com/2024/06/10/health/alzheimers-treatment-donanemab.html
+
 **Tuesday Briefing: U.N. Adopts U.S.-Backed Cease-Fire Resolution**\
 `Also, the center held in Europe and Apple unveiled new A.I. features.`\
 https://nytimes.com/2024/06/10/world/asia/un-cease-fire-gaza-apple-asia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/10/arts/design/basel-social-club.html
 **The Runners-Up of Our ‘Where We Are’ Photo Essay Contest**\
 `A glimpse into nine close-knit and compelling communities, as documented by teenagers.`\
 https://nytimes.com/2024/06/10/learning/the-runners-up-of-our-where-we-are-photo-essay-contest.html
-
-**Fourteen of the 15 members voted in favor, with Russia abstaining.**\
-`By Farnaz Fassihi`\
-https://nytimes.com/live/2024/06/10/world/israel-gaza-war-hamas/the-un-security-council-passes-a-us-backed-cease-fire-resolution
 
