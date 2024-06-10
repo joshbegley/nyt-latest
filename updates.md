@@ -1,3 +1,11 @@
+**Aircraft Carrying Malawi’s Vice President Is Missing**\
+`A search is underway after the aircraft carrying Vice President Saulos Chilima and nine other people vanished.`\
+https://nytimes.com/2024/06/10/world/africa/aircraft-carrying-malawis-vice-president-is-missing.html
+
+**In Germany, Far-Right Party Rises to 2nd Place in E.U. Election**\
+`The AfD’s gains were a sharp rebuke to Chancellor Olaf Scholz’s governing coalition and a sign of the rightward political shift across the continent.`\
+https://nytimes.com/2024/06/10/world/europe/germany-adf-eu-election.html
+
 **What Is the Best Way to Cut an Onion?**\
 `The cookbook author Kenji López-Alt dives deep into a question of his own, with computer models and all.`\
 https://nytimes.com/article/how-to-cut-onion.html
