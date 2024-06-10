@@ -1,4 +1,8 @@
 **Israel’s military says 3 recently rescued hostages were held in a home of a Hamas member.**\
+`The man’s death was confirmed by the Hamas-controlled Gaza media office, which identified him as an employee of the Hamas-affiliated news agency Palestine Now.`\
+https://nytimes.com/2024/06/10/world/middleeast/israel-hostages-hamas.html
+
+**Israel’s military says 3 recently rescued hostages were held in a home of a Hamas member.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/2024/06/10/world/middleeast/israel-hostages-hamas.html
 
