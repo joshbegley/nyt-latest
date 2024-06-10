@@ -1,3 +1,11 @@
+**The One Thing Everyone Is Missing About Hunter Biden’s Case**\
+`It has nothing to do with law or politics.`\
+https://nytimes.com/2024/06/10/opinion/the-one-thing-everyone-is-missing-about-hunter-bidens-case.html
+
+**Major Environmental Group to Study How to Artificially Cool the Earth**\
+`The Environmental Defense Fund, entering controversial territory, will spend millions of dollars examining the impact of reflecting sunlight into space as global warming worsens.`\
+https://nytimes.com/2024/06/10/climate/edf-solar-geoengineering-research.html
+
 **Gazans in the area where hostages were rescued plead for an end to the war.**\
 `By Nader Ibrahim, Erika Solomon and Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/06/10/world/israel-gaza-war-hamas/gazans-in-the-area-where-hostages-were-rescued-plead-for-an-end-to-the-war
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/10/books/counterculture-bookstores-social-movements.
 **The Constant Metamorphosis of Nona Hendryx**\
 `“Lady Marmalade,” her hit with Labelle, is turning 50. She’s nearing 80. But the singer, designer and technologist isn’t slowing down. She’s entering a new virtual world.`\
 https://nytimes.com/2024/06/10/arts/music/nona-hendryx.html
-
-**How the Federal Election Commission Went From Deadlock to Deregulation**\
-`Three Republicans and one Democrat have been voting together, loosening how money is raised and spent in politics at what one outside watchdog called “breathtaking” speed.`\
-https://nytimes.com/2024/06/10/us/politics/fec-deadlock-deregulation.html
-
-**High Interest Rates are Hitting Poorer Americans the Hardest**\
-`The Federal Reserve is holding interest rates at a more than two-decade high in an attempt to wrestle inflation lower. That policy has proved especially painful for poorer families.`\
-https://nytimes.com/video/us/100000009513524/high-interest-rates-are-hitting-poorer-americans-the-hardest.html
 

@@ -1,3 +1,11 @@
+**The One Thing Everyone Is Missing About Hunter Biden’s Case**\
+`It has nothing to do with law or politics.`\
+https://nytimes.com/2024/06/10/opinion/the-one-thing-everyone-is-missing-about-hunter-bidens-case.html
+
+**Major Environmental Group to Study How to Artificially Cool the Earth**\
+`The Environmental Defense Fund, entering controversial territory, will spend millions of dollars examining the impact of reflecting sunlight into space as global warming worsens.`\
+https://nytimes.com/2024/06/10/climate/edf-solar-geoengineering-research.html
+
 **Gazans in the area where hostages were rescued plead for an end to the war.**\
 `By Nader Ibrahim, Erika Solomon and Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/06/10/world/israel-gaza-war-hamas/gazans-in-the-area-where-hostages-were-rescued-plead-for-an-end-to-the-war
