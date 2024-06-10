@@ -1,3 +1,7 @@
+**What Is the Best Way to Cut an Onion?**\
+`The cookbook author Kenji López-Alt dives deep into a question of his own, with computer models and all.`\
+https://nytimes.com/article/how-to-cut-onion.html
+
 **Law Enforcement Unit Is Formed to Crack Down on Illegal E-Cigarettes**\
 `Agents from various federal agencies will focus on unauthorized candy-flavored and nicotine-laden vapes that have flooded the U.S. market from overseas.`\
 https://nytimes.com/2024/06/10/health/e-cigarettes-law-enforcement-import-ban.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/10/us/miami-apartment-fire.html
 **Gazans Describe Deadly Israeli Raid in Nuseirat**\
 `Palestinians pleaded for an end to the war in Gaza after an Israeli raid to release hostages in the Nuseirat area in central Gaza left more than 200 people dead, according to Palestinian health officials.`\
 https://nytimes.com/video/world/middleeast/100000009513256/gaza-nuseirat-hostages-raid.html
-
-**Frightening Log From Titan Submersible’s Fatal Dive Declared a Fake**\
-`The federal team investigating the Titan disaster found that a detailed recounting of the craft’s descent was “made up.”`\
-https://nytimes.com/2024/06/10/science/titan-submersible-transcript-investigation.html
 

@@ -1,3 +1,7 @@
+**What Is the Best Way to Cut an Onion?**\
+`The cookbook author Kenji López-Alt dives deep into a question of his own, with computer models and all.`\
+https://nytimes.com/article/how-to-cut-onion.html
+
 **Fire Engulfs Miami Apartment Building**\
 `The authorities arrived to find a person who had been shot inside the building. Several residents were evacuated, some from their balconies, Miami’s mayor said.`\
 https://nytimes.com/2024/06/10/us/miami-apartment-fire.html
