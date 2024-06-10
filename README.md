@@ -1,3 +1,11 @@
+**F.D.A. Warns Against ‘Microdosing’ Mushroom Chocolate Bars**\
+`At least eight people have fallen ill after eating Diamond Shruumz products, including several who had seizures or needed to be put on ventilators.`\
+https://nytimes.com/2024/06/10/well/live/fda-microdose-chocolate.html
+
+**Welcome to the Era of the A.I. Smartphone**\
+`Apple and Google are getting up close and personal with user data to craft memos, summarize documents and generate images.`\
+https://nytimes.com/2024/06/10/technology/personaltech/apple-google-ai.html
+
 **Judge Dismisses Case Against Couple Charged This Year in Boy’s 1989 Murder**\
 `A South Carolina judge cited the long delay in bringing criminal charges and ordered that the case against the boy’s father and stepmother be “forever ended.”`\
 https://nytimes.com/2024/06/10/us/justin-turner-parents-murder-charges-dropped.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/10/learning/the-la-derby-dolls-take-up-space.html
 **The Winners of Our Teen Photo Essay Contest Depict Community and Why It Matters**\
 `From 528 teen entries, we have chosen 10 extraordinary pieces. Take a look.`\
 https://nytimes.com/2024/06/10/learning/the-winners-of-our-teen-photo-essay-contest-depict-community-and-why-it-matters.html
-
-**Why the Head of One of New York’s Most Elite Schools Quit**\
-`The leader of Collegiate School in Manhattan stepped down after an internal report found “problems of religious and cultural bias.”`\
-https://nytimes.com/2024/06/10/nyregion/collegiate-school-head-israel-gaza.html
-
-**Bowman Makes Amends With Democratic Socialists After Rift Over Israel**\
-`Rep. Jamaal Bowman of New York told members of the socialist group that his views on Israel aligned with theirs, and insisted that he never quit the group, despite earlier claims.`\
-https://nytimes.com/2024/06/10/nyregion/jamaal-bowman-dsa-israel.html
 
