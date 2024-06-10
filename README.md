@@ -1,3 +1,7 @@
+**Law Enforcement Unit Is Formed to Crack Down on Illegal E-Cigarettes**\
+`Agents from various federal agencies will focus on unauthorized candy-flavored and nicotine-laden vapes that have flooded the U.S. market from overseas.`\
+https://nytimes.com/2024/06/10/health/e-cigarettes-law-enforcement-import-ban.html
+
 **Man Rescued After His Dog Blue Runs Nearly 4 Miles to Get Help**\
 `Brandon Garrett was stranded overnight in a ravine in Oregon after his truck crashed. One of the four dogs he was traveling with found help.`\
 https://nytimes.com/2024/06/10/us/oregon-dog-owner-rescue.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009513256/gaza-nuseirat-hostage
 **Frightening Log From Titan Submersible’s Fatal Dive Declared a Fake**\
 `The federal team investigating the Titan disaster found that a detailed recounting of the craft’s descent was “made up.”`\
 https://nytimes.com/2024/06/10/science/titan-submersible-transcript-investigation.html
-
-**Could a software update play a critical role in decarbonizing the US power grid? An MIT research team says yes.**\
-`Modernizing the grid’s software will allow for more accurate supply and demand prediction and will better incorporate renewable energy sources `\
-https://nytimes.com/paidpost/2024-06-03/mit/decarbonizing-the-us-power-grid.html
 
