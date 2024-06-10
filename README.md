@@ -1,3 +1,7 @@
+**High Interest Rates are Hitting Poorer Americans the Hardest**\
+`The Federal Reserve is holding interest rates at a more than two-decade high in an attempt to wrestle inflation lower. That policy has proved especially painful for poorer families.`\
+https://nytimes.com/video/us/100000009513524/high-interest-rates-are-hitting-poorer-americans-the-hardest.html
+
 **For an Older Homeless Population, a New Type of Care**\
 `Programs are sprouting across the country to provide nursing home and rehabilitation services to homeless people who would otherwise shuttle between hospitals and the street.`\
 https://nytimes.com/2024/06/10/us/medical-respite-care-homeless.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/06/10/books/review/dystopian-thrillers-puzz
 **In Calling Elections in France, Macron Makes a Huge Gamble**\
 `The president has challenged voters to test the sincerity of their support for the far right in European elections. Were the French letting off steam, or did they really mean it?`\
 https://nytimes.com/2024/06/10/world/europe/france-macron-elections-analysis.html
-
-**Unwinding Wordle: Accelerating Your Solve**\
-`Tips for the game derived from our solver data, plus more from the game’s editor and its devoted community of solvers.`\
-https://nytimes.com/2024/06/10/crosswords/unwinding-wordle-tips.html
 
