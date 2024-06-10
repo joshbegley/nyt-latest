@@ -1,3 +1,11 @@
+**Landslide in Wyoming Causes Part of a Highway to Collapse**\
+`Aerial footage shows a section of the damaged road, which links Idaho with Jackson, Wyo.`\
+https://nytimes.com/video/us/100000009512805/wyoming-landslide-jackson-teton-pass.html
+
+**Trump Endorses Sam Brown in Nevada’s Key Senate Race**\
+`Mr. Brown, a former Army captain, is the leading candidate in a crowded field of Republicans vying to take on Senator Jacky Rosen, a vulnerable Democratic incumbent in a presidential battleground.`\
+https://nytimes.com/2024/06/09/us/politics/trump-endorsement-sam-brown.html
+
 **Trump Endorses Sam Brown in Nevada’s Key Senate Race**\
 `Mr. Brown, a former Army captain, is the leading candidate in a crowded field of Republicans vying take on Senator Jacky Rosen, a vulnerable Democratic incumbent in a presidential battleground.`\
 https://nytimes.com/2024/06/09/us/politics/trump-endorsement-sam-brown.html
