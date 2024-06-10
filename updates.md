@@ -1,3 +1,11 @@
+**Man Rescued After His Dog Blue Runs Nearly 4 Miles to Get Help**\
+`Brandon Garrett was stranded overnight in a ravine in Oregon after his truck crashed. One of the four dogs he was traveling with found help.`\
+https://nytimes.com/2024/06/10/us/oregon-dog-owner-rescue.html
+
+**Russia Releases Female Prison Inmates to Join Ukraine War**\
+`Tens of thousands of male convicts have been freed to fight in Ukraine. It is not clear if a small contingent of female volunteers released from a prison portends wider use of female soldiers.`\
+https://nytimes.com/2024/06/10/world/europe/russia-women-inmates-ukraine.html
+
 **The One Thing Everyone Is Missing About Hunter Biden’s Case**\
 `It has nothing to do with law or politics.`\
 https://nytimes.com/2024/06/10/opinion/the-one-thing-everyone-is-missing-about-hunter-bidens-case.html
