@@ -1,3 +1,11 @@
+**‘Wedding Day at the Cro-Magnons’’ Review: A Bittersweet Premiere**\
+`An Arabic production of Wajdi Mouawad’s 1991 work, planned to open in Lebanon, was canceled because of his perceived ties to Israel. It found a home in France.`\
+https://nytimes.com/2024/06/10/theater/wajdi-mouawad-wedding-day-at-the-cro-magnons.html
+
+**Three-Alarm Fire Engulfs Miami Apartment Building**\
+`The authorities arrived to find a person who had been shot inside the building. Several residents were evacuated, some from their balconies, Miami’s mayor said.`\
+https://nytimes.com/2024/06/10/us/miami-apartment-fire.html
+
 **Gazans Describe Deadly Israeli Raid in Nuseirat**\
 `Palestinians pleaded for an end to the war in Gaza after an Israeli raid to release hostages in the Nuseirat area in central Gaza left more than 200 people dead, according to Palestinian health officials.`\
 https://nytimes.com/video/world/middleeast/100000009513256/gaza-nuseirat-hostages-raid.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000009513524/high-interest-rates-are-hitting-poo
 **For an Older Homeless Population, a New Type of Care**\
 `Programs are sprouting across the country to provide nursing home and rehabilitation services to homeless people who would otherwise shuttle between hospitals and the street.`\
 https://nytimes.com/2024/06/10/us/medical-respite-care-homeless.html
-
-**States Take Up A.I. Regulation Amid Federal Standstill**\
-`California legislators have made the biggest push to pass new laws to rein in the technology. Colorado passed one protecting consumers.`\
-https://nytimes.com/2024/06/10/technology/california-ai-regulation.html
-
-**The Israeli Hostage Rescue, and the Cost**\
-`Responses to the military raid and the carnage in Gaza. Also: A Trump assessment; John Roberts’s legacy; abandoned oil wells; a grief memorial.`\
-https://nytimes.com/2024/06/10/opinion/israel-gaza-hostages-rescue.html
 
