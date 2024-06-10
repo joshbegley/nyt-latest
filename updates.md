@@ -1,3 +1,7 @@
+**Read a Judge’s Letter of Recommendation for Elias Irizarry**\
+`A letter of recommendation from Judge Tanya S. Chutkan to the Citadel for Elias Irizarry.`\
+https://nytimes.com/interactive/2024/06/10/us/chutkan-letter-re-irizarry.html
+
 **How ‘The Outsiders’ Staged a Broadway Fight Club**\
 `To produce this Tony-nominated show’s climactic rumble, the creators, cast and crew gave it everything they've got. `\
 https://nytimes.com/card/2024/06/10/theater/outsiders-rumble
