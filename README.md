@@ -1,3 +1,7 @@
+**James M. Lawson Jr., a Top Strategist for Dr. King, Is Dead at 95**\
+`After studying Gandhi’s principles of civil disobedience in India, he joined the 1960s civil rights movement and became an architect of it as a nonviolent struggle.`\
+https://nytimes.com/2024/06/10/us/james-m-lawson-jr-dr-dead.html
+
 **Advisory Panel of Experts Endorses F.D.A. Approval of New Alzheimer’s Drug**\
 `The modest benefits of the treatment, donanemab, made by Eli Lilly, outweigh the risks, the panel concluded unanimously.`\
 https://nytimes.com/2024/06/10/health/alzheimers-treatment-donanemab.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/10/world/europe/ukraine-reconstruction-resignation.h
 **No One Told the Cows Not to Lick the Artwork**\
 `The Basel Social Club is a rebellious alternative to the more buttoned-up art fair that descends on the Swiss city of Basel each year.`\
 https://nytimes.com/2024/06/10/arts/design/basel-social-club.html
-
-**The Runners-Up of Our ‘Where We Are’ Photo Essay Contest**\
-`A glimpse into nine close-knit and compelling communities, as documented by teenagers.`\
-https://nytimes.com/2024/06/10/learning/the-runners-up-of-our-where-we-are-photo-essay-contest.html
 
