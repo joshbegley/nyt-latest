@@ -1,3 +1,7 @@
+**Apple Entered the A.I. Fray**\
+`Also, the F.D.A.’s advisers endorsed a new Alzheimer’s drug. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/06/10/briefing/apple-ai-blinken-middle-east-tour-elephants.html
+
 **James M. Lawson Jr., a Top Strategist for Dr. King, Is Dead at 95**\
 `After studying Gandhi’s principles of civil disobedience in India, he joined the 1960s civil rights movement and became an architect of it as a nonviolent struggle.`\
 https://nytimes.com/2024/06/10/us/james-m-lawson-jr-dr-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/10/business/uaw-ultium-gm-battery-contract.html
 **Reconstruction Official Resigns, Highlighting Tensions in Ukraine**\
 `The departure of the official, who had pointed up mismanagement of funds, was a blow to government efforts to assuage allies’ concerns about how aid is spent.`\
 https://nytimes.com/2024/06/10/world/europe/ukraine-reconstruction-resignation.html
-
-**No One Told the Cows Not to Lick the Artwork**\
-`The Basel Social Club is a rebellious alternative to the more buttoned-up art fair that descends on the Swiss city of Basel each year.`\
-https://nytimes.com/2024/06/10/arts/design/basel-social-club.html
 
