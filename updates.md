@@ -1,3 +1,15 @@
+**The Rise and Fall of Congestion Pricing in New York**\
+`The decision to shelve a long-awaited tolling plan was attributed to concerns about the city’s coronavirus pandemic recovery.`\
+https://nytimes.com/2024/06/10/podcasts/the-daily/congestion-pricing-new-york.html
+
+**Israeli Hostage Rescue Fallout, and Far Right Wreaks Havoc in Europe**\
+`Plus, Apple’s Siri gets an A.I. makeover.`\
+https://nytimes.com/2024/06/10/podcasts/israel-hostages-apple.html
+
+**The Connections Companion No. 366, June 11, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/10/crosswords/connections-companion-366.html
+
 **Blinken arrives in Egypt to discuss the latest cease-fire proposal.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/06/09/world/israel-gaza-war-hamas/blinken-arrives-in-egypt-to-discuss-the-latest-cease-fire-proposal
