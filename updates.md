@@ -1,3 +1,7 @@
+**The Next Republican Target Is Birth Control**\
+`Despite what some lawmakers say, contraceptives do not cause abortions.`\
+https://nytimes.com/live/2024/06/04/opinion/thepoint/birth-control-senate
+
 **Israel’s Economy Is Not Invincible**\
 `The country’s leaders insist on its strength, but economists are warning of serious vulnerabilities.`\
 https://nytimes.com/2024/06/10/opinion/israel-economy-gaza.html

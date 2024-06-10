@@ -1,3 +1,7 @@
+**The Next Republican Target Is Birth Control**\
+`Despite what some lawmakers say, contraceptives do not cause abortions.`\
+https://nytimes.com/live/2024/06/04/opinion/thepoint/birth-control-senate
+
 **Israel’s Economy Is Not Invincible**\
 `The country’s leaders insist on its strength, but economists are warning of serious vulnerabilities.`\
 https://nytimes.com/2024/06/10/opinion/israel-economy-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/10/health/e-cigarettes-law-enforcement-import-ban.ht
 **Dog Runs 4 Miles to Get Help After Owner Crashes Truck in a Ravine**\
 `Brandon Garrett was stranded overnight in a ravine in Oregon after his truck crashed. One of the four dogs he was traveling with found help.`\
 https://nytimes.com/2024/06/10/us/oregon-dog-owner-rescue.html
-
-**Russia Releases Female Prison Inmates to Join Ukraine War**\
-`Tens of thousands of male convicts have been freed to fight in Ukraine. It is not clear if a small contingent of female volunteers released from a prison portends wider use of female soldiers.`\
-https://nytimes.com/2024/06/10/world/europe/russia-women-inmates-ukraine.html
 
