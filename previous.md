@@ -1,3 +1,11 @@
+**States Take Up A.I. Regulation Amid Federal Standstill**\
+`California legislators have made the biggest push to pass new laws to rein in the technology. Colorado passed one protecting consumers.`\
+https://nytimes.com/2024/06/10/technology/california-ai-regulation.html
+
+**The Israeli Hostage Rescue, and the Cost**\
+`Responses to the military raid and the carnage in Gaza. Also: A Trump assessment; John Roberts’s legacy; abandoned oil wells; a grief memorial.`\
+https://nytimes.com/2024/06/10/opinion/israel-gaza-hostages-rescue.html
+
 **Every Elephant Has Its Own Name, Study Suggests**\
 `An analysis of elephant calls using an artificial intelligence tool suggests that the animals may use and respond to individualized rumbles.`\
 https://nytimes.com/2024/06/10/science/elephants-names-rumbles.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/10/crosswords/unwinding-wordle-tips.html
 **Teamsters President Asks for Speaking Slot at Both Parties’ Conventions**\
 `Having Sean O’Brien at the Republican National Convention would be politically useful to former President Donald J. Trump, even absent an endorsement. The union has yet to back a candidate.`\
 https://nytimes.com/2024/06/10/us/politics/teamsters-president-conventions.html
-
-**Parts of Florida May See Up to a Foot of Rain This Week**\
-`Forecasters warned of flooding that could be severe by Friday.`\
-https://nytimes.com/2024/06/10/weather/miami-florida-rain.html
-
-**Fear for the Other**\
-`Small but mighty acts of empathy can help us assuage the feelings of isolation and divisiveness that followed the Covid pandemic.`\
-https://nytimes.com/2024/06/10/special-series/fear-covid-politics-other.html
 

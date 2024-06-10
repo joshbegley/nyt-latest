@@ -1,3 +1,11 @@
+**States Take Up A.I. Regulation Amid Federal Standstill**\
+`California legislators have made the biggest push to pass new laws to rein in the technology. Colorado passed one protecting consumers.`\
+https://nytimes.com/2024/06/10/technology/california-ai-regulation.html
+
+**The Israeli Hostage Rescue, and the Cost**\
+`Responses to the military raid and the carnage in Gaza. Also: A Trump assessment; John Roberts’s legacy; abandoned oil wells; a grief memorial.`\
+https://nytimes.com/2024/06/10/opinion/israel-gaza-hostages-rescue.html
+
 **Every Elephant Has Its Own Name, Study Suggests**\
 `An analysis of elephant calls using an artificial intelligence tool suggests that the animals may use and respond to individualized rumbles.`\
 https://nytimes.com/2024/06/10/science/elephants-names-rumbles.html
