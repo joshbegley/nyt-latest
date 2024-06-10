@@ -1,3 +1,11 @@
+**The Internet and the First Amendment**\
+`We explore the upcoming legal rulings that will shape online life.`\
+https://nytimes.com/2024/06/10/briefing/internet-supreme-court-first-amendment.html
+
+**As His Political Alliance Breaks Up, Netanyahu Faces a Battle at Home**\
+`The Israeli prime minister is likely to become more dependent on the right-wing partners in his coalition government after the centrist Benny Gantz and his party pulled out of it.`\
+https://nytimes.com/2024/06/10/world/middleeast/netanyahu-gantz-resigns-israel.html
+
 **Blinken begins a three-day Middle East trip in Egypt.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/06/09/world/israel-gaza-war-hamas/blinken-arrives-in-egypt-to-discuss-the-latest-cease-fire-proposal
