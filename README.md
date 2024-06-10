@@ -1,3 +1,15 @@
+**Israel’s military says 3 recently rescued hostages were held in a home of a Hamas member.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/2024/06/10/world/middleeast/israel-hostages-hamas.html
+
+**Chucky, Queer Icon?**\
+`A graphic on the Peacock home screen seemed to induct the killer doll into the gay pantheon. His creator, however, says Chucky’s queer credentials are well established.`\
+https://nytimes.com/2024/06/10/style/chucky-peacock-pride-month.html
+
+**The Secret to Refreshing a Friendship**\
+`Today’s challenge: ‘Repot’ a relationship and connect with an old friend in a new way.`\
+https://nytimes.com/2024/06/10/well/live/friendship-refresh.html
+
 **Trump pledged support to an organization that wants abortion ‘eradicated entirely.’**\
 `By Lisa Lerer`\
 https://nytimes.com/live/2024/06/10/us/biden-trump-election/trump-danbury-institute
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/10/movies/academy-museum-jewish-exhibition.html
 **F.D.A. Warns Against ‘Microdosing’ Mushroom Chocolate Bars**\
 `At least eight people have fallen ill after eating Diamond Shruumz products, including several who had seizures or needed to be put on ventilators.`\
 https://nytimes.com/2024/06/10/well/live/fda-microdose-chocolate.html
-
-**Welcome to the Era of the A.I. Smartphone**\
-`Apple and Google are getting up close and personal with user data to craft memos, summarize documents and generate images.`\
-https://nytimes.com/2024/06/10/technology/personaltech/apple-google-ai.html
-
-**Judge Dismisses Case Against Couple Charged This Year in Boy’s 1989 Murder**\
-`A South Carolina judge cited the long delay in bringing criminal charges and ordered that the case against the boy’s father and stepmother be “forever ended.”`\
-https://nytimes.com/2024/06/10/us/justin-turner-parents-murder-charges-dropped.html
-
-**U.A.W. Reaches Accord on Pay and Safety at E.V. Battery Plant**\
-`The agreement, if ratified, will cover 1,600 workers making batteries for General Motors in Ohio. The union said it would be a model for efforts elsewhere.`\
-https://nytimes.com/2024/06/10/business/uaw-ultium-gm-battery-contract.html
 
