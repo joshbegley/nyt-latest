@@ -1,3 +1,7 @@
+**Environmental Group to Study Effects of Artificially Cooling Earth**\
+`The Environmental Defense Fund, entering controversial territory, will spend millions of dollars examining the impact of reflecting sunlight into space as global warming worsens.`\
+https://nytimes.com/2024/06/10/climate/edf-solar-geoengineering-research.html
+
 **Man Rescued After His Dog Blue Runs Nearly 4 Miles to Get Help**\
 `Brandon Garrett was stranded overnight in a ravine in Oregon after his truck crashed. One of the four dogs he was traveling with found help.`\
 https://nytimes.com/2024/06/10/us/oregon-dog-owner-rescue.html
