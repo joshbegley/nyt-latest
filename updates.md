@@ -1,3 +1,7 @@
+**Judge Strikes One Element From Trump Indictment in Documents Case**\
+`Judge Aileen Cannon threw out one basis for the case against the former president, involving a highly sensitive military map he showed an aide after leaving office.`\
+https://nytimes.com/2024/06/10/us/politics/trump-documents-charges-cannon.html
+
 **Bannon and Others on the Right Celebrate European Parliament Elections**\
 `A far-right wave did not fully materialize in Europe, but influential figures on the right nevertheless sought to tie the results to U.S. politics.`\
 https://nytimes.com/2024/06/10/us/politics/steve-bannon-european-parliament-elections.html
