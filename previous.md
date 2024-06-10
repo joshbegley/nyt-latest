@@ -1,6 +1,6 @@
-**Gantz quits Israel’s government in dispute with Netanyahu over Gaza war.**\
-`By Adam Rasgon`\
-https://nytimes.com/2024/06/10/world/middleeast/gantz-quits-israels-government-in-dispute-with-netanyahu-over-gaza-war.html
+**Gantz Quits Israel Government in Dispute With Netanyahu Over Gaza**\
+`The resignation exposed the divisions at the top of the Israeli leadership over the future of the war and its aftermath.`\
+https://nytimes.com/2024/06/10/world/middleeast/gantz-quits-israel-netanyahu.html
 
 **The U.S. said its proposal includes the release of hostages.**\
 `By Mike Ives`\
