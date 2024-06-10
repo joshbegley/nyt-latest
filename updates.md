@@ -1,3 +1,7 @@
+**Obama Marks Milestone in Construction of Presidential Center**\
+`Nine years after selecting Chicago as the home for his presidential center, Barack Obama celebrated the structure reaching its full height.`\
+https://nytimes.com/2024/06/10/us/obama-center-chicago.html
+
 **M.T.A. Will Push to Run Subway Safely With Toll Plan Halted, Chief Says**\
 `Janno Lieber said the Metropolitan Transportation Authority was reining in its ambitions after Gov. Kathy Hochul moved to halt congestion pricing.`\
 https://nytimes.com/2024/06/10/nyregion/mta-janno-lieber-congestion-pricing.html

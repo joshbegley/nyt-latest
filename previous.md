@@ -1,3 +1,7 @@
+**Obama Marks Milestone in Construction of Presidential Center**\
+`Nine years after selecting Chicago as the home for his presidential center, Barack Obama celebrated the structure reaching its full height.`\
+https://nytimes.com/2024/06/10/us/obama-center-chicago.html
+
 **M.T.A. Will Push to Run Subway Safely With Toll Plan Halted, Chief Says**\
 `Janno Lieber said the Metropolitan Transportation Authority was reining in its ambitions after Gov. Kathy Hochul moved to halt congestion pricing.`\
 https://nytimes.com/2024/06/10/nyregion/mta-janno-lieber-congestion-pricing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/10/us/james-m-lawson-jr-dr-dead.html
 **Advisory Panel of Experts Endorses F.D.A. Approval of New Alzheimer’s Drug**\
 `The modest benefits of the treatment, donanemab, made by Eli Lilly, outweigh the risks, the panel concluded unanimously.`\
 https://nytimes.com/2024/06/10/health/alzheimers-treatment-donanemab.html
-
-**Tuesday Briefing: U.N. Adopts U.S.-Backed Cease-Fire Resolution**\
-`Also, the center held in Europe and Apple unveiled new A.I. features.`\
-https://nytimes.com/2024/06/10/world/asia/un-cease-fire-gaza-apple-asia.html
 
