@@ -1,3 +1,11 @@
+**The Internet and the First Amendment**\
+`We explore the upcoming legal rulings that will shape online life.`\
+https://nytimes.com/2024/06/10/briefing/internet-supreme-court-first-amendment.html
+
+**As His Political Alliance Breaks Up, Netanyahu Faces a Battle at Home**\
+`The Israeli prime minister is likely to become more dependent on the right-wing partners in his coalition government after the centrist Benny Gantz and his party pulled out of it.`\
+https://nytimes.com/2024/06/10/world/middleeast/netanyahu-gantz-resigns-israel.html
+
 **The Rise and Fall of Congestion Pricing in New York**\
 `The decision to shelve a long-awaited tolling plan was attributed to concerns about the city’s coronavirus pandemic recovery.`\
 https://nytimes.com/2024/06/10/podcasts/the-daily/congestion-pricing-new-york.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/10/us/supreme-court-arizona-life-sentence-juveniles.
 **Hunter Biden’s Lawyers Are Expected to Rest Their Case in Gun Trial**\
 `The defense team seems more likely to avoid taking the risky step of putting Mr. Biden on the stand, setting the stage for the jury to begin deliberations by day’s end.`\
 https://nytimes.com/2024/06/10/us/politics/hunter-biden-gun-trial-defense.html
-
-**I’m an Appellate Lawyer in Manhattan. If Trump Appeals His Conviction, He Faces Long Odds.**\
-`Only one approach is likely to hold out anything more than the slimmest of hopes for the former president.`\
-https://nytimes.com/2024/06/10/opinion/donald-trump-appeal-conviction.html
-
-**The Mystery of the Disappearing Breast Pocket**\
-`Our fashion critic looks at a little swatch of fabric’s journey from practical adaptation to political signifier.`\
-https://nytimes.com/2024/06/10/style/breast-pockets-shirts.html
 
