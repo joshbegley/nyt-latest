@@ -1,3 +1,7 @@
+**In Las Vegas, Trump Appeals to Local Workers and Avoids Talk of Conviction**\
+`At a rally on Sunday, former President Donald J. Trump promised to end taxes on tips for hospitality workers in a speech otherwise filled with familiar refrains.`\
+https://nytimes.com/2024/06/09/us/politics/trump-las-vegas-rally.html
+
 **The Other War: How Israel Scours Gaza for Clues About the Hostages**\
 `The rescue of four Israelis in Gaza in a ferocious assault over the weekend offered a glimpse into an ambitious intelligence operation aimed at bringing home those held by Hamas.`\
 https://nytimes.com/2024/06/09/world/middleeast/gaza-hostage-rescues-israel.html
