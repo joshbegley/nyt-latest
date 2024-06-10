@@ -1,3 +1,7 @@
+**Wordle Review No. 1,088, June 11, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/10/crosswords/wordle-review-1088.html
+
 **Key Question in Menendez Case: Did He Know About Alleged Mercedes Deal?**\
 `A businessman testified that he had bribed Senator Robert Menendez. The senator’s lawyers have attempted to shift blame for any wrongdoing to his wife.`\
 https://nytimes.com/2024/06/10/nyregion/robert-menendez-bribery-trial.html
@@ -7,7 +11,7 @@ https://nytimes.com/2024/06/10/nyregion/robert-menendez-bribery-trial.html
 https://nytimes.com/2024/06/10/us/californias-new-state-park-dos-rios.html
 
 **Bull Escapes Arena at Oregon Rodeo**\
-`The bull ran back to the livestock holding pens where it was secured by rodeo pickup men and placed into a pen, according to the Sisters Rodeo Association.`\
+`The bull ran back to the livestock holding pens where it was secured by rodeo workers and placed into a pen, according to the Sisters Rodeo Association.`\
 https://nytimes.com/video/us/100000009513063/bull-escape-rodeo-sisters-oregon.html
 
 **What to Know About France’s Snap Parliamentary Elections**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/10/world/middleeast/netanyahu-gantz-resigns-israel.h
 **The Rise and Fall of Congestion Pricing in New York**\
 `The decision to shelve a long-awaited tolling plan was attributed to concerns about the city’s coronavirus pandemic recovery.`\
 https://nytimes.com/2024/06/10/podcasts/the-daily/congestion-pricing-new-york.html
-
-**Israeli Hostage Rescue Fallout, and Far Right Wreaks Havoc in Europe**\
-`Plus, Apple’s Siri gets an A.I. makeover.`\
-https://nytimes.com/2024/06/10/podcasts/israel-hostages-apple.html
 

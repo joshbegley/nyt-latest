@@ -1,3 +1,11 @@
+**Wordle Review No. 1,088, June 11, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/10/crosswords/wordle-review-1088.html
+
+**Bull Escapes Arena at Oregon Rodeo**\
+`The bull ran back to the livestock holding pens where it was secured by rodeo workers and placed into a pen, according to the Sisters Rodeo Association.`\
+https://nytimes.com/video/us/100000009513063/bull-escape-rodeo-sisters-oregon.html
+
 **Key Question in Menendez Case: Did He Know About Alleged Mercedes Deal?**\
 `A businessman testified that he had bribed Senator Robert Menendez. The senator’s lawyers have attempted to shift blame for any wrongdoing to his wife.`\
 https://nytimes.com/2024/06/10/nyregion/robert-menendez-bribery-trial.html
