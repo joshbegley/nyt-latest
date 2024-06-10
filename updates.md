@@ -1,3 +1,11 @@
+**Colorado’s Trumpified G.O.P. Says to Burn Pride Flags**\
+`The MAGA movement tears another state Republican Party apart.`\
+https://nytimes.com/2024/06/10/opinion/colorado-gop-pride.html
+
+**Critical Baltimore Shipping Channel Reopens 11 Weeks After Bridge Collapse**\
+`The 700-foot-wide section of the Patapsco River where the Dali slammed into the Francis Scott Key Bridge is open for business.`\
+https://nytimes.com/2024/06/10/us/baltimore-bridge-shipping-channel.html
+
 **Judge Strikes One Element From Trump Indictment in Documents Case**\
 `Judge Aileen Cannon threw out one basis for the case against the former president, involving a highly sensitive military map he showed an aide after leaving office.`\
 https://nytimes.com/2024/06/10/us/politics/trump-documents-charges-cannon.html

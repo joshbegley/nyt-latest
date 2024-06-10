@@ -1,3 +1,11 @@
+**Colorado’s Trumpified G.O.P. Says to Burn Pride Flags**\
+`The MAGA movement tears another state Republican Party apart.`\
+https://nytimes.com/2024/06/10/opinion/colorado-gop-pride.html
+
+**Critical Baltimore Shipping Channel Reopens 11 Weeks After Bridge Collapse**\
+`The 700-foot-wide section of the Patapsco River where the Dali slammed into the Francis Scott Key Bridge is open for business.`\
+https://nytimes.com/2024/06/10/us/baltimore-bridge-shipping-channel.html
+
 **Judge Strikes One Element From Trump Indictment in Documents Case**\
 `Judge Aileen Cannon threw out one basis for the case against the former president, involving a highly sensitive military map he showed an aide after leaving office.`\
 https://nytimes.com/2024/06/10/us/politics/trump-documents-charges-cannon.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/10/nyregion/mta-janno-lieber-congestion-pricing.html
 **Trump’s Vegas Strategy: Run on Bad Luck**\
 `At his first rally since his conviction, Trump complained about the odds being stacked against him.`\
 https://nytimes.com/2024/06/10/us/politics/trump-vegas-strategy.html
-
-**Israel’s Military Says 3 Rescued Hostages Were Held in Hamas Member’s Home**\
-`The man’s death was confirmed by the Hamas-controlled Gaza media office, which identified him as an employee of the Hamas-affiliated news agency Palestine Now.`\
-https://nytimes.com/2024/06/10/world/middleeast/israel-hostages-hamas.html
-
-**Chucky, Queer Icon?**\
-`A graphic on the Peacock home screen seemed to induct the killer doll into the gay pantheon. His creator, however, says Chucky’s queer credentials are well established.`\
-https://nytimes.com/2024/06/10/style/chucky-peacock-pride-month.html
 
