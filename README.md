@@ -1,3 +1,7 @@
+**What to Know About France’s Snap Parliamentary Elections**\
+`President Emmanuel Macron’s surprise call for new elections in France’s lower house of Parliament is seen as a gamble.`\
+https://nytimes.com/2024/06/10/world/europe/france-election-macron-explained.html
+
 **Can Apple Think Different on A.I.?**\
 `Wall Street and Silicon Valley will be watching the company’s developers conference closely for signs of whether the iPhone maker can finally catch up on artificial intelligence.`\
 https://nytimes.com/2024/06/10/business/dealbook/apple-ai-siri.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/10/world/israel-gaza-war-hamas/blinken-arrives-
 **It’s a Trial a Minute Around Here**\
 `Here’s looking at you, Hunter.`\
 https://nytimes.com/2024/06/10/opinion/border-hunter-joe-biden.html
-
-**This Year, It’s Democrats Who Are Waving the Flag of Freedom**\
-`A new Biden ad borrows an old Republican tone.`\
-https://nytimes.com/live/2024/06/04/opinion/thepoint/biden-trump-democrats-freedom
 
