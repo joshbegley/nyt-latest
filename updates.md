@@ -1,3 +1,7 @@
+**For an Older Homeless Population, a New Type of Care**\
+`Programs are sprouting across the country to provide nursing home and rehabilitation services to homeless people who would otherwise shuttle between hospitals and the street.`\
+https://nytimes.com/2024/06/10/us/medical-respite-care-homeless.html
+
 **States Take Up A.I. Regulation Amid Federal Standstill**\
 `California legislators have made the biggest push to pass new laws to rein in the technology. Colorado passed one protecting consumers.`\
 https://nytimes.com/2024/06/10/technology/california-ai-regulation.html

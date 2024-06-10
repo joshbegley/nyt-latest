@@ -1,3 +1,7 @@
+**For an Older Homeless Population, a New Type of Care**\
+`Programs are sprouting across the country to provide nursing home and rehabilitation services to homeless people who would otherwise shuttle between hospitals and the street.`\
+https://nytimes.com/2024/06/10/us/medical-respite-care-homeless.html
+
 **States Take Up A.I. Regulation Amid Federal Standstill**\
 `California legislators have made the biggest push to pass new laws to rein in the technology. Colorado passed one protecting consumers.`\
 https://nytimes.com/2024/06/10/technology/california-ai-regulation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/10/world/europe/france-macron-elections-analysis.htm
 **Unwinding Wordle: Accelerating Your Solve**\
 `Tips for the game derived from our solver data, plus more from the game’s editor and its devoted community of solvers.`\
 https://nytimes.com/2024/06/10/crosswords/unwinding-wordle-tips.html
-
-**Teamsters President Asks for Speaking Slot at Both Parties’ Conventions**\
-`Having Sean O’Brien at the Republican National Convention would be politically useful to former President Donald J. Trump, even absent an endorsement. The union has yet to back a candidate.`\
-https://nytimes.com/2024/06/10/us/politics/teamsters-president-conventions.html
 
