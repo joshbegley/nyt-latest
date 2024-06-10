@@ -1,3 +1,7 @@
+**What to Know About France’s Snap Parliamentary Elections**\
+`President Emmanuel Macron’s surprise call for new elections in France’s lower house of Parliament is seen as a gamble.`\
+https://nytimes.com/2024/06/10/world/europe/france-election-macron-explained.html
+
 **Blinken meets with Egypt’s president before traveling to Israel.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/06/10/world/israel-gaza-war-hamas/blinken-arrives-in-egypt-to-discuss-the-latest-cease-fire-proposal
