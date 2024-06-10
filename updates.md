@@ -1,3 +1,7 @@
+**Word of the Day: disparate**\
+`This word has appeared in 255 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/06/10/learning/word-of-the-day-disparate.html
+
 **Quotation of the Day: Border Area Seeking Help Is Skeptical of Biden Order**\
 `Quotation of the Day for Monday, June 10, 2024.`\
 https://nytimes.com/2024/06/10/pageoneplus/quotation-of-the-day-border-area-seeking-help-is-skeptical-of-biden-order.html

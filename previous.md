@@ -1,3 +1,7 @@
+**Word of the Day: disparate**\
+`This word has appeared in 255 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/06/10/learning/word-of-the-day-disparate.html
+
 **Quotation of the Day: Border Area Seeking Help Is Skeptical of Biden Order**\
 `Quotation of the Day for Monday, June 10, 2024.`\
 https://nytimes.com/2024/06/10/pageoneplus/quotation-of-the-day-border-area-seeking-help-is-skeptical-of-biden-order.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/09/nyregion/india-pakistan-cricket-world-cup.html
 **In Las Vegas, Trump Appeals to Local Workers and Avoids Talk of Conviction**\
 `At a rally on Sunday, former President Donald J. Trump promised to end taxes on tips for hospitality workers in a speech otherwise filled with familiar refrains.`\
 https://nytimes.com/2024/06/09/us/politics/trump-las-vegas-rally.html
-
-**The Other War: How Israel Scours Gaza for Clues About the Hostages**\
-`The rescue of four Israelis in Gaza in a ferocious assault over the weekend offered a glimpse into an ambitious intelligence operation aimed at bringing home those held by Hamas.`\
-https://nytimes.com/2024/06/09/world/middleeast/gaza-hostage-rescues-israel.html
 
