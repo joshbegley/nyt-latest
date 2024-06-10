@@ -1,3 +1,7 @@
+**Judge Strikes One Element From Trump Indictment in Documents Case**\
+`Judge Aileen Cannon threw out one basis for the case against the former president, involving a highly sensitive military map he showed an aide after leaving office.`\
+https://nytimes.com/2024/06/10/us/politics/trump-documents-charges-cannon.html
+
 **Bannon and Others on the Right Celebrate European Parliament Elections**\
 `A far-right wave did not fully materialize in Europe, but influential figures on the right nevertheless sought to tie the results to U.S. politics.`\
 https://nytimes.com/2024/06/10/us/politics/steve-bannon-european-parliament-elections.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/10/world/middleeast/israel-hostages-hamas.html
 **Chucky, Queer Icon?**\
 `A graphic on the Peacock home screen seemed to induct the killer doll into the gay pantheon. His creator, however, says Chucky’s queer credentials are well established.`\
 https://nytimes.com/2024/06/10/style/chucky-peacock-pride-month.html
-
-**The Secret to Refreshing a Friendship**\
-`Today’s challenge: ‘Repot’ a relationship and connect with an old friend in a new way.`\
-https://nytimes.com/2024/06/10/well/live/friendship-refresh.html
 
