@@ -1,3 +1,7 @@
+**Israel’s Economy Is Not Invincible**\
+`The country’s leaders insist on its strength, but economists are warning of serious vulnerabilities.`\
+https://nytimes.com/2024/06/10/opinion/israel-economy-gaza.html
+
 **In Germany, Far-Right Party Rises to 2nd Place in E.U. Election**\
 `The AfD’s gains were a sharp rebuke to Chancellor Olaf Scholz’s governing coalition and a sign of the rightward political shift across the continent.`\
 https://nytimes.com/2024/06/10/world/europe/germany-afd-eu-election.html
