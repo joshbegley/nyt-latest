@@ -1,3 +1,7 @@
+**Gazans in the area where hostages were rescued plead for an end to the war.**\
+`By Nader Ibrahim, Erika Solomon and Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/06/10/world/israel-gaza-war-hamas/gazans-in-the-area-where-hostages-were-rescued-plead-for-an-end-to-the-war
+
 **‘Wedding Day at the Cro-Magnons’’ Review: A Bittersweet Premiere**\
 `An Arabic production of Wajdi Mouawad’s 1991 work, planned to open in Lebanon, was canceled because of his perceived ties to Israel. It found a home in France.`\
 https://nytimes.com/2024/06/10/theater/wajdi-mouawad-wedding-day-at-the-cro-magnons.html
