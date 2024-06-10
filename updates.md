@@ -1,3 +1,7 @@
+**In Calling Elections in France, Macron Makes a Huge Gamble**\
+`The president has challenged voters to test the sincerity of their support for the far right in European elections. Were the French letting off steam, or did they really mean it?`\
+https://nytimes.com/2024/06/10/world/europe/france-macron-elections-analysis.html
+
 **Taylor Swift Bests K-Pop Band to Stay No. 1 for Seventh Week**\
 `Swift’s ‘The Tortured Poets Department’ held off Ateez’s ‘Golden Hour: Part.1.’ The singer-songwriter Shaboozey opened at No. 5.`\
 https://nytimes.com/2024/06/10/arts/music/taylor-swift-tortured-poets-ateez-billboard.html

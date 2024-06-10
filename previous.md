@@ -11,7 +11,7 @@ https://nytimes.com/column/the-big-ideas-what-do-we-fear
 https://nytimes.com/interactive/2024/06/10/books/review/dystopian-thrillers-puzzle.html
 
 **In Calling Elections in France, Macron Makes a Huge Gamble**\
-`The president has challenged voters to test the sincerity of their support for the far right. Are the French just letting off steam, or do they really mean it?`\
+`The president has challenged voters to test the sincerity of their support for the far right in European elections. Were the French letting off steam, or did they really mean it?`\
 https://nytimes.com/2024/06/10/world/europe/france-macron-elections-analysis.html
 
 **Unwinding Wordle: Accelerating Your Solve**\
