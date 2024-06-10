@@ -1,3 +1,11 @@
+**Aircraft Carrying Malawi’s Vice President Is Missing**\
+`A search is underway after the aircraft carrying Vice President Saulos Chilima and nine other people vanished.`\
+https://nytimes.com/2024/06/10/world/africa/aircraft-carrying-malawis-vice-president-is-missing.html
+
+**In Germany, Far-Right Party Rises to 2nd Place in E.U. Election**\
+`The AfD’s gains were a sharp rebuke to Chancellor Olaf Scholz’s governing coalition and a sign of the rightward political shift across the continent.`\
+https://nytimes.com/2024/06/10/world/europe/germany-adf-eu-election.html
+
 **What Is the Best Way to Cut an Onion?**\
 `The cookbook author Kenji López-Alt dives deep into a question of his own, with computer models and all.`\
 https://nytimes.com/article/how-to-cut-onion.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/06/10/world/israel-gaza-war-hamas/gazans-in-the-ar
 **‘Wedding Day at the Cro-Magnons’’ Review: A Bittersweet Premiere**\
 `An Arabic production of Wajdi Mouawad’s 1991 work, planned to open in Lebanon, was canceled because of his perceived ties to Israel. It found a home in France.`\
 https://nytimes.com/2024/06/10/theater/wajdi-mouawad-wedding-day-at-the-cro-magnons.html
-
-**Fire Engulfs Miami Apartment Building**\
-`The authorities arrived to find a person who had been shot inside the building. Several residents were evacuated, some from their balconies, Miami’s mayor said.`\
-https://nytimes.com/2024/06/10/us/miami-apartment-fire.html
-
-**Gazans Describe Deadly Israeli Raid in Nuseirat**\
-`Palestinians pleaded for an end to the war in Gaza after an Israeli raid to release hostages in the Nuseirat area in central Gaza left more than 200 people dead, according to Palestinian health officials.`\
-https://nytimes.com/video/world/middleeast/100000009513256/gaza-nuseirat-hostages-raid.html
 
