@@ -1,40 +1,40 @@
-**European Parliament Elections: Key Takeaways**\
-`The voting across 27 members of the European Union was a gauge of popular political sentiment at an unsettling moment on the continent. The right did well, but the center held.`\
-https://nytimes.com/2024/06/10/world/europe/european-parliament-elections-key-takeaways.html
+**A Reporter’s Work Helped Topple Presidents. Now He Is Being Investigated.**\
+`Press freedom groups say the investigation of Gustavo Gorriti, a noted Peruvian journalist, is politically motivated and part of a growing campaign against the news media.`\
+https://nytimes.com/2024/06/10/world/americas/peru-media-crackdown.html
 
-**Gantz Quits Israel Government in Dispute With Netanyahu Over Gaza**\
-`The resignation exposed the divisions at the top of the Israeli leadership over the future of the war and its aftermath.`\
-https://nytimes.com/2024/06/10/world/middleeast/gantz-quits-israel-netanyahu.html
+**$3.3 Million Homes in California**\
+`A hillside home in Tiburon, a ranch-style house in Calabasas and a midcentury retreat in Palm Springs.`\
+https://nytimes.com/2024/06/10/realestate/3-million-dollar-homes-california.html
 
-**The U.S. said its proposal includes the release of hostages.**\
-`By Mike Ives`\
-https://nytimes.com/live/2024/06/10/world/israel-gaza-war-hamas/the-us-said-its-proposal-includes-the-release-of-hostages
+**Don’t Say ‘Elite’: Corporate Firms’ New Pitch Is Meritocracy**\
+`McKinsey, Accenture and other big firms want to recruit with a wider net, focusing more on skills than on pedigree. It may be easier said than done.`\
+https://nytimes.com/2024/06/10/business/corporate-firms-meritocracy-elite.html
 
-**Does New York City Really Need These Giant 5G Towers?**\
-`A 32-foot “smartpole” is coming to a block near you.`\
-https://nytimes.com/2024/06/10/nyregion/street-wars-new-york-city-5g-towers.html
+**Where to Get the Most Bang for Your Buck**\
+`American travelers going abroad this summer will find their money buys more in some unexpected countries, including Japan and Australia.`\
+https://nytimes.com/2024/06/10/travel/strong-dollar-where-to-go.html
 
-**First Female Leader in Centuries Returns a Tribal Nation to Its Roots**\
-`Lisa Goree took the helm of the Shinnecock Nation in April, as the Long Island tribe navigates disputes over burial grounds and projects to build a casino and a gas station.`\
-https://nytimes.com/2024/06/10/nyregion/shinnecock-indian-nation-chief-lisa-goree.html
+**The Quiet Voice in R.F.K. Jr.’s Ear: A Former Aide to the Clintons**\
+`Jay Carson spent years as a Democratic insider. Disillusioned, he left politics for Hollywood and became friends with Robert F. Kennedy Jr. — whose campaign he is now helping to steer.`\
+https://nytimes.com/2024/06/10/us/politics/rfk-jay-carson-clinton-family.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/06/10/crosswords/spelling-bee-forum.html
+**Their Town Has a Plaque From Putin. They Want Zelensky to Tear It Down.**\
+`Some residents of Bari, Italy, hope Ukraine’s president will drop by while at a nearby summit to help rid them of a memento of links with Russia.`\
+https://nytimes.com/2024/06/10/world/europe/putin-plaque-saint-nicholas-bari-ukraine.html
 
-**Word of the Day: disparate**\
-`This word has appeared in 255 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/06/10/learning/word-of-the-day-disparate.html
+**A Big Decision for Boeing’s Next C.E.O.: Is It Time for a New Plane?**\
+`Some analysts say building a new plane soon would help the company regain ground it has lost to Airbus. But doing so would be difficult and expensive.`\
+https://nytimes.com/2024/06/10/business/boeing-737-max-new-plane.html
 
-**Quotation of the Day: Border Area Seeking Help Is Skeptical of Biden Order**\
-`Quotation of the Day for Monday, June 10, 2024.`\
-https://nytimes.com/2024/06/10/pageoneplus/quotation-of-the-day-border-area-seeking-help-is-skeptical-of-biden-order.html
+**I’m the Governor of Nevada. This Is Why Trump Is Doing So Well With Our Voters.**\
+`Nevadans’ unhappiness with the economy is driving Trump’s support in the state. `\
+https://nytimes.com/2024/06/10/opinion/trump-biden-nevada.html
 
-**What’s on TV This Week: Celine Dion and the Stanley Cup Finals**\
-`The pop star does her first interview on NBC since her stiff person syndrome diagnosis. And the Oilers and the Panthers compete in the pro hockey championship.`\
-https://nytimes.com/2024/06/10/arts/television/whats-on-tv-this-week-celine-dion-and-the-stanley-cup-finals.html
+**She’s Fighting to Save America’s ‘Last Best Place’ From Suicide**\
+`Montana’s suicide rate has been the highest in the U.S. for the past three years. Most of the deaths involved firearms. But suicide rarely registers in the national debate over guns.`\
+https://nytimes.com/2024/06/10/us/montana-suicide-guns.html
 
-**Monday Briefing**\
-`The French president calls for new elections.`\
-https://nytimes.com/2024/06/10/briefing/france-election-israel-resign.html
+**A Drug to Slow Alzheimer’s Is Finally Available. How Are Patients Faring?**\
+`As the F.D.A. considers a new Alzheimer’s medication, we asked experts how the rollout of a similar drug has gone.`\
+https://nytimes.com/2024/06/10/well/mind/alzheimers-treatment-leqembi.html
 
