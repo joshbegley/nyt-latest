@@ -1,3 +1,11 @@
+**Teamsters President Asks for Speaking Slot at Both Parties’ Conventions**\
+`Having Sean O’Brien at the Republican National Convention would be politically useful to former President Donald J. Trump, even absent an endorsement. The union has yet to back a candidate.`\
+https://nytimes.com/2024/06/10/us/politics/teamsters-president-conventions.html
+
+**Parts of Florida May See Up to a Foot of Rain This Week**\
+`Forecasters warned of flooding that could be severe by Friday.`\
+https://nytimes.com/2024/06/10/weather/miami-florida-rain.html
+
 **Fear for the Other**\
 `Small but mighty acts of empathy can help us assuage the feelings of isolation and divisiveness that followed the Covid pandemic.`\
 https://nytimes.com/2024/06/10/special-series/fear-covid-politics-other.html
