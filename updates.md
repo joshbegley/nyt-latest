@@ -1,3 +1,7 @@
+**Blinken begins a three-day Middle East trip in Egypt.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/06/09/world/israel-gaza-war-hamas/blinken-arrives-in-egypt-to-discuss-the-latest-cease-fire-proposal
+
 **The Rise and Fall of Congestion Pricing in New York**\
 `The decision to shelve a long-awaited tolling plan was attributed to concerns about the city’s coronavirus pandemic recovery.`\
 https://nytimes.com/2024/06/10/podcasts/the-daily/congestion-pricing-new-york.html
