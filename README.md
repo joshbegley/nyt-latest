@@ -1,3 +1,7 @@
+**India-Pakistan Cricket World Cup Match Brings 34,000 Fans to Long Island**\
+`Security was tight, but the mood was jubilant in the temporary stadium in Nassau County, where India won 119-113 in a highly anticipated showdown.`\
+https://nytimes.com/2024/06/09/nyregion/india-pakistan-cricket-world-cup.html
+
 **In Las Vegas, Trump Appeals to Local Workers and Avoids Talk of Conviction**\
 `At a rally on Sunday, former President Donald J. Trump promised to end taxes on tips for hospitality workers in a speech otherwise filled with familiar refrains.`\
 https://nytimes.com/2024/06/09/us/politics/trump-las-vegas-rally.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/09/nyregion/trump-probation-officer-hush-money-verdi
 **Monday Briefing: Macron Calls New French Legislative Elections**\
 `Also, Benny Gantz leaves Israel’s government.`\
 https://nytimes.com/2024/06/09/world/asia/macron-elections-eu-gantz-asia.html
-
-**Mexico’s Leftists Won Big. Investors Are Worried.**\
-`The peso had its worst week since the pandemic as markets reacted to fears that the government would pass constitutional changes seen as dismantling democratic checks and balances.`\
-https://nytimes.com/2024/06/09/world/americas/mexico-sheinbaum-amlo-peso.html
 
