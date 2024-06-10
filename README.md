@@ -1,3 +1,11 @@
+**Man Rescued After His Dog Blue Runs Nearly 4 Miles to Get Help**\
+`Brandon Garrett was stranded overnight in a ravine in Oregon after his truck crashed. One of the four dogs he was traveling with found help.`\
+https://nytimes.com/2024/06/10/us/oregon-dog-owner-rescue.html
+
+**Russia Releases Female Prison Inmates to Join Ukraine War**\
+`Tens of thousands of male convicts have been freed to fight in Ukraine. It is not clear if a small contingent of female volunteers released from a prison portends wider use of female soldiers.`\
+https://nytimes.com/2024/06/10/world/europe/russia-women-inmates-ukraine.html
+
 **The One Thing Everyone Is Missing About Hunter Biden’s Case**\
 `It has nothing to do with law or politics.`\
 https://nytimes.com/2024/06/10/opinion/the-one-thing-everyone-is-missing-about-hunter-bidens-case.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/10/science/titan-submersible-transcript-investigatio
 **Could a software update play a critical role in decarbonizing the US power grid? An MIT research team says yes.**\
 `Modernizing the grid’s software will allow for more accurate supply and demand prediction and will better incorporate renewable energy sources `\
 https://nytimes.com/paidpost/2024-06-03/mit/decarbonizing-the-us-power-grid.html
-
-**The Rise of Bookstores With a Social Mission**\
-`The pandemic fueled a boom in social justice movements and indie bookstores. The two come together in these worker-owned shops.`\
-https://nytimes.com/2024/06/10/books/counterculture-bookstores-social-movements.html
-
-**The Constant Metamorphosis of Nona Hendryx**\
-`“Lady Marmalade,” her hit with Labelle, is turning 50. She’s nearing 80. But the singer, designer and technologist isn’t slowing down. She’s entering a new virtual world.`\
-https://nytimes.com/2024/06/10/arts/music/nona-hendryx.html
 
