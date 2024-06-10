@@ -1,3 +1,7 @@
+**Fire Engulfs Miami Apartment Building**\
+`The authorities arrived to find a person who had been shot inside the building. Several residents were evacuated, some from their balconies, Miami’s mayor said.`\
+https://nytimes.com/2024/06/10/us/miami-apartment-fire.html
+
 **Dog Runs 4 Miles to Get Help After Owner Crashes Truck in a Ravine**\
 `Brandon Garrett was stranded overnight in a ravine in Oregon after his truck crashed. One of the four dogs he was traveling with found help.`\
 https://nytimes.com/2024/06/10/us/oregon-dog-owner-rescue.html

@@ -26,7 +26,7 @@ https://nytimes.com/live/2024/06/10/world/israel-gaza-war-hamas/gazans-in-the-ar
 `An Arabic production of Wajdi Mouawad’s 1991 work, planned to open in Lebanon, was canceled because of his perceived ties to Israel. It found a home in France.`\
 https://nytimes.com/2024/06/10/theater/wajdi-mouawad-wedding-day-at-the-cro-magnons.html
 
-**Three-Alarm Fire Engulfs Miami Apartment Building**\
+**Fire Engulfs Miami Apartment Building**\
 `The authorities arrived to find a person who had been shot inside the building. Several residents were evacuated, some from their balconies, Miami’s mayor said.`\
 https://nytimes.com/2024/06/10/us/miami-apartment-fire.html
 
