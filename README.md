@@ -1,3 +1,11 @@
+**Every Elephant Has Its Own Name, Study Suggests**\
+`An analysis of elephant calls using an artificial intelligence tool suggests that the animals may use and respond to individualized rumbles.`\
+https://nytimes.com/2024/06/10/science/elephants-names-rumbles.html
+
+**How to Bake Wild Salmon**\
+`Lean fillets of wild Alaskan Pacific salmon turn tender and rich with Ali Slagle’s ingenious recipe.`\
+https://nytimes.com/2024/06/10/dining/how-to-bake-wild-salmon.html
+
 **Taylor Swift Bests K-Pop Band to Stay No. 1 for Seventh Week**\
 `Swift’s ‘The Tortured Poets Department’ held off Ateez’s ‘Golden Hour: Part.1.’ The singer-songwriter Shaboozey opened at No. 5.`\
 https://nytimes.com/2024/06/10/arts/music/taylor-swift-tortured-poets-ateez-billboard.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/10/weather/miami-florida-rain.html
 **Fear for the Other**\
 `Small but mighty acts of empathy can help us assuage the feelings of isolation and divisiveness that followed the Covid pandemic.`\
 https://nytimes.com/2024/06/10/special-series/fear-covid-politics-other.html
-
-**A Cave Explorer Died 99 Years Ago. Now His Story Is Broadway Bound.**\
-`“Floyd Collins,” a musical about a trapped spelunker and the media circus surrounding his failed rescue, had a brief Off Broadway run in 1996.`\
-https://nytimes.com/2024/06/10/theater/floyd-collins-broadway.html
-
-**How ‘The Outsiders’ Staged a Broadway Fight Club**\
-`To produce this Tony-nominated show’s climactic rumble, the creators, cast and crew gave it everything they've got. `\
-https://nytimes.com/card/2024/06/10/theater/outsiders-rumble
 
