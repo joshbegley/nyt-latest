@@ -1,3 +1,7 @@
+**Law Enforcement Unit Is Formed to Crack Down on Illegal E-Cigarettes**\
+`Agents from various federal agencies will focus on unauthorized candy-flavored and nicotine-laden vapes that have flooded the U.S. market from overseas.`\
+https://nytimes.com/2024/06/10/health/e-cigarettes-law-enforcement-import-ban.html
+
 **Environmental Group to Study Effects of Artificially Cooling Earth**\
 `The Environmental Defense Fund, entering controversial territory, will spend millions of dollars examining the impact of reflecting sunlight into space as global warming worsens.`\
 https://nytimes.com/2024/06/10/climate/edf-solar-geoengineering-research.html
