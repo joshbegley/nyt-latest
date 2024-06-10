@@ -1,3 +1,11 @@
+**U.N. Passes Gaza Cease-Fire Resolution as Blinken Presses Israel and Hamas**\
+`The Security Council endorsed a U.S.-backed plan, while Secretary of State Antony J. Blinken visited the Middle East to lobby for it, but Hamas and Israel were noncommittal.`\
+https://nytimes.com/2024/06/10/world/middleeast/security-council-gaza-ceasefire-blinken.html
+
+**Freedom’s Just Another Word for Not Paying Taxes**\
+`Why America’s oligarchs are rallying around Trump.`\
+https://nytimes.com/2024/06/10/opinion/trump-biden-billionaires-taxes.html
+
 **United Nations Security Council Backs Gaza Cease-Fire Resolution**\
 `Fourteen of the 15 members on the U.N. Security Council, with Russia abstaining, voted in favor of adopting a proposal calling for a permanent cease-fire in Gaza. Neither Israel nor Hamas has formally embraced the plan.`\
 https://nytimes.com/video/world/middleeast/100000009514538/un-cease-fire-resolution.html
