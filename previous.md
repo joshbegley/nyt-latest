@@ -1,3 +1,7 @@
+**The Constant Metamorphosis of Nona Hendryx**\
+`“Lady Marmalade,” her hit with Labelle, is turning 50. She’s nearing 80. But the singer, designer and technologist isn’t slowing down. She’s entering a new virtual world.`\
+https://nytimes.com/2024/06/10/arts/music/nona-hendryx.html
+
 **How the Federal Election Commission Went From Deadlock to Deregulation**\
 `Three Republicans and one Democrat have been voting together, loosening how money is raised and spent in politics at what one outside watchdog called “breathtaking” speed.`\
 https://nytimes.com/2024/06/10/us/politics/fec-deadlock-deregulation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/10/arts/music/taylor-swift-tortured-poets-ateez-bill
 **The Big Ideas: What Do We Fear?**\
 `In this series, writers respond to a single question: What do we fear?`\
 https://nytimes.com/column/the-big-ideas-what-do-we-fear
-
-**Can You Find The 14 Book Titles Hidden in This Block of Text?**\
-`Try your hand at uncovering a reading list of thrillers in this Title Search puzzle.`\
-https://nytimes.com/interactive/2024/06/10/books/review/dystopian-thrillers-puzzle.html
 
