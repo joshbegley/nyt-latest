@@ -1,3 +1,7 @@
+**What’s on TV This Week: Celine Dion and the Stanley Cup Finals**\
+`The pop star does her first interview on NBC since her stiff person syndrome diagnosis. And the Oilers and the Panthers compete in the pro hockey championship.`\
+https://nytimes.com/2024/06/10/arts/television/whats-on-tv-this-week-celine-dion-and-the-stanley-cup-finals.html
+
 **Monday Briefing**\
 `The French president calls for new elections.`\
 https://nytimes.com/2024/06/10/briefing/france-election-israel-resign.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/09/world/middleeast/gaza-hostage-rescues-israel.html
 **Biden Administration Considers Protection for Undocumented Spouses of U.S. Citizens**\
 `The steps under consideration include protecting them from deportation and providing access to work permits, according to three officials with knowledge of the discussions.`\
 https://nytimes.com/2024/06/09/us/politics/biden-protection-undocumented-spouses.html
-
-**Major Muddle**\
-`You’ll have to use all of your senses to solve Kareem Ayas’s crossword.`\
-https://nytimes.com/2024/06/09/crosswords/daily-puzzle-2024-06-10.html
 
