@@ -26,7 +26,7 @@ https://nytimes.com/2024/06/10/podcasts/israel-hostages-apple.html
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/06/10/crosswords/connections-companion-366.html
 
-**Blinken arrives in Egypt to discuss the latest cease-fire proposal.**\
+**Blinken meets with Egypt’s president before traveling to Israel.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/06/10/world/israel-gaza-war-hamas/blinken-arrives-in-egypt-to-discuss-the-latest-cease-fire-proposal
 

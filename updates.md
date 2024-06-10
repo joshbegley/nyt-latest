@@ -1,3 +1,7 @@
+**Blinken meets with Egypt’s president before traveling to Israel.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/06/10/world/israel-gaza-war-hamas/blinken-arrives-in-egypt-to-discuss-the-latest-cease-fire-proposal
+
 **Can Apple Think Different on A.I.?**\
 `Wall Street and Silicon Valley will be watching the company’s developers conference closely for signs of whether the iPhone maker can finally catch up on artificial intelligence.`\
 https://nytimes.com/2024/06/10/business/dealbook/apple-ai-siri.html
