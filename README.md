@@ -1,3 +1,7 @@
+**California’s New State Park Opens This Week**\
+`Dos Rios, near Modesto in the Central Valley, offers new green space in a part of the state that has little of it.`\
+https://nytimes.com/2024/06/10/us/californias-new-state-park-dos-rios.html
+
 **Bull Escapes Arena at Oregon Rodeo**\
 `The bull ran back to the livestock holding pens where it was secured by rodeo pickup men and placed into a pen, according to the Sisters Rodeo Association.`\
 https://nytimes.com/video/us/100000009513063/bull-escape-rodeo-sisters-oregon.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/10/podcasts/israel-hostages-apple.html
 **The Connections Companion No. 366, June 11, 2024**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/06/10/crosswords/connections-companion-366.html
-
-**Blinken meets with Egypt’s president before traveling to Israel.**\
-`By Michael Crowley`\
-https://nytimes.com/live/2024/06/10/world/israel-gaza-war-hamas/blinken-arrives-in-egypt-to-discuss-the-latest-cease-fire-proposal
 
