@@ -1,3 +1,11 @@
+**Taylor Swift Bests K-Pop Band to Stay No. 1 for Seventh Week**\
+`Swift’s ‘The Tortured Poets Department’ held off Ateez’s ‘Golden Hour: Part.1.’ The singer-songwriter Shaboozey opened at No. 5.`\
+https://nytimes.com/2024/06/10/arts/music/taylor-swift-tortured-poets-ateez-billboard.html
+
+**The Big Ideas: What Do We Fear?**\
+`In this series, writers respond to a single question: What do we fear?`\
+https://nytimes.com/column/the-big-ideas-what-do-we-fear
+
 **Can You Find The 14 Book Titles Hidden in This Block of Text?**\
 `Try your hand at uncovering a reading list of thrillers in this Title Search puzzle.`\
 https://nytimes.com/interactive/2024/06/10/books/review/dystopian-thrillers-puzzle.html
