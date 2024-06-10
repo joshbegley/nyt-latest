@@ -1,3 +1,7 @@
+**M.T.A. Will Push to Run Subway Safely With Toll Plan Halted, Chief Says**\
+`Janno Lieber said the Metropolitan Transportation Authority was reining in its ambitions after Gov. Kathy Hochul moved to halt congestion pricing.`\
+https://nytimes.com/2024/06/10/nyregion/mta-janno-lieber-congestion-pricing.html
+
 **Trump’s Vegas Strategy: Run on Bad Luck**\
 `At his first rally since his conviction, Trump complained about the odds being stacked against him.`\
 https://nytimes.com/2024/06/10/us/politics/trump-vegas-strategy.html

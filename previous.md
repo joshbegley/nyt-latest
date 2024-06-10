@@ -1,3 +1,7 @@
+**M.T.A. Will Push to Run Subway Safely With Toll Plan Halted, Chief Says**\
+`Janno Lieber said the Metropolitan Transportation Authority was reining in its ambitions after Gov. Kathy Hochul moved to halt congestion pricing.`\
+https://nytimes.com/2024/06/10/nyregion/mta-janno-lieber-congestion-pricing.html
+
 **Trump’s Vegas Strategy: Run on Bad Luck**\
 `At his first rally since his conviction, Trump complained about the odds being stacked against him.`\
 https://nytimes.com/2024/06/10/us/politics/trump-vegas-strategy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/10/health/alzheimers-treatment-donanemab.html
 **Tuesday Briefing: U.N. Adopts U.S.-Backed Cease-Fire Resolution**\
 `Also, the center held in Europe and Apple unveiled new A.I. features.`\
 https://nytimes.com/2024/06/10/world/asia/un-cease-fire-gaza-apple-asia.html
-
-**Amid Outcry, Academy Museum to Revise Exhibit on Hollywood’s Jewish Roots**\
-`When the museum first opened, it was criticized for omitting Hollywood’s Jewish pioneers. Now it is under fire for what its new exhibit says about them.`\
-https://nytimes.com/2024/06/10/movies/academy-museum-jewish-exhibition.html
 
