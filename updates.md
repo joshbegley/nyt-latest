@@ -1,3 +1,11 @@
+**Bowman Makes Amends With Democratic Socialists After Rift Over Israel**\
+`Rep. Jamaal Bowman of New York told members of the socialist group that his views on Israel aligned with theirs, and insisted that he never quit the group, despite earlier claims.`\
+https://nytimes.com/2024/06/10/nyregion/jamaal-bowman-dsa-israel.html
+
+**Aircraft Carrying Malawi’s Vice President Is Missing**\
+`A search is underway after the aircraft carrying Vice President Saulos Chilima and nine other people vanished.`\
+https://nytimes.com/2024/06/10/world/africa/malawi-saulos-chilima-plane.html
+
 **The Next Republican Target Is Birth Control**\
 `Despite what some lawmakers say, contraceptives do not cause abortions.`\
 https://nytimes.com/live/2024/06/04/opinion/thepoint/birth-control-senate
