@@ -1,3 +1,7 @@
+**James M. Lawson Jr., a Top Strategist for Dr. King, Is Dead at 95**\
+`After studying Gandhi’s principles of civil disobedience in India, he joined the 1960s civil rights movement and became an architect of it as a nonviolent struggle.`\
+https://nytimes.com/2024/06/10/us/james-m-lawson-jr-dr-dead.html
+
 **Amid Outcry, Academy Museum to Revise Exhibit on Hollywood’s Jewish Roots**\
 `When the museum first opened, it was criticized for omitting Hollywood’s Jewish pioneers. Now it is under fire for what its new exhibit says about them.`\
 https://nytimes.com/2024/06/10/movies/academy-museum-jewish-exhibition.html
