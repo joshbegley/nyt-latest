@@ -1,3 +1,7 @@
+**Academy Museum to Revise Exhibit on Hollywood’s Jewish Founders**\
+`When the museum first opened, it was criticized for omitting Hollywood’s Jewish pioneers. Now it is under fire for what its new exhibit says about them.`\
+https://nytimes.com/2024/06/10/movies/academy-museum-jewish-exhibition.html
+
 **F.D.A. Warns Against ‘Microdosing’ Mushroom Chocolate Bars**\
 `At least eight people have fallen ill after eating Diamond Shruumz products, including several who had seizures or needed to be put on ventilators.`\
 https://nytimes.com/2024/06/10/well/live/fda-microdose-chocolate.html

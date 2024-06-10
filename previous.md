@@ -1,3 +1,7 @@
+**Academy Museum to Revise Exhibit on Hollywood’s Jewish Founders**\
+`When the museum first opened, it was criticized for omitting Hollywood’s Jewish pioneers. Now it is under fire for what its new exhibit says about them.`\
+https://nytimes.com/2024/06/10/movies/academy-museum-jewish-exhibition.html
+
 **F.D.A. Warns Against ‘Microdosing’ Mushroom Chocolate Bars**\
 `At least eight people have fallen ill after eating Diamond Shruumz products, including several who had seizures or needed to be put on ventilators.`\
 https://nytimes.com/2024/06/10/well/live/fda-microdose-chocolate.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/10/world/israel-gaza-war-hamas/the-un-security-
 **The L.A. Derby Dolls Take Up Space**\
 `Chloe Moon Flaherty, age 18, documents a community that “embraces the unconventional.”`\
 https://nytimes.com/2024/06/10/learning/the-la-derby-dolls-take-up-space.html
-
-**The Winners of Our Teen Photo Essay Contest Depict Community and Why It Matters**\
-`From 528 teen entries, we have chosen 10 extraordinary pieces. Take a look.`\
-https://nytimes.com/2024/06/10/learning/the-winners-of-our-teen-photo-essay-contest-depict-community-and-why-it-matters.html
 
