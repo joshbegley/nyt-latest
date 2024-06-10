@@ -1,3 +1,7 @@
+**The Rise of Bookstores With a Social Mission**\
+`The pandemic fueled a boom in social justice movements and indie bookstores. The two come together in these worker-owned shops.`\
+https://nytimes.com/2024/06/10/books/counterculture-bookstores-social-movements.html
+
 **The Constant Metamorphosis of Nona Hendryx**\
 `“Lady Marmalade,” her hit with Labelle, is turning 50. She’s nearing 80. But the singer, designer and technologist isn’t slowing down. She’s entering a new virtual world.`\
 https://nytimes.com/2024/06/10/arts/music/nona-hendryx.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/10/dining/how-to-bake-wild-salmon.html
 **Taylor Swift Bests K-Pop Band to Stay No. 1 for Seventh Week**\
 `Swift’s ‘The Tortured Poets Department’ held off Ateez’s ‘Golden Hour: Part.1.’ The singer-songwriter Shaboozey opened at No. 5.`\
 https://nytimes.com/2024/06/10/arts/music/taylor-swift-tortured-poets-ateez-billboard.html
-
-**The Big Ideas: What Do We Fear?**\
-`In this series, writers respond to a single question: What do we fear?`\
-https://nytimes.com/column/the-big-ideas-what-do-we-fear
 
