@@ -1,3 +1,15 @@
+**The Rise and Fall of Congestion Pricing in New York**\
+`The decision to shelve a long-awaited tolling plan was attributed to concerns about the city’s coronavirus pandemic recovery.`\
+https://nytimes.com/2024/06/10/podcasts/the-daily/congestion-pricing-new-york.html
+
+**Israeli Hostage Rescue Fallout, and Far Right Wreaks Havoc in Europe**\
+`Plus, Apple’s Siri gets an A.I. makeover.`\
+https://nytimes.com/2024/06/10/podcasts/israel-hostages-apple.html
+
+**The Connections Companion No. 366, June 11, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/10/crosswords/connections-companion-366.html
+
 **Blinken arrives in Egypt to discuss the latest cease-fire proposal.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/06/09/world/israel-gaza-war-hamas/blinken-arrives-in-egypt-to-discuss-the-latest-cease-fire-proposal
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/10/opinion/donald-trump-appeal-conviction.html
 **The Mystery of the Disappearing Breast Pocket**\
 `Our fashion critic looks at a little swatch of fabric’s journey from practical adaptation to political signifier.`\
 https://nytimes.com/2024/06/10/style/breast-pockets-shirts.html
-
-**The Artist Is Present (and Pretentious) in Rachel Cusk’s Latest**\
-`Her new novel, “Parade,” considers the perplexity and solipsism of the creative life.`\
-https://nytimes.com/2024/06/10/books/review/rachel-cusk-parade.html
-
-**At 17, She Fell in Love With a 47-Year-Old. Now She Questions the Story.**\
-`Jill Ciment’s 1996 memoir “Half a Life” described her teenage affair with the man she eventually married. Her new memoir, “Consent,” dramatically revises some details.`\
-https://nytimes.com/2024/06/10/books/at-17-she-fell-in-love-with-a-47-year-old-now-she-questions-the-story.html
-
-**We’re Good at Punishing #MeToo Men. Can We Ever Forgive Them?**\
-`When I met Morgan Spurlock, he was trying to make amends. What I saw changed how I think about #MeToo.`\
-https://nytimes.com/2024/06/10/opinion/metoo-spurlock-second-chance.html
 
