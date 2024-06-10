@@ -1,3 +1,11 @@
+**Gantz quits Israel’s government in dispute with Netanyahu over Gaza war.**\
+`By Adam Rasgon`\
+https://nytimes.com/2024/06/10/world/middleeast/gantz-quits-israels-government-in-dispute-with-netanyahu-over-gaza-war.html
+
+**The U.S. said its proposal includes the release of hostages.**\
+`By Mike Ives`\
+https://nytimes.com/live/2024/06/10/world/israel-gaza-war-hamas/the-us-said-its-proposal-includes-the-release-of-hostages
+
 **Does New York City Really Need These Giant 5G Towers?**\
 `A 32-foot “smartpole” is coming to a block near you.`\
 https://nytimes.com/2024/06/10/nyregion/street-wars-new-york-city-5g-towers.html
