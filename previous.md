@@ -1,3 +1,15 @@
+**Behind the Republican Effort to Win Over Black Men**\
+`The party is trying to make inroads with Black voters, a key demographic for Democrats, which could swing the 2024 election.`\
+https://nytimes.com/2024/06/10/us/politics/2024-election-gop-black-men-voters.html
+
+**Apple Jumps Into A.I. Fray With Apple Intelligence**\
+`While other big tech companies have aggressively tried to add artificial intelligence into products, the iPhone maker has taken a more cautious approach.`\
+https://nytimes.com/2024/06/10/technology/apple-intelligence-openai.html
+
+**Assessing Trump’s Denial That He’s Called Veterans ‘Losers’ and ‘Suckers’**\
+`A Biden campaign ad revived comments that Donald Trump reportedly made disparaging military members. The remarks are in dispute.`\
+https://nytimes.com/live/2024/06/10/us/biden-trump-election/assessing-trumps-denial-that-hes-called-veterans-losers-and-suckers
+
 **Aircraft Carrying Malawi’s Vice President Is Missing**\
 `A search is underway after the aircraft carrying Vice President Saulos Chilima and nine other people vanished.`\
 https://nytimes.com/2024/06/10/world/africa/aircraft-carrying-malawis-vice-president-is-missing.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/10/world/europe/russia-women-inmates-ukraine.html
 **The One Thing Everyone Is Missing About Hunter Biden’s Case**\
 `It has nothing to do with law or politics.`\
 https://nytimes.com/2024/06/10/opinion/the-one-thing-everyone-is-missing-about-hunter-bidens-case.html
-
-**Environmental Group to Study Effects of Artificially Cooling Earth**\
-`The Environmental Defense Fund, entering controversial territory, will spend millions of dollars examining the impact of reflecting sunlight into space as global warming worsens.`\
-https://nytimes.com/2024/06/10/climate/edf-solar-geoengineering-research.html
-
-**Gazans in the area where hostages were rescued plead for an end to the war.**\
-`By Nader Ibrahim, Erika Solomon and Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/06/10/world/israel-gaza-war-hamas/gazans-in-the-area-where-hostages-were-rescued-plead-for-an-end-to-the-war
-
-**‘Wedding Day at the Cro-Magnons’’ Review: A Bittersweet Premiere**\
-`An Arabic production of Wajdi Mouawad’s 1991 work, planned to open in Lebanon, was canceled because of his perceived ties to Israel. It found a home in France.`\
-https://nytimes.com/2024/06/10/theater/wajdi-mouawad-wedding-day-at-the-cro-magnons.html
 

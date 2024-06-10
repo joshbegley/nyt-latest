@@ -1,3 +1,15 @@
+**Behind the Republican Effort to Win Over Black Men**\
+`The party is trying to make inroads with Black voters, a key demographic for Democrats, which could swing the 2024 election.`\
+https://nytimes.com/2024/06/10/us/politics/2024-election-gop-black-men-voters.html
+
+**Apple Jumps Into A.I. Fray With Apple Intelligence**\
+`While other big tech companies have aggressively tried to add artificial intelligence into products, the iPhone maker has taken a more cautious approach.`\
+https://nytimes.com/2024/06/10/technology/apple-intelligence-openai.html
+
+**Assessing Trump’s Denial That He’s Called Veterans ‘Losers’ and ‘Suckers’**\
+`A Biden campaign ad revived comments that Donald Trump reportedly made disparaging military members. The remarks are in dispute.`\
+https://nytimes.com/live/2024/06/10/us/biden-trump-election/assessing-trumps-denial-that-hes-called-veterans-losers-and-suckers
+
 **Aircraft Carrying Malawi’s Vice President Is Missing**\
 `A search is underway after the aircraft carrying Vice President Saulos Chilima and nine other people vanished.`\
 https://nytimes.com/2024/06/10/world/africa/aircraft-carrying-malawis-vice-president-is-missing.html
