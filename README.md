@@ -1,3 +1,11 @@
+**Gantz quits Israel’s government in dispute with Netanyahu over Gaza war.**\
+`By Adam Rasgon`\
+https://nytimes.com/2024/06/10/world/middleeast/gantz-quits-israels-government-in-dispute-with-netanyahu-over-gaza-war.html
+
+**The U.S. said its proposal includes the release of hostages.**\
+`By Mike Ives`\
+https://nytimes.com/live/2024/06/10/world/israel-gaza-war-hamas/the-us-said-its-proposal-includes-the-release-of-hostages
+
 **Does New York City Really Need These Giant 5G Towers?**\
 `A 32-foot “smartpole” is coming to a block near you.`\
 https://nytimes.com/2024/06/10/nyregion/street-wars-new-york-city-5g-towers.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/10/briefing/france-election-israel-resign.html
 **Landslide in Wyoming Causes Part of a Highway to Collapse**\
 `Aerial footage shows a section of the damaged road, which links Idaho with Jackson, Wyo.`\
 https://nytimes.com/video/us/100000009512805/wyoming-landslide-jackson-teton-pass.html
-
-**Trump Endorses Sam Brown in Nevada’s Key Senate Race**\
-`Mr. Brown, a former Army captain, is the leading candidate in a crowded field of Republicans vying to take on Senator Jacky Rosen, a vulnerable Democratic incumbent in a presidential battleground.`\
-https://nytimes.com/2024/06/09/us/politics/trump-endorsement-sam-brown.html
-
-**Debby Lee Cohen, Who Helped Prune Plastic From Schools, Dies at 64**\
-`Her successful campaign against foam lunch trays in New York City led to similar city and statewide bans — and taught a group of fifth graders how to take on City Hall.`\
-https://nytimes.com/2024/06/09/education/debby-lee-cohen-dead.html
 
