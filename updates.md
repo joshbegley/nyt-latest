@@ -1,3 +1,15 @@
+**How ‘The Outsiders’ Staged a Broadway Fight Club**\
+`To produce this Tony-nominated show’s climactic rumble, the creators, cast and crew gave it everything they've got. `\
+https://nytimes.com/card/2024/06/10/theater/outsiders-rumble
+
+**Biden goes abroad again, and Trump turns 78: the week ahead in politics.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/06/10/us/biden-trump-election/biden-trump-election
+
+**Election Updates: Biden heads back to Europe this week, while Trump has a birthday party.**\
+``\
+https://nytimes.com/live/2024/06/10/us/biden-trump-election
+
 **Three Injured After Bull Jumps the Fence at an Oregon Rodeo**\
 `While the crowd sang “God Bless the U.S.A.,” the bull leaped across a barrier into the stands and raced through the grounds of the rodeo before being captured.`\
 https://nytimes.com/2024/06/10/us/bull-escapes-rodeo-oregon.html
