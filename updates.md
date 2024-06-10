@@ -1,3 +1,11 @@
+**Every Elephant Has Its Own Name, Study Suggests**\
+`An analysis of elephant calls using an artificial intelligence tool suggests that the animals may use and respond to individualized rumbles.`\
+https://nytimes.com/2024/06/10/science/elephants-names-rumbles.html
+
+**How to Bake Wild Salmon**\
+`Lean fillets of wild Alaskan Pacific salmon turn tender and rich with Ali Slagle’s ingenious recipe.`\
+https://nytimes.com/2024/06/10/dining/how-to-bake-wild-salmon.html
+
 **In Calling Elections in France, Macron Makes a Huge Gamble**\
 `The president has challenged voters to test the sincerity of their support for the far right in European elections. Were the French letting off steam, or did they really mean it?`\
 https://nytimes.com/2024/06/10/world/europe/france-macron-elections-analysis.html
