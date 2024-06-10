@@ -1,3 +1,7 @@
+**How the Federal Election Commission Went From Deadlock to Deregulation**\
+`Three Republicans and one Democrat have been voting together, loosening how money is raised and spent in politics at what one outside watchdog called “breathtaking” speed.`\
+https://nytimes.com/2024/06/10/us/politics/fec-deadlock-deregulation.html
+
 **High Interest Rates are Hitting Poorer Americans the Hardest**\
 `The Federal Reserve is holding interest rates at a more than two-decade high in an attempt to wrestle inflation lower. That policy has proved especially painful for poorer families.`\
 https://nytimes.com/video/us/100000009513524/high-interest-rates-are-hitting-poorer-americans-the-hardest.html
@@ -33,8 +37,4 @@ https://nytimes.com/column/the-big-ideas-what-do-we-fear
 **Can You Find The 14 Book Titles Hidden in This Block of Text?**\
 `Try your hand at uncovering a reading list of thrillers in this Title Search puzzle.`\
 https://nytimes.com/interactive/2024/06/10/books/review/dystopian-thrillers-puzzle.html
-
-**In Calling Elections in France, Macron Makes a Huge Gamble**\
-`The president has challenged voters to test the sincerity of their support for the far right in European elections. Were the French letting off steam, or did they really mean it?`\
-https://nytimes.com/2024/06/10/world/europe/france-macron-elections-analysis.html
 
