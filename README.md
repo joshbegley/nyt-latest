@@ -1,3 +1,7 @@
+**Baltimore City Council to Hold Hearings on Drug Overdoses**\
+`The city’s overdose epidemic has killed nearly 6,000 people since 2018, a death rate never before seen in a major U.S. city.`\
+https://nytimes.com/2024/06/10/us/baltimore-drug-overdoses-city-council-hearings.html
+
 **Israel’s Parliament Revives Bill on Drafting Ultra-Orthodox Men Into Military**\
 `The vote was aimed at keeping the divisive issue in the hands of legislators instead of judges, who have repeatedly determined that an exemption should not stand.`\
 https://nytimes.com/2024/06/10/world/middleeast/israel-haredi-orthodox-draft-bill.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009514538/un-cease-fire-resolut
 **Obama Marks Milestone in Construction of Presidential Center**\
 `Nine years after selecting Chicago as the home for his presidential center, Barack Obama celebrated the structure reaching its full height.`\
 https://nytimes.com/2024/06/10/us/obama-center-chicago.html
-
-**M.T.A. Will Push to Run Subway Safely With Toll Plan Halted, Chief Says**\
-`Janno Lieber said the Metropolitan Transportation Authority was reining in its ambitions after Gov. Kathy Hochul moved to halt congestion pricing.`\
-https://nytimes.com/2024/06/10/nyregion/mta-janno-lieber-congestion-pricing.html
 
