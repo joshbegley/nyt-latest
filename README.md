@@ -1,4 +1,4 @@
-**Gantz Quits Israel Government in Dispute with Netanyahu Over Gaza**\
+**Gantz Quits Israel Government in Dispute With Netanyahu Over Gaza**\
 `The resignation exposed the divisions at the top of the Israeli leadership over the future of the war and its aftermath.`\
 https://nytimes.com/2024/06/10/world/middleeast/gantz-quits-israel-netanyahu.html
 
