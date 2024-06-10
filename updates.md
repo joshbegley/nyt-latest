@@ -1,3 +1,7 @@
+**How the Federal Election Commission Went From Deadlock to Deregulation**\
+`Three Republicans and one Democrat have been voting together, loosening how money is raised and spent in politics at what one outside watchdog called “breathtaking” speed.`\
+https://nytimes.com/2024/06/10/us/politics/fec-deadlock-deregulation.html
+
 **High Interest Rates are Hitting Poorer Americans the Hardest**\
 `The Federal Reserve is holding interest rates at a more than two-decade high in an attempt to wrestle inflation lower. That policy has proved especially painful for poorer families.`\
 https://nytimes.com/video/us/100000009513524/high-interest-rates-are-hitting-poorer-americans-the-hardest.html
