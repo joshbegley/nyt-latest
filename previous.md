@@ -1,3 +1,15 @@
+**Judge Dismisses Case Against Couple Charged This Year in Boy’s 1989 Murder**\
+`A South Carolina judge cited the long delay in bringing criminal charges and ordered that the case against the boy’s father and stepmother be “forever ended.”`\
+https://nytimes.com/2024/06/10/us/justin-turner-parents-murder-charges-dropped.html
+
+**U.A.W. Reaches Accord on Pay and Safety at E.V. Battery Plant**\
+`The agreement, if ratified, will cover 1,600 workers making batteries for General Motors in Ohio. The union said it would be a model for efforts elsewhere.`\
+https://nytimes.com/2024/06/10/business/uaw-ultium-gm-battery-contract.html
+
+**Reconstruction Official Resigns, Highlighting Tensions in Ukraine**\
+`The departure of the official, who had pointed up mismanagement of funds, was a blow to government efforts to assuage allies’ concerns about how aid is spent.`\
+https://nytimes.com/2024/06/10/world/europe/ukraine-reconstruction-resignation.html
+
 **No One Told the Cows Not to Lick the Artwork**\
 `The Basel Social Club is a rebellious alternative to the more buttoned-up art fair that descends on the Swiss city of Basel each year.`\
 https://nytimes.com/2024/06/10/arts/design/basel-social-club.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/10/nyregion/collegiate-school-head-israel-gaza.html
 **Bowman Makes Amends With Democratic Socialists After Rift Over Israel**\
 `Rep. Jamaal Bowman of New York told members of the socialist group that his views on Israel aligned with theirs, and insisted that he never quit the group, despite earlier claims.`\
 https://nytimes.com/2024/06/10/nyregion/jamaal-bowman-dsa-israel.html
-
-**The Next Republican Target Is Birth Control**\
-`Despite what some lawmakers say, contraceptives do not cause abortions.`\
-https://nytimes.com/live/2024/06/04/opinion/thepoint/birth-control-senate
-
-**Israel’s Economy Is Not Invincible**\
-`The country’s leaders insist on its strength, but economists are warning of serious vulnerabilities.`\
-https://nytimes.com/2024/06/10/opinion/israel-economy-gaza.html
-
-**Behind the Republican Effort to Win Over Black Men**\
-`The party is trying to make inroads with Black voters, a key demographic for Democrats, which could swing the 2024 election.`\
-https://nytimes.com/2024/06/10/us/politics/2024-election-gop-black-men-voters.html
 

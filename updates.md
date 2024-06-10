@@ -1,3 +1,15 @@
+**Judge Dismisses Case Against Couple Charged This Year in Boy’s 1989 Murder**\
+`A South Carolina judge cited the long delay in bringing criminal charges and ordered that the case against the boy’s father and stepmother be “forever ended.”`\
+https://nytimes.com/2024/06/10/us/justin-turner-parents-murder-charges-dropped.html
+
+**U.A.W. Reaches Accord on Pay and Safety at E.V. Battery Plant**\
+`The agreement, if ratified, will cover 1,600 workers making batteries for General Motors in Ohio. The union said it would be a model for efforts elsewhere.`\
+https://nytimes.com/2024/06/10/business/uaw-ultium-gm-battery-contract.html
+
+**Reconstruction Official Resigns, Highlighting Tensions in Ukraine**\
+`The departure of the official, who had pointed up mismanagement of funds, was a blow to government efforts to assuage allies’ concerns about how aid is spent.`\
+https://nytimes.com/2024/06/10/world/europe/ukraine-reconstruction-resignation.html
+
 **No One Told the Cows Not to Lick the Artwork**\
 `The Basel Social Club is a rebellious alternative to the more buttoned-up art fair that descends on the Swiss city of Basel each year.`\
 https://nytimes.com/2024/06/10/arts/design/basel-social-club.html
