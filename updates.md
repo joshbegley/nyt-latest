@@ -1,3 +1,7 @@
+**Trump’s Vegas Strategy: Run on Bad Luck**\
+`At his first rally since his conviction, Trump complained about the odds being stacked against him.`\
+https://nytimes.com/2024/06/10/us/politics/trump-vegas-strategy.html
+
 **Israel’s Military Says 3 Rescued Hostages Were Held in Hamas Member’s Home**\
 `The man’s death was confirmed by the Hamas-controlled Gaza media office, which identified him as an employee of the Hamas-affiliated news agency Palestine Now.`\
 https://nytimes.com/2024/06/10/world/middleeast/israel-hostages-hamas.html
