@@ -1,3 +1,7 @@
+**Trump pledged support to an organization that wants abortion ‘eradicated entirely.’**\
+`By Lisa Lerer`\
+https://nytimes.com/live/2024/06/10/us/biden-trump-election/trump-danbury-institute
+
 **Apple Entered the A.I. Fray**\
 `Also, the F.D.A.’s advisers endorsed a new Alzheimer’s drug. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/06/10/briefing/apple-ai-blinken-middle-east-tour-elephants.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/10/us/justin-turner-parents-murder-charges-dropped.h
 **U.A.W. Reaches Accord on Pay and Safety at E.V. Battery Plant**\
 `The agreement, if ratified, will cover 1,600 workers making batteries for General Motors in Ohio. The union said it would be a model for efforts elsewhere.`\
 https://nytimes.com/2024/06/10/business/uaw-ultium-gm-battery-contract.html
-
-**Reconstruction Official Resigns, Highlighting Tensions in Ukraine**\
-`The departure of the official, who had pointed up mismanagement of funds, was a blow to government efforts to assuage allies’ concerns about how aid is spent.`\
-https://nytimes.com/2024/06/10/world/europe/ukraine-reconstruction-resignation.html
 
