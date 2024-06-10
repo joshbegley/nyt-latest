@@ -1,3 +1,15 @@
+**Israel’s military says 3 recently rescued hostages were held in a home of a Hamas member.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/2024/06/10/world/middleeast/israel-hostages-hamas.html
+
+**Chucky, Queer Icon?**\
+`A graphic on the Peacock home screen seemed to induct the killer doll into the gay pantheon. His creator, however, says Chucky’s queer credentials are well established.`\
+https://nytimes.com/2024/06/10/style/chucky-peacock-pride-month.html
+
+**The Secret to Refreshing a Friendship**\
+`Today’s challenge: ‘Repot’ a relationship and connect with an old friend in a new way.`\
+https://nytimes.com/2024/06/10/well/live/friendship-refresh.html
+
 **Trump pledged support to an organization that wants abortion ‘eradicated entirely.’**\
 `By Lisa Lerer`\
 https://nytimes.com/live/2024/06/10/us/biden-trump-election/trump-danbury-institute
