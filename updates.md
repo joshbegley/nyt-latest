@@ -1,3 +1,7 @@
+**What’s on TV This Week: Celine Dion and the Stanley Cup Finals**\
+`The pop star does her first interview on NBC since her stiff person syndrome diagnosis. And the Oilers and the Panthers compete in the pro hockey championship.`\
+https://nytimes.com/2024/06/10/arts/television/whats-on-tv-this-week-celine-dion-and-the-stanley-cup-finals.html
+
 **Monday Briefing**\
 `The French president calls for new elections.`\
 https://nytimes.com/2024/06/10/briefing/france-election-israel-resign.html
