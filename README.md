@@ -1,3 +1,7 @@
+**Frightening Log From Titan Submersible’s Fatal Dive Declared a Fake**\
+`The federal team investigating the Titan disaster found that a detailed recounting of the craft’s descent was “made up.”`\
+https://nytimes.com/2024/06/10/science/titan-submersible-transcript-investigation.html
+
 **Could a software update play a critical role in decarbonizing the US power grid? An MIT research team says yes.**\
 `Modernizing the grid’s software will allow for more accurate supply and demand prediction and will better incorporate renewable energy sources `\
 https://nytimes.com/paidpost/2024-06-03/.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/10/opinion/israel-gaza-hostages-rescue.html
 **Every Elephant Has Its Own Name, Study Suggests**\
 `An analysis of elephant calls using an artificial intelligence tool suggests that the animals may use and respond to individualized rumbles.`\
 https://nytimes.com/2024/06/10/science/elephants-names-rumbles.html
-
-**How to Bake Wild Salmon**\
-`Lean fillets of wild Alaskan Pacific salmon turn tender and rich with Ali Slagle’s ingenious recipe.`\
-https://nytimes.com/2024/06/10/dining/how-to-bake-wild-salmon.html
 
