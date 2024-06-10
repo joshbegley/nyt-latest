@@ -1,3 +1,7 @@
+**Blinken arrives in Egypt to discuss the latest cease-fire proposal.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/06/09/world/israel-gaza-war-hamas/blinken-arrives-in-egypt-to-discuss-the-latest-cease-fire-proposal
+
 **It’s a Trial a Minute Around Here**\
 `Here’s looking at you, Hunter.`\
 https://nytimes.com/2024/06/10/opinion/border-hunter-joe-biden.html

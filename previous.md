@@ -1,3 +1,7 @@
+**Blinken arrives in Egypt to discuss the latest cease-fire proposal.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/06/09/world/israel-gaza-war-hamas/blinken-arrives-in-egypt-to-discuss-the-latest-cease-fire-proposal
+
 **It’s a Trial a Minute Around Here**\
 `Here’s looking at you, Hunter.`\
 https://nytimes.com/2024/06/10/opinion/border-hunter-joe-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/10/books/at-17-she-fell-in-love-with-a-47-year-old-n
 **We’re Good at Punishing #MeToo Men. Can We Ever Forgive Them?**\
 `When I met Morgan Spurlock, he was trying to make amends. What I saw changed how I think about #MeToo.`\
 https://nytimes.com/2024/06/10/opinion/metoo-spurlock-second-chance.html
-
-**Susan Jaffe Wants to Build a New Era at American Ballet Theater**\
-`“We have to really become creative about everything we do,” said Jaffe, as the company works to address financial woes and carve a modern identity.`\
-https://nytimes.com/2024/06/10/arts/dance/susan-jaffe-american-ballet-theater.html
 
