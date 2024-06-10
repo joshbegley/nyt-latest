@@ -1,3 +1,7 @@
+**Can You Find The 14 Book Titles Hidden in This Block of Text?**\
+`Try your hand at uncovering a reading list of thrillers in this Title Search puzzle.`\
+https://nytimes.com/interactive/2024/06/10/books/review/dystopian-thrillers-puzzle.html
+
 **In Calling Elections in France, Macron Makes a Huge Gamble**\
 `The president has challenged voters to test the sincerity of their support for the far right. Are the French just letting off steam, or do they really mean it?`\
 https://nytimes.com/2024/06/10/world/europe/france-macron-elections-analysis.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/10/us/biden-trump-election/biden-trump-election
 **Election Updates: Biden heads back to Europe this week, while Trump has a birthday party.**\
 ``\
 https://nytimes.com/live/2024/06/10/us/biden-trump-election
-
-**Three Injured After Bull Jumps the Fence at an Oregon Rodeo**\
-`While the crowd sang “God Bless the U.S.A.,” the bull leaped across a barrier into the stands and raced through the grounds of the rodeo before being captured.`\
-https://nytimes.com/2024/06/10/us/bull-escapes-rodeo-oregon.html
 
