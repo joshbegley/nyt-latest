@@ -24,7 +24,7 @@ https://nytimes.com/2024/06/10/crosswords/connections-companion-366.html
 
 **Blinken begins a three-day Middle East trip in Egypt.**\
 `By Michael Crowley`\
-https://nytimes.com/live/2024/06/09/world/israel-gaza-war-hamas/blinken-arrives-in-egypt-to-discuss-the-latest-cease-fire-proposal
+https://nytimes.com/live/2024/06/10/world/israel-gaza-war-hamas/blinken-arrives-in-egypt-to-discuss-the-latest-cease-fire-proposal
 
 **It’s a Trial a Minute Around Here**\
 `Here’s looking at you, Hunter.`\

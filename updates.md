@@ -1,3 +1,7 @@
+**Read a Judge’s Letter of Recommendation for Elias Irizarry**\
+`A letter of recommendation from Judge Tanya S. Chutkan to the Citadel for Elias Irizarry.`\
+https://nytimes.com/interactive/2024/06/10/us/chutkan-letter-re-irizarry.html
+
 **The Internet and the First Amendment**\
 `We explore the upcoming legal rulings that will shape online life.`\
 https://nytimes.com/2024/06/10/briefing/internet-supreme-court-first-amendment.html
