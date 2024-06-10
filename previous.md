@@ -1,3 +1,7 @@
+**Tuesday Briefing: U.N. Adopts U.S.-Backed Cease-Fire Resolution**\
+`Also, the center held in Europe and Apple unveiled new A.I. features.`\
+https://nytimes.com/2024/06/10/world/asia/un-cease-fire-gaza-apple-asia.html
+
 **Academy Museum to Revise Exhibit on Hollywood’s Jewish Founders**\
 `When the museum first opened, it was criticized for omitting Hollywood’s Jewish pioneers. Now it is under fire for what its new exhibit says about them.`\
 https://nytimes.com/2024/06/10/movies/academy-museum-jewish-exhibition.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/10/learning/the-runners-up-of-our-where-we-are-photo
 **Fourteen of the 15 members voted in favor, with Russia abstaining.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/06/10/world/israel-gaza-war-hamas/the-un-security-council-passes-a-us-backed-cease-fire-resolution
-
-**The L.A. Derby Dolls Take Up Space**\
-`Chloe Moon Flaherty, age 18, documents a community that “embraces the unconventional.”`\
-https://nytimes.com/2024/06/10/learning/the-la-derby-dolls-take-up-space.html
 

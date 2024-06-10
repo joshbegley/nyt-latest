@@ -1,3 +1,7 @@
+**Tuesday Briefing: U.N. Adopts U.S.-Backed Cease-Fire Resolution**\
+`Also, the center held in Europe and Apple unveiled new A.I. features.`\
+https://nytimes.com/2024/06/10/world/asia/un-cease-fire-gaza-apple-asia.html
+
 **Academy Museum to Revise Exhibit on Hollywood’s Jewish Founders**\
 `When the museum first opened, it was criticized for omitting Hollywood’s Jewish pioneers. Now it is under fire for what its new exhibit says about them.`\
 https://nytimes.com/2024/06/10/movies/academy-museum-jewish-exhibition.html
