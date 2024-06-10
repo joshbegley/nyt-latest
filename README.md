@@ -1,3 +1,11 @@
+**Fear for the Other**\
+`Small but mighty acts of empathy can help us assuage the feelings of isolation and divisiveness that followed the Covid pandemic.`\
+https://nytimes.com/2024/06/10/special-series/fear-covid-politics-other.html
+
+**A Cave Explorer Died 99 Years Ago. Now His Story Is Broadway Bound.**\
+`“Floyd Collins,” a musical about a trapped spelunker and the media circus surrounding his failed rescue, had a brief Off Broadway run in 1996.`\
+https://nytimes.com/2024/06/10/theater/floyd-collins-broadway.html
+
 **How ‘The Outsiders’ Staged a Broadway Fight Club**\
 `To produce this Tony-nominated show’s climactic rumble, the creators, cast and crew gave it everything they've got. `\
 https://nytimes.com/card/2024/06/10/theater/outsiders-rumble
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/10/us/californias-new-state-park-dos-rios.html
 **Bull Escapes Arena at Oregon Rodeo**\
 `The bull ran back to the livestock holding pens where it was secured by rodeo workers and placed into a pen, according to the Sisters Rodeo Association.`\
 https://nytimes.com/video/us/100000009513063/bull-escape-rodeo-sisters-oregon.html
-
-**What to Know About France’s Snap Parliamentary Elections**\
-`President Emmanuel Macron’s surprise call for new elections in France’s lower house of Parliament is seen as a gamble.`\
-https://nytimes.com/2024/06/10/world/europe/france-election-macron-explained.html
-
-**Can Apple Think Different on A.I.?**\
-`Wall Street and Silicon Valley will be watching the company’s developers conference closely for signs of whether the iPhone maker can finally catch up on artificial intelligence.`\
-https://nytimes.com/2024/06/10/business/dealbook/apple-ai-siri.html
 
