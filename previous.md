@@ -1,6 +1,14 @@
+**Gazans Describe Deadly Israeli Raid in Nuseirat**\
+`Palestinians pleaded for an end to the war in Gaza after an Israeli raid to release hostages in the Nuseirat area in central Gaza left more than 200 people dead, according to Palestinian health officials.`\
+https://nytimes.com/video/world/middleeast/100000009513256/gaza-nuseirat-hostages-raid.html
+
+**Frightening Log From Titan Submersible’s Fatal Dive Declared a Fake**\
+`The federal team investigating the Titan disaster found that a detailed recounting of the craft’s descent was “made up.”`\
+https://nytimes.com/2024/06/10/science/titan-submersible-transcript-investigation.html
+
 **Could a software update play a critical role in decarbonizing the US power grid? An MIT research team says yes.**\
 `Modernizing the grid’s software will allow for more accurate supply and demand prediction and will better incorporate renewable energy sources `\
-https://nytimes.com/paidpost/2024-06-03/.html
+https://nytimes.com/paidpost/2024-06-03/mit/decarbonizing-the-us-power-grid.html
 
 **The Rise of Bookstores With a Social Mission**\
 `The pandemic fueled a boom in social justice movements and indie bookstores. The two come together in these worker-owned shops.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/10/technology/california-ai-regulation.html
 **The Israeli Hostage Rescue, and the Cost**\
 `Responses to the military raid and the carnage in Gaza. Also: A Trump assessment; John Roberts’s legacy; abandoned oil wells; a grief memorial.`\
 https://nytimes.com/2024/06/10/opinion/israel-gaza-hostages-rescue.html
-
-**Every Elephant Has Its Own Name, Study Suggests**\
-`An analysis of elephant calls using an artificial intelligence tool suggests that the animals may use and respond to individualized rumbles.`\
-https://nytimes.com/2024/06/10/science/elephants-names-rumbles.html
-
-**How to Bake Wild Salmon**\
-`Lean fillets of wild Alaskan Pacific salmon turn tender and rich with Ali Slagle’s ingenious recipe.`\
-https://nytimes.com/2024/06/10/dining/how-to-bake-wild-salmon.html
 
