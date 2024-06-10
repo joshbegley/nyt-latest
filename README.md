@@ -1,3 +1,7 @@
+**Gazans in the area where hostages were rescued plead for an end to the war.**\
+`By Nader Ibrahim, Erika Solomon and Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/06/10/world/israel-gaza-war-hamas/gazans-in-the-area-where-hostages-were-rescued-plead-for-an-end-to-the-war
+
 **‘Wedding Day at the Cro-Magnons’’ Review: A Bittersweet Premiere**\
 `An Arabic production of Wajdi Mouawad’s 1991 work, planned to open in Lebanon, was canceled because of his perceived ties to Israel. It found a home in France.`\
 https://nytimes.com/2024/06/10/theater/wajdi-mouawad-wedding-day-at-the-cro-magnons.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/10/us/politics/fec-deadlock-deregulation.html
 **High Interest Rates are Hitting Poorer Americans the Hardest**\
 `The Federal Reserve is holding interest rates at a more than two-decade high in an attempt to wrestle inflation lower. That policy has proved especially painful for poorer families.`\
 https://nytimes.com/video/us/100000009513524/high-interest-rates-are-hitting-poorer-americans-the-hardest.html
-
-**For an Older Homeless Population, a New Type of Care**\
-`Programs are sprouting across the country to provide nursing home and rehabilitation services to homeless people who would otherwise shuttle between hospitals and the street.`\
-https://nytimes.com/2024/06/10/us/medical-respite-care-homeless.html
 
