@@ -1,3 +1,15 @@
+**Does New York City Really Need These Giant 5G Towers?**\
+`A 32-foot “smartpole” is coming to a block near you.`\
+https://nytimes.com/2024/06/10/nyregion/street-wars-new-york-city-5g-towers.html
+
+**First Female Leader in Centuries Returns a Tribal Nation to Its Roots**\
+`Lisa Goree took the helm of the Shinnecock Nation in April, as the Long Island tribe navigates disputes over burial grounds and projects to build a casino and a gas station.`\
+https://nytimes.com/2024/06/10/nyregion/shinnecock-indian-nation-chief-lisa-goree.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/06/10/crosswords/spelling-bee-forum.html
+
 **Word of the Day: disparate**\
 `This word has appeared in 255 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/06/10/learning/word-of-the-day-disparate.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/09/us/politics/trump-endorsement-sam-brown.html
 **Debby Lee Cohen, Who Helped Prune Plastic From Schools, Dies at 64**\
 `Her successful campaign against foam lunch trays in New York City led to similar city and statewide bans — and taught a group of fifth graders how to take on City Hall.`\
 https://nytimes.com/2024/06/09/education/debby-lee-cohen-dead.html
-
-**Jean-Philippe Allard, Jazz Producer and Musicians’ Advocate, Dies at 67**\
-`He called himself a “professional listener,” and he tended to develop lifelong relationships with the artists he worked with.`\
-https://nytimes.com/2024/06/09/arts/music/jean-philippe-allard-dead.html
-
-**India-Pakistan Cricket World Cup Match Brings 34,000 Fans to Long Island**\
-`Security was tight, but the mood was jubilant in the temporary stadium in Nassau County, where India won 119-113 in a highly anticipated showdown.`\
-https://nytimes.com/2024/06/09/nyregion/india-pakistan-cricket-world-cup.html
-
-**In Las Vegas, Trump Appeals to Local Workers and Avoids Talk of Conviction**\
-`At a rally on Sunday, former President Donald J. Trump promised to end taxes on tips for hospitality workers in a speech otherwise filled with familiar refrains.`\
-https://nytimes.com/2024/06/09/us/politics/trump-las-vegas-rally.html
 
