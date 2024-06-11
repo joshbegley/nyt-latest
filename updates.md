@@ -1,3 +1,7 @@
+**Rescuers Comb Dense Forest in Malawi for Vice President’s Missing Plane**\
+`The authorities lost contact on Monday with the military aircraft carrying Saulos Chilima and nine others.`\
+https://nytimes.com/2024/06/11/world/africa/malawi-plane-missing-vice-president-chilima.html
+
 **After the U.N. Security Council backed a cease-fire, Blinken said the plan’s fate ‘is down to one person,’ referring to Hamas’s leader.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/06/11/world/israel-gaza-war-hamas/after-the-un-security-council-backed-a-cease-fire-blinken-said-its-fate-is-down-to-one-person-referring-to-hamass-leader
