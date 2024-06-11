@@ -1,3 +1,7 @@
+**U.A.W. Monitor Investigates Accusations Against Union Leader**\
+`The court-appointed monitor is looking into allegations by two union officials that they were punished for raising questions on financial matters.`\
+https://nytimes.com/2024/06/10/business/uaw-shawn-fain-monitor.html
+
 **In Secret Recordings, Alito Endorses Nation of ‘Godliness.’ Roberts Talks of Pluralism.**\
 `The two justices were surreptitiously recorded at a Supreme Court gala last week by a woman posing as a Catholic conservative.`\
 https://nytimes.com/2024/06/10/us/politics/supreme-court-alito.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/10/us/politics/steve-bannon-european-parliament-elec
 **U.N. Passes Gaza Cease-Fire Resolution as Blinken Presses Israel and Hamas**\
 `The Security Council endorsed a U.S.-backed plan, while Secretary of State Antony J. Blinken visited the Middle East to lobby for it, but Hamas and Israel were noncommittal.`\
 https://nytimes.com/2024/06/10/world/middleeast/security-council-gaza-ceasefire-blinken.html
-
-**Freedom’s Just Another Word for Not Paying Taxes**\
-`Why America’s oligarchs are rallying around Trump.`\
-https://nytimes.com/2024/06/10/opinion/trump-biden-billionaires-taxes.html
 
