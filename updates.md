@@ -1,3 +1,11 @@
+**Biden, Honoring Juneteenth, Warns of Danger of ‘Old Ghosts in New Garments’**\
+`The president assailed attacks on Black history, and vowed that his administration was committed to protecting civil rights.`\
+https://nytimes.com/2024/06/10/us/politics/biden-juneteenth.html
+
+**4 Instructors From Iowa College Are Attacked in Public Park in China**\
+`The Cornell College instructors were in the city of Jilin as part of a partnership with a local university. Much about the attack was still unclear.`\
+https://nytimes.com/2024/06/10/world/asia/cornell-college-attack-china.html
+
 **Americans Push Biden to Help Their Undocumented Spouses**\
 `The White House is weighing relief for immigrants who crossed the border unlawfully but are eligible for green cards through marriage to U.S. citizens.`\
 https://nytimes.com/2024/06/10/us/biden-immigrants-citizenship-marriage.html
