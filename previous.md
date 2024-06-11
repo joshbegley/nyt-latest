@@ -1,3 +1,7 @@
+**Elon Musk Withdraws His Lawsuit Against OpenAI and Sam Altman**\
+`The Tesla chief executive had claimed that the A.I. start-up put profits and commercial interests ahead of benefiting humanity.`\
+https://nytimes.com/2024/06/11/technology/elon-musk-openai-lawsuit.html
+
 **Hamas offers counterproposal in cease-fire talks, but the two sides are still far apart.**\
 `By Ephrat Livni and Aaron Boxerman`\
 https://nytimes.com/live/2024/06/11/world/israel-gaza-war-hamas/hamas-offers-counterproposal-in-cease-fire-talks-but-the-two-sides-are-still-far-apart
@@ -25,8 +29,4 @@ https://nytimes.com/2024/06/11/us/politics/hunter-joe-biden-guilty-verdict.html
 **Man Charged With Using Racist Messaging Channel to Sell Guns From Prison**\
 `Manhattan prosecutors say Hayden Espinosa operated through a white-supremacist channel on Telegram that they discovered after a racist massacre in Buffalo.`\
 https://nytimes.com/2024/06/11/nyregion/texas-selling-firearms-imprisoned-charges.html
-
-**Is That Dog Actually a … Human?**\
-`TikTok is onto Goldendoodles, the designer dog breed that is a cross between golden retriever and poodle, noting that they exhibit quite a few person-like qualities.`\
-https://nytimes.com/2024/06/11/style/goldendoodle-dogs-tiktok.html
 
