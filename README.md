@@ -1,3 +1,11 @@
+**Israel-Gaza Conflict**\
+`Coverage of the Israel-Gaza conflict from the Visual Investigations team. The work includes an investigation that used aerial imagery and artificial intelligence to detect bomb craters, showing that one of Israel’s biggest bombs was used routinely in south Gaza after residents moved there during Israel's initial invasion. The investigation was part of a series of stories that received the Pulitzer Prize in International Reporting in 2024. `\
+https://nytimes.com/spotlight/visual-investigation-israel-gaza
+
+**Police Identify Suspect Accused of Setting Fire to Miami Building**\
+`An arrest affidavit said the man shot a building employee and then started the worst fire in Miami in 25 years.`\
+https://nytimes.com/2024/06/11/us/police-identify-suspect-accused-of-setting-fire-to-miami-building.html
+
 **Alito No Longer Tries to Hide His Theocratic Worldview**\
 `Unlike Chief Justice Roberts, he wants to bring God onto the Supreme Court bench.`\
 https://nytimes.com/live/2024/06/04/opinion/thepoint/alito-roberts-court-religion
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/11/world/middleeast/migrant-boat-sinking-yemen.html
 **World Bank Sees Rosier Growth Outlook**\
 `But rising trade barriers pose a long-term threat to global output as protectionist policies spread, the bank said.`\
 https://nytimes.com/2024/06/11/business/economy/global-economy-world-bank.html
-
-**Memoir by Trump’s Nephew Will Shed Light Into ‘Darker Corner’ of Family**\
-`Fred C. Trump III’s “All in the Family: The Trumps and How We Got This Way” will hit shelves July 30.`\
-https://nytimes.com/2024/06/11/books/review/fred-trump-nephew-memoir.html
-
-**What to Watch in Primaries in Maine, South Carolina, Nevada and North Dakota**\
-`A special House election will also be held in Ohio to replace a retiring Republican congressman.`\
-https://nytimes.com/2024/06/11/us/politics/primaries-maine-south-carolina-nevada-north-dakota.html
 
