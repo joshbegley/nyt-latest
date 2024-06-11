@@ -1,3 +1,7 @@
+**Malawi’s Vice President Killed in Plane Crash**\
+`After an overnight search, rescuers found the wreckage of the military aircraft that had been carrying Saulos Chilima and nine others.`\
+https://nytimes.com/2024/06/11/world/africa/malawi-plane-crash-vice-president-chilima.html
+
 **Seeking Safety in Cyprus, They’re Stuck in Island’s U.N. Buffer Zone**\
 `Nearly 30 people who hoped to seek refuge in the European Union nation are in limbo after trying to cross from the Turkish-occupied part of the island. Many are Syrians who left Lebanon.`\
 https://nytimes.com/2024/06/11/world/europe/cyprus-syria-lebanon-asylum.html

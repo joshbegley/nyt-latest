@@ -35,6 +35,6 @@ https://nytimes.com/2024/06/11/podcasts/ceasefire-un-justice-alito.html
 https://nytimes.com/2024/06/11/crosswords/connections-companion-367.html
 
 **Malawi’s Vice President Killed in Plane Crash**\
-`After an overnight search, rescuers found the wreckage of the military aircraft that had been carrying Vice President Saulos Chilima and nine others.`\
+`After an overnight search, rescuers found the wreckage of the military aircraft that had been carrying Saulos Chilima and nine others.`\
 https://nytimes.com/2024/06/11/world/africa/malawi-plane-crash-vice-president-chilima.html
 
