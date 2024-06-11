@@ -1,3 +1,7 @@
+**Government’s Case Against Hunter Biden Used His Own Words Against Him**\
+`Details from a 2021 memoir ended up being repeated in court testimony.`\
+https://nytimes.com/2024/06/11/us/elections/prosecution-hunter-biden-trial.html
+
 **Disney’s Reimagined Splash Mountain Ride Is Set to Open**\
 `The ride was closed last year because of its connection to a racist film. Disney overhauled it to focus on Tiana, Disney’s first Black princess, drawing praise and backlash.`\
 https://nytimes.com/2024/06/11/business/disney-world-splash-mountain-princess-tiana.html
