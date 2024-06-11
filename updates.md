@@ -1,3 +1,7 @@
+**Memoir by Trump’s Nephew Will Shed Light Into ‘Darker Corner’ of Family**\
+`Fred C. Trump III’s “All in the Family: The Trumps and How We Got This Way” will hit shelves July 30.`\
+https://nytimes.com/2024/06/11/books/review/fred-trump-nephew-memoir.html
+
 **Trump Nephew to Publish Memoir in July**\
 `Fred C. Trump III’s “All in the Family: The Trumps and How We Got This Way” will hit shelves months before his sister Mary’s second memoir.`\
 https://nytimes.com/2024/06/11/books/review/fred-trump-nephew-memoir.html
