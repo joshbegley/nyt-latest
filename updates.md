@@ -1,3 +1,7 @@
+**The Full List of the 2024 James Beard Chef and Restaurant Award Winners**\
+`Restaurants and chefs from Washington, D.C., Portland, Ore., and New Orleans took home top honors.`\
+https://nytimes.com/2024/06/10/dining/james-beard-award-winners.html
+
 **Trumpet Flourish**\
 `Chloe Revery never misses.`\
 https://nytimes.com/2024/06/10/crosswords/daily-puzzle-2024-06-11.html
