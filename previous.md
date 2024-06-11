@@ -1,3 +1,11 @@
+**What Scares a Master of Fear?**\
+`Feeling frightened isn’t always fun, but it can be a source of endless inspiration.`\
+https://nytimes.com/2024/06/11/special-series/rl-stine-goosebumps-fear-childhood.html
+
+**France’s Conservative Leader Calls for Alliance With Far Right**\
+`The announcement by the head of the Republicans was a historic break with his party’s policy. Top politicians on the right have called for him to step down, bringing the party to the brink of implosion.`\
+https://nytimes.com/2024/06/11/world/europe/france-conservatives-far-right-alliance.html
+
 **Fate of Gaza Cease-Fire Proposal Is ‘on Hamas,’ Blinken Says**\
 `Secretary of State Antony J. Blinken said the world was waiting for Hamas to respond to a U.S.-backed cease-fire plan endorsed by the U.N. Security Council. Neither Israel nor Hamas has formally embraced it.`\
 https://nytimes.com/video/world/middleeast/100000009515055/blinken-gaza-ceasefire-resolution-hamas.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/06/11/us/biden-trump-election
 **How a Winter in California’s Gold Country Started Mark Twain’s Career**\
 `The young writer came across a tale in the Sierra Nevada foothills that would bring him national attention.`\
 https://nytimes.com/2024/06/11/us/california-gold-country-mark-twain.html
-
-**Hello, Dolley? Earliest Known Photograph of a First Lady Comes to Auction**\
-`Sotheby’s is offering a recently surfaced 1846 daguerreotype of Dolley Madison, who is credited with inventing the role of first lady.`\
-https://nytimes.com/2024/06/11/arts/design/dolley-madison-photograph-auction.html
-
-**Seeking Safety in Cyprus, They’re Stuck in Island’s U.N. Buffer Zone**\
-`Nearly 30 people who hoped to seek refuge in the European Union nation are in limbo after trying to cross from the Turkish-occupied part of the island. Many are Syrians who left Lebanon.`\
-https://nytimes.com/2024/06/11/world/europe/cyprus-syria-lebanon-asylum.html
 
