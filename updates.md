@@ -1,3 +1,7 @@
+**After Weeks of Planning, Seconds Made the Difference in Israeli Hostage Rescue**\
+`When a truck carrying three of the four rescued hostages broke down and came under fire, Israel says it called in an airstrike. Scores of Palestinians, including children, were killed during the operation, according to Gazan officials.`\
+https://nytimes.com/2024/06/10/world/middleeast/israel-hostage-rescue-gaza.html
+
 **Chemical Makers Sue Over Rule to Rid Water of ‘Forever Chemicals’**\
 `Industry groups said the E.P.A. had exceeded its authority in requiring the drinking-water cleanup. The chemicals, known as PFAS, are linked to cancer and health risks.`\
 https://nytimes.com/2024/06/10/climate/pfas-forever-chemicals-lawsuit.html
