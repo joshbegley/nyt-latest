@@ -1,33 +1,40 @@
-**Is Serifos the Perfect Greek Island?**\
-`A writer’s checklist included ferry service, great beaches and good local restaurants. Add rich history, a welcoming population and proximity to other islands. The mythical cave of the Cyclops was gravy.`\
-https://nytimes.com/2024/06/11/travel/serifos-greek-island.html
+**Why Macron’s Plan to Vanquish the Right Might Just Succeed**\
+`The European center is holding, and Macron is hoping France will stay reasonable.`\
+https://nytimes.com/live/2024/06/04/opinion/thepoint/eu-france-macron-right
 
-**Welcomed Into Joan Didion’s Home, if Not Her Inner Circle**\
-`In “The Uptown Local,” Cory Leadbeater describes his years as the late writer’s assistant and companion. Yet the fond portrait reveals more about him than her.`\
-https://nytimes.com/2024/06/11/books/review/cory-leadbeater-joan-didion-uptown-local.html
+**There’s a Reason Trump Has Friends in High Places**\
+`Even the weak regulatory grasp of capitalist democracy is too strong for, well, capitalists.`\
+https://nytimes.com/2024/06/11/opinion/trump-business-capitalism-democracy.html
 
-**The Great Interest Rate Debate**\
-`Why higher rates are replacing inflation as the thing to hate.`\
-https://nytimes.com/2024/06/11/opinion/interest-rates.html
+**Issues Affecting Women Take Center Stage as Southern Baptists Hold Annual Meeting**\
+`Delegates will vote on whether to tighten restrictions on women in pastoral leadership and whether to condemn the use of in vitro fertilization.`\
+https://nytimes.com/2024/06/11/us/southern-baptist-meeting-women.html
 
-**A Rustic Cabin in the Woods Was His Dream. Not Hers.**\
-`It didn’t help that it was straight out of ‘Twin Peaks’: ‘Wood on wood on wood, in a very terrifying way.’ But now it’s bright and airy.`\
-https://nytimes.com/2024/06/11/realestate/wood-cabin-home-ny.html
+**Watch Glen Powell and Adria Arjona Fight and Flirt in ‘Hit Man’**\
+`The director Richard Linklater narrates a pivotal sequence from his rom-com thriller.`\
+https://nytimes.com/2024/06/11/movies/hit-man-clip.html
 
-**As the War in Gaza Drags on, Palestinians in the West Bank Have ‘Reached Rock Bottom’**\
-`By Sarah Kerr`\
-https://nytimes.com/2024/06/11/video/palestinians-west-bank-war.html
+**Age Is on the Ballot in 2024, at Least in North Dakota**\
+`A vote on Tuesday on a proposed age limit for members of Congress is a rare chance to find out what voters actually believe about politicians and age.`\
+https://nytimes.com/2024/06/11/us/north-dakota-candidate-age.html
 
-**Palestinians in the West Bank Are Living in the Shadow of the War in Gaza**\
-`Since the Hamas-led attacks on Oct. 7, Israel has tightened its grip on the occupied West Bank. Two Palestinians describe how they have been impacted – and their worries for the future.`\
-https://nytimes.com/video/world/middleeast/100000009414689/palestinians-west-bank-war.html
+**Torture Accusations Could Lead to Civil Rights Case in Mississippi**\
+`Federal authorities investigating the “Goon Squad” in a suburban sheriff’s office have widened their investigation, seeking out more victims of brutality.`\
+https://nytimes.com/2024/06/11/us/torture-accusations-could-lead-to-civil-rights-case-in-mississippi.html
 
-**‘Hit Man’ | Anatomy of a Scene**\
-`Richard Linklater, the director of “Hit Man,” narrates a pivotal sequence from his film, starring Glen Powell and Adria Arjona.`\
-https://nytimes.com/video/movies/100000009513738/hit-man-scene.html
+**First Came ‘Spam.’ Now, With A.I., We’ve Got ‘Slop’**\
+`A new term has emerged to describe dubious A.I.-generated material.`\
+https://nytimes.com/2024/06/11/style/ai-search-slop.html
 
-**A Champion Sherpa Died Guiding Foreigners. Is It Too Dangerous?**\
-`Tenjen Lama Sherpa was one of the most storied mountain guides of his generation. Now, he and two of his brothers are dead, and their youngest brother must keep climbing to make a living.`\
-https://nytimes.com/2024/06/11/world/asia/sherpa-mountain-climber-record.html
+**‘The Line’ in Saudi Arabia Is a Spectacle, but That Doesn’t Make It Smart**\
+`Success isn’t an Instagrammable skyline.`\
+https://nytimes.com/2024/06/11/opinion/saudi-arabia-the-line.html
 
-**Blinken seeks to press Hamas and Israel over a cease-fire, and other news.**\
+**Fed Is in No Rush to Cut Rates as Economy Holds Up**\
+`Federal Reserve officials are expected to leave interest rates unchanged at their meeting this week. They will also release a fresh set of economic projections.`\
+https://nytimes.com/2024/06/11/business/economy/fed-interest-rates-inflation.html
+
+**Restore Elon Musk (and Tesla) to Greatness**\
+`Tesla shareholders must reject the chief executive’s unorthodox pay package to help turn him back into the visionary we need to fight climate change.`\
+https://nytimes.com/2024/06/11/opinion/tesla-elon-musk-pay.html
+
