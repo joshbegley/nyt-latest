@@ -1,3 +1,7 @@
+**The Full List of the 2024 James Beard Chef and Restaurant Award Winners**\
+`Restaurants and chefs from Washington, D.C., Portland, Ore., and New Orleans took home top honors.`\
+https://nytimes.com/2024/06/10/dining/james-beard-award-winners.html
+
 **Trumpet Flourish**\
 `Chloe Revery never misses.`\
 https://nytimes.com/2024/06/10/crosswords/daily-puzzle-2024-06-11.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/10/world/middleeast/israel-haredi-orthodox-draft-bil
 **Colorado’s Trumpified G.O.P. Says to Burn Pride Flags**\
 `The MAGA movement tears another state Republican Party apart.`\
 https://nytimes.com/2024/06/10/opinion/colorado-gop-pride.html
-
-**Critical Baltimore Shipping Channel Reopens 11 Weeks After Bridge Collapse**\
-`The 700-foot-wide section of the Patapsco River where the Dali slammed into the Francis Scott Key Bridge is open for business.`\
-https://nytimes.com/2024/06/10/us/baltimore-bridge-shipping-channel.html
 
