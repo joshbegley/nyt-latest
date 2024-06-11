@@ -15,11 +15,11 @@ https://nytimes.com/2024/06/11/business/biden-nears-pick-for-next-fdic-chair.htm
 https://nytimes.com/2024/06/11/us/politics/rfk-polling-latinos.html
 
 **Here’s the latest on the trial.**\
-`By Glenn Thrush, Eileen Sullivan and Zach Montague`\
+`By Glenn Thrush`\
 https://nytimes.com/live/2024/06/11/us/hunter-biden-trial-verdict/heres-the-latest-on-the-trial
 
-**Live Updates: Jury Reaches a Verdict in Hunter Biden’s Gun Case**\
-`President Biden’s son faces three charges of lying about his drug use in applying to buy a handgun in 2018. If convicted, he could face up to 25 years in prison and $750,000 in fines.`\
+**Live Updates: Hunter Biden Found Guilty in Gun Case**\
+`President Biden’s son was charged with three felony counts tied to a handgun purchase in 2018. If convicted, he could face up to 25 years in prison and $750,000 in fines.`\
 https://nytimes.com/live/2024/06/11/us/hunter-biden-trial-verdict
 
 **Mistral, a French A.I. Start-Up, Is Valued at $6.2 Billion**\
