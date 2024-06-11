@@ -1,3 +1,11 @@
+**The U.S. announces more humanitarian aid for Palestinians.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/06/11/world/israel-gaza-war-hamas/the-us-announces-more-humanitarian-aid-for-palestinians
+
+**Disney Ride Tainted by Racist Film Will Reopen With New Story**\
+`The ride was closed last year because of its connection to a racist film. Disney overhauled it to focus on Tiana, Disney’s first Black princess, drawing praise and backlash.`\
+https://nytimes.com/2024/06/11/business/disney-world-splash-mountain-princess-tiana.html
+
 **Judge Strikes Down Florida’s Ban on Transgender Care for Minors**\
 `A federal judge ruled that Florida could not “prohibit transgender minors from receiving specific kinds of widely accepted gender-affirming medical care.”`\
 https://nytimes.com/2024/06/11/us/florida-transgender-law.html
