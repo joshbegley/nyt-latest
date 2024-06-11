@@ -1,3 +1,11 @@
+**Was This Sea Creature Our Ancestor? Scientists Turn a Famous Fossil on its Head.**\
+`Researchers have long assumed that a tube in the famous Pikaia fossil ran along the animal’s back. But a new study turned the fossil upside-side down.`\
+https://nytimes.com/2024/06/11/science/pikaia-vertebrate-evolution.html
+
+**The Best Thing About Salad Is Croutons**\
+`They add craveable texture to summery dinners like Lidey Heuck’s chopped salad with chickpeas, feta and avocado.`\
+https://nytimes.com/2024/06/11/dining/the-best-thing-about-salad-is-croutons.html
+
 **5 Festive Recipes for a Juneteenth Feast**\
 `Make one, or make them all. Just make them yours.`\
 https://nytimes.com/2024/06/11/dining/juneteenth-food-ideas.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/11/us/police-identify-suspect-accused-of-setting-fir
 **Alito No Longer Tries to Hide His Theocratic Worldview**\
 `Unlike Chief Justice Roberts, he wants to bring God onto the Supreme Court bench.`\
 https://nytimes.com/live/2024/06/04/opinion/thepoint/alito-roberts-court-religion
-
-**At the Ojai Festival, a Star Pianist Keeps the Focus on Young Artists**\
-`Mitsuko Uchida appeared every night at her edition of the Ojai Music Festival. The rest of the time was given to other performers.`\
-https://nytimes.com/2024/06/11/arts/music/ojai-festival-mitsuko-uchida-mahler-chamber-orchestra.html
-
-**What Scares a Master of Fear?**\
-`Feeling frightened isn’t always fun, but it can be a source of endless inspiration.`\
-https://nytimes.com/2024/06/11/special-series/rl-stine-goosebumps-fear-childhood.html
 

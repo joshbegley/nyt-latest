@@ -1,3 +1,11 @@
+**Was This Sea Creature Our Ancestor? Scientists Turn a Famous Fossil on its Head.**\
+`Researchers have long assumed that a tube in the famous Pikaia fossil ran along the animal’s back. But a new study turned the fossil upside-side down.`\
+https://nytimes.com/2024/06/11/science/pikaia-vertebrate-evolution.html
+
+**The Best Thing About Salad Is Croutons**\
+`They add craveable texture to summery dinners like Lidey Heuck’s chopped salad with chickpeas, feta and avocado.`\
+https://nytimes.com/2024/06/11/dining/the-best-thing-about-salad-is-croutons.html
+
 **5 Festive Recipes for a Juneteenth Feast**\
 `Make one, or make them all. Just make them yours.`\
 https://nytimes.com/2024/06/11/dining/juneteenth-food-ideas.html
