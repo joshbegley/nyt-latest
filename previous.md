@@ -1,3 +1,7 @@
+**Wednesday Briefing: Hunter Biden Found Guilty on Gun Charges**\
+`Also, pressure on Israel and Hamas to reach a deal.`\
+https://nytimes.com/2024/06/11/world/asia/hunter-biden-israel-hamas-deal-asia.html
+
 **Morrie Markoff, Listed as Oldest Man in the U.S., Dies at 110**\
 `A rare supercentenarian, he remained remarkably lucid after 11 decades, even maintaining a blog. His brain has been donated for research on what’s known as super-aging.`\
 https://nytimes.com/2024/06/11/us/morrie-markoff-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/06/11/business/france-economy-macron.html
 **Restaurant Review: Penny, a Seafood Counter That Knows What It’s About**\
 `Almost everything on the menu at this sibling of Claud contains seafood. You sit at a counter to eat it. The only surprise is how well it all works together.`\
 https://nytimes.com/2024/06/11/dining/restaurant-review-penny-east-village.html
-
-**By a Stream in Vermont, a Glimpse of a Plant Last Seen a Century Ago**\
-`“Are you sitting down?” Vermont’s state botanist asked a fellow plant expert after spotting false mermaid-weed last month.`\
-https://nytimes.com/2024/06/11/us/vermont-plant-extinct-mermaid-weed.html
 

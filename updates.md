@@ -1,3 +1,7 @@
+**Wednesday Briefing: Hunter Biden Found Guilty on Gun Charges**\
+`Also, pressure on Israel and Hamas to reach a deal.`\
+https://nytimes.com/2024/06/11/world/asia/hunter-biden-israel-hamas-deal-asia.html
+
 **Morrie Markoff, Listed as Oldest Man in the U.S., Dies at 110**\
 `A rare supercentenarian, he remained remarkably lucid after 11 decades, even maintaining a blog. His brain has been donated for research on what’s known as super-aging.`\
 https://nytimes.com/2024/06/11/us/morrie-markoff-dead.html
