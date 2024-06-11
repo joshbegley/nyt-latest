@@ -1,3 +1,19 @@
+**On conservative social media, the guilty verdict gets a ‘yawn.’**\
+`Right-wing influencers have spent much of Hunter Biden’s trial claiming, without evidence, that the process was a sham in various ways.`\
+https://nytimes.com/live/2024/06/11/us/hunter-biden-trial-verdict/on-conservative-social-media-the-guilty-verdict-gets-a-yawn
+
+**‘Presumed Innocent’ Review: Disorder in the Court**\
+`Jake Gyllenhaal steps in for Harrison Ford in a new, highly strung adaptation of Scott Turow’s legal thriller for Apple TV+.`\
+https://nytimes.com/2024/06/11/arts/television/presumed-innocent-review.html
+
+**The U.S. announces more humanitarian aid for Palestinians.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/06/11/world/israel-gaza-war-hamas/the-us-announces-more-humanitarian-aid-for-palestinians
+
+**Disney Ride Tainted by Racist Film Will Reopen With New Story**\
+`The ride was closed last year because of its connection to a racist film. Disney overhauled it to focus on Tiana, Disney’s first Black princess, drawing praise and backlash.`\
+https://nytimes.com/2024/06/11/business/disney-world-splash-mountain-princess-tiana.html
+
 **Disney’s Reimagined Splash Mountain Ride Is Set to Open**\
 `The ride was closed last year because of its connection to a racist film. Disney overhauled it to focus on Tiana, Disney’s first Black princess, drawing praise and backlash.`\
 https://nytimes.com/2024/06/11/business/disney-world-splash-mountain-princess-tiana.html
