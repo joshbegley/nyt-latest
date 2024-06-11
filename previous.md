@@ -1,3 +1,7 @@
+**Robert De Niro Doesn’t Mind Being Celebrated**\
+`Blake Lively, Jude Law and Selma Blair turned out for the Tribeca Film Festival’s annual artists dinner, ahead of a weekend devoted to Mr. De Niro’s work.`\
+https://nytimes.com/2024/06/11/style/robert-de-niro-tribeca-festival-dinner.html
+
 **Ben Potter, Who Voiced Popular Comic Books on YouTube, Dies at 40**\
 `Mr. Potter narrated the epic sagas of popular comic book heroes and villains on his channel Comicstorian.`\
 https://nytimes.com/2024/06/11/books/ben-potter-youtube-comics-dead.html
@@ -29,12 +33,4 @@ https://nytimes.com/2024/06/11/us/vermont-plant-extinct-mermaid-weed.html
 **U.S. to Send Another Patriot Missile Battery to Ukraine**\
 `The system is one of the best air-defense weapons, but the United States and its allies have a limited supply.`\
 https://nytimes.com/2024/06/11/us/politics/patriot-missiles-ukraine-war.html
-
-**A juror told reporters that the jury was impartial despite feeling sympathy for Hunter Biden.**\
-`By Zach Montague`\
-https://nytimes.com/live/2024/06/11/us/hunter-biden-trial-verdict/a-juror-told-reporters-that-the-jury-was-impartial-despite-feeling-sympathy-for-hunter-biden
-
-**Young Thug Lawyer Clashes With Judge in Chaotic Gang Case**\
-`Brian Steel, a lawyer for the Atlanta rapper, was ordered to serve 10 weekends in jail after a dispute with the judge, further complicating a messy gang conspiracy trial.`\
-https://nytimes.com/2024/06/11/arts/music/young-thug-brian-steel-trial.html
 

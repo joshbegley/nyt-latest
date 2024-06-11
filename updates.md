@@ -1,3 +1,7 @@
+**Robert De Niro Doesn’t Mind Being Celebrated**\
+`Blake Lively, Jude Law and Selma Blair turned out for the Tribeca Film Festival’s annual artists dinner, ahead of a weekend devoted to Mr. De Niro’s work.`\
+https://nytimes.com/2024/06/11/style/robert-de-niro-tribeca-festival-dinner.html
+
 **Ben Potter, Who Voiced Popular Comic Books on YouTube, Dies at 40**\
 `Mr. Potter narrated the epic sagas of popular comic book heroes and villains on his channel Comicstorian.`\
 https://nytimes.com/2024/06/11/books/ben-potter-youtube-comics-dead.html
