@@ -1,3 +1,11 @@
+**How a Winter in California’s Gold Country Started Mark Twain’s Career**\
+`The young writer came across a tale in the Sierra Nevada foothills that would bring him national attention.`\
+https://nytimes.com/2024/06/11/us/california-gold-country-mark-twain.html
+
+**Hello, Dolley? Earliest Known Photograph of a First Lady Comes to Auction**\
+`Sotheby’s is offering a recently surfaced 1846 daguerreotype of Dolley Madison, who is credited with inventing the role of first lady.`\
+https://nytimes.com/2024/06/11/arts/design/dolley-madison-photograph-auction.html
+
 **Malawi’s Vice President Killed in Plane Crash**\
 `After an overnight search, rescuers found the wreckage of the military aircraft that had been carrying Saulos Chilima and nine others.`\
 https://nytimes.com/2024/06/11/world/africa/malawi-plane-crash-vice-president-chilima.html
