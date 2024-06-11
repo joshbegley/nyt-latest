@@ -1,3 +1,7 @@
+**After the U.N. Security Council backed a cease-fire, Blinken said the plan’s fate ‘is down to one person,’ referring to Hamas’s leader.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/06/11/world/israel-gaza-war-hamas/after-the-un-security-council-backed-a-cease-fire-blinken-said-its-fate-is-down-to-one-person-referring-to-hamass-leader
+
 **Why Macron’s Plan to Vanquish the Right Might Just Succeed**\
 `The European center is holding, and Macron is hoping France will stay reasonable.`\
 https://nytimes.com/live/2024/06/04/opinion/thepoint/eu-france-macron-right
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/11/opinion/saudi-arabia-the-line.html
 **Fed Is in No Rush to Cut Rates as Economy Holds Up**\
 `Federal Reserve officials are expected to leave interest rates unchanged at their meeting this week. They will also release a fresh set of economic projections.`\
 https://nytimes.com/2024/06/11/business/economy/fed-interest-rates-inflation.html
-
-**Restore Elon Musk (and Tesla) to Greatness**\
-`Tesla shareholders must reject the chief executive’s unorthodox pay package to help turn him back into the visionary we need to fight climate change.`\
-https://nytimes.com/2024/06/11/opinion/tesla-elon-musk-pay.html
 
