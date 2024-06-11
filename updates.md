@@ -1,3 +1,15 @@
+**Happy Pride Month, Martha-Ann!**\
+`Her distaste for the rainbow flag shows how powerful it has become.`\
+https://nytimes.com/live/2024/06/04/opinion/thepoint/alito-wife-flag-pride
+
+**In Taped Remarks at Supreme Court Gala, Revealing Glimpses of Roberts and Alito**\
+`Chief Justice John G. Roberts Jr. and Justice Samuel A. Alito Jr., once close allies, have embraced starkly different conceptions of the judicial role.`\
+https://nytimes.com/2024/06/11/us/politics/supreme-court-gala-alito-roberts.html
+
+**In ‘Devastating’ Split, a Famous Hot Dog Gobbler and Nathan’s Part Ways**\
+`Joey Chestnut had long been the face of the Nathan’s Famous Hot Dog Eating Contest. Then he signed up to endorse a rival brand’s vegan dogs.`\
+https://nytimes.com/2024/06/11/nyregion/nathans-hot-dog-eating-contest-joey-chestnut.html
+
 **Robert De Niro Doesn’t Mind Being Celebrated**\
 `Blake Lively, Jude Law, Selma Blair and many more turned out for the Tribeca Film Festival’s annual artists dinner, ahead of a weekend devoted to Mr. De Niro’s work.`\
 https://nytimes.com/2024/06/11/style/robert-de-niro-tribeca-festival-dinner.html
