@@ -1,3 +1,7 @@
+**Late Night Pounces on Trump’s First Meeting With Probation Officer**\
+`“Things got off to a rough start when Trump offered the probation officer $130,000,” Jimmy Fallon joked.`\
+https://nytimes.com/2024/06/11/arts/television/late-night-trump-probation-meeting.html
+
 **Malawi’s Vice President Killed in Plane Crash**\
 `After an overnight search, rescuers found the wreckage of the military aircraft that had been carrying Vice President Saulos Chilima and nine others.`\
 https://nytimes.com/2024/06/11/world/africa/malawi-plane-crash-vice-president-chilima.html

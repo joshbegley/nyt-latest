@@ -1,3 +1,7 @@
+**Late Night Pounces on Trump’s First Meeting With Probation Officer**\
+`“Things got off to a rough start when Trump offered the probation officer $130,000,” Jimmy Fallon joked.`\
+https://nytimes.com/2024/06/11/arts/television/late-night-trump-probation-meeting.html
+
 **4 Israeli Soldiers Are Killed in Rafah in Apparent Ambush**\
 `Israel said the soldiers were killed when Hamas militants detonated explosives in a three-story building. Some wounded soldiers were in critical condition.`\
 https://nytimes.com/2024/06/11/world/middleeast/israel-soldiers-killed-hamas-rafah.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/04/opinion/thepoint/eu-france-macron-right
 **There’s a Reason Trump Has Friends in High Places**\
 `Even the weak regulatory grasp of capitalist democracy is too strong for, well, capitalists.`\
 https://nytimes.com/2024/06/11/opinion/trump-business-capitalism-democracy.html
-
-**Issues Affecting Women Take Center Stage as Southern Baptists Hold Annual Meeting**\
-`Delegates will vote on whether to tighten restrictions on women in pastoral leadership and whether to condemn the use of in vitro fertilization.`\
-https://nytimes.com/2024/06/11/us/southern-baptist-meeting-women.html
 
