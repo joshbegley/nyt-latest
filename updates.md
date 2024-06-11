@@ -1,3 +1,11 @@
+**5 Festive Recipes for a Juneteenth Feast**\
+`Make one, or make them all. Just make them yours.`\
+https://nytimes.com/2024/06/11/dining/juneteenth-food-ideas.html
+
+**Bánh by Lauren Offers Pandan Coffee Cakes, Fried Sesame Balls and More**\
+`Veerays will serve tandoori food, Son del North has Northern Mexico-style burritos and more restaurant news.`\
+https://nytimes.com/2024/06/11/dining/nyc-restaurant-news.html
+
 **Reflections on Gen Z and ‘Sellout Culture’**\
 `Responses to an article about a generation tugged in different directions. Also: Gun trafficking to Mexico; a strong leader; Joe Biden’s tall tales.`\
 https://nytimes.com/2024/06/11/opinion/generation-z-sellout-economy.html

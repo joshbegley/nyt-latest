@@ -1,3 +1,11 @@
+**5 Festive Recipes for a Juneteenth Feast**\
+`Make one, or make them all. Just make them yours.`\
+https://nytimes.com/2024/06/11/dining/juneteenth-food-ideas.html
+
+**Bánh by Lauren Offers Pandan Coffee Cakes, Fried Sesame Balls and More**\
+`Veerays will serve tandoori food, Son del North has Northern Mexico-style burritos and more restaurant news.`\
+https://nytimes.com/2024/06/11/dining/nyc-restaurant-news.html
+
 **Reflections on Gen Z and ‘Sellout Culture’**\
 `Responses to an article about a generation tugged in different directions. Also: Gun trafficking to Mexico; a strong leader; Joe Biden’s tall tales.`\
 https://nytimes.com/2024/06/11/opinion/generation-z-sellout-economy.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/11/arts/music/ojai-festival-mitsuko-uchida-mahler-ch
 **What Scares a Master of Fear?**\
 `Feeling frightened isn’t always fun, but it can be a source of endless inspiration.`\
 https://nytimes.com/2024/06/11/special-series/rl-stine-goosebumps-fear-childhood.html
-
-**France’s Conservative Leader Calls for Alliance With Far Right**\
-`The announcement by the head of the Republicans was a historic break with his party’s policy. Top politicians on the right have called for him to step down, bringing the party to the brink of implosion.`\
-https://nytimes.com/2024/06/11/world/europe/france-conservatives-far-right-alliance.html
-
-**Fate of Gaza Cease-Fire Proposal Is ‘on Hamas,’ Blinken Says**\
-`Secretary of State Antony J. Blinken said the world was waiting for Hamas to respond to a U.S.-backed cease-fire plan endorsed by the U.N. Security Council. Neither Israel nor Hamas has formally embraced it.`\
-https://nytimes.com/video/world/middleeast/100000009515055/blinken-gaza-ceasefire-resolution-hamas.html
 
