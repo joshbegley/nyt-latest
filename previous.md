@@ -1,3 +1,7 @@
+**Trumpet Flourish**\
+`Chloe Revery never misses.`\
+https://nytimes.com/2024/06/10/crosswords/daily-puzzle-2024-06-11.html
+
 **After Weeks of Planning, Seconds Made the Difference in Israeli Hostage Rescue**\
 `When a truck carrying three of the four rescued hostages broke down and came under fire, Israel says it called in an airstrike. Scores of Palestinians, including children, were killed during the operation, according to Gazan officials.`\
 https://nytimes.com/2024/06/10/world/middleeast/israel-hostage-rescue-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/10/opinion/colorado-gop-pride.html
 **Critical Baltimore Shipping Channel Reopens 11 Weeks After Bridge Collapse**\
 `The 700-foot-wide section of the Patapsco River where the Dali slammed into the Francis Scott Key Bridge is open for business.`\
 https://nytimes.com/2024/06/10/us/baltimore-bridge-shipping-channel.html
-
-**Judge Strikes One Element From Trump Indictment in Documents Case**\
-`Judge Aileen Cannon threw out one basis for the case against the former president, involving a highly sensitive military map he showed an aide after leaving office.`\
-https://nytimes.com/2024/06/10/us/politics/trump-documents-charges-cannon.html
 
