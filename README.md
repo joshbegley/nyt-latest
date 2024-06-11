@@ -1,3 +1,7 @@
+**Will Hunter Biden Go to Jail? Here’s What His Sentence Could Look Like**\
+`The president’s son is a first-time offender who was not accused of using the weapon in another crime.`\
+https://nytimes.com/2024/06/11/us/politics/hunter-biden-jail-sentence.html
+
 **Is the Sugar Substitute Xylitol Safe for Your Heart?**\
 `New research suggests the sweetener is linked to health issues. Here’s what to know.`\
 https://nytimes.com/2024/06/11/well/eat/xylitol-sugar-sweetener-safety.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/11/nyregion/campaign-finance-fake-donors.html
 **A guilty verdict for his son is likely to weigh heavily on President Biden.**\
 `By Katie Rogers`\
 https://nytimes.com/live/2024/06/11/us/hunter-biden-trial-verdict/a-guilty-verdict-for-his-son-is-likely-to-weigh-heavily-on-president-biden
-
-**David Boaz, a Leading Voice of Libertarianism, Dies at 70**\
-`At the Cato Institute, he argued against government interference in Americans’ lives, including policing their drug use, and supported legal equality for gay people.`\
-https://nytimes.com/2024/06/11/us/politics/david-boaz-dead.html
 
