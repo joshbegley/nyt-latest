@@ -1,3 +1,7 @@
+**Justice Alito’s Wife, in Secretly Recorded Conversation, Complains About Pride Flag**\
+`In a conversation with a woman posing as a conservative supporter, Martha-Ann Alito appeared to push back against having to look at a symbol of L.G.B.T.Q. rights.`\
+https://nytimes.com/2024/06/10/us/politics/alito-pride-flag.html
+
 **The Full List of the 2024 James Beard Chef and Restaurant Award Winners**\
 `Restaurants and chefs from Washington, D.C., Portland, Ore., and New Orleans took home top honors.`\
 https://nytimes.com/2024/06/10/dining/james-beard-award-winners.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/10/us/baltimore-drug-overdoses-city-council-hearings
 **Israel’s Parliament Revives Bill on Drafting Ultra-Orthodox Men Into Military**\
 `The vote was aimed at keeping the divisive issue in the hands of legislators instead of judges, who have repeatedly determined that an exemption should not stand.`\
 https://nytimes.com/2024/06/10/world/middleeast/israel-haredi-orthodox-draft-bill.html
-
-**Colorado’s Trumpified G.O.P. Says to Burn Pride Flags**\
-`The MAGA movement tears another state Republican Party apart.`\
-https://nytimes.com/2024/06/10/opinion/colorado-gop-pride.html
 
