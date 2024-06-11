@@ -18,7 +18,7 @@ https://nytimes.com/2024/06/11/us/florida-transgender-law.html
 `The Security Council can’t force anyone to adopt the plan, but its passage of a resolution backing it increases pressure on both sides to make a deal.`\
 https://nytimes.com/2024/06/11/world/middleeast/israel-gaza-cease-fire-plan.html
 
-**After Trump endorses his rival, a Nevada Senate candidate lashes out.**\
+**After Trump Endorses his Rival, a Nevada Senate Candidate Lashes Out**\
 `Jeff Gunter, who is competing in the Nevada Senate Republican primary, said without evidence that “a big check” swayed the former president.`\
 https://nytimes.com/2024/06/11/us/politics/jeff-gunter-nevada-republican-primary.html
 
