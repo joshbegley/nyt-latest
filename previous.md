@@ -1,3 +1,11 @@
+**Hamas and Israel Face Pressure to Embrace Cease-Fire Adopted by U.N.**\
+`Despite positive statements and international urging, neither of the warring parties accepted a U.S.-backed plan to halt the war in Gaza, let displaced Palestinians go home and free hostages.`\
+https://nytimes.com/2024/06/11/world/middleeast/israel-hamas-ceasefire-plan.html
+
+**America Needs Big Wins. These Would Be Three.**\
+`Israel, Ukraine and American democracy are on the line.`\
+https://nytimes.com/2024/06/11/opinion/biden-gaza-ukraine.html
+
 **Biden Proposes Dropping Medical Debt From Credit Reports**\
 `The move would offer relief to millions of Americans who need a better credit score to get an apartment or a car, but it would not wipe out their financial obligations.`\
 https://nytimes.com/2024/06/11/us/politics/biden-medical-debt-credit-reports.html
@@ -21,12 +29,4 @@ https://nytimes.com/live/2024/06/11/world/israel-gaza-war-hamas/hamas-offers-cou
 **Opponents of Hochul’s Move to Halt Congestion Pricing May Go to Court**\
 `The New York City comptroller, Brad Lander, and a group of stakeholders have developed a legal strategy to overturn Gov. Kathy Hochul’s shutdown of the Midtown toll program.`\
 https://nytimes.com/2024/06/11/nyregion/congestion-pricing-lawsuits.html
-
-**An Israeli raid in West Bank kills several Palestinians.**\
-`By Anjana Sankar`\
-https://nytimes.com/live/2024/06/11/world/israel-gaza-war-hamas/an-israeli-raid-in-west-bank-kills-several-palestinians
-
-**At D-Day Ceremonies, Thinking of One Veteran Who Wouldn’t Return**\
-`While covering the 80th anniversary of the Allied invasion in northern France, a Times reporter remembers a family member.`\
-https://nytimes.com/2024/06/11/reader-center/d-day-family.html
 

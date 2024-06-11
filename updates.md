@@ -1,3 +1,11 @@
+**Hamas and Israel Face Pressure to Embrace Cease-Fire Adopted by U.N.**\
+`Despite positive statements and international urging, neither of the warring parties accepted a U.S.-backed plan to halt the war in Gaza, let displaced Palestinians go home and free hostages.`\
+https://nytimes.com/2024/06/11/world/middleeast/israel-hamas-ceasefire-plan.html
+
+**America Needs Big Wins. These Would Be Three.**\
+`Israel, Ukraine and American democracy are on the line.`\
+https://nytimes.com/2024/06/11/opinion/biden-gaza-ukraine.html
+
 **Biden Proposes Dropping Medical Debt From Credit Reports**\
 `The move would offer relief to millions of Americans who need a better credit score to get an apartment or a car, but it would not wipe out their financial obligations.`\
 https://nytimes.com/2024/06/11/us/politics/biden-medical-debt-credit-reports.html
