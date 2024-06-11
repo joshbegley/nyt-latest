@@ -1,3 +1,11 @@
+**Is the Sugar Substitute Xylitol Safe for Your Heart?**\
+`New research suggests the sweetener is linked to health issues. Here’s what to know.`\
+https://nytimes.com/2024/06/11/well/eat/xylitol-sugar-sweetener-safety.html
+
+**Alvin Bragg Will Testify to Congress After Trump’s Sentencing**\
+`The Manhattan district attorney and another prosecutor will confront questions next month from G.O.P. lawmakers about the Trump case.`\
+https://nytimes.com/2024/06/11/us/politics/alvin-bragg-congress-trump-conviction.html
+
 **Four Tops Singer Sues Hospital Over Being Put in Restraints**\
 `The lawsuit by Alexander Morris, who joined the group six years ago, said the staff thought he was “delusional” when he told them he was in the Motown band.`\
 https://nytimes.com/2024/06/11/arts/music/four-tops-singer-sues-hospital-restraints.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/06/11/us/hunter-biden-trial-verdict/a-guilty-verdi
 **David Boaz, a Leading Voice of Libertarianism, Dies at 70**\
 `At the Cato Institute, he argued against government interference in Americans’ lives, including policing their drug use, and supported legal equality for gay people.`\
 https://nytimes.com/2024/06/11/us/politics/david-boaz-dead.html
-
-**No, a Remote Amazon Tribe Did Not Get Addicted to Porn**\
-`A Times story about the arrival of high-speed internet in a remote Amazon tribe spiraled into its own cautionary tale on the dark side of the web.`\
-https://nytimes.com/2024/06/11/world/americas/no-a-remote-amazon-tribe-did-not-get-addicted-to-porn.html
-
-**On conservative social media, the guilty verdict gets a ‘yawn.’**\
-`Right-wing influencers have spent much of Hunter Biden’s trial claiming, without evidence, that the process was a sham in various ways.`\
-https://nytimes.com/live/2024/06/11/us/hunter-biden-trial-verdict/on-conservative-social-media-the-guilty-verdict-gets-a-yawn
 
