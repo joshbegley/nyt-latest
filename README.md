@@ -1,3 +1,11 @@
+**Word of the Day: stamina**\
+`This word has appeared in 123 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/06/11/learning/word-of-the-day-stamina.html
+
+**Late Night Pounces on Trump’s First Meeting With Probation Officer**\
+`“Things got off to a rough start when Trump offered the probation officer $130,000,” Jimmy Fallon joked.`\
+https://nytimes.com/2024/06/11/arts/television/late-night-trump-probation-meeting.html
+
 **America Isn’t Leading the World**\
 `Never has the country looked less like a leader and more like the head of a faction.`\
 https://nytimes.com/2024/06/11/opinion/america-leadership-gaza-ukraine.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/10/us/biden-immigrants-citizenship-marriage.html
 **Justice Alito’s Wife, in Secretly Recorded Conversation, Complains About Pride Flag**\
 `In a conversation with a woman posing as a conservative supporter, Martha-Ann Alito appeared to push back against having to look at a symbol of L.G.B.T.Q. rights.`\
 https://nytimes.com/2024/06/10/us/politics/alito-pride-flag.html
-
-**The Full List of the 2024 James Beard Chef and Restaurant Award Winners**\
-`Restaurants and chefs from Washington, D.C., Portland, Ore., and New Orleans took home top honors.`\
-https://nytimes.com/2024/06/10/dining/james-beard-award-winners.html
-
-**Trumpet Flourish**\
-`Chloe Revery never misses.`\
-https://nytimes.com/2024/06/10/crosswords/daily-puzzle-2024-06-11.html
 
