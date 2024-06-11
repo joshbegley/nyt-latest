@@ -1,3 +1,11 @@
+**Word of the Day: stamina**\
+`This word has appeared in 123 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/06/11/learning/word-of-the-day-stamina.html
+
+**Late Night Pounces on Trump’s First Meeting With Probation Officer**\
+`“Things got off to a rough start when Trump offered the probation officer $130,000,” Jimmy Fallon joked.`\
+https://nytimes.com/2024/06/11/arts/television/late-night-trump-probation-meeting.html
+
 **America Isn’t Leading the World**\
 `Never has the country looked less like a leader and more like the head of a faction.`\
 https://nytimes.com/2024/06/11/opinion/america-leadership-gaza-ukraine.html
