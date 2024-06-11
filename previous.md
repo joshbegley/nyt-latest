@@ -1,3 +1,7 @@
+**Mistral, a French A.I. Start-Up, Is Valued at $6.2 Billion**\
+`Created by alumni from Meta and Google, Mistral is just a year old and has already raised more than $1 billion from investors, leading to eye-popping valuations.`\
+https://nytimes.com/2024/06/11/business/mistral-artificial-intelligence-fundraising.html
+
 **Was This Sea Creature Our Ancestor? Scientists Turn a Famous Fossil on its Head.**\
 `Researchers have long assumed that a tube in the famous Pikaia fossil ran along the animal’s back. But a new study turned the fossil upside-side down.`\
 https://nytimes.com/2024/06/11/science/pikaia-vertebrate-evolution.html
@@ -33,8 +37,4 @@ https://nytimes.com/spotlight/visual-investigation-israel-gaza
 **Police Identify Suspect Accused of Setting Fire to Miami Building**\
 `An arrest affidavit said the man shot a building employee and then started the worst fire in Miami in 25 years.`\
 https://nytimes.com/2024/06/11/us/police-identify-suspect-accused-of-setting-fire-to-miami-building.html
-
-**Alito No Longer Tries to Hide His Theocratic Worldview**\
-`Unlike Chief Justice Roberts, he wants to bring God onto the Supreme Court bench.`\
-https://nytimes.com/live/2024/06/04/opinion/thepoint/alito-roberts-court-religion
 
