@@ -1,3 +1,11 @@
+**Disney’s Reimagined Splash Mountain Ride Is Set to Open**\
+`The ride was closed last year because of its connection to a racist film. Disney overhauled it to focus on Tiana, Disney’s first Black princess, drawing praise and backlash.`\
+https://nytimes.com/2024/06/11/business/disney-world-splash-mountain-princess-tiana.html
+
+**Grab Them. Then Stump Them.**\
+`Word puzzles on LinkedIn. Logic challenges in The Washington Post. For news publishers and tech sites looking to both entice and engage users, games are serious business.`\
+https://nytimes.com/2024/06/11/technology/news-tech-sites-games.html
+
 **The U.S. announces more humanitarian aid for Palestinians.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/06/11/world/israel-gaza-war-hamas/the-us-announces-more-humanitarian-aid-for-palestinians
