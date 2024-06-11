@@ -1,3 +1,7 @@
+**Biden, Honoring Juneteenth, Warns of Danger of ‘Old Ghosts in New Garments’**\
+`The president assailed attacks on Black history, and vowed that his administration was committed to protecting civil rights.`\
+https://nytimes.com/2024/06/10/us/politics/biden-juneteenth.html
+
 **Americans Push Biden to Help Their Undocumented Spouses**\
 `The White House is weighing relief for immigrants who crossed the border unlawfully but are eligible for green cards through marriage to U.S. citizens.`\
 https://nytimes.com/2024/06/10/us/biden-immigrants-citizenship-marriage.html
@@ -30,11 +34,7 @@ https://nytimes.com/2024/06/10/business/uaw-shawn-fain-monitor.html
 `The two justices were surreptitiously recorded at a Supreme Court gala last week by a woman posing as a Catholic conservative.`\
 https://nytimes.com/2024/06/10/us/politics/supreme-court-alito.html
 
-**4 Instructors From Iowa College Attacked While Visiting Sister University in China**\
-`The four, from Cornell College, a private liberal arts school in Mount Vernon, Iowa, were injured while in a public park.`\
+**4 Instructors From Iowa College Are Attacked in Public Park in China**\
+`The Cornell College instructors were in the city of Jilin as part of a partnership with a local university. Much about the attack was still unclear.`\
 https://nytimes.com/2024/06/10/world/asia/cornell-college-attack-china.html
-
-**Baltimore City Council to Hold Hearings on Drug Overdoses**\
-`The city’s overdose epidemic has killed nearly 6,000 people since 2018, a death rate never before seen in a major U.S. city.`\
-https://nytimes.com/2024/06/10/us/baltimore-drug-overdoses-city-council-hearings.html
 
