@@ -1,3 +1,15 @@
+**For Women in Architecture, It’s a Time of ‘Catching Up’**\
+`Yvonne Farrell and Shelley McNamara of Dublin’s Grafton Architects are forging a path in an industry that continues to be dominated by men.`\
+https://nytimes.com/2024/06/11/arts/design/women-architecture-grafton-pritzker.html
+
+**Tiny Love Stories: ‘My Father Was a Poet Who Wrote Endlessly About Feet’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/06/11/style/tiny-modern-love-stories-my-father-was-a-poet-who-wrote-endlessly-about-feet.html
+
+**Pressure on Hamas to agree to a cease-fire proposal puts a spotlight on its leader in Gaza, Yahya Sinwar.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/2024/06/11/world/middleeast/pressure-on-hamas-to-agree-to-a-cease-fire-proposal-puts-a-spotlight-on-its-leader-in-gaza-yahya-sinwar.html
+
 **How Venice Might Remake Itself as a Contemporary Art Hub**\
 `As tourists flood the lagoon city, Venice has suffered something of an identity crisis. Looking ahead, might art light the way forward?`\
 https://nytimes.com/2024/06/11/arts/design/venice-overtourism-identity.html

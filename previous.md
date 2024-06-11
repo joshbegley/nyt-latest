@@ -1,3 +1,11 @@
+**For Women in Architecture, It’s a Time of ‘Catching Up’**\
+`Yvonne Farrell and Shelley McNamara of Dublin’s Grafton Architects are forging a path in an industry that continues to be dominated by men.`\
+https://nytimes.com/2024/06/11/arts/design/women-architecture-grafton-pritzker.html
+
+**Tiny Love Stories: ‘My Father Was a Poet Who Wrote Endlessly About Feet’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/06/11/style/tiny-modern-love-stories-my-father-was-a-poet-who-wrote-endlessly-about-feet.html
+
 **How Venice Might Remake Itself as a Contemporary Art Hub**\
 `As tourists flood the lagoon city, Venice has suffered something of an identity crisis. Looking ahead, might art light the way forward?`\
 https://nytimes.com/2024/06/11/arts/design/venice-overtourism-identity.html
@@ -16,7 +24,7 @@ https://nytimes.com/2024/06/11/us/politics/takeaways-hunter-biden.html
 
 **Pressure on Hamas to agree to a cease-fire proposal puts a spotlight on its leader in Gaza, Yahya Sinwar.**\
 `By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/06/11/world/israel-gaza-war-hamas/pressure-on-hamas-to-agree-to-a-cease-fire-proposal-puts-a-spotlight-on-its-leader-in-gaza-yahya-sinwar
+https://nytimes.com/2024/06/11/world/middleeast/pressure-on-hamas-to-agree-to-a-cease-fire-proposal-puts-a-spotlight-on-its-leader-in-gaza-yahya-sinwar.html
 
 **A Venice Show Pays Tribute to Jean Cocteau, the Maverick Artist**\
 `The new exhibition at the Peggy Guggenheim Collection includes drawings of nude men and a large-scale work done in pencil, chalk, crayon and blood.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/11/crosswords/wordle-review-1089.html
 **Will Hunter Biden Go to Jail? Here’s What His Sentence Could Look Like**\
 `The president’s son is a first-time offender who was not accused of using the weapon in another crime.`\
 https://nytimes.com/2024/06/11/us/politics/hunter-biden-jail-sentence.html
-
-**Is the Sugar Substitute Xylitol Safe for Your Heart?**\
-`New research suggests the sweetener is linked to health issues. Here’s what to know.`\
-https://nytimes.com/2024/06/11/well/eat/xylitol-sugar-sweetener-safety.html
-
-**Alvin Bragg Will Testify to Congress After Trump’s Sentencing**\
-`The Manhattan district attorney and another prosecutor will confront questions next month from G.O.P. lawmakers about the Trump case.`\
-https://nytimes.com/2024/06/11/us/politics/alvin-bragg-congress-trump-conviction.html
 
