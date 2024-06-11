@@ -1,3 +1,23 @@
+**Restaurant Review: Penny, a Seafood Counter That Knows What It’s About**\
+`Almost everything on the menu at this sibling of Claud contains seafood. You sit at a counter to eat it. The only surprise is how well it all works together.`\
+https://nytimes.com/2024/06/11/dining/restaurant-review-penny-east-village.html
+
+**By a Stream in Vermont, a Glimpse of a Plant Last Seen a Century Ago**\
+`“Are you sitting down?” Vermont’s state botanist asked a fellow plant expert after spotting false mermaid-weed last month.`\
+https://nytimes.com/2024/06/11/us/vermont-plant-extinct-mermaid-weed.html
+
+**U.S. to Send Another Patriot Missile Battery to Ukraine**\
+`The system is one of best air-defense weapons, but the United States and its allies have a limited supply.`\
+https://nytimes.com/2024/06/11/us/politics/patriot-missiles-ukraine-war.html
+
+**A juror told reporters that the jury was impartial despite feeling sympathy for Hunter Biden.**\
+`By Zach Montague`\
+https://nytimes.com/live/2024/06/11/us/hunter-biden-trial-verdict/a-juror-told-reporters-that-the-jury-was-impartial-despite-feeling-sympathy-for-hunter-biden
+
+**Young Thug Lawyer Clashes With Judge in Chaotic Gang Case**\
+`Brian Steel, a lawyer for the Atlanta rapper, was ordered to serve 10 weekends in jail after a dispute with the judge, further complicating a messy gang conspiracy trial.`\
+https://nytimes.com/2024/06/11/arts/music/young-thug-brian-steel-trial.html
+
 **It's a Family Affair**\
 `Type 1 diabetes disrupts a household. But members gain awareness and power, alongside the challenges.`\
 https://nytimes.com/paidpost/sanofi-aventis/its-a-family-affair.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/06/11/arts/design/women-architecture-grafton-pritzker.h
 **Tiny Love Stories: ‘My Father Was a Poet Who Wrote Endlessly About Feet’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/06/11/style/tiny-modern-love-stories-my-father-was-a-poet-who-wrote-endlessly-about-feet.html
-
-**How Venice Might Remake Itself as a Contemporary Art Hub**\
-`As tourists flood the lagoon city, Venice has suffered something of an identity crisis. Looking ahead, might art light the way forward?`\
-https://nytimes.com/2024/06/11/arts/design/venice-overtourism-identity.html
-
-**Gazans express hope and skepticism over the Security Council’s cease-fire resolution.**\
-`By Hiba Yazbek, Abu Bakr Bashir and Iyad Abuheweila`\
-https://nytimes.com/live/2024/06/11/world/israel-gaza-war-hamas/gazans-express-hope-and-skepticism-over-the-security-councils-cease-fire-resolution
-
-**A New Way to Talk About Heat**\
-`Record-breaking temperatures are pushing experts and public health officials to come up with a new vocabulary to warn the public about extreme heat.`\
-https://nytimes.com/2024/06/11/climate/heat-stickiness-temperature.html
-
-**5 Takeaways From Hunter Biden’s Conviction in a Gun Case**\
-`The president’s son, who was convicted of three felonies, could face a stiffer sentence if he is convicted in a separate tax case scheduled for September.`\
-https://nytimes.com/2024/06/11/us/politics/takeaways-hunter-biden.html
-
-**New Gaza Cease-Fire Proposal Puts Spotlight on Hamas Leader Yahya Sinwar**\
-`Yahya Sinwar, an architect of the Oct. 7 attacks on Israel, is believed to remain in hiding in Gaza. His voice is believed to be pivotal in Hamas’s decision-making.`\
-https://nytimes.com/2024/06/11/world/middleeast/israel-hamas-cease-fire-gaza.html
 

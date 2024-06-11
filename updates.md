@@ -1,3 +1,23 @@
+**Restaurant Review: Penny, a Seafood Counter That Knows What It’s About**\
+`Almost everything on the menu at this sibling of Claud contains seafood. You sit at a counter to eat it. The only surprise is how well it all works together.`\
+https://nytimes.com/2024/06/11/dining/restaurant-review-penny-east-village.html
+
+**By a Stream in Vermont, a Glimpse of a Plant Last Seen a Century Ago**\
+`“Are you sitting down?” Vermont’s state botanist asked a fellow plant expert after spotting false mermaid-weed last month.`\
+https://nytimes.com/2024/06/11/us/vermont-plant-extinct-mermaid-weed.html
+
+**U.S. to Send Another Patriot Missile Battery to Ukraine**\
+`The system is one of best air-defense weapons, but the United States and its allies have a limited supply.`\
+https://nytimes.com/2024/06/11/us/politics/patriot-missiles-ukraine-war.html
+
+**A juror told reporters that the jury was impartial despite feeling sympathy for Hunter Biden.**\
+`By Zach Montague`\
+https://nytimes.com/live/2024/06/11/us/hunter-biden-trial-verdict/a-juror-told-reporters-that-the-jury-was-impartial-despite-feeling-sympathy-for-hunter-biden
+
+**Young Thug Lawyer Clashes With Judge in Chaotic Gang Case**\
+`Brian Steel, a lawyer for the Atlanta rapper, was ordered to serve 10 weekends in jail after a dispute with the judge, further complicating a messy gang conspiracy trial.`\
+https://nytimes.com/2024/06/11/arts/music/young-thug-brian-steel-trial.html
+
 **5 Takeaways From Hunter Biden’s Conviction in a Gun Case**\
 `The president’s son, who was convicted of three felonies, could face a stiffer sentence if he is convicted in a separate tax case scheduled for September.`\
 https://nytimes.com/2024/06/11/us/politics/takeaways-hunter-biden.html
