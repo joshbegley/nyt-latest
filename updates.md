@@ -1,3 +1,7 @@
+**Here’s What Hunter Biden Was Convicted Of**\
+`The president’s son was convicted of three felonies tied to his purchase of a gun in 2018.`\
+https://nytimes.com/2024/06/11/us/politics/heres-what-hunter-biden-was-convicted-of.html
+
 **Government’s Case Against Hunter Biden Used His Own Words Against Him**\
 `Details from a 2021 memoir ended up being repeated in court testimony.`\
 https://nytimes.com/2024/06/11/us/elections/prosecution-hunter-biden-trial.html
