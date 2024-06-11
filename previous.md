@@ -1,3 +1,15 @@
+**The government’s case against Hunter Biden used his own words against him.**\
+`By Eileen Sullivan`\
+https://nytimes.com/2024/06/11/us/elections/the-governments-case-against-hunter-biden-used-his-own-words-against-him.html
+
+**Dallas Pastor Tony Evans, Citing Undisclosed ‘Sin,’ Leaves Pulpit**\
+`Mr. Evans, who has built one of the largest predominantly African American evangelical churches in the United States, said in a statement that he was “stepping away from my pastoral duties.”`\
+https://nytimes.com/2024/06/11/us/dallas-tony-evans-pastor-sin.html
+
+**Grab Them. Then Stump Them.**\
+`Word puzzles on LinkedIn. Logic challenges in The Washington Post. For news publishers and tech sites looking to both entice and engage users, games are serious business.`\
+https://nytimes.com/2024/06/11/technology/news-tech-sites-games.html
+
 **Rules that banned electronics in the courtroom added hurdles for reporters.**\
 `By Eileen Sullivan`\
 https://nytimes.com/live/2024/06/11/us/hunter-biden-trial-verdict/rules-that-banned-electronics-in-the-courtroom-added-hurdles-for-reporters
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/06/11/us/hunter-biden-trial-verdict
 **Mistral, a French A.I. Start-Up, Is Valued at $6.2 Billion**\
 `Created by alumni from Meta and Google, Mistral is just a year old and has already raised more than $1 billion from investors, leading to eye-popping valuations.`\
 https://nytimes.com/2024/06/11/business/mistral-artificial-intelligence-fundraising.html
-
-**Was This Sea Creature Our Ancestor? Scientists Turn a Famous Fossil on its Head.**\
-`Researchers have long assumed that a tube in the famous Pikaia fossil ran along the animal’s back. But a new study turned the fossil upside-side down.`\
-https://nytimes.com/2024/06/11/science/pikaia-vertebrate-evolution.html
-
-**The Best Thing About Salad Is Croutons**\
-`They add craveable texture to summery dinners like Lidey Heuck’s chopped salad with chickpeas, feta and avocado.`\
-https://nytimes.com/2024/06/11/dining/the-best-thing-about-salad-is-croutons.html
-
-**5 Festive Recipes for a Juneteenth Feast**\
-`Make one, or make them all. Just make them yours.`\
-https://nytimes.com/2024/06/11/dining/juneteenth-food-ideas.html
 

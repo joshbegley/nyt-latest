@@ -1,3 +1,15 @@
+**The government’s case against Hunter Biden used his own words against him.**\
+`By Eileen Sullivan`\
+https://nytimes.com/2024/06/11/us/elections/the-governments-case-against-hunter-biden-used-his-own-words-against-him.html
+
+**Dallas Pastor Tony Evans, Citing Undisclosed ‘Sin,’ Leaves Pulpit**\
+`Mr. Evans, who has built one of the largest predominantly African American evangelical churches in the United States, said in a statement that he was “stepping away from my pastoral duties.”`\
+https://nytimes.com/2024/06/11/us/dallas-tony-evans-pastor-sin.html
+
+**Grab Them. Then Stump Them.**\
+`Word puzzles on LinkedIn. Logic challenges in The Washington Post. For news publishers and tech sites looking to both entice and engage users, games are serious business.`\
+https://nytimes.com/2024/06/11/technology/news-tech-sites-games.html
+
 **Live Updates: Hunter Biden Found Guilty in Gun Case**\
 `President Biden’s son was convicted in Delaware federal court on all three felony counts tied to a handgun purchase in 2018. His sentencing date has not been set.`\
 https://nytimes.com/live/2024/06/11/us/hunter-biden-trial-verdict
