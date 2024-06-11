@@ -1,3 +1,15 @@
+**4 Israeli Soldiers Are Killed in Rafah in Apparent Ambush**\
+`Israel said the soldiers were killed when Hamas militants detonated explosives in a three-story building. Some wounded soldiers were in critical condition.`\
+https://nytimes.com/2024/06/11/world/middleeast/israel-soldiers-killed-hamas-rafah.html
+
+**The Race for Running Mate**\
+`Donald Trump has tightened his V.P. list to dependable and loyal campaigners.`\
+https://nytimes.com/2024/06/11/briefing/donald-trump-vice-president-pick.html
+
+**After the U.N. Security Council backed a cease-fire, Blinken said the world was waiting for Yahya Sinwar, Hamas’s leader in Gaza, to respond.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/06/11/world/israel-gaza-war-hamas/after-the-un-security-council-backed-a-cease-fire-blinken-said-its-fate-is-down-to-one-person-referring-to-hamass-leader
+
 **Biden’s Hard-Line Effort to Close the Border**\
 `The order to suspend asylum when crossings surge shows how drastically immigration politics have shifted in the United States.`\
 https://nytimes.com/2024/06/11/podcasts/the-daily/biden-border.html

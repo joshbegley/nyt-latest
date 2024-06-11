@@ -1,3 +1,11 @@
+**4 Israeli Soldiers Are Killed in Rafah in Apparent Ambush**\
+`Israel said the soldiers were killed when Hamas militants detonated explosives in a three-story building. Some wounded soldiers were in critical condition.`\
+https://nytimes.com/2024/06/11/world/middleeast/israel-soldiers-killed-hamas-rafah.html
+
+**The Race for Running Mate**\
+`Donald Trump has tightened his V.P. list to dependable and loyal campaigners.`\
+https://nytimes.com/2024/06/11/briefing/donald-trump-vice-president-pick.html
+
 **Biden’s Hard-Line Effort to Close the Border**\
 `The order to suspend asylum when crossings surge shows how drastically immigration politics have shifted in the United States.`\
 https://nytimes.com/2024/06/11/podcasts/the-daily/biden-border.html
@@ -14,7 +22,7 @@ https://nytimes.com/2024/06/11/crosswords/connections-companion-367.html
 `The authorities lost contact on Monday with the military aircraft carrying Saulos Chilima and nine others.`\
 https://nytimes.com/2024/06/11/world/africa/malawi-plane-missing-vice-president-chilima.html
 
-**After the U.N. Security Council backed a cease-fire, Blinken said the plan’s fate ‘is down to one person,’ referring to Hamas’s leader.**\
+**After the U.N. Security Council backed a cease-fire, Blinken said the world was waiting for Yahya Sinwar, Hamas’s leader in Gaza, to respond.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/06/11/world/israel-gaza-war-hamas/after-the-un-security-council-backed-a-cease-fire-blinken-said-its-fate-is-down-to-one-person-referring-to-hamass-leader
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/11/opinion/trump-business-capitalism-democracy.html
 **Issues Affecting Women Take Center Stage as Southern Baptists Hold Annual Meeting**\
 `Delegates will vote on whether to tighten restrictions on women in pastoral leadership and whether to condemn the use of in vitro fertilization.`\
 https://nytimes.com/2024/06/11/us/southern-baptist-meeting-women.html
-
-**Watch Glen Powell and Adria Arjona Fight and Flirt in ‘Hit Man’**\
-`The director Richard Linklater narrates a pivotal sequence from his rom-com thriller.`\
-https://nytimes.com/2024/06/11/movies/hit-man-clip.html
-
-**Age Is on the Ballot in 2024, at Least in North Dakota**\
-`A vote on Tuesday on a proposed age limit for members of Congress is a rare chance to find out what voters actually believe about politicians and age.`\
-https://nytimes.com/2024/06/11/us/north-dakota-candidate-age.html
 
