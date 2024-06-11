@@ -1,3 +1,7 @@
+**Is That Dog Actually a … Human?**\
+`TikTok is onto Goldendoodles, the designer dog breed that is a cross between golden retriever and poodle, noting that they exhibit quite a few person-like qualities.`\
+https://nytimes.com/2024/06/11/style/goldendoodle-dogs-tiktok.html
+
 **The President’s Son Was Convicted of Three Felonies**\
 `Also, age is on the ballot in North Dakota. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/06/11/briefing/hunter-biden-gun-trial-guilty-shopping-malls.html
