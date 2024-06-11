@@ -1,3 +1,7 @@
+**Seeking Safety in Cyprus, They’re Stuck in Island’s U.N. Buffer Zone**\
+`Nearly 30 people who hoped to seek refuge in the European Union nation are in limbo after trying to cross from the Turkish-occupied part of the island. Many are Syrians who left Lebanon.`\
+https://nytimes.com/2024/06/11/world/europe/cyprus-syria-lebanon-asylum.html
+
 **U.S. Bans Imports From 3 Chinese Companies Over Ties to Forced Labor**\
 `The government targeted companies involved in making seafood, aluminum and footwear, citing their links to labor programs affecting Chinese minorities.`\
 https://nytimes.com/2024/06/11/business/economy/us-ban-china-uyghur-labor.html

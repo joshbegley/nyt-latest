@@ -1,3 +1,7 @@
+**Seeking Safety in Cyprus, They’re Stuck in Island’s U.N. Buffer Zone**\
+`Nearly 30 people who hoped to seek refuge in the European Union nation are in limbo after trying to cross from the Turkish-occupied part of the island. Many are Syrians who left Lebanon.`\
+https://nytimes.com/2024/06/11/world/europe/cyprus-syria-lebanon-asylum.html
+
 **U.S. Bans Imports From 3 Chinese Companies Over Ties to Forced Labor**\
 `The government targeted companies involved in making seafood, aluminum and footwear, citing their links to labor programs affecting Chinese minorities.`\
 https://nytimes.com/2024/06/11/business/economy/us-ban-china-uyghur-labor.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/11/crosswords/connections-companion-367.html
 **Malawi’s Vice President Killed in Plane Crash**\
 `After an overnight search, rescuers found the wreckage of the military aircraft that had been carrying Vice President Saulos Chilima and nine others.`\
 https://nytimes.com/2024/06/11/world/africa/malawi-plane-crash-vice-president-chilima.html
-
-**After the U.N. Security Council backed a cease-fire, Blinken said the world was waiting for Yahya Sinwar, Hamas’s leader in Gaza, to respond.**\
-`By Michael Crowley`\
-https://nytimes.com/live/2024/06/11/world/israel-gaza-war-hamas/after-the-un-security-council-backed-a-cease-fire-blinken-said-its-fate-is-down-to-one-person-referring-to-hamass-leader
 
