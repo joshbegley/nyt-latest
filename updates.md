@@ -1,3 +1,7 @@
+**U.S. Bans Imports From 3 Chinese Companies Over Ties to Forced Labor**\
+`The government targeted companies involved in making seafood, aluminum and footwear, citing their links to labor programs affecting Chinese minorities.`\
+https://nytimes.com/2024/06/11/business/economy/us-ban-china-uyghur-labor.html
+
 **Apple’s Go-Slow A.I. Approach**\
 `The tech giant announced a slew of artificial intelligence-focused features, but also signaled it will be patient in rolling out the technology to users.`\
 https://nytimes.com/2024/06/11/business/dealbook/apple-go-slow-ai-approach.html
