@@ -7,7 +7,7 @@ https://nytimes.com/2024/06/11/dining/restaurant-review-penny-east-village.html
 https://nytimes.com/2024/06/11/us/vermont-plant-extinct-mermaid-weed.html
 
 **U.S. to Send Another Patriot Missile Battery to Ukraine**\
-`The system is one of best air-defense weapons, but the United States and its allies have a limited supply.`\
+`The system is one of the best air-defense weapons, but the United States and its allies have a limited supply.`\
 https://nytimes.com/2024/06/11/us/politics/patriot-missiles-ukraine-war.html
 
 **A juror told reporters that the jury was impartial despite feeling sympathy for Hunter Biden.**\

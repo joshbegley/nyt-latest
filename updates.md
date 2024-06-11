@@ -1,3 +1,7 @@
+**U.S. to Send Another Patriot Missile Battery to Ukraine**\
+`The system is one of the best air-defense weapons, but the United States and its allies have a limited supply.`\
+https://nytimes.com/2024/06/11/us/politics/patriot-missiles-ukraine-war.html
+
 **Restaurant Review: Penny, a Seafood Counter That Knows What It’s About**\
 `Almost everything on the menu at this sibling of Claud contains seafood. You sit at a counter to eat it. The only surprise is how well it all works together.`\
 https://nytimes.com/2024/06/11/dining/restaurant-review-penny-east-village.html
