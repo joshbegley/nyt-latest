@@ -1,3 +1,7 @@
+**Chemical Makers Sue Over Rule to Rid Water of ‘Forever Chemicals’**\
+`Industry groups said the E.P.A. had exceeded its authority in requiring the drinking-water cleanup. The chemicals, known as PFAS, are linked to cancer and health risks.`\
+https://nytimes.com/2024/06/10/climate/pfas-forever-chemicals-lawsuit.html
+
 **U.A.W. Monitor Investigates Accusations Against Union Leader**\
 `The court-appointed monitor is looking into allegations by two union officials that they were punished for raising questions on financial matters.`\
 https://nytimes.com/2024/06/10/business/uaw-shawn-fain-monitor.html
