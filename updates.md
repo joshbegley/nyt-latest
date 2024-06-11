@@ -1,3 +1,7 @@
+**At the Ojai Festival, a Star Pianist Keeps the Focus on Young Artists**\
+`Mitsuko Uchida appeared every night at her edition of the Ojai Music Festival. The rest of the time was given to other performers.`\
+https://nytimes.com/2024/06/11/arts/music/ojai-festival-mitsuko-uchida-mahler-chamber-orchestra.html
+
 **What Scares a Master of Fear?**\
 `Feeling frightened isn’t always fun, but it can be a source of endless inspiration.`\
 https://nytimes.com/2024/06/11/special-series/rl-stine-goosebumps-fear-childhood.html

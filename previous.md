@@ -1,3 +1,7 @@
+**At the Ojai Festival, a Star Pianist Keeps the Focus on Young Artists**\
+`Mitsuko Uchida appeared every night at her edition of the Ojai Music Festival. The rest of the time was given to other performers.`\
+https://nytimes.com/2024/06/11/arts/music/ojai-festival-mitsuko-uchida-mahler-chamber-orchestra.html
+
 **What Scares a Master of Fear?**\
 `Feeling frightened isn’t always fun, but it can be a source of endless inspiration.`\
 https://nytimes.com/2024/06/11/special-series/rl-stine-goosebumps-fear-childhood.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/11/us/politics/primaries-maine-south-carolina-nevada
 **Election Updates: Nancy Mace faces a South Carolina primary fight and four other states go the polls.**\
 ``\
 https://nytimes.com/live/2024/06/11/us/biden-trump-election
-
-**How a Winter in California’s Gold Country Started Mark Twain’s Career**\
-`The young writer came across a tale in the Sierra Nevada foothills that would bring him national attention.`\
-https://nytimes.com/2024/06/11/us/california-gold-country-mark-twain.html
 
