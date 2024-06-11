@@ -1,3 +1,7 @@
+**Morrie Markoff, Listed as Oldest Man in the U.S., Dies at 110**\
+`A rare supercentenarian, he remained remarkably lucid after 11 decades, even maintaining a blog. His brain has been donated for research on what’s known as super-aging.`\
+https://nytimes.com/2024/06/11/us/morrie-markoff-dead.html
+
 **Robert De Niro Doesn’t Mind Being Celebrated**\
 `Blake Lively, Jude Law and Selma Blair turned out for the Tribeca Film Festival’s annual artists dinner, ahead of a weekend devoted to Mr. De Niro’s work.`\
 https://nytimes.com/2024/06/11/style/robert-de-niro-tribeca-festival-dinner.html

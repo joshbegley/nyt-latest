@@ -1,3 +1,7 @@
+**Morrie Markoff, Listed as Oldest Man in the U.S., Dies at 110**\
+`A rare supercentenarian, he remained remarkably lucid after 11 decades, even maintaining a blog. His brain has been donated for research on what’s known as super-aging.`\
+https://nytimes.com/2024/06/11/us/morrie-markoff-dead.html
+
 **Robert De Niro Doesn’t Mind Being Celebrated**\
 `Blake Lively, Jude Law and Selma Blair turned out for the Tribeca Film Festival’s annual artists dinner, ahead of a weekend devoted to Mr. De Niro’s work.`\
 https://nytimes.com/2024/06/11/style/robert-de-niro-tribeca-festival-dinner.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/06/11/dining/restaurant-review-penny-east-village.html
 **By a Stream in Vermont, a Glimpse of a Plant Last Seen a Century Ago**\
 `“Are you sitting down?” Vermont’s state botanist asked a fellow plant expert after spotting false mermaid-weed last month.`\
 https://nytimes.com/2024/06/11/us/vermont-plant-extinct-mermaid-weed.html
-
-**U.S. to Send Another Patriot Missile Battery to Ukraine**\
-`The system is one of the best air-defense weapons, but the United States and its allies have a limited supply.`\
-https://nytimes.com/2024/06/11/us/politics/patriot-missiles-ukraine-war.html
 
