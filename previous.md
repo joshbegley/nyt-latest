@@ -1,3 +1,7 @@
+**Philanthropist Gets 15 Years to Life in Hit-and-Run Murder of 2 Boys**\
+`Prosecutors said Rebecca Grossman was driving a sport utility vehicle at more than 80 miles an hour just before she struck and killed Mark Iskander, 11, and his brother, Jacob, 8, in a crosswalk.`\
+https://nytimes.com/2024/06/11/us/rebecca-grossman-hit-run-sentenced.html
+
 **Wednesday Briefing: Hunter Biden Found Guilty on Gun Charges**\
 `Also, pressure on Israel and Hamas to reach a deal.`\
 https://nytimes.com/2024/06/11/world/asia/hunter-biden-israel-hamas-deal-asia.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/06/11/us/politics/biden-gun-violence.html
 **Macron’s Call for Elections in France Adds to Fears of Financial Woes**\
 `Moody’s ratings agency warned of a downgrade on French debt, saying the move could worsen France’s finances by creating “a polarized political environment.”`\
 https://nytimes.com/2024/06/11/business/france-economy-macron.html
-
-**Restaurant Review: Penny, a Seafood Counter That Knows What It’s About**\
-`Almost everything on the menu at this sibling of Claud contains seafood. You sit at a counter to eat it. The only surprise is how well it all works together.`\
-https://nytimes.com/2024/06/11/dining/restaurant-review-penny-east-village.html
 

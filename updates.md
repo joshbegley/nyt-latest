@@ -1,3 +1,7 @@
+**Philanthropist Gets 15 Years to Life in Hit-and-Run Murder of 2 Boys**\
+`Prosecutors said Rebecca Grossman was driving a sport utility vehicle at more than 80 miles an hour just before she struck and killed Mark Iskander, 11, and his brother, Jacob, 8, in a crosswalk.`\
+https://nytimes.com/2024/06/11/us/rebecca-grossman-hit-run-sentenced.html
+
 **Wednesday Briefing: Hunter Biden Found Guilty on Gun Charges**\
 `Also, pressure on Israel and Hamas to reach a deal.`\
 https://nytimes.com/2024/06/11/world/asia/hunter-biden-israel-hamas-deal-asia.html

@@ -30,7 +30,3 @@ https://nytimes.com/2024/06/11/nyregion/gateway-tunnel-amtrak-funding.html
 `“More children are killed in America by guns than cancer and car accidents combined,” President Biden said in a speech in Washington.`\
 https://nytimes.com/2024/06/11/us/politics/biden-gun-violence.html
 
-**Macron’s Call for Elections in France Adds to Fears of Financial Woes**\
-`Moody’s ratings agency warned of a downgrade on French debt, saying the move could worsen France’s finances by creating “a polarized political environment.”`\
-https://nytimes.com/2024/06/11/business/france-economy-macron.html
-
