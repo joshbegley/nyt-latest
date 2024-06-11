@@ -1,3 +1,7 @@
+**Fate of Gaza Cease-Fire Proposal Is ‘on Hamas,’ Blinken Says**\
+`Secretary of State Antony J. Blinken said the world was waiting for Hamas to respond to a U.S.-backed cease-fire plan endorsed by the U.N. Security Council. Neither Israel nor Hamas has formally embraced it.`\
+https://nytimes.com/video/world/middleeast/100000009515055/blinken-gaza-ceasefire-resolution-hamas.html
+
 **Menendez Witness Braces for Questions on ‘His Lies and His Cheating’**\
 `Jose Uribe, a star government witness, faces cross-examination on Tuesday during his third day of testimony at Senator Robert Menendez’s bribery trial.`\
 https://nytimes.com/2024/06/11/nyregion/jose-uribe-robert-menendez-bribery-trial.html

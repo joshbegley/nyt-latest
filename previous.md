@@ -1,3 +1,7 @@
+**Fate of Gaza Cease-Fire Proposal Is ‘on Hamas,’ Blinken Says**\
+`Secretary of State Antony J. Blinken said the world was waiting for Hamas to respond to a U.S.-backed cease-fire plan endorsed by the U.N. Security Council. Neither Israel nor Hamas has formally embraced it.`\
+https://nytimes.com/video/world/middleeast/100000009515055/blinken-gaza-ceasefire-resolution-hamas.html
+
 **Menendez Witness Braces for Questions on ‘His Lies and His Cheating’**\
 `Jose Uribe, a star government witness, faces cross-examination on Tuesday during his third day of testimony at Senator Robert Menendez’s bribery trial.`\
 https://nytimes.com/2024/06/11/nyregion/jose-uribe-robert-menendez-bribery-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/11/arts/design/dolley-madison-photograph-auction.htm
 **Seeking Safety in Cyprus, They’re Stuck in Island’s U.N. Buffer Zone**\
 `Nearly 30 people who hoped to seek refuge in the European Union nation are in limbo after trying to cross from the Turkish-occupied part of the island. Many are Syrians who left Lebanon.`\
 https://nytimes.com/2024/06/11/world/europe/cyprus-syria-lebanon-asylum.html
-
-**U.S. Bans Imports From 3 Chinese Companies Over Ties to Forced Labor**\
-`The government targeted companies involved in making seafood, aluminum and footwear, citing their links to labor programs affecting Chinese minorities.`\
-https://nytimes.com/2024/06/11/business/economy/us-ban-china-uyghur-labor.html
 
