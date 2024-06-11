@@ -1,3 +1,7 @@
+**A guilty verdict for his son is likely to weigh heavily on President Biden.**\
+`By Katie Rogers`\
+https://nytimes.com/live/2024/06/11/us/hunter-biden-trial-verdict/a-guilty-verdict-for-his-son-is-likely-to-weigh-heavily-on-president-biden
+
 **David Boaz, a Leading Voice of Libertarianism, Dies at 70**\
 `At the Cato Institute, he argued against government interference in Americans’ lives, including policing their drug use, and supported legal equality for gay people.`\
 https://nytimes.com/2024/06/11/us/politics/david-boaz-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/11/us/politics/jeff-gunter-nevada-republican-primary
 **Rapid Verdict Took Biden Family by Surprise as They Rushed to the Courtroom**\
 `Jurors in Delaware reached their verdict on the charges against Hunter Biden, the president’s son, after just three hours and five minutes of deliberations.`\
 https://nytimes.com/2024/06/11/us/politics/biden-family-verdict-courtroom.html
-
-**Here’s What Hunter Biden Was Convicted Of**\
-`The president’s son was convicted of three felonies tied to his purchase of a gun in 2018.`\
-https://nytimes.com/2024/06/11/us/politics/hunter-biden-conviction-gun-charges.html
 
