@@ -1,3 +1,7 @@
+**Want Deeper Friendships? Put Them on ‘Autopilot.’**\
+`Today’s challenge: Use your calendar to balance friendships and other priorities.`\
+https://nytimes.com/2024/06/11/well/live/friendship-schedule.html
+
 **A Guilty Verdict for Hunter Biden Weighs on a Worried President Biden**\
 `The president, who is in the middle of a re-election fight, has grown more resigned and afraid about what the future might hold for his son, according to people close to them.`\
 https://nytimes.com/2024/06/11/us/politics/hunter-joe-biden-guilty-verdict.html
@@ -25,8 +29,4 @@ https://nytimes.com/2024/06/11/world/canada/grizzly-bear-killed.html
 **Happy Pride Month, Martha-Ann!**\
 `Her distaste for the rainbow flag shows how powerful it has become.`\
 https://nytimes.com/live/2024/06/04/opinion/thepoint/alito-wife-flag-pride
-
-**In Taped Remarks at Supreme Court Gala, Revealing Glimpses of Roberts and Alito**\
-`Chief Justice John G. Roberts Jr. and Justice Samuel A. Alito Jr., once close allies, have embraced starkly different conceptions of the judicial role.`\
-https://nytimes.com/2024/06/11/us/politics/supreme-court-gala-alito-roberts.html
 
