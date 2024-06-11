@@ -1,3 +1,7 @@
+**Hunter Biden Found Guilty on Charges Related to Gun Purchase in 2018**\
+`The president’s son was convicted of three felonies during a trial that made his struggles with drug addiction painfully public.`\
+https://nytimes.com/2024/06/11/us/politics/hunter-biden-guilty-gun-trial.html
+
 **Philanthropist Gets 15 Years to Life in Hit-and-Run Murder of 2 Boys**\
 `Prosecutors said Rebecca Grossman was driving a sport utility vehicle at more than 80 miles an hour just before she struck and killed Mark Iskander, 11, and his brother, Jacob, 8, in a crosswalk.`\
 https://nytimes.com/2024/06/11/us/rebecca-grossman-hit-run-sentenced.html
@@ -25,8 +29,4 @@ https://nytimes.com/2024/06/11/business/media/paramount-skydance-deal.html
 **$16 Billion Hudson River Tunnel Project Gets Final Green Light**\
 `An agreement for the federal government to pay for most of the $16 billion project means the long-delayed plan is “all systems go,” Senator Chuck Schumer of New York said.`\
 https://nytimes.com/2024/06/11/nyregion/gateway-tunnel-amtrak-funding.html
-
-**Biden Addresses Gun-Control Group Hours After Son’s Firearms Conviction**\
-`“More children are killed in America by guns than cancer and car accidents combined,” President Biden said in a speech in Washington.`\
-https://nytimes.com/2024/06/11/us/politics/biden-gun-violence.html
 

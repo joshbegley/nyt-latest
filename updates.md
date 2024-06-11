@@ -1,3 +1,7 @@
+**Hunter Biden Found Guilty on Charges Related to Gun Purchase in 2018**\
+`The president’s son was convicted of three felonies during a trial that made his struggles with drug addiction painfully public.`\
+https://nytimes.com/2024/06/11/us/politics/hunter-biden-guilty-gun-trial.html
+
 **Philanthropist Gets 15 Years to Life in Hit-and-Run Murder of 2 Boys**\
 `Prosecutors said Rebecca Grossman was driving a sport utility vehicle at more than 80 miles an hour just before she struck and killed Mark Iskander, 11, and his brother, Jacob, 8, in a crosswalk.`\
 https://nytimes.com/2024/06/11/us/rebecca-grossman-hit-run-sentenced.html
