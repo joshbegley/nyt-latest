@@ -1,3 +1,7 @@
+**The Race for Running Mate**\
+`Donald Trump has tightened his V.P. list to dependable and loyal campaigners.`\
+https://nytimes.com/2024/06/11/briefing/donald-trump-vice-president-pick.html
+
 **Biden’s Hard-Line Effort to Close the Border**\
 `The order to suspend asylum when crossings surge shows how drastically immigration politics have shifted in the United States.`\
 https://nytimes.com/2024/06/11/podcasts/the-daily/biden-border.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/11/us/southern-baptist-meeting-women.html
 **Watch Glen Powell and Adria Arjona Fight and Flirt in ‘Hit Man’**\
 `The director Richard Linklater narrates a pivotal sequence from his rom-com thriller.`\
 https://nytimes.com/2024/06/11/movies/hit-man-clip.html
-
-**Age Is on the Ballot in 2024, at Least in North Dakota**\
-`A vote on Tuesday on a proposed age limit for members of Congress is a rare chance to find out what voters actually believe about politicians and age.`\
-https://nytimes.com/2024/06/11/us/north-dakota-candidate-age.html
 
