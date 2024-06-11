@@ -1,3 +1,7 @@
+**At U.C.L.A., Pro-Palestinian Protesters Clash With Police**\
+`Protesters marched through campus, pitched tents and occupied various quads in demonstrations that became confrontational at times.`\
+https://nytimes.com/2024/06/11/us/ucla-protest-arrest.html
+
 **Word of the Day: stamina**\
 `This word has appeared in 123 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/06/11/learning/word-of-the-day-stamina.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/10/us/politics/biden-juneteenth.html
 **Americans Push Biden to Help Their Undocumented Spouses**\
 `The White House is weighing relief for immigrants who crossed the border unlawfully but are eligible for green cards through marriage to U.S. citizens.`\
 https://nytimes.com/2024/06/10/us/biden-immigrants-citizenship-marriage.html
-
-**Justice Alito’s Wife, in Secretly Recorded Conversation, Complains About Pride Flag**\
-`In a conversation with a woman posing as a conservative supporter, Martha-Ann Alito appeared to push back against having to look at a symbol of L.G.B.T.Q. rights.`\
-https://nytimes.com/2024/06/10/us/politics/alito-pride-flag.html
 

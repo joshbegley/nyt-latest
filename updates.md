@@ -1,3 +1,7 @@
+**At U.C.L.A., Pro-Palestinian Protesters Clash With Police**\
+`Protesters marched through campus, pitched tents and occupied various quads in demonstrations that became confrontational at times.`\
+https://nytimes.com/2024/06/11/us/ucla-protest-arrest.html
+
 **Word of the Day: stamina**\
 `This word has appeared in 123 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/06/11/learning/word-of-the-day-stamina.html
