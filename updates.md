@@ -1,3 +1,7 @@
+**Distinctive White Grizzly Dies After Being Struck on Canadian Highway**\
+`Grizzly Bear 178, or Nakoda, as she was known to her fans on social media, was hit in Yoho National Park, hours after her cubs were struck and killed in a separate accident, officials said.`\
+https://nytimes.com/2024/06/11/world/canada/grizzly-bear-killed.html
+
 **Officials Condemn Protest Outside Exhibit About Oct. 7 Killings**\
 `A protest outside an exhibition in New York about the people killed by Hamas at a music festival in southern Israel drew criticism from elected officials.`\
 https://nytimes.com/2024/06/11/arts/israel-gaza-protest-nova-exhibit.html
