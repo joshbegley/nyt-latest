@@ -1,3 +1,11 @@
+**How Venice Might Remake Itself as a Contemporary Art Hub**\
+`As tourists flood the lagoon city, Venice has suffered something of an identity crisis. Looking ahead, might art light the way forward?`\
+https://nytimes.com/2024/06/11/arts/design/venice-overtourism-identity.html
+
+**Gazans express hope and skepticism over the Security Council’s cease-fire resolution.**\
+`By Hiba Yazbek, Abu Bakr Bashir and Iyad Abuheweila`\
+https://nytimes.com/live/2024/06/11/world/israel-gaza-war-hamas/gazans-express-hope-and-skepticism-over-the-security-councils-cease-fire-resolution
+
 **A New Way to Talk About Heat**\
 `Record-breaking temperatures are pushing experts and public health officials to come up with a new vocabulary to warn the public about extreme heat.`\
 https://nytimes.com/2024/06/11/climate/heat-stickiness-temperature.html

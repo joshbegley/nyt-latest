@@ -1,3 +1,11 @@
+**How Venice Might Remake Itself as a Contemporary Art Hub**\
+`As tourists flood the lagoon city, Venice has suffered something of an identity crisis. Looking ahead, might art light the way forward?`\
+https://nytimes.com/2024/06/11/arts/design/venice-overtourism-identity.html
+
+**Gazans express hope and skepticism over the Security Council’s cease-fire resolution.**\
+`By Hiba Yazbek, Abu Bakr Bashir and Iyad Abuheweila`\
+https://nytimes.com/live/2024/06/11/world/israel-gaza-war-hamas/gazans-express-hope-and-skepticism-over-the-security-councils-cease-fire-resolution
+
 **A New Way to Talk About Heat**\
 `Record-breaking temperatures are pushing experts and public health officials to come up with a new vocabulary to warn the public about extreme heat.`\
 https://nytimes.com/2024/06/11/climate/heat-stickiness-temperature.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/11/well/eat/xylitol-sugar-sweetener-safety.html
 **Alvin Bragg Will Testify to Congress After Trump’s Sentencing**\
 `The Manhattan district attorney and another prosecutor will confront questions next month from G.O.P. lawmakers about the Trump case.`\
 https://nytimes.com/2024/06/11/us/politics/alvin-bragg-congress-trump-conviction.html
-
-**Four Tops Singer Sues Hospital Over Being Put in Restraints**\
-`The lawsuit by Alexander Morris, who joined the group six years ago, said the staff thought he was “delusional” when he told them he was in the Motown band.`\
-https://nytimes.com/2024/06/11/arts/music/four-tops-singer-sues-hospital-restraints.html
-
-**Judge Who Will Sentence Hunter Biden Kept Trial Moving**\
-`Maryellen Noreika didn’t set a sentencing date, but she said that it typically takes place within 120 days of a verdict.`\
-https://nytimes.com/2024/06/11/us/politics/judge-hunter-biden-trial.html
 
