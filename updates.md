@@ -1,3 +1,7 @@
+**At Least 49 Dead After Migrant Boat Sinks Off Yemen**\
+`Another 140 people were missing, according to the U.N. migration agency, which said 71 had so far been rescued.`\
+https://nytimes.com/2024/06/11/world/middleeast/migrant-boat-sinking-yemen.html
+
 **World Bank Sees Rosier Growth Outlook**\
 `But rising trade barriers pose a long-term threat to global output as protectionist policies spread, the bank said.`\
 https://nytimes.com/2024/06/11/business/economy/global-economy-world-bank.html
