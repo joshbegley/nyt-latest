@@ -1,3 +1,7 @@
+**Americans Push Biden to Help Their Undocumented Spouses**\
+`The White House is weighing relief for immigrants who crossed the border unlawfully but are eligible for green cards through marriage to U.S. citizens.`\
+https://nytimes.com/2024/06/10/us/biden-immigrants-citizenship-marriage.html
+
 **Justice Alito’s Wife, in Secretly Recorded Conversation, Complains About Pride Flag**\
 `In a conversation with a woman posing as a conservative supporter, Martha-Ann Alito appeared to push back against having to look at a symbol of L.G.B.T.Q. rights.`\
 https://nytimes.com/2024/06/10/us/politics/alito-pride-flag.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/10/world/asia/cornell-college-attack-china.html
 **Baltimore City Council to Hold Hearings on Drug Overdoses**\
 `The city’s overdose epidemic has killed nearly 6,000 people since 2018, a death rate never before seen in a major U.S. city.`\
 https://nytimes.com/2024/06/10/us/baltimore-drug-overdoses-city-council-hearings.html
-
-**Israel’s Parliament Revives Bill on Drafting Ultra-Orthodox Men Into Military**\
-`The vote was aimed at keeping the divisive issue in the hands of legislators instead of judges, who have repeatedly determined that an exemption should not stand.`\
-https://nytimes.com/2024/06/10/world/middleeast/israel-haredi-orthodox-draft-bill.html
 
