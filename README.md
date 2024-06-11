@@ -1,3 +1,27 @@
+**Four Tops Singer Sues Hospital Over Being Put in Restraints**\
+`The lawsuit by Alexander Morris, who joined the group six years ago, said the staff thought he was “delusional” when he told them he was in the Motown band.`\
+https://nytimes.com/2024/06/11/arts/music/four-tops-singer-sues-hospital-restraints.html
+
+**Judge Who Will Sentence Hunter Biden Kept Trial Moving**\
+`Maryellen Noreika didn’t set a sentencing date, but she said that it typically takes place within 120 days of a verdict.`\
+https://nytimes.com/2024/06/11/us/politics/judge-hunter-biden-trial.html
+
+**Rock Around the Clock: 8 Songs About Very Specific Times of Day**\
+`Hear tracks by the Strokes, beabadoobee, Normani and more.`\
+https://nytimes.com/2024/06/11/arts/music/amplifier-newsletter-time-songs.html
+
+**The Most Endangered Marine Mammal Still Exists. Here’s the Latest Count.**\
+`Scientists and officials spent days at sea searching for vaquitas, shy porpoises threatened by fishing gear.`\
+https://nytimes.com/2024/06/11/climate/vaquita-porpoise-survey-mexico.html
+
+**A Textile Company That Wants You to Feel at Home**\
+`For its first U.S. store, Nordic Knots is meant to feel like the opposite of a design studio.`\
+https://nytimes.com/2024/06/11/style/a-textile-company-that-wants-you-to-feel-at-home.html
+
+**A Candidate Got $162,000 in Public Money. His Secret: Fake Donors.**\
+`New York’s new matching-funds campaign system rewards candidates who raise money from small donors, but weak oversight may already have led to abuses.`\
+https://nytimes.com/2024/06/11/nyregion/campaign-finance-fake-donors.html
+
 **A guilty verdict for his son is likely to weigh heavily on President Biden.**\
 `By Katie Rogers`\
 https://nytimes.com/live/2024/06/11/us/hunter-biden-trial-verdict/a-guilty-verdict-for-his-son-is-likely-to-weigh-heavily-on-president-biden
@@ -13,28 +37,4 @@ https://nytimes.com/2024/06/11/world/americas/no-a-remote-amazon-tribe-did-not-g
 **On conservative social media, the guilty verdict gets a ‘yawn.’**\
 `Right-wing influencers have spent much of Hunter Biden’s trial claiming, without evidence, that the process was a sham in various ways.`\
 https://nytimes.com/live/2024/06/11/us/hunter-biden-trial-verdict/on-conservative-social-media-the-guilty-verdict-gets-a-yawn
-
-**‘Presumed Innocent’ Review: Disorder in the Court**\
-`Jake Gyllenhaal steps in for Harrison Ford in a new, highly strung adaptation of Scott Turow’s legal thriller for Apple TV+.`\
-https://nytimes.com/2024/06/11/arts/television/presumed-innocent-review.html
-
-**The U.S. announces more humanitarian aid for Palestinians.**\
-`By Michael Crowley`\
-https://nytimes.com/live/2024/06/11/world/israel-gaza-war-hamas/the-us-announces-more-humanitarian-aid-for-palestinians
-
-**Judge Strikes Down Florida’s Ban on Transgender Care for Minors**\
-`A federal judge ruled that Florida could not “prohibit transgender minors from receiving specific kinds of widely accepted gender-affirming medical care.”`\
-https://nytimes.com/2024/06/11/us/florida-transgender-law.html
-
-**Here’s a Look at the U.N.-Backed Plan to Stop the War in Gaza.**\
-`The Security Council can’t force anyone to adopt the plan, but its passage of a resolution backing it increases pressure on both sides to make a deal.`\
-https://nytimes.com/2024/06/11/world/middleeast/israel-gaza-cease-fire-plan.html
-
-**After Trump Endorses his Rival, a Nevada Senate Candidate Lashes Out**\
-`Jeff Gunter, who is competing in the Nevada Senate Republican primary, said without evidence that “a big check” swayed the former president.`\
-https://nytimes.com/2024/06/11/us/politics/jeff-gunter-nevada-republican-primary.html
-
-**Rapid Verdict Took Biden Family by Surprise as They Rushed to the Courtroom**\
-`Jurors in Delaware reached their verdict on the charges against Hunter Biden, the president’s son, after just three hours and five minutes of deliberations.`\
-https://nytimes.com/2024/06/11/us/politics/biden-family-verdict-courtroom.html
 
