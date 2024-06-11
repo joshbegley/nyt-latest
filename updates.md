@@ -1,3 +1,7 @@
+**World Bank Sees Rosier Growth Outlook**\
+`But rising trade barriers pose a long-term threat to global output as protectionist policies spread, the bank said.`\
+https://nytimes.com/2024/06/11/business/economy/global-economy-world-bank.html
+
 **Memoir by Trump’s Nephew Will Shed Light Into ‘Darker Corner’ of Family**\
 `Fred C. Trump III’s “All in the Family: The Trumps and How We Got This Way” will hit shelves July 30.`\
 https://nytimes.com/2024/06/11/books/review/fred-trump-nephew-memoir.html
