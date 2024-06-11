@@ -1,6 +1,6 @@
 **Here’s What Hunter Biden Was Convicted Of**\
 `The president’s son was convicted of three felonies tied to his purchase of a gun in 2018.`\
-https://nytimes.com/2024/06/11/us/politics/heres-what-hunter-biden-was-convicted-of.html
+https://nytimes.com/2024/06/11/us/politics/hunter-biden-conviction-gun-charges.html
 
 **Disney’s Reimagined Splash Mountain Ride Is Set to Open**\
 `The ride was closed last year because of its connection to a racist film. Disney overhauled it to focus on Tiana, Disney’s first Black princess, drawing praise and backlash.`\
