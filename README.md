@@ -1,3 +1,7 @@
+**America Isn’t Leading the World**\
+`Never has the country looked less like a leader and more like the head of a faction.`\
+https://nytimes.com/2024/06/11/opinion/america-leadership-gaza-ukraine.html
+
 **Quotation of the Day:**\
 `Quotation of the Day for Tuesday, June 11, 2024.`\
 https://nytimes.com/2024/06/11/pageoneplus/quotation-of-the-day.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/10/dining/james-beard-award-winners.html
 **Trumpet Flourish**\
 `Chloe Revery never misses.`\
 https://nytimes.com/2024/06/10/crosswords/daily-puzzle-2024-06-11.html
-
-**After Weeks of Planning, Seconds Made the Difference in Israeli Hostage Rescue**\
-`When a truck carrying three of the four rescued hostages broke down and came under fire, Israel says it called in an airstrike. Scores of Palestinians, including children, were killed during the operation, according to Gazan officials.`\
-https://nytimes.com/2024/06/10/world/middleeast/israel-hostage-rescue-gaza.html
 
