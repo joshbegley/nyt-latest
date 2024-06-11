@@ -1,3 +1,7 @@
+**Live Updates: Hunter Biden Found Guilty in Gun Case**\
+`President Biden’s son was charged with three felony counts tied to a handgun purchase in 2018. He could face up to 25 years in prison and $750,000 in fines.`\
+https://nytimes.com/live/2024/06/11/us/hunter-biden-trial-verdict
+
 **Rules that banned electronics in the courtroom added hurdles for reporters.**\
 `By Eileen Sullivan`\
 https://nytimes.com/live/2024/06/11/us/hunter-biden-trial-verdict/rules-that-banned-electronics-in-the-courtroom-added-hurdles-for-reporters
