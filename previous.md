@@ -18,8 +18,8 @@ https://nytimes.com/2024/06/11/podcasts/ceasefire-un-justice-alito.html
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/06/11/crosswords/connections-companion-367.html
 
-**Rescuers Comb Dense Forest in Malawi for Vice President’s Missing Plane**\
-`The authorities lost contact on Monday with the military aircraft carrying Saulos Chilima and nine others.`\
+**Malawi’s Vice President Killed in Plane Crash**\
+`After an overnight search, rescuers found the wreckage of the military aircraft that had been carrying Vice President Saulos Chilima and nine others.`\
 https://nytimes.com/2024/06/11/world/africa/malawi-plane-missing-vice-president-chilima.html
 
 **After the U.N. Security Council backed a cease-fire, Blinken said the world was waiting for Yahya Sinwar, Hamas’s leader in Gaza, to respond.**\
