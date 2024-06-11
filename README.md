@@ -19,7 +19,7 @@ https://nytimes.com/2024/06/11/world/asia/hunter-biden-israel-hamas-deal-asia.ht
 https://nytimes.com/2024/06/11/us/morrie-markoff-dead.html
 
 **Robert De Niro Doesn’t Mind Being Celebrated**\
-`Blake Lively, Jude Law and Selma Blair turned out for the Tribeca Film Festival’s annual artists dinner, ahead of a weekend devoted to Mr. De Niro’s work.`\
+`Blake Lively, Jude Law, Selma Blair and many more turned out for the Tribeca Film Festival’s annual artists dinner, ahead of a weekend devoted to Mr. De Niro’s work.`\
 https://nytimes.com/2024/06/11/style/robert-de-niro-tribeca-festival-dinner.html
 
 **Ben Potter, Who Voiced Popular Comic Books on YouTube, Dies at 40**\
