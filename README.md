@@ -1,3 +1,7 @@
+**U.S. Bans Imports From 3 Chinese Companies Over Ties to Forced Labor**\
+`The government targeted companies involved in making seafood, aluminum and footwear, citing their links to labor programs affecting Chinese minorities.`\
+https://nytimes.com/2024/06/11/business/economy/us-ban-china-uyghur-labor.html
+
 **Apple’s Go-Slow A.I. Approach**\
 `The tech giant announced a slew of artificial intelligence-focused features, but also signaled it will be patient in rolling out the technology to users.`\
 https://nytimes.com/2024/06/11/business/dealbook/apple-go-slow-ai-approach.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/11/world/africa/malawi-plane-crash-vice-president-ch
 **After the U.N. Security Council backed a cease-fire, Blinken said the world was waiting for Yahya Sinwar, Hamas’s leader in Gaza, to respond.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/06/11/world/israel-gaza-war-hamas/after-the-un-security-council-backed-a-cease-fire-blinken-said-its-fate-is-down-to-one-person-referring-to-hamass-leader
-
-**Why Macron’s Plan to Vanquish the Right Might Just Succeed**\
-`The European center is holding, and Macron is hoping France will stay reasonable.`\
-https://nytimes.com/live/2024/06/04/opinion/thepoint/eu-france-macron-right
 
