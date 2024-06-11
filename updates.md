@@ -1,3 +1,7 @@
+**$16 Billion Hudson River Tunnel Project Gets Final Green Light**\
+`An agreement for the federal government to pay for most of the $16 billion project means the long-delayed plan is “all systems go,” Senator Chuck Schumer of New York said.`\
+https://nytimes.com/2024/06/11/nyregion/gateway-tunnel-amtrak-funding.html
+
 **Biden Addresses Gun-Control Group Hours After Son’s Firearms Conviction**\
 `“More children are killed in America by guns than cancer and car accidents combined,” President Biden said in a speech in Washington.`\
 https://nytimes.com/2024/06/11/us/politics/biden-gun-violence.html
