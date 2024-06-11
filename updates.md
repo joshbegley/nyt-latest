@@ -1,3 +1,7 @@
+**U.A.W. Monitor Investigates Accusations Against Union Leader**\
+`The court-appointed monitor is looking into allegations by two union officials that they were punished for raising questions on financial matters.`\
+https://nytimes.com/2024/06/10/business/uaw-shawn-fain-monitor.html
+
 **In Secret Recordings, Alito Endorses Nation of ‘Godliness.’ Roberts Talks of Pluralism.**\
 `The two justices were surreptitiously recorded at a Supreme Court gala last week by a woman posing as a Catholic conservative.`\
 https://nytimes.com/2024/06/10/us/politics/supreme-court-alito.html
