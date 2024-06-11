@@ -1,3 +1,15 @@
+**Biden’s Hard-Line Effort to Close the Border**\
+`The order to suspend asylum when crossings surge shows how drastically immigration politics have shifted in the United States.`\
+https://nytimes.com/2024/06/11/podcasts/the-daily/bidens-border.html
+
+**A Gaza Cease-Fire Plan, and Justice Alito Secretly Recorded**\
+`Plus, a dispatch from the U.S.-Mexico border.`\
+https://nytimes.com/2024/06/11/podcasts/ceasefire-un-justice-alito.html
+
+**The Connections Companion No. 367, June 12, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/11/crosswords/connections-companion-367.html
+
 **Rescuers Comb Dense Forest in Malawi for Vice President’s Missing Plane**\
 `The authorities lost contact on Monday with the military aircraft carrying Saulos Chilima and nine others.`\
 https://nytimes.com/2024/06/11/world/africa/malawi-plane-missing-vice-president-chilima.html

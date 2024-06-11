@@ -1,3 +1,15 @@
+**Biden’s Hard-Line Effort to Close the Border**\
+`The order to suspend asylum when crossings surge shows how drastically immigration politics have shifted in the United States.`\
+https://nytimes.com/2024/06/11/podcasts/the-daily/bidens-border.html
+
+**A Gaza Cease-Fire Plan, and Justice Alito Secretly Recorded**\
+`Plus, a dispatch from the U.S.-Mexico border.`\
+https://nytimes.com/2024/06/11/podcasts/ceasefire-un-justice-alito.html
+
+**The Connections Companion No. 367, June 12, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/11/crosswords/connections-companion-367.html
+
 **Rescuers Comb Dense Forest in Malawi for Vice President’s Missing Plane**\
 `The authorities lost contact on Monday with the military aircraft carrying Saulos Chilima and nine others.`\
 https://nytimes.com/2024/06/11/world/africa/malawi-plane-missing-vice-president-chilima.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/11/movies/hit-man-clip.html
 **Age Is on the Ballot in 2024, at Least in North Dakota**\
 `A vote on Tuesday on a proposed age limit for members of Congress is a rare chance to find out what voters actually believe about politicians and age.`\
 https://nytimes.com/2024/06/11/us/north-dakota-candidate-age.html
-
-**Torture Accusations Could Lead to Civil Rights Case in Mississippi**\
-`Federal authorities investigating the “Goon Squad” in a suburban sheriff’s office have widened their investigation, seeking out more victims of brutality.`\
-https://nytimes.com/2024/06/11/us/torture-accusations-could-lead-to-civil-rights-case-in-mississippi.html
-
-**First Came ‘Spam.’ Now, With A.I., We’ve Got ‘Slop’**\
-`A new term has emerged to describe dubious A.I.-generated material.`\
-https://nytimes.com/2024/06/11/style/ai-search-slop.html
-
-**‘The Line’ in Saudi Arabia Is a Spectacle, but That Doesn’t Make It Smart**\
-`Success isn’t an Instagrammable skyline.`\
-https://nytimes.com/2024/06/11/opinion/saudi-arabia-the-line.html
 
