@@ -1,3 +1,11 @@
+**Nigeria Confronts Its Worst Economic Crisis in a Generation**\
+`People in Africa’s most populous nation are suffering as the price of food, fuel and medicine has skyrocketed out of reach for many.`\
+https://nytimes.com/2024/06/11/world/africa/nigeria-economy-strike.html
+
+**Buoyed by Election, Meloni Basks in the Spotlight as Italy Hosts the G7**\
+`The Italian prime minister was a rare leader to be fortified by the vote for the European Parliament. This week she has a chance to show her influence on an even broader stage.`\
+https://nytimes.com/2024/06/11/world/europe/giorgia-meloni-italy-g7.html
+
 **Biden, Honoring Juneteenth, Warns of Danger of ‘Old Ghosts in New Garments’**\
 `The president assailed attacks on Black history, and vowed that his administration was committed to protecting civil rights.`\
 https://nytimes.com/2024/06/10/us/politics/biden-juneteenth.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/10/climate/pfas-forever-chemicals-lawsuit.html
 **U.A.W. Monitor Investigates Accusations Against Union Leader**\
 `The court-appointed monitor is looking into allegations by two union officials that they were punished for raising questions on financial matters.`\
 https://nytimes.com/2024/06/10/business/uaw-shawn-fain-monitor.html
-
-**In Secret Recordings, Alito Endorses Nation of ‘Godliness.’ Roberts Talks of Pluralism.**\
-`The two justices were surreptitiously recorded at a Supreme Court gala last week by a woman posing as a Catholic conservative.`\
-https://nytimes.com/2024/06/10/us/politics/supreme-court-alito.html
-
-**4 Instructors From Iowa College Are Attacked in Public Park in China**\
-`The Cornell College instructors were in the city of Jilin as part of a partnership with a local university. Much about the attack was still unclear.`\
-https://nytimes.com/2024/06/10/world/asia/cornell-college-attack-china.html
 
