@@ -1,3 +1,11 @@
+**5 Takeaways From Hunter Biden’s Conviction in a Gun Case**\
+`The president’s son, who was convicted of three felonies, could face a stiffer sentence if he is convicted in a separate tax case scheduled for September.`\
+https://nytimes.com/2024/06/11/us/politics/takeaways-hunter-biden.html
+
+**New Gaza Cease-Fire Proposal Puts Spotlight on Hamas Leader Yahya Sinwar**\
+`Yahya Sinwar, an architect of the Oct. 7 attacks on Israel, is believed to remain in hiding in Gaza. His voice is believed to be pivotal in Hamas’s decision-making.`\
+https://nytimes.com/2024/06/11/world/middleeast/israel-hamas-cease-fire-gaza.html
+
 **A juror told reporters that the jury was impartial despite feeling sympathy for Hunter Biden.**\
 `By Zach Montague`\
 https://nytimes.com/live/2024/06/11/us/hunter-biden-trial-verdict/a-juror-told-reporters-that-the-jury-was-impartial-despite-feeling-sympathy-for-hunter-biden
