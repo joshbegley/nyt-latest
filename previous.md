@@ -1,3 +1,7 @@
+**Menendez Witness Braces for Questions on ‘His Lies and His Cheating’**\
+`Jose Uribe, a star government witness, faces cross-examination on Tuesday during his third day of testimony at Senator Robert Menendez’s bribery trial.`\
+https://nytimes.com/2024/06/11/nyregion/jose-uribe-robert-menendez-bribery-trial.html
+
 **At Least 49 Dead After Migrant Boat Sinks Off Yemen**\
 `Another 140 people were missing, according to the U.N. migration agency, which said 71 had so far been rescued.`\
 https://nytimes.com/2024/06/11/world/middleeast/migrant-boat-sinking-yemen.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/11/world/europe/cyprus-syria-lebanon-asylum.html
 **U.S. Bans Imports From 3 Chinese Companies Over Ties to Forced Labor**\
 `The government targeted companies involved in making seafood, aluminum and footwear, citing their links to labor programs affecting Chinese minorities.`\
 https://nytimes.com/2024/06/11/business/economy/us-ban-china-uyghur-labor.html
-
-**Apple’s Go-Slow A.I. Approach**\
-`The tech giant announced a slew of artificial intelligence-focused features, but also signaled it will be patient in rolling out the technology to users.`\
-https://nytimes.com/2024/06/11/business/dealbook/apple-go-slow-ai-approach.html
 

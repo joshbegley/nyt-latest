@@ -1,3 +1,7 @@
+**Menendez Witness Braces for Questions on ‘His Lies and His Cheating’**\
+`Jose Uribe, a star government witness, faces cross-examination on Tuesday during his third day of testimony at Senator Robert Menendez’s bribery trial.`\
+https://nytimes.com/2024/06/11/nyregion/jose-uribe-robert-menendez-bribery-trial.html
+
 **At Least 49 Dead After Migrant Boat Sinks Off Yemen**\
 `Another 140 people were missing, according to the U.N. migration agency, which said 71 had so far been rescued.`\
 https://nytimes.com/2024/06/11/world/middleeast/migrant-boat-sinking-yemen.html
