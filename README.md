@@ -1,3 +1,7 @@
+**Paramount’s Deal With Skydance Falls Apart**\
+`There were several hitches in the last week as Skydance, Paramount and its parent company, National Amusements, reached the final stages of negotiations`\
+https://nytimes.com/2024/06/11/business/media/paramount-skydance-deal.html
+
 **$16 Billion Hudson River Tunnel Project Gets Final Green Light**\
 `An agreement for the federal government to pay for most of the $16 billion project means the long-delayed plan is “all systems go,” Senator Chuck Schumer of New York said.`\
 https://nytimes.com/2024/06/11/nyregion/gateway-tunnel-amtrak-funding.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/11/arts/music/young-thug-brian-steel-trial.html
 **It's a Family Affair**\
 `Type 1 diabetes disrupts a household. But members gain awareness and power, alongside the challenges.`\
 https://nytimes.com/paidpost/sanofi-aventis/its-a-family-affair.html
-
-**Can Art Save the World? Or Is That Too Much to Ask?**\
-`At the Art for Tomorrow conference in Venice, participants debated topics like art’s role in a just world and the good and dangerous effects of A.I.`\
-https://nytimes.com/2024/06/11/arts/design/art-society-venice-conference.html
 
