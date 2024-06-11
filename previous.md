@@ -1,3 +1,7 @@
+**In Secret Recordings, Alito Endorses Nation of ‘Godliness.’ Roberts Talks of Pluralism.**\
+`The two justices were surreptitiously recorded at a Supreme Court gala last week by a woman posing as a Catholic conservative.`\
+https://nytimes.com/2024/06/10/us/politics/supreme-court-alito.html
+
 **4 Instructors From Iowa College Attacked While Visiting Sister University in China**\
 `The four, from Cornell College, a private liberal arts school in Mount Vernon, Iowa, were injured while in a public park.`\
 https://nytimes.com/2024/06/10/world/asia/cornell-college-attack-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/10/world/middleeast/security-council-gaza-ceasefire-
 **Freedom’s Just Another Word for Not Paying Taxes**\
 `Why America’s oligarchs are rallying around Trump.`\
 https://nytimes.com/2024/06/10/opinion/trump-biden-billionaires-taxes.html
-
-**United Nations Security Council Backs Gaza Cease-Fire Resolution**\
-`Fourteen of the 15 members on the U.N. Security Council, with Russia abstaining, voted in favor of adopting a proposal calling for a permanent cease-fire in Gaza. Neither Israel nor Hamas has formally embraced the plan.`\
-https://nytimes.com/video/world/middleeast/100000009514538/un-cease-fire-resolution.html
 

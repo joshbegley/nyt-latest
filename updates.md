@@ -1,3 +1,7 @@
+**In Secret Recordings, Alito Endorses Nation of ‘Godliness.’ Roberts Talks of Pluralism.**\
+`The two justices were surreptitiously recorded at a Supreme Court gala last week by a woman posing as a Catholic conservative.`\
+https://nytimes.com/2024/06/10/us/politics/supreme-court-alito.html
+
 **4 Instructors From Iowa College Attacked While Visiting Sister University in China**\
 `The four, from Cornell College, a private liberal arts school in Mount Vernon, Iowa, were injured while in a public park.`\
 https://nytimes.com/2024/06/10/world/asia/cornell-college-attack-china.html
