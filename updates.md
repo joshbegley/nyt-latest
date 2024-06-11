@@ -1,3 +1,7 @@
+**Paramount’s Deal With Skydance Falls Apart**\
+`There were several hitches in the last week as Skydance, Paramount and its parent company, National Amusements, reached the final stages of negotiations`\
+https://nytimes.com/2024/06/11/business/media/paramount-skydance-deal.html
+
 **$16 Billion Hudson River Tunnel Project Gets Final Green Light**\
 `An agreement for the federal government to pay for most of the $16 billion project means the long-delayed plan is “all systems go,” Senator Chuck Schumer of New York said.`\
 https://nytimes.com/2024/06/11/nyregion/gateway-tunnel-amtrak-funding.html
