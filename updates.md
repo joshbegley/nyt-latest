@@ -1,3 +1,7 @@
+**Want Deeper Friendships? Put Them on ‘Autopilot.’**\
+`Today’s challenge: Use your calendar to balance friendships and other priorities.`\
+https://nytimes.com/2024/06/11/well/live/friendship-schedule.html
+
 **A Guilty Verdict for Hunter Biden Weighs on a Worried President Biden**\
 `The president, who is in the middle of a re-election fight, has grown more resigned and afraid about what the future might hold for his son, according to people close to them.`\
 https://nytimes.com/2024/06/11/us/politics/hunter-joe-biden-guilty-verdict.html
