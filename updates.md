@@ -1,3 +1,7 @@
+**New Gaza Cease-Fire Proposal Puts Spotlight on Hamas Leader Yahya Sinwar**\
+`Yahya Sinwar, an architect of the Oct. 7 attacks on Israel, is believed to remain in hiding in Gaza. His voice is believed to be pivotal in Hamas’s decision-making.`\
+https://nytimes.com/2024/06/11/world/middleeast/israel-hamas-cease-fire-gaza.html
+
 **For Women in Architecture, It’s a Time of ‘Catching Up’**\
 `Yvonne Farrell and Shelley McNamara of Dublin’s Grafton Architects are forging a path in an industry that continues to be dominated by men.`\
 https://nytimes.com/2024/06/11/arts/design/women-architecture-grafton-pritzker.html
