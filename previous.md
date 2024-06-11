@@ -1,6 +1,6 @@
 **Biden’s Hard-Line Effort to Close the Border**\
 `The order to suspend asylum when crossings surge shows how drastically immigration politics have shifted in the United States.`\
-https://nytimes.com/2024/06/11/podcasts/the-daily/bidens-border.html
+https://nytimes.com/2024/06/11/podcasts/the-daily/biden-border.html
 
 **A Gaza Cease-Fire Plan, and Justice Alito Secretly Recorded**\
 `Plus, a dispatch from the U.S.-Mexico border.`\
