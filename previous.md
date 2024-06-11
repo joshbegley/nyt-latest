@@ -1,3 +1,7 @@
+**Biden Talks About Gun Safety Hours After Son’s Firearms Conviction**\
+`President Biden spoke to the nation’s largest gun control group shortly after his son Hunter Biden was convicted in Delaware of three felony counts of lying on a federal firearms application in 2018.`\
+https://nytimes.com/video/us/politics/100000009516496/joe-biden-gun-control.html
+
 **Hunter Biden Found Guilty on Charges Related to Gun Purchase in 2018**\
 `The president’s son was convicted of three felonies during a trial that made his struggles with drug addiction painfully public.`\
 https://nytimes.com/2024/06/11/us/politics/hunter-biden-guilty-gun-trial.html
@@ -25,8 +29,4 @@ https://nytimes.com/2024/06/11/books/ben-potter-youtube-comics-dead.html
 **Paramount’s Deal With Skydance Falls Apart**\
 `There were several hitches in the last week as Skydance, Paramount and its parent company, National Amusements, reached the final stages of negotiations`\
 https://nytimes.com/2024/06/11/business/media/paramount-skydance-deal.html
-
-**$16 Billion Hudson River Tunnel Project Gets Final Green Light**\
-`An agreement for the federal government to pay for most of the $16 billion project means the long-delayed plan is “all systems go,” Senator Chuck Schumer of New York said.`\
-https://nytimes.com/2024/06/11/nyregion/gateway-tunnel-amtrak-funding.html
 

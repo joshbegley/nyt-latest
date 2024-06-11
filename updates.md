@@ -1,3 +1,7 @@
+**Biden Talks About Gun Safety Hours After Son’s Firearms Conviction**\
+`President Biden spoke to the nation’s largest gun control group shortly after his son Hunter Biden was convicted in Delaware of three felony counts of lying on a federal firearms application in 2018.`\
+https://nytimes.com/video/us/politics/100000009516496/joe-biden-gun-control.html
+
 **Hunter Biden Found Guilty on Charges Related to Gun Purchase in 2018**\
 `The president’s son was convicted of three felonies during a trial that made his struggles with drug addiction painfully public.`\
 https://nytimes.com/2024/06/11/us/politics/hunter-biden-guilty-gun-trial.html
