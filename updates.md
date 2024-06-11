@@ -1,3 +1,7 @@
+**Will Hunter Biden Go to Jail? Here’s What His Sentence Could Look Like**\
+`The president’s son is a first-time offender who was not accused of using the weapon in another crime.`\
+https://nytimes.com/2024/06/11/us/politics/hunter-biden-jail-sentence.html
+
 **Is the Sugar Substitute Xylitol Safe for Your Heart?**\
 `New research suggests the sweetener is linked to health issues. Here’s what to know.`\
 https://nytimes.com/2024/06/11/well/eat/xylitol-sugar-sweetener-safety.html
