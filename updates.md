@@ -1,3 +1,7 @@
+**Judge Strikes Down Florida’s Ban on Transgender Care for Minors**\
+`A federal judge ruled that Florida could not “prohibit transgender minors from receiving specific kinds of widely accepted gender-affirming medical care.”`\
+https://nytimes.com/2024/06/11/us/florida-transgender-law.html
+
 **Here’s a Look at the U.N.-Backed Plan to Stop the War in Gaza.**\
 `The Security Council can’t force anyone to adopt the plan, but its passage of a resolution backing it increases pressure on both sides to make a deal.`\
 https://nytimes.com/2024/06/11/world/middleeast/israel-gaza-cease-fire-plan.html
