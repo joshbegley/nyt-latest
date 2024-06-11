@@ -1,3 +1,7 @@
+**Alito’s ‘Godliness’ Comment Echoes a Broader Christian Movement**\
+`Justice Samuel Alito’s secretly recorded remarks come as many conservatives have openly embraced the view that American democracy must be grounded in a Christian worldview.`\
+https://nytimes.com/2024/06/11/us/samuel-alito-christianity-law-democracy.html
+
 **Hamas and Israel Face Pressure to Embrace Cease-Fire Adopted by U.N.**\
 `Despite positive statements and international urging, neither of the warring parties accepted a U.S.-backed plan to halt the war in Gaza, let displaced Palestinians go home and free hostages.`\
 https://nytimes.com/2024/06/11/world/middleeast/israel-hamas-ceasefire-plan.html
