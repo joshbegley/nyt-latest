@@ -1,3 +1,11 @@
+**Biden Addresses Gun-Control Group Hours After Son’s Firearms Conviction**\
+`“More children are killed in America by guns than cancer and car accidents combined,” President Biden said in a speech in Washington.`\
+https://nytimes.com/2024/06/11/us/politics/biden-gun-violence.html
+
+**Macron’s Call for Elections in France Adds to Fears of Financial Woes**\
+`Moody’s ratings agency warned of a downgrade on French debt, saying the move could worsen France’s finances by creating “a polarized political environment.”`\
+https://nytimes.com/2024/06/11/business/france-economy-macron.html
+
 **Restaurant Review: Penny, a Seafood Counter That Knows What It’s About**\
 `Almost everything on the menu at this sibling of Claud contains seafood. You sit at a counter to eat it. The only surprise is how well it all works together.`\
 https://nytimes.com/2024/06/11/dining/restaurant-review-penny-east-village.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/11/arts/design/art-society-venice-conference.html
 **Hunter Biden Is Guilty. That’s OK.**\
 `You break the law, you pay the price. Why is that so hard?`\
 https://nytimes.com/live/2024/06/04/opinion/thepoint/hunter-biden-guilty-verdict
-
-**For Women in Architecture, It’s a Time of ‘Catching Up’**\
-`Yvonne Farrell and Shelley McNamara of Dublin’s Grafton Architects are forging a path in an industry that continues to be dominated by men.`\
-https://nytimes.com/2024/06/11/arts/design/women-architecture-grafton-pritzker.html
-
-**Tiny Love Stories: ‘My Father Was a Poet Who Wrote Endlessly About Feet’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2024/06/11/style/tiny-modern-love-stories-my-father-was-a-poet-who-wrote-endlessly-about-feet.html
 

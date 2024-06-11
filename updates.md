@@ -1,3 +1,11 @@
+**Biden Addresses Gun-Control Group Hours After Son’s Firearms Conviction**\
+`“More children are killed in America by guns than cancer and car accidents combined,” President Biden said in a speech in Washington.`\
+https://nytimes.com/2024/06/11/us/politics/biden-gun-violence.html
+
+**Macron’s Call for Elections in France Adds to Fears of Financial Woes**\
+`Moody’s ratings agency warned of a downgrade on French debt, saying the move could worsen France’s finances by creating “a polarized political environment.”`\
+https://nytimes.com/2024/06/11/business/france-economy-macron.html
+
 **U.S. to Send Another Patriot Missile Battery to Ukraine**\
 `The system is one of the best air-defense weapons, but the United States and its allies have a limited supply.`\
 https://nytimes.com/2024/06/11/us/politics/patriot-missiles-ukraine-war.html
