@@ -1,3 +1,7 @@
+**Quotation of the Day:**\
+`Quotation of the Day for Tuesday, June 11, 2024.`\
+https://nytimes.com/2024/06/11/pageoneplus/quotation-of-the-day.html
+
 **Tuesday Briefing**\
 `The U.N. passes a cease-fire resolution for Gaza.`\
 https://nytimes.com/2024/06/11/briefing/israel-un-cease-fire.html
