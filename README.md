@@ -19,7 +19,7 @@ https://nytimes.com/2024/06/11/us/politics/rfk-polling-latinos.html
 https://nytimes.com/live/2024/06/11/us/hunter-biden-trial-verdict/heres-the-latest-on-the-trial
 
 **Live Updates: Hunter Biden Found Guilty in Gun Case**\
-`President Biden’s son was charged with three felony counts tied to a handgun purchase in 2018. He could face up to 25 years in prison and $750,000 in fines.`\
+`President Biden’s son was convicted in Delaware federal court on all three felony counts tied to a handgun purchase in 2018. His sentencing date has not been set.`\
 https://nytimes.com/live/2024/06/11/us/hunter-biden-trial-verdict
 
 **Mistral, a French A.I. Start-Up, Is Valued at $6.2 Billion**\
