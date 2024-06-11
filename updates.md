@@ -1,3 +1,15 @@
+**Here’s a Look at the U.N.-Backed Plan to Stop the War in Gaza.**\
+`The Security Council can’t force anyone to adopt the plan, but its passage of a resolution backing it increases pressure on both sides to make a deal.`\
+https://nytimes.com/2024/06/11/world/middleeast/israel-gaza-cease-fire-plan.html
+
+**After Trump endorses his rival, a Nevada Senate candidate lashes out.**\
+`Jeff Gunter, who is competing in the Nevada Senate Republican primary, said without evidence that “a big check” swayed the former president.`\
+https://nytimes.com/live/2024/06/11/us/biden-trump-election/after-trump-endorses-his-rival-a-nevada-senate-candidate-lashes-out
+
+**Rapid Verdict Took Biden Family by Surprise as They Rushed to the Courtroom**\
+`Jurors in Delaware reached their verdict on the charges against Hunter Biden, the president’s son, after just three hours and five minutes of deliberations.`\
+https://nytimes.com/2024/06/11/us/politics/biden-family-verdict-courtroom.html
+
 **Here’s What Hunter Biden Was Convicted Of**\
 `The president’s son was convicted of three felonies tied to his purchase of a gun in 2018.`\
 https://nytimes.com/2024/06/11/us/politics/hunter-biden-conviction-gun-charges.html
