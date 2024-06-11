@@ -1,3 +1,7 @@
+**Charity Founder Embezzled Millions and Spent on Lavish Meals, U.S. Says**\
+`Prosecutors say that Keith Taylor, head of Modest Needs, crowdsourced donations for the poor but spent hundreds of thousands of dollars at high-end restaurants.`\
+https://nytimes.com/2024/06/11/nyregion/modest-needs-charity-keith-taylor.html
+
 **Convictions of Biden’s Son and Trump Put the Justice System on Trial**\
 `But despite the partisan roar, two juries appeared to seriously weigh the evidence and deliver verdicts. The system seemed to work as it is supposed to.`\
 https://nytimes.com/2024/06/11/us/politics/hunter-biden-trump-convictions-justice.html
@@ -25,8 +29,4 @@ https://nytimes.com/2024/06/11/arts/music/norman-carol-dead.html
 **Hunter Biden Conviction Undercuts a Trump Narrative, and a Fund-Raising Pitch**\
 `Many allies of Donald J. Trump had secretly wanted an acquittal, which they predicted would have turbocharged fund-raising and fed their claims of a rigged justice system.`\
 https://nytimes.com/2024/06/11/us/politics/donald-trump-hunter-biden.html
-
-**Elon Musk Withdraws His Lawsuit Against OpenAI and Sam Altman**\
-`The Tesla chief executive had claimed that the A.I. start-up put profits and commercial interests ahead of benefiting humanity.`\
-https://nytimes.com/2024/06/11/technology/elon-musk-openai-lawsuit.html
 
