@@ -1,3 +1,7 @@
+**4 Instructors From Iowa College Attacked While Visiting Sister University in China**\
+`The four, from Cornell College, a private liberal arts school in Mount Vernon, Iowa, were injured while in a public park.`\
+https://nytimes.com/2024/06/10/world/asia/cornell-college-attack-china.html
+
 **Baltimore City Council to Hold Hearings on Drug Overdoses**\
 `The city’s overdose epidemic has killed nearly 6,000 people since 2018, a death rate never before seen in a major U.S. city.`\
 https://nytimes.com/2024/06/10/us/baltimore-drug-overdoses-city-council-hearings.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/10/opinion/trump-biden-billionaires-taxes.html
 **United Nations Security Council Backs Gaza Cease-Fire Resolution**\
 `Fourteen of the 15 members on the U.N. Security Council, with Russia abstaining, voted in favor of adopting a proposal calling for a permanent cease-fire in Gaza. Neither Israel nor Hamas has formally embraced the plan.`\
 https://nytimes.com/video/world/middleeast/100000009514538/un-cease-fire-resolution.html
-
-**Obama Marks Milestone in Construction of Presidential Center**\
-`Nine years after selecting Chicago as the home for his presidential center, Barack Obama celebrated the structure reaching its full height.`\
-https://nytimes.com/2024/06/10/us/obama-center-chicago.html
 

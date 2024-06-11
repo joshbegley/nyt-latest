@@ -1,3 +1,7 @@
+**4 Instructors From Iowa College Attacked While Visiting Sister University in China**\
+`The four, from Cornell College, a private liberal arts school in Mount Vernon, Iowa, were injured while in a public park.`\
+https://nytimes.com/2024/06/10/world/asia/cornell-college-attack-china.html
+
 **Baltimore City Council to Hold Hearings on Drug Overdoses**\
 `The city’s overdose epidemic has killed nearly 6,000 people since 2018, a death rate never before seen in a major U.S. city.`\
 https://nytimes.com/2024/06/10/us/baltimore-drug-overdoses-city-council-hearings.html
