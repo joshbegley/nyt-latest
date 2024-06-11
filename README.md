@@ -1,3 +1,15 @@
+**Happy Pride Month, Martha-Ann!**\
+`Her distaste for the rainbow flag shows how powerful it has become.`\
+https://nytimes.com/live/2024/06/04/opinion/thepoint/alito-wife-flag-pride
+
+**In Taped Remarks at Supreme Court Gala, Revealing Glimpses of Roberts and Alito**\
+`Chief Justice John G. Roberts Jr. and Justice Samuel A. Alito Jr., once close allies, have embraced starkly different conceptions of the judicial role.`\
+https://nytimes.com/2024/06/11/us/politics/supreme-court-gala-alito-roberts.html
+
+**In ‘Devastating’ Split, a Famous Hot Dog Gobbler and Nathan’s Part Ways**\
+`Joey Chestnut had long been the face of the Nathan’s Famous Hot Dog Eating Contest. Then he signed up to endorse a rival brand’s vegan dogs.`\
+https://nytimes.com/2024/06/11/nyregion/nathans-hot-dog-eating-contest-joey-chestnut.html
+
 **Biden Talks About Gun Safety Hours After Son’s Firearms Conviction**\
 `President Biden spoke to the nation’s largest gun control group shortly after his son Hunter Biden was convicted in Delaware of three felony counts of lying on a federal firearms application in 2018.`\
 https://nytimes.com/video/us/politics/100000009516496/joe-biden-gun-control.html
@@ -17,16 +29,4 @@ https://nytimes.com/2024/06/11/world/asia/hunter-biden-israel-hamas-deal-asia.ht
 **Morrie Markoff, Listed as Oldest Man in the U.S., Dies at 110**\
 `A rare supercentenarian, he remained remarkably lucid after 11 decades, even maintaining a blog. His brain has been donated for research on what’s known as super-aging.`\
 https://nytimes.com/2024/06/11/us/morrie-markoff-dead.html
-
-**Robert De Niro Doesn’t Mind Being Celebrated**\
-`Blake Lively, Jude Law, Selma Blair and many more turned out for the Tribeca Film Festival’s annual artists dinner, ahead of a weekend devoted to Mr. De Niro’s work.`\
-https://nytimes.com/2024/06/11/style/robert-de-niro-tribeca-festival-dinner.html
-
-**Ben Potter, Who Voiced Popular Comic Books on YouTube, Dies at 40**\
-`Mr. Potter narrated the epic sagas of popular comic book heroes and villains on his channel Comicstorian.`\
-https://nytimes.com/2024/06/11/books/ben-potter-youtube-comics-dead.html
-
-**Paramount’s Deal With Skydance Falls Apart**\
-`There were several hitches in the last week as Skydance, Paramount and its parent company, National Amusements, reached the final stages of negotiations`\
-https://nytimes.com/2024/06/11/business/media/paramount-skydance-deal.html
 
