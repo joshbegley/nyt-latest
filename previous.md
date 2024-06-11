@@ -1,3 +1,7 @@
+**Apple’s Go-Slow A.I. Approach**\
+`The tech giant announced a slew of artificial intelligence-focused features, but also signaled it will be patient in rolling out the technology to users.`\
+https://nytimes.com/2024/06/11/business/dealbook/apple-go-slow-ai-approach.html
+
 **Late Night Pounces on Trump’s First Meeting With Probation Officer**\
 `“Things got off to a rough start when Trump offered the probation officer $130,000,” Jimmy Fallon joked.`\
 https://nytimes.com/2024/06/11/arts/television/late-night-trump-probation-meeting.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/11/world/israel-gaza-war-hamas/after-the-un-sec
 **Why Macron’s Plan to Vanquish the Right Might Just Succeed**\
 `The European center is holding, and Macron is hoping France will stay reasonable.`\
 https://nytimes.com/live/2024/06/04/opinion/thepoint/eu-france-macron-right
-
-**There’s a Reason Trump Has Friends in High Places**\
-`Even the weak regulatory grasp of capitalist democracy is too strong for, well, capitalists.`\
-https://nytimes.com/2024/06/11/opinion/trump-business-capitalism-democracy.html
 

@@ -1,3 +1,7 @@
+**Apple’s Go-Slow A.I. Approach**\
+`The tech giant announced a slew of artificial intelligence-focused features, but also signaled it will be patient in rolling out the technology to users.`\
+https://nytimes.com/2024/06/11/business/dealbook/apple-go-slow-ai-approach.html
+
 **Late Night Pounces on Trump’s First Meeting With Probation Officer**\
 `“Things got off to a rough start when Trump offered the probation officer $130,000,” Jimmy Fallon joked.`\
 https://nytimes.com/2024/06/11/arts/television/late-night-trump-probation-meeting.html
