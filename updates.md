@@ -1,5 +1,9 @@
 **Malawi’s Vice President Killed in Plane Crash**\
 `After an overnight search, rescuers found the wreckage of the military aircraft that had been carrying Vice President Saulos Chilima and nine others.`\
+https://nytimes.com/2024/06/11/world/africa/malawi-plane-crash-vice-president-chilima.html
+
+**Malawi’s Vice President Killed in Plane Crash**\
+`After an overnight search, rescuers found the wreckage of the military aircraft that had been carrying Vice President Saulos Chilima and nine others.`\
 https://nytimes.com/2024/06/11/world/africa/malawi-plane-missing-vice-president-chilima.html
 
 **4 Israeli Soldiers Are Killed in Rafah in Apparent Ambush**\
