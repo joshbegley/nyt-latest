@@ -1,3 +1,11 @@
+**Is the Sugar Substitute Xylitol Safe for Your Heart?**\
+`New research suggests the sweetener is linked to health issues. Here’s what to know.`\
+https://nytimes.com/2024/06/11/well/eat/xylitol-sugar-sweetener-safety.html
+
+**Alvin Bragg Will Testify to Congress After Trump’s Sentencing**\
+`The Manhattan district attorney and another prosecutor will confront questions next month from G.O.P. lawmakers about the Trump case.`\
+https://nytimes.com/2024/06/11/us/politics/alvin-bragg-congress-trump-conviction.html
+
 **Four Tops Singer Sues Hospital Over Being Put in Restraints**\
 `The lawsuit by Alexander Morris, who joined the group six years ago, said the staff thought he was “delusional” when he told them he was in the Motown band.`\
 https://nytimes.com/2024/06/11/arts/music/four-tops-singer-sues-hospital-restraints.html
