@@ -1,3 +1,7 @@
+**Here’s What Hunter Biden Was Convicted Of**\
+`The president’s son was convicted of three felonies tied to his purchase of a gun in 2018.`\
+https://nytimes.com/2024/06/11/us/politics/heres-what-hunter-biden-was-convicted-of.html
+
 **Disney’s Reimagined Splash Mountain Ride Is Set to Open**\
 `The ride was closed last year because of its connection to a racist film. Disney overhauled it to focus on Tiana, Disney’s first Black princess, drawing praise and backlash.`\
 https://nytimes.com/2024/06/11/business/disney-world-splash-mountain-princess-tiana.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/11/business/biden-nears-pick-for-next-fdic-chair.htm
 **Robert F. Kennedy Jr. Is Polling Surprisingly Well Among Latino Voters**\
 `Pollsters attribute the independent candidate’s strength to significant name recognition and to frustration with the top two contenders.`\
 https://nytimes.com/2024/06/11/us/politics/rfk-polling-latinos.html
-
-**Here’s the latest on the trial.**\
-`By Glenn Thrush`\
-https://nytimes.com/live/2024/06/11/us/hunter-biden-trial-verdict/heres-the-latest-on-the-trial
 
