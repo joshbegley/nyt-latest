@@ -1,3 +1,15 @@
+**Trump Nephew to Publish Memoir in July**\
+`Fred C. Trump III’s “All in the Family: The Trumps and How We Got This Way” will hit shelves months before his sister Mary’s second memoir.`\
+https://nytimes.com/2024/06/11/books/review/fred-trump-nephew-memoir.html
+
+**What to Watch in Primaries in Maine, South Carolina, Nevada and North Dakota**\
+`A special House election will also be held in Ohio to replace a retiring Republican congressman.`\
+https://nytimes.com/2024/06/11/us/politics/primaries-maine-south-carolina-nevada-north-dakota.html
+
+**Election Updates: Nancy Mace faces a South Carolina primary fight and four other states go the polls.**\
+``\
+https://nytimes.com/live/2024/06/11/us/biden-trump-election
+
 **How a Winter in California’s Gold Country Started Mark Twain’s Career**\
 `The young writer came across a tale in the Sierra Nevada foothills that would bring him national attention.`\
 https://nytimes.com/2024/06/11/us/california-gold-country-mark-twain.html

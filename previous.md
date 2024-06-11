@@ -1,3 +1,15 @@
+**Trump Nephew to Publish Memoir in July**\
+`Fred C. Trump III’s “All in the Family: The Trumps and How We Got This Way” will hit shelves months before his sister Mary’s second memoir.`\
+https://nytimes.com/2024/06/11/books/review/fred-trump-nephew-memoir.html
+
+**What to Watch in Primaries in Maine, South Carolina, Nevada and North Dakota**\
+`A special House election will also be held in Ohio to replace a retiring Republican congressman.`\
+https://nytimes.com/2024/06/11/us/politics/primaries-maine-south-carolina-nevada-north-dakota.html
+
+**Election Updates: Nancy Mace faces a South Carolina primary fight and four other states go the polls.**\
+``\
+https://nytimes.com/live/2024/06/11/us/biden-trump-election
+
 **How a Winter in California’s Gold Country Started Mark Twain’s Career**\
 `The young writer came across a tale in the Sierra Nevada foothills that would bring him national attention.`\
 https://nytimes.com/2024/06/11/us/california-gold-country-mark-twain.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/11/arts/television/late-night-trump-probation-meetin
 **4 Israeli Soldiers Are Killed in Rafah in Apparent Ambush**\
 `Israel said the soldiers were killed when Hamas militants detonated explosives in a three-story building. Some wounded soldiers were in critical condition.`\
 https://nytimes.com/2024/06/11/world/middleeast/israel-soldiers-killed-hamas-rafah.html
-
-**The Race for Running Mate**\
-`Donald Trump has tightened his V.P. list to dependable and loyal campaigners.`\
-https://nytimes.com/2024/06/11/briefing/donald-trump-vice-president-pick.html
-
-**Biden’s Hard-Line Effort to Close the Border**\
-`The order to suspend asylum when crossings surge shows how drastically immigration politics have shifted in the United States.`\
-https://nytimes.com/2024/06/11/podcasts/the-daily/biden-border.html
-
-**A Gaza Cease-Fire Plan, and Justice Alito Secretly Recorded**\
-`Plus, a dispatch from the U.S.-Mexico border.`\
-https://nytimes.com/2024/06/11/podcasts/ceasefire-un-justice-alito.html
 
