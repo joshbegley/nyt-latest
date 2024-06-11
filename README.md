@@ -6,9 +6,9 @@ https://nytimes.com/2024/06/11/business/disney-world-splash-mountain-princess-ti
 `A South Florida jury found the company liable for killings committed by a paramilitary group that was on the banana producer’s payroll.`\
 https://nytimes.com/2024/06/11/world/americas/chiquita-banana-lawsuit-colombia.html
 
-**The government’s case against Hunter Biden used his own words against him.**\
-`By Eileen Sullivan`\
-https://nytimes.com/2024/06/11/us/elections/the-governments-case-against-hunter-biden-used-his-own-words-against-him.html
+**Government’s Case Against Hunter Biden Used His Own Words Against Him**\
+`Details from a 2021 memoir ended up being repeated in court testimony.`\
+https://nytimes.com/2024/06/11/us/elections/prosecution-hunter-biden-trial.html
 
 **Dallas Pastor Tony Evans, Citing Undisclosed ‘Sin,’ Leaves Pulpit**\
 `Mr. Evans, who has built one of the largest predominantly African American evangelical churches in the United States, said in a statement that he was “stepping away from my pastoral duties.”`\
