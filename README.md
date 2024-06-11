@@ -1,3 +1,7 @@
+**World Bank Sees Rosier Growth Outlook**\
+`But rising trade barriers pose a long-term threat to global output as protectionist policies spread, the bank said.`\
+https://nytimes.com/2024/06/11/business/economy/global-economy-world-bank.html
+
 **Memoir by Trump’s Nephew Will Shed Light Into ‘Darker Corner’ of Family**\
 `Fred C. Trump III’s “All in the Family: The Trumps and How We Got This Way” will hit shelves July 30.`\
 https://nytimes.com/2024/06/11/books/review/fred-trump-nephew-memoir.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/11/business/dealbook/apple-go-slow-ai-approach.html
 **Late Night Pounces on Trump’s First Meeting With Probation Officer**\
 `“Things got off to a rough start when Trump offered the probation officer $130,000,” Jimmy Fallon joked.`\
 https://nytimes.com/2024/06/11/arts/television/late-night-trump-probation-meeting.html
-
-**4 Israeli Soldiers Are Killed in Rafah in Apparent Ambush**\
-`Israel said the soldiers were killed when Hamas militants detonated explosives in a three-story building. Some wounded soldiers were in critical condition.`\
-https://nytimes.com/2024/06/11/world/middleeast/israel-soldiers-killed-hamas-rafah.html
 
