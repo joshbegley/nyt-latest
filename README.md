@@ -1,3 +1,7 @@
+**Alito’s ‘Godliness’ Comment Echoes a Broader Christian Movement**\
+`Justice Samuel Alito’s secretly recorded remarks come as many conservatives have openly embraced the view that American democracy must be grounded in a Christian worldview.`\
+https://nytimes.com/2024/06/11/us/samuel-alito-christianity-law-democracy.html
+
 **Hamas and Israel Face Pressure to Embrace Cease-Fire Adopted by U.N.**\
 `Despite positive statements and international urging, neither of the warring parties accepted a U.S.-backed plan to halt the war in Gaza, let displaced Palestinians go home and free hostages.`\
 https://nytimes.com/2024/06/11/world/middleeast/israel-hamas-ceasefire-plan.html
@@ -25,8 +29,4 @@ https://nytimes.com/2024/06/11/technology/elon-musk-openai-lawsuit.html
 **Hamas offers counterproposal in cease-fire talks, but the two sides are still far apart.**\
 `By Ephrat Livni and Aaron Boxerman`\
 https://nytimes.com/live/2024/06/11/world/israel-gaza-war-hamas/hamas-offers-counterproposal-in-cease-fire-talks-but-the-two-sides-are-still-far-apart
-
-**Opponents of Hochul’s Move to Halt Congestion Pricing May Go to Court**\
-`The New York City comptroller, Brad Lander, and a group of stakeholders have developed a legal strategy to overturn Gov. Kathy Hochul’s shutdown of the Midtown toll program.`\
-https://nytimes.com/2024/06/11/nyregion/congestion-pricing-lawsuits.html
 
