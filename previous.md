@@ -1,3 +1,27 @@
+**Rules that banned electronics in the courtroom added hurdles for reporters.**\
+`By Eileen Sullivan`\
+https://nytimes.com/live/2024/06/11/us/hunter-biden-trial-verdict/rules-that-banned-electronics-in-the-courtroom-added-hurdles-for-reporters
+
+**After the hostage rescue, the U.N. says actions by both Israel and Hamas may be war crimes.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/06/11/world/israel-gaza-war-hamas/after-the-hostage-rescue-the-un-says-actions-by-both-israel-and-hamas-may-be-war-crimes
+
+**Biden Nears Pick for Next F.D.I.C. Chair**\
+`The front-runner for the bank regulatory job is Christy Goldsmith Romero, a member of the Commodity Futures Trading Commission.`\
+https://nytimes.com/2024/06/11/business/biden-nears-pick-for-next-fdic-chair.html
+
+**Robert F. Kennedy Jr. Is Polling Surprisingly Well Among Latino Voters**\
+`Pollsters attribute the independent candidate’s strength to significant name recognition and to frustration with the top two contenders.`\
+https://nytimes.com/2024/06/11/us/politics/rfk-polling-latinos.html
+
+**Here’s the latest on the trial.**\
+`By Glenn Thrush`\
+https://nytimes.com/live/2024/06/11/us/hunter-biden-trial-verdict/heres-the-latest-on-the-trial
+
+**Live Updates: Hunter Biden Found Guilty in Gun Case**\
+`President Biden’s son was charged with three felony counts tied to a handgun purchase in 2018. If convicted, he could face up to 25 years in prison and $750,000 in fines.`\
+https://nytimes.com/live/2024/06/11/us/hunter-biden-trial-verdict
+
 **Mistral, a French A.I. Start-Up, Is Valued at $6.2 Billion**\
 `Created by alumni from Meta and Google, Mistral is just a year old and has already raised more than $1 billion from investors, leading to eye-popping valuations.`\
 https://nytimes.com/2024/06/11/business/mistral-artificial-intelligence-fundraising.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/06/11/dining/the-best-thing-about-salad-is-croutons.htm
 **5 Festive Recipes for a Juneteenth Feast**\
 `Make one, or make them all. Just make them yours.`\
 https://nytimes.com/2024/06/11/dining/juneteenth-food-ideas.html
-
-**Bánh by Lauren Offers Pandan Coffee Cakes, Fried Sesame Balls and More**\
-`Veerays will serve tandoori food, Son del North has Northern Mexico-style burritos and more restaurant news.`\
-https://nytimes.com/2024/06/11/dining/nyc-restaurant-news.html
-
-**Reflections on Gen Z and ‘Sellout Culture’**\
-`Responses to an article about a generation tugged in different directions. Also: Gun trafficking to Mexico; a strong leader; Joe Biden’s tall tales.`\
-https://nytimes.com/2024/06/11/opinion/generation-z-sellout-economy.html
-
-**Trump to Meet With Republican Lawmakers in Washington**\
-`Former President Donald J. Trump’s allies on Capitol Hill have been planning for a 2025 agenda, while Mr. Trump has put forth proposals for a radical reshaping of government.`\
-https://nytimes.com/2024/06/11/us/politics/trump-republicans-congress.html
-
-**Russia-Ukraine War**\
-`The Visual Investigations team's coverage of the Ukraine war includes a series that proved how Russian paratroopers committed potential war crimes by executing dozens of unarmed civilians in Bucha. The work was part of a series awarded the Pulitzer Prize for International Reporting in 2023. These and other stories are below. `\
-https://nytimes.com/spotlight/visual-investigations-russia-ukraine
-
-**Israel-Gaza Conflict**\
-`Coverage of the Israel-Gaza conflict from the Visual Investigations team. The work includes an investigation that used aerial imagery and artificial intelligence to detect bomb craters, showing that one of Israel’s biggest bombs was used routinely in south Gaza after residents moved there during Israel's initial invasion. The investigation was part of a series of stories that received the Pulitzer Prize in International Reporting in 2024. `\
-https://nytimes.com/spotlight/visual-investigation-israel-gaza
-
-**Police Identify Suspect Accused of Setting Fire to Miami Building**\
-`An arrest affidavit said the man shot a building employee and then started the worst fire in Miami in 25 years.`\
-https://nytimes.com/2024/06/11/us/police-identify-suspect-accused-of-setting-fire-to-miami-building.html
 

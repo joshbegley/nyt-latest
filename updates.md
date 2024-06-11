@@ -1,3 +1,27 @@
+**Rules that banned electronics in the courtroom added hurdles for reporters.**\
+`By Eileen Sullivan`\
+https://nytimes.com/live/2024/06/11/us/hunter-biden-trial-verdict/rules-that-banned-electronics-in-the-courtroom-added-hurdles-for-reporters
+
+**After the hostage rescue, the U.N. says actions by both Israel and Hamas may be war crimes.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/06/11/world/israel-gaza-war-hamas/after-the-hostage-rescue-the-un-says-actions-by-both-israel-and-hamas-may-be-war-crimes
+
+**Biden Nears Pick for Next F.D.I.C. Chair**\
+`The front-runner for the bank regulatory job is Christy Goldsmith Romero, a member of the Commodity Futures Trading Commission.`\
+https://nytimes.com/2024/06/11/business/biden-nears-pick-for-next-fdic-chair.html
+
+**Robert F. Kennedy Jr. Is Polling Surprisingly Well Among Latino Voters**\
+`Pollsters attribute the independent candidate’s strength to significant name recognition and to frustration with the top two contenders.`\
+https://nytimes.com/2024/06/11/us/politics/rfk-polling-latinos.html
+
+**Here’s the latest on the trial.**\
+`By Glenn Thrush`\
+https://nytimes.com/live/2024/06/11/us/hunter-biden-trial-verdict/heres-the-latest-on-the-trial
+
+**Live Updates: Hunter Biden Found Guilty in Gun Case**\
+`President Biden’s son was charged with three felony counts tied to a handgun purchase in 2018. If convicted, he could face up to 25 years in prison and $750,000 in fines.`\
+https://nytimes.com/live/2024/06/11/us/hunter-biden-trial-verdict
+
 **Mistral, a French A.I. Start-Up, Is Valued at $6.2 Billion**\
 `Created by alumni from Meta and Google, Mistral is just a year old and has already raised more than $1 billion from investors, leading to eye-popping valuations.`\
 https://nytimes.com/2024/06/11/business/mistral-artificial-intelligence-fundraising.html
