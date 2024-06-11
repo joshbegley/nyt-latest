@@ -1,3 +1,7 @@
+**After the U.N. Security Council backed a cease-fire, Blinken said the plan’s fate ‘is down to one person,’ referring to Hamas’s leader.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/06/11/world/israel-gaza-war-hamas/after-the-un-security-council-backed-a-cease-fire-blinken-said-its-fate-is-down-to-one-person-referring-to-hamass-leader
+
 **Why Macron’s Plan to Vanquish the Right Might Just Succeed**\
 `The European center is holding, and Macron is hoping France will stay reasonable.`\
 https://nytimes.com/live/2024/06/04/opinion/thepoint/eu-france-macron-right
