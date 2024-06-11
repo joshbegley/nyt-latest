@@ -1,3 +1,15 @@
+**A guilty verdict for his son is likely to weigh heavily on President Biden.**\
+`By Katie Rogers`\
+https://nytimes.com/live/2024/06/11/us/hunter-biden-trial-verdict/a-guilty-verdict-for-his-son-is-likely-to-weigh-heavily-on-president-biden
+
+**David Boaz, a Leading Voice of Libertarianism, Dies at 70**\
+`At the Cato Institute, he argued against government interference in Americans’ lives, including policing their drug use, and supported legal equality for gay people.`\
+https://nytimes.com/2024/06/11/us/politics/david-boaz-dead.html
+
+**No, a Remote Amazon Tribe Did Not Get Addicted to Porn**\
+`A Times story about the arrival of high-speed internet in a remote Amazon tribe spiraled into its own cautionary tale on the dark side of the web.`\
+https://nytimes.com/2024/06/11/world/americas/no-a-remote-amazon-tribe-did-not-get-addicted-to-porn.html
+
 **After Trump Endorses his Rival, a Nevada Senate Candidate Lashes Out**\
 `Jeff Gunter, who is competing in the Nevada Senate Republican primary, said without evidence that “a big check” swayed the former president.`\
 https://nytimes.com/2024/06/11/us/politics/jeff-gunter-nevada-republican-primary.html
