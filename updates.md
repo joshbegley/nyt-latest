@@ -1,3 +1,7 @@
+**After Trump Endorses his Rival, a Nevada Senate Candidate Lashes Out**\
+`Jeff Gunter, who is competing in the Nevada Senate Republican primary, said without evidence that “a big check” swayed the former president.`\
+https://nytimes.com/2024/06/11/us/politics/jeff-gunter-nevada-republican-primary.html
+
 **On conservative social media, the guilty verdict gets a ‘yawn.’**\
 `Right-wing influencers have spent much of Hunter Biden’s trial claiming, without evidence, that the process was a sham in various ways.`\
 https://nytimes.com/live/2024/06/11/us/hunter-biden-trial-verdict/on-conservative-social-media-the-guilty-verdict-gets-a-yawn
