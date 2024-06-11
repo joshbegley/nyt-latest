@@ -1,3 +1,23 @@
+**A New Way to Talk About Heat**\
+`Record-breaking temperatures are pushing experts and public health officials to come up with a new vocabulary to warn the public about extreme heat.`\
+https://nytimes.com/2024/06/11/climate/heat-stickiness-temperature.html
+
+**5 Takeaways From Hunter Biden’s Conviction in a Gun Case**\
+`The president’s son, who was convicted of three felonies, could face a stiffer sentence if he is convicted in a separate tax case scheduled for September.`\
+https://nytimes.com/2024/06/11/us/politics/takeaways-hunter-biden.html
+
+**Pressure on Hamas to agree to a cease-fire proposal puts a spotlight on its leader in Gaza, Yahya Sinwar.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/06/11/world/israel-gaza-war-hamas/pressure-on-hamas-to-agree-to-a-cease-fire-proposal-puts-a-spotlight-on-its-leader-in-gaza-yahya-sinwar
+
+**A Venice Show Pays Tribute to Jean Cocteau, the Maverick Artist**\
+`The new exhibition at the Peggy Guggenheim Collection includes drawings of nude men and a large-scale work done in pencil, chalk, crayon and blood.`\
+https://nytimes.com/2024/06/11/arts/design/peggy-guggenheim-jean-cocteau.html
+
+**Wordle Review No. 1,089, June 12, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/11/crosswords/wordle-review-1089.html
+
 **Will Hunter Biden Go to Jail? Here’s What His Sentence Could Look Like**\
 `The president’s son is a first-time offender who was not accused of using the weapon in another crime.`\
 https://nytimes.com/2024/06/11/us/politics/hunter-biden-jail-sentence.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/06/11/arts/music/four-tops-singer-sues-hospital-restrai
 **Judge Who Will Sentence Hunter Biden Kept Trial Moving**\
 `Maryellen Noreika didn’t set a sentencing date, but she said that it typically takes place within 120 days of a verdict.`\
 https://nytimes.com/2024/06/11/us/politics/judge-hunter-biden-trial.html
-
-**Rock Around the Clock: 8 Songs About Very Specific Times of Day**\
-`Hear tracks by the Strokes, beabadoobee, Normani and more.`\
-https://nytimes.com/2024/06/11/arts/music/amplifier-newsletter-time-songs.html
-
-**The Most Endangered Marine Mammal Still Exists. Here’s the Latest Count.**\
-`Scientists and officials spent days at sea searching for vaquitas, shy porpoises threatened by fishing gear.`\
-https://nytimes.com/2024/06/11/climate/vaquita-porpoise-survey-mexico.html
-
-**A Textile Company That Wants You to Feel at Home**\
-`For its first U.S. store, Nordic Knots is meant to feel like the opposite of a design studio.`\
-https://nytimes.com/2024/06/11/style/a-textile-company-that-wants-you-to-feel-at-home.html
-
-**A Candidate Got $162,000 in Public Money. His Secret: Fake Donors.**\
-`New York’s new matching-funds campaign system rewards candidates who raise money from small donors, but weak oversight may already have led to abuses.`\
-https://nytimes.com/2024/06/11/nyregion/campaign-finance-fake-donors.html
-
-**A guilty verdict for his son is likely to weigh heavily on President Biden.**\
-`By Katie Rogers`\
-https://nytimes.com/live/2024/06/11/us/hunter-biden-trial-verdict/a-guilty-verdict-for-his-son-is-likely-to-weigh-heavily-on-president-biden
 
