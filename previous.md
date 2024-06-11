@@ -1,3 +1,23 @@
+**A juror told reporters that the jury was impartial despite feeling sympathy for Hunter Biden.**\
+`By Zach Montague`\
+https://nytimes.com/live/2024/06/11/us/hunter-biden-trial-verdict/a-juror-told-reporters-that-the-jury-was-impartial-despite-feeling-sympathy-for-hunter-biden
+
+**Young Thug Lawyer Clashes With Judge in Chaotic Gang Case**\
+`Brian Steel, a lawyer for the Atlanta rapper, was ordered to serve 10 weekends in jail after a dispute with the judge, further complicating a messy gang conspiracy trial.`\
+https://nytimes.com/2024/06/11/arts/music/young-thug-brian-steel-trial.html
+
+**It's a Family Affair**\
+`Type 1 diabetes disrupts a household. But members gain awareness and power, alongside the challenges.`\
+https://nytimes.com/paidpost/sanofi-aventis/its-a-family-affair.html
+
+**Can Art Save the World? Or Is That Too Much to Ask?**\
+`At the Art for Tomorrow conference in Venice, participants debated topics like art’s role in a just world and the good and dangerous effects of A.I.`\
+https://nytimes.com/2024/06/11/arts/design/art-society-venice-conference.html
+
+**Hunter Biden Is Guilty. That’s OK.**\
+`You break the law, you pay the price. Why is that so hard?`\
+https://nytimes.com/live/2024/06/04/opinion/thepoint/hunter-biden-guilty-verdict
+
 **For Women in Architecture, It’s a Time of ‘Catching Up’**\
 `Yvonne Farrell and Shelley McNamara of Dublin’s Grafton Architects are forging a path in an industry that continues to be dominated by men.`\
 https://nytimes.com/2024/06/11/arts/design/women-architecture-grafton-pritzker.html
@@ -17,24 +37,4 @@ https://nytimes.com/live/2024/06/11/world/israel-gaza-war-hamas/gazans-express-h
 **A New Way to Talk About Heat**\
 `Record-breaking temperatures are pushing experts and public health officials to come up with a new vocabulary to warn the public about extreme heat.`\
 https://nytimes.com/2024/06/11/climate/heat-stickiness-temperature.html
-
-**5 Takeaways From Hunter Biden’s Conviction in a Gun Case**\
-`The president’s son, who was convicted of three felonies, could face a stiffer sentence if he is convicted in a separate tax case scheduled for September.`\
-https://nytimes.com/2024/06/11/us/politics/takeaways-hunter-biden.html
-
-**New Gaza Cease-Fire Proposal Puts Spotlight on Hamas Leader Yahya Sinwar**\
-`Yahya Sinwar, an architect of the Oct. 7 attacks on Israel, is believed to remain in hiding in Gaza. His voice is believed to be pivotal in Hamas’s decision-making.`\
-https://nytimes.com/2024/06/11/world/middleeast/israel-hamas-cease-fire-gaza.html
-
-**A Venice Show Pays Tribute to Jean Cocteau, the Maverick Artist**\
-`The new exhibition at the Peggy Guggenheim Collection includes drawings of nude men and a large-scale work done in pencil, chalk, crayon and blood.`\
-https://nytimes.com/2024/06/11/arts/design/peggy-guggenheim-jean-cocteau.html
-
-**Wordle Review No. 1,089, June 12, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/06/11/crosswords/wordle-review-1089.html
-
-**Will Hunter Biden Go to Jail? Here’s What His Sentence Could Look Like**\
-`The president’s son is a first-time offender who was not accused of using the weapon in another crime.`\
-https://nytimes.com/2024/06/11/us/politics/hunter-biden-jail-sentence.html
 

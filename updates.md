@@ -1,3 +1,23 @@
+**A juror told reporters that the jury was impartial despite feeling sympathy for Hunter Biden.**\
+`By Zach Montague`\
+https://nytimes.com/live/2024/06/11/us/hunter-biden-trial-verdict/a-juror-told-reporters-that-the-jury-was-impartial-despite-feeling-sympathy-for-hunter-biden
+
+**Young Thug Lawyer Clashes With Judge in Chaotic Gang Case**\
+`Brian Steel, a lawyer for the Atlanta rapper, was ordered to serve 10 weekends in jail after a dispute with the judge, further complicating a messy gang conspiracy trial.`\
+https://nytimes.com/2024/06/11/arts/music/young-thug-brian-steel-trial.html
+
+**It's a Family Affair**\
+`Type 1 diabetes disrupts a household. But members gain awareness and power, alongside the challenges.`\
+https://nytimes.com/paidpost/sanofi-aventis/its-a-family-affair.html
+
+**Can Art Save the World? Or Is That Too Much to Ask?**\
+`At the Art for Tomorrow conference in Venice, participants debated topics like art’s role in a just world and the good and dangerous effects of A.I.`\
+https://nytimes.com/2024/06/11/arts/design/art-society-venice-conference.html
+
+**Hunter Biden Is Guilty. That’s OK.**\
+`You break the law, you pay the price. Why is that so hard?`\
+https://nytimes.com/live/2024/06/04/opinion/thepoint/hunter-biden-guilty-verdict
+
 **New Gaza Cease-Fire Proposal Puts Spotlight on Hamas Leader Yahya Sinwar**\
 `Yahya Sinwar, an architect of the Oct. 7 attacks on Israel, is believed to remain in hiding in Gaza. His voice is believed to be pivotal in Hamas’s decision-making.`\
 https://nytimes.com/2024/06/11/world/middleeast/israel-hamas-cease-fire-gaza.html
