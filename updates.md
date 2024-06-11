@@ -1,3 +1,7 @@
+**Rare White Grizzly Dies After Being Struck on Canadian Highway**\
+`Grizzly Bear 178, or Nakoda, as she was known to her fans on social media, was hit in Yoho National Park, hours after her cubs were struck and killed in a separate accident, officials said.`\
+https://nytimes.com/2024/06/11/world/canada/grizzly-bear-killed.html
+
 **Want Deeper Friendships? Put Them on ‘Autopilot.’**\
 `Today’s challenge: Use your calendar to balance friendships and other priorities.`\
 https://nytimes.com/2024/06/11/well/live/friendship-schedule.html
