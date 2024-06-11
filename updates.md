@@ -1,3 +1,19 @@
+**Hamas offers counterproposal in cease-fire talks, but the two sides are still far apart.**\
+`By Ephrat Livni and Aaron Boxerman`\
+https://nytimes.com/live/2024/06/11/world/israel-gaza-war-hamas/hamas-offers-counterproposal-in-cease-fire-talks-but-the-two-sides-are-still-far-apart
+
+**Opponents of Hochul’s Move to Halt Congestion Pricing May Go to Court**\
+`The New York City comptroller, Brad Lander, and a group of stakeholders have developed a legal strategy to overturn Gov. Kathy Hochul’s shutdown of the Midtown toll program.`\
+https://nytimes.com/2024/06/11/nyregion/congestion-pricing-lawsuits.html
+
+**An Israeli raid in West Bank kills several Palestinians.**\
+`By Anjana Sankar`\
+https://nytimes.com/live/2024/06/11/world/israel-gaza-war-hamas/an-israeli-raid-in-west-bank-kills-several-palestinians
+
+**At D-Day Ceremonies, Thinking of One Veteran Who Wouldn’t Return**\
+`While covering the 80th anniversary of the Allied invasion in northern France, a Times reporter remembers a family member.`\
+https://nytimes.com/2024/06/11/reader-center/d-day-family.html
+
 **Rare White Grizzly Dies After Being Struck on Canadian Highway**\
 `Grizzly Bear 178, or Nakoda, as she was known to her fans on social media, was hit in Yoho National Park, hours after her cubs were struck and killed in a separate accident, officials said.`\
 https://nytimes.com/2024/06/11/world/canada/grizzly-bear-killed.html
