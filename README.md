@@ -22,9 +22,9 @@ https://nytimes.com/2024/06/11/climate/heat-stickiness-temperature.html
 `The president’s son, who was convicted of three felonies, could face a stiffer sentence if he is convicted in a separate tax case scheduled for September.`\
 https://nytimes.com/2024/06/11/us/politics/takeaways-hunter-biden.html
 
-**Pressure on Hamas to agree to a cease-fire proposal puts a spotlight on its leader in Gaza, Yahya Sinwar.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/2024/06/11/world/middleeast/pressure-on-hamas-to-agree-to-a-cease-fire-proposal-puts-a-spotlight-on-its-leader-in-gaza-yahya-sinwar.html
+**New Gaza Cease-Fire Proposal Puts Spotlight on Hamas Leader Yahya Sinwar**\
+`Yahya Sinwar, an architect of the Oct. 7 attacks on Israel, is believed to remain in hiding in Gaza. His voice is believed to be pivotal in Hamas’s decision-making.`\
+https://nytimes.com/2024/06/11/world/middleeast/israel-hamas-cease-fire-gaza.html
 
 **A Venice Show Pays Tribute to Jean Cocteau, the Maverick Artist**\
 `The new exhibition at the Peggy Guggenheim Collection includes drawings of nude men and a large-scale work done in pencil, chalk, crayon and blood.`\
