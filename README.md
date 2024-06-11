@@ -1,3 +1,7 @@
+**Is That Dog Actually a … Human?**\
+`TikTok is onto Goldendoodles, the designer dog breed that is a cross between golden retriever and poodle, noting that they exhibit quite a few person-like qualities.`\
+https://nytimes.com/2024/06/11/style/goldendoodle-dogs-tiktok.html
+
 **Officials Condemn Protest Outside Exhibit About Oct. 7 Killings**\
 `A protest outside an exhibition in New York about the people killed by Hamas at a music festival in southern Israel drew criticism from elected officials.`\
 https://nytimes.com/2024/06/11/arts/israel-gaza-protest-nova-exhibit.html
@@ -25,8 +29,4 @@ https://nytimes.com/2024/06/11/nyregion/nathans-hot-dog-eating-contest-joey-ches
 **Biden Talks About Gun Safety Hours After Son’s Firearms Conviction**\
 `President Biden spoke to the nation’s largest gun control group shortly after his son Hunter Biden was convicted in Delaware of three felony counts of lying on a federal firearms application in 2018.`\
 https://nytimes.com/video/us/politics/100000009516496/joe-biden-gun-control.html
-
-**Hunter Biden Found Guilty on Charges Related to Gun Purchase in 2018**\
-`The president’s son was convicted of three felonies during a trial that made his struggles with drug addiction painfully public.`\
-https://nytimes.com/2024/06/11/us/politics/hunter-biden-guilty-gun-trial.html
 
