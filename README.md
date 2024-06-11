@@ -1,3 +1,7 @@
+**Foraging on Public Lands Is Becoming More Limited**\
+`Collecting wild mushrooms, berries and other foods from public forests and parks has become so popular that state and federal agencies are imposing more restrictions.`\
+https://nytimes.com/2024/06/11/science/foraging-park-lands.html
+
 **At U.C.L.A., Pro-Palestinian Protesters Clash With Police**\
 `Protesters marched through campus, pitched tents and occupied various quads in demonstrations that became confrontational at times.`\
 https://nytimes.com/2024/06/11/us/ucla-protest-arrest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/11/world/europe/giorgia-meloni-italy-g7.html
 **Biden, Honoring Juneteenth, Warns of Danger of ‘Old Ghosts in New Garments’**\
 `The president assailed attacks on Black history, and vowed that his administration was committed to protecting civil rights.`\
 https://nytimes.com/2024/06/10/us/politics/biden-juneteenth.html
-
-**Americans Push Biden to Help Their Undocumented Spouses**\
-`The White House is weighing relief for immigrants who crossed the border unlawfully but are eligible for green cards through marriage to U.S. citizens.`\
-https://nytimes.com/2024/06/10/us/biden-immigrants-citizenship-marriage.html
 
