@@ -1,3 +1,7 @@
+**Ben Potter, Who Voiced Popular Comic Books on YouTube, Dies at 40**\
+`Mr. Potter narrated the epic sagas of popular comic book heroes and villains on his channel Comicstorian.`\
+https://nytimes.com/2024/06/11/books/ben-potter-youtube-comics-dead.html
+
 **Paramount’s Deal With Skydance Falls Apart**\
 `There were several hitches in the last week as Skydance, Paramount and its parent company, National Amusements, reached the final stages of negotiations`\
 https://nytimes.com/2024/06/11/business/media/paramount-skydance-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/11/us/hunter-biden-trial-verdict/a-juror-told-r
 **Young Thug Lawyer Clashes With Judge in Chaotic Gang Case**\
 `Brian Steel, a lawyer for the Atlanta rapper, was ordered to serve 10 weekends in jail after a dispute with the judge, further complicating a messy gang conspiracy trial.`\
 https://nytimes.com/2024/06/11/arts/music/young-thug-brian-steel-trial.html
-
-**It's a Family Affair**\
-`Type 1 diabetes disrupts a household. But members gain awareness and power, alongside the challenges.`\
-https://nytimes.com/paidpost/sanofi-aventis/its-a-family-affair.html
 

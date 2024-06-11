@@ -1,3 +1,7 @@
+**Ben Potter, Who Voiced Popular Comic Books on YouTube, Dies at 40**\
+`Mr. Potter narrated the epic sagas of popular comic book heroes and villains on his channel Comicstorian.`\
+https://nytimes.com/2024/06/11/books/ben-potter-youtube-comics-dead.html
+
 **Paramount’s Deal With Skydance Falls Apart**\
 `There were several hitches in the last week as Skydance, Paramount and its parent company, National Amusements, reached the final stages of negotiations`\
 https://nytimes.com/2024/06/11/business/media/paramount-skydance-deal.html
