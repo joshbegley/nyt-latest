@@ -1,3 +1,7 @@
+**Tuesday Briefing**\
+`The U.N. passes a cease-fire resolution for Gaza.`\
+https://nytimes.com/2024/06/11/briefing/israel-un-cease-fire.html
+
 **Nigeria Confronts Its Worst Economic Crisis in a Generation**\
 `People in Africa’s most populous nation are suffering as the price of food, fuel and medicine has skyrocketed out of reach for many.`\
 https://nytimes.com/2024/06/11/world/africa/nigeria-economy-strike.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/10/world/middleeast/israel-hostage-rescue-gaza.html
 **Chemical Makers Sue Over Rule to Rid Water of ‘Forever Chemicals’**\
 `Industry groups said the E.P.A. had exceeded its authority in requiring the drinking-water cleanup. The chemicals, known as PFAS, are linked to cancer and health risks.`\
 https://nytimes.com/2024/06/10/climate/pfas-forever-chemicals-lawsuit.html
-
-**U.A.W. Monitor Investigates Accusations Against Union Leader**\
-`The court-appointed monitor is looking into allegations by two union officials that they were punished for raising questions on financial matters.`\
-https://nytimes.com/2024/06/10/business/uaw-shawn-fain-monitor.html
 
