@@ -1,3 +1,7 @@
+**Foraging on Public Lands Is Becoming More Limited**\
+`Collecting wild mushrooms, berries and other foods from public forests and parks has become so popular that state and federal agencies are imposing more restrictions.`\
+https://nytimes.com/2024/06/11/science/foraging-park-lands.html
+
 **At U.C.L.A., Pro-Palestinian Protesters Clash With Police**\
 `Protesters marched through campus, pitched tents and occupied various quads in demonstrations that became confrontational at times.`\
 https://nytimes.com/2024/06/11/us/ucla-protest-arrest.html
