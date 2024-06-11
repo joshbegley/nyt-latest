@@ -1,3 +1,7 @@
+**Alito No Longer Tries to Hide His Theocratic Worldview**\
+`Unlike Chief Justice Roberts, he wants to bring God onto the Supreme Court bench.`\
+https://nytimes.com/live/2024/06/04/opinion/thepoint/alito-roberts-court-religion
+
 **At the Ojai Festival, a Star Pianist Keeps the Focus on Young Artists**\
 `Mitsuko Uchida appeared every night at her edition of the Ojai Music Festival. The rest of the time was given to other performers.`\
 https://nytimes.com/2024/06/11/arts/music/ojai-festival-mitsuko-uchida-mahler-chamber-orchestra.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/11/books/review/fred-trump-nephew-memoir.html
 **What to Watch in Primaries in Maine, South Carolina, Nevada and North Dakota**\
 `A special House election will also be held in Ohio to replace a retiring Republican congressman.`\
 https://nytimes.com/2024/06/11/us/politics/primaries-maine-south-carolina-nevada-north-dakota.html
-
-**Election Updates: Nancy Mace faces a South Carolina primary fight and four other states go the polls.**\
-``\
-https://nytimes.com/live/2024/06/11/us/biden-trump-election
 

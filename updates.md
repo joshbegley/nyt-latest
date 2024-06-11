@@ -1,3 +1,7 @@
+**Alito No Longer Tries to Hide His Theocratic Worldview**\
+`Unlike Chief Justice Roberts, he wants to bring God onto the Supreme Court bench.`\
+https://nytimes.com/live/2024/06/04/opinion/thepoint/alito-roberts-court-religion
+
 **At the Ojai Festival, a Star Pianist Keeps the Focus on Young Artists**\
 `Mitsuko Uchida appeared every night at her edition of the Ojai Music Festival. The rest of the time was given to other performers.`\
 https://nytimes.com/2024/06/11/arts/music/ojai-festival-mitsuko-uchida-mahler-chamber-orchestra.html
