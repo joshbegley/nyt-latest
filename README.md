@@ -1,3 +1,7 @@
+**$16 Billion Hudson River Tunnel Project Gets Final Green Light**\
+`An agreement for the federal government to pay for most of the $16 billion project means the long-delayed plan is “all systems go,” Senator Chuck Schumer of New York said.`\
+https://nytimes.com/2024/06/11/nyregion/gateway-tunnel-amtrak-funding.html
+
 **Biden Addresses Gun-Control Group Hours After Son’s Firearms Conviction**\
 `“More children are killed in America by guns than cancer and car accidents combined,” President Biden said in a speech in Washington.`\
 https://nytimes.com/2024/06/11/us/politics/biden-gun-violence.html
@@ -33,8 +37,4 @@ https://nytimes.com/paidpost/sanofi-aventis/its-a-family-affair.html
 **Can Art Save the World? Or Is That Too Much to Ask?**\
 `At the Art for Tomorrow conference in Venice, participants debated topics like art’s role in a just world and the good and dangerous effects of A.I.`\
 https://nytimes.com/2024/06/11/arts/design/art-society-venice-conference.html
-
-**Hunter Biden Is Guilty. That’s OK.**\
-`You break the law, you pay the price. Why is that so hard?`\
-https://nytimes.com/live/2024/06/04/opinion/thepoint/hunter-biden-guilty-verdict
 
