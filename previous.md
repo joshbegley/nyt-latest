@@ -1,3 +1,11 @@
+**Disney’s Reimagined Splash Mountain Ride Is Set to Open**\
+`The ride was closed last year because of its connection to a racist film. Disney overhauled it to focus on Tiana, Disney’s first Black princess, drawing praise and backlash.`\
+https://nytimes.com/2024/06/11/business/disney-world-splash-mountain-princess-tiana.html
+
+**Chiquita Held Liable for Deaths During Colombian Civil War**\
+`A South Florida jury found the company liable for killings committed by a paramilitary group that was on the banana producer’s payroll.`\
+https://nytimes.com/2024/06/11/world/americas/chiquita-banana-lawsuit-colombia.html
+
 **The government’s case against Hunter Biden used his own words against him.**\
 `By Eileen Sullivan`\
 https://nytimes.com/2024/06/11/us/elections/the-governments-case-against-hunter-biden-used-his-own-words-against-him.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/11/us/politics/rfk-polling-latinos.html
 **Here’s the latest on the trial.**\
 `By Glenn Thrush`\
 https://nytimes.com/live/2024/06/11/us/hunter-biden-trial-verdict/heres-the-latest-on-the-trial
-
-**Live Updates: Hunter Biden Found Guilty in Gun Case**\
-`President Biden’s son was convicted in Delaware federal court on all three felony counts tied to a handgun purchase in 2018. His sentencing date has not been set.`\
-https://nytimes.com/live/2024/06/11/us/hunter-biden-trial-verdict
-
-**Mistral, a French A.I. Start-Up, Is Valued at $6.2 Billion**\
-`Created by alumni from Meta and Google, Mistral is just a year old and has already raised more than $1 billion from investors, leading to eye-popping valuations.`\
-https://nytimes.com/2024/06/11/business/mistral-artificial-intelligence-fundraising.html
 
