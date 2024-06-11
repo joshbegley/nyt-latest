@@ -1,3 +1,7 @@
+**Robert De Niro Doesn’t Mind Being Celebrated**\
+`Blake Lively, Jude Law, Selma Blair and many more turned out for the Tribeca Film Festival’s annual artists dinner, ahead of a weekend devoted to Mr. De Niro’s work.`\
+https://nytimes.com/2024/06/11/style/robert-de-niro-tribeca-festival-dinner.html
+
 **Biden Talks About Gun Safety Hours After Son’s Firearms Conviction**\
 `President Biden spoke to the nation’s largest gun control group shortly after his son Hunter Biden was convicted in Delaware of three felony counts of lying on a federal firearms application in 2018.`\
 https://nytimes.com/video/us/politics/100000009516496/joe-biden-gun-control.html
