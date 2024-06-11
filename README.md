@@ -1,7 +1,3 @@
-**The U.S. announces more humanitarian aid for Palestinians.**\
-`By Michael Crowley`\
-https://nytimes.com/live/2024/06/11/world/israel-gaza-war-hamas/the-us-announces-more-humanitarian-aid-for-palestinians
-
 **Judge Strikes Down Florida’s Ban on Transgender Care for Minors**\
 `A federal judge ruled that Florida could not “prohibit transgender minors from receiving specific kinds of widely accepted gender-affirming medical care.”`\
 https://nytimes.com/2024/06/11/us/florida-transgender-law.html
@@ -22,7 +18,7 @@ https://nytimes.com/2024/06/11/us/politics/biden-family-verdict-courtroom.html
 `The president’s son was convicted of three felonies tied to his purchase of a gun in 2018.`\
 https://nytimes.com/2024/06/11/us/politics/hunter-biden-conviction-gun-charges.html
 
-**Disney Ride Tainted by Racist Film Will Reopen With New Story**\
+**Disney’s Reimagined Splash Mountain Ride Is Set to Open**\
 `The ride was closed last year because of its connection to a racist film. Disney overhauled it to focus on Tiana, Disney’s first Black princess, drawing praise and backlash.`\
 https://nytimes.com/2024/06/11/business/disney-world-splash-mountain-princess-tiana.html
 
@@ -37,4 +33,8 @@ https://nytimes.com/2024/06/11/us/elections/prosecution-hunter-biden-trial.html
 **Dallas Pastor Tony Evans, Citing Undisclosed ‘Sin,’ Leaves Pulpit**\
 `Mr. Evans, who has built one of the largest predominantly African American evangelical churches in the United States, said in a statement that he was “stepping away from my pastoral duties.”`\
 https://nytimes.com/2024/06/11/us/dallas-tony-evans-pastor-sin.html
+
+**Grab Them. Then Stump Them.**\
+`Word puzzles on LinkedIn. Logic challenges in The Washington Post. For news publishers and tech sites looking to both entice and engage users, games are serious business.`\
+https://nytimes.com/2024/06/11/technology/news-tech-sites-games.html
 
