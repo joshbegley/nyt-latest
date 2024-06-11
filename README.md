@@ -4,7 +4,7 @@ https://nytimes.com/2024/06/11/dining/restaurant-review-penny-east-village.html
 
 **By a Stream in Vermont, a Glimpse of a Plant Last Seen a Century Ago**\
 `“Are you sitting down?” Vermont’s state botanist asked a fellow plant expert after spotting false mermaid-weed last month.`\
-https://nytimes.com/2024/06/11/us/by-a-stream-in-vermont-a-glimpse-of-a-plant-last-seen-a-century-ago.html
+https://nytimes.com/2024/06/11/us/vermont-plant-extinct-mermaid-weed.html
 
 **U.S. to Send Another Patriot Missile Battery to Ukraine**\
 `The system is one of best air-defense weapons, but the United States and its allies have a limited supply.`\
