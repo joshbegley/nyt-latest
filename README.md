@@ -1,3 +1,7 @@
+**Pope Francis Is Accused of Using a Homophobic Slur Again**\
+`Two Italian news agencies said the pontiff used the term on Tuesday during a meeting with priests, after he was accused of uttering the same word last month while speaking with Italian bishops.`\
+https://nytimes.com/2024/06/11/world/europe/pope-francis-homophobic-slur.html
+
 **Charity Founder Embezzled Millions and Spent on Lavish Meals, U.S. Says**\
 `Prosecutors say that Keith Taylor, head of Modest Needs, crowdsourced donations for the poor but spent hundreds of thousands of dollars at high-end restaurants.`\
 https://nytimes.com/2024/06/11/nyregion/modest-needs-charity-keith-taylor.html
@@ -25,8 +29,4 @@ https://nytimes.com/2024/06/11/us/politics/biden-medical-debt-credit-reports.htm
 **Norman Carol, Violinist in Historic Concert in China, Is Dead at 95**\
 `The concertmaster and first-chair violinist with the Philadelphia Orchestra for decades, he took part in a diplomatic breakthrough in 1973 with concerts in Mao Zedong’s Beijing.`\
 https://nytimes.com/2024/06/11/arts/music/norman-carol-dead.html
-
-**Hunter Biden Conviction Undercuts a Trump Narrative, and a Fund-Raising Pitch**\
-`Many allies of Donald J. Trump had secretly wanted an acquittal, which they predicted would have turbocharged fund-raising and fed their claims of a rigged justice system.`\
-https://nytimes.com/2024/06/11/us/politics/donald-trump-hunter-biden.html
 
