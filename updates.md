@@ -1,3 +1,7 @@
+**Why the Paramount Deal Talks Failed**\
+`After months of negotiations, Shari Redstone walked away from a tie-up with SkyDance. Here’s how a plan to reshape the media conglomerate broke apart.`\
+https://nytimes.com/2024/06/12/business/dealbook/paramount-skydance-deal-talks-fail.html
+
 **The World Bank sees a rosier outlook for the global economy.**\
 `By Alan Rappeport`\
 https://nytimes.com/live/2024/06/12/business/fed-rates-inflation-cpi/the-world-bank-sees-a-rosier-outlook-for-the-global-economy
