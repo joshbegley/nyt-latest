@@ -1,3 +1,7 @@
+**The Importance of the Pinehurst Caddies**\
+`With their knowledge of the course, they can save players “several strokes a round.”`\
+https://nytimes.com/2024/06/12/sports/golf/pinehurst-us-open-caddie.html
+
 **A Former Close Friend of Senator Menendez Testifies Against Him**\
 `Philip Sellinger, the U.S. attorney for the District of New Jersey, was among a handful of friends who gave Senator Robert Menendez wedding gifts in 2020.`\
 https://nytimes.com/2024/06/12/nyregion/philip-sellinger-robert-menendez-bribery-trial.html
@@ -14,8 +18,8 @@ https://nytimes.com/live/2024/06/12/opinion/thepoint/go-slow-joe
 `Ashley R.T. Yergens’s “Surrogate,” premiering at New York Live Arts this week, explores how trans men experience pregnancy and I.V.F.`\
 https://nytimes.com/2024/06/12/arts/dance/ashley-r-t-yergens-surrogate.html
 
-**Anti-Zionist Graffiti Splashed on Homes of Brooklyn Museum Officials**\
-`The homes of the officials, who are Jewish, were vandalized with red paint, and a banner at the museum director’s building called her a “white supremacist” Zionist.`\
+**Vandals Splash Graffiti on Homes of Jewish Leaders of Brooklyn Museum**\
+`The homes of the officials were vandalized with red paint, and a banner at the museum director’s building called her a “white supremacist” Zionist.`\
 https://nytimes.com/2024/06/12/nyregion/anti-zionist-graffiti-jewish-museum-officials.html
 
 **Usher Lives Out a Childhood Dream at the Apollo**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/12/obituaries/howard-fineman-dead.html
 **White House Aide Does Not Say if Biden Would Commute Son’s Sentence**\
 `The White House spokeswoman said she had not spoken with the president about the matter yet.`\
 https://nytimes.com/2024/06/12/us/politics/biden-commute-prison-sentence-hunter.html
-
-**Listen to 8 Songs From the Bewitching Françoise Hardy**\
-`From her start in the yé-yé 1960s to the depths she plumbed as a singer-songwriter, Hardy, who died Tuesday, continued to entrance new generations of listeners.`\
-https://nytimes.com/2024/06/12/arts/music/francoise-hardy-playlist.html
 
