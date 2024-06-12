@@ -1,3 +1,15 @@
+**Wednesday Briefing**\
+`Hunter Biden found guilty.`\
+https://nytimes.com/2024/06/12/briefing/hunter-biden-guilty.html
+
+**Cash-Strapped Ukraine Plans to Sell State Assets to Help Fund War Effort**\
+`The government hopes to privatize a range of companies to fund the military and stabilize the economy. For a country at war, it will be a major challenge.`\
+https://nytimes.com/2024/06/12/world/europe/ukraine-privatization-war.html
+
+**‘Just Disillusioned’: How U.K. Conservatives Lost a New Heartland**\
+`At Britain’s last election, the Tories laid claim to a swath of postindustrial England. Now voters there are returning to Labour, and the insurgent Reform U.K. is also rising.`\
+https://nytimes.com/2024/06/12/world/europe/just-disillusioned-how-uk-conservatives-lost-a-new-heartland.html
+
 **One Dead After Rush-Hour Hijacking of Commuter Bus in Atlanta**\
 `A suspect, Joseph Grier, 39, was taken into custody. No other injuries were reported among the 17 people on the bus.`\
 https://nytimes.com/2024/06/11/us/atlanta-commuter-bus-chase.html
