@@ -1,3 +1,15 @@
+**Mmm, Migas**\
+`Made with fried leftover corn tortillas for heft and jalapeño and onion for lift, these are scrambled eggs with oomph.`\
+https://nytimes.com/2024/06/12/dining/mmm-migas.html
+
+**Ancient Maya Genomes Are Sequenced for First Time**\
+`Thousand-year-old DNA from Chichén Itzá is offering insights into Maya religious rituals, including a tradition of child sacrifice.`\
+https://nytimes.com/2024/06/12/science/archaeology-maya-genetics.html
+
+**Back From Vacation and Still Burned Out**\
+`Time away can make work stress even more apparent. Here’s what to do about it.`\
+https://nytimes.com/2024/06/12/well/live/burnout-work-vacation.html
+
 **U.S. Expands Sanctions on Russia as G7 Leaders Gather**\
 `The Biden administration is taking new measures aimed at stopping China from helping the Kremlin sustain its war effort against Ukraine. U.S. officials hope European nations will take similar steps.`\
 https://nytimes.com/2024/06/12/us/politics/us-russia-china-sanctions-g7.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/12/sports/jerry-west-dead.html
 **Ethics Questions Raised by Secret Recordings of Justices**\
 `Readers discuss a woman’s conversations with Justice Samuel Alito and Chief Justice John Roberts under false pretenses.`\
 https://nytimes.com/2024/06/12/opinion/letters/alito-roberts-supreme-court.html
-
-**Greece Closes Schools and Acropolis as Possible Record Heat Is Forecast**\
-`Concerns are also growing for two foreign hikers who have gone missing on Greek islands amid the soaring temperatures.`\
-https://nytimes.com/2024/06/12/world/europe/greece-heat-acropolis-schools.html
-
-**Off the Menu at a St. Louis-Area Restaurant: Everyone Under 30**\
-`Customers generally support Bliss Caribbean Restaurant’s ban on male customers under 35 and women under 30. But some legal experts say there may be a problem.`\
-https://nytimes.com/2024/06/12/dining/restaurant-bans-youth.html
-
-**Hunter Biden’s Conviction, and a Family’s Pain**\
-`Readers discuss addiction, call for compassion and praise how the president has supported his son.`\
-https://nytimes.com/2024/06/12/opinion/letters/hunter-biden-conviction.html
 
