@@ -1,3 +1,7 @@
+**Sony Pictures Acquires Alamo Drafthouse in Lifeline to Cinema Chain**\
+`The deal is the first time in half a century that a traditional Hollywood studio will own a movie theater chain.`\
+https://nytimes.com/2024/06/12/business/alamo-drafthouse-sony-pictures.html
+
 **Federal Reserve Maintains Current Interest Rate**\
 `Jerome H. Powell, the Fed chair, said that officials are waiting for “greater confidence” that inflation is moving sustainably to 2 percent before cutting rates.`\
 https://nytimes.com/video/us/politics/100000009518628/federal-reserve-maintains-interest-rate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/12/special-series/fear-anxiety-research-health-fun.h
 **‘Inside Out 2’ Review: PUBERTY! OMG! LOL! IYKYK!**\
 `Anxiety meets Joy in Pixar’s eager, predictably charming sequel to its innovative 2015 hit. Sadness is still around, too, as are Fear and Disgust.`\
 https://nytimes.com/2024/06/12/movies/inside-out-2-review.html
-
-**Southern Baptists Vote to Oppose Use of I.V.F.**\
-`With almost 13 million church members across the United States, the Southern Baptist Convention has long been a bellwether for American evangelicalism.`\
-https://nytimes.com/2024/06/12/us/ivf-vote-southern-baptists.html
 

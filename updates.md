@@ -1,3 +1,7 @@
+**Sony Pictures Acquires Alamo Drafthouse in Lifeline to Cinema Chain**\
+`The deal is the first time in half a century that a traditional Hollywood studio will own a movie theater chain.`\
+https://nytimes.com/2024/06/12/business/alamo-drafthouse-sony-pictures.html
+
 **Federal Reserve Maintains Current Interest Rate**\
 `Jerome H. Powell, the Fed chair, said that officials are waiting for “greater confidence” that inflation is moving sustainably to 2 percent before cutting rates.`\
 https://nytimes.com/video/us/politics/100000009518628/federal-reserve-maintains-interest-rate.html
