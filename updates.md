@@ -1,3 +1,11 @@
+**Federal Reserve Maintains Current Interest Rate**\
+`Jerome H. Powell, the Fed chair, said that officials are waiting for “greater confidence” that inflation is moving sustainably to 2 percent before cutting rates.`\
+https://nytimes.com/video/us/politics/100000009518628/federal-reserve-maintains-interest-rate.html
+
+**A Rare Antelope Dies After Choking on a Plastic Cap at Tennessee Zoo**\
+`Lief, as the antelope was known, was comfortable with humans. A squeezable food pouch, which is among items banned at the zoo to protect the animals, was found in the exhibit.`\
+https://nytimes.com/2024/06/12/us/antelope-chokes-death-tennessee-zoo.html
+
 **The Federal Reserve Has a Good News Problem**\
 `Inflation is yesterday’s problem.`\
 https://nytimes.com/live/2024/06/12/opinion/thepoint/inflation-over-federal-reserve
