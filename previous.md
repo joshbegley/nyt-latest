@@ -1,3 +1,7 @@
+**Hezbollah Says Commander Was Killed in an Israeli Strike in Southern Lebanon**\
+`The killing of the commander, Taleb Abdallah, came as fighting on the Israel-Lebanon border has escalated.`\
+https://nytimes.com/2024/06/11/world/middleeast/israel-hezbollah-taleb-abdallah-killed.html
+
 **Congressman Wins G.O.P. Nomination for North Dakota Governor**\
 `Representative Kelly Armstrong will be a strong favorite to win the general election and succeed Gov. Doug Burgum, who did not seek a third term.`\
 https://nytimes.com/2024/06/11/us/north-dakota-governor-primary.html
@@ -25,8 +29,4 @@ https://nytimes.com/2024/06/11/nyregion/modest-needs-charity-keith-taylor.html
 **Convictions of Biden’s Son and Trump Put the Justice System on Trial**\
 `But despite the partisan roar, two juries appeared to seriously weigh the evidence and deliver verdicts. The system seemed to work as it is supposed to.`\
 https://nytimes.com/2024/06/11/us/politics/hunter-biden-trump-convictions-justice.html
-
-**Alito’s ‘Godliness’ Comment Echoes a Broader Christian Movement**\
-`Justice Samuel Alito’s secretly recorded remarks come as many conservatives have openly embraced the view that American democracy must be grounded in a Christian worldview.`\
-https://nytimes.com/2024/06/11/us/samuel-alito-christianity-law-democracy.html
 

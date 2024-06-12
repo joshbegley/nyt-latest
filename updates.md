@@ -1,3 +1,7 @@
+**Hezbollah Says Commander Was Killed in an Israeli Strike in Southern Lebanon**\
+`The killing of the commander, Taleb Abdallah, came as fighting on the Israel-Lebanon border has escalated.`\
+https://nytimes.com/2024/06/11/world/middleeast/israel-hezbollah-taleb-abdallah-killed.html
+
 **Congressman Wins G.O.P. Nomination for North Dakota Governor**\
 `Representative Kelly Armstrong will be a strong favorite to win the general election and succeed Gov. Doug Burgum, who did not seek a third term.`\
 https://nytimes.com/2024/06/11/us/north-dakota-governor-primary.html
