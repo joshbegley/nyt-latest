@@ -1,3 +1,7 @@
+**Democrats Plan to Turn Statehouses Blue by Dishing Out Green**\
+`The spending blitz showcases the importance of state legislatures in 2024.`\
+https://nytimes.com/2024/06/12/us/politics/democrats-states-project.html
+
 **Akira Endo, Scholar of Statins That Reduce Heart Disease, Dies at 90**\
 `The Japanese biochemist found in the 1970s that cholesterol-lowering drugs lowered the LDL, or “bad” cholesterol, level in the blood.`\
 https://nytimes.com/2024/06/12/world/asia/akira-endo-dead.html

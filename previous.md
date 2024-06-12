@@ -1,3 +1,7 @@
+**Democrats Plan to Turn Statehouses Blue by Dishing Out Green**\
+`The spending blitz showcases the importance of state legislatures in 2024.`\
+https://nytimes.com/2024/06/12/us/politics/democrats-states-project.html
+
 **Akira Endo, Scholar of Statins That Reduce Heart Disease, Dies at 90**\
 `The Japanese biochemist found in the 1970s that cholesterol-lowering drugs lowered the LDL, or “bad” cholesterol, level in the blood.`\
 https://nytimes.com/2024/06/12/world/asia/akira-endo-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/06/12/us/florida-storm-flash-flood.html
 **Tony Lo Bianco, ‘French Connection’ Actor, Is Dead at 87**\
 `Once labeled a “natural-born heavy,” he shined onscreen and especially onstage, securing a Tony nomination and winning an Obie Award.`\
 https://nytimes.com/2024/06/12/movies/tony-lo-bianco-dead.html
-
-**Review: A Glorious ‘Titanic,’ Returned From the Depths**\
-`Maury Yeston’s score, stupendously played and sung, is the star of the final production of an excellent Encores! season at New York City Center.`\
-https://nytimes.com/2024/06/12/theater/review-titanic-encores-city-center.html
 
