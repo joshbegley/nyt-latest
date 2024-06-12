@@ -1,3 +1,11 @@
+**Denmark’s Prime Minister Says She’s ‘Not Quite Myself’ After Assault**\
+`Mette Frederiksen said she was working but still recovering, days after being punched in a busy square in Copenhagen.`\
+https://nytimes.com/2024/06/12/world/europe/denmark-prime-minister-attack-interview.html
+
+**Corrections: June 11, 2024**\
+`Corrections that appeared in print on Tuesday, June 11, 2024.`\
+https://nytimes.com/2024/06/12/pageoneplus/corrections-june-11-2024.html
+
 **Election Updates: A key Senate matchup is set in battleground Nevada.**\
 ``\
 https://nytimes.com/live/2024/06/12/us/biden-trump-election
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/12/world/middleeast/fire-kuwait-migrant-worker-housi
 **Food inflation eased again in May.**\
 `By Madeleine Ngo`\
 https://nytimes.com/live/2024/06/12/business/fed-rates-inflation-cpi/food-inflation-eased-again-in-may
-
-**Why the Paramount Deal Talks Failed**\
-`After months of negotiations, Shari Redstone walked away from a tie-up with SkyDance. Here’s how a plan to reshape the media conglomerate broke apart.`\
-https://nytimes.com/2024/06/12/business/dealbook/paramount-skydance-deal-talks-fail.html
-
-**The World Bank sees a rosier outlook for the global economy.**\
-`By Alan Rappeport`\
-https://nytimes.com/live/2024/06/12/business/fed-rates-inflation-cpi/the-world-bank-sees-a-rosier-outlook-for-the-global-economy
 
