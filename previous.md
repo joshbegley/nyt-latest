@@ -1,3 +1,7 @@
+**The Federal Reserve Has a Good News Problem**\
+`Inflation is yesterday’s problem.`\
+https://nytimes.com/live/2024/06/12/opinion/thepoint/inflation-over-federal-reserve
+
 **Popcast (Deluxe): What’s an Aging Rapper to Do?**\
 `New songs from Eminem, Drake and J. Cole — plus Will Smith’s post-Slap “Bad Boys” comeback — demonstrate different paths for maturing (or not).`\
 https://nytimes.com/2024/06/12/arts/music/popcast-deluxe-whats-an-aging-rapper-to-do.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/12/sports/golf/us-open-pinehurst.html
 **Art Basel Opens to Safe Sales and Fears of a Weaker Market**\
 `At the prestigious fair, doing business at what one mega-dealer calls a “more human pace” can just mean “slower” for smaller galleries.`\
 https://nytimes.com/2024/06/12/arts/design/art-basel-collectors-art.html
-
-**The Importance of the Pinehurst Caddies**\
-`With their knowledge of the course, they can save players “several strokes a round.”`\
-https://nytimes.com/2024/06/12/sports/golf/pinehurst-us-open-caddie.html
 

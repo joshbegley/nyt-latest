@@ -1,3 +1,7 @@
+**The Federal Reserve Has a Good News Problem**\
+`Inflation is yesterday’s problem.`\
+https://nytimes.com/live/2024/06/12/opinion/thepoint/inflation-over-federal-reserve
+
 **Popcast (Deluxe): What’s an Aging Rapper to Do?**\
 `New songs from Eminem, Drake and J. Cole — plus Will Smith’s post-Slap “Bad Boys” comeback — demonstrate different paths for maturing (or not).`\
 https://nytimes.com/2024/06/12/arts/music/popcast-deluxe-whats-an-aging-rapper-to-do.html
