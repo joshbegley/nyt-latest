@@ -1,3 +1,11 @@
+**Western Governors Give Bipartisanship a Try. At Least for a Few Days.**\
+`The Western Governors’ Association celebrated its 40th anniversary with high hopes and low turnout.`\
+https://nytimes.com/2024/06/12/us/politics/western-governors-association-bipartisanship.html
+
+**The Houthis attack a merchant ship off Yemen’s coast.**\
+`By Anjana Sankar`\
+https://nytimes.com/live/2024/06/12/world/israel-gaza-war-hamas/the-houthis-attack-a-merchant-ship-off-yemens-coast
+
 **Senate Republicans Block Supreme Court Ethics Measure Pushed by Democrats**\
 `Democrats made what they knew was a doomed attempt as they faced pressure from the left to do more to try to hold the court accountable.`\
 https://nytimes.com/2024/06/12/us/politics/supreme-court-ethics-bill-blocked.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/06/12/well/live/friendship-nostalgia.html
 **Russian Warships Enter Havana Harbor as Part of Planned Exercises**\
 `Experts called the naval exercises routine but also a show of strength as Washington maintains military support for Ukraine in its war against Russia.`\
 https://nytimes.com/2024/06/12/world/americas/russia-cuba-navy-exercies.html
-
-**Inflation Cooled, but the Fed Expects Just One Rate Cut This Year**\
-`Also, Southern Baptists voted to oppose I.V.F. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2024/06/12/briefing/inflation-cooled-but-the-fed-expects-just-one-rate-cut-this-year.html
-
-**Heavy Rains Batter South Florida, Closing Roads and Grounding Flights**\
-`The deluge, which began Tuesday afternoon, dumped up to five inches in some areas and was expected to continue through Thursday, forecasters said.`\
-https://nytimes.com/2024/06/12/us/florida-storm-flash-flood.html
 
