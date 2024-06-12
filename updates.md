@@ -1,3 +1,7 @@
+**Four freed hostages were abused and malnourished, a doctor who received them says.**\
+`T`\
+https://nytimes.com/live/2024/06/12/world/israel-gaza-war-hamas/four-freed-hostages-were-abused-and-malnourished-a-doctor-who-received-them-says
+
 **Mmm, Migas**\
 `Made with fried leftover corn tortillas for heft and jalapeño and onion for lift, these are scrambled eggs with oomph.`\
 https://nytimes.com/2024/06/12/dining/mmm-migas.html
