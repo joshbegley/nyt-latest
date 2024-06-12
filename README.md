@@ -1,3 +1,7 @@
+**When We Fear Silence, We Abandon the Self**\
+`The constant distractions of modern life have become an excuse to avoid the search for meaning.`\
+https://nytimes.com/2024/06/12/special-series/paul-lynch-fear-silence.html
+
 **Three Men Convicted in Murder of Dutch Journalist**\
 `A Dutch court sentenced the men to prison for more than 25 years on Wednesday in the killing of Peter R. de Vries, whose daylight murder in 2021 rattled Europe.`\
 https://nytimes.com/2024/06/12/world/europe/peter-de-vries-murder-netherlands.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/12/business/eu-chinese-ev-tariffs-explained.html
 **Readers Share This Year’s Highlights (So Far)**\
 `Big birthdays, new family members and spectacular adventures.`\
 https://nytimes.com/2024/06/12/us/readers-share-this-years-highlights-so-far.html
-
-**Why Did My Wife’s Sister Confess to Taking Her Clothes 50 Years Later?**\
-`Stung by the revelation that her sister frequently took her clothing without permission in their youth, a reader is baffled by the disclosure: Was it expressly to hurt?`\
-https://nytimes.com/2024/06/12/style/childhood-confessions.html
 
