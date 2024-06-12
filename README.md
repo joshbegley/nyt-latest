@@ -1,3 +1,15 @@
+**Hezbollah Launches Rocket Barrage After Commander Is Killed in Israeli Strike**\
+`Around 150 rockets were launched from Lebanon into northern Israel in an apparent response to the strike, Israeli army radio said. There were no immediate reports of casualties.`\
+https://nytimes.com/2024/06/12/world/middleeast/hezbollah-rockets-israel-strike.html
+
+**Wage growth is a worry for Fed officials trying to rein in inflation.**\
+`By Ben Casselman`\
+https://nytimes.com/live/2024/06/12/business/fed-rates-inflation-cpi/wage-growth-is-a-worry-for-fed-officials-trying-to-rein-in-inflation
+
+**Live Updates: Inflation in Focus as Fed Meets**\
+`New data on prices will be released shortly before Federal Reserve officials announce a decision on interest rates and issue fresh economic forecasts.`\
+https://nytimes.com/live/2024/06/12/business/fed-rates-inflation-cpi
+
 **The Force Shaping Western Politics**\
 `We cover immigration’s role in European and U.S. politics.`\
 https://nytimes.com/2024/06/12/briefing/immigration-european-us-elections.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/12/crosswords/wordle-review-1090.html
 **European Union Hits E.V.s From China With Tariffs Up to 38%**\
 `Leaders in Brussels are trying to curb China’s dominance in the industry, but European automakers fear the taxes will drive up prices and lead to a trade war.`\
 https://nytimes.com/2024/06/12/business/eu-china-ev-tariffs.html
-
-**A Palestinian Professor Spoke Out Against the Gaza War. Israel Detained Her.**\
-`The investigation of Prof. Nadera Shalhoub-Kevorkian of Hebrew University has prompted a debate inside Israel about the repression of free speech and academic freedoms since the war began.`\
-https://nytimes.com/2024/06/12/world/australia/palestinian-professor-israel-gaza-war.html
-
-**Ukraine Says It Shot Down Most of a Russian Missile and Drone Barrage**\
-`Drawing on replenished supplies, Ukraine used mostly Western-provided air defense systems to deter the overnight assault.`\
-https://nytimes.com/2024/06/12/world/europe/ukraine-russia-war-strikes-missiles-drones.html
-
-**Ben Carson as Trump’s Running Mate? Don’t Count Him Out Just Yet.**\
-`The retired neurosurgeon and former housing secretary is a wild card in the vice-presidential sweepstakes. His main advantage is that Donald Trump genuinely likes him.`\
-https://nytimes.com/2024/06/12/us/politics/ben-carson-trump-vp.html
 
