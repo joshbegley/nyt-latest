@@ -1,3 +1,7 @@
+**White House Aide Does Not Say if Biden Would Commute Son’s Sentence**\
+`The White House spokeswoman said she had not spoken with the president about the matter yet.`\
+https://nytimes.com/2024/06/12/us/politics/biden-commute-prison-sentence-hunter.html
+
 **Usher Lives Out a Childhood Dream at the Apollo**\
 `Gov. Kathy Hochul, Babyface, Jordin Sparks and more gathered in Harlem on Tuesday night to celebrate the theater’s 90th anniversary.`\
 https://nytimes.com/2024/06/12/style/apollo-theater-usher-babyface.html
