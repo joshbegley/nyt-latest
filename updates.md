@@ -1,3 +1,7 @@
+**As Nonprofit Theaters Struggle, Seattle Rep Cuts 12% of Staff**\
+`The institution, Seattle’s pre-eminent repertory theater, says it is making the cuts so it can focus its resources on productions.`\
+https://nytimes.com/2024/06/12/theater/seattle-rep-cuts.html
+
 **What to know about the Fed’s decision.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/06/12/business/fed-rates-inflation-cpi/what-to-know-about-the-feds-decision
