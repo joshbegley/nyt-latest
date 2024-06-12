@@ -1,3 +1,7 @@
+**He’s Got Baby Fever: A Trans Choreographer’s Surrogacy Journey**\
+`Ashley R.T. Yergens’s “Surrogate,” premiering at New York Live Arts this week, explores how trans men experience pregnancy and I.V.F.`\
+https://nytimes.com/2024/06/12/arts/dance/ashley-r-t-yergens-surrogate.html
+
 **Anti-Zionist Graffiti Splashed on Homes of Brooklyn Museum Officials**\
 `The homes of the officials, who are Jewish, were vandalized with red paint, and a banner at the museum director’s building called her a “white supremacist” Zionist.`\
 https://nytimes.com/2024/06/12/nyregion/anti-zionist-graffiti-jewish-museum-officials.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/06/12/arts/editors-recommendations-sticksea
 **Oklahoma Supreme Court Dismisses Tulsa Massacre Lawsuit**\
 `The last known remaining survivors of the 1921 attack by a white mob were hoping for their day in court.`\
 https://nytimes.com/2024/06/12/us/oklahoma-supreme-court-tulsa-massacre-lawsuit.html
-
-**A freed hostage was subject to psychological warfare during his captivity, his family says.**\
-`By Adam Rasgon`\
-https://nytimes.com/live/2024/06/12/world/israel-gaza-war-hamas/a-freed-hostage-was-subject-to-psychological-warfare-during-his-captivity-his-family-says
 
