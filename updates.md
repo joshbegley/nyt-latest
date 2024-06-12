@@ -1,3 +1,11 @@
+**Western Governors Give Bipartisanship a Try. At Least for a Few Days.**\
+`The Western Governors’ Association celebrated its 40th anniversary with high hopes and low turnout.`\
+https://nytimes.com/2024/06/12/us/politics/western-governors-association-bipartisanship.html
+
+**The Houthis attack a merchant ship off Yemen’s coast.**\
+`By Anjana Sankar`\
+https://nytimes.com/live/2024/06/12/world/israel-gaza-war-hamas/the-houthis-attack-a-merchant-ship-off-yemens-coast
+
 **SpaceX Is Sued by Employees Fired After Criticizing Musk**\
 `The eight workers say they were wrongfully fired after circulating a memo raising concerns about sexual harassment at the rocket company led by Elon Musk.`\
 https://nytimes.com/2024/06/12/business/spacex-employees-elon-musk-lawsuit.html
