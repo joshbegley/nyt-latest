@@ -1,3 +1,11 @@
+**Election Updates: A key Senate matchup is set in battleground Nevada.**\
+``\
+https://nytimes.com/live/2024/06/12/us/biden-trump-election
+
+**What to Know About Europe’s Extra Tariffs on Chinese Electric Cars**\
+`The tariffs have been expected for months, but many European automakers warned they will drive up prices for consumers and set off a trade war with China.`\
+https://nytimes.com/2024/06/12/business/eu-chinese-ev-tariffs-explained.html
+
 **Readers Share This Year’s Highlights (So Far)**\
 `Big birthdays, new family members and spectacular adventures.`\
 https://nytimes.com/2024/06/12/us/readers-share-this-years-highlights-so-far.html

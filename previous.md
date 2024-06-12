@@ -1,3 +1,11 @@
+**Election Updates: A key Senate matchup is set in battleground Nevada.**\
+``\
+https://nytimes.com/live/2024/06/12/us/biden-trump-election
+
+**What to Know About Europe’s Extra Tariffs on Chinese Electric Cars**\
+`The tariffs have been expected for months, but many European automakers warned they will drive up prices for consumers and set off a trade war with China.`\
+https://nytimes.com/2024/06/12/business/eu-chinese-ev-tariffs-explained.html
+
 **Readers Share This Year’s Highlights (So Far)**\
 `Big birthdays, new family members and spectacular adventures.`\
 https://nytimes.com/2024/06/12/us/readers-share-this-years-highlights-so-far.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/12/business/dealbook/paramount-skydance-deal-talks-f
 **The World Bank sees a rosier outlook for the global economy.**\
 `By Alan Rappeport`\
 https://nytimes.com/live/2024/06/12/business/fed-rates-inflation-cpi/the-world-bank-sees-a-rosier-outlook-for-the-global-economy
-
-**Hezbollah Launches Rocket Barrage After Commander Is Killed in Israeli Strike**\
-`Around 150 rockets were launched from Lebanon into northern Israel in an apparent response to the strike, Israeli army radio said. There were no immediate reports of casualties.`\
-https://nytimes.com/2024/06/12/world/middleeast/hezbollah-rockets-israel-strike.html
-
-**Wage growth is a worry for Fed officials trying to rein in inflation.**\
-`By Ben Casselman`\
-https://nytimes.com/live/2024/06/12/business/fed-rates-inflation-cpi/wage-growth-is-a-worry-for-fed-officials-trying-to-rein-in-inflation
 
