@@ -1,3 +1,7 @@
+**One Dead After Rush-Hour Hijacking of Commuter Bus in Atlanta**\
+`A suspect, Joseph Grier, 39, was taken into custody. No other injuries were reported among the 17 people on the bus.`\
+https://nytimes.com/2024/06/11/us/atlanta-commuter-bus-chase.html
+
 **Corrections: June 12, 2024**\
 `Corrections that appeared in print on Wednesday, June 12, 2024.`\
 https://nytimes.com/2024/06/11/pageoneplus/corrections-june-12-2024.html
