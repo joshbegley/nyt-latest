@@ -1,3 +1,11 @@
+**U.S. Expands Sanctions on Russia as G7 Leaders Gather**\
+`The Biden administration is taking new measures aimed at stopping China from helping the Kremlin sustain its war effort against Ukraine. U.S. officials hope European nations will take similar steps.`\
+https://nytimes.com/2024/06/12/us/politics/us-russia-china-sanctions-g7.html
+
+**Hamas Made Unacceptable Changes to Cease-Fire Plan, Blinken Says**\
+`Secretary of State Antony J. Blinken said Hamas included some changes that were unworkable in its response to a U.S.-backed cease-fire plan, but that the U.S. would keep trying to strike a deal between Israel and Hamas.`\
+https://nytimes.com/video/world/middleeast/100000009517335/blinken-gaza-israel-hamas-cease-fire.html
+
 **In Wake of Election Defeat, Germany’s Weakened Leader Will Slog On**\
 `Chancellor Olaf Scholz and his governing coalition emerged battered from the vote for the European Parliament. But a snap election seems unlikely.`\
 https://nytimes.com/2024/06/12/world/europe/election-germany-olaf-scholz.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/12/dining/restaurant-bans-youth.html
 **Hunter Biden’s Conviction, and a Family’s Pain**\
 `Readers discuss addiction, call for compassion and praise how the president has supported his son.`\
 https://nytimes.com/2024/06/12/opinion/letters/hunter-biden-conviction.html
-
-**Housing Costs Cool, but Remain a Source of Concern**\
-`Housing costs were up 5.4 percent in May from a year earlier, the smallest increase in more than two years. But monthly progress has slowed.`\
-https://nytimes.com/2024/06/12/business/housing-rent-inflation.html
-
-**White House Announces Strategy to Keep Edible Food Out of Landfills**\
-`The government will look at ways to extend the shelf life of foods and to create more composting and other facilities, as well as urge companies to donate more food.`\
-https://nytimes.com/2024/06/12/climate/white-house-food-waste-strategy.html
 
