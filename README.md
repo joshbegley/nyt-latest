@@ -1,3 +1,11 @@
+**Federal Reserve Maintains Current Interest Rate**\
+`Jerome H. Powell, the Fed chair, said that officials are waiting for “greater confidence” that inflation is moving sustainably to 2 percent before cutting rates.`\
+https://nytimes.com/video/us/politics/100000009518628/federal-reserve-maintains-interest-rate.html
+
+**A Rare Antelope Dies After Choking on a Plastic Cap at Tennessee Zoo**\
+`Lief, as the antelope was known, was comfortable with humans. A squeezable food pouch, which is among items banned at the zoo to protect the animals, was found in the exhibit.`\
+https://nytimes.com/2024/06/12/us/antelope-chokes-death-tennessee-zoo.html
+
 **The Federal Reserve Has a Good News Problem**\
 `Inflation is yesterday’s problem.`\
 https://nytimes.com/live/2024/06/12/opinion/thepoint/inflation-over-federal-reserve
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/12/movies/inside-out-2-review.html
 **Southern Baptists Vote to Oppose Use of I.V.F.**\
 `With almost 13 million church members across the United States, the Southern Baptist Convention has long been a bellwether for American evangelicalism.`\
 https://nytimes.com/2024/06/12/us/ivf-vote-southern-baptists.html
-
-**A Masterpiece at Pinehurst Is Hosting the U.S. Open Again**\
-`The No. 2 course at the country club is a gem by the architect Donald Ross. This is its fourth Open.`\
-https://nytimes.com/2024/06/12/sports/golf/us-open-pinehurst.html
-
-**Art Basel Opens to Safe Sales and Fears of a Weaker Market**\
-`At the prestigious fair, doing business at what one mega-dealer calls a “more human pace” can just mean “slower” for smaller galleries.`\
-https://nytimes.com/2024/06/12/arts/design/art-basel-collectors-art.html
 
