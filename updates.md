@@ -1,3 +1,7 @@
+**Cooling Inflation Revives Biden’s Hope of Rate Cuts**\
+`The chances of at least one pre-election cut appeared to be helped by a new inflation report.`\
+https://nytimes.com/2024/06/12/business/fed-rates-biden.html
+
 **Student Loan Bills Are Dropping Next Month for Many, but There’s a Hiccup**\
 `The Education Department has not finished recalculating payments for millions of borrowers enrolled in SAVE, forcing loan servicers to put many loans into forbearance.`\
 https://nytimes.com/2024/06/12/business/student-loans-save-forbearance.html
