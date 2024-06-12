@@ -1,3 +1,11 @@
+**Why Senate Democrats Are Outperforming Biden in Key States**\
+`Democratic candidates have leads in Wisconsin, Pennsylvania, Nevada, Michigan and Arizona — but strategists aligned with both parties caution that the battle for Senate control is just starting.`\
+https://nytimes.com/2024/06/12/us/politics/senate-democrats-election-biden.html
+
+**Why Is Biden Going to Europe Twice in a Week?**\
+`The White House won’t say, but the politics seem clear: Three down days in Europe “might not look right.”`\
+https://nytimes.com/2024/06/12/us/politics/biden-europe-travel.html
+
 **Jerry West, One of Basketball’s Greatest Players, Dies at 86**\
 `He was a high-scoring Hall of Fame guard for the Lakers and later an executive with the team. His image became the N.B.A.’s logo.`\
 https://nytimes.com/2024/06/12/sports/jerry-west-dead.html

@@ -1,3 +1,11 @@
+**Why Senate Democrats Are Outperforming Biden in Key States**\
+`Democratic candidates have leads in Wisconsin, Pennsylvania, Nevada, Michigan and Arizona — but strategists aligned with both parties caution that the battle for Senate control is just starting.`\
+https://nytimes.com/2024/06/12/us/politics/senate-democrats-election-biden.html
+
+**Why Is Biden Going to Europe Twice in a Week?**\
+`The White House won’t say, but the politics seem clear: Three down days in Europe “might not look right.”`\
+https://nytimes.com/2024/06/12/us/politics/biden-europe-travel.html
+
 **Jerry West, One of Basketball’s Greatest Players, Dies at 86**\
 `He was a high-scoring Hall of Fame guard for the Lakers and later an executive with the team. His image became the N.B.A.’s logo.`\
 https://nytimes.com/2024/06/12/sports/jerry-west-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/12/climate/white-house-food-waste-strategy.html
 **The Rage, Secrecy and Pain of a Family Torn Apart by Addiction**\
 `A Delaware family sees itself in the Hunter Biden story.`\
 https://nytimes.com/2024/06/12/well/addiction-hunter-biden.html
-
-**When We Fear Silence, We Abandon the Self**\
-`The constant distractions of modern life have become an excuse to avoid the search for meaning.`\
-https://nytimes.com/2024/06/12/special-series/paul-lynch-fear-silence.html
-
-**Three Men Convicted in Murder of Dutch Journalist**\
-`A Dutch court sentenced the men to prison for more than 25 years on Wednesday in the killing of Peter R. de Vries, whose daylight murder in 2021 rattled Europe.`\
-https://nytimes.com/2024/06/12/world/europe/peter-de-vries-murder-netherlands.html
 
