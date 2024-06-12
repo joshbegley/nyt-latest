@@ -1,3 +1,7 @@
+**Defiant Macron Predicts Chaos if France Succumbs to Extremes**\
+`The French president called on people of good will to come together to defend the Republic in the snap election he decided to call.`\
+https://nytimes.com/2024/06/12/world/europe/macron-france-elections.html
+
 **What’s in Our Queue? ‘Stick Season (Forever)’ and More**\
 `I lead a global breaking news team with hubs on three continents. Here are some things I am enjoying.`\
 https://nytimes.com/interactive/2024/06/12/arts/editors-recommendations-stickseason.html
