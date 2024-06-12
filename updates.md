@@ -1,3 +1,7 @@
+**Hunter Biden’s Laptop, Revealed by New York Post, Comes Back to Haunt Him**\
+`Many claims about the laptop’s contents have not been proved, but it played a role in the prosecution of Mr. Biden over a firearm purchase.`\
+https://nytimes.com/2024/06/11/business/media/hunter-biden-laptop-new-york-post.html
+
 **Nancy Mace Defeats G.O.P. Challenger, Dealing Blow to McCarthy’s Revenge Tour**\
 `The South Carolina congresswoman turned back a primary challenger backed by former Speaker Kevin McCarthy, who has been trying to exact retribution against Republicans who voted to oust him.`\
 https://nytimes.com/2024/06/11/us/politics/nancy-mace-primary.html
