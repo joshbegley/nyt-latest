@@ -1,3 +1,7 @@
+**West Wilson of ‘Summer House’ Discusses His First Taste of Infamy**\
+`When Mr. Wilson was accused on the reunion of misleading Ciara Miller, his castmate and former romantic interest, fan backlash was swift.`\
+https://nytimes.com/2024/06/12/style/summer-house-west-wilson.html
+
 **New U.N. War Crimes Accusations, and the Fed’s Plan for Rates**\
 `Plus, a major split in the hot dog world.`\
 https://nytimes.com/2024/06/12/podcasts/un-war-crimes-hunter-biden.html

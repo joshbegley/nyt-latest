@@ -1,3 +1,7 @@
+**West Wilson of ‘Summer House’ Discusses His First Taste of Infamy**\
+`When Mr. Wilson was accused on the reunion of misleading Ciara Miller, his castmate and former romantic interest, fan backlash was swift.`\
+https://nytimes.com/2024/06/12/style/summer-house-west-wilson.html
+
 **New U.N. War Crimes Accusations, and the Fed’s Plan for Rates**\
 `Plus, a major split in the hot dog world.`\
 https://nytimes.com/2024/06/12/podcasts/un-war-crimes-hunter-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/12/us/politics/ben-carson-trump-vp.html
 **$1.3 Million Homes in Colorado, California and Massachusetts**\
 `A Craftsman bungalow in Denver, a midcentury-modern home in Riverside and an 1841 Cape Cod house in Newburyport.`\
 https://nytimes.com/2024/06/12/realestate/million-dollar-homes-colorado-california-massachusetts.html
-
-**‘Bridgerton’ is Back (Again). Here’s Where Things Left Off.**\
-`Colin Bridgerton and Penelope Featherington are on their way to a happy ending — but Lady Whistledown is still a huge barrier in this “friends to lovers” story.`\
-https://nytimes.com/2024/06/12/arts/television/bridgerton-season-three-part-two.html
 
