@@ -1,3 +1,7 @@
+**A Palestinian Professor Spoke Out Against the Gaza War. Israel Detained Her.**\
+`The investigation of Prof. Nadera Shalhoub-Kevorkian of Hebrew University has prompted a debate inside Israel about the repression of free speech and academic freedoms since the war began.`\
+https://nytimes.com/2024/06/12/world/australia/palestinian-professor-israel-gaza-war.html
+
 **Ukraine Says It Shot Down Most of a Russian Missile and Drone Barrage**\
 `Drawing on replenished supplies, Ukraine used mostly Western-provided air defense systems to deter the overnight assault.`\
 https://nytimes.com/2024/06/12/world/europe/ukraine-russia-war-strikes-missiles-drones.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/06/12/crosswords/12connections-quiz.html
 **House Plans Vote on Holding Attorney General in Contempt Over Biden Audio**\
 `Merrick Garland has refused Republican demands to turn over recordings by the special counsel who investigated the president’s handling of classified documents.`\
 https://nytimes.com/2024/06/12/us/politics/house-garland-attorney-general-biden-contempt.html
-
-**On Canal Street, Fake Bags That Are Not for Sale**\
-`A new exhibition that looks like a store is meant to draw attention to the prevalence of “superfake” handbags.`\
-https://nytimes.com/2024/06/12/style/realreal-fake-designer-bags-exhibit.html
 

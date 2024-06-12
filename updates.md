@@ -1,3 +1,7 @@
+**A Palestinian Professor Spoke Out Against the Gaza War. Israel Detained Her.**\
+`The investigation of Prof. Nadera Shalhoub-Kevorkian of Hebrew University has prompted a debate inside Israel about the repression of free speech and academic freedoms since the war began.`\
+https://nytimes.com/2024/06/12/world/australia/palestinian-professor-israel-gaza-war.html
+
 **Ukraine Says It Shot Down Most of a Russian Missile and Drone Barrage**\
 `Drawing on replenished supplies, Ukraine used mostly Western-provided air defense systems to deter the overnight assault.`\
 https://nytimes.com/2024/06/12/world/europe/ukraine-russia-war-strikes-missiles-drones.html
