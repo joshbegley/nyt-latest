@@ -1,3 +1,7 @@
+**Listen to 8 Songs From the Bewitching Françoise Hardy**\
+`From her start in the yé-yé 1960s to the depths she plumbed as a singer-songwriter, Hardy, who died Tuesday, continued to entrance new generations of listeners.`\
+https://nytimes.com/2024/06/12/arts/music/francoise-hardy-playlist.html
+
 **Defiant Macron Predicts Chaos if France Succumbs to Extremes**\
 `The French president called on people of good will to come together to defend the Republic in the snap election he decided to call.`\
 https://nytimes.com/2024/06/12/world/europe/macron-france-elections.html
