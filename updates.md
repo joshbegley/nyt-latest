@@ -1,4 +1,8 @@
 **Jerry West, One of Basketball’s Greatest Players, Dies at 86**\
+`He was a high-scoring Hall of Fame guard for the Lakers and later an executive with the team. His image became the N.B.A.’s logo.`\
+https://nytimes.com/2024/06/12/sports/jerry-west-dead.html
+
+**Jerry West, One of Basketball’s Greatest Players, Dies at 86**\
 `He was a high-scoring Hall of Fame guard for the Lakers and later an executive with the team. His image became the league’s logo.`\
 https://nytimes.com/2024/06/12/sports/jerry-west-one-of-basketballs-greatest-players-dies-at-86.html
 
