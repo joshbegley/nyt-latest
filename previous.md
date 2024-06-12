@@ -1,3 +1,7 @@
+**Françoise Hardy, Moody French Pop Star, Dies at 80**\
+`With hit songs, a longilineal look and an understated personality, she incarnated a 1960s cool still treasured by the French.`\
+https://nytimes.com/2024/06/12/arts/music/francoise-hardy-dead.html
+
 **Heavy Rain Floods Parts of Southern Florida**\
 `Vehicles waded through several inches of rain as flash flooding deluged cities along Florida’s coasts. Some areas of the state were expected to receive up to a foot or more of rain in the coming days.`\
 https://nytimes.com/video/weather/100000009517720/florida-flash-flooding-rain.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/12/well/live/burnout-work-vacation.html
 **Ancient Genomes Reveal Which Children the Maya Selected for Sacrifice**\
 `Thousand-year-old DNA from Chichén Itzá offers eye-opening details of the religious rituals of ancient Maya.`\
 https://nytimes.com/2024/06/12/science/archaeology-maya-genetics.html
-
-**U.S. Expands Sanctions on Russia as G7 Leaders Gather**\
-`The Biden administration is taking new measures aimed at stopping China from helping the Kremlin sustain its war effort against Ukraine. U.S. officials hope European nations will take similar steps.`\
-https://nytimes.com/2024/06/12/us/politics/us-russia-china-sanctions-g7.html
 

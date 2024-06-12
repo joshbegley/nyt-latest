@@ -1,3 +1,7 @@
+**Françoise Hardy, Moody French Pop Star, Dies at 80**\
+`With hit songs, a longilineal look and an understated personality, she incarnated a 1960s cool still treasured by the French.`\
+https://nytimes.com/2024/06/12/arts/music/francoise-hardy-dead.html
+
 **Heavy Rain Floods Parts of Southern Florida**\
 `Vehicles waded through several inches of rain as flash flooding deluged cities along Florida’s coasts. Some areas of the state were expected to receive up to a foot or more of rain in the coming days.`\
 https://nytimes.com/video/weather/100000009517720/florida-flash-flooding-rain.html
