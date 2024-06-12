@@ -1,3 +1,7 @@
+**The Force Shaping Western Politics**\
+`We cover immigration’s role in European and U.S. politics.`\
+https://nytimes.com/2024/06/12/briefing/immigration-european-us-elections.html
+
 **West Wilson of ‘Summer House’ Discusses His First Taste of Infamy**\
 `When Mr. Wilson was accused on the reunion of misleading Ciara Miller, his castmate and former romantic interest, fan backlash was swift.`\
 https://nytimes.com/2024/06/12/style/summer-house-west-wilson.html
