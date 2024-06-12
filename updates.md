@@ -1,3 +1,11 @@
+**What to know about the Fed’s decision.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/06/12/business/fed-rates-inflation-cpi/what-to-know-about-the-feds-decision
+
+**As the U.A.W. Scores Wins in Red States, Tensions Emerge Over Gaza Protests**\
+`A tentative new contract at an Ohio battery maker on Monday was big for President Biden’s E.V. transition, but for some, the victory was upstaged by the U.A.W.’s activism on college campuses.`\
+https://nytimes.com/2024/06/12/us/politics/uaw-gaza-biden.html
+
 **Southern Baptists Vote to Oppose Use of I.V.F.**\
 `With almost 13 million church members across the United States, the Southern Baptist Convention has long been a bellwether for American evangelicalism.`\
 https://nytimes.com/2024/06/12/us/ivf-vote-southern-baptists.html
