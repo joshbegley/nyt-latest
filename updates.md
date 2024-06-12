@@ -1,3 +1,11 @@
+**A Former Close Friend of Senator Menendez Testifies Against Him**\
+`Philip Sellinger, the U.S. attorney for the District of New Jersey, was among a handful of friends who gave Senator Robert Menendez wedding gifts in 2020.`\
+https://nytimes.com/2024/06/12/nyregion/philip-sellinger-robert-menendez-bribery-trial.html
+
+**Remembering Payne Stewart’s Dramatic Open Win in 1999**\
+`Those who knew him talked about the man and the putt he sank on the final hole. “I did it, lovey,” he whispered to his wife. A few months later, he died in a plane crash.`\
+https://nytimes.com/2024/06/12/sports/golf/payne-stewart-us-open-1999.html
+
 **Go Slow, Joe**\
 `He ought to glide along at his own pace.`\
 https://nytimes.com/live/2024/06/12/opinion/thepoint/go-slow-joe
