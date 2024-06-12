@@ -1,3 +1,7 @@
+**North Dakotans Approve Age Limit for Members of Congress**\
+`A ballot measure left voters to decide whether 81 is too old for some political jobs. It was one state’s answer to an issue that has been a focus of national debate this election cycle.`\
+https://nytimes.com/2024/06/11/us/north-dakota-age-limit-election.html
+
 **Obstacle to Change**\
 `Simeon Seigel stoops to conquer.`\
 https://nytimes.com/2024/06/11/crosswords/daily-puzzle-2024-06-12.html
@@ -25,8 +29,4 @@ https://nytimes.com/2024/06/11/us/capitol-riot-elias-irizarry-south-carolina.htm
 **Pope Francis Is Accused of Using a Homophobic Slur Again**\
 `Two prominent Italian news agencies said the pontiff used the term on Tuesday during a meeting with priests, after he was accused of uttering the same word last month while speaking with Italian bishops.`\
 https://nytimes.com/2024/06/11/world/europe/pope-francis-homophobic-slur.html
-
-**Charity Founder Embezzled Millions and Spent on Lavish Meals, U.S. Says**\
-`Prosecutors say that Keith Taylor, head of Modest Needs, crowdsourced donations for the poor but spent hundreds of thousands of dollars at high-end restaurants.`\
-https://nytimes.com/2024/06/11/nyregion/modest-needs-charity-keith-taylor.html
 
