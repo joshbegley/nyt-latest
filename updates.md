@@ -1,3 +1,7 @@
+**Congressman Wins G.O.P. Nomination for North Dakota Governor**\
+`Representative Kelly Armstrong will be a strong favorite to win the general election and succeed Gov. Doug Burgum, who did not seek a third term.`\
+https://nytimes.com/2024/06/11/us/north-dakota-governor-primary.html
+
 **Hunter Biden’s Laptop, Revealed by New York Post, Comes Back to Haunt Him**\
 `Many claims about the laptop’s contents have not been proved, but it played a role in the prosecution of Mr. Biden over a firearm purchase.`\
 https://nytimes.com/2024/06/11/business/media/hunter-biden-laptop-new-york-post.html

@@ -1,3 +1,7 @@
+**Congressman Wins G.O.P. Nomination for North Dakota Governor**\
+`Representative Kelly Armstrong will be a strong favorite to win the general election and succeed Gov. Doug Burgum, who did not seek a third term.`\
+https://nytimes.com/2024/06/11/us/north-dakota-governor-primary.html
+
 **Hunter Biden’s Laptop, Revealed by New York Post, Comes Back to Haunt Him**\
 `Many claims about the laptop’s contents have not been proved, but it played a role in the prosecution of Mr. Biden over a firearm purchase.`\
 https://nytimes.com/2024/06/11/business/media/hunter-biden-laptop-new-york-post.html
@@ -25,8 +29,4 @@ https://nytimes.com/2024/06/11/us/politics/hunter-biden-trump-convictions-justic
 **Alito’s ‘Godliness’ Comment Echoes a Broader Christian Movement**\
 `Justice Samuel Alito’s secretly recorded remarks come as many conservatives have openly embraced the view that American democracy must be grounded in a Christian worldview.`\
 https://nytimes.com/2024/06/11/us/samuel-alito-christianity-law-democracy.html
-
-**Hamas and Israel Face Pressure to Embrace Cease-Fire Adopted by U.N.**\
-`Despite positive statements and international urging, neither of the warring parties accepted a U.S.-backed plan to halt the war in Gaza, let displaced Palestinians go home and free hostages.`\
-https://nytimes.com/2024/06/11/world/middleeast/israel-hamas-ceasefire-plan.html
 
