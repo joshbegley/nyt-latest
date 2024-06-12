@@ -1,3 +1,19 @@
+**Readers Share This Year’s Highlights (So Far)**\
+`Big birthdays, new family members and spectacular adventures.`\
+https://nytimes.com/2024/06/12/us/readers-share-this-years-highlights-so-far.html
+
+**Why Did My Wife’s Sister Confess to Taking Her Clothes 50 Years Later?**\
+`Stung by the revelation that her sister frequently took her clothing without permission in their youth, a reader is baffled by the disclosure: Was it expressly to hurt?`\
+https://nytimes.com/2024/06/12/style/childhood-confessions.html
+
+**Rare Battlefield War Crimes Case Reaches Sentencing Phase at Guantánamo Bay**\
+`An Iraqi prisoner admitted to conspiring with Osama bin Laden and Al Qaeda. But his case is an outlier at the Guantánamo court.`\
+https://nytimes.com/2024/06/12/us/politics/war-crimes-sentence-guantanamo.html
+
+**The two sides are still far apart after Hamas offers a counterproposal in cease-fire talks.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/06/12/world/israel-gaza-war-hamas/the-two-sides-are-still-far-apart-after-hamas-offers-a-counterproposal-in-cease-fire-talks
+
 **Fire in Kuwait Worker Housing Leaves at Least 35 Dead**\
 `The blaze struck a building that was home to scores of low-paid migrant workers, many of them from India.`\
 https://nytimes.com/2024/06/12/world/middleeast/fire-kuwait-migrant-worker-housing.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/06/12/world/middleeast/hezbollah-rockets-israel-strike.
 **Wage growth is a worry for Fed officials trying to rein in inflation.**\
 `By Ben Casselman`\
 https://nytimes.com/live/2024/06/12/business/fed-rates-inflation-cpi/wage-growth-is-a-worry-for-fed-officials-trying-to-rein-in-inflation
-
-**Live Updates: Inflation Cools Slightly Ahead of Fed Meeting**\
-`Consumer prices rose 3.3 percent in the year through May, a deceleration in inflation that Federal Reserve officials will consider as they meet to set interest rates.`\
-https://nytimes.com/live/2024/06/12/business/fed-rates-inflation-cpi
-
-**The Force Shaping Western Politics**\
-`We cover immigration’s role in European and U.S. politics.`\
-https://nytimes.com/2024/06/12/briefing/immigration-european-us-elections.html
-
-**West Wilson of ‘Summer House’ Discusses His First Taste of Infamy**\
-`When Mr. Wilson was accused on the reunion of misleading Ciara Miller, his castmate and former romantic interest, fan backlash was swift.`\
-https://nytimes.com/2024/06/12/style/summer-house-west-wilson.html
-
-**New U.N. War Crimes Accusations, and the Fed’s Plan for Rates**\
-`Plus, a major split in the hot dog world.`\
-https://nytimes.com/2024/06/12/podcasts/un-war-crimes-hunter-biden.html
 
