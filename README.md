@@ -1,3 +1,11 @@
+**What to know about the Fed’s decision.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/06/12/business/fed-rates-inflation-cpi/what-to-know-about-the-feds-decision
+
+**As the U.A.W. Scores Wins in Red States, Tensions Emerge Over Gaza Protests**\
+`A tentative new contract at an Ohio battery maker on Monday was big for President Biden’s E.V. transition, but for some, the victory was upstaged by the U.A.W.’s activism on college campuses.`\
+https://nytimes.com/2024/06/12/us/politics/uaw-gaza-biden.html
+
 **Don’t Run From Fear — Embrace It**\
 `Seeking out the scary and the spooky can be a fun and healthy way to build resilience and learn to cope with stress.`\
 https://nytimes.com/2024/06/12/special-series/fear-anxiety-research-health-fun.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/12/nyregion/philip-sellinger-robert-menendez-bribery
 **Remembering Payne Stewart’s Dramatic Open Win in 1999**\
 `Those who knew him talked about the man and the putt he sank on the final hole. “I did it, lovey,” he whispered to his wife. A few months later, he died in a plane crash.`\
 https://nytimes.com/2024/06/12/sports/golf/payne-stewart-us-open-1999.html
-
-**Go Slow, Joe**\
-`He ought to glide along at his own pace.`\
-https://nytimes.com/live/2024/06/12/opinion/thepoint/go-slow-joe
-
-**He’s Got Baby Fever: A Trans Choreographer’s Surrogacy Journey**\
-`Ashley R.T. Yergens’s “Surrogate,” premiering at New York Live Arts this week, explores how trans men experience pregnancy and I.V.F.`\
-https://nytimes.com/2024/06/12/arts/dance/ashley-r-t-yergens-surrogate.html
 
