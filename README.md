@@ -1,3 +1,7 @@
+**The Force Shaping Western Politics**\
+`We cover immigration’s role in European and U.S. politics.`\
+https://nytimes.com/2024/06/12/briefing/immigration-european-us-elections.html
+
 **West Wilson of ‘Summer House’ Discusses His First Taste of Infamy**\
 `When Mr. Wilson was accused on the reunion of misleading Ciara Miller, his castmate and former romantic interest, fan backlash was swift.`\
 https://nytimes.com/2024/06/12/style/summer-house-west-wilson.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/12/world/europe/ukraine-russia-war-strikes-missiles-
 **Ben Carson as Trump’s Running Mate? Don’t Count Him Out Just Yet.**\
 `The retired neurosurgeon and former housing secretary is a wild card in the vice-presidential sweepstakes. His main advantage is that Donald Trump genuinely likes him.`\
 https://nytimes.com/2024/06/12/us/politics/ben-carson-trump-vp.html
-
-**$1.3 Million Homes in Colorado, California and Massachusetts**\
-`A Craftsman bungalow in Denver, a midcentury-modern home in Riverside and an 1841 Cape Cod house in Newburyport.`\
-https://nytimes.com/2024/06/12/realestate/million-dollar-homes-colorado-california-massachusetts.html
 
