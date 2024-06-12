@@ -1,3 +1,7 @@
+**A.C.L.U. Sues to Stop Biden’s Asylum Ban on the U.S.-Mexico Border**\
+`The action is the first legal challenge to an order that President Biden hopes will decrease the number of illegal crossings and neutralize a major political vulnerability.`\
+https://nytimes.com/2024/06/12/us/politics/aclu-lawsuit-biden-border-asylum.html
+
 **Harrison White, Groundbreaking (and Inscrutable) Sociologist, Dies at 94**\
 `A theoretical physicist-turned-sociologist, he upended his field by focusing on social networks to explain how society works. His writing was compared to James Joyce’s.`\
 https://nytimes.com/2024/06/12/books/harrison-white-died.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/12/opinion/thepoint/inflation-over-federal-rese
 **Popcast (Deluxe): What’s an Aging Rapper to Do?**\
 `New songs from Eminem, Drake and J. Cole — plus Will Smith’s post-Slap “Bad Boys” comeback — demonstrate different paths for maturing (or not).`\
 https://nytimes.com/2024/06/12/arts/music/popcast-deluxe-whats-an-aging-rapper-to-do.html
-
-**As Nonprofit Theaters Struggle, Seattle Rep Cuts 12% of Staff**\
-`The institution, Seattle’s pre-eminent repertory theater, says it is making the cuts so it can focus its resources on productions.`\
-https://nytimes.com/2024/06/12/theater/seattle-rep-cuts.html
 
