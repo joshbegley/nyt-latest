@@ -1,3 +1,7 @@
+**Nancy Mace Defeats G.O.P. Challenger, Dealing Blow to McCarthy’s Revenge Tour**\
+`The South Carolina congresswoman turned back a primary challenger backed by former Speaker Kevin McCarthy, who has been trying to exact retribution against Republicans who voted to oust him.`\
+https://nytimes.com/2024/06/11/us/politics/nancy-mace-primary.html
+
 **Participant in Jan. 6 Riot Loses Primary Race in South Carolina**\
 `The defeat of Elias Irizarry is the latest in a number of losses that riot participants have suffered at the ballot box in recent months.`\
 https://nytimes.com/2024/06/11/us/capitol-riot-elias-irizarry-south-carolina.html
