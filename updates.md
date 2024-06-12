@@ -1,3 +1,7 @@
+**Obstacle to Change**\
+`Simeon Seigel stoops to conquer.`\
+https://nytimes.com/2024/06/11/crosswords/daily-puzzle-2024-06-12.html
+
 **Hezbollah Says Commander Was Killed in an Israeli Strike in Southern Lebanon**\
 `The killing of the commander, Taleb Abdallah, came as fighting on the Israel-Lebanon border has escalated.`\
 https://nytimes.com/2024/06/11/world/middleeast/israel-hezbollah-taleb-abdallah-killed.html
