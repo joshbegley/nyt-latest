@@ -1,3 +1,7 @@
+**Françoise Hardy: A Life in Photos**\
+`The French pop star pulled listeners close and always struck the perfect pose.`\
+https://nytimes.com/2024/06/12/arts/music/francoise-hardy-photos.html
+
 **A.C.L.U. Sues to Stop Biden’s Asylum Ban on the U.S.-Mexico Border**\
 `The action is the first legal challenge to an order that President Biden hopes will decrease the number of illegal crossings and neutralize a major political vulnerability.`\
 https://nytimes.com/2024/06/12/us/politics/aclu-lawsuit-biden-border-asylum.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/12/us/antelope-chokes-death-tennessee-zoo.html
 **The Federal Reserve Has a Good News Problem**\
 `Inflation is yesterday’s problem.`\
 https://nytimes.com/live/2024/06/12/opinion/thepoint/inflation-over-federal-reserve
-
-**Popcast (Deluxe): What’s an Aging Rapper to Do?**\
-`New songs from Eminem, Drake and J. Cole — plus Will Smith’s post-Slap “Bad Boys” comeback — demonstrate different paths for maturing (or not).`\
-https://nytimes.com/2024/06/12/arts/music/popcast-deluxe-whats-an-aging-rapper-to-do.html
 
