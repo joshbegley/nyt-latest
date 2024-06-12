@@ -1,3 +1,19 @@
+**In Nevada, an Exercise in Trust and Empathy**\
+`Eli Saslow reported from a tiny, remote county where a Republican election clerk and Donald J. Trump supporters are at odds.`\
+https://nytimes.com/2024/06/12/insider/esmeralda-county-nevada.html
+
+**New York City Might Finally Curb Broker Fees for Renters**\
+`A majority of the City Council supports a bill that would transfer the cost of most broker fees from renters to landlords.`\
+https://nytimes.com/2024/06/12/nyregion/broker-fees-rent-nyc.html
+
+**A Public Housing Playground Barred Outsiders. Neighbors Objected.**\
+`Signs put up at Wise Towers say the playground is only for residents. There have been tense encounters with some neighbors on the wealthy, liberal Upper West Side.`\
+https://nytimes.com/2024/06/12/nyregion/nycha-playground-ban-upper-west-side.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/06/12/crosswords/spelling-bee-forum.html
+
 **Late Night Riffs on Hunter Biden’s Guilty Verdict**\
 `“Wow, frankly, I’m shocked — we’re actually enforcing gun laws in America,” Jordan Klepper said on Tuesday’s “Daily Show.”`\
 https://nytimes.com/2024/06/12/arts/television/late-night-hunter-biden-verdict.html
