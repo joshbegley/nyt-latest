@@ -1,3 +1,7 @@
+**North Dakotans Approve Age Limit for Members of Congress**\
+`A ballot measure left voters to decide whether 81 is too old for some political jobs. It was one state’s answer to an issue that has been a focus of national debate this election cycle.`\
+https://nytimes.com/2024/06/11/us/north-dakota-age-limit-election.html
+
 **Obstacle to Change**\
 `Simeon Seigel stoops to conquer.`\
 https://nytimes.com/2024/06/11/crosswords/daily-puzzle-2024-06-12.html
