@@ -1,3 +1,11 @@
+**Inflation Cooled, but the Fed Expects Just One Rate Cut This Year**\
+`Also, Southern Baptists voted to oppose I.V.F. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/06/12/briefing/inflation-cooled-but-the-fed-expects-just-one-rate-cut-this-year.html
+
+**Heavy Rains Batter South Florida, Closing Roads and Grounding Flights**\
+`The deluge, which began Tuesday afternoon, dumped up to five inches in some areas and was expected to continue through Thursday, forecasters said.`\
+https://nytimes.com/2024/06/12/us/florida-storm-flash-flood.html
+
 **Tony Lo Bianco, ‘French Connection’ Actor, Is Dead at 87**\
 `Once labeled a “natural-born heavy,” he shined onscreen and especially onstage, securing a Tony nomination and winning an Obie Award.`\
 https://nytimes.com/2024/06/12/movies/tony-lo-bianco-dead.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/06/12/arts/music/francoise-hardy-photos.html
 **A.C.L.U. Sues to Stop Biden’s Asylum Ban on the U.S.-Mexico Border**\
 `The action is the first legal challenge to an order that President Biden hopes will decrease the number of illegal crossings and neutralize a major political vulnerability.`\
 https://nytimes.com/2024/06/12/us/politics/aclu-lawsuit-biden-border-asylum.html
-
-**Harrison White, Groundbreaking (and Inscrutable) Sociologist, Dies at 94**\
-`A theoretical physicist-turned-sociologist, he upended his field by focusing on social networks to explain how society works. His writing was compared to James Joyce’s.`\
-https://nytimes.com/2024/06/12/books/harrison-white-died.html
-
-**Thursday Briefing: G7 Leaders Prepare to Debate Frozen Russian Assets**\
-`Also, an E.U. blow to China’s electric-vehicle ambitions.`\
-https://nytimes.com/2024/06/12/world/asia/g7-russia-assets-china-ev-asia.html
 
