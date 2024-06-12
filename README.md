@@ -1,3 +1,7 @@
+**Popcast (Deluxe): What’s an Aging Rapper to Do?**\
+`New songs from Eminem, Drake and J. Cole — plus Will Smith’s post-Slap “Bad Boys” comeback — demonstrate different paths for maturing (or not).`\
+https://nytimes.com/2024/06/12/arts/music/popcast-deluxe-whats-an-aging-rapper-to-do.html
+
 **As Nonprofit Theaters Struggle, Seattle Rep Cuts 12% of Staff**\
 `The institution, Seattle’s pre-eminent repertory theater, says it is making the cuts so it can focus its resources on productions.`\
 https://nytimes.com/2024/06/12/theater/seattle-rep-cuts.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/12/arts/design/art-basel-collectors-art.html
 **The Importance of the Pinehurst Caddies**\
 `With their knowledge of the course, they can save players “several strokes a round.”`\
 https://nytimes.com/2024/06/12/sports/golf/pinehurst-us-open-caddie.html
-
-**A Former Close Friend of Senator Menendez Testifies Against Him**\
-`Philip Sellinger, the U.S. attorney for the District of New Jersey, was a guest at Senator Robert Menendez’s wedding in 2020.`\
-https://nytimes.com/2024/06/12/nyregion/philip-sellinger-robert-menendez-bribery-trial.html
 
