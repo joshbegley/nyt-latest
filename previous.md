@@ -1,3 +1,7 @@
+**How Fed Rates Influence Mortgages, Credit Cards and More**\
+`Higher rates benefit those who can save, but for borrowers falling rates would reduce bills on credit cards, home equity loans and other forms of debt.`\
+https://nytimes.com/2024/06/12/business/fed-rates-mortgages-credit-cards-student-loans.html
+
 **Four freed hostages were abused and malnourished, a doctor who received them says.**\
 `T`\
 https://nytimes.com/live/2024/06/12/world/israel-gaza-war-hamas/four-freed-hostages-were-abused-and-malnourished-a-doctor-who-received-them-says
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/12/us/politics/senate-democrats-election-biden.html
 **Why Is Biden Going to Europe Twice in a Week?**\
 `The White House won’t say, but the politics seem clear: Three down days in Europe “might not look right.”`\
 https://nytimes.com/2024/06/12/us/politics/biden-europe-travel.html
-
-**Jerry West, One of Basketball’s Greatest Players, Dies at 86**\
-`He was a high-scoring Hall of Fame guard for the Lakers and later an executive with the team. His image became the N.B.A.’s logo.`\
-https://nytimes.com/2024/06/12/sports/jerry-west-dead.html
 

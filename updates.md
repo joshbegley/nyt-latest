@@ -1,3 +1,7 @@
+**How Fed Rates Influence Mortgages, Credit Cards and More**\
+`Higher rates benefit those who can save, but for borrowers falling rates would reduce bills on credit cards, home equity loans and other forms of debt.`\
+https://nytimes.com/2024/06/12/business/fed-rates-mortgages-credit-cards-student-loans.html
+
 **Ancient Genomes Reveal Which Children the Maya Selected for Sacrifice**\
 `Thousand-year-old DNA from Chichén Itzá offers eye-opening details of the religious rituals of ancient Maya.`\
 https://nytimes.com/2024/06/12/science/archaeology-maya-genetics.html
