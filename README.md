@@ -1,3 +1,11 @@
+**A Former Close Friend of Senator Menendez Testifies Against Him**\
+`Philip Sellinger, the U.S. attorney for the District of New Jersey, was among a handful of friends who gave Senator Robert Menendez wedding gifts in 2020.`\
+https://nytimes.com/2024/06/12/nyregion/philip-sellinger-robert-menendez-bribery-trial.html
+
+**Remembering Payne Stewart’s Dramatic Open Win in 1999**\
+`Those who knew him talked about the man and the putt he sank on the final hole. “I did it, lovey,” he whispered to his wife. A few months later, he died in a plane crash.`\
+https://nytimes.com/2024/06/12/sports/golf/payne-stewart-us-open-1999.html
+
 **Go Slow, Joe**\
 `He ought to glide along at his own pace.`\
 https://nytimes.com/live/2024/06/12/opinion/thepoint/go-slow-joe
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/12/us/politics/biden-commute-prison-sentence-hunter.
 **Listen to 8 Songs From the Bewitching Françoise Hardy**\
 `From her start in the yé-yé 1960s to the depths she plumbed as a singer-songwriter, Hardy, who died Tuesday, continued to entrance new generations of listeners.`\
 https://nytimes.com/2024/06/12/arts/music/francoise-hardy-playlist.html
-
-**Defiant Macron Predicts Chaos if France Succumbs to Extremes**\
-`The French president called on people of good will to come together to defend the Republic in the snap election he decided to call.`\
-https://nytimes.com/2024/06/12/world/europe/macron-france-elections.html
-
-**What’s in Our Queue? ‘Stick Season (Forever)’ and More**\
-`I lead a global breaking news team with hubs on three continents. Here are some things I am enjoying.`\
-https://nytimes.com/interactive/2024/06/12/arts/editors-recommendations-stickseason.html
 
