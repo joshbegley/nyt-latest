@@ -1,3 +1,7 @@
+**Israel’s North Is Burning**\
+`A cease-fire deal in Gaza might halt a war between Israel and Hezbollah.`\
+https://nytimes.com/2024/06/12/opinion/northern-israel-gaza-hezbollah.html
+
 **Muggings, Murders and Mob Justice: Violent Crime Roars Back in Karachi**\
 `A decade after militant and criminal groups were pushed out, Pakistan’s economic powerhouse and most populous city is facing a startling rise in deadly street crime.`\
 https://nytimes.com/2024/06/12/world/asia/karachi-violence-crime.html

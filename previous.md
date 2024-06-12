@@ -1,3 +1,7 @@
+**Israel’s North Is Burning**\
+`A cease-fire deal in Gaza might halt a war between Israel and Hezbollah.`\
+https://nytimes.com/2024/06/12/opinion/northern-israel-gaza-hezbollah.html
+
 **Muggings, Murders and Mob Justice: Violent Crime Roars Back in Karachi**\
 `A decade after militant and criminal groups were pushed out, Pakistan’s economic powerhouse and most populous city is facing a startling rise in deadly street crime.`\
 https://nytimes.com/2024/06/12/world/asia/karachi-violence-crime.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/11/us/politics/sam-brown-nevada-jacky-rosen.html
 **BTS Fans Rejoice: Jin, Its Eldest Member, Completes Military Service**\
 `The K-pop group is still on hiatus until 2025, when the last of its members finish their mandatory enlistment in South Korea’s military. But the celebrating has begun.`\
 https://nytimes.com/2024/06/11/world/asia/bts-jin-military-army.html
-
-**North Dakotans Approve Age Limit for Members of Congress**\
-`A ballot measure left voters to decide whether 81 is too old for some political jobs. It was one state’s answer to an issue that has been a focus of national debate this election cycle.`\
-https://nytimes.com/2024/06/11/us/north-dakota-age-limit-election.html
 
