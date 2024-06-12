@@ -1,3 +1,11 @@
+**Inflation Cooled, but the Fed Expects Just One Rate Cut This Year**\
+`Also, Southern Baptists voted to oppose I.V.F. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/06/12/briefing/inflation-cooled-but-the-fed-expects-just-one-rate-cut-this-year.html
+
+**Heavy Rains Batter South Florida, Closing Roads and Grounding Flights**\
+`The deluge, which began Tuesday afternoon, dumped up to five inches in some areas and was expected to continue through Thursday, forecasters said.`\
+https://nytimes.com/2024/06/12/us/florida-storm-flash-flood.html
+
 **Tony Lo Bianco, ‘French Connection’ Actor, Is Dead at 87**\
 `Once labeled a “natural-born heavy,” he shined onscreen and especially onstage, securing a Tony nomination and winning an Obie Award.`\
 https://nytimes.com/2024/06/12/movies/tony-lo-bianco-dead.html
