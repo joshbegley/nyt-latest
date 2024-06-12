@@ -1,3 +1,7 @@
+**What’s in Our Queue? ‘Stick Season (Forever)’ and More**\
+`I lead a global breaking news team with hubs on three continents. Here are some things I am enjoying.`\
+https://nytimes.com/interactive/2024/06/12/arts/editors-recommendations-stickseason.html
+
 **Oklahoma Supreme Court Dismisses Tulsa Massacre Lawsuit**\
 `The last known remaining survivors of the 1921 attack by a white mob were hoping for their day in court.`\
 https://nytimes.com/2024/06/12/us/oklahoma-supreme-court-tulsa-massacre-lawsuit.html
