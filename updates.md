@@ -1,3 +1,11 @@
+**Fire in Kuwait Worker Housing Leaves at Least 35 Dead**\
+`The blaze struck a building that was home to scores of low-paid migrant workers, many of them from India.`\
+https://nytimes.com/2024/06/12/world/middleeast/fire-kuwait-migrant-worker-housing.html
+
+**Food inflation eased again in May.**\
+`By Madeleine Ngo`\
+https://nytimes.com/live/2024/06/12/business/fed-rates-inflation-cpi/food-inflation-eased-again-in-may
+
 **Live Updates: Inflation Cools Slightly Ahead of Fed Meeting**\
 `Consumer prices rose 3.3 percent in the year through May, a deceleration in inflation that Federal Reserve officials will consider as they meet to set interest rates.`\
 https://nytimes.com/live/2024/06/12/business/fed-rates-inflation-cpi
