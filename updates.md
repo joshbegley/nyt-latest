@@ -1,3 +1,7 @@
+**Southern Baptists Vote to Oppose Use of I.V.F.**\
+`With almost 13 million church members across the United States, the Southern Baptist Convention has long been a bellwether for American evangelicalism.`\
+https://nytimes.com/2024/06/12/us/ivf-vote-southern-baptists.html
+
 **Don’t Run From Fear — Embrace It**\
 `Seeking out the scary and the spooky can be a fun and healthy way to build resilience and learn to cope with stress.`\
 https://nytimes.com/2024/06/12/special-series/fear-anxiety-research-health-fun.html

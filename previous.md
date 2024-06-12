@@ -6,7 +6,7 @@ https://nytimes.com/2024/06/12/special-series/fear-anxiety-research-health-fun.h
 `Anxiety meets Joy in Pixar’s eager, predictably charming sequel to its innovative 2015 hit. Sadness is still around, too, as are Fear and Disgust.`\
 https://nytimes.com/2024/06/12/movies/inside-out-2-review.html
 
-**Southern Baptists Vote to Condemn I.V.F.**\
+**Southern Baptists Vote to Oppose Use of I.V.F.**\
 `With almost 13 million church members across the United States, the Southern Baptist Convention has long been a bellwether for American evangelicalism.`\
 https://nytimes.com/2024/06/12/us/ivf-vote-southern-baptists.html
 
