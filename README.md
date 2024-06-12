@@ -1,3 +1,7 @@
+**Accounts of Life in Hamas Captivity Emerge in Israel**\
+`The four hostages rescued in Gaza were described as malnourished and traumatized.`\
+https://nytimes.com/2024/06/12/world/middleeast/gaza-hostages-rescue-israel.html
+
 **Sony Pictures Acquires Alamo Drafthouse in Lifeline to Cinema Chain**\
 `The deal is the first time in half a century that a traditional Hollywood studio will own a movie theater chain.`\
 https://nytimes.com/2024/06/12/business/alamo-drafthouse-sony-pictures.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/12/us/politics/uaw-gaza-biden.html
 **Don’t Run From Fear — Embrace It**\
 `Seeking out the scary and the spooky can be a fun and healthy way to build resilience and learn to cope with stress.`\
 https://nytimes.com/2024/06/12/special-series/fear-anxiety-research-health-fun.html
-
-**‘Inside Out 2’ Review: PUBERTY! OMG! LOL! IYKYK!**\
-`Anxiety meets Joy in Pixar’s eager, predictably charming sequel to its innovative 2015 hit. Sadness is still around, too, as are Fear and Disgust.`\
-https://nytimes.com/2024/06/12/movies/inside-out-2-review.html
 
