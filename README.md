@@ -1,3 +1,7 @@
+**Hunter Biden Is Expected to Appeal Conviction on Gun Charges**\
+`Lawyers for Mr. Biden are considering a number of challenges to the guilty verdict, including one based on the Second Amendment.`\
+https://nytimes.com/2024/06/12/us/politics/hunter-biden-conviction-appeal.html
+
 **Christophe Deloire, Who Strove to Protect Journalists, Dies at 53**\
 `As the leader and spokesman for Reporters Without Borders, he rescued some, sought refuge for others and lobbied for pluralism in the press.`\
 https://nytimes.com/2024/06/12/world/christophe-deloire-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/06/12/business/spacex-employees-elon-musk-lawsuit.html
 **Blinken Calls Hamas Changes to Cease-Fire Proposal Unworkable**\
 `While the U.S. secretary of state kept up the pressure for a halt to the hostilities in Gaza, Israel and Hamas still appeared to be far from reaching a deal.`\
 https://nytimes.com/2024/06/12/world/middleeast/israel-hamas-gaza-cease-fire-blinken.html
-
-**‘Remember When?’ Revisit Old Photos With a Friend.**\
-`Today’s challenge: Put that sprawling photo library to good use.`\
-https://nytimes.com/2024/06/12/well/live/friendship-nostalgia.html
 
