@@ -1,3 +1,7 @@
+**BTS Fans Rejoice: Jin, Its Eldest Member, Completes Military Service**\
+`The K-pop group is still on hiatus until 2025, when the last of its members finish their mandatory enlistment in South Korea’s military. But the celebrating has begun.`\
+https://nytimes.com/2024/06/11/world/asia/bts-jin-military-army.html
+
 **North Dakotans Approve Age Limit for Members of Congress**\
 `A ballot measure left voters to decide whether 81 is too old for some political jobs. It was one state’s answer to an issue that has been a focus of national debate this election cycle.`\
 https://nytimes.com/2024/06/11/us/north-dakota-age-limit-election.html
