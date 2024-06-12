@@ -1,3 +1,7 @@
+**Tony Lo Bianco, ‘French Connection’ Actor, Is Dead at 87**\
+`Once labeled a “natural-born heavy,” he shined onscreen and especially onstage, securing a Tony nomination and winning an Obie Award.`\
+https://nytimes.com/2024/06/12/movies/tony-lo-bianco-dead.html
+
 **Review: A Glorious ‘Titanic,’ Returned From the Depths**\
 `Maury Yeston’s score, stupendously played and sung, is the star of the final production of an excellent Encores! season at New York City Center.`\
 https://nytimes.com/2024/06/12/theater/review-titanic-encores-city-center.html
