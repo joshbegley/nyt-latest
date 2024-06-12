@@ -1,3 +1,7 @@
+**Ukraine Says It Shot Down Most of a Russian Missile and Drone Barrage**\
+`Drawing on replenished supplies, Ukraine used mostly Western-provided air defense systems to deter the overnight assault.`\
+https://nytimes.com/2024/06/12/world/europe/ukraine-russia-war-strikes-missiles-drones.html
+
 **Ben Carson as Trump’s Running Mate? Don’t Count Him Out Just Yet.**\
 `The retired neurosurgeon and former housing secretary is a wild card in the vice-presidential sweepstakes. His main advantage is that Donald Trump genuinely likes him.`\
 https://nytimes.com/2024/06/12/us/politics/ben-carson-trump-vp.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/12/us/politics/house-garland-attorney-general-biden-
 **On Canal Street, Fake Bags That Are Not for Sale**\
 `A new exhibition that looks like a store is meant to draw attention to the prevalence of “superfake” handbags.`\
 https://nytimes.com/2024/06/12/style/realreal-fake-designer-bags-exhibit.html
-
-**Inflation Data Is Coming Just Before the Fed Meeting. Will It Be a Game Changer?**\
-`Federal Reserve officials are poised to announce their rate decision and economic projections mere hours after the latest inflation release.`\
-https://nytimes.com/2024/06/12/business/economy/may-inflation-cpi.html
 

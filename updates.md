@@ -1,3 +1,7 @@
+**Ukraine Says It Shot Down Most of a Russian Missile and Drone Barrage**\
+`Drawing on replenished supplies, Ukraine used mostly Western-provided air defense systems to deter the overnight assault.`\
+https://nytimes.com/2024/06/12/world/europe/ukraine-russia-war-strikes-missiles-drones.html
+
 **Ben Carson as Trump’s Running Mate? Don’t Count Him Out Just Yet.**\
 `The retired neurosurgeon and former housing secretary is a wild card in the vice-presidential sweepstakes. His main advantage is that Donald Trump genuinely likes him.`\
 https://nytimes.com/2024/06/12/us/politics/ben-carson-trump-vp.html
