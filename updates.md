@@ -1,3 +1,19 @@
+**Jerry West, One of Basketball’s Greatest Players, Dies at 86**\
+`He was a high-scoring Hall of Fame guard for the Lakers and later an executive with the team. His image became the league’s logo.`\
+https://nytimes.com/2024/06/12/sports/jerry-west-one-of-basketballs-greatest-players-dies-at-86.html
+
+**Ethics Questions Raised by Secret Recordings of Justices**\
+`Readers discuss a woman’s conversations with Justice Samuel Alito and Chief Justice John Roberts under false pretenses.`\
+https://nytimes.com/2024/06/12/opinion/letters/alito-roberts-supreme-court.html
+
+**Greece Closes Schools and Acropolis as Possible Record Heat Is Forecast**\
+`Concerns are also growing for two foreign hikers who have gone missing on Greek islands amid the soaring temperatures.`\
+https://nytimes.com/2024/06/12/world/europe/greece-heat-acropolis-schools.html
+
+**Off the Menu at a St. Louis-Area Restaurant: Everyone Under 30**\
+`Customers generally support Bliss Caribbean Restaurant’s ban on male customers under 35 and women under 30. But some legal experts say there may be a problem.`\
+https://nytimes.com/2024/06/12/dining/restaurant-bans-youth.html
+
 **Hunter Biden’s Conviction, and a Family’s Pain**\
 `Readers discuss addiction, call for compassion and praise how the president has supported his son.`\
 https://nytimes.com/2024/06/12/opinion/letters/hunter-biden-conviction.html
