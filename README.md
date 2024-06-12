@@ -1,3 +1,19 @@
+**Usher Lives Out a Childhood Dream at the Apollo**\
+`Gov. Kathy Hochul, Babyface, Jordin Sparks and more gathered in Harlem on Tuesday night to celebrate the theater’s 90th anniversary.`\
+https://nytimes.com/2024/06/12/style/apollo-theater-usher-babyface.html
+
+**Eric Adams Praised a Reporter’s Body. It Wasn’t His First Such Remark.**\
+`Mayor Eric Adams told a journalist that it looked like he was working out and complimented his “summer body.”`\
+https://nytimes.com/2024/06/12/nyregion/eric-adams-summer-body.html
+
+**Howard Fineman, Veteran Political Journalist and TV Pundit, Dies at 75**\
+`From his beginnings with a daily newspaper, he moved easily through Newsweek magazine to cable news and, later, to the frontiers of online journalism.`\
+https://nytimes.com/2024/06/12/obituaries/howard-fineman-dies-at-tk.html
+
+**White House Aide Does Not Say if Biden Would Commute Son’s Sentence**\
+`The White House spokeswoman she had not spoken with the president about the matter yet.`\
+https://nytimes.com/2024/06/12/us/politics/biden-commute-prison-sentence-hunter.html
+
 **Listen to 8 Songs From the Bewitching Françoise Hardy**\
 `From her start in the yé-yé 1960s to the depths she plumbed as a singer-songwriter, Hardy, who died Tuesday, continued to entrance new generations of listeners.`\
 https://nytimes.com/2024/06/12/arts/music/francoise-hardy-playlist.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/06/12/world/israel-gaza-war-hamas/a-freed-hostage-
 **My Son’s Ex-Girlfriend Wants to Keep Her Pregnancy. Is That Unfair to Him?**\
 `The magazine’s Ethicist columnist on whether a co-parent’s wishes should matter to a pregnant woman.`\
 https://nytimes.com/2024/06/12/magazine/pregnancy-abortion-fairness-ethics.html
-
-**How to Read the Fed’s Projections Like a Pro**\
-`The Federal Reserve is expected to leave rates unchanged on Wednesday. But Wall Street is focused on what comes next.`\
-https://nytimes.com/2024/06/12/business/fed-dot-plot.html
-
-**For These Games, a Release Date Is Just the Beginning**\
-`More and more video games are building player bases with perpetual updates and seasonal content. Fans of Destiny 2 just completed a 10-year story arc.`\
-https://nytimes.com/2024/06/12/arts/destiny-final-shape-helldivers-warframe.html
-
-**Miami President Named as Next U.C.L.A. Chancellor**\
-`Julio Frenk, a Mexican public health expert who has led the University of Miami since 2015, will take over the elite Los Angeles school that has been rocked by protests this spring.`\
-https://nytimes.com/2024/06/12/us/ucla-chancellor-julio-frenk.html
-
-**Amtrak Pays Executives Hefty Bonuses as Losses Continue**\
-`Some executives received payments of nearly half a million dollars as the rail service remained $1.7 billion in the red and the new Acela program continued to face challenges.`\
-https://nytimes.com/2024/06/12/us/politics/amtrak-executive-bonuses.html
 
