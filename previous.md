@@ -1,3 +1,11 @@
+**Akira Endo, Scholar of Statins That Reduce Heart Disease, Dies at 90**\
+`The Japanese biochemist found in the 1970s that cholesterol-lowering drugs lowered the LDL, or “bad” cholesterol, level in the blood.`\
+https://nytimes.com/2024/06/12/world/asia/akira-endo-dead.html
+
+**SpaceX Is Sued by Employees Fired After Criticizing Musk**\
+`The eight workers say they were wrongfully fired after circulating a memo raising concerns about sexual harassment at the rocket company led by Elon Musk.`\
+https://nytimes.com/2024/06/12/business/spacex-fired-employees-lawsuit.html
+
 **Blinken Calls Hamas Changes to Cease-Fire Proposal Unworkable**\
 `While the U.S. secretary of state kept up the pressure for a halt to the hostilities in Gaza, Israel and Hamas still appeared to be far from reaching a deal.`\
 https://nytimes.com/2024/06/12/world/middleeast/israel-hamas-gaza-cease-fire-blinken.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/06/12/movies/tony-lo-bianco-dead.html
 **Review: A Glorious ‘Titanic,’ Returned From the Depths**\
 `Maury Yeston’s score, stupendously played and sung, is the star of the final production of an excellent Encores! season at New York City Center.`\
 https://nytimes.com/2024/06/12/theater/review-titanic-encores-city-center.html
-
-**Did Jerry West Inspire the N.B.A.’s Logo? ‘There Was Never Any Doubt.’**\
-`After decades of the league having avoided the issue, Commissioner Adam Silver said what most people knew all along: It is Jerry West in the league’s iconic logo.`\
-https://nytimes.com/2024/06/12/style/jerry-west-nba-logo.html
-
-**Man Who Killed Philadelphia Journalist Gets Up to 30 Years in Prison**\
-`Robert Davis, 20, pleaded guilty to third-degree murder in the fatal shooting, which was domestic in nature, according to the authorities.`\
-https://nytimes.com/2024/06/12/us/shooting-journalist-philadelphia-inquirer-sentencing.html
 
