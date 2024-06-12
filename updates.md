@@ -1,3 +1,11 @@
+**White House Announces Strategy to Keep Edible Food Out of Landfills**\
+`The government will look at ways to extend the shelf life of foods and to create more composting and other facilities, as well as urge companies to donate more food.`\
+https://nytimes.com/2024/06/12/climate/white-house-food-waste-strategy.html
+
+**The Rage, Secrecy and Pain of a Family Torn Apart by Addiction**\
+`A Delaware family sees itself in the Hunter Biden story.`\
+https://nytimes.com/2024/06/12/well/addiction-hunter-biden.html
+
 **When We Fear Silence, We Abandon the Self**\
 `The constant distractions of modern life have become an excuse to avoid the search for meaning.`\
 https://nytimes.com/2024/06/12/special-series/paul-lynch-fear-silence.html
