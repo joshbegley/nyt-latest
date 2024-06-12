@@ -1,3 +1,7 @@
+**Sam Brown Wins Nevada G.O.P. Senate Race, and Will Face Rosen in November**\
+`After losing in a Senate primary in 2022, Mr. Brown, an Army veteran, was the pick of establishment Republicans from the start of the 2024 race.`\
+https://nytimes.com/2024/06/11/us/politics/sam-brown-nevada-jacky-rosen.html
+
 **BTS Fans Rejoice: Jin, Its Eldest Member, Completes Military Service**\
 `The K-pop group is still on hiatus until 2025, when the last of its members finish their mandatory enlistment in South Korea’s military. But the celebrating has begun.`\
 https://nytimes.com/2024/06/11/world/asia/bts-jin-military-army.html
