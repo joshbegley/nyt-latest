@@ -1,3 +1,7 @@
+**Fumihiko Maki, Honored Architect of Understated Buildings, Dies at 95**\
+`A Pritzker Prize winner, he designed notable projects in his native Japan and in the U.S., including 4 World Trade Center and the M.I.T. Media Lab’s new home.`\
+https://nytimes.com/2024/06/12/obituaries/fumihiko-maki-dead.html
+
 **Françoise Hardy, Moody French Pop Star, Dies at 80**\
 `With hit songs, a longilineal look and an understated personality, she incarnated a 1960s cool still treasured by the French.`\
 https://nytimes.com/2024/06/12/arts/music/francoise-hardy-dead.html

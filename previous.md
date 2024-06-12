@@ -1,3 +1,7 @@
+**Fumihiko Maki, Honored Architect of Understated Buildings, Dies at 95**\
+`A Pritzker Prize winner, he designed notable projects in his native Japan and in the U.S., including 4 World Trade Center and the M.I.T. Media Lab’s new home.`\
+https://nytimes.com/2024/06/12/obituaries/fumihiko-maki-dead.html
+
 **Françoise Hardy, Moody French Pop Star, Dies at 80**\
 `With hit songs, a longilineal look and an understated personality, she incarnated a 1960s cool still treasured by the French.`\
 https://nytimes.com/2024/06/12/arts/music/francoise-hardy-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/12/dining/mmm-migas.html
 **Back From Vacation and Still Burned Out**\
 `Time away can make work stress even more apparent. Here’s what to do about it.`\
 https://nytimes.com/2024/06/12/well/live/burnout-work-vacation.html
-
-**Ancient Genomes Reveal Which Children the Maya Selected for Sacrifice**\
-`Thousand-year-old DNA from Chichén Itzá offers eye-opening details of the religious rituals of ancient Maya.`\
-https://nytimes.com/2024/06/12/science/archaeology-maya-genetics.html
 
