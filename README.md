@@ -1,3 +1,11 @@
+**Oklahoma Supreme Court Dismisses Tulsa Massacre Lawsuit**\
+`The last known remaining survivors of the 1921 attack by a white mob were hoping for their day in court.`\
+https://nytimes.com/2024/06/12/us/oklahoma-supreme-court-tulsa-massacre-lawsuit.html
+
+**A freed hostage was subject to psychological warfare during his captivity, his family says.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/06/12/world/israel-gaza-war-hamas/a-freed-hostage-was-subject-to-psychological-warfare-during-his-captivity-his-family-says
+
 **My Son’s Ex-Girlfriend Wants to Keep Her Pregnancy. Is That Unfair to Him?**\
 `The magazine’s Ethicist columnist on whether a co-parent’s wishes should matter to a pregnant woman.`\
 https://nytimes.com/2024/06/12/magazine/pregnancy-abortion-fairness-ethics.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/12/arts/music/francoise-hardy-dead.html
 **Heavy Rain Floods Parts of Southern Florida**\
 `Vehicles waded through several inches of rain as flash flooding deluged cities along Florida’s coasts. Some areas of the state were expected to receive up to a foot or more of rain in the coming days.`\
 https://nytimes.com/video/weather/100000009517720/florida-flash-flooding-rain.html
-
-**Tesla Investors to Decide if Musk Deserves $45 Billion Payday**\
-`The vote is seen as a referendum on the limits of executive pay and the accountability of Silicon Valley billionaires.`\
-https://nytimes.com/2024/06/12/business/tesla-elon-musk-vote.html
-
-**Southern Baptists Reject Tighter Ban on Women in Pastoral Posts**\
-`The denomination voted against adding language to its constitution saying that “only men” could be affirmed or employed “as any kind of pastor or elder as qualified by Scripture.”`\
-https://nytimes.com/2024/06/12/us/southern-baptist-in-vitro-ivf-women-pastors.html
 
