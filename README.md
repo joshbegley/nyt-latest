@@ -1,3 +1,7 @@
+**As Nonprofit Theaters Struggle, Seattle Rep Cuts 12% of Staff**\
+`The institution, Seattle’s pre-eminent repertory theater, says it is making the cuts so it can focus its resources on productions.`\
+https://nytimes.com/2024/06/12/theater/seattle-rep-cuts.html
+
 **What to know about the Fed’s decision.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/06/12/business/fed-rates-inflation-cpi/what-to-know-about-the-feds-decision
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/12/sports/golf/pinehurst-us-open-caddie.html
 **A Former Close Friend of Senator Menendez Testifies Against Him**\
 `Philip Sellinger, the U.S. attorney for the District of New Jersey, was a guest at Senator Robert Menendez’s wedding in 2020.`\
 https://nytimes.com/2024/06/12/nyregion/philip-sellinger-robert-menendez-bribery-trial.html
-
-**Remembering Payne Stewart’s Dramatic Open Win in 1999**\
-`Those who knew him talked about the man and the putt he sank on the final hole. “I did it, lovey,” he whispered to his wife. A few months later, he died in a plane crash.`\
-https://nytimes.com/2024/06/12/sports/golf/payne-stewart-us-open-1999.html
 
