@@ -1,3 +1,7 @@
+**Participant in Jan. 6 Riot Loses Primary Race in South Carolina**\
+`The defeat of Elias Irizarry is the latest in a number of losses that riot participants have suffered at the ballot box in recent months.`\
+https://nytimes.com/2024/06/11/us/capitol-riot-elias-irizarry-south-carolina.html
+
 **Pope Francis Is Accused of Using a Homophobic Slur Again**\
 `Two prominent Italian news agencies said the pontiff used the term on Tuesday during a meeting with priests, after he was accused of uttering the same word last month while speaking with Italian bishops.`\
 https://nytimes.com/2024/06/11/world/europe/pope-francis-homophobic-slur.html
@@ -25,8 +29,4 @@ https://nytimes.com/2024/06/11/opinion/biden-gaza-ukraine.html
 **Biden Proposes Dropping Medical Debt From Credit Reports**\
 `The move would offer relief to millions of Americans who need a better credit score to get an apartment or a car, but it would not wipe out their financial obligations.`\
 https://nytimes.com/2024/06/11/us/politics/biden-medical-debt-credit-reports.html
-
-**Norman Carol, Violinist in Historic Concert in China, Is Dead at 95**\
-`The concertmaster and first-chair violinist with the Philadelphia Orchestra for decades, he took part in a diplomatic breakthrough in 1973 with concerts in Mao Zedong’s Beijing.`\
-https://nytimes.com/2024/06/11/arts/music/norman-carol-dead.html
 
