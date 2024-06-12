@@ -1,3 +1,7 @@
+**Why the Paramount Deal Talks Failed**\
+`After months of negotiations, Shari Redstone walked away from a tie-up with SkyDance. Here’s how a plan to reshape the media conglomerate broke apart.`\
+https://nytimes.com/2024/06/12/business/dealbook/paramount-skydance-deal-talks-fail.html
+
 **The World Bank sees a rosier outlook for the global economy.**\
 `By Alan Rappeport`\
 https://nytimes.com/live/2024/06/12/business/fed-rates-inflation-cpi/the-world-bank-sees-a-rosier-outlook-for-the-global-economy
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/12/podcasts/the-daily/hunter-biden.html
 **The Connections Companion No. 368, June 13, 2024**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/06/12/crosswords/connections-companion-368.html
-
-**Wordle Review No. 1,090, June 13, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/06/12/crosswords/wordle-review-1090.html
 
