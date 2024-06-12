@@ -1,3 +1,7 @@
+**Four freed hostages were abused and malnourished, a doctor who received them says.**\
+`T`\
+https://nytimes.com/live/2024/06/12/world/israel-gaza-war-hamas/four-freed-hostages-were-abused-and-malnourished-a-doctor-who-received-them-says
+
 **Mmm, Migas**\
 `Made with fried leftover corn tortillas for heft and jalapeño and onion for lift, these are scrambled eggs with oomph.`\
 https://nytimes.com/2024/06/12/dining/mmm-migas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/12/us/politics/biden-europe-travel.html
 **Jerry West, One of Basketball’s Greatest Players, Dies at 86**\
 `He was a high-scoring Hall of Fame guard for the Lakers and later an executive with the team. His image became the N.B.A.’s logo.`\
 https://nytimes.com/2024/06/12/sports/jerry-west-dead.html
-
-**Ethics Questions Raised by Secret Recordings of Justices**\
-`Readers discuss a woman’s conversations with Justice Samuel Alito and Chief Justice John Roberts under false pretenses.`\
-https://nytimes.com/2024/06/12/opinion/letters/alito-roberts-supreme-court.html
 
