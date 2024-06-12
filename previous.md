@@ -1,3 +1,7 @@
+**Amtrak Pays Executives Hefty Bonuses as Losses Continue**\
+`Some executives received payments of nearly half a million dollars as the rail service remained $1.7 billion in the red and the new Acela program continued to face challenges.`\
+https://nytimes.com/2024/06/12/us/politics/amtrak-executive-bonuses.html
+
 **Fumihiko Maki, Honored Architect of Understated Buildings, Dies at 95**\
 `A Pritzker Prize winner, he designed notable projects in his native Japan and in the U.S., including 4 World Trade Center and the M.I.T. Media Lab’s new home.`\
 https://nytimes.com/2024/06/12/obituaries/fumihiko-maki-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/12/world/israel-gaza-war-hamas/four-freed-hosta
 **Mmm, Migas**\
 `Made with fried leftover corn tortillas for heft and jalapeño and onion for lift, these are scrambled eggs with oomph.`\
 https://nytimes.com/2024/06/12/dining/mmm-migas.html
-
-**Back From Vacation and Still Burned Out**\
-`Time away can make work stress even more apparent. Here’s what to do about it.`\
-https://nytimes.com/2024/06/12/well/live/burnout-work-vacation.html
 
