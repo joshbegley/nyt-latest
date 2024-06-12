@@ -1,3 +1,7 @@
+**Defiant Macron Predicts Chaos if France Succumbs to Extremes**\
+`The French president called on people of good will to come together to defend the Republic in the snap election he decided to call.`\
+https://nytimes.com/2024/06/12/world/europe/macron-france-elections.html
+
 **What’s in Our Queue? ‘Stick Season (Forever)’ and More**\
 `I lead a global breaking news team with hubs on three continents. Here are some things I am enjoying.`\
 https://nytimes.com/interactive/2024/06/12/arts/editors-recommendations-stickseason.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/12/us/politics/amtrak-executive-bonuses.html
 **Fumihiko Maki, Honored Architect of Understated Buildings, Dies at 95**\
 `A Pritzker Prize winner, he designed notable projects in his native Japan and in the U.S., including 4 World Trade Center and the M.I.T. Media Lab’s new home.`\
 https://nytimes.com/2024/06/12/obituaries/fumihiko-maki-dead.html
-
-**Françoise Hardy, Moody French Pop Star, Dies at 80**\
-`With hit songs, a longilineal look and an understated personality, she incarnated a 1960s cool still treasured by the French.`\
-https://nytimes.com/2024/06/12/arts/music/francoise-hardy-dead.html
 
