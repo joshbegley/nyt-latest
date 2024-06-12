@@ -11,7 +11,7 @@ https://nytimes.com/2024/06/12/nyregion/eric-adams-summer-body.html
 https://nytimes.com/2024/06/12/obituaries/howard-fineman-dead.html
 
 **White House Aide Does Not Say if Biden Would Commute Son’s Sentence**\
-`The White House spokeswoman she had not spoken with the president about the matter yet.`\
+`The White House spokeswoman said she had not spoken with the president about the matter yet.`\
 https://nytimes.com/2024/06/12/us/politics/biden-commute-prison-sentence-hunter.html
 
 **Listen to 8 Songs From the Bewitching Françoise Hardy**\
