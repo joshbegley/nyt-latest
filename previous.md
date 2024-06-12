@@ -1,3 +1,23 @@
+**New U.N. War Crimes Accusations, and the Fed’s Plan for Rates**\
+`Plus, a major split in the hot dog world.`\
+https://nytimes.com/2024/06/12/podcasts/un-war-crimes-hunter-biden.html
+
+**The Criminal Conviction of Hunter Biden**\
+`The president’s son was found guilty of three felony counts for lying on a federal firearms application.`\
+https://nytimes.com/2024/06/12/podcasts/the-daily/hunter-biden.html
+
+**The Connections Companion No. 368, June 13, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/12/crosswords/connections-companion-368.html
+
+**Wordle Review No. 1,090, June 13, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/12/crosswords/wordle-review-1090.html
+
+**European Union Hits E.V.s From China With Tariffs Up to 38%**\
+`Leaders in Brussels are trying to curb China’s dominance in the industry, but European automakers fear the taxes will drive up prices and lead to a trade war.`\
+https://nytimes.com/2024/06/12/business/eu-china-ev-tariffs.html
+
 **A Palestinian Professor Spoke Out Against the Gaza War. Israel Detained Her.**\
 `The investigation of Prof. Nadera Shalhoub-Kevorkian of Hebrew University has prompted a debate inside Israel about the repression of free speech and academic freedoms since the war began.`\
 https://nytimes.com/2024/06/12/world/australia/palestinian-professor-israel-gaza-war.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/06/12/realestate/million-dollar-homes-colorado-californ
 **‘Bridgerton’ is Back (Again). Here’s Where Things Left Off.**\
 `Colin Bridgerton and Penelope Featherington are on their way to a happy ending — but Lady Whistledown is still a huge barrier in this “friends to lovers” story.`\
 https://nytimes.com/2024/06/12/arts/television/bridgerton-season-three-part-two.html
-
-**If Not in New York, Then Where?**\
-`The city was the best-case scenario for congestion pricing. What does it mean that the plan was shelved?`\
-https://nytimes.com/2024/06/12/opinion/congestion-pricing-new-york.html
-
-**Young Women Are Fleeing Organized Religion. This Was Predictable.**\
-`They’re increasingly identifying as feminist at the same time that some denominations are drawing conservative lines in the sand.`\
-https://nytimes.com/2024/06/12/opinion/genz-women-organized-religion.html
-
-**American Optimism Comes for the Economy**\
-`And that’s good for Biden.`\
-https://nytimes.com/live/2024/06/04/opinion/thepoint/inflation-economy-biden
-
-**Connections Quiz: Can you connect the art to the puzzle?**\
-`Every day, Calum Heath publishes a unique illustration inspired by that day’s Connections puzzle. Can you match the words to the art?`\
-https://nytimes.com/interactive/2024/06/12/crosswords/12connections-quiz.html
-
-**House Plans Vote on Holding Attorney General in Contempt Over Biden Audio**\
-`Merrick Garland has refused Republican demands to turn over recordings by the special counsel who investigated the president’s handling of classified documents.`\
-https://nytimes.com/2024/06/12/us/politics/house-garland-attorney-general-biden-contempt.html
 

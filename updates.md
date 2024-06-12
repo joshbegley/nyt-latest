@@ -1,3 +1,23 @@
+**New U.N. War Crimes Accusations, and the Fed’s Plan for Rates**\
+`Plus, a major split in the hot dog world.`\
+https://nytimes.com/2024/06/12/podcasts/un-war-crimes-hunter-biden.html
+
+**The Criminal Conviction of Hunter Biden**\
+`The president’s son was found guilty of three felony counts for lying on a federal firearms application.`\
+https://nytimes.com/2024/06/12/podcasts/the-daily/hunter-biden.html
+
+**The Connections Companion No. 368, June 13, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/12/crosswords/connections-companion-368.html
+
+**Wordle Review No. 1,090, June 13, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/12/crosswords/wordle-review-1090.html
+
+**European Union Hits E.V.s From China With Tariffs Up to 38%**\
+`Leaders in Brussels are trying to curb China’s dominance in the industry, but European automakers fear the taxes will drive up prices and lead to a trade war.`\
+https://nytimes.com/2024/06/12/business/eu-china-ev-tariffs.html
+
 **A Palestinian Professor Spoke Out Against the Gaza War. Israel Detained Her.**\
 `The investigation of Prof. Nadera Shalhoub-Kevorkian of Hebrew University has prompted a debate inside Israel about the repression of free speech and academic freedoms since the war began.`\
 https://nytimes.com/2024/06/12/world/australia/palestinian-professor-israel-gaza-war.html
