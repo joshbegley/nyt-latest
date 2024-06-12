@@ -12,7 +12,7 @@ https://nytimes.com/2024/06/12/world/asia/akira-endo-dead.html
 
 **SpaceX Is Sued by Employees Fired After Criticizing Musk**\
 `The eight workers say they were wrongfully fired after circulating a memo raising concerns about sexual harassment at the rocket company led by Elon Musk.`\
-https://nytimes.com/2024/06/12/business/spacex-fired-employees-lawsuit.html
+https://nytimes.com/2024/06/12/business/spacex-employees-elon-musk-lawsuit.html
 
 **Blinken Calls Hamas Changes to Cease-Fire Proposal Unworkable**\
 `While the U.S. secretary of state kept up the pressure for a halt to the hostilities in Gaza, Israel and Hamas still appeared to be far from reaching a deal.`\
@@ -22,7 +22,7 @@ https://nytimes.com/2024/06/12/world/middleeast/israel-hamas-gaza-cease-fire-bli
 `Today’s challenge: Put that sprawling photo library to good use.`\
 https://nytimes.com/2024/06/12/well/live/friendship-nostalgia.html
 
-**Russian Warships Enter Havana Bay as Part of Planned Exercises**\
+**Russian Warships Enter Havana Harbor as Part of Planned Exercises**\
 `Experts called the naval exercises routine but also a show of strength as Washington maintains military support for Ukraine in its war against Russia.`\
 https://nytimes.com/2024/06/12/world/americas/russia-cuba-navy-exercies.html
 

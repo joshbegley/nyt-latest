@@ -1,3 +1,11 @@
+**SpaceX Is Sued by Employees Fired After Criticizing Musk**\
+`The eight workers say they were wrongfully fired after circulating a memo raising concerns about sexual harassment at the rocket company led by Elon Musk.`\
+https://nytimes.com/2024/06/12/business/spacex-employees-elon-musk-lawsuit.html
+
+**Russian Warships Enter Havana Harbor as Part of Planned Exercises**\
+`Experts called the naval exercises routine but also a show of strength as Washington maintains military support for Ukraine in its war against Russia.`\
+https://nytimes.com/2024/06/12/world/americas/russia-cuba-navy-exercies.html
+
 **Senate Republicans Block Supreme Court Ethics Measure Pushed by Democrats**\
 `Democrats made what they knew was a doomed attempt as they faced pressure from the left to do more to try to hold the court accountable.`\
 https://nytimes.com/2024/06/12/us/politics/supreme-court-ethics-bill-blocked.html
