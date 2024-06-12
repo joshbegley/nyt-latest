@@ -1,3 +1,7 @@
+**Muggings, Murders and Mob Justice: Violent Crime Roars Back in Karachi**\
+`A decade after militant and criminal groups were pushed out, Pakistan’s economic powerhouse and most populous city is facing a startling rise in deadly street crime.`\
+https://nytimes.com/2024/06/12/world/asia/karachi-violence-crime.html
+
 **Wednesday Briefing**\
 `Hunter Biden found guilty.`\
 https://nytimes.com/2024/06/12/briefing/hunter-biden-guilty.html
