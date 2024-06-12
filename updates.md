@@ -1,3 +1,11 @@
+**The Importance of the Pinehurst Caddies**\
+`With their knowledge of the course, they can save players “several strokes a round.”`\
+https://nytimes.com/2024/06/12/sports/golf/pinehurst-us-open-caddie.html
+
+**Vandals Splash Graffiti on Homes of Jewish Leaders of Brooklyn Museum**\
+`The homes of the officials were vandalized with red paint, and a banner at the museum director’s building called her a “white supremacist” Zionist.`\
+https://nytimes.com/2024/06/12/nyregion/anti-zionist-graffiti-jewish-museum-officials.html
+
 **A Former Close Friend of Senator Menendez Testifies Against Him**\
 `Philip Sellinger, the U.S. attorney for the District of New Jersey, was among a handful of friends who gave Senator Robert Menendez wedding gifts in 2020.`\
 https://nytimes.com/2024/06/12/nyregion/philip-sellinger-robert-menendez-bribery-trial.html
