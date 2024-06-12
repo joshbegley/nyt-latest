@@ -1,3 +1,7 @@
+**The W.H.O. says Gazans are facing ‘catastrophic hunger.’**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/06/12/world/israel-gaza-war-hamas/the-who-says-gazans-are-facing-catastrophic-hunger
+
 **Accounts of Life in Hamas Captivity Emerge in Israel**\
 `The four hostages rescued in Gaza were described as malnourished and traumatized.`\
 https://nytimes.com/2024/06/12/world/middleeast/gaza-hostages-rescue-israel.html

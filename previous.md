@@ -1,3 +1,7 @@
+**The W.H.O. says Gazans are facing ‘catastrophic hunger.’**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/06/12/world/israel-gaza-war-hamas/the-who-says-gazans-are-facing-catastrophic-hunger
+
 **Accounts of Life in Hamas Captivity Emerge in Israel**\
 `The four hostages rescued in Gaza were described as malnourished and traumatized.`\
 https://nytimes.com/2024/06/12/world/middleeast/gaza-hostages-rescue-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/12/business/fed-rates-inflation-cpi/what-to-kno
 **As the U.A.W. Scores Wins in Red States, Tensions Emerge Over Gaza Protests**\
 `A tentative new contract at an Ohio battery maker on Monday was big for President Biden’s E.V. transition, but for some, the victory was upstaged by the U.A.W.’s activism on college campuses.`\
 https://nytimes.com/2024/06/12/us/politics/uaw-gaza-biden.html
-
-**Don’t Run From Fear — Embrace It**\
-`Seeking out the scary and the spooky can be a fun and healthy way to build resilience and learn to cope with stress.`\
-https://nytimes.com/2024/06/12/special-series/fear-anxiety-research-health-fun.html
 
