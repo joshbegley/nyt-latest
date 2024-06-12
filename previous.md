@@ -1,3 +1,7 @@
+**Late Night Riffs on Hunter Biden’s Guilty Verdict**\
+`“Wow, frankly, I’m shocked — we’re actually enforcing gun laws in America,” Jordan Klepper said on Tuesday’s “Daily Show.”`\
+https://nytimes.com/2024/06/12/arts/television/late-night-hunter-biden-verdict.html
+
 **Word of the Day: haphazardly**\
 `This word has appeared in 54 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/06/12/learning/word-of-the-day-haphazardly.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/11/pageoneplus/corrections-june-12-2024.html
 **Quotation of the Day: Dire Economy Brings Nigeria Vast Hardship**\
 `Quotation of the Day for Wednesday, June 12, 2024.`\
 https://nytimes.com/2024/06/11/pageoneplus/quotation-of-the-day-dire-economy-brings-nigeria-vast-hardship.html
-
-**Sam Brown Wins Nevada G.O.P. Senate Race, and Will Face Rosen in November**\
-`After losing in a Senate primary in 2022, Mr. Brown, an Army veteran, was the pick of establishment Republicans from the start of the 2024 race.`\
-https://nytimes.com/2024/06/11/us/politics/sam-brown-nevada-jacky-rosen.html
 

@@ -1,3 +1,7 @@
+**Late Night Riffs on Hunter Biden’s Guilty Verdict**\
+`“Wow, frankly, I’m shocked — we’re actually enforcing gun laws in America,” Jordan Klepper said on Tuesday’s “Daily Show.”`\
+https://nytimes.com/2024/06/12/arts/television/late-night-hunter-biden-verdict.html
+
 **Word of the Day: haphazardly**\
 `This word has appeared in 54 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/06/12/learning/word-of-the-day-haphazardly.html
