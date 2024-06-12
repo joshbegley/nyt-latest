@@ -1,3 +1,11 @@
+**A U.N. commission lays out a legal analysis of actions in the conflict.**\
+`By Nick Cumming-Bruce`\
+https://nytimes.com/live/2024/06/12/world/israel-gaza-war-hamas/a-un-commission-lays-out-a-legal-analysis-of-actions-in-the-conflict
+
+**U.N. Commission Accuses Both Israel and Palestinian Groups of War Crimes**\
+`A report provided the first detailed U.N. examination of the Oct. 7 attack on Israel and the subsequent conflict in Gaza.`\
+https://nytimes.com/live/2024/06/12/world/israel-gaza-war-hamas
+
 **In Nevada, an Exercise in Trust and Empathy**\
 `Eli Saslow reported from a tiny, remote county where a Republican election clerk and Donald J. Trump supporters are at odds.`\
 https://nytimes.com/2024/06/12/insider/esmeralda-county-nevada.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/12/opinion/northern-israel-gaza-hezbollah.html
 **Muggings, Murders and Mob Justice: Violent Crime Roars Back in Karachi**\
 `A decade after militant and criminal groups were pushed out, Pakistan’s economic powerhouse and most populous city is facing a startling rise in deadly street crime.`\
 https://nytimes.com/2024/06/12/world/asia/karachi-violence-crime.html
-
-**Wednesday Briefing**\
-`Hunter Biden found guilty.`\
-https://nytimes.com/2024/06/12/briefing/hunter-biden-guilty.html
-
-**Cash-Strapped Ukraine Plans to Sell State Assets to Help Fund War Effort**\
-`The government hopes to privatize a range of companies to fund the military and stabilize the economy. For a country at war, it will be a major challenge.`\
-https://nytimes.com/2024/06/12/world/europe/ukraine-privatization-war.html
 

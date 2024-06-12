@@ -1,3 +1,11 @@
+**A U.N. commission lays out a legal analysis of actions in the conflict.**\
+`By Nick Cumming-Bruce`\
+https://nytimes.com/live/2024/06/12/world/israel-gaza-war-hamas/a-un-commission-lays-out-a-legal-analysis-of-actions-in-the-conflict
+
+**U.N. Commission Accuses Both Israel and Palestinian Groups of War Crimes**\
+`A report provided the first detailed U.N. examination of the Oct. 7 attack on Israel and the subsequent conflict in Gaza.`\
+https://nytimes.com/live/2024/06/12/world/israel-gaza-war-hamas
+
 **In Nevada, an Exercise in Trust and Empathy**\
 `Eli Saslow reported from a tiny, remote county where a Republican election clerk and Donald J. Trump supporters are at odds.`\
 https://nytimes.com/2024/06/12/insider/esmeralda-county-nevada.html
