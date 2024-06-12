@@ -1,3 +1,7 @@
+**Word of the Day: haphazardly**\
+`This word has appeared in 54 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/06/12/learning/word-of-the-day-haphazardly.html
+
 **Israel’s North Is Burning**\
 `A cease-fire deal in Gaza might halt a war between Israel and Hezbollah.`\
 https://nytimes.com/2024/06/12/opinion/northern-israel-gaza-hezbollah.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/11/pageoneplus/quotation-of-the-day-dire-economy-bri
 **Sam Brown Wins Nevada G.O.P. Senate Race, and Will Face Rosen in November**\
 `After losing in a Senate primary in 2022, Mr. Brown, an Army veteran, was the pick of establishment Republicans from the start of the 2024 race.`\
 https://nytimes.com/2024/06/11/us/politics/sam-brown-nevada-jacky-rosen.html
-
-**BTS Fans Rejoice: Jin, Its Eldest Member, Completes Military Service**\
-`The K-pop group is still on hiatus until 2025, when the last of its members finish their mandatory enlistment in South Korea’s military. But the celebrating has begun.`\
-https://nytimes.com/2024/06/11/world/asia/bts-jin-military-army.html
 

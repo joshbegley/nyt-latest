@@ -1,3 +1,7 @@
+**Word of the Day: haphazardly**\
+`This word has appeared in 54 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/06/12/learning/word-of-the-day-haphazardly.html
+
 **Israel’s North Is Burning**\
 `A cease-fire deal in Gaza might halt a war between Israel and Hezbollah.`\
 https://nytimes.com/2024/06/12/opinion/northern-israel-gaza-hezbollah.html
