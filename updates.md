@@ -1,3 +1,7 @@
+**In Wake of Election Defeat, Germany’s Weakened Leader Will Slog On**\
+`Chancellor Olaf Scholz and his governing coalition emerged battered from the vote for the European Parliament. But a snap election seems unlikely.`\
+https://nytimes.com/2024/06/12/world/europe/election-germany-olaf-scholz.html
+
 **Why Senate Democrats Are Outperforming Biden in Key States**\
 `Democratic candidates have leads in Wisconsin, Pennsylvania, Nevada, Michigan and Arizona — but strategists aligned with both parties caution that the battle for Senate control is just starting.`\
 https://nytimes.com/2024/06/12/us/politics/senate-democrats-election-biden.html

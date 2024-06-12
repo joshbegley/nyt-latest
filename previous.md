@@ -1,3 +1,7 @@
+**In Wake of Election Defeat, Germany’s Weakened Leader Will Slog On**\
+`Chancellor Olaf Scholz and his governing coalition emerged battered from the vote for the European Parliament. But a snap election seems unlikely.`\
+https://nytimes.com/2024/06/12/world/europe/election-germany-olaf-scholz.html
+
 **Why Senate Democrats Are Outperforming Biden in Key States**\
 `Democratic candidates have leads in Wisconsin, Pennsylvania, Nevada, Michigan and Arizona — but strategists aligned with both parties caution that the battle for Senate control is just starting.`\
 https://nytimes.com/2024/06/12/us/politics/senate-democrats-election-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/12/business/housing-rent-inflation.html
 **White House Announces Strategy to Keep Edible Food Out of Landfills**\
 `The government will look at ways to extend the shelf life of foods and to create more composting and other facilities, as well as urge companies to donate more food.`\
 https://nytimes.com/2024/06/12/climate/white-house-food-waste-strategy.html
-
-**The Rage, Secrecy and Pain of a Family Torn Apart by Addiction**\
-`A Delaware family sees itself in the Hunter Biden story.`\
-https://nytimes.com/2024/06/12/well/addiction-hunter-biden.html
 
