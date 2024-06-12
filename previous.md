@@ -6,13 +6,13 @@ https://nytimes.com/live/2024/06/12/world/israel-gaza-war-hamas/four-freed-hosta
 `Made with fried leftover corn tortillas for heft and jalapeño and onion for lift, these are scrambled eggs with oomph.`\
 https://nytimes.com/2024/06/12/dining/mmm-migas.html
 
-**Ancient Maya Genomes Are Sequenced for First Time**\
-`Thousand-year-old DNA from Chichén Itzá is offering insights into Maya religious rituals, including a tradition of child sacrifice.`\
-https://nytimes.com/2024/06/12/science/archaeology-maya-genetics.html
-
 **Back From Vacation and Still Burned Out**\
 `Time away can make work stress even more apparent. Here’s what to do about it.`\
 https://nytimes.com/2024/06/12/well/live/burnout-work-vacation.html
+
+**Ancient Genomes Reveal Which Children the Maya Selected for Sacrifice**\
+`Thousand-year-old DNA from Chichén Itzá offers eye-opening details of the religious rituals of ancient Maya.`\
+https://nytimes.com/2024/06/12/science/archaeology-maya-genetics.html
 
 **U.S. Expands Sanctions on Russia as G7 Leaders Gather**\
 `The Biden administration is taking new measures aimed at stopping China from helping the Kremlin sustain its war effort against Ukraine. U.S. officials hope European nations will take similar steps.`\

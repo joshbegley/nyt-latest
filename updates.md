@@ -1,3 +1,7 @@
+**Ancient Genomes Reveal Which Children the Maya Selected for Sacrifice**\
+`Thousand-year-old DNA from Chichén Itzá offers eye-opening details of the religious rituals of ancient Maya.`\
+https://nytimes.com/2024/06/12/science/archaeology-maya-genetics.html
+
 **Four freed hostages were abused and malnourished, a doctor who received them says.**\
 `T`\
 https://nytimes.com/live/2024/06/12/world/israel-gaza-war-hamas/four-freed-hostages-were-abused-and-malnourished-a-doctor-who-received-them-says
