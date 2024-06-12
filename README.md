@@ -1,3 +1,11 @@
+**Corrections: June 12, 2024**\
+`Corrections that appeared in print on Wednesday, June 12, 2024.`\
+https://nytimes.com/2024/06/11/pageoneplus/corrections-june-12-2024.html
+
+**Quotation of the Day: Dire Economy Brings Nigeria Vast Hardship**\
+`Quotation of the Day for Wednesday, June 12, 2024.`\
+https://nytimes.com/2024/06/11/pageoneplus/quotation-of-the-day-dire-economy-brings-nigeria-vast-hardship.html
+
 **Sam Brown Wins Nevada G.O.P. Senate Race, and Will Face Rosen in November**\
 `After losing in a Senate primary in 2022, Mr. Brown, an Army veteran, was the pick of establishment Republicans from the start of the 2024 race.`\
 https://nytimes.com/2024/06/11/us/politics/sam-brown-nevada-jacky-rosen.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/11/business/media/hunter-biden-laptop-new-york-post.
 **Nancy Mace Defeats G.O.P. Challenger, Dealing Blow to McCarthy’s Revenge Tour**\
 `The South Carolina congresswoman turned back a primary challenger backed by former Speaker Kevin McCarthy, who has been trying to exact retribution against Republicans who voted to oust him.`\
 https://nytimes.com/2024/06/11/us/politics/nancy-mace-primary.html
-
-**Participant in Jan. 6 Riot Loses Primary Race in South Carolina**\
-`The defeat of Elias Irizarry is the latest in a number of losses that riot participants have suffered at the ballot box in recent months.`\
-https://nytimes.com/2024/06/11/us/capitol-riot-elias-irizarry-south-carolina.html
-
-**Pope Francis Is Accused of Using a Homophobic Slur Again**\
-`Two prominent Italian news agencies said the pontiff used the term on Tuesday during a meeting with priests, after he was accused of uttering the same word last month while speaking with Italian bishops.`\
-https://nytimes.com/2024/06/11/world/europe/pope-francis-homophobic-slur.html
 
