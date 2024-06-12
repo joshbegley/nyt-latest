@@ -1,3 +1,7 @@
+**The World Bank sees a rosier outlook for the global economy.**\
+`By Alan Rappeport`\
+https://nytimes.com/live/2024/06/12/business/fed-rates-inflation-cpi/the-world-bank-sees-a-rosier-outlook-for-the-global-economy
+
 **Hezbollah Launches Rocket Barrage After Commander Is Killed in Israeli Strike**\
 `Around 150 rockets were launched from Lebanon into northern Israel in an apparent response to the strike, Israeli army radio said. There were no immediate reports of casualties.`\
 https://nytimes.com/2024/06/12/world/middleeast/hezbollah-rockets-israel-strike.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/12/crosswords/connections-companion-368.html
 **Wordle Review No. 1,090, June 13, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/06/12/crosswords/wordle-review-1090.html
-
-**European Union Hits E.V.s From China With Tariffs Up to 38%**\
-`Leaders in Brussels are trying to curb China’s dominance in the industry, but European automakers fear the taxes will drive up prices and lead to a trade war.`\
-https://nytimes.com/2024/06/12/business/eu-china-ev-tariffs.html
 

@@ -1,3 +1,7 @@
+**The World Bank sees a rosier outlook for the global economy.**\
+`By Alan Rappeport`\
+https://nytimes.com/live/2024/06/12/business/fed-rates-inflation-cpi/the-world-bank-sees-a-rosier-outlook-for-the-global-economy
+
 **Hezbollah Launches Rocket Barrage After Commander Is Killed in Israeli Strike**\
 `Around 150 rockets were launched from Lebanon into northern Israel in an apparent response to the strike, Israeli army radio said. There were no immediate reports of casualties.`\
 https://nytimes.com/2024/06/12/world/middleeast/hezbollah-rockets-israel-strike.html
