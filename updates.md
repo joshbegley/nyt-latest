@@ -1,3 +1,7 @@
+**Three Men Convicted in Murder of Dutch Journalist**\
+`A Dutch court sentenced the men to prison for more than 25 years on Wednesday in the killing of Peter R. de Vries, whose daylight murder in 2021 rattled Europe.`\
+https://nytimes.com/2024/06/12/world/europe/peter-de-vries-murder-netherlands.html
+
 **Cooling Inflation Revives Biden’s Hope of Rate Cuts**\
 `The chances of at least one pre-election cut appeared to be helped by a new inflation report.`\
 https://nytimes.com/2024/06/12/business/fed-rates-biden.html

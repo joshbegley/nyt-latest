@@ -1,3 +1,7 @@
+**Three Men Convicted in Murder of Dutch Journalist**\
+`A Dutch court sentenced the men to prison for more than 25 years on Wednesday in the killing of Peter R. de Vries, whose daylight murder in 2021 rattled Europe.`\
+https://nytimes.com/2024/06/12/world/europe/peter-de-vries-murder-netherlands.html
+
 **Cooling Inflation Revives Biden’s Hope of Rate Cuts**\
 `The chances of at least one pre-election cut appeared to be helped by a new inflation report.`\
 https://nytimes.com/2024/06/12/business/fed-rates-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/12/us/readers-share-this-years-highlights-so-far.htm
 **Why Did My Wife’s Sister Confess to Taking Her Clothes 50 Years Later?**\
 `Stung by the revelation that her sister frequently took her clothing without permission in their youth, a reader is baffled by the disclosure: Was it expressly to hurt?`\
 https://nytimes.com/2024/06/12/style/childhood-confessions.html
-
-**Rare Battlefield War Crimes Case Reaches Sentencing Phase at Guantánamo Bay**\
-`An Iraqi prisoner admitted to conspiring with Osama bin Laden and Al Qaeda. But his case is an outlier at the Guantánamo court.`\
-https://nytimes.com/2024/06/12/us/politics/war-crimes-sentence-guantanamo.html
 
