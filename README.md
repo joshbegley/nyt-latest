@@ -1,3 +1,7 @@
+**Saudi Arabia’s Next Billion-Dollar Sports Play: A Boxing Takeover**\
+`A proposal awaiting financing would attempt to bring together dozens of the world’s best boxers in a single, Saudi-run pro league.`\
+https://nytimes.com/2024/06/12/world/middleeast/saudi-boxing-league.html
+
 **How Fed Rates Influence Mortgages, Credit Cards and More**\
 `Higher rates benefit those who can save, but for borrowers falling rates would reduce bills on credit cards, home equity loans and other forms of debt.`\
 https://nytimes.com/2024/06/12/business/fed-rates-mortgages-credit-cards-student-loans.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/12/world/europe/election-germany-olaf-scholz.html
 **Why Senate Democrats Are Outperforming Biden in Key States**\
 `Democratic candidates have leads in Wisconsin, Pennsylvania, Nevada, Michigan and Arizona — but strategists aligned with both parties caution that the battle for Senate control is just starting.`\
 https://nytimes.com/2024/06/12/us/politics/senate-democrats-election-biden.html
-
-**Why Is Biden Going to Europe Twice in a Week?**\
-`The White House won’t say, but the politics seem clear: Three down days in Europe “might not look right.”`\
-https://nytimes.com/2024/06/12/us/politics/biden-europe-travel.html
 
