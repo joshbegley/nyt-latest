@@ -1,3 +1,11 @@
+**Man Who Killed Philadelphia Journalist Gets Up to 30 Years in Prison**\
+`Robert Davis, 20, pleaded guilty to third-degree murder in the fatal shooting, which was domestic in nature, according to the authorities.`\
+https://nytimes.com/2024/06/12/us/shooting-journalist-philadelphia-inquirer-sentencing.html
+
+**Devaluing Jewish Lives Won’t Save Palestinian Lives**\
+`The movement to end the carnage in Gaza is undermined by calls for Jewish blood.`\
+https://nytimes.com/live/2024/06/12/opinion/thepoint/devaluing-jewish-lives-wont-save-palestinian-lives
+
 **Françoise Hardy: A Life in Photos**\
 `The French pop star pulled listeners close and always struck the perfect pose.`\
 https://nytimes.com/2024/06/12/arts/music/francoise-hardy-photos.html

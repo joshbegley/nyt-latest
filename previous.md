@@ -1,3 +1,11 @@
+**Man Who Killed Philadelphia Journalist Gets Up to 30 Years in Prison**\
+`Robert Davis, 20, pleaded guilty to third-degree murder in the fatal shooting, which was domestic in nature, according to the authorities.`\
+https://nytimes.com/2024/06/12/us/shooting-journalist-philadelphia-inquirer-sentencing.html
+
+**Devaluing Jewish Lives Won’t Save Palestinian Lives**\
+`The movement to end the carnage in Gaza is undermined by calls for Jewish blood.`\
+https://nytimes.com/live/2024/06/12/opinion/thepoint/devaluing-jewish-lives-wont-save-palestinian-lives
+
 **Françoise Hardy: A Life in Photos**\
 `The French pop star pulled listeners close and always struck the perfect pose.`\
 https://nytimes.com/2024/06/12/arts/music/francoise-hardy-photos.html
@@ -25,16 +33,4 @@ https://nytimes.com/2024/06/12/world/middleeast/israel-hostages-gaza-rescue.html
 **Sony Pictures Acquires Alamo Drafthouse in Lifeline to Cinema Chain**\
 `The deal is the first time in half a century that a traditional Hollywood studio will own a movie theater chain.`\
 https://nytimes.com/2024/06/12/business/alamo-drafthouse-sony-pictures.html
-
-**Federal Reserve Maintains Current Interest Rate**\
-`Jerome H. Powell, the Fed chair, said that officials are waiting for “greater confidence” that inflation is moving sustainably to 2 percent before cutting rates.`\
-https://nytimes.com/video/us/politics/100000009518628/federal-reserve-maintains-interest-rate.html
-
-**A Rare Antelope Dies After Choking on a Plastic Cap at Tennessee Zoo**\
-`Lief, as the antelope was known, was comfortable with humans. A squeezable food pouch, which is among items banned at the zoo to protect the animals, was found in the exhibit.`\
-https://nytimes.com/2024/06/12/us/antelope-chokes-death-tennessee-zoo.html
-
-**The Federal Reserve Has a Good News Problem**\
-`Inflation is yesterday’s problem.`\
-https://nytimes.com/live/2024/06/12/opinion/thepoint/inflation-over-federal-reserve
 
