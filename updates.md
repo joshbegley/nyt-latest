@@ -1,3 +1,7 @@
+**Live Updates: Inflation Cools Slightly Ahead of Fed Meeting**\
+`Consumer prices rose 3.3 percent in the year through May, a deceleration in inflation that Federal Reserve officials will consider as they meet to set interest rates.`\
+https://nytimes.com/live/2024/06/12/business/fed-rates-inflation-cpi
+
 **Why the Paramount Deal Talks Failed**\
 `After months of negotiations, Shari Redstone walked away from a tie-up with SkyDance. Here’s how a plan to reshape the media conglomerate broke apart.`\
 https://nytimes.com/2024/06/12/business/dealbook/paramount-skydance-deal-talks-fail.html

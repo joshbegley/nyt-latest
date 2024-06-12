@@ -14,8 +14,8 @@ https://nytimes.com/2024/06/12/world/middleeast/hezbollah-rockets-israel-strike.
 `By Ben Casselman`\
 https://nytimes.com/live/2024/06/12/business/fed-rates-inflation-cpi/wage-growth-is-a-worry-for-fed-officials-trying-to-rein-in-inflation
 
-**Live Updates: Inflation in Focus as Fed Meets**\
-`New data on prices will be released shortly before Federal Reserve officials announce a decision on interest rates and issue fresh economic forecasts.`\
+**Live Updates: Inflation Cools Slightly Ahead of Fed Meeting**\
+`Consumer prices rose 3.3 percent in the year through May, a deceleration in inflation that Federal Reserve officials will consider as they meet to set interest rates.`\
 https://nytimes.com/live/2024/06/12/business/fed-rates-inflation-cpi
 
 **The Force Shaping Western Politics**\
