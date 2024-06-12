@@ -8,7 +8,7 @@ https://nytimes.com/2024/06/12/nyregion/eric-adams-summer-body.html
 
 **Howard Fineman, Veteran Political Journalist and TV Pundit, Dies at 75**\
 `From his beginnings with a daily newspaper, he moved easily through Newsweek magazine to cable news and, later, to the frontiers of online journalism.`\
-https://nytimes.com/2024/06/12/obituaries/howard-fineman-dies-at-tk.html
+https://nytimes.com/2024/06/12/obituaries/howard-fineman-dead.html
 
 **White House Aide Does Not Say if Biden Would Commute Son’s Sentence**\
 `The White House spokeswoman she had not spoken with the president about the matter yet.`\
