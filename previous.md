@@ -1,10 +1,18 @@
+**Harrison White, Groundbreaking (and Inscrutable) Sociologist, Dies at 94**\
+`A theoretical physicist-turned-sociologist, he upended his field by focusing on social networks to explain how society works. His writing was compared to James Joyce’s.`\
+https://nytimes.com/2024/06/12/books/harrison-white-died.html
+
+**Thursday Briefing: G7 Leaders Prepare to Debate Frozen Russian Assets**\
+`Also, an E.U. blow to China’s electric-vehicle ambitions.`\
+https://nytimes.com/2024/06/12/world/asia/g7-russia-assets-china-ev-asia.html
+
 **The W.H.O. says Gazans are facing ‘catastrophic hunger.’**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/06/12/world/israel-gaza-war-hamas/the-who-says-gazans-are-facing-catastrophic-hunger
 
 **Accounts of Life in Hamas Captivity Emerge in Israel**\
 `The four hostages rescued in Gaza were described as malnourished and traumatized.`\
-https://nytimes.com/2024/06/12/world/middleeast/gaza-hostages-rescue-israel.html
+https://nytimes.com/2024/06/12/world/middleeast/israel-hostages-gaza-rescue.html
 
 **Sony Pictures Acquires Alamo Drafthouse in Lifeline to Cinema Chain**\
 `The deal is the first time in half a century that a traditional Hollywood studio will own a movie theater chain.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/12/arts/music/popcast-deluxe-whats-an-aging-rapper-t
 **As Nonprofit Theaters Struggle, Seattle Rep Cuts 12% of Staff**\
 `The institution, Seattle’s pre-eminent repertory theater, says it is making the cuts so it can focus its resources on productions.`\
 https://nytimes.com/2024/06/12/theater/seattle-rep-cuts.html
-
-**What to know about the Fed’s decision.**\
-`By Jeanna Smialek`\
-https://nytimes.com/live/2024/06/12/business/fed-rates-inflation-cpi/what-to-know-about-the-feds-decision
-
-**As the U.A.W. Scores Wins in Red States, Tensions Emerge Over Gaza Protests**\
-`A tentative new contract at an Ohio battery maker on Monday was big for President Biden’s E.V. transition, but for some, the victory was upstaged by the U.A.W.’s activism on college campuses.`\
-https://nytimes.com/2024/06/12/us/politics/uaw-gaza-biden.html
 

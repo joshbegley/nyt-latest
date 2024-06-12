@@ -1,3 +1,15 @@
+**Harrison White, Groundbreaking (and Inscrutable) Sociologist, Dies at 94**\
+`A theoretical physicist-turned-sociologist, he upended his field by focusing on social networks to explain how society works. His writing was compared to James Joyce’s.`\
+https://nytimes.com/2024/06/12/books/harrison-white-died.html
+
+**Thursday Briefing: G7 Leaders Prepare to Debate Frozen Russian Assets**\
+`Also, an E.U. blow to China’s electric-vehicle ambitions.`\
+https://nytimes.com/2024/06/12/world/asia/g7-russia-assets-china-ev-asia.html
+
+**Accounts of Life in Hamas Captivity Emerge in Israel**\
+`The four hostages rescued in Gaza were described as malnourished and traumatized.`\
+https://nytimes.com/2024/06/12/world/middleeast/israel-hostages-gaza-rescue.html
+
 **The W.H.O. says Gazans are facing ‘catastrophic hunger.’**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/06/12/world/israel-gaza-war-hamas/the-who-says-gazans-are-facing-catastrophic-hunger
