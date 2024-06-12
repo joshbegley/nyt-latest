@@ -1,3 +1,7 @@
+**Muggings, Murders and Mob Justice: Violent Crime Roars Back in Karachi**\
+`A decade after militant and criminal groups were pushed out, Pakistan’s economic powerhouse and most populous city is facing a startling rise in deadly street crime.`\
+https://nytimes.com/2024/06/12/world/asia/karachi-violence-crime.html
+
 **Wednesday Briefing**\
 `Hunter Biden found guilty.`\
 https://nytimes.com/2024/06/12/briefing/hunter-biden-guilty.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/11/world/asia/bts-jin-military-army.html
 **North Dakotans Approve Age Limit for Members of Congress**\
 `A ballot measure left voters to decide whether 81 is too old for some political jobs. It was one state’s answer to an issue that has been a focus of national debate this election cycle.`\
 https://nytimes.com/2024/06/11/us/north-dakota-age-limit-election.html
-
-**Obstacle to Change**\
-`Simeon Seigel stoops to conquer.`\
-https://nytimes.com/2024/06/11/crosswords/daily-puzzle-2024-06-12.html
 
