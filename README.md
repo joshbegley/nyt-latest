@@ -22,7 +22,7 @@ https://nytimes.com/2024/06/12/world/middleeast/israel-hamas-gaza-cease-fire-bli
 `Today’s challenge: Put that sprawling photo library to good use.`\
 https://nytimes.com/2024/06/12/well/live/friendship-nostalgia.html
 
-**Russian Warships Enter Havana Bay as Part of Planned Exercises**\
+**Russian Warships Enter Havana Harbor as Part of Planned Exercises**\
 `Experts called the naval exercises routine but also a show of strength as Washington maintains military support for Ukraine in its war against Russia.`\
 https://nytimes.com/2024/06/12/world/americas/russia-cuba-navy-exercies.html
 
