@@ -1,3 +1,7 @@
+**Saudi Arabia’s Next Billion-Dollar Sports Play: A Boxing Takeover**\
+`A proposal awaiting financing would attempt to bring together dozens of the world’s best boxers in a single, Saudi-run pro league.`\
+https://nytimes.com/2024/06/12/world/middleeast/saudi-boxing-league.html
+
 **How Fed Rates Influence Mortgages, Credit Cards and More**\
 `Higher rates benefit those who can save, but for borrowers falling rates would reduce bills on credit cards, home equity loans and other forms of debt.`\
 https://nytimes.com/2024/06/12/business/fed-rates-mortgages-credit-cards-student-loans.html

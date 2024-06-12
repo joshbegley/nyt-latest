@@ -1,3 +1,7 @@
+**Southern Baptists Reject Ban on Women as Pastors**\
+`The denomination voted against adding language to its constitution saying that “only men” could be affirmed or employed “as any kind of pastor or elder as qualified by Scripture.”`\
+https://nytimes.com/2024/06/12/us/southern-baptist-in-vitro-ivf-women-pastors.html
+
 **Saudi Arabia’s Next Billion-Dollar Sports Play: A Boxing Takeover**\
 `A proposal awaiting financing would attempt to bring together dozens of the world’s best boxers in a single, Saudi-run pro league.`\
 https://nytimes.com/2024/06/12/world/middleeast/saudi-boxing-league.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009517335/blinken-gaza-israel-h
 **In Wake of Election Defeat, Germany’s Weakened Leader Will Slog On**\
 `Chancellor Olaf Scholz and his governing coalition emerged battered from the vote for the European Parliament. But a snap election seems unlikely.`\
 https://nytimes.com/2024/06/12/world/europe/election-germany-olaf-scholz.html
-
-**Why Senate Democrats Are Outperforming Biden in Key States**\
-`Democratic candidates have leads in Wisconsin, Pennsylvania, Nevada, Michigan and Arizona — but strategists aligned with both parties caution that the battle for Senate control is just starting.`\
-https://nytimes.com/2024/06/12/us/politics/senate-democrats-election-biden.html
 
