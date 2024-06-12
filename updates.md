@@ -1,3 +1,7 @@
+**Hunter Biden Is Expected to Appeal Conviction on Gun Charges**\
+`Lawyers for Mr. Biden are considering a number of challenges to the guilty verdict, including one based on the Second Amendment.`\
+https://nytimes.com/2024/06/12/us/politics/hunter-biden-conviction-appeal.html
+
 **Christophe Deloire, Who Strove to Protect Journalists, Dies at 53**\
 `As the leader and spokesman for Reporters Without Borders, he rescued some, sought refuge for others and lobbied for pluralism in the press.`\
 https://nytimes.com/2024/06/12/world/christophe-deloire-dead.html
