@@ -1,3 +1,15 @@
+**Heavy Rain Floods Parts of Southern Florida**\
+`Vehicles waded through several inches of rain as flash flooding deluged cities along Florida’s coasts. Some areas of the state were expected to receive up to a foot or more of rain in the coming days.`\
+https://nytimes.com/video/weather/100000009517720/florida-flash-flooding-rain.html
+
+**Tesla Investors to Decide if Musk Deserves $45 Billion Payday**\
+`The vote is seen as a referendum on the limits of executive pay and the accountability of Silicon Valley billionaires.`\
+https://nytimes.com/2024/06/12/business/tesla-elon-musk-vote.html
+
+**Southern Baptists Reject Tighter Ban on Women in Pastoral Posts**\
+`The denomination voted against adding language to its constitution saying that “only men” could be affirmed or employed “as any kind of pastor or elder as qualified by Scripture.”`\
+https://nytimes.com/2024/06/12/us/southern-baptist-in-vitro-ivf-women-pastors.html
+
 **Saudi Arabia’s Next Billion-Dollar Sports Play: A Boxing Takeover**\
 `A proposal awaiting financing would attempt to bring together dozens of the world’s best boxers in a single, Saudi-run pro league.`\
 https://nytimes.com/2024/06/12/world/middleeast/saudi-boxing-league.html
