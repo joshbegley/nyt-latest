@@ -1,3 +1,7 @@
+**Anti-Zionist Graffiti Splashed on Homes of Brooklyn Museum Officials**\
+`The homes of the officials, who are Jewish, were vandalized with red paint, and a banner at the museum director’s building called her a “white supremacist” Zionist.`\
+https://nytimes.com/2024/06/12/nyregion/anti-zionist-graffiti-jewish-museum-officials.html
+
 **Usher Lives Out a Childhood Dream at the Apollo**\
 `Gov. Kathy Hochul, Babyface, Jordin Sparks and more gathered in Harlem on Tuesday night to celebrate the theater’s 90th anniversary.`\
 https://nytimes.com/2024/06/12/style/apollo-theater-usher-babyface.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/12/us/oklahoma-supreme-court-tulsa-massacre-lawsuit.
 **A freed hostage was subject to psychological warfare during his captivity, his family says.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/06/12/world/israel-gaza-war-hamas/a-freed-hostage-was-subject-to-psychological-warfare-during-his-captivity-his-family-says
-
-**My Son’s Ex-Girlfriend Wants to Keep Her Pregnancy. Is That Unfair to Him?**\
-`The magazine’s Ethicist columnist on whether a co-parent’s wishes should matter to a pregnant woman.`\
-https://nytimes.com/2024/06/12/magazine/pregnancy-abortion-fairness-ethics.html
 

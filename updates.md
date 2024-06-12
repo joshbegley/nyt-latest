@@ -1,3 +1,7 @@
+**Anti-Zionist Graffiti Splashed on Homes of Brooklyn Museum Officials**\
+`The homes of the officials, who are Jewish, were vandalized with red paint, and a banner at the museum director’s building called her a “white supremacist” Zionist.`\
+https://nytimes.com/2024/06/12/nyregion/anti-zionist-graffiti-jewish-museum-officials.html
+
 **White House Aide Does Not Say if Biden Would Commute Son’s Sentence**\
 `The White House spokeswoman said she had not spoken with the president about the matter yet.`\
 https://nytimes.com/2024/06/12/us/politics/biden-commute-prison-sentence-hunter.html
