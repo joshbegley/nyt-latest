@@ -1,3 +1,7 @@
+**Christophe Deloire, Who Strove to Protect Journalists, Dies at 53**\
+`As the leader and spokesman for Reporters Without Borders, he rescued some, sought refuge for others and lobbied for pluralism in the press.`\
+https://nytimes.com/2024/06/12/world/christophe-deloire-dead.html
+
 **Western Governors Give Bipartisanship a Try. At Least for a Few Days.**\
 `The Western Governors’ Association celebrated its 40th anniversary with high hopes and low turnout.`\
 https://nytimes.com/2024/06/12/us/politics/western-governors-association-bipartisanship.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/06/12/world/middleeast/israel-hamas-gaza-cease-fire-bli
 **‘Remember When?’ Revisit Old Photos With a Friend.**\
 `Today’s challenge: Put that sprawling photo library to good use.`\
 https://nytimes.com/2024/06/12/well/live/friendship-nostalgia.html
-
-**Russian Warships Enter Havana Harbor as Part of Planned Exercises**\
-`Experts called the naval exercises routine but also a show of strength as Washington maintains military support for Ukraine in its war against Russia.`\
-https://nytimes.com/2024/06/12/world/americas/russia-cuba-navy-exercies.html
 
