@@ -1,3 +1,7 @@
+**Student Loan Bills Are Dropping Next Month for Many, but There’s a Hiccup**\
+`The Education Department has not finished recalculating payments for millions of borrowers enrolled in SAVE, forcing loan servicers to put many loans into forbearance.`\
+https://nytimes.com/2024/06/12/business/student-loans-save-forbearance.html
+
 **Three Days in Space Was Enough to Change 4 Astronauts’ Bodies and Minds**\
 `An extensive examination of medical data gathered from the private Inspiration4 mission in 2021 revealed temporary cognitive declines,`\
 https://nytimes.com/2024/06/12/science/astronauts-space-health-inspiration4-medical-records.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/12/us/politics/war-crimes-sentence-guantanamo.html
 **The two sides are still far apart after Hamas offers a counterproposal in cease-fire talks.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/06/12/world/israel-gaza-war-hamas/the-two-sides-are-still-far-apart-after-hamas-offers-a-counterproposal-in-cease-fire-talks
-
-**Fire in Kuwait Worker Housing Leaves at Least 35 Dead**\
-`The blaze struck a building that was home to scores of low-paid migrant workers, many of them from India.`\
-https://nytimes.com/2024/06/12/world/middleeast/fire-kuwait-migrant-worker-housing.html
 
