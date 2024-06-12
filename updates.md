@@ -1,3 +1,7 @@
+**When We Fear Silence, We Abandon the Self**\
+`The constant distractions of modern life have become an excuse to avoid the search for meaning.`\
+https://nytimes.com/2024/06/12/special-series/paul-lynch-fear-silence.html
+
 **Three Men Convicted in Murder of Dutch Journalist**\
 `A Dutch court sentenced the men to prison for more than 25 years on Wednesday in the killing of Peter R. de Vries, whose daylight murder in 2021 rattled Europe.`\
 https://nytimes.com/2024/06/12/world/europe/peter-de-vries-murder-netherlands.html
