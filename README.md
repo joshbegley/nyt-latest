@@ -1,3 +1,7 @@
+**Cooling Inflation Revives Biden’s Hope of Rate Cuts**\
+`The chances of at least one pre-election cut appeared to be helped by a new inflation report.`\
+https://nytimes.com/2024/06/12/business/fed-rates-biden.html
+
 **Student Loan Bills Are Dropping Next Month for Many, but There’s a Hiccup**\
 `The Education Department has not finished recalculating payments for millions of borrowers enrolled in SAVE, forcing loan servicers to put many loans into forbearance.`\
 https://nytimes.com/2024/06/12/business/student-loans-save-forbearance.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/12/style/childhood-confessions.html
 **Rare Battlefield War Crimes Case Reaches Sentencing Phase at Guantánamo Bay**\
 `An Iraqi prisoner admitted to conspiring with Osama bin Laden and Al Qaeda. But his case is an outlier at the Guantánamo court.`\
 https://nytimes.com/2024/06/12/us/politics/war-crimes-sentence-guantanamo.html
-
-**The two sides are still far apart after Hamas offers a counterproposal in cease-fire talks.**\
-`By Michael Crowley`\
-https://nytimes.com/live/2024/06/12/world/israel-gaza-war-hamas/the-two-sides-are-still-far-apart-after-hamas-offers-a-counterproposal-in-cease-fire-talks
 
