@@ -1,3 +1,11 @@
+**Review: A Glorious ‘Titanic,’ Returned From the Depths**\
+`Maury Yeston’s score, stupendously played and sung, is the star of the final production of an excellent Encores! season at New York City Center.`\
+https://nytimes.com/2024/06/12/theater/review-titanic-encores-city-center.html
+
+**Did Jerry West Inspire the N.B.A.’s Logo? ‘There Was Never Any Doubt.’**\
+`After decades of the league having avoided the issue, Commissioner Adam Silver said what most people knew all along: It is Jerry West in the league’s iconic logo.`\
+https://nytimes.com/2024/06/12/style/jerry-west-nba-logo.html
+
 **Man Who Killed Philadelphia Journalist Gets Up to 30 Years in Prison**\
 `Robert Davis, 20, pleaded guilty to third-degree murder in the fatal shooting, which was domestic in nature, according to the authorities.`\
 https://nytimes.com/2024/06/12/us/shooting-journalist-philadelphia-inquirer-sentencing.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/06/12/world/asia/g7-russia-assets-china-ev-asia.html
 **The W.H.O. says Gazans are facing ‘catastrophic hunger.’**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/06/12/world/israel-gaza-war-hamas/the-who-says-gazans-are-facing-catastrophic-hunger
-
-**Accounts of Life in Hamas Captivity Emerge in Israel**\
-`The four hostages rescued in Gaza were described as malnourished and traumatized.`\
-https://nytimes.com/2024/06/12/world/middleeast/israel-hostages-gaza-rescue.html
-
-**Sony Pictures Acquires Alamo Drafthouse in Lifeline to Cinema Chain**\
-`The deal is the first time in half a century that a traditional Hollywood studio will own a movie theater chain.`\
-https://nytimes.com/2024/06/12/business/alamo-drafthouse-sony-pictures.html
 
