@@ -1,3 +1,11 @@
+**Corrections: June 12, 2024**\
+`Corrections that appeared in print on Wednesday, June 12, 2024.`\
+https://nytimes.com/2024/06/11/pageoneplus/corrections-june-12-2024.html
+
+**Quotation of the Day: Dire Economy Brings Nigeria Vast Hardship**\
+`Quotation of the Day for Wednesday, June 12, 2024.`\
+https://nytimes.com/2024/06/11/pageoneplus/quotation-of-the-day-dire-economy-brings-nigeria-vast-hardship.html
+
 **Sam Brown Wins Nevada G.O.P. Senate Race, and Will Face Rosen in November**\
 `After losing in a Senate primary in 2022, Mr. Brown, an Army veteran, was the pick of establishment Republicans from the start of the 2024 race.`\
 https://nytimes.com/2024/06/11/us/politics/sam-brown-nevada-jacky-rosen.html
