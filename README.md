@@ -1,3 +1,7 @@
+**Three Days in Space Was Enough to Change 4 Astronauts’ Bodies and Minds**\
+`An extensive examination of medical data gathered from the private Inspiration4 mission in 2021 revealed temporary cognitive declines,`\
+https://nytimes.com/2024/06/12/science/astronauts-space-health-inspiration4-medical-records.html
+
 **Denmark’s Prime Minister Says She’s ‘Not Quite Myself’ After Assault**\
 `Mette Frederiksen said she was working but still recovering, days after being punched in a busy square in Copenhagen.`\
 https://nytimes.com/2024/06/12/world/europe/denmark-prime-minister-attack-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/12/world/israel-gaza-war-hamas/the-two-sides-ar
 **Fire in Kuwait Worker Housing Leaves at Least 35 Dead**\
 `The blaze struck a building that was home to scores of low-paid migrant workers, many of them from India.`\
 https://nytimes.com/2024/06/12/world/middleeast/fire-kuwait-migrant-worker-housing.html
-
-**Food inflation eased again in May.**\
-`By Madeleine Ngo`\
-https://nytimes.com/live/2024/06/12/business/fed-rates-inflation-cpi/food-inflation-eased-again-in-may
 
