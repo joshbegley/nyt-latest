@@ -1,3 +1,7 @@
+**A.C.L.U. Sues to Stop Biden’s Asylum Ban on the U.S.-Mexico Border**\
+`The action is the first legal challenge to an order that President Biden hopes will decrease the number of illegal crossings and neutralize a major political vulnerability.`\
+https://nytimes.com/2024/06/12/us/politics/aclu-lawsuit-biden-border-asylum.html
+
 **Harrison White, Groundbreaking (and Inscrutable) Sociologist, Dies at 94**\
 `A theoretical physicist-turned-sociologist, he upended his field by focusing on social networks to explain how society works. His writing was compared to James Joyce’s.`\
 https://nytimes.com/2024/06/12/books/harrison-white-died.html
