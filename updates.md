@@ -1,3 +1,7 @@
+**Abortion Ruling Has Nothing to Do With the Pills’ Safety or Morality**\
+`The opinion in the case focused entirely on standing, the legal doctrine that requires plaintiffs to show that they have suffered direct and concrete injuries in order to sue.`\
+https://nytimes.com/2024/06/13/us/politics/abortion-pill-standing.html
+
 **The Magnet Fisherman’s Dilemma: What to Do With $70,000 Before It Disintegrates**\
 `James Kane pulled a safe filled with stacks of hundred dollar bills from a creek in Queens. That, it turns out, was the easy part.`\
 https://nytimes.com/2024/06/13/nyregion/couple-magnet-fishing-safe-nyc.html
