@@ -1,5 +1,9 @@
 **What to Know About the G7 Summit, and Why It Matters**\
 `The leaders of the Group of 7 nations tend to have a shared overall outlook, and their countries account for about half of the world economy.`\
+https://nytimes.com/2024/06/13/world/europe/g7-summit-what.html
+
+**What to Know About the G7 Summit, and Why It Matters**\
+`The leaders of the Group of 7 nations tend to have a shared overall outlook, and their countries account for about half of the world economy.`\
 https://nytimes.com/2024/06/13/world/g7-summit-what.html
 
 **A Relaxer Reckoning**\
