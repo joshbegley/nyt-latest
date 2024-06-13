@@ -1,3 +1,7 @@
+**NATO defense chiefs pledge more aid for Ukraine, and carve out an exception for Hungary.**\
+`By Lara Jakes`\
+https://nytimes.com/live/2024/06/13/world/g7-summit-italy/nato-defense-chiefs-pledge-more-aid-for-ukraine-and-carve-out-an-exception-for-hungary
+
 **36 Hours in Ljubljana, Slovenia**\
 `Stroll along the river, explore a contemporary art scene and admire panoramic views in this scenic Central European capital.`\
 https://nytimes.com/interactive/2024/06/13/travel/things-to-do-ljubljana.html

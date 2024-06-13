@@ -1,3 +1,7 @@
+**NATO defense chiefs pledge more aid for Ukraine, and carve out an exception for Hungary.**\
+`By Lara Jakes`\
+https://nytimes.com/live/2024/06/13/world/g7-summit-italy/nato-defense-chiefs-pledge-more-aid-for-ukraine-and-carve-out-an-exception-for-hungary
+
 **36 Hours in Ljubljana, Slovenia**\
 `Stroll along the river, explore a contemporary art scene and admire panoramic views in this scenic Central European capital.`\
 https://nytimes.com/interactive/2024/06/13/travel/things-to-do-ljubljana.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/podcasts/the-writer-behind-the-most-nominated-pla
 **How ‘Bridgerton’ Makes History**\
 `Described by its showrunner as “definitely a fantasy,” the hit series relies on a team of historical consultants. Does the show take their advice? Mostly.`\
 https://nytimes.com/2024/06/13/arts/television/bridgerton-history-consultants.html
-
-**HBO Could Use a Hit. Enter the Dragons.**\
-`The network has hit an unusually fallow period. Executives hope “House of the Dragon,” which returns Sunday, could be the start of a new winning streak.`\
-https://nytimes.com/2024/06/13/business/media/hbo-house-of-dragon.html
 
