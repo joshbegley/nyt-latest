@@ -1,3 +1,11 @@
+**Japan commits $4.5 billion for Ukraine, Zelensky says.**\
+`By Tim Balk`\
+https://nytimes.com/live/2024/06/13/world/g7-summit-italy/japan-ukraine-security-zelensky
+
+**Supreme Court Rejects Bid to Trademark ‘Trump Too Small’**\
+`The decision was unanimous but fractured in rationale, with several justices objecting to the majority’s use of a history-based test.`\
+https://nytimes.com/2024/06/13/us/politics/supreme-court-trump-trademark.html
+
 **Sandy Hook Victims Are Remembered on Day They Would Have Graduated**\
 `More than 11 years after one of the worst school shootings in U.S. history, on what would have been the victims’ high school graduation day, the residents of Newtown, Conn., paused to reflect.`\
 https://nytimes.com/2024/06/13/nyregion/sandy-hook-survivors-graduation-newtown.html
