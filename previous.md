@@ -1,3 +1,7 @@
+**Snap Election in France Sets Off a Wild Week of Politics**\
+`President Emmanuel Macron’s sudden call for new parliamentary elections has created chaos on the right and fostered rare unity on the left.`\
+https://nytimes.com/2024/06/13/world/europe/snap-election-in-france-sets-off-a-wild-week-of-politics.html
+
 **U.S. strikes targets in Yemen as Houthis step up attacks on shipping.**\
 `By Anjana Sankar`\
 https://nytimes.com/live/2024/06/13/world/israel-gaza-war-hamas/us-strikes-targets-in-yemen-as-houthis-step-up-attacks-on-shipping
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/us/politics/trump-trial-defense-tactics-evidence.
 **He Was ‘Mr. X’ Before a True Crime Podcast Stirred Investigators**\
 `In exploring a possible wrongful conviction, the podcast “Murder, etc.” mentioned an unsolved murder in Greenville County, S.C. It accidentally piqued a sheriff’s interest in a 50-year-old case.`\
 https://nytimes.com/2024/06/13/us/south-carolina-cold-case-mr-x-podcast.html
-
-**The Woman Who Created the Modern Cookbook**\
-`From her work with Julia Child, Madhur Jaffrey and Edna Lewis, Judith Jones revolutionized American cookbook publishing.`\
-https://nytimes.com/2024/06/13/dining/julia-child-madhur-jaffrey-edna-lewis-cookbook-author.html
 

@@ -1,3 +1,7 @@
+**Snap Election in France Sets Off a Wild Week of Politics**\
+`President Emmanuel Macron’s sudden call for new parliamentary elections has created chaos on the right and fostered rare unity on the left.`\
+https://nytimes.com/2024/06/13/world/europe/snap-election-in-france-sets-off-a-wild-week-of-politics.html
+
 **U.S. strikes targets in Yemen as Houthis step up attacks on shipping.**\
 `By Anjana Sankar`\
 https://nytimes.com/live/2024/06/13/world/israel-gaza-war-hamas/us-strikes-targets-in-yemen-as-houthis-step-up-attacks-on-shipping
