@@ -1,3 +1,15 @@
+**What Happens When a Defendant Gets Covid-19 During Trial?**\
+`Fred Daibes, a real estate developer charged with Senator Robert Menendez, began feeling sick during the fifth week of the corruption trial, delaying it for at least a few days.`\
+https://nytimes.com/2024/06/13/nyregion/covid-robert-menendez-trial-delay.html
+
+**Museum Calls Off Kehinde Wiley Show, Citing Assault Allegations**\
+`The Minneapolis Institute of Art said it would not move forward with a show after the artist was accused of sexual misconduct, which he has denied.`\
+https://nytimes.com/2024/06/13/arts/design/museums-kehinde-wiley-minneapolis-allegations.html
+
+**Will Biden’s Help for Ukraine Come Fast Enough and Last Long Enough?**\
+`The president signed a 10-year security pact with Ukraine and promised, with E.U. help, a $50 billion loan. But will the money arrive in time to turn the tide, and will the deal outlast the election in November?`\
+https://nytimes.com/2024/06/13/world/europe/g7-biden-ukraine-agreements.html
+
 **Heavy Bombardment of Gaza as Israel and Hezbollah Trade Strikes**\
 `Israel was reported to have intensified missile and artillery strikes in southern Gaza while also hitting Hezbollah military targets in Lebanon.`\
 https://nytimes.com/live/2024/06/13/world/israel-gaza-war-hamas/israel-southern-gaza-hezbollah
