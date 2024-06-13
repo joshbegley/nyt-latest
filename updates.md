@@ -1,3 +1,23 @@
+**‘I Know What It’s Like to Struggle,’ Biden Says in New Ad on Inflation**\
+`Inflation has cooled but many voters give significantly higher marks to President Biden’s opponent, Donald J. Trump, on the economy.`\
+https://nytimes.com/2024/06/13/us/politics/biden-ad-inflation-trump.html
+
+**Here’s the latest on the decision.**\
+`By Abbie VanSickle`\
+https://nytimes.com/live/2024/06/13/us/abortion-pill-supreme-court/heres-the-latest-on-the-decision
+
+**What is mifepristone and how is it used?**\
+`More than half of people who get legal abortions in the United States — and three-quarters in Europe — use medication abortion.`\
+https://nytimes.com/live/2024/06/13/us/abortion-pill-supreme-court/what-is-mifepristone-and-how-is-it-used
+
+**How common is medication abortion?**\
+`It’s now the most used abortion method.`\
+https://nytimes.com/live/2024/06/13/us/abortion-pill-supreme-court/how-common-is-medication-abortion
+
+**Live Updates: Supreme Court Upholds Broad Access to Abortion Pill**\
+`The justices unanimously rejected a bid to sharply curtail access to a widely available abortion pill, finding that the plaintiffs did not have standing to sue.`\
+https://nytimes.com/live/2024/06/13/us/abortion-pill-supreme-court
+
 **Plumbing the Depths of Darkness, and Finding Liberation**\
 `As a creator of horror films, I often face my fears by sharing them onscreen.`\
 https://nytimes.com/2024/06/13/special-series/robert-eggers-the-witch-fear.html
