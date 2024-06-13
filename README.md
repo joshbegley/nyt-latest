@@ -2,9 +2,9 @@
 `The singer-songwriter, actress and fashion muse, who died this week, inspired obsession in her nonchalance.`\
 https://nytimes.com/2024/06/13/style/francoise-hardy-the-ultimate-symbol-of-french-girl-style.html
 
-**Japan commits $4.5 billion for Ukraine, Zelensky says.**\
-`By Tim Balk`\
-https://nytimes.com/live/2024/06/13/world/g7-summit-italy/japan-ukraine-security-zelensky
+**Japan Commits $4.5 Billion for Ukraine, Zelensky Says**\
+`The agreement underscores Japan’s efforts to strengthen its security and diplomatic ties with Europe after the full-scale conflict began in 2022.`\
+https://nytimes.com/2024/06/13/world/europe/japan-ukraine-security-zelensky.html
 
 **Supreme Court Rejects Bid to Trademark ‘Trump Too Small’**\
 `The decision was unanimous but fractured in rationale, with several justices objecting to the majority’s use of a history-based test.`\
