@@ -1,3 +1,7 @@
+**New Party in South Africa to Boycott Opening of Parliament**\
+`UMkhonto weSizwe, which is led by Jacob Zuma, the populist former president, has asserted that the recent election was rigged and the results illegitimate.`\
+https://nytimes.com/2024/06/13/world/africa/south-africa-parliament-boycott-zuma.html
+
 **A Brief History of the Phrase ‘No One Is Above the Law’**\
 `With the recent convictions of a former president and a president’s son, a saying is getting a moment in the spotlight, as it has many times before.`\
 https://nytimes.com/2024/06/13/us/politics/trump-biden-no-one-is-above-the-law.html

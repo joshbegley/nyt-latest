@@ -1,3 +1,7 @@
+**New Party in South Africa to Boycott Opening of Parliament**\
+`UMkhonto weSizwe, which is led by Jacob Zuma, the populist former president, has asserted that the recent election was rigged and the results illegitimate.`\
+https://nytimes.com/2024/06/13/world/africa/south-africa-parliament-boycott-zuma.html
+
 **A Brief History of the Phrase ‘No One Is Above the Law’**\
 `With the recent convictions of a former president and a president’s son, a saying is getting a moment in the spotlight, as it has many times before.`\
 https://nytimes.com/2024/06/13/us/politics/trump-biden-no-one-is-above-the-law.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/movies/ultraman-rising-review-bringing-up-beastie
 **‘Treasure’ Review: Unearthing the Past**\
 `Lena Dunham and Stephen Fry star in a Holocaust-memory drama that uneasily doubles as a father-daughter road movie.`\
 https://nytimes.com/2024/06/13/movies/treasure-review.html
-
-**‘Summer Solstice’ Review: Through Thick and Thin**\
-`A triumph of sensitivity, Noah Schamus’s debut feature tracks a rural reunion between old friends struggling to recover their bond.`\
-https://nytimes.com/2024/06/13/movies/summer-solstice-review.html
 
