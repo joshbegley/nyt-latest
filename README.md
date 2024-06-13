@@ -1,3 +1,7 @@
+**Read the Court’s Decision to Uphold Access to Abortion Pill**\
+`The Supreme Court upheld access to a widely available abortion pill, rejecting a bid from a group of anti-abortion organizations and doctors to unravel the Food and Drug Administration’s approval of the pill.`\
+https://nytimes.com/interactive/2024/06/13/us/scotus-pill.html
+
 **‘I Know What It’s Like to Struggle,’ Biden Says in New Ad on Inflation**\
 `Inflation has cooled but many voters give significantly higher marks to President Biden’s opponent, Donald J. Trump, on the economy.`\
 https://nytimes.com/2024/06/13/us/politics/biden-ad-inflation-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/us/politics/trump-jb-pritzker-felony.html
 **Russian Prosecutors Finalize Indictment of Evan Gershkovich**\
 `The Wall Street Journal reporter will be tried on a spying charge in Yekaterinburg, the city where he was arrested more than a year ago.`\
 https://nytimes.com/2024/06/13/world/europe/evan-gershkovich-russia-indictment.html
-
-**New Party in South Africa to Boycott Opening of Parliament**\
-`UMkhonto weSizwe, which is led by Jacob Zuma, the populist former president, has asserted that the recent election was rigged and the results illegitimate.`\
-https://nytimes.com/2024/06/13/world/africa/south-africa-parliament-boycott-zuma.html
 
