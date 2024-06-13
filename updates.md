@@ -1,3 +1,7 @@
+**Snap Election in France Sets Off a Wild Week of Politics**\
+`President Emmanuel Macron’s sudden call for new parliamentary elections has created chaos on the right and fostered rare unity on the left.`\
+https://nytimes.com/2024/06/13/world/europe/france-snap-election-macron.html
+
 **The Abortion Pill Stays Legal. But for How Long?**\
 `A ruling on technical grounds means a widely used drug will soon come under attack again.`\
 https://nytimes.com/2024/06/13/opinion/abortion-pill-mifepristone-scotus.html
