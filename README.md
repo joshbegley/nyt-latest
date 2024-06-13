@@ -1,3 +1,11 @@
+**Heavy Bombardment of Gaza as Israel and Hezbollah Trade Strikes**\
+`Israel was reported to have intensified missile and artillery strikes in southern Gaza while also hitting Hezbollah military targets in Lebanon.`\
+https://nytimes.com/live/2024/06/13/world/israel-gaza-war-hamas/israel-southern-gaza-hezbollah
+
+**What Happens to Gifted Children**\
+`Intelligence strongly correlates with positive educational and career outcomes, but it is not everything.`\
+https://nytimes.com/2024/06/13/opinion/gifted-children-intelligence.html
+
 **Patrick Gottsch, Champion of Rural TV Programming, Dies at 70**\
 `After a career as a satellite dish installer, he found success with RFD-TV, a 24-hour cable channel aimed at farmers and ranchers.`\
 https://nytimes.com/2024/06/13/business/media/patrick-gottsch-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/13/well/live/friendship-vulnerability-questions.html
 **Number of People Living on New York City Streets Hits a Two-Decade High**\
 `An annual count by the city found more than 4,100 people sleeping on streets and in subways. It was the most since the city began keeping track nearly two decades ago.`\
 https://nytimes.com/2024/06/13/nyregion/homelessness-streets-subways-nyc.html
-
-**The Supreme Court Upheld Broad Abortion Pill Access**\
-`Also, G7 leaders agreed to lend Ukraine $50 billion. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2024/06/13/briefing/supreme-court-abortion-pill-ukraine-loan.html
-
-**Audiences Are Returning to the Met Opera, but Not for Everything**\
-`The Met is approaching prepandemic levels of attendance. But its strategy of staging more modern operas to lure new audiences is having mixed success.`\
-https://nytimes.com/2024/06/13/arts/music/met-opera-attendance.html
 
