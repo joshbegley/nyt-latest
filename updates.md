@@ -1,3 +1,11 @@
+**Heavy Bombardment of Gaza as Israel and Hezbollah Trade Strikes**\
+`Israel was reported to have intensified missile and artillery strikes in southern Gaza while also hitting Hezbollah military targets in Lebanon.`\
+https://nytimes.com/live/2024/06/13/world/israel-gaza-war-hamas/israel-southern-gaza-hezbollah
+
+**What Happens to Gifted Children**\
+`Intelligence strongly correlates with positive educational and career outcomes, but it is not everything.`\
+https://nytimes.com/2024/06/13/opinion/gifted-children-intelligence.html
+
 **Patrick Gottsch, Champion of Rural TV Programming, Dies at 70**\
 `After a career as a satellite dish installer, he found success with RFD-TV, a 24-hour cable channel aimed at farmers and ranchers.`\
 https://nytimes.com/2024/06/13/business/media/patrick-gottsch-dead.html
