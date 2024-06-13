@@ -1,3 +1,7 @@
+**Why Investors Don’t Believe the Fed**\
+`Markets appear to be dismissing the central bank’s more pessimistic take on inflation, as the S&P 500 nears a new high.`\
+https://nytimes.com/2024/06/13/business/dealbook/markets-record-fed-inflation.html
+
 **What to Know About the G7 Summit, and Why It Matters**\
 `The leaders of the Group of 7 nations tend to have a shared overall outlook, and their countries account for about half of the world economy.`\
 https://nytimes.com/2024/06/13/world/europe/g7-summit-what.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/crosswords/wordle-review-no-1091-june-14-2024.htm
 **‘Oddly Satisfying’ Cow Pedicure Videos Are a Hit on TikTok**\
 `In one corner of the internet, professional trimmers grind and buff away at cow hooves to the delight of millions of spellbound social media users.`\
 https://nytimes.com/2024/06/13/style/nate-hoof-guy-tiktok.html
-
-**NATO defense chiefs pledge more aid for Ukraine, and carve out an exception for Hungary.**\
-`By Lara Jakes`\
-https://nytimes.com/live/2024/06/13/world/g7-summit-italy/nato-defense-chiefs-pledge-more-aid-for-ukraine-and-carve-out-an-exception-for-hungary
 
