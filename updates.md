@@ -1,3 +1,15 @@
+**Mars Got Cooked During a Recent Solar Storm**\
+`Days after light shows filled Earth’s skies with wonder, the red planet was hit by another powerful outburst of the sun.`\
+https://nytimes.com/2024/06/13/science/mars-aurora-solar-storm.html
+
+**Is the Fight Against Big Oil Headed to the Supreme Court?**\
+`The Supreme Court may soon decide the fate of dozens of cases brought by cities and states that seek to hold fossil fuel companies accountable.`\
+https://nytimes.com/2024/06/13/climate/supreme-court-hawaii-climate-oil-companies.html
+
+**Palestinian residents and media report heavy bombardments in the Rafah area.**\
+`By Hiba Yazbek and Abu Bakr Bashir`\
+https://nytimes.com/2024/06/13/world/middleeast/israel-rafah-airstrikes.html
+
 **Missing a Global Climate Target Could Spell Disaster for These Polar Bears**\
 `One group in Hudson Bay might have roughly decade left because sea ice is becoming too thin to support them as they hunt, according to new research.`\
 https://nytimes.com/2024/06/13/climate/polar-bear-population-climate-change.html
