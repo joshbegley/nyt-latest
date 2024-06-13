@@ -1,36 +1,40 @@
+**Thursday Briefing**\
+`The Group of 7 summit considers funding for Ukraine.`\
+https://nytimes.com/2024/06/13/briefing/g7-ukraine-ev-tariffs.html
+
+**In China’s Backyard, America Has Become a Humbler Superpower**\
+`The United States no longer towers over the Asia-Pacific, dictating terms to its allies. Instead, it’s offering to be a teammate and share responsibilities.`\
+https://nytimes.com/2024/06/13/world/australia/us-changing-role-asia-pacific.html
+
+**Wounded Leaders of the West Gather in Italy to Discuss an Unruly World**\
+`The Group of 7 gathers major industrialized countries, but its leaders are politically weak and Ukraine and Gaza remain unsolved.`\
+https://nytimes.com/2024/06/13/world/europe/wounded-leaders-of-the-west-gather-in-italy-to-discuss-an-unruly-world.html
+
+**How Safe Are Driverless Cars in China? I Rode in Some to See.**\
+`Computer-aided driving has official support and public acceptance, but state media seldom reports crashes or safety incidents, and online posts are censored.`\
+https://nytimes.com/2024/06/13/business/china-driverless-car-safety.html
+
+**Tesla’s Nordic Shareholders Seek to Promote Workers’ Rights in Vote**\
+`Tesla mechanics in Sweden have been striking for six months with little movement from their employer. Nordic shareholders hope to change that.`\
+https://nytimes.com/2024/06/13/business/elon-musk-tesla-vote-sweden-norway.html
+
+**What It’s Like to Ride a Robot Taxi in China**\
+`Wuhan, China, hosts the world’s largest driverless car experiment with hundreds of robot taxis that transport passengers through busy streets and highways.`\
+https://nytimes.com/video/business/100000009494790/china-robot-taxi-driverless.html
+
+**Tesla Share Price Is Its Own Referendum on Musk**\
+`A huge run-up in the stock’s value followed a 2018 vote on Elon Musk’s compensation package. But investors have recently become less enamored.`\
+https://nytimes.com/2024/06/13/business/tesla-stock-elon-musk.html
+
+**Montana Has More Cows Than People. Why Are Locals Eating Beef From Brazil?**\
+`Cole Mannix, of Old Salt Co-op, is trying to change local appetites and upend an industry controlled by multibillion-dollar meatpackers.`\
+https://nytimes.com/2024/06/13/business/montana-meat-old-salt-co-op.html
+
+**China Is Testing More Driverless Cars Than Any Other Country**\
+`Assisted driving systems and robot taxis are becoming more popular with government help, as cities designate large areas for testing on public roads.`\
+https://nytimes.com/2024/06/13/business/china-driverless-cars.html
+
 **Quotation of the Day: For Even the Best Sherpas, There Is No Escaping the Danger**\
 `Quotation of the Day for Thursday, June 13, 2024.`\
 https://nytimes.com/2024/06/12/pageoneplus/quotation-of-the-day-for-even-the-best-sherpas-there-is-no-escaping-the-danger.html
-
-**Corrections: June 13, 2024**\
-`Corrections that appeared in print on Thursday, June 13, 2024.`\
-https://nytimes.com/2024/06/12/pageoneplus/corrections-june-13-2024.html
-
-**Light Craft Material**\
-`Kevin Curry offers a different read on things.`\
-https://nytimes.com/2024/06/12/crosswords/daily-puzzle-2024-06-13.html
-
-**Disney and DeSantis Reach Agreement, Ending Protracted Fight**\
-`The deal locks in a 15-year expansion plan for Disney World and clears a path for Disney to restart in-kind political donations in Florida.`\
-https://nytimes.com/2024/06/12/business/disney-desantis-agreement.html
-
-**Hunter Biden Is Expected to Appeal Conviction on Gun Charges**\
-`Lawyers for Mr. Biden are considering a number of challenges to the guilty verdict, including one based on the Second Amendment.`\
-https://nytimes.com/2024/06/12/us/politics/hunter-biden-conviction-appeal.html
-
-**Christophe Deloire, Who Strove to Protect Journalists, Dies at 53**\
-`As the leader and spokesman for Reporters Without Borders, he rescued some, sought refuge for others and lobbied for pluralism in the press.`\
-https://nytimes.com/2024/06/12/world/christophe-deloire-dead.html
-
-**Western Governors Give Bipartisanship a Try. At Least for a Few Days.**\
-`The Western Governors’ Association celebrated its 40th anniversary with high hopes and low turnout.`\
-https://nytimes.com/2024/06/12/us/politics/western-governors-association-bipartisanship.html
-
-**Houthis Attack Merchant Ship in Red Sea Off Yemen’s Coast**\
-`The Iran-backed militia has launched dozens of attacks on shipping vessels in the vital sea route in support of Palestinians in Gaza.`\
-https://nytimes.com/2024/06/12/world/middleeast/yemen-houthis-red-sea-ship.html
-
-**Senate Republicans Block Supreme Court Ethics Measure Pushed by Democrats**\
-`Democrats made what they knew was a doomed attempt as they faced pressure from the left to do more to try to hold the court accountable.`\
-https://nytimes.com/2024/06/12/us/politics/supreme-court-ethics-bill-blocked.html
 
