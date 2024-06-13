@@ -1,3 +1,7 @@
+**Anti-Abortion Activists Press Ahead After Supreme Court Ruling**\
+`The activists were disappointed but planned to adapt strategies after the Supreme Court upheld access to a widely available abortion pill.`\
+https://nytimes.com/2024/06/13/us/politics/anti-abortion-activists-supreme-court.html
+
 **Easy, Superb Summer Cooking**\
 `Zucchini salad with bread crumbs! Cold sesame noodles with corn and basil! Tomato! Cheddar! Toasts!`\
 https://nytimes.com/2024/06/13/dining/easy-superb-summer-cooking.html
