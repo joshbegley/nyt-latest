@@ -1,3 +1,11 @@
+**Abortion Rights Groups Celebrate Win but See Risks Ahead**\
+`Supporters of abortion rights hailed the ruling on a challenge they said was fueled by junk science, but warned that it only maintained the status quo as more challenges loomed.`\
+https://nytimes.com/2024/06/13/us/politics/abortion-rights-groups-supreme-court-ruling.html
+
+**Pay $1 to Hear Wu-Tang Clan’s Secret Album (Eventually)**\
+`An online art collective that spent $4 million on “Once Upon a Time in Shaolin” is telling fans their purchases will accelerate the one-of-a-kind album’s 2103 release date.`\
+https://nytimes.com/2024/06/13/arts/music/wu-tang-clan-once-upon-a-time-in-shaolin.html
+
 **Françoise Hardy, the Ultimate Symbol of ‘French Girl’ Style**\
 `The singer-songwriter, actress and fashion muse, who died this week, inspired obsession in her nonchalance.`\
 https://nytimes.com/2024/06/13/style/francoise-hardy-french-fashion.html

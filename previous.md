@@ -1,3 +1,11 @@
+**Abortion Rights Groups Celebrate Win but See Risks Ahead**\
+`Supporters of abortion rights hailed the ruling on a challenge they said was fueled by junk science, but warned that it only maintained the status quo as more challenges loomed.`\
+https://nytimes.com/2024/06/13/us/politics/abortion-rights-groups-supreme-court-ruling.html
+
+**Pay $1 to Hear Wu-Tang Clan’s Secret Album (Eventually)**\
+`An online art collective that spent $4 million on “Once Upon a Time in Shaolin” is telling fans their purchases will accelerate the one-of-a-kind album’s 2103 release date.`\
+https://nytimes.com/2024/06/13/arts/music/wu-tang-clan-once-upon-a-time-in-shaolin.html
+
 **Françoise Hardy, the Ultimate Symbol of ‘French Girl’ Style**\
 `The singer-songwriter, actress and fashion muse, who died this week, inspired obsession in her nonchalance.`\
 https://nytimes.com/2024/06/13/style/francoise-hardy-french-fashion.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/13/opinion/southern-baptist-ivf.html
 **Anti-Abortion Activists Press Ahead After Supreme Court Ruling**\
 `The activists were disappointed but planned to adapt strategies after the Supreme Court upheld access to a widely available abortion pill.`\
 https://nytimes.com/2024/06/13/us/politics/anti-abortion-activists-supreme-court.html
-
-**Easy, Superb Summer Cooking**\
-`Zucchini salad with bread crumbs! Cold sesame noodles with corn and basil! Tomato! Cheddar! Toasts!`\
-https://nytimes.com/2024/06/13/dining/easy-superb-summer-cooking.html
-
-**Debating Covid’s Origins: A Lab or a Market?**\
-`Responses to a guest essay asserting that the pandemic likely began with a lab leak. Also: President Biden’s image problems; “junk fees” in restaurants.`\
-https://nytimes.com/2024/06/13/opinion/covid-origins-lab-market.html
 
