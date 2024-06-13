@@ -1,3 +1,11 @@
+**At Le Mans, Automakers Have Expanded the Top Class**\
+`With the addition of Alpine, BMW, Isotta Fraschini and Lamborghini, nine manufacturers are racing this year.`\
+https://nytimes.com/2024/06/13/sports/autoracing/24-hours-le-mans-manufacturers.html
+
+**Abortion Pill Ruling May Help Republicans Minimize a Political Disadvantage**\
+`A ruling limiting access to a widely available abortion pill would have given Democrats another way to hammer their opponents on an issue that’s become politically damaging for Republican politicians.`\
+https://nytimes.com/2024/06/13/us/politics/republicans-abortion-pill.html
+
 **In 1924, Bentley Began Its Dominance at Le Mans**\
 `The team won so often in the early years that its drivers were called the Bentley Boys.`\
 https://nytimes.com/2024/06/13/sports/autoracing/24-hours-le-mans-bentley.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/06/13/world/israel-gaza-war-hamas/hezbollah-israel
 **Kendall Toole, a Popular Peloton Instructor, Announces Her Departure**\
 `Ms. Toole shared the news in an Instagram reel on Thursday morning, adding that she was grateful for her time at Peloton, the connected-fitness company.`\
 https://nytimes.com/2024/06/13/business/peloton-kendall-toole-leaving.html
-
-**How Will History Remember Jill Biden?**\
-`The last half-dozen or so presidential wives have run the gamut.`\
-https://nytimes.com/live/2024/06/12/opinion/thepoint/jill-biden-first-lady
-
-**At a meeting of a Ukraine defense alliance, Austin pledges to keep sending military aid.**\
-`By John Ismay`\
-https://nytimes.com/live/2024/06/13/world/g7-summit-italy/at-a-meeting-of-a-ukraine-defense-alliance-austin-pledges-to-keep-sending-military-aid
 
