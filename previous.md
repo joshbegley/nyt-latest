@@ -1,3 +1,7 @@
+**Françoise Hardy, the Ultimate Symbol of ‘French Girl’ Style**\
+`The singer-songwriter, actress and fashion muse, who died this week, inspired obsession in her nonchalance.`\
+https://nytimes.com/2024/06/13/style/francoise-hardy-the-ultimate-symbol-of-french-girl-style.html
+
 **Japan commits $4.5 billion for Ukraine, Zelensky says.**\
 `By Tim Balk`\
 https://nytimes.com/live/2024/06/13/world/g7-summit-italy/japan-ukraine-security-zelensky
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/dining/easy-superb-summer-cooking.html
 **Debating Covid’s Origins: A Lab or a Market?**\
 `Responses to a guest essay asserting that the pandemic likely began with a lab leak. Also: President Biden’s image problems; “junk fees” in restaurants.`\
 https://nytimes.com/2024/06/13/opinion/covid-origins-lab-market.html
-
-**Former Bank Bailout Watchdog Is Choice to Lead F.D.I.C.**\
-`Christy Goldsmith Romero has been nominated to be the next chair of the bank regulator that has been shaken by a “toxic” workplace culture.`\
-https://nytimes.com/2024/06/13/business/fdic-choice-christy-goldsmith-romero.html
 

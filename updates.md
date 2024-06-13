@@ -1,3 +1,7 @@
+**Françoise Hardy, the Ultimate Symbol of ‘French Girl’ Style**\
+`The singer-songwriter, actress and fashion muse, who died this week, inspired obsession in her nonchalance.`\
+https://nytimes.com/2024/06/13/style/francoise-hardy-the-ultimate-symbol-of-french-girl-style.html
+
 **Japan commits $4.5 billion for Ukraine, Zelensky says.**\
 `By Tim Balk`\
 https://nytimes.com/live/2024/06/13/world/g7-summit-italy/japan-ukraine-security-zelensky
