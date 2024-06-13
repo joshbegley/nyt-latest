@@ -1,3 +1,11 @@
+**Patrick Gottsch, Champion of Rural TV Programming, Dies at 70**\
+`After a career as a satellite dish installer, he found success with RFD-TV, a 24-hour cable channel aimed at farmers and ranchers.`\
+https://nytimes.com/2024/06/13/business/media/patrick-gottsch-dead.html
+
+**Grand Jury Declines to Indict Principal Accused of Endangering a Student**\
+`In a case that roiled a racially diverse town in New Jersey for months, a high school principal is one step closer to getting his job back.`\
+https://nytimes.com/2024/06/13/nyregion/nj-principal-grand-jury.html
+
 **Number of People Living on New York City Streets Hits a Two-Decade High**\
 `An annual count by the city found more than 4,100 people sleeping on streets and in subways. It was the most since the city began keeping track nearly two decades ago.`\
 https://nytimes.com/2024/06/13/nyregion/homelessness-streets-subways-nyc.html

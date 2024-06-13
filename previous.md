@@ -1,3 +1,11 @@
+**Patrick Gottsch, Champion of Rural TV Programming, Dies at 70**\
+`After a career as a satellite dish installer, he found success with RFD-TV, a 24-hour cable channel aimed at farmers and ranchers.`\
+https://nytimes.com/2024/06/13/business/media/patrick-gottsch-dead.html
+
+**Grand Jury Declines to Indict Principal Accused of Endangering a Student**\
+`In a case that roiled a racially diverse town in New Jersey for months, a high school principal is one step closer to getting his job back.`\
+https://nytimes.com/2024/06/13/nyregion/nj-principal-grand-jury.html
+
 **At X Staff Meetings, Executives Talk Up Return of Advertisers**\
 `Still, Elon Musk, who owns the platform, and his chief executive Linda Yaccarino, have work to do to grow the business, leaders told employees.`\
 https://nytimes.com/2024/06/13/technology/x-elon-musk-linda-yaccarino.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/13/briefing/supreme-court-abortion-pill-ukraine-loan
 **Audiences Are Returning to the Met Opera, but Not for Everything**\
 `The Met is approaching prepandemic levels of attendance. But its strategy of staging more modern operas to lure new audiences is having mixed success.`\
 https://nytimes.com/2024/06/13/arts/music/met-opera-attendance.html
-
-**Biden and Zelensky Deliver Remarks at G7 Summit**\
-`G7 leaders agreed on a plan to give Ukraine a $50 billion loan to help it buy weapons and begin to rebuild.`\
-https://nytimes.com/video/world/europe/100000009520914/g7-summit-italy.html
-
-**Police Official Charged After a Drunken Commute Ends in a Crash**\
-`Prosecutors say Deputy Inspector Paul Zangrilli and a girlfriend drove from a bar near Penn Station to his precinct, leaving behind a trail of battered vehicles and lies.`\
-https://nytimes.com/2024/06/13/nyregion/nypd-paul-zangrilli-drunk-driving.html
 
