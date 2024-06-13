@@ -1,3 +1,7 @@
+**Sandy Hook Victims Are Remembered on Day They Would Have Graduated**\
+`More than 11 years after one of the worst school shootings in U.S. history, on what would have been the victims’ high school graduation day, the residents of Newtown, Conn., paused to reflect.`\
+https://nytimes.com/2024/06/13/nyregion/sandy-hook-survivors-graduation-newtown.html
+
 **U.S. and other large economies agree on a plan to loan $50 billion to Ukraine.**\
 `The money will be used to help`\
 https://nytimes.com/live/2024/06/13/world/g7-summit-italy/us-and-other-large-economies-agree-on-a-plan-to-loan-50-billion-to-ukraine
