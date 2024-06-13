@@ -1,3 +1,7 @@
+**Sandy Hook Victims Are Remembered on Day They Would Have Graduated**\
+`More than 11 years after one of the worst school shootings in U.S. history, on what would have been the victims’ high school graduation day, the residents of Newtown, Conn., paused to reflect.`\
+https://nytimes.com/2024/06/13/nyregion/sandy-hook-survivors-graduation-newtown.html
+
 **U.S. and other large economies agree on a plan to loan $50 billion to Ukraine.**\
 `The money will be used to help`\
 https://nytimes.com/live/2024/06/13/world/g7-summit-italy/us-and-other-large-economies-agree-on-a-plan-to-loan-50-billion-to-ukraine
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/us/politics/supreme-court-abortion-pill-ruling-fu
 **Justice Department Chides Phoenix Police Over Civil Rights Violations**\
 `The department’s report comes after a three-year investigation into complaints of brutality and discrimination by law enforcement that the city says has been burdensome.`\
 https://nytimes.com/2024/06/13/us/politics/justice-department-phoenix-police.html
-
-**9 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2024/06/13/books/review/new-books-recommendations.html
 
