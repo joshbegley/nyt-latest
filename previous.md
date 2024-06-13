@@ -1,3 +1,15 @@
+**Behind Closed Doors, Trump Disparages Milwaukee, Host of His Party’s Convention**\
+`The former president, in a meeting with G.O.P. House members, brought up the city’s crime rate and falsely claimed voter fraud was rampant there in 2020.`\
+https://nytimes.com/2024/06/13/us/politics/trump-milwaukee-rnc.html
+
+**The Abortion Pill Stays Legal. But for How Long?**\
+`A ruling on technical grounds means a widely used drug will soon come under attack again.`\
+https://nytimes.com/2024/06/13/opinion/the-abortion-pill-stays-legal-but-for-how-long.html
+
+**A Hollywood Heavyweight Is Biden’s Secret Weapon Against Trump**\
+`The longtime movie mogul Jeffrey Katzenberg always sought scary villains for his films. Now he has found what he considers a real-life one in Donald J. Trump.`\
+https://nytimes.com/2024/06/13/us/politics/biden-jeffrey-katzenberg-trump.html
+
 **Snap Election in France Sets Off a Wild Week of Politics**\
 `President Emmanuel Macron’s sudden call for new parliamentary elections has created chaos on the right and fostered rare unity on the left.`\
 https://nytimes.com/2024/06/13/world/europe/snap-election-in-france-sets-off-a-wild-week-of-politics.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/13/world/middleeast/gaza-cease-fire-hamas-israel.htm
 **Wreckage of Shackleton’s Last Ship Is Found Off Coast of Canada**\
 `Ernest Shackleton was sailing for Antarctica on the ship, called the Quest, when he died in 1922. Researchers exulted over the discovery of its wreckage, 62 years after it sank in the Labrador Sea.`\
 https://nytimes.com/2024/06/13/world/canada/ernest-shackleton-quest-ship-found.html
-
-**‘The Curse’ Is a Pulpy and Self-Aware Heist Series**\
-`In the best ways, this endearing and very bingeable British show feels as if “Breaking Bad” were happening to “Bob’s Burgers.”`\
-https://nytimes.com/2024/06/13/arts/television/the-curse-streaming-amazon-britbox.html
-
-**How One Move Illustrates Trump’s Tactics**\
-`Defense lawyers are trying to toss out evidence in the classified documents case.`\
-https://nytimes.com/2024/06/13/us/politics/trump-trial-defense-tactics-evidence.html
-
-**He Was ‘Mr. X’ Before a True Crime Podcast Stirred Investigators**\
-`In exploring a possible wrongful conviction, the podcast “Murder, etc.” mentioned an unsolved murder in Greenville County, S.C. It accidentally piqued a sheriff’s interest in a 50-year-old case.`\
-https://nytimes.com/2024/06/13/us/south-carolina-cold-case-mr-x-podcast.html
 

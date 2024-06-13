@@ -1,3 +1,15 @@
+**Behind Closed Doors, Trump Disparages Milwaukee, Host of His Party’s Convention**\
+`The former president, in a meeting with G.O.P. House members, brought up the city’s crime rate and falsely claimed voter fraud was rampant there in 2020.`\
+https://nytimes.com/2024/06/13/us/politics/trump-milwaukee-rnc.html
+
+**The Abortion Pill Stays Legal. But for How Long?**\
+`A ruling on technical grounds means a widely used drug will soon come under attack again.`\
+https://nytimes.com/2024/06/13/opinion/the-abortion-pill-stays-legal-but-for-how-long.html
+
+**A Hollywood Heavyweight Is Biden’s Secret Weapon Against Trump**\
+`The longtime movie mogul Jeffrey Katzenberg always sought scary villains for his films. Now he has found what he considers a real-life one in Donald J. Trump.`\
+https://nytimes.com/2024/06/13/us/politics/biden-jeffrey-katzenberg-trump.html
+
 **Snap Election in France Sets Off a Wild Week of Politics**\
 `President Emmanuel Macron’s sudden call for new parliamentary elections has created chaos on the right and fostered rare unity on the left.`\
 https://nytimes.com/2024/06/13/world/europe/snap-election-in-france-sets-off-a-wild-week-of-politics.html
