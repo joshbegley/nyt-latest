@@ -1,3 +1,15 @@
+**U.S. and other large economies agree on a plan to loan $50 billion to Ukraine.**\
+`The money will be used to help`\
+https://nytimes.com/live/2024/06/13/world/g7-summit-italy/us-and-other-large-economies-agree-on-a-plan-to-loan-50-billion-to-ukraine
+
+**‘Brats’: What to Know About Andrew McCarthy’s Look Back at the ’80s Stars**\
+`A new documentary revisits the group of young actors that helped define the decade. Here are some of its most interesting moments.`\
+https://nytimes.com/2024/06/13/movies/brat-pack-documentary-takeaways.html
+
+**What Southern Baptists Lose by Opposing I.V.F.**\
+`It’s more than just parishioners.`\
+https://nytimes.com/2024/06/13/opinion/southern-baptist-ivf.html
+
 **Anti-Abortion Activists Press Ahead After Supreme Court Ruling**\
 `The activists were disappointed but planned to adapt strategies after the Supreme Court upheld access to a widely available abortion pill.`\
 https://nytimes.com/2024/06/13/us/politics/anti-abortion-activists-supreme-court.html
