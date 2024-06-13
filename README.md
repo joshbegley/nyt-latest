@@ -1,3 +1,7 @@
+**This Top Democrat Isn’t Afraid to Call Trump a Felon and a Grifter**\
+`Most of the party’s leaders want to avoid too much focus on Donald Trump’s felonies. JB Pritzker, the governor of Illinois, feels differently.`\
+https://nytimes.com/2024/06/13/us/politics/trump-jb-pritzker-felony.html
+
 **Russian Prosecutors Finalize Indictment of Evan Gershkovich**\
 `The Wall Street Journal reporter will be tried on a spying charge in Yekaterinburg, the city where he was arrested more than a year ago.`\
 https://nytimes.com/2024/06/13/world/europe/evan-gershkovich-russia-indictment.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/style/brainrot-internet-addiction-social-media-ti
 **‘Shoeshine’: Before ‘Bicycle Thieves,’ a Tragic Farce**\
 `Hailed as a shocker when it opened in 1947, Vittorio De Sica’s movie about juvenile delinquency gets an extended run at Film Forum in a new 4K restoration.`\
 https://nytimes.com/2024/06/13/arts/shoeshine-movie.html
-
-**‘Ultraman: Rising’ Review: Bringing Up Beastie**\
-`A superhero raises a baby monster in this animated film. But the action is dragged down by talky sequences about parental responsibility.`\
-https://nytimes.com/2024/06/13/movies/ultraman-rising-review-bringing-up-beastie.html
 
