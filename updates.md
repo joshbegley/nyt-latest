@@ -1,3 +1,7 @@
+**Number of People Living on New York City Streets Hits a Two-Decade High**\
+`An annual count by the city found more than 4,100 people sleeping on streets and in subways. It was the most since the city began keeping track nearly two decades ago.`\
+https://nytimes.com/2024/06/13/nyregion/homelessness-streets-subways-nyc.html
+
 **At X Staff Meetings, Executives Talk Up Return of Advertisers**\
 `Still, Elon Musk, who owns the platform, and his chief executive Linda Yaccarino, have work to do to grow the business, leaders told employees.`\
 https://nytimes.com/2024/06/13/technology/x-elon-musk-linda-yaccarino.html

@@ -18,7 +18,7 @@ https://nytimes.com/2024/06/13/theater/how-long-blues-review-twyla-tharp.html
 `Today’s Challenge: Take an emotional risk.`\
 https://nytimes.com/2024/06/13/well/live/friendship-vulnerability-questions.html
 
-**Number of Homeless People Living on New York City Streets Hits a Record**\
+**Number of People Living on New York City Streets Hits a Two-Decade High**\
 `An annual count by the city found more than 4,100 people sleeping on streets and in subways. It was the most since the city began keeping track nearly two decades ago.`\
 https://nytimes.com/2024/06/13/nyregion/homelessness-streets-subways-nyc.html
 
