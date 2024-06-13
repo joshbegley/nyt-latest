@@ -1,3 +1,7 @@
+**Is the Fight Against Big Oil Headed to the Supreme Court?**\
+`The Supreme Court may soon decide the fate of dozens of cases brought by cities and states that seek to hold fossil fuel companies accountable.`\
+https://nytimes.com/2024/06/13/climate/supreme-court-hawaii-climate-oil-companies.html
+
 **Missing a Global Climate Target Could Spell Disaster for These Polar Bears**\
 `One group in Hudson Bay might have roughly decade left because sea ice is becoming too thin to support them as they hunt, according to new research.`\
 https://nytimes.com/2024/06/13/climate/polar-bear-population-climate-change.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/13/world/g7-summit-italy/climate-change-and-aid
 **Supreme Court Ruling in Starbucks Case Curbs Labor Regulation**\
 `In a blow to the National Labor Relations Board, the justices cited inconsistent standards for courts to order employers to reinstate fired workers.`\
 https://nytimes.com/2024/06/13/business/economy/supreme-court-starbucks-nlrb.html
-
-**Read the Court’s Decision to Uphold Access to Abortion Pill**\
-`The Supreme Court upheld access to a widely available abortion pill, rejecting a bid from a group of anti-abortion organizations and doctors to unravel the Food and Drug Administration’s approval of the pill.`\
-https://nytimes.com/interactive/2024/06/13/us/scotus-pill.html
 
