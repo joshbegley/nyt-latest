@@ -1,3 +1,7 @@
+**Fake News Still Has a Home on Facebook**\
+`Christopher Blair, a renowned “liberal troll” who posts falsehoods to Facebook, is having a banner year despite crackdowns by Facebook and growing competition from A.I.`\
+https://nytimes.com/2024/06/13/technology/facebook-fake-news-culture-wars.html
+
 **Israeli finance minister diverts Palestinian funds to terrorism victims.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/06/13/world/israel-gaza-war-hamas/israeli-finance-minister-diverts-palestinian-funds-to-terrorism-victims
