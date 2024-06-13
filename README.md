@@ -6,7 +6,7 @@ https://nytimes.com/interactive/2024/06/13/us/scotus-pill.html
 `Inflation has cooled but many voters give significantly higher marks to President Biden’s opponent, Donald J. Trump, on the economy.`\
 https://nytimes.com/2024/06/13/us/politics/biden-ad-inflation-trump.html
 
-**Here’s the latest on the decision.**\
+**The case centered on mifepristone, a drug long approved by the F.D.A. Here’s the latest.**\
 `By Abbie VanSickle`\
 https://nytimes.com/live/2024/06/13/us/abortion-pill-supreme-court/heres-the-latest-on-the-decision
 
