@@ -22,13 +22,13 @@ https://nytimes.com/interactive/2024/06/13/us/scotus-pill.html
 `Inflation has cooled but many voters give significantly higher marks to President Biden’s opponent, Donald J. Trump, on the economy.`\
 https://nytimes.com/2024/06/13/us/politics/biden-ad-inflation-trump.html
 
-**What is mifepristone and how is it used?**\
-`More than half of people who get legal abortions in the United States — and three-quarters in Europe — use medication abortion.`\
-https://nytimes.com/2024/06/13/us/politics/what-is-mifepristone.html
-
 **The case centered on mifepristone, a drug long approved by the F.D.A. Here’s the latest.**\
 `By Abbie VanSickle`\
 https://nytimes.com/live/2024/06/13/us/abortion-pill-supreme-court/heres-the-latest-on-the-decision
+
+**What is mifepristone and how is it used?**\
+`More than half of people who get legal abortions in the United States — and three-quarters in Europe — use medication abortion.`\
+https://nytimes.com/2024/06/13/us/politics/what-is-mifepristone.html
 
 **How common is medication abortion?**\
 `It’s now the most used abortion method.`\
