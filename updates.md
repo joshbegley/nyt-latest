@@ -1,3 +1,7 @@
+**The Houthis attack a merchant ship off Yemen’s coast.**\
+`A British government maritime agency said the Greek-owned bulk carrier had taken on water and was not under command of the crew.`\
+https://nytimes.com/2024/06/12/world/middleeast/yemen-houthis-red-sea-ship.html
+
 **Hunter Biden Is Expected to Appeal Conviction on Gun Charges**\
 `Lawyers for Mr. Biden are considering a number of challenges to the guilty verdict, including one based on the Second Amendment.`\
 https://nytimes.com/2024/06/12/us/politics/hunter-biden-conviction-appeal.html
