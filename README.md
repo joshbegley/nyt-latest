@@ -27,7 +27,7 @@ https://nytimes.com/2024/06/13/us/south-carolina-cold-case-mr-x-podcast.html
 https://nytimes.com/2024/06/13/dining/julia-child-madhur-jaffrey-edna-lewis-cookbook-author.html
 
 **What to Know About Chemical Hair Relaxers and Health**\
-`A growing body of evidence  shows a link between these products and a number of health disorders in Black women.`\
+`A growing body of evidence shows a link between these products and a number of health disorders in Black women.`\
 https://nytimes.com/2024/06/13/magazine/what-to-know-hair-relaxers-health.html
 
 **Learning to Live With Fear**\
