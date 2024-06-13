@@ -1,3 +1,11 @@
+**Warren Winiarski, Whose Fledgling Cabernet Bested the French, Dies at 95**\
+`His $6 bottle of Napa Valley cabernet won a historic tasting in Paris in 1976, astonishing connoisseurs and putting his Stag’s Leap winery on the map.`\
+https://nytimes.com/2024/06/13/dining/drinks/warren-winiarski-dead.html
+
+**Mail-Order Abortions, Now Protected by Court, Are Growing Rapidly**\
+`One-fifth of abortions are being done via telehealth, nearly half in states with abortion bans or restrictions.`\
+https://nytimes.com/2024/06/13/upshot/abortion-pills-supreme-court.html
+
 **What Is Ballet in the 21st Century? It’s All Over the Place.**\
 `New York City Ballet wrapped up its 75th anniversary celebration at Lincoln Center this spring with a look to the future. But it didn’t always speak to it.`\
 https://nytimes.com/2024/06/13/arts/dance/ballet-21st-century.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/13/well/mind/childhood-trauma-employee-workaholic.ht
 **A Perfect Cucumber Salad to Make Anytime**\
 `Ali Slagle’s cucumber-avocado salad has just five ingredients and complements pretty much every meal.`\
 https://nytimes.com/2024/06/13/dining/cucumber-salad.html
-
-**The Aftermath of a U.K. Cyberattack: Blood Shortages and Delayed Operations**\
-`Several London hospitals, still reeling from a cyberattack last week, have made an urgent plea to medical students to help stem the disruption.`\
-https://nytimes.com/2024/06/13/world/europe/nhs-london-hospital-cyberattack.html
-
-**Yes, abortion pills are safe. Here’s what studies have shown.**\
-`The latest research adds to an extensive scientific record showing the pills are a safe option for terminating a pregnancy.`\
-https://nytimes.com/live/2024/06/13/us/abortion-pill-supreme-court/yes-abortion-pills-are-safe-heres-what-studies-have-shown
 
