@@ -1,3 +1,11 @@
+**In 1924, Bentley Began Its Dominance at Le Mans**\
+`The team won so often in the early years that its drivers were called the Bentley Boys.`\
+https://nytimes.com/2024/06/13/sports/autoracing/24-hours-le-mans-bentley.html
+
+**Nyck de Vries Goes From an F1 Exit to Le Mans**\
+`He lost his job in Formula 1, but was grabbed by Toyota to drive in the 24 Hours of Le Mans.`\
+https://nytimes.com/2024/06/13/sports/autoracing/le-mans-nyck-de-vries-driving.html
+
 **Makah Tribe Wins Federal Approval to Hunt Gray Whales**\
 `After decades of legal battles, federal regulators are allowing the tribe to hunt up to 25 whales in the next decade off the coast of Washington State.`\
 https://nytimes.com/2024/06/13/us/makah-whales-hunting-noaa.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/06/12/opinion/thepoint/jill-biden-first-lady
 **At a meeting of a Ukraine defense alliance, Austin pledges to keep sending military aid.**\
 `By John Ismay`\
 https://nytimes.com/live/2024/06/13/world/g7-summit-italy/at-a-meeting-of-a-ukraine-defense-alliance-austin-pledges-to-keep-sending-military-aid
-
-**Warren Winiarski, Whose Fledgling Cabernet Bested the French, Dies at 95**\
-`His $6 bottle of Napa Valley cabernet won a historic tasting in Paris in 1976, astonishing connoisseurs and putting his Stag’s Leap winery on the map.`\
-https://nytimes.com/2024/06/13/dining/drinks/warren-winiarski-dead.html
-
-**Mail-Order Abortions, Protected by Court for Now, Are Growing Rapidly**\
-`One-fifth of abortions are being done via telehealth, nearly half in states with abortion bans or restrictions.`\
-https://nytimes.com/2024/06/13/upshot/abortion-pills-supreme-court.html
 
