@@ -11,7 +11,7 @@ https://nytimes.com/2024/06/12/pageoneplus/corrections-june-13-2024.html
 https://nytimes.com/2024/06/12/crosswords/daily-puzzle-2024-06-13.html
 
 **Disney and DeSantis Reach Agreement, Ending Protracted Fight**\
-`The deal locks in a 15-year expansion plan for Disney World and clears a path for Disney to restart political donations in Florida.`\
+`The deal locks in a 15-year expansion plan for Disney World and clears a path for Disney to restart in-kind political donations in Florida.`\
 https://nytimes.com/2024/06/12/business/disney-desantis-agreement.html
 
 **Hunter Biden Is Expected to Appeal Conviction on Gun Charges**\
