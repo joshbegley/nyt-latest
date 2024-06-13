@@ -22,8 +22,8 @@ https://nytimes.com/2024/06/13/climate/supreme-court-hawaii-climate-oil-companie
 `One group in Hudson Bay might have roughly decade left because sea ice is becoming too thin to support them as they hunt, according to new research.`\
 https://nytimes.com/2024/06/13/climate/polar-bear-population-climate-change.html
 
-**Palestinian residents and media report heavy bombardments in the Rafah area.**\
-`By Hiba Yazbek and Abu Bakr Bashir`\
+**Palestinians Report Heavy Bombardments in the Rafah Area**\
+`Israel’s military said its forces were pressing on with operations in Rafah, where they were engaged in “face-to-face encounters” with Hamas fighters.`\
 https://nytimes.com/2024/06/13/world/middleeast/israel-rafah-airstrikes.html
 
 **Listen to the Best Tracks From 8 Tony-Nominated Shows**\
