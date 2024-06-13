@@ -1,3 +1,7 @@
+**U.S. strikes targets in Yemen as Houthis step up attacks on shipping.**\
+`By Anjana Sankar`\
+https://nytimes.com/live/2024/06/13/world/israel-gaza-war-hamas/us-strikes-targets-in-yemen-as-houthis-step-up-attacks-on-shipping
+
 **Telehealth Startup Executives Charged With Fraud Over Adderall Prescriptions**\
 `Patients using Done or similar telehealth platforms may experience disruptions in care, health officials warned.`\
 https://nytimes.com/2024/06/13/well/live/adderall-telehealth-fraud-cdc-risks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/us/south-carolina-cold-case-mr-x-podcast.html
 **The Woman Who Created the Modern Cookbook**\
 `From her work with Julia Child, Madhur Jaffrey and Edna Lewis, Judith Jones revolutionized American cookbook publishing.`\
 https://nytimes.com/2024/06/13/dining/julia-child-madhur-jaffrey-edna-lewis-cookbook-author.html
-
-**What to Know About Chemical Hair Relaxers and Health**\
-`A growing body of evidence shows a link between these products and a number of health disorders in Black women.`\
-https://nytimes.com/2024/06/13/magazine/what-to-know-hair-relaxers-health.html
 
