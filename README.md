@@ -1,3 +1,7 @@
+**Jimmy Fallon Tracks Biden’s Summer Abroad**\
+`“Yeah, the president is in Italy for the G7 Summit, or as Fox News put it: ‘Biden Flees Country After Hunter Convicted,’” Fallon said.`\
+https://nytimes.com/2024/06/13/arts/television/jimmy-fallon-biden-summer-europe.html
+
 **Word of the Day: boisterous**\
 `This word has appeared in 147 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/06/13/learning/word-of-the-day-boisterous.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/world/europe/wounded-leaders-of-the-west-gather-i
 **How Safe Are Driverless Cars in China? I Rode in Some to See.**\
 `Computer-aided driving has official support and public acceptance, but state media seldom reports crashes or safety incidents, and online posts are censored.`\
 https://nytimes.com/2024/06/13/business/china-driverless-car-safety.html
-
-**What It’s Like to Ride a Robot Taxi in China**\
-`Wuhan, China, hosts the world’s largest driverless car experiment with hundreds of robot taxis that transport passengers through busy streets and highways.`\
-https://nytimes.com/video/business/100000009494790/china-robot-taxi-driverless.html
 
