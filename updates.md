@@ -1,3 +1,19 @@
+**Rabbi Moshe Kotlarsky, 74, Dies; Expanded Chabad’s Global Reach**\
+`Chabad, one observer said, is “in more places in the world than any other Hasidic group and most visible to the world because of their outreach — largely thanks to Kotlarsky,”`\
+https://nytimes.com/2024/06/13/nyregion/rabbi-moshe-kotlarsky-dead.html
+
+**‘How Long Blues’ Review: Twyla Tharp in Overdrive at Little Island**\
+`Her frenetic new dance-theater work, which opens a new festival at the new park on the Hudson, includes references to Camus and music by T Bone Burnett.`\
+https://nytimes.com/2024/06/13/theater/how-long-blues-review-twyla-tharp.html
+
+**To Build a Friendship, Break Down Your Walls**\
+`Today’s Challenge: Take an emotional risk.`\
+https://nytimes.com/2024/06/13/well/live/friendship-vulnerability-questions.html
+
+**Number of Homeless People Living on New York City Streets Hits a Record**\
+`An annual count by the city found more than 4,100 people sleeping on streets and in subways. It was the most since the city began keeping track nearly two decades ago.`\
+https://nytimes.com/2024/06/13/nyregion/homelessness-streets-subways-nyc.html
+
 **The Supreme Court Upheld Broad Abortion Pill Access**\
 `Also, G7 leaders agreed to lend Ukraine $50 billion. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/06/13/briefing/supreme-court-abortion-pill-ukraine-loan.html
