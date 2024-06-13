@@ -1,3 +1,7 @@
+**A Brief History of the Phrase ‘No One Is Above the Law’**\
+`With the recent convictions of a former president and a president’s son, a saying is getting a moment in the spotlight, as it has many times before.`\
+https://nytimes.com/2024/06/13/us/politics/trump-biden-no-one-is-above-the-law.html
+
 **Idina Menzel Will Return to Broadway in ‘Redwood’**\
 `The new musical, about a woman seeking healing, is to arrive early next year.`\
 https://nytimes.com/2024/06/13/theater/idina-menzel-broadway-redwood.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/movies/treasure-review.html
 **‘Summer Solstice’ Review: Through Thick and Thin**\
 `A triumph of sensitivity, Noah Schamus’s debut feature tracks a rural reunion between old friends struggling to recover their bond.`\
 https://nytimes.com/2024/06/13/movies/summer-solstice-review.html
-
-**‘Reverse the Curse’ Review: Baseball Is Life**\
-`The writer-director David Duchovny plays a long-suffering Red Sox fan with cancer who may yet live to see the team defeat the Yankees.`\
-https://nytimes.com/2024/06/13/movies/reverse-the-curse-review.html
 
