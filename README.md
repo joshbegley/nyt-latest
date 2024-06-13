@@ -1,3 +1,15 @@
+**Trump’s Search for a Running Mate**\
+`Donald J. Trump’s list of potential vice-presidential candidates has focused on a set of loyal campaigners.`\
+https://nytimes.com/2024/06/13/podcasts/the-daily/trump-vp-running-mate.html
+
+**The Connections Companion No. 369, June 14, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/13/crosswords/connections-companion-369.html
+
+**Wordle Review No. 1,091, June 14, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/13/crosswords/wordle-review-no-1091-june-14-2024.html
+
 **‘Oddly Satisfying’ Cow Pedicure Videos Are a Hit on TikTok**\
 `In one corner of the internet, professional trimmers grind and buff away at cow hooves to the delight of millions of spellbound social media users.`\
 https://nytimes.com/2024/06/13/style/nate-hoof-guy-tiktok.html
@@ -25,16 +37,4 @@ https://nytimes.com/article/southern-baptist-ivf-vote-explained.html
 **Three Questions on Biden’s Theory of Victory**\
 `His theory of victory, whether military or political, is hard to discern.`\
 https://nytimes.com/live/2024/06/12/opinion/thepoint/biden-victory-step-aside
-
-**The Young Designers to Know at Pitti Uomo**\
-`Plus: a boutique hotel in Philadelphia’s Fishtown, a new line of English knitwear and more recommendations from T Magazine.`\
-https://nytimes.com/2024/06/13/t-magazine/the-young-designers-to-know-at-pitti-uomo.html
-
-**What Exactly Did Justice Alito Say That Was Wrong?**\
-`His remarks should not have been controversial.`\
-https://nytimes.com/2024/06/13/opinion/supreme-court-alito.html
-
-**The Writer Behind the Most-Nominated Play in Broadway History**\
-`David Adjmi discusses “Stereophonic.”`\
-https://nytimes.com/2024/06/13/podcasts/the-writer-behind-the-most-nominated-play-in-broadway-history.html
 
