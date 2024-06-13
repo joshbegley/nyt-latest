@@ -1,3 +1,19 @@
+**Wreckage of Shackleton’s Last Ship Is Found Off Coast of Canada**\
+`Ernest Shackleton was sailing for Antarctica on the ship, called the Quest, when he died in 1922. Researchers exulted over the discovery of its wreckage, 62 years after it sank in the Labrador Sea.`\
+https://nytimes.com/2024/06/13/world/canada/ernest-shackleton-quest-ship-found.html
+
+**‘The Curse’ Is a Pulpy and Self-Aware Heist Series**\
+`In the best ways, this endearing and very bingeable British show feels as if “Breaking Bad” were happening to “Bob’s Burgers.”`\
+https://nytimes.com/2024/06/13/arts/television/the-curse-streaming-amazon-britbox.html
+
+**How One Move Illustrates Trump’s Tactics**\
+`Defense lawyers are trying to toss out evidence in the classified documents case.`\
+https://nytimes.com/2024/06/13/us/politics/trump-trial-defense-tactics-evidence.html
+
+**He Was ‘Mr. X’ Before a True Crime Podcast Stirred Investigators**\
+`In exploring a possible wrongful conviction, the podcast “Murder, etc.” mentioned an unsolved murder in Greenville County, S.C. It accidentally piqued a sheriff’s interest in a 50-year-old case.`\
+https://nytimes.com/2024/06/13/us/south-carolina-cold-case-mr-x-podcast.html
+
 **The Woman Who Created the Modern Cookbook**\
 `From her work with Julia Child, Madhur Jaffrey and Edna Lewis, Judith Jones revolutionized American cookbook publishing.`\
 https://nytimes.com/2024/06/13/dining/julia-child-madhur-jaffrey-edna-lewis-cookbook-author.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/06/13/style/now-you-can-read-the-classics-with-ai-power
 **Senate G.O.P. Blocks I.V.F. Access Bill as Democrats Press for Political Edge**\
 `The failed test vote was the latest move by Democrats to highlight reproductive issues in the run-up to the elections in November.`\
 https://nytimes.com/2024/06/13/us/politics/ivf-access-bill-republicans.html
-
-**What Are Your Experiences With Marijuana and Driving?**\
-`As more people use marijuana, we’re exploring the implications for road safety.`\
-https://nytimes.com/2024/06/13/us/marijuana-road-safety.html
-
-**Fake News Still Has a Home on Facebook**\
-`Christopher Blair, a renowned “liberal troll” who posts falsehoods to Facebook, is having a banner year despite crackdowns by Facebook and growing competition from A.I.`\
-https://nytimes.com/2024/06/13/technology/facebook-fake-news-culture-wars.html
-
-**Israeli finance minister diverts Palestinian funds to terrorism victims.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/06/13/world/israel-gaza-war-hamas/israeli-finance-minister-diverts-palestinian-funds-to-terrorism-victims
-
-**Abortion Rights Groups Celebrate Win but See Risks Ahead**\
-`Supporters of abortion rights hailed the ruling on a challenge they said was fueled by junk science, but warned that it only maintained the status quo as more challenges loomed.`\
-https://nytimes.com/2024/06/13/us/politics/abortion-rights-groups-supreme-court-ruling.html
 
