@@ -24,7 +24,7 @@ https://nytimes.com/live/2024/06/13/us/abortion-pill-supreme-court/heres-the-lat
 
 **What is mifepristone and how is it used?**\
 `More than half of people who get legal abortions in the United States — and three-quarters in Europe — use medication abortion.`\
-https://nytimes.com/live/2024/06/13/us/abortion-pill-supreme-court/what-is-mifepristone-and-how-is-it-used
+https://nytimes.com/2024/06/13/us/politics/what-is-mifepristone.html
 
 **How common is medication abortion?**\
 `It’s now the most used abortion method.`\
