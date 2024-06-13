@@ -1,3 +1,7 @@
+**Audiences Are Returning to the Met Opera, but Not for Everything**\
+`The Met is approaching prepandemic levels of attendance. But its strategy of staging more modern operas to lure new audiences is having mixed success.`\
+https://nytimes.com/2024/06/13/arts/music/met-opera-attendance.html
+
 **Biden and Zelensky Deliver Remarks at G7 Summit**\
 `G7 leaders agreed on a plan to give Ukraine a $50 billion loan to help it buy weapons and begin to rebuild.`\
 https://nytimes.com/video/world/europe/100000009520914/g7-summit-italy.html
