@@ -1,3 +1,7 @@
+**Word of the Day: boisterous**\
+`This word has appeared in 147 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/06/13/learning/word-of-the-day-boisterous.html
+
 **Heavy Rain Causes Devastating Flooding in Florida**\
 `The deluge, which began Tuesday afternoon, dumped more than 10 inches in some areas, forecasters said.`\
 https://nytimes.com/2024/06/13/us/florida-photos-floods-storms-miami.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/business/china-driverless-car-safety.html
 **What It’s Like to Ride a Robot Taxi in China**\
 `Wuhan, China, hosts the world’s largest driverless car experiment with hundreds of robot taxis that transport passengers through busy streets and highways.`\
 https://nytimes.com/video/business/100000009494790/china-robot-taxi-driverless.html
-
-**Tesla’s Nordic Shareholders Seek to Promote Workers’ Rights in Vote**\
-`Tesla mechanics in Sweden have been striking for six months with little movement from their employer. Nordic shareholders hope to change that.`\
-https://nytimes.com/2024/06/13/business/elon-musk-tesla-vote-sweden-norway.html
 

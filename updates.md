@@ -1,3 +1,7 @@
+**Word of the Day: boisterous**\
+`This word has appeared in 147 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/06/13/learning/word-of-the-day-boisterous.html
+
 **Heavy Rain Causes Devastating Flooding in Florida**\
 `The deluge, which began Tuesday afternoon, dumped more than 10 inches in some areas, forecasters said.`\
 https://nytimes.com/2024/06/13/us/florida-photos-floods-storms-miami.html
