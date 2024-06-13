@@ -1,3 +1,7 @@
+**Mars Got Cooked During a Recent Solar Storm**\
+`Days after light shows filled Earth’s skies with wonder, the red planet was hit by another powerful outburst of the sun.`\
+https://nytimes.com/2024/06/13/science/mars-aurora-solar-storm.html
+
 **Is the Fight Against Big Oil Headed to the Supreme Court?**\
 `The Supreme Court may soon decide the fate of dozens of cases brought by cities and states that seek to hold fossil fuel companies accountable.`\
 https://nytimes.com/2024/06/13/climate/supreme-court-hawaii-climate-oil-companies.html
@@ -8,7 +12,7 @@ https://nytimes.com/2024/06/13/climate/polar-bear-population-climate-change.html
 
 **Palestinian residents and media report heavy bombardments in the Rafah area.**\
 `By Hiba Yazbek and Abu Bakr Bashir`\
-https://nytimes.com/live/2024/06/13/world/israel-gaza-war-hamas/israel-rafah-airstrikes
+https://nytimes.com/2024/06/13/world/middleeast/israel-rafah-airstrikes.html
 
 **Listen to the Best Tracks From 8 Tony-Nominated Shows**\
 `“Hell’s Kitchen,” “Stereophonic” and others are up for top prizes at Sunday’s ceremony. Our critic takes stock of their cast albums, all available now.`\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/13/us/abortion-pill-supreme-court/yes-abortion-
 **Climate change and aid for Africa have faded as G7 priorities, campaigners say.**\
 `By Mark Landler`\
 https://nytimes.com/live/2024/06/13/world/g7-summit-italy/climate-change-and-aid-for-africa-have-faded-as-g7-priorities-campaigners-say
-
-**Supreme Court Ruling in Starbucks Case Curbs Labor Regulation**\
-`In a blow to the National Labor Relations Board, the justices cited inconsistent standards for courts to order employers to reinstate fired workers.`\
-https://nytimes.com/2024/06/13/business/economy/supreme-court-starbucks-nlrb.html
 
