@@ -1,3 +1,19 @@
+**Missing a Global Climate Target Could Spell Disaster for These Polar Bears**\
+`One group in Hudson Bay might have roughly decade left because sea ice is becoming too thin to support them as they hunt, according to new research.`\
+https://nytimes.com/2024/06/13/climate/polar-bear-population-climate-change.html
+
+**Palestinian residents and media report heavy bombardments in the Rafah area.**\
+`By Hiba Yazbek and Abu Bakr Bashir`\
+https://nytimes.com/live/2024/06/13/world/israel-gaza-war-hamas/israel-rafah-airstrikes
+
+**Listen to the Best Tracks From 8 Tony-Nominated Shows**\
+`“Hell’s Kitchen,” “Stereophonic” and others are up for top prizes at Sunday’s ceremony. Our critic takes stock of their cast albums, all available now.`\
+https://nytimes.com/2024/06/13/theater/cast-albums-broadway-tony-awards.html
+
+**A Perfect Cucumber Salad to Make Anytime**\
+`Ali Slagle’s cucumber-avocado salad has just five ingredients and complements pretty much every meal.`\
+https://nytimes.com/2024/06/13/dining/cucumber-salad.html
+
 **I Had a Difficult Childhood. It Made Me an Amazing Employee.**\
 `A writer reflects on the moment she understood the roots of her workaholism.`\
 https://nytimes.com/2024/06/13/well/mind/childhood-trauma-employee-workaholic.html
