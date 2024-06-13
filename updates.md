@@ -1,3 +1,7 @@
+**A U.S. pact will aim to help Ukraine’s military for future years, officials say.**\
+`By David E. Sanger`\
+https://nytimes.com/live/2024/06/13/world/g7-summit-italy/biden-zelensky-ukraine-us-security-deal
+
 **Weakened G7 Takes On an Unruly World, and Mapping Abortion Travel**\
 `Plus, a scramble to shrink student loan bills.`\
 https://nytimes.com/2024/06/13/podcasts/g7-italy-abortion-travel-nigeria-economy-inflation.html

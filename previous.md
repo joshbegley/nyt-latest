@@ -1,3 +1,7 @@
+**A U.S. pact will aim to help Ukraine’s military for future years, officials say.**\
+`By David E. Sanger`\
+https://nytimes.com/live/2024/06/13/world/g7-summit-italy/biden-zelensky-ukraine-us-security-deal
+
 **Weakened G7 Takes On an Unruly World, and Mapping Abortion Travel**\
 `Plus, a scramble to shrink student loan bills.`\
 https://nytimes.com/2024/06/13/podcasts/g7-italy-abortion-travel-nigeria-economy-inflation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/world/middleeast/gaza-war-crimes-israel-hamas.htm
 **Trump Returns to Washington With Renewed Grip on the G.O.P.**\
 `Donald Trump will meet today with senators, House members and chief executives as his party’s wary establishment begins to accept his possible return to power.`\
 https://nytimes.com/2024/06/13/us/politics/trump-washington-senate-house.html
-
-**What to Know About the Southern Baptists’ Vote Opposing I.V.F.**\
-`Wednesday’s vote was not a ban on in vitro fertilization. But it suggested that ordinary evangelicals are increasingly open to seeing embryos as people.`\
-https://nytimes.com/article/southern-baptist-ivf-vote-explained.html
 
