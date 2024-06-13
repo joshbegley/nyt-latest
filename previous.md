@@ -1,3 +1,7 @@
+**9 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/06/13/books/review/new-books-recommendations.html
+
 **Abortion Pill Ruling May Help Republicans Minimize a Political Disadvantage**\
 `A ruling limiting access to a widely available abortion pill would have given Democrats another way to hammer their opponents on an issue that’s become politically damaging for Republican politicians.`\
 https://nytimes.com/2024/06/13/us/politics/republicans-abortion-pill.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/sports/olympics/frank-carroll-dead.html
 **Israel and Hezbollah trade attacks across a volatile border.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/06/13/world/israel-gaza-war-hamas/hezbollah-israel-rockets-strike
-
-**Kendall Toole, a Popular Peloton Instructor, Announces Her Departure**\
-`Ms. Toole shared the news in an Instagram reel on Thursday morning, adding that she was grateful for her time at Peloton, the connected-fitness company.`\
-https://nytimes.com/2024/06/13/business/peloton-kendall-toole-leaving.html
 

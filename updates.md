@@ -1,3 +1,7 @@
+**9 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/06/13/books/review/new-books-recommendations.html
+
 **At Le Mans, Automakers Have Expanded the Top Class**\
 `With the addition of Alpine, BMW, Isotta Fraschini and Lamborghini, nine manufacturers are racing this year.`\
 https://nytimes.com/2024/06/13/sports/autoracing/24-hours-le-mans-manufacturers.html
