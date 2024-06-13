@@ -1,3 +1,7 @@
+**F.A.A. Administrator Says Previous Oversight of Boeing Was ‘Too Hands-Off’**\
+`Mike Whitaker, who heads the agency, told a Senate panel that changes were being made to the agency’s oversight of the plane manufacturer, including conducting more safety inspections.`\
+https://nytimes.com/2024/06/13/us/politics/faa-boeing-senate-hearing.html
+
 **Why a Gaza Cease-Fire Is So Elusive**\
 `Both sides are pursuing maximalist demands, jockeying for a deal that will determine the fate of postwar Gaza — and allow them to declare victory.`\
 https://nytimes.com/2024/06/13/world/middleeast/gaza-cease-fire-hamas-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/special-series/alex-honnold-free-solo-fear.html
 **Audra McDonald Is Returning to Broadway! There’s Just One Catch.**\
 `Colorblind casting is wonderful. Don’t use it to sanitize our racist past.`\
 https://nytimes.com/2024/06/13/opinion/audra-mcdonald-gypsy-broadway.html
-
-**Now You Can Read the Classics With A.I.-Powered Expert Guides**\
-`Margaret Atwood and John Banville are among the authors who have sold their voices and commentary to an app that aims to bring canonical texts to life with the latest tech.`\
-https://nytimes.com/2024/06/13/style/now-you-can-read-the-classics-with-ai-powered-expert-guides.html
 
