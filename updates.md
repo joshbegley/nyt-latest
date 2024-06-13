@@ -1,3 +1,7 @@
+**Why a Gaza Cease-Fire Is So Elusive**\
+`Both sides are pursuing maximalist demands, jockeying for a deal that will determine the fate of postwar Gaza — and allow them to declare victory.`\
+https://nytimes.com/2024/06/13/world/middleeast/gaza-cease-fire-hamas-israel.html
+
 **Wreckage of Shackleton’s Last Ship Is Found Off Coast of Canada**\
 `Ernest Shackleton was sailing for Antarctica on the ship, called the Quest, when he died in 1922. Researchers exulted over the discovery of its wreckage, 62 years after it sank in the Labrador Sea.`\
 https://nytimes.com/2024/06/13/world/canada/ernest-shackleton-quest-ship-found.html
