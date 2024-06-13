@@ -1,3 +1,31 @@
+**If You Know What ‘Brainrot’ Means, You Might Already Have It**\
+`A popular term captures the condition of being terminally online, with humor and pathos.`\
+https://nytimes.com/2024/06/13/style/brainrot-internet-addiction-social-media-tiktok.html
+
+**‘Shoeshine’: Before ‘Bicycle Thieves,’ a Tragic Farce**\
+`Hailed as a shocker when it opened in 1947, Vittorio De Sica’s movie about juvenile delinquency gets an extended run at Film Forum in a new 4K restoration.`\
+https://nytimes.com/2024/06/13/arts/shoeshine-movie.html
+
+**‘Ultraman: Rising’ Review: Bringing Up Beastie**\
+`A superhero raises a baby monster in this animated film. But the action is dragged down by talky sequences about parental responsibility.`\
+https://nytimes.com/2024/06/13/movies/ultraman-rising-review-bringing-up-beastie.html
+
+**‘Treasure’ Review: Unearthing the Past**\
+`Lena Dunham and Stephen Fry star in a Holocaust-memory drama that uneasily doubles as a father-daughter road movie.`\
+https://nytimes.com/2024/06/13/movies/treasure-review.html
+
+**‘Summer Solstice’ Review: Through Thick and Thin**\
+`A triumph of sensitivity, Noah Schamus’s debut feature tracks a rural reunion between old friends struggling to recover their bond.`\
+https://nytimes.com/2024/06/13/movies/summer-solstice-review.html
+
+**‘Reverse the Curse’ Review: Baseball Is Life**\
+`The writer-director David Duchovny plays a long-suffering Red Sox fan with cancer who may yet live to see the team defeat the Yankees.`\
+https://nytimes.com/2024/06/13/movies/reverse-the-curse-review.html
+
+**‘Firebrand’ Review: Placid Queen**\
+`Top-shelf actors and authentic Tudor table-setting fail to quicken this glumly unfocused take on the exploits of Henry VIII’s last wife, Katherine Parr.`\
+https://nytimes.com/2024/06/13/movies/firebrand-review.html
+
 **Why Investors Don’t Believe the Fed**\
 `Markets appear to be dismissing the central bank’s more pessimistic take on inflation, as the S&P 500 nears a new high.`\
 https://nytimes.com/2024/06/13/business/dealbook/markets-record-fed-inflation.html
@@ -9,32 +37,4 @@ https://nytimes.com/2024/06/13/world/europe/g7-summit-what.html
 **A Relaxer Reckoning**\
 `Widely used relaxers are a health threat to many Black women.`\
 https://nytimes.com/2024/06/13/briefing/hair-relaxers-health-risks.html
-
-**The Biden administration says there is not a clear timetable to come to a deal.**\
-`Jake Sullivan, the national security adviser, said the U.S. is working with`\
-https://nytimes.com/live/2024/06/13/world/israel-gaza-war-hamas/sullivan-says-there-is-not-a-clear-timetable-to-come-to-a-deal
-
-**A U.S. pact will aim to help Ukraine’s military for future years, officials say.**\
-`By David E. Sanger`\
-https://nytimes.com/live/2024/06/13/world/g7-summit-italy/biden-zelensky-ukraine-us-security-deal
-
-**Weakened G7 Takes On an Unruly World, and Mapping Abortion Travel**\
-`Plus, a scramble to shrink student loan bills.`\
-https://nytimes.com/2024/06/13/podcasts/g7-italy-abortion-travel-nigeria-economy-inflation.html
-
-**Trump’s Search for a Running Mate**\
-`Donald J. Trump’s list of potential vice-presidential candidates has focused on a set of loyal campaigners.`\
-https://nytimes.com/2024/06/13/podcasts/the-daily/trump-vp-running-mate.html
-
-**The Connections Companion No. 369, June 14, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/06/13/crosswords/connections-companion-369.html
-
-**Wordle Review No. 1,091, June 14, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/06/13/crosswords/wordle-review-no-1091-june-14-2024.html
-
-**‘Oddly Satisfying’ Cow Pedicure Videos Are a Hit on TikTok**\
-`In one corner of the internet, professional trimmers grind and buff away at cow hooves to the delight of millions of spellbound social media users.`\
-https://nytimes.com/2024/06/13/style/nate-hoof-guy-tiktok.html
 
