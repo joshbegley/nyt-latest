@@ -1,3 +1,11 @@
+**Israel and Hezbollah trade attacks across a volatile border.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/06/13/world/israel-gaza-war-hamas/hezbollah-israel-rockets-strike
+
+**Kendall Toole, a Popular Peloton Instructor, Announces Her Departure**\
+`Ms. Toole shared the news in an Instagram reel on Thursday morning, adding that she was grateful for her time at Peloton, the connected-fitness company.`\
+https://nytimes.com/2024/06/13/business/peloton-kendall-toole-leaving.html
+
 **How Will History Remember Jill Biden?**\
 `The last half-dozen or so presidential wives have run the gamut.`\
 https://nytimes.com/live/2024/06/12/opinion/thepoint/jill-biden-first-lady
