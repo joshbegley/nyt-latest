@@ -1,3 +1,7 @@
+**Biden and Zelensky Deliver Remarks at G7 Summit**\
+`G7 leaders agreed on a plan to give Ukraine a $50 billion loan to help it buy weapons and begin to rebuild.`\
+https://nytimes.com/video/world/europe/100000009520914/g7-summit-italy.html
+
 **Police Official Charged After a Drunken Commute Ends in a Crash**\
 `Prosecutors say Deputy Inspector Paul Zangrilli and a girlfriend drove from a bar near Penn Station to his precinct, leaving behind a trail of battered vehicles and lies.`\
 https://nytimes.com/2024/06/13/nyregion/nypd-paul-zangrilli-drunk-driving.html
