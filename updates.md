@@ -1,3 +1,11 @@
+**In 1924, Bentley Began Its Dominance at Le Mans**\
+`The team won so often in the early years that its drivers were called the Bentley Boys.`\
+https://nytimes.com/2024/06/13/sports/autoracing/24-hours-le-mans-bentley.html
+
+**Nyck de Vries Goes From an F1 Exit to Le Mans**\
+`He lost his job in Formula 1, but was grabbed by Toyota to drive in the 24 Hours of Le Mans.`\
+https://nytimes.com/2024/06/13/sports/autoracing/le-mans-nyck-de-vries-driving.html
+
 **Makah Tribe Wins Federal Approval to Hunt Gray Whales**\
 `After decades of legal battles, federal regulators are allowing the tribe to hunt up to 25 whales in the next decade off the coast of Washington State.`\
 https://nytimes.com/2024/06/13/us/makah-whales-hunting-noaa.html
