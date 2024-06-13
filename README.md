@@ -1,3 +1,11 @@
+**I Had a Difficult Childhood. It Made Me an Amazing Employee.**\
+`A writer reflects on the moment she understood the roots of her workaholism.`\
+https://nytimes.com/2024/06/13/well/mind/childhood-trauma-employee-workaholic.html
+
+**A Perfect Cucumber Salad to Make Anytime**\
+`Ali Slagle’s cucumber-avocado salad has just five ingredients and complements pretty much every meal.`\
+https://nytimes.com/2024/06/13/dining/a-perfect-cucumber-salad-to-make-anytime.html
+
 **The Aftermath of a U.K. Cyberattack: Blood Shortages and Delayed Operations**\
 `Several London hospitals, still reeling from a cyberattack last week, have made an urgent plea to medical students to help stem the disruption.`\
 https://nytimes.com/2024/06/13/world/europe/nhs-london-hospital-cyberattack.html
@@ -22,19 +30,11 @@ https://nytimes.com/interactive/2024/06/13/us/scotus-pill.html
 `Inflation has cooled but many voters give significantly higher marks to President Biden’s opponent, Donald J. Trump, on the economy.`\
 https://nytimes.com/2024/06/13/us/politics/biden-ad-inflation-trump.html
 
-**The case centered on mifepristone, a drug long approved by the F.D.A. Here’s the latest.**\
-`By Abbie VanSickle`\
-https://nytimes.com/live/2024/06/13/us/abortion-pill-supreme-court/heres-the-latest-on-the-decision
-
 **What is mifepristone and how is it used?**\
 `More than half of people who get legal abortions in the United States — and three-quarters in Europe — use medication abortion.`\
 https://nytimes.com/2024/06/13/us/politics/what-is-mifepristone.html
 
-**How common is medication abortion?**\
-`It’s now the most used abortion method.`\
-https://nytimes.com/live/2024/06/13/us/abortion-pill-supreme-court/how-common-is-medication-abortion
-
-**Live Updates: Supreme Court Upholds Broad Access to Abortion Pill**\
-`The justices unanimously rejected a bid to sharply curtail access to a widely available abortion pill, finding that the plaintiffs did not have standing to sue.`\
-https://nytimes.com/live/2024/06/13/us/abortion-pill-supreme-court
+**The case centered on mifepristone, a drug long approved by the F.D.A. Here’s the latest.**\
+`By Abbie VanSickle`\
+https://nytimes.com/live/2024/06/13/us/abortion-pill-supreme-court/heres-the-latest-on-the-decision
 
