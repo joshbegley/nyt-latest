@@ -1,3 +1,11 @@
+**Janet Yellen: Use Russia’s Assets to Support Ukraine**\
+`The U.S. treasury secretary explains why America and its allies should unlock the value of Russian capital immobilized at the start of the war to give Ukraine the financing it needs. `\
+https://nytimes.com/2024/06/13/opinion/janet-yellen-ukraine-russia-g7.html
+
+**France Is in Danger**\
+`In calling snap elections, Emmanuel Macron has taken a terrifying gamble.`\
+https://nytimes.com/2024/06/13/opinion/macron-france-elections.html
+
 **Thursday Briefing**\
 `The Group of 7 summit considers funding for Ukraine.`\
 https://nytimes.com/2024/06/13/briefing/g7-ukraine-ev-tariffs.html
