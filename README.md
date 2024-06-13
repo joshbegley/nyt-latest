@@ -1,40 +1,40 @@
-**A Royal Visit to the City That Was Once Called New Amsterdam**\
-`Among other stops in New York, King Willem-Alexander and Queen Máxima of the Netherlands will tour an exhibit focused on 400 years of Dutch history.`\
-https://nytimes.com/2024/06/13/nyregion/king-queen-netherlands-visit-nyc.html
+**36 Hours in Ljubljana, Slovenia**\
+`Stroll along the river, explore a contemporary art scene and admire panoramic views in this scenic Central European capital.`\
+https://nytimes.com/interactive/2024/06/13/travel/things-to-do-ljubljana.html
 
-**How Big Tech Is Killing Innovation**\
-`The leading companies are co-opting Silicon Valley’s traditional cycle of disruption.`\
-https://nytimes.com/2024/06/13/opinion/big-tech-ftc-ai.html
+**The U.N. Report on Israeli and Palestinian War Crimes: What We Know**\
+`The findings cite acts such as sexual violence and the deliberate killing or abducting of civilians by Hamas. They also accuse Israel of collective punishment and crimes against humanity in Gaza.`\
+https://nytimes.com/2024/06/13/world/middleeast/gaza-war-crimes-israel-hamas.html
 
-**How an Artist Became the Queen of Baltimore**\
-`Joyce J. Scott’s 50-year retrospective at the Baltimore Museum of Art draws inspiration, beauty and humor from her hometown and its people.`\
-https://nytimes.com/2024/06/13/arts/design/joyce-scott-artist-baltimore-museum.html
+**Trump Returns to Washington With Renewed Grip on the G.O.P.**\
+`Donald Trump will meet today with senators, House members and chief executives as his party’s wary establishment begins to accept his possible return to power.`\
+https://nytimes.com/2024/06/13/us/politics/trump-washington-senate-house.html
 
-**What J.D. Vance Believes**\
-`In a long conversation, the first-term senator from Ohio talks about Trump, populism, the 2020 election, Ukraine and the Republican V.P. slot.`\
-https://nytimes.com/2024/06/13/opinion/jd-vance-interview.html
+**What to Know About the Southern Baptists’ Vote Opposing I.V.F.**\
+`Wednesday’s vote was not a ban on in vitro fertilization. But it suggested that ordinary evangelicals are increasingly open to seeing embryos as people.`\
+https://nytimes.com/article/southern-baptist-ivf-vote-explained.html
 
-**Homes for Sale in Manhattan and Queens**\
-`This week’s properties are on West End Avenue, in the East Village and in Jackson Heights.`\
-https://nytimes.com/2024/06/13/realestate/housing-market-nyc.html
+**Three Questions on Biden’s Theory of Victory**\
+`His theory of victory, whether military or political, is hard to discern.`\
+https://nytimes.com/live/2024/06/12/opinion/thepoint/biden-victory-step-aside
 
-**Homes for Sale in New York and Connecticut**\
-`This week’s properties are four-bedroom homes in Smithtown, N.Y., and Stamford, Conn.`\
-https://nytimes.com/2024/06/13/realestate/housing-market-near-nyc.html
+**The Young Designers to Know at Pitti Uomo**\
+`Plus: a boutique hotel in Philadelphia’s Fishtown, a new line of English knitwear and more recommendations from T Magazine.`\
+https://nytimes.com/2024/06/13/t-magazine/the-young-designers-to-know-at-pitti-uomo.html
 
-**The Disturbing Truth About Hair Relaxers**\
-`They’ve been linked to reproductive disorders and cancers. Why are they still being marketed so aggressively to Black women?`\
-https://nytimes.com/2024/06/13/magazine/hair-relaxers-cancer-risk.html
+**What Exactly Did Justice Alito Say That Was Wrong?**\
+`His remarks should not have been controversial.`\
+https://nytimes.com/2024/06/13/opinion/supreme-court-alito.html
 
-**What Are the Homes in ‘Bridgerton’ Worth?**\
-`As the third season of the Netflix hit resumes, we share some home-value estimates for the luxurious dwellings used as locations.`\
-https://nytimes.com/2024/06/13/realestate/bridgerton-home-value-estimate.html
+**The Writer Behind the Most-Nominated Play in Broadway History**\
+`David Adjmi discusses “Stereophonic.”`\
+https://nytimes.com/2024/06/13/podcasts/the-writer-behind-the-most-nominated-play-in-broadway-history.html
 
-**‘Tiger Stripes’ Review: A Ferocious Change**\
-`Myth and the changes of puberty combine in Amanda Nell Eu’s fierce, funny debut feature.`\
-https://nytimes.com/2024/06/13/movies/tiger-stripes-review.html
+**How ‘Bridgerton’ Makes History**\
+`Described by its showrunner as “definitely a fantasy,” the hit series relies on a team of historical consultants. Does the show take their advice? Mostly.`\
+https://nytimes.com/2024/06/13/arts/television/bridgerton-history-consultants.html
 
-**‘Ride’ Review: Heists, Heifers and Hospital Bills**\
-`A father and son resort to desperate measures to save an ailing child in this Texas-set dramatic thriller.`\
-https://nytimes.com/2024/06/13/movies/ride-review.html
+**HBO Could Use a Hit. Enter the Dragons.**\
+`The network has hit an unusually fallow period. Executives hope “House of the Dragon,” which returns Sunday, could be the start of a new winning streak.`\
+https://nytimes.com/2024/06/13/business/media/hbo-house-of-dragon.html
 
