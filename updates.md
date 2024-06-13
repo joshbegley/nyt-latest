@@ -1,3 +1,11 @@
+**Telehealth Startup Executives Charged With Fraud Over Adderall Prescriptions**\
+`Patients using Done or similar telehealth platforms may experience disruptions in care, health officials warned.`\
+https://nytimes.com/2024/06/13/well/live/adderall-telehealth-fraud-cdc-risks.html
+
+**Trump Prosecutor in Georgia Rebukes Critics in Speech to Black Church Group**\
+`“I’ve lived the experience of a Black woman who is attacked and over-sexualized,” the prosecutor, Fani Willis, told leaders of the African Methodist Episcopal Church on Thursday.`\
+https://nytimes.com/2024/06/13/us/fani-willis-giuliani-trump-georgia.html
+
 **What to Know About Chemical Hair Relaxers and Health**\
 `A growing body of evidence shows a link between these products and a number of health disorders in Black women.`\
 https://nytimes.com/2024/06/13/magazine/what-to-know-hair-relaxers-health.html
