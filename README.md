@@ -11,8 +11,8 @@ https://nytimes.com/2024/06/12/world/christophe-deloire-dead.html
 https://nytimes.com/2024/06/12/us/politics/western-governors-association-bipartisanship.html
 
 **The Houthis attack a merchant ship off Yemen’s coast.**\
-`By Anjana Sankar`\
-https://nytimes.com/live/2024/06/12/world/israel-gaza-war-hamas/the-houthis-attack-a-merchant-ship-off-yemens-coast
+`A British government maritime agency said the Greek-owned bulk carrier had taken on water and was not under command of the crew.`\
+https://nytimes.com/2024/06/12/world/middleeast/yemen-houthis-red-sea-ship.html
 
 **Senate Republicans Block Supreme Court Ethics Measure Pushed by Democrats**\
 `Democrats made what they knew was a doomed attempt as they faced pressure from the left to do more to try to hold the court accountable.`\
