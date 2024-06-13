@@ -1,3 +1,7 @@
+**How Will History Remember Jill Biden?**\
+`The last half-dozen or so presidential wives have run the gamut.`\
+https://nytimes.com/live/2024/06/12/opinion/thepoint/jill-biden-first-lady
+
 **At a meeting of a Ukraine defense alliance, Austin pledges to keep sending military aid.**\
 `By John Ismay`\
 https://nytimes.com/live/2024/06/13/world/g7-summit-italy/at-a-meeting-of-a-ukraine-defense-alliance-austin-pledges-to-keep-sending-military-aid
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/world/middleeast/israel-rafah-airstrikes.html
 **Listen to the Best Tracks From 8 Tony-Nominated Shows**\
 `“Hell’s Kitchen,” “Stereophonic” and others are up for top prizes at Sunday’s ceremony. Our critic takes stock of their cast albums, all available now.`\
 https://nytimes.com/2024/06/13/theater/cast-albums-broadway-tony-awards.html
-
-**I Had a Difficult Childhood. It Made Me an Amazing Employee.**\
-`A writer reflects on the moment she understood the roots of her workaholism.`\
-https://nytimes.com/2024/06/13/well/mind/childhood-trauma-employee-workaholic.html
 
