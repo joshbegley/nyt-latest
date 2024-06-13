@@ -1,3 +1,7 @@
+**Fake News Still Has a Home on Facebook**\
+`Christopher Blair, a renowned “liberal troll” who posts falsehoods to Facebook, is having a banner year despite crackdowns by Facebook and growing competition from A.I.`\
+https://nytimes.com/2024/06/13/technology/facebook-fake-news-culture-wars.html
+
 **Israeli finance minister diverts Palestinian funds to terrorism victims.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/06/13/world/israel-gaza-war-hamas/israeli-finance-minister-diverts-palestinian-funds-to-terrorism-victims
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/13/world/g7-summit-italy/us-and-other-large-eco
 **‘Brats’: What to Know About Andrew McCarthy’s Look Back at the ’80s Stars**\
 `A new documentary revisits the group of young actors that helped define the decade. Here are some of its most interesting moments.`\
 https://nytimes.com/2024/06/13/movies/brat-pack-documentary-takeaways.html
-
-**What Southern Baptists Lose by Opposing I.V.F.**\
-`It’s more than just parishioners.`\
-https://nytimes.com/2024/06/13/opinion/southern-baptist-ivf.html
 
