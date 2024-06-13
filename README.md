@@ -1,3 +1,11 @@
+**Where to Eat: At The Bar**\
+`Best seat in the house, no question.`\
+https://nytimes.com/2024/06/13/dining/where-to-eat-at-the-bar.html
+
+**Lawmakers Question Microsoft’s President About Its Presence in China**\
+`Brad Smith testified before a House committee a year after Chinese hackers infiltrated Microsoft’s technology and penetrated government networks.`\
+https://nytimes.com/2024/06/13/technology/microsoft-house-hearing-security.html
+
 **Behind Closed Doors, Trump Disparages Milwaukee, Host of His Party’s Convention**\
 `The former president, in a meeting with G.O.P. House members, brought up the city’s crime rate and falsely claimed voter fraud was rampant there in 2020.`\
 https://nytimes.com/2024/06/13/us/politics/trump-milwaukee-rnc.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/13/us/fani-willis-giuliani-trump-georgia.html
 **F.A.A. Administrator Says Previous Oversight of Boeing Was ‘Too Hands-Off’**\
 `Mike Whitaker, who heads the agency, told a Senate panel that changes were being made to the agency’s oversight of the plane manufacturer, including conducting more safety inspections.`\
 https://nytimes.com/2024/06/13/us/politics/faa-boeing-senate-hearing.html
-
-**Why a Gaza Cease-Fire Is So Elusive**\
-`Both sides are pursuing maximalist demands, jockeying for a deal that will determine the fate of postwar Gaza — and allow them to declare victory.`\
-https://nytimes.com/2024/06/13/world/middleeast/gaza-cease-fire-hamas-israel.html
-
-**Wreckage of Shackleton’s Last Ship Is Found Off Coast of Canada**\
-`Ernest Shackleton was sailing for Antarctica on the ship, called the Quest, when he died in 1922. Researchers exulted over the discovery of its wreckage, 62 years after it sank in the Labrador Sea.`\
-https://nytimes.com/2024/06/13/world/canada/ernest-shackleton-quest-ship-found.html
 
