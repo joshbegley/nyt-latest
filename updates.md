@@ -1,3 +1,7 @@
+**What to Know About Chemical Hair Relaxers and Health**\
+`A growing body of evidence shows a link between these products and a number of health disorders in Black women.`\
+https://nytimes.com/2024/06/13/magazine/what-to-know-hair-relaxers-health.html
+
 **F.A.A. Administrator Says Previous Oversight of Boeing Was ‘Too Hands-Off’**\
 `Mike Whitaker, who heads the agency, told a Senate panel that changes were being made to the agency’s oversight of the plane manufacturer, including conducting more safety inspections.`\
 https://nytimes.com/2024/06/13/us/politics/faa-boeing-senate-hearing.html
