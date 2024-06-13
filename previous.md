@@ -1,3 +1,7 @@
+**Russian Prosecutors Finalize Indictment of Evan Gershkovich**\
+`The Wall Street Journal reporter will be tried on a spying charge in Yekaterinburg, the city where he was arrested more than a year ago.`\
+https://nytimes.com/2024/06/13/world/europe/evan-gershkovich-russia-indictment.html
+
 **New Party in South Africa to Boycott Opening of Parliament**\
 `UMkhonto weSizwe, which is led by Jacob Zuma, the populist former president, has asserted that the recent election was rigged and the results illegitimate.`\
 https://nytimes.com/2024/06/13/world/africa/south-africa-parliament-boycott-zuma.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/arts/shoeshine-movie.html
 **‘Ultraman: Rising’ Review: Bringing Up Beastie**\
 `A superhero raises a baby monster in this animated film. But the action is dragged down by talky sequences about parental responsibility.`\
 https://nytimes.com/2024/06/13/movies/ultraman-rising-review-bringing-up-beastie.html
-
-**‘Treasure’ Review: Unearthing the Past**\
-`Lena Dunham and Stephen Fry star in a Holocaust-memory drama that uneasily doubles as a father-daughter road movie.`\
-https://nytimes.com/2024/06/13/movies/treasure-review.html
 

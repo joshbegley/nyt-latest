@@ -1,3 +1,7 @@
+**Russian Prosecutors Finalize Indictment of Evan Gershkovich**\
+`The Wall Street Journal reporter will be tried on a spying charge in Yekaterinburg, the city where he was arrested more than a year ago.`\
+https://nytimes.com/2024/06/13/world/europe/evan-gershkovich-russia-indictment.html
+
 **New Party in South Africa to Boycott Opening of Parliament**\
 `UMkhonto weSizwe, which is led by Jacob Zuma, the populist former president, has asserted that the recent election was rigged and the results illegitimate.`\
 https://nytimes.com/2024/06/13/world/africa/south-africa-parliament-boycott-zuma.html
