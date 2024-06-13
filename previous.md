@@ -12,7 +12,7 @@ https://nytimes.com/2024/06/13/us/politics/trump-milwaukee-rnc.html
 
 **The Abortion Pill Stays Legal. But for How Long?**\
 `A ruling on technical grounds means a widely used drug will soon come under attack again.`\
-https://nytimes.com/2024/06/13/opinion/the-abortion-pill-stays-legal-but-for-how-long.html
+https://nytimes.com/2024/06/13/opinion/abortion-pill-mifepristone-scotus.html
 
 **A Hollywood Heavyweight Is Biden’s Secret Weapon Against Trump**\
 `The longtime movie mogul Jeffrey Katzenberg always sought scary villains for his films. Now he has found what he considers a real-life one in Donald J. Trump.`\
