@@ -1,3 +1,11 @@
+**The Magnet Fisherman’s Dilemma: What to Do With $70,000 Before It Disintegrates**\
+`James Kane pulled a safe filled with stacks of hundred dollar bills from a creek in Queens. That, it turns out, was the easy part.`\
+https://nytimes.com/2024/06/13/nyregion/couple-magnet-fishing-safe-nyc.html
+
+**Frank Carroll, Prominent Figure Skating Coach, Dies at 85**\
+`He had a star-studded roster of students, including Michelle Kwan and Linda Fratianne. But he did not coach an Olympic gold medalist until Evan Lysacek won in 2010.`\
+https://nytimes.com/2024/06/13/sports/olympics/frank-carroll-dead.html
+
 **Israel and Hezbollah trade attacks across a volatile border.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/06/13/world/israel-gaza-war-hamas/hezbollah-israel-rockets-strike
