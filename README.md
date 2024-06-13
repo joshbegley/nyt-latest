@@ -1,3 +1,7 @@
+**Abortion Ruling Has Nothing to Do With the Pills’ Safety or Morality**\
+`The opinion in the case focused entirely on standing, the legal doctrine that requires plaintiffs to show that they have suffered direct and concrete injuries in order to sue.`\
+https://nytimes.com/2024/06/13/us/politics/abortion-pill-standing.html
+
 **The Magnet Fisherman’s Dilemma: What to Do With $70,000 Before It Disintegrates**\
 `James Kane pulled a safe filled with stacks of hundred dollar bills from a creek in Queens. That, it turns out, was the easy part.`\
 https://nytimes.com/2024/06/13/nyregion/couple-magnet-fishing-safe-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/upshot/abortion-pills-supreme-court.html
 **What Is Ballet in the 21st Century? It’s All Over the Place.**\
 `New York City Ballet wrapped up its 75th anniversary celebration at Lincoln Center this spring with a look to the future. But it didn’t always speak to it.`\
 https://nytimes.com/2024/06/13/arts/dance/ballet-21st-century.html
-
-**Mars Got Cooked During a Recent Solar Storm**\
-`Days after light shows filled Earth’s skies with wonder, the red planet was hit by another powerful outburst of the sun.`\
-https://nytimes.com/2024/06/13/science/mars-aurora-solar-storm.html
 
