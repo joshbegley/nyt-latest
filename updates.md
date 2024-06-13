@@ -1,3 +1,7 @@
+**Weakened G7 Takes On an Unruly World, and Mapping Abortion Travel**\
+`Plus, a scramble to shrink student loan bills.`\
+https://nytimes.com/2024/06/13/podcasts/g7-italy-abortion-travel-nigeria-economy-inflation.html
+
 **Trump’s Search for a Running Mate**\
 `Donald J. Trump’s list of potential vice-presidential candidates has focused on a set of loyal campaigners.`\
 https://nytimes.com/2024/06/13/podcasts/the-daily/trump-vp-running-mate.html
