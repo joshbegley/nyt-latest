@@ -1,3 +1,5 @@
+**Here’s the latest on the G7 summit.**\
+
 **For Rogue Smoke Shops in New York, the ‘Party’s Over’**\
 `The city is flexing its new enforcement powers to close hundreds of unlicensed cannabis stores. Critics have likened some of the authorities’ tactics to those used during the war on drugs.`\
 https://nytimes.com/2024/06/13/nyregion/nyc-weed-cannabis-shops.html
