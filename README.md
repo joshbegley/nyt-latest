@@ -1,3 +1,7 @@
+**Justice Department Chides Phoenix Police Over Civil Rights Violations**\
+`The department’s report comes after a three-year investigation into complaints of brutality and discrimination by law enforcement that the city says has been burdensome.`\
+https://nytimes.com/2024/06/13/us/politics/justice-department-chides-phoenix-police-over-civil-rights-violations.html
+
 **9 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/06/13/books/review/new-books-recommendations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/nyregion/couple-magnet-fishing-safe-nyc.html
 **Frank Carroll, Prominent Figure Skating Coach, Dies at 85**\
 `He had a star-studded roster of students, including Michelle Kwan and Linda Fratianne. But he did not coach an Olympic gold medalist until Evan Lysacek won in 2010.`\
 https://nytimes.com/2024/06/13/sports/olympics/frank-carroll-dead.html
-
-**Israel and Hezbollah trade attacks across a volatile border.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/06/13/world/israel-gaza-war-hamas/hezbollah-israel-rockets-strike
 
