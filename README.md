@@ -1,3 +1,7 @@
+**What Are Your Experiences With Marijuana and Driving?**\
+`As more people use marijuana, we’re exploring the implications for road safety.`\
+https://nytimes.com/2024/06/13/us/marijuana-road-safety.html
+
 **Fake News Still Has a Home on Facebook**\
 `Christopher Blair, a renowned “liberal troll” who posts falsehoods to Facebook, is having a banner year despite crackdowns by Facebook and growing competition from A.I.`\
 https://nytimes.com/2024/06/13/technology/facebook-fake-news-culture-wars.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/nyregion/sandy-hook-survivors-graduation-newtown.
 **U.S. and other large economies agree on a plan to loan $50 billion to Ukraine.**\
 `The money will be used to help`\
 https://nytimes.com/live/2024/06/13/world/g7-summit-italy/us-and-other-large-economies-agree-on-a-plan-to-loan-50-billion-to-ukraine
-
-**‘Brats’: What to Know About Andrew McCarthy’s Look Back at the ’80s Stars**\
-`A new documentary revisits the group of young actors that helped define the decade. Here are some of its most interesting moments.`\
-https://nytimes.com/2024/06/13/movies/brat-pack-documentary-takeaways.html
 
