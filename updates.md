@@ -1,3 +1,7 @@
+**‘Oddly Satisfying’ Cow Pedicure Videos Are a Hit on TikTok**\
+`In one corner of the internet, professional trimmers grind and buff away at cow hooves to the delight of millions of spellbound social media users.`\
+https://nytimes.com/2024/06/13/style/nate-hoof-guy-tiktok.html
+
 **NATO defense chiefs pledge more aid for Ukraine, and carve out an exception for Hungary.**\
 `By Lara Jakes`\
 https://nytimes.com/live/2024/06/13/world/g7-summit-italy/nato-defense-chiefs-pledge-more-aid-for-ukraine-and-carve-out-an-exception-for-hungary

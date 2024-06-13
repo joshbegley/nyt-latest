@@ -1,3 +1,7 @@
+**‘Oddly Satisfying’ Cow Pedicure Videos Are a Hit on TikTok**\
+`In one corner of the internet, professional trimmers grind and buff away at cow hooves to the delight of millions of spellbound social media users.`\
+https://nytimes.com/2024/06/13/style/nate-hoof-guy-tiktok.html
+
 **NATO defense chiefs pledge more aid for Ukraine, and carve out an exception for Hungary.**\
 `By Lara Jakes`\
 https://nytimes.com/live/2024/06/13/world/g7-summit-italy/nato-defense-chiefs-pledge-more-aid-for-ukraine-and-carve-out-an-exception-for-hungary
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/opinion/supreme-court-alito.html
 **The Writer Behind the Most-Nominated Play in Broadway History**\
 `David Adjmi discusses “Stereophonic.”`\
 https://nytimes.com/2024/06/13/podcasts/the-writer-behind-the-most-nominated-play-in-broadway-history.html
-
-**How ‘Bridgerton’ Makes History**\
-`Described by its showrunner as “definitely a fantasy,” the hit series relies on a team of historical consultants. Does the show take their advice? Mostly.`\
-https://nytimes.com/2024/06/13/arts/television/bridgerton-history-consultants.html
 
