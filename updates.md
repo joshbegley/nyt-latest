@@ -1,3 +1,11 @@
+**Quotation of the Day: For Even the Best Sherpas, There Is No Escaping the Danger**\
+`Quotation of the Day for Thursday, June 13, 2024.`\
+https://nytimes.com/2024/06/12/pageoneplus/quotation-of-the-day-for-even-the-best-sherpas-there-is-no-escaping-the-danger.html
+
+**Corrections: June 13, 2024**\
+`Corrections that appeared in print on Thursday, June 13, 2024.`\
+https://nytimes.com/2024/06/12/pageoneplus/corrections-june-13-2024.html
+
 **Light Craft Material**\
 `Kevin Curry offers a different read on things.`\
 https://nytimes.com/2024/06/12/crosswords/daily-puzzle-2024-06-13.html

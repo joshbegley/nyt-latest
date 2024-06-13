@@ -1,3 +1,11 @@
+**Quotation of the Day: For Even the Best Sherpas, There Is No Escaping the Danger**\
+`Quotation of the Day for Thursday, June 13, 2024.`\
+https://nytimes.com/2024/06/12/pageoneplus/quotation-of-the-day-for-even-the-best-sherpas-there-is-no-escaping-the-danger.html
+
+**Corrections: June 13, 2024**\
+`Corrections that appeared in print on Thursday, June 13, 2024.`\
+https://nytimes.com/2024/06/12/pageoneplus/corrections-june-13-2024.html
+
 **Light Craft Material**\
 `Kevin Curry offers a different read on things.`\
 https://nytimes.com/2024/06/12/crosswords/daily-puzzle-2024-06-13.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/06/12/world/middleeast/yemen-houthis-red-sea-ship.html
 **Senate Republicans Block Supreme Court Ethics Measure Pushed by Democrats**\
 `Democrats made what they knew was a doomed attempt as they faced pressure from the left to do more to try to hold the court accountable.`\
 https://nytimes.com/2024/06/12/us/politics/supreme-court-ethics-bill-blocked.html
-
-**Democrats Plan to Turn Statehouses Blue by Dishing Out Green**\
-`The spending blitz showcases the importance of state legislatures in 2024.`\
-https://nytimes.com/2024/06/12/us/politics/democrats-states-project.html
-
-**Akira Endo, Scholar of Statins That Reduce Heart Disease, Dies at 90**\
-`The Japanese biochemist found in the 1970s that cholesterol-lowering drugs lowered the LDL, or “bad” cholesterol, level in the blood.`\
-https://nytimes.com/2024/06/12/world/asia/akira-endo-dead.html
 
