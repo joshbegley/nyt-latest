@@ -1,3 +1,7 @@
+**Senate G.O.P. Blocks I.V.F. Access Bill as Democrats Press for Political Edge**\
+`The failed test vote was the latest move by Democrats to highlight reproductive issues in the run-up to the elections in November.`\
+https://nytimes.com/2024/06/13/us/politics/ivf-access-bill-republicans.html
+
 **What Are Your Experiences With Marijuana and Driving?**\
 `As more people use marijuana, we’re exploring the implications for road safety.`\
 https://nytimes.com/2024/06/13/us/marijuana-road-safety.html
