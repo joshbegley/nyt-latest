@@ -1,3 +1,11 @@
+**Makah Tribe Wins Federal Approval to Hunt Gray Whales**\
+`After decades of legal battles, federal regulators are allowing the tribe to hunt up to 25 whales in the next decade off the coast of Washington State.`\
+https://nytimes.com/2024/06/13/us/makah-whales-hunting-noaa.html
+
+**Mail-Order Abortions, Protected by Court for Now, Are Growing Rapidly**\
+`One-fifth of abortions are being done via telehealth, nearly half in states with abortion bans or restrictions.`\
+https://nytimes.com/2024/06/13/upshot/abortion-pills-supreme-court.html
+
 **Abortion Ruling Has Nothing to Do With the Pills’ Safety or Morality**\
 `The opinion in the case focused entirely on standing, the legal doctrine that requires plaintiffs to show that they have suffered direct and concrete injuries in order to sue.`\
 https://nytimes.com/2024/06/13/us/politics/abortion-pill-standing.html
