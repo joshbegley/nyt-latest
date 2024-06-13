@@ -1,3 +1,11 @@
+**Plumbing the Depths of Darkness, and Finding Liberation**\
+`As a creator of horror films, I often face my fears by sharing them onscreen.`\
+https://nytimes.com/2024/06/13/special-series/robert-eggers-the-witch-fear.html
+
+**G.O.P. Says Protest Zone Will Be Moved Away From Convention Site**\
+`Republican officials said the Secret Service had agreed to move a Milwaukee park into the security zone, but the agency said no final decision had been made.`\
+https://nytimes.com/2024/06/13/us/politics/protest-zone-republican-national-convention.html
+
 **This Top Democrat Isn’t Afraid to Call Trump a Felon and a Grifter**\
 `Most of the party’s leaders want to avoid too much focus on Donald Trump’s felonies. JB Pritzker, the governor of Illinois, feels differently.`\
 https://nytimes.com/2024/06/13/us/politics/trump-jb-pritzker-felony.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/13/weather/florida-flooding-rain.html
 **In a First, Pope Plans to Attend G7 Summit**\
 `Francis is expected to join world leaders for the meeting in southern Italy to discuss the ethical implications of artificial intelligence.`\
 https://nytimes.com/2024/06/13/world/europe/pope-francis-g7-summit.html
-
-**If You Know What ‘Brainrot’ Means, You Might Already Have It**\
-`A popular term captures the condition of being terminally online, with humor and pathos.`\
-https://nytimes.com/2024/06/13/style/brainrot-internet-addiction-social-media-tiktok.html
-
-**‘Shoeshine’: Before ‘Bicycle Thieves,’ a Tragic Farce**\
-`Hailed as a shocker when it opened in 1947, Vittorio De Sica’s movie about juvenile delinquency gets an extended run at Film Forum in a new 4K restoration.`\
-https://nytimes.com/2024/06/13/arts/shoeshine-movie.html
 
