@@ -1,3 +1,7 @@
+**How Will History Remember Jill Biden?**\
+`The last half-dozen or so presidential wives have run the gamut.`\
+https://nytimes.com/live/2024/06/12/opinion/thepoint/jill-biden-first-lady
+
 **At a meeting of a Ukraine defense alliance, Austin pledges to keep sending military aid.**\
 `By John Ismay`\
 https://nytimes.com/live/2024/06/13/world/g7-summit-italy/at-a-meeting-of-a-ukraine-defense-alliance-austin-pledges-to-keep-sending-military-aid
