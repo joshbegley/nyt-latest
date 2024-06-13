@@ -1,3 +1,7 @@
+**The case centered on mifepristone, a drug long approved by the F.D.A. Here’s the latest.**\
+`By Abbie VanSickle`\
+https://nytimes.com/live/2024/06/13/us/abortion-pill-supreme-court/heres-the-latest-on-the-decision
+
 **Read the Court’s Decision to Uphold Access to Abortion Pill**\
 `The Supreme Court upheld access to a widely available abortion pill, rejecting a bid from a group of anti-abortion organizations and doctors to unravel the Food and Drug Administration’s approval of the pill.`\
 https://nytimes.com/interactive/2024/06/13/us/scotus-pill.html
