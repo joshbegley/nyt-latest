@@ -1,3 +1,11 @@
+**Israel and Hezbollah trade attacks across a volatile border.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/06/13/world/israel-gaza-war-hamas/hezbollah-israel-rockets-strike
+
+**Kendall Toole, a Popular Peloton Instructor, Announces Her Departure**\
+`Ms. Toole shared the news in an Instagram reel on Thursday morning, adding that she was grateful for her time at Peloton, the connected-fitness company.`\
+https://nytimes.com/2024/06/13/business/peloton-kendall-toole-leaving.html
+
 **How Will History Remember Jill Biden?**\
 `The last half-dozen or so presidential wives have run the gamut.`\
 https://nytimes.com/live/2024/06/12/opinion/thepoint/jill-biden-first-lady
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/13/climate/supreme-court-hawaii-climate-oil-companie
 **Missing a Global Climate Target Could Spell Disaster for These Polar Bears**\
 `One group in Hudson Bay might have roughly a decade left because sea ice is becoming too thin to support them as they hunt, according to new research.`\
 https://nytimes.com/2024/06/13/climate/polar-bear-population-climate-change.html
-
-**Palestinians Report Heavy Bombardments in the Rafah Area**\
-`Israel’s military said its forces were pressing on with operations in Rafah, where they were engaged in “face-to-face encounters” with Hamas fighters.`\
-https://nytimes.com/2024/06/13/world/middleeast/israel-rafah-airstrikes.html
-
-**Listen to the Best Tracks From 8 Tony-Nominated Shows**\
-`“Hell’s Kitchen,” “Stereophonic” and others are up for top prizes at Sunday’s ceremony. Our critic takes stock of their cast albums, all available now.`\
-https://nytimes.com/2024/06/13/theater/cast-albums-broadway-tony-awards.html
 
