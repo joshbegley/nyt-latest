@@ -1,6 +1,6 @@
 **Justice Department Chides Phoenix Police Over Civil Rights Violations**\
 `The department’s report comes after a three-year investigation into complaints of brutality and discrimination by law enforcement that the city says has been burdensome.`\
-https://nytimes.com/2024/06/13/us/politics/justice-department-chides-phoenix-police-over-civil-rights-violations.html
+https://nytimes.com/2024/06/13/us/politics/justice-department-phoenix-police.html
 
 **9 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
