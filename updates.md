@@ -1,3 +1,11 @@
+**How California, Once Flush, Got Stuck With a Budget Shortfall**\
+`Lawmakers passed a preliminary budget that technically meets a legal deadline while they work out final details. State finances have fluctuated wildly in recent years.`\
+https://nytimes.com/2024/06/13/us/california-budget-explainer.html
+
+**Tyson Foods Suspends Executive After Second Alcohol-Related Arrest**\
+`John Randal Tyson, a fourth-generation member of the Tyson family business, was charged with driving while intoxicated, the company said, two years after he was found asleep in a stranger’s house.`\
+https://nytimes.com/2024/06/13/business/john-randal-tyson-foods-arrest.html
+
 **What Happens When a Defendant Gets Covid-19 During Trial?**\
 `Fred Daibes, a real estate developer charged with Senator Robert Menendez, began feeling sick during the fifth week of the corruption trial, delaying it for at least a few days.`\
 https://nytimes.com/2024/06/13/nyregion/covid-robert-menendez-trial-delay.html
