@@ -1,3 +1,15 @@
+**A Brief History of the Phrase ‘No One Is Above the Law’**\
+`With the recent convictions of a former president and a president’s son, a saying is getting a moment in the spotlight, as it has many times before.`\
+https://nytimes.com/2024/06/13/us/politics/trump-biden-no-one-is-above-the-law.html
+
+**Idina Menzel Will Return to Broadway in ‘Redwood’**\
+`The new musical, about a woman seeking healing, is to arrive early next year.`\
+https://nytimes.com/2024/06/13/theater/idina-menzel-broadway-redwood.html
+
+**How California Grew a Service Corps Larger Than the Peace Corps**\
+`The state’s various programs enroll 10,000 service members a year.`\
+https://nytimes.com/2024/06/13/us/california-service-corps.html
+
 **After a Deluge Floods Streets, South Florida Braces for More Rain**\
 `Hundreds of flights were canceled, and the governor declared a state of emergency in several counties. More downpours are expected.`\
 https://nytimes.com/2024/06/13/weather/florida-flooding-rain.html
