@@ -1,3 +1,15 @@
+**Police Official Charged After a Drunken Commute Ends in a Crash**\
+`Prosecutors say Deputy Inspector Paul Zangrilli and a girlfriend drove from a bar near Penn Station to his precinct, leaving behind a trail of battered vehicles and lies.`\
+https://nytimes.com/2024/06/13/nyregion/nypd-paul-zangrilli-drunk-driving.html
+
+**Guns Often Stored Unsafely in U.S. Homes, C.D.C. Survey Suggests**\
+`Loaded guns often are not locked, even in homes where there are children, federal researchers reported.`\
+https://nytimes.com/2024/06/13/health/gun-storage-homes-children.html
+
+**Biden Says He Won’t Commute Son’s Sentence on Gun Charges**\
+`“I said I’d abide by the jury decision,” the president said. “I will do that.”`\
+https://nytimes.com/2024/06/13/us/politics/biden-hunter-commute-sentence.html
+
 **A Rising Star and a Team in the Finals Rekindle Memories in a Changed City**\
 `The return of the Edmonton Oilers to the Stanley Cup finals after 18 years has brightened up Alberta’s capital after some difficult times.`\
 https://nytimes.com/2024/06/13/stanley-cup-edmonton-oilers.html
