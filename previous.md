@@ -1,3 +1,7 @@
+**Disney and DeSantis Reach Agreement, Ending Protracted Fight**\
+`The deal locks in a 15-year expansion plan for Disney World and clears a path for Disney to restart political donations in Florida.`\
+https://nytimes.com/2024/06/12/business/disney-desantis-agreement.html
+
 **Hunter Biden Is Expected to Appeal Conviction on Gun Charges**\
 `Lawyers for Mr. Biden are considering a number of challenges to the guilty verdict, including one based on the Second Amendment.`\
 https://nytimes.com/2024/06/12/us/politics/hunter-biden-conviction-appeal.html
@@ -10,8 +14,8 @@ https://nytimes.com/2024/06/12/world/christophe-deloire-dead.html
 `The Western Governors’ Association celebrated its 40th anniversary with high hopes and low turnout.`\
 https://nytimes.com/2024/06/12/us/politics/western-governors-association-bipartisanship.html
 
-**The Houthis attack a merchant ship off Yemen’s coast.**\
-`A British government maritime agency said the Greek-owned bulk carrier had taken on water and was not under command of the crew.`\
+**Houthis Attack Merchant Ship in Red Sea Off Yemen’s Coast**\
+`The Iran-backed militia has launched dozens of attacks on shipping vessels in the vital sea route in support of Palestinians in Gaza.`\
 https://nytimes.com/2024/06/12/world/middleeast/yemen-houthis-red-sea-ship.html
 
 **Senate Republicans Block Supreme Court Ethics Measure Pushed by Democrats**\
@@ -29,8 +33,4 @@ https://nytimes.com/2024/06/12/world/asia/akira-endo-dead.html
 **SpaceX Is Sued by Employees Fired After Criticizing Musk**\
 `The eight workers say they were wrongfully fired after circulating a memo raising concerns about sexual harassment at the rocket company led by Elon Musk.`\
 https://nytimes.com/2024/06/12/business/spacex-employees-elon-musk-lawsuit.html
-
-**Blinken Calls Hamas Changes to Cease-Fire Proposal Unworkable**\
-`While the U.S. secretary of state kept up the pressure for a halt to the hostilities in Gaza, Israel and Hamas still appeared to be far from reaching a deal.`\
-https://nytimes.com/2024/06/12/world/middleeast/israel-hamas-gaza-cease-fire-blinken.html
 

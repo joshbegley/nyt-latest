@@ -1,3 +1,11 @@
+**Disney and DeSantis Reach Agreement, Ending Protracted Fight**\
+`The deal locks in a 15-year expansion plan for Disney World and clears a path for Disney to restart political donations in Florida.`\
+https://nytimes.com/2024/06/12/business/disney-desantis-agreement.html
+
+**Houthis Attack Merchant Ship in Red Sea Off Yemen’s Coast**\
+`The Iran-backed militia has launched dozens of attacks on shipping vessels in the vital sea route in support of Palestinians in Gaza.`\
+https://nytimes.com/2024/06/12/world/middleeast/yemen-houthis-red-sea-ship.html
+
 **The Houthis attack a merchant ship off Yemen’s coast.**\
 `A British government maritime agency said the Greek-owned bulk carrier had taken on water and was not under command of the crew.`\
 https://nytimes.com/2024/06/12/world/middleeast/yemen-houthis-red-sea-ship.html
