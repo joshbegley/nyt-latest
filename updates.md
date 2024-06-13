@@ -1,3 +1,7 @@
+**Officers Pull Over Van With Obscured Plate and Find an Armory**\
+`After the arrest in Queens, investigators are trying to discern what the man they stopped might have been planning. They seized a gun, ammunition and other weapons.`\
+https://nytimes.com/2024/06/13/nyregion/van-guns-weapons-queens-nypd.html
+
 **Rabbi Moshe Kotlarsky, 74, Dies; Expanded Chabad’s Global Reach**\
 `Chabad, one observer said, is “in more places in the world than any other Hasidic group and most visible to the world because of their outreach — largely thanks to Kotlarsky,”`\
 https://nytimes.com/2024/06/13/nyregion/rabbi-moshe-kotlarsky-dead.html
