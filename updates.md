@@ -1,3 +1,19 @@
+**For Rogue Smoke Shops in New York, the ‘Party’s Over’**\
+`The city is flexing its new enforcement powers to close hundreds of unlicensed cannabis stores. Critics have likened some of the authorities’ tactics to those used during the war on drugs.`\
+https://nytimes.com/2024/06/13/nyregion/nyc-weed-cannabis-shops.html
+
+**Living Out Loud, Headphones Nowhere to Be Found**\
+`Welcome to their conversation. (Or YouTube video. Or baseball game.) For people bothered by the liberal use of speakerphones, the public sphere can be a circle of hell.`\
+https://nytimes.com/2024/06/13/style/headphones-phone-etiquette.html
+
+**What to Know About Social Media Protections for Children in New York**\
+`New York State has enacted legislation that will require minors to get their parents’ consent to allow social media sites to use algorithms to determine their children’s social feeds.`\
+https://nytimes.com/2024/06/13/nyregion/social-media-protections-minors.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/06/13/crosswords/spelling-bee-forum.html
+
 **Jimmy Fallon Tracks Biden’s Summer Abroad**\
 `“Yeah, the president is in Italy for the G7 Summit, or as Fox News put it: ‘Biden Flees Country After Hunter Convicted,’” Fallon said.`\
 https://nytimes.com/2024/06/13/arts/television/jimmy-fallon-biden-summer-europe.html
