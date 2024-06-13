@@ -1,3 +1,7 @@
+**Outage Leaves About 350,000 Customers in Puerto Rico Without Power**\
+`The outage affected customers in the island’s capital and surrounding areas following planned maintenance work on transmission lines at power plants.`\
+https://nytimes.com/2024/06/13/us/puerto-rico-outage.html
+
 **Janet Yellen: Use Russia’s Assets to Support Ukraine**\
 `The U.S. treasury secretary explains why America and its allies should unlock the value of Russian capital immobilized at the start of the war to give Ukraine the financing it needs. `\
 https://nytimes.com/2024/06/13/opinion/janet-yellen-ukraine-russia-g7.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/business/elon-musk-tesla-vote-sweden-norway.html
 **Tesla Share Price Is Its Own Referendum on Musk**\
 `A huge run-up in the stock’s value followed a 2018 vote on Elon Musk’s compensation package. But investors have recently become less enamored.`\
 https://nytimes.com/2024/06/13/business/tesla-stock-elon-musk.html
-
-**Montana Has More Cows Than People. Why Are Locals Eating Beef From Brazil?**\
-`Cole Mannix, of Old Salt Co-op, is trying to change local appetites and upend an industry controlled by multibillion-dollar meatpackers.`\
-https://nytimes.com/2024/06/13/business/montana-meat-old-salt-co-op.html
 
