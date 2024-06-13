@@ -1,3 +1,7 @@
+**Israeli finance minister diverts Palestinian funds to terrorism victims.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/06/13/world/israel-gaza-war-hamas/israeli-finance-minister-diverts-palestinian-funds-to-terrorism-victims
+
 **Abortion Rights Groups Celebrate Win but See Risks Ahead**\
 `Supporters of abortion rights hailed the ruling on a challenge they said was fueled by junk science, but warned that it only maintained the status quo as more challenges loomed.`\
 https://nytimes.com/2024/06/13/us/politics/abortion-rights-groups-supreme-court-ruling.html
