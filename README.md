@@ -1,3 +1,7 @@
+**The Aftermath of a U.K. Cyberattack: Blood Shortages and Delayed Operations**\
+`Several London hospitals, still reeling from a cyberattack last week, have made an urgent plea to medical students to help stem the disruption.`\
+https://nytimes.com/2024/06/13/world/europe/nhs-london-hospital-cyberattack.html
+
 **Yes, abortion pills are safe. Here’s what studies have shown.**\
 `The latest research adds to an extensive scientific record showing the pills are a safe option for terminating a pregnancy.`\
 https://nytimes.com/live/2024/06/13/us/abortion-pill-supreme-court/yes-abortion-pills-are-safe-heres-what-studies-have-shown
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/13/us/abortion-pill-supreme-court/how-common-is
 **Live Updates: Supreme Court Upholds Broad Access to Abortion Pill**\
 `The justices unanimously rejected a bid to sharply curtail access to a widely available abortion pill, finding that the plaintiffs did not have standing to sue.`\
 https://nytimes.com/live/2024/06/13/us/abortion-pill-supreme-court
-
-**Plumbing the Depths of Darkness, and Finding Liberation**\
-`As a creator of horror films, I often face my fears by sharing them onscreen.`\
-https://nytimes.com/2024/06/13/special-series/robert-eggers-the-witch-fear.html
 
