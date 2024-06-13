@@ -1,3 +1,15 @@
+**Police Official Charged After a Drunken Commute Ends in a Crash**\
+`Prosecutors say Deputy Inspector Paul Zangrilli and a girlfriend drove from a bar near Penn Station to his precinct, leaving behind a trail of battered vehicles and lies.`\
+https://nytimes.com/2024/06/13/nyregion/nypd-paul-zangrilli-drunk-driving.html
+
+**Guns Often Stored Unsafely in U.S. Homes, C.D.C. Survey Suggests**\
+`Loaded guns often are not locked, even in homes where there are children, federal researchers reported.`\
+https://nytimes.com/2024/06/13/health/gun-storage-homes-children.html
+
+**Biden Says He Won’t Commute Son’s Sentence on Gun Charges**\
+`“I said I’d abide by the jury decision,” the president said. “I will do that.”`\
+https://nytimes.com/2024/06/13/us/politics/biden-hunter-commute-sentence.html
+
 **A Rising Star and a Team in the Finals Rekindle Memories in a Changed City**\
 `The return of the Edmonton Oilers to the Stanley Cup finals after 18 years has brightened up Alberta’s capital after some difficult times.`\
 https://nytimes.com/2024/06/13/stanley-cup-edmonton-oilers.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/13/us/politics/trump-corporate-tax-rate.html
 **Where to Eat: At The Bar**\
 `Best seat in the house, no question.`\
 https://nytimes.com/2024/06/13/dining/where-to-eat-at-the-bar.html
-
-**Lawmakers Question Microsoft’s President About Its Presence in China**\
-`Brad Smith testified before a House committee a year after Chinese hackers infiltrated Microsoft’s technology and penetrated government networks.`\
-https://nytimes.com/2024/06/13/technology/microsoft-house-hearing-security.html
-
-**Behind Closed Doors, Trump Disparages Milwaukee, Host of His Party’s Convention**\
-`The former president, in a meeting with G.O.P. House members, brought up the city’s crime rate and falsely claimed voter fraud was rampant there in 2020.`\
-https://nytimes.com/2024/06/13/us/politics/trump-milwaukee-rnc.html
-
-**The Abortion Pill Stays Legal. But for How Long?**\
-`A ruling on technical grounds means a widely used drug will soon come under attack again.`\
-https://nytimes.com/2024/06/13/opinion/abortion-pill-mifepristone-scotus.html
 
