@@ -1,3 +1,7 @@
+**Tesla Shareholders Approve Big Stock Package for Musk**\
+`The vote was seen as a referendum on his management of the electric car maker and on the limits of executive pay.`\
+https://nytimes.com/2024/06/13/business/tesla-shareholder-vote-elon-musk.html
+
 **Storms Don’t Need a Name to Wreak Havoc in South Florida**\
 `Between days of excessive heat and days of unrelenting storms, the summer rainy season is starting to feel different — and highly unpredictable.`\
 https://nytimes.com/2024/06/13/us/south-florida-flood-rain-storms.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/opinion/abortion-pill-mifepristone-scotus.html
 **A Hollywood Heavyweight Is Biden’s Secret Weapon Against Trump**\
 `The longtime movie mogul Jeffrey Katzenberg always sought scary villains for his films. Now he has found what he considers a real-life one in Donald J. Trump.`\
 https://nytimes.com/2024/06/13/us/politics/biden-jeffrey-katzenberg-trump.html
-
-**Snap Election in France Sets Off a Wild Week of Politics**\
-`President Emmanuel Macron’s sudden call for new parliamentary elections has created chaos on the right and fostered rare unity on the left.`\
-https://nytimes.com/2024/06/13/world/europe/france-snap-election-macron.html
 

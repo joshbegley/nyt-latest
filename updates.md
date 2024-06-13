@@ -1,3 +1,7 @@
+**Tesla Shareholders Approve Big Stock Package for Musk**\
+`The vote was seen as a referendum on his management of the electric car maker and on the limits of executive pay.`\
+https://nytimes.com/2024/06/13/business/tesla-shareholder-vote-elon-musk.html
+
 **Storms Don’t Need a Name to Wreak Havoc in South Florida**\
 `Between days of excessive heat and days of unrelenting storms, the summer rainy season is starting to feel different — and highly unpredictable.`\
 https://nytimes.com/2024/06/13/us/south-florida-flood-rain-storms.html
