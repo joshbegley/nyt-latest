@@ -1,3 +1,11 @@
+**How California, Once Flush, Got Stuck With a Budget Shortfall**\
+`Lawmakers passed a preliminary budget that technically meets a legal deadline while they work out final details. State finances have fluctuated wildly in recent years.`\
+https://nytimes.com/2024/06/13/us/california-budget-explainer.html
+
+**Tyson Foods Suspends Executive After Second Alcohol-Related Arrest**\
+`John Randal Tyson, a fourth-generation member of the Tyson family business, was charged with driving while intoxicated, the company said, two years after he was found asleep in a stranger’s house.`\
+https://nytimes.com/2024/06/13/business/john-randal-tyson-foods-arrest.html
+
 **What Happens When a Defendant Gets Covid-19 During Trial?**\
 `Fred Daibes, a real estate developer charged with Senator Robert Menendez, began feeling sick during the fifth week of the corruption trial, delaying it for at least a few days.`\
 https://nytimes.com/2024/06/13/nyregion/covid-robert-menendez-trial-delay.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/13/nyregion/nj-principal-grand-jury.html
 **At X Staff Meetings, Executives Talk Up Return of Advertisers**\
 `Still, Elon Musk, who owns the platform, and his chief executive Linda Yaccarino, have work to do to grow the business, leaders told employees.`\
 https://nytimes.com/2024/06/13/technology/x-elon-musk-linda-yaccarino.html
-
-**Officers Pull Over Van With Obscured Plate and Find an Armory**\
-`After the arrest in Queens, investigators are trying to discern what the man they stopped might have been planning. They seized a gun, ammunition and other weapons.`\
-https://nytimes.com/2024/06/13/nyregion/van-guns-weapons-queens-nypd.html
-
-**Rabbi Moshe Kotlarsky, 74, Dies; Expanded Chabad’s Global Reach**\
-`Chabad, one observer said, is “in more places in the world than any other Hasidic group and most visible to the world because of their outreach — largely thanks to Kotlarsky,”`\
-https://nytimes.com/2024/06/13/nyregion/rabbi-moshe-kotlarsky-dead.html
 
