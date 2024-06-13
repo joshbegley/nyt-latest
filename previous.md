@@ -1,3 +1,15 @@
+**Debating Covid’s Origins: A Lab or a Market?**\
+`Responses to a guest essay asserting that the pandemic likely began with a lab leak. Also: President Biden’s image problems; “junk fees” in restaurants.`\
+https://nytimes.com/2024/06/13/opinion/covid-origins-lab-market.html
+
+**Former Bank Bailout Watchdog Is Choice to Lead F.D.I.C.**\
+`Christy Goldsmith Romero has been nominated to be the next chair of the bank regulator that has been shaken by a “toxic” workplace culture.`\
+https://nytimes.com/2024/06/13/business/fdic-choice-christy-goldsmith-romero.html
+
+**The Legal Battle Over Abortion Pills Will Likely Continue**\
+`Though the Supreme Court ruled upheld access to mifepristone, the case is likely to be revived by three Republican-led states as the plaintiffs.`\
+https://nytimes.com/2024/06/13/us/politics/supreme-court-abortion-pill-ruling-future.html
+
 **Justice Department Chides Phoenix Police Over Civil Rights Violations**\
 `The department’s report comes after a three-year investigation into complaints of brutality and discrimination by law enforcement that the city says has been burdensome.`\
 https://nytimes.com/2024/06/13/us/politics/justice-department-phoenix-police.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/13/sports/autoracing/le-mans-nyck-de-vries-driving.h
 **Makah Tribe Wins Federal Approval to Hunt Gray Whales**\
 `After decades of legal battles, federal regulators are allowing the tribe to hunt up to 25 whales in the next decade off the coast of Washington State.`\
 https://nytimes.com/2024/06/13/us/makah-whales-hunting-noaa.html
-
-**Abortion Ruling Has Nothing to Do With the Pills’ Safety or Morality**\
-`The opinion in the case focused entirely on standing, the legal doctrine that requires plaintiffs to show that they have suffered direct and concrete injuries in order to sue.`\
-https://nytimes.com/2024/06/13/us/politics/abortion-pill-standing.html
-
-**The Magnet Fisherman’s Dilemma: What to Do With $70,000 Before It Disintegrates**\
-`James Kane pulled a safe filled with stacks of hundred dollar bills from a creek in Queens. That, it turns out, was the easy part.`\
-https://nytimes.com/2024/06/13/nyregion/couple-magnet-fishing-safe-nyc.html
-
-**Frank Carroll, Prominent Figure Skating Coach, Dies at 85**\
-`He had a star-studded roster of students, including Michelle Kwan and Linda Fratianne. But he did not coach an Olympic gold medalist until Evan Lysacek won in 2010.`\
-https://nytimes.com/2024/06/13/sports/olympics/frank-carroll-dead.html
 

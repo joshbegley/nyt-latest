@@ -1,3 +1,15 @@
+**Debating Covid’s Origins: A Lab or a Market?**\
+`Responses to a guest essay asserting that the pandemic likely began with a lab leak. Also: President Biden’s image problems; “junk fees” in restaurants.`\
+https://nytimes.com/2024/06/13/opinion/covid-origins-lab-market.html
+
+**Former Bank Bailout Watchdog Is Choice to Lead F.D.I.C.**\
+`Christy Goldsmith Romero has been nominated to be the next chair of the bank regulator that has been shaken by a “toxic” workplace culture.`\
+https://nytimes.com/2024/06/13/business/fdic-choice-christy-goldsmith-romero.html
+
+**The Legal Battle Over Abortion Pills Will Likely Continue**\
+`Though the Supreme Court ruled upheld access to mifepristone, the case is likely to be revived by three Republican-led states as the plaintiffs.`\
+https://nytimes.com/2024/06/13/us/politics/supreme-court-abortion-pill-ruling-future.html
+
 **Justice Department Chides Phoenix Police Over Civil Rights Violations**\
 `The department’s report comes after a three-year investigation into complaints of brutality and discrimination by law enforcement that the city says has been burdensome.`\
 https://nytimes.com/2024/06/13/us/politics/justice-department-phoenix-police.html
