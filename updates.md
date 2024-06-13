@@ -1,3 +1,7 @@
+**This Top Democrat Isn’t Afraid to Call Trump a Felon and a Grifter**\
+`Most of the party’s leaders want to avoid too much focus on Donald Trump’s felonies. JB Pritzker, the governor of Illinois, feels differently.`\
+https://nytimes.com/2024/06/13/us/politics/trump-jb-pritzker-felony.html
+
 **Russian Prosecutors Finalize Indictment of Evan Gershkovich**\
 `The Wall Street Journal reporter will be tried on a spying charge in Yekaterinburg, the city where he was arrested more than a year ago.`\
 https://nytimes.com/2024/06/13/world/europe/evan-gershkovich-russia-indictment.html
