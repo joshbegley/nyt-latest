@@ -1,3 +1,7 @@
+**Heavy Rain Causes Devastating Flooding in Florida**\
+`The deluge, which began Tuesday afternoon, dumped more than 10 inches in some areas, forecasters said.`\
+https://nytimes.com/2024/06/13/us/florida-photos-floods-storms-miami.html
+
 **Outage Leaves About 350,000 Customers in Puerto Rico Without Power**\
 `The outage affected customers in the island’s capital and surrounding areas following planned maintenance work on transmission lines at power plants.`\
 https://nytimes.com/2024/06/13/us/puerto-rico-outage.html

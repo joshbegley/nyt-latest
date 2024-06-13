@@ -1,3 +1,7 @@
+**Heavy Rain Causes Devastating Flooding in Florida**\
+`The deluge, which began Tuesday afternoon, dumped more than 10 inches in some areas, forecasters said.`\
+https://nytimes.com/2024/06/13/us/florida-photos-floods-storms-miami.html
+
 **Outage Leaves About 350,000 Customers in Puerto Rico Without Power**\
 `The outage affected customers in the island’s capital and surrounding areas following planned maintenance work on transmission lines at power plants.`\
 https://nytimes.com/2024/06/13/us/puerto-rico-outage.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/business/100000009494790/china-robot-taxi-driverless.h
 **Tesla’s Nordic Shareholders Seek to Promote Workers’ Rights in Vote**\
 `Tesla mechanics in Sweden have been striking for six months with little movement from their employer. Nordic shareholders hope to change that.`\
 https://nytimes.com/2024/06/13/business/elon-musk-tesla-vote-sweden-norway.html
-
-**Tesla Share Price Is Its Own Referendum on Musk**\
-`A huge run-up in the stock’s value followed a 2018 vote on Elon Musk’s compensation package. But investors have recently become less enamored.`\
-https://nytimes.com/2024/06/13/business/tesla-stock-elon-musk.html
 
