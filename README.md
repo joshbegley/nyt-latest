@@ -1,3 +1,7 @@
+**Anti-Abortion Activists Press Ahead After Supreme Court Ruling**\
+`The activists were disappointed but planned to adapt strategies after the Supreme Court upheld access to a widely available abortion pill.`\
+https://nytimes.com/2024/06/13/us/politics/anti-abortion-activists-supreme-court.html
+
 **Easy, Superb Summer Cooking**\
 `Zucchini salad with bread crumbs! Cold sesame noodles with corn and basil! Tomato! Cheddar! Toasts!`\
 https://nytimes.com/2024/06/13/dining/easy-superb-summer-cooking.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/sports/autoracing/24-hours-le-mans-manufacturers.
 **In 1924, Bentley Began Its Dominance at Le Mans**\
 `The team won so often in the early years that its drivers were called the Bentley Boys.`\
 https://nytimes.com/2024/06/13/sports/autoracing/24-hours-le-mans-bentley.html
-
-**Nyck de Vries Goes From an F1 Exit to Le Mans**\
-`He lost his job in Formula 1, but was grabbed by Toyota to drive in the 24 Hours of Le Mans.`\
-https://nytimes.com/2024/06/13/sports/autoracing/le-mans-nyck-de-vries-driving.html
 
