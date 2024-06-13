@@ -1,3 +1,23 @@
+**‘I Know What It’s Like to Struggle,’ Biden Says in New Ad on Inflation**\
+`Inflation has cooled but many voters give significantly higher marks to President Biden’s opponent, Donald J. Trump, on the economy.`\
+https://nytimes.com/2024/06/13/us/politics/biden-ad-inflation-trump.html
+
+**Here’s the latest on the decision.**\
+`By Abbie VanSickle`\
+https://nytimes.com/live/2024/06/13/us/abortion-pill-supreme-court/heres-the-latest-on-the-decision
+
+**What is mifepristone and how is it used?**\
+`More than half of people who get legal abortions in the United States — and three-quarters in Europe — use medication abortion.`\
+https://nytimes.com/live/2024/06/13/us/abortion-pill-supreme-court/what-is-mifepristone-and-how-is-it-used
+
+**How common is medication abortion?**\
+`It’s now the most used abortion method.`\
+https://nytimes.com/live/2024/06/13/us/abortion-pill-supreme-court/how-common-is-medication-abortion
+
+**Live Updates: Supreme Court Upholds Broad Access to Abortion Pill**\
+`The justices unanimously rejected a bid to sharply curtail access to a widely available abortion pill, finding that the plaintiffs did not have standing to sue.`\
+https://nytimes.com/live/2024/06/13/us/abortion-pill-supreme-court
+
 **Plumbing the Depths of Darkness, and Finding Liberation**\
 `As a creator of horror films, I often face my fears by sharing them onscreen.`\
 https://nytimes.com/2024/06/13/special-series/robert-eggers-the-witch-fear.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/06/13/world/europe/evan-gershkovich-russia-indictment.h
 **New Party in South Africa to Boycott Opening of Parliament**\
 `UMkhonto weSizwe, which is led by Jacob Zuma, the populist former president, has asserted that the recent election was rigged and the results illegitimate.`\
 https://nytimes.com/2024/06/13/world/africa/south-africa-parliament-boycott-zuma.html
-
-**A Brief History of the Phrase ‘No One Is Above the Law’**\
-`With the recent convictions of a former president and a president’s son, a saying is getting a moment in the spotlight, as it has many times before.`\
-https://nytimes.com/2024/06/13/us/politics/trump-biden-no-one-is-above-the-law.html
-
-**Idina Menzel Will Return to Broadway in ‘Redwood’**\
-`The new musical, about a woman seeking healing, is to arrive early next year.`\
-https://nytimes.com/2024/06/13/theater/idina-menzel-broadway-redwood.html
-
-**How California Grew a Service Corps Larger Than the Peace Corps**\
-`The state’s various programs enroll 10,000 service members a year.`\
-https://nytimes.com/2024/06/13/us/california-service-corps.html
-
-**After a Deluge Floods Streets, South Florida Braces for More Rain**\
-`Hundreds of flights were canceled, and the governor declared a state of emergency in several counties. More downpours are expected.`\
-https://nytimes.com/2024/06/13/weather/florida-flooding-rain.html
-
-**In a First, Pope Plans to Attend G7 Summit**\
-`Francis is expected to join world leaders for the meeting in southern Italy to discuss the ethical implications of artificial intelligence.`\
-https://nytimes.com/2024/06/13/world/europe/pope-francis-g7-summit.html
 
