@@ -1,3 +1,11 @@
+**Janet Yellen: Use Russia’s Assets to Support Ukraine**\
+`The U.S. treasury secretary explains why America and its allies should unlock the value of Russian capital immobilized at the start of the war to give Ukraine the financing it needs. `\
+https://nytimes.com/2024/06/13/opinion/janet-yellen-ukraine-russia-g7.html
+
+**France Is in Danger**\
+`In calling snap elections, Emmanuel Macron has taken a terrifying gamble.`\
+https://nytimes.com/2024/06/13/opinion/macron-france-elections.html
+
 **Thursday Briefing**\
 `The Group of 7 summit considers funding for Ukraine.`\
 https://nytimes.com/2024/06/13/briefing/g7-ukraine-ev-tariffs.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/13/business/tesla-stock-elon-musk.html
 **Montana Has More Cows Than People. Why Are Locals Eating Beef From Brazil?**\
 `Cole Mannix, of Old Salt Co-op, is trying to change local appetites and upend an industry controlled by multibillion-dollar meatpackers.`\
 https://nytimes.com/2024/06/13/business/montana-meat-old-salt-co-op.html
-
-**China Is Testing More Driverless Cars Than Any Other Country**\
-`Assisted driving systems and robot taxis are becoming more popular with government help, as cities designate large areas for testing on public roads.`\
-https://nytimes.com/2024/06/13/business/china-driverless-cars.html
-
-**Quotation of the Day: For Even the Best Sherpas, There Is No Escaping the Danger**\
-`Quotation of the Day for Thursday, June 13, 2024.`\
-https://nytimes.com/2024/06/12/pageoneplus/quotation-of-the-day-for-even-the-best-sherpas-there-is-no-escaping-the-danger.html
 
