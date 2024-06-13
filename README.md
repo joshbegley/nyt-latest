@@ -1,3 +1,7 @@
+**Weakened G7 Takes On an Unruly World, and Mapping Abortion Travel**\
+`Plus, a scramble to shrink student loan bills.`\
+https://nytimes.com/2024/06/13/podcasts/g7-italy-abortion-travel-nigeria-economy-inflation.html
+
 **Trump’s Search for a Running Mate**\
 `Donald J. Trump’s list of potential vice-presidential candidates has focused on a set of loyal campaigners.`\
 https://nytimes.com/2024/06/13/podcasts/the-daily/trump-vp-running-mate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/us/politics/trump-washington-senate-house.html
 **What to Know About the Southern Baptists’ Vote Opposing I.V.F.**\
 `Wednesday’s vote was not a ban on in vitro fertilization. But it suggested that ordinary evangelicals are increasingly open to seeing embryos as people.`\
 https://nytimes.com/article/southern-baptist-ivf-vote-explained.html
-
-**Three Questions on Biden’s Theory of Victory**\
-`His theory of victory, whether military or political, is hard to discern.`\
-https://nytimes.com/live/2024/06/12/opinion/thepoint/biden-victory-step-aside
 

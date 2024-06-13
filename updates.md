@@ -1,3 +1,15 @@
+**Trump’s Search for a Running Mate**\
+`Donald J. Trump’s list of potential vice-presidential candidates has focused on a set of loyal campaigners.`\
+https://nytimes.com/2024/06/13/podcasts/the-daily/trump-vp-running-mate.html
+
+**The Connections Companion No. 369, June 14, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/13/crosswords/connections-companion-369.html
+
+**Wordle Review No. 1,091, June 14, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/13/crosswords/wordle-review-no-1091-june-14-2024.html
+
 **‘Oddly Satisfying’ Cow Pedicure Videos Are a Hit on TikTok**\
 `In one corner of the internet, professional trimmers grind and buff away at cow hooves to the delight of millions of spellbound social media users.`\
 https://nytimes.com/2024/06/13/style/nate-hoof-guy-tiktok.html
