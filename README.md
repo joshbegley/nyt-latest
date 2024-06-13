@@ -1,3 +1,15 @@
+**Yes, abortion pills are safe. Here’s what studies have shown.**\
+`The latest research adds to an extensive scientific record showing the pills are a safe option for terminating a pregnancy.`\
+https://nytimes.com/live/2024/06/13/us/abortion-pill-supreme-court/yes-abortion-pills-are-safe-heres-what-studies-have-shown
+
+**Climate change and aid for Africa have faded as G7 priorities, campaigners say.**\
+`By Mark Landler`\
+https://nytimes.com/live/2024/06/13/world/g7-summit-italy/climate-change-and-aid-for-africa-have-faded-as-g7-priorities-campaigners-say
+
+**Supreme Court Ruling in Starbucks Case Curbs Labor Regulation**\
+`In a blow to the National Labor Relations Board, the justices cited inconsistent standards for courts to order employers to reinstate fired workers.`\
+https://nytimes.com/2024/06/13/business/economy/supreme-court-starbucks-nlrb.html
+
 **Read the Court’s Decision to Uphold Access to Abortion Pill**\
 `The Supreme Court upheld access to a widely available abortion pill, rejecting a bid from a group of anti-abortion organizations and doctors to unravel the Food and Drug Administration’s approval of the pill.`\
 https://nytimes.com/interactive/2024/06/13/us/scotus-pill.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/06/13/us/abortion-pill-supreme-court
 **Plumbing the Depths of Darkness, and Finding Liberation**\
 `As a creator of horror films, I often face my fears by sharing them onscreen.`\
 https://nytimes.com/2024/06/13/special-series/robert-eggers-the-witch-fear.html
-
-**G.O.P. Says Protest Zone Will Be Moved Away From Convention Site**\
-`Republican officials said the Secret Service had agreed to move a Milwaukee park into the security zone, but the agency said no final decision had been made.`\
-https://nytimes.com/2024/06/13/us/politics/protest-zone-republican-national-convention.html
-
-**This Top Democrat Isn’t Afraid to Call Trump a Felon and a Grifter**\
-`Most of the party’s leaders want to avoid too much focus on Donald Trump’s felonies. JB Pritzker, the governor of Illinois, feels differently.`\
-https://nytimes.com/2024/06/13/us/politics/trump-jb-pritzker-felony.html
-
-**Russian Prosecutors Finalize Indictment of Evan Gershkovich**\
-`The Wall Street Journal reporter will be tried on a spying charge in Yekaterinburg, the city where he was arrested more than a year ago.`\
-https://nytimes.com/2024/06/13/world/europe/evan-gershkovich-russia-indictment.html
 
