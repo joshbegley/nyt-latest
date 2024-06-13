@@ -1,3 +1,11 @@
+**Easy, Superb Summer Cooking**\
+`Zucchini salad with bread crumbs! Cold sesame noodles with corn and basil! Tomato! Cheddar! Toasts!`\
+https://nytimes.com/2024/06/13/dining/easy-superb-summer-cooking.html
+
+**The Abortion Pill Fight Is Not Over. Here’s What’s Next.**\
+`Though the Supreme Court ruled upheld access to mifepristone, the case is likely to be revived by three Republican-led states as the plaintiffs.`\
+https://nytimes.com/2024/06/13/us/politics/supreme-court-abortion-pill-ruling-future.html
+
 **Debating Covid’s Origins: A Lab or a Market?**\
 `Responses to a guest essay asserting that the pandemic likely began with a lab leak. Also: President Biden’s image problems; “junk fees” in restaurants.`\
 https://nytimes.com/2024/06/13/opinion/covid-origins-lab-market.html
