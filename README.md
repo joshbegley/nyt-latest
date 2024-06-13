@@ -14,13 +14,13 @@ https://nytimes.com/2024/06/13/world/europe/wounded-leaders-of-the-west-gather-i
 `Computer-aided driving has official support and public acceptance, but state media seldom reports crashes or safety incidents, and online posts are censored.`\
 https://nytimes.com/2024/06/13/business/china-driverless-car-safety.html
 
-**Tesla’s Nordic Shareholders Seek to Promote Workers’ Rights in Vote**\
-`Tesla mechanics in Sweden have been striking for six months with little movement from their employer. Nordic shareholders hope to change that.`\
-https://nytimes.com/2024/06/13/business/elon-musk-tesla-vote-sweden-norway.html
-
 **What It’s Like to Ride a Robot Taxi in China**\
 `Wuhan, China, hosts the world’s largest driverless car experiment with hundreds of robot taxis that transport passengers through busy streets and highways.`\
 https://nytimes.com/video/business/100000009494790/china-robot-taxi-driverless.html
+
+**Tesla’s Nordic Shareholders Seek to Promote Workers’ Rights in Vote**\
+`Tesla mechanics in Sweden have been striking for six months with little movement from their employer. Nordic shareholders hope to change that.`\
+https://nytimes.com/2024/06/13/business/elon-musk-tesla-vote-sweden-norway.html
 
 **Tesla Share Price Is Its Own Referendum on Musk**\
 `A huge run-up in the stock’s value followed a 2018 vote on Elon Musk’s compensation package. But investors have recently become less enamored.`\
