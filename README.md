@@ -1,3 +1,11 @@
+**Idina Menzel Will Return to Broadway in ‘Redwood’**\
+`The new musical, about a woman seeking healing, is to arrive early next year.`\
+https://nytimes.com/2024/06/13/theater/idina-menzel-broadway-redwood.html
+
+**How California Grew a Service Corps Larger Than the Peace Corps**\
+`The state’s various programs enroll 10,000 service members a year.`\
+https://nytimes.com/2024/06/13/us/california-service-corps.html
+
 **After a Deluge Floods Streets, South Florida Braces for More Rain**\
 `Hundreds of flights were canceled, and the governor declared a state of emergency in several counties. More downpours are expected.`\
 https://nytimes.com/2024/06/13/weather/florida-flooding-rain.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/13/movies/summer-solstice-review.html
 **‘Reverse the Curse’ Review: Baseball Is Life**\
 `The writer-director David Duchovny plays a long-suffering Red Sox fan with cancer who may yet live to see the team defeat the Yankees.`\
 https://nytimes.com/2024/06/13/movies/reverse-the-curse-review.html
-
-**‘Firebrand’ Review: Placid Queen**\
-`Top-shelf actors and authentic Tudor table-setting fail to quicken this glumly unfocused take on the exploits of Henry VIII’s last wife, Katherine Parr.`\
-https://nytimes.com/2024/06/13/movies/firebrand-review.html
-
-**Why Investors Don’t Believe the Fed**\
-`Markets appear to be dismissing the central bank’s more pessimistic take on inflation, as the S&P 500 nears a new high.`\
-https://nytimes.com/2024/06/13/business/dealbook/markets-record-fed-inflation.html
 
