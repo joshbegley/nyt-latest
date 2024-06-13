@@ -1,3 +1,7 @@
+**After a Deluge Floods Streets, South Florida Braces for More Rain**\
+`Hundreds of flights were canceled, and the governor declared a state of emergency in several counties. More downpours are expected.`\
+https://nytimes.com/2024/06/13/weather/florida-flooding-rain.html
+
 **In a First, Pope Plans to Attend G7 Summit**\
 `Francis is expected to join world leaders for the meeting in southern Italy to discuss the ethical implications of artificial intelligence.`\
 https://nytimes.com/2024/06/13/world/europe/pope-francis-g7-summit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/movies/firebrand-review.html
 **Why Investors Don’t Believe the Fed**\
 `Markets appear to be dismissing the central bank’s more pessimistic take on inflation, as the S&P 500 nears a new high.`\
 https://nytimes.com/2024/06/13/business/dealbook/markets-record-fed-inflation.html
-
-**What to Know About the G7 Summit, and Why It Matters**\
-`The leaders of the Group of 7 nations tend to have a shared overall outlook, and their countries account for about half of the world economy.`\
-https://nytimes.com/2024/06/13/world/europe/g7-summit-what.html
 

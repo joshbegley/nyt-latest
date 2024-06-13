@@ -1,3 +1,7 @@
+**After a Deluge Floods Streets, South Florida Braces for More Rain**\
+`Hundreds of flights were canceled, and the governor declared a state of emergency in several counties. More downpours are expected.`\
+https://nytimes.com/2024/06/13/weather/florida-flooding-rain.html
+
 **In a First, Pope Plans to Attend G7 Summit**\
 `Francis is expected to join world leaders for the meeting in southern Italy to discuss the ethical implications of artificial intelligence.`\
 https://nytimes.com/2024/06/13/world/europe/pope-francis-g7-summit.html
