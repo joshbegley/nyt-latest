@@ -34,7 +34,7 @@ https://nytimes.com/live/2024/06/13/world/g7-summit-italy/at-a-meeting-of-a-ukra
 `His $6 bottle of Napa Valley cabernet won a historic tasting in Paris in 1976, astonishing connoisseurs and putting his Stag’s Leap winery on the map.`\
 https://nytimes.com/2024/06/13/dining/drinks/warren-winiarski-dead.html
 
-**Mail-Order Abortions, Now Protected by Court, Are Growing Rapidly**\
+**Mail-Order Abortions, Protected by Court for Now, Are Growing Rapidly**\
 `One-fifth of abortions are being done via telehealth, nearly half in states with abortion bans or restrictions.`\
 https://nytimes.com/2024/06/13/upshot/abortion-pills-supreme-court.html
 
