@@ -1,3 +1,7 @@
+**Storms Don’t Need a Name to Wreak Havoc in South Florida**\
+`Between days of excessive heat and days of unrelenting storms, the summer rainy season is starting to feel different — and highly unpredictable.`\
+https://nytimes.com/2024/06/13/us/south-florida-flood-rain-storms.html
+
 **Friday Briefing: A $50 Billion G7 Loan to Ukraine**\
 `Also, China’s push into driverless cars and the dangers of hair relaxers.`\
 https://nytimes.com/2024/06/13/world/asia/g7-loan-ukraine-china-asia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/us/politics/biden-jeffrey-katzenberg-trump.html
 **Snap Election in France Sets Off a Wild Week of Politics**\
 `President Emmanuel Macron’s sudden call for new parliamentary elections has created chaos on the right and fostered rare unity on the left.`\
 https://nytimes.com/2024/06/13/world/europe/france-snap-election-macron.html
-
-**U.S. strikes targets in Yemen as Houthis step up attacks on shipping.**\
-`By Anjana Sankar`\
-https://nytimes.com/live/2024/06/13/world/israel-gaza-war-hamas/us-strikes-targets-in-yemen-as-houthis-step-up-attacks-on-shipping
 

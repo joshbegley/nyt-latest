@@ -1,3 +1,7 @@
+**Storms Don’t Need a Name to Wreak Havoc in South Florida**\
+`Between days of excessive heat and days of unrelenting storms, the summer rainy season is starting to feel different — and highly unpredictable.`\
+https://nytimes.com/2024/06/13/us/south-florida-flood-rain-storms.html
+
 **Friday Briefing: A $50 Billion G7 Loan to Ukraine**\
 `Also, China’s push into driverless cars and the dangers of hair relaxers.`\
 https://nytimes.com/2024/06/13/world/asia/g7-loan-ukraine-china-asia.html
