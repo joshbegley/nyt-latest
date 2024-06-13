@@ -1,3 +1,7 @@
+**Audiences Are Returning to the Met Opera, but Not for Everything**\
+`The Met is approaching prepandemic levels of attendance. But its strategy of staging more modern operas to lure new audiences is having mixed success.`\
+https://nytimes.com/2024/06/13/arts/music/met-opera-attendance.html
+
 **Biden and Zelensky Deliver Remarks at G7 Summit**\
 `G7 leaders agreed on a plan to give Ukraine a $50 billion loan to help it buy weapons and begin to rebuild.`\
 https://nytimes.com/video/world/europe/100000009520914/g7-summit-italy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/world/asia/g7-loan-ukraine-china-asia.html
 **Supreme Court Maintains Broad Access to Abortion Pill**\
 `The decision does not eliminate efforts to restrict the availability of the pill.`\
 https://nytimes.com/2024/06/13/us/politics/supreme-court-abortion-pill-mifepristone-ruling.html
-
-**Courting C.E.O.s, Trump Says He Intends to Cut Corporate Taxes Again**\
-`Donald Trump cut the business tax rate to 21 percent from 35 percent in 2017. Speaking privately to business leaders, he said if he retook power, he wanted to make it 20 percent.`\
-https://nytimes.com/2024/06/13/us/politics/trump-corporate-tax-rate.html
 
