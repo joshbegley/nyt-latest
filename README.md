@@ -19,7 +19,7 @@ https://nytimes.com/2024/06/13/science/mars-aurora-solar-storm.html
 https://nytimes.com/2024/06/13/climate/supreme-court-hawaii-climate-oil-companies.html
 
 **Missing a Global Climate Target Could Spell Disaster for These Polar Bears**\
-`One group in Hudson Bay might have roughly decade left because sea ice is becoming too thin to support them as they hunt, according to new research.`\
+`One group in Hudson Bay might have roughly a decade left because sea ice is becoming too thin to support them as they hunt, according to new research.`\
 https://nytimes.com/2024/06/13/climate/polar-bear-population-climate-change.html
 
 **Palestinians Report Heavy Bombardments in the Rafah Area**\
