@@ -1,3 +1,7 @@
+**Read the Court’s Decision to Uphold Access to Abortion Pill**\
+`The Supreme Court upheld access to a widely available abortion pill, rejecting a bid from a group of anti-abortion organizations and doctors to unravel the Food and Drug Administration’s approval of the pill.`\
+https://nytimes.com/interactive/2024/06/13/us/scotus-pill.html
+
 **‘I Know What It’s Like to Struggle,’ Biden Says in New Ad on Inflation**\
 `Inflation has cooled but many voters give significantly higher marks to President Biden’s opponent, Donald J. Trump, on the economy.`\
 https://nytimes.com/2024/06/13/us/politics/biden-ad-inflation-trump.html
