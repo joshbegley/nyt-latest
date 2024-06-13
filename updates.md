@@ -1,3 +1,7 @@
+**At X Staff Meetings, Executives Talk Up Return of Advertisers**\
+`Still, Elon Musk, who owns the platform, and his chief executive Linda Yaccarino, have work to do to grow the business, leaders told employees.`\
+https://nytimes.com/2024/06/13/technology/x-elon-musk-linda-yaccarino.html
+
 **Officers Pull Over Van With Obscured Plate and Find an Armory**\
 `After the arrest in Queens, investigators are trying to discern what the man they stopped might have been planning. They seized a gun, ammunition and other weapons.`\
 https://nytimes.com/2024/06/13/nyregion/van-guns-weapons-queens-nypd.html

@@ -1,3 +1,7 @@
+**At X Staff Meetings, Executives Talk Up Return of Advertisers**\
+`Still, Elon Musk, who owns the platform, and his chief executive Linda Yaccarino, have work to do to grow the business, leaders told employees.`\
+https://nytimes.com/2024/06/13/technology/x-elon-musk-linda-yaccarino.html
+
 **Officers Pull Over Van With Obscured Plate and Find an Armory**\
 `After the arrest in Queens, investigators are trying to discern what the man they stopped might have been planning. They seized a gun, ammunition and other weapons.`\
 https://nytimes.com/2024/06/13/nyregion/van-guns-weapons-queens-nypd.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000009520914/g7-summit-italy.html
 **Police Official Charged After a Drunken Commute Ends in a Crash**\
 `Prosecutors say Deputy Inspector Paul Zangrilli and a girlfriend drove from a bar near Penn Station to his precinct, leaving behind a trail of battered vehicles and lies.`\
 https://nytimes.com/2024/06/13/nyregion/nypd-paul-zangrilli-drunk-driving.html
-
-**Guns Often Stored Unsafely in U.S. Homes, C.D.C. Survey Suggests**\
-`Loaded guns often are not locked, even in homes where there are children, federal researchers reported.`\
-https://nytimes.com/2024/06/13/health/gun-storage-homes-children.html
 
