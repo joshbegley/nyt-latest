@@ -1,3 +1,7 @@
+**A Rising Star and a Team in the Finals Rekindle Memories in a Changed City**\
+`The return of the Edmonton Oilers to the Stanley Cup finals after 18 years has brightened up Alberta’s capital after some difficult times.`\
+https://nytimes.com/2024/06/13/stanley-cup-edmonton-oilers.html
+
 **Tesla Shareholders Approve Big Stock Package for Musk**\
 `The vote was seen as a referendum on his management of the electric car maker and on the limits of executive pay.`\
 https://nytimes.com/2024/06/13/business/tesla-shareholder-vote-elon-musk.html
