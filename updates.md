@@ -1,3 +1,7 @@
+**What Are Your Experiences With Marijuana and Driving?**\
+`As more people use marijuana, we’re exploring the implications for road safety.`\
+https://nytimes.com/2024/06/13/us/marijuana-road-safety.html
+
 **Fake News Still Has a Home on Facebook**\
 `Christopher Blair, a renowned “liberal troll” who posts falsehoods to Facebook, is having a banner year despite crackdowns by Facebook and growing competition from A.I.`\
 https://nytimes.com/2024/06/13/technology/facebook-fake-news-culture-wars.html
