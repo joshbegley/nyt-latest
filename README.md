@@ -1,3 +1,7 @@
+**Biden and Zelensky Deliver Remarks at G7 Summit**\
+`G7 leaders agreed on a plan to give Ukraine a $50 billion loan to help it buy weapons and begin to rebuild.`\
+https://nytimes.com/video/world/europe/100000009520914/g7-summit-italy.html
+
 **Police Official Charged After a Drunken Commute Ends in a Crash**\
 `Prosecutors say Deputy Inspector Paul Zangrilli and a girlfriend drove from a bar near Penn Station to his precinct, leaving behind a trail of battered vehicles and lies.`\
 https://nytimes.com/2024/06/13/nyregion/nypd-paul-zangrilli-drunk-driving.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/us/politics/supreme-court-abortion-pill-mifeprist
 **Courting C.E.O.s, Trump Says He Intends to Cut Corporate Taxes Again**\
 `Donald Trump cut the business tax rate to 21 percent from 35 percent in 2017. Speaking privately to business leaders, he said if he retook power, he wanted to make it 20 percent.`\
 https://nytimes.com/2024/06/13/us/politics/trump-corporate-tax-rate.html
-
-**Where to Eat: At The Bar**\
-`Best seat in the house, no question.`\
-https://nytimes.com/2024/06/13/dining/where-to-eat-at-the-bar.html
 
