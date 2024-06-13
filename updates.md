@@ -1,3 +1,11 @@
+**Friday Briefing: A $50 Billion G7 Loan to Ukraine**\
+`Also, China’s push into driverless cars and the dangers of hair relaxers.`\
+https://nytimes.com/2024/06/13/world/asia/g7-loan-ukraine-china-asia.html
+
+**Supreme Court Maintains Broad Access to Abortion Pill**\
+`The decision does not eliminate efforts to restrict the availability of the pill.`\
+https://nytimes.com/2024/06/13/us/politics/supreme-court-abortion-pill-mifepristone-ruling.html
+
 **Courting C.E.O.s, Trump Says He Intends to Cut Corporate Taxes Again**\
 `Donald Trump cut the business tax rate to 21 percent from 35 percent in 2017. Speaking privately to business leaders, he said if he retook power, he wanted to make it 20 percent.`\
 https://nytimes.com/2024/06/13/us/politics/trump-corporate-tax-rate.html

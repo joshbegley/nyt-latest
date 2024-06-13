@@ -1,3 +1,11 @@
+**Friday Briefing: A $50 Billion G7 Loan to Ukraine**\
+`Also, China’s push into driverless cars and the dangers of hair relaxers.`\
+https://nytimes.com/2024/06/13/world/asia/g7-loan-ukraine-china-asia.html
+
+**Supreme Court Maintains Broad Access to Abortion Pill**\
+`The decision does not eliminate efforts to restrict the availability of the pill.`\
+https://nytimes.com/2024/06/13/us/politics/supreme-court-abortion-pill-mifepristone-ruling.html
+
 **Courting C.E.O.s, Trump Says He Intends to Cut Corporate Taxes Again**\
 `Donald Trump cut the business tax rate to 21 percent from 35 percent in 2017. Speaking privately to business leaders, he said if he retook power, he wanted to make it 20 percent.`\
 https://nytimes.com/2024/06/13/us/politics/trump-corporate-tax-rate.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/13/world/europe/france-snap-election-macron.html
 **U.S. strikes targets in Yemen as Houthis step up attacks on shipping.**\
 `By Anjana Sankar`\
 https://nytimes.com/live/2024/06/13/world/israel-gaza-war-hamas/us-strikes-targets-in-yemen-as-houthis-step-up-attacks-on-shipping
-
-**Telehealth Startup Executives Charged With Fraud Over Adderall Prescriptions**\
-`Patients using Done or similar telehealth platforms may experience disruptions in care, health officials warned.`\
-https://nytimes.com/2024/06/13/well/live/adderall-telehealth-fraud-cdc-risks.html
-
-**Trump Prosecutor in Georgia Rebukes Critics in Speech to Black Church Group**\
-`“I’ve lived the experience of a Black woman who is attacked and over-sexualized,” the prosecutor, Fani Willis, told leaders of the African Methodist Episcopal Church on Thursday.`\
-https://nytimes.com/2024/06/13/us/fani-willis-giuliani-trump-georgia.html
 
