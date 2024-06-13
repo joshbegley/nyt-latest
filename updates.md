@@ -1,3 +1,7 @@
+**The Supreme Court Upheld Broad Abortion Pill Access**\
+`Also, G7 leaders agreed to lend Ukraine $50 billion. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/06/13/briefing/supreme-court-abortion-pill-ukraine-loan.html
+
 **Audiences Are Returning to the Met Opera, but Not for Everything**\
 `The Met is approaching prepandemic levels of attendance. But its strategy of staging more modern operas to lure new audiences is having mixed success.`\
 https://nytimes.com/2024/06/13/arts/music/met-opera-attendance.html
