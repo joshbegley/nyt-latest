@@ -1,3 +1,11 @@
+**Where to Eat: At The Bar**\
+`Best seat in the house, no question.`\
+https://nytimes.com/2024/06/13/dining/where-to-eat-at-the-bar.html
+
+**Lawmakers Question Microsoft’s President About Its Presence in China**\
+`Brad Smith testified before a House committee a year after Chinese hackers infiltrated Microsoft’s technology and penetrated government networks.`\
+https://nytimes.com/2024/06/13/technology/microsoft-house-hearing-security.html
+
 **Behind Closed Doors, Trump Disparages Milwaukee, Host of His Party’s Convention**\
 `The former president, in a meeting with G.O.P. House members, brought up the city’s crime rate and falsely claimed voter fraud was rampant there in 2020.`\
 https://nytimes.com/2024/06/13/us/politics/trump-milwaukee-rnc.html
