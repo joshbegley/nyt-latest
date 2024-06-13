@@ -1,3 +1,11 @@
+**The Magnet Fisherman’s Dilemma: What to Do With $70,000 Before It Disintegrates**\
+`James Kane pulled a safe filled with stacks of hundred dollar bills from a creek in Queens. That, it turns out, was the easy part.`\
+https://nytimes.com/2024/06/13/nyregion/couple-magnet-fishing-safe-nyc.html
+
+**Frank Carroll, Prominent Figure Skating Coach, Dies at 85**\
+`He had a star-studded roster of students, including Michelle Kwan and Linda Fratianne. But he did not coach an Olympic gold medalist until Evan Lysacek won in 2010.`\
+https://nytimes.com/2024/06/13/sports/olympics/frank-carroll-dead.html
+
 **Israel and Hezbollah trade attacks across a volatile border.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/06/13/world/israel-gaza-war-hamas/hezbollah-israel-rockets-strike
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/13/arts/dance/ballet-21st-century.html
 **Mars Got Cooked During a Recent Solar Storm**\
 `Days after light shows filled Earth’s skies with wonder, the red planet was hit by another powerful outburst of the sun.`\
 https://nytimes.com/2024/06/13/science/mars-aurora-solar-storm.html
-
-**Is the Fight Against Big Oil Headed to the Supreme Court?**\
-`The Supreme Court may soon decide the fate of dozens of cases brought by cities and states that seek to hold fossil fuel companies accountable.`\
-https://nytimes.com/2024/06/13/climate/supreme-court-hawaii-climate-oil-companies.html
-
-**Missing a Global Climate Target Could Spell Disaster for These Polar Bears**\
-`One group in Hudson Bay might have roughly a decade left because sea ice is becoming too thin to support them as they hunt, according to new research.`\
-https://nytimes.com/2024/06/13/climate/polar-bear-population-climate-change.html
 
