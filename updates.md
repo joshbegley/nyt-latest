@@ -1,3 +1,7 @@
+**At a meeting of a Ukraine defense alliance, Austin pledges to keep sending military aid.**\
+`By John Ismay`\
+https://nytimes.com/live/2024/06/13/world/g7-summit-italy/at-a-meeting-of-a-ukraine-defense-alliance-austin-pledges-to-keep-sending-military-aid
+
 **Missing a Global Climate Target Could Spell Disaster for These Polar Bears**\
 `One group in Hudson Bay might have roughly a decade left because sea ice is becoming too thin to support them as they hunt, according to new research.`\
 https://nytimes.com/2024/06/13/climate/polar-bear-population-climate-change.html
