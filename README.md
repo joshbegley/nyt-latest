@@ -1,3 +1,7 @@
+**What Is Ballet in the 21st Century? It’s All Over the Place.**\
+`New York City Ballet wrapped up its 75th anniversary celebration at Lincoln Center this spring with a look to the future. But it didn’t always speak to it.`\
+https://nytimes.com/2024/06/13/arts/dance/ballet-21st-century.html
+
 **Mars Got Cooked During a Recent Solar Storm**\
 `Days after light shows filled Earth’s skies with wonder, the red planet was hit by another powerful outburst of the sun.`\
 https://nytimes.com/2024/06/13/science/mars-aurora-solar-storm.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/world/europe/nhs-london-hospital-cyberattack.html
 **Yes, abortion pills are safe. Here’s what studies have shown.**\
 `The latest research adds to an extensive scientific record showing the pills are a safe option for terminating a pregnancy.`\
 https://nytimes.com/live/2024/06/13/us/abortion-pill-supreme-court/yes-abortion-pills-are-safe-heres-what-studies-have-shown
-
-**Climate change and aid for Africa have faded as G7 priorities, campaigners say.**\
-`By Mark Landler`\
-https://nytimes.com/live/2024/06/13/world/g7-summit-italy/climate-change-and-aid-for-africa-have-faded-as-g7-priorities-campaigners-say
 
