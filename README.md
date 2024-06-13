@@ -1,3 +1,7 @@
+**At a meeting of a Ukraine defense alliance, Austin pledges to keep sending military aid.**\
+`By John Ismay`\
+https://nytimes.com/live/2024/06/13/world/g7-summit-italy/at-a-meeting-of-a-ukraine-defense-alliance-austin-pledges-to-keep-sending-military-aid
+
 **Warren Winiarski, Whose Fledgling Cabernet Bested the French, Dies at 95**\
 `His $6 bottle of Napa Valley cabernet won a historic tasting in Paris in 1976, astonishing connoisseurs and putting his Stag’s Leap winery on the map.`\
 https://nytimes.com/2024/06/13/dining/drinks/warren-winiarski-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/theater/cast-albums-broadway-tony-awards.html
 **I Had a Difficult Childhood. It Made Me an Amazing Employee.**\
 `A writer reflects on the moment she understood the roots of her workaholism.`\
 https://nytimes.com/2024/06/13/well/mind/childhood-trauma-employee-workaholic.html
-
-**A Perfect Cucumber Salad to Make Anytime**\
-`Ali Slagle’s cucumber-avocado salad has just five ingredients and complements pretty much every meal.`\
-https://nytimes.com/2024/06/13/dining/cucumber-salad.html
 

@@ -1,3 +1,7 @@
+**Missing a Global Climate Target Could Spell Disaster for These Polar Bears**\
+`One group in Hudson Bay might have roughly a decade left because sea ice is becoming too thin to support them as they hunt, according to new research.`\
+https://nytimes.com/2024/06/13/climate/polar-bear-population-climate-change.html
+
 **Warren Winiarski, Whose Fledgling Cabernet Bested the French, Dies at 95**\
 `His $6 bottle of Napa Valley cabernet won a historic tasting in Paris in 1976, astonishing connoisseurs and putting his Stag’s Leap winery on the map.`\
 https://nytimes.com/2024/06/13/dining/drinks/warren-winiarski-dead.html
