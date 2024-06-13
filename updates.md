@@ -1,3 +1,7 @@
+**Why Investors Don’t Believe the Fed**\
+`Markets appear to be dismissing the central bank’s more pessimistic take on inflation, as the S&P 500 nears a new high.`\
+https://nytimes.com/2024/06/13/business/dealbook/markets-record-fed-inflation.html
+
 **What to Know About the G7 Summit, and Why It Matters**\
 `The leaders of the Group of 7 nations tend to have a shared overall outlook, and their countries account for about half of the world economy.`\
 https://nytimes.com/2024/06/13/world/europe/g7-summit-what.html
