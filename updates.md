@@ -1,3 +1,7 @@
+**Jimmy Fallon Tracks Biden’s Summer Abroad**\
+`“Yeah, the president is in Italy for the G7 Summit, or as Fox News put it: ‘Biden Flees Country After Hunter Convicted,’” Fallon said.`\
+https://nytimes.com/2024/06/13/arts/television/jimmy-fallon-biden-summer-europe.html
+
 **Word of the Day: boisterous**\
 `This word has appeared in 147 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/06/13/learning/word-of-the-day-boisterous.html
