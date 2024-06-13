@@ -1,3 +1,7 @@
+**Disney and DeSantis Reach Agreement, Ending Protracted Fight**\
+`The deal locks in a 15-year expansion plan for Disney World and clears a path for Disney to restart in-kind political donations in Florida.`\
+https://nytimes.com/2024/06/12/business/disney-desantis-agreement.html
+
 **Quotation of the Day: For Even the Best Sherpas, There Is No Escaping the Danger**\
 `Quotation of the Day for Thursday, June 13, 2024.`\
 https://nytimes.com/2024/06/12/pageoneplus/quotation-of-the-day-for-even-the-best-sherpas-there-is-no-escaping-the-danger.html
