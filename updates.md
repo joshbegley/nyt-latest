@@ -1,3 +1,7 @@
+**Courting C.E.O.s, Trump Says He Intends to Cut Corporate Taxes Again**\
+`Donald Trump cut the business tax rate to 21 percent from 35 percent in 2017. Speaking privately to business leaders, he said if he retook power, he wanted to make it 20 percent.`\
+https://nytimes.com/2024/06/13/us/politics/trump-corporate-tax-rate.html
+
 **Snap Election in France Sets Off a Wild Week of Politics**\
 `President Emmanuel Macron’s sudden call for new parliamentary elections has created chaos on the right and fostered rare unity on the left.`\
 https://nytimes.com/2024/06/13/world/europe/france-snap-election-macron.html

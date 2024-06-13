@@ -1,3 +1,7 @@
+**Courting C.E.O.s, Trump Says He Intends to Cut Corporate Taxes Again**\
+`Donald Trump cut the business tax rate to 21 percent from 35 percent in 2017. Speaking privately to business leaders, he said if he retook power, he wanted to make it 20 percent.`\
+https://nytimes.com/2024/06/13/us/politics/trump-corporate-tax-rate.html
+
 **Where to Eat: At The Bar**\
 `Best seat in the house, no question.`\
 https://nytimes.com/2024/06/13/dining/where-to-eat-at-the-bar.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/well/live/adderall-telehealth-fraud-cdc-risks.htm
 **Trump Prosecutor in Georgia Rebukes Critics in Speech to Black Church Group**\
 `“I’ve lived the experience of a Black woman who is attacked and over-sexualized,” the prosecutor, Fani Willis, told leaders of the African Methodist Episcopal Church on Thursday.`\
 https://nytimes.com/2024/06/13/us/fani-willis-giuliani-trump-georgia.html
-
-**F.A.A. Administrator Says Previous Oversight of Boeing Was ‘Too Hands-Off’**\
-`Mike Whitaker, who heads the agency, told a Senate panel that changes were being made to the agency’s oversight of the plane manufacturer, including conducting more safety inspections.`\
-https://nytimes.com/2024/06/13/us/politics/faa-boeing-senate-hearing.html
 
