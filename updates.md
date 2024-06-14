@@ -1,3 +1,7 @@
+**Musk’s Tesla Pay Package Got Big Margin in Shareholder Vote**\
+`About 72 percent of the shares in the balloting affirmed the lucrative stock award to the chief executive in a bid to get a court to reinstate it.`\
+https://nytimes.com/2024/06/14/business/tesla-elon-musk-pay-vote-stock.html
+
 **Stephen Colbert and Whoopi Goldberg Met the Pope in the Vatican. No Joke.**\
 `Francis hosted an audience with over 100 comic entertainers, also including Chris Rock, Julia Louis-Dreyfus and Conan O’Brien. He said there was much to learn from them.`\
 https://nytimes.com/2024/06/14/world/europe/pope-francis-comedians-vatican.html
