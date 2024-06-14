@@ -1,3 +1,7 @@
+**Almost 20 Years After She Found Her Mother’s Body, a Cold Case Thaws**\
+`She was just a girl when her mother was stabbed to death in the Bronx. Now, an arrest based on DNA has brought her bittersweet relief.`\
+https://nytimes.com/2024/06/14/nyregion/cold-case-bronx-stabbing.html
+
 **‘Good Days and Bad Days’: Princess of Wales Gives Update on Cancer**\
 `In a message to the public, Catherine said she would attend King Charles’s birthday parade this weekend and wrote candidly about “knowing I am not out of the woods yet.”`\
 https://nytimes.com/2024/06/14/world/europe/kate-middleton-cancer-king-charles-birthday.html
