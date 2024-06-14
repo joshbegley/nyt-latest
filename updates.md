@@ -1,3 +1,19 @@
+**Boeing’s Titanium Problem Reveals the Risks of Outsourcing**\
+`It often means lower quality, more errors and more cover-ups.`\
+https://nytimes.com/live/2024/06/12/opinion/thepoint/boeing-titanium-china-outsourcing
+
+**Supreme Court’s Leisurely Pace Will Produce Pileup of Late June Rulings**\
+`Even as the size of the court’s docket has shrunk, it has deferred a larger share of its decisions to the very end of its term.`\
+https://nytimes.com/2024/06/14/us/politics/supreme-court-rulings-june.html
+
+**For Gay Catholics and Supporters, a ‘Sense of Whiplash’ Over Pope’s Reported Use of Slur**\
+`Pope Francis, noted for his outreach to gay Catholics, has been described as using an offensive Italian expression for gay men twice in recent weeks.`\
+https://nytimes.com/2024/06/14/us/pope-francis-slur-catholics.html
+
+**Girl, 13, Sexually Assaulted at Knifepoint in Queens Park, Police Say**\
+`The girl and a schoolmate, a 13-year-old boy, were forced into a secluded area by a man who later fled, the authorities said. Investigators combed the area for evidence Friday.`\
+https://nytimes.com/2024/06/14/nyregion/queens-park-sexual-assault-knife-point.html
+
 **The Best Advice for Dads (According to Dads)**\
 `Trust your instincts, find the fun and don’t forget that nail clipper.`\
 https://nytimes.com/interactive/2024/06/14/well/family/dad-advice-life-fathers.html
