@@ -1,3 +1,7 @@
+**Judge Orders Sale of Alex Jones’s Personal Assets but Keeps Infowars in Business**\
+`The ruling will allow Alex Jones to continue broadcasting on Infowars, while the Sandy Hook families continue to pursue payment of $1.4 billion in defamation damages awarded them.`\
+https://nytimes.com/2024/06/14/us/politics/infowars-bankruptcy-alex-jones.html
+
 **Charges of Race-Baiting Rattle a Key Democratic House Primary**\
 `The accusations by Representative Jamaal Bowman infused an element of unpredictability into the final days of a contest that has largely been defined by differences over the war in Gaza.`\
 https://nytimes.com/2024/06/14/nyregion/bowman-latimer-race-racism.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/us/politics/us-sweden-neo-nazi-group-terrorists.h
 **A Tense Debate Erupts at the G7, This Time Over Abortion Rights**\
 `Wording in the summit’s final statement led to a diplomatic tug of war, primarily between the United States and Italy.`\
 https://nytimes.com/2024/06/14/world/europe/g7-abortion.html
-
-**Boeing’s Titanium Problem Reveals the Risks of Outsourcing**\
-`It often means lower quality, more errors and more cover-ups.`\
-https://nytimes.com/live/2024/06/12/opinion/thepoint/boeing-titanium-china-outsourcing
 
