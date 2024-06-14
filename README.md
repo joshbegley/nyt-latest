@@ -1,3 +1,7 @@
+**Thomas Took Additional Trips With Harlan Crow, Documents Show**\
+`A congressional committee released documents showing that Justice Clarence Thomas had not disclosed three private jet trips paid for by the Texas billionaire Harlan Crow.`\
+https://nytimes.com/2024/06/13/us/politics/justice-clarence-thomas-harlan-crow-trips.html
+
 **Clearview AI Used Your Face. Now You May Get a Stake in the Company.**\
 `The facial recognition start-up doesn’t have the funds to settle a class-action lawsuit, so lawyers are proposing equity for those whose faces were scraped from the internet.`\
 https://nytimes.com/2024/06/13/technology/clearview-ai-facial-recognition-settlement.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/13/world/israel-gaza-war-hamas/israel-southern-
 **What Happens to Gifted Children**\
 `Intelligence strongly correlates with positive educational and career outcomes, but it is not everything.`\
 https://nytimes.com/2024/06/13/opinion/gifted-children-intelligence.html
-
-**Patrick Gottsch, Champion of Rural TV Programming, Dies at 70**\
-`After a career as a satellite dish installer, he found success with RFD-TV, a 24-hour cable channel aimed at farmers and ranchers.`\
-https://nytimes.com/2024/06/13/business/media/patrick-gottsch-dead.html
 
