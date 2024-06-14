@@ -1,3 +1,7 @@
+**G7 Agrees to $50 Billion Ukraine Loan Backed by Russian Assets. How Will It Work?**\
+`The United States and others plan to give the sum to Kyiv, with the interest from Moscow’s assets frozen in the West used to repay it. But many of the details about the arrangement are unclear.`\
+https://nytimes.com/2024/06/14/world/europe/ukraine-g7-ukraine-aid-russia.html
+
 **How Tesla Shareholders Upheld Elon Musk’s Sky-High Pay**\
 `The vote on the compensation package, which helped make Mr. Musk one of the richest men in the world, served as a referendum on his performance running the automaker.`\
 https://nytimes.com/interactive/2024/06/14/business/tesla-shareholder-vote-results.html
