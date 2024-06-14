@@ -1,3 +1,7 @@
+**South Africa Moves Closer to Electing a Leader, but Unity Is Elusive**\
+`Parliament was expected to elect President Cyril Ramaphosa to a second term. But his A.N.C. party is weakened, and he faces challenges in maintaining a coalition.`\
+https://nytimes.com/2024/06/14/world/africa/south-africa-anc-coalition-ramaphosa.html
+
 **Corrections: June 14, 2024**\
 `Corrections that appeared in print on Friday, June 14, 2024.`\
 https://nytimes.com/2024/06/14/pageoneplus/corrections-june-14-2024.html
