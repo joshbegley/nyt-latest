@@ -1,3 +1,7 @@
+**Almost 20 Years After She Found Her Mother’s Body, a Cold Case Thaws**\
+`She was just a girl when her mother was stabbed to death in the Bronx. Now, an arrest based on DNA has brought her bittersweet relief.`\
+https://nytimes.com/2024/06/14/nyregion/cold-case-bronx-stabbing.html
+
 **‘Good Days and Bad Days’: Princess of Wales Gives Update on Cancer**\
 `In a message to the public, Catherine said she would attend King Charles’s birthday parade this weekend and wrote candidly about “knowing I am not out of the woods yet.”`\
 https://nytimes.com/2024/06/14/world/europe/kate-middleton-cancer-king-charles-birthday.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/arts/music/playlist-jelly-roll-khalid.html
 **The Supreme Court’s Bump Stock Decision Will Prove Fatal**\
 `Machine guns on the street are now legal again.`\
 https://nytimes.com/2024/06/12/opinion/supreme-court-bumpstocks-guns.html
-
-**Trump Once Promised to Revive Coal. That Was So 2016.**\
-`In earlier bids for the White House, former President Donald Trump pledged to get miners back to work. Now, he trumpets oil and gas, and hardly mentions the dirtiest of the fossil fuels.`\
-https://nytimes.com/2024/06/14/climate/trump-coal-politics.html
 
