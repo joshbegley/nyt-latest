@@ -1,3 +1,7 @@
+**Jelly Roll’s Anthem of Perseverance, and 9 More New Songs**\
+`Hear tracks by Zsela, the Decemberists, Khalid and others.`\
+https://nytimes.com/2024/06/14/arts/music/playlist-jelly-roll-khalid.html
+
 **The Supreme Court’s Bump Stock Decision Will Kill People**\
 `Machine guns on the street are now legal again.`\
 https://nytimes.com/2024/06/12/opinion/supreme-court-bumpstocks-guns.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/movies/action-movies-streaming.html
 **‘House of the Dragon’ Review: Waiting for the Fire Breathers**\
 `The second season of HBO’s very successful “Game of Thrones” prequel gets off to an earthbound start.`\
 https://nytimes.com/2024/06/14/arts/television/house-of-the-dragon-season-2-review.html
-
-**Erin Moriarty Is a Woman Among ‘The Boys’**\
-`The actress in the hit superhero satire mulled her role in an age of online bullying and token feminism: “Thank God there are characters like this.”`\
-https://nytimes.com/2024/06/14/arts/television/erin-moriarty-the-boys.html
 
