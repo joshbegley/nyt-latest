@@ -32,7 +32,7 @@ https://nytimes.com/2024/06/13/world/europe/g7-biden-ukraine-agreements.html
 
 **Heavy Bombardment of Gaza as Israel and Hezbollah Trade Strikes**\
 `Israel was reported to have intensified missile and artillery strikes in southern Gaza while also hitting Hezbollah military targets in Lebanon.`\
-https://nytimes.com/live/2024/06/13/world/israel-gaza-war-hamas/israel-southern-gaza-hezbollah
+https://nytimes.com/2024/06/13/world/middleeast/israel-southern-gaza-hezbollah.html
 
 **What Happens to Gifted Children**\
 `Intelligence strongly correlates with positive educational and career outcomes, but it is not everything.`\
