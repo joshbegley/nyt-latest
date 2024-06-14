@@ -30,7 +30,7 @@ https://nytimes.com/2024/06/14/nyregion/cuomo-covid-nursing-homes.html
 `She wins the spotlight she loves, but what will she do with it?`\
 https://nytimes.com/live/2024/06/12/opinion/thepoint/nancy-mace-mccarthy
 
-**Girl, 13, Sexually Assaulted at Knife Point in Queens Park, Police Say**\
+**Girl, 13, Sexually Assaulted at Knifepoint in Queens Park, Police Say**\
 `The girl and a schoolmate, a 13-year-old boy, were forced into a secluded area by a man who later fled, the authorities said. Investigators combed the area for evidence Friday.`\
 https://nytimes.com/2024/06/14/nyregion/queens-park-sexual-assault-knife-point.html
 
