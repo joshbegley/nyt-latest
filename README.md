@@ -1,3 +1,7 @@
+**Snow or No Snow, Australia’s Winter Resorts Are Open**\
+`Business owners say it’s hard to keep pace with the country’s sporadic snow conditions and spontaneous skiers.`\
+https://nytimes.com/2024/06/14/world/australia/letter-ski-winter.html
+
 **Here’s Why Ukraine Should Seek Peace**\
 `A peace agreement between Russia and Ukraine will stop the killing and in the long run make Ukraine better able to defend itself and democracy.`\
 https://nytimes.com/2024/06/14/opinion/ukraine-russia-peace-switzerland.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/style/modern-love-fathers-day-vietnam-couldnt-adm
 **From the Start, Committed to Each Other ‘in Sickness and in Health’**\
 `Shira Zilberstein and Emmanuel Cantor connected at a dinner celebrating Sukkot in 2021. Like every couple starting their lives together, they didn’t know yet what challenges lay ahead of them.`\
 https://nytimes.com/2024/06/14/style/shira-zilberstein-emmanuel-cantor-wedding.html
-
-**From Quinceañera Dance Partners to Life Partners**\
-`Dianna Mateos and Edgar Angel met over 10 years ago at a quinceañera. The two have grown together ever since.`\
-https://nytimes.com/2024/06/14/style/dianna-mateos-edgar-angel-wedding.html
 
