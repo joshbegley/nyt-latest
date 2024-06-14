@@ -1,3 +1,11 @@
+**French Stocks Tumble to Worst Week in Two Years Over Election Fears**\
+`Investors worry about a possible debt crisis in the country as polls show the far right could be brought to the brink of power in less than a month.`\
+https://nytimes.com/2024/06/14/business/france-stock-market-macron-election.html
+
+**The Ultimate Dad Rock Playlist**\
+`What is dad rock? You know it when you hear it, so listen to 10 songs from Wilco, the Grateful Dead, Steely Dan and more.`\
+https://nytimes.com/2024/06/14/arts/music/amplifier-newsletter-dad-rock.html
+
 **3.3%**\
 `The rate of inflation in May over the previous year.`\
 https://nytimes.com/2024/06/14/business/3-3-percent-may-inflation.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/14/world/europe/kate-middleton-cancer-king-charles-b
 **33 Novels Coming This Summer**\
 `Watch for new books by J. Courtney Sullivan, Kevin Barry and Casey McQuiston; re-immerse yourself in beloved worlds conjured by Walter Mosley, Elin Hilderbrand and Rebecca Roanhorse.`\
 https://nytimes.com/2024/06/14/books/new-summer-fiction.html
-
-**19 Nonfiction Books to Read This Summer**\
-`Memoirs from Anthony Fauci and Anna Marie Tendler, a reappraisal of Harriet Tubman, a history of reality TV from Emily Nussbaum — and plenty more.`\
-https://nytimes.com/2024/06/14/books/nonfiction-summer-books.html
-
-**What ‘Inside Out 2’ Teaches Us About Anxiety**\
-`A new emotion has taken over Riley’s teenage mind. And she has lessons for us all.`\
-https://nytimes.com/2024/06/14/well/mind/inside-out-2-anxiety.html
 

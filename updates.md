@@ -1,3 +1,11 @@
+**French Stocks Tumble to Worst Week in Two Years Over Election Fears**\
+`Investors worry about a possible debt crisis in the country as polls show the far right could be brought to the brink of power in less than a month.`\
+https://nytimes.com/2024/06/14/business/france-stock-market-macron-election.html
+
+**The Ultimate Dad Rock Playlist**\
+`What is dad rock? You know it when you hear it, so listen to 10 songs from Wilco, the Grateful Dead, Steely Dan and more.`\
+https://nytimes.com/2024/06/14/arts/music/amplifier-newsletter-dad-rock.html
+
 **3.3%**\
 `The rate of inflation in May over the previous year.`\
 https://nytimes.com/2024/06/14/business/3-3-percent-may-inflation.html
