@@ -1,3 +1,15 @@
+**How Tesla Shareholders Upheld Elon Musk’s Sky-High Pay**\
+`The vote on the compensation package, which helped make Mr. Musk one of the richest men in the world, served as a referendum on his performance running the automaker.`\
+https://nytimes.com/interactive/2024/06/14/business/tesla-shareholder-vote-results.html
+
+**Trump Is Thinking About His Debates. And His Running Mate’s, Too.**\
+`As he considers his vice-presidential pick, Donald J. Trump has sought advice on a few key factors, including who will match up best on the debate stage against Vice President Kamala Harris.`\
+https://nytimes.com/2024/06/14/us/politics/trump-vp-debate-performances.html
+
+**Finding Strength Through Song**\
+`Writing music helps me create a space where subjugation and violence are far away.`\
+https://nytimes.com/2024/06/14/special-series/silvana-estrada-mexico-violence-fear.html
+
 **Flooding Remains Possible on Fourth Day of Soaking Rains Over South Florida**\
 `A flood watch was active until Friday evening after hundreds of flights were canceled and states of emergency were declared in several counties. More rain was expected into the afternoon.`\
 https://nytimes.com/2024/06/14/weather/florida-rain-flooding.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/14/us/california-restaurant-hidden-fees-ban.html
 **Summer Reading Contest, Week 2: What Got Your Attention in The Times This Week?**\
 `To participate, submit your response here by June 21 at 9 a.m. Eastern. This week’s winners will be announced by July 3.`\
 https://nytimes.com/2024/06/14/learning/summer-reading-contest-week-2-what-got-your-attention-in-the-times-this-week.html
-
-**Putin Makes Cease-Fire Offer With Sweeping Demands on Ukraine’s Territory**\
-`Ukraine denounced the offer, saying that Mr. Putin was “afraid of real peace.” The Russian leader made the remarks one day before a peace summit organized by Kyiv.`\
-https://nytimes.com/2024/06/14/world/europe/russia-ukraine-putin-cease-fire.html
-
-**Ukraine Welcomes Pledges of More Military Aid With Cautious Optimism**\
-`Kyiv signed security pacts with several Western allies this week. Whether they will fundamentally change the course of the war, or endure beyond looming elections elsewhere, is unclear.`\
-https://nytimes.com/2024/06/14/world/europe/ukraine-biden-military-aid.html
-
-**What Elon Musk’s Convincing Win Means for Tesla**\
-`Investors voted overwhelmingly to reinstate the C.E.O.’s multibillion-dollar compensation package, inextricably tying the car maker’s future to the tech billionaire.`\
-https://nytimes.com/2024/06/14/business/dealbook/elon-musk-pay-package-win.html
 
