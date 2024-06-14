@@ -1,3 +1,7 @@
+**The Best Advice for Dads (According to Dads)**\
+`Trust your instincts, find the fun and don’t forget that nail clipper.`\
+https://nytimes.com/interactive/2024/06/14/well/family/dad-advice-life-fathers.html
+
 **The Bump Stock Ban Stemmed From a Horrific Mass Shooting**\
 `A gunman used bump stocks to help kill 60 people at a concert in Las Vegas in 2017, leading to wide political agreement that they should be prohibited.`\
 https://nytimes.com/2024/06/14/us/bump-stock-vegas-shooting-supreme-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/magazine/husband-dementia-divorce-ethics.html
 **How Jeff Bezos Is Trying to Fix The Washington Post**\
 `The Amazon founder has expressed his support to Will Lewis, the C.E.O., who has faced widespread criticism this month.`\
 https://nytimes.com/2024/06/14/business/media/jeff-bezos-washington-post.html
-
-**Larry Summers Isn’t Second-Guessing the Government on Inflation**\
-`The C.P.I. has been criticized for excluding interest payments, but there’s a solid reason for that.`\
-https://nytimes.com/2024/06/14/opinion/larry-summers-inflation-interest.html
 
