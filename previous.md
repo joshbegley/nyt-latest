@@ -1,3 +1,7 @@
+**How Baptists and the G.O.P. Took Different Paths on I.V.F.**\
+`The vote at the Southern Baptist Convention raising alarms about in vitro fertilization began with two conservatives at a seminary in Kentucky.`\
+https://nytimes.com/2024/06/13/us/baptists-gop-different-paths-ivf.html
+
 **Thomas Took Additional Trips on Harlan Crow’s Private Jet, Documents Show**\
 `A congressional committee released documents showing that Justice Clarence Thomas had not disclosed three private jet trips paid for by the Texas billionaire Harlan Crow.`\
 https://nytimes.com/2024/06/13/us/politics/justice-clarence-thomas-harlan-crow-trips.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/world/europe/g7-biden-ukraine-agreements.html
 **Heavy Bombardment of Gaza as Israel and Hezbollah Trade Strikes**\
 `Israel was reported to have intensified missile and artillery strikes in southern Gaza while also hitting Hezbollah military targets in Lebanon.`\
 https://nytimes.com/2024/06/13/world/middleeast/israel-southern-gaza-hezbollah.html
-
-**What Happens to Gifted Children**\
-`Intelligence strongly correlates with positive educational and career outcomes, but it is not everything.`\
-https://nytimes.com/2024/06/13/opinion/gifted-children-intelligence.html
 

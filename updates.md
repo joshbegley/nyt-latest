@@ -1,3 +1,7 @@
+**How Baptists and the G.O.P. Took Different Paths on I.V.F.**\
+`The vote at the Southern Baptist Convention raising alarms about in vitro fertilization began with two conservatives at a seminary in Kentucky.`\
+https://nytimes.com/2024/06/13/us/baptists-gop-different-paths-ivf.html
+
 **Heavy Bombardment of Gaza as Israel and Hezbollah Trade Strikes**\
 `Israel was reported to have intensified missile and artillery strikes in southern Gaza while also hitting Hezbollah military targets in Lebanon.`\
 https://nytimes.com/2024/06/13/world/middleeast/israel-southern-gaza-hezbollah.html
