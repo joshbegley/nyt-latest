@@ -1,3 +1,11 @@
+**The Supreme Court rejected the ban on bump stocks**\
+`Plus, advice for dads, from dads.`\
+https://nytimes.com/2024/06/14/briefing/supreme-court-bump-stocks-putin-ukraine-gaza-heatwave.html
+
+**U.S. Investigating ‘Dutch Roll’ That Damaged a Boeing 737 During Flight**\
+`The Southwest Airlines flight experienced a rare oscillation in May that caused “substantial” damage to its tail section and prompted investigations from federal agencies.`\
+https://nytimes.com/2024/06/14/business/boeing-dutch-roll-southwest-faa.html
+
 **The Best Father’s Day Gift Is a Book**\
 `It's a keepsake for generations.`\
 https://nytimes.com/interactive/2024/06/14/smarter-living/wirecutter/fathers-day-book.html

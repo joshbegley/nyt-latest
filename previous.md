@@ -1,3 +1,11 @@
+**The Supreme Court rejected the ban on bump stocks**\
+`Plus, advice for dads, from dads.`\
+https://nytimes.com/2024/06/14/briefing/supreme-court-bump-stocks-putin-ukraine-gaza-heatwave.html
+
+**U.S. Investigating ‘Dutch Roll’ That Damaged a Boeing 737 During Flight**\
+`The Southwest Airlines flight experienced a rare oscillation in May that caused “substantial” damage to its tail section and prompted investigations from federal agencies.`\
+https://nytimes.com/2024/06/14/business/boeing-dutch-roll-southwest-faa.html
+
 **The Best Father’s Day Gift Is a Book**\
 `It's a keepsake for generations.`\
 https://nytimes.com/interactive/2024/06/14/smarter-living/wirecutter/fathers-day-book.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/14/us/politics/supreme-court-rulings-june.html
 **The Best Advice for Dads (According to Dads)**\
 `Trust your instincts, find the fun and don’t forget that nail clipper.`\
 https://nytimes.com/interactive/2024/06/14/well/family/dad-advice-life-fathers.html
-
-**The Bump Stock Ban Stemmed From a Horrific Mass Shooting**\
-`A gunman used bump stocks to help kill 60 people at a concert in Las Vegas in 2017, leading to wide political agreement that they should be prohibited.`\
-https://nytimes.com/2024/06/14/us/bump-stock-vegas-shooting-supreme-court.html
-
-**An Eclectic Summer Book Preview**\
-`Three editors gather to discuss 10 books they’re looking forward to over the next several months.`\
-https://nytimes.com/2024/06/14/books/review/summer-preview-podcast.html
 
