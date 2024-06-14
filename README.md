@@ -1,9 +1,17 @@
+**Supreme Court Rules Against Migrants in Dispute Over Deportation Hearing Notices**\
+`A majority of the justices found that the government had fulfilled its duty to tell immigrants about their court dates, even when the information was incomplete.`\
+https://nytimes.com/2024/06/14/us/politics/supreme-court-deportation-notice-ruling.html
+
+**An Army Veteran’s Obituary Shares a Secret: ‘I Was Gay All My Life’**\
+`Edward Thomas Ryan, a retired colonel who died at 85, wrote that he was “afraid of being ostracized.” The revelation set off a wave of online tributes.`\
+https://nytimes.com/2024/06/14/nyregion/military-veteran-obituary-gay.html
+
 **Trump’s Anti-Vaccine Problem**\
 `The anti-vax sentiment coursing through his die-hards shows how Trump takes his cues from his base.`\
 https://nytimes.com/2024/06/14/us/politics/trump-anti-vax.html
 
 **Judge Orders Sale of Alex Jones’s Personal Assets but Keeps Infowars in Business**\
-`The ruling will allow Alex Jones to continue broadcasting on Infowars, while the Sandy Hook families continue to pursue payment of $1.4 billion in defamation damages awarded them.`\
+`The ruling will allow the conspiracy theorist to continue broadcasting on Infowars, while the Sandy Hook families continue to pursue payment of $1.4 billion in defamation damages.`\
 https://nytimes.com/2024/06/14/us/politics/infowars-bankruptcy-alex-jones.html
 
 **Charges of Race-Baiting Rattle a Key Democratic House Primary**\
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/06/14/smarter-living/wirecutter/fathers-day
 **Justice Dept. Says It Won’t Prosecute Garland for Contempt**\
 `The decision was expected because President Biden had invoked executive privilege to shield recordings subpoenaed by G.O.P. lawmakers.`\
 https://nytimes.com/2024/06/14/us/politics/merrick-garland-contempt-doj.html
-
-**Another Summer to Remember? For Germany: So Far, So Great.**\
-`A 5-1 thrashing of Scotland in the opening game of Euro 2024 was a good omen for a host nation in search of one.`\
-https://nytimes.com/2024/06/14/world/europe/germany-scotland-euro-2024.html
-
-**U.S. Designates Largest Neo-Nazi Group in Sweden as Terrorist Organization**\
-`The Nordic Resistance Movement and three of its leaders were labeled terrorists in a rare move by the State Department targeting white supremacists.`\
-https://nytimes.com/2024/06/14/us/politics/us-sweden-neo-nazi-group-terrorists.html
 
