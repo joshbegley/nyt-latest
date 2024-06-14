@@ -1,3 +1,7 @@
+**A Tense Debate Erupts at the G7, This Time Over Abortion Rights**\
+`Wording in the summit’s final statement led to a diplomatic tug of war, primarily between the United States and Italy.`\
+https://nytimes.com/2024/06/14/world/europe/g7-abortion.html
+
 **Boeing’s Titanium Problem Reveals the Risks of Outsourcing**\
 `It often means lower quality, more errors and more cover-ups.`\
 https://nytimes.com/live/2024/06/12/opinion/thepoint/boeing-titanium-china-outsourcing
