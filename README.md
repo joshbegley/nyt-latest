@@ -1,3 +1,7 @@
+**The Bump Stock Ban Stemmed From a Horrific Mass Shooting**\
+`A gunman used bump stocks to help kill 60 people at a concert in Las Vegas in 2017, leading to wide political agreement that they should be prohibited.`\
+https://nytimes.com/2024/06/14/us/bump-stock-vegas-shooting-supreme-court.html
+
 **An Eclectic Summer Book Preview**\
 `Three editors gather to discuss 10 books they’re looking forward to over the next several months.`\
 https://nytimes.com/2024/06/14/books/review/summer-preview-podcast.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/business/media/jeff-bezos-washington-post.html
 **Larry Summers Isn’t Second-Guessing the Government on Inflation**\
 `The C.P.I. has been criticized for excluding interest payments, but there’s a solid reason for that.`\
 https://nytimes.com/2024/06/14/opinion/larry-summers-inflation-interest.html
-
-**N.Y.P.D. Detective Wounded in Shootout That Ended With Suspect Dead**\
-`The New York officer was shot in the foot at a New Jersey hotel after the police and a man sought in an East Harlem shooting exchanged gunfire, officials said.`\
-https://nytimes.com/2024/06/14/nyregion/nypd-officer-shot-suspect-killed.html
 
