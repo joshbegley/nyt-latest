@@ -1,3 +1,7 @@
+**Parisians on TikTok Plead: ‘Don’t Come’ to Paris for the Olympics**\
+`Parisians are using the social media app to vent their displeasure with hosting the Games — and to send warnings to tourists.`\
+https://nytimes.com/2024/06/14/style/paris-olympics-tiktok.html
+
 **Mississippi Opens the Playbook for Dismantling a Free Press**\
 `A politician’s defamation case against a small Pulitzer Prize-winning news organization is designed to drain its financial resources.`\
 https://nytimes.com/2024/06/14/opinion/mississippi-press-freedom-republicans.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/06/14/briefing/hunter-biden-apple-jerry-wes
 **How ‘Inside Out 2’ Battles Anxiety**\
 `The director Kelsey Mann narrates a sequence from his film, which pits Joy (voiced by Amy Poehler) against Anxiety (Maya Hawke).`\
 https://nytimes.com/2024/06/14/movies/inside-out-2-clip.html
-
-**The Chilling Reason You May Never See the New Trump Movie**\
-`Hollywood shouldn’t pre-emptively capitulate to the MAGA movement.`\
-https://nytimes.com/2024/06/14/opinion/the-apprentice-trump-movie.html
 
