@@ -1,3 +1,15 @@
+**‘Good Days and Bad Days’: Princess of Wales Gives Update on Cancer**\
+`In a message to the public, Catherine said she would attend King Charles’s birthday parade this weekend and wrote candidly about “knowing I am not out of the woods yet.”`\
+https://nytimes.com/2024/06/14/world/europe/kate-middleton-cancer-king-charles-birthday.html
+
+**33 Novels Coming This Summer**\
+`Watch for new books by J. Courtney Sullivan, Kevin Barry and Casey McQuiston; re-immerse yourself in beloved worlds conjured by Walter Mosley, Elin Hilderbrand and Rebecca Roanhorse.`\
+https://nytimes.com/2024/06/14/books/new-summer-fiction.html
+
+**19 Nonfiction Books to Read This Summer**\
+`Memoirs from Anthony Fauci and Anna Marie Tendler, a reappraisal of Harriet Tubman, a history of reality TV from Emily Nussbaum — and plenty more.`\
+https://nytimes.com/2024/06/14/books/nonfiction-summer-books.html
+
 **What ‘Inside Out 2’ Teaches Us About Anxiety**\
 `A new emotion has taken over Riley’s teenage mind. And she has lessons for us all.`\
 https://nytimes.com/2024/06/14/well/mind/inside-out-2-anxiety.html
