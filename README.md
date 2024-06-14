@@ -1,3 +1,7 @@
+**Mark James, ‘Suspicious Minds,’ Songwriter, Is Dead at 83**\
+`Mr. James wrote hit songs recorded Elvis Presley, Brenda Lee, Willie Nelson and other artists.`\
+https://nytimes.com/2024/06/13/arts/music/mark-james-elvis-songwriter-dead.html
+
 **The Best Alternative to Dating Apps? Running Clubs, Apparently.**\
 `Inspired by one thirsty TikTok video after another, users are hoping to find their next romantic encounter at the finish line. Here’s what you should know before dating a runner.`\
 https://nytimes.com/2024/06/13/style/running-clubs-dating.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/us/california-budget-explainer.html
 **Tyson Foods Suspends Executive After Second Alcohol-Related Arrest**\
 `John Randal Tyson, a fourth-generation member of the Tyson family business, was charged with driving while intoxicated, the company said, two years after he was found asleep in a stranger’s house.`\
 https://nytimes.com/2024/06/13/business/john-randal-tyson-foods-arrest.html
-
-**What Happens When a Defendant Gets Covid-19 During Trial?**\
-`Fred Daibes, a real estate developer charged with Senator Robert Menendez, began feeling sick during the fifth week of the corruption trial, delaying it for at least a few days.`\
-https://nytimes.com/2024/06/13/nyregion/covid-robert-menendez-trial-delay.html
 
