@@ -1,3 +1,7 @@
+**Trump’s Anti-Vaccine Problem**\
+`The anti-vax sentiment coursing through his die-hards shows how Trump takes his cues from his base.`\
+https://nytimes.com/2024/06/14/us/politics/trump-anti-vax.html
+
 **Judge Orders Sale of Alex Jones’s Personal Assets but Keeps Infowars in Business**\
 `The ruling will allow Alex Jones to continue broadcasting on Infowars, while the Sandy Hook families continue to pursue payment of $1.4 billion in defamation damages awarded them.`\
 https://nytimes.com/2024/06/14/us/politics/infowars-bankruptcy-alex-jones.html

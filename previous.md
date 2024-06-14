@@ -1,3 +1,7 @@
+**Trump’s Anti-Vaccine Problem**\
+`The anti-vax sentiment coursing through his die-hards shows how Trump takes his cues from his base.`\
+https://nytimes.com/2024/06/14/us/politics/trump-anti-vax.html
+
 **Judge Orders Sale of Alex Jones’s Personal Assets but Keeps Infowars in Business**\
 `The ruling will allow Alex Jones to continue broadcasting on Infowars, while the Sandy Hook families continue to pursue payment of $1.4 billion in defamation damages awarded them.`\
 https://nytimes.com/2024/06/14/us/politics/infowars-bankruptcy-alex-jones.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/world/europe/germany-scotland-euro-2024.html
 **U.S. Designates Largest Neo-Nazi Group in Sweden as Terrorist Organization**\
 `The Nordic Resistance Movement and three of its leaders were labeled terrorists in a rare move by the State Department targeting white supremacists.`\
 https://nytimes.com/2024/06/14/us/politics/us-sweden-neo-nazi-group-terrorists.html
-
-**A Tense Debate Erupts at the G7, This Time Over Abortion Rights**\
-`Wording in the summit’s final statement led to a diplomatic tug of war, primarily between the United States and Italy.`\
-https://nytimes.com/2024/06/14/world/europe/g7-abortion.html
 
