@@ -1,3 +1,7 @@
+**Musk’s Friends and Fans Applaud Shareholder Vote on His Payday**\
+`On the social media platform X, which Mr. Musk owns, reactions to a vote that reaffirmed Mr. Musk’s $45 billion package were buoyant.`\
+https://nytimes.com/2024/06/13/business/tesla-elon-musk-vote-reaction.html
+
 **How California, Once Flush, Got Stuck With a Budget Shortfall**\
 `Lawmakers passed a preliminary budget that technically meets a legal deadline while they work out final details. State finances have fluctuated wildly in recent years.`\
 https://nytimes.com/2024/06/13/us/california-budget-explainer.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/business/media/patrick-gottsch-dead.html
 **Grand Jury Declines to Indict Principal Accused of Endangering a Student**\
 `In a case that roiled a racially diverse town in New Jersey for months, a high school principal is one step closer to getting his job back.`\
 https://nytimes.com/2024/06/13/nyregion/nj-principal-grand-jury.html
-
-**At X Staff Meetings, Executives Talk Up Return of Advertisers**\
-`Still, Elon Musk, who owns the platform, and his chief executive Linda Yaccarino, have work to do to grow the business, leaders told employees.`\
-https://nytimes.com/2024/06/13/technology/x-elon-musk-linda-yaccarino.html
 

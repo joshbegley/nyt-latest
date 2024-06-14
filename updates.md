@@ -1,3 +1,7 @@
+**Musk’s Friends and Fans Applaud Shareholder Vote on His Payday**\
+`On the social media platform X, which Mr. Musk owns, reactions to a vote that reaffirmed Mr. Musk’s $45 billion package were buoyant.`\
+https://nytimes.com/2024/06/13/business/tesla-elon-musk-vote-reaction.html
+
 **How California, Once Flush, Got Stuck With a Budget Shortfall**\
 `Lawmakers passed a preliminary budget that technically meets a legal deadline while they work out final details. State finances have fluctuated wildly in recent years.`\
 https://nytimes.com/2024/06/13/us/california-budget-explainer.html
