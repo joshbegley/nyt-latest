@@ -1,3 +1,7 @@
+**Charges of Race-Baiting Rattle a Key Democratic House Primary**\
+`The accusations by Representative Jamaal Bowman infused an element of unpredictability into the final days of a contest that has largely been defined by differences over the war in Gaza.`\
+https://nytimes.com/2024/06/14/nyregion/bowman-latimer-race-racism.html
+
 **It’s Donald Trump’s 78th Birthday. He Isn’t Happy About It.**\
 `As he vies to become the oldest president in American history, former President Donald J. Trump said this birthday was one he wanted to ignore.`\
 https://nytimes.com/2024/06/14/us/politics/donald-trump-birthday-campaign.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/world/europe/g7-abortion.html
 **Boeing’s Titanium Problem Reveals the Risks of Outsourcing**\
 `It often means lower quality, more errors and more cover-ups.`\
 https://nytimes.com/live/2024/06/12/opinion/thepoint/boeing-titanium-china-outsourcing
-
-**Supreme Court’s Leisurely Pace Will Produce Pileup of Late June Rulings**\
-`Even as the size of the court’s docket has shrunk, it has deferred a larger share of its decisions to the very end of its term.`\
-https://nytimes.com/2024/06/14/us/politics/supreme-court-rulings-june.html
 

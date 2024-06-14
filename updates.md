@@ -1,3 +1,7 @@
+**Charges of Race-Baiting Rattle a Key Democratic House Primary**\
+`The accusations by Representative Jamaal Bowman infused an element of unpredictability into the final days of a contest that has largely been defined by differences over the war in Gaza.`\
+https://nytimes.com/2024/06/14/nyregion/bowman-latimer-race-racism.html
+
 **It’s Donald Trump’s 78th Birthday. He Isn’t Happy About It.**\
 `As he vies to become the oldest president in American history, former President Donald J. Trump said this birthday was one he wanted to ignore.`\
 https://nytimes.com/2024/06/14/us/politics/donald-trump-birthday-campaign.html
