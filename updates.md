@@ -1,3 +1,7 @@
+**Prosecutors Won’t Bring Charges in Death of Airport Executive in A.T.F. Raid**\
+`The federal agent who fatally shot the executive director of Little Rock’s airport was justified in his use of force, a local prosecutor said on Friday.`\
+https://nytimes.com/2024/06/14/us/atf-bryan-malinowski-airport-arkansas.html
+
 **Edward Stone, 88, Physicist Who Oversaw Voyager Missions, Is Dead**\
 `He helped send the twin spacecraft on their way in 1977. Decades and billions of miles later, they are still probing — “Earth’s ambassadors to the stars,” as he put it.`\
 https://nytimes.com/2024/06/14/science/space/edward-stone-physicist-dead.html
