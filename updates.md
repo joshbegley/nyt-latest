@@ -1,3 +1,15 @@
+**A Smoked Prime Rib for the Ages**\
+`Serve with mac and cheese, coleslaw, pickled jalapeños and potato salad.`\
+https://nytimes.com/2024/06/14/dining/a-smoked-prime-rib-for-the-ages.html
+
+**Four Takeaways From the Metropolitan Opera’s Risky Season**\
+`The company has bet that new operas will attract new, more diverse audiences and revitalize a stale repertory. Is the gamble paying off?`\
+https://nytimes.com/2024/06/14/arts/music/metropolitan-opera-season.html
+
+**Five Action Movies to Stream Now**\
+`This month’s picks include bruised bodies and bruised male egos.`\
+https://nytimes.com/2024/06/14/movies/action-movies-streaming.html
+
 **‘House of the Dragon’ Review: Waiting for the Fire Breathers**\
 `The second season of HBO’s very successful “Game of Thrones” prequel gets off to an earthbound start.`\
 https://nytimes.com/2024/06/14/arts/television/house-of-the-dragon-season-2-review.html
