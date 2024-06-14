@@ -1,5 +1,5 @@
 **Sam Smith, With Guest Star Alicia Keys, Throws a Pride Party**\
-`The British singer selected Julius’, a Manhattan tavern with a storied past, as the place to celebrate the 10th anniversary of his debut.`\
+`The British singer selected Julius’, a Manhattan tavern with a storied past, as the place to celebrate the 10th anniversary of “In the Lonely Hour.”`\
 https://nytimes.com/2024/06/14/style/sam-smith-with-guest-star-alicia-keys-throws-a-pride-party.html
 
 **Martin Starger, Influential Shaper of TV and Movies, Dies at 92**\
