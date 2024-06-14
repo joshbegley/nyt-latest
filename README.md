@@ -1,3 +1,7 @@
+**I Think My Husband Has Dementia. Can I Leave Him Before It Worsens?**\
+`The magazine’s Ethicist columnist on what happens when the implications of marital vows to love “in sickness and in health” become increasingly urgent.`\
+https://nytimes.com/2024/06/14/magazine/husband-dementia-divorce-ethics.html
+
 **How Jeff Bezos Is Trying to Fix The Washington Post**\
 `The Amazon founder has expressed his support to Will Lewis, the C.E.O., who has faced widespread criticism this month.`\
 https://nytimes.com/2024/06/14/business/media/jeff-bezos-washington-post.html
@@ -6,7 +10,7 @@ https://nytimes.com/2024/06/14/business/media/jeff-bezos-washington-post.html
 `The C.P.I. has been criticized for excluding interest payments, but there’s a solid reason for that.`\
 https://nytimes.com/2024/06/14/opinion/larry-summers-inflation-interest.html
 
-**N.Y.P.D Detective Wounded in Shootout That Ended With Suspect Dead**\
+**N.Y.P.D. Detective Wounded in Shootout That Ended With Suspect Dead**\
 `The New York officer was shot in the foot at a New Jersey hotel after the police and a man sought in an East Harlem shooting exchanged gunfire, officials said.`\
 https://nytimes.com/2024/06/14/nyregion/nypd-officer-shot-suspect-killed.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/business/media/partisan-news-media-inflation.html
 **El Niño Is Over. What Does That Mean for Summer?**\
 `The NOAA Climate Prediction Center announced an end to the El Niño climate phenomenon on Thursday, and predicted that La Niña could start as early as next month.`\
 https://nytimes.com/2024/06/14/climate/el-nino-la-nina.html
-
-**Federal Judge Blocks Biden Administration’s Title IX Rules in 4 States**\
-`The ruling was the first salvo in a national legal battle over the new regulations, which extend stronger protections to L.G.B.T.Q. students.`\
-https://nytimes.com/2024/06/14/us/politics/biden-title-ix-transgender-students-schools.html
 
