@@ -7,7 +7,7 @@ https://nytimes.com/2024/06/14/us/politics/alabamas-ivf-shield-law.html
 https://nytimes.com/2024/06/14/arts/john-wilmerding-dead.html
 
 **Derek Jeter (Finally) Snags a Buyer for His New York Castle**\
-`The Yankee legend initially put the compound on the market in 2018 for $14.25 million. This time, the asking price was $6.3 million.`\
+`The Yankees legend initially put the compound on the market in 2018 for $14.25 million. This time, the asking price was $6.3 million.`\
 https://nytimes.com/2024/06/14/realestate/derek-jeter-home-sale-orange-county.html
 
 **War Veterans and Family Testify at Al Qaeda Commander’s War Crimes Tribunal**\

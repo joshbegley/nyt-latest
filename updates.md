@@ -1,3 +1,7 @@
+**Derek Jeter (Finally) Snags a Buyer for His New York Castle**\
+`The Yankees legend initially put the compound on the market in 2018 for $14.25 million. This time, the asking price was $6.3 million.`\
+https://nytimes.com/2024/06/14/realestate/derek-jeter-home-sale-orange-county.html
+
 **Alabama’s I.V.F. Shield Law Now Faces a Constitutional Challenge**\
 `The challenge, from two of the families who filed the initial lawsuit, raises the possibility that access to I.V.F. could once again be in jeopardy in the state.`\
 https://nytimes.com/2024/06/14/us/politics/alabamas-ivf-shield-law.html
