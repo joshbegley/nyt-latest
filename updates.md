@@ -1,3 +1,7 @@
+**Snow or No Snow, Australia’s Winter Resorts Are Open**\
+`Business owners say it’s hard to keep pace with the country’s sporadic snow conditions and spontaneous skiers.`\
+https://nytimes.com/2024/06/14/world/australia/letter-ski-winter.html
+
 **Here’s Why Ukraine Should Seek Peace**\
 `A peace agreement between Russia and Ukraine will stop the killing and in the long run make Ukraine better able to defend itself and democracy.`\
 https://nytimes.com/2024/06/14/opinion/ukraine-russia-peace-switzerland.html

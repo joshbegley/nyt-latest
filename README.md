@@ -1,3 +1,11 @@
+**Geneviève de Galard, French ‘Angel’ of Dien Bien Phu, Dies at 99**\
+`A nurse, she tended to the wounded as the French were under fateful attack by Viet Minh forces in 1954. Hailed in France and the U.S., she was given a ticker-tape parade down Broadway.`\
+https://nytimes.com/2024/06/14/world/europe/genevieve-de-galard-dead.html
+
+**Word of the Day: facade**\
+`This word has appeared in 350 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/06/14/learning/word-of-the-day-facade.html
+
 **Snow or No Snow, Australia’s Winter Resorts Are Open**\
 `Business owners say it’s hard to keep pace with the country’s sporadic snow conditions and spontaneous skiers.`\
 https://nytimes.com/2024/06/14/world/australia/letter-ski-winter.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/14/pageoneplus/quotation-of-the-day-championship-rin
 **They Noticed Each Other on a Train. Then Again, Six Days Later.**\
 `When Kana Abe and Jack Seemer got a second chance in the cafe car on St. Patrick’s Day, 2012, they recognized their good luck.`\
 https://nytimes.com/2024/06/14/style/kana-abe-jack-seemer-wedding.html
-
-**He Couldn’t Admit That He Was Hurt**\
-`Serving in Vietnam had turned my father into an angry man. So we went back together.`\
-https://nytimes.com/2024/06/14/style/modern-love-fathers-day-vietnam-couldnt-admit-he-was-hurt.html
-
-**From the Start, Committed to Each Other ‘in Sickness and in Health’**\
-`Shira Zilberstein and Emmanuel Cantor connected at a dinner celebrating Sukkot in 2021. Like every couple starting their lives together, they didn’t know yet what challenges lay ahead of them.`\
-https://nytimes.com/2024/06/14/style/shira-zilberstein-emmanuel-cantor-wedding.html
 
