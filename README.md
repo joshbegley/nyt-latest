@@ -1,3 +1,7 @@
+**Here’s Why Ukraine Should Seek Peace**\
+`A peace agreement between Russia and Ukraine will stop the killing and in the long run make Ukraine better able to defend itself and democracy.`\
+https://nytimes.com/2024/06/14/opinion/ukraine-russia-peace-switzerland.html
+
 **Friday Briefing**\
 `A $50 billion loan for Ukraine.`\
 https://nytimes.com/2024/06/14/briefing/ukraine-loan-mifepristone-supreme-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/style/shira-zilberstein-emmanuel-cantor-wedding.h
 **From Quinceañera Dance Partners to Life Partners**\
 `Dianna Mateos and Edgar Angel met over 10 years ago at a quinceañera. The two have grown together ever since.`\
 https://nytimes.com/2024/06/14/style/dianna-mateos-edgar-angel-wedding.html
-
-**A ‘Soul-Mate’ Connection Forged From Opposite Coasts**\
-`Tyler Eyre and Yasmine Khorram, whose family fled Iran four decades ago, describe the connection on their first date as “like lightning.”`\
-https://nytimes.com/2024/06/14/style/yasmine-khorram-tyler-eyre-wedding.html
 
