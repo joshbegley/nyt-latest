@@ -1,3 +1,7 @@
+**Johnny Canales, Tejano Music Singer and TV Host, Dies**\
+`He was known for booking new acts on his program, including Selena Quintanilla, who performed on his show in 1985 in what was one of her first live TV performances.`\
+https://nytimes.com/2024/06/14/arts/television/johnny-canales-tejano-music-dead.html
+
 **I Think My Husband Has Dementia. Can I Leave Him Before It Worsens?**\
 `The magazine’s Ethicist columnist on what happens when the implications of marital vows to love “in sickness and in health” become increasingly urgent.`\
 https://nytimes.com/2024/06/14/magazine/husband-dementia-divorce-ethics.html
