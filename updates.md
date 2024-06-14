@@ -1,3 +1,7 @@
+**$995,000 Homes in the Bahamas**\
+`A two-cottage compound on Lubbers Quarters Cay, a three-bedroom bungalow on Great Exuma island, and a two-bedroom condo on Paradise Island.`\
+https://nytimes.com/2024/06/14/realestate/995000-homes-in-the-bahamas.html
+
 **Trump plans to celebrate his 78th birthday in Florida with a trusted group of supporters.**\
 `By Shawn McCreesh`\
 https://nytimes.com/live/2024/06/08/us/biden-trump-election/trump-plans-to-celebrate-his-78th-birthday-in-florida-with-a-trusted-group-of-supporters
