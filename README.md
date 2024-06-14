@@ -1,3 +1,7 @@
+**The Best of Late Night This Week**\
+`There was a wealth of news to discuss this week, including former President Trump’s next steps after being convicted of 34 felonies and Hunter Biden’s guilty verdict on gun charges. Here’s what the hosts had to say.`\
+https://nytimes.com/interactive/2024/06/14/arts/television/best-of-late-night-hunter-biden.html
+
 **French Stocks Tumble to Worst Week in Two Years Over Election Fears**\
 `Investors worry about a possible debt crisis in the country as polls show the far right could be brought to the brink of power in less than a month.`\
 https://nytimes.com/2024/06/14/business/france-stock-market-macron-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/nyregion/cold-case-bronx-stabbing.html
 **‘Good Days and Bad Days’: Princess of Wales Gives Update on Cancer**\
 `In a message to the public, Catherine said she would attend King Charles’s birthday parade this weekend and wrote candidly about “knowing I am not out of the woods yet.”`\
 https://nytimes.com/2024/06/14/world/europe/kate-middleton-cancer-king-charles-birthday.html
-
-**33 Novels Coming This Summer**\
-`Watch for new books by J. Courtney Sullivan, Kevin Barry and Casey McQuiston; re-immerse yourself in beloved worlds conjured by Walter Mosley, Elin Hilderbrand and Rebecca Roanhorse.`\
-https://nytimes.com/2024/06/14/books/new-summer-fiction.html
 
