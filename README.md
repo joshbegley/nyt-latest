@@ -1,3 +1,7 @@
+**9 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://nytimes.com/2024/06/14/movies/new-movies-roundup.html
+
 **Musk’s Tesla Pay Package Got Big Margin in Shareholder Vote**\
 `About 72 percent of the shares in the balloting affirmed the lucrative stock award to the chief executive in a bid to get a court to reinstate it.`\
 https://nytimes.com/2024/06/14/business/tesla-elon-musk-pay-vote-stock.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/world/europe/bristol-urban-tandoor-tiktok.html
 **Parisians on TikTok Plead: ‘Don’t Come’ to Paris for the Olympics**\
 `Parisians are using the social media app to vent their displeasure with hosting the Games — and to send warnings to tourists.`\
 https://nytimes.com/2024/06/14/style/paris-olympics-tiktok.html
-
-**Mississippi Opens the Playbook for Dismantling a Free Press**\
-`A politician’s defamation case against a small Pulitzer Prize-winning news organization is designed to drain its financial resources.`\
-https://nytimes.com/2024/06/14/opinion/mississippi-press-freedom-republicans.html
 
