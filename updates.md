@@ -1,3 +1,7 @@
+**One Week That Revealed the Struggles of the Anti-Abortion Movement**\
+`The movement looks for a path forward: ‘Is the goal the absolute abolition of abortion in our nation?’`\
+https://nytimes.com/2024/06/14/us/anti-abortion-supreme-court-southern-baptists.html
+
 **Prosecutors Won’t Bring Charges in Death of Airport Executive in A.T.F. Raid**\
 `The federal agent who fatally shot the executive director of Little Rock’s airport was justified in his use of force, a local prosecutor said on Friday.`\
 https://nytimes.com/2024/06/14/us/atf-bryan-malinowski-airport-arkansas.html
