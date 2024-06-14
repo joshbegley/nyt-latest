@@ -1,3 +1,19 @@
+**Major Supreme Court Rulings, and Counterfeit Titanium in Planes**\
+`Plus, New York targets rogue smoke shops.`\
+https://nytimes.com/2024/06/14/podcasts/supreme-court-abortion-pill-starbucks-union-counterfeit-titanium.html
+
+**How to Retire as Early as Humanly Possible**\
+`Meet the extreme savers obsessed with ending their careers as soon as they can.`\
+https://nytimes.com/2024/06/14/podcasts/the-daily/fire-retirement.html
+
+**The Connections Companion No. 370, June 15, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/14/crosswords/connections-companion-370.html
+
+**Wordle Review No. 1,092, June 15, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/14/crosswords/wordle-review-1092.html
+
 **‘No Talent Involved’: How Bad TikToks Boosted a Curry House**\
 `Urban Tandoor, an Indian restaurant in southwest England, is using terrible music video parodies made by its staff to bring in new and younger guests.`\
 https://nytimes.com/2024/06/14/world/europe/bristol-urban-tandoor-tiktok.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/06/14/opinion/ezra-klein-podcast-amit-segal.html
 **How to Create ‘Rooms Within a Room’ in 260 Square Feet**\
 `For a tiny apartment in London, the solution was a shape-shifting bank of custom cabinetry built on a tight budget.`\
 https://nytimes.com/2024/06/14/realestate/tiny-apartment-london-260-square-feet.html
-
-**Apple Joins the A.I. Party, Elon’s Wild Week and HatGPT**\
-`“They really sort of make you feel like it’s Christmas and Coachella at the same time.”`\
-https://nytimes.com/2024/06/14/podcasts/hardfork-apple-intelligence-elon-musk.html
-
-**5 Things to Do This Weekend**\
-`A selection of entertainment highlights this weekend, including the Pixar sequel “Inside Out 2.”`\
-https://nytimes.com/interactive/2024/06/14/arts/weekend-editors-picks-inside-out2.html
-
-**6 New Paperbacks to Read This Week**\
-`Recommended reading from the Book Review, including titles by Silvia Moreno-Garcia, Elliot Page, Binyavanga Wainaina and more.`\
-https://nytimes.com/interactive/2024/06/14/books/new-paperbacks-page.html
-
-**The New York Times News Quiz, June 14, 2024**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2024/06/14/briefing/hunter-biden-apple-jerry-west-quiz.html
 

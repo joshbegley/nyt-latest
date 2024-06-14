@@ -1,3 +1,19 @@
+**Major Supreme Court Rulings, and Counterfeit Titanium in Planes**\
+`Plus, New York targets rogue smoke shops.`\
+https://nytimes.com/2024/06/14/podcasts/supreme-court-abortion-pill-starbucks-union-counterfeit-titanium.html
+
+**How to Retire as Early as Humanly Possible**\
+`Meet the extreme savers obsessed with ending their careers as soon as they can.`\
+https://nytimes.com/2024/06/14/podcasts/the-daily/fire-retirement.html
+
+**The Connections Companion No. 370, June 15, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/14/crosswords/connections-companion-370.html
+
+**Wordle Review No. 1,092, June 15, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/14/crosswords/wordle-review-1092.html
+
 **‘No Talent Involved’: How Bad TikToks Boosted a Curry House**\
 `Urban Tandoor, an Indian restaurant in southwest England, is using terrible music video parodies made by its staff to bring in new and younger guests.`\
 https://nytimes.com/2024/06/14/world/europe/bristol-urban-tandoor-tiktok.html
