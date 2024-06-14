@@ -1,3 +1,15 @@
+**Supreme Court Rules Against Migrants in Dispute Over Deportation Hearing Notices**\
+`A majority of the justices found that the government had fulfilled its duty to tell immigrants about their court dates, even when the information was incomplete.`\
+https://nytimes.com/2024/06/14/us/politics/supreme-court-deportation-notice-ruling.html
+
+**An Army Veteran’s Obituary Shares a Secret: ‘I Was Gay All My Life’**\
+`Edward Thomas Ryan, a retired colonel who died at 85, wrote that he was “afraid of being ostracized.” The revelation set off a wave of online tributes.`\
+https://nytimes.com/2024/06/14/nyregion/military-veteran-obituary-gay.html
+
+**Judge Orders Sale of Alex Jones’s Personal Assets but Keeps Infowars in Business**\
+`The ruling will allow the conspiracy theorist to continue broadcasting on Infowars, while the Sandy Hook families continue to pursue payment of $1.4 billion in defamation damages.`\
+https://nytimes.com/2024/06/14/us/politics/infowars-bankruptcy-alex-jones.html
+
 **Trump’s Anti-Vaccine Problem**\
 `The anti-vax sentiment coursing through his die-hards shows how Trump takes his cues from his base.`\
 https://nytimes.com/2024/06/14/us/politics/trump-anti-vax.html
