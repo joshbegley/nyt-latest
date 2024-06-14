@@ -1,3 +1,11 @@
+**The Supreme Court’s Bump Stock Decision Will Kill People**\
+`Machine guns on the street are now legal again.`\
+https://nytimes.com/live/2024/06/12/opinion/thepoint/supreme-court-bumpstocks-guns
+
+**Trump Once Promised to Revive Coal. That Was So 2016.**\
+`In earlier bids for the White House, former President Donald Trump pledged to get miners back to work. Now, he trumpets oil and gas, and hardly mentions the dirtiest of the fossil fuels.`\
+https://nytimes.com/2024/06/14/climate/trump-coal-politics.html
+
 **Tzav-9 is a ‘violent, extremist Israeli group that has been blocking, harassing, and damaging convoys,’ the U.S. says.**\
 `The State Department announced the sanctions to signal to Israeli leaders that they need to rein in extremist groups that are trying to prevent aid from getting to Palestinians in the devastated strip.`\
 https://nytimes.com/live/2024/06/14/world/israel-gaza-war-hamas/us-imposes-sanctions-on-an-israeli-group-that-has-blocked-aid-trucks-bound-for-gaza
