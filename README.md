@@ -1,3 +1,11 @@
+**The Supreme Court’s Bump Stock Decision Will Kill People**\
+`Machine guns on the street are now legal again.`\
+https://nytimes.com/live/2024/06/12/opinion/thepoint/supreme-court-bumpstocks-guns
+
+**Trump Once Promised to Revive Coal. That Was So 2016.**\
+`In earlier bids for the White House, former President Donald Trump pledged to get miners back to work. Now, he trumpets oil and gas, and hardly mentions the dirtiest of the fossil fuels.`\
+https://nytimes.com/2024/06/14/climate/trump-coal-politics.html
+
 **Tzav-9 is a ‘violent, extremist Israeli group that has been blocking, harassing, and damaging convoys,’ the U.S. says.**\
 `The State Department announced the sanctions to signal to Israeli leaders that they need to rein in extremist groups that are trying to prevent aid from getting to Palestinians in the devastated strip.`\
 https://nytimes.com/live/2024/06/14/world/israel-gaza-war-hamas/us-imposes-sanctions-on-an-israeli-group-that-has-blocked-aid-trucks-bound-for-gaza
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/14/arts/television/house-of-the-dragon-season-2-revi
 **Erin Moriarty Is a Woman Among ‘The Boys’**\
 `The actress in the hit superhero satire mulled her role in an age of online bullying and token feminism: “Thank God there are characters like this.”`\
 https://nytimes.com/2024/06/14/arts/television/erin-moriarty-the-boys.html
-
-**It’s Time to Sweat. The East Coast’s First Heat Wave Is on the Way.**\
-`The abrupt arrival of summer will bring stifling temperatures from Chicago to New York, with little relief overnight.`\
-https://nytimes.com/2024/06/14/weather/heat-wave-forecast-east-coast.html
-
-**Fauci Speaks His Mind on Trump’s Rages and Their ‘Complicated’ Relationship**\
-`In a new book, Dr. Anthony S. Fauci recounts a career advising seven presidents. The chapter about Donald J. Trump is titled “He Loves Me, He Loves Me Not.”`\
-https://nytimes.com/2024/06/14/us/politics/fauci-trump-book-covid.html
 
