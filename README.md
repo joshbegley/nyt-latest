@@ -1,3 +1,7 @@
+**Corrections: June 14, 2024**\
+`Corrections that appeared in print on Friday, June 14, 2024.`\
+https://nytimes.com/2024/06/14/pageoneplus/corrections-june-14-2024.html
+
 **Guilty Verdict for Chinese Activists Who Gave #MeToo Victims a Voice**\
 `Huang Xueqin, a journalist, and Wang Jianbing, a labor activist, were convicted of subversion, a vaguely worded charge long seen as a tool for muzzling dissent.`\
 https://nytimes.com/2024/06/14/world/asia/china-me-too-verdict.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/learning/word-of-the-day-facade.html
 **Snow or No Snow, Australia’s Winter Resorts Are Open**\
 `Business owners say it’s hard to keep pace with the country’s sporadic snow conditions and spontaneous skiers.`\
 https://nytimes.com/2024/06/14/world/australia/letter-ski-winter.html
-
-**Here’s Why Ukraine Should Seek Peace**\
-`A peace agreement between Russia and Ukraine will stop the killing and in the long run make Ukraine better able to defend itself and democracy.`\
-https://nytimes.com/2024/06/14/opinion/ukraine-russia-peace-switzerland.html
 
