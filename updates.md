@@ -1,3 +1,7 @@
+**Flooding Remains Possible on Fourth Day of Soaking Rains Over South Florida**\
+`A flood watch was active until Friday evening after hundreds of flights were canceled and states of emergency were declared in several counties. More rain was expected into the afternoon.`\
+https://nytimes.com/2024/06/14/weather/florida-rain-flooding.html
+
 **$995,000 Homes in the Bahamas**\
 `A two-cottage compound on Lubbers Quarters Cay, a three-bedroom bungalow on Great Exuma island, and a two-bedroom condo on Paradise Island.`\
 https://nytimes.com/2024/06/14/realestate/995000-homes-in-the-bahamas.html
