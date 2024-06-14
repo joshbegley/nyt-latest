@@ -1,3 +1,7 @@
+**Google C.E.O. Testifies in Ozy Media Founder’s Fraud Trial**\
+`Sundar Pichai, the chief executive of Google, said he never discussed a potential acquisition of the digital media start-up.`\
+https://nytimes.com/2024/06/14/business/media/google-ceo-ozy-fraud-trial.html
+
 **At the G7, Biden Can’t Escape the Shadow of the Gaza War**\
 `The president was miffed when, expecting to talk about a security pact with Ukraine, he was asked for updates on the Gaza cease-fire plan.`\
 https://nytimes.com/2024/06/14/world/middleeast/g7-biden-gaza-war-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/06/14/arts/television/best-of-late-night-hu
 **French Stocks Tumble to Worst Week in Two Years Over Election Fears**\
 `Investors worry about a possible debt crisis in the country as polls show the far right could be brought to the brink of power in less than a month.`\
 https://nytimes.com/2024/06/14/business/france-stock-market-macron-election.html
-
-**The Ultimate Dad Rock Playlist**\
-`What is dad rock? You know it when you hear it, so listen to 10 songs from Wilco, the Grateful Dead, Steely Dan and more.`\
-https://nytimes.com/2024/06/14/arts/music/amplifier-newsletter-dad-rock.html
 

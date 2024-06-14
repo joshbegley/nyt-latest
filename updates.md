@@ -1,3 +1,15 @@
+**At the G7, Biden Can’t Escape the Shadow of the Gaza War**\
+`The president was miffed when, expecting to talk about a security pact with Ukraine, he was asked for updates on the Gaza cease-fire plan.`\
+https://nytimes.com/2024/06/14/world/middleeast/g7-biden-gaza-war-ukraine.html
+
+**U.S. Catholic Bishops Apologize for Traumas of Indian Boarding Schools**\
+`The bishops acknowledged the church’s role in operating schools where Native American children faced abuses and forced assimilation.`\
+https://nytimes.com/2024/06/14/us/catholic-apologize-indian-boarding-schools.html
+
+**The Ingenuity of Lowcountry’s Deviled Crab**\
+`Deviling bolsters smaller pieces of blue crab with mayonnaise, bread crumbs, sautéed aromatics, plus a kick of cayenne.`\
+https://nytimes.com/2024/06/14/dining/deviled-crab.html
+
 **How Media Outlets on the Right and Left Covered the Latest Inflation Numbers**\
 `Conservative media outlets used the new inflation data, which was lower than expected, to criticize President Biden’s handling of the economy. Liberal media outlets celebrated it.`\
 https://nytimes.com/2024/06/14/business/media/partisan-news-media-inflation.html
