@@ -1,3 +1,7 @@
+**Flip Over**\
+`Robyn Weintraub opens our solving weekend.`\
+https://nytimes.com/2024/06/13/crosswords/daily-puzzle-2024-06-14.html
+
 **Kennedy Vows to Cut Military Budget in Half**\
 `Robert F. Kennedy Jr. said the United States should accept a diminished role in global affairs and divert much of the nation’s security spending to domestic programs.`\
 https://nytimes.com/2024/06/13/us/politics/rfk-jr-military-budget.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/nyregion/covid-robert-menendez-trial-delay.html
 **Museum Calls Off Kehinde Wiley Show, Citing Assault Allegations**\
 `The Minneapolis Institute of Art said it would not move forward with a show after the artist was accused of sexual misconduct, which he has denied.`\
 https://nytimes.com/2024/06/13/arts/design/museums-kehinde-wiley-minneapolis-allegations.html
-
-**Will Biden’s Help for Ukraine Come Fast Enough and Last Long Enough?**\
-`The president signed a 10-year security pact with Ukraine and promised, with E.U. help, a $50 billion loan. But will the money arrive in time to turn the tide, and will the deal outlast the election in November?`\
-https://nytimes.com/2024/06/13/world/europe/g7-biden-ukraine-agreements.html
 
