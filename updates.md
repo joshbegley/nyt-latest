@@ -1,3 +1,7 @@
+**Doping Regulator Knew of Previous Positive Tests by Chinese Swimmers**\
+`Three athletes who failed drug tests before the 2021 Olympics had tested positive for a powerful steroid several years earlier. They were not suspended in either incident.`\
+https://nytimes.com/2024/06/14/world/asia/china-swimming-doping.html
+
 **The Best of Late Night This Week**\
 `There was a wealth of news to discuss this week, including former President Trump’s next steps after being convicted of 34 felonies and Hunter Biden’s guilty verdict on gun charges. Here’s what the hosts had to say.`\
 https://nytimes.com/interactive/2024/06/14/arts/television/best-of-late-night-hunter-biden.html
