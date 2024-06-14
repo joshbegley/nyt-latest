@@ -1,3 +1,7 @@
+**Two Covid Theories**\
+`Was the pandemic started by a lab leak or by natural transmission? We look at the evidence.`\
+https://nytimes.com/2024/06/14/briefing/two-covid-theories.html
+
 **Major Supreme Court Rulings, and Counterfeit Titanium in Planes**\
 `Plus, New York targets rogue smoke shops.`\
 https://nytimes.com/2024/06/14/podcasts/supreme-court-abortion-pill-starbucks-union-counterfeit-titanium.html

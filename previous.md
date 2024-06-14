@@ -1,3 +1,7 @@
+**Two Covid Theories**\
+`Was the pandemic started by a lab leak or by natural transmission? We look at the evidence.`\
+https://nytimes.com/2024/06/14/briefing/two-covid-theories.html
+
 **Major Supreme Court Rulings, and Counterfeit Titanium in Planes**\
 `Plus, New York targets rogue smoke shops.`\
 https://nytimes.com/2024/06/14/podcasts/supreme-court-abortion-pill-starbucks-union-counterfeit-titanium.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/us/parkland-school-shooting-demolition.html
 **The View From the Israeli Right**\
 `The Israeli journalist Amit Segal discusses Benny Gantz’s departure from the war cabinet, Israel’s shift to the right and whether a new theory of security is emerging in Israeli politics.`\
 https://nytimes.com/2024/06/14/opinion/ezra-klein-podcast-amit-segal.html
-
-**How to Create ‘Rooms Within a Room’ in 260 Square Feet**\
-`For a tiny apartment in London, the solution was a shape-shifting bank of custom cabinetry built on a tight budget.`\
-https://nytimes.com/2024/06/14/realestate/tiny-apartment-london-260-square-feet.html
 
