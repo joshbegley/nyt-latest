@@ -1,3 +1,7 @@
+**Late Night Recaps Trump’s First Trip to Capitol Hill Since Jan. 6**\
+`“They always return to the scene of the crime,” Jimmy Kimmel said after the former president met with House Republicans on Thursday.`\
+https://nytimes.com/2024/06/14/arts/television/late-night-trump-capitol-hill.html
+
 **Geneviève de Galard, French ‘Angel’ of Dien Bien Phu, Dies at 99**\
 `A nurse, she tended to the wounded as the French were under fateful attack by Viet Minh forces in 1954. Hailed in France and the U.S., she was given a ticker-tape parade down Broadway.`\
 https://nytimes.com/2024/06/14/world/europe/genevieve-de-galard-dead.html

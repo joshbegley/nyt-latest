@@ -1,3 +1,7 @@
+**Late Night Recaps Trump’s First Trip to Capitol Hill Since Jan. 6**\
+`“They always return to the scene of the crime,” Jimmy Kimmel said after the former president met with House Republicans on Thursday.`\
+https://nytimes.com/2024/06/14/arts/television/late-night-trump-capitol-hill.html
+
 **Geneviève de Galard, French ‘Angel’ of Dien Bien Phu, Dies at 99**\
 `A nurse, she tended to the wounded as the French were under fateful attack by Viet Minh forces in 1954. Hailed in France and the U.S., she was given a ticker-tape parade down Broadway.`\
 https://nytimes.com/2024/06/14/world/europe/genevieve-de-galard-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/world/europe/germany-euros-nagelsmann.html
 **Quotation of the Day: Championship Rings Woo Clients With Their Miniature Secrets**\
 `Quotation of the Day for Friday, June 14, 2024.`\
 https://nytimes.com/2024/06/14/pageoneplus/quotation-of-the-day-championship-rings-woo-clients-with-their-miniature-secrets.html
-
-**They Noticed Each Other on a Train. Then Again, Six Days Later.**\
-`When Kana Abe and Jack Seemer got a second chance in the cafe car on St. Patrick’s Day, 2012, they recognized their good luck.`\
-https://nytimes.com/2024/06/14/style/kana-abe-jack-seemer-wedding.html
 
