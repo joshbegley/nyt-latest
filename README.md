@@ -1,3 +1,7 @@
+**Putin Makes Cease-Fire Offer With Sweeping Demands on Ukraine’s Territory**\
+`Ukraine denounced the offer, saying that Mr. Putin was “afraid of real peace.” The Russian leader made the remarks one day before a peace summit organized by Kyiv.`\
+https://nytimes.com/2024/06/14/world/europe/russia-ukraine-putin-cease-fire.html
+
 **Ukraine Welcomes Pledges of More Military Aid With Cautious Optimism**\
 `Kyiv signed security pacts with several Western allies this week. Whether they will fundamentally change the course of the war, or endure beyond looming elections elsewhere, is unclear.`\
 https://nytimes.com/2024/06/14/world/europe/ukraine-biden-military-aid.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/podcasts/the-daily/fire-retirement.html
 **The Connections Companion No. 370, June 15, 2024**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/06/14/crosswords/connections-companion-370.html
-
-**Wordle Review No. 1,092, June 15, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/06/14/crosswords/wordle-review-1092.html
 
