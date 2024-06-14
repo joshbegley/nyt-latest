@@ -1,3 +1,7 @@
+**An Eclectic Summer Book Preview**\
+`Three editors gather to discuss 10 books they’re looking forward to over the next several months.`\
+https://nytimes.com/2024/06/14/books/review/summer-preview-podcast.html
+
 **For Gay Catholics and Supporters, a ‘Sense of Whiplash’ Over Pope’s Reported Use of Slur**\
 `Pope Francis, noted for his outreach to gay Catholics, has been described as using an offensive Italian expression for gay men twice in recent weeks.`\
 https://nytimes.com/2024/06/14/us/catholics-pope-slur.html

@@ -1,3 +1,7 @@
+**An Eclectic Summer Book Preview**\
+`Three editors gather to discuss 10 books they’re looking forward to over the next several months.`\
+https://nytimes.com/2024/06/14/books/review/summer-preview-podcast.html
+
 **For Gay Catholics and Supporters, a ‘Sense of Whiplash’ Over Pope’s Reported Use of Slur**\
 `Pope Francis, noted for his outreach to gay Catholics, has been described as using an offensive Italian expression for gay men twice in recent weeks.`\
 https://nytimes.com/2024/06/14/us/catholics-pope-slur.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/opinion/larry-summers-inflation-interest.html
 **N.Y.P.D. Detective Wounded in Shootout That Ended With Suspect Dead**\
 `The New York officer was shot in the foot at a New Jersey hotel after the police and a man sought in an East Harlem shooting exchanged gunfire, officials said.`\
 https://nytimes.com/2024/06/14/nyregion/nypd-officer-shot-suspect-killed.html
-
-**Google C.E.O. Testifies in Ozy Media Founder’s Fraud Trial**\
-`Sundar Pichai, the chief executive of Google, said he never discussed a potential acquisition of the digital media start-up.`\
-https://nytimes.com/2024/06/14/business/media/google-ceo-ozy-fraud-trial.html
 
