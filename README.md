@@ -1,4 +1,4 @@
-**Supreme Court Overturns Trump-Era Ban on Gun Bump Stocks**\
+**Supreme Court Rejects Trump-Era Ban on Gun Bump Stocks**\
 `The justices found that the administration exceeded its power in prohibiting the sale and possession of the gun attachments.`\
 https://nytimes.com/2024/06/14/us/politics/supreme-court-trump-gun-bump-stocks.html
 
