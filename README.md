@@ -1,3 +1,7 @@
+**Girl, 13, Sexually Assaulted at Knife Point in Queens Park, Police Say**\
+`The girl and a schoolmate, a 13-year-old boy, were forced into a secluded area by a man who later fled, the authorities said. Investigators combed the area for evidence Friday.`\
+https://nytimes.com/2024/06/14/nyregion/queens-park-sexual-assault-knife-point.html
+
 **Johnny Canales, Tejano Music Singer and TV Host, Dies**\
 `He was known for booking new acts on his program, including Selena Quintanilla, who performed on his show in 1985 in what was one of her first live TV performances.`\
 https://nytimes.com/2024/06/14/arts/television/johnny-canales-tejano-music-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/us/catholic-apologize-indian-boarding-schools.htm
 **The Ingenuity of Lowcountry’s Deviled Crab**\
 `Deviling bolsters smaller pieces of blue crab with mayonnaise, bread crumbs, sautéed aromatics, plus a kick of cayenne.`\
 https://nytimes.com/2024/06/14/dining/deviled-crab.html
-
-**How Media Outlets on the Right and Left Covered the Latest Inflation Numbers**\
-`Conservative media outlets used the new inflation data, which was lower than expected, to criticize President Biden’s handling of the economy. Liberal media outlets celebrated it.`\
-https://nytimes.com/2024/06/14/business/media/partisan-news-media-inflation.html
 
