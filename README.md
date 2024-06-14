@@ -1,3 +1,7 @@
+**Crisis Averted: Martha’s Vineyard Will Have Enough Pot This Summer After All**\
+`For the island’s cannabis dispensaries, a sudden change in regulations came just in time.`\
+https://nytimes.com/2024/06/14/style/marthas-vineyard-weed-crisis.html
+
 **A Smoked Prime Rib for the Ages**\
 `Serve with mac and cheese, coleslaw, pickled jalapeños and potato salad.`\
 https://nytimes.com/2024/06/14/dining/a-smoked-prime-rib-for-the-ages.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/books/review/apprentice-in-wonderland-ramin-setoo
 **After France renews a push for a diplomatic agreement with Hezbollah, Israel’s defense minister accuses it of ‘hostile policies.’**\
 `By Aaron Boxerman, Euan Ward and Aurelien Breeden`\
 https://nytimes.com/live/2024/06/14/world/israel-gaza-war-hamas/after-france-renews-a-push-for-a-diplomatic-agreement-with-hezbollah-israels-defense-minister-accuses-it-of-hostile-policies
-
-**It’s the Summer of ‘Brats’**\
-`Fans of the new Charli XCX album count themselves among them. But the term “brat” has cropped up elsewhere in culture lately, and it has subtly different meanings.`\
-https://nytimes.com/2024/06/14/style/charli-xcx-brat-summer.html
 
