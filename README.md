@@ -2,7 +2,7 @@
 `Hear tracks by Zsela, the Decemberists, Khalid and others.`\
 https://nytimes.com/2024/06/14/arts/music/playlist-jelly-roll-khalid.html
 
-**The Supreme Court’s Bump Stock Decision Will Kill People**\
+**The Supreme Court’s Bump Stock Decision Will Prove Fatal**\
 `Machine guns on the street are now legal again.`\
 https://nytimes.com/2024/06/12/opinion/supreme-court-bumpstocks-guns.html
 
