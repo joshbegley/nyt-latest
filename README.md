@@ -1,3 +1,7 @@
+**Ukraine Welcomes Pledges of More Military Aid With Cautious Optimism**\
+`Kyiv signed security pacts with several Western allies this week. Whether they will fundamentally change the course of the war, or endure beyond looming elections elsewhere, is unclear.`\
+https://nytimes.com/2024/06/14/world/europe/ukraine-biden-military-aid.html
+
 **What Elon Musk’s Convincing Win Means for Tesla**\
 `Investors voted overwhelmingly to reinstate the C.E.O.’s multibillion-dollar compensation package, inextricably tying the car maker’s future to the tech billionaire.`\
 https://nytimes.com/2024/06/14/business/dealbook/elon-musk-pay-package-win.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/crosswords/connections-companion-370.html
 **Wordle Review No. 1,092, June 15, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/06/14/crosswords/wordle-review-1092.html
-
-**‘No Talent Involved’: How Bad TikToks Boosted a Curry House**\
-`Urban Tandoor, an Indian restaurant in southwest England, is using terrible music video parodies made by its staff to bring in new and younger guests.`\
-https://nytimes.com/2024/06/14/world/europe/bristol-urban-tandoor-tiktok.html
 
