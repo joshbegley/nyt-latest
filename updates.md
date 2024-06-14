@@ -1,5 +1,9 @@
 **The Supreme Court’s Bump Stock Decision Will Kill People**\
 `Machine guns on the street are now legal again.`\
+https://nytimes.com/2024/06/12/opinion/supreme-court-bumpstocks-guns.html
+
+**The Supreme Court’s Bump Stock Decision Will Kill People**\
+`Machine guns on the street are now legal again.`\
 https://nytimes.com/live/2024/06/12/opinion/thepoint/supreme-court-bumpstocks-guns
 
 **Trump Once Promised to Revive Coal. That Was So 2016.**\
