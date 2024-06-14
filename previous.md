@@ -1,3 +1,7 @@
+**It’s Time to Sweat. The East Coast’s First Heat Wave Is on the Way.**\
+`The abrupt arrival of summer will bring stifling temperatures from Chicago to New York, with little relief overnight.`\
+https://nytimes.com/2024/06/14/weather/heat-wave-forecast-east-coast.html
+
 **Fauci Speaks His Mind on Trump’s Rages and Their ‘Complicated’ Relationship**\
 `In a new book, Dr. Anthony S. Fauci recounts a career advising seven presidents. The chapter about Donald J. Trump is titled “He Loves Me, He Loves Me Not.”`\
 https://nytimes.com/2024/06/14/us/politics/fauci-trump-book-covid.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/06/14/business/tesla-shareholder-vote-resul
 **Trump Is Thinking About His Debates. And His Running Mate’s, Too.**\
 `As he considers his vice-presidential pick, Donald J. Trump has sought advice on a few key factors, including who will match up best on the debate stage against Vice President Kamala Harris.`\
 https://nytimes.com/2024/06/14/us/politics/trump-vp-debate-performances.html
-
-**Finding Strength Through Song**\
-`Writing music helps me create a space where subjugation and violence are far away.`\
-https://nytimes.com/2024/06/14/special-series/silvana-estrada-mexico-violence-fear.html
 
