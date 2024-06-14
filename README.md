@@ -1,3 +1,7 @@
+**Clearview AI Used Your Face. Now You May Get a Stake in the Company.**\
+`The facial recognition start-up doesn’t have the funds to settle a class-action lawsuit, so lawyers are proposing equity for those whose faces were scraped from the internet.`\
+https://nytimes.com/2024/06/13/technology/clearview-ai-facial-recognition-settlement.html
+
 **Musk’s Friends and Fans Applaud Shareholder Vote on His Payday**\
 `On the social media platform X, which Mr. Musk owns, reactions to a vote that reaffirmed Mr. Musk’s $45 billion package were buoyant.`\
 https://nytimes.com/2024/06/13/business/tesla-elon-musk-vote-reaction.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/opinion/gifted-children-intelligence.html
 **Patrick Gottsch, Champion of Rural TV Programming, Dies at 70**\
 `After a career as a satellite dish installer, he found success with RFD-TV, a 24-hour cable channel aimed at farmers and ranchers.`\
 https://nytimes.com/2024/06/13/business/media/patrick-gottsch-dead.html
-
-**Grand Jury Declines to Indict Principal Accused of Endangering a Student**\
-`In a case that roiled a racially diverse town in New Jersey for months, a high school principal is one step closer to getting his job back.`\
-https://nytimes.com/2024/06/13/nyregion/nj-principal-grand-jury.html
 
