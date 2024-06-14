@@ -1,3 +1,7 @@
+**How Media Outlets on the Right and Left Covered the Latest Inflation Numbers**\
+`Conservative media outlets used the new inflation data, which was lower than expected, to criticize President Biden’s handling of the economy. Liberal media outlets celebrated it.`\
+https://nytimes.com/2024/06/14/business/media/partisan-news-media-inflation.html
+
 **El Niño Is Over. What Does That Mean for Summer?**\
 `The NOAA Climate Prediction Center announced an end to the El Niño climate phenomenon on Thursday, and predicted that La Niña could start as early as next month.`\
 https://nytimes.com/2024/06/14/climate/el-nino-la-nina.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/us/politics/fetterman-car-crash-driving.html
 **Site of Parkland School Shooting Is Being Demolished**\
 `The former freshman building at Marjory Stoneman Douglas High School had been preserved as a crime scene since the attack on Feb. 14, 2018.`\
 https://nytimes.com/video/us/100000009521618/parkland-stoneman-douglas-demolition.html
-
-**When Churches Cancel Their Own**\
-`Responses to a column by David French and his former church. Also: An extremist Supreme Court; a “failing candidacy”; help after prison.`\
-https://nytimes.com/2024/06/14/opinion/church-cancellation-david-french.html
 

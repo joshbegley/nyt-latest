@@ -1,3 +1,7 @@
+**How Media Outlets on the Right and Left Covered the Latest Inflation Numbers**\
+`Conservative media outlets used the new inflation data, which was lower than expected, to criticize President Biden’s handling of the economy. Liberal media outlets celebrated it.`\
+https://nytimes.com/2024/06/14/business/media/partisan-news-media-inflation.html
+
 **El Niño Is Over. What Does That Mean for Summer?**\
 `The NOAA Climate Prediction Center announced an end to the El Niño climate phenomenon on Thursday, and predicted that La Niña could start as early as next month.`\
 https://nytimes.com/2024/06/14/climate/el-nino-la-nina.html

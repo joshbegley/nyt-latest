@@ -1,3 +1,15 @@
+**At the G7, Biden Can’t Escape the Shadow of the Gaza War**\
+`The president was miffed when, expecting to talk about a security pact with Ukraine, he was asked for updates on the Gaza cease-fire plan.`\
+https://nytimes.com/2024/06/14/world/middleeast/g7-biden-gaza-war-ukraine.html
+
+**U.S. Catholic Bishops Apologize for Traumas of Indian Boarding Schools**\
+`The bishops acknowledged the church’s role in operating schools where Native American children faced abuses and forced assimilation.`\
+https://nytimes.com/2024/06/14/us/catholic-apologize-indian-boarding-schools.html
+
+**The Ingenuity of Lowcountry’s Deviled Crab**\
+`Deviling bolsters smaller pieces of blue crab with mayonnaise, bread crumbs, sautéed aromatics, plus a kick of cayenne.`\
+https://nytimes.com/2024/06/14/dining/deviled-crab.html
+
 **How Media Outlets on the Right and Left Covered the Latest Inflation Numbers**\
 `Conservative media outlets used the new inflation data, which was lower than expected, to criticize President Biden’s handling of the economy. Liberal media outlets celebrated it.`\
 https://nytimes.com/2024/06/14/business/media/partisan-news-media-inflation.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/14/business/france-stock-market-macron-election.html
 **The Ultimate Dad Rock Playlist**\
 `What is dad rock? You know it when you hear it, so listen to 10 songs from Wilco, the Grateful Dead, Steely Dan and more.`\
 https://nytimes.com/2024/06/14/arts/music/amplifier-newsletter-dad-rock.html
-
-**3.3%**\
-`The rate of inflation in May over the previous year.`\
-https://nytimes.com/2024/06/14/business/3-3-percent-may-inflation.html
-
-**Fetterman Has History of Driving Infractions, Records and Former Aides Say**\
-`The senator’s accident in Maryland last weekend did not come as a surprise to some of his former staff members, who said he was a notoriously distracted driver.`\
-https://nytimes.com/2024/06/14/us/politics/fetterman-car-crash-driving.html
-
-**Site of Parkland School Shooting Is Being Demolished**\
-`The former freshman building at Marjory Stoneman Douglas High School had been preserved as a crime scene since the attack on Feb. 14, 2018.`\
-https://nytimes.com/video/us/100000009521618/parkland-stoneman-douglas-demolition.html
 
