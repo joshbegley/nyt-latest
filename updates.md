@@ -1,3 +1,15 @@
+**John Wilmerding, Who Helped Give American Art an Identity, Dies at 86**\
+`American paintings were largely overlooked and undervalued until he came along. A scholar, curator and collector, he oversaw important exhibitions over the last 50 years.`\
+https://nytimes.com/2024/06/14/arts/john-wilmerding-dead.html
+
+**Derek Jeter (Finally) Snags a Buyer for His New York Castle**\
+`The Yankee legend initially put the compound on the market in 2018 for $14.25 million. The pending sale is for $6.3 million.`\
+https://nytimes.com/2024/06/14/realestate/derek-jeter-home-sale-orange-county.html
+
+**War Veterans and Family Testify at Al Qaeda Commander’s War Crimes Tribunal**\
+`Victims of insurgent attacks in wartime Afghanistan described their loss to a jury at Guantánamo Bay to give a human face to a written guilty plea.`\
+https://nytimes.com/2024/06/14/us/politics/gitmo-war-crimes-hearing.html
+
 **Sam Smith, With Guest Star Alicia Keys, Throws a Pride Party**\
 `The British singer selected Julius’, a Manhattan tavern with a storied past, as the place to celebrate the 10th anniversary of “In the Lonely Hour.”`\
 https://nytimes.com/2024/06/14/style/sam-smith-with-guest-star-alicia-keys-throws-a-pride-party.html

@@ -1,3 +1,15 @@
+**John Wilmerding, Who Helped Give American Art an Identity, Dies at 86**\
+`American paintings were largely overlooked and undervalued until he came along. A scholar, curator and collector, he oversaw important exhibitions over the last 50 years.`\
+https://nytimes.com/2024/06/14/arts/john-wilmerding-dead.html
+
+**Derek Jeter (Finally) Snags a Buyer for His New York Castle**\
+`The Yankee legend initially put the compound on the market in 2018 for $14.25 million. The pending sale is for $6.3 million.`\
+https://nytimes.com/2024/06/14/realestate/derek-jeter-home-sale-orange-county.html
+
+**War Veterans and Family Testify at Al Qaeda Commander’s War Crimes Tribunal**\
+`Victims of insurgent attacks in wartime Afghanistan described their loss to a jury at Guantánamo Bay to give a human face to a written guilty plea.`\
+https://nytimes.com/2024/06/14/us/politics/gitmo-war-crimes-hearing.html
+
 **Sam Smith, With Guest Star Alicia Keys, Throws a Pride Party**\
 `The British singer selected Julius’, a Manhattan tavern with a storied past, as the place to celebrate the 10th anniversary of “In the Lonely Hour.”`\
 https://nytimes.com/2024/06/14/style/sam-smith-with-guest-star-alicia-keys-throws-a-pride-party.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/14/us/politics/trump-anti-vax.html
 **Judge Orders Sale of Alex Jones’s Personal Assets but Keeps Infowars in Business**\
 `The ruling will allow the conspiracy theorist to continue broadcasting on Infowars, while the Sandy Hook families continue to pursue payment of $1.4 billion in defamation damages.`\
 https://nytimes.com/2024/06/14/us/politics/infowars-bankruptcy-alex-jones.html
-
-**Charges of Race-Baiting Rattle a Key Democratic House Primary**\
-`The accusations by Representative Jamaal Bowman infused an element of unpredictability into the final days of a contest that has largely been defined by differences over the war in Gaza.`\
-https://nytimes.com/2024/06/14/nyregion/bowman-latimer-race-racism.html
-
-**It’s Donald Trump’s 78th Birthday. He Isn’t Happy About It.**\
-`As he vies to become the oldest president in American history, former President Donald J. Trump said this birthday was one he wanted to ignore.`\
-https://nytimes.com/2024/06/14/us/politics/donald-trump-birthday-campaign.html
-
-**The Supreme Court Rejected the Ban on Bump Stocks**\
-`Plus, advice for dads, from dads.`\
-https://nytimes.com/2024/06/14/briefing/supreme-court-bump-stocks-putin-ukraine-gaza-heatwave.html
 
