@@ -1,3 +1,7 @@
+**Thomas Took Additional Trips With Harlan Crow, Documents Show**\
+`A congressional committee released documents showing that Justice Clarence Thomas had not disclosed three private jet trips paid for by the Texas billionaire Harlan Crow.`\
+https://nytimes.com/2024/06/13/us/politics/justice-clarence-thomas-harlan-crow-trips.html
+
 **Clearview AI Used Your Face. Now You May Get a Stake in the Company.**\
 `The facial recognition start-up doesn’t have the funds to settle a class-action lawsuit, so lawyers are proposing equity for those whose faces were scraped from the internet.`\
 https://nytimes.com/2024/06/13/technology/clearview-ai-facial-recognition-settlement.html
