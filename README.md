@@ -1,3 +1,7 @@
+**Fetterman Has History of Driving Infractions, Records and Former Aides Say**\
+`The senator’s accident in Maryland last weekend did not come as a surprise to some of his former staff members, who said he was a notoriously distracted driver.`\
+https://nytimes.com/2024/06/14/us/politics/fetterman-car-crash-driving.html
+
 **Site of Parkland School Shooting Is Being Demolished**\
 `The former freshman building at Marjory Stoneman Douglas High School had been preserved as a crime scene since the attack on Feb. 14, 2018.`\
 https://nytimes.com/video/us/100000009521618/parkland-stoneman-douglas-demolition.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/well/mind/inside-out-2-anxiety.html
 **F.B.I. Director Makes Rare Visit to Africa as Terrorism Threat Grows**\
 `The Islamic State and Al Qaeda consider Africa ‘very fertile ground,’ said Christopher A. Wray, who is meeting with officials in Nigeria and Kenya.`\
 https://nytimes.com/2024/06/14/us/politics/fbi-director-africa-terrorism-threat.html
-
-**A far-right Israeli minister tried to halt police protection for aid trucks, another official charged.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/06/14/world/israel-gaza-war-hamas/a-far-right-israeli-minister-tried-to-halt-police-protection-for-aid-trucks-another-official-charged
 
