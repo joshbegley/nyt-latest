@@ -1,3 +1,7 @@
+**Stephen Colbert and Whoopi Goldberg Met the Pope in the Vatican. No Joke.**\
+`Francis hosted an audience with over 100 comic entertainers, also including Chris Rock, Julia Louis-Dreyfus and Conan O’Brien. He said there was much to learn from them.`\
+https://nytimes.com/2024/06/14/world/europe/pope-francis-comedians-vatican.html
+
 **Two Covid Theories**\
 `Was the pandemic started by a lab leak or by natural transmission? We look at the evidence.`\
 https://nytimes.com/2024/06/14/briefing/two-covid-theories.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/opinion/mississippi-press-freedom-republicans.htm
 **Site of Parkland Shooting to Be Torn Down**\
 `Demolition of the former freshman building at Marjory Stoneman Douglas High School was expected to start on Friday and take a few weeks, officials said.`\
 https://nytimes.com/2024/06/14/us/parkland-school-shooting-demolition.html
-
-**The View From the Israeli Right**\
-`The Israeli journalist Amit Segal discusses Benny Gantz’s departure from the war cabinet, Israel’s shift to the right and whether a new theory of security is emerging in Israeli politics.`\
-https://nytimes.com/2024/06/14/opinion/ezra-klein-podcast-amit-segal.html
 
