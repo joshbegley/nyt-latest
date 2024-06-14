@@ -1,3 +1,7 @@
+**The Bump Stock Ban Stemmed From a Horrific Mass Shooting**\
+`A gunman used bump stocks to help kill 60 people at a concert in Las Vegas in 2017, leading to wide political agreement that they should be prohibited.`\
+https://nytimes.com/2024/06/14/us/bump-stock-vegas-shooting-supreme-court.html
+
 **An Eclectic Summer Book Preview**\
 `Three editors gather to discuss 10 books they’re looking forward to over the next several months.`\
 https://nytimes.com/2024/06/14/books/review/summer-preview-podcast.html
