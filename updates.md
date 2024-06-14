@@ -1,3 +1,7 @@
+**After France renews a push for a diplomatic agreement with Hezbollah, Israel’s defense minister accuses it of ‘hostile policies.’**\
+`By Aaron Boxerman, Euan Ward and Aurelien Breeden`\
+https://nytimes.com/live/2024/06/14/world/israel-gaza-war-hamas/after-france-renews-a-push-for-a-diplomatic-agreement-with-hezbollah-israels-defense-minister-accuses-it-of-hostile-policies
+
 **It’s the Summer of ‘Brats’**\
 `Fans of the new Charli XCX album count themselves among them. But the term “brat” has cropped up elsewhere in culture lately, and it has subtly different meanings.`\
 https://nytimes.com/2024/06/14/style/charli-xcx-brat-summer.html
