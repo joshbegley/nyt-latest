@@ -2,7 +2,7 @@
 `Hear tracks by Zsela, the Decemberists, Khalid and others.`\
 https://nytimes.com/2024/06/14/arts/music/playlist-jelly-roll-khalid.html
 
-**The Supreme Court’s Bump Stock Decision Will Kill People**\
+**The Supreme Court’s Bump Stock Decision Will Prove Fatal**\
 `Machine guns on the street are now legal again.`\
 https://nytimes.com/2024/06/12/opinion/supreme-court-bumpstocks-guns.html
 
@@ -10,7 +10,7 @@ https://nytimes.com/2024/06/12/opinion/supreme-court-bumpstocks-guns.html
 `In earlier bids for the White House, former President Donald Trump pledged to get miners back to work. Now, he trumpets oil and gas, and hardly mentions the dirtiest of the fossil fuels.`\
 https://nytimes.com/2024/06/14/climate/trump-coal-politics.html
 
-**Tzav-9 is a ‘violent, extremist Israeli group that has been blocking, harassing, and damaging convoys,’ the U.S. says.**\
+**U.S. imposes sanctions on an Israeli group that has blocked aid trucks bound for Gaza.**\
 `The State Department announced the sanctions to signal to Israeli leaders that they need to rein in extremist groups that are trying to prevent aid from getting to Palestinians in the devastated strip.`\
 https://nytimes.com/live/2024/06/14/world/israel-gaza-war-hamas/us-imposes-sanctions-on-an-israeli-group-that-has-blocked-aid-trucks-bound-for-gaza
 

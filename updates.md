@@ -1,3 +1,11 @@
+**The Supreme Court’s Bump Stock Decision Will Prove Fatal**\
+`Machine guns on the street are now legal again.`\
+https://nytimes.com/2024/06/12/opinion/supreme-court-bumpstocks-guns.html
+
+**U.S. imposes sanctions on an Israeli group that has blocked aid trucks bound for Gaza.**\
+`The State Department announced the sanctions to signal to Israeli leaders that they need to rein in extremist groups that are trying to prevent aid from getting to Palestinians in the devastated strip.`\
+https://nytimes.com/live/2024/06/14/world/israel-gaza-war-hamas/us-imposes-sanctions-on-an-israeli-group-that-has-blocked-aid-trucks-bound-for-gaza
+
 **Jelly Roll’s Anthem of Perseverance, and 9 More New Songs**\
 `Hear tracks by Zsela, the Decemberists, Khalid and others.`\
 https://nytimes.com/2024/06/14/arts/music/playlist-jelly-roll-khalid.html
