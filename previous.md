@@ -1,5 +1,5 @@
 **U.S. Designates Largest Neo-Nazi Group in Sweden as Terrorist Organization**\
-`The Nordic Resistance Movement and three of its leaders were given the label in a rare move by the State Department targeting white supremacists.`\
+`The Nordic Resistance Movement and three of its leaders were labeled terrorists in a rare move by the State Department targeting white supremacists.`\
 https://nytimes.com/2024/06/14/us/politics/us-sweden-neo-nazi-group-terrorists.html
 
 **A Tense Debate Erupts at the G7, This Time Over Abortion Rights**\
