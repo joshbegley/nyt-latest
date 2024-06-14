@@ -1,3 +1,11 @@
+**Justice Dept. Says It Won’t Prosecute Garland for Contempt**\
+`The decision was expected because President Biden had invoked executive privilege to shield recordings subpoenaed by G.O.P. lawmakers.`\
+https://nytimes.com/2024/06/14/us/politics/merrick-garland-contempt-doj.html
+
+**Another Summer to Remember? For Germany: So Far, So Great.**\
+`A 5-1 thrashing of Scotland in the opening game of Euro 2024 was a good omen for a host nation in search of one.`\
+https://nytimes.com/2024/06/14/world/europe/germany-scotland-euro-2024.html
+
 **U.S. Designates Largest Neo-Nazi Group in Sweden as Terrorist Organization**\
 `The Nordic Resistance Movement and three of its leaders were labeled terrorists in a rare move by the State Department targeting white supremacists.`\
 https://nytimes.com/2024/06/14/us/politics/us-sweden-neo-nazi-group-terrorists.html
