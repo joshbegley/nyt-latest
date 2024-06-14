@@ -1,3 +1,7 @@
+**Cuomo Faulted for Pandemic Leadership but Not for Nursing Home Deaths**\
+`An audit commissioned by his successor said former Gov. Andrew M. Cuomo’s decision to centralize the state response to the pandemic in his office was a “significant” mistake.`\
+https://nytimes.com/2024/06/14/nyregion/cuomo-covid-nursing-homes.html
+
 **Nancy Mace Settles Her Score With Kevin McCarthy**\
 `She wins the spotlight she loves, but what will she do with it?`\
 https://nytimes.com/live/2024/06/12/opinion/thepoint/nancy-mace-mccarthy

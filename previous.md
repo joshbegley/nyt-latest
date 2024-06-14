@@ -1,3 +1,7 @@
+**Cuomo Faulted for Pandemic Leadership but Not for Nursing Home Deaths**\
+`An audit commissioned by his successor said former Gov. Andrew M. Cuomo’s decision to centralize the state response to the pandemic in his office was a “significant” mistake.`\
+https://nytimes.com/2024/06/14/nyregion/cuomo-covid-nursing-homes.html
+
 **Nancy Mace Settles Her Score With Kevin McCarthy**\
 `She wins the spotlight she loves, but what will she do with it?`\
 https://nytimes.com/live/2024/06/12/opinion/thepoint/nancy-mace-mccarthy
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/business/media/google-ceo-ozy-fraud-trial.html
 **At the G7, Biden Can’t Escape the Shadow of the Gaza War**\
 `The president was miffed when, expecting to talk about a security pact with Ukraine, he was asked for updates on the Gaza cease-fire plan.`\
 https://nytimes.com/2024/06/14/world/middleeast/g7-biden-gaza-war-ukraine.html
-
-**U.S. Catholic Bishops Apologize for Traumas of Indian Boarding Schools**\
-`The bishops acknowledged the church’s role in operating schools where Native American children faced abuses and forced assimilation.`\
-https://nytimes.com/2024/06/14/us/catholic-apologize-indian-boarding-schools.html
 
