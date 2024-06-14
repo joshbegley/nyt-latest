@@ -1,3 +1,15 @@
+**Edward Stone, 88, Physicist Who Oversaw Voyager Missions, Is Dead**\
+`He helped send the twin spacecraft on their way in 1977. Decades and billions of miles later, they are still probing — “Earth’s ambassadors to the stars,” as he put it.`\
+https://nytimes.com/2024/06/14/science/space/edward-stone-physicist-dead.html
+
+**In Milan, a Maximalist Home With a Shower Shaped Like a Bird Cage**\
+`The Italian architect and designer Roberto Gerosa has converted a disused wood shop into a live-work space where his imagination can run wild.`\
+https://nytimes.com/2024/06/14/t-magazine/roberto-gerosa-home-milan.html
+
+**Israeli Defense Chief Rebuffs French Effort to End Israel-Hezbollah Fighting**\
+`The United States, France and other mediators have sought for months to reach an agreement that would stop the tit-for-tat missile strikes over Israel’s border with Lebanon.`\
+https://nytimes.com/2024/06/14/world/middleeast/israel-hamas-hezbollah-lebanon.html
+
 **Derek Jeter (Finally) Snags a Buyer for His New York Castle**\
 `The Yankees legend initially put the compound on the market in 2018 for $14.25 million. This time, the asking price was $6.3 million.`\
 https://nytimes.com/2024/06/14/realestate/derek-jeter-home-sale-orange-county.html
