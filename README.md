@@ -1,3 +1,7 @@
+**House G.O.P. Pushes Through Defense Bill Nixing Abortion Access Policy**\
+`The annual defense policy legislation emerged from a House committee with bipartisan backing, but Republicans loaded it with right-wing mandates targeting abortion, transgender care and diversity initiatives.`\
+https://nytimes.com/2024/06/14/us/politics/house-defense-bill-abortion.html
+
 **Crisis Averted: Martha’s Vineyard Will Have Enough Pot This Summer After All**\
 `For the island’s cannabis dispensaries, a sudden change in regulations came just in time.`\
 https://nytimes.com/2024/06/14/style/marthas-vineyard-weed-crisis.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/us/politics/fauci-trump-book-covid.html
 **Millions of Americans Watched ‘The Apprentice.’ Now We Are Living It.**\
 `As a new book by Ramin Setoodeh shows, Donald Trump brought the vulgar theatrics he honed on TV to his life in politics.`\
 https://nytimes.com/2024/06/14/books/review/apprentice-in-wonderland-ramin-setoodeh.html
-
-**After France renews a push for a diplomatic agreement with Hezbollah, Israel’s defense minister accuses it of ‘hostile policies.’**\
-`By Aaron Boxerman, Euan Ward and Aurelien Breeden`\
-https://nytimes.com/live/2024/06/14/world/israel-gaza-war-hamas/after-france-renews-a-push-for-a-diplomatic-agreement-with-hezbollah-israels-defense-minister-accuses-it-of-hostile-policies
 
