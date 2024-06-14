@@ -1,3 +1,7 @@
+**Crisis Averted: Martha’s Vineyard Will Have Enough Pot This Summer After All**\
+`For the island’s cannabis dispensaries, a sudden change in regulations came just in time.`\
+https://nytimes.com/2024/06/14/style/marthas-vineyard-weed-crisis.html
+
 **A Smoked Prime Rib for the Ages**\
 `Serve with mac and cheese, coleslaw, pickled jalapeños and potato salad.`\
 https://nytimes.com/2024/06/14/dining/a-smoked-prime-rib-for-the-ages.html
