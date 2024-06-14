@@ -1,3 +1,11 @@
+**It’s the Summer of ‘Brats’**\
+`Fans of the new Charli XCX album count themselves among them. But the term “brat” has cropped up elsewhere in culture lately, and it has subtly different meanings.`\
+https://nytimes.com/2024/06/14/style/charli-xcx-brat-summer.html
+
+**$29 Trillion: That’s How Much Debt Emerging Nations Are Facing**\
+`A decades-long crisis is getting worse, and now dozens of nations are spending more on interest payments than on health care or education.`\
+https://nytimes.com/2024/06/14/business/government-debt.html
+
 **Supreme Court Rejects Trump-Era Ban on Gun Bump Stocks**\
 `The justices found that the administration exceeded its power in prohibiting the sale and possession of the gun attachments.`\
 https://nytimes.com/2024/06/14/us/politics/supreme-court-trump-gun-bump-stocks.html
