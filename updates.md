@@ -1,3 +1,7 @@
+**Why Cover Saudi Arabia as a Travel Destination?**\
+`An editor on the Travel desk explains our decision to explore the Middle Eastern kingdom.`\
+https://nytimes.com/2024/06/14/insider/saudi-arabia-coverage.html
+
 **Almost 20 Years After She Found Her Mother’s Body, a Cold Case Thaws**\
 `She was just a girl when her mother was stabbed to death in the Bronx. Now, an arrest based on DNA has brought her bittersweet relief.`\
 https://nytimes.com/2024/06/14/nyregion/cold-case-bronx-stabbing.html
