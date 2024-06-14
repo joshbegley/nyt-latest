@@ -1,3 +1,7 @@
+**Supreme Court Overturns Trump-Era Ban on Gun Bump Stocks**\
+`The justices found that the administration exceeded its power in prohibiting the sale and possession of the gun attachments.`\
+https://nytimes.com/2024/06/14/us/politics/supreme-court-trump-gun-bump-stocks.html
+
 **G7 Agrees to $50 Billion Ukraine Loan Backed by Russian Assets. How Will It Work?**\
 `The United States and others plan to give the sum to Kyiv, with the interest from Moscow’s assets frozen in the West used to repay it. But many of the details about the arrangement are unclear.`\
 https://nytimes.com/2024/06/14/world/europe/ukraine-g7-ukraine-aid-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/world/europe/france-francoise-hardy-tributes.html
 **First a Victim of Tax Return Identity Theft, Then a 2-Year Wait for a Refund**\
 `The I.R.S.’s Taxpayer Advocate Service found that many of those affected were lower-income people who depended on refunds to cover living costs. The wait is “ridiculous,” the head of the service said.`\
 https://nytimes.com/2024/06/14/your-money/tax-return-refund-identify-theft.html
-
-**A California Law Banning Hidden Fees Goes Into Effect Next Month**\
-`Some lawmakers are trying to carve out an exception for restaurant owners, who say simply raising prices without context would hurt their business.`\
-https://nytimes.com/2024/06/14/us/california-restaurant-hidden-fees-ban.html
 
