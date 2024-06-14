@@ -1,3 +1,11 @@
+**Martin Starger, Influential Shaper of TV and Movies, Dies at 92**\
+`In his decade at ABC, long the doormat network in prime time, he helped guide it toward the No. 1 spot. He later produced “Nashville” and won an Emmy for “Friendly Fire.”`\
+https://nytimes.com/2024/06/14/arts/television/martin-starger-dead.html
+
+**Bad Bunny and Reggaeton Have Sparked a Puerto Rican Spanish Renaissance**\
+`As Bad Bunny and other Puerto Rican musical artists explode in popularity, language instructors say more people want to learn how to speak the island’s slick, swaggering version of Spanish.`\
+https://nytimes.com/interactive/2024/06/14/arts/music/bad-bunny-reggaeton-puerto-rico-spanish.html
+
 **Supreme Court Rules Against Migrants in Dispute Over Deportation Hearing Notices**\
 `A majority of the justices found that the government had fulfilled its duty to tell immigrants about their court dates, even when the information was incomplete.`\
 https://nytimes.com/2024/06/14/us/politics/supreme-court-deportation-notice-ruling.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/14/briefing/supreme-court-bump-stocks-putin-ukraine-
 **U.S. Investigating ‘Dutch Roll’ That Damaged a Boeing 737 During Flight**\
 `The Southwest Airlines flight experienced a rare oscillation in May that caused “substantial” damage to its tail section and prompted investigations from federal agencies.`\
 https://nytimes.com/2024/06/14/business/boeing-dutch-roll-southwest-faa.html
-
-**The Best Father’s Day Gift Is a Book**\
-`It's a keepsake for generations.`\
-https://nytimes.com/interactive/2024/06/14/smarter-living/wirecutter/fathers-day-book.html
-
-**Justice Dept. Says It Won’t Prosecute Garland for Contempt**\
-`The decision was expected because President Biden had invoked executive privilege to shield recordings subpoenaed by G.O.P. lawmakers.`\
-https://nytimes.com/2024/06/14/us/politics/merrick-garland-contempt-doj.html
 
