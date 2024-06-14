@@ -14,8 +14,8 @@ https://nytimes.com/interactive/2024/06/14/arts/music/bad-bunny-reggaeton-puerto
 `A majority of the justices found that the government had fulfilled its duty to tell immigrants about their court dates, even when the information was incomplete.`\
 https://nytimes.com/2024/06/14/us/politics/supreme-court-deportation-notice-ruling.html
 
-**An Army Veteran’s Obituary Shares a Secret: ‘I Was Gay All My Life’**\
-`Edward Thomas Ryan, a retired colonel who died at 85, wrote that he was “afraid of being ostracized.” The revelation set off a wave of online tributes.`\
+**A Retired Army Colonel’s Obituary Shares a Secret: ‘I Was Gay All My Life’**\
+`Edward Thomas Ryan, who died at 85, wrote that he was “afraid of being ostracized.” The revelation set off a wave of online tributes.`\
 https://nytimes.com/2024/06/14/nyregion/military-veteran-obituary-gay.html
 
 **Trump’s Anti-Vaccine Problem**\
