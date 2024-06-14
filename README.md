@@ -1,3 +1,11 @@
+**‘House of the Dragon’ Review: Waiting for the Fire Breathers**\
+`The second season of HBO’s very successful “Game of Thrones” prequel gets off to an earthbound start.`\
+https://nytimes.com/2024/06/14/arts/television/house-of-the-dragon-season-2-review.html
+
+**Erin Moriarty Is a Woman Among ‘The Boys’**\
+`The actress in the hit superhero satire mulled her role in an age of online bullying and token feminism: “Thank God there are characters like this.”`\
+https://nytimes.com/2024/06/14/arts/television/erin-moriarty-the-boys.html
+
 **It’s Time to Sweat. The East Coast’s First Heat Wave Is on the Way.**\
 `The abrupt arrival of summer will bring stifling temperatures from Chicago to New York, with little relief overnight.`\
 https://nytimes.com/2024/06/14/weather/heat-wave-forecast-east-coast.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/14/us/politics/supreme-court-trump-gun-bump-stocks.h
 **G7 Agrees to $50 Billion Ukraine Loan Backed by Russian Assets. How Will It Work?**\
 `The United States and others plan to give the sum to Kyiv, with the interest from Moscow’s assets frozen in the West used to repay it. But many of the details about the arrangement are unclear.`\
 https://nytimes.com/2024/06/14/world/europe/ukraine-g7-ukraine-aid-russia.html
-
-**How Tesla Shareholders Upheld Elon Musk’s Sky-High Pay**\
-`The vote on the compensation package, which helped make Mr. Musk one of the richest men in the world, served as a referendum on his performance running the automaker.`\
-https://nytimes.com/interactive/2024/06/14/business/tesla-shareholder-vote-results.html
-
-**Trump Is Thinking About His Debates. And His Running Mate’s, Too.**\
-`As he considers his vice-presidential pick, Donald J. Trump has sought advice on a few key factors, including who will match up best on the debate stage against Vice President Kamala Harris.`\
-https://nytimes.com/2024/06/14/us/politics/trump-vp-debate-performances.html
 
