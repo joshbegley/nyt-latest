@@ -1,3 +1,15 @@
+**Edward Stone, 88, Physicist Who Oversaw Voyager Missions, Is Dead**\
+`He helped send the twin spacecraft on their way in 1977. Decades and billions of miles later, they are still probing — “Earth’s ambassadors to the stars,” as he put it.`\
+https://nytimes.com/2024/06/14/science/space/edward-stone-physicist-dead.html
+
+**In Milan, a Maximalist Home With a Shower Shaped Like a Bird Cage**\
+`The Italian architect and designer Roberto Gerosa has converted a disused wood shop into a live-work space where his imagination can run wild.`\
+https://nytimes.com/2024/06/14/t-magazine/roberto-gerosa-home-milan.html
+
+**Israeli Defense Chief Rebuffs French Effort to End Israel-Hezbollah Fighting**\
+`The United States, France and other mediators have sought for months to reach an agreement that would stop the tit-for-tat missile strikes over Israel’s border with Lebanon.`\
+https://nytimes.com/2024/06/14/world/middleeast/israel-hamas-hezbollah-lebanon.html
+
 **Alabama’s I.V.F. Shield Law Now Faces a Constitutional Challenge**\
 `The challenge, from two of the families who filed the initial lawsuit, raises the possibility that access to I.V.F. could once again be in jeopardy in the state.`\
 https://nytimes.com/2024/06/14/us/politics/alabamas-ivf-shield-law.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/14/arts/television/martin-starger-dead.html
 **Bad Bunny and Reggaeton Have Sparked a Puerto Rican Spanish Renaissance**\
 `As Bad Bunny and other Puerto Rican musical artists explode in popularity, language instructors say more people want to learn how to speak the island’s slick, swaggering version of Spanish.`\
 https://nytimes.com/interactive/2024/06/14/arts/music/bad-bunny-reggaeton-puerto-rico-spanish.html
-
-**Supreme Court Rules Against Migrants in Dispute Over Deportation Hearing Notices**\
-`A majority of the justices found that the government had fulfilled its duty to tell immigrants about their court dates, even when the information was incomplete.`\
-https://nytimes.com/2024/06/14/us/politics/supreme-court-deportation-notice-ruling.html
-
-**A Retired Army Colonel’s Obituary Shares a Secret: ‘I Was Gay All My Life’**\
-`Edward Thomas Ryan, who died at 85, wrote that he was “afraid of being ostracized.” The revelation set off a wave of online tributes.`\
-https://nytimes.com/2024/06/14/nyregion/military-veteran-obituary-gay.html
-
-**Trump’s Anti-Vaccine Problem**\
-`The anti-vax sentiment coursing through his die-hards shows how Trump takes his cues from his base.`\
-https://nytimes.com/2024/06/14/us/politics/trump-anti-vax.html
 
