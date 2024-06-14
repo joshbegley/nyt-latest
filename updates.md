@@ -1,3 +1,5 @@
+**Biden says getting to a cease-fire ‘is going to be tough,’ and other news.**\
+
 **Hamas is not sure how many hostages are still alive, a spokesman says.**\
 `By Victoria Kim`\
 https://nytimes.com/live/2024/06/14/world/israel-gaza-war-hamas/hamas-is-not-sure-how-many-hostages-are-still-alive-a-spokesman-says
