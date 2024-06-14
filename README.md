@@ -1,3 +1,11 @@
+**Larry Summers Isn’t Second-Guessing the Government on Inflation**\
+`The C.P.I. has been criticized for excluding interest payments, but there’s a solid reason for that.`\
+https://nytimes.com/2024/06/14/opinion/larry-summers-inflation-interest.html
+
+**N.Y.P.D Detective Wounded in Shootout That Ended With Suspect Dead**\
+`The New York officer was shot in the foot at a New Jersey hotel after the police and a man sought in an East Harlem shooting exchanged gunfire, officials said.`\
+https://nytimes.com/2024/06/14/nyregion/nypd-officer-shot-suspect-killed.html
+
 **Google C.E.O. Testifies in Ozy Media Founder’s Fraud Trial**\
 `Sundar Pichai, the chief executive of Google, said he never discussed a potential acquisition of the digital media start-up.`\
 https://nytimes.com/2024/06/14/business/media/google-ceo-ozy-fraud-trial.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/14/us/politics/biden-title-ix-transgender-students-s
 **Doping Regulator Knew of Previous Positive Tests by Chinese Swimmers**\
 `Three athletes who failed drug tests before the 2021 Olympics had tested positive for a powerful steroid several years earlier. They were not suspended in either incident.`\
 https://nytimes.com/2024/06/14/world/asia/china-swimming-doping.html
-
-**The Best of Late Night This Week**\
-`There was a wealth of news to discuss this week, including former President Trump’s next steps after being convicted of 34 felonies and Hunter Biden’s guilty verdict on gun charges. Here’s what the hosts had to say.`\
-https://nytimes.com/interactive/2024/06/14/arts/television/best-of-late-night-hunter-biden.html
-
-**French Stocks Tumble to Worst Week in Two Years Over Election Fears**\
-`Investors worry about a possible debt crisis in the country as polls show the far right could be brought to the brink of power in less than a month.`\
-https://nytimes.com/2024/06/14/business/france-stock-market-macron-election.html
 
