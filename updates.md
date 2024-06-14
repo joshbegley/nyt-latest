@@ -1,3 +1,11 @@
+**‘House of the Dragon’ Review: Waiting for the Fire Breathers**\
+`The second season of HBO’s very successful “Game of Thrones” prequel gets off to an earthbound start.`\
+https://nytimes.com/2024/06/14/arts/television/house-of-the-dragon-season-2-review.html
+
+**Erin Moriarty Is a Woman Among ‘The Boys’**\
+`The actress in the hit superhero satire mulled her role in an age of online bullying and token feminism: “Thank God there are characters like this.”`\
+https://nytimes.com/2024/06/14/arts/television/erin-moriarty-the-boys.html
+
 **It’s Time to Sweat. The East Coast’s First Heat Wave Is on the Way.**\
 `The abrupt arrival of summer will bring stifling temperatures from Chicago to New York, with little relief overnight.`\
 https://nytimes.com/2024/06/14/weather/heat-wave-forecast-east-coast.html
