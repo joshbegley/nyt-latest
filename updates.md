@@ -1,3 +1,7 @@
+**Judge Orders Sale of Alex Jones’s Personal Assets but Keeps Infowars in Business**\
+`The ruling will allow Alex Jones to continue broadcasting on Infowars, while the Sandy Hook families continue to pursue payment of $1.4 billion in defamation damages awarded them.`\
+https://nytimes.com/2024/06/14/us/politics/infowars-bankruptcy-alex-jones.html
+
 **Charges of Race-Baiting Rattle a Key Democratic House Primary**\
 `The accusations by Representative Jamaal Bowman infused an element of unpredictability into the final days of a contest that has largely been defined by differences over the war in Gaza.`\
 https://nytimes.com/2024/06/14/nyregion/bowman-latimer-race-racism.html
