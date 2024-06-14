@@ -1,3 +1,7 @@
+**9 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://nytimes.com/2024/06/14/movies/new-movies-roundup.html
+
 **Musk’s Tesla Pay Package Got Big Margin in Shareholder Vote**\
 `About 72 percent of the shares in the balloting affirmed the lucrative stock award to the chief executive in a bid to get a court to reinstate it.`\
 https://nytimes.com/2024/06/14/business/tesla-elon-musk-pay-vote-stock.html
