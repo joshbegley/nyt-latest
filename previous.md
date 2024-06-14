@@ -1,3 +1,7 @@
+**U.S. Designates Largest Neo-Nazi Group in Sweden as Terrorist Organization**\
+`The Nordic Resistance Movement and three of its leaders were given the label in a rare move by the State Department targeting white supremacists.`\
+https://nytimes.com/2024/06/14/us/politics/us-sweden-neo-nazi-group-terrorists.html
+
 **A Tense Debate Erupts at the G7, This Time Over Abortion Rights**\
 `Wording in the summit’s final statement led to a diplomatic tug of war, primarily between the United States and Italy.`\
 https://nytimes.com/2024/06/14/world/europe/g7-abortion.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/nyregion/cuomo-covid-nursing-homes.html
 **Nancy Mace Settles Her Score With Kevin McCarthy**\
 `She wins the spotlight she loves, but what will she do with it?`\
 https://nytimes.com/live/2024/06/12/opinion/thepoint/nancy-mace-mccarthy
-
-**Girl, 13, Sexually Assaulted at Knifepoint in Queens Park, Police Say**\
-`The girl and a schoolmate, a 13-year-old boy, were forced into a secluded area by a man who later fled, the authorities said. Investigators combed the area for evidence Friday.`\
-https://nytimes.com/2024/06/14/nyregion/queens-park-sexual-assault-knife-point.html
 

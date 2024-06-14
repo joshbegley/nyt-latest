@@ -1,3 +1,7 @@
+**U.S. Designates Largest Neo-Nazi Group in Sweden as Terrorist Organization**\
+`The Nordic Resistance Movement and three of its leaders were given the label in a rare move by the State Department targeting white supremacists.`\
+https://nytimes.com/2024/06/14/us/politics/us-sweden-neo-nazi-group-terrorists.html
+
 **A Tense Debate Erupts at the G7, This Time Over Abortion Rights**\
 `Wording in the summit’s final statement led to a diplomatic tug of war, primarily between the United States and Italy.`\
 https://nytimes.com/2024/06/14/world/europe/g7-abortion.html
