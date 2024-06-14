@@ -1,3 +1,11 @@
+**Larry Summers Isn’t Second-Guessing the Government on Inflation**\
+`The C.P.I. has been criticized for excluding interest payments, but there’s a solid reason for that.`\
+https://nytimes.com/2024/06/14/opinion/larry-summers-inflation-interest.html
+
+**N.Y.P.D Detective Wounded in Shootout That Ended With Suspect Dead**\
+`The New York officer was shot in the foot at a New Jersey hotel after the police and a man sought in an East Harlem shooting exchanged gunfire, officials said.`\
+https://nytimes.com/2024/06/14/nyregion/nypd-officer-shot-suspect-killed.html
+
 **Google C.E.O. Testifies in Ozy Media Founder’s Fraud Trial**\
 `Sundar Pichai, the chief executive of Google, said he never discussed a potential acquisition of the digital media start-up.`\
 https://nytimes.com/2024/06/14/business/media/google-ceo-ozy-fraud-trial.html
