@@ -1,3 +1,7 @@
+**For Gay Catholics and Supporters, a ‘Sense of Whiplash’ Over Pope’s Reported Use of Slur**\
+`Pope Francis, noted for his outreach to gay Catholics, has been described as using an offensive Italian expression for gay men twice in recent weeks.`\
+https://nytimes.com/2024/06/14/us/catholics-pope-slur.html
+
 **Cuomo Faulted for Pandemic Leadership but Not for Nursing Home Deaths**\
 `An audit commissioned by his successor said former Gov. Andrew M. Cuomo’s decision to centralize the state response to the pandemic in his office was a “significant” mistake.`\
 https://nytimes.com/2024/06/14/nyregion/cuomo-covid-nursing-homes.html
