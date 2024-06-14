@@ -1,3 +1,7 @@
+**Flooding Remains Possible on Fourth Day of Soaking Rains Over South Florida**\
+`A flood watch was active until Friday evening after hundreds of flights were canceled and states of emergency were declared in several counties. More rain was expected into the afternoon.`\
+https://nytimes.com/2024/06/14/weather/florida-rain-flooding.html
+
 **$995,000 Homes in the Bahamas**\
 `A two-cottage compound on Lubbers Quarters Cay, a three-bedroom bungalow on Great Exuma island, and a two-bedroom condo on Paradise Island.`\
 https://nytimes.com/2024/06/14/realestate/995000-homes-in-the-bahamas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/world/europe/ukraine-biden-military-aid.html
 **What Elon Musk’s Convincing Win Means for Tesla**\
 `Investors voted overwhelmingly to reinstate the C.E.O.’s multibillion-dollar compensation package, inextricably tying the car maker’s future to the tech billionaire.`\
 https://nytimes.com/2024/06/14/business/dealbook/elon-musk-pay-package-win.html
-
-**9 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://nytimes.com/2024/06/14/movies/new-movies-roundup.html
 
