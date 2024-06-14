@@ -1,3 +1,15 @@
+**A Smoked Prime Rib for the Ages**\
+`Serve with mac and cheese, coleslaw, pickled jalapeños and potato salad.`\
+https://nytimes.com/2024/06/14/dining/a-smoked-prime-rib-for-the-ages.html
+
+**Four Takeaways From the Metropolitan Opera’s Risky Season**\
+`The company has bet that new operas will attract new, more diverse audiences and revitalize a stale repertory. Is the gamble paying off?`\
+https://nytimes.com/2024/06/14/arts/music/metropolitan-opera-season.html
+
+**Five Action Movies to Stream Now**\
+`This month’s picks include bruised bodies and bruised male egos.`\
+https://nytimes.com/2024/06/14/movies/action-movies-streaming.html
+
 **‘House of the Dragon’ Review: Waiting for the Fire Breathers**\
 `The second season of HBO’s very successful “Game of Thrones” prequel gets off to an earthbound start.`\
 https://nytimes.com/2024/06/14/arts/television/house-of-the-dragon-season-2-review.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/06/14/world/israel-gaza-war-hamas/after-france-ren
 **It’s the Summer of ‘Brats’**\
 `Fans of the new Charli XCX album count themselves among them. But the term “brat” has cropped up elsewhere in culture lately, and it has subtly different meanings.`\
 https://nytimes.com/2024/06/14/style/charli-xcx-brat-summer.html
-
-**$29 Trillion: That’s How Much Debt Emerging Nations Are Facing**\
-`A decades-long crisis is getting worse, and now dozens of nations are spending more on interest payments than on health care or education.`\
-https://nytimes.com/2024/06/14/business/government-debt.html
-
-**Supreme Court Rejects Trump-Era Ban on Gun Bump Stocks**\
-`The justices found that the administration exceeded its power in prohibiting the sale and possession of the gun attachments.`\
-https://nytimes.com/2024/06/14/us/politics/supreme-court-trump-gun-bump-stocks.html
-
-**G7 Agrees to $50 Billion Ukraine Loan Backed by Russian Assets. How Will It Work?**\
-`The United States and others plan to give the sum to Kyiv, with the interest from Moscow’s assets frozen in the West used to repay it. But many of the details about the arrangement are unclear.`\
-https://nytimes.com/2024/06/14/world/europe/ukraine-g7-ukraine-aid-russia.html
 
