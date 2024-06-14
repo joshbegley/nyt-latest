@@ -1,3 +1,15 @@
+**I Think My Husband Has Dementia. Can I Leave Him Before It Worsens?**\
+`The magazine’s Ethicist columnist on what happens when the implications of marital vows to love “in sickness and in health” become increasingly urgent.`\
+https://nytimes.com/2024/06/14/magazine/husband-dementia-divorce-ethics.html
+
+**How Jeff Bezos Is Trying to Fix The Washington Post**\
+`The Amazon founder has expressed his support to Will Lewis, the C.E.O., who has faced widespread criticism this month.`\
+https://nytimes.com/2024/06/14/business/media/jeff-bezos-washington-post.html
+
+**N.Y.P.D. Detective Wounded in Shootout That Ended With Suspect Dead**\
+`The New York officer was shot in the foot at a New Jersey hotel after the police and a man sought in an East Harlem shooting exchanged gunfire, officials said.`\
+https://nytimes.com/2024/06/14/nyregion/nypd-officer-shot-suspect-killed.html
+
 **Larry Summers Isn’t Second-Guessing the Government on Inflation**\
 `The C.P.I. has been criticized for excluding interest payments, but there’s a solid reason for that.`\
 https://nytimes.com/2024/06/14/opinion/larry-summers-inflation-interest.html
