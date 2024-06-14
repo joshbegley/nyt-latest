@@ -1,3 +1,11 @@
+**Geneviève de Galard, French ‘Angel’ of Dien Bien Phu, Dies at 99**\
+`A nurse, she tended to the wounded as the French were under fateful attack by Viet Minh forces in 1954. Hailed in France and the U.S., she was given a ticker-tape parade down Broadway.`\
+https://nytimes.com/2024/06/14/world/europe/genevieve-de-galard-dead.html
+
+**Word of the Day: facade**\
+`This word has appeared in 350 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/06/14/learning/word-of-the-day-facade.html
+
 **Snow or No Snow, Australia’s Winter Resorts Are Open**\
 `Business owners say it’s hard to keep pace with the country’s sporadic snow conditions and spontaneous skiers.`\
 https://nytimes.com/2024/06/14/world/australia/letter-ski-winter.html
