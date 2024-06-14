@@ -1,4 +1,4 @@
-**U.S. imposes sanctions on an Israeli group that has blocked aid trucks bound for Gaza.**\
+**The U.S. called Tzav-9 a ‘violent, extremist Israeli group that has been blocking, harassing, and damaging convoys.’**\
 `The State Department announced the sanctions to signal to Israeli leaders that they need to rein in extremist groups that are trying to prevent aid from getting to Palestinians in the devastated strip.`\
 https://nytimes.com/live/2024/06/14/world/israel-gaza-war-hamas/us-imposes-sanctions-on-an-israeli-group-that-has-blocked-aid-trucks-bound-for-gaza
 
