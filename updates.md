@@ -1,3 +1,11 @@
+**Sam Smith, With Guest Star Alicia Keys, Throws a Pride Party**\
+`The British singer selected Julius’, a Manhattan tavern with a storied past, as the place to celebrate the 10th anniversary of “In the Lonely Hour.”`\
+https://nytimes.com/2024/06/14/style/sam-smith-with-guest-star-alicia-keys-throws-a-pride-party.html
+
+**A Retired Army Colonel’s Obituary Shares a Secret: ‘I Was Gay All My Life’**\
+`Edward Thomas Ryan, who died at 85, wrote that he was “afraid of being ostracized.” The revelation set off a wave of online tributes.`\
+https://nytimes.com/2024/06/14/nyregion/military-veteran-obituary-gay.html
+
 **Martin Starger, Influential Shaper of TV and Movies, Dies at 92**\
 `In his decade at ABC, long the doormat network in prime time, he helped guide it toward the No. 1 spot. He later produced “Nashville” and won an Emmy for “Friendly Fire.”`\
 https://nytimes.com/2024/06/14/arts/television/martin-starger-dead.html
