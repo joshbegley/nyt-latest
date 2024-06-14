@@ -1,3 +1,11 @@
+**Martin Starger, Influential Shaper of TV and Movies, Dies at 92**\
+`In his decade at ABC, long the doormat network in prime time, he helped guide it toward the No. 1 spot. He later produced “Nashville” and won an Emmy for “Friendly Fire.”`\
+https://nytimes.com/2024/06/14/arts/television/martin-starger-dead.html
+
+**Bad Bunny and Reggaeton Have Sparked a Puerto Rican Spanish Renaissance**\
+`As Bad Bunny and other Puerto Rican musical artists explode in popularity, language instructors say more people want to learn how to speak the island’s slick, swaggering version of Spanish.`\
+https://nytimes.com/interactive/2024/06/14/arts/music/bad-bunny-reggaeton-puerto-rico-spanish.html
+
 **Supreme Court Rules Against Migrants in Dispute Over Deportation Hearing Notices**\
 `A majority of the justices found that the government had fulfilled its duty to tell immigrants about their court dates, even when the information was incomplete.`\
 https://nytimes.com/2024/06/14/us/politics/supreme-court-deportation-notice-ruling.html
