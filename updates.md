@@ -1,3 +1,7 @@
+**Trump Participates in His Form of Debate Prep, Readying to Face Biden**\
+`The former president is engaging in policy briefings — but no role playing, or other traditional aspects of debate preparations — ahead of the June 27 debate against President Biden.`\
+https://nytimes.com/2024/06/14/us/politics/trump-participates-in-his-form-of-debate-prep-readying-to-face-biden.html
+
 **The Supreme Court’s Bump Stock Decision Will Prove Fatal**\
 `Machine guns on the street are now legal again.`\
 https://nytimes.com/2024/06/12/opinion/supreme-court-bumpstocks-guns.html
