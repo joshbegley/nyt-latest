@@ -1,3 +1,11 @@
+**It’s the Summer of ‘Brats’**\
+`Fans of the new Charli XCX album count themselves among them. But the term “brat” has cropped up elsewhere in culture lately, and it has subtly different meanings.`\
+https://nytimes.com/2024/06/14/style/charli-xcx-brat-summer.html
+
+**$29 Trillion: That’s How Much Debt Emerging Nations Are Facing**\
+`A decades-long crisis is getting worse, and now dozens of nations are spending more on interest payments than on health care or education.`\
+https://nytimes.com/2024/06/14/business/government-debt.html
+
 **Supreme Court Rejects Trump-Era Ban on Gun Bump Stocks**\
 `The justices found that the administration exceeded its power in prohibiting the sale and possession of the gun attachments.`\
 https://nytimes.com/2024/06/14/us/politics/supreme-court-trump-gun-bump-stocks.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/14/realestate/995000-homes-in-the-bahamas.html
 **Trump plans to celebrate his 78th birthday in Florida with a trusted group of supporters.**\
 `By Shawn McCreesh`\
 https://nytimes.com/live/2024/06/08/us/biden-trump-election/trump-plans-to-celebrate-his-78th-birthday-in-florida-with-a-trusted-group-of-supporters
-
-**A France in Turmoil Mourns Françoise Hardy, Its Voice of Melancholy Cool**\
-`An overwhelming outpouring of tributes felt like a quest for some anchor in shared memory.`\
-https://nytimes.com/2024/06/14/world/europe/france-francoise-hardy-tributes.html
-
-**First a Victim of Tax Return Identity Theft, Then a 2-Year Wait for a Refund**\
-`The I.R.S.’s Taxpayer Advocate Service found that many of those affected were lower-income people who depended on refunds to cover living costs. The wait is “ridiculous,” the head of the service said.`\
-https://nytimes.com/2024/06/14/your-money/tax-return-refund-identify-theft.html
 
