@@ -1,3 +1,7 @@
+**Nancy Mace Settles Her Score With Kevin McCarthy**\
+`She wins the spotlight she loves, but what will she do with it?`\
+https://nytimes.com/live/2024/06/12/opinion/thepoint/nancy-mace-mccarthy
+
 **Girl, 13, Sexually Assaulted at Knife Point in Queens Park, Police Say**\
 `The girl and a schoolmate, a 13-year-old boy, were forced into a secluded area by a man who later fled, the authorities said. Investigators combed the area for evidence Friday.`\
 https://nytimes.com/2024/06/14/nyregion/queens-park-sexual-assault-knife-point.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/world/middleeast/g7-biden-gaza-war-ukraine.html
 **U.S. Catholic Bishops Apologize for Traumas of Indian Boarding Schools**\
 `The bishops acknowledged the church’s role in operating schools where Native American children faced abuses and forced assimilation.`\
 https://nytimes.com/2024/06/14/us/catholic-apologize-indian-boarding-schools.html
-
-**The Ingenuity of Lowcountry’s Deviled Crab**\
-`Deviling bolsters smaller pieces of blue crab with mayonnaise, bread crumbs, sautéed aromatics, plus a kick of cayenne.`\
-https://nytimes.com/2024/06/14/dining/deviled-crab.html
 
