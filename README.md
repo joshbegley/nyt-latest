@@ -1,3 +1,7 @@
+**How Jeff Bezos Is Trying to Fix The Washington Post**\
+`The Amazon founder has expressed his support to Will Lewis, the C.E.O., who has faced widespread criticism this month.`\
+https://nytimes.com/2024/06/14/business/media/jeff-bezos-washington-post.html
+
 **Larry Summers Isn’t Second-Guessing the Government on Inflation**\
 `The C.P.I. has been criticized for excluding interest payments, but there’s a solid reason for that.`\
 https://nytimes.com/2024/06/14/opinion/larry-summers-inflation-interest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/climate/el-nino-la-nina.html
 **Federal Judge Blocks Biden Administration’s Title IX Rules in 4 States**\
 `The ruling was the first salvo in a national legal battle over the new regulations, which extend stronger protections to L.G.B.T.Q. students.`\
 https://nytimes.com/2024/06/14/us/politics/biden-title-ix-transgender-students-schools.html
-
-**Doping Regulator Knew of Previous Positive Tests by Chinese Swimmers**\
-`Three athletes who failed drug tests before the 2021 Olympics had tested positive for a powerful steroid several years earlier. They were not suspended in either incident.`\
-https://nytimes.com/2024/06/14/world/asia/china-swimming-doping.html
 
