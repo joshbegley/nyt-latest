@@ -1,3 +1,15 @@
+**‘Good Days and Bad Days’: Princess of Wales Gives Update on Cancer**\
+`In a message to the public, Catherine said she would attend King Charles’s birthday parade this weekend and wrote candidly about “knowing I am not out of the woods yet.”`\
+https://nytimes.com/2024/06/14/world/europe/kate-middleton-cancer-king-charles-birthday.html
+
+**33 Novels Coming This Summer**\
+`Watch for new books by J. Courtney Sullivan, Kevin Barry and Casey McQuiston; re-immerse yourself in beloved worlds conjured by Walter Mosley, Elin Hilderbrand and Rebecca Roanhorse.`\
+https://nytimes.com/2024/06/14/books/new-summer-fiction.html
+
+**19 Nonfiction Books to Read This Summer**\
+`Memoirs from Anthony Fauci and Anna Marie Tendler, a reappraisal of Harriet Tubman, a history of reality TV from Emily Nussbaum — and plenty more.`\
+https://nytimes.com/2024/06/14/books/nonfiction-summer-books.html
+
 **What ‘Inside Out 2’ Teaches Us About Anxiety**\
 `A new emotion has taken over Riley’s teenage mind. And she has lessons for us all.`\
 https://nytimes.com/2024/06/14/well/mind/inside-out-2-anxiety.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/12/opinion/supreme-court-bumpstocks-guns.html
 **Trump Once Promised to Revive Coal. That Was So 2016.**\
 `In earlier bids for the White House, former President Donald Trump pledged to get miners back to work. Now, he trumpets oil and gas, and hardly mentions the dirtiest of the fossil fuels.`\
 https://nytimes.com/2024/06/14/climate/trump-coal-politics.html
-
-**U.S. imposes sanctions on an Israeli group that has blocked aid trucks bound for Gaza.**\
-`The State Department announced the sanctions to signal to Israeli leaders that they need to rein in extremist groups that are trying to prevent aid from getting to Palestinians in the devastated strip.`\
-https://nytimes.com/live/2024/06/14/world/israel-gaza-war-hamas/us-imposes-sanctions-on-an-israeli-group-that-has-blocked-aid-trucks-bound-for-gaza
-
-**House G.O.P. Pushes Through Defense Bill Nixing Abortion Access Policy**\
-`The annual defense policy legislation emerged from a House committee with bipartisan backing, but Republicans loaded it with right-wing mandates targeting abortion, transgender care and diversity initiatives.`\
-https://nytimes.com/2024/06/14/us/politics/house-defense-bill-abortion.html
-
-**Crisis Averted: Martha’s Vineyard Will Have Enough Pot This Summer After All**\
-`For the island’s cannabis dispensaries, a sudden change in regulations came just in time.`\
-https://nytimes.com/2024/06/14/style/marthas-vineyard-weed-crisis.html
 
