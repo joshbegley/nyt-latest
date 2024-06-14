@@ -1,3 +1,15 @@
+**First a Victim of Tax Return Identity Theft, Then a 2-Year Wait for a Refund**\
+`The I.R.S.’s Taxpayer Advocate Service found that many of those affected were lower-income people who depended on refunds to cover living costs. The wait is “ridiculous,” the head of the service said.`\
+https://nytimes.com/2024/06/14/your-money/tax-return-refund-identify-theft.html
+
+**A California Law Banning Hidden Fees Goes Into Effect Next Month**\
+`Some lawmakers are trying to carve out an exception for restaurant owners, who say simply raising prices without context would hurt their business.`\
+https://nytimes.com/2024/06/14/us/california-restaurant-hidden-fees-ban.html
+
+**Summer Reading Contest, Week 2: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by June 21 at 9 a.m. Eastern. This week’s winners will be announced by July 3.`\
+https://nytimes.com/2024/06/14/learning/summer-reading-contest-week-2-what-got-your-attention-in-the-times-this-week.html
+
 **Putin Makes Cease-Fire Offer With Sweeping Demands on Ukraine’s Territory**\
 `Ukraine denounced the offer, saying that Mr. Putin was “afraid of real peace.” The Russian leader made the remarks one day before a peace summit organized by Kyiv.`\
 https://nytimes.com/2024/06/14/world/europe/russia-ukraine-putin-cease-fire.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/14/world/europe/pope-francis-comedians-vatican.html
 **Two Covid Theories**\
 `Was the pandemic started by a lab leak or by natural transmission? We look at the evidence.`\
 https://nytimes.com/2024/06/14/briefing/two-covid-theories.html
-
-**Major Supreme Court Rulings, and Counterfeit Titanium in Planes**\
-`Plus, New York targets rogue smoke shops.`\
-https://nytimes.com/2024/06/14/podcasts/supreme-court-abortion-pill-starbucks-union-counterfeit-titanium.html
-
-**How to Retire as Early as Humanly Possible**\
-`Meet the extreme savers obsessed with ending their careers as soon as they can.`\
-https://nytimes.com/2024/06/14/podcasts/the-daily/fire-retirement.html
-
-**The Connections Companion No. 370, June 15, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/06/14/crosswords/connections-companion-370.html
 
