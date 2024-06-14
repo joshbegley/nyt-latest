@@ -1,3 +1,7 @@
+**House G.O.P. Pushes Through Defense Bill Nixing Abortion Access Policy**\
+`The annual defense policy legislation emerged from a House committee with bipartisan backing, but Republicans loaded it with right-wing mandates targeting abortion, transgender care and diversity initiatives.`\
+https://nytimes.com/2024/06/14/us/politics/house-defense-bill-abortion.html
+
 **Crisis Averted: Martha’s Vineyard Will Have Enough Pot This Summer After All**\
 `For the island’s cannabis dispensaries, a sudden change in regulations came just in time.`\
 https://nytimes.com/2024/06/14/style/marthas-vineyard-weed-crisis.html
