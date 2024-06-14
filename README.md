@@ -1,3 +1,7 @@
+**‘No Talent Involved’: How Bad TikToks Boosted a Curry House**\
+`Urban Tandoor, an Indian restaurant in southwest England, is using terrible music video parodies made by its staff to bring in new and younger guests.`\
+https://nytimes.com/2024/06/14/world/europe/bristol-urban-tandoor-tiktok.html
+
 **Parisians on TikTok Plead: ‘Don’t Come’ to Paris for the Olympics**\
 `Parisians are using the social media app to vent their displeasure with hosting the Games — and to send warnings to tourists.`\
 https://nytimes.com/2024/06/14/style/paris-olympics-tiktok.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/06/14/books/new-paperbacks-page.html
 **The New York Times News Quiz, June 14, 2024**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2024/06/14/briefing/hunter-biden-apple-jerry-west-quiz.html
-
-**How ‘Inside Out 2’ Battles Anxiety**\
-`The director Kelsey Mann narrates a sequence from his film, which pits Joy (voiced by Amy Poehler) against Anxiety (Maya Hawke).`\
-https://nytimes.com/2024/06/14/movies/inside-out-2-clip.html
 
