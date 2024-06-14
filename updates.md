@@ -1,3 +1,11 @@
+**Trump plans to celebrate his 78th birthday in Florida with a trusted group of supporters.**\
+`By Shawn McCreesh`\
+https://nytimes.com/live/2024/06/08/us/biden-trump-election/trump-plans-to-celebrate-his-78th-birthday-in-florida-with-a-trusted-group-of-supporters
+
+**A France in Turmoil Mourns Françoise Hardy, Its Voice of Melancholy Cool**\
+`An overwhelming outpouring of tributes felt like a quest for some anchor in shared memory.`\
+https://nytimes.com/2024/06/14/world/europe/france-francoise-hardy-tributes.html
+
 **First a Victim of Tax Return Identity Theft, Then a 2-Year Wait for a Refund**\
 `The I.R.S.’s Taxpayer Advocate Service found that many of those affected were lower-income people who depended on refunds to cover living costs. The wait is “ridiculous,” the head of the service said.`\
 https://nytimes.com/2024/06/14/your-money/tax-return-refund-identify-theft.html
