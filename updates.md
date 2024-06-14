@@ -1,3 +1,7 @@
+**Girl, 13, Sexually Assaulted at Knife Point in Queens Park, Police Say**\
+`The girl and a schoolmate, a 13-year-old boy, were forced into a secluded area by a man who later fled, the authorities said. Investigators combed the area for evidence Friday.`\
+https://nytimes.com/2024/06/14/nyregion/queens-park-sexual-assault-knife-point.html
+
 **Johnny Canales, Tejano Music Singer and TV Host, Dies**\
 `He was known for booking new acts on his program, including Selena Quintanilla, who performed on his show in 1985 in what was one of her first live TV performances.`\
 https://nytimes.com/2024/06/14/arts/television/johnny-canales-tejano-music-dead.html
