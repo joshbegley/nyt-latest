@@ -1,4 +1,4 @@
-**Thomas Took Additional Trips on Harlan Crow’s Jet, Documents Show**\
+**Thomas Took Additional Trips on Harlan Crow’s Private Jet, Documents Show**\
 `A congressional committee released documents showing that Justice Clarence Thomas had not disclosed three private jet trips paid for by the Texas billionaire Harlan Crow.`\
 https://nytimes.com/2024/06/13/us/politics/justice-clarence-thomas-harlan-crow-trips.html
 
