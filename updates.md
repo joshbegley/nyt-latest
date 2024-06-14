@@ -1,3 +1,7 @@
+**The Best Father’s Day Gift Is a Book**\
+`It's a keepsake for generations.`\
+https://nytimes.com/interactive/2024/06/14/smarter-living/wirecutter/fathers-day-book.html
+
 **Justice Dept. Says It Won’t Prosecute Garland for Contempt**\
 `The decision was expected because President Biden had invoked executive privilege to shield recordings subpoenaed by G.O.P. lawmakers.`\
 https://nytimes.com/2024/06/14/us/politics/merrick-garland-contempt-doj.html

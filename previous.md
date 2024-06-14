@@ -1,3 +1,7 @@
+**The Best Father’s Day Gift Is a Book**\
+`It's a keepsake for generations.`\
+https://nytimes.com/interactive/2024/06/14/smarter-living/wirecutter/fathers-day-book.html
+
 **Justice Dept. Says It Won’t Prosecute Garland for Contempt**\
 `The decision was expected because President Biden had invoked executive privilege to shield recordings subpoenaed by G.O.P. lawmakers.`\
 https://nytimes.com/2024/06/14/us/politics/merrick-garland-contempt-doj.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/us/bump-stock-vegas-shooting-supreme-court.html
 **An Eclectic Summer Book Preview**\
 `Three editors gather to discuss 10 books they’re looking forward to over the next several months.`\
 https://nytimes.com/2024/06/14/books/review/summer-preview-podcast.html
-
-**For Gay Catholics and Supporters, a ‘Sense of Whiplash’ Over Pope’s Reported Use of Slur**\
-`Pope Francis, noted for his outreach to gay Catholics, has been described as using an offensive Italian expression for gay men twice in recent weeks.`\
-https://nytimes.com/2024/06/14/us/pope-francis-slur-catholics.html
 
