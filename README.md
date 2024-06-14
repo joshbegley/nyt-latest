@@ -1,3 +1,7 @@
+**It’s Donald Trump’s 78th Birthday. He Isn’t Happy About It.**\
+`As he vies to become the oldest president in American history, former President Donald J. Trump said this birthday was one he wanted to ignore.`\
+https://nytimes.com/2024/06/14/us/politics/donald-trump-birthday-campaign.html
+
 **The Supreme Court Rejected the Ban on Bump Stocks**\
 `Plus, advice for dads, from dads.`\
 https://nytimes.com/2024/06/14/briefing/supreme-court-bump-stocks-putin-ukraine-gaza-heatwave.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/12/opinion/thepoint/boeing-titanium-china-outso
 **Supreme Court’s Leisurely Pace Will Produce Pileup of Late June Rulings**\
 `Even as the size of the court’s docket has shrunk, it has deferred a larger share of its decisions to the very end of its term.`\
 https://nytimes.com/2024/06/14/us/politics/supreme-court-rulings-june.html
-
-**The Best Advice for Dads (According to Dads)**\
-`Trust your instincts, find the fun and don’t forget that nail clipper.`\
-https://nytimes.com/interactive/2024/06/14/well/family/dad-advice-life-fathers.html
 
