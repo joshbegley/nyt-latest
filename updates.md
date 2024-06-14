@@ -1,3 +1,7 @@
+**Corrections: June 14, 2024**\
+`Corrections that appeared in print on Friday, June 14, 2024.`\
+https://nytimes.com/2024/06/14/pageoneplus/corrections-june-14-2024.html
+
 **Guilty Verdict for Chinese Activists Who Gave #MeToo Victims a Voice**\
 `Huang Xueqin, a journalist, and Wang Jianbing, a labor activist, were convicted of subversion, a vaguely worded charge long seen as a tool for muzzling dissent.`\
 https://nytimes.com/2024/06/14/world/asia/china-me-too-verdict.html
