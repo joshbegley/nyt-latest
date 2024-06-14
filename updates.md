@@ -1,3 +1,7 @@
+**The Best of Late Night This Week**\
+`There was a wealth of news to discuss this week, including former President Trump’s next steps after being convicted of 34 felonies and Hunter Biden’s guilty verdict on gun charges. Here’s what the hosts had to say.`\
+https://nytimes.com/interactive/2024/06/14/arts/television/best-of-late-night-hunter-biden.html
+
 **French Stocks Tumble to Worst Week in Two Years Over Election Fears**\
 `Investors worry about a possible debt crisis in the country as polls show the far right could be brought to the brink of power in less than a month.`\
 https://nytimes.com/2024/06/14/business/france-stock-market-macron-election.html
