@@ -1,3 +1,11 @@
+**Boeing’s Titanium Problem Reveals the Risks of Outsourcing**\
+`It often means lower quality, more errors and more cover-ups.`\
+https://nytimes.com/live/2024/06/12/opinion/thepoint/boeing-titanium-china-outsourcing
+
+**Supreme Court’s Leisurely Pace Will Produce Pileup of Late June Rulings**\
+`Even as the size of the court’s docket has shrunk, it has deferred a larger share of its decisions to the very end of its term.`\
+https://nytimes.com/2024/06/14/us/politics/supreme-court-rulings-june.html
+
 **The Best Advice for Dads (According to Dads)**\
 `Trust your instincts, find the fun and don’t forget that nail clipper.`\
 https://nytimes.com/interactive/2024/06/14/well/family/dad-advice-life-fathers.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/14/nyregion/queens-park-sexual-assault-knife-point.h
 **Johnny Canales, Tejano Music Singer and TV Host, Dies**\
 `He was known for booking new acts on his program, including Selena Quintanilla, who performed on his show in 1985 in what was one of her first live TV performances.`\
 https://nytimes.com/2024/06/14/arts/television/johnny-canales-tejano-music-dead.html
-
-**I Think My Husband Has Dementia. Can I Leave Him Before It Worsens?**\
-`The magazine’s Ethicist columnist on what happens when the implications of marital vows to love “in sickness and in health” become increasingly urgent.`\
-https://nytimes.com/2024/06/14/magazine/husband-dementia-divorce-ethics.html
-
-**How Jeff Bezos Is Trying to Fix The Washington Post**\
-`The Amazon founder has expressed his support to Will Lewis, the C.E.O., who has faced widespread criticism this month.`\
-https://nytimes.com/2024/06/14/business/media/jeff-bezos-washington-post.html
 
