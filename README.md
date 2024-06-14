@@ -1,3 +1,7 @@
+**3.3%**\
+`The rate of inflation in May over the previous year.`\
+https://nytimes.com/2024/06/14/business/3-3-percent-may-inflation.html
+
 **Fetterman Has History of Driving Infractions, Records and Former Aides Say**\
 `The senator’s accident in Maryland last weekend did not come as a surprise to some of his former staff members, who said he was a notoriously distracted driver.`\
 https://nytimes.com/2024/06/14/us/politics/fetterman-car-crash-driving.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/books/nonfiction-summer-books.html
 **What ‘Inside Out 2’ Teaches Us About Anxiety**\
 `A new emotion has taken over Riley’s teenage mind. And she has lessons for us all.`\
 https://nytimes.com/2024/06/14/well/mind/inside-out-2-anxiety.html
-
-**F.B.I. Director Makes Rare Visit to Africa as Terrorism Threat Grows**\
-`The Islamic State and Al Qaeda consider Africa ‘very fertile ground,’ said Christopher A. Wray, who is meeting with officials in Nigeria and Kenya.`\
-https://nytimes.com/2024/06/14/us/politics/fbi-director-africa-terrorism-threat.html
 
