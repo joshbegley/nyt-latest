@@ -1,3 +1,7 @@
+**Parisians on TikTok Plead: ‘Don’t Come’ to Paris for the Olympics**\
+`Parisians are using the social media app to vent their displeasure with hosting the Games — and to send warnings to tourists.`\
+https://nytimes.com/2024/06/14/style/paris-olympics-tiktok.html
+
 **Mississippi Opens the Playbook for Dismantling a Free Press**\
 `A politician’s defamation case against a small Pulitzer Prize-winning news organization is designed to drain its financial resources.`\
 https://nytimes.com/2024/06/14/opinion/mississippi-press-freedom-republicans.html
