@@ -1,3 +1,7 @@
+**‘No Talent Involved’: How Bad TikToks Boosted a Curry House**\
+`Urban Tandoor, an Indian restaurant in southwest England, is using terrible music video parodies made by its staff to bring in new and younger guests.`\
+https://nytimes.com/2024/06/14/world/europe/bristol-urban-tandoor-tiktok.html
+
 **Parisians on TikTok Plead: ‘Don’t Come’ to Paris for the Olympics**\
 `Parisians are using the social media app to vent their displeasure with hosting the Games — and to send warnings to tourists.`\
 https://nytimes.com/2024/06/14/style/paris-olympics-tiktok.html
