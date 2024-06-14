@@ -1,3 +1,7 @@
+**Guilty Verdict for Chinese Activists Who Gave #MeToo Victims a Voice**\
+`Huang Xueqin, a journalist, and Wang Jianbing, a labor activist, were convicted of subversion, a vaguely worded charge long seen as a tool for muzzling dissent.`\
+https://nytimes.com/2024/06/14/world/asia/china-me-too-verdict.html
+
 **Capturing a ‘Mosaic of Shifting Battle Fronts’ in Sudan**\
 `Declan Walsh, the chief Africa correspondent for The Times, reported from a country where few journalists have gained entry amid a civil war.`\
 https://nytimes.com/2024/06/14/insider/sudan-civil-war.html
