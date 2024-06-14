@@ -1,3 +1,7 @@
+**It’s Donald Trump’s 78th Birthday. He Isn’t Happy About It.**\
+`As he vies to become the oldest president in American history, former President Donald J. Trump said this birthday was one he wanted to ignore.`\
+https://nytimes.com/2024/06/14/us/politics/donald-trump-birthday-campaign.html
+
 **The Supreme Court Rejected the Ban on Bump Stocks**\
 `Plus, advice for dads, from dads.`\
 https://nytimes.com/2024/06/14/briefing/supreme-court-bump-stocks-putin-ukraine-gaza-heatwave.html
