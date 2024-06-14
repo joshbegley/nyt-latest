@@ -1,3 +1,15 @@
+**Fetterman Has History of Driving Infractions, Records and Former Aides Say**\
+`The senator’s accident in Maryland last weekend did not come as a surprise to some of his former staff members, who said he was a notoriously distracted driver.`\
+https://nytimes.com/2024/06/14/us/politics/fetterman-car-crash-driving.html
+
+**Site of Parkland School Shooting Is Being Demolished**\
+`The former freshman building at Marjory Stoneman Douglas High School had been preserved as a crime scene since the attack on Feb. 14, 2018.`\
+https://nytimes.com/video/us/100000009521618/parkland-stoneman-douglas-demolition.html
+
+**When Churches Cancel Their Own**\
+`Responses to a column by David French and his former church. Also: An extremist Supreme Court; a “failing candidacy”; help after prison.`\
+https://nytimes.com/2024/06/14/opinion/church-cancellation-david-french.html
+
 **Why Cover Saudi Arabia as a Travel Destination?**\
 `An editor on the Travel desk explains our decision to explore the Middle Eastern kingdom.`\
 https://nytimes.com/2024/06/14/insider/saudi-arabia-coverage.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/14/well/mind/inside-out-2-anxiety.html
 **F.B.I. Director Makes Rare Visit to Africa as Terrorism Threat Grows**\
 `The Islamic State and Al Qaeda consider Africa ‘very fertile ground,’ said Christopher A. Wray, who is meeting with officials in Nigeria and Kenya.`\
 https://nytimes.com/2024/06/14/us/politics/fbi-director-africa-terrorism-threat.html
-
-**A far-right Israeli minister tried to halt police protection for aid trucks, another official charged.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/06/14/world/israel-gaza-war-hamas/a-far-right-israeli-minister-tried-to-halt-police-protection-for-aid-trucks-another-official-charged
-
-**Trump Participates in His Form of Debate Prep, Readying to Face Biden**\
-`The former president is engaging in policy briefings — but no role playing, or other traditional aspects of debate preparations — ahead of the June 27 debate against President Biden.`\
-https://nytimes.com/2024/06/14/us/politics/trump-participates-in-his-form-of-debate-prep-readying-to-face-biden.html
-
-**Jelly Roll’s Anthem of Perseverance, and 9 More New Songs**\
-`Hear tracks by Zsela, the Decemberists, Khalid and others.`\
-https://nytimes.com/2024/06/14/arts/music/playlist-jelly-roll-khalid.html
 

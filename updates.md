@@ -1,3 +1,15 @@
+**Fetterman Has History of Driving Infractions, Records and Former Aides Say**\
+`The senator’s accident in Maryland last weekend did not come as a surprise to some of his former staff members, who said he was a notoriously distracted driver.`\
+https://nytimes.com/2024/06/14/us/politics/fetterman-car-crash-driving.html
+
+**Site of Parkland School Shooting Is Being Demolished**\
+`The former freshman building at Marjory Stoneman Douglas High School had been preserved as a crime scene since the attack on Feb. 14, 2018.`\
+https://nytimes.com/video/us/100000009521618/parkland-stoneman-douglas-demolition.html
+
+**When Churches Cancel Their Own**\
+`Responses to a column by David French and his former church. Also: An extremist Supreme Court; a “failing candidacy”; help after prison.`\
+https://nytimes.com/2024/06/14/opinion/church-cancellation-david-french.html
+
 **Why Cover Saudi Arabia as a Travel Destination?**\
 `An editor on the Travel desk explains our decision to explore the Middle Eastern kingdom.`\
 https://nytimes.com/2024/06/14/insider/saudi-arabia-coverage.html
