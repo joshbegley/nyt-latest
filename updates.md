@@ -1,3 +1,7 @@
+**What Elon Musk’s Convincing Win Means for Tesla**\
+`Investors voted overwhelmingly to reinstate the C.E.O.’s multibillion-dollar compensation package, inextricably tying the car maker’s future to the tech billionaire.`\
+https://nytimes.com/2024/06/14/business/dealbook/elon-musk-pay-package-win.html
+
 **9 New Movies Our Critics Are Talking About This Week**\
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
 https://nytimes.com/2024/06/14/movies/new-movies-roundup.html
