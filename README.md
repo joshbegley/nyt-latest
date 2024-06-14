@@ -1,3 +1,7 @@
+**Justice Dept. Says It Won’t Prosecute Garland for Contempt**\
+`The decision was expected because President Biden had invoked executive privilege to shield recordings subpoenaed by G.O.P. lawmakers.`\
+https://nytimes.com/2024/06/14/us/politics/merrick-garland-contempt-doj.html
+
 **Another Summer to Remember? For Germany: So Far, So Great.**\
 `A 5-1 thrashing of Scotland in the opening game of Euro 2024 was a good omen for a host nation in search of one.`\
 https://nytimes.com/2024/06/14/world/europe/germany-scotland-euro-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/books/review/summer-preview-podcast.html
 **For Gay Catholics and Supporters, a ‘Sense of Whiplash’ Over Pope’s Reported Use of Slur**\
 `Pope Francis, noted for his outreach to gay Catholics, has been described as using an offensive Italian expression for gay men twice in recent weeks.`\
 https://nytimes.com/2024/06/14/us/pope-francis-slur-catholics.html
-
-**Cuomo Faulted for Pandemic Leadership but Not for Nursing Home Deaths**\
-`An audit commissioned by his successor said former Gov. Andrew M. Cuomo’s decision to centralize the state response to the pandemic in his office was a “significant” mistake.`\
-https://nytimes.com/2024/06/14/nyregion/cuomo-covid-nursing-homes.html
 
