@@ -1,3 +1,19 @@
+**Capturing a ‘Mosaic of Shifting Battle Fronts’ in Sudan**\
+`Declan Walsh, the chief Africa correspondent for The Times, reported from a country where few journalists have gained entry amid a civil war.`\
+https://nytimes.com/2024/06/14/insider/sudan-civil-war.html
+
+**The Brooklyn Museum Is Progressive. Why Is the Left Attacking It?**\
+`One of the city’s most consistently progressive institutions — which had long enraged conservatives — has become the object of scorn by pro-Palestinian demonstrations.`\
+https://nytimes.com/2024/06/14/nyregion/brooklyn-museum-protests.html
+
+**Why the Biggest City in America Can’t Get Big Things Done**\
+`Congestion pricing was the latest ambitious proposal that couldn’t navigate New York’s rocky political terrain. It’s a tall order to achieve substantial change in the city.`\
+https://nytimes.com/2024/06/14/nyregion/congestion-pricing-failure-nyc.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/06/14/crosswords/spelling-bee-forum.html
+
 **Late Night Recaps Trump’s First Trip to Capitol Hill Since Jan. 6**\
 `“They always return to the scene of the crime,” Jimmy Kimmel said after the former president met with House Republicans on Thursday.`\
 https://nytimes.com/2024/06/14/arts/television/late-night-trump-capitol-hill.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/06/14/opinion/ukraine-russia-peace-switzerland.html
 **Friday Briefing**\
 `A $50 billion loan for Ukraine.`\
 https://nytimes.com/2024/06/14/briefing/ukraine-loan-mifepristone-supreme-court.html
-
-**G7 Leaders, Expanding the Circle, Shift Focus to Migration and the South**\
-`Leaders from India, Brazil, the Middle East and Africa will join discussions on Friday, in a nod to the changing global balance of power.`\
-https://nytimes.com/2024/06/14/world/europe/g7-summit-ai-china-india.html
-
-**Even Britain’s Finance Minister Is Fighting to Stay in Parliament**\
-`As chancellor of the Exchequer, Jeremy Hunt also represents a district where his Conservative Party traditionally counts on rock-solid support. Not any more.`\
-https://nytimes.com/2024/06/14/world/europe/uk-election-jeremy-hunt.html
-
-**The Most Important Man in Germany This Month Is Its Soccer Coach**\
-`Julian Nagelsmann was hired to win a European Championship on home soil. Can he restore a divided nation’s self-esteem at the same time?`\
-https://nytimes.com/2024/06/14/world/europe/germany-euros-nagelsmann.html
-
-**Quotation of the Day: Championship Rings Woo Clients With Their Miniature Secrets**\
-`Quotation of the Day for Friday, June 14, 2024.`\
-https://nytimes.com/2024/06/14/pageoneplus/quotation-of-the-day-championship-rings-woo-clients-with-their-miniature-secrets.html
 
