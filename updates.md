@@ -1,3 +1,7 @@
+**Supreme Court Rejects Trump-Era Ban on Gun Bump Stocks**\
+`The justices found that the administration exceeded its power in prohibiting the sale and possession of the gun attachments.`\
+https://nytimes.com/2024/06/14/us/politics/supreme-court-trump-gun-bump-stocks.html
+
 **G7 Agrees to $50 Billion Ukraine Loan Backed by Russian Assets. How Will It Work?**\
 `The United States and others plan to give the sum to Kyiv, with the interest from Moscow’s assets frozen in the West used to repay it. But many of the details about the arrangement are unclear.`\
 https://nytimes.com/2024/06/14/world/europe/ukraine-g7-ukraine-aid-russia.html
