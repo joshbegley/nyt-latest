@@ -1,3 +1,7 @@
+**Kennedy Vows to Cut Military Budget in Half**\
+`Robert F. Kennedy Jr. said the United States should accept a diminished role in global affairs and divert much of the nation’s security spending to domestic programs.`\
+https://nytimes.com/2024/06/13/us/politics/kennedy-vows-to-cut-military-budget-in-half.html
+
 **How Baptists and the G.O.P. Took Different Paths on I.V.F.**\
 `The vote at the Southern Baptist Convention raising alarms about in vitro fertilization began with two conservatives at a seminary in Kentucky.`\
 https://nytimes.com/2024/06/13/us/baptists-gop-different-paths-ivf.html

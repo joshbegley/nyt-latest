@@ -1,3 +1,7 @@
+**Kennedy Vows to Cut Military Budget in Half**\
+`Robert F. Kennedy Jr. said the United States should accept a diminished role in global affairs and divert much of the nation’s security spending to domestic programs.`\
+https://nytimes.com/2024/06/13/us/politics/kennedy-vows-to-cut-military-budget-in-half.html
+
 **How Baptists and the G.O.P. Took Different Paths on I.V.F.**\
 `The vote at the Southern Baptist Convention raising alarms about in vitro fertilization began with two conservatives at a seminary in Kentucky.`\
 https://nytimes.com/2024/06/13/us/baptists-gop-different-paths-ivf.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/arts/design/museums-kehinde-wiley-minneapolis-all
 **Will Biden’s Help for Ukraine Come Fast Enough and Last Long Enough?**\
 `The president signed a 10-year security pact with Ukraine and promised, with E.U. help, a $50 billion loan. But will the money arrive in time to turn the tide, and will the deal outlast the election in November?`\
 https://nytimes.com/2024/06/13/world/europe/g7-biden-ukraine-agreements.html
-
-**Heavy Bombardment of Gaza as Israel and Hezbollah Trade Strikes**\
-`Israel was reported to have intensified missile and artillery strikes in southern Gaza while also hitting Hezbollah military targets in Lebanon.`\
-https://nytimes.com/2024/06/13/world/middleeast/israel-southern-gaza-hezbollah.html
 
