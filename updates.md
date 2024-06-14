@@ -1,3 +1,7 @@
+**The Best Alternative to Dating Apps? Running Clubs, Apparently.**\
+`Inspired by one thirsty TikTok video after another, users are hoping to find their next romantic encounter at the finish line. Here’s what you should know before dating a runner.`\
+https://nytimes.com/2024/06/13/style/running-clubs-dating.html
+
 **Flip Over**\
 `Robyn Weintraub opens our solving weekend.`\
 https://nytimes.com/2024/06/13/crosswords/daily-puzzle-2024-06-14.html

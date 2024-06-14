@@ -1,3 +1,7 @@
+**The Best Alternative to Dating Apps? Running Clubs, Apparently.**\
+`Inspired by one thirsty TikTok video after another, users are hoping to find their next romantic encounter at the finish line. Here’s what you should know before dating a runner.`\
+https://nytimes.com/2024/06/13/style/running-clubs-dating.html
+
 **Flip Over**\
 `Robyn Weintraub opens our solving weekend.`\
 https://nytimes.com/2024/06/13/crosswords/daily-puzzle-2024-06-14.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/13/business/john-randal-tyson-foods-arrest.html
 **What Happens When a Defendant Gets Covid-19 During Trial?**\
 `Fred Daibes, a real estate developer charged with Senator Robert Menendez, began feeling sick during the fifth week of the corruption trial, delaying it for at least a few days.`\
 https://nytimes.com/2024/06/13/nyregion/covid-robert-menendez-trial-delay.html
-
-**Museum Calls Off Kehinde Wiley Show, Citing Assault Allegations**\
-`The Minneapolis Institute of Art said it would not move forward with a show after the artist was accused of sexual misconduct, which he has denied.`\
-https://nytimes.com/2024/06/13/arts/design/museums-kehinde-wiley-minneapolis-allegations.html
 
