@@ -1,4 +1,4 @@
-**The Supreme Court rejected the ban on bump stocks**\
+**The Supreme Court Rejected the Ban on Bump Stocks**\
 `Plus, advice for dads, from dads.`\
 https://nytimes.com/2024/06/14/briefing/supreme-court-bump-stocks-putin-ukraine-gaza-heatwave.html
 
