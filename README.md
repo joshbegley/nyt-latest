@@ -1,3 +1,7 @@
+**Sam Smith, With Guest Star Alicia Keys, Throws a Pride Party**\
+`The British singer selected Julius’, a Manhattan tavern with a storied past, as the place to celebrate the 10th anniversary of his debut.`\
+https://nytimes.com/2024/06/14/style/sam-smith-with-guest-star-alicia-keys-throws-a-pride-party.html
+
 **Martin Starger, Influential Shaper of TV and Movies, Dies at 92**\
 `In his decade at ABC, long the doormat network in prime time, he helped guide it toward the No. 1 spot. He later produced “Nashville” and won an Emmy for “Friendly Fire.”`\
 https://nytimes.com/2024/06/14/arts/television/martin-starger-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/us/politics/donald-trump-birthday-campaign.html
 **The Supreme Court Rejected the Ban on Bump Stocks**\
 `Plus, advice for dads, from dads.`\
 https://nytimes.com/2024/06/14/briefing/supreme-court-bump-stocks-putin-ukraine-gaza-heatwave.html
-
-**U.S. Investigating ‘Dutch Roll’ That Damaged a Boeing 737 During Flight**\
-`The Southwest Airlines flight experienced a rare oscillation in May that caused “substantial” damage to its tail section and prompted investigations from federal agencies.`\
-https://nytimes.com/2024/06/14/business/boeing-dutch-roll-southwest-faa.html
 
