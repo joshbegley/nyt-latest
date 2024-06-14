@@ -1,3 +1,7 @@
+**Google C.E.O. Testifies in Ozy Media Founder’s Fraud Trial**\
+`Sundar Pichai, the chief executive of Google, said he never discussed a potential acquisition of the digital media start-up.`\
+https://nytimes.com/2024/06/14/business/media/google-ceo-ozy-fraud-trial.html
+
 **At the G7, Biden Can’t Escape the Shadow of the Gaza War**\
 `The president was miffed when, expecting to talk about a security pact with Ukraine, he was asked for updates on the Gaza cease-fire plan.`\
 https://nytimes.com/2024/06/14/world/middleeast/g7-biden-gaza-war-ukraine.html
