@@ -1,3 +1,7 @@
+**Trump Participates in His Form of Debate Prep, Readying to Face Biden**\
+`The former president is engaging in policy briefings — but no role playing, or other traditional aspects of debate preparations — ahead of the June 27 debate against President Biden.`\
+https://nytimes.com/2024/06/14/us/politics/trump-participates-in-his-form-of-debate-prep-readying-to-face-biden.html
+
 **Jelly Roll’s Anthem of Perseverance, and 9 More New Songs**\
 `Hear tracks by Zsela, the Decemberists, Khalid and others.`\
 https://nytimes.com/2024/06/14/arts/music/playlist-jelly-roll-khalid.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/arts/music/metropolitan-opera-season.html
 **Five Action Movies to Stream Now**\
 `This month’s picks include bruised bodies and bruised male egos.`\
 https://nytimes.com/2024/06/14/movies/action-movies-streaming.html
-
-**‘House of the Dragon’ Review: Waiting for the Fire Breathers**\
-`The second season of HBO’s very successful “Game of Thrones” prequel gets off to an earthbound start.`\
-https://nytimes.com/2024/06/14/arts/television/house-of-the-dragon-season-2-review.html
 
