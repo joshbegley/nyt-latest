@@ -1,3 +1,7 @@
+**‘Doctor Who’ Episode 7 Recap: God of All Gods**\
+`In the first part of the season finale, a terrifying enemy from the Doctor’s past returns, as mysteries start to be solved.`\
+https://nytimes.com/2024/06/14/arts/television/doctor-who-episode-7-recap.html
+
 **One Week That Revealed the Struggles of the Anti-Abortion Movement**\
 `The movement looks for a path forward: ‘Is the goal the absolute abolition of abortion in our nation?’`\
 https://nytimes.com/2024/06/14/us/anti-abortion-supreme-court-southern-baptists.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/realestate/derek-jeter-home-sale-orange-county.ht
 **War Veterans and Family Testify at Al Qaeda Commander’s War Crimes Tribunal**\
 `Victims of insurgent attacks in wartime Afghanistan described their loss to a jury at Guantánamo Bay to give a human face to a written guilty plea.`\
 https://nytimes.com/2024/06/14/us/politics/gitmo-war-crimes-hearing.html
-
-**Sam Smith, With Guest Star Alicia Keys, Throws a Pride Party**\
-`The British singer selected Julius’, a Manhattan tavern with a storied past, as the place to celebrate the 10th anniversary of “In the Lonely Hour.”`\
-https://nytimes.com/2024/06/14/style/sam-smith-with-guest-star-alicia-keys-throws-a-pride-party.html
 

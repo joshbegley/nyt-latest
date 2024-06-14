@@ -1,3 +1,7 @@
+**‘Doctor Who’ Episode 7 Recap: God of All Gods**\
+`In the first part of the season finale, a terrifying enemy from the Doctor’s past returns, as mysteries start to be solved.`\
+https://nytimes.com/2024/06/14/arts/television/doctor-who-episode-7-recap.html
+
 **One Week That Revealed the Struggles of the Anti-Abortion Movement**\
 `The movement looks for a path forward: ‘Is the goal the absolute abolition of abortion in our nation?’`\
 https://nytimes.com/2024/06/14/us/anti-abortion-supreme-court-southern-baptists.html
