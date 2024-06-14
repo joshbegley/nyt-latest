@@ -1,3 +1,11 @@
+**El Niño Is Over. What Does That Mean for Summer?**\
+`The NOAA Climate Prediction Center announced an end to the El Niño climate phenomenon on Thursday, and predicted that La Niña could start as early as next month.`\
+https://nytimes.com/2024/06/14/climate/el-nino-la-nina.html
+
+**Federal Judge Blocks Biden Administration’s Title IX Rules in 4 States**\
+`The ruling was the first salvo in a national legal battle over the new regulations, which extend stronger protections to L.G.B.T.Q. students.`\
+https://nytimes.com/2024/06/14/us/politics/biden-title-ix-transgender-students-schools.html
+
 **Doping Regulator Knew of Previous Positive Tests by Chinese Swimmers**\
 `Three athletes who failed drug tests before the 2021 Olympics had tested positive for a powerful steroid several years earlier. They were not suspended in either incident.`\
 https://nytimes.com/2024/06/14/world/asia/china-swimming-doping.html

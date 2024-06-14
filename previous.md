@@ -1,3 +1,11 @@
+**El Niño Is Over. What Does That Mean for Summer?**\
+`The NOAA Climate Prediction Center announced an end to the El Niño climate phenomenon on Thursday, and predicted that La Niña could start as early as next month.`\
+https://nytimes.com/2024/06/14/climate/el-nino-la-nina.html
+
+**Federal Judge Blocks Biden Administration’s Title IX Rules in 4 States**\
+`The ruling was the first salvo in a national legal battle over the new regulations, which extend stronger protections to L.G.B.T.Q. students.`\
+https://nytimes.com/2024/06/14/us/politics/biden-title-ix-transgender-students-schools.html
+
 **Doping Regulator Knew of Previous Positive Tests by Chinese Swimmers**\
 `Three athletes who failed drug tests before the 2021 Olympics had tested positive for a powerful steroid several years earlier. They were not suspended in either incident.`\
 https://nytimes.com/2024/06/14/world/asia/china-swimming-doping.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000009521618/parkland-stoneman-douglas-demolitio
 **When Churches Cancel Their Own**\
 `Responses to a column by David French and his former church. Also: An extremist Supreme Court; a “failing candidacy”; help after prison.`\
 https://nytimes.com/2024/06/14/opinion/church-cancellation-david-french.html
-
-**Why Cover Saudi Arabia as a Travel Destination?**\
-`An editor on the Travel desk explains our decision to explore the Middle Eastern kingdom.`\
-https://nytimes.com/2024/06/14/insider/saudi-arabia-coverage.html
-
-**Almost 20 Years After She Found Her Mother’s Body, a Cold Case Thaws**\
-`She was just a girl when her mother was stabbed to death in the Bronx. Now, an arrest based on DNA has brought her bittersweet relief.`\
-https://nytimes.com/2024/06/14/nyregion/cold-case-bronx-stabbing.html
 
