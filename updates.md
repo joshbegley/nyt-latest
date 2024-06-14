@@ -1,3 +1,15 @@
+**How Tesla Shareholders Upheld Elon Musk’s Sky-High Pay**\
+`The vote on the compensation package, which helped make Mr. Musk one of the richest men in the world, served as a referendum on his performance running the automaker.`\
+https://nytimes.com/interactive/2024/06/14/business/tesla-shareholder-vote-results.html
+
+**Trump Is Thinking About His Debates. And His Running Mate’s, Too.**\
+`As he considers his vice-presidential pick, Donald J. Trump has sought advice on a few key factors, including who will match up best on the debate stage against Vice President Kamala Harris.`\
+https://nytimes.com/2024/06/14/us/politics/trump-vp-debate-performances.html
+
+**Finding Strength Through Song**\
+`Writing music helps me create a space where subjugation and violence are far away.`\
+https://nytimes.com/2024/06/14/special-series/silvana-estrada-mexico-violence-fear.html
+
 **Flooding Remains Possible on Fourth Day of Soaking Rains Over South Florida**\
 `A flood watch was active until Friday evening after hundreds of flights were canceled and states of emergency were declared in several counties. More rain was expected into the afternoon.`\
 https://nytimes.com/2024/06/14/weather/florida-rain-flooding.html
