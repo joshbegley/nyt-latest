@@ -1,3 +1,11 @@
+**Hamas is not sure how many hostages are still alive, a spokesman says.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/06/14/world/israel-gaza-war-hamas/hamas-is-not-sure-how-many-hostages-are-still-alive-a-spokesman-says
+
+**Hamas Says It Does Not Know How Many Hostages Are Still Alive**\
+`A spokesman for the militant group spoke in an interview with CNN. The release of the remaining hostages held in Gaza is a key part of a cease-fire proposal that is being considered.`\
+https://nytimes.com/live/2024/06/14/world/israel-gaza-war-hamas
+
 **South Africa Moves Closer to Electing a Leader, but Unity Is Elusive**\
 `Parliament was expected to elect President Cyril Ramaphosa to a second term. But his A.N.C. party is weakened, and he faces challenges in maintaining a coalition.`\
 https://nytimes.com/2024/06/14/world/africa/south-africa-anc-coalition-ramaphosa.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/14/crosswords/spelling-bee-forum.html
 **Late Night Recaps Trump’s First Trip to Capitol Hill Since Jan. 6**\
 `“They always return to the scene of the crime,” Jimmy Kimmel said after the former president met with House Republicans on Thursday.`\
 https://nytimes.com/2024/06/14/arts/television/late-night-trump-capitol-hill.html
-
-**Geneviève de Galard, French ‘Angel’ of Dien Bien Phu, Dies at 99**\
-`A nurse, she tended to the wounded as the French were under fateful attack by Viet Minh forces in 1954. Hailed in France and the U.S., she was given a ticker-tape parade down Broadway.`\
-https://nytimes.com/2024/06/14/world/europe/genevieve-de-galard-dead.html
-
-**Word of the Day: facade**\
-`This word has appeared in 350 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/06/14/learning/word-of-the-day-facade.html
 

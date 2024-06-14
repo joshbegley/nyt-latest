@@ -1,3 +1,11 @@
+**Hamas is not sure how many hostages are still alive, a spokesman says.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/06/14/world/israel-gaza-war-hamas/hamas-is-not-sure-how-many-hostages-are-still-alive-a-spokesman-says
+
+**Hamas Says It Does Not Know How Many Hostages Are Still Alive**\
+`A spokesman for the militant group spoke in an interview with CNN. The release of the remaining hostages held in Gaza is a key part of a cease-fire proposal that is being considered.`\
+https://nytimes.com/live/2024/06/14/world/israel-gaza-war-hamas
+
 **South Africa Moves Closer to Electing a Leader, but Unity Is Elusive**\
 `Parliament was expected to elect President Cyril Ramaphosa to a second term. But his A.N.C. party is weakened, and he faces challenges in maintaining a coalition.`\
 https://nytimes.com/2024/06/14/world/africa/south-africa-anc-coalition-ramaphosa.html
