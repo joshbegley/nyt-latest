@@ -1,3 +1,7 @@
+**Flip Over**\
+`Robyn Weintraub opens our solving weekend.`\
+https://nytimes.com/2024/06/13/crosswords/daily-puzzle-2024-06-14.html
+
 **Kennedy Vows to Cut Military Budget in Half**\
 `Robert F. Kennedy Jr. said the United States should accept a diminished role in global affairs and divert much of the nation’s security spending to domestic programs.`\
 https://nytimes.com/2024/06/13/us/politics/rfk-jr-military-budget.html
