@@ -1,3 +1,7 @@
+**G7 Agrees to $50 Billion Ukraine Loan Backed by Russian Assets. How Will It Work?**\
+`The United States and others plan to give the sum to Kyiv, with the interest from Moscow’s assets frozen in the West used to repay it. But many of the details about the arrangement are unclear.`\
+https://nytimes.com/2024/06/14/world/europe/ukraine-g7-ukraine-aid-russia.html
+
 **How Tesla Shareholders Upheld Elon Musk’s Sky-High Pay**\
 `The vote on the compensation package, which helped make Mr. Musk one of the richest men in the world, served as a referendum on his performance running the automaker.`\
 https://nytimes.com/interactive/2024/06/14/business/tesla-shareholder-vote-results.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/your-money/tax-return-refund-identify-theft.html
 **A California Law Banning Hidden Fees Goes Into Effect Next Month**\
 `Some lawmakers are trying to carve out an exception for restaurant owners, who say simply raising prices without context would hurt their business.`\
 https://nytimes.com/2024/06/14/us/california-restaurant-hidden-fees-ban.html
-
-**Summer Reading Contest, Week 2: What Got Your Attention in The Times This Week?**\
-`To participate, submit your response here by June 21 at 9 a.m. Eastern. This week’s winners will be announced by July 3.`\
-https://nytimes.com/2024/06/14/learning/summer-reading-contest-week-2-what-got-your-attention-in-the-times-this-week.html
 
