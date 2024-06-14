@@ -1,40 +1,40 @@
-**Mark James, ‘Suspicious Minds,’ Songwriter, Is Dead at 83**\
-`Mr. James wrote hit songs recorded Elvis Presley, Brenda Lee, Willie Nelson and other artists.`\
-https://nytimes.com/2024/06/13/arts/music/mark-james-elvis-songwriter-dead.html
+**Friday Briefing**\
+`A $50 billion loan for Ukraine.`\
+https://nytimes.com/2024/06/14/briefing/ukraine-loan-mifepristone-supreme-court.html
 
-**The Best Alternative to Dating Apps? Running Clubs, Apparently.**\
-`Inspired by one thirsty TikTok video after another, users are hoping to find their next romantic encounter at the finish line. Here’s what you should know before dating a runner.`\
-https://nytimes.com/2024/06/13/style/running-clubs-dating.html
+**G7 Leaders, Expanding the Circle, Shift Focus to Migration and the South**\
+`Leaders from India, Brazil, the Middle East and Africa will join discussions on Friday, in a nod to the changing global balance of power.`\
+https://nytimes.com/2024/06/14/world/europe/g7-summit-ai-china-india.html
 
-**Flip Over**\
-`Robyn Weintraub opens our solving weekend.`\
-https://nytimes.com/2024/06/13/crosswords/daily-puzzle-2024-06-14.html
+**Even Britain’s Finance Minister Is Fighting to Stay in Parliament**\
+`As chancellor of the Exchequer, Jeremy Hunt also represents a district where his Conservative Party traditionally counts on rock-solid support. Not any more.`\
+https://nytimes.com/2024/06/14/world/europe/uk-election-jeremy-hunt.html
 
-**Kennedy Vows to Cut Military Budget in Half**\
-`Robert F. Kennedy Jr. said the United States should accept a diminished role in global affairs and divert much of the nation’s security spending to domestic programs.`\
-https://nytimes.com/2024/06/13/us/politics/rfk-jr-military-budget.html
+**The Most Important Man in Germany This Month Is Its Soccer Coach**\
+`Julian Nagelsmann was hired to win a European Championship on home soil. Can he restore a divided nation’s self-esteem at the same time?`\
+https://nytimes.com/2024/06/14/world/europe/germany-euros-nagelsmann.html
 
-**How Baptists and the G.O.P. Took Different Paths on I.V.F.**\
-`The vote at the Southern Baptist Convention raising alarms about in vitro fertilization began with two conservatives at a seminary in Kentucky.`\
-https://nytimes.com/2024/06/13/us/baptists-gop-different-paths-ivf.html
+**Quotation of the Day: Championship Rings Woo Clients With Their Miniature Secrets**\
+`Quotation of the Day for Friday, June 14, 2024.`\
+https://nytimes.com/2024/06/14/pageoneplus/quotation-of-the-day-championship-rings-woo-clients-with-their-miniature-secrets.html
 
-**Thomas Took Additional Trips on Harlan Crow’s Private Jet, Documents Show**\
-`A congressional committee released documents showing that Justice Clarence Thomas had not disclosed three private jet trips paid for by the Texas billionaire Harlan Crow.`\
-https://nytimes.com/2024/06/13/us/politics/justice-clarence-thomas-harlan-crow-trips.html
+**They Noticed Each Other on a Train. Then Again, Six Days Later.**\
+`When Kana Abe and Jack Seemer got a second chance in the cafe car on St. Patrick’s Day, 2012, they recognized their good luck.`\
+https://nytimes.com/2024/06/14/style/kana-abe-jack-seemer-wedding.html
 
-**Clearview AI Used Your Face. Now You May Get a Stake in the Company.**\
-`The facial recognition start-up doesn’t have the funds to settle a class-action lawsuit, so lawyers are proposing equity for those whose faces were scraped from the internet.`\
-https://nytimes.com/2024/06/13/technology/clearview-ai-facial-recognition-settlement.html
+**He Couldn’t Admit That He Was Hurt**\
+`Serving in Vietnam had turned my father into an angry man. So we went back together.`\
+https://nytimes.com/2024/06/14/style/modern-love-fathers-day-vietnam-couldnt-admit-he-was-hurt.html
 
-**Musk’s Friends and Fans Applaud Shareholder Vote on His Payday**\
-`On the social media platform X, which Mr. Musk owns, reactions to a vote that reaffirmed Mr. Musk’s $45 billion package were buoyant.`\
-https://nytimes.com/2024/06/13/business/tesla-elon-musk-vote-reaction.html
+**From the Start, Committed to Each Other ‘in Sickness and in Health’**\
+`Shira Zilberstein and Emmanuel Cantor connected at a dinner celebrating Sukkot in 2021. Like every couple starting their lives together, they didn’t know yet what challenges lay ahead of them.`\
+https://nytimes.com/2024/06/14/style/shira-zilberstein-emmanuel-cantor-wedding.html
 
-**How California, Once Flush, Got Stuck With a Budget Shortfall**\
-`Lawmakers passed a preliminary budget that technically meets a legal deadline while they work out final details. State finances have fluctuated wildly in recent years.`\
-https://nytimes.com/2024/06/13/us/california-budget-explainer.html
+**From Quinceañera Dance Partners to Life Partners**\
+`Dianna Mateos and Edgar Angel met over 10 years ago at a quinceañera. The two have grown together ever since.`\
+https://nytimes.com/2024/06/14/style/dianna-mateos-edgar-angel-wedding.html
 
-**Tyson Foods Suspends Executive After Second Alcohol-Related Arrest**\
-`John Randal Tyson, a fourth-generation member of the Tyson family business, was charged with driving while intoxicated, the company said, two years after he was found asleep in a stranger’s house.`\
-https://nytimes.com/2024/06/13/business/john-randal-tyson-foods-arrest.html
+**A ‘Soul-Mate’ Connection Forged From Opposite Coasts**\
+`Tyler Eyre and Yasmine Khorram, whose family fled Iran four decades ago, describe the connection on their first date as “like lightning.”`\
+https://nytimes.com/2024/06/14/style/yasmine-khorram-tyler-eyre-wedding.html
 
