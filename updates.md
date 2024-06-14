@@ -1,3 +1,7 @@
+**Ukraine Welcomes Pledges of More Military Aid With Cautious Optimism**\
+`Kyiv signed security pacts with several Western allies this week. Whether they will fundamentally change the course of the war, or endure beyond looming elections elsewhere, is unclear.`\
+https://nytimes.com/2024/06/14/world/europe/ukraine-biden-military-aid.html
+
 **What Elon Musk’s Convincing Win Means for Tesla**\
 `Investors voted overwhelmingly to reinstate the C.E.O.’s multibillion-dollar compensation package, inextricably tying the car maker’s future to the tech billionaire.`\
 https://nytimes.com/2024/06/14/business/dealbook/elon-musk-pay-package-win.html
