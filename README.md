@@ -1,3 +1,7 @@
+**Johnny Canales, Tejano Music Singer and TV Host, Dies**\
+`He was known for booking new acts on his program, including Selena Quintanilla, who performed on his show in 1985 in what was one of her first live TV performances.`\
+https://nytimes.com/2024/06/14/arts/television/johnny-canales-tejano-music-dead.html
+
 **I Think My Husband Has Dementia. Can I Leave Him Before It Worsens?**\
 `The magazine’s Ethicist columnist on what happens when the implications of marital vows to love “in sickness and in health” become increasingly urgent.`\
 https://nytimes.com/2024/06/14/magazine/husband-dementia-divorce-ethics.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/dining/deviled-crab.html
 **How Media Outlets on the Right and Left Covered the Latest Inflation Numbers**\
 `Conservative media outlets used the new inflation data, which was lower than expected, to criticize President Biden’s handling of the economy. Liberal media outlets celebrated it.`\
 https://nytimes.com/2024/06/14/business/media/partisan-news-media-inflation.html
-
-**El Niño Is Over. What Does That Mean for Summer?**\
-`The NOAA Climate Prediction Center announced an end to the El Niño climate phenomenon on Thursday, and predicted that La Niña could start as early as next month.`\
-https://nytimes.com/2024/06/14/climate/el-nino-la-nina.html
 
