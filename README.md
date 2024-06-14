@@ -1,3 +1,7 @@
+**$995,000 Homes in the Bahamas**\
+`A two-cottage compound on Lubbers Quarters Cay, a three-bedroom bungalow on Great Exuma island, and a two-bedroom condo on Paradise Island.`\
+https://nytimes.com/2024/06/14/realestate/995000-homes-in-the-bahamas.html
+
 **Trump plans to celebrate his 78th birthday in Florida with a trusted group of supporters.**\
 `By Shawn McCreesh`\
 https://nytimes.com/live/2024/06/08/us/biden-trump-election/trump-plans-to-celebrate-his-78th-birthday-in-florida-with-a-trusted-group-of-supporters
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/business/dealbook/elon-musk-pay-package-win.html
 **9 New Movies Our Critics Are Talking About This Week**\
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
 https://nytimes.com/2024/06/14/movies/new-movies-roundup.html
-
-**Musk’s Tesla Pay Package Got Big Margin in Shareholder Vote**\
-`About 72 percent of the shares in the balloting affirmed the lucrative stock award to the chief executive in a bid to get a court to reinstate it.`\
-https://nytimes.com/2024/06/14/business/tesla-elon-musk-pay-vote-stock.html
 
