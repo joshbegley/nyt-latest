@@ -1,3 +1,7 @@
+**U.S. imposes sanctions on an Israeli group that has blocked aid trucks bound for Gaza.**\
+`The State Department announced the sanctions to signal to Israeli leaders that they need to rein in extremist groups that are trying to prevent aid from getting to Palestinians in the devastated strip.`\
+https://nytimes.com/live/2024/06/14/world/israel-gaza-war-hamas/us-imposes-sanctions-on-an-israeli-group-that-has-blocked-aid-trucks-bound-for-gaza
+
 **House G.O.P. Pushes Through Defense Bill Nixing Abortion Access Policy**\
 `The annual defense policy legislation emerged from a House committee with bipartisan backing, but Republicans loaded it with right-wing mandates targeting abortion, transgender care and diversity initiatives.`\
 https://nytimes.com/2024/06/14/us/politics/house-defense-bill-abortion.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/weather/heat-wave-forecast-east-coast.html
 **Fauci Speaks His Mind on Trump’s Rages and Their ‘Complicated’ Relationship**\
 `In a new book, Dr. Anthony S. Fauci recounts a career advising seven presidents. The chapter about Donald J. Trump is titled “He Loves Me, He Loves Me Not.”`\
 https://nytimes.com/2024/06/14/us/politics/fauci-trump-book-covid.html
-
-**Millions of Americans Watched ‘The Apprentice.’ Now We Are Living It.**\
-`As a new book by Ramin Setoodeh shows, Donald Trump brought the vulgar theatrics he honed on TV to his life in politics.`\
-https://nytimes.com/2024/06/14/books/review/apprentice-in-wonderland-ramin-setoodeh.html
 
