@@ -1,3 +1,7 @@
+**3.3%**\
+`The rate of inflation in May over the previous year.`\
+https://nytimes.com/2024/06/14/business/3-3-percent-may-inflation.html
+
 **Fetterman Has History of Driving Infractions, Records and Former Aides Say**\
 `The senator’s accident in Maryland last weekend did not come as a surprise to some of his former staff members, who said he was a notoriously distracted driver.`\
 https://nytimes.com/2024/06/14/us/politics/fetterman-car-crash-driving.html
