@@ -1,3 +1,7 @@
+**Ben Vautier, Artist Whose Specialty Was Provocation, Dies at 88**\
+`A core member of the anti-art movement Fluxus, he died by suicide hours after the death of his wife of 60 years.`\
+https://nytimes.com/2024/06/15/arts/ben-vautier-dead.html
+
 **Overlooked No More: Lorenza Böttner, Transgender Artist Who Found Beauty in Disability**\
 `Böttner, whose specialty was self-portraiture, celebrated her armless body in paintings she created with her mouth and feet while dancing in public.`\
 https://nytimes.com/2024/06/15/arts/lorenza-bottner-overlooked.html
