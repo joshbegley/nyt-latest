@@ -1,3 +1,7 @@
+**Voyager 1, After Major Malfunction, Is Back From the Brink, NASA Says**\
+`The farthest man-made object in space had been feared lost forever after a computer problem in November effectively rendered the 46-year-old probe useless.`\
+https://nytimes.com/2024/06/15/science/space/nasa-voyager-one-fixed.html
+
 **Have We Reached Peak Baby Name?**\
 `Tank? Afternoon? Flick? Orca?`\
 https://nytimes.com/2024/06/15/style/baby-name-meme-tiktok.html
