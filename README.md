@@ -1,3 +1,7 @@
+**Ben Vautier, Artist Whose Specialty Was Provocation, Dies at 88**\
+`A core member of the anti-art movement Fluxus, he died by suicide hours after the death of his wife of 60 years.`\
+https://nytimes.com/2024/06/15/arts/ben-vautier-dead.html
+
 **Overlooked No More: Lorenza Böttner, Transgender Artist Who Found Beauty in Disability**\
 `Böttner, whose specialty was self-portraiture, celebrated her armless body in paintings she created with her mouth and feet while dancing in public.`\
 https://nytimes.com/2024/06/15/arts/lorenza-bottner-overlooked.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/15/us/biden-trump-election
 **Catherine Reappears, in White**\
 `The Princess of Wales made her first public appearance since coming forward with her cancer diagnosis.`\
 https://nytimes.com/2024/06/15/style/catherine-princess-of-wales-jenny-packham-white.html
-
-**‘This Is So Enjoyable to Make’**\
-`Melissa Clark’s versatile fruit galette is an “easy and beautiful” five-star reader favorite.`\
-https://nytimes.com/2024/06/15/dining/fruit-galette.html
 
