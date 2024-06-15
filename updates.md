@@ -1,3 +1,7 @@
+**Trump Lawyers Argue Barring Attacks on F.B.I. Would Censor ‘Political Speech’**\
+`In a filing, the lawyers in the classified documents case made an aggressive, and at times misleading, argument against prosecutors’ request for the judge to curb his attacks on agents.`\
+https://nytimes.com/2024/06/14/us/politics/trump-documents-trial-gag.html
+
 **Rough seas set back Gaza pier yet again.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/06/14/world/israel-gaza-war-hamas/rough-seas-set-back-gaza-pier-yet-again

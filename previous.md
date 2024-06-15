@@ -1,3 +1,7 @@
+**Trump Lawyers Argue Barring Attacks on F.B.I. Would Censor ‘Political Speech’**\
+`In a filing, the lawyers in the classified documents case made an aggressive, and at times misleading, argument against prosecutors’ request for the judge to curb his attacks on agents.`\
+https://nytimes.com/2024/06/14/us/politics/trump-documents-trial-gag.html
+
 **Rough seas set back Gaza pier yet again.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/06/14/world/israel-gaza-war-hamas/rough-seas-set-back-gaza-pier-yet-again
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/us/politics/alabamas-ivf-shield-law.html
 **John Wilmerding, Who Helped Give American Art an Identity, Dies at 86**\
 `American paintings were largely overlooked and undervalued until he came along. A scholar, curator and collector, he oversaw important exhibitions over the last 50 years.`\
 https://nytimes.com/2024/06/14/arts/john-wilmerding-dead.html
-
-**Derek Jeter (Finally) Snags a Buyer for His New York Castle**\
-`The Yankees legend initially put the compound on the market in 2018 for $14.25 million. This time, the asking price was $6.3 million.`\
-https://nytimes.com/2024/06/14/realestate/derek-jeter-home-sale-orange-county.html
 
