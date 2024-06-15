@@ -1,3 +1,7 @@
+**Voyager 1, After Major Malfunction, Is Back From the Brink, NASA Says**\
+`The farthest man-made object in space had been feared lost forever after a computer problem in November effectively rendered the 46-year-old probe useless.`\
+https://nytimes.com/2024/06/15/science/space/nasa-voyager-one-fixed.html
+
 **Have We Reached Peak Baby Name?**\
 `Tank? Afternoon? Flick? Orca?`\
 https://nytimes.com/2024/06/15/style/baby-name-meme-tiktok.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/15/briefing/your-summer-reading-guide.html
 **Biden Team Set to Raise Record $28 Million at Hollywood Fund-Raiser**\
 `President Biden flew from a gathering of world leaders in Italy to Los Angeles to appear along with Barack Obama, George Clooney, Julia Roberts, Jimmy Kimmel and others.`\
 https://nytimes.com/2024/06/15/us/politics/biden-los-angeles-fundraiser-hollywood.html
-
-**The Supreme Court Ruling in the Starbucks Case Proves the Law Won’t Save Labor**\
-`To win a union campaign, workers need a strong organizing committee and a hammer to enforce the right to organize. The law is not that hammer.`\
-https://nytimes.com/2024/06/15/opinion/starbucks-nlrb-striking-workers.html
 
