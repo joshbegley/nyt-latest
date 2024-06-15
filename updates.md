@@ -1,3 +1,7 @@
+**Have We Reached Peak Baby Name?**\
+`Tank? Afternoon? Flick? Orca?`\
+https://nytimes.com/2024/06/15/style/baby-name-meme-tiktok.html
+
 **Biden Team Set to Raise Record $28 Million at Hollywood Fund-Raiser**\
 `President Biden flew from a gathering of world leaders in Italy to Los Angeles to appear along with Barack Obama, George Clooney, Julia Roberts, Jimmy Kimmel and others.`\
 https://nytimes.com/2024/06/15/us/politics/biden-los-angeles-fundraiser-hollywood.html
