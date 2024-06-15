@@ -18,7 +18,7 @@ https://nytimes.com/2024/06/15/briefing/your-summer-reading-guide.html
 `President Biden plans to fly from a gathering of world leaders in Italy to Los Angeles to appear along with Barack Obama, George Clooney, Julia Roberts, Jimmy Kimmel and others.`\
 https://nytimes.com/2024/06/15/us/politics/biden-los-angeles-fundraiser-hollywood.html
 
-**The Starbucks Decision Shows Labor Law Won’t Rescue Fired Workers**\
+**The Supreme Court Ruling in the Starbucks Case Proves the Law Won’t Save Labor**\
 `To win a union campaign, workers need a strong organizing committee and a hammer to enforce the right to organize. The law is not that hammer.`\
 https://nytimes.com/2024/06/15/opinion/starbucks-nlrb-striking-workers.html
 

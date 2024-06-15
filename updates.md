@@ -1,3 +1,7 @@
+**The Supreme Court Ruling in the Starbucks Case Proves the Law Won’t Save Labor**\
+`To win a union campaign, workers need a strong organizing committee and a hammer to enforce the right to organize. The law is not that hammer.`\
+https://nytimes.com/2024/06/15/opinion/starbucks-nlrb-striking-workers.html
+
 **The Business of Being Lorne Michaels**\
 `For 50 years, Michaels has managed both the weekly circus of producing “Saturday Night Live” and the broader task of keeping it relevant. How does he do it?`\
 https://nytimes.com/2024/06/15/business/dealbook/the-business-of-being-lorne-michaels.html
