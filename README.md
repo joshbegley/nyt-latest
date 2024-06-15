@@ -1,4 +1,4 @@
-**A explosion of an armored vehicle killed 8 Israeli soldiers, the military said.**\
+**An Explosion of an Armored Vehicle Killed 8 Israeli Soldiers, an Official Said**\
 `An explosive device apparently damaged the vehicle, but may have also ignited munitions inside it, an official said.`\
 https://nytimes.com/2024/06/15/world/middleeast/the-israeli-soldiers-were-riding-in-an-armored-vehicle-when-they-were-killed-the-official-said.html
 
