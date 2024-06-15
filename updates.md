@@ -1,3 +1,7 @@
+**One Week That Revealed the Struggles of the Anti-Abortion Movement**\
+`The movement looks for a path forward: “Is the goal the absolute abolition of abortion in our nation?”`\
+https://nytimes.com/2024/06/14/us/anti-abortion-supreme-court-southern-baptists.html
+
 **Noted Tempter**\
 `Just try to resist the allure of Ryan Judge’s striking themeless puzzle.`\
 https://nytimes.com/2024/06/14/crosswords/daily-puzzle-2024-06-15.html
