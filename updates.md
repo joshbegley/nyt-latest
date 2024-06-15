@@ -1,3 +1,9 @@
+**Accumulating waste poses catastrophic health risks in Gaza, UNRWA says.**\
+`By Raja Abdulrahim and Abu Bakr Bashir`\
+https://nytimes.com/live/2024/06/15/world/israel-gaza-war-hamas/accumulating-waste-poses-catastrophic-health-risks-in-gaza-unrwa-says
+
+**The U.N. says two-thirds of Gaza’s roads have been damaged, and other news.**\
+
 **A Hungarian Rapper’s Bandwagon Gets an Unlikely New Rider**\
 `Azahriah, who has rapped about the joy of cannabis, has shot to fame in Hungary. That may explain why he has been applauded by the country’s conservative leader, Viktor Orban.`\
 https://nytimes.com/2024/06/15/world/europe/hungary-rapper-azahriah-orban.html
