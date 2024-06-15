@@ -1,3 +1,7 @@
+**Lynn Conway, Computing Pioneer and Transgender Advocate, Dies at 86**\
+`She made significant contributions at IBM, but she lost her job because of her conviction that she inhabited the wrong body. She later fought for transgender rights.`\
+https://nytimes.com/2024/06/15/technology/lynn-conway-dead.html
+
 **Ben Vautier, Artist Whose Specialty Was Provocation, Dies at 88**\
 `A core member of the anti-art movement Fluxus, he died by suicide hours after the death of his wife of 60 years.`\
 https://nytimes.com/2024/06/15/arts/ben-vautier-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/15/insider/geeking-out-over-a-words-history.html
 **Election Updates: Trump heads to Michigan, fresh from a birthday in Florida.**\
 ``\
 https://nytimes.com/live/2024/06/15/us/biden-trump-election
-
-**Catherine Reappears, in White**\
-`The Princess of Wales made her first public appearance since coming forward with her cancer diagnosis.`\
-https://nytimes.com/2024/06/15/style/catherine-princess-of-wales-jenny-packham-white.html
 
