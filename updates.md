@@ -1,3 +1,7 @@
+**How a ‘Committed Partisan Warrior’ Came to Rethink the Political Wars**\
+`Bob Bauer, the personal attorney for President Biden and former White House counsel for President Barack Obama, is now wrestling with the win-at-all-costs nature of American politics.`\
+https://nytimes.com/2024/06/15/us/politics/bob-bauer-looking-back.html
+
 **Washington Post Publisher and Incoming Editor Are Said to Have Used Stolen Records in Britain**\
 `Years before becoming the Post’s publisher, Will Lewis assigned an article based on stolen phone records, a former reporter said.`\
 https://nytimes.com/2024/06/15/world/europe/will-lewis-records-uk-editor.html

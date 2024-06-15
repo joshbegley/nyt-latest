@@ -1,3 +1,7 @@
+**How a ‘Committed Partisan Warrior’ Came to Rethink the Political Wars**\
+`Bob Bauer, the personal attorney for President Biden and former White House counsel for President Barack Obama, is now wrestling with the win-at-all-costs nature of American politics.`\
+https://nytimes.com/2024/06/15/us/politics/bob-bauer-looking-back.html
+
 **Washington Post Publisher and Incoming Editor Are Said to Have Used Stolen Records in Britain**\
 `Years before becoming the Post’s publisher, Will Lewis assigned an article based on stolen phone records, a former reporter said.`\
 https://nytimes.com/2024/06/15/world/europe/will-lewis-records-uk-editor.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/15/us/politics/republican-states-immigration-laws.ht
 **Unruly Passenger Who Was Restrained With Duct Tape Faces Record Fine**\
 `Federal regulators are seeking $81,950 from a Texas woman who acted erratically and was violent toward crew members during an American Airlines flight in 2021.`\
 https://nytimes.com/2024/06/15/business/faa-sues-passenger-american-airlines.html
-
-**The soldiers were riding in an armored vehicle when they were killed, the military said.**\
-`An explosive device apparently damaged the vehicle, but may have also ignited munitions inside it, a official said,`\
-https://nytimes.com/live/2024/06/15/world/israel-gaza-war-hamas/the-israeli-soldiers-were-riding-in-an-armored-vehicle-when-they-were-killed-the-official-said
 
