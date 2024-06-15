@@ -1,3 +1,7 @@
+**The Business of Being Lorne Michaels**\
+`For 50 years, Michaels has managed both the weekly circus of producing “Saturday Night Live” and the broader task of keeping it relevant. How does he do it?`\
+https://nytimes.com/2024/06/15/business/dealbook/the-business-of-being-lorne-michaels.html
+
 **Sweden and Iran Exchange Prisoners in a Breakthrough Swap**\
 `Iran released an E.U. diplomat from Sweden and a dual Iranian-Swedish national, whereas Sweden released a senior former Iranian official serving a life sentence for war crimes.`\
 https://nytimes.com/2024/06/15/world/europe/sweden-iran-prisoner-exchange.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/15/opinion/birdwatching-chemotherapy-cancer.html
 **Jan. 6, America’s Rupture and the Strange, Forgotten Power of Oblivion**\
 `After a profound national rupture, forgiveness may be impossible. But the long-overlooked Act of Oblivion could a solution.`\
 https://nytimes.com/2024/06/15/opinion/jan-6-memory-memorial-forgetting.html
-
-**‘My Soul Is in Ukraine’: Safe, but Lost, in Rural England**\
-`“When you live in the past, the people around you hate you, don’t understand and don’t accept you,” Valentyna Odnoviu wrote.`\
-https://nytimes.com/2024/06/15/opinion/ukraine-refugees-england.html
 
