@@ -1,6 +1,6 @@
-**The Israeli soldiers were riding in an armored vehicle when they were killed, the official said.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/06/15/world/israel-gaza-war-hamas/the-israeli-soldiers-were-riding-in-an-armored-vehicle-when-they-were-killed-the-official-said
+**An Explosion of an Armored Vehicle Killed 8 Israeli Soldiers, an Official Said**\
+`An explosive device apparently damaged the vehicle, but may have also ignited munitions inside it, an official said.`\
+https://nytimes.com/2024/06/15/world/middleeast/the-israeli-soldiers-were-riding-in-an-armored-vehicle-when-they-were-killed-the-official-said.html
 
 **Nick Mavar, Fisherman and ‘Deadliest Catch’ Star, Dies at 59**\
 `Mr. Mavar, who ran a fishing operation in Alaska, starred in the reality television show for 16 years and captained his own boat.`\
