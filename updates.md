@@ -1,3 +1,7 @@
+**Washington Post Publisher and Incoming Editor Are Said to Have Used Stolen Records in Britain**\
+`Years before becoming the Post’s publisher, Will Lewis assigned an article based on stolen phone records, a former reporter said.`\
+https://nytimes.com/2024/06/15/world/europe/will-lewis-records-uk-editor.html
+
 **Connections**\
 `Chandi Deitmer and Wyna Liu combine forces, and games, and produce a charming mash-up.`\
 https://nytimes.com/2024/06/15/crosswords/daily-puzzle-2024-06-16.html

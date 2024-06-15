@@ -1,3 +1,7 @@
+**Washington Post Publisher and Incoming Editor Are Said to Have Used Stolen Records in Britain**\
+`Years before becoming the Post’s publisher, Will Lewis assigned an article based on stolen phone records, a former reporter said.`\
+https://nytimes.com/2024/06/15/world/europe/will-lewis-records-uk-editor.html
+
 **Connections**\
 `Chandi Deitmer and Wyna Liu combine forces, and games, and produce a charming mash-up.`\
 https://nytimes.com/2024/06/15/crosswords/daily-puzzle-2024-06-16.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/15/business/faa-sues-passenger-american-airlines.htm
 **The soldiers were riding in an armored vehicle when they were killed, the military said.**\
 `An explosive device apparently damaged the vehicle, but may have also ignited munitions inside it, a official said,`\
 https://nytimes.com/live/2024/06/15/world/israel-gaza-war-hamas/the-israeli-soldiers-were-riding-in-an-armored-vehicle-when-they-were-killed-the-official-said
-
-**Nick Mavar, Fisherman and ‘Deadliest Catch’ Star, Dies at 59**\
-`Mr. Mavar, who ran a fishing operation in Alaska, starred in the reality television show for 16 years and captained his own boat.`\
-https://nytimes.com/2024/06/15/arts/television/nick-mavar-dead.html
 
