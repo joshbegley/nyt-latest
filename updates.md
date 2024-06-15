@@ -1,3 +1,11 @@
+**Nick Mavar, Fisherman and ‘Deadliest Catch’ Star, Dies at 59**\
+`Mr. Mavar, who ran a fishing operation in Alaska, starred in the reality television show for 16 years and captained his own boat.`\
+https://nytimes.com/2024/06/15/arts/television/nick-mavar-dead.html
+
+**Geeking Out Over a Word’s History**\
+`A circus performer, an unsociable student or someone who is ahead of the curve? Over the decades, a “geek” has been all three.`\
+https://nytimes.com/2024/06/15/insider/geeking-out-over-a-words-history.html
+
 **Election Updates: Trump heads to Michigan, fresh from a birthday in Florida.**\
 ``\
 https://nytimes.com/live/2024/06/15/us/biden-trump-election
