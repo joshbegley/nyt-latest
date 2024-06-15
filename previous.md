@@ -1,3 +1,7 @@
+**New York City Removes Two Parents From School Councils Over Behavior**\
+`One parent led a push to review rules around transgender athletes. The other had encouraged pro-Palestinian student activism. The chancellor said their conduct at parent meetings crossed a line.`\
+https://nytimes.com/2024/06/15/nyregion/school-council-parents-removed.html
+
 **Serena Williams’s Next Challenge? The Rest of Her Life.**\
 `The greatest women’s tennis player of all time is trying to find her new normal in retirement.`\
 https://nytimes.com/2024/06/15/magazine/serena-williams-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/realestate/100000009517698/a-look-at-one-way-californi
 **7 Moments That Reigned in ‘House of the Dragon’**\
 `Need a reminder of all the events that went down in Season 1 between the Greens and the Blacks? We’ve got you.`\
 https://nytimes.com/2024/06/15/arts/television/house-of-dragon-season-1-recap-moments.html
-
-**James Phoon, a New Face on ‘Bridgerton,’ Is Team Ariana Grande**\
-`“She seems to approach the world with kindness and understanding,” said the actor, who has joined the Netflix series for its latest season.`\
-https://nytimes.com/2024/06/15/arts/television/james-phoon-bridgerton.html
 

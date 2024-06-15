@@ -1,3 +1,7 @@
+**New York City Removes Two Parents From School Councils Over Behavior**\
+`One parent led a push to review rules around transgender athletes. The other had encouraged pro-Palestinian student activism. The chancellor said their conduct at parent meetings crossed a line.`\
+https://nytimes.com/2024/06/15/nyregion/school-council-parents-removed.html
+
 **Serena Williams’s Next Challenge? The Rest of Her Life.**\
 `The greatest women’s tennis player of all time is trying to find her new normal in retirement.`\
 https://nytimes.com/2024/06/15/magazine/serena-williams-interview.html
