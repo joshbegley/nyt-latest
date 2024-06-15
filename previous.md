@@ -1,3 +1,7 @@
+**Unruly Passenger Who Was Restrained With Duct Tape Faces Record Fine**\
+`Federal regulators are seeking $81,950 from a Texas woman who acted erratically and was violent toward crew members during an American Airlines flight in 2021.`\
+https://nytimes.com/2024/06/15/business/faa-sues-passenger-american-airlines.html
+
 **The soldiers were riding in an armored vehicle when they were killed, an official said.**\
 `An explosive device apparently damaged the vehicle, but may have also ignited munitions inside it, a official said,`\
 https://nytimes.com/live/2024/06/15/world/israel-gaza-war-hamas/the-israeli-soldiers-were-riding-in-an-armored-vehicle-when-they-were-killed-the-official-said
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/15/us/biden-trump-election/biden-trump-election
 **Biden’s Health Secretary Goes West With a Focus on Reproductive Rights**\
 `Xavier Becerra, the health and human services secretary, will travel to states with large Latino populations, including some with key races on the ballot in November.`\
 https://nytimes.com/2024/06/15/us/politics/becerra-biden-abortion.html
-
-**Voyager 1, After Major Malfunction, Is Back From the Brink, NASA Says**\
-`The farthest man-made object in space had been feared lost forever after a computer problem in November effectively rendered the 46-year-old probe useless.`\
-https://nytimes.com/2024/06/15/science/space/nasa-voyager-one-fixed.html
 

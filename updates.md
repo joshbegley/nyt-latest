@@ -1,3 +1,7 @@
+**Unruly Passenger Who Was Restrained With Duct Tape Faces Record Fine**\
+`Federal regulators are seeking $81,950 from a Texas woman who acted erratically and was violent toward crew members during an American Airlines flight in 2021.`\
+https://nytimes.com/2024/06/15/business/faa-sues-passenger-american-airlines.html
+
 **The soldiers were riding in an armored vehicle when they were killed, an official said.**\
 `An explosive device apparently damaged the vehicle, but may have also ignited munitions inside it, a official said,`\
 https://nytimes.com/live/2024/06/15/world/israel-gaza-war-hamas/the-israeli-soldiers-were-riding-in-an-armored-vehicle-when-they-were-killed-the-official-said
