@@ -1,3 +1,11 @@
+**Nick Mavar, Fisherman and ‘Deadliest Catch’ Star, Dies at 59**\
+`Mr. Mavar, who ran a fishing operation in Alaska, starred in the reality television show for 16 years and captained his own boat.`\
+https://nytimes.com/2024/06/15/arts/television/nick-mavar-dead.html
+
+**Geeking Out Over a Word’s History**\
+`A circus performer, an unsociable student or someone who is ahead of the curve? Over the decades, a “geek” has been all three.`\
+https://nytimes.com/2024/06/15/insider/geeking-out-over-a-words-history.html
+
 **Election Updates: Trump heads to Michigan, fresh from a birthday in Florida.**\
 ``\
 https://nytimes.com/live/2024/06/15/us/biden-trump-election
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/15/science/space/nasa-voyager-one-fixed.html
 **Have We Reached Peak Baby Name?**\
 `Tank? Afternoon? Flick? Orca?`\
 https://nytimes.com/2024/06/15/style/baby-name-meme-tiktok.html
-
-**Did You Buy a Disneyland ‘Dream Key’? Disney May Owe You Money.**\
-`Disney owes a total of $9.5 million to customers who bought a $1,400 Dream Key pass over the course of two months in 2021. The payments, about $67, are going out this month.`\
-https://nytimes.com/2024/06/15/business/disney-dream-key-pass-lawsuit.html
-
-**Princess of Wales Makes First Public Appearance Since Cancer Diagnosis**\
-`Catherine, the Princess of Wales, took part in a parade on Saturday marking the birthday of King Charles III of Britain.`\
-https://nytimes.com/video/world/europe/100000009523025/kate-middleton-cancer.html
 
