@@ -1,3 +1,7 @@
+**‘We Need to Unite’: Protests Against the Far Right Are Held Across France**\
+`A newly formed left-wing coalition called on demonstrators to stop Marine Le Pen’s National Rally party from taking power in upcoming elections.`\
+https://nytimes.com/2024/06/15/world/europe/france-protests-far-right.html
+
 **G.O.P.-Led States, Claiming ‘Invasion,’ Push to Expand Power to Curb Immigration**\
 `Republicans’ latest efforts capitalize on the issue’s prominence in the 2024 election. But the fate of their proposals is still being litigated.`\
 https://nytimes.com/2024/06/15/us/politics/republican-states-immigration-laws.html

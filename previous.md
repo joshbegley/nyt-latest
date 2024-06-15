@@ -1,3 +1,7 @@
+**‘We Need to Unite’: Protests Against the Far Right Are Held Across France**\
+`A newly formed left-wing coalition called on demonstrators to stop Marine Le Pen’s National Rally party from taking power in upcoming elections.`\
+https://nytimes.com/2024/06/15/world/europe/france-protests-far-right.html
+
 **G.O.P.-Led States, Claiming ‘Invasion,’ Push to Expand Power to Curb Immigration**\
 `Republicans’ latest efforts capitalize on the issue’s prominence in the 2024 election. But the fate of their proposals is still being litigated.`\
 https://nytimes.com/2024/06/15/us/politics/republican-states-immigration-laws.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/15/dining/fruit-galette.html
 **J.D. Vance’s Strange Turn to 1876**\
 `A look at the senator’s defense of Donald Trump’s conduct after the 2020 election.`\
 https://nytimes.com/2024/06/15/opinion/jd-vance-trump-election.html
-
-**Trump heads to battleground Michigan to court Black and young voters.**\
-`By Jazmine Ulloa`\
-https://nytimes.com/live/2024/06/15/us/biden-trump-election/biden-trump-election
 
