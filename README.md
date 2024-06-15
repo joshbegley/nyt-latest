@@ -1,3 +1,7 @@
+**Noted Tempter**\
+`Just try to resist the allure of Ryan Judge’s striking themeless puzzle.`\
+https://nytimes.com/2024/06/14/crosswords/daily-puzzle-2024-06-15.html
+
 **Trump Lawyers Argue Barring Attacks on F.B.I. Would Censor ‘Political Speech’**\
 `In a filing, the lawyers in the classified documents case made an aggressive, and at times misleading, argument against prosecutors’ request for the judge to curb his attacks on agents.`\
 https://nytimes.com/2024/06/14/us/politics/trump-documents-trial-gag.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/world/middleeast/israel-hamas-hezbollah-lebanon.h
 **Alabama’s I.V.F. Shield Law Now Faces a Constitutional Challenge**\
 `The challenge, from two of the families who filed the initial lawsuit, raises the possibility that access to I.V.F. could once again be in jeopardy in the state.`\
 https://nytimes.com/2024/06/14/us/politics/alabamas-ivf-shield-law.html
-
-**John Wilmerding, Who Helped Give American Art an Identity, Dies at 86**\
-`American paintings were largely overlooked and undervalued until he came along. A scholar, curator and collector, he oversaw important exhibitions over the last 50 years.`\
-https://nytimes.com/2024/06/14/arts/john-wilmerding-dead.html
 
