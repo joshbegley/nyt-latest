@@ -1,3 +1,7 @@
+**G.O.P.-Led States, Claiming ‘Invasion,’ Push to Expand Power to Curb Immigration**\
+`Republicans’ latest efforts capitalize on the issue’s prominence in the 2024 election. But the fate of their proposals is still being litigated.`\
+https://nytimes.com/2024/06/15/us/politics/republican-states-immigration-laws.html
+
 **The soldiers were riding in an armored vehicle when they were killed, the military said.**\
 `An explosive device apparently damaged the vehicle, but may have also ignited munitions inside it, a official said,`\
 https://nytimes.com/live/2024/06/15/world/israel-gaza-war-hamas/the-israeli-soldiers-were-riding-in-an-armored-vehicle-when-they-were-killed-the-official-said
