@@ -1,3 +1,11 @@
+**Yousef in Rafah**\
+`He’s spent months seeking safety for his family in Gaza. Now he’s hit a wall.`\
+https://nytimes.com/2024/06/15/podcasts/this-american-life-yousef-in-rafah-nyt-audio-gaza-war.html
+
+**Your Summer Reading Guide**\
+`If you fantasize about reading your way from now until Labor Day but need help corralling your curiosity, we can help.`\
+https://nytimes.com/2024/06/15/briefing/your-summer-reading-guide.html
+
 **Biden Team Set to Raise Record $28 Million at Hollywood Fund-Raiser**\
 `President Biden plans to fly from a gathering of world leaders in Italy to Los Angeles to appear along with Barack Obama, George Clooney, Julia Roberts, Jimmy Kimmel and others.`\
 https://nytimes.com/2024/06/15/us/politics/biden-los-angeles-fundraiser-hollywood.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/15/opinion/ukraine-refugees-england.html
 **Growing Old, With Grace and Aches**\
 `Older readers offer a range of perspectives in response to a column by Charles M. Blow.`\
 https://nytimes.com/2024/06/15/opinion/aging-old.html
-
-**My Father’s Day Gift from the F.B.I.**\
-`A secret file kept on my dad is now a reminder of a man who, even under pressure, stayed true to his beliefs.`\
-https://nytimes.com/2024/06/15/opinion/father-fbi-politics-communism.html
-
-**Ukraine Hosts Peace Talks in Switzerland, Though Russia Isn’t Invited**\
-`Kyiv hopes to garner support about three points in its proposal before presenting them to Moscow. It’s a hard sell, with China and Brazil not sending high-level delegations.`\
-https://nytimes.com/2024/06/15/world/europe/ukraine-peace-talks-switzerland-russia.html
 

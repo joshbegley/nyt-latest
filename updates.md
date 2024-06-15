@@ -1,3 +1,11 @@
+**Yousef in Rafah**\
+`He’s spent months seeking safety for his family in Gaza. Now he’s hit a wall.`\
+https://nytimes.com/2024/06/15/podcasts/this-american-life-yousef-in-rafah-nyt-audio-gaza-war.html
+
+**Your Summer Reading Guide**\
+`If you fantasize about reading your way from now until Labor Day but need help corralling your curiosity, we can help.`\
+https://nytimes.com/2024/06/15/briefing/your-summer-reading-guide.html
+
 **Biden Team Set to Raise Record $28 Million at Hollywood Fund-Raiser**\
 `President Biden plans to fly from a gathering of world leaders in Italy to Los Angeles to appear along with Barack Obama, George Clooney, Julia Roberts, Jimmy Kimmel and others.`\
 https://nytimes.com/2024/06/15/us/politics/biden-los-angeles-fundraiser-hollywood.html
