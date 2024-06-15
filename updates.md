@@ -1,3 +1,7 @@
+**Western Anxiety Makes for an Unexpectedly Smooth G7 Summit**\
+`Political weakness, intractable wars in Ukraine and in the Middle East, and challenges from Russia and China combined to create solidarity behind American leadership.`\
+https://nytimes.com/2024/06/15/world/europe/g7-summit-unity-biden.html
+
 **The Supreme Court Ruling in the Starbucks Case Proves the Law Won’t Save Labor**\
 `To win a union campaign, workers need a strong organizing committee and a hammer to enforce the right to organize. The law is not that hammer.`\
 https://nytimes.com/2024/06/15/opinion/starbucks-nlrb-striking-workers.html
