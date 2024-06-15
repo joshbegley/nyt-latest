@@ -1,3 +1,7 @@
+**Princess of Wales Appears in Public for First Time Since Cancer Diagnosis**\
+`Catherine took part in a ceremonial parade to celebrate the birthday of her father-in-law, King Charles III.`\
+https://nytimes.com/2024/06/15/world/europe/uk-princess-catherine-king-charles.html
+
 **Ukraine Hosts Peace Talks in Switzerland, Though Russia Isn’t Invited**\
 `Kyiv hopes to garner support about three points in its proposal before presenting them to Moscow. It’s a hard sell, with China and Brazil not sending high-level delegations.`\
 https://nytimes.com/2024/06/15/world/europe/ukraine-peace-talks-switzerland-russia.html

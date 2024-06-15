@@ -14,8 +14,8 @@ https://nytimes.com/2024/06/15/crosswords/connections-companion-371.html
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/06/15/crosswords/wordle-review-1093.html
 
-**Princess Catherine Appears in Public for First Time Since Cancer Diagnosis**\
-`The Princess of Wales took part in a ceremonial parade to celebrate the birthday of her father-in-law, King Charles III.`\
+**Princess of Wales Appears in Public for First Time Since Cancer Diagnosis**\
+`Catherine took part in a ceremonial parade to celebrate the birthday of her father-in-law, King Charles III.`\
 https://nytimes.com/2024/06/15/world/europe/uk-princess-catherine-king-charles.html
 
 **New York City Removes Two Parents From School Councils Over Behavior**\
