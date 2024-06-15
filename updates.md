@@ -1,3 +1,7 @@
+**Connections**\
+`Chandi Deitmer and Wyna Liu combine forces, and games, and produce a charming mash-up.`\
+https://nytimes.com/2024/06/15/crosswords/daily-puzzle-2024-06-16.html
+
 **Anti-government protesters fill the streets in Tel Aviv.**\
 `th`\
 https://nytimes.com/live/2024/06/15/world/israel-gaza-war-hamas/anti-government-protesters-fill-the-streets-in-tel-aviv
