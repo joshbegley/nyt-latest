@@ -1,3 +1,19 @@
+**Shattered by Montreal Mind-Control Experiments, but Undeterred in a Suit**\
+`Families of patients in a Cold War-era mind-control experiment in Montreal are pressing forward after a recent setback in their class-action lawsuit.`\
+https://nytimes.com/2024/06/15/world/canada/montreal-mind-control-experiments.html
+
+**The Connections Companion No. 371, June 16, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/15/crosswords/connections-companion-371.html
+
+**Wordle Review No. 1,093, June 16, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/15/crosswords/wordle-review-1093.html
+
+**Princess Catherine Appears in Public for First Time Since Cancer Diagnosis**\
+`The Princess of Wales took part in a ceremonial parade to celebrate the birthday of her father-in-law, King Charles III.`\
+https://nytimes.com/2024/06/15/world/europe/uk-princess-catherine-king-charles.html
+
 **New York City Removes Two Parents From School Councils Over Behavior**\
 `One parent led a push to review rules around transgender athletes. The other had encouraged pro-Palestinian student activism. The chancellor said their conduct at parent meetings crossed a line.`\
 https://nytimes.com/2024/06/15/nyregion/school-council-parents-removed.html
