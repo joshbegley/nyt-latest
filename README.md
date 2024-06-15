@@ -1,3 +1,15 @@
+**A Hungarian Rapper’s Bandwagon Gets an Unlikely New Rider**\
+`Azahriah, who has rapped about the joy of cannabis, has shot to fame in Hungary. That may explain why he has been applauded by the country’s conservative leader, Viktor Orban.`\
+https://nytimes.com/2024/06/15/world/europe/hungary-rapper-azahriah-orban.html
+
+**Corrections: June 15, 2024**\
+`Corrections that appeared in print on Saturday, June 15, 2024.`\
+https://nytimes.com/2024/06/15/pageoneplus/corrections-june-15-2024.html
+
+**Quotation of the Day: Biden Striving for a Foothold in a Viral Duel**\
+`Quotation of the Day for Saturday, June 15, 2024.`\
+https://nytimes.com/2024/06/15/pageoneplus/quotation-of-the-day-biden-striving-for-a-foothold-in-a-viral-duel.html
+
 **Noted Tempter**\
 `Just try to resist the allure of Ryan Judge’s striking themeless puzzle.`\
 https://nytimes.com/2024/06/14/crosswords/daily-puzzle-2024-06-15.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/14/us/atf-bryan-malinowski-airport-arkansas.html
 **Edward Stone, 88, Physicist Who Oversaw Voyager Missions, Is Dead**\
 `He helped send the twin spacecraft on their way in 1977. Decades and billions of miles later, they are still probing — “Earth’s ambassadors to the stars,” as he put it.`\
 https://nytimes.com/2024/06/14/science/space/edward-stone-physicist-dead.html
-
-**In Milan, a Maximalist Home With a Shower Shaped Like a Bird Cage**\
-`The Italian architect and designer Roberto Gerosa has converted a disused wood shop into a live-work space where his imagination can run wild.`\
-https://nytimes.com/2024/06/14/t-magazine/roberto-gerosa-home-milan.html
-
-**Israeli Defense Chief Rebuffs French Effort to End Israel-Hezbollah Fighting**\
-`The United States, France and other mediators have sought for months to reach an agreement that would stop the tit-for-tat missile strikes over Israel’s border with Lebanon.`\
-https://nytimes.com/2024/06/14/world/middleeast/israel-hamas-hezbollah-lebanon.html
-
-**Alabama’s I.V.F. Shield Law Now Faces a Constitutional Challenge**\
-`The challenge, from two of the families who filed the initial lawsuit, raises the possibility that access to I.V.F. could once again be in jeopardy in the state.`\
-https://nytimes.com/2024/06/14/us/politics/alabamas-ivf-shield-law.html
 
