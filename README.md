@@ -1,3 +1,15 @@
+**‘This Is So Enjoyable to Make’**\
+`Melissa Clark’s versatile fruit galette is an “easy and beautiful” five-star reader favorite.`\
+https://nytimes.com/2024/06/15/dining/fruit-galette.html
+
+**J.D. Vance’s Strange Turn to 1876**\
+`A look at the senator’s defense of Donald Trump’s conduct after the 2020 election.`\
+https://nytimes.com/2024/06/15/opinion/jd-vance-trump-election.html
+
+**Trump heads to battleground Michigan to court Black and young voters.**\
+`By Jazmine Ulloa`\
+https://nytimes.com/2024/06/15/us/politics/biden-trump-election.html
+
 **Biden’s Health Secretary Goes West With a Focus on Reproductive Rights**\
 `Xavier Becerra, the health and human services secretary, will travel to states with large Latino populations, including some with key races on the ballot in November.`\
 https://nytimes.com/2024/06/15/us/politics/becerra-biden-abortion.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/15/world/europe/g7-summit-unity-biden.html
 **The Business of Being Lorne Michaels**\
 `For 50 years, Michaels has managed both the weekly circus of producing “Saturday Night Live” and the broader task of keeping it relevant. How does he do it?`\
 https://nytimes.com/2024/06/15/business/dealbook/lorne-michaels-snl.html
-
-**Sweden and Iran Exchange Prisoners in a Breakthrough Swap**\
-`Iran released an E.U. diplomat from Sweden and a dual Iranian-Swedish national, whereas Sweden released a senior former Iranian official serving a life sentence for war crimes.`\
-https://nytimes.com/2024/06/15/world/europe/sweden-iran-prisoner-exchange.html
-
-**Yousef and the Fourth Move**\
-`A Palestinian man is forced into a move he is not sure he can make.`\
-https://nytimes.com/2024/06/15/podcasts/this-american-life-yousef-in-rafah-nyt-audio-gaza-war.html
-
-**Your Summer Reading Guide**\
-`If you fantasize about reading your way from now until Labor Day but need help corralling your curiosity, we can help.`\
-https://nytimes.com/2024/06/15/briefing/your-summer-reading-guide.html
 
