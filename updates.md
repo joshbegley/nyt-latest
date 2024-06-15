@@ -1,3 +1,7 @@
+**Sweden and Iran Exchange Prisoners in a Breakthrough Swap**\
+`Iran released an E.U. diplomat from Sweden and a dual Iranian-Swedish national, whereas Sweden released a senior former Iranian official serving a life sentence for war crimes.`\
+https://nytimes.com/2024/06/15/world/europe/sweden-iran-prisoner-exchange.html
+
 **Yousef in Rafah**\
 `He’s spent months seeking safety for his family in Gaza. Now he’s hit a wall.`\
 https://nytimes.com/2024/06/15/podcasts/this-american-life-yousef-in-rafah-nyt-audio-gaza-war.html
