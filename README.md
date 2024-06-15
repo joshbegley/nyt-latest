@@ -1,3 +1,7 @@
+**G.O.P.-Led States, Claiming ‘Invasion,’ Push to Expand Power to Curb Immigration**\
+`Republicans’ latest efforts capitalize on the issue’s prominence in the 2024 election. But the fate of their proposals is still being litigated.`\
+https://nytimes.com/2024/06/15/us/politics/republican-states-immigration-laws.html
+
 **Unruly Passenger Who Was Restrained With Duct Tape Faces Record Fine**\
 `Federal regulators are seeking $81,950 from a Texas woman who acted erratically and was violent toward crew members during an American Airlines flight in 2021.`\
 https://nytimes.com/2024/06/15/business/faa-sues-passenger-american-airlines.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/15/opinion/jd-vance-trump-election.html
 **Trump heads to battleground Michigan to court Black and young voters.**\
 `By Jazmine Ulloa`\
 https://nytimes.com/live/2024/06/15/us/biden-trump-election/biden-trump-election
-
-**Biden’s Health Secretary Goes West With a Focus on Reproductive Rights**\
-`Xavier Becerra, the health and human services secretary, will travel to states with large Latino populations, including some with key races on the ballot in November.`\
-https://nytimes.com/2024/06/15/us/politics/becerra-biden-abortion.html
 
