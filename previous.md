@@ -1,3 +1,7 @@
+**Did You Buy a Disneyland ‘Dream Key’? Disney May Owe You Money.**\
+`Disney owes a total of $9.5 million to customers who bought a $1,400 Dream Key pass over the course of two months in 2021. The payments, about $67, are going out this month.`\
+https://nytimes.com/2024/06/15/business/disney-dream-key-pass-lawsuit.html
+
 **Princess of Wales Makes First Public Appearance Since Cancer Diagnosis**\
 `Catherine, the Princess of Wales, took part in a parade on Saturday marking the birthday of King Charles III of Britain.`\
 https://nytimes.com/video/world/europe/100000009523025/kate-middleton-cancer.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/15/opinion/starbucks-nlrb-striking-workers.html
 **What Have We Liberals Done to the West Coast?**\
 `Infected with ideological purity, the West Coast is focused more on intentions than on oversight and outcomes.`\
 https://nytimes.com/2024/06/15/opinion/progressives-california-portland.html
-
-**Learning to Love My Father as His Mind Unraveled**\
-`The experience of living with my father’s dementia ranged from tragic to tragicomic to vaudevillian, often within the span of a few minutes.`\
-https://nytimes.com/2024/06/15/opinion/father-dementia-family.html
 

@@ -27,7 +27,7 @@ https://nytimes.com/2024/06/15/podcasts/this-american-life-yousef-in-rafah-nyt-a
 https://nytimes.com/2024/06/15/briefing/your-summer-reading-guide.html
 
 **Biden Team Set to Raise Record $28 Million at Hollywood Fund-Raiser**\
-`President Biden plans to fly from a gathering of world leaders in Italy to Los Angeles to appear along with Barack Obama, George Clooney, Julia Roberts, Jimmy Kimmel and others.`\
+`President Biden flew from a gathering of world leaders in Italy to Los Angeles to appear along with Barack Obama, George Clooney, Julia Roberts, Jimmy Kimmel and others.`\
 https://nytimes.com/2024/06/15/us/politics/biden-los-angeles-fundraiser-hollywood.html
 
 **The Supreme Court Ruling in the Starbucks Case Proves the Law Won’t Save Labor**\

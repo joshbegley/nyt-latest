@@ -1,3 +1,7 @@
+**Did You Buy a Disneyland ‘Dream Key’? Disney May Owe You Money.**\
+`Disney owes a total of $9.5 million to customers who bought a $1,400 Dream Key pass over the course of two months in 2021. The payments, about $67, are going out this month.`\
+https://nytimes.com/2024/06/15/business/disney-dream-key-pass-lawsuit.html
+
 **Princess of Wales Makes First Public Appearance Since Cancer Diagnosis**\
 `Catherine, the Princess of Wales, took part in a parade on Saturday marking the birthday of King Charles III of Britain.`\
 https://nytimes.com/video/world/europe/100000009523025/kate-middleton-cancer.html
