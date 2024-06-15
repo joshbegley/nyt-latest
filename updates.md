@@ -1,3 +1,11 @@
+**Biden’s Health Secretary Goes West With a Focus on Reproductive Rights**\
+`Xavier Becerra, the health and human services secretary, will travel to states with large Latino populations, including some with key races on the ballot in November.`\
+https://nytimes.com/2024/06/15/us/politics/becerra-biden-abortion.html
+
+**Yousef and the Fourth Move**\
+`A Palestinian man is forced into a move he is not sure he can make.`\
+https://nytimes.com/2024/06/15/podcasts/this-american-life-yousef-in-rafah-nyt-audio-gaza-war.html
+
 **Voyager 1, After Major Malfunction, Is Back From the Brink, NASA Says**\
 `The farthest man-made object in space had been feared lost forever after a computer problem in November effectively rendered the 46-year-old probe useless.`\
 https://nytimes.com/2024/06/15/science/space/nasa-voyager-one-fixed.html
