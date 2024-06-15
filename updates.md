@@ -1,3 +1,7 @@
+**Noted Tempter**\
+`Just try to resist the allure of Ryan Judge’s striking themeless puzzle.`\
+https://nytimes.com/2024/06/14/crosswords/daily-puzzle-2024-06-15.html
+
 **Trump Lawyers Argue Barring Attacks on F.B.I. Would Censor ‘Political Speech’**\
 `In a filing, the lawyers in the classified documents case made an aggressive, and at times misleading, argument against prosecutors’ request for the judge to curb his attacks on agents.`\
 https://nytimes.com/2024/06/14/us/politics/trump-documents-trial-gag.html
