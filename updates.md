@@ -1,3 +1,15 @@
+**Election Updates: Trump heads to Michigan, fresh from a birthday in Florida.**\
+``\
+https://nytimes.com/live/2024/06/15/us/biden-trump-election
+
+**Catherine Reappears, in White**\
+`The Princess of Wales made her first public appearance since coming forward with her cancer diagnosis.`\
+https://nytimes.com/2024/06/15/style/catherine-princess-of-wales-jenny-packham-white.html
+
+**Trump heads to battleground Michigan to court Black and young voters.**\
+`By Jazmine Ulloa`\
+https://nytimes.com/live/2024/06/15/us/biden-trump-election/biden-trump-election
+
 **‘This Is So Enjoyable to Make’**\
 `Melissa Clark’s versatile fruit galette is an “easy and beautiful” five-star reader favorite.`\
 https://nytimes.com/2024/06/15/dining/fruit-galette.html

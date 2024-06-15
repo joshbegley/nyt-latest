@@ -1,3 +1,11 @@
+**Election Updates: Trump heads to Michigan, fresh from a birthday in Florida.**\
+``\
+https://nytimes.com/live/2024/06/15/us/biden-trump-election
+
+**Catherine Reappears, in White**\
+`The Princess of Wales made her first public appearance since coming forward with her cancer diagnosis.`\
+https://nytimes.com/2024/06/15/style/catherine-princess-of-wales-jenny-packham-white.html
+
 **‘This Is So Enjoyable to Make’**\
 `Melissa Clark’s versatile fruit galette is an “easy and beautiful” five-star reader favorite.`\
 https://nytimes.com/2024/06/15/dining/fruit-galette.html
@@ -8,7 +16,7 @@ https://nytimes.com/2024/06/15/opinion/jd-vance-trump-election.html
 
 **Trump heads to battleground Michigan to court Black and young voters.**\
 `By Jazmine Ulloa`\
-https://nytimes.com/2024/06/15/us/politics/biden-trump-election.html
+https://nytimes.com/live/2024/06/15/us/biden-trump-election/biden-trump-election
 
 **Biden’s Health Secretary Goes West With a Focus on Reproductive Rights**\
 `Xavier Becerra, the health and human services secretary, will travel to states with large Latino populations, including some with key races on the ballot in November.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/15/business/disney-dream-key-pass-lawsuit.html
 **Princess of Wales Makes First Public Appearance Since Cancer Diagnosis**\
 `Catherine, the Princess of Wales, took part in a parade on Saturday marking the birthday of King Charles III of Britain.`\
 https://nytimes.com/video/world/europe/100000009523025/kate-middleton-cancer.html
-
-**Western Anxiety Makes for an Unexpectedly Smooth G7 Summit**\
-`Political weakness, intractable wars in Ukraine and in the Middle East, and challenges from Russia and China combined to create solidarity behind American leadership.`\
-https://nytimes.com/2024/06/15/world/europe/g7-summit-unity-biden.html
-
-**The Business of Being Lorne Michaels**\
-`For 50 years, Michaels has managed both the weekly circus of producing “Saturday Night Live” and the broader task of keeping it relevant. How does he do it?`\
-https://nytimes.com/2024/06/15/business/dealbook/lorne-michaels-snl.html
 
