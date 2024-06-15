@@ -1,3 +1,7 @@
+**Biden Team Set to Raise Record $28 Million at Hollywood Fund-Raiser**\
+`President Biden flew from a gathering of world leaders in Italy to Los Angeles to appear along with Barack Obama, George Clooney, Julia Roberts, Jimmy Kimmel and others.`\
+https://nytimes.com/2024/06/15/us/politics/biden-los-angeles-fundraiser-hollywood.html
+
 **Did You Buy a Disneyland ‘Dream Key’? Disney May Owe You Money.**\
 `Disney owes a total of $9.5 million to customers who bought a $1,400 Dream Key pass over the course of two months in 2021. The payments, about $67, are going out this month.`\
 https://nytimes.com/2024/06/15/business/disney-dream-key-pass-lawsuit.html
