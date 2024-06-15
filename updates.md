@@ -1,3 +1,7 @@
+**Anti-government protesters fill the streets in Tel Aviv.**\
+`th`\
+https://nytimes.com/live/2024/06/15/world/israel-gaza-war-hamas/anti-government-protesters-fill-the-streets-in-tel-aviv
+
 **Lynn Conway, Computing Pioneer and Transgender Advocate, Dies at 86**\
 `She made significant contributions at IBM, but she lost her job because of her conviction that she inhabited the wrong body. She later fought for transgender rights.`\
 https://nytimes.com/2024/06/15/technology/lynn-conway-dead.html

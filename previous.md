@@ -1,3 +1,7 @@
+**Anti-government protesters fill the streets in Tel Aviv.**\
+`th`\
+https://nytimes.com/live/2024/06/15/world/israel-gaza-war-hamas/anti-government-protesters-fill-the-streets-in-tel-aviv
+
 **Lynn Conway, Computing Pioneer and Transgender Advocate, Dies at 86**\
 `She made significant contributions at IBM, but she lost her job because of her conviction that she inhabited the wrong body. She later fought for transgender rights.`\
 https://nytimes.com/2024/06/15/technology/lynn-conway-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/15/arts/television/nick-mavar-dead.html
 **Geeking Out Over a Word’s History**\
 `A circus performer, an unsociable student or someone who is ahead of the curve? Over the decades, a “geek” has been all three.`\
 https://nytimes.com/2024/06/15/insider/geeking-out-over-a-words-history.html
-
-**Election Updates: Trump heads to Michigan, fresh from a birthday in Florida.**\
-``\
-https://nytimes.com/live/2024/06/15/us/biden-trump-election
 
