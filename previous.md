@@ -1,3 +1,7 @@
+**Serena Williams’s Next Challenge? The Rest of Her Life.**\
+`The greatest women’s tennis player of all time is trying to find her new normal in retirement.`\
+https://nytimes.com/2024/06/15/magazine/serena-williams-interview.html
+
 **Trump, Biden and CNN Prepare for a Hostile Debate (With Muted Mics)**\
 `With Donald Trump’s rampage at the first 2020 debate still fresh in the memories of both campaigns and the moderators, the candidates are preparing in sharply different ways.`\
 https://nytimes.com/2024/06/15/us/politics/trump-biden-debate-rules.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/15/arts/television/house-of-dragon-season-1-recap-mo
 **James Phoon, a New Face on ‘Bridgerton,’ Is Team Ariana Grande**\
 `“She seems to approach the world with kindness and understanding,” said the actor, who has joined the Netflix series for its latest season.`\
 https://nytimes.com/2024/06/15/arts/television/james-phoon-bridgerton.html
-
-**Is That Drink Worth It to You?**\
-`Alcohol is riskier than previously thought, but weighing the trade-offs of health risks can be deeply personal.`\
-https://nytimes.com/2024/06/15/magazine/alcohol-health-risks.html
 
