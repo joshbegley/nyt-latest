@@ -1,3 +1,7 @@
+**Rough seas set back Gaza pier yet again.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/06/14/world/israel-gaza-war-hamas/rough-seas-set-back-gaza-pier-yet-again
+
 **‘Doctor Who’ Episode 7 Recap: God of All Gods**\
 `In the first part of the season finale, a terrifying enemy from the Doctor’s past returns, as mysteries start to be solved.`\
 https://nytimes.com/2024/06/14/arts/television/doctor-who-episode-7-recap.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/14/arts/john-wilmerding-dead.html
 **Derek Jeter (Finally) Snags a Buyer for His New York Castle**\
 `The Yankees legend initially put the compound on the market in 2018 for $14.25 million. This time, the asking price was $6.3 million.`\
 https://nytimes.com/2024/06/14/realestate/derek-jeter-home-sale-orange-county.html
-
-**War Veterans and Family Testify at Al Qaeda Commander’s War Crimes Tribunal**\
-`Victims of insurgent attacks in wartime Afghanistan described their loss to a jury at Guantánamo Bay to give a human face to a written guilty plea.`\
-https://nytimes.com/2024/06/14/us/politics/gitmo-war-crimes-hearing.html
 
