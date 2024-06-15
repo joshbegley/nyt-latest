@@ -1,3 +1,39 @@
+**Biden Team Set to Raise Record $28 Million at Hollywood Fund-Raiser**\
+`President Biden plans to fly from a gathering of world leaders in Italy to Los Angeles to appear along with Barack Obama, George Clooney, Julia Roberts, Jimmy Kimmel and others.`\
+https://nytimes.com/2024/06/15/us/politics/biden-los-angeles-fundraiser-hollywood.html
+
+**The Starbucks Decision Shows Labor Law Won’t Rescue Fired Workers**\
+`To win a union campaign, workers need a strong organizing committee and a hammer to enforce the right to organize. The law is not that hammer.`\
+https://nytimes.com/2024/06/15/opinion/starbucks-nlrb-striking-workers.html
+
+**What Have We Liberals Done to the West Coast?**\
+`Infected with ideological purity, the West Coast is focused more on intentions than on oversight and outcomes.`\
+https://nytimes.com/2024/06/15/opinion/progressives-california-portland.html
+
+**Learning to Love My Father as His Mind Unraveled**\
+`The experience of living with my father’s dementia ranged from tragic to tragicomic to vaudevillian, often within the span of a few minutes.`\
+https://nytimes.com/2024/06/15/opinion/father-dementia-family.html
+
+**Birding My Way Through Chemo**\
+`The future is uncertain. But it feels less scary surrounded by feathered friends.`\
+https://nytimes.com/2024/06/15/opinion/birdwatching-chemotherapy-cancer.html
+
+**Jan. 6, America’s Rupture and the Strange, Forgotten Power of Oblivion**\
+`After a profound national rupture, forgiveness may be impossible. But the long-overlooked Act of Oblivion could a solution.`\
+https://nytimes.com/2024/06/15/opinion/jan-6-memory-memorial-forgetting.html
+
+**‘My Soul Is in Ukraine’: Safe, but Lost, in Rural England**\
+`“When you live in the past, the people around you hate you, don’t understand and don’t accept you,” Valentyna Odnoviu wrote.`\
+https://nytimes.com/2024/06/15/opinion/ukraine-refugees-england.html
+
+**Growing Old, With Grace and Aches**\
+`Older readers offer a range of perspectives in response to a column by Charles M. Blow.`\
+https://nytimes.com/2024/06/15/opinion/aging-old.html
+
+**My Father’s Day Gift from the F.B.I.**\
+`A secret file kept on my dad is now a reminder of a man who, even under pressure, stayed true to his beliefs.`\
+https://nytimes.com/2024/06/15/opinion/father-fbi-politics-communism.html
+
 **Princess of Wales Appears in Public for First Time Since Cancer Diagnosis**\
 `Catherine took part in a ceremonial parade to celebrate the birthday of her father-in-law, King Charles III.`\
 https://nytimes.com/2024/06/15/world/europe/uk-princess-catherine-king-charles.html
