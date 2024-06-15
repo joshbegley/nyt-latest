@@ -1,3 +1,7 @@
+**Ukraine Hosts Peace Talks in Switzerland, Though Russia Isn’t Invited**\
+`Kyiv hopes to garner support about three points in its proposal before presenting them to Moscow. It’s a hard sell, with China and Brazil not sending high-level delegations.`\
+https://nytimes.com/2024/06/15/world/europe/ukraine-peace-talks-switzerland-russia.html
+
 **Shattered by Montreal Mind-Control Experiments, but Undeterred in a Suit**\
 `Families of patients in a Cold War-era mind-control experiment in Montreal are pressing forward after a recent setback in their class-action lawsuit.`\
 https://nytimes.com/2024/06/15/world/canada/montreal-mind-control-experiments.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/15/world/asia/g7-summit-china-russia.html
 **The Momentous Decision New York Almost Made**\
 `Chicago reversed the flow of a river. Boston put a highway underground. And New York, well, came close to enacting congestion pricing.`\
 https://nytimes.com/2024/06/15/upshot/congestion-pricing-cities-history.html
-
-**A Memoir of Hot Sex, Hot Chocolate and Freedom — Not in That Order**\
-`In “I’m Mostly Here to Enjoy Myself,” Glynnis MacNicol ignores the pearl-clutchers and does just that.`\
-https://nytimes.com/2024/06/15/books/review/im-mostly-here-to-enjoy-myself-glynnis-macnicol.html
 

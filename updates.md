@@ -1,3 +1,7 @@
+**Ukraine Hosts Peace Talks in Switzerland, Though Russia Isn’t Invited**\
+`Kyiv hopes to garner support about three points in its proposal before presenting them to Moscow. It’s a hard sell, with China and Brazil not sending high-level delegations.`\
+https://nytimes.com/2024/06/15/world/europe/ukraine-peace-talks-switzerland-russia.html
+
 **Shattered by Montreal Mind-Control Experiments, but Undeterred in a Suit**\
 `Families of patients in a Cold War-era mind-control experiment in Montreal are pressing forward after a recent setback in their class-action lawsuit.`\
 https://nytimes.com/2024/06/15/world/canada/montreal-mind-control-experiments.html
