@@ -1,3 +1,7 @@
+**Have We Reached Peak Baby Name?**\
+`Tank? Afternoon? Flick? Orca?`\
+https://nytimes.com/2024/06/15/style/baby-name-meme-tiktok.html
+
 **Did You Buy a Disneyland ‘Dream Key’? Disney May Owe You Money.**\
 `Disney owes a total of $9.5 million to customers who bought a $1,400 Dream Key pass over the course of two months in 2021. The payments, about $67, are going out this month.`\
 https://nytimes.com/2024/06/15/business/disney-dream-key-pass-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/15/us/politics/biden-los-angeles-fundraiser-hollywoo
 **The Supreme Court Ruling in the Starbucks Case Proves the Law Won’t Save Labor**\
 `To win a union campaign, workers need a strong organizing committee and a hammer to enforce the right to organize. The law is not that hammer.`\
 https://nytimes.com/2024/06/15/opinion/starbucks-nlrb-striking-workers.html
-
-**What Have We Liberals Done to the West Coast?**\
-`Infected with ideological purity, the West Coast is focused more on intentions than on oversight and outcomes.`\
-https://nytimes.com/2024/06/15/opinion/progressives-california-portland.html
 
