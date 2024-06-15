@@ -15,7 +15,7 @@ https://nytimes.com/live/2024/06/14/world/israel-gaza-war-hamas/rough-seas-set-b
 https://nytimes.com/2024/06/14/arts/television/doctor-who-episode-7-recap.html
 
 **One Week That Revealed the Struggles of the Anti-Abortion Movement**\
-`The movement looks for a path forward: ‘Is the goal the absolute abolition of abortion in our nation?’`\
+`The movement looks for a path forward: “Is the goal the absolute abolition of abortion in our nation?”`\
 https://nytimes.com/2024/06/14/us/anti-abortion-supreme-court-southern-baptists.html
 
 **Prosecutors Won’t Bring Charges in Death of Airport Executive in A.T.F. Raid**\
