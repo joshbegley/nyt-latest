@@ -1,3 +1,7 @@
+**Western Anxiety Makes for an Unexpectedly Smooth G7 Summit**\
+`Political weakness, intractable wars in Ukraine and in the Middle East, and challenges from Russia and China combined to create solidarity behind American leadership.`\
+https://nytimes.com/2024/06/15/world/europe/g7-summit-unity-biden.html
+
 **The Business of Being Lorne Michaels**\
 `For 50 years, Michaels has managed both the weekly circus of producing “Saturday Night Live” and the broader task of keeping it relevant. How does he do it?`\
 https://nytimes.com/2024/06/15/business/dealbook/the-business-of-being-lorne-michaels.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/15/opinion/father-dementia-family.html
 **Birding My Way Through Chemo**\
 `The future is uncertain. But it feels less scary surrounded by feathered friends.`\
 https://nytimes.com/2024/06/15/opinion/birdwatching-chemotherapy-cancer.html
-
-**Jan. 6, America’s Rupture and the Strange, Forgotten Power of Oblivion**\
-`After a profound national rupture, forgiveness may be impossible. But the long-overlooked Act of Oblivion could a solution.`\
-https://nytimes.com/2024/06/15/opinion/jan-6-memory-memorial-forgetting.html
 
