@@ -1,3 +1,15 @@
+**‘This Is So Enjoyable to Make’**\
+`Melissa Clark’s versatile fruit galette is an “easy and beautiful” five-star reader favorite.`\
+https://nytimes.com/2024/06/15/dining/fruit-galette.html
+
+**J.D. Vance’s Strange Turn to 1876**\
+`A look at the senator’s defense of Donald Trump’s conduct after the 2020 election.`\
+https://nytimes.com/2024/06/15/opinion/jd-vance-trump-election.html
+
+**Trump heads to battleground Michigan to court Black and young voters.**\
+`By Jazmine Ulloa`\
+https://nytimes.com/2024/06/15/us/politics/biden-trump-election.html
+
 **The Business of Being Lorne Michaels**\
 `For 50 years, Michaels has managed both the weekly circus of producing “Saturday Night Live” and the broader task of keeping it relevant. How does he do it?`\
 https://nytimes.com/2024/06/15/business/dealbook/lorne-michaels-snl.html
