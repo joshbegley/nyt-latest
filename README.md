@@ -1,3 +1,19 @@
+**Trump, Biden and CNN Prepare for a Hostile Debate (With Muted Mics)**\
+`With Donald Trump’s rampage at the first 2020 debate still fresh in the memories of both campaigns and the moderators, the candidates are preparing in sharply different ways.`\
+https://nytimes.com/2024/06/15/us/politics/trump-biden-debate-rules.html
+
+**It’s Not Just Russia: China Joins the G7’s List of Adversaries**\
+`While not invited to the Group of 7 meeting, China was still a major presence, with the summit’s final communiqué referencing the country 28 times, almost always as a malign force.`\
+https://nytimes.com/2024/06/15/world/asia/g7-summit-china-russia.html
+
+**The Momentous Decision New York Almost Made**\
+`Chicago reversed the flow of a river. Boston put a highway underground. And New York, well, came close to enacting congestion pricing.`\
+https://nytimes.com/2024/06/15/upshot/congestion-pricing-cities-history.html
+
+**A Memoir of Hot Sex, Hot Chocolate and Freedom — Not in That Order**\
+`In “I’m Mostly Here to Enjoy Myself,” Glynnis MacNicol ignores the pearl-clutchers and does just that.`\
+https://nytimes.com/2024/06/15/books/review/im-mostly-here-to-enjoy-myself-glynnis-macnicol.html
+
 **These Common Medications Can Make Heat Waves More Dangerous**\
 `Certain antidepressants, blood pressure pills and other drugs make you more susceptible to heat-related illness. Here’s what to know.`\
 https://nytimes.com/2024/06/15/well/live/heat-weather-medication-safety.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/06/15/arts/television/james-phoon-bridgerton.html
 **Is That Drink Worth It to You?**\
 `Alcohol is riskier than previously thought, but weighing the trade-offs of health risks can be deeply personal.`\
 https://nytimes.com/2024/06/15/magazine/alcohol-health-risks.html
-
-**How Can You Get a Closer Look at Your Co-op’s Expenses?**\
-`Shareholders have a right to know about the building’s expenses, and there are ways to look inside the books.`\
-https://nytimes.com/2024/06/15/realestate/how-can-you-get-a-closer-look-at-your-co-ops-expenses.html
-
-**Republicans and Democrats Are Trading Places on Turnout**\
-`Inside the unusual dynamic shaping the 2024 campaign.`\
-https://nytimes.com/2024/06/15/upshot/election-democrats-republicans-turnout-trump.html
-
-**Medical Experts Alarmed by Out-of-Hospital Cesareans in Florida**\
-`A new state law will permit surgeons to perform cesarean deliveries in “advanced birth centers,” despite the risk of complications.`\
-https://nytimes.com/2024/06/15/health/ceseareans-outpatient-florida.html
-
-**As War Drags On, Gazans More Willing to Speak Out Against Hamas**\
-`Ordinary Gazans are bearing the brunt of the 8-month Israeli military onslaught on the territory and many blame the Palestinian armed faction for starting the war.`\
-https://nytimes.com/2024/06/15/world/middleeast/hamas-gaza-israel-war.html
 
