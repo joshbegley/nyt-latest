@@ -1,3 +1,7 @@
+**The Business of Being Lorne Michaels**\
+`For 50 years, Michaels has managed both the weekly circus of producing “Saturday Night Live” and the broader task of keeping it relevant. How does he do it?`\
+https://nytimes.com/2024/06/15/business/dealbook/lorne-michaels-snl.html
+
 **Biden’s Health Secretary Goes West With a Focus on Reproductive Rights**\
 `Xavier Becerra, the health and human services secretary, will travel to states with large Latino populations, including some with key races on the ballot in November.`\
 https://nytimes.com/2024/06/15/us/politics/becerra-biden-abortion.html
