@@ -1,3 +1,7 @@
+**Princess of Wales Makes First Public Appearance Since Cancer Diagnosis**\
+`Catherine, the Princess of Wales, took part in a parade on Saturday marking the birthday of King Charles III of Britain.`\
+https://nytimes.com/video/world/europe/100000009523025/kate-middleton-cancer.html
+
 **Western Anxiety Makes for an Unexpectedly Smooth G7 Summit**\
 `Political weakness, intractable wars in Ukraine and in the Middle East, and challenges from Russia and China combined to create solidarity behind American leadership.`\
 https://nytimes.com/2024/06/15/world/europe/g7-summit-unity-biden.html

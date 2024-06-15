@@ -1,3 +1,7 @@
+**Princess of Wales Makes First Public Appearance Since Cancer Diagnosis**\
+`Catherine, the Princess of Wales, took part in a parade on Saturday marking the birthday of King Charles III of Britain.`\
+https://nytimes.com/video/world/europe/100000009523025/kate-middleton-cancer.html
+
 **Western Anxiety Makes for an Unexpectedly Smooth G7 Summit**\
 `Political weakness, intractable wars in Ukraine and in the Middle East, and challenges from Russia and China combined to create solidarity behind American leadership.`\
 https://nytimes.com/2024/06/15/world/europe/g7-summit-unity-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/15/opinion/progressives-california-portland.html
 **Learning to Love My Father as His Mind Unraveled**\
 `The experience of living with my father’s dementia ranged from tragic to tragicomic to vaudevillian, often within the span of a few minutes.`\
 https://nytimes.com/2024/06/15/opinion/father-dementia-family.html
-
-**Birding My Way Through Chemo**\
-`The future is uncertain. But it feels less scary surrounded by feathered friends.`\
-https://nytimes.com/2024/06/15/opinion/birdwatching-chemotherapy-cancer.html
 
