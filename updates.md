@@ -1,3 +1,7 @@
+**Overlooked No More: Lorenza Böttner, Transgender Artist Who Found Beauty in Disability**\
+`Böttner, whose specialty was self-portraiture, celebrated her armless body in paintings she created with her mouth and feet while dancing in public.`\
+https://nytimes.com/2024/06/15/arts/lorenza-bottner-overlooked.html
+
 **‘We Need to Unite’: Protests Against the Far Right Are Held Across France**\
 `A newly formed left-wing coalition called on demonstrators to stop Marine Le Pen’s National Rally party from taking power in upcoming elections.`\
 https://nytimes.com/2024/06/15/world/europe/france-protests-far-right.html

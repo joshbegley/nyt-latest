@@ -1,3 +1,7 @@
+**Overlooked No More: Lorenza Böttner, Transgender Artist Who Found Beauty in Disability**\
+`Böttner, whose specialty was self-portraiture, celebrated her armless body in paintings she created with her mouth and feet while dancing in public.`\
+https://nytimes.com/2024/06/15/arts/lorenza-bottner-overlooked.html
+
 **‘We Need to Unite’: Protests Against the Far Right Are Held Across France**\
 `A newly formed left-wing coalition called on demonstrators to stop Marine Le Pen’s National Rally party from taking power in upcoming elections.`\
 https://nytimes.com/2024/06/15/world/europe/france-protests-far-right.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/15/style/catherine-princess-of-wales-jenny-packham-w
 **‘This Is So Enjoyable to Make’**\
 `Melissa Clark’s versatile fruit galette is an “easy and beautiful” five-star reader favorite.`\
 https://nytimes.com/2024/06/15/dining/fruit-galette.html
-
-**J.D. Vance’s Strange Turn to 1876**\
-`A look at the senator’s defense of Donald Trump’s conduct after the 2020 election.`\
-https://nytimes.com/2024/06/15/opinion/jd-vance-trump-election.html
 
