@@ -1,3 +1,7 @@
+**Rough seas set back Gaza pier yet again.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/06/14/world/israel-gaza-war-hamas/rough-seas-set-back-gaza-pier-yet-again
+
 **‘Doctor Who’ Episode 7 Recap: God of All Gods**\
 `In the first part of the season finale, a terrifying enemy from the Doctor’s past returns, as mysteries start to be solved.`\
 https://nytimes.com/2024/06/14/arts/television/doctor-who-episode-7-recap.html
