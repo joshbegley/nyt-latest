@@ -1,6 +1,6 @@
 **Trump, in Pitch to Black Voters in Detroit, Casts Biden as Anti-Black**\
 `Former President Donald J. Trump met with voters at a Black church in the critical battleground state, seeking to make a contrast with President Biden on the economy.`\
-https://nytimes.com/live/2024/06/15/us/biden-trump-election/trump-michigan-black-voters
+https://nytimes.com/2024/06/15/us/politics/trump-michigan-black-voters.html
 
 **At Least 9 Shot at Splash Park in Michigan, Police Say**\
 `The authorities said the shooting in Rochester Hills, Mich., appeared to be random, and that the gunman had exited a car and opened fire.`\
