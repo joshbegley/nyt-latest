@@ -1,3 +1,11 @@
+**Nick Jonas and Adrienne Warren to Star in ‘Last Five Years’ on Broadway**\
+`Whitney White will direct the first Broadway production of Jason Robert Brown’s popular musical, which plans to open next spring.`\
+https://nytimes.com/2024/06/16/theater/nick-jonas-adrienne-warren-broadway.html
+
+**What is a ‘Zombie Mortgage’?**\
+`Has your mortgage come back from the dead? It probably wasn’t really gone, it was likely just hiding.`\
+https://nytimes.com/2024/06/16/realestate/zombie-second-mortgage-inflation-rates.html
+
 **Italians Respond to Pope’s Slur by Taking Francis to Pride**\
 `At Saturday’s celebration in Rome, Pope Francis’ image was on cardboard cutouts adorned with flower necklaces. People came dressed as the pope, wore papal hats and said that there was never too much “gayness.”`\
 https://nytimes.com/2024/06/16/world/europe/rome-gay-pride-pope-francis.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/16/opinion/joe-biden-hunter.html
 **Dad Brain Is Real, and It’s a Good Thing**\
 `New science reveals parenting is transformative for men.`\
 https://nytimes.com/2024/06/16/opinion/dad-brain-fatherhood-parenting.html
-
-**A Brief History of Iran’s Hostage Swapping**\
-`Since the 1979 revolution, Iran has made detaining foreigners and dual nationals a centerpiece of its foreign policy, trading them for money and people.`\
-https://nytimes.com/2024/06/16/world/middleeast/iran-hostage-swap-history.html
-
-**Inside the Chechen Units Helping to Fight Russia’s War**\
-`After hundreds of years of enmity with Russia, Chechens are deploying to Ukraine to fight Moscow’s war.`\
-https://nytimes.com/2024/06/16/world/europe/chechnya-russia-ukraine-war.html
 
