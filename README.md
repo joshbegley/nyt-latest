@@ -1,3 +1,11 @@
+**Inside the Chechen Units Helping to Fight Russia’s War**\
+`After hundreds of years of enmity with Russia, Chechens are deploying to Ukraine to fight Moscow’s war.`\
+https://nytimes.com/2024/06/16/world/europe/chechnya-russia-ukraine-war.html
+
+**Israel announces a daily pause in military operations near a key Gaza border crossing.**\
+`By Vivek Shankar and Isabel Kershner`\
+https://nytimes.com/live/2024/06/16/world/israel-gaza-war-hamas/israel-announces-a-daily-pause-in-military-operations-near-a-key-gaza-border-crossing
+
 **5 Numbers to Know About the Coming Heat Wave**\
 `Stifling conditions are forecast to spread this week over the eastern half of America — and linger for days.`\
 https://nytimes.com/2024/06/16/us/5-numbers-to-know-about-the-coming-heat-wave.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/16/us/politics/house-republican-tom-cole-primary-spe
 **In a Digital Age, High-End Outdoors Magazines Are Thriving in Print**\
 `Titles like Adventure Journal, Mountain Gazette, Summit Journal and Ori are aimed at “people who just don’t want to be on their phones anymore.”`\
 https://nytimes.com/2024/06/16/business/media/outdoors-print-magazines.html
-
-**5 Ways This Year’s Tony Awards Reveal That Theater Is Changing**\
-`As Broadway prepares to celebrate the best of the season, our theater reporter explores what the nominations tell us about the industry and the art form.`\
-https://nytimes.com/2024/06/16/theater/tony-awards-broadway-theater-changing.html
-
-**Why Are Tweens Buying a ‘Visibly Firming’ ‘Bum Bum’ Cream?**\
-`A scented lotion by the brand Sol de Janeiro is a hit among adolescents. Cue bafflement and concern from some adults.`\
-https://nytimes.com/2024/06/16/style/sol-de-janeiro-brazilian-bum-bum.html
 
