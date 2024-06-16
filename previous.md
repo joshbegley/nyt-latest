@@ -1,3 +1,7 @@
+**More Than 80 Nations Back Talks to Ease Path to Peace in Ukraine**\
+`Meeting in Switzerland, world leaders backed a joint statement urging more diplomacy, but were divided on how to engage Russia.`\
+https://nytimes.com/2024/06/16/world/europe/ukraine-russia-peace-talks.html
+
 **Maine Accepting Designs for a New State Flag**\
 `Maine is seeking design ideas before voters in November determine whether to adopt a new, more distinctive flag.`\
 https://nytimes.com/2024/06/16/us/maine-state-flag-design-contest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/16/obituaries/paul-pressler-dead.html
 **Netanyahu says he didn’t know about plans to pause fighting, but analysts say he probably approved them.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/06/16/world/israel-gaza-war-hamas/netanyahu-says-he-didnt-know-about-plans-to-pause-fighting-but-analysts-say-he-probably-approved-them
-
-**Men and Women, Together and Solo**\
-`Readers respond to a column by Nicholas Kristof. Also: An arms competition with China; A.D.H.D. medication; Donald Trump’s divisive rhetoric.`\
-https://nytimes.com/2024/06/16/opinion/men-women-love-marriage.html
 

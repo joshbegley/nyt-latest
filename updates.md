@@ -1,3 +1,7 @@
+**More Than 80 Nations Back Talks to Ease Path to Peace in Ukraine**\
+`Meeting in Switzerland, world leaders backed a joint statement urging more diplomacy, but were divided on how to engage Russia.`\
+https://nytimes.com/2024/06/16/world/europe/ukraine-russia-peace-talks.html
+
 **Maine Accepting Designs for a New State Flag**\
 `Maine is seeking design ideas before voters in November determine whether to adopt a new, more distinctive flag.`\
 https://nytimes.com/2024/06/16/us/maine-state-flag-design-contest.html
