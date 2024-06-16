@@ -1,3 +1,11 @@
+**Men and Women, Together and Solo**\
+`Readers respond to a column by Nicholas Kristof. Also: An arms competition with China; A.D.H.D. medication; Donald Trump’s divisive rhetoric.`\
+https://nytimes.com/2024/06/16/opinion/men-women-love-marriage.html
+
+**Buttermilk Fried Chicken, a Dad’s Gift to Himself**\
+`My five-star recipe yields a crisp crust and luscious interior.`\
+https://nytimes.com/2024/06/16/dining/buttermilk-fried-chicken-fathers-day.html
+
 **John Everett Benson, Who Chiseled John F. Kennedy’s Grave, Dies at 85**\
 `A master of the ancient and exacting art of carving into rock, he was 25 when he began his first major commission, at Arlington National Cemetery.`\
 https://nytimes.com/2024/06/16/us/john-everett-benson-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/16/realestate/zombie-second-mortgage-inflation-rates
 **Italians Respond to Pope’s Slur by Taking Francis to Pride**\
 `At Saturday’s celebration in Rome, Pope Francis’ image was on cardboard cutouts adorned with flower necklaces. People came dressed as the pope, wore papal hats and said that there was never too much “gayness.”`\
 https://nytimes.com/2024/06/16/world/europe/rome-gay-pride-pope-francis.html
-
-**Police Shoot Ax-Wielding Man Before Euro 2024 Match in Germany**\
-`The shooting took place in Hamburg, in an area packed with soccer fans, and hours before the Netherlands and Poland were set to play in the city.`\
-https://nytimes.com/2024/06/16/world/europe/euro-2024-shooting-hamburg.html
-
-**Broadway’s Pop Era**\
-`The Tonys are tonight. Many of the shows have a new sound.`\
-https://nytimes.com/2024/06/16/briefing/tony-awards.html
 
