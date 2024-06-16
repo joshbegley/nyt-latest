@@ -1,3 +1,11 @@
+**James Kent, Chef Who Was Building a Restaurant Empire, Dies at 45**\
+`He had opened two restaurants and a cocktail bar in downtown Manhattan, and he was preparing for a big expansion backed by LeBron James.`\
+https://nytimes.com/2024/06/16/obituaries/james-kent-dead.html
+
+**Alex Edelman is among 8 recipients of special honors and awards.**\
+`By Michael Paulson`\
+https://nytimes.com/live/2024/06/16/theater/tony-awards/tony-honors-special-awards
+
 **How to watch the Tony Awards.**\
 `By Michael Paulson`\
 https://nytimes.com/live/2024/06/16/theater/tony-awards/when-are-the-tony-awards
