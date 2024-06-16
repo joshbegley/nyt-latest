@@ -1,3 +1,11 @@
+**The Tasty New Challenge to Venezuela’s Autocrats: ‘Freedom Empanadas’**\
+`After the Hernández sisters served breakfast to an opposition leader, the government shut down their restaurant. Then came an outpouring of support.`\
+https://nytimes.com/2024/06/16/world/americas/venezuela-election-corozo-pando-empanadas.html
+
+**The Greens Are Dead. Long Live the Greens!**\
+`Europe’s climate change-minded parties performed poorly in the European Union elections. Is the once ambitious European green movement over, or could its electoral crash launch a rebirth?`\
+https://nytimes.com/2024/06/16/world/europe/the-greens-are-dead-long-live-the-greens.html
+
 **At Least 9 Shot at Splash Park in Michigan, Police Say**\
 `The authorities said the shooting in Rochester Hills, Mich., appeared to be random and that the gunman exited a car and opened fire.`\
 https://nytimes.com/2024/06/15/us/rochester-hills-michigan-park-shooting.html
