@@ -1,3 +1,11 @@
+**Listen to songs from Tony-nominated shows at home.**\
+`By Jesse Green`\
+https://nytimes.com/live/2024/06/16/theater/tony-awards/listen-to-songs-from-tony-nominated-shows-at-home
+
+**Here’s the latest on the ceremony.**\
+`By Michael Paulson`\
+https://nytimes.com/live/2024/06/16/theater/tony-awards/heres-the-latest-on-the-ceremony
+
 **Portraits of 43 Tony nominees, who reveal the shows that shaped them.**\
 `By Michael Paulson`\
 https://nytimes.com/live/2024/06/16/theater/tony-awards/tony-nominees-portraits
