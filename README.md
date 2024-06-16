@@ -1,3 +1,7 @@
+**Monday Briefing: Israel Plans for a Daily Pause in Some Fighting**\
+`Also, an emerging plan to resist Donald Trump and an Iran-Sweden prisoner swap.`\
+https://nytimes.com/2024/06/16/world/asia/israel-gaza-pause-trump-asia.html
+
 **As N.B.A. TV Deal Nears, Warner Bros. Discovery Is on the Outside**\
 `The company’s TNT channel and the N.B.A. have long been inextricably linked, but that may end after next season. Plus, Charles Barkley is retiring.`\
 https://nytimes.com/2024/06/16/business/nba-tv-rights-warner-bros-discovery.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/16/us/biden-trump-election/tom-cotton-and-tim-s
 **A Met Orchestra of Mixed Quality Returns to Carnegie Hall**\
 `The tenure of Yannick Nézet-Séguin, the Metropolitan Opera’s music director, can be difficult to assess. That much was evident over two concerts.`\
 https://nytimes.com/2024/06/16/arts/music/met-orchestra-nezet-seguin.html
-
-**Paul Pressler, Disgraced Christian Conservative Leader, Dies at 94**\
-`A former judge, he helped steer the Southern Baptist Convention to the right. But at least seven men accused him of sexual abuse.`\
-https://nytimes.com/2024/06/16/obituaries/paul-pressler-dead.html
 
