@@ -1,3 +1,7 @@
+**Paul Pressler, Disgraced Christian Conservative Leader, Dies at 94**\
+`A former judge, he helped steer the Southern Baptist Convention to the right. But at least seven men accused him of sexual abuse.`\
+https://nytimes.com/2024/06/16/obituaries/paul-pressler-dead.html
+
 **Netanyahu says he didn’t know about plans to pause fighting, but analysts say he probably approved them.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/06/16/world/israel-gaza-war-hamas/netanyahu-says-he-didnt-know-about-plans-to-pause-fighting-but-analysts-say-he-probably-approved-them
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/16/world/europe/greece-heat-wave-hikers.html
 **Nick Jonas and Adrienne Warren to Star in ‘Last Five Years’ on Broadway**\
 `Whitney White will direct the first Broadway production of Jason Robert Brown’s popular musical, which plans to open next spring.`\
 https://nytimes.com/2024/06/16/theater/nick-jonas-adrienne-warren-broadway.html
-
-**What is a ‘Zombie Mortgage’?**\
-`Has your mortgage come back from the dead? It probably wasn’t really gone, it was likely just hiding.`\
-https://nytimes.com/2024/06/16/realestate/zombie-second-mortgage-inflation-rates.html
 

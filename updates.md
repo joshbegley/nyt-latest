@@ -1,3 +1,7 @@
+**Paul Pressler, Disgraced Christian Conservative Leader, Dies at 94**\
+`A former judge, he helped steer the Southern Baptist Convention to the right. But at least seven men accused him of sexual abuse.`\
+https://nytimes.com/2024/06/16/obituaries/paul-pressler-dead.html
+
 **Netanyahu says he didn’t know about plans to pause fighting, but analysts say he probably approved them.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/06/16/world/israel-gaza-war-hamas/netanyahu-says-he-didnt-know-about-plans-to-pause-fighting-but-analysts-say-he-probably-approved-them
