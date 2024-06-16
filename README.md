@@ -14,8 +14,8 @@ https://nytimes.com/2024/06/16/realestate/zombie-second-mortgage-inflation-rates
 `At Saturday’s celebration in Rome, Pope Francis’ image was on cardboard cutouts adorned with flower necklaces. People came dressed as the pope, wore papal hats and said that there was never too much “gayness.”`\
 https://nytimes.com/2024/06/16/world/europe/rome-gay-pride-pope-francis.html
 
-**Police Shoot Man With Ax Before Euro 2024 Match in Germany**\
-`The shooting took place in Hamburg, in an area packed with thousands of soccer fans, and hours before the Netherlands and Poland were set to play in Euro 2024.`\
+**Police Shoot Ax-Wielding Man Before Euro 2024 Match in Germany**\
+`The shooting took place in Hamburg, in an area packed with soccer fans, and hours before the Netherlands and Poland were set to play in the city.`\
 https://nytimes.com/2024/06/16/world/europe/euro-2024-shooting-hamburg.html
 
 **Broadway’s Pop Era**\
