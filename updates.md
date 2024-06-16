@@ -1,3 +1,11 @@
+**A Baltimore director receives the excellence in theater education award.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2024/06/16/theater/tony-awards/baltimore-director-education-tony
+
+**George C. Wolfe and Jack O’Brien are receiving lifetime achievement awards.**\
+`By Michael Paulson`\
+https://nytimes.com/live/2024/06/16/theater/tony-awards/obrien-wolfe-lifetime-achievement-tony-awards
+
 **George C. Wolfe and Jack O’Brien received lifetime achievement awards.**\
 `By Michael Paulson`\
 https://nytimes.com/live/2024/06/16/theater/tony-awards/obrien-wolfe-lifetime-achievement-tony-awards
