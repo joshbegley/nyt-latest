@@ -1,3 +1,7 @@
+**George C. Wolfe and Jack O’Brien received lifetime achievement awards.**\
+`By Michael Paulson`\
+https://nytimes.com/live/2024/06/16/theater/tony-awards/obrien-wolfe-lifetime-achievement-tony-awards
+
 **We surveyed Tonys voters to see who is most likely to win.**\
 `By Michael Paulson`\
 https://nytimes.com/live/2024/06/16/theater/tony-awards/tony-awards-predictions
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/16/theater/tony-awards/wilma-theater-regional-t
 **James Kent, Chef Who Was Building a Restaurant Empire, Dies at 45**\
 `He had opened two restaurants and a cocktail bar in downtown Manhattan, and he was preparing for a big expansion backed by LeBron James.`\
 https://nytimes.com/2024/06/16/obituaries/james-kent-dead.html
-
-**Alex Edelman is among 8 recipients of special honors and awards.**\
-`By Michael Paulson`\
-https://nytimes.com/live/2024/06/16/theater/tony-awards/tony-honors-special-awards
 

@@ -1,3 +1,7 @@
+**George C. Wolfe and Jack O’Brien received lifetime achievement awards.**\
+`By Michael Paulson`\
+https://nytimes.com/live/2024/06/16/theater/tony-awards/obrien-wolfe-lifetime-achievement-tony-awards
+
 **We surveyed Tonys voters to see who is most likely to win.**\
 `By Michael Paulson`\
 https://nytimes.com/live/2024/06/16/theater/tony-awards/tony-awards-predictions
