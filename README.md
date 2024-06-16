@@ -1,3 +1,7 @@
+**Growing Wildfire Burns 10,000 Acres and Forces Evacuations Near Los Angeles**\
+`The fire spread rapidly after starting on Saturday afternoon near Interstate 5, and firefighters faced difficult conditions.`\
+https://nytimes.com/2024/06/16/us/los-angeles-wildfire-post-fire.html
+
 **Wordle Review No. 1,094, June 17, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/06/16/crosswords/wordle-review-1094.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/16/us/5-numbers-to-know-about-the-coming-heat-wave.h
 **June Is the Month When Olympic Dreams Die**\
 `There will be no shortage of drama when the Paris Olympics begin in July, but most hearts will be broken in the cutthroat qualifying trials this month.`\
 https://nytimes.com/2024/06/16/style/paris-olympics-qualifying-caitlin-clark.html
-
-**Reimagining Bloomsday for Molly, and All Women**\
-`To help honor 100 years of James Joyce’s “Ulysses,” an all-women Irish festival refocuses the annual re-enactment of the novel’s wanderings around the character of Molly Bloom.`\
-https://nytimes.com/2024/06/16/arts/bloomsday-women.html
 
