@@ -10,8 +10,8 @@ https://nytimes.com/2024/06/16/world/europe/the-greens-are-dead-long-live-the-gr
 `Former President Donald J. Trump met with voters at a Black church in the critical battleground state, seeking to make a contrast with President Biden on the economy.`\
 https://nytimes.com/2024/06/15/us/politics/trump-michigan-black-voters.html
 
-**At Least 9 Shot at Splash Park in Michigan, Police Say**\
-`The authorities said the shooting in Rochester Hills, Mich., appeared to be random and that the gunman exited a car and opened fire.`\
+**At Least 8 Shot at Splash Park in Michigan, Police Say**\
+`The authorities said the shooting in Rochester Hills, Mich., appeared to be random, and that the presumed attacker was later found dead in a nearby home.`\
 https://nytimes.com/2024/06/15/us/rochester-hills-michigan-park-shooting.html
 
 **How a ‘Committed Partisan Warrior’ Came to Rethink the Political Wars**\
