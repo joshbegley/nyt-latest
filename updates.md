@@ -1,3 +1,7 @@
+**At Biden Fund-Raiser, Hollywood and Democrats Let the Trump Attacks Fly**\
+`The Biden campaign said it raised at least $28 million on Saturday, at a fund-raiser in Los Angeles, where entertainers, Barack Obama and even Jill Biden assailed Donald J. Trump.`\
+https://nytimes.com/2024/06/16/us/politics/biden-fundraiser-los-angeles.html
+
 **At Least 8 Shot at Splash Park in Michigan, Police Say**\
 `The authorities said the shooting in Rochester Hills, Mich., appeared to be random, and that the presumed attacker was later found dead in a nearby home.`\
 https://nytimes.com/2024/06/15/us/rochester-hills-michigan-park-shooting.html

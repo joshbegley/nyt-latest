@@ -1,3 +1,7 @@
+**At Biden Fund-Raiser, Hollywood and Democrats Let the Trump Attacks Fly**\
+`The Biden campaign said it raised at least $28 million on Saturday, at a fund-raiser in Los Angeles, where entertainers, Barack Obama and even Jill Biden assailed Donald J. Trump.`\
+https://nytimes.com/2024/06/16/us/politics/biden-fundraiser-los-angeles.html
+
 **The Tasty New Challenge to Venezuela’s Autocrats: ‘Freedom Empanadas’**\
 `After the Hernández sisters served breakfast to an opposition leader, the government shut down their restaurant. Then came an outpouring of support.`\
 https://nytimes.com/2024/06/16/world/americas/venezuela-election-corozo-pando-empanadas.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/15/world/israel-gaza-war-hamas/anti-government-
 **Lynn Conway, Computing Pioneer and Transgender Advocate, Dies at 86**\
 `She made significant contributions at IBM, but she lost her job because of her conviction that she inhabited the wrong body. She later fought for transgender rights.`\
 https://nytimes.com/2024/06/15/technology/lynn-conway-dead.html
-
-**Ben Vautier, Artist Whose Specialty Was Provocation, Dies at 88**\
-`A core member of the anti-art movement Fluxus, he died by suicide hours after the death of his wife of 60 years.`\
-https://nytimes.com/2024/06/15/arts/ben-vautier-dead.html
 
