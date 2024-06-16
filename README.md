@@ -3,7 +3,7 @@
 https://nytimes.com/2024/06/16/world/europe/euro-2024-shooting-hamburg.html
 
 **Broadway’s Pop Era**\
-`The Tony’s are tonight. Many of the shows have a new sound.`\
+`The Tonys are tonight. Many of the shows have a new sound.`\
 https://nytimes.com/2024/06/16/briefing/tony-awards.html
 
 **Growing Wildfire Burns 10,000 Acres and Forces Evacuations Near Los Angeles**\
