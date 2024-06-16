@@ -1,3 +1,7 @@
+**U.S. Navy airlifts crew of merchant ship hit by the Houthis.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2024/06/16/world/israel-gaza-war-hamas/us-navy-airlifts-crew-of-merchant-ship-hit-by-the-houthis
+
 **Choreography nominees have a broader vision for dance on Broadway.**\
 `By Brian Seibert`\
 https://nytimes.com/live/2024/06/16/theater/tony-awards/tony-choreography-nominees-broadway

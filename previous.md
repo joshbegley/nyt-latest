@@ -1,3 +1,7 @@
+**U.S. Navy airlifts crew of merchant ship hit by the Houthis.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2024/06/16/world/israel-gaza-war-hamas/us-navy-airlifts-crew-of-merchant-ship-hit-by-the-houthis
+
 **Choreography nominees have a broader vision for dance on Broadway.**\
 `By Brian Seibert`\
 https://nytimes.com/live/2024/06/16/theater/tony-awards/tony-choreography-nominees-broadway
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/16/style/tony-awards-photos.html
 **Tony Award Winners 2024: Updating List**\
 `The Tony Awards begin on Sunday at 8 p.m. E.T., live from Lincoln Center’s David H. Koch Theater.`\
 https://nytimes.com/2024/06/16/theater/tony-award-winners.html
-
-**Monday Briefing: Israel Plans for a Daily Pause in Some Fighting**\
-`Also, an emerging plan to resist Donald Trump and an Iran-Sweden prisoner swap.`\
-https://nytimes.com/2024/06/16/world/asia/israel-gaza-pause-trump-asia.html
 
