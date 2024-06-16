@@ -1,3 +1,7 @@
+**What Happens When You Knock on 8,000 Doors**\
+`Listening to the stories of voters on their thresholds, we felt their need to trust.`\
+https://nytimes.com/2024/06/16/opinion/politics-canvassing-voters.html
+
 **Deadly Toll in Greece as Heat Waves Sweep the Country**\
 `Several foreigners have gone missing or been found dead after going out for walks in recent days as temperatures in Greece soar.`\
 https://nytimes.com/2024/06/16/world/europe/greece-heat-wave-hikers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/16/crosswords/wordle-review-1094.html
 **How John Roberts Lost His Court**\
 `New challenges to the Supreme Court’s image of probity and detachment seem to keep coming.`\
 https://nytimes.com/2024/06/16/opinion/alito-ethics-clarence-thomas.html
-
-**Biden’s Love for His Son Is Beautiful — and It Hits Home for Me**\
-`Many parents see themselves in the president’s affection for his son.`\
-https://nytimes.com/2024/06/16/opinion/joe-biden-hunter.html
 
