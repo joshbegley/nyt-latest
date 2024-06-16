@@ -1,3 +1,11 @@
+**Bit of Band Equipment**\
+`Kiran Pandey runs a tight ship.`\
+https://nytimes.com/2024/06/16/crosswords/daily-puzzle-2024-06-17.html
+
+**Philadelphia’s Wilma Theater is honored with a regional Tony.**\
+`By Matt Stevens`\
+https://nytimes.com/live/2024/06/16/theater/tony-awards/wilma-theater-regional-tony-philadelphia
+
 **James Kent, Chef Who Was Building a Restaurant Empire, Dies at 45**\
 `He had opened two restaurants and a cocktail bar in downtown Manhattan, and he was preparing for a big expansion backed by LeBron James.`\
 https://nytimes.com/2024/06/16/obituaries/james-kent-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/16/world/asia/israel-gaza-pause-trump-asia.html
 **As N.B.A. TV Deal Nears, Warner Bros. Discovery Is on the Outside**\
 `The company’s TNT channel and the N.B.A. have long been inextricably linked, but that may end after next season. Plus, Charles Barkley is retiring.`\
 https://nytimes.com/2024/06/16/business/nba-tv-rights-warner-bros-discovery.html
-
-**More Than 80 Nations Back Talks to Ease Path to Peace in Ukraine**\
-`Meeting in Switzerland, world leaders backed a joint statement urging more diplomacy, but were divided on how to engage Russia.`\
-https://nytimes.com/2024/06/16/world/europe/ukraine-russia-peace-talks.html
-
-**Maine Accepting Designs for a New State Flag**\
-`Maine is seeking design ideas before voters in November determine whether to adopt a new, more distinctive flag.`\
-https://nytimes.com/2024/06/16/us/maine-state-flag-design-contest.html
 

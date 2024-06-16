@@ -1,3 +1,11 @@
+**Bit of Band Equipment**\
+`Kiran Pandey runs a tight ship.`\
+https://nytimes.com/2024/06/16/crosswords/daily-puzzle-2024-06-17.html
+
+**Philadelphia’s Wilma Theater is honored with a regional Tony.**\
+`By Matt Stevens`\
+https://nytimes.com/live/2024/06/16/theater/tony-awards/wilma-theater-regional-tony-philadelphia
+
 **James Kent, Chef Who Was Building a Restaurant Empire, Dies at 45**\
 `He had opened two restaurants and a cocktail bar in downtown Manhattan, and he was preparing for a big expansion backed by LeBron James.`\
 https://nytimes.com/2024/06/16/obituaries/james-kent-dead.html
