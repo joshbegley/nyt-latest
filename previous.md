@@ -1,3 +1,11 @@
+**Portraits of 43 Tony nominees, who reveal the shows that shaped them.**\
+`By Michael Paulson`\
+https://nytimes.com/live/2024/06/16/theater/tony-awards/tony-nominees-portraits
+
+**After Splash Park Shooting, Michigan Community Feels a Familiar Pain**\
+`The violence in the city of Rochester Hills, which injured nine people including children, comes three years after the shooting at Oxford High School in the same county.`\
+https://nytimes.com/2024/06/16/us/rochester-hills-michigan-shooting.html
+
 **A Baltimore director receives the excellence in theater education award.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2024/06/16/theater/tony-awards/baltimore-director-education-tony
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/06/16/world/israel-gaza-war-hamas/us-navy-airlifts
 **Choreography nominees have a broader vision for dance on Broadway.**\
 `By Brian Seibert`\
 https://nytimes.com/live/2024/06/16/theater/tony-awards/tony-choreography-nominees-broadway
-
-**Bit of Band Equipment**\
-`Kiran Pandey runs a tight ship.`\
-https://nytimes.com/2024/06/16/crosswords/daily-puzzle-2024-06-17.html
-
-**Philadelphia’s Wilma Theater is honored with a regional Tony.**\
-`By Matt Stevens`\
-https://nytimes.com/live/2024/06/16/theater/tony-awards/wilma-theater-regional-tony-philadelphia
 
