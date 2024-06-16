@@ -1,3 +1,11 @@
+**14 Jordanians Die in Intense Heat During Hajj Pilgrimage**\
+`The pilgrims died as a result of exposure to extreme sun and heat, as hundreds of thousands poured into Mecca in Saudi Arabia for the Muslim holy trip.`\
+https://nytimes.com/2024/06/16/world/middleeast/heat-deaths-hajj-pilgrimage.html
+
+**Review: Camille A. Brown Still Holds the Harlem Stage**\
+`It was a sign of her generosity that her program this weekend was almost all work by her associates.`\
+https://nytimes.com/2024/06/16/arts/camille-a-brown-harlem-stage-review.html
+
 **Tom Cotton and Tim Scott denounce some Jan. 6 prosecutions.**\
 `By Maggie Astor`\
 https://nytimes.com/2024/06/16/us/politics/tom-cotton-and-tim-scott-denounce-some-jan-6-prosecutions.html
