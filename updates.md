@@ -1,3 +1,7 @@
+**Choreography nominees have a broader vision for dance on Broadway.**\
+`By Brian Seibert`\
+https://nytimes.com/live/2024/06/16/theater/tony-awards/tony-choreography-nominees-broadway
+
 **Bit of Band Equipment**\
 `Kiran Pandey runs a tight ship.`\
 https://nytimes.com/2024/06/16/crosswords/daily-puzzle-2024-06-17.html
