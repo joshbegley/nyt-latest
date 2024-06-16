@@ -1,3 +1,11 @@
+**Trump, in Pitch to Black Voters in Detroit, Casts Biden as Anti-Black**\
+`Former President Donald J. Trump met with voters at a Black church in the critical battleground state, seeking to make a contrast with President Biden on the economy.`\
+https://nytimes.com/2024/06/15/us/politics/trump-michigan-black-voters.html
+
+**At Least 9 Shot at Splash Park in Michigan, Police Say**\
+`The authorities said the shooting in Rochester Hills, Mich., appeared to be random, and that the gunman had exited a car and opened fire.`\
+https://nytimes.com/2024/06/15/us/rochester-hills-michigan-park-shooting.html
+
 **How a ‘Committed Partisan Warrior’ Came to Rethink the Political Wars**\
 `Bob Bauer, the personal attorney for President Biden and former White House counsel for President Barack Obama, is now wrestling with the win-at-all-costs nature of American politics.`\
 https://nytimes.com/2024/06/15/us/politics/bob-bauer-looking-back.html

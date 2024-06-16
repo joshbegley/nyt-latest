@@ -1,3 +1,11 @@
+**Trump, in Pitch to Black Voters in Detroit, Casts Biden as Anti-Black**\
+`Former President Donald J. Trump met with voters at a Black church in the critical battleground state, seeking to make a contrast with President Biden on the economy.`\
+https://nytimes.com/2024/06/15/us/politics/trump-michigan-black-voters.html
+
+**At Least 9 Shot at Splash Park in Michigan, Police Say**\
+`The authorities said the shooting in Rochester Hills, Mich., appeared to be random, and that the gunman had exited a car and opened fire.`\
+https://nytimes.com/2024/06/15/us/rochester-hills-michigan-park-shooting.html
+
 **How a ‘Committed Partisan Warrior’ Came to Rethink the Political Wars**\
 `Bob Bauer, the personal attorney for President Biden and former White House counsel for President Barack Obama, is now wrestling with the win-at-all-costs nature of American politics.`\
 https://nytimes.com/2024/06/15/us/politics/bob-bauer-looking-back.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/15/arts/lorenza-bottner-overlooked.html
 **‘We Need to Unite’: Protests Against the Far Right Are Held Across France**\
 `A newly formed left-wing coalition called on demonstrators to stop Marine Le Pen’s National Rally party from taking power in upcoming elections.`\
 https://nytimes.com/2024/06/15/world/europe/france-protests-far-right.html
-
-**G.O.P.-Led States, Claiming ‘Invasion,’ Push to Expand Power to Curb Immigration**\
-`Republicans’ latest efforts capitalize on the issue’s prominence in the 2024 election. But the fate of their proposals is still being litigated.`\
-https://nytimes.com/2024/06/15/us/politics/republican-states-immigration-laws.html
-
-**Unruly Passenger Who Was Restrained With Duct Tape Faces Record Fine**\
-`Federal regulators are seeking $81,950 from a Texas woman who acted erratically and was violent toward crew members during an American Airlines flight in 2021.`\
-https://nytimes.com/2024/06/15/business/faa-sues-passenger-american-airlines.html
 
