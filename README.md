@@ -1,3 +1,7 @@
+**John Everett Benson, Who Chiseled John F. Kennedy’s Grave, Dies at 85**\
+`A master of the ancient and exacting art of carving into rock, he was 25 when he began his first major commission, at Arlington National Cemetery.`\
+https://nytimes.com/2024/06/16/us/john-everett-benson-dead.html
+
 **Man Plotted Mass Shooting in Atlanta to Incite ‘Race War,’ Officials Say**\
 `Prosecutors said Mark Adams Prieto of Arizona planned to target Black concertgoers at an Atlanta venue. He was indicted on hate crime and firearm charges.`\
 https://nytimes.com/2024/06/16/us/atlanta-concert-shooting-plot.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/16/world/europe/euro-2024-shooting-hamburg.html
 **Broadway’s Pop Era**\
 `The Tonys are tonight. Many of the shows have a new sound.`\
 https://nytimes.com/2024/06/16/briefing/tony-awards.html
-
-**Growing Wildfire Burns 10,000 Acres and Forces Evacuations Near Los Angeles**\
-`The fire spread rapidly after starting on Saturday afternoon near Interstate 5, and firefighters faced difficult conditions.`\
-https://nytimes.com/2024/06/16/us/los-angeles-wildfire-post-fire.html
 
