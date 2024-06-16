@@ -1,3 +1,11 @@
+**The Tasty New Challenge to Venezuela’s Autocrats: ‘Freedom Empanadas’**\
+`After the Hernández sisters served breakfast to an opposition leader, the government shut down their restaurant. Then came an outpouring of support.`\
+https://nytimes.com/2024/06/16/world/americas/venezuela-election-corozo-pando-empanadas.html
+
+**The Greens Are Dead. Long Live the Greens!**\
+`Europe’s climate change-minded parties performed poorly in the European Union elections. Is the once ambitious European green movement over, or could its electoral crash launch a rebirth?`\
+https://nytimes.com/2024/06/16/world/europe/the-greens-are-dead-long-live-the-greens.html
+
 **Trump, in Pitch to Black Voters in Detroit, Casts Biden as Anti-Black**\
 `Former President Donald J. Trump met with voters at a Black church in the critical battleground state, seeking to make a contrast with President Biden on the economy.`\
 https://nytimes.com/2024/06/15/us/politics/trump-michigan-black-voters.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/15/technology/lynn-conway-dead.html
 **Ben Vautier, Artist Whose Specialty Was Provocation, Dies at 88**\
 `A core member of the anti-art movement Fluxus, he died by suicide hours after the death of his wife of 60 years.`\
 https://nytimes.com/2024/06/15/arts/ben-vautier-dead.html
-
-**Overlooked No More: Lorenza Böttner, Transgender Artist Who Found Beauty in Disability**\
-`Böttner, whose specialty was self-portraiture, celebrated her armless body in paintings she created with her mouth and feet while dancing in public.`\
-https://nytimes.com/2024/06/15/arts/lorenza-bottner-overlooked.html
-
-**‘We Need to Unite’: Protests Against the Far Right Are Held Across France**\
-`A newly formed left-wing coalition called on demonstrators to stop Marine Le Pen’s National Rally party from taking power in upcoming elections.`\
-https://nytimes.com/2024/06/15/world/europe/france-protests-far-right.html
 
