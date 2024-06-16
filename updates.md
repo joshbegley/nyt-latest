@@ -1,3 +1,7 @@
+**On Eid al-Adha, Gazans Mark Another Somber Holiday Amid War**\
+`The Muslim holiday involves slaughtering an animal for food for loved ones and the needy, but many in Gaza are going hungry as Israel’s offensive continues.`\
+https://nytimes.com/2024/06/16/world/middleeast/gaza-eid-al-adha.html
+
 **No Field, No Problem. An Academic Powerhouse Can Also Play Ball.**\
 `The elite Baccalaureate high school, housed in a former pocketbook factory in Queens, is known for its college-level courses. And now its undefeated softball team.`\
 https://nytimes.com/2024/06/16/nyregion/baccalaureate-school-softball-champions-nyc.html
