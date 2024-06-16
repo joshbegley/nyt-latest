@@ -1,3 +1,11 @@
+**How to watch the Tony Awards.**\
+`By Michael Paulson`\
+https://nytimes.com/live/2024/06/16/theater/tony-awards/when-are-the-tony-awards
+
+**Here’s what to see on Broadway this summer.**\
+`By Sarah Bahr`\
+https://nytimes.com/live/2024/06/16/theater/tony-awards/summer-broadway-guide
+
 **Red Carpet Looks From the 77th Annual Tony Awards**\
 `Broadway’s biggest stars made their grand entrance.`\
 https://nytimes.com/2024/06/16/style/tony-awards-photos.html

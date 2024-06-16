@@ -1,3 +1,11 @@
+**How to watch the Tony Awards.**\
+`By Michael Paulson`\
+https://nytimes.com/live/2024/06/16/theater/tony-awards/when-are-the-tony-awards
+
+**Here’s what to see on Broadway this summer.**\
+`By Sarah Bahr`\
+https://nytimes.com/live/2024/06/16/theater/tony-awards/summer-broadway-guide
+
 **Red Carpet Looks From the 77th Annual Tony Awards**\
 `Broadway’s biggest stars made their grand entrance.`\
 https://nytimes.com/2024/06/16/style/tony-awards-photos.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/06/16/us/biden-trump-election/republican-senators-
 **Aid groups welcome the pauses in fighting, but say Israel must do more to ease hunger.**\
 `By Vivian Yee and Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/06/16/world/israel-gaza-war-hamas/aid-groups-welcome-the-pauses-in-fighting-but-say-israel-must-do-more-to-ease-hunger
-
-**14 Jordanians Die in Intense Heat During Hajj Pilgrimage**\
-`The pilgrims died as a result of exposure to extreme sun and heat, Jordan’s official news agency said, as hundreds of thousands poured into Mecca in Saudi Arabia for the Muslim holy trip.`\
-https://nytimes.com/2024/06/16/world/middleeast/heat-deaths-hajj-pilgrimage.html
-
-**Review: Camille A. Brown Still Holds the Harlem Stage**\
-`It was a sign of her generosity that her program this weekend was almost all work by her associates.`\
-https://nytimes.com/2024/06/16/arts/camille-a-brown-harlem-stage-review.html
 
