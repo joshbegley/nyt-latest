@@ -1,3 +1,31 @@
+**No Field, No Problem. An Academic Powerhouse Can Also Play Ball.**\
+`The elite Baccalaureate high school, housed in a former pocketbook factory in Queens, is known for its college-level courses. And now its undefeated softball team.`\
+https://nytimes.com/2024/06/16/nyregion/baccalaureate-school-softball-champions-nyc.html
+
+**‘We Walked to the A Train at 14th Street, Where We Said Goodbye’**\
+`A trip to the Whitney Museum on a windy day, a stuck elevator and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2024/06/16/nyregion/metropolitan-diary.html
+
+**The Resistance to a New Trump Administration Has Already Started**\
+`An emerging coalition that views Donald J. Trump’s agenda as a threat to democracy is laying the groundwork to push back if he wins in November, taking extraordinary pre-emptive actions.`\
+https://nytimes.com/2024/06/16/us/politics/trump-2025-democratic-resistance.html
+
+**Congestion Pricing Delay in New York Ripples Across the Country**\
+`Even as transit systems nationwide struggle, New York City’s transportation network appeared to finally score a major win with the now-paused tolling program.`\
+https://nytimes.com/2024/06/16/nyregion/congestion-pricing-delay-effects.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/06/16/crosswords/spelling-bee-forum.html
+
+**In California, Tribal Members Are Reclaiming the ‘Land of the Flowing Water’**\
+`Several tribes in Owens Valley in the eastern Sierra Nevada see hope in small property transfers that have become part of a growing “Land Back” movement.`\
+https://nytimes.com/2024/06/16/us/california-native-american-tribes.html
+
+**A Senseless Fire and the Stranger Who Put It Out**\
+`An unsettling crime brought out the hero in a passing New Yorker.`\
+https://nytimes.com/2024/06/16/nyregion/a-senseless-fire-and-the-stranger-who-put-it-out.html
+
 **At Biden Fund-Raiser, Hollywood and Democrats Let the Trump Attacks Fly**\
 `The Biden campaign said it raised at least $28 million on Saturday, at a fund-raiser in Los Angeles, where entertainers, Barack Obama and even Jill Biden assailed Donald J. Trump.`\
 https://nytimes.com/2024/06/16/us/politics/biden-fundraiser-los-angeles.html
@@ -9,32 +37,4 @@ https://nytimes.com/2024/06/16/world/americas/venezuela-election-corozo-pando-em
 **The Greens Are Dead. Long Live the Greens!**\
 `Europe’s climate change-minded parties performed poorly in the European Union elections. Is the once ambitious European green movement over, or could its electoral crash launch a rebirth?`\
 https://nytimes.com/2024/06/16/world/europe/the-greens-are-dead-long-live-the-greens.html
-
-**Trump, in Pitch to Black Voters in Detroit, Casts Biden as Anti-Black**\
-`Former President Donald J. Trump met with voters at a Black church in the critical battleground state, seeking to make a contrast with President Biden on the economy.`\
-https://nytimes.com/2024/06/15/us/politics/trump-michigan-black-voters.html
-
-**At Least 8 Shot at Splash Park in Michigan, Police Say**\
-`The authorities said the shooting in Rochester Hills, Mich., appeared to be random, and that the presumed attacker was later found dead in a nearby home.`\
-https://nytimes.com/2024/06/15/us/rochester-hills-michigan-park-shooting.html
-
-**How a ‘Committed Partisan Warrior’ Came to Rethink the Political Wars**\
-`Bob Bauer, the personal attorney for President Biden and former White House counsel for President Barack Obama, is now wrestling with the win-at-all-costs nature of American politics.`\
-https://nytimes.com/2024/06/15/us/politics/bob-bauer-looking-back.html
-
-**Washington Post Publisher and Incoming Editor Are Said to Have Used Stolen Records in Britain**\
-`Years before becoming the Post’s publisher, Will Lewis assigned an article based on stolen phone records, a former reporter said.`\
-https://nytimes.com/2024/06/15/world/europe/will-lewis-records-uk-editor.html
-
-**Connections**\
-`Chandi Deitmer and Wyna Liu combine forces, and games, and produce a charming mash-up.`\
-https://nytimes.com/2024/06/15/crosswords/daily-puzzle-2024-06-16.html
-
-**Anti-government protesters fill the streets in Tel Aviv.**\
-`th`\
-https://nytimes.com/live/2024/06/15/world/israel-gaza-war-hamas/anti-government-protesters-fill-the-streets-in-tel-aviv
-
-**Lynn Conway, Computing Pioneer and Transgender Advocate, Dies at 86**\
-`She made significant contributions at IBM, but she lost her job because of her conviction that she inhabited the wrong body. She later fought for transgender rights.`\
-https://nytimes.com/2024/06/15/technology/lynn-conway-dead.html
 
