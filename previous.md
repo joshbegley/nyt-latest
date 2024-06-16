@@ -1,3 +1,7 @@
+**Italians Respond to Pope’s Slur by Taking Francis to Pride**\
+`At Saturday’s celebration in Rome, Pope Francis’ image was on cardboard cutouts adorned with flower necklaces. People came dressed as the pope, wore papal hats and said that there was never too much “gayness.”`\
+https://nytimes.com/2024/06/16/world/europe/rome-gay-pride-pope-francis.html
+
 **Police Shoot Man With Ax Before Euro 2024 Match in Germany**\
 `The shooting took place in Hamburg, in an area packed with thousands of soccer fans, and hours before the Netherlands and Poland were set to play in Euro 2024.`\
 https://nytimes.com/2024/06/16/world/europe/euro-2024-shooting-hamburg.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/16/world/middleeast/iran-hostage-swap-history.html
 **Inside the Chechen Units Helping to Fight Russia’s War**\
 `After hundreds of years of enmity with Russia, Chechens are deploying to Ukraine to fight Moscow’s war.`\
 https://nytimes.com/2024/06/16/world/europe/chechnya-russia-ukraine-war.html
-
-**Israel announces a daily pause in military operations near a key Gaza border crossing.**\
-`By Vivek Shankar and Isabel Kershner`\
-https://nytimes.com/live/2024/06/16/world/israel-gaza-war-hamas/israel-announces-a-daily-pause-in-military-operations-near-a-key-gaza-border-crossing
 
