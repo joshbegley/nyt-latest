@@ -1,3 +1,7 @@
+**A Brief History of Iran’s Hostage Swapping**\
+`Since the 1979 revolution, Iran has made detaining foreigners and dual nationals a centerpiece of its foreign policy, trading them for money and people.`\
+https://nytimes.com/2024/06/16/world/middleeast/iran-hostage-swap-history.html
+
 **Inside the Chechen Units Helping to Fight Russia’s War**\
 `After hundreds of years of enmity with Russia, Chechens are deploying to Ukraine to fight Moscow’s war.`\
 https://nytimes.com/2024/06/16/world/europe/chechnya-russia-ukraine-war.html
