@@ -1,3 +1,11 @@
+**Aid groups welcome the pauses in fighting, but say Israel must do more to ease hunger.**\
+`By Vivian Yee and Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/06/16/world/israel-gaza-war-hamas/aid-groups-welcome-the-pauses-in-fighting-but-say-israel-must-do-more-to-ease-hunger
+
+**14 Jordanians Die in Intense Heat During Hajj Pilgrimage**\
+`The pilgrims died as a result of exposure to extreme sun and heat, Jordan’s official news agency said, as hundreds of thousands poured into Mecca in Saudi Arabia for the Muslim holy trip.`\
+https://nytimes.com/2024/06/16/world/middleeast/heat-deaths-hajj-pilgrimage.html
+
 **14 Jordanians Die in Intense Heat During Hajj Pilgrimage**\
 `The pilgrims died as a result of exposure to extreme sun and heat, as hundreds of thousands poured into Mecca in Saudi Arabia for the Muslim holy trip.`\
 https://nytimes.com/2024/06/16/world/middleeast/heat-deaths-hajj-pilgrimage.html

@@ -1,5 +1,9 @@
+**Aid groups welcome the pauses in fighting, but say Israel must do more to ease hunger.**\
+`By Vivian Yee and Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/06/16/world/israel-gaza-war-hamas/aid-groups-welcome-the-pauses-in-fighting-but-say-israel-must-do-more-to-ease-hunger
+
 **14 Jordanians Die in Intense Heat During Hajj Pilgrimage**\
-`The pilgrims died as a result of exposure to extreme sun and heat, as hundreds of thousands poured into Mecca in Saudi Arabia for the Muslim holy trip.`\
+`The pilgrims died as a result of exposure to extreme sun and heat, Jordan’s official news agency said, as hundreds of thousands poured into Mecca in Saudi Arabia for the Muslim holy trip.`\
 https://nytimes.com/2024/06/16/world/middleeast/heat-deaths-hajj-pilgrimage.html
 
 **Review: Camille A. Brown Still Holds the Harlem Stage**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/16/dining/buttermilk-fried-chicken-fathers-day.html
 **John Everett Benson, Who Chiseled John F. Kennedy’s Grave, Dies at 85**\
 `A master of the ancient and exacting art of carving into rock, he was 25 when he began his first major commission, at Arlington National Cemetery.`\
 https://nytimes.com/2024/06/16/us/john-everett-benson-dead.html
-
-**Man Plotted Mass Shooting in Atlanta to Incite ‘Race War,’ Officials Say**\
-`Prosecutors said Mark Adams Prieto of Arizona planned to target Black concertgoers at an Atlanta venue. He was indicted on hate crime and firearm charges.`\
-https://nytimes.com/2024/06/16/us/atlanta-concert-shooting-plot.html
 
