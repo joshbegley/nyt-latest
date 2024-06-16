@@ -1,3 +1,7 @@
+**A Met Orchestra of Mixed Quality Returns to Carnegie Hall**\
+`The tenure of Yannick Nézet-Séguin, the Metropolitan Opera’s music director, can be difficult to assess. That much was evident over two concerts.`\
+https://nytimes.com/2024/06/16/arts/music/met-orchestra-nezet-seguin.html
+
 **Paul Pressler, Disgraced Christian Conservative Leader, Dies at 94**\
 `A former judge, he helped steer the Southern Baptist Convention to the right. But at least seven men accused him of sexual abuse.`\
 https://nytimes.com/2024/06/16/obituaries/paul-pressler-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/16/opinion/politics-canvassing-voters.html
 **Deadly Toll in Greece as Heat Waves Sweep the Country**\
 `Several foreigners have gone missing or been found dead after going out for walks in recent days as temperatures in Greece soar.`\
 https://nytimes.com/2024/06/16/world/europe/greece-heat-wave-hikers.html
-
-**Nick Jonas and Adrienne Warren to Star in ‘Last Five Years’ on Broadway**\
-`Whitney White will direct the first Broadway production of Jason Robert Brown’s popular musical, which plans to open next spring.`\
-https://nytimes.com/2024/06/16/theater/nick-jonas-adrienne-warren-broadway.html
 

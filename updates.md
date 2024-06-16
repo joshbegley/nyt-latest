@@ -1,3 +1,7 @@
+**A Met Orchestra of Mixed Quality Returns to Carnegie Hall**\
+`The tenure of Yannick Nézet-Séguin, the Metropolitan Opera’s music director, can be difficult to assess. That much was evident over two concerts.`\
+https://nytimes.com/2024/06/16/arts/music/met-orchestra-nezet-seguin.html
+
 **Paul Pressler, Disgraced Christian Conservative Leader, Dies at 94**\
 `A former judge, he helped steer the Southern Baptist Convention to the right. But at least seven men accused him of sexual abuse.`\
 https://nytimes.com/2024/06/16/obituaries/paul-pressler-dead.html
