@@ -1,3 +1,7 @@
+**Maine Accepting Designs for a New State Flag**\
+`Maine is seeking design ideas before voters in November determine whether to adopt a new, more distinctive flag.`\
+https://nytimes.com/2024/06/16/us/maine-state-flag-design-contest.html
+
 **Republican senators avoid discussion of bump stock ban after Supreme Court decision.**\
 `By Minho Kim`\
 https://nytimes.com/live/2024/06/16/us/biden-trump-election/republican-senators-avoid-discussion-of-bump-stock-ban-after-supreme-court-decision
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/16/world/israel-gaza-war-hamas/netanyahu-says-h
 **Men and Women, Together and Solo**\
 `Readers respond to a column by Nicholas Kristof. Also: An arms competition with China; A.D.H.D. medication; Donald Trump’s divisive rhetoric.`\
 https://nytimes.com/2024/06/16/opinion/men-women-love-marriage.html
-
-**Buttermilk Fried Chicken, a Dad’s Gift to Himself**\
-`My five-star recipe yields a crisp crust and luscious interior.`\
-https://nytimes.com/2024/06/16/dining/buttermilk-fried-chicken-fathers-day.html
 
