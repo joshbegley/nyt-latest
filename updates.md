@@ -1,3 +1,11 @@
+**Go deeper on the five shows vying for best new musical.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/06/16/theater/tony-awards/go-deeper-on-the-five-shows-vying-for-best-new-musical
+
+**Learn more about the five nominees for best new play.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/06/16/theater/tony-awards/learn-more-nominees-best-new-play
+
 **U.S. Navy airlifts crew of merchant ship hit by the Houthis.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2024/06/16/world/israel-gaza-war-hamas/us-navy-airlifts-crew-of-merchant-ship-hit-by-the-houthis
