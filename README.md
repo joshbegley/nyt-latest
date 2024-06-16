@@ -1,3 +1,11 @@
+**Red Carpet Looks From the 77th Annual Tony Awards**\
+`Broadway’s biggest stars made their grand entrance.`\
+https://nytimes.com/2024/06/16/style/tony-awards-photos.html
+
+**Tony Award Winners 2024: Updating List**\
+`The Tony Awards begin on Sunday at 8 p.m. E.T., live from Lincoln Center’s David H. Koch Theater.`\
+https://nytimes.com/2024/06/16/theater/tony-award-winners.html
+
 **Monday Briefing: Israel Plans for a Daily Pause in Some Fighting**\
 `Also, an emerging plan to resist Donald Trump and an Iran-Sweden prisoner swap.`\
 https://nytimes.com/2024/06/16/world/asia/israel-gaza-pause-trump-asia.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/16/world/middleeast/heat-deaths-hajj-pilgrimage.html
 **Review: Camille A. Brown Still Holds the Harlem Stage**\
 `It was a sign of her generosity that her program this weekend was almost all work by her associates.`\
 https://nytimes.com/2024/06/16/arts/camille-a-brown-harlem-stage-review.html
-
-**Tom Cotton and Tim Scott denounce some Jan. 6 prosecutions.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/06/16/us/biden-trump-election/tom-cotton-and-tim-scott-denounce-some-jan-6-prosecutions
-
-**A Met Orchestra of Mixed Quality Returns to Carnegie Hall**\
-`The tenure of Yannick Nézet-Séguin, the Metropolitan Opera’s music director, can be difficult to assess. That much was evident over two concerts.`\
-https://nytimes.com/2024/06/16/arts/music/met-orchestra-nezet-seguin.html
 
