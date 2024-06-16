@@ -1,3 +1,7 @@
+**Growing Wildfire Burns 10,000 Acres and Forces Evacuations Near Los Angeles**\
+`The fire spread rapidly after starting on Saturday afternoon near Interstate 5, and firefighters faced difficult conditions.`\
+https://nytimes.com/2024/06/16/us/los-angeles-wildfire-post-fire.html
+
 **Wordle Review No. 1,094, June 17, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/06/16/crosswords/wordle-review-1094.html
