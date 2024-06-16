@@ -1,3 +1,7 @@
+**What Happens When You Knock on 8,000 Doors**\
+`Listening to the stories of voters on their thresholds, we felt their need to trust.`\
+https://nytimes.com/2024/06/16/opinion/politics-canvassing-voters.html
+
 **Police Shoot Ax-Wielding Man Before Euro 2024 Match in Germany**\
 `The shooting took place in Hamburg, in an area packed with soccer fans, and hours before the Netherlands and Poland were set to play in the city.`\
 https://nytimes.com/2024/06/16/world/europe/euro-2024-shooting-hamburg.html
