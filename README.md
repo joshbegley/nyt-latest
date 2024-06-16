@@ -1,3 +1,7 @@
+**A Brief History of Iran’s Hostage Swapping**\
+`Since the 1979 revolution, Iran has made detaining foreigners and dual nationals a centerpiece of its foreign policy, trading them for money and people.`\
+https://nytimes.com/2024/06/16/world/middleeast/iran-hostage-swap-history.html
+
 **Inside the Chechen Units Helping to Fight Russia’s War**\
 `After hundreds of years of enmity with Russia, Chechens are deploying to Ukraine to fight Moscow’s war.`\
 https://nytimes.com/2024/06/16/world/europe/chechnya-russia-ukraine-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009511061/gaza-rafah-american.h
 **House G.O.P.’s Spending Chief Faces a Primary from the Right**\
 `Representative Tom Cole of Oklahoma is fighting off a right-wing challenger who has tried to make the lawmaker’s influential perch a liability.`\
 https://nytimes.com/2024/06/16/us/politics/house-republican-tom-cole-primary-spending.html
-
-**In a Digital Age, High-End Outdoors Magazines Are Thriving in Print**\
-`Titles like Adventure Journal, Mountain Gazette, Summit Journal and Ori are aimed at “people who just don’t want to be on their phones anymore.”`\
-https://nytimes.com/2024/06/16/business/media/outdoors-print-magazines.html
 
