@@ -1,3 +1,7 @@
+**Netanyahu says he didn’t know about plans to pause fighting, but analysts say he probably approved them.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/06/16/world/israel-gaza-war-hamas/netanyahu-says-he-didnt-know-about-plans-to-pause-fighting-but-analysts-say-he-probably-approved-them
+
 **Men and Women, Together and Solo**\
 `Readers respond to a column by Nicholas Kristof. Also: An arms competition with China; A.D.H.D. medication; Donald Trump’s divisive rhetoric.`\
 https://nytimes.com/2024/06/16/opinion/men-women-love-marriage.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/16/theater/nick-jonas-adrienne-warren-broadway.html
 **What is a ‘Zombie Mortgage’?**\
 `Has your mortgage come back from the dead? It probably wasn’t really gone, it was likely just hiding.`\
 https://nytimes.com/2024/06/16/realestate/zombie-second-mortgage-inflation-rates.html
-
-**Italians Respond to Pope’s Slur by Taking Francis to Pride**\
-`At Saturday’s celebration in Rome, Pope Francis’ image was on cardboard cutouts adorned with flower necklaces. People came dressed as the pope, wore papal hats and said that there was never too much “gayness.”`\
-https://nytimes.com/2024/06/16/world/europe/rome-gay-pride-pope-francis.html
 
