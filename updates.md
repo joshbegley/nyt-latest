@@ -1,3 +1,11 @@
+**Red Carpet Looks From the 77th Annual Tony Awards**\
+`Broadway’s biggest stars made their grand entrance.`\
+https://nytimes.com/2024/06/16/style/tony-awards-photos.html
+
+**Tony Award Winners 2024: Updating List**\
+`The Tony Awards begin on Sunday at 8 p.m. E.T., live from Lincoln Center’s David H. Koch Theater.`\
+https://nytimes.com/2024/06/16/theater/tony-award-winners.html
+
 **Monday Briefing: Israel Plans for a Daily Pause in Some Fighting**\
 `Also, an emerging plan to resist Donald Trump and an Iran-Sweden prisoner swap.`\
 https://nytimes.com/2024/06/16/world/asia/israel-gaza-pause-trump-asia.html
