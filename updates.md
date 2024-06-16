@@ -1,3 +1,7 @@
+**Tom Cotton and Tim Scott denounce some Jan. 6 prosecutions.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/06/16/us/biden-trump-election/tom-cotton-and-tim-scott-denounce-some-jan-6-prosecutions
+
 **Aid groups welcome the pauses in fighting, but say Israel must do more to ease hunger.**\
 `By Vivian Yee and Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/06/16/world/israel-gaza-war-hamas/aid-groups-welcome-the-pauses-in-fighting-but-say-israel-must-do-more-to-ease-hunger
