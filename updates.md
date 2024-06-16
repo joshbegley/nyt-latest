@@ -1,3 +1,7 @@
+**Russian Forces Quash Prison Mutiny Led by Terrorism Suspects, State Media Reports**\
+`The assailants had taken two guards hostage and were killed, the prison service said.`\
+https://nytimes.com/2024/06/16/world/europe/russia-prison-hostages.html
+
 **What Happens When You Knock on 8,000 Doors**\
 `Listening to the stories of voters on their thresholds, we felt their need to trust.`\
 https://nytimes.com/2024/06/16/opinion/politics-canvassing-voters.html
