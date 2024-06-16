@@ -1,3 +1,7 @@
+**On Eid al-Adha, Gazans Mark Another Somber Holiday Amid War**\
+`The Muslim holiday involves slaughtering an animal for food for loved ones and the needy, but many in Gaza are going hungry as Israel’s offensive continues.`\
+https://nytimes.com/2024/06/16/world/middleeast/gaza-eid-al-adha.html
+
 **No Field, No Problem. An Academic Powerhouse Can Also Play Ball.**\
 `The elite Baccalaureate high school, housed in a former pocketbook factory in Queens, is known for its college-level courses. And now its undefeated softball team.`\
 https://nytimes.com/2024/06/16/nyregion/baccalaureate-school-softball-champions-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/16/us/politics/biden-fundraiser-los-angeles.html
 **The Tasty New Challenge to Venezuela’s Autocrats: ‘Freedom Empanadas’**\
 `After the Hernández sisters served breakfast to an opposition leader, the government shut down their restaurant. Then came an outpouring of support.`\
 https://nytimes.com/2024/06/16/world/americas/venezuela-election-corozo-pando-empanadas.html
-
-**The Greens Are Dead. Long Live the Greens!**\
-`Europe’s climate change-minded parties performed poorly in the European Union elections. Is the once ambitious European green movement over, or could its electoral crash launch a rebirth?`\
-https://nytimes.com/2024/06/16/world/europe/the-greens-are-dead-long-live-the-greens.html
 
