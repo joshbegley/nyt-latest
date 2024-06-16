@@ -1,3 +1,7 @@
+**Netanyahu says he didn’t know about plans to pause fighting, but analysts say he probably approved them.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/06/16/world/israel-gaza-war-hamas/netanyahu-says-he-didnt-know-about-plans-to-pause-fighting-but-analysts-say-he-probably-approved-them
+
 **Men and Women, Together and Solo**\
 `Readers respond to a column by Nicholas Kristof. Also: An arms competition with China; A.D.H.D. medication; Donald Trump’s divisive rhetoric.`\
 https://nytimes.com/2024/06/16/opinion/men-women-love-marriage.html
