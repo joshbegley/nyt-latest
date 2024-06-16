@@ -12,7 +12,7 @@ https://nytimes.com/2024/06/16/arts/camille-a-brown-harlem-stage-review.html
 
 **Tom Cotton and Tim Scott denounce some Jan. 6 prosecutions.**\
 `By Maggie Astor`\
-https://nytimes.com/2024/06/16/us/politics/tom-cotton-and-tim-scott-denounce-some-jan-6-prosecutions.html
+https://nytimes.com/live/2024/06/16/us/biden-trump-election/tom-cotton-and-tim-scott-denounce-some-jan-6-prosecutions
 
 **A Met Orchestra of Mixed Quality Returns to Carnegie Hall**\
 `The tenure of Yannick Nézet-Séguin, the Metropolitan Opera’s music director, can be difficult to assess. That much was evident over two concerts.`\
