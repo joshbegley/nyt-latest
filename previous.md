@@ -3,7 +3,7 @@
 https://nytimes.com/2024/06/15/us/politics/trump-michigan-black-voters.html
 
 **At Least 9 Shot at Splash Park in Michigan, Police Say**\
-`The authorities said the shooting in Rochester Hills, Mich., appeared to be random, and that the gunman had exited a car and opened fire.`\
+`The authorities said the shooting in Rochester Hills, Mich., appeared to be random and that the gunman exited a car and opened fire.`\
 https://nytimes.com/2024/06/15/us/rochester-hills-michigan-park-shooting.html
 
 **How a ‘Committed Partisan Warrior’ Came to Rethink the Political Wars**\
