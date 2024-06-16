@@ -1,3 +1,11 @@
+**We surveyed Tonys voters to see who is most likely to win.**\
+`By Michael Paulson`\
+https://nytimes.com/live/2024/06/16/theater/tony-awards/tony-awards-predictions
+
+**What do the Tonys tell us about the state of Broadway? Here are 5 ideas.**\
+`By Michael Paulson`\
+https://nytimes.com/live/2024/06/16/theater/tony-awards/state-of-broadway
+
 **Go deeper on the five shows vying for best new musical.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/06/16/theater/tony-awards/go-deeper-on-the-five-shows-vying-for-best-new-musical
