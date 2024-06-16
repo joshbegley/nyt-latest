@@ -1,3 +1,7 @@
+**Republican senators avoid discussion of bump stock ban after Supreme Court decision.**\
+`By Minho Kim`\
+https://nytimes.com/live/2024/06/16/us/biden-trump-election/republican-senators-avoid-discussion-of-bump-stock-ban-after-supreme-court-decision
+
 **Tom Cotton and Tim Scott denounce some Jan. 6 prosecutions.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/06/16/us/biden-trump-election/tom-cotton-and-tim-scott-denounce-some-jan-6-prosecutions
