@@ -1,3 +1,11 @@
+**Police Shoot Man With Ax Before Euro 2024 Match in Germany**\
+`The shooting took place in Hamburg, in an area packed with thousands of soccer fans, and hours before the Netherlands and Poland were set to play in Euro 2024.`\
+https://nytimes.com/2024/06/16/world/europe/euro-2024-shooting-hamburg.html
+
+**Broadway’s Pop Era**\
+`The Tonys are tonight. Many of the shows have a new sound.`\
+https://nytimes.com/2024/06/16/briefing/tony-awards.html
+
 **Growing Wildfire Burns 10,000 Acres and Forces Evacuations Near Los Angeles**\
 `The fire spread rapidly after starting on Saturday afternoon near Interstate 5, and firefighters faced difficult conditions.`\
 https://nytimes.com/2024/06/16/us/los-angeles-wildfire-post-fire.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/16/world/europe/chechnya-russia-ukraine-war.html
 **Israel announces a daily pause in military operations near a key Gaza border crossing.**\
 `By Vivek Shankar and Isabel Kershner`\
 https://nytimes.com/live/2024/06/16/world/israel-gaza-war-hamas/israel-announces-a-daily-pause-in-military-operations-near-a-key-gaza-border-crossing
-
-**5 Numbers to Know About the Coming Heat Wave**\
-`Stifling conditions are forecast to spread this week over the eastern half of America — and linger for days.`\
-https://nytimes.com/2024/06/16/us/5-numbers-to-know-about-the-coming-heat-wave.html
-
-**June Is the Month When Olympic Dreams Die**\
-`There will be no shortage of drama when the Paris Olympics begin in July, but most hearts will be broken in the cutthroat qualifying trials this month.`\
-https://nytimes.com/2024/06/16/style/paris-olympics-qualifying-caitlin-clark.html
 

@@ -1,3 +1,11 @@
+**Police Shoot Man With Ax Before Euro 2024 Match in Germany**\
+`The shooting took place in Hamburg, in an area packed with thousands of soccer fans, and hours before the Netherlands and Poland were set to play in Euro 2024.`\
+https://nytimes.com/2024/06/16/world/europe/euro-2024-shooting-hamburg.html
+
+**Broadway’s Pop Era**\
+`The Tonys are tonight. Many of the shows have a new sound.`\
+https://nytimes.com/2024/06/16/briefing/tony-awards.html
+
 **Growing Wildfire Burns 10,000 Acres and Forces Evacuations Near Los Angeles**\
 `The fire spread rapidly after starting on Saturday afternoon near Interstate 5, and firefighters faced difficult conditions.`\
 https://nytimes.com/2024/06/16/us/los-angeles-wildfire-post-fire.html
