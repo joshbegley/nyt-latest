@@ -1,3 +1,7 @@
+**As N.B.A. TV Deal Nears, Warner Bros. Discovery Is on the Outside**\
+`The company’s TNT channel and the N.B.A. have long been inextricably linked, but that may end after next season. Plus, Charles Barkley is retiring.`\
+https://nytimes.com/2024/06/16/business/nba-tv-rights-warner-bros-discovery.html
+
 **More Than 80 Nations Back Talks to Ease Path to Peace in Ukraine**\
 `Meeting in Switzerland, world leaders backed a joint statement urging more diplomacy, but were divided on how to engage Russia.`\
 https://nytimes.com/2024/06/16/world/europe/ukraine-russia-peace-talks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/16/arts/music/met-orchestra-nezet-seguin.html
 **Paul Pressler, Disgraced Christian Conservative Leader, Dies at 94**\
 `A former judge, he helped steer the Southern Baptist Convention to the right. But at least seven men accused him of sexual abuse.`\
 https://nytimes.com/2024/06/16/obituaries/paul-pressler-dead.html
-
-**Netanyahu says he didn’t know about plans to pause fighting, but analysts say he probably approved them.**\
-`By Isabel Kershner`\
-https://nytimes.com/live/2024/06/16/world/israel-gaza-war-hamas/netanyahu-says-he-didnt-know-about-plans-to-pause-fighting-but-analysts-say-he-probably-approved-them
 
