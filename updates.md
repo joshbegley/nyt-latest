@@ -1,3 +1,7 @@
+**Deadly Toll in Greece as Heat Waves Sweep the Country**\
+`Several foreigners have gone missing or been found dead after going out for walks in recent days as temperatures in Greece soar.`\
+https://nytimes.com/2024/06/16/world/europe/greece-heat-wave-hikers.html
+
 **Nick Jonas and Adrienne Warren to Star in ‘Last Five Years’ on Broadway**\
 `Whitney White will direct the first Broadway production of Jason Robert Brown’s popular musical, which plans to open next spring.`\
 https://nytimes.com/2024/06/16/theater/nick-jonas-adrienne-warren-broadway.html

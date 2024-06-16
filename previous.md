@@ -1,3 +1,7 @@
+**Deadly Toll in Greece as Heat Waves Sweep the Country**\
+`Several foreigners have gone missing or been found dead after going out for walks in recent days as temperatures in Greece soar.`\
+https://nytimes.com/2024/06/16/world/europe/greece-heat-wave-hikers.html
+
 **Nick Jonas and Adrienne Warren to Star in ‘Last Five Years’ on Broadway**\
 `Whitney White will direct the first Broadway production of Jason Robert Brown’s popular musical, which plans to open next spring.`\
 https://nytimes.com/2024/06/16/theater/nick-jonas-adrienne-warren-broadway.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/16/opinion/alito-ethics-clarence-thomas.html
 **Biden’s Love for His Son Is Beautiful — and It Hits Home for Me**\
 `Many parents see themselves in the president’s affection for his son.`\
 https://nytimes.com/2024/06/16/opinion/joe-biden-hunter.html
-
-**Dad Brain Is Real, and It’s a Good Thing**\
-`New science reveals parenting is transformative for men.`\
-https://nytimes.com/2024/06/16/opinion/dad-brain-fatherhood-parenting.html
 
