@@ -1,3 +1,7 @@
+**Tom Cotton and Tim Scott denounce some Jan. 6 prosecutions.**\
+`By Maggie Astor`\
+https://nytimes.com/2024/06/16/us/politics/tom-cotton-and-tim-scott-denounce-some-jan-6-prosecutions.html
+
 **A Met Orchestra of Mixed Quality Returns to Carnegie Hall**\
 `The tenure of Yannick Nézet-Séguin, the Metropolitan Opera’s music director, can be difficult to assess. That much was evident over two concerts.`\
 https://nytimes.com/2024/06/16/arts/music/met-orchestra-nezet-seguin.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/16/world/europe/russia-prison-hostages.html
 **What Happens When You Knock on 8,000 Doors**\
 `Listening to the stories of voters on their thresholds, we felt their need to trust.`\
 https://nytimes.com/2024/06/16/opinion/politics-canvassing-voters.html
-
-**Deadly Toll in Greece as Heat Waves Sweep the Country**\
-`Several foreigners have gone missing or been found dead after going out for walks in recent days as temperatures in Greece soar.`\
-https://nytimes.com/2024/06/16/world/europe/greece-heat-wave-hikers.html
 
