@@ -1,3 +1,7 @@
+**Man Plotted Mass Shooting in Atlanta to Incite ‘Race War,’ Officials Say**\
+`Prosecutors said Mark Adams Prieto of Arizona planned to target Black concertgoers at an Atlanta venue. He was indicted on hate crime and firearm charges.`\
+https://nytimes.com/2024/06/16/us/atlanta-concert-shooting-plot.html
+
 **Russian Forces Quash Prison Mutiny Led by Terrorism Suspects, State Media Reports**\
 `The assailants had taken two guards hostage and were killed, the prison service said.`\
 https://nytimes.com/2024/06/16/world/europe/russia-prison-hostages.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/16/briefing/tony-awards.html
 **Growing Wildfire Burns 10,000 Acres and Forces Evacuations Near Los Angeles**\
 `The fire spread rapidly after starting on Saturday afternoon near Interstate 5, and firefighters faced difficult conditions.`\
 https://nytimes.com/2024/06/16/us/los-angeles-wildfire-post-fire.html
-
-**Wordle Review No. 1,094, June 17, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/06/16/crosswords/wordle-review-1094.html
 

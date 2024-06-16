@@ -1,3 +1,7 @@
+**Man Plotted Mass Shooting in Atlanta to Incite ‘Race War,’ Officials Say**\
+`Prosecutors said Mark Adams Prieto of Arizona planned to target Black concertgoers at an Atlanta venue. He was indicted on hate crime and firearm charges.`\
+https://nytimes.com/2024/06/16/us/atlanta-concert-shooting-plot.html
+
 **Russian Forces Quash Prison Mutiny Led by Terrorism Suspects, State Media Reports**\
 `The assailants had taken two guards hostage and were killed, the prison service said.`\
 https://nytimes.com/2024/06/16/world/europe/russia-prison-hostages.html
