@@ -1,3 +1,7 @@
+**LeBrun: What Duncan Keith told the Oilers before Game 4 to make them believe in a comeback**\
+`The three-time champion, who retired with the Oilers and now works for the team, helped the Blackhawks nearly come back from 3-0 in 2011.`\
+https://nytimes.com/athletic/5570392/2024/06/17/duncan-keith-oilers-stanley-cup-comeback/
+
 **How to Throw a Greek Summer Party**\
 `According to Maria Lemos, the founder of the Athens boutique Mouki Mou, it’s all about “philoxenia,” a love of one’s guest.`\
 https://nytimes.com/2024/06/17/t-magazine/athens-greek-summer-party-mouki-mou.html
