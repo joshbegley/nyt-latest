@@ -1,3 +1,11 @@
+**‘The Promised Land,’ ‘Biosphere’ and More Streaming Gems**\
+`Speculative science fiction, period drama and sly thrillers are among this month’s off-the-beaten-path recommendations from your subscription streamers.`\
+https://nytimes.com/2024/06/17/movies/the-promised-land-biosphere-streaming-movies.html
+
+**Sweet Corn, Spicy Shishitos, Super Salad**\
+`Lidey Heuck’s jubilant, cumin-y combination of crunchy raw corn kernels and sautéed peppers is hearty and flavorful enough to be a light meal unto itself.`\
+https://nytimes.com/2024/06/17/dining/corn-salad.html
+
 **You’ve Seen the Movie — Now Name the Book That Inspired It**\
 `This quick quiz challenges you to identify a film’s source material based on a photo. Click here to play!`\
 https://nytimes.com/interactive/2024/06/17/books/review/movie-still-quiz.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/17/us/california-legacy-admissions.html
 **A Tale of Two Nearly Extinct Giant Salamanders**\
 `While trying to save large amphibians native to Japan, herpetologists in the country unexpectedly found a way to potentially save an even bigger species in China.`\
 https://nytimes.com/2024/06/17/science/giant-salamanders-japan-china.html
-
-**‘Inside! Inside!’: Sailors Recount Houthi Attack and U.S. Navy Rescue**\
-`The captain of a ship assaulted by the Yemen-based militia last week spoke at a news conference in Manila after the rescue.`\
-https://nytimes.com/2024/06/17/world/middleeast/sailors-us-navy-houthi-attack.html
-
-**Train Crash in India Leaves at Least 8 Dead and Dozens Injured**\
-`The death toll was expected to rise after a passenger train and a freight train collided in the state of West Bengal.`\
-https://nytimes.com/2024/06/17/world/asia/india-train-crash.html
 

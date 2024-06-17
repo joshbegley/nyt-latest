@@ -1,3 +1,11 @@
+**‘The Promised Land,’ ‘Biosphere’ and More Streaming Gems**\
+`Speculative science fiction, period drama and sly thrillers are among this month’s off-the-beaten-path recommendations from your subscription streamers.`\
+https://nytimes.com/2024/06/17/movies/the-promised-land-biosphere-streaming-movies.html
+
+**Sweet Corn, Spicy Shishitos, Super Salad**\
+`Lidey Heuck’s jubilant, cumin-y combination of crunchy raw corn kernels and sautéed peppers is hearty and flavorful enough to be a light meal unto itself.`\
+https://nytimes.com/2024/06/17/dining/corn-salad.html
+
 **Maryland Governor Erases 175,000 Marijuana Convictions**\
 `The state legalized the use of recreational marijuana in 2022. Several other states and the federal government have also wiped out low-level convictions for marijuana possession.`\
 https://nytimes.com/2024/06/17/us/maryland-marijuana-pardon-wes-moore.html
