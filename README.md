@@ -1,3 +1,11 @@
+**Chita Rivera’s Life and Career Are Honored at the Tonys**\
+`Rivera, who dazzled Broadway audiences for nearly seven decades, died in January at the age of 91.`\
+https://nytimes.com/2024/06/16/theater/chita-rivera-tonys-memoriam.html
+
+**‘Appropriate’ won the Tony Award for best revival of a play.**\
+`By Alexis Soloski`\
+https://nytimes.com/live/2024/06/16/theater/tony-awards/appropriate-won-the-tony-award-for-best-revival-of-a-play
+
 **Daniel Radcliffe Conjures Up His First Tony**\
 `“Merrily We Roll Along” is Radcliffe’s fifth show on Broadway, but the first for which he was even nominated for a Tony Award.`\
 https://nytimes.com/2024/06/16/theater/daniel-radcliffe-first-tony-award.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/06/16/theater/tony-awards/baltimore-director-educa
 **George C. Wolfe and Jack O’Brien are receiving lifetime achievement awards.**\
 `By Michael Paulson`\
 https://nytimes.com/live/2024/06/16/theater/tony-awards/obrien-wolfe-lifetime-achievement-tony-awards
-
-**We surveyed Tonys voters to see who is most likely to win.**\
-`By Michael Paulson`\
-https://nytimes.com/live/2024/06/16/theater/tony-awards/tony-awards-predictions
-
-**What do the Tonys tell us about the state of Broadway? Here are 5 ideas.**\
-`By Michael Paulson`\
-https://nytimes.com/live/2024/06/16/theater/tony-awards/state-of-broadway
 
