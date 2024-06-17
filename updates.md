@@ -1,3 +1,11 @@
+**The warning to Hezbollah echoes an earlier one from Netanyahu.**\
+`By Mike Ives and Randy Pennell`\
+https://nytimes.com/live/2024/06/17/world/israel-gaza-war-hamas/the-warning-to-hezbollah-echoes-an-earlier-one-from-netanyahu
+
+**Israeli Military Says Hezbollah’s Strikes Risk ‘Wider Escalation’**\
+`The military also said it planned to continue its offensive in Rafah, even after announcing it would halt daytime military operations along a key aid route into Gaza.`\
+https://nytimes.com/live/2024/06/17/world/israel-gaza-war-hamas
+
 **Here’s What You Discover When You Walk Every Block in New York City**\
 `Also, New York politicians have been promising to ease traffic for a century.`\
 https://nytimes.com/2024/06/17/nyregion/walking-new-york-city.html

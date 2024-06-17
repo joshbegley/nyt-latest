@@ -1,3 +1,11 @@
+**The warning to Hezbollah echoes an earlier one from Netanyahu.**\
+`By Mike Ives and Randy Pennell`\
+https://nytimes.com/live/2024/06/17/world/israel-gaza-war-hamas/the-warning-to-hezbollah-echoes-an-earlier-one-from-netanyahu
+
+**Israeli Military Says Hezbollah’s Strikes Risk ‘Wider Escalation’**\
+`The military also said it planned to continue its offensive in Rafah, even after announcing it would halt daytime military operations along a key aid route into Gaza.`\
+https://nytimes.com/live/2024/06/17/world/israel-gaza-war-hamas
+
 **Here’s What You Discover When You Walk Every Block in New York City**\
 `Also, New York politicians have been promising to ease traffic for a century.`\
 https://nytimes.com/2024/06/17/nyregion/walking-new-york-city.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/17/opinion/united-nations-gaza-ukraine.html
 **Monday Briefing**\
 `Israel plans to pause fighting at a Gaza border crossing.`\
 https://nytimes.com/2024/06/17/briefing/israel-fighting-pause-trump-resistance.html
-
-**As China’s Pressure on Taiwan Rises, Departing U.S. Envoy Urges Steady Hand**\
-`Worries about Chinese belligerence rose during Sandra Oudkirk’s three years in Taipei. As she leaves, she is seeking to assure Taiwan of continued U.S. support.`\
-https://nytimes.com/2024/06/17/world/asia/taiwan-china-diplomacy.html
-
-**Toyota Investors Challenge Scion’s Grip at a ‘Critical Juncture’**\
-`Akio Toyoda ran Toyota for 14 years before handing the reins to a new C.E.O. last year, but some have grown concerned about the control he still wields.`\
-https://nytimes.com/2024/06/17/business/toyota-ceo-succession.html
 
