@@ -1,3 +1,11 @@
+**Michigan and CUNY Mishandled Discrimination Complaints, Education Dept. Finds**\
+`The department concluded that both schools failed to appropriately respond to complaints that campus protests had veered into antisemitism and anti-Arab discrimination.`\
+https://nytimes.com/2024/06/17/us/politics/michigan-cuny-discrimination-complaints.html
+
+**First-Time Tony Winners Talk About Their Victories**\
+`All of the actors who took home Tonys were first-time winners. Here’s what they had to say after their wins.`\
+https://nytimes.com/2024/06/17/theater/first-time-tony-winners.html
+
 **Daniel Radcliffe, Pete Townshend and Sarah Paulson Party for the Tonys**\
 `Spirited celebrations that included an official after-party at Lincoln Center and a gathering at the Carlyle Hotel, where revelers broke out in show tunes, continued until nearly 5 a.m.`\
 https://nytimes.com/2024/06/17/style/tony-awards-after-party.html
