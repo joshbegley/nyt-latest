@@ -1,3 +1,7 @@
+**Word of the Day: interminable**\
+`This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/06/17/learning/word-of-the-day-interminable.html
+
 **What’s on TV This Week: ‘Slave Play’ and ‘Orphan Black: Echoes’**\
 `HBO airs a documentary about the playwright Jeremy O. Harris. A new show starring Krysten Ritter premieres on AMC.`\
 https://nytimes.com/2024/06/17/arts/television/whats-on-tv-this-week-slave-play-and-orphan-black-echoes.html
