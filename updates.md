@@ -1,3 +1,19 @@
+**How to Throw a Greek Summer Party**\
+`According to Maria Lemos, the founder of the Athens boutique Mouki Mou, it’s all about “philoxenia,” a love of one’s guest.`\
+https://nytimes.com/2024/06/17/t-magazine/athens-greek-summer-party-mouki-mou.html
+
+**Oxtail Is Gaining Fans. Not Everyone Is Happy About That.**\
+`The tender-stewed cut is being pushed to the culinary forefront by creative chefs and home cooks, leading to higher prices.`\
+https://nytimes.com/2024/06/17/dining/oxtail.html
+
+**The Briefing: Belgium 0 Slovakia 1 - a first major Euro 2024 upset after disallowed Lukaku goals**\
+`Our writers analyse the main talking points from Belgum's shock defeat by Slovakia`\
+https://nytimes.com/athletic/5564567/2024/06/17/belgium-slovakia-euro-2024-analysis/
+
+**The ‘Bling Bishop’ Is Sentenced to 9 Years for Fleecing His Flock**\
+`Lamor Whitehead, who prosecutors said was a career con man who ran a church, took in millions, which he spent on cars, clothes and jewels.`\
+https://nytimes.com/2024/06/17/nyregion/lamor-whitehead-bling-bishop-sentenced.html
+
 **Top Real Estate Brokerage Shaken by Sexual Assault Claims**\
 `Oren Alexander, a co-founder of Official, a brokerage that caters to the ultrawealthy, and his twin brother, Alon, face allegations that they sexually assaulted women. They have denied wrongdoing through a lawyer.`\
 https://nytimes.com/2024/06/17/realestate/oren-alon-alexander-sexual-assault-allegations.html
