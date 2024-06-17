@@ -1,3 +1,11 @@
+**Michigan and CUNY Mishandled Discrimination Complaints, Education Dept. Finds**\
+`The department concluded that both schools failed to appropriately respond to complaints that campus protests had veered into antisemitism and anti-Arab discrimination.`\
+https://nytimes.com/2024/06/17/us/politics/michigan-cuny-discrimination-complaints.html
+
+**First-Time Tony Winners Talk About Their Victories**\
+`All of the actors who took home Tonys were first-time winners. Here’s what they had to say after their wins.`\
+https://nytimes.com/2024/06/17/theater/first-time-tony-winners.html
+
 **Daniel Radcliffe, Pete Townshend and Sarah Paulson Party for the Tonys**\
 `Spirited celebrations that included an official after-party at Lincoln Center and a gathering at the Carlyle Hotel, where revelers broke out in show tunes, continued until nearly 5 a.m.`\
 https://nytimes.com/2024/06/17/style/tony-awards-after-party.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/17/theater/jay-z-alicia-keys-empire-state-of-mind-to
 **The daily pause applies to part of southern Gaza, but not to some of the places most in need.**\
 `By Patrick Kingsley and Adam Rasgon`\
 https://nytimes.com/live/2024/06/17/world/israel-gaza-war-hamas/israel-gaza-pause-fighting-aid
-
-**Who Is George Norcross?**\
-`One of the most powerful political figures in New Jersey, he was indicted on Monday on charges of racketeering.`\
-https://nytimes.com/2024/06/17/nyregion/who-is-george-norcross.html
-
-**Ronaldo in Portugal squad 'on merit' - Martinez**\
-`Cristiano Ronaldo is in the Portugal squad on merit not reputation, manager Roberto Martinez says, as they start their bid to win Euro 2024 on Tuesday.`\
-https://nytimes.com/athletic/5570511/2024/06/17/cristiano-ronaldo-portugal-euro-2024-martinez/
 
