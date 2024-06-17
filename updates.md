@@ -1,3 +1,7 @@
+**Jeremy Strong wins his first Tony Award for ‘An Enemy of the People.’**\
+`By Sarah Bahr`\
+https://nytimes.com/live/2024/06/16/theater/tony-awards/jeremy-strong-wins-his-first-tony-award-for-an-enemy-of-the-people
+
 **Listen to songs from Tony-nominated shows at home.**\
 `By Jesse Green`\
 https://nytimes.com/live/2024/06/16/theater/tony-awards/listen-to-songs-from-tony-nominated-shows-at-home

@@ -1,3 +1,7 @@
+**Jeremy Strong wins his first Tony Award for ‘An Enemy of the People.’**\
+`By Sarah Bahr`\
+https://nytimes.com/live/2024/06/16/theater/tony-awards/jeremy-strong-wins-his-first-tony-award-for-an-enemy-of-the-people
+
 **Listen to songs from Tony-nominated shows at home.**\
 `By Jesse Green`\
 https://nytimes.com/live/2024/06/16/theater/tony-awards/listen-to-songs-from-tony-nominated-shows-at-home
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/16/theater/tony-awards/state-of-broadway
 **Go deeper on the five shows vying for best new musical.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/06/16/theater/tony-awards/go-deeper-on-the-five-shows-vying-for-best-new-musical
-
-**Learn more about the five nominees for best new play.**\
-`By The New York Times`\
-https://nytimes.com/live/2024/06/16/theater/tony-awards/learn-more-nominees-best-new-play
 
