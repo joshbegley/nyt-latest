@@ -1,3 +1,15 @@
+**Abortion United Evangelicals and Republicans. Now That Alliance Is Fraying.**\
+`The Southern Baptist Convention, long a bellwether for American evangelicalism, voted to oppose the use of in vitro fertilization.`\
+https://nytimes.com/2024/06/17/podcasts/the-daily/ivf-baptist-church.html
+
+**Wordle Review No. 1,095, June 18, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/17/crosswords/wordle-review-1095.html
+
+**A Heat Wave Hits the U.S., and a ‘Pause’ in Gaza Fighting**\
+`Plus, the Tony Awards honor the best of Broadway.`\
+https://nytimes.com/2024/06/17/podcasts/heat-wave-israel-tactical-pause-gaza.html
+
 **Northeast Braces for First Severe Heat of the Year**\
 `An excessive heat watch was in effect for southern New England, where forecasters warned of “dangerous heat” and humidity starting on Tuesday and lasting through Friday.`\
 https://nytimes.com/2024/06/17/weather/heat-wave-plains-northeast.html
