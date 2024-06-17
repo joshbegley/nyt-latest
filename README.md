@@ -1,3 +1,7 @@
+**Mbappe forced off with nose injury for France - and then booked**\
+`France captain Kylian Mbappe was forced off with a facial injury in the latter stages of his side&#8217;s Euro 2024 group stage victory against Austria.`\
+https://nytimes.com/athletic/5571084/2024/06/17/kylian-mbappe-nose-injury-france-how-long/
+
 **The Briefing: Austria 0 France 1: Mbappe's bloodied nose, pitch problems, Deschamps' dilemma**\
 `France were made to work hard for an opening victory over Austria - The Athletic analyses the talking points (and the pitch) in Dusseldorf`\
 https://nytimes.com/athletic/5564570/2024/06/17/austria-0-france-1-mbappe-deschamps-euro-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/17/us/politics/new-title-ix-rules-blocked.html
 **Man Accused in Plot to Assassinate Sikh Separatist Pleads Not Guilty**\
 `Prosecutors say that Nikhil Gupta, at the behest of an Indian government official, tried to engage a hit man to kill an American citizen who is a Sikh separatist.`\
 https://nytimes.com/2024/06/17/nyregion/nikhil-gupta-india-assassination-plot.html
-
-**Yankees' Cole to make season debut Wednesday**\
-`NEW YORK — Reigning American League Cy Young Award winner Gerrit Cole will make his season debut for the New York Yankees on Wednesday night against the Baltimore Orioles, a team source confirmed to The Athletic.`\
-https://nytimes.com/athletic/5570892/2024/06/17/yankees-gerrit-cole-season-debut/
 

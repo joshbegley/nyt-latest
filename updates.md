@@ -1,3 +1,15 @@
+**The Briefing: Austria 0 France 1: Mbappe's bloodied nose, pitch problems, Deschamps' dilemma**\
+`France were made to work hard for an opening victory over Austria - The Athletic analyses the talking points (and the pitch) in Dusseldorf`\
+https://nytimes.com/athletic/5564570/2024/06/17/austria-0-france-1-mbappe-deschamps-euro-2024/
+
+**The A.I. Influencer Ads Are Coming**\
+`Look closely. Is that a real person?`\
+https://nytimes.com/2024/06/17/style/tiktok-ads-ai-influencers.html
+
+**The Washington Post Delves Into a Difficult Story: Itself**\
+`The newspaper has been reeling from successive revelations about Robert Winnett, its incoming editor, and Will Lewis, its chief executive.`\
+https://nytimes.com/2024/06/17/business/media/washington-post-editor-turmoil.html
+
 **Dozens of Groups Push FEMA to Recognize Extreme Heat as a ‘Major Disaster’**\
 `The labor and environmental groups are pushing the change so relief funds can be used in more situations.`\
 https://nytimes.com/2024/06/17/climate/labor-unions-fema-disaster-relief.html
