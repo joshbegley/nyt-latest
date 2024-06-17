@@ -1,3 +1,7 @@
+**More Cities Feel Strain as Migrants Move In Seeking Better Prospects**\
+`After aid runs out elsewhere, some migrants relocate to places like Salt Lake City, where they find help but hurdles, too. “Consider another state,” says a flier distributed by Utah.`\
+https://nytimes.com/2024/06/17/us/migrants-border-aid.html
+
 **Record Number of NATO Allies Hit Military Spending Targets**\
 `President Biden and the NATO secretary general sought to present a robust and united front against Russia as the alliance prepares for its annual meeting next month.`\
 https://nytimes.com/2024/06/17/us/politics/nato-military-spending-targets.html

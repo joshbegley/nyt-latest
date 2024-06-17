@@ -1,3 +1,7 @@
+**More Cities Feel Strain as Migrants Move In Seeking Better Prospects**\
+`After aid runs out elsewhere, some migrants relocate to places like Salt Lake City, where they find help but hurdles, too. “Consider another state,” says a flier distributed by Utah.`\
+https://nytimes.com/2024/06/17/us/migrants-border-aid.html
+
 **Record Number of NATO Allies Hit Military Spending Targets**\
 `President Biden and the NATO secretary general sought to present a robust and united front against Russia as the alliance prepares for its annual meeting next month.`\
 https://nytimes.com/2024/06/17/us/politics/nato-military-spending-targets.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5532645/2024/06/17/blues-2024-nhl-draft-trade/
 **Read the Federal Judge’s Ruling**\
 `A federal judge temporarily blocked Iowa from enforcing a new law that makes it a state crime for someone to enter Iowa after being deported or denied entry into the United States.`\
 https://nytimes.com/interactive/2024/06/17/us/iowa-immigration-ruling.html
-
-**U.S. Treasury Imposes New Sanctions to Cut Off Weapons to Houthis in Yemen**\
-`The Iranian-backed militia has in recent months launched dozens of attacks in the Red Sea, a crucial shipping route.`\
-https://nytimes.com/2024/06/17/world/middleeast/houthis-yemen-weapons-sanctions.html
 
