@@ -1,3 +1,7 @@
+**Top Real Estate Brokerage Rattled by Sexual Assault Claims**\
+`Oren Alexander, a co-founder of Official, a brokerage that caters to the ultrawealthy, and his twin brother, Alon, face allegations that they sexually assaulted women. They have denied wrongdoing through a lawyer.`\
+https://nytimes.com/2024/06/17/realestate/oren-alon-alexander-sexual-assault-allegations.html
+
 **LeBrun: What Duncan Keith told the Oilers before Game 4 to make them believe in a comeback**\
 `The three-time champion, who retired with the Oilers and now works for the team, helped the Blackhawks nearly come back from 3-0 in 2011.`\
 https://nytimes.com/athletic/5570392/2024/06/17/duncan-keith-oilers-stanley-cup-comeback/
