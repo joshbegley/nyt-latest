@@ -1,3 +1,15 @@
+**Gareth Southgate has built his tournament success on narrow, low-shot wins - and it works**\
+`A perfect opener? Far from it. But then again, it never needs to be. Good enough will do`\
+https://nytimes.com/athletic/5569522/2024/06/17/england-southgate-tactics-serbia-euro-2024/
+
+**Wolves set to sign Pedro Lima, beating Chelsea to Brazilian prospect**\
+`Wolverhampton Wanderers have reached an agreement with Sport Recife to sign Pedro Lima.`\
+https://nytimes.com/athletic/5570299/2024/06/17/pedro-lima-wolves-transfer-chelsea/
+
+**Lowetide: How 3 key pending free agents have performed for Oilers in the playoffs**\
+`For the Oilers, it's worth contemplating contracts for all three before July 1 and free agency.`\
+https://nytimes.com/athletic/5568337/2024/06/17/oilers-janmark-henrique-brown/
+
 **Multiple People Killed in India Train Crash**\
 `A freight train collided with a passenger train in the state of West Bengal.`\
 https://nytimes.com/video/world/asia/100000009525549/india-train-crash-west-bengal.html
