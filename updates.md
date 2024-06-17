@@ -1,3 +1,11 @@
+**Former Arsenal exec Sanllehi named Miami's president of football operations**\
+`Inter Miami has named Raul Sanllehi as president of football operations, the club announced Monday.`\
+https://nytimes.com/athletic/5570756/2024/06/17/inter-miami-raul-sanllehi-who-arsenal-barcelona/
+
+**Israel Adesanya to face Du Plessis at UFC 305**\
+`UFC 305 will be held in Perth, Australia, where Adesanya is a fan favorite. Adesanya resides and trains in Auckland, New Zealand.`\
+https://nytimes.com/athletic/5570688/2024/06/17/israel-adesanya-dricus-du-plessis-ufc-305/
+
 **Effective Altruism Is Flawed. But What’s the Alternative?**\
 `The movement can’t answer our deepest moral questions, but it still has wisdom to offer.`\
 https://nytimes.com/2024/06/17/opinion/effective-altruism-philanthropy-charity.html

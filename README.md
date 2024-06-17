@@ -1,3 +1,7 @@
+**Florida Used to Be a Swing State. Now Democrats Can Only Cling to Glimmers of Hope.**\
+`Democrats in the state are veering from cautious optimism to complete pessimism about their chances in 2024, with two liberal-leaning ballot measures having the potential to boost turnout.`\
+https://nytimes.com/2024/06/17/us/politics/florida-trump-biden-democrats.html
+
 **Former Arsenal exec Sanllehi named Miami's president of football operations**\
 `Inter Miami has named Raul Sanllehi as president of football operations, the club announced Monday.`\
 https://nytimes.com/athletic/5570756/2024/06/17/inter-miami-raul-sanllehi-who-arsenal-barcelona/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/17/world/europe/hungary-magyar-orban.html
 **U.S. Sues Adobe Over Hard-to-Cancel Subscriptions**\
 `The maker of Photoshop and other popular design software hid details of expensive cancellation fees, according to a Justice Department lawsuit.`\
 https://nytimes.com/2024/06/17/technology/us-adobe-subscription-lawsuit.html
-
-**Why DeChambeau didn't make U.S. Olympic golf team**\
-`Despite DeChambeau's U.S. Open win, the golfer did not obtain enough points in the Official World Golf Rankings to qualify for the Games.`\
-https://nytimes.com/athletic/5570609/2024/06/17/us-olympic-golf-team-paris-2024/
 
