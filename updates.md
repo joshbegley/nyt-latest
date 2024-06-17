@@ -1,5 +1,9 @@
 **Maleah Joi Moon wins the Tony Award for best leading actress in a musical.**\
 `By The New York Times`\
+https://nytimes.com/live/2024/06/16/theater/tony-awards/maleah-joi-moon-best-leading-actress-tony
+
+**Maleah Joi Moon wins the Tony Award for best leading actress in a musical.**\
+`By The New York Times`\
 https://nytimes.com/live/2024/06/16/theater/tony-awards/maleah-joi-moon-wins-the-tony-award-for-best-leading-actress-in-a-musical
 
 **‘The Outsiders,’ a Broadway Adaptation of the Classic Novel, Wins the Tony for Best Musical**\
