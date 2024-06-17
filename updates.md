@@ -1,3 +1,7 @@
+**The Connections Companion No. 372, June 17, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/17/crosswords/connections-companion-372.html
+
 **What Weapons Has North Korea Already Supplied to Russia?**\
 `Moscow needs conventional arms like artillery shells and missiles that North Korea could provide to give it an edge in its war of attrition in Ukraine.`\
 https://nytimes.com/2024/06/17/us/politics/russia-north-korea-weapons-ukraine.html
