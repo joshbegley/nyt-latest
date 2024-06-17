@@ -2,7 +2,7 @@
 `Heat overwhelmed cities across the Midwest and was headed to the Northeast. High temperatures are expected to linger for days.`\
 https://nytimes.com/2024/06/17/us/17nat-midwest-heat-wave.html
 
-**Yankees’ Anthony Rizzo could miss 4-6 weeks with arm fracture; won’t need surgery: Source**\
+**Yankees’ Rizzo could miss 4-6 weeks with arm fracture**\
 `First baseman Anthony Rizzo has a fracture to the radial neck of his right forearm`\
 https://nytimes.com/athletic/5571406/2024/06/17/yankees-anthony-rizzo-injury/
 
