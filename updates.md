@@ -1,3 +1,7 @@
+**Northeast Braces for First Severe Heat of the Year**\
+`An excessive heat watch was in effect for southern New England, where forecasters warned of “dangerous heat” and humidity starting on Tuesday and lasting through Friday.`\
+https://nytimes.com/2024/06/17/weather/heat-wave-plains-northeast.html
+
 **‘A Hellscape’: Dire Conditions in Gaza Leave a Multitude of Amputees**\
 `Access to medical care and even clean water is limited, and the risk of infection is high, making it difficult for patients to get follow-up surgeries, prosthetics and rehabilitation.`\
 https://nytimes.com/2024/06/17/world/europe/gaza-amputation-hospitals.html
