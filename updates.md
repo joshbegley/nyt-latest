@@ -1,3 +1,7 @@
+**‘Stereophonic’ won the Tony Award for best new play.**\
+`By Alexis Soloski`\
+https://nytimes.com/live/2024/06/16/theater/tony-awards/stereophonic-won-the-tony-award-for-best-new-play
+
 **‘House of the Dragon’ Season 2 Premiere: Killing in the Name Of**\
 `The second season of HBO’s “Game of Thrones” prequel opens with an illicit affair and a misguided act of revenge.`\
 https://nytimes.com/2024/06/16/arts/television/house-of-the-dragon-season-2-premiere-recap.html

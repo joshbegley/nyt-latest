@@ -1,3 +1,7 @@
+**‘Stereophonic’ won the Tony Award for best new play.**\
+`By Alexis Soloski`\
+https://nytimes.com/live/2024/06/16/theater/tony-awards/stereophonic-won-the-tony-award-for-best-new-play
+
 **‘House of the Dragon’ Season 2 Premiere: Killing in the Name Of**\
 `The second season of HBO’s “Game of Thrones” prequel opens with an illicit affair and a misguided act of revenge.`\
 https://nytimes.com/2024/06/16/arts/television/house-of-the-dragon-season-2-premiere-recap.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/16/theater/tony-awards/tony-nominees-portraits
 **After Splash Park Shooting, Michigan Community Feels a Familiar Pain**\
 `The violence in the city of Rochester Hills, which injured nine people including children, comes three years after the shooting at Oxford High School in the same county.`\
 https://nytimes.com/2024/06/16/us/rochester-hills-michigan-shooting.html
-
-**A Baltimore director receives the excellence in theater education award.**\
-`By Julia Jacobs`\
-https://nytimes.com/live/2024/06/16/theater/tony-awards/baltimore-director-education-tony
 
