@@ -1,3 +1,7 @@
+**George R. Nethercutt Jr., Who Ousted a House Speaker, Dies at 79**\
+`He defeated Thomas S. Foley of Washington State in the 1994 Republican midterm sweep. It was the first time since the Civil War-era that voters had rejected a House speaker.`\
+https://nytimes.com/2024/06/17/obituaries/george-r-nethercutt-jr-dead.html
+
 **A Swirling Rainstorm off Mexico Could Become Tropical Storm Alberto**\
 `Heavy rains were forecast for parts of Texas and Mexico.`\
 https://nytimes.com/2024/06/17/weather/alberto-tropical-storm.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5571219/2024/06/17/texas-recruiting-dia-bell-quarte
 **The Tony Award I Wish I Could Give**\
 `The director of “Merrily We Roll Along” brilliantly fixed a fatally flawed show.`\
 https://nytimes.com/live/2024/06/12/opinion/thepoint/tony-awards-merrily-director
-
-**Tell Us: How Are You Feeling About the Presidential Debate?**\
-`Share your thoughts with the On Politics newsletter.`\
-https://nytimes.com/2024/06/17/us/politics/presidential-debate-reader-callout.html
 
