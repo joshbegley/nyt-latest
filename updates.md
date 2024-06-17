@@ -1,3 +1,11 @@
+**U.S. Sues Adobe Over Hard-to-Cancel Subscriptions**\
+`The maker of Photoshop and other popular design software hid details of expensive cancellation fees, according to a Justice Department lawsuit.`\
+https://nytimes.com/2024/06/17/technology/us-adobe-subscription-lawsuit.html
+
+**Why DeChambeau didn't make U.S. Olympic golf team**\
+`Despite DeChambeau's U.S. Open win, the golfer did not obtain enough points in the Official World Golf Rankings to qualify for the Games.`\
+https://nytimes.com/athletic/5570609/2024/06/17/us-olympic-golf-team-paris-2024/
+
 **Top Real Estate Brokerage Rattled by Sexual Assault Claims**\
 `Oren Alexander, a co-founder of Official, a brokerage that caters to the ultrawealthy, and his twin brother, Alon, face allegations that they sexually assaulted women. They have denied wrongdoing through a lawyer.`\
 https://nytimes.com/2024/06/17/realestate/oren-alon-alexander-sexual-assault-allegations.html
