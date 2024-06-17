@@ -1,3 +1,7 @@
+**McIlroy says he'll take 3-week hiatus from golf**\
+`Rory McIlroy three-week hiatus from competitive golf, to return for Genesis Scott Open.`\
+https://nytimes.com/athletic/5571260/2024/06/17/rory-mcilroy-withdraw-travelers-championship/
+
 **George R. Nethercutt Jr., Who Ousted a House Speaker, Dies at 79**\
 `He defeated Thomas S. Foley of Washington State in the 1994 Republican midterm sweep. It was the first time since the Civil War-era that voters had rejected a House speaker.`\
 https://nytimes.com/2024/06/17/obituaries/george-r-nethercutt-jr-dead.html
