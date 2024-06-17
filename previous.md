@@ -1,3 +1,11 @@
+**Netanyahu disbands his war cabinet after two of its five members quit.**\
+`The widely expected move came after two moderates quit the influential group last week.`\
+https://nytimes.com/live/2024/06/17/world/israel-gaza-war-hamas/netanyahu-war-cabinet-israel
+
+**Russia Sets Date for Start of Evan Gershkovich Trial**\
+`The announcement of a hearing next week is the most significant movement in the Wall Street Journal reporter’s case since his arrest in March 2023 on espionage charges.`\
+https://nytimes.com/2024/06/17/world/europe/russia-evan-gershkovich-trial-date.html
+
 **Abortion United Evangelicals and Republicans. Now That Alliance Is Fraying.**\
 `The Southern Baptist Convention, long a bellwether for American evangelicalism, voted to oppose the use of in vitro fertilization.`\
 https://nytimes.com/2024/06/17/podcasts/the-daily/ivf-baptist-church.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/17/us/politics/democrats-state-legislatures-dlcc.htm
 **Why the Election Is Slipping Away From President Biden Right Now**\
 `Everything is coming down to a debate, and to the voters of Pennsylvania.`\
 https://nytimes.com/live/2024/06/12/opinion/thepoint/tipsheet-biden-trump-polls
-
-**‘House of the Dragon’ Season 2 Premiere: What Was That Ending About?**\
-`Fans of the George R.R. Martin books know there are two words for that tense and slightly ambiguous ending to the Season 2 premiere: “Blood and Cheese.”`\
-https://nytimes.com/2024/06/17/arts/television/house-of-dragon-premiere-ending.html
-
-**I’m Moving to a New City. Do I Have to Change the Way I Dress?**\
-`A reader who is moving cross-country wonders how to adapt his wardrobe without compromising his sense of style.`\
-https://nytimes.com/2024/06/17/style/moving-style-new-city.html
 
