@@ -1,3 +1,7 @@
+**As China’s Pressure on Taiwan Rises, Departing U.S. Envoy Urges Steady Hand**\
+`Worries about Chinese belligerence rose during Sandra Oudkirk’s three years in Taipei. As she leaves, she is seeking to assure Taiwan of continued U.S. support.`\
+https://nytimes.com/2024/06/17/world/asia/taiwan-china-diplomacy.html
+
 **Toyota Investors Challenge Scion’s Grip at a ‘Critical Juncture’**\
 `Akio Toyoda ran Toyota for 14 years before handing the reins to a new C.E.O. last year, but some have grown concerned about the control he still wields.`\
 https://nytimes.com/2024/06/17/business/toyota-ceo-succession.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/16/theater/best-musical-merrily-we-roll-along.html
 **‘Stereophonic’ Wins the Tony Award for Best New Play**\
 `It was the fifth award of the night for the production, a meditation on the joy and torture of creative collaboration.`\
 https://nytimes.com/2024/06/16/theater/stereophonic-best-play-tony-award.html
-
-**‘House of the Dragon’ Season 2 Premiere: Killing in the Name Of**\
-`The second season of HBO’s “Game of Thrones” prequel opens with an illicit affair and a misguided act of revenge.`\
-https://nytimes.com/2024/06/16/arts/television/house-of-the-dragon-season-2-premiere-recap.html
 
