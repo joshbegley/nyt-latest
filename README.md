@@ -1,3 +1,11 @@
+**Biden Administration’s New Title IX Rules Are Blocked in Six More States**\
+`Conservative groups and Republican attorneys general have argued that the protections for transgender students come at the expense of others’ privacy and conflicts with a number of state laws.`\
+https://nytimes.com/2024/06/17/us/politics/new-title-ix-rules-blocked.html
+
+**Man Accused in Plot to Assassinate Sikh Separatist Pleads Not Guilty**\
+`Prosecutors say that Nikhil Gupta, at the best of an Indian government official, tried to engage a hit man to kill an American citizen who is a Sikh separatist.`\
+https://nytimes.com/2024/06/17/nyregion/nikhil-gupta-india-assassination-plot.html
+
 **Yankees' Cole to make season debut Wednesday**\
 `NEW YORK — Reigning American League Cy Young Award winner Gerrit Cole will make his season debut for the New York Yankees on Wednesday night against the Baltimore Orioles, a team source confirmed to The Athletic.`\
 https://nytimes.com/athletic/5570892/2024/06/17/yankees-gerrit-cole-season-debut/
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/5570756/2024/06/17/inter-miami-raul-sanllehi-who-ar
 **Israel Adesanya to face Du Plessis at UFC 305**\
 `UFC 305 will be held in Perth, Australia, where Adesanya is a fan favorite. Adesanya resides and trains in Auckland, New Zealand.`\
 https://nytimes.com/athletic/5570688/2024/06/17/israel-adesanya-dricus-du-plessis-ufc-305/
-
-**Effective Altruism Is Flawed. But What’s the Alternative?**\
-`The movement can’t answer our deepest moral questions, but it still has wisdom to offer.`\
-https://nytimes.com/2024/06/17/opinion/effective-altruism-philanthropy-charity.html
-
-**A Battlefield Break to Cheer Ukraine’s Soccer Team in Euro 2024**\
-`Soldiers huddled in a bunker with soft drinks and chips to watch Ukraine face Romania, only to suffer heartbreak.`\
-https://nytimes.com/2024/06/17/world/europe/ukraine-romania-soccer-euro-2024.html
 
