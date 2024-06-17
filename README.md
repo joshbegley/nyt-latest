@@ -1,6 +1,6 @@
-**Maleah Joi Moon wins the Tony Award for best leading actress in a musical.**\
-`By The New York Times`\
-https://nytimes.com/live/2024/06/16/theater/tony-awards/maleah-joi-moon-best-leading-actress-tony
+**Maleah Joi Moon Wins a Tony for Her First Professional Role**\
+`Moon, 21, made her Broadway debut in the Alicia Keys musical “Hell’s Kitchen.”`\
+https://nytimes.com/2024/06/16/theater/maleah-joi-moon-best-leading-actress-tony.html
 
 **‘The Outsiders,’ a Broadway Adaptation of the Classic Novel, Wins the Tony for Best Musical**\
 `The gritty, bloody and relentlessly youthful musical features some of the most effectively vivid violence seen on a Broadway stage.`\
