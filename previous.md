@@ -1,3 +1,7 @@
+**Germany's pink kit becomes fastest-selling in team's history**\
+`Germany&#8217;s new pink kit has become the fastest-selling away shirt in the national team’s history.`\
+https://nytimes.com/athletic/5570245/2024/06/17/germany-pink-away-kit-adidas/
+
 **Multiple People Killed in India Train Crash**\
 `A freight train collided with a passenger train in the state of West Bengal.`\
 https://nytimes.com/video/world/asia/100000009525549/india-train-crash-west-bengal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5568337/2024/06/17/oilers-janmark-henrique-brown/
 **The Paths to Progress for Our Graduates**\
 `Responses to an essay about “no promise” graduates. Also: Justice Alito and “godliness”; Sudan’s tragedy; whistle-blower protections; dreading election night.`\
 https://nytimes.com/2024/06/17/opinion/college-graduates.html
-
-**The Connections Companion No. 372, June 17, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/06/17/crosswords/connections-companion-372.html
 

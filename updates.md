@@ -1,3 +1,7 @@
+**Germany's pink kit becomes fastest-selling in team's history**\
+`Germany&#8217;s new pink kit has become the fastest-selling away shirt in the national team’s history.`\
+https://nytimes.com/athletic/5570245/2024/06/17/germany-pink-away-kit-adidas/
+
 **Gareth Southgate has built his tournament success on narrow, low-shot wins - and it works**\
 `A perfect opener? Far from it. But then again, it never needs to be. Good enough will do`\
 https://nytimes.com/athletic/5569522/2024/06/17/england-southgate-tactics-serbia-euro-2024/
