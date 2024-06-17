@@ -1,40 +1,40 @@
-**How A.I. Is Revolutionizing Drug Development**\
-`In high-tech labs, workers are generating data to train A.I. algorithms to design better medicine, faster. But the transformation is just getting underway.`\
-https://nytimes.com/2024/06/17/business/ai-drugs-development-terray.html
+**Biden Campaign Ad Paints Trump as a Felon**\
+`Democrats have been urging the president to more forcefully attack Donald Trump after his felony conviction by a New York jury.`\
+https://nytimes.com/2024/06/17/us/politics/trump-felon-biden-ad.html
 
-**3 High-Octane Summer Thrillers**\
-`Our columnist on three twisty new tales of murder.`\
-https://nytimes.com/2024/06/17/books/review/new-psychological-thrillers.html
+**Democrats Announce a $10 Million Push for State Legislatures**\
+`An unusually early and large Democratic Legislative Campaign Committee investment is aimed at getting voters to pay more attention to state legislative races.`\
+https://nytimes.com/2024/06/17/us/politics/democrats-state-legislatures-dlcc.html
 
-**Recycling Is Broken. Should I Even Bother?**\
-`Every little bit helps. But doing it wrong can actually make matters worse.`\
-https://nytimes.com/2024/06/17/climate/ask-nyt-climate-recycling.html
+**Why the Election Is Slipping Away From President Biden Right Now**\
+`Everything is coming down to a debate, and to the voters of Pennsylvania.`\
+https://nytimes.com/live/2024/06/12/opinion/thepoint/tipsheet-biden-trump-polls
 
-**Black Farmers in Georgia Cool to Biden, Reflecting a Bigger Challenge**\
-`White farmers filed lawsuits to block a debt forgiveness initiative, but the Biden administration is still bearing the blame.`\
-https://nytimes.com/2024/06/17/us/politics/black-farmers-biden.html
+**‘House of the Dragon’ Season 2 Premiere: What Was That Ending About?**\
+`Fans of the George R.R. Martin books know there are two words for that tense and slightly ambiguous ending to the Season 2 premiere: “Blood and Cheese.”`\
+https://nytimes.com/2024/06/17/arts/television/house-of-dragon-premiere-ending.html
 
-**The Queen Bee of Bidenomics**\
-`Jennifer Harris is the intellectual force driving the administration’s approach to trade and economic policies.`\
-https://nytimes.com/2024/06/17/opinion/jennifer-harris-bidenomics.html
+**I’m Moving to a New City. Do I Have to Change the Way I Dress?**\
+`A reader who is moving cross-country wonders how to adapt his wardrobe without compromising his sense of style.`\
+https://nytimes.com/2024/06/17/style/moving-style-new-city.html
 
-**How Long Does Rice Last in the Fridge? And Other Pressing Rice Questions, Answered**\
-`Don’t get sick this season.`\
-https://nytimes.com/article/rice.html
+**Bird Flu Is Infecting Cats (and the Occasional Dog). Here’s What to Know.**\
+`A few “reasonable precautions” can help people keep their pets safe from the H5N1 virus, experts say.`\
+https://nytimes.com/2024/06/17/health/bird-flu-cats-dogs-h5n1.html
 
-**Looking for Friends? How About 23 Housemates?**\
-`An engineer who moved from London to New York was planning to live alone, but ended up doing just the opposite — and loving it.`\
-https://nytimes.com/2024/06/17/realestate/renters-crown-heights-brooklyn.html
+**$1.4 Million Homes in California**\
+`A 1949 cottage in Lake Arrowhead, a Spanish-style home in Los Angeles and a Craftsman house in Berkeley.`\
+https://nytimes.com/2024/06/17/realestate/million-dollar-homes-california.html
 
-**8 Productivity Books Time-Management Experts Actually Use**\
-`These titles can help you achieve more with less stress.`\
-https://nytimes.com/2024/06/17/well/live/productivity-time-management-skills-books.html
+**After 40 Years of Dance, What Happens to a Dream Fulfilled?**\
+`Jawole Willa Jo Zollar, who founded Urban Bush Women four decades ago, says goodbye to it with a final work.`\
+https://nytimes.com/2024/06/17/arts/zollar-urban-bush-women-scat.html
 
-**Does Stress Cause Ulcers?**\
-`Here’s what the evidence suggests about this long-running claim.`\
-https://nytimes.com/2024/06/17/well/mind/stress-ulcers-anxiety.html
+**His Family Survived the Nazis by Living in a Chicken Coop**\
+`A new museum exhibit on the Holocaust focuses on eight narratives, including the account of a man whose family escaped death by hiding on a family farm.`\
+https://nytimes.com/2024/06/17/arts/his-family-survived-the-nazis-by-living-in-a-chicken-coop.html
 
-**A Proud Texan Reckons With Her State’s Complicated Past**\
-`In her new book, Jessica Goudeau confronts a history of racism and violence in Texas through an investigation of her ancestors’ stories.`\
-https://nytimes.com/2024/06/17/books/review/we-were-illegal-jessica-goudeau.html
+**From Ferrari to the Frozen Food Aisle**\
+`Charles Leclerc, one of the rising stars of the Formula 1, now has an ice cream on the market.`\
+https://nytimes.com/2024/06/17/style/ferrari-formula-one-charles-leclerc-ice-cream.html
 
