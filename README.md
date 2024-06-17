@@ -1,3 +1,7 @@
+**17 Unforgettable Looks at the Tony Awards**\
+`The event gave Broadway stars a chance to step out of their costumes and into outfits that showcased personal style.`\
+https://nytimes.com/2024/06/17/style/tony-awards-fashion-red-carpet.html
+
 **Emerging From Orban’s Shadow, a Former Ally Tries to Steal His Limelight**\
 `Peter Magyar, a conservative who was once a well-connected figure in the Fidesz party of Prime Minister Viktor Orban, has become an unexpected leader of the country’s opposition.`\
 https://nytimes.com/2024/06/17/world/europe/hungary-magyar-orban.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/17/nyregion/lamor-whitehead-bling-bishop-sentenced.h
 **Maryland Governor Issues Sweeping Pardons for Marijuana Convictions**\
 `Gov. Wes Moore of Maryland pardoned more than 175,000 convictions on low-level marijuana charges, two years after the state legalized the use of recreational marijuana.`\
 https://nytimes.com/video/us/politics/100000009525753/maryland-marijuana-convictions-pardon.html
-
-**Top Real Estate Brokerage Rattled by Sexual Assault Claims**\
-`Oren Alexander, a co-founder of Official, a brokerage that caters to the ultrawealthy, and his twin brother, Alon, face allegations that they sexually assaulted women. They have denied wrongdoing through a lawyer.`\
-https://nytimes.com/2024/06/17/realestate/oren-alon-alexander-sexual-assault-allegations.html
 

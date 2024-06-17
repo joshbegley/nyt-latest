@@ -1,3 +1,7 @@
+**Emerging From Orban’s Shadow, a Former Ally Tries to Steal His Limelight**\
+`Peter Magyar, a conservative who was once a well-connected figure in the Fidesz party of Prime Minister Viktor Orban, has become an unexpected leader of the country’s opposition.`\
+https://nytimes.com/2024/06/17/world/europe/hungary-magyar-orban.html
+
 **U.S. Sues Adobe Over Hard-to-Cancel Subscriptions**\
 `The maker of Photoshop and other popular design software hid details of expensive cancellation fees, according to a Justice Department lawsuit.`\
 https://nytimes.com/2024/06/17/technology/us-adobe-subscription-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009525753/maryland-marijuana-convict
 **Top Real Estate Brokerage Rattled by Sexual Assault Claims**\
 `Oren Alexander, a co-founder of Official, a brokerage that caters to the ultrawealthy, and his twin brother, Alon, face allegations that they sexually assaulted women. They have denied wrongdoing through a lawyer.`\
 https://nytimes.com/2024/06/17/realestate/oren-alon-alexander-sexual-assault-allegations.html
-
-**AFC North to be featured on Hard Knocks**\
-`The series will focus on the final six weeks of the regular season and the playoff runs for AFC North teams. `\
-https://nytimes.com/athletic/5570589/2024/06/17/nfl-afc-north-hbo-hard-knocks/
 

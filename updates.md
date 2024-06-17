@@ -1,3 +1,7 @@
+**Emerging From Orban’s Shadow, a Former Ally Tries to Steal His Limelight**\
+`Peter Magyar, a conservative who was once a well-connected figure in the Fidesz party of Prime Minister Viktor Orban, has become an unexpected leader of the country’s opposition.`\
+https://nytimes.com/2024/06/17/world/europe/hungary-magyar-orban.html
+
 **U.S. Sues Adobe Over Hard-to-Cancel Subscriptions**\
 `The maker of Photoshop and other popular design software hid details of expensive cancellation fees, according to a Justice Department lawsuit.`\
 https://nytimes.com/2024/06/17/technology/us-adobe-subscription-lawsuit.html
