@@ -1,3 +1,7 @@
+**Read the Federal Judge’s Ruling**\
+`A federal judge temporarily blocked Iowa from enforcing a new law that makes it a state crime for someone to enter Iowa after being deported or denied entry into the United States.`\
+https://nytimes.com/interactive/2024/06/17/us/iowa-immigration-ruling.html
+
 **U.S. Treasury Imposes New Sanctions to Cut Off Weapons to Houthis in Yemen**\
 `The Iranian-backed militia has in recent months launched dozens of attacks in the Red Sea, a crucial shipping route.`\
 https://nytimes.com/2024/06/17/world/middleeast/houthis-yemen-weapons-sanctions.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/17/us/sean-mckinnon-whitey-bulger-sentencing.html
 **Tony Awards’ Viewership Slips Lower**\
 `Sunday’s show had the second-lowest viewership for a Tonys telecast since records have been kept.`\
 https://nytimes.com/2024/06/17/business/media/tony-awards-ratings.html
-
-**The Trump Rallying Cry That’s Also a Math Problem**\
-`His supporters can’t quite agree on whether to call him the 45th president or the 47th president.`\
-https://nytimes.com/2024/06/17/us/politics/trump-maga-45.html
 

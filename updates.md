@@ -1,3 +1,7 @@
+**U.S. Treasury Imposes New Sanctions to Cut Off Weapons to Houthis in Yemen**\
+`The Iranian-backed militia has in recent months launched dozens of attacks in the Red Sea, a crucial shipping route.`\
+https://nytimes.com/2024/06/17/world/middleeast/houthis-yemen-weapons-sanctions.html
+
 **Milos Raonic: 110 first serves, 47 aces, and one new ATP Tour record**\
 `How the Canadian broke an aces record — but still needed the full three sets to win`\
 https://nytimes.com/athletic/5571273/2024/06/17/milos-raonic-aces-record-atp-three-set-match/
