@@ -1,3 +1,11 @@
+**Nottingham Forest working on deal for Red Star Belgrade's Stamenic**\
+`Nottingham Forest are working on a deal with Red Star Belgrade to sign the New Zealand international midfielder Marko Stamenic.`\
+https://nytimes.com/athletic/5570759/2024/06/17/marko-stamenic-nottingham-forest-transfer/
+
+**17 Unforgettable Looks at the Tony Awards**\
+`The event gave Broadway stars a chance to step out of their costumes and into outfits that showcased personal style.`\
+https://nytimes.com/2024/06/17/style/tony-awards-fashion-red-carpet.html
+
 **Emerging From Orban’s Shadow, a Former Ally Tries to Steal His Limelight**\
 `Peter Magyar, a conservative who was once a well-connected figure in the Fidesz party of Prime Minister Viktor Orban, has become an unexpected leader of the country’s opposition.`\
 https://nytimes.com/2024/06/17/world/europe/hungary-magyar-orban.html

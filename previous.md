@@ -1,3 +1,11 @@
+**Nottingham Forest working on deal for Red Star Belgrade's Stamenic**\
+`Nottingham Forest are working on a deal with Red Star Belgrade to sign the New Zealand international midfielder Marko Stamenic.`\
+https://nytimes.com/athletic/5570759/2024/06/17/marko-stamenic-nottingham-forest-transfer/
+
+**17 Unforgettable Looks at the Tony Awards**\
+`The event gave Broadway stars a chance to step out of their costumes and into outfits that showcased personal style.`\
+https://nytimes.com/2024/06/17/style/tony-awards-fashion-red-carpet.html
+
 **Emerging From Orban’s Shadow, a Former Ally Tries to Steal His Limelight**\
 `Peter Magyar, a conservative who was once a well-connected figure in the Fidesz party of Prime Minister Viktor Orban, has become an unexpected leader of the country’s opposition.`\
 https://nytimes.com/2024/06/17/world/europe/hungary-magyar-orban.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5564567/2024/06/17/belgium-slovakia-euro-2024-analy
 **The ‘Bling Bishop’ Is Sentenced to 9 Years for Fleecing His Flock**\
 `Lamor Whitehead, who prosecutors said was a career con man who ran a church, took in millions, which he spent on cars, clothes and jewels.`\
 https://nytimes.com/2024/06/17/nyregion/lamor-whitehead-bling-bishop-sentenced.html
-
-**Maryland Governor Issues Sweeping Pardons for Marijuana Convictions**\
-`Gov. Wes Moore of Maryland pardoned more than 175,000 convictions on low-level marijuana charges, two years after the state legalized the use of recreational marijuana.`\
-https://nytimes.com/video/us/politics/100000009525753/maryland-marijuana-convictions-pardon.html
-
-**Top Real Estate Brokerage Rattled by Sexual Assault Claims**\
-`Oren Alexander, a co-founder of Official, a brokerage that caters to the ultrawealthy, and his twin brother, Alon, face allegations that they sexually assaulted women. They have denied wrongdoing through a lawyer.`\
-https://nytimes.com/2024/06/17/realestate/oren-alon-alexander-sexual-assault-allegations.html
 
