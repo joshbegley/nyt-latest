@@ -1,3 +1,11 @@
+**What’s on TV This Week: ‘Slave Play’ and ‘Orphan Black: Echoes’**\
+`HBO airs a documentary about the playwright Jeremy O. Harris. A new show starring Krysten Ritter premieres on AMC.`\
+https://nytimes.com/2024/06/17/arts/television/whats-on-tv-this-week-slave-play-and-orphan-black-echoes.html
+
+**U.N. Humanitarian Chief: World Leaders Are Failing Us**\
+`They are breaking the compact between ordinary people and those in whom power is vested.`\
+https://nytimes.com/2024/06/17/opinion/united-nations-gaza-ukraine.html
+
 **Monday Briefing**\
 `Israel plans to pause fighting at a Gaza border crossing.`\
 https://nytimes.com/2024/06/17/briefing/israel-fighting-pause-trump-resistance.html

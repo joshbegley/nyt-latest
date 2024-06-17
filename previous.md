@@ -1,3 +1,11 @@
+**What’s on TV This Week: ‘Slave Play’ and ‘Orphan Black: Echoes’**\
+`HBO airs a documentary about the playwright Jeremy O. Harris. A new show starring Krysten Ritter premieres on AMC.`\
+https://nytimes.com/2024/06/17/arts/television/whats-on-tv-this-week-slave-play-and-orphan-black-echoes.html
+
+**U.N. Humanitarian Chief: World Leaders Are Failing Us**\
+`They are breaking the compact between ordinary people and those in whom power is vested.`\
+https://nytimes.com/2024/06/17/opinion/united-nations-gaza-ukraine.html
+
 **Monday Briefing**\
 `Israel plans to pause fighting at a Gaza border crossing.`\
 https://nytimes.com/2024/06/17/briefing/israel-fighting-pause-trump-resistance.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/16/theater/jonathan-groff-first-tony-award.html
 **Sarah Paulson Wins Her First Tony for Best Actress in a Play**\
 `In the searing family drama “Appropriate,” Paulson plays an elder sister intent on protecting her father’s legacy.`\
 https://nytimes.com/2024/06/16/theater/sarah-paulson-first-tony-appropriate.html
-
-**How ‘The Outsiders’ built the fight of their lives.**\
-`By Alexis Soloski`\
-https://nytimes.com/live/2024/06/16/theater/tony-awards/the-outsiders-rumble-tonys
-
-**‘Merrily We Roll Along’ Was a Flop in 1981. Now It’s a Tony Winner.**\
-`The musical by Stephen Sondheim follows the implosion of a three-way friendship in reverse chronological order.`\
-https://nytimes.com/2024/06/16/theater/best-musical-merrily-we-roll-along.html
 
