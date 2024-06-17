@@ -1,3 +1,15 @@
+**Rent Increases for 1 Million N.Y.C. Apartments Likely to Be Approved**\
+`The city panel that oversees rents for stabilized apartments had previously voted to back increases of between 2 and 4.5 percent on one-year leases.`\
+https://nytimes.com/2024/06/17/nyregion/nyc-rent-stabilized-apartments-vote-increase.html
+
+**Cosmic Horror Awaits Aboard a Perilous Oil Rig**\
+`The Chinese Room has long delivered unconventional game worlds. The metal offshore structure in Still Wakes the Deep might be its most evocatively realized yet.`\
+https://nytimes.com/2024/06/17/arts/still-wakes-the-deep-scotland.html
+
+**California May Ban Legacy Admissions at Universities**\
+`The State Assembly passed a bill banning colleges from considering family ties to donors or alumni in admissions decisions.`\
+https://nytimes.com/2024/06/17/us/california-legacy-admissions.html
+
 **A Tale of Two Nearly Extinct Giant Salamanders**\
 `While trying to save large amphibians native to Japan, herpetologists in the country unexpectedly found a way to potentially save an even bigger species in China.`\
 https://nytimes.com/2024/06/17/science/giant-salamanders-japan-china.html
@@ -25,16 +37,4 @@ https://nytimes.com/paidpost/edp/edp/if-the-earth-had-a-voice-what-would-it-say.
 **Public Funding, Private Education**\
 `We explain a major change in U.S. public education.`\
 https://nytimes.com/2024/06/17/briefing/public-funding-private-education.html
-
-**Facing E.V. Tariffs, China Threatens Pork Imports From Europe**\
-`Acting quickly after the European Union imposed extra tariffs of up to 38 percent on China’s electric cars, Beijing opened a trade case on Europe’s pork.`\
-https://nytimes.com/2024/06/17/business/china-european-union-pork-exports.html
-
-**Netanyahu disbands his war cabinet after two of its five members quit.**\
-`The widely expected move came after two moderates resigned last week from the influential group, which made key decisions about the war in Gaza.`\
-https://nytimes.com/live/2024/06/17/world/israel-gaza-war-hamas/netanyahu-war-cabinet-israel
-
-**Russia Sets Date for Start of Evan Gershkovich’s Trial**\
-`The announcement of a hearing next week is the most significant movement in the Wall Street Journal reporter’s case since his arrest in March 2023 on espionage charges.`\
-https://nytimes.com/2024/06/17/world/europe/russia-evan-gershkovich-trial-date.html
 
