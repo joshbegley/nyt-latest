@@ -1,3 +1,7 @@
+**Russia Sets Date for Start of Evan Gershkovich’s Trial**\
+`The announcement of a hearing next week is the most significant movement in the Wall Street Journal reporter’s case since his arrest in March 2023 on espionage charges.`\
+https://nytimes.com/2024/06/17/world/europe/russia-evan-gershkovich-trial-date.html
+
 **Public Funding, Private Education**\
 `We explain a major change in U.S. public education.`\
 https://nytimes.com/2024/06/17/briefing/public-funding-private-education.html
