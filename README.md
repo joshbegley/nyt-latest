@@ -1,3 +1,11 @@
+**The war cabinet is gone. Who’s left in Netanyahu’s inner circle?**\
+`By Shashank Bengali`\
+https://nytimes.com/live/2024/06/17/world/israel-gaza-war-hamas/the-war-cabinet-is-gone-whos-left-in-netanyahus-inner-circle
+
+**Five questions entering Mavericks-Celtics Game 5. Plus, will Charles Barkley retire soon?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5570348/2024/06/17/dallas-mavericks-luka-doncic-kyrie-irving-charles-barkley-nba-finals-the-bounce/
+
 **Germany's pink kit becomes fastest-selling in team's history**\
 `Germany&#8217;s new pink kit has become the fastest-selling away shirt in the national team’s history.`\
 https://nytimes.com/athletic/5570245/2024/06/17/germany-pink-away-kit-adidas/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5570299/2024/06/17/pedro-lima-wolves-transfer-chels
 **The Connections Companion No. 373, June 18, 2024**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/06/17/crosswords/connections-companion-373.html
-
-**Lowetide: How 3 key pending free agents have performed for Oilers in the playoffs**\
-`For the Oilers, it's worth contemplating contracts for all three before July 1 and free agency.`\
-https://nytimes.com/athletic/5568337/2024/06/17/oilers-janmark-henrique-brown/
-
-**The Paths to Progress for Our Graduates**\
-`Responses to an essay about “no promise” graduates. Also: Justice Alito and “godliness”; Sudan’s tragedy; whistle-blower protections; dreading election night.`\
-https://nytimes.com/2024/06/17/opinion/college-graduates.html
 
