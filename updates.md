@@ -1,3 +1,11 @@
+**Here’s What You Discover When You Walk Every Block in New York City**\
+`Also, New York politicians have been promising to ease traffic for a century.`\
+https://nytimes.com/2024/06/17/nyregion/walking-new-york-city.html
+
+**Gilgo Suspect’s How-To Manual Reflects a Killer’s Mind, Prosecutors Say**\
+`Rex Heuermann meticulously assembled a document of techniques that prosecutors say he put into practice over decades of killings. One expert called it the suspect’s “blueprint for murder.”`\
+https://nytimes.com/2024/06/17/nyregion/rex-heueurmann-gilgo-beach-manual.html
+
 **The ‘Mad Men’ Era Is Long Over. Why Is Advertising Still So White?**\
 `Despite corporate promises and hiring campaigns, the ad industry is among New York City’s least diverse job sectors. It shows in the work, critics say.`\
 https://nytimes.com/2024/06/17/nyregion/advertising-diversity-mad-men.html
