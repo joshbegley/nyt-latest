@@ -3,7 +3,7 @@
 https://nytimes.com/2024/06/17/us/politics/new-title-ix-rules-blocked.html
 
 **Man Accused in Plot to Assassinate Sikh Separatist Pleads Not Guilty**\
-`Prosecutors say that Nikhil Gupta, at the best of an Indian government official, tried to engage a hit man to kill an American citizen who is a Sikh separatist.`\
+`Prosecutors say that Nikhil Gupta, at the behest of an Indian government official, tried to engage a hit man to kill an American citizen who is a Sikh separatist.`\
 https://nytimes.com/2024/06/17/nyregion/nikhil-gupta-india-assassination-plot.html
 
 **Yankees' Cole to make season debut Wednesday**\
