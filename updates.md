@@ -1,3 +1,7 @@
+**Several Injured After Mace and Fireworks Disrupt Pride Event in Baltimore**\
+`Multiple attendees were treated for injuries after a confrontation involving mace led to the event being shut down early, the police said.`\
+https://nytimes.com/2024/06/17/us/baltimore-pride-parade-chemical-agent.html
+
 **Ronaldo in Portugal squad 'on merit' - Martinez**\
 `Cristiano Ronaldo is in the Portugal squad on merit not reputation, manager Roberto Martinez says, as they start their bid to win Euro 2024 on Tuesday.`\
 https://nytimes.com/athletic/5570511/2024/06/17/cristiano-ronaldo-portugal-euro-2024-martinez/
