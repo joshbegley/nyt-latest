@@ -1,3 +1,7 @@
+**Tell Us: How Are You Feeling About the Presidential Debate?**\
+`Share your thoughts with the On Politics newsletter.`\
+https://nytimes.com/2024/06/17/us/politics/presidential-debate-reader-callout.html
+
 **Pressure Grows on Giuliani Over Incomplete Bankruptcy Filings**\
 `Creditors, the judge and a Justice Department official signaled that they were running out of patience with the former New York mayor’s accounts of his financial condition.`\
 https://nytimes.com/2024/06/17/us/politics/giuliani-bankruptcy-court.html
