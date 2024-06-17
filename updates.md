@@ -1,3 +1,7 @@
+**Read the Federal Judge’s Ruling**\
+`A federal judge temporarily blocked Iowa from enforcing a new law that makes it a state crime for someone to enter Iowa after being deported or denied entry into the United States.`\
+https://nytimes.com/interactive/2024/06/17/us/iowa-immigration-ruling.html
+
 **U.S. Treasury Imposes New Sanctions to Cut Off Weapons to Houthis in Yemen**\
 `The Iranian-backed militia has in recent months launched dozens of attacks in the Red Sea, a crucial shipping route.`\
 https://nytimes.com/2024/06/17/world/middleeast/houthis-yemen-weapons-sanctions.html
