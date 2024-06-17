@@ -1,3 +1,7 @@
+**The Connections Companion No. 372, June 17, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/17/crosswords/connections-companion-372.html
+
 **What Weapons Has North Korea Already Supplied to Russia?**\
 `Moscow needs conventional arms like artillery shells and missiles that North Korea could provide to give it an edge in its war of attrition in Ukraine.`\
 https://nytimes.com/2024/06/17/us/politics/russia-north-korea-weapons-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/17/us/maryland-marijuana-pardon-wes-moore.html
 **Rent Increases for 1 Million N.Y.C. Apartments Are Likely to Be Approved**\
 `The city panel that oversees rents for stabilized apartments had previously voted to back increases of between 2 and 4.5 percent on one-year leases.`\
 https://nytimes.com/2024/06/17/nyregion/nyc-rent-stabilized-apartments-vote-increase.html
-
-**Cosmic Horror Awaits Aboard a Perilous Oil Rig**\
-`The Chinese Room has long delivered unconventional game worlds. The metal offshore structure in Still Wakes the Deep might be its most evocatively realized yet.`\
-https://nytimes.com/2024/06/17/arts/still-wakes-the-deep-scotland.html
 
