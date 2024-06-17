@@ -18,9 +18,9 @@ https://nytimes.com/2024/06/17/theater/first-time-tony-winners.html
 `Spirited celebrations that included an official after-party at Lincoln Center and a gathering at the Carlyle Hotel, where revelers broke out in show tunes, continued until nearly 5 a.m.`\
 https://nytimes.com/2024/06/17/style/tony-awards-after-party.html
 
-**Amid the devastation, Gaza is the world’s deadliest place for aid workers, the U.N. says.**\
-`By Raja Abdulrahim`\
-https://nytimes.com/live/2024/06/17/world/israel-gaza-war-hamas/amid-the-devastation-gaza-is-the-worlds-deadliest-place-for-aid-workers-the-un-says
+**Gaza Is World’s Deadliest Place for Aid Workers, U.N. Says**\
+`The peril faced by humanitarian workers in Gaza has interrupted or obstructed the delivery of aid in a place where, aid groups have warned, hundreds of thousands of people are facing famine conditions.`\
+https://nytimes.com/2024/06/17/world/middleeast/gaza-aid-workers-un.html
 
 **This week in politics: Trump on the trail, primaries in key states.**\
 `By Maggie Astor`\
