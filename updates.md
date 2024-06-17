@@ -1,3 +1,7 @@
+**War Crimes Hearing Gives Public Virtual Look Inside a Secret C.I.A. Prison**\
+`Years after the agency’s “black site” program was shut down, details are slowly emerging during trials at Guantánamo Bay.`\
+https://nytimes.com/2024/06/17/us/politics/hearing-hidden-secret-cia-prison.html
+
 **More Cities Feel Strain as Migrants Move In Seeking Better Prospects**\
 `After aid runs out elsewhere, some migrants relocate to places like Salt Lake City, where they find help but hurdles, too. “Consider another state,” says a flier distributed by Utah.`\
 https://nytimes.com/2024/06/17/us/migrants-border-aid.html

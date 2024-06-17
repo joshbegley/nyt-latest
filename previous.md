@@ -1,3 +1,7 @@
+**War Crimes Hearing Gives Public Virtual Look Inside a Secret C.I.A. Prison**\
+`Years after the agency’s “black site” program was shut down, details are slowly emerging during trials at Guantánamo Bay.`\
+https://nytimes.com/2024/06/17/us/politics/hearing-hidden-secret-cia-prison.html
+
 **More Cities Feel Strain as Migrants Move In Seeking Better Prospects**\
 `After aid runs out elsewhere, some migrants relocate to places like Salt Lake City, where they find help but hurdles, too. “Consider another state,” says a flier distributed by Utah.`\
 https://nytimes.com/2024/06/17/us/migrants-border-aid.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/17/world/middleeast/israel-gaza-pause-border-crossin
 **Blues 2024 NHL Draft roundtable: GM Doug Armstrong discusses D depth, moving up and more**\
 `In addition to the NHL Draft, Armstrong addressed Pavel Buchnevich's contract negotiations, buyouts and pending UFAs.`\
 https://nytimes.com/athletic/5532645/2024/06/17/blues-2024-nhl-draft-trade/
-
-**Read the Federal Judge’s Ruling**\
-`A federal judge temporarily blocked Iowa from enforcing a new law that makes it a state crime for someone to enter Iowa after being deported or denied entry into the United States.`\
-https://nytimes.com/interactive/2024/06/17/us/iowa-immigration-ruling.html
 
