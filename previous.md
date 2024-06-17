@@ -1,3 +1,11 @@
+**Milos Raonic: 110 first serves, 47 aces, and one new ATP Tour record**\
+`How the Canadian broke an aces record — but still needed the full three sets to win`\
+https://nytimes.com/athletic/5571273/2024/06/17/milos-raonic-aces-record-atp-three-set-match/
+
+**Federal Judge Blocks Iowa Law Allowing State-Level Immigration Enforcement**\
+`The Justice Department sued the state over the Republican-backed law, which creates state-level criminal penalties for some unauthorized immigrants.`\
+https://nytimes.com/2024/06/17/us/iowa-immigration-ruling.html
+
 **Why the Covenant School Shooter’s Writings Have Not Yet Been Released**\
 `A Nashville judge indicated on Monday that she would soon rule on whether the writings left by the Nashville school shooter could be made public.`\
 https://nytimes.com/2024/06/17/us/politics/covenant-school-nashville-shooting-writings.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/17/us/politics/trump-maga-45.html
 **Israeli Protesters Mass in Jerusalem to Call for Elections**\
 `The protesters demanded an end to the war and the release of hostages from Gaza, and also called for elections that many hoped would oust Prime Minister Benjamin Netanyahu.`\
 https://nytimes.com/2024/06/17/world/middleeast/israel-protests-government.html
-
-**Euro 2024 day four: Three games, two shocks, one Mbappe worry for France**\
-`We guide you through the main talking points from the fourth day of the 2024 European Championship`\
-https://nytimes.com/athletic/5570206/2024/06/17/euro-2024-day-four-mbappe-france/
-
-**Juneteenth Weekend in Brooklyn? It’s an Easy Call.**\
-`Fort Greene Park is the move, just as it has been since 2020. The Lay Out, a series of summer gatherings intended “to center Black joy,” returned on Sunday.`\
-https://nytimes.com/2024/06/17/style/juneteenth-brooklyn-lay-out.html
 

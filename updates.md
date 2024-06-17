@@ -1,3 +1,11 @@
+**Milos Raonic: 110 first serves, 47 aces, and one new ATP Tour record**\
+`How the Canadian broke an aces record — but still needed the full three sets to win`\
+https://nytimes.com/athletic/5571273/2024/06/17/milos-raonic-aces-record-atp-three-set-match/
+
+**Federal Judge Blocks Iowa Law Allowing State-Level Immigration Enforcement**\
+`The Justice Department sued the state over the Republican-backed law, which creates state-level criminal penalties for some unauthorized immigrants.`\
+https://nytimes.com/2024/06/17/us/iowa-immigration-ruling.html
+
 **Why the Covenant School Shooter’s Writings Have Not Yet Been Released**\
 `A Nashville judge indicated on Monday that she would soon rule on whether the writings left by the Nashville school shooter could be made public.`\
 https://nytimes.com/2024/06/17/us/politics/covenant-school-nashville-shooting-writings.html
