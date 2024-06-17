@@ -1,3 +1,7 @@
+**Word of the Day: interminable**\
+`This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/06/17/learning/word-of-the-day-interminable.html
+
 **What’s on TV This Week: ‘Slave Play’ and ‘Orphan Black: Echoes’**\
 `HBO airs a documentary about the playwright Jeremy O. Harris. A new show starring Krysten Ritter premieres on AMC.`\
 https://nytimes.com/2024/06/17/arts/television/whats-on-tv-this-week-slave-play-and-orphan-black-echoes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/16/theater/the-outsiders-best-musical-tony.html
 **Jonathan Groff’s Star Turn in ‘Merrily We Roll Along’ Lands Him His First Tony**\
 `The gregarious performer who loves and is loved by Broadway picked up a trophy for best leading actor in a musical.`\
 https://nytimes.com/2024/06/16/theater/jonathan-groff-first-tony-award.html
-
-**Sarah Paulson Wins Her First Tony for Best Actress in a Play**\
-`In the searing family drama “Appropriate,” Paulson plays an elder sister intent on protecting her father’s legacy.`\
-https://nytimes.com/2024/06/16/theater/sarah-paulson-first-tony-appropriate.html
 
