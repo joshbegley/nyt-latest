@@ -1,9 +1,9 @@
-**Netanyahu disbands his war cabinet, an expected move after two members quit.**\
+**Netanyahu disbands his war cabinet after two of its five members quit.**\
 `The widely expected move came after two moderates quit the influential group last week.`\
 https://nytimes.com/live/2024/06/17/world/israel-gaza-war-hamas/netanyahu-war-cabinet-israel
 
 **Russia Sets Date for Start of Evan Gershkovich Trial**\
-`The announcement of a hearing next week is the most significant movement in The Wall Street Journal reporter’s case since his arrest in March 2023 on espionage charges.`\
+`The announcement of a hearing next week is the most significant movement in the Wall Street Journal reporter’s case since his arrest in March 2023 on espionage charges.`\
 https://nytimes.com/2024/06/17/world/europe/russia-evan-gershkovich-trial-date.html
 
 **Abortion United Evangelicals and Republicans. Now That Alliance Is Fraying.**\
