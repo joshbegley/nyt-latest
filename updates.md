@@ -1,3 +1,7 @@
+**Gaza Is World’s Deadliest Place for Aid Workers, U.N. Says**\
+`The peril faced by humanitarian workers in Gaza has interrupted or obstructed the delivery of aid in a place where, aid groups have warned, hundreds of thousands of people are facing famine conditions.`\
+https://nytimes.com/2024/06/17/world/middleeast/gaza-aid-workers-un.html
+
 **Top Real Estate Brokerage Shaken by Sexual Assault Claims**\
 `Oren Alexander, a co-founder of Official, a brokerage that caters to the ultrawealthy, and his twin brother, Alon, faces allegations that they sexually assaulted women. They have denied wrongdoing through a lawyer.`\
 https://nytimes.com/2024/06/17/realestate/oren-alon-alexander-sexual-assault-allegations.html
