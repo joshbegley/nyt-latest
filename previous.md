@@ -1,3 +1,7 @@
+**Tony Awards’ Viewership Inches Lower**\
+`Sunday’s show had the second-lowest viewership for a Tonys telecast since records have been kept.`\
+https://nytimes.com/2024/06/17/business/media/tony-awards-ratings.html
+
 **The Trump Rallying Cry That’s Also a Math Problem**\
 `His supporters can’t quite agree on whether to call him the 45th president or the 47th president.`\
 https://nytimes.com/2024/06/17/us/politics/trump-maga-45.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/17/us/politics/giuliani-bankruptcy-court.html
 **Chicago Braces for First Heat Wave of 2024**\
 `The excessive heat heading across the country this week is expected to be a dangerous weather system days before summer officially begins, forecasters said.`\
 https://nytimes.com/video/weather/100000009527084/northeast-chicago-heat.html
-
-**Blue Jackets fire coach Pascal Vincent after 1 season**\
-`The Blue Jackets finished 27-43-12 in 2023-24, last place in the Eastern Conference standings.`\
-https://nytimes.com/athletic/5571119/2024/06/17/blue-jackets-fire-coach-pascal-vincent/
 

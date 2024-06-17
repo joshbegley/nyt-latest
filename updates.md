@@ -1,3 +1,7 @@
+**Tony Awards’ Viewership Inches Lower**\
+`Sunday’s show had the second-lowest viewership for a Tonys telecast since records have been kept.`\
+https://nytimes.com/2024/06/17/business/media/tony-awards-ratings.html
+
 **The Trump Rallying Cry That’s Also a Math Problem**\
 `His supporters can’t quite agree on whether to call him the 45th president or the 47th president.`\
 https://nytimes.com/2024/06/17/us/politics/trump-maga-45.html
