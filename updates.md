@@ -1,3 +1,11 @@
+**Sarah Paulson Wins Her First Tony for Best Actress in a Play**\
+`In the searing family drama “Appropriate,” Paulson plays an elder sister intent on protecting her father’s legacy.`\
+https://nytimes.com/2024/06/16/theater/sarah-paulson-first-tony-appropriate.html
+
+**How ‘The Outsiders’ built the fight of their lives.**\
+`By Alexis Soloski`\
+https://nytimes.com/live/2024/06/16/theater/tony-awards/the-outsiders-rumble-tonys
+
 **‘Merrily We Roll Along’ Was a Flop in 1981. Now It’s a Tony Winner.**\
 `The musical by Stephen Sondheim follows the implosion of a three-way friendship in reverse chronological order.`\
 https://nytimes.com/2024/06/16/theater/best-musical-merrily-we-roll-along.html
