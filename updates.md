@@ -1,3 +1,7 @@
+**Maryland Governor Issues Sweeping Pardons for Marijuana Convictions**\
+`Gov. Wes Moore of Maryland pardoned more than 175,000 convictions on low-level marijuana charges, two years after the state legalized the use of recreational marijuana.`\
+https://nytimes.com/video/us/politics/100000009525753/maryland-marijuana-convictions-pardon.html
+
 **Nottingham Forest working on deal for Red Star Belgrade's Stamenic**\
 `Nottingham Forest are working on a deal with Red Star Belgrade to sign the New Zealand international midfielder Marko Stamenic.`\
 https://nytimes.com/athletic/5570759/2024/06/17/marko-stamenic-nottingham-forest-transfer/
