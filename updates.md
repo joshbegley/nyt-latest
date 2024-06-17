@@ -1,3 +1,15 @@
+**Chicago Braces for First Heat Wave of 2024**\
+`The excessive heat heading across the country this week is expected to be a dangerous weather system days before summer officially begins, forecasters said.`\
+https://nytimes.com/video/weather/100000009527084/northeast-chicago-heat.html
+
+**Blue Jackets fire coach Pascal Vincent after 1 season**\
+`The Blue Jackets finished 27-43-12 in 2023-24, last place in the Eastern Conference standings.`\
+https://nytimes.com/athletic/5571119/2024/06/17/blue-jackets-fire-coach-pascal-vincent/
+
+**An Early Heat Wave Is Sweeping the Country**\
+`Also, the Surgeon General called for warning labels on social media. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/06/17/briefing/heat-wave-midwest-social-media-warning-labels.html
+
 **Euro 2024 odds for Tuesday's two group matches including Portugal-Czechia**\
 `The final set of opening group matches of Euro 2024 take place on Tuesday with Portugal and Czechia highlighting Group F action.`\
 https://nytimes.com/athletic/5570388/2024/06/17/euro-2024-odds-portugal-czech-republic/
