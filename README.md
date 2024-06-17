@@ -1,3 +1,11 @@
+**Here’s What You Discover When You Walk Every Block in New York City**\
+`Also, New York politicians have been promising to ease traffic for a century.`\
+https://nytimes.com/2024/06/17/nyregion/walking-new-york-city.html
+
+**Gilgo Suspect’s How-To Manual Reflects a Killer’s Mind, Prosecutors Say**\
+`Rex Heuermann meticulously assembled a document of techniques that prosecutors say he put into practice over decades of killings. One expert called it the suspect’s “blueprint for murder.”`\
+https://nytimes.com/2024/06/17/nyregion/rex-heueurmann-gilgo-beach-manual.html
+
 **The ‘Mad Men’ Era Is Long Over. Why Is Advertising Still So White?**\
 `Despite corporate promises and hiring campaigns, the ad industry is among New York City’s least diverse job sectors. It shows in the work, critics say.`\
 https://nytimes.com/2024/06/17/nyregion/advertising-diversity-mad-men.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/17/world/asia/taiwan-china-diplomacy.html
 **Toyota Investors Challenge Scion’s Grip at a ‘Critical Juncture’**\
 `Akio Toyoda ran Toyota for 14 years before handing the reins to a new C.E.O. last year, but some have grown concerned about the control he still wields.`\
 https://nytimes.com/2024/06/17/business/toyota-ceo-succession.html
-
-**Quotation of the Day: Hatching Plans for Cricket Venues**\
-`Quotation of the Day for Monday, June 17, 2024.`\
-https://nytimes.com/2024/06/17/pageoneplus/quotation-of-the-day-hatching-plans-for-cricket-venues.html
-
-**Maleah Joi Moon Wins a Tony for Her First Professional Role**\
-`Moon, 21, made her Broadway debut in the Alicia Keys musical “Hell’s Kitchen.”`\
-https://nytimes.com/2024/06/16/theater/maleah-joi-moon-best-leading-actress-tony.html
 
