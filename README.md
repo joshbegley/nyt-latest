@@ -1,10 +1,14 @@
+**Klay Thompson to join Team Bahamas for Olympic training camp**\
+`Klay Thompson won a gold medal with Team USA in 2016.`\
+https://nytimes.com/athletic/5569817/2024/06/17/klay-thompson-bahamas-olympics-camp/
+
 **Why Jay-Z’s Big Tonys Duet With Alicia Keys Was Offstage**\
 `The two stars brought down the house with “Empire State of Mind,” their 2009 love song to New York City, which they performed on a grand marble staircase outside the auditorium.`\
 https://nytimes.com/2024/06/17/theater/jay-z-alicia-keys-prerecorded.html
 
 **The daily pause applies to part of southern Gaza, but not to some of the places most in need.**\
 `By Patrick Kingsley and Adam Rasgon`\
-https://nytimes.com/live/2024/06/17/world/israel-gaza-war-hamas/israel-gaza-pause-aid
+https://nytimes.com/live/2024/06/17/world/israel-gaza-war-hamas/israel-gaza-pause-fighting-aid
 
 **Who Is George Norcross?**\
 `One of the most powerful political figures in New Jersey, he was indicted on Monday on charges of racketeering.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5570348/2024/06/17/dallas-mavericks-luka-doncic-kyr
 **Germany's pink kit becomes fastest-selling in team's history**\
 `Germany&#8217;s new pink kit has become the fastest-selling away shirt in the national team’s history.`\
 https://nytimes.com/athletic/5570245/2024/06/17/germany-pink-away-kit-adidas/
-
-**Multiple People Killed in India Train Crash**\
-`A freight train collided with a passenger train in the state of West Bengal.`\
-https://nytimes.com/video/world/asia/100000009525549/india-train-crash-west-bengal.html
 
