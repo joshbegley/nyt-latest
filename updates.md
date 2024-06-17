@@ -1,3 +1,7 @@
+**Maryland Governor Issues Sweeping Pardons for Marijuana Convictions**\
+`Gov. Wes Moore of Maryland pardoned more than 175,000 convictions on low-level marijuana charges, two years after the state legalized the use of recreational marijuana.`\
+https://nytimes.com/video/us/politics/100000009525753/maryland-marijuana-convictions-pardon.html
+
 **Gaza Is World’s Deadliest Place for Aid Workers, U.N. Says**\
 `The peril faced by humanitarian workers in Gaza has interrupted or obstructed the delivery of aid in a place where, aid groups have warned, hundreds of thousands of people are facing famine conditions.`\
 https://nytimes.com/2024/06/17/world/middleeast/gaza-aid-workers-un.html

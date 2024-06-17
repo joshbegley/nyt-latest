@@ -3,7 +3,7 @@
 https://nytimes.com/video/us/politics/100000009525753/maryland-marijuana-convictions-pardon.html
 
 **Top Real Estate Brokerage Shaken by Sexual Assault Claims**\
-`Oren Alexander, a co-founder of Official, a brokerage that caters to the ultrawealthy, and his twin brother, Alon, faces allegations that they sexually assaulted women. They have denied wrongdoing through a lawyer.`\
+`Oren Alexander, a co-founder of Official, a brokerage that caters to the ultrawealthy, and his twin brother, Alon, face allegations that they sexually assaulted women. They have denied wrongdoing through a lawyer.`\
 https://nytimes.com/2024/06/17/realestate/oren-alon-alexander-sexual-assault-allegations.html
 
 **AFC North to be featured on Hard Knocks**\
