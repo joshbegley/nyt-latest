@@ -1,3 +1,7 @@
+**Daniel Radcliffe, Pete Townshend and Sarah Paulson Party for the Tonys**\
+`Spirited celebrations that included an official after-party at Lincoln Center and a gathering at the Carlyle Hotel, where revelers broke out in show tunes, continued until nearly 5 a.m.`\
+https://nytimes.com/2024/06/17/style/tony-awards-after-party.html
+
 **Amid the devastation, Gaza is the world’s deadliest place for aid workers, the U.N. says.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/06/17/world/israel-gaza-war-hamas/amid-the-devastation-gaza-is-the-worlds-deadliest-place-for-aid-workers-the-un-says
