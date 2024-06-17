@@ -1,3 +1,7 @@
+**Why Do We Fear Forgiveness?**\
+`Choosing to forgive can be frightening, but it’s a powerful tool for repairing the harm done by violence, oppression and other traumas.`\
+https://nytimes.com/2024/06/17/special-series/south-africa-apartheid-forgiveness-fear.html
+
 **Rent Increases for 1 Million N.Y.C. Apartments Are Likely to Be Approved**\
 `The city panel that oversees rents for stabilized apartments had previously voted to back increases of between 2 and 4.5 percent on one-year leases.`\
 https://nytimes.com/2024/06/17/nyregion/nyc-rent-stabilized-apartments-vote-increase.html
