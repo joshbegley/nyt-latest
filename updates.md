@@ -1,3 +1,11 @@
+**Toyota Investors Challenge Scion’s Grip at a ‘Critical Juncture’**\
+`Akio Toyoda ran Toyota for 14 years before handing the reins to a new C.E.O. last year, but some have grown concerned about the control he still wields.`\
+https://nytimes.com/2024/06/17/business/toyota-ceo-succession.html
+
+**Quotation of the Day: Hatching Plans for Cricket Venues**\
+`Quotation of the Day for Monday, June 17, 2024.`\
+https://nytimes.com/2024/06/17/pageoneplus/quotation-of-the-day-hatching-plans-for-cricket-venues.html
+
 **Maleah Joi Moon Wins a Tony for Her First Professional Role**\
 `Moon, 21, made her Broadway debut in the Alicia Keys musical “Hell’s Kitchen.”`\
 https://nytimes.com/2024/06/16/theater/maleah-joi-moon-best-leading-actress-tony.html
