@@ -2,8 +2,8 @@
 `Vivek Murthy, the U.S. surgeon general, wants warning labels on the tech platforms, arguing that they are fueling a mental health crisis among teens.`\
 https://nytimes.com/2024/06/17/business/dealbook/social-media-tobacco-acohol-warning-labels.html
 
-**P​utin to Visit North Korea, a Newly Crucial Ally as Ukraine War Drags On**\
-`​Needing munitions to fight in Ukraine, President Vladimir V. Putin plans to return to North Korea this week for the first time in nearly a quarter century.`\
+**P​utin Is to Visit North Korea, a Sign of Deepening Military Ties**\
+`​Needing munitions to fight in Ukraine, the Russian president plans to return to North Korea this week for the first time in nearly a quarter-century.`\
 https://nytimes.com/2024/06/17/world/asia/russia-north-korea-putin-kim.html
 
 **If the Earth Had a Voice, What Would It Say?**\
