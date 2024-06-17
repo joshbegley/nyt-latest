@@ -1,4 +1,4 @@
-**The Briefing: Austria 0 France 1: Wasteful (and bloodied) Mbappe, pitch problems, Deschamps' dilemma**\
+**The Briefing: Austria 0 France 1: Mbappe's bloodied nose, pitch problems, Deschamps' dilemma**\
 `France were made to work hard for an opening victory over Austria - The Athletic analyses the talking points (and the pitch) in Dusseldorf`\
 https://nytimes.com/athletic/5564570/2024/06/17/austria-0-france-1-mbappe-deschamps-euro-2024/
 
