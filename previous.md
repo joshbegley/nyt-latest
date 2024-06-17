@@ -1,3 +1,19 @@
+**Euro 2024 day four: Three games, two shocks, one Mbappe worry for France**\
+`We guide you through the main talking points from the fourth day of the 2024 European Championship`\
+https://nytimes.com/athletic/5570206/2024/06/17/euro-2024-day-four-mbappe-france/
+
+**Juneteenth Weekend in Brooklyn? It’s an Easy Call.**\
+`Fort Greene Park is the move, just as it has been since 2020. The Lay Out, a series of summer gatherings intended “to center Black joy,” returned on Sunday.`\
+https://nytimes.com/2024/06/17/style/juneteenth-brooklyn-lay-out.html
+
+**Texas lands commitment from 5-star QB Dia Bell**\
+`The rising junior at Plantation (Fla.) American Heritage is ranked as the No. 2 quarterback in his class in the 247Sports Composite.`\
+https://nytimes.com/athletic/5571219/2024/06/17/texas-recruiting-dia-bell-quartergback/
+
+**The Tony Award I Wish I Could Give**\
+`The director of “Merrily We Roll Along” brilliantly fixed a fatally flawed show.`\
+https://nytimes.com/live/2024/06/12/opinion/thepoint/tony-awards-merrily-director
+
 **Tell Us: How Are You Feeling About the Presidential Debate?**\
 `Share your thoughts with the On Politics newsletter.`\
 https://nytimes.com/2024/06/17/us/politics/presidential-debate-reader-callout.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/06/17/briefing/heat-wave-midwest-social-media-warning-l
 **Euro 2024 odds for Tuesday's two group matches including Portugal-Czechia**\
 `The final set of opening group matches of Euro 2024 take place on Tuesday with Portugal and Czechia highlighting Group F action.`\
 https://nytimes.com/athletic/5570388/2024/06/17/euro-2024-odds-portugal-czech-republic/
-
-**Brandon Aiyuk says 49ers 'don't want me back'**\
-`Aiyuk is set to enter the final year of his rookie contract after leading the 49ers with 75 catches and 1,342 receiving yards last season.`\
-https://nytimes.com/athletic/5571029/2024/06/17/brandon-aiyuk-49ers-contract-negotiation/
-
-**Mbappe nose injury 'not good at all' after France captain forced off**\
-`Kylian Mbappe&#8217;s nose injury is &#8220;not good at all&#8221; after the France captain was forced off in the latter stages of his side&#8217;s Euro 2024 group stage victory against Austria.`\
-https://nytimes.com/athletic/5571084/2024/06/17/kylian-mbappe-nose-injury-france-how-long/
-
-**The Briefing: Austria 0 France 1 - Mbappe's bloodied nose, pitch problems, Deschamps' dilemma**\
-`Kylian Mbappe suffered a horrible nose injury as France won their opening game of Euro 2024 against Austria on a tricky pitch`\
-https://nytimes.com/athletic/5564570/2024/06/17/austria-0-france-1-mbappe-deschamps-euro-2024/
-
-**The A.I. Influencer Ads Are Coming**\
-`Look closely. Is that a real person?`\
-https://nytimes.com/2024/06/17/style/tiktok-ads-ai-influencers.html
 
