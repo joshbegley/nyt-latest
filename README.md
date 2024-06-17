@@ -1,3 +1,7 @@
+**Northeast Braces for First Severe Heat of the Year**\
+`An excessive heat watch was in effect for southern New England, where forecasters warned of “dangerous heat” and humidity starting on Tuesday and lasting through Friday.`\
+https://nytimes.com/2024/06/17/weather/heat-wave-plains-northeast.html
+
 **‘A Hellscape’: Dire Conditions in Gaza Leave a Multitude of Amputees**\
 `Access to medical care and even clean water is limited, and the risk of infection is high, making it difficult for patients to get follow-up surgeries, prosthetics and rehabilitation.`\
 https://nytimes.com/2024/06/17/world/europe/gaza-amputation-hospitals.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/17/realestate/million-dollar-homes-california.html
 **After 40 Years of Dance, What Happens to a Dream Fulfilled?**\
 `Jawole Willa Jo Zollar, who founded Urban Bush Women four decades ago, says goodbye to it with a final work.`\
 https://nytimes.com/2024/06/17/arts/zollar-urban-bush-women-scat.html
-
-**His Family Survived the Nazis by Living in a Chicken Coop**\
-`A new museum exhibit on the Holocaust focuses on eight narratives, including the account of a man whose family escaped death by hiding on a family farm.`\
-https://nytimes.com/2024/06/17/arts/his-family-survived-the-nazis-by-living-in-a-chicken-coop.html
 
