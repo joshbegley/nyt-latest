@@ -1,3 +1,15 @@
+**Chicago Braces for First Heat Wave of 2024**\
+`The excessive heat heading across the country this week is expected to be a dangerous weather system days before summer officially begins, forecasters said.`\
+https://nytimes.com/video/weather/100000009527084/northeast-chicago-heat.html
+
+**Blue Jackets fire coach Pascal Vincent after 1 season**\
+`The Blue Jackets finished 27-43-12 in 2023-24, last place in the Eastern Conference standings.`\
+https://nytimes.com/athletic/5571119/2024/06/17/blue-jackets-fire-coach-pascal-vincent/
+
+**An Early Heat Wave Is Sweeping the Country**\
+`Also, the Surgeon General called for warning labels on social media. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/06/17/briefing/heat-wave-midwest-social-media-warning-labels.html
+
 **Euro 2024 odds for Tuesday's two group matches including Portugal-Czechia**\
 `The final set of opening group matches of Euro 2024 take place on Tuesday with Portugal and Czechia highlighting Group F action.`\
 https://nytimes.com/athletic/5570388/2024/06/17/euro-2024-odds-portugal-czech-republic/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/17/business/media/washington-post-editor-turmoil.htm
 **Dozens of Groups Push FEMA to Recognize Extreme Heat as a ‘Major Disaster’**\
 `The labor and environmental groups are pushing the change so relief funds can be used in more situations.`\
 https://nytimes.com/2024/06/17/climate/labor-unions-fema-disaster-relief.html
-
-**School’s Out. Time for a Social Media Reset.**\
-`The surgeon general wants more restrictions on social media to protect children’s health. Here’s how to help your kids cut down on screen time this summer.`\
-https://nytimes.com/2024/06/17/well/family/social-media-summer-kids.html
-
-**Tuesday Briefing: Netanyahu Disbands His War Cabinet**\
-`Also, President Vladimir Putin’s state visit to North Korea.`\
-https://nytimes.com/2024/06/17/world/asia/israel-cabinet-putin-korea-asia.html
-
-**Les Miles sues LSU over vacated wins**\
-`Miles’ recognized win-loss coaching record is 108-73 (.597), just below the .600 mark required for Hall of Fame consideration.`\
-https://nytimes.com/athletic/5570788/2024/06/17/les-miles-lsu-lawsuit/
 
