@@ -1,3 +1,7 @@
+**You’ve Seen the Movie — Now Name the Book That Inspired It**\
+`This quick quiz challenges you to identify a film’s source material based on a photo. Click here to play!`\
+https://nytimes.com/interactive/2024/06/17/books/review/movie-still-quiz.html
+
 **Why Do We Fear Forgiveness?**\
 `Choosing to forgive can be frightening, but it’s a powerful tool for repairing the harm done by violence, oppression and other traumas.`\
 https://nytimes.com/2024/06/17/special-series/south-africa-apartheid-forgiveness-fear.html

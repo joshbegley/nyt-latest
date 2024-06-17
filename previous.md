@@ -1,3 +1,7 @@
+**You’ve Seen the Movie — Now Name the Book That Inspired It**\
+`This quick quiz challenges you to identify a film’s source material based on a photo. Click here to play!`\
+https://nytimes.com/interactive/2024/06/17/books/review/movie-still-quiz.html
+
 **Why Do We Fear Forgiveness?**\
 `Choosing to forgive can be frightening, but it’s a powerful tool for repairing the harm done by violence, oppression and other traumas.`\
 https://nytimes.com/2024/06/17/special-series/south-africa-apartheid-forgiveness-fear.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/17/world/middleeast/sailors-us-navy-houthi-attack.ht
 **Train Crash in India Leaves at Least 8 Dead and Dozens Injured**\
 `The death toll was expected to rise after a passenger train and a freight train collided in the state of West Bengal.`\
 https://nytimes.com/2024/06/17/world/asia/india-train-crash.html
-
-**Is Social Media the New Tobacco?**\
-`Vivek Murthy, the U.S. surgeon general, wants warning labels on the tech platforms, arguing that they are fueling a mental health crisis among teens.`\
-https://nytimes.com/2024/06/17/business/dealbook/social-media-tobacco-acohol-warning-labels.html
 
