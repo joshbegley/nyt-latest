@@ -1,3 +1,15 @@
+**A Tale of Two Nearly Extinct Giant Salamanders**\
+`While trying to save large amphibians native to Japan, herpetologists in the country unexpectedly found a way to potentially save an even bigger species in China.`\
+https://nytimes.com/2024/06/17/science/giant-salamanders-japan-china.html
+
+**‘Inside! Inside!’ Sailors Recount Houthi Attack and U.S. Navy Rescue**\
+`The captain of a ship assaulted by the Yemen-based militia last week spoke at a news conference in Manila after the rescue.`\
+https://nytimes.com/2024/06/17/world/middleeast/sailors-us-navy-houthi-attack.html
+
+**Train Crash in India Leaves at Least 8 Dead and Dozens Injured**\
+`The death toll was expected to rise after a passenger train and a freight train collided in the state of West Bengal.`\
+https://nytimes.com/2024/06/17/world/asia/india-train-crash.html
+
 **Is Social Media the New Tobacco?**\
 `Vivek Murthy, the U.S. surgeon general, wants warning labels on the tech platforms, arguing that they are fueling a mental health crisis among teens.`\
 https://nytimes.com/2024/06/17/business/dealbook/social-media-tobacco-acohol-warning-labels.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/06/17/world/israel-gaza-war-hamas/netanyahu-war-ca
 **Russia Sets Date for Start of Evan Gershkovich’s Trial**\
 `The announcement of a hearing next week is the most significant movement in the Wall Street Journal reporter’s case since his arrest in March 2023 on espionage charges.`\
 https://nytimes.com/2024/06/17/world/europe/russia-evan-gershkovich-trial-date.html
-
-**Abortion United Evangelicals and Republicans. Now That Alliance Is Fraying.**\
-`The Southern Baptist Convention, long a bellwether for American evangelicalism, voted to oppose the use of in vitro fertilization.`\
-https://nytimes.com/2024/06/17/podcasts/the-daily/ivf-baptist-church.html
-
-**Wordle Review No. 1,095, June 18, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/06/17/crosswords/wordle-review-1095.html
-
-**A Heat Wave Hits the U.S., and a ‘Pause’ in Gaza Fighting**\
-`Plus, the Tony Awards honor the best of Broadway.`\
-https://nytimes.com/2024/06/17/podcasts/heat-wave-israel-tactical-pause-gaza.html
 
