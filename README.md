@@ -1,3 +1,15 @@
+**Celtics' Porziņģis available for Game 5 vs. Mavs**\
+`Celtics coach Joe Mazzulla said to "expect to see" Kristaps Porziņģis on the floor for Game 5 of the NBA Finals.`\
+https://nytimes.com/athletic/5571399/2024/06/17/kristaps-porzingis-game-5-status-celtics/
+
+**Israel Pauses Daytime Offensive in Part of Gaza, Raising Hopes for More Aid**\
+`The new policy, addressing concerns that combat made aid delivery too dangerous, took hold as an increasingly isolated Benjamin Netanyahu dissolved his war cabinet.`\
+https://nytimes.com/2024/06/17/world/middleeast/israel-gaza-pause-border-crossing.html
+
+**Blues 2024 NHL Draft roundtable: GM Doug Armstrong discusses D depth, moving up and more**\
+`In addition to the NHL Draft, Blues GM Doug Armstrong addressed Pavel Buchnevich's contract negotiations, buyouts and pending UFAs.`\
+https://nytimes.com/athletic/5532645/2024/06/17/blues-2024-nhl-draft-trade/
+
 **Read the Federal Judge’s Ruling**\
 `A federal judge temporarily blocked Iowa from enforcing a new law that makes it a state crime for someone to enter Iowa after being deported or denied entry into the United States.`\
 https://nytimes.com/interactive/2024/06/17/us/iowa-immigration-ruling.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5571260/2024/06/17/rory-mcilroy-withdraw-travelers-
 **George R. Nethercutt Jr., Who Ousted a House Speaker, Dies at 79**\
 `He defeated Thomas S. Foley of Washington State in the 1994 Republican midterm sweep. It was the first time since the Civil War-era that voters had rejected a House speaker.`\
 https://nytimes.com/2024/06/17/obituaries/george-r-nethercutt-jr-dead.html
-
-**A Swirling Rainstorm off Mexico Could Become Tropical Storm Alberto**\
-`Heavy rains were forecast for parts of Texas and Mexico.`\
-https://nytimes.com/2024/06/17/weather/alberto-tropical-storm.html
-
-**Man Charged as Lookout in Whitey Bulger Killing Admits to Lying to F.B.I.**\
-`Sean McKinnon, accused of conspiring to murder the aging mobster in prison, pleaded guilty to making false statements to investigators and was sentenced to time served.`\
-https://nytimes.com/2024/06/17/us/sean-mckinnon-whitey-bulger-sentencing.html
-
-**Tony Awards’ Viewership Slips Lower**\
-`Sunday’s show had the second-lowest viewership for a Tonys telecast since records have been kept.`\
-https://nytimes.com/2024/06/17/business/media/tony-awards-ratings.html
 
