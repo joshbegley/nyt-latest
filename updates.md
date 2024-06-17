@@ -1,4 +1,8 @@
 **Taylor Swift’s ‘Tortured Poets’ Logs an Eighth Straight Week at No. 1**\
+`Billie Eilish is No. 2, and Charli XCX debuts strong at No. 3.`\
+https://nytimes.com/2024/06/17/arts/music/taylor-swift-tortured-poets-8-weeks-no-1.html
+
+**Taylor Swift’s ‘Tortured Poets’ Logs an Eighth Straight Week at No. 1**\
 `Billie Eilish holds at No. 2, and Charli XCX debuts strong at No. 3.`\
 https://nytimes.com/2024/06/17/arts/music/taylor-swift-tortured-poets-8-weeks-no-1.html
 
