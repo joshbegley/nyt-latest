@@ -1,3 +1,7 @@
+**‘Merrily We Roll Along’ Was a Flop in 1981. Now It’s a Tony Winner.**\
+`The musical by Stephen Sondheim follows the implosion of a three-way friendship in reverse chronological order.`\
+https://nytimes.com/2024/06/16/theater/best-musical-merrily-we-roll-along.html
+
 **‘Stereophonic’ Wins the Tony Award for Best New Play**\
 `It was the fifth award of the night for the production, a meditation on the joy and torture of creative collaboration.`\
 https://nytimes.com/2024/06/16/theater/stereophonic-best-play-tony-award.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/16/theater/tony-awards/heres-the-latest-on-the-
 **Portraits of 43 Tony nominees, who reveal the shows that shaped them.**\
 `By Michael Paulson`\
 https://nytimes.com/live/2024/06/16/theater/tony-awards/tony-nominees-portraits
-
-**After Splash Park Shooting, Michigan Community Feels a Familiar Pain**\
-`The violence in the city of Rochester Hills, which injured nine people including children, comes three years after the shooting at Oxford High School in the same county.`\
-https://nytimes.com/2024/06/16/us/rochester-hills-michigan-shooting.html
 
