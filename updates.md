@@ -1,3 +1,11 @@
+**School’s Out. Time for a Social Media Reset.**\
+`The surgeon general wants more restrictions on social media to protect children’s health. Here’s how to help your kids cut down on screen time this summer.`\
+https://nytimes.com/2024/06/17/well/family/social-media-summer-kids.html
+
+**Tuesday Briefing: Netanyahu Disbands His War Cabinet**\
+`Also, President Vladimir Putin’s state visit to North Korea.`\
+https://nytimes.com/2024/06/17/world/asia/israel-cabinet-putin-korea-asia.html
+
 **Les Miles sues LSU over vacated wins**\
 `Miles’ recognized win-loss coaching record is 108-73 (.597), just below the .600 mark required for Hall of Fame consideration.`\
 https://nytimes.com/athletic/5570788/2024/06/17/les-miles-lsu-lawsuit/
