@@ -1,3 +1,7 @@
+**Dozens of Groups Push FEMA to Recognize Extreme Heat as a ‘Major Disaster’**\
+`The labor and environmental groups are pushing the change so relief funds can be used in more situations.`\
+https://nytimes.com/2024/06/17/climate/labor-unions-fema-disaster-relief.html
+
 **School’s Out. Time for a Social Media Reset.**\
 `The surgeon general wants more restrictions on social media to protect children’s health. Here’s how to help your kids cut down on screen time this summer.`\
 https://nytimes.com/2024/06/17/well/family/social-media-summer-kids.html
@@ -33,10 +37,4 @@ https://nytimes.com/athletic/5570807/2024/06/17/college-football-conference-spon
 **William H. Donaldson, 93, Wall St. Powerbroker Who Led the S.E.C., Dies**\
 `He co-founded D.L.J., the first securities firm to offer shares to the public. As S.E.C. chairman, he pressed for a stronger watchdog role after a series of accounting scandals.`\
 https://nytimes.com/2024/06/17/business/dealbook/william-h-donaldson-dead.html
-
-**Top 5: NASCAR's Iowa visit shines, Martin Truex Jr. bows out, tire talk**\
-`NEWTON, Iowa — Five thoughts after NASCAR&#8217;s inaugural Cup Series weekend at Iowa Speedway &#8230;
-
-The enthusiasm was obvious from the start.`\
-https://nytimes.com/athletic/5570085/2024/06/17/nascar-iowa-martin-truex-jr-top-5/
 

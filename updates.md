@@ -1,3 +1,7 @@
+**Dozens of Groups Push FEMA to Recognize Extreme Heat as a ‘Major Disaster’**\
+`The labor and environmental groups are pushing the change so relief funds can be used in more situations.`\
+https://nytimes.com/2024/06/17/climate/labor-unions-fema-disaster-relief.html
+
 **School’s Out. Time for a Social Media Reset.**\
 `The surgeon general wants more restrictions on social media to protect children’s health. Here’s how to help your kids cut down on screen time this summer.`\
 https://nytimes.com/2024/06/17/well/family/social-media-summer-kids.html
