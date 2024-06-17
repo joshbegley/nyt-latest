@@ -1,3 +1,11 @@
+**U.S. Sues Adobe Over Hard-to-Cancel Subscriptions**\
+`The maker of Photoshop and other popular design software hid details of expensive cancellation fees, according to a Justice Department lawsuit.`\
+https://nytimes.com/2024/06/17/technology/us-adobe-subscription-lawsuit.html
+
+**Why DeChambeau didn't make U.S. Olympic golf team**\
+`Despite DeChambeau's U.S. Open win, the golfer did not obtain enough points in the Official World Golf Rankings to qualify for the Games.`\
+https://nytimes.com/athletic/5570609/2024/06/17/us-olympic-golf-team-paris-2024/
+
 **LeBrun: What Duncan Keith told the Oilers before Game 4 to make them believe in a comeback**\
 `The three-time champion, who retired with the Oilers and now works for the team, helped the Blackhawks nearly come back from 3-0 in 2011.`\
 https://nytimes.com/athletic/5570392/2024/06/17/duncan-keith-oilers-stanley-cup-comeback/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/17/realestate/oren-alon-alexander-sexual-assault-all
 **AFC North to be featured on Hard Knocks**\
 `The series will focus on the final six weeks of the regular season and the playoff runs for AFC North teams. `\
 https://nytimes.com/athletic/5570589/2024/06/17/nfl-afc-north-hbo-hard-knocks/
-
-**Michigan and CUNY Mishandled Discrimination Complaints, Education Dept. Finds**\
-`The department concluded that both schools failed to appropriately respond to complaints that campus protests had veered into antisemitism and anti-Arab discrimination.`\
-https://nytimes.com/2024/06/17/us/politics/michigan-cuny-discrimination-complaints.html
-
-**First-Time Tony Winners Talk About Their Victories**\
-`All of the actors who took home Tonys were first-time winners. Here’s what they had to say after their wins.`\
-https://nytimes.com/2024/06/17/theater/first-time-tony-winners.html
 
