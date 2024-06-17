@@ -1,3 +1,7 @@
+**Man Charged as Lookout in Whitey Bulger Killing Admits to Lying to F.B.I.**\
+`Sean McKinnon, accused of conspiring to murder the aging mobster in prison, pleaded guilty to making false statements to investigators and was sentenced to time served.`\
+https://nytimes.com/2024/06/17/us/sean-mckinnon-whitey-bulger-sentencing.html
+
 **Tony Awards’ Viewership Inches Lower**\
 `Sunday’s show had the second-lowest viewership for a Tonys telecast since records have been kept.`\
 https://nytimes.com/2024/06/17/business/media/tony-awards-ratings.html
