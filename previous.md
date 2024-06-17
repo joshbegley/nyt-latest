@@ -2,12 +2,12 @@
 `Aiyuk is set to enter the final year of his rookie contract after leading the 49ers with 75 catches and 1,342 receiving yards last season.`\
 https://nytimes.com/athletic/5571029/2024/06/17/brandon-aiyuk-49ers-contract-negotiation/
 
-**Mbappe forced off with nose injury for France - and then booked**\
-`France captain Kylian Mbappe was forced off with a facial injury in the latter stages of his side&#8217;s Euro 2024 group stage victory against Austria.`\
+**Mbappe nose injury 'not good at all' after France captain forced off**\
+`Kylian Mbappe&#8217;s nose injury is &#8220;not good at all&#8221; after the France captain was forced off in the latter stages of his side&#8217;s Euro 2024 group stage victory against Austria.`\
 https://nytimes.com/athletic/5571084/2024/06/17/kylian-mbappe-nose-injury-france-how-long/
 
 **The Briefing: Austria 0 France 1 - Mbappe's bloodied nose, pitch problems, Deschamps' dilemma**\
-`France were made to work hard for an opening victory over Austria - The Athletic analyses the talking points (and the pitch) in Dusseldorf`\
+`Kylian Mbappe suffered a horrible nose injury as France won their opening game of Euro 2024 against Austria on a tricky pitch`\
 https://nytimes.com/athletic/5564570/2024/06/17/austria-0-france-1-mbappe-deschamps-euro-2024/
 
 **The A.I. Influencer Ads Are Coming**\
