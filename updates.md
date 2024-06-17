@@ -1,3 +1,7 @@
+**George R. Nethercutt Jr., Who Ousted a House Speaker, Dies at 79**\
+`He defeated Thomas S. Foley of Washington State in the 1994 Republican midterm sweep. It was the first time since the Civil War-era that voters had rejected a House speaker.`\
+https://nytimes.com/2024/06/17/obituaries/george-r-nethercutt-jr-dead.html
+
 **A Swirling Rainstorm off Mexico Could Become Tropical Storm Alberto**\
 `Heavy rains were forecast for parts of Texas and Mexico.`\
 https://nytimes.com/2024/06/17/weather/alberto-tropical-storm.html
