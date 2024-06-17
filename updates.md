@@ -1,3 +1,7 @@
+**Ronaldo in Portugal squad 'on merit' - Martinez**\
+`Cristiano Ronaldo is in the Portugal squad on merit not reputation, manager Roberto Martinez says, as they start their bid to win Euro 2024 on Tuesday.`\
+https://nytimes.com/athletic/5570511/2024/06/17/cristiano-ronaldo-portugal-euro-2024-martinez/
+
 **George Norcross, Democratic Power Broker, Is Charged With Racketeering**\
 `New Jersey’s attorney general, Matthew Platkin, had been investigating tax breaks that benefited companies close to Mr. Norcross.`\
 https://nytimes.com/2024/06/17/nyregion/george-norcross-new-jersey-indictment.html

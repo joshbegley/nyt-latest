@@ -1,3 +1,7 @@
+**Who is George Norcross?**\
+`One of the most powerful political figures in New Jersey, he was indicted on Monday on charges of racketeering.`\
+https://nytimes.com/2024/06/17/nyregion/who-is-george-norcross.html
+
 **Ronaldo in Portugal squad 'on merit' - Martinez**\
 `Cristiano Ronaldo is in the Portugal squad on merit not reputation, manager Roberto Martinez says, as they start their bid to win Euro 2024 on Tuesday.`\
 https://nytimes.com/athletic/5570511/2024/06/17/cristiano-ronaldo-portugal-euro-2024-martinez/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5569522/2024/06/17/england-southgate-tactics-serbia
 **How Crypto Money Is Poised to Influence the Election**\
 `The industry’s political awakening — and enormous pool of cash — is already affecting high-profile races across the country.`\
 https://nytimes.com/2024/06/17/technology/-crypto-influence-election.html
-
-**Infidelity, Dysfunction, Secrets — This Family Novel Delivers**\
-`“Same as It Ever Was,” by Claire Lombardo, is a 500-page, multigenerational examination of the ties that bind.`\
-https://nytimes.com/2024/06/17/books/review/same-as-it-ever-was-claire-lombardo.html
 
