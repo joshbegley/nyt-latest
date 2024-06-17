@@ -1,8 +1,12 @@
+**A Swirling Rainstorm off Mexico Could Become Tropical Storm Alberto**\
+`Heavy rains were forecast for parts of Texas and Mexico.`\
+https://nytimes.com/2024/06/17/weather/alberto-tropical-storm.html
+
 **Man Charged as Lookout in Whitey Bulger Killing Admits to Lying to F.B.I.**\
 `Sean McKinnon, accused of conspiring to murder the aging mobster in prison, pleaded guilty to making false statements to investigators and was sentenced to time served.`\
 https://nytimes.com/2024/06/17/us/sean-mckinnon-whitey-bulger-sentencing.html
 
-**Tony Awards’ Viewership Inches Lower**\
+**Tony Awards’ Viewership Slips Lower**\
 `Sunday’s show had the second-lowest viewership for a Tonys telecast since records have been kept.`\
 https://nytimes.com/2024/06/17/business/media/tony-awards-ratings.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/12/opinion/thepoint/tony-awards-merrily-directo
 **Tell Us: How Are You Feeling About the Presidential Debate?**\
 `Share your thoughts with the On Politics newsletter.`\
 https://nytimes.com/2024/06/17/us/politics/presidential-debate-reader-callout.html
-
-**Pressure Grows on Giuliani Over Incomplete Bankruptcy Filings**\
-`Creditors, the judge and a Justice Department official signaled that they were running out of patience with the former New York mayor’s accounts of his financial condition.`\
-https://nytimes.com/2024/06/17/us/politics/giuliani-bankruptcy-court.html
 
