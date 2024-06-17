@@ -1,3 +1,31 @@
+**A School With 7 Students: Inside the ‘Microschools’ Movement**\
+`Parents, desperate for help, are turning to private schools with a half-dozen or so students. And they are getting a financial boost from taxpayers.`\
+https://nytimes.com/2024/06/17/us/public-schools-education-voucher-microschools.html
+
+**He’s an Emergency Medical Worker Fighting to Save People From His Own Life**\
+`Joseph Earl Thomas’s new novel, “God Bless You, Otis Spunkmeyer,” follows a health care worker on a tumultuous shift where every other patient seems to be someone from his past.`\
+https://nytimes.com/2024/06/17/books/review/god-bless-you-otis-spunkmeyer-joseph-earl-thomas.html
+
+**A Bird-Flu Pandemic in People? Here’s What It Might Look Like.**\
+`There is no guarantee that a person-to-person virus would be benign, scientists say, and vaccines and treatments at hand may not be sufficient.`\
+https://nytimes.com/2024/06/17/health/bird-flu-pandemic-humans.html
+
+**Surgeon General Calls for Warning Labels on Social Media Platforms**\
+`Dr. Vivek Murthy said he would urge Congress to require a warning that social media use can harm teenagers’ mental health.`\
+https://nytimes.com/2024/06/17/health/surgeon-general-social-media-warning-label.html
+
+**Surgeon General: For Our Kids’ Safety, Social Media Platforms Need a Health Warning**\
+`It’s time for decisive action to protect our young people.`\
+https://nytimes.com/2024/06/17/opinion/social-media-health-warning.html
+
+**More Women in Africa Are Using Long-Acting Contraception, Changing Lives**\
+`Methods such as hormonal implants and injections are reaching remote areas, providing more discretion and autonomy.`\
+https://nytimes.com/2024/06/17/health/long-acting-contraception-africa.html
+
+**Urban Draws and Sandy Feet: 5 Cities With Great Beaches**\
+`Already been to Miami, Honolulu and Sydney? These other coastal destinations are vibrant on land and on the water, reliably offering visitors great beaches and urban adventures.`\
+https://nytimes.com/2024/06/17/travel/beach-city-destinations.html
+
 **The warning to Hezbollah echoes an earlier one from Netanyahu.**\
 `By Mike Ives and Randy Pennell`\
 https://nytimes.com/live/2024/06/17/world/israel-gaza-war-hamas/the-warning-to-hezbollah-echoes-an-earlier-one-from-netanyahu
@@ -9,32 +37,4 @@ https://nytimes.com/live/2024/06/17/world/israel-gaza-war-hamas
 **Here’s What You Discover When You Walk Every Block in New York City**\
 `Also, New York politicians have been promising to ease traffic for a century.`\
 https://nytimes.com/2024/06/17/nyregion/walking-new-york-city.html
-
-**Gilgo Suspect’s How-To Manual Reflects a Killer’s Mind, Prosecutors Say**\
-`Rex Heuermann meticulously assembled a document of techniques that prosecutors say he put into practice over decades of killings. One expert called it the suspect’s “blueprint for murder.”`\
-https://nytimes.com/2024/06/17/nyregion/rex-heueurmann-gilgo-beach-manual.html
-
-**The ‘Mad Men’ Era Is Long Over. Why Is Advertising Still So White?**\
-`Despite corporate promises and hiring campaigns, the ad industry is among New York City’s least diverse job sectors. It shows in the work, critics say.`\
-https://nytimes.com/2024/06/17/nyregion/advertising-diversity-mad-men.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/06/17/crosswords/spelling-bee-forum.html
-
-**Word of the Day: interminable**\
-`This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/06/17/learning/word-of-the-day-interminable.html
-
-**What’s on TV This Week: ‘Slave Play’ and ‘Orphan Black: Echoes’**\
-`HBO airs a documentary about the playwright Jeremy O. Harris. A new show starring Krysten Ritter premieres on AMC.`\
-https://nytimes.com/2024/06/17/arts/television/whats-on-tv-this-week-slave-play-and-orphan-black-echoes.html
-
-**U.N. Humanitarian Chief: World Leaders Are Failing Us**\
-`They are breaking the compact between ordinary people and those in whom power is vested.`\
-https://nytimes.com/2024/06/17/opinion/united-nations-gaza-ukraine.html
-
-**Monday Briefing**\
-`Israel plans to pause fighting at a Gaza border crossing.`\
-https://nytimes.com/2024/06/17/briefing/israel-fighting-pause-trump-resistance.html
 
