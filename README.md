@@ -1,4 +1,4 @@
-**A Warning on Social Media is the Very Least We Can Do**\
+**A Warning on Social Media Is the Very Least We Can Do**\
 `It’s a mere Band-Aid on a suppurating wound.`\
 https://nytimes.com/live/2024/06/12/opinion/thepoint/surgeon-general-social-media
 
