@@ -7,7 +7,7 @@ https://nytimes.com/2024/06/17/briefing/public-funding-private-education.html
 https://nytimes.com/2024/06/17/business/china-european-union-pork-exports.html
 
 **Netanyahu disbands his war cabinet after two of its five members quit.**\
-`The widely expected move came after two moderates quit the influential group last week.`\
+`The widely expected move came after two moderates resigned last week from the influential group, which made key decisions about the war in Gaza.`\
 https://nytimes.com/live/2024/06/17/world/israel-gaza-war-hamas/netanyahu-war-cabinet-israel
 
 **Russia Sets Date for Start of Evan Gershkovich’s Trial**\
