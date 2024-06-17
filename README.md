@@ -1,3 +1,7 @@
+**If the Earth Had a Voice, What Would It Say?**\
+`The global energy company EDP has answers for hypothetical questions posed by the Earth. `\
+https://nytimes.com/paidpost/edp/edp/if-the-earth-had-a-voice-what-would-it-say.html
+
 **Public Funding, Private Education**\
 `We explain a major change in U.S. public education.`\
 https://nytimes.com/2024/06/17/briefing/public-funding-private-education.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/17/weather/heat-wave-plains-northeast.html
 **‘A Hellscape’: Dire Conditions in Gaza Leave a Multitude of Amputees**\
 `Access to medical care and even clean water is limited, and the risk of infection is high, making it difficult for patients to get follow-up surgeries, prosthetics and rehabilitation.`\
 https://nytimes.com/2024/06/17/world/europe/gaza-amputation-hospitals.html
-
-**Biden Campaign Ad Paints Trump as a Felon**\
-`Democrats have been urging the president to more forcefully attack Donald Trump after his felony conviction by a New York jury.`\
-https://nytimes.com/2024/06/17/us/politics/trump-felon-biden-ad.html
 
