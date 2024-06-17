@@ -1,3 +1,11 @@
+**The Trump Rallying Cry That’s Also a Math Problem**\
+`His supporters can’t quite agree on whether to call him the 45th president or the 47th president.`\
+https://nytimes.com/2024/06/17/us/politics/trump-maga-45.html
+
+**Israeli Protesters Mass in Jerusalem to Call for Elections**\
+`The protesters demanded an end to the war and the release of hostages from Gaza, and also called for elections that many hoped would oust Prime Minister Benjamin Netanyahu.`\
+https://nytimes.com/2024/06/17/world/middleeast/israel-protests-government.html
+
 **Euro 2024 day four: Three games, two shocks, one Mbappe worry for France**\
 `We guide you through the main talking points from the fourth day of the 2024 European Championship`\
 https://nytimes.com/athletic/5570206/2024/06/17/euro-2024-day-four-mbappe-france/
