@@ -1,3 +1,11 @@
+**Former Arsenal exec Sanllehi named Miami's president of football operations**\
+`Inter Miami has named Raul Sanllehi as president of football operations, the club announced Monday.`\
+https://nytimes.com/athletic/5570756/2024/06/17/inter-miami-raul-sanllehi-who-arsenal-barcelona/
+
+**Israel Adesanya to face Du Plessis at UFC 305**\
+`UFC 305 will be held in Perth, Australia, where Adesanya is a fan favorite. Adesanya resides and trains in Auckland, New Zealand.`\
+https://nytimes.com/athletic/5570688/2024/06/17/israel-adesanya-dricus-du-plessis-ufc-305/
+
 **Effective Altruism Is Flawed. But What’s the Alternative?**\
 `The movement can’t answer our deepest moral questions, but it still has wisdom to offer.`\
 https://nytimes.com/2024/06/17/opinion/effective-altruism-philanthropy-charity.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/17/technology/us-adobe-subscription-lawsuit.html
 **Why DeChambeau didn't make U.S. Olympic golf team**\
 `Despite DeChambeau's U.S. Open win, the golfer did not obtain enough points in the Official World Golf Rankings to qualify for the Games.`\
 https://nytimes.com/athletic/5570609/2024/06/17/us-olympic-golf-team-paris-2024/
-
-**LeBrun: What Duncan Keith told the Oilers before Game 4 to make them believe in a comeback**\
-`The three-time champion, who retired with the Oilers and now works for the team, helped the Blackhawks nearly come back from 3-0 in 2011.`\
-https://nytimes.com/athletic/5570392/2024/06/17/duncan-keith-oilers-stanley-cup-comeback/
-
-**How to Throw a Greek Summer Party**\
-`According to Maria Lemos, the founder of the Athens boutique Mouki Mou, it’s all about “philoxenia,” a love of one’s guest.`\
-https://nytimes.com/2024/06/17/t-magazine/athens-greek-summer-party-mouki-mou.html
 

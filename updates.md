@@ -1,3 +1,19 @@
+**Effective Altruism Is Flawed. But What’s the Alternative?**\
+`The movement can’t answer our deepest moral questions, but it still has wisdom to offer.`\
+https://nytimes.com/2024/06/17/opinion/effective-altruism-philanthropy-charity.html
+
+**A Battlefield Break to Cheer Ukraine’s Soccer Team in Euro 2024**\
+`Soldiers huddled in a bunker with soft drinks and chips to watch Ukraine face Romania, only to suffer heartbreak.`\
+https://nytimes.com/2024/06/17/world/europe/ukraine-romania-soccer-euro-2024.html
+
+**China and Philippines Trade Angry Accusations After a Ship Collision**\
+`The clash is the latest in a string of confrontations that have increased tensions in the South China Sea.`\
+https://nytimes.com/2024/06/17/world/asia/china-philippines-boats-collide.html
+
+**Nottingham Forest working on deal for Red Star Belgrade's Stamenic**\
+`Nottingham Forest are working on a deal with Red Star Belgrade to sign the New Zealand international midfielder Marko Stamenic.`\
+https://nytimes.com/athletic/5570759/2024/06/17/marko-stamenic-nottingham-forest-transfer/
+
 **Maryland Governor Issues Sweeping Pardons for Marijuana Convictions**\
 `Gov. Wes Moore of Maryland pardoned more than 175,000 convictions on low-level marijuana charges, two years after the state legalized the use of recreational marijuana.`\
 https://nytimes.com/video/us/politics/100000009525753/maryland-marijuana-convictions-pardon.html
