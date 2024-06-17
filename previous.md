@@ -1,3 +1,11 @@
+**Taylor Swift’s ‘Tortured Poets’ Logs an Eighth Straight Week at No. 1**\
+`Billie Eilish holds at No. 2, and Charli XCX debuts strong at No. 3.`\
+https://nytimes.com/2024/06/17/arts/music/taylor-swift-tortured-poets-8-weeks-no-1.html
+
+**Maryland Governor to Erase 175,000 Marijuana Convictions**\
+`The state legalized the use of recreational marijuana in 2022. Several other states and the federal government have also wiped out low-level convictions for marijuana possession.`\
+https://nytimes.com/2024/06/17/us/maryland-marijuana-pardon-wes-moore.html
+
 **Rent Increases for 1 Million N.Y.C. Apartments Likely to Be Approved**\
 `The city panel that oversees rents for stabilized apartments had previously voted to back increases of between 2 and 4.5 percent on one-year leases.`\
 https://nytimes.com/2024/06/17/nyregion/nyc-rent-stabilized-apartments-vote-increase.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/17/business/dealbook/social-media-tobacco-acohol-war
 **P​utin Is to Visit North Korea, a Sign of Deepening Military Ties**\
 `​Needing munitions to fight in Ukraine, the Russian president plans to return to North Korea this week for the first time in nearly a quarter-century.`\
 https://nytimes.com/2024/06/17/world/asia/russia-north-korea-putin-kim.html
-
-**If the Earth Had a Voice, What Would It Say?**\
-`The global energy company EDP has answers for hypothetical questions posed by the Earth. `\
-https://nytimes.com/paidpost/edp/edp/if-the-earth-had-a-voice-what-would-it-say.html
-
-**Public Funding, Private Education**\
-`We explain a major change in U.S. public education.`\
-https://nytimes.com/2024/06/17/briefing/public-funding-private-education.html
 
