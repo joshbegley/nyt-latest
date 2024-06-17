@@ -1,3 +1,15 @@
+**Abortion United Evangelicals and Republicans. Now That Alliance Is Fraying.**\
+`The Southern Baptist Convention, long a bellwether for American evangelicalism, voted to oppose the use of in vitro fertilization.`\
+https://nytimes.com/2024/06/17/podcasts/the-daily/ivf-baptist-church.html
+
+**Wordle Review No. 1,095, June 18, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/17/crosswords/wordle-review-1095.html
+
+**A Heat Wave Hits the U.S., and a ‘Pause’ in Gaza Fighting**\
+`Plus, the Tony Awards honor the best of Broadway.`\
+https://nytimes.com/2024/06/17/podcasts/heat-wave-israel-tactical-pause-gaza.html
+
 **Northeast Braces for First Severe Heat of the Year**\
 `An excessive heat watch was in effect for southern New England, where forecasters warned of “dangerous heat” and humidity starting on Tuesday and lasting through Friday.`\
 https://nytimes.com/2024/06/17/weather/heat-wave-plains-northeast.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/17/arts/television/house-of-dragon-premiere-ending.h
 **I’m Moving to a New City. Do I Have to Change the Way I Dress?**\
 `A reader who is moving cross-country wonders how to adapt his wardrobe without compromising his sense of style.`\
 https://nytimes.com/2024/06/17/style/moving-style-new-city.html
-
-**Bird Flu Is Infecting Cats (and the Occasional Dog). Here’s What to Know.**\
-`A few “reasonable precautions” can help people keep their pets safe from the H5N1 virus, experts say.`\
-https://nytimes.com/2024/06/17/health/bird-flu-cats-dogs-h5n1.html
-
-**$1.4 Million Homes in California**\
-`A 1949 cottage in Lake Arrowhead, a Spanish-style home in Los Angeles and a Craftsman house in Berkeley.`\
-https://nytimes.com/2024/06/17/realestate/million-dollar-homes-california.html
-
-**After 40 Years of Dance, What Happens to a Dream Fulfilled?**\
-`Jawole Willa Jo Zollar, who founded Urban Bush Women four decades ago, says goodbye to it with a final work.`\
-https://nytimes.com/2024/06/17/arts/zollar-urban-bush-women-scat.html
 
