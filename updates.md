@@ -1,3 +1,17 @@
+**How important are college conference naming rights?**\
+`Welcome to Until Saturday, the five-star college football newsletter: How important are college conference naming rights?`\
+https://nytimes.com/athletic/5570807/2024/06/17/college-football-conference-sponsors-until-saturday/
+
+**William H. Donaldson, 93, Wall St. Powerbroker Who Led the S.E.C., Dies**\
+`He co-founded D.L.J., the first securities firm to offer shares to the public. As S.E.C. chairman, he pressed for a stronger watchdog role after a series of accounting scandals.`\
+https://nytimes.com/2024/06/17/business/dealbook/william-h-donaldson-dead.html
+
+**Top 5: NASCAR's Iowa visit shines, Martin Truex Jr. bows out, tire talk**\
+`NEWTON, Iowa — Five thoughts after NASCAR&#8217;s inaugural Cup Series weekend at Iowa Speedway &#8230;
+
+The enthusiasm was obvious from the start.`\
+https://nytimes.com/athletic/5570085/2024/06/17/nascar-iowa-martin-truex-jr-top-5/
+
 **Florida Used to Be a Swing State. Now Democrats Can Only Cling to Glimmers of Hope.**\
 `Democrats in the state are veering from cautious optimism to complete pessimism about their chances in 2024, with two liberal-leaning ballot measures having the potential to boost turnout.`\
 https://nytimes.com/2024/06/17/us/politics/florida-trump-biden-democrats.html
