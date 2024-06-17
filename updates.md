@@ -1,3 +1,11 @@
+**The war cabinet is gone. Who’s left in Netanyahu’s inner circle?**\
+`By Shashank Bengali`\
+https://nytimes.com/live/2024/06/17/world/israel-gaza-war-hamas/the-war-cabinet-is-gone-whos-left-in-netanyahus-inner-circle
+
+**Five questions entering Mavericks-Celtics Game 5. Plus, will Charles Barkley retire soon?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5570348/2024/06/17/dallas-mavericks-luka-doncic-kyrie-irving-charles-barkley-nba-finals-the-bounce/
+
 **Germany's pink kit becomes fastest-selling in team's history**\
 `Germany&#8217;s new pink kit has become the fastest-selling away shirt in the national team’s history.`\
 https://nytimes.com/athletic/5570245/2024/06/17/germany-pink-away-kit-adidas/
