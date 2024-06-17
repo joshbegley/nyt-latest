@@ -1,3 +1,7 @@
+**‘House of the Dragon’ Season 2 Premiere: Killing in the Name Of**\
+`The second season of HBO’s “Game of Thrones” prequel opens with an illicit affair and a misguided act of revenge.`\
+https://nytimes.com/2024/06/16/arts/television/house-of-the-dragon-season-2-premiere-recap.html
+
 **Chita Rivera’s Life and Career Are Honored at the Tonys**\
 `Rivera, who dazzled Broadway audiences for nearly seven decades, died in January at the age of 91.`\
 https://nytimes.com/2024/06/16/theater/chita-rivera-tonys-memoriam.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/16/us/rochester-hills-michigan-shooting.html
 **A Baltimore director receives the excellence in theater education award.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2024/06/16/theater/tony-awards/baltimore-director-education-tony
-
-**George C. Wolfe and Jack O’Brien are receiving lifetime achievement awards.**\
-`By Michael Paulson`\
-https://nytimes.com/live/2024/06/16/theater/tony-awards/obrien-wolfe-lifetime-achievement-tony-awards
 
