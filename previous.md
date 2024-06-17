@@ -1,3 +1,7 @@
+**The Connections Companion No. 373, June 18, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/17/crosswords/connections-companion-373.html
+
 **The Paths to Progress for Our Graduates**\
 `Responses to an essay about “no promise” graduates. Also: Justice Alito and “godliness”; Sudan’s tragedy; whistle-blower protections; dreading election night.`\
 https://nytimes.com/2024/06/17/opinion/college-graduates.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/17/special-series/south-africa-apartheid-forgiveness
 **Taylor Swift’s ‘Tortured Poets’ Logs an Eighth Straight Week at No. 1**\
 `Billie Eilish is No. 2, and Charli XCX debuts strong at No. 3.`\
 https://nytimes.com/2024/06/17/arts/music/taylor-swift-tortured-poets-8-weeks-no-1.html
-
-**Maryland Governor Erases 175,000 Marijuana Convictions**\
-`The state legalized the use of recreational marijuana in 2022. Several other states and the federal government have also wiped out low-level convictions for marijuana possession.`\
-https://nytimes.com/2024/06/17/us/maryland-marijuana-pardon-wes-moore.html
 
