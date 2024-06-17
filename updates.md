@@ -1,3 +1,11 @@
+**George Norcross, Democratic Power Broker, Is Charged With Racketeering**\
+`New Jersey’s attorney general, Matthew Platkin, had been investigating tax breaks that benefited companies close to Mr. Norcross.`\
+https://nytimes.com/2024/06/17/nyregion/george-norcross-new-jersey-indictment.html
+
+**Copa America 2024 squads: All 26-man selections from the 16 competing nations**\
+`The 2024 Copa America kicks off on Thursday, June 20, with hosts Argentina facing Canada at the Mercedes-Benz Stadium, Atlanta.`\
+https://nytimes.com/athletic/5558036/2024/06/17/copa-america-2024-squads-rosters-players/
+
 **The war cabinet is gone. Who’s left in Netanyahu’s inner circle?**\
 `By Shashank Bengali`\
 https://nytimes.com/live/2024/06/17/world/israel-gaza-war-hamas/the-war-cabinet-is-gone-whos-left-in-netanyahus-inner-circle

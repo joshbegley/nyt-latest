@@ -1,3 +1,11 @@
+**George Norcross, Democratic Power Broker, Is Charged With Racketeering**\
+`New Jersey’s attorney general, Matthew Platkin, had been investigating tax breaks that benefited companies close to Mr. Norcross.`\
+https://nytimes.com/2024/06/17/nyregion/george-norcross-new-jersey-indictment.html
+
+**Copa America 2024 squads: All 26-man selections from the 16 competing nations**\
+`The 2024 Copa America kicks off on Thursday, June 20, with hosts Argentina facing Canada at the Mercedes-Benz Stadium, Atlanta.`\
+https://nytimes.com/athletic/5558036/2024/06/17/copa-america-2024-squads-rosters-players/
+
 **The war cabinet is gone. Who’s left in Netanyahu’s inner circle?**\
 `By Shashank Bengali`\
 https://nytimes.com/live/2024/06/17/world/israel-gaza-war-hamas/the-war-cabinet-is-gone-whos-left-in-netanyahus-inner-circle
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/17/books/review/same-as-it-ever-was-claire-lombardo.
 **Several Injured After Mace and Fireworks Disrupt Pride Event in Baltimore**\
 `Multiple attendees were treated for injuries after a confrontation involving mace led to the event being shut down early, the police said.`\
 https://nytimes.com/2024/06/17/us/baltimore-pride-parade-chemical-agent.html
-
-**Wolves set to sign Pedro Lima, beating Chelsea to Brazilian prospect**\
-`Wolverhampton Wanderers have reached an agreement with Sport Recife to sign Pedro Lima.`\
-https://nytimes.com/athletic/5570299/2024/06/17/pedro-lima-wolves-transfer-chelsea/
-
-**The Connections Companion No. 373, June 18, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/06/17/crosswords/connections-companion-373.html
 
