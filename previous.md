@@ -1,6 +1,10 @@
+**What Weapons Has North Korea Already Supplied to Russia?**\
+`Moscow needs conventional arms like artillery shells and missiles that North Korea could provide to give it an edge in its war of attrition in Ukraine.`\
+https://nytimes.com/2024/06/17/us/politics/russia-north-korea-weapons-ukraine.html
+
 **A Warning on Social Media Is the Very Least We Can Do**\
 `It’s a mere Band-Aid on a suppurating wound.`\
-https://nytimes.com/live/2024/06/12/opinion/thepoint/surgeon-general-social-media
+https://nytimes.com/2024/06/12/opinion/surgeon-general-social-media.html
 
 **‘The Promised Land,’ ‘Biosphere’ and More Streaming Gems**\
 `Speculative science fiction, period drama and sly thrillers are among this month’s off-the-beaten-path recommendations from your subscription streamers.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/17/nyregion/nyc-rent-stabilized-apartments-vote-incr
 **Cosmic Horror Awaits Aboard a Perilous Oil Rig**\
 `The Chinese Room has long delivered unconventional game worlds. The metal offshore structure in Still Wakes the Deep might be its most evocatively realized yet.`\
 https://nytimes.com/2024/06/17/arts/still-wakes-the-deep-scotland.html
-
-**California May Ban Legacy Admissions at Universities**\
-`The State Assembly passed a bill banning colleges from considering family ties to donors or alumni in admissions decisions.`\
-https://nytimes.com/2024/06/17/us/california-legacy-admissions.html
 

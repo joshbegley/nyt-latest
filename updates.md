@@ -1,3 +1,11 @@
+**What Weapons Has North Korea Already Supplied to Russia?**\
+`Moscow needs conventional arms like artillery shells and missiles that North Korea could provide to give it an edge in its war of attrition in Ukraine.`\
+https://nytimes.com/2024/06/17/us/politics/russia-north-korea-weapons-ukraine.html
+
+**A Warning on Social Media Is the Very Least We Can Do**\
+`It’s a mere Band-Aid on a suppurating wound.`\
+https://nytimes.com/2024/06/12/opinion/surgeon-general-social-media.html
+
 **A Warning on Social Media Is the Very Least We Can Do**\
 `It’s a mere Band-Aid on a suppurating wound.`\
 https://nytimes.com/live/2024/06/12/opinion/thepoint/surgeon-general-social-media
