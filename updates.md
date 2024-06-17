@@ -1,3 +1,15 @@
+**Rent Increases for 1 Million N.Y.C. Apartments Likely to Be Approved**\
+`The city panel that oversees rents for stabilized apartments had previously voted to back increases of between 2 and 4.5 percent on one-year leases.`\
+https://nytimes.com/2024/06/17/nyregion/nyc-rent-stabilized-apartments-vote-increase.html
+
+**Cosmic Horror Awaits Aboard a Perilous Oil Rig**\
+`The Chinese Room has long delivered unconventional game worlds. The metal offshore structure in Still Wakes the Deep might be its most evocatively realized yet.`\
+https://nytimes.com/2024/06/17/arts/still-wakes-the-deep-scotland.html
+
+**California May Ban Legacy Admissions at Universities**\
+`The State Assembly passed a bill banning colleges from considering family ties to donors or alumni in admissions decisions.`\
+https://nytimes.com/2024/06/17/us/california-legacy-admissions.html
+
 **‘Inside! Inside!’: Sailors Recount Houthi Attack and U.S. Navy Rescue**\
 `The captain of a ship assaulted by the Yemen-based militia last week spoke at a news conference in Manila after the rescue.`\
 https://nytimes.com/2024/06/17/world/middleeast/sailors-us-navy-houthi-attack.html
