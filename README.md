@@ -1,3 +1,7 @@
+**U.S. Treasury Imposes New Sanctions to Cut Off Weapons to Houthis in Yemen**\
+`The Iranian-backed militia has in recent months launched dozens of attacks in the Red Sea, a crucial shipping route.`\
+https://nytimes.com/2024/06/17/world/middleeast/houthis-yemen-weapons-sanctions.html
+
 **Milos Raonic: 110 first serves, 47 aces, and one new ATP Tour record**\
 `How the Canadian broke an aces record — but still needed the full three sets to win`\
 https://nytimes.com/athletic/5571273/2024/06/17/milos-raonic-aces-record-atp-three-set-match/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/17/business/media/tony-awards-ratings.html
 **The Trump Rallying Cry That’s Also a Math Problem**\
 `His supporters can’t quite agree on whether to call him the 45th president or the 47th president.`\
 https://nytimes.com/2024/06/17/us/politics/trump-maga-45.html
-
-**Israeli Protesters Mass in Jerusalem to Call for Elections**\
-`The protesters demanded an end to the war and the release of hostages from Gaza, and also called for elections that many hoped would oust Prime Minister Benjamin Netanyahu.`\
-https://nytimes.com/2024/06/17/world/middleeast/israel-protests-government.html
 
