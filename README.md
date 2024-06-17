@@ -27,7 +27,7 @@ https://nytimes.com/interactive/2024/06/17/us/iowa-immigration-ruling.html
 https://nytimes.com/2024/06/17/world/middleeast/houthis-yemen-weapons-sanctions.html
 
 **Milos Raonic has 110 first serves, 47 aces and one new ATP Tour record**\
-`How the Canadian broke an aces record — but still needed the full three sets to win`\
+`Here's how the Canadian broke an aces record — but still needed the full three sets to win`\
 https://nytimes.com/athletic/5571273/2024/06/17/milos-raonic-aces-record-atp-three-set-match/
 
 **Judge Blocks Iowa’s Attempt to Enforce Its Own Immigration Laws**\
