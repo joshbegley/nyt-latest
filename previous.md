@@ -1,3 +1,11 @@
+**The ‘Mad Men’ Era Is Long Over. Why Is Advertising Still So White?**\
+`Despite corporate promises and hiring campaigns, the ad industry is among New York City’s least diverse job sectors. It shows in the work, critics say.`\
+https://nytimes.com/2024/06/17/nyregion/advertising-diversity-mad-men.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/06/17/crosswords/spelling-bee-forum.html
+
 **Word of the Day: interminable**\
 `This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/06/17/learning/word-of-the-day-interminable.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/17/pageoneplus/quotation-of-the-day-hatching-plans-f
 **Maleah Joi Moon Wins a Tony for Her First Professional Role**\
 `Moon, 21, made her Broadway debut in the Alicia Keys musical “Hell’s Kitchen.”`\
 https://nytimes.com/2024/06/16/theater/maleah-joi-moon-best-leading-actress-tony.html
-
-**‘The Outsiders,’ a Broadway Adaptation of the Classic Novel, Wins the Tony for Best Musical**\
-`The gritty, bloody and relentlessly youthful musical features some of the most effectively vivid violence seen on a Broadway stage.`\
-https://nytimes.com/2024/06/16/theater/the-outsiders-best-musical-tony.html
-
-**Jonathan Groff’s Star Turn in ‘Merrily We Roll Along’ Lands Him His First Tony**\
-`The gregarious performer who loves and is loved by Broadway picked up a trophy for best leading actor in a musical.`\
-https://nytimes.com/2024/06/16/theater/jonathan-groff-first-tony-award.html
 

@@ -1,3 +1,11 @@
+**The ‘Mad Men’ Era Is Long Over. Why Is Advertising Still So White?**\
+`Despite corporate promises and hiring campaigns, the ad industry is among New York City’s least diverse job sectors. It shows in the work, critics say.`\
+https://nytimes.com/2024/06/17/nyregion/advertising-diversity-mad-men.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/06/17/crosswords/spelling-bee-forum.html
+
 **Word of the Day: interminable**\
 `This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/06/17/learning/word-of-the-day-interminable.html
