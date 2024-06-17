@@ -1,3 +1,7 @@
+**A Warning on Social Media Is the Very Least We Can Do**\
+`It’s a mere Band-Aid on a suppurating wound.`\
+https://nytimes.com/live/2024/06/12/opinion/thepoint/surgeon-general-social-media
+
 **‘The Promised Land,’ ‘Biosphere’ and More Streaming Gems**\
 `Speculative science fiction, period drama and sly thrillers are among this month’s off-the-beaten-path recommendations from your subscription streamers.`\
 https://nytimes.com/2024/06/17/movies/the-promised-land-biosphere-streaming-movies.html
