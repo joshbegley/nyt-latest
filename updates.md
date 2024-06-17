@@ -1,3 +1,7 @@
+**But It’s Only June: An Early Blast of Heat Grips Much of the U.S.**\
+`Heat overwhelmed cities across the Midwest and was headed to the Northeast. High temperatures are expected to linger for days.`\
+https://nytimes.com/2024/06/17/us/17nat-midwest-heat-wave.html
+
 **Blues 2024 NHL Draft roundtable: GM Doug Armstrong discusses D depth, moving up and more**\
 `In addition to the NHL Draft, Armstrong addressed Pavel Buchnevich's contract negotiations, buyouts and pending UFAs.`\
 https://nytimes.com/athletic/5532645/2024/06/17/blues-2024-nhl-draft-trade/

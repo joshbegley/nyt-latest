@@ -1,3 +1,7 @@
+**But It’s Only June: An Early Blast of Heat Grips Much of the U.S.**\
+`Heat overwhelmed cities across the Midwest and was headed to the Northeast. High temperatures are expected to linger for days.`\
+https://nytimes.com/2024/06/17/us/17nat-midwest-heat-wave.html
+
 **Yankees’ Anthony Rizzo could miss 4-6 weeks with arm fracture; won’t need surgery: Source**\
 `First baseman Anthony Rizzo has a fracture to the radial neck of his right forearm`\
 https://nytimes.com/athletic/5571406/2024/06/17/yankees-anthony-rizzo-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5571273/2024/06/17/milos-raonic-aces-record-atp-thr
 **Judge Blocks Iowa’s Attempt to Enforce Its Own Immigration Laws**\
 `The Justice Department sued the state over the Republican-backed law, which creates state-level criminal penalties for some unauthorized immigrants.`\
 https://nytimes.com/2024/06/17/us/iowa-immigration-ruling.html
-
-**Why the Covenant School Shooter’s Writings Have Not Yet Been Released**\
-`A Nashville judge indicated on Monday that she would soon rule on whether the writings left by the Nashville school shooter could be made public.`\
-https://nytimes.com/2024/06/17/us/politics/covenant-school-nashville-shooting-writings.html
 
