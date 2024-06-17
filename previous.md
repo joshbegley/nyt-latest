@@ -10,7 +10,7 @@ https://nytimes.com/2024/06/17/special-series/south-africa-apartheid-forgiveness
 `Billie Eilish is No. 2, and Charli XCX debuts strong at No. 3.`\
 https://nytimes.com/2024/06/17/arts/music/taylor-swift-tortured-poets-8-weeks-no-1.html
 
-**Maryland Governor to Erase 175,000 Marijuana Convictions**\
+**Maryland Governor Erases 175,000 Marijuana Convictions**\
 `The state legalized the use of recreational marijuana in 2022. Several other states and the federal government have also wiped out low-level convictions for marijuana possession.`\
 https://nytimes.com/2024/06/17/us/maryland-marijuana-pardon-wes-moore.html
 

@@ -1,3 +1,7 @@
+**Maryland Governor Erases 175,000 Marijuana Convictions**\
+`The state legalized the use of recreational marijuana in 2022. Several other states and the federal government have also wiped out low-level convictions for marijuana possession.`\
+https://nytimes.com/2024/06/17/us/maryland-marijuana-pardon-wes-moore.html
+
 **You’ve Seen the Movie — Now Name the Book That Inspired It**\
 `This quick quiz challenges you to identify a film’s source material based on a photo. Click here to play!`\
 https://nytimes.com/interactive/2024/06/17/books/review/movie-still-quiz.html
