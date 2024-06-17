@@ -1,3 +1,11 @@
+**Maleah Joi Moon wins the Tony Award for best leading actress in a musical.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/06/16/theater/tony-awards/maleah-joi-moon-wins-the-tony-award-for-best-leading-actress-in-a-musical
+
+**‘The Outsiders,’ a Broadway Adaptation of the Classic Novel, Wins the Tony for Best Musical**\
+`The gritty, bloody and relentlessly youthful musical features some of the most effectively vivid violence seen on a Broadway stage.`\
+https://nytimes.com/2024/06/16/theater/the-outsiders-best-musical-tony.html
+
 **Jonathan Groff’s Star Turn in ‘Merrily We Roll Along’ Lands Him His First Tony**\
 `The gregarious performer who loves and is loved by Broadway picked up a trophy for best leading actor in a musical.`\
 https://nytimes.com/2024/06/16/theater/jonathan-groff-first-tony-award.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/16/theater/chita-rivera-tonys-memoriam.html
 **‘Appropriate’ won the Tony Award for best revival of a play.**\
 `By Alexis Soloski`\
 https://nytimes.com/live/2024/06/16/theater/tony-awards/appropriate-won-the-tony-award-for-best-revival-of-a-play
-
-**Daniel Radcliffe Conjures Up His First Tony**\
-`“Merrily We Roll Along” is Radcliffe’s fifth show on Broadway, but the first for which he was even nominated for a Tony Award.`\
-https://nytimes.com/2024/06/16/theater/daniel-radcliffe-first-tony-award.html
-
-**Jeremy Strong wins his first Tony Award for ‘An Enemy of the People.’**\
-`By Sarah Bahr`\
-https://nytimes.com/live/2024/06/16/theater/tony-awards/jeremy-strong-wins-his-first-tony-award-for-an-enemy-of-the-people
 
