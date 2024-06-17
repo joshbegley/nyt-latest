@@ -1,3 +1,11 @@
+**School’s Out. Time for a Social Media Reset.**\
+`The surgeon general wants more restrictions on social media to protect children’s health. Here’s how to help your kids cut down on screen time this summer.`\
+https://nytimes.com/2024/06/17/well/family/social-media-summer-kids.html
+
+**Tuesday Briefing: Netanyahu Disbands His War Cabinet**\
+`Also, President Vladimir Putin’s state visit to North Korea.`\
+https://nytimes.com/2024/06/17/world/asia/israel-cabinet-putin-korea-asia.html
+
 **Les Miles sues LSU over vacated wins**\
 `Miles’ recognized win-loss coaching record is 108-73 (.597), just below the .600 mark required for Hall of Fame consideration.`\
 https://nytimes.com/athletic/5570788/2024/06/17/les-miles-lsu-lawsuit/
@@ -31,12 +39,4 @@ https://nytimes.com/2024/06/17/business/dealbook/william-h-donaldson-dead.html
 
 The enthusiasm was obvious from the start.`\
 https://nytimes.com/athletic/5570085/2024/06/17/nascar-iowa-martin-truex-jr-top-5/
-
-**Florida Used to Be a Swing State. Now Democrats Can Only Cling to Glimmers of Hope.**\
-`Democrats in the state are veering from cautious optimism to complete pessimism about their chances in 2024, with two liberal-leaning ballot measures having the potential to boost turnout.`\
-https://nytimes.com/2024/06/17/us/politics/florida-trump-biden-democrats.html
-
-**Former Arsenal exec Sanllehi named Miami's president of football operations**\
-`Inter Miami has named Raul Sanllehi as president of football operations, the club announced Monday.`\
-https://nytimes.com/athletic/5570756/2024/06/17/inter-miami-raul-sanllehi-who-arsenal-barcelona/
 
