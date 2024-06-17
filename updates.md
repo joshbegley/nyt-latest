@@ -1,3 +1,7 @@
+**Jonathan Groff’s Star Turn in ‘Merrily We Roll Along’ Lands Him His First Tony**\
+`The gregarious performer who loves and is loved by Broadway picked up a trophy for best leading actor in a musical.`\
+https://nytimes.com/2024/06/16/theater/jonathan-groff-first-tony-award.html
+
 **Sarah Paulson Wins Her First Tony for Best Actress in a Play**\
 `In the searing family drama “Appropriate,” Paulson plays an elder sister intent on protecting her father’s legacy.`\
 https://nytimes.com/2024/06/16/theater/sarah-paulson-first-tony-appropriate.html
