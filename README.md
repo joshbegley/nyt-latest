@@ -6,7 +6,7 @@ https://nytimes.com/2024/06/17/arts/music/taylor-swift-tortured-poets-8-weeks-no
 `The state legalized the use of recreational marijuana in 2022. Several other states and the federal government have also wiped out low-level convictions for marijuana possession.`\
 https://nytimes.com/2024/06/17/us/maryland-marijuana-pardon-wes-moore.html
 
-**Rent Increases for 1 Million N.Y.C. Apartments Likely to Be Approved**\
+**Rent Increases for 1 Million N.Y.C. Apartments Are Likely to Be Approved**\
 `The city panel that oversees rents for stabilized apartments had previously voted to back increases of between 2 and 4.5 percent on one-year leases.`\
 https://nytimes.com/2024/06/17/nyregion/nyc-rent-stabilized-apartments-vote-increase.html
 
