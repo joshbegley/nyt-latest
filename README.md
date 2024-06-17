@@ -1,3 +1,11 @@
+**Public Funding, Private Education**\
+`We explain a major change in U.S. public education.`\
+https://nytimes.com/2024/06/17/briefing/public-funding-private-education.html
+
+**Facing E.V. Tariffs, China Threatens Pork Imports From Europe**\
+`Acting quickly after the European Union imposed extra tariffs of up to 38 percent on China’s electric cars, Beijing opened a trade case on Europe’s pork.`\
+https://nytimes.com/2024/06/17/business/china-european-union-pork-exports.html
+
 **Netanyahu disbands his war cabinet after two of its five members quit.**\
 `The widely expected move came after two moderates quit the influential group last week.`\
 https://nytimes.com/live/2024/06/17/world/israel-gaza-war-hamas/netanyahu-war-cabinet-israel
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/17/world/europe/gaza-amputation-hospitals.html
 **Biden Campaign Ad Paints Trump as a Felon**\
 `Democrats have been urging the president to more forcefully attack Donald Trump after his felony conviction by a New York jury.`\
 https://nytimes.com/2024/06/17/us/politics/trump-felon-biden-ad.html
-
-**Democrats Announce a $10 Million Push for State Legislatures**\
-`An unusually early and large Democratic Legislative Campaign Committee investment is aimed at getting voters to pay more attention to state legislative races.`\
-https://nytimes.com/2024/06/17/us/politics/democrats-state-legislatures-dlcc.html
-
-**Why the Election Is Slipping Away From President Biden Right Now**\
-`Everything is coming down to a debate, and to the voters of Pennsylvania.`\
-https://nytimes.com/live/2024/06/12/opinion/thepoint/tipsheet-biden-trump-polls
 
