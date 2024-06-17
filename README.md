@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5571029/2024/06/17/brandon-aiyuk-49ers-contract-neg
 https://nytimes.com/athletic/5571084/2024/06/17/kylian-mbappe-nose-injury-france-how-long/
 
 **The Briefing: Austria 0 France 1 - Mbappe's bloodied nose, pitch problems, Deschamps' dilemma**\
-`France were made to work hard for an opening victory over Austria - The Athletic analyses the talking points (and the pitch) in Dusseldorf`\
+`Kylian Mbappe suffered a horrible nose injury as France won their opening game of Euro 2024 against Austria on a tricky pitch`\
 https://nytimes.com/athletic/5564570/2024/06/17/austria-0-france-1-mbappe-deschamps-euro-2024/
 
 **The A.I. Influencer Ads Are Coming**\
