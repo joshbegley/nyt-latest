@@ -1,3 +1,11 @@
+**Yankees’ Anthony Rizzo could miss 4-6 weeks with arm fracture; won’t need surgery: Source**\
+`First baseman Anthony Rizzo has a fracture to the radial neck of his right forearm`\
+https://nytimes.com/athletic/5571406/2024/06/17/yankees-anthony-rizzo-injury/
+
+**Chicago Mayor Orders Task Force on Reparations for Black Residents**\
+`Once the panel is established, it will have about a year to determine what reparations should look like in the city.`\
+https://nytimes.com/2024/06/17/us/brandon-johnson-chicago-mayor-reparations-task-force.html
+
 **Celtics' Porziņģis available for Game 5 vs. Mavs**\
 `Celtics coach Joe Mazzulla said to "expect to see" Kristaps Porziņģis on the floor for Game 5 of the NBA Finals.`\
 https://nytimes.com/athletic/5571399/2024/06/17/kristaps-porzingis-game-5-status-celtics/
@@ -22,19 +30,11 @@ https://nytimes.com/2024/06/17/world/middleeast/houthis-yemen-weapons-sanctions.
 `How the Canadian broke an aces record — but still needed the full three sets to win`\
 https://nytimes.com/athletic/5571273/2024/06/17/milos-raonic-aces-record-atp-three-set-match/
 
-**Federal Judge Blocks Iowa Law Allowing State-Level Immigration Enforcement**\
+**Judge Blocks Iowa’s Attempt to Enforce Its Own Immigration Laws**\
 `The Justice Department sued the state over the Republican-backed law, which creates state-level criminal penalties for some unauthorized immigrants.`\
 https://nytimes.com/2024/06/17/us/iowa-immigration-ruling.html
 
 **Why the Covenant School Shooter’s Writings Have Not Yet Been Released**\
 `A Nashville judge indicated on Monday that she would soon rule on whether the writings left by the Nashville school shooter could be made public.`\
 https://nytimes.com/2024/06/17/us/politics/covenant-school-nashville-shooting-writings.html
-
-**McIlroy says he'll take 3-week hiatus from golf**\
-`Rory McIlroy three-week hiatus from competitive golf, to return for Genesis Scott Open.`\
-https://nytimes.com/athletic/5571260/2024/06/17/rory-mcilroy-withdraw-travelers-championship/
-
-**George R. Nethercutt Jr., Who Ousted a House Speaker, Dies at 79**\
-`He defeated Thomas S. Foley of Washington State in the 1994 Republican midterm sweep. It was the first time since the Civil War-era that voters had rejected a House speaker.`\
-https://nytimes.com/2024/06/17/obituaries/george-r-nethercutt-jr-dead.html
 
