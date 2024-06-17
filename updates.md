@@ -1,3 +1,7 @@
+**Blues 2024 NHL Draft roundtable: GM Doug Armstrong discusses D depth, moving up and more**\
+`In addition to the NHL Draft, Armstrong addressed Pavel Buchnevich's contract negotiations, buyouts and pending UFAs.`\
+https://nytimes.com/athletic/5532645/2024/06/17/blues-2024-nhl-draft-trade/
+
 **Milos Raonic has 110 first serves, 47 aces and one new ATP Tour record**\
 `Here's how the Canadian broke an aces record — but still needed the full three sets to win`\
 https://nytimes.com/athletic/5571273/2024/06/17/milos-raonic-aces-record-atp-three-set-match/

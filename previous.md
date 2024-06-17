@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5571399/2024/06/17/kristaps-porzingis-game-5-status
 https://nytimes.com/2024/06/17/world/middleeast/israel-gaza-pause-border-crossing.html
 
 **Blues 2024 NHL Draft roundtable: GM Doug Armstrong discusses D depth, moving up and more**\
-`In addition to the NHL Draft, Blues GM Doug Armstrong addressed Pavel Buchnevich's contract negotiations, buyouts and pending UFAs.`\
+`In addition to the NHL Draft, Armstrong addressed Pavel Buchnevich's contract negotiations, buyouts and pending UFAs.`\
 https://nytimes.com/athletic/5532645/2024/06/17/blues-2024-nhl-draft-trade/
 
 **Read the Federal Judge’s Ruling**\
