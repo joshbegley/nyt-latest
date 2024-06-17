@@ -1,3 +1,11 @@
+**Top Real Estate Brokerage Shaken by Sexual Assault Claims**\
+`Oren Alexander, a co-founder of Official, a brokerage that caters to the ultrawealthy, and his twin brother, Alon, faces allegations that they sexually assaulted women. They have denied wrongdoing through a lawyer.`\
+https://nytimes.com/2024/06/17/realestate/oren-alon-alexander-sexual-assault-allegations.html
+
+**AFC North to be featured on Hard Knocks**\
+`The series will focus on the final six weeks of the regular season and the playoff runs for AFC North teams. `\
+https://nytimes.com/athletic/5570589/2024/06/17/nfl-afc-north-hbo-hard-knocks/
+
 **Michigan and CUNY Mishandled Discrimination Complaints, Education Dept. Finds**\
 `The department concluded that both schools failed to appropriately respond to complaints that campus protests had veered into antisemitism and anti-Arab discrimination.`\
 https://nytimes.com/2024/06/17/us/politics/michigan-cuny-discrimination-complaints.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/17/travel/heat-waves-travel-precautions.html
 **Klay Thompson to join Team Bahamas for Olympic training camp**\
 `Klay Thompson won a gold medal with Team USA in 2016.`\
 https://nytimes.com/athletic/5569817/2024/06/17/klay-thompson-bahamas-olympics-camp/
-
-**Why Jay-Z’s Big Tonys Duet With Alicia Keys Was Offstage**\
-`The two stars brought down the house with “Empire State of Mind,” their 2009 love song to New York City, which they performed on a grand marble staircase outside the auditorium.`\
-https://nytimes.com/2024/06/17/theater/jay-z-alicia-keys-empire-state-of-mind-tonys.html
-
-**The daily pause applies to part of southern Gaza, but not to some of the places most in need.**\
-`By Patrick Kingsley and Adam Rasgon`\
-https://nytimes.com/live/2024/06/17/world/israel-gaza-war-hamas/israel-gaza-pause-fighting-aid
 

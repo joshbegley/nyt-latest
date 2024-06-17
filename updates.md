@@ -1,3 +1,11 @@
+**Top Real Estate Brokerage Shaken by Sexual Assault Claims**\
+`Oren Alexander, a co-founder of Official, a brokerage that caters to the ultrawealthy, and his twin brother, Alon, faces allegations that they sexually assaulted women. They have denied wrongdoing through a lawyer.`\
+https://nytimes.com/2024/06/17/realestate/oren-alon-alexander-sexual-assault-allegations.html
+
+**AFC North to be featured on Hard Knocks**\
+`The series will focus on the final six weeks of the regular season and the playoff runs for AFC North teams. `\
+https://nytimes.com/athletic/5570589/2024/06/17/nfl-afc-north-hbo-hard-knocks/
+
 **Michigan and CUNY Mishandled Discrimination Complaints, Education Dept. Finds**\
 `The department concluded that both schools failed to appropriately respond to complaints that campus protests had veered into antisemitism and anti-Arab discrimination.`\
 https://nytimes.com/2024/06/17/us/politics/michigan-cuny-discrimination-complaints.html
