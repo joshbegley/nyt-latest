@@ -1,3 +1,11 @@
+**Record Number of NATO Allies Hit Military Spending Targets**\
+`President Biden and the NATO secretary general sought to present a robust and united front against Russia as the alliance prepares for its annual meeting next month.`\
+https://nytimes.com/2024/06/17/us/politics/nato-military-spending-targets.html
+
+**In Indiana, the MAGA Revolution Eats Its Own**\
+`A Christian nationalist upset causes Republican angst.`\
+https://nytimes.com/2024/06/17/opinion/indiana-christian-nationalist-republican-party.html
+
 **Yankees’ Rizzo could miss 4-6 weeks with arm fracture**\
 `First baseman Anthony Rizzo has a fracture to the radial neck of his right forearm`\
 https://nytimes.com/athletic/5571406/2024/06/17/yankees-anthony-rizzo-injury/
