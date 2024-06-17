@@ -1,3 +1,11 @@
+**Yankees' Cole to make season debut Wednesday**\
+`NEW YORK — Reigning American League Cy Young Award winner Gerrit Cole will make his season debut for the New York Yankees on Wednesday night against the Baltimore Orioles, a team source confirmed to The Athletic.`\
+https://nytimes.com/athletic/5570892/2024/06/17/yankees-gerrit-cole-season-debut/
+
+**What to Know About This Week’s Heat Wave in New York**\
+`Temperatures are expected to climb into the high 90s in New York City this week. Cooling centers will open on Tuesday.`\
+https://nytimes.com/2024/06/17/nyregion/nyc-heat-wave-northeast.html
+
 **How important are college conference naming rights?**\
 `Welcome to Until Saturday, the five-star college football newsletter: How important are college conference naming rights?`\
 https://nytimes.com/athletic/5570807/2024/06/17/college-football-conference-sponsors-until-saturday/
@@ -31,12 +39,4 @@ https://nytimes.com/2024/06/17/opinion/effective-altruism-philanthropy-charity.h
 **A Battlefield Break to Cheer Ukraine’s Soccer Team in Euro 2024**\
 `Soldiers huddled in a bunker with soft drinks and chips to watch Ukraine face Romania, only to suffer heartbreak.`\
 https://nytimes.com/2024/06/17/world/europe/ukraine-romania-soccer-euro-2024.html
-
-**China and Philippines Trade Angry Accusations After a Ship Collision**\
-`The clash is the latest in a string of confrontations that have increased tensions in the South China Sea.`\
-https://nytimes.com/2024/06/17/world/asia/china-philippines-boats-collide.html
-
-**Nottingham Forest working on deal for Red Star Belgrade's Stamenic**\
-`Nottingham Forest are working on a deal with Red Star Belgrade to sign the New Zealand international midfielder Marko Stamenic.`\
-https://nytimes.com/athletic/5570759/2024/06/17/marko-stamenic-nottingham-forest-transfer/
 

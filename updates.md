@@ -1,3 +1,11 @@
+**Yankees' Cole to make season debut Wednesday**\
+`NEW YORK — Reigning American League Cy Young Award winner Gerrit Cole will make his season debut for the New York Yankees on Wednesday night against the Baltimore Orioles, a team source confirmed to The Athletic.`\
+https://nytimes.com/athletic/5570892/2024/06/17/yankees-gerrit-cole-season-debut/
+
+**What to Know About This Week’s Heat Wave in New York**\
+`Temperatures are expected to climb into the high 90s in New York City this week. Cooling centers will open on Tuesday.`\
+https://nytimes.com/2024/06/17/nyregion/nyc-heat-wave-northeast.html
+
 **How important are college conference naming rights?**\
 `Welcome to Until Saturday, the five-star college football newsletter: How important are college conference naming rights?`\
 https://nytimes.com/athletic/5570807/2024/06/17/college-football-conference-sponsors-until-saturday/
