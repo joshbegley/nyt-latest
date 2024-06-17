@@ -1,3 +1,7 @@
+**Pressure Grows on Giuliani Over Incomplete Bankruptcy Filings**\
+`Creditors, the judge and a Justice Department official signaled that they were running out of patience with the former New York mayor’s accounts of his financial condition.`\
+https://nytimes.com/2024/06/17/us/politics/giuliani-bankruptcy-court.html
+
 **Chicago Braces for First Heat Wave of 2024**\
 `The excessive heat heading across the country this week is expected to be a dangerous weather system days before summer officially begins, forecasters said.`\
 https://nytimes.com/video/weather/100000009527084/northeast-chicago-heat.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/17/style/tiktok-ads-ai-influencers.html
 **The Washington Post Delves Into a Difficult Story: Itself**\
 `The newspaper has been reeling from successive revelations about Robert Winnett, its incoming editor, and Will Lewis, its chief executive.`\
 https://nytimes.com/2024/06/17/business/media/washington-post-editor-turmoil.html
-
-**Dozens of Groups Push FEMA to Recognize Extreme Heat as a ‘Major Disaster’**\
-`The labor and environmental groups are pushing the change so relief funds can be used in more situations.`\
-https://nytimes.com/2024/06/17/climate/labor-unions-fema-disaster-relief.html
 
