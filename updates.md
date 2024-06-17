@@ -1,3 +1,7 @@
+**Milos Raonic has 110 first serves, 47 aces and one new ATP Tour record**\
+`Here's how the Canadian broke an aces record — but still needed the full three sets to win`\
+https://nytimes.com/athletic/5571273/2024/06/17/milos-raonic-aces-record-atp-three-set-match/
+
 **Yankees’ Anthony Rizzo could miss 4-6 weeks with arm fracture; won’t need surgery: Source**\
 `First baseman Anthony Rizzo has a fracture to the radial neck of his right forearm`\
 https://nytimes.com/athletic/5571406/2024/06/17/yankees-anthony-rizzo-injury/
