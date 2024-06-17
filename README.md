@@ -1,3 +1,7 @@
+**Why Do We Fear Forgiveness?**\
+`Choosing to forgive can be frightening, but it’s a powerful tool for repairing the harm done by violence, oppression and other traumas.`\
+https://nytimes.com/2024/06/17/special-series/south-africa-apartheid-forgiveness-fear.html
+
 **Taylor Swift’s ‘Tortured Poets’ Logs an Eighth Straight Week at No. 1**\
 `Billie Eilish is No. 2, and Charli XCX debuts strong at No. 3.`\
 https://nytimes.com/2024/06/17/arts/music/taylor-swift-tortured-poets-8-weeks-no-1.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/17/world/asia/india-train-crash.html
 **Is Social Media the New Tobacco?**\
 `Vivek Murthy, the U.S. surgeon general, wants warning labels on the tech platforms, arguing that they are fueling a mental health crisis among teens.`\
 https://nytimes.com/2024/06/17/business/dealbook/social-media-tobacco-acohol-warning-labels.html
-
-**P​utin Is to Visit North Korea, a Sign of Deepening Military Ties**\
-`​Needing munitions to fight in Ukraine, the Russian president plans to return to North Korea this week for the first time in nearly a quarter-century.`\
-https://nytimes.com/2024/06/17/world/asia/russia-north-korea-putin-kim.html
 
