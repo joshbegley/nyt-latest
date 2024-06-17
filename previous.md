@@ -2,7 +2,7 @@
 `While trying to save large amphibians native to Japan, herpetologists in the country unexpectedly found a way to potentially save an even bigger species in China.`\
 https://nytimes.com/2024/06/17/science/giant-salamanders-japan-china.html
 
-**‘Inside! Inside!’ Sailors Recount Houthi Attack and U.S. Navy Rescue**\
+**‘Inside! Inside!’: Sailors Recount Houthi Attack and U.S. Navy Rescue**\
 `The captain of a ship assaulted by the Yemen-based militia last week spoke at a news conference in Manila after the rescue.`\
 https://nytimes.com/2024/06/17/world/middleeast/sailors-us-navy-houthi-attack.html
 
