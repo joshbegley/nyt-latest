@@ -1,3 +1,7 @@
+**Euro 2024 odds for Tuesday's two group matches including Portugal-Czechia**\
+`The final set of opening group matches of Euro 2024 take place on Tuesday with Portugal and Czechia highlighting Group F action.`\
+https://nytimes.com/athletic/5570388/2024/06/17/euro-2024-odds-portugal-czech-republic/
+
 **Brandon Aiyuk says 49ers 'don't want me back'**\
 `Aiyuk is set to enter the final year of his rookie contract after leading the 49ers with 75 catches and 1,342 receiving yards last season.`\
 https://nytimes.com/athletic/5571029/2024/06/17/brandon-aiyuk-49ers-contract-negotiation/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/17/world/asia/israel-cabinet-putin-korea-asia.html
 **Les Miles sues LSU over vacated wins**\
 `Miles’ recognized win-loss coaching record is 108-73 (.597), just below the .600 mark required for Hall of Fame consideration.`\
 https://nytimes.com/athletic/5570788/2024/06/17/les-miles-lsu-lawsuit/
-
-**Biden Administration’s New Title IX Rules Are Blocked in Six More States**\
-`Conservative groups and Republican attorneys general have argued that the protections for transgender students come at the expense of others’ privacy and conflicts with a number of state laws.`\
-https://nytimes.com/2024/06/17/us/politics/new-title-ix-rules-blocked.html
 

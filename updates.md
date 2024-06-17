@@ -1,3 +1,7 @@
+**Euro 2024 odds for Tuesday's two group matches including Portugal-Czechia**\
+`The final set of opening group matches of Euro 2024 take place on Tuesday with Portugal and Czechia highlighting Group F action.`\
+https://nytimes.com/athletic/5570388/2024/06/17/euro-2024-odds-portugal-czech-republic/
+
 **Mbappe nose injury 'not good at all' after France captain forced off**\
 `Kylian Mbappe&#8217;s nose injury is &#8220;not good at all&#8221; after the France captain was forced off in the latter stages of his side&#8217;s Euro 2024 group stage victory against Austria.`\
 https://nytimes.com/athletic/5571084/2024/06/17/kylian-mbappe-nose-injury-france-how-long/
