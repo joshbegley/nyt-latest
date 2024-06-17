@@ -1,3 +1,7 @@
+**If the Earth Had a Voice, What Would It Say?**\
+`The global energy company EDP has answers for hypothetical questions posed by the Earth. `\
+https://nytimes.com/paidpost/edp/edp/if-the-earth-had-a-voice-what-would-it-say.html
+
 **Netanyahu disbands his war cabinet after two of its five members quit.**\
 `The widely expected move came after two moderates resigned last week from the influential group, which made key decisions about the war in Gaza.`\
 https://nytimes.com/live/2024/06/17/world/israel-gaza-war-hamas/netanyahu-war-cabinet-israel
