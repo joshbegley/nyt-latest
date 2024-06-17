@@ -1,3 +1,7 @@
+**P​utin to Visit North Korea, a Newly Crucial Ally as Ukraine War Drags On**\
+`​Needing munitions to fight in Ukraine, President Vladimir V. Putin plans to return to North Korea this week for the first time in nearly a quarter century.`\
+https://nytimes.com/2024/06/17/world/asia/russia-north-korea-putin-kim.html
+
 **If the Earth Had a Voice, What Would It Say?**\
 `The global energy company EDP has answers for hypothetical questions posed by the Earth. `\
 https://nytimes.com/paidpost/edp/edp/if-the-earth-had-a-voice-what-would-it-say.html
