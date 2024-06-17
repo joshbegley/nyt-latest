@@ -1,3 +1,11 @@
+**Record Number of NATO Allies Hit Military Spending Targets**\
+`President Biden and the NATO secretary general sought to present a robust and united front against Russia as the alliance prepares for its annual meeting next month.`\
+https://nytimes.com/2024/06/17/us/politics/nato-military-spending-targets.html
+
+**In Indiana, the MAGA Revolution Eats Its Own**\
+`A Christian nationalist upset causes Republican angst.`\
+https://nytimes.com/2024/06/17/opinion/indiana-christian-nationalist-republican-party.html
+
 **But It’s Only June: An Early Blast of Heat Grips Much of the U.S.**\
 `Heat overwhelmed cities across the Midwest and was headed to the Northeast. High temperatures are expected to linger for days.`\
 https://nytimes.com/2024/06/17/us/17nat-midwest-heat-wave.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/06/17/us/iowa-immigration-ruling.html
 **U.S. Treasury Imposes New Sanctions to Cut Off Weapons to Houthis in Yemen**\
 `The Iranian-backed militia has in recent months launched dozens of attacks in the Red Sea, a crucial shipping route.`\
 https://nytimes.com/2024/06/17/world/middleeast/houthis-yemen-weapons-sanctions.html
-
-**Milos Raonic has 110 first serves, 47 aces and one new ATP Tour record**\
-`Here's how the Canadian broke an aces record — but still needed the full three sets to win`\
-https://nytimes.com/athletic/5571273/2024/06/17/milos-raonic-aces-record-atp-three-set-match/
-
-**Judge Blocks Iowa’s Attempt to Enforce Its Own Immigration Laws**\
-`The Justice Department sued the state over the Republican-backed law, which creates state-level criminal penalties for some unauthorized immigrants.`\
-https://nytimes.com/2024/06/17/us/iowa-immigration-ruling.html
 
