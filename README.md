@@ -1,3 +1,19 @@
+**How to Throw a Greek Summer Party**\
+`According to Maria Lemos, the founder of the Athens boutique Mouki Mou, it’s all about “philoxenia,” a love of one’s guest.`\
+https://nytimes.com/2024/06/17/t-magazine/athens-greek-summer-party-mouki-mou.html
+
+**Oxtail Is Gaining Fans. Not Everyone Is Happy About That.**\
+`The tender-stewed cut is being pushed to the culinary forefront by creative chefs and home cooks, leading to higher prices.`\
+https://nytimes.com/2024/06/17/dining/oxtail.html
+
+**The Briefing: Belgium 0 Slovakia 1 - a first major Euro 2024 upset after disallowed Lukaku goals**\
+`Our writers analyse the main talking points from Belgum's shock defeat by Slovakia`\
+https://nytimes.com/athletic/5564567/2024/06/17/belgium-slovakia-euro-2024-analysis/
+
+**The ‘Bling Bishop’ Is Sentenced to 9 Years for Fleecing His Flock**\
+`Lamor Whitehead, who prosecutors said was a career con man who ran a church, took in millions, which he spent on cars, clothes and jewels.`\
+https://nytimes.com/2024/06/17/nyregion/lamor-whitehead-bling-bishop-sentenced.html
+
 **Maryland Governor Issues Sweeping Pardons for Marijuana Convictions**\
 `Gov. Wes Moore of Maryland pardoned more than 175,000 convictions on low-level marijuana charges, two years after the state legalized the use of recreational marijuana.`\
 https://nytimes.com/video/us/politics/100000009525753/maryland-marijuana-convictions-pardon.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/06/17/theater/first-time-tony-winners.html
 **Daniel Radcliffe, Pete Townshend and Sarah Paulson Party for the Tonys**\
 `Spirited celebrations that included an official after-party at Lincoln Center and a gathering at the Carlyle Hotel, where revelers broke out in show tunes, continued until nearly 5 a.m.`\
 https://nytimes.com/2024/06/17/style/tony-awards-after-party.html
-
-**Gaza Is World’s Deadliest Place for Aid Workers, U.N. Says**\
-`The peril faced by humanitarian workers in Gaza has interrupted or obstructed the delivery of aid in a place where, aid groups have warned, hundreds of thousands of people are facing famine conditions.`\
-https://nytimes.com/2024/06/17/world/middleeast/gaza-aid-workers-un.html
-
-**This week in politics: Trump on the trail, primaries in key states.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/06/17/us/biden-trump-election/this-week-in-politics-trump-on-the-trail-primaries-in-key-states
-
-**Election Updates: A Biden campaign ad is calling attention to Trump’s felon status.**\
-``\
-https://nytimes.com/live/2024/06/17/us/biden-trump-election
-
-**Traveling During a Heat Wave: Tips and Precautions**\
-`It’s summer and the temperature is rising. Here’s what you need to know to protect yourself and your vacation dollars.`\
-https://nytimes.com/2024/06/17/travel/heat-waves-travel-precautions.html
 
