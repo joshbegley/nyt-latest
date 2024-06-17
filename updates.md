@@ -1,3 +1,7 @@
+**Les Miles sues LSU over vacated wins**\
+`Miles’ recognized win-loss coaching record is 108-73 (.597), just below the .600 mark required for Hall of Fame consideration.`\
+https://nytimes.com/athletic/5570788/2024/06/17/les-miles-lsu-lawsuit/
+
 **Biden Administration’s New Title IX Rules Are Blocked in Six More States**\
 `Conservative groups and Republican attorneys general have argued that the protections for transgender students come at the expense of others’ privacy and conflicts with a number of state laws.`\
 https://nytimes.com/2024/06/17/us/politics/new-title-ix-rules-blocked.html

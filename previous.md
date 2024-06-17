@@ -1,3 +1,7 @@
+**Les Miles sues LSU over vacated wins**\
+`Miles’ recognized win-loss coaching record is 108-73 (.597), just below the .600 mark required for Hall of Fame consideration.`\
+https://nytimes.com/athletic/5570788/2024/06/17/les-miles-lsu-lawsuit/
+
 **Biden Administration’s New Title IX Rules Are Blocked in Six More States**\
 `Conservative groups and Republican attorneys general have argued that the protections for transgender students come at the expense of others’ privacy and conflicts with a number of state laws.`\
 https://nytimes.com/2024/06/17/us/politics/new-title-ix-rules-blocked.html
@@ -35,8 +39,4 @@ https://nytimes.com/2024/06/17/us/politics/florida-trump-biden-democrats.html
 **Former Arsenal exec Sanllehi named Miami's president of football operations**\
 `Inter Miami has named Raul Sanllehi as president of football operations, the club announced Monday.`\
 https://nytimes.com/athletic/5570756/2024/06/17/inter-miami-raul-sanllehi-who-arsenal-barcelona/
-
-**Israel Adesanya to face Du Plessis at UFC 305**\
-`UFC 305 will be held in Perth, Australia, where Adesanya is a fan favorite. Adesanya resides and trains in Auckland, New Zealand.`\
-https://nytimes.com/athletic/5570688/2024/06/17/israel-adesanya-dricus-du-plessis-ufc-305/
 
