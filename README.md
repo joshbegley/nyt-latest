@@ -1,3 +1,17 @@
+**How important are college conference naming rights?**\
+`Welcome to Until Saturday, the five-star college football newsletter: How important are college conference naming rights?`\
+https://nytimes.com/athletic/5570807/2024/06/17/college-football-conference-sponsors-until-saturday/
+
+**William H. Donaldson, 93, Wall St. Powerbroker Who Led the S.E.C., Dies**\
+`He co-founded D.L.J., the first securities firm to offer shares to the public. As S.E.C. chairman, he pressed for a stronger watchdog role after a series of accounting scandals.`\
+https://nytimes.com/2024/06/17/business/dealbook/william-h-donaldson-dead.html
+
+**Top 5: NASCAR's Iowa visit shines, Martin Truex Jr. bows out, tire talk**\
+`NEWTON, Iowa — Five thoughts after NASCAR&#8217;s inaugural Cup Series weekend at Iowa Speedway &#8230;
+
+The enthusiasm was obvious from the start.`\
+https://nytimes.com/athletic/5570085/2024/06/17/nascar-iowa-martin-truex-jr-top-5/
+
 **Florida Used to Be a Swing State. Now Democrats Can Only Cling to Glimmers of Hope.**\
 `Democrats in the state are veering from cautious optimism to complete pessimism about their chances in 2024, with two liberal-leaning ballot measures having the potential to boost turnout.`\
 https://nytimes.com/2024/06/17/us/politics/florida-trump-biden-democrats.html
@@ -25,16 +39,4 @@ https://nytimes.com/2024/06/17/world/asia/china-philippines-boats-collide.html
 **Nottingham Forest working on deal for Red Star Belgrade's Stamenic**\
 `Nottingham Forest are working on a deal with Red Star Belgrade to sign the New Zealand international midfielder Marko Stamenic.`\
 https://nytimes.com/athletic/5570759/2024/06/17/marko-stamenic-nottingham-forest-transfer/
-
-**17 Unforgettable Looks at the Tony Awards**\
-`The event gave Broadway stars a chance to step out of their costumes and into outfits that showcased personal style.`\
-https://nytimes.com/2024/06/17/style/tony-awards-fashion-red-carpet.html
-
-**Emerging From Orban’s Shadow, a Former Ally Tries to Steal His Limelight**\
-`Peter Magyar, a conservative who was once a well-connected figure in the Fidesz party of Prime Minister Viktor Orban, has become an unexpected leader of the country’s opposition.`\
-https://nytimes.com/2024/06/17/world/europe/hungary-magyar-orban.html
-
-**U.S. Sues Adobe Over Hard-to-Cancel Subscriptions**\
-`The maker of Photoshop and other popular design software hid details of expensive cancellation fees, according to a Justice Department lawsuit.`\
-https://nytimes.com/2024/06/17/technology/us-adobe-subscription-lawsuit.html
 
