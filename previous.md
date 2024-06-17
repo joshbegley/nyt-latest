@@ -1,3 +1,7 @@
+**‘A Hellscape’: Dire Conditions in Gaza Leave a Multitude of Amputees**\
+`Access to medical care and even clean water is limited, and the risk of infection is high, making it difficult for patients to get follow-up surgeries, prosthetics and rehabilitation.`\
+https://nytimes.com/2024/06/17/world/europe/gaza-amputation-hospitals.html
+
 **Biden Campaign Ad Paints Trump as a Felon**\
 `Democrats have been urging the president to more forcefully attack Donald Trump after his felony conviction by a New York jury.`\
 https://nytimes.com/2024/06/17/us/politics/trump-felon-biden-ad.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/17/arts/zollar-urban-bush-women-scat.html
 **His Family Survived the Nazis by Living in a Chicken Coop**\
 `A new museum exhibit on the Holocaust focuses on eight narratives, including the account of a man whose family escaped death by hiding on a family farm.`\
 https://nytimes.com/2024/06/17/arts/his-family-survived-the-nazis-by-living-in-a-chicken-coop.html
-
-**From Ferrari to the Frozen Food Aisle**\
-`Charles Leclerc, one of the rising stars of the Formula 1, now has an ice cream on the market.`\
-https://nytimes.com/2024/06/17/style/ferrari-formula-one-charles-leclerc-ice-cream.html
 
