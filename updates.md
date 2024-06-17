@@ -1,3 +1,7 @@
+**The Paths to Progress for Our Graduates**\
+`Responses to an essay about “no promise” graduates. Also: Justice Alito and “godliness”; Sudan’s tragedy; whistle-blower protections; dreading election night.`\
+https://nytimes.com/2024/06/17/opinion/college-graduates.html
+
 **The Connections Companion No. 372, June 17, 2024**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/06/17/crosswords/connections-companion-372.html

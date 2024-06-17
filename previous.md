@@ -1,3 +1,7 @@
+**The Paths to Progress for Our Graduates**\
+`Responses to an essay about “no promise” graduates. Also: Justice Alito and “godliness”; Sudan’s tragedy; whistle-blower protections; dreading election night.`\
+https://nytimes.com/2024/06/17/opinion/college-graduates.html
+
 **The Connections Companion No. 372, June 17, 2024**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/06/17/crosswords/connections-companion-372.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/17/arts/music/taylor-swift-tortured-poets-8-weeks-no
 **Maryland Governor Erases 175,000 Marijuana Convictions**\
 `The state legalized the use of recreational marijuana in 2022. Several other states and the federal government have also wiped out low-level convictions for marijuana possession.`\
 https://nytimes.com/2024/06/17/us/maryland-marijuana-pardon-wes-moore.html
-
-**Rent Increases for 1 Million N.Y.C. Apartments Are Likely to Be Approved**\
-`The city panel that oversees rents for stabilized apartments had previously voted to back increases of between 2 and 4.5 percent on one-year leases.`\
-https://nytimes.com/2024/06/17/nyregion/nyc-rent-stabilized-apartments-vote-increase.html
 
