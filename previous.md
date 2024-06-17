@@ -1,3 +1,7 @@
+**Daniel Radcliffe Conjures Up His First Tony**\
+`“Merrily We Roll Along” is Radcliffe’s fifth show on Broadway, but the first for which he was even nominated for a Tony Award.`\
+https://nytimes.com/2024/06/16/theater/daniel-radcliffe-first-tony-award.html
+
 **Jeremy Strong wins his first Tony Award for ‘An Enemy of the People.’**\
 `By Sarah Bahr`\
 https://nytimes.com/live/2024/06/16/theater/tony-awards/jeremy-strong-wins-his-first-tony-award-for-an-enemy-of-the-people
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/16/theater/tony-awards/tony-awards-predictions
 **What do the Tonys tell us about the state of Broadway? Here are 5 ideas.**\
 `By Michael Paulson`\
 https://nytimes.com/live/2024/06/16/theater/tony-awards/state-of-broadway
-
-**Go deeper on the five shows vying for best new musical.**\
-`By The New York Times`\
-https://nytimes.com/live/2024/06/16/theater/tony-awards/go-deeper-on-the-five-shows-vying-for-best-new-musical
 
