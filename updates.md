@@ -1,3 +1,7 @@
+**Monday Briefing**\
+`Israel plans to pause fighting at a Gaza border crossing.`\
+https://nytimes.com/2024/06/17/briefing/israel-fighting-pause-trump-resistance.html
+
 **As China’s Pressure on Taiwan Rises, Departing U.S. Envoy Urges Steady Hand**\
 `Worries about Chinese belligerence rose during Sandra Oudkirk’s three years in Taipei. As she leaves, she is seeking to assure Taiwan of continued U.S. support.`\
 https://nytimes.com/2024/06/17/world/asia/taiwan-china-diplomacy.html
