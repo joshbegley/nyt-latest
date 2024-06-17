@@ -1,3 +1,11 @@
+**Public Funding, Private Education**\
+`We explain a major change in U.S. public education.`\
+https://nytimes.com/2024/06/17/briefing/public-funding-private-education.html
+
+**Facing E.V. Tariffs, China Threatens Pork Imports From Europe**\
+`Acting quickly after the European Union imposed extra tariffs of up to 38 percent on China’s electric cars, Beijing opened a trade case on Europe’s pork.`\
+https://nytimes.com/2024/06/17/business/china-european-union-pork-exports.html
+
 **Netanyahu disbands his war cabinet after two of its five members quit.**\
 `The widely expected move came after two moderates quit the influential group last week.`\
 https://nytimes.com/live/2024/06/17/world/israel-gaza-war-hamas/netanyahu-war-cabinet-israel
