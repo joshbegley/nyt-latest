@@ -1,3 +1,7 @@
+**Rent Increases for 1 Million N.Y.C. Apartments Are Likely to Be Approved**\
+`The city panel that oversees rents for stabilized apartments had previously voted to back increases of between 2 and 4.5 percent on one-year leases.`\
+https://nytimes.com/2024/06/17/nyregion/nyc-rent-stabilized-apartments-vote-increase.html
+
 **Taylor Swift’s ‘Tortured Poets’ Logs an Eighth Straight Week at No. 1**\
 `Billie Eilish is No. 2, and Charli XCX debuts strong at No. 3.`\
 https://nytimes.com/2024/06/17/arts/music/taylor-swift-tortured-poets-8-weeks-no-1.html
