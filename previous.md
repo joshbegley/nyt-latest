@@ -1,3 +1,19 @@
+**Multiple People Killed in India Train Crash**\
+`A freight train collided with a passenger train in the state of West Bengal.`\
+https://nytimes.com/video/world/asia/100000009525549/india-train-crash-west-bengal.html
+
+**How Crypto Money Is Poised to Influence the Election**\
+`The industry’s political awakening — and enormous pool of cash — is already affecting high-profile races across the country.`\
+https://nytimes.com/2024/06/17/technology/-crypto-influence-election.html
+
+**Infidelity, Dysfunction, Secrets — This Family Novel Delivers**\
+`“Same as It Ever Was,” by Claire Lombardo, is a 500-page, multigenerational examination of the ties that bind.`\
+https://nytimes.com/2024/06/17/books/review/same-as-it-ever-was-claire-lombardo.html
+
+**Several Injured After Mace and Fireworks Disrupt Pride Event in Baltimore**\
+`Multiple attendees were treated for injuries after a confrontation involving mace led to the event being shut down early, the police said.`\
+https://nytimes.com/2024/06/17/us/baltimore-pride-parade-chemical-agent.html
+
 **The Connections Companion No. 373, June 18, 2024**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/06/17/crosswords/connections-companion-373.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/06/12/opinion/surgeon-general-social-media.html
 **‘The Promised Land,’ ‘Biosphere’ and More Streaming Gems**\
 `Speculative science fiction, period drama and sly thrillers are among this month’s off-the-beaten-path recommendations from your subscription streamers.`\
 https://nytimes.com/2024/06/17/movies/the-promised-land-biosphere-streaming-movies.html
-
-**Sweet Corn, Spicy Shishitos, Super Salad**\
-`Lidey Heuck’s jubilant, cumin-y combination of crunchy raw corn kernels and sautéed peppers is hearty and flavorful enough to be a light meal unto itself.`\
-https://nytimes.com/2024/06/17/dining/corn-salad.html
-
-**You’ve Seen the Movie — Now Name the Book That Inspired It**\
-`This quick quiz challenges you to identify a film’s source material based on a photo. Click here to play!`\
-https://nytimes.com/interactive/2024/06/17/books/review/movie-still-quiz.html
-
-**Why Do We Fear Forgiveness?**\
-`Choosing to forgive can be frightening, but it’s a powerful tool for repairing the harm done by violence, oppression and other traumas.`\
-https://nytimes.com/2024/06/17/special-series/south-africa-apartheid-forgiveness-fear.html
-
-**Taylor Swift’s ‘Tortured Poets’ Logs an Eighth Straight Week at No. 1**\
-`Billie Eilish is No. 2, and Charli XCX debuts strong at No. 3.`\
-https://nytimes.com/2024/06/17/arts/music/taylor-swift-tortured-poets-8-weeks-no-1.html
 
