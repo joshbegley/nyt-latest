@@ -1,3 +1,7 @@
+**Judge Orders Rail Operator to Pay $400 Million to Tribe for Trespassing**\
+`BNSF Railway broke its agreement with the Swinomish Indian Tribal Community when it ran hundreds of train cars a week containing crude oil through the tribe’s land in Washington State, according to a federal judge.`\
+https://nytimes.com/2024/06/17/us/judge-washington-tribe-oil-train-trespassing.html
+
 **Angela Bofill, R&B Hitmaker With a Silky Voice, Dies at 70**\
 `Starting in the late 1970s, she scored multiple hit singles, including “This Time I’ll Be Sweeter” and “I Try,” but multiple strokes in the 2000s ended her career.`\
 https://nytimes.com/2024/06/17/arts/music/angela-bofill-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/17/us/brandon-johnson-chicago-mayor-reparations-task
 **Celtics' Porziņģis available for Game 5 vs. Mavs**\
 `Celtics coach Joe Mazzulla said to "expect to see" Kristaps Porziņģis on the floor for Game 5 of the NBA Finals.`\
 https://nytimes.com/athletic/5571399/2024/06/17/kristaps-porzingis-game-5-status-celtics/
-
-**Israel Pauses Daytime Offensive in Part of Gaza, Raising Hopes for More Aid**\
-`The new policy, addressing concerns that combat made aid delivery too dangerous, took hold as an increasingly isolated Benjamin Netanyahu dissolved his war cabinet.`\
-https://nytimes.com/2024/06/17/world/middleeast/israel-gaza-pause-border-crossing.html
 

@@ -1,3 +1,7 @@
+**Judge Orders Rail Operator to Pay $400 Million to Tribe for Trespassing**\
+`BNSF Railway broke its agreement with the Swinomish Indian Tribal Community when it ran hundreds of train cars a week containing crude oil through the tribe’s land in Washington State, according to a federal judge.`\
+https://nytimes.com/2024/06/17/us/judge-washington-tribe-oil-train-trespassing.html
+
 **Angela Bofill, R&B Hitmaker With a Silky Voice, Dies at 70**\
 `Starting in the late 1970s, she scored multiple hit singles, including “This Time I’ll Be Sweeter” and “I Try,” but multiple strokes in the 2000s ended her career.`\
 https://nytimes.com/2024/06/17/arts/music/angela-bofill-dead.html
