@@ -1,3 +1,11 @@
+**Stop-and-Shop the Runways**\
+`If you’re just looking (but not buying), there’s pleasure in creating an imaginary wardrobe from the men’s wear catwalks at Gucci, Fendi, JW Anderson, Ralph Lauren and Tod’s.`\
+https://nytimes.com/2024/06/18/style/milan-fashion-week-menswear.html
+
+**U.S. Pier for Gaza Aid Is Failing, and Could Be Dismantled Early**\
+`Officials hope a looming deadline will pressure Israel to open more land routes into the territory, which is facing extreme levels of hunger.`\
+https://nytimes.com/2024/06/18/us/politics/gaza-pier-israel-aid.html
+
 **On Immigration, Biden Attempts to Replicate a Powerful Obama Moment**\
 `The president’s planned announcement to expand legal protections for some undocumented spouses of American citizens evoked Barack Obama’s move to help young immigrants in 2012.`\
 https://nytimes.com/2024/06/18/us/politics/biden-immigration-announcement-obama.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5573390/2024/06/18/yankees-injuries-astros-jose-abr
 **Team USA reveals opening, closing ceremony outfits for Paris Games**\
 `This is Ralph Lauren's ninth time designing Team USA's ceremony outfits.`\
 https://nytimes.com/athletic/5573268/2024/06/18/usa-olympics-outfits-opening-ceremony/
-
-**La Liga fixtures released: Which of Madrid and Barca will be happier and when is El Clasico?**\
-`Next season's La Liga schedule has been confirmed. Our Spanish football experts analyse it all`\
-https://nytimes.com/athletic/5572906/2024/06/18/la-liga-real-madrid-barcelona-clasico/
-
-**Glitz and Grimness Cross Paths on London’s ‘Caledonian Road’**\
-`Andrew O’Hagan’s ambitious state-of-England novel finds a cosseted academic facing up to the hard lives and ethical shortcuts he’d prefer to ignore.`\
-https://nytimes.com/2024/06/18/books/review/caledonian-road-andrew-ohagan.html
 

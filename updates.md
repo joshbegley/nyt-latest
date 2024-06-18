@@ -1,3 +1,11 @@
+**Stop-and-Shop the Runways**\
+`If you’re just looking (but not buying), there’s pleasure in creating an imaginary wardrobe from the men’s wear catwalks at Gucci, Fendi, JW Anderson, Ralph Lauren and Tod’s.`\
+https://nytimes.com/2024/06/18/style/milan-fashion-week-menswear.html
+
+**U.S. Pier for Gaza Aid Is Failing, and Could Be Dismantled Early**\
+`Officials hope a looming deadline will pressure Israel to open more land routes into the territory, which is facing extreme levels of hunger.`\
+https://nytimes.com/2024/06/18/us/politics/gaza-pier-israel-aid.html
+
 **On Immigration, Biden Attempts to Replicate a Powerful Obama Moment**\
 `The president’s planned announcement to expand legal protections for some undocumented spouses of American citizens evoked Barack Obama’s move to help young immigrants in 2012.`\
 https://nytimes.com/2024/06/18/us/politics/biden-immigration-announcement-obama.html
