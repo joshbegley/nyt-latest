@@ -1,5 +1,5 @@
 **Lane Kiffin sounds off on eliminating walk-ons**\
-`There has been a lot of discussion behind the scenes, with coaches making their feelings clear: The don't want to eliminate walk-ons.`\
+`There has been a lot of discussion behind the scenes, with coaches making their feelings clear: They don't want to eliminate walk-ons.`\
 https://nytimes.com/athletic/5574084/2024/06/18/lane-kiffin-house-v-ncaa-walk-ons/
 
 **Astros place Justin Verlander on 15-day IL with 'neck discomfort'**\
