@@ -1,3 +1,7 @@
+**The Transfer DealSheet: United's Branthwaite move, Yoro latest, Zirkzee interest**\
+`Welcome to our weekly guide to everything that is happening in the summer transfer window`\
+https://nytimes.com/athletic/5565759/2024/06/18/manchester-united-arsenal-transfer-news-liverpool/
+
 **How Slovakia channelled Napoli to record the 'biggest-ever' Euros upset**\
 `Slovakia recorded a famous underdog win against Belgium - but that doesn't mean they played like one`\
 https://nytimes.com/athletic/5571305/2024/06/18/slovakia-belgium-euro-2024-upset/

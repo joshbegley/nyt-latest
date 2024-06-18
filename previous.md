@@ -1,3 +1,7 @@
+**The Transfer DealSheet: United's Branthwaite move, Yoro latest, Zirkzee interest**\
+`Welcome to our weekly guide to everything that is happening in the summer transfer window`\
+https://nytimes.com/athletic/5565759/2024/06/18/manchester-united-arsenal-transfer-news-liverpool/
+
 **Irving reflects on 'failing' after Mavs lose NBA Finals**\
 `Kyrie Irving shot 5-of-16 and finished with 15 points in Game 5 as Boston beat Dallas for the NBA title.`\
 https://nytimes.com/athletic/5571829/2024/06/18/kyrie-irving-mavericks-loss-nba-finals/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/18/world/asia/south-korea-doctor-strike.html
 **Secret Service Agent Robbed at Gunpoint on Night of Biden’s L.A. Gala**\
 `The agent’s bag was stolen on Saturday night in a residential community in Southern California, the authorities said.`\
 https://nytimes.com/2024/06/18/us/secret-service-robbed-biden-tustin.html
-
-**Stop Comparing Hamas to the Nazis**\
-`Invoking Nazis and pogroms in discussing the Hamas attacks is wrong and offensive, and helps the Israeli government avoid responsibility for its failures.`\
-https://nytimes.com/2024/06/18/opinion/holocaust-israel-palestinians-hamas.html
 
