@@ -1,3 +1,7 @@
+**The Texas border and Pittsburgh are among the hottest spots in the nation on Tuesday.**\
+`By Kate Selig`\
+https://nytimes.com/live/2024/06/18/weather/heat-wave-news/the-texas-border-and-pittsburgh-are-among-the-hottest-spots-in-the-nation-on-tuesday
+
 **Lane Kiffin sounds off on eliminating walk-ons**\
 `There has been a lot of discussion behind the scenes, with coaches making their feelings clear: They don't want to eliminate walk-ons.`\
 https://nytimes.com/athletic/5574084/2024/06/18/lane-kiffin-house-v-ncaa-walk-ons/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5573544/2024/06/18/euro-2024-odds-germany-hungary/
 `A federal judge rebuffed MLB in its quest to review contracts between cable companies and the bankrupt broadcaster, Diamond Sports Group.
 `\
 https://nytimes.com/athletic/5574075/2024/06/18/mlb-diamond-sports-group-contract-request/
-
-**Senate Republicans Block Bump-Stock Ban**\
-`Democrats failed in their effort to override last week’s Supreme Court ruling with legislation, but saw some political benefits to the clash.`\
-https://nytimes.com/2024/06/18/us/bump-stock-ban-senate.html
 
