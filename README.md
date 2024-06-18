@@ -1,3 +1,7 @@
+**Celtics' Jaylen Brown wins NBA Finals MVP**\
+`Brown had 21 points, eight rebounds and six assists in Boston's Game 5 win.`\
+https://nytimes.com/athletic/5571634/2024/06/17/celtics-jaylen-brown-wins-nba-finals-mvp-after-leading-boston-to-first-championship-since-2008/
+
 **Jayson Tatum and Jaylen Brown's twisting march to glory: A timeline**\
 `With each title-less season, the questions became louder. But the Celtics never blew up the partnership and now it's been rewarded. `\
 https://nytimes.com/athletic/5571116/2024/06/17/jayson-tatum-jaylen-brown-championship-timeline/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/17/crosswords/daily-puzzle-2024-06-18.html
 **NBA free agency starts ... right now? A few deals we could see sooner rather than later**\
 `We may only see a handful of contracts agreed upon between now and the draft's first round, but we should expect some action.`\
 https://nytimes.com/athletic/5565480/2024/06/17/nba-free-agency-players-to-watch-2024/
-
-**Exxon Suit Over Activist Investor’s Climate Proposal Is Dismissed**\
-`A federal judge ruled that the case was moot after the investor, Arjuna Capital, withdrew the proposal with a promise not to try again.`\
-https://nytimes.com/2024/06/17/business/exxon-arjuna-lawsuit-dismissed.html
 
