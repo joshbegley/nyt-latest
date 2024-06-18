@@ -1,3 +1,15 @@
+**Chelsea's €32.5m bid for Omorodion rejected**\
+`Chelsea have had a €32.`\
+https://nytimes.com/athletic/5574005/2024/06/18/chelsea-omorodion-transfer/
+
+**Wednesday Briefing: Biden’s Plan to Help 500,000 Immigrants**\
+`Also, Thailand’s vote to legalize same-sex marriage.`\
+https://nytimes.com/2024/06/18/world/asia/biden-undocumented-thai-marriage-asia.html
+
+**Portugal 2 Czech Republic 1: Dramatic late winner boosts Cristiano Ronaldo and Co**\
+`Portugal snatched a late winner as their Euro 2024 campaign started with victory over the Czech Republic - here's our quickfire analysis`\
+https://nytimes.com/athletic/5568280/2024/06/18/portugal-czech-republic-euro-2024-cristiano-ronaldo-result-analysis/
+
 **Trump Wasn’t Going to Stay in Milwaukee. Then Reporters Asked.**\
 `The Republican convention will be held in swing-state Wisconsin’s largest city. The nominee, however, had planned to stay at his own hotel in Chicago, until members of the media began inquiring.`\
 https://nytimes.com/2024/06/18/us/politics/trump-milwaukee-rnc.html
