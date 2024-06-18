@@ -1,3 +1,16 @@
+**Arda Guler: Choir-boy looks, thunderous foot and the hearts of Ancelotti, Montella and Turkey**\
+`At 19, the Real Madrid player came of age at Euro 2024 with a thunderous goal and a show of promise that could take Turkey a long way`\
+https://nytimes.com/athletic/5573923/2024/06/18/arda-guler-ancelotti-turkey/
+
+**Euro 2024 odds for Wednesday's three group matches including Germany-Hungary**\
+`The second round of Euro 2024 group stage matches start on Wednesday with host Germany taking on Hungary and Switzerland facing Scotland.`\
+https://nytimes.com/athletic/5573544/2024/06/18/euro-2024-odds-germany-hungary/
+
+**Cable-company lawyer says dealing with MLB 'like talking to a brick wall'**\
+`A federal judge rebuffed MLB in its quest to review contracts between cable companies and the bankrupt broadcaster, Diamond Sports Group.
+`\
+https://nytimes.com/athletic/5574075/2024/06/18/mlb-diamond-sports-group-contract-request/
+
 **Senate Republicans Block Bump-Stock Ban**\
 `Democrats failed in their effort to override last week’s Supreme Court ruling with legislation, but saw some political benefits to the clash.`\
 https://nytimes.com/2024/06/18/us/bump-stock-ban-senate.html
@@ -25,16 +38,4 @@ https://nytimes.com/athletic/5568280/2024/06/18/portugal-czech-republic-euro-202
 **More Black and Latino Students Admitted to New York’s Elite High Schools**\
 `The percentage of Black and Latino students in the eight schools increased to 12 percent, the highest since 2013, but still far below the overall percentage of those students in schools.`\
 https://nytimes.com/2024/06/18/nyregion/nyc-specialized-high-school-admissions-black-and-latino-students.html
-
-**The Election of Magical Thinking**\
-`Indulging in electoral illusions is dangerous.`\
-https://nytimes.com/live/2024/06/18/opinion/thepoint/biden-vice-president-step-down
-
-**Split by Politics and Protests, Georgia Lets Soccer Carry the Flag**\
-`The opposition in Georgia accused the government of cozying up to Russia. Can playing in the Euros make the nation feel more like a part of Europe?`\
-https://nytimes.com/2024/06/18/world/europe/georgia-euro-2024.html
-
-**Nvidia Becomes Most Valuable Public Company, Topping Microsoft**\
-`The chip maker’s stock price has jumped over the last year thanks to its stranglehold on the market for the chips needed to build A.I. systems.`\
-https://nytimes.com/2024/06/18/technology/nvidia-most-valuable-company.html
 
