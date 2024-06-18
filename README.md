@@ -4,7 +4,7 @@ https://nytimes.com/2024/06/18/nyregion/avlon-goroff-primary-ny1.html
 
 **Trump Wasn’t Going to Stay in Milwaukee. Then Reporters Asked.**\
 `The Republican convention will be held in swing-state Wisconsin’s largest city. The nominee, however, had planned to stay his own hotel in Chicago, until members of the media began inquiring.`\
-https://nytimes.com/2024/06/18/us/politics/trump-wasnt-going-to-stay-in-milwaukee-then-reporters-asked.html
+https://nytimes.com/2024/06/18/us/politics/trump-milwaukee-rnc.html
 
 **Queens Residents Capture Suspect in Rape of 13-Year-Old Girl**\
 `The police said the suspect, Christian Inga, was recognized after a public campaign to identify him. Investigators said he forced the girl into the woods of a park and bound her with a shoelace.`\
