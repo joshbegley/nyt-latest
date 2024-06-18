@@ -1,3 +1,19 @@
+**Ten Hag staying at Man Utd provides peace of mind - Mainoo**\
+`Kobbie Mainoo admitted it is good to have “peace of mind” after Manchester United decided to stick with Erik ten Hag.`\
+https://nytimes.com/athletic/5572861/2024/06/18/kobbie-mainoo-england-ten-hag/
+
+**England starting XI to face Denmark: Foden? Alexander-Arnold? Gallagher? Our writers' picks**\
+`What did Gareth Southgate learn from the victory over Serbia? Will he makes changes? Here's what our writers think`\
+https://nytimes.com/athletic/5569483/2024/06/18/england-starting-xi-denmark/
+
+**How to Stay Cool Indoors During the Heat Wave**\
+`With temperatures climbing this week, here’s how to be comfortable in your home — with or without air-conditioning.`\
+https://nytimes.com/2024/06/18/realestate/stay-cool-heat-wave.html
+
+**Should Hundreds of Millions in Seized Assets Go to ISIS Victims?**\
+`The State and Justice Departments disagree about what to do with more than half a billion dollars after a French company pleaded guilty to aiding militants in war-torn Syria.`\
+https://nytimes.com/2024/06/18/us/politics/biden-isis-state-dept-doj.html
+
 **U.S. Success in Cricket Tournament Is Latest Boost to Sport’s Profile**\
 `Cricket faces notable obstacles before it can obtain widespread popularity in America, but its most passionate supporters feel positive about its future.`\
 https://nytimes.com/2024/06/18/business/united-states-cricket-world-cup.html
