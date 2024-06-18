@@ -1,3 +1,7 @@
+**Bob Schul, a Singular U.S. Olympian in 5,000-Meter Race, Dies at 86**\
+`His remarkable sprint in the final yards on a muddy track in the 1964 Games in Tokyo made him the only American ever to win the gold medal in the event.`\
+https://nytimes.com/2024/06/18/sports/olympics/bob-schul-dead.html
+
 **Q&A: 2024 NHL Draft prospect Ivan Demidov on Blackhawks, North America and his game**\
 `Demidov sat down with The Athletic on Tuesday in Florida to discuss his game, favorite players, NHL future and much more.`\
 https://nytimes.com/athletic/5572893/2024/06/18/nhl-draft-2024-prospect-blackhawks-demidov/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/5572893/2024/06/18/nhl-draft-2024-prospect-blackhaw
 https://nytimes.com/athletic/5573688/2024/06/18/alabama-football-recruiting-jackson-lloyd/
 
 **Biden Courts Some Liberal Love on Immigration**\
-`By Farah Stockman`\
+`For thousands of families, Biden’s plan will be a game-changer.`\
 https://nytimes.com/2024/06/18/opinion/biden-immigration-spouses-citizenship.html
 
 **Two Wildfires in New Mexico Burn Out of Control and Force Evacuations**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/18/world/middleeast/israel-pause-gaza-aid.html
 **The Fiery Sounds of the Monterey International Pop Festival**\
 `Revisiting the event’s memorable set list, 57 years later.`\
 https://nytimes.com/2024/06/18/arts/music/amplifier-newsletter-monterey-pop-festival.html
-
-**The Briefing: Turkey 3 Georgia 1 - Guler does the spectacular, Kvaratskhelia overshadowed**\
-`Turkey scored two of the best goals seen yet at Euro 2024 as they beat Georgia in a hugely entertaining match`\
-https://nytimes.com/athletic/5568279/2024/06/18/turkey-3-georgia-1-guler-kvaratskhelia/
 
