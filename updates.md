@@ -1,3 +1,11 @@
+**Johnson signs up McLaughlin-Levrone to new Grand Slam Track venture**\
+`Johnson has secured more than $30 million in financial commitments from investors and strategic partners to launch the league.`\
+https://nytimes.com/athletic/5573806/2024/06/18/michael-johnson-grand-slam-track/
+
+**Triple-A games to start fully using automated ball-strike challenge system**\
+`Starting next week, the league will use Triple-A games to try to determine what type of challenge system works best. `\
+https://nytimes.com/athletic/5573707/2024/06/18/automated-ball-strike-challenge-system-triple-a/
+
 **Blue Jays place Bo Bichette on the IL, recall Orelvis Martinez**\
 `Bichette hasn't played since June 14 while dealing with a sore calf. Martinez joins the roster for what would be his MLB debut.`\
 https://nytimes.com/athletic/5573866/2024/06/18/blue-jays-bo-bichette-il-orelvis-martinez/
