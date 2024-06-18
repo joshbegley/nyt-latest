@@ -1,3 +1,15 @@
+**Attack Ads Hit John Avlon in His House Primary Bid in New York**\
+`Nancy Goroff, who has contributed $1.2 million of her own money to her campaign, has recently run a string of attacks against John Avlon in their Democratic primary on eastern Long Island.`\
+https://nytimes.com/2024/06/18/nyregion/avlon-goroff-primary-ny1.html
+
+**Trump Wasn’t Going to Stay in Milwaukee. Then Reporters Asked.**\
+`The Republican convention will be held in swing-state Wisconsin’s largest city. The nominee, however, had planned to stay his own hotel in Chicago, until members of the media began inquiring.`\
+https://nytimes.com/2024/06/18/us/politics/trump-milwaukee-rnc.html
+
+**Queens Residents Capture Suspect in Rape of 13-Year-Old Girl**\
+`The police said the suspect, Christian Inga, was recognized after a public campaign to identify him. Investigators said he forced the girl into the woods of a park and bound her with a shoelace.`\
+https://nytimes.com/2024/06/18/nyregion/queens-man-sexual-assault-arrest.html
+
 **Tiny Love Stories: ‘To Die with Perfect Abs’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/06/18/style/tiny-modern-love-stories-to-die-with-perfect-abs.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/18/special-series/harry-potter-stunt-double-fear.htm
 **Garden Party: Celtics wash away recent failures by winning 18th NBA championship**\
 `Order a copy today of The Athletic's commemorative book about the Celtics’ 2023-24 season for $39.95, plus shipping and tax.`\
 https://nytimes.com/athletic/5572535/2024/06/18/garden-party-celtics-nba-champions-book/
-
-**Danny Makkelie: Ref who played a hand in England's Euro 2020 semi-final win**\
-`By day, Danny Makkelie is a part-time police inspector in Rotterdam.`\
-https://nytimes.com/athletic/5570117/2024/06/18/euro-2024-ref-danny-makkelie/
-
-**Rangers place Barclay Goodrow on waivers**\
-`Despite scoring just four goals in 80 games this past season, Goodrow showed his biggest impact in the 2024 playoffs, scoring six goals.`\
-https://nytimes.com/athletic/5573751/2024/06/18/rangers-barclay-goodrow-waivers/
-
-**Sarah Mandel, Therapist Who Told Her ‘Trauma Narrative,’ Dies at 42**\
-`She received a diagnosis of Stage 4 breast cancer late in her second pregnancy and described her experience in a book, “Little Earthquakes: A Memoir.”`\
-https://nytimes.com/2024/06/18/us/sarah-mandel-dead.html
 

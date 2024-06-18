@@ -1,3 +1,15 @@
+**Attack Ads Hit John Avlon in His House Primary Bid in New York**\
+`Nancy Goroff, who has contributed $1.2 million of her own money to her campaign, has recently run a string of attacks against John Avlon in their Democratic primary on eastern Long Island.`\
+https://nytimes.com/2024/06/18/nyregion/avlon-goroff-primary-ny1.html
+
+**Trump Wasn’t Going to Stay in Milwaukee. Then Reporters Asked.**\
+`The Republican convention will be held in swing-state Wisconsin’s largest city. The nominee, however, had planned to stay his own hotel in Chicago, until members of the media began inquiring.`\
+https://nytimes.com/2024/06/18/us/politics/trump-milwaukee-rnc.html
+
+**Queens Residents Capture Suspect in Rape of 13-Year-Old Girl**\
+`The police said the suspect, Christian Inga, was recognized after a public campaign to identify him. Investigators said he forced the girl into the woods of a park and bound her with a shoelace.`\
+https://nytimes.com/2024/06/18/nyregion/queens-man-sexual-assault-arrest.html
+
 **Tiny Love Stories: ‘To Die with Perfect Abs’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/06/18/style/tiny-modern-love-stories-to-die-with-perfect-abs.html
