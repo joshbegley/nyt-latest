@@ -1,3 +1,11 @@
+**Copa America 2024 squad guides: Everything you need to know about the teams**\
+`Get the lowdown on every team at Copa America 2024 with The Athletic's series of in-depth squad guides`\
+https://nytimes.com/athletic/5572337/2024/06/18/copa-america-2024-squad-guides/
+
+**More Than 1,000 Birds Died One Night in Chicago. Will It Happen Again?**\
+`A mass of birds died in Chicago in October after striking one building, adding to the push for more protections in one of the most dangerous cities for avian migration.`\
+https://nytimes.com/2024/06/18/us/birds-mass-death-chicago-migration.html
+
 **The Athletic FC: Mbappe breaks his nose, a nation waits; Your guide to Copa groups**\
 `Hello! Kylian Mbappe has just acquired the most famous nose in football.`\
 https://nytimes.com/athletic/5572133/2024/06/18/mbappe-nose-copa-america-group-guides/

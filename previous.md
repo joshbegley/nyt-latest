@@ -1,3 +1,11 @@
+**Copa America 2024 squad guides: Everything you need to know about the teams**\
+`Get the lowdown on every team at Copa America 2024 with The Athletic's series of in-depth squad guides`\
+https://nytimes.com/athletic/5572337/2024/06/18/copa-america-2024-squad-guides/
+
+**More Than 1,000 Birds Died One Night in Chicago. Will It Happen Again?**\
+`A mass of birds died in Chicago in October after striking one building, adding to the push for more protections in one of the most dangerous cities for avian migration.`\
+https://nytimes.com/2024/06/18/us/birds-mass-death-chicago-migration.html
+
 **The Athletic FC: Mbappe breaks his nose, a nation waits; Your guide to Copa groups**\
 `Hello! Kylian Mbappe has just acquired the most famous nose in football.`\
 https://nytimes.com/athletic/5572133/2024/06/18/mbappe-nose-copa-america-group-guides/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/18/style/ralph-lauren-team-usa-olympic-opening-cerem
 **McAfee remains unsigned with ESPN's 'College GameDay'**\
 `McAfee, the 37-year-old talk show host, said late last year that he would return to the program.`\
 https://nytimes.com/athletic/5572364/2024/06/18/pat-mcafee-gameday-contract/
-
-**Flames salary-cap dump targets? Martin Necas trade ideas? Mailbag**\
-`Also, is Rasmus Andersson a trade chip that could get the Flames a top-10 pick in this year's draft? `\
-https://nytimes.com/athletic/5557618/2024/06/18/flames-salary-cap-martin-necas-trade/
-
-**Lawmakers to Confront Boeing Chief on Mounting Quality and Safety Issues**\
-`Dave Calhoun, Boeing’s chief executive, will appear before a Senate investigative panel and plans to apologize for the company’s high-profile safety incidents.`\
-https://nytimes.com/2024/06/18/us/politics/boeing-chief-senate-hearing-safety-issues.html
 
