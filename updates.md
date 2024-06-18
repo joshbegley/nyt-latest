@@ -1,3 +1,11 @@
+**Senate Republicans Block Bump-Stock Ban**\
+`Democrats failed in their effort to override last week’s Supreme Court ruling with legislation, but saw some political benefits to the clash.`\
+https://nytimes.com/2024/06/18/us/bump-stock-ban-senate.html
+
+**Nvidia Becomes Most Valuable Public Company, Topping Microsoft**\
+`The chip maker’s stock price has jumped over the last year thanks to its stranglehold on the market for the chips needed to build A.I. systems.`\
+https://nytimes.com/2024/06/18/technology/nvidia-most-valuable-company.html
+
 **California Joins Growing National Effort to Ban Smartphone Use in Schools**\
 `Gov. Gavin Newsom called for a statewide ban as states and large school districts have pursued similar prohibitions to prevent disruption and cyberbullying.`\
 https://nytimes.com/2024/06/18/us/california-newsom-smartphone-ban.html
