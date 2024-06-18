@@ -1,3 +1,7 @@
+**Hidden Under George Washington’s Home: 35 Glass Bottles of Cherries**\
+`Archaeologists discovered the glass bottles in the cellar during a restoration project.`\
+https://nytimes.com/2024/06/18/us/george-washington-mount-vernon-cherries.html
+
 **Copa America 2024 squad guides: Everything you need to know about the teams**\
 `Get the lowdown on every team at Copa America 2024 with The Athletic's series of in-depth squad guides`\
 https://nytimes.com/athletic/5572337/2024/06/18/copa-america-2024-squad-guides/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5572008/2024/06/18/giants-takeaways-heliot-ramos-al
 **Ralph Lauren Unveils the Team USA Olympic Uniforms**\
 `Navy blazers for the win.`\
 https://nytimes.com/2024/06/18/style/ralph-lauren-team-usa-olympic-opening-ceremony.html
-
-**McAfee remains unsigned with ESPN's 'College GameDay'**\
-`McAfee, the 37-year-old talk show host, said late last year that he would return to the program.`\
-https://nytimes.com/athletic/5572364/2024/06/18/pat-mcafee-gameday-contract/
 
