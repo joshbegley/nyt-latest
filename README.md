@@ -19,7 +19,7 @@ https://nytimes.com/2024/06/18/weather/heat-wave-us-history.html
 https://nytimes.com/2024/06/18/us/biden-immigration-daca-dreamers.html
 
 **Canucks re-sign Filip Hronek to 8-year, $58 million extension**\
-`The Vancouver Canucks have locked up defenseman Filip Hronek on a max-term, eight-year extension worth $58 million.`\
+`The deal will keep Hronek in Vancouver through his age-34 campaign.`\
 https://nytimes.com/athletic/5574217/2024/06/18/filip-hronek-canucks-contract-extension/
 
 **Blues re-sign Scott Perunovich to 1-year deal**\
