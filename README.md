@@ -1,3 +1,19 @@
+**The Gun Lobby’s Hidden Hand in the 2nd Amendment Battle**\
+`Case after case challenging gun restrictions cites the same Georgetown professor. His seemingly independent work has undisclosed ties to pro-gun interests.`\
+https://nytimes.com/2024/06/18/us/gun-laws-georgetown-professor.html
+
+**As Misconduct Complaints Rise in N.Y.C. Schools, Investigations Decline**\
+`Budget constraints and staff shortages reduced capacity at the agency that investigates criminal behavior in public schools, according to the City Council.`\
+https://nytimes.com/2024/06/18/nyregion/sexual-misconduct-complaints-nyc-schools-investigations.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/06/18/crosswords/spelling-bee-forum.html
+
+**Doctors Test the Limits of What Obesity Drugs Can Fix**\
+`‘Obesity first’ doctors say they start with one pill, to treat obesity, and often find other chronic diseases, like rheumatoid arthritis, simply vanish`\
+https://nytimes.com/2024/06/18/health/obesity-first-wegovy-zepbound-doctors.html
+
 **Path Is Cleared for One of the Largest U.S. Arms Sales to Israel in Years**\
 `Two top Democratic holdouts in Congress signed off on a plan to sell $18 billion worth of F-15 fighter jets to Israel, according to people familiar with the sale.`\
 https://nytimes.com/live/2024/06/18/world/israel-gaza-war-hamas
@@ -21,20 +37,4 @@ https://nytimes.com/2024/06/18/learning/word-of-the-day-gregarious.html
 **The night France's Kylian Mbappe broke his nose at Euro 2024 - 'Any ideas for masks?'**\
 `X-rays at a Dusseldorf hospital confirmed a fracture but the France striker intends to play on at the Euros wearing a protective mask`\
 https://nytimes.com/athletic/5571535/2024/06/18/mbappe-broken-nose-france/
-
-**Minor league notebook: Junior Caminero, Jace Jung and more anticipated prospect promotions**\
-`Dane Martinez identifies a half dozen prospects who should be on the fantasy baseball radar ahead of a potential call-up this summer.`\
-https://nytimes.com/athletic/5570738/2024/06/18/minor-league-notebook-junior-caminero-jace-jung-and-more-anticipated-prospect-promotions/
-
-**How Slovakia channelled Napoli to record the 'biggest-ever' Euros upset**\
-`Slovakia recorded a famous underdog win against Belgium in their Euro 2024 opener - but that doesn't mean they played like one`\
-https://nytimes.com/athletic/5571305/2024/06/18/slovakia-belgium-euro-2024-upset/
-
-**Cubs suffer a tough loss after another blown save by Héctor Neris**\
-`Chicago's offense, which has been in disarray, gave the team a late lead, but then the fans at Wrigley were reminded of the flawed bullpen.`\
-https://nytimes.com/athletic/5571766/2024/06/18/cubs-hector-neris-blown-save/
-
-**More Doctors Walk Off the Job in South Korea**\
-`Physicians across the country staged a one-day strike, the latest escalation in a months-old protest against the government’s plan to train more doctors.`\
-https://nytimes.com/2024/06/18/world/asia/south-korea-doctor-strike.html
 
