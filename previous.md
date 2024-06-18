@@ -1,3 +1,7 @@
+**Small Step Could Bring Big Relief to Young Undocumented Immigrants**\
+`A new Biden administration measure enables “Dreamers” to get work visas that could free them from relying on the DACA program, whose survival is in doubt.`\
+https://nytimes.com/2024/06/18/us/biden-immigration-daca-dreamers.html
+
 **Canucks re-sign Filip Hronek to 8-year, $58 million extension**\
 `The Vancouver Canucks have locked up defenseman Filip Hronek on a max-term, eight-year extension worth $58 million.`\
 https://nytimes.com/athletic/5574217/2024/06/18/filip-hronek-canucks-contract-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5572601/2024/06/18/euro-2024-day-five-portugal-rona
 **The Northeast begins to sweat as a long heat wave arrives.**\
 `The unusually early heat wave was just beginning in much of the Northeast, which will continue to swelter on Wednesday.`\
 https://nytimes.com/live/2024/06/18/weather/heat-wave-news/the-northeast-begins-to-sweat-as-a-long-heat-wave-arrives
-
-**Arda Guler: Choir-boy looks, thunderous foot and the hearts of Ancelotti, Montella and Turkey**\
-`At 19, the Real Madrid player came of age at Euro 2024 with a thunderous goal and a show of promise that could take Turkey a long way`\
-https://nytimes.com/athletic/5573923/2024/06/18/arda-guler-ancelotti-turkey/
 

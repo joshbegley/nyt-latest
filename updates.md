@@ -1,3 +1,7 @@
+**Small Step Could Bring Big Relief to Young Undocumented Immigrants**\
+`A new Biden administration measure enables “Dreamers” to get work visas that could free them from relying on the DACA program, whose survival is in doubt.`\
+https://nytimes.com/2024/06/18/us/biden-immigration-daca-dreamers.html
+
 **Canucks re-sign Filip Hronek to 8-year, $58 million extension**\
 `The Vancouver Canucks have locked up defenseman Filip Hronek on a max-term, eight-year extension worth $58 million.`\
 https://nytimes.com/athletic/5574217/2024/06/18/filip-hronek-canucks-contract-extension/
