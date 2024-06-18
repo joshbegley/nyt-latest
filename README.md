@@ -1,3 +1,7 @@
+**Path Is Cleared for One of the Largest U.S. Arms Sales to Israel in Years**\
+`Two top Democratic holdouts in Congress signed off on a plan to sell $18 billion worth of F-15 fighter jets to Israel, according to people familiar with the sale.`\
+https://nytimes.com/live/2024/06/18/world/israel-gaza-war-hamas
+
 **The Transfer DealSheet: United's Branthwaite move, Yoro latest, Zirkzee interest**\
 `Welcome to our weekly guide to everything that is happening in the summer transfer window`\
 https://nytimes.com/athletic/5565759/2024/06/18/manchester-united-arsenal-transfer-news-liverpool/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5571766/2024/06/18/cubs-hector-neris-blown-save/
 **More Doctors Walk Off the Job in South Korea**\
 `Physicians across the country staged a one-day strike, the latest escalation in a months-old protest against the government’s plan to train more doctors.`\
 https://nytimes.com/2024/06/18/world/asia/south-korea-doctor-strike.html
-
-**Secret Service Agent Robbed at Gunpoint on Night of Biden’s L.A. Gala**\
-`The agent’s bag was stolen on Saturday night in a residential community in Southern California, the authorities said.`\
-https://nytimes.com/2024/06/18/us/secret-service-robbed-biden-tustin.html
 
