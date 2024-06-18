@@ -1,3 +1,7 @@
+**Man Pleads Guilty in Chinatown Killing of Young Woman He Followed**\
+`Assamad Nash fatally stabbed Christina Yuna Lee in her apartment. The killing raised fears at a time of anti-Asian attacks.`\
+https://nytimes.com/2024/06/18/nyregion/suspect-christina-yuna-lee-murder-guilty.html
+
 **Blue Jays place Bo Bichette on the IL, recall No. 2 prospect Orelvis Martinez**\
 `Bichette hasn't played since June 14 while dealing with a sore calf. Martinez joins the roster for what would be his MLB debut.`\
 https://nytimes.com/athletic/5573866/2024/06/18/blue-jays-bo-bichette-il-orelvis-martinez/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5573806/2024/06/18/michael-johnson-grand-slam-track
 **Triple-A to fully use ABS challenge system**\
 `Soon all Triple-A games will use the automated ball-strike (ABS) challenge system instead of the full ABS, MLB says.`\
 https://nytimes.com/athletic/5573707/2024/06/18/automated-ball-strike-challenge-system-triple-a/
-
-**There Is No Magical Way to Overcome Fear**\
-`After being paralyzed on the set of a ‘Harry Potter’ movie, I rediscovered what fearlessness really meant.`\
-https://nytimes.com/2024/06/18/special-series/harry-potter-stunt-double-fear.html
 

@@ -1,3 +1,7 @@
+**Man Pleads Guilty in Chinatown Killing of Young Woman He Followed**\
+`Assamad Nash fatally stabbed Christina Yuna Lee in her apartment. The killing raised fears at a time of anti-Asian attacks.`\
+https://nytimes.com/2024/06/18/nyregion/suspect-christina-yuna-lee-murder-guilty.html
+
 **Massachusetts Emergency 911 System Temporarily Goes Down Statewide**\
 `The system was down for nearly two hours, when officials urged residents to call local police or fire stations to seek help. It was not clear what caused the outage.`\
 https://nytimes.com/2024/06/18/us/massachusetts-911-outage.html
