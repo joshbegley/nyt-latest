@@ -1,40 +1,40 @@
-**How Lesbians Found One Another, From the Softball Field to the Sex-Toy Shop**\
-`In “A Place of Our Own,” June Thomas considers “six spaces that shaped queer women’s culture.”`\
-https://nytimes.com/2024/06/18/books/review/a-place-of-our-own-june-thomas-lesbians.html
+**Kenya Braces for Major Protests Over Proposed Tax Hikes**\
+`Activists have called on Kenyans to occupy Parliament in opposition to a new finance bill that is likely to raise the cost of living for many people by increasing taxes on a range of goods and services.`\
+https://nytimes.com/2024/06/18/world/africa/kenya-braces-for-major-protests-over-proposed-tax-hikes.html
 
-**Biking Through Southern France, and History**\
-`The Canal du Midi traverses the Occitanie region and gives cyclists of all skill levels access to parts of France that are rich in lore, yet sometimes passed over by visitors.`\
-https://nytimes.com/2024/06/18/travel/biking-france-canal-du-midi.html
+**Better to Close the Israeli War Cabinet Than Let the Extremists In**\
+`But Hamas and Netanyahu both have their reasons for keeping the war going.`\
+https://nytimes.com/live/2024/06/12/opinion/thepoint/israel-war-cabinet
 
-**Contractions**\
-`In Memphis, a doctor and a volunteer driver contemplate the discontinuation of abortion services at a women’s health clinic two years after the overturning of Roe v. Wade.`\
-https://nytimes.com/video/opinion/100000009438727/contractions.html
+**A Democratic Brawl in Virginia May Put a House Seat in Play**\
+`The Democratic contest in Virginia’s 10th House district will end what may be the ugliest fight of the 2024 primary season — and start an unexpected general election battle.`\
+https://nytimes.com/2024/06/18/us/politics/virginia-house-primary.html
 
-**Deadly Landslides and Floods Hit Southern China**\
-`Chinese state media footage showed landslides that tore through mountain roads as heavy rains washed away a bridge and flooded villages.`\
-https://nytimes.com/video/world/asia/100000009527635/china-flood-landslide.html
+**A Heat Wave Is Coming: Here’s How Paramedics Are Preparing**\
+`Wet towels and body bags filled with ice water are being used to quickly cool victims, which is essential to saving lives.`\
+https://nytimes.com/2024/06/18/climate/heat-wave-emt-treatment.html
 
-**North Korea Has Lost ‘Many’ Troops to Mines in DMZ, South Says**\
-`North Korean soldiers have been sent into the mine-strewn buffer zone to do construction work since November, the South Korean military said on Tuesday.`\
-https://nytimes.com/2024/06/18/world/asia/north-korea-loses-troops-dmz.html
+**Why Israel Is in Existential Danger Today**\
+`You have to wonder if American “friends” of Israel have any clue about the nature of Israel’s government.`\
+https://nytimes.com/2024/06/18/opinion/netanyahu-gaza-congress.html
 
-**Thailand’s Legislature Approves Same-Sex Marriage Law**\
-`The bill, which needs the king’s endorsement to become law, underscores Thailand’s status as a relative haven in Asia for L.G.B.T.Q. people.`\
-https://nytimes.com/2024/06/18/world/asia/thailand-same-sex-marriage-vote.html
+**On Juneteenth, Freedom Came With Strings Attached**\
+`The best way to think of the holiday is not as the moment Black people attained freedom but as a moment in the struggle to realize freedom.`\
+https://nytimes.com/2024/06/18/opinion/juneteenth-texas.html
 
-**Southampton's 2024-25 Premier League fixtures**\
-`Southampton mark their return to the Premier League with a trip to Newcastle United to begin the 2024-25 campaign.`\
-https://nytimes.com/athletic/5561497/2024/06/18/southampton-premier-league-fixtures-2024-25-schedule/
+**57 Sandwiches That Define New York City**\
+`A portrait of the five boroughs between two slices of bread.`\
+https://nytimes.com/interactive/2024/dining/best-nyc-sandwiches.html
 
-**Leicester's 2024-25 Premier League fixtures**\
-`Leicester City will start the 2024-25 Premier League season with a home fixture against Tottenham Hotspur on Monday, August 19.`\
-https://nytimes.com/athletic/5561162/2024/06/18/leicester-city-premier-league-fixtures-2024-25-schedule/
+**Amazon Union Workers Join Forces With the Teamsters**\
+`An affiliation agreement between the Amazon Labor Union and the 1.3 million-member Teamsters signals an escalation in challenging the online retailer.`\
+https://nytimes.com/2024/06/18/business/economy/amazon-labor-union-teamsters.html
 
-**Manchester City’s 2024-25 Premier League fixtures**\
-`Manchester City begin the defence of their Premier League title against Chelsea at Stamford Bridge on Sunday, August 18.`\
-https://nytimes.com/athletic/5562298/2024/06/18/manchester-city-premier-league-fixtures-2024-25-schedule/
+**The System Isn’t Built for Jan. 6, and Neither Are We**\
+`It’s not as if anybody needs a trial to form an opinion about the events of that day.`\
+https://nytimes.com/2024/06/18/opinion/trial-jan-6.html
 
-**Tottenham's 2024-25 Premier League fixtures**\
-`Tottenham Hotspur&#8217;s 2024-25 Premier League campaign will begin away at Leicester City.`\
-https://nytimes.com/athletic/5561279/2024/06/18/tottenham-premier-league-fixtures-2024-25-schedule/
+**Biden Gives Legal Protections to Undocumented Spouses of U.S. Citizens**\
+`The new policy is one of the most significant actions to protect immigrants in years. It affects about 500,000 people who have been living in the United States for more than a decade.`\
+https://nytimes.com/2024/06/18/us/politics/biden-legal-protections-undocumented-spouses.html
 
