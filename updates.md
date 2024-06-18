@@ -1,3 +1,7 @@
+**Aldridge: Brown, Tatum have their banner in a city that demands nothing less**\
+`"The only way you can get rid of all the ghosts is to become one of them," said Sean Grande, the voice of the Boston Celtics. `\
+https://nytimes.com/athletic/5568524/2024/06/18/jaylen-brown-jayson-tatum-celtics-title/
+
 **Toyota Chairman, Re-Elected by Investors, Defends His Hands-On Role**\
 `Akio Toyoda, who stepped down as chief executive last year, had been criticized by some shareholders for continuing to dominate decision making at the automaker.`\
 https://nytimes.com/2024/06/18/business/toyota-akio-toyoda.html
