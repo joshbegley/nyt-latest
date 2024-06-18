@@ -1,3 +1,7 @@
+**Ravens unveil purple alternate helmets**\
+`The Ravens' new helmet also features gold details and drew rave reviews from current and former players.`\
+https://nytimes.com/athletic/5573289/2024/06/18/ravens-alternate-helmet-design/
+
 **Club Q Shooter Pleads Guilty to Hate Crimes in Effort to Avoid Death Penalty**\
 `Anderson Lee Aldrich was convicted in the 2022 shooting that killed five people at an L.G.B.T.Q. nightclub in Colorado Springs.`\
 https://nytimes.com/2024/06/18/us/club-q-shooter-federal-charges-guilty.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5570690/2024/06/18/cricket-us-t20-world-cup/
 **Hollinger: Celtics are built to thrive in new cap era ... at least for a little while**\
 `Surely, Boston will be favored to repeat, but nothing is certain, and the CBA will have a much bigger impact in 2025.`\
 https://nytimes.com/athletic/5569914/2024/06/18/boston-celtics-salary-cap-nba-free-agency/
-
-**Campania Is the Next Move for the Man Behind Rezdôra**\
-`Stefano Secchi is opening Massara in the Flatiron district, ice creams inspired by appetizing and more restaurant news.`\
-https://nytimes.com/2024/06/18/dining/nyc-restaurant-news.html
 
