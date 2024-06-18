@@ -1,3 +1,11 @@
+**Forest have still not replaced Samba - can they finally do so this summer?**\
+`A disgruntled Samba left Nottingham Forest post-promotion in summer 2022 - it still feels as though they have not replaced him in goal`\
+https://nytimes.com/athletic/5568031/2024/06/18/nottingham-forest-brice-samba-goalkeepers-transfer/
+
+**Euro 2024 and German efficiency: Forget everything you thought you knew**\
+`Supporters travelling around Germany during Euro 2024 have encountered problems long familiar to locals`\
+https://nytimes.com/athletic/5569570/2024/06/18/euro-2024-germany-england-fans-gelsenkirchen-trains/
+
 **Padres absorb sobering dose of reality from juggernaut Phillies**\
 `San Diego got good news on Yu Darvish, then got beaten down by Philadelphia's heavy bats.`\
 https://nytimes.com/athletic/5570444/2024/06/18/padres-phillies-yu-darvish-joe-musgrove/
