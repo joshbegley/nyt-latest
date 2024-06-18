@@ -1,3 +1,11 @@
+**The Pulse: Why this Celtics title *isn't* boring**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5571170/2024/06/18/celtics-mavericks-nba-title-the-pulse/
+
+**Which Premier League team has the toughest start to the 2024-25 season?**\
+`After fixtures were released on Tuesday morning, we have analysed which team has the toughest start to the new campaign`\
+https://nytimes.com/athletic/5572100/2024/06/18/premier-league-toughest-start-2024-25/
+
 **President Biden’s Distrust Challenge**\
 `We explain how one set of voters may decide the 2024 election.`\
 https://nytimes.com/2024/06/18/briefing/president-bidens-distrust-challenge.html
