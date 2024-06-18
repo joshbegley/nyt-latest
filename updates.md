@@ -1,3 +1,11 @@
+**Amazon Is Fined Nearly $6 Million Over Warehouse Work Quotas**\
+`California officials cited failures to disclose productivity requirements at two locations. The company said it would appeal.`\
+https://nytimes.com/2024/06/18/business/economy/amazon-california-productivity-quota.html
+
+**Canucks re-sign Filip Hronek to 8-year, $58 million extension**\
+`The deal will keep Hronek in Vancouver through his age-34 campaign.`\
+https://nytimes.com/athletic/5574217/2024/06/18/filip-hronek-canucks-contract-extension/
+
 **A ship attacked by the Houthis goes down in the Red Sea.**\
 `By Anjana Sankar`\
 https://nytimes.com/live/2024/06/18/world/israel-gaza-war-hamas/a-ship-attacked-by-the-houthis-goes-down-in-the-red-sea

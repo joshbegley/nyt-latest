@@ -1,3 +1,7 @@
+**Amazon Is Fined Nearly $6 Million Over Warehouse Work Quotas**\
+`California officials cited failures to disclose productivity requirements at two locations. The company said it would appeal.`\
+https://nytimes.com/2024/06/18/business/economy/amazon-california-productivity-quota.html
+
 **A ship attacked by the Houthis goes down in the Red Sea.**\
 `By Anjana Sankar`\
 https://nytimes.com/live/2024/06/18/world/israel-gaza-war-hamas/a-ship-attacked-by-the-houthis-goes-down-in-the-red-sea
@@ -15,7 +19,7 @@ https://nytimes.com/2024/06/18/weather/heat-wave-us-history.html
 https://nytimes.com/2024/06/18/us/biden-immigration-daca-dreamers.html
 
 **Canucks re-sign Filip Hronek to 8-year, $58 million extension**\
-`The Vancouver Canucks have locked up defenseman Filip Hronek on a max-term, eight-year extension worth $58 million.`\
+`The deal will keep Hronek in Vancouver through his age-34 campaign.`\
 https://nytimes.com/athletic/5574217/2024/06/18/filip-hronek-canucks-contract-extension/
 
 **Blues re-sign Scott Perunovich to 1-year deal**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5574084/2024/06/18/lane-kiffin-house-v-ncaa-walk-on
 **Astros place Justin Verlander on 15-day IL with 'neck discomfort'**\
 `Another blow to Houston's rotation also casts doubt about whether Verlander will reach the innings threshold for his 2025 vesting option.`\
 https://nytimes.com/athletic/5574028/2024/06/18/astros-justin-verlander-neck-injury/
-
-**Biden Granted Protections for Undocumented Spouses**\
-`Also, the U.S. pier for Gaza aid is failing. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2024/06/18/briefing/biden-spouse-migrant-protections-heat-wave-east.html
 
