@@ -1,3 +1,7 @@
+**Ravens unveil purple alternate helmets**\
+`The Ravens' new helmet also features gold details and drew rave reviews from current and former players.`\
+https://nytimes.com/athletic/5573289/2024/06/18/ravens-alternate-helmet-design/
+
 **Club Q Shooter Pleads Guilty to Hate Crimes in Effort to Avoid Death Penalty**\
 `Anderson Lee Aldrich was convicted in the 2022 shooting that killed five people at an L.G.B.T.Q. nightclub in Colorado Springs.`\
 https://nytimes.com/2024/06/18/us/club-q-shooter-federal-charges-guilty.html
