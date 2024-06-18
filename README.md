@@ -1,3 +1,11 @@
+**Q&A: 2024 NHL Draft prospect Ivan Demidov on Blackhawks, North America and his game**\
+`Demidov sat down with The Athletic on Tuesday in Florida to discuss his game, favorite players, NHL future and much more.`\
+https://nytimes.com/athletic/5572893/2024/06/18/nhl-draft-2024-prospect-blackhawks-demidov/
+
+**What's the latest on Alabama's recruiting momentum?**\
+`Jackson Lloyd officially visited Alabama during the June 14 weekend and has shut down his recruitment ahead of a scheduled visit to USC.`\
+https://nytimes.com/athletic/5573688/2024/06/18/alabama-football-recruiting-jackson-lloyd/
+
 **Biden Courts Some Liberal Love on Immigration**\
 `By Farah Stockman`\
 https://nytimes.com/2024/06/18/opinion/biden-immigration-spouses-citizenship.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/18/arts/music/amplifier-newsletter-monterey-pop-fest
 **The Briefing: Turkey 3 Georgia 1 - Guler does the spectacular, Kvaratskhelia overshadowed**\
 `Turkey scored two of the best goals seen yet at Euro 2024 as they beat Georgia in a hugely entertaining match`\
 https://nytimes.com/athletic/5568279/2024/06/18/turkey-3-georgia-1-guler-kvaratskhelia/
-
-**Stop-and-Shop the Runways**\
-`If you’re just looking (but not buying), there’s pleasure in creating an imaginary wardrobe from the men’s wear catwalks at Gucci, Fendi, JW Anderson, Ralph Lauren and Tod’s.`\
-https://nytimes.com/2024/06/18/style/milan-fashion-week-menswear.html
-
-**U.S. Pier for Gaza Aid Is Failing, and Could Be Dismantled Early**\
-`Officials hope a looming deadline will pressure Israel to open more land routes into the territory, which is facing extreme levels of hunger.`\
-https://nytimes.com/2024/06/18/us/politics/gaza-pier-israel-aid.html
 
