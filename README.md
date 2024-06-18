@@ -1,3 +1,15 @@
+**The Athletic FC: Mbappe breaks his nose, a nation waits; Your guide to Copa groups**\
+`Hello! Kylian Mbappe has just acquired the most famous nose in football.`\
+https://nytimes.com/athletic/5572133/2024/06/18/mbappe-nose-copa-america-group-guides/
+
+**Anouk Aimée, Enigmatic Star of ‘A Man and a Woman,’ Is Dead at 92**\
+`The French actress had already made an impression in international film when she appeared in Claude Lelouch’s 1966 romance, a role that earned her an Oscar nomination.`\
+https://nytimes.com/2024/06/18/obituaries/anouk-aimee-dead.html
+
+**French Court Strikes Down Ban on Israeli Companies at Weapons Show**\
+`A court ruled that France’s order to bar Israeli exhibitors from the Eurosatory arms show was discriminatory, as the French government’s criticism over the war in Gaza mounts.`\
+https://nytimes.com/2024/06/18/world/middleeast/arms-show-ban-france-israel-weapons.html
+
 **A Relic of Los Angeles’s Anti-L.G.B.T.Q. Past Comes Down**\
 `The strange “no U-turn” signs along Griffith Park Boulevard in Silver Lake were erected in the 1990s to ward off gay men.`\
 https://nytimes.com/2024/06/18/us/los-angeles-lgbtq-signs.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5557618/2024/06/18/flames-salary-cap-martin-necas-t
 **Lawmakers to Confront Boeing Chief on Mounting Quality and Safety Issues**\
 `Dave Calhoun, Boeing’s chief executive, will appear before a Senate investigative panel and plans to apologize for the company’s high-profile safety incidents.`\
 https://nytimes.com/2024/06/18/us/politics/boeing-chief-senate-hearing-safety-issues.html
-
-**Raheem Morris on his second chance, that Penix pick**\
-`Atlanta’s new head coach reflects on his past and his new team’s future, particularly at quarterback.`\
-https://nytimes.com/athletic/5570876/2024/06/18/raheem-morris-podcast-interview-penix-draft-pick-second-coaching-job/
-
-**Thairo Estrada hits a thrilling home run and Camilo Doval puts it on ice as Giants win at Wrigley**\
-`"That was one of the cooler wins I've ever been a part of," said catcher Patrick Bailey, who hit a home run in the eigthth.`\
-https://nytimes.com/athletic/5571979/2024/06/18/san-francisco-giants-thairo-estrada-camilo-doval/
-
-**The FIFA World Rankings are not that important - and that’s a good thing**\
-`Rankings serve their purpose. They measure progress, they help decide seedings - but being No 1 is not, in itself, something to aspire to`\
-https://nytimes.com/athletic/5571906/2024/06/18/fifa-world-rankings-how-important/
 
