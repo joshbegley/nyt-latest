@@ -1,3 +1,11 @@
+**Glitz and Grimness Cross Paths on London’s ‘Caledonian Road’**\
+`Andrew O’Hagan’s ambitious state-of-England novel finds a cosseted academic facing up to the hard lives and ethical shortcuts he’d prefer to ignore.`\
+https://nytimes.com/2024/06/18/books/review/caledonian-road-andrew-ohagan.html
+
+**Fantasy baseball 2024 Top 300 hitters (mid-June update): From Bobby Witt Jr. to Ben Rice**\
+`Derek VanRiper shares his Top 300 hitter rankings update for fantasy baseball 2024, with Kansas City's Bobby Witt Jr. now leading the way.`\
+https://nytimes.com/athletic/5344859/2024/06/18/fantasy-baseball-2024-top-300-hitters/
+
 **Ravens unveil purple alternate helmets**\
 `The Ravens' new helmet also features gold details and drew rave reviews from current and former players.`\
 https://nytimes.com/athletic/5573289/2024/06/18/ravens-alternate-helmet-design/

@@ -1,3 +1,7 @@
+**Glitz and Grimness Cross Paths on London’s ‘Caledonian Road’**\
+`Andrew O’Hagan’s ambitious state-of-England novel finds a cosseted academic facing up to the hard lives and ethical shortcuts he’d prefer to ignore.`\
+https://nytimes.com/2024/06/18/books/review/caledonian-road-andrew-ohagan.html
+
 **Ravens unveil purple alternate helmets**\
 `The Ravens' new helmet also features gold details and drew rave reviews from current and former players.`\
 https://nytimes.com/athletic/5573289/2024/06/18/ravens-alternate-helmet-design/
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/5572428/2024/06/18/jeff-van-gundy-clippers-assistan
 `Participants at De Niro Con in Tribeca could talk like Travis Bickle, shadowbox like Jake LaMotta or get a tattoo like Max Cady. Yes, a real tattoo.`\
 https://nytimes.com/2024/06/18/movies/robert-de-niro-fan-convention.html
 
-**Cricket is the USA's new favourite sport - but what do googly, Mankad and cow corner mean?**\
-`Cricket is a magnificent sport that is frequently overcomplicated – so The Athletic is here to help new fans in the States...`\
-https://nytimes.com/athletic/5570690/2024/06/18/cricket-us-t20-world-cup/
-
-**Hollinger: Celtics are built to thrive in new cap era ... at least for a little while**\
-`Surely, Boston will be favored to repeat, but nothing is certain, and the CBA will have a much bigger impact in 2025.`\
-https://nytimes.com/athletic/5569914/2024/06/18/boston-celtics-salary-cap-nba-free-agency/
+**Fantasy baseball 2024 Top 300 hitters (mid-June update): From Bobby Witt Jr. to Ben Rice**\
+`Derek VanRiper shares his Top 300 hitter rankings update for fantasy baseball 2024, with Kansas City's Bobby Witt Jr. now leading the way.`\
+https://nytimes.com/athletic/5344859/2024/06/18/fantasy-baseball-2024-top-300-hitters/
 

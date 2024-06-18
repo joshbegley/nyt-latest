@@ -1,3 +1,11 @@
+**Team USA reveals opening, closing ceremony outfits for Paris Games**\
+`This is Ralph Lauren's ninth time designing Team USA's ceremony outfits.`\
+https://nytimes.com/athletic/5573268/2024/06/18/usa-olympics-outfits-opening-ceremony/
+
+**La Liga fixtures released: Which of Madrid and Barca will be happier and when is El Clasico?**\
+`Next season's La Liga schedule has been confirmed. Our Spanish football experts analyse it all`\
+https://nytimes.com/athletic/5572906/2024/06/18/la-liga-real-madrid-barcelona-clasico/
+
 **Glitz and Grimness Cross Paths on London’s ‘Caledonian Road’**\
 `Andrew O’Hagan’s ambitious state-of-England novel finds a cosseted academic facing up to the hard lives and ethical shortcuts he’d prefer to ignore.`\
 https://nytimes.com/2024/06/18/books/review/caledonian-road-andrew-ohagan.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/18/us/politics/neil-goldschmidt-dead.html
 **Van Gundy agrees to be Clippers' lead assistant**\
 `Van Gundy, 62, spent the 2024 season as a senior consultant for the Boston Celtics.`\
 https://nytimes.com/athletic/5572428/2024/06/18/jeff-van-gundy-clippers-assistant-coach/
-
-**You Talkin’ Like Him? A Convention Lets De Niro Fans Get In on the Act.**\
-`Participants at De Niro Con in Tribeca could talk like Travis Bickle, shadowbox like Jake LaMotta or get a tattoo like Max Cady. Yes, a real tattoo.`\
-https://nytimes.com/2024/06/18/movies/robert-de-niro-fan-convention.html
-
-**Fantasy baseball 2024 Top 300 hitters (mid-June update): From Bobby Witt Jr. to Ben Rice**\
-`Derek VanRiper shares his Top 300 hitter rankings update for fantasy baseball 2024, with Kansas City's Bobby Witt Jr. now leading the way.`\
-https://nytimes.com/athletic/5344859/2024/06/18/fantasy-baseball-2024-top-300-hitters/
 
