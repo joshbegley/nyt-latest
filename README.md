@@ -1,3 +1,7 @@
+**A top Biden adviser says the conflict on Israel’s border with Lebanon can end ‘if the sides agree.’**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/06/18/world/israel-gaza-war-hamas/a-top-biden-adviser-says-the-conflict-on-israels-border-with-lebanon-can-end-if-the-sides-agree
+
 **Ian McKellen Is in ‘Good Spirits’ After Falling Off the Stage During a Play**\
 `The English actor was injured during a performance of “Player Kings,” and the show was abruptly canceled. He is expected to perform again on Wednesday.`\
 https://nytimes.com/2024/06/18/arts/ian-mckellen-stage-fall.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/18/theater/kyoto-royal-shakespeare-company.html
 **The Pulse: Why this Celtics title *isn't* boring**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5571170/2024/06/18/celtics-mavericks-nba-title-the-pulse/
-
-**Which Premier League team has the toughest start to the 2024-25 season?**\
-`After fixtures were released on Tuesday morning, we have analysed which team has the toughest start to the new campaign`\
-https://nytimes.com/athletic/5572100/2024/06/18/premier-league-toughest-start-2024-25/
 
