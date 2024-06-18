@@ -1,3 +1,7 @@
+**Johnson signs up McLaughlin-Levrone to new Grand Slam Track venture**\
+`Four-time Olympic champion Michael Johnson has officially launched his new track and field venture, Grand Slam Track, with Sydney McLaughlin-Levrone signed up as his first star competitor.`\
+https://nytimes.com/athletic/5573806/2024/06/18/michael-johnson-grand-slam-track/
+
 **Triple-A to fully use ABS challenge system**\
 `Soon all Triple-A games will use the automated ball-strike (ABS) challenge system instead of the full ABS, MLB says.`\
 https://nytimes.com/athletic/5573707/2024/06/18/automated-ball-strike-challenge-system-triple-a/
