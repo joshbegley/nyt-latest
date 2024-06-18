@@ -1,3 +1,7 @@
+**Germany fan hospitalised by Fullkrug shot to attend Hungary game**\
+`A fan who was hospitalised by a wayward shot from Germany striker Niclas Füllkrug has recovered in time to watch his country face Hungary on Wednesday evening, according to the German Football Federation (DFB).`\
+https://nytimes.com/athletic/5573549/2024/06/18/germany-fan-injured-fullkrug/
+
 **LeBron, Osimhen and Kane - the masked sporting stars Mbappe can take inspiration from**\
 `Kylian Mbappe asked for masked advice having had his nose rearranged against Austria - plenty of sporting stars have had success with them`\
 https://nytimes.com/athletic/5572989/2024/06/18/kylian-mbappe-nose-mask-lebron/
