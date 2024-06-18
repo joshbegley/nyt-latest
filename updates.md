@@ -1,3 +1,11 @@
+**On Immigration, Biden Attempts to Replicate a Powerful Obama Moment**\
+`The president’s planned announcement to expand legal protections for some undocumented spouses of American citizens evoked Barack Obama’s move to help young immigrants in 2012.`\
+https://nytimes.com/2024/06/18/us/politics/biden-immigration-announcement-obama.html
+
+**Man United exploring deal to sign Zirkzee**\
+`Manchester United are exploring a deal to sign Dutch striker Joshua Zirkzee from Bologna.`\
+https://nytimes.com/athletic/5572588/2024/06/18/man-united-joshua-zirkzee-transfer/
+
 **Germany fan hospitalised by Fullkrug shot to attend Hungary game**\
 `A fan who was hospitalised by a wayward shot from Germany striker Niclas Füllkrug has recovered in time to watch his country face Hungary on Wednesday evening, according to the German Football Federation (DFB).`\
 https://nytimes.com/athletic/5573549/2024/06/18/germany-fan-injured-fullkrug/
