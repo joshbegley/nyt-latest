@@ -1,3 +1,15 @@
+**Giants takeaways: Heliot Ramos gets All-Star support, Brett Wisely bares all**\
+`And how the team is treading water with essentially half of a five-man rotation, but is well positioned to make a second-half surge.`\
+https://nytimes.com/athletic/5572008/2024/06/18/giants-takeaways-heliot-ramos-all-star-brett-wisely/
+
+**Ralph Lauren Unveils the Team USA Olympic Uniforms**\
+`Navy blazers for the win.`\
+https://nytimes.com/2024/06/18/style/ralph-lauren-team-usa-olympic-opening-ceremony.html
+
+**McAfee remains unsigned with ESPN's 'College GameDay'**\
+`McAfee, the 37-year-old talk show host, said late last year that he would return to the program.`\
+https://nytimes.com/athletic/5572364/2024/06/18/pat-mcafee-gameday-contract/
+
 **Flames salary-cap dump targets? Martin Necas trade ideas? Mailbag**\
 `Also, is Rasmus Andersson a trade chip that could get the Flames a top-10 pick in this year's draft? `\
 https://nytimes.com/athletic/5557618/2024/06/18/flames-salary-cap-martin-necas-trade/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5570314/2024/06/18/nedim-bajrami-albania-fifa-court
 **France's altered defensive shape worked against Austria - but game state a crucial factor**\
 `Would Deschamps' tweaked setup work against stronger opponents with better individual qualities and diverse attacking ideas?`\
 https://nytimes.com/athletic/5571895/2024/06/18/france-austria-euro-2024-analysis/
-
-**Boeing’s Bumpy Ride Isn’t Over**\
-`Dave Calhoun, the embattled company’s C.E.O., heads to Capitol Hill amid new whistle-blower accusations and questions over succession.`\
-https://nytimes.com/2024/06/18/business/dealbook/boeing-calhoun-senate-hearing.html
-
-**Former Chelsea defender Ryan Bertrand retires**\
-`Ryan Bertrand — who won the Champions League with Chelsea in 2012 — has announced his retirement from football.`\
-https://nytimes.com/athletic/5572233/2024/06/18/ryan-bertrand-retires/
-
-**A top Biden adviser says the conflict on Israel’s border with Lebanon can end ‘if the sides agree.’**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/06/18/world/israel-gaza-war-hamas/a-top-biden-adviser-says-the-conflict-on-israels-border-with-lebanon-can-end-if-the-sides-agree
 

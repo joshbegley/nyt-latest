@@ -1,3 +1,15 @@
+**Giants takeaways: Heliot Ramos gets All-Star support, Brett Wisely bares all**\
+`And how the team is treading water with essentially half of a five-man rotation, but is well positioned to make a second-half surge.`\
+https://nytimes.com/athletic/5572008/2024/06/18/giants-takeaways-heliot-ramos-all-star-brett-wisely/
+
+**Ralph Lauren Unveils the Team USA Olympic Uniforms**\
+`Navy blazers for the win.`\
+https://nytimes.com/2024/06/18/style/ralph-lauren-team-usa-olympic-opening-ceremony.html
+
+**McAfee remains unsigned with ESPN's 'College GameDay'**\
+`McAfee, the 37-year-old talk show host, said late last year that he would return to the program.`\
+https://nytimes.com/athletic/5572364/2024/06/18/pat-mcafee-gameday-contract/
+
 **Flames salary-cap dump targets? Martin Necas trade ideas? Mailbag**\
 `Also, is Rasmus Andersson a trade chip that could get the Flames a top-10 pick in this year's draft? `\
 https://nytimes.com/athletic/5557618/2024/06/18/flames-salary-cap-martin-necas-trade/
