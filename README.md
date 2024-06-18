@@ -1,6 +1,6 @@
 **The Texas border and Pittsburgh are among the hottest spots in the nation on Tuesday.**\
 `By Kate Selig`\
-https://nytimes.com/live/2024/06/18/weather/heat-wave-news/the-texas-border-and-pittsburgh-are-among-the-hottest-spots-in-the-nation-on-tuesday
+https://nytimes.com/2024/06/18/weather/texas-pittsburgh-heat-wave.html
 
 **Lane Kiffin sounds off on eliminating walk-ons**\
 `There has been a lot of discussion behind the scenes, with coaches making their feelings clear: They don't want to eliminate walk-ons.`\
