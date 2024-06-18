@@ -1,3 +1,19 @@
+**How Slovakia channelled Napoli to record the biggest-ever Euros upset**\
+`Slovakia recorded a famous underdog win against Belgium - but that doesn't mean they played like one`\
+https://nytimes.com/athletic/5571305/2024/06/18/slovakia-belgium-euro-2024-upset/
+
+**Irving reflects on 'failing' after Mavs lose NBA Finals**\
+`Kyrie Irving shot 5-of-16 and finished with 15 points in Game 5 as Boston beat Dallas for the NBA title.`\
+https://nytimes.com/athletic/5571829/2024/06/18/kyrie-irving-mavericks-loss-nba-finals/
+
+**How far can the lineup — not Grimace — carry the Mets in a crowded wild-card picture?**\
+`After underperforming in the first two months of the season, the mood around the Mets — winners of six straight — is light and lively.`\
+https://nytimes.com/athletic/5571833/2024/06/18/mets-blowout-win-over-rangers/
+
+**Word of the Day: gregarious**\
+`This word has appeared in 66 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/06/18/learning/word-of-the-day-gregarious.html
+
 **The night France's Kylian Mbappe broke his nose at Euro 2024 - 'Any ideas for masks?'**\
 `X-rays at a Dusseldorf hospital confirmed a fracture but the France striker intends to play on at the Euros wearing a protective mask`\
 https://nytimes.com/athletic/5571535/2024/06/18/mbappe-broken-nose-france/
