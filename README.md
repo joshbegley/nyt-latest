@@ -1,3 +1,7 @@
+**Home Collapses in Syracuse, Injuring at Least 10, Officials Say**\
+`Firefighters were still searching for potential victims trapped in the rubble. An explosion was reported and an occupied car was found buried inside.`\
+https://nytimes.com/2024/06/18/us/syracuse-house-collapse.html
+
 **How Capitalism Went Off the Rails**\
 `Easy money destroyed the basis for productive, competitive markets.`\
 https://nytimes.com/2024/06/18/opinion/capitalism-inflation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5574217/2024/06/18/filip-hronek-canucks-contract-ex
 **Blues re-sign Scott Perunovich to 1-year deal**\
 `The team avoided arbitration by signing the RFA defenseman to a one-year, $1.15 million contract.`\
 https://nytimes.com/athletic/5574083/2024/06/18/blues-scott-perunovich-contract-analysis/
-
-**Texas Border and Pittsburgh Swelter Under Triple-Digit Heat**\
-`Though people in Texas are used to sweltering summer temperatures, residents in Pittsburgh are less acclimated.`\
-https://nytimes.com/2024/06/18/weather/texas-pittsburgh-heat-wave.html
 
