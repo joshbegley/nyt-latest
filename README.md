@@ -1,3 +1,11 @@
+**Late Night Latches Onto Donald Trump’s ‘Johnson’ Mix-Up**\
+`“The sad thing is under MAGA law, his name is now Ronny Johnson,” Jon Stewart said after Trump referred to his former doctor, Ronny Jackson, by the wrong name.`\
+https://nytimes.com/2024/06/18/arts/television/late-night-trump-ronny-jackson.html
+
+**Aldridge: Brown and Tatum have their banner, in a city that demands nothing less**\
+`"The only way you can get rid of all the ghosts is to become one of them." — Sean Grande, the voice of the Boston Celtics. `\
+https://nytimes.com/athletic/5568524/2024/06/18/jaylen-brown-jayson-tatum-celtics-title/
+
 **The Gun Lobby’s Hidden Hand in the 2nd Amendment Battle**\
 `Case after case challenging gun restrictions cites the same Georgetown professor. His seemingly independent work has undisclosed ties to pro-gun interests.`\
 https://nytimes.com/2024/06/18/us/gun-laws-georgetown-professor.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5571829/2024/06/18/kyrie-irving-mavericks-loss-nba-
 **How far can the lineup — not Grimace — carry the Mets in a crowded wild-card picture?**\
 `After underperforming in the first two months of the season, the mood around the Mets — winners of six straight — is light and lively.`\
 https://nytimes.com/athletic/5571833/2024/06/18/mets-blowout-win-over-rangers/
-
-**Word of the Day: gregarious**\
-`This word has appeared in 66 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/06/18/learning/word-of-the-day-gregarious.html
-
-**The night France's Kylian Mbappe broke his nose at Euro 2024 - 'Any ideas for masks?'**\
-`X-rays at a Dusseldorf hospital confirmed a fracture but the France striker intends to play on at the Euros wearing a protective mask`\
-https://nytimes.com/athletic/5571535/2024/06/18/mbappe-broken-nose-france/
 
