@@ -1,3 +1,19 @@
+**E.V. Maker Fisker Files for Bankruptcy as Cash Runs Short**\
+`The company became the latest electric vehicle start-up to fail to meet investors’ expectations after a high-profile public debut.`\
+https://nytimes.com/2024/06/18/business/fisker-ev-bankruptcy.html
+
+**Why Longer Heat Waves Are So Dangerous**\
+`Researchers have found that longer-lasting heat waves can be deadlier and can pose unique health risks.`\
+https://nytimes.com/2024/06/18/climate/long-heat-waves-health-risk.html
+
+**Why All the Thighs?**\
+`Don’t worry, we’ve got plenty of excellent chicken breast recipes, too: honey garlic chicken, chicken piccata and green masala chicken, to name a few.`\
+https://nytimes.com/2024/06/18/dining/why-all-the-thighs.html
+
+**How Biden’s New Immigration Policy Works**\
+`The new policy will give some 500,000 people a pathway to citizenship.`\
+https://nytimes.com/2024/06/18/us/politics/biden-immigration-policy.html
+
 **The Paranoid Style in Tariff Policy**\
 `Trump’s new economic idea would raise taxes substantially on working-class Americans.`\
 https://nytimes.com/live/2024/06/12/opinion/thepoint/trump-tariffs-taxes
