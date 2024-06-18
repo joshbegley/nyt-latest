@@ -1,3 +1,7 @@
+**Titan Disaster Forces Global Rethinking of Deep Sea Exploration**\
+`A year after the first deaths of divers who ventured into the ocean’s sunless depths, an industry wrestles with new challenges for piloted submersibles and robotic explorers.`\
+https://nytimes.com/2024/06/18/science/titan-submersible-anniversary.html
+
 **Luka Dončić failed at the highest level. Now, he must learn from it**\
 `As Luka Dončić's teammate Kyrie Irving put it, falling short "can inspire you beyond measure." Dončić must now take on this burden.`\
 https://nytimes.com/athletic/5571590/2024/06/18/luka-doncic-mavericks-nba-finals/
@@ -12,7 +16,7 @@ https://nytimes.com/2024/06/18/special-series/clancy-martin-fear-suicide.html
 
 **Justin Timberlake Is Charged With Drunken Driving in Sag Harbor**\
 `Police in the Hamptons community gave few details about the arrest of the singer, who was once among the most prominent stars in American popular music.`\
-https://nytimes.com/2024/06/18/nyregion/justin-timberlake-arrested-dui.html
+https://nytimes.com/2024/06/18/nyregion/justin-timberlake-arrested-dwi.html
 
 **Inside the Celtics' championship march to Banner 18: 'We made all the sacrifices'**\
 `The Celtics went through the playoffs without much difficulty, but finally winning Banner 18 was anything but easy. `\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5572597/2024/06/18/mlb-odds-predictions-best-bets-j
 **Everton in advanced talks over deal for Villa's Iroegbunam**\
 `Everton are in advanced talks to sign midfielder Tim Iroegbunam from Aston Villa.`\
 https://nytimes.com/athletic/5572607/2024/06/18/everton-transfer-tim-iroegbunam/
-
-**Putin Will Head to North Korea as Ukraine War Redefines Ties With Kim**\
-`President Vladimir V. Putin’s military needs have prompted the Kremlin to strengthen ties with the authoritarian government of Kim Jong-un, which is well stocked in munitions.`\
-https://nytimes.com/2024/06/18/world/europe/putin-north-korea-kim.html
 

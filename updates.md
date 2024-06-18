@@ -1,3 +1,11 @@
+**Titan Disaster Forces Global Rethinking of Deep Sea Exploration**\
+`A year after the first deaths of divers who ventured into the ocean’s sunless depths, an industry wrestles with new challenges for piloted submersibles and robotic explorers.`\
+https://nytimes.com/2024/06/18/science/titan-submersible-anniversary.html
+
+**Justin Timberlake Is Charged With Drunken Driving in Sag Harbor**\
+`Police in the Hamptons community gave few details about the arrest of the singer, who was once among the most prominent stars in American popular music.`\
+https://nytimes.com/2024/06/18/nyregion/justin-timberlake-arrested-dwi.html
+
 **Luka Dončić failed at the highest level. Now, he must learn from it**\
 `As Luka Dončić's teammate Kyrie Irving put it, falling short "can inspire you beyond measure." Dončić must now take on this burden.`\
 https://nytimes.com/athletic/5571590/2024/06/18/luka-doncic-mavericks-nba-finals/
