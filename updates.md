@@ -1,3 +1,7 @@
+**U.S. Success in Cricket Tournament Is Latest Boost to Sport’s Profile**\
+`Cricket faces notable obstacles before it can obtain widespread popularity in America, but its most passionate supporters feel positive about its future.`\
+https://nytimes.com/2024/06/18/business/united-states-cricket-world-cup.html
+
 **Celtics’ Porziņģis says he’ll need surgery after injury, title win**\
 `Porziņģis scored five points and added one rebound in 16 minutes off the bench in the Celtics' 106-88 win Monday.`\
 https://nytimes.com/athletic/5572715/2024/06/18/kristaps-porzingis-celtics-surgery/
