@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5571634/2024/06/17/celtics-jaylen-brown-nba-finals-
 https://nytimes.com/athletic/5571116/2024/06/17/jayson-tatum-jaylen-brown-championship-timeline/
 
 **Blue Jays again fail to return to .500 mark after Red Sox power past them**\
-`Yusei Kikuchi gave up four homers and the Blue Jays failed to climb back to .500 for the fourth time since the end of April.`\
+`Yusei Kikuchi gave up four homers and Toronto failed to climb back to .500 for the fourth time since the end of April.`\
 https://nytimes.com/athletic/5571635/2024/06/17/blue-jays-red-sox-loss-500-mark/
 
 **Celtics beat Mavs, win 18th NBA championship**\
