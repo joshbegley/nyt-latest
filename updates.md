@@ -1,3 +1,11 @@
+**Neil Goldschmidt, Portland Mayor Tarnished by Scandal, Dies at 83**\
+`While he was reviving Portland, Ore., as a vibrant, pedestrian-friendly city, he was also sexually abusing a teenage girl, as he later admitted.`\
+https://nytimes.com/2024/06/18/us/politics/neil-goldschmidt-dead.html
+
+**Van Gundy agrees to be Clippers' lead assistant**\
+`Van Gundy, 62, spent the 2024 season as a senior consultant for the Boston Celtics.`\
+https://nytimes.com/athletic/5572428/2024/06/18/jeff-van-gundy-clippers-assistant-coach/
+
 **You Talkin’ Like Him? A Convention Lets De Niro Fans Get in on the Act.**\
 `Participants at De Niro Con in Tribeca could talk like Travis Bickle, shadowbox like Jake LaMotta or get a tattoo like Max Cady. Yes, a real tattoo.`\
 https://nytimes.com/2024/06/18/movies/robert-de-niro-fan-convention.html

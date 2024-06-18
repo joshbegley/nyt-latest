@@ -1,3 +1,15 @@
+**Trump’s Legal Advisers Plead Not Guilty in Arizona Election Case**\
+`Boris Epshteyn, who oversees Donald J. Trump’s legal team, was arraigned on nine felony charges on Tuesday.`\
+https://nytimes.com/2024/06/18/us/trump-lawyers-arizona-fake-electors.html
+
+**The Sisters Who Turned a Sondheim Flop Into a Tony Winner**\
+`Maria and Sonia Friedman discussed their long history with “Merrily We Roll Along,” after a bittersweet Tony Awards.`\
+https://nytimes.com/2024/06/18/theater/maria-sonia-friedman-merrily.html
+
+**Planning the Resistance to Trump**\
+`Readers discuss preparations by progressive activists and others. Also: A nuclear threat; geoengineering; Gaza protests in Belgium; a tribe’s whale hunt.`\
+https://nytimes.com/2024/06/18/opinion/trump-resistance.html
+
 **Neil Goldschmidt, Portland Mayor Tarnished by Scandal, Dies at 83**\
 `While he was reviving Portland, Ore., as a vibrant, pedestrian-friendly city, he was also sexually abusing a teenage girl, as he later admitted.`\
 https://nytimes.com/2024/06/18/us/politics/neil-goldschmidt-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/18/dining/nyc-restaurant-news.html
 **Yellowstone Tourist Sentenced to Jail for ‘Thermal Trespass’**\
 `Viktor Pyshniuk, 21, was sentenced to a week in jail after a park employee saw him walk off a path near Steamboat Geyser, which can shoot hot water more than 300 feet in the air.`\
 https://nytimes.com/2024/06/18/us/yellowstone-tourist-jail-geyser.html
-
-**Hurricanes name Eric Tulsky as general manager**\
-`Tulsky has been with the Hurricanes for 10 seasons.`\
-https://nytimes.com/athletic/5572977/2024/06/18/eric-tulsky-hurricanes-gm/
-
-**Celtics owner says Horford will return next season**\
-`"Al is coming back for next year. That's what I've been told. Age 38, which is unbelievable," Grousbeck said on the "The Greg Hill Show."`\
-https://nytimes.com/athletic/5573034/2024/06/18/al-horford-celtics-nba-return/
-
-**Fever-Sky on CBS is most-watched WNBA game in 23 years**\
-`CBS' telecast Sunday averaged 2.25 million viewers and peaked at close to 3 million viewers.`\
-https://nytimes.com/athletic/5572947/2024/06/18/fever-sky-wnba-tv-ratings/
 
