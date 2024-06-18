@@ -1,3 +1,43 @@
+**Southampton's 2024-25 Premier League fixtures**\
+`Southampton mark their return to the Premier League with a trip to Newcastle United to begin the 2024-25 campaign.`\
+https://nytimes.com/athletic/5561497/2024/06/18/southampton-premier-league-fixtures-2024-25-schedule/
+
+**Leicester's 2024-25 Premier League fixtures**\
+`Leicester City will start the 2024-25 Premier League season with a home fixture against Tottenham Hotspur on Monday, August 19.`\
+https://nytimes.com/athletic/5561162/2024/06/18/leicester-city-premier-league-fixtures-2024-25-schedule/
+
+**Manchester City’s 2024-25 Premier League fixtures**\
+`Manchester City begin the defence of their Premier League title against Chelsea at Stamford Bridge on Sunday, August 18.`\
+https://nytimes.com/athletic/5562298/2024/06/18/manchester-city-premier-league-fixtures-2024-25-schedule/
+
+**Tottenham's 2024-25 Premier League fixtures**\
+`Tottenham Hotspur&#8217;s 2024-25 Premier League campaign will begin away at Leicester City.`\
+https://nytimes.com/athletic/5561279/2024/06/18/tottenham-premier-league-fixtures-2024-25-schedule/
+
+**Crystal Palace's 2024-25 Premier League fixtures**\
+`Crystal Palace will start the 2024-25 Premier League season with a London derby away to Brentford on Sunday August 18.`\
+https://nytimes.com/athletic/5560937/2024/06/18/crystal-palace-premier-league-fixtures-2024-25-schedule/
+
+**Liverpool’s 2024-25 Premier League fixtures**\
+`The Arne Slot era at Liverpool will officially begin on August 17 when they face Ipswich Town at Portman Road.`\
+https://nytimes.com/athletic/5562242/2024/06/18/liverpool-premier-league-fixtures-2024-25-schedule/
+
+**West Ham's 2024-25 Premier League fixtures**\
+`Julen Lopetegui&#8217;s West Ham United tenure will begin against Aston Villa at the London Stadium on the opening weekend of the 2024-25 Premier League season.`\
+https://nytimes.com/athletic/5561166/2024/06/18/west-ham-premier-league-fixtures-2024-25-schedule/
+
+**Ipswich's 2024-25 Premier League fixtures**\
+`Ipswich Town&#8217;s first game back in the Premier League for more than 22 years will be at home to Liverpool on Sunday, August 17.`\
+https://nytimes.com/athletic/5562184/2024/06/18/ipswich-premier-league-fixtures-2024-25-schedule/
+
+**Premier League fixtures 2024-25: Full schedule and dates**\
+`The 2024-25 Premier League season gets underway on Friday, August 16 with Manchester United hosting Fulham.`\
+https://nytimes.com/athletic/5558736/2024/06/18/premier-league-fixtures-2024-25-schedule/
+
+**Nottingham Forest's 2024-25 Premier League fixtures**\
+`Nuno Espirito Santo&#8217;s first full season in charge of Nottingham Forest will begin with the visit of Bournemouth to start their 2024-25 Premier League campaign.`\
+https://nytimes.com/athletic/5561530/2024/06/18/nottingham-forest-premier-league-fixtures-2024-25-schedule/
+
 **Aldridge: Brown, Tatum have their banner in a city that demands nothing less**\
 `"The only way you can get rid of all the ghosts is to become one of them," said Sean Grande, the voice of the Boston Celtics. `\
 https://nytimes.com/athletic/5568524/2024/06/18/jaylen-brown-jayson-tatum-celtics-title/
