@@ -1,3 +1,7 @@
+**Thairo Estrada hits a thrilling home run and Camilo Doval puts it on ice as Giants win at Wrigley**\
+`"That was one of the cooler wins I've ever been a part of," said catcher Patrick Bailey, who hit a home run in the eigthth.`\
+https://nytimes.com/athletic/5571979/2024/06/18/san-francisco-giants-thairo-estrada-camilo-doval/
+
 **The FIFA World Rankings are not that important - and that’s a good thing**\
 `Rankings serve their purpose. They measure progress, they help decide seedings - but being No 1 is not, in itself, something to aspire to`\
 https://nytimes.com/athletic/5571906/2024/06/18/fifa-world-rankings-how-important/

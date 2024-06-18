@@ -1,3 +1,7 @@
+**Thairo Estrada hits a thrilling home run and Camilo Doval puts it on ice as Giants win at Wrigley**\
+`"That was one of the cooler wins I've ever been a part of," said catcher Patrick Bailey, who hit a home run in the eigthth.`\
+https://nytimes.com/athletic/5571979/2024/06/18/san-francisco-giants-thairo-estrada-camilo-doval/
+
 **The FIFA World Rankings are not that important - and that’s a good thing**\
 `Rankings serve their purpose. They measure progress, they help decide seedings - but being No 1 is not, in itself, something to aspire to`\
 https://nytimes.com/athletic/5571906/2024/06/18/fifa-world-rankings-how-important/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5565450/2024/06/18/college-football-rivalry-weekend
 **'Beyond baseball': Twins coach left the team to be with ailing son, who's now hitting his stride**\
 `Instead of spending last spring at his first major-league camp in Florida, Derek Shomon tended to his sick son for weeks in a hospital room.`\
 https://nytimes.com/athletic/5566410/2024/06/18/minnesota-twins-coach-derek-shomon-son-micah/
-
-**What the Broncos learned about rookie QB Bo Nix during first offseason program**\
-`The Broncos saw Nix's record 61 college starts as a strength, and they've seen the "calmness" and "maturity" created by that experience.`\
-https://nytimes.com/athletic/5567982/2024/06/18/bo-nix-broncos-offseason/
 
