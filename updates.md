@@ -1,3 +1,15 @@
+**How Lesbians Found One Another, From the Softball Field to the Sex-Toy Shop**\
+`In “A Place of Our Own,” June Thomas considers “six spaces that shaped queer women’s culture.”`\
+https://nytimes.com/2024/06/18/books/review/a-place-of-our-own-june-thomas-lesbians.html
+
+**Biking Through Southern France, and History**\
+`The Canal du Midi traverses the Occitanie region and gives cyclists of all skill levels access to parts of France that are rich in lore, yet sometimes passed over by visitors.`\
+https://nytimes.com/2024/06/18/travel/biking-france-canal-du-midi.html
+
+**Contractions**\
+`In Memphis, a doctor and a volunteer driver contemplate the discontinuation of abortion services at a women’s health clinic two years after the overturning of Roe v. Wade.`\
+https://nytimes.com/video/opinion/100000009438727/contractions.html
+
 **Deadly Landslides and Floods Hit Southern China**\
 `Chinese state media footage showed landslides that tore through mountain roads as heavy rains washed away a bridge and flooded villages.`\
 https://nytimes.com/video/world/asia/100000009527635/china-flood-landslide.html

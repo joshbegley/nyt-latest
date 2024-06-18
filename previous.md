@@ -1,3 +1,15 @@
+**How Lesbians Found One Another, From the Softball Field to the Sex-Toy Shop**\
+`In “A Place of Our Own,” June Thomas considers “six spaces that shaped queer women’s culture.”`\
+https://nytimes.com/2024/06/18/books/review/a-place-of-our-own-june-thomas-lesbians.html
+
+**Biking Through Southern France, and History**\
+`The Canal du Midi traverses the Occitanie region and gives cyclists of all skill levels access to parts of France that are rich in lore, yet sometimes passed over by visitors.`\
+https://nytimes.com/2024/06/18/travel/biking-france-canal-du-midi.html
+
+**Contractions**\
+`In Memphis, a doctor and a volunteer driver contemplate the discontinuation of abortion services at a women’s health clinic two years after the overturning of Roe v. Wade.`\
+https://nytimes.com/video/opinion/100000009438727/contractions.html
+
 **Deadly Landslides and Floods Hit Southern China**\
 `Chinese state media footage showed landslides that tore through mountain roads as heavy rains washed away a bridge and flooded villages.`\
 https://nytimes.com/video/world/asia/100000009527635/china-flood-landslide.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5562298/2024/06/18/manchester-city-premier-league-f
 **Tottenham's 2024-25 Premier League fixtures**\
 `Tottenham Hotspur&#8217;s 2024-25 Premier League campaign will begin away at Leicester City.`\
 https://nytimes.com/athletic/5561279/2024/06/18/tottenham-premier-league-fixtures-2024-25-schedule/
-
-**Crystal Palace's 2024-25 Premier League fixtures**\
-`Crystal Palace will start the 2024-25 Premier League season with a London derby away to Brentford on Sunday August 18.`\
-https://nytimes.com/athletic/5560937/2024/06/18/crystal-palace-premier-league-fixtures-2024-25-schedule/
-
-**Liverpool’s 2024-25 Premier League fixtures**\
-`The Arne Slot era at Liverpool will officially begin on August 17 when they face Ipswich Town at Portman Road.`\
-https://nytimes.com/athletic/5562242/2024/06/18/liverpool-premier-league-fixtures-2024-25-schedule/
-
-**West Ham's 2024-25 Premier League fixtures**\
-`Julen Lopetegui&#8217;s West Ham United tenure will begin against Aston Villa at the London Stadium on the opening weekend of the 2024-25 Premier League season.`\
-https://nytimes.com/athletic/5561166/2024/06/18/west-ham-premier-league-fixtures-2024-25-schedule/
 
