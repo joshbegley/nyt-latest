@@ -1,3 +1,11 @@
+**Huey Lewis Musical to Close on Broadway as New Shows Struggle**\
+`“The Heart of Rock and Roll” is the first new Broadway musical to announce a closing plan following Sunday’s Tony Awards.`\
+https://nytimes.com/2024/06/18/theater/huey-lewis-broadway-closing.html
+
+**Can vindicated Celtics repeat dominant title run? Plus, offseason questions + key dates**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5572289/2024/06/18/boston-celtics-nba-title-finals-jaylen-brown-jayson-tatum-nba-the-bounce/
+
 **Titan Disaster Forces Global Rethinking of Deep Sea Exploration**\
 `A year after the first deaths of divers who ventured into the ocean’s sunless depths, an industry wrestles with new challenges for piloted submersibles and robotic explorers.`\
 https://nytimes.com/2024/06/18/science/titan-submersible-anniversary.html
