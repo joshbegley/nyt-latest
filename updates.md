@@ -1,3 +1,11 @@
+**Cricket is the USA's new favourite sport - but what do googly, Mankad and cow corner mean?**\
+`Cricket is a magnificent sport that is frequently overcomplicated – so The Athletic is here to help new fans in the States...`\
+https://nytimes.com/athletic/5570690/2024/06/18/cricket-us-t20-world-cup/
+
+**Hollinger: Celtics are built to thrive in new cap era ... at least for a little while**\
+`Surely, Boston will be favored to repeat, but nothing is certain, and the CBA will have a much bigger impact in 2025.`\
+https://nytimes.com/athletic/5569914/2024/06/18/boston-celtics-salary-cap-nba-free-agency/
+
 **Campania Is the Next Move for the Man Behind Rezdôra**\
 `Stefano Secchi is opening Massara in the Flatiron district, ice creams inspired by appetizing and more restaurant news.`\
 https://nytimes.com/2024/06/18/dining/nyc-restaurant-news.html
