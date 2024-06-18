@@ -1,3 +1,7 @@
+**California Moves to Modify Law Letting Workers Sue Employers**\
+`Gov. Gavin Newsom announced a deal with business and labor leaders heading off a ballot measure to repeal the law, which has cost companies billions.`\
+https://nytimes.com/2024/06/18/business/economy/california-newsom-labor.html
+
 **Home Collapses in Syracuse, Injuring at Least 10, Officials Say**\
 `Firefighters were still searching for potential victims trapped in the rubble. An explosion was reported and an occupied car was found buried inside.`\
 https://nytimes.com/2024/06/18/nyregion/syracuse-house-collapse.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/18/us/biden-immigration-daca-dreamers.html
 **Canucks re-sign Filip Hronek to 8-year, $58 million extension**\
 `The deal will keep Hronek in Vancouver through his age-34 campaign.`\
 https://nytimes.com/athletic/5574217/2024/06/18/filip-hronek-canucks-contract-extension/
-
-**Blues re-sign Scott Perunovich to 1-year deal**\
-`The team avoided arbitration by signing the RFA defenseman to a one-year, $1.15 million contract.`\
-https://nytimes.com/athletic/5574083/2024/06/18/blues-scott-perunovich-contract-analysis/
 
