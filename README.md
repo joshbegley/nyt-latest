@@ -1,3 +1,7 @@
+**U.S.D.A. Suspends Avocado Inspections in Mexico, Citing Security Concerns**\
+`The move, prompted by fears for agency workers’ safety, could eventually affect U.S. avocado supplies if the inspections are not resumed.`\
+https://nytimes.com/2024/06/17/world/americas/mexico-avocado-inspections-suspended.html
+
 **Biden to Give Legal Protections to Undocumented Spouses of U.S. Citizens**\
 `Undocumented spouses of American citizens will be shielded from deportation, provided work permits and given a pathway to citizenship, according to officials briefed on the plan.`\
 https://nytimes.com/2024/06/17/us/politics/biden-immigration-spouses.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/17/us/politics/hearing-hidden-secret-cia-prison.html
 **More Cities Feel Strain as Migrants Move In Seeking Better Prospects**\
 `After aid runs out elsewhere, some migrants relocate to places like Salt Lake City, where they find help but hurdles, too. “Consider another state,” says a flier distributed by Utah.`\
 https://nytimes.com/2024/06/17/us/migrants-border-aid.html
-
-**Record Number of NATO Allies Hit Military Spending Targets**\
-`President Biden and the NATO secretary general sought to present a robust and united front against Russia as the alliance prepares for its annual meeting next month.`\
-https://nytimes.com/2024/06/17/us/politics/nato-military-spending-targets.html
 
