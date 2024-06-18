@@ -1,3 +1,7 @@
+**North Korea Has Lost ‘Many’ Troops to Mines in DMZ, South Says**\
+`North Korean soldiers have been sent into the mine-strewn buffer zone to do construction work since November, the South Korean military said on Tuesday.`\
+https://nytimes.com/2024/06/18/world/asia/north-korea-loses-troops-dmz.html
+
 **Thailand’s Legislature Approves Same-Sex Marriage Law**\
 `The bill, which needs the king’s endorsement to become law, underscores Thailand’s status as a relative haven in Asia for L.G.B.T.Q. people.`\
 https://nytimes.com/2024/06/18/world/asia/thailand-same-sex-marriage-vote.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5561166/2024/06/18/west-ham-premier-league-fixtures
 **Ipswich's 2024-25 Premier League fixtures**\
 `Ipswich Town&#8217;s first game back in the Premier League for more than 22 years will be at home to Liverpool on Sunday, August 17.`\
 https://nytimes.com/athletic/5562184/2024/06/18/ipswich-premier-league-fixtures-2024-25-schedule/
-
-**Premier League fixtures 2024-25: Full schedule and dates**\
-`The 2024-25 Premier League season gets underway on Friday, August 16 with Manchester United hosting Fulham.`\
-https://nytimes.com/athletic/5558736/2024/06/18/premier-league-fixtures-2024-25-schedule/
 
