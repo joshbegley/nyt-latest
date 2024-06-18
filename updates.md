@@ -1,3 +1,11 @@
+**Team USA reveals opening, closing ceremony outfits for Paris Games**\
+`This is Ralph Lauren's ninth time designing Team USA's ceremony outfits.`\
+https://nytimes.com/athletic/5573268/2024/06/18/usa-olympics-outfits-opening-ceremony/
+
+**La Liga fixtures released: Which of Madrid and Barca will be happier and when is El Clasico?**\
+`Next season's La Liga schedule has been confirmed. Our Spanish football experts analyse it all`\
+https://nytimes.com/athletic/5572906/2024/06/18/la-liga-real-madrid-barcelona-clasico/
+
 **Glitz and Grimness Cross Paths on London’s ‘Caledonian Road’**\
 `Andrew O’Hagan’s ambitious state-of-England novel finds a cosseted academic facing up to the hard lives and ethical shortcuts he’d prefer to ignore.`\
 https://nytimes.com/2024/06/18/books/review/caledonian-road-andrew-ohagan.html
