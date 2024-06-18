@@ -1,3 +1,7 @@
+**Lopsided Contest**\
+`Aaron M. Rosenberg compares and contrasts.`\
+https://nytimes.com/2024/06/17/crosswords/daily-puzzle-2024-06-18.html
+
 **Exxon Suit Over Activist Investor’s Climate Proposal Is Dismissed**\
 `A federal judge ruled that the case was moot after the investor, Arjuna Capital, withdrew the proposal with a promise not to try again.`\
 https://nytimes.com/2024/06/17/business/exxon-arjuna-lawsuit-dismissed.html

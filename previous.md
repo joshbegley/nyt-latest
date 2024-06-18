@@ -1,3 +1,7 @@
+**Lopsided Contest**\
+`Aaron M. Rosenberg compares and contrasts.`\
+https://nytimes.com/2024/06/17/crosswords/daily-puzzle-2024-06-18.html
+
 **Exxon Suit Over Activist Investor’s Climate Proposal Is Dismissed**\
 `A federal judge ruled that the case was moot after the investor, Arjuna Capital, withdrew the proposal with a promise not to try again.`\
 https://nytimes.com/2024/06/17/business/exxon-arjuna-lawsuit-dismissed.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/17/us/heat-wave-midwest.html
 **Yankees’ Rizzo could miss 4-6 weeks with arm fracture**\
 `First baseman Anthony Rizzo has a fracture to the radial neck of his right forearm`\
 https://nytimes.com/athletic/5571406/2024/06/17/yankees-anthony-rizzo-injury/
-
-**Chicago Mayor Orders Task Force on Reparations for Black Residents**\
-`Once the panel is established, it will have about a year to determine what reparations should look like in the city.`\
-https://nytimes.com/2024/06/17/us/brandon-johnson-chicago-mayor-reparations-task-force.html
 
