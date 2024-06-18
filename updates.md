@@ -1,3 +1,7 @@
+**Deadly Landslides and Floods Hit Southern China**\
+`Chinese state media footage showed landslides that tore through mountain roads as heavy rains washed away a bridge and flooded villages.`\
+https://nytimes.com/video/world/asia/100000009527635/china-flood-landslide.html
+
 **North Korea Has Lost ‘Many’ Troops to Mines in DMZ, South Says**\
 `North Korean soldiers have been sent into the mine-strewn buffer zone to do construction work since November, the South Korean military said on Tuesday.`\
 https://nytimes.com/2024/06/18/world/asia/north-korea-loses-troops-dmz.html
