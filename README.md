@@ -1,3 +1,7 @@
+**Thaksin, Former Thai Premier, Indicted on Charges of Insulting Monarchy**\
+`The case against Thaksin Shinawatra was a reminder that the levers of power in Thailand remain firmly in the hands of the royalist-military establishment.`\
+https://nytimes.com/2024/06/18/world/asia/thaksin-thailand-indicted-monarchy.html
+
 **Late Night Latches Onto Donald Trump’s ‘Johnson’ Mix-Up**\
 `“The sad thing is under MAGA law, his name is now Ronny Johnson,” Jon Stewart said after Trump referred to his former doctor, Ronny Jackson, by the wrong name.`\
 https://nytimes.com/2024/06/18/arts/television/late-night-trump-ronny-jackson.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5565759/2024/06/18/manchester-united-arsenal-transf
 **Irving reflects on 'failing' after Mavs lose NBA Finals**\
 `Kyrie Irving shot 5-of-16 and finished with 15 points in Game 5 as Boston beat Dallas for the NBA title.`\
 https://nytimes.com/athletic/5571829/2024/06/18/kyrie-irving-mavericks-loss-nba-finals/
-
-**How far can the lineup — not Grimace — carry the Mets in a crowded wild-card picture?**\
-`After underperforming in the first two months of the season, the mood around the Mets — winners of six straight — is light and lively.`\
-https://nytimes.com/athletic/5571833/2024/06/18/mets-blowout-win-over-rangers/
 
