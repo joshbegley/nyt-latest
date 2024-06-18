@@ -2,7 +2,7 @@
 `Assamad Nash fatally stabbed Christina Yuna Lee in her apartment. The killing raised fears at a time of anti-Asian attacks.`\
 https://nytimes.com/2024/06/18/nyregion/suspect-christina-yuna-lee-murder-guilty.html
 
-**Blue Jays place Bo Bichette on the IL, recall No. 2 prospect Orelvis Martinez**\
+**Blue Jays place Bo Bichette on the IL, recall Orelvis Martinez**\
 `Bichette hasn't played since June 14 while dealing with a sore calf. Martinez joins the roster for what would be his MLB debut.`\
 https://nytimes.com/athletic/5573866/2024/06/18/blue-jays-bo-bichette-il-orelvis-martinez/
 
