@@ -1,3 +1,16 @@
+**Arda Guler: Choir-boy looks, thunderous foot and the hearts of Ancelotti, Montella and Turkey**\
+`At 19, the Real Madrid player came of age at Euro 2024 with a thunderous goal and a show of promise that could take Turkey a long way`\
+https://nytimes.com/athletic/5573923/2024/06/18/arda-guler-ancelotti-turkey/
+
+**Euro 2024 odds for Wednesday's three group matches including Germany-Hungary**\
+`The second round of Euro 2024 group stage matches start on Wednesday with host Germany taking on Hungary and Switzerland facing Scotland.`\
+https://nytimes.com/athletic/5573544/2024/06/18/euro-2024-odds-germany-hungary/
+
+**Cable-company lawyer says dealing with MLB 'like talking to a brick wall'**\
+`A federal judge rebuffed MLB in its quest to review contracts between cable companies and the bankrupt broadcaster, Diamond Sports Group.
+`\
+https://nytimes.com/athletic/5574075/2024/06/18/mlb-diamond-sports-group-contract-request/
+
 **Senate Republicans Block Bump-Stock Ban**\
 `Democrats failed in their effort to override last week’s Supreme Court ruling with legislation, but saw some political benefits to the clash.`\
 https://nytimes.com/2024/06/18/us/bump-stock-ban-senate.html
