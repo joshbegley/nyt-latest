@@ -1,3 +1,7 @@
+**We Want to Know: What’s Your Favorite Sandwich in New York City?**\
+`The New York Times Food staff crisscrossed the city in search of its most noteworthy sandwiches and now we want to hear from readers.`\
+https://nytimes.com/2024/06/18/dining/favorite-sandwich-reader-callout.html
+
 **From J.J. McCarthy to Lewis Cine: Notes on all 90 Vikings players after minicamp**\
 `What better time to check the status of all 90 players on the Minnesota Vikings' roster? Here's how they looked this spring.`\
 https://nytimes.com/athletic/5570649/2024/06/18/vikings-roster-jj-mccarthy-lewis-cine/
