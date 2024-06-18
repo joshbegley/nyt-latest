@@ -1,3 +1,7 @@
+**Club Q Shooter Pleads Guilty to Hate Crimes in Effort to Avoid Death Penalty**\
+`Anderson Lee Aldrich was convicted in the 2022 shooting that killed five people at an L.G.B.T.Q. nightclub in Colorado Springs.`\
+https://nytimes.com/2024/06/18/us/club-q-shooter-federal-charges-guilty.html
+
 **Trump’s Legal Advisers Plead Not Guilty in Arizona Election Case**\
 `Boris Epshteyn, who oversees Donald J. Trump’s legal team, was arraigned on nine felony charges on Tuesday.`\
 https://nytimes.com/2024/06/18/us/trump-lawyers-arizona-fake-electors.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5569914/2024/06/18/boston-celtics-salary-cap-nba-fr
 **Campania Is the Next Move for the Man Behind Rezdôra**\
 `Stefano Secchi is opening Massara in the Flatiron district, ice creams inspired by appetizing and more restaurant news.`\
 https://nytimes.com/2024/06/18/dining/nyc-restaurant-news.html
-
-**Yellowstone Tourist Sentenced to Jail for ‘Thermal Trespass’**\
-`Viktor Pyshniuk, 21, was sentenced to a week in jail after a park employee saw him walk off a path near Steamboat Geyser, which can shoot hot water more than 300 feet in the air.`\
-https://nytimes.com/2024/06/18/us/yellowstone-tourist-jail-geyser.html
 
