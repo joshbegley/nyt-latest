@@ -1,6 +1,6 @@
 **Celtics' Jaylen Brown wins NBA Finals MVP**\
 `Brown had 21 points, eight rebounds and six assists in Boston's Game 5 win.`\
-https://nytimes.com/athletic/5571634/2024/06/17/celtics-jaylen-brown-wins-nba-finals-mvp-after-leading-boston-to-first-championship-since-2008/
+https://nytimes.com/athletic/5571634/2024/06/17/celtics-jaylen-brown-nba-finals-mvp/
 
 **Jayson Tatum and Jaylen Brown's twisting march to glory: A timeline**\
 `With each title-less season, the questions became louder. But the Celtics never blew up the partnership and now it's been rewarded. `\
