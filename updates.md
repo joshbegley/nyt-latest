@@ -1,3 +1,7 @@
+**Garlicky Chicken Sandwiches With Red Cabbage Slaw, Gorgeous and Glossy Strawberry Pretzel Bars**\
+`Bold and bright recipes for a Juneteenth feast.`\
+https://nytimes.com/2024/06/18/dining/strawberry-soda-juneteenth-recipes.html
+
 **Nine unrestricted free agents the Canucks could target to bolster their top 6**\
 `Adding another top-six forward into the mix will be one of the key tasks for Canucks hockey operations this summer.`\
 https://nytimes.com/athletic/5568992/2024/06/18/canucks-free-agent-targets-forwards/
