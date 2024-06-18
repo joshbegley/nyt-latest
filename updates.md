@@ -1,3 +1,7 @@
+**Minor league notebook: Junior Caminero, Jace Jung and more anticipated prospect promotions**\
+`Dane Martinez identifies a half dozen prospects who should be on the fantasy baseball radar ahead of a potential call-up this summer.`\
+https://nytimes.com/athletic/5570738/2024/06/18/minor-league-notebook-junior-caminero-jace-jung-and-more-anticipated-prospect-promotions/
+
 **Cubs suffer a tough loss after another blown save by Héctor Neris**\
 `Chicago's offense, which has been in disarray, gave the team a late lead, but then the fans at Wrigley were reminded of the flawed bullpen.`\
 https://nytimes.com/athletic/5571766/2024/06/18/cubs-hector-neris-blown-save/
