@@ -1,3 +1,7 @@
+**Blue Jays place Bo Bichette on the IL, recall No. 2 prospect Orelvis Martinez**\
+`Bichette hasn't played since June 14 while dealing with a sore calf. Martinez joins the roster for what would be his MLB debut.`\
+https://nytimes.com/athletic/5573866/2024/06/18/blue-jays-bo-bichette-il-orelvis-martinez/
+
 **Attack Ads Hit John Avlon in His House Primary Bid in New York**\
 `Nancy Goroff, who has contributed $1.2 million of her own money to her campaign, has recently run a string of attacks against John Avlon in their Democratic primary on eastern Long Island.`\
 https://nytimes.com/2024/06/18/nyregion/avlon-goroff-primary-ny1.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5573707/2024/06/18/automated-ball-strike-challenge-
 **There Is No Magical Way to Overcome Fear**\
 `After being paralyzed on the set of a ‘Harry Potter’ movie, I rediscovered what fearlessness really meant.`\
 https://nytimes.com/2024/06/18/special-series/harry-potter-stunt-double-fear.html
-
-**Garden Party: Celtics wash away recent failures by winning 18th NBA championship**\
-`Order a copy today of The Athletic's commemorative book about the Celtics’ 2023-24 season for $39.95, plus shipping and tax.`\
-https://nytimes.com/athletic/5572535/2024/06/18/garden-party-celtics-nba-champions-book/
 

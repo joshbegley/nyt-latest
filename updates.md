@@ -1,3 +1,7 @@
+**Blue Jays place Bo Bichette on the IL, recall No. 2 prospect Orelvis Martinez**\
+`Bichette hasn't played since June 14 while dealing with a sore calf. Martinez joins the roster for what would be his MLB debut.`\
+https://nytimes.com/athletic/5573866/2024/06/18/blue-jays-bo-bichette-il-orelvis-martinez/
+
 **Attack Ads Hit John Avlon in His House Primary Bid in New York**\
 `Nancy Goroff, who has contributed $1.2 million of her own money to her campaign, has recently run a string of attacks against John Avlon in their Democratic primary on eastern Long Island.`\
 https://nytimes.com/2024/06/18/nyregion/avlon-goroff-primary-ny1.html
