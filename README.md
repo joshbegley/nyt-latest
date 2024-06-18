@@ -1,3 +1,7 @@
+**Transcript: Ezra Klein Interviews Yanna Krupnikov**\
+`The June 18, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/06/18/podcasts/transcript-ezra-klein-interviews-yanna-krupnikov.html
+
 **1000 not out: How Murray's milestone match epitomised his highs and lows**\
 `Andy Murray won his 1000th ATP Tour match at Queen's Club in London, where he has won five singles titles`\
 https://nytimes.com/athletic/5573531/2024/06/18/andy-murray-1000-matches-atp/
@@ -6,8 +10,8 @@ https://nytimes.com/athletic/5573531/2024/06/18/andy-murray-1000-matches-atp/
 `Congressional Budget Office projections released on Tuesday show a grim fiscal backdrop ahead of tax and debt limit fights.`\
 https://nytimes.com/2024/06/18/us/politics/us-debt-economy.html
 
-**What is Israel’s daily pause in some combat, and is it making a difference in getting aid to Gazans?**\
-`By Matthew Mpoke Bigg`\
+**How Is Israel’s Daily Pause in Combat in Part of Gaza Working**\
+`The new practice is supposed to make it easier and safer to distribute desperately needed aid around Gaza. Aid groups are hopeful, but say more is needed.`\
 https://nytimes.com/2024/06/18/world/middleeast/israel-pause-gaza-aid.html
 
 **The Fiery Sounds of the Monterey International Pop Festival**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/18/us/politics/biden-immigration-announcement-obama.
 **Man United exploring deal to sign Zirkzee**\
 `Manchester United are exploring a deal to sign Dutch striker Joshua Zirkzee from Bologna.`\
 https://nytimes.com/athletic/5572588/2024/06/18/man-united-joshua-zirkzee-transfer/
-
-**Germany fan hospitalised by Fullkrug shot to attend Hungary game**\
-`A fan who was hospitalised by a wayward shot from Germany striker Niclas Füllkrug has recovered in time to watch his country face Hungary on Wednesday evening, according to the German Football Federation (DFB).`\
-https://nytimes.com/athletic/5573549/2024/06/18/germany-fan-injured-fullkrug/
 

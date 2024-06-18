@@ -1,3 +1,23 @@
+**1000 not out: How Murray's milestone match epitomised his highs and lows**\
+`Andy Murray won his 1000th ATP Tour match at Queen's Club in London, where he has won five singles titles`\
+https://nytimes.com/athletic/5573531/2024/06/18/andy-murray-1000-matches-atp/
+
+**U.S. Debt on Pace to Top $56 Trillion Over Next 10 Years**\
+`Congressional Budget Office projections released on Tuesday show a grim fiscal backdrop ahead of tax and debt limit fights.`\
+https://nytimes.com/2024/06/18/us/politics/us-debt-economy.html
+
+**What is Israel’s daily pause in some combat, and is it making a difference in getting aid to Gazans?**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/2024/06/18/world/middleeast/israel-pause-gaza-aid.html
+
+**The Fiery Sounds of the Monterey International Pop Festival**\
+`Revisiting the event’s memorable set list, 57 years later.`\
+https://nytimes.com/2024/06/18/arts/music/amplifier-newsletter-monterey-pop-festival.html
+
+**The Briefing: Turkey 3 Georgia 1 - Guler does the spectacular, Kvaratskhelia overshadowed - The Briefing**\
+`Turkey scored two of the best goals seen yet at Euro 2024 as they beat Georgia in a hugely entertaining match`\
+https://nytimes.com/athletic/5568279/2024/06/18/turkey-3-georgia-1-guler-kvaratskhelia/
+
 **Stop-and-Shop the Runways**\
 `If you’re just looking (but not buying), there’s pleasure in creating an imaginary wardrobe from the men’s wear catwalks at Gucci, Fendi, JW Anderson, Ralph Lauren and Tod’s.`\
 https://nytimes.com/2024/06/18/style/milan-fashion-week-menswear.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5572588/2024/06/18/man-united-joshua-zirkzee-transf
 **Germany fan hospitalised by Fullkrug shot to attend Hungary game**\
 `A fan who was hospitalised by a wayward shot from Germany striker Niclas Füllkrug has recovered in time to watch his country face Hungary on Wednesday evening, according to the German Football Federation (DFB).`\
 https://nytimes.com/athletic/5573549/2024/06/18/germany-fan-injured-fullkrug/
-
-**LeBron, Osimhen and Kane - the masked sporting stars Mbappe can take inspiration from**\
-`Kylian Mbappe asked for masked advice having had his nose rearranged against Austria - plenty of sporting stars have had success with them`\
-https://nytimes.com/athletic/5572989/2024/06/18/kylian-mbappe-nose-mask-lebron/
-
-**Garlicky Chicken Sandwiches With Red Cabbage Slaw, Gorgeous and Glossy Strawberry Pretzel Bars**\
-`Bold and bright recipes for a Juneteenth feast.`\
-https://nytimes.com/2024/06/18/dining/strawberry-soda-juneteenth-recipes.html
-
-**Nine unrestricted free agents the Canucks could target to bolster their top 6**\
-`Adding another top-six forward into the mix will be one of the key tasks for Canucks hockey operations this summer.`\
-https://nytimes.com/athletic/5568992/2024/06/18/canucks-free-agent-targets-forwards/
-
-**The Windup: Yankees' best about to get better; Astros too late on Abreu**\
-`Plus: A big-league debut 10 years in the making. `\
-https://nytimes.com/athletic/5573390/2024/06/18/yankees-injuries-astros-jose-abreu-the-windup/
-
-**Team USA reveals opening, closing ceremony outfits for Paris Games**\
-`This is Ralph Lauren's ninth time designing Team USA's ceremony outfits.`\
-https://nytimes.com/athletic/5573268/2024/06/18/usa-olympics-outfits-opening-ceremony/
 
