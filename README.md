@@ -1,3 +1,7 @@
+**Minor league notebook: Junior Caminero, Jace Jung and more anticipated prospect promotions**\
+`Dane Martinez identifies a half dozen prospects who should be on the fantasy baseball radar ahead of a potential call-up this summer.`\
+https://nytimes.com/athletic/5570738/2024/06/18/minor-league-notebook-junior-caminero-jace-jung-and-more-anticipated-prospect-promotions/
+
 **Cubs suffer a tough loss after another blown save by Héctor Neris**\
 `Chicago's offense, which has been in disarray, gave the team a late lead, but then the fans at Wrigley were reminded of the flawed bullpen.`\
 https://nytimes.com/athletic/5571766/2024/06/18/cubs-hector-neris-blown-save/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5569570/2024/06/18/euro-2024-germany-england-fans-g
 **Padres absorb sobering dose of reality from juggernaut Phillies**\
 `San Diego got good news on Yu Darvish, then got beaten down by Philadelphia's heavy bats.`\
 https://nytimes.com/athletic/5570444/2024/06/18/padres-phillies-yu-darvish-joe-musgrove/
-
-**2025 NBA title odds: Celtics open as favorites to repeat**\
-`Wedged between this year’s NBA Finals teams in the opening title odds are the Denver Nuggets at +750.`\
-https://nytimes.com/athletic/5571737/2024/06/18/2025-nba-title-odds-celtics-nuggets/
 
