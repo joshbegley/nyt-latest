@@ -1,3 +1,7 @@
+**Thailand’s Legislature Approves Same-Sex Marriage Law**\
+`The bill, which needs the king’s endorsement to become law, underscores Thailand’s status as a relative haven in Asia for L.G.B.T.Q. people.`\
+https://nytimes.com/2024/06/18/world/asia/thailand-same-sex-marriage-vote.html
+
 **Southampton's 2024-25 Premier League fixtures**\
 `Southampton mark their return to the Premier League with a trip to Newcastle United to begin the 2024-25 campaign.`\
 https://nytimes.com/athletic/5561497/2024/06/18/southampton-premier-league-fixtures-2024-25-schedule/

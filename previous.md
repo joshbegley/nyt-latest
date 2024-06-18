@@ -1,3 +1,7 @@
+**Thailand’s Legislature Approves Same-Sex Marriage Law**\
+`The bill, which needs the king’s endorsement to become law, underscores Thailand’s status as a relative haven in Asia for L.G.B.T.Q. people.`\
+https://nytimes.com/2024/06/18/world/asia/thailand-same-sex-marriage-vote.html
+
 **Southampton's 2024-25 Premier League fixtures**\
 `Southampton mark their return to the Premier League with a trip to Newcastle United to begin the 2024-25 campaign.`\
 https://nytimes.com/athletic/5561497/2024/06/18/southampton-premier-league-fixtures-2024-25-schedule/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5562184/2024/06/18/ipswich-premier-league-fixtures-
 **Premier League fixtures 2024-25: Full schedule and dates**\
 `The 2024-25 Premier League season gets underway on Friday, August 16 with Manchester United hosting Fulham.`\
 https://nytimes.com/athletic/5558736/2024/06/18/premier-league-fixtures-2024-25-schedule/
-
-**Nottingham Forest's 2024-25 Premier League fixtures**\
-`Nuno Espirito Santo&#8217;s first full season in charge of Nottingham Forest will begin with the visit of Bournemouth to start their 2024-25 Premier League campaign.`\
-https://nytimes.com/athletic/5561530/2024/06/18/nottingham-forest-premier-league-fixtures-2024-25-schedule/
 
