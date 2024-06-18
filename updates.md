@@ -1,3 +1,7 @@
+**Former Chelsea defender Ryan Bertrand retires**\
+`Ryan Bertrand — who won the Champions League with Chelsea in 2012 — has announced his retirement from football.`\
+https://nytimes.com/athletic/5572233/2024/06/18/ryan-bertrand-retires/
+
 **A top Biden adviser says the conflict on Israel’s border with Lebanon can end ‘if the sides agree.’**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/06/18/world/israel-gaza-war-hamas/a-top-biden-adviser-says-the-conflict-on-israels-border-with-lebanon-can-end-if-the-sides-agree
