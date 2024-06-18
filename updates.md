@@ -1,3 +1,11 @@
+**Flames salary-cap dump targets? Martin Necas trade ideas? Mailbag**\
+`Also, is Rasmus Andersson a trade chip that could get the Flames a top-10 pick in this year's draft? `\
+https://nytimes.com/athletic/5557618/2024/06/18/flames-salary-cap-martin-necas-trade/
+
+**Lawmakers to Confront Boeing Chief on Mounting Quality and Safety Issues**\
+`Dave Calhoun, Boeing’s chief executive, will appear before a Senate investigative panel and plans to apologize for the company’s high-profile safety incidents.`\
+https://nytimes.com/2024/06/18/us/politics/boeing-chief-senate-hearing-safety-issues.html
+
 **Raheem Morris on his second chance, that Penix pick**\
 `Atlanta’s new head coach reflects on his past and his new team’s future, particularly at quarterback.`\
 https://nytimes.com/athletic/5570876/2024/06/18/raheem-morris-podcast-interview-penix-draft-pick-second-coaching-job/

@@ -1,3 +1,11 @@
+**Flames salary-cap dump targets? Martin Necas trade ideas? Mailbag**\
+`Also, is Rasmus Andersson a trade chip that could get the Flames a top-10 pick in this year's draft? `\
+https://nytimes.com/athletic/5557618/2024/06/18/flames-salary-cap-martin-necas-trade/
+
+**Lawmakers to Confront Boeing Chief on Mounting Quality and Safety Issues**\
+`Dave Calhoun, Boeing’s chief executive, will appear before a Senate investigative panel and plans to apologize for the company’s high-profile safety incidents.`\
+https://nytimes.com/2024/06/18/us/politics/boeing-chief-senate-hearing-safety-issues.html
+
 **Raheem Morris on his second chance, that Penix pick**\
 `Atlanta’s new head coach reflects on his past and his new team’s future, particularly at quarterback.`\
 https://nytimes.com/athletic/5570876/2024/06/18/raheem-morris-podcast-interview-penix-draft-pick-second-coaching-job/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5572233/2024/06/18/ryan-bertrand-retires/
 **A top Biden adviser says the conflict on Israel’s border with Lebanon can end ‘if the sides agree.’**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/06/18/world/israel-gaza-war-hamas/a-top-biden-adviser-says-the-conflict-on-israels-border-with-lebanon-can-end-if-the-sides-agree
-
-**Ian McKellen Is in ‘Good Spirits’ After Falling Off the Stage During a Play**\
-`The English actor was injured during a performance of “Player Kings,” and the show was abruptly canceled. He is expected to perform again on Wednesday.`\
-https://nytimes.com/2024/06/18/arts/ian-mckellen-stage-fall.html
-
-**How should college football's rivalry weekend look?**\
-`Which college football rivalries are most important? Which ones have the most history? And what lineup would make the best rivalry weekend?`\
-https://nytimes.com/athletic/5565450/2024/06/18/college-football-rivalry-weekend-scheduling/
 
