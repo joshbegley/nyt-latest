@@ -1,3 +1,7 @@
+**Former Chelsea defender Ryan Bertrand retires**\
+`Ryan Bertrand — who won the Champions League with Chelsea in 2012 — has announced his retirement from football.`\
+https://nytimes.com/athletic/5572233/2024/06/18/ryan-bertrand-retires/
+
 **A top Biden adviser says the conflict on Israel’s border with Lebanon can end ‘if the sides agree.’**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/06/18/world/israel-gaza-war-hamas/a-top-biden-adviser-says-the-conflict-on-israels-border-with-lebanon-can-end-if-the-sides-agree
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5532531/2024/06/18/49ers-florida-state-renardo-gree
 **How to Make Thrilling Theater About Climate Change Negotiations**\
 `A new play from the writers of “The Jungle” dramatizes the 1997 Kyoto Protocol, a landmark climate agreement preceded by years of arguments over its wording.`\
 https://nytimes.com/2024/06/18/theater/kyoto-royal-shakespeare-company.html
-
-**The Pulse: Why this Celtics title *isn't* boring**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5571170/2024/06/18/celtics-mavericks-nba-title-the-pulse/
 
