@@ -1,3 +1,11 @@
+**Triple-A to fully use ABS challenge system**\
+`Soon all Triple-A games will use the automated ball-strike (ABS) challenge system instead of the full ABS, MLB says.`\
+https://nytimes.com/athletic/5573707/2024/06/18/automated-ball-strike-challenge-system-triple-a/
+
+**There Is No Magical Way to Overcome Fear**\
+`After being paralyzed on the set of a ‘Harry Potter’ movie, I rediscovered what fearlessness really meant.`\
+https://nytimes.com/2024/06/18/special-series/harry-potter-stunt-double-fear.html
+
 **Garden Party: Celtics wash away recent failures by winning 18th NBA championship**\
 `Order a copy today of The Athletic's commemorative book about the Celtics’ 2023-24 season for $39.95, plus shipping and tax.`\
 https://nytimes.com/athletic/5572535/2024/06/18/garden-party-celtics-nba-champions-book/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5572238/2024/06/18/glenn-nyberg-euro-2024/
 **A Mysterious Monolith Appears Near Las Vegas. Why? It’s Anyone’s Guess.**\
 `A volunteer search-and-rescue organization reported finding the monolith over the weekend near the Gass Peak trail, which is north of Las Vegas.`\
 https://nytimes.com/2024/06/18/us/monolith-las-vegas.html
-
-**Bob Schul, a Singular U.S. Olympian in 5,000-Meter Race, Dies at 86**\
-`His remarkable sprint in the final yards on a muddy track in the 1964 Games in Tokyo made him the only American ever to win the gold medal in the event.`\
-https://nytimes.com/2024/06/18/sports/olympics/bob-schul-dead.html
-
-**Q&A: 2024 NHL Draft prospect Ivan Demidov on Blackhawks, North America and his game**\
-`Demidov sat down with The Athletic on Tuesday in Florida to discuss his game, favorite players, NHL future and much more.`\
-https://nytimes.com/athletic/5572893/2024/06/18/nhl-draft-2024-prospect-blackhawks-demidov/
 
