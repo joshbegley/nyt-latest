@@ -1,3 +1,7 @@
+**Gazans are living amid 39 million tons of debris, the U.N. says.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/06/18/world/israel-gaza-war-hamas/gazans-are-living-amid-39-million-tons-of-debris-the-un-says
+
 **California Moves to Modify Law Letting Workers Sue Employers**\
 `Gov. Gavin Newsom announced a deal with business and labor leaders heading off a ballot measure to repeal the law, which has cost companies billions.`\
 https://nytimes.com/2024/06/18/business/economy/california-newsom-labor.html
