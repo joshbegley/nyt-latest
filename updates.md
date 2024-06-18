@@ -1,3 +1,11 @@
+**Blues re-sign Scott Perunovich to 1-year deal**\
+`The team avoided arbitration by signing the RFA defenseman to a one-year, $1.15 million contract.`\
+https://nytimes.com/athletic/5574083/2024/06/18/blues-scott-perunovich-contract-analysis/
+
+**Texas Border and Pittsburgh Swelter Under Triple-Digit Heat**\
+`Though people in Texas are used to sweltering summer temperatures, residents in Pittsburgh are less acclimated.`\
+https://nytimes.com/2024/06/18/weather/texas-pittsburgh-heat-wave.html
+
 **Cable company lawyer says dealing with MLB 'like talking to a brick wall'**\
 `A federal judge rebuffed MLB in its quest to review contracts between cable companies and the bankrupt broadcaster, Diamond Sports Group.
 `\

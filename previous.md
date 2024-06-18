@@ -1,6 +1,10 @@
-**The Texas border and Pittsburgh are among the hottest spots in the nation on Tuesday.**\
-`By Kate Selig`\
-https://nytimes.com/live/2024/06/18/weather/heat-wave-news/the-texas-border-and-pittsburgh-are-among-the-hottest-spots-in-the-nation-on-tuesday
+**Blues re-sign Scott Perunovich to 1-year deal**\
+`The team avoided arbitration by signing the RFA defenseman to a one-year, $1.15 million contract.`\
+https://nytimes.com/athletic/5574083/2024/06/18/blues-scott-perunovich-contract-analysis/
+
+**Texas Border and Pittsburgh Swelter Under Triple-Digit Heat**\
+`Though people in Texas are used to sweltering summer temperatures, residents in Pittsburgh are less acclimated.`\
+https://nytimes.com/2024/06/18/weather/texas-pittsburgh-heat-wave.html
 
 **Lane Kiffin sounds off on eliminating walk-ons**\
 `There has been a lot of discussion behind the scenes, with coaches making their feelings clear: They don't want to eliminate walk-ons.`\
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/5573923/2024/06/18/arda-guler-ancelotti-turkey/
 **Euro 2024 odds for Wednesday's three group matches including Germany-Hungary**\
 `The second round of Euro 2024 group stage matches start on Wednesday with host Germany taking on Hungary and Switzerland facing Scotland.`\
 https://nytimes.com/athletic/5573544/2024/06/18/euro-2024-odds-germany-hungary/
-
-**Cable company lawyer says dealing with MLB 'like talking to a brick wall'**\
-`A federal judge rebuffed MLB in its quest to review contracts between cable companies and the bankrupt broadcaster, Diamond Sports Group.
-`\
-https://nytimes.com/athletic/5574075/2024/06/18/mlb-diamond-sports-group-contract-request/
 
