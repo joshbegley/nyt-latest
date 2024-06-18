@@ -1,3 +1,27 @@
+**'Beyond baseball': Twins coach left the team to be with ailing son, who's now hitting his stride**\
+`Instead of spending last spring at his first major-league camp in Florida, Derek Shomon tended to his sick son for weeks in a hospital room.`\
+https://nytimes.com/athletic/5566410/2024/06/18/minnesota-twins-coach-derek-shomon-son-micah/
+
+**What the Broncos learned about rookie QB Bo Nix during first offseason program**\
+`The Broncos saw Nix's record 61 college starts as a strength, and they've seen the "calmness" and "maturity" created by that experience.`\
+https://nytimes.com/athletic/5567982/2024/06/18/bo-nix-broncos-offseason/
+
+**Raiders hoping Zamir White, Brock Bowers, Tre Tucker can step up and take pressure off QBs**\
+`The Raiders aren't looking for their QBs to be great. They're expecting some young players to step up and help the offense thrive.`\
+https://nytimes.com/athletic/5571269/2024/06/18/raiders-offense-zamir-white-bowers-tucker/
+
+**The Business of Football at Euro 2024: Planes to Qatar, delayed trains and Chinese automobiles**\
+`The first week of the European Championship has seen Deutsche Bahn, global ticket sales and football's cluttered calendar in the spotlight`\
+https://nytimes.com/athletic/5570252/2024/06/18/business-uefa-euro2024-qatar-tickets/
+
+**'You got a dog': Florida State's Renardo Green, Tatum Bethune bring tenacity to the 49ers**\
+`The former Florida State defenders look to team up again with the 49ers and bring reputations as strong tacklers.`\
+https://nytimes.com/athletic/5532531/2024/06/18/49ers-florida-state-renardo-green-tatum-bethune/
+
+**How to Make Thrilling Theater About Climate Change Negotiations**\
+`A new play from the writers of “The Jungle” dramatizes the 1997 Kyoto Protocol, a landmark climate agreement preceded by years of arguments over its wording.`\
+https://nytimes.com/2024/06/18/theater/kyoto-royal-shakespeare-company.html
+
 **The Pulse: Why this Celtics title *isn't* boring**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5571170/2024/06/18/celtics-mavericks-nba-title-the-pulse/
@@ -13,28 +37,4 @@ https://nytimes.com/2024/06/18/briefing/president-bidens-distrust-challenge.html
 **Twins Triple-A takeaways: Matt Wallner, Brooks Lee, David Festa wait their turns**\
 `It's only a matter of time before the Twins turn to Triple-A St. Paul for reinforcements with Wallner, Lee and Festa looking ready.`\
 https://nytimes.com/athletic/5567978/2024/06/18/twins-triple-a-matt-wallner-brooks-lee-david-festa/
-
-**Facundo Tello: Why is an Argentinian refereeing a Euro 2024 game?**\
-`The 42-year-old will make history when he takes charge of Turkey vs Georgia on Tuesday`\
-https://nytimes.com/athletic/5570270/2024/06/18/facundo-tello-who-euro-2024/
-
-**We Want to Know: What’s Your Favorite Sandwich in New York City?**\
-`The New York Times Food staff crisscrossed the city in search of its most noteworthy sandwiches and now we want to hear from readers.`\
-https://nytimes.com/2024/06/18/dining/favorite-sandwich-reader-callout.html
-
-**From J.J. McCarthy to Lewis Cine: Notes on all 90 Vikings players after minicamp**\
-`What better time to check the status of all 90 players on the Minnesota Vikings' roster? Here's how they looked this spring.`\
-https://nytimes.com/athletic/5570649/2024/06/18/vikings-roster-jj-mccarthy-lewis-cine/
-
-**Oilers look to Stuart Skinner and his play in big moments to keep their season alive**\
-`Skinner’s ability to overcome adversity and push past disappointment is a testament to his mental fortitude.`\
-https://nytimes.com/athletic/5571075/2024/06/18/oilers-stuart-skinner-stanley-cup-final/
-
-**Jets mailbag, part 1: Buyout possibilities, Brad Lambert's path to playing time and more**\
-`Jets fans see the opportunity for the team to improve and want to know what Kevin Cheveldayoff can do.`\
-https://nytimes.com/athletic/5554481/2024/06/18/winnipeg-jets-mailbag-brad-lambert/
-
-**Three Cardinals takeaways: Players trending up as St. Louis keeps rolling**\
-`Pedro Pagés makes his case for more playing time, Miles Mikolas finds his groove and more in this week's takeaways. `\
-https://nytimes.com/athletic/5570823/2024/06/18/cardinals-takeaways-pedro-pages/
 
