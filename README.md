@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5573688/2024/06/18/alabama-football-recruiting-jack
 https://nytimes.com/2024/06/18/opinion/biden-immigration-spouses-citizenship.html
 
 **Two Wildfires in New Mexico Burn Out of Control and Force Evacuations**\
-`Thousands of people were evacuated from Ruidoso and nearby areas as of Tuesday morning.`\
+`Thousands of people were being evacuated from Ruidoso and nearby areas as of Tuesday morning.`\
 https://nytimes.com/2024/06/18/us/ruidoso-wildfire-new-mexico.html
 
 **Transcript: Ezra Klein Interviews Yanna Krupnikov**\
