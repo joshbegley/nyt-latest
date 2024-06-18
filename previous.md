@@ -1,3 +1,7 @@
+**Boeing’s Bumpy Ride Isn’t Over**\
+`Dave Calhoun, the embattled company’s C.E.O., heads to Capitol Hill amid new whistle-blower accusations and questions over succession.`\
+https://nytimes.com/2024/06/18/business/dealbook/boeing-calhoun-senate-hearing.html
+
 **Former Chelsea defender Ryan Bertrand retires**\
 `Ryan Bertrand — who won the Champions League with Chelsea in 2012 — has announced his retirement from football.`\
 https://nytimes.com/athletic/5572233/2024/06/18/ryan-bertrand-retires/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5570252/2024/06/18/business-uefa-euro2024-qatar-tic
 **'You got a dog': Florida State's Renardo Green, Tatum Bethune bring tenacity to the 49ers**\
 `The former Florida State defenders look to team up again with the 49ers and bring reputations as strong tacklers.`\
 https://nytimes.com/athletic/5532531/2024/06/18/49ers-florida-state-renardo-green-tatum-bethune/
-
-**How to Make Thrilling Theater About Climate Change Negotiations**\
-`A new play from the writers of “The Jungle” dramatizes the 1997 Kyoto Protocol, a landmark climate agreement preceded by years of arguments over its wording.`\
-https://nytimes.com/2024/06/18/theater/kyoto-royal-shakespeare-company.html
 

@@ -1,3 +1,7 @@
+**Boeing’s Bumpy Ride Isn’t Over**\
+`Dave Calhoun, the embattled company’s C.E.O., heads to Capitol Hill amid new whistle-blower accusations and questions over succession.`\
+https://nytimes.com/2024/06/18/business/dealbook/boeing-calhoun-senate-hearing.html
+
 **Former Chelsea defender Ryan Bertrand retires**\
 `Ryan Bertrand — who won the Champions League with Chelsea in 2012 — has announced his retirement from football.`\
 https://nytimes.com/athletic/5572233/2024/06/18/ryan-bertrand-retires/
