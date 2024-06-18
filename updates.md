@@ -1,3 +1,7 @@
+**Celtics beat Mavs, win 18th NBA championship**\
+`Boston claimed a league-record 18th NBA championship to break a tie with the rival Lakers that had stood since 2020.`\
+https://nytimes.com/athletic/5571475/2024/06/17/celtics-mavericks-nba-finals-game-5-score-result/
+
 **U.S.D.A. Suspends Avocado Inspections in Mexico, Citing Security Concerns**\
 `The move, prompted by fears for agency workers’ safety, could eventually affect U.S. avocado supplies if the inspections are not resumed.`\
 https://nytimes.com/2024/06/17/world/americas/mexico-avocado-inspections-suspended.html
