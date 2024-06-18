@@ -1,3 +1,7 @@
+**After 10 years in minors, Braves' Grant Holmes excels in MLB debut: 'Never give up'**\
+`The lifelong Braves fan grew up rooting for Chipper Jones and finally lived his dream: "There's always hope as long as you fight for it."`\
+https://nytimes.com/athletic/5571550/2024/06/17/braves-grant-holmes-mlb-debut-hollywood/
+
 **Lopsided Contest**\
 `Aaron M. Rosenberg compares and contrasts.`\
 https://nytimes.com/2024/06/17/crosswords/daily-puzzle-2024-06-18.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/17/opinion/indiana-christian-nationalist-republican-
 **But It’s Only June: An Early Blast of Heat Grips Much of the U.S.**\
 `Heat overwhelmed cities across the Midwest and was headed to the Northeast. High temperatures are expected to linger for days.`\
 https://nytimes.com/2024/06/17/us/heat-wave-midwest.html
-
-**Yankees’ Rizzo could miss 4-6 weeks with arm fracture**\
-`First baseman Anthony Rizzo has a fracture to the radial neck of his right forearm`\
-https://nytimes.com/athletic/5571406/2024/06/17/yankees-anthony-rizzo-injury/
 
