@@ -1,3 +1,11 @@
+**Transcript: Ezra Klein Interviews Yanna Krupnikov**\
+`The June 18, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/06/18/podcasts/transcript-ezra-klein-interviews-yanna-krupnikov.html
+
+**Israel’s Daily Combat Pause in Part of Gaza: How Is It Working?**\
+`The new practice is supposed to make it easier and safer to distribute desperately needed aid around Gaza. Aid groups are hopeful, but say more is needed.`\
+https://nytimes.com/2024/06/18/world/middleeast/israel-pause-gaza-aid.html
+
 **1000 not out: How Murray's milestone match epitomised his highs and lows**\
 `Andy Murray won his 1000th ATP Tour match at Queen's Club in London, where he has won five singles titles`\
 https://nytimes.com/athletic/5573531/2024/06/18/andy-murray-1000-matches-atp/
