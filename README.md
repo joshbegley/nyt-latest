@@ -1,3 +1,11 @@
+**Ian McKellen Is in ‘Good Spirits’ After Falling Off the Stage During a Play**\
+`The English actor was injured during a performance of “Player Kings,” and the show was abruptly canceled. He is expected to perform again on Wednesday.`\
+https://nytimes.com/2024/06/18/arts/ian-mckellen-stage-fall.html
+
+**How should college football's rivalry weekend look?**\
+`Which college football rivalries are most important? Which ones have the most history? And what lineup would make the best rivalry weekend?`\
+https://nytimes.com/athletic/5565450/2024/06/18/college-football-rivalry-weekend-scheduling/
+
 **'Beyond baseball': Twins coach left the team to be with ailing son, who's now hitting his stride**\
 `Instead of spending last spring at his first major-league camp in Florida, Derek Shomon tended to his sick son for weeks in a hospital room.`\
 https://nytimes.com/athletic/5566410/2024/06/18/minnesota-twins-coach-derek-shomon-son-micah/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5571170/2024/06/18/celtics-mavericks-nba-title-the-
 **Which Premier League team has the toughest start to the 2024-25 season?**\
 `After fixtures were released on Tuesday morning, we have analysed which team has the toughest start to the new campaign`\
 https://nytimes.com/athletic/5572100/2024/06/18/premier-league-toughest-start-2024-25/
-
-**President Biden’s Distrust Challenge**\
-`We explain how one set of voters may decide the 2024 election.`\
-https://nytimes.com/2024/06/18/briefing/president-bidens-distrust-challenge.html
-
-**Twins Triple-A takeaways: Matt Wallner, Brooks Lee, David Festa wait their turns**\
-`It's only a matter of time before the Twins turn to Triple-A St. Paul for reinforcements with Wallner, Lee and Festa looking ready.`\
-https://nytimes.com/athletic/5567978/2024/06/18/twins-triple-a-matt-wallner-brooks-lee-david-festa/
 
