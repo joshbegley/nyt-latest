@@ -1,3 +1,15 @@
+**Celtics' Jaylen Brown wins NBA Finals MVP**\
+`Brown had 21 points, eight rebounds and six assists in Boston's Game 5 win.`\
+https://nytimes.com/athletic/5571634/2024/06/17/celtics-jaylen-brown-wins-nba-finals-mvp-after-leading-boston-to-first-championship-since-2008/
+
+**Jayson Tatum and Jaylen Brown's twisting march to glory: A timeline**\
+`With each title-less season, the questions became louder. But the Celtics never blew up the partnership and now it's been rewarded. `\
+https://nytimes.com/athletic/5571116/2024/06/17/jayson-tatum-jaylen-brown-championship-timeline/
+
+**Blue Jays again fail to return to .500 mark after Red Sox power past them**\
+`Yusei Kikuchi gave up four homers and the Blue Jays failed to climb back to .500 for the fourth time since the end of April.`\
+https://nytimes.com/athletic/5571635/2024/06/17/blue-jays-red-sox-loss-500-mark/
+
 **Celtics beat Mavs, win 18th NBA championship**\
 `Boston claimed a league-record 18th NBA championship to break a tie with the rival Lakers that had stood since 2020.`\
 https://nytimes.com/athletic/5571475/2024/06/17/celtics-mavericks-nba-finals-game-5-score-result/
@@ -22,19 +34,7 @@ https://nytimes.com/athletic/5571550/2024/06/17/braves-grant-holmes-mlb-debut-ho
 `Aaron M. Rosenberg compares and contrasts.`\
 https://nytimes.com/2024/06/17/crosswords/daily-puzzle-2024-06-18.html
 
-**Exxon Suit Over Activist Investor’s Climate Proposal Is Dismissed**\
-`A federal judge ruled that the case was moot after the investor, Arjuna Capital, withdrew the proposal with a promise not to try again.`\
-https://nytimes.com/2024/06/17/business/exxon-arjuna-lawsuit-dismissed.html
-
-**Judge Orders Rail Operator to Pay $400 Million to Tribe for Trespassing**\
-`BNSF Railway broke its agreement with the Swinomish Indian Tribal Community when it ran hundreds of train cars a week containing crude oil through the tribe’s land in Washington State, according to a federal judge.`\
-https://nytimes.com/2024/06/17/us/judge-washington-tribe-oil-train-trespassing.html
-
-**Angela Bofill, R&B Hitmaker With a Silky Voice, Dies at 70**\
-`Starting in the late 1970s, she scored multiple hit singles, including “This Time I’ll Be Sweeter” and “I Try,” but multiple strokes in the 2000s ended her career.`\
-https://nytimes.com/2024/06/17/arts/music/angela-bofill-dead.html
-
-**War Crimes Hearing Gives Public Virtual Look Inside a Secret C.I.A. Prison**\
-`Years after the agency’s “black site” program was shut down, details are slowly emerging during trials at Guantánamo Bay.`\
-https://nytimes.com/2024/06/17/us/politics/hearing-hidden-secret-cia-prison.html
+**NBA free agency starts ... right now? A few deals we could see sooner rather than later**\
+`We may only see a handful of contracts agreed upon between now and the draft's first round, but we should expect some action.`\
+https://nytimes.com/athletic/5565480/2024/06/17/nba-free-agency-players-to-watch-2024/
 
