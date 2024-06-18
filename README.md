@@ -1,3 +1,7 @@
+**More Doctors Walk Off the Job in South Korea**\
+`Physicians across the country staged a one-day strike, the latest escalation in a months-old protest against the government’s plan to train more doctors.`\
+https://nytimes.com/2024/06/18/world/asia/south-korea-doctor-strike.html
+
 **Secret Service Agent Robbed at Gunpoint on Night of Biden’s L.A. Gala**\
 `The agent’s bag was stolen on Saturday night in a residential community in Southern California, the authorities said.`\
 https://nytimes.com/2024/06/18/us/secret-service-robbed-biden-tustin.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5571737/2024/06/18/2025-nba-title-odds-celtics-nugg
 **Endrick, Yamal and Paez: How do you manage children at major international tournaments?**\
 `These wonderkids carry weight of a nation on their shoulders before being old enough to drive, and while doing homework in training camps`\
 https://nytimes.com/athletic/5569829/2024/06/18/endrick-yamal-paez-euros-copa-america/
-
-**Riccardo Calafiori, an Italian centre-back in name, hair and pedigree**\
-`The Bologna defender is proving Jose Mourinho wrong for writing him off at Roma - and could become a star of Euro 2024 and beyond`\
-https://nytimes.com/athletic/5569535/2024/06/18/riccardo-calafiori-italy-centre-back-euro-2024/
 
