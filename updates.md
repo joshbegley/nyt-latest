@@ -1,3 +1,11 @@
+**Late Night Latches Onto Donald Trump’s ‘Johnson’ Mix-Up**\
+`“The sad thing is under MAGA law, his name is now Ronny Johnson,” Jon Stewart said after Trump referred to his former doctor, Ronny Jackson, by the wrong name.`\
+https://nytimes.com/2024/06/18/arts/television/late-night-trump-ronny-jackson.html
+
+**Aldridge: Brown and Tatum have their banner, in a city that demands nothing less**\
+`"The only way you can get rid of all the ghosts is to become one of them." — Sean Grande, the voice of the Boston Celtics. `\
+https://nytimes.com/athletic/5568524/2024/06/18/jaylen-brown-jayson-tatum-celtics-title/
+
 **The Gun Lobby’s Hidden Hand in the 2nd Amendment Battle**\
 `Case after case challenging gun restrictions cites the same Georgetown professor. His seemingly independent work has undisclosed ties to pro-gun interests.`\
 https://nytimes.com/2024/06/18/us/gun-laws-georgetown-professor.html
