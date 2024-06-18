@@ -1,3 +1,7 @@
+**Elinor Fuchs, Leading Scholar of Experimental Theater, Dies at 91**\
+`First as a journalist and later as a professor at Yale, she provided the intellectual tools to help actors, directors and audiences understand challenging work.`\
+https://nytimes.com/2024/06/18/theater/elinor-fuchs-dead.html
+
 **Chelsea's €32.5m bid for Omorodion rejected**\
 `Chelsea have had a €32.`\
 https://nytimes.com/athletic/5574005/2024/06/18/chelsea-omorodion-transfer/
@@ -16,7 +20,7 @@ https://nytimes.com/2024/06/18/nyregion/nyc-specialized-high-school-admissions-b
 
 **The Election of Magical Thinking**\
 `Indulging in electoral illusions is dangerous.`\
-https://nytimes.com/live/2024/06/12/opinion/thepoint/biden-vice-president-step-down
+https://nytimes.com/live/2024/06/18/opinion/thepoint/biden-vice-president-step-down
 
 **Split by Politics and Protests, Georgia Lets Soccer Carry the Flag**\
 `The opposition in Georgia accused the government of cozying up to Russia. Can playing in the Euros make the nation feel more like a part of Europe?`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/18/nyregion/suspect-christina-yuna-lee-murder-guilty
 **Blue Jays place Bo Bichette on the IL, recall Orelvis Martinez**\
 `Bichette hasn't played since June 14 while dealing with a sore calf. Martinez joins the roster for what would be his MLB debut.`\
 https://nytimes.com/athletic/5573866/2024/06/18/blue-jays-bo-bichette-il-orelvis-martinez/
-
-**Attack Ads Hit John Avlon in His House Primary Bid in New York**\
-`Nancy Goroff, who has contributed $1.2 million of her own money to her campaign, has recently run a string of attacks against John Avlon in their Democratic primary on eastern Long Island.`\
-https://nytimes.com/2024/06/18/nyregion/avlon-goroff-primary-ny1.html
 

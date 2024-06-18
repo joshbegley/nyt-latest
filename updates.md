@@ -1,3 +1,11 @@
+**Elinor Fuchs, Leading Scholar of Experimental Theater, Dies at 91**\
+`First as a journalist and later as a professor at Yale, she provided the intellectual tools to help actors, directors and audiences understand challenging work.`\
+https://nytimes.com/2024/06/18/theater/elinor-fuchs-dead.html
+
+**The Election of Magical Thinking**\
+`Indulging in electoral illusions is dangerous.`\
+https://nytimes.com/live/2024/06/18/opinion/thepoint/biden-vice-president-step-down
+
 **Chelsea's €32.5m bid for Omorodion rejected**\
 `Chelsea have had a €32.`\
 https://nytimes.com/athletic/5574005/2024/06/18/chelsea-omorodion-transfer/
