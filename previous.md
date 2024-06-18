@@ -1,3 +1,7 @@
+**Celtics’ Porziņģis says he’ll need surgery after injury, title win**\
+`Porziņģis scored five points and added one rebound in 16 minutes off the bench in the Celtics' 106-88 win Monday.`\
+https://nytimes.com/athletic/5572715/2024/06/18/kristaps-porzingis-celtics-surgery/
+
 **Huey Lewis Musical to Close on Broadway as New Shows Struggle**\
 `“The Heart of Rock and Roll” is the first new Broadway musical to announce a closing plan following Sunday’s Tony Awards.`\
 https://nytimes.com/2024/06/18/theater/huey-lewis-broadway-closing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5572024/2024/06/18/celtics-nba-championship-18-jayl
 **Bulls draft intel: Ron Holland, Terrence Shannon Jr. and a potential sleeper workout**\
 `The Bulls need more size and versatility on the wing as well as depth in the frontcourt.`\
 https://nytimes.com/athletic/5571472/2024/06/18/bulls-nba-draft-ron-holland-terrence-shannon/
-
-**Rush-Hour Commute Disrupted for Many by Disabled Train at Penn Station**\
-`New Jersey Transit service into and out of the Midtown Manhattan transit hub was suspended and commuters were rerouted to buses and the PATH train. Amtrak reported 90-minute delays.`\
-https://nytimes.com/2024/06/18/nyregion/nj-transit-delay-penn-station.html
 

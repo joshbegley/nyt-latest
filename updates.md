@@ -1,3 +1,7 @@
+**Celtics’ Porziņģis says he’ll need surgery after injury, title win**\
+`Porziņģis scored five points and added one rebound in 16 minutes off the bench in the Celtics' 106-88 win Monday.`\
+https://nytimes.com/athletic/5572715/2024/06/18/kristaps-porzingis-celtics-surgery/
+
 **Huey Lewis Musical to Close on Broadway as New Shows Struggle**\
 `“The Heart of Rock and Roll” is the first new Broadway musical to announce a closing plan following Sunday’s Tony Awards.`\
 https://nytimes.com/2024/06/18/theater/huey-lewis-broadway-closing.html
