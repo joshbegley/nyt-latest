@@ -1,3 +1,19 @@
+**Why These Chinese Working Mothers Don’t Want More Babies**\
+`We spoke to three women who have rejected the government’s drive for bigger families and asked them to document their daily lives as they juggle home and the workplace.`\
+https://nytimes.com/interactive/2024/06/18/world/asia/china-moms.html
+
+**Oilers at Panthers Stanley Cup Final Game 5 odds, picks: Oilers attempt series comeback**\
+`The Edmonton Oilers thumped the Florida Panthers in Game 4. Can they keep the series alive again now that it shifts back to Florida?`\
+https://nytimes.com/athletic/5570101/2024/06/18/oilers-panthers-stanley-cup-final-game-5-odds-picks/
+
+**A Korean Secret to Keeping Friendships Strong: Savings Groups**\
+`In South Korea, it’s common for friends to form what are known as gyemoim to save for vacations, meals and other social activities.`\
+https://nytimes.com/2024/06/18/business/mutual-funds/saving-korea-gyemoim.html
+
+**Corrections: June 18, 2024**\
+`Corrections that appeared in print on Tuesday, June 18, 2024.`\
+https://nytimes.com/2024/06/18/pageoneplus/corrections-june-18-2024.html
+
 **Celtics' Jaylen Brown wins NBA Finals MVP**\
 `Brown had 21 points, eight rebounds and six assists in Boston's Game 5 win.`\
 https://nytimes.com/athletic/5571634/2024/06/17/celtics-jaylen-brown-nba-finals-mvp/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/06/17/world/americas/mexico-avocado-inspections-suspend
 **Biden to Give Legal Protections to Undocumented Spouses of U.S. Citizens**\
 `Undocumented spouses of American citizens will be shielded from deportation, provided work permits and given a pathway to citizenship, according to officials briefed on the plan.`\
 https://nytimes.com/2024/06/17/us/politics/biden-immigration-spouses.html
-
-**After Delay, Top Democrats in Congress Sign Off on Sale of F-15 Jets to Israel**\
-`Senior Democrats who had taken the unusual step of holding out relented to pressure from the Biden administration and allowed a multibillion-dollar sale of weapons to move ahead.`\
-https://nytimes.com/2024/06/17/us/politics/israel-f-15-jets-democrats.html
-
-**After 10 years in minors, Braves' Grant Holmes excels in MLB debut: 'Never give up'**\
-`The lifelong Braves fan grew up rooting for Chipper Jones and finally lived his dream: "There's always hope as long as you fight for it."`\
-https://nytimes.com/athletic/5571550/2024/06/17/braves-grant-holmes-mlb-debut-hollywood/
-
-**Lopsided Contest**\
-`Aaron M. Rosenberg compares and contrasts.`\
-https://nytimes.com/2024/06/17/crosswords/daily-puzzle-2024-06-18.html
-
-**NBA free agency starts ... right now? A few deals we could see sooner rather than later**\
-`We may only see a handful of contracts agreed upon between now and the draft's first round, but we should expect some action.`\
-https://nytimes.com/athletic/5565480/2024/06/17/nba-free-agency-players-to-watch-2024/
 

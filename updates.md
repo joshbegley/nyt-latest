@@ -1,3 +1,19 @@
+**Why These Chinese Working Mothers Don’t Want More Babies**\
+`We spoke to three women who have rejected the government’s drive for bigger families and asked them to document their daily lives as they juggle home and the workplace.`\
+https://nytimes.com/interactive/2024/06/18/world/asia/china-moms.html
+
+**Oilers at Panthers Stanley Cup Final Game 5 odds, picks: Oilers attempt series comeback**\
+`The Edmonton Oilers thumped the Florida Panthers in Game 4. Can they keep the series alive again now that it shifts back to Florida?`\
+https://nytimes.com/athletic/5570101/2024/06/18/oilers-panthers-stanley-cup-final-game-5-odds-picks/
+
+**A Korean Secret to Keeping Friendships Strong: Savings Groups**\
+`In South Korea, it’s common for friends to form what are known as gyemoim to save for vacations, meals and other social activities.`\
+https://nytimes.com/2024/06/18/business/mutual-funds/saving-korea-gyemoim.html
+
+**Corrections: June 18, 2024**\
+`Corrections that appeared in print on Tuesday, June 18, 2024.`\
+https://nytimes.com/2024/06/18/pageoneplus/corrections-june-18-2024.html
+
 **Celtics' Jaylen Brown wins NBA Finals MVP**\
 `Brown had 21 points, eight rebounds and six assists in Boston's Game 5 win.`\
 https://nytimes.com/athletic/5571634/2024/06/17/celtics-jaylen-brown-nba-finals-mvp/
