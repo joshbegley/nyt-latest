@@ -1,3 +1,11 @@
+**Hurricanes name Eric Tulsky as general manager**\
+`Tulsky has been with the Hurricanes for 10 seasons.`\
+https://nytimes.com/athletic/5572977/2024/06/18/eric-tulsky-hurricanes-gm/
+
+**Celtics owner says Horford will return next season**\
+`"Al is coming back for next year. That's what I've been told. Age 38, which is unbelievable," Grousbeck said on the "The Greg Hill Show."`\
+https://nytimes.com/athletic/5573034/2024/06/18/al-horford-celtics-nba-return/
+
 **Fever-Sky on CBS is most-watched WNBA game in 23 years**\
 `CBS' telecast Sunday averaged 2.25 million viewers and peaked at close to 3 million viewers.`\
 https://nytimes.com/athletic/5572947/2024/06/18/fever-sky-wnba-tv-ratings/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/06/18/us/biden-trump-election/a-gop-primary-challe
 **Election Updates: A Democratic brawl in a Virginia race may put a House seat in play in November.**\
 ``\
 https://nytimes.com/live/2024/06/18/us/biden-trump-election
-
-**How ‘partners in crime’ Jayson Tatum and Jaylen Brown's unbreakable bond made them champions**\
-`Jayson Tatum spoke to The Athletic after winning the NBA Finals about how his bond with Jaylen Brown brought them a title.`\
-https://nytimes.com/athletic/5572343/2024/06/18/jaylen-brown-jayson-tatum-bond-celtics-championship/
-
-**Ten Hag staying at Man Utd provides peace of mind - Mainoo**\
-`Kobbie Mainoo admitted it is good to have “peace of mind” after Manchester United decided to stick with Erik ten Hag.`\
-https://nytimes.com/athletic/5572861/2024/06/18/kobbie-mainoo-england-ten-hag/
 
