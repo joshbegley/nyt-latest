@@ -1,3 +1,7 @@
+**Canucks re-sign Filip Hronek to 8-year, $58 million extension**\
+`The Vancouver Canucks have locked up defenseman Filip Hronek on a max-term, eight-year extension worth $58 million.`\
+https://nytimes.com/athletic/5574217/2024/06/18/filip-hronek-canucks-contract-extension/
+
 **Blues re-sign Scott Perunovich to 1-year deal**\
 `The team avoided arbitration by signing the RFA defenseman to a one-year, $1.15 million contract.`\
 https://nytimes.com/athletic/5574083/2024/06/18/blues-scott-perunovich-contract-analysis/
