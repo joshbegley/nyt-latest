@@ -1,3 +1,11 @@
+**Club Q Shooter Pleads Guilty to Hate Crimes in Effort to Avoid Death Penalty**\
+`Anderson Lee Aldrich was convicted in the 2022 shooting that killed five people at an L.G.B.T.Q. nightclub in Colorado Springs.`\
+https://nytimes.com/2024/06/18/us/club-q-shooter-federal-charges-guilty.html
+
+**You Talkin’ Like Him? A Convention Lets De Niro Fans Get In on the Act.**\
+`Participants at De Niro Con in Tribeca could talk like Travis Bickle, shadowbox like Jake LaMotta or get a tattoo like Max Cady. Yes, a real tattoo.`\
+https://nytimes.com/2024/06/18/movies/robert-de-niro-fan-convention.html
+
 **Trump’s Legal Advisers Plead Not Guilty in Arizona Election Case**\
 `Boris Epshteyn, who oversees Donald J. Trump’s legal team, was arraigned on nine felony charges on Tuesday.`\
 https://nytimes.com/2024/06/18/us/trump-lawyers-arizona-fake-electors.html
