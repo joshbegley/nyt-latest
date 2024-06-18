@@ -1,3 +1,7 @@
+**Massachusetts Emergency 911 System Temporarily Goes Down Statewide**\
+`The system was down for nearly two hours, when officials urged residents to call local police or fire stations to seek help. It was not clear what caused the outage.`\
+https://nytimes.com/2024/06/18/us/massachusetts-911-outage.html
+
 **Blue Jays place Bo Bichette on the IL, recall No. 2 prospect Orelvis Martinez**\
 `Bichette hasn't played since June 14 while dealing with a sore calf. Martinez joins the roster for what would be his MLB debut.`\
 https://nytimes.com/athletic/5573866/2024/06/18/blue-jays-bo-bichette-il-orelvis-martinez/

@@ -18,8 +18,8 @@ https://nytimes.com/2024/06/18/nyregion/queens-man-sexual-assault-arrest.html
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/06/18/style/tiny-modern-love-stories-to-die-with-perfect-abs.html
 
-**Massachusetts Emergency 911 System Goes Down Statewide**\
-`Officials urged residents to call local police or fire stations to seek help. It was not immediately clear what caused the outage or how long it would last.`\
+**Massachusetts Emergency 911 System Temporarily Goes Down Statewide**\
+`The system was down for nearly two hours, when officials urged residents to call local police or fire stations to seek help. It was not clear what caused the outage.`\
 https://nytimes.com/2024/06/18/us/massachusetts-911-outage.html
 
 **The Celtics Have 18 Championships. The Lakers? 17. (And Maybe One More.)**\
