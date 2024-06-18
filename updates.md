@@ -1,3 +1,7 @@
+**More Doctors Walk Off the Job in South Korea**\
+`Physicians across the country staged a one-day strike, the latest escalation in a months-old protest against the government’s plan to train more doctors.`\
+https://nytimes.com/2024/06/18/world/asia/south-korea-doctor-strike.html
+
 **Secret Service Agent Robbed at Gunpoint on Night of Biden’s L.A. Gala**\
 `The agent’s bag was stolen on Saturday night in a residential community in Southern California, the authorities said.`\
 https://nytimes.com/2024/06/18/us/secret-service-robbed-biden-tustin.html
