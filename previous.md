@@ -1,3 +1,7 @@
+**Exxon Suit Over Activist Investor’s Climate Proposal Is Dismissed**\
+`A federal judge ruled that the case was moot after the investor, Arjuna Capital, withdrew the proposal with a promise not to try again.`\
+https://nytimes.com/2024/06/17/business/exxon-arjuna-lawsuit-dismissed.html
+
 **Judge Orders Rail Operator to Pay $400 Million to Tribe for Trespassing**\
 `BNSF Railway broke its agreement with the Swinomish Indian Tribal Community when it ran hundreds of train cars a week containing crude oil through the tribe’s land in Washington State, according to a federal judge.`\
 https://nytimes.com/2024/06/17/us/judge-washington-tribe-oil-train-trespassing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5571406/2024/06/17/yankees-anthony-rizzo-injury/
 **Chicago Mayor Orders Task Force on Reparations for Black Residents**\
 `Once the panel is established, it will have about a year to determine what reparations should look like in the city.`\
 https://nytimes.com/2024/06/17/us/brandon-johnson-chicago-mayor-reparations-task-force.html
-
-**Celtics' Porziņģis available for Game 5 vs. Mavs**\
-`Celtics coach Joe Mazzulla said to "expect to see" Kristaps Porziņģis on the floor for Game 5 of the NBA Finals.`\
-https://nytimes.com/athletic/5571399/2024/06/17/kristaps-porzingis-game-5-status-celtics/
 

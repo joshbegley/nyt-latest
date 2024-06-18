@@ -1,3 +1,7 @@
+**Exxon Suit Over Activist Investor’s Climate Proposal Is Dismissed**\
+`A federal judge ruled that the case was moot after the investor, Arjuna Capital, withdrew the proposal with a promise not to try again.`\
+https://nytimes.com/2024/06/17/business/exxon-arjuna-lawsuit-dismissed.html
+
 **Judge Orders Rail Operator to Pay $400 Million to Tribe for Trespassing**\
 `BNSF Railway broke its agreement with the Swinomish Indian Tribal Community when it ran hundreds of train cars a week containing crude oil through the tribe’s land in Washington State, according to a federal judge.`\
 https://nytimes.com/2024/06/17/us/judge-washington-tribe-oil-train-trespassing.html
