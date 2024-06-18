@@ -1,3 +1,7 @@
+**Toyota Chairman, Re-Elected by Investors, Defends His Hands-On Role**\
+`Akio Toyoda, who stepped down as chief executive last year, had been criticized by some shareholders for continuing to dominate decision making at the automaker.`\
+https://nytimes.com/2024/06/18/business/toyota-akio-toyoda.html
+
 **Thaksin, Former Thai Premier, Indicted on Charges of Insulting Monarchy**\
 `The case against Thaksin Shinawatra was a reminder that the levers of power in Thailand remain firmly in the hands of the royalist-military establishment.`\
 https://nytimes.com/2024/06/18/world/asia/thaksin-thailand-indicted-monarchy.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/18/world/israel-gaza-war-hamas
 **The Transfer DealSheet: United's Branthwaite move, Yoro latest, Zirkzee interest**\
 `Welcome to our weekly guide to everything that is happening in the summer transfer window`\
 https://nytimes.com/athletic/5565759/2024/06/18/manchester-united-arsenal-transfer-news-liverpool/
-
-**Irving reflects on 'failing' after Mavs lose NBA Finals**\
-`Kyrie Irving shot 5-of-16 and finished with 15 points in Game 5 as Boston beat Dallas for the NBA title.`\
-https://nytimes.com/athletic/5571829/2024/06/18/kyrie-irving-mavericks-loss-nba-finals/
 
