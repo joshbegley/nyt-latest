@@ -1,3 +1,11 @@
+**Should Aston Villa keep hold of Lucas Digne or Alex Moreno?**\
+`Villa are keen to strengthen at left-back this summer, meaning one of Digne or Moreno may have to make way`\
+https://nytimes.com/athletic/5529117/2024/06/18/lucas-digne-alex-moreno-aston-villa-transfers/
+
+**Tuesday Briefing**\
+`Israel’s prime minister dissolved his war cabinet.`\
+https://nytimes.com/2024/06/18/briefing/israel-cabinet-putin-north-korea.html
+
 **Forest have still not replaced Samba - can they finally do so this summer?**\
 `A disgruntled Samba left Nottingham Forest post-promotion in summer 2022 - it still feels as though they have not replaced him in goal`\
 https://nytimes.com/athletic/5568031/2024/06/18/nottingham-forest-brice-samba-goalkeepers-transfer/
