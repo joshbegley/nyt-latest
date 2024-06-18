@@ -22,7 +22,7 @@ https://nytimes.com/2024/06/18/us/politics/neil-goldschmidt-dead.html
 `Van Gundy, 62, spent the 2024 season as a senior consultant for the Boston Celtics.`\
 https://nytimes.com/athletic/5572428/2024/06/18/jeff-van-gundy-clippers-assistant-coach/
 
-**You Talkin’ Like Him? A Convention Lets De Niro Fans Get in on the Act.**\
+**You Talkin’ Like Him? A Convention Lets De Niro Fans Get In on the Act.**\
 `Participants at De Niro Con in Tribeca could talk like Travis Bickle, shadowbox like Jake LaMotta or get a tattoo like Max Cady. Yes, a real tattoo.`\
 https://nytimes.com/2024/06/18/movies/robert-de-niro-fan-convention.html
 
