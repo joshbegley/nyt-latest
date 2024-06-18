@@ -1,3 +1,7 @@
+**Biden to Give Legal Protections to Undocumented Spouses of U.S. Citizens**\
+`Undocumented spouses of American citizens will be shielded from deportation, provided work permits and given a pathway to citizenship, according to officials briefed on the plan.`\
+https://nytimes.com/2024/06/17/us/politics/biden-immigration-spouses.html
+
 **After Delay, Top Democrats in Congress Sign Off on Sale of F-15 Jets to Israel**\
 `Senior Democrats who had taken the unusual step of holding out relented to pressure from the Biden administration and allowed a multibillion-dollar sale of weapons to move ahead.`\
 https://nytimes.com/2024/06/17/us/politics/top-democrats-sign-off-f-15-jets-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/17/us/migrants-border-aid.html
 **Record Number of NATO Allies Hit Military Spending Targets**\
 `President Biden and the NATO secretary general sought to present a robust and united front against Russia as the alliance prepares for its annual meeting next month.`\
 https://nytimes.com/2024/06/17/us/politics/nato-military-spending-targets.html
-
-**In Indiana, the MAGA Revolution Eats Its Own**\
-`A Christian nationalist upset causes Republican angst.`\
-https://nytimes.com/2024/06/17/opinion/indiana-christian-nationalist-republican-party.html
 
