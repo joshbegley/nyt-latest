@@ -1,3 +1,7 @@
+**The night France's Kylian Mbappe broke his nose at Euro 2024 - 'Any ideas for masks?'**\
+`X-rays at a Dusseldorf hospital confirmed a fracture but the France striker intends to play on at the Euros wearing a protective mask`\
+https://nytimes.com/athletic/5571535/2024/06/18/mbappe-broken-nose-france/
+
 **Minor league notebook: Junior Caminero, Jace Jung and more anticipated prospect promotions**\
 `Dane Martinez identifies a half dozen prospects who should be on the fantasy baseball radar ahead of a potential call-up this summer.`\
 https://nytimes.com/athletic/5570738/2024/06/18/minor-league-notebook-junior-caminero-jace-jung-and-more-anticipated-prospect-promotions/
