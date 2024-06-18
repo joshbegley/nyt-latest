@@ -1,3 +1,11 @@
+**On Immigration, Biden Attempts to Replicate a Powerful Obama Moment**\
+`The president’s planned announcement to expand legal protections for some undocumented spouses of American citizens evoked Barack Obama’s move to help young immigrants in 2012.`\
+https://nytimes.com/2024/06/18/us/politics/biden-immigration-announcement-obama.html
+
+**Man United exploring deal to sign Zirkzee**\
+`Manchester United are exploring a deal to sign Dutch striker Joshua Zirkzee from Bologna.`\
+https://nytimes.com/athletic/5572588/2024/06/18/man-united-joshua-zirkzee-transfer/
+
 **Germany fan hospitalised by Fullkrug shot to attend Hungary game**\
 `A fan who was hospitalised by a wayward shot from Germany striker Niclas Füllkrug has recovered in time to watch his country face Hungary on Wednesday evening, according to the German Football Federation (DFB).`\
 https://nytimes.com/athletic/5573549/2024/06/18/germany-fan-injured-fullkrug/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5572906/2024/06/18/la-liga-real-madrid-barcelona-cl
 **Glitz and Grimness Cross Paths on London’s ‘Caledonian Road’**\
 `Andrew O’Hagan’s ambitious state-of-England novel finds a cosseted academic facing up to the hard lives and ethical shortcuts he’d prefer to ignore.`\
 https://nytimes.com/2024/06/18/books/review/caledonian-road-andrew-ohagan.html
-
-**Ravens unveil purple alternate helmets**\
-`The Ravens' new helmet also features gold details and drew rave reviews from current and former players.`\
-https://nytimes.com/athletic/5573289/2024/06/18/ravens-alternate-helmet-design/
-
-**Club Q Shooter Pleads Guilty to Hate Crimes in Effort to Avoid Death Penalty**\
-`Anderson Lee Aldrich was convicted in the 2022 shooting that killed five people at an L.G.B.T.Q. nightclub in Colorado Springs.`\
-https://nytimes.com/2024/06/18/us/club-q-shooter-federal-charges-guilty.html
 
