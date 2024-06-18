@@ -20,7 +20,7 @@ https://nytimes.com/athletic/5570444/2024/06/18/padres-phillies-yu-darvish-joe-m
 
 **2025 NBA title odds: Celtics open as favorites to repeat**\
 `Wedged between this year’s NBA Finals teams in the opening title odds are the Denver Nuggets at +750.`\
-https://nytimes.com/athletic/5571737/2024/06/18/2025-nba-title-odds-celtics-open-as-favorites-to-repeat-followed-by-nuggets-mavericks/
+https://nytimes.com/athletic/5571737/2024/06/18/2025-nba-title-odds-celtics-nuggets/
 
 **Endrick, Yamal and Paez: How do you manage children at major international tournaments?**\
 `These wonderkids carry weight of a nation on their shoulders before being old enough to drive, and while doing homework in training camps`\

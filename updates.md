@@ -1,3 +1,7 @@
+**2025 NBA title odds: Celtics open as favorites to repeat**\
+`Wedged between this year’s NBA Finals teams in the opening title odds are the Denver Nuggets at +750.`\
+https://nytimes.com/athletic/5571737/2024/06/18/2025-nba-title-odds-celtics-nuggets/
+
 **Should Aston Villa keep hold of Lucas Digne or Alex Moreno?**\
 `Villa are keen to strengthen at left-back this summer, meaning one of Digne or Moreno may have to make way`\
 https://nytimes.com/athletic/5529117/2024/06/18/lucas-digne-alex-moreno-aston-villa-transfers/
