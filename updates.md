@@ -1,3 +1,11 @@
+**Danny Makkelie: Ref who played a hand in England's Euro 2020 semi-final win**\
+`By day, Danny Makkelie is a part-time police inspector in Rotterdam.`\
+https://nytimes.com/athletic/5570117/2024/06/18/euro-2024-ref-danny-makkelie/
+
+**Rangers place Barclay Goodrow on waivers**\
+`Despite scoring just four goals in 80 games this past season, Goodrow showed his biggest impact in the 2024 playoffs, scoring six goals.`\
+https://nytimes.com/athletic/5573751/2024/06/18/rangers-barclay-goodrow-waivers/
+
 **Sarah Mandel, Therapist Who Told Her ‘Trauma Narrative,’ Dies at 42**\
 `She received a diagnosis of Stage 4 breast cancer late in her second pregnancy and described her experience in a book, “Little Earthquakes: A Memoir.”`\
 https://nytimes.com/2024/06/18/us/sarah-mandel-dead.html
