@@ -1,3 +1,11 @@
+**Nine unrestricted free agents the Canucks could target to bolster their top 6**\
+`Adding another top-six forward into the mix will be one of the key tasks for Canucks hockey operations this summer.`\
+https://nytimes.com/athletic/5568992/2024/06/18/canucks-free-agent-targets-forwards/
+
+**The Windup: Yankees' best about to get better; Astros too late on Abreu**\
+`Plus: A big-league debut 10 years in the making. `\
+https://nytimes.com/athletic/5573390/2024/06/18/yankees-injuries-astros-jose-abreu-the-windup/
+
 **Team USA reveals opening, closing ceremony outfits for Paris Games**\
 `This is Ralph Lauren's ninth time designing Team USA's ceremony outfits.`\
 https://nytimes.com/athletic/5573268/2024/06/18/usa-olympics-outfits-opening-ceremony/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/18/theater/maria-sonia-friedman-merrily.html
 **Planning the Resistance to Trump**\
 `Readers discuss preparations by progressive activists and others. Also: A nuclear threat; geoengineering; Gaza protests in Belgium; a tribe’s whale hunt.`\
 https://nytimes.com/2024/06/18/opinion/trump-resistance.html
-
-**Neil Goldschmidt, Portland Mayor Tarnished by Scandal, Dies at 83**\
-`While he was reviving Portland, Ore., as a vibrant, pedestrian-friendly city, he was also sexually abusing a teenage girl, as he later admitted.`\
-https://nytimes.com/2024/06/18/us/politics/neil-goldschmidt-dead.html
-
-**Van Gundy agrees to be Clippers' lead assistant**\
-`Van Gundy, 62, spent the 2024 season as a senior consultant for the Boston Celtics.`\
-https://nytimes.com/athletic/5572428/2024/06/18/jeff-van-gundy-clippers-assistant-coach/
 
