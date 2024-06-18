@@ -1,3 +1,15 @@
+**Trump’s Legal Advisers Plead Not Guilty in Arizona Election Case**\
+`Boris Epshteyn, who oversees Donald J. Trump’s legal team, was arraigned on nine felony charges on Tuesday.`\
+https://nytimes.com/2024/06/18/us/trump-lawyers-arizona-fake-electors.html
+
+**The Sisters Who Turned a Sondheim Flop Into a Tony Winner**\
+`Maria and Sonia Friedman discussed their long history with “Merrily We Roll Along,” after a bittersweet Tony Awards.`\
+https://nytimes.com/2024/06/18/theater/maria-sonia-friedman-merrily.html
+
+**Planning the Resistance to Trump**\
+`Readers discuss preparations by progressive activists and others. Also: A nuclear threat; geoengineering; Gaza protests in Belgium; a tribe’s whale hunt.`\
+https://nytimes.com/2024/06/18/opinion/trump-resistance.html
+
 **Neil Goldschmidt, Portland Mayor Tarnished by Scandal, Dies at 83**\
 `While he was reviving Portland, Ore., as a vibrant, pedestrian-friendly city, he was also sexually abusing a teenage girl, as he later admitted.`\
 https://nytimes.com/2024/06/18/us/politics/neil-goldschmidt-dead.html
