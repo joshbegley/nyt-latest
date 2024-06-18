@@ -1,3 +1,11 @@
+**Forest have still not replaced Samba - can they finally do so this summer?**\
+`A disgruntled Samba left Nottingham Forest post-promotion in summer 2022 - it still feels as though they have not replaced him in goal`\
+https://nytimes.com/athletic/5568031/2024/06/18/nottingham-forest-brice-samba-goalkeepers-transfer/
+
+**Euro 2024 and German efficiency: Forget everything you thought you knew**\
+`Supporters travelling around Germany during Euro 2024 have encountered problems long familiar to locals`\
+https://nytimes.com/athletic/5569570/2024/06/18/euro-2024-germany-england-fans-gelsenkirchen-trains/
+
 **Padres absorb sobering dose of reality from juggernaut Phillies**\
 `San Diego got good news on Yu Darvish, then got beaten down by Philadelphia's heavy bats.`\
 https://nytimes.com/athletic/5570444/2024/06/18/padres-phillies-yu-darvish-joe-musgrove/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5558622/2024/06/18/march-guehi-england-euro-2024/
 **Copa America Group C guide: Bielsaball for Uruguay, USMNT's new-look midfield and Panama's possession**\
 `Can Uruguay win their 16th title? Will Christian Pulisic shine? How will Bolivia perform at a lower altitude? It's our guide to Group C…`\
 https://nytimes.com/athletic/5529388/2024/06/18/copa-america-group-c-guide-usmnt-uruguay-panama-bolivia/
-
-**Leny Yoro, 18, the defender lots of Europe's biggest clubs are pursuing**\
-`The Lille centre-back is only 18, but is wanted by several of Europe's leading clubs. Here's a look at what he offers...`\
-https://nytimes.com/athletic/5569647/2024/06/18/leny-yoro-transfers-latest/
-
-**A detailed look at the tactical themes that will define Copa America's Group D**\
-`Two of South America's most successful national teams look like the big beasts of the final group at this year's tournament`\
-https://nytimes.com/athletic/5540963/2024/06/18/copa-america-group-d-guide-plucky-paraguay-and-back-to-basics-brazil/
 
