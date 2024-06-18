@@ -1,3 +1,7 @@
+**Blue Jays again fail to return to .500 mark after Red Sox power past them**\
+`Yusei Kikuchi gave up four homers and Toronto failed to climb back to .500 for the fourth time since the end of April.`\
+https://nytimes.com/athletic/5571635/2024/06/17/blue-jays-red-sox-loss-500-mark/
+
 **Celtics' Jaylen Brown wins NBA Finals MVP**\
 `Brown had 21 points, eight rebounds and six assists in Boston's Game 5 win.`\
 https://nytimes.com/athletic/5571634/2024/06/17/celtics-jaylen-brown-nba-finals-mvp/
