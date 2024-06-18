@@ -1,3 +1,7 @@
+**Raheem Morris on his second chance, that Penix pick**\
+`Atlanta’s new head coach reflects on his past and his new team’s future, particularly at quarterback.`\
+https://nytimes.com/athletic/5570876/2024/06/18/raheem-morris-podcast-interview-penix-draft-pick-second-coaching-job/
+
 **Thairo Estrada hits a thrilling home run and Camilo Doval puts it on ice as Giants win at Wrigley**\
 `"That was one of the cooler wins I've ever been a part of," said catcher Patrick Bailey, who hit a home run in the eigthth.`\
 https://nytimes.com/athletic/5571979/2024/06/18/san-francisco-giants-thairo-estrada-camilo-doval/
