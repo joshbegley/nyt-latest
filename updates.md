@@ -1,3 +1,19 @@
+**Bulls draft intel: Ron Holland, Terrence Shannon Jr. and a potential sleeper workout**\
+`The Bulls need more size and versatility on the wing as well as depth in the frontcourt.`\
+https://nytimes.com/athletic/5571472/2024/06/18/bulls-nba-draft-ron-holland-terrence-shannon/
+
+**Rush-Hour Commute Disrupted for Many by Disabled Train at Penn Station**\
+`New Jersey Transit service into and out of the Midtown Manhattan transit hub was suspended and commuters were rerouted to buses and the PATH train. Amtrak reported 90-minute delays.`\
+https://nytimes.com/2024/06/18/nyregion/nj-transit-delay-penn-station.html
+
+**Today's MLB odds and predictions: Best and worst starting pitchers, home run streaks and more**\
+`Check in on our Tuesday MLB projections with odds for every game, picks for best value bets, pitcher props and more.`\
+https://nytimes.com/athletic/5572597/2024/06/18/mlb-odds-predictions-best-bets-june-18/
+
+**Everton in advanced talks over deal for Villa's Iroegbunam**\
+`Everton are in advanced talks to sign midfielder Tim Iroegbunam from Aston Villa.`\
+https://nytimes.com/athletic/5572607/2024/06/18/everton-transfer-tim-iroegbunam/
+
 **Putin Will Head to North Korea as Ukraine War Redefines Ties With Kim**\
 `President Vladimir V. Putin’s military needs have prompted the Kremlin to strengthen ties with the authoritarian government of Kim Jong-un, which is well stocked in munitions.`\
 https://nytimes.com/2024/06/18/world/europe/putin-north-korea-kim.html

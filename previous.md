@@ -1,3 +1,19 @@
+**Bulls draft intel: Ron Holland, Terrence Shannon Jr. and a potential sleeper workout**\
+`The Bulls need more size and versatility on the wing as well as depth in the frontcourt.`\
+https://nytimes.com/athletic/5571472/2024/06/18/bulls-nba-draft-ron-holland-terrence-shannon/
+
+**Rush-Hour Commute Disrupted for Many by Disabled Train at Penn Station**\
+`New Jersey Transit service into and out of the Midtown Manhattan transit hub was suspended and commuters were rerouted to buses and the PATH train. Amtrak reported 90-minute delays.`\
+https://nytimes.com/2024/06/18/nyregion/nj-transit-delay-penn-station.html
+
+**Today's MLB odds and predictions: Best and worst starting pitchers, home run streaks and more**\
+`Check in on our Tuesday MLB projections with odds for every game, picks for best value bets, pitcher props and more.`\
+https://nytimes.com/athletic/5572597/2024/06/18/mlb-odds-predictions-best-bets-june-18/
+
+**Everton in advanced talks over deal for Villa's Iroegbunam**\
+`Everton are in advanced talks to sign midfielder Tim Iroegbunam from Aston Villa.`\
+https://nytimes.com/athletic/5572607/2024/06/18/everton-transfer-tim-iroegbunam/
+
 **Putin Will Head to North Korea as Ukraine War Redefines Ties With Kim**\
 `President Vladimir V. Putin’s military needs have prompted the Kremlin to strengthen ties with the authoritarian government of Kim Jong-un, which is well stocked in munitions.`\
 https://nytimes.com/2024/06/18/world/europe/putin-north-korea-kim.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5572133/2024/06/18/mbappe-nose-copa-america-group-g
 **Anouk Aimée, Enigmatic Star of ‘A Man and a Woman,’ Dies at 92**\
 `The French actress had already made an impression in international film when she appeared in Claude Lelouch’s 1966 romance, a role that earned her an Oscar nomination.`\
 https://nytimes.com/2024/06/18/obituaries/anouk-aimee-dead.html
-
-**French Court Strikes Down Ban on Israeli Companies at Weapons Show**\
-`A court ruled that France’s order to bar Israeli exhibitors from the Eurosatory arms show was discriminatory, as the French government’s criticism over the war in Gaza mounts.`\
-https://nytimes.com/2024/06/18/world/middleeast/arms-show-ban-france-israel-weapons.html
-
-**A Relic of Los Angeles’s Anti-L.G.B.T.Q. Past Comes Down**\
-`The strange “no U-turn” signs along Griffith Park Boulevard in Silver Lake were erected in the 1990s to ward off gay men.`\
-https://nytimes.com/2024/06/18/us/los-angeles-lgbtq-signs.html
-
-**The T-Shirt’s Message Is Simple: ‘Everyone Watches Women’s Sports.’**\
-`A black-and-white shirt by the brand Togethxr has become the unofficial uniform of a breakthrough moment for women’s basketball.`\
-https://nytimes.com/2024/06/18/style/everyone-watches-womens-sports-shirt.html
-
-**Giants takeaways: Heliot Ramos gets All-Star support, Brett Wisely bares all**\
-`And how the team is treading water with essentially half of a five-man rotation, but is well positioned to make a second-half surge.`\
-https://nytimes.com/athletic/5572008/2024/06/18/giants-takeaways-heliot-ramos-all-star-brett-wisely/
 
