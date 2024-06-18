@@ -1,3 +1,15 @@
+**A ship attacked by the Houthis goes down in the Red Sea.**\
+`By Anjana Sankar`\
+https://nytimes.com/live/2024/06/18/world/israel-gaza-war-hamas/a-ship-attacked-by-the-houthis-goes-down-in-the-red-sea
+
+**In Legal Peril, Seattle’s ‘Belltown Hellcat’ Is Ordered to Yield**\
+`A driver whose roaring Dodge Charger has plagued Seattle residents said he was working to modify the car. Still, city officials won an $83,000 judgment against him.`\
+https://nytimes.com/2024/06/18/us/seattle-belltown-hellcat-judgment.html
+
+**In the History of United States Heat Waves, 1936 Stands Out**\
+`Thousands died and people slept on roofs to cope with the early heat wave, which was supercharged by agricultural practices.`\
+https://nytimes.com/2024/06/18/weather/heat-wave-us-history.html
+
 **Small Step Could Bring Big Relief to Young Undocumented Immigrants**\
 `A new Biden administration measure enables “Dreamers” to get work visas that could free them from relying on the DACA program, whose survival is in doubt.`\
 https://nytimes.com/2024/06/18/us/biden-immigration-daca-dreamers.html
