@@ -1,3 +1,7 @@
+**Thaksin, Former Thai Premier, Indicted on Charges of Insulting Monarchy**\
+`The case against Thaksin Shinawatra was a reminder that the levers of power in Thailand remain firmly in the hands of the royalist-military establishment.`\
+https://nytimes.com/2024/06/18/world/asia/thaksin-thailand-indicted-monarchy.html
+
 **Late Night Latches Onto Donald Trump’s ‘Johnson’ Mix-Up**\
 `“The sad thing is under MAGA law, his name is now Ronny Johnson,” Jon Stewart said after Trump referred to his former doctor, Ronny Jackson, by the wrong name.`\
 https://nytimes.com/2024/06/18/arts/television/late-night-trump-ronny-jackson.html
