@@ -1,3 +1,7 @@
+**Canucks re-sign Filip Hronek to 8-year, $58 million extension**\
+`The Vancouver Canucks have locked up defenseman Filip Hronek on a max-term, eight-year extension worth $58 million.`\
+https://nytimes.com/athletic/5574217/2024/06/18/filip-hronek-canucks-contract-extension/
+
 **Blues re-sign Scott Perunovich to 1-year deal**\
 `The team avoided arbitration by signing the RFA defenseman to a one-year, $1.15 million contract.`\
 https://nytimes.com/athletic/5574083/2024/06/18/blues-scott-perunovich-contract-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/18/weather/heat-wave-news/the-northeast-begins-
 **Arda Guler: Choir-boy looks, thunderous foot and the hearts of Ancelotti, Montella and Turkey**\
 `At 19, the Real Madrid player came of age at Euro 2024 with a thunderous goal and a show of promise that could take Turkey a long way`\
 https://nytimes.com/athletic/5573923/2024/06/18/arda-guler-ancelotti-turkey/
-
-**Euro 2024 odds for Wednesday's three group matches including Germany-Hungary**\
-`The second round of Euro 2024 group stage matches start on Wednesday with host Germany taking on Hungary and Switzerland facing Scotland.`\
-https://nytimes.com/athletic/5573544/2024/06/18/euro-2024-odds-germany-hungary/
 
