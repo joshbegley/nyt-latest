@@ -1,7 +1,3 @@
-**How Slovakia channelled Napoli to record the biggest-ever Euros upset**\
-`Slovakia recorded a famous underdog win against Belgium - but that doesn't mean they played like one`\
-https://nytimes.com/athletic/5571305/2024/06/18/slovakia-belgium-euro-2024-upset/
-
 **Irving reflects on 'failing' after Mavs lose NBA Finals**\
 `Kyrie Irving shot 5-of-16 and finished with 15 points in Game 5 as Boston beat Dallas for the NBA title.`\
 https://nytimes.com/athletic/5571829/2024/06/18/kyrie-irving-mavericks-loss-nba-finals/
@@ -21,6 +17,10 @@ https://nytimes.com/athletic/5571535/2024/06/18/mbappe-broken-nose-france/
 **Minor league notebook: Junior Caminero, Jace Jung and more anticipated prospect promotions**\
 `Dane Martinez identifies a half dozen prospects who should be on the fantasy baseball radar ahead of a potential call-up this summer.`\
 https://nytimes.com/athletic/5570738/2024/06/18/minor-league-notebook-junior-caminero-jace-jung-and-more-anticipated-prospect-promotions/
+
+**How Slovakia channelled Napoli to record the 'biggest-ever' Euros upset**\
+`Slovakia recorded a famous underdog win against Belgium - but that doesn't mean they played like one`\
+https://nytimes.com/athletic/5571305/2024/06/18/slovakia-belgium-euro-2024-upset/
 
 **Cubs suffer a tough loss after another blown save by Héctor Neris**\
 `Chicago's offense, which has been in disarray, gave the team a late lead, but then the fans at Wrigley were reminded of the flawed bullpen.`\

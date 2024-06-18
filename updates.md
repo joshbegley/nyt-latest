@@ -1,3 +1,7 @@
+**How Slovakia channelled Napoli to record the 'biggest-ever' Euros upset**\
+`Slovakia recorded a famous underdog win against Belgium - but that doesn't mean they played like one`\
+https://nytimes.com/athletic/5571305/2024/06/18/slovakia-belgium-euro-2024-upset/
+
 **How Slovakia channelled Napoli to record the biggest-ever Euros upset**\
 `Slovakia recorded a famous underdog win against Belgium - but that doesn't mean they played like one`\
 https://nytimes.com/athletic/5571305/2024/06/18/slovakia-belgium-euro-2024-upset/
