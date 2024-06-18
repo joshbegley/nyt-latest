@@ -1,3 +1,11 @@
+**Ian McKellen Is in ‘Good Spirits’ After Falling Off the Stage During a Play**\
+`The English actor was injured during a performance of “Player Kings,” and the show was abruptly canceled. He is expected to perform again on Wednesday.`\
+https://nytimes.com/2024/06/18/arts/ian-mckellen-stage-fall.html
+
+**How should college football's rivalry weekend look?**\
+`Which college football rivalries are most important? Which ones have the most history? And what lineup would make the best rivalry weekend?`\
+https://nytimes.com/athletic/5565450/2024/06/18/college-football-rivalry-weekend-scheduling/
+
 **'Beyond baseball': Twins coach left the team to be with ailing son, who's now hitting his stride**\
 `Instead of spending last spring at his first major-league camp in Florida, Derek Shomon tended to his sick son for weeks in a hospital room.`\
 https://nytimes.com/athletic/5566410/2024/06/18/minnesota-twins-coach-derek-shomon-son-micah/
