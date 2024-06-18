@@ -30,7 +30,7 @@ https://nytimes.com/live/2024/06/18/opinion/thepoint/biden-vice-president-step-d
 `The opposition in Georgia accused the government of cozying up to Russia. Can playing in the Euros make the nation feel more like a part of Europe?`\
 https://nytimes.com/2024/06/18/world/europe/georgia-euro-2024.html
 
-**Nvidia Becomes Most Valuable Public Company, Topping Microsoft and Apple**\
+**Nvidia Becomes Most Valuable Public Company, Topping Microsoft**\
 `The chip maker’s stock price has jumped over the last year thanks to its stranglehold on the market for the chips needed to build A.I. systems.`\
 https://nytimes.com/2024/06/18/technology/nvidia-most-valuable-company.html
 
