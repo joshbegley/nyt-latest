@@ -1,3 +1,7 @@
+**After Delay, Top Democrats in Congress Sign Off on Sale of F-15 Jets to Israel**\
+`Senior Democrats who had taken the unusual step of holding out relented to pressure from the Biden administration and allowed a multibillion-dollar sale of weapons to move ahead.`\
+https://nytimes.com/2024/06/17/us/politics/israel-f-15-jets-democrats.html
+
 **Biden to Give Legal Protections to Undocumented Spouses of U.S. Citizens**\
 `Undocumented spouses of American citizens will be shielded from deportation, provided work permits and given a pathway to citizenship, according to officials briefed on the plan.`\
 https://nytimes.com/2024/06/17/us/politics/biden-immigration-spouses.html
