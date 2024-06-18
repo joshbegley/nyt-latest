@@ -13,6 +13,11 @@ https://nytimes.com/athletic/5574075/2024/06/18/mlb-diamond-sports-group-contrac
 `\
 https://nytimes.com/athletic/5574075/2024/06/18/mlb-diamond-sports-group-contract-request/
 
+**Cable-company lawyer says dealing with MLB 'like talking to a brick wall'**\
+`A federal judge rebuffed MLB in its quest to review contracts between cable companies and the bankrupt broadcaster, Diamond Sports Group.
+`\
+https://nytimes.com/athletic/5574075/2024/06/18/mlb-diamond-sports-group-contract-request/
+
 **Astros place Justin Verlander on 15-day IL with 'neck discomfort'**\
 `Another blow to Houston's rotation also casts doubt about whether Verlander will reach the innings threshold for his 2025 vesting option.`\
 https://nytimes.com/athletic/5574028/2024/06/18/astros-justin-verlander-neck-injury/
