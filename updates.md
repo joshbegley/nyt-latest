@@ -1,3 +1,11 @@
+**Path Is Cleared for One of the Largest U.S. Arms Sales to Israel in Years**\
+`Two top Democratic holdouts in Congress signed off on a plan to sell $18 billion worth of F-15 fighter jets to Israel, according to people familiar with the sale.`\
+https://nytimes.com/live/2024/06/18/world/israel-gaza-war-hamas
+
+**How Slovakia channelled Napoli to record the 'biggest-ever' Euros upset**\
+`Slovakia recorded a famous underdog win against Belgium in their Euro 2024 opener - but that doesn't mean they played like one`\
+https://nytimes.com/athletic/5571305/2024/06/18/slovakia-belgium-euro-2024-upset/
+
 **The Transfer DealSheet: United's Branthwaite move, Yoro latest, Zirkzee interest**\
 `Welcome to our weekly guide to everything that is happening in the summer transfer window`\
 https://nytimes.com/athletic/5565759/2024/06/18/manchester-united-arsenal-transfer-news-liverpool/
