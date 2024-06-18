@@ -1,3 +1,7 @@
+**LeBron, Osimhen and Kane - the masked sporting stars Mbappe can take inspiration from**\
+`Kylian Mbappe asked for masked advice having had his nose rearranged against Austria - plenty of sporting stars have had success with them`\
+https://nytimes.com/athletic/5572989/2024/06/18/kylian-mbappe-nose-mask-lebron/
+
 **Garlicky Chicken Sandwiches With Red Cabbage Slaw, Gorgeous and Glossy Strawberry Pretzel Bars**\
 `Bold and bright recipes for a Juneteenth feast.`\
 https://nytimes.com/2024/06/18/dining/strawberry-soda-juneteenth-recipes.html
