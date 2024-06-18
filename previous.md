@@ -1,3 +1,7 @@
+**Stop Comparing Hamas to the Nazis**\
+`Invoking Nazis and pogroms in discussing the Hamas attacks is wrong and offensive, and helps the Israeli government avoid responsibility for its failures.`\
+https://nytimes.com/2024/06/18/opinion/holocaust-israel-palestinians-hamas.html
+
 **Should Aston Villa keep hold of Lucas Digne or Alex Moreno?**\
 `Villa are keen to strengthen at left-back this summer, meaning one of Digne or Moreno may have to make way`\
 https://nytimes.com/athletic/5529117/2024/06/18/lucas-digne-alex-moreno-aston-villa-transfers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5569535/2024/06/18/riccardo-calafiori-italy-centre-
 **Champion Celtics were more than their dynamic duo, making for sweetest of victory cigars**\
 `There’s always been a Tatum-Brown/Brown-Tatum competition, but it never turned the product sour. The '23-24 title team showcased their best.`\
 https://nytimes.com/athletic/5571657/2024/06/18/boston-celtics-championship-nba-finals-dallas-mavericks/
-
-**Copa America 2024 Group A guide: Argentina's rotations, Canada's aggression and Chile's high press**\
-`Will Jesse Marsch improve Canada? Will Chile's experience make a difference? Can Messi inspire his nation again? It's our guide to Group A`\
-https://nytimes.com/athletic/5460680/2024/06/18/copa-america-2024-group-a-guide-argentina-peru-chile-canada/
 

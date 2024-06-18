@@ -1,3 +1,7 @@
+**Stop Comparing Hamas to the Nazis**\
+`Invoking Nazis and pogroms in discussing the Hamas attacks is wrong and offensive, and helps the Israeli government avoid responsibility for its failures.`\
+https://nytimes.com/2024/06/18/opinion/holocaust-israel-palestinians-hamas.html
+
 **2025 NBA title odds: Celtics open as favorites to repeat**\
 `Wedged between this year’s NBA Finals teams in the opening title odds are the Denver Nuggets at +750.`\
 https://nytimes.com/athletic/5571737/2024/06/18/2025-nba-title-odds-celtics-nuggets/
