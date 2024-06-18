@@ -1,3 +1,15 @@
+**The FIFA World Rankings are not that important - and that’s a good thing**\
+`Rankings serve their purpose. They measure progress, they help decide seedings - but being No 1 is not, in itself, something to aspire to`\
+https://nytimes.com/athletic/5571906/2024/06/18/fifa-world-rankings-how-important/
+
+**Nedim Bajrami, the Euros record-breaker who went to court to play for Albania**\
+`The striker took just 23 seconds to score against Italy but had a much longer battle to play for the country of his 'heart'`\
+https://nytimes.com/athletic/5570314/2024/06/18/nedim-bajrami-albania-fifa-court/
+
+**France's altered defensive shape worked against Austria - but game state a crucial factor**\
+`Would Deschamps' tweaked setup work against stronger opponents with better individual qualities and diverse attacking ideas?`\
+https://nytimes.com/athletic/5571895/2024/06/18/france-austria-euro-2024-analysis/
+
 **Boeing’s Bumpy Ride Isn’t Over**\
 `Dave Calhoun, the embattled company’s C.E.O., heads to Capitol Hill amid new whistle-blower accusations and questions over succession.`\
 https://nytimes.com/2024/06/18/business/dealbook/boeing-calhoun-senate-hearing.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5566410/2024/06/18/minnesota-twins-coach-derek-shom
 **What the Broncos learned about rookie QB Bo Nix during first offseason program**\
 `The Broncos saw Nix's record 61 college starts as a strength, and they've seen the "calmness" and "maturity" created by that experience.`\
 https://nytimes.com/athletic/5567982/2024/06/18/bo-nix-broncos-offseason/
-
-**Raiders hoping Zamir White, Brock Bowers, Tre Tucker can step up and take pressure off QBs**\
-`The Raiders aren't looking for their QBs to be great. They're expecting some young players to step up and help the offense thrive.`\
-https://nytimes.com/athletic/5571269/2024/06/18/raiders-offense-zamir-white-bowers-tucker/
-
-**The Business of Football at Euro 2024: Planes to Qatar, delayed trains and Chinese automobiles**\
-`The first week of the European Championship has seen Deutsche Bahn, global ticket sales and football's cluttered calendar in the spotlight`\
-https://nytimes.com/athletic/5570252/2024/06/18/business-uefa-euro2024-qatar-tickets/
-
-**'You got a dog': Florida State's Renardo Green, Tatum Bethune bring tenacity to the 49ers**\
-`The former Florida State defenders look to team up again with the 49ers and bring reputations as strong tacklers.`\
-https://nytimes.com/athletic/5532531/2024/06/18/49ers-florida-state-renardo-green-tatum-bethune/
 

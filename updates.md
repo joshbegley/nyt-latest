@@ -1,3 +1,15 @@
+**The FIFA World Rankings are not that important - and that’s a good thing**\
+`Rankings serve their purpose. They measure progress, they help decide seedings - but being No 1 is not, in itself, something to aspire to`\
+https://nytimes.com/athletic/5571906/2024/06/18/fifa-world-rankings-how-important/
+
+**Nedim Bajrami, the Euros record-breaker who went to court to play for Albania**\
+`The striker took just 23 seconds to score against Italy but had a much longer battle to play for the country of his 'heart'`\
+https://nytimes.com/athletic/5570314/2024/06/18/nedim-bajrami-albania-fifa-court/
+
+**France's altered defensive shape worked against Austria - but game state a crucial factor**\
+`Would Deschamps' tweaked setup work against stronger opponents with better individual qualities and diverse attacking ideas?`\
+https://nytimes.com/athletic/5571895/2024/06/18/france-austria-euro-2024-analysis/
+
 **Boeing’s Bumpy Ride Isn’t Over**\
 `Dave Calhoun, the embattled company’s C.E.O., heads to Capitol Hill amid new whistle-blower accusations and questions over succession.`\
 https://nytimes.com/2024/06/18/business/dealbook/boeing-calhoun-senate-hearing.html
