@@ -1,3 +1,7 @@
+**Garden Party: Celtics wash away recent failures by winning 18th NBA championship**\
+`Order a copy today of The Athletic's commemorative book about the Celtics’ 2023-24 season for $39.95, plus shipping and tax.`\
+https://nytimes.com/athletic/5572535/2024/06/18/garden-party-celtics-nba-champions-book/
+
 **Danny Makkelie: Ref who played a hand in England's Euro 2020 semi-final win**\
 `By day, Danny Makkelie is a part-time police inspector in Rotterdam.`\
 https://nytimes.com/athletic/5570117/2024/06/18/euro-2024-ref-danny-makkelie/
