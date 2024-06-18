@@ -1,5 +1,13 @@
+**How Slovakia channelled Napoli to record the biggest-ever Euros upset**\
+`Slovakia recorded a famous underdog win against Belgium - but that doesn't mean they played like one`\
+https://nytimes.com/athletic/5571305/2024/06/18/slovakia-belgium-euro-2024-upset/
+
+**Irving reflects on 'failing' after Mavs lose NBA Finals**\
+`Kyrie Irving shot 5-of-16 and finished with 15 points in Game 5 as Boston beat Dallas for the NBA title.`\
+https://nytimes.com/athletic/5571829/2024/06/18/kyrie-irving-mavericks-loss-nba-finals/
+
 **How far can the lineup — not Grimace — carry the Mets in a crowded wild-card picture?**\
-`After underperforming in the first two months of the season, the mood around the Mets — winners of 6 straight — is light and lively.`\
+`After underperforming in the first two months of the season, the mood around the Mets — winners of six straight — is light and lively.`\
 https://nytimes.com/athletic/5571833/2024/06/18/mets-blowout-win-over-rangers/
 
 **Word of the Day: gregarious**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/18/us/secret-service-robbed-biden-tustin.html
 **Stop Comparing Hamas to the Nazis**\
 `Invoking Nazis and pogroms in discussing the Hamas attacks is wrong and offensive, and helps the Israeli government avoid responsibility for its failures.`\
 https://nytimes.com/2024/06/18/opinion/holocaust-israel-palestinians-hamas.html
-
-**Should Aston Villa keep hold of Lucas Digne or Alex Moreno?**\
-`Villa are keen to strengthen at left-back this summer, meaning one of Digne or Moreno may have to make way`\
-https://nytimes.com/athletic/5529117/2024/06/18/lucas-digne-alex-moreno-aston-villa-transfers/
-
-**Tuesday Briefing**\
-`Israel’s prime minister dissolved his war cabinet.`\
-https://nytimes.com/2024/06/18/briefing/israel-cabinet-putin-north-korea.html
 
