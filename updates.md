@@ -1,3 +1,11 @@
+**Hurricanes name Eric Tulsky as general manager**\
+`Tulsky has been with the Hurricanes for 10 seasons.`\
+https://nytimes.com/athletic/5572977/2024/06/18/eric-tulsky-hurricanes-gm/
+
+**Celtics owner says Horford will return next season**\
+`"Al is coming back for next year. That's what I've been told. Age 38, which is unbelievable," Grousbeck said on the "The Greg Hill Show."`\
+https://nytimes.com/athletic/5573034/2024/06/18/al-horford-celtics-nba-return/
+
 **Fever-Sky on CBS is most-watched WNBA game in 23 years**\
 `CBS' telecast Sunday averaged 2.25 million viewers and peaked at close to 3 million viewers.`\
 https://nytimes.com/athletic/5572947/2024/06/18/fever-sky-wnba-tv-ratings/
