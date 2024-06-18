@@ -1,3 +1,7 @@
+**Facundo Tello: Why is an Argentinian refereeing a Euro 2024 game?**\
+`The 42-year-old will make history when he takes charge of Turkey vs Georgia on Tuesday`\
+https://nytimes.com/athletic/5570270/2024/06/18/facundo-tello-who-euro-2024/
+
 **We Want to Know: What’s Your Favorite Sandwich in New York City?**\
 `The New York Times Food staff crisscrossed the city in search of its most noteworthy sandwiches and now we want to hear from readers.`\
 https://nytimes.com/2024/06/18/dining/favorite-sandwich-reader-callout.html

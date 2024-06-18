@@ -1,3 +1,7 @@
+**Facundo Tello: Why is an Argentinian refereeing a Euro 2024 game?**\
+`The 42-year-old will make history when he takes charge of Turkey vs Georgia on Tuesday`\
+https://nytimes.com/athletic/5570270/2024/06/18/facundo-tello-who-euro-2024/
+
 **We Want to Know: What’s Your Favorite Sandwich in New York City?**\
 `The New York Times Food staff crisscrossed the city in search of its most noteworthy sandwiches and now we want to hear from readers.`\
 https://nytimes.com/2024/06/18/dining/favorite-sandwich-reader-callout.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5571564/2024/06/18/seattle-sounders-anniversary-rei
 **A Novel Legal Strategy for Mass Shooting Victims’ Families**\
 `Families in Uvalde, Texas, have sued a video game, a gun maker and Instagram, claiming they helped to groom and equip the shooter.`\
 https://nytimes.com/2024/06/18/podcasts/the-daily/uvalde-victims-families.html
-
-**U.S. Protections for Undocumented Spouses, and Putin’s North Korea Visit**\
-`Plus, trouble in the avocado supply.`\
-https://nytimes.com/2024/06/18/podcasts/biden-migrants-north-korea-putin.html
 
