@@ -1,3 +1,7 @@
+**Secret Service Agent Robbed at Gunpoint on Night of Biden’s L.A. Gala**\
+`The agent’s bag was stolen on Saturday night in a residential community in Southern California, the authorities said.`\
+https://nytimes.com/2024/06/18/us/secret-service-robbed-biden-tustin.html
+
 **Stop Comparing Hamas to the Nazis**\
 `Invoking Nazis and pogroms in discussing the Hamas attacks is wrong and offensive, and helps the Israeli government avoid responsibility for its failures.`\
 https://nytimes.com/2024/06/18/opinion/holocaust-israel-palestinians-hamas.html

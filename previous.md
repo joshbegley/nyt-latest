@@ -1,3 +1,7 @@
+**Secret Service Agent Robbed at Gunpoint on Night of Biden’s L.A. Gala**\
+`The agent’s bag was stolen on Saturday night in a residential community in Southern California, the authorities said.`\
+https://nytimes.com/2024/06/18/us/secret-service-robbed-biden-tustin.html
+
 **Stop Comparing Hamas to the Nazis**\
 `Invoking Nazis and pogroms in discussing the Hamas attacks is wrong and offensive, and helps the Israeli government avoid responsibility for its failures.`\
 https://nytimes.com/2024/06/18/opinion/holocaust-israel-palestinians-hamas.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5569829/2024/06/18/endrick-yamal-paez-euros-copa-am
 **Riccardo Calafiori, an Italian centre-back in name, hair and pedigree**\
 `The Bologna defender is proving Jose Mourinho wrong for writing him off at Roma - and could become a star of Euro 2024 and beyond`\
 https://nytimes.com/athletic/5569535/2024/06/18/riccardo-calafiori-italy-centre-back-euro-2024/
-
-**Champion Celtics were more than their dynamic duo, making for sweetest of victory cigars**\
-`There’s always been a Tatum-Brown/Brown-Tatum competition, but it never turned the product sour. The '23-24 title team showcased their best.`\
-https://nytimes.com/athletic/5571657/2024/06/18/boston-celtics-championship-nba-finals-dallas-mavericks/
 
