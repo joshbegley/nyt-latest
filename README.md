@@ -27,7 +27,7 @@ https://nytimes.com/athletic/5573866/2024/06/18/blue-jays-bo-bichette-il-orelvis
 https://nytimes.com/2024/06/18/nyregion/avlon-goroff-primary-ny1.html
 
 **Trump Wasn’t Going to Stay in Milwaukee. Then Reporters Asked.**\
-`The Republican convention will be held in swing-state Wisconsin’s largest city. The nominee, however, had planned to stay his own hotel in Chicago, until members of the media began inquiring.`\
+`The Republican convention will be held in swing-state Wisconsin’s largest city. The nominee, however, had planned to stay his own hotel in Chicago, until members of the news media began inquiring.`\
 https://nytimes.com/2024/06/18/us/politics/trump-milwaukee-rnc.html
 
 **Queens Residents Capture Suspect in Rape of 13-Year-Old Girl**\
