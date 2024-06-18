@@ -1,3 +1,7 @@
+**Deadly Landslides and Floods Hit Southern China**\
+`Chinese state media footage showed landslides that tore through mountain roads as heavy rains washed away a bridge and flooded villages.`\
+https://nytimes.com/video/world/asia/100000009527635/china-flood-landslide.html
+
 **North Korea Has Lost ‘Many’ Troops to Mines in DMZ, South Says**\
 `North Korean soldiers have been sent into the mine-strewn buffer zone to do construction work since November, the South Korean military said on Tuesday.`\
 https://nytimes.com/2024/06/18/world/asia/north-korea-loses-troops-dmz.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5562242/2024/06/18/liverpool-premier-league-fixture
 **West Ham's 2024-25 Premier League fixtures**\
 `Julen Lopetegui&#8217;s West Ham United tenure will begin against Aston Villa at the London Stadium on the opening weekend of the 2024-25 Premier League season.`\
 https://nytimes.com/athletic/5561166/2024/06/18/west-ham-premier-league-fixtures-2024-25-schedule/
-
-**Ipswich's 2024-25 Premier League fixtures**\
-`Ipswich Town&#8217;s first game back in the Premier League for more than 22 years will be at home to Liverpool on Sunday, August 17.`\
-https://nytimes.com/athletic/5562184/2024/06/18/ipswich-premier-league-fixtures-2024-25-schedule/
 
