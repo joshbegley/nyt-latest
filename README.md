@@ -1,3 +1,7 @@
+**Gazans are living amid 39 million tons of debris, the U.N. says.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/06/18/world/israel-gaza-war-hamas/gazans-are-living-amid-39-million-tons-of-debris-the-un-says
+
 **California Moves to Modify Law Letting Workers Sue Employers**\
 `Gov. Gavin Newsom announced a deal with business and labor leaders heading off a ballot measure to repeal the law, which has cost companies billions.`\
 https://nytimes.com/2024/06/18/business/economy/california-newsom-labor.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/18/weather/heat-wave-us-history.html
 **Small Step Could Bring Big Relief to Young Undocumented Immigrants**\
 `A new Biden administration measure enables “Dreamers” to get work visas that could free them from relying on the DACA program, whose survival is in doubt.`\
 https://nytimes.com/2024/06/18/us/biden-immigration-daca-dreamers.html
-
-**Canucks re-sign Filip Hronek to 8-year, $58 million extension**\
-`The deal will keep Hronek in Vancouver through his age-34 campaign.`\
-https://nytimes.com/athletic/5574217/2024/06/18/filip-hronek-canucks-contract-extension/
 
