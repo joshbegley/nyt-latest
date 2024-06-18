@@ -4,7 +4,7 @@ https://nytimes.com/2024/06/17/us/politics/biden-immigration-spouses.html
 
 **After Delay, Top Democrats in Congress Sign Off on Sale of F-15 Jets to Israel**\
 `Senior Democrats who had taken the unusual step of holding out relented to pressure from the Biden administration and allowed a multibillion-dollar sale of weapons to move ahead.`\
-https://nytimes.com/2024/06/17/us/politics/top-democrats-sign-off-f-15-jets-israel.html
+https://nytimes.com/2024/06/17/us/politics/israel-f-15-jets-democrats.html
 
 **After 10 years in minors, Braves' Grant Holmes excels in MLB debut: 'Never give up'**\
 `The lifelong Braves fan grew up rooting for Chipper Jones and finally lived his dream: "There's always hope as long as you fight for it."`\
