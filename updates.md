@@ -1,3 +1,7 @@
+**Toyota Chairman, Re-Elected by Investors, Defends His Hands-On Role**\
+`Akio Toyoda, who stepped down as chief executive last year, had been criticized by some shareholders for continuing to dominate decision making at the automaker.`\
+https://nytimes.com/2024/06/18/business/toyota-akio-toyoda.html
+
 **Thaksin, Former Thai Premier, Indicted on Charges of Insulting Monarchy**\
 `The case against Thaksin Shinawatra was a reminder that the levers of power in Thailand remain firmly in the hands of the royalist-military establishment.`\
 https://nytimes.com/2024/06/18/world/asia/thaksin-thailand-indicted-monarchy.html
