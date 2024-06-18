@@ -1,3 +1,7 @@
+**Cubs suffer a tough loss after another blown save by Héctor Neris**\
+`Chicago's offense, which has been in disarray, gave the team a late lead, but then the fans at Wrigley were reminded of the flawed bullpen.`\
+https://nytimes.com/athletic/5571766/2024/06/18/cubs-hector-neris-blown-save/
+
 **More Doctors Walk Off the Job in South Korea**\
 `Physicians across the country staged a one-day strike, the latest escalation in a months-old protest against the government’s plan to train more doctors.`\
 https://nytimes.com/2024/06/18/world/asia/south-korea-doctor-strike.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5570444/2024/06/18/padres-phillies-yu-darvish-joe-m
 **2025 NBA title odds: Celtics open as favorites to repeat**\
 `Wedged between this year’s NBA Finals teams in the opening title odds are the Denver Nuggets at +750.`\
 https://nytimes.com/athletic/5571737/2024/06/18/2025-nba-title-odds-celtics-nuggets/
-
-**Endrick, Yamal and Paez: How do you manage children at major international tournaments?**\
-`These wonderkids carry weight of a nation on their shoulders before being old enough to drive, and while doing homework in training camps`\
-https://nytimes.com/athletic/5569829/2024/06/18/endrick-yamal-paez-euros-copa-america/
 

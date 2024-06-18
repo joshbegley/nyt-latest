@@ -1,3 +1,7 @@
+**Cubs suffer a tough loss after another blown save by Héctor Neris**\
+`Chicago's offense, which has been in disarray, gave the team a late lead, but then the fans at Wrigley were reminded of the flawed bullpen.`\
+https://nytimes.com/athletic/5571766/2024/06/18/cubs-hector-neris-blown-save/
+
 **More Doctors Walk Off the Job in South Korea**\
 `Physicians across the country staged a one-day strike, the latest escalation in a months-old protest against the government’s plan to train more doctors.`\
 https://nytimes.com/2024/06/18/world/asia/south-korea-doctor-strike.html
