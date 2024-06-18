@@ -1,3 +1,11 @@
+**A Relic of Los Angeles’s Anti-L.G.B.T.Q. Past Comes Down**\
+`The strange “no U-turn” signs along Griffith Park Boulevard in Silver Lake were erected in the 1990s to ward off gay men.`\
+https://nytimes.com/2024/06/18/us/los-angeles-lgbtq-signs.html
+
+**The T-Shirt’s Message Is Simple: ‘Everyone Watches Women’s Sports.’**\
+`A black-and-white shirt by the brand Togethxr has become the unofficial uniform of a breakthrough moment for women’s basketball.`\
+https://nytimes.com/2024/06/18/style/everyone-watches-womens-sports-shirt.html
+
 **Giants takeaways: Heliot Ramos gets All-Star support, Brett Wisely bares all**\
 `And how the team is treading water with essentially half of a five-man rotation, but is well positioned to make a second-half surge.`\
 https://nytimes.com/athletic/5572008/2024/06/18/giants-takeaways-heliot-ramos-all-star-brett-wisely/
