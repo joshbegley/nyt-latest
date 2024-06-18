@@ -1,3 +1,11 @@
+**Biden Courts Some Liberal Love on Immigration**\
+`By Farah Stockman`\
+https://nytimes.com/2024/06/18/opinion/biden-immigration-spouses-citizenship.html
+
+**The Briefing: Turkey 3 Georgia 1 - Guler does the spectacular, Kvaratskhelia overshadowed**\
+`Turkey scored two of the best goals seen yet at Euro 2024 as they beat Georgia in a hugely entertaining match`\
+https://nytimes.com/athletic/5568279/2024/06/18/turkey-3-georgia-1-guler-kvaratskhelia/
+
 **Two Wildfires in New Mexico Burn Out of Control and Force Evacuations**\
 `Thousands of people were evacuated from Ruidoso and nearby areas as of Tuesday morning.`\
 https://nytimes.com/2024/06/18/us/ruidoso-wildfire-new-mexico.html
