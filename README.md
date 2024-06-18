@@ -18,7 +18,7 @@ https://nytimes.com/2024/06/18/us/birds-mass-death-chicago-migration.html
 `Hello! Kylian Mbappe has just acquired the most famous nose in football.`\
 https://nytimes.com/athletic/5572133/2024/06/18/mbappe-nose-copa-america-group-guides/
 
-**Anouk Aimée, Enigmatic Star of ‘A Man and a Woman,’ Is Dead at 92**\
+**Anouk Aimée, Enigmatic Star of ‘A Man and a Woman,’ Dies at 92**\
 `The French actress had already made an impression in international film when she appeared in Claude Lelouch’s 1966 romance, a role that earned her an Oscar nomination.`\
 https://nytimes.com/2024/06/18/obituaries/anouk-aimee-dead.html
 
