@@ -1,3 +1,7 @@
+**You Talkin’ Like Him? A Convention Lets De Niro Fans Get in on the Act.**\
+`Participants at De Niro Con in Tribeca could talk like Travis Bickle, shadowbox like Jake LaMotta or get a tattoo like Max Cady. Yes, a real tattoo.`\
+https://nytimes.com/2024/06/18/movies/robert-de-niro-fan-convention.html
+
 **Cricket is the USA's new favourite sport - but what do googly, Mankad and cow corner mean?**\
 `Cricket is a magnificent sport that is frequently overcomplicated – so The Athletic is here to help new fans in the States...`\
 https://nytimes.com/athletic/5570690/2024/06/18/cricket-us-t20-world-cup/

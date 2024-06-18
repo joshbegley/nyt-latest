@@ -1,3 +1,7 @@
+**You Talkin’ Like Him? A Convention Lets De Niro Fans Get in on the Act.**\
+`Participants at De Niro Con in Tribeca could talk like Travis Bickle, shadowbox like Jake LaMotta or get a tattoo like Max Cady. Yes, a real tattoo.`\
+https://nytimes.com/2024/06/18/movies/robert-de-niro-fan-convention.html
+
 **Cricket is the USA's new favourite sport - but what do googly, Mankad and cow corner mean?**\
 `Cricket is a magnificent sport that is frequently overcomplicated – so The Athletic is here to help new fans in the States...`\
 https://nytimes.com/athletic/5570690/2024/06/18/cricket-us-t20-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/18/business/fisker-ev-bankruptcy.html
 **Why Longer Heat Waves Are So Dangerous**\
 `Researchers have found that longer-lasting heat waves can be deadlier and can pose unique health risks.`\
 https://nytimes.com/2024/06/18/climate/long-heat-waves-health-risk.html
-
-**Why All the Thighs?**\
-`Don’t worry, we’ve got plenty of excellent chicken breast recipes, too: honey garlic chicken, chicken piccata and green masala chicken, to name a few.`\
-https://nytimes.com/2024/06/18/dining/chicken-breast-recipes.html
 

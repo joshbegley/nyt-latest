@@ -1,3 +1,11 @@
+**Neil Goldschmidt, Portland Mayor Tarnished by Scandal, Dies at 83**\
+`While he was reviving Portland, Ore., as a vibrant, pedestrian-friendly city, he was also sexually abusing a teenage girl, as he later admitted.`\
+https://nytimes.com/2024/06/18/us/politics/neil-goldschmidt-dead.html
+
+**Van Gundy agrees to be Clippers' lead assistant**\
+`Van Gundy, 62, spent the 2024 season as a senior consultant for the Boston Celtics.`\
+https://nytimes.com/athletic/5572428/2024/06/18/jeff-van-gundy-clippers-assistant-coach/
+
 **You Talkin’ Like Him? A Convention Lets De Niro Fans Get in on the Act.**\
 `Participants at De Niro Con in Tribeca could talk like Travis Bickle, shadowbox like Jake LaMotta or get a tattoo like Max Cady. Yes, a real tattoo.`\
 https://nytimes.com/2024/06/18/movies/robert-de-niro-fan-convention.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5573034/2024/06/18/al-horford-celtics-nba-return/
 **Fever-Sky on CBS is most-watched WNBA game in 23 years**\
 `CBS' telecast Sunday averaged 2.25 million viewers and peaked at close to 3 million viewers.`\
 https://nytimes.com/athletic/5572947/2024/06/18/fever-sky-wnba-tv-ratings/
-
-**E.V. Maker Fisker Files for Bankruptcy as Cash Runs Short**\
-`The company became the latest electric vehicle start-up to fail to meet investors’ expectations after a high-profile public debut.`\
-https://nytimes.com/2024/06/18/business/fisker-ev-bankruptcy.html
-
-**Why Longer Heat Waves Are So Dangerous**\
-`Researchers have found that longer-lasting heat waves can be deadlier and can pose unique health risks.`\
-https://nytimes.com/2024/06/18/climate/long-heat-waves-health-risk.html
 
