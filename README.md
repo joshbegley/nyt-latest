@@ -1,3 +1,7 @@
+**Everton in advanced talks over deal for Villa's Iroegbunam**\
+`Everton are in advanced talks to sign midfielder Tim Iroegbunam from Aston Villa.`\
+https://nytimes.com/athletic/5572607/2024/06/18/everton-transfer-tim-iroegbunam/
+
 **Putin Will Head to North Korea as Ukraine War Redefines Ties With Kim**\
 `President Vladimir V. Putin’s military needs have prompted the Kremlin to strengthen ties with the authoritarian government of Kim Jong-un, which is well stocked in munitions.`\
 https://nytimes.com/2024/06/18/world/europe/putin-north-korea-kim.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/18/us/los-angeles-lgbtq-signs.html
 **The T-Shirt’s Message Is Simple: ‘Everyone Watches Women’s Sports.’**\
 `A black-and-white shirt by the brand Togethxr has become the unofficial uniform of a breakthrough moment for women’s basketball.`\
 https://nytimes.com/2024/06/18/style/everyone-watches-womens-sports-shirt.html
-
-**Giants takeaways: Heliot Ramos gets All-Star support, Brett Wisely bares all**\
-`And how the team is treading water with essentially half of a five-man rotation, but is well positioned to make a second-half surge.`\
-https://nytimes.com/athletic/5572008/2024/06/18/giants-takeaways-heliot-ramos-all-star-brett-wisely/
 
