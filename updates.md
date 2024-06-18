@@ -18,6 +18,11 @@ https://nytimes.com/athletic/5574075/2024/06/18/mlb-diamond-sports-group-contrac
 `\
 https://nytimes.com/athletic/5574075/2024/06/18/mlb-diamond-sports-group-contract-request/
 
+**Cable-company lawyer says dealing with MLB 'like talking to a brick wall'**\
+`A federal judge rebuffed MLB in its quest to review contracts between cable companies and the bankrupt broadcaster, Diamond Sports Group.
+`\
+https://nytimes.com/athletic/5574075/2024/06/18/mlb-diamond-sports-group-contract-request/
+
 **Arda Guler: Choir-boy looks, thunderous foot and the hearts of Ancelotti, Montella and Turkey**\
 `At 19, the Real Madrid player came of age at Euro 2024 with a thunderous goal and a show of promise that could take Turkey a long way`\
 https://nytimes.com/athletic/5573923/2024/06/18/arda-guler-ancelotti-turkey/
