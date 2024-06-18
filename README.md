@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘To Die with Perfect Abs’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/06/18/style/tiny-modern-love-stories-to-die-with-perfect-abs.html
+
 **Massachusetts Emergency 911 System Goes Down Statewide**\
 `Officials urged residents to call local police or fire stations to seek help. It was not immediately clear what caused the outage or how long it would last.`\
 https://nytimes.com/2024/06/18/us/massachusetts-911-outage.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5573751/2024/06/18/rangers-barclay-goodrow-waivers/
 **Sarah Mandel, Therapist Who Told Her ‘Trauma Narrative,’ Dies at 42**\
 `She received a diagnosis of Stage 4 breast cancer late in her second pregnancy and described her experience in a book, “Little Earthquakes: A Memoir.”`\
 https://nytimes.com/2024/06/18/us/sarah-mandel-dead.html
-
-**USC-Ole Miss home-and-home series canceled**\
-`The series was announced in May 2020, a few months after Ole Miss hired Kiffin as coach.`\
-https://nytimes.com/athletic/5573630/2024/06/18/usc-ole-miss-series-canceled/
 
