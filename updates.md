@@ -1,3 +1,7 @@
+**Hidden Under George Washington’s Home: 35 Glass Bottles of Cherries**\
+`Archaeologists discovered the glass bottles in the cellar during a restoration project.`\
+https://nytimes.com/2024/06/18/us/george-washington-mount-vernon-cherries.html
+
 **Copa America 2024 squad guides: Everything you need to know about the teams**\
 `Get the lowdown on every team at Copa America 2024 with The Athletic's series of in-depth squad guides`\
 https://nytimes.com/athletic/5572337/2024/06/18/copa-america-2024-squad-guides/
