@@ -1,3 +1,7 @@
+**France's altered defensive shape worked against Austria - but game state a crucial factor**\
+`Would Deschamps' tweaked setup work against stronger opponents with better individual qualities and diverse attacking ideas?`\
+https://nytimes.com/athletic/5571895/2024/06/18/france-austria-euro-2024-analysis/
+
 **Boeing’s Bumpy Ride Isn’t Over**\
 `Dave Calhoun, the embattled company’s C.E.O., heads to Capitol Hill amid new whistle-blower accusations and questions over succession.`\
 https://nytimes.com/2024/06/18/business/dealbook/boeing-calhoun-senate-hearing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5571269/2024/06/18/raiders-offense-zamir-white-bowe
 **The Business of Football at Euro 2024: Planes to Qatar, delayed trains and Chinese automobiles**\
 `The first week of the European Championship has seen Deutsche Bahn, global ticket sales and football's cluttered calendar in the spotlight`\
 https://nytimes.com/athletic/5570252/2024/06/18/business-uefa-euro2024-qatar-tickets/
-
-**'You got a dog': Florida State's Renardo Green, Tatum Bethune bring tenacity to the 49ers**\
-`The former Florida State defenders look to team up again with the 49ers and bring reputations as strong tacklers.`\
-https://nytimes.com/athletic/5532531/2024/06/18/49ers-florida-state-renardo-green-tatum-bethune/
 
