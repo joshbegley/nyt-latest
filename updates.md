@@ -1,3 +1,7 @@
+**Trump Wasn’t Going to Stay in Milwaukee. Then Reporters Asked.**\
+`The Republican convention will be held in swing-state Wisconsin’s largest city. The nominee, however, had planned to stay his own hotel in Chicago, until members of the news media began inquiring.`\
+https://nytimes.com/2024/06/18/us/politics/trump-milwaukee-rnc.html
+
 **More Black and Latino Students Admitted to New York’s Elite High Schools**\
 `The percentage of Black and Latino students in the eight schools increased to 12 percent, the highest since 2013, but still far below the overall percentage of those students in schools.`\
 https://nytimes.com/2024/06/18/nyregion/nyc-specialized-high-school-admissions-black-and-latino-students.html
