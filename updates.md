@@ -1,5 +1,9 @@
 **Home Collapses in Syracuse, Injuring at Least 10, Officials Say**\
 `Firefighters were still searching for potential victims trapped in the rubble. An explosion was reported and an occupied car was found buried inside.`\
+https://nytimes.com/2024/06/18/nyregion/syracuse-house-collapse.html
+
+**Home Collapses in Syracuse, Injuring at Least 10, Officials Say**\
+`Firefighters were still searching for potential victims trapped in the rubble. An explosion was reported and an occupied car was found buried inside.`\
 https://nytimes.com/2024/06/18/us/syracuse-house-collapse.html
 
 **How Capitalism Went Off the Rails**\
