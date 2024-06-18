@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5573531/2024/06/18/andy-murray-1000-matches-atp/
 `Congressional Budget Office projections released on Tuesday show a grim fiscal backdrop ahead of tax and debt limit fights.`\
 https://nytimes.com/2024/06/18/us/politics/us-debt-economy.html
 
-**How Is Israel’s Daily Pause in Combat in Part of Gaza Working**\
+**Israel’s Daily Combat Pause in Part of Gaza: How Is It Working?**\
 `The new practice is supposed to make it easier and safer to distribute desperately needed aid around Gaza. Aid groups are hopeful, but say more is needed.`\
 https://nytimes.com/2024/06/18/world/middleeast/israel-pause-gaza-aid.html
 
