@@ -1,3 +1,7 @@
+**U.S.D.A. Suspends Avocado Inspections in Mexico, Citing Security Concerns**\
+`The move, prompted by fears for agency workers’ safety, could eventually affect U.S. avocado supplies if the inspections are not resumed.`\
+https://nytimes.com/2024/06/17/world/americas/mexico-avocado-inspections-suspended.html
+
 **After Delay, Top Democrats in Congress Sign Off on Sale of F-15 Jets to Israel**\
 `Senior Democrats who had taken the unusual step of holding out relented to pressure from the Biden administration and allowed a multibillion-dollar sale of weapons to move ahead.`\
 https://nytimes.com/2024/06/17/us/politics/israel-f-15-jets-democrats.html
