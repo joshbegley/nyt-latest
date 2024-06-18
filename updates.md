@@ -1,3 +1,7 @@
+**Twins Triple-A takeaways: Matt Wallner, Brooks Lee, David Festa wait their turns**\
+`It's only a matter of time before the Twins turn to Triple-A St. Paul for reinforcements with Wallner, Lee and Festa looking ready.`\
+https://nytimes.com/athletic/5567978/2024/06/18/twins-triple-a-matt-wallner-brooks-lee-david-festa/
+
 **Facundo Tello: Why is an Argentinian refereeing a Euro 2024 game?**\
 `The 42-year-old will make history when he takes charge of Turkey vs Georgia on Tuesday`\
 https://nytimes.com/athletic/5570270/2024/06/18/facundo-tello-who-euro-2024/
