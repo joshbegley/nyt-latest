@@ -1,3 +1,7 @@
+**Two Wildfires in New Mexico Burn Out of Control and Force Evacuations**\
+`Thousands of people were evacuated from Ruidoso and nearby areas as of Tuesday morning.`\
+https://nytimes.com/2024/06/18/us/ruidoso-wildfire-new-mexico.html
+
 **Transcript: Ezra Klein Interviews Yanna Krupnikov**\
 `The June 18, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/06/18/podcasts/transcript-ezra-klein-interviews-yanna-krupnikov.html
