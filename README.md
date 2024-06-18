@@ -1,3 +1,11 @@
+**The Pulse: Why this Celtics title *isn't* boring**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5571170/2024/06/18/celtics-mavericks-nba-title-the-pulse/
+
+**Which Premier League team has the toughest start to the 2024-25 season?**\
+`After fixtures were released on Tuesday morning, we have analysed which team has the toughest start to the new campaign`\
+https://nytimes.com/athletic/5572100/2024/06/18/premier-league-toughest-start-2024-25/
+
 **President Biden’s Distrust Challenge**\
 `We explain how one set of voters may decide the 2024 election.`\
 https://nytimes.com/2024/06/18/briefing/president-bidens-distrust-challenge.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5554481/2024/06/18/winnipeg-jets-mailbag-brad-lambe
 **Three Cardinals takeaways: Players trending up as St. Louis keeps rolling**\
 `Pedro Pagés makes his case for more playing time, Miles Mikolas finds his groove and more in this week's takeaways. `\
 https://nytimes.com/athletic/5570823/2024/06/18/cardinals-takeaways-pedro-pages/
-
-**Winners and losers of NFL offseason: Are Bills, Cowboys headed in wrong direction?**\
-`As the league’s players, coaches and front offices begin their summer break, some rosters are in better shape than others.`\
-https://nytimes.com/athletic/5570133/2024/06/18/nfl-offseason-2024-winners-losers/
-
-**Pickman: WNBA moving high profile game to accommodate NBA Draft is another self-inflicted fumble**\
-`The decision is another sign that the NBA holds the cards in its relationship with the WNBA.`\
-https://nytimes.com/athletic/5571949/2024/06/18/wnba-commissioners-cup-barclays-center-nba-draft-move/
 
