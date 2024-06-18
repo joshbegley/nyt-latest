@@ -1,3 +1,7 @@
+**Senate Republicans Block Bump-Stock Ban**\
+`Democrats failed in their effort to override last week’s Supreme Court ruling with legislation, but saw some political benefits to the clash.`\
+https://nytimes.com/2024/06/18/us/bump-stock-ban-senate.html
+
 **California Joins Growing National Effort to Ban Smartphone Use in Schools**\
 `Gov. Gavin Newsom called for a statewide ban as states and large school districts have pursued similar prohibitions to prevent disruption and cyberbullying.`\
 https://nytimes.com/2024/06/18/us/california-newsom-smartphone-ban.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/18/world/europe/georgia-euro-2024.html
 **Nvidia Becomes Most Valuable Public Company, Topping Microsoft**\
 `The chip maker’s stock price has jumped over the last year thanks to its stranglehold on the market for the chips needed to build A.I. systems.`\
 https://nytimes.com/2024/06/18/technology/nvidia-most-valuable-company.html
-
-**Man Pleads Guilty in Chinatown Killing of Young Woman He Followed**\
-`Assamad Nash fatally stabbed Christina Yuna Lee in her apartment. The killing raised fears at a time of anti-Asian attacks.`\
-https://nytimes.com/2024/06/18/nyregion/suspect-christina-yuna-lee-murder-guilty.html
 
