@@ -26,7 +26,7 @@ https://nytimes.com/2024/06/18/world/middleeast/israel-pause-gaza-aid.html
 `Revisiting the event’s memorable set list, 57 years later.`\
 https://nytimes.com/2024/06/18/arts/music/amplifier-newsletter-monterey-pop-festival.html
 
-**The Briefing: Turkey 3 Georgia 1 - Guler does the spectacular, Kvaratskhelia overshadowed -**\
+**The Briefing: Turkey 3 Georgia 1 - Guler does the spectacular, Kvaratskhelia overshadowed**\
 `Turkey scored two of the best goals seen yet at Euro 2024 as they beat Georgia in a hugely entertaining match`\
 https://nytimes.com/athletic/5568279/2024/06/18/turkey-3-georgia-1-guler-kvaratskhelia/
 
