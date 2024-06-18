@@ -1,3 +1,8 @@
+**Cable company lawyer says dealing with MLB 'like talking to a brick wall'**\
+`A federal judge rebuffed MLB in its quest to review contracts between cable companies and the bankrupt broadcaster, Diamond Sports Group.
+`\
+https://nytimes.com/athletic/5574075/2024/06/18/mlb-diamond-sports-group-contract-request/
+
 **Lane Kiffin sounds off on eliminating walk-ons**\
 `There has been a lot of discussion behind the scenes, with coaches making their feelings clear: The don't want to eliminate walk-ons.`\
 https://nytimes.com/athletic/5574084/2024/06/18/lane-kiffin-house-v-ncaa-walk-ons/
