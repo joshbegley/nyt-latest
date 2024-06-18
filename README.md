@@ -10,7 +10,7 @@ https://nytimes.com/2024/06/18/briefing/biden-spouse-migrant-protections-heat-wa
 `President Biden announced an executive action to protect about 500,000 undocumented spouses of U.S. citizens from being deported and provide them with a pathway to citizenship.`\
 https://nytimes.com/video/us/politics/100000009529036/biden-legal-protections-undocumented-spouses.html
 
-**The northeast begins to sweat as a long heat wave arrives.**\
+**The Northeast begins to sweat as a long heat wave arrives.**\
 `The unusually early heat wave was just beginning in much of the Northeast, which will continue to swelter on Wednesday.`\
 https://nytimes.com/live/2024/06/18/weather/heat-wave-news/the-northeast-begins-to-sweat-as-a-long-heat-wave-arrives
 
@@ -22,7 +22,7 @@ https://nytimes.com/athletic/5573923/2024/06/18/arda-guler-ancelotti-turkey/
 `The second round of Euro 2024 group stage matches start on Wednesday with host Germany taking on Hungary and Switzerland facing Scotland.`\
 https://nytimes.com/athletic/5573544/2024/06/18/euro-2024-odds-germany-hungary/
 
-**Cable-company lawyer says dealing with MLB 'like talking to a brick wall'**\
+**Cable company lawyer says dealing with MLB 'like talking to a brick wall'**\
 `A federal judge rebuffed MLB in its quest to review contracts between cable companies and the bankrupt broadcaster, Diamond Sports Group.
 `\
 https://nytimes.com/athletic/5574075/2024/06/18/mlb-diamond-sports-group-contract-request/

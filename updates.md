@@ -1,3 +1,24 @@
+**Astros place Justin Verlander on 15-day IL with 'neck discomfort'**\
+`Another blow to Houston's rotation also casts doubt about whether Verlander will reach the innings threshold for his 2025 vesting option.`\
+https://nytimes.com/athletic/5574028/2024/06/18/astros-justin-verlander-neck-injury/
+
+**Biden Granted Protections for Undocumented Spouses**\
+`Also, the U.S. pier for Gaza aid is failing. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/06/18/briefing/biden-spouse-migrant-protections-heat-wave-east.html
+
+**Biden Announces New Protections for Undocumented Immigrants**\
+`President Biden announced an executive action to protect about 500,000 undocumented spouses of U.S. citizens from being deported and provide them with a pathway to citizenship.`\
+https://nytimes.com/video/us/politics/100000009529036/biden-legal-protections-undocumented-spouses.html
+
+**The northeast begins to sweat as a long heat wave arrives.**\
+`The unusually early heat wave was just beginning in much of the Northeast, which will continue to swelter on Wednesday.`\
+https://nytimes.com/live/2024/06/18/weather/heat-wave-news/the-northeast-begins-to-sweat-as-a-long-heat-wave-arrives
+
+**Cable-company lawyer says dealing with MLB 'like talking to a brick wall'**\
+`A federal judge rebuffed MLB in its quest to review contracts between cable companies and the bankrupt broadcaster, Diamond Sports Group.
+`\
+https://nytimes.com/athletic/5574075/2024/06/18/mlb-diamond-sports-group-contract-request/
+
 **Cable-company lawyer says dealing with MLB 'like talking to a brick wall'**\
 `A federal judge rebuffed MLB in its quest to review contracts between cable companies and the bankrupt broadcaster, Diamond Sports Group.
 `\
