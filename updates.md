@@ -1,3 +1,20 @@
+**Lane Kiffin sounds off on eliminating walk-ons**\
+`There has been a lot of discussion behind the scenes, with coaches making their feelings clear: The don't want to eliminate walk-ons.`\
+https://nytimes.com/athletic/5574084/2024/06/18/lane-kiffin-house-v-ncaa-walk-ons/
+
+**Euro 2024 day five: Portugal just about up and running as Ronaldo roadshow continues**\
+`Day five of Euro 2024 saw the conclusion of the first round of matches - the last four teams to make their tournament bow did not disappoint`\
+https://nytimes.com/athletic/5572601/2024/06/18/euro-2024-day-five-portugal-ronaldo/
+
+**The Northeast begins to sweat as a long heat wave arrives.**\
+`The unusually early heat wave was just beginning in much of the Northeast, which will continue to swelter on Wednesday.`\
+https://nytimes.com/live/2024/06/18/weather/heat-wave-news/the-northeast-begins-to-sweat-as-a-long-heat-wave-arrives
+
+**Cable company lawyer says dealing with MLB 'like talking to a brick wall'**\
+`A federal judge rebuffed MLB in its quest to review contracts between cable companies and the bankrupt broadcaster, Diamond Sports Group.
+`\
+https://nytimes.com/athletic/5574075/2024/06/18/mlb-diamond-sports-group-contract-request/
+
 **Cable-company lawyer says dealing with MLB 'like talking to a brick wall'**\
 `A federal judge rebuffed MLB in its quest to review contracts between cable companies and the bankrupt broadcaster, Diamond Sports Group.
 `\
