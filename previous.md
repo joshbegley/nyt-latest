@@ -1,3 +1,7 @@
+**President Biden’s Distrust Challenge**\
+`We explain how one set of voters may decide the 2024 election.`\
+https://nytimes.com/2024/06/18/briefing/president-bidens-distrust-challenge.html
+
 **Twins Triple-A takeaways: Matt Wallner, Brooks Lee, David Festa wait their turns**\
 `It's only a matter of time before the Twins turn to Triple-A St. Paul for reinforcements with Wallner, Lee and Festa looking ready.`\
 https://nytimes.com/athletic/5567978/2024/06/18/twins-triple-a-matt-wallner-brooks-lee-david-festa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5570133/2024/06/18/nfl-offseason-2024-winners-loser
 **Pickman: WNBA moving high profile game to accommodate NBA Draft is another self-inflicted fumble**\
 `The decision is another sign that the NBA holds the cards in its relationship with the WNBA.`\
 https://nytimes.com/athletic/5571949/2024/06/18/wnba-commissioners-cup-barclays-center-nba-draft-move/
-
-**After 50 years, the Seattle Sounders are looking to grow in new ways**\
-`As the Sounders aim for cost-effective growth, they consider a move to a soccer-specific stadium`\
-https://nytimes.com/athletic/5571564/2024/06/18/seattle-sounders-anniversary-reign/
 
