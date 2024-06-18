@@ -1,3 +1,7 @@
+**Two Wildfires in New Mexico Burn Out of Control and Force Evacuations**\
+`Thousands of people were evacuated from Ruidoso and nearby areas as of Tuesday morning.`\
+https://nytimes.com/2024/06/18/us/ruidoso-wildfire-new-mexico.html
+
 **Transcript: Ezra Klein Interviews Yanna Krupnikov**\
 `The June 18, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/06/18/podcasts/transcript-ezra-klein-interviews-yanna-krupnikov.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/18/us/politics/gaza-pier-israel-aid.html
 **On Immigration, Biden Attempts to Replicate a Powerful Obama Moment**\
 `The president’s planned announcement to expand legal protections for some undocumented spouses of American citizens evoked Barack Obama’s move to help young immigrants in 2012.`\
 https://nytimes.com/2024/06/18/us/politics/biden-immigration-announcement-obama.html
-
-**Man United exploring deal to sign Zirkzee**\
-`Manchester United are exploring a deal to sign Dutch striker Joshua Zirkzee from Bologna.`\
-https://nytimes.com/athletic/5572588/2024/06/18/man-united-joshua-zirkzee-transfer/
 
