@@ -1,3 +1,11 @@
+**Nine unrestricted free agents the Canucks could target to bolster their top 6**\
+`Adding another top-six forward into the mix will be one of the key tasks for Canucks hockey operations this summer.`\
+https://nytimes.com/athletic/5568992/2024/06/18/canucks-free-agent-targets-forwards/
+
+**The Windup: Yankees' best about to get better; Astros too late on Abreu**\
+`Plus: A big-league debut 10 years in the making. `\
+https://nytimes.com/athletic/5573390/2024/06/18/yankees-injuries-astros-jose-abreu-the-windup/
+
 **Team USA reveals opening, closing ceremony outfits for Paris Games**\
 `This is Ralph Lauren's ninth time designing Team USA's ceremony outfits.`\
 https://nytimes.com/athletic/5573268/2024/06/18/usa-olympics-outfits-opening-ceremony/
