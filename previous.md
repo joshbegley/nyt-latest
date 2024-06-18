@@ -1,3 +1,15 @@
+**The Election of Magical Thinking**\
+`Indulging in electoral illusions is dangerous.`\
+https://nytimes.com/live/2024/06/12/opinion/thepoint/biden-vice-president-step-down
+
+**Split by Politics and Protests, Georgia Lets Soccer Carry the Flag**\
+`The opposition in Georgia accused the government of cozying up to Russia. Can playing in the Euros make the nation feel more like a part of Europe?`\
+https://nytimes.com/2024/06/18/world/europe/georgia-euro-2024.html
+
+**Nvidia Becomes Most Valuable Public Company, Topping Microsoft and Apple**\
+`The chip maker’s stock price has jumped over the last year thanks to its stranglehold on the market for the chips needed to build A.I. systems.`\
+https://nytimes.com/2024/06/18/technology/nvidia-most-valuable-company.html
+
 **Man Pleads Guilty in Chinatown Killing of Young Woman He Followed**\
 `Assamad Nash fatally stabbed Christina Yuna Lee in her apartment. The killing raised fears at a time of anti-Asian attacks.`\
 https://nytimes.com/2024/06/18/nyregion/suspect-christina-yuna-lee-murder-guilty.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/18/style/tiny-modern-love-stories-to-die-with-perfec
 **Massachusetts Emergency 911 System Temporarily Goes Down Statewide**\
 `The system was down for nearly two hours, when officials urged residents to call local police or fire stations to seek help. It was not clear what caused the outage.`\
 https://nytimes.com/2024/06/18/us/massachusetts-911-outage.html
-
-**The Celtics Have 18 Championships. The Lakers? 17. (And Maybe One More.)**\
-`The Celtics won their record-breaking 18th championship this week, breaking a tie with the Los Angeles Lakers. But what if they’re still tied?`\
-https://nytimes.com/2024/06/18/sports/celtics-lakers-nba-champions.html
-
-**Johnson signs up McLaughlin-Levrone to new Grand Slam Track venture**\
-`Johnson has secured more than $30 million in financial commitments from investors and strategic partners to launch the league.`\
-https://nytimes.com/athletic/5573806/2024/06/18/michael-johnson-grand-slam-track/
-
-**Triple-A games to start fully using automated ball-strike challenge system**\
-`Starting next week, the league will use Triple-A games to try to determine what type of challenge system works best. `\
-https://nytimes.com/athletic/5573707/2024/06/18/automated-ball-strike-challenge-system-triple-a/
 

@@ -1,3 +1,15 @@
+**The Election of Magical Thinking**\
+`Indulging in electoral illusions is dangerous.`\
+https://nytimes.com/live/2024/06/12/opinion/thepoint/biden-vice-president-step-down
+
+**Split by Politics and Protests, Georgia Lets Soccer Carry the Flag**\
+`The opposition in Georgia accused the government of cozying up to Russia. Can playing in the Euros make the nation feel more like a part of Europe?`\
+https://nytimes.com/2024/06/18/world/europe/georgia-euro-2024.html
+
+**Nvidia Becomes Most Valuable Public Company, Topping Microsoft and Apple**\
+`The chip maker’s stock price has jumped over the last year thanks to its stranglehold on the market for the chips needed to build A.I. systems.`\
+https://nytimes.com/2024/06/18/technology/nvidia-most-valuable-company.html
+
 **Johnson signs up McLaughlin-Levrone to new Grand Slam Track venture**\
 `Johnson has secured more than $30 million in financial commitments from investors and strategic partners to launch the league.`\
 https://nytimes.com/athletic/5573806/2024/06/18/michael-johnson-grand-slam-track/
