@@ -1,3 +1,7 @@
+**Luka Dončić failed at the highest level. Now, he must learn from it**\
+`As Luka Dončić's teammate Kyrie Irving put it, falling short "can inspire you beyond measure." Dončić must now take on this burden.`\
+https://nytimes.com/athletic/5571590/2024/06/18/luka-doncic-mavericks-nba-finals/
+
 **Elden Ring: Shadow of the Erdtree Review: Faith, Meet Futility**\
 `A new tier of knights, monsters and freaks often exceeds the most demanding late-game adversaries of Elden Ring. Belief in yourself will be stretched to its limit.`\
 https://nytimes.com/2024/06/18/arts/elden-ring-shadow-of-erdtree.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5572607/2024/06/18/everton-transfer-tim-iroegbunam/
 **Putin Will Head to North Korea as Ukraine War Redefines Ties With Kim**\
 `President Vladimir V. Putin’s military needs have prompted the Kremlin to strengthen ties with the authoritarian government of Kim Jong-un, which is well stocked in munitions.`\
 https://nytimes.com/2024/06/18/world/europe/putin-north-korea-kim.html
-
-**Hidden Under George Washington’s Home: 35 Glass Bottles of Cherries**\
-`Archaeologists discovered the glass bottles in the cellar during a restoration project.`\
-https://nytimes.com/2024/06/18/us/george-washington-mount-vernon-cherries.html
 

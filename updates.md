@@ -1,3 +1,7 @@
+**Luka Dončić failed at the highest level. Now, he must learn from it**\
+`As Luka Dončić's teammate Kyrie Irving put it, falling short "can inspire you beyond measure." Dončić must now take on this burden.`\
+https://nytimes.com/athletic/5571590/2024/06/18/luka-doncic-mavericks-nba-finals/
+
 **Elden Ring: Shadow of the Erdtree Review: Faith, Meet Futility**\
 `A new tier of knights, monsters and freaks often exceeds the most demanding late-game adversaries of Elden Ring. Belief in yourself will be stretched to its limit.`\
 https://nytimes.com/2024/06/18/arts/elden-ring-shadow-of-erdtree.html
