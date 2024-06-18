@@ -1,3 +1,11 @@
+**How Capitalism Went Off the Rails**\
+`Easy money destroyed the basis for productive, competitive markets.`\
+https://nytimes.com/2024/06/18/opinion/capitalism-inflation.html
+
+**She Walked in Beauty: The Subtle Seductiveness of Anouk Aimée**\
+`The French star created characters who could be fantasies or enigmas, but they always intrigued, even when she was miscast in Hollywood.`\
+https://nytimes.com/2024/06/18/movies/anouk-aimee-career.html
+
 **Amazon Is Fined Nearly $6 Million Over Warehouse Work Quotas**\
 `California officials cited failures to disclose productivity requirements at two locations. The company said it would appeal.`\
 https://nytimes.com/2024/06/18/business/economy/amazon-california-productivity-quota.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5574083/2024/06/18/blues-scott-perunovich-contract-
 **Texas Border and Pittsburgh Swelter Under Triple-Digit Heat**\
 `Though people in Texas are used to sweltering summer temperatures, residents in Pittsburgh are less acclimated.`\
 https://nytimes.com/2024/06/18/weather/texas-pittsburgh-heat-wave.html
-
-**Lane Kiffin sounds off on eliminating walk-ons**\
-`There has been a lot of discussion behind the scenes, with coaches making their feelings clear: They don't want to eliminate walk-ons.`\
-https://nytimes.com/athletic/5574084/2024/06/18/lane-kiffin-house-v-ncaa-walk-ons/
-
-**Astros place Justin Verlander on 15-day IL with 'neck discomfort'**\
-`Another blow to Houston's rotation also casts doubt about whether Verlander will reach the innings threshold for his 2025 vesting option.`\
-https://nytimes.com/athletic/5574028/2024/06/18/astros-justin-verlander-neck-injury/
 
