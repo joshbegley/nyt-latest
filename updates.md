@@ -1,3 +1,7 @@
+**‘A Big Step Back’: In Ukraine, Concerns Mount Over Narrowing Press Freedoms**\
+`Journalists say they are subject to increasing restrictions and pressure from the government of President Volodymyr Zelensky, adding that the measures go beyond wartime security needs.`\
+https://nytimes.com/2024/06/18/world/europe/ukraine-press-freedom.html
+
 **Kenya Braces for Major Protests Over Proposed Tax Hikes**\
 `Activists have called on Kenyans to occupy Parliament in opposition to a new finance bill that is likely to raise the cost of living for many people by increasing taxes on a range of goods and services.`\
 https://nytimes.com/2024/06/18/world/africa/kenya-braces-for-major-protests-over-proposed-tax-hikes.html

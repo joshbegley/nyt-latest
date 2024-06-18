@@ -1,3 +1,7 @@
+**‘A Big Step Back’: In Ukraine, Concerns Mount Over Narrowing Press Freedoms**\
+`Journalists say they are subject to increasing restrictions and pressure from the government of President Volodymyr Zelensky, adding that the measures go beyond wartime security needs.`\
+https://nytimes.com/2024/06/18/world/europe/ukraine-press-freedom.html
+
 **Kenya Braces for Major Protests Over Proposed Tax Hikes**\
 `Activists have called on Kenyans to occupy Parliament in opposition to a new finance bill that is likely to raise the cost of living for many people by increasing taxes on a range of goods and services.`\
 https://nytimes.com/2024/06/18/world/africa/kenya-braces-for-major-protests-over-proposed-tax-hikes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/18/business/economy/amazon-labor-union-teamsters.htm
 **The System Isn’t Built for Jan. 6, and Neither Are We**\
 `It’s not as if anybody needs a trial to form an opinion about the events of that day.`\
 https://nytimes.com/2024/06/18/opinion/trial-jan-6.html
-
-**Biden Gives Legal Protections to Undocumented Spouses of U.S. Citizens**\
-`The new policy is one of the most significant actions to protect immigrants in years. It affects about 500,000 people who have been living in the United States for more than a decade.`\
-https://nytimes.com/2024/06/18/us/politics/biden-legal-protections-undocumented-spouses.html
 
