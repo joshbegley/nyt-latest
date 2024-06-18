@@ -1,3 +1,11 @@
+**Angela Bofill, R&B Hitmaker With a Silky Voice, Dies at 70**\
+`Starting in the late 1970s, she scored multiple hit singles, including “This Time I’ll Be Sweeter” and “I Try,” but multiple strokes in the 2000s ended her career.`\
+https://nytimes.com/2024/06/17/arts/music/angela-bofill-dead.html
+
+**But It’s Only June: An Early Blast of Heat Grips Much of the U.S.**\
+`Heat overwhelmed cities across the Midwest and was headed to the Northeast. High temperatures are expected to linger for days.`\
+https://nytimes.com/2024/06/17/us/heat-wave-midwest.html
+
 **War Crimes Hearing Gives Public Virtual Look Inside a Secret C.I.A. Prison**\
 `Years after the agency’s “black site” program was shut down, details are slowly emerging during trials at Guantánamo Bay.`\
 https://nytimes.com/2024/06/17/us/politics/hearing-hidden-secret-cia-prison.html
