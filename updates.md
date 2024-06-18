@@ -1,3 +1,7 @@
+**North Korea Has Lost ‘Many’ Troops to Mines in DMZ, South Says**\
+`North Korean soldiers have been sent into the mine-strewn buffer zone to do construction work since November, the South Korean military said on Tuesday.`\
+https://nytimes.com/2024/06/18/world/asia/north-korea-loses-troops-dmz.html
+
 **Thailand’s Legislature Approves Same-Sex Marriage Law**\
 `The bill, which needs the king’s endorsement to become law, underscores Thailand’s status as a relative haven in Asia for L.G.B.T.Q. people.`\
 https://nytimes.com/2024/06/18/world/asia/thailand-same-sex-marriage-vote.html
