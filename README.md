@@ -1,3 +1,11 @@
+**Massachusetts Emergency 911 System Goes Down Statewide**\
+`Officials urged residents to call local police or fire stations to seek help. It was not immediately clear what caused the outage or how long it would last.`\
+https://nytimes.com/2024/06/18/us/massachusetts-911-outage.html
+
+**The Celtics Have 18 Championships. The Lakers? 17. (And Maybe One More.)**\
+`The Celtics won their record-breaking 18th championship this week, breaking a tie with the Los Angeles Lakers. But what if they’re still tied?`\
+https://nytimes.com/2024/06/18/sports/celtics-lakers-nba-champions.html
+
 **Johnson signs up McLaughlin-Levrone to new Grand Slam Track venture**\
 `Four-time Olympic champion Michael Johnson has officially launched his new track and field venture, Grand Slam Track, with Sydney McLaughlin-Levrone signed up as his first star competitor.`\
 https://nytimes.com/athletic/5573806/2024/06/18/michael-johnson-grand-slam-track/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/18/us/sarah-mandel-dead.html
 **USC-Ole Miss home-and-home series canceled**\
 `The series was announced in May 2020, a few months after Ole Miss hired Kiffin as coach.`\
 https://nytimes.com/athletic/5573630/2024/06/18/usc-ole-miss-series-canceled/
-
-**Virginia Exonerates Man After 45 Years in Prison**\
-`Lawyers said Marvin Grimm Jr. had falsely confessed to the 1975 murder of a 3-year-old boy, and served more time in prison than any client exonerated with the help of the Innocence Project.`\
-https://nytimes.com/2024/06/18/us/marvin-grimm-virginia-exoneration.html
-
-**Glenn Nyberg: Euro 2024 ref who made Tuchel 'really angry'**\
-`It&#8217;s going to be a busy summer for Glenn Nyberg.`\
-https://nytimes.com/athletic/5572238/2024/06/18/glenn-nyberg-euro-2024/
 
