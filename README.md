@@ -8,7 +8,7 @@ https://nytimes.com/2024/06/18/us/politics/us-debt-economy.html
 
 **What is Israel’s daily pause in some combat, and is it making a difference in getting aid to Gazans?**\
 `By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/06/18/world/israel-gaza-war-hamas/what-is-israels-daily-pause-in-some-combat-and-is-it-making-a-difference-in-getting-aid-to-gazans
+https://nytimes.com/2024/06/18/world/middleeast/israel-pause-gaza-aid.html
 
 **The Fiery Sounds of the Monterey International Pop Festival**\
 `Revisiting the event’s memorable set list, 57 years later.`\
