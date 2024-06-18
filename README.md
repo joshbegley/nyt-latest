@@ -1,3 +1,7 @@
+**The night France's Kylian Mbappe broke his nose at Euro 2024 - 'Any ideas for masks?'**\
+`X-rays at a Dusseldorf hospital confirmed a fracture but the France striker intends to play on at the Euros wearing a protective mask`\
+https://nytimes.com/athletic/5571535/2024/06/18/mbappe-broken-nose-france/
+
 **Minor league notebook: Junior Caminero, Jace Jung and more anticipated prospect promotions**\
 `Dane Martinez identifies a half dozen prospects who should be on the fantasy baseball radar ahead of a potential call-up this summer.`\
 https://nytimes.com/athletic/5570738/2024/06/18/minor-league-notebook-junior-caminero-jace-jung-and-more-anticipated-prospect-promotions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5568031/2024/06/18/nottingham-forest-brice-samba-go
 **Euro 2024 and German efficiency: Forget everything you thought you knew**\
 `Supporters travelling around Germany during Euro 2024 have encountered problems long familiar to locals`\
 https://nytimes.com/athletic/5569570/2024/06/18/euro-2024-germany-england-fans-gelsenkirchen-trains/
-
-**Padres absorb sobering dose of reality from juggernaut Phillies**\
-`San Diego got good news on Yu Darvish, then got beaten down by Philadelphia's heavy bats.`\
-https://nytimes.com/athletic/5570444/2024/06/18/padres-phillies-yu-darvish-joe-musgrove/
 
