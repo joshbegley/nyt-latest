@@ -1,3 +1,12 @@
+**The Texas border and Pittsburgh are among the hottest spots in the nation on Tuesday.**\
+`By Kate Selig`\
+https://nytimes.com/live/2024/06/18/weather/heat-wave-news/the-texas-border-and-pittsburgh-are-among-the-hottest-spots-in-the-nation-on-tuesday
+
+**Cable company lawyer says dealing with MLB 'like talking to a brick wall'**\
+`A federal judge rebuffed MLB in its quest to review contracts between cable companies and the bankrupt broadcaster, Diamond Sports Group.
+`\
+https://nytimes.com/athletic/5574075/2024/06/18/mlb-diamond-sports-group-contract-request/
+
 **Cable company lawyer says dealing with MLB 'like talking to a brick wall'**\
 `A federal judge rebuffed MLB in its quest to review contracts between cable companies and the bankrupt broadcaster, Diamond Sports Group.
 `\
