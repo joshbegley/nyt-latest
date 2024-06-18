@@ -1,3 +1,7 @@
+**Heavy Rains Lash Southern China, Killing at Least 9**\
+`Rains set off landslides and inundated villages in the south, forcing thousands to evacuate. In the north, residents sweltered through a drought.`\
+https://nytimes.com/2024/06/18/world/asia/china-landslides-floods.html
+
 **‘A Big Step Back’: In Ukraine, Concerns Mount Over Narrowing Press Freedoms**\
 `Journalists say they are subject to increasing restrictions and pressure from the government of President Volodymyr Zelensky, adding that the measures go beyond wartime security needs.`\
 https://nytimes.com/2024/06/18/world/europe/ukraine-press-freedom.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/dining/best-nyc-sandwiches.html
 **Amazon Union Workers Join Forces With the Teamsters**\
 `An affiliation agreement between the Amazon Labor Union and the 1.3 million-member Teamsters signals an escalation in challenging the online retailer.`\
 https://nytimes.com/2024/06/18/business/economy/amazon-labor-union-teamsters.html
-
-**The System Isn’t Built for Jan. 6, and Neither Are We**\
-`It’s not as if anybody needs a trial to form an opinion about the events of that day.`\
-https://nytimes.com/2024/06/18/opinion/trial-jan-6.html
 

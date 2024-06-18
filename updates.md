@@ -1,3 +1,7 @@
+**Heavy Rains Lash Southern China, Killing at Least 9**\
+`Rains set off landslides and inundated villages in the south, forcing thousands to evacuate. In the north, residents sweltered through a drought.`\
+https://nytimes.com/2024/06/18/world/asia/china-landslides-floods.html
+
 **‘A Big Step Back’: In Ukraine, Concerns Mount Over Narrowing Press Freedoms**\
 `Journalists say they are subject to increasing restrictions and pressure from the government of President Volodymyr Zelensky, adding that the measures go beyond wartime security needs.`\
 https://nytimes.com/2024/06/18/world/europe/ukraine-press-freedom.html
