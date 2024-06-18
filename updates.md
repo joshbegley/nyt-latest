@@ -1,3 +1,19 @@
+**The Paranoid Style in Tariff Policy**\
+`Trump’s new economic idea would raise taxes substantially on working-class Americans.`\
+https://nytimes.com/live/2024/06/12/opinion/thepoint/trump-tariffs-taxes
+
+**A G.O.P. primary challenge in Virginia illustrates the politics of retribution.**\
+`By Jess Bidgood`\
+https://nytimes.com/live/2024/06/18/us/biden-trump-election/a-gop-primary-challenge-in-virginia-illustrates-the-politics-of-retribution
+
+**Election Updates: A Democratic brawl in a Virginia race may put a House seat in play in November.**\
+``\
+https://nytimes.com/live/2024/06/18/us/biden-trump-election
+
+**How ‘partners in crime’ Jayson Tatum and Jaylen Brown's unbreakable bond made them champions**\
+`Jayson Tatum spoke to The Athletic after winning the NBA Finals about how his bond with Jaylen Brown brought them a title.`\
+https://nytimes.com/athletic/5572343/2024/06/18/jaylen-brown-jayson-tatum-bond-celtics-championship/
+
 **Ten Hag staying at Man Utd provides peace of mind - Mainoo**\
 `Kobbie Mainoo admitted it is good to have “peace of mind” after Manchester United decided to stick with Erik ten Hag.`\
 https://nytimes.com/athletic/5572861/2024/06/18/kobbie-mainoo-england-ten-hag/
