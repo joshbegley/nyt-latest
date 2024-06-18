@@ -1,4 +1,8 @@
 **Trump Wasn’t Going to Stay in Milwaukee. Then Reporters Asked.**\
+`The Republican convention will be held in swing-state Wisconsin’s largest city. The nominee, however, had planned to stay at his own hotel in Chicago, until members of the media began inquiring.`\
+https://nytimes.com/2024/06/18/us/politics/trump-milwaukee-rnc.html
+
+**Trump Wasn’t Going to Stay in Milwaukee. Then Reporters Asked.**\
 `The Republican convention will be held in swing-state Wisconsin’s largest city. The nominee, however, had planned to stay his own hotel in Chicago, until members of the media began inquiring.`\
 https://nytimes.com/2024/06/18/us/politics/trump-milwaukee-rnc.html
 
