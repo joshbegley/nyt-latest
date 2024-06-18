@@ -1,3 +1,7 @@
+**After 10 years in minors, Braves' Grant Holmes excels in MLB debut: 'Never give up'**\
+`The lifelong Braves fan grew up rooting for Chipper Jones and finally lived his dream: "There's always hope as long as you fight for it."`\
+https://nytimes.com/athletic/5571550/2024/06/17/braves-grant-holmes-mlb-debut-hollywood/
+
 **Lopsided Contest**\
 `Aaron M. Rosenberg compares and contrasts.`\
 https://nytimes.com/2024/06/17/crosswords/daily-puzzle-2024-06-18.html
