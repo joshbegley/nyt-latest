@@ -1,3 +1,23 @@
+**Bob Schul, a Singular U.S. Olympian in 5,000-Meter Race, Dies at 86**\
+`His remarkable sprint in the final yards on a muddy track in the 1964 Games in Tokyo made him the only American ever to win the gold medal in the event.`\
+https://nytimes.com/2024/06/18/sports/olympics/bob-schul-dead.html
+
+**Q&A: 2024 NHL Draft prospect Ivan Demidov on Blackhawks, North America and his game**\
+`Demidov sat down with The Athletic on Tuesday in Florida to discuss his game, favorite players, NHL future and much more.`\
+https://nytimes.com/athletic/5572893/2024/06/18/nhl-draft-2024-prospect-blackhawks-demidov/
+
+**What's the latest on Alabama's recruiting momentum?**\
+`Jackson Lloyd officially visited Alabama during the June 14 weekend and has shut down his recruitment ahead of a scheduled visit to USC.`\
+https://nytimes.com/athletic/5573688/2024/06/18/alabama-football-recruiting-jackson-lloyd/
+
+**Biden Courts Some Liberal Love on Immigration**\
+`For thousands of families, Biden’s plan will be a game-changer.`\
+https://nytimes.com/2024/06/18/opinion/biden-immigration-spouses-citizenship.html
+
+**Two Wildfires in New Mexico Burn Out of Control and Force Evacuations**\
+`Thousands of people were being evacuated from Ruidoso and nearby areas as of Tuesday morning.`\
+https://nytimes.com/2024/06/18/us/ruidoso-wildfire-new-mexico.html
+
 **Biden Courts Some Liberal Love on Immigration**\
 `By Farah Stockman`\
 https://nytimes.com/2024/06/18/opinion/biden-immigration-spouses-citizenship.html
