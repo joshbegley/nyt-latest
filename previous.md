@@ -1,3 +1,7 @@
+**More Black and Latino Students Admitted to New York’s Elite High Schools**\
+`The percentage of Black and Latino students in the eight schools increased to 12 percent, the highest since 2013, but still far below the overall percentage of those students in schools.`\
+https://nytimes.com/2024/06/18/nyregion/nyc-specialized-high-school-admissions-black-and-latino-students.html
+
 **The Election of Magical Thinking**\
 `Indulging in electoral illusions is dangerous.`\
 https://nytimes.com/live/2024/06/12/opinion/thepoint/biden-vice-president-step-down
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/18/nyregion/queens-man-sexual-assault-arrest.html
 **Tiny Love Stories: ‘To Die with Perfect Abs’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/06/18/style/tiny-modern-love-stories-to-die-with-perfect-abs.html
-
-**Massachusetts Emergency 911 System Temporarily Goes Down Statewide**\
-`The system was down for nearly two hours, when officials urged residents to call local police or fire stations to seek help. It was not clear what caused the outage.`\
-https://nytimes.com/2024/06/18/us/massachusetts-911-outage.html
 
