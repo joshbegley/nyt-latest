@@ -1,3 +1,27 @@
+**Sarah Mandel, Therapist Who Told Her ‘Trauma Narrative,’ Dies at 42**\
+`She received a diagnosis of Stage 4 breast cancer late in her second pregnancy and described her experience in a book, “Little Earthquakes: A Memoir.”`\
+https://nytimes.com/2024/06/18/us/sarah-mandel-dead.html
+
+**USC-Ole Miss home-and-home series canceled**\
+`The series was announced in May 2020, a few months after Ole Miss hired Kiffin as coach.`\
+https://nytimes.com/athletic/5573630/2024/06/18/usc-ole-miss-series-canceled/
+
+**Virginia Exonerates Man After 45 Years in Prison**\
+`Lawyers said Marvin Grimm Jr. had falsely confessed to the 1975 murder of a 3-year-old boy, and served more time in prison than any client exonerated with the help of the Innocence Project.`\
+https://nytimes.com/2024/06/18/us/marvin-grimm-virginia-exoneration.html
+
+**Glenn Nyberg: Euro 2024 ref who made Tuchel 'really angry'**\
+`It&#8217;s going to be a busy summer for Glenn Nyberg.`\
+https://nytimes.com/athletic/5572238/2024/06/18/glenn-nyberg-euro-2024/
+
+**A Mysterious Monolith Appears Near Las Vegas. Why? It’s Anyone’s Guess.**\
+`A volunteer search-and-rescue organization reported finding the monolith over the weekend near the Gass Peak trail, which is north of Las Vegas.`\
+https://nytimes.com/2024/06/18/us/monolith-las-vegas.html
+
+**Bob Schul, a Singular U.S. Olympian in 5,000-Meter Race, Dies at 86**\
+`His remarkable sprint in the final yards on a muddy track in the 1964 Games in Tokyo made him the only American ever to win the gold medal in the event.`\
+https://nytimes.com/2024/06/18/sports/olympics/bob-schul-dead.html
+
 **Q&A: 2024 NHL Draft prospect Ivan Demidov on Blackhawks, North America and his game**\
 `Demidov sat down with The Athletic on Tuesday in Florida to discuss his game, favorite players, NHL future and much more.`\
 https://nytimes.com/athletic/5572893/2024/06/18/nhl-draft-2024-prospect-blackhawks-demidov/
@@ -13,28 +37,4 @@ https://nytimes.com/2024/06/18/opinion/biden-immigration-spouses-citizenship.htm
 **Two Wildfires in New Mexico Burn Out of Control and Force Evacuations**\
 `Thousands of people were being evacuated from the village of Ruidoso and nearby areas as of Tuesday morning.`\
 https://nytimes.com/2024/06/18/us/ruidoso-wildfire-new-mexico.html
-
-**Transcript: Ezra Klein Interviews Yanna Krupnikov**\
-`The June 18, 2024, episode of “The Ezra Klein Show.”`\
-https://nytimes.com/2024/06/18/podcasts/transcript-ezra-klein-interviews-yanna-krupnikov.html
-
-**1000 not out: How Murray's milestone match epitomised his highs and lows**\
-`Andy Murray won his 1000th ATP Tour match at Queen's Club in London, where he has won five singles titles`\
-https://nytimes.com/athletic/5573531/2024/06/18/andy-murray-1000-matches-atp/
-
-**U.S. Debt on Pace to Top $56 Trillion Over Next 10 Years**\
-`Congressional Budget Office projections released on Tuesday show a grim fiscal backdrop ahead of tax and debt limit fights.`\
-https://nytimes.com/2024/06/18/us/politics/us-debt-economy.html
-
-**Israel’s Daily Combat Pause in Part of Gaza: How Is It Working?**\
-`The new practice is supposed to make it easier and safer to distribute desperately needed aid around Gaza. Aid groups are hopeful, but say more is needed.`\
-https://nytimes.com/2024/06/18/world/middleeast/israel-pause-gaza-aid.html
-
-**The Fiery Sounds of the Monterey International Pop Festival**\
-`Revisiting the event’s memorable set list, 57 years later.`\
-https://nytimes.com/2024/06/18/arts/music/amplifier-newsletter-monterey-pop-festival.html
-
-**The Briefing: Turkey 3 Georgia 1 - Guler does the spectacular, Kvaratskhelia overshadowed**\
-`Turkey scored two of the best goals seen yet at Euro 2024 as they beat Georgia in a hugely entertaining match`\
-https://nytimes.com/athletic/5568279/2024/06/18/turkey-3-georgia-1-guler-kvaratskhelia/
 
