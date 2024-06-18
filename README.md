@@ -1,3 +1,7 @@
+**Garlicky Chicken Sandwiches With Red Cabbage Slaw, Gorgeous and Glossy Strawberry Pretzel Bars**\
+`Bold and bright recipes for a Juneteenth feast.`\
+https://nytimes.com/2024/06/18/dining/strawberry-soda-juneteenth-recipes.html
+
 **Nine unrestricted free agents the Canucks could target to bolster their top 6**\
 `Adding another top-six forward into the mix will be one of the key tasks for Canucks hockey operations this summer.`\
 https://nytimes.com/athletic/5568992/2024/06/18/canucks-free-agent-targets-forwards/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/18/us/trump-lawyers-arizona-fake-electors.html
 **The Sisters Who Turned a Sondheim Flop Into a Tony Winner**\
 `Maria and Sonia Friedman discussed their long history with “Merrily We Roll Along,” after a bittersweet Tony Awards.`\
 https://nytimes.com/2024/06/18/theater/maria-sonia-friedman-merrily.html
-
-**Planning the Resistance to Trump**\
-`Readers discuss preparations by progressive activists and others. Also: A nuclear threat; geoengineering; Gaza protests in Belgium; a tribe’s whale hunt.`\
-https://nytimes.com/2024/06/18/opinion/trump-resistance.html
 
