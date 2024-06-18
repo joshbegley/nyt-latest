@@ -1,3 +1,7 @@
+**Fever-Sky on CBS is most-watched WNBA game in 23 years**\
+`CBS' telecast Sunday averaged 2.25 million viewers and peaked at close to 3 million viewers.`\
+https://nytimes.com/athletic/5572947/2024/06/18/fever-sky-wnba-tv-ratings/
+
 **E.V. Maker Fisker Files for Bankruptcy as Cash Runs Short**\
 `The company became the latest electric vehicle start-up to fail to meet investors’ expectations after a high-profile public debut.`\
 https://nytimes.com/2024/06/18/business/fisker-ev-bankruptcy.html

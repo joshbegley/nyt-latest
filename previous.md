@@ -1,3 +1,7 @@
+**Fever-Sky on CBS is most-watched WNBA game in 23 years**\
+`CBS' telecast Sunday averaged 2.25 million viewers and peaked at close to 3 million viewers.`\
+https://nytimes.com/athletic/5572947/2024/06/18/fever-sky-wnba-tv-ratings/
+
 **E.V. Maker Fisker Files for Bankruptcy as Cash Runs Short**\
 `The company became the latest electric vehicle start-up to fail to meet investors’ expectations after a high-profile public debut.`\
 https://nytimes.com/2024/06/18/business/fisker-ev-bankruptcy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5572343/2024/06/18/jaylen-brown-jayson-tatum-bond-c
 **Ten Hag staying at Man Utd provides peace of mind - Mainoo**\
 `Kobbie Mainoo admitted it is good to have “peace of mind” after Manchester United decided to stick with Erik ten Hag.`\
 https://nytimes.com/athletic/5572861/2024/06/18/kobbie-mainoo-england-ten-hag/
-
-**How to Stay Cool Indoors During the Heat Wave**\
-`With temperatures climbing this week, here’s how to be comfortable in your home — with or without air-conditioning.`\
-https://nytimes.com/2024/06/18/realestate/stay-cool-heat-wave.html
 
