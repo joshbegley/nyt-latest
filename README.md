@@ -1,3 +1,7 @@
+**Johnson signs up McLaughlin-Levrone to new Grand Slam Track venture**\
+`Four-time Olympic champion Michael Johnson has officially launched his new track and field venture, Grand Slam Track, with Sydney McLaughlin-Levrone signed up as his first star competitor.`\
+https://nytimes.com/athletic/5573806/2024/06/18/michael-johnson-grand-slam-track/
+
 **Triple-A to fully use ABS challenge system**\
 `Soon all Triple-A games will use the automated ball-strike (ABS) challenge system instead of the full ABS, MLB says.`\
 https://nytimes.com/athletic/5573707/2024/06/18/automated-ball-strike-challenge-system-triple-a/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/18/us/marvin-grimm-virginia-exoneration.html
 **Glenn Nyberg: Euro 2024 ref who made Tuchel 'really angry'**\
 `It&#8217;s going to be a busy summer for Glenn Nyberg.`\
 https://nytimes.com/athletic/5572238/2024/06/18/glenn-nyberg-euro-2024/
-
-**A Mysterious Monolith Appears Near Las Vegas. Why? It’s Anyone’s Guess.**\
-`A volunteer search-and-rescue organization reported finding the monolith over the weekend near the Gass Peak trail, which is north of Las Vegas.`\
-https://nytimes.com/2024/06/18/us/monolith-las-vegas.html
 
