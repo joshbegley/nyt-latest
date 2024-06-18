@@ -31,10 +31,10 @@ https://nytimes.com/2024/06/18/us/massachusetts-911-outage.html
 https://nytimes.com/2024/06/18/sports/celtics-lakers-nba-champions.html
 
 **Johnson signs up McLaughlin-Levrone to new Grand Slam Track venture**\
-`Four-time Olympic champion Michael Johnson has officially launched his new track and field venture, Grand Slam Track, with Sydney McLaughlin-Levrone signed up as his first star competitor.`\
+`Johnson has secured more than $30 million in financial commitments from investors and strategic partners to launch the league.`\
 https://nytimes.com/athletic/5573806/2024/06/18/michael-johnson-grand-slam-track/
 
-**Triple-A to fully use ABS challenge system**\
-`Soon all Triple-A games will use the automated ball-strike (ABS) challenge system instead of the full ABS, MLB says.`\
+**Triple-A games to start fully using automated ball-strike challenge system**\
+`Starting next week, the league will use Triple-A games to try to determine what type of challenge system works best. `\
 https://nytimes.com/athletic/5573707/2024/06/18/automated-ball-strike-challenge-system-triple-a/
 
