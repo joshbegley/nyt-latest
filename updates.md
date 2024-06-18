@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘To Die with Perfect Abs’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/06/18/style/tiny-modern-love-stories-to-die-with-perfect-abs.html
+
 **Massachusetts Emergency 911 System Goes Down Statewide**\
 `Officials urged residents to call local police or fire stations to seek help. It was not immediately clear what caused the outage or how long it would last.`\
 https://nytimes.com/2024/06/18/us/massachusetts-911-outage.html
