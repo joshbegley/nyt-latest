@@ -1,3 +1,7 @@
+**We Want to Know: What’s Your Favorite Sandwich in New York City?**\
+`The New York Times Food staff crisscrossed the city in search of its most noteworthy sandwiches and now we want to hear from readers.`\
+https://nytimes.com/2024/06/18/dining/favorite-sandwich-reader-callout.html
+
 **From J.J. McCarthy to Lewis Cine: Notes on all 90 Vikings players after minicamp**\
 `What better time to check the status of all 90 players on the Minnesota Vikings' roster? Here's how they looked this spring.`\
 https://nytimes.com/athletic/5570649/2024/06/18/vikings-roster-jj-mccarthy-lewis-cine/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/18/podcasts/the-daily/uvalde-victims-families.html
 **U.S. Protections for Undocumented Spouses, and Putin’s North Korea Visit**\
 `Plus, trouble in the avocado supply.`\
 https://nytimes.com/2024/06/18/podcasts/biden-migrants-north-korea-putin.html
-
-**Greenberg: Last-place Cubs keep finding ways to lose as summer winds blow at Wrigley Field**\
-`Monday's collapse was the Cubs' 14th series-opening defeat this season. As freaky as it was, this is a team getting what it deserves.`\
-https://nytimes.com/athletic/5571778/2024/06/18/chicago-cubs-bullpen-san-francisco-giants/
 
