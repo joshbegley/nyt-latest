@@ -1,3 +1,11 @@
+**Charlie Woods qualifies for U.S. Junior Amateur**\
+`Last fall, Charlie became a high school state golf champion in Florida.`\
+https://nytimes.com/athletic/5576474/2024/06/19/charlie-woods-us-junior-amateur/
+
+**Officer in Sunak’s Protection Team Accused of Placing U.K. Election Bet**\
+`The allegations came a week after a lawmaker and aide to Prime Minister Rishi Sunak apologized for having placed a similar bet on the date of the vote before it was officially announced.`\
+https://nytimes.com/2024/06/19/world/europe/uk-sunak-election-bet.html
+
 **'This is Albania; it’s a bit crazy': Outsiders making Group B rivals sweat**\
 `Few will have expected them to be Group B's most combative element, yet Albania – ranked 66th in the world – have left the big boys worried`\
 https://nytimes.com/athletic/5570712/2024/06/19/albania-croatia-group-b/
