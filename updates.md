@@ -1,3 +1,7 @@
+**The United States is facing hotter heat waves, but one of the worst was in 1936.**\
+`By Tim Balk`\
+https://nytimes.com/live/2024/06/19/weather/heat-wave-news/the-united-states-is-facing-hotter-heat-waves-but-one-of-the-worst-was-in-1936
+
 **It’s Time to Ban Pharmaceutical Advertising**\
 `There are too many drug ads on social media to ever regulate them properly, and ads drive up prescription costs.`\
 https://nytimes.com/2024/06/19/opinion/tiktok-telehealth.html
