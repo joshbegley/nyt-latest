@@ -1,3 +1,7 @@
+**Euro 2024 odds for Thursday's three group matches including Spain-Italy, England-Denmark**\
+`Thursday's Euro 2024 slate features some enticing matchups, including Spain vs. Italy and England vs. Denmark.`\
+https://nytimes.com/athletic/5573581/2024/06/19/euro-2024-odds-spain-italy-england-denmark/
+
 **At ‘Playgrounds of Privilege,’ a Reporter Takes the Pulse of Power**\
 `Jacob Bernstein, a reporter on the Styles desk, writes about philanthropists, media magnates and other social connectors in New York City.`\
 https://nytimes.com/2024/06/19/insider/jacob-bernstein-reporting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/19/world/europe/uk-sunak-election-bet.html
 **Kings-Capitals trade grades: Fresh starts for Pierre-Luc Dubois and Darcy Kuemper**\
 `The Kings and Capitals swapped problematic contracts and addressed positions of need at the same time.`\
 https://nytimes.com/athletic/5576585/2024/06/19/kings-capitals-trade-grades-pl-dubois-darcy-kuemper/
-
-**Ask The Morning Anything**\
-`Do you have questions about The Morning newsletter? Or about the news? We want to hear them.`\
-https://nytimes.com/2024/06/19/briefing/ask-the-morning-anything.html
 
