@@ -23,7 +23,7 @@ https://nytimes.com/2024/06/19/theater/pre-existing-condition-review-marin-irela
 https://nytimes.com/athletic/5576115/2024/06/19/andy-murray-injury-queens/
 
 **Flames trade goalie Jacob Markström to Devils**\
-`Markström, who spent the last four seasons with the Flames, was 23-23-2 in 2023-24`\
+`Markström, who spent the last four seasons with the Flames, was 23-23-2 in 2023-24.`\
 https://nytimes.com/athletic/5576112/2024/06/19/flames-jacob-markstrom-trade-devils/
 
 **Payton II to exercise his player option with Warriors**\
