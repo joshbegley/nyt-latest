@@ -1,3 +1,7 @@
+**By trading Pierre-Luc Dubois, the Kings admit their error and solve another problem**\
+`L.A. traded Dubois, once hoped to be a centerpiece of their future, after one season for goalie Darcy Kuemper.`\
+https://nytimes.com/athletic/5577102/2024/06/19/dubois-kuemper-trade-kings-capitals/
+
 **Unrelenting Heat Stifles Millions of Americans for 3rd Consecutive Day**\
 `As the heat wave moved east, the Northeast felt the brunt of the conditions. But forecasters provided a glimmer of relief, saying “conditions should improve over New England” this weekend.`\
 https://nytimes.com/2024/06/19/weather/heat-wave-northeast-midwest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/19/us/mays-birmingham-barons-rickwood.html
 **Ecuador Hit by Nationwide Blackout**\
 `The public works minister said the power outage had been caused by the failure of a transmission line.`\
 https://nytimes.com/2024/06/19/world/americas/ecuador-nationwide-blackout.html
-
-**Tierney ruled out of Scotland vs Hungary with injury**\
-`Kieran Tierney has been ruled out of Scotland&#8217;s decisive final European Championship group match against Hungary through injury.`\
-https://nytimes.com/athletic/5576957/2024/06/19/scotland-kieran-tierney-injury/
 
