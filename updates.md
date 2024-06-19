@@ -1,3 +1,11 @@
+**Kawakami: Willie Mays, the Bay Area's original and untouchable immortal**\
+`In 1958, Southern California got the Dodgers and Northern California got Willie Mays. Yeah, the Bay Area did OK with that one.`\
+https://nytimes.com/athletic/5574587/2024/06/19/willie-mays-giants-bay-area-legend-kawakami/
+
+**Ellie Roebuck joins Barcelona from Manchester City**\
+`Barcelona have completed the signing of England goalkeeper Ellie Roebuck on a free transfer.`\
+https://nytimes.com/athletic/5575383/2024/06/19/ellie-roebuck-barcelona/
+
 **Aid groups say thousands of tons of supplies remain stranded in southern Gaza because conditions are too dangerous to move it.**\
 `By Vivian Yee and Aaron Boxerman`\
 https://nytimes.com/live/2024/06/19/world/israel-gaza-war-hamas/aid-groups-say-thousands-of-tons-of-supplies-remain-stranded-in-southern-gaza-because-conditions-are-too-dangerous-to-move-it
