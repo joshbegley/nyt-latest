@@ -1,3 +1,7 @@
+**Mbappe trains with broken nose before Netherlands game**\
+`France captain Kylian Mbappe took part in training on Wednesday afternoon, two days after breaking his nose in his country&#8217;s 2-1 victory over Austria in their European Championship opener.`\
+https://nytimes.com/athletic/5576291/2024/06/19/kylian-mbappe-injury-netherlands/
+
 **After His Arrest, Justin Timberlake Is the Talk of Sag Harbor**\
 `As the serene Hamptons village is overrun with news vans, the locals eat oysters and engage in some light media criticism.`\
 https://nytimes.com/2024/06/19/style/justin-timberlake-arrest-sag-harbor-local-reaction.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5576217/2024/06/19/steelers-mailbag-offseason/
 **Greenwood subject of strong interest from Lazio**\
 `Manchester United&#8217;s Mason Greenwood is the subject of strong interest from Lazio among a number of clubs as speculation continues over his future.`\
 https://nytimes.com/athletic/5576177/2024/06/19/mason-greenwood-lazio/
-
-**Crews Rush to Restore Power in Pittsburgh as Temperatures Soar**\
-`With heat indexes forecast to reach 110 degrees in western Pennsylvania, about 6,700 people were still without power after damaging wind and rain storms earlier this week.`\
-https://nytimes.com/2024/06/19/weather/pittsburgh-power-outages-heat.html
 

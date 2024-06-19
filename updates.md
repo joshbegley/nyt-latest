@@ -1,3 +1,7 @@
+**Mbappe trains with broken nose before Netherlands game**\
+`France captain Kylian Mbappe took part in training on Wednesday afternoon, two days after breaking his nose in his country&#8217;s 2-1 victory over Austria in their European Championship opener.`\
+https://nytimes.com/athletic/5576291/2024/06/19/kylian-mbappe-injury-netherlands/
+
 **After His Arrest, Justin Timberlake Is the Talk of Sag Harbor**\
 `As the serene Hamptons village is overrun with news vans, the locals eat oysters and engage in some light media criticism.`\
 https://nytimes.com/2024/06/19/style/justin-timberlake-arrest-sag-harbor-local-reaction.html
