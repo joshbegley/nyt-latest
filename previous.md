@@ -1,3 +1,7 @@
+**Tracking Tropical Storm Alberto**\
+`See the likely path and wind arrival times for Alberto.`\
+https://nytimes.com/interactive/2024/weather/alberto-texas-mexico.html
+
 **The Briefing: Croatia 2 Albania 2 - How did Croatia turn it around? Unluckiest own goal? Can Albania go through?**\
 `Our writers break down all the action from a thrilling draw in Group B.`\
 https://nytimes.com/athletic/5572674/2024/06/19/croatia-albania-euro-2024/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5575784/2024/06/19/belgium-israel-brussels-security
 **Group of Austrians Picks 77 Charities to Receive Heiress’s Fortune**\
 `Marlene Engelhorn, a descendant of the founder of one of the world’s largest chemical companies, decided to give away most of her inheritance.`\
 https://nytimes.com/2024/06/19/world/europe/marlene-engelhorn-heiress-fortune.html
-
-**Patrik Laine trade destinations: 8 teams that could (or should) be interested**\
-`The Blue Jackets are looking to find a trade partner for Laine, which may come with some challenges. What are the NHL's best options?`\
-https://nytimes.com/athletic/5574510/2024/06/19/patrik-laine-nhl-trade-targets/
 
