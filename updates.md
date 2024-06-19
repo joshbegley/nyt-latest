@@ -28,6 +28,11 @@ https://nytimes.com/athletic/5575854/2024/06/19/penguins-kirk-macdonald-ahl-coac
 `\
 https://nytimes.com/athletic/5575854/2024/06/19/penguins-kirk-macdonald-ahl-coach/
 
+**Penguins name Kirk MacDonald coach of AHL affiliate**\
+`MacDonald never played in the NHL though he is a veteran of several AHL seasons as a player.
+`\
+https://nytimes.com/athletic/5575854/2024/06/19/penguins-kirk-macdonald-ahl-coach/
+
 **Canadian police open investigation into Porter betting scandal**\
 `Porter is part of a criminal investigation by the OPP as law enforcement looks into alleged betting impropriety.`\
 https://nytimes.com/athletic/5575906/2024/06/19/jontay-porter-ontario-investigation-betting/
