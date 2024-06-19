@@ -1,3 +1,11 @@
+**Phillies' Ranger Suárez pitches in front of his children for the first time, and it's 'beautiful'**\
+`"I wanted them with me during the season," he said, "and to spend every single night with my family."`\
+https://nytimes.com/athletic/5576499/2024/06/19/ranger-suarez-pitch-children-phillies/
+
+**Euro 2024 state of play — tables, schedule and what you may have missed**\
+`Here, The Athletic analyses the state of play in each group and which teams may face each other in the knockout stage`\
+https://nytimes.com/athletic/5575373/2024/06/19/euro-2024-state-of-play/
+
 **U.S. falls short, lose against South Africa at T20 World Cup**\
 `The United States fell to defeat by South Africa in the opening game of the Super Eight phase of the T20 World Cup.`\
 https://nytimes.com/athletic/5576471/2024/06/19/usa-cricket-world-cup-south-africa/
