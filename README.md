@@ -14,7 +14,7 @@ https://nytimes.com/athletic/5576313/2024/06/19/mlb-draft-combine-kellon-lindsey
 `The Bruins may have to accept the reality of a muted trade market when it comes to Ullmark.`\
 https://nytimes.com/athletic/5576375/2024/06/19/jacob-markstrom-linus-ullmark-devils-trade/
 
-**The Briefing: Germany 2 Hungary 0 - Nagelsmann's tactics, Neuer's revival and Germany through**\
+**The Briefing: Germany 2 Hungary 0 - Nagelsmann's tactics, Neuer's revival and hosts through**\
 `Our writers analyse and evaluate the key talking points from Germany's 2-0 victory over Hungary in Stuttgart `\
 https://nytimes.com/athletic/5572677/2024/06/19/germany-hungary-euro-2024-briefing/
 
