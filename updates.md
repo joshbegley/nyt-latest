@@ -1,3 +1,7 @@
+**Sparks star rookie Cameron Brink exits game vs. Sun with knee injury**\
+`Brink was recently named to the USA 3x3 Olympic team. `\
+https://nytimes.com/athletic/5574435/2024/06/18/cameron-brink-injury-sparks/
+
 **Trump Whistle-Blower Wins House Primary in Virginia**\
 `Yevgeny Vindman, who raised alarms about then-President Donald J. Trump’s conduct toward Ukraine, will stand for Abigail Spanberger’s seat in Congress as a Democrat.`\
 https://nytimes.com/2024/06/18/us/politics/eugene-vindman-virginia-house-primary.html
