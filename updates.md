@@ -1,3 +1,7 @@
+**Padres salvage important win but still must approach trade deadline with caution**\
+`General manager A.J. Preller may have to learn from red-hot Jackson Merrill and know when to — and when not to — take a big swing.`\
+https://nytimes.com/athletic/5577111/2024/06/19/padres-trade-deadline-jackson-merrill-aj-preller/
+
 **A rookie in the NWSL MVP race?: Full Time**\
 `Plus, a look at the Seattle Reign sale.`\
 https://nytimes.com/athletic/5577162/2024/06/19/a-rookie-in-the-nwsl-mvp-race-full-time/
