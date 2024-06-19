@@ -1,3 +1,19 @@
+**Euro 2024's best match so far shows why it's shaping up to be a brilliant tournament**\
+`Georgia were on the receiving end of a 3-1 defeat by Turkey - but their performance spoke volumes about the bigger picture`\
+https://nytimes.com/athletic/5573742/2024/06/19/turkey-georgia-euro-2024-guler-kvaratskhelia-great-tournament/
+
+**Manchester United's decision to keep Erik ten Hag - Andy Mitten argues with himself once again**\
+`Is sticking with Erik ten Hag the right decision for Manchester United? Andy Mitten and his alter ego, Andrew Mitten, don't quite agree`\
+https://nytimes.com/athletic/5572118/2024/06/19/andy-mitten-erik-ten-hag-manchester-united/
+
+**Spencer Schwellenbach gets first MLB win, says Braves' welcoming environment has helped**\
+`Schwellenbach limited the Tigers to three hits, two walks and one run with seven strikeouts in six innings of a 2-1 win Tuesday.`\
+https://nytimes.com/athletic/5574727/2024/06/19/spencer-schwellenbach-first-win-braves/
+
+**Explained: Kylian Mbappe's broken nose, the diagnosis and the pros and cons of protective masks**\
+`The Athletic talks to ex-players and nasal experts to find out more about the France striker's injury and recovery process - and mask-making`\
+https://nytimes.com/athletic/5573611/2024/06/19/mbappe-nose-france-euro2024-mask/
+
 **The retro kick-off tactic that is proving popular (and effective) at Euro 2024**\
 `A new (old) trend is creeping into football – launching the ball forward from kick-off`\
 https://nytimes.com/athletic/5570027/2024/06/19/kick-off-tactic-euros/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5574740/2024/06/19/blue-jays-orelvis-martinez/
 **'Paqueta should be banned for life if he's guilty. Do I see it happening? Probably not'**\
 `Kynan Isaac was given a 10-year ban for getting deliberately booked once. Now he is following Lucas Paqueta's case closely`\
 https://nytimes.com/athletic/5569443/2024/06/19/kynan-isaac-10-year-ban-pacqueta/
-
-**Wednesday Briefing**\
-`Biden’s new protections for undocumented spouses.`\
-https://nytimes.com/2024/06/19/briefing/biden-immigration-thailand-gay-marriage.html
-
-**Putin and Kim Jong-un, Autocrats Brought Closer by War, Meet in Pyongyang**\
-`A need for munitions to use against Ukraine is forcing Russia’s leader to deepen his ties with North Korea’s, in an alliance that’s raising alarms in the West.`\
-https://nytimes.com/2024/06/19/world/asia/putin-meets-kim-north-korea.html
-
-**Who Owns Alexander the Great? It’s a Diplomatic Minefield.**\
-`North Macedonia has claimed historical figures as part of a drive to build a national identity. That has ruffled the feathers of the Balkan nation’s neighbors.`\
-https://nytimes.com/2024/06/19/world/europe/north-macedonia-history-statues.html
-
-**Kandinsky Cut Ties With Russia. So Did This Museum.**\
-`The first major exhibition at H’Art, a former satellite of the Hermitage, explores how war and nationalism shaped the painter’s career.`\
-https://nytimes.com/2024/06/19/arts/design/hart-museum-kandinsky.html
 

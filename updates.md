@@ -1,3 +1,19 @@
+**Euro 2024's best match so far shows why it's shaping up to be a brilliant tournament**\
+`Georgia were on the receiving end of a 3-1 defeat by Turkey - but their performance spoke volumes about the bigger picture`\
+https://nytimes.com/athletic/5573742/2024/06/19/turkey-georgia-euro-2024-guler-kvaratskhelia-great-tournament/
+
+**Manchester United's decision to keep Erik ten Hag - Andy Mitten argues with himself once again**\
+`Is sticking with Erik ten Hag the right decision for Manchester United? Andy Mitten and his alter ego, Andrew Mitten, don't quite agree`\
+https://nytimes.com/athletic/5572118/2024/06/19/andy-mitten-erik-ten-hag-manchester-united/
+
+**Spencer Schwellenbach gets first MLB win, says Braves' welcoming environment has helped**\
+`Schwellenbach limited the Tigers to three hits, two walks and one run with seven strikeouts in six innings of a 2-1 win Tuesday.`\
+https://nytimes.com/athletic/5574727/2024/06/19/spencer-schwellenbach-first-win-braves/
+
+**Explained: Kylian Mbappe's broken nose, the diagnosis and the pros and cons of protective masks**\
+`The Athletic talks to ex-players and nasal experts to find out more about the France striker's injury and recovery process - and mask-making`\
+https://nytimes.com/athletic/5573611/2024/06/19/mbappe-nose-france-euro2024-mask/
+
 **The retro kick-off tactic that is proving popular (and effective) at Euro 2024**\
 `A new (old) trend is creeping into football – launching the ball forward from kick-off`\
 https://nytimes.com/athletic/5570027/2024/06/19/kick-off-tactic-euros/
