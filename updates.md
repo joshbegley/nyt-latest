@@ -1,3 +1,11 @@
+**Ecuador Hit by Nationwide Blackout**\
+`The public works minister said the power outage had been caused by the failure of a transmission line.`\
+https://nytimes.com/2024/06/19/world/americas/ecuador-nationwide-blackout.html
+
+**Tierney ruled out of Scotland vs Hungary with injury**\
+`Kieran Tierney has been ruled out of Scotland&#8217;s decisive final European Championship group match against Hungary through injury.`\
+https://nytimes.com/athletic/5576957/2024/06/19/scotland-kieran-tierney-injury/
+
 **For a Story on Disney, a Writer Tests New Waters**\
 `When Walt Disney World replaced a ride that was based on a racist film with a new attraction, Brooks Barnes, who covers entertainment, was first in line.`\
 https://nytimes.com/2024/06/19/insider/disney-tiana-bayou-adventure.html

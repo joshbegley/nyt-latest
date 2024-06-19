@@ -1,3 +1,11 @@
+**Ecuador Hit by Nationwide Blackout**\
+`The public works minister said the power outage had been caused by the failure of a transmission line.`\
+https://nytimes.com/2024/06/19/world/americas/ecuador-nationwide-blackout.html
+
+**Tierney ruled out of Scotland vs Hungary with injury**\
+`Kieran Tierney has been ruled out of Scotland&#8217;s decisive final European Championship group match against Hungary through injury.`\
+https://nytimes.com/athletic/5576957/2024/06/19/scotland-kieran-tierney-injury/
+
 **For a Story on Disney, a Writer Tests New Waters**\
 `When Walt Disney World replaced a ride that was based on a racist film with a new attraction, Brooks Barnes, who covers entertainment, was first in line.`\
 https://nytimes.com/2024/06/19/insider/disney-tiana-bayou-adventure.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5576641/2024/06/19/neuer-germany-euro2024-bayern/
 **In Chicago, some brave the outdoors despite sweltering temperatures.**\
 `By Robert Chiarito`\
 https://nytimes.com/live/2024/06/19/weather/heat-wave-news/in-chicago-some-brave-the-outdoors-despite-sweltering-temperatures
-
-**Charlie Woods qualifies for U.S. Junior Amateur**\
-`Last fall, Charlie became a high school state golf champion in Florida.`\
-https://nytimes.com/athletic/5576474/2024/06/19/charlie-woods-us-junior-amateur/
-
-**Officer in Sunak’s Protection Team Accused of Placing U.K. Election Bet**\
-`The allegations came a week after a lawmaker and aide to Prime Minister Rishi Sunak apologized for having placed a similar bet on the date of the vote before it was officially announced.`\
-https://nytimes.com/2024/06/19/world/europe/uk-sunak-election-bet.html
 
