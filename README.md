@@ -1,3 +1,7 @@
+**Remembering Willie Mays as Both Untouchable and Human**\
+`Mays, who died on Tuesday at 93, had been perfect for so long that the shock of seeing baseball get the best of him was the shock of seeing a god become mortal.`\
+https://nytimes.com/2024/06/18/us/willie-mays-death-baseball-legacy.html
+
 **How Well Do You Know the N.Y.C. Subway?**\
 `The New York City subway is arguably the most famous transit network in America. How well do you know it? Take our quiz to find out.`\
 https://nytimes.com/interactive/2024/06/18/nyregion/nyc-subway-quiz.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5574435/2024/06/18/cameron-brink-injury-sparks/
 **Trump Whistle-Blower Wins House Primary in Virginia**\
 `Yevgeny Vindman, who raised alarms about then-President Donald J. Trump’s conduct toward Ukraine, will stand for Abigail Spanberger’s seat in Congress as a Democrat.`\
 https://nytimes.com/2024/06/18/us/politics/eugene-vindman-virginia-house-primary.html
-
-**Gazans are living amid 39 million tons of debris, the U.N. says.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/06/18/world/israel-gaza-war-hamas/gazans-are-living-amid-39-million-tons-of-debris-the-un-says
 
