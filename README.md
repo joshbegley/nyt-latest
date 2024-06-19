@@ -1,3 +1,11 @@
+**After His Arrest, Justin Timberlake Is the Talk of Sag Harbor**\
+`As the serene Hamptons village is overrun with news vans, the locals eat oysters and engage in some light media criticism.`\
+https://nytimes.com/2024/06/19/style/justin-timberlake-arrest-sag-harbor-local-reaction.html
+
+**NHL trade grades: Devils get their goalie upgrade in Jacob Markstrom**\
+`The Devils got the goalie they've wanted all along and didn't give up top picks or prospects to do it.`\
+https://nytimes.com/athletic/5576254/2024/06/19/nhl-trade-grades-devils-jacob-markstrom/
+
 **Villa agree deal with Chelsea to sign Maatsen**\
 `Aston Villa have agreed a deal with Chelsea to sign left-back Ian Maatsen.`\
 https://nytimes.com/athletic/5558866/2024/06/19/ian-maatsen-aston-villa-transfer-chelsea/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5576177/2024/06/19/mason-greenwood-lazio/
 **Crews Rush to Restore Power in Pittsburgh as Temperatures Soar**\
 `With heat indexes forecast to reach 110 degrees in western Pennsylvania, about 6,700 people were still without power after damaging wind and rain storms earlier this week.`\
 https://nytimes.com/2024/06/19/weather/pittsburgh-power-outages-heat.html
-
-**Six unrestricted free agents the Canucks could target to address their centre depth**\
-`Depending on who stays and who goes this summer, the Canucks may need further reinforcements at centre. Who are their best options?`\
-https://nytimes.com/athletic/5569114/2024/06/19/canucks-free-agent-targets-centers-forwards/
-
-**Ricardo M. Urbina, Trailblazing Latino Judge in Capital, Dies at 79**\
-`Before being appointed to the bench in Washington, he was a track star who became a symbol of discrimination against Black athletes.`\
-https://nytimes.com/2024/06/19/us/ricardo-urbina-dead.html
 
