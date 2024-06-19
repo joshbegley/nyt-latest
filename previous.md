@@ -1,3 +1,11 @@
+**It’s Unanimous: In the Senate, Neither Party Consents to the Other’s Ideas**\
+`Democrats sought to quickly reinstate a ban on gun bump stocks after a Supreme Court ruling. It was the latest Senate floor fight to end in a predictable stalemate.`\
+https://nytimes.com/2024/06/19/us/politics/senate-democrats-republicans-guns-ivf.html
+
+**A Deadly Toll as an Intense Heat Grips Saudi Arabia**\
+`Reports from official media in the Middle East and Africa suggest that dozens of people died during this year’s hajj pilgrimage as temperatures soared.`\
+https://nytimes.com/2024/06/19/world/europe/hajj-deaths-mecca-heat.html
+
 **Robert F. Kennedy Jr.’s Conspiracy of Ravens**\
 `The presidential candidate keeps two of the free-minded birds as wild pets. They’re much better behaved than his old emu, Toby, who would attack his wife, Cheryl Hines.`\
 https://nytimes.com/2024/06/19/us/politics/rfk-jr-ravens.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/19/style/parents-siblings-unequal-treatment-favoriti
 **Russia Sentences U.S. Soldier to 4 Years in Prison**\
 `Staff Sgt. Gordon Black was accused of making death threats against, and stealing money from, a woman with whom he was romantically involved.`\
 https://nytimes.com/2024/06/19/world/europe/russia-us-soldier-gordon-black.html
-
-**New Mexico Battles ‘Devastating’ Wildfires as Weather Complicates the Fight**\
-`The state’s governor declared a regional state of emergency as thousands evacuated. Wind and rain could affect firefighting efforts.`\
-https://nytimes.com/2024/06/19/us/new-mexico-wildfires.html
-
-**Christopher Bell on managing emotions and dealing with disappointment: 12 Questions**\
-`Christopher Bell talks about keeping it even-mannered on the track, bouncing back after a tough result and much more.`\
-https://nytimes.com/athletic/5571480/2024/06/19/christopher-bell-nascar-emotions-12-questions/
 
