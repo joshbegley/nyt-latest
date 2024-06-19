@@ -1,3 +1,11 @@
+**Amid Military Recruitment Challenges, Congress Debates Changes to the Draft**\
+`Republicans and Democrats are weighing proposals to expand military conscription to women and make registration automatic. Both proposals face an uphill path to becoming law.`\
+https://nytimes.com/2024/06/19/us/politics/military-draft-women.html
+
+**Submit your questions for Mark Kaboly's Steelers mailbag**\
+`With the Steelers' offseason program over, it's a great time to submit questions to Mark Kaboly, who will answer some in a mailbag.`\
+https://nytimes.com/athletic/5576217/2024/06/19/steelers-mailbag-offseason/
+
 **Greenwood subject of strong interest from Lazio**\
 `Manchester United&#8217;s Mason Greenwood is the subject of strong interest from Lazio among a number of clubs as speculation continues over his future.`\
 https://nytimes.com/athletic/5576177/2024/06/19/mason-greenwood-lazio/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5576115/2024/06/19/andy-murray-injury-queens/
 **Flames trade goalie Jacob Markström to Devils**\
 `Markström, who spent the last four seasons with the Flames, was 23-23-2 in 2023-24.`\
 https://nytimes.com/athletic/5576112/2024/06/19/flames-jacob-markstrom-trade-devils/
-
-**Payton II to exercise his player option with Warriors**\
-`The first domino of a challenging Warriors offseason has fallen.`\
-https://nytimes.com/athletic/5573962/2024/06/19/gary-payton-warriors-player-option/
-
-**176 Writing Prompts to Spark Discussion and Reflection**\
-`Here are all of our Student Opinion questions from the 2023-24 school year. Each question is based on a different New York Times article, interactive feature or video.`\
-https://nytimes.com/2024/06/19/learning/176-writing-prompts-to-spark-discussion-and-reflection.html
 

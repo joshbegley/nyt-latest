@@ -1,3 +1,11 @@
+**Amid Military Recruitment Challenges, Congress Debates Changes to the Draft**\
+`Republicans and Democrats are weighing proposals to expand military conscription to women and make registration automatic. Both proposals face an uphill path to becoming law.`\
+https://nytimes.com/2024/06/19/us/politics/military-draft-women.html
+
+**Submit your questions for Mark Kaboly's Steelers mailbag**\
+`With the Steelers' offseason program over, it's a great time to submit questions to Mark Kaboly, who will answer some in a mailbag.`\
+https://nytimes.com/athletic/5576217/2024/06/19/steelers-mailbag-offseason/
+
 **Greenwood subject of strong interest from Lazio**\
 `Manchester United&#8217;s Mason Greenwood is the subject of strong interest from Lazio among a number of clubs as speculation continues over his future.`\
 https://nytimes.com/athletic/5576177/2024/06/19/mason-greenwood-lazio/
