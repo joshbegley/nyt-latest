@@ -1,3 +1,7 @@
+**As Panthers drop Game 5 to McDavid's Oilers, the pressure mounts and the momentum shifts**\
+`The Panthers still own a 3-2 series lead, but the Oilers are surely feeling capable of rallying back from the dead as they head to Edmonton.`\
+https://nytimes.com/athletic/5574878/2024/06/19/panthers-oilers-mcdavid-nhl-stanley-cup-final/
+
 **The United States is facing hotter heat waves, but one of the worst was in 1936.**\
 `By Tim Balk`\
 https://nytimes.com/live/2024/06/19/weather/heat-wave-news/the-united-states-is-facing-hotter-heat-waves-but-one-of-the-worst-was-in-1936

@@ -1,3 +1,7 @@
+**As Panthers drop Game 5 to McDavid's Oilers, the pressure mounts and the momentum shifts**\
+`The Panthers still own a 3-2 series lead, but the Oilers are surely feeling capable of rallying back from the dead as they head to Edmonton.`\
+https://nytimes.com/athletic/5574878/2024/06/19/panthers-oilers-mcdavid-nhl-stanley-cup-final/
+
 **The United States is facing hotter heat waves, but one of the worst was in 1936.**\
 `By Tim Balk`\
 https://nytimes.com/live/2024/06/19/weather/heat-wave-news/the-united-states-is-facing-hotter-heat-waves-but-one-of-the-worst-was-in-1936
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5575121/2024/06/19/steve-cooper-leicester-manager/
 **The Athletic FC: Georgia and the glorious underdogs; Why Lalas isn't in it for the likes**\
 `Today in The Athletic FC: Georgia, Guler and some incredible underdogs. Plus Lalas pulls no punches in our exclusive interview.`\
 https://nytimes.com/athletic/5575323/2024/06/19/georgia-turkey-lalas-likes/
-
-**Tears, pre-announcements, vanishing into thin air: The new rules of tennis retirement**\
-`As a golden tennis era transitions into its next guise, when, how, and why to retire is one of the biggest questions in the sport`\
-https://nytimes.com/athletic/5572180/2024/06/19/tennis-retirement-how-to-federer-nadal-serena-williams-giorgi/
 
