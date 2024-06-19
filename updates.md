@@ -1,3 +1,7 @@
+**As Mets continue to rally and win, their young players are establishing themselves**\
+`Francisco Alvarez and Mark Vientos proved again Tuesday in Texas that they're ready for the big moments.`\
+https://nytimes.com/athletic/5574943/2024/06/19/mets-rally-7-straight-francisco-alvarez/
+
 **Giants react to the death of Willie Mays: 'The things he did we'll never see again'**\
 `"Heavy hearts not only for the Bay Area and New York where he started, but for the baseball world," said Giants manager Bob Melvin.`\
 https://nytimes.com/athletic/5574917/2024/06/19/willie-may-sf-giants-mourning/
