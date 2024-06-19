@@ -1,3 +1,7 @@
+**Harrison close to rejoining Everton on loan from Leeds**\
+`Jack Harrison is close to joining Everton on another season long loan from Leeds United.`\
+https://nytimes.com/athletic/5575613/2024/06/19/jack-harrison-everton-leeds-transfer/
+
 **My Date Recorded Us Having Sex Without My Consent. Should I Report Them?**\
 `The Magazine’s Ethicist columnist on boundaries in friendship and other intimate relationships.`\
 https://nytimes.com/2024/06/19/magazine/my-date-recorded-us-having-sex-without-my-consent-should-i-report-them.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/19/weather/pools-nyc.html
 **As Panthers drop Game 5 to McDavid's Oilers, the pressure mounts and the momentum shifts**\
 `The Panthers still own a 3-2 series lead, but the Oilers are surely feeling capable of rallying back from the dead as they head to Edmonton.`\
 https://nytimes.com/athletic/5574878/2024/06/19/panthers-oilers-mcdavid-nhl-stanley-cup-final/
-
-**The United States is facing hotter heat waves, but one of the worst was in 1936.**\
-`By Tim Balk`\
-https://nytimes.com/live/2024/06/19/weather/heat-wave-news/the-united-states-is-facing-hotter-heat-waves-but-one-of-the-worst-was-in-1936
 
