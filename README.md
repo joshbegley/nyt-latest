@@ -1,3 +1,7 @@
+**Tom Cole, House G.O.P. Spending Chief, Prevails Against Right-Wing Challenger**\
+`The veteran Republican faced a right-wing challenger who sought to make his powerful post on the committee that controls federal spending into a political liability.`\
+https://nytimes.com/2024/06/18/world/europe/tom-cole-primary-oklahoma-bondar.html
+
 **Sparks star rookie Cameron Brink exits game vs. Sun with knee injury**\
 `Brink was recently named to the USA 3x3 Olympic team. `\
 https://nytimes.com/athletic/5574435/2024/06/18/cameron-brink-injury-sparks/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/18/business/economy/amazon-california-productivity-q
 **A ship attacked by the Houthis goes down in the Red Sea.**\
 `By Anjana Sankar`\
 https://nytimes.com/live/2024/06/18/world/israel-gaza-war-hamas/a-ship-attacked-by-the-houthis-goes-down-in-the-red-sea
-
-**In Legal Peril, Seattle’s ‘Belltown Hellcat’ Is Ordered to Yield**\
-`A driver whose roaring Dodge Charger has plagued Seattle residents said he was working to modify the car. Still, city officials won an $83,000 judgment against him.`\
-https://nytimes.com/2024/06/18/us/seattle-belltown-hellcat-judgment.html
 
