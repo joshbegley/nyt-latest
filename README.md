@@ -1,3 +1,11 @@
+**Late Night Trolls Trump After Report of ‘Severe Memory Issues’**\
+`“I’m starting to think Trump writes his name on buildings just so he can remember where he lives,” Jimmy Fallon said.`\
+https://nytimes.com/2024/06/19/arts/television/late-night-trump-memory.html
+
+**As President Takes Oath, 4 Challenges for South Africa’s New Government**\
+`For the first time since the fall of apartheid, the nation must rely on a coalition of rival parties to govern. Can they get along enough to pull the country out of its crises?`\
+https://nytimes.com/2024/06/19/world/africa/south-africa-inauguration-ramaphosa.html
+
 **Britain Election Winner’s First Problem: Fix a Stagnant Economy**\
 `After more than a decade of deep budget cuts, slow growth and weak productivity, the country has struggled to overcome years of uncertainty and underinvestment.`\
 https://nytimes.com/2024/06/19/business/britain-economy-inflation.html
@@ -8,7 +16,7 @@ https://nytimes.com/athletic/5574943/2024/06/19/mets-rally-7-straight-francisco-
 
 **Giants react to the death of Willie Mays: 'The things he did we'll never see again'**\
 `"Heavy hearts not only for the Bay Area and New York where he started, but for the baseball world," said Giants manager Bob Melvin.`\
-https://nytimes.com/athletic/5574917/2024/06/19/willie-may-sf-giants-mourning/
+https://nytimes.com/athletic/5574917/2024/06/19/mays-death-san-francisco-giants-cubs/
 
 **LeBrun: All eyes on a comeback as Oilers shift momentum in Stanley Cup Final**\
 `After an impressive 5-3 win in Game 5, the Oilers have what would be a historic comeback in mind: "We're going to pull this off."`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5574786/2024/06/19/yankees-win-aaron-judge-injured/
 **Corrections: June 19, 2024**\
 `Corrections that appeared in print on Wednesday, June 19, 2024.`\
 https://nytimes.com/2024/06/19/pageoneplus/corrections-june-19-2024.html
-
-**Quotation of the Day: Politics Still Rile Georgia, but Soccer Unites Nation**\
-`Quotation of the Day for Wednesday, June 19, 2024.`\
-https://nytimes.com/2024/06/19/pageoneplus/quotation-of-the-day-politics-still-rile-georgia-but-soccer-unites-nation.html
-
-**'Today, my body was really beat down': Padres' Fernando Tatis Jr. reveals lingering injury**\
-`Tatis didn't start because of quad tightness, but he ended up with a close look at the walk-off loss in Philadelphia.`\
-https://nytimes.com/athletic/5574778/2024/06/19/padres-fernando-tatis-quad-tightness/
 
