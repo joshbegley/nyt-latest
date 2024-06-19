@@ -1,3 +1,7 @@
+**Garnacho has divided Argentina... but maybe not for much longer**\
+`The Manchester United winger's skills are beyond doubt, but his life off the field has attracted criticism`\
+https://nytimes.com/athletic/5565977/2024/06/19/alejandro-garnacho-argentina-copa-america/
+
 **Which Big Ten teams won and lost in college basketball's transfer portal?**\
 `The Big Ten will be a new-look basketball league in 2024-25, with the addition of four teams and a long list of transfer portal movement.`\
 https://nytimes.com/athletic/5572303/2024/06/19/big-ten-college-basketball-transfer-portal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5563957/2024/06/19/chargers-gus-edwards-jk-dobbins-
 **The Pulse: RIP to the best baseball player ever**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5574023/2024/06/19/willie-mays-death-giants-the-pulse/
-
-**Will Jed Hoyer finally add an impact bat to middle of Cubs' order this trade deadline?**\
-`Hoyer wants to see improvement from current Cubs hitters before he entertains the possibility of adding a big bat at the trade deadline.`\
-https://nytimes.com/athletic/5574730/2024/06/19/cubs-trade-deadline-jed-hoyer-approach/
 
