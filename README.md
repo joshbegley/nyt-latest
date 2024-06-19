@@ -1,3 +1,7 @@
+**Leicester close to appointing Cooper as new manager**\
+`Leicester City are close to appointing Steve Cooper as their new manager.`\
+https://nytimes.com/athletic/5575121/2024/06/19/steve-cooper-leicester-manager/
+
 **The Athletic FC: Georgia and the glorious underdogs; Why Lalas isn't in it for the likes**\
 `Today in The Athletic FC: Georgia, Guler and some incredible underdogs. Plus Lalas pulls no punches in our exclusive interview.`\
 https://nytimes.com/athletic/5575323/2024/06/19/georgia-turkey-lalas-likes/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5575383/2024/06/19/ellie-roebuck-barcelona/
 **Aid groups say thousands of tons of supplies remain stranded in southern Gaza because conditions are too dangerous to move it.**\
 `By Vivian Yee and Aaron Boxerman`\
 https://nytimes.com/live/2024/06/19/world/israel-gaza-war-hamas/aid-groups-say-thousands-of-tons-of-supplies-remain-stranded-in-southern-gaza-because-conditions-are-too-dangerous-to-move-it
-
-**Garnacho has divided Argentina... but maybe not for much longer**\
-`The Manchester United winger's skills are beyond doubt, but his life off the field has attracted criticism`\
-https://nytimes.com/athletic/5565977/2024/06/19/alejandro-garnacho-argentina-copa-america/
 
