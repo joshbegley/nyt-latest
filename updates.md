@@ -1,3 +1,7 @@
+**In Chicago, some brave the outdoors despite sweltering temperatures.**\
+`By Robert Chiarito`\
+https://nytimes.com/live/2024/06/19/weather/heat-wave-news/in-chicago-some-brave-the-outdoors-despite-sweltering-temperatures
+
 **Charlie Woods qualifies for U.S. Junior Amateur**\
 `Last fall, Charlie became a high school state golf champion in Florida.`\
 https://nytimes.com/athletic/5576474/2024/06/19/charlie-woods-us-junior-amateur/
