@@ -1,3 +1,19 @@
+**Browns offseason roster observations: How will the QB depth chart shake out?**\
+`Cleveland has depth and experience at several positions, which will make it difficult to earn spots on the final 53-man roster. `\
+https://nytimes.com/athletic/5573547/2024/06/19/cleveland-browns-offseason-roster/
+
+**Paul Skenes, Rhett Lowder and the 2023 College World Series showdown for the ages: 'Like Ali-Frazier'**\
+`It's been nearly a year since Skenes and Lowder battled in a must-win game. 'I don't think I've ever called a better baseball game.'`\
+https://nytimes.com/athletic/5562525/2024/06/19/college-world-series-2023-paul-skenes-rhett-lowder/
+
+**Raptors at NBA draft: Tristan da Silva and 7 other wings who could head to Toronto**\
+`Toronto Raptors could target wings with 19th and 31st picks of NBA Draft.`\
+https://nytimes.com/athletic/5570375/2024/06/19/raptors-nba-draft-tristan-da-silva/
+
+**Euro 2024 group-stage predictions: Goalscorers, results and more tips**\
+`Get the latest insight, predictions and analysis in our Euro 2024 Tips and Tricks series`\
+https://nytimes.com/athletic/5572121/2024/06/19/euro-2024-predictions-group-stage-results-goalscorers/
+
 **Tigers prospect Jace Jung is knocking, but door to the majors might not open just yet**\
 `While Jung is doing many things well, there are reasons he is still in Toledo. His time is coming, but the alarm isn’t blaring quite yet.`\
 https://nytimes.com/athletic/5574115/2024/06/19/tigers-jace-jung-prospect-update/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5573396/2024/06/19/falcons-roster-projection-summer
 **Get Ready for the Longest Day of the Year in the Northern Hemisphere**\
 `We have Earth’s off-kilter tilt to thank for the summer solstice, as well as the different seasons.`\
 https://nytimes.com/article/summer-solstice-2024.html
-
-**Supreme Court Ruling on Bump Stocks Could Open Door to More Lethal Weapons**\
-`The court’s decision has the potential to undercut President Biden’s efforts to restrict other gun accessories that enable semiautomatic rifles to fire at speeds rivaling those of machine guns.`\
-https://nytimes.com/2024/06/19/us/bump-stocks-supreme-court-guns.html
-
-**Is the Supreme Court Running Out the Clock on Trump’s Immunity Case?**\
-`It shouldn’t take so long for the justices to consider an outlandish claim.`\
-https://nytimes.com/2024/06/19/opinion/supreme-court-trump-immunity.html
-
-**The Gay Comedians Who Showed the Way Even if They Weren’t Exactly Out**\
-`Paul Lynde, Charles Nelson Reilly and Rip Taylor get a cursory mention in a new documentary about queer stand-up, but they were groundbreaking.`\
-https://nytimes.com/2024/06/19/movies/outstanding-netflix-paul-lynde-charles-nelson-reilly-rip-taylor.html
-
-**The Profound Unseriousness of J.D. Vance**\
-`If you want to persuade the world that Trump is secretly deep and reasonable, then you have to demonstrate those same qualities.`\
-https://nytimes.com/live/2024/06/18/opinion/thepoint/vance-guns-trump
 
