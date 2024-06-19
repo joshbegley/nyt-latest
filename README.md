@@ -1,3 +1,7 @@
+**As Mets continue to rally and win, their young players are establishing themselves**\
+`Francisco Alvarez and Mark Vientos proved again Tuesday in Texas that they're ready for the big moments.`\
+https://nytimes.com/athletic/5574943/2024/06/19/mets-rally-7-straight-francisco-alvarez/
+
 **Giants react to the death of Willie Mays: 'The things he did we'll never see again'**\
 `"Heavy hearts not only for the Bay Area and New York where he started, but for the baseball world," said Giants manager Bob Melvin.`\
 https://nytimes.com/athletic/5574917/2024/06/19/willie-may-sf-giants-mourning/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5574778/2024/06/19/padres-fernando-tatis-quad-tight
 **Kiwior's decision to stay at Arsenal is paying off for club and country**\
 `It looked like Kiwior might leave Arsenal back in January, but the Poland defender chose not to and has enjoyed an excellent six months`\
 https://nytimes.com/athletic/5558797/2024/06/19/jakub-kiwior-poland-arsenal/
-
-**Willie Mays was baseball, and the world was better because of it**\
-`Willie Mays was everything that made the sport and the country great, and he'll be missed forever.`\
-https://nytimes.com/athletic/5574529/2024/06/19/willie-mays-historical-impact/
 
