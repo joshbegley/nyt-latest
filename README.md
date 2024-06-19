@@ -1,3 +1,7 @@
+**Robert F. Kennedy Jr.’s Conspiracy of Ravens**\
+`The presidential candidate keeps two of the free-minded birds as wild pets. They’re much better behaved than his old emu, Toby, who would attack his wife, Cheryl Hines.`\
+https://nytimes.com/2024/06/19/us/politics/rfk-jr-ravens.html
+
 **Most New York City Pools Are Still Closed as Temperatures Soar**\
 `New Yorkers are sweating through an early heat wave, but the city’s outdoor public pools won’t open until June 27.`\
 https://nytimes.com/2024/06/19/weather/pools-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/19/us/new-mexico-wildfires.html
 **Christopher Bell on managing emotions and dealing with disappointment: 12 Questions**\
 `Christopher Bell talks about keeping it even-mannered on the track, bouncing back after a tough result and much more.`\
 https://nytimes.com/athletic/5571480/2024/06/19/christopher-bell-nascar-emotions-12-questions/
-
-**Leicester close to appointing Cooper as new manager**\
-`Leicester City are close to appointing Steve Cooper as their new manager.`\
-https://nytimes.com/athletic/5575121/2024/06/19/steve-cooper-leicester-manager/
 
