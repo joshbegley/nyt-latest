@@ -1,3 +1,7 @@
+**Canadian police open investigation into Porter betting scandal**\
+`Porter is part of a criminal investigation by the OPP as law enforcement looks into alleged betting impropriety.`\
+https://nytimes.com/athletic/5575906/2024/06/19/jontay-porter-ontario-investigation-betting/
+
 **How much could Knicks' Isaiah Hartenstein make in free agency?**\
 `The Athletic recently polled 16 front-office officials, asking what they would deem a “fair” contract for Hartenstein in free agency.`\
 https://nytimes.com/athletic/5575723/2024/06/19/knicks-isaiah-hartenstein-free-agency/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5575854/2024/06/19/penguins-kirk-macdonald-ahl-coac
 **Why Is Everyone on TikTok Suddenly Going to the Chiropractor?**\
 `Neck cracks and spine adjustments have become a potent social media trend, but some chiropractors fear the videos send the wrong message about the profession.`\
 https://nytimes.com/2024/06/19/us/chiropractor-tiktok-instagram.html
-
-**Brussels refuses to host Belgium-Israel match due to security fears**\
-`The city of Brussels has said it will not host Belgium’s men’s Nations League game against Israel in September due to fears over the safety of players and fans.`\
-https://nytimes.com/athletic/5575784/2024/06/19/belgium-israel-brussels-security/
 
