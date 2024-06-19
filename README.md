@@ -1,3 +1,11 @@
+**Putin’s Presidential Planes: What We Know**\
+`The Kremlin clings to Soviet-designed aircraft even as Russia’s commercial carriers opt for Western planes.`\
+https://nytimes.com/2024/06/19/world/europe/putins-presidential-planes-what-we-know.html
+
+**Battlefield Commander’s Case Goes to Guantánamo Jury**\
+`The panel is deciding a sentence for a prisoner who pleaded guilty to commanding Qaeda and Taliban forces in Afghanistan that carried out war crimes.`\
+https://nytimes.com/2024/06/19/us/politics/afghan-war-commander-guantanamo.html
+
 **Willie Mays, Birmingham and Rickwood Field: Baseball Honors a Legend in His Hometown**\
 `Major League Baseball is in Birmingham to honor the legacy of the Negro Leagues. With Mays’s death, the celebration at ancient Rickwood Field takes on new meaning.`\
 https://nytimes.com/2024/06/19/us/mays-birmingham-barons-rickwood.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5572681/2024/06/19/scotland-1-switzerland-1-shaqiri
 **Euro 2024 day six: Germany advance, MLS history, comedy goals, don't trust world rankings**\
 `What happened on day six of the European Championship in Germany`\
 https://nytimes.com/athletic/5575468/2024/06/19/day-six-euro-2024-mls/
-
-**Thursday Briefing: Russia and North Korea’s Defense Pledge**\
-`Also, the challenges of getting aid into Gaza.`\
-https://nytimes.com/2024/06/19/world/asia/russia-north-korea-pact-gaza-asia.html
-
-**Manuel Neuer offers Germany glimpses of past brilliance but remains a figure under scrutiny**\
-`The Bayern Munich goalkeeper arrived at Euro 2024 after a difficult season and with some calling for Marc-Andre ter Stegen to replace him`\
-https://nytimes.com/athletic/5576641/2024/06/19/neuer-germany-euro2024-bayern/
 
