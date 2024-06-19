@@ -1,7 +1,3 @@
-**Submit your questions for Mark Kaboly's Steelers mailbag**\
-`With the Steelers' offseason program over, it's a great time to submit questions to Mark Kaboly, who will answer some in a mailbag.`\
-https://nytimes.com/athletic/5576217/2024/06/19/steelers-mailbag-offseason/
-
 **Greenwood subject of strong interest from Lazio**\
 `Manchester United&#8217;s Mason Greenwood is the subject of strong interest from Lazio among a number of clubs as speculation continues over his future.`\
 https://nytimes.com/athletic/5576177/2024/06/19/mason-greenwood-lazio/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5576112/2024/06/19/flames-jacob-markstrom-trade-dev
 **Payton II to exercise his player option with Warriors**\
 `The first domino of a challenging Warriors offseason has fallen.`\
 https://nytimes.com/athletic/5573962/2024/06/19/gary-payton-warriors-player-option/
+
+**176 Writing Prompts to Spark Discussion and Reflection**\
+`Here are all of our Student Opinion questions from the 2023-24 school year. Each question is based on a different New York Times article, interactive feature or video.`\
+https://nytimes.com/2024/06/19/learning/176-writing-prompts-to-spark-discussion-and-reflection.html
 
