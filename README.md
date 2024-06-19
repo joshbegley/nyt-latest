@@ -1,3 +1,23 @@
+**NBA Player Tiers: Tyrese Haliburton, Tyrese Maxey and Tier 3's All-Star level of play**\
+`These players have a heightened level of play in the regular season while also being durable against the demands of the playoffs.`\
+https://nytimes.com/athletic/5572480/2024/06/19/nba-player-tiers-tyrese-haliburton-tyrese-maxey-all-star/
+
+**Canada's fun is over as Marsch demands discipline at Copa: 'We have to grow up'**\
+`Before taking on some of the world's best at Copa America, Jesse Marsch is demanding a new approach from Canada's men's team`\
+https://nytimes.com/athletic/5573055/2024/06/19/canada-jesse-marsch-copa-america/
+
+**Johnny Cardoso, USMNT's very own Brazilian: 'I'm representing a country my parents love'**\
+`If Johnny Cardoso does well at Copa America, there might soon be a few mumbles of discontent in Brazil that he was able to slip the net...`\
+https://nytimes.com/athletic/5479278/2024/06/19/johnny-cardoso-usmnt-brazilian/
+
+**‘Black Barbie: A Documentary’ Review: Becoming the Main Character**\
+`A new Netflix documentary explores what led to the release of Black Barbie in 1980, both celebrating her existence and recognizing her limitations.`\
+https://nytimes.com/2024/06/19/movies/black-barbie-a-documentary-review.html
+
+**Chargers free-agent film review: Gus Edwards, J.K. Dobbins bring overhaul at running back**\
+`The Chargers didn't have to break the bank and added a complementary pairing very familiar to their coaching staff and front office.`\
+https://nytimes.com/athletic/5563957/2024/06/19/chargers-gus-edwards-jk-dobbins-film-review/
+
 **The Pulse: RIP to the best baseball player ever**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5574023/2024/06/19/willie-mays-death-giants-the-pulse/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5575212/2024/06/19/wimbledon-wildcards-emma-raducan
 **The Guardians have a starting pitching problem and no ideal ways to fix it**\
 `After a shaky outing from Triston McKenzie, it's clear that the Guardians need starting pitching help fast. `\
 https://nytimes.com/athletic/5574591/2024/06/19/guardians-starting-pitching-struggles-analysis/
-
-**Twins place Alex Kirilloff on IL ahead of comeback win**\
-`After being optioned to Triple A, Kirilloff fessed up that a sore lower back was worse than he originally let on.`\
-https://nytimes.com/athletic/5574894/2024/06/19/twins-comeback-win-alex-kirilloff/
-
-**How the Oilers got closer to making epic Stanley Cup Final feat a reality**\
-`The massive hole Edmonton is trying to overcome in this championship round doesn’t feel insurmountable.`\
-https://nytimes.com/athletic/5574936/2024/06/19/oilers-stanley-cup-final-game-5/
-
-**Blue Jackets embark on another coaching search, looking for an NHL veteran**\
-`Don Waddell said he wants to hire a coach with NHL experience, which brought the names of seven potential candidates to mind.`\
-https://nytimes.com/athletic/5574006/2024/06/19/blue-jackets-coach-waddell/
-
-**Bucks mailbag, Part 2: Will Doc Rivers play rookies? A dive into the numbers**\
-`The Bucks will need to find contributors on rookie deals next season. "This is a huge summer," Rivers said of Milwaukee's young players.`\
-https://nytimes.com/athletic/5546919/2024/06/19/bucks-doc-rivers-rookies/
-
-**Alexi Lalas and Stu Holden - bold, opinionated but never just 'fine'**\
-`Former USMNT players Alexi Lalas and Stuart Holden have high expectations for the Copa America - and themselves as Fox Sports pundits`\
-https://nytimes.com/athletic/5570585/2024/06/19/lalas-holden-fox-usmnt-copa-america/
 
