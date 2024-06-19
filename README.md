@@ -1,3 +1,11 @@
+**Osaka, Kerber headline Wimbledon wildcard selections**\
+`Grand Slam champions Naomi Osaka, Angelique Kerber and Caroline Wozniacki have been given Wimbledon wildcards but the 2019 winner Simona Halep, who is back from a drugs ban, has been overlooked.`\
+https://nytimes.com/athletic/5575212/2024/06/19/osaka-kerber-raducanu-wimbledon/
+
+**The Guardians have a starting pitching problem and no ideal ways to fix it**\
+`After a shaky outing from Triston McKenzie, it's clear that the Guardians need starting pitching help fast. `\
+https://nytimes.com/athletic/5574591/2024/06/19/guardians-starting-pitching-struggles-analysis/
+
 **Twins place Alex Kirilloff on IL ahead of comeback win**\
 `After being optioned to Triple A, Kirilloff fessed up that a sore lower back was worse than he originally let on.`\
 https://nytimes.com/athletic/5574894/2024/06/19/twins-comeback-win-alex-kirilloff/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/19/crosswords/connections-companion-375.html
 **Three reasons why the Maple Leafs should keep and use the No. 23 pick in the NHL Draft**\
 `Given recent draft success and some league trends, the Leafs should keep adding to their prospect cupboard.`\
 https://nytimes.com/athletic/5562093/2024/06/19/three-reasons-why-the-maple-leafs-should-keep-and-use-the-no-23-pick-in-the-nhl-draft/
-
-**Brad Pitt's F1 movie to be released in June 2025**\
-`The Formula One-inspired movie starring Hollywood actor Brad Pitt, which Lewis Hamilton has co-produced, will be released next June.`\
-https://nytimes.com/athletic/5575042/2024/06/19/brad-pitt-lewis-hamilton-f1-movie/
-
-**Browns offseason roster observations: How will the QB depth chart shake out?**\
-`Cleveland has depth and experience at several positions, which will make it difficult to earn spots on the final 53-man roster. `\
-https://nytimes.com/athletic/5573547/2024/06/19/cleveland-browns-offseason-roster/
 
