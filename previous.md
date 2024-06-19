@@ -1,3 +1,7 @@
+**Thursday Briefing: Russia and North Korea’s Defense Pledge**\
+`Also, the challenges of getting aid into Gaza.`\
+https://nytimes.com/2024/06/19/world/asia/russia-north-korea-pact-gaza-asia.html
+
 **Manuel Neuer offers Germany glimpses of past brilliance but remains a figure under scrutiny**\
 `The Bayern Munich goalkeeper arrived at Euro 2024 after a difficult season and with some calling for Marc-Andre ter Stegen to replace him`\
 https://nytimes.com/athletic/5576641/2024/06/19/neuer-germany-euro2024-bayern/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/19/world/asia/putin-russia-vietnam-visit.html
 **Everton's Lewis Dobbin in talks over Aston Villa transfer**\
 `Everton winger Lewis Dobbin has held positive talks over a transfer to Aston Villa.`\
 https://nytimes.com/athletic/5576574/2024/06/19/lewis-dobbin-everton-aston-villa-transfer/
-
-**'This is Albania; it’s a bit crazy': Outsiders making Group B rivals sweat**\
-`Few will have expected them to be Group B's most combative element, yet Albania – ranked 66th in the world – have left the big boys worried`\
-https://nytimes.com/athletic/5570712/2024/06/19/albania-croatia-group-b/
 

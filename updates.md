@@ -1,3 +1,7 @@
+**Thursday Briefing: Russia and North Korea’s Defense Pledge**\
+`Also, the challenges of getting aid into Gaza.`\
+https://nytimes.com/2024/06/19/world/asia/russia-north-korea-pact-gaza-asia.html
+
 **Manuel Neuer offers Germany glimpses of past brilliance but remains a figure under scrutiny**\
 `The Bayern Munich goalkeeper arrived at Euro 2024 after a difficult season and with some calling for Marc-Andre ter Stegen to replace him`\
 https://nytimes.com/athletic/5576641/2024/06/19/neuer-germany-euro2024-bayern/
