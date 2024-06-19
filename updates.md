@@ -1,3 +1,7 @@
+**Yankees' Aaron Judge leaves game after HBP**\
+`Judge initially stayed in the game but was removed for a pinch hitter an inning after the HBP.`\
+https://nytimes.com/athletic/5574488/2024/06/18/yankees-aaron-judge-hit-in-hand-leaves-game/
+
 **Remembering Willie Mays as Both Untouchable and Human**\
 `Mays, who died on Tuesday at 93, had been perfect for so long that the shock of seeing baseball get the best of him was the shock of seeing a god become mortal.`\
 https://nytimes.com/2024/06/18/us/willie-mays-death-baseball-legacy.html

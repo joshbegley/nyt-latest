@@ -18,7 +18,7 @@ https://nytimes.com/athletic/5574449/2024/06/18/commanders-season-ticket-settlem
 `Giants announce all-time great Willie Mays passed away peacefully on Tuesday afternoon`\
 https://nytimes.com/athletic/3070070/2024/06/18/willie-mays-obituary-giants/
 
-**Yankees' Aaron Judge leaves game after getting hit by pitch**\
+**Yankees' Aaron Judge leaves game after HBP**\
 `Judge initially stayed in the game but was removed for a pinch hitter an inning after the HBP.`\
 https://nytimes.com/athletic/5574488/2024/06/18/yankees-aaron-judge-hit-in-hand-leaves-game/
 
