@@ -1,3 +1,7 @@
+**Euro 2024 odds for Thursday's three group matches including Spain-Italy, England-Denmark**\
+`Thursday's Euro 2024 slate features some enticing matchups, including Spain vs. Italy and England vs. Denmark.`\
+https://nytimes.com/athletic/5573581/2024/06/19/euro-2024-odds-spain-italy-england-denmark/
+
 **At ‘Playgrounds of Privilege,’ a Reporter Takes the Pulse of Power**\
 `Jacob Bernstein, a reporter on the Styles desk, writes about philanthropists, media magnates and other social connectors in New York City.`\
 https://nytimes.com/2024/06/19/insider/jacob-bernstein-reporting.html
