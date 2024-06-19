@@ -1,3 +1,11 @@
+**MLB Draft Combine notes: Kellon Lindsey on the rise, Jared Jones shows out in BP**\
+`Lindsey has drawn Trea Turner comps and the two-sport star has seen his game take off since deciding to focus solely on baseball.`\
+https://nytimes.com/athletic/5576313/2024/06/19/mlb-draft-combine-kellon-lindsey-jared-jones/
+
+**How does the Markstrom trade shape Ullmark's value?**\
+`The Bruins may have to accept the reality of a muted trade market when it comes to Ullmark.`\
+https://nytimes.com/athletic/5576375/2024/06/19/jacob-markstrom-linus-ullmark-devils-trade/
+
 **The Briefing: Germany 2 Hungary 0 - Nagelsmann's tactics, Neuer's revival and Germany through**\
 `Our writers analyse and evaluate the key talking points from Germany's 2-0 victory over Hungary in Stuttgart `\
 https://nytimes.com/athletic/5572677/2024/06/19/germany-hungary-euro-2024-briefing/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5576254/2024/06/19/nhl-trade-grades-devils-jacob-ma
 **Villa agree deal with Chelsea to sign Maatsen**\
 `Aston Villa have agreed a deal with Chelsea to sign left-back Ian Maatsen.`\
 https://nytimes.com/athletic/5558866/2024/06/19/ian-maatsen-aston-villa-transfer-chelsea/
-
-**'He was Willie Mays': Remembering the best player of the generation that electrified baseball**\
-`If you love the game, you’re grateful for Mays and all he brought to it.`\
-https://nytimes.com/athletic/5576106/2024/06/19/willie-mays-generational-player-baseball/
-
-**How Heat Affects the Brain**\
-`High temperatures can make us miserable. Research shows they also make us aggressive, impulsive and dumb.`\
-https://nytimes.com/2024/06/19/well/mind/heat-affect-brain-emotions.html
 
