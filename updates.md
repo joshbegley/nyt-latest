@@ -1,3 +1,19 @@
+**Ricardo M. Urbina, Trailblazing Latino Judge in Capital, Dies at 79**\
+`Before being appointed to the bench in Washington, he was a track star who became a symbol of discrimination against Black athletes.`\
+https://nytimes.com/2024/06/19/us/ricardo-urbina-dead.html
+
+**Cubs DFA Yan Gomes, sign Tomás Nido in attempt to address catching problems**\
+`Nido, who was released by the New York Mets this week, should be an upgrade.`\
+https://nytimes.com/athletic/5576142/2024/06/19/cubs-yan-gomes-tomas-nido/
+
+**‘Pre-Existing Condition’ Review: Recovering From a Traumatic Relationship**\
+`Marin Ireland’s play opens with Tatiana Maslany in a rotating cast of stars, and “What Became of Us” continues its own experiment with changing casts.`\
+https://nytimes.com/2024/06/19/theater/pre-existing-condition-review-marin-ireland.html
+
+**Murray retires injured in Queen's second round**\
+`In what was likely his final match at Queen's Club, Andy Murray saw a back spasm derail `\
+https://nytimes.com/athletic/5576115/2024/06/19/andy-murray-injury-queens/
+
 **Flames trade goalie Jacob Markström to Devils**\
 `Markström, who spent the last four seasons with the Flames, was 23-23-2 in 2023-24`\
 https://nytimes.com/athletic/5576112/2024/06/19/flames-jacob-markstrom-trade-devils/
