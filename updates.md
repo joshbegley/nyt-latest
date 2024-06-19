@@ -1,3 +1,11 @@
+**Remembering Willie Mays as Both Untouchable and Human**\
+`Mays, who died on Tuesday at 93, had been perfect for so long that the shock of seeing baseball get the best of him was the shock of seeing a god become mortal.`\
+https://nytimes.com/2024/06/18/us/willie-mays-death-baseball-legacy.html
+
+**How Well Do You Know the N.Y.C. Subway?**\
+`The New York City subway is arguably the most famous transit network in America. How well do you know it? Take our quiz to find out.`\
+https://nytimes.com/interactive/2024/06/18/nyregion/nyc-subway-quiz.html
+
 **Willie Mays, Electrifying Player of Power and Grace, Dies at 93**\
 `Mays, the Say Hey Kid, was the exuberant embodiment of the complete ballplayer. Some say he was the greatest of them all.`\
 https://nytimes.com/2024/06/18/sports/willie-mays-dead.html
