@@ -1,3 +1,19 @@
+**Life With Alzheimer’s: Families’ Stories**\
+`Readers recount their experiences coping with the disease. Also: A mother’s dementia; the B.D.S. movement; dangers of factory farms.`\
+https://nytimes.com/2024/06/19/opinion/alzheimers-dementia-eldercare.html
+
+**Colorful, Cooling Country Panzanella With Watermelon Dressing**\
+`Toasted bread, tomatoes and watermelon are tossed with a piquant dressing that’s made from both the sweet watermelon flesh and tangy rind.`\
+https://nytimes.com/2024/06/19/dining/panzanella.html
+
+**With the Help of Whales, a Choreographer Falls Into an Abyss**\
+`Mayfield Brooks explores grief and decomposition in the hull of a 19th-century cargo ship.`\
+https://nytimes.com/2024/06/19/arts/dance/mayfield-brooks-whale-fall-abyss-wavertree.html
+
+**Do We Need Language to Think?**\
+`A group of neuroscientists argue that our words are primarily for communicating, not for reasoning.`\
+https://nytimes.com/2024/06/19/science/brain-language-thought.html
+
 **Penguins name Kirk MacDonald coach of AHL affiliate**\
 `MacDonald never played in the NHL though he is a veteran of several AHL seasons as a player.
 `\
@@ -22,20 +38,4 @@ https://nytimes.com/athletic/5574510/2024/06/19/patrik-laine-nhl-trade-targets/
 **Kristaps Porziņģis found a home — and ring — in Boston by continuing to embrace change**\
 `The past year could have looked a lot different had the 7-foot-2 center stayed in his comfort zone.`\
 https://nytimes.com/athletic/5573339/2024/06/19/boston-celtics-kristaps-porzingis-nba-finals/
-
-**Are Planes Safe Right Now? How to Understand Flight Disruptions.**\
-`You should expect the unexpected while flying, but few disruptions should provoke serious concern, aviation experts say.`\
-https://nytimes.com/2024/06/19/business/airplane-safety-flight-problems.html
-
-**Who could be the next Pistons' head coach? Here are a few candidates**\
-`Names to keep an eye on for head coach as the Pistons continue to press reset on their basketball operations.`\
-https://nytimes.com/athletic/5519039/2024/06/19/detroit-pistons-coaching-candidates/
-
-**Italy won't make 'huge mistake' of overestimating Spain - Spalletti**\
-`Luciano Spalletti says Italy will &#8220;play our own game&#8221; against Spain and won&#8217;t make the &#8220;huge mistake&#8221; of overestimating their Group B rivals.`\
-https://nytimes.com/athletic/5575737/2024/06/19/italy-spain-spalletti/
-
-**E.U. Warns France Over ‘Excessive’ Deficit, Adding to Political Risks**\
-`The rebuke for breaking European Union rules that require strict financial discipline comes two weeks before French voters head to the polls for parliamentary elections.`\
-https://nytimes.com/2024/06/19/business/france-budget-deficit-macron.html
 
