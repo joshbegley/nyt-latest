@@ -1,3 +1,15 @@
+**Italy won't make 'huge mistake' of overestimating Spain - Spalletti**\
+`Luciano Spalletti says Italy will &#8220;play our own game&#8221; against Spain and won&#8217;t make the &#8220;huge mistake&#8221; of overestimating their Group B rivals.`\
+https://nytimes.com/athletic/5575737/2024/06/19/italy-spain-spalletti/
+
+**E.U. Warns France Over ‘Excessive’ Deficit, Adding to Political Risks**\
+`The rebuke for breaking European Union rules that require strict financial discipline comes two weeks before French voters head to the polls for parliamentary elections.`\
+https://nytimes.com/2024/06/19/business/france-budget-deficit-macron.html
+
+**Pacers, Siakam agree to 4-year, $189.5 million max contract**\
+`Siakam, 30, joined the Pacers in January via a trade after seven-plus seasons with the Toronto Raptors.`\
+https://nytimes.com/athletic/5575672/2024/06/19/pascal-siakam-contract-pacers/
+
 **Harrison close to rejoining Everton on loan from Leeds**\
 `Jack Harrison is close to joining Everton on another season long loan from Leeds United.`\
 https://nytimes.com/athletic/5575613/2024/06/19/jack-harrison-everton-leeds-transfer/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/19/us/politics/senate-democrats-republicans-guns-ivf
 **A Deadly Toll as an Intense Heat Grips Saudi Arabia**\
 `Reports from official media in the Middle East and Africa suggest that dozens of people died during this year’s hajj pilgrimage as temperatures soared.`\
 https://nytimes.com/2024/06/19/world/europe/hajj-deaths-mecca-heat.html
-
-**Robert F. Kennedy Jr.’s Conspiracy of Ravens**\
-`The presidential candidate keeps two of the free-minded birds as wild pets. They’re much better behaved than his old emu, Toby, who would attack his wife, Cheryl Hines.`\
-https://nytimes.com/2024/06/19/us/politics/rfk-jr-ravens.html
-
-**Most New York City Pools Are Still Closed as Temperatures Soar**\
-`New Yorkers are sweating through an early heat wave, but the city’s outdoor public pools won’t open until June 27.`\
-https://nytimes.com/2024/06/19/weather/pools-nyc.html
-
-**As Panthers drop Game 5 to McDavid's Oilers, the pressure mounts and the momentum shifts**\
-`The Panthers still own a 3-2 series lead, but the Oilers are surely feeling capable of rallying back from the dead as they head to Edmonton.`\
-https://nytimes.com/athletic/5574878/2024/06/19/panthers-oilers-mcdavid-nhl-stanley-cup-final/
 
