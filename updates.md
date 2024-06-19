@@ -1,3 +1,5 @@
+**A French court says a weapons show can’t bar Israeli exhibitors, and other news.**\
+
 **A French court says a weapons show can’t bar Israeli companies, and other news.**\
 
 **In a State Notorious for Political Scandal, Signs of Change Emerge**\
