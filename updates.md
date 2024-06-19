@@ -1,3 +1,11 @@
+**By trading Pierre-Luc Dubois, the Kings admit their error and solve another problem**\
+`L.A. traded Dubois, once hoped to be a centerpiece of their future, after one season for goalie Darcy Kuemper.`\
+https://nytimes.com/athletic/5577102/2024/06/19/dubois-kuemper-trade-kings-capitals/
+
+**Unrelenting Heat Stifles Millions of Americans for 3rd Consecutive Day**\
+`As the heat wave moved east, the Northeast felt the brunt of the conditions. But forecasters provided a glimmer of relief, saying “conditions should improve over New England” this weekend.`\
+https://nytimes.com/2024/06/19/weather/heat-wave-northeast-midwest.html
+
 **For some in Cincinnati, escaping the heat is not an easy option.**\
 `By Kevin Williams`\
 https://nytimes.com/live/2024/06/19/weather/heat-wave-news/for-some-in-cincinnati-escaping-the-heat-is-not-an-easy-option
