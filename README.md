@@ -1,3 +1,7 @@
+**Padres salvage important win but still must approach trade deadline with caution**\
+`General manager A.J. Preller may have to learn from red-hot Jackson Merrill and know when to — and when not to — take a big swing.`\
+https://nytimes.com/athletic/5577111/2024/06/19/padres-trade-deadline-jackson-merrill-aj-preller/
+
 **A rookie in the NWSL MVP race?: Full Time**\
 `Plus, a look at the Seattle Reign sale.`\
 https://nytimes.com/athletic/5577162/2024/06/19/a-rookie-in-the-nwsl-mvp-race-full-time/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/19/world/europe/putins-presidential-planes-what-we-k
 **Battlefield Commander’s Case Goes to Guantánamo Jury**\
 `The panel is deciding a sentence for a prisoner who pleaded guilty to commanding Qaeda and Taliban forces in Afghanistan that carried out war crimes.`\
 https://nytimes.com/2024/06/19/us/politics/afghan-war-commander-guantanamo.html
-
-**Willie Mays, Birmingham and Rickwood Field: Baseball Honors a Legend in His Hometown**\
-`Major League Baseball is in Birmingham to honor the legacy of the Negro Leagues. With Mays’s death, the celebration at ancient Rickwood Field takes on new meaning.`\
-https://nytimes.com/2024/06/19/us/mays-birmingham-barons-rickwood.html
 
