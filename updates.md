@@ -13,6 +13,11 @@ https://nytimes.com/athletic/5575854/2024/06/19/penguins-kirk-macdonald-ahl-coac
 `\
 https://nytimes.com/athletic/5575854/2024/06/19/penguins-kirk-macdonald-ahl-coach/
 
+**Penguins name Kirk MacDonald coach of AHL affiliate**\
+`MacDonald never played in the NHL though he is a veteran of several AHL seasons as a player.
+`\
+https://nytimes.com/athletic/5575854/2024/06/19/penguins-kirk-macdonald-ahl-coach/
+
 **The Briefing: Croatia 2 Albania 2 - How did Croatia turn it around? Unluckiest own goal? Can Albania go through?**\
 `Our writers break down all the action from a thrilling draw in Group B.`\
 https://nytimes.com/athletic/5572674/2024/06/19/croatia-albania-euro-2024/
