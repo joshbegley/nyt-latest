@@ -1,3 +1,7 @@
+**Ricardo M. Urbina, Trailblazing Latino Judge in Capital, Dies at 79**\
+`Before being appointed to the bench in Washington, he was a track star who became a symbol of discrimination against Black athletes.`\
+https://nytimes.com/2024/06/19/us/ricardo-urbina-dead.html
+
 **Cubs DFA Yan Gomes, sign Tomás Nido in attempt to address catching problems**\
 `Nido, who was released by the New York Mets this week, should be an upgrade.`\
 https://nytimes.com/athletic/5576142/2024/06/19/cubs-yan-gomes-tomas-nido/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5571457/2024/06/19/oilers-ken-holland-stanley-cup-f
 **Copa America 2024 data guide: Three ex-Leeds managers, two 17-year-olds and one Argentinian outlier**\
 `Oldest squad, youngest player, most goals per cap, and a lot of Argentinian managers – what the data says about Copa America 2024`\
 https://nytimes.com/athletic/5573062/2024/06/19/copa-america-2024-data-guide/
-
-**Slot says Klopp gave him 'good tips' for Liverpool job**\
-`Arne Slot says he sought advice from his predecessor Jurgen Klopp before officially beginning his reign as Liverpool head coach.`\
-https://nytimes.com/athletic/5575887/2024/06/19/arne-slot-liverpool-interview/
 
