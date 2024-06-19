@@ -1,3 +1,12 @@
+**Commanders offseason wrap-up: Coaches preparing Jayden Daniels for the challenge ahead**\
+`Plus, why the team's receivers must do a better job of creating separation. And taking a closer look at Washington's front office overhaul. `\
+https://nytimes.com/athletic/5574296/2024/06/19/commanders-offseason-training-camp-jayden-daniels/
+
+**The Remasters: The Beauty of Analog with Mark Ronson**\
+`In this first episode, Zoe Abelson interviews Mark Ronson, a prolific D.J. and producer, about his early club days in New York, how he created “Dance the Night” for the “Barbie” film and the drum machine that started it all.
+`\
+https://nytimes.com/paidpost/audemars-piguet/the-remasters/the-remasters-the-beauty-of-analog-with-mark-ronson.html
+
 **Kawakami: Willie Mays, the Bay Area's original and untouchable immortal**\
 `In 1958, Southern California got the Dodgers and Northern California got Willie Mays. Yeah, the Bay Area did OK with that one.`\
 https://nytimes.com/athletic/5574587/2024/06/19/willie-mays-giants-bay-area-legend-kawakami/

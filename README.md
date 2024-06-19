@@ -1,3 +1,7 @@
+**Woods granted lifetime entry into PGA Tour events**\
+`Tiger Woods has been awarded a lifetime exemption by the PGA Tour to enter all of its future signature events, beginning next year.`\
+https://nytimes.com/athletic/5575368/2024/06/19/tiger-woods-pga-tour-lifetime/
+
 **Commanders offseason wrap-up: Coaches preparing Jayden Daniels for the challenge ahead**\
 `Plus, why the team's receivers must do a better job of creating separation. And taking a closer look at Washington's front office overhaul. `\
 https://nytimes.com/athletic/5574296/2024/06/19/commanders-offseason-training-camp-jayden-daniels/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5575344/2024/06/19/joe-montemurro-lyon/
 **Johnston: In the biggest game of his career, Connor McDavid rises to the moment**\
 `McDavid has willed the Oilers back into the Stanley Cup Final with back-to-back four-point games: "The guy is the best in the world."`\
 https://nytimes.com/athletic/5575046/2024/06/19/connor-mcdavid-oilers-stanley-cup-final-nhl/
-
-**NBA Player Tiers: Tyrese Haliburton, Tyrese Maxey and Tier 3's All-Star level of play**\
-`These players have a heightened level of play in the regular season while also being durable against the demands of the playoffs.`\
-https://nytimes.com/athletic/5572480/2024/06/19/nba-player-tiers-tyrese-haliburton-tyrese-maxey-all-star/
 
