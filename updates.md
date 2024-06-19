@@ -1,3 +1,7 @@
+**Three reasons why the Maple Leafs should keep and use the No. 23 pick in the NHL Draft**\
+`Given recent draft success and some league trends, the Leafs should keep adding to their prospect cupboard.`\
+https://nytimes.com/athletic/5562093/2024/06/19/three-reasons-why-the-maple-leafs-should-keep-and-use-the-no-23-pick-in-the-nhl-draft/
+
 **Brad Pitt's F1 movie to be released in June 2025**\
 `The Formula One-inspired movie starring Hollywood actor Brad Pitt, which Lewis Hamilton has co-produced, will be released next June.`\
 https://nytimes.com/athletic/5575042/2024/06/19/brad-pitt-lewis-hamilton-f1-movie/
