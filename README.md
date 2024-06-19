@@ -1,3 +1,7 @@
+**Sparks star rookie Cameron Brink exits game vs. Sun with knee injury**\
+`Brink was recently named to the USA 3x3 Olympic team. `\
+https://nytimes.com/athletic/5574435/2024/06/18/cameron-brink-injury-sparks/
+
 **Trump Whistle-Blower Wins House Primary in Virginia**\
 `Yevgeny Vindman, who raised alarms about then-President Donald J. Trump’s conduct toward Ukraine, will stand for Abigail Spanberger’s seat in Congress as a Democrat.`\
 https://nytimes.com/2024/06/18/us/politics/eugene-vindman-virginia-house-primary.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/18/world/israel-gaza-war-hamas/a-ship-attacked-
 **In Legal Peril, Seattle’s ‘Belltown Hellcat’ Is Ordered to Yield**\
 `A driver whose roaring Dodge Charger has plagued Seattle residents said he was working to modify the car. Still, city officials won an $83,000 judgment against him.`\
 https://nytimes.com/2024/06/18/us/seattle-belltown-hellcat-judgment.html
-
-**In the History of United States Heat Waves, 1936 Stands Out**\
-`Thousands died and people slept on roofs to cope with the early heat wave, which was supercharged by agricultural practices.`\
-https://nytimes.com/2024/06/18/weather/heat-wave-us-history.html
 
