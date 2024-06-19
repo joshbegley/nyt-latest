@@ -1,3 +1,15 @@
+**Which Big Ten teams won and lost in college basketball's transfer portal?**\
+`The Big Ten will be a new-look basketball league in 2024-25, with the addition of four teams and a long list of transfer portal movement.`\
+https://nytimes.com/athletic/5572303/2024/06/19/big-ten-college-basketball-transfer-portal/
+
+**Lyon Women set to appoint Montemurro as new coach coach**\
+`Lyon are set to hire former Arsenal and Juventus manager Joe Montemurro as their new head coach.`\
+https://nytimes.com/athletic/5575344/2024/06/19/joe-montemurro-lyon/
+
+**Johnston: In the biggest game of his career, Connor McDavid rises to the moment**\
+`McDavid has willed the Oilers back into the Stanley Cup Final with back-to-back four-point games: "The guy is the best in the world."`\
+https://nytimes.com/athletic/5575046/2024/06/19/connor-mcdavid-oilers-stanley-cup-final-nhl/
+
 **NBA Player Tiers: Tyrese Haliburton, Tyrese Maxey and Tier 3's All-Star level of play**\
 `These players have a heightened level of play in the regular season while also being durable against the demands of the playoffs.`\
 https://nytimes.com/athletic/5572480/2024/06/19/nba-player-tiers-tyrese-haliburton-tyrese-maxey-all-star/
