@@ -1,3 +1,7 @@
+**Villa agree deal with Chelsea to sign Maatsen**\
+`Aston Villa have agreed a deal with Chelsea to sign left-back Ian Maatsen.`\
+https://nytimes.com/athletic/5558866/2024/06/19/ian-maatsen-aston-villa-transfer-chelsea/
+
 **'He was Willie Mays': Remembering the best player of the generation that electrified baseball**\
 `If you love the game, you’re grateful for Mays and all he brought to it.`\
 https://nytimes.com/athletic/5576106/2024/06/19/willie-mays-generational-player-baseball/
