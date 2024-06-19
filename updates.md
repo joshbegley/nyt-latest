@@ -1,3 +1,7 @@
+**Patrik Laine trade destinations: 8 teams that could (or should) be interested**\
+`The Blue Jackets are looking to find a trade partner for Laine, which may come with some challenges. What are the NHL's best options?`\
+https://nytimes.com/athletic/5574510/2024/06/19/patrik-laine-nhl-trade-targets/
+
 **Kristaps Porziņģis found a home — and ring — in Boston by continuing to embrace change**\
 `The past year could have looked a lot different had the 7-foot-2 center stayed in his comfort zone.`\
 https://nytimes.com/athletic/5573339/2024/06/19/boston-celtics-kristaps-porzingis-nba-finals/

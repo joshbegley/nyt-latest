@@ -1,3 +1,7 @@
+**Group of Austrians Picks 77 Charities to Receive Heiress’s Fortune**\
+`Marlene Engelhorn, a descendant of the founder of one of the world’s largest chemical companies, decided to give away most of her inheritance.`\
+https://nytimes.com/2024/06/19/world/europe/marlene-engelhorn-heiress-fortune.html
+
 **Patrik Laine trade destinations: 8 teams that could (or should) be interested**\
 `The Blue Jackets are looking to find a trade partner for Laine, which may come with some challenges. What are the NHL's best options?`\
 https://nytimes.com/athletic/5574510/2024/06/19/patrik-laine-nhl-trade-targets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5575613/2024/06/19/jack-harrison-everton-leeds-tran
 **My Date Recorded Us Having Sex Without My Consent. Should I Report Them?**\
 `The Magazine’s Ethicist columnist on boundaries in friendship and other intimate relationships.`\
 https://nytimes.com/2024/06/19/magazine/my-date-recorded-us-having-sex-without-my-consent-should-i-report-them.html
-
-**Is Murray Hill’s Showbiz Dream Finally Coming True?**\
-`For years he wowed ’em in the clubs with his drag-king lounge act. Now, against all odds, he’s breaking out.`\
-https://nytimes.com/2024/06/19/style/murray-hill-showbiz-netflix-somebody-somewhere.html
 
