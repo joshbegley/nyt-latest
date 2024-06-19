@@ -1,3 +1,7 @@
+**Willie Mays, baseball’s electrifying ‘Say Hey Kid,’ dies at 93**\
+`Giants announce all-time great Willie Mays passed away peacefully on Tuesday afternoon`\
+https://nytimes.com/athletic/3070070/2024/06/18/willie-mays-obituary-giants/
+
 **Yankees' Aaron Judge leaves game after getting hit by pitch**\
 `Judge initially stayed in the game but was removed for a pinch hitter an inning after the HBP.`\
 https://nytimes.com/athletic/5574488/2024/06/18/yankees-aaron-judge-hit-in-hand-leaves-game/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/18/nyregion/syracuse-house-collapse.html
 **How Capitalism Went Off the Rails**\
 `Easy money destroyed the basis for productive, competitive markets.`\
 https://nytimes.com/2024/06/18/opinion/capitalism-inflation.html
-
-**She Walked in Beauty: The Subtle Seductiveness of Anouk Aimée**\
-`The French star created characters who could be fantasies or enigmas, but they always intrigued, even when she was miscast in Hollywood.`\
-https://nytimes.com/2024/06/18/movies/anouk-aimee-career.html
 
