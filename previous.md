@@ -1,3 +1,7 @@
+**Regan Smith reclaims WR in women’s 100m backstroke at Olympic trials**\
+`Smith surpassed Australian Kaylee McKeown’s world record time of 57.33. `\
+https://nytimes.com/athletic/5574418/2024/06/18/regan-smith-world-record-us-olympic-swim-trials/
+
 **Tom Cole, House G.O.P. Spending Chief, Prevails Against Right-Wing Challenger**\
 `The veteran Republican faced a right-wing challenger who sought to make his powerful post on the committee that controls federal spending into a political liability.`\
 https://nytimes.com/2024/06/18/world/europe/tom-cole-primary-oklahoma-bondar.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/18/movies/anouk-aimee-career.html
 **Amazon Is Fined Nearly $6 Million Over Warehouse Work Quotas**\
 `California officials cited failures to disclose productivity requirements at two locations. The company said it would appeal.`\
 https://nytimes.com/2024/06/18/business/economy/amazon-california-productivity-quota.html
-
-**A ship attacked by the Houthis goes down in the Red Sea.**\
-`By Anjana Sankar`\
-https://nytimes.com/live/2024/06/18/world/israel-gaza-war-hamas/a-ship-attacked-by-the-houthis-goes-down-in-the-red-sea
 
