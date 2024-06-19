@@ -1,3 +1,7 @@
+**The Briefing: Scotland 1 Switzerland 1: Shaqiri's stunner, own goal confusion, Tierney's agony**\
+`Scotland and Switzerland played out a pulsating draw in Cologne - The Athletic assesses the talking points`\
+https://nytimes.com/athletic/5572681/2024/06/19/scotland-1-switzerland-1-shaqiri-own-goal/
+
 **Euro 2024 day six: Germany advance, an MLS strike, comedy goals, don't trust world rankings**\
 `What happened on day six of the European Championship in Germany`\
 https://nytimes.com/athletic/5575468/2024/06/19/day-six-euro-2024-mls/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/19/briefing/ask-the-morning-anything.html
 **Shaqiri becomes first MLS player to score at a Euros**\
 `Xherdan Shaqiri became the first Major League Soccer player to score at a European Championship with his goal for Switzerland against Scotland.`\
 https://nytimes.com/athletic/5576718/2024/06/19/xherdan-shaqiri-euro-2024-goal-mls/
-
-**Why Is Putin Traveling to Vietnam?**\
-`President Vladimir V. Putin arrived in Hanoi keen to maintain the longstanding military ties between Russia and Vietnam, as Hanoi has developed deeper bonds with Washington.`\
-https://nytimes.com/2024/06/19/world/asia/putin-russia-vietnam-visit.html
 
