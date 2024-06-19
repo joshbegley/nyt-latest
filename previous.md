@@ -1,4 +1,4 @@
-**By trading Pierre-Luc Dubois, the Kings admit their error and solve another problem**\
+**By trading Pierre-Luc Dubois, the Kings admit their error and address another problem**\
 `L.A. traded Dubois, once hoped to be a centerpiece of their future, after one season for goalie Darcy Kuemper.`\
 https://nytimes.com/athletic/5577102/2024/06/19/dubois-kuemper-trade-kings-capitals/
 
