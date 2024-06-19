@@ -1,3 +1,7 @@
+**The Pulse: RIP to the best baseball player ever**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5574023/2024/06/19/willie-mays-death-giants-the-pulse/
+
 **Will Jed Hoyer finally add an impact bat to middle of Cubs' order this trade deadline?**\
 `Hoyer wants to see improvement from current Cubs hitters before he entertains the possibility of adding a big bat at the trade deadline.`\
 https://nytimes.com/athletic/5574730/2024/06/19/cubs-trade-deadline-jed-hoyer-approach/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5546919/2024/06/19/bucks-doc-rivers-rookies/
 **Alexi Lalas and Stu Holden - bold, opinionated but never just 'fine'**\
 `Former USMNT players Alexi Lalas and Stuart Holden have high expectations for the Copa America - and themselves as Fox Sports pundits`\
 https://nytimes.com/athletic/5570585/2024/06/19/lalas-holden-fox-usmnt-copa-america/
-
-**Wordle Review No. 1,097, June 20, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/06/19/crosswords/wordle-review-1097.html
 
