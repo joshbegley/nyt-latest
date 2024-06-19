@@ -1,3 +1,15 @@
+**Kings trade Dubois to Capitals for Kuemper**\
+`No salary is retained on either side of the deal, per league sources.`\
+https://nytimes.com/athletic/5576566/2024/06/19/kings-capitals-trade-dubois-kuemper/
+
+**What’s in Our Queue? ‘Hacks’ and More**\
+`I’m a politics reporter covering the Southeast for The New York Times. Here are a few things I’m reading, watching and listening to in regular rotation.`\
+https://nytimes.com/interactive/2024/06/19/arts/editors-recommendations-hacks.html
+
+**Trump Tries to Set Expectations, and Floats Excuses, for His Debate With Biden**\
+`The former president has set a low bar for President Biden’s performance at next week’s matchup. Now, he is preparing supporters for the possibility that Mr. Biden clears it.`\
+https://nytimes.com/2024/06/19/us/politics/trump-biden-debate-expectations.html
+
 **Trotter: Monty Williams' failure in Detroit was predestined. Ownership chose not to see it**\
 `Going back to his introduction — when he cited money as a key factor in taking the job — it was hard to believe Williams was fully invested.`\
 https://nytimes.com/athletic/5576373/2024/06/19/detroit-pistons-monty-williams-nba-tom-gores/
