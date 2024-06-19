@@ -1,3 +1,7 @@
+**Euro 2024 day six: Germany advance, an MLS strike, comedy goals, don't trust world rankings**\
+`What happened on day six of the European Championship in Germany`\
+https://nytimes.com/athletic/5575468/2024/06/19/day-six-euro-2024-mls/
+
 **Thursday Briefing: Russia and North Korea’s Defense Pledge**\
 `Also, the challenges of getting aid into Gaza.`\
 https://nytimes.com/2024/06/19/world/asia/russia-north-korea-pact-gaza-asia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5576718/2024/06/19/xherdan-shaqiri-euro-2024-goal-m
 **Why Is Putin Traveling to Vietnam?**\
 `President Vladimir V. Putin arrived in Hanoi keen to maintain the longstanding military ties between Russia and Vietnam, as Hanoi has developed deeper bonds with Washington.`\
 https://nytimes.com/2024/06/19/world/asia/putin-russia-vietnam-visit.html
-
-**Everton's Lewis Dobbin in talks over Aston Villa transfer**\
-`Everton winger Lewis Dobbin has held positive talks over a transfer to Aston Villa.`\
-https://nytimes.com/athletic/5576574/2024/06/19/lewis-dobbin-everton-aston-villa-transfer/
 

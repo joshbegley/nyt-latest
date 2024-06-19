@@ -1,3 +1,7 @@
+**Euro 2024 day six: Germany advance, an MLS strike, comedy goals, don't trust world rankings**\
+`What happened on day six of the European Championship in Germany`\
+https://nytimes.com/athletic/5575468/2024/06/19/day-six-euro-2024-mls/
+
 **Thursday Briefing: Russia and North Korea’s Defense Pledge**\
 `Also, the challenges of getting aid into Gaza.`\
 https://nytimes.com/2024/06/19/world/asia/russia-north-korea-pact-gaza-asia.html
