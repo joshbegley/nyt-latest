@@ -1,3 +1,7 @@
+**Christopher Bell on managing emotions and dealing with disappointment: 12 Questions**\
+`Christopher Bell talks about keeping it even-mannered on the track, bouncing back after a tough result and much more.`\
+https://nytimes.com/athletic/5571480/2024/06/19/christopher-bell-nascar-emotions-12-questions/
+
 **Leicester close to appointing Cooper as new manager**\
 `Leicester City are close to appointing Steve Cooper as their new manager.`\
 https://nytimes.com/athletic/5575121/2024/06/19/steve-cooper-leicester-manager/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5574587/2024/06/19/willie-mays-giants-bay-area-lege
 **Ellie Roebuck joins Barcelona from Manchester City**\
 `Barcelona have completed the signing of England goalkeeper Ellie Roebuck on a free transfer.`\
 https://nytimes.com/athletic/5575383/2024/06/19/ellie-roebuck-barcelona/
-
-**Aid groups say thousands of tons of supplies remain stranded in southern Gaza because conditions are too dangerous to move it.**\
-`By Vivian Yee and Aaron Boxerman`\
-https://nytimes.com/live/2024/06/19/world/israel-gaza-war-hamas/aid-groups-say-thousands-of-tons-of-supplies-remain-stranded-in-southern-gaza-because-conditions-are-too-dangerous-to-move-it
 
