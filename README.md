@@ -2,7 +2,7 @@
 `Tiger Woods has been awarded a lifetime exemption by the PGA Tour to enter all of its future signature events, beginning next year.`\
 https://nytimes.com/athletic/5575368/2024/06/19/tiger-woods-pga-tour-lifetime/
 
-**Commanders offseason wrap-up: Coaches preparing Jayden Daniels for the challenge ahead**\
+**Commanders offseason wrap-up: Coaches slowly preparing Jayden Daniels for what's ahead**\
 `Plus, why the team's receivers must do a better job of creating separation. And taking a closer look at Washington's front office overhaul. `\
 https://nytimes.com/athletic/5574296/2024/06/19/commanders-offseason-training-camp-jayden-daniels/
 
