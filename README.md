@@ -1,3 +1,7 @@
+**Kings trade Dubois to Capitals for Kuemper**\
+`No salary is retained on either side of the deal, per league sources.`\
+https://nytimes.com/athletic/5576566/2024/06/19/kings-capitals-trade-dubois-kuemper/
+
 **What’s in Our Queue? ‘Hacks’ and More**\
 `I’m a politics reporter covering the Southeast for The New York Times. Here are a few things I’m reading, watching and listening to in regular rotation.`\
 https://nytimes.com/interactive/2024/06/19/arts/editors-recommendations-hacks.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5576471/2024/06/19/usa-cricket-world-cup-south-afri
 **Who is Chelsea target Omorodion and would he fit Maresca's system?**\
 `Omorodion is technically gifted and versatile enough to fit Maresca's system - and at 20, he fits Chelsea's recruitment strategy.`\
 https://nytimes.com/athletic/5576228/2024/06/19/chelsea-transfer-samu-omorodion/
-
-**Shaw out of England's Denmark game - Southgate**\
-`Gareth Southgate has confirmed Luke Shaw will play no part in England&#8217;s European Championship game against Denmark on Thursday.`\
-https://nytimes.com/athletic/5576476/2024/06/19/luke-shaw-injury-denmark/
 
