@@ -1,3 +1,12 @@
+**Penguins name Kirk MacDonald coach of AHL affiliate**\
+`MacDonald never played in the NHL though he is a veteran of several AHL seasons as a player.
+`\
+https://nytimes.com/athletic/5575854/2024/06/19/penguins-kirk-macdonald-ahl-coach/
+
+**Why Is Everyone on TikTok Suddenly Going to the Chiropractor?**\
+`Neck cracks and spine adjustments have become a potent social media trend, but some chiropractors fear the videos send the wrong message about the profession.`\
+https://nytimes.com/2024/06/19/us/chiropractor-tiktok-instagram.html
+
 **Brussels refuses to host Belgium-Israel match due to security fears**\
 `The city of Brussels has said it will not host Belgium’s men’s Nations League game against Israel in September due to fears over the safety of players and fans.`\
 https://nytimes.com/athletic/5575784/2024/06/19/belgium-israel-brussels-security/
@@ -29,12 +38,4 @@ https://nytimes.com/athletic/5575737/2024/06/19/italy-spain-spalletti/
 **E.U. Warns France Over ‘Excessive’ Deficit, Adding to Political Risks**\
 `The rebuke for breaking European Union rules that require strict financial discipline comes two weeks before French voters head to the polls for parliamentary elections.`\
 https://nytimes.com/2024/06/19/business/france-budget-deficit-macron.html
-
-**Pacers, Siakam agree to 4-year, $189.5 million max contract**\
-`Siakam, 30, joined the Pacers in January via a trade after seven-plus seasons with the Toronto Raptors.`\
-https://nytimes.com/athletic/5575672/2024/06/19/pascal-siakam-contract-pacers/
-
-**Harrison close to rejoining Everton on loan from Leeds**\
-`Jack Harrison is close to joining Everton on another season long loan from Leeds United.`\
-https://nytimes.com/athletic/5575613/2024/06/19/jack-harrison-everton-leeds-transfer/
 
