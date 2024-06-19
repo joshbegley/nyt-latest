@@ -1,3 +1,7 @@
+**Trump Whistle-Blower Wins House Primary in Virginia**\
+`Yevgeny Vindman, who raised alarms about then-President Donald J. Trump’s conduct toward Ukraine, will stand for Abigail Spanberger’s seat in Congress as a Democrat.`\
+https://nytimes.com/2024/06/18/us/politics/eugene-vindman-virginia-house-primary.html
+
 **Gazans are living amid 39 million tons of debris, the U.N. says.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/06/18/world/israel-gaza-war-hamas/gazans-are-living-amid-39-million-tons-of-debris-the-un-says
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/18/us/seattle-belltown-hellcat-judgment.html
 **In the History of United States Heat Waves, 1936 Stands Out**\
 `Thousands died and people slept on roofs to cope with the early heat wave, which was supercharged by agricultural practices.`\
 https://nytimes.com/2024/06/18/weather/heat-wave-us-history.html
-
-**Small Step Could Bring Big Relief to Young Undocumented Immigrants**\
-`A new Biden administration measure enables “Dreamers” to get work visas that could free them from relying on the DACA program, whose survival is in doubt.`\
-https://nytimes.com/2024/06/18/us/biden-immigration-daca-dreamers.html
 

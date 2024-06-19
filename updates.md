@@ -1,3 +1,7 @@
+**Trump Whistle-Blower Wins House Primary in Virginia**\
+`Yevgeny Vindman, who raised alarms about then-President Donald J. Trump’s conduct toward Ukraine, will stand for Abigail Spanberger’s seat in Congress as a Democrat.`\
+https://nytimes.com/2024/06/18/us/politics/eugene-vindman-virginia-house-primary.html
+
 **Gazans are living amid 39 million tons of debris, the U.N. says.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/06/18/world/israel-gaza-war-hamas/gazans-are-living-amid-39-million-tons-of-debris-the-un-says
