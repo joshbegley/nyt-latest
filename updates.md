@@ -1,3 +1,7 @@
+**Manuel Neuer offers Germany glimpses of past brilliance but remains a figure under scrutiny**\
+`The Bayern Munich goalkeeper arrived at Euro 2024 after a difficult season and with some calling for Marc-Andre ter Stegen to replace him`\
+https://nytimes.com/athletic/5576641/2024/06/19/neuer-germany-euro2024-bayern/
+
 **In Chicago, some brave the outdoors despite sweltering temperatures.**\
 `By Robert Chiarito`\
 https://nytimes.com/live/2024/06/19/weather/heat-wave-news/in-chicago-some-brave-the-outdoors-despite-sweltering-temperatures

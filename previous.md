@@ -1,3 +1,7 @@
+**Manuel Neuer offers Germany glimpses of past brilliance but remains a figure under scrutiny**\
+`The Bayern Munich goalkeeper arrived at Euro 2024 after a difficult season and with some calling for Marc-Andre ter Stegen to replace him`\
+https://nytimes.com/athletic/5576641/2024/06/19/neuer-germany-euro2024-bayern/
+
 **In Chicago, some brave the outdoors despite sweltering temperatures.**\
 `By Robert Chiarito`\
 https://nytimes.com/live/2024/06/19/weather/heat-wave-news/in-chicago-some-brave-the-outdoors-despite-sweltering-temperatures
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5576574/2024/06/19/lewis-dobbin-everton-aston-villa
 **'This is Albania; it’s a bit crazy': Outsiders making Group B rivals sweat**\
 `Few will have expected them to be Group B's most combative element, yet Albania – ranked 66th in the world – have left the big boys worried`\
 https://nytimes.com/athletic/5570712/2024/06/19/albania-croatia-group-b/
-
-**George Kittle, his 49ers teammates and the detailed focus of 2024 Tight End U**\
-`Kittle's fourth installment of Tight End U reflects the continued growth of the position's importance in today's NFL passing offenses.`\
-https://nytimes.com/athletic/5575651/2024/06/19/49ers-george-kittle-tight-end-u/
 
