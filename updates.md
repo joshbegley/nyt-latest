@@ -1,3 +1,11 @@
+**How Heat Affects the Brain**\
+`High temperatures can make us miserable. Research shows they also make us aggressive, impulsive and dumb.`\
+https://nytimes.com/2024/06/19/well/mind/heat-affect-brain-emotions.html
+
+**How Has a Ban on Smartphones in Schools Affected You?**\
+`We want to hear from you — students, parents and teachers — about a growing push to limit smartphone usage in schools.`\
+https://nytimes.com/2024/06/19/us/politics/smartphone-ban-schools-callout.html
+
 **Amid Military Recruitment Challenges, Congress Debates Changes to the Draft**\
 `Republicans and Democrats are weighing proposals to expand military conscription to women and make registration automatic. Both proposals face an uphill path to becoming law.`\
 https://nytimes.com/2024/06/19/us/politics/military-draft-women.html
