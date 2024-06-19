@@ -1,3 +1,12 @@
+**Commanders offseason wrap-up: Coaches preparing Jayden Daniels for the challenge ahead**\
+`Plus, why the team's receivers must do a better job of creating separation. And taking a closer look at Washington's front office overhaul. `\
+https://nytimes.com/athletic/5574296/2024/06/19/commanders-offseason-training-camp-jayden-daniels/
+
+**The Remasters: The Beauty of Analog with Mark Ronson**\
+`In this first episode, Zoe Abelson interviews Mark Ronson, a prolific D.J. and producer, about his early club days in New York, how he created “Dance the Night” for the “Barbie” film and the drum machine that started it all.
+`\
+https://nytimes.com/paidpost/audemars-piguet/the-remasters/the-remasters-the-beauty-of-analog-with-mark-ronson.html
+
 **Kawakami: Willie Mays, the Bay Area's original and untouchable immortal**\
 `In 1958, Southern California got the Dodgers and Northern California got Willie Mays. Yeah, the Bay Area did OK with that one.`\
 https://nytimes.com/athletic/5574587/2024/06/19/willie-mays-giants-bay-area-legend-kawakami/
@@ -29,12 +38,4 @@ https://nytimes.com/athletic/5575046/2024/06/19/connor-mcdavid-oilers-stanley-cu
 **NBA Player Tiers: Tyrese Haliburton, Tyrese Maxey and Tier 3's All-Star level of play**\
 `These players have a heightened level of play in the regular season while also being durable against the demands of the playoffs.`\
 https://nytimes.com/athletic/5572480/2024/06/19/nba-player-tiers-tyrese-haliburton-tyrese-maxey-all-star/
-
-**Canada's fun is over as Marsch demands discipline at Copa: 'We have to grow up'**\
-`Before taking on some of the world's best at Copa America, Jesse Marsch is demanding a new approach from Canada's men's team`\
-https://nytimes.com/athletic/5573055/2024/06/19/canada-jesse-marsch-copa-america/
-
-**Johnny Cardoso, USMNT's very own Brazilian: 'I'm representing a country my parents love'**\
-`If Johnny Cardoso does well at Copa America, there might soon be a few mumbles of discontent in Brazil that he was able to slip the net...`\
-https://nytimes.com/athletic/5479278/2024/06/19/johnny-cardoso-usmnt-brazilian/
 
