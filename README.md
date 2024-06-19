@@ -1,3 +1,7 @@
+**Nancy Pelosi Meets With Dalai Lama, Despite China’s Criticism**\
+`The former House speaker joined a congressional delegation that met with the Tibetan spiritual leader at his home in India. China calls him a separatist.`\
+https://nytimes.com/2024/06/18/world/asia/pelosi-dalai-lama.html
+
 **Which players are at risk of suspension at Euro 2024?**\
 `Kylian Mbappe received a bizarre yellow card during France&#8217;s 1-0 win against Austria at the European Championship after breaking his nose.`\
 https://nytimes.com/athletic/5572073/2024/06/18/euro-2024-yellow-cards-ban-suspensions/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/18/us/politics/virginia-10th-district-suhas-subraman
 **Remembering Willie Mays as Both Untouchable and Human**\
 `Mays, who died on Tuesday at 93, had been perfect for so long that the shock of seeing baseball get the best of him was the shock of seeing a god become mortal.`\
 https://nytimes.com/2024/06/18/us/willie-mays-death-baseball-legacy.html
-
-**How Well Do You Know the N.Y.C. Subway?**\
-`The New York City subway is arguably the most famous transit network in America. How well do you know it? Take our quiz to find out.`\
-https://nytimes.com/interactive/2024/06/18/nyregion/nyc-subway-quiz.html
 
