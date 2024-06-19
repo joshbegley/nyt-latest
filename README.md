@@ -1,3 +1,7 @@
+**Drance: What Filip Hronek's extension tells us about the Canucks' offseason plans**\
+`Hronek's extension reinforces the specific brand of aggression that has become typical and characteristic of this Canucks front office.`\
+https://nytimes.com/athletic/5574426/2024/06/18/canucks-filip-hronek-extension/
+
 **Democratic State Senator Emerges From Nasty House Primary in Virginia**\
 `Suhas Subramanyam had the endorsement of Representative Jennifer Wexton, who is retiring.`\
 https://nytimes.com/2024/06/18/us/politics/virginia-10th-district-suhas-subramanyam.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5574418/2024/06/18/regan-smith-world-record-us-olym
 **Tom Cole, House G.O.P. Spending Chief, Prevails Against Right-Wing Challenger**\
 `The veteran Republican faced a right-wing challenger who sought to make his powerful post on the committee that controls federal spending into a political liability.`\
 https://nytimes.com/2024/06/18/world/europe/tom-cole-primary-oklahoma-bondar.html
-
-**Sparks star rookie Cameron Brink exits game vs. Sun with knee injury**\
-`Brink was recently named to the USA 3x3 Olympic team. `\
-https://nytimes.com/athletic/5574435/2024/06/18/cameron-brink-injury-sparks/
 
