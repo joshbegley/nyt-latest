@@ -1,3 +1,7 @@
+**Louisiana Requires Ten Commandments to Be Displayed in Every Public Classroom**\
+`A law signed by Gov. Jeff Landry on Wednesday makes the state the only one with such a mandate. Critics have vowed to mount a constitutional challenge.`\
+https://nytimes.com/2024/06/19/us/lousiana-ten-commandments-classrooms.html
+
 **OpenAI Co-Founder, Who Helped Oust Sam Altman, Starts His Own Company**\
 `Ilya Sutskever’s new start-up, Safe Superintelligence, aims to build A.I. technologies that are smarter than a human but not dangerous.`\
 https://nytimes.com/2024/06/19/technology/ilya-sutskever-openai-safe-superintelligence.html
@@ -14,6 +18,10 @@ https://nytimes.com/athletic/5576499/2024/06/19/ranger-suarez-pitch-children-phi
 `The United States fell to defeat by South Africa in the opening game of the Super Eight phase of the T20 World Cup.`\
 https://nytimes.com/athletic/5576471/2024/06/19/usa-cricket-world-cup-south-africa/
 
+**Who is Chelsea target Omorodion and would he fit Maresca's system?**\
+`Omorodion is technically gifted and versatile enough to fit Maresca's system - and at 20, he fits Chelsea's recruitment strategy.`\
+https://nytimes.com/athletic/5576228/2024/06/19/chelsea-transfer-samu-omorodion/
+
 **Shaw out of England's Denmark game - Southgate**\
 `Gareth Southgate has confirmed Luke Shaw will play no part in England&#8217;s European Championship game against Denmark on Thursday.`\
 https://nytimes.com/athletic/5576476/2024/06/19/luke-shaw-injury-denmark/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/06/19/world/israel-gaza-war-hamas/without-a-plan-f
 **MLB Draft Combine notes: Kellon Lindsey on the rise, Jared Jones shows out in BP**\
 `Lindsey has drawn Trea Turner comps and the two-sport star has seen his game take off since deciding to focus solely on baseball.`\
 https://nytimes.com/athletic/5576313/2024/06/19/mlb-draft-combine-kellon-lindsey-jared-jones/
-
-**How does the Markstrom trade shape Ullmark's value?**\
-`The Bruins may have to accept the reality of a muted trade market when it comes to Ullmark.`\
-https://nytimes.com/athletic/5576375/2024/06/19/jacob-markstrom-linus-ullmark-devils-trade/
-
-**The Briefing: Germany 2 Hungary 0 - Nagelsmann's tactics, Neuer's revival and hosts through**\
-`Our writers analyse and evaluate the key talking points from Germany's 2-0 victory over Hungary in Stuttgart `\
-https://nytimes.com/athletic/5572677/2024/06/19/germany-hungary-euro-2024-briefing/
 
