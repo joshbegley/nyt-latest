@@ -1,3 +1,19 @@
+**My Date Recorded Us Having Sex Without My Consent. Should I Report Them?**\
+`The Magazine’s Ethicist columnist on boundaries in friendship and other intimate relationships.`\
+https://nytimes.com/2024/06/19/magazine/my-date-recorded-us-having-sex-without-my-consent-should-i-report-them.html
+
+**Is Murray Hill’s Showbiz Dream Finally Coming True?**\
+`For years he wowed ’em in the clubs with his drag-king lounge act. Now, against all odds, he’s breaking out.`\
+https://nytimes.com/2024/06/19/style/murray-hill-showbiz-netflix-somebody-somewhere.html
+
+**My Future Was Never Set in Stone**\
+`You can try your hardest to run away from your fears, but you can’t hide from them forever.`\
+https://nytimes.com/2024/06/19/special-series/alexi-pappas-fear-depression-olympics.html
+
+**Pistons fire Monty Williams: Sources**\
+`Pistons owner Tom Gores made the call to move on from Williams over last 24 hours, per team sources.`\
+https://nytimes.com/athletic/5575692/2024/06/19/monty-williams-fired-pistons/
+
 **It’s Unanimous: In the Senate, Neither Party Consents to the Other’s Ideas**\
 `Democrats sought to quickly reinstate a ban on gun bump stocks after a Supreme Court ruling. It was the latest Senate floor fight to end in a predictable stalemate.`\
 https://nytimes.com/2024/06/19/us/politics/senate-democrats-republicans-guns-ivf.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5574878/2024/06/19/panthers-oilers-mcdavid-nhl-stan
 **The United States is facing hotter heat waves, but one of the worst was in 1936.**\
 `By Tim Balk`\
 https://nytimes.com/live/2024/06/19/weather/heat-wave-news/the-united-states-is-facing-hotter-heat-waves-but-one-of-the-worst-was-in-1936
-
-**It’s Time to Ban Pharmaceutical Advertising**\
-`There are too many drug ads on social media to ever regulate them properly, and ads drive up prescription costs.`\
-https://nytimes.com/2024/06/19/opinion/tiktok-telehealth.html
-
-**Getting Real With the Dallas Cowboys Cheerleaders**\
-`Kelli Finglass, the director of the dance squad, sits down for a discussion of the new Netflix series “America’s Sweethearts.”`\
-https://nytimes.com/2024/06/19/style/americas-sweethearts-dallas-cowboys-cheerleaders.html
-
-**Why Are My Parents Handling College Costs So Differently for My Sibling?**\
-`A reader who was made to choose a college based on price is struggling to understand her parents’ support of her younger sister at an expensive private school.`\
-https://nytimes.com/2024/06/19/style/parents-siblings-unequal-treatment-favoritism.html
-
-**Russia Sentences U.S. Soldier to 4 Years in Prison**\
-`Staff Sgt. Gordon Black was accused of making death threats against, and stealing money from, a woman with whom he was romantically involved.`\
-https://nytimes.com/2024/06/19/world/europe/russia-us-soldier-gordon-black.html
 
