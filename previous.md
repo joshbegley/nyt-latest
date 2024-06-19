@@ -1,3 +1,7 @@
+**At ‘Playgrounds of Privilege,’ a Reporter Takes the Pulse of Power**\
+`Jacob Bernstein, a reporter on the Styles desk, writes about philanthropists, media magnates and other social connectors in New York City.`\
+https://nytimes.com/2024/06/19/insider/jacob-bernstein-reporting.html
+
 **The Briefing: Scotland 1 Switzerland - Shaqiri's stunner, own goal confusion, Tierney's agony**\
 `Scotland and Switzerland played out a pulsating draw in Cologne - The Athletic assesses the talking points`\
 https://nytimes.com/athletic/5572681/2024/06/19/scotland-1-switzerland-1-shaqiri-own-goal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5576585/2024/06/19/kings-capitals-trade-grades-pl-d
 **Ask The Morning Anything**\
 `Do you have questions about The Morning newsletter? Or about the news? We want to hear them.`\
 https://nytimes.com/2024/06/19/briefing/ask-the-morning-anything.html
-
-**Shaqiri becomes first MLS player to score at a Euros**\
-`Xherdan Shaqiri became the first Major League Soccer player to score at a European Championship with his goal for Switzerland against Scotland.`\
-https://nytimes.com/athletic/5576718/2024/06/19/xherdan-shaqiri-euro-2024-goal-mls/
 
