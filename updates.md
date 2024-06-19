@@ -1,3 +1,7 @@
+**Targets of Pull-Down Exercises, in Brief**\
+`Brad Wiegmann has new takes on old wisdom.`\
+https://nytimes.com/2024/06/18/crosswords/daily-puzzle-2024-06-19.html
+
 **Race and Israel Take Center Stage in Final Bowman-Latimer Debate**\
 `Representative Jamaal Bowman of New York sought to portray his challenger, George Latimer, as a pawn of a major pro-Israel lobby.`\
 https://nytimes.com/2024/06/18/nyregion/bowman-latimer-debate.html
