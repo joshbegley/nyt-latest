@@ -1,3 +1,7 @@
+**Who could be the next Pistons' head coach? Here are a few candidates**\
+`Names to keep an eye on for head coach as the Pistons continue to press reset on their basketball operations.`\
+https://nytimes.com/athletic/5519039/2024/06/19/detroit-pistons-coaching-candidates/
+
 **Italy won't make 'huge mistake' of overestimating Spain - Spalletti**\
 `Luciano Spalletti says Italy will &#8220;play our own game&#8221; against Spain and won&#8217;t make the &#8220;huge mistake&#8221; of overestimating their Group B rivals.`\
 https://nytimes.com/athletic/5575737/2024/06/19/italy-spain-spalletti/
