@@ -1,3 +1,7 @@
+**Nancy Pelosi Meets With Dalai Lama, Despite China’s Criticism**\
+`The former House speaker joined a congressional delegation that met with the Tibetan spiritual leader at his home in India. China calls him a separatist.`\
+https://nytimes.com/2024/06/18/world/asia/pelosi-dalai-lama.html
+
 **Which players are at risk of suspension at Euro 2024?**\
 `Kylian Mbappe received a bizarre yellow card during France&#8217;s 1-0 win against Austria at the European Championship after breaking his nose.`\
 https://nytimes.com/athletic/5572073/2024/06/18/euro-2024-yellow-cards-ban-suspensions/
