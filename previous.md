@@ -1,3 +1,7 @@
+**Democratic State Senator Emerges From Nasty House Primary in Virginia**\
+`Suhas Subramanyam had the endorsement of Representative Jennifer Wexton, who is retiring.`\
+https://nytimes.com/2024/06/18/us/politics/virginia-10th-district-suhas-subramanyam.html
+
 **Remembering Willie Mays as Both Untouchable and Human**\
 `Mays, who died on Tuesday at 93, had been perfect for so long that the shock of seeing baseball get the best of him was the shock of seeing a god become mortal.`\
 https://nytimes.com/2024/06/18/us/willie-mays-death-baseball-legacy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/18/world/europe/tom-cole-primary-oklahoma-bondar.htm
 **Sparks star rookie Cameron Brink exits game vs. Sun with knee injury**\
 `Brink was recently named to the USA 3x3 Olympic team. `\
 https://nytimes.com/athletic/5574435/2024/06/18/cameron-brink-injury-sparks/
-
-**Trump Whistle-Blower Wins House Primary in Virginia**\
-`Yevgeny Vindman, who raised alarms about then-President Donald J. Trump’s conduct toward Ukraine, will stand for Abigail Spanberger’s seat in Congress as a Democrat.`\
-https://nytimes.com/2024/06/18/us/politics/eugene-vindman-virginia-house-primary.html
 
