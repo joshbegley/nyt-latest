@@ -1,3 +1,7 @@
+**'This is Albania; it’s a bit crazy': Outsiders making Group B rivals sweat**\
+`Few will have expected them to be Group B's most combative element, yet Albania – ranked 66th in the world – have left the big boys worried`\
+https://nytimes.com/athletic/5570712/2024/06/19/albania-croatia-group-b/
+
 **Kings-Capitals trade grades: Fresh starts for Pierre-Luc Dubois and Darcy Kuemper**\
 `The Kings and Capitals swapped problematic contracts and addressed positions of need at the same time.`\
 https://nytimes.com/athletic/5576585/2024/06/19/kings-capitals-trade-grades-pl-dubois-darcy-kuemper/
