@@ -1,3 +1,7 @@
+**Yankees' Aaron Judge leaves game after getting hit by pitch**\
+`Judge initially stayed in the game but was removed for a pinch hitter an inning after the HBP.`\
+https://nytimes.com/athletic/5574488/2024/06/18/yankees-aaron-judge-hit-in-hand-leaves-game/
+
 **Regan Smith reclaims WR in women’s 100m backstroke at Olympic trials**\
 `Smith surpassed Australian Kaylee McKeown’s world record time of 57.33. `\
 https://nytimes.com/athletic/5574418/2024/06/18/regan-smith-world-record-us-olympic-swim-trials/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/18/opinion/capitalism-inflation.html
 **She Walked in Beauty: The Subtle Seductiveness of Anouk Aimée**\
 `The French star created characters who could be fantasies or enigmas, but they always intrigued, even when she was miscast in Hollywood.`\
 https://nytimes.com/2024/06/18/movies/anouk-aimee-career.html
-
-**Amazon Is Fined Nearly $6 Million Over Warehouse Work Quotas**\
-`California officials cited failures to disclose productivity requirements at two locations. The company said it would appeal.`\
-https://nytimes.com/2024/06/18/business/economy/amazon-california-productivity-quota.html
 

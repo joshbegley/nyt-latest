@@ -1,3 +1,7 @@
+**Yankees' Aaron Judge leaves game after getting hit by pitch**\
+`Judge initially stayed in the game but was removed for a pinch hitter an inning after the HBP.`\
+https://nytimes.com/athletic/5574488/2024/06/18/yankees-aaron-judge-hit-in-hand-leaves-game/
+
 **Regan Smith reclaims WR in women’s 100m backstroke at Olympic trials**\
 `Smith surpassed Australian Kaylee McKeown’s world record time of 57.33. `\
 https://nytimes.com/athletic/5574418/2024/06/18/regan-smith-world-record-us-olympic-swim-trials/
