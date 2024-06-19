@@ -1,3 +1,11 @@
+**Osaka, Kerber headline Wimbledon wildcard selections**\
+`Grand Slam champions Naomi Osaka, Angelique Kerber and Caroline Wozniacki have been given Wimbledon wildcards but the 2019 winner Simona Halep, who is back from a drugs ban, has been overlooked.`\
+https://nytimes.com/athletic/5575212/2024/06/19/osaka-kerber-raducanu-wimbledon/
+
+**The Guardians have a starting pitching problem and no ideal ways to fix it**\
+`After a shaky outing from Triston McKenzie, it's clear that the Guardians need starting pitching help fast. `\
+https://nytimes.com/athletic/5574591/2024/06/19/guardians-starting-pitching-struggles-analysis/
+
 **Twins place Alex Kirilloff on IL ahead of comeback win**\
 `After being optioned to Triple A, Kirilloff fessed up that a sore lower back was worse than he originally let on.`\
 https://nytimes.com/athletic/5574894/2024/06/19/twins-comeback-win-alex-kirilloff/
