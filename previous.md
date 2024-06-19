@@ -1,3 +1,7 @@
+**Brussels refuses to host Belgium-Israel match due to security fears**\
+`The city of Brussels has said it will not host Belgium’s men’s Nations League game against Israel in September due to fears over the safety of players and fans.`\
+https://nytimes.com/athletic/5575784/2024/06/19/belgium-israel-brussels-security/
+
 **Group of Austrians Picks 77 Charities to Receive Heiress’s Fortune**\
 `Marlene Engelhorn, a descendant of the founder of one of the world’s largest chemical companies, decided to give away most of her inheritance.`\
 https://nytimes.com/2024/06/19/world/europe/marlene-engelhorn-heiress-fortune.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5575672/2024/06/19/pascal-siakam-contract-pacers/
 **Harrison close to rejoining Everton on loan from Leeds**\
 `Jack Harrison is close to joining Everton on another season long loan from Leeds United.`\
 https://nytimes.com/athletic/5575613/2024/06/19/jack-harrison-everton-leeds-transfer/
-
-**My Date Recorded Us Having Sex Without My Consent. Should I Report Them?**\
-`The Magazine’s Ethicist columnist on boundaries in friendship and other intimate relationships.`\
-https://nytimes.com/2024/06/19/magazine/my-date-recorded-us-having-sex-without-my-consent-should-i-report-them.html
 
