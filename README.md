@@ -1,3 +1,15 @@
+**The Athletic FC: Georgia and the glorious underdogs; Why Lalas isn't in it for the likes**\
+`Today in The Athletic FC: Georgia, Guler and some incredible underdogs. Plus Lalas pulls no punches in our exclusive interview.`\
+https://nytimes.com/athletic/5575323/2024/06/19/georgia-turkey-lalas-likes/
+
+**Tears, pre-announcements, vanishing into thin air: The new rules of tennis retirement**\
+`As a golden tennis era transitions into its next guise, when, how, and why to retire is one of the biggest questions in the sport`\
+https://nytimes.com/athletic/5572180/2024/06/19/tennis-retirement-how-to-federer-nadal-serena-williams-giorgi/
+
+**The Ducks need a top-six winger — which free agents or trade targets might they consider?**\
+`The Ducks finished 30th in the NHL in scoring this season, so now it's time to complement a solid group of centers.`\
+https://nytimes.com/athletic/5573861/2024/06/19/anaheim-ducks-free-agent-trade-winger/
+
 **Woods granted lifetime entry into PGA Tour events**\
 `Tiger Woods has been awarded a lifetime exemption by the PGA Tour to enter all of its future signature events, beginning next year.`\
 https://nytimes.com/athletic/5575368/2024/06/19/tiger-woods-pga-tour-lifetime/
@@ -26,16 +38,4 @@ https://nytimes.com/live/2024/06/19/world/israel-gaza-war-hamas/aid-groups-say-t
 **Garnacho has divided Argentina... but maybe not for much longer**\
 `The Manchester United winger's skills are beyond doubt, but his life off the field has attracted criticism`\
 https://nytimes.com/athletic/5565977/2024/06/19/alejandro-garnacho-argentina-copa-america/
-
-**Which Big Ten teams won and lost in college basketball's transfer portal?**\
-`The Big Ten will be a new-look basketball league in 2024-25, with the addition of four teams and a long list of transfer portal movement.`\
-https://nytimes.com/athletic/5572303/2024/06/19/big-ten-college-basketball-transfer-portal/
-
-**Lyon Women set to appoint Montemurro as new coach coach**\
-`Lyon are set to hire former Arsenal and Juventus manager Joe Montemurro as their new head coach.`\
-https://nytimes.com/athletic/5575344/2024/06/19/joe-montemurro-lyon/
-
-**Johnston: In the biggest game of his career, Connor McDavid rises to the moment**\
-`McDavid has willed the Oilers back into the Stanley Cup Final with back-to-back four-point games: "The guy is the best in the world."`\
-https://nytimes.com/athletic/5575046/2024/06/19/connor-mcdavid-oilers-stanley-cup-final-nhl/
 
