@@ -1,3 +1,7 @@
+**How Well Do You Know the N.Y.C. Subway?**\
+`The New York City subway is arguably the most famous transit network in America. How well do you know it? Take our quiz to find out.`\
+https://nytimes.com/interactive/2024/06/18/nyregion/nyc-subway-quiz.html
+
 **Willie Mays, Electrifying Player of Power and Grace, Dies at 93**\
 `Mays, the Say Hey Kid, was the exuberant embodiment of the complete ballplayer. Some say he was the greatest of them all.`\
 https://nytimes.com/2024/06/18/sports/willie-mays-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/18/us/politics/eugene-vindman-virginia-house-primary
 **Gazans are living amid 39 million tons of debris, the U.N. says.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/06/18/world/israel-gaza-war-hamas/gazans-are-living-amid-39-million-tons-of-debris-the-un-says
-
-**California Moves to Modify Law Letting Workers Sue Employers**\
-`Gov. Gavin Newsom announced a deal with business and labor leaders heading off a ballot measure to repeal the law, which has cost companies billions.`\
-https://nytimes.com/2024/06/18/business/economy/california-newsom-labor.html
 
