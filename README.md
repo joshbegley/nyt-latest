@@ -1,3 +1,7 @@
+**In Chicago, some brave the outdoors despite sweltering temperatures.**\
+`By Robert Chiarito`\
+https://nytimes.com/live/2024/06/19/weather/heat-wave-news/in-chicago-some-brave-the-outdoors-despite-sweltering-temperatures
+
 **Charlie Woods qualifies for U.S. Junior Amateur**\
 `Last fall, Charlie became a high school state golf champion in Florida.`\
 https://nytimes.com/athletic/5576474/2024/06/19/charlie-woods-us-junior-amateur/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5570712/2024/06/19/albania-croatia-group-b/
 **George Kittle, his 49ers teammates and the detailed focus of 2024 Tight End U**\
 `Kittle's fourth installment of Tight End U reflects the continued growth of the position's importance in today's NFL passing offenses.`\
 https://nytimes.com/athletic/5575651/2024/06/19/49ers-george-kittle-tight-end-u/
-
-**Hezbollah’s leader says it will fight without ‘constraints, rules, or limits’ if attacked by Israel.**\
-`By Euan Ward`\
-https://nytimes.com/live/2024/06/19/world/israel-gaza-war-hamas/hezbollahs-leader-says-it-will-fight-without-constraints-rules-or-limits-if-attacked-by-israel
 
