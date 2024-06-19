@@ -43,6 +43,11 @@ https://nytimes.com/athletic/5575854/2024/06/19/penguins-kirk-macdonald-ahl-coac
 `\
 https://nytimes.com/athletic/5575854/2024/06/19/penguins-kirk-macdonald-ahl-coach/
 
+**Penguins name Kirk MacDonald coach of AHL affiliate**\
+`MacDonald never played in the NHL though he is a veteran of several AHL seasons as a player.
+`\
+https://nytimes.com/athletic/5575854/2024/06/19/penguins-kirk-macdonald-ahl-coach/
+
 **How much could Knicks' Isaiah Hartenstein make in free agency?**\
 `The Athletic recently polled 16 front-office officials, asking what they would deem a “fair” contract for Hartenstein in free agency.`\
 https://nytimes.com/athletic/5575723/2024/06/19/knicks-isaiah-hartenstein-free-agency/
