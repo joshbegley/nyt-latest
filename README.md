@@ -1,4 +1,8 @@
-**How the Oilers dragged the Panthers back to Alberta with a Game 5 win: 5 takeaways**\
+**In a First, Federal Government Acknowledges Harms of Dams on Native American Communities**\
+`In a report released Tuesday, the Biden administration said that federal dams in the Columbia River Basin had inflicted damage on local communities, and committed to restoring native fish to the ecosystem.`\
+https://nytimes.com/2024/06/18/us/dams-snake-columbia-river-native-tribes.html
+
+**How the Oilers dragged the Stanley Cup Final back to Alberta with a Game 5 win: 5 takeaways**\
 `Connor McDavid had another four-point night and the Oilers staved off elimination for the second straight game, winning 5-3 on Tuesday.`\
 https://nytimes.com/athletic/5574718/2024/06/18/panthers-oilers-game-5-result-takeaways/
 
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/06/19/us/0741232.html
 **Drance: What Filip Hronek's extension tells us about the Canucks' offseason plans**\
 `Hronek's extension reinforces the specific brand of aggression that has become typical and characteristic of this Canucks front office.`\
 https://nytimes.com/athletic/5574426/2024/06/18/canucks-filip-hronek-extension/
-
-**Democratic State Senator Emerges From Nasty House Primary in Virginia**\
-`Suhas Subramanyam had the endorsement of Representative Jennifer Wexton, who is retiring.`\
-https://nytimes.com/2024/06/18/us/politics/virginia-10th-district-suhas-subramanyam.html
 

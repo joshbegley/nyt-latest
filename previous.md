@@ -1,3 +1,7 @@
+**How the Oilers dragged the Panthers back to Alberta with a Game 5 win: 5 takeaways**\
+`Connor McDavid had another four-point night and the Oilers staved off elimination for the second straight game, winning 5-3 on Tuesday.`\
+https://nytimes.com/athletic/5574718/2024/06/18/panthers-oilers-game-5-result-takeaways/
+
 **Nancy Pelosi Meets With Dalai Lama, Despite China’s Criticism**\
 `The former House speaker joined a congressional delegation that met with the Tibetan spiritual leader at his home in India. China calls him a separatist.`\
 https://nytimes.com/2024/06/18/world/asia/pelosi-dalai-lama.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5574426/2024/06/18/canucks-filip-hronek-extension/
 **Democratic State Senator Emerges From Nasty House Primary in Virginia**\
 `Suhas Subramanyam had the endorsement of Representative Jennifer Wexton, who is retiring.`\
 https://nytimes.com/2024/06/18/us/politics/virginia-10th-district-suhas-subramanyam.html
-
-**Remembering Willie Mays as Both Untouchable and Human**\
-`Mays, who died on Tuesday at 93, had been perfect for so long that the shock of seeing baseball get the best of him was the shock of seeing a god become mortal.`\
-https://nytimes.com/2024/06/18/us/willie-mays-death-baseball-legacy.html
 
