@@ -1,3 +1,7 @@
+**Are Planes Safe Right Now? How to Understand Flight Disruptions.**\
+`You should expect the unexpected while flying, but few disruptions should provoke serious concern, aviation experts say.`\
+https://nytimes.com/2024/06/19/business/airplane-safety-flight-problems.html
+
 **Who could be the next Pistons' head coach? Here are a few candidates**\
 `Names to keep an eye on for head coach as the Pistons continue to press reset on their basketball operations.`\
 https://nytimes.com/athletic/5519039/2024/06/19/detroit-pistons-coaching-candidates/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/19/special-series/alexi-pappas-fear-depression-olymp
 **Pistons fire Monty Williams: Sources**\
 `Pistons owner Tom Gores made the call to move on from Williams over last 24 hours, per team sources.`\
 https://nytimes.com/athletic/5575692/2024/06/19/monty-williams-fired-pistons/
-
-**It’s Unanimous: In the Senate, Neither Party Consents to the Other’s Ideas**\
-`Democrats sought to quickly reinstate a ban on gun bump stocks after a Supreme Court ruling. It was the latest Senate floor fight to end in a predictable stalemate.`\
-https://nytimes.com/2024/06/19/us/politics/senate-democrats-republicans-guns-ivf.html
 
