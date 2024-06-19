@@ -1,3 +1,7 @@
+**Targets of Pull-Down Exercises, in Brief**\
+`Brad Wiegmann has new takes on old wisdom.`\
+https://nytimes.com/2024/06/18/crosswords/daily-puzzle-2024-06-19.html
+
 **Race and Israel Take Center Stage in Final Bowman-Latimer Debate**\
 `Representative Jamaal Bowman of New York sought to portray his challenger, George Latimer, as a pawn of a major pro-Israel lobby.`\
 https://nytimes.com/2024/06/18/nyregion/bowman-latimer-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5574449/2024/06/18/commanders-season-ticket-settlem
 **Willie Mays, baseball’s electrifying ‘Say Hey Kid,’ dies at 93**\
 `Giants announce all-time great Willie Mays passed away peacefully on Tuesday afternoon`\
 https://nytimes.com/athletic/3070070/2024/06/18/willie-mays-obituary-giants/
-
-**Yankees' Aaron Judge leaves game after HBP**\
-`Judge initially stayed in the game but was removed for a pinch hitter an inning after the HBP.`\
-https://nytimes.com/athletic/5574488/2024/06/18/yankees-aaron-judge-hit-in-hand-leaves-game/
 

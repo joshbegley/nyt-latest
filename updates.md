@@ -1,3 +1,7 @@
+**Race and Israel Take Center Stage in Final Bowman-Latimer Debate**\
+`Representative Jamaal Bowman of New York sought to portray his challenger, George Latimer, as a pawn of a major pro-Israel lobby.`\
+https://nytimes.com/2024/06/18/nyregion/bowman-latimer-debate.html
+
 **Read the Ruling by the Virginia Court of Appeals**\
 `Marvin Leon Grimm Jr., who confessed to the 1975 murder of a 3-year-old boy and spent 45 years in prison, was granted a writ of actual innocence by the Virginia appeals court, fully absolving him of the crime.`\
 https://nytimes.com/interactive/2024/06/19/us/0741232.html
