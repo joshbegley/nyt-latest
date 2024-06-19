@@ -1,5 +1,5 @@
 **Russia Sentences U.S. Soldier to 4 Years in Prison**\
-`Staff Sgt. Gordon Black was accused of making deaths threats against, and stealing money from, a woman with whom he was romantically involved.`\
+`Staff Sgt. Gordon Black was accused of making death threats against, and stealing money from, a woman with whom he was romantically involved.`\
 https://nytimes.com/2024/06/19/world/europe/russia-us-soldier-gordon-black.html
 
 **New Mexico Battles ‘Devastating’ Wildfires as Weather Complicates the Fight**\
