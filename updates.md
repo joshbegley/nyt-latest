@@ -1,3 +1,11 @@
+**George Kittle, his 49ers teammates and the detailed focus of 2024 Tight End U**\
+`Kittle's fourth installment of Tight End U reflects the continued growth of the position's importance in today's NFL passing offenses.`\
+https://nytimes.com/athletic/5575651/2024/06/19/49ers-george-kittle-tight-end-u/
+
+**Hezbollah’s leader says it will fight without ‘constraints, rules, or limits’ if attacked by Israel.**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/06/19/world/israel-gaza-war-hamas/hezbollahs-leader-says-it-will-fight-without-constraints-rules-or-limits-if-attacked-by-israel
+
 **From Ukraine, Two Enormous Passengers Are Trucked and Flown to Safety**\
 `A pair of beluga whales were extricated from the besieged city of Kharkiv and taken to an aquarium in Spain with help from experts around the world.`\
 https://nytimes.com/2024/06/19/world/europe/kharkiv-ukraine-beluga-whales-spain.html
