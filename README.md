@@ -1,3 +1,7 @@
+**Officer in Sunak’s Protection Team Accused of Placing U.K. Election Bet**\
+`The allegations came a week after a lawmaker and aide to Prime Minister Rishi Sunak apologized for having placed a similar bet on the date of the vote before it was officially announced.`\
+https://nytimes.com/2024/06/19/world/europe/uk-sunak-election-bet.html
+
 **Kings-Capitals trade grades: Fresh starts for Pierre-Luc Dubois and Darcy Kuemper**\
 `The Kings and Capitals swapped problematic contracts and addressed positions of need at the same time.`\
 https://nytimes.com/athletic/5576585/2024/06/19/kings-capitals-trade-grades-pl-dubois-darcy-kuemper/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/19/world/israel-gaza-war-hamas/hezbollahs-leade
 **From Ukraine, Two Enormous Passengers Are Trucked and Flown to Safety**\
 `A pair of beluga whales were extricated from the besieged city of Kharkiv and taken to an aquarium in Spain with help from experts around the world.`\
 https://nytimes.com/2024/06/19/world/europe/kharkiv-ukraine-beluga-whales-spain.html
-
-**Biden’s Strategy: Help Immigrants in the U.S., but Stop Others From Arriving**\
-`President Biden’s recent actions on immigration put his approach to one of the most divisive issues in the 2024 election into focus.`\
-https://nytimes.com/2024/06/19/us/politics/bidens-strategy-immigrants.html
 
