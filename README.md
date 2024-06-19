@@ -1,3 +1,7 @@
+**Race and Israel Take Center Stage in Final Bowman-Latimer Debate**\
+`Representative Jamaal Bowman of New York sought to portray his challenger, George Latimer, as a pawn of a major pro-Israel lobby.`\
+https://nytimes.com/2024/06/18/nyregion/bowman-latimer-debate.html
+
 **Read the Ruling by the Virginia Court of Appeals**\
 `Marvin Leon Grimm Jr., who confessed to the 1975 murder of a 3-year-old boy and spent 45 years in prison, was granted a writ of actual innocence by the Virginia appeals court, fully absolving him of the crime.`\
 https://nytimes.com/interactive/2024/06/19/us/0741232.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/3070070/2024/06/18/willie-mays-obituary-giants/
 **Yankees' Aaron Judge leaves game after HBP**\
 `Judge initially stayed in the game but was removed for a pinch hitter an inning after the HBP.`\
 https://nytimes.com/athletic/5574488/2024/06/18/yankees-aaron-judge-hit-in-hand-leaves-game/
-
-**Regan Smith reclaims WR in women’s 100m backstroke at Olympic trials**\
-`Smith surpassed Australian Kaylee McKeown’s world record time of 57.33. `\
-https://nytimes.com/athletic/5574418/2024/06/18/regan-smith-world-record-us-olympic-swim-trials/
 
