@@ -1,3 +1,11 @@
+**From Ukraine, Two Enormous Passengers Are Trucked and Flown to Safety**\
+`A pair of beluga whales were extricated from the besieged city of Kharkiv and taken to an aquarium in Spain with help from experts around the world.`\
+https://nytimes.com/2024/06/19/world/europe/kharkiv-ukraine-beluga-whales-spain.html
+
+**Biden’s Strategy: Help Immigrants in the U.S., but Stop Others From Arriving**\
+`President Biden’s recent actions on immigration put his approach to one of the most divisive issues in the 2024 election into focus.`\
+https://nytimes.com/2024/06/19/us/politics/bidens-strategy-immigrants.html
+
 **Kings trade Dubois to Capitals for Kuemper**\
 `No salary is retained on either side of the deal, per league sources.`\
 https://nytimes.com/athletic/5576566/2024/06/19/kings-capitals-trade-dubois-kuemper/

@@ -1,3 +1,11 @@
+**From Ukraine, Two Enormous Passengers Are Trucked and Flown to Safety**\
+`A pair of beluga whales were extricated from the besieged city of Kharkiv and taken to an aquarium in Spain with help from experts around the world.`\
+https://nytimes.com/2024/06/19/world/europe/kharkiv-ukraine-beluga-whales-spain.html
+
+**Biden’s Strategy: Help Immigrants in the U.S., but Stop Others From Arriving**\
+`President Biden’s recent actions on immigration put his approach to one of the most divisive issues in the 2024 election into focus.`\
+https://nytimes.com/2024/06/19/us/politics/bidens-strategy-immigrants.html
+
 **Kings trade Dubois to Capitals for Kuemper**\
 `No salary is retained on either side of the deal, per league sources.`\
 https://nytimes.com/athletic/5576566/2024/06/19/kings-capitals-trade-dubois-kuemper/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/06/19/weather/heat-wave-news/youre-not-imagining-i
 **Phillies' Ranger Suárez pitches in front of his children for the first time, and it's 'beautiful'**\
 `"I wanted them with me during the season," he said, "and to spend every single night with my family."`\
 https://nytimes.com/athletic/5576499/2024/06/19/ranger-suarez-pitch-children-phillies/
-
-**U.S. falls short, loses against South Africa at T20 World Cup**\
-`The United States fell to defeat by South Africa in the opening game of the Super Eight phase of the T20 World Cup.`\
-https://nytimes.com/athletic/5576471/2024/06/19/usa-cricket-world-cup-south-africa/
-
-**Who is Chelsea target Omorodion and would he fit Maresca's system?**\
-`Omorodion is technically gifted and versatile enough to fit Maresca's system - and at 20, he fits Chelsea's recruitment strategy.`\
-https://nytimes.com/athletic/5576228/2024/06/19/chelsea-transfer-samu-omorodion/
 
