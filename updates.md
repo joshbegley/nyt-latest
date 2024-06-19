@@ -1,3 +1,7 @@
+**Giants react to the death of Willie Mays: 'The things he did we'll never see again'**\
+`"Heavy hearts not only for the Bay Area and New York where he started, but for the baseball world," said Giants manager Bob Melvin.`\
+https://nytimes.com/athletic/5574917/2024/06/19/willie-may-sf-giants-mourning/
+
 **LeBrun: All eyes on a comeback as Oilers shift momentum in Stanley Cup Final**\
 `After an impressive 5-3 win in Game 5, the Oilers have what would be a historic comeback in mind: "We're going to pull this off."`\
 https://nytimes.com/athletic/5574893/2024/06/19/oilers-panthers-stanley-cup-final-comeback/

@@ -1,3 +1,7 @@
+**Giants react to the death of Willie Mays: 'The things he did we'll never see again'**\
+`"Heavy hearts not only for the Bay Area and New York where he started, but for the baseball world," said Giants manager Bob Melvin.`\
+https://nytimes.com/athletic/5574917/2024/06/19/willie-may-sf-giants-mourning/
+
 **LeBrun: All eyes on a comeback as Oilers shift momentum in Stanley Cup Final**\
 `After an impressive 5-3 win in Game 5, the Oilers have what would be a historic comeback in mind: "We're going to pull this off."`\
 https://nytimes.com/athletic/5574893/2024/06/19/oilers-panthers-stanley-cup-final-comeback/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5558797/2024/06/19/jakub-kiwior-poland-arsenal/
 **Willie Mays was baseball, and the world was better because of it**\
 `Willie Mays was everything that made the sport and the country great, and he'll be missed forever.`\
 https://nytimes.com/athletic/5574529/2024/06/19/willie-mays-historical-impact/
-
-**Why Chelsea are early supporters of the new Club World Cup**\
-`The priority for Maresca is to lead Chelsea back to the Champions League, but the Club World Cup is viewed as a serious trophy to target`\
-https://nytimes.com/athletic/5572456/2024/06/19/chelsea-club-world-cup/
 
