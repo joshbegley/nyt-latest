@@ -1,3 +1,7 @@
+**Garnacho has divided Argentina... but maybe not for much longer**\
+`The Manchester United winger's skills are beyond doubt, but his life off the field has attracted criticism`\
+https://nytimes.com/athletic/5565977/2024/06/19/alejandro-garnacho-argentina-copa-america/
+
 **Which Big Ten teams won and lost in college basketball's transfer portal?**\
 `The Big Ten will be a new-look basketball league in 2024-25, with the addition of four teams and a long list of transfer portal movement.`\
 https://nytimes.com/athletic/5572303/2024/06/19/big-ten-college-basketball-transfer-portal/
