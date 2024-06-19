@@ -1,3 +1,7 @@
+**Yankees get good Aaron Judge news, but is a beef brewing with Orioles?**\
+`Judge avoided a fracture in his hand after being hit by a pitch. New York players felt Baltimore was throwing too close to their hands.`\
+https://nytimes.com/athletic/5574786/2024/06/19/yankees-win-aaron-judge-injured/
+
 **Corrections: June 19, 2024**\
 `Corrections that appeared in print on Wednesday, June 19, 2024.`\
 https://nytimes.com/2024/06/19/pageoneplus/corrections-june-19-2024.html

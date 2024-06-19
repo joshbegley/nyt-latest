@@ -1,3 +1,7 @@
+**Yankees get good Aaron Judge news, but is a beef brewing with Orioles?**\
+`Judge avoided a fracture in his hand after being hit by a pitch. New York players felt Baltimore was throwing too close to their hands.`\
+https://nytimes.com/athletic/5574786/2024/06/19/yankees-win-aaron-judge-injured/
+
 **Corrections: June 19, 2024**\
 `Corrections that appeared in print on Wednesday, June 19, 2024.`\
 https://nytimes.com/2024/06/19/pageoneplus/corrections-june-19-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5569711/2024/06/19/leeds-commercial-power-is-compar
 **Cody Gakpo is starring on the Netherlands' left wing - should he play there for Liverpool?**\
 `The Dutch are getting the best from Gakpo out wide. Perhaps Arne Slot will choose to do the same in 2024-25`\
 https://nytimes.com/athletic/5572904/2024/06/19/gakpo-netherlands-left-wing-liverpool/
-
-**Euro 2024's best match so far shows why it's shaping up to be a brilliant tournament**\
-`Georgia were on the receiving end of a 3-1 defeat by Turkey - but their performance spoke volumes about the bigger picture`\
-https://nytimes.com/athletic/5573742/2024/06/19/turkey-georgia-euro-2024-guler-kvaratskhelia-great-tournament/
 
