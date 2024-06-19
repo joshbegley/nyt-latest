@@ -1,3 +1,23 @@
+**Louisiana Requires Ten Commandments to Be Displayed in Every Public Classroom**\
+`A law signed by Gov. Jeff Landry on Wednesday makes the state the only one with such a mandate. Critics have vowed to mount a constitutional challenge.`\
+https://nytimes.com/2024/06/19/us/lousiana-ten-commandments-classrooms.html
+
+**OpenAI Co-Founder, Who Helped Oust Sam Altman, Starts His Own Company**\
+`Ilya Sutskever’s new start-up, Safe Superintelligence, aims to build A.I. technologies that are smarter than a human but not dangerous.`\
+https://nytimes.com/2024/06/19/technology/ilya-sutskever-openai-safe-superintelligence.html
+
+**You’re not imagining it. Summers are getting hotter.**\
+`By Nadja Popovich and Adam Pearce`\
+https://nytimes.com/live/2024/06/19/weather/heat-wave-news/youre-not-imagining-it-summers-are-getting-hotter
+
+**Who is Chelsea target Omorodion and would he fit Maresca's system?**\
+`Omorodion is technically gifted and versatile enough to fit Maresca's system - and at 20, he fits Chelsea's recruitment strategy.`\
+https://nytimes.com/athletic/5576228/2024/06/19/chelsea-transfer-samu-omorodion/
+
+**Euro 2024 state of play: Tables, schedule and what you may have missed**\
+`Here, The Athletic analyses the state of play in each group and which teams may face each other in the knockout stage`\
+https://nytimes.com/athletic/5575373/2024/06/19/euro-2024-state-of-play/
+
 **Phillies' Ranger Suárez pitches in front of his children for the first time, and it's 'beautiful'**\
 `"I wanted them with me during the season," he said, "and to spend every single night with my family."`\
 https://nytimes.com/athletic/5576499/2024/06/19/ranger-suarez-pitch-children-phillies/
