@@ -1,3 +1,7 @@
+**Why Is Putin Traveling to Vietnam?**\
+`President Vladimir V. Putin arrived in Hanoi keen to maintain the longstanding military ties between Russia and Vietnam, as Hanoi has developed deeper bonds with Washington.`\
+https://nytimes.com/2024/06/19/world/asia/putin-russia-vietnam-visit.html
+
 **Everton's Lewis Dobbin in talks over Aston Villa transfer**\
 `Everton winger Lewis Dobbin has held positive talks over a transfer to Aston Villa.`\
 https://nytimes.com/athletic/5576574/2024/06/19/lewis-dobbin-everton-aston-villa-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/06/19/arts/editors-recommendations-hacks.ht
 **Trump Tries to Set Expectations, and Floats Excuses, for His Debate With Biden**\
 `The former president has set a low bar for President Biden’s performance at next week’s matchup. Now, he is preparing supporters for the possibility that Mr. Biden clears it.`\
 https://nytimes.com/2024/06/19/us/politics/trump-biden-debate-expectations.html
-
-**Trotter: Monty Williams' failure in Detroit was predestined. Ownership chose not to see it**\
-`Going back to his introduction — when he cited money as a key factor in taking the job — it was hard to believe Williams was fully invested.`\
-https://nytimes.com/athletic/5576373/2024/06/19/detroit-pistons-monty-williams-nba-tom-gores/
 
