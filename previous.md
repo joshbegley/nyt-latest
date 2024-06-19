@@ -1,3 +1,11 @@
+**Willie Mays, ‘Poetry on the Diamond’**\
+`Readers pay tribute to the beloved Giants great, who died on Tuesday.`\
+https://nytimes.com/2024/06/19/opinion/letters/willie-mays.html
+
+**The UEFA rules that could stop Man United signing Todibo**\
+`Manchester United are unlikely to sign Nice defender Jean-Clair Todibo this summer due to UEFA rules on multi-club ownership.`\
+https://nytimes.com/athletic/5576197/2024/06/19/manchester-united-jean-clair-todibo-transfer-why/
+
 **Mbappe trains with broken nose before Netherlands game**\
 `France captain Kylian Mbappe took part in training on Wednesday afternoon, two days after breaking his nose in his country&#8217;s 2-1 victory over Austria in their European Championship opener.`\
 https://nytimes.com/athletic/5576291/2024/06/19/kylian-mbappe-injury-netherlands/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/19/us/politics/smartphone-ban-schools-callout.html
 **Amid Military Recruitment Challenges, Congress Debates Changes to the Draft**\
 `Republicans and Democrats are weighing proposals to expand military conscription to women and make registration automatic. Both proposals face an uphill path to becoming law.`\
 https://nytimes.com/2024/06/19/us/politics/military-draft-women.html
-
-**Submit your questions for Mark Kaboly's Steelers mailbag**\
-`With the Steelers' offseason program over, it's a great time to submit questions to Mark Kaboly, who will answer some in a mailbag.`\
-https://nytimes.com/athletic/5576217/2024/06/19/steelers-mailbag-offseason/
-
-**Greenwood subject of strong interest from Lazio**\
-`Manchester United&#8217;s Mason Greenwood is the subject of strong interest from Lazio among a number of clubs as speculation continues over his future.`\
-https://nytimes.com/athletic/5576177/2024/06/19/mason-greenwood-lazio/
 

@@ -1,3 +1,11 @@
+**Willie Mays, ‘Poetry on the Diamond’**\
+`Readers pay tribute to the beloved Giants great, who died on Tuesday.`\
+https://nytimes.com/2024/06/19/opinion/letters/willie-mays.html
+
+**The UEFA rules that could stop Man United signing Todibo**\
+`Manchester United are unlikely to sign Nice defender Jean-Clair Todibo this summer due to UEFA rules on multi-club ownership.`\
+https://nytimes.com/athletic/5576197/2024/06/19/manchester-united-jean-clair-todibo-transfer-why/
+
 **Mbappe trains with broken nose before Netherlands game**\
 `France captain Kylian Mbappe took part in training on Wednesday afternoon, two days after breaking his nose in his country&#8217;s 2-1 victory over Austria in their European Championship opener.`\
 https://nytimes.com/athletic/5576291/2024/06/19/kylian-mbappe-injury-netherlands/
