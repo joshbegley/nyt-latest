@@ -1,3 +1,7 @@
+**Tigers prospect Jace Jung is knocking, but door to the majors might not open just yet**\
+`While Jung is doing many things well, there are reasons he is still in Toledo. His time is coming, but the alarm isn’t blaring quite yet.`\
+https://nytimes.com/athletic/5574115/2024/06/19/tigers-jace-jung-prospect-update/
+
 **Here Is Why Many Fear More Bloodshed in Darfur**\
 `Satellite and video evidence shows that thousands of homes have been razed and tens of thousands of people forced to flee a city in Sudan.`\
 https://nytimes.com/2024/06/19/world/africa/sudan-darfur-takeaways.html
