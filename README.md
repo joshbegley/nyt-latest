@@ -18,7 +18,7 @@ https://nytimes.com/athletic/5572180/2024/06/19/tennis-retirement-how-to-federer
 `The Ducks finished 30th in the NHL in scoring this season, so now it's time to complement a solid group of centers.`\
 https://nytimes.com/athletic/5573861/2024/06/19/anaheim-ducks-free-agent-trade-winger/
 
-**Woods granted lifetime entry into PGA Tour events**\
+**Woods granted lifetime entry into future PGA Tour events**\
 `Tiger Woods has been awarded a lifetime exemption by the PGA Tour to enter all of its future signature events, beginning next year.`\
 https://nytimes.com/athletic/5575368/2024/06/19/tiger-woods-pga-tour-lifetime/
 
