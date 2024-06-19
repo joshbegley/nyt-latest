@@ -1,3 +1,15 @@
+**The retro kick-off tactic that is proving popular (and effective) at Euro 2024**\
+`A new (old) trend is creeping into football – launching the ball forward from kick-off`\
+https://nytimes.com/athletic/5570027/2024/06/19/kick-off-tactic-euros/
+
+**Why Toni Kroos ignored progress and stuck with his old Adidas boots**\
+`While football as an industry is geared towards progress and newness, Kroos found a paid of boots he liked and stuck with them. Here's why`\
+https://nytimes.com/athletic/5572144/2024/06/19/toni-kroos-adidas-football-boots/
+
+**From Scholes to Iniesta to Ozil: How successful tournament teams often compromise on the left wing**\
+`Other nations have been forced to shift one of their star names out to the left flank - often with great success`\
+https://nytimes.com/athletic/5572119/2024/06/19/england-left-side-problem-foden-scholes/
+
 **What is it really like being a pregnant footballer?**\
 `Two experienced internationals talk The Athletic through their pregnancy journeys – and explain the challenges they have faced`\
 https://nytimes.com/athletic/5558978/2024/06/19/simone-boye-stine-larsen-pregnancy/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/19/world/europe/north-macedonia-history-statues.html
 **Kandinsky Cut Ties With Russia. So Did This Museum.**\
 `The first major exhibition at H’Art, a former satellite of the Hermitage, explores how war and nationalism shaped the painter’s career.`\
 https://nytimes.com/2024/06/19/arts/design/hart-museum-kandinsky.html
-
-**Texas Megachurch Pastor Resigns After Sexual Abuse Allegations**\
-`Robert Morris, a faith adviser to the Trump White House, resigned from Gateway Church after he was accused of abusing a child in the 1980s.`\
-https://nytimes.com/2024/06/18/us/pastor-robert-morris-gateway-church.html
-
-**In a First, Federal Government Acknowledges Harms of Dams on Native American Communities**\
-`In a report released Tuesday, the Biden administration said that federal dams in the Columbia River Basin had inflicted damage on local communities, and committed to restoring native fish to the ecosystem.`\
-https://nytimes.com/2024/06/18/us/dams-snake-columbia-river-native-tribes.html
-
-**How the Oilers dragged the Stanley Cup Final back to Alberta with a Game 5 win: 5 takeaways**\
-`Connor McDavid had another four-point night and the Oilers staved off elimination for the second straight game, winning 5-3 on Tuesday.`\
-https://nytimes.com/athletic/5574718/2024/06/18/panthers-oilers-game-5-result-takeaways/
 
