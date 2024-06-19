@@ -1,3 +1,7 @@
+**How things stand in Euro 2024 - tables, fixtures and what you may have missed**\
+`Here, The Athletic analyses the state of play in each group and which teams may face each other in the knockout stage`\
+https://nytimes.com/athletic/5575373/2024/06/19/euro-2024-how-things-stand/
+
 **Without a plan for Gaza, ‘we will get Hamas’ again, Hagari said.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/06/19/world/israel-gaza-war-hamas/without-a-plan-for-gaza-we-will-get-hamas-again-hagari-said
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/5576313/2024/06/19/mlb-draft-combine-kellon-lindsey
 `The Bruins may have to accept the reality of a muted trade market when it comes to Ullmark.`\
 https://nytimes.com/athletic/5576375/2024/06/19/jacob-markstrom-linus-ullmark-devils-trade/
 
-**The Briefing: Germany 2 Hungary 0 - Nagelsmann's tactics, Neuer's revival and Germany through**\
+**The Briefing: Germany 2 Hungary 0 - Nagelsmann's tactics, Neuer's revival and hosts through**\
 `Our writers analyse and evaluate the key talking points from Germany's 2-0 victory over Hungary in Stuttgart `\
 https://nytimes.com/athletic/5572677/2024/06/19/germany-hungary-euro-2024-briefing/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5576291/2024/06/19/kylian-mbappe-injury-netherlands
 **After His Arrest, Justin Timberlake Is the Talk of Sag Harbor**\
 `As the serene Hamptons village is overrun with news vans, the locals eat oysters and engage in some light media criticism.`\
 https://nytimes.com/2024/06/19/style/justin-timberlake-arrest-sag-harbor-local-reaction.html
-
-**NHL trade grades: Devils get their goalie upgrade in Jacob Markstrom**\
-`The Devils got the goalie they've wanted all along and didn't give up top picks or prospects to do it.`\
-https://nytimes.com/athletic/5576254/2024/06/19/nhl-trade-grades-devils-jacob-markstrom/
 

@@ -1,3 +1,11 @@
+**How things stand in Euro 2024 - tables, fixtures and what you may have missed**\
+`Here, The Athletic analyses the state of play in each group and which teams may face each other in the knockout stage`\
+https://nytimes.com/athletic/5575373/2024/06/19/euro-2024-how-things-stand/
+
+**The Briefing: Germany 2 Hungary 0 - Nagelsmann's tactics, Neuer's revival and hosts through**\
+`Our writers analyse and evaluate the key talking points from Germany's 2-0 victory over Hungary in Stuttgart `\
+https://nytimes.com/athletic/5572677/2024/06/19/germany-hungary-euro-2024-briefing/
+
 **Without a plan for Gaza, ‘we will get Hamas’ again, Hagari said.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/06/19/world/israel-gaza-war-hamas/without-a-plan-for-gaza-we-will-get-hamas-again-hagari-said
