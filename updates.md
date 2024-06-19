@@ -1,3 +1,7 @@
+**Texas Megachurch Pastor Resigns After Sexual Abuse Allegations**\
+`Robert Morris, a faith adviser to the Trump White House, resigned from Gateway Church after he was accused of abusing a child in the 1980s.`\
+https://nytimes.com/2024/06/18/us/pastor-robert-morris-gateway-church.html
+
 **In a First, Federal Government Acknowledges Harms of Dams on Native American Communities**\
 `In a report released Tuesday, the Biden administration said that federal dams in the Columbia River Basin had inflicted damage on local communities, and committed to restoring native fish to the ecosystem.`\
 https://nytimes.com/2024/06/18/us/dams-snake-columbia-river-native-tribes.html
