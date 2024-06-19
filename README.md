@@ -1,3 +1,7 @@
+**The United States is facing hotter heat waves, but one of the worst was in 1936.**\
+`By Tim Balk`\
+https://nytimes.com/live/2024/06/19/weather/heat-wave-news/the-united-states-is-facing-hotter-heat-waves-but-one-of-the-worst-was-in-1936
+
 **It’s Time to Ban Pharmaceutical Advertising**\
 `There are too many drug ads on social media to ever regulate them properly, and ads drive up prescription costs.`\
 https://nytimes.com/2024/06/19/opinion/tiktok-telehealth.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5575323/2024/06/19/georgia-turkey-lalas-likes/
 **Tears, pre-announcements, vanishing into thin air: The new rules of tennis retirement**\
 `As a golden tennis era transitions into its next guise, when, how, and why to retire is one of the biggest questions in the sport`\
 https://nytimes.com/athletic/5572180/2024/06/19/tennis-retirement-how-to-federer-nadal-serena-williams-giorgi/
-
-**The Ducks need a top-six winger — which free agents or trade targets might they consider?**\
-`The Ducks finished 30th in the NHL in scoring this season, so now it's time to complement a solid group of centers.`\
-https://nytimes.com/athletic/5573861/2024/06/19/anaheim-ducks-free-agent-trade-winger/
 
