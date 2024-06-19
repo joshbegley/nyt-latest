@@ -10,8 +10,8 @@ https://nytimes.com/2024/06/18/us/willie-mays-death-baseball-legacy.html
 `The New York City subway is arguably the most famous transit network in America. How well do you know it? Take our quiz to find out.`\
 https://nytimes.com/interactive/2024/06/18/nyregion/nyc-subway-quiz.html
 
-**Willie Mays, Electrifying Player of Power and Grace, Dies at 93**\
-`Mays, the Say Hey Kid, was the exuberant embodiment of the complete ballplayer. Some say he was the greatest of them all.`\
+**Willie Mays, Electrifying Ballplayer of Power and Grace, Dies at 93**\
+`Mays, the Say Hey Kid, was baseball’s exuberant embodiment of the complete player. Some say he was the greatest of them all.`\
 https://nytimes.com/2024/06/18/sports/willie-mays-dead.html
 
 **Commanders reach $1.3M season ticket deposit settlement**\
