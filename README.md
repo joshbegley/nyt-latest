@@ -1,3 +1,11 @@
+**Kawakami: Willie Mays, the Bay Area's original and untouchable immortal**\
+`In 1958, Southern California got the Dodgers and Northern California got Willie Mays. Yeah, the Bay Area did OK with that one.`\
+https://nytimes.com/athletic/5574587/2024/06/19/willie-mays-giants-bay-area-legend-kawakami/
+
+**Ellie Roebuck joins Barcelona from Manchester City**\
+`Barcelona have completed the signing of England goalkeeper Ellie Roebuck on a free transfer.`\
+https://nytimes.com/athletic/5575383/2024/06/19/ellie-roebuck-barcelona/
+
 **Aid groups say thousands of tons of supplies remain stranded in southern Gaza because conditions are too dangerous to move it.**\
 `By Vivian Yee and Aaron Boxerman`\
 https://nytimes.com/live/2024/06/19/world/israel-gaza-war-hamas/aid-groups-say-thousands-of-tons-of-supplies-remain-stranded-in-southern-gaza-because-conditions-are-too-dangerous-to-move-it
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5573055/2024/06/19/canada-jesse-marsch-copa-america
 **Johnny Cardoso, USMNT's very own Brazilian: 'I'm representing a country my parents love'**\
 `If Johnny Cardoso does well at Copa America, there might soon be a few mumbles of discontent in Brazil that he was able to slip the net...`\
 https://nytimes.com/athletic/5479278/2024/06/19/johnny-cardoso-usmnt-brazilian/
-
-**‘Black Barbie: A Documentary’ Review: Becoming the Main Character**\
-`A new Netflix documentary explores what led to the release of Black Barbie in 1980, both celebrating her existence and recognizing her limitations.`\
-https://nytimes.com/2024/06/19/movies/black-barbie-a-documentary-review.html
-
-**Chargers free-agent film review: Gus Edwards, J.K. Dobbins bring overhaul at running back**\
-`The Chargers didn't have to break the bank and added a complementary pairing very familiar to their coaching staff and front office.`\
-https://nytimes.com/athletic/5563957/2024/06/19/chargers-gus-edwards-jk-dobbins-film-review/
 
