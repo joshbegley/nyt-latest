@@ -1,3 +1,7 @@
+**Tom Cole, House G.O.P. Spending Chief, Prevails Against Right-Wing Challenger**\
+`The veteran Republican faced a right-wing challenger who sought to make his powerful post on the committee that controls federal spending into a political liability.`\
+https://nytimes.com/2024/06/18/world/europe/tom-cole-primary-oklahoma-bondar.html
+
 **Sparks star rookie Cameron Brink exits game vs. Sun with knee injury**\
 `Brink was recently named to the USA 3x3 Olympic team. `\
 https://nytimes.com/athletic/5574435/2024/06/18/cameron-brink-injury-sparks/
