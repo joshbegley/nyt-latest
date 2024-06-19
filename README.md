@@ -1,3 +1,7 @@
+**Shaw out of England's Denmark game - Southgate**\
+`Gareth Southgate has confirmed Luke Shaw will play no part in England&#8217;s European Championship game against Denmark on Thursday.`\
+https://nytimes.com/athletic/5576476/2024/06/19/luke-shaw-injury-denmark/
+
 **How things stand in Euro 2024 - tables, fixtures and what you may have missed**\
 `Here, The Athletic analyses the state of play in each group and which teams may face each other in the knockout stage`\
 https://nytimes.com/athletic/5575373/2024/06/19/euro-2024-how-things-stand/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5576197/2024/06/19/manchester-united-jean-clair-tod
 **Mbappe trains with broken nose before Netherlands game**\
 `France captain Kylian Mbappe took part in training on Wednesday afternoon, two days after breaking his nose in his country&#8217;s 2-1 victory over Austria in their European Championship opener.`\
 https://nytimes.com/athletic/5576291/2024/06/19/kylian-mbappe-injury-netherlands/
-
-**After His Arrest, Justin Timberlake Is the Talk of Sag Harbor**\
-`As the serene Hamptons village is overrun with news vans, the locals eat oysters and engage in some light media criticism.`\
-https://nytimes.com/2024/06/19/style/justin-timberlake-arrest-sag-harbor-local-reaction.html
 
