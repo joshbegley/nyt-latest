@@ -1,3 +1,11 @@
+**The Briefing: Germany 2 Hungary 0 - Nagelsmann's tactics, Neuer's revival and Germany through**\
+`Our writers analyse and evaluate the key talking points from Germany's 2-0 victory over Hungary in Stuttgart `\
+https://nytimes.com/athletic/5572677/2024/06/19/germany-hungary-euro-2024-briefing/
+
+**Sharks claim Barclay Goodrow, opening up cap space for Rangers**\
+`The Rangers are now fully off the hook for Goodrow's contract, which has three years left with a $3,641,667 average annual value.`\
+https://nytimes.com/athletic/5575936/2024/06/19/sharks-barclay-goodrow-rangers-waivers/
+
 **Willie Mays, ‘Poetry on the Diamond’**\
 `Readers pay tribute to the beloved Giants great, who died on Tuesday.`\
 https://nytimes.com/2024/06/19/opinion/letters/willie-mays.html

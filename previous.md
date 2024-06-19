@@ -1,3 +1,11 @@
+**The Briefing: Germany 2 Hungary 0 - Nagelsmann's tactics, Neuer's revival and Germany through**\
+`Our writers analyse and evaluate the key talking points from Germany's 2-0 victory over Hungary in Stuttgart `\
+https://nytimes.com/athletic/5572677/2024/06/19/germany-hungary-euro-2024-briefing/
+
+**Sharks claim Barclay Goodrow, opening up cap space for Rangers**\
+`The Rangers are now fully off the hook for Goodrow's contract, which has three years left with a $3,641,667 average annual value.`\
+https://nytimes.com/athletic/5575936/2024/06/19/sharks-barclay-goodrow-rangers-waivers/
+
 **Willie Mays, ‘Poetry on the Diamond’**\
 `Readers pay tribute to the beloved Giants great, who died on Tuesday.`\
 https://nytimes.com/2024/06/19/opinion/letters/willie-mays.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5576106/2024/06/19/willie-mays-generational-player-
 **How Heat Affects the Brain**\
 `High temperatures can make us miserable. Research shows they also make us aggressive, impulsive and dumb.`\
 https://nytimes.com/2024/06/19/well/mind/heat-affect-brain-emotions.html
-
-**How Has a Ban on Smartphones in Schools Affected You?**\
-`We want to hear from you — students, parents and teachers — about a growing push to limit smartphone usage in schools.`\
-https://nytimes.com/2024/06/19/us/politics/smartphone-ban-schools-callout.html
-
-**Amid Military Recruitment Challenges, Congress Debates Changes to the Draft**\
-`Republicans and Democrats are weighing proposals to expand military conscription to women and make registration automatic. Both proposals face an uphill path to becoming law.`\
-https://nytimes.com/2024/06/19/us/politics/military-draft-women.html
 
