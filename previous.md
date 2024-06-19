@@ -1,3 +1,7 @@
+**Jose Siri, Zach Neto and more widely-available Statcast standout hitters for the past month**\
+`Michael Salfino takes another dive into the deep end of hitter statistics to surface some hidden waiver wire treasures like Zach Neto.`\
+https://nytimes.com/athletic/5574189/2024/06/19/statcast-hitter-analysis-fantasy-baseball-past-month/
+
 **Yankees get good Aaron Judge news, but is a beef brewing with Orioles?**\
 `Judge avoided a fracture in his hand after being hit by a pitch. New York players felt Baltimore was throwing too close to their hands.`\
 https://nytimes.com/athletic/5574786/2024/06/19/yankees-win-aaron-judge-injured/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5554191/2024/06/19/anton-mcelhone-postecoglou-manag
 **Leeds are a commercial powerhouse comparable to few outside Premier League 'Big Six'**\
 `Whether Leeds are in the Premier League or the Championship, they are one of the strongest commercial forces in English football`\
 https://nytimes.com/athletic/5569711/2024/06/19/leeds-commercial-power-is-comparable-to-few-outside-the-premier-leagues-big-six/
-
-**Cody Gakpo is starring on the Netherlands' left wing - should he play there for Liverpool?**\
-`The Dutch are getting the best from Gakpo out wide. Perhaps Arne Slot will choose to do the same in 2024-25`\
-https://nytimes.com/athletic/5572904/2024/06/19/gakpo-netherlands-left-wing-liverpool/
 

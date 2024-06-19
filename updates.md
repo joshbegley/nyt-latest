@@ -1,3 +1,7 @@
+**Jose Siri, Zach Neto and more widely-available Statcast standout hitters for the past month**\
+`Michael Salfino takes another dive into the deep end of hitter statistics to surface some hidden waiver wire treasures like Zach Neto.`\
+https://nytimes.com/athletic/5574189/2024/06/19/statcast-hitter-analysis-fantasy-baseball-past-month/
+
 **Yankees get good Aaron Judge news, but is a beef brewing with Orioles?**\
 `Judge avoided a fracture in his hand after being hit by a pitch. New York players felt Baltimore was throwing too close to their hands.`\
 https://nytimes.com/athletic/5574786/2024/06/19/yankees-win-aaron-judge-injured/
