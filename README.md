@@ -1,3 +1,7 @@
+**MLB world reacts to Willie Mays' death**\
+`Mays left an indelible legacy on baseball, sparking many members of the MLB community to pay tribute to him on social media.`\
+https://nytimes.com/athletic/5574552/2024/06/18/mlb-willie-mays-death/
+
 **Julia Koch agrees to buy 15 percent stake in Nets' BSE Global**\
 `Julia Koch is the widow of late billionaire and major political donor David Koch, and the deal is believed to value BSE at $6 billion.`\
 https://nytimes.com/athletic/5574369/2024/06/18/julia-koch-nets-liberty-bse-global-sale/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/06/18/nyregion/nyc-subway-quiz.html
 **Willie Mays, Electrifying Ballplayer of Power and Grace, Dies at 93**\
 `Mays, the Say Hey Kid, was baseball’s exuberant embodiment of the complete player. Some say he was the greatest of them all.`\
 https://nytimes.com/2024/06/18/sports/willie-mays-dead.html
-
-**Commanders reach $1.3M season ticket deposit settlement**\
-`Washington agreed to the settlement following allegations the organization neglected to return ticket deposits and other fees.`\
-https://nytimes.com/athletic/5574449/2024/06/18/commanders-season-ticket-settlement-virginia/
 
