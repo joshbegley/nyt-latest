@@ -1,3 +1,11 @@
+**Crews Rush to Restore Power in Pittsburgh as Temperatures Soar**\
+`With heat indexes forecast to reach 110 degrees in western Pennsylvania, about 6,700 people were still without power after damaging wind and rain storms earlier this week.`\
+https://nytimes.com/2024/06/19/weather/pittsburgh-power-outages-heat.html
+
+**Six unrestricted free agents the Canucks could target to address their centre depth**\
+`Depending on who stays and who goes this summer, the Canucks may need further reinforcements at centre. Who are their best options?`\
+https://nytimes.com/athletic/5569114/2024/06/19/canucks-free-agent-targets-centers-forwards/
+
 **Ricardo M. Urbina, Trailblazing Latino Judge in Capital, Dies at 79**\
 `Before being appointed to the bench in Washington, he was a track star who became a symbol of discrimination against Black athletes.`\
 https://nytimes.com/2024/06/19/us/ricardo-urbina-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/19/learning/176-writing-prompts-to-spark-discussion-
 **Putin Once Tried to Curb North Korea’s Nuclear Program. That’s Now Over.**\
 `Vladimir Putin promised unspecified technological help to North Korea, which could help the North better target its many adversaries.`\
 https://nytimes.com/2024/06/19/us/politics/putin-kim-russia-nuclear.html
-
-**Lowetide: How 4 inspired moves by Oilers GM Ken Holland are paying off**\
-`Holland's four best moves as Oilers GM have contributed greatly to the current state of affairs.`\
-https://nytimes.com/athletic/5571457/2024/06/19/oilers-ken-holland-stanley-cup-final/
-
-**Copa America 2024 data guide: Three ex-Leeds managers, two 17-year-olds and one Argentinian outlier**\
-`Oldest squad, youngest player, most goals per cap, and a lot of Argentinian managers – what the data says about Copa America 2024`\
-https://nytimes.com/athletic/5573062/2024/06/19/copa-america-2024-data-guide/
 
