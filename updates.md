@@ -1,3 +1,7 @@
+**'He was Willie Mays': Remembering the best player of the generation that electrified baseball**\
+`If you love the game, you’re grateful for Mays and all he brought to it.`\
+https://nytimes.com/athletic/5576106/2024/06/19/willie-mays-generational-player-baseball/
+
 **How Heat Affects the Brain**\
 `High temperatures can make us miserable. Research shows they also make us aggressive, impulsive and dumb.`\
 https://nytimes.com/2024/06/19/well/mind/heat-affect-brain-emotions.html
