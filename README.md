@@ -1,3 +1,11 @@
+**Corrections: June 19, 2024**\
+`Corrections that appeared in print on Wednesday, June 19, 2024.`\
+https://nytimes.com/2024/06/19/pageoneplus/corrections-june-19-2024.html
+
+**Quotation of the Day: Politics Still Rile Georgia, but Soccer Unites Nation**\
+`Quotation of the Day for Wednesday, June 19, 2024.`\
+https://nytimes.com/2024/06/19/pageoneplus/quotation-of-the-day-politics-still-rile-georgia-but-soccer-unites-nation.html
+
 **'Today, my body was really beat down': Padres' Fernando Tatis Jr. reveals lingering injury**\
 `Tatis didn't start because of quad tightness, but he ended up with a close look at the walk-off loss in Philadelphia.`\
 https://nytimes.com/athletic/5574778/2024/06/19/padres-fernando-tatis-quad-tightness/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5572904/2024/06/19/gakpo-netherlands-left-wing-live
 **Euro 2024's best match so far shows why it's shaping up to be a brilliant tournament**\
 `Georgia were on the receiving end of a 3-1 defeat by Turkey - but their performance spoke volumes about the bigger picture`\
 https://nytimes.com/athletic/5573742/2024/06/19/turkey-georgia-euro-2024-guler-kvaratskhelia-great-tournament/
-
-**Manchester United's decision to keep Erik ten Hag - Andy Mitten argues with himself once again**\
-`Is sticking with Erik ten Hag the right decision for Manchester United? Andy Mitten and his alter ego, Andrew Mitten, don't quite agree`\
-https://nytimes.com/athletic/5572118/2024/06/19/andy-mitten-erik-ten-hag-manchester-united/
-
-**Spencer Schwellenbach gets first MLB win, says Braves' welcoming environment has helped**\
-`Schwellenbach limited the Tigers to three hits, two walks and one run with seven strikeouts in six innings of a 2-1 win Tuesday.`\
-https://nytimes.com/athletic/5574727/2024/06/19/spencer-schwellenbach-first-win-braves/
 
