@@ -1,3 +1,31 @@
+**Twins place Alex Kirilloff on IL ahead of comeback win**\
+`After being optioned to Triple A, Kirilloff fessed up that a sore lower back was worse than he originally let on.`\
+https://nytimes.com/athletic/5574894/2024/06/19/twins-comeback-win-alex-kirilloff/
+
+**How the Oilers got closer to making epic Stanley Cup Final feat a reality**\
+`The massive hole Edmonton is trying to overcome in this championship round doesn’t feel insurmountable.`\
+https://nytimes.com/athletic/5574936/2024/06/19/oilers-stanley-cup-final-game-5/
+
+**Blue Jackets embark on another coaching search, looking for an NHL veteran**\
+`Don Waddell said he wants to hire a coach with NHL experience, which brought the names of seven potential candidates to mind.`\
+https://nytimes.com/athletic/5574006/2024/06/19/blue-jackets-coach-waddell/
+
+**Bucks mailbag, Part 2: Will Doc Rivers play rookies? A dive into the numbers**\
+`The Bucks will need to find contributors on rookie deals next season. "This is a huge summer," Rivers said of Milwaukee's young players.`\
+https://nytimes.com/athletic/5546919/2024/06/19/bucks-doc-rivers-rookies/
+
+**Alexi Lalas and Stu Holden - bold, opinionated but never just 'fine'**\
+`Former USMNT players Alexi Lalas and Stuart Holden have high expectations for the Copa America - and themselves as Fox Sports pundits`\
+https://nytimes.com/athletic/5570585/2024/06/19/lalas-holden-fox-usmnt-copa-america/
+
+**Wordle Review No. 1,097, June 20, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/19/crosswords/wordle-review-1097.html
+
+**The Connections Companion No. 375, June 20, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/19/crosswords/connections-companion-375.html
+
 **Three reasons why the Maple Leafs should keep and use the No. 23 pick in the NHL Draft**\
 `Given recent draft success and some league trends, the Leafs should keep adding to their prospect cupboard.`\
 https://nytimes.com/athletic/5562093/2024/06/19/three-reasons-why-the-maple-leafs-should-keep-and-use-the-no-23-pick-in-the-nhl-draft/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/5575042/2024/06/19/brad-pitt-lewis-hamilton-f1-movi
 **Browns offseason roster observations: How will the QB depth chart shake out?**\
 `Cleveland has depth and experience at several positions, which will make it difficult to earn spots on the final 53-man roster. `\
 https://nytimes.com/athletic/5573547/2024/06/19/cleveland-browns-offseason-roster/
-
-**Paul Skenes, Rhett Lowder and the 2023 College World Series showdown for the ages: 'Like Ali-Frazier'**\
-`It's been nearly a year since Skenes and Lowder battled in a must-win game. 'I don't think I've ever called a better baseball game.'`\
-https://nytimes.com/athletic/5562525/2024/06/19/college-world-series-2023-paul-skenes-rhett-lowder/
-
-**Raptors at NBA draft: Tristan da Silva and 7 other wings who could head to Toronto**\
-`Toronto Raptors could target wings with 19th and 31st picks of NBA Draft.`\
-https://nytimes.com/athletic/5570375/2024/06/19/raptors-nba-draft-tristan-da-silva/
-
-**Euro 2024 group-stage predictions: Goalscorers, results and more tips**\
-`Get the latest insight, predictions and analysis in our Euro 2024 Tips and Tricks series`\
-https://nytimes.com/athletic/5572121/2024/06/19/euro-2024-predictions-group-stage-results-goalscorers/
-
-**Tigers prospect Jace Jung is knocking, but door to the majors might not open just yet**\
-`While Jung is doing many things well, there are reasons he is still in Toledo. His time is coming, but the alarm isn’t blaring quite yet.`\
-https://nytimes.com/athletic/5574115/2024/06/19/tigers-jace-jung-prospect-update/
-
-**Here Is Why Many Fear More Bloodshed in Darfur**\
-`Satellite and video evidence shows that thousands of homes have been razed and tens of thousands of people forced to flee a city in Sudan.`\
-https://nytimes.com/2024/06/19/world/africa/sudan-darfur-takeaways.html
-
-**Why Yankees promoting Ben Rice ahead of next month's trade deadline was the right move**\
-`The next six weeks will be critical for Rice to prove to general manager Brian Cashman that he doesn't need another first baseman.`\
-https://nytimes.com/athletic/5574038/2024/06/19/yankees-ben-rice-promotion-analysis/
-
-**How Joe Mazzulla molded the Celtics in his image to lead them to an NBA title**\
-`Mazzulla's message to the Celtics all season was to keep "winning at the forefront" of everything they do. Now they're champions.`\
-https://nytimes.com/athletic/5572223/2024/06/19/joe-mazzulla-celtics-nba-championship/
 
