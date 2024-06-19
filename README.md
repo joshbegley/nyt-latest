@@ -18,7 +18,7 @@ https://nytimes.com/live/2024/06/19/weather/heat-wave-news/youre-not-imagining-i
 `"I wanted them with me during the season," he said, "and to spend every single night with my family."`\
 https://nytimes.com/athletic/5576499/2024/06/19/ranger-suarez-pitch-children-phillies/
 
-**U.S. falls short, lose against South Africa at T20 World Cup**\
+**U.S. falls short, loses against South Africa at T20 World Cup**\
 `The United States fell to defeat by South Africa in the opening game of the Super Eight phase of the T20 World Cup.`\
 https://nytimes.com/athletic/5576471/2024/06/19/usa-cricket-world-cup-south-africa/
 
