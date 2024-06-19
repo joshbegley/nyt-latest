@@ -1,3 +1,11 @@
+**Putin’s Presidential Planes: What We Know**\
+`The Kremlin clings to Soviet-designed aircraft even as Russia’s commercial carriers opt for Western planes.`\
+https://nytimes.com/2024/06/19/world/europe/putins-presidential-planes-what-we-know.html
+
+**Battlefield Commander’s Case Goes to Guantánamo Jury**\
+`The panel is deciding a sentence for a prisoner who pleaded guilty to commanding Qaeda and Taliban forces in Afghanistan that carried out war crimes.`\
+https://nytimes.com/2024/06/19/us/politics/afghan-war-commander-guantanamo.html
+
 **Willie Mays, Birmingham and Rickwood Field: Baseball Honors a Legend in His Hometown**\
 `Major League Baseball is in Birmingham to honor the legacy of the Negro Leagues. With Mays’s death, the celebration at ancient Rickwood Field takes on new meaning.`\
 https://nytimes.com/2024/06/19/us/mays-birmingham-barons-rickwood.html
