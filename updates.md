@@ -1,3 +1,11 @@
+**LeBrun: All eyes on a comeback as Oilers shift momentum in Stanley Cup Final**\
+`After an impressive 5-3 win in Game 5, the Oilers have what would be a historic comeback in mind: "We're going to pull this off."`\
+https://nytimes.com/athletic/5574893/2024/06/19/oilers-panthers-stanley-cup-final-comeback/
+
+**Martinez's crazy ideas machine has made Portugal fun but flawed**\
+`The 2016 winners were a tactical mess against Czech Republic but maybe that's ok?`\
+https://nytimes.com/athletic/5572078/2024/06/19/portugal-roberto-martinez-euro-2024-tactics/
+
 **Jose Siri, Zach Neto and more widely-available Statcast standout hitters for the past month**\
 `Michael Salfino takes another dive into the deep end of hitter statistics to surface some hidden waiver wire treasures like Zach Neto.`\
 https://nytimes.com/athletic/5574189/2024/06/19/statcast-hitter-analysis-fantasy-baseball-past-month/

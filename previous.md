@@ -1,3 +1,11 @@
+**LeBrun: All eyes on a comeback as Oilers shift momentum in Stanley Cup Final**\
+`After an impressive 5-3 win in Game 5, the Oilers have what would be a historic comeback in mind: "We're going to pull this off."`\
+https://nytimes.com/athletic/5574893/2024/06/19/oilers-panthers-stanley-cup-final-comeback/
+
+**Martinez's crazy ideas machine has made Portugal fun but flawed**\
+`The 2016 winners were a tactical mess against Czech Republic but maybe that's ok?`\
+https://nytimes.com/athletic/5572078/2024/06/19/portugal-roberto-martinez-euro-2024-tactics/
+
 **Jose Siri, Zach Neto and more widely-available Statcast standout hitters for the past month**\
 `Michael Salfino takes another dive into the deep end of hitter statistics to surface some hidden waiver wire treasures like Zach Neto.`\
 https://nytimes.com/athletic/5574189/2024/06/19/statcast-hitter-analysis-fantasy-baseball-past-month/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5574529/2024/06/19/willie-mays-historical-impact/
 **Why Chelsea are early supporters of the new Club World Cup**\
 `The priority for Maresca is to lead Chelsea back to the Champions League, but the Club World Cup is viewed as a serious trophy to target`\
 https://nytimes.com/athletic/5572456/2024/06/19/chelsea-club-world-cup/
-
-**'Presence, fear factor, the best hairdryer in the world' - working on Ange Postecoglou's staff**\
-`Former Spurs and Celtic fitness coach Anton McElhone shares his experiences of working with Postecoglu`\
-https://nytimes.com/athletic/5554191/2024/06/19/anton-mcelhone-postecoglou-management/
-
-**Leeds are a commercial powerhouse comparable to few outside Premier League 'Big Six'**\
-`Whether Leeds are in the Premier League or the Championship, they are one of the strongest commercial forces in English football`\
-https://nytimes.com/athletic/5569711/2024/06/19/leeds-commercial-power-is-comparable-to-few-outside-the-premier-leagues-big-six/
 
