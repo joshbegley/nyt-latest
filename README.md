@@ -1,3 +1,11 @@
+**How Heat Affects the Brain**\
+`High temperatures can make us miserable. Research shows they also make us aggressive, impulsive and dumb.`\
+https://nytimes.com/2024/06/19/well/mind/heat-affect-brain-emotions.html
+
+**How Has a Ban on Smartphones in Schools Affected You?**\
+`We want to hear from you — students, parents and teachers — about a growing push to limit smartphone usage in schools.`\
+https://nytimes.com/2024/06/19/us/politics/smartphone-ban-schools-callout.html
+
 **Amid Military Recruitment Challenges, Congress Debates Changes to the Draft**\
 `Republicans and Democrats are weighing proposals to expand military conscription to women and make registration automatic. Both proposals face an uphill path to becoming law.`\
 https://nytimes.com/2024/06/19/us/politics/military-draft-women.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5576142/2024/06/19/cubs-yan-gomes-tomas-nido/
 **‘Pre-Existing Condition’ Review: Recovering From a Traumatic Relationship**\
 `Marin Ireland’s play opens with Tatiana Maslany in a rotating cast of stars, and “What Became of Us” continues its own experiment with changing casts.`\
 https://nytimes.com/2024/06/19/theater/pre-existing-condition-review-marin-ireland.html
-
-**Murray retires injured in Queen's second round**\
-`In what was likely his final match at Queen's Club, Andy Murray saw a back spasm derail his grass-court preparations for Wimbledon`\
-https://nytimes.com/athletic/5576115/2024/06/19/andy-murray-injury-queens/
-
-**Flames trade goalie Jacob Markström to Devils**\
-`Markström, who spent the last four seasons with the Flames, was 23-23-2 in 2023-24.`\
-https://nytimes.com/athletic/5576112/2024/06/19/flames-jacob-markstrom-trade-devils/
 
