@@ -1,3 +1,15 @@
+**Panama captain and Nashville's Godoy out of Copa America**\
+`Panama captain Anibal Godoy has been ruled out of the Copa America with a thigh injury.`\
+https://nytimes.com/athletic/5575981/2024/06/19/anibal-godoy-panama-injury-copa-america/
+
+**Maine Takes Precautions for Heat, Including Changes to Juneteenth Event**\
+`Around the state, cooling centers are opening  in libraries, town halls, civic centers, Y.M.C.A.s, fire departments and other public buildings to give people a chance to escape the heat.`\
+https://nytimes.com/2024/06/19/weather/maine-heat-wave.html
+
+**Willie Mays, a mid-century masterpiece of a modern ballplayer, was our connection to a different time**\
+`"I do not consider myself a superstar,” Mays once said. “I consider myself a complete ballplayer."`\
+https://nytimes.com/athletic/5575890/2024/06/19/willie-mays-death-modern-ballplayer/
+
 **Penguins name Kirk MacDonald coach of AHL affiliate**\
 `MacDonald never played in the NHL though he is a veteran of several AHL seasons as a player.
 `\

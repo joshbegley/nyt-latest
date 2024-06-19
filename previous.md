@@ -1,3 +1,15 @@
+**Panama captain and Nashville's Godoy out of Copa America**\
+`Panama captain Anibal Godoy has been ruled out of the Copa America with a thigh injury.`\
+https://nytimes.com/athletic/5575981/2024/06/19/anibal-godoy-panama-injury-copa-america/
+
+**Maine Takes Precautions for Heat, Including Changes to Juneteenth Event**\
+`Around the state, cooling centers are opening  in libraries, town halls, civic centers, Y.M.C.A.s, fire departments and other public buildings to give people a chance to escape the heat.`\
+https://nytimes.com/2024/06/19/weather/maine-heat-wave.html
+
+**Willie Mays, a mid-century masterpiece of a modern ballplayer, was our connection to a different time**\
+`"I do not consider myself a superstar,” Mays once said. “I consider myself a complete ballplayer."`\
+https://nytimes.com/athletic/5575890/2024/06/19/willie-mays-death-modern-ballplayer/
+
 **Canadian police open investigation into Porter betting scandal**\
 `Porter is part of a criminal investigation by the OPP as law enforcement looks into alleged betting impropriety.`\
 https://nytimes.com/athletic/5575906/2024/06/19/jontay-porter-ontario-investigation-betting/
@@ -25,17 +37,4 @@ https://nytimes.com/2024/06/19/dining/panzanella.html
 **With the Help of Whales, a Choreographer Falls Into an Abyss**\
 `Mayfield Brooks explores grief and decomposition in the hull of a 19th-century cargo ship.`\
 https://nytimes.com/2024/06/19/arts/dance/mayfield-brooks-whale-fall-abyss-wavertree.html
-
-**Do We Need Language to Think?**\
-`A group of neuroscientists argue that our words are primarily for communicating, not for reasoning.`\
-https://nytimes.com/2024/06/19/science/brain-language-thought.html
-
-**Penguins name Kirk MacDonald coach of AHL affiliate**\
-`MacDonald never played in the NHL though he is a veteran of several AHL seasons as a player.
-`\
-https://nytimes.com/athletic/5575854/2024/06/19/penguins-kirk-macdonald-ahl-coach/
-
-**Why Is Everyone on TikTok Suddenly Going to the Chiropractor?**\
-`Neck cracks and spine adjustments have become a potent social media trend, but some chiropractors fear the videos send the wrong message about the profession.`\
-https://nytimes.com/2024/06/19/us/chiropractor-tiktok-instagram.html
 
