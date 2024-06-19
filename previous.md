@@ -1,3 +1,7 @@
+**Which players are at risk of suspension at Euro 2024?**\
+`Kylian Mbappe received a bizarre yellow card during France&#8217;s 1-0 win against Austria at the European Championship after breaking his nose.`\
+https://nytimes.com/athletic/5572073/2024/06/18/euro-2024-yellow-cards-ban-suspensions/
+
 **MLB world reacts to Willie Mays' death**\
 `Mays left an indelible legacy on baseball, sparking many members of the MLB community to pay tribute to him on social media.`\
 https://nytimes.com/athletic/5574552/2024/06/18/mlb-willie-mays-death/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/18/us/willie-mays-death-baseball-legacy.html
 **How Well Do You Know the N.Y.C. Subway?**\
 `The New York City subway is arguably the most famous transit network in America. How well do you know it? Take our quiz to find out.`\
 https://nytimes.com/interactive/2024/06/18/nyregion/nyc-subway-quiz.html
-
-**Willie Mays, Electrifying Ballplayer of Power and Grace, Dies at 93**\
-`Mays, the Say Hey Kid, was baseball’s exuberant embodiment of the complete player. Some say he was the greatest of them all.`\
-https://nytimes.com/2024/06/18/sports/willie-mays-dead.html
 
