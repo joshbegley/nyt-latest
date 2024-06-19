@@ -1,3 +1,11 @@
+**Who Owns Alexander the Great? It’s a Diplomatic Minefield.**\
+`North Macedonia has claimed historical figures as part of a drive to build a national identity. That has ruffled the feathers of the Balkan nation’s neighbors.`\
+https://nytimes.com/2024/06/19/world/europe/north-macedonia-history-statues.html
+
+**Kandinsky Cut Ties With Russia. So Did This Museum.**\
+`The first major exhibition at H’Art, a former satellite of the Hermitage, explores how war and nationalism shaped the painter’s career.`\
+https://nytimes.com/2024/06/19/arts/design/hart-museum-kandinsky.html
+
 **Texas Megachurch Pastor Resigns After Sexual Abuse Allegations**\
 `Robert Morris, a faith adviser to the Trump White House, resigned from Gateway Church after he was accused of abusing a child in the 1980s.`\
 https://nytimes.com/2024/06/18/us/pastor-robert-morris-gateway-church.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5574369/2024/06/18/julia-koch-nets-liberty-bse-glob
 **Targets of Pull-Down Exercises, in Brief**\
 `Brad Wiegmann has new takes on old wisdom.`\
 https://nytimes.com/2024/06/18/crosswords/daily-puzzle-2024-06-19.html
-
-**Race and Israel Take Center Stage in Final Bowman-Latimer Debate**\
-`Representative Jamaal Bowman of New York sought to portray his challenger, George Latimer, as a pawn of a major pro-Israel lobby.`\
-https://nytimes.com/2024/06/18/nyregion/bowman-latimer-debate.html
-
-**Read the Ruling by the Virginia Court of Appeals**\
-`Marvin Leon Grimm Jr., who confessed to the 1975 murder of a 3-year-old boy and spent 45 years in prison, was granted a writ of actual innocence by the Virginia appeals court, fully absolving him of the crime.`\
-https://nytimes.com/interactive/2024/06/19/us/0741232.html
 
