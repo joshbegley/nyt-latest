@@ -1,3 +1,19 @@
+**Flames trade goalie Jacob Markström to Devils**\
+`Markström, who spent the last four seasons with the Flames, was 23-23-2 in 2023-24`\
+https://nytimes.com/athletic/5576112/2024/06/19/flames-jacob-markstrom-trade-devils/
+
+**Payton II to exercise his player option with Warriors**\
+`The first domino of a challenging Warriors offseason has fallen.`\
+https://nytimes.com/athletic/5573962/2024/06/19/gary-payton-warriors-player-option/
+
+**176 Writing Prompts to Spark Discussion and Reflection**\
+`Here are all of our Student Opinion questions from the 2023-24 school year. Each question is based on a different New York Times article, interactive feature or video.`\
+https://nytimes.com/2024/06/19/learning/176-writing-prompts-to-spark-discussion-and-reflection.html
+
+**Putin Once Tried to Curb North Korea’s Nuclear Program. That’s Now Over.**\
+`Vladimir Putin promised unspecified technological help to North Korea, which could help the North better target its many adversaries.`\
+https://nytimes.com/2024/06/19/us/politics/putin-kim-russia-nuclear.html
+
 **Lowetide: How 4 inspired moves by Oilers GM Ken Holland are paying off**\
 `Holland's four best moves as Oilers GM have contributed greatly to the current state of affairs.`\
 https://nytimes.com/athletic/5571457/2024/06/19/oilers-ken-holland-stanley-cup-final/
