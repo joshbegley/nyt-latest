@@ -1,3 +1,7 @@
+**Woods granted lifetime entry into future PGA Tour events**\
+`Tiger Woods has been awarded a lifetime exemption by the PGA Tour to enter all of its future signature events, beginning next year.`\
+https://nytimes.com/athletic/5575368/2024/06/19/tiger-woods-pga-tour-lifetime/
+
 **Christopher Bell on managing emotions and dealing with disappointment: 12 Questions**\
 `Christopher Bell talks about keeping it even-mannered on the track, bouncing back after a tough result and much more.`\
 https://nytimes.com/athletic/5571480/2024/06/19/christopher-bell-nascar-emotions-12-questions/
