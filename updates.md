@@ -1,3 +1,7 @@
+**Willie Mays, Birmingham and Rickwood Field: Baseball Honors a Legend in His Hometown**\
+`Major League Baseball is in Birmingham to honor the legacy of the Negro Leagues. With Mays’s death, the celebration at ancient Rickwood Field takes on new meaning.`\
+https://nytimes.com/2024/06/19/us/mays-birmingham-barons-rickwood.html
+
 **Ecuador Hit by Nationwide Blackout**\
 `The public works minister said the power outage had been caused by the failure of a transmission line.`\
 https://nytimes.com/2024/06/19/world/americas/ecuador-nationwide-blackout.html
