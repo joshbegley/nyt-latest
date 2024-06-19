@@ -1,3 +1,7 @@
+**Britain Election Winner’s First Problem: Fix a Stagnant Economy**\
+`After more than a decade of deep budget cuts, slow growth and weak productivity, the country has struggled to overcome years of uncertainty and underinvestment.`\
+https://nytimes.com/2024/06/19/business/britain-economy-inflation.html
+
 **As Mets continue to rally and win, their young players are establishing themselves**\
 `Francisco Alvarez and Mark Vientos proved again Tuesday in Texas that they're ready for the big moments.`\
 https://nytimes.com/athletic/5574943/2024/06/19/mets-rally-7-straight-francisco-alvarez/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/19/pageoneplus/quotation-of-the-day-politics-still-r
 **'Today, my body was really beat down': Padres' Fernando Tatis Jr. reveals lingering injury**\
 `Tatis didn't start because of quad tightness, but he ended up with a close look at the walk-off loss in Philadelphia.`\
 https://nytimes.com/athletic/5574778/2024/06/19/padres-fernando-tatis-quad-tightness/
-
-**Kiwior's decision to stay at Arsenal is paying off for club and country**\
-`It looked like Kiwior might leave Arsenal back in January, but the Poland defender chose not to and has enjoyed an excellent six months`\
-https://nytimes.com/athletic/5558797/2024/06/19/jakub-kiwior-poland-arsenal/
 
