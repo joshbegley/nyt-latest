@@ -1,3 +1,7 @@
+**Julia Koch agrees to buy 15 percent stake in Nets' BSE Global**\
+`Julia Koch is the widow of late billionaire and major political donor David Koch, and the deal is believed to value BSE at $6 billion.`\
+https://nytimes.com/athletic/5574369/2024/06/18/julia-koch-nets-liberty-bse-global-sale/
+
 **Targets of Pull-Down Exercises, in Brief**\
 `Brad Wiegmann has new takes on old wisdom.`\
 https://nytimes.com/2024/06/18/crosswords/daily-puzzle-2024-06-19.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/18/sports/willie-mays-dead.html
 **Commanders reach $1.3M season ticket deposit settlement**\
 `Washington agreed to the settlement following allegations the organization neglected to return ticket deposits and other fees.`\
 https://nytimes.com/athletic/5574449/2024/06/18/commanders-season-ticket-settlement-virginia/
-
-**Willie Mays, baseball’s electrifying ‘Say Hey Kid,’ dies at 93**\
-`Giants announce all-time great Willie Mays passed away peacefully on Tuesday afternoon`\
-https://nytimes.com/athletic/3070070/2024/06/18/willie-mays-obituary-giants/
 
