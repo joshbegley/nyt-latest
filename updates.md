@@ -8,6 +8,11 @@ https://nytimes.com/athletic/5575854/2024/06/19/penguins-kirk-macdonald-ahl-coac
 `\
 https://nytimes.com/athletic/5575854/2024/06/19/penguins-kirk-macdonald-ahl-coach/
 
+**Penguins name Kirk MacDonald coach of AHL affiliate**\
+`MacDonald never played in the NHL though he is a veteran of several AHL seasons as a player.
+`\
+https://nytimes.com/athletic/5575854/2024/06/19/penguins-kirk-macdonald-ahl-coach/
+
 **Tracking Tropical Storm Alberto**\
 `See the likely path and wind arrival times for Alberto.`\
 https://nytimes.com/interactive/2024/weather/alberto-texas-mexico.html
