@@ -1,3 +1,7 @@
+**Willie Mays, baseball’s electrifying ‘Say Hey Kid,’ dies at 93**\
+`Giants announce all-time great Willie Mays passed away peacefully on Tuesday afternoon`\
+https://nytimes.com/athletic/3070070/2024/06/18/willie-mays-obituary-giants/
+
 **Yankees' Aaron Judge leaves game after getting hit by pitch**\
 `Judge initially stayed in the game but was removed for a pinch hitter an inning after the HBP.`\
 https://nytimes.com/athletic/5574488/2024/06/18/yankees-aaron-judge-hit-in-hand-leaves-game/
