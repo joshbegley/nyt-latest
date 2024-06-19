@@ -1,3 +1,7 @@
+**Opening game of Copa America sold out**\
+`Argentina vs Canada, the opening game of Copa America, is a sell out, the tournament confirmed on Wednesday.`\
+https://nytimes.com/athletic/5577005/2024/06/19/copa-america-argentina-canada-tickets/
+
 **Putin’s Presidential Planes: What We Know**\
 `The Kremlin clings to Soviet-designed aircraft even as Russia’s commercial carriers opt for Western planes.`\
 https://nytimes.com/2024/06/19/world/europe/putins-presidential-planes-what-we-know.html
