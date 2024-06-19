@@ -1,3 +1,7 @@
+**George Kittle, his 49ers teammates and the detailed focus of 2024 Tight End U**\
+`Kittle's fourth installment of Tight End U reflects the continued growth of the position's importance in today's NFL passing offenses.`\
+https://nytimes.com/athletic/5575651/2024/06/19/49ers-george-kittle-tight-end-u/
+
 **Hezbollah’s leader says it will fight without ‘constraints, rules, or limits’ if attacked by Israel.**\
 `By Euan Ward`\
 https://nytimes.com/live/2024/06/19/world/israel-gaza-war-hamas/hezbollahs-leader-says-it-will-fight-without-constraints-rules-or-limits-if-attacked-by-israel
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/19/us/lousiana-ten-commandments-classrooms.html
 **OpenAI Co-Founder, Who Helped Oust Sam Altman, Starts His Own Company**\
 `Ilya Sutskever’s new start-up, Safe Superintelligence, aims to build A.I. technologies that are smarter than a human but not dangerous.`\
 https://nytimes.com/2024/06/19/technology/ilya-sutskever-openai-safe-superintelligence.html
-
-**You’re not imagining it. Summers are getting hotter.**\
-`By Nadja Popovich and Adam Pearce`\
-https://nytimes.com/live/2024/06/19/weather/heat-wave-news/youre-not-imagining-it-summers-are-getting-hotter
 
