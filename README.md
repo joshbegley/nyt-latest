@@ -1,3 +1,15 @@
+**Cubs DFA Yan Gomes, sign Tomás Nido in attempt to address catching problems**\
+`Nido, who was released by the New York Mets this week, should be an upgrade.`\
+https://nytimes.com/athletic/5576142/2024/06/19/cubs-yan-gomes-tomas-nido/
+
+**‘Pre-Existing Condition’ Review: Recovering From a Traumatic Relationship**\
+`Marin Ireland’s play opens with Tatiana Maslany in a rotating cast of stars, and “What Became of Us” continues its own experiment with changing casts.`\
+https://nytimes.com/2024/06/19/theater/pre-existing-condition-review-marin-ireland.html
+
+**Murray retires injured in Queen's second round**\
+`In what was likely his final match at Queen's Club, Andy Murray saw a back spasm derail `\
+https://nytimes.com/athletic/5576115/2024/06/19/andy-murray-injury-queens/
+
 **Flames trade goalie Jacob Markström to Devils**\
 `Markström, who spent the last four seasons with the Flames, was 23-23-2 in 2023-24`\
 https://nytimes.com/athletic/5576112/2024/06/19/flames-jacob-markstrom-trade-devils/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5573062/2024/06/19/copa-america-2024-data-guide/
 **Slot says Klopp gave him 'good tips' for Liverpool job**\
 `Arne Slot says he sought advice from his predecessor Jurgen Klopp before officially beginning his reign as Liverpool head coach.`\
 https://nytimes.com/athletic/5575887/2024/06/19/arne-slot-liverpool-interview/
-
-**Panama captain and Nashville's Godoy out of Copa America**\
-`Panama captain Anibal Godoy has been ruled out of the Copa America with a thigh injury.`\
-https://nytimes.com/athletic/5575981/2024/06/19/anibal-godoy-panama-injury-copa-america/
-
-**Maine Takes Precautions for Heat, Including Changes to Juneteenth Event**\
-`Around the state, cooling centers are opening  in libraries, town halls, civic centers, Y.M.C.A.s, fire departments and other public buildings to give people a chance to escape the heat.`\
-https://nytimes.com/2024/06/19/weather/maine-heat-wave.html
-
-**Willie Mays, a mid-century masterpiece of a modern ballplayer, was our connection to a different time**\
-`"I do not consider myself a superstar,” Mays once said. “I consider myself a complete ballplayer."`\
-https://nytimes.com/athletic/5575890/2024/06/19/willie-mays-death-modern-ballplayer/
 
