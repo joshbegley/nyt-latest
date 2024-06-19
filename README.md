@@ -1,3 +1,11 @@
+**Willie Mays, Electrifying Player of Power and Grace, Dies at 93**\
+`Mays, the Say Hey Kid, was the exuberant embodiment of the complete ballplayer. Some say he was the greatest of them all.`\
+https://nytimes.com/2024/06/18/sports/willie-mays-dead.html
+
+**Commanders reach $1.3M season ticket deposit settlement**\
+`Washington agreed to the settlement following allegations the organization neglected to return ticket deposits and other fees.`\
+https://nytimes.com/athletic/5574449/2024/06/18/commanders-season-ticket-settlement-virginia/
+
 **Willie Mays, baseball’s electrifying ‘Say Hey Kid,’ dies at 93**\
 `Giants announce all-time great Willie Mays passed away peacefully on Tuesday afternoon`\
 https://nytimes.com/athletic/3070070/2024/06/18/willie-mays-obituary-giants/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/06/18/world/israel-gaza-war-hamas/gazans-are-livin
 **California Moves to Modify Law Letting Workers Sue Employers**\
 `Gov. Gavin Newsom announced a deal with business and labor leaders heading off a ballot measure to repeal the law, which has cost companies billions.`\
 https://nytimes.com/2024/06/18/business/economy/california-newsom-labor.html
-
-**Home Collapses in Syracuse, Injuring at Least 10, Officials Say**\
-`Firefighters were still searching for potential victims trapped in the rubble. An explosion was reported and an occupied car was found buried inside.`\
-https://nytimes.com/2024/06/18/nyregion/syracuse-house-collapse.html
-
-**How Capitalism Went Off the Rails**\
-`Easy money destroyed the basis for productive, competitive markets.`\
-https://nytimes.com/2024/06/18/opinion/capitalism-inflation.html
 
