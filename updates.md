@@ -13,6 +13,11 @@ https://nytimes.com/athletic/5575854/2024/06/19/penguins-kirk-macdonald-ahl-coac
 `\
 https://nytimes.com/athletic/5575854/2024/06/19/penguins-kirk-macdonald-ahl-coach/
 
+**Penguins name Kirk MacDonald coach of AHL affiliate**\
+`MacDonald never played in the NHL though he is a veteran of several AHL seasons as a player.
+`\
+https://nytimes.com/athletic/5575854/2024/06/19/penguins-kirk-macdonald-ahl-coach/
+
 **Life With Alzheimer’s: Families’ Stories**\
 `Readers recount their experiences coping with the disease. Also: A mother’s dementia; the B.D.S. movement; dangers of factory farms.`\
 https://nytimes.com/2024/06/19/opinion/alzheimers-dementia-eldercare.html
