@@ -1,3 +1,7 @@
+**Without a plan for Gaza, ‘we will get Hamas’ again, Hagari said.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/06/19/world/israel-gaza-war-hamas/without-a-plan-for-gaza-we-will-get-hamas-again-hagari-said
+
 **MLB Draft Combine notes: Kellon Lindsey on the rise, Jared Jones shows out in BP**\
 `Lindsey has drawn Trea Turner comps and the two-sport star has seen his game take off since deciding to focus solely on baseball.`\
 https://nytimes.com/athletic/5576313/2024/06/19/mlb-draft-combine-kellon-lindsey-jared-jones/
