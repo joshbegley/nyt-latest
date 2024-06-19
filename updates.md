@@ -1,3 +1,15 @@
+**The retro kick-off tactic that is proving popular (and effective) at Euro 2024**\
+`A new (old) trend is creeping into football – launching the ball forward from kick-off`\
+https://nytimes.com/athletic/5570027/2024/06/19/kick-off-tactic-euros/
+
+**Why Toni Kroos ignored progress and stuck with his old Adidas boots**\
+`While football as an industry is geared towards progress and newness, Kroos found a paid of boots he liked and stuck with them. Here's why`\
+https://nytimes.com/athletic/5572144/2024/06/19/toni-kroos-adidas-football-boots/
+
+**From Scholes to Iniesta to Ozil: How successful tournament teams often compromise on the left wing**\
+`Other nations have been forced to shift one of their star names out to the left flank - often with great success`\
+https://nytimes.com/athletic/5572119/2024/06/19/england-left-side-problem-foden-scholes/
+
 **What is it really like being a pregnant footballer?**\
 `Two experienced internationals talk The Athletic through their pregnancy journeys – and explain the challenges they have faced`\
 https://nytimes.com/athletic/5558978/2024/06/19/simone-boye-stine-larsen-pregnancy/
