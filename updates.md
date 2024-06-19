@@ -1,3 +1,15 @@
+**It’s Time to Ban Pharmaceutical Advertising**\
+`There are too many drug ads on social media to ever regulate them properly, and ads drive up prescription costs.`\
+https://nytimes.com/2024/06/19/opinion/tiktok-telehealth.html
+
+**Getting Real With the Dallas Cowboys Cheerleaders**\
+`Kelli Finglass, the director of the dance squad, sits down for a discussion of the new Netflix series “America’s Sweethearts.”`\
+https://nytimes.com/2024/06/19/style/americas-sweethearts-dallas-cowboys-cheerleaders.html
+
+**Why Are My Parents Handling College Costs So Differently for My Sibling?**\
+`A reader who was made to choose a college based on price is struggling to understand her parents’ support of her younger sister at an expensive private school.`\
+https://nytimes.com/2024/06/19/style/parents-siblings-unequal-treatment-favoritism.html
+
 **Russia Sentences U.S. Soldier to 4 Years in Prison**\
 `Staff Sgt. Gordon Black was accused of making death threats against, and stealing money from, a woman with whom he was romantically involved.`\
 https://nytimes.com/2024/06/19/world/europe/russia-us-soldier-gordon-black.html
