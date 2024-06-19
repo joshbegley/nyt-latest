@@ -1,3 +1,7 @@
+**How much could Knicks' Isaiah Hartenstein make in free agency?**\
+`The Athletic recently polled 16 front-office officials, asking what they would deem a “fair” contract for Hartenstein in free agency.`\
+https://nytimes.com/athletic/5575723/2024/06/19/knicks-isaiah-hartenstein-free-agency/
+
 **Tracking Tropical Storm Alberto**\
 `See the likely path and wind arrival times for Alberto.`\
 https://nytimes.com/interactive/2024/weather/alberto-texas-mexico.html
@@ -34,8 +38,4 @@ https://nytimes.com/2024/06/19/us/chiropractor-tiktok-instagram.html
 **Brussels refuses to host Belgium-Israel match due to security fears**\
 `The city of Brussels has said it will not host Belgium’s men’s Nations League game against Israel in September due to fears over the safety of players and fans.`\
 https://nytimes.com/athletic/5575784/2024/06/19/belgium-israel-brussels-security/
-
-**Group of Austrians Picks 77 Charities to Receive Heiress’s Fortune**\
-`Marlene Engelhorn, a descendant of the founder of one of the world’s largest chemical companies, decided to give away most of her inheritance.`\
-https://nytimes.com/2024/06/19/world/europe/marlene-engelhorn-heiress-fortune.html
 
