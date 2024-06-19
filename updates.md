@@ -1,3 +1,15 @@
+**Italy won't make 'huge mistake' of overestimating Spain - Spalletti**\
+`Luciano Spalletti says Italy will &#8220;play our own game&#8221; against Spain and won&#8217;t make the &#8220;huge mistake&#8221; of overestimating their Group B rivals.`\
+https://nytimes.com/athletic/5575737/2024/06/19/italy-spain-spalletti/
+
+**E.U. Warns France Over ‘Excessive’ Deficit, Adding to Political Risks**\
+`The rebuke for breaking European Union rules that require strict financial discipline comes two weeks before French voters head to the polls for parliamentary elections.`\
+https://nytimes.com/2024/06/19/business/france-budget-deficit-macron.html
+
+**Pacers, Siakam agree to 4-year, $189.5 million max contract**\
+`Siakam, 30, joined the Pacers in January via a trade after seven-plus seasons with the Toronto Raptors.`\
+https://nytimes.com/athletic/5575672/2024/06/19/pascal-siakam-contract-pacers/
+
 **Harrison close to rejoining Everton on loan from Leeds**\
 `Jack Harrison is close to joining Everton on another season long loan from Leeds United.`\
 https://nytimes.com/athletic/5575613/2024/06/19/jack-harrison-everton-leeds-transfer/
