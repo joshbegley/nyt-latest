@@ -1,3 +1,7 @@
+**Opening game of Copa America sold out**\
+`Argentina vs Canada, the opening game of Copa America, is a sell out, the tournament confirmed on Wednesday.`\
+https://nytimes.com/athletic/5577005/2024/06/19/copa-america-argentina-canada-tickets/
+
 **Putin’s Presidential Planes: What We Know**\
 `The Kremlin clings to Soviet-designed aircraft even as Russia’s commercial carriers opt for Western planes.`\
 https://nytimes.com/2024/06/19/world/europe/putins-presidential-planes-what-we-know.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/19/insider/jacob-bernstein-reporting.html
 **The Briefing: Scotland 1 Switzerland - Shaqiri's stunner, own goal confusion, Tierney's agony**\
 `Scotland and Switzerland played out a pulsating draw in Cologne - The Athletic assesses the talking points`\
 https://nytimes.com/athletic/5572681/2024/06/19/scotland-1-switzerland-1-shaqiri-own-goal/
-
-**Euro 2024 day six: Germany advance, MLS history, comedy goals, don't trust world rankings**\
-`What happened on day six of the European Championship in Germany`\
-https://nytimes.com/athletic/5575468/2024/06/19/day-six-euro-2024-mls/
 
