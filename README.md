@@ -1,3 +1,7 @@
+**U.S. falls short, lose against South Africa at T20 World Cup**\
+`The United States fell to defeat by South Africa in the opening game of the Super Eight phase of the T20 World Cup.`\
+https://nytimes.com/athletic/5576471/2024/06/19/usa-cricket-world-cup-south-africa/
+
 **Shaw out of England's Denmark game - Southgate**\
 `Gareth Southgate has confirmed Luke Shaw will play no part in England&#8217;s European Championship game against Denmark on Thursday.`\
 https://nytimes.com/athletic/5576476/2024/06/19/luke-shaw-injury-denmark/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/19/opinion/letters/willie-mays.html
 **The UEFA rules that could stop Man United signing Todibo**\
 `Manchester United are unlikely to sign Nice defender Jean-Clair Todibo this summer due to UEFA rules on multi-club ownership.`\
 https://nytimes.com/athletic/5576197/2024/06/19/manchester-united-jean-clair-todibo-transfer-why/
-
-**Mbappe trains with broken nose before Netherlands game**\
-`France captain Kylian Mbappe took part in training on Wednesday afternoon, two days after breaking his nose in his country&#8217;s 2-1 victory over Austria in their European Championship opener.`\
-https://nytimes.com/athletic/5576291/2024/06/19/kylian-mbappe-injury-netherlands/
 
