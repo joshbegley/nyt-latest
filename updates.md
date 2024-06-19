@@ -1,3 +1,11 @@
+**Drance: What Filip Hronek's extension tells us about the Canucks' offseason plans**\
+`Hronek's extension reinforces the specific brand of aggression that has become typical and characteristic of this Canucks front office.`\
+https://nytimes.com/athletic/5574426/2024/06/18/canucks-filip-hronek-extension/
+
+**Willie Mays, Electrifying Ballplayer of Power and Grace, Dies at 93**\
+`Mays, the Say Hey Kid, was baseball’s exuberant embodiment of the complete player. Some say he was the greatest of them all.`\
+https://nytimes.com/2024/06/18/sports/willie-mays-dead.html
+
 **Democratic State Senator Emerges From Nasty House Primary in Virginia**\
 `Suhas Subramanyam had the endorsement of Representative Jennifer Wexton, who is retiring.`\
 https://nytimes.com/2024/06/18/us/politics/virginia-10th-district-suhas-subramanyam.html
