@@ -1,4 +1,8 @@
 **Toyota Chairman’s Investor Support Tumbles**\
+`Just 71.9 percent of shareholders supported Akio Toyoda, who has faced scrutiny from investor groups over governance issues, in his bid to remain chairman.`\
+https://nytimes.com/2024/06/19/business/akio-toyoda-toyota-shareholder-vote.html
+
+**Toyota Chairman’s Investor Support Tumbles**\
 `Akio Toyoda has faced scrutiny from some investor groups over governance issues and an ongoing probe of faulty vehicle-certification tests.`\
 https://nytimes.com/2024/06/19/business/akio-toyoda-toyota-shareholder-vote.html
 
