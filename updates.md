@@ -1,3 +1,19 @@
+**Lowetide: How 4 inspired moves by Oilers GM Ken Holland are paying off**\
+`Holland's four best moves as Oilers GM have contributed greatly to the current state of affairs.`\
+https://nytimes.com/athletic/5571457/2024/06/19/oilers-ken-holland-stanley-cup-final/
+
+**Copa America 2024 data guide: Three ex-Leeds managers, two 17-year-olds and one Argentinian outlier**\
+`Oldest squad, youngest player, most goals per cap, and a lot of Argentinian managers – what the data says about Copa America 2024`\
+https://nytimes.com/athletic/5573062/2024/06/19/copa-america-2024-data-guide/
+
+**Slot says Klopp gave him 'good tips' for Liverpool job**\
+`Arne Slot says he sought advice from his predecessor Jurgen Klopp before officially beginning his reign as Liverpool head coach.`\
+https://nytimes.com/athletic/5575887/2024/06/19/arne-slot-liverpool-interview/
+
+**The Briefing: Croatia 2 Albania 2 - How did Croatia turn it around? Unluckiest own goal? Can Albania go through?**\
+`Our writers break down all the action from a thrilling draw in Group B`\
+https://nytimes.com/athletic/5572674/2024/06/19/croatia-albania-euro-2024/
+
 **Panama captain and Nashville's Godoy out of Copa America**\
 `Panama captain Anibal Godoy has been ruled out of the Copa America with a thigh injury.`\
 https://nytimes.com/athletic/5575981/2024/06/19/anibal-godoy-panama-injury-copa-america/
