@@ -1,3 +1,7 @@
+**Read the Ruling by the Virginia Court of Appeals**\
+`Marvin Leon Grimm Jr., who confessed to the 1975 murder of a 3-year-old boy and spent 45 years in prison, was granted a writ of actual innocence by the Virginia appeals court, fully absolving him of the crime.`\
+https://nytimes.com/interactive/2024/06/19/us/0741232.html
+
 **Drance: What Filip Hronek's extension tells us about the Canucks' offseason plans**\
 `Hronek's extension reinforces the specific brand of aggression that has become typical and characteristic of this Canucks front office.`\
 https://nytimes.com/athletic/5574426/2024/06/18/canucks-filip-hronek-extension/
