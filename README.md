@@ -1,3 +1,11 @@
+**Everton's Lewis Dobbin in talks over Aston Villa transfer**\
+`Everton winger Lewis Dobbin has held positive talks over a transfer to Aston Villa.`\
+https://nytimes.com/athletic/5576574/2024/06/19/lewis-dobbin-everton-aston-villa-transfer/
+
+**"This is Albania; it’s a bit crazy": Outsiders making Group B rivals sweat**\
+`Few will have expected them to be Group B's most combative element, yet Albania – ranked 66th in the world – have left the big boys worried`\
+https://nytimes.com/athletic/5570712/2024/06/19/albania-croatia-group-b/
+
 **George Kittle, his 49ers teammates and the detailed focus of 2024 Tight End U**\
 `Kittle's fourth installment of Tight End U reflects the continued growth of the position's importance in today's NFL passing offenses.`\
 https://nytimes.com/athletic/5575651/2024/06/19/49ers-george-kittle-tight-end-u/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/19/us/politics/trump-biden-debate-expectations.html
 **Trotter: Monty Williams' failure in Detroit was predestined. Ownership chose not to see it**\
 `Going back to his introduction — when he cited money as a key factor in taking the job — it was hard to believe Williams was fully invested.`\
 https://nytimes.com/athletic/5576373/2024/06/19/detroit-pistons-monty-williams-nba-tom-gores/
-
-**Louisiana Requires Ten Commandments to Be Displayed in Every Public Classroom**\
-`A law signed by Gov. Jeff Landry on Wednesday makes the state the only one with such a mandate. Critics have vowed to mount a constitutional challenge.`\
-https://nytimes.com/2024/06/19/us/lousiana-ten-commandments-classrooms.html
-
-**OpenAI Co-Founder, Who Helped Oust Sam Altman, Starts His Own Company**\
-`Ilya Sutskever’s new start-up, Safe Superintelligence, aims to build A.I. technologies that are smarter than a human but not dangerous.`\
-https://nytimes.com/2024/06/19/technology/ilya-sutskever-openai-safe-superintelligence.html
 
