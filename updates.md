@@ -1,3 +1,11 @@
+**MLB Draft Combine notes: Kellon Lindsey on the rise, Jared Jones shows out in BP**\
+`Lindsey has drawn Trea Turner comps and the two-sport star has seen his game take off since deciding to focus solely on baseball.`\
+https://nytimes.com/athletic/5576313/2024/06/19/mlb-draft-combine-kellon-lindsey-jared-jones/
+
+**How does the Markstrom trade shape Ullmark's value?**\
+`The Bruins may have to accept the reality of a muted trade market when it comes to Ullmark.`\
+https://nytimes.com/athletic/5576375/2024/06/19/jacob-markstrom-linus-ullmark-devils-trade/
+
 **The Briefing: Germany 2 Hungary 0 - Nagelsmann's tactics, Neuer's revival and Germany through**\
 `Our writers analyse and evaluate the key talking points from Germany's 2-0 victory over Hungary in Stuttgart `\
 https://nytimes.com/athletic/5572677/2024/06/19/germany-hungary-euro-2024-briefing/

@@ -1,3 +1,7 @@
+**Without a plan for Gaza, ‘we will get Hamas’ again, Hagari said.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/06/19/world/israel-gaza-war-hamas/without-a-plan-for-gaza-we-will-get-hamas-again-hagari-said
+
 **MLB Draft Combine notes: Kellon Lindsey on the rise, Jared Jones shows out in BP**\
 `Lindsey has drawn Trea Turner comps and the two-sport star has seen his game take off since deciding to focus solely on baseball.`\
 https://nytimes.com/athletic/5576313/2024/06/19/mlb-draft-combine-kellon-lindsey-jared-jones/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/19/style/justin-timberlake-arrest-sag-harbor-local-r
 **NHL trade grades: Devils get their goalie upgrade in Jacob Markstrom**\
 `The Devils got the goalie they've wanted all along and didn't give up top picks or prospects to do it.`\
 https://nytimes.com/athletic/5576254/2024/06/19/nhl-trade-grades-devils-jacob-markstrom/
-
-**Villa agree deal with Chelsea to sign Maatsen**\
-`Aston Villa have agreed a deal with Chelsea to sign left-back Ian Maatsen.`\
-https://nytimes.com/athletic/5558866/2024/06/19/ian-maatsen-aston-villa-transfer-chelsea/
 
