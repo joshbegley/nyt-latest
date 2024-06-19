@@ -1,3 +1,7 @@
+**For some in Cincinnati, escaping the heat is not an easy option.**\
+`By Kevin Williams`\
+https://nytimes.com/live/2024/06/19/weather/heat-wave-news/for-some-in-cincinnati-escaping-the-heat-is-not-an-easy-option
+
 **Shaqiri made history at Euro 2024 with a goal only he could have scored**\
 `The Chicago Fire player became the first from MLS to score at a European Championship - but what does that tell us?`\
 https://nytimes.com/athletic/5577053/2024/06/19/shaqiri-euro2024-history-mls-switzerland/
