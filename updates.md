@@ -1,3 +1,7 @@
+**Kristaps Porziņģis found a home — and ring — in Boston by continuing to embrace change**\
+`The past year could have looked a lot different had the 7-foot-2 center stayed in his comfort zone.`\
+https://nytimes.com/athletic/5573339/2024/06/19/boston-celtics-kristaps-porzingis-nba-finals/
+
 **Are Planes Safe Right Now? How to Understand Flight Disruptions.**\
 `You should expect the unexpected while flying, but few disruptions should provoke serious concern, aviation experts say.`\
 https://nytimes.com/2024/06/19/business/airplane-safety-flight-problems.html
