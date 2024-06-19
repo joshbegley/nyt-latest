@@ -1,3 +1,7 @@
+**Will Jed Hoyer finally add an impact bat to middle of Cubs' order this trade deadline?**\
+`Hoyer wants to see improvement from current Cubs hitters before he entertains the possibility of adding a big bat at the trade deadline.`\
+https://nytimes.com/athletic/5574730/2024/06/19/cubs-trade-deadline-jed-hoyer-approach/
+
 **Getting Aid Into Gaza**\
 `We explain why it has been such a challenge.`\
 https://nytimes.com/2024/06/19/briefing/getting-aid-into-gaza.html

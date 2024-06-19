@@ -1,3 +1,7 @@
+**Will Jed Hoyer finally add an impact bat to middle of Cubs' order this trade deadline?**\
+`Hoyer wants to see improvement from current Cubs hitters before he entertains the possibility of adding a big bat at the trade deadline.`\
+https://nytimes.com/athletic/5574730/2024/06/19/cubs-trade-deadline-jed-hoyer-approach/
+
 **Getting Aid Into Gaza**\
 `We explain why it has been such a challenge.`\
 https://nytimes.com/2024/06/19/briefing/getting-aid-into-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5570585/2024/06/19/lalas-holden-fox-usmnt-copa-amer
 **Wordle Review No. 1,097, June 20, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/06/19/crosswords/wordle-review-1097.html
-
-**The Connections Companion No. 375, June 20, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/06/19/crosswords/connections-companion-375.html
 
