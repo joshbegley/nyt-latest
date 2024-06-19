@@ -18,7 +18,7 @@ https://nytimes.com/2024/06/19/world/asia/putin-russia-vietnam-visit.html
 `Everton winger Lewis Dobbin has held positive talks over a transfer to Aston Villa.`\
 https://nytimes.com/athletic/5576574/2024/06/19/lewis-dobbin-everton-aston-villa-transfer/
 
-**"This is Albania; it’s a bit crazy": Outsiders making Group B rivals sweat**\
+**'This is Albania; it’s a bit crazy': Outsiders making Group B rivals sweat**\
 `Few will have expected them to be Group B's most combative element, yet Albania – ranked 66th in the world – have left the big boys worried`\
 https://nytimes.com/athletic/5570712/2024/06/19/albania-croatia-group-b/
 
