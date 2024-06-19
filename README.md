@@ -1,3 +1,7 @@
+**Texas Megachurch Pastor Resigns After Sexual Abuse Allegations**\
+`Robert Morris, a faith adviser to the Trump White House, resigned from Gateway Church after he was accused of abusing a child in the 1980s.`\
+https://nytimes.com/2024/06/18/us/pastor-robert-morris-gateway-church.html
+
 **In a First, Federal Government Acknowledges Harms of Dams on Native American Communities**\
 `In a report released Tuesday, the Biden administration said that federal dams in the Columbia River Basin had inflicted damage on local communities, and committed to restoring native fish to the ecosystem.`\
 https://nytimes.com/2024/06/18/us/dams-snake-columbia-river-native-tribes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/18/nyregion/bowman-latimer-debate.html
 **Read the Ruling by the Virginia Court of Appeals**\
 `Marvin Leon Grimm Jr., who confessed to the 1975 murder of a 3-year-old boy and spent 45 years in prison, was granted a writ of actual innocence by the Virginia appeals court, fully absolving him of the crime.`\
 https://nytimes.com/interactive/2024/06/19/us/0741232.html
-
-**Drance: What Filip Hronek's extension tells us about the Canucks' offseason plans**\
-`Hronek's extension reinforces the specific brand of aggression that has become typical and characteristic of this Canucks front office.`\
-https://nytimes.com/athletic/5574426/2024/06/18/canucks-filip-hronek-extension/
 
