@@ -6,4 +6,4 @@ https://nytimes.com/2024/06/19/nyregion/new-jersey-political-scandals.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/06/19/crosswords/spelling-bee-forum.html
 
-**French court rules that Israeli companies cannot be banned from a weapons show, and other news.**\
+**A French court says a weapons show can’t bar Israeli companies, and other news.**\
