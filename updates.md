@@ -1,3 +1,7 @@
+**MLB world reacts to Willie Mays' death**\
+`Mays left an indelible legacy on baseball, sparking many members of the MLB community to pay tribute to him on social media.`\
+https://nytimes.com/athletic/5574552/2024/06/18/mlb-willie-mays-death/
+
 **Julia Koch agrees to buy 15 percent stake in Nets' BSE Global**\
 `Julia Koch is the widow of late billionaire and major political donor David Koch, and the deal is believed to value BSE at $6 billion.`\
 https://nytimes.com/athletic/5574369/2024/06/18/julia-koch-nets-liberty-bse-global-sale/
