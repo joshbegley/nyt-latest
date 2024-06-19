@@ -1,3 +1,7 @@
+**Willie Mays, Birmingham and Rickwood Field: Baseball Honors a Legend in His Hometown**\
+`Major League Baseball is in Birmingham to honor the legacy of the Negro Leagues. With Mays’s death, the celebration at ancient Rickwood Field takes on new meaning.`\
+https://nytimes.com/2024/06/19/us/mays-birmingham-barons-rickwood.html
+
 **Ecuador Hit by Nationwide Blackout**\
 `The public works minister said the power outage had been caused by the failure of a transmission line.`\
 https://nytimes.com/2024/06/19/world/americas/ecuador-nationwide-blackout.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/19/world/asia/russia-north-korea-pact-gaza-asia.html
 **Manuel Neuer offers Germany glimpses of past brilliance but remains a figure under scrutiny**\
 `The Bayern Munich goalkeeper arrived at Euro 2024 after a difficult season and with some calling for Marc-Andre ter Stegen to replace him`\
 https://nytimes.com/athletic/5576641/2024/06/19/neuer-germany-euro2024-bayern/
-
-**In Chicago, some brave the outdoors despite sweltering temperatures.**\
-`By Robert Chiarito`\
-https://nytimes.com/live/2024/06/19/weather/heat-wave-news/in-chicago-some-brave-the-outdoors-despite-sweltering-temperatures
 
