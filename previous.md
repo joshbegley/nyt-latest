@@ -1,3 +1,7 @@
+**For a Story on Disney, a Writer Tests New Waters**\
+`When Walt Disney World replaced a ride that was based on a racist film with a new attraction, Brooks Barnes, who covers entertainment, was first in line.`\
+https://nytimes.com/2024/06/19/insider/disney-tiana-bayou-adventure.html
+
 **Euro 2024 odds for Thursday's three group matches including Spain-Italy, England-Denmark**\
 `Thursday's Euro 2024 slate features some enticing matchups, including Spain vs. Italy and England vs. Denmark.`\
 https://nytimes.com/athletic/5573581/2024/06/19/euro-2024-odds-spain-italy-england-denmark/
@@ -10,7 +14,7 @@ https://nytimes.com/2024/06/19/insider/jacob-bernstein-reporting.html
 `Scotland and Switzerland played out a pulsating draw in Cologne - The Athletic assesses the talking points`\
 https://nytimes.com/athletic/5572681/2024/06/19/scotland-1-switzerland-1-shaqiri-own-goal/
 
-**Euro 2024 day six: Germany advance, an MLS strike, comedy goals, don't trust world rankings**\
+**Euro 2024 day six: Germany advance, MLS history, comedy goals, don't trust world rankings**\
 `What happened on day six of the European Championship in Germany`\
 https://nytimes.com/athletic/5575468/2024/06/19/day-six-euro-2024-mls/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5576474/2024/06/19/charlie-woods-us-junior-amateur/
 **Officer in Sunak’s Protection Team Accused of Placing U.K. Election Bet**\
 `The allegations came a week after a lawmaker and aide to Prime Minister Rishi Sunak apologized for having placed a similar bet on the date of the vote before it was officially announced.`\
 https://nytimes.com/2024/06/19/world/europe/uk-sunak-election-bet.html
-
-**Kings-Capitals trade grades: Fresh starts for Pierre-Luc Dubois and Darcy Kuemper**\
-`The Kings and Capitals swapped problematic contracts and addressed positions of need at the same time.`\
-https://nytimes.com/athletic/5576585/2024/06/19/kings-capitals-trade-grades-pl-dubois-darcy-kuemper/
 

@@ -1,3 +1,11 @@
+**For a Story on Disney, a Writer Tests New Waters**\
+`When Walt Disney World replaced a ride that was based on a racist film with a new attraction, Brooks Barnes, who covers entertainment, was first in line.`\
+https://nytimes.com/2024/06/19/insider/disney-tiana-bayou-adventure.html
+
+**Euro 2024 day six: Germany advance, MLS history, comedy goals, don't trust world rankings**\
+`What happened on day six of the European Championship in Germany`\
+https://nytimes.com/athletic/5575468/2024/06/19/day-six-euro-2024-mls/
+
 **Euro 2024 odds for Thursday's three group matches including Spain-Italy, England-Denmark**\
 `Thursday's Euro 2024 slate features some enticing matchups, including Spain vs. Italy and England vs. Denmark.`\
 https://nytimes.com/athletic/5573581/2024/06/19/euro-2024-odds-spain-italy-england-denmark/
