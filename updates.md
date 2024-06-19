@@ -1,3 +1,11 @@
+**Crews Rush to Restore Power in Pittsburgh as Temperatures Soar**\
+`With heat indexes forecast to reach 110 degrees in western Pennsylvania, about 6,700 people were still without power after damaging wind and rain storms earlier this week.`\
+https://nytimes.com/2024/06/19/weather/pittsburgh-power-outages-heat.html
+
+**Six unrestricted free agents the Canucks could target to address their centre depth**\
+`Depending on who stays and who goes this summer, the Canucks may need further reinforcements at centre. Who are their best options?`\
+https://nytimes.com/athletic/5569114/2024/06/19/canucks-free-agent-targets-centers-forwards/
+
 **Murray retires injured in Queen's second round**\
 `In what was likely his final match at Queen's Club, Andy Murray saw a back spasm derail his grass-court preparations for Wimbledon`\
 https://nytimes.com/athletic/5576115/2024/06/19/andy-murray-injury-queens/
