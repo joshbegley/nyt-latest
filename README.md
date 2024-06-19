@@ -1,3 +1,7 @@
+**Brad Pitt's F1 movie to be released in June 2025**\
+`The Formula One-inspired movie starring Hollywood actor Brad Pitt, which Lewis Hamilton has co-produced, will be released next June.`\
+https://nytimes.com/athletic/5575042/2024/06/19/brad-pitt-lewis-hamilton-f1-movie/
+
 **Browns offseason roster observations: How will the QB depth chart shake out?**\
 `Cleveland has depth and experience at several positions, which will make it difficult to earn spots on the final 53-man roster. `\
 https://nytimes.com/athletic/5573547/2024/06/19/cleveland-browns-offseason-roster/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5572223/2024/06/19/joe-mazzulla-celtics-nba-champio
 **Falcons 53-man roster projection: Who fits where under the new coaching staff?**\
 `The Falcons have answered some roster questions this offseason. Plenty still remain heading into summer, though.`\
 https://nytimes.com/athletic/5573396/2024/06/19/falcons-roster-projection-summer-2024/
-
-**Get Ready for the Longest Day of the Year in the Northern Hemisphere**\
-`We have Earth’s off-kilter tilt to thank for the summer solstice, as well as the different seasons.`\
-https://nytimes.com/article/summer-solstice-2024.html
 
