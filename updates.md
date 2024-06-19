@@ -13,6 +13,11 @@ https://nytimes.com/athletic/5575854/2024/06/19/penguins-kirk-macdonald-ahl-coac
 `\
 https://nytimes.com/athletic/5575854/2024/06/19/penguins-kirk-macdonald-ahl-coach/
 
+**Penguins name Kirk MacDonald coach of AHL affiliate**\
+`MacDonald never played in the NHL though he is a veteran of several AHL seasons as a player.
+`\
+https://nytimes.com/athletic/5575854/2024/06/19/penguins-kirk-macdonald-ahl-coach/
+
 **Why Is Everyone on TikTok Suddenly Going to the Chiropractor?**\
 `Neck cracks and spine adjustments have become a potent social media trend, but some chiropractors fear the videos send the wrong message about the profession.`\
 https://nytimes.com/2024/06/19/us/chiropractor-tiktok-instagram.html
