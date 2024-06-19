@@ -1,3 +1,7 @@
+**Here Is Why Many Fear More Bloodshed in Darfur**\
+`Satellite and video evidence shows that thousands of homes have been razed and tens of thousands of people forced to flee a city in Sudan.`\
+https://nytimes.com/2024/06/19/world/africa/sudan-darfur-takeaways.html
+
 **Why Yankees promoting Ben Rice ahead of next month's trade deadline was the right move**\
 `The next six weeks will be critical for Rice to prove to general manager Brian Cashman that he doesn't need another first baseman.`\
 https://nytimes.com/athletic/5574038/2024/06/19/yankees-ben-rice-promotion-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/18/opinion/thepoint/vance-guns-trump
 **Political Scientists Want to Know Why We Hate Each Other This Much**\
 `What does the rise of “partisan sectarians” portend for the rest of us?`\
 https://nytimes.com/2024/06/19/opinion/democracy-partisanship-political-hatred.html
-
-**‘We Just Always Expect It to Work’: 911 Outage Shows System’s Perils**\
-`The failure of the Massachusetts 911 system on Tuesday was the latest reminder of the potential problems faced by an emergency network that many say needs to be upgraded.`\
-https://nytimes.com/2024/06/19/us/emergency-911-outages.html
 
