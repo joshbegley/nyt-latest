@@ -1,3 +1,7 @@
+**Greenwood subject of strong interest from Lazio**\
+`Manchester United&#8217;s Mason Greenwood is the subject of strong interest from Lazio among a number of clubs as speculation continues over his future.`\
+https://nytimes.com/athletic/5576177/2024/06/19/mason-greenwood-lazio/
+
 **Crews Rush to Restore Power in Pittsburgh as Temperatures Soar**\
 `With heat indexes forecast to reach 110 degrees in western Pennsylvania, about 6,700 people were still without power after damaging wind and rain storms earlier this week.`\
 https://nytimes.com/2024/06/19/weather/pittsburgh-power-outages-heat.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5573962/2024/06/19/gary-payton-warriors-player-opti
 **176 Writing Prompts to Spark Discussion and Reflection**\
 `Here are all of our Student Opinion questions from the 2023-24 school year. Each question is based on a different New York Times article, interactive feature or video.`\
 https://nytimes.com/2024/06/19/learning/176-writing-prompts-to-spark-discussion-and-reflection.html
-
-**Putin Once Tried to Curb North Korea’s Nuclear Program. That’s Now Over.**\
-`Vladimir Putin promised unspecified technological help to North Korea, which could help the North better target its many adversaries.`\
-https://nytimes.com/2024/06/19/us/politics/putin-kim-russia-nuclear.html
 
