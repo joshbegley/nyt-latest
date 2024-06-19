@@ -1,3 +1,7 @@
+**Aid groups say thousands of tons of supplies remain stranded in southern Gaza because conditions are too dangerous to move it.**\
+`By Vivian Yee and Aaron Boxerman`\
+https://nytimes.com/live/2024/06/19/world/israel-gaza-war-hamas/aid-groups-say-thousands-of-tons-of-supplies-remain-stranded-in-southern-gaza-because-conditions-are-too-dangerous-to-move-it
+
 **Garnacho has divided Argentina... but maybe not for much longer**\
 `The Manchester United winger's skills are beyond doubt, but his life off the field has attracted criticism`\
 https://nytimes.com/athletic/5565977/2024/06/19/alejandro-garnacho-argentina-copa-america/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/19/movies/black-barbie-a-documentary-review.html
 **Chargers free-agent film review: Gus Edwards, J.K. Dobbins bring overhaul at running back**\
 `The Chargers didn't have to break the bank and added a complementary pairing very familiar to their coaching staff and front office.`\
 https://nytimes.com/athletic/5563957/2024/06/19/chargers-gus-edwards-jk-dobbins-film-review/
-
-**The Pulse: RIP to the best baseball player ever**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5574023/2024/06/19/willie-mays-death-giants-the-pulse/
 
