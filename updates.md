@@ -1,3 +1,7 @@
+**U.S. falls short, lose against South Africa at T20 World Cup**\
+`The United States fell to defeat by South Africa in the opening game of the Super Eight phase of the T20 World Cup.`\
+https://nytimes.com/athletic/5576471/2024/06/19/usa-cricket-world-cup-south-africa/
+
 **Shaw out of England's Denmark game - Southgate**\
 `Gareth Southgate has confirmed Luke Shaw will play no part in England&#8217;s European Championship game against Denmark on Thursday.`\
 https://nytimes.com/athletic/5576476/2024/06/19/luke-shaw-injury-denmark/

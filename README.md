@@ -1,3 +1,7 @@
+**Phillies' Ranger Suárez pitches in front of his children for the first time, and it's 'beautiful'**\
+`"I wanted them with me during the season," he said, "and to spend every single night with my family."`\
+https://nytimes.com/athletic/5576499/2024/06/19/ranger-suarez-pitch-children-phillies/
+
 **U.S. falls short, lose against South Africa at T20 World Cup**\
 `The United States fell to defeat by South Africa in the opening game of the Super Eight phase of the T20 World Cup.`\
 https://nytimes.com/athletic/5576471/2024/06/19/usa-cricket-world-cup-south-africa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5575936/2024/06/19/sharks-barclay-goodrow-rangers-w
 **Willie Mays, ‘Poetry on the Diamond’**\
 `Readers pay tribute to the beloved Giants great, who died on Tuesday.`\
 https://nytimes.com/2024/06/19/opinion/letters/willie-mays.html
-
-**The UEFA rules that could stop Man United signing Todibo**\
-`Manchester United are unlikely to sign Nice defender Jean-Clair Todibo this summer due to UEFA rules on multi-club ownership.`\
-https://nytimes.com/athletic/5576197/2024/06/19/manchester-united-jean-clair-todibo-transfer-why/
 
