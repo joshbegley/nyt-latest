@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5576142/2024/06/19/cubs-yan-gomes-tomas-nido/
 https://nytimes.com/2024/06/19/theater/pre-existing-condition-review-marin-ireland.html
 
 **Murray retires injured in Queen's second round**\
-`In what was likely his final match at Queen's Club, Andy Murray saw a back spasm derail `\
+`In what was likely his final match at Queen's Club, Andy Murray saw a back spasm derail his grass-court preparations for Wimbledon`\
 https://nytimes.com/athletic/5576115/2024/06/19/andy-murray-injury-queens/
 
 **Flames trade goalie Jacob Markström to Devils**\

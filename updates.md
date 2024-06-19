@@ -1,3 +1,7 @@
+**Murray retires injured in Queen's second round**\
+`In what was likely his final match at Queen's Club, Andy Murray saw a back spasm derail his grass-court preparations for Wimbledon`\
+https://nytimes.com/athletic/5576115/2024/06/19/andy-murray-injury-queens/
+
 **Ricardo M. Urbina, Trailblazing Latino Judge in Capital, Dies at 79**\
 `Before being appointed to the bench in Washington, he was a track star who became a symbol of discrimination against Black athletes.`\
 https://nytimes.com/2024/06/19/us/ricardo-urbina-dead.html
