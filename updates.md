@@ -1,3 +1,19 @@
+**Late Night Trolls Trump After Report of ‘Severe Memory Issues’**\
+`“I’m starting to think Trump writes his name on buildings just so he can remember where he lives,” Jimmy Fallon said.`\
+https://nytimes.com/2024/06/19/arts/television/late-night-trump-memory.html
+
+**As President Takes Oath, 4 Challenges for South Africa’s New Government**\
+`For the first time since the fall of apartheid, the nation must rely on a coalition of rival parties to govern. Can they get along enough to pull the country out of its crises?`\
+https://nytimes.com/2024/06/19/world/africa/south-africa-inauguration-ramaphosa.html
+
+**Britain Election Winner’s First Problem: Fix a Stagnant Economy**\
+`After more than a decade of deep budget cuts, slow growth and weak productivity, the country has struggled to overcome years of uncertainty and underinvestment.`\
+https://nytimes.com/2024/06/19/business/britain-economy-inflation.html
+
+**Giants react to the death of Willie Mays: 'The things he did we'll never see again'**\
+`"Heavy hearts not only for the Bay Area and New York where he started, but for the baseball world," said Giants manager Bob Melvin.`\
+https://nytimes.com/athletic/5574917/2024/06/19/mays-death-san-francisco-giants-cubs/
+
 **As Mets continue to rally and win, their young players are establishing themselves**\
 `Francisco Alvarez and Mark Vientos proved again Tuesday in Texas that they're ready for the big moments.`\
 https://nytimes.com/athletic/5574943/2024/06/19/mets-rally-7-straight-francisco-alvarez/
