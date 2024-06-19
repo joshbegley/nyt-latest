@@ -1,3 +1,7 @@
+**Most New York City Pools Are Still Closed as Temperatures Soar**\
+`New Yorkers are sweating through an early heat wave, but the city’s outdoor public pools won’t open until June 27.`\
+https://nytimes.com/2024/06/19/weather/pools-nyc.html
+
 **As Panthers drop Game 5 to McDavid's Oilers, the pressure mounts and the momentum shifts**\
 `The Panthers still own a 3-2 series lead, but the Oilers are surely feeling capable of rallying back from the dead as they head to Edmonton.`\
 https://nytimes.com/athletic/5574878/2024/06/19/panthers-oilers-mcdavid-nhl-stanley-cup-final/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5571480/2024/06/19/christopher-bell-nascar-emotions
 **Leicester close to appointing Cooper as new manager**\
 `Leicester City are close to appointing Steve Cooper as their new manager.`\
 https://nytimes.com/athletic/5575121/2024/06/19/steve-cooper-leicester-manager/
-
-**The Athletic FC: Georgia and the glorious underdogs; Why Lalas isn't in it for the likes**\
-`Today in The Athletic FC: Georgia, Guler and some incredible underdogs. Plus Lalas pulls no punches in our exclusive interview.`\
-https://nytimes.com/athletic/5575323/2024/06/19/georgia-turkey-lalas-likes/
 
