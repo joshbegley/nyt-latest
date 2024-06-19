@@ -1,3 +1,7 @@
+**Julia Koch agrees to buy 15 percent stake in Nets' BSE Global**\
+`Julia Koch is the widow of late billionaire and major political donor David Koch, and the deal is believed to value BSE at $6 billion.`\
+https://nytimes.com/athletic/5574369/2024/06/18/julia-koch-nets-liberty-bse-global-sale/
+
 **Targets of Pull-Down Exercises, in Brief**\
 `Brad Wiegmann has new takes on old wisdom.`\
 https://nytimes.com/2024/06/18/crosswords/daily-puzzle-2024-06-19.html
