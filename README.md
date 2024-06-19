@@ -1,3 +1,7 @@
+**Patrik Laine trade destinations: 8 teams that could (or should) be interested**\
+`The Blue Jackets are looking to find a trade partner for Laine, which may come with some challenges. What are the NHL's best options?`\
+https://nytimes.com/athletic/5574510/2024/06/19/patrik-laine-nhl-trade-targets/
+
 **Kristaps Porziņģis found a home — and ring — in Boston by continuing to embrace change**\
 `The past year could have looked a lot different had the 7-foot-2 center stayed in his comfort zone.`\
 https://nytimes.com/athletic/5573339/2024/06/19/boston-celtics-kristaps-porzingis-nba-finals/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/19/magazine/my-date-recorded-us-having-sex-without-m
 **Is Murray Hill’s Showbiz Dream Finally Coming True?**\
 `For years he wowed ’em in the clubs with his drag-king lounge act. Now, against all odds, he’s breaking out.`\
 https://nytimes.com/2024/06/19/style/murray-hill-showbiz-netflix-somebody-somewhere.html
-
-**My Future Was Never Set in Stone**\
-`You can try your hardest to run away from your fears, but you can’t hide from them forever.`\
-https://nytimes.com/2024/06/19/special-series/alexi-pappas-fear-depression-olympics.html
 
