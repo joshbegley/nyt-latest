@@ -1,3 +1,11 @@
+**Russia Sentences U.S. Soldier to 4 Years in Prison**\
+`Staff Sgt. Gordon Black was accused of making deaths threats against, and stealing money from, a woman with whom he was romantically involved.`\
+https://nytimes.com/2024/06/19/world/europe/russia-us-soldier-gordon-black.html
+
+**New Mexico Battles ‘Devastating’ Wildfires as Weather Complicates the Fight**\
+`The state’s governor declared a regional state of emergency as thousands evacuated. Wind and rain could affect firefighting efforts.`\
+https://nytimes.com/2024/06/19/us/new-mexico-wildfires.html
+
 **Christopher Bell on managing emotions and dealing with disappointment: 12 Questions**\
 `Christopher Bell talks about keeping it even-mannered on the track, bouncing back after a tough result and much more.`\
 https://nytimes.com/athletic/5571480/2024/06/19/christopher-bell-nascar-emotions-12-questions/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/5574296/2024/06/19/commanders-offseason-training-ca
 `In this first episode, Zoe Abelson interviews Mark Ronson, a prolific D.J. and producer, about his early club days in New York, how he created “Dance the Night” for the “Barbie” film and the drum machine that started it all.
 `\
 https://nytimes.com/paidpost/audemars-piguet/the-remasters/the-remasters-the-beauty-of-analog-with-mark-ronson.html
-
-**Kawakami: Willie Mays, the Bay Area's original and untouchable immortal**\
-`In 1958, Southern California got the Dodgers and Northern California got Willie Mays. Yeah, the Bay Area did OK with that one.`\
-https://nytimes.com/athletic/5574587/2024/06/19/willie-mays-giants-bay-area-legend-kawakami/
-
-**Ellie Roebuck joins Barcelona from Manchester City**\
-`Barcelona have completed the signing of England goalkeeper Ellie Roebuck on a free transfer.`\
-https://nytimes.com/athletic/5575383/2024/06/19/ellie-roebuck-barcelona/
 

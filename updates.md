@@ -1,3 +1,11 @@
+**Russia Sentences U.S. Soldier to 4 Years in Prison**\
+`Staff Sgt. Gordon Black was accused of making deaths threats against, and stealing money from, a woman with whom he was romantically involved.`\
+https://nytimes.com/2024/06/19/world/europe/russia-us-soldier-gordon-black.html
+
+**New Mexico Battles ‘Devastating’ Wildfires as Weather Complicates the Fight**\
+`The state’s governor declared a regional state of emergency as thousands evacuated. Wind and rain could affect firefighting efforts.`\
+https://nytimes.com/2024/06/19/us/new-mexico-wildfires.html
+
 **Woods granted lifetime entry into future PGA Tour events**\
 `Tiger Woods has been awarded a lifetime exemption by the PGA Tour to enter all of its future signature events, beginning next year.`\
 https://nytimes.com/athletic/5575368/2024/06/19/tiger-woods-pga-tour-lifetime/
