@@ -1,3 +1,7 @@
+**Euro 2024's best match so far shows why it's shaping up to be a brilliant tournament**\
+`Georgia were on the receiving end of a 3-1 defeat by Turkey - but their performance spoke volumes about the bigger picture`\
+https://nytimes.com/athletic/5573742/2024/06/19/turkey-georgia-euro-2024-guler-kvaratskhelia-great-tournament/
+
 **Manchester United's decision to keep Erik ten Hag - Andy Mitten argues with himself once again**\
 `Is sticking with Erik ten Hag the right decision for Manchester United? Andy Mitten and his alter ego, Andrew Mitten, don't quite agree`\
 https://nytimes.com/athletic/5572118/2024/06/19/andy-mitten-erik-ten-hag-manchester-united/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5574740/2024/06/19/blue-jays-orelvis-martinez/
 **'Paqueta should be banned for life if he's guilty. Do I see it happening? Probably not'**\
 `Kynan Isaac was given a 10-year ban for getting deliberately booked once. Now he is following Lucas Paqueta's case closely`\
 https://nytimes.com/athletic/5569443/2024/06/19/kynan-isaac-10-year-ban-pacqueta/
-
-**Wednesday Briefing**\
-`Biden’s new protections for undocumented spouses.`\
-https://nytimes.com/2024/06/19/briefing/biden-immigration-thailand-gay-marriage.html
 
