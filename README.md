@@ -1,3 +1,15 @@
+**Which Big Ten teams won and lost in college basketball's transfer portal?**\
+`The Big Ten will be a new-look basketball league in 2024-25, with the addition of four teams and a long list of transfer portal movement.`\
+https://nytimes.com/athletic/5572303/2024/06/19/big-ten-college-basketball-transfer-portal/
+
+**Lyon Women set to appoint Montemurro as new coach coach**\
+`Lyon are set to hire former Arsenal and Juventus manager Joe Montemurro as their new head coach.`\
+https://nytimes.com/athletic/5575344/2024/06/19/joe-montemurro-lyon/
+
+**Johnston: In the biggest game of his career, Connor McDavid rises to the moment**\
+`McDavid has willed the Oilers back into the Stanley Cup Final with back-to-back four-point games: "The guy is the best in the world."`\
+https://nytimes.com/athletic/5575046/2024/06/19/connor-mcdavid-oilers-stanley-cup-final-nhl/
+
 **NBA Player Tiers: Tyrese Haliburton, Tyrese Maxey and Tier 3's All-Star level of play**\
 `These players have a heightened level of play in the regular season while also being durable against the demands of the playoffs.`\
 https://nytimes.com/athletic/5572480/2024/06/19/nba-player-tiers-tyrese-haliburton-tyrese-maxey-all-star/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5574023/2024/06/19/willie-mays-death-giants-the-pul
 **Will Jed Hoyer finally add an impact bat to middle of Cubs' order this trade deadline?**\
 `Hoyer wants to see improvement from current Cubs hitters before he entertains the possibility of adding a big bat at the trade deadline.`\
 https://nytimes.com/athletic/5574730/2024/06/19/cubs-trade-deadline-jed-hoyer-approach/
-
-**Getting Aid Into Gaza**\
-`We explain why it has been such a challenge.`\
-https://nytimes.com/2024/06/19/briefing/getting-aid-into-gaza.html
-
-**Naomi Osaka and Emma Raducanu headline Wimbledon wildcards**\
-`Grand Slam champions Naomi Osaka, Angelique Kerber and Caroline Wozniacki have been given Wimbledon wildcards but the 2019 winner Simona Halep, who is back from a drugs ban, has been overlooked.`\
-https://nytimes.com/athletic/5575212/2024/06/19/wimbledon-wildcards-emma-raducanu-naomi-osaka/
-
-**The Guardians have a starting pitching problem and no ideal ways to fix it**\
-`After a shaky outing from Triston McKenzie, it's clear that the Guardians need starting pitching help fast. `\
-https://nytimes.com/athletic/5574591/2024/06/19/guardians-starting-pitching-struggles-analysis/
 
