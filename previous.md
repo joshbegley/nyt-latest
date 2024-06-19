@@ -6,9 +6,9 @@ https://nytimes.com/athletic/5574730/2024/06/19/cubs-trade-deadline-jed-hoyer-ap
 `We explain why it has been such a challenge.`\
 https://nytimes.com/2024/06/19/briefing/getting-aid-into-gaza.html
 
-**Osaka, Kerber headline Wimbledon wildcard selections**\
+**Naomi Osaka and Emma Raducanu headline Wimbledon wildcards**\
 `Grand Slam champions Naomi Osaka, Angelique Kerber and Caroline Wozniacki have been given Wimbledon wildcards but the 2019 winner Simona Halep, who is back from a drugs ban, has been overlooked.`\
-https://nytimes.com/athletic/5575212/2024/06/19/osaka-kerber-raducanu-wimbledon/
+https://nytimes.com/athletic/5575212/2024/06/19/wimbledon-wildcards-emma-raducanu-naomi-osaka/
 
 **The Guardians have a starting pitching problem and no ideal ways to fix it**\
 `After a shaky outing from Triston McKenzie, it's clear that the Guardians need starting pitching help fast. `\

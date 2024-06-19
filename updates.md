@@ -1,3 +1,7 @@
+**Naomi Osaka and Emma Raducanu headline Wimbledon wildcards**\
+`Grand Slam champions Naomi Osaka, Angelique Kerber and Caroline Wozniacki have been given Wimbledon wildcards but the 2019 winner Simona Halep, who is back from a drugs ban, has been overlooked.`\
+https://nytimes.com/athletic/5575212/2024/06/19/wimbledon-wildcards-emma-raducanu-naomi-osaka/
+
 **Will Jed Hoyer finally add an impact bat to middle of Cubs' order this trade deadline?**\
 `Hoyer wants to see improvement from current Cubs hitters before he entertains the possibility of adding a big bat at the trade deadline.`\
 https://nytimes.com/athletic/5574730/2024/06/19/cubs-trade-deadline-jed-hoyer-approach/
