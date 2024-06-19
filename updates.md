@@ -1,3 +1,7 @@
+**Getting Aid Into Gaza**\
+`We explain why it has been such a challenge.`\
+https://nytimes.com/2024/06/19/briefing/getting-aid-into-gaza.html
+
 **Osaka, Kerber headline Wimbledon wildcard selections**\
 `Grand Slam champions Naomi Osaka, Angelique Kerber and Caroline Wozniacki have been given Wimbledon wildcards but the 2019 winner Simona Halep, who is back from a drugs ban, has been overlooked.`\
 https://nytimes.com/athletic/5575212/2024/06/19/osaka-kerber-raducanu-wimbledon/

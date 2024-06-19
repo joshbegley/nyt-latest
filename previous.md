@@ -1,3 +1,7 @@
+**Getting Aid Into Gaza**\
+`We explain why it has been such a challenge.`\
+https://nytimes.com/2024/06/19/briefing/getting-aid-into-gaza.html
+
 **Osaka, Kerber headline Wimbledon wildcard selections**\
 `Grand Slam champions Naomi Osaka, Angelique Kerber and Caroline Wozniacki have been given Wimbledon wildcards but the 2019 winner Simona Halep, who is back from a drugs ban, has been overlooked.`\
 https://nytimes.com/athletic/5575212/2024/06/19/osaka-kerber-raducanu-wimbledon/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/19/crosswords/wordle-review-1097.html
 **The Connections Companion No. 375, June 20, 2024**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/06/19/crosswords/connections-companion-375.html
-
-**Three reasons why the Maple Leafs should keep and use the No. 23 pick in the NHL Draft**\
-`Given recent draft success and some league trends, the Leafs should keep adding to their prospect cupboard.`\
-https://nytimes.com/athletic/5562093/2024/06/19/three-reasons-why-the-maple-leafs-should-keep-and-use-the-no-23-pick-in-the-nhl-draft/
 
