@@ -1,3 +1,7 @@
+**What’s in Our Queue? ‘Hacks’ and More**\
+`I’m a politics reporter covering the Southeast for The New York Times. Here are a few things I’m reading, watching and listening to in regular rotation.`\
+https://nytimes.com/interactive/2024/06/19/arts/editors-recommendations-hacks.html
+
 **Trump Tries to Set Expectations, and Floats Excuses, for His Debate With Biden**\
 `The former president has set a low bar for President Biden’s performance at next week’s matchup. Now, he is preparing supporters for the possibility that Mr. Biden clears it.`\
 https://nytimes.com/2024/06/19/us/politics/trump-biden-debate-expectations.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5576228/2024/06/19/chelsea-transfer-samu-omorodion/
 **Shaw out of England's Denmark game - Southgate**\
 `Gareth Southgate has confirmed Luke Shaw will play no part in England&#8217;s European Championship game against Denmark on Thursday.`\
 https://nytimes.com/athletic/5576476/2024/06/19/luke-shaw-injury-denmark/
-
-**Euro 2024 state of play: Tables, schedule and what you may have missed**\
-`Here, The Athletic analyses the state of play in each group and which teams may face each other in the knockout stage`\
-https://nytimes.com/athletic/5575373/2024/06/19/euro-2024-state-of-play/
 
