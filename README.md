@@ -1,3 +1,7 @@
+**Three reasons why the Maple Leafs should keep and use the No. 23 pick in the NHL Draft**\
+`Given recent draft success and some league trends, the Leafs should keep adding to their prospect cupboard.`\
+https://nytimes.com/athletic/5562093/2024/06/19/three-reasons-why-the-maple-leafs-should-keep-and-use-the-no-23-pick-in-the-nhl-draft/
+
 **Brad Pitt's F1 movie to be released in June 2025**\
 `The Formula One-inspired movie starring Hollywood actor Brad Pitt, which Lewis Hamilton has co-produced, will be released next June.`\
 https://nytimes.com/athletic/5575042/2024/06/19/brad-pitt-lewis-hamilton-f1-movie/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5574038/2024/06/19/yankees-ben-rice-promotion-analy
 **How Joe Mazzulla molded the Celtics in his image to lead them to an NBA title**\
 `Mazzulla's message to the Celtics all season was to keep "winning at the forefront" of everything they do. Now they're champions.`\
 https://nytimes.com/athletic/5572223/2024/06/19/joe-mazzulla-celtics-nba-championship/
-
-**Falcons 53-man roster projection: Who fits where under the new coaching staff?**\
-`The Falcons have answered some roster questions this offseason. Plenty still remain heading into summer, though.`\
-https://nytimes.com/athletic/5573396/2024/06/19/falcons-roster-projection-summer-2024/
 
