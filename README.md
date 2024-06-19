@@ -1,3 +1,31 @@
+**'Today, my body was really beat down': Padres' Fernando Tatis Jr. reveals lingering injury**\
+`Tatis didn't start because of quad tightness, but he ended up with a close look at the walk-off loss in Philadelphia.`\
+https://nytimes.com/athletic/5574778/2024/06/19/padres-fernando-tatis-quad-tightness/
+
+**Kiwior's decision to stay at Arsenal is paying off for club and country**\
+`It looked like Kiwior might leave Arsenal back in January, but the Poland defender chose not to and has enjoyed an excellent six months`\
+https://nytimes.com/athletic/5558797/2024/06/19/jakub-kiwior-poland-arsenal/
+
+**Willie Mays was baseball, and the world was better because of it**\
+`Willie Mays was everything that made the sport and the country great, and he'll be missed forever.`\
+https://nytimes.com/athletic/5574529/2024/06/19/willie-mays-historical-impact/
+
+**Why Chelsea are early supporters of the new Club World Cup**\
+`The priority for Maresca is to lead Chelsea back to the Champions League, but the Club World Cup is viewed as a serious trophy to target`\
+https://nytimes.com/athletic/5572456/2024/06/19/chelsea-club-world-cup/
+
+**'Presence, fear factor, the best hairdryer in the world' - working on Ange Postecoglou's staff**\
+`Former Spurs and Celtic fitness coach Anton McElhone shares his experiences of working with Postecoglu`\
+https://nytimes.com/athletic/5554191/2024/06/19/anton-mcelhone-postecoglou-management/
+
+**Leeds are a commercial powerhouse comparable to few outside Premier League 'Big Six'**\
+`Whether Leeds are in the Premier League or the Championship, they are one of the strongest commercial forces in English football`\
+https://nytimes.com/athletic/5569711/2024/06/19/leeds-commercial-power-is-comparable-to-few-outside-the-premier-leagues-big-six/
+
+**Cody Gakpo is starring on the Netherlands' left wing - should he play there for Liverpool?**\
+`The Dutch are getting the best from Gakpo out wide. Perhaps Arne Slot will choose to do the same in 2024-25`\
+https://nytimes.com/athletic/5572904/2024/06/19/gakpo-netherlands-left-wing-liverpool/
+
 **Euro 2024's best match so far shows why it's shaping up to be a brilliant tournament**\
 `Georgia were on the receiving end of a 3-1 defeat by Turkey - but their performance spoke volumes about the bigger picture`\
 https://nytimes.com/athletic/5573742/2024/06/19/turkey-georgia-euro-2024-guler-kvaratskhelia-great-tournament/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/5572118/2024/06/19/andy-mitten-erik-ten-hag-manches
 **Spencer Schwellenbach gets first MLB win, says Braves' welcoming environment has helped**\
 `Schwellenbach limited the Tigers to three hits, two walks and one run with seven strikeouts in six innings of a 2-1 win Tuesday.`\
 https://nytimes.com/athletic/5574727/2024/06/19/spencer-schwellenbach-first-win-braves/
-
-**Explained: Kylian Mbappe's broken nose, the diagnosis and the pros and cons of protective masks**\
-`The Athletic talks to ex-players and nasal experts to find out more about the France striker's injury and recovery process - and mask-making`\
-https://nytimes.com/athletic/5573611/2024/06/19/mbappe-nose-france-euro2024-mask/
-
-**The retro kick-off tactic that is proving popular (and effective) at Euro 2024**\
-`A new (old) trend is creeping into football – launching the ball forward from kick-off`\
-https://nytimes.com/athletic/5570027/2024/06/19/kick-off-tactic-euros/
-
-**Why Toni Kroos ignored progress and stuck with his old Adidas boots**\
-`While football as an industry is geared towards progress and newness, Kroos found a paid of boots he liked and stuck with them. Here's why`\
-https://nytimes.com/athletic/5572144/2024/06/19/toni-kroos-adidas-football-boots/
-
-**From Scholes to Iniesta to Ozil: How successful tournament teams often compromise on the left wing**\
-`Other nations have been forced to shift one of their star names out to the left flank - often with great success`\
-https://nytimes.com/athletic/5572119/2024/06/19/england-left-side-problem-foden-scholes/
-
-**What is it really like being a pregnant footballer?**\
-`Two experienced internationals talk The Athletic through their pregnancy journeys – and explain the challenges they have faced`\
-https://nytimes.com/athletic/5558978/2024/06/19/simone-boye-stine-larsen-pregnancy/
-
-**Blue Jays continue youth movement with Orelvis Martinez, but fall again to Red Sox**\
-`As Bo Bichette was placed on the IL, Toronto decided to call up their No. 2 prospect and one of the best young bats in their system.`\
-https://nytimes.com/athletic/5574740/2024/06/19/blue-jays-orelvis-martinez/
-
-**'Paqueta should be banned for life if he's guilty. Do I see it happening? Probably not'**\
-`Kynan Isaac was given a 10-year ban for getting deliberately booked once. Now he is following Lucas Paqueta's case closely`\
-https://nytimes.com/athletic/5569443/2024/06/19/kynan-isaac-10-year-ban-pacqueta/
 
