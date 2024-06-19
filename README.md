@@ -1,3 +1,7 @@
+**Trump Tries to Set Expectations, and Floats Excuses, for His Debate With Biden**\
+`The former president has set a low bar for President Biden’s performance at next week’s matchup. Now, he is preparing supporters for the possibility that Mr. Biden clears it.`\
+https://nytimes.com/2024/06/19/us/politics/trump-biden-debate-expectations.html
+
 **Trotter: Monty Williams' failure in Detroit was predestined. Ownership chose not to see it**\
 `Going back to his introduction — when he cited money as a key factor in taking the job — it was hard to believe Williams was fully invested.`\
 https://nytimes.com/athletic/5576373/2024/06/19/detroit-pistons-monty-williams-nba-tom-gores/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5576476/2024/06/19/luke-shaw-injury-denmark/
 **Euro 2024 state of play: Tables, schedule and what you may have missed**\
 `Here, The Athletic analyses the state of play in each group and which teams may face each other in the knockout stage`\
 https://nytimes.com/athletic/5575373/2024/06/19/euro-2024-state-of-play/
-
-**Without a plan for Gaza, ‘we will get Hamas’ again, Hagari said.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/06/19/world/israel-gaza-war-hamas/without-a-plan-for-gaza-we-will-get-hamas-again-hagari-said
 

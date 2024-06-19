@@ -1,3 +1,7 @@
+**Trotter: Monty Williams' failure in Detroit was predestined. Ownership chose not to see it**\
+`Going back to his introduction — when he cited money as a key factor in taking the job — it was hard to believe Williams was fully invested.`\
+https://nytimes.com/athletic/5576373/2024/06/19/detroit-pistons-monty-williams-nba-tom-gores/
+
 **Louisiana Requires Ten Commandments to Be Displayed in Every Public Classroom**\
 `A law signed by Gov. Jeff Landry on Wednesday makes the state the only one with such a mandate. Critics have vowed to mount a constitutional challenge.`\
 https://nytimes.com/2024/06/19/us/lousiana-ten-commandments-classrooms.html
@@ -14,7 +18,7 @@ https://nytimes.com/live/2024/06/19/weather/heat-wave-news/youre-not-imagining-i
 `"I wanted them with me during the season," he said, "and to spend every single night with my family."`\
 https://nytimes.com/athletic/5576499/2024/06/19/ranger-suarez-pitch-children-phillies/
 
-**U.S. falls short, lose against South Africa at T20 World Cup**\
+**U.S. falls short, loses against South Africa at T20 World Cup**\
 `The United States fell to defeat by South Africa in the opening game of the Super Eight phase of the T20 World Cup.`\
 https://nytimes.com/athletic/5576471/2024/06/19/usa-cricket-world-cup-south-africa/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5575373/2024/06/19/euro-2024-state-of-play/
 **Without a plan for Gaza, ‘we will get Hamas’ again, Hagari said.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/06/19/world/israel-gaza-war-hamas/without-a-plan-for-gaza-we-will-get-hamas-again-hagari-said
-
-**MLB Draft Combine notes: Kellon Lindsey on the rise, Jared Jones shows out in BP**\
-`Lindsey has drawn Trea Turner comps and the two-sport star has seen his game take off since deciding to focus solely on baseball.`\
-https://nytimes.com/athletic/5576313/2024/06/19/mlb-draft-combine-kellon-lindsey-jared-jones/
 
