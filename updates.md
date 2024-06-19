@@ -1,3 +1,11 @@
+**In a First, Federal Government Acknowledges Harms of Dams on Native American Communities**\
+`In a report released Tuesday, the Biden administration said that federal dams in the Columbia River Basin had inflicted damage on local communities, and committed to restoring native fish to the ecosystem.`\
+https://nytimes.com/2024/06/18/us/dams-snake-columbia-river-native-tribes.html
+
+**How the Oilers dragged the Stanley Cup Final back to Alberta with a Game 5 win: 5 takeaways**\
+`Connor McDavid had another four-point night and the Oilers staved off elimination for the second straight game, winning 5-3 on Tuesday.`\
+https://nytimes.com/athletic/5574718/2024/06/18/panthers-oilers-game-5-result-takeaways/
+
 **How the Oilers dragged the Panthers back to Alberta with a Game 5 win: 5 takeaways**\
 `Connor McDavid had another four-point night and the Oilers staved off elimination for the second straight game, winning 5-3 on Tuesday.`\
 https://nytimes.com/athletic/5574718/2024/06/18/panthers-oilers-game-5-result-takeaways/
