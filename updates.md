@@ -1,3 +1,11 @@
+**Corrections: June 19, 2024**\
+`Corrections that appeared in print on Wednesday, June 19, 2024.`\
+https://nytimes.com/2024/06/19/pageoneplus/corrections-june-19-2024.html
+
+**Quotation of the Day: Politics Still Rile Georgia, but Soccer Unites Nation**\
+`Quotation of the Day for Wednesday, June 19, 2024.`\
+https://nytimes.com/2024/06/19/pageoneplus/quotation-of-the-day-politics-still-rile-georgia-but-soccer-unites-nation.html
+
 **'Today, my body was really beat down': Padres' Fernando Tatis Jr. reveals lingering injury**\
 `Tatis didn't start because of quad tightness, but he ended up with a close look at the walk-off loss in Philadelphia.`\
 https://nytimes.com/athletic/5574778/2024/06/19/padres-fernando-tatis-quad-tightness/
