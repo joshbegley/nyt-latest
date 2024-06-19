@@ -1,3 +1,7 @@
+**Robert F. Kennedy Jr.’s Conspiracy of Ravens**\
+`The presidential candidate keeps two of the free-minded birds as wild pets. They’re much better behaved than his old emu, Toby, who would attack his wife, Cheryl Hines.`\
+https://nytimes.com/2024/06/19/us/politics/rfk-jr-ravens.html
+
 **Most New York City Pools Are Still Closed as Temperatures Soar**\
 `New Yorkers are sweating through an early heat wave, but the city’s outdoor public pools won’t open until June 27.`\
 https://nytimes.com/2024/06/19/weather/pools-nyc.html
