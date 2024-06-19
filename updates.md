@@ -1,3 +1,23 @@
+**Harrison close to rejoining Everton on loan from Leeds**\
+`Jack Harrison is close to joining Everton on another season long loan from Leeds United.`\
+https://nytimes.com/athletic/5575613/2024/06/19/jack-harrison-everton-leeds-transfer/
+
+**My Date Recorded Us Having Sex Without My Consent. Should I Report Them?**\
+`The Magazine’s Ethicist columnist on boundaries in friendship and other intimate relationships.`\
+https://nytimes.com/2024/06/19/magazine/my-date-recorded-us-having-sex-without-my-consent-should-i-report-them.html
+
+**Is Murray Hill’s Showbiz Dream Finally Coming True?**\
+`For years he wowed ’em in the clubs with his drag-king lounge act. Now, against all odds, he’s breaking out.`\
+https://nytimes.com/2024/06/19/style/murray-hill-showbiz-netflix-somebody-somewhere.html
+
+**My Future Was Never Set in Stone**\
+`You can try your hardest to run away from your fears, but you can’t hide from them forever.`\
+https://nytimes.com/2024/06/19/special-series/alexi-pappas-fear-depression-olympics.html
+
+**Pistons fire Monty Williams: Sources**\
+`Pistons owner Tom Gores made the call to move on from Williams over last 24 hours, per team sources.`\
+https://nytimes.com/athletic/5575692/2024/06/19/monty-williams-fired-pistons/
+
 **It’s Unanimous: In the Senate, Neither Party Consents to the Other’s Ideas**\
 `Democrats sought to quickly reinstate a ban on gun bump stocks after a Supreme Court ruling. It was the latest Senate floor fight to end in a predictable stalemate.`\
 https://nytimes.com/2024/06/19/us/politics/senate-democrats-republicans-guns-ivf.html
