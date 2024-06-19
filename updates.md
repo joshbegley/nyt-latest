@@ -1,3 +1,7 @@
+**The Pulse: RIP to the best baseball player ever**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5574023/2024/06/19/willie-mays-death-giants-the-pulse/
+
 **Naomi Osaka and Emma Raducanu headline Wimbledon wildcards**\
 `Grand Slam champions Naomi Osaka, Angelique Kerber and Caroline Wozniacki have been given Wimbledon wildcards but the 2019 winner Simona Halep, who is back from a drugs ban, has been overlooked.`\
 https://nytimes.com/athletic/5575212/2024/06/19/wimbledon-wildcards-emma-raducanu-naomi-osaka/
