@@ -1,3 +1,7 @@
+**Are Planes Safe Right Now? How to Understand Flight Disruptions.**\
+`You should expect the unexpected while flying, but few disruptions should provoke serious concern, aviation experts say.`\
+https://nytimes.com/2024/06/19/business/airplane-safety-flight-problems.html
+
 **Who could be the next Pistons' head coach? Here are a few candidates**\
 `Names to keep an eye on for head coach as the Pistons continue to press reset on their basketball operations.`\
 https://nytimes.com/athletic/5519039/2024/06/19/detroit-pistons-coaching-candidates/
