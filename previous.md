@@ -1,3 +1,15 @@
+**Kings-Capitals trade grades: Fresh starts for Pierre-Luc Dubois and Darcy Kuemper**\
+`The Kings and Capitals swapped problematic contracts and addressed positions of need at the same time.`\
+https://nytimes.com/athletic/5576585/2024/06/19/kings-capitals-trade-grades-pl-dubois-darcy-kuemper/
+
+**Ask The Morning Anything**\
+`Do you have questions about The Morning newsletter? Or about the news? We want to hear them.`\
+https://nytimes.com/2024/06/19/briefing/ask-the-morning-anything.html
+
+**Shaqiri becomes first MLS player to score at a Euros**\
+`Xherdan Shaqiri became the first Major League Soccer player to score at a European Championship with his goal for Switzerland against Scotland.`\
+https://nytimes.com/athletic/5576718/2024/06/19/xherdan-shaqiri-euro-2024-goal-mls/
+
 **Why Is Putin Traveling to Vietnam?**\
 `President Vladimir V. Putin arrived in Hanoi keen to maintain the longstanding military ties between Russia and Vietnam, as Hanoi has developed deeper bonds with Washington.`\
 https://nytimes.com/2024/06/19/world/asia/putin-russia-vietnam-visit.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/19/world/europe/kharkiv-ukraine-beluga-whales-spain.
 **Biden’s Strategy: Help Immigrants in the U.S., but Stop Others From Arriving**\
 `President Biden’s recent actions on immigration put his approach to one of the most divisive issues in the 2024 election into focus.`\
 https://nytimes.com/2024/06/19/us/politics/bidens-strategy-immigrants.html
-
-**Kings trade Dubois to Capitals for Kuemper**\
-`No salary is retained on either side of the deal, per league sources.`\
-https://nytimes.com/athletic/5576566/2024/06/19/kings-capitals-trade-dubois-kuemper/
-
-**What’s in Our Queue? ‘Hacks’ and More**\
-`I’m a politics reporter covering the Southeast for The New York Times. Here are a few things I’m reading, watching and listening to in regular rotation.`\
-https://nytimes.com/interactive/2024/06/19/arts/editors-recommendations-hacks.html
-
-**Trump Tries to Set Expectations, and Floats Excuses, for His Debate With Biden**\
-`The former president has set a low bar for President Biden’s performance at next week’s matchup. Now, he is preparing supporters for the possibility that Mr. Biden clears it.`\
-https://nytimes.com/2024/06/19/us/politics/trump-biden-debate-expectations.html
 
