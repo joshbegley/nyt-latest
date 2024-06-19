@@ -1,3 +1,7 @@
+**'He was Willie Mays': Remembering the best player of the generation that electrified baseball**\
+`If you love the game, you’re grateful for Mays and all he brought to it.`\
+https://nytimes.com/athletic/5576106/2024/06/19/willie-mays-generational-player-baseball/
+
 **How Heat Affects the Brain**\
 `High temperatures can make us miserable. Research shows they also make us aggressive, impulsive and dumb.`\
 https://nytimes.com/2024/06/19/well/mind/heat-affect-brain-emotions.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/19/us/ricardo-urbina-dead.html
 **Cubs DFA Yan Gomes, sign Tomás Nido in attempt to address catching problems**\
 `Nido, who was released by the New York Mets this week, should be an upgrade.`\
 https://nytimes.com/athletic/5576142/2024/06/19/cubs-yan-gomes-tomas-nido/
-
-**‘Pre-Existing Condition’ Review: Recovering From a Traumatic Relationship**\
-`Marin Ireland’s play opens with Tatiana Maslany in a rotating cast of stars, and “What Became of Us” continues its own experiment with changing casts.`\
-https://nytimes.com/2024/06/19/theater/pre-existing-condition-review-marin-ireland.html
 
