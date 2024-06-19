@@ -1,3 +1,7 @@
+**Toyota Chairman’s Investor Support Tumbles**\
+`Akio Toyoda has faced scrutiny from some investor groups over governance issues and an ongoing probe of faulty vehicle-certification tests.`\
+https://nytimes.com/2024/06/19/business/akio-toyoda-toyota-shareholder-vote.html
+
 **Late Night Trolls Trump After Report of ‘Severe Memory Issues’**\
 `“I’m starting to think Trump writes his name on buildings just so he can remember where he lives,” Jimmy Fallon said.`\
 https://nytimes.com/2024/06/19/arts/television/late-night-trump-memory.html
