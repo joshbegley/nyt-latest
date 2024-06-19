@@ -1,3 +1,7 @@
+**Villa agree deal with Chelsea to sign Maatsen**\
+`Aston Villa have agreed a deal with Chelsea to sign left-back Ian Maatsen.`\
+https://nytimes.com/athletic/5558866/2024/06/19/ian-maatsen-aston-villa-transfer-chelsea/
+
 **'He was Willie Mays': Remembering the best player of the generation that electrified baseball**\
 `If you love the game, you’re grateful for Mays and all he brought to it.`\
 https://nytimes.com/athletic/5576106/2024/06/19/willie-mays-generational-player-baseball/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5569114/2024/06/19/canucks-free-agent-targets-cente
 **Ricardo M. Urbina, Trailblazing Latino Judge in Capital, Dies at 79**\
 `Before being appointed to the bench in Washington, he was a track star who became a symbol of discrimination against Black athletes.`\
 https://nytimes.com/2024/06/19/us/ricardo-urbina-dead.html
-
-**Cubs DFA Yan Gomes, sign Tomás Nido in attempt to address catching problems**\
-`Nido, who was released by the New York Mets this week, should be an upgrade.`\
-https://nytimes.com/athletic/5576142/2024/06/19/cubs-yan-gomes-tomas-nido/
 
