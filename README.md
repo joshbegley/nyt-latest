@@ -1,3 +1,7 @@
+**Who could be the next Pistons' head coach? Here are a few candidates**\
+`Names to keep an eye on for head coach as the Pistons continue to press reset on their basketball operations.`\
+https://nytimes.com/athletic/5519039/2024/06/19/detroit-pistons-coaching-candidates/
+
 **Italy won't make 'huge mistake' of overestimating Spain - Spalletti**\
 `Luciano Spalletti says Italy will &#8220;play our own game&#8221; against Spain and won&#8217;t make the &#8220;huge mistake&#8221; of overestimating their Group B rivals.`\
 https://nytimes.com/athletic/5575737/2024/06/19/italy-spain-spalletti/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5575692/2024/06/19/monty-williams-fired-pistons/
 **It’s Unanimous: In the Senate, Neither Party Consents to the Other’s Ideas**\
 `Democrats sought to quickly reinstate a ban on gun bump stocks after a Supreme Court ruling. It was the latest Senate floor fight to end in a predictable stalemate.`\
 https://nytimes.com/2024/06/19/us/politics/senate-democrats-republicans-guns-ivf.html
-
-**A Deadly Toll as an Intense Heat Grips Saudi Arabia**\
-`Reports from official media in the Middle East and Africa suggest that dozens of people died during this year’s hajj pilgrimage as temperatures soared.`\
-https://nytimes.com/2024/06/19/world/europe/hajj-deaths-mecca-heat.html
 
