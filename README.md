@@ -1,3 +1,7 @@
+**Hezbollah’s leader says it will fight without ‘constraints, rules, or limits’ if attacked by Israel.**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/06/19/world/israel-gaza-war-hamas/hezbollahs-leader-says-it-will-fight-without-constraints-rules-or-limits-if-attacked-by-israel
+
 **From Ukraine, Two Enormous Passengers Are Trucked and Flown to Safety**\
 `A pair of beluga whales were extricated from the besieged city of Kharkiv and taken to an aquarium in Spain with help from experts around the world.`\
 https://nytimes.com/2024/06/19/world/europe/kharkiv-ukraine-beluga-whales-spain.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/19/technology/ilya-sutskever-openai-safe-superintell
 **You’re not imagining it. Summers are getting hotter.**\
 `By Nadja Popovich and Adam Pearce`\
 https://nytimes.com/live/2024/06/19/weather/heat-wave-news/youre-not-imagining-it-summers-are-getting-hotter
-
-**Phillies' Ranger Suárez pitches in front of his children for the first time, and it's 'beautiful'**\
-`"I wanted them with me during the season," he said, "and to spend every single night with my family."`\
-https://nytimes.com/athletic/5576499/2024/06/19/ranger-suarez-pitch-children-phillies/
 
