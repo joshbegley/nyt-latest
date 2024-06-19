@@ -1,3 +1,7 @@
+**Report into 2022 Champions League final finds police 'failed in duty to protect people'**\
+`A damning report into the police failings that led to the collapse of the security operation at the 2022 Champions League final in Paris has made new safety recommendations for major sporting events in France.`\
+https://nytimes.com/athletic/5575071/2024/06/19/liverpool-2022-champions-league-final-report/
+
 **A French court says a weapons show can’t bar Israeli exhibitors, and other news.**\
 
 **A French court says a weapons show can’t bar Israeli companies, and other news.**\
