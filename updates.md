@@ -1,3 +1,7 @@
+**Scoop City: Two stars still seeking deals**\
+`A look at the contract situations of Brandon Aiyuk and Matthew Stafford, plus the most interesting coaching hires of the 2024 cycle.`\
+https://nytimes.com/athletic/5578334/2024/06/20/aiyuk-and-stafford-negotiations-scoop-city/
+
 **The Brooklyn Academy of Music Announces Its Next Wave, and Next Steps**\
 `BAM, which has faced cutbacks in recent years, unveiled a reorganization as it announced its Next Wave Festival for the fall.`\
 https://nytimes.com/2024/06/20/arts/dance/brooklyn-academy-of-music-reorganization.html
