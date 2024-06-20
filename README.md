@@ -1,3 +1,7 @@
+**When the Only Escape From War in Gaza Is to Buy a Way Out**\
+`For many Palestinians, securing approval to exit the territory is possible only after raising thousands of dollars to pay middlemen or an Egyptian company.`\
+https://nytimes.com/2024/06/20/world/middleeast/palestinians-gaza-gofundme-egypt.html
+
 **The incomparable Willie Mays: 22 numbers that highlight the greatness of No. 24**\
 `The numbers of Willie Mays are unlike any you’ll find on the Baseball Reference page of anyone else who ever played this sport.`\
 https://nytimes.com/athletic/5577360/2024/06/20/willie-mays-career-numbers-24/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/20/us/elections/biden-trump-women-men.html
 **Patriots stock report: Who’s rising and falling after spring practices?**\
 `Two Patriots wide receivers are on the rise after spring practices, but another appears headed in the wrong direction. `\
 https://nytimes.com/athletic/5573126/2024/06/20/patriots-risers-fallers-douglas-wallace-smith-schuster/
-
-**Even With Biden’s Executive Orders, Immigrants Must Save Ourselves**\
-`The administration should have a consistent vision on immigration instead of ping-ponging between border harshness and beneficial half-measures for some of the undocumented.`\
-https://nytimes.com/2024/06/20/opinion/biden-executive-order-immigrants.html
 
