@@ -1,7 +1,3 @@
-**NFL training camps 2024: Locations, reporting schedule for all 32 teams**\
-`The NFL has already announced the preseason schedule which kicks off with the Hall Of Fame Game between the Texans and Bears on Aug 1.`\
-https://nytimes.com/athletic/5578411/2024/06/20/nfl-training-camp-report-dates/
-
 **At Target, Store Workers Become A.I. Conduits**\
 `The retailer is rolling out a chatbot to help workers answer questions from shoppers — and workers.`\
 https://nytimes.com/2024/06/20/business/target-retail-ai.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/06/20/us/politics/qaeda-commander-sentenced-guantanamo-
 **Jack Draper beats Carlos Alcaraz at Queen's to end Spaniard's win streak on grass**\
 `Carlos Alcaraz&#8217;s 13-match winning streak on grass is over, ended by the home favourite Jack Draper in the second round of the Cinch Championships on Thursday afternoon.`\
 https://nytimes.com/athletic/5578456/2024/06/20/jack-draper-carlos-alcaraz-queens/
+
+**Frederick Seidel’s New Book Includes an Ode to Nick Cave**\
+`“The material that he uses for the songs is powerfully moving, involving his own personal losses,” the 88-year-old poet says. Also name-checked in “So What”: an Italian motorcycle magnate.`\
+https://nytimes.com/2024/06/20/books/review/frederick-seidel-by-the-book.html
 
