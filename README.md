@@ -30,7 +30,7 @@ https://nytimes.com/video/us/100000009531454/alberto-floods-texas.html
 `Gramstad is transferring from NAIA Northwestern (Iowa) College for his final season of eligibility.`\
 https://nytimes.com/athletic/5579208/2024/06/20/nebraska-football-quarterbacks-jalyn-gramstad/
 
-**Browns DE Phelps arrested, charged with DUI in Florida**\
+**Browns waive DE Phelps after arrest, DUI charge in Florida**\
 `Phelps allegedly crashed his SUV into a restaurant in Key West, Fla., according to multiple reports.`\
 https://nytimes.com/athletic/5579119/2024/06/20/lonnie-phelps-arrest-dui/
 
