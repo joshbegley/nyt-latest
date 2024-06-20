@@ -1,3 +1,8 @@
+**The Briefing: Spain 1-0 Italy - Calafiori own goal settles 'European Clasico'**\
+`Meetings between Spain and Italy rarely disappoint — and this one was no exception. Here's our quickfire analysis
+`\
+https://nytimes.com/athletic/5572867/2024/06/20/spain-italy-euro2024-result-analysis-yamal-williams/
+
 **A Shared Lived Experience Fueled an Investigation on Hair Relaxers**\
 `To report on the dangers of hair straightening products, one writer recalled her childhood — and that of other Black women.`\
 https://nytimes.com/2024/06/20/insider/a-shared-lived-experience-fueled-an-investigation-on-hair-relaxers.html
