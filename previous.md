@@ -1,3 +1,7 @@
+**Three Red Sox takeaways: Short team meeting leads to sweep of the Blue Jays**\
+`As Brayan Bello got back on the track, the offense kept tearing it up in a 7-3 victory in Toronto.`\
+https://nytimes.com/athletic/5577633/2024/06/20/red-sox-sweep-blue-jays/
+
 **Chelsea's aggressive youth recruitment means days of signing players at peak are over**\
 `Chelsea want to position themselves to be able to recruit every teenage footballer they identify as having elite potential`\
 https://nytimes.com/athletic/5575306/2024/06/20/chelsea-aggressive-youth-transfers-estevao-willian/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5575629/2024/06/20/spain-tiki-taka-possession-euros
 **'There's a disconnect' - Why Sweden and Newcastle feel differently about Alexander Isak**\
 `The Athletic went to Stockholm to find out about Sweden's complicated relationship with Newcastle striker Isak`\
 https://nytimes.com/athletic/5569434/2024/06/20/sweden-alexander-isak-love/
-
-**Slot's first Liverpool interview: 'Game model', training videos and transfer chats**\
-`Analysing the most intriguing aspects of the Dutchman's first public appearance as Anfield's new head coach`\
-https://nytimes.com/athletic/5576261/2024/06/20/arne-slot-liverpool-interview-transfers-training/
 
