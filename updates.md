@@ -1,3 +1,7 @@
+**Thousands in Detroit Suburbs Still Lack Power After Wednesday’s Storms**\
+`The energy company that serves the area said it had restored power for about half of the 69,000 customers who lost it Wednesday night.`\
+https://nytimes.com/2024/06/20/us/detroit-michigan-power-storms-heat.html
+
 **Bulls, Thunder swap Caruso, Giddey in one-for-one trade**\
 `Caruso, 30, spent the past three seasons with the Bulls where he made two All-Defensive teams.`\
 https://nytimes.com/athletic/5579575/2024/06/20/thunder-acquire-alex-caruso-josh-giddey/
