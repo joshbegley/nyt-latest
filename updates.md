@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/5578360/2024/06/20/england-denmark-roof-closed-frankfurt/
 
+**England's game against Denmark to have roof closed: Why? What impact will it have?**\
+`UEFA has confirmed the roof of Frankfurt's Deutsche Bank Park will be closed for the Group C clash as a ‘precautionary measure’
+`\
+https://nytimes.com/athletic/5578360/2024/06/20/england-denmark-roof-closed-frankfurt/
+
 **Thursday's MLB odds and predictions: Best and worst starting pitchers, home run streaks and more**\
 `Check in on our Thursday MLB projections with odds for every game, picks for best value bets, pitcher props and more.`\
 https://nytimes.com/athletic/5578505/2024/06/20/mlb-odds-predictions-best-bets-june-20/
