@@ -13,6 +13,11 @@ https://nytimes.com/athletic/5572867/2024/06/20/spain-italy-euro2024-result-anal
 `\
 https://nytimes.com/athletic/5572867/2024/06/20/spain-italy-euro2024-result-analysis-yamal-williams/
 
+**The Briefing: Spain 1-0 Italy - Calafiori own goal settles 'European Clasico'**\
+`Meetings between Spain and Italy rarely disappoint — and this one was no exception. Here's our analysis of the big match in Group B
+`\
+https://nytimes.com/athletic/5572867/2024/06/20/spain-italy-euro2024-result-analysis-yamal-williams/
+
 **Thousands in the Detroit suburbs remain without power after Wednesday’s storms.**\
 `By Kate Selig`\
 https://nytimes.com/live/2024/06/20/us/heat-wave-news/thousands-in-the-detroit-suburbs-remain-without-power-after-wednesdays-storms
