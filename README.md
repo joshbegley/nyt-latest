@@ -1,3 +1,7 @@
+**Tropical Storm Alberto Brings Flooding to South Texas**\
+`Hours before the storm was expected to make landfall in Mexico, it brought heavy rain and coastal flooding to parts of eastern Mexico and southern Texas.`\
+https://nytimes.com/2024/06/19/weather/tropical-storm-alberto-floods-texas.html
+
 **Giants prepare for an emotional experience honoring Willie Mays at Rickwood Field**\
 `The Giants, still processing the loss of Mays, head to Rickwood with determination. "It's going to be a special, signature day."`\
 https://nytimes.com/athletic/5577261/2024/06/19/sf-giants-willie-mays-rickwood-field-preparation/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/19/weather/heat-wave-northeast-midwest.html
 **For some in Cincinnati, escaping the heat is not an easy option.**\
 `By Kevin Williams`\
 https://nytimes.com/live/2024/06/19/weather/heat-wave-news/for-some-in-cincinnati-escaping-the-heat-is-not-an-easy-option
-
-**Shaqiri made history at Euro 2024 with a goal only he could have scored**\
-`The Chicago Fire player became the first from MLS to score at a European Championship - but what does that tell us?`\
-https://nytimes.com/athletic/5577053/2024/06/19/shaqiri-euro2024-history-mls-switzerland/
 
