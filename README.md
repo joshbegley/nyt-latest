@@ -1,3 +1,7 @@
+**Southgate explains Kane substitution against Denmark**\
+`Gareth Southgate says Harry Kane&#8217;s substitution during their 1-1 draw with Denmark at the European Championship was because England &#8220;needed energy&#8221;.`\
+https://nytimes.com/athletic/5578967/2024/06/20/harry-kane-england-sub-southgate/
+
 **Major League Baseball Came to Birmingham. Then Willie Mays Died.**\
 `Baseball hopes a celebration of its past in the home of one of its legends will attract more African American athletes, who are playing the sport in decreasing numbers.`\
 https://nytimes.com/2024/06/20/us/baseball-birmingham-mays-black-players.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/20/business/economy/new-home-construction-mortgage-r
 **Trump Will Get the Last Word in the Debate, While Biden Picks His Podium**\
 `A coin flip won by President Biden gave him the option of picking which podium he will use or choosing the order of closing statements.`\
 https://nytimes.com/2024/06/20/us/politics/trump-biden-debate-last-word.html
-
-**TikTok Lays Out Past Efforts to Address U.S. Concerns**\
-`The company said the disclosures support its argument that a law signed by President Biden in May is unconstitutional.`\
-https://nytimes.com/2024/06/20/business/media/tiktok-ban-biden.html
 
