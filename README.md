@@ -1,3 +1,11 @@
+**Giants prepare for an emotional experience honoring Willie Mays at Rickwood Field**\
+`The Giants, still processing the loss of Mays, head to Rickwood with determination. "It's going to be a special, signature day."`\
+https://nytimes.com/athletic/5577261/2024/06/19/sf-giants-willie-mays-rickwood-field-preparation/
+
+**Ryan Garcia says he's 'officially retired'**\
+`"Boxing will be alright without me. But still sucks I was fun in the game," Garcia said. "And it was fun to punch people."`\
+https://nytimes.com/athletic/5577337/2024/06/19/ryan-garcia-retirement-posts/
+
 **Sean Murphy's two homers power a resurgent offense as Braves stay hot**\
 `Murphy went 4-for-4 with four RBIs and summed it up this way: “Having a day like that improves your mood.”`\
 https://nytimes.com/athletic/5577153/2024/06/19/braves-sean-murphy-reynaldo-lopez/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/06/19/weather/heat-wave-news/for-some-in-cincinnat
 **Shaqiri made history at Euro 2024 with a goal only he could have scored**\
 `The Chicago Fire player became the first from MLS to score at a European Championship - but what does that tell us?`\
 https://nytimes.com/athletic/5577053/2024/06/19/shaqiri-euro2024-history-mls-switzerland/
-
-**Kennedy Raises Just $2.6 Million, a Sign of Reliance on His Running Mate**\
-`Robert F. Kennedy Jr.’s campaign has depended heavily on contributions from Nicole Shanahan, his vice-presidential pick, who did not make major new donations in May.`\
-https://nytimes.com/2024/06/19/us/politics/rfk-jr-money-nicole-shanahan.html
-
-**Opening game of Copa America sold out**\
-`Argentina vs Canada, the opening game of Copa America, is a sell out, the tournament confirmed on Wednesday.`\
-https://nytimes.com/athletic/5577005/2024/06/19/copa-america-argentina-canada-tickets/
 
