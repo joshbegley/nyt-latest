@@ -1,3 +1,7 @@
+**The Housing Market Is Weird and Ugly. These 5 Charts Explain Why.**\
+`Home prices have held up better than expected amid high interest rates. But that doesn’t mean the housing market is healthy.`\
+https://nytimes.com/2024/06/20/business/economy/housing-market-explained.html
+
 **Democrats’ Dream of a Wealth Tax Is Alive. For Now.**\
 `A narrow Supreme Court ruling left the door open for Congress to expand taxes on billionaires, but it’s not a guarantee.`\
 https://nytimes.com/2024/06/20/us/politics/democrats-wealth-tax-supreme-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/20/us/heat-wave-news/in-rural-indiana-residents
 **Stonehenge Is Sprayed With Orange Powder in Climate Protest**\
 `Two climate protesters sprayed the powder onto the ancient stones on Wednesday, as the Summer Solstice was to be celebrated at the English site, a popular destination on the longest day of the year.`\
 https://nytimes.com/2024/06/20/world/europe/stonehenge-just-stop-oil-solstice.html
-
-**Why Mbappe won’t wear tricolore mask at Euro 2024**\
-`Mbappe's patriotic mask sparked a social media storm but the France captain won't be able to wear it during a match...`\
-https://nytimes.com/athletic/5578912/2024/06/20/kylian-mbappe-mask-why-euro-2024/
 
