@@ -1,3 +1,11 @@
+**U.S. Will Redirect Deliveries of Patriot Missiles to Ukraine**\
+`A White House spokesman said Ukraine had a critical need for the air-defense systems. But the United States has only a limited supply.`\
+https://nytimes.com/2024/06/20/us/politics/patriot-missiles-ukraine.html
+
+**Thou Shalt Not Post the Ten Commandments in the Classroom**\
+`Documents do not radiate powers of personal virtue.`\
+https://nytimes.com/2024/06/18/opinion/ten-commandments-classroom-louisiana.html
+
 **Bullpen report: Dedniel Núñez rising, concerns for Clay Holmes and more**\
 `Greg Jewett shares all the changes taking place of fantasy baseball import in every MLB bullpen, like Dedniel Núñez's rise for the Mets. `\
 https://nytimes.com/athletic/5578635/2024/06/20/bullpen-report-fantasy-baseball-saves-holds-watch/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/20/business/target-retail-ai.html
 **The Briefing: Slovenia 1 Serbia 1 - 95th-minute Jovic equaliser leaves Group C in the balance**\
 `The key talking points from the Group C game between Slovenia and Serbia in Munich`\
 https://nytimes.com/athletic/5572863/2024/06/20/slovenia-serbia-euro-2024-result-analysis/
-
-**Have Esquites, Will Travel (to the Picnic)**\
-`Kay Chun’s esquites recipe captures all the elements of elotes in a salad: charred sweet corn, tangy lime, creamy cotija and spicy ancho chile.`\
-https://nytimes.com/2024/06/20/dining/esquites.html
-
-**Alexander Steen's path to becoming Blues GM-in-waiting: 'He checks all the boxes'**\
-`Former teammate Colton Parayko on Steen's ascent: "He was a great teammate who had all of the qualities of a professional."`\
-https://nytimes.com/athletic/5570195/2024/06/20/alexander-steen-blues-gm-nhl/
 
