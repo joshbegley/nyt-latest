@@ -1,3 +1,7 @@
+**Ryan Garcia suspended, fined, loses Haney win for PEDs**\
+`Haney will also now retain his undefeated record, as the loss turns to a no-contest.`\
+https://nytimes.com/athletic/5579695/2024/06/20/ryan-garcia-suspension-fine-no-contest-devin-haney/
+
 **Briere: Flyers might 'lean into a center' at NHL Draft, plus the latest on Michkov**\
 `Will the Flyers use any draft picks as currency in possible trades?`\
 https://nytimes.com/athletic/5579335/2024/06/20/flyers-nhl-draft-briere-michkov/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/20/us/heat-wave-news/some-schools-near-new-york
 **Suspect in 3 Killings Is Arrested in Arkansas After Manhunt**\
 `The man, Stacy Lee Drake, 50, faces two murder charges and one robbery charge in Sequoyah County, Okla. He also faces a murder count in Tuscaloosa, Ala.`\
 https://nytimes.com/2024/06/20/us/oklahoma-alabama-homicides-suspect-arrested-arkansas.html
-
-**Nearly Half the U.S. Began the Summer Sweltering**\
-`Also, the Supreme Court upheld a Trump-era tax provision. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2024/06/20/briefing/heat-wave-east-tax-case-supreme-court.html
 
