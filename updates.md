@@ -1,3 +1,7 @@
+**Euro 2024 day seven: Mbappe's mask, all square in Group C, Spain's ominous return to form**\
+`What happened on day seven of the European Championship in Germany`\
+https://nytimes.com/athletic/5579178/2024/06/20/day-seven-euro-2024-mbappe-mask/
+
 **The Briefing: Spain 1-0 Italy - Calafiori own goal settles 'European Clasico'**\
 `Meetings between Spain and Italy rarely disappoint — and this one was no exception. Here's our analysis of the big match in Group B
 `\
