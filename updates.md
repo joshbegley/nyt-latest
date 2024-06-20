@@ -1,3 +1,7 @@
+**Your Guide to the Heat**\
+`It’s the first major heat wave of 2024.`\
+https://nytimes.com/2024/06/20/briefing/heat-wave-tips.html
+
 **Lionel Messi in the U.S., a legend knowing 'there’s not a lot of time left'**\
 `Messi has made a 'massive' impact on American soccer since joining Inter Miami but the Copa America may be his farewell international tour`\
 https://nytimes.com/athletic/5576407/2024/06/20/messi-inter-miami-copa-america-legacy/
