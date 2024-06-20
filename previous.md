@@ -1,3 +1,11 @@
+**Has Red Bull lost its F1 advantage? The next 5 races will tell**\
+`McLaren, Ferrari and Mercedes have closed the gap, but the upcoming run of European races could put Red Bull back in control. `\
+https://nytimes.com/athletic/5578707/2024/06/20/red-bull-f1-advantage-spanish-gp-verstappen/
+
+**The heat wave has set records in Boston, Chicago and other cities.**\
+`By Tim Balk`\
+https://nytimes.com/live/2024/06/20/us/heat-wave-news/the-heat-wave-has-set-records-in-boston-chicago-and-other-cities
+
 **USC's tough recruiting week, plus reactions to conference sponsors**\
 `Welcome to Until Saturday, the five-star college football newsletter: Leave our inaccurately numbered conference names alone!`\
 https://nytimes.com/athletic/5578855/2024/06/20/college-football-recruiting-usc-sponsorships-until-saturday/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/20/books/review/new-books-recommendations.html
 **Phoenix is sizzling today, too. But here is why cities in the Northeast may be more worrisome.**\
 `By Kate Selig`\
 https://nytimes.com/live/2024/06/20/us/heat-wave-news/phoenix-is-sizzling-today-too-but-here-is-why-cities-in-the-northeast-may-be-more-worrisome
-
-**The Windup: Remembering a true GOAT; ball/strike challenges are coming**\
-`Levi Weaver and Ken Rosenthal catch you up on leaguewide news.`\
-https://nytimes.com/athletic/5578723/2024/06/20/willie-mays-death-automated-strike-zone-the-windup/
-
-**What I'm hearing about Guentzel, Penguins' draft, free agency**\
-`The Penguins have lots of needs and only $13 million in salary cap space as a crucial offseason heats up.`\
-https://nytimes.com/athletic/5575911/2024/06/20/penguins-jake-guentzel-free-agent/
 

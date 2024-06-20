@@ -1,3 +1,11 @@
+**Has Red Bull lost its F1 advantage? The next 5 races will tell**\
+`McLaren, Ferrari and Mercedes have closed the gap, but the upcoming run of European races could put Red Bull back in control. `\
+https://nytimes.com/athletic/5578707/2024/06/20/red-bull-f1-advantage-spanish-gp-verstappen/
+
+**The heat wave has set records in Boston, Chicago and other cities.**\
+`By Tim Balk`\
+https://nytimes.com/live/2024/06/20/us/heat-wave-news/the-heat-wave-has-set-records-in-boston-chicago-and-other-cities
+
 **USC's tough recruiting week, plus reactions to conference sponsors**\
 `Welcome to Until Saturday, the five-star college football newsletter: Leave our inaccurately numbered conference names alone!`\
 https://nytimes.com/athletic/5578855/2024/06/20/college-football-recruiting-usc-sponsorships-until-saturday/
