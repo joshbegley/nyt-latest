@@ -1,3 +1,15 @@
+**Cooper has beaten Potter and Maresca to land the Leicester job - there is much work to do**\
+`The former Nottingham Forest manager has won the race for the Leicester job - in front of Graham Potter and Carlos Corberan`\
+https://nytimes.com/athletic/5576276/2024/06/20/leicester-new-manager-steve-cooper/
+
+**Leaping Leeches! Watch These Bloodsuckers Jump.**\
+`There has long been anecdotal evidence of the wormy creatures taking to the air, but videos recorded in Madagascar at last prove the animals’ acrobatics.`\
+https://nytimes.com/2024/06/20/science/jumping-leaches.html
+
+**Fear Is Key to Staying Alive**\
+`We can’t escape death. Horror offers a way to cope with this reality.`\
+https://nytimes.com/2024/06/20/special-series/junji-ito-horror-manga-death.html
+
 **Chelsea open talks with Boca over Anselmino deal**\
 `Chelsea have opened talks with Boca Juniors over the signing of defender Aaron Anselmino.`\
 https://nytimes.com/athletic/5578387/2024/06/20/chelsea-aaron-anselmino-transfer/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5578227/2024/06/20/katie-archibald-injury-olympics-
 **Weston McKennie exclusive: 'Everyone doubted me... but look at me now'**\
 `The USMNT midfielder speaks exclusively to The Athletic ahead of the Copa America`\
 https://nytimes.com/athletic/5576418/2024/06/20/usmnt-leeds-copa-america-mckennie-interview/
-
-**Kennedy Fails to Qualify for CNN Debate**\
-`Robert F. Kennedy Jr. did not meet the criteria to make the debate stage next week, according to the outlet, denying him the opportunity to confront President Biden and Donald J. Trump.`\
-https://nytimes.com/2024/06/20/us/politics/kennedy-qualify-cnn-debate.html
-
-**NBA mock draft: Who's going No. 1? Why it's still unclear less than a week out**\
-`With less than one week until the 2024 NBA Draft, a lot remains unsettled, starting with the No. 1 pick. Has a new contender emerged?`\
-https://nytimes.com/athletic/5571609/2024/06/20/nba-mock-draft-hawks-donovan-clingan-bronny-james/
-
-**Word of the Day: proximity**\
-`This word has appeared in 468 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/06/20/learning/word-of-the-day-proximity.html
 

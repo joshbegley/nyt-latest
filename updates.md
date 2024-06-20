@@ -1,3 +1,15 @@
+**Cooper has beaten Potter and Maresca to land the Leicester job - there is much work to do**\
+`The former Nottingham Forest manager has won the race for the Leicester job - in front of Graham Potter and Carlos Corberan`\
+https://nytimes.com/athletic/5576276/2024/06/20/leicester-new-manager-steve-cooper/
+
+**Leaping Leeches! Watch These Bloodsuckers Jump.**\
+`There has long been anecdotal evidence of the wormy creatures taking to the air, but videos recorded in Madagascar at last prove the animals’ acrobatics.`\
+https://nytimes.com/2024/06/20/science/jumping-leaches.html
+
+**Fear Is Key to Staying Alive**\
+`We can’t escape death. Horror offers a way to cope with this reality.`\
+https://nytimes.com/2024/06/20/special-series/junji-ito-horror-manga-death.html
+
 **Chelsea open talks with Boca over Anselmino deal**\
 `Chelsea have opened talks with Boca Juniors over the signing of defender Aaron Anselmino.`\
 https://nytimes.com/athletic/5578387/2024/06/20/chelsea-aaron-anselmino-transfer/
