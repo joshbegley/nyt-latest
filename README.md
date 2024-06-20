@@ -1,10 +1,14 @@
+**Police investigating theft of Toney's father's watch from Euro 2024 hotel**\
+`Dusseldorf Police are investigating a complaint that Ivan Toney’s father had his watch stolen during the weekend of England’s opening group-stage win over Serbia on June 16.`\
+https://nytimes.com/athletic/5578010/2024/06/20/ivan-toney-father/
+
 **Cooper has beaten Potter and Maresca to land the Leicester job - there is much work to do**\
 `The former Nottingham Forest manager has won the race for the Leicester job - in front of Graham Potter and Carlos Corberan`\
 https://nytimes.com/athletic/5576276/2024/06/20/leicester-new-manager-steve-cooper/
 
 **Leaping Leeches! Watch These Bloodsuckers Jump.**\
 `There has long been anecdotal evidence of the wormy creatures taking to the air, but videos recorded in Madagascar at last prove the animals’ acrobatics.`\
-https://nytimes.com/2024/06/20/science/jumping-leaches.html
+https://nytimes.com/2024/06/20/science/jumping-leeches.html
 
 **Fear Is Key to Staying Alive**\
 `We can’t escape death. Horror offers a way to cope with this reality.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/20/world/europe/nato-secretary-general-rutte.html
 **Team GB cyclist Archibald to miss Olympics after freak accident**\
 `Great Britain cyclist Katie Archibald will miss this summer&#8217;s Olympics Games in Paris after breaking her leg in a freak accident.`\
 https://nytimes.com/athletic/5578227/2024/06/20/katie-archibald-injury-olympics-accident/
-
-**Weston McKennie exclusive: 'Everyone doubted me... but look at me now'**\
-`The USMNT midfielder speaks exclusively to The Athletic ahead of the Copa America`\
-https://nytimes.com/athletic/5576418/2024/06/20/usmnt-leeds-copa-america-mckennie-interview/
 
