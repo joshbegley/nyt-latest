@@ -1,3 +1,7 @@
+**Explained: Jamal Musiala and Carmelo Anthony's 'three to the dome' celebration**\
+`The Germany midfielder's celebration against Hungary evoked a certain Camelo Anthony...`\
+https://nytimes.com/athletic/5577451/2024/06/20/jamal-musiala-germany-celebration-carmelo-anthony/
+
 **Ancient Shipwreck Preserves a Deep Bronze Age Time Capsule**\
 `About a mile beneath the sea, the ship suggests that trade in the eastern Mediterranean Sea traveled much farther from the safety of land.`\
 https://nytimes.com/2024/06/20/science/shipwreck-bronze-age-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5575599/2024/06/20/which-clubs-are-going-to-spend-i
 **Celebrating Own Goal - Euro 2024's leading goalscorer**\
 `It's not just that there have been four own goals already at Euro 2024, it's that they've also been really funny`\
 https://nytimes.com/athletic/5576064/2024/06/20/best-own-goals-euro-2024/
-
-**Spain's tiki-taka era might be over - but its legacy continues to divide**\
-`La Roja's impressive run of possession-dominance ended on Saturday. Is that a good or a bad thing?`\
-https://nytimes.com/athletic/5575629/2024/06/20/spain-tiki-taka-possession-euros/
 
