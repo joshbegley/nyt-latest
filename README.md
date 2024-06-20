@@ -1,3 +1,7 @@
+**All Hail the Scuttlebutt**\
+`And more excellent vegetarian sandwiches, like the HLT (halloumi, lettuce and tomato) and Superiority Burger’s crispy fried tofu.`\
+https://nytimes.com/2024/06/20/dining/all-hail-the-scuttlebutt.html
+
 **7 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/06/20/books/review/new-books-recommendations.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5572140/2024/06/20/kylian-mbappe-nose-injury-nether
 **J.D. Vance’s Claims About the 2020 Election**\
 `Responses to Ross Douthat’s interview with Senator Vance. Also: Clarence Thomas and the Supreme Court’s reputation; hair loss; a perplexing headline.`\
 https://nytimes.com/2024/06/20/opinion/j-d-vance-2020-election.html
-
-**Lewandowski facing late fitness test before Austria game**\
-`Robert Lewandowski faces a late fitness test before his Poland side face Austria in their second group game at the European Championship.`\
-https://nytimes.com/athletic/5578697/2024/06/20/robert-lewandowski-injury-poland-euro-2024/
 
