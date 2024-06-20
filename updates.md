@@ -1,3 +1,7 @@
+**Ratcliffe says UEFA multi-club rules 'unfair' as Man Utd transfer blocked**\
+`Sir Jim Ratcliffe believes UEFA rules on multi-club ownership are unfair as Manchester United were prevented from signing a player from Nice.`\
+https://nytimes.com/athletic/5577722/2024/06/20/manchester-united-transfer-news-jim-ratcliffe/
+
 **What Happened When Brooklyn Tried to Integrate Its Middle Schools**\
 `A new report found that many schools enrolled more racially and socioeconomically diverse groups of students without sparking a major exodus of families from public schools.`\
 https://nytimes.com/2024/06/20/nyregion/what-happened-when-brooklyn-tried-to-integrate-its-middle-schools.html
