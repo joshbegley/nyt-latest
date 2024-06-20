@@ -1,3 +1,7 @@
+**MLB Draft Combine notes: Bryce Rainer not feeling the pressure, Jack Findlay returns**\
+`Rainer hasn't completely ruled out pitching, though he is a top-10 talent as a shortstop. Plus, notes on bullpens and batting practices.`\
+https://nytimes.com/athletic/5577632/2024/06/20/mlb-draft-combine-notes-bryce-rainer-not-feeling-the-pressure-jack-findlay-returns/
+
 **The armed forces’ chief spokesman goes public with frustration over Prime Minister Netanyahu’s failure to advance a plan for governing postwar Gaza.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/06/20/world/israel-gaza-war-hamas/unusually-blunt-comments-from-the-israeli-military-spokesman-bring-divisions-with-the-government-into-the-open
