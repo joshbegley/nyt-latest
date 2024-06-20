@@ -1,3 +1,7 @@
+**N.Y. Prisons Have Ignored Limits on Solitary Confinement, Judge Finds**\
+`Legally, time in solitary confinement is limited to 15 days, and only if prison officials offer a detailed rationale. Lawyers say the requirements have been routinely disregarded.`\
+https://nytimes.com/2024/06/20/nyregion/new-york-state-prisons-solitary-limit.html
+
 **TV Weather Gets Political**\
 `On-air meteorologists have become a target in the culture wars as they report on the effects of climate change.`\
 https://nytimes.com/2024/06/20/climate/tv-weather-gets-political.html
