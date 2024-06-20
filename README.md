@@ -1,3 +1,7 @@
+**Lionel Messi in the U.S., a legend knowing 'there’s not a lot of time left'**\
+`Messi has made a 'massive' impact on American soccer since joining Inter Miami but the Copa America may be his farewell international tour`\
+https://nytimes.com/athletic/5576407/2024/06/20/messi-inter-miami-copa-america-legacy/
+
 **Rain and Floods Hit New Mexico Region Ravaged by Wildfires**\
 `The rain will help control the fires, which have killed two people and scorched more than 23,000 acres. The wildfires were expected to continue burning, the authorities said.`\
 https://nytimes.com/2024/06/20/us/new-mexico-fires-rain-floods.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5575511/2024/06/20/nba-player-tiers-victor-wembanya
 **Inside Connor McDavid's record-breaking playofs, by the numbers**\
 `McDavid has rewritten parts of the NHL's record book over the last two months. And he might not be done yet.`\
 https://nytimes.com/athletic/5577165/2024/06/20/connor-mcdavid-stats-playoffs-records/
-
-**Houston Astros Covering the Bases: Moving on from José Abreu, Justin Verlander back to IL**\
-`Dive into all the latest and greatest happenings with the Astros in our weekly segment.`\
-https://nytimes.com/athletic/5577223/2024/06/20/houston-astros-scores-results-standing-news/
 
