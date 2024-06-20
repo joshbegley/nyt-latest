@@ -1,3 +1,7 @@
+**Dedicated, inspirational and ready for another chance - Cooper craved Premier League job**\
+`Cooper has turned down numerous jobs - his patience has been rewarded but he will have fans to win over like Martin O'Neill did`\
+https://nytimes.com/athletic/5566790/2024/06/20/steve-cooper-leicester-nottingham-forest/
+
 **Rowan Barrett is maximizing chances of Canadian Olympic glory, even if feelings get hurt**\
 `By opening up roster spots for Canada's men's basketball team in Paris, general manager Rowan Barrett is being ruthless in name of winning.`\
 https://nytimes.com/athletic/5577091/2024/06/20/rowan-barrett-canadian-olympic-roster/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/20/opinion/biden-executive-order-immigrants.html
 **The Human Toll of Nuclear Testing**\
 `The U.S. bombings that ended World War II didn’t mark the close of atomic warfare. They were just the beginning.`\
 https://nytimes.com/interactive/2024/06/20/opinion/nuclear-weapons-testing.html
-
-**Why Activists Keep Failing the Causes That Fire Them Up**\
-`They need to stop accepting short-term victories.`\
-https://nytimes.com/2024/06/20/opinion/activists-congress-laws-politics.html
 
