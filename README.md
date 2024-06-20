@@ -1,3 +1,7 @@
+**Jimmy Fallon Mocks Kim Jong-un and Putin for Making Things Official**\
+`“Then they got a text from Trump that said, ‘Throuple?’” Fallon joked on Wednesday.`\
+https://nytimes.com/2024/06/20/arts/television/jimmy-fallon-north-korea-putin.html
+
 **Ratcliffe says UEFA multi-club rules 'unfair' as Man Utd transfer blocked**\
 `Sir Jim Ratcliffe believes UEFA rules on multi-club ownership are unfair as Manchester United were prevented from signing a player from Nice.`\
 https://nytimes.com/athletic/5577722/2024/06/20/manchester-united-transfer-news-jim-ratcliffe/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/20/science/shipwreck-bronze-age-israel.html
 **Three Red Sox takeaways: Short team meeting leads to sweep of Blue Jays**\
 `As Brayan Bello got back on track, the offense kept tearing it up in a 7-3 victory in Toronto.`\
 https://nytimes.com/athletic/5577633/2024/06/20/red-sox-sweep-blue-jays/
-
-**Chelsea's aggressive youth recruitment means days of signing players at peak are over**\
-`Chelsea want to position themselves to be able to recruit every teenage footballer they identify as having elite potential`\
-https://nytimes.com/athletic/5575306/2024/06/20/chelsea-aggressive-youth-transfers-estevao-willian/
 
