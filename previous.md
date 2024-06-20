@@ -1,3 +1,15 @@
+**William Goines, First Black Navy SEAL, Dies at 87**\
+`He overcame segregation at home and in the military to serve three tours in Vietnam as a member of the storied special operations unit.`\
+https://nytimes.com/2024/06/20/us/william-goines-dead.html
+
+**I.R.S. Extends Freeze of Pandemic-Era Tax Credit Amid Widespread Fraud**\
+`An internal analysis conducted by the agency found that up to 90 percent of claims are potentially fraudulent.`\
+https://nytimes.com/2024/06/20/us/politics/irs-pandemic-tax-credit-fraud.html
+
+**It’s Sandwich Week!**\
+`Here’s how our grand survey of sandwiches in all five boroughs came to be, plus some staff favorites.`\
+https://nytimes.com/2024/06/20/dining/its-sandwich-week.html
+
 **‘Smiling Friends’ Is a Deranged Blast**\
 `This warped Adult Swim animated series, streaming on Max, is so fast and feral it feels like its own highlight reel.`\
 https://nytimes.com/2024/06/20/arts/television/smiling-friends-max-streaming.html
@@ -18,23 +30,11 @@ https://nytimes.com/video/us/100000009531454/alberto-floods-texas.html
 `Gramstad is transferring from NAIA Northwestern (Iowa) College for his final season of eligibility.`\
 https://nytimes.com/athletic/5579208/2024/06/20/nebraska-football-quarterbacks-jalyn-gramstad/
 
-**Browns DE Phelps arrested, charged with DUI in Florida**\
+**Browns waive DE Phelps after arrest, DUI charge in Florida**\
 `Phelps allegedly crashed his SUV into a restaurant in Key West, Fla., according to multiple reports.`\
 https://nytimes.com/athletic/5579119/2024/06/20/lonnie-phelps-arrest-dui/
 
 **The Hosts of Journalism’s Favorite Podcast Say Goodbye**\
 `After 12 years, Aaron Lammer, Max Linsky and Evan Ratliff will soon release the final episode of “Longform,” a podcast that unwittingly captured the shifts in the journalism and publishing industries.`\
 https://nytimes.com/2024/06/20/style/longform-podcast-says-goodbye.html
-
-**Southgate explains Kane substitution against Denmark**\
-`Gareth Southgate says Harry Kane&#8217;s substitution during their 1-1 draw with Denmark at the European Championship was because England &#8220;needed energy&#8221;.`\
-https://nytimes.com/athletic/5578967/2024/06/20/harry-kane-england-sub-southgate/
-
-**Major League Baseball Came to Birmingham. Then Willie Mays Died.**\
-`Baseball hopes a celebration of its past in the home of one of its legends will attract more African American athletes, who are playing the sport in decreasing numbers.`\
-https://nytimes.com/2024/06/20/us/baseball-birmingham-mays-black-players.html
-
-**The Expanding Fake Electors Cases**\
-`Plus, news about the judge in the documents case.`\
-https://nytimes.com/2024/06/20/us/politics/trump-trial-fake-electors-cases.html
 

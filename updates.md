@@ -1,3 +1,19 @@
+**William Goines, First Black Navy SEAL, Dies at 87**\
+`He overcame segregation at home and in the military to serve three tours in Vietnam as a member of the storied special operations unit.`\
+https://nytimes.com/2024/06/20/us/william-goines-dead.html
+
+**I.R.S. Extends Freeze of Pandemic-Era Tax Credit Amid Widespread Fraud**\
+`An internal analysis conducted by the agency found that up to 90 percent of claims are potentially fraudulent.`\
+https://nytimes.com/2024/06/20/us/politics/irs-pandemic-tax-credit-fraud.html
+
+**It’s Sandwich Week!**\
+`Here’s how our grand survey of sandwiches in all five boroughs came to be, plus some staff favorites.`\
+https://nytimes.com/2024/06/20/dining/its-sandwich-week.html
+
+**Browns waive DE Phelps after arrest, DUI charge in Florida**\
+`Phelps allegedly crashed his SUV into a restaurant in Key West, Fla., according to multiple reports.`\
+https://nytimes.com/athletic/5579119/2024/06/20/lonnie-phelps-arrest-dui/
+
 **‘Smiling Friends’ Is a Deranged Blast**\
 `This warped Adult Swim animated series, streaming on Max, is so fast and feral it feels like its own highlight reel.`\
 https://nytimes.com/2024/06/20/arts/television/smiling-friends-max-streaming.html
