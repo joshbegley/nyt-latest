@@ -1,3 +1,7 @@
+**The Hosts of Journalism’s Favorite Podcast Say Goodbye**\
+`After 12 years, Aaron Lammer, Max Linsky and Evan Ratliff will soon release the final episode of “Longform,” a podcast that unwittingly captured the shifts in the journalism and publishing industries.`\
+https://nytimes.com/2024/06/20/style/longform-podcast-says-goodbye.html
+
 **Southgate explains Kane substitution against Denmark**\
 `Gareth Southgate says Harry Kane&#8217;s substitution during their 1-1 draw with Denmark at the European Championship was because England &#8220;needed energy&#8221;.`\
 https://nytimes.com/athletic/5578967/2024/06/20/harry-kane-england-sub-southgate/
