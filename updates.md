@@ -1,3 +1,23 @@
+**New Home Construction Slows as Mortgage Rates Remain High**\
+`Home building in May fell to its slowest pace in four years despite a supply shortage. That trend could put even greater strain on buyers.`\
+https://nytimes.com/2024/06/20/business/economy/new-home-construction-mortgage-rates.html
+
+**Trump Will Get the Last Word in the Debate, While Biden Picks His Podium**\
+`A coin flip won by President Biden gave him the option of picking which podium he will use or choosing the order of closing statements.`\
+https://nytimes.com/2024/06/20/us/politics/trump-biden-debate-last-word.html
+
+**TikTok Lays Out Past Efforts to Address U.S. Concerns**\
+`The company said the disclosures support its argument that a law signed by President Biden in May is unconstitutional.`\
+https://nytimes.com/2024/06/20/business/media/tiktok-ban-biden.html
+
+**Angry about England? Send us your questions**\
+`Why so safety-first? Should Palmer be playing? What's happening on the left? Ask your questions about England's Euros campaign`\
+https://nytimes.com/athletic/5578982/2024/06/20/england-euro-2024-mailbag/
+
+**French Election Becomes ‘Nightmare’ for Nation’s Jews**\
+`The alleged rape of a 12-year-old Jewish girl is inflaming an already tense and divisive situation.`\
+https://nytimes.com/2024/06/20/world/europe/french-election-antisemitism-jews.html
+
 **Koeman calls on Netherlands not to 'dwell' on Mbappe availability**\
 `Ronald Koeman emphasised that his side &#8220;cannot dwell&#8221; on whether Kylian Mbappe will play for France against the Netherlands, highlighting the importance of focusing on their own preparation.`\
 https://nytimes.com/athletic/5579023/2024/06/20/mbappe-koeman-netherlands-france/
