@@ -1,3 +1,11 @@
+**Briere: Flyers might 'lean into a center' at NHL Draft, plus the latest on Michkov**\
+`Will the Flyers use any draft picks as currency in possible trades?`\
+https://nytimes.com/athletic/5579335/2024/06/20/flyers-nhl-draft-briere-michkov/
+
+**Yamal and Williams represent a new era for Spain — and made Italy look old-fashioned**\
+`Spain were on a different planet to Italy in their Euro 2024 match. Their electric wingers were the stars in a post-tiki-taka world`\
+https://nytimes.com/athletic/5579597/2024/06/20/williams-yamal-spain-italy-euro-2024/
+
 **Judy Garland Museum Is Raising Money to Bid on Stolen Ruby Slippers**\
 `The famed slippers, valued at $3.5 million, were stolen from the museum in Garland’s hometown in Minnesota in 2005 and recovered in 2018. Now, the museum hopes to buy them at an auction in December.`\
 https://nytimes.com/2024/06/20/us/judy-garland-hometown-oz-ruby-slippers.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/20/us/oklahoma-alabama-homicides-suspect-arrested-ar
 **Nearly Half the U.S. Began the Summer Sweltering**\
 `Also, the Supreme Court upheld a Trump-era tax provision. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/06/20/briefing/heat-wave-east-tax-case-supreme-court.html
-
-**Euro 2024 day seven: Mbappe's mask, all square in Group C, Spain's ominous return to form**\
-`What happened on day seven of the European Championship in Germany`\
-https://nytimes.com/athletic/5579178/2024/06/20/day-seven-euro-2024-mbappe-mask/
-
-**Thousands in Detroit Suburbs Still Lack Power After Wednesday’s Storms**\
-`The energy company that serves the area said it had restored power for about half of the 69,000 customers who lost it Wednesday night.`\
-https://nytimes.com/2024/06/20/us/detroit-michigan-power-storms-heat.html
 
