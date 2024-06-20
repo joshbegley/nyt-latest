@@ -1,3 +1,7 @@
+**Travis Scott Arrested After Disturbance on Florida Yacht**\
+`The rapper, who was charged with trespassing and disorderly intoxication, later admitted he had been drinking alcohol and stated, “It’s Miami.”`\
+https://nytimes.com/2024/06/20/arts/music/travis-scott-arrested.html
+
 **Supreme Court Upholds Trump-Era Tax Provision**\
 `The tax dispute, which was closely watched by experts, involved a one-time foreign income tax, but many saw it as a broader challenge to pre-emptively block Congress from passing a wealth tax.`\
 https://nytimes.com/2024/06/20/us/politics/supreme-court-tax-case-trump.html
