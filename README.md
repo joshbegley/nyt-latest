@@ -1,3 +1,11 @@
+**AIPAC Unleashes a Record $14.5 Million Bid to Defeat an Anti-Israel Foe**\
+`The deluge in outside spending, which also includes another $1 million from another pro-Israel group, threatens to sink Representative Jamaal Bowman.`\
+https://nytimes.com/2024/06/20/nyregion/aipac-bowman-latimer.html
+
+**A Lakeside Castle Hotel in the Austrian Alps**\
+`Plus: art about office life, colorful rope rugs — and more.`\
+https://nytimes.com/2024/06/20/t-magazine/rosewood-schloss-fuschl-austria-alps-hotel.html
+
 **William Goines, First Black Navy SEAL, Dies at 87**\
 `He overcame segregation at home and in the military to serve three tours in Vietnam as a member of the storied special operations unit.`\
 https://nytimes.com/2024/06/20/us/william-goines-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000009531454/alberto-floods-texas.html
 **Nebraska adds depth at QB with former NAIA player of the year Jalyn Gramstad**\
 `Gramstad is transferring from NAIA Northwestern (Iowa) College for his final season of eligibility.`\
 https://nytimes.com/athletic/5579208/2024/06/20/nebraska-football-quarterbacks-jalyn-gramstad/
-
-**Browns waive DE Phelps after arrest, DUI charge in Florida**\
-`Phelps allegedly crashed his SUV into a restaurant in Key West, Fla., according to multiple reports.`\
-https://nytimes.com/athletic/5579119/2024/06/20/lonnie-phelps-arrest-dui/
-
-**The Hosts of Journalism’s Favorite Podcast Say Goodbye**\
-`After 12 years, Aaron Lammer, Max Linsky and Evan Ratliff will soon release the final episode of “Longform,” a podcast that unwittingly captured the shifts in the journalism and publishing industries.`\
-https://nytimes.com/2024/06/20/style/longform-podcast-says-goodbye.html
 
