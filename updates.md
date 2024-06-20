@@ -1,3 +1,7 @@
+**Ryan Garcia suspended, fined, loses Haney win for PEDs**\
+`Haney will also now retain his undefeated record, as the loss turns to a no-contest.`\
+https://nytimes.com/athletic/5579695/2024/06/20/ryan-garcia-suspension-fine-no-contest-devin-haney/
+
 **Yamal and Williams represent a new era for Spain - and made Italy look old-fashioned**\
 `Spain were on a different planet to Italy in their Euro 2024 match. Their electric wingers were the stars in a post-tiki-taka world`\
 https://nytimes.com/athletic/5579597/2024/06/20/williams-yamal-spain-italy-euro-2024/
