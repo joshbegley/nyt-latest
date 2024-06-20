@@ -1,3 +1,7 @@
+**Regan Smith is back atop the backstroke, just in time for the Olympics**\
+`Five years after Regan Smith announced her arrival with a world-record swim, she did it again Tuesday at the U.S. Olympic trials.`\
+https://nytimes.com/athletic/5577340/2024/06/19/regan-smith-olympics-backstroke/
+
 **Caeleb Dressel secures Olympic spot**\
 `Dressel will participate in the 4x100 freestyle relay in Paris since he did not finish first in the 100-meter freestyle final.`\
 https://nytimes.com/athletic/5577407/2024/06/19/caeleb-dressel-olympic-trials-freestyle-win/

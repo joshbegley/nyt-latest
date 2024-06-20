@@ -1,3 +1,7 @@
+**Regan Smith is back atop the backstroke, just in time for the Olympics**\
+`Five years after Regan Smith announced her arrival with a world-record swim, she did it again Tuesday at the U.S. Olympic trials.`\
+https://nytimes.com/athletic/5577340/2024/06/19/regan-smith-olympics-backstroke/
+
 **Caeleb Dressel secures Olympic spot**\
 `Dressel will participate in the 4x100 freestyle relay in Paris since he did not finish first in the 100-meter freestyle final.`\
 https://nytimes.com/athletic/5577407/2024/06/19/caeleb-dressel-olympic-trials-freestyle-win/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5577111/2024/06/19/padres-trade-deadline-jackson-me
 **A rookie in the NWSL MVP race?: Full Time**\
 `Plus, a look at the Seattle Reign sale.`\
 https://nytimes.com/athletic/5577162/2024/06/19/a-rookie-in-the-nwsl-mvp-race-full-time/
-
-**By trading Pierre-Luc Dubois, the Kings admit their error and address another problem**\
-`L.A. traded Dubois, once hoped to be a centerpiece of their future, after one season for goalie Darcy Kuemper.`\
-https://nytimes.com/athletic/5577102/2024/06/19/dubois-kuemper-trade-kings-capitals/
 
