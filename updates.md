@@ -1,3 +1,7 @@
+**Dedicated, inspirational and ready for another chance - Cooper craved Premier League job**\
+`Cooper has turned down numerous jobs. His patience has been rewarded but he will have Leicester fans to win over, like Martin O'Neill did`\
+https://nytimes.com/athletic/5566790/2024/06/20/steve-cooper-leicester-nottingham-forest/
+
 **Who Is the Egyptian Tycoon Accused of Charging Palestinians to Escape Gaza?**\
 `Ibrahim al-Organi has close connections with the Egyptian government, diplomats say, and he has multiple business interests in Gaza.`\
 https://nytimes.com/2024/06/20/world/middleeast/egypt-tycoon-hala-palestinians-gaza.html
