@@ -1,3 +1,7 @@
+**The Pope’s Spurious Prayer**\
+`Please, give him the power to see a joke,`\
+https://nytimes.com/live/2024/06/18/opinion/thepoint/the-popes-spurious-prayer
+
 **Bentancur has apologised for racial slur - Son**\
 `Heung-min Son says he has accepted Tottenham Hotspur team-mate Rodrigo Bentancur&#8217;s apology for using a racial slur.`\
 https://nytimes.com/athletic/5577959/2024/06/20/tottenham-son-bentancur-apology/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5573310/2024/06/20/jets-approach-costs-rodgers-sale
 **Extreme Heat in Rural America, and Putin Visits Vietnam**\
 `Plus, Louisiana and the Ten Commandments.`\
 https://nytimes.com/2024/06/20/podcasts/extreme-heat-putin-vietnam.html
-
-**The Mysterious Gun Study That’s Advancing Gun Rights**\
-`Seemingly independent academic work deployed in landmark court cases has undisclosed ties to pro-gun interests.`\
-https://nytimes.com/2024/06/20/podcasts/the-daily/gun-study-rights.html
 

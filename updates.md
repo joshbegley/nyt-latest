@@ -1,3 +1,7 @@
+**The Pope’s Spurious Prayer**\
+`Please, give him the power to see a joke,`\
+https://nytimes.com/live/2024/06/18/opinion/thepoint/the-popes-spurious-prayer
+
 **Bentancur has apologised for racial slur - Son**\
 `Heung-min Son says he has accepted Tottenham Hotspur team-mate Rodrigo Bentancur&#8217;s apology for using a racial slur.`\
 https://nytimes.com/athletic/5577959/2024/06/20/tottenham-son-bentancur-apology/
