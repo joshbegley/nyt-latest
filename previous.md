@@ -1,3 +1,11 @@
+**Rain and Floods Hit New Mexico Region Ravaged by Wildfires**\
+`The rain will help control the fires, which have killed two people and scorched more than 23,000 acres. The wildfires were expected to continue burning, the authorities said.`\
+https://nytimes.com/2024/06/20/us/new-mexico-fires-rain-floods.html
+
+**Copa America 2024: The Athletic's complete guide to the tournament**\
+`The Copa America is here and we've got all you need to know from team guides to tactical breakdowns to player interviews. Enjoy…`\
+https://nytimes.com/athletic/5572159/2024/06/20/copa-america-2024-guide-tournament/
+
 **The Pope’s Spurious Prayer**\
 `Please, give him the power to see a joke,`\
 https://nytimes.com/live/2024/06/18/opinion/thepoint/the-popes-spurious-prayer
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5577165/2024/06/20/connor-mcdavid-stats-playoffs-re
 **Houston Astros Covering the Bases: Moving on from José Abreu, Justin Verlander back to IL**\
 `Dive into all the latest and greatest happenings with the Astros in our weekly segment.`\
 https://nytimes.com/athletic/5577223/2024/06/20/houston-astros-scores-results-standing-news/
-
-**Mueller: The inherent costs of the Jets' all-in approach**\
-`Never before has a team been more dependent on a 40-year-old Achilles tendon than the Jets, and the implications could be vast.`\
-https://nytimes.com/athletic/5573310/2024/06/20/jets-approach-costs-rodgers-saleh-douglas/
-
-**Extreme Heat in Rural America, and Putin Visits Vietnam**\
-`Plus, Louisiana and the Ten Commandments.`\
-https://nytimes.com/2024/06/20/podcasts/extreme-heat-putin-vietnam.html
 
