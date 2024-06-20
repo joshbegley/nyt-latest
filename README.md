@@ -1,3 +1,11 @@
+**What I'm hearing about Guentzel, Penguins' draft, free agency**\
+`The Penguins have lots of needs and only $13 million in salary cap space as a crucial offseason heats up.`\
+https://nytimes.com/athletic/5575911/2024/06/20/penguins-jake-guentzel-free-agent/
+
+**High temperatures in Maine are stressing the state’s infrastructure and essential services.**\
+`By Sydney Cromwell`\
+https://nytimes.com/live/2024/06/20/us/heat-wave-news/high-temperatures-in-maine-are-stressing-the-states-infrastructure-and-essential-services
+
 **Supreme Court Allows Suit Over Arrest Said to Be Politically Motivated**\
 `Sylvia Gonzalez, a Texas city councilwoman, said officials violated the First Amendment by arresting her after she criticized the city manager.`\
 https://nytimes.com/2024/06/20/us/politics/supreme-court-sylvia-gonzalez-arrest-free-speech.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/20/arts/music/best-songs-2024-so-far.html
 **Sixteen defenders the Canucks could target in unrestricted free agency**\
 `The Canucks have uncertainty along the blue line heading into the offseason.`\
 https://nytimes.com/athletic/5569153/2024/06/20/canucks-free-agent-targets-defence-2024/
-
-**Bob Good Trails in Battle for His Virginia Seat, but Primary Remains Too Close to Call**\
-`Both the congressman and his Trump-backed challenger are election deniers, raising the question of whether either would accept an adverse result in his own race.`\
-https://nytimes.com/2024/06/20/us/politics/bob-good-virginia-primary.html
-
-**LeBron James, Paul George and the NBA's top 25 free agents for 2024**\
-`In recent years, we've seen a lot less talent hit free agency than we used to, but that doesn't mean major names won't test the waters.`\
-https://nytimes.com/athletic/5570940/2024/06/20/nba-free-agency-best-available-players-lebron-james/
 
