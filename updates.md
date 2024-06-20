@@ -1,3 +1,15 @@
+**Suspect in 3 Killings Is Arrested in Arkansas After Manhunt**\
+`The man, Stacy Lee Drake, 50, faces two murder charges and one robbery charge in Sequoyah County, Okla. He also faces a murder charge in Tuscaloosa, Ala.`\
+https://nytimes.com/2024/06/20/us/oklahoma-alabama-homicides-suspect-arrested-arkansas.html
+
+**Nearly Half the U.S. Began the Summer Sweltering**\
+`Also, the Supreme Court upheld a Trump-era tax provision. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/06/20/briefing/heat-wave-east-tax-case-supreme-court.html
+
+**Euro 2024 day seven: Mbappe's mask, all square in Group C, Spain's ominous return to form**\
+`What happened on day seven of the European Championship in Germany`\
+https://nytimes.com/athletic/5579178/2024/06/20/day-seven-euro-2024-mbappe-mask/
+
 **The Briefing: Spain 1-0 Italy - Calafiori own goal settles 'European Clasico'**\
 `Meetings between Spain and Italy rarely disappoint — and this one was no exception. Here's our analysis of the big match in Group B
 `\
