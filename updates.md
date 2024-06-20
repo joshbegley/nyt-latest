@@ -1,3 +1,11 @@
+**Bank of England Holds Rates Steady, Despite Slower Inflation**\
+`Officials kept rates at their highest level since 2008 for a seventh consecutive meeting, even as inflation dipped to 2 percent in May.`\
+https://nytimes.com/2024/06/20/business/bank-of-england-interest-rates.html
+
+**Unusually blunt comments from the Israeli military spokesman bring divisions with the government into the open.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/06/20/world/israel-gaza-war-hamas/unusually-blunt-comments-from-the-israeli-military-spokesman-bring-divisions-with-the-government-into-the-open
+
 **Rob Ryan enjoying being back with Raiders — and being part of 'a great defense'**\
 `The veteran assistant coach is having fun in his return to the Raiders as he helps shape what he thinks can be an excellent unit.`\
 https://nytimes.com/athletic/5574270/2024/06/20/rob-ryan-las-vegas-raiders-defense/
