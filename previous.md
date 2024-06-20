@@ -1,3 +1,7 @@
+**J.D. Vance’s Claims About the 2020 Election**\
+`Responses to Ross Douthat’s interview with Senator Vance. Also: Clarence Thomas and the Supreme Court’s reputation; hair loss; a perplexing headline.`\
+https://nytimes.com/2024/06/20/opinion/j-d-vance-2020-election.html
+
 **Lewandowski facing late fitness test before Austria game**\
 `Robert Lewandowski faces a late fitness test before his Poland side face Austria in their second group game at the European Championship.`\
 https://nytimes.com/athletic/5578697/2024/06/20/robert-lewandowski-injury-poland-euro-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/18/opinion/ten-commandments-classroom-louisiana.html
 **Bullpen report: Dedniel Núñez rising, concerns for Clay Holmes and more**\
 `Greg Jewett shares all the changes taking place of fantasy baseball import in every MLB bullpen, like Dedniel Núñez's rise for the Mets. `\
 https://nytimes.com/athletic/5578635/2024/06/20/bullpen-report-fantasy-baseball-saves-holds-watch/
-
-**Kendrick Lamar’s Victory Lap Unites Los Angeles**\
-`After unofficially winning a high-profile diss war with Drake, the rapper hosted a Juneteenth concert that celebrated local heroes — and his own sharp-tongued tracks.`\
-https://nytimes.com/2024/06/20/arts/music/kendrick-lamar-the-pop-out-ken-and-friends.html
 
