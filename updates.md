@@ -1,3 +1,15 @@
+**‘Hummingbirds’ Review: Two Friends’ Summer Along the Border**\
+`The young directors Silvia Del Carmen Castaños and Estefanía (Beba) Contreras stargaze, watch fireworks and discuss their lives in this documentary filmed in Laredo, Texas.`\
+https://nytimes.com/2024/06/20/movies/hummingbirds-review.html
+
+**‘Federer: Twelve Final Days’ Review: Roger, Over and Out**\
+`A new documentary follows the Swiss tennis star from his 2022 retirement announcement to his final match.`\
+https://nytimes.com/2024/06/20/movies/roger-federer-twelve-final-days-review.html
+
+**The Pulse: $65 million to coach**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5577501/2024/06/20/monty-williams-pistons-buyout-the-pulse/
+
 **Your Guide to the Heat**\
 `It’s the first major heat wave of 2024.`\
 https://nytimes.com/2024/06/20/briefing/heat-wave-tips.html
