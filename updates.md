@@ -1,3 +1,7 @@
+**Dancer’s Haul**\
+`Ella Dershowitz calls us by (some of) our names — or does she?`\
+https://nytimes.com/2024/06/19/crosswords/daily-puzzle-2024-06-20.html
+
 **Tropical Storm Alberto Brings Floods to Texas as Mexico Braces for Landfall**\
 `Hours before the storm was expected to make landfall in Mexico, it brought heavy rain and coastal flooding to parts of eastern Mexico and southern Texas.`\
 https://nytimes.com/2024/06/19/weather/tropical-storm-alberto-floods-texas.html
