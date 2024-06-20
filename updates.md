@@ -1,3 +1,11 @@
+**Police investigating theft of Toney's father's watch from Euro 2024 hotel**\
+`Dusseldorf Police are investigating a complaint that Ivan Toney’s father had his watch stolen during the weekend of England’s opening group-stage win over Serbia on June 16.`\
+https://nytimes.com/athletic/5578010/2024/06/20/ivan-toney-father/
+
+**Leaping Leeches! Watch These Bloodsuckers Jump.**\
+`There has long been anecdotal evidence of the wormy creatures taking to the air, but videos recorded in Madagascar at last prove the animals’ acrobatics.`\
+https://nytimes.com/2024/06/20/science/jumping-leeches.html
+
 **Cooper has beaten Potter and Maresca to land the Leicester job - there is much work to do**\
 `The former Nottingham Forest manager has won the race for the Leicester job - in front of Graham Potter and Carlos Corberan`\
 https://nytimes.com/athletic/5576276/2024/06/20/leicester-new-manager-steve-cooper/
