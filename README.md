@@ -1,3 +1,19 @@
+**‘Green Border’ Review: Migrants’ Elusive Race for Freedom**\
+`Agnieszka Holland focuses on the Polish-Belarusian border as a Syrian family tries to make it to the European Union.`\
+https://nytimes.com/2024/06/20/movies/green-border-review.html
+
+**Most New York City pools are still closed as temperatures soar.**\
+`By Alyce McFadden`\
+https://nytimes.com/live/2024/06/20/us/heat-wave-news/new-york-city-pools
+
+**A quiet administrative change advances a far-right Israeli minister’s effort to control the West Bank.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/06/20/world/israel-gaza-war-hamas/west-bank-settlers-israel
+
+**Shelton, Tiafoe, Korda to skip 2024 Paris Olympics**\
+`Taylor Fritz and Tommy Paul headline the U.S. men's Olympic team.`\
+https://nytimes.com/athletic/5578818/2024/06/20/us-tennis-players-olympics-not-attending/
+
 **All Hail the Scuttlebutt**\
 `And more excellent vegetarian sandwiches, like the HLT (halloumi, lettuce and tomato) and Superiority Burger’s crispy fried tofu.`\
 https://nytimes.com/2024/06/20/dining/all-hail-the-scuttlebutt.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5575911/2024/06/20/penguins-jake-guentzel-free-agen
 **High temperatures in Maine are stressing the state’s infrastructure and essential services.**\
 `By Sydney Cromwell`\
 https://nytimes.com/live/2024/06/20/us/heat-wave-news/high-temperatures-in-maine-are-stressing-the-states-infrastructure-and-essential-services
-
-**Supreme Court Allows Suit Over Arrest Said to Be Politically Motivated**\
-`Sylvia Gonzalez, a Texas city councilwoman, said officials violated the First Amendment by arresting her after she criticized the city manager.`\
-https://nytimes.com/2024/06/20/us/politics/supreme-court-sylvia-gonzalez-arrest-free-speech.html
-
-**Barbara Gladstone, 89, Dies; Art Dealer With a Personal Touch and Global Reach**\
-`An art world power, she represented more than 70 artists and estates and ran two large exhibition spaces in Manhattan as well as offshoots abroad.`\
-https://nytimes.com/2024/06/20/arts/barbara-gladstone-dead.html
-
-**Mbappe on course to be available for Netherlands game**\
-`France captain Kylian Mbappe appears on course to be available for his side&#8217;s European Championship game against the Netherlands on Friday.`\
-https://nytimes.com/athletic/5572140/2024/06/20/kylian-mbappe-nose-injury-netherlands-euro-2024/
-
-**J.D. Vance’s Claims About the 2020 Election**\
-`Responses to Ross Douthat’s interview with Senator Vance. Also: Clarence Thomas and the Supreme Court’s reputation; hair loss; a perplexing headline.`\
-https://nytimes.com/2024/06/20/opinion/j-d-vance-2020-election.html
 
