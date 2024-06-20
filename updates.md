@@ -1,3 +1,15 @@
+**Bentancur has apologised for racial slur - Son**\
+`Heung-min Son says he has accepted Tottenham Hotspur team-mate Rodrigo Bentancur&#8217;s apology for using a racial slur.`\
+https://nytimes.com/athletic/5577959/2024/06/20/tottenham-son-bentancur-apology/
+
+**Writers' Copa America 2024 predictions: Best player, biggest surprise, USMNT projections?**\
+`We know the squads, the matches, and when the action starts - here's what we think will happen`\
+https://nytimes.com/athletic/5577033/2024/06/20/copa-america-2024-writers-picks/
+
+**The Washington Wizards need a cornerstone. Can they find one in the 2024 NBA Draft?**\
+`Washington owns the second pick in the upcoming NBA Draft. We asked our expert to evaluate the top prospects. `\
+https://nytimes.com/athletic/5576613/2024/06/20/the-washington-wizards-need-a-cornerstone-can-they-find-one-in-the-2024-nba-draft/
+
 **Rockets draft notebook 2.0: Big board debates, Houston's domino effect and more**\
 `Kelly Iko offers the latest intel on the Houston Rockets and what they could do with the No. 3 pick at the draft. `\
 https://nytimes.com/athletic/5574543/2024/06/20/rockets-draft-notebook-donovan-clingan/
