@@ -1,3 +1,15 @@
+**What Happened When Brooklyn Tried to Integrate Its Middle Schools**\
+`A new report found that many schools enrolled more racially and socioeconomically diverse groups of students without sparking a major exodus of families from public schools.`\
+https://nytimes.com/2024/06/20/nyregion/what-happened-when-brooklyn-tried-to-integrate-its-middle-schools.html
+
+**Is It Possible to Desegregate the Nation’s Biggest School System?**\
+`A major lawsuit against racial inequality in New York City’s public schools is moving forward. Already, local districts in the city were trying different measures to diversify schools.`\
+https://nytimes.com/2024/06/20/nyregion/desegregation-nyc-schools-court-case.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/06/20/crosswords/spelling-bee-forum.html
+
 **Yankees' warts on display in extra-inning loss to Orioles**\
 `The lack of strikeouts from the bullpen is an issue that needs solving.`\
 https://nytimes.com/athletic/5577630/2024/06/20/yankees-warts-loss-orioles/
