@@ -13,6 +13,11 @@ https://nytimes.com/athletic/5572867/2024/06/20/spain-italy-euro2024-result-anal
 `\
 https://nytimes.com/athletic/5572867/2024/06/20/spain-italy-euro2024-result-analysis-yamal-williams/
 
+**The Briefing: Spain 1-0 Italy - Calafiori own goal settles 'European Clasico'**\
+`Meetings between Spain and Italy rarely disappoint — and this one was no exception. Here's our analysis of the big match in Group B
+`\
+https://nytimes.com/athletic/5572867/2024/06/20/spain-italy-euro2024-result-analysis-yamal-williams/
+
 **Can Women Benefit From Viagra?**\
 `Research on how the drug affects female arousal is sparse. But doctors have been prescribing creams and pills anyway.`\
 https://nytimes.com/2024/06/20/well/live/women-viagra-benefits.html
