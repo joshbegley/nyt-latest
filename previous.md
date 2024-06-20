@@ -1,3 +1,8 @@
+**The Briefing: Spain 1-0 Italy - Calafiori own goal settles 'European Clasico'**\
+`Meetings between Spain and Italy rarely disappoint — and this one was no exception. Here's our quickfire analysis
+`\
+https://nytimes.com/athletic/5572867/2024/06/20/spain-italy-euro2024-result-analysis-yamal-williams/
+
 **James Chance, No Wave and Punk-Funk Pioneer, Dies at 71**\
 `With the Contortions and James White and the Blacks, the songwriter and saxophonist set out to challenge musicians and stir up audiences.`\
 https://nytimes.com/2024/06/20/arts/music/james-chance-dead.html
@@ -33,8 +38,4 @@ https://nytimes.com/live/2024/06/20/world/israel-gaza-war-hamas/netanyahus-comme
 **For Judge in Trump Documents Case, Unusual Rulings Are Business as Usual**\
 `Judge Aileen Cannon has repeatedly proven willing to hear out even far-fetched arguments from the former president’s legal team, including a challenge to the appointment of the special counsel, Jack Smith.`\
 https://nytimes.com/2024/06/20/us/politics/trump-documents-case-unusual-rulings.html
-
-**It can be harder to beat the heat in rural parts of the country.**\
-`By Dionne Searcey`\
-https://nytimes.com/live/2024/06/20/us/heat-wave-news/it-can-be-harder-to-beat-the-heat-in-rural-parts-of-the-country
 
