@@ -1,3 +1,7 @@
+**Judge in Trump Documents Case Rejected Suggestions to Step Aside**\
+`Two federal judges in South Florida privately urged Aileen M. Cannon to decline the case when it was assigned to her last year, according to two people briefed on the matter. She chose to keep it.`\
+https://nytimes.com/2024/06/20/us/politics/aileen-cannon-trump-classified-documents.html
+
 **Has Red Bull lost its F1 advantage? The next 5 races will tell**\
 `McLaren, Ferrari and Mercedes have closed the gap, but the upcoming run of European races could put Red Bull back in control. `\
 https://nytimes.com/athletic/5578707/2024/06/20/red-bull-f1-advantage-spanish-gp-verstappen/
