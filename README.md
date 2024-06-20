@@ -1,3 +1,7 @@
+**Travis Scott Arrested After Disturbance on Florida Yacht**\
+`The rapper, who was charged with trespassing and disorderly intoxication, later admitted he had been drinking alcohol and stated, “It’s Miami.”`\
+https://nytimes.com/2024/06/20/arts/music/travis-scott-arrested.html
+
 **Supreme Court Upholds Trump-Era Tax Provision**\
 `The tax dispute, which was closely watched by experts, involved a one-time foreign income tax, but many saw it as a broader challenge to pre-emptively block Congress from passing a wealth tax.`\
 https://nytimes.com/2024/06/20/us/politics/supreme-court-tax-case-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/20/arts/dance/brooklyn-academy-of-music-reorganizati
 **How This Year’s Fire Season Could Pan Out**\
 `More than two dozen wildfires have ignited in California this week, and experts warn of an extreme season ahead.`\
 https://nytimes.com/2024/06/20/us/california-fire-season.html
-
-**Clearing a Final Hurdle, Dutch Leader Is Poised to Become NATO Chief**\
-`Mark Rutte, the Netherlands’ prime minister, is expected to be elected as the head of the military alliance after Romania’s candidate dropped out.`\
-https://nytimes.com/2024/06/20/world/europe/nato-secretary-general-rutte.html
 
