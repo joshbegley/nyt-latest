@@ -1,3 +1,7 @@
+**Clearing a Final Hurdle, Dutch Leader Is Poised to Become NATO Chief**\
+`Mark Rutte, the Netherlands’ prime minister, is expected to be elected as the head of the military alliance after Romania’s candidate dropped out.`\
+https://nytimes.com/2024/06/20/world/europe/nato-secretary-general-rutte.html
+
 **Team GB cyclist Archibald to miss Olympics after freak accident**\
 `Great Britain cyclist Katie Archibald will miss this summer&#8217;s Olympics Games in Paris after breaking her leg in a freak accident.`\
 https://nytimes.com/athletic/5578227/2024/06/20/katie-archibald-injury-olympics-accident/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5528926/2024/06/20/ruud-van-nistelrooy-burnley-mana
 **Where the World Plans to Test Nuclear Weapons Next**\
 `Let’s not make it the future, too.`\
 https://nytimes.com/2024/06/20/opinion/nyt-nuclear-testing.html
-
-**Schar played on despite breaking nose in Scotland draw**\
-`Switzerland defender Fabian Schar suffered a broken nose during his nation&#8217;s European Championship match against Scotland on Wednesday night.`\
-https://nytimes.com/athletic/5578090/2024/06/20/fabian-schar-injury-switzerland-euro-2024/
 
