@@ -1,3 +1,7 @@
+**Gunshot Detection System Wastes N.Y.P.D. Officers’ Time, Audit Finds**\
+`In June of last year, only 13 percent of ShotSpotter alerts were actually gunfire, according to Comptroller Brad Lander.`\
+https://nytimes.com/2024/06/20/nyregion/nypd-shotspotter-guns.html
+
 **Ryan Garcia suspended, fined, loses Haney win for PEDs**\
 `Haney will also now retain his undefeated record, as the loss turns to a no-contest.`\
 https://nytimes.com/athletic/5579695/2024/06/20/ryan-garcia-suspension-fine-no-contest-devin-haney/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5579534/2024/06/20/stewart-haas-racing-new-nascar-t
 **Some schools near New York City dismissed students early.**\
 `By Tim Balk`\
 https://nytimes.com/live/2024/06/20/us/heat-wave-news/some-schools-near-new-york-city-dismissed-students-early
-
-**Suspect in 3 Killings Is Arrested in Arkansas After Manhunt**\
-`The man, Stacy Lee Drake, 50, faces two murder charges and one robbery charge in Sequoyah County, Okla. He also faces a murder count in Tuscaloosa, Ala.`\
-https://nytimes.com/2024/06/20/us/oklahoma-alabama-homicides-suspect-arrested-arkansas.html
 

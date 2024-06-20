@@ -1,3 +1,7 @@
+**Gunshot Detection System Wastes N.Y.P.D. Officers’ Time, Audit Finds**\
+`In June of last year, only 13 percent of ShotSpotter alerts were actually gunfire, according to Comptroller Brad Lander.`\
+https://nytimes.com/2024/06/20/nyregion/nypd-shotspotter-guns.html
+
 **Ryan Garcia suspended, fined, loses Haney win for PEDs**\
 `Haney will also now retain his undefeated record, as the loss turns to a no-contest.`\
 https://nytimes.com/athletic/5579695/2024/06/20/ryan-garcia-suspension-fine-no-contest-devin-haney/
