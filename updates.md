@@ -1,3 +1,7 @@
+**Bullpen report: Dedniel Núñez rising, concerns for Clay Holmes and more**\
+`Greg Jewett shares all the changes taking place of fantasy baseball import in every MLB bullpen, like Dedniel Núñez's rise for the Mets. `\
+https://nytimes.com/athletic/5578635/2024/06/20/bullpen-report-fantasy-baseball-saves-holds-watch/
+
 **Kendrick Lamar’s Victory Lap Unites Los Angeles**\
 `After unofficially winning a high-profile diss war with Drake, the rapper hosted a Juneteenth concert that celebrated local heroes — and his own sharp-tongued tracks.`\
 https://nytimes.com/2024/06/20/arts/music/kendrick-lamar-the-pop-out-ken-and-friends.html

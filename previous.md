@@ -1,3 +1,7 @@
+**Bullpen report: Dedniel Núñez rising, concerns for Clay Holmes and more**\
+`Greg Jewett shares all the changes taking place of fantasy baseball import in every MLB bullpen, like Dedniel Núñez's rise for the Mets. `\
+https://nytimes.com/athletic/5578635/2024/06/20/bullpen-report-fantasy-baseball-saves-holds-watch/
+
 **Kendrick Lamar’s Victory Lap Unites Los Angeles**\
 `After unofficially winning a high-profile diss war with Drake, the rapper hosted a Juneteenth concert that celebrated local heroes — and his own sharp-tongued tracks.`\
 https://nytimes.com/2024/06/20/arts/music/kendrick-lamar-the-pop-out-ken-and-friends.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/20/dining/esquites.html
 **Alexander Steen's path to becoming Blues GM-in-waiting: 'He checks all the boxes'**\
 `Former teammate Colton Parayko on Steen's ascent: "He was a great teammate who had all of the qualities of a professional."`\
 https://nytimes.com/athletic/5570195/2024/06/20/alexander-steen-blues-gm-nhl/
-
-**The Bounce: Please pay me to not coach the Pistons**\
-`Zach Harper and Shams Charania catch you up on leaguewide news.`\
-https://nytimes.com/athletic/5577934/2024/06/20/monty-williams-fired-pistons-the-bounce/
 
