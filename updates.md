@@ -1,3 +1,7 @@
+**Jimmy Fallon Mocks Kim Jong-un and Putin for Making Things Official**\
+`“Then they got a text from Trump that said, ‘Throuple?’” Fallon joked on Wednesday.`\
+https://nytimes.com/2024/06/20/arts/television/jimmy-fallon-north-korea-putin.html
+
 **Ratcliffe says UEFA multi-club rules 'unfair' as Man Utd transfer blocked**\
 `Sir Jim Ratcliffe believes UEFA rules on multi-club ownership are unfair as Manchester United were prevented from signing a player from Nice.`\
 https://nytimes.com/athletic/5577722/2024/06/20/manchester-united-transfer-news-jim-ratcliffe/
