@@ -1,3 +1,11 @@
+**Thursday's MLB odds and predictions: Best and worst starting pitchers, home run streaks and more**\
+`Check in on our Thursday MLB projections with odds for every game, picks for best value bets, pitcher props and more.`\
+https://nytimes.com/athletic/5578505/2024/06/20/mlb-odds-predictions-best-bets-june-20/
+
+**NHL trade big board: What we're hearing about the offseason's top targets**\
+`The Jacob Markstrom and Pierre-Luc Dubois trades got things rolling. What's coming next? Here's the latest on Chris Johnston's top targets.`\
+https://nytimes.com/athletic/5573911/2024/06/20/nhl-offseason-trade-board/
+
 **Travis Scott Arrested After Disturbance on Florida Yacht**\
 `The rapper, who was charged with trespassing and disorderly intoxication, later admitted he had been drinking alcohol and stated, “It’s Miami.”`\
 https://nytimes.com/2024/06/20/arts/music/travis-scott-arrested.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5578387/2024/06/20/chelsea-aaron-anselmino-transfer
 **Scoop City: Two stars still seeking deals**\
 `A look at the contract situations of Brandon Aiyuk and Matthew Stafford, plus the most interesting coaching hires of the 2024 cycle.`\
 https://nytimes.com/athletic/5578334/2024/06/20/aiyuk-and-stafford-negotiations-scoop-city/
-
-**The Brooklyn Academy of Music Announces Its Next Wave, and Next Steps**\
-`BAM, which has faced cutbacks in recent years, unveiled a reorganization as it announced its Next Wave Festival for the fall.`\
-https://nytimes.com/2024/06/20/arts/dance/brooklyn-academy-of-music-reorganization.html
-
-**How This Year’s Fire Season Could Pan Out**\
-`More than two dozen wildfires have ignited in California this week, and experts warn of an extreme season ahead.`\
-https://nytimes.com/2024/06/20/us/california-fire-season.html
 

@@ -1,3 +1,11 @@
+**Thursday's MLB odds and predictions: Best and worst starting pitchers, home run streaks and more**\
+`Check in on our Thursday MLB projections with odds for every game, picks for best value bets, pitcher props and more.`\
+https://nytimes.com/athletic/5578505/2024/06/20/mlb-odds-predictions-best-bets-june-20/
+
+**NHL trade big board: What we're hearing about the offseason's top targets**\
+`The Jacob Markstrom and Pierre-Luc Dubois trades got things rolling. What's coming next? Here's the latest on Chris Johnston's top targets.`\
+https://nytimes.com/athletic/5573911/2024/06/20/nhl-offseason-trade-board/
+
 **Travis Scott Arrested After Disturbance on Florida Yacht**\
 `The rapper, who was charged with trespassing and disorderly intoxication, later admitted he had been drinking alcohol and stated, “It’s Miami.”`\
 https://nytimes.com/2024/06/20/arts/music/travis-scott-arrested.html
