@@ -1,3 +1,7 @@
+**Yankees' warts on display in extra-inning loss to Orioles**\
+`The lack of strikeouts from the bullpen is an issue that needs solving.`\
+https://nytimes.com/athletic/5577630/2024/06/20/yankees-warts-loss-orioles/
+
 **Scotland must not use population size as an excuse - there are other factors at play**\
 `Scotland have long struggled to make an impact at tournaments but other smaller nations have shown it can be done`\
 https://nytimes.com/athletic/5577048/2024/06/20/scotland-population-euro-2024/

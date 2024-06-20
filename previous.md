@@ -1,3 +1,7 @@
+**Yankees' warts on display in extra-inning loss to Orioles**\
+`The lack of strikeouts from the bullpen is an issue that needs solving.`\
+https://nytimes.com/athletic/5577630/2024/06/20/yankees-warts-loss-orioles/
+
 **Scotland must not use population size as an excuse - there are other factors at play**\
 `Scotland have long struggled to make an impact at tournaments but other smaller nations have shown it can be done`\
 https://nytimes.com/athletic/5577048/2024/06/20/scotland-population-euro-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5575590/2024/06/20/england-squad-euro-2024-friendsh
 **The trend of long-range Euro 2024 goals owes to good technique - and a good ball**\
 `Guler, Barella, Stanciu... why are so many long-range goals being scored at Euro 2024? Michael Cox explains`\
 https://nytimes.com/athletic/5575829/2024/06/20/long-range-euro-2024-goal/
-
-**Which clubs are going to spend in this summer's transfer window?**\
-`The transfer market officially opened last week, but is likely to be in the doldrums for a while. Here's why, and what might unblock it`\
-https://nytimes.com/athletic/5575599/2024/06/20/which-clubs-are-going-to-spend-in-this-summers-transfer-window/
 
