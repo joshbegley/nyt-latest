@@ -1,3 +1,7 @@
+**Sean Murphy's two homers power a resurgent offense as Braves stay hot**\
+`Murphy went 4 for 4 with 4 RBIs and summed it up this way: “Having a day like that improves your mood.”`\
+https://nytimes.com/athletic/5577153/2024/06/19/braves-sean-murphy-reynaldo-lopez/
+
 **After trading Jacob Markstrom, can the Flames really avoid a rebuild?**\
 `At least publicly, the Flames still see themselves as a team that is trying to make the playoffs.`\
 https://nytimes.com/athletic/5576188/2024/06/19/flames-jacob-markstrom-trade-rebuild/

@@ -1,3 +1,7 @@
+**Sean Murphy's two homers power a resurgent offense as Braves stay hot**\
+`Murphy went 4 for 4 with 4 RBIs and summed it up this way: “Having a day like that improves your mood.”`\
+https://nytimes.com/athletic/5577153/2024/06/19/braves-sean-murphy-reynaldo-lopez/
+
 **After trading Jacob Markstrom, can the Flames really avoid a rebuild?**\
 `At least publicly, the Flames still see themselves as a team that is trying to make the playoffs.`\
 https://nytimes.com/athletic/5576188/2024/06/19/flames-jacob-markstrom-trade-rebuild/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/19/us/politics/rfk-jr-money-nicole-shanahan.html
 **Opening game of Copa America sold out**\
 `Argentina vs Canada, the opening game of Copa America, is a sell out, the tournament confirmed on Wednesday.`\
 https://nytimes.com/athletic/5577005/2024/06/19/copa-america-argentina-canada-tickets/
-
-**Putin’s Presidential Planes: What We Know**\
-`The Kremlin clings to Soviet-designed aircraft even as Russia’s commercial carriers opt for Western planes.`\
-https://nytimes.com/2024/06/19/world/europe/putins-presidential-planes-what-we-know.html
 
