@@ -1,3 +1,15 @@
+**At Target, Store Workers Become A.I. Conduits**\
+`The retailer is rolling out a chatbot to help workers answer questions from shoppers — and workers.`\
+https://nytimes.com/2024/06/20/business/target-retail-ai.html
+
+**The Briefing: Slovenia 1 Serbia 1: 96th minute Jovic equaliser leaves Group C in the balance**\
+`The key talking points from the Group C game between Slovenia and Serbia in Munich`\
+https://nytimes.com/athletic/5572863/2024/06/20/slovenia-serbia-euro-2024-result-analysis/
+
+**Have Esquites, Will Travel (to the Picnic)**\
+`Kay Chun’s esquites recipe captures all the elements of elotes in a salad: charred sweet corn, tangy lime, creamy cotija and spicy ancho chile.`\
+https://nytimes.com/2024/06/20/dining/esquites.html
+
 **Why is the roof closed for England’s game against Denmark and what impact will it have?**\
 `UEFA has confirmed the roof of Frankfurt's Deutsche Bank Park will be closed for the Group C clash as a ‘precautionary measure’
 `\
