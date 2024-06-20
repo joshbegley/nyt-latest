@@ -1,3 +1,7 @@
+**Killer of 2 Women in National Park in 1996 Has Been Identified, F.B.I. Says**\
+`A convicted serial rapist who died in an Ohio prison in 2018 was responsible for the murder of a couple at Shenandoah National Park in a case that initially was believed to be a hate crime.`\
+https://nytimes.com/2024/06/20/us/shenandoah-park-murders-1996-fbi.html
+
 **Nearly 100 Million Under Temperature Advisories as Heat Wave Lingers**\
 `The heat is expected to peak over the weekend in the Northeast, but not until early next week in the South and the Great Plains, according to the National Weather Service.`\
 https://nytimes.com/2024/06/20/us/heat-wave-temperatures-weather.html
