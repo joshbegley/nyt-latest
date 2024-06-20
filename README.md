@@ -1,3 +1,7 @@
+**Lakers, JJ Redick agree to 4-year deal to become next coach**\
+`Redick was considered the front-runner in league circles for most of the coaching search.`\
+https://nytimes.com/athletic/5573570/2024/06/20/jj-redick-lakers-coach-contract/
+
 **French Business Leaders See Threat to Economy From Macron’s Opponents**\
 `Executives challenged the anti-immigration policies of the far-right candidate Jordan Bardella and spending plans by a left-wing coalition at a packed gathering in Paris.`\
 https://nytimes.com/2024/06/20/business/france-elections-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/20/world/europe/french-election-antisemitism-jews.ht
 **Koeman calls on Netherlands not to 'dwell' on Mbappe availability**\
 `Ronald Koeman emphasised that his side &#8220;can&#8217;t dwell&#8221; on whether Kylian Mbappe will play for France against the Netherlands, highlighting the importance of focusing on their own preparation.`\
 https://nytimes.com/athletic/5579023/2024/06/20/mbappe-koeman-netherlands-france/
-
-**Chelsea set to sign Baltimore from PSG**\
-`Chelsea are set to sign France forward Sandy Baltimore on a free transfer from Paris Saint-Germain.`\
-https://nytimes.com/athletic/5579055/2024/06/20/sandy-baltimore-chelsea-psg-transfer/
 
