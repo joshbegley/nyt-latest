@@ -1,3 +1,11 @@
+**Here’s what to know about the heat.**\
+`By Andy Newman`\
+https://nytimes.com/live/2024/06/20/us/heat-wave-news/heres-what-to-know-about-the-heat
+
+**Germany are showing that Nagelsmann has quickly learned the art of international management**\
+`Germany's setup gets the best out of the players they have and is putting them in a strong position to succeed at the Euros`\
+https://nytimes.com/athletic/5577874/2024/06/20/germany-nageslmann-tactics-euros/
+
 **Lokiceratops, a Horned Dinosaur, May Be a New Species**\
 `Researchers analyzed a skull found in Montana of a plant-eating member of the ceratops family, finding distinct traits.`\
 https://nytimes.com/2024/06/20/science/horned-dinosaur-loki-montana.html
