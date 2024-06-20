@@ -1,3 +1,7 @@
+**New Home Construction Slows as Mortgage Rates Remain High**\
+`Home building in May fell to its slowest pace in four years despite a supply shortage. That trend could put even greater strain on buyers.`\
+https://nytimes.com/2024/06/20/business/economy/new-home-construction-mortgage-rates.html
+
 **Trump Will Get the Last Word in the Debate, While Biden Picks His Podium**\
 `A coin flip won by President Biden gave him the option of picking which podium he will use or choosing the order of closing statements.`\
 https://nytimes.com/2024/06/20/us/politics/trump-biden-debate-last-word.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/20/climate/tv-weather-gets-political.html
 **The Housing Market Is Weird and Ugly. These 5 Charts Explain Why.**\
 `Home prices have held up better than expected amid high interest rates. But that doesn’t mean the housing market is healthy.`\
 https://nytimes.com/2024/06/20/business/economy/housing-market-explained.html
-
-**Democrats’ Dream of a Wealth Tax Is Alive. For Now.**\
-`A narrow Supreme Court ruling left the door open for Congress to expand taxes on billionaires, but it’s not a guarantee.`\
-https://nytimes.com/2024/06/20/us/politics/democrats-wealth-tax-supreme-court.html
 
