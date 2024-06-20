@@ -1,3 +1,7 @@
+**French Business Leaders See Threat to Economy From Macron’s Opponents**\
+`Executives challenged the anti-immigration policies of the far-right candidate Jordan Bardella and spending plans by a left-wing coalition at a packed gathering in Paris.`\
+https://nytimes.com/2024/06/20/business/france-elections-economy.html
+
 **What Donald Trump Talks About When He Talks About ‘Donald Trump’**\
 `When the former president refers to himself, there’s something he’s not saying.`\
 https://nytimes.com/2024/06/20/opinion/donald-trump-third-person-language.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5579023/2024/06/20/mbappe-koeman-netherlands-france
 **Chelsea set to sign Baltimore from PSG**\
 `Chelsea are set to sign France forward Sandy Baltimore on a free transfer from Paris Saint-Germain.`\
 https://nytimes.com/athletic/5579055/2024/06/20/sandy-baltimore-chelsea-psg-transfer/
-
-**N.Y. Prisons Have Ignored Limits on Solitary Confinement, Judge Finds**\
-`Legally, time in solitary confinement is limited to 15 days, and only if prison officials offer a detailed rationale. Lawyers say the requirements have been routinely disregarded.`\
-https://nytimes.com/2024/06/20/nyregion/new-york-state-prisons-solitary-limit.html
 
