@@ -1,3 +1,7 @@
+**Newark Schools Struggle to Keep Students Cool**\
+`Many buildings lack air conditioning, despite years of calls for improvements to old buildings.`\
+https://nytimes.com/2024/06/20/nyregion/newark-schools-heat-wave.html
+
 **Can Women Benefit From Viagra?**\
 `Research on how the drug affects female arousal is sparse. But doctors have been prescribing creams and pills anyway.`\
 https://nytimes.com/2024/06/20/well/live/women-viagra-benefits.html
@@ -34,8 +38,4 @@ https://nytimes.com/2024/06/20/arts/music/james-chance-dead.html
 **Melinda French Gates Says She Will Vote for Biden**\
 `She avoided endorsements in the past, saying they could compromise her philanthropic work with politicians.`\
 https://nytimes.com/2024/06/20/us/politics/biden-melinda-french-gates-endorse.html
-
-**Donald Sutherland, Generational Chameleon**\
-`He came into his career in an era when character actors were leading men.`\
-https://nytimes.com/live/2024/06/18/opinion/thepoint/donald-sutherland-death
 
