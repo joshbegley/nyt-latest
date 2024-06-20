@@ -1,3 +1,7 @@
+**The incomparable Willie Mays: 22 numbers that highlight the greatness of No. 24**\
+`The numbers of Willie Mays are unlike any you’ll find on the Baseball Reference page of anyone else who ever played this sport.`\
+https://nytimes.com/athletic/5577360/2024/06/20/willie-mays-career-numbers-24/
+
 **Dedicated, inspirational and ready for another chance - Cooper craved Premier League job**\
 `Cooper has turned down numerous jobs - his patience has been rewarded but he will have fans to win over like Martin O'Neill did`\
 https://nytimes.com/athletic/5566790/2024/06/20/steve-cooper-leicester-nottingham-forest/
