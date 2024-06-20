@@ -1,3 +1,15 @@
+**Bentancur has apologised for racial slur - Son**\
+`Heung-min Son says he has accepted Tottenham Hotspur team-mate Rodrigo Bentancur&#8217;s apology for using a racial slur.`\
+https://nytimes.com/athletic/5577959/2024/06/20/tottenham-son-bentancur-apology/
+
+**Writers' Copa America 2024 predictions: Best player, biggest surprise, USMNT projections?**\
+`We know the squads, the matches, and when the action starts - here's what we think will happen`\
+https://nytimes.com/athletic/5577033/2024/06/20/copa-america-2024-writers-picks/
+
+**The Washington Wizards need a cornerstone. Can they find one in the 2024 NBA Draft?**\
+`Washington owns the second pick in the upcoming NBA Draft. We asked our expert to evaluate the top prospects. `\
+https://nytimes.com/athletic/5576613/2024/06/20/the-washington-wizards-need-a-cornerstone-can-they-find-one-in-the-2024-nba-draft/
+
 **Rockets draft notebook 2.0: Big board debates, Houston's domino effect and more**\
 `Kelly Iko offers the latest intel on the Houston Rockets and what they could do with the No. 3 pick at the draft. `\
 https://nytimes.com/athletic/5574543/2024/06/20/rockets-draft-notebook-donovan-clingan/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/20/podcasts/extreme-heat-putin-vietnam.html
 **The Mysterious Gun Study That’s Advancing Gun Rights**\
 `Seemingly independent academic work deployed in landmark court cases has undisclosed ties to pro-gun interests.`\
 https://nytimes.com/2024/06/20/podcasts/the-daily/gun-study-rights.html
-
-**Canada's 'Maritime Messi' Jacob Shaffelburg - 'I feel I’ve been overlooked my whole life'**\
-`From Nova Scotia to facing the real Messi in the Copa America - how one of Canada's young stars overcame the odds`\
-https://nytimes.com/athletic/5568616/2024/06/20/jacob-shaffelburg-maritime-messi-canada-copa-2024/
-
-**Q&A: 2024 NHL Draft prospect Artyom Levshunov on Ivan Demidov, Blackhawks, Michigan State**\
-`Levshunov sat down with The Athletic on Tuesday in Florida to discuss the upcoming draft, his college season and more.`\
-https://nytimes.com/athletic/5576062/2024/06/20/nhl-draft-2024-prospect-artyom-levshunov-blackhawks/
-
-**Chicago Cubs Covering the Bases: Possible draft picks, ranking the Wrigleyville unis**\
-`Dive into all the latest and greatest happenings with the Cubs in our weekly segment.`\
-https://nytimes.com/athletic/5576346/2024/06/20/chicago-cubs-scores-results-standing-news-3/
 
