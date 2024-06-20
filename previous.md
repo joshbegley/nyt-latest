@@ -1,3 +1,11 @@
+**Bob Good Trails in Battle for His Virginia Seat, but Primary Remains Too Close to Call**\
+`Both the congressman and his Trump-backed challenger are election deniers, raising the question of whether either would accept an adverse result in his own race.`\
+https://nytimes.com/2024/06/20/us/politics/bob-good-virginia-primary.html
+
+**LeBron James, Paul George and the NBA's top 25 free agents for 2024**\
+`In recent years, we've seen a lot less talent hit free agency than we used to, but that doesn't mean major names won't test the waters.`\
+https://nytimes.com/athletic/5570940/2024/06/20/nba-free-agency-best-available-players-lebron-james/
+
 **U.S. Will Redirect Deliveries of Patriot Missiles to Ukraine**\
 `A White House spokesman said Ukraine had a critical need for the air-defense systems. But the United States has only a limited supply.`\
 https://nytimes.com/2024/06/20/us/politics/patriot-missiles-ukraine.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/20/magazine/judge-john-hodgman-afternoon-ice-cream.h
 **NFL training camps 2024: Locations, reporting schedule for all 32 teams**\
 `The NFL has already announced the preseason schedule which kicks off with the Hall Of Fame Game between the Texans and Bears on Aug 1.`\
 https://nytimes.com/athletic/5578411/2024/06/20/nfl-training-camp-report-dates/
-
-**At Target, Store Workers Become A.I. Conduits**\
-`The retailer is rolling out a chatbot to help workers answer questions from shoppers — and workers.`\
-https://nytimes.com/2024/06/20/business/target-retail-ai.html
-
-**The Briefing: Slovenia 1 Serbia 1 - 95th-minute Jovic equaliser leaves Group C in the balance**\
-`The key talking points from the Group C game between Slovenia and Serbia in Munich`\
-https://nytimes.com/athletic/5572863/2024/06/20/slovenia-serbia-euro-2024-result-analysis/
 
