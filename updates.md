@@ -1,3 +1,7 @@
+**Qaeda Commander at Guantánamo Bay Is Sentenced for War Crimes**\
+`A U.S. military jury decided on a 30-year prison term. But under a plea deal, the prisoner’s sentence will end in 2032.`\
+https://nytimes.com/2024/06/20/us/politics/qaeda-commander-sentenced-guantanamo-bay.html
+
 **At Target, Store Workers Become A.I. Conduits**\
 `The retailer is rolling out a chatbot to help workers answer questions from shoppers — and workers.`\
 https://nytimes.com/2024/06/20/business/target-retail-ai.html

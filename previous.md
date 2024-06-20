@@ -26,7 +26,7 @@ https://nytimes.com/2024/06/20/well/move/walking-lower-back-pain.html
 `By Roni Caryn Rabin`\
 https://nytimes.com/live/2024/06/20/us/heat-wave-news/pregnant-women-heat-stroke
 
-**Qaeda Commander at Guantánamo Bay Sentenced for War Crimes**\
+**Qaeda Commander at Guantánamo Bay Is Sentenced for War Crimes**\
 `A U.S. military jury decided on a 30-year prison term. But under a plea deal, the prisoner’s sentence will end in 2032.`\
 https://nytimes.com/2024/06/20/us/politics/qaeda-commander-sentenced-guantanamo-bay.html
 
