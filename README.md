@@ -1,3 +1,7 @@
+**Supreme Court Upholds Trump-Era Tax Provision**\
+`The tax dispute, which was closely watched by experts, involved a one-time foreign income tax, but many saw it as a broader challenge to pre-emptively block Congress from passing a wealth tax.`\
+https://nytimes.com/2024/06/20/us/politics/supreme-court-tax-case-trump.html
+
 **Police investigating theft of Toney's father's watch from Euro 2024 hotel**\
 `Dusseldorf Police are investigating a complaint that Ivan Toney’s father had his watch stolen during the weekend of England’s opening group-stage win over Serbia on June 16.`\
 https://nytimes.com/athletic/5578010/2024/06/20/ivan-toney-father/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/20/us/california-fire-season.html
 **Clearing a Final Hurdle, Dutch Leader Is Poised to Become NATO Chief**\
 `Mark Rutte, the Netherlands’ prime minister, is expected to be elected as the head of the military alliance after Romania’s candidate dropped out.`\
 https://nytimes.com/2024/06/20/world/europe/nato-secretary-general-rutte.html
-
-**Team GB cyclist Archibald to miss Olympics after freak accident**\
-`Great Britain cyclist Katie Archibald will miss this summer&#8217;s Olympics Games in Paris after breaking her leg in a freak accident.`\
-https://nytimes.com/athletic/5578227/2024/06/20/katie-archibald-injury-olympics-accident/
 
