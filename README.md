@@ -1,3 +1,7 @@
+**Scoop City: Two stars still seeking deals**\
+`A look at the contract situations of Brandon Aiyuk and Matthew Stafford, plus the most interesting coaching hires of the 2024 cycle.`\
+https://nytimes.com/athletic/5578334/2024/06/20/aiyuk-and-stafford-negotiations-scoop-city/
+
 **The Brooklyn Academy of Music Announces Its Next Wave, and Next Steps**\
 `BAM, which has faced cutbacks in recent years, unveiled a reorganization as it announced its Next Wave Festival for the fall.`\
 https://nytimes.com/2024/06/20/arts/dance/brooklyn-academy-of-music-reorganization.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/20/learning/word-of-the-day-proximity.html
 **Is this Sha'Carri Richardson's time? After lost Olympic shot, the sprint star is back**\
 `After a positive marijuana test kept her off the Tokyo Olympic team, Sha'Carri Richardson returns to the U.S. trials ready for superstardom.`\
 https://nytimes.com/athletic/5577563/2024/06/20/shacarri-richardson-olympics-trials-100-meter/
-
-**Feldman's CFP 12-team projection: Why I like Miami, PSU and Texas**\
-`Which teams reloaded their rosters and seem to be good bets this early on for the CFP? `\
-https://nytimes.com/athletic/5566959/2024/06/20/college-football-playoff-predictions-ohio-state-alabama/
 
