@@ -1,4 +1,8 @@
 **Three Red Sox takeaways: Short team meeting leads to sweep of the Blue Jays**\
+`As Brayan Bello got back on track, the offense kept tearing it up in a 7-3 victory in Toronto.`\
+https://nytimes.com/athletic/5577633/2024/06/20/red-sox-sweep-blue-jays/
+
+**Three Red Sox takeaways: Short team meeting leads to sweep of the Blue Jays**\
 `As Brayan Bello got back on the track, the offense kept tearing it up in a 7-3 victory in Toronto.`\
 https://nytimes.com/athletic/5577633/2024/06/20/red-sox-sweep-blue-jays/
 
