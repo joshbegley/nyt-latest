@@ -1,3 +1,7 @@
+**Mbappe on course to be available for Netherlands game**\
+`France captain Kylian Mbappe appears on course to be available for his side&#8217;s European Championship game against the Netherlands on Friday.`\
+https://nytimes.com/athletic/5572140/2024/06/20/kylian-mbappe-nose-injury-netherlands-euro-2024/
+
 **J.D. Vance’s Claims About the 2020 Election**\
 `Responses to Ross Douthat’s interview with Senator Vance. Also: Clarence Thomas and the Supreme Court’s reputation; hair loss; a perplexing headline.`\
 https://nytimes.com/2024/06/20/opinion/j-d-vance-2020-election.html
