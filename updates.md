@@ -1,3 +1,7 @@
+**Kennedy Fails to Qualify for CNN Debate**\
+`Robert F. Kennedy Jr. did not meet the criteria to make the debate stage next week, according to the outlet, denying him the opportunity to confront President Biden and Donald J. Trump.`\
+https://nytimes.com/2024/06/20/us/politics/kennedy-qualify-cnn-debate.html
+
 **NBA mock draft: Who's going No. 1? Why it's still unclear less than a week out**\
 `With less than one week until the 2024 NBA Draft, a lot remains unsettled, starting with the No. 1 pick. Has a new contender emerged?`\
 https://nytimes.com/athletic/5571609/2024/06/20/nba-mock-draft-hawks-donovan-clingan-bronny-james/
