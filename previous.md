@@ -1,3 +1,11 @@
+**NBA mock draft: Who's going No. 1? Why it's still unclear less than a week out**\
+`With less than one week until the 2024 NBA Draft, a lot remains unsettled, starting with the No. 1 pick. Has a new contender emerged?`\
+https://nytimes.com/athletic/5571609/2024/06/20/nba-mock-draft-hawks-donovan-clingan-bronny-james/
+
+**Word of the Day: proximity**\
+`This word has appeared in 468 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/06/20/learning/word-of-the-day-proximity.html
+
 **Is this Sha'Carri Richardson's time? After lost Olympic shot, the sprint star is back**\
 `After a positive marijuana test kept her off the Tokyo Olympic team, Sha'Carri Richardson returns to the U.S. trials ready for superstardom.`\
 https://nytimes.com/athletic/5577563/2024/06/20/shacarri-richardson-olympics-trials-100-meter/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/20/science/horned-dinosaur-loki-montana.html
 **Germany are showing that Nagelsmann has quickly learned the art of international management**\
 `Germany's setup gets the best out of the players they have and is putting them in a strong position to succeed at the Euros`\
 https://nytimes.com/athletic/5577874/2024/06/20/germany-nageslmann-tactics-euros/
-
-**Inside Elon Musk’s Mission to Win Back Advertisers**\
-`The billionaire met with senior brand executives at the Cannes Lions advertising festival this week, after crudely telling them off last year.`\
-https://nytimes.com/2024/06/20/business/dealbook/musk-advertisers-x-cannes.html
-
-**3 Takeaways From Putin’s Trip to Vietnam**\
-`The state visit by President Vladimir V. Putin of Russia to Vietnam had a very different backdrop than his trip to North Korea, as Hanoi has deepened ties with Washington.`\
-https://nytimes.com/2024/06/20/world/asia/takeaways-putin-vietnam-visit.html
 

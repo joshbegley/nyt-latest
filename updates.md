@@ -1,3 +1,11 @@
+**NBA mock draft: Who's going No. 1? Why it's still unclear less than a week out**\
+`With less than one week until the 2024 NBA Draft, a lot remains unsettled, starting with the No. 1 pick. Has a new contender emerged?`\
+https://nytimes.com/athletic/5571609/2024/06/20/nba-mock-draft-hawks-donovan-clingan-bronny-james/
+
+**Word of the Day: proximity**\
+`This word has appeared in 468 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/06/20/learning/word-of-the-day-proximity.html
+
 **Is this Sha'Carri Richardson's time? After lost Olympic shot, the sprint star is back**\
 `After a positive marijuana test kept her off the Tokyo Olympic team, Sha'Carri Richardson returns to the U.S. trials ready for superstardom.`\
 https://nytimes.com/athletic/5577563/2024/06/20/shacarri-richardson-olympics-trials-100-meter/
