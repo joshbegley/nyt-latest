@@ -1,3 +1,11 @@
+**The Housing Market Is Weird and Ugly. These 5 Charts Explain Why.**\
+`Home prices have held up better than expected amid high interest rates. But that doesn’t mean the housing market is healthy.`\
+https://nytimes.com/2024/06/20/business/economy/housing-market-explained.html
+
+**Democrats’ Dream of a Wealth Tax Is Alive. For Now.**\
+`A narrow Supreme Court ruling left the door open for Congress to expand taxes on billionaires, but it’s not a guarantee.`\
+https://nytimes.com/2024/06/20/us/politics/democrats-wealth-tax-supreme-court.html
+
 **How to Sleep Better in the Heat**\
 `There are simple steps you can take to get a better night’s rest when it’s hot outside.`\
 https://nytimes.com/2024/06/20/well/sleep-heat-wave.html
