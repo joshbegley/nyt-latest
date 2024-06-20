@@ -1,3 +1,7 @@
+**Ancient Shipwreck Preserves a Deep Bronze Age Time Capsule**\
+`About a mile beneath the sea, the ship suggests that trade in the eastern Mediterranean Sea traveled much farther from the safety of land.`\
+https://nytimes.com/2024/06/20/science/shipwreck-bronze-age-israel.html
+
 **Three Red Sox takeaways: Short team meeting leads to sweep of Blue Jays**\
 `As Brayan Bello got back on track, the offense kept tearing it up in a 7-3 victory in Toronto.`\
 https://nytimes.com/athletic/5577633/2024/06/20/red-sox-sweep-blue-jays/
