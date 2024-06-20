@@ -1,3 +1,7 @@
+**N.Y. Prisons Have Ignored Limits on Solitary Confinement, Judge Finds**\
+`Legally, time in solitary confinement is limited to 15 days, and only if prison officials offer a detailed rationale. Lawyers say the requirements have been routinely disregarded.`\
+https://nytimes.com/2024/06/20/nyregion/new-york-state-prisons-solitary-limit.html
+
 **TV Weather Gets Political**\
 `On-air meteorologists have become a target in the culture wars as they report on the effects of climate change.`\
 https://nytimes.com/2024/06/20/climate/tv-weather-gets-political.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5572865/2024/06/20/england-denmark-euro-analysis-ka
 **Thomas J. McCormack Dies at 92; Transformed St. Martin’s Press**\
 `He turned “an insignificant trade house” into a powerhouse, publishing best sellers like “The Silence of the Lambs” and “All Creatures Great and Small.”`\
 https://nytimes.com/2024/06/20/books/thomas-mccormack-dead.html
-
-**In rural Indiana, residents adjust their schedules and keep an eye on their neighbors.**\
-`By Kevin Williams`\
-https://nytimes.com/live/2024/06/20/us/heat-wave-news/in-rural-indiana-residents-adjust-their-schedules-and-keep-an-eye-on-their-neighbors
 
