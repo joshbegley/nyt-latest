@@ -2,7 +2,7 @@
 `Will the Flyers use any draft picks as currency in possible trades?`\
 https://nytimes.com/athletic/5579335/2024/06/20/flyers-nhl-draft-briere-michkov/
 
-**Yamal and Williams represent a new era for Spain — and made Italy look old-fashioned**\
+**Yamal and Williams represent a new era for Spain - and made Italy look old-fashioned**\
 `Spain were on a different planet to Italy in their Euro 2024 match. Their electric wingers were the stars in a post-tiki-taka world`\
 https://nytimes.com/athletic/5579597/2024/06/20/williams-yamal-spain-italy-euro-2024/
 
