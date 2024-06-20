@@ -1,3 +1,7 @@
+**The Hosts of Journalism’s Favorite Podcast Say Goodbye**\
+`After 12 years, Aaron Lammer, Max Linsky and Evan Ratliff will soon release the final episode of “Longform,” a podcast that unwittingly captured the shifts in the journalism and publishing industries.`\
+https://nytimes.com/2024/06/20/style/longform-podcast-says-goodbye.html
+
 **Southgate explains Kane substitution against Denmark**\
 `Gareth Southgate says Harry Kane&#8217;s substitution during their 1-1 draw with Denmark at the European Championship was because England &#8220;needed energy&#8221;.`\
 https://nytimes.com/athletic/5578967/2024/06/20/harry-kane-england-sub-southgate/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5579130/2024/06/20/england-denmark-gareth-southgate
 **New Home Construction Slows as Mortgage Rates Remain High**\
 `Home building in May fell to its slowest pace in four years despite a supply shortage. That trend could put even greater strain on buyers.`\
 https://nytimes.com/2024/06/20/business/economy/new-home-construction-mortgage-rates.html
-
-**Trump Will Get the Last Word in the Debate, While Biden Picks His Podium**\
-`A coin flip won by President Biden gave him the option of picking which podium he will use or choosing the order of closing statements.`\
-https://nytimes.com/2024/06/20/us/politics/trump-biden-debate-last-word.html
 
