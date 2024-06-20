@@ -1,3 +1,7 @@
+**Who Is the Egyptian Tycoon Accused of Charging Palestinians to Escape Gaza?**\
+`Ibrahim al-Organi has close connections with the Egyptian government, diplomats say, and he has multiple business interests in Gaza.`\
+https://nytimes.com/2024/06/20/world/middleeast/egypt-tycoon-hala-palestinians-gaza.html
+
 **When the Only Escape From War in Gaza Is to Buy a Way Out**\
 `For many Palestinians, securing approval to exit the territory is possible only after raising thousands of dollars to pay middlemen or an Egyptian company.`\
 https://nytimes.com/2024/06/20/world/middleeast/palestinians-gaza-gofundme-egypt.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/06/20/realestate/rome-italy-apartment-price
 **Biden’s Lead With Women Is Smaller Than Trump’s With Men, a Warning for Democrats**\
 `A new poll of female voters finds that concerns about inflation are still paramount, even as abortion could motivate Democratic women in states where the issue is on the ballot.`\
 https://nytimes.com/2024/06/20/us/elections/biden-trump-women-men.html
-
-**Patriots stock report: Who’s rising and falling after spring practices?**\
-`Two Patriots wide receivers are on the rise after spring practices, but another appears headed in the wrong direction. `\
-https://nytimes.com/athletic/5573126/2024/06/20/patriots-risers-fallers-douglas-wallace-smith-schuster/
 

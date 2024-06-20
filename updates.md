@@ -1,3 +1,7 @@
+**Who Is the Egyptian Tycoon Accused of Charging Palestinians to Escape Gaza?**\
+`Ibrahim al-Organi has close connections with the Egyptian government, diplomats say, and he has multiple business interests in Gaza.`\
+https://nytimes.com/2024/06/20/world/middleeast/egypt-tycoon-hala-palestinians-gaza.html
+
 **When the Only Escape From War in Gaza Is to Buy a Way Out**\
 `For many Palestinians, securing approval to exit the territory is possible only after raising thousands of dollars to pay middlemen or an Egyptian company.`\
 https://nytimes.com/2024/06/20/world/middleeast/palestinians-gaza-gofundme-egypt.html
