@@ -1,3 +1,11 @@
+**U.S. Will Redirect Deliveries of Patriot Missiles to Ukraine**\
+`A White House spokesman said Ukraine had a critical need for the air-defense systems. But the United States has only a limited supply.`\
+https://nytimes.com/2024/06/20/us/politics/patriot-missiles-ukraine.html
+
+**Thou Shalt Not Post the Ten Commandments in the Classroom**\
+`Documents do not radiate powers of personal virtue.`\
+https://nytimes.com/2024/06/18/opinion/ten-commandments-classroom-louisiana.html
+
 **Bullpen report: Dedniel Núñez rising, concerns for Clay Holmes and more**\
 `Greg Jewett shares all the changes taking place of fantasy baseball import in every MLB bullpen, like Dedniel Núñez's rise for the Mets. `\
 https://nytimes.com/athletic/5578635/2024/06/20/bullpen-report-fantasy-baseball-saves-holds-watch/
