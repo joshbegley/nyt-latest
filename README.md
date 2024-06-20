@@ -1,3 +1,7 @@
+**Your Guide to the Heat**\
+`It’s the first major heat wave of 2024.`\
+https://nytimes.com/2024/06/20/briefing/heat-wave-tips.html
+
 **Lionel Messi in the U.S., a legend knowing 'there’s not a lot of time left'**\
 `Messi has made a 'massive' impact on American soccer since joining Inter Miami but the Copa America may be his farewell international tour`\
 https://nytimes.com/athletic/5576407/2024/06/20/messi-inter-miami-copa-america-legacy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5574543/2024/06/20/rockets-draft-notebook-donovan-c
 **NBA Player Tiers: Victor Wembanyama joins Tier 2's All-Stars and All-NBA contenders**\
 `This is the level where everyone listed could be the best player on a title team next year with the right roster around them.`\
 https://nytimes.com/athletic/5575511/2024/06/20/nba-player-tiers-victor-wembanyama-jalen-brunson-anthony-edwards-all-star/
-
-**Inside Connor McDavid's record-breaking playofs, by the numbers**\
-`McDavid has rewritten parts of the NHL's record book over the last two months. And he might not be done yet.`\
-https://nytimes.com/athletic/5577165/2024/06/20/connor-mcdavid-stats-playoffs-records/
 
