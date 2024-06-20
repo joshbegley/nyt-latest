@@ -1,3 +1,7 @@
+**Scotland must not use population size as an excuse - there are other factors at play**\
+`Scotland have long struggled to make an impact at tournaments but other smaller nations have shown it can be done`\
+https://nytimes.com/athletic/5577048/2024/06/20/scotland-population-euro-2024/
+
 **Explained: Jamal Musiala and Carmelo Anthony's 'three to the dome' celebration**\
 `The Germany midfielder's celebration against Hungary evoked a certain Camelo Anthony...`\
 https://nytimes.com/athletic/5577451/2024/06/20/jamal-musiala-germany-celebration-carmelo-anthony/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5575829/2024/06/20/long-range-euro-2024-goal/
 **Which clubs are going to spend in this summer's transfer window?**\
 `The transfer market officially opened last week, but is likely to be in the doldrums for a while. Here's why, and what might unblock it`\
 https://nytimes.com/athletic/5575599/2024/06/20/which-clubs-are-going-to-spend-in-this-summers-transfer-window/
-
-**Celebrating Own Goal - Euro 2024's leading goalscorer**\
-`It's not just that there have been four own goals already at Euro 2024, it's that they've also been really funny`\
-https://nytimes.com/athletic/5576064/2024/06/20/best-own-goals-euro-2024/
 
