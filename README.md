@@ -1,3 +1,11 @@
+**Supreme Court Allows Suit Over Arrest Said to Be Politically Motivated**\
+`Sylvia Gonzalez, a Texas city councilwoman, said officials violated the First Amendment by arresting her after she criticized the city manager.`\
+https://nytimes.com/2024/06/20/us/politics/supreme-court-sylvia-gonzalez-arrest-free-speech.html
+
+**Barbara Gladstone, 89, Dies; Art Dealer With a Personal Touch and Global Reach**\
+`An art world power, she represented more than 70 artists and estates and ran two large exhibition spaces in Manhattan as well as offshoots abroad.`\
+https://nytimes.com/2024/06/20/arts/barbara-gladstone-dead.html
+
 **Mbappe on course to be available for Netherlands game**\
 `France captain Kylian Mbappe appears on course to be available for his side&#8217;s European Championship game against the Netherlands on Friday.`\
 https://nytimes.com/athletic/5572140/2024/06/20/kylian-mbappe-nose-injury-netherlands-euro-2024/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/20/us/politics/bob-good-virginia-primary.html
 **LeBron James, Paul George and the NBA's top 25 free agents for 2024**\
 `In recent years, we've seen a lot less talent hit free agency than we used to, but that doesn't mean major names won't test the waters.`\
 https://nytimes.com/athletic/5570940/2024/06/20/nba-free-agency-best-available-players-lebron-james/
-
-**U.S. Will Redirect Deliveries of Patriot Missiles to Ukraine**\
-`A White House spokesman said Ukraine had a critical need for the air-defense systems. But the United States has only a limited supply.`\
-https://nytimes.com/2024/06/20/us/politics/patriot-missiles-ukraine.html
-
-**Thou Shalt Not Post the Ten Commandments in the Classroom**\
-`Documents do not radiate powers of personal virtue.`\
-https://nytimes.com/2024/06/18/opinion/ten-commandments-classroom-louisiana.html
 
