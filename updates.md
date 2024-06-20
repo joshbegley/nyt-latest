@@ -1,3 +1,7 @@
+**Lionel Messi in the U.S., a legend knowing 'there’s not a lot of time left'**\
+`Messi has made a 'massive' impact on American soccer since joining Inter Miami but the Copa America may be his farewell international tour`\
+https://nytimes.com/athletic/5576407/2024/06/20/messi-inter-miami-copa-america-legacy/
+
 **Rain and Floods Hit New Mexico Region Ravaged by Wildfires**\
 `The rain will help control the fires, which have killed two people and scorched more than 23,000 acres. The wildfires were expected to continue burning, the authorities said.`\
 https://nytimes.com/2024/06/20/us/new-mexico-fires-rain-floods.html
