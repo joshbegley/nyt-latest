@@ -1,3 +1,19 @@
+**How to Sleep Better in the Heat**\
+`There are simple steps you can take to get a better night’s rest when it’s hot outside.`\
+https://nytimes.com/2024/06/20/well/sleep-heat-wave.html
+
+**​​Connor McDavid's Stanley Cup surge blowing away fellow NHL stars: 'Somehow, he's found another level'**\
+`Sidney Crosby: "It's incredible what he's doing." Steven Stamkos: "If there is a player to will his team back from a 0-3 hole, it's him!"`\
+https://nytimes.com/athletic/5577726/2024/06/20/nhl-stars-react-connor-mcdavid/
+
+**Stonehenge Is Sprayed With Orange Powder in Climate Protest**\
+`Two climate protesters sprayed the powder onto the ancient stones on Wednesday, as the Summer Solstice was to be celebrated at the English site, a popular destination on the longest day of the year.`\
+https://nytimes.com/2024/06/20/world/europe/stonehenge-just-stop-oil-solstice.html
+
+**Argentina stay top of FIFA men's world rankings ahead of Copa America**\
+`Argentina have retained their top spot in FIFA’s men&#8217;s world rankings ahead of the 2024 Copa America.`\
+https://nytimes.com/athletic/5578885/2024/06/20/fifa-rankings-copa-america/
+
 **After a Weather Disaster, a Surprise: Some Ornery Monkeys Got Nicer**\
 `Macaques, reeling from a hurricane, learned by necessity to get along, a study found. It’s one of the first to suggest that animals can adapt to environmental upheaval with social changes.`\
 https://nytimes.com/2024/06/20/climate/macaques-monkeys-hurricane-maria.html
