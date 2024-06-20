@@ -1,3 +1,11 @@
+**Donald Sutherland, Star of ‘M*A*S*H’ and Much More, Dies at 88**\
+`Never anyone’s idea of a heartthrob, he had a chameleon-like ability to be endearing in one role, menacing in another and just plain odd in a third.`\
+https://nytimes.com/2024/06/20/movies/donald-sutherland-dead.html
+
+**Daniel Suárez, who left Mexico to chase his NASCAR dreams, becomes a U.S. citizen**\
+`Over a decade after leaving Mexico to pursue his racing career, Daniel Suárez became a U.S. citizen on Tuesday in Charlotte.`\
+https://nytimes.com/athletic/5577072/2024/06/20/daniel-suarez-us-citizen-nascar/
+
 **Judge in Trump Documents Case Rejected Suggestions to Step Aside**\
 `Two federal judges in South Florida privately urged Aileen M. Cannon to decline the case when it was assigned to her last year, according to two people briefed on the matter. She chose to keep it.`\
 https://nytimes.com/2024/06/20/us/politics/aileen-cannon-trump-classified-documents.html
