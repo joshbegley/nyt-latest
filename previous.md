@@ -1,3 +1,23 @@
+**Euros or Copa America players with expiring contracts - how does it affect them?**\
+`Some players at this summer’s tournaments won’t be able to put club football aside. On June 30, they will essentially become unemployed`\
+https://nytimes.com/athletic/5575463/2024/06/20/euros-copa-player-contracts/
+
+**Thursday Briefing**\
+`Russia and North Korea pledge mutual defense.`\
+https://nytimes.com/2024/06/20/briefing/russia-north-korea-defense.html
+
+**Spicy Noodles and Pickled Fish: Chinese Eateries Move Into Hong Kong**\
+`As the cultural lines between Hong Kong and China blur, restaurants from the mainland are finding opportunities in the city. But not everyone is happy.`\
+https://nytimes.com/2024/06/20/business/hong-kong-china-restaurants.html
+
+**Fantasy football breakout running backs: Zamir White, Kendre Miller and more Jake Ciely picks**\
+`Jake Ciely surveys the fantasy football landscape, highlighting the under-the-radar running backs who could be surprising breakouts in 2024.`\
+https://nytimes.com/athletic/5576202/2024/06/20/fantasy-football-breakout-running-backs-zamir-white-kendre-miller-and-more/
+
+**Is Hamas Bound by International Law? What to Know.**\
+`The armed Islamist group committed war crimes on Oct. 7, experts say, and continues to do so by holding hostages.`\
+https://nytimes.com/2024/06/20/world/middleeast/hamas-war-crimes-international-law.html
+
 **Postcard from Rickwood Field: MLB prepares to honor the Negro Leagues**\
 `Willie Mays' plaque was displayed on the field before Wednesday's celebrity softball game, where various athletes paid their respects.`\
 https://nytimes.com/athletic/5577189/2024/06/19/mlb-rickwood-willie-mays-negro-leagues/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/06/19/crosswords/daily-puzzle-2024-06-20.html
 **Tropical Storm Alberto Brings Floods to Texas as Mexico Braces for Landfall**\
 `Hours before the storm was expected to make landfall in Mexico, it brought heavy rain and coastal flooding to parts of eastern Mexico and southern Texas.`\
 https://nytimes.com/2024/06/19/weather/tropical-storm-alberto-floods-texas.html
-
-**Giants prepare for an emotional experience honoring Willie Mays at Rickwood Field**\
-`The Giants, still processing the loss of Mays, head to Rickwood with determination. "It's going to be a special, signature day."`\
-https://nytimes.com/athletic/5577261/2024/06/19/sf-giants-willie-mays-rickwood-field-preparation/
-
-**Ryan Garcia says he's 'officially retired'**\
-`"Boxing will be alright without me. But still sucks I was fun in the game," Garcia said. "And it was fun to punch people."`\
-https://nytimes.com/athletic/5577337/2024/06/19/ryan-garcia-retirement-posts/
-
-**Sean Murphy's two homers power a resurgent offense as Braves stay hot**\
-`Murphy went 4-for-4 with four RBIs and summed it up this way: “Having a day like that improves your mood.”`\
-https://nytimes.com/athletic/5577153/2024/06/19/braves-sean-murphy-reynaldo-lopez/
-
-**After trading Jacob Markstrom, can the Flames really avoid a rebuild?**\
-`At least publicly, the Flames still see themselves as a team that is trying to make the playoffs.`\
-https://nytimes.com/athletic/5576188/2024/06/19/flames-jacob-markstrom-trade-rebuild/
-
-**Padres salvage important win but still must approach trade deadline with caution**\
-`General manager A.J. Preller may have to learn from red-hot Jackson Merrill and know when to — and when not to — take a big swing.`\
-https://nytimes.com/athletic/5577111/2024/06/19/padres-trade-deadline-jackson-merrill-aj-preller/
 
