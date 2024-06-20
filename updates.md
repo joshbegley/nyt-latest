@@ -1,3 +1,7 @@
+**After trading Jacob Markstrom, can the Flames really avoid a rebuild?**\
+`At least publicly, the Flames still see themselves as a team that is trying to make the playoffs.`\
+https://nytimes.com/athletic/5576188/2024/06/19/flames-jacob-markstrom-trade-rebuild/
+
 **Padres salvage important win but still must approach trade deadline with caution**\
 `General manager A.J. Preller may have to learn from red-hot Jackson Merrill and know when to — and when not to — take a big swing.`\
 https://nytimes.com/athletic/5577111/2024/06/19/padres-trade-deadline-jackson-merrill-aj-preller/
