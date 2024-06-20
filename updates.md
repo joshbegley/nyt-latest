@@ -1,3 +1,7 @@
+**James Chance, No Wave and Punk-Funk Pioneer, Dies at 71**\
+`With the Contortions and James White and the Blacks, the songwriter and saxophonist set out to challenge musicians and stir up audiences.`\
+https://nytimes.com/2024/06/20/arts/music/james-chance-dead.html
+
 **Melinda French Gates Says She Will Vote for Biden**\
 `She avoided endorsements in the past, saying they could compromise her philanthropic work with politicians.`\
 https://nytimes.com/2024/06/20/us/politics/biden-melinda-french-gates-endorse.html

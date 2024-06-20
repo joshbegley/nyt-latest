@@ -1,3 +1,7 @@
+**James Chance, No Wave and Punk-Funk Pioneer, Dies at 71**\
+`With the Contortions and James White and the Blacks, the songwriter and saxophonist set out to challenge musicians and stir up audiences.`\
+https://nytimes.com/2024/06/20/arts/music/james-chance-dead.html
+
 **Melinda French Gates Says She Will Vote for Biden**\
 `She avoided endorsements in the past, saying they could compromise her philanthropic work with politicians.`\
 https://nytimes.com/2024/06/20/us/politics/biden-melinda-french-gates-endorse.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/20/us/politics/trump-documents-case-unusual-rulings.
 **It can be harder to beat the heat in rural parts of the country.**\
 `By Dionne Searcey`\
 https://nytimes.com/live/2024/06/20/us/heat-wave-news/it-can-be-harder-to-beat-the-heat-in-rural-parts-of-the-country
-
-**AIPAC Unleashes a Record $14.5 Million Bid to Defeat a Critic of Israel**\
-`The deluge in outside spending, which also includes another $1 million from another pro-Israel group, threatens to sink Representative Jamaal Bowman.`\
-https://nytimes.com/2024/06/20/nyregion/aipac-bowman-latimer.html
 
