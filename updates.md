@@ -1,3 +1,7 @@
+**USC's tough recruiting week, plus reactions to conference sponsors**\
+`Welcome to Until Saturday, the five-star college football newsletter: Leave our inaccurately numbered conference names alone!`\
+https://nytimes.com/athletic/5578855/2024/06/20/college-football-recruiting-usc-sponsorships-until-saturday/
+
 **‘Green Border’ Review: Migrants’ Elusive Race for Freedom**\
 `Agnieszka Holland focuses on the Polish-Belarusian border as a Syrian family tries to make it to the European Union.`\
 https://nytimes.com/2024/06/20/movies/green-border-review.html

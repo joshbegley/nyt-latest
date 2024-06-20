@@ -1,3 +1,7 @@
+**USC's tough recruiting week, plus reactions to conference sponsors**\
+`Welcome to Until Saturday, the five-star college football newsletter: Leave our inaccurately numbered conference names alone!`\
+https://nytimes.com/athletic/5578855/2024/06/20/college-football-recruiting-usc-sponsorships-until-saturday/
+
 **‘Green Border’ Review: Migrants’ Elusive Race for Freedom**\
 `Agnieszka Holland focuses on the Polish-Belarusian border as a Syrian family tries to make it to the European Union.`\
 https://nytimes.com/2024/06/20/movies/green-border-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5578723/2024/06/20/willie-mays-death-automated-stri
 **What I'm hearing about Guentzel, Penguins' draft, free agency**\
 `The Penguins have lots of needs and only $13 million in salary cap space as a crucial offseason heats up.`\
 https://nytimes.com/athletic/5575911/2024/06/20/penguins-jake-guentzel-free-agent/
-
-**High temperatures in Maine are stressing the state’s infrastructure and essential services.**\
-`By Sydney Cromwell`\
-https://nytimes.com/live/2024/06/20/us/heat-wave-news/high-temperatures-in-maine-are-stressing-the-states-infrastructure-and-essential-services
 
