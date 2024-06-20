@@ -1,3 +1,7 @@
+**TV Weather Gets Political**\
+`On-air meteorologists have become a target in the culture wars as they report on the effects of climate change.`\
+https://nytimes.com/2024/06/20/climate/tv-weather-gets-political.html
+
 **The Housing Market Is Weird and Ugly. These 5 Charts Explain Why.**\
 `Home prices have held up better than expected amid high interest rates. But that doesn’t mean the housing market is healthy.`\
 https://nytimes.com/2024/06/20/business/economy/housing-market-explained.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/20/books/thomas-mccormack-dead.html
 **In rural Indiana, residents adjust their schedules and keep an eye on their neighbors.**\
 `By Kevin Williams`\
 https://nytimes.com/live/2024/06/20/us/heat-wave-news/in-rural-indiana-residents-adjust-their-schedules-and-keep-an-eye-on-their-neighbors
-
-**Stonehenge Is Sprayed With Orange Powder in Climate Protest**\
-`Two climate protesters sprayed the powder onto the ancient stones on Wednesday, as the Summer Solstice was to be celebrated at the English site, a popular destination on the longest day of the year.`\
-https://nytimes.com/2024/06/20/world/europe/stonehenge-just-stop-oil-solstice.html
 
