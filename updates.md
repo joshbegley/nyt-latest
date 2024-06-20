@@ -13,6 +13,11 @@ https://nytimes.com/athletic/5572867/2024/06/20/spain-italy-euro2024-result-anal
 `\
 https://nytimes.com/athletic/5572867/2024/06/20/spain-italy-euro2024-result-analysis-yamal-williams/
 
+**The Briefing: Spain 1-0 Italy - Calafiori own goal settles 'European Clasico'**\
+`Meetings between Spain and Italy rarely disappoint — and this one was no exception. Here's our quickfire analysis
+`\
+https://nytimes.com/athletic/5572867/2024/06/20/spain-italy-euro2024-result-analysis-yamal-williams/
+
 **James Chance, No Wave and Punk-Funk Pioneer, Dies at 71**\
 `With the Contortions and James White and the Blacks, the songwriter and saxophonist set out to challenge musicians and stir up audiences.`\
 https://nytimes.com/2024/06/20/arts/music/james-chance-dead.html
