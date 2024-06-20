@@ -1,3 +1,7 @@
+**What Donald Trump Talks About When He Talks About ‘Donald Trump’**\
+`When the former president refers to himself, there’s something he’s not saying.`\
+https://nytimes.com/2024/06/20/opinion/donald-trump-third-person-language.html
+
 **England have 'huge amount of work' to do - Southgate**\
 `Gareth Southgate admitted England have &#8220;a huge amount of work&#8221; to do after labouring to a draw with Denmark.`\
 https://nytimes.com/athletic/5579130/2024/06/20/england-denmark-gareth-southgate/
