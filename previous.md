@@ -26,7 +26,7 @@ https://nytimes.com/athletic/5578456/2024/06/20/jack-draper-carlos-alcaraz-queen
 `“The material that he uses for the songs is powerfully moving, involving his own personal losses,” the 88-year-old poet says. Also name-checked in “So What”: an Italian motorcycle magnate.`\
 https://nytimes.com/2024/06/20/books/review/frederick-seidel-by-the-book.html
 
-**Broncos hiring former Stanford coach David Shaw as senior personnel executive**\
+**Broncos hiring David Shaw as senior personnel executive**\
 `Before Stanford, Shaw spent nearly a decade as an assistant NFL coach. He and Sean Payton both worked for the Eagles in 1997.`\
 https://nytimes.com/athletic/5578470/2024/06/20/david-shaw-broncos-hire/
 
