@@ -1,40 +1,40 @@
-**Putin and Kim Deepen Their Friendship During State Visit**\
-`North Korea’s leader, Kim Jong-un, and Russia’s president, Vladimir V. Putin, played up their growing bond as they agreed to a mutual-defense pledge.`\
-https://nytimes.com/video/world/asia/100000009530909/putin-kim-north-korea-friendship.html
+**Biden’s Lead With Women Is Smaller Than Trump’s With Men, a Warning for Democrats**\
+`A new poll of female voters finds that concerns about inflation are still paramount, even as abortion could motivate Democratic women in states where the issue is on the ballot.`\
+https://nytimes.com/2024/06/20/us/elections/biden-trump-women-men.html
 
-**Ash Barty returns to tennis at Wimbledon for invitational doubles**\
-`The three-time Grand Slam champion and former world No. 1 will reunite with doubles partner Casey Dellacqua on the grass in London`\
-https://nytimes.com/athletic/5577764/2024/06/20/ash-barty-tennis-wimbledon-doubles/
+**Even With Biden’s Executive Orders, Immigrants Must Save Ourselves**\
+`The administration should have a consistent vision on immigration instead of ping-ponging between border harshness and beneficial half-measures for some of the undocumented.`\
+https://nytimes.com/2024/06/20/opinion/biden-executive-order-immigrants.html
 
-**Quotation of the Day: When a Giant of the Game Became Mortal**\
-`Quotation of the Day for Thursday, June 20, 2024.`\
-https://nytimes.com/2024/06/20/pageoneplus/quotation-of-the-day-when-a-giant-of-the-game-became-mortal.html
+**The Human Toll of Nuclear Testing**\
+`The U.S. bombings that ended World War II didn’t mark the close of atomic warfare. They were just the beginning.`\
+https://nytimes.com/interactive/2024/06/20/opinion/nuclear-weapons-testing.html
 
-**Jimmy Fallon Mocks Kim Jong-un and Putin for Making Things Official**\
-`“Then they got a text from Trump that said, ‘Throuple?’” Fallon joked on Wednesday.`\
-https://nytimes.com/2024/06/20/arts/television/jimmy-fallon-north-korea-putin.html
+**Why Activists Keep Failing the Causes That Fire Them Up**\
+`They need to stop accepting short-term victories.`\
+https://nytimes.com/2024/06/20/opinion/activists-congress-laws-politics.html
 
-**Ratcliffe says UEFA multi-club rules 'unfair' as Man Utd transfer blocked**\
-`Sir Jim Ratcliffe believes UEFA rules on multi-club ownership are unfair as Manchester United were prevented from signing a player from Nice.`\
-https://nytimes.com/athletic/5577722/2024/06/20/manchester-united-transfer-news-jim-ratcliffe/
+**If Donald Trump Wins, So Will Paul Manafort. ‘You Are a Real Man.’**\
+`If Donald Trump is re-elected, expect a return to backroom lobbying deals that favor well-financed companies and countries, and exclude everyone else.`\
+https://nytimes.com/2024/06/20/opinion/trump-manafort-lobbying.html
 
-**What Happened When Brooklyn Tried to Integrate Its Middle Schools**\
-`A new report found that many schools enrolled more racially and socioeconomically diverse groups of students without sparking a major exodus of families from public schools.`\
-https://nytimes.com/2024/06/20/nyregion/what-happened-when-brooklyn-tried-to-integrate-its-middle-schools.html
+**What Republicans Lost When They Won on Roe**\
+`In Arizona, the G.O.P. is divided over the future of opposing abortion.`\
+https://nytimes.com/2024/06/20/podcasts/arizona-republicans-abortion.html
 
-**Is It Possible to Desegregate the Nation’s Biggest School System?**\
-`A major lawsuit against racial inequality in New York City’s public schools is moving forward. Already, local districts in the city were trying different measures to diversify schools.`\
-https://nytimes.com/2024/06/20/nyregion/desegregation-nyc-schools-court-case.html
+**A Sock War Is Afoot Between Millennials and Gen Z**\
+`Social media is awash in another intergenerational fashion debate: Ankle socks or crew socks?`\
+https://nytimes.com/2024/06/20/style/gen-z-crew-socks-ankle-millennials.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/06/20/crosswords/spelling-bee-forum.html
+**The Fight to Save a Rowhouse With Ties to Theatrical History**\
+`The rowhouse in Greenwich Village once housed the 13th Street Repertory Theater, but it is falling apart and preservationists are worried about its future.`\
+https://nytimes.com/2024/06/20/nyregion/landmark-13th-street-repertory-theater.html
 
-**Yankees' warts on display in extra-inning loss to Orioles**\
-`The lack of strikeouts from the bullpen is an issue that needs solving.`\
-https://nytimes.com/athletic/5577630/2024/06/20/yankees-warts-loss-orioles/
+**To Have a Great Summer, You Need a Great Song**\
+`Wesley Morris on why identifying the “song of summer” is more art than science.`\
+https://nytimes.com/2024/06/20/podcasts/to-have-a-great-summer-you-need-a-great-song.html
 
-**Scotland must not use population size as an excuse - there are other factors at play**\
-`Scotland have long struggled to make an impact at tournaments but other smaller nations have shown it can be done`\
-https://nytimes.com/athletic/5577048/2024/06/20/scotland-population-euro-2024/
+**Putin Has Tainted Russian Greatness**\
+`Russian émigrés have always had complicated feelings about their homeland. The war in Ukraine adds shame to the mix.`\
+https://nytimes.com/2024/06/20/opinion/putin-russia-culture.html
 
