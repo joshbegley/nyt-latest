@@ -1,3 +1,23 @@
+**Alexander Steen's path to becoming Blues GM-in-waiting: 'He checks all the boxes'**\
+`Former teammate Colton Parayko on Steen's ascent: "He was a great teammate who had all of the qualities of a professional."`\
+https://nytimes.com/athletic/5570195/2024/06/20/alexander-steen-blues-gm-nhl/
+
+**The Bounce: Please pay me to not coach the Pistons**\
+`Zach Harper and Shams Charania catch you up on leaguewide news.`\
+https://nytimes.com/athletic/5577934/2024/06/20/monty-williams-fired-pistons-the-bounce/
+
+**Walking Can Be a Powerful Remedy for Back Pain**\
+`A new study adds to a large body of evidence on the effectiveness of movement for treating and preventing pain.`\
+https://nytimes.com/2024/06/20/well/move/walking-lower-back-pain.html
+
+**Pregnant women are particularly vulnerable to the heat, doctors warn.**\
+`By Roni Caryn Rabin`\
+https://nytimes.com/live/2024/06/20/us/heat-wave-news/pregnant-women-heat-stroke
+
+**Qaeda Commander at Guantánamo Bay Sentenced for War Crimes**\
+`A U.S. military jury decided on a 30-year prison term. But under a plea deal, the prisoner’s sentence will end in 2032.`\
+https://nytimes.com/2024/06/20/us/politics/qaeda-commander-sentenced-guantanamo-bay.html
+
 **Jack Draper beats Carlos Alcaraz at Queen's to end Spaniard's win streak on grass**\
 `Carlos Alcaraz&#8217;s 13-match winning streak on grass is over, ended by the home favourite Jack Draper in the second round of the Cinch Championships on Thursday afternoon.`\
 https://nytimes.com/athletic/5578456/2024/06/20/jack-draper-carlos-alcaraz-queens/
@@ -14,28 +34,8 @@ https://nytimes.com/athletic/5578470/2024/06/20/david-shaw-broncos-hire/
 `Bloss, a third-round selection in last July’s draft, has made just eight starts at Double A and will bypass Triple A entirely.`\
 https://nytimes.com/athletic/5578523/2024/06/20/astros-jake-bloss-mlb-debut/
 
-**England's game against Denmark to have roof closed: Why? What impact will it have?**\
+**Why is the roof closed for England’s game against Denmark and what impact will it have?**\
 `UEFA has confirmed the roof of Frankfurt's Deutsche Bank Park will be closed for the Group C clash as a ‘precautionary measure’
 `\
 https://nytimes.com/athletic/5578360/2024/06/20/england-denmark-roof-closed-frankfurt/
-
-**Thursday's MLB odds and predictions: Best and worst starting pitchers, home run streaks and more**\
-`Check in on our Thursday MLB projections with odds for every game, picks for best value bets, pitcher props and more.`\
-https://nytimes.com/athletic/5578505/2024/06/20/mlb-odds-predictions-best-bets-june-20/
-
-**NHL trade big board: What we're hearing about the offseason's top targets**\
-`The Jacob Markstrom and Pierre-Luc Dubois trades got things rolling. What's coming next? Here's the latest on Chris Johnston's top targets.`\
-https://nytimes.com/athletic/5573911/2024/06/20/nhl-offseason-trade-board/
-
-**Travis Scott Arrested After Disturbance on Florida Yacht**\
-`The rapper, who was charged with trespassing and disorderly intoxication, later admitted he had been drinking alcohol and stated, “It’s Miami.”`\
-https://nytimes.com/2024/06/20/arts/music/travis-scott-arrested.html
-
-**Supreme Court Upholds Trump-Era Tax Provision**\
-`The tax dispute, which was closely watched by experts, involved a one-time foreign income tax, but many saw it as a broader challenge to pre-emptively block Congress from passing a wealth tax.`\
-https://nytimes.com/2024/06/20/us/politics/supreme-court-tax-case-trump.html
-
-**Police investigating theft of Toney's father's watch from Euro 2024 hotel**\
-`Dusseldorf Police are investigating a complaint that Ivan Toney’s father had his watch stolen during the weekend of England’s opening group-stage win over Serbia on June 16.`\
-https://nytimes.com/athletic/5578010/2024/06/20/ivan-toney-father/
 

@@ -13,6 +13,11 @@ https://nytimes.com/athletic/5578360/2024/06/20/england-denmark-roof-closed-fran
 `\
 https://nytimes.com/athletic/5578360/2024/06/20/england-denmark-roof-closed-frankfurt/
 
+**England's game against Denmark to have roof closed: Why? What impact will it have?**\
+`UEFA has confirmed the roof of Frankfurt's Deutsche Bank Park will be closed for the Group C clash as a ‘precautionary measure’
+`\
+https://nytimes.com/athletic/5578360/2024/06/20/england-denmark-roof-closed-frankfurt/
+
 **Jack Draper beats Carlos Alcaraz at Queen's to end Spaniard's win streak on grass**\
 `Carlos Alcaraz&#8217;s 13-match winning streak on grass is over, ended by the home favourite Jack Draper in the second round of the Cinch Championships on Thursday afternoon.`\
 https://nytimes.com/athletic/5578456/2024/06/20/jack-draper-carlos-alcaraz-queens/
