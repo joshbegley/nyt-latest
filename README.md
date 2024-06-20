@@ -1,3 +1,7 @@
+**The Briefing: England 1-1 Denmark - Kane scores but struggles, England drop deep, Hjulmand wonder goal**\
+`Kane opened the scoring but struggled to influence England's play, as Southgate's side drew with Denmark in their second game at Euro 2024`\
+https://nytimes.com/athletic/5572865/2024/06/20/england-denmark-euro-analysis-kane/
+
 **Thomas J. McCormack Dies at 94; Transformed St. Martin’s Press**\
 `He turned “an insignificant trade house” into a powerhouse, publishing best sellers like “The Silence of the Lambs” and “All Creatures Great and Small.”`\
 https://nytimes.com/2024/06/20/books/thomas-mccormack-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/20/us/politics/aileen-cannon-trump-classified-docume
 **Has Red Bull lost its F1 advantage? The next 5 races will tell**\
 `McLaren, Ferrari and Mercedes have closed the gap, but the upcoming run of European races could put Red Bull back in control. `\
 https://nytimes.com/athletic/5578707/2024/06/20/red-bull-f1-advantage-spanish-gp-verstappen/
-
-**The heat wave has set records in Boston, Chicago and other cities.**\
-`By Tim Balk`\
-https://nytimes.com/live/2024/06/20/us/heat-wave-news/the-heat-wave-has-set-records-in-boston-chicago-and-other-cities
 
