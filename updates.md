@@ -1,3 +1,7 @@
+**Clearing a Final Hurdle, Dutch Leader Is Poised to Become NATO Chief**\
+`Mark Rutte, the Netherlands’ prime minister, is expected to be elected as the head of the military alliance after Romania’s candidate dropped out.`\
+https://nytimes.com/2024/06/20/world/europe/nato-secretary-general-rutte.html
+
 **Team GB cyclist Archibald to miss Olympics after freak accident**\
 `Great Britain cyclist Katie Archibald will miss this summer&#8217;s Olympics Games in Paris after breaking her leg in a freak accident.`\
 https://nytimes.com/athletic/5578227/2024/06/20/katie-archibald-injury-olympics-accident/
