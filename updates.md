@@ -1,3 +1,15 @@
+**Serbia threaten to quit Euro 2024 over offensive chants**\
+`Serbia have threatened to quit Euro 2024 if European football’s governing body UEFA fails to punish Albania and Croatia for anti-Serb chants made by their fans during their 2-2 draw on Wednesday.`\
+https://nytimes.com/athletic/5578061/2024/06/20/serbia-quit-threat-euro-2024/
+
+**Climate Change Made Recent Brutal Mexican Heat Wave More Likely, Report Says**\
+`Extreme heat across parts of Central America and the Southern United States in May and early June was 35 times more likely because of human-caused global warming, according to a new report.`\
+https://nytimes.com/2024/06/20/climate/climate-change-mexico-heat-wave.html
+
+**European Sanctions Target Russian Liquefied Natural Gas for First Time**\
+`The European Union will impose economic penalties targeting some shipments of Russian natural gas, hoping to deprive Moscow of income.`\
+https://nytimes.com/2024/06/20/business/europe-sanctions-russia-natural-gas.html
+
 **Bank of England Holds Rates Steady, Despite Slower Inflation**\
 `Officials kept rates at their highest level since 2008 for a seventh consecutive meeting, even as inflation dipped to 2 percent in May.`\
 https://nytimes.com/2024/06/20/business/bank-of-england-interest-rates.html
