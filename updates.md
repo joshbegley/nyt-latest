@@ -1,3 +1,11 @@
+**Lakers, JJ Redick agree to 4-year deal to become next coach**\
+`Redick was considered the front-runner in league circles for most of the coaching search.`\
+https://nytimes.com/athletic/5573570/2024/06/20/jj-redick-lakers-coach-contract/
+
+**French Business Leaders See Threat to Economy From Macron’s Opponents**\
+`Executives challenged the anti-immigration policies of the far-right candidate Jordan Bardella and spending plans by a left-wing coalition at a packed gathering in Paris.`\
+https://nytimes.com/2024/06/20/business/france-elections-economy.html
+
 **What Donald Trump Talks About When He Talks About ‘Donald Trump’**\
 `When the former president refers to himself, there’s something he’s not saying.`\
 https://nytimes.com/2024/06/20/opinion/donald-trump-third-person-language.html
