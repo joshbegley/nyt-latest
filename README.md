@@ -1,3 +1,8 @@
+**England's game against Denmark to have roof closed: Why? What impact will it have?**\
+`UEFA has confirmed the roof of Frankfurt's Deutsche Bank Park will be closed for the Group C clash as a ‘precautionary measure’
+`\
+https://nytimes.com/athletic/5578360/2024/06/20/england-denmark-roof-closed-frankfurt/
+
 **Thursday's MLB odds and predictions: Best and worst starting pitchers, home run streaks and more**\
 `Check in on our Thursday MLB projections with odds for every game, picks for best value bets, pitcher props and more.`\
 https://nytimes.com/athletic/5578505/2024/06/20/mlb-odds-predictions-best-bets-june-20/
@@ -33,8 +38,4 @@ https://nytimes.com/2024/06/20/special-series/junji-ito-horror-manga-death.html
 **Chelsea open talks with Boca over Anselmino deal**\
 `Chelsea have opened talks with Boca Juniors over the signing of defender Aaron Anselmino.`\
 https://nytimes.com/athletic/5578387/2024/06/20/chelsea-aaron-anselmino-transfer/
-
-**Scoop City: Two stars still seeking deals**\
-`A look at the contract situations of Brandon Aiyuk and Matthew Stafford, plus the most interesting coaching hires of the 2024 cycle.`\
-https://nytimes.com/athletic/5578334/2024/06/20/aiyuk-and-stafford-negotiations-scoop-city/
 
