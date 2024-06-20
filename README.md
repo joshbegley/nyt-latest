@@ -1,3 +1,11 @@
+**After a Weather Disaster, a Surprise: Some Ornery Monkeys Got Nicer**\
+`Macaques, reeling from a hurricane, learned by necessity to get along, a study found. It’s one of the first to suggest that animals can adapt to environmental upheaval with social changes.`\
+https://nytimes.com/2024/06/20/climate/macaques-monkeys-hurricane-maria.html
+
+**New ‘Detective Work’ on Butterfly Declines Reveals a Prime Suspect**\
+`Agricultural insecticides were a key factor, according to a study focused on the Midwest, though researchers emphasized the importance of climate change and habitat loss.`\
+https://nytimes.com/2024/06/20/climate/butterfly-declines-insecticides-monarch.html
+
 **The Briefing: England 1-1 Denmark - Kane scores but struggles, England drop deep, Hjulmand wonder goal**\
 `Kane opened the scoring but couldn’t dictate England's play as Southgate's side drew with Denmark in their second game at Euro 2024`\
 https://nytimes.com/athletic/5572865/2024/06/20/england-denmark-euro-analysis-kane/
@@ -12,7 +20,7 @@ https://nytimes.com/live/2024/06/20/us/heat-wave-news/in-rural-indiana-residents
 
 **Stonehenge Is Sprayed With Orange Powder in Climate Protest**\
 `Two climate protesters sprayed the powder onto the ancient stones on Wednesday, as the Summer Solstice was to be celebrated at the English site, a popular destination on the longest day of the year.`\
-https://nytimes.com/2024/06/20/world/stonehenge-just-stop-oil-solstice.html
+https://nytimes.com/2024/06/20/world/europe/stonehenge-just-stop-oil-solstice.html
 
 **Why Mbappe won’t wear tricolore mask at Euro 2024**\
 `Mbappe's patriotic mask sparked a social media storm but the France captain won't be able to wear it during a match...`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/20/movies/donald-sutherland-dead.html
 **Daniel Suárez, who left Mexico to chase his NASCAR dreams, becomes a U.S. citizen**\
 `Over a decade after leaving Mexico to pursue his racing career, Daniel Suárez became a U.S. citizen on Tuesday in Charlotte.`\
 https://nytimes.com/athletic/5577072/2024/06/20/daniel-suarez-us-citizen-nascar/
-
-**Judge in Trump Documents Case Rejected Suggestions to Step Aside**\
-`Two federal judges in South Florida privately urged Aileen M. Cannon to decline the case when it was assigned to her last year, according to two people briefed on the matter. She chose to keep it.`\
-https://nytimes.com/2024/06/20/us/politics/aileen-cannon-trump-classified-documents.html
-
-**Has Red Bull lost its F1 advantage? The next 5 races will tell**\
-`McLaren, Ferrari and Mercedes have closed the gap, but the upcoming run of European races could put Red Bull back in control. `\
-https://nytimes.com/athletic/5578707/2024/06/20/red-bull-f1-advantage-spanish-gp-verstappen/
 
