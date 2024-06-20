@@ -1,3 +1,8 @@
+**Why is the roof closed for England’s game against Denmark and what impact will it have?**\
+`UEFA has confirmed the roof of Frankfurt's Deutsche Bank Park will be closed for the Group C clash as a ‘precautionary measure’
+`\
+https://nytimes.com/athletic/5578360/2024/06/20/england-denmark-roof-closed-frankfurt/
+
 **Alexander Steen's path to becoming Blues GM-in-waiting: 'He checks all the boxes'**\
 `Former teammate Colton Parayko on Steen's ascent: "He was a great teammate who had all of the qualities of a professional."`\
 https://nytimes.com/athletic/5570195/2024/06/20/alexander-steen-blues-gm-nhl/
