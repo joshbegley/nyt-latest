@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/5578360/2024/06/20/england-denmark-roof-closed-frankfurt/
 
+**England's game against Denmark to have roof closed: Why? What impact will it have?**\
+`UEFA has confirmed the roof of Frankfurt's Deutsche Bank Park will be closed for the Group C clash as a ‘precautionary measure’
+`\
+https://nytimes.com/athletic/5578360/2024/06/20/england-denmark-roof-closed-frankfurt/
+
 **Videos Show That Leeches Can Jump in Pursuit of Blood**\
 `There has long been anecdotal evidence of the wormy creatures taking to the air, but videos recorded in Madagascar at last prove the animals’ acrobatics.`\
 https://nytimes.com/2024/06/20/science/jumping-leeches.html
