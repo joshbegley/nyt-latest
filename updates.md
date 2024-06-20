@@ -1,3 +1,19 @@
+**Lewandowski facing late fitness test before Austria game**\
+`Robert Lewandowski faces a late fitness test before his Poland side face Austria in their second group game at the European Championship.`\
+https://nytimes.com/athletic/5578697/2024/06/20/robert-lewandowski-injury-poland-euro-2024/
+
+**Donald Trump Is You! And You! And You!**\
+`Audaciously and laughably, a playboy plutocrat turns himself into Everyman.`\
+https://nytimes.com/2024/06/20/opinion/donald-trump-everyman.html
+
+**The 40 Best Songs of 2024 (So Far)**\
+`Our critics select 33 standouts from our weekly Playlists — and seven more tracks they had missed.`\
+https://nytimes.com/2024/06/20/arts/music/best-songs-2024-so-far.html
+
+**Sixteen defenders the Canucks could target in unrestricted free agency**\
+`The Canucks have uncertainty along the blue line heading into the offseason.`\
+https://nytimes.com/athletic/5569153/2024/06/20/canucks-free-agent-targets-defence-2024/
+
 **Bob Good Trails in Battle for His Virginia Seat, but Primary Remains Too Close to Call**\
 `Both the congressman and his Trump-backed challenger are election deniers, raising the question of whether either would accept an adverse result in his own race.`\
 https://nytimes.com/2024/06/20/us/politics/bob-good-virginia-primary.html

@@ -1,3 +1,19 @@
+**Lewandowski facing late fitness test before Austria game**\
+`Robert Lewandowski faces a late fitness test before his Poland side face Austria in their second group game at the European Championship.`\
+https://nytimes.com/athletic/5578697/2024/06/20/robert-lewandowski-injury-poland-euro-2024/
+
+**Donald Trump Is You! And You! And You!**\
+`Audaciously and laughably, a playboy plutocrat turns himself into Everyman.`\
+https://nytimes.com/2024/06/20/opinion/donald-trump-everyman.html
+
+**The 40 Best Songs of 2024 (So Far)**\
+`Our critics select 33 standouts from our weekly Playlists — and seven more tracks they had missed.`\
+https://nytimes.com/2024/06/20/arts/music/best-songs-2024-so-far.html
+
+**Sixteen defenders the Canucks could target in unrestricted free agency**\
+`The Canucks have uncertainty along the blue line heading into the offseason.`\
+https://nytimes.com/athletic/5569153/2024/06/20/canucks-free-agent-targets-defence-2024/
+
 **Bob Good Trails in Battle for His Virginia Seat, but Primary Remains Too Close to Call**\
 `Both the congressman and his Trump-backed challenger are election deniers, raising the question of whether either would accept an adverse result in his own race.`\
 https://nytimes.com/2024/06/20/us/politics/bob-good-virginia-primary.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5578635/2024/06/20/bullpen-report-fantasy-baseball-
 **Kendrick Lamar’s Victory Lap Unites Los Angeles**\
 `After unofficially winning a high-profile diss war with Drake, the rapper hosted a Juneteenth concert that celebrated local heroes — and his own sharp-tongued tracks.`\
 https://nytimes.com/2024/06/20/arts/music/kendrick-lamar-the-pop-out-ken-and-friends.html
-
-**George Woodwell, Scientist Who Helped Shape Environmental Policy, Dies at 95**\
-`The founder of the renowned Woods Hole Research Center in Massachusetts, he was not afraid to leverage credible scientific findings to influence public attitudes and government strategy.`\
-https://nytimes.com/2024/06/20/science/george-woodwell-dead.html
-
-**Willie Mays is a monument to an era of Black baseball gone but never forgotten**\
-`At the gates of the Black baseball era are towering statues, colossal enough to withstand time. And Willie Mays was chief among them.`\
-https://nytimes.com/athletic/5577653/2024/06/20/willie-mays-black-baseball-history/
-
-**Judge John Hodgman on Afternoon Ice Cream**\
-`Can your partner be compelled to eat dessert at your preferred time?`\
-https://nytimes.com/2024/06/20/magazine/judge-john-hodgman-afternoon-ice-cream.html
-
-**NFL training camps 2024: Locations, reporting schedule for all 32 teams**\
-`The NFL has already announced the preseason schedule which kicks off with the Hall Of Fame Game between the Texans and Bears on Aug 1.`\
-https://nytimes.com/athletic/5578411/2024/06/20/nfl-training-camp-report-dates/
 
