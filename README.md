@@ -1,3 +1,15 @@
+**‘Hummingbirds’ Review: Two Friends’ Summer Along the Border**\
+`The young directors Silvia Del Carmen Castaños and Estefanía (Beba) Contreras stargaze, watch fireworks and discuss their lives in this documentary filmed in Laredo, Texas.`\
+https://nytimes.com/2024/06/20/movies/hummingbirds-review.html
+
+**‘Federer: Twelve Final Days’ Review: Roger, Over and Out**\
+`A new documentary follows the Swiss tennis star from his 2022 retirement announcement to his final match.`\
+https://nytimes.com/2024/06/20/movies/roger-federer-twelve-final-days-review.html
+
+**The Pulse: $65 million to coach**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5577501/2024/06/20/monty-williams-pistons-buyout-the-pulse/
+
 **Your Guide to the Heat**\
 `It’s the first major heat wave of 2024.`\
 https://nytimes.com/2024/06/20/briefing/heat-wave-tips.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5577959/2024/06/20/tottenham-son-bentancur-apology/
 **Writers' Copa America 2024 predictions: Best player, biggest surprise, USMNT projections?**\
 `We know the squads, the matches, and when the action starts - here's what we think will happen`\
 https://nytimes.com/athletic/5577033/2024/06/20/copa-america-2024-writers-picks/
-
-**The Washington Wizards need a cornerstone. Can they find one in the 2024 NBA Draft?**\
-`Washington owns the second pick in the upcoming NBA Draft. We asked our expert to evaluate the top prospects. `\
-https://nytimes.com/athletic/5576613/2024/06/20/the-washington-wizards-need-a-cornerstone-can-they-find-one-in-the-2024-nba-draft/
-
-**Rockets draft notebook 2.0: Big board debates, Houston's domino effect and more**\
-`Kelly Iko offers the latest intel on the Houston Rockets and what they could do with the No. 3 pick at the draft. `\
-https://nytimes.com/athletic/5574543/2024/06/20/rockets-draft-notebook-donovan-clingan/
-
-**NBA Player Tiers: Victor Wembanyama joins Tier 2's All-Stars and All-NBA contenders**\
-`This is the level where everyone listed could be the best player on a title team next year with the right roster around them.`\
-https://nytimes.com/athletic/5575511/2024/06/20/nba-player-tiers-victor-wembanyama-jalen-brunson-anthony-edwards-all-star/
 
