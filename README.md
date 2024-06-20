@@ -1,3 +1,7 @@
+**Melinda French Gates Says She Will Vote for Biden**\
+`She avoided endorsements in the past, saying they could compromise her philanthropic work with politicians.`\
+https://nytimes.com/2024/06/20/us/politics/biden-melinda-french-gates-endorse.html
+
 **Donald Sutherland, Generational Chameleon**\
 `He came into his career in an era when character actors were leading men.`\
 https://nytimes.com/live/2024/06/18/opinion/thepoint/donald-sutherland-death
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/20/us/heat-wave-news/it-can-be-harder-to-beat-t
 **AIPAC Unleashes a Record $14.5 Million Bid to Defeat a Critic of Israel**\
 `The deluge in outside spending, which also includes another $1 million from another pro-Israel group, threatens to sink Representative Jamaal Bowman.`\
 https://nytimes.com/2024/06/20/nyregion/aipac-bowman-latimer.html
-
-**A Lakeside Castle Hotel in the Austrian Alps**\
-`Plus: art about office life, colorful rope rugs — and more.`\
-https://nytimes.com/2024/06/20/t-magazine/rosewood-schloss-fuschl-austria-alps-hotel.html
 
