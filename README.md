@@ -1,3 +1,7 @@
+**For firefighter recruits in Indianapolis, a much sweatier training day.**\
+`By Casey Patrick`\
+https://nytimes.com/live/2024/06/20/us/heat-wave-news/for-firefighter-recruits-in-indianapolis-a-much-sweatier-training-day
+
 **Bulls, Thunder swap Caruso, Giddey in one-for-one trade**\
 `Caruso, 30, spent the past three seasons with the Bulls where he made two All-Defensive teams.`\
 https://nytimes.com/athletic/5579575/2024/06/20/thunder-acquire-alex-caruso-josh-giddey/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/20/us/detroit-michigan-power-storms-heat.html
 **Penguins re-sign Nedeljkovic: What does it mean for Jarry?**\
 `Let the trade talk begin.`\
 https://nytimes.com/athletic/5579571/2024/06/20/penguins-alex-nedeljkovic-contract/
-
-**Newark Schools Struggle to Keep Students Cool**\
-`Many buildings lack air conditioning, despite years of calls for improvements to old buildings.`\
-https://nytimes.com/2024/06/20/nyregion/newark-schools-heat-wave.html
 
