@@ -14,7 +14,7 @@ https://nytimes.com/2024/06/20/business/europe-sanctions-russia-natural-gas.html
 `Officials kept rates at their highest level since 2008 for a seventh consecutive meeting, even as inflation dipped to 2 percent in May.`\
 https://nytimes.com/2024/06/20/business/bank-of-england-interest-rates.html
 
-**Unusually blunt comments from the Israeli military spokesman bring divisions with the government into the open.**\
+**The armed forces’ chief spokesman goes public with frustration over Prime Minister Netanyahu’s failure to advance a plan for governing postwar Gaza.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/06/20/world/israel-gaza-war-hamas/unusually-blunt-comments-from-the-israeli-military-spokesman-bring-divisions-with-the-government-into-the-open
 
