@@ -1,3 +1,7 @@
+**Why Does Kendrick Lamar Want Drake to Return Tupac Shakur’s Ring?**\
+`At Mr. Lamar’s Juneteenth concert on Wednesday, he made a request for Drake to return Mr. Shakur’s iconic crown ring. Is this about more than just beef between the two rappers?`\
+https://nytimes.com/2024/06/20/style/kendrick-lamar-drake-tupac-ring.html
+
 **Killer of 2 Women in National Park in 1996 Has Been Identified, F.B.I. Says**\
 `A convicted serial rapist who died in an Ohio prison in 2018 was responsible for the murder of a couple at Shenandoah National Park in a case that initially was believed to be a hate crime.`\
 https://nytimes.com/2024/06/20/us/shenandoah-park-murders-1996-fbi.html

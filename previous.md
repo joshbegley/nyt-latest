@@ -1,3 +1,7 @@
+**Why Does Kendrick Lamar Want Drake to Return Tupac Shakur’s Ring?**\
+`At Mr. Lamar’s Juneteenth concert on Wednesday, he made a request for Drake to return Mr. Shakur’s iconic crown ring. Is this about more than just beef between the two rappers?`\
+https://nytimes.com/2024/06/20/style/kendrick-lamar-drake-tupac-ring.html
+
 **Killer of 2 Women in National Park in 1996 Has Been Identified, F.B.I. Says**\
 `A convicted serial rapist who died in an Ohio prison in 2018 was responsible for the murder of a couple at Shenandoah National Park in a case that initially was believed to be a hate crime.`\
 https://nytimes.com/2024/06/20/us/shenandoah-park-murders-1996-fbi.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/06/20/us/judy-garland-hometown-oz-ruby-slippers.html
 **For firefighter recruits in Indianapolis, a much sweatier training day.**\
 `By Casey Patrick`\
 https://nytimes.com/live/2024/06/20/us/heat-wave-news/for-firefighter-recruits-in-indianapolis-a-much-sweatier-training-day
-
-**Bulls, Thunder swap Caruso, Giddey in one-for-one trade**\
-`Caruso, 30, spent the past three seasons with the Bulls where he made two All-Defensive teams.`\
-https://nytimes.com/athletic/5579575/2024/06/20/thunder-acquire-alex-caruso-josh-giddey/
 
