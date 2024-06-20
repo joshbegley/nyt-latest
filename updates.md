@@ -1,3 +1,7 @@
+**Chelsea's aggressive youth recruitment means days of signing players at peak are over**\
+`Chelsea want to position themselves to be able to recruit every teenage footballer they identify as having elite potential`\
+https://nytimes.com/athletic/5575306/2024/06/20/chelsea-aggressive-youth-transfers-estevao-willian/
+
 **West Ham fans react to price rises: 'I feel like the club I support doesn't want me there anymore'**\
 `The Athletic spoke to five fans about ticket price rises at London Stadium: 'I haven't told my son I can't afford it yet'`\
 https://nytimes.com/athletic/5573187/2024/06/20/west-ham-ticket-prices-fans-react/

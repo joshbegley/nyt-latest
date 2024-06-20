@@ -1,3 +1,7 @@
+**Chelsea's aggressive youth recruitment means days of signing players at peak are over**\
+`Chelsea want to position themselves to be able to recruit every teenage footballer they identify as having elite potential`\
+https://nytimes.com/athletic/5575306/2024/06/20/chelsea-aggressive-youth-transfers-estevao-willian/
+
 **West Ham fans react to price rises: 'I feel like the club I support doesn't want me there anymore'**\
 `The Athletic spoke to five fans about ticket price rises at London Stadium: 'I haven't told my son I can't afford it yet'`\
 https://nytimes.com/athletic/5573187/2024/06/20/west-ham-ticket-prices-fans-react/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5569434/2024/06/20/sweden-alexander-isak-love/
 **Slot's first Liverpool interview: 'Game model', training videos and transfer chats**\
 `Analysing the most intriguing aspects of the Dutchman's first public appearance as Anfield's new head coach`\
 https://nytimes.com/athletic/5576261/2024/06/20/arne-slot-liverpool-interview-transfers-training/
-
-**'Your legs have gone mate - you are not playing.' What is it like managing players older than you?**\
-`With 31-year-old Fabian Hurzeler taking over as Brighton boss, we take a look at how young managers have gone about their jobs in the past`\
-https://nytimes.com/athletic/5556240/2024/06/20/how-to-deal-with-being-a-young-football-manager/
 
