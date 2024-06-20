@@ -1,3 +1,11 @@
+**Team GB cyclist Archibald to miss Olympics after freak accident**\
+`Great Britain cyclist Katie Archibald will miss this summer&#8217;s Olympics Games in Paris after breaking her leg in a freak accident.`\
+https://nytimes.com/athletic/5578227/2024/06/20/katie-archibald-injury-olympics-accident/
+
+**Weston McKennie exclusive: 'Everyone doubted me... but look at me now'**\
+`The USMNT midfielder speaks exclusively to The Athletic ahead of the Copa America`\
+https://nytimes.com/athletic/5576418/2024/06/20/usmnt-leeds-copa-america-mckennie-interview/
+
 **Kennedy Fails to Qualify for CNN Debate**\
 `Robert F. Kennedy Jr. did not meet the criteria to make the debate stage next week, according to the outlet, denying him the opportunity to confront President Biden and Donald J. Trump.`\
 https://nytimes.com/2024/06/20/us/politics/kennedy-qualify-cnn-debate.html
