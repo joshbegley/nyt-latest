@@ -1,3 +1,7 @@
+**Caeleb Dressel secures Olympic spot**\
+`Dressel will participate in the 4x100 freestyle relay in Paris since he did not finish first in the 100-meter freestyle final.`\
+https://nytimes.com/athletic/5577407/2024/06/19/caeleb-dressel-olympic-trials-freestyle-win/
+
 **Dancer’s Haul**\
 `Ella Dershowitz calls us by (some of) our names — or does she?`\
 https://nytimes.com/2024/06/19/crosswords/daily-puzzle-2024-06-20.html

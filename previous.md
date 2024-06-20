@@ -1,3 +1,7 @@
+**Caeleb Dressel secures Olympic spot**\
+`Dressel will participate in the 4x100 freestyle relay in Paris since he did not finish first in the 100-meter freestyle final.`\
+https://nytimes.com/athletic/5577407/2024/06/19/caeleb-dressel-olympic-trials-freestyle-win/
+
 **Dancer’s Haul**\
 `Ella Dershowitz calls us by (some of) our names — or does she?`\
 https://nytimes.com/2024/06/19/crosswords/daily-puzzle-2024-06-20.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5577162/2024/06/19/a-rookie-in-the-nwsl-mvp-race-fu
 **By trading Pierre-Luc Dubois, the Kings admit their error and address another problem**\
 `L.A. traded Dubois, once hoped to be a centerpiece of their future, after one season for goalie Darcy Kuemper.`\
 https://nytimes.com/athletic/5577102/2024/06/19/dubois-kuemper-trade-kings-capitals/
-
-**Unrelenting Heat Stifles Millions of Americans for 3rd Consecutive Day**\
-`As the heat wave moved east, the Northeast felt the brunt of the conditions. But forecasters provided a glimmer of relief, saying “conditions should improve over New England” this weekend.`\
-https://nytimes.com/2024/06/19/weather/heat-wave-northeast-midwest.html
 
