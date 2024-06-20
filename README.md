@@ -1,9 +1,13 @@
+**Thomas J. McCormack Dies at 94; Transformed St. Martin’s Press**\
+`He turned “an insignificant trade house” into a powerhouse, publishing best sellers like “The Silence of the Lambs” and “All Creatures Great and Small.”`\
+https://nytimes.com/2024/06/20/books/thomas-mccormack-dead.html
+
 **In rural Indiana, residents adjust their schedules and keep an eye on their neighbors.**\
 `By Kevin Williams`\
 https://nytimes.com/live/2024/06/20/us/heat-wave-news/in-rural-indiana-residents-adjust-their-schedules-and-keep-an-eye-on-their-neighbors
 
 **Stonehenge Is Sprayed With Orange Powder in Climate Protest**\
-`Two climate protesters sprayed the powder onto the ancient stones on Wednesday, as the Summer Solstice was to be celebrated at the ancient English site, a popular destination on the longest day of the year.`\
+`Two climate protesters sprayed the powder onto the ancient stones on Wednesday, as the Summer Solstice was to be celebrated at the English site, a popular destination on the longest day of the year.`\
 https://nytimes.com/2024/06/20/world/stonehenge-just-stop-oil-solstice.html
 
 **Why Mbappe won’t wear tricolore mask at Euro 2024**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5578707/2024/06/20/red-bull-f1-advantage-spanish-gp
 **The heat wave has set records in Boston, Chicago and other cities.**\
 `By Tim Balk`\
 https://nytimes.com/live/2024/06/20/us/heat-wave-news/the-heat-wave-has-set-records-in-boston-chicago-and-other-cities
-
-**USC's tough recruiting week, plus reactions to conference sponsors**\
-`Welcome to Until Saturday, the five-star college football newsletter: Leave our inaccurately numbered conference names alone!`\
-https://nytimes.com/athletic/5578855/2024/06/20/college-football-recruiting-usc-sponsorships-until-saturday/
 

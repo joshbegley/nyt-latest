@@ -1,3 +1,19 @@
+**In rural Indiana, residents adjust their schedules and keep an eye on their neighbors.**\
+`By Kevin Williams`\
+https://nytimes.com/live/2024/06/20/us/heat-wave-news/in-rural-indiana-residents-adjust-their-schedules-and-keep-an-eye-on-their-neighbors
+
+**Stonehenge Is Sprayed With Orange Powder in Climate Protest**\
+`Two climate protesters sprayed the powder onto the ancient stones on Wednesday, as the Summer Solstice was to be celebrated at the ancient English site, a popular destination on the longest day of the year.`\
+https://nytimes.com/2024/06/20/world/stonehenge-just-stop-oil-solstice.html
+
+**Why Mbappe won’t wear tricolore mask at Euro 2024**\
+`Mbappe's patriotic mask sparked a social media storm but the France captain won't be able to wear it during a match...`\
+https://nytimes.com/athletic/5578912/2024/06/20/kylian-mbappe-mask-why-euro-2024/
+
+**Argentina stay top of FIFA world rankings ahead of Copa America**\
+`Argentina have retained their top spot in FIFA’s men&#8217;s world rankings ahead of the 2024 Copa America.`\
+https://nytimes.com/athletic/5578885/2024/06/20/fifa-rankings-copa-america/
+
 **Donald Sutherland, Star of ‘M*A*S*H’ and Much More, Dies at 88**\
 `Never anyone’s idea of a heartthrob, he had a chameleon-like ability to be endearing in one role, menacing in another and just plain odd in a third.`\
 https://nytimes.com/2024/06/20/movies/donald-sutherland-dead.html
