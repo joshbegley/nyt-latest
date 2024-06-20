@@ -1,3 +1,23 @@
+**From 'Bolo Boys' to 'Wolf Crew': The friendship groups in England's squad**\
+`The days when the national squad was riven with cliques are long gone under Gareth Southgate`\
+https://nytimes.com/athletic/5575590/2024/06/20/england-squad-euro-2024-friendships/
+
+**The trend of long-range Euro 2024 goals owes to good technique - and a good ball**\
+`Guler, Barella, Stanciu... why are so many long-range goals being scored at Euro 2024? Michael Cox explains`\
+https://nytimes.com/athletic/5575829/2024/06/20/long-range-euro-2024-goal/
+
+**Which clubs are going to spend in this summer's transfer window?**\
+`The transfer market officially opened last week, but is likely to be in the doldrums for a while. Here's why, and what might unblock it`\
+https://nytimes.com/athletic/5575599/2024/06/20/which-clubs-are-going-to-spend-in-this-summers-transfer-window/
+
+**Celebrating Own Goal - Euro 2024's leading goalscorer**\
+`It's not just that there have been four own goals already at Euro 2024, it's that they've also been really funny`\
+https://nytimes.com/athletic/5576064/2024/06/20/best-own-goals-euro-2024/
+
+**Spain's tiki-taka era might be over - but its legacy continues to divide**\
+`La Roja's impressive run of possession-dominance ended on Saturday. Is that a good or a bad thing?`\
+https://nytimes.com/athletic/5575629/2024/06/20/spain-tiki-taka-possession-euros/
+
 **'There's a disconnect' - Why Sweden and Newcastle feel differently about Alexander Isak**\
 `The Athletic went to Stockholm to find out about Sweden's complicated relationship with Newcastle striker Isak`\
 https://nytimes.com/athletic/5569434/2024/06/20/sweden-alexander-isak-love/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5572212/2024/06/20/michael-olise-chelsea-bayern-mun
 **Have other sports influenced Arsenal's rise? Rebounds, rotations and a pendulum defence**\
 `Arsenal have improved dramatically over Arteta's tenure. How much of an impact have sports other than football had in that?`\
 https://nytimes.com/athletic/5572113/2024/06/20/have-other-sports-influenced-arsenals-rise-rebounds-rotations-and-a-pendulum-defence/
-
-**Euros or Copa America players with expiring contracts - how does it affect them?**\
-`Some players at this summer’s tournaments won’t be able to put club football aside. On June 30, they will essentially become unemployed`\
-https://nytimes.com/athletic/5575463/2024/06/20/euros-copa-player-contracts/
-
-**Thursday Briefing**\
-`Russia and North Korea pledge mutual defense.`\
-https://nytimes.com/2024/06/20/briefing/russia-north-korea-defense.html
-
-**Spicy Noodles and Pickled Fish: Chinese Eateries Move Into Hong Kong**\
-`As the cultural lines between Hong Kong and China blur, restaurants from the mainland are finding opportunities in the city. But not everyone is happy.`\
-https://nytimes.com/2024/06/20/business/hong-kong-china-restaurants.html
-
-**Fantasy football breakout running backs: Zamir White, Kendre Miller and more Jake Ciely picks**\
-`Jake Ciely surveys the fantasy football landscape, highlighting the under-the-radar running backs who could be surprising breakouts in 2024.`\
-https://nytimes.com/athletic/5576202/2024/06/20/fantasy-football-breakout-running-backs-zamir-white-kendre-miller-and-more/
-
-**Is Hamas Bound by International Law? What to Know.**\
-`The armed Islamist group committed war crimes on Oct. 7, experts say, and continues to do so by holding hostages.`\
-https://nytimes.com/2024/06/20/world/middleeast/hamas-war-crimes-international-law.html
 
