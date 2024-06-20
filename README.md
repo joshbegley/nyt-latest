@@ -1,3 +1,15 @@
+**Serbia threaten to quit Euro 2024 over offensive chants**\
+`Serbia have threatened to quit Euro 2024 if European football’s governing body UEFA fails to punish Albania and Croatia for anti-Serb chants made by their fans during their 2-2 draw on Wednesday.`\
+https://nytimes.com/athletic/5578061/2024/06/20/serbia-quit-threat-euro-2024/
+
+**Climate Change Made Recent Brutal Mexican Heat Wave More Likely, Report Says**\
+`Extreme heat across parts of Central America and the Southern United States in May and early June was 35 times more likely because of human-caused global warming, according to a new report.`\
+https://nytimes.com/2024/06/20/climate/climate-change-mexico-heat-wave.html
+
+**European Sanctions Target Russian Liquefied Natural Gas for First Time**\
+`The European Union will impose economic penalties targeting some shipments of Russian natural gas, hoping to deprive Moscow of income.`\
+https://nytimes.com/2024/06/20/business/europe-sanctions-russia-natural-gas.html
+
 **Bank of England Holds Rates Steady, Despite Slower Inflation**\
 `Officials kept rates at their highest level since 2008 for a seventh consecutive meeting, even as inflation dipped to 2 percent in May.`\
 https://nytimes.com/2024/06/20/business/bank-of-england-interest-rates.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5570989/2024/06/20/inside-nhl-skills-practice/
 **Lionel Messi's 13 Copa America goals analysed (including that USMNT free kick)**\
 `He's scored 13 at Copa America already and wants to break a record this tournament. These are all his Copa goals analysed...`\
 https://nytimes.com/athletic/5304994/2024/06/20/lionel-messis-13-copa-america-goals/
-
-**New documentary details women's tournament that drew crowds 20 years before first World Cup**\
-`The film, which is out in the U.S. on June 21, tells the story of the unofficial women’s World Cup held in Mexico in 1971`\
-https://nytimes.com/athletic/5557349/2024/06/20/copa-71-womens-soccer-tournament-history/
-
-**The Daily Football Briefing podcast returns - with a new host**\
-`A long time ago at an international sports media outlet far far away, I was employed as a football writer.`\
-https://nytimes.com/athletic/5575371/2024/06/20/daily-football-briefing-podcast-host/
-
-**‘Hummingbirds’ Review: Two Friends’ Summer Along the Border**\
-`The young directors Silvia Del Carmen Castaños and Estefanía (Beba) Contreras stargaze, watch fireworks and discuss their lives in this documentary filmed in Laredo, Texas.`\
-https://nytimes.com/2024/06/20/movies/hummingbirds-review.html
 
