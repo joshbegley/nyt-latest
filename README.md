@@ -1,3 +1,7 @@
+**Quotation of the Day: When a Giant of the Game Became Mortal**\
+`Quotation of the Day for Thursday, June 20, 2024.`\
+https://nytimes.com/2024/06/20/pageoneplus/quotation-of-the-day-when-a-giant-of-the-game-became-mortal.html
+
 **Jimmy Fallon Mocks Kim Jong-un and Putin for Making Things Official**\
 `“Then they got a text from Trump that said, ‘Throuple?’” Fallon joked on Wednesday.`\
 https://nytimes.com/2024/06/20/arts/television/jimmy-fallon-north-korea-putin.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5577451/2024/06/20/jamal-musiala-germany-celebratio
 **Ancient Shipwreck Preserves a Deep Bronze Age Time Capsule**\
 `About a mile beneath the sea, the ship suggests that trade in the eastern Mediterranean Sea traveled much farther from the safety of land.`\
 https://nytimes.com/2024/06/20/science/shipwreck-bronze-age-israel.html
-
-**Three Red Sox takeaways: Short team meeting leads to sweep of Blue Jays**\
-`As Brayan Bello got back on track, the offense kept tearing it up in a 7-3 victory in Toronto.`\
-https://nytimes.com/athletic/5577633/2024/06/20/red-sox-sweep-blue-jays/
 
