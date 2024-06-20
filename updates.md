@@ -1,3 +1,11 @@
+**What I'm hearing about Guentzel, Penguins' draft, free agency**\
+`The Penguins have lots of needs and only $13 million in salary cap space as a crucial offseason heats up.`\
+https://nytimes.com/athletic/5575911/2024/06/20/penguins-jake-guentzel-free-agent/
+
+**High temperatures in Maine are stressing the state’s infrastructure and essential services.**\
+`By Sydney Cromwell`\
+https://nytimes.com/live/2024/06/20/us/heat-wave-news/high-temperatures-in-maine-are-stressing-the-states-infrastructure-and-essential-services
+
 **Supreme Court Allows Suit Over Arrest Said to Be Politically Motivated**\
 `Sylvia Gonzalez, a Texas city councilwoman, said officials violated the First Amendment by arresting her after she criticized the city manager.`\
 https://nytimes.com/2024/06/20/us/politics/supreme-court-sylvia-gonzalez-arrest-free-speech.html
