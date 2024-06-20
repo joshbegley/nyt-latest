@@ -1,3 +1,11 @@
+**Putin and Kim Deepen Their Friendship During State Visit**\
+`North Korea’s leader, Kim Jong-un, and Russia’s president, Vladimir V. Putin, played up their growing bond as they agreed to a mutual-defense pledge.`\
+https://nytimes.com/video/world/asia/100000009530909/putin-kim-north-korea-friendship.html
+
+**Ash Barty returns to tennis at Wimbledon for invitational doubles**\
+`The three-time Grand Slam champion and former world No. 1 will reunite with doubles partner Casey Dellacqua on the grass in London`\
+https://nytimes.com/athletic/5577764/2024/06/20/ash-barty-tennis-wimbledon-doubles/
+
 **Quotation of the Day: When a Giant of the Game Became Mortal**\
 `Quotation of the Day for Thursday, June 20, 2024.`\
 https://nytimes.com/2024/06/20/pageoneplus/quotation-of-the-day-when-a-giant-of-the-game-became-mortal.html

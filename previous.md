@@ -1,3 +1,11 @@
+**Putin and Kim Deepen Their Friendship During State Visit**\
+`North Korea’s leader, Kim Jong-un, and Russia’s president, Vladimir V. Putin, played up their growing bond as they agreed to a mutual-defense pledge.`\
+https://nytimes.com/video/world/asia/100000009530909/putin-kim-north-korea-friendship.html
+
+**Ash Barty returns to tennis at Wimbledon for invitational doubles**\
+`The three-time Grand Slam champion and former world No. 1 will reunite with doubles partner Casey Dellacqua on the grass in London`\
+https://nytimes.com/athletic/5577764/2024/06/20/ash-barty-tennis-wimbledon-doubles/
+
 **Quotation of the Day: When a Giant of the Game Became Mortal**\
 `Quotation of the Day for Thursday, June 20, 2024.`\
 https://nytimes.com/2024/06/20/pageoneplus/quotation-of-the-day-when-a-giant-of-the-game-became-mortal.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5577630/2024/06/20/yankees-warts-loss-orioles/
 **Scotland must not use population size as an excuse - there are other factors at play**\
 `Scotland have long struggled to make an impact at tournaments but other smaller nations have shown it can be done`\
 https://nytimes.com/athletic/5577048/2024/06/20/scotland-population-euro-2024/
-
-**Explained: Jamal Musiala and Carmelo Anthony's 'three to the dome' celebration**\
-`The Germany midfielder's celebration against Hungary evoked a certain Camelo Anthony...`\
-https://nytimes.com/athletic/5577451/2024/06/20/jamal-musiala-germany-celebration-carmelo-anthony/
-
-**Ancient Shipwreck Preserves a Deep Bronze Age Time Capsule**\
-`About a mile beneath the sea, the ship suggests that trade in the eastern Mediterranean Sea traveled much farther from the safety of land.`\
-https://nytimes.com/2024/06/20/science/shipwreck-bronze-age-israel.html
 
