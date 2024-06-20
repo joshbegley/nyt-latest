@@ -1,3 +1,11 @@
+**‘Smiling Friends’ Is a Deranged Blast**\
+`This warped Adult Swim animated series, streaming on Max, is so fast and feral it feels like its own highlight reel.`\
+https://nytimes.com/2024/06/20/arts/television/smiling-friends-max-streaming.html
+
+**Friedkin Group enter exclusivity talks to buy Everton**\
+`The Friedkin Group, the Texas-based owner of Italian side AS Roma, has entered a period of exclusivity to buy Everton.`\
+https://nytimes.com/athletic/5570229/2024/06/20/everton-takeover-friedkin-group/
+
 **Patriots, Stevenson agree to 4-year extension**\
 `The new deal is for four years and worth up to $36 million with $17 million guaranteed, per the reports.`\
 https://nytimes.com/athletic/5579262/2024/06/20/patriots-rhamondre-stevenson-extension/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/20/us/baseball-birmingham-mays-black-players.html
 **The Expanding Fake Electors Cases**\
 `Plus, news about the judge in the documents case.`\
 https://nytimes.com/2024/06/20/us/politics/trump-trial-fake-electors-cases.html
-
-**Inside the Lakers' decision to hire JJ Redick and how he shapes their future**\
-`Why the Lakers turned to JJ Redick, a first-time head coach, for their next phase.`\
-https://nytimes.com/athletic/5578883/2024/06/20/jj-redick-lakers-hire-inside-story/
-
-**Lakers, JJ Redick agree to 4-year deal to become next coach**\
-`Redick was considered the front-runner in league circles for most of the coaching search.`\
-https://nytimes.com/athletic/5573570/2024/06/20/jj-redick-lakers-coach-contract/
 
