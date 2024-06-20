@@ -1,3 +1,7 @@
+**What Donald Trump Talks About When He Talks About ‘Donald Trump’**\
+`When the former president refers to himself, there’s something he’s not saying.`\
+https://nytimes.com/2024/06/20/opinion/donald-trump-third-person-language.html
+
 **England have 'huge amount of work' to do - Southgate**\
 `Gareth Southgate admitted England have &#8220;a huge amount of work&#8221; to do after labouring to a draw with Denmark.`\
 https://nytimes.com/athletic/5579130/2024/06/20/england-denmark-gareth-southgate/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5579055/2024/06/20/sandy-baltimore-chelsea-psg-tran
 **N.Y. Prisons Have Ignored Limits on Solitary Confinement, Judge Finds**\
 `Legally, time in solitary confinement is limited to 15 days, and only if prison officials offer a detailed rationale. Lawyers say the requirements have been routinely disregarded.`\
 https://nytimes.com/2024/06/20/nyregion/new-york-state-prisons-solitary-limit.html
-
-**TV Weather Gets Political**\
-`On-air meteorologists have become a target in the culture wars as they report on the effects of climate change.`\
-https://nytimes.com/2024/06/20/climate/tv-weather-gets-political.html
 
