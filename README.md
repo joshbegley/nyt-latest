@@ -1,3 +1,15 @@
+**Large Storm Drenches Neighborhoods in Southern Texas**\
+`Alberto made landfall as a tropical storm on the northeastern coast of Mexico. Its effects extended into southern Texas with heavy rain and coastal flooding.`\
+https://nytimes.com/video/us/100000009531454/alberto-floods-texas.html
+
+**Nebraska adds depth at QB with former NAIA player of the year Jalyn Gramstad**\
+`Gramstad is transferring from NAIA Northwestern (Iowa) College for his final season of eligibility.`\
+https://nytimes.com/athletic/5579208/2024/06/20/nebraska-football-quarterbacks-jalyn-gramstad/
+
+**Browns DE Phelps arrested, charged with DUI in Florida**\
+`Phelps allegedly crashed his SUV into a restaurant in Key West, Fla., according to multiple reports.`\
+https://nytimes.com/athletic/5579119/2024/06/20/lonnie-phelps-arrest-dui/
+
 **The Hosts of Journalism’s Favorite Podcast Say Goodbye**\
 `After 12 years, Aaron Lammer, Max Linsky and Evan Ratliff will soon release the final episode of “Longform,” a podcast that unwittingly captured the shifts in the journalism and publishing industries.`\
 https://nytimes.com/2024/06/20/style/longform-podcast-says-goodbye.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5573570/2024/06/20/jj-redick-lakers-coach-contract/
 **French Business Leaders See Threat to Economy From Macron’s Opponents**\
 `Executives challenged the anti-immigration policies of the far-right candidate Jordan Bardella and spending plans by a left-wing coalition at a packed gathering in Paris.`\
 https://nytimes.com/2024/06/20/business/france-elections-economy.html
-
-**What Donald Trump Talks About When He Talks About ‘Donald Trump’**\
-`When the former president refers to himself, there’s something he’s not saying.`\
-https://nytimes.com/2024/06/20/opinion/donald-trump-third-person-language.html
-
-**England have 'huge amount of work' to do - Southgate**\
-`Gareth Southgate admitted England have &#8220;a huge amount of work&#8221; to do after labouring to a draw with Denmark.`\
-https://nytimes.com/athletic/5579130/2024/06/20/england-denmark-gareth-southgate/
-
-**New Home Construction Slows as Mortgage Rates Remain High**\
-`Home building in May fell to its slowest pace in four years despite a supply shortage. That trend could put even greater strain on buyers.`\
-https://nytimes.com/2024/06/20/business/economy/new-home-construction-mortgage-rates.html
 
