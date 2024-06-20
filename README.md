@@ -8,7 +8,7 @@ https://nytimes.com/live/2024/06/18/opinion/thepoint/donald-sutherland-death
 
 **Power Failure Brings Amtrak and N.J. Transit Trains to a Halt**\
 `Amid a heat wave, the shutdown affected all service along the Northeast Corridor, between Philadelphia and New Haven, Conn.`\
-https://nytimes.com/2024/06/20/nyregion/amtrak-njtransit-delays-power-failure.html
+https://nytimes.com/2024/06/20/nyregion/nj-transit-amtrak-delays-today.html
 
 **NCAA presents 72-, 76-team hoops tourney models**\
 `The Athletic reported in March that a 72- or 76-team tournament looked like the likeliest outcome for expansion from 68.`\
