@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5577189/2024/06/19/mlb-rickwood-willie-mays-negro-leagues/
 
 **Regan Smith is back atop the backstroke, just in time for the Olympics**\
-`Five years after Regan Smith announced her arrival with a world-record swim, she did it again Tuesday at the U.S. Olympic trials.`\
+`Five years after Smith announced her arrival with a world-record swim, she did it again Tuesday at the U.S. Olympic trials.`\
 https://nytimes.com/athletic/5577340/2024/06/19/regan-smith-olympics-backstroke/
 
 **Caeleb Dressel secures Olympic spot**\
