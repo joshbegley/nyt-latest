@@ -1,3 +1,7 @@
+**Patriots, Stevenson agree to 4-year extension**\
+`The new deal is for four years and worth up to $36 million with $17 million guaranteed, per the reports.`\
+https://nytimes.com/athletic/5579262/2024/06/20/patriots-rhamondre-stevenson-extension/
+
 **Large Storm Drenches Neighborhoods in Southern Texas**\
 `Alberto made landfall as a tropical storm on the northeastern coast of Mexico. Its effects extended into southern Texas with heavy rain and coastal flooding.`\
 https://nytimes.com/video/us/100000009531454/alberto-floods-texas.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5578883/2024/06/20/jj-redick-lakers-hire-inside-sto
 **Lakers, JJ Redick agree to 4-year deal to become next coach**\
 `Redick was considered the front-runner in league circles for most of the coaching search.`\
 https://nytimes.com/athletic/5573570/2024/06/20/jj-redick-lakers-coach-contract/
-
-**French Business Leaders See Threat to Economy From Macron’s Opponents**\
-`Executives challenged the anti-immigration policies of the far-right candidate Jordan Bardella and spending plans by a left-wing coalition at a packed gathering in Paris.`\
-https://nytimes.com/2024/06/20/business/france-elections-economy.html
 
