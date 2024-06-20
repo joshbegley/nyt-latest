@@ -1,3 +1,19 @@
+**‘Green Border’ Review: Migrants’ Elusive Race for Freedom**\
+`Agnieszka Holland focuses on the Polish-Belarusian border as a Syrian family tries to make it to the European Union.`\
+https://nytimes.com/2024/06/20/movies/green-border-review.html
+
+**Most New York City pools are still closed as temperatures soar.**\
+`By Alyce McFadden`\
+https://nytimes.com/live/2024/06/20/us/heat-wave-news/new-york-city-pools
+
+**A quiet administrative change advances a far-right Israeli minister’s effort to control the West Bank.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/06/20/world/israel-gaza-war-hamas/west-bank-settlers-israel
+
+**Shelton, Tiafoe, Korda to skip 2024 Paris Olympics**\
+`Taylor Fritz and Tommy Paul headline the U.S. men's Olympic team.`\
+https://nytimes.com/athletic/5578818/2024/06/20/us-tennis-players-olympics-not-attending/
+
 **All Hail the Scuttlebutt**\
 `And more excellent vegetarian sandwiches, like the HLT (halloumi, lettuce and tomato) and Superiority Burger’s crispy fried tofu.`\
 https://nytimes.com/2024/06/20/dining/all-hail-the-scuttlebutt.html
