@@ -1,5 +1,13 @@
+**SHR's Gene Haas creating new NASCAR team**\
+`Haas’ new NASCAR team called Haas Factory Team will field a single car in Cup and two cars in Xfinity for the 2025 NASCAR season.`\
+https://nytimes.com/athletic/5579534/2024/06/20/stewart-haas-racing-new-nascar-team/
+
+**Some schools near New York City dismissed students early.**\
+`By Tim Balk`\
+https://nytimes.com/live/2024/06/20/us/heat-wave-news/some-schools-near-new-york-city-dismissed-students-early
+
 **Suspect in 3 Killings Is Arrested in Arkansas After Manhunt**\
-`The man, Stacy Lee Drake, 50, faces two murder charges and one robbery charge in Sequoyah County, Okla. He also faces a murder charge in Tuscaloosa, Ala.`\
+`The man, Stacy Lee Drake, 50, faces two murder charges and one robbery charge in Sequoyah County, Okla. He also faces a murder count in Tuscaloosa, Ala.`\
 https://nytimes.com/2024/06/20/us/oklahoma-alabama-homicides-suspect-arrested-arkansas.html
 
 **Nearly Half the U.S. Began the Summer Sweltering**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/20/well/live/women-viagra-benefits.html
 **A Shared Lived Experience Fueled an Investigation on Hair Relaxers**\
 `To report on the dangers of hair straightening products, one writer recalled her childhood — and that of other Black women.`\
 https://nytimes.com/2024/06/20/insider/a-shared-lived-experience-fueled-an-investigation-on-hair-relaxers.html
-
-**Friday Briefing: Vladimir Putin Visits Vietnam**\
-`Also, a rift in Israel over the war in Gaza.`\
-https://nytimes.com/2024/06/20/world/asia/putin-vietnam-israel-gaza-asia.html
-
-**Putin Threatens to Arm North Korea, Escalating Tension With West Over Ukraine**\
-`The Russian leader issued the warning at the end of a trip to Asia, during which he signed a mutual defense pact with North Korea’s leader, Kim Jong-un.`\
-https://nytimes.com/2024/06/20/world/asia/putin-north-korea-weapons.html
 

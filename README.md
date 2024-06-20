@@ -1,3 +1,11 @@
+**Bulls, Thunder swap Caruso, Giddey in one-for-one trade**\
+`Caruso, 30, spent the past three seasons with the Bulls where he made two All-Defensive teams.`\
+https://nytimes.com/athletic/5579575/2024/06/20/thunder-acquire-alex-caruso-josh-giddey/
+
+**Amazon Says It Will Stop Using Puffy Plastic Shipping Pillows**\
+`They’ll be replaced in North America with paper packing, eliminating some 15 billion pillows a year. Plastic film is a major pollutant.`\
+https://nytimes.com/2024/06/20/climate/amazon-plastic-shipping-pillows.html
+
 **SHR's Gene Haas creating new NASCAR team**\
 `Haas’ new NASCAR team called Haas Factory Team will field a single car in Cup and two cars in Xfinity for the 2025 NASCAR season.`\
 https://nytimes.com/athletic/5579534/2024/06/20/stewart-haas-racing-new-nascar-team/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5579571/2024/06/20/penguins-alex-nedeljkovic-contra
 **Newark Schools Struggle to Keep Students Cool**\
 `Many buildings lack air conditioning, despite years of calls for improvements to old buildings.`\
 https://nytimes.com/2024/06/20/nyregion/newark-schools-heat-wave.html
-
-**Can Women Benefit From Viagra?**\
-`Research on how the drug affects female arousal is sparse. But doctors have been prescribing creams and pills anyway.`\
-https://nytimes.com/2024/06/20/well/live/women-viagra-benefits.html
-
-**A Shared Lived Experience Fueled an Investigation on Hair Relaxers**\
-`To report on the dangers of hair straightening products, one writer recalled her childhood — and that of other Black women.`\
-https://nytimes.com/2024/06/20/insider/a-shared-lived-experience-fueled-an-investigation-on-hair-relaxers.html
 
