@@ -1,3 +1,11 @@
+**Supreme Court Allows Suit Over Arrest Said to Be Politically Motivated**\
+`Sylvia Gonzalez, a Texas city councilwoman, said officials violated the First Amendment by arresting her after she criticized the city manager.`\
+https://nytimes.com/2024/06/20/us/politics/supreme-court-sylvia-gonzalez-arrest-free-speech.html
+
+**Barbara Gladstone, 89, Dies; Art Dealer With a Personal Touch and Global Reach**\
+`An art world power, she represented more than 70 artists and estates and ran two large exhibition spaces in Manhattan as well as offshoots abroad.`\
+https://nytimes.com/2024/06/20/arts/barbara-gladstone-dead.html
+
 **Mbappe on course to be available for Netherlands game**\
 `France captain Kylian Mbappe appears on course to be available for his side&#8217;s European Championship game against the Netherlands on Friday.`\
 https://nytimes.com/athletic/5572140/2024/06/20/kylian-mbappe-nose-injury-netherlands-euro-2024/
