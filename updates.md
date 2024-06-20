@@ -1,3 +1,7 @@
+**Quotation of the Day: When a Giant of the Game Became Mortal**\
+`Quotation of the Day for Thursday, June 20, 2024.`\
+https://nytimes.com/2024/06/20/pageoneplus/quotation-of-the-day-when-a-giant-of-the-game-became-mortal.html
+
 **Jimmy Fallon Mocks Kim Jong-un and Putin for Making Things Official**\
 `“Then they got a text from Trump that said, ‘Throuple?’” Fallon joked on Wednesday.`\
 https://nytimes.com/2024/06/20/arts/television/jimmy-fallon-north-korea-putin.html
