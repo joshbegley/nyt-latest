@@ -1,7 +1,3 @@
-**Euro 2024 day seven: Mbappe's mask, all square in Group C, Spain's ominous return to form**\
-`What happened on day seven of the European Championship in Germany`\
-https://nytimes.com/athletic/5579178/2024/06/20/day-seven-euro-2024-mbappe-mask/
-
 **Thousands in the Detroit suburbs remain without power after Wednesday’s storms.**\
 `By Kate Selig`\
 https://nytimes.com/live/2024/06/20/us/heat-wave-news/thousands-in-the-detroit-suburbs-remain-without-power-after-wednesdays-storms
@@ -37,4 +33,9 @@ https://nytimes.com/2024/06/20/us/joyjolt-glass-mug-recall.html
 **UEFA launches investigation into Albania and Croatia fan chants**\
 `UEFA has opened an investigation into Serbian claims that fans of Albania and Croatia chanted “kill, kill, kill the Serb” during their Group B game on Wednesday.`\
 https://nytimes.com/athletic/5579193/2024/06/20/uefa-croatia-albania-investigation-euro-2024/
+
+**The Briefing: Spain 1-0 Italy - Calafiori own goal settles 'European Clasico'**\
+`Meetings between Spain and Italy rarely disappoint — and this one was no exception. Here's our analysis of the big match in Group B
+`\
+https://nytimes.com/athletic/5572867/2024/06/20/spain-italy-euro2024-result-analysis-yamal-williams/
 
