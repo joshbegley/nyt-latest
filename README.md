@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5578912/2024/06/20/kylian-mbappe-mask-why-euro-2024
 https://nytimes.com/athletic/5578885/2024/06/20/fifa-rankings-copa-america/
 
 **Donald Sutherland, Star of ‘M*A*S*H’ and Much More, Dies at 88**\
-`Never anyone’s idea of a heartthrob, he had a chameleon-like ability to be endearing in one role, menacing in another and just plain odd in a third.`\
+`Never anyone’s idea of a heartthrob, he had a chameleonlike ability to be endearing in one role, menacing in another and just plain odd in a third.`\
 https://nytimes.com/2024/06/20/movies/donald-sutherland-dead.html
 
 **Daniel Suárez, who left Mexico to chase his NASCAR dreams, becomes a U.S. citizen**\
