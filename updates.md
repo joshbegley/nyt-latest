@@ -1,3 +1,7 @@
+**Scotland must not use population size as an excuse - there are other factors at play**\
+`Scotland have long struggled to make an impact at tournaments but other smaller nations have shown it can be done`\
+https://nytimes.com/athletic/5577048/2024/06/20/scotland-population-euro-2024/
+
 **Explained: Jamal Musiala and Carmelo Anthony's 'three to the dome' celebration**\
 `The Germany midfielder's celebration against Hungary evoked a certain Camelo Anthony...`\
 https://nytimes.com/athletic/5577451/2024/06/20/jamal-musiala-germany-celebration-carmelo-anthony/
