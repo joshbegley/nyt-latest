@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5578982/2024/06/20/england-euro-2024-mailbag/
 https://nytimes.com/2024/06/20/world/europe/french-election-antisemitism-jews.html
 
 **Koeman calls on Netherlands not to 'dwell' on Mbappe availability**\
-`Ronald Koeman emphasised that his side &#8220;cannot dwell&#8221; on whether Kylian Mbappe will play for France against the Netherlands, highlighting the importance of focusing on their own preparation.`\
+`Ronald Koeman emphasised that his side &#8220;can&#8217;t dwell&#8221; on whether Kylian Mbappe will play for France against the Netherlands, highlighting the importance of focusing on their own preparation.`\
 https://nytimes.com/athletic/5579023/2024/06/20/mbappe-koeman-netherlands-france/
 
 **Chelsea set to sign Baltimore from PSG**\
