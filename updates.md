@@ -1,3 +1,7 @@
+**Regan Smith is back atop the backstroke, just in time for the Olympics**\
+`Five years after Smith announced her arrival with a world-record swim, she did it again Tuesday at the U.S. Olympic trials.`\
+https://nytimes.com/athletic/5577340/2024/06/19/regan-smith-olympics-backstroke/
+
 **Postcard from Rickwood Field: MLB prepares to honor the Negro Leagues**\
 `Willie Mays' plaque was displayed on the field before Wednesday's celebrity softball game, where various athletes paid their respects.`\
 https://nytimes.com/athletic/5577189/2024/06/19/mlb-rickwood-willie-mays-negro-leagues/
