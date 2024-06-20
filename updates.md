@@ -1,3 +1,11 @@
+**Koeman calls on Netherlands not to 'dwell' on Mbappe availability**\
+`Ronald Koeman emphasised that his side &#8220;cannot dwell&#8221; on whether Kylian Mbappe will play for France against the Netherlands, highlighting the importance of focusing on their own preparation.`\
+https://nytimes.com/athletic/5579023/2024/06/20/mbappe-koeman-netherlands-france/
+
+**Chelsea set to sign Baltimore from PSG**\
+`Chelsea are set to sign France forward Sandy Baltimore on a free transfer from Paris Saint-Germain.`\
+https://nytimes.com/athletic/5579055/2024/06/20/sandy-baltimore-chelsea-psg-transfer/
+
 **N.Y. Prisons Have Ignored Limits on Solitary Confinement, Judge Finds**\
 `Legally, time in solitary confinement is limited to 15 days, and only if prison officials offer a detailed rationale. Lawyers say the requirements have been routinely disregarded.`\
 https://nytimes.com/2024/06/20/nyregion/new-york-state-prisons-solitary-limit.html

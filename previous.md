@@ -1,3 +1,11 @@
+**Koeman calls on Netherlands not to 'dwell' on Mbappe availability**\
+`Ronald Koeman emphasised that his side &#8220;cannot dwell&#8221; on whether Kylian Mbappe will play for France against the Netherlands, highlighting the importance of focusing on their own preparation.`\
+https://nytimes.com/athletic/5579023/2024/06/20/mbappe-koeman-netherlands-france/
+
+**Chelsea set to sign Baltimore from PSG**\
+`Chelsea are set to sign France forward Sandy Baltimore on a free transfer from Paris Saint-Germain.`\
+https://nytimes.com/athletic/5579055/2024/06/20/sandy-baltimore-chelsea-psg-transfer/
+
 **N.Y. Prisons Have Ignored Limits on Solitary Confinement, Judge Finds**\
 `Legally, time in solitary confinement is limited to 15 days, and only if prison officials offer a detailed rationale. Lawyers say the requirements have been routinely disregarded.`\
 https://nytimes.com/2024/06/20/nyregion/new-york-state-prisons-solitary-limit.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/20/climate/butterfly-declines-insecticides-monarch.h
 **​​Connor McDavid's Stanley Cup surge blowing away fellow NHL stars: 'Somehow, he's found another level'**\
 `Sidney Crosby: "It's incredible what he's doing." Steven Stamkos: "If there is a player to will his team back from a 0-3 hole, it's him!"`\
 https://nytimes.com/athletic/5577726/2024/06/20/nhl-stars-react-connor-mcdavid/
-
-**The Briefing: England 1-1 Denmark - Kane scores but struggles, England drop deep, Hjulmand wonder goal**\
-`Kane opened the scoring but couldn’t dictate England's play as Southgate's side drew with Denmark in their second game at Euro 2024`\
-https://nytimes.com/athletic/5572865/2024/06/20/england-denmark-euro-analysis-kane/
-
-**Thomas J. McCormack Dies at 92; Transformed St. Martin’s Press**\
-`He turned “an insignificant trade house” into a powerhouse, publishing best sellers like “The Silence of the Lambs” and “All Creatures Great and Small.”`\
-https://nytimes.com/2024/06/20/books/thomas-mccormack-dead.html
 
