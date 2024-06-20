@@ -2,7 +2,7 @@
 `The retailer is rolling out a chatbot to help workers answer questions from shoppers — and workers.`\
 https://nytimes.com/2024/06/20/business/target-retail-ai.html
 
-**The Briefing: Slovenia 1 Serbia 1: 96th minute Jovic equaliser leaves Group C in the balance**\
+**The Briefing: Slovenia 1 Serbia 1: 95th-minute Jovic equaliser leaves Group C in the balance**\
 `The key talking points from the Group C game between Slovenia and Serbia in Munich`\
 https://nytimes.com/athletic/5572863/2024/06/20/slovenia-serbia-euro-2024-result-analysis/
 

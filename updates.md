@@ -1,3 +1,7 @@
+**The Briefing: Slovenia 1 Serbia 1: 95th-minute Jovic equaliser leaves Group C in the balance**\
+`The key talking points from the Group C game between Slovenia and Serbia in Munich`\
+https://nytimes.com/athletic/5572863/2024/06/20/slovenia-serbia-euro-2024-result-analysis/
+
 **Qaeda Commander at Guantánamo Bay Is Sentenced for War Crimes**\
 `A U.S. military jury decided on a 30-year prison term. But under a plea deal, the prisoner’s sentence will end in 2032.`\
 https://nytimes.com/2024/06/20/us/politics/qaeda-commander-sentenced-guantanamo-bay.html
