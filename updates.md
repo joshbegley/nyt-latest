@@ -1,3 +1,7 @@
+**The armed forces’ chief spokesman goes public with frustration over Prime Minister Netanyahu’s failure to advance a plan for governing postwar Gaza.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/06/20/world/israel-gaza-war-hamas/unusually-blunt-comments-from-the-israeli-military-spokesman-bring-divisions-with-the-government-into-the-open
+
 **Serbia threaten to quit Euro 2024 over offensive chants**\
 `Serbia have threatened to quit Euro 2024 if European football’s governing body UEFA fails to punish Albania and Croatia for anti-Serb chants made by their fans during their 2-2 draw on Wednesday.`\
 https://nytimes.com/athletic/5578061/2024/06/20/serbia-quit-threat-euro-2024/
