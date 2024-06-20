@@ -1,3 +1,7 @@
+**The Windup: Remembering a true GOAT; ball/strike challenges are coming**\
+`Levi Weaver and Ken Rosenthal catch you up on leaguewide news.`\
+https://nytimes.com/athletic/5578723/2024/06/20/willie-mays-death-automated-strike-zone-the-windup/
+
 **What I'm hearing about Guentzel, Penguins' draft, free agency**\
 `The Penguins have lots of needs and only $13 million in salary cap space as a crucial offseason heats up.`\
 https://nytimes.com/athletic/5575911/2024/06/20/penguins-jake-guentzel-free-agent/
