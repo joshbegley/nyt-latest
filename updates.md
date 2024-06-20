@@ -1,3 +1,15 @@
+**Tropical Storm Alberto Brings Flooding to South Texas**\
+`Hours before the storm was expected to make landfall in Mexico, it brought heavy rain and coastal flooding to parts of eastern Mexico and southern Texas.`\
+https://nytimes.com/2024/06/19/weather/tropical-storm-alberto-floods-texas.html
+
+**Giants prepare for an emotional experience honoring Willie Mays at Rickwood Field**\
+`The Giants, still processing the loss of Mays, head to Rickwood with determination. "It's going to be a special, signature day."`\
+https://nytimes.com/athletic/5577261/2024/06/19/sf-giants-willie-mays-rickwood-field-preparation/
+
+**Ryan Garcia says he's 'officially retired'**\
+`"Boxing will be alright without me. But still sucks I was fun in the game," Garcia said. "And it was fun to punch people."`\
+https://nytimes.com/athletic/5577337/2024/06/19/ryan-garcia-retirement-posts/
+
 **Sean Murphy's two homers power a resurgent offense as Braves stay hot**\
 `Murphy went 4-for-4 with four RBIs and summed it up this way: “Having a day like that improves your mood.”`\
 https://nytimes.com/athletic/5577153/2024/06/19/braves-sean-murphy-reynaldo-lopez/
