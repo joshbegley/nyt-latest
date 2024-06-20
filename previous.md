@@ -1,3 +1,11 @@
+**West Ham fans react to price rises: 'I feel like the club I support doesn't want me there anymore'**\
+`The Athletic spoke to five fans about ticket price rises at London Stadium: 'I haven't told my son I can't afford it yet'`\
+https://nytimes.com/athletic/5573187/2024/06/20/west-ham-ticket-prices-fans-react/
+
+**Jack Grealish, mayonnaise and marketing mishaps - what happens when your star gets dropped?**\
+`England's Grealish, Marcus Rashford and Harry Maguire are all the face of brands' Euro 2024 ads, but none of them made the tournament`\
+https://nytimes.com/athletic/5573043/2024/06/20/jack-grealish-mayonnaise-and-marketing-mishaps-what-happens-when-your-star-gets-dropped/
+
 **From 'Bolo Boys' to 'Wolf Crew': The friendship groups in England's squad**\
 `The days when the national squad was riven with cliques are long gone under Gareth Southgate`\
 https://nytimes.com/athletic/5575590/2024/06/20/england-squad-euro-2024-friendships/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5576261/2024/06/20/arne-slot-liverpool-interview-tr
 **'Your legs have gone mate - you are not playing.' What is it like managing players older than you?**\
 `With 31-year-old Fabian Hurzeler taking over as Brighton boss, we take a look at how young managers have gone about their jobs in the past`\
 https://nytimes.com/athletic/5556240/2024/06/20/how-to-deal-with-being-a-young-football-manager/
-
-**Dear Michael Olise, this is why you should join (or stay) at my club**\
-`Michael Olise is interesting some of Europe's biggest clubs this summer — but where should he move?`\
-https://nytimes.com/athletic/5572212/2024/06/20/michael-olise-chelsea-bayern-munich-manchester-city/
-
-**Have other sports influenced Arsenal's rise? Rebounds, rotations and a pendulum defence**\
-`Arsenal have improved dramatically over Arteta's tenure. How much of an impact have sports other than football had in that?`\
-https://nytimes.com/athletic/5572113/2024/06/20/have-other-sports-influenced-arsenals-rise-rebounds-rotations-and-a-pendulum-defence/
 

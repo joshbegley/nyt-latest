@@ -1,3 +1,11 @@
+**West Ham fans react to price rises: 'I feel like the club I support doesn't want me there anymore'**\
+`The Athletic spoke to five fans about ticket price rises at London Stadium: 'I haven't told my son I can't afford it yet'`\
+https://nytimes.com/athletic/5573187/2024/06/20/west-ham-ticket-prices-fans-react/
+
+**Jack Grealish, mayonnaise and marketing mishaps - what happens when your star gets dropped?**\
+`England's Grealish, Marcus Rashford and Harry Maguire are all the face of brands' Euro 2024 ads, but none of them made the tournament`\
+https://nytimes.com/athletic/5573043/2024/06/20/jack-grealish-mayonnaise-and-marketing-mishaps-what-happens-when-your-star-gets-dropped/
+
 **From 'Bolo Boys' to 'Wolf Crew': The friendship groups in England's squad**\
 `The days when the national squad was riven with cliques are long gone under Gareth Southgate`\
 https://nytimes.com/athletic/5575590/2024/06/20/england-squad-euro-2024-friendships/
