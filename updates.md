@@ -38,6 +38,11 @@ https://nytimes.com/athletic/5572867/2024/06/20/spain-italy-euro2024-result-anal
 `\
 https://nytimes.com/athletic/5572867/2024/06/20/spain-italy-euro2024-result-analysis-yamal-williams/
 
+**The Briefing: Spain 1-0 Italy - Calafiori own goal settles 'European Clasico'**\
+`Meetings between Spain and Italy rarely disappoint — and this one was no exception. Here's our analysis of the big match in Group B
+`\
+https://nytimes.com/athletic/5572867/2024/06/20/spain-italy-euro2024-result-analysis-yamal-williams/
+
 **Newark Schools Struggle to Keep Students Cool**\
 `Many buildings lack air conditioning, despite years of calls for improvements to old buildings.`\
 https://nytimes.com/2024/06/20/nyregion/newark-schools-heat-wave.html
