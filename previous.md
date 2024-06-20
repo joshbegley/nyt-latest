@@ -27,7 +27,7 @@ https://nytimes.com/athletic/5578010/2024/06/20/ivan-toney-father/
 `The former Nottingham Forest manager has won the race for the Leicester job - in front of Graham Potter and Carlos Corberan`\
 https://nytimes.com/athletic/5576276/2024/06/20/leicester-new-manager-steve-cooper/
 
-**Leaping Leeches! Watch These Bloodsuckers Jump.**\
+**Videos Show That Leeches Can Jump in Pursuit of Blood**\
 `There has long been anecdotal evidence of the wormy creatures taking to the air, but videos recorded in Madagascar at last prove the animals’ acrobatics.`\
 https://nytimes.com/2024/06/20/science/jumping-leeches.html
 
