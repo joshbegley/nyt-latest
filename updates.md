@@ -1,3 +1,7 @@
+**NFL training camps 2024: Locations, reporting schedule for all 32 teams**\
+`The NFL has already announced the preseason schedule which kicks off with the Hall Of Fame Game between the Texans and Bears on Aug 1.`\
+https://nytimes.com/athletic/5578411/2024/06/20/nfl-training-camp-report-dates/
+
 **The Briefing: Slovenia 1 Serbia 1: 95th-minute Jovic equaliser leaves Group C in the balance**\
 `The key talking points from the Group C game between Slovenia and Serbia in Munich`\
 https://nytimes.com/athletic/5572863/2024/06/20/slovenia-serbia-euro-2024-result-analysis/
