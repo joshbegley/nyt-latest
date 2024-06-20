@@ -1,3 +1,15 @@
+**Lokiceratops, a Horned Dinosaur, May Be a New Species**\
+`Researchers analyzed a skull found in Montana of a plant-eating member of the ceratops family, finding distinct traits.`\
+https://nytimes.com/2024/06/20/science/horned-dinosaur-loki-montana.html
+
+**Inside Elon Musk’s Mission to Win Back Advertisers**\
+`The billionaire met with senior brand executives at the Cannes Lions advertising festival this week, after crudely telling them off last year.`\
+https://nytimes.com/2024/06/20/business/dealbook/musk-advertisers-x-cannes.html
+
+**3 Takeaways From Putin’s Trip to Vietnam**\
+`The state visit by President Vladimir V. Putin of Russia to Vietnam had a very different backdrop than his trip to North Korea, as Hanoi has deepened ties with Washington.`\
+https://nytimes.com/2024/06/20/world/asia/takeaways-putin-vietnam-visit.html
+
 **MLB Draft Combine notes: Bryce Rainer not feeling the pressure, Jack Findlay returns**\
 `Rainer hasn't completely ruled out pitching, though he is a top-10 talent as a shortstop. Plus, notes on bullpens and batting practices.`\
 https://nytimes.com/athletic/5577632/2024/06/20/mlb-draft-combine-notes-bryce-rainer-not-feeling-the-pressure-jack-findlay-returns/

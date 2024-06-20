@@ -1,3 +1,15 @@
+**Lokiceratops, a Horned Dinosaur, May Be a New Species**\
+`Researchers analyzed a skull found in Montana of a plant-eating member of the ceratops family, finding distinct traits.`\
+https://nytimes.com/2024/06/20/science/horned-dinosaur-loki-montana.html
+
+**Inside Elon Musk’s Mission to Win Back Advertisers**\
+`The billionaire met with senior brand executives at the Cannes Lions advertising festival this week, after crudely telling them off last year.`\
+https://nytimes.com/2024/06/20/business/dealbook/musk-advertisers-x-cannes.html
+
+**3 Takeaways From Putin’s Trip to Vietnam**\
+`The state visit by President Vladimir V. Putin of Russia to Vietnam had a very different backdrop than his trip to North Korea, as Hanoi has deepened ties with Washington.`\
+https://nytimes.com/2024/06/20/world/asia/takeaways-putin-vietnam-visit.html
+
 **MLB Draft Combine notes: Bryce Rainer not feeling the pressure, Jack Findlay returns**\
 `Rainer hasn't completely ruled out pitching, though he is a top-10 talent as a shortstop. Plus, notes on bullpens and batting practices.`\
 https://nytimes.com/athletic/5577632/2024/06/20/mlb-draft-combine-notes-bryce-rainer-not-feeling-the-pressure-jack-findlay-returns/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/06/20/world/israel-gaza-war-hamas/unusually-blunt-
 **Rob Ryan enjoying being back with Raiders — and being part of 'a great defense'**\
 `The veteran assistant coach is having fun in his return to the Raiders as he helps shape what he thinks can be an excellent unit.`\
 https://nytimes.com/athletic/5574270/2024/06/20/rob-ryan-las-vegas-raiders-defense/
-
-**Why Broncos linebacker Nik Bonitto could be key to pass-rush renaissance**\
-`Young linebacker saw his production spike with a greater opportunity last season, and he's searching for ways to add to his game in Year 3.`\
-https://nytimes.com/athletic/5572382/2024/06/20/nik-bonitto-broncos-linebacker/
-
-**Ready … set … gone! Why tailback Isaac Guerendo is so enticing to the 49ers**\
-`The rookie has a lot of similarities to a runner who scored 21 touchdowns last season. No, not Christian McCaffrey — Raheem Mostert.`\
-https://nytimes.com/athletic/5559095/2024/06/20/49ers-isaac-guerendo-rookie-running-back/
-
-**Inside an NHL summer skills practice: When the season ends, the work to improve begins**\
-`Skipping the beach and focusing on repetition of seemingly simple drills can give players a big leg up: "It’s an investment in yourself."`\
-https://nytimes.com/athletic/5570989/2024/06/20/inside-nhl-skills-practice/
 

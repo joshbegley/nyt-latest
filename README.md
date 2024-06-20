@@ -1,6 +1,14 @@
+**Here’s what to know about the heat.**\
+`By Andy Newman`\
+https://nytimes.com/live/2024/06/20/us/heat-wave-news/heres-what-to-know-about-the-heat
+
 **Lokiceratops, a Horned Dinosaur, May Be a New Species**\
 `Researchers analyzed a skull found in Montana of a plant-eating member of the ceratops family, finding distinct traits.`\
 https://nytimes.com/2024/06/20/science/horned-dinosaur-loki-montana.html
+
+**Germany are showing that Nagelsmann has quickly learned the art of international management**\
+`Germany's setup gets the best out of the players they have and is putting them in a strong position to succeed at the Euros`\
+https://nytimes.com/athletic/5577874/2024/06/20/germany-nageslmann-tactics-euros/
 
 **Inside Elon Musk’s Mission to Win Back Advertisers**\
 `The billionaire met with senior brand executives at the Cannes Lions advertising festival this week, after crudely telling them off last year.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/20/business/europe-sanctions-russia-natural-gas.html
 **Bank of England Holds Rates Steady, Despite Slower Inflation**\
 `Officials kept rates at their highest level since 2008 for a seventh consecutive meeting, even as inflation dipped to 2 percent in May.`\
 https://nytimes.com/2024/06/20/business/bank-of-england-interest-rates.html
-
-**The armed forces’ chief spokesman goes public with frustration over Prime Minister Netanyahu’s failure to advance a plan for governing postwar Gaza.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/06/20/world/israel-gaza-war-hamas/unusually-blunt-comments-from-the-israeli-military-spokesman-bring-divisions-with-the-government-into-the-open
-
-**Rob Ryan enjoying being back with Raiders — and being part of 'a great defense'**\
-`The veteran assistant coach is having fun in his return to the Raiders as he helps shape what he thinks can be an excellent unit.`\
-https://nytimes.com/athletic/5574270/2024/06/20/rob-ryan-las-vegas-raiders-defense/
 
