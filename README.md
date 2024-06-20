@@ -1,3 +1,11 @@
+**Thousands in the Detroit suburbs remain without power after Wednesday’s storms.**\
+`By Kate Selig`\
+https://nytimes.com/live/2024/06/20/us/heat-wave-news/thousands-in-the-detroit-suburbs-remain-without-power-after-wednesdays-storms
+
+**Penguins re-sign Nedeljkovic: What does it mean for Jarry?**\
+`Let the trade talk begin.`\
+https://nytimes.com/athletic/5579571/2024/06/20/penguins-alex-nedeljkovic-contract/
+
 **Newark Schools Struggle to Keep Students Cool**\
 `Many buildings lack air conditioning, despite years of calls for improvements to old buildings.`\
 https://nytimes.com/2024/06/20/nyregion/newark-schools-heat-wave.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/5579193/2024/06/20/uefa-croatia-albania-investigati
 `Meetings between Spain and Italy rarely disappoint — and this one was no exception. Here's our analysis of the big match in Group B
 `\
 https://nytimes.com/athletic/5572867/2024/06/20/spain-italy-euro2024-result-analysis-yamal-williams/
-
-**James Chance, No Wave and Punk-Funk Pioneer, Dies at 71**\
-`With the Contortions and James White and the Blacks, the songwriter and saxophonist set out to challenge musicians and stir up audiences.`\
-https://nytimes.com/2024/06/20/arts/music/james-chance-dead.html
-
-**Melinda French Gates Says She Will Vote for Biden**\
-`She avoided endorsements in the past, saying they could compromise her philanthropic work with politicians.`\
-https://nytimes.com/2024/06/20/us/politics/biden-melinda-french-gates-endorse.html
 
