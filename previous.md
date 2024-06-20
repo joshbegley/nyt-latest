@@ -1,3 +1,15 @@
+**All Hail the Scuttlebutt**\
+`And more excellent vegetarian sandwiches, like the HLT (halloumi, lettuce and tomato) and Superiority Burger’s crispy fried tofu.`\
+https://nytimes.com/2024/06/20/dining/all-hail-the-scuttlebutt.html
+
+**7 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/06/20/books/review/new-books-recommendations.html
+
+**Phoenix is sizzling today, too. But here is why cities in the Northeast may be more worrisome.**\
+`By Kate Selig`\
+https://nytimes.com/live/2024/06/20/us/heat-wave-news/phoenix-is-sizzling-today-too-but-here-is-why-cities-in-the-northeast-may-be-more-worrisome
+
 **The Windup: Remembering a true GOAT; ball/strike challenges are coming**\
 `Levi Weaver and Ken Rosenthal catch you up on leaguewide news.`\
 https://nytimes.com/athletic/5578723/2024/06/20/willie-mays-death-automated-strike-zone-the-windup/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5572140/2024/06/20/kylian-mbappe-nose-injury-nether
 **J.D. Vance’s Claims About the 2020 Election**\
 `Responses to Ross Douthat’s interview with Senator Vance. Also: Clarence Thomas and the Supreme Court’s reputation; hair loss; a perplexing headline.`\
 https://nytimes.com/2024/06/20/opinion/j-d-vance-2020-election.html
-
-**Lewandowski facing late fitness test before Austria game**\
-`Robert Lewandowski faces a late fitness test before his Poland side face Austria in their second group game at the European Championship.`\
-https://nytimes.com/athletic/5578697/2024/06/20/robert-lewandowski-injury-poland-euro-2024/
-
-**Donald Trump Is You! And You! And You!**\
-`Audaciously and laughably, a playboy plutocrat turns himself into Everyman.`\
-https://nytimes.com/2024/06/20/opinion/donald-trump-everyman.html
-
-**The 40 Best Songs of 2024 (So Far)**\
-`Our critics select 33 standouts from our weekly Playlists — and seven more tracks they had missed.`\
-https://nytimes.com/2024/06/20/arts/music/best-songs-2024-so-far.html
 

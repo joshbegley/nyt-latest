@@ -1,3 +1,15 @@
+**All Hail the Scuttlebutt**\
+`And more excellent vegetarian sandwiches, like the HLT (halloumi, lettuce and tomato) and Superiority Burger’s crispy fried tofu.`\
+https://nytimes.com/2024/06/20/dining/all-hail-the-scuttlebutt.html
+
+**7 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/06/20/books/review/new-books-recommendations.html
+
+**Phoenix is sizzling today, too. But here is why cities in the Northeast may be more worrisome.**\
+`By Kate Selig`\
+https://nytimes.com/live/2024/06/20/us/heat-wave-news/phoenix-is-sizzling-today-too-but-here-is-why-cities-in-the-northeast-may-be-more-worrisome
+
 **The Windup: Remembering a true GOAT; ball/strike challenges are coming**\
 `Levi Weaver and Ken Rosenthal catch you up on leaguewide news.`\
 https://nytimes.com/athletic/5578723/2024/06/20/willie-mays-death-automated-strike-zone-the-windup/
