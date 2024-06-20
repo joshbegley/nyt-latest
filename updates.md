@@ -1,3 +1,7 @@
+**Supreme Court Upholds Trump-Era Tax Provision**\
+`The tax dispute, which was closely watched by experts, involved a one-time foreign income tax, but many saw it as a broader challenge to pre-emptively block Congress from passing a wealth tax.`\
+https://nytimes.com/2024/06/20/us/politics/supreme-court-tax-case-trump.html
+
 **Police investigating theft of Toney's father's watch from Euro 2024 hotel**\
 `Dusseldorf Police are investigating a complaint that Ivan Toney’s father had his watch stolen during the weekend of England’s opening group-stage win over Serbia on June 16.`\
 https://nytimes.com/athletic/5578010/2024/06/20/ivan-toney-father/
