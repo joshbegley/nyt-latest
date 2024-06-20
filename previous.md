@@ -1,40 +1,40 @@
-**AIPAC Unleashes a Record $14.5 Million Bid to Defeat an Anti-Israel Foe**\
+**Donald Sutherland, Generational Chameleon**\
+`He came into his career in an era when character actors were leading men.`\
+https://nytimes.com/live/2024/06/18/opinion/thepoint/donald-sutherland-death
+
+**Power Failure Brings Amtrak and N.J. Transit Trains to a Halt**\
+`Amid a heat wave, the shutdown affected all service along the Northeast Corridor, between Philadelphia and New Haven, Conn.`\
+https://nytimes.com/2024/06/20/nyregion/amtrak-njtransit-delays-power-failure.html
+
+**NCAA presents 72-, 76-team hoops tourney models**\
+`The Athletic reported in March that a 72- or 76-team tournament looked like the likeliest outcome for expansion from 68.`\
+https://nytimes.com/athletic/5579121/2024/06/20/ncaa-tournament-expansion-model-basketball/
+
+**Donald Sutherland Didn’t Disappear Into Roles, and That Was a Good Thing**\
+`The actor understood the range of human feeling, but he came of age when movies distrusted institutions, and that suspicion was part of his arsenal.`\
+https://nytimes.com/2024/06/20/movies/donald-sutherland-movies.html
+
+**Southgate and Kane criticise 'tough pitch' for England vs Denmark**\
+`Gareth Southgate and Harry Kane were both critical of the pitch after England’s 1-1 draw against Denmark in Frankfurt.`\
+https://nytimes.com/athletic/5578740/2024/06/20/england-denmark-field/
+
+**Netanyahu’s comments are ‘deeply disappointing,’ the White House says.**\
+`By Daniel Victor and Erica L. Green`\
+https://nytimes.com/live/2024/06/20/world/israel-gaza-war-hamas/netanyahus-comments-are-deeply-disappointing-the-white-house-says
+
+**For Judge in Trump Documents Case, Unusual Rulings Are Business as Usual**\
+`Judge Aileen Cannon has repeatedly proven willing to hear out even far-fetched arguments from the former president’s legal team, including a challenge to the appointment of the special counsel, Jack Smith.`\
+https://nytimes.com/2024/06/20/us/politics/trump-documents-case-unusual-rulings.html
+
+**It can be harder to beat the heat in rural parts of the country.**\
+`By Dionne Searcey`\
+https://nytimes.com/live/2024/06/20/us/heat-wave-news/it-can-be-harder-to-beat-the-heat-in-rural-parts-of-the-country
+
+**AIPAC Unleashes a Record $14.5 Million Bid to Defeat a Critic of Israel**\
 `The deluge in outside spending, which also includes another $1 million from another pro-Israel group, threatens to sink Representative Jamaal Bowman.`\
 https://nytimes.com/2024/06/20/nyregion/aipac-bowman-latimer.html
 
 **A Lakeside Castle Hotel in the Austrian Alps**\
 `Plus: art about office life, colorful rope rugs — and more.`\
 https://nytimes.com/2024/06/20/t-magazine/rosewood-schloss-fuschl-austria-alps-hotel.html
-
-**William Goines, First Black Navy SEAL, Dies at 87**\
-`He overcame segregation at home and in the military to serve three tours in Vietnam as a member of the storied special operations unit.`\
-https://nytimes.com/2024/06/20/us/william-goines-dead.html
-
-**I.R.S. Extends Freeze of Pandemic-Era Tax Credit Amid Widespread Fraud**\
-`An internal analysis conducted by the agency found that up to 90 percent of claims are potentially fraudulent.`\
-https://nytimes.com/2024/06/20/us/politics/irs-pandemic-tax-credit-fraud.html
-
-**It’s Sandwich Week!**\
-`Here’s how our grand survey of sandwiches in all five boroughs came to be, plus some staff favorites.`\
-https://nytimes.com/2024/06/20/dining/its-sandwich-week.html
-
-**‘Smiling Friends’ Is a Deranged Blast**\
-`This warped Adult Swim animated series, streaming on Max, is so fast and feral it feels like its own highlight reel.`\
-https://nytimes.com/2024/06/20/arts/television/smiling-friends-max-streaming.html
-
-**Friedkin Group enter exclusivity talks to buy Everton**\
-`The Friedkin Group, the Texas-based owner of Italian side AS Roma, has entered a period of exclusivity to buy Everton.`\
-https://nytimes.com/athletic/5570229/2024/06/20/everton-takeover-friedkin-group/
-
-**Patriots, Stevenson agree to 4-year extension**\
-`The new deal is for four years and worth up to $36 million with $17 million guaranteed, per the reports.`\
-https://nytimes.com/athletic/5579262/2024/06/20/patriots-rhamondre-stevenson-extension/
-
-**Large Storm Drenches Neighborhoods in Southern Texas**\
-`Alberto made landfall as a tropical storm on the northeastern coast of Mexico. Its effects extended into southern Texas with heavy rain and coastal flooding.`\
-https://nytimes.com/video/us/100000009531454/alberto-floods-texas.html
-
-**Nebraska adds depth at QB with former NAIA player of the year Jalyn Gramstad**\
-`Gramstad is transferring from NAIA Northwestern (Iowa) College for his final season of eligibility.`\
-https://nytimes.com/athletic/5579208/2024/06/20/nebraska-football-quarterbacks-jalyn-gramstad/
 
