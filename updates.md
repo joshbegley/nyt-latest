@@ -1,3 +1,11 @@
+**Judy Garland Museum Is Raising Money to Bid on Stolen Ruby Slippers**\
+`The famed slippers, valued at $3.5 million, were stolen from the museum in Garland’s hometown in Minnesota in 2005 and recovered in 2018. Now, the museum hopes to buy them at an auction in December.`\
+https://nytimes.com/2024/06/20/us/judy-garland-hometown-oz-ruby-slippers.html
+
+**For firefighter recruits in Indianapolis, a much sweatier training day.**\
+`By Casey Patrick`\
+https://nytimes.com/live/2024/06/20/us/heat-wave-news/for-firefighter-recruits-in-indianapolis-a-much-sweatier-training-day
+
 **Thousands in Detroit Suburbs Still Lack Power After Wednesday’s Storms**\
 `The energy company that serves the area said it had restored power for about half of the 69,000 customers who lost it Wednesday night.`\
 https://nytimes.com/2024/06/20/us/detroit-michigan-power-storms-heat.html
