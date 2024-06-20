@@ -1,3 +1,19 @@
+**Southgate explains Kane substitution against Denmark**\
+`Gareth Southgate says Harry Kane&#8217;s substitution during their 1-1 draw with Denmark at the European Championship was because England &#8220;needed energy&#8221;.`\
+https://nytimes.com/athletic/5578967/2024/06/20/harry-kane-england-sub-southgate/
+
+**Major League Baseball Came to Birmingham. Then Willie Mays Died.**\
+`Baseball hopes a celebration of its past in the home of one of its legends will attract more African American athletes, who are playing the sport in decreasing numbers.`\
+https://nytimes.com/2024/06/20/us/baseball-birmingham-mays-black-players.html
+
+**The Expanding Fake Electors Cases**\
+`Plus, news about the judge in the documents case.`\
+https://nytimes.com/2024/06/20/us/politics/trump-trial-fake-electors-cases.html
+
+**Inside the Lakers' decision to hire JJ Redick and how he shapes their future**\
+`Why the Lakers turned to JJ Redick, a first-time head coach, for their next phase.`\
+https://nytimes.com/athletic/5578883/2024/06/20/jj-redick-lakers-hire-inside-story/
+
 **Lakers, JJ Redick agree to 4-year deal to become next coach**\
 `Redick was considered the front-runner in league circles for most of the coaching search.`\
 https://nytimes.com/athletic/5573570/2024/06/20/jj-redick-lakers-coach-contract/

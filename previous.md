@@ -1,3 +1,19 @@
+**Southgate explains Kane substitution against Denmark**\
+`Gareth Southgate says Harry Kane&#8217;s substitution during their 1-1 draw with Denmark at the European Championship was because England &#8220;needed energy&#8221;.`\
+https://nytimes.com/athletic/5578967/2024/06/20/harry-kane-england-sub-southgate/
+
+**Major League Baseball Came to Birmingham. Then Willie Mays Died.**\
+`Baseball hopes a celebration of its past in the home of one of its legends will attract more African American athletes, who are playing the sport in decreasing numbers.`\
+https://nytimes.com/2024/06/20/us/baseball-birmingham-mays-black-players.html
+
+**The Expanding Fake Electors Cases**\
+`Plus, news about the judge in the documents case.`\
+https://nytimes.com/2024/06/20/us/politics/trump-trial-fake-electors-cases.html
+
+**Inside the Lakers' decision to hire JJ Redick and how he shapes their future**\
+`Why the Lakers turned to JJ Redick, a first-time head coach, for their next phase.`\
+https://nytimes.com/athletic/5578883/2024/06/20/jj-redick-lakers-hire-inside-story/
+
 **Lakers, JJ Redick agree to 4-year deal to become next coach**\
 `Redick was considered the front-runner in league circles for most of the coaching search.`\
 https://nytimes.com/athletic/5573570/2024/06/20/jj-redick-lakers-coach-contract/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/06/20/business/economy/new-home-construction-mortgage-r
 **Trump Will Get the Last Word in the Debate, While Biden Picks His Podium**\
 `A coin flip won by President Biden gave him the option of picking which podium he will use or choosing the order of closing statements.`\
 https://nytimes.com/2024/06/20/us/politics/trump-biden-debate-last-word.html
-
-**TikTok Lays Out Past Efforts to Address U.S. Concerns**\
-`The company said the disclosures support its argument that a law signed by President Biden in May is unconstitutional.`\
-https://nytimes.com/2024/06/20/business/media/tiktok-ban-biden.html
-
-**Angry about England? Send us your questions**\
-`Why so safety-first? Should Palmer be playing? What's happening on the left? Ask your questions about England's Euros campaign`\
-https://nytimes.com/athletic/5578982/2024/06/20/england-euro-2024-mailbag/
-
-**French Election Becomes ‘Nightmare’ for Nation’s Jews**\
-`The alleged rape of a 12-year-old Jewish girl is inflaming an already tense and divisive situation.`\
-https://nytimes.com/2024/06/20/world/europe/french-election-antisemitism-jews.html
-
-**Koeman calls on Netherlands not to 'dwell' on Mbappe availability**\
-`Ronald Koeman emphasised that his side &#8220;can&#8217;t dwell&#8221; on whether Kylian Mbappe will play for France against the Netherlands, highlighting the importance of focusing on their own preparation.`\
-https://nytimes.com/athletic/5579023/2024/06/20/mbappe-koeman-netherlands-france/
 
