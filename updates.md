@@ -1,3 +1,11 @@
+**Melinda French Gates Says She Will Vote for Biden**\
+`She avoided endorsements in the past, saying they could compromise her philanthropic work with politicians.`\
+https://nytimes.com/2024/06/20/us/politics/biden-melinda-french-gates-endorse.html
+
+**Power Failure Brings Amtrak and N.J. Transit Trains to a Halt**\
+`Amid a heat wave, the shutdown affected all service along the Northeast Corridor, between Philadelphia and New Haven, Conn.`\
+https://nytimes.com/2024/06/20/nyregion/nj-transit-amtrak-delays-today.html
+
 **Donald Sutherland, Generational Chameleon**\
 `He came into his career in an era when character actors were leading men.`\
 https://nytimes.com/live/2024/06/18/opinion/thepoint/donald-sutherland-death
