@@ -1,3 +1,15 @@
+**Large Storm Drenches Neighborhoods in Southern Texas**\
+`Alberto made landfall as a tropical storm on the northeastern coast of Mexico. Its effects extended into southern Texas with heavy rain and coastal flooding.`\
+https://nytimes.com/video/us/100000009531454/alberto-floods-texas.html
+
+**Nebraska adds depth at QB with former NAIA player of the year Jalyn Gramstad**\
+`Gramstad is transferring from NAIA Northwestern (Iowa) College for his final season of eligibility.`\
+https://nytimes.com/athletic/5579208/2024/06/20/nebraska-football-quarterbacks-jalyn-gramstad/
+
+**Browns DE Phelps arrested, charged with DUI in Florida**\
+`Phelps allegedly crashed his SUV into a restaurant in Key West, Fla., according to multiple reports.`\
+https://nytimes.com/athletic/5579119/2024/06/20/lonnie-phelps-arrest-dui/
+
 **The Hosts of Journalism’s Favorite Podcast Say Goodbye**\
 `After 12 years, Aaron Lammer, Max Linsky and Evan Ratliff will soon release the final episode of “Longform,” a podcast that unwittingly captured the shifts in the journalism and publishing industries.`\
 https://nytimes.com/2024/06/20/style/longform-podcast-says-goodbye.html
