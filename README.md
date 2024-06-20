@@ -1,5 +1,5 @@
 **The Briefing: England 1-1 Denmark - Kane scores but struggles, England drop deep, Hjulmand wonder goal**\
-`Kane opened the scoring but struggled to influence England's play, as Southgate's side drew with Denmark in their second game at Euro 2024`\
+`Kane opened the scoring but couldn’t dictate England's play as Southgate's side drew with Denmark in their second game at Euro 2024`\
 https://nytimes.com/athletic/5572865/2024/06/20/england-denmark-euro-analysis-kane/
 
 **Thomas J. McCormack Dies at 94; Transformed St. Martin’s Press**\
