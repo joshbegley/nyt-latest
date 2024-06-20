@@ -1,3 +1,7 @@
+**NBA Player Tiers: Victor Wembanyama joins Tier 2's All-Stars and All-NBA contenders**\
+`This is the level where everyone listed could be the best player on a title team next year with the right roster around them.`\
+https://nytimes.com/athletic/5575511/2024/06/20/nba-player-tiers-victor-wembanyama-jalen-brunson-anthony-edwards-all-star/
+
 **Inside Connor McDavid's record-breaking playofs, by the numbers**\
 `McDavid has rewritten parts of the NHL's record book over the last two months. And he might not be done yet.`\
 https://nytimes.com/athletic/5577165/2024/06/20/connor-mcdavid-stats-playoffs-records/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/20/crosswords/wordle-review-1098.html
 **The Connections Companion No. 376, June 21, 2024**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/06/20/crosswords/connections-companion-376.html
-
-**Four Chicago Cubs takeaways: The non-controversy at closer, Kyle Hendricks’ reset and more**\
-`Ben Brown might be a lot closer to returning; catcher Miguel Amaya still has a lot to prove. `\
-https://nytimes.com/athletic/5577473/2024/06/20/chicago-cubs-takeaways-hector-neris/
 
