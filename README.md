@@ -26,7 +26,7 @@ https://nytimes.com/2024/06/20/briefing/heat-wave-east-tax-case-supreme-court.ht
 `What happened on day seven of the European Championship in Germany`\
 https://nytimes.com/athletic/5579178/2024/06/20/day-seven-euro-2024-mbappe-mask/
 
-**Thousands in the Detroit suburbs remain without power after Wednesday’s storms.**\
+**Thousands in Detroit Suburbs Still Lack Power After Wednesday’s Storms**\
 `The energy company that serves the area said it had restored power for about half of the 69,000 customers who lost it Wednesday night.`\
 https://nytimes.com/2024/06/20/us/detroit-michigan-power-storms-heat.html
 
