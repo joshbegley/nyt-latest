@@ -1,3 +1,7 @@
+**Nearly 100 Million Under Temperature Advisories as Heat Wave Lingers**\
+`The heat is expected to peak over the weekend in the Northeast, but not until early next week in the South and the Great Plains, according to the National Weather Service.`\
+https://nytimes.com/2024/06/20/us/heat-wave-temperatures-weather.html
+
 **Gunshot Detection System Wastes N.Y.P.D. Officers’ Time, Audit Finds**\
 `In June of last year, only 13 percent of ShotSpotter alerts were actually gunfire, according to Comptroller Brad Lander.`\
 https://nytimes.com/2024/06/20/nyregion/nypd-shotspotter-guns.html

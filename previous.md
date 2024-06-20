@@ -1,3 +1,7 @@
+**Nearly 100 Million Under Temperature Advisories as Heat Wave Lingers**\
+`The heat is expected to peak over the weekend in the Northeast, but not until early next week in the South and the Great Plains, according to the National Weather Service.`\
+https://nytimes.com/2024/06/20/us/heat-wave-temperatures-weather.html
+
 **Gunshot Detection System Wastes N.Y.P.D. Officers’ Time, Audit Finds**\
 `In June of last year, only 13 percent of ShotSpotter alerts were actually gunfire, according to Comptroller Brad Lander.`\
 https://nytimes.com/2024/06/20/nyregion/nypd-shotspotter-guns.html
@@ -29,12 +33,4 @@ https://nytimes.com/athletic/5579575/2024/06/20/thunder-acquire-alex-caruso-josh
 **Amazon Says It Will Stop Using Puffy Plastic Shipping Pillows**\
 `They’ll be replaced in North America with paper packing, eliminating some 15 billion pillows a year. Plastic film is a major pollutant.`\
 https://nytimes.com/2024/06/20/climate/amazon-plastic-shipping-pillows.html
-
-**SHR's Gene Haas creating new NASCAR team**\
-`Haas’ new NASCAR team called Haas Factory Team will field a single car in Cup and two cars in Xfinity for the 2025 NASCAR season.`\
-https://nytimes.com/athletic/5579534/2024/06/20/stewart-haas-racing-new-nascar-team/
-
-**Some schools near New York City dismissed students early.**\
-`By Tim Balk`\
-https://nytimes.com/live/2024/06/20/us/heat-wave-news/some-schools-near-new-york-city-dismissed-students-early
 
