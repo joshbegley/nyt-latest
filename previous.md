@@ -1,3 +1,7 @@
+**Chelsea open talks with Boca over Anselmino deal**\
+`Chelsea have opened talks with Boca Juniors over the signing of defender Aaron Anselmino.`\
+https://nytimes.com/athletic/5578387/2024/06/20/chelsea-aaron-anselmino-transfer/
+
 **Scoop City: Two stars still seeking deals**\
 `A look at the contract situations of Brandon Aiyuk and Matthew Stafford, plus the most interesting coaching hires of the 2024 cycle.`\
 https://nytimes.com/athletic/5578334/2024/06/20/aiyuk-and-stafford-negotiations-scoop-city/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5571609/2024/06/20/nba-mock-draft-hawks-donovan-cli
 **Word of the Day: proximity**\
 `This word has appeared in 468 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/06/20/learning/word-of-the-day-proximity.html
-
-**Is this Sha'Carri Richardson's time? After lost Olympic shot, the sprint star is back**\
-`After a positive marijuana test kept her off the Tokyo Olympic team, Sha'Carri Richardson returns to the U.S. trials ready for superstardom.`\
-https://nytimes.com/athletic/5577563/2024/06/20/shacarri-richardson-olympics-trials-100-meter/
 

@@ -1,3 +1,7 @@
+**Chelsea open talks with Boca over Anselmino deal**\
+`Chelsea have opened talks with Boca Juniors over the signing of defender Aaron Anselmino.`\
+https://nytimes.com/athletic/5578387/2024/06/20/chelsea-aaron-anselmino-transfer/
+
 **Scoop City: Two stars still seeking deals**\
 `A look at the contract situations of Brandon Aiyuk and Matthew Stafford, plus the most interesting coaching hires of the 2024 cycle.`\
 https://nytimes.com/athletic/5578334/2024/06/20/aiyuk-and-stafford-negotiations-scoop-city/
