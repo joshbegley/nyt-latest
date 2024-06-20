@@ -1,3 +1,11 @@
+**England have 'huge amount of work' to do - Southgate**\
+`Gareth Southgate admitted England have &#8220;a huge amount of work&#8221; to do after labouring to a draw with Denmark.`\
+https://nytimes.com/athletic/5579130/2024/06/20/england-denmark-gareth-southgate/
+
+**Koeman calls on Netherlands not to 'dwell' on Mbappe availability**\
+`Ronald Koeman emphasised that his side &#8220;can&#8217;t dwell&#8221; on whether Kylian Mbappe will play for France against the Netherlands, highlighting the importance of focusing on their own preparation.`\
+https://nytimes.com/athletic/5579023/2024/06/20/mbappe-koeman-netherlands-france/
+
 **New Home Construction Slows as Mortgage Rates Remain High**\
 `Home building in May fell to its slowest pace in four years despite a supply shortage. That trend could put even greater strain on buyers.`\
 https://nytimes.com/2024/06/20/business/economy/new-home-construction-mortgage-rates.html

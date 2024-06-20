@@ -1,3 +1,7 @@
+**England have 'huge amount of work' to do - Southgate**\
+`Gareth Southgate admitted England have &#8220;a huge amount of work&#8221; to do after labouring to a draw with Denmark.`\
+https://nytimes.com/athletic/5579130/2024/06/20/england-denmark-gareth-southgate/
+
 **New Home Construction Slows as Mortgage Rates Remain High**\
 `Home building in May fell to its slowest pace in four years despite a supply shortage. That trend could put even greater strain on buyers.`\
 https://nytimes.com/2024/06/20/business/economy/new-home-construction-mortgage-rates.html
@@ -19,7 +23,7 @@ https://nytimes.com/athletic/5578982/2024/06/20/england-euro-2024-mailbag/
 https://nytimes.com/2024/06/20/world/europe/french-election-antisemitism-jews.html
 
 **Koeman calls on Netherlands not to 'dwell' on Mbappe availability**\
-`Ronald Koeman emphasised that his side &#8220;cannot dwell&#8221; on whether Kylian Mbappe will play for France against the Netherlands, highlighting the importance of focusing on their own preparation.`\
+`Ronald Koeman emphasised that his side &#8220;can&#8217;t dwell&#8221; on whether Kylian Mbappe will play for France against the Netherlands, highlighting the importance of focusing on their own preparation.`\
 https://nytimes.com/athletic/5579023/2024/06/20/mbappe-koeman-netherlands-france/
 
 **Chelsea set to sign Baltimore from PSG**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/20/nyregion/new-york-state-prisons-solitary-limit.ht
 **TV Weather Gets Political**\
 `On-air meteorologists have become a target in the culture wars as they report on the effects of climate change.`\
 https://nytimes.com/2024/06/20/climate/tv-weather-gets-political.html
-
-**The Housing Market Is Weird and Ugly. These 5 Charts Explain Why.**\
-`Home prices have held up better than expected amid high interest rates. But that doesn’t mean the housing market is healthy.`\
-https://nytimes.com/2024/06/20/business/economy/housing-market-explained.html
 
