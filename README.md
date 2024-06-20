@@ -1,3 +1,7 @@
+**Lewandowski facing late fitness test before Austria game**\
+`Robert Lewandowski faces a late fitness test before his Poland side face Austria in their second group game at the European Championship.`\
+https://nytimes.com/athletic/5578697/2024/06/20/robert-lewandowski-injury-poland-euro-2024/
+
 **Donald Trump Is You! And You! And You!**\
 `Audaciously and laughably, a playboy plutocrat turns himself into Everyman.`\
 https://nytimes.com/2024/06/20/opinion/donald-trump-everyman.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5578635/2024/06/20/bullpen-report-fantasy-baseball-
 **Kendrick Lamar’s Victory Lap Unites Los Angeles**\
 `After unofficially winning a high-profile diss war with Drake, the rapper hosted a Juneteenth concert that celebrated local heroes — and his own sharp-tongued tracks.`\
 https://nytimes.com/2024/06/20/arts/music/kendrick-lamar-the-pop-out-ken-and-friends.html
-
-**George Woodwell, Scientist Who Helped Shape Environmental Policy, Dies at 95**\
-`The founder of the renowned Woods Hole Research Center in Massachusetts, he was not afraid to leverage credible scientific findings to influence public attitudes and government strategy.`\
-https://nytimes.com/2024/06/20/science/george-woodwell-dead.html
 
