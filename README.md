@@ -1,3 +1,15 @@
+**What Happened When Brooklyn Tried to Integrate Its Middle Schools**\
+`A new report found that many schools enrolled more racially and socioeconomically diverse groups of students without sparking a major exodus of families from public schools.`\
+https://nytimes.com/2024/06/20/nyregion/what-happened-when-brooklyn-tried-to-integrate-its-middle-schools.html
+
+**Is It Possible to Desegregate the Nation’s Biggest School System?**\
+`A major lawsuit against racial inequality in New York City’s public schools is moving forward. Already, local districts in the city were trying different measures to diversify schools.`\
+https://nytimes.com/2024/06/20/nyregion/desegregation-nyc-schools-court-case.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/06/20/crosswords/spelling-bee-forum.html
+
 **Yankees' warts on display in extra-inning loss to Orioles**\
 `The lack of strikeouts from the bullpen is an issue that needs solving.`\
 https://nytimes.com/athletic/5577630/2024/06/20/yankees-warts-loss-orioles/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5575306/2024/06/20/chelsea-aggressive-youth-transfe
 **West Ham fans react to price rises: 'I feel like the club I support doesn't want me there anymore'**\
 `The Athletic spoke to five fans about ticket price rises at London Stadium: 'I haven't told my son I can't afford it yet'`\
 https://nytimes.com/athletic/5573187/2024/06/20/west-ham-ticket-prices-fans-react/
-
-**Jack Grealish, mayonnaise and marketing mishaps - what happens when your star gets dropped?**\
-`England's Grealish, Marcus Rashford and Harry Maguire are all the face of brands' Euro 2024 ads, but none of them made the tournament`\
-https://nytimes.com/athletic/5573043/2024/06/20/jack-grealish-mayonnaise-and-marketing-mishaps-what-happens-when-your-star-gets-dropped/
-
-**From 'Bolo Boys' to 'Wolf Crew': The friendship groups in England's squad**\
-`The days when the national squad was riven with cliques are long gone under Gareth Southgate`\
-https://nytimes.com/athletic/5575590/2024/06/20/england-squad-euro-2024-friendships/
-
-**The trend of long-range Euro 2024 goals owes to good technique - and a good ball**\
-`Guler, Barella, Stanciu... why are so many long-range goals being scored at Euro 2024? Michael Cox explains`\
-https://nytimes.com/athletic/5575829/2024/06/20/long-range-euro-2024-goal/
 
