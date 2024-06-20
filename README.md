@@ -1,3 +1,7 @@
+**Timothy Mellon, Secretive Donor, Gives $50 Million to Pro-Trump Group**\
+`The cash from Mr. Mellon, a reclusive billionaire who has also been a major donor to a super PAC supporting Robert F. Kennedy Jr., is among the largest single disclosed gifts ever.`\
+https://nytimes.com/2024/06/20/us/politics/timothy-mellon-trump-donation.html
+
 **Why Does Kendrick Lamar Want Drake to Return Tupac Shakur’s Ring?**\
 `At Mr. Lamar’s Juneteenth concert on Wednesday, he made a request for Drake to return Mr. Shakur’s iconic crown ring. Is this about more than just beef between the two rappers?`\
 https://nytimes.com/2024/06/20/style/kendrick-lamar-drake-tupac-ring.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5579597/2024/06/20/williams-yamal-spain-italy-euro-
 **Judy Garland Museum Is Raising Money to Bid on Stolen Ruby Slippers**\
 `The famed slippers, valued at $3.5 million, were stolen from the museum in Garland’s hometown in Minnesota in 2005 and recovered in 2018. Now, the museum hopes to buy them at an auction in December.`\
 https://nytimes.com/2024/06/20/us/judy-garland-hometown-oz-ruby-slippers.html
-
-**For firefighter recruits in Indianapolis, a much sweatier training day.**\
-`By Casey Patrick`\
-https://nytimes.com/live/2024/06/20/us/heat-wave-news/for-firefighter-recruits-in-indianapolis-a-much-sweatier-training-day
 
