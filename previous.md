@@ -1,3 +1,7 @@
+**Can Women Benefit From Viagra?**\
+`Research on how the drug affects female arousal is sparse. But doctors have been prescribing creams and pills anyway.`\
+https://nytimes.com/2024/06/20/well/live/women-viagra-benefits.html
+
 **A Shared Lived Experience Fueled an Investigation on Hair Relaxers**\
 `To report on the dangers of hair straightening products, one writer recalled her childhood — and that of other Black women.`\
 https://nytimes.com/2024/06/20/insider/a-shared-lived-experience-fueled-an-investigation-on-hair-relaxers.html
@@ -19,7 +23,7 @@ https://nytimes.com/2024/06/20/us/joyjolt-glass-mug-recall.html
 https://nytimes.com/athletic/5579193/2024/06/20/uefa-croatia-albania-investigation-euro-2024/
 
 **The Briefing: Spain 1-0 Italy - Calafiori own goal settles 'European Clasico'**\
-`Meetings between Spain and Italy rarely disappoint — and this one was no exception. Here's our quickfire analysis
+`Meetings between Spain and Italy rarely disappoint — and this one was no exception. Here's our analysis of the big match in Group B
 `\
 https://nytimes.com/athletic/5572867/2024/06/20/spain-italy-euro2024-result-analysis-yamal-williams/
 
@@ -34,8 +38,4 @@ https://nytimes.com/2024/06/20/us/politics/biden-melinda-french-gates-endorse.ht
 **Donald Sutherland, Generational Chameleon**\
 `He came into his career in an era when character actors were leading men.`\
 https://nytimes.com/live/2024/06/18/opinion/thepoint/donald-sutherland-death
-
-**Power Failure Brings Amtrak and N.J. Transit Trains to a Halt**\
-`Amid a heat wave, the shutdown affected all service along the Northeast Corridor, between Philadelphia and New Haven, Conn.`\
-https://nytimes.com/2024/06/20/nyregion/nj-transit-amtrak-delays-today.html
 
