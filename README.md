@@ -1,3 +1,7 @@
+**Dancer’s Haul**\
+`Ella Dershowitz calls us by (some of) our names — or does she?`\
+https://nytimes.com/2024/06/19/crosswords/daily-puzzle-2024-06-20.html
+
 **Tropical Storm Alberto Brings Floods to Texas as Mexico Braces for Landfall**\
 `Hours before the storm was expected to make landfall in Mexico, it brought heavy rain and coastal flooding to parts of eastern Mexico and southern Texas.`\
 https://nytimes.com/2024/06/19/weather/tropical-storm-alberto-floods-texas.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5577102/2024/06/19/dubois-kuemper-trade-kings-capit
 **Unrelenting Heat Stifles Millions of Americans for 3rd Consecutive Day**\
 `As the heat wave moved east, the Northeast felt the brunt of the conditions. But forecasters provided a glimmer of relief, saying “conditions should improve over New England” this weekend.`\
 https://nytimes.com/2024/06/19/weather/heat-wave-northeast-midwest.html
-
-**For some in Cincinnati, escaping the heat is not an easy option.**\
-`By Kevin Williams`\
-https://nytimes.com/live/2024/06/19/weather/heat-wave-news/for-some-in-cincinnati-escaping-the-heat-is-not-an-easy-option
 
