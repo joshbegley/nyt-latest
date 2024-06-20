@@ -1,3 +1,8 @@
+**Why is the roof closed for England’s game against Denmark and what impact will it have?**\
+`UEFA has confirmed the roof of Frankfurt's Deutsche Bank Park will be closed for the Group C clash as a ‘precautionary measure’
+`\
+https://nytimes.com/athletic/5578360/2024/06/20/england-denmark-roof-closed-frankfurt/
+
 **Broncos hiring David Shaw as senior personnel executive**\
 `Before Stanford, Shaw spent nearly a decade as an assistant NFL coach. He and Sean Payton both worked for the Eagles in 1997.`\
 https://nytimes.com/athletic/5578470/2024/06/20/david-shaw-broncos-hire/

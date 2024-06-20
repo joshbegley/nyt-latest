@@ -1,3 +1,15 @@
+**At Target, Store Workers Become A.I. Conduits**\
+`The retailer is rolling out a chatbot to help workers answer questions from shoppers — and workers.`\
+https://nytimes.com/2024/06/20/business/target-retail-ai.html
+
+**The Briefing: Slovenia 1 Serbia 1: 96th minute Jovic equaliser leaves Group C in the balance**\
+`The key talking points from the Group C game between Slovenia and Serbia in Munich`\
+https://nytimes.com/athletic/5572863/2024/06/20/slovenia-serbia-euro-2024-result-analysis/
+
+**Have Esquites, Will Travel (to the Picnic)**\
+`Kay Chun’s esquites recipe captures all the elements of elotes in a salad: charred sweet corn, tangy lime, creamy cotija and spicy ancho chile.`\
+https://nytimes.com/2024/06/20/dining/esquites.html
+
 **Alexander Steen's path to becoming Blues GM-in-waiting: 'He checks all the boxes'**\
 `Former teammate Colton Parayko on Steen's ascent: "He was a great teammate who had all of the qualities of a professional."`\
 https://nytimes.com/athletic/5570195/2024/06/20/alexander-steen-blues-gm-nhl/
@@ -25,17 +37,4 @@ https://nytimes.com/athletic/5578456/2024/06/20/jack-draper-carlos-alcaraz-queen
 **Frederick Seidel’s New Book Includes an Ode to Nick Cave**\
 `“The material that he uses for the songs is powerfully moving, involving his own personal losses,” the 88-year-old poet says. Also name-checked in “So What”: an Italian motorcycle magnate.`\
 https://nytimes.com/2024/06/20/books/review/frederick-seidel-by-the-book.html
-
-**Broncos hiring David Shaw as senior personnel executive**\
-`Before Stanford, Shaw spent nearly a decade as an assistant NFL coach. He and Sean Payton both worked for the Eagles in 1997.`\
-https://nytimes.com/athletic/5578470/2024/06/20/david-shaw-broncos-hire/
-
-**Astros expected to promote Bloss for MLB debut vs. Orioles**\
-`Bloss, a third-round selection in last July’s draft, has made just eight starts at Double A and will bypass Triple A entirely.`\
-https://nytimes.com/athletic/5578523/2024/06/20/astros-jake-bloss-mlb-debut/
-
-**Why is the roof closed for England’s game against Denmark and what impact will it have?**\
-`UEFA has confirmed the roof of Frankfurt's Deutsche Bank Park will be closed for the Group C clash as a ‘precautionary measure’
-`\
-https://nytimes.com/athletic/5578360/2024/06/20/england-denmark-roof-closed-frankfurt/
 
