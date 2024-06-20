@@ -1,3 +1,7 @@
+**Kendrick Lamar’s Victory Lap Unites Los Angeles**\
+`After unofficially winning a high-profile diss war with Drake, the rapper hosted a Juneteenth concert that celebrated local heroes — and his own sharp-tongued tracks.`\
+https://nytimes.com/2024/06/20/arts/music/kendrick-lamar-the-pop-out-ken-and-friends.html
+
 **George Woodwell, Scientist Who Helped Shape Environmental Policy, Dies at 95**\
 `The founder of the renowned Woods Hole Research Center in Massachusetts, he was not afraid to leverage credible scientific findings to influence public attitudes and government strategy.`\
 https://nytimes.com/2024/06/20/science/george-woodwell-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5570195/2024/06/20/alexander-steen-blues-gm-nhl/
 **The Bounce: Please pay me to not coach the Pistons**\
 `Zach Harper and Shams Charania catch you up on leaguewide news.`\
 https://nytimes.com/athletic/5577934/2024/06/20/monty-williams-fired-pistons-the-bounce/
-
-**Walking Can Be a Powerful Remedy for Back Pain**\
-`A new study adds to a large body of evidence on the effectiveness of movement for treating and preventing pain.`\
-https://nytimes.com/2024/06/20/well/move/walking-lower-back-pain.html
 
