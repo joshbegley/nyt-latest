@@ -1,3 +1,7 @@
+**Postcard from Rickwood Field: MLB prepares to honor the Negro Leagues**\
+`Willie Mays' plaque was displayed on the field before Wednesday's celebrity softball game, where various athletes paid their respects.`\
+https://nytimes.com/athletic/5577189/2024/06/19/mlb-rickwood-willie-mays-negro-leagues/
+
 **Regan Smith is back atop the backstroke, just in time for the Olympics**\
 `Five years after Regan Smith announced her arrival with a world-record swim, she did it again Tuesday at the U.S. Olympic trials.`\
 https://nytimes.com/athletic/5577340/2024/06/19/regan-smith-olympics-backstroke/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5576188/2024/06/19/flames-jacob-markstrom-trade-reb
 **Padres salvage important win but still must approach trade deadline with caution**\
 `General manager A.J. Preller may have to learn from red-hot Jackson Merrill and know when to — and when not to — take a big swing.`\
 https://nytimes.com/athletic/5577111/2024/06/19/padres-trade-deadline-jackson-merrill-aj-preller/
-
-**A rookie in the NWSL MVP race?: Full Time**\
-`Plus, a look at the Seattle Reign sale.`\
-https://nytimes.com/athletic/5577162/2024/06/19/a-rookie-in-the-nwsl-mvp-race-full-time/
 
