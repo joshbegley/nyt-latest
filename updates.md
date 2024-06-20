@@ -1,3 +1,11 @@
+**Rockets draft notebook 2.0: Big board debates, Houston's domino effect and more**\
+`Kelly Iko offers the latest intel on the Houston Rockets and what they could do with the No. 3 pick at the draft. `\
+https://nytimes.com/athletic/5574543/2024/06/20/rockets-draft-notebook-donovan-clingan/
+
+**Chicago Cubs Covering the Bases: Possible draft picks, ranking the Wrigleyville unis**\
+`Dive into all the latest and greatest happenings with the Cubs in our weekly segment.`\
+https://nytimes.com/athletic/5576346/2024/06/20/chicago-cubs-scores-results-standing-news-3/
+
 **NBA Player Tiers: Victor Wembanyama joins Tier 2's All-Stars and All-NBA contenders**\
 `This is the level where everyone listed could be the best player on a title team next year with the right roster around them.`\
 https://nytimes.com/athletic/5575511/2024/06/20/nba-player-tiers-victor-wembanyama-jalen-brunson-anthony-edwards-all-star/
