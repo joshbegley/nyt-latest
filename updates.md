@@ -1,3 +1,11 @@
+**Briere: Flyers might 'lean into a center' at NHL Draft, plus the latest on Michkov**\
+`Will the Flyers use any draft picks as currency in possible trades?`\
+https://nytimes.com/athletic/5579335/2024/06/20/flyers-nhl-draft-briere-michkov/
+
+**Yamal and Williams represent a new era for Spain — and made Italy look old-fashioned**\
+`Spain were on a different planet to Italy in their Euro 2024 match. Their electric wingers were the stars in a post-tiki-taka world`\
+https://nytimes.com/athletic/5579597/2024/06/20/williams-yamal-spain-italy-euro-2024/
+
 **Judy Garland Museum Is Raising Money to Bid on Stolen Ruby Slippers**\
 `The famed slippers, valued at $3.5 million, were stolen from the museum in Garland’s hometown in Minnesota in 2005 and recovered in 2018. Now, the museum hopes to buy them at an auction in December.`\
 https://nytimes.com/2024/06/20/us/judy-garland-hometown-oz-ruby-slippers.html
