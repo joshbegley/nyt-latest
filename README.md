@@ -1,3 +1,11 @@
+**The Brooklyn Academy of Music Announces Its Next Wave, and Next Steps**\
+`BAM, which has faced cutbacks in recent years, unveiled a reorganization as it announced its Next Wave Festival for the fall.`\
+https://nytimes.com/2024/06/20/arts/dance/brooklyn-academy-of-music-reorganization.html
+
+**How This Year’s Fire Season Could Pan Out**\
+`More than two dozen wildfires have ignited in California this week, and experts warn of an extreme season ahead.`\
+https://nytimes.com/2024/06/20/us/california-fire-season.html
+
 **Clearing a Final Hurdle, Dutch Leader Is Poised to Become NATO Chief**\
 `Mark Rutte, the Netherlands’ prime minister, is expected to be elected as the head of the military alliance after Romania’s candidate dropped out.`\
 https://nytimes.com/2024/06/20/world/europe/nato-secretary-general-rutte.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5577563/2024/06/20/shacarri-richardson-olympics-tri
 **Feldman's CFP 12-team projection: Why I like Miami, PSU and Texas**\
 `Which teams reloaded their rosters and seem to be good bets this early on for the CFP? `\
 https://nytimes.com/athletic/5566959/2024/06/20/college-football-playoff-predictions-ohio-state-alabama/
-
-**Van Nistelrooy holds talks with Burnley over head coach position**\
-`Ruud van Nistelrooy has held talks with Burnley and is in the frame to become the club&#8217;s new head coach.`\
-https://nytimes.com/athletic/5528926/2024/06/20/ruud-van-nistelrooy-burnley-manager-next/
-
-**Where the World Plans to Test Nuclear Weapons Next**\
-`Let’s not make it the future, too.`\
-https://nytimes.com/2024/06/20/opinion/nyt-nuclear-testing.html
 
