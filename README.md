@@ -1,3 +1,7 @@
+**Rockets draft notebook 2.0: Big board debates, Houston's domino effect and more**\
+`Kelly Iko offers the latest intel on the Houston Rockets and what they could do with the No. 3 pick at the draft. `\
+https://nytimes.com/athletic/5574543/2024/06/20/rockets-draft-notebook-donovan-clingan/
+
 **NBA Player Tiers: Victor Wembanyama joins Tier 2's All-Stars and All-NBA contenders**\
 `This is the level where everyone listed could be the best player on a title team next year with the right roster around them.`\
 https://nytimes.com/athletic/5575511/2024/06/20/nba-player-tiers-victor-wembanyama-jalen-brunson-anthony-edwards-all-star/
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/5568616/2024/06/20/jacob-shaffelburg-maritime-messi
 `Levshunov sat down with The Athletic on Tuesday in Florida to discuss the upcoming draft, his college season and more.`\
 https://nytimes.com/athletic/5576062/2024/06/20/nhl-draft-2024-prospect-artyom-levshunov-blackhawks/
 
-**Wordle Review No. 1,098, June 21, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/06/20/crosswords/wordle-review-1098.html
-
-**The Connections Companion No. 376, June 21, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/06/20/crosswords/connections-companion-376.html
+**Chicago Cubs Covering the Bases: Possible draft picks, ranking the Wrigleyville unis**\
+`Dive into all the latest and greatest happenings with the Cubs in our weekly segment.`\
+https://nytimes.com/athletic/5576346/2024/06/20/chicago-cubs-scores-results-standing-news-3/
 
