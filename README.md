@@ -1,4 +1,4 @@
-**AIPAC Unleashes a Record $14.5 Million Bid to Defeat an Anti-Israel Foe**\
+**AIPAC Unleashes a Record $14.5 Million Bid to Defeat a Critic of Israel**\
 `The deluge in outside spending, which also includes another $1 million from another pro-Israel group, threatens to sink Representative Jamaal Bowman.`\
 https://nytimes.com/2024/06/20/nyregion/aipac-bowman-latimer.html
 

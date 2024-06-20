@@ -1,3 +1,11 @@
+**AIPAC Unleashes a Record $14.5 Million Bid to Defeat an Anti-Israel Foe**\
+`The deluge in outside spending, which also includes another $1 million from another pro-Israel group, threatens to sink Representative Jamaal Bowman.`\
+https://nytimes.com/2024/06/20/nyregion/aipac-bowman-latimer.html
+
+**A Lakeside Castle Hotel in the Austrian Alps**\
+`Plus: art about office life, colorful rope rugs — and more.`\
+https://nytimes.com/2024/06/20/t-magazine/rosewood-schloss-fuschl-austria-alps-hotel.html
+
 **William Goines, First Black Navy SEAL, Dies at 87**\
 `He overcame segregation at home and in the military to serve three tours in Vietnam as a member of the storied special operations unit.`\
 https://nytimes.com/2024/06/20/us/william-goines-dead.html
