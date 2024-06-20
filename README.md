@@ -1,3 +1,7 @@
+**Democrats’ Dream of a Wealth Tax Is Alive. For Now.**\
+`A narrow Supreme Court ruling left the door open for Congress to expand taxes on billionaires, but it’s not a guarantee.`\
+https://nytimes.com/2024/06/20/us/politics/democrats-wealth-tax-supreme-court.html
+
 **How to Sleep Better in the Heat**\
 `There are simple steps you can take to get a better night’s rest when it’s hot outside.`\
 https://nytimes.com/2024/06/20/well/sleep-heat-wave.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/20/world/europe/stonehenge-just-stop-oil-solstice.ht
 **Why Mbappe won’t wear tricolore mask at Euro 2024**\
 `Mbappe's patriotic mask sparked a social media storm but the France captain won't be able to wear it during a match...`\
 https://nytimes.com/athletic/5578912/2024/06/20/kylian-mbappe-mask-why-euro-2024/
-
-**Argentina stay top of FIFA men's world rankings ahead of Copa America**\
-`Argentina have retained their top spot in FIFA’s men&#8217;s world rankings ahead of the 2024 Copa America.`\
-https://nytimes.com/athletic/5578885/2024/06/20/fifa-rankings-copa-america/
 
