@@ -1,3 +1,11 @@
+**The old college try: An NBA mock draft featuring only NCAA prospects**\
+`Kentucky's Reed Sheppard and UConn's Stephon Castle lead our picks highlighting the top players from NCAA teams.`\
+https://nytimes.com/athletic/5539645/2024/06/21/nba-draft-college-basketball-reed-sheppard-stephon-castle/
+
+**Six keys for Oilers to complete historic comeback and win the Stanley Cup**\
+`Here's what the Oilers have to do to beat the Florida Panthers two more times in the Cup Final.`\
+https://nytimes.com/athletic/5578373/2024/06/21/oilers-keys-game-6-stanley-cup/
+
 **The top 10 players NHL teams should target with an offer sheet this offseason**\
 `There aren't necessarily the 10 best RFAs, but the most realistic candidates who can be had for reasonable compensation.`\
 https://nytimes.com/athletic/5580250/2024/06/21/nhl-top-10-offer-sheet-candidates/

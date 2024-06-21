@@ -1,3 +1,7 @@
+**The old college try: An NBA mock draft featuring only NCAA prospects**\
+`Kentucky's Reed Sheppard and UConn's Stephon Castle lead our picks highlighting the top players from NCAA teams.`\
+https://nytimes.com/athletic/5539645/2024/06/21/nba-draft-college-basketball-reed-sheppard-stephon-castle/
+
 **The top 10 players NHL teams should target with an offer sheet this offseason**\
 `There aren't necessarily the 10 best RFAs, but the most realistic candidates who can be had for reasonable compensation.`\
 https://nytimes.com/athletic/5580250/2024/06/21/nhl-top-10-offer-sheet-candidates/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/5580250/2024/06/21/nhl-top-10-offer-sheet-candidate
 `Taylor will be hoping controversy does not follow him from last season's Premier League into the Euros`\
 https://nytimes.com/athletic/5572103/2024/06/21/anthony-taylor-who-euro-2024/
 
-**Lowetide: 6 keys for Oilers to complete historic comeback and win the Stanley Cup**\
+**Six keys for Oilers to complete historic comeback and win the Stanley Cup**\
 `Here's what the Oilers have to do to beat the Florida Panthers two more times in the Cup Final.`\
 https://nytimes.com/athletic/5578373/2024/06/21/oilers-keys-game-6-stanley-cup/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5580680/2024/06/21/roberto-baggio-italy-robbery/
 **Flavio Briatore makes official F1 return as Alpine executive advisor**\
 `Flavio Briatore has been named as Alpine’s new executive advisor in Formula One, 16 years after his involvement in the Singapore ‘Crashgate’ race-fixing scandal.`\
 https://nytimes.com/athletic/5580630/2024/06/21/flavio-briatore-f1-alpine/
-
-**Wolves confirm new deal for Chiwome**\
-`Wolves have confirmed that teenage striker Leon Chiwome has signed a new four-year contract.`\
-https://nytimes.com/athletic/5580688/2024/06/21/wolves-leon-chiwome-contract/
 
