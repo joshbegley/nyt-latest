@@ -1,3 +1,7 @@
+**Say Hey: The Willie Mays song with the connection to Birmingham's Rickwood Field**\
+`Epic Records wasn't against making a Willie Mays record. But Mays had to make a cameo appearance.`\
+https://nytimes.com/athletic/5579856/2024/06/20/willie-mays-say-hey-song-rickwood-field/
+
 **Trump Says He Would Give Green Cards to All Foreign College Students at Graduation**\
 `Mr. Trump’s promise to Silicon Valley investors was a sharp departure from actions he took during his presidency to restrict legal immigration.`\
 https://nytimes.com/2024/06/20/us/politics/trump-green-cards-college-graduates.html

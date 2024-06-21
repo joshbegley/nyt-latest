@@ -1,3 +1,7 @@
+**Say Hey: The Willie Mays song with the connection to Birmingham's Rickwood Field**\
+`Epic Records wasn't against making a Willie Mays record. But Mays had to make a cameo appearance.`\
+https://nytimes.com/athletic/5579856/2024/06/20/willie-mays-say-hey-song-rickwood-field/
+
 **Trump Says He Would Give Green Cards to All Foreign College Students at Graduation**\
 `Mr. Trump’s promise to Silicon Valley investors was a sharp departure from actions he took during his presidency to restrict legal immigration.`\
 https://nytimes.com/2024/06/20/us/politics/trump-green-cards-college-graduates.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/06/20/us/shenandoah-park-murders-1996-fbi.html
 **Nearly 100 Million Under Temperature Advisories as Heat Wave Lingers**\
 `The heat is expected to peak over the weekend in the Northeast, but not until early next week in the South and the Great Plains, according to the National Weather Service.`\
 https://nytimes.com/2024/06/20/us/heat-wave-temperatures-weather.html
-
-**Gunshot Detection System Wastes N.Y.P.D. Officers’ Time, Audit Finds**\
-`In June of last year, only 13 percent of ShotSpotter alerts were actually gunfire, according to Comptroller Brad Lander.`\
-https://nytimes.com/2024/06/20/nyregion/nypd-shotspotter-guns.html
 
