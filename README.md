@@ -1,3 +1,7 @@
+**Giants celebrate Willie Mays, pay tribute to Negro Leagues at Rickwood Field**\
+`Willie Mays couldn't return to Rickwood Field, where his professional career began, in person, but he was there in spirit.`\
+https://nytimes.com/athletic/5580519/2024/06/21/giants-willie-mays-rickwood-field/
+
 **Friday's MLB odds and predictions: Best and worst starting pitchers, home run streaks and more**\
 `Check in on our Friday MLB projections with odds for every game, picks for best value bets, pitcher props and more.`\
 https://nytimes.com/athletic/5581329/2024/06/21/mlb-odds-predictions-best-bets-june-21/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/21/climate/heat-wave-air-pollution-chemicals.html
 **The Bounce: Why the Lakers need more than Redick**\
 `Zach Harper and Shams Charania catch you up on leaguewide news.`\
 https://nytimes.com/athletic/5580686/2024/06/21/jj-redick-lakers-the-bounce/
-
-**As Ukraine Expands Military Draft, Some Men Go Into Hiding**\
-`Fearful that conscription is a one-way ticket to bloody trench warfare, the men spend their days holed up at home to avoid draft officers who roam the streets.`\
-https://nytimes.com/2024/06/21/world/europe/ukraine-war-draft-dodgers-conscription.html
 
