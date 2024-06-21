@@ -1,3 +1,7 @@
+**Trump Has Rapidly Eroded Biden’s Edge in 2024 Cash Battle**\
+`Just two months ago, President Biden appeared to have a daunting financial advantage. Then Donald Trump was convicted of 34 felonies, and Republicans’ wallets opened.`\
+https://nytimes.com/2024/06/20/us/politics/trump-fundraising-biden-election.html
+
 **Argentina 2, Canada 0: Takeaways from the Copa America opener**\
 `After a slow start, Argentina edged out a competitive Canada team `\
 https://nytimes.com/athletic/5579299/2024/06/20/argentina-canada-copa-america/
