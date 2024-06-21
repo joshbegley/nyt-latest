@@ -1,3 +1,7 @@
+**Andrew Cogliano retires as beloved example to NHL players**\
+`When Erik Johnson handed Andrew Cogliano the Stanley Cup for the first time, Cogliano, the veteran wing, shifted his body so he was facing his 2021-22 Avalanche teammates.`\
+https://nytimes.com/athletic/5581458/2024/06/21/avalanche-andrew-cogliano-retirement/
+
 **DeSantis Vetoes All Arts Grants in Florida**\
 `Gov. Ron DeSantis gave no explanation for zeroing out the $32 million in grants that were approved by state lawmakers.`\
 https://nytimes.com/2024/06/21/arts/ron-desantis-veto-arts-funding-florida.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/21/well/sleep-apnea-weight-loss-drug.html
 **Louisiana’s Ten Commandments Law Signals a Broader Christian Agenda**\
 `Gov. Jeff Landry wants his state to be at the forefront of a national movement to advance legislation with a Christian worldview.`\
 https://nytimes.com/2024/06/21/us/louisiana-ten-commandments-landry.html
-
-**2 Dead and 8 Injured in Shooting at Arkansas Grocery Store**\
-`A police officer was injured in the attack at the Mad Butcher store in Fordyce, and the shooter was critically injured, the authorities said.`\
-https://nytimes.com/2024/06/21/us/arkansas-grocery-store-fordyce-shooting.html
 
