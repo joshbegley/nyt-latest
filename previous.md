@@ -20,7 +20,7 @@ https://nytimes.com/live/2024/06/18/opinion/thepoint/house-dragon-queer-love
 
 **FCS school challenges House v. NCAA settlement proposal**\
 `HCU argued its financial interests were not adequately represented by the proposed terms of the House settlement agreed to last month.`\
-https://nytimes.com/athletic/5582182/2024/06/21/houston-christian-house-ncaa-challente/
+https://nytimes.com/athletic/5582182/2024/06/21/houston-christian-house-ncaa-challenge/
 
 **The Supreme Court Upheld a Law Disarming Domestic Abusers**\
 `Also, dangerous heat is rising around the world. Here’s the latest at the end of Friday.`\

@@ -1,3 +1,7 @@
+**FCS school challenges House v. NCAA settlement proposal**\
+`HCU argued its financial interests were not adequately represented by the proposed terms of the House settlement agreed to last month.`\
+https://nytimes.com/athletic/5582182/2024/06/21/houston-christian-house-ncaa-challenge/
+
 **England under more pressure than ever at Euro 2024 - Rice**\
 `England midfielder Declan Rice has admitted the players are feeling more pressure than ever before.`\
 https://nytimes.com/athletic/5581750/2024/06/21/declan-rice-england-euros/
