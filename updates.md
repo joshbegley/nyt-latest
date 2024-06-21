@@ -1,3 +1,7 @@
+**Copa America's five weirdest stories: Blackmail, three missed penalties and a 'chilled ball'**\
+`Wild times at the Copa America - a quick guide to the competition's most extraordinary tales`\
+https://nytimes.com/athletic/5570255/2024/06/21/copa-americas-five-weirdest-stories/
+
 **Which NHL teams need upgrades at center? Ranking all 32 teams by current quality**\
 `Here’s how we’d rank each team’s center depth, from best to worst, just before the offseason kicks off.`\
 https://nytimes.com/athletic/5579764/2024/06/21/nhl-centers-free-agency-trade/

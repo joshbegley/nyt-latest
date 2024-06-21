@@ -14,6 +14,10 @@ https://nytimes.com/athletic/5580060/2024/06/21/josh-giddey-bulls-thunder-trade-
 `Even though the Oilers are still down 3-2, they feel like they’re almost in the driver’s seat with Game 6 in Edmonton.`\
 https://nytimes.com/athletic/5579747/2024/06/21/oilers-stanley-cup-final-game-6-preview/
 
+**Copa America's five weirdest stories: Blackmail, three missed penalties and a 'chilled ball'**\
+`Wild times at the Copa America - a quick guide to the competition's most extraordinary tales`\
+https://nytimes.com/athletic/5570255/2024/06/21/copa-americas-five-weirdest-stories/
+
 **Ravens news, notes and opinions: Could Brandon Stephens be next to get an extension?**\
 `Plus, thoughts on the team's alternate helmet, the AFC North in-season edition of "Hard Knocks" and Derrick Henry's role in Baltimore. `\
 https://nytimes.com/athletic/5576741/2024/06/21/baltimore-ravens-contract-extension-candidates/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/21/arts/design/a-rubens-returns-to-a-german-castle-8
 **What's it like when Steph Curry shows up at a pickup game? 'Even the adults were screaming'**\
 `The NBA icon surprised a group of men's basketball players in Folsom, Calif., joining them for their pickup games.`\
 https://nytimes.com/athletic/5575595/2024/06/21/steph-curry-pickup-sacramento/
-
-**Messi begins the Copa America with only way he knows - a captain's performance**\
-`Canada said they would target Messi and they didn't disappoint. But the Argentina captain, as he always does, thrived on the attention`\
-https://nytimes.com/athletic/5580388/2024/06/21/lionel-messi-argentina-captain-copa-america/
 
