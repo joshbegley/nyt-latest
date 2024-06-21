@@ -1,3 +1,7 @@
+**Iran’s 2024 Presidential Election: What to Know**\
+`Iran will hold a special election later this month to replace former President Ebrahim Raisi, who died in a helicopter crash in May.`\
+https://nytimes.com/2024/06/21/world/middleeast/iran-presidential-election-what-to-know.html
+
 **New Drug Provides Total Protection From H.I.V. in Trial of Young African Women**\
 `An injection given just twice a year could herald a breakthrough in protecting the population that has the highest infection rates.`\
 https://nytimes.com/2024/06/21/health/lenacapavir-hiv-prevention-africa.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5581750/2024/06/21/declan-rice-england-euros/
 **Trump’s PAC, Which Pays His Legal Bills, Is Nearly Out of Cash**\
 `A fund-raising pact with the Republican Party is expected to replenish the money Donald J. Trump paid his lawyers as he faced three indictments and finished a criminal trial in New York.`\
 https://nytimes.com/2024/06/21/us/politics/trump-pac-funds.html
-
-**In Montana, Abortion Rights Groups Submit Signatures for Ballot Measure in November**\
-`The measure would affirm the right to abortion in the State Constitution. Democrats hope that it will help Senator Jon Tester in his bid for re-election.`\
-https://nytimes.com/2024/06/21/us/montana-abortion-rights-ballot.html
 
