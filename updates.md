@@ -1,3 +1,15 @@
+**Flavio Briatore makes official F1 return as Alpine executive advisor**\
+`Flavio Briatore has been named as Alpine’s new executive advisor in Formula One, 16 years after his involvement in the Singapore ‘Crashgate’ race-fixing scandal.`\
+https://nytimes.com/athletic/5580630/2024/06/21/flavio-briatore-f1-alpine/
+
+**Wolves confirm new deal for Chiwome**\
+`Wolves have confirmed that teenage striker Leon Chiwome has signed a new four-year contract.`\
+https://nytimes.com/athletic/5580688/2024/06/21/wolves-leon-chiwome-contract/
+
+**The Pulse: The Lakers are really doing this**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5580299/2024/06/21/lakers-jj-redick-the-pulse/
+
 **The Israeli leader’s quarrels with the White House, his military and his coalition partners have escalated at a pivotal time in the war.**\
 `By Shashank Bengali`\
 https://nytimes.com/live/2024/06/21/world/israel-gaza-war-hamas/the-israeli-leaders-quarrels-with-the-white-house-his-military-and-his-coalition-partners-have-escalated-at-a-pivotal-time-in-th
