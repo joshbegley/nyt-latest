@@ -1,3 +1,7 @@
+**Gracie Abrams and Taylor Swift’s Tortured Duet, and 8 More New Songs**\
+`Hear tracks by Mavis Staples, Jamie xx featuring Robyn, Rakim and others.`\
+https://nytimes.com/2024/06/21/arts/music/playlist-gracie-abrams-taylor-swift-kehlani.html
+
 **The day that proved football in Ukraine is still alive**\
 `A day of defiance ended in delirium for an emotion-fuelled Ukraine`\
 https://nytimes.com/athletic/5581789/2024/06/21/ukraine-euro-2024-russia-war/

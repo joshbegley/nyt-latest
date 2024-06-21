@@ -1,3 +1,7 @@
+**Gracie Abrams and Taylor Swift’s Tortured Duet, and 8 More New Songs**\
+`Hear tracks by Mavis Staples, Jamie xx featuring Robyn, Rakim and others.`\
+https://nytimes.com/2024/06/21/arts/music/playlist-gracie-abrams-taylor-swift-kehlani.html
+
 **The day that proved football in Ukraine is still alive**\
 `A day of defiance ended in delirium for an emotion-fuelled Ukraine`\
 https://nytimes.com/athletic/5581789/2024/06/21/ukraine-euro-2024-russia-war/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/21/arts/music/amplifier-newsletter-rem-deep-cuts.htm
 **How Misleading Videos Are Trailing Biden as He Battles Age Doubts**\
 `A flurry of recent clips, many of them edited or lacking context, laid bare a major challenge for the president as he tries to persuade voters he has the energy for a second term.`\
 https://nytimes.com/2024/06/21/us/politics/biden-age-videos.html
-
-**Conor McGregor says broken toe forced UFC 303 cancellation**\
-`McGregor also shared photos and an X-ray on X of his broken toe, which is his left pinky toe.`\
-https://nytimes.com/athletic/5581784/2024/06/21/conor-mcgregor-broken-toe-ufc-303/
 
