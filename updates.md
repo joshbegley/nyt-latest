@@ -1,3 +1,7 @@
+**At Stanford, 2 Reports on Bias Show Extent of Divide Between Jews and Muslims**\
+`One report documented antisemitic threats. The other, anti-Muslim threats. Both signaled that there may be little room for agreement.`\
+https://nytimes.com/2024/06/20/us/stanford-antisemitism-muslims-report.html
+
 **Trump Has Rapidly Eroded Biden’s Edge in 2024 Cash Battle**\
 `Just two months ago, President Biden appeared to have a daunting financial advantage. Then Donald Trump was convicted of 34 felonies, and Republicans’ wallets opened.`\
 https://nytimes.com/2024/06/20/us/politics/trump-fundraising-biden-election.html

@@ -1,3 +1,7 @@
+**At Stanford, 2 Reports on Bias Show Extent of Divide Between Jews and Muslims**\
+`One report documented antisemitic threats. The other, anti-Muslim threats. Both signaled that there may be little room for agreement.`\
+https://nytimes.com/2024/06/20/us/stanford-antisemitism-muslims-report.html
+
 **Trump Has Rapidly Eroded Biden’s Edge in 2024 Cash Battle**\
 `Just two months ago, President Biden appeared to have a daunting financial advantage. Then Donald Trump was convicted of 34 felonies, and Republicans’ wallets opened.`\
 https://nytimes.com/2024/06/20/us/politics/trump-fundraising-biden-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5579856/2024/06/20/willie-mays-say-hey-song-rickwoo
 **Trump Says He Would Give Green Cards to All Foreign College Students at Graduation**\
 `Mr. Trump’s promise to Silicon Valley investors was a sharp departure from actions he took during his presidency to restrict legal immigration.`\
 https://nytimes.com/2024/06/20/us/politics/trump-green-cards-college-graduates.html
-
-**Review: A 10th Life for Those Jellicle ‘Cats,’ Now in Drag**\
-`Resetting the “Memory” musical in the world of ballroom competitions makes for a joyful reincarnation.`\
-https://nytimes.com/2024/06/20/theater/cats-the-jellicle-ball-review.html
 
