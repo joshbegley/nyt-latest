@@ -1,3 +1,19 @@
+**So Much for California’s Big November Anti-Tax Initiative**\
+`Businesses are fuming and cities are exhaling after the State Supreme Court blocked a ballot measure at the heart of a big fight in Sacramento.`\
+https://nytimes.com/2024/06/21/us/california-supreme-court-tax-initiative.html
+
+**Tips for Renting an E.V. for Your Summer Vacation**\
+`Even with more fast-charging stations available, having a smooth electric vehicle experience still takes planning, our columnist found.`\
+https://nytimes.com/2024/06/21/your-money/renting-electric-vehicle-vacation.html
+
+**Arsenal's Cozier-Duberry to leave club when contract expires this month**\
+`Amario Cozier-Duberry is set to leave Arsenal at the expiration of his contract this month.`\
+https://nytimes.com/athletic/5580998/2024/06/21/cozier-duberry-arsenal-leave-contract/
+
+**Summer Reading Contest, Week 3: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by June 28 at 9 a.m. Eastern. This week’s winners will be announced by July 10.`\
+https://nytimes.com/2024/06/21/learning/summer-reading-contest-week-3-what-got-your-attention-in-the-times-this-week.html
+
 **Canada 'deeply disturbed' by racist abuse of player after Argentina game**\
 `Canada Soccer says it is “deeply disturbed” by the racist abuse directed at one of their players following their Copa America opener against Argentina on Thursday.`\
 https://nytimes.com/athletic/5580958/2024/06/21/canada-racist-abuse-copa-moise-bombito/
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/06/21/us/heat-wave-news/the-heat-wave-in-new-york-
 **Millions nationwide face more hazardous heat as temperatures rise in the Mid-Atlantic states.**\
 `By Kate Selig and Judson Jones`\
 https://nytimes.com/live/2024/06/21/us/heat-wave-news/millions-nationwide-face-more-hazardous-heat-as-temperatures-rise-in-the-mid-atlantic-states
-
-**100 Million in U.S. Face Heat Alerts as First Summer Weekend Arrives**\
-`Nearly a third of the country was under hot weather advisories on the fifth day of a blistering heat wave.`\
-https://nytimes.com/live/2024/06/21/us/heat-wave-news
-
-**Copa America gets the start it needed - on and off the pitch**\
-`This tournament is the start of an important period for soccer in the U.S. and the opening match did not disappoint`\
-https://nytimes.com/athletic/5580940/2024/06/21/copa-america-2024-argentina-canada/
-
-**Editor Tapped to Lead Washington Post Won’t Take the Job**\
-`Robert Winnett will stay at The Daily Telegraph, after reports raised questions about his ties to unethical news gathering practices.`\
-https://nytimes.com/2024/06/21/business/media/washington-post-editor-winnett.html
-
-**How will late-arriving transfers Beaux Collins, Rod Heard II boost Notre Dame?**\
-`The graduate transfers from Clemson and Northwestern had to wait to officially join Notre Dame, and they're eager to prove themselves.`\
-https://nytimes.com/athletic/5580886/2024/06/21/notre-dame-beaux-collins-rod-heard/
 
