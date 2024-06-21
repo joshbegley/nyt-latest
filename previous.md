@@ -1,3 +1,7 @@
+**How England's left side is undermining them with and without the ball**\
+`Gareth Southgate's team are on track to reach the knockout stage, but are no closer to finding the right balance`\
+https://nytimes.com/athletic/5580575/2024/06/21/england-euro-2024-left-side-issues/
+
 **The Athletic FC: England's Kane dilemma; Messi's magic passes set up Argentina win**\
 `Today in The Athletic FC: Kane scored but looked lethargic - what now for England? Plus: Messi inspires Argentina to opening Copa win`\
 https://nytimes.com/athletic/5580663/2024/06/21/kane-england-dilemma-euro-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5567027/2024/06/21/winnipeg-jets-mailbag-maurice-sc
 **The Athletic’s Friday football quiz question #9**\
 `Can you work out the answer to our weekly football conundrum? `\
 https://nytimes.com/athletic/5580576/2024/06/21/the-athletics-friday-football-quiz-question-9/
-
-**Baggio’s villa broken into by armed robbers**\
-`Italian law enforcers are investigating after Roberto Baggio’s villa was broken into by armed robbers on the night of Italy’s Euro 2024 group stage game against Spain.`\
-https://nytimes.com/athletic/5580680/2024/06/21/roberto-baggio-italy-robbery/
 
