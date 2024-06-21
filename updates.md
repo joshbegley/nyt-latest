@@ -1,3 +1,11 @@
+**When Willie Mays became a superstar and an American icon**\
+`If you're wondering how long it took Willie Mays to become a hero, a superstar, a revered American icon, it happened immediately.`\
+https://nytimes.com/athletic/5580221/2024/06/21/willie-mays-history-american-icon/
+
+**5 keys to Panthers-Oilers Stanley Cup Game 6: Can Draisaitl step it up? Can Bobrovsky shut it down?**\
+`The Oilers are halfway to completing one of the biggest comebacks in NHL playoff history. Can they keep it going with a win Friday?`\
+https://nytimes.com/athletic/5581848/2024/06/21/stanley-cup-game-6-keys/
+
 **The day that proved football in Ukraine 'is still alive'**\
 `A day of defiance ended in delirium for an emotion-fuelled Ukraine`\
 https://nytimes.com/athletic/5581789/2024/06/21/ukraine-euro-2024-russia-war/
