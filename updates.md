@@ -1,3 +1,11 @@
+**260 McNuggets? McDonald’s Ends A.I. Drive-Through Tests Amid Errors**\
+`Ordering mistakes frustrated customers during nearly three years of tests. But competitors like White Castle and Wendy’s say their A.I. ordering systems have been highly accurate.`\
+https://nytimes.com/2024/06/21/business/mcdonalds-ai-drive-thru-white-castle.html
+
+**In Russia, Fear of the Past Is Ever-Present**\
+`The trauma Russians endured during the transition from communism to capitalism in the 1990s helps explain why Vladimir Putin remains in power.`\
+https://nytimes.com/2024/06/21/special-series/russia-vladimir-putin-power-fear.html
+
 **A Ride in a Chemical-Sniffing Van Shows How Heat Amps Up Pollution**\
 `In heat waves, chemicals like formaldehyde and ozone can form more readily in the air, according to researchers driving mobile labs in New York City this week.`\
 https://nytimes.com/2024/06/21/climate/heat-wave-air-pollution-chemicals.html

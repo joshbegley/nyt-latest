@@ -1,3 +1,11 @@
+**260 McNuggets? McDonald’s Ends A.I. Drive-Through Tests Amid Errors**\
+`Ordering mistakes frustrated customers during nearly three years of tests. But competitors like White Castle and Wendy’s say their A.I. ordering systems have been highly accurate.`\
+https://nytimes.com/2024/06/21/business/mcdonalds-ai-drive-thru-white-castle.html
+
+**In Russia, Fear of the Past Is Ever-Present**\
+`The trauma Russians endured during the transition from communism to capitalism in the 1990s helps explain why Vladimir Putin remains in power.`\
+https://nytimes.com/2024/06/21/special-series/russia-vladimir-putin-power-fear.html
+
 **A Ride in a Chemical-Sniffing Van Shows How Heat Amps Up Pollution**\
 `In heat waves, chemicals like formaldehyde and ozone can form more readily in the air, according to researchers driving mobile labs in New York City this week.`\
 https://nytimes.com/2024/06/21/climate/heat-wave-air-pollution-chemicals.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/21/learning/summer-reading-contest-week-3-what-got-y
 **Canada 'deeply disturbed' by racist abuse of player after Argentina game**\
 `Canada Soccer says it is “deeply disturbed” by the racist abuse directed at one of their players following their Copa America opener against Argentina on Thursday.`\
 https://nytimes.com/athletic/5580958/2024/06/21/canada-racist-abuse-copa-moise-bombito/
-
-**Barcelona Femeni name Romeu, 30, as new head coach**\
-`Barcelona Femeni have appointed Pere Romeu as their new head coach.`\
-https://nytimes.com/athletic/5580976/2024/06/21/pere-romeu-barcelona-head-coach/
-
-**What to watch at U.S. Olympic track and field trials: Noah Lyles takes center stage**\
-`Over the next 10 days, Team USA's track and field squad will be set. Here are the top events and storylines to watch in Eugene.`\
-https://nytimes.com/athletic/5579970/2024/06/21/us-olympic-track-and-field-trials-noah-lyles/
 
