@@ -1,40 +1,40 @@
-**Neighbors Fight Affordable Housing, but Need Libraries. Can’t We Make a Deal?**\
-`An uplifting new library in Manhattan comes with 12 floors of subsidized apartments. It’s a clever way to find community support for housing.`\
-https://nytimes.com/2024/06/21/arts/design/inwood-library-affordable-housing.html
+**Swiss Court Set to Rule in Trafficking Case Involving U.K.’s Richest Family**\
+`The Hinduja family has denied allegations against four members that they trafficked domestic workers from India and exploited them at their villa in Geneva.`\
+https://nytimes.com/2024/06/21/world/europe/hinduja-family-human-trafficking-trial-pray-1.html
 
-**In New York City’s Subway System, There’s Beauty in the Mundane**\
-`“Contemporary Art Underground” showcases hundreds of artworks commissioned by the M.T.A., by artists like Alex Katz, Kiki Smith and Vik Muniz.`\
-https://nytimes.com/2024/06/21/books/review/contemporary-art-underground-mta-arts-design-new-york.html
+**A Stuffed Pepper Recipe That Goes Hard on Spiced Chickpeas**\
+`Blanketed with cheese, this filling recipe is perfect for summer and surprisingly light.`\
+https://nytimes.com/2024/06/21/dining/stuffed-pepper-recipe-chickpeas.html
 
-**The Original Sin of Olympics Sex Testing**\
-`We had a chance to treat sex categories in sports with curiosity and compassion instead of condemnation. We still can.`\
-https://nytimes.com/2024/06/21/opinion/sex-testing-paris-olympics.html
+**In Iran Election, a New Target for Conservatives: the Government**\
+`A special presidential election campaign is featuring blistering attacks on the status quo by conservatives and the lone reformer alike.`\
+https://nytimes.com/2024/06/21/world/middleeast/iran-presidential-election-mood.html
 
-**What to Do if You’re Overpaying for Prescriptions**\
-`Here’s what to know about your pharmacy benefit manager and how to find out if you are being overcharged for medications.`\
-https://nytimes.com/2024/06/21/business/prescriptions-overpaying-pbm.html
+**Dutch Fashion Designer Iris van Herpen Moves Into Art**\
+`“There’s more to me than only couture,” she said, previewing her first exhibition of sculpture. Catch it while you can: The show will last only 45 minutes.`\
+https://nytimes.com/2024/06/21/arts/design/dutch-fashion-van-herpen-art.html
 
-**Cancer Kills Millions of Dogs. Will Immunotherapy Prolong Their Lives?**\
-`Dr. Hans Klingemann, pioneering immunotherapy scientist, has studied whether the innovative treatment could save his two pets.`\
-https://nytimes.com/2024/06/21/science/dogs-cancer-immunotherapy.html
+**The Epitome of French Cool**\
+`Remembering pop icon Françoise Hardy.`\
+https://nytimes.com/2024/06/21/podcasts/the-epitome-of-french-cool.html
 
-**Which big men could Bucks target in the draft? Here are 9 to consider**\
-`Two-time Naismith Player of the Year Zach Edey could be available to the Bucks at No. 23. But would he be a good fit in Milwaukee?`\
-https://nytimes.com/athletic/5571425/2024/06/21/bucks-2024-nba-draft-preview-bigs/
+**6 Paperbacks to Read This Week **\
+`This week's selection includes titles by Gabrielle Zevin, Peace Adzo Medie, Patrick Mackie and more. `\
+https://nytimes.com/interactive/2024/06/21/books/new-paperbacks-zevin.html
 
-**MLB Draft Combine notes: Michael Massey healthy again after back surgery**\
-`Massey dealt with back pain all season but recently had surgery and said he is feeling ready to tackle the next step in his career.`\
-https://nytimes.com/athletic/5580086/2024/06/21/mlb-draft-combine-michael-massey-back-surgery/
+**5 Things You Do That Keep Dentists in Business**\
+`These habits can cause a surprising amount of damage to your teeth, experts say.`\
+https://nytimes.com/2024/06/21/well/live/teeth-habits-health-dentists.html
 
-**Who will be Team USA's starting five? An Olympic women's basketball mailbag**\
-`Answering your questions on the U.S. starting five, Chelsea Gray's status, Team USA's toughest opponent and more.`\
-https://nytimes.com/athletic/5574256/2024/06/21/team-usa-womens-basketball-olympics-mailbag/
+**The Lazy Authoritarianism of Donald Trump**\
+`The former president is no more prepared for a second term than he was for a first. He might even be less prepared.`\
+https://nytimes.com/2024/06/21/opinion/trump-second-term.html
 
-**The Spectacular Transformation of a Showman’s Mansion**\
-`The Harlem home of the circus impresario James A. Bailey is being restored, detail by detail, by a couple who are learning the job as they go along.`\
-https://nytimes.com/2024/06/21/realestate/streetscapes-harlem-bailey-house.html
+**5 Things to Do This Weekend**\
+`A selection of entertainment highlights this weekend, including the film “The Bikeriders.”`\
+https://nytimes.com/interactive/2024/06/21/arts/weekend-editors-picks-the-bikeriders.html
 
-**NASCAR at New Hampshire predictions: Christopher Bell, long shots, Silly Season questions**\
-`Our NASCAR experts give their favorites and long shots for the USA Today 301, plus answers to who might replace Martin Truex Jr. and more.`\
-https://nytimes.com/athletic/5579255/2024/06/21/nascar-at-new-hampshire-expert-predictions-christopher-bell-favored-long-shots-and-silly-season-questions/
+**The New York Times News Quiz, June 21, 2024**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2024/06/21/briefing/quiz-heat-nvidia-willie-mays-celtics.html
 
