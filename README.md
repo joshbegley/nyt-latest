@@ -1,3 +1,7 @@
+**McKennie joins criticism of Copa America field conditions: 'It's frustrating'**\
+`USMNT midfielder Weston McKennie has joined the mounting criticism of the &#8220;frustrating&#8221; field conditions at Copa America.`\
+https://nytimes.com/athletic/5582260/2024/06/21/copa-america-field-conditions-weston-mckennie/
+
 **U.N. Chief warns Israel and Hezbollah of the risk of a wider war.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/06/21/world/israel-gaza-war-hamas/un-chief-guterres-israel-hezbollah
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/18/opinion/thepoint/house-dragon-queer-love
 **FCS school challenges House v. NCAA settlement proposal**\
 `HCU argued its financial interests were not adequately represented by the proposed terms of the House settlement agreed to last month.`\
 https://nytimes.com/athletic/5582182/2024/06/21/houston-christian-house-ncaa-challenge/
-
-**The Supreme Court Upheld a Law Disarming Domestic Abusers**\
-`Also, dangerous heat is rising around the world. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2024/06/21/briefing/supreme-court-gun-law-donald-trump-fund-raising.html
 
