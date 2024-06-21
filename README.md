@@ -1,3 +1,35 @@
+**Time to Make, and Eat, Some Seriously Good Sandwiches**\
+`Halloumi with lettuce and tomato, spiced lamb on an English muffin and a Scuttlebutt.`\
+https://nytimes.com/2024/06/21/dining/time-to-make-and-eat-some-seriously-good-sandwiches.html
+
+**Students Kissed Her Feet for Good Luck. Now She’s Missing Her Head.**\
+`A replica of the Athena Giustiniani that greeted students at Wells College for more than 150 years was accidentally decapitated in the scramble to close the institution forever.`\
+https://nytimes.com/2024/06/21/arts/design/wells-college-minerva-statue-decapitated-beheaded.html
+
+**Five Horror Movies to Stream Now**\
+`This month’s picks include demon baby, a cursed chef and all kinds of people trapped in hellish situations.`\
+https://nytimes.com/2024/06/21/movies/five-horror-movies-to-stream-now.html
+
+**Slovakia 1 Ukraine 2 - Yaremchuk's nimble finish, a stirring comeback and the joy of watching Lobotka**\
+`Jacob Whitehead, Dermot Corrigan and Nick Miller analyse the main talking points from Ukraine's 2-1 win over Slovakia at Euro 2024`\
+https://nytimes.com/athletic/5572380/2024/06/21/slovakia-1-ukraine-2-euro-2024/
+
+**Live Q&A: Talking baseball with Eno Sarris on Friday 6/21 at 11:30 a.m. ET**\
+`Submit your questions for Eno Sarris' latest live chat about baseball, fantasy baseball and more.`\
+https://nytimes.com/athletic/5579094/2024/06/21/eno-sarris-live-chat-6-21/
+
+**Conan O’Brien Doesn’t Matter***\
+`*That’s his opinion. And yet he’s setting a new standard for what life after late-night can look like. (Hint: It’s a lot like what he did on talk shows.)`\
+https://nytimes.com/2024/06/21/arts/television/conan-obrien.html
+
+**At the Royal Ballet, Taking the Measure of Ashton’s Genius**\
+`Many remarkable performances fueled the Royal’s mini-festival of ballets by Frederick Ashton, the company’s founding choreographer.`\
+https://nytimes.com/2024/06/21/arts/dance/royal-ballet-ashton-mini-festival.html
+
+**Why has England’s top Premier League scorer Cole Palmer not played a minute at Euro 2024?**\
+`England have struggled in their two group games but Gareth Southgate has not yet turned to Chelsea’s talented playmaker`\
+https://nytimes.com/athletic/5580648/2024/06/21/cole-palmer-england-euro-2024/
+
 **Why Was Maine Sweltering?**\
 `A shifting weather front and climate change temporarily turned the temperate state subtropical.`\
 https://nytimes.com/2024/06/21/nyregion/why-was-maine-sweltering.html
@@ -5,36 +37,4 @@ https://nytimes.com/2024/06/21/nyregion/why-was-maine-sweltering.html
 **The Windup: Last night was baseball magic**\
 `Baseball at Rickwood Field was pure magic. Plus: Luis Robert Jr.’s trade market and a peek at this year’s draft.`\
 https://nytimes.com/athletic/5581382/2024/06/21/rickwood-field-game-willie-mays-the-windup/
-
-**Bragg Asks Judge to Extend Trump’s Gag Order, Citing Deluge of Threats**\
-`Donald J. Trump claims the order has unfairly restricted his free speech rights ahead of his sentencing on 34 felony counts. He has nonetheless attacked the judge, prosecutor and justice system.`\
-https://nytimes.com/2024/06/21/nyregion/trump-gag-order-bragg.html
-
-**Giants celebrate Willie Mays, pay tribute to Negro Leagues at Rickwood Field**\
-`Willie Mays couldn't return to Rickwood Field, where his professional career began, in person, but he was there in spirit.`\
-https://nytimes.com/athletic/5580519/2024/06/21/giants-willie-mays-rickwood-field/
-
-**Friday's MLB odds and predictions: Best and worst starting pitchers, home run streaks and more**\
-`Check in on our Friday MLB projections with odds for every game, picks for best value bets, pitcher props and more.`\
-https://nytimes.com/athletic/5581329/2024/06/21/mlb-odds-predictions-best-bets-june-21/
-
-**Finally, a Euros for a Whole Continent**\
-`Eastern European countries who have in recent years lagged behind their continent’s bigger names are having their day in the sun in Germany.`\
-https://nytimes.com/2024/06/21/world/europe/euro-2024-albania.html
-
-**Supreme Court Upholds Law Disarming Domestic Abusers**\
-`The justices rejected a Second Amendment challenge to a federal law that makes it a crime for people subject to domestic violence restraining orders to possess a gun.`\
-https://nytimes.com/2024/06/21/us/politics/supreme-court-guns-domestic-violence.html
-
-**1924: Trial Trip Date Set for Zeppelin**\
-`The giant airship was scheduled to fly across Germany to Denmark, Sweden and back. A flight across the Atlantic to the United States was tentatively planned to follow.`\
-https://nytimes.com/2024/06/21/world/germany-zeppelin-trial-flight.html
-
-**Mercedes-Benz Arena criticized by Argentina following Copa America opener**\
-`Following Argentina’s 2-0 win over Canada in the opening match of the Copa America, head coach Lionel Scaloni and several of his players criticized the playing surface at Mercedes-Benz Stadium in Atlanta.`\
-https://nytimes.com/athletic/5581244/2024/06/21/mercedes-benz-arena-turf-copa-america/
-
-**260 McNuggets? McDonald’s Ends A.I. Drive-Through Tests Amid Errors**\
-`Ordering mistakes frustrated customers during nearly three years of tests. But competitors like White Castle and Wendy’s say their A.I. ordering systems have been highly accurate.`\
-https://nytimes.com/2024/06/21/business/mcdonalds-ai-drive-thru-white-castle.html
 
