@@ -1,3 +1,7 @@
+**The Bounce: Why the Lakers need more than Redick**\
+`Zach Harper and Shams Charania catch you up on leaguewide news.`\
+https://nytimes.com/athletic/5580686/2024/06/21/jj-redick-lakers-the-bounce/
+
 **As Ukraine Expands Military Draft, Some Men Go Into Hiding**\
 `Fearful that conscription is a one-way ticket to bloody trench warfare, the men spend their days holed up at home to avoid draft officers who roam the streets.`\
 https://nytimes.com/2024/06/21/world/europe/ukraine-war-draft-dodgers-conscription.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5579970/2024/06/21/us-olympic-track-and-field-trial
 **How Billionaires Are Reshaping the Presidential Race**\
 `Wealthy donors including Timothy Mellon helped Donald Trump’s campaign out-raise President Biden’s last month, but Democratic supporters are still spending.`\
 https://nytimes.com/2024/06/21/business/dealbook/trump-biden-billionaire-donors.html
-
-**The heat wave in New York will continue through the weekend.**\
-`By Alyce McFadden`\
-https://nytimes.com/live/2024/06/21/us/heat-wave-news/the-heat-wave-in-new-york-will-continue-through-the-weekend
 
