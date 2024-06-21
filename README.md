@@ -1,3 +1,15 @@
+**How Misleading Videos Are Trailing Biden as He Battles Age Doubts**\
+`A flurry of recent clips, many of them edited or lacking context, laid bare a major challenge for the president as he tries to persuade voters he has the energy for a second term.`\
+https://nytimes.com/2024/06/21/us/politics/biden-age-videos.html
+
+**Conor McGregor says broken toe forced UFC 303 cancellation**\
+`McGregor also shared photos and an X-ray on X of his broken toe, which is his left pinky toe.`\
+https://nytimes.com/athletic/5581784/2024/06/21/conor-mcgregor-broken-toe-ufc-303/
+
+**Anthony O’Reilly, Flashy Irish Tycoon Who Led Heinz Company, Dies at 88**\
+`He found success on the rugby pitch and in boardrooms, building a media empire and boosting Heinz’s profits. He declared bankruptcy after his ventures buckled in the global financial crisis.`\
+https://nytimes.com/2024/06/21/business/anthony-oreilly-dead.html
+
 **Nathan Hare, 91, Dies; Founded the First Black Studies Program**\
 `Seeking to bring the ideas of Black power into the classroom — and coining the term “ethnic studies” — he clashed with a university as well as allies on the left.`\
 https://nytimes.com/2024/06/21/obituaries/nathan-hare-dead.html
@@ -26,16 +38,4 @@ https://nytimes.com/2024/06/21/arts/television/yellowstone-kevin-costner-leaving
 **Evaluating the Rangers' choices at wing: Free agent, trade and internal options**\
 `Some of the Rangers' newfound cap space could go to a new top-six wing. Here are some candidates to fill the role.`\
 https://nytimes.com/athletic/5580019/2024/06/21/rangers-free-agent-trade-wing/
-
-**Hawaii Settles With Young Plaintiffs in Climate Case**\
-`The state agreed to take steps cut greenhouse gas emissions from transportation. It’s the latest of several victories for youth-led climate lawsuits.`\
-https://nytimes.com/2024/06/21/climate/hawaii-youth-climate-lawsuit.html
-
-**Once banned from F1 for race fixing, Flavio Briatore is welcomed back**\
-`Once issued a lifetime ban for his role in 2008's 'Crashgate,' Briatore is now an advisor to the Alpine team — and nobody seems to mind.`\
-https://nytimes.com/athletic/5581546/2024/06/21/f1-flavio-briatore-alpine-crashgate/
-
-**$3.34 Trillion**\
-`The market value on Tuesday of Nvidia, whose chips have made it possible to create A.I. systems.`\
-https://nytimes.com/2024/06/21/business/3-34-trillion-nvidia-market-value.html
 
