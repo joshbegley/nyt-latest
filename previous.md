@@ -8,7 +8,7 @@ https://nytimes.com/athletic/5580019/2024/06/21/rangers-free-agent-trade-wing/
 
 **Hawaii Settles With Young Plaintiffs in Climate Case**\
 `The state agreed to take steps cut greenhouse gas emissions from transportation. It’s the latest of several victories for youth-led climate lawsuits.`\
-https://nytimes.com/2024/06/21/business/hawaii-youth-climate-lawsuit.html
+https://nytimes.com/2024/06/21/climate/hawaii-youth-climate-lawsuit.html
 
 **Once banned from F1 for race fixing, Flavio Briatore is welcomed back**\
 `Once issued a lifetime ban for his role in 2008's 'Crashgate,' Briatore is now an advisor to the Alpine team — and nobody seems to mind.`\

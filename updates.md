@@ -1,3 +1,7 @@
+**Hawaii Settles With Young Plaintiffs in Climate Case**\
+`The state agreed to take steps cut greenhouse gas emissions from transportation. It’s the latest of several victories for youth-led climate lawsuits.`\
+https://nytimes.com/2024/06/21/climate/hawaii-youth-climate-lawsuit.html
+
 **Kevin Costner Announces That He Is Done With ‘Yellowstone’**\
 `The actor and director is turning his attention to his ambitious film series about post-Civil War America.`\
 https://nytimes.com/2024/06/21/arts/television/yellowstone-kevin-costner-leaving.html
