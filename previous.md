@@ -1,3 +1,15 @@
+**Much of Rafah lies in ruins as Israeli forces push deeper into the city.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/06/21/world/israel-gaza-war-hamas/much-of-rafah-lies-in-ruins-as-israeli-forces-push-deeper-into-the-city
+
+**It’s the Summer of Powell and Pressburger in New York**\
+`The British filmmaking team were maestros of Technicolor and so much more. If you don’t know their work, your favorite directors do.`\
+https://nytimes.com/2024/06/21/movies/powell-pressburger-moma.html
+
+**Cyberattacks Disrupt Car Sales by Dealers in U.S. and Canada**\
+`The attacks on a software provider, CDK Global, affect systems that store customer records and automate paperwork and data for sales and service.`\
+https://nytimes.com/2024/06/21/business/cyberattack-car-dealers-cdk.html
+
 **Oil Projects Must Consider Full Climate Impact, Top U.K. Court Rules**\
 `Previously, local council and planning groups in Britain had to weigh only the planet-warming emissions from their own operations.`\
 https://nytimes.com/2024/06/21/world/europe/uk-supreme-court-oil-ruling.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/21/opinion/biden-trump-debate.html
 **Israeli Official Describes Secret Government Bid to Cement Control of West Bank**\
 `Israeli judges have long ruled that Israel’s control of the territory is a temporary military occupation and complies with international law. A powerful minister’s recent speech, caught on tape, suggested the government is trying to change that.`\
 https://nytimes.com/2024/06/21/world/middleeast/israel-west-bank-netanyahu-bezalel-smotrich.html
-
-**Forest sign Stamenic from Red Star Belgrade; will join Olympiacos on loan**\
-`Nottingham Forest have completed the signing of Marko Stamenic from Red Star Belgrade.`\
-https://nytimes.com/athletic/5581482/2024/06/21/nottingham-forest-stamenic-signing/
-
-**Israel says it struck a missile launch site in a Gaza ‘humanitarian zone.’**\
-`By Hiba Yazbek`\
-https://nytimes.com/live/2024/06/21/world/israel-gaza-war-hamas/israel-says-it-struck-a-missile-launch-site-in-a-gaza-humanitarian-zone
-
-**Boeing Is Expected to Evade Criminal Charges for Violating Settlement**\
-`The Justice Department will require the aircraft manufacturer to install an independent federal monitor to oversee safety and quality issues.`\
-https://nytimes.com/2024/06/21/us/politics/boeing-doj-deferred-prosecution-agreement.html
 

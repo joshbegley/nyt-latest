@@ -1,3 +1,15 @@
+**Much of Rafah lies in ruins as Israeli forces push deeper into the city.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/06/21/world/israel-gaza-war-hamas/much-of-rafah-lies-in-ruins-as-israeli-forces-push-deeper-into-the-city
+
+**It’s the Summer of Powell and Pressburger in New York**\
+`The British filmmaking team were maestros of Technicolor and so much more. If you don’t know their work, your favorite directors do.`\
+https://nytimes.com/2024/06/21/movies/powell-pressburger-moma.html
+
+**Cyberattacks Disrupt Car Sales by Dealers in U.S. and Canada**\
+`The attacks on a software provider, CDK Global, affect systems that store customer records and automate paperwork and data for sales and service.`\
+https://nytimes.com/2024/06/21/business/cyberattack-car-dealers-cdk.html
+
 **Oil Projects Must Consider Full Climate Impact, Top U.K. Court Rules**\
 `Previously, local council and planning groups in Britain had to weigh only the planet-warming emissions from their own operations.`\
 https://nytimes.com/2024/06/21/world/europe/uk-supreme-court-oil-ruling.html
