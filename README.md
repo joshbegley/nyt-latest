@@ -1,40 +1,40 @@
-**Slot's first Anfield game to be Sevilla friendly**\
-`Arne Slot will take charge of Liverpool at Anfield for the first time when his new side host Sevilla in an August pre-season friendly.`\
-https://nytimes.com/athletic/5580622/2024/06/21/arne-slot-liverpool-anfield-sevilla/
+**The Vikings’ most surprising roster hole, and what they might do to fix it**\
+`Brandon Powell could be Minnesota's best in-house option at the No. 3 WR spot, but the Vikings might be wise to make a move before Week 1.`\
+https://nytimes.com/athletic/5578956/2024/06/21/vikings-roster-wr-brandon-powell/
 
-**‘Tiny Crime Fighters With Wings’: Bees Go to Work on a Virginia ‘Body Farm’**\
-`By studying bees and their honey near decomposing human tissue, researchers at George Mason University hope to give crime scene investigators a new tool for finding the hidden dead.`\
-https://nytimes.com/2024/06/21/science/body-donation-farm-virginia-death-scent.html
+**Greenberg: Bulls wake up and make a move, but will Josh Giddey make anyone happy?**\
+`If Giddey were coming to Chicago with two draft picks in his pocket, we'd be looking at this deal in a far different manner.`\
+https://nytimes.com/athletic/5580060/2024/06/21/josh-giddey-bulls-thunder-trade-nba/
 
-**NBA Player Tiers: Kevin Durant, Steph Curry hang on in Tier 1, but how much longer?**\
-`Some of the game's greatest stars may be leaving Tier 1 soon, but one player near the top has one of the greatest four-year runs in history.`\
-https://nytimes.com/athletic/5578457/2024/06/21/nba-player-tiers-kevin-durant-steph-curry-hang-on-in-tier-1-but-how-much-longer/
+**How the Oilers are embracing their unusual journey in the Stanley Cup Final**\
+`Even though the Oilers are still down 3-2, they feel like they’re almost in the driver’s seat with Game 6 in Edmonton.`\
+https://nytimes.com/athletic/5579747/2024/06/21/oilers-stanley-cup-final-game-6-preview/
 
-**Boston loves Al Horford and he wants you to know the feeling is mutual**\
-`"I’m just very proud to be able to bring a championship to Boston," said Horford, a Celtics fan favorite. `\
-https://nytimes.com/athletic/5579906/2024/06/21/al-horford-boston-celtics-parade/
+**Ravens news, notes and opinions: Could Brandon Stephens be next to get an extension?**\
+`Plus, thoughts on the team's alternate helmet, the AFC North in-season edition of "Hard Knocks" and Derrick Henry's role in Baltimore. `\
+https://nytimes.com/athletic/5576741/2024/06/21/baltimore-ravens-contract-extension-candidates/
 
-**Wales part company with manager Page**\
-`Wales have parted company with manager Rob Page.`\
-https://nytimes.com/athletic/5580529/2024/06/21/rob-page-wales-manager-sacked/
+**Sidney Crosby has long known Connor McDavid would take hockey's throne**\
+`Crosby has been quietly watching McDavid for a long time, identifying McDavid as his successor.`\
+https://nytimes.com/athletic/5579140/2024/06/21/connor-mcdavid-stanley-cup-sidney-crosby/
 
-**Ranking Ohio State's position groups: DBs, D-line and RBs all have case for No. 1**\
-`Ohio State has national championship expectations in 2024. It's easy to see why when you measure the position groups against each other.`\
-https://nytimes.com/athletic/5579025/2024/06/21/ohio-state-football-roster-position-rankings/
+**America’s Top Doctor on Why He Wants Warning Labels on Social Media**\
+`The surgeon general says parents should be aware that using the platforms might harm adolescents’ mental health.`\
+https://nytimes.com/2024/06/21/podcasts/the-daily/americas-top-doctor-on-why-he-wants-warning-labels-on-social-media.html
 
-**MLB trade market: Why it's not so easy to swing a deal before the deadline**\
-`Deadlines spur activity, but there’s nothing stopping teams from swinging trades in mid-July or early July — or even right now.`\
-https://nytimes.com/athletic/5579147/2024/06/21/mlb-trade-deadline-moves-timeline/
+**A Rubens Returns to a German Castle, 80 Years After It Was Stolen**\
+`The oil painting of a saint, looted from the castle in the closing weeks of World War II by the ducal family that once owned it, is being returned by a Buffalo museum.`\
+https://nytimes.com/2024/06/21/arts/design/a-rubens-returns-to-a-german-castle-80-years-after-it-was-stolen.html
 
-**Phillies takeaways: Better at-bats, the outfield and the trade deadline, Stubbs vs. Marchán**\
-`Only three teams have had bigger year-to-year drops in chase rate. Almost every Phillies regular has made better first-pitch decisions.`\
-https://nytimes.com/athletic/5578678/2024/06/21/phillies-hitters-outfield-trade-deadline/
+**What's it like when Steph Curry shows up at a pickup game? 'Even the adults were screaming'**\
+`The NBA icon surprised a group of men's basketball players in Folsom, Calif., joining them for their pickup games.`\
+https://nytimes.com/athletic/5575595/2024/06/21/steph-curry-pickup-sacramento/
 
-**Takeaways from Michigan's June recruiting surge: A 2026 QB, plus rising optimism for 2025**\
-`Recruiting started slow for Michigan after Sherrone Moore replaced Jim Harbaugh, but June has featured notable developmenets.`\
-https://nytimes.com/athletic/5579665/2024/06/21/michigan-football-recruiting-brady-hart/
+**Messi begins the Copa America with only way he knows - a captain's performance**\
+`Canada said they would target Messi and they didn't disappoint. But the Argentina captain, as he always does, thrived on the attention`\
+https://nytimes.com/athletic/5580388/2024/06/21/lionel-messi-argentina-captain-copa-america/
 
-**A Stuffed Pepper Recipe That Goes Hard on Spiced Chickpeas**\
-`Blanketed with cheese, this filling recipe is perfect for summer and surprisingly light.`\
-https://nytimes.com/2024/06/21/dining/stuffed-pepper-recipe-chickpeas.html
+**Leeds head of medicine Rob Price leaves club**\
+`Leeds United have announced the departure of their head of medicine and performance Rob Price.`\
+https://nytimes.com/athletic/5580644/2024/06/21/leeds-news-rob-price/
 
