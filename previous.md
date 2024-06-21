@@ -20,7 +20,7 @@ https://nytimes.com/2024/06/21/us/nevada-trump-elections.html
 
 **Gaza authorities say 25 people were killed by a strike on a camp for displaced people.**\
 `By Anjana Sankar`\
-https://nytimes.com/live/2024/06/21/world/israel-gaza-war-hamas/gaza-authorities-say-25-people-were-killed-by-a-strike-on-a-camp-for-displaced-people
+https://nytimes.com/2024/06/21/world/middleeast/israel-gaza-strike-mawasi.html
 
 **The Best of Late Night This Week**\
 `This week, the hosts riffed on the heat wave that pummeled the U.S. as well as Trump trying to argue that he’s more mentally fit to lead than President Biden. Here’s what they had to say.`\

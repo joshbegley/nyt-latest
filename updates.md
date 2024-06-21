@@ -1,3 +1,7 @@
+**Gaza authorities say 25 people were killed by a strike on a camp for displaced people.**\
+`By Anjana Sankar`\
+https://nytimes.com/2024/06/21/world/middleeast/israel-gaza-strike-mawasi.html
+
 **Andrew Cogliano retires as beloved example to NHL players**\
 `When Erik Johnson handed Andrew Cogliano the Stanley Cup for the first time, Cogliano, the veteran wing, shifted his body so he was facing his 2021-22 Avalanche teammates.`\
 https://nytimes.com/athletic/5581458/2024/06/21/avalanche-andrew-cogliano-retirement/
