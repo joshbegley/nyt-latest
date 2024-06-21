@@ -1,6 +1,6 @@
 **Cardinals' Willie McGee savors his brush with baseball history: 'They deserve this'**\
 `McGee accompanied Bill Greason on the field as the 99-year-old former Birmingham Black Baron threw out the first pitch.`\
-https://nytimes.com/athletic/5580233/2024/06/21/mllb-cardinals-bill-greason/
+https://nytimes.com/athletic/5580233/2024/06/21/mlb-cardinals-bill-greason-willie-mcgee/
 
 **Marsch questions whether Argentina will be fined after delay to Canada second-half**\
 `Jesse Marsch has questioned whether Argentina will be fined for delaying the second-half of their Copa America opener with Canada.`\
