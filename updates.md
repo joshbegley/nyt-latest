@@ -1,3 +1,7 @@
+**Is Kane a symptom of England's malaise or one of the causes of it?**\
+`The England captain has looked off the pace so far at the Euros, though he has started other tournaments slowly too`\
+https://nytimes.com/athletic/5579223/2024/06/21/harry-kane-england-denmark/
+
 **Word of the Day: incessant**\
 `This word has appeared in 89 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/06/21/learning/word-of-the-day-incessant.html
