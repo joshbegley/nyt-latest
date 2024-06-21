@@ -1,3 +1,7 @@
+**Argentina 2, Canada 0: Takeaways from the Copa America opener**\
+`After a slow start, Argentina edged out a competitive Canada team `\
+https://nytimes.com/athletic/5579299/2024/06/20/argentina-canada-copa-america/
+
 **Messi breaks Copa America appearance record**\
 `Lionel Messi has broken the all-time record for most appearances at Copa America.`\
 https://nytimes.com/athletic/5579730/2024/06/20/lionel-messi-copa-america-appearances-record/
@@ -8,7 +12,7 @@ https://nytimes.com/athletic/5579936/2024/06/20/reggie-jackson-comments-tv/
 
 **Bloomberg Backs Biden With $20 Million Donation**\
 `The former mayor of New York City, a Democratic megadonor, became a significant backer of Mr. Biden’s in 2020 after spending $1 billion on his own failed bid.`\
-https://nytimes.com/2024/06/20/us/politics/bloomberg-backs-biden-with-20-million-donation.html
+https://nytimes.com/2024/06/20/us/politics/michael-bloomberg-biden-donation.html
 
 **Suits From Around the Globe**\
 `Were you on Billy Bratton’s wavelength?`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/20/theater/cats-the-jellicle-ball-review.html
 **Are the Orioles better than the Yankees? What we learned this week**\
 `“It’s going to be back and forth all the way until the end of September,” Aaron Judge said on the rivalry with Baltimore. “That’s for sure."`\
 https://nytimes.com/athletic/5579900/2024/06/20/are-orioles-better-than-yankees-analysis/
-
-**Caruso-Giddey trade grades: Thunder add defense, shooting; Bulls get younger**\
-`Less than a week before the NBA Draft, we get a one-for-one swap of perimeter players. Is this a good move for both sides?`\
-https://nytimes.com/athletic/5579841/2024/06/20/caruso-giddey-trade-grades-thunder-bulls/
 
