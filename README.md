@@ -1,3 +1,11 @@
+**Boeing Is Expected to Evade Criminal Charges for Violating Settlement**\
+`The Justice Department will require the aircraft manufacturer to install an independent federal monitor to oversee safety and quality issues.`\
+https://nytimes.com/2024/06/21/us/politics/boeing-doj-deferred-prosecution-agreement.html
+
+**Is Missouri About to Execute an Innocent Man?**\
+`The case against Marcellus Williams is far from settled.`\
+https://nytimes.com/2024/06/21/opinion/death-penalty-missouri-williams.html
+
 **15 Great Donald Sutherland Performances to Stream**\
 `Whether in the lead or a supporting role, the actor’s immense talent and range were apparent in six decades of performances.`\
 https://nytimes.com/2024/06/21/movies/donald-sutherland-streaming.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/21/arts/television/conan-obrien.html
 **At the Royal Ballet, Taking the Measure of Ashton’s Genius**\
 `Many remarkable performances fueled the Royal’s mini-festival of ballets by Frederick Ashton, the company’s founding choreographer.`\
 https://nytimes.com/2024/06/21/arts/dance/royal-ballet-ashton-mini-festival.html
-
-**Why has England’s top Premier League scorer Cole Palmer not played a minute at Euro 2024?**\
-`England have struggled in their two group games but Gareth Southgate has not yet turned to Chelsea’s talented playmaker`\
-https://nytimes.com/athletic/5580648/2024/06/21/cole-palmer-england-euro-2024/
-
-**Why Was Maine Sweltering?**\
-`A shifting weather front and climate change temporarily turned the temperate state subtropical.`\
-https://nytimes.com/2024/06/21/nyregion/why-was-maine-sweltering.html
 
