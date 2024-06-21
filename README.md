@@ -1,9 +1,21 @@
+**Phelps rejoining NBC's Olympic broadcast team**\
+`Phelps was a part of NBC's swimming broadcast team during the Tokyo 2020 Games.`\
+https://nytimes.com/athletic/5581543/2024/06/21/michael-phelps-broadcast-paris-2024/
+
+**Tierney to miss rest of Euro 2024 due to injury**\
+`Scotland’s Kieran Tierney has been ruled out for the rest of the European Championship due to injury.`\
+https://nytimes.com/athletic/5581290/2024/06/21/kieran-tierney-injury-scotland-euro-2024/
+
+**Katie Ledecky in SoFi Stadium: Plans Emerge to Supercharge the 2028 L.A. Olympics**\
+`Organizers of the Los Angeles Olympic Games hope that a huge venue for swimming, a marquee event, will draw crowds and generate much-needed revenue.`\
+https://nytimes.com/2024/06/21/sports/olympics/olympic-swimming-2028-la-games.html
+
 **The Supreme Court Dials Down the Chaos on Guns**\
 `Previous attempts to broaden the Second Amendment don’t apply to a domestic abuser, eight justices ruled.`\
 https://nytimes.com/2024/06/18/opinion/supreme-court-guns-domestic-abuse.html
 
 **Tracking a Single Day at the National Domestic Violence Hotline**\
-`Some of the Supreme Court’s decisions this term, including a ruling that allowed the government to prohibit people subject to restraining orders from having guns, has underscored the pervasiveness of domestic violence.`\
+`Some major Supreme Court decisions this term, including a ruling that allowed the government to prohibit people subject to restraining orders from having guns, have underscored the pervasiveness of domestic violence.`\
 https://nytimes.com/interactive/2024/06/21/us/domestic-violence-hotline.html
 
 **Pedro Rocha: Sports court calls for six-year ban for Spanish FA president**\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/21/movies/powell-pressburger-moma.html
 **Cyberattacks Disrupt Car Sales by Dealers in U.S. and Canada**\
 `The attacks on a software provider, CDK Global, affect systems that store customer records and automate paperwork and data for sales and service.`\
 https://nytimes.com/2024/06/21/business/cyberattack-car-dealers-cdk.html
-
-**Oil Projects Must Consider Full Climate Impact, Top U.K. Court Rules**\
-`Previously, local council and planning groups in Britain had to weigh only the planet-warming emissions from their own operations.`\
-https://nytimes.com/2024/06/21/world/europe/uk-supreme-court-oil-ruling.html
-
-**England mailbag: No Phillips replacement? Why no Palmer? Is Trent being misused?**\
-`We asked for your questions about England's misfiring Euro 2024 campaign... and you were not shy in asking them`\
-https://nytimes.com/athletic/5580889/2024/06/21/england-euro-2024-mailbag-answers/
-
-**2024 NBA Draft Guide: Tiers, final rankings and Big Board**\
-`Want to know everything possible about the 2024 NBA Draft class? I dive deep with more than 130,000 words on this year's prospects. `\
-https://nytimes.com/athletic/5579170/2024/06/21/nba-draft-2024-top-100-prospects-guide-bronny-james/
 
