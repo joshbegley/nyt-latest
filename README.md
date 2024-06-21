@@ -32,7 +32,7 @@ https://nytimes.com/athletic/5579665/2024/06/21/michigan-football-recruiting-bra
 
 **Swiss Court Set to Rule in Trafficking Case Involving U.K.’s Richest Family**\
 `The Hinduja family has denied allegations against four members that they trafficked domestic workers from India and exploited them at their villa in Geneva.`\
-https://nytimes.com/2024/06/21/world/europe/hinduja-family-human-trafficking-trial-pray-1.html
+https://nytimes.com/2024/06/21/world/europe/hinduja-family-human-trafficking-trial.html
 
 **A Stuffed Pepper Recipe That Goes Hard on Spiced Chickpeas**\
 `Blanketed with cheese, this filling recipe is perfect for summer and surprisingly light.`\
