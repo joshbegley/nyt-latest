@@ -1,3 +1,7 @@
+**Lilly King gets surprise proposal after clinching second Olympic spot**\
+`The engagement occurred right after King pulled off a thrilling comeback to clinch a spot in a second Olympic race.`\
+https://nytimes.com/athletic/5579951/2024/06/20/lilly-king-swim-trials-engaged/
+
 **Say Hey: The Willie Mays song with the connection to Birmingham's Rickwood Field**\
 `Epic Records wasn't against making a Willie Mays record. But Mays had to make a cameo appearance.`\
 https://nytimes.com/athletic/5579856/2024/06/20/willie-mays-say-hey-song-rickwood-field/
