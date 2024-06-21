@@ -1,3 +1,7 @@
+**Caruso-Giddey trade grades: Thunder add defense, shooting; Bulls get younger**\
+`Less than a week before the NBA Draft, we get a one-for-one swap of perimeter players. Is this a good move for both sides?`\
+https://nytimes.com/athletic/5579841/2024/06/20/caruso-giddey-trade-grades-thunder-bulls/
+
 **Timothy Mellon, Secretive Donor, Gives $50 Million to Pro-Trump Group**\
 `The cash from Mr. Mellon, a reclusive billionaire who has also been a major donor to a super PAC supporting Robert F. Kennedy Jr., is among the largest single disclosed gifts ever.`\
 https://nytimes.com/2024/06/20/us/politics/timothy-mellon-trump-donation.html
