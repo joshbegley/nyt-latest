@@ -1,3 +1,7 @@
+**At Rickwood Field, Willie Mays Is the Star of the Show, One More Time**\
+`On a night that honored the Negro leagues and Mays, who died on Tuesday, a baseball game between the Giants and the Cardinals was almost beside the point.`\
+https://nytimes.com/2024/06/20/us/baseball-rickwood-field-mays-negro-leagues.html
+
 **At Stanford, 2 Reports on Bias Show Extent of Divide Between Jews and Muslims**\
 `One report documented antisemitic threats. The other, anti-Muslim threats. Both signaled that there may be little room for agreement.`\
 https://nytimes.com/2024/06/20/us/stanford-antisemitism-muslims-report.html

@@ -1,3 +1,7 @@
+**At Rickwood Field, Willie Mays Is the Star of the Show, One More Time**\
+`On a night that honored the Negro leagues and Mays, who died on Tuesday, a baseball game between the Giants and the Cardinals was almost beside the point.`\
+https://nytimes.com/2024/06/20/us/baseball-rickwood-field-mays-negro-leagues.html
+
 **At Stanford, 2 Reports on Bias Show Extent of Divide Between Jews and Muslims**\
 `One report documented antisemitic threats. The other, anti-Muslim threats. Both signaled that there may be little room for agreement.`\
 https://nytimes.com/2024/06/20/us/stanford-antisemitism-muslims-report.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5579951/2024/06/20/lilly-king-swim-trials-engaged/
 **Say Hey: The Willie Mays song with the connection to Birmingham's Rickwood Field**\
 `Epic Records wasn't against making a Willie Mays record. But Mays had to make a cameo appearance.`\
 https://nytimes.com/athletic/5579856/2024/06/20/willie-mays-say-hey-song-rickwood-field/
-
-**Trump Says He Would Give Green Cards to All Foreign College Students at Graduation**\
-`Mr. Trump’s promise to Silicon Valley investors was a sharp departure from actions he took during his presidency to restrict legal immigration.`\
-https://nytimes.com/2024/06/20/us/politics/trump-green-cards-college-graduates.html
 
