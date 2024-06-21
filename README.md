@@ -30,11 +30,11 @@ https://nytimes.com/athletic/5578678/2024/06/21/phillies-hitters-outfield-trade-
 `Recruiting started slow for Michigan after Sherrone Moore replaced Jim Harbaugh, but June has featured notable developmenets.`\
 https://nytimes.com/athletic/5579665/2024/06/21/michigan-football-recruiting-brady-hart/
 
-**Swiss Court Set to Rule in Trafficking Case Involving U.K.’s Richest Family**\
-`The Hinduja family has denied allegations against four members that they trafficked domestic workers from India and exploited them at their villa in Geneva.`\
-https://nytimes.com/2024/06/21/world/europe/hinduja-family-human-trafficking-trial.html
-
 **A Stuffed Pepper Recipe That Goes Hard on Spiced Chickpeas**\
 `Blanketed with cheese, this filling recipe is perfect for summer and surprisingly light.`\
 https://nytimes.com/2024/06/21/dining/stuffed-pepper-recipe-chickpeas.html
+
+**Swiss Court Set to Rule in Trafficking Case Involving U.K.’s Richest Family**\
+`The Hinduja family has denied allegations against four members that they trafficked domestic workers from India and exploited them at their villa in Geneva.`\
+https://nytimes.com/2024/06/21/world/europe/hinduja-family-human-trafficking-trial.html
 
