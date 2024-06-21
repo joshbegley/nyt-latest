@@ -1,3 +1,19 @@
+**Troy Parrott and Tottenham Hotspur: it's decision time**\
+`Parrott played in four first team matches for Spurs in 2019-20, but not a single minute since - this summer feels like a pivotal moment `\
+https://nytimes.com/athletic/5567555/2024/06/21/troy-parrott-tottenham-future/
+
+**Emotion, PSR value, tactical importance - who should Chelsea sell before June 30 deadline?**\
+`If player sales will be the primary driver of Chelsea’s ongoing PSR compliance, it is likely they have more work to do ahead of June 30`\
+https://nytimes.com/athletic/5578154/2024/06/21/chelsea-transfer-psr-sell-sales/
+
+**Leeds' pre-season plans: A more settled squad, a trip abroad - and no Olympic call-ups**\
+`Leeds United had a tough summer after relegation — they have reason to believe it will be easier this time around`\
+https://nytimes.com/athletic/5569489/2024/06/21/leeds-united-pre-season/
+
+**Inside Gabriel's personalised performance-management setup**\
+`Gabriel has built a performance-development team around him, in addition to the support he receives from Arsenal's staff`\
+https://nytimes.com/athletic/5577865/2024/06/21/gabriel-arsenal-perormance-management/
+
 **Matija Sarkic remembered: 'He was half of me - it's devastating'**\
 `Family and friends share their memories of the Montenegro goalkeeper who died suddenly, aged 26, last week`\
 https://nytimes.com/athletic/5577909/2024/06/21/matija-sarkic-remembered/
