@@ -1,3 +1,7 @@
+**Friday's MLB odds and predictions: Best and worst starting pitchers, home run streaks and more**\
+`Check in on our Friday MLB projections with odds for every game, picks for best value bets, pitcher props and more.`\
+https://nytimes.com/athletic/5581329/2024/06/21/mlb-odds-predictions-best-bets-june-21/
+
 **Finally, a Euros for a Whole Continent**\
 `Eastern European countries who have in recent years lagged behind their continent’s bigger names are having their day in the sun in Germany.`\
 https://nytimes.com/2024/06/21/world/europe/euro-2024-albania.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5580686/2024/06/21/jj-redick-lakers-the-bounce/
 **As Ukraine Expands Military Draft, Some Men Go Into Hiding**\
 `Fearful that conscription is a one-way ticket to bloody trench warfare, the men spend their days holed up at home to avoid draft officers who roam the streets.`\
 https://nytimes.com/2024/06/21/world/europe/ukraine-war-draft-dodgers-conscription.html
-
-**So Much for California’s Big November Anti-Tax Initiative**\
-`Businesses are fuming and cities are exhaling after the State Supreme Court blocked a ballot measure at the heart of a big fight in Sacramento.`\
-https://nytimes.com/2024/06/21/us/california-supreme-court-tax-initiative.html
 
