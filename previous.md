@@ -1,3 +1,7 @@
+**Baggio’s villa broken into by armed robbers**\
+`Italian law enforcers are investigating after Roberto Baggio’s villa was broken into by armed robbers on the night of Italy’s Euro 2024 group stage game against Spain.`\
+https://nytimes.com/athletic/5580680/2024/06/21/roberto-baggio-italy-robbery/
+
 **Flavio Briatore makes official F1 return as Alpine executive advisor**\
 `Flavio Briatore has been named as Alpine’s new executive advisor in Formula One, 16 years after his involvement in the Singapore ‘Crashgate’ race-fixing scandal.`\
 https://nytimes.com/athletic/5580630/2024/06/21/flavio-briatore-f1-alpine/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5580060/2024/06/21/josh-giddey-bulls-thunder-trade-
 **How the Oilers are embracing their unusual journey in the Stanley Cup Final**\
 `Even though the Oilers are still down 3-2, they feel like they’re almost in the driver’s seat with Game 6 in Edmonton.`\
 https://nytimes.com/athletic/5579747/2024/06/21/oilers-stanley-cup-final-game-6-preview/
-
-**Copa America's five weirdest stories: Blackmail, three missed penalties and a 'chilled ball'**\
-`Wild times at the Copa America - a quick guide to the competition's most extraordinary tales`\
-https://nytimes.com/athletic/5570255/2024/06/21/copa-americas-five-weirdest-stories/
 

@@ -1,3 +1,7 @@
+**Baggio’s villa broken into by armed robbers**\
+`Italian law enforcers are investigating after Roberto Baggio’s villa was broken into by armed robbers on the night of Italy’s Euro 2024 group stage game against Spain.`\
+https://nytimes.com/athletic/5580680/2024/06/21/roberto-baggio-italy-robbery/
+
 **Flavio Briatore makes official F1 return as Alpine executive advisor**\
 `Flavio Briatore has been named as Alpine’s new executive advisor in Formula One, 16 years after his involvement in the Singapore ‘Crashgate’ race-fixing scandal.`\
 https://nytimes.com/athletic/5580630/2024/06/21/flavio-briatore-f1-alpine/
