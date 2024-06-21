@@ -1,3 +1,7 @@
+**Trump Says He Would Give Green Cards to All Foreign College Students at Graduation**\
+`Mr. Trump’s promise to Silicon Valley investors was a sharp departure from actions he took during his presidency to restrict legal immigration.`\
+https://nytimes.com/2024/06/20/us/politics/trump-green-cards-college-graduates.html
+
 **Review: A 10th Life for Those Jellicle ‘Cats,’ Now in Drag**\
 `Resetting the “Memory” musical in the world of ballroom competitions makes for a joyful reincarnation.`\
 https://nytimes.com/2024/06/20/theater/cats-the-jellicle-ball-review.html
