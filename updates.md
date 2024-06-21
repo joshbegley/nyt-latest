@@ -1,3 +1,7 @@
+**Mercedes-Benz Arena criticized by Argentina following Copa America opener**\
+`Following Argentina’s 2-0 win over Canada in the opening match of the Copa America, head coach Lionel Scaloni and several of his players criticized the playing surface at Mercedes-Benz Stadium in Atlanta.`\
+https://nytimes.com/athletic/5581244/2024/06/21/mercedes-benz-arena-turf-copa-america/
+
 **260 McNuggets? McDonald’s Ends A.I. Drive-Through Tests Amid Errors**\
 `Ordering mistakes frustrated customers during nearly three years of tests. But competitors like White Castle and Wendy’s say their A.I. ordering systems have been highly accurate.`\
 https://nytimes.com/2024/06/21/business/mcdonalds-ai-drive-thru-white-castle.html
