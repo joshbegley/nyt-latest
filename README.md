@@ -1,3 +1,7 @@
+**Spalletti's Italy must stay true to their style - even if it abandoned them against Spain**\
+`'The only thing that can save us is our brand of football' said Spalletti. Italy must remember that in their final group game`\
+https://nytimes.com/athletic/5579480/2024/06/21/italy-spain-spalletti-style-result/
+
 **Cardinals' Willie McGee savors his brush with baseball history: 'They deserve this'**\
 `McGee accompanied Bill Greason on the field as the 99-year-old former Birmingham Black Baron threw out the first pitch.`\
 https://nytimes.com/athletic/5580233/2024/06/21/mlb-cardinals-bill-greason-willie-mcgee/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5578737/2024/06/21/transfers-between-premier-league
 **Fantasy baseball waiver wire: Michael Toglia, Michael Wacha and more adds; plus, two-start pitchers and stashes**\
 `John Laghezza runs the numbers to reveal the best available fantasy baseball waiver wire options this week, like Colorado's Michael Toglia.`\
 https://nytimes.com/athletic/5576950/2024/06/21/fantasy-baseball-waiver-wire-michael-toglia-michael-wacha-adds-two-start-pitchers-stashes/
-
-**France find reassurance in N'Golo Kante's return: Chouchou has become a quiet leader**\
-`There was surprise when the Al Ittihad midfielder was recalled for Euro 2024 but, already, he has demonstrated what he still offers France`\
-https://nytimes.com/athletic/5579340/2024/06/21/kante-france-euro2024/
 
