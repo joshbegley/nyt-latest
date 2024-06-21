@@ -1,3 +1,7 @@
+**Friedkin has reached an agreement to buy Everton from Moshiri - what happens next?**\
+`The long and perilous wait for Everton to have new owners is almost over. The Athletic explores what Friedkin's exclusivity agreement means`\
+https://nytimes.com/athletic/5570035/2024/06/21/everton-takeover-dan-friedkin-moshiri/
+
 **Is Kane a symptom of England's malaise or one of the causes of it?**\
 `The England captain has looked off the pace so far at the Euros, though he has started other tournaments slowly too`\
 https://nytimes.com/athletic/5579223/2024/06/21/harry-kane-england-denmark/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5578154/2024/06/21/chelsea-transfer-psr-sell-sales/
 **Leeds' pre-season plans: A more settled squad, a trip abroad - and no Olympic call-ups**\
 `Leeds United had a tough summer after relegation — they have reason to believe it will be easier this time around`\
 https://nytimes.com/athletic/5569489/2024/06/21/leeds-united-pre-season/
-
-**Inside Gabriel's personalised performance-management setup**\
-`Gabriel has built a performance-development team around him, in addition to the support he receives from Arsenal's staff`\
-https://nytimes.com/athletic/5577865/2024/06/21/gabriel-arsenal-perormance-management/
 
