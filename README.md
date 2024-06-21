@@ -1,3 +1,7 @@
+**Wilson, Clark headline first-round fan voting for WNBA All-Star Game**\
+`The 2024 WNBA All-Star Game rosters will be announced on July 2. The game takes place on July 20.`\
+https://nytimes.com/athletic/5581948/2024/06/21/wnba-all-stars-early-voting-caitlin-clark/
+
 **Charli XCX and Lorde End the Rumors on a Refreshing Remix**\
 `Lorde adds guest vocals to Charli XCX’s “Girl, So Confusing,” a song that muses on the complexities of female friendship, and helps create something revelatory.`\
 https://nytimes.com/2024/06/21/arts/music/charli-xcx-lorde-girl-so-confusing-remix.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/21/us/fda-menthol-ecigarettes.html
 **When Willie Mays became a superstar and an American icon**\
 `If you're wondering how long it took Willie Mays to become a hero, a superstar, a revered American icon, it happened immediately.`\
 https://nytimes.com/athletic/5580221/2024/06/21/willie-mays-history-american-icon/
-
-**5 keys to Panthers-Oilers Stanley Cup Game 6: Can Draisaitl step it up? Can Bobrovsky shut it down?**\
-`The Oilers are halfway to completing one of the biggest comebacks in NHL playoff history. Can they keep it going with a win Friday?`\
-https://nytimes.com/athletic/5581848/2024/06/21/stanley-cup-game-6-keys/
 
