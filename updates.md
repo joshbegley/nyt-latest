@@ -1,3 +1,8 @@
+**Growing A Legacy**\
+`For the Bradfords, a family of fourth-generation ranchers raising
+cattle on 1,000 acres in Oklahoma, wealth building begins at the roots.`\
+https://nytimes.com/paidpost/us-bank/a-legacy-fulfilled/growing-a-legacy.html
+
 **Southwest Plane Begins Descent Too Early Over Oklahoma City**\
 `Its low altitude had triggered an automated warning and startled some residents near Oklahoma City, where it eventually landed safely.`\
 https://nytimes.com/2024/06/21/us/southwest-airlines-plane-oklahoma-city.html
