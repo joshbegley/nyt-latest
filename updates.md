@@ -1,3 +1,7 @@
+**Jimmy Kimmel Counts Down the Days to the First Debate**\
+`Kimmel doubted that Donald Trump would stick to his game plan of not interrupting President Biden, saying, “His discipline is unmatched!”`\
+https://nytimes.com/2024/06/21/arts/television/jimmy-kimmel-presidential-debate.html
+
 **Friedkin has reached an agreement to buy Everton from Moshiri - what happens next?**\
 `The long and perilous wait for Everton to have new owners is almost over. The Athletic explores what Friedkin's exclusivity agreement means`\
 https://nytimes.com/athletic/5570035/2024/06/21/everton-takeover-dan-friedkin-moshiri/
