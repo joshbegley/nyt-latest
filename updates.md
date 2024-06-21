@@ -1,5 +1,9 @@
 **Wales part company with manager Page**\
 `Wales have parted company with manager Rob Page.`\
+https://nytimes.com/athletic/5580529/2024/06/21/rob-page-wales-manager-sacked/
+
+**Wales part company with manager Page**\
+`Wales have parted company with manager Rob Page.`\
 https://nytimes.com/athletic/5580529/2024/06/21/wrob-page-wales-manager-sacked/
 
 **Ranking Ohio State's position groups: DBs, D-line and RBs all have case for No. 1**\
