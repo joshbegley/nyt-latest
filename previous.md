@@ -1,3 +1,7 @@
+**Chelsea pull out of process to buy Olise from Palace**\
+`Chelsea have pulled out of the process to sign winger Michael Olise from Crystal Palace.`\
+https://nytimes.com/athletic/5564023/2024/06/21/michael-olise-chelsea-transfer/
+
 **Gracie Abrams and Taylor Swift’s Tortured Duet, and 8 More New Songs**\
 `Hear tracks by Mavis Staples, Jamie xx featuring Robyn, Rakim and others.`\
 https://nytimes.com/2024/06/21/arts/music/playlist-gracie-abrams-taylor-swift-kehlani.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/21/t-magazine/cap-ferret-france-guide.html
 **10 Standout R.E.M. Deep Cuts**\
 `Hear a pick from each of the band’s first 10 albums.`\
 https://nytimes.com/2024/06/21/arts/music/amplifier-newsletter-rem-deep-cuts.html
-
-**How Misleading Videos Are Trailing Biden as He Battles Age Doubts**\
-`A flurry of recent clips, many of them edited or lacking context, laid bare a major challenge for the president as he tries to persuade voters he has the energy for a second term.`\
-https://nytimes.com/2024/06/21/us/politics/biden-age-videos.html
 

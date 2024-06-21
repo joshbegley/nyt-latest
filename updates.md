@@ -1,3 +1,7 @@
+**Chelsea pull out of process to buy Olise from Palace**\
+`Chelsea have pulled out of the process to sign winger Michael Olise from Crystal Palace.`\
+https://nytimes.com/athletic/5564023/2024/06/21/michael-olise-chelsea-transfer/
+
 **Gracie Abrams and Taylor Swift’s Tortured Duet, and 8 More New Songs**\
 `Hear tracks by Mavis Staples, Jamie xx featuring Robyn, Rakim and others.`\
 https://nytimes.com/2024/06/21/arts/music/playlist-gracie-abrams-taylor-swift-kehlani.html
