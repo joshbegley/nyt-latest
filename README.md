@@ -1,3 +1,7 @@
+**Southwest Plane Begins Descent Too Early Over Oklahoma City**\
+`Its low altitude had triggered an automated warning and startled some residents near Oklahoma City, where it eventually landed safely.`\
+https://nytimes.com/2024/06/21/us/southwest-airlines-plane-oklahoma-city.html
+
 **Kevin Costner Announces That He Is Done With ‘Yellowstone’**\
 `The actor and director is turning his attention to his ambitious film series about post-Civil War America.`\
 https://nytimes.com/2024/06/21/arts/television/yellowstone-kevin-costner-leaving.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/21/us/politics/house-republicans-trump.html
 **Wild trade Adam Beckman to Devils for Minnesota native Graeme Clarke**\
 `Clarke, a 2019 third-round pick, had 25 goals and 49 points for AHL Utica last season and played three games for New Jersey.`\
 https://nytimes.com/athletic/5581679/2024/06/21/wild-devils-minor-league-trade/
-
-**Phelps rejoining NBC's Olympic broadcast team**\
-`Phelps was a part of NBC's swimming broadcast team during the Tokyo 2020 Games.`\
-https://nytimes.com/athletic/5581543/2024/06/21/michael-phelps-broadcast-paris-2024/
 
