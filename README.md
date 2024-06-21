@@ -1,3 +1,15 @@
+**Finally, a Euros for a Whole Continent**\
+`Eastern European countries who have in recent years lagged behind their continent’s bigger names are having their day in the sun in Germany.`\
+https://nytimes.com/2024/06/21/world/europe/euro-2024-albania.html
+
+**Supreme Court Upholds Law Disarming Domestic Abusers**\
+`The justices rejected a Second Amendment challenge to a federal law that makes it a crime for people subject to domestic violence restraining orders to possess a gun.`\
+https://nytimes.com/2024/06/21/us/politics/supreme-court-guns-domestic-violence.html
+
+**1924: Trial Trip Date Set for Zeppelin**\
+`The giant airship was scheduled to fly across Germany to Denmark, Sweden and back. A flight across the Atlantic to the United States was tentatively planned to follow.`\
+https://nytimes.com/2024/06/21/world/germany-zeppelin-trial-flight.html
+
 **Mercedes-Benz Arena criticized by Argentina following Copa America opener**\
 `Following Argentina’s 2-0 win over Canada in the opening match of the Copa America, head coach Lionel Scaloni and several of his players criticized the playing surface at Mercedes-Benz Stadium in Atlanta.`\
 https://nytimes.com/athletic/5581244/2024/06/21/mercedes-benz-arena-turf-copa-america/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/21/world/europe/ukraine-war-draft-dodgers-conscripti
 **So Much for California’s Big November Anti-Tax Initiative**\
 `Businesses are fuming and cities are exhaling after the State Supreme Court blocked a ballot measure at the heart of a big fight in Sacramento.`\
 https://nytimes.com/2024/06/21/us/california-supreme-court-tax-initiative.html
-
-**Tips for Renting an E.V. for Your Summer Vacation**\
-`Even with more fast-charging stations available, having a smooth electric vehicle experience still takes planning, our columnist found.`\
-https://nytimes.com/2024/06/21/your-money/renting-electric-vehicle-vacation.html
-
-**Arsenal's Cozier-Duberry to leave club when contract expires this month**\
-`Amario Cozier-Duberry is set to leave Arsenal at the expiration of his contract this month.`\
-https://nytimes.com/athletic/5580998/2024/06/21/cozier-duberry-arsenal-leave-contract/
-
-**Summer Reading Contest, Week 3: What Got Your Attention in The Times This Week?**\
-`To participate, submit your response here by June 28 at 9 a.m. Eastern. This week’s winners will be announced by July 10.`\
-https://nytimes.com/2024/06/21/learning/summer-reading-contest-week-3-what-got-your-attention-in-the-times-this-week.html
 
