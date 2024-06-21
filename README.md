@@ -1,3 +1,7 @@
+**New Drug Provides Total Protection From H.I.V. in Trial of Young African Women**\
+`An injection given just twice a year could herald a breakthrough in protecting the population that has the highest infection rates.`\
+https://nytimes.com/2024/06/21/health/lenacapavir-hiv-prevention-africa.html
+
 **The Other Showdown to Watch Next Week**\
 `A New York Democratic primary sheds light on the split over Gaza and the party’s leftward shift.`\
 https://nytimes.com/2024/06/21/us/politics/jamaal-bowman-ny-primary-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/21/us/politics/trump-pac-funds.html
 **In Montana, Abortion Rights Groups Submit Signatures for Ballot Measure in November**\
 `The measure would affirm the right to abortion in the State Constitution. Democrats hope that it will help Senator Jon Tester in his bid for re-election.`\
 https://nytimes.com/2024/06/21/us/montana-abortion-rights-ballot.html
-
-**Euro 2024 day eight: Mbappe watches on as France spared by VAR rules row**\
-`What happened on day eight of the European Championship in Germany`\
-https://nytimes.com/athletic/5581449/2024/06/21/euro-2024-day-eight-mbappe/
 
