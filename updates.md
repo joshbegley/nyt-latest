@@ -1,3 +1,7 @@
+**In ‘House of the Dragon,’ a Sapphic Subtext Reigns Supreme**\
+`The unfulfilled longing that stretches between the two queens acts as the tension that holds the story together.`\
+https://nytimes.com/live/2024/06/18/opinion/thepoint/house-dragon-queer-love
+
 **FCS school challenges House v. NCAA settlement proposal**\
 `HCU argued its financial interests were not adequately represented by the proposed terms of the House settlement agreed to last month.`\
 https://nytimes.com/athletic/5582182/2024/06/21/houston-christian-house-ncaa-challente/

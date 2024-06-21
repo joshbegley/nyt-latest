@@ -1,3 +1,7 @@
+**In ‘House of the Dragon,’ a Sapphic Subtext Reigns Supreme**\
+`The unfulfilled longing that stretches between the two queens acts as the tension that holds the story together.`\
+https://nytimes.com/live/2024/06/18/opinion/thepoint/house-dragon-queer-love
+
 **FCS school challenges House v. NCAA settlement proposal**\
 `HCU argued its financial interests were not adequately represented by the proposed terms of the House settlement agreed to last month.`\
 https://nytimes.com/athletic/5582182/2024/06/21/houston-christian-house-ncaa-challente/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/21/arts/ron-desantis-veto-arts-funding-florida.html
 **Transcript: Ezra Klein Interviews Matthew Yglesias**\
 `The June 21, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/06/21/podcasts/transcript-ezra-klein-interviews-matthew-yglesias.html
-
-**Arda Guler a doubt for Turkey's clash vs Portugal**\
-`Arda Guler is a doubt for Turkey&#8217;s European Championship clash against Portugal on Saturday.`\
-https://nytimes.com/athletic/5582149/2024/06/21/arda-guler-turkey-injury-euro-2024/
 
