@@ -1,3 +1,7 @@
+**‘Tiny Crime Fighters With Wings’: Bees Go to Work on a Virginia ‘Body Farm’**\
+`By studying bees and their honey near decomposing human tissue, researchers at George Mason University hope to give crime scene investigators a new tool for finding the hidden dead.`\
+https://nytimes.com/2024/06/21/science/body-donation-farm-virginia-death-scent.html
+
 **NBA Player Tiers: Kevin Durant, Steph Curry hang on in Tier 1, but how much longer?**\
 `Some of the game's greatest stars may be leaving Tier 1 soon, but one player near the top has one of the greatest four-year runs in history.`\
 https://nytimes.com/athletic/5578457/2024/06/21/nba-player-tiers-kevin-durant-steph-curry-hang-on-in-tier-1-but-how-much-longer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/21/world/europe/hinduja-family-human-trafficking-tri
 **A Stuffed Pepper Recipe That Goes Hard on Spiced Chickpeas**\
 `Blanketed with cheese, this filling recipe is perfect for summer and surprisingly light.`\
 https://nytimes.com/2024/06/21/dining/stuffed-pepper-recipe-chickpeas.html
-
-**In Iran Election, a New Target for Conservatives: the Government**\
-`A special presidential election campaign is featuring blistering attacks on the status quo by conservatives and the lone reformer alike.`\
-https://nytimes.com/2024/06/21/world/middleeast/iran-presidential-election-mood.html
 
