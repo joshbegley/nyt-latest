@@ -1,3 +1,11 @@
+**Official Death Toll From Hajj Pilgrimage Climbs Into the Hundreds**\
+`Searing heat in Saudi Arabia appeared to at least contribute to many of the deaths.`\
+https://nytimes.com/2024/06/21/world/middleeast/saudi-arabia-hajj-pilgrimage-heat-death.html
+
+**What You Need to Know About the Power Grid During the Latest Heat Wave**\
+`So far, aided by growing solar capacity, heat-related outages have been limited.`\
+https://nytimes.com/2024/06/21/us/heat-wave-power-grid.html
+
 **Andrew Cogliano retires as beloved example to NHL players**\
 `When Erik Johnson handed Andrew Cogliano the Stanley Cup for the first time, Cogliano, the veteran wing, shifted his body so he was facing his 2021-22 Avalanche teammates.`\
 https://nytimes.com/athletic/5581458/2024/06/21/avalanche-andrew-cogliano-retirement/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/06/21/arts/television/best-of-late-night-he
 **LA28 unveils venue plan: Swimming in SoFi, softball in Oklahoma City**\
 `Swimming, originally slated to take place in a temporary stadium to be built at USC’s baseball field, will move to SoFi Stadium, which opene`\
 https://nytimes.com/athletic/5581759/2024/06/21/olympics-2028-los-angeles-event-venues/
-
-**A New Option to Treat Sleep Apnea: Weight-Loss Drugs**\
-`New research showed that tirzepatide, the compound in Zepbound, improved symptoms of obstructive sleep apnea.`\
-https://nytimes.com/2024/06/21/well/sleep-apnea-weight-loss-drug.html
-
-**Louisiana’s Ten Commandments Law Signals a Broader Christian Agenda**\
-`Gov. Jeff Landry wants his state to be at the forefront of a national movement to advance legislation with a Christian worldview.`\
-https://nytimes.com/2024/06/21/us/louisiana-ten-commandments-landry.html
 

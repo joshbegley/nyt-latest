@@ -1,3 +1,11 @@
+**Official Death Toll From Hajj Pilgrimage Climbs Into the Hundreds**\
+`Searing heat in Saudi Arabia appeared to at least contribute to many of the deaths.`\
+https://nytimes.com/2024/06/21/world/middleeast/saudi-arabia-hajj-pilgrimage-heat-death.html
+
+**What You Need to Know About the Power Grid During the Latest Heat Wave**\
+`So far, aided by growing solar capacity, heat-related outages have been limited.`\
+https://nytimes.com/2024/06/21/us/heat-wave-power-grid.html
+
 **Gaza authorities say 25 people were killed by a strike on a camp for displaced people.**\
 `By Anjana Sankar`\
 https://nytimes.com/2024/06/21/world/middleeast/israel-gaza-strike-mawasi.html

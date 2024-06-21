@@ -1,3 +1,7 @@
+**2025 AFCON to be held in December and January**\
+`The 2025 Africa Cup of Nations (AFCON) will take place between December and January, it has been confirmed.`\
+https://nytimes.com/athletic/5581939/2024/06/21/africa-cup-of-nations-2025-dates/
+
 **Official Death Toll From Hajj Pilgrimage Climbs Into the Hundreds**\
 `Searing heat in Saudi Arabia appeared to at least contribute to many of the deaths.`\
 https://nytimes.com/2024/06/21/world/middleeast/saudi-arabia-hajj-pilgrimage-heat-death.html
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/5582149/2024/06/21/arda-guler-turkey-injury-euro-20
 `The judge said the state chose the wrong venue to file a case against the Republicans who tried to declare Donald J. Trump the winner of the 2020 election.`\
 https://nytimes.com/2024/06/21/us/nevada-trump-elections.html
 
-**Gaza authorities say 25 people were killed by a strike on a camp for displaced people.**\
-`By Anjana Sankar`\
+**Gaza Authorities Say 25 Killed in Israeli Strike on Camp in Al-Mawasi**\
+`The Israeli military said “the incident is under review.”`\
 https://nytimes.com/2024/06/21/world/middleeast/israel-gaza-strike-mawasi.html
 
 **The Best of Late Night This Week**\
 `This week, the hosts riffed on the heat wave that pummeled the U.S. as well as Trump trying to argue that he’s more mentally fit to lead than President Biden. Here’s what they had to say.`\
 https://nytimes.com/interactive/2024/06/21/arts/television/best-of-late-night-heat-wave.html
-
-**LA28 unveils venue plan: Swimming in SoFi, softball in Oklahoma City**\
-`Swimming, originally slated to take place in a temporary stadium to be built at USC’s baseball field, will move to SoFi Stadium, which opene`\
-https://nytimes.com/athletic/5581759/2024/06/21/olympics-2028-los-angeles-event-venues/
 
