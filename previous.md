@@ -1,3 +1,7 @@
+**American Express Buys Tock to Pursue Customers Shelling Out on Dining**\
+`The credit card company acquired Tock, a restaurant reservation company, after buying its rival, Resy, in 2019.`\
+https://nytimes.com/2024/06/21/business/amex-tock-dining-reservation.html
+
 **Growing A Legacy**\
 `For the Bradfords, a family of fourth-generation ranchers raising
 cattle on 1,000 acres in Oklahoma, wealth building begins at the roots.`\
@@ -34,8 +38,4 @@ https://nytimes.com/interactive/2024/06/21/style/how-to-party-host-guest.html
 **Ángeles Flórez Peón, Spanish Civil War’s Last Militiawoman, Dies at 105**\
 `She was revered as an essential guardian of the country’s memory of war and repression long after the Franco dictatorship.`\
 https://nytimes.com/2024/06/21/world/europe/angeles-florez-peon-dead.html
-
-**On the House Floor, Republicans Gag Mentions of Trump’s Conviction**\
-`During official proceedings of the G.O.P.-controlled chamber, speaking about former President Donald J. Trump’s felony conviction has been forbidden, while disparaging President Biden and Democrats is routine.`\
-https://nytimes.com/2024/06/21/us/politics/house-republicans-trump.html
 

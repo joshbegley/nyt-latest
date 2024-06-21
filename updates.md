@@ -1,3 +1,7 @@
+**American Express Buys Tock to Pursue Customers Shelling Out on Dining**\
+`The credit card company acquired Tock, a restaurant reservation company, after buying its rival, Resy, in 2019.`\
+https://nytimes.com/2024/06/21/business/amex-tock-dining-reservation.html
+
 **Growing A Legacy**\
 `For the Bradfords, a family of fourth-generation ranchers raising
 cattle on 1,000 acres in Oklahoma, wealth building begins at the roots.`\
