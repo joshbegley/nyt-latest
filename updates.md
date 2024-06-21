@@ -1,3 +1,7 @@
+**The Athletic FC: England's Kane dilemma; Messi's magic passes set up Argentina win**\
+`Today in The Athletic FC: Kane scored but looked lethargic - what now for England? Plus: Messi inspires Argentina to opening Copa win`\
+https://nytimes.com/athletic/5580663/2024/06/21/kane-england-dilemma-euro-2024/
+
 **The old college try: An NBA mock draft featuring only NCAA prospects**\
 `Kentucky's Reed Sheppard and UConn's Stephon Castle lead our picks highlighting the top players from NCAA teams.`\
 https://nytimes.com/athletic/5539645/2024/06/21/nba-draft-college-basketball-reed-sheppard-stephon-castle/
