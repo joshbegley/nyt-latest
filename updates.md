@@ -1,3 +1,11 @@
+**U.N. Chief warns Israel and Hezbollah of the risk of a wider war.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/06/21/world/israel-gaza-war-hamas/un-chief-guterres-israel-hezbollah
+
+**Koeman laments Simons' disallowed goal vs France**\
+`Netherlands head coach Ronald Koeman believes Xavi Simons&#8217; disallowed goal against France &#8220;should have stood&#8221;, as his side drew 0-0 in Friday&#8217;s Group D clash at the European Championship.`\
+https://nytimes.com/athletic/5582219/2024/06/21/koeman-simons-netherlands-france-euro-2024/
+
 **Putin Shows He Can Antagonize the U.S. Far Afield From Ukraine**\
 `His support for North Korea’s military ambitions showed he can inflict pain on the U.S. and its NATO allies in ways beyond aggression in Ukraine.`\
 https://nytimes.com/2024/06/21/world/europe/putin-russia-north-korea.html
