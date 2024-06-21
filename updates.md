@@ -1,3 +1,7 @@
+**The day that proved football in Ukraine 'is still alive'**\
+`A day of defiance ended in delirium for an emotion-fuelled Ukraine`\
+https://nytimes.com/athletic/5581789/2024/06/21/ukraine-euro-2024-russia-war/
+
 **Chelsea pull out of process to buy Olise from Palace**\
 `Chelsea have pulled out of the process to sign winger Michael Olise from Crystal Palace.`\
 https://nytimes.com/athletic/5564023/2024/06/21/michael-olise-chelsea-transfer/
