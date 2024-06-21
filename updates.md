@@ -1,3 +1,7 @@
+**Ángeles Flórez Peón, Spanish Civil War’s Last Militiawoman, Dies at 105**\
+`She was revered as an essential guardian of the country’s memory of war and repression long after the Franco dictatorship.`\
+https://nytimes.com/2024/06/21/world/europe/angeles-florez-peon-dead.html
+
 **Once banned from F1 for race fixing, Flavio Briatore is welcomed back**\
 `Once issued a lifetime ban for his role in 2008's 'Crashgate,' Briatore is now an advisor to the Alpine team — and nobody seems to mind.`\
 https://nytimes.com/athletic/5581546/2024/06/21/f1-flavio-briatore-alpine-crashgate/

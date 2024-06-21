@@ -11,7 +11,7 @@ https://nytimes.com/2024/06/21/business/3-34-trillion-nvidia-market-value.html
 https://nytimes.com/interactive/2024/06/21/style/how-to-party-host-guest.html
 
 **Ángeles Flórez Peón, Spanish Civil War’s Last Militiawoman, Dies at 105**\
-`She was revered as an essential guardian of the country’s memory during the Franco years.`\
+`She was revered as an essential guardian of the country’s memory of war and repression long after the Franco dictatorship.`\
 https://nytimes.com/2024/06/21/world/europe/angeles-florez-peon-dead.html
 
 **On the House Floor, Republicans Gag Mentions of Trump’s Conviction**\
