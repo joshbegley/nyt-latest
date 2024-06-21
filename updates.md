@@ -1,3 +1,7 @@
+**Review: A 10th Life for Those Jellicle ‘Cats,’ Now in Drag**\
+`Resetting the “Memory” musical in the world of ballroom competitions makes for a joyful reincarnation.`\
+https://nytimes.com/2024/06/20/theater/cats-the-jellicle-ball-review.html
+
 **Are the Orioles better than the Yankees? What we learned this week**\
 `“It’s going to be back and forth all the way until the end of September,” Aaron Judge said on the rivalry with Baltimore. “That’s for sure."`\
 https://nytimes.com/athletic/5579900/2024/06/20/are-orioles-better-than-yankees-analysis/
