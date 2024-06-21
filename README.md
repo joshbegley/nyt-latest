@@ -1,40 +1,40 @@
-**Malik Monk to sign 4-year extension with Kings**\
-`Malik Monk will be staying in Sacramento.`\
-https://nytimes.com/athletic/5580216/2024/06/20/malik-monk-contract-kings/
+**Friday Briefing**\
+`Vladimir Putin’s threat to arm North Korea.`\
+https://nytimes.com/2024/06/21/briefing/russia-north-korea-arms.html
 
-**At Rickwood Field, Willie Mays Is the Star of the Show, One More Time**\
-`On a night that honored the Negro leagues and Mays, who died on Tuesday, a baseball game between the Giants and the Cardinals was almost beside the point.`\
-https://nytimes.com/2024/06/20/us/baseball-rickwood-field-mays-negro-leagues.html
+**Federal Judge Rebuffs a Central Argument of Congestion Pricing Lawsuits**\
+`The three cases are among several filed by opponents of the tolling program, which was halted by Gov. Kathy Hochul this month.`\
+https://nytimes.com/2024/06/21/nyregion/congestion-pricing-lawsuits.html
 
-**At Stanford, 2 Reports on Bias Show Extent of Divide Between Jews and Muslims**\
-`One report documented antisemitic threats. The other, anti-Muslim threats. Both signaled that there may be little room for agreement.`\
-https://nytimes.com/2024/06/20/us/stanford-antisemitism-muslims-report.html
+**Japan Makes It Very Hard to Be Sterilized. These Women Demand Change.**\
+`A lawsuit challenges a societal assumption that all women are “destined to become a mother.”`\
+https://nytimes.com/2024/06/21/world/asia/japan-women-sterilization.html
 
-**Trump Has Rapidly Eroded Biden’s Edge in 2024 Cash Battle**\
-`Just two months ago, President Biden appeared to have a daunting financial advantage. Then Donald Trump was convicted of 34 felonies, and Republicans’ wallets opened.`\
-https://nytimes.com/2024/06/20/us/politics/trump-fundraising-biden-election.html
+**The Taylor Swift Economy Has Landed in Europe**\
+`Economists are debating what effect the singer’s sweep through Europe will have this summer as swarms of fans increase demand for hotels and services.`\
+https://nytimes.com/2024/06/21/business/taylor-swift-eras-tour-inflation-europe.html
 
-**Argentina 2, Canada 0: Takeaways from the Copa America opener**\
-`After a slow start, Argentina edged out a competitive Canada team `\
-https://nytimes.com/athletic/5579299/2024/06/20/argentina-canada-copa-america/
+**Quotation of the Day: When Escaping Gaza Means Buying a Way Out**\
+`Quotation of the Day for Friday, June 21, 2024.`\
+https://nytimes.com/2024/06/21/pageoneplus/quotation-of-the-day-when-escaping-gaza-means-buying-a-way-out.html
 
-**Reggie Jackson shares stark stories of racism**\
-`In his second professional season, Jackson was part of the first integrated professional team to play at Rickwood Field.`\
-https://nytimes.com/athletic/5579936/2024/06/20/reggie-jackson-comments-tv/
+**Corrections: June 21, 2024**\
+`Corrections that appeared in print on Friday, June 21, 2024.`\
+https://nytimes.com/2024/06/21/pageoneplus/corrections-june-21-2024.html
 
-**Bloomberg Backs Biden With $20 Million Donation**\
-`The former mayor of New York City, a Democratic megadonor, became a significant backer of Mr. Biden’s in 2020 after spending $1 billion on his own failed bid.`\
-https://nytimes.com/2024/06/20/us/politics/michael-bloomberg-biden-donation.html
+**I Was Content With Monogamy. I Shouldn’t Have Been.**\
+`Can exploring polyamory both break you and make you?`\
+https://nytimes.com/2024/06/21/style/modern-love-polyamory-i-was-content-with-monogamy.html
 
-**Messi breaks Copa America appearance record**\
-`Lionel Messi has broken the all-time record for most appearances at Copa America.`\
-https://nytimes.com/athletic/5579730/2024/06/20/lionel-messi-copa-america-appearances-record/
+**She Worried He’d Steal Her Business Idea — Instead, He Stole Her Heart**\
+`When Jim Dolce and Ashley Tyrner met in 2019, they talked business over tacos. It would take several more meet-ups for things to turn romantic.`\
+https://nytimes.com/2024/06/21/style/ashley-tyrner-jim-dolce-wedding.html
 
-**Suits From Around the Globe**\
-`Were you on Billy Bratton’s wavelength?`\
-https://nytimes.com/2024/06/20/crosswords/daily-puzzle-2024-06-21.html
+**Panthers at Oilers Stanley Cup Final Game 6 odds, expert picks: Will Oilers force Game 7?**\
+`The Oilers are narrow favorites to win Game 6 and become the 10th team in NHL history to force a Game 7 after going down 3-0.`\
+https://nytimes.com/athletic/5578448/2024/06/21/panthers-oilers-stanley-cup-final-game-6-odds-picks/
 
-**Lilly King gets surprise proposal after clinching second Olympic spot**\
-`The engagement occurred right after King pulled off a thrilling comeback to clinch a spot in a second Olympic race.`\
-https://nytimes.com/athletic/5579951/2024/06/20/lilly-king-swim-trials-engaged/
+**After Their First Phone Call, She Knew She Wanted to Marry Him**\
+`Elise Nikolaisen was seeking professional advice when she reached out to Bailey Carlin on social media. She got it, along with a relationship.`\
+https://nytimes.com/2024/06/21/style/elise-nikolaisen-bailey-carlin-wedding.html
 

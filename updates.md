@@ -1,4 +1,8 @@
 **Malik Monk to sign 4-year extension with Kings**\
+`Malik Monk will be staying in Sacramento.`\
+https://nytimes.com/athletic/5580216/2024/06/20/malik-monk-contract-kings/
+
+**Malik Monk to sign 4-year extension with Kings**\
 `Malik Monk will be staying in Sacramento, as the high-scoring reserve is expected to sign a four-year extension worth $78 million, league sources confirmed.`\
 https://nytimes.com/athletic/5580216/2024/06/20/malik-monk-contract-kings/
 
