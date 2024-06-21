@@ -1,3 +1,7 @@
+**Olise chooses to join Bayern from Palace**\
+`Crystal Palace winger Michael Olise has chosen to join Bayern Munich.`\
+https://nytimes.com/athletic/5582013/2024/06/21/michael-olise-bayern-munich-transfer/
+
 **Is It OK to Secretly Medicate Your Manic Husband?**\
 `The magazine’s Ethicist columnist on marital deception.`\
 https://nytimes.com/2024/06/21/magazine/manic-husband-medicate-ethics.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5581789/2024/06/21/ukraine-euro-2024-russia-war/
 **The Briefing: Poland 1 Austria 3 - Arnautovic struts his stuff and Rangnick's brilliant changes**\
 `Our writers analyse and evaluate the key talking points from Austria's 3-1 victory over Poland`\
 https://nytimes.com/athletic/5572396/2024/06/21/poland-austria-the-briefing/
-
-**Toto Wolff condemns online abuse of Russell, reported anonymous email to police**\
-`“I think we need support, not negativity," Lewis Hamilton said of his teammate.`\
-https://nytimes.com/athletic/5581802/2024/06/21/f1-george-russell-online-abuse-wolff-lewis-hamilton-mercedes/
 
