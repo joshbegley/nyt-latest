@@ -1,3 +1,15 @@
+**$3.34 Trillion**\
+`The market value on Tuesday of Nvidia, whose chips have made it possible to create A.I. systems.`\
+https://nytimes.com/2024/06/21/business/3-34-trillion-nvidia-market-value.html
+
+**The Everything Guide to Partying (Without Regrets)**\
+`Forty-three highly sociable people, from Ivy Getty to Rufus Wainwright, offer tips on how to be a stellar guest and a gracious host. Read this before you say yes to the next invitation.`\
+https://nytimes.com/interactive/2024/06/21/style/how-to-party-host-guest.html
+
+**Ángeles Flórez Peón, Spanish Civil War’s Last Militiawoman, Dies at 105**\
+`She was revered as an essential guardian of the country’s memory during the Franco years.`\
+https://nytimes.com/2024/06/21/world/europe/angeles-florez-peon-dead.html
+
 **On the House Floor, Republicans Gag Mentions of Trump’s Conviction**\
 `During official proceedings of the G.O.P.-controlled chamber, speaking about former President Donald J. Trump’s felony conviction has been forbidden, while disparaging President Biden and Democrats is routine.`\
 https://nytimes.com/2024/06/21/us/politics/house-republicans-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/18/opinion/supreme-court-guns-domestic-abuse.html
 **Tracking a Single Day at the National Domestic Violence Hotline**\
 `Some major Supreme Court decisions this term, including a ruling that allowed the government to prohibit people subject to restraining orders from having guns, have underscored the pervasiveness of domestic violence.`\
 https://nytimes.com/interactive/2024/06/21/us/domestic-violence-hotline.html
-
-**Pedro Rocha: Sports court calls for six-year ban for Spanish FA president**\
-`Spain&#8217;s superior sports court (TAD) has called for RFEF (Spanish FA) president Pedro Rocha to be banned for six years, as the legacy of his now disgraced predecessor Luis Rubiales continues to haunt the federation.`\
-https://nytimes.com/athletic/5581600/2024/06/21/pedro-rocha-ban-rfef-spain/
-
-**Trump Media Stock Down 50% Since Former President’s Conviction**\
-`The parent of Truth Social has come under pressure this month, most recently after early investors were given approval to sell a fresh chunk of shares.`\
-https://nytimes.com/2024/06/21/business/trump-media-stock-decline.html
-
-**The battle for Rafah, in its seventh week as Israeli forces push westward, has left a trail of destruction.**\
-`By Adam Rasgon`\
-https://nytimes.com/live/2024/06/21/world/israel-gaza-war-hamas/much-of-rafah-lies-in-ruins-as-israeli-forces-push-deeper-into-the-city
 
