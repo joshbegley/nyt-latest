@@ -1,3 +1,5 @@
+**Blinken meets with Israeli officials, and other news.**\
+
 **For the Price of a Police Helicopter, New York Could Save the Arts**\
 `The city’s budget is being finalized, and arts institutions, from the big to the small, are fearing the worst.`\
 https://nytimes.com/2024/06/21/nyregion/for-the-price-of-a-police-helicopter-new-york-could-save-the-arts.html
