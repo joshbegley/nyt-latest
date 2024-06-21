@@ -1,3 +1,23 @@
+**Argentina 2, Canada 0: Takeaways from the Copa America opener**\
+`After a slow start, Argentina edged out a competitive Canada team `\
+https://nytimes.com/athletic/5579299/2024/06/20/argentina-canada-copa-america/
+
+**Messi breaks Copa America appearance record**\
+`Lionel Messi has broken the all-time record for most appearances at Copa America.`\
+https://nytimes.com/athletic/5579730/2024/06/20/lionel-messi-copa-america-appearances-record/
+
+**Reggie Jackson shares stark stories of racism**\
+`In his second professional season, Jackson was part of the first integrated professional team to play at Rickwood Field.`\
+https://nytimes.com/athletic/5579936/2024/06/20/reggie-jackson-comments-tv/
+
+**Bloomberg Backs Biden With $20 Million Donation**\
+`The former mayor of New York City, a Democratic megadonor, became a significant backer of Mr. Biden’s in 2020 after spending $1 billion on his own failed bid.`\
+https://nytimes.com/2024/06/20/us/politics/michael-bloomberg-biden-donation.html
+
+**Suits From Around the Globe**\
+`Were you on Billy Bratton’s wavelength?`\
+https://nytimes.com/2024/06/20/crosswords/daily-puzzle-2024-06-21.html
+
 **Lilly King gets surprise proposal after clinching second Olympic spot**\
 `The engagement occurred right after King pulled off a thrilling comeback to clinch a spot in a second Olympic race.`\
 https://nytimes.com/athletic/5579951/2024/06/20/lilly-king-swim-trials-engaged/
@@ -17,20 +37,4 @@ https://nytimes.com/2024/06/20/theater/cats-the-jellicle-ball-review.html
 **Are the Orioles better than the Yankees? What we learned this week**\
 `“It’s going to be back and forth all the way until the end of September,” Aaron Judge said on the rivalry with Baltimore. “That’s for sure."`\
 https://nytimes.com/athletic/5579900/2024/06/20/are-orioles-better-than-yankees-analysis/
-
-**Caruso-Giddey trade grades: Thunder add defense, shooting; Bulls get younger**\
-`Less than a week before the NBA Draft, we get a one-for-one swap of perimeter players. Is this a good move for both sides?`\
-https://nytimes.com/athletic/5579841/2024/06/20/caruso-giddey-trade-grades-thunder-bulls/
-
-**Timothy Mellon, Secretive Donor, Gives $50 Million to Pro-Trump Group**\
-`The cash from Mr. Mellon, a reclusive billionaire who has also been a major donor to a super PAC supporting Robert F. Kennedy Jr., is among the largest single disclosed gifts ever.`\
-https://nytimes.com/2024/06/20/us/politics/timothy-mellon-trump-donation.html
-
-**Why Does Kendrick Lamar Want Drake to Return Tupac Shakur’s Ring?**\
-`At Mr. Lamar’s Juneteenth concert on Wednesday, he made a request for Drake to return Mr. Shakur’s iconic crown ring. Is this about more than just beef between the two rappers?`\
-https://nytimes.com/2024/06/20/style/kendrick-lamar-drake-tupac-ring.html
-
-**Killer of 2 Women in National Park in 1996 Has Been Identified, F.B.I. Says**\
-`A convicted serial rapist who died in an Ohio prison in 2018 was responsible for the murder of a couple at Shenandoah National Park in a case that initially was believed to be a hate crime.`\
-https://nytimes.com/2024/06/20/us/shenandoah-park-murders-1996-fbi.html
 
