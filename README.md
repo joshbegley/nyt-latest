@@ -1,3 +1,7 @@
+**How Billionaires Are Reshaping the Presidential Race**\
+`Wealthy donors including Timothy Mellon helped Donald Trump’s campaign out-raise President Biden’s last month, but Democratic supporters are still spending.`\
+https://nytimes.com/2024/06/21/business/dealbook/trump-biden-billionaire-donors.html
+
 **The heat wave in New York will continue through the weekend.**\
 `By Alyce McFadden`\
 https://nytimes.com/live/2024/06/21/us/heat-wave-news/the-heat-wave-in-new-york-will-continue-through-the-weekend
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5539645/2024/06/21/nba-draft-college-basketball-ree
 **The top 10 players NHL teams should target with an offer sheet this offseason**\
 `There aren't necessarily the 10 best RFAs, but the most realistic candidates who can be had for reasonable compensation.`\
 https://nytimes.com/athletic/5580250/2024/06/21/nhl-top-10-offer-sheet-candidates/
-
-**Who is Anthony Taylor? The referee coming into the Euros after a tough season**\
-`Taylor will be hoping controversy does not follow him from last season's Premier League into the Euros`\
-https://nytimes.com/athletic/5572103/2024/06/21/anthony-taylor-who-euro-2024/
 
