@@ -1,3 +1,11 @@
+**Travis Scott Wasted No Time Putting His Mug Shot on a T-Shirt**\
+`A commemoration of the rapper’s brief arrest in Miami Beach, the shirt reinforced the idea that for some celebrities, a brush with the law can be good for business.`\
+https://nytimes.com/2024/06/21/style/travis-scott-mugshot-shirt.html
+
+**U.N. Chief Warns Israel and Hezbollah of the Risk of a Wider War**\
+`“The people of the region and the people of the world cannot afford Lebanon to become another Gaza,” he said.`\
+https://nytimes.com/2024/06/21/world/middleeast/un-chief-guterres-israel-hezbollah.html
+
 **Judge in Trump Documents Case Hears Arguments Over Special Counsel**\
 `Judge Aileen Cannon held a hearing to consider a question that has been quickly dismissed in other cases: whether there is a constitutional basis for the appointment of a special counsel.`\
 https://nytimes.com/2024/06/21/us/politics/trump-documents-special-counsel.html
