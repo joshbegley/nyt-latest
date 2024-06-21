@@ -1,3 +1,7 @@
+**Caruso-Giddey trade grades: Thunder add defense, shooting; Bulls get younger**\
+`Less than a week before the NBA Draft, we get a one-for-one swap of perimeter players. Is this a good move for both sides?`\
+https://nytimes.com/athletic/5579841/2024/06/20/caruso-giddey-trade-grades-thunder-bulls/
+
 **Timothy Mellon, Secretive Donor, Gives $50 Million to Pro-Trump Group**\
 `The cash from Mr. Mellon, a reclusive billionaire who has also been a major donor to a super PAC supporting Robert F. Kennedy Jr., is among the largest single disclosed gifts ever.`\
 https://nytimes.com/2024/06/20/us/politics/timothy-mellon-trump-donation.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5579335/2024/06/20/flyers-nhl-draft-briere-michkov/
 **Yamal and Williams represent a new era for Spain - and made Italy look old-fashioned**\
 `Spain were on a different planet to Italy in their Euro 2024 match. Their electric wingers were the stars in a post-tiki-taka world`\
 https://nytimes.com/athletic/5579597/2024/06/20/williams-yamal-spain-italy-euro-2024/
-
-**Judy Garland Museum Is Raising Money to Bid on Stolen Ruby Slippers**\
-`The famed slippers, valued at $3.5 million, were stolen from the museum in Garland’s hometown in Minnesota in 2005 and recovered in 2018. Now, the museum hopes to buy them at an auction in December.`\
-https://nytimes.com/2024/06/20/us/judy-garland-hometown-oz-ruby-slippers.html
 
