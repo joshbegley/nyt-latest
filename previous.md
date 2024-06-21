@@ -1,3 +1,7 @@
+**As Ukraine Expands Military Draft, Some Men Go Into Hiding**\
+`Fearful that conscription is a one-way ticket to bloody trench warfare, the men spend their days holed up at home to avoid draft officers who roam the streets.`\
+https://nytimes.com/2024/06/21/world/europe/ukraine-war-draft-dodgers-conscription.html
+
 **So Much for California’s Big November Anti-Tax Initiative**\
 `Businesses are fuming and cities are exhaling after the State Supreme Court blocked a ballot measure at the heart of a big fight in Sacramento.`\
 https://nytimes.com/2024/06/21/us/california-supreme-court-tax-initiative.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/21/business/dealbook/trump-biden-billionaire-donors.
 **The heat wave in New York will continue through the weekend.**\
 `By Alyce McFadden`\
 https://nytimes.com/live/2024/06/21/us/heat-wave-news/the-heat-wave-in-new-york-will-continue-through-the-weekend
-
-**Millions nationwide face more hazardous heat as temperatures rise in the Mid-Atlantic states.**\
-`By Kate Selig and Judson Jones`\
-https://nytimes.com/live/2024/06/21/us/heat-wave-news/millions-nationwide-face-more-hazardous-heat-as-temperatures-rise-in-the-mid-atlantic-states
 

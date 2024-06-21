@@ -1,3 +1,7 @@
+**As Ukraine Expands Military Draft, Some Men Go Into Hiding**\
+`Fearful that conscription is a one-way ticket to bloody trench warfare, the men spend their days holed up at home to avoid draft officers who roam the streets.`\
+https://nytimes.com/2024/06/21/world/europe/ukraine-war-draft-dodgers-conscription.html
+
 **So Much for California’s Big November Anti-Tax Initiative**\
 `Businesses are fuming and cities are exhaling after the State Supreme Court blocked a ballot measure at the heart of a big fight in Sacramento.`\
 https://nytimes.com/2024/06/21/us/california-supreme-court-tax-initiative.html
