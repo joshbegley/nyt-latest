@@ -1,3 +1,7 @@
+**Israel says it struck a missile launch site in a Gaza ‘humanitarian zone.’**\
+`By Hiba Yazbek`\
+https://nytimes.com/live/2024/06/21/world/israel-gaza-war-hamas/israel-says-it-struck-a-missile-launch-site-in-a-gaza-humanitarian-zone
+
 **Boeing Is Expected to Evade Criminal Charges for Violating Settlement**\
 `The Justice Department will require the aircraft manufacturer to install an independent federal monitor to oversee safety and quality issues.`\
 https://nytimes.com/2024/06/21/us/politics/boeing-doj-deferred-prosecution-agreement.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5579094/2024/06/21/eno-sarris-live-chat-6-21/
 **Conan O’Brien Doesn’t Matter***\
 `*That’s his opinion. And yet he’s setting a new standard for what life after late-night can look like. (Hint: It’s a lot like what he did on talk shows.)`\
 https://nytimes.com/2024/06/21/arts/television/conan-obrien.html
-
-**At the Royal Ballet, Taking the Measure of Ashton’s Genius**\
-`Many remarkable performances fueled the Royal’s mini-festival of ballets by Frederick Ashton, the company’s founding choreographer.`\
-https://nytimes.com/2024/06/21/arts/dance/royal-ballet-ashton-mini-festival.html
 
