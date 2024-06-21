@@ -26,8 +26,8 @@ https://nytimes.com/2024/06/21/arts/television/taylor-wily-dead-hawaii-five-0.ht
 `USMNT midfielder Weston McKennie has joined the mounting criticism of the &#8220;frustrating&#8221; field conditions at Copa America.`\
 https://nytimes.com/athletic/5582260/2024/06/21/copa-america-field-conditions-weston-mckennie/
 
-**U.N. Chief warns Israel and Hezbollah of the risk of a wider war.**\
-`By Ephrat Livni`\
+**U.N. Chief Warns Israel and Hezbollah of the Risk of a Wider War**\
+`“The people of the region and the people of the world cannot afford Lebanon to become another Gaza,” he said.`\
 https://nytimes.com/2024/06/21/world/middleeast/un-chief-guterres-israel-hezbollah.html
 
 **Simons disallowed goal vs France 'should have stood' - Koeman**\
