@@ -1,3 +1,19 @@
+**The Cottage Industry Spawned From a Video Game**\
+`The masochistic gameplay loop of Elden Ring — live, die, die and die again — sprouted a cottage industry of streamers displaying their misery to audiences all over the world. Zachary Small, a culture reporter for The New York Times, explains.`\
+https://nytimes.com/video/arts/100000009531313/the-cottage-industry-spawned-from-a-video-game.html
+
+**This Easy Brunch Dish Feels Like a Trip to Italy**\
+`Crisp on the outside, tender on the inside, savory farinata brings a taste of the Mediterranean coast to your kitchen.`\
+https://nytimes.com/2024/06/21/dining/how-to-make-farinata.html
+
+**Where Parisians Escape to for Secret Beaches and Oyster Cabanas**\
+`A guide to France’s Cap Ferret, with insider tips from Philippe Starck and three other locals.`\
+https://nytimes.com/2024/06/21/t-magazine/cap-ferret-france-guide.html
+
+**10 Standout R.E.M. Deep Cuts**\
+`Hear a pick from each of the band’s first 10 albums.`\
+https://nytimes.com/2024/06/21/arts/music/amplifier-newsletter-rem-deep-cuts.html
+
 **How Misleading Videos Are Trailing Biden as He Battles Age Doubts**\
 `A flurry of recent clips, many of them edited or lacking context, laid bare a major challenge for the president as he tries to persuade voters he has the energy for a second term.`\
 https://nytimes.com/2024/06/21/us/politics/biden-age-videos.html
@@ -21,21 +37,4 @@ https://nytimes.com/2024/06/21/books/review/griffin-dunne-book-review-podcast.ht
 **American Express Buys Tock to Pursue Customers Shelling Out on Dining**\
 `The credit card company acquired Tock, a restaurant reservation company, after buying its rival, Resy, in 2019.`\
 https://nytimes.com/2024/06/21/business/amex-tock-dining-reservation.html
-
-**Growing A Legacy**\
-`For the Bradfords, a family of fourth-generation ranchers raising
-cattle on 1,000 acres in Oklahoma, wealth building begins at the roots.`\
-https://nytimes.com/paidpost/us-bank/a-legacy-fulfilled/growing-a-legacy.html
-
-**Southwest Plane Begins Descent Too Early Over Oklahoma City**\
-`Its low altitude had triggered an automated warning and startled some residents near Oklahoma City, where it eventually landed safely.`\
-https://nytimes.com/2024/06/21/us/southwest-airlines-plane-oklahoma-city.html
-
-**Kevin Costner Announces That He Is Done With ‘Yellowstone’**\
-`The actor and director is turning his attention to his ambitious film series about post-Civil War America.`\
-https://nytimes.com/2024/06/21/arts/television/yellowstone-kevin-costner-leaving.html
-
-**Evaluating the Rangers' choices at wing: Free agent, trade and internal options**\
-`Some of the Rangers' newfound cap space could go to a new top-six wing. Here are some candidates to fill the role.`\
-https://nytimes.com/athletic/5580019/2024/06/21/rangers-free-agent-trade-wing/
 
