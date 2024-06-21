@@ -1,3 +1,23 @@
+**Lowetide: 6 keys for Oilers to complete historic comeback and win the Stanley Cup**\
+`Here's what the Oilers have to do to beat the Florida Panthers two more times in the Cup Final.`\
+https://nytimes.com/athletic/5578373/2024/06/21/oilers-keys-game-6-stanley-cup/
+
+**Crystal Palace and Wolves' gambling shirt sponsors: Who are they and why are they controversial?**\
+`Wolves announced DEBET as their new front-of-shirt sponsor for two seasons, while Crystal Palace confirmed a two-year deal with Net88`\
+https://nytimes.com/athletic/5578416/2024/06/21/wolves-crystal-palace-sponsors-gambling/
+
+**USMNT star Musah's England years: 'I have no doubt he'd have made the England squad'**\
+`Yunus Musah will be a key player for the USMNT at the Copa America — but he could have represented three other nations`\
+https://nytimes.com/athletic/5577978/2024/06/21/yunus-musah-usmnt-copa-america-england/
+
+**Jets mailbag, part 2: Paul Maurice's evolution, Mark Scheifele's talent level and more**\
+`Plus, the roster impact of a potential Nikolaj Ehlers trade and a look at the Jets' drafting and development.`\
+https://nytimes.com/athletic/5567027/2024/06/21/winnipeg-jets-mailbag-maurice-scheifele/
+
+**The Athletic’s Friday football quiz question #9**\
+`Can you work out the answer to our weekly football conundrum? `\
+https://nytimes.com/athletic/5580576/2024/06/21/the-athletics-friday-football-quiz-question-9/
+
 **Baggio’s villa broken into by armed robbers**\
 `Italian law enforcers are investigating after Roberto Baggio’s villa was broken into by armed robbers on the night of Italy’s Euro 2024 group stage game against Spain.`\
 https://nytimes.com/athletic/5580680/2024/06/21/roberto-baggio-italy-robbery/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5580299/2024/06/21/lakers-jj-redick-the-pulse/
 **The Israeli leader’s quarrels with the White House, his military and his coalition partners have escalated at a pivotal time in the war.**\
 `By Shashank Bengali`\
 https://nytimes.com/live/2024/06/21/world/israel-gaza-war-hamas/the-israeli-leaders-quarrels-with-the-white-house-his-military-and-his-coalition-partners-have-escalated-at-a-pivotal-time-in-th
-
-**Overpaying for Medicine**\
-`Who is driving up drug costs for millions of people?`\
-https://nytimes.com/2024/06/21/briefing/overpaying-for-medicine.html
-
-**Which NHL teams need upgrades at center? Ranking all 32 teams by current quality**\
-`Here’s how we’d rank each team’s center depth, from best to worst, just before the offseason kicks off.`\
-https://nytimes.com/athletic/5579764/2024/06/21/nhl-centers-free-agency-trade/
-
-**The Vikings’ most surprising roster hole, and what they might do to fix it**\
-`Brandon Powell could be Minnesota's best in-house option at the No. 3 WR spot, but the Vikings might be wise to make a move before Week 1.`\
-https://nytimes.com/athletic/5578956/2024/06/21/vikings-roster-wr-brandon-powell/
-
-**Greenberg: Bulls wake up and make a move, but will Josh Giddey make anyone happy?**\
-`If Giddey were coming to Chicago with two draft picks in his pocket, we'd be looking at this deal in a far different manner.`\
-https://nytimes.com/athletic/5580060/2024/06/21/josh-giddey-bulls-thunder-trade-nba/
-
-**How the Oilers are embracing their unusual journey in the Stanley Cup Final**\
-`Even though the Oilers are still down 3-2, they feel like they’re almost in the driver’s seat with Game 6 in Edmonton.`\
-https://nytimes.com/athletic/5579747/2024/06/21/oilers-stanley-cup-final-game-6-preview/
 
