@@ -1,3 +1,15 @@
+**DeSantis Vetoes All Arts Grants in Florida**\
+`Gov. Ron DeSantis gave no explanation for zeroing out the $32 million in grants that were approved by state lawmakers.`\
+https://nytimes.com/2024/06/21/arts/ron-desantis-veto-arts-funding-florida.html
+
+**Transcript: Ezra Klein Interviews Matthew Yglesias**\
+`The June 21, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/06/21/podcasts/transcript-ezra-klein-interviews-matthew-yglesias.html
+
+**Arda Guler a doubt for Turkey's clash vs Portugal**\
+`Arda Guler is a doubt for Turkey&#8217;s European Championship clash against Portugal on Saturday.`\
+https://nytimes.com/athletic/5582149/2024/06/21/arda-guler-turkey-injury-euro-2024/
+
 **Nevada Judge Throws Out State’s Case Against Fake Electors**\
 `The judge said the state chose the wrong venue to file a case against the Republicans who tried to declare Donald J. Trump the winner of the 2020 election.`\
 https://nytimes.com/2024/06/21/us/nevada-trump-elections.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/21/us/louisiana-ten-commandments-landry.html
 **2 Dead and 8 Injured in Shooting at Arkansas Grocery Store**\
 `A police officer was injured in the attack at the Mad Butcher store in Fordyce, and the shooter was critically injured, the authorities said.`\
 https://nytimes.com/2024/06/21/us/arkansas-grocery-store-fordyce-shooting.html
-
-**Ayoze Perez set to miss Spain's clash vs Albania with muscle injury**\
-`Ayoze Perez is expected to be ruled out of Spain’s clash against Albania in the European Championship on Monday due to a muscle injury.`\
-https://nytimes.com/athletic/5582025/2024/06/21/ayoze-perez-spain-albania-euro-2024/
-
-**Wilson, Clark headline first-round fan voting for WNBA All-Star Game**\
-`The 2024 WNBA All-Star Game rosters will be announced on July 2. The game takes place on July 20.`\
-https://nytimes.com/athletic/5581948/2024/06/21/wnba-all-stars-early-voting-caitlin-clark/
-
-**Charli XCX and Lorde End the Rumors on a Refreshing Remix**\
-`Lorde adds guest vocals to Charli XCX’s “Girl, So Confusing,” a song that muses on the complexities of female friendship, and helps create something revelatory.`\
-https://nytimes.com/2024/06/21/arts/music/charli-xcx-lorde-girl-so-confusing-remix.html
 
