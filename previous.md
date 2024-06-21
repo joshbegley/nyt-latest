@@ -1,3 +1,15 @@
+**2024 NBA Draft Guide: Tiers, final rankings and Big Board**\
+`Want to know everything possible about the 2024 NBA Draft class? I dive deep with more than 130,000 words on this year's prospects. `\
+https://nytimes.com/athletic/5579170/2024/06/21/nba-draft-2024-top-100-prospects-guide-bronny-james/
+
+**How Spain cooked Italy with brilliant wing play and clever penalty-box movement**\
+`It wasn't just the brilliance of Spain's wide players that helped them dominate Italy - they blended that with devilish movement in the box`\
+https://nytimes.com/athletic/5580361/2024/06/21/spain-italy-euro-2024-analysis/
+
+**The Folger Library Wants to Reintroduce You to Shakespeare**\
+`After an $80 million expansion, the Folger Shakespeare Library is reopening with a more welcoming approach — and all 82 of its First Folios on view.`\
+https://nytimes.com/2024/06/21/arts/21shakespeare-folger-renovation.html
+
 **Looking Ahead to the Biden-Trump Debate**\
 `Readers make their wishes known about the debate. Also: The Ten Commandments in public classrooms; asylum seekers; Black women’s health; Justice Alito’s wife.`\
 https://nytimes.com/2024/06/21/opinion/biden-trump-debate.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/21/opinion/death-penalty-missouri-williams.html
 **15 Great Donald Sutherland Performances to Stream**\
 `Whether in the lead or a supporting role, the actor’s immense talent and range were apparent in six decades of performances.`\
 https://nytimes.com/2024/06/21/movies/donald-sutherland-streaming.html
-
-**Time to Make, and Eat, Some Seriously Good Sandwiches**\
-`Halloumi with lettuce and tomato, spiced lamb on an English muffin and a Scuttlebutt.`\
-https://nytimes.com/2024/06/21/dining/sandwich-recipes.html
-
-**Students Kissed Her Feet for Good Luck. Now She’s Missing Her Head.**\
-`A replica of the Athena Giustiniani that greeted students at Wells College for more than 150 years was accidentally decapitated in the scramble to close the institution forever.`\
-https://nytimes.com/2024/06/21/arts/design/wells-college-minerva-statue-decapitated-beheaded.html
-
-**Five Horror Movies to Stream Now**\
-`This month’s picks include demon baby, a cursed chef and all kinds of people trapped in hellish situations.`\
-https://nytimes.com/2024/06/21/movies/five-horror-movies-to-stream-now.html
 
