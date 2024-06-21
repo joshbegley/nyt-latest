@@ -1,3 +1,7 @@
+**Olise chooses to join Bayern from Palace**\
+`Crystal Palace winger Michael Olise has decided to join Bayern Munich.`\
+https://nytimes.com/athletic/5582013/2024/06/21/michael-olise-bayern-munich-transfer/
+
 **Is It OK to Secretly Medicate Your Manic Husband?**\
 `The magazine’s Ethicist columnist on marital deception.`\
 https://nytimes.com/2024/06/21/magazine/manic-husband-medicate-ethics.html
