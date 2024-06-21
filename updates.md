@@ -1,3 +1,7 @@
+**Spalletti's Italy must stay true to their style - even if it abandoned them against Spain**\
+`'The only thing that can save us is our brand of football' said Spalletti. Italy must remember that in their final group game`\
+https://nytimes.com/athletic/5579480/2024/06/21/italy-spain-spalletti-style-result/
+
 **Cardinals' Willie McGee savors his brush with baseball history: 'They deserve this'**\
 `McGee accompanied Bill Greason on the field as the 99-year-old former Birmingham Black Baron threw out the first pitch.`\
 https://nytimes.com/athletic/5580233/2024/06/21/mlb-cardinals-bill-greason-willie-mcgee/
