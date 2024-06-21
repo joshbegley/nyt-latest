@@ -1,3 +1,7 @@
+**Taylor Wily, Actor on ‘Hawaii Five-0’ and in ‘Forgetting Sarah Marshall,’ Dies at 56**\
+`He spent his early career as a professional sumo wrestler.`\
+https://nytimes.com/2024/06/21/arts/television/taylor-wily-dead-hawaii-five-0.html
+
 **McKennie joins criticism of Copa America field conditions: 'It's frustrating'**\
 `USMNT midfielder Weston McKennie has joined the mounting criticism of the &#8220;frustrating&#8221; field conditions at Copa America.`\
 https://nytimes.com/athletic/5582260/2024/06/21/copa-america-field-conditions-weston-mckennie/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5581449/2024/06/21/euro-2024-day-eight-mbappe/
 **In ‘House of the Dragon,’ a Sapphic Subtext Reigns Supreme**\
 `The unfulfilled longing that stretches between the two queens acts as the tension that holds the story together.`\
 https://nytimes.com/live/2024/06/18/opinion/thepoint/house-dragon-queer-love
-
-**FCS school challenges House v. NCAA settlement proposal**\
-`HCU argued its financial interests were not adequately represented by the proposed terms of the House settlement agreed to last month.`\
-https://nytimes.com/athletic/5582182/2024/06/21/houston-christian-house-ncaa-challenge/
 
