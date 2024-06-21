@@ -1,3 +1,7 @@
+**Trump Has Rapidly Eroded Biden’s Edge in 2024 Cash Battle**\
+`Just two months ago, President Biden appeared to have a daunting financial advantage. Then Donald Trump was convicted of 34 felonies, and Republicans’ wallets opened.`\
+https://nytimes.com/2024/06/20/us/politics/trump-fundraising-biden-election.html
+
 **Argentina 2, Canada 0: Takeaways from the Copa America opener**\
 `After a slow start, Argentina edged out a competitive Canada team `\
 https://nytimes.com/athletic/5579299/2024/06/20/argentina-canada-copa-america/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/20/us/politics/trump-green-cards-college-graduates.h
 **Review: A 10th Life for Those Jellicle ‘Cats,’ Now in Drag**\
 `Resetting the “Memory” musical in the world of ballroom competitions makes for a joyful reincarnation.`\
 https://nytimes.com/2024/06/20/theater/cats-the-jellicle-ball-review.html
-
-**Are the Orioles better than the Yankees? What we learned this week**\
-`“It’s going to be back and forth all the way until the end of September,” Aaron Judge said on the rivalry with Baltimore. “That’s for sure."`\
-https://nytimes.com/athletic/5579900/2024/06/20/are-orioles-better-than-yankees-analysis/
 
