@@ -1,3 +1,11 @@
+**The Best of Late Night This Week**\
+`This week, the hosts riffed on the heat wave that pummeled the U.S. as well as Trump trying to argue that he’s more mentally fit to lead than President Biden. Here’s what they had to say.`\
+https://nytimes.com/interactive/2024/06/21/arts/television/best-of-late-night-heat-wave.html
+
+**LA28 unveils venue plan: Swimming in SoFi, softball in Oklahoma City**\
+`Swimming, originally slated to take place in a temporary stadium to be built at USC’s baseball field, will move to SoFi Stadium, which opene`\
+https://nytimes.com/athletic/5581759/2024/06/21/olympics-2028-los-angeles-event-venues/
+
 **A New Option to Treat Sleep Apnea: Weight-Loss Drugs**\
 `New research showed that tirzepatide, the compound in Zepbound, improved symptoms of obstructive sleep apnea.`\
 https://nytimes.com/2024/06/21/well/sleep-apnea-weight-loss-drug.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/21/arts/television/review-orphan-black-echoes-sci-fi
 **What we learned from Yzerman about Red Wings' offseason**\
 `Steve Yzerman's Friday news conference shed some light on the Red Wings' offseason picture.`\
 https://nytimes.com/athletic/5581576/2024/06/21/red-wings-nhl-draft-free-agents/
-
-**Biden Is Finally Reminding Voters of Trump’s Toxic Chaos**\
-`A new ad focuses on the ex-president’s criminal conviction.`\
-https://nytimes.com/live/2024/06/18/opinion/thepoint/biden-trump-ads-criminal
-
-**Olise chooses to join Bayern from Palace**\
-`Crystal Palace winger Michael Olise has decided to join Bayern Munich.`\
-https://nytimes.com/athletic/5582013/2024/06/21/michael-olise-bayern-munich-transfer/
 
