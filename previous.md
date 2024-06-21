@@ -1,3 +1,11 @@
+**In Montana, Abortion Rights Groups Submit Signatures for Ballot Measure in November**\
+`The measure would affirm the right to abortion in the State Constitution. Democrats hope that it will help Senator Jon Tester in his bid for re-election.`\
+https://nytimes.com/2024/06/21/us/montana-abortion-rights-ballot.html
+
+**Euro 2024 day eight: Mbappe watches on as France spared by VAR rules row**\
+`What happened on day eight of the European Championship in Germany`\
+https://nytimes.com/athletic/5581449/2024/06/21/euro-2024-day-eight-mbappe/
+
 **In ‘House of the Dragon,’ a Sapphic Subtext Reigns Supreme**\
 `The unfulfilled longing that stretches between the two queens acts as the tension that holds the story together.`\
 https://nytimes.com/live/2024/06/18/opinion/thepoint/house-dragon-queer-love
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/21/us/heat-wave-power-grid.html
 **Andrew Cogliano retires as beloved example to NHL players**\
 `When Erik Johnson handed Andrew Cogliano the Stanley Cup for the first time, Cogliano, the veteran wing, shifted his body so he was facing his 2021-22 Avalanche teammates.`\
 https://nytimes.com/athletic/5581458/2024/06/21/avalanche-andrew-cogliano-retirement/
-
-**DeSantis Vetoes All Arts Grants in Florida**\
-`Gov. Ron DeSantis gave no explanation for zeroing out the $32 million in grants that were approved by state lawmakers.`\
-https://nytimes.com/2024/06/21/arts/ron-desantis-veto-arts-funding-florida.html
-
-**Transcript: Ezra Klein Interviews Matthew Yglesias**\
-`The June 21, 2024, episode of “The Ezra Klein Show.”`\
-https://nytimes.com/2024/06/21/podcasts/transcript-ezra-klein-interviews-matthew-yglesias.html
 
