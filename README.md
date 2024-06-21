@@ -1,3 +1,7 @@
+**Trump Says He Would Give Green Cards to All Foreign College Students at Graduation**\
+`Mr. Trump’s promise to Silicon Valley investors was a sharp departure from actions he took during his presidency to restrict legal immigration.`\
+https://nytimes.com/2024/06/20/us/politics/trump-green-cards-college-graduates.html
+
 **Review: A 10th Life for Those Jellicle ‘Cats,’ Now in Drag**\
 `Resetting the “Memory” musical in the world of ballroom competitions makes for a joyful reincarnation.`\
 https://nytimes.com/2024/06/20/theater/cats-the-jellicle-ball-review.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/06/20/us/heat-wave-temperatures-weather.html
 **Gunshot Detection System Wastes N.Y.P.D. Officers’ Time, Audit Finds**\
 `In June of last year, only 13 percent of ShotSpotter alerts were actually gunfire, according to Comptroller Brad Lander.`\
 https://nytimes.com/2024/06/20/nyregion/nypd-shotspotter-guns.html
-
-**Ryan Garcia suspended, fined, loses Haney win for PEDs**\
-`Haney will also now retain his undefeated record, as the loss turns to a no-contest.`\
-https://nytimes.com/athletic/5579695/2024/06/20/ryan-garcia-suspension-fine-no-contest-devin-haney/
 
