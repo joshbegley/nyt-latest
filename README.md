@@ -1,6 +1,6 @@
 **Time to Make, and Eat, Some Seriously Good Sandwiches**\
 `Halloumi with lettuce and tomato, spiced lamb on an English muffin and a Scuttlebutt.`\
-https://nytimes.com/2024/06/21/dining/time-to-make-and-eat-some-seriously-good-sandwiches.html
+https://nytimes.com/2024/06/21/dining/sandwich-recipes.html
 
 **Students Kissed Her Feet for Good Luck. Now She’s Missing Her Head.**\
 `A replica of the Athena Giustiniani that greeted students at Wells College for more than 150 years was accidentally decapitated in the scramble to close the institution forever.`\
