@@ -1,4 +1,4 @@
-**Taylor Wily, Actor on ‘Hawaii Five-0’ and in ‘Forgetting Sarah Marshall,’ Dies at 56**\
+**Taylor Wily, ‘Hawaii Five-0’ and ‘Forgetting Sarah Marshall’ Actor, Dies at 56**\
 `He spent his early career as a professional sumo wrestler.`\
 https://nytimes.com/2024/06/21/arts/television/taylor-wily-dead-hawaii-five-0.html
 
