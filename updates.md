@@ -1,3 +1,7 @@
+**15 Great Donald Sutherland Performances to Stream**\
+`Whether in the lead or a supporting role, the actor’s immense talent and range were apparent in six decades of performances.`\
+https://nytimes.com/2024/06/21/movies/donald-sutherland-streaming.html
+
 **Time to Make, and Eat, Some Seriously Good Sandwiches**\
 `Halloumi with lettuce and tomato, spiced lamb on an English muffin and a Scuttlebutt.`\
 https://nytimes.com/2024/06/21/dining/sandwich-recipes.html
