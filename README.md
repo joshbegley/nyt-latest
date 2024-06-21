@@ -1,3 +1,7 @@
+**Lilly King gets surprise proposal after clinching second Olympic spot**\
+`The engagement occurred right after King pulled off a thrilling comeback to clinch a spot in a second Olympic race.`\
+https://nytimes.com/athletic/5579951/2024/06/20/lilly-king-swim-trials-engaged/
+
 **Say Hey: The Willie Mays song with the connection to Birmingham's Rickwood Field**\
 `Epic Records wasn't against making a Willie Mays record. But Mays had to make a cameo appearance.`\
 https://nytimes.com/athletic/5579856/2024/06/20/willie-mays-say-hey-song-rickwood-field/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/06/20/style/kendrick-lamar-drake-tupac-ring.html
 **Killer of 2 Women in National Park in 1996 Has Been Identified, F.B.I. Says**\
 `A convicted serial rapist who died in an Ohio prison in 2018 was responsible for the murder of a couple at Shenandoah National Park in a case that initially was believed to be a hate crime.`\
 https://nytimes.com/2024/06/20/us/shenandoah-park-murders-1996-fbi.html
-
-**Nearly 100 Million Under Temperature Advisories as Heat Wave Lingers**\
-`The heat is expected to peak over the weekend in the Northeast, but not until early next week in the South and the Great Plains, according to the National Weather Service.`\
-https://nytimes.com/2024/06/20/us/heat-wave-temperatures-weather.html
 
