@@ -1,3 +1,7 @@
+**FCS school challenges House v. NCAA settlement proposal**\
+`HCU argued its financial interests were not adequately represented by the proposed terms of the House settlement agreed to last month.`\
+https://nytimes.com/athletic/5582182/2024/06/21/houston-christian-house-ncaa-challente/
+
 **The Supreme Court Upheld a Law Disarming Domestic Abusers**\
 `Also, dangerous heat is rising around the world. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/06/21/briefing/supreme-court-gun-law-donald-trump-fund-raising.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/21/podcasts/transcript-ezra-klein-interviews-matthew
 **Arda Guler a doubt for Turkey's clash vs Portugal**\
 `Arda Guler is a doubt for Turkey&#8217;s European Championship clash against Portugal on Saturday.`\
 https://nytimes.com/athletic/5582149/2024/06/21/arda-guler-turkey-injury-euro-2024/
-
-**Nevada Judge Throws Out State’s Case Against Fake Electors**\
-`The judge said the state chose the wrong venue to file a case against the Republicans who tried to declare Donald J. Trump the winner of the 2020 election.`\
-https://nytimes.com/2024/06/21/us/nevada-trump-elections.html
 
