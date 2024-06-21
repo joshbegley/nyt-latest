@@ -1,3 +1,7 @@
+**Putin Shows He Can Antagonize the U.S. Far Afield From Ukraine**\
+`His support for North Korea’s military ambitions showed he can inflict pain on the U.S. and its NATO allies in ways beyond aggression in Ukraine.`\
+https://nytimes.com/2024/06/21/world/europe/putin-russia-north-korea.html
+
 **England under more pressure than ever at Euro 2024 - Rice**\
 `England midfielder Declan Rice has admitted the players are feeling more pressure than ever before.`\
 https://nytimes.com/athletic/5581750/2024/06/21/declan-rice-england-euros/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5572411/2024/06/21/netherlands-france-result-report
 **2025 AFCON to be held in December and January**\
 `The 2025 Africa Cup of Nations (AFCON) will take place between December and January, it has been confirmed.`\
 https://nytimes.com/athletic/5581939/2024/06/21/africa-cup-of-nations-2025-dates/
-
-**Official Death Toll From Hajj Pilgrimage Climbs Into the Hundreds**\
-`Searing heat in Saudi Arabia appeared to at least contribute to many of the deaths.`\
-https://nytimes.com/2024/06/21/world/middleeast/saudi-arabia-hajj-pilgrimage-heat-death.html
 

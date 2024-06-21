@@ -1,3 +1,7 @@
+**Putin Shows He Can Antagonize the U.S. Far Afield From Ukraine**\
+`His support for North Korea’s military ambitions showed he can inflict pain on the U.S. and its NATO allies in ways beyond aggression in Ukraine.`\
+https://nytimes.com/2024/06/21/world/europe/putin-russia-north-korea.html
+
 **FCS school challenges House v. NCAA settlement proposal**\
 `HCU argued its financial interests were not adequately represented by the proposed terms of the House settlement agreed to last month.`\
 https://nytimes.com/athletic/5582182/2024/06/21/houston-christian-house-ncaa-challenge/
