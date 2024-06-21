@@ -1,3 +1,15 @@
+**Charli XCX and Lorde End the Rumors on a Refreshing Remix**\
+`Lorde adds guest vocals to Charli XCX’s “Girl, So Confusing,” a song that muses on the complexities of female friendship, and helps create something revelatory.`\
+https://nytimes.com/2024/06/21/arts/music/charli-xcx-lorde-girl-so-confusing-remix.html
+
+**Review: ‘Orphan Black: Echoes’ Revisits a Sci-Fi Favorite**\
+`The new sequel to “Orphan Black” raises interesting questions about the nature of memory but misses the charm of that show’s star, Tatiana Maslany.`\
+https://nytimes.com/2024/06/21/arts/television/review-orphan-black-echoes-sci-fi.html
+
+**What we learned from Yzerman about Red Wings' offseason**\
+`Steve Yzerman's Friday news conference shed some light on the Red Wings' offseason picture.`\
+https://nytimes.com/athletic/5581576/2024/06/21/red-wings-nhl-draft-free-agents/
+
 **Biden Is Finally Reminding Voters of Trump’s Toxic Chaos**\
 `A new ad focuses on the ex-president’s criminal conviction.`\
 https://nytimes.com/live/2024/06/18/opinion/thepoint/biden-trump-ads-criminal
