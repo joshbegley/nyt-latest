@@ -1,3 +1,7 @@
+**Marsch questions whether Argentina will be fined after delay to Canada second-half**\
+`Jesse Marsch has questioned whether Argentina will be fined for delaying the second-half of their Copa America opener with Canada.`\
+https://nytimes.com/athletic/5580293/2024/06/21/canada-argentina-jesse-marsch-half-time/
+
 **Troy Parrott and Tottenham Hotspur: it's decision time**\
 `Parrott played in four first team matches for Spurs in 2019-20, but not a single minute since - this summer feels like a pivotal moment `\
 https://nytimes.com/athletic/5567555/2024/06/21/troy-parrott-tottenham-future/

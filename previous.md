@@ -1,3 +1,7 @@
+**Marsch questions whether Argentina will be fined after delay to Canada second-half**\
+`Jesse Marsch has questioned whether Argentina will be fined for delaying the second-half of their Copa America opener with Canada.`\
+https://nytimes.com/athletic/5580293/2024/06/21/canada-argentina-jesse-marsch-half-time/
+
 **Troy Parrott and Tottenham Hotspur: it's decision time**\
 `Parrott played in four first team matches for Spurs in 2019-20, but not a single minute since - this summer feels like a pivotal moment `\
 https://nytimes.com/athletic/5567555/2024/06/21/troy-parrott-tottenham-future/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5579340/2024/06/21/kante-france-euro2024/
 **Appeals Court Denies Bannon’s Emergency Motion to Remain Free**\
 `Stephen K. Bannon is scheduled to start a four-month prison term on July 1 unless the Supreme Court intervenes.`\
 https://nytimes.com/2024/06/21/us/politics/bannon-appeal-prison.html
-
-**Belgium imploded at the World Cup but expectations are different at Euro 2024**\
-`The world's third-ranked team lost to Slovakia in their opening game but there is not the sense of panic there might have been previously`\
-https://nytimes.com/athletic/5575614/2024/06/21/belgium-tedesco-euros-world-cup/
 
