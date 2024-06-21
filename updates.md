@@ -1,3 +1,7 @@
+**Looking Ahead to the Biden-Trump Debate**\
+`Readers make their wishes known about the debate. Also: The Ten Commandments in public classrooms; asylum seekers; Black women’s health; Justice Alito’s wife.`\
+https://nytimes.com/2024/06/21/opinion/biden-trump-debate.html
+
 **Israeli Official Describes Secret Government Bid to Cement Control of West Bank**\
 `Israeli judges have long ruled that Israel’s control of the territory is a temporary military occupation and complies with international law. A powerful minister’s recent speech, caught on tape, suggested the government is trying to change that.`\
 https://nytimes.com/2024/06/21/world/middleeast/israel-west-bank-netanyahu-bezalel-smotrich.html
