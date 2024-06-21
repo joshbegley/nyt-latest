@@ -1,3 +1,7 @@
+**McKennie joins criticism of Copa America field conditions: 'It's frustrating'**\
+`USMNT midfielder Weston McKennie has joined the mounting criticism of the &#8220;frustrating&#8221; field conditions at Copa America.`\
+https://nytimes.com/athletic/5582260/2024/06/21/copa-america-field-conditions-weston-mckennie/
+
 **U.N. Chief warns Israel and Hezbollah of the risk of a wider war.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/06/21/world/israel-gaza-war-hamas/un-chief-guterres-israel-hezbollah
