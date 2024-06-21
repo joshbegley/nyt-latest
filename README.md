@@ -1,3 +1,7 @@
+**Charli XCX and Lorde End the Rumors on a Refreshing Remix**\
+`Lorde adds guest vocals to Charli XCX’s “Girl, So Confusing,” a song that muses on the complexities of female friendship, and helps create something revelatory.`\
+https://nytimes.com/2024/06/21/arts/music/charli-xcx-lorde-girl-so-confusing-remix.html
+
 **Review: ‘Orphan Black: Echoes’ Revisits a Sci-Fi Favorite**\
 `The new sequel to “Orphan Black” raises interesting questions about the nature of memory but misses the charm of that show’s star, Tatiana Maslany.`\
 https://nytimes.com/2024/06/21/arts/television/review-orphan-black-echoes-sci-fi.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5580221/2024/06/21/willie-mays-history-american-ico
 **5 keys to Panthers-Oilers Stanley Cup Game 6: Can Draisaitl step it up? Can Bobrovsky shut it down?**\
 `The Oilers are halfway to completing one of the biggest comebacks in NHL playoff history. Can they keep it going with a win Friday?`\
 https://nytimes.com/athletic/5581848/2024/06/21/stanley-cup-game-6-keys/
-
-**Chelsea pull out of process to buy Olise from Palace**\
-`Chelsea have pulled out of the process to sign winger Michael Olise from Crystal Palace.`\
-https://nytimes.com/athletic/5564023/2024/06/21/michael-olise-chelsea-transfer/
 
