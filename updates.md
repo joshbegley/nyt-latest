@@ -1,3 +1,11 @@
+**Israeli Official Describes Secret Government Bid to Cement Control of West Bank**\
+`Israeli judges have long ruled that Israel’s control of the territory is a temporary military occupation and complies with international law. A powerful minister’s recent speech, caught on tape, suggested the government is trying to change that.`\
+https://nytimes.com/2024/06/21/world/middleeast/israel-west-bank-netanyahu-bezalel-smotrich.html
+
+**Forest sign Stamenic from Red Star Belgrade; will join Olympiacos on loan**\
+`Nottingham Forest have completed the signing of Marko Stamenic from Red Star Belgrade.`\
+https://nytimes.com/athletic/5581482/2024/06/21/nottingham-forest-stamenic-signing/
+
 **Israel says it struck a missile launch site in a Gaza ‘humanitarian zone.’**\
 `By Hiba Yazbek`\
 https://nytimes.com/live/2024/06/21/world/israel-gaza-war-hamas/israel-says-it-struck-a-missile-launch-site-in-a-gaza-humanitarian-zone

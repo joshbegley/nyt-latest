@@ -1,3 +1,11 @@
+**Israeli Official Describes Secret Government Bid to Cement Control of West Bank**\
+`Israeli judges have long ruled that Israel’s control of the territory is a temporary military occupation and complies with international law. A powerful minister’s recent speech, caught on tape, suggested the government is trying to change that.`\
+https://nytimes.com/2024/06/21/world/middleeast/israel-west-bank-netanyahu-bezalel-smotrich.html
+
+**Forest sign Stamenic from Red Star Belgrade; will join Olympiacos on loan**\
+`Nottingham Forest have completed the signing of Marko Stamenic from Red Star Belgrade.`\
+https://nytimes.com/athletic/5581482/2024/06/21/nottingham-forest-stamenic-signing/
+
 **Israel says it struck a missile launch site in a Gaza ‘humanitarian zone.’**\
 `By Hiba Yazbek`\
 https://nytimes.com/live/2024/06/21/world/israel-gaza-war-hamas/israel-says-it-struck-a-missile-launch-site-in-a-gaza-humanitarian-zone
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/21/movies/five-horror-movies-to-stream-now.html
 **Slovakia 1 Ukraine 2 - Yaremchuk's nimble finish, a stirring comeback and the joy of watching Lobotka**\
 `Jacob Whitehead, Dermot Corrigan and Nick Miller analyse the main talking points from Ukraine's 2-1 win over Slovakia at Euro 2024`\
 https://nytimes.com/athletic/5572380/2024/06/21/slovakia-1-ukraine-2-euro-2024/
-
-**Live Q&A: Talking baseball with Eno Sarris on Friday 6/21 at 11:30 a.m. ET**\
-`Submit your questions for Eno Sarris' latest live chat about baseball, fantasy baseball and more.`\
-https://nytimes.com/athletic/5579094/2024/06/21/eno-sarris-live-chat-6-21/
-
-**Conan O’Brien Doesn’t Matter***\
-`*That’s his opinion. And yet he’s setting a new standard for what life after late-night can look like. (Hint: It’s a lot like what he did on talk shows.)`\
-https://nytimes.com/2024/06/21/arts/television/conan-obrien.html
 
