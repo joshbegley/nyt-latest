@@ -1,3 +1,15 @@
+**The heat wave in New York will continue through the weekend.**\
+`By Alyce McFadden`\
+https://nytimes.com/live/2024/06/21/us/heat-wave-news/the-heat-wave-in-new-york-will-continue-through-the-weekend
+
+**Millions nationwide face more hazardous heat as temperatures rise in the Mid-Atlantic states.**\
+`By Kate Selig and Judson Jones`\
+https://nytimes.com/live/2024/06/21/us/heat-wave-news/millions-nationwide-face-more-hazardous-heat-as-temperatures-rise-in-the-mid-atlantic-states
+
+**100 Million in U.S. Face Heat Alerts as First Summer Weekend Arrives**\
+`Nearly a third of the country was under hot weather advisories on the fifth day of a blistering heat wave.`\
+https://nytimes.com/live/2024/06/21/us/heat-wave-news
+
 **Editor Tapped to Lead Washington Post Won’t Take the Job**\
 `Robert Winnett will stay at The Daily Telegraph, after reports raised questions about his ties to unethical news gathering practices.`\
 https://nytimes.com/2024/06/21/business/media/washington-post-editor-winnett.html
