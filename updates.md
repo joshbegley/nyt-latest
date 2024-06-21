@@ -1,3 +1,7 @@
+**The Bounce: Why the Lakers need more than Redick**\
+`Zach Harper and Shams Charania catch you up on leaguewide news.`\
+https://nytimes.com/athletic/5580686/2024/06/21/jj-redick-lakers-the-bounce/
+
 **As Ukraine Expands Military Draft, Some Men Go Into Hiding**\
 `Fearful that conscription is a one-way ticket to bloody trench warfare, the men spend their days holed up at home to avoid draft officers who roam the streets.`\
 https://nytimes.com/2024/06/21/world/europe/ukraine-war-draft-dodgers-conscription.html
