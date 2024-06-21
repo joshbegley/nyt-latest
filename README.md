@@ -1,3 +1,11 @@
+**NBA Player Tiers: Kevin Durant, Steph Curry hang on in Tier 1, but how much longer?**\
+`Some of the game's greatest stars may be leaving Tier 1 soon, but one player near the top has one of the greatest four-year runs in history.`\
+https://nytimes.com/athletic/5578457/2024/06/21/nba-player-tiers-kevin-durant-steph-curry-hang-on-in-tier-1-but-how-much-longer/
+
+**Boston loves Al Horford and he wants you to know the feeling is mutual**\
+`"I’m just very proud to be able to bring a championship to Boston," said Horford, a Celtics fan favorite. `\
+https://nytimes.com/athletic/5579906/2024/06/21/al-horford-boston-celtics-parade/
+
 **Wales part company with manager Page**\
 `Wales have parted company with manager Rob Page.`\
 https://nytimes.com/athletic/5580529/2024/06/21/rob-page-wales-manager-sacked/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/21/dining/stuffed-pepper-recipe-chickpeas.html
 **In Iran Election, a New Target for Conservatives: the Government**\
 `A special presidential election campaign is featuring blistering attacks on the status quo by conservatives and the lone reformer alike.`\
 https://nytimes.com/2024/06/21/world/middleeast/iran-presidential-election-mood.html
-
-**Dutch Fashion Designer Iris van Herpen Moves Into Art**\
-`“There’s more to me than only couture,” she said, previewing her first exhibition of sculpture. Catch it while you can: The show will last only 45 minutes.`\
-https://nytimes.com/2024/06/21/arts/design/dutch-fashion-van-herpen-art.html
-
-**The Epitome of French Cool**\
-`Remembering pop icon Françoise Hardy.`\
-https://nytimes.com/2024/06/21/podcasts/the-epitome-of-french-cool.html
 
