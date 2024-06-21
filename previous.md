@@ -1,6 +1,14 @@
+**A New Option to Treat Sleep Apnea: Weight-Loss Drugs**\
+`New research showed that tirzepatide, the compound in Zepbound, improved symptoms of obstructive sleep apnea.`\
+https://nytimes.com/2024/06/21/well/sleep-apnea-weight-loss-drug.html
+
+**Louisiana’s Ten Commandments Law Signals a Broader Christian Agenda**\
+`Gov. Jeff Landry wants his state to be at the forefront of a national movement to advance legislation with a Christian worldview.`\
+https://nytimes.com/2024/06/21/us/louisiana-ten-commandments-landry.html
+
 **2 Dead and 8 Injured in Shooting at Arkansas Grocery Store**\
 `A police officer was injured in the attack at the Mad Butcher store in Fordyce, and the shooter was critically injured, the authorities said.`\
-https://nytimes.com/2024/06/21/us/arkansas-shooting-mad-butcher.html
+https://nytimes.com/2024/06/21/us/arkansas-grocery-store-fordyce-shooting.html
 
 **Ayoze Perez set to miss Spain's clash vs Albania with muscle injury**\
 `Ayoze Perez is expected to be ruled out of Spain’s clash against Albania in the European Championship on Monday due to a muscle injury.`\
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/06/18/opinion/thepoint/biden-trump-ads-criminal
 **Olise chooses to join Bayern from Palace**\
 `Crystal Palace winger Michael Olise has decided to join Bayern Munich.`\
 https://nytimes.com/athletic/5582013/2024/06/21/michael-olise-bayern-munich-transfer/
-
-**Is It OK to Secretly Medicate Your Manic Husband?**\
-`The magazine’s Ethicist columnist on marital deception.`\
-https://nytimes.com/2024/06/21/magazine/manic-husband-medicate-ethics.html
-
-**Sure, Knowledge Is Power, but Ignorance Is Underrated**\
-`The human tendency to ignore the truth is often seen as a flaw, but it can be useful, too.`\
-https://nytimes.com/2024/06/21/opinion/deliberate-ignorance-information.html
 
