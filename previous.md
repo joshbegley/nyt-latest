@@ -1,3 +1,7 @@
+**A Ride in a Chemical-Sniffing Van Shows How Heat Amps Up Pollution**\
+`In heat waves, chemicals like formaldehyde and ozone can form more readily in the air, according to researchers driving mobile labs in New York City this week.`\
+https://nytimes.com/2024/06/21/climate/heat-wave-air-pollution-chemicals.html
+
 **The Bounce: Why the Lakers need more than Redick**\
 `Zach Harper and Shams Charania catch you up on leaguewide news.`\
 https://nytimes.com/athletic/5580686/2024/06/21/jj-redick-lakers-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5580976/2024/06/21/pere-romeu-barcelona-head-coach/
 **What to watch at U.S. Olympic track and field trials: Noah Lyles takes center stage**\
 `Over the next 10 days, Team USA's track and field squad will be set. Here are the top events and storylines to watch in Eugene.`\
 https://nytimes.com/athletic/5579970/2024/06/21/us-olympic-track-and-field-trials-noah-lyles/
-
-**How Billionaires Are Reshaping the Presidential Race**\
-`Wealthy donors including Timothy Mellon helped Donald Trump’s campaign out-raise President Biden’s last month, but Democratic supporters are still spending.`\
-https://nytimes.com/2024/06/21/business/dealbook/trump-biden-billionaire-donors.html
 

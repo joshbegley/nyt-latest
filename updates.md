@@ -1,3 +1,7 @@
+**A Ride in a Chemical-Sniffing Van Shows How Heat Amps Up Pollution**\
+`In heat waves, chemicals like formaldehyde and ozone can form more readily in the air, according to researchers driving mobile labs in New York City this week.`\
+https://nytimes.com/2024/06/21/climate/heat-wave-air-pollution-chemicals.html
+
 **The Bounce: Why the Lakers need more than Redick**\
 `Zach Harper and Shams Charania catch you up on leaguewide news.`\
 https://nytimes.com/athletic/5580686/2024/06/21/jj-redick-lakers-the-bounce/
