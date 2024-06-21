@@ -1,3 +1,7 @@
+**Editor Tapped to Lead Washington Post Won’t Take the Job**\
+`Robert Winnett will stay at The Daily Telegraph, after reports raised questions about his ties to unethical news gathering practices.`\
+https://nytimes.com/2024/06/21/business/media/washington-post-editor-winnett.html
+
 **How will late-arriving transfers Beaux Collins, Rod Heard II boost Notre Dame?**\
 `The graduate transfers from Clemson and Northwestern had to wait to officially join Notre Dame, and they're eager to prove themselves.`\
 https://nytimes.com/athletic/5580886/2024/06/21/notre-dame-beaux-collins-rod-heard/

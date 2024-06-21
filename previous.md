@@ -1,3 +1,7 @@
+**Editor Tapped to Lead Washington Post Won’t Take the Job**\
+`Robert Winnett will stay at The Daily Telegraph, after reports raised questions about his ties to unethical news gathering practices.`\
+https://nytimes.com/2024/06/21/business/media/washington-post-editor-winnett.html
+
 **How will late-arriving transfers Beaux Collins, Rod Heard II boost Notre Dame?**\
 `The graduate transfers from Clemson and Northwestern had to wait to officially join Notre Dame, and they're eager to prove themselves.`\
 https://nytimes.com/athletic/5580886/2024/06/21/notre-dame-beaux-collins-rod-heard/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5578416/2024/06/21/wolves-crystal-palace-sponsors-g
 **USMNT star Musah's England years: 'I have no doubt he'd have made the England squad'**\
 `Yunus Musah will be a key player for the USMNT at the Copa America — but he could have represented three other nations`\
 https://nytimes.com/athletic/5577978/2024/06/21/yunus-musah-usmnt-copa-america-england/
-
-**Jets mailbag, part 2: Paul Maurice's evolution, Mark Scheifele's talent level and more**\
-`Plus, the roster impact of a potential Nikolaj Ehlers trade and a look at the Jets' drafting and development.`\
-https://nytimes.com/athletic/5567027/2024/06/21/winnipeg-jets-mailbag-maurice-scheifele/
 
