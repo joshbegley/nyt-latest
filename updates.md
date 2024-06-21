@@ -1,3 +1,7 @@
+**Southwest Plane Begins Descent Too Early Over Oklahoma City**\
+`Its low altitude had triggered an automated warning and startled some residents near Oklahoma City, where it eventually landed safely.`\
+https://nytimes.com/2024/06/21/us/southwest-airlines-plane-oklahoma-city.html
+
 **Hawaii Settles With Young Plaintiffs in Climate Case**\
 `The state agreed to take steps cut greenhouse gas emissions from transportation. It’s the latest of several victories for youth-led climate lawsuits.`\
 https://nytimes.com/2024/06/21/climate/hawaii-youth-climate-lawsuit.html
