@@ -1,3 +1,11 @@
+**Oil Projects Must Consider Full Climate Impact, Top U.K. Court Rules**\
+`Previously, local council and planning groups in Britain had to weigh only the planet-warming emissions from their own operations.`\
+https://nytimes.com/2024/06/21/world/europe/uk-supreme-court-oil-ruling.html
+
+**England mailbag: No Phillips replacement? Why no Palmer? Is Trent being misused?**\
+`We asked for your questions about England's misfiring Euro 2024 campaign... and you were not shy in asking them`\
+https://nytimes.com/athletic/5580889/2024/06/21/england-euro-2024-mailbag-answers/
+
 **2024 NBA Draft Guide: Tiers, final rankings and Big Board**\
 `Want to know everything possible about the 2024 NBA Draft class? I dive deep with more than 130,000 words on this year's prospects. `\
 https://nytimes.com/athletic/5579170/2024/06/21/nba-draft-2024-top-100-prospects-guide-bronny-james/
