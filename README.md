@@ -1,3 +1,19 @@
+**Matija Sarkic remembered: 'He was half of me - it's devastating'**\
+`Family and friends share their memories of the Montenegro goalkeeper who died suddenly, aged 26, last week`\
+https://nytimes.com/athletic/5577909/2024/06/21/matija-sarkic-remembered/
+
+**June 30 - the PSR deadline making rival Premier League clubs friends with benefits**\
+`Some clubs may have found a quick fix for their PSR problems - here's how`\
+https://nytimes.com/athletic/5578737/2024/06/21/transfers-between-premier-league-clubs/
+
+**Fantasy baseball waiver wire: Michael Toglia, Michael Wacha and more adds; plus, two-start pitchers and stashes**\
+`John Laghezza runs the numbers to reveal the best available fantasy baseball waiver wire options this week, like Colorado's Michael Toglia.`\
+https://nytimes.com/athletic/5576950/2024/06/21/fantasy-baseball-waiver-wire-michael-toglia-michael-wacha-adds-two-start-pitchers-stashes/
+
+**France find reassurance in N'Golo Kante's return: Chouchou has become a quiet leader**\
+`There was surprise when the Al Ittihad midfielder was recalled for Euro 2024 but, already, he has demonstrated what he still offers France`\
+https://nytimes.com/athletic/5579340/2024/06/21/kante-france-euro2024/
+
 **Appeals Court Denies Bannon’s Emergency Motion to Remain Free**\
 `Stephen K. Bannon is scheduled to start a four-month prison term on July 1 unless the Supreme Court intervenes.`\
 https://nytimes.com/2024/06/21/us/politics/bannon-appeal-prison.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5572090/2024/06/21/jackson-irvineo-fabian-hurzeler-
 **Analysing France's options to replace Kylian Mbappe against the Netherlands**\
 `Didier Deschamps has plenty of alternatives if he does not risk his captain against the Dutch, though none is quite as appealing as Mbappe`\
 https://nytimes.com/athletic/5573509/2024/06/21/france-mbappe-barcola-giroud-dembele-thuram-coman/
-
-**Friday Briefing**\
-`Vladimir Putin’s threat to arm North Korea.`\
-https://nytimes.com/2024/06/21/briefing/russia-north-korea-arms.html
-
-**Federal Judge Rebuffs a Central Argument of Congestion Pricing Lawsuits**\
-`The three cases are among several filed by opponents of the tolling program, which was halted by Gov. Kathy Hochul this month.`\
-https://nytimes.com/2024/06/21/nyregion/congestion-pricing-lawsuits.html
-
-**Japan Makes It Very Hard to Be Sterilized. These Women Demand Change.**\
-`A lawsuit challenges a societal assumption that all women are “destined to become a mother.”`\
-https://nytimes.com/2024/06/21/world/asia/japan-women-sterilization.html
-
-**The Taylor Swift Economy Has Landed in Europe**\
-`Economists are debating what effect the singer’s sweep through Europe will have this summer as swarms of fans increase demand for hotels and services.`\
-https://nytimes.com/2024/06/21/business/taylor-swift-eras-tour-inflation-europe.html
 
