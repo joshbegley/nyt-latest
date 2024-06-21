@@ -1,3 +1,7 @@
+**Nico Williams' big night for Spain is just the start - the winger isn't short of suitors**\
+`Nico's electric display against Italy will have come as no surprise to seasoned observers of Spanish football`\
+https://nytimes.com/athletic/5580002/2024/06/21/nico-williams-spain-italy-euros/
+
 **Jimmy Kimmel Counts Down the Days to the First Debate**\
 `Kimmel doubted that Donald Trump would stick to his game plan of not interrupting President Biden, saying, “His discipline is unmatched!”`\
 https://nytimes.com/2024/06/21/arts/television/jimmy-kimmel-presidential-debate.html
