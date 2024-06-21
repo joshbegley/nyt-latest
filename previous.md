@@ -1,3 +1,11 @@
+**The Israeli leader’s quarrels with the White House, his military and his coalition partners have escalated at a pivotal time in the war.**\
+`By Shashank Bengali`\
+https://nytimes.com/live/2024/06/21/world/israel-gaza-war-hamas/the-israeli-leaders-quarrels-with-the-white-house-his-military-and-his-coalition-partners-have-escalated-at-a-pivotal-time-in-th
+
+**Overpaying for Medicine**\
+`Who is driving up drug costs for millions of people?`\
+https://nytimes.com/2024/06/21/briefing/overpaying-for-medicine.html
+
 **Which NHL teams need upgrades at center? Ranking all 32 teams by current quality**\
 `Here’s how we’d rank each team’s center depth, from best to worst, just before the offseason kicks off.`\
 https://nytimes.com/athletic/5579764/2024/06/21/nhl-centers-free-agency-trade/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5579140/2024/06/21/connor-mcdavid-stanley-cup-sidne
 **America’s Top Doctor on Why He Wants Warning Labels on Social Media**\
 `The surgeon general says parents should be aware that using the platforms might harm adolescents’ mental health.`\
 https://nytimes.com/2024/06/21/podcasts/the-daily/americas-top-doctor-on-why-he-wants-warning-labels-on-social-media.html
-
-**A Rubens Returns to a German Castle, 80 Years After It Was Stolen**\
-`The oil painting of a saint, looted from the castle in the closing weeks of World War II by the ducal family that once owned it, is being returned by a Buffalo museum.`\
-https://nytimes.com/2024/06/21/arts/design/a-rubens-returns-to-a-german-castle-80-years-after-it-was-stolen.html
-
-**What's it like when Steph Curry shows up at a pickup game? 'Even the adults were screaming'**\
-`The NBA icon surprised a group of men's basketball players in Folsom, Calif., joining them for their pickup games.`\
-https://nytimes.com/athletic/5575595/2024/06/21/steph-curry-pickup-sacramento/
 

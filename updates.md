@@ -1,3 +1,11 @@
+**The Israeli leader’s quarrels with the White House, his military and his coalition partners have escalated at a pivotal time in the war.**\
+`By Shashank Bengali`\
+https://nytimes.com/live/2024/06/21/world/israel-gaza-war-hamas/the-israeli-leaders-quarrels-with-the-white-house-his-military-and-his-coalition-partners-have-escalated-at-a-pivotal-time-in-th
+
+**Overpaying for Medicine**\
+`Who is driving up drug costs for millions of people?`\
+https://nytimes.com/2024/06/21/briefing/overpaying-for-medicine.html
+
 **Copa America's five weirdest stories: Blackmail, three missed penalties and a 'chilled ball'**\
 `Wild times at the Copa America - a quick guide to the competition's most extraordinary tales`\
 https://nytimes.com/athletic/5570255/2024/06/21/copa-americas-five-weirdest-stories/
