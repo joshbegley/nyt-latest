@@ -1,3 +1,11 @@
+**The Supreme Court Upheld a Law Disarming Domestic Abusers**\
+`Also, dangerous heat is rising around the world. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/06/21/briefing/supreme-court-gun-law-donald-trump-fund-raising.html
+
+**Netherlands 0 France 0 - Why was Xavi Simons' goal disallowed? Should Rabiot have shot?**\
+`The Netherlands and France played out a 0-0 draw on Friday night as both moved closer to qualification for the last-16`\
+https://nytimes.com/athletic/5572411/2024/06/21/netherlands-france-result-report-analysis/
+
 **2025 AFCON to be held in December and January**\
 `The 2025 Africa Cup of Nations (AFCON) will take place between December and January, it has been confirmed.`\
 https://nytimes.com/athletic/5581939/2024/06/21/africa-cup-of-nations-2025-dates/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5582149/2024/06/21/arda-guler-turkey-injury-euro-20
 **Nevada Judge Throws Out State’s Case Against Fake Electors**\
 `The judge said the state chose the wrong venue to file a case against the Republicans who tried to declare Donald J. Trump the winner of the 2020 election.`\
 https://nytimes.com/2024/06/21/us/nevada-trump-elections.html
-
-**Gaza Authorities Say 25 Killed in Israeli Strike on Camp in Al-Mawasi**\
-`The Israeli military said “the incident is under review.”`\
-https://nytimes.com/2024/06/21/world/middleeast/israel-gaza-strike-mawasi.html
-
-**The Best of Late Night This Week**\
-`This week, the hosts riffed on the heat wave that pummeled the U.S. as well as Trump trying to argue that he’s more mentally fit to lead than President Biden. Here’s what they had to say.`\
-https://nytimes.com/interactive/2024/06/21/arts/television/best-of-late-night-heat-wave.html
 

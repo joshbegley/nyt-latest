@@ -1,3 +1,11 @@
+**2025 AFCON to be held in December and January**\
+`The 2025 Africa Cup of Nations (AFCON) will take place between December and January, it has been confirmed.`\
+https://nytimes.com/athletic/5581939/2024/06/21/africa-cup-of-nations-2025-dates/
+
+**Gaza Authorities Say 25 Killed in Israeli Strike on Camp in Al-Mawasi**\
+`The Israeli military said “the incident is under review.”`\
+https://nytimes.com/2024/06/21/world/middleeast/israel-gaza-strike-mawasi.html
+
 **Official Death Toll From Hajj Pilgrimage Climbs Into the Hundreds**\
 `Searing heat in Saudi Arabia appeared to at least contribute to many of the deaths.`\
 https://nytimes.com/2024/06/21/world/middleeast/saudi-arabia-hajj-pilgrimage-heat-death.html
