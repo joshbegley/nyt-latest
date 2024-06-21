@@ -1,3 +1,7 @@
+**Copa America gets the start it needed - on and off the pitch**\
+`This tournament is the start of an important period for soccer in the U.S. and the opening match did not disappoint`\
+https://nytimes.com/athletic/5580940/2024/06/21/copa-america-2024-argentina-canada/
+
 **Canada 'deeply disturbed' by racist abuse of player after Argentina game**\
 `Canada Soccer says it is “deeply disturbed” by the racist abuse directed at one of their players following their Copa America opener against Argentina on Thursday.`\
 https://nytimes.com/athletic/5580958/2024/06/21/canada-racist-abuse-copa-moise-bombito/
