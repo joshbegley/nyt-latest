@@ -14,7 +14,7 @@ https://nytimes.com/athletic/5582260/2024/06/21/copa-america-field-conditions-we
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/06/21/world/israel-gaza-war-hamas/un-chief-guterres-israel-hezbollah
 
-**Simons disallowed goal vs France' should have stood' - Koeman**\
+**Simons disallowed goal vs France 'should have stood' - Koeman**\
 `Netherlands head coach Ronald Koeman believes Xavi Simons&#8217; disallowed goal against France &#8220;should have stood&#8221;, as his side drew 0-0 in Friday&#8217;s Group D clash at the European Championship.`\
 https://nytimes.com/athletic/5582219/2024/06/21/koeman-simons-netherlands-france-euro-2024/
 
