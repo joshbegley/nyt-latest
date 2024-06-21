@@ -1,5 +1,5 @@
 **Olise chooses to join Bayern from Palace**\
-`Crystal Palace winger Michael Olise has chosen to join Bayern Munich.`\
+`Crystal Palace winger Michael Olise has decided to join Bayern Munich.`\
 https://nytimes.com/athletic/5582013/2024/06/21/michael-olise-bayern-munich-transfer/
 
 **Is It OK to Secretly Medicate Your Manic Husband?**\
