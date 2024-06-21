@@ -1,3 +1,11 @@
+**Florida to Pay Millions to Victims of Abuses at Notorious Reform School**\
+`A $20 million program will give financial restitution to students who endured abuse and neglect at the hands of the state.`\
+https://nytimes.com/2024/06/21/us/florida-dozier-school-abuse-restitution.html
+
+**Trump Allies Begin First Line of Attack Against Arizona Election Case**\
+`The challenges from defendants charged with trying to overturn the 2020 election will be a test case for a new but little-known state law aimed at curbing political prosecutions.`\
+https://nytimes.com/2024/06/21/us/politics/trump-arizona-elections-legislation.html
+
 **Shota Imanaga's disaster start brings questions to an already struggling Cubs team**\
 `Imanaga allowed 10 runs on 11 hits over three-plus innings as the Mets attacked his fastball, which had a lower average velocity than usual.`\
 https://nytimes.com/athletic/5582384/2024/06/21/shota-imanaga-disaster-start-cubs-struggling/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/21/us/politics/jamaal-bowman-ny-primary-election.htm
 **Taylor Wily, ‘Hawaii Five-0’ and ‘Forgetting Sarah Marshall’ Actor, Dies at 56**\
 `He spent his early career as a professional sumo wrestler.`\
 https://nytimes.com/2024/06/21/arts/television/taylor-wily-dead-hawaii-five-0.html
-
-**McKennie joins criticism of Copa America field conditions: 'It's frustrating'**\
-`USMNT midfielder Weston McKennie has joined the mounting criticism of the &#8220;frustrating&#8221; field conditions at Copa America.`\
-https://nytimes.com/athletic/5582260/2024/06/21/copa-america-field-conditions-weston-mckennie/
-
-**U.N. Chief Warns Israel and Hezbollah of the Risk of a Wider War**\
-`“The people of the region and the people of the world cannot afford Lebanon to become another Gaza,” he said.`\
-https://nytimes.com/2024/06/21/world/middleeast/un-chief-guterres-israel-hezbollah.html
 
