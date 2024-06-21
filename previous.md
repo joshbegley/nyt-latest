@@ -1,3 +1,7 @@
+**How will late-arriving transfers Beaux Collins, Rod Heard II boost Notre Dame?**\
+`The graduate transfers from Clemson and Northwestern had to wait to officially join Notre Dame, and they're eager to prove themselves.`\
+https://nytimes.com/athletic/5580886/2024/06/21/notre-dame-beaux-collins-rod-heard/
+
 **How England's left side is undermining them with and without the ball**\
 `Gareth Southgate's team are on track to reach the knockout stage, but are no closer to finding the right balance`\
 https://nytimes.com/athletic/5580575/2024/06/21/england-euro-2024-left-side-issues/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5577978/2024/06/21/yunus-musah-usmnt-copa-america-e
 **Jets mailbag, part 2: Paul Maurice's evolution, Mark Scheifele's talent level and more**\
 `Plus, the roster impact of a potential Nikolaj Ehlers trade and a look at the Jets' drafting and development.`\
 https://nytimes.com/athletic/5567027/2024/06/21/winnipeg-jets-mailbag-maurice-scheifele/
-
-**The Athletic’s Friday football quiz question #9**\
-`Can you work out the answer to our weekly football conundrum? `\
-https://nytimes.com/athletic/5580576/2024/06/21/the-athletics-friday-football-quiz-question-9/
 

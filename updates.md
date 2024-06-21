@@ -1,3 +1,7 @@
+**How will late-arriving transfers Beaux Collins, Rod Heard II boost Notre Dame?**\
+`The graduate transfers from Clemson and Northwestern had to wait to officially join Notre Dame, and they're eager to prove themselves.`\
+https://nytimes.com/athletic/5580886/2024/06/21/notre-dame-beaux-collins-rod-heard/
+
 **How England's left side is undermining them with and without the ball**\
 `Gareth Southgate's team are on track to reach the knockout stage, but are no closer to finding the right balance`\
 https://nytimes.com/athletic/5580575/2024/06/21/england-euro-2024-left-side-issues/
