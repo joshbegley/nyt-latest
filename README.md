@@ -1,3 +1,7 @@
+**Cardinals' Willie McGee savors his brush with baseball history: 'They deserve this'**\
+`McGee accompanied Bill Greason on the field as the 99-year-old former Birmingham Black Baron threw out the first pitch.`\
+https://nytimes.com/athletic/5580233/2024/06/21/mllb-cardinals-bill-greason/
+
 **Marsch questions whether Argentina will be fined after delay to Canada second-half**\
 `Jesse Marsch has questioned whether Argentina will be fined for delaying the second-half of their Copa America opener with Canada.`\
 https://nytimes.com/athletic/5580293/2024/06/21/canada-argentina-jesse-marsch-half-time/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5576950/2024/06/21/fantasy-baseball-waiver-wire-mic
 **France find reassurance in N'Golo Kante's return: Chouchou has become a quiet leader**\
 `There was surprise when the Al Ittihad midfielder was recalled for Euro 2024 but, already, he has demonstrated what he still offers France`\
 https://nytimes.com/athletic/5579340/2024/06/21/kante-france-euro2024/
-
-**Appeals Court Denies Bannon’s Emergency Motion to Remain Free**\
-`Stephen K. Bannon is scheduled to start a four-month prison term on July 1 unless the Supreme Court intervenes.`\
-https://nytimes.com/2024/06/21/us/politics/bannon-appeal-prison.html
 
