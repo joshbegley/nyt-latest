@@ -26,6 +26,10 @@ https://nytimes.com/live/2024/06/21/us/heat-wave-news/millions-nationwide-face-m
 `Nearly a third of the country was under hot weather advisories on the fifth day of a blistering heat wave.`\
 https://nytimes.com/live/2024/06/21/us/heat-wave-news
 
+**Copa America gets the start it needed - on and off the pitch**\
+`This tournament is the start of an important period for soccer in the U.S. and the opening match did not disappoint`\
+https://nytimes.com/athletic/5580940/2024/06/21/copa-america-2024-argentina-canada/
+
 **Editor Tapped to Lead Washington Post Won’t Take the Job**\
 `Robert Winnett will stay at The Daily Telegraph, after reports raised questions about his ties to unethical news gathering practices.`\
 https://nytimes.com/2024/06/21/business/media/washington-post-editor-winnett.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/21/business/media/washington-post-editor-winnett.htm
 **How will late-arriving transfers Beaux Collins, Rod Heard II boost Notre Dame?**\
 `The graduate transfers from Clemson and Northwestern had to wait to officially join Notre Dame, and they're eager to prove themselves.`\
 https://nytimes.com/athletic/5580886/2024/06/21/notre-dame-beaux-collins-rod-heard/
-
-**How England's left side is undermining them with and without the ball**\
-`Gareth Southgate's team are on track to reach the knockout stage, but are no closer to finding the right balance`\
-https://nytimes.com/athletic/5580575/2024/06/21/england-euro-2024-left-side-issues/
 
