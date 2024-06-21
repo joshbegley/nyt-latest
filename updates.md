@@ -1,3 +1,11 @@
+**The Supreme Court Upheld a Law Disarming Domestic Abusers**\
+`Also, dangerous heat is rising around the world. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/06/21/briefing/supreme-court-gun-law-donald-trump-fund-raising.html
+
+**Netherlands 0 France 0 - Why was Xavi Simons' goal disallowed? Should Rabiot have shot?**\
+`The Netherlands and France played out a 0-0 draw on Friday night as both moved closer to qualification for the last-16`\
+https://nytimes.com/athletic/5572411/2024/06/21/netherlands-france-result-report-analysis/
+
 **2025 AFCON to be held in December and January**\
 `The 2025 Africa Cup of Nations (AFCON) will take place between December and January, it has been confirmed.`\
 https://nytimes.com/athletic/5581939/2024/06/21/africa-cup-of-nations-2025-dates/
