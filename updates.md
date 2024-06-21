@@ -1,3 +1,19 @@
+**Canada 'deeply disturbed' by racist abuse of player after Argentina game**\
+`Canada Soccer says it is “deeply disturbed” by the racist abuse directed at one of their players following their Copa America opener against Argentina on Thursday.`\
+https://nytimes.com/athletic/5580958/2024/06/21/canada-racist-abuse-copa-moise-bombito/
+
+**Barcelona Femeni name Romeu, 30, as new head coach**\
+`Barcelona Femeni have appointed Pere Romeu as their new head coach.`\
+https://nytimes.com/athletic/5580976/2024/06/21/pere-romeu-barcelona-head-coach/
+
+**What to watch at U.S. Olympic track and field trials: Noah Lyles takes center stage**\
+`Over the next 10 days, Team USA's track and field squad will be set. Here are the top events and storylines to watch in Eugene.`\
+https://nytimes.com/athletic/5579970/2024/06/21/us-olympic-track-and-field-trials-noah-lyles/
+
+**How Billionaires Are Reshaping the Presidential Race**\
+`Wealthy donors including Timothy Mellon helped Donald Trump’s campaign out-raise President Biden’s last month, but Democratic supporters are still spending.`\
+https://nytimes.com/2024/06/21/business/dealbook/trump-biden-billionaire-donors.html
+
 **The heat wave in New York will continue through the weekend.**\
 `By Alyce McFadden`\
 https://nytimes.com/live/2024/06/21/us/heat-wave-news/the-heat-wave-in-new-york-will-continue-through-the-weekend
