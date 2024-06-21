@@ -1,3 +1,11 @@
+**Nevada Judge Throws Out State’s Case Against Fake Electors**\
+`The judge said the state chose the wrong venue to file a case against the Republicans who tried to declare Donald J. Trump the winner of the 2020 election.`\
+https://nytimes.com/2024/06/21/us/nevada-trump-elections.html
+
+**Gaza authorities say 25 people were killed by a strike on a camp for displaced people.**\
+`By Anjana Sankar`\
+https://nytimes.com/live/2024/06/21/world/israel-gaza-war-hamas/gaza-authorities-say-25-people-were-killed-by-a-strike-on-a-camp-for-displaced-people
+
 **The Best of Late Night This Week**\
 `This week, the hosts riffed on the heat wave that pummeled the U.S. as well as Trump trying to argue that he’s more mentally fit to lead than President Biden. Here’s what they had to say.`\
 https://nytimes.com/interactive/2024/06/21/arts/television/best-of-late-night-heat-wave.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5581948/2024/06/21/wnba-all-stars-early-voting-cait
 **Charli XCX and Lorde End the Rumors on a Refreshing Remix**\
 `Lorde adds guest vocals to Charli XCX’s “Girl, So Confusing,” a song that muses on the complexities of female friendship, and helps create something revelatory.`\
 https://nytimes.com/2024/06/21/arts/music/charli-xcx-lorde-girl-so-confusing-remix.html
-
-**Review: ‘Orphan Black: Echoes’ Revisits a Sci-Fi Favorite**\
-`The new sequel to “Orphan Black” raises interesting questions about the nature of memory but misses the charm of that show’s star, Tatiana Maslany.`\
-https://nytimes.com/2024/06/21/arts/television/review-orphan-black-echoes-sci-fi.html
-
-**What we learned from Yzerman about Red Wings' offseason**\
-`Steve Yzerman's Friday news conference shed some light on the Red Wings' offseason picture.`\
-https://nytimes.com/athletic/5581576/2024/06/21/red-wings-nhl-draft-free-agents/
 
