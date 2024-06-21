@@ -1,3 +1,11 @@
+**Nathan Hare, 91, Dies; Founded the First Black Studies Program**\
+`Seeking to bring the ideas of Black power into the classroom — and coining the term “ethnic studies” — he clashed with a university as well as allies on the left.`\
+https://nytimes.com/2024/06/21/obituaries/nathan-hare-dead.html
+
+**Griffin Dunne on His Joyful and Tragic Family Memoir**\
+`In “The Friday Afternoon Club,” the actor and director recalls his years growing up around performers, writers and the Hollywood set.`\
+https://nytimes.com/2024/06/21/books/review/griffin-dunne-book-review-podcast.html
+
 **American Express Buys Tock to Pursue Customers Shelling Out on Dining**\
 `The credit card company acquired Tock, a restaurant reservation company, after buying its rival, Resy, in 2019.`\
 https://nytimes.com/2024/06/21/business/amex-tock-dining-reservation.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/5581546/2024/06/21/f1-flavio-briatore-alpine-crashg
 **$3.34 Trillion**\
 `The market value on Tuesday of Nvidia, whose chips have made it possible to create A.I. systems.`\
 https://nytimes.com/2024/06/21/business/3-34-trillion-nvidia-market-value.html
-
-**The Everything Guide to Partying (Without Regrets)**\
-`Forty-three highly sociable people, from Ivy Getty to Rufus Wainwright, offer tips on how to be a stellar guest and a gracious host. Read this before you say yes to the next invitation.`\
-https://nytimes.com/interactive/2024/06/21/style/how-to-party-host-guest.html
-
-**Ángeles Flórez Peón, Spanish Civil War’s Last Militiawoman, Dies at 105**\
-`She was revered as an essential guardian of the country’s memory of war and repression long after the Franco dictatorship.`\
-https://nytimes.com/2024/06/21/world/europe/angeles-florez-peon-dead.html
 
