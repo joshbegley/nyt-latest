@@ -1,3 +1,7 @@
+**Bragg Asks Judge to Extend Trump’s Gag Order, Citing Deluge of Threats**\
+`Donald J. Trump claims the order has unfairly restricted his free speech rights ahead of his sentencing on 34 felony counts. He has nonetheless attacked the judge, prosecutor and justice system.`\
+https://nytimes.com/2024/06/21/nyregion/trump-gag-order-bragg.html
+
 **Giants celebrate Willie Mays, pay tribute to Negro Leagues at Rickwood Field**\
 `Willie Mays couldn't return to Rickwood Field, where his professional career began, in person, but he was there in spirit.`\
 https://nytimes.com/athletic/5580519/2024/06/21/giants-willie-mays-rickwood-field/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/21/special-series/russia-vladimir-putin-power-fear.h
 **A Ride in a Chemical-Sniffing Van Shows How Heat Amps Up Pollution**\
 `In heat waves, chemicals like formaldehyde and ozone can form more readily in the air, according to researchers driving mobile labs in New York City this week.`\
 https://nytimes.com/2024/06/21/climate/heat-wave-air-pollution-chemicals.html
-
-**The Bounce: Why the Lakers need more than Redick**\
-`Zach Harper and Shams Charania catch you up on leaguewide news.`\
-https://nytimes.com/athletic/5580686/2024/06/21/jj-redick-lakers-the-bounce/
 

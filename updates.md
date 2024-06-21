@@ -1,3 +1,7 @@
+**Bragg Asks Judge to Extend Trump’s Gag Order, Citing Deluge of Threats**\
+`Donald J. Trump claims the order has unfairly restricted his free speech rights ahead of his sentencing on 34 felony counts. He has nonetheless attacked the judge, prosecutor and justice system.`\
+https://nytimes.com/2024/06/21/nyregion/trump-gag-order-bragg.html
+
 **Giants celebrate Willie Mays, pay tribute to Negro Leagues at Rickwood Field**\
 `Willie Mays couldn't return to Rickwood Field, where his professional career began, in person, but he was there in spirit.`\
 https://nytimes.com/athletic/5580519/2024/06/21/giants-willie-mays-rickwood-field/
