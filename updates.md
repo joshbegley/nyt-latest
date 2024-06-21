@@ -1,3 +1,7 @@
+**Slot's first Anfield game to be Sevilla friendly**\
+`Arne Slot will take charge of Liverpool at Anfield for the first time when his new side host Sevilla in an August pre-season friendly.`\
+https://nytimes.com/athletic/5580622/2024/06/21/arne-slot-liverpool-anfield-sevilla/
+
 **‘Tiny Crime Fighters With Wings’: Bees Go to Work on a Virginia ‘Body Farm’**\
 `By studying bees and their honey near decomposing human tissue, researchers at George Mason University hope to give crime scene investigators a new tool for finding the hidden dead.`\
 https://nytimes.com/2024/06/21/science/body-donation-farm-virginia-death-scent.html

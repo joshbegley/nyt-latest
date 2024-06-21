@@ -1,3 +1,7 @@
+**Slot's first Anfield game to be Sevilla friendly**\
+`Arne Slot will take charge of Liverpool at Anfield for the first time when his new side host Sevilla in an August pre-season friendly.`\
+https://nytimes.com/athletic/5580622/2024/06/21/arne-slot-liverpool-anfield-sevilla/
+
 **‘Tiny Crime Fighters With Wings’: Bees Go to Work on a Virginia ‘Body Farm’**\
 `By studying bees and their honey near decomposing human tissue, researchers at George Mason University hope to give crime scene investigators a new tool for finding the hidden dead.`\
 https://nytimes.com/2024/06/21/science/body-donation-farm-virginia-death-scent.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5579665/2024/06/21/michigan-football-recruiting-bra
 **A Stuffed Pepper Recipe That Goes Hard on Spiced Chickpeas**\
 `Blanketed with cheese, this filling recipe is perfect for summer and surprisingly light.`\
 https://nytimes.com/2024/06/21/dining/stuffed-pepper-recipe-chickpeas.html
-
-**Swiss Court Set to Rule in Trafficking Case Involving U.K.’s Richest Family**\
-`The Hinduja family has denied allegations against four members that they trafficked domestic workers from India and exploited them at their villa in Geneva.`\
-https://nytimes.com/2024/06/21/world/europe/hinduja-family-human-trafficking-trial.html
 
