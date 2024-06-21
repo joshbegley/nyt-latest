@@ -1,3 +1,19 @@
+**Once banned from F1 for race fixing, Flavio Briatore is welcomed back**\
+`Once issued a lifetime ban for his role in 2008's 'Crashgate,' Briatore is now an advisor to the Alpine team — and nobody seems to mind.`\
+https://nytimes.com/athletic/5581546/2024/06/21/f1-flavio-briatore-alpine-crashgate/
+
+**$3.34 Trillion**\
+`The market value on Tuesday of Nvidia, whose chips have made it possible to create A.I. systems.`\
+https://nytimes.com/2024/06/21/business/3-34-trillion-nvidia-market-value.html
+
+**The Everything Guide to Partying (Without Regrets)**\
+`Forty-three highly sociable people, from Ivy Getty to Rufus Wainwright, offer tips on how to be a stellar guest and a gracious host. Read this before you say yes to the next invitation.`\
+https://nytimes.com/interactive/2024/06/21/style/how-to-party-host-guest.html
+
+**Ángeles Flórez Peón, Spanish Civil War’s Last Militiawoman, Dies at 105**\
+`She was revered as an essential guardian of the country’s memory during the Franco years.`\
+https://nytimes.com/2024/06/21/world/europe/angeles-florez-peon-dead.html
+
 **On the House Floor, Republicans Gag Mentions of Trump’s Conviction**\
 `During official proceedings of the G.O.P.-controlled chamber, speaking about former President Donald J. Trump’s felony conviction has been forbidden, while disparaging President Biden and Democrats is routine.`\
 https://nytimes.com/2024/06/21/us/politics/house-republicans-trump.html
