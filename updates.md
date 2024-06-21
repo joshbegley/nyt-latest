@@ -1,3 +1,7 @@
+**‘Doctor Who’ Finale Recap: Answers Through the Tears**\
+`Ncuti’s Gatwa’s first season as the Doctor closes with a typically ambitious episode.`\
+https://nytimes.com/2024/06/21/arts/television/doctor-who-finale-recap.html
+
 **Florida to Pay Millions to Victims of Abuses at Notorious Reform School**\
 `A $20 million program will give financial restitution to students who endured abuse and neglect at the hands of the state.`\
 https://nytimes.com/2024/06/21/us/florida-dozier-school-abuse-restitution.html

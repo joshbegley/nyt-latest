@@ -1,3 +1,7 @@
+**‘Doctor Who’ Finale Recap: Answers Through the Tears**\
+`Ncuti’s Gatwa’s first season as the Doctor closes with a typically ambitious episode.`\
+https://nytimes.com/2024/06/21/arts/television/doctor-who-finale-recap.html
+
 **Florida to Pay Millions to Victims of Abuses at Notorious Reform School**\
 `A $20 million program will give financial restitution to students who endured abuse and neglect at the hands of the state.`\
 https://nytimes.com/2024/06/21/us/florida-dozier-school-abuse-restitution.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/21/health/lenacapavir-hiv-prevention-africa.html
 **The Other Showdown to Watch Next Week**\
 `A New York Democratic primary sheds light on the split over Gaza and the party’s leftward shift.`\
 https://nytimes.com/2024/06/21/us/politics/jamaal-bowman-ny-primary-election.html
-
-**Taylor Wily, ‘Hawaii Five-0’ and ‘Forgetting Sarah Marshall’ Actor, Dies at 56**\
-`He spent his early career as a professional sumo wrestler.`\
-https://nytimes.com/2024/06/21/arts/television/taylor-wily-dead-hawaii-five-0.html
 
