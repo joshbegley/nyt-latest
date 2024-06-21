@@ -1,3 +1,15 @@
+**DeSantis Vetoes All Arts Grants in Florida**\
+`Gov. Ron DeSantis gave no explanation for zeroing out the $32 million in grants that were approved by state lawmakers.`\
+https://nytimes.com/2024/06/21/arts/ron-desantis-veto-arts-funding-florida.html
+
+**Transcript: Ezra Klein Interviews Matthew Yglesias**\
+`The June 21, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/06/21/podcasts/transcript-ezra-klein-interviews-matthew-yglesias.html
+
+**Arda Guler a doubt for Turkey's clash vs Portugal**\
+`Arda Guler is a doubt for Turkey&#8217;s European Championship clash against Portugal on Saturday.`\
+https://nytimes.com/athletic/5582149/2024/06/21/arda-guler-turkey-injury-euro-2024/
+
 **Nevada Judge Throws Out State’s Case Against Fake Electors**\
 `The judge said the state chose the wrong venue to file a case against the Republicans who tried to declare Donald J. Trump the winner of the 2020 election.`\
 https://nytimes.com/2024/06/21/us/nevada-trump-elections.html
