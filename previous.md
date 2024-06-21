@@ -1,3 +1,11 @@
+**Word of the Day: incessant**\
+`This word has appeared in 89 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/06/21/learning/word-of-the-day-incessant.html
+
+**How to Transport a Giant Valuable Artwork in Australia**\
+`It takes a big truck, a convey of safety vehicles, good planning and a cool nerve.`\
+https://nytimes.com/2024/06/21/world/australia/how-to-transport-a-giant-valuable-artwork-in-australia.html
+
 **Spalletti's Italy must stay true to their style - even if it abandoned them against Spain**\
 `'The only thing that can save us is our brand of football' said Spalletti. Italy must remember that in their final group game`\
 https://nytimes.com/athletic/5579480/2024/06/21/italy-spain-spalletti-style-result/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5577865/2024/06/21/gabriel-arsenal-perormance-manag
 **Matija Sarkic remembered: 'He was half of me - it's devastating'**\
 `Family and friends share their memories of the Montenegro goalkeeper who died suddenly, aged 26, last week`\
 https://nytimes.com/athletic/5577909/2024/06/21/matija-sarkic-remembered/
-
-**June 30 - the PSR deadline making rival Premier League clubs friends with benefits**\
-`Some clubs may have found a quick fix for their PSR problems - here's how`\
-https://nytimes.com/athletic/5578737/2024/06/21/transfers-between-premier-league-clubs/
-
-**Fantasy baseball waiver wire: Michael Toglia, Michael Wacha and more adds; plus, two-start pitchers and stashes**\
-`John Laghezza runs the numbers to reveal the best available fantasy baseball waiver wire options this week, like Colorado's Michael Toglia.`\
-https://nytimes.com/athletic/5576950/2024/06/21/fantasy-baseball-waiver-wire-michael-toglia-michael-wacha-adds-two-start-pitchers-stashes/
 
