@@ -1,3 +1,7 @@
+**The Windup: Last night was baseball magic**\
+`Baseball at Rickwood Field was pure magic. Plus: Luis Robert Jr.’s trade market and a peek at this year’s draft.`\
+https://nytimes.com/athletic/5581382/2024/06/21/rickwood-field-game-willie-mays-the-windup/
+
 **Bragg Asks Judge to Extend Trump’s Gag Order, Citing Deluge of Threats**\
 `Donald J. Trump claims the order has unfairly restricted his free speech rights ahead of his sentencing on 34 felony counts. He has nonetheless attacked the judge, prosecutor and justice system.`\
 https://nytimes.com/2024/06/21/nyregion/trump-gag-order-bragg.html

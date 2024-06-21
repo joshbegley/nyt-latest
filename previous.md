@@ -1,3 +1,7 @@
+**The Windup: Last night was baseball magic**\
+`Baseball at Rickwood Field was pure magic. Plus: Luis Robert Jr.’s trade market and a peek at this year’s draft.`\
+https://nytimes.com/athletic/5581382/2024/06/21/rickwood-field-game-willie-mays-the-windup/
+
 **Bragg Asks Judge to Extend Trump’s Gag Order, Citing Deluge of Threats**\
 `Donald J. Trump claims the order has unfairly restricted his free speech rights ahead of his sentencing on 34 felony counts. He has nonetheless attacked the judge, prosecutor and justice system.`\
 https://nytimes.com/2024/06/21/nyregion/trump-gag-order-bragg.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/21/business/mcdonalds-ai-drive-thru-white-castle.htm
 **In Russia, Fear of the Past Is Ever-Present**\
 `The trauma Russians endured during the transition from communism to capitalism in the 1990s helps explain why Vladimir Putin remains in power.`\
 https://nytimes.com/2024/06/21/special-series/russia-vladimir-putin-power-fear.html
-
-**A Ride in a Chemical-Sniffing Van Shows How Heat Amps Up Pollution**\
-`In heat waves, chemicals like formaldehyde and ozone can form more readily in the air, according to researchers driving mobile labs in New York City this week.`\
-https://nytimes.com/2024/06/21/climate/heat-wave-air-pollution-chemicals.html
 

@@ -1,3 +1,7 @@
+**Why Was Maine Sweltering?**\
+`A shifting weather front and climate change temporarily turned the temperate state subtropical.`\
+https://nytimes.com/2024/06/21/nyregion/why-was-maine-sweltering.html
+
 **The Windup: Last night was baseball magic**\
 `Baseball at Rickwood Field was pure magic. Plus: Luis Robert Jr.’s trade market and a peek at this year’s draft.`\
 https://nytimes.com/athletic/5581382/2024/06/21/rickwood-field-game-willie-mays-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5581244/2024/06/21/mercedes-benz-arena-turf-copa-am
 **260 McNuggets? McDonald’s Ends A.I. Drive-Through Tests Amid Errors**\
 `Ordering mistakes frustrated customers during nearly three years of tests. But competitors like White Castle and Wendy’s say their A.I. ordering systems have been highly accurate.`\
 https://nytimes.com/2024/06/21/business/mcdonalds-ai-drive-thru-white-castle.html
-
-**In Russia, Fear of the Past Is Ever-Present**\
-`The trauma Russians endured during the transition from communism to capitalism in the 1990s helps explain why Vladimir Putin remains in power.`\
-https://nytimes.com/2024/06/21/special-series/russia-vladimir-putin-power-fear.html
 
