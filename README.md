@@ -1,3 +1,19 @@
+**Troy Parrott and Tottenham Hotspur: it's decision time**\
+`Parrott played in four first team matches for Spurs in 2019-20, but not a single minute since - this summer feels like a pivotal moment `\
+https://nytimes.com/athletic/5567555/2024/06/21/troy-parrott-tottenham-future/
+
+**Emotion, PSR value, tactical importance - who should Chelsea sell before June 30 deadline?**\
+`If player sales will be the primary driver of Chelsea’s ongoing PSR compliance, it is likely they have more work to do ahead of June 30`\
+https://nytimes.com/athletic/5578154/2024/06/21/chelsea-transfer-psr-sell-sales/
+
+**Leeds' pre-season plans: A more settled squad, a trip abroad - and no Olympic call-ups**\
+`Leeds United had a tough summer after relegation — they have reason to believe it will be easier this time around`\
+https://nytimes.com/athletic/5569489/2024/06/21/leeds-united-pre-season/
+
+**Inside Gabriel's personalised performance-management setup**\
+`Gabriel has built a performance-development team around him, in addition to the support he receives from Arsenal's staff`\
+https://nytimes.com/athletic/5577865/2024/06/21/gabriel-arsenal-perormance-management/
+
 **Matija Sarkic remembered: 'He was half of me - it's devastating'**\
 `Family and friends share their memories of the Montenegro goalkeeper who died suddenly, aged 26, last week`\
 https://nytimes.com/athletic/5577909/2024/06/21/matija-sarkic-remembered/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/06/21/us/politics/bannon-appeal-prison.html
 **Belgium imploded at the World Cup but expectations are different at Euro 2024**\
 `The world's third-ranked team lost to Slovakia in their opening game but there is not the sense of panic there might have been previously`\
 https://nytimes.com/athletic/5575614/2024/06/21/belgium-tedesco-euros-world-cup/
-
-**Puka Nacua, Jahmyr Gibbs and more players with early ADPs that are out of whack**\
-`Michael Salfino looks at several players whose current ADP in early 2024 fantasy football drafts are, in his opinion, too high.`\
-https://nytimes.com/athletic/5578703/2024/06/21/early-adp-high-low-fantasy-football-2024/
-
-**Dobbin and Iroegbunam are set to switch clubs - why do Villa and Everton want to sell to each other?**\
-`Why two teams exchanging players might be the PSR loophole several clubs turn to this summer`\
-https://nytimes.com/athletic/5578143/2024/06/21/aston-villa-everton-psr-transfers-dobbin-iroegbunam/
-
-**Fabian Hurzeler's former captain: 'He is probably the most fiery coach I have worked with'**\
-`Jackson Irvine, St Pauli skipper under Hurzeler last season, on what Brighton players and fans can expect from their 31-year-old new coach`\
-https://nytimes.com/athletic/5572090/2024/06/21/jackson-irvineo-fabian-hurzeler-st-pauli-brighton/
-
-**Analysing France's options to replace Kylian Mbappe against the Netherlands**\
-`Didier Deschamps has plenty of alternatives if he does not risk his captain against the Dutch, though none is quite as appealing as Mbappe`\
-https://nytimes.com/athletic/5573509/2024/06/21/france-mbappe-barcola-giroud-dembele-thuram-coman/
 
