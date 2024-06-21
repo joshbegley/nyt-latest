@@ -1,3 +1,7 @@
+**Are the Orioles better than the Yankees? What we learned this week**\
+`“It’s going to be back and forth all the way until the end of September,” Aaron Judge said on the rivalry with Baltimore. “That’s for sure."`\
+https://nytimes.com/athletic/5579900/2024/06/20/are-orioles-better-than-yankees-analysis/
+
 **Caruso-Giddey trade grades: Thunder add defense, shooting; Bulls get younger**\
 `Less than a week before the NBA Draft, we get a one-for-one swap of perimeter players. Is this a good move for both sides?`\
 https://nytimes.com/athletic/5579841/2024/06/20/caruso-giddey-trade-grades-thunder-bulls/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5579695/2024/06/20/ryan-garcia-suspension-fine-no-c
 **Briere: Flyers might 'lean into a center' at NHL Draft, plus the latest on Michkov**\
 `Will the Flyers use any draft picks as currency in possible trades?`\
 https://nytimes.com/athletic/5579335/2024/06/20/flyers-nhl-draft-briere-michkov/
-
-**Yamal and Williams represent a new era for Spain - and made Italy look old-fashioned**\
-`Spain were on a different planet to Italy in their Euro 2024 match. Their electric wingers were the stars in a post-tiki-taka world`\
-https://nytimes.com/athletic/5579597/2024/06/20/williams-yamal-spain-italy-euro-2024/
 
