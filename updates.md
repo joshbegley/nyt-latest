@@ -1,3 +1,11 @@
+**Iran’s 2024 Presidential Election: What to Know**\
+`Iran will hold a special election later this month to replace former President Ebrahim Raisi, who died in a helicopter crash in May.`\
+https://nytimes.com/2024/06/21/world/middleeast/iran-presidential-election-what-to-know.html
+
+**New Drug Provides Total Protection From H.I.V. in Trial of Young African Women**\
+`An injection given just twice a year could herald a breakthrough in protecting the population that has the highest infection rates.`\
+https://nytimes.com/2024/06/21/health/lenacapavir-hiv-prevention-africa.html
+
 **Simons disallowed goal vs France 'should have stood' - Koeman**\
 `Netherlands head coach Ronald Koeman believes Xavi Simons&#8217; disallowed goal against France &#8220;should have stood&#8221;, as his side drew 0-0 in Friday&#8217;s Group D clash at the European Championship.`\
 https://nytimes.com/athletic/5582219/2024/06/21/koeman-simons-netherlands-france-euro-2024/

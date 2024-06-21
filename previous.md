@@ -1,3 +1,11 @@
+**Iran’s 2024 Presidential Election: What to Know**\
+`Iran will hold a special election later this month to replace former President Ebrahim Raisi, who died in a helicopter crash in May.`\
+https://nytimes.com/2024/06/21/world/middleeast/iran-presidential-election-what-to-know.html
+
+**New Drug Provides Total Protection From H.I.V. in Trial of Young African Women**\
+`An injection given just twice a year could herald a breakthrough in protecting the population that has the highest infection rates.`\
+https://nytimes.com/2024/06/21/health/lenacapavir-hiv-prevention-africa.html
+
 **The Other Showdown to Watch Next Week**\
 `A New York Democratic primary sheds light on the split over Gaza and the party’s leftward shift.`\
 https://nytimes.com/2024/06/21/us/politics/jamaal-bowman-ny-primary-election.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5581750/2024/06/21/declan-rice-england-euros/
 **Trump’s PAC, Which Pays His Legal Bills, Is Nearly Out of Cash**\
 `A fund-raising pact with the Republican Party is expected to replenish the money Donald J. Trump paid his lawyers as he faced three indictments and finished a criminal trial in New York.`\
 https://nytimes.com/2024/06/21/us/politics/trump-pac-funds.html
-
-**In Montana, Abortion Rights Groups Submit Signatures for Ballot Measure in November**\
-`The measure would affirm the right to abortion in the State Constitution. Democrats hope that it will help Senator Jon Tester in his bid for re-election.`\
-https://nytimes.com/2024/06/21/us/montana-abortion-rights-ballot.html
-
-**Euro 2024 day eight: Mbappe watches on as France spared by VAR rules row**\
-`What happened on day eight of the European Championship in Germany`\
-https://nytimes.com/athletic/5581449/2024/06/21/euro-2024-day-eight-mbappe/
 
