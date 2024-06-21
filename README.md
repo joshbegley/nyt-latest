@@ -2,10 +2,6 @@
 `After a slow start, Argentina edged out a competitive Canada team `\
 https://nytimes.com/athletic/5579299/2024/06/20/argentina-canada-copa-america/
 
-**Messi breaks Copa America appearance record**\
-`Lionel Messi has broken the all-time record for most appearances at Copa America.`\
-https://nytimes.com/athletic/5579730/2024/06/20/lionel-messi-copa-america-appearances-record/
-
 **Reggie Jackson shares stark stories of racism**\
 `In his second professional season, Jackson was part of the first integrated professional team to play at Rickwood Field.`\
 https://nytimes.com/athletic/5579936/2024/06/20/reggie-jackson-comments-tv/
@@ -13,6 +9,10 @@ https://nytimes.com/athletic/5579936/2024/06/20/reggie-jackson-comments-tv/
 **Bloomberg Backs Biden With $20 Million Donation**\
 `The former mayor of New York City, a Democratic megadonor, became a significant backer of Mr. Biden’s in 2020 after spending $1 billion on his own failed bid.`\
 https://nytimes.com/2024/06/20/us/politics/michael-bloomberg-biden-donation.html
+
+**Messi breaks Copa America appearance record**\
+`Lionel Messi has broken the all-time record for most appearances at Copa America.`\
+https://nytimes.com/athletic/5579730/2024/06/20/lionel-messi-copa-america-appearances-record/
 
 **Suits From Around the Globe**\
 `Were you on Billy Bratton’s wavelength?`\
