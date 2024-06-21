@@ -1,3 +1,11 @@
+**The top 10 players NHL teams should target with an offer sheet this offseason**\
+`There aren't necessarily the 10 best RFAs, but the most realistic candidates who can be had for reasonable compensation.`\
+https://nytimes.com/athletic/5580250/2024/06/21/nhl-top-10-offer-sheet-candidates/
+
+**Who is Anthony Taylor? The referee coming into the Euros after a tough season**\
+`Taylor will be hoping controversy does not follow him from last season's Premier League into the Euros`\
+https://nytimes.com/athletic/5572103/2024/06/21/anthony-taylor-who-euro-2024/
+
 **Lowetide: 6 keys for Oilers to complete historic comeback and win the Stanley Cup**\
 `Here's what the Oilers have to do to beat the Florida Panthers two more times in the Cup Final.`\
 https://nytimes.com/athletic/5578373/2024/06/21/oilers-keys-game-6-stanley-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5580630/2024/06/21/flavio-briatore-f1-alpine/
 **Wolves confirm new deal for Chiwome**\
 `Wolves have confirmed that teenage striker Leon Chiwome has signed a new four-year contract.`\
 https://nytimes.com/athletic/5580688/2024/06/21/wolves-leon-chiwome-contract/
-
-**The Pulse: The Lakers are really doing this**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5580299/2024/06/21/lakers-jj-redick-the-pulse/
-
-**The Israeli leader’s quarrels with the White House, his military and his coalition partners have escalated at a pivotal time in the war.**\
-`By Shashank Bengali`\
-https://nytimes.com/live/2024/06/21/world/israel-gaza-war-hamas/the-israeli-leaders-quarrels-with-the-white-house-his-military-and-his-coalition-partners-have-escalated-at-a-pivotal-time-in-th
 
