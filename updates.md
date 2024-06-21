@@ -1,3 +1,7 @@
+**Giants celebrate Willie Mays, pay tribute to Negro Leagues at Rickwood Field**\
+`Willie Mays couldn't return to Rickwood Field, where his professional career began, in person, but he was there in spirit.`\
+https://nytimes.com/athletic/5580519/2024/06/21/giants-willie-mays-rickwood-field/
+
 **Friday's MLB odds and predictions: Best and worst starting pitchers, home run streaks and more**\
 `Check in on our Friday MLB projections with odds for every game, picks for best value bets, pitcher props and more.`\
 https://nytimes.com/athletic/5581329/2024/06/21/mlb-odds-predictions-best-bets-june-21/
