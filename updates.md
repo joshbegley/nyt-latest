@@ -1,3 +1,11 @@
+**NBA Player Tiers: Kevin Durant, Steph Curry hang on in Tier 1, but how much longer?**\
+`Some of the game's greatest stars may be leaving Tier 1 soon, but one player near the top has one of the greatest four-year runs in history.`\
+https://nytimes.com/athletic/5578457/2024/06/21/nba-player-tiers-kevin-durant-steph-curry-hang-on-in-tier-1-but-how-much-longer/
+
+**Boston loves Al Horford and he wants you to know the feeling is mutual**\
+`"I’m just very proud to be able to bring a championship to Boston," said Horford, a Celtics fan favorite. `\
+https://nytimes.com/athletic/5579906/2024/06/21/al-horford-boston-celtics-parade/
+
 **Wales part company with manager Page**\
 `Wales have parted company with manager Rob Page.`\
 https://nytimes.com/athletic/5580529/2024/06/21/rob-page-wales-manager-sacked/
