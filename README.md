@@ -1,3 +1,7 @@
+**The Athletic FC: England's Kane dilemma; Messi's magic passes set up Argentina win**\
+`Today in The Athletic FC: Kane scored but looked lethargic - what now for England? Plus: Messi inspires Argentina to opening Copa win`\
+https://nytimes.com/athletic/5580663/2024/06/21/kane-england-dilemma-euro-2024/
+
 **The old college try: An NBA mock draft featuring only NCAA prospects**\
 `Kentucky's Reed Sheppard and UConn's Stephon Castle lead our picks highlighting the top players from NCAA teams.`\
 https://nytimes.com/athletic/5539645/2024/06/21/nba-draft-college-basketball-reed-sheppard-stephon-castle/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5580576/2024/06/21/the-athletics-friday-football-qu
 **Baggio’s villa broken into by armed robbers**\
 `Italian law enforcers are investigating after Roberto Baggio’s villa was broken into by armed robbers on the night of Italy’s Euro 2024 group stage game against Spain.`\
 https://nytimes.com/athletic/5580680/2024/06/21/roberto-baggio-italy-robbery/
-
-**Flavio Briatore makes official F1 return as Alpine executive advisor**\
-`Flavio Briatore has been named as Alpine’s new executive advisor in Formula One, 16 years after his involvement in the Singapore ‘Crashgate’ race-fixing scandal.`\
-https://nytimes.com/athletic/5580630/2024/06/21/flavio-briatore-f1-alpine/
 
