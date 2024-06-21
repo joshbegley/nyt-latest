@@ -1,3 +1,11 @@
+**Shota Imanaga's disaster start brings questions to an already struggling Cubs team**\
+`Imanaga allowed 10 runs on 11 hits over three-plus innings as the Mets attacked his fastball, which had a lower average velocity than usual.`\
+https://nytimes.com/athletic/5582384/2024/06/21/shota-imanaga-disaster-start-cubs-struggling/
+
+**Man Who Attacked Nancy Pelosi’s Husband Is Convicted in California Trial**\
+`In 2022, David DePape broke into Ms. Pelosi’s San Francisco home and eventually beat her husband with a hammer.`\
+https://nytimes.com/2024/06/21/us/pelosi-attack-depape-verdict.html
+
 **Travis Scott Wasted No Time Putting His Mug Shot on a T-Shirt**\
 `A commemoration of the rapper’s brief arrest in Miami Beach, the shirt reinforced the idea that for some celebrities, a brush with the law can be good for business.`\
 https://nytimes.com/2024/06/21/style/travis-scott-mugshot-shirt.html

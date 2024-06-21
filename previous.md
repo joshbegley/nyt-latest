@@ -1,3 +1,11 @@
+**Shota Imanaga's disaster start brings questions to an already struggling Cubs team**\
+`Imanaga allowed 10 runs on 11 hits over three-plus innings as the Mets attacked his fastball, which had a lower average velocity than usual.`\
+https://nytimes.com/athletic/5582384/2024/06/21/shota-imanaga-disaster-start-cubs-struggling/
+
+**Man Who Attacked Nancy Pelosi’s Husband Is Convicted in California Trial**\
+`In 2022, David DePape broke into Ms. Pelosi’s San Francisco home and eventually beat her husband with a hammer.`\
+https://nytimes.com/2024/06/21/us/pelosi-attack-depape-verdict.html
+
 **Travis Scott Wasted No Time Putting His Mug Shot on a T-Shirt**\
 `A commemoration of the rapper’s brief arrest in Miami Beach, the shirt reinforced the idea that for some celebrities, a brush with the law can be good for business.`\
 https://nytimes.com/2024/06/21/style/travis-scott-mugshot-shirt.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5582260/2024/06/21/copa-america-field-conditions-we
 **U.N. Chief Warns Israel and Hezbollah of the Risk of a Wider War**\
 `“The people of the region and the people of the world cannot afford Lebanon to become another Gaza,” he said.`\
 https://nytimes.com/2024/06/21/world/middleeast/un-chief-guterres-israel-hezbollah.html
-
-**Simons disallowed goal vs France 'should have stood' - Koeman**\
-`Netherlands head coach Ronald Koeman believes Xavi Simons&#8217; disallowed goal against France &#8220;should have stood&#8221;, as his side drew 0-0 in Friday&#8217;s Group D clash at the European Championship.`\
-https://nytimes.com/athletic/5582219/2024/06/21/koeman-simons-netherlands-france-euro-2024/
-
-**Putin Shows He Can Antagonize the U.S. Far Afield From Ukraine**\
-`His support for North Korea’s military ambitions showed he can inflict pain on the U.S. and its NATO allies in ways beyond aggression in Ukraine.`\
-https://nytimes.com/2024/06/21/world/europe/putin-russia-north-korea.html
 
