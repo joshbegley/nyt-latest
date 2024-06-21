@@ -1,3 +1,7 @@
+**Jimmy Kimmel Counts Down the Days to the First Debate**\
+`Kimmel doubted that Donald Trump would stick to his game plan of not interrupting President Biden, saying, “His discipline is unmatched!”`\
+https://nytimes.com/2024/06/21/arts/television/jimmy-kimmel-presidential-debate.html
+
 **Friedkin has reached an agreement to buy Everton from Moshiri - what happens next?**\
 `The long and perilous wait for Everton to have new owners is almost over. The Athletic explores what Friedkin's exclusivity agreement means`\
 https://nytimes.com/athletic/5570035/2024/06/21/everton-takeover-dan-friedkin-moshiri/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5567555/2024/06/21/troy-parrott-tottenham-future/
 **Emotion, PSR value, tactical importance - who should Chelsea sell before June 30 deadline?**\
 `If player sales will be the primary driver of Chelsea’s ongoing PSR compliance, it is likely they have more work to do ahead of June 30`\
 https://nytimes.com/athletic/5578154/2024/06/21/chelsea-transfer-psr-sell-sales/
-
-**Leeds' pre-season plans: A more settled squad, a trip abroad - and no Olympic call-ups**\
-`Leeds United had a tough summer after relegation — they have reason to believe it will be easier this time around`\
-https://nytimes.com/athletic/5569489/2024/06/21/leeds-united-pre-season/
 
