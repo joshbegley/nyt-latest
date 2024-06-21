@@ -1,3 +1,7 @@
+**Which NHL teams need upgrades at center? Ranking all 32 teams by current quality**\
+`Here’s how we’d rank each team’s center depth, from best to worst, just before the offseason kicks off.`\
+https://nytimes.com/athletic/5579764/2024/06/21/nhl-centers-free-agency-trade/
+
 **The Vikings’ most surprising roster hole, and what they might do to fix it**\
 `Brandon Powell could be Minnesota's best in-house option at the No. 3 WR spot, but the Vikings might be wise to make a move before Week 1.`\
 https://nytimes.com/athletic/5578956/2024/06/21/vikings-roster-wr-brandon-powell/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5575595/2024/06/21/steph-curry-pickup-sacramento/
 **Messi begins the Copa America with only way he knows - a captain's performance**\
 `Canada said they would target Messi and they didn't disappoint. But the Argentina captain, as he always does, thrived on the attention`\
 https://nytimes.com/athletic/5580388/2024/06/21/lionel-messi-argentina-captain-copa-america/
-
-**Leeds head of medicine Rob Price leaves club**\
-`Leeds United have announced the departure of their head of medicine and performance Rob Price.`\
-https://nytimes.com/athletic/5580644/2024/06/21/leeds-news-rob-price/
 

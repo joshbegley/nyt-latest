@@ -1,3 +1,7 @@
+**Which NHL teams need upgrades at center? Ranking all 32 teams by current quality**\
+`Here’s how we’d rank each team’s center depth, from best to worst, just before the offseason kicks off.`\
+https://nytimes.com/athletic/5579764/2024/06/21/nhl-centers-free-agency-trade/
+
 **The Vikings’ most surprising roster hole, and what they might do to fix it**\
 `Brandon Powell could be Minnesota's best in-house option at the No. 3 WR spot, but the Vikings might be wise to make a move before Week 1.`\
 https://nytimes.com/athletic/5578956/2024/06/21/vikings-roster-wr-brandon-powell/
