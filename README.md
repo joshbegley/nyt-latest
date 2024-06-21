@@ -1,3 +1,11 @@
+**Pedro Rocha: Sports court calls for six-year ban for Spanish FA president**\
+`Spain&#8217;s superior sports court (TAD) has called for RFEF (Spanish FA) president Pedro Rocha to be banned for six years, as the legacy of his now disgraced predecessor Luis Rubiales continues to haunt the federation.`\
+https://nytimes.com/athletic/5581600/2024/06/21/pedro-rocha-ban-rfef-spain/
+
+**Trump Media Stock Down 50% Since Former President’s Conviction**\
+`The parent of Truth Social has come under pressure this month, most recently after early investors were given approval to sell a fresh chunk of shares.`\
+https://nytimes.com/2024/06/21/business/trump-media-stock-decline.html
+
 **Much of Rafah lies in ruins as Israeli forces push deeper into the city.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/06/21/world/israel-gaza-war-hamas/much-of-rafah-lies-in-ruins-as-israeli-forces-push-deeper-into-the-city
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5580361/2024/06/21/spain-italy-euro-2024-analysis/
 **The Folger Library Wants to Reintroduce You to Shakespeare**\
 `After an $80 million expansion, the Folger Shakespeare Library is reopening with a more welcoming approach — and all 82 of its First Folios on view.`\
 https://nytimes.com/2024/06/21/arts/21shakespeare-folger-renovation.html
-
-**Looking Ahead to the Biden-Trump Debate**\
-`Readers make their wishes known about the debate. Also: The Ten Commandments in public classrooms; asylum seekers; Black women’s health; Justice Alito’s wife.`\
-https://nytimes.com/2024/06/21/opinion/biden-trump-debate.html
-
-**Israeli Official Describes Secret Government Bid to Cement Control of West Bank**\
-`Israeli judges have long ruled that Israel’s control of the territory is a temporary military occupation and complies with international law. A powerful minister’s recent speech, caught on tape, suggested the government is trying to change that.`\
-https://nytimes.com/2024/06/21/world/middleeast/israel-west-bank-netanyahu-bezalel-smotrich.html
 
