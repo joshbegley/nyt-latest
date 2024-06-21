@@ -1,3 +1,7 @@
+**Judge in Trump Documents Case Hears Arguments Over Special Counsel**\
+`Judge Aileen Cannon held a hearing to consider a question that has been quickly dismissed in other cases: whether there is a constitutional basis for the appointment of a special counsel.`\
+https://nytimes.com/2024/06/21/us/politics/trump-documents-special-counsel.html
+
 **Iran’s 2024 Presidential Election: What to Know**\
 `Iran will hold a special election later this month to replace former President Ebrahim Raisi, who died in a helicopter crash in May.`\
 https://nytimes.com/2024/06/21/world/middleeast/iran-presidential-election-what-to-know.html
