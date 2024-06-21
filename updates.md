@@ -1,3 +1,11 @@
+**On the House Floor, Republicans Gag Mentions of Trump’s Conviction**\
+`During official proceedings of the G.O.P.-controlled chamber, speaking about former President Donald J. Trump’s felony conviction has been forbidden, while disparaging President Biden and Democrats is routine.`\
+https://nytimes.com/2024/06/21/us/politics/house-republicans-trump.html
+
+**Wild trade Adam Beckman to Devils for Minnesota native Graeme Clarke**\
+`Clarke, a 2019 third-round pick, had 25 goals and 49 points for AHL Utica last season and played three games for New Jersey.`\
+https://nytimes.com/athletic/5581679/2024/06/21/wild-devils-minor-league-trade/
+
 **Phelps rejoining NBC's Olympic broadcast team**\
 `Phelps was a part of NBC's swimming broadcast team during the Tokyo 2020 Games.`\
 https://nytimes.com/athletic/5581543/2024/06/21/michael-phelps-broadcast-paris-2024/

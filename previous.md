@@ -1,3 +1,11 @@
+**On the House Floor, Republicans Gag Mentions of Trump’s Conviction**\
+`During official proceedings of the G.O.P.-controlled chamber, speaking about former President Donald J. Trump’s felony conviction has been forbidden, while disparaging President Biden and Democrats is routine.`\
+https://nytimes.com/2024/06/21/us/politics/house-republicans-trump.html
+
+**Wild trade Adam Beckman to Devils for Minnesota native Graeme Clarke**\
+`Clarke, a 2019 third-round pick, had 25 goals and 49 points for AHL Utica last season and played three games for New Jersey.`\
+https://nytimes.com/athletic/5581679/2024/06/21/wild-devils-minor-league-trade/
+
 **Phelps rejoining NBC's Olympic broadcast team**\
 `Phelps was a part of NBC's swimming broadcast team during the Tokyo 2020 Games.`\
 https://nytimes.com/athletic/5581543/2024/06/21/michael-phelps-broadcast-paris-2024/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/21/business/trump-media-stock-decline.html
 **The battle for Rafah, in its seventh week as Israeli forces push westward, has left a trail of destruction.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/06/21/world/israel-gaza-war-hamas/much-of-rafah-lies-in-ruins-as-israeli-forces-push-deeper-into-the-city
-
-**It’s the Summer of Powell and Pressburger in New York**\
-`The British filmmaking team were maestros of Technicolor and so much more. If you don’t know their work, your favorite directors do.`\
-https://nytimes.com/2024/06/21/movies/powell-pressburger-moma.html
-
-**Cyberattacks Disrupt Car Sales by Dealers in U.S. and Canada**\
-`The attacks on a software provider, CDK Global, affect systems that store customer records and automate paperwork and data for sales and service.`\
-https://nytimes.com/2024/06/21/business/cyberattack-car-dealers-cdk.html
 
