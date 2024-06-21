@@ -1,3 +1,15 @@
+**Flavio Briatore makes official F1 return as Alpine executive advisor**\
+`Flavio Briatore has been named as Alpine’s new executive advisor in Formula One, 16 years after his involvement in the Singapore ‘Crashgate’ race-fixing scandal.`\
+https://nytimes.com/athletic/5580630/2024/06/21/flavio-briatore-f1-alpine/
+
+**Wolves confirm new deal for Chiwome**\
+`Wolves have confirmed that teenage striker Leon Chiwome has signed a new four-year contract.`\
+https://nytimes.com/athletic/5580688/2024/06/21/wolves-leon-chiwome-contract/
+
+**The Pulse: The Lakers are really doing this**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5580299/2024/06/21/lakers-jj-redick-the-pulse/
+
 **The Israeli leader’s quarrels with the White House, his military and his coalition partners have escalated at a pivotal time in the war.**\
 `By Shashank Bengali`\
 https://nytimes.com/live/2024/06/21/world/israel-gaza-war-hamas/the-israeli-leaders-quarrels-with-the-white-house-his-military-and-his-coalition-partners-have-escalated-at-a-pivotal-time-in-th
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5579747/2024/06/21/oilers-stanley-cup-final-game-6-
 **Copa America's five weirdest stories: Blackmail, three missed penalties and a 'chilled ball'**\
 `Wild times at the Copa America - a quick guide to the competition's most extraordinary tales`\
 https://nytimes.com/athletic/5570255/2024/06/21/copa-americas-five-weirdest-stories/
-
-**Ravens news, notes and opinions: Could Brandon Stephens be next to get an extension?**\
-`Plus, thoughts on the team's alternate helmet, the AFC North in-season edition of "Hard Knocks" and Derrick Henry's role in Baltimore. `\
-https://nytimes.com/athletic/5576741/2024/06/21/baltimore-ravens-contract-extension-candidates/
-
-**Sidney Crosby has long known Connor McDavid would take hockey's throne**\
-`Crosby has been quietly watching McDavid for a long time, identifying McDavid as his successor.`\
-https://nytimes.com/athletic/5579140/2024/06/21/connor-mcdavid-stanley-cup-sidney-crosby/
-
-**America’s Top Doctor on Why He Wants Warning Labels on Social Media**\
-`The surgeon general says parents should be aware that using the platforms might harm adolescents’ mental health.`\
-https://nytimes.com/2024/06/21/podcasts/the-daily/americas-top-doctor-on-why-he-wants-warning-labels-on-social-media.html
 
