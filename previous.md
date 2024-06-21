@@ -1,3 +1,19 @@
+**For the Price of a Police Helicopter, New York Could Save the Arts**\
+`The city’s budget is being finalized, and arts institutions, from the big to the small, are fearing the worst.`\
+https://nytimes.com/2024/06/21/nyregion/for-the-price-of-a-police-helicopter-new-york-could-save-the-arts.html
+
+**The Dog Days of Summer Are Here Early. New York City Is Adapting.**\
+`Global warming has led to more extreme weather earlier and later in the year, causing New Yorkers to rethink their relationship to the seasonal calendar.`\
+https://nytimes.com/2024/06/21/nyregion/nyc-weather-heat-summer.html
+
+**A Vape Pen, a Fall and a Question That Won’t Go Away: Why Did Nico Die?**\
+`Nico Nuño-Kelley, 17, fell six stories from the roof of his Manhattan apartment building after vaping marijuana. His anguished family wants answers.`\
+https://nytimes.com/2024/06/21/nyregion/marijuana-death-mystery.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/06/21/crosswords/spelling-bee-forum.html
+
 **Nico Williams' big night for Spain is just the start - the winger isn't short of suitors**\
 `Nico's electric display against Italy will have come as no surprise to seasoned observers of Spanish football`\
 https://nytimes.com/athletic/5580002/2024/06/21/nico-williams-spain-italy-euros/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/06/21/learning/word-of-the-day-incessant.html
 **How to Transport a Giant Valuable Artwork in Australia**\
 `It takes a big truck, a convey of safety vehicles, good planning and a cool nerve.`\
 https://nytimes.com/2024/06/21/world/australia/how-to-transport-a-giant-valuable-artwork-in-australia.html
-
-**Spalletti's Italy must stay true to their style - even if it abandoned them against Spain**\
-`'The only thing that can save us is our brand of football' said Spalletti. Italy must remember that in their final group game`\
-https://nytimes.com/athletic/5579480/2024/06/21/italy-spain-spalletti-style-result/
-
-**Cardinals' Willie McGee savors his brush with baseball history: 'They deserve this'**\
-`McGee accompanied Bill Greason on the field as the 99-year-old former Birmingham Black Baron threw out the first pitch.`\
-https://nytimes.com/athletic/5580233/2024/06/21/mlb-cardinals-bill-greason-willie-mcgee/
-
-**Marsch questions whether Argentina will be fined after delay to Canada second-half**\
-`Jesse Marsch has questioned whether Argentina will be fined for delaying the second-half of their Copa America opener with Canada.`\
-https://nytimes.com/athletic/5580293/2024/06/21/canada-argentina-jesse-marsch-half-time/
-
-**Troy Parrott and Tottenham Hotspur: it's decision time**\
-`Parrott played in four first team matches for Spurs in 2019-20, but not a single minute since - this summer feels like a pivotal moment `\
-https://nytimes.com/athletic/5567555/2024/06/21/troy-parrott-tottenham-future/
 
