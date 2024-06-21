@@ -1,3 +1,11 @@
+**England under more pressure than ever at Euro 2024 - Rice**\
+`England midfielder Declan Rice has admitted the players are feeling more pressure than ever before.`\
+https://nytimes.com/athletic/5581750/2024/06/21/declan-rice-england-euros/
+
+**Trump’s PAC, Which Pays His Legal Bills, Is Nearly Out of Cash**\
+`A fund-raising pact with the Republican Party is expected to replenish the money Donald J. Trump paid his lawyers as he faced three indictments and finished a criminal trial in New York.`\
+https://nytimes.com/2024/06/21/us/politics/trump-pac-funds.html
+
 **In Montana, Abortion Rights Groups Submit Signatures for Ballot Measure in November**\
 `The measure would affirm the right to abortion in the State Constitution. Democrats hope that it will help Senator Jon Tester in his bid for re-election.`\
 https://nytimes.com/2024/06/21/us/montana-abortion-rights-ballot.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5581939/2024/06/21/africa-cup-of-nations-2025-dates
 **Official Death Toll From Hajj Pilgrimage Climbs Into the Hundreds**\
 `Searing heat in Saudi Arabia appeared to at least contribute to many of the deaths.`\
 https://nytimes.com/2024/06/21/world/middleeast/saudi-arabia-hajj-pilgrimage-heat-death.html
-
-**What You Need to Know About the Power Grid During the Latest Heat Wave**\
-`So far, aided by growing solar capacity, heat-related outages have been limited.`\
-https://nytimes.com/2024/06/21/us/heat-wave-power-grid.html
-
-**Andrew Cogliano retires as beloved example to NHL players**\
-`When Erik Johnson handed Andrew Cogliano the Stanley Cup for the first time, Cogliano, the veteran wing, shifted his body so he was facing his 2021-22 Avalanche teammates.`\
-https://nytimes.com/athletic/5581458/2024/06/21/avalanche-andrew-cogliano-retirement/
 
