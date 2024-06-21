@@ -1,3 +1,7 @@
+**Are the Orioles better than the Yankees? What we learned this week**\
+`“It’s going to be back and forth all the way until the end of September,” Aaron Judge said on the rivalry with Baltimore. “That’s for sure."`\
+https://nytimes.com/athletic/5579900/2024/06/20/are-orioles-better-than-yankees-analysis/
+
 **Caruso-Giddey trade grades: Thunder add defense, shooting; Bulls get younger**\
 `Less than a week before the NBA Draft, we get a one-for-one swap of perimeter players. Is this a good move for both sides?`\
 https://nytimes.com/athletic/5579841/2024/06/20/caruso-giddey-trade-grades-thunder-bulls/
