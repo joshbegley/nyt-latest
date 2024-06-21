@@ -1,3 +1,11 @@
+**Pedro Rocha: Sports court calls for six-year ban for Spanish FA president**\
+`Spain&#8217;s superior sports court (TAD) has called for RFEF (Spanish FA) president Pedro Rocha to be banned for six years, as the legacy of his now disgraced predecessor Luis Rubiales continues to haunt the federation.`\
+https://nytimes.com/athletic/5581600/2024/06/21/pedro-rocha-ban-rfef-spain/
+
+**Trump Media Stock Down 50% Since Former President’s Conviction**\
+`The parent of Truth Social has come under pressure this month, most recently after early investors were given approval to sell a fresh chunk of shares.`\
+https://nytimes.com/2024/06/21/business/trump-media-stock-decline.html
+
 **Much of Rafah lies in ruins as Israeli forces push deeper into the city.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/06/21/world/israel-gaza-war-hamas/much-of-rafah-lies-in-ruins-as-israeli-forces-push-deeper-into-the-city
