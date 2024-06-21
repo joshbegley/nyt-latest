@@ -1,3 +1,15 @@
+**The heat wave in New York will continue through the weekend.**\
+`By Alyce McFadden`\
+https://nytimes.com/live/2024/06/21/us/heat-wave-news/the-heat-wave-in-new-york-will-continue-through-the-weekend
+
+**Millions nationwide face more hazardous heat as temperatures rise in the Mid-Atlantic states.**\
+`By Kate Selig and Judson Jones`\
+https://nytimes.com/live/2024/06/21/us/heat-wave-news/millions-nationwide-face-more-hazardous-heat-as-temperatures-rise-in-the-mid-atlantic-states
+
+**100 Million in U.S. Face Heat Alerts as First Summer Weekend Arrives**\
+`Nearly a third of the country was under hot weather advisories on the fifth day of a blistering heat wave.`\
+https://nytimes.com/live/2024/06/21/us/heat-wave-news
+
 **Editor Tapped to Lead Washington Post Won’t Take the Job**\
 `Robert Winnett will stay at The Daily Telegraph, after reports raised questions about his ties to unethical news gathering practices.`\
 https://nytimes.com/2024/06/21/business/media/washington-post-editor-winnett.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5580250/2024/06/21/nhl-top-10-offer-sheet-candidate
 **Who is Anthony Taylor? The referee coming into the Euros after a tough season**\
 `Taylor will be hoping controversy does not follow him from last season's Premier League into the Euros`\
 https://nytimes.com/athletic/5572103/2024/06/21/anthony-taylor-who-euro-2024/
-
-**Six keys for Oilers to complete historic comeback and win the Stanley Cup**\
-`Here's what the Oilers have to do to beat the Florida Panthers two more times in the Cup Final.`\
-https://nytimes.com/athletic/5578373/2024/06/21/oilers-keys-game-6-stanley-cup/
-
-**Crystal Palace and Wolves' gambling shirt sponsors: Who are they and why are they controversial?**\
-`Wolves announced DEBET as their new front-of-shirt sponsor for two seasons, while Crystal Palace confirmed a two-year deal with Net88`\
-https://nytimes.com/athletic/5578416/2024/06/21/wolves-crystal-palace-sponsors-gambling/
-
-**USMNT star Musah's England years: 'I have no doubt he'd have made the England squad'**\
-`Yunus Musah will be a key player for the USMNT at the Copa America — but he could have represented three other nations`\
-https://nytimes.com/athletic/5577978/2024/06/21/yunus-musah-usmnt-copa-america-england/
 
