@@ -1,6 +1,6 @@
 **Malik Monk to sign 4-year extension with Kings**\
 `Malik Monk will be staying in Sacramento, as the high-scoring reserve is expected to sign a four-year extension worth $78 million, league sources confirmed.`\
-https://nytimes.com/athletic/5580216/2024/06/20/malik-monk-contract-extension-kings/
+https://nytimes.com/athletic/5580216/2024/06/20/malik-monk-contract-kings/
 
 **At Rickwood Field, Willie Mays Is the Star of the Show, One More Time**\
 `On a night that honored the Negro leagues and Mays, who died on Tuesday, a baseball game between the Giants and the Cardinals was almost beside the point.`\
