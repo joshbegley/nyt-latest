@@ -1,3 +1,7 @@
+**Review: A 10th Life for Those Jellicle ‘Cats,’ Now in Drag**\
+`Resetting the “Memory” musical in the world of ballroom competitions makes for a joyful reincarnation.`\
+https://nytimes.com/2024/06/20/theater/cats-the-jellicle-ball-review.html
+
 **Are the Orioles better than the Yankees? What we learned this week**\
 `“It’s going to be back and forth all the way until the end of September,” Aaron Judge said on the rivalry with Baltimore. “That’s for sure."`\
 https://nytimes.com/athletic/5579900/2024/06/20/are-orioles-better-than-yankees-analysis/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/06/20/nyregion/nypd-shotspotter-guns.html
 **Ryan Garcia suspended, fined, loses Haney win for PEDs**\
 `Haney will also now retain his undefeated record, as the loss turns to a no-contest.`\
 https://nytimes.com/athletic/5579695/2024/06/20/ryan-garcia-suspension-fine-no-contest-devin-haney/
-
-**Briere: Flyers might 'lean into a center' at NHL Draft, plus the latest on Michkov**\
-`Will the Flyers use any draft picks as currency in possible trades?`\
-https://nytimes.com/athletic/5579335/2024/06/20/flyers-nhl-draft-briere-michkov/
 
