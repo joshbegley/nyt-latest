@@ -1,3 +1,7 @@
+**Looking Ahead to the Biden-Trump Debate**\
+`Readers make their wishes known about the debate. Also: The Ten Commandments in public classrooms; asylum seekers; Black women’s health; Justice Alito’s wife.`\
+https://nytimes.com/2024/06/21/opinion/biden-trump-debate.html
+
 **Israeli Official Describes Secret Government Bid to Cement Control of West Bank**\
 `Israeli judges have long ruled that Israel’s control of the territory is a temporary military occupation and complies with international law. A powerful minister’s recent speech, caught on tape, suggested the government is trying to change that.`\
 https://nytimes.com/2024/06/21/world/middleeast/israel-west-bank-netanyahu-bezalel-smotrich.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/21/arts/design/wells-college-minerva-statue-decapita
 **Five Horror Movies to Stream Now**\
 `This month’s picks include demon baby, a cursed chef and all kinds of people trapped in hellish situations.`\
 https://nytimes.com/2024/06/21/movies/five-horror-movies-to-stream-now.html
-
-**Slovakia 1 Ukraine 2 - Yaremchuk's nimble finish, a stirring comeback and the joy of watching Lobotka**\
-`Jacob Whitehead, Dermot Corrigan and Nick Miller analyse the main talking points from Ukraine's 2-1 win over Slovakia at Euro 2024`\
-https://nytimes.com/athletic/5572380/2024/06/21/slovakia-1-ukraine-2-euro-2024/
 
