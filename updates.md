@@ -1,3 +1,11 @@
+**Nathan Hare, 91, Dies; Founded the First Black Studies Program**\
+`Seeking to bring the ideas of Black power into the classroom — and coining the term “ethnic studies” — he clashed with a university as well as allies on the left.`\
+https://nytimes.com/2024/06/21/obituaries/nathan-hare-dead.html
+
+**Griffin Dunne on His Joyful and Tragic Family Memoir**\
+`In “The Friday Afternoon Club,” the actor and director recalls his years growing up around performers, writers and the Hollywood set.`\
+https://nytimes.com/2024/06/21/books/review/griffin-dunne-book-review-podcast.html
+
 **American Express Buys Tock to Pursue Customers Shelling Out on Dining**\
 `The credit card company acquired Tock, a restaurant reservation company, after buying its rival, Resy, in 2019.`\
 https://nytimes.com/2024/06/21/business/amex-tock-dining-reservation.html
