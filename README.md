@@ -1,3 +1,7 @@
+**Once banned from F1 for race fixing, Flavio Briatore is welcomed back**\
+`Once issued a lifetime ban for his role in 2008's 'Crashgate,' Briatore is now an advisor to the Alpine team — and nobody seems to mind.`\
+https://nytimes.com/athletic/5581546/2024/06/21/f1-flavio-briatore-alpine-crashgate/
+
 **$3.34 Trillion**\
 `The market value on Tuesday of Nvidia, whose chips have made it possible to create A.I. systems.`\
 https://nytimes.com/2024/06/21/business/3-34-trillion-nvidia-market-value.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/21/sports/olympics/olympic-swimming-2028-la-games.ht
 **The Supreme Court Dials Down the Chaos on Guns**\
 `Previous attempts to broaden the Second Amendment don’t apply to a domestic abuser, eight justices ruled.`\
 https://nytimes.com/2024/06/18/opinion/supreme-court-guns-domestic-abuse.html
-
-**Tracking a Single Day at the National Domestic Violence Hotline**\
-`Some major Supreme Court decisions this term, including a ruling that allowed the government to prohibit people subject to restraining orders from having guns, have underscored the pervasiveness of domestic violence.`\
-https://nytimes.com/interactive/2024/06/21/us/domestic-violence-hotline.html
 
