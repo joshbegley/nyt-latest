@@ -1,3 +1,7 @@
+**Judge in Trump Documents Case Hears Arguments Over Special Counsel**\
+`Judge Aileen Cannon held a hearing to consider a question that has been quickly dismissed in other cases: whether there is a constitutional basis for the appointment of a special counsel.`\
+https://nytimes.com/2024/06/21/us/politics/trump-documents-special-counsel.html
+
 **Iran’s 2024 Presidential Election: What to Know**\
 `Iran will hold a special election later this month to replace former President Ebrahim Raisi, who died in a helicopter crash in May.`\
 https://nytimes.com/2024/06/21/world/middleeast/iran-presidential-election-what-to-know.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/21/world/europe/putin-russia-north-korea.html
 **England under more pressure than ever at Euro 2024 - Rice**\
 `England midfielder Declan Rice has admitted the players are feeling more pressure than ever before.`\
 https://nytimes.com/athletic/5581750/2024/06/21/declan-rice-england-euros/
-
-**Trump’s PAC, Which Pays His Legal Bills, Is Nearly Out of Cash**\
-`A fund-raising pact with the Republican Party is expected to replenish the money Donald J. Trump paid his lawyers as he faced three indictments and finished a criminal trial in New York.`\
-https://nytimes.com/2024/06/21/us/politics/trump-pac-funds.html
 
