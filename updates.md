@@ -1,3 +1,7 @@
+**Biden Is Finally Reminding Voters of Trump’s Toxic Chaos**\
+`A new ad focuses on the ex-president’s criminal conviction.`\
+https://nytimes.com/live/2024/06/18/opinion/thepoint/biden-trump-ads-criminal
+
 **Olise chooses to join Bayern from Palace**\
 `Crystal Palace winger Michael Olise has decided to join Bayern Munich.`\
 https://nytimes.com/athletic/5582013/2024/06/21/michael-olise-bayern-munich-transfer/

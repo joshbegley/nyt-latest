@@ -1,3 +1,7 @@
+**Biden Is Finally Reminding Voters of Trump’s Toxic Chaos**\
+`A new ad focuses on the ex-president’s criminal conviction.`\
+https://nytimes.com/live/2024/06/18/opinion/thepoint/biden-trump-ads-criminal
+
 **Olise chooses to join Bayern from Palace**\
 `Crystal Palace winger Michael Olise has decided to join Bayern Munich.`\
 https://nytimes.com/athletic/5582013/2024/06/21/michael-olise-bayern-munich-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/21/arts/music/playlist-gracie-abrams-taylor-swift-ke
 **The day that proved football in Ukraine 'is still alive'**\
 `A day of defiance ended in delirium for an emotion-fuelled Ukraine`\
 https://nytimes.com/athletic/5581789/2024/06/21/ukraine-euro-2024-russia-war/
-
-**The Briefing: Poland 1 Austria 3 - Arnautovic struts his stuff and Rangnick's brilliant changes**\
-`Our writers analyse and evaluate the key talking points from Austria's 3-1 victory over Poland`\
-https://nytimes.com/athletic/5572396/2024/06/21/poland-austria-the-briefing/
 
