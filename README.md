@@ -1,3 +1,7 @@
+**Is Kane a symptom of England's malaise or one of the causes of it?**\
+`The England captain has looked off the pace so far at the Euros, though he has started other tournaments slowly too`\
+https://nytimes.com/athletic/5579223/2024/06/21/harry-kane-england-denmark/
+
 **Word of the Day: incessant**\
 `This word has appeared in 89 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/06/21/learning/word-of-the-day-incessant.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5569489/2024/06/21/leeds-united-pre-season/
 **Inside Gabriel's personalised performance-management setup**\
 `Gabriel has built a performance-development team around him, in addition to the support he receives from Arsenal's staff`\
 https://nytimes.com/athletic/5577865/2024/06/21/gabriel-arsenal-perormance-management/
-
-**Matija Sarkic remembered: 'He was half of me - it's devastating'**\
-`Family and friends share their memories of the Montenegro goalkeeper who died suddenly, aged 26, last week`\
-https://nytimes.com/athletic/5577909/2024/06/21/matija-sarkic-remembered/
 
