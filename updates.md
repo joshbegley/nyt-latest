@@ -1,3 +1,15 @@
+**Kevin Costner Announces That He Is Done With ‘Yellowstone’**\
+`The actor and director is turning his attention to his ambitious film series about post-Civil War America.`\
+https://nytimes.com/2024/06/21/arts/television/yellowstone-kevin-costner-leaving.html
+
+**Evaluating the Rangers' choices at wing: Free agent, trade and internal options**\
+`Some of the Rangers' newfound cap space could go to a new top-six wing. Here are some candidates to fill the role.`\
+https://nytimes.com/athletic/5580019/2024/06/21/rangers-free-agent-trade-wing/
+
+**Hawaii Settles With Young Plaintiffs in Climate Case**\
+`The state agreed to take steps cut greenhouse gas emissions from transportation. It’s the latest of several victories for youth-led climate lawsuits.`\
+https://nytimes.com/2024/06/21/business/hawaii-youth-climate-lawsuit.html
+
 **Ángeles Flórez Peón, Spanish Civil War’s Last Militiawoman, Dies at 105**\
 `She was revered as an essential guardian of the country’s memory of war and repression long after the Franco dictatorship.`\
 https://nytimes.com/2024/06/21/world/europe/angeles-florez-peon-dead.html

@@ -1,3 +1,15 @@
+**Kevin Costner Announces That He Is Done With ‘Yellowstone’**\
+`The actor and director is turning his attention to his ambitious film series about post-Civil War America.`\
+https://nytimes.com/2024/06/21/arts/television/yellowstone-kevin-costner-leaving.html
+
+**Evaluating the Rangers' choices at wing: Free agent, trade and internal options**\
+`Some of the Rangers' newfound cap space could go to a new top-six wing. Here are some candidates to fill the role.`\
+https://nytimes.com/athletic/5580019/2024/06/21/rangers-free-agent-trade-wing/
+
+**Hawaii Settles With Young Plaintiffs in Climate Case**\
+`The state agreed to take steps cut greenhouse gas emissions from transportation. It’s the latest of several victories for youth-led climate lawsuits.`\
+https://nytimes.com/2024/06/21/business/hawaii-youth-climate-lawsuit.html
+
 **Once banned from F1 for race fixing, Flavio Briatore is welcomed back**\
 `Once issued a lifetime ban for his role in 2008's 'Crashgate,' Briatore is now an advisor to the Alpine team — and nobody seems to mind.`\
 https://nytimes.com/athletic/5581546/2024/06/21/f1-flavio-briatore-alpine-crashgate/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5581679/2024/06/21/wild-devils-minor-league-trade/
 **Phelps rejoining NBC's Olympic broadcast team**\
 `Phelps was a part of NBC's swimming broadcast team during the Tokyo 2020 Games.`\
 https://nytimes.com/athletic/5581543/2024/06/21/michael-phelps-broadcast-paris-2024/
-
-**Tierney to miss rest of Euro 2024 due to injury**\
-`Scotland’s Kieran Tierney has been ruled out for the rest of the European Championship due to injury.`\
-https://nytimes.com/athletic/5581290/2024/06/21/kieran-tierney-injury-scotland-euro-2024/
-
-**Katie Ledecky in SoFi Stadium: Plans Emerge to Supercharge the 2028 L.A. Olympics**\
-`Organizers of the Los Angeles Olympic Games hope that a huge venue for swimming, a marquee event, will draw crowds and generate much-needed revenue.`\
-https://nytimes.com/2024/06/21/sports/olympics/olympic-swimming-2028-la-games.html
-
-**The Supreme Court Dials Down the Chaos on Guns**\
-`Previous attempts to broaden the Second Amendment don’t apply to a domestic abuser, eight justices ruled.`\
-https://nytimes.com/2024/06/18/opinion/supreme-court-guns-domestic-abuse.html
 
