@@ -1,6 +1,6 @@
 **Jake Bloss joins the Astros' lengthy list of injured starting pitchers**\
 `Bloss, who made his major-league debut Friday, exited after 79 pitches with what the club called right shoulder "discomfort."`\
-https://nytimes.com/athletic/5582759/2024/06/22/jake-bloss-joins-astros-lengthy-list-of-injured-starting-pitchers/
+https://nytimes.com/athletic/5582759/2024/06/22/jake-bloss-joins-astros-injured-starting-pitchers/
 
 **Carlos Santana joins exclusive club with 2,000 games played as Twins fall late to A's**\
 `Dedication and a dogged nature helped Santana arrive at this point.`\
