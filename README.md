@@ -1,3 +1,7 @@
+**Silvano Marchetto, Owner of Glitzy Greenwich Village Trattoria, Dies at 77**\
+`Da Silvano was a celebrity hangout, drawing boldface names like Madonna, Barry Diller and Yoko Ono. It was often referred to as the downtown Elaine’s.`\
+https://nytimes.com/2024/06/22/obituaries/silvano-marchetto-dead.html
+
 **Antwann Hill, 4-star QB prospect from Georgia, commits to Memphis**\
 `Entering his senior season this fall, Hill recorded 2,732 yards, 31 touchdowns and five interceptions as a junior.`\
 https://nytimes.com/athletic/5583952/2024/06/22/antwann-hill-qb-memphis-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/22/world/middleeast/hajj-heat-deaths-egypt.html
 **Chelsea hold talks over David transfer**\
 `Chelsea have held talks with the representatives of Lille striker Jonathan David about a potential transfer this summer.`\
 https://nytimes.com/athletic/5583848/2024/06/22/chelsea-jonathan-david-transfer/
-
-**3 Columbia Deans Placed on Leave Over Conduct at Antisemitism Panel**\
-`Leaked images showed the trio sharing disparaging text messages during an alumni group discussion last month about Jewish life on campus.`\
-https://nytimes.com/2024/06/22/nyregion/columbia-deans-antisemitism-panel.html
 
