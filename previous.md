@@ -1,3 +1,7 @@
+**The Briefing: Turkey 0-3 Portugal - win secures top spot, Ronaldo's mixed emotions and that own goal**\
+`Our writers analyse the key talking points from Portugal's victory over Turkey, which takes them into the round of 16 as group winners`\
+https://nytimes.com/athletic/5580934/2024/06/22/turkey-portugal-ronaldo-analysis/
+
 **Jeremy Tepper, SiriusXM’s Longtime Alt-Country Impresario, Dies at 60**\
 `As a journalist, singer, label owner and radio producer, he fostered a community of musicians on the outskirts of Americana.`\
 https://nytimes.com/2024/06/22/arts/music/jeremy-tepper-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5583545/2024/06/22/max-kilman-transfer-wolves-newca
 **Peru coach points to field as possible cause of Advincula injury**\
 `Jorge Fossati pointed to the field at AT&amp;T Stadium as a possible cause of the injury that forced Luis Advincula off against Chile.`\
 https://nytimes.com/athletic/5583359/2024/06/22/luis-advincula-injury-peru-copa-america/
-
-**Mets place Sean Reid-Foley on IL, Danny Young called up**\
-`Young, who has impressed in limited action, is expected to meet the Mets in Chicago on Saturday.`\
-https://nytimes.com/athletic/5583412/2024/06/22/mets-sean-reid-foley-injured/
 

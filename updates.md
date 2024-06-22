@@ -1,3 +1,7 @@
+**The Briefing: Turkey 0-3 Portugal - win secures top spot, Ronaldo's mixed emotions and that own goal**\
+`Our writers analyse the key talking points from Portugal's victory over Turkey, which takes them into the round of 16 as group winners`\
+https://nytimes.com/athletic/5580934/2024/06/22/turkey-portugal-ronaldo-analysis/
+
 **Heat-Related Illnesses Spiked in Some Regions This Week, C.D.C. Data Shows**\
 `Regions that had “extremely high” rates of such illnesses included swaths of New England, the Midwest and the Mid-Atlantic, all areas that have been hit the hardest by the heat wave.`\
 https://nytimes.com/2024/06/22/us/heat-wave-illness-er-cdc.html
