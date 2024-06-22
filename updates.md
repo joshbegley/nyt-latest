@@ -1,3 +1,7 @@
+**2 Novels Set Over Very Memorable Days**\
+`A dinner party at the other woman’s house; the evening before a jail sentence.`\
+https://nytimes.com/2024/06/22/books/novels-set-over-one-single-day.html
+
 **Toxic Moonshine Leaves at Least 53 Dead in India’s South**\
 `Consumption of tainted bootleg alcohol has caused several instances of mass deaths in recent years as drinkers seek out illicit liquor to save money or evade the law.`\
 https://nytimes.com/2024/06/22/world/asia/toxic-moonshine-death-india.html
