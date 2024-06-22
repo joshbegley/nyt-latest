@@ -1,3 +1,7 @@
+**Yoro informs Real Madrid he wants to join club**\
+`Lille centre back Leny Yoro has informed Real Madrid that he wishes to join the club.`\
+https://nytimes.com/athletic/5583019/2024/06/22/leny-yoro-real-madrid/
+
 **Wordle Review No. 1,100, June 23, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/06/22/crosswords/wordle-review-no-1100-june-23-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/22/us/heat-wave-news/for-much-of-the-nation-no-
 **How a Family of Taekwondo Instructors Stopped a Sexual Assault**\
 `The An family, whose ages range from 18 to 59, stopped the sexual assault of a woman in Katy, Texas, on Tuesday and handed the attacker over to the police.`\
 https://nytimes.com/2024/06/22/us/texas-taekwondo-family-sexual-assault.html
-
-**Curious Tourists and Modern-Day Druids: Marking the Solstice at Stonehenge**\
-`To celebrate the celestial event, the ropes come down at the ancient monument, and visitors spend the night to greet the sunrise.`\
-https://nytimes.com/2024/06/22/travel/stonehenge-solstice-celebration.html
 
