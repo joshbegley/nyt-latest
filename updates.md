@@ -33,6 +33,11 @@ https://nytimes.com/athletic/5582726/2024/06/22/oilers-stanley-cup-final-nhl-his
 `\
 https://nytimes.com/athletic/5582726/2024/06/22/oilers-stanley-cup-final-nhl-history/
 
+**LeBrun: As Oilers claw back into Stanley Cup Final, the world witnesses NHL history**\
+`The Oilers are the first team in 79 years to force a Game 7 in the Final after being down 3-0. One more win and they’ll make history again.
+`\
+https://nytimes.com/athletic/5582726/2024/06/22/oilers-stanley-cup-final-nhl-history/
+
 **Two Teenagers Missing in Waters Off Beach in Queens in Suspected Drowning**\
 `The search was continuing overnight for the boys, 16 and 17, who were last seen being overtaken by a large wave in the waters off Jacob Riis Park.`\
 https://nytimes.com/2024/06/22/nyregion/queens-jacob-riis-suspected-drowning.html
