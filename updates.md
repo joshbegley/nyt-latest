@@ -1,3 +1,7 @@
+**Negotiations between Klay Thompson, Warriors frozen as free agency looms**\
+`With free agency now less than 10 days away, Thompson's exit from the Warriors feels closer and more probable than ever before.`\
+https://nytimes.com/athletic/5583540/2024/06/22/klay-thompson-free-agency-warriors-negotiations/
+
 **Leao suspended after two yellow cards for diving at Euros**\
 `Rafael Leao will miss Portugal’s final Euro 2024 group-stage game through suspension after receiving two yellow cards for diving.`\
 https://nytimes.com/athletic/5583609/2024/06/22/rafael-leao-dive-yellow-cards/

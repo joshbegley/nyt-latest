@@ -1,3 +1,7 @@
+**Negotiations between Klay Thompson, Warriors frozen as free agency looms**\
+`With free agency now less than 10 days away, Thompson's exit from the Warriors feels closer and more probable than ever before.`\
+https://nytimes.com/athletic/5583540/2024/06/22/klay-thompson-free-agency-warriors-negotiations/
+
 **Leao suspended after two yellow cards for diving at Euros**\
 `Rafael Leao will miss Portugal’s final Euro 2024 group-stage game through suspension after receiving two yellow cards for diving.`\
 https://nytimes.com/athletic/5583609/2024/06/22/rafael-leao-dive-yellow-cards/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5583374/2024/06/22/chelsea-estevao-willian-transfer
 **A No-Fuss, Fantastic Eggplant Recipe**\
 `No soaking or salting is needed for Zainab Shah’s borani banjan: just a quick fry before the eggplant is nestled into garlicky yogurt and topped with tomato, pomegranate and mint.`\
 https://nytimes.com/2024/06/22/dining/borani-banjan-eggplant-recipe.html
-
-**The Briefing: Georgia 1-1 Czech Republic - Flawed entertainers, Czech misfortune and Schick's injury blow**\
-`Carl Anka and Duncan Alexander analyse the key talking points from Georgia and the Czech Republic's 1-1 draw in Hamburg`\
-https://nytimes.com/athletic/5580933/2024/06/22/georgia-1-czech-republic-1-euro-2024/
 
