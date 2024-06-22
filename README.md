@@ -1,3 +1,7 @@
+**Pistons president Trajan Langdon spoke for the first time. What did he say?**\
+`Langdon joined owner Tom Gores, and here are the most important things they said, plus analysis on the comments. `\
+https://nytimes.com/athletic/5581991/2024/06/21/pistons-trajan-langdon-owner-tom-gores/
+
 **PWHL Toronto signs star forward Daryl Watts in free agency**\
 `Daryl Watts signed a two-year deal with PWHL Toronto, the team announced on Friday night.`\
 https://nytimes.com/athletic/5582342/2024/06/21/pwhl-toronto-signs-daryl-watts/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5582384/2024/06/21/shota-imanaga-disaster-start-cub
 **Man Who Attacked Nancy Pelosi’s Husband Is Convicted in California Trial**\
 `In 2022, David DePape broke into Ms. Pelosi’s San Francisco home and eventually beat her husband with a hammer.`\
 https://nytimes.com/2024/06/21/us/pelosi-attack-depape-verdict.html
-
-**Travis Scott Wasted No Time Putting His Mug Shot on a T-Shirt**\
-`A commemoration of the rapper’s brief arrest in Miami Beach, the shirt reinforced the idea that for some celebrities, a brush with the law can be good for business.`\
-https://nytimes.com/2024/06/21/style/travis-scott-mugshot-shirt.html
 
