@@ -1,3 +1,7 @@
+**After Conviction, Trump Presents Himself as a Martyr to the Christian Right**\
+`The former president portrayed himself as having “wounds all over” while suggesting that he was being targeted for his support of religious freedoms.`\
+https://nytimes.com/2024/06/22/us/politics/trump-faith-and-freedom-evangelical-martyr.html
+
 **Sesko battling quad injury ahead of England game**\
 `Benjamin Sesko is battling a lower quad injury ahead of Slovenia’s European Championship meeting with England on Tuesday.`\
 https://nytimes.com/athletic/5583641/2024/06/22/england-slovenia-benjamin-sesko/
