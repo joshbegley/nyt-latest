@@ -1,3 +1,7 @@
+**Consider the Beach**\
+`With much of the U.S. experiencing a heat wave, let us consider the beach and all its promises and pitfalls.`\
+https://nytimes.com/2024/06/22/briefing/embracing-the-beach.html
+
 **Ranking the best and worst Copa America home kits: a doctor bird, an Ecuador sash and 'deep red wine'**\
 `No matter what happens on the pitch, nearly every team at the Copa is a winner when it comes to their home kits. We've ranked them all...`\
 https://nytimes.com/athletic/5536713/2024/06/22/copa-america-home-kit-rankings-2024/
