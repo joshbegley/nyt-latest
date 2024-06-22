@@ -1,3 +1,7 @@
+**Secret Service Details Security Plans for the Republican National Convention**\
+`A park near the convention site will be off limits to protesters, according to the plans for the July gathering in Milwaukee.`\
+https://nytimes.com/2024/06/22/us/politics/republican-convention-security-protests.html
+
 **Real Madrid captain Nacho set to join Al Qadsiah**\
 `Real Madrid captain Nacho is set to join Saudi Pro League side Al Qadsiah.`\
 https://nytimes.com/athletic/5583582/2024/06/22/nacho-transfer-saudi-arabia/
