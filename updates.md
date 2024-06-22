@@ -1,3 +1,15 @@
+**A Parade of Mermaids Marches On in Brooklyn’s Coney Island**\
+`The heat could not stop revelers from taking part in the pageantry of aquatic weirdness.`\
+https://nytimes.com/2024/06/22/us/mermaid-parade-coney-island.html
+
+**Euro 2024 day nine: Ronaldo, pitch invaders and Belgium back in business**\
+`Cristiano Ronaldo's Portugal qualify for the knockout stages, but a series of pitch invaders create a problem for UEFA`\
+https://nytimes.com/athletic/5583094/2024/06/22/euro-2024-day-nine-ronaldo/
+
+**Picture Day**\
+`Michael Schlossberg’s Sunday puzzle is worth 5,000 words.`\
+https://nytimes.com/2024/06/22/crosswords/daily-puzzle-2024-06-23.html
+
 **Mbappe wears mask, scores in behind-closed-doors friendly ahead of Euros return**\
 `A masked Kylian Mbappe played and scored in an hour-long behind-closed-doors friendly on Saturday as he targets a return to action at Euro 2024 after breaking his nose in France’s opening group game.`\
 https://nytimes.com/athletic/5584023/2024/06/22/kylian-mbappe-france-friendly-mask/
