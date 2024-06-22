@@ -1,3 +1,15 @@
+**Wordle Review No. 1,100, June 23, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/22/crosswords/wordle-review-no-1100-june-23-2024.html
+
+**Ron Simons, Who Brought Black Stories to Broadway, Dies at 63**\
+`He left a career in tech and found success as a producer, winning four Tonys. His mission: staging productions about underrepresented communities.`\
+https://nytimes.com/2024/06/22/arts/ron-simons-dead.html
+
+**Wordle Review No. 1,099, June 22, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/22/crosswords/wordle-review-1099.html
+
 **Germany Hopes to Head Off a Trade War With China**\
 `As the European Union moves to impose tariffs on Chinese cars, Germany, with an auto industry deeply enmeshed with China, is stuck in the middle.`\
 https://nytimes.com/2024/06/22/business/china-germany-tariffs-trade.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/22/us/texas-taekwondo-family-sexual-assault.html
 **Curious Tourists and Modern-Day Druids: Marking the Solstice at Stonehenge**\
 `To celebrate the celestial event, the ropes come down at the ancient monument, and visitors spend the night to greet the sunrise.`\
 https://nytimes.com/2024/06/22/travel/stonehenge-solstice-celebration.html
-
-**Everton complete Iroegbunam signing from Aston Villa**\
-`Everton have completed the signing of midfielder Tim Iroegbunam from Aston Villa.`\
-https://nytimes.com/athletic/5583064/2024/06/22/tim-iroegbunam-everton-transfer/
-
-**'The job is not done': How Zach Hyman, Leon Draisaitl stepped up to push Oilers to Game 7**\
-`Hyman and Draisaitl were instrumental in creating two goals as part of a well-balanced Oilers attack that is now one win away from the Cup.`\
-https://nytimes.com/athletic/5582879/2024/06/22/oilers-draisaitl-hyman-stanley-cup-final-nhl/
-
-**Israel’s military said its fighter jets had targeted ‘Hamas military infrastructure.’**\
-`By Aaron Boxerman and Rawan Sheikh Ahmad`\
-https://nytimes.com/live/2024/06/22/world/israel-gaza-war-hamas/israels-military-said-its-fighter-jets-had-targeted-hamas-military-infrastructure
 
