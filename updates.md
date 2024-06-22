@@ -1,3 +1,7 @@
+**Braves keep slugging in rout of Yankees, but how long will aces keep getting extra rest?**\
+`This is the longest Chris Sale has stayed healthy since 2019, and he should surpass last year's innings total by the All-Star break. `\
+https://nytimes.com/athletic/5582640/2024/06/22/braves-chris-sale-extra-rest/
+
 **Barcelona and Nike's breakdown in relations reveals deeper problems at Catalan club**\
 `Barca's new Nike kit has still not been released - because of recent turbulence in their relationship`\
 https://nytimes.com/athletic/5572171/2024/06/22/barcelona-nike-kit-laporta-sponsorship-deal/
