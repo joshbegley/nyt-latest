@@ -1,3 +1,7 @@
+**Man Fatally Stabbed at Manhattan Subway Station, Police Say**\
+`The stabbing, which came during a dispute between two people, occurred just before 6 p.m. at the West 175th Street A train station.`\
+https://nytimes.com/2024/06/21/nyregion/subway-station-stabbing.html
+
 **Trading Card Enthusiasts?**\
 `Hoang-Kim Vu’s latest themeless puzzle will have you singing while you solve.`\
 https://nytimes.com/2024/06/21/crosswords/daily-puzzle-2024-06-22.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/21/us/florida-dozier-school-abuse-restitution.html
 **Trump Allies Begin First Line of Attack Against Arizona Election Case**\
 `The challenges from defendants charged with trying to overturn the 2020 election will be a test case for a new but little-known state law aimed at curbing political prosecutions.`\
 https://nytimes.com/2024/06/21/us/politics/trump-arizona-elections-legislation.html
-
-**Shota Imanaga's disaster start brings questions to an already struggling Cubs team**\
-`Imanaga allowed 10 runs on 11 hits over three-plus innings as the Mets attacked his fastball, which had a lower average velocity than usual.`\
-https://nytimes.com/athletic/5582384/2024/06/21/shota-imanaga-disaster-start-cubs-struggling/
 

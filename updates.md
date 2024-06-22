@@ -1,3 +1,7 @@
+**Man Fatally Stabbed at Manhattan Subway Station, Police Say**\
+`The stabbing, which came during a dispute between two people, occurred just before 6 p.m. at the West 175th Street A train station.`\
+https://nytimes.com/2024/06/21/nyregion/subway-station-stabbing.html
+
 **Trading Card Enthusiasts?**\
 `Hoang-Kim Vu’s latest themeless puzzle will have you singing while you solve.`\
 https://nytimes.com/2024/06/21/crosswords/daily-puzzle-2024-06-22.html
