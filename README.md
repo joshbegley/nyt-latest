@@ -1,3 +1,7 @@
+**Spanish GP preview: Will F1 get the Verstappen-Norris battle it’s been waiting for?**\
+`Plus: Ferrari's struggles, Alpine's prime opportunity ... and is Mercedes back? `\
+https://nytimes.com/athletic/5583550/2024/06/22/spanish-gp-preview-norris-verstappen-battle/
+
 **Cameron Young shoots 59 at Travelers Championship**\
 `It’s the fist sub-60 round on the PGA Tour since Scottie Scheffler’s 59 at the Northern Trust Open at TPC Boston in 2020.`\
 https://nytimes.com/athletic/5583666/2024/06/22/cameron-young-pga-tour-round-record/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/22/world/israel-gaza-war-hamas/the-israeli-mili
 **Negotiations between Klay Thompson, Warriors frozen as free agency looms**\
 `With free agency now less than 10 days away, Thompson's exit from the Warriors feels closer and more probable than ever before.`\
 https://nytimes.com/athletic/5583540/2024/06/22/klay-thompson-free-agency-warriors-negotiations/
-
-**Leao suspended after two yellow cards for diving at Euros**\
-`Rafael Leao will miss Portugal’s final Euro 2024 group-stage game through suspension after receiving two yellow cards for diving.`\
-https://nytimes.com/athletic/5583609/2024/06/22/rafael-leao-dive-yellow-cards/
 
