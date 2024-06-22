@@ -1,8 +1,12 @@
+**Jake Bloss joins the Astros' lengthy list of injured starting pitchers**\
+`Bloss, who made his major-league debut Friday, exited after 79 pitches with what the club called right shoulder "discomfort."`\
+https://nytimes.com/athletic/5582759/2024/06/22/jake-bloss-joins-astros-lengthy-list-of-injured-starting-pitchers/
+
 **Carlos Santana joins exclusive club with 2,000 games played as Twins fall late to A's**\
 `Dedication and a dogged nature helped Santana arrive at this point.`\
 https://nytimes.com/athletic/5582733/2024/06/22/carlos-santana-2000-games-twins-oakland/
 
-**As Oilers claw their way back into Stanley Cup Final, the world witnesses NHL history**\
+**LeBrun: As Oilers claw back into Stanley Cup Final, the world witnesses NHL history**\
 `The Oilers are the first team in 79 years to force a Game 7 in the Final after being down 0-3. One more win and they’ll make history again.
 `\
 https://nytimes.com/athletic/5582726/2024/06/22/oilers-stanley-cup-final-nhl-history/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5579472/2024/06/22/fantasy-baseball-notebook-ros-pr
 **Barcelona and Nike's breakdown in relations reveals deeper problems at Catalan club**\
 `Barca's new Nike kit has still not been released - because of recent turbulence in their relationship`\
 https://nytimes.com/athletic/5572171/2024/06/22/barcelona-nike-kit-laporta-sponsorship-deal/
-
-**Edson Alvarez the 'Machin' - 'Mexico's most important player'**\
-`Edson Alvarez is about to have his first chance to represent Mexico at the Copa America - and he will do it as captain`\
-https://nytimes.com/athletic/5561792/2024/06/22/edson-alvarez-mexico-west-ham-copa-america-2024/
 
