@@ -1,3 +1,7 @@
+**Leao suspended after two yellow cards for diving at Euros**\
+`Rafael Leao will miss Portugal’s final Euro 2024 group-stage game through suspension after receiving two yellow cards for diving.`\
+https://nytimes.com/athletic/5583609/2024/06/22/rafael-leao-dive-yellow-cards/
+
 **Real Madrid captain Nacho set to join Al Qadsiah**\
 `Real Madrid captain Nacho is set to join Saudi Pro League side Al Qadsiah.`\
 https://nytimes.com/athletic/5583582/2024/06/22/nacho-transfer-saudi-arabia/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/22/dining/borani-banjan-eggplant-recipe.html
 **The Briefing: Georgia 1-1 Czech Republic - Flawed entertainers, Czech misfortune and Schick's injury blow**\
 `Carl Anka and Duncan Alexander analyse the key talking points from Georgia and the Czech Republic's 1-1 draw in Hamburg`\
 https://nytimes.com/athletic/5580933/2024/06/22/georgia-1-czech-republic-1-euro-2024/
-
-**Yoro informs Real Madrid he wants to join club**\
-`Lille centre back Leny Yoro has informed Real Madrid that he wishes to join the club.`\
-https://nytimes.com/athletic/5583019/2024/06/22/leny-yoro-real-madrid/
 

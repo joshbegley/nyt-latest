@@ -1,3 +1,7 @@
+**Leao suspended after two yellow cards for diving at Euros**\
+`Rafael Leao will miss Portugal’s final Euro 2024 group-stage game through suspension after receiving two yellow cards for diving.`\
+https://nytimes.com/athletic/5583609/2024/06/22/rafael-leao-dive-yellow-cards/
+
 **Secret Service Details Security Plans for the Republican National Convention**\
 `A park near the convention site will be off limits to protesters, according to the plans for the July gathering in Milwaukee.`\
 https://nytimes.com/2024/06/22/us/politics/republican-convention-security-protests.html
