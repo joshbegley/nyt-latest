@@ -1,3 +1,7 @@
+**In the Mid-Atlantic and Ohio Valley, some residents are undeterred by the heat.**\
+`By Kevin Williams, Donna M. Owens and Jon Hurdle`\
+https://nytimes.com/live/2024/06/22/us/heat-wave-news/in-the-mid-atlantic-and-ohio-valley-some-residents-are-undeterred-by-the-heat
+
 **A Tenacious and Wild Pekingese Is the Ugliest Dog, After Five Tries**\
 `Meet Wild Thang, an 8-year-old Pekingese from Oregon who had sought the title of “World’s Ugliest” for years. Now, it’s finally his.`\
 https://nytimes.com/2024/06/22/us/worlds-ugliest-dog-wild-thang.html
