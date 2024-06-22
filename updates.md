@@ -1,3 +1,7 @@
+**Sesko battling quad injury ahead of England game**\
+`Benjamin Sesko is battling a lower quad injury ahead of Slovenia’s European Championship meeting with England on Tuesday.`\
+https://nytimes.com/athletic/5583641/2024/06/22/england-slovenia-benjamin-sesko/
+
 **After Hajj Deaths, Egypt Suspends Companies That Took Pilgrims to Mecca**\
 `The action against 16 tour companies came as governments look into whether many travelers were not properly registered to make the journey into the desert.`\
 https://nytimes.com/2024/06/22/world/middleeast/hajj-heat-deaths-egypt.html
