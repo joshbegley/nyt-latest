@@ -123,6 +123,11 @@ https://nytimes.com/athletic/5582726/2024/06/22/oilers-stanley-cup-final-nhl-his
 `\
 https://nytimes.com/athletic/5582726/2024/06/22/oilers-stanley-cup-final-nhl-history/
 
+**As Oilers claw their way back into Stanley Cup Final, the world witnesses NHL history**\
+`The Oilers are the first team in 79 years to force a Game 7 in the Final after being down 0-3. One more win and they’ll make history again.
+`\
+https://nytimes.com/athletic/5582726/2024/06/22/oilers-stanley-cup-final-nhl-history/
+
 **Carlos Santana joins exclusive club with 2,000 games played as Twins fall late to A's**\
 `Dedication and a dogged nature helped Santana arrive at this point.`\
 https://nytimes.com/athletic/5582733/2024/06/22/carlos-santana-2000-games-twins-oakland/
