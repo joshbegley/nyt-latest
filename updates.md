@@ -1,3 +1,7 @@
+**Here's what new Pistons president Trajan Langdon said in his introductory news conference**\
+`Langdon joined owner Tom Gores, and here are the most important things they said, plus analysis on the comments. `\
+https://nytimes.com/athletic/5581991/2024/06/21/pistons-trajan-langdon-owner-tom-gores/
+
 **Pistons president Trajan Langdon spoke for the first time. What did he say?**\
 `Langdon joined owner Tom Gores, and here are the most important things they said, plus analysis on the comments. `\
 https://nytimes.com/athletic/5581991/2024/06/21/pistons-trajan-langdon-owner-tom-gores/
