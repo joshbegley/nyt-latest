@@ -1,3 +1,7 @@
+**Chelsea hold talks over David transfer**\
+`Chelsea have held talks with the representatives of Lille striker Jonathan David about a potential transfer this summer.`\
+https://nytimes.com/athletic/5583848/2024/06/22/chelsea-jonathan-david-transfer/
+
 **New Book Paints Trump as Wounded, Forgetful and Hung Up on Hollywood**\
 `In the dark months following the Jan. 6 attack, Donald J. Trump opened up to an entertainment journalist, revealing his fixation with celebrity, acceptance and the TV show that made him.`\
 https://nytimes.com/2024/06/22/us/politics/trump-apprentice-book.html
