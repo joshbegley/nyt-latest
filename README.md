@@ -1,3 +1,7 @@
+**After Conviction, Trump Presents Himself as a Martyr to the Christian Right**\
+`The former president portrayed himself as having “wounds all over” while suggesting that he was being targeted for his support of religious freedoms.`\
+https://nytimes.com/live/2024/06/22/us/biden-trump-election/trump-faith-and-freedom-evangelical-martyr
+
 **Sesko battling quad injury ahead of England game**\
 `Benjamin Sesko is battling a lower quad injury ahead of Slovenia’s European Championship meeting with England on Tuesday.`\
 https://nytimes.com/athletic/5583641/2024/06/22/england-slovenia-benjamin-sesko/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5583550/2024/06/22/spanish-gp-preview-norris-versta
 **Cameron Young shoots 59 at Travelers Championship**\
 `It’s the fist sub-60 round on the PGA Tour since Scottie Scheffler’s 59 at the Northern Trust Open at TPC Boston in 2020.`\
 https://nytimes.com/athletic/5583666/2024/06/22/cameron-young-pga-tour-round-record/
-
-**What I'm hearing about why Jets top prospect Rutger McGroarty is in trade talks**\
-`McGroarty's view of his long-term future with Winnipeg has changed since the conclusion of his NCAA season.`\
-https://nytimes.com/athletic/5583575/2024/06/22/winnipeg-jets-rutger-mcgroarty-trade/
 
