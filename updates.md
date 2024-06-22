@@ -1,3 +1,7 @@
+**Yoro informs Real Madrid he wants to join club**\
+`Lille centre back Leny Yoro has informed Real Madrid that he wishes to join the club.`\
+https://nytimes.com/athletic/5583019/2024/06/22/leny-yoro-real-madrid/
+
 **Wordle Review No. 1,100, June 23, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/06/22/crosswords/wordle-review-no-1100-june-23-2024.html
