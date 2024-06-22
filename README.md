@@ -1,3 +1,7 @@
+**In the Mid-Atlantic and Ohio Valley, some residents are undeterred by the heat.**\
+`By Kevin Williams, Donna M. Owens and Jon Hurdle`\
+https://nytimes.com/live/2024/06/22/us/heat-wave-news/in-the-mid-atlantic-and-ohio-valley-some-residents-are-undeterred-by-the-heat
+
 **A Tenacious and Wild Pekingese Is the Ugliest Dog, After Five Tries**\
 `Meet Wild Thang, an 8-year-old Pekingese from Oregon who had sought the title of “World’s Ugliest” for years. Now, it’s finally his.`\
 https://nytimes.com/2024/06/22/us/worlds-ugliest-dog-wild-thang.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5584023/2024/06/22/kylian-mbappe-france-friendly-ma
 **Silvano Marchetto, Owner of Glitzy Greenwich Village Trattoria, Dies at 77**\
 `Da Silvano was a celebrity hangout, drawing boldface names like Madonna, Barry Diller and Yoko Ono. It was often referred to as the downtown Elaine’s.`\
 https://nytimes.com/2024/06/22/obituaries/silvano-marchetto-dead.html
-
-**Antwann Hill, 4-star QB prospect from Georgia, commits to Memphis**\
-`Entering his senior season this fall, Hill recorded 2,732 yards, 31 touchdowns and five interceptions as a junior.`\
-https://nytimes.com/athletic/5583952/2024/06/22/antwann-hill-qb-memphis-2025/
 
