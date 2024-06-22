@@ -1,3 +1,5 @@
+**An Israeli official described a government bid to cement control of the West Bank, and other news.**\
+
 **LeBrun: As Oilers claw back into Stanley Cup Final, the world witnesses NHL history**\
 `The Oilers are the first team in 79 years to force a Game 7 in the Final after being down 3-0. One more win and they’ll make history again.
 `\
