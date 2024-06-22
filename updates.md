@@ -1,3 +1,11 @@
+**Everton complete Iroegbunam signing from Aston Villa**\
+`Everton have completed the signing of midfielder Tim Iroegbunam from Aston Villa.`\
+https://nytimes.com/athletic/5583064/2024/06/22/tim-iroegbunam-everton-transfer/
+
+**'The job is not done': How Zach Hyman, Leon Draisaitl stepped up to push Oilers to Game 7**\
+`Hyman and Draisaitl were instrumental in creating two goals as part of a well-balanced Oilers attack that is now one win away from the Cup.`\
+https://nytimes.com/athletic/5582879/2024/06/22/oilers-draisaitl-hyman-stanley-cup-final-nhl/
+
 **Israel’s military said its fighter jets had targeted ‘Hamas military infrastructure.’**\
 `By Aaron Boxerman and Rawan Sheikh Ahmad`\
 https://nytimes.com/live/2024/06/22/world/israel-gaza-war-hamas/israels-military-said-its-fighter-jets-had-targeted-hamas-military-infrastructure

@@ -1,3 +1,11 @@
+**Everton complete Iroegbunam signing from Aston Villa**\
+`Everton have completed the signing of midfielder Tim Iroegbunam from Aston Villa.`\
+https://nytimes.com/athletic/5583064/2024/06/22/tim-iroegbunam-everton-transfer/
+
+**'The job is not done': How Zach Hyman, Leon Draisaitl stepped up to push Oilers to Game 7**\
+`Hyman and Draisaitl were instrumental in creating two goals as part of a well-balanced Oilers attack that is now one win away from the Cup.`\
+https://nytimes.com/athletic/5582879/2024/06/22/oilers-draisaitl-hyman-stanley-cup-final-nhl/
+
 **Israel’s military said its fighter jets had targeted ‘Hamas military infrastructure.’**\
 `By Aaron Boxerman and Rawan Sheikh Ahmad`\
 https://nytimes.com/live/2024/06/22/world/israel-gaza-war-hamas/israels-military-said-its-fighter-jets-had-targeted-hamas-military-infrastructure
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5579502/2024/06/22/nhl-free-agency-names-kane-stamk
 **Szymon Marciniak: The World Cup final referee at Euro 2024**\
 `Marciniak made a big call in Real Madrid's win over Bayern Munich but is a hugely experienced official, having refereed the World Cup final`\
 https://nytimes.com/athletic/5572175/2024/06/22/szymon-marciniak-who-euro-2024/
-
-**Bruins fan survey results: Your thoughts on an Ullmark trade, DeBrusk decision, free-agent targets, more**\
-`More than 1,000 Bruins fans weighed in on top priorities, free-agent targets, contract decisions and other offseason topics.`\
-https://nytimes.com/athletic/5577477/2024/06/22/bruins-fan-survey-free-agency-trades/
-
-**Going After the Middleman**\
-`Assistant Attorney General Jonathan Kanter, the Justice Department’s top antitrust official, talked with DealBook about the agency’s focus on middlemen companies and the challenge of A.I.`\
-https://nytimes.com/2024/06/22/business/dealbook/going-after-the-middleman.html
 
