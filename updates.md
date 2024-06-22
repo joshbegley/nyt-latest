@@ -1,3 +1,7 @@
+**Reds use heads-up play to score 2 on bunt in win over Boston**\
+`TJ Friedl, who had 17 bunts for base hits in 2023, laid one down against Boston that helped Cincinnati score two key runs. `\
+https://nytimes.com/athletic/5582637/2024/06/21/reds-bunt-win-red-sox/
+
 **How Oilers won Game 6 vs. Panthers, bringing them to brink of historic Stanley Cup comeback: 5 takeaways**\
 `Game 7 will be Monday in Florida, giving the Oilers a chance to be the second team in NHL history to come back from 3-0 in the Cup Final.`\
 https://nytimes.com/athletic/5579415/2024/06/21/oilers-panthers-stanley-cup-game-6-result-takeaways/
