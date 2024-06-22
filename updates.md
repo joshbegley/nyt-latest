@@ -1,3 +1,7 @@
+**After Hajj Deaths, Egypt Suspends Companies That Took Pilgrims to Mecca**\
+`The action against 16 tour companies came as governments look into whether many travelers were not properly registered to make the journey into the desert.`\
+https://nytimes.com/2024/06/22/world/middleeast/hajj-heat-deaths-egypt.html
+
 **Chelsea hold talks over David transfer**\
 `Chelsea have held talks with the representatives of Lille striker Jonathan David about a potential transfer this summer.`\
 https://nytimes.com/athletic/5583848/2024/06/22/chelsea-jonathan-david-transfer/
