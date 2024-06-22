@@ -1,3 +1,7 @@
+**Cameron Young shoots 59 at Travelers Championship**\
+`It’s the fist sub-60 round on the PGA Tour since Scottie Scheffler’s 59 at the Northern Trust Open at TPC Boston in 2020.`\
+https://nytimes.com/athletic/5583666/2024/06/22/cameron-young-pga-tour-round-record/
+
 **What I'm hearing about why Jets top prospect Rutger McGroarty is in trade talks**\
 `McGroarty's view of his long-term future with Winnipeg has changed since the conclusion of his NCAA season.`\
 https://nytimes.com/athletic/5583575/2024/06/22/winnipeg-jets-rutger-mcgroarty-trade/
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/5555912/2024/06/22/juventus-douglas-luiz-iling-juni
 `In the dark months following the Jan. 6 attack, Donald J. Trump opened up to an entertainment journalist, revealing his fixation with celebrity, acceptance and the TV show that made him.`\
 https://nytimes.com/2024/06/22/us/politics/trump-apprentice-book.html
 
-**The Briefing: Turkey 0-3 Portugal - win secures top spot, Ronaldo's mixed emotions and that own goal**\
+**The Briefing: Turkey 0-3 Portugal - win secures top spot as pitch invaders target Ronaldo**\
 `Our writers analyse the key talking points from Portugal's victory over Turkey, which takes them into the round of 16 as group winners`\
 https://nytimes.com/athletic/5580934/2024/06/22/turkey-portugal-ronaldo-analysis/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5583540/2024/06/22/klay-thompson-free-agency-warrio
 **Leao suspended after two yellow cards for diving at Euros**\
 `Rafael Leao will miss Portugal’s final Euro 2024 group-stage game through suspension after receiving two yellow cards for diving.`\
 https://nytimes.com/athletic/5583609/2024/06/22/rafael-leao-dive-yellow-cards/
-
-**Real Madrid captain Nacho set to join Al Qadsiah**\
-`Real Madrid captain Nacho is set to join Saudi Pro League side Al Qadsiah.`\
-https://nytimes.com/athletic/5583582/2024/06/22/nacho-transfer-saudi-arabia/
 

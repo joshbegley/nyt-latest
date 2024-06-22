@@ -1,3 +1,11 @@
+**Cameron Young shoots 59 at Travelers Championship**\
+`It’s the fist sub-60 round on the PGA Tour since Scottie Scheffler’s 59 at the Northern Trust Open at TPC Boston in 2020.`\
+https://nytimes.com/athletic/5583666/2024/06/22/cameron-young-pga-tour-round-record/
+
+**The Briefing: Turkey 0-3 Portugal - win secures top spot as pitch invaders target Ronaldo**\
+`Our writers analyse the key talking points from Portugal's victory over Turkey, which takes them into the round of 16 as group winners`\
+https://nytimes.com/athletic/5580934/2024/06/22/turkey-portugal-ronaldo-analysis/
+
 **What I'm hearing about why Jets top prospect Rutger McGroarty is in trade talks**\
 `McGroarty's view of his long-term future with Winnipeg has changed since the conclusion of his NCAA season.`\
 https://nytimes.com/athletic/5583575/2024/06/22/winnipeg-jets-rutger-mcgroarty-trade/
