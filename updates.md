@@ -1,3 +1,7 @@
+**Spanish GP preview: Will F1 get the Verstappen-Norris battle it’s been waiting for?**\
+`Plus: Ferrari's struggles, Alpine's prime opportunity ... and is Mercedes back? `\
+https://nytimes.com/athletic/5583550/2024/06/22/spanish-gp-preview-norris-verstappen-battle/
+
 **Cameron Young shoots 59 at Travelers Championship**\
 `It’s the fist sub-60 round on the PGA Tour since Scottie Scheffler’s 59 at the Northern Trust Open at TPC Boston in 2020.`\
 https://nytimes.com/athletic/5583666/2024/06/22/cameron-young-pga-tour-round-record/
