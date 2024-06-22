@@ -1,3 +1,7 @@
+**Panthers rattled after blowing 3-0 series lead to Oilers: 'You feel it. It hurts'**\
+`The stress of the situation seems to be getting to them. Can they rebound? "You lick your wounds, and we start building that back tomorrow."`\
+https://nytimes.com/athletic/5582706/2024/06/22/panthers-oilers-stanley-cup-blown-lead/
+
 **Corrections: June 22, 2024**\
 `Corrections that appeared in print on Saturday, June 22, 2024.`\
 https://nytimes.com/2024/06/22/pageoneplus/corrections-june-22-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5582446/2024/06/22/kylian-mbappe-france-euros-impac
 **Euro 2024 is not a rebellion against Pep Guardiola's football - it's a vindication of his ideas**\
 `Don't believe the hype: the best teams at this summer's European Championship are employing many of the Manchester City manager's principles`\
 https://nytimes.com/athletic/5581299/2024/06/22/euro-2024-football-style-guardiola/
-
-**Southgate feels England are too tired to press - is he right?**\
-`Players looked 'shattered' against Denmark – but is that just down to the number of minutes in their legs?`\
-https://nytimes.com/athletic/5581153/2024/06/22/gareth-southgate-feels-england-are-too-tired-to-press-is-he-right/
 
