@@ -1,3 +1,7 @@
+**Curious Tourists and Modern-Day Druids: Marking the Solstice at Stonehenge**\
+`To celebrate the celestial event, the ropes come down at the ancient monument, and visitors spend the night to greet the sunrise.`\
+https://nytimes.com/2024/06/22/travel/stonehenge-solstice-celebration.html
+
 **Everton complete Iroegbunam signing from Aston Villa**\
 `Everton have completed the signing of midfielder Tim Iroegbunam from Aston Villa.`\
 https://nytimes.com/athletic/5583064/2024/06/22/tim-iroegbunam-everton-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5581599/2024/06/22/blues-martin-necas-offer-sheet/
 **NHL free agency 2024: Every team’s toughest decision, from Stamkos to Kane to the Panthers' Big 2**\
 `With the draft coming Thursday and unrestricted free agency opening July 1, now is the time for teams to figure out their paths forward.`\
 https://nytimes.com/athletic/5579502/2024/06/22/nhl-free-agency-names-kane-stamkos-reinhart/
-
-**Szymon Marciniak: The World Cup final referee at Euro 2024**\
-`Marciniak made a big call in Real Madrid's win over Bayern Munich but is a hugely experienced official, having refereed the World Cup final`\
-https://nytimes.com/athletic/5572175/2024/06/22/szymon-marciniak-who-euro-2024/
 
