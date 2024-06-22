@@ -1,3 +1,7 @@
+**Who says no? Evaluating your Knicks trade proposals in the offseason**\
+`Knicks beat writer Fred Katz runs through several different scenarios and trades submitted by readers.`\
+https://nytimes.com/athletic/5582371/2024/06/22/knicks-trade-proposals-offseason-who-says-no/
+
 **Newcastle in discussions with Everton over Calvert-Lewin deal**\
 `Newcastle United are in discussions with Everton over a deal for striker Dominic Calvert-Lewin.`\
 https://nytimes.com/athletic/5582878/2024/06/22/newcastle-in-discussions-with-everton-over-dominic-calvert-lewin-deal/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/22/books/novels-set-over-one-single-day.html
 **Toxic Moonshine Leaves at Least 53 Dead in India’s South**\
 `Consumption of tainted bootleg alcohol has caused several instances of mass deaths in recent years as drinkers seek out illicit liquor to save money or evade the law.`\
 https://nytimes.com/2024/06/22/world/asia/toxic-moonshine-death-india.html
-
-**PSG have not paid Mbappe's salary for past two months**\
-`Paris Saint-Germain have not paid Kylian Mbappe his salary for the past two months in a fresh sign of tensions with the player — who is about to join Real Madrid.`\
-https://nytimes.com/athletic/5582256/2024/06/22/kylian-mbappe-psg-real-madrid-salary/
 
