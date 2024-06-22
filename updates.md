@@ -1,3 +1,7 @@
+**Peru coach points to field as possible cause of Advincula injury**\
+`Jorge Fossati pointed to the field at AT&amp;T Stadium as a possible cause of the injury that forced Luis Advincula off against Chile.`\
+https://nytimes.com/athletic/5583359/2024/06/22/luis-advincula-injury-peru-copa-america/
+
 **New ‘Apprentice’ Book Paints Trump as Wounded, Forgetful and Hung Up on Hollywood**\
 `In the dark months following the Jan. 6 attack, Donald J. Trump opened up to an entertainment journalist, revealing his fixation with celebrity, acceptance and the TV show that made him.`\
 https://nytimes.com/2024/06/22/us/politics/trump-apprentice-book.html
