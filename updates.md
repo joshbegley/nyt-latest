@@ -1,3 +1,7 @@
+**Barry Sanders experienced heart-related 'health scare'**\
+`Sanders, who turns 56 in July, said he is "taking this opportunity to prioritize my health and well-being."`\
+https://nytimes.com/athletic/5582410/2024/06/21/barry-sanders-health-scare-heart-lions/
+
 **‘Doctor Who’ Finale Recap: Answers Through the Tears**\
 `Ncuti’s Gatwa’s first season as the Doctor closes with a typically ambitious episode.`\
 https://nytimes.com/2024/06/21/arts/television/doctor-who-finale-recap.html

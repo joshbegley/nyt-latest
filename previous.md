@@ -1,3 +1,7 @@
+**Barry Sanders experienced heart-related 'health scare'**\
+`Sanders, who turns 56 in July, said he is "taking this opportunity to prioritize my health and well-being."`\
+https://nytimes.com/athletic/5582410/2024/06/21/barry-sanders-health-scare-heart-lions/
+
 **‘Doctor Who’ Finale Recap: Answers Through the Tears**\
 `Ncuti’s Gatwa’s first season as the Doctor closes with a typically ambitious episode.`\
 https://nytimes.com/2024/06/21/arts/television/doctor-who-finale-recap.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/21/world/middleeast/iran-presidential-election-what-
 **New Drug Provides Total Protection From H.I.V. in Trial of Young African Women**\
 `An injection given just twice a year could herald a breakthrough in protecting the population that has the highest infection rates.`\
 https://nytimes.com/2024/06/21/health/lenacapavir-hiv-prevention-africa.html
-
-**The Other Showdown to Watch Next Week**\
-`A New York Democratic primary sheds light on the split over Gaza and the party’s leftward shift.`\
-https://nytimes.com/2024/06/21/us/politics/jamaal-bowman-ny-primary-election.html
 
