@@ -1,3 +1,11 @@
+**USMNT XI to face Bolivia: Will Tyler Adams start?**\
+`Our writers predict the USMNT starting lineup against Bolivia in Copa America `\
+https://nytimes.com/athletic/5582488/2024/06/22/usmnt-starting-lineup-bolivia/
+
+**Chelsea close to agreement with Aston Villa for Kellyman**\
+`Chelsea are close to an agreement with Aston Villa to sign 18-year-old midfielder Omari Kellyman.`\
+https://nytimes.com/athletic/5582861/2024/06/22/omari-kellyman-chelsea-aston-villa-transfer/
+
 **Hezbollah Has Threatened Cyprus. Here’s Why.**\
 `Hassan Nasrallah, Hezbollah’s chief, warned that the armed group would punish the small island nation if it allowed Israel to use its airports and bases to target Lebanon.`\
 https://nytimes.com/2024/06/22/world/middleeast/hezbollah-cyprus.html
