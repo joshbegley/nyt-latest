@@ -1,3 +1,11 @@
+**Hezbollah Has Threatened Cyprus. Here’s Why.**\
+`Hassan Nasrallah, Hezbollah’s chief, warned that the armed group would punish the small island nation if it allowed Israel to use its airports and bases to target Lebanon.`\
+https://nytimes.com/2024/06/22/world/middleeast/hezbollah-cyprus.html
+
+**Chelsea close to agreement with Aston Villa for Kellyman**\
+`<p>Chelsea are close to an agreement with Aston Villa to sign 18-year-old midfielder Omari Kellyman.`\
+https://nytimes.com/athletic/5582861/2024/06/22/omari-kellyman-chelsea-aston-villa-transfer/
+
 **Joe Mazzulla takes to streets of Boston as city embraces the coach who delivered Banner 18**\
 `Mazzulla went through a difficult road to become a championship coach. But the city that once doubted him embraced him at the parade.`\
 https://nytimes.com/athletic/5582339/2024/06/22/joe-mazzulla-celtics-parade/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/22/style/kevin-kwans-art-deco-heirloom.html
 **Listening Through the Life of George Crumb**\
 `In a rarity for contemporary music, the entire catalog of Crumb, who died two years ago, has been recorded and released in 21 volumes.`\
 https://nytimes.com/2024/06/22/arts/music/george-crumb-composer-recordings.html
-
-**These Grieving Parents Want Congress to Protect Children Online**\
-`A group is using the Mothers Against Drunk Driving playbook, sharing personal tragedies, to lobby for the Kids Online Safety Act.`\
-https://nytimes.com/2024/06/22/technology/kosa-child-safety-online.html
-
-**Tree of Life Synagogue to Break Ground on New Sanctuary, and New Mission**\
-`A museum on the history of antisemitism will be part of the new building, alongside a memorial to the 11 worshipers killed in the 2018 attack in Pittsburgh.`\
-https://nytimes.com/2024/06/22/us/tree-of-life-groundbreaking.html
 
