@@ -1,3 +1,11 @@
+**Sunderland appoint Le Bris as new manager**\
+`Sunderland have appointed Regis Le Bris as their new manager.`\
+https://nytimes.com/athletic/5568689/2024/06/22/sunderland-manager-appoint-regis-le-bris/
+
+**Martinez concerned for player safety after Portugal pitch invasions**\
+`Roberto Martinez has admitted to concern for his players&#8217; safety after Portugal&#8217;s win over Turkey in Dortmund was marred by pitch invasions from supporters.`\
+https://nytimes.com/athletic/5583813/2024/06/22/portugal-cristiano-ronaldo-pitch-invaders/
+
 **Spanish GP preview: Will F1 get the Verstappen-Norris battle it’s been waiting for?**\
 `Plus: Ferrari's struggles, Alpine's prime opportunity ... and is Mercedes back? `\
 https://nytimes.com/athletic/5583550/2024/06/22/spanish-gp-preview-norris-verstappen-battle/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/22/arts/music/jeremy-tepper-dead.html
 **Heat-Related Illnesses Spiked in Some Regions This Week, C.D.C. Data Shows**\
 `Regions that had “extremely high” rates of such illnesses included swaths of New England, the Midwest and the Mid-Atlantic, all areas that have been hit the hardest by the heat wave.`\
 https://nytimes.com/2024/06/22/us/heat-wave-illness-er-cdc.html
-
-**The Israeli military says troops have tied a wounded Palestinian to a vehicle.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/06/22/world/israel-gaza-war-hamas/the-israeli-military-says-troops-have-tied-a-wounded-palestinian-to-a-vehicle
-
-**Negotiations between Klay Thompson, Warriors frozen as free agency looms**\
-`With free agency now less than 10 days away, Thompson's exit from the Warriors feels closer and more probable than ever before.`\
-https://nytimes.com/athletic/5583540/2024/06/22/klay-thompson-free-agency-warriors-negotiations/
 
