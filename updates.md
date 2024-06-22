@@ -1,3 +1,7 @@
+**The Briefing: Belgium 2 Romania 0 - Lukaku denied again, a 73-second goal and the tightest of groups**\
+`Our writers break down the key moments from Saturday evening's game in Cologne `\
+https://nytimes.com/athletic/5580935/2024/06/22/belgium-romania-euro-2024-result-analysis/
+
 **Antwann Hill, 4-star QB prospect from Georgia, commits to Memphis**\
 `Entering his senior season this fall, Hill recorded 2,732 yards, 31 touchdowns and five interceptions as a junior.`\
 https://nytimes.com/athletic/5583952/2024/06/22/antwann-hill-qb-memphis-2025/
