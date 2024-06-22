@@ -1,3 +1,7 @@
+**Fantasy baseball notebook: Trusting your eyes vs. trusting the numbers, re-thinking Nats pitching and more**\
+`Derek VanRiper lauds the surprising development of Washington pitching, proclaims Willie Mays the greatest player in MLB history and more.`\
+https://nytimes.com/athletic/5579472/2024/06/22/fantasy-baseball-notebook-ros-projections-nats-pitching-rates-barrels/
+
 **Braves keep slugging in rout of Yankees, but how long will aces keep getting extra rest?**\
 `This is the longest Chris Sale has stayed healthy since 2019, and he should surpass last year's innings total by the All-Star break. `\
 https://nytimes.com/athletic/5582640/2024/06/22/braves-chris-sale-extra-rest/
