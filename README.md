@@ -2,13 +2,13 @@
 `Jorge Fossati pointed to the field at AT&amp;T Stadium as a possible cause of the injury that forced Luis Advincula off against Chile.`\
 https://nytimes.com/athletic/5583359/2024/06/22/luis-advincula-injury-peru-copa-america/
 
-**Cristopher Sánchez, Phillies agree to 4-year extension**\
-`The deal includes two club options that cover what would be Sánchez's first two free-agent years — 2029 and 2030.`\
-https://nytimes.com/athletic/5583373/2024/06/22/cristopher-sanchez-contract-extension-phillies/
-
 **Mets place Sean Reid-Foley on IL, Danny Young called up**\
 `Young, who has impressed in limited action, is expected to meet the Mets in Chicago on Saturday.`\
 https://nytimes.com/athletic/5583412/2024/06/22/mets-sean-reid-foley-injured/
+
+**Cristopher Sánchez, Phillies agree to 4-year extension**\
+`The deal includes two club options that cover what would be Sánchez's first two free-agent years — 2029 and 2030.`\
+https://nytimes.com/athletic/5583373/2024/06/22/cristopher-sanchez-contract-extension-phillies/
 
 **Chelsea confirm deal to sign Estevao from Palmeiras**\
 `Chelsea have confirmed an agreement to sign Brazilian teenager Estevao Willian from Palmeiras.`\
