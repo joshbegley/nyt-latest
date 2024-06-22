@@ -1,3 +1,7 @@
+**A Tenacious and Wild Pekingese Is the Ugliest Dog, After Five Tries**\
+`Meet Wild Thang, an 8-year-old Pekingese from Oregon who had sought the title of “World’s Ugliest” for years. Now, it’s finally his.`\
+https://nytimes.com/2024/06/22/us/worlds-ugliest-dog-wild-thang.html
+
 **The four changes that may have turned Belgium back into contenders for Euro 2024**\
 `Domenico Tedesco brought Vertonghen, Theate, Tielemans and Lukebakio into his starting XI and each adjustment made a difference`\
 https://nytimes.com/athletic/5584041/2024/06/22/belgium-euro-2024-changes-improvement/
