@@ -1,3 +1,7 @@
+**2 Novels Set Over Very Memorable Days**\
+`A dinner party at the other woman’s house; the evening before a jail sentence.`\
+https://nytimes.com/2024/06/22/books/novels-set-over-one-single-day.html
+
 **Toxic Moonshine Leaves at Least 53 Dead in India’s South**\
 `Consumption of tainted bootleg alcohol has caused several instances of mass deaths in recent years as drinkers seek out illicit liquor to save money or evade the law.`\
 https://nytimes.com/2024/06/22/world/asia/toxic-moonshine-death-india.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/22/opinion/louisiana-ten-commandments.html
 **Why Netanyahu Doesn’t Take Biden Seriously**\
 `By averting his eyes as his red lines are ignored, Biden is wasting his leverage over Israel.`\
 https://nytimes.com/2024/06/22/opinion/gaza-israel-biden-netanyahu.html
-
-**Sean Penn, Rebel With Many Causes**\
-`He’s just as intense, but a bit more mellow. Or is he?`\
-https://nytimes.com/2024/06/22/opinion/sean-penn-profile.html
 
