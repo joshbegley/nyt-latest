@@ -1,3 +1,27 @@
+**George has left, Osimhen ban had to be denied - so what's happening with Nigeria?**\
+`Nigeria have had a chaotic week after Finidi George left his job as head coach`\
+https://nytimes.com/athletic/5572606/2024/06/22/nigeria-finidi-george-victor-osimhen/
+
+**Putin Came to Asia to Disrupt, and He Succeeded**\
+`His embrace of North Korea and deal making with Vietnam injected more potential threats into a region already strained by Taiwan tensions and South China Sea clashes.`\
+https://nytimes.com/2024/06/22/world/asia/putin-korea-china-disruption.html
+
+**For Turkish Germans, Heart Overrules Home at Euro 2024**\
+`A soccer championship has doubled as a test of identity for millions of Germans with Turkish roots. For many, picking one team to support was an easy decision.`\
+https://nytimes.com/2024/06/22/world/europe/european-championship-euros-germany-turkey.html
+
+**Slur by Francis Lays Bare the Church’s Contradictions on Homosexuality**\
+`The pope used homophobic slang and cautioned prelates about admitting gay men into seminaries. But ordination has also long been a refuge for gay faithful.`\
+https://nytimes.com/2024/06/22/world/europe/pope-slur-church-lgbtq.html
+
+**Proactive and relentlessly direct: Gordon is precisely what England need**\
+`Gordon is the antithesis of the ponderous, pedestrian and predictable approach shown by England - surely now is the time to use him`\
+https://nytimes.com/athletic/5580343/2024/06/22/anthony-gordon-england-slovenia/
+
+**It’s Fine if Investing Bores You. Some Money Pros Feel the Same Way.**\
+`For many financial professionals, investing is just a tool to help people achieve their meaningful life goals.`\
+https://nytimes.com/2024/06/22/your-money/financial-advisers-investing-goals.html
+
 **U.S. loses to West Indies at T20 World Cup**\
 `The United States suffered a heavy loss to the West Indies in the Super Eight phase of the T20 Cricket World Cup.`\
 https://nytimes.com/athletic/5582544/2024/06/21/usa-cricket-world-cup-west-indies-qualify/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5579415/2024/06/21/oilers-panthers-stanley-cup-game
 **Cole Hamels returns for Phillies celebration, wants future role: 'I just want to be an asset'**\
 `The 2008 World Series MVP wants to work with this generation of pitchers. `\
 https://nytimes.com/athletic/5582533/2024/06/21/phillies-cole-hamels/
-
-**Man Fatally Stabbed at Manhattan Subway Station, Police Say**\
-`The stabbing, during a dispute between two people, occurred just before 6 p.m. at the West 175th Street A train station.`\
-https://nytimes.com/2024/06/21/nyregion/subway-station-stabbing.html
-
-**Trading Card Enthusiasts?**\
-`Hoang-Kim Vu’s latest themeless puzzle will have you singing while you solve.`\
-https://nytimes.com/2024/06/21/crosswords/daily-puzzle-2024-06-22.html
-
-**Here's what new Pistons president Trajan Langdon said in his introductory news conference**\
-`Langdon joined owner Tom Gores, and here are the most important things they said, plus analysis on the comments. `\
-https://nytimes.com/athletic/5581991/2024/06/21/pistons-trajan-langdon-owner-tom-gores/
-
-**PWHL Toronto signs star forward Daryl Watts in free agency**\
-`Daryl Watts signed a two-year deal with PWHL Toronto, the team announced on Friday night.`\
-https://nytimes.com/athletic/5582342/2024/06/21/pwhl-toronto-signs-daryl-watts/
-
-**The Culture Wars Came to a California Suburb. A Leader Has Been Ousted.**\
-`Voters recalled a Southern California school board president after his conservative majority approved policies on critical race theory and transgender issues.`\
-https://nytimes.com/2024/06/21/us/temecula-school-board-recall.html
-
-**Endrick not rushing to be Brazil starter: 'No one needs to skip steps'**\
-`Brazil starlet Endrick says that he will patiently wait for opportunities if — as expected — he is not initially a starter for his country at Copa America.`\
-https://nytimes.com/athletic/5582359/2024/06/21/brazil-copa-america-endrick-real-madrid/
 
