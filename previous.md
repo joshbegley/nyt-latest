@@ -1,3 +1,7 @@
+**New ‘Apprentice’ Book Paints Trump as Wounded, Forgetful and Hung Up on Hollywood**\
+`In the dark months following the Jan. 6 attack, Donald J. Trump opened up to an entertainment journalist, revealing his fixation with celebrity, acceptance and the TV show that made him.`\
+https://nytimes.com/2024/06/22/us/politics/trump-apprentice-book.html
+
 **The Briefing: Turkey 0-3 Portugal - win secures top spot, Ronaldo's mixed emotions and that own goal**\
 `Our writers analyse the key talking points from Portugal's victory over Turkey, which takes them into the round of 16 as group winners`\
 https://nytimes.com/athletic/5580934/2024/06/22/turkey-portugal-ronaldo-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/22/us/politics/republican-convention-security-protes
 **Wolves reject West Ham, Newcastle offers for Kilman**\
 `Wolverhampton Wanderers have rejected offers from West Ham United and Newcastle United for captain Max Kilman.`\
 https://nytimes.com/athletic/5583545/2024/06/22/max-kilman-transfer-wolves-newcastle/
-
-**Peru coach points to field as possible cause of Advincula injury**\
-`Jorge Fossati pointed to the field at AT&amp;T Stadium as a possible cause of the injury that forced Luis Advincula off against Chile.`\
-https://nytimes.com/athletic/5583359/2024/06/22/luis-advincula-injury-peru-copa-america/
 
