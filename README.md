@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5580935/2024/06/22/belgium-romania-euro-2024-result
 https://nytimes.com/athletic/5583906/2024/06/22/bayindir-turkey-portugal-manchester-united/
 
 **Ronaldo: The performance, the pitch invaders and a moment of Portuguese purity**\
-`Cristiano Ronaldo did not score against Turkey but he certainly had an eventful 90 minutes`\
+`Cristiano Ronaldo did not score against Turkey, but he certainly had an eventful 90 minutes`\
 https://nytimes.com/athletic/5583739/2024/06/22/cristiano-ronaldo-portugal-turkey/
 
 **After Conviction, Trump Presents Himself as a Martyr to the Christian Right**\
