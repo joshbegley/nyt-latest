@@ -1,3 +1,7 @@
+**Panthers rattled after blowing 3-0 series lead to Oilers: 'You feel it. It hurts'**\
+`The stress of the situation seems to be getting to them. Can they rebound? "You lick your wounds, and we start building that back tomorrow."`\
+https://nytimes.com/athletic/5582706/2024/06/22/panthers-oilers-stanley-cup-blown-lead/
+
 **Corrections: June 22, 2024**\
 `Corrections that appeared in print on Saturday, June 22, 2024.`\
 https://nytimes.com/2024/06/22/pageoneplus/corrections-june-22-2024.html
