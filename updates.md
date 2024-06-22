@@ -1,3 +1,7 @@
+**Grocery Store Shooting That Killed 3 Leaves an Arkansas Town in Disbelief**\
+`The small town of Fordyce, Ark., was beginning to absorb the impact of the bloodshed, as a few details began to emerge.`\
+https://nytimes.com/2024/06/22/us/arkansas-shooting-grocery-store.html
+
 **Donald Trump Said He Proposed a ‘Migrant League of Fighters’**\
 `Mr. Trump said his suggestion to Dana White, who runs the Ultimate Fighting Championship, was not well received. But, he added, “It’s not the worst idea I’ve ever had.”`\
 https://nytimes.com/2024/06/22/us/politics/donald-trump-said-he-proposed-a-migrant-league-of-fighters.html
