@@ -1,3 +1,11 @@
+**Oilers, on brink of historic comeback, force Stanley Cup Game 7 vs. Panthers with 5-1 Game 6 win**\
+`Game 7 will be Monday in Florida, giving the Oilers a chance to be the second team in NHL history to come back from 3-0 in the Cup Final.`\
+https://nytimes.com/athletic/5579415/2024/06/21/oilers-panthers-stanley-cup-game-6-result-takeaways/
+
+**Man Fatally Stabbed at Manhattan Subway Station, Police Say**\
+`The stabbing, during a dispute between two people, occurred just before 6 p.m. at the West 175th Street A train station.`\
+https://nytimes.com/2024/06/21/nyregion/subway-station-stabbing.html
+
 **Oilers on brink of historic comeback, forcing Stanley Cup Game 7 vs. Panthers with 5-1 Game 6 win**\
 `Game 7 will be Monday in Florida, giving the Oilers a chance to be the second team in NHL history to come back from 3-0 in the Cup Final.`\
 https://nytimes.com/athletic/5579415/2024/06/21/oilers-panthers-stanley-cup-game-6-result-takeaways/
