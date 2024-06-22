@@ -22,13 +22,13 @@ https://nytimes.com/athletic/5579502/2024/06/22/nhl-free-agency-names-kane-stamk
 `Marciniak made a big call in Real Madrid's win over Bayern Munich but is a hugely experienced official, having refereed the World Cup final`\
 https://nytimes.com/athletic/5572175/2024/06/22/szymon-marciniak-who-euro-2024/
 
-**Going After the Middleman**\
-`Assistant Attorney General Jonathan Kanter, the Justice Department’s top antitrust official, talked with DealBook about the agency’s focus on middlemen companies and the challenge of A.I.`\
-https://nytimes.com/2024/06/22/business/dealbook/going-after-the-middleman.html
-
 **Bruins fan survey results: Your thoughts on an Ullmark trade, DeBrusk decision, free-agent targets, more**\
 `More than 1,000 Bruins fans weighed in on top priorities, free-agent targets, contract decisions and other offseason topics.`\
 https://nytimes.com/athletic/5577477/2024/06/22/bruins-fan-survey-free-agency-trades/
+
+**Going After the Middleman**\
+`Assistant Attorney General Jonathan Kanter, the Justice Department’s top antitrust official, talked with DealBook about the agency’s focus on middlemen companies and the challenge of A.I.`\
+https://nytimes.com/2024/06/22/business/dealbook/going-after-the-middleman.html
 
 **2 Novels Set Over Very Memorable Days**\
 `A dinner party at the other woman’s house; the evening before a jail sentence.`\
