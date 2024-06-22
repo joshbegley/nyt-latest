@@ -1,3 +1,7 @@
+**U.S. loses to West Indies at T20 World Cup**\
+`The United States suffered a heavy loss to the West Indies in the Super Eight phase of the T20 Cricket World Cup.`\
+https://nytimes.com/athletic/5582544/2024/06/21/usa-cricket-world-cup-west-indies-qualify/
+
 **Reds use heads-up play to score 2 on bunt in win over Boston**\
 `TJ Friedl, who had 17 bunts for base hits in 2023, laid one down against Boston that helped Cincinnati score two key runs. `\
 https://nytimes.com/athletic/5582637/2024/06/21/reds-bunt-win-red-sox/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/21/us/temecula-school-board-recall.html
 **Endrick not rushing to be Brazil starter: 'No one needs to skip steps'**\
 `Brazil starlet Endrick says that he will patiently wait for opportunities if — as expected — he is not initially a starter for his country at Copa America.`\
 https://nytimes.com/athletic/5582359/2024/06/21/brazil-copa-america-endrick-real-madrid/
-
-**Barry Sanders experienced heart-related 'health scare'**\
-`Sanders, who turns 56 in July, said he is "taking this opportunity to prioritize my health and well-being."`\
-https://nytimes.com/athletic/5582410/2024/06/21/barry-sanders-health-scare-heart-lions/
 
