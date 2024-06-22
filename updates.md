@@ -1,3 +1,11 @@
+**Israel’s military said its fighter jets had targeted ‘Hamas military infrastructure.’**\
+`By Aaron Boxerman and Rawan Sheikh Ahmad`\
+https://nytimes.com/live/2024/06/22/world/israel-gaza-war-hamas/israels-military-said-its-fighter-jets-had-targeted-hamas-military-infrastructure
+
+**Spain's Laporte 'annoyed' by pre-Euro 2024 debate over his fitness**\
+`Spain defender Aymeric Laporte has hit out at those who questioned his fitness levels and physical state ahead of Euro 2024.`\
+https://nytimes.com/athletic/5583017/2024/06/22/aymeric-laporte-spain-euro-2024-fitness/
+
 **Who says no? Evaluating your Knicks trade proposals in the offseason**\
 `Knicks beat writer Fred Katz runs through several different scenarios and trades submitted by readers.`\
 https://nytimes.com/athletic/5582371/2024/06/22/knicks-trade-proposals-offseason-who-says-no/
