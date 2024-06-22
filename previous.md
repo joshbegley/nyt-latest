@@ -1,3 +1,7 @@
+**The Israeli military says troops have tied a wounded Palestinian to a vehicle.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/06/22/world/israel-gaza-war-hamas/the-israeli-military-says-troops-have-tied-a-wounded-palestinian-to-a-vehicle
+
 **Negotiations between Klay Thompson, Warriors frozen as free agency looms**\
 `With free agency now less than 10 days away, Thompson's exit from the Warriors feels closer and more probable than ever before.`\
 https://nytimes.com/athletic/5583540/2024/06/22/klay-thompson-free-agency-warriors-negotiations/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5583373/2024/06/22/cristopher-sanchez-contract-exte
 **Chelsea confirm deal to sign Estevao from Palmeiras**\
 `Chelsea have confirmed an agreement to sign Brazilian teenager Estevao Willian from Palmeiras.`\
 https://nytimes.com/athletic/5583374/2024/06/22/chelsea-estevao-willian-transfer-confirmed/
-
-**A No-Fuss, Fantastic Eggplant Recipe**\
-`No soaking or salting is needed for Zainab Shah’s borani banjan: just a quick fry before the eggplant is nestled into garlicky yogurt and topped with tomato, pomegranate and mint.`\
-https://nytimes.com/2024/06/22/dining/borani-banjan-eggplant-recipe.html
 

@@ -1,3 +1,7 @@
+**The Israeli military says troops have tied a wounded Palestinian to a vehicle.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/06/22/world/israel-gaza-war-hamas/the-israeli-military-says-troops-have-tied-a-wounded-palestinian-to-a-vehicle
+
 **Negotiations between Klay Thompson, Warriors frozen as free agency looms**\
 `With free agency now less than 10 days away, Thompson's exit from the Warriors feels closer and more probable than ever before.`\
 https://nytimes.com/athletic/5583540/2024/06/22/klay-thompson-free-agency-warriors-negotiations/
