@@ -1,3 +1,7 @@
+**Joe Mazzulla takes to streets of Boston as city embraces the coach who delivered Banner 18**\
+`Mazzulla went through a difficult road to become a championship coach. But the city that once doubted him embraced him at the parade.`\
+https://nytimes.com/athletic/5582339/2024/06/22/joe-mazzulla-celtics-parade/
+
 **Gretchen Whitmer Wants a Gen X President — in 2028**\
 `The governor of Michigan isn’t saying it should be her, but she’s not saying it shouldn’t be, either.`\
 https://nytimes.com/2024/06/22/magazine/gretchen-whitmer-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/22/technology/kosa-child-safety-online.html
 **Tree of Life Synagogue to Break Ground on New Sanctuary, and New Mission**\
 `A museum on the history of antisemitism will be part of the new building, alongside a memorial to the 11 worshipers killed in the 2018 attack in Pittsburgh.`\
 https://nytimes.com/2024/06/22/us/tree-of-life-groundbreaking.html
-
-**How a Boston Physician Conquered the Thriller Genre**\
-`After getting her start by self-publishing, Freida McFadden is now the fastest selling thriller writer in the United States.`\
-https://nytimes.com/2024/06/22/books/freida-mcfadden-thriller-best-seller.html
 

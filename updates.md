@@ -1,3 +1,7 @@
+**Joe Mazzulla takes to streets of Boston as city embraces the coach who delivered Banner 18**\
+`Mazzulla went through a difficult road to become a championship coach. But the city that once doubted him embraced him at the parade.`\
+https://nytimes.com/athletic/5582339/2024/06/22/joe-mazzulla-celtics-parade/
+
 **Gretchen Whitmer Wants a Gen X President — in 2028**\
 `The governor of Michigan isn’t saying it should be her, but she’s not saying it shouldn’t be, either.`\
 https://nytimes.com/2024/06/22/magazine/gretchen-whitmer-interview.html
