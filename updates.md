@@ -1,3 +1,7 @@
+**Chelsea close to agreement with Aston Villa for Kellyman**\
+`Chelsea are close to an agreement with Aston Villa to sign 18-year-old forward Omari Kellyman.`\
+https://nytimes.com/athletic/5582861/2024/06/22/omari-kellyman-chelsea-aston-villa-transfer/
+
 **USMNT XI to face Bolivia: Will Tyler Adams start?**\
 `Our writers predict the USMNT starting lineup against Bolivia in Copa America `\
 https://nytimes.com/athletic/5582488/2024/06/22/usmnt-starting-lineup-bolivia/
