@@ -1,3 +1,7 @@
+**The schools and clubs that made the USMNT's Copa America roster**\
+`We've collected messages of support from the schools and grassroots clubs for several of the USMNT’s key players at Copa America`\
+https://nytimes.com/athletic/5576855/2024/06/22/usmnt-copa-america-roster-school-messages/
+
 **Consider the Beach**\
 `With much of the U.S. experiencing a heat wave, let us consider the beach and all its promises and pitfalls.`\
 https://nytimes.com/2024/06/22/briefing/embracing-the-beach.html

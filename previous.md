@@ -1,3 +1,7 @@
+**The schools and clubs that made the USMNT's Copa America roster**\
+`We've collected messages of support from the schools and grassroots clubs for several of the USMNT’s key players at Copa America`\
+https://nytimes.com/athletic/5576855/2024/06/22/usmnt-copa-america-roster-school-messages/
+
 **Consider the Beach**\
 `With much of the U.S. experiencing a heat wave, let us consider the beach and all its promises and pitfalls.`\
 https://nytimes.com/2024/06/22/briefing/embracing-the-beach.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/22/world/middleeast/hezbollah-cyprus.html
 **Chelsea close to agreement with Aston Villa for Kellyman**\
 `Chelsea are close to an agreement with Aston Villa to sign 18-year-old forward Omari Kellyman.`\
 https://nytimes.com/athletic/5582861/2024/06/22/omari-kellyman-chelsea-aston-villa-transfer/
-
-**Joe Mazzulla takes to streets of Boston as city embraces the coach who delivered Banner 18**\
-`Mazzulla went through a difficult road to become a championship coach. But the city that once doubted him embraced him at the parade.`\
-https://nytimes.com/athletic/5582339/2024/06/22/joe-mazzulla-celtics-parade/
 
