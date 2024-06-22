@@ -1,3 +1,7 @@
+**Altay Bayindir, the slapstick own goal and a moment to sum up one man's rustiness**\
+`Manchester United's backup goalkeeper arrived at Euro 2024 with 157 minutes of action to his name since last August – and it showed`\
+https://nytimes.com/athletic/5583906/2024/06/22/bayindir-turkey-portugal-manchester-united/
+
 **Ronaldo: The performance, the pitch invaders and a moment of Portuguese purity**\
 `Cristiano Ronaldo did not score against Turkey but he certainly had an eventful 90 minutes`\
 https://nytimes.com/athletic/5583739/2024/06/22/cristiano-ronaldo-portugal-turkey/
