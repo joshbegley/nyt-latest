@@ -1,3 +1,7 @@
+**What are the Copa America yellow card suspension rules? Which players are at risk?**\
+`Ecuador captain Enner Valencia was sent off in his country&#8217;s opening game of the Copa America group stage against Venezuela.`\
+https://nytimes.com/athletic/5580657/2024/06/22/copa-america-2024-yellow-cards-ban-suspensions/
+
 **In the Mid-Atlantic and Ohio Valley, some residents are undeterred by the heat.**\
 `By Kevin Williams, Donna M. Owens and Jon Hurdle`\
 https://nytimes.com/live/2024/06/22/us/heat-wave-news/in-the-mid-atlantic-and-ohio-valley-some-residents-are-undeterred-by-the-heat

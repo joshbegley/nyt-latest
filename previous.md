@@ -1,3 +1,7 @@
+**What are the Copa America yellow card suspension rules? Which players are at risk?**\
+`Ecuador captain Enner Valencia was sent off in his country&#8217;s opening game of the Copa America group stage against Venezuela.`\
+https://nytimes.com/athletic/5580657/2024/06/22/copa-america-2024-yellow-cards-ban-suspensions/
+
 **In the Mid-Atlantic and Ohio Valley, some residents are undeterred by the heat.**\
 `By Kevin Williams, Donna M. Owens and Jon Hurdle`\
 https://nytimes.com/live/2024/06/22/us/heat-wave-news/in-the-mid-atlantic-and-ohio-valley-some-residents-are-undeterred-by-the-heat
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/22/crosswords/daily-puzzle-2024-06-23.html
 **Mbappe wears mask, scores in behind-closed-doors friendly ahead of Euros return**\
 `A masked Kylian Mbappe played and scored in an hour-long behind-closed-doors friendly on Saturday as he targets a return to action at Euro 2024 after breaking his nose in France’s opening group game.`\
 https://nytimes.com/athletic/5584023/2024/06/22/kylian-mbappe-france-friendly-mask/
-
-**Silvano Marchetto, Owner of Glitzy Greenwich Village Trattoria, Dies at 77**\
-`Da Silvano was a celebrity hangout, drawing boldface names like Madonna, Barry Diller and Yoko Ono. It was often referred to as the downtown Elaine’s.`\
-https://nytimes.com/2024/06/22/obituaries/silvano-marchetto-dead.html
 
