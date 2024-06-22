@@ -1,3 +1,7 @@
+**Peru coach points to field as possible cause of Advincula injury**\
+`Jorge Fossati pointed to the field at AT&amp;T Stadium as a possible cause of the injury that forced Luis Advincula off against Chile.`\
+https://nytimes.com/athletic/5583359/2024/06/22/luis-advincula-injury-peru-copa-america/
+
 **Cristopher Sánchez, Phillies agree to 4-year extension**\
 `The deal includes two club options that cover what would be Sánchez's first two free-agent years — 2029 and 2030.`\
 https://nytimes.com/athletic/5583373/2024/06/22/cristopher-sanchez-contract-extension-phillies/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/22/arts/ron-simons-dead.html
 **Wordle Review No. 1,099, June 22, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/06/22/crosswords/wordle-review-1099.html
-
-**Germany Hopes to Head Off a Trade War With China**\
-`As the European Union moves to impose tariffs on Chinese cars, Germany, with an auto industry deeply enmeshed with China, is stuck in the middle.`\
-https://nytimes.com/2024/06/22/business/china-germany-tariffs-trade.html
 

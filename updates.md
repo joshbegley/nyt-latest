@@ -1,3 +1,7 @@
+**Peru coach points to field as possible cause of Advincula injury**\
+`Jorge Fossati pointed to the field at AT&amp;T Stadium as a possible cause of the injury that forced Luis Advincula off against Chile.`\
+https://nytimes.com/athletic/5583359/2024/06/22/luis-advincula-injury-peru-copa-america/
+
 **Cristopher Sánchez, Phillies agree to 4-year extension**\
 `The deal includes two club options that cover what would be Sánchez's first two free-agent years — 2029 and 2030.`\
 https://nytimes.com/athletic/5583373/2024/06/22/cristopher-sanchez-contract-extension-phillies/
