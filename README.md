@@ -1,40 +1,40 @@
-**The schools and clubs that made the USMNT's Copa America roster**\
-`We've collected messages of support from the schools and grassroots clubs for several of the USMNT’s key players at Copa America`\
-https://nytimes.com/athletic/5576855/2024/06/22/usmnt-copa-america-roster-school-messages/
+**As War Stretches On, Gaza’s High School Students Put Their Dreams on Hold**\
+`Eight months of war have devastated Gaza’s education system, with schools turned into shelters and major rebuilding needed to make them functional again. Tens of thousands of students are missing their final exams.`\
+https://nytimes.com/2024/06/22/world/middleeast/gaza-schools-final-exams.html
 
-**Consider the Beach**\
-`With much of the U.S. experiencing a heat wave, let us consider the beach and all its promises and pitfalls.`\
-https://nytimes.com/2024/06/22/briefing/embracing-the-beach.html
+**Oops, Justin Timberlake Did It Again**\
+`What are we to do with this privileged pop star?`\
+https://nytimes.com/2024/06/22/opinion/justin-timberlake-arrest.html
 
-**Ranking the best and worst Copa America home kits: a doctor bird, an Ecuador sash and 'deep red wine'**\
-`No matter what happens on the pitch, nearly every team at the Copa is a winner when it comes to their home kits. We've ranked them all...`\
-https://nytimes.com/athletic/5536713/2024/06/22/copa-america-home-kit-rankings-2024/
+**The Biden and Trump Weaknesses That Don’t Get Enough Attention**\
+`The candidates have no shortage of flaws.`\
+https://nytimes.com/2024/06/22/opinion/biden-trump-presidential-debate-cnn.html
 
-**'Where on earth are we?': The story of the USMNT at Copa America '95**\
-`Pay disputes with the USSF, a head coach with something to prove and Maradona in tears: when the U.S. made history in Uruguay`\
-https://nytimes.com/athletic/5574523/2024/06/22/usmnt-copa-america-1995/
+**What I'm hearing about the Blackhawks' draft plans at No. 2**\
+`The Athletic — and the Blackhawks front office — got an up-close look at the two likely options for Chicago at No. 2.`\
+https://nytimes.com/athletic/5581731/2024/06/22/blackhawks-nhl-draft-pick-levshunov-demidov/
 
-**Would this Panthers collapse be the worst in NHL history? Yes, and it's not close**\
-`If the Panthers blow a 3-0 series lead and lose Game 7 on Monday, it will be the biggest collapse in NHL history, by a mile.`\
-https://nytimes.com/athletic/5582615/2024/06/22/nhl-stanley-cup-final-panthers-collapse/
+**The Ten Commandments Are Trump’s Favorite of All the Commandments**\
+`Imagining what comes next in the Republican effort to spread the Christian word.`\
+https://nytimes.com/2024/06/22/opinion/louisiana-ten-commandments.html
 
-**Amid the Stanley Cup Excitement, Edmonton’s Downtown Struggles**\
-`Edmonton’s mayor says that the issues behind homelessness, opioid overdoses and mental health crises cannot be fixed by cities.`\
-https://nytimes.com/2024/06/22/world/canada/edmonton-amarjeet-sohi.html
+**Why Netanyahu Doesn’t Take Biden Seriously**\
+`By averting his eyes as his red lines are ignored, Biden is wasting his leverage over Israel.`\
+https://nytimes.com/2024/06/22/opinion/gaza-israel-biden-netanyahu.html
 
-**The Connections Companion No. 378, June 23, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/06/22/crosswords/connections-companion-378.html
+**Finding Freedom 30 Feet in the Air**\
+`Olympic hopefuls are a group of exceptional people held together by athletic tape and hope, who leap without sight of where they will land.`\
+https://nytimes.com/2024/06/22/opinion/olympics-trials-injury-trampoline.html
 
-**USMNT XI to face Bolivia: Will Tyler Adams start?**\
-`Our writers predict the USMNT starting lineup against Bolivia in Copa America `\
-https://nytimes.com/athletic/5582488/2024/06/22/usmnt-starting-lineup-bolivia/
+**Sean Penn, Rebel With Many Causes**\
+`He’s just as intense, but a bit more mellow. Or is he?`\
+https://nytimes.com/2024/06/22/opinion/sean-penn-profile.html
 
-**Hezbollah Has Threatened Cyprus. Here’s Why.**\
-`Hassan Nasrallah, Hezbollah’s chief, warned that the armed group would punish the small island nation if it allowed Israel to use its airports and bases to target Lebanon.`\
-https://nytimes.com/2024/06/22/world/middleeast/hezbollah-cyprus.html
+**The Rise of Progressivism Among the Educated Elite**\
+`Readers discuss a column by David Brooks about “The Sins of the Educated Class.”`\
+https://nytimes.com/2024/06/22/opinion/progressive-educated-elite.html
 
-**Chelsea close to agreement with Aston Villa for Kellyman**\
-`Chelsea are close to an agreement with Aston Villa to sign 18-year-old forward Omari Kellyman.`\
-https://nytimes.com/athletic/5582861/2024/06/22/omari-kellyman-chelsea-aston-villa-transfer/
+**Felix Zwayer: The Euro 2024 referee who was banned for match-fixing**\
+`Zwayer's match-fixing past has been brought up by players since his return to officiating`\
+https://nytimes.com/athletic/5572240/2024/06/22/felix-zwayer-who-euro-2024/
 
