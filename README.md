@@ -1,9 +1,13 @@
+**USMNT XI to face Bolivia: Will Tyler Adams start?**\
+`Our writers predict the USMNT starting lineup against Bolivia in Copa America `\
+https://nytimes.com/athletic/5582488/2024/06/22/usmnt-starting-lineup-bolivia/
+
 **Hezbollah Has Threatened Cyprus. Here’s Why.**\
 `Hassan Nasrallah, Hezbollah’s chief, warned that the armed group would punish the small island nation if it allowed Israel to use its airports and bases to target Lebanon.`\
 https://nytimes.com/2024/06/22/world/middleeast/hezbollah-cyprus.html
 
 **Chelsea close to agreement with Aston Villa for Kellyman**\
-`<p>Chelsea are close to an agreement with Aston Villa to sign 18-year-old midfielder Omari Kellyman.`\
+`Chelsea are close to an agreement with Aston Villa to sign 18-year-old midfielder Omari Kellyman.`\
 https://nytimes.com/athletic/5582861/2024/06/22/omari-kellyman-chelsea-aston-villa-transfer/
 
 **Joe Mazzulla takes to streets of Boston as city embraces the coach who delivered Banner 18**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/22/realestate/what-is-a-flip-tax-and-who-has-to-pay-
 **Kevin Kwan’s Art Deco Heirloom**\
 `The author, who received the ring from his favorite aunt, described himself as its custodian “for this generation.”`\
 https://nytimes.com/2024/06/22/style/kevin-kwans-art-deco-heirloom.html
-
-**Listening Through the Life of George Crumb**\
-`In a rarity for contemporary music, the entire catalog of Crumb, who died two years ago, has been recorded and released in 21 volumes.`\
-https://nytimes.com/2024/06/22/arts/music/george-crumb-composer-recordings.html
 
