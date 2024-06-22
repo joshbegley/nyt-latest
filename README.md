@@ -1,3 +1,7 @@
+**After Hajj Deaths, Egypt Suspends Companies That Took Pilgrims to Mecca**\
+`The action against 16 tour companies came as governments look into whether many travelers were not properly registered to make the journey into the desert.`\
+https://nytimes.com/2024/06/22/world/middleeast/hajj-heat-deaths-egypt.html
+
 **Chelsea hold talks over David transfer**\
 `Chelsea have held talks with the representatives of Lille striker Jonathan David about a potential transfer this summer.`\
 https://nytimes.com/athletic/5583848/2024/06/22/chelsea-jonathan-david-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5583575/2024/06/22/winnipeg-jets-rutger-mcgroarty-t
 **Villa to sell Luiz to Juventus; Iling-Junior, Barrenechea to join**\
 `Aston Villa have agreed a deal to sell Douglas Luiz to Juventus, with Samuel Iling-Junior and Enzo Barrenechea moving in the opposite direction as part of a separate transaction.`\
 https://nytimes.com/athletic/5555912/2024/06/22/juventus-douglas-luiz-iling-junior-barrenechea/
-
-**New Book Paints Trump as Wounded, Forgetful and Hung Up on Hollywood**\
-`In the dark months following the Jan. 6 attack, Donald J. Trump opened up to an entertainment journalist, revealing his fixation with celebrity, acceptance and the TV show that made him.`\
-https://nytimes.com/2024/06/22/us/politics/trump-apprentice-book.html
 
