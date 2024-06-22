@@ -1,3 +1,7 @@
+**PWHL Toronto signs star forward Daryl Watts in free agency**\
+`Daryl Watts signed a two-year deal with PWHL Toronto, the team announced on Friday night.`\
+https://nytimes.com/athletic/5582342/2024/06/21/pwhl-toronto-signs-daryl-watts/
+
 **The Culture Wars Came to a California Suburb. A Leader Has Been Ousted.**\
 `Voters recalled a Southern California school board president after his conservative majority approved policies on critical race theory and transgender issues.`\
 https://nytimes.com/2024/06/21/us/temecula-school-board-recall.html
