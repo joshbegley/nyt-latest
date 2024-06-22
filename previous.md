@@ -1,3 +1,11 @@
+**A No-Fuss, Fantastic Eggplant Recipe**\
+`No soaking or salting is needed for Zainab Shah’s borani banjan: just a quick fry before the eggplant is nestled into garlicky yogurt and topped with tomato, pomegranate and mint.`\
+https://nytimes.com/2024/06/22/dining/borani-banjan-eggplant-recipe.html
+
+**The Briefing: Georgia 1-1 Czech Republic - Flawed entertainers, Czech misfortune and Schick's injury blow**\
+`Carl Anka and Duncan Alexander analyse the key talking points from Georgia and the Czech Republic's 1-1 draw in Hamburg`\
+https://nytimes.com/athletic/5580933/2024/06/22/georgia-1-czech-republic-1-euro-2024/
+
 **Yoro informs Real Madrid he wants to join club**\
 `Lille centre back Leny Yoro has informed Real Madrid that he wishes to join the club.`\
 https://nytimes.com/athletic/5583019/2024/06/22/leny-yoro-real-madrid/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/22/style/kidsuper-cirque-du-soleil-paris-fashion.htm
 **The concrete jungle helps the sizzling heat feel even hotter.**\
 `By Hilary Howard`\
 https://nytimes.com/live/2024/06/22/us/heat-wave-news/the-concrete-jungle-helps-the-sizzling-heat-feel-even-hotter
-
-**For much of the nation, no relief from the heat is expected this weekend.**\
-`By Kate Selig and Judson Jones`\
-https://nytimes.com/live/2024/06/22/us/heat-wave-news/for-much-of-the-nation-no-relief-from-the-heat-is-expected-this-weekend
-
-**How a Family of Taekwondo Instructors Stopped a Sexual Assault**\
-`The An family, whose ages range from 18 to 59, stopped the sexual assault of a woman in Katy, Texas, on Tuesday and handed the attacker over to the police.`\
-https://nytimes.com/2024/06/22/us/texas-taekwondo-family-sexual-assault.html
 
