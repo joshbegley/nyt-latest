@@ -33,6 +33,11 @@ https://nytimes.com/athletic/5582726/2024/06/22/oilers-stanley-cup-final-nhl-his
 `\
 https://nytimes.com/athletic/5582726/2024/06/22/oilers-stanley-cup-final-nhl-history/
 
+**LeBrun: As Oilers claw back into Stanley Cup Final, the world witnesses NHL history**\
+`The Oilers are the first team in 79 years to force a Game 7 in the Final after being down 3-0. One more win and they’ll make history again.
+`\
+https://nytimes.com/athletic/5582726/2024/06/22/oilers-stanley-cup-final-nhl-history/
+
 **Bowman, in Fight for His Political Life, Embraces the Left’s Star Power**\
 `Representative Alexandria Ocasio-Cortez and Senator Bernie Sanders will appear at a rally for Jamaal Bowman on Saturday, three days before the primary on Tuesday.`\
 https://nytimes.com/2024/06/22/nyregion/bowman-aoc-bernie.html
