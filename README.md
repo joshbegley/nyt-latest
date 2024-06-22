@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5579415/2024/06/21/oilers-panthers-stanley-cup-game
 https://nytimes.com/athletic/5582533/2024/06/21/phillies-cole-hamels/
 
 **Man Fatally Stabbed at Manhattan Subway Station, Police Say**\
-`The stabbing, which came during a dispute between two people, occurred just before 6 p.m. at the West 175th Street A train station.`\
+`The stabbing, during a dispute between two people, occurred just before 6 p.m. at the West 175th Street A train station.`\
 https://nytimes.com/2024/06/21/nyregion/subway-station-stabbing.html
 
 **Trading Card Enthusiasts?**\
