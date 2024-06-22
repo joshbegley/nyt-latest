@@ -1,3 +1,7 @@
+**What I Was Thinking as We Were Sinking**\
+`The things that go through your head during a disaster.`\
+https://nytimes.com/2024/06/22/podcasts/this-american-life-what-i-was-thinking-as-we-were-sinking-2024-nyt-audio.html
+
 **As War Stretches On, Gaza’s High School Students Put Their Dreams on Hold**\
 `Eight months of war have devastated Gaza’s education system, with schools turned into shelters and major rebuilding needed to make them functional again. Tens of thousands of students are missing their final exams.`\
 https://nytimes.com/2024/06/22/world/middleeast/gaza-schools-final-exams.html
