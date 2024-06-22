@@ -28,7 +28,7 @@ https://nytimes.com/2024/06/22/pageoneplus/quotation-of-the-day-heart-overrules-
 https://nytimes.com/athletic/5582719/2024/06/22/panthers-oilers-overturned-goal-offside-review/
 
 **U.S.D.A. Avocado Inspectors Will Start Returning to Mexican Packing Plants**\
-`The inspections were suspended last weekend because of security concerns in Michoacán, the Mexican state responsible for most avocado exports to the U.S.`\
+`The inspections in Michoacán, the Mexican state responsible for most avocado exports to the U.S., were suspended last weekend because of security concerns.`\
 https://nytimes.com/2024/06/22/world/americas/us-mexico-avocado-inspections-resume.html
 
 **Fantasy baseball notebook: Trusting your eyes vs. trusting the numbers, re-thinking Nats pitching and more**\
