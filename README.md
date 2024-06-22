@@ -1,3 +1,31 @@
+**Newcastle in discussions with Everton over Calvert-Lewin deal**\
+`Newcastle United are in discussions with Everton over a deal for striker Dominic Calvert-Lewin.`\
+https://nytimes.com/athletic/5582878/2024/06/22/newcastle-in-discussions-with-everton-over-dominic-calvert-lewin-deal/
+
+**Feldman's Elite 11 thoughts: Fans will salivate when these QBs get on campus**\
+`This year's Elite 11 showcased quarterback talent that will surely have fans drooling in the coming years. `\
+https://nytimes.com/athletic/5582196/2024/06/22/elite-11-takeaways-jaron-sagapolutele-tavien-st-clair/
+
+**Why a Blues offer sheet for Hurricanes RFA Martin Necas would make sense**\
+`Martin Necas, 25, was the No. 12 pick by the Carolina Hurricanes in 2017. Could the Blues interest him to an offer sheet?`\
+https://nytimes.com/athletic/5581599/2024/06/22/blues-martin-necas-offer-sheet/
+
+**NHL free agency 2024: Every team’s toughest decision, from Stamkos to Kane to the Panthers' Big 2**\
+`With the draft coming Thursday and unrestricted free agency opening July 1, now is the time for teams to figure out their paths forward.`\
+https://nytimes.com/athletic/5579502/2024/06/22/nhl-free-agency-names-kane-stamkos-reinhart/
+
+**Szymon Marciniak: The World Cup final referee at Euro 2024**\
+`Marciniak made a big call in Real Madrid's win over Bayern Munich but is a hugely experienced official, having refereed the World Cup final`\
+https://nytimes.com/athletic/5572175/2024/06/22/szymon-marciniak-who-euro-2024/
+
+**Going After the Middleman**\
+`Assistant Attorney General Jonathan Kanter, the Justice Department’s top antitrust official, talked with DealBook about the agency’s focus on middlemen companies and the challenge of A.I.`\
+https://nytimes.com/2024/06/22/business/dealbook/going-after-the-middleman.html
+
+**Bruins fan survey results: Your thoughts on an Ullmark trade, DeBrusk decision, free-agent targets, more**\
+`More than 1,000 Bruins fans weighed in on top priorities, free-agent targets, contract decisions and other offseason topics.`\
+https://nytimes.com/athletic/5577477/2024/06/22/bruins-fan-survey-free-agency-trades/
+
 **2 Novels Set Over Very Memorable Days**\
 `A dinner party at the other woman’s house; the evening before a jail sentence.`\
 https://nytimes.com/2024/06/22/books/novels-set-over-one-single-day.html
@@ -9,32 +37,4 @@ https://nytimes.com/2024/06/22/world/asia/toxic-moonshine-death-india.html
 **PSG have not paid Mbappe's salary for past two months**\
 `Paris Saint-Germain have not paid Kylian Mbappe his salary for the past two months in a fresh sign of tensions with the player — who is about to join Real Madrid.`\
 https://nytimes.com/athletic/5582256/2024/06/22/kylian-mbappe-psg-real-madrid-salary/
-
-**What I Was Thinking as We Were Sinking**\
-`The things that go through your head during a disaster.`\
-https://nytimes.com/2024/06/22/podcasts/this-american-life-what-i-was-thinking-as-we-were-sinking-2024-nyt-audio.html
-
-**As War Stretches On, Gaza’s High School Students Put Their Dreams on Hold**\
-`Eight months of war have devastated Gaza’s education system, with schools turned into shelters and major rebuilding needed to make them functional again. Tens of thousands of students are missing their final exams.`\
-https://nytimes.com/2024/06/22/world/middleeast/gaza-schools-final-exams.html
-
-**Oops, Justin Timberlake Did It Again**\
-`What are we to do with this privileged pop star?`\
-https://nytimes.com/2024/06/22/opinion/justin-timberlake-arrest.html
-
-**The Biden and Trump Weaknesses That Don’t Get Enough Attention**\
-`The candidates have no shortage of flaws.`\
-https://nytimes.com/2024/06/22/opinion/biden-trump-presidential-debate-cnn.html
-
-**What I'm hearing about the Blackhawks' draft plans at No. 2**\
-`The Athletic — and the Blackhawks front office — got an up-close look at the two likely options for Chicago at No. 2.`\
-https://nytimes.com/athletic/5581731/2024/06/22/blackhawks-nhl-draft-pick-levshunov-demidov/
-
-**The Ten Commandments Are Trump’s Favorite of All the Commandments**\
-`Imagining what comes next in the Republican effort to spread the Christian word.`\
-https://nytimes.com/2024/06/22/opinion/louisiana-ten-commandments.html
-
-**Why Netanyahu Doesn’t Take Biden Seriously**\
-`By averting his eyes as his red lines are ignored, Biden is wasting his leverage over Israel.`\
-https://nytimes.com/2024/06/22/opinion/gaza-israel-biden-netanyahu.html
 
