@@ -1,3 +1,15 @@
+**Corrections: June 22, 2024**\
+`Corrections that appeared in print on Saturday, June 22, 2024.`\
+https://nytimes.com/2024/06/22/pageoneplus/corrections-june-22-2024.html
+
+**Quotation of the Day: Heart Overrules Home for Turkish Germans Picking a Euros Team**\
+`Quotation of the Day for Saturday, June 22, 2024.`\
+https://nytimes.com/2024/06/22/pageoneplus/quotation-of-the-day-heart-overrules-home-for-turkish-germans-picking-a-euros-team.html
+
+**Johnston: Overturned Panthers goal on offside review becomes historic Stanley Cup momentum changer**\
+`Aleksander Barkov's goal to cut the Oilers' lead to 2-1 in Game 6 of the Cup Final was disallowed after a review.`\
+https://nytimes.com/athletic/5582719/2024/06/22/panthers-oilers-overturned-goal-offside-review/
+
 **Johnston: Overturned Panthers goal on offside review becomes a historic Stanley Cup momentum changer**\
 `Aleksander Barkov's goal to cut the Oilers' lead to 2-1 in Game 6 of the Cup Final was disallowed after a review.`\
 https://nytimes.com/athletic/5582719/2024/06/22/panthers-oilers-overturned-goal-offside-review/
