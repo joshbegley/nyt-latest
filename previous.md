@@ -1,3 +1,7 @@
+**Villa to sell Luiz to Juventus; Iling-Junior, Barrenechea to join**\
+`Aston Villa have agreed a deal to sell Douglas Luiz to Juventus, with Samuel Iling-Junior and Enzo Barrenechea moving in the opposite direction as part of a separate transaction.`\
+https://nytimes.com/athletic/5555912/2024/06/22/juventus-douglas-luiz-iling-junior-barrenechea/
+
 **New ‘Apprentice’ Book Paints Trump as Wounded, Forgetful and Hung Up on Hollywood**\
 `In the dark months following the Jan. 6 attack, Donald J. Trump opened up to an entertainment journalist, revealing his fixation with celebrity, acceptance and the TV show that made him.`\
 https://nytimes.com/2024/06/22/us/politics/trump-apprentice-book.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5583582/2024/06/22/nacho-transfer-saudi-arabia/
 **Secret Service Details Security Plans for the Republican National Convention**\
 `A park near the convention site will be off limits to protesters, according to the plans for the July gathering in Milwaukee.`\
 https://nytimes.com/2024/06/22/us/politics/republican-convention-security-protests.html
-
-**Wolves reject West Ham, Newcastle offers for Kilman**\
-`Wolverhampton Wanderers have rejected offers from West Ham United and Newcastle United for captain Max Kilman.`\
-https://nytimes.com/athletic/5583545/2024/06/22/max-kilman-transfer-wolves-newcastle/
 
