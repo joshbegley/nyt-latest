@@ -1,3 +1,7 @@
+**Wolves reject West Ham, Newcastle offers for Kilman**\
+`Wolverhampton Wanderers have rejected offers from West Ham United and Newcastle United for captain Max Kilman.`\
+https://nytimes.com/athletic/5583545/2024/06/22/max-kilman-transfer-wolves-newcastle/
+
 **Peru coach points to field as possible cause of Advincula injury**\
 `Jorge Fossati pointed to the field at AT&amp;T Stadium as a possible cause of the injury that forced Luis Advincula off against Chile.`\
 https://nytimes.com/athletic/5583359/2024/06/22/luis-advincula-injury-peru-copa-america/
