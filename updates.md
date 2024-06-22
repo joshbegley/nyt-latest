@@ -1,3 +1,7 @@
+**Oilers on brink of historic comeback, forcing Stanley Cup Game 7 vs. Panthers with 5-1 Game 6 win**\
+`Game 7 will be Monday in Florida, giving the Oilers a chance to be the second team in NHL history to come back from 3-0 in the Cup Final.`\
+https://nytimes.com/athletic/5579415/2024/06/21/oilers-panthers-stanley-cup-game-6-result-takeaways/
+
 **Cole Hamels returns for Phillies celebration, wants future role: 'I just want to be an asset'**\
 `The 2008 World Series MVP wants to work with this generation of pitchers. `\
 https://nytimes.com/athletic/5582533/2024/06/21/phillies-cole-hamels/
