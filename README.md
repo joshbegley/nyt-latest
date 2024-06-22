@@ -1,3 +1,7 @@
+**Altay Bayindir, the slapstick own goal and a moment to sum up one man's rustiness**\
+`Manchester United's backup goalkeeper arrived at Euro 2024 with 157 minutes of action to his name since last August – and it showed`\
+https://nytimes.com/athletic/5583906/2024/06/22/bayindir-turkey-portugal-manchester-united/
+
 **Ronaldo: The performance, the pitch invaders and a moment of Portuguese purity**\
 `Cristiano Ronaldo did not score against Turkey but he certainly had an eventful 90 minutes`\
 https://nytimes.com/athletic/5583739/2024/06/22/cristiano-ronaldo-portugal-turkey/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5568689/2024/06/22/sunderland-manager-appoint-regis
 **Martinez concerned for player safety after Portugal pitch invasions**\
 `Roberto Martinez has admitted to concern for his players&#8217; safety after Portugal&#8217;s win over Turkey in Dortmund was marred by pitch invasions from supporters.`\
 https://nytimes.com/athletic/5583813/2024/06/22/portugal-cristiano-ronaldo-pitch-invaders/
-
-**Spanish GP preview: Will F1 get the Verstappen-Norris battle it’s been waiting for?**\
-`Plus: Ferrari's struggles, Alpine's prime opportunity ... and is Mercedes back? `\
-https://nytimes.com/athletic/5583550/2024/06/22/spanish-gp-preview-norris-verstappen-battle/
 
