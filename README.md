@@ -1,3 +1,7 @@
+**Consider the Beach**\
+`With much of the U.S. experiencing a heat wave, let us consider the beach and all its promises and pitfalls.`\
+https://nytimes.com/2024/06/22/briefing/embracing-the-beach.html
+
 **Ranking the best and worst Copa America home kits: a doctor bird, an Ecuador sash and 'deep red wine'**\
 `No matter what happens on the pitch, nearly every team at the Copa is a winner when it comes to their home kits. We've ranked them all...`\
 https://nytimes.com/athletic/5536713/2024/06/22/copa-america-home-kit-rankings-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5582861/2024/06/22/omari-kellyman-chelsea-aston-vil
 **Joe Mazzulla takes to streets of Boston as city embraces the coach who delivered Banner 18**\
 `Mazzulla went through a difficult road to become a championship coach. But the city that once doubted him embraced him at the parade.`\
 https://nytimes.com/athletic/5582339/2024/06/22/joe-mazzulla-celtics-parade/
-
-**Gretchen Whitmer Wants a Gen X President — in 2028**\
-`The governor of Michigan isn’t saying it should be her, but she’s not saying it shouldn’t be, either.`\
-https://nytimes.com/2024/06/22/magazine/gretchen-whitmer-interview.html
 
