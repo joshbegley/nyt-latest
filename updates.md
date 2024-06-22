@@ -1,3 +1,16 @@
+**Jake Bloss joins the Astros' lengthy list of injured starting pitchers**\
+`Bloss, who made his major-league debut Friday, exited after 79 pitches with what the club called right shoulder "discomfort."`\
+https://nytimes.com/athletic/5582759/2024/06/22/jake-bloss-joins-astros-lengthy-list-of-injured-starting-pitchers/
+
+**LeBrun: As Oilers claw back into Stanley Cup Final, the world witnesses NHL history**\
+`The Oilers are the first team in 79 years to force a Game 7 in the Final after being down 0-3. One more win and they’ll make history again.
+`\
+https://nytimes.com/athletic/5582726/2024/06/22/oilers-stanley-cup-final-nhl-history/
+
+**U.S.D.A. Avocado Inspectors Will Start Returning to Mexican Packing Plants**\
+`The inspections in Michoacán, the Mexican state responsible for most avocado exports to the U.S., were suspended last weekend because of security concerns.`\
+https://nytimes.com/2024/06/22/world/americas/us-mexico-avocado-inspections-resume.html
+
 **As Oilers claw their way back into Stanley Cup Final, the world witnesses NHL history**\
 `The Oilers are the first team in 79 years to force a Game 7 in the Final after being down 0-3. One more win and they’ll make history again.
 `\
