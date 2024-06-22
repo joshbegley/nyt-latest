@@ -1,3 +1,15 @@
+**The concrete jungle helps the sizzling heat feel even hotter.**\
+`By Hilary Howard`\
+https://nytimes.com/live/2024/06/22/us/heat-wave-news/the-concrete-jungle-helps-the-sizzling-heat-feel-even-hotter
+
+**For much of the nation, no relief from the heat is expected this weekend.**\
+`By Kate Selig and Judson Jones`\
+https://nytimes.com/live/2024/06/22/us/heat-wave-news/for-much-of-the-nation-no-relief-from-the-heat-is-expected-this-weekend
+
+**How a Family of Taekwondo Instructors Stopped a Sexual Assault**\
+`The An family, whose ages range from 18 to 59, stopped the sexual assault of a woman in Katy, Texas, on Tuesday and handed the attacker over to the police.`\
+https://nytimes.com/2024/06/22/us/texas-taekwondo-family-sexual-assault.html
+
 **Curious Tourists and Modern-Day Druids: Marking the Solstice at Stonehenge**\
 `To celebrate the celestial event, the ropes come down at the ancient monument, and visitors spend the night to greet the sunrise.`\
 https://nytimes.com/2024/06/22/travel/stonehenge-solstice-celebration.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5582371/2024/06/22/knicks-trade-proposals-offseason
 **Newcastle in discussions with Everton over Calvert-Lewin deal**\
 `Newcastle United are in discussions with Everton over a deal for striker Dominic Calvert-Lewin.`\
 https://nytimes.com/athletic/5582878/2024/06/22/newcastle-in-discussions-with-everton-over-dominic-calvert-lewin-deal/
-
-**Feldman's Elite 11 thoughts: Fans will salivate when these QBs get on campus**\
-`This year's Elite 11 showcased quarterback talent that will surely have fans drooling in the coming years. `\
-https://nytimes.com/athletic/5582196/2024/06/22/elite-11-takeaways-jaron-sagapolutele-tavien-st-clair/
-
-**Why a Blues offer sheet for Hurricanes RFA Martin Necas would make sense**\
-`Martin Necas, 25, was the No. 12 pick by the Carolina Hurricanes in 2017. Could the Blues interest him to an offer sheet?`\
-https://nytimes.com/athletic/5581599/2024/06/22/blues-martin-necas-offer-sheet/
-
-**NHL free agency 2024: Every team’s toughest decision, from Stamkos to Kane to the Panthers' Big 2**\
-`With the draft coming Thursday and unrestricted free agency opening July 1, now is the time for teams to figure out their paths forward.`\
-https://nytimes.com/athletic/5579502/2024/06/22/nhl-free-agency-names-kane-stamkos-reinhart/
 

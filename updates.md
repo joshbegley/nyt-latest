@@ -1,3 +1,15 @@
+**The concrete jungle helps the sizzling heat feel even hotter.**\
+`By Hilary Howard`\
+https://nytimes.com/live/2024/06/22/us/heat-wave-news/the-concrete-jungle-helps-the-sizzling-heat-feel-even-hotter
+
+**For much of the nation, no relief from the heat is expected this weekend.**\
+`By Kate Selig and Judson Jones`\
+https://nytimes.com/live/2024/06/22/us/heat-wave-news/for-much-of-the-nation-no-relief-from-the-heat-is-expected-this-weekend
+
+**How a Family of Taekwondo Instructors Stopped a Sexual Assault**\
+`The An family, whose ages range from 18 to 59, stopped the sexual assault of a woman in Katy, Texas, on Tuesday and handed the attacker over to the police.`\
+https://nytimes.com/2024/06/22/us/texas-taekwondo-family-sexual-assault.html
+
 **Curious Tourists and Modern-Day Druids: Marking the Solstice at Stonehenge**\
 `To celebrate the celestial event, the ropes come down at the ancient monument, and visitors spend the night to greet the sunrise.`\
 https://nytimes.com/2024/06/22/travel/stonehenge-solstice-celebration.html
