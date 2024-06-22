@@ -1,3 +1,7 @@
+**A Tenacious and Wild Pekingese Is the Ugliest Dog, After Five Tries**\
+`Meet Wild Thang, an 8-year-old Pekingese from Oregon who had sought the title of “World’s Ugliest” for years. Now, it’s finally his.`\
+https://nytimes.com/2024/06/22/us/worlds-ugliest-dog-wild-thang.html
+
 **A Tourist From New Mexico Is Killed by an Elephant in Zambia**\
 `The incident came months after another tourist was killed in Zambia when an elephant charged her group. One wildlife expert said the attacks were most likely “freak accidents.”`\
 https://nytimes.com/2024/06/22/world/africa/us-tourist-killed-elephant-zambia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/22/obituaries/silvano-marchetto-dead.html
 **Antwann Hill, 4-star QB prospect from Georgia, commits to Memphis**\
 `Entering his senior season this fall, Hill recorded 2,732 yards, 31 touchdowns and five interceptions as a junior.`\
 https://nytimes.com/athletic/5583952/2024/06/22/antwann-hill-qb-memphis-2025/
-
-**Thousands of Michigan Residents Weather Days Without Power During Heat Wave**\
-`A storm left about 9,000 people without power for three days.`\
-https://nytimes.com/2024/06/22/us/michigan-power-heat-wave-storm.html
 
