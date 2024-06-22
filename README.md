@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5582488/2024/06/22/usmnt-starting-lineup-bolivia/
 https://nytimes.com/2024/06/22/world/middleeast/hezbollah-cyprus.html
 
 **Chelsea close to agreement with Aston Villa for Kellyman**\
-`Chelsea are close to an agreement with Aston Villa to sign 18-year-old midfielder Omari Kellyman.`\
+`Chelsea are close to an agreement with Aston Villa to sign 18-year-old forward Omari Kellyman.`\
 https://nytimes.com/athletic/5582861/2024/06/22/omari-kellyman-chelsea-aston-villa-transfer/
 
 **Joe Mazzulla takes to streets of Boston as city embraces the coach who delivered Banner 18**\
