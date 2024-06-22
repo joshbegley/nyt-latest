@@ -1,3 +1,15 @@
+**A Tourist From New Mexico Is Killed by an Elephant in Zambia**\
+`The incident came months after another tourist was killed in Zambia when an elephant charged her group. One wildlife expert said the attacks were most likely “freak accidents.”`\
+https://nytimes.com/2024/06/22/world/africa/us-tourist-killed-elephant-zambia.html
+
+**The four changes that have turned Belgium back into contenders for Euro 2024**\
+`Domenico Tedesco brought Vertonghen, Theate, Tielemans and Lukebakio into his starting XI and each adjustment made a difference`\
+https://nytimes.com/athletic/5584041/2024/06/22/belgium-euro-2024-changes-improvement/
+
+**Trump Hawks American Flag Pins with His Name in Gold Splashed Across Them**\
+`Critics have accused the former president of co-opting the flag for personal gain. Some of his supporters have flown the flag upside-down to protest his 2020 defeat.`\
+https://nytimes.com/2024/06/22/us/politics/trump-hawks-american-flag-pins-with-his-name-in-gold-splashed-across-them.html
+
 **A Parade of Mermaids Marches On in Brooklyn’s Coney Island**\
 `The heat could not stop revelers from taking part in the pageantry of aquatic weirdness.`\
 https://nytimes.com/2024/06/22/us/mermaid-parade-coney-island.html

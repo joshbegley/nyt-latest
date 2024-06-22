@@ -1,3 +1,15 @@
+**A Tourist From New Mexico Is Killed by an Elephant in Zambia**\
+`The incident came months after another tourist was killed in Zambia when an elephant charged her group. One wildlife expert said the attacks were most likely “freak accidents.”`\
+https://nytimes.com/2024/06/22/world/africa/us-tourist-killed-elephant-zambia.html
+
+**The four changes that have turned Belgium back into contenders for Euro 2024**\
+`Domenico Tedesco brought Vertonghen, Theate, Tielemans and Lukebakio into his starting XI and each adjustment made a difference`\
+https://nytimes.com/athletic/5584041/2024/06/22/belgium-euro-2024-changes-improvement/
+
+**Trump Hawks American Flag Pins with His Name in Gold Splashed Across Them**\
+`Critics have accused the former president of co-opting the flag for personal gain. Some of his supporters have flown the flag upside-down to protest his 2020 defeat.`\
+https://nytimes.com/2024/06/22/us/politics/trump-hawks-american-flag-pins-with-his-name-in-gold-splashed-across-them.html
+
 **A Parade of Mermaids Marches On in Brooklyn’s Coney Island**\
 `The heat could not stop revelers from taking part in the pageantry of aquatic weirdness.`\
 https://nytimes.com/2024/06/22/us/mermaid-parade-coney-island.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5583952/2024/06/22/antwann-hill-qb-memphis-2025/
 **Thousands of Michigan Residents Weather Days Without Power During Heat Wave**\
 `A storm left about 9,000 people without power for three days.`\
 https://nytimes.com/2024/06/22/us/michigan-power-heat-wave-storm.html
-
-**The Briefing: Belgium 2 Romania 0 - Lukaku denied again, a 73-second goal and the tightest of groups**\
-`Our writers break down the key moments from Saturday evening's game in Cologne `\
-https://nytimes.com/athletic/5580935/2024/06/22/belgium-romania-euro-2024-result-analysis/
-
-**Altay Bayindir, the slapstick own goal and a moment to sum up one man's rustiness**\
-`Manchester United's backup goalkeeper arrived at Euro 2024 with 157 minutes of action to his name since last August – and it showed`\
-https://nytimes.com/athletic/5583906/2024/06/22/bayindir-turkey-portugal-manchester-united/
-
-**Ronaldo: The performance, the pitch invaders and a moment of Portuguese purity**\
-`Cristiano Ronaldo did not score against Turkey, but he certainly had an eventful 90 minutes`\
-https://nytimes.com/athletic/5583739/2024/06/22/cristiano-ronaldo-portugal-turkey/
 
