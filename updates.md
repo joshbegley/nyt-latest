@@ -1,3 +1,11 @@
+**3 Columbia Deans Placed on Leave Over Conduct at Antisemitism Panel**\
+`Leaked images showed the trio sharing disparaging text messages during an alumni group discussion last month about Jewish life on campus.`\
+https://nytimes.com/2024/06/22/nyregion/columbia-deans-antisemitism-panel.html
+
+**Israel says it is investigating a strike that killed dozens near a Red Cross office in Gaza.**\
+`By Adam Rasgon and Anjana Sankar`\
+https://nytimes.com/live/2024/06/22/world/israel-gaza-war-hamas/israel-says-it-is-investigating-a-strike-that-killed-dozens-near-several-red-cross-office-in-gaza
+
 **Sunderland appoint Le Bris as new manager**\
 `Sunderland have appointed Regis Le Bris as their new manager.`\
 https://nytimes.com/athletic/5568689/2024/06/22/sunderland-manager-appoint-regis-le-bris/

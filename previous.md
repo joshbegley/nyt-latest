@@ -1,3 +1,11 @@
+**3 Columbia Deans Placed on Leave Over Conduct at Antisemitism Panel**\
+`Leaked images showed the trio sharing disparaging text messages during an alumni group discussion last month about Jewish life on campus.`\
+https://nytimes.com/2024/06/22/nyregion/columbia-deans-antisemitism-panel.html
+
+**Israel says it is investigating a strike that killed dozens near a Red Cross office in Gaza.**\
+`By Adam Rasgon and Anjana Sankar`\
+https://nytimes.com/live/2024/06/22/world/israel-gaza-war-hamas/israel-says-it-is-investigating-a-strike-that-killed-dozens-near-several-red-cross-office-in-gaza
+
 **Sunderland appoint Le Bris as new manager**\
 `Sunderland have appointed Regis Le Bris as their new manager.`\
 https://nytimes.com/athletic/5568689/2024/06/22/sunderland-manager-appoint-regis-le-bris/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/22/us/politics/trump-apprentice-book.html
 **The Briefing: Turkey 0-3 Portugal - win secures top spot as pitch invaders target Ronaldo**\
 `Our writers analyse the key talking points from Portugal's victory over Turkey, which takes them into the round of 16 as group winners`\
 https://nytimes.com/athletic/5580934/2024/06/22/turkey-portugal-ronaldo-analysis/
-
-**Jeremy Tepper, SiriusXM’s Longtime Alt-Country Impresario, Dies at 60**\
-`As a journalist, singer, label owner and radio producer, he fostered a community of musicians on the outskirts of Americana.`\
-https://nytimes.com/2024/06/22/arts/music/jeremy-tepper-dead.html
-
-**Heat-Related Illnesses Spiked in Some Regions This Week, C.D.C. Data Shows**\
-`Regions that had “extremely high” rates of such illnesses included swaths of New England, the Midwest and the Mid-Atlantic, all areas that have been hit the hardest by the heat wave.`\
-https://nytimes.com/2024/06/22/us/heat-wave-illness-er-cdc.html
 
