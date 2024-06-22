@@ -1,3 +1,7 @@
+**Who says no? Evaluating your Knicks trade proposals in the offseason**\
+`Knicks beat writer Fred Katz runs through several different scenarios and trades submitted by readers.`\
+https://nytimes.com/athletic/5582371/2024/06/22/knicks-trade-proposals-offseason-who-says-no/
+
 **Newcastle in discussions with Everton over Calvert-Lewin deal**\
 `Newcastle United are in discussions with Everton over a deal for striker Dominic Calvert-Lewin.`\
 https://nytimes.com/athletic/5582878/2024/06/22/newcastle-in-discussions-with-everton-over-dominic-calvert-lewin-deal/
