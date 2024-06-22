@@ -1,3 +1,11 @@
+**Trump will address evangelicals in Washington before heading to Philadelphia.**\
+`By Chris Cameron`\
+https://nytimes.com/2024/06/22/us/politics/trump-evangelicals-philadelphia-rally.html
+
+**Center Ring at the Fashion Circus**\
+`Streetwear tyro KidSuper brings a Brooklyn indie vibe to fashion’s biggest stage, this time in a collaboration with Cirque du Soleil.`\
+https://nytimes.com/2024/06/22/style/kidsuper-cirque-du-soleil-paris-fashion.html
+
 **The concrete jungle helps the sizzling heat feel even hotter.**\
 `By Hilary Howard`\
 https://nytimes.com/live/2024/06/22/us/heat-wave-news/the-concrete-jungle-helps-the-sizzling-heat-feel-even-hotter
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/06/22/world/israel-gaza-war-hamas/israels-military
 **Spain's Laporte 'annoyed' by pre-Euro 2024 debate over his fitness**\
 `Spain defender Aymeric Laporte has hit out at those who questioned his fitness levels and physical state ahead of Euro 2024.`\
 https://nytimes.com/athletic/5583017/2024/06/22/aymeric-laporte-spain-euro-2024-fitness/
-
-**Who says no? Evaluating your Knicks trade proposals in the offseason**\
-`Knicks beat writer Fred Katz runs through several different scenarios and trades submitted by readers.`\
-https://nytimes.com/athletic/5582371/2024/06/22/knicks-trade-proposals-offseason-who-says-no/
-
-**Newcastle in discussions with Everton over Calvert-Lewin deal**\
-`Newcastle United are in discussions with Everton over a deal for striker Dominic Calvert-Lewin.`\
-https://nytimes.com/athletic/5582878/2024/06/22/newcastle-in-discussions-with-everton-over-dominic-calvert-lewin-deal/
 
