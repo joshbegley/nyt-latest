@@ -22,13 +22,13 @@ https://nytimes.com/2024/06/22/opinion/louisiana-ten-commandments.html
 `By averting his eyes as his red lines are ignored, Biden is wasting his leverage over Israel.`\
 https://nytimes.com/2024/06/22/opinion/gaza-israel-biden-netanyahu.html
 
-**Finding Freedom 30 Feet in the Air**\
-`Olympic hopefuls are a group of exceptional people held together by athletic tape and hope, who leap without sight of where they will land.`\
-https://nytimes.com/2024/06/22/opinion/olympics-trials-injury-trampoline.html
-
 **Sean Penn, Rebel With Many Causes**\
 `He’s just as intense, but a bit more mellow. Or is he?`\
 https://nytimes.com/2024/06/22/opinion/sean-penn-profile.html
+
+**Finding Freedom 30 Feet in the Air**\
+`Olympic hopefuls are a group of exceptional people held together by athletic tape and hope, who leap without sight of where they will land.`\
+https://nytimes.com/2024/06/22/opinion/olympics-trials-injury-trampoline.html
 
 **The Rise of Progressivism Among the Educated Elite**\
 `Readers discuss a column by David Brooks about “The Sins of the Educated Class.”`\
