@@ -1,5 +1,9 @@
 **Donald Trump Said He Proposed a ‘Migrant League of Fighters’**\
 `Mr. Trump said his suggestion to Dana White, who runs the Ultimate Fighting Championship, was not well received. But, he added, “It’s not the worst idea I’ve ever had.”`\
+https://nytimes.com/2024/06/22/us/politics/donald-trump-said-he-proposed-a-migrant-league-of-fighters.html
+
+**Donald Trump Said He Proposed a ‘Migrant League of Fighters’**\
+`Mr. Trump said his suggestion to Dana White, who runs the Ultimate Fighting Championship, was not well received. But, he added, “It’s not the worst idea I’ve ever had.”`\
 https://nytimes.com/live/2024/06/22/us/biden-trump-election/donald-trump-said-he-proposed-a-migrant-league-of-fighters
 
 **What are the Copa America yellow card suspension rules? Which players are at risk?**\
