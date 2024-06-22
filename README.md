@@ -1,3 +1,7 @@
+**Thousands of Michigan Residents Weather Days Without Power During Heat Wave**\
+`A storm left about 9,000 people without power for three days.`\
+https://nytimes.com/2024/06/22/us/michigan-power-heat-wave-storm.html
+
 **The Briefing: Belgium 2 Romania 0: Lukaku denied again, a 73-second goal and the tightest of groups**\
 `Our writers break down the key moments from Saturday evening's game in Cologne `\
 https://nytimes.com/athletic/5580935/2024/06/22/belgium-romania-euro-2024-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/22/nyregion/columbia-deans-antisemitism-panel.html
 **Israel says it is investigating a strike that killed dozens near a Red Cross office in Gaza.**\
 `By Adam Rasgon and Anjana Sankar`\
 https://nytimes.com/live/2024/06/22/world/israel-gaza-war-hamas/israel-says-it-is-investigating-a-strike-that-killed-dozens-near-several-red-cross-office-in-gaza
-
-**Sunderland appoint Le Bris as new manager**\
-`Sunderland have appointed Regis Le Bris as their new manager.`\
-https://nytimes.com/athletic/5568689/2024/06/22/sunderland-manager-appoint-regis-le-bris/
 
