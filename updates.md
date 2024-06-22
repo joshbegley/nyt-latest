@@ -1,3 +1,7 @@
+**New Book Paints Trump as Wounded, Forgetful and Hung Up on Hollywood**\
+`In the dark months following the Jan. 6 attack, Donald J. Trump opened up to an entertainment journalist, revealing his fixation with celebrity, acceptance and the TV show that made him.`\
+https://nytimes.com/2024/06/22/us/politics/trump-apprentice-book.html
+
 **3 Columbia Deans Placed on Leave Over Conduct at Antisemitism Panel**\
 `Leaked images showed the trio sharing disparaging text messages during an alumni group discussion last month about Jewish life on campus.`\
 https://nytimes.com/2024/06/22/nyregion/columbia-deans-antisemitism-panel.html
