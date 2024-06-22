@@ -1,3 +1,7 @@
+**Silvano Marchetto, Owner of Glitzy Greenwich Village Trattoria, Dies at 77**\
+`Da Silvano was a celebrity hangout, drawing boldface names like Madonna, Barry Diller and Yoko Ono. It was often referred to as the downtown Elaine’s.`\
+https://nytimes.com/2024/06/22/obituaries/silvano-marchetto-dead.html
+
 **The Briefing: Belgium 2 Romania 0 - Lukaku denied again, a 73-second goal and the tightest of groups**\
 `Our writers break down the key moments from Saturday evening's game in Cologne `\
 https://nytimes.com/athletic/5580935/2024/06/22/belgium-romania-euro-2024-result-analysis/
