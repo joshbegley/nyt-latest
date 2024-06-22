@@ -1,3 +1,7 @@
+**Gretchen Whitmer Wants a Gen X President — in 2028**\
+`The governor of Michigan isn’t saying it should be her, but she’s not saying it shouldn’t be, either.`\
+https://nytimes.com/2024/06/22/magazine/gretchen-whitmer-interview.html
+
 **Sheinbaum’s American Experience Offers Clues to Her Approach to U.S. Relations**\
 `The next Mexican president’s years of living in California provide insight into how she will handle key issues in Mexico-Washington ties.`\
 https://nytimes.com/2024/06/22/world/americas/mexico-sheinbaum-us.html

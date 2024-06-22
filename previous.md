@@ -1,3 +1,7 @@
+**Gretchen Whitmer Wants a Gen X President — in 2028**\
+`The governor of Michigan isn’t saying it should be her, but she’s not saying it shouldn’t be, either.`\
+https://nytimes.com/2024/06/22/magazine/gretchen-whitmer-interview.html
+
 **Sheinbaum’s American Experience Offers Clues to Her Approach to U.S. Relations**\
 `The next Mexican president’s years of living in California provide insight into how she will handle key issues in Mexico-Washington ties.`\
 https://nytimes.com/2024/06/22/world/americas/mexico-sheinbaum-us.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/22/us/tree-of-life-groundbreaking.html
 **How a Boston Physician Conquered the Thriller Genre**\
 `After getting her start by self-publishing, Freida McFadden is now the fastest selling thriller writer in the United States.`\
 https://nytimes.com/2024/06/22/books/freida-mcfadden-thriller-best-seller.html
-
-**On ‘Couples Therapy,’ They Discuss Intimacy Like Nobody’s Watching**\
-`The Showtime series gives audiences an intimate look inside real relationships. Its couples are still navigating the aftermath.`\
-https://nytimes.com/2024/06/22/arts/television/couples-therapy-tv-show.html
 
