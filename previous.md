@@ -2,7 +2,7 @@
 `The incident came months after another tourist was killed in Zambia when an elephant charged her group. One wildlife expert said the attacks were most likely “freak accidents.”`\
 https://nytimes.com/2024/06/22/world/africa/us-tourist-killed-elephant-zambia.html
 
-**The four changes that have turned Belgium back into contenders for Euro 2024**\
+**The four changes that may have turned Belgium back into contenders for Euro 2024**\
 `Domenico Tedesco brought Vertonghen, Theate, Tielemans and Lukebakio into his starting XI and each adjustment made a difference`\
 https://nytimes.com/athletic/5584041/2024/06/22/belgium-euro-2024-changes-improvement/
 
