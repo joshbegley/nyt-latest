@@ -1,3 +1,7 @@
+**Endrick not rushing to be Brazil starter: 'No one needs to skip steps'**\
+`Brazil starlet Endrick says that he will patiently wait for opportunities if — as expected — he is not initially a starter for his country at Copa America.`\
+https://nytimes.com/athletic/5582359/2024/06/21/brazil-copa-america-endrick-real-madrid/
+
 **Barry Sanders experienced heart-related 'health scare'**\
 `Sanders, who turns 56 in July, said he is "taking this opportunity to prioritize my health and well-being."`\
 https://nytimes.com/athletic/5582410/2024/06/21/barry-sanders-health-scare-heart-lions/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/21/us/politics/trump-documents-special-counsel.html
 **Iran’s 2024 Presidential Election: What to Know**\
 `Iran will hold a special election later this month to replace former President Ebrahim Raisi, who died in a helicopter crash in May.`\
 https://nytimes.com/2024/06/21/world/middleeast/iran-presidential-election-what-to-know.html
-
-**New Drug Provides Total Protection From H.I.V. in Trial of Young African Women**\
-`An injection given just twice a year could herald a breakthrough in protecting the population that has the highest infection rates.`\
-https://nytimes.com/2024/06/21/health/lenacapavir-hiv-prevention-africa.html
 

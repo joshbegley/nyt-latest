@@ -1,3 +1,7 @@
+**Endrick not rushing to be Brazil starter: 'No one needs to skip steps'**\
+`Brazil starlet Endrick says that he will patiently wait for opportunities if — as expected — he is not initially a starter for his country at Copa America.`\
+https://nytimes.com/athletic/5582359/2024/06/21/brazil-copa-america-endrick-real-madrid/
+
 **Barry Sanders experienced heart-related 'health scare'**\
 `Sanders, who turns 56 in July, said he is "taking this opportunity to prioritize my health and well-being."`\
 https://nytimes.com/athletic/5582410/2024/06/21/barry-sanders-health-scare-heart-lions/
