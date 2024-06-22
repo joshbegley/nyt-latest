@@ -1,3 +1,7 @@
+**Johnston: Overturned Panthers goal on offside review becomes a historic Stanley Cup momentum changer**\
+`Aleksander Barkov's goal to cut the Oilers' lead to 2-1 in Game 6 of the Cup Final was disallowed after a review.`\
+https://nytimes.com/athletic/5582719/2024/06/22/panthers-oilers-overturned-goal-offside-review/
+
 **Overturned Panthers goal on offside review becomes a historic Stanley Cup momentum changer**\
 `Aleksander Barkov's goal to cut the Oilers' lead to 2-1 in Game 6 of the Cup Final was disallowed after a review.`\
 https://nytimes.com/athletic/5582719/2024/06/22/panthers-oilers-overturned-goal-offside-review/
