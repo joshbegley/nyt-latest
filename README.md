@@ -1,3 +1,7 @@
+**Why the Padres’ bullpen is their most pressing area of need**\
+`Friday qualified as a success, but the Padres' top setup man was unavailable. They could use more help for their rotation.`\
+https://nytimes.com/athletic/5582811/2024/06/22/padres-bullpen-most-pressing-need-trade-deadline/
+
 **Bowman, in Fight for His Political Life, Embraces the Left’s Star Power**\
 `Representative Alexandria Ocasio-Cortez and Senator Bernie Sanders will appear at a rally for Jamaal Bowman on Saturday, three days before the primary on Tuesday.`\
 https://nytimes.com/2024/06/22/nyregion/bowman-aoc-bernie.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5582733/2024/06/22/carlos-santana-2000-games-twins-
 `The Oilers are the first team in 79 years to force a Game 7 in the Final after being down 3-0. One more win and they’ll make history again.
 `\
 https://nytimes.com/athletic/5582726/2024/06/22/oilers-stanley-cup-final-nhl-history/
-
-**Panthers rattled after blowing 3-0 series lead to Oilers: 'You feel it. It hurts'**\
-`The stress of the situation seems to be getting to them. Can they rebound? "You lick your wounds, and we start building that back tomorrow."`\
-https://nytimes.com/athletic/5582706/2024/06/22/panthers-oilers-stanley-cup-blown-lead/
 
