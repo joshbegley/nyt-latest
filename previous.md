@@ -1,3 +1,7 @@
+**Cole Hamels returns for Phillies celebration, wants future role: 'I just want to be an asset'**\
+`The 2008 World Series MVP wants to work with this generation of pitchers. `\
+https://nytimes.com/athletic/5582533/2024/06/21/phillies-cole-hamels/
+
 **Man Fatally Stabbed at Manhattan Subway Station, Police Say**\
 `The stabbing, which came during a dispute between two people, occurred just before 6 p.m. at the West 175th Street A train station.`\
 https://nytimes.com/2024/06/21/nyregion/subway-station-stabbing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/21/arts/television/doctor-who-finale-recap.html
 **Florida to Pay Millions to Victims of Abuses at Notorious Reform School**\
 `A $20 million program will give financial restitution to students who endured abuse and neglect at the hands of the state.`\
 https://nytimes.com/2024/06/21/us/florida-dozier-school-abuse-restitution.html
-
-**Trump Allies Begin First Line of Attack Against Arizona Election Case**\
-`The challenges from defendants charged with trying to overturn the 2020 election will be a test case for a new but little-known state law aimed at curbing political prosecutions.`\
-https://nytimes.com/2024/06/21/us/politics/trump-arizona-elections-legislation.html
 

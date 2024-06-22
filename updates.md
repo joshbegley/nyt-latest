@@ -1,3 +1,7 @@
+**Cole Hamels returns for Phillies celebration, wants future role: 'I just want to be an asset'**\
+`The 2008 World Series MVP wants to work with this generation of pitchers. `\
+https://nytimes.com/athletic/5582533/2024/06/21/phillies-cole-hamels/
+
 **Man Fatally Stabbed at Manhattan Subway Station, Police Say**\
 `The stabbing, which came during a dispute between two people, occurred just before 6 p.m. at the West 175th Street A train station.`\
 https://nytimes.com/2024/06/21/nyregion/subway-station-stabbing.html
