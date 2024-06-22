@@ -1,3 +1,7 @@
+**The Culture Wars Came to a California Suburb. A Leader Has Been Ousted.**\
+`Voters recalled a Southern California school board president after his conservative majority approved policies on critical race theory and transgender issues.`\
+https://nytimes.com/2024/06/21/us/temecula-school-board-recall.html
+
 **Endrick not rushing to be Brazil starter: 'No one needs to skip steps'**\
 `Brazil starlet Endrick says that he will patiently wait for opportunities if — as expected — he is not initially a starter for his country at Copa America.`\
 https://nytimes.com/athletic/5582359/2024/06/21/brazil-copa-america-endrick-real-madrid/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/21/style/travis-scott-mugshot-shirt.html
 **Judge in Trump Documents Case Hears Arguments Over Special Counsel**\
 `Judge Aileen Cannon held a hearing to consider a question that has been quickly dismissed in other cases: whether there is a constitutional basis for the appointment of a special counsel.`\
 https://nytimes.com/2024/06/21/us/politics/trump-documents-special-counsel.html
-
-**Iran’s 2024 Presidential Election: What to Know**\
-`Iran will hold a special election later this month to replace former President Ebrahim Raisi, who died in a helicopter crash in May.`\
-https://nytimes.com/2024/06/21/world/middleeast/iran-presidential-election-what-to-know.html
 

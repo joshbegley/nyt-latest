@@ -1,3 +1,7 @@
+**The Culture Wars Came to a California Suburb. A Leader Has Been Ousted.**\
+`Voters recalled a Southern California school board president after his conservative majority approved policies on critical race theory and transgender issues.`\
+https://nytimes.com/2024/06/21/us/temecula-school-board-recall.html
+
 **Endrick not rushing to be Brazil starter: 'No one needs to skip steps'**\
 `Brazil starlet Endrick says that he will patiently wait for opportunities if — as expected — he is not initially a starter for his country at Copa America.`\
 https://nytimes.com/athletic/5582359/2024/06/21/brazil-copa-america-endrick-real-madrid/
