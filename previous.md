@@ -1,3 +1,7 @@
+**Overturned Panthers goal on offside review becomes a historic Stanley Cup momentum changer**\
+`Aleksander Barkov's goal to cut the Oilers' lead to 2-1 in Game 6 of the Cup Final was disallowed after a review.`\
+https://nytimes.com/athletic/5582719/2024/06/22/panthers-oilers-overturned-goal-offside-review/
+
 **U.S.D.A. Avocado Inspectors Will Start Returning to Mexican Packing Plants**\
 `The inspections were suspended last weekend because of security concerns in Michoacán, the Mexican state responsible for most avocado exports to the U.S.`\
 https://nytimes.com/2024/06/22/world/americas/us-mexico-avocado-inspections-resume.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5581111/2024/06/22/turkish-german-euro-2024/
 **'Not good': Yankees' Carlos Rodón shows frustration in second straight meltdown**\
 `For the second straight outing, Rodón got torched, this time for eight runs (seven earned) in 3 2/3 innings against Atlanta.`\
 https://nytimes.com/athletic/5582627/2024/06/22/yankees-carlos-rodon-frustrated-braves/
-
-**How Qatar bought a slice of Euro 2024 - and what's next in its sights?**\
-`The Gulf state has been a visible presence in Germany but to what end?`\
-https://nytimes.com/athletic/5575658/2024/06/22/qatar-euro-2024-sponsorship-uefa/
 

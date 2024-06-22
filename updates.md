@@ -1,3 +1,7 @@
+**Overturned Panthers goal on offside review becomes a historic Stanley Cup momentum changer**\
+`Aleksander Barkov's goal to cut the Oilers' lead to 2-1 in Game 6 of the Cup Final was disallowed after a review.`\
+https://nytimes.com/athletic/5582719/2024/06/22/panthers-oilers-overturned-goal-offside-review/
+
 **U.S.D.A. Avocado Inspectors Will Start Returning to Mexican Packing Plants**\
 `The inspections were suspended last weekend because of security concerns in Michoacán, the Mexican state responsible for most avocado exports to the U.S.`\
 https://nytimes.com/2024/06/22/world/americas/us-mexico-avocado-inspections-resume.html
