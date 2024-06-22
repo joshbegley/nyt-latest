@@ -1,3 +1,7 @@
+**Chelsea confirm deal to sign Estevao from Palmeiras**\
+`Chelsea have confirmed an agreement to sign Brazilian teenager Estevao Willian from Palmeiras.`\
+https://nytimes.com/athletic/5583374/2024/06/22/chelsea-estevao-willian-transfer-confirmed/
+
 **A No-Fuss, Fantastic Eggplant Recipe**\
 `No soaking or salting is needed for Zainab Shah’s borani banjan: just a quick fry before the eggplant is nestled into garlicky yogurt and topped with tomato, pomegranate and mint.`\
 https://nytimes.com/2024/06/22/dining/borani-banjan-eggplant-recipe.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/22/us/biden-trump-election/trump-evangelicals-p
 **Center Ring at the Fashion Circus**\
 `Streetwear tyro KidSuper brings a Brooklyn indie vibe to fashion’s biggest stage, this time in a collaboration with Cirque du Soleil.`\
 https://nytimes.com/2024/06/22/style/kidsuper-cirque-du-soleil-paris-fashion.html
-
-**The concrete jungle helps the sizzling heat feel even hotter.**\
-`By Hilary Howard`\
-https://nytimes.com/live/2024/06/22/us/heat-wave-news/the-concrete-jungle-helps-the-sizzling-heat-feel-even-hotter
 
