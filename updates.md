@@ -1,3 +1,11 @@
+**Trump will address evangelicals in Washington before heading to Philadelphia.**\
+`By Chris Cameron`\
+https://nytimes.com/2024/06/22/us/politics/trump-evangelicals-philadelphia-rally.html
+
+**Center Ring at the Fashion Circus**\
+`Streetwear tyro KidSuper brings a Brooklyn indie vibe to fashion’s biggest stage, this time in a collaboration with Cirque du Soleil.`\
+https://nytimes.com/2024/06/22/style/kidsuper-cirque-du-soleil-paris-fashion.html
+
 **The concrete jungle helps the sizzling heat feel even hotter.**\
 `By Hilary Howard`\
 https://nytimes.com/live/2024/06/22/us/heat-wave-news/the-concrete-jungle-helps-the-sizzling-heat-feel-even-hotter
