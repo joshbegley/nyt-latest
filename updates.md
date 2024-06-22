@@ -1,3 +1,7 @@
+**Curious Tourists and Modern-Day Druids: Marking the Solstice at Stonehenge**\
+`To celebrate the celestial event, the ropes come down at the ancient monument, and visitors spend the night to greet the sunrise.`\
+https://nytimes.com/2024/06/22/travel/stonehenge-solstice-celebration.html
+
 **Everton complete Iroegbunam signing from Aston Villa**\
 `Everton have completed the signing of midfielder Tim Iroegbunam from Aston Villa.`\
 https://nytimes.com/athletic/5583064/2024/06/22/tim-iroegbunam-everton-transfer/
