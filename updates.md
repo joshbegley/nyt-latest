@@ -1,3 +1,15 @@
+**Sheinbaum’s American Experience Offers Clues to Her Approach to U.S. Relations**\
+`The next Mexican president’s years of living in California provide insight into how she will handle key issues in Mexico-Washington ties.`\
+https://nytimes.com/2024/06/22/world/americas/mexico-sheinbaum-us.html
+
+**What if an Earthling and Someone From Outer Space Became Pen Pals?**\
+`After a chance encounter, an extragalactic being and a citizen of Earth strike up a friendship and decide to keep in touch.`\
+https://nytimes.com/2024/06/22/arts/sketchpad-earthling-letters.html
+
+**Anjana Vasan Just Wants Stanley Tucci to Cook for Her**\
+`“Maybe I can engineer it where I work with him, and then he makes me a drink and a bowl of pasta,” the “We Are Lady Parts” actress said.`\
+https://nytimes.com/2024/06/22/arts/television/anjana-vasan-we-are-lady-parts.html
+
 **What Is a Flip Tax, and Who Has to Pay It?**\
 `Flip taxes, also known as a transfer fees, help co-op buildings raise money for repairs and improvements, and they must be described in your governing documents.`\
 https://nytimes.com/2024/06/22/realestate/what-is-a-flip-tax-and-who-has-to-pay-it.html
