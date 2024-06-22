@@ -1,3 +1,7 @@
+**Trading Card Enthusiasts?**\
+`Hoang-Kim Vu’s latest themeless puzzle will have you singing while you solve.`\
+https://nytimes.com/2024/06/21/crosswords/daily-puzzle-2024-06-22.html
+
 **Here's what new Pistons president Trajan Langdon said in his introductory news conference**\
 `Langdon joined owner Tom Gores, and here are the most important things they said, plus analysis on the comments. `\
 https://nytimes.com/athletic/5581991/2024/06/21/pistons-trajan-langdon-owner-tom-gores/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/21/us/politics/trump-arizona-elections-legislation.h
 **Shota Imanaga's disaster start brings questions to an already struggling Cubs team**\
 `Imanaga allowed 10 runs on 11 hits over three-plus innings as the Mets attacked his fastball, which had a lower average velocity than usual.`\
 https://nytimes.com/athletic/5582384/2024/06/21/shota-imanaga-disaster-start-cubs-struggling/
-
-**Man Who Attacked Nancy Pelosi’s Husband Is Convicted in California Trial**\
-`In 2022, David DePape broke into Ms. Pelosi’s San Francisco home and eventually beat her husband with a hammer.`\
-https://nytimes.com/2024/06/21/us/pelosi-attack-depape-verdict.html
 

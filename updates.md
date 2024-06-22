@@ -1,3 +1,7 @@
+**Trading Card Enthusiasts?**\
+`Hoang-Kim Vu’s latest themeless puzzle will have you singing while you solve.`\
+https://nytimes.com/2024/06/21/crosswords/daily-puzzle-2024-06-22.html
+
 **Here's what new Pistons president Trajan Langdon said in his introductory news conference**\
 `Langdon joined owner Tom Gores, and here are the most important things they said, plus analysis on the comments. `\
 https://nytimes.com/athletic/5581991/2024/06/21/pistons-trajan-langdon-owner-tom-gores/
