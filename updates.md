@@ -1,3 +1,7 @@
+**Donald Trump Said He Proposed a ‘Migrant League of Fighters’**\
+`Mr. Trump said his suggestion to Dana White, who runs the Ultimate Fighting Championship, was not well received. But, he added, “It’s not the worst idea I’ve ever had.”`\
+https://nytimes.com/live/2024/06/22/us/biden-trump-election/donald-trump-said-he-proposed-a-migrant-league-of-fighters
+
 **What are the Copa America yellow card suspension rules? Which players are at risk?**\
 `Ecuador captain Enner Valencia was sent off in his country&#8217;s opening game of the Copa America group stage against Venezuela.`\
 https://nytimes.com/athletic/5580657/2024/06/22/copa-america-2024-yellow-cards-ban-suspensions/
