@@ -1,3 +1,7 @@
+**Two Teenagers Missing in Waters Off Beach in Queens in Suspected Drowning**\
+`The search was continuing overnight for the boys, 16 and 17, who were last seen being overtaken by a large wave in the waters off Jacob Riis Park.`\
+https://nytimes.com/2024/06/22/nyregion/queens-jacob-riis-suspected-drowning.html
+
 **Jake Bloss joins the Astros' lengthy list of injured starting pitchers**\
 `Bloss, who made his major-league debut Friday, exited after 79 pitches with what the club called right shoulder "discomfort."`\
 https://nytimes.com/athletic/5582759/2024/06/22/jake-bloss-joins-astros-injured-starting-pitchers/
@@ -34,8 +38,4 @@ https://nytimes.com/2024/06/22/world/americas/us-mexico-avocado-inspections-resu
 **Fantasy baseball notebook: Trusting your eyes vs. trusting the numbers, re-thinking Nats pitching and more**\
 `Derek VanRiper lauds the surprising development of Washington pitching, proclaims Willie Mays the greatest player in MLB history and more.`\
 https://nytimes.com/athletic/5579472/2024/06/22/fantasy-baseball-notebook-ros-projections-nats-pitching-rates-barrels/
-
-**Barcelona and Nike's breakdown in relations reveals deeper problems at Catalan club**\
-`Barca's new Nike kit has still not been released - because of recent turbulence in their relationship`\
-https://nytimes.com/athletic/5572171/2024/06/22/barcelona-nike-kit-laporta-sponsorship-deal/
 
