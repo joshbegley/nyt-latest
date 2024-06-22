@@ -1,3 +1,11 @@
+**Jeremy Tepper, SiriusXM’s Longtime Alt-Country Impresario, Dies at 60**\
+`As a journalist, singer, label owner and radio producer, he fostered a community of musicians on the outskirts of Americana.`\
+https://nytimes.com/2024/06/22/arts/music/jeremy-tepper-dead.html
+
+**Heat-related illnesses spiked in some regions this week, C.D.C. data shows.**\
+`By Kate Selig`\
+https://nytimes.com/2024/06/22/us/heat-wave-illness-er-cdc.html
+
 **The Israeli military says troops have tied a wounded Palestinian to a vehicle.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/06/22/world/israel-gaza-war-hamas/the-israeli-military-says-troops-have-tied-a-wounded-palestinian-to-a-vehicle
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5583359/2024/06/22/luis-advincula-injury-peru-copa-
 **Mets place Sean Reid-Foley on IL, Danny Young called up**\
 `Young, who has impressed in limited action, is expected to meet the Mets in Chicago on Saturday.`\
 https://nytimes.com/athletic/5583412/2024/06/22/mets-sean-reid-foley-injured/
-
-**Cristopher Sánchez, Phillies agree to 4-year extension**\
-`The deal includes two club options that cover what would be Sánchez's first two free-agent years — 2029 and 2030.`\
-https://nytimes.com/athletic/5583373/2024/06/22/cristopher-sanchez-contract-extension-phillies/
-
-**Chelsea confirm deal to sign Estevao from Palmeiras**\
-`Chelsea have confirmed an agreement to sign Brazilian teenager Estevao Willian from Palmeiras.`\
-https://nytimes.com/athletic/5583374/2024/06/22/chelsea-estevao-willian-transfer-confirmed/
 

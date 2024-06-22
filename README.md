@@ -2,8 +2,8 @@
 `As a journalist, singer, label owner and radio producer, he fostered a community of musicians on the outskirts of Americana.`\
 https://nytimes.com/2024/06/22/arts/music/jeremy-tepper-dead.html
 
-**Heat-related illnesses spiked in some regions this week, C.D.C. data shows.**\
-`By Kate Selig`\
+**Heat-Related Illnesses Spiked in Some Regions This Week, C.D.C. Data Shows**\
+`Regions that had “extremely high” rates of such illnesses included swaths of New England, the Midwest and the Mid-Atlantic, all areas that have been hit the hardest by the heat wave.`\
 https://nytimes.com/2024/06/22/us/heat-wave-illness-er-cdc.html
 
 **The Israeli military says troops have tied a wounded Palestinian to a vehicle.**\

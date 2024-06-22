@@ -1,3 +1,11 @@
+**Jeremy Tepper, SiriusXM’s Longtime Alt-Country Impresario, Dies at 60**\
+`As a journalist, singer, label owner and radio producer, he fostered a community of musicians on the outskirts of Americana.`\
+https://nytimes.com/2024/06/22/arts/music/jeremy-tepper-dead.html
+
+**Heat-related illnesses spiked in some regions this week, C.D.C. data shows.**\
+`By Kate Selig`\
+https://nytimes.com/2024/06/22/us/heat-wave-illness-er-cdc.html
+
 **The Israeli military says troops have tied a wounded Palestinian to a vehicle.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/06/22/world/israel-gaza-war-hamas/the-israeli-military-says-troops-have-tied-a-wounded-palestinian-to-a-vehicle
