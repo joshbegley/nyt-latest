@@ -1,3 +1,7 @@
+**Mbappe wears mask, scores in behind-closed-doors friendly ahead of Euros return**\
+`A masked Kylian Mbappe played and scored in an hour-long behind-closed-doors friendly on Saturday as he targets a return to action at Euro 2024 after breaking his nose in France’s opening group game.`\
+https://nytimes.com/athletic/5584023/2024/06/22/kylian-mbappe-france-friendly-mask/
+
 **Silvano Marchetto, Owner of Glitzy Greenwich Village Trattoria, Dies at 77**\
 `Da Silvano was a celebrity hangout, drawing boldface names like Madonna, Barry Diller and Yoko Ono. It was often referred to as the downtown Elaine’s.`\
 https://nytimes.com/2024/06/22/obituaries/silvano-marchetto-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5583641/2024/06/22/england-slovenia-benjamin-sesko/
 **After Hajj Deaths, Egypt Suspends Companies That Took Pilgrims to Mecca**\
 `The action against 16 tour companies came as governments look into whether many travelers were not properly registered to make the journey into the desert.`\
 https://nytimes.com/2024/06/22/world/middleeast/hajj-heat-deaths-egypt.html
-
-**Chelsea hold talks over David transfer**\
-`Chelsea have held talks with the representatives of Lille striker Jonathan David about a potential transfer this summer.`\
-https://nytimes.com/athletic/5583848/2024/06/22/chelsea-jonathan-david-transfer/
 
