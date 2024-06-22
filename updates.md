@@ -1,3 +1,7 @@
+**What I'm hearing about why Jets top prospect Rutger McGroarty is in trade talks**\
+`McGroarty's view of his long-term future with Winnipeg has changed since the conclusion of his NCAA season.`\
+https://nytimes.com/athletic/5583575/2024/06/22/winnipeg-jets-rutger-mcgroarty-trade/
+
 **Villa to sell Luiz to Juventus; Iling-Junior, Barrenechea to join**\
 `Aston Villa have agreed a deal to sell Douglas Luiz to Juventus, with Samuel Iling-Junior and Enzo Barrenechea moving in the opposite direction as part of a separate transaction.`\
 https://nytimes.com/athletic/5555912/2024/06/22/juventus-douglas-luiz-iling-junior-barrenechea/
