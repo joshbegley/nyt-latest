@@ -1,3 +1,11 @@
+**Antwann Hill, 4-star QB prospect from Georgia, commits to Memphis**\
+`Entering his senior season this fall, Hill recorded 2,732 yards, 31 touchdowns and five interceptions as a junior.`\
+https://nytimes.com/athletic/5583952/2024/06/22/antwann-hill-qb-memphis-2025/
+
+**Sesko dealing with quad injury ahead of England game**\
+`Benjamin Sesko is battling a lower quad injury ahead of Slovenia’s European Championship meeting with England on Tuesday.`\
+https://nytimes.com/athletic/5583641/2024/06/22/england-slovenia-benjamin-sesko/
+
 **Thousands of Michigan Residents Weather Days Without Power During Heat Wave**\
 `A storm left about 9,000 people without power for three days.`\
 https://nytimes.com/2024/06/22/us/michigan-power-heat-wave-storm.html
