@@ -1,3 +1,7 @@
+**Donald Trump Said He Proposed a ‘Migrant League of Fighters’**\
+`Mr. Trump said his suggestion to Dana White, who runs the Ultimate Fighting Championship, was not well received. But, he added, “It’s not the worst idea I’ve ever had.”`\
+https://nytimes.com/live/2024/06/22/us/biden-trump-election/donald-trump-said-he-proposed-a-migrant-league-of-fighters
+
 **What are the Copa America yellow card suspension rules? Which players are at risk?**\
 `Ecuador captain Enner Valencia was sent off in his country&#8217;s opening game of the Copa America group stage against Venezuela.`\
 https://nytimes.com/athletic/5580657/2024/06/22/copa-america-2024-yellow-cards-ban-suspensions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5583094/2024/06/22/euro-2024-day-nine-ronaldo/
 **Picture Day**\
 `Michael Schlossberg’s Sunday puzzle is worth 5,000 words.`\
 https://nytimes.com/2024/06/22/crosswords/daily-puzzle-2024-06-23.html
-
-**Mbappe wears mask, scores in behind-closed-doors friendly ahead of Euros return**\
-`A masked Kylian Mbappe played and scored in an hour-long behind-closed-doors friendly on Saturday as he targets a return to action at Euro 2024 after breaking his nose in France’s opening group game.`\
-https://nytimes.com/athletic/5584023/2024/06/22/kylian-mbappe-france-friendly-mask/
 
