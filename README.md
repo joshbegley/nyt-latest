@@ -1,3 +1,12 @@
+**Carlos Santana joins exclusive club with 2,000 games played as Twins fall late to A's**\
+`Dedication and a dogged nature helped Santana arrive at this point.`\
+https://nytimes.com/athletic/5582733/2024/06/22/carlos-santana-2000-games-twins-oakland/
+
+**As Oilers claw their way back into Stanley Cup Final, the world witnesses NHL history**\
+`The Oilers are the first team in 79 years to force a Game 7 in the Final after being down 0-3. One more win and they’ll make history again.
+`\
+https://nytimes.com/athletic/5582726/2024/06/22/oilers-stanley-cup-final-nhl-history/
+
 **Panthers rattled after blowing 3-0 series lead to Oilers: 'You feel it. It hurts'**\
 `The stress of the situation seems to be getting to them. Can they rebound? "You lick your wounds, and we start building that back tomorrow."`\
 https://nytimes.com/athletic/5582706/2024/06/22/panthers-oilers-stanley-cup-blown-lead/
@@ -29,12 +38,4 @@ https://nytimes.com/athletic/5572171/2024/06/22/barcelona-nike-kit-laporta-spons
 **Edson Alvarez the 'Machin' - 'Mexico's most important player'**\
 `Edson Alvarez is about to have his first chance to represent Mexico at the Copa America - and he will do it as captain`\
 https://nytimes.com/athletic/5561792/2024/06/22/edson-alvarez-mexico-west-ham-copa-america-2024/
-
-**Despite his absence on the field, France used Mbappe's injury to their advantage**\
-`Deschamps and France used Mbappe's injury to their advantage, keeping the Netherlands on their toes.`\
-https://nytimes.com/athletic/5582446/2024/06/22/kylian-mbappe-france-euros-impact/
-
-**Euro 2024 is not a rebellion against Pep Guardiola's football - it's a vindication of his ideas**\
-`Don't believe the hype: the best teams at this summer's European Championship are employing many of the Manchester City manager's principles`\
-https://nytimes.com/athletic/5581299/2024/06/22/euro-2024-football-style-guardiola/
 
