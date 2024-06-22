@@ -1,3 +1,11 @@
+**Germany Hopes to Head Off a Trade War With China**\
+`As the European Union moves to impose tariffs on Chinese cars, Germany, with an auto industry deeply enmeshed with China, is stuck in the middle.`\
+https://nytimes.com/2024/06/22/business/china-germany-tariffs-trade.html
+
+**Trump will address evangelicals in Washington before heading to Philadelphia.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/06/22/us/biden-trump-election/trump-evangelicals-philadelphia-rally
+
 **Trump will address evangelicals in Washington before heading to Philadelphia.**\
 `By Chris Cameron`\
 https://nytimes.com/2024/06/22/us/politics/trump-evangelicals-philadelphia-rally.html

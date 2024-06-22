@@ -1,6 +1,10 @@
+**Germany Hopes to Head Off a Trade War With China**\
+`As the European Union moves to impose tariffs on Chinese cars, Germany, with an auto industry deeply enmeshed with China, is stuck in the middle.`\
+https://nytimes.com/2024/06/22/business/china-germany-tariffs-trade.html
+
 **Trump will address evangelicals in Washington before heading to Philadelphia.**\
 `By Chris Cameron`\
-https://nytimes.com/2024/06/22/us/politics/trump-evangelicals-philadelphia-rally.html
+https://nytimes.com/live/2024/06/22/us/biden-trump-election/trump-evangelicals-philadelphia-rally
 
 **Center Ring at the Fashion Circus**\
 `Streetwear tyro KidSuper brings a Brooklyn indie vibe to fashion’s biggest stage, this time in a collaboration with Cirque du Soleil.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5582879/2024/06/22/oilers-draisaitl-hyman-stanley-c
 **Israel’s military said its fighter jets had targeted ‘Hamas military infrastructure.’**\
 `By Aaron Boxerman and Rawan Sheikh Ahmad`\
 https://nytimes.com/live/2024/06/22/world/israel-gaza-war-hamas/israels-military-said-its-fighter-jets-had-targeted-hamas-military-infrastructure
-
-**Spain's Laporte 'annoyed' by pre-Euro 2024 debate over his fitness**\
-`Spain defender Aymeric Laporte has hit out at those who questioned his fitness levels and physical state ahead of Euro 2024.`\
-https://nytimes.com/athletic/5583017/2024/06/22/aymeric-laporte-spain-euro-2024-fitness/
 
