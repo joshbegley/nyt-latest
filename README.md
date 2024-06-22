@@ -1,3 +1,7 @@
+**Sesko battling quad injury ahead of England game**\
+`Benjamin Sesko is battling a lower quad injury ahead of Slovenia’s European Championship meeting with England on Tuesday.`\
+https://nytimes.com/athletic/5583641/2024/06/22/england-slovenia-benjamin-sesko/
+
 **After Hajj Deaths, Egypt Suspends Companies That Took Pilgrims to Mecca**\
 `The action against 16 tour companies came as governments look into whether many travelers were not properly registered to make the journey into the desert.`\
 https://nytimes.com/2024/06/22/world/middleeast/hajj-heat-deaths-egypt.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5583666/2024/06/22/cameron-young-pga-tour-round-rec
 **What I'm hearing about why Jets top prospect Rutger McGroarty is in trade talks**\
 `McGroarty's view of his long-term future with Winnipeg has changed since the conclusion of his NCAA season.`\
 https://nytimes.com/athletic/5583575/2024/06/22/winnipeg-jets-rutger-mcgroarty-trade/
-
-**Villa to sell Luiz to Juventus; Iling-Junior, Barrenechea to join**\
-`Aston Villa have agreed a deal to sell Douglas Luiz to Juventus, with Samuel Iling-Junior and Enzo Barrenechea moving in the opposite direction as part of a separate transaction.`\
-https://nytimes.com/athletic/5555912/2024/06/22/juventus-douglas-luiz-iling-junior-barrenechea/
 
