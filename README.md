@@ -1,3 +1,15 @@
+**NFL games, repeat re-lays: Why pitches have been so bad at Euro 2024**\
+`Issues with the pitches have been one of the themes of the European Championship so far`\
+https://nytimes.com/athletic/5581870/2024/06/22/euro-2024-bad-pitches/
+
+**Braves keep slugging in rout of Yankees, but how long will Atlanta aces keep getting extra rest?**\
+`This is the longest Sale has stayed healthy since 2019 and he should surpass last year's innings total by the All-Star break. `\
+https://nytimes.com/athletic/5582640/2024/06/22/braves-chris-sale-extra-rest/
+
+**Step forward Euro 2024's dark horses: Ralf Rangnick's Austria**\
+`Ralf Rangnick has quietly turned Austria into a very competitive team. Can they do the unexpected at Euro 2024?`\
+https://nytimes.com/athletic/5581336/2024/06/22/austria-dark-horses-euro-2024/
+
 **George has left, Osimhen ban had to be denied - so what's happening with Nigeria?**\
 `Nigeria have had a chaotic week after Finidi George left his job as head coach`\
 https://nytimes.com/athletic/5572606/2024/06/22/nigeria-finidi-george-victor-osimhen/
@@ -23,18 +35,6 @@ https://nytimes.com/athletic/5580343/2024/06/22/anthony-gordon-england-slovenia/
 https://nytimes.com/2024/06/22/your-money/financial-advisers-investing-goals.html
 
 **U.S. loses to West Indies at T20 World Cup**\
-`The United States suffered a heavy loss to the West Indies in the Super Eight phase of the T20 Cricket World Cup.`\
+`The United States suffered a heavy loss to the West Indies in its second game of the Super Eight phase of the T20 Cricket World Cup.`\
 https://nytimes.com/athletic/5582544/2024/06/21/usa-cricket-world-cup-west-indies-qualify/
-
-**Reds use heads-up play to score 2 on bunt in win over Boston**\
-`TJ Friedl, who had 17 bunts for base hits in 2023, laid one down against Boston that helped Cincinnati score two key runs. `\
-https://nytimes.com/athletic/5582637/2024/06/21/reds-bunt-win-red-sox/
-
-**How Oilers won Game 6 to force historic Game 7 vs. Panthers**\
-`Game 7 will be Monday in Florida, giving the Oilers a chance to be the second team in NHL history to come back from 3-0 in the Cup Final.`\
-https://nytimes.com/athletic/5579415/2024/06/21/oilers-panthers-stanley-cup-game-6-result-takeaways/
-
-**Cole Hamels returns for Phillies celebration, wants future role: 'I just want to be an asset'**\
-`The 2008 World Series MVP wants to work with this generation of pitchers. `\
-https://nytimes.com/athletic/5582533/2024/06/21/phillies-cole-hamels/
 
