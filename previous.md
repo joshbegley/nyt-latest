@@ -1,3 +1,11 @@
+**Barcelona and Nike's breakdown in relations reveals deeper problems at Catalan club**\
+`Barca's new Nike kit has still not been released - because of recent turbulence in their relationship`\
+https://nytimes.com/athletic/5572171/2024/06/22/barcelona-nike-kit-laporta-sponsorship-deal/
+
+**Edson Alvarez the 'Machin' - 'Mexico's most important player'**\
+`Edson Alvarez is about to have his first chance to represent Mexico at the Copa America - and he will do it as captain`\
+https://nytimes.com/athletic/5561792/2024/06/22/edson-alvarez-mexico-west-ham-copa-america-2024/
+
 **Despite his absence on the field, France used Mbappe's injury to their advantage**\
 `Deschamps and France used Mbappe's injury to their advantage, keeping the Netherlands on their toes.`\
 https://nytimes.com/athletic/5582446/2024/06/22/kylian-mbappe-france-euros-impact/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5581870/2024/06/22/euro-2024-bad-pitches/
 **Braves keep slugging in rout of Yankees, but how long will Atlanta aces keep getting extra rest?**\
 `This is the longest Sale has stayed healthy since 2019 and he should surpass last year's innings total by the All-Star break. `\
 https://nytimes.com/athletic/5582640/2024/06/22/braves-chris-sale-extra-rest/
-
-**Step forward Euro 2024's dark horses: Ralf Rangnick's Austria**\
-`Ralf Rangnick has quietly turned Austria into a very competitive team. Can they do the unexpected at Euro 2024?`\
-https://nytimes.com/athletic/5581336/2024/06/22/austria-dark-horses-euro-2024/
-
-**George has left, Osimhen ban had to be denied - so what's happening with Nigeria?**\
-`Nigeria have had a chaotic week after Finidi George left his job as head coach`\
-https://nytimes.com/athletic/5572606/2024/06/22/nigeria-finidi-george-victor-osimhen/
 

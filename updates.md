@@ -1,3 +1,11 @@
+**Barcelona and Nike's breakdown in relations reveals deeper problems at Catalan club**\
+`Barca's new Nike kit has still not been released - because of recent turbulence in their relationship`\
+https://nytimes.com/athletic/5572171/2024/06/22/barcelona-nike-kit-laporta-sponsorship-deal/
+
+**Edson Alvarez the 'Machin' - 'Mexico's most important player'**\
+`Edson Alvarez is about to have his first chance to represent Mexico at the Copa America - and he will do it as captain`\
+https://nytimes.com/athletic/5561792/2024/06/22/edson-alvarez-mexico-west-ham-copa-america-2024/
+
 **Despite his absence on the field, France used Mbappe's injury to their advantage**\
 `Deschamps and France used Mbappe's injury to their advantage, keeping the Netherlands on their toes.`\
 https://nytimes.com/athletic/5582446/2024/06/22/kylian-mbappe-france-euros-impact/
