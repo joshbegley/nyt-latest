@@ -1,3 +1,7 @@
+**U.S.D.A. Avocado Inspectors Will Start Returning to Mexican Packing Plants**\
+`The inspections were suspended last weekend because of security concerns in Michoacán, the Mexican state responsible for most avocado exports to the U.S.`\
+https://nytimes.com/2024/06/22/world/americas/us-mexico-avocado-inspections-resume.html
+
 **Fantasy baseball notebook: Trusting your eyes vs. trusting the numbers, re-thinking Nats pitching and more**\
 `Derek VanRiper lauds the surprising development of Washington pitching, proclaims Willie Mays the greatest player in MLB history and more.`\
 https://nytimes.com/athletic/5579472/2024/06/22/fantasy-baseball-notebook-ros-projections-nats-pitching-rates-barrels/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5582627/2024/06/22/yankees-carlos-rodon-frustrated-
 **How Qatar bought a slice of Euro 2024 - and what's next in its sights?**\
 `The Gulf state has been a visible presence in Germany but to what end?`\
 https://nytimes.com/athletic/5575658/2024/06/22/qatar-euro-2024-sponsorship-uefa/
-
-**NFL games, repeat re-lays: Why pitches have been so bad at Euro 2024**\
-`Issues with the pitches have been one of the themes of the European Championship so far`\
-https://nytimes.com/athletic/5581870/2024/06/22/euro-2024-bad-pitches/
 
