@@ -1,3 +1,23 @@
+**Ranking the best and worst Copa America home kits: a doctor bird, an Ecuador sash and 'deep red wine'**\
+`No matter what happens on the pitch, nearly every team at the Copa is a winner when it comes to their home kits. We've ranked them all...`\
+https://nytimes.com/athletic/5536713/2024/06/22/copa-america-home-kit-rankings-2024/
+
+**'Where on earth are we?': The story of the USMNT at Copa America '95**\
+`Pay disputes with the USSF, a head coach with something to prove and Maradona in tears: when the U.S. made history in Uruguay`\
+https://nytimes.com/athletic/5574523/2024/06/22/usmnt-copa-america-1995/
+
+**Would this Panthers collapse be the worst in NHL history? Yes, and it's not close**\
+`If the Panthers blow a 3-0 series lead and lose Game 7 on Monday, it will be the biggest collapse in NHL history, by a mile.`\
+https://nytimes.com/athletic/5582615/2024/06/22/nhl-stanley-cup-final-panthers-collapse/
+
+**Amid the Stanley Cup Excitement, Edmonton’s Downtown Struggles**\
+`Edmonton’s mayor says that the issues behind homelessness, opioid overdoses and mental health crises cannot be fixed by cities.`\
+https://nytimes.com/2024/06/22/world/canada/edmonton-amarjeet-sohi.html
+
+**The Connections Companion No. 378, June 23, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/22/crosswords/connections-companion-378.html
+
 **USMNT XI to face Bolivia: Will Tyler Adams start?**\
 `Our writers predict the USMNT starting lineup against Bolivia in Copa America `\
 https://nytimes.com/athletic/5582488/2024/06/22/usmnt-starting-lineup-bolivia/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5582339/2024/06/22/joe-mazzulla-celtics-parade/
 **Gretchen Whitmer Wants a Gen X President — in 2028**\
 `The governor of Michigan isn’t saying it should be her, but she’s not saying it shouldn’t be, either.`\
 https://nytimes.com/2024/06/22/magazine/gretchen-whitmer-interview.html
-
-**Sheinbaum’s American Experience Offers Clues to Her Approach to U.S. Relations**\
-`The next Mexican president’s years of living in California provide insight into how she will handle key issues in Mexico-Washington ties.`\
-https://nytimes.com/2024/06/22/world/americas/mexico-sheinbaum-us.html
-
-**What if an Earthling and Someone From Outer Space Became Pen Pals?**\
-`After a chance encounter, an extragalactic being and a citizen of Earth strike up a friendship and decide to keep in touch.`\
-https://nytimes.com/2024/06/22/arts/sketchpad-earthling-letters.html
-
-**Anjana Vasan Just Wants Stanley Tucci to Cook for Her**\
-`“Maybe I can engineer it where I work with him, and then he makes me a drink and a bowl of pasta,” the “We Are Lady Parts” actress said.`\
-https://nytimes.com/2024/06/22/arts/television/anjana-vasan-we-are-lady-parts.html
-
-**What Is a Flip Tax, and Who Has to Pay It?**\
-`Flip taxes, also known as a transfer fees, help co-op buildings raise money for repairs and improvements, and they must be described in your governing documents.`\
-https://nytimes.com/2024/06/22/realestate/what-is-a-flip-tax-and-who-has-to-pay-it.html
-
-**Kevin Kwan’s Art Deco Heirloom**\
-`The author, who received the ring from his favorite aunt, described himself as its custodian “for this generation.”`\
-https://nytimes.com/2024/06/22/style/kevin-kwans-art-deco-heirloom.html
 
