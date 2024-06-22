@@ -1,3 +1,7 @@
+**Reds use heads-up play to score 2 on bunt in win over Boston**\
+`TJ Friedl, who had 17 bunts for base hits in 2023, laid one down against Boston that helped Cincinnati score two key runs. `\
+https://nytimes.com/athletic/5582637/2024/06/21/reds-bunt-win-red-sox/
+
 **How Oilers won Game 6 vs. Panthers, bringing them to brink of historic Stanley Cup comeback: 5 takeaways**\
 `Game 7 will be Monday in Florida, giving the Oilers a chance to be the second team in NHL history to come back from 3-0 in the Cup Final.`\
 https://nytimes.com/athletic/5579415/2024/06/21/oilers-panthers-stanley-cup-game-6-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5582359/2024/06/21/brazil-copa-america-endrick-real
 **Barry Sanders experienced heart-related 'health scare'**\
 `Sanders, who turns 56 in July, said he is "taking this opportunity to prioritize my health and well-being."`\
 https://nytimes.com/athletic/5582410/2024/06/21/barry-sanders-health-scare-heart-lions/
-
-**‘Doctor Who’ Finale Recap: Answers Through the Tears**\
-`Ncuti’s Gatwa’s first season as the Doctor closes with a typically ambitious episode.`\
-https://nytimes.com/2024/06/21/arts/television/doctor-who-finale-recap.html
 
