@@ -1,3 +1,7 @@
+**Ronaldo: The performance, the pitch invaders and a moment of Portuguese purity**\
+`Cristiano Ronaldo did not score against Turkey but he certainly had an eventful 90 minutes`\
+https://nytimes.com/athletic/5583739/2024/06/22/cristiano-ronaldo-portugal-turkey/
+
 **After Conviction, Trump Presents Himself as a Martyr to the Christian Right**\
 `The former president portrayed himself as having “wounds all over” while suggesting that he was being targeted for his support of religious freedoms.`\
 https://nytimes.com/2024/06/22/us/politics/trump-faith-and-freedom-evangelical-martyr.html
