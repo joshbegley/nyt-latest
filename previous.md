@@ -1,3 +1,7 @@
+**PSG have not paid Mbappe's salary for past two months**\
+`Paris Saint-Germain have not paid Kylian Mbappe his salary for the past two months in a fresh sign of tensions with the player — who is about to join Real Madrid.`\
+https://nytimes.com/athletic/5582256/2024/06/22/kylian-mbappe-psg-real-madrid-salary/
+
 **What I Was Thinking as We Were Sinking**\
 `The things that go through your head during a disaster.`\
 https://nytimes.com/2024/06/22/podcasts/this-american-life-what-i-was-thinking-as-we-were-sinking-2024-nyt-audio.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/22/opinion/sean-penn-profile.html
 **Finding Freedom 30 Feet in the Air**\
 `Olympic hopefuls are a group of exceptional people held together by athletic tape and hope, who leap without sight of where they will land.`\
 https://nytimes.com/2024/06/22/opinion/olympics-trials-injury-trampoline.html
-
-**The Rise of Progressivism Among the Educated Elite**\
-`Readers discuss a column by David Brooks about “The Sins of the Educated Class.”`\
-https://nytimes.com/2024/06/22/opinion/progressive-educated-elite.html
 
