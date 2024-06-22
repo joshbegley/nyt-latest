@@ -1,3 +1,15 @@
+**A Parade of Mermaids Marches On in Brooklyn’s Coney Island**\
+`The heat could not stop revelers from taking part in the pageantry of aquatic weirdness.`\
+https://nytimes.com/2024/06/22/us/mermaid-parade-coney-island.html
+
+**Euro 2024 day nine: Ronaldo, pitch invaders and Belgium back in business**\
+`Cristiano Ronaldo's Portugal qualify for the knockout stages, but a series of pitch invaders create a problem for UEFA`\
+https://nytimes.com/athletic/5583094/2024/06/22/euro-2024-day-nine-ronaldo/
+
+**Picture Day**\
+`Michael Schlossberg’s Sunday puzzle is worth 5,000 words.`\
+https://nytimes.com/2024/06/22/crosswords/daily-puzzle-2024-06-23.html
+
 **Mbappe wears mask, scores in behind-closed-doors friendly ahead of Euros return**\
 `A masked Kylian Mbappe played and scored in an hour-long behind-closed-doors friendly on Saturday as he targets a return to action at Euro 2024 after breaking his nose in France’s opening group game.`\
 https://nytimes.com/athletic/5584023/2024/06/22/kylian-mbappe-france-friendly-mask/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5583906/2024/06/22/bayindir-turkey-portugal-manches
 **Ronaldo: The performance, the pitch invaders and a moment of Portuguese purity**\
 `Cristiano Ronaldo did not score against Turkey, but he certainly had an eventful 90 minutes`\
 https://nytimes.com/athletic/5583739/2024/06/22/cristiano-ronaldo-portugal-turkey/
-
-**After Conviction, Trump Presents Himself as a Martyr to the Christian Right**\
-`The former president portrayed himself as having “wounds all over” while suggesting that he was being targeted for his support of religious freedoms.`\
-https://nytimes.com/2024/06/22/us/politics/trump-faith-and-freedom-evangelical-martyr.html
-
-**Sesko dealing with quad injury ahead of England game**\
-`Benjamin Sesko is battling a lower quad injury ahead of Slovenia’s European Championship meeting with England on Tuesday.`\
-https://nytimes.com/athletic/5583641/2024/06/22/england-slovenia-benjamin-sesko/
-
-**After Hajj Deaths, Egypt Suspends Companies That Took Pilgrims to Mecca**\
-`The action against 16 tour companies came as governments look into whether many travelers were not properly registered to make the journey into the desert.`\
-https://nytimes.com/2024/06/22/world/middleeast/hajj-heat-deaths-egypt.html
 
