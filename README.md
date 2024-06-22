@@ -1,3 +1,23 @@
+**Bowman, in Fight for His Political Life, Embraces the Left’s Star Power**\
+`Representative Alexandria Ocasio-Cortez and Senator Bernie Sanders will appear at a rally for Jamaal Bowman on Saturday, three days before the primary on Tuesday.`\
+https://nytimes.com/2024/06/22/nyregion/bowman-aoc-bernie.html
+
+**Fatal Shooting Robs a Neighborhood of a Longtime Friendly Face**\
+`Alejandro Ramirez was one of two men killed in Upper Manhattan on Father’s Day. A 16-year-old has been charged in the deaths.`\
+https://nytimes.com/2024/06/22/nyregion/inwood-shooting-16-year-old-nyc.html
+
+**The Gaza War Is Dividing the L.G.B.T.Q. Community**\
+`Conflicts over the war have played out in protests, social media battles and a fight over flags on Fire Island during a time usually reserved for solidarity and celebration.`\
+https://nytimes.com/2024/06/22/nyregion/gaza-war-lgbtq-community.html
+
+**How an Eco-Conscious ‘Roller Disco Fanatic’ Spends Her Sundays**\
+`Lynn Bodnar Kelly, executive director of Bette Midler’s New York Restoration Project, e-bikes through Brooklyn and roller skates to the beat of Beyoncé.`\
+https://nytimes.com/2024/06/22/nyregion/new-york-restoration-project-lynn-bodnar-kelly.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/06/22/crosswords/spelling-bee-forum.html
+
 **Two Teenagers Missing in Waters Off Beach in Queens in Suspected Drowning**\
 `The search was continuing overnight for the boys, 16 and 17, who were last seen being overtaken by a large wave in the waters off Jacob Riis Park.`\
 https://nytimes.com/2024/06/22/nyregion/queens-jacob-riis-suspected-drowning.html
@@ -18,24 +38,4 @@ https://nytimes.com/athletic/5582726/2024/06/22/oilers-stanley-cup-final-nhl-his
 **Panthers rattled after blowing 3-0 series lead to Oilers: 'You feel it. It hurts'**\
 `The stress of the situation seems to be getting to them. Can they rebound? "You lick your wounds, and we start building that back tomorrow."`\
 https://nytimes.com/athletic/5582706/2024/06/22/panthers-oilers-stanley-cup-blown-lead/
-
-**Corrections: June 22, 2024**\
-`Corrections that appeared in print on Saturday, June 22, 2024.`\
-https://nytimes.com/2024/06/22/pageoneplus/corrections-june-22-2024.html
-
-**Quotation of the Day: Heart Overrules Home for Turkish Germans Picking a Euros Team**\
-`Quotation of the Day for Saturday, June 22, 2024.`\
-https://nytimes.com/2024/06/22/pageoneplus/quotation-of-the-day-heart-overrules-home-for-turkish-germans-picking-a-euros-team.html
-
-**Johnston: Overturned Panthers goal on offside review becomes historic Stanley Cup momentum changer**\
-`Aleksander Barkov's goal to cut the Oilers' lead to 2-1 in Game 6 of the Cup Final was disallowed after a review.`\
-https://nytimes.com/athletic/5582719/2024/06/22/panthers-oilers-overturned-goal-offside-review/
-
-**U.S.D.A. Avocado Inspectors Will Start Returning to Mexican Packing Plants**\
-`The inspections in Michoacán, the Mexican state responsible for most avocado exports to the U.S., were suspended last weekend because of security concerns.`\
-https://nytimes.com/2024/06/22/world/americas/us-mexico-avocado-inspections-resume.html
-
-**Fantasy baseball notebook: Trusting your eyes vs. trusting the numbers, re-thinking Nats pitching and more**\
-`Derek VanRiper lauds the surprising development of Washington pitching, proclaims Willie Mays the greatest player in MLB history and more.`\
-https://nytimes.com/athletic/5579472/2024/06/22/fantasy-baseball-notebook-ros-projections-nats-pitching-rates-barrels/
 
