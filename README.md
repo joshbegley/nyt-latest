@@ -1,4 +1,12 @@
-**Johnston: Overturned Panthers goal on offside review becomes a historic Stanley Cup momentum changer**\
+**Corrections: June 22, 2024**\
+`Corrections that appeared in print on Saturday, June 22, 2024.`\
+https://nytimes.com/2024/06/22/pageoneplus/corrections-june-22-2024.html
+
+**Quotation of the Day: Heart Overrules Home for Turkish Germans Picking a Euros Team**\
+`Quotation of the Day for Saturday, June 22, 2024.`\
+https://nytimes.com/2024/06/22/pageoneplus/quotation-of-the-day-heart-overrules-home-for-turkish-germans-picking-a-euros-team.html
+
+**Johnston: Overturned Panthers goal on offside review becomes historic Stanley Cup momentum changer**\
 `Aleksander Barkov's goal to cut the Oilers' lead to 2-1 in Game 6 of the Cup Final was disallowed after a review.`\
 https://nytimes.com/athletic/5582719/2024/06/22/panthers-oilers-overturned-goal-offside-review/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5581299/2024/06/22/euro-2024-football-style-guardio
 **Southgate feels England are too tired to press - is he right?**\
 `Players looked 'shattered' against Denmark – but is that just down to the number of minutes in their legs?`\
 https://nytimes.com/athletic/5581153/2024/06/22/gareth-southgate-feels-england-are-too-tired-to-press-is-he-right/
-
-**For the 2.8million Turks in Germany, football is coming home**\
-`Germany has the biggest population of Turks outside Turkey - and at the heart of their cultural identity is football`\
-https://nytimes.com/athletic/5581111/2024/06/22/turkish-german-euro-2024/
-
-**'Not good': Yankees' Carlos Rodón shows frustration in second straight meltdown**\
-`For the second straight outing, Rodón got torched, this time for eight runs (seven earned) in 3 2/3 innings against Atlanta.`\
-https://nytimes.com/athletic/5582627/2024/06/22/yankees-carlos-rodon-frustrated-braves/
 
