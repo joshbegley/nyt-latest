@@ -13,6 +13,11 @@ https://nytimes.com/athletic/5582726/2024/06/22/oilers-stanley-cup-final-nhl-his
 `\
 https://nytimes.com/athletic/5582726/2024/06/22/oilers-stanley-cup-final-nhl-history/
 
+**LeBrun: As Oilers claw back into Stanley Cup Final, the world witnesses NHL history**\
+`The Oilers are the first team in 79 years to force a Game 7 in the Final after being down 0-3. One more win and they’ll make history again.
+`\
+https://nytimes.com/athletic/5582726/2024/06/22/oilers-stanley-cup-final-nhl-history/
+
 **Jake Bloss joins the Astros' lengthy list of injured starting pitchers**\
 `Bloss, who made his major-league debut Friday, exited after 79 pitches with what the club called right shoulder "discomfort."`\
 https://nytimes.com/athletic/5582759/2024/06/22/jake-bloss-joins-astros-lengthy-list-of-injured-starting-pitchers/
