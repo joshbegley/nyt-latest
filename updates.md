@@ -1,3 +1,11 @@
+**NFL games, repeat re-lays: Why pitches have been so bad at Euro 2024**\
+`Issues with the pitches have been one of the themes of the European Championship so far`\
+https://nytimes.com/athletic/5581870/2024/06/22/euro-2024-bad-pitches/
+
+**U.S. loses to West Indies at T20 World Cup**\
+`The United States suffered a heavy loss to the West Indies in its second game of the Super Eight phase of the T20 Cricket World Cup.`\
+https://nytimes.com/athletic/5582544/2024/06/21/usa-cricket-world-cup-west-indies-qualify/
+
 **Braves keep slugging in rout of Yankees, but how long will Atlanta aces keep getting extra rest?**\
 `This is the longest Sale has stayed healthy since 2019 and he should surpass last year's innings total by the All-Star break. `\
 https://nytimes.com/athletic/5582640/2024/06/22/braves-chris-sale-extra-rest/
