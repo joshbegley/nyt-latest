@@ -1,3 +1,11 @@
+**Israel’s military said its fighter jets had targeted ‘Hamas military infrastructure.’**\
+`By Aaron Boxerman and Rawan Sheikh Ahmad`\
+https://nytimes.com/live/2024/06/22/world/israel-gaza-war-hamas/israels-military-said-its-fighter-jets-had-targeted-hamas-military-infrastructure
+
+**Spain's Laporte 'annoyed' by pre-Euro 2024 debate over his fitness**\
+`Spain defender Aymeric Laporte has hit out at those who questioned his fitness levels and physical state ahead of Euro 2024.`\
+https://nytimes.com/athletic/5583017/2024/06/22/aymeric-laporte-spain-euro-2024-fitness/
+
 **Who says no? Evaluating your Knicks trade proposals in the offseason**\
 `Knicks beat writer Fred Katz runs through several different scenarios and trades submitted by readers.`\
 https://nytimes.com/athletic/5582371/2024/06/22/knicks-trade-proposals-offseason-who-says-no/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5577477/2024/06/22/bruins-fan-survey-free-agency-tr
 **Going After the Middleman**\
 `Assistant Attorney General Jonathan Kanter, the Justice Department’s top antitrust official, talked with DealBook about the agency’s focus on middlemen companies and the challenge of A.I.`\
 https://nytimes.com/2024/06/22/business/dealbook/going-after-the-middleman.html
-
-**2 Novels Set Over Very Memorable Days**\
-`A dinner party at the other woman’s house; the evening before a jail sentence.`\
-https://nytimes.com/2024/06/22/books/novels-set-over-one-single-day.html
-
-**Toxic Moonshine Leaves at Least 53 Dead in India’s South**\
-`Consumption of tainted bootleg alcohol has caused several instances of mass deaths in recent years as drinkers seek out illicit liquor to save money or evade the law.`\
-https://nytimes.com/2024/06/22/world/asia/toxic-moonshine-death-india.html
 
