@@ -1,3 +1,11 @@
+**Lauren Boebert Is Feeling the Heat in Colorado**\
+`Her political future will be decided in Tuesday’s Republican congressional primary. Is there a limit to MAGA antics?`\
+https://nytimes.com/2024/06/23/opinion/lauren-boebert-colorado-primary.html
+
+**The E.U. Is Revealing Its True Identity. Europeans Don’t Like It.**\
+`It is looking more and more like a project to universalize the un-universalizable.`\
+https://nytimes.com/2024/06/23/opinion/european-union-elections-nationalism.html
+
 **Ayoze Perez interview: From 'feeling forgotten' to Euro 2024 challenge with Spain**\
 `He was perhaps the biggest surprise call-up for Spain at Euro 2024. That's why Ayoze Perez is smiling`\
 https://nytimes.com/athletic/5583489/2024/06/23/euro-2024-ayoze-perez-spain-interview/
