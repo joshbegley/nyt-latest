@@ -1,3 +1,11 @@
+**Leafs hire Marc Savard as assistant coach, will run power play next season**\
+`Savard was announced as the last piece of Craig Berube’s coaching staff on Sunday.`\
+https://nytimes.com/athletic/5585613/2024/06/23/maple-leafs-marc-savard-assistant-coach/
+
+**Rudiger injury 'problematic' for Germany last-16 tie**\
+`Antonio Rudiger could be a doubt for Germany&#8217;s last-16 game at the European Championship with a thigh injury.`\
+https://nytimes.com/athletic/5585631/2024/06/23/antonio-rudiger-injury-germany-last-16/
+
 **Cubs honor Hall of Famer Ryne Sandberg, unveil statue outside Wrigley Field**\
 `On the anniversary of the Sandberg Game, the Cubs honored Ryne Sandberg with a statue outside Wrigley Field.`\
 https://nytimes.com/athletic/5585566/2024/06/23/cubs-ryne-sandberg-statue-wrigley/
