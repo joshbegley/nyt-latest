@@ -1,3 +1,7 @@
+**Vols baseball euphoria runs into Aggies reality, but Tennessee has the edge from here**\
+`Game 1 was a vibe-wrecker, a reminder of the way Tennessee teams can tease. But as AJ Causey said, the Vols are "not new to this."`\
+https://nytimes.com/athletic/5584181/2024/06/23/vols-aggies-college-world-series-game-1/
+
 **Lauren Boebert Is Feeling the Heat in Colorado**\
 `Her political future will be decided in Tuesday’s Republican congressional primary. Is there a limit to MAGA antics?`\
 https://nytimes.com/2024/06/23/opinion/lauren-boebert-colorado-primary.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5583210/2024/06/23/canada-transfer-news-davies/
 **Gordon? Wharton? Three at the back? Our writers' England XIs to face Slovenia**\
 `Gareth Southgate has some decisions to make against Slovenia – what changes should he make?`\
 https://nytimes.com/athletic/5580709/2024/06/23/england-lineup-slovenia-euro-202424/
-
-**The Nation Resurgent, and Borders, Too**\
-`In France, as in the United States, feelings harden against immigrants, and President Emmanuel Macron and President Biden take note.`\
-https://nytimes.com/2024/06/23/world/europe/the-nation-resurgent-and-borders-too.html
 
