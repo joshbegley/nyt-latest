@@ -1,3 +1,7 @@
+**Gunmen Kill at Least 6 at Synagogue and Churches in Russian Republic**\
+`Gunmen killed at least a half-dozen police officers and a priest in Dagestan in what appeared to be coordinated attacks, local officials said.`\
+https://nytimes.com/2024/06/23/world/europe/russia-attack-dagestan.html
+
 **Trump Running Mate Roundup: Noem is not being vetted, and Burgum goes on the offense.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/06/23/us/biden-trump-election/trump-biden-sunday-shows
