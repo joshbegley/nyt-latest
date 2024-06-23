@@ -1,3 +1,7 @@
+**Angel Reese dominates as Sky top Fever, Caitlin Clark**\
+`Reese finished the Sky’s 88-87 victory with a career-high 25 points. She added 16 rebounds, recording her eighth consecutive double-double.`\
+https://nytimes.com/athletic/5585512/2024/06/23/angel-reese-caitlin-clark-fever-sky/
+
 **Older adults in Philadelphia look for help staying cool.**\
 `By Jon Hurdle and Isabelle Taft`\
 https://nytimes.com/live/2024/06/23/us/heat-wave-news/older-adults-in-philadelphia-look-for-help-staying-cool
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5585227/2024/06/23/harry-kane-gareth-southgate-engl
 **Varga fractures cheekbone, stable in hospital after being taken off in Hungary vs Scotland**\
 `Hungary striker Barnabas Varga is stable in hospital after suffering a fractured cheekbone and being taken from the field on a stretcher during the Euro 2024 game against Scotland.`\
 https://nytimes.com/athletic/5585339/2024/06/23/barnabas-varga-injury-hungary-scotland/
-
-**Scheffler wins for 6th time in 2024 at Travelers Championship**\
-`Scheffler edged out friend Tom Kim in a playoff.`\
-https://nytimes.com/athletic/5585317/2024/06/23/scottie-scheffler-travelers-championship-win-playoff/
 
