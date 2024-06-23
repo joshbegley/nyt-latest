@@ -1,3 +1,7 @@
+**Dobbin completes move to Villa from Everton**\
+`Aston Villa have confirmed the signing of Lewis Dobbin from Everton for an undisclosed fee.`\
+https://nytimes.com/athletic/5584528/2024/06/23/lewis-dobbin-aston-villa-everton-transfer/
+
 **Tchouameni urges French citizens to vote amid upcoming election**\
 `Aurelien Tchouameni has stated that he hates &#8220;extremes in everyday life&#8221; as he called on everyone in France &#8220;to go out and vote&#8221; in the upcoming election.`\
 https://nytimes.com/athletic/5584489/2024/06/23/aurelien-tchouameni-france-election/

@@ -1,3 +1,7 @@
+**Dobbin completes move to Villa from Everton**\
+`Aston Villa have confirmed the signing of Lewis Dobbin from Everton for an undisclosed fee.`\
+https://nytimes.com/athletic/5584528/2024/06/23/lewis-dobbin-aston-villa-everton-transfer/
+
 **The Giants have been throwing more relief innings than almost anyone else (again)**\
 `How hard are Giants' relievers being worked compared to the rest of the league? It depends on the stats you use to measure workload.`\
 https://nytimes.com/athletic/5565226/2024/06/23/sf-giants-bullpen-usage-innings-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5562810/2024/06/23/copa-america-argentine-managers/
 **Chris Richards exclusive: A Copa America homecoming after World Cup 'heartbreak'**\
 `Richards heads into the Copa America fresh from a breakthrough season in the Premier League with Crystal Palace – and is targeting success`\
 https://nytimes.com/athletic/5569913/2024/06/23/richards-usmnt-palace-copa/
-
-**What's at stake for the Oilers in Game 7 of the Stanley Cup Final?**\
-`Win or lose on Monday night, one doubts things will ever be the same in Edmonton.`\
-https://nytimes.com/athletic/5582317/2024/06/23/edmonton-oilers-game-7-stanley-cup-final/
 
