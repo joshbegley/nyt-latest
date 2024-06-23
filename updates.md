@@ -1,3 +1,7 @@
+**Grocery Store Shooting That Killed 4 Leaves an Arkansas Town in Disbelief**\
+`The small town of Fordyce, Ark., was beginning to absorb the impact of the bloodshed, as a few details began to emerge. A fourth victim died on Saturday.`\
+https://nytimes.com/2024/06/22/us/arkansas-shooting-grocery-store.html
+
 **Bailey Ober's first complete game lifts Twins, provides bullpen much-needed break**\
 `The 6-foot-9 righty threw 70 of his 89 pitches for strikes and earned a postgame ice bath.`\
 https://nytimes.com/athletic/5584159/2024/06/22/twins-bailey-ober-complete-game/
