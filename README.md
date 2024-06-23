@@ -1,3 +1,11 @@
+**Trump Suggests Biden May Use Supplements to Get ‘Jacked Up’ for Debate**\
+`The former president has mocked his rival’s mental capacities, but at a rally in Philadelphia, his baseless accusation seemed to set the stage for a more formidable opponent.`\
+https://nytimes.com/2024/06/22/us/politics/trump-biden-supplements-debate.html
+
+**Yankees' Giancarlo Stanton hurts hamstring, leaves game: What's next?**\
+`Stanton left the Yankees' 8-3 win over the Braves with left hamstring tightness. `\
+https://nytimes.com/athletic/5584264/2024/06/22/yankees-giancarlo-stanton-injury/
+
 **2024 Copa America USA vs. Bolivia odds: Americans heavily favored to open with a win**\
 `The United States men's national team opens the 2024 Copa America with a match Sunday against Bolivia. The U.S. is heavily favored to win.`\
 https://nytimes.com/athletic/5578765/2024/06/22/2024-copa-america-odds-usa-bolivia/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/22/us/arkansas-shooting-grocery-store.html
 **Donald Trump Said He Proposed a ‘Migrant League of Fighters’**\
 `Mr. Trump said his suggestion to Dana White, who runs the Ultimate Fighting Championship, was not well received. But, he added, “It’s not the worst idea I’ve ever had.”`\
 https://nytimes.com/2024/06/22/us/politics/donald-trump-said-he-proposed-a-migrant-league-of-fighters.html
-
-**What are the Copa America yellow card suspension rules? Which players are at risk?**\
-`Ecuador captain Enner Valencia was sent off in his country&#8217;s opening game of the Copa America group stage against Venezuela.`\
-https://nytimes.com/athletic/5580657/2024/06/22/copa-america-2024-yellow-cards-ban-suspensions/
-
-**In the Mid-Atlantic and Ohio Valley, some residents are undeterred by the heat.**\
-`By Kevin Williams, Donna M. Owens and Jon Hurdle`\
-https://nytimes.com/live/2024/06/22/us/heat-wave-news/in-the-mid-atlantic-and-ohio-valley-some-residents-are-undeterred-by-the-heat
 
