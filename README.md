@@ -1,3 +1,7 @@
+**A Man Missing for 10 Days in a California Forest Is Found Alive**\
+`Lukas McClish said he lost 30 pounds in 10 days but was rescued without any major injuries.`\
+https://nytimes.com/2024/06/23/us/forest-rescue-big-basin-boulder-creek.html
+
 **Liverpool legend Hansen discharged from hospital**\
 `Liverpool legend Alan Hansen has been released from hospital after a period of illness, the club has confirmed.`\
 https://nytimes.com/athletic/5584607/2024/06/23/alan-hansen-liverpool-discharged/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5584337/2024/06/23/usmnt-copa-america-the-pulse/
 **Tchouameni urges French citizens to vote amid upcoming election**\
 `Aurelien Tchouameni has stated that he hates &#8220;extremes in everyday life&#8221; as he called on everyone in France &#8220;to go out and vote&#8221; in the upcoming election.`\
 https://nytimes.com/athletic/5584489/2024/06/23/aurelien-tchouameni-france-election/
-
-**The Costs of Caring for Pets**\
-`We explain the changing world of pet health care.`\
-https://nytimes.com/2024/06/23/briefing/the-costs-of-caring-for-pets.html
 
