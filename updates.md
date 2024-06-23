@@ -1,3 +1,7 @@
+**Tommy Paul wins Queen's, becomes American men's tennis No. 1**\
+`This is the third and biggest ATP Tour title of the 27-year-old's career.`\
+https://nytimes.com/athletic/5584729/2024/06/23/tommy-paul-queens-american-tennis/
+
 **Kane says ex-England players have a 'responsibility' following Lineker criticism**\
 `Harry Kane has responded to Gary Lineker&#8217;s criticism of England&#8217;s Euro 2024 campaign by saying former national team players have a “responsibility” to consider the impact of their words.`\
 https://nytimes.com/athletic/5584651/2024/06/23/harry-kane-england-gary-lineker/

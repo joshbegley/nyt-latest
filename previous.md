@@ -1,3 +1,7 @@
+**Tommy Paul wins Queen's, becomes American men's tennis No. 1**\
+`This is the third and biggest ATP Tour title of the 27-year-old's career.`\
+https://nytimes.com/athletic/5584729/2024/06/23/tommy-paul-queens-american-tennis/
+
 **Kane says ex-England players have a 'responsibility' following Lineker criticism**\
 `Harry Kane has responded to Gary Lineker&#8217;s criticism of England&#8217;s Euro 2024 campaign by saying former national team players have a “responsibility” to consider the impact of their words.`\
 https://nytimes.com/athletic/5584651/2024/06/23/harry-kane-england-gary-lineker/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/23/style/dries-van-noten-fashion-shows-paris.html
 **Ukraine Urges Allies to Allow Their Weapons to Target Russian Air Power**\
 `After bombs again rained on Kharkiv, Ukraine’s second-biggest city, President Volodymyr Zelensky asked Western partners to permit the use of their weapons against air bases inside Russia.`\
 https://nytimes.com/2024/06/23/world/europe/ukraine-war-zelensky-us-weapons.html
-
-**How to Deal With the National Trauma of Jan. 6**\
-`Responses to an essay about Jan. 6 and memory. Also: Donald Trump’s V.P. factors; an age limit for presidents; Ukraine peace talks; avoiding parenthood.`\
-https://nytimes.com/2024/06/23/opinion/jan-6-memory.html
 
