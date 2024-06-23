@@ -1,3 +1,15 @@
+**Ayoze Perez interview: From 'feeling forgotten' to Euro 2024 challenge with Spain**\
+`He was perhaps the biggest surprise call-up for Spain at Euro 2024. That's why Ayoze Perez is smiling`\
+https://nytimes.com/athletic/5583489/2024/06/23/euro-2024-ayoze-perez-spain-interview/
+
+**Billy Gilmour represents the future - for Brighton as well as Scotland**\
+`With Pascal Gross' future uncertain, Gilmour has a key role at the Amex stadium under Fabian Hurzeler as he builds on last year's progress`\
+https://nytimes.com/athletic/5580745/2024/06/23/gilmour-brighton-scotland/
+
+**Corrections: June 23, 2024**\
+`Corrections that appeared in print on Sunday, June 23, 2024.`\
+https://nytimes.com/2024/06/23/pageoneplus/corrections-june-23-2024.html
+
 **Texas A&M takes Game 1 of Men's College World Series**\
 `Tennessee (58-13), the SEC champs and No. 1 overall seed, will look to keep its season alive Sunday with Game 2 scheduled for 2 p.m. ET.`\
 https://nytimes.com/athletic/5584310/2024/06/23/texas-am-tennessee-mens-college-world-series-game-1/
