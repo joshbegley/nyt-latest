@@ -1,3 +1,11 @@
+**Lauren Boebert Is Feeling the Heat in Colorado**\
+`Her political future will be decided in Tuesday’s Republican congressional primary. Is there a limit to MAGA antics?`\
+https://nytimes.com/2024/06/23/opinion/lauren-boebert-colorado-primary.html
+
+**The E.U. Is Revealing Its True Identity. Europeans Don’t Like It.**\
+`It is looking more and more like a project to universalize the un-universalizable.`\
+https://nytimes.com/2024/06/23/opinion/european-union-elections-nationalism.html
+
 **Ayoze Perez interview: From 'feeling forgotten' to Euro 2024 challenge with Spain**\
 `He was perhaps the biggest surprise call-up for Spain at Euro 2024. That's why Ayoze Perez is smiling`\
 https://nytimes.com/athletic/5583489/2024/06/23/euro-2024-ayoze-perez-spain-interview/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5580709/2024/06/23/england-lineup-slovenia-euro-202
 **The Nation Resurgent, and Borders, Too**\
 `In France, as in the United States, feelings harden against immigrants, and President Emmanuel Macron and President Biden take note.`\
 https://nytimes.com/2024/06/23/world/europe/the-nation-resurgent-and-borders-too.html
-
-**Boys Are Struggling. Male Kindergarten Teachers Are Here to Help.**\
-`Only around 3 percent of kindergarten teachers are men. We interviewed a dozen of them about the joys of the job and the challenges boys face today.`\
-https://nytimes.com/interactive/2024/06/23/upshot/male-kindergarten-teachers.html
-
-**What the Arrival of A.I. Phones and Computers Means for Our Data**\
-`Apple, Microsoft and Google need more access to our data as they promote new phones and personal computers that are powered by artificial intelligence. Should we trust them?`\
-https://nytimes.com/2024/06/23/technology/personaltech/ai-phones-computers-privacy.html
 
