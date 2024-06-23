@@ -1,3 +1,11 @@
+**Netanyahu says the war’s intensive phase is coming to an end.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/06/23/world/israel-gaza-war-hamas/netanyahu-says-the-wars-intensive-phase-is-coming-to-an-end
+
+**Tennessee bounces back to force Game 3 of MCWS vs. Texas A&M**\
+`The Volunteers roared back with a 4-1 victory over the Aggies to set up a winner-take-all game on Monday at 7 p.m. ET.`\
+https://nytimes.com/athletic/5585438/2024/06/23/tennessee-texas-am-mens-college-world-series-game-2/
+
 **Euro 2024 day 10: Hungary's Varga stable in hospital, Germany's winning run ended**\
 `Our writers bring you up to date with the main events from the European Championship on Sunday`\
 https://nytimes.com/athletic/5584652/2024/06/23/euro-2024-day-10-varga-hungary/
