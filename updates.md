@@ -1,3 +1,7 @@
+**Tchouameni urges French citizens to vote amid upcoming election**\
+`Aurelien Tchouameni has stated that he hates &#8220;extremes in everyday life&#8221; as he called on everyone in France &#8220;to go out and vote&#8221; in the upcoming election.`\
+https://nytimes.com/athletic/5584489/2024/06/23/aurelien-tchouameni-france-election/
+
 **The Giants have been throwing more relief innings than almost anyone else (again)**\
 `How hard are Giants' relievers being worked compared to the rest of the league? It depends on the stats you use to measure workload.`\
 https://nytimes.com/athletic/5565226/2024/06/23/sf-giants-bullpen-usage-innings-analysis/
