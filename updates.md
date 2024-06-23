@@ -1,3 +1,23 @@
+**For Biden and Trump, a Debate Rematch With Even Greater Risks and Rewards**\
+`The matchup on Thursday will be the earliest presidential debate in American history, and any potential missteps could linger for weeks or months.`\
+https://nytimes.com/2024/06/23/us/politics/biden-trump-debate-stakes.html
+
+**Disputes About Race and Party Strategy Shape N.Y. Democratic Primaries**\
+`Several State Assembly contests have become contentious as the June 25 primary nears, with the party grappling between moderate and progressive forces.`\
+https://nytimes.com/2024/06/23/nyregion/democrats-primaries-race-ny.html
+
+**Hidden Stashes: Keeping Money Secrets From a Loved One**\
+`People hide money for a variety of reasons, from nefarious to romantic. But financial experts say such secrets can erode a basic pillar of relationships: trust.`\
+https://nytimes.com/2024/06/23/business/financial-secrets-money-partner.html
+
+**‘I Walked Over to a Food Cart That Is Always at the Intersection’**\
+`Turning to a local institution in a pinch, a tip about Beethoven and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2024/06/23/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/06/23/crosswords/spelling-bee-forum.html
+
 **Vols baseball euphoria runs into Aggies reality, but Tennessee has the edge from here**\
 `Game 1 was a vibe-wrecker, a reminder of the way Tennessee teams can tease. But as AJ Causey said, the Vols are "not new to this."`\
 https://nytimes.com/athletic/5584181/2024/06/23/vols-aggies-college-world-series-game-1/
