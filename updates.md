@@ -1,3 +1,11 @@
+**Braves shortstop Orlando Arcia's hitting is woeful, Adam Duvall's recent slump just as bad**\
+`Arcia has woeful numbers recently, but it's not as if the Braves have a obvious options. `\
+https://nytimes.com/athletic/5584271/2024/06/22/braves-shortstop-orlando-arcias-hitting-is-woeful-adam-duvalls-recent-slump-just-as-bad/
+
+**Quote of the Day: Defying and Disrupting, Putin Succeeds in Asia**\
+`Quotation of the Day for Sunday, June 23, 2024.`\
+https://nytimes.com/2024/06/22/pageoneplus/quote-of-the-day-defying-and-disrupting-putin-succeeds-in-asia.html
+
 **Mexico's Alvarez to undergo tests after injury in Copa America opener**\
 `Edson Alvarez will undergo tests after being forced off with injury just 30 minutes into Mexico&#8217;s Copa America campaign.`\
 https://nytimes.com/athletic/5584207/2024/06/22/edson-alvarez-injury-mexico/

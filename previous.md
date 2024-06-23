@@ -1,3 +1,11 @@
+**Braves shortstop Orlando Arcia's hitting is woeful, Adam Duvall's recent slump just as bad**\
+`Arcia has woeful numbers recently, but it's not as if the Braves have a obvious options. `\
+https://nytimes.com/athletic/5584271/2024/06/22/braves-shortstop-orlando-arcias-hitting-is-woeful-adam-duvalls-recent-slump-just-as-bad/
+
+**Quote of the Day: Defying and Disrupting, Putin Succeeds in Asia**\
+`Quotation of the Day for Sunday, June 23, 2024.`\
+https://nytimes.com/2024/06/22/pageoneplus/quote-of-the-day-defying-and-disrupting-putin-succeeds-in-asia.html
+
 **Mexico's Alvarez to undergo tests after injury in Copa America opener**\
 `Edson Alvarez will undergo tests after being forced off with injury just 30 minutes into Mexico&#8217;s Copa America campaign.`\
 https://nytimes.com/athletic/5584207/2024/06/22/edson-alvarez-injury-mexico/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5584200/2024/06/22/ryan-crouser-joe-kovacs-shot-put
 **Bailey Ober's first complete game lifts Twins, provides bullpen much-needed break**\
 `The 6-foot-9 righty threw 70 of his 89 pitches for strikes and earned a postgame ice bath.`\
 https://nytimes.com/athletic/5584159/2024/06/22/twins-bailey-ober-complete-game/
-
-**Davies condems racist abuse of Bombito: 'Canada is a diverse country'**\
-`KANSAS CITY – Alphonso Davies responded to the racist comments defender Moise Bombito received on his personal Instagram after Canada&#8217;s Copa America opener against Argentina, calling them “absolutely disgusting” to see.`\
-https://nytimes.com/athletic/5584150/2024/06/22/moise-bombito-racism-canada-alphonso-davies/
-
-**Grocery Store Shooting That Killed 4 Leaves an Arkansas Town in Disbelief**\
-`The small town of Fordyce, Ark., was beginning to absorb the impact of the bloodshed, as a few details began to emerge. A fourth victim died on Saturday.`\
-https://nytimes.com/2024/06/22/us/arkansas-shooting-grocery-store.html
 
