@@ -1,3 +1,7 @@
+**Tchouameni urges French citizens to vote amid upcoming election**\
+`Aurelien Tchouameni has called on &#8220;everyone&#8221; in France &#8220;to go out and vote&#8221; in the upcoming election.`\
+https://nytimes.com/athletic/5584489/2024/06/23/aurelien-tchouameni-france-election/
+
 **The Costs of Caring for Pets**\
 `We explain the changing world of pet health care.`\
 https://nytimes.com/2024/06/23/briefing/the-costs-of-caring-for-pets.html
@@ -34,4 +38,3 @@ https://nytimes.com/2024/06/23/opinion/celine-dion-documentary-diva.html
 `Donald Trump suffers the lowest level of corporate support in the history of the Republican Party.`\
 https://nytimes.com/2024/06/23/opinion/ceo-trump-republican-support.html
 
-**A drone attack damages a ship in the Red Sea, and other news.**\
