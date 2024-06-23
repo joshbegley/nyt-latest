@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5579497/2024/06/23/nhl-free-agency-trades-offseason
 https://nytimes.com/athletic/5584337/2024/06/23/usmnt-copa-america-the-pulse/
 
 **Tchouameni urges French citizens to vote amid upcoming election**\
-`Aurelien Tchouameni has called on &#8220;everyone&#8221; in France &#8220;to go out and vote&#8221; in the upcoming election.`\
+`Aurelien Tchouameni has stated that he hates &#8220;extremes in everyday life&#8221; as he called on everyone in France &#8220;to go out and vote&#8221; in the upcoming election.`\
 https://nytimes.com/athletic/5584489/2024/06/23/aurelien-tchouameni-france-election/
 
 **The Costs of Caring for Pets**\
