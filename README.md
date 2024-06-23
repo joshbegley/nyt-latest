@@ -1,3 +1,7 @@
+**In the steamy Florida Panhandle, the homeless feel helpless.**\
+`By Kalyn Wolfe`\
+https://nytimes.com/live/2024/06/23/us/heat-wave-news/in-the-steamy-florida-panhandle-the-homeless-feel-helpless
+
 **Spencer Turnbull relishes rejoining rotation as Phillies push pause on Taijuan Walker**\
 `After seven weeks in the bullpen, Turnbull is back in the rotation and motivated to stay there. Meanwhile, Michael Mercado joins the pen. `\
 https://nytimes.com/athletic/5585154/2024/06/23/spencer-turnbull-phillies-rotation-taijuan-walker/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/23/us/biden-trump-election/trump-biden-sunday-s
 **A sampling of records that were broken in this heat wave.**\
 `By David W. Chen`\
 https://nytimes.com/live/2024/06/23/us/heat-wave-news/a-sampling-of-records-that-were-broken-in-this-heat-wave
-
-**Spalletti promises Italy changes after 'mistakes not mixing things up' vs Spain**\
-`Italy head coach Luciano Spalletti has promised to make changes to his side ahead of their final Euro 2024 group stage fixture against Croatia after conceding he did not tweak things soon enough during the defeat to Spain last time out.`\
-https://nytimes.com/athletic/5584986/2024/06/23/luciano-spalletti-italy-croatia-changes/
 
