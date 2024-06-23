@@ -1,3 +1,7 @@
+**The Costs of Caring for Pets**\
+`We explain the changing world of pet health care.`\
+https://nytimes.com/2024/06/23/briefing/the-costs-of-caring-for-pets.html
+
 **The 2024 Christian Pulisic: Leader, superstar... change maker?**\
 `Pulisic has already achieved more than most in his career. Now, can he help propel the USMNT to make the next step up?`\
 https://nytimes.com/athletic/5583613/2024/06/23/usmnt-christian-pulisic-copa-america/
