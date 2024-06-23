@@ -1,3 +1,11 @@
+**Spencer Turnbull relishes rejoining rotation as Phillies push pause on Taijuan Walker**\
+`After seven weeks in the bullpen, Turnbull is back in the rotation and motivated to stay there. Meanwhile, Michael Mercado joins the pen. `\
+https://nytimes.com/athletic/5585154/2024/06/23/spencer-turnbull-phillies-rotation-taijuan-walker/
+
+**Endrick to be unveiled as Real Madrid player on July 26**\
+`Endrick is expected to be unveiled as a Real Madrid player next month after he officially signs his contract on his 18th birthday.`\
+https://nytimes.com/athletic/5585136/2024/06/23/endrick-real-madrid-contract-presentation/
+
 **Woman Tried to Drown 3-Year-Old Girl After Making Racist Comments, Police Say**\
 `A Texas woman tried to drown the child in the pool of an apartment complex last month, the police said. The child’s mother said her family was Palestinian and Muslim.`\
 https://nytimes.com/2024/06/23/us/texas-woman-drown-child.html

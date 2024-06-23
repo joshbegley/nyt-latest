@@ -1,3 +1,11 @@
+**Spencer Turnbull relishes rejoining rotation as Phillies push pause on Taijuan Walker**\
+`After seven weeks in the bullpen, Turnbull is back in the rotation and motivated to stay there. Meanwhile, Michael Mercado joins the pen. `\
+https://nytimes.com/athletic/5585154/2024/06/23/spencer-turnbull-phillies-rotation-taijuan-walker/
+
+**Endrick to be unveiled as Real Madrid player on July 26**\
+`Endrick is expected to be unveiled as a Real Madrid player next month after he officially signs his contract on his 18th birthday.`\
+https://nytimes.com/athletic/5585136/2024/06/23/endrick-real-madrid-contract-presentation/
+
 **Woman Tried to Drown 3-Year-Old Girl After Making Racist Comments, Police Say**\
 `A Texas woman tried to drown the child in the pool of an apartment complex last month, the police said. The child’s mother said her family was Palestinian and Muslim.`\
 https://nytimes.com/2024/06/23/us/texas-woman-drown-child.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/06/23/us/heat-wave-news/a-sampling-of-records-that
 **Spalletti promises Italy changes after 'mistakes not mixing things up' vs Spain**\
 `Italy head coach Luciano Spalletti has promised to make changes to his side ahead of their final Euro 2024 group stage fixture against Croatia after conceding he did not tweak things soon enough during the defeat to Spain last time out.`\
 https://nytimes.com/athletic/5584986/2024/06/23/luciano-spalletti-italy-croatia-changes/
-
-**Biden campaign plans a Georgia blitz ahead of Thursday debate in Atlanta.**\
-`By Maya King`\
-https://nytimes.com/live/2024/06/23/us/biden-trump-election/biden-georgia-debate
-
-**‘Little details’ cost Lando victory in Spain — but the threat to Max is real**\
-`For this to be the second race in a row that Norris could have won on merit ahead of Verstappen is an encouraging sign for the coming races.`\
-https://nytimes.com/athletic/5584944/2024/06/23/f1-spanish-gp-lando-norris-max-verstappen-mclaren-red-bull/
 
