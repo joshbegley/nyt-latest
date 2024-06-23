@@ -1,3 +1,19 @@
+**The Giants have been throwing more relief innings than almost anyone else (again)**\
+`How hard are Giants' relievers being worked compared to the rest of the league? It depends on the stats you use to measure workload.`\
+https://nytimes.com/athletic/5565226/2024/06/23/sf-giants-bullpen-usage-innings-analysis/
+
+**Portugal's smart dynamics did for Turkey - and will keep rivals guessing at Euro 2024**\
+`Victory on Saturday secured their place in the last 16 - and showcased their supreme system changes`\
+https://nytimes.com/athletic/5584379/2024/06/23/portugal-turkey-euro-2024-analysis-ronaldo-bernardo/
+
+**What NHL offseason trades, signings and other moves would we like to see? One pick for each team**\
+`The Athletic asked its NHL staff what each team should prioritize this offseason, looking at free-agent signings, cap dumps, trades, more.`\
+https://nytimes.com/athletic/5579497/2024/06/23/nhl-free-agency-trades-offseason-2024/
+
+**The Pulse: How to judge UMSNT in this tourney**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5584337/2024/06/23/usmnt-copa-america-the-pulse/
+
 **Tchouameni urges French citizens to vote amid upcoming election**\
 `Aurelien Tchouameni has called on &#8220;everyone&#8221; in France &#8220;to go out and vote&#8221; in the upcoming election.`\
 https://nytimes.com/athletic/5584489/2024/06/23/aurelien-tchouameni-france-election/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5569913/2024/06/23/richards-usmnt-palace-copa/
 **What's at stake for the Oilers in Game 7 of the Stanley Cup Final?**\
 `Win or lose on Monday night, one doubts things will ever be the same in Edmonton.`\
 https://nytimes.com/athletic/5582317/2024/06/23/edmonton-oilers-game-7-stanley-cup-final/
-
-**Clarence Thomas and John Roberts Are at a Fork in the Road**\
-`Modern American lawmakers are not limited by the colonial imagination.`\
-https://nytimes.com/2024/06/23/opinion/rahimi-clarence-thomas-john-roberts.html
-
-**Puerto Rico Will Not Go Quietly Into the Dark**\
-`The island’s power crisis illustrates the consequences of putting essential services in the hands of a private entity.`\
-https://nytimes.com/2024/06/23/opinion/puerto-rico-luma-blackout.html
-
-**Celine Dion Will Save Us From Our Diva Deficit**\
-`A pop diva inspires and unites fans in ways that few other cultural figures can. Which is why we should all be rooting for Celine Dion.`\
-https://nytimes.com/2024/06/23/opinion/celine-dion-documentary-diva.html
-
-**What America’s Leading C.E.O.s Really Think of Donald Trump**\
-`Donald Trump suffers the lowest level of corporate support in the history of the Republican Party.`\
-https://nytimes.com/2024/06/23/opinion/ceo-trump-republican-support.html
 
