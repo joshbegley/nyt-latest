@@ -1,3 +1,7 @@
+**Liverpool legend Hansen discharged from hospital**\
+`Liverpool legend Alan Hansen has been released from hospital after a period of illness, the club has confirmed.`\
+https://nytimes.com/athletic/5584607/2024/06/23/alan-hansen-liverpool-discharged/
+
 **After Escaping China by Sea, a Dissident Faces His Next Act**\
 `Kwon Pyong recounted for the first time the series of gambles that got him out of China by jet ski, and almost a year later, out of South Korea.`\
 https://nytimes.com/2024/06/23/world/asia/china-dissident-jet-ski-south-korea.html
