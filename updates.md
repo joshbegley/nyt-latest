@@ -1,3 +1,15 @@
+**A sampling of records that were broken in this heat wave.**\
+`By David W. Chen`\
+https://nytimes.com/live/2024/06/23/us/heat-wave-news/a-sampling-of-records-that-were-broken-in-this-heat-wave
+
+**Spalletti promises Italy changes after 'mistakes not mixing things up' vs Spain**\
+`Italy head coach Luciano Spalletti has promised to make changes to his side ahead of their final Euro 2024 group stage fixture against Croatia after conceding he did not tweak things soon enough during the defeat to Spain last time out.`\
+https://nytimes.com/athletic/5584986/2024/06/23/luciano-spalletti-italy-croatia-changes/
+
+**Rare Risk of Tornadoes in New England on Sunday, Forecasters Say**\
+`More than eight million people in parts of Maine, Massachusetts, New Hampshire, New York and Vermont were under a tornado watch through 8 p.m.`\
+https://nytimes.com/2024/06/23/weather/tornado-storms-new-england.html
+
 **Rare Risk of Tornadoes in New England on Sunday, Forecasters Say**\
 `More than 8 million people in parts of Maine, Massachusetts, New Hampshire, New York and Vermont were under a tornado watch through 8 p.m.`\
 https://nytimes.com/2024/06/23/weather/tornado-storms-new-england.html

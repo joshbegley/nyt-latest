@@ -1,3 +1,11 @@
+**A sampling of records that were broken in this heat wave.**\
+`By David W. Chen`\
+https://nytimes.com/live/2024/06/23/us/heat-wave-news/a-sampling-of-records-that-were-broken-in-this-heat-wave
+
+**Spalletti promises Italy changes after 'mistakes not mixing things up' vs Spain**\
+`Italy head coach Luciano Spalletti has promised to make changes to his side ahead of their final Euro 2024 group stage fixture against Croatia after conceding he did not tweak things soon enough during the defeat to Spain last time out.`\
+https://nytimes.com/athletic/5584986/2024/06/23/luciano-spalletti-italy-croatia-changes/
+
 **Biden campaign plans a Georgia blitz ahead of Thursday debate in Atlanta.**\
 `By Maya King`\
 https://nytimes.com/live/2024/06/23/us/biden-trump-election/biden-georgia-debate
@@ -11,7 +19,7 @@ https://nytimes.com/athletic/5584944/2024/06/23/f1-spanish-gp-lando-norris-max-v
 https://nytimes.com/athletic/5584943/2024/06/23/usa-cricket-world-cup-out-england/
 
 **Rare Risk of Tornadoes in New England on Sunday, Forecasters Say**\
-`More than 8 million people in parts of Maine, Massachusetts, New Hampshire, New York and Vermont were under a tornado watch through 8 p.m.`\
+`More than eight million people in parts of Maine, Massachusetts, New Hampshire, New York and Vermont were under a tornado watch through 8 p.m.`\
 https://nytimes.com/2024/06/23/weather/tornado-storms-new-england.html
 
 **Murray a major doubt for Wimbledon after back surgery**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5584716/2024/06/23/shacarri-richardson-olympics-tri
 **Eagle Football group make $20m bid for Almada**\
 `Eagle Football Holdings, which has stakes in clubs including Botofogo, Crystal Palace and Lyon, is in talks over the playmaker`\
 https://nytimes.com/athletic/5584845/2024/06/23/thiago-almada-transfer-atlanta-botofogo-news/
-
-**Matvei Michkov plans to leave SKA, join Flyers**\
-`Michkov plans on terminating the final two seasons of his KHL contract, allowing him to join the Flyers organization for the 2024-25 season.`\
-https://nytimes.com/athletic/5584834/2024/06/23/matvei-michkov-flyers-nhl-plans/
-
-**Four games, four cities, four days: Germany is giving fans the party it promised**\
-`Fans from every corner of the continent have flocked to Germany in their thousands - the diversity is making this a tournament to savour`\
-https://nytimes.com/athletic/5584689/2024/06/23/germany-euro-2024-fans/
 
