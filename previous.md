@@ -1,3 +1,7 @@
+**Euro 2024 day 10: Hungary's Varga stable in hospital, Germany's winning run ended**\
+`Our writers bring you up to date with the main events from the European Championship on Sunday`\
+https://nytimes.com/athletic/5584652/2024/06/23/euro-2024-day-10-varga-hungary/
+
 **Broody Subculture**\
 `Anthony V. Grubb makes his New York Times debut.`\
 https://nytimes.com/2024/06/23/crosswords/daily-puzzle-2024-06-24.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/23/world/asia/israel-gaza-dagestan-russia-asia.html
 **Protestors invade PGA Tour final round at Travelers Championship**\
 `The Travelers Championship in Cromwell, Ct. had to be briefly delayed by the group that ran out from the crowd on the 18th green.`\
 https://nytimes.com/athletic/5585250/2024/06/23/pga-tour-protestors-travelers-championship/
-
-**In the steamy Florida Panhandle, the homeless feel helpless.**\
-`By Kalyn Wolfe`\
-https://nytimes.com/live/2024/06/23/us/heat-wave-news/in-the-steamy-florida-panhandle-the-homeless-feel-helpless
 

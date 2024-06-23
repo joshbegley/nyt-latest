@@ -1,3 +1,7 @@
+**Euro 2024 day 10: Hungary's Varga stable in hospital, Germany's winning run ended**\
+`Our writers bring you up to date with the main events from the European Championship on Sunday`\
+https://nytimes.com/athletic/5584652/2024/06/23/euro-2024-day-10-varga-hungary/
+
 **Broody Subculture**\
 `Anthony V. Grubb makes his New York Times debut.`\
 https://nytimes.com/2024/06/23/crosswords/daily-puzzle-2024-06-24.html
