@@ -1,3 +1,7 @@
+**After Escaping China by Sea, a Dissident Faces His Next Act**\
+`Kwon Pyong recounted for the first time the series of gambles that got him out of China by jet ski, and almost a year later, out of South Korea.`\
+https://nytimes.com/2024/06/23/world/asia/china-dissident-jet-ski-south-korea.html
+
 **In Germany, a Tournament Runs Smoothly, but the Trains Do Not**\
 `Sweltering train cars, frequent delays and regular cancellations: At the Euro 2024 men’s soccer tournament, Germany’s faltering rail system emerges as a tough opponent.`\
 https://nytimes.com/2024/06/23/world/europe/germany-trains-euro-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/23/briefing/the-costs-of-caring-for-pets.html
 **The 2024 Christian Pulisic: Leader, superstar... change maker?**\
 `Pulisic has already achieved more than most in his career. Now, can he help propel the USMNT to make the next step up?`\
 https://nytimes.com/athletic/5583613/2024/06/23/usmnt-christian-pulisic-copa-america/
-
-**Why are so many of the coaches at Copa America from Argentina?**\
-`At this summer’s Copa America, seven of the 16 participating nations will be led by Argentine coaches – and it's not a one-off`\
-https://nytimes.com/athletic/5562810/2024/06/23/copa-america-argentine-managers/
 
