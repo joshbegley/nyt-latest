@@ -1,3 +1,7 @@
+**UEFA increases security after pitch invaders target Ronaldo**\
+`UEFA has confirmed it will increase security measures at Euro 2024 after Portugal&#8217;s victory over Turkey was marred by a number of pitch invasions from supporters.`\
+https://nytimes.com/athletic/5584899/2024/06/23/cristiano-ronaldo-pitch-invaders-uefa/
+
 **Sha'Carri Richardson, her spot in Paris secured, closing in on Olympic glory**\
 `If Sha'Carri Richardson wins gold in Paris, it would be a strong finish to this years-long journey on her way to superstardom.`\
 https://nytimes.com/athletic/5584716/2024/06/23/shacarri-richardson-olympics-trials-100-meter-glory/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5584491/2024/06/23/euro-2024-knockout-permutations/
 **D.C. area has been particularly hot this weekend, with new temperature records.**\
 `By Isabelle Taft`\
 https://nytimes.com/live/2024/06/23/us/heat-wave-news/dc-area-has-been-particularly-hot-this-weekend-with-new-temperature-records
-
-**Albania player Daku suspended for two games after nationalist chants**\
-`Albanian player Mirlind Daku has been suspended by UEFA for two games after leading nationalist chants with supporters following his country&#8217;s game against Croatia.`\
-https://nytimes.com/athletic/5584756/2024/06/23/albania-mirlind-daku-banned/
 
