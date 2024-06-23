@@ -1,3 +1,7 @@
+**Protestors invade PGA Tour final round at Travelers Championship**\
+`The Travelers Championship in Cromwell, Ct. had to be briefly delayed by the group that ran out from the crowd on the 18th green.`\
+https://nytimes.com/athletic/5585250/2024/06/23/pga-tour-protestors-travelers-championship/
+
 **In the steamy Florida Panhandle, the homeless feel helpless.**\
 `By Kalyn Wolfe`\
 https://nytimes.com/live/2024/06/23/us/heat-wave-news/in-the-steamy-florida-panhandle-the-homeless-feel-helpless
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5584987/2024/06/23/f1-spanish-gp-takeaways-mclaren-
 **Trump Running Mate Roundup: Noem is not being vetted, and Burgum goes on the offense.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/06/23/us/biden-trump-election/trump-biden-sunday-shows
-
-**A sampling of records that were broken in this heat wave.**\
-`By David W. Chen`\
-https://nytimes.com/live/2024/06/23/us/heat-wave-news/a-sampling-of-records-that-were-broken-in-this-heat-wave
 
