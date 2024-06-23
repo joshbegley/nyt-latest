@@ -1,3 +1,7 @@
+**Monday Briefing: Among Some Israelis, Muted Sympathy for Gaza**\
+`Also, shootings in Dagestan, a Russian republic.`\
+https://nytimes.com/2024/06/23/world/asia/israel-gaza-dagestan-russia-asia.html
+
 **Protestors invade PGA Tour final round at Travelers Championship**\
 `The Travelers Championship in Cromwell, Ct. had to be briefly delayed by the group that ran out from the crowd on the 18th green.`\
 https://nytimes.com/athletic/5585250/2024/06/23/pga-tour-protestors-travelers-championship/
