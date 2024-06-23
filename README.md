@@ -1,3 +1,7 @@
+**Gordon? Wharton? Three at the back? Our writers' England XIs to face Slovenia**\
+`Gareth Southgate has some decisions to make against Slovenia – what changes should he make?`\
+https://nytimes.com/athletic/5580709/2024/06/23/england-lineup-slovenia-euro-202424/
+
 **The Nation Resurgent, and Borders, Too**\
 `In France, as in the United States, feelings harden against immigrants, and President Emmanuel Macron and President Biden take note.`\
 https://nytimes.com/2024/06/23/world/europe/the-nation-resurgent-and-borders-too.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5584207/2024/06/22/edson-alvarez-injury-mexico/
 **Trump Suggests Biden May Use Supplements to Get ‘Jacked Up’ for Debate**\
 `The former president has mocked his rival’s mental capacities, but at a rally in Philadelphia, his baseless accusation seemed to set the stage for a more formidable opponent.`\
 https://nytimes.com/2024/06/22/us/politics/trump-biden-supplements-debate.html
-
-**Yankees' Giancarlo Stanton hurts hamstring, leaves game: What's next?**\
-`Stanton left the Yankees' 8-3 win over the Braves with left hamstring tightness. `\
-https://nytimes.com/athletic/5584264/2024/06/22/yankees-giancarlo-stanton-injury/
 
