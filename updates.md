@@ -1,3 +1,7 @@
+**How to Deal With the National Trauma of Jan. 6**\
+`Responses to an essay about Jan. 6 and memory. Also: Donald Trump’s V.P. factors; an age limit for presidents; Ukraine peace talks; avoiding parenthood.`\
+https://nytimes.com/2024/06/23/opinion/jan-6-memory.html
+
 **Tommy Paul wins Queen's, becomes American men's tennis No. 1**\
 `This is the third and biggest ATP Tour title of the 27-year-old's career.`\
 https://nytimes.com/athletic/5584729/2024/06/23/tommy-paul-queens-american-tennis/
