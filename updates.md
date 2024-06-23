@@ -1,3 +1,7 @@
+**2024 Copa America USA vs. Bolivia odds: Americans heavily favored to open with a win**\
+`The United States men's national team opens the 2024 Copa America with a match Sunday against Bolivia. The U.S. is heavily favored to win.`\
+https://nytimes.com/athletic/5578765/2024/06/22/2024-copa-america-odds-usa-bolivia/
+
 **Sha'Carri Richardson punches ticket to Paris with 100m win at U.S. trials**\
 `Richardson bounced back from a choppy start out of the blocks to obliterate her elite American competitors in the midsection of the sprint.`\
 https://nytimes.com/athletic/5584239/2024/06/22/shacarri-richardson-qualifies-paris-olympics/
