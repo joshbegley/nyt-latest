@@ -1,3 +1,7 @@
+**Why Bragg Dropped Charges Against Most Columbia Student Protesters**\
+`The Manhattan district attorney’s office cited a lack of evidence in deciding not to prosecute 31 of the 46 people charged in the takeover of Hamilton Hall.`\
+https://nytimes.com/2024/06/23/nyregion/columbia-protest-charges-bragg.html
+
 **Amy Yang wins KPMG Women's PGA Championship**\
 `Yang won by three strokes for her first career major championship.`\
 https://nytimes.com/athletic/5585467/2024/06/23/amy-yang-wins-kpmg-womens-pga-championship/
