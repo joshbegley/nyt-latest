@@ -1,3 +1,7 @@
+**Rare Risk of Tornadoes in New England on Sunday, Forecasters Say**\
+`While the Plains or the South are more commonly considered hot spots for tornadoes, they do happen in New England, forecasters said.`\
+https://nytimes.com/2024/06/23/weather/tornado-storms-new-england.html
+
 **Murray a major doubt for Wimbledon after back surgery**\
 `Andy Murray&#8217;s Wimbledon swansong is in the balance after he underwent a surgical procedure on his back on Saturday.`\
 https://nytimes.com/athletic/5584502/2024/06/23/andy-murray-wimbledon-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5584729/2024/06/23/tommy-paul-queens-american-tenni
 **Kane says ex-England players have a 'responsibility' following Lineker criticism**\
 `Harry Kane has responded to Gary Lineker&#8217;s criticism of England&#8217;s Euro 2024 campaign by saying former national team players have a “responsibility” to consider the impact of their words.`\
 https://nytimes.com/athletic/5584651/2024/06/23/harry-kane-england-gary-lineker/
-
-**Euro 2024 state of play: Who needs what to reach the knockout stage?**\
-`All the permutations ahead of the final round of group games at Euro 2024`\
-https://nytimes.com/athletic/5584491/2024/06/23/euro-2024-knockout-permutations/
 

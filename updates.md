@@ -1,3 +1,7 @@
+**Rare Risk of Tornadoes in New England on Sunday, Forecasters Say**\
+`While the Plains or the South are more commonly considered hot spots for tornadoes, they do happen in New England, forecasters said.`\
+https://nytimes.com/2024/06/23/weather/tornado-storms-new-england.html
+
 **Murray a major doubt for Wimbledon after back surgery**\
 `Andy Murray&#8217;s Wimbledon swansong is in the balance after he underwent a surgical procedure on his back on Saturday.`\
 https://nytimes.com/athletic/5584502/2024/06/23/andy-murray-wimbledon-injury/
