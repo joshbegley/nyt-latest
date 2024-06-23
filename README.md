@@ -1,3 +1,7 @@
+**Gunmen Kill at Least 6 at Synagogue and Churches in Russian Republic**\
+`Gunmen killed at least a half-dozen police officers and a priest in Dagestan in what appeared to be coordinated attacks, local officials said.`\
+https://nytimes.com/2024/06/23/world/europe/russia-attack-dagestan.html
+
 **De la Fuente plays down comparisons of Euro 2024 team to Spain greats**\
 `Luis de la Fuente has played down any lofty comparisons to the great Spain teams of the past despite his side&#8217;s strong start to Euro 2024.`\
 https://nytimes.com/athletic/5585074/2024/06/23/spain-euro-2024-team/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5584943/2024/06/23/usa-cricket-world-cup-out-englan
 **Rare Risk of Tornadoes in New England on Sunday, Forecasters Say**\
 `More than eight million people in parts of Maine, Massachusetts, New Hampshire, New York and Vermont were under a tornado watch through 8 p.m.`\
 https://nytimes.com/2024/06/23/weather/tornado-storms-new-england.html
-
-**Murray a major doubt for Wimbledon after back surgery**\
-`Andy Murray&#8217;s Wimbledon swansong is in the balance after he underwent a surgical procedure on his back on Saturday.`\
-https://nytimes.com/athletic/5584502/2024/06/23/andy-murray-wimbledon-injury/
 
