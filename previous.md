@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5585074/2024/06/23/spain-euro-2024-team/
 `Stay informed on all the biggest stories in Formula One.`\
 https://nytimes.com/athletic/5584987/2024/06/23/f1-spanish-gp-takeaways-mclaren-mercedes-red-bull-alpine/
 
-**Trump V.P. roundup: Noem is not being vetted, and Burgum goes on the offense.**\
+**Trump Running Mate Roundup: Noem is not being vetted, and Burgum goes on the offense.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/06/23/us/biden-trump-election/trump-biden-sunday-shows
 

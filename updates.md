@@ -1,3 +1,7 @@
+**Trump Running Mate Roundup: Noem is not being vetted, and Burgum goes on the offense.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/06/23/us/biden-trump-election/trump-biden-sunday-shows
+
 **De la Fuente plays down comparisons of Euro 2024 team to Spain greats**\
 `Luis de la Fuente has played down any lofty comparisons to the great Spain teams of the past despite his side&#8217;s strong start to Euro 2024.`\
 https://nytimes.com/athletic/5585074/2024/06/23/spain-euro-2024-team/
