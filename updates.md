@@ -1,3 +1,7 @@
+**Orelvis Martinez suspended 80 games for violating MLB PED policy**\
+`Martinez, 22, is the Blue Jays' No. 2 prospect and one of the best young bats in their system.`\
+https://nytimes.com/athletic/5584745/2024/06/23/orelvis-martinez-suspension-ped-policy-jays/
+
 **Election Updates: Trump says he proposed a ‘migrant league of fighters’ to the head of U.F.C.**\
 ``\
 https://nytimes.com/live/2024/06/23/us/biden-trump-election

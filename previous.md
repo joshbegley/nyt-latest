@@ -1,3 +1,7 @@
+**Orelvis Martinez suspended 80 games for violating MLB PED policy**\
+`Martinez, 22, is the Blue Jays' No. 2 prospect and one of the best young bats in their system.`\
+https://nytimes.com/athletic/5584745/2024/06/23/orelvis-martinez-suspension-ped-policy-jays/
+
 **Election Updates: Trump says he proposed a ‘migrant league of fighters’ to the head of U.F.C.**\
 ``\
 https://nytimes.com/live/2024/06/23/us/biden-trump-election
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5584607/2024/06/23/alan-hansen-liverpool-discharged
 **After Escaping China by Sea, a Dissident Faces His Next Act**\
 `Kwon Pyong recounted for the first time the series of gambles that got him out of China by jet ski, and almost a year later, out of South Korea.`\
 https://nytimes.com/2024/06/23/world/asia/china-dissident-jet-ski-south-korea.html
-
-**In Germany, a Tournament Runs Smoothly, but the Trains Do Not**\
-`Sweltering train cars, frequent delays and regular cancellations: At the Euro 2024 men’s soccer tournament, Germany’s faltering rail system emerges as a tough opponent.`\
-https://nytimes.com/2024/06/23/world/europe/germany-trains-euro-2024.html
 
