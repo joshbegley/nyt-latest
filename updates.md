@@ -1,3 +1,11 @@
+**Cubs honor Hall of Famer Ryne Sandberg, unveil statue outside Wrigley Field**\
+`On the anniversary of the Sandberg Game, the Cubs honored Ryne Sandberg with a statue outside Wrigley Field.`\
+https://nytimes.com/athletic/5585566/2024/06/23/cubs-ryne-sandberg-statue-wrigley/
+
+**No Apparent Motive in Arkansas Shooting, but the Reaction Is ‘So Personal’**\
+`The shooting that killed four and injured 10 at a grocery store in a town of 3,400 appeared to be a “completely random, senseless act,” the police said on Sunday.`\
+https://nytimes.com/2024/06/23/us/fordyce-arkansas-shooting-grocery-store.html
+
 **Why Bragg Dropped Charges Against Most Columbia Student Protesters**\
 `The Manhattan district attorney’s office cited a lack of evidence in deciding not to prosecute 31 of the 46 people charged in the takeover of Hamilton Hall.`\
 https://nytimes.com/2024/06/23/nyregion/columbia-protest-charges-bragg.html
