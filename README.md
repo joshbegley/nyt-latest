@@ -1,3 +1,7 @@
+**Murray a major doubt for Wimbledon after back surgery**\
+`Andy Murray&#8217;s Wimbledon swansong is in the balance after he underwent a surgical procedure on his back on Saturday.`\
+https://nytimes.com/athletic/5584502/2024/06/23/andy-murray-wimbledon-injury/
+
 **UEFA increases security after pitch invaders target Ronaldo**\
 `UEFA has confirmed it will increase security measures at Euro 2024 after Portugal&#8217;s victory over Turkey was marred by a number of pitch invasions from supporters.`\
 https://nytimes.com/athletic/5584899/2024/06/23/cristiano-ronaldo-pitch-invaders-uefa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5584651/2024/06/23/harry-kane-england-gary-lineker/
 **Euro 2024 state of play: Who needs what to reach the knockout stage?**\
 `All the permutations ahead of the final round of group games at Euro 2024`\
 https://nytimes.com/athletic/5584491/2024/06/23/euro-2024-knockout-permutations/
-
-**D.C. area has been particularly hot this weekend, with new temperature records.**\
-`By Isabelle Taft`\
-https://nytimes.com/live/2024/06/23/us/heat-wave-news/dc-area-has-been-particularly-hot-this-weekend-with-new-temperature-records
 
