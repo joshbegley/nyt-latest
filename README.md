@@ -1,3 +1,11 @@
+**Cubs honor Hall of Famer Ryne Sandberg, unveil statue outside Wrigley Field**\
+`On the anniversary of the Sandberg Game, the Cubs honored Ryne Sandberg with a statue outside Wrigley Field.`\
+https://nytimes.com/athletic/5585566/2024/06/23/cubs-ryne-sandberg-statue-wrigley/
+
+**No Apparent Motive in Arkansas Shooting, but the Reaction Is ‘So Personal’**\
+`The shooting that killed four and injured 10 at a grocery store in a town of 3,400 appeared to be a “completely random, senseless act,” the police said on Sunday.`\
+https://nytimes.com/2024/06/23/us/fordyce-arkansas-shooting-grocery-store.html
+
 **Why Bragg Dropped Charges Against Most Columbia Student Protesters**\
 `The Manhattan district attorney’s office cited a lack of evidence in deciding not to prosecute 31 of the 46 people charged in the takeover of Hamilton Hall.`\
 https://nytimes.com/2024/06/23/nyregion/columbia-protest-charges-bragg.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5584652/2024/06/23/euro-2024-day-10-varga-hungary/
 **Broody Subculture**\
 `Anthony V. Grubb makes his New York Times debut.`\
 https://nytimes.com/2024/06/23/crosswords/daily-puzzle-2024-06-24.html
-
-**Pilgrim Deaths in Mecca Put Spotlight on Underworld Hajj Industry**\
-`Most of the more than 1,300 people who died making the Islamic pilgrimage were not formally registered, a Saudi official said. That left them with little access to protection from the brutal heat.`\
-https://nytimes.com/2024/06/23/world/middleeast/hajj-pilgrim-deaths-saudi-arabia.html
-
-**As New Jersey Bakes, Some Towns Ask Residents to Reduce Water Use**\
-`The heat was especially oppressive in urban areas of New Jersey, a state that climate experts say is warming at a faster rate than others in the Northeast.`\
-https://nytimes.com/2024/06/23/us/new-jersey-heat-water.html
 
