@@ -1,3 +1,7 @@
+**Scheffler wins for 6th time in 2024 at Travelers Championship**\
+`Scheffler edged out friend Tom Kim in a playoff.`\
+https://nytimes.com/athletic/5585317/2024/06/23/scottie-scheffler-travelers-championship-win-playoff/
+
 **The Briefing: Switzerland 1-1 Germany - Fullkrug is the saviour but hosts look vulnerable**\
 `All the big talking points from Switzerland's Group A clash with hosts Germany in Frankfurt`\
 https://nytimes.com/athletic/5580937/2024/06/23/switzerland-germany-euro-2024-analysis/
