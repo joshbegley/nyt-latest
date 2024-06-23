@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5584944/2024/06/23/f1-spanish-gp-lando-norris-max-v
 https://nytimes.com/athletic/5584943/2024/06/23/usa-cricket-world-cup-out-england/
 
 **Rare Risk of Tornadoes in New England on Sunday, Forecasters Say**\
-`More than 8 million people in parts of Maine, Massachusetts, New Hampshire, New York and Vermont were under a tornado watch through 8 p.m.`\
+`More than eight million people in parts of Maine, Massachusetts, New Hampshire, New York and Vermont were under a tornado watch through 8 p.m.`\
 https://nytimes.com/2024/06/23/weather/tornado-storms-new-england.html
 
 **Murray a major doubt for Wimbledon after back surgery**\
