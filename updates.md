@@ -1,3 +1,7 @@
+**Angel Reese dominates as Sky top Fever, Caitlin Clark**\
+`Reese finished the Sky’s 88-87 victory with a career-high 25 points. She added 16 rebounds, recording her eighth consecutive double-double.`\
+https://nytimes.com/athletic/5585512/2024/06/23/angel-reese-caitlin-clark-fever-sky/
+
 **Older adults in Philadelphia look for help staying cool.**\
 `By Jon Hurdle and Isabelle Taft`\
 https://nytimes.com/live/2024/06/23/us/heat-wave-news/older-adults-in-philadelphia-look-for-help-staying-cool
