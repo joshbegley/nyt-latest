@@ -1,3 +1,7 @@
+**Floods Force Rescues in Iowa and South Dakota**\
+`Parts of the Upper Midwest remained under flood warnings on Sunday morning, after days of heavy rain pushed some rivers to record levels.`\
+https://nytimes.com/2024/06/23/us/iowa-south-dakota-floods.html
+
 **Heat Wave Enters 7th Day, but the End Is in Sight**\
 `The unusually early heat wave that has gripped much of the country may let up early this week, forecasters predict.`\
 https://nytimes.com/2024/06/23/us/us-heat-wave.html
