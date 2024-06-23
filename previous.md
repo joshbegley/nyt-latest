@@ -1,3 +1,7 @@
+**‘Little details’ cost Lando victory in Spain — but the threat to Max is real**\
+`For this to be the second race in a row that Norris could have won on merit ahead of Verstappen is an encouraging sign for the coming races.`\
+https://nytimes.com/athletic/5584944/2024/06/23/f1-spanish-gp-lando-norris-max-verstappen-mclaren-red-bull/
+
 **U.S. out of T20 Cricket World Cup after defeat by England**\
 `The United States is out of the T20 Cricket World Cup after a heavy defeat by England in Bridgetown, Barbados.`\
 https://nytimes.com/athletic/5584943/2024/06/23/usa-cricket-world-cup-out-england/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5584689/2024/06/23/germany-euro-2024-fans/
 **A Patriotic Tribute, a Time-Honored Tradition**\
 `Times readers can again expect to find a full-page transcription of the Declaration of Independence in the newspaper this Fourth of July.`\
 https://nytimes.com/2024/06/23/insider/declaration-of-independence.html
-
-**Tommy Paul wins Queen's, becomes American men's tennis No. 1**\
-`This is the third and biggest ATP Tour title of the 27-year-old's career.`\
-https://nytimes.com/athletic/5584729/2024/06/23/tommy-paul-queens-american-tennis/
 

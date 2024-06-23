@@ -1,3 +1,7 @@
+**‘Little details’ cost Lando victory in Spain — but the threat to Max is real**\
+`For this to be the second race in a row that Norris could have won on merit ahead of Verstappen is an encouraging sign for the coming races.`\
+https://nytimes.com/athletic/5584944/2024/06/23/f1-spanish-gp-lando-norris-max-verstappen-mclaren-red-bull/
+
 **U.S. out of T20 Cricket World Cup after defeat by England**\
 `The United States is out of the T20 Cricket World Cup after a heavy defeat by England in Bridgetown, Barbados.`\
 https://nytimes.com/athletic/5584943/2024/06/23/usa-cricket-world-cup-out-england/
