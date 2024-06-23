@@ -15,7 +15,7 @@ https://nytimes.com/2024/06/23/us/texas-woman-drown-child.html
 https://nytimes.com/athletic/5585119/2024/06/23/will-riley-five-star-illinois-commit/
 
 **Gunmen Kill at Least 6 at Synagogue and Churches in Russian Republic**\
-`Gunmen killed at least a half-dozen police officers and a priest in Dagestan in what appeared to be coordinated attacks, local officials said.`\
+`At least a half-dozen police officers and a priest in Dagestan died in what appeared to be coordinated attacks, local officials said.`\
 https://nytimes.com/2024/06/23/world/europe/russia-attack-dagestan.html
 
 **De la Fuente plays down comparisons of Euro 2024 team to Spain greats**\
