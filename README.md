@@ -1,11 +1,3 @@
-**Leafs hire Marc Savard as assistant coach, will run power play next season**\
-`Savard was announced as the last piece of Craig Berube’s coaching staff on Sunday.`\
-https://nytimes.com/athletic/5585613/2024/06/23/maple-leafs-marc-savard-assistant-coach/
-
-**Rudiger injury 'problematic' for Germany last-16 tie**\
-`Antonio Rudiger could be a doubt for Germany&#8217;s last-16 game at the European Championship with a thigh injury.`\
-https://nytimes.com/athletic/5585631/2024/06/23/antonio-rudiger-injury-germany-last-16/
-
 **Cubs honor Hall of Famer Ryne Sandberg, unveil statue outside Wrigley Field**\
 `On the anniversary of the Sandberg Game, the Cubs honored Ryne Sandberg with a statue outside Wrigley Field.`\
 https://nytimes.com/athletic/5585566/2024/06/23/cubs-ryne-sandberg-statue-wrigley/
@@ -37,4 +29,12 @@ https://nytimes.com/live/2024/06/23/world/israel-gaza-war-hamas/netanyahu-says-t
 **Tennessee bounces back to force Game 3 of MCWS vs. Texas A&M**\
 `The Volunteers roared back with a 4-1 victory over the Aggies to set up a winner-take-all game on Monday at 7 p.m. ET.`\
 https://nytimes.com/athletic/5585438/2024/06/23/tennessee-texas-am-mens-college-world-series-game-2/
+
+**Euro 2024 day 10: Hungary's Varga stable in hospital, Germany's winning run ended**\
+`Our writers bring you up to date with the main events from the European Championship on Sunday`\
+https://nytimes.com/athletic/5584652/2024/06/23/euro-2024-day-10-varga-hungary/
+
+**Broody Subculture**\
+`Anthony V. Grubb makes his New York Times debut.`\
+https://nytimes.com/2024/06/23/crosswords/daily-puzzle-2024-06-24.html
 
