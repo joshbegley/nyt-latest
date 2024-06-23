@@ -1,3 +1,7 @@
+**Kane: Southgate 'absolutely' the right manager for England**\
+`Harry Kane says Gareth Southgate is &#8220;absolutely&#8221; the right person to lead England and has called on fans to &#8220;support him as the players do&#8221;.`\
+https://nytimes.com/athletic/5585227/2024/06/23/harry-kane-gareth-southgate-england/
+
 **Varga stable in hospital following injury in Hungary win over Scotland**\
 `Hungary striker Barnabas Varga is stable in hospital after being taken from the field on a stretcher during the Euro 2024 game against Scotland.`\
 https://nytimes.com/athletic/5585339/2024/06/23/barnabas-varga-injury-hungary-scotland/
