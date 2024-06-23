@@ -1,3 +1,7 @@
+**Bailey Ober's first complete game lifts Twins, provides bullpen much-needed break**\
+`The 6-foot-9 righty threw 70 of his 89 pitches for strikes and earned a postgame ice bath.`\
+https://nytimes.com/athletic/5584159/2024/06/22/twins-bailey-ober-complete-game/
+
 **Davies condems racist abuse of Bombito: 'Canada is a diverse country'**\
 `KANSAS CITY – Alphonso Davies responded to the racist comments defender Moise Bombito received on his personal Instagram after Canada&#8217;s Copa America opener against Argentina, calling them “absolutely disgusting” to see.`\
 https://nytimes.com/athletic/5584150/2024/06/22/moise-bombito-racism-canada-alphonso-davies/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5584041/2024/06/22/belgium-euro-2024-changes-improv
 **Trump Hawks American Flag Pins with His Name in Gold Splashed Across Them**\
 `Critics have accused the former president of co-opting the flag for personal gain. Some of his supporters have flown the flag upside-down to protest his 2020 defeat.`\
 https://nytimes.com/2024/06/22/us/politics/trump-hawks-american-flag-pins-with-his-name-in-gold-splashed-across-them.html
-
-**A Parade of Mermaids Marches On in Brooklyn’s Coney Island**\
-`The heat could not stop revelers from taking part in the pageantry of aquatic weirdness.`\
-https://nytimes.com/2024/06/22/us/mermaid-parade-coney-island.html
 

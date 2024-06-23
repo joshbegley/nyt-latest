@@ -1,3 +1,7 @@
+**Bailey Ober's first complete game lifts Twins, provides bullpen much-needed break**\
+`The 6-foot-9 righty threw 70 of his 89 pitches for strikes and earned a postgame ice bath.`\
+https://nytimes.com/athletic/5584159/2024/06/22/twins-bailey-ober-complete-game/
+
 **Davies condems racist abuse of Bombito: 'Canada is a diverse country'**\
 `KANSAS CITY – Alphonso Davies responded to the racist comments defender Moise Bombito received on his personal Instagram after Canada&#8217;s Copa America opener against Argentina, calling them “absolutely disgusting” to see.`\
 https://nytimes.com/athletic/5584150/2024/06/22/moise-bombito-racism-canada-alphonso-davies/
