@@ -1,3 +1,7 @@
+**A Man Missing for 10 Days in a California Forest Is Found Alive**\
+`Lukas McClish said he lost 30 pounds in 10 days but was rescued without any major injuries.`\
+https://nytimes.com/2024/06/23/us/forest-rescue-big-basin-boulder-creek.html
+
 **Liverpool legend Hansen discharged from hospital**\
 `Liverpool legend Alan Hansen has been released from hospital after a period of illness, the club has confirmed.`\
 https://nytimes.com/athletic/5584607/2024/06/23/alan-hansen-liverpool-discharged/
