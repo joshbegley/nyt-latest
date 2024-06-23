@@ -1,3 +1,7 @@
+**Older adults in Philadelphia look for help staying cool.**\
+`By Jon Hurdle and Isabelle Taft`\
+https://nytimes.com/live/2024/06/23/us/heat-wave-news/older-adults-in-philadelphia-look-for-help-staying-cool
+
 **Varga fractures cheekbone, stable in hospital after being taken off in Hungary vs Scotland**\
 `Hungary striker Barnabas Varga is stable in hospital after suffering a fractured cheekbone and being taken from the field on a stretcher during the Euro 2024 game against Scotland.`\
 https://nytimes.com/athletic/5585339/2024/06/23/barnabas-varga-injury-hungary-scotland/
