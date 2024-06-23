@@ -1,3 +1,11 @@
+**Trump Suggests Biden May Use Supplements to Get ‘Jacked Up’ for Debate**\
+`The former president has mocked his rival’s mental capacities, but at a rally in Philadelphia, his baseless accusation seemed to set the stage for a more formidable opponent.`\
+https://nytimes.com/2024/06/22/us/politics/trump-biden-supplements-debate.html
+
+**Yankees' Giancarlo Stanton hurts hamstring, leaves game: What's next?**\
+`Stanton left the Yankees' 8-3 win over the Braves with left hamstring tightness. `\
+https://nytimes.com/athletic/5584264/2024/06/22/yankees-giancarlo-stanton-injury/
+
 **2024 Copa America USA vs. Bolivia odds: Americans heavily favored to open with a win**\
 `The United States men's national team opens the 2024 Copa America with a match Sunday against Bolivia. The U.S. is heavily favored to win.`\
 https://nytimes.com/athletic/5578765/2024/06/22/2024-copa-america-odds-usa-bolivia/
