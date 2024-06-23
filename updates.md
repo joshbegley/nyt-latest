@@ -1,3 +1,11 @@
+**Matvei Michkov plans to leave SKA, join Flyers**\
+`Michkov plans on terminating the final two seasons of his KHL contract, allowing him to join the Flyers organization for the 2024-25 season.`\
+https://nytimes.com/athletic/5584834/2024/06/23/matvei-michkov-flyers-nhl-plans/
+
+**Four games, four cities, four days: Germany is giving fans the party it promised**\
+`Fans from every corner of the continent have flocked to Germany in their thousands - the diversity is making this a tournament to savour`\
+https://nytimes.com/athletic/5584689/2024/06/23/germany-euro-2024-fans/
+
 **A Patriotic Tribute, a Time-Honored Tradition**\
 `Times readers can again expect to find a full-page transcription of the Declaration of Independence in the newspaper this Fourth of July.`\
 https://nytimes.com/2024/06/23/insider/declaration-of-independence.html
