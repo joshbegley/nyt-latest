@@ -1,3 +1,7 @@
+**Liverpool legend Hansen discharged from hospital**\
+`Liverpool legend Alan Hansen has been released from hospital after a period of illness, the club has confirmed.`\
+https://nytimes.com/athletic/5584607/2024/06/23/alan-hansen-liverpool-discharged/
+
 **After Escaping China by Sea, a Dissident Faces His Next Act**\
 `Kwon Pyong recounted for the first time the series of gambles that got him out of China by jet ski, and almost a year later, out of South Korea.`\
 https://nytimes.com/2024/06/23/world/asia/china-dissident-jet-ski-south-korea.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5584489/2024/06/23/aurelien-tchouameni-france-elect
 **The Costs of Caring for Pets**\
 `We explain the changing world of pet health care.`\
 https://nytimes.com/2024/06/23/briefing/the-costs-of-caring-for-pets.html
-
-**The 2024 Christian Pulisic: Leader, superstar... change maker?**\
-`Pulisic has already achieved more than most in his career. Now, can he help propel the USMNT to make the next step up?`\
-https://nytimes.com/athletic/5583613/2024/06/23/usmnt-christian-pulisic-copa-america/
 
