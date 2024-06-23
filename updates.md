@@ -1,3 +1,7 @@
+**Rare Risk of Tornadoes in New England on Sunday, Forecasters Say**\
+`More than 8 million people in parts of Maine, Massachusetts, New Hampshire, New York and Vermont were under a tornado watch through 8 p.m.`\
+https://nytimes.com/2024/06/23/weather/tornado-storms-new-england.html
+
 **Biden campaign plans a Georgia blitz ahead of Thursday debate in Atlanta.**\
 `By Maya King`\
 https://nytimes.com/live/2024/06/23/us/biden-trump-election/biden-georgia-debate
