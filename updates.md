@@ -1,3 +1,7 @@
+**Shot put legends Crouser, Kovacs qualify for Team USA**\
+`Crouser is the world record holder with his distance of 23.56 meters, set in 2023.`\
+https://nytimes.com/athletic/5584200/2024/06/22/ryan-crouser-joe-kovacs-shot-put-olympic-trials/
+
 **Grocery Store Shooting That Killed 4 Leaves an Arkansas Town in Disbelief**\
 `The small town of Fordyce, Ark., was beginning to absorb the impact of the bloodshed, as a few details began to emerge. A fourth victim died on Saturday.`\
 https://nytimes.com/2024/06/22/us/arkansas-shooting-grocery-store.html

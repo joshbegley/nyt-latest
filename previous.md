@@ -1,3 +1,7 @@
+**Shot put legends Crouser, Kovacs qualify for Team USA**\
+`Crouser is the world record holder with his distance of 23.56 meters, set in 2023.`\
+https://nytimes.com/athletic/5584200/2024/06/22/ryan-crouser-joe-kovacs-shot-put-olympic-trials/
+
 **Bailey Ober's first complete game lifts Twins, provides bullpen much-needed break**\
 `The 6-foot-9 righty threw 70 of his 89 pitches for strikes and earned a postgame ice bath.`\
 https://nytimes.com/athletic/5584159/2024/06/22/twins-bailey-ober-complete-game/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/22/world/africa/us-tourist-killed-elephant-zambia.ht
 **The four changes that may have turned Belgium back into contenders for Euro 2024**\
 `Domenico Tedesco brought Vertonghen, Theate, Tielemans and Lukebakio into his starting XI and each adjustment made a difference`\
 https://nytimes.com/athletic/5584041/2024/06/22/belgium-euro-2024-changes-improvement/
-
-**Trump Hawks American Flag Pins with His Name in Gold Splashed Across Them**\
-`Critics have accused the former president of co-opting the flag for personal gain. Some of his supporters have flown the flag upside-down to protest his 2020 defeat.`\
-https://nytimes.com/2024/06/22/us/politics/trump-hawks-american-flag-pins-with-his-name-in-gold-splashed-across-them.html
 
