@@ -1,3 +1,11 @@
+**A Final, Graceful Bow From Dries Van Noten**\
+`As the Belgian designer ended his career with one last runway show in Paris, he left a reminder of why his is a storied legacy.`\
+https://nytimes.com/2024/06/23/style/dries-van-noten-fashion-shows-paris.html
+
+**Ukraine Urges Allies to Allow Their Weapons to Target Russian Air Power**\
+`After bombs again rained on Kharkiv, Ukraine’s second-biggest city, President Volodymyr Zelensky asked Western partners to permit the use of their weapons against air bases inside Russia.`\
+https://nytimes.com/2024/06/23/world/europe/ukraine-war-zelensky-us-weapons.html
+
 **How to Deal With the National Trauma of Jan. 6**\
 `Responses to an essay about Jan. 6 and memory. Also: Donald Trump’s V.P. factors; an age limit for presidents; Ukraine peace talks; avoiding parenthood.`\
 https://nytimes.com/2024/06/23/opinion/jan-6-memory.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5584528/2024/06/23/lewis-dobbin-aston-villa-everton
 **The Giants have been throwing more relief innings than almost anyone else (again)**\
 `How hard are Giants' relievers being worked compared to the rest of the league? It depends on the stats you use to measure workload.`\
 https://nytimes.com/athletic/5565226/2024/06/23/sf-giants-bullpen-usage-innings-analysis/
-
-**Portugal's smart dynamics did for Turkey - and will keep rivals guessing at Euro 2024**\
-`Victory on Saturday secured their place in the last 16 - and showcased their supreme system changes`\
-https://nytimes.com/athletic/5584379/2024/06/23/portugal-turkey-euro-2024-analysis-ronaldo-bernardo/
-
-**What NHL offseason trades, signings and other moves would we like to see? One pick for each team**\
-`The Athletic asked its NHL staff what each team should prioritize this offseason, looking at free-agent signings, cap dumps, trades, more.`\
-https://nytimes.com/athletic/5579497/2024/06/23/nhl-free-agency-trades-offseason-2024/
 

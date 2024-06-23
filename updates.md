@@ -1,3 +1,11 @@
+**A Final, Graceful Bow From Dries Van Noten**\
+`As the Belgian designer ended his career with one last runway show in Paris, he left a reminder of why his is a storied legacy.`\
+https://nytimes.com/2024/06/23/style/dries-van-noten-fashion-shows-paris.html
+
+**Ukraine Urges Allies to Allow Their Weapons to Target Russian Air Power**\
+`After bombs again rained on Kharkiv, Ukraine’s second-biggest city, President Volodymyr Zelensky asked Western partners to permit the use of their weapons against air bases inside Russia.`\
+https://nytimes.com/2024/06/23/world/europe/ukraine-war-zelensky-us-weapons.html
+
 **How to Deal With the National Trauma of Jan. 6**\
 `Responses to an essay about Jan. 6 and memory. Also: Donald Trump’s V.P. factors; an age limit for presidents; Ukraine peace talks; avoiding parenthood.`\
 https://nytimes.com/2024/06/23/opinion/jan-6-memory.html
