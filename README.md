@@ -1,7 +1,3 @@
-**Kane: Southgate 'absolutely' the right manager for England**\
-`Harry Kane says Gareth Southgate is &#8220;absolutely&#8221; the right person to lead England and has called on fans to &#8220;support him as the players do&#8221;.`\
-https://nytimes.com/athletic/5585227/2024/06/23/harry-kane-gareth-southgate-england/
-
 **Varga stable in hospital following injury in Hungary win over Scotland**\
 `Hungary striker Barnabas Varga is stable in hospital after being taken from the field on a stretcher during the Euro 2024 game against Scotland.`\
 https://nytimes.com/athletic/5585339/2024/06/23/barnabas-varga-injury-hungary-scotland/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5585136/2024/06/23/endrick-real-madrid-contract-pre
 **Woman Tried to Drown 3-Year-Old Girl After Making Racist Comments, Police Say**\
 `A Texas woman tried to drown the child in the pool of an apartment complex last month, the police said. The child’s mother said her family was Palestinian and Muslim.`\
 https://nytimes.com/2024/06/23/us/texas-woman-drown-child.html
+
+**Five-star prospect Will Riley commits to Illinois over Arizona, Kentucky**\
+`Riley, the 6-foot-8 forward from Canada, played high school basketball for The Phelps School in Malvern, Pa.`\
+https://nytimes.com/athletic/5585119/2024/06/23/will-riley-five-star-illinois-commit/
 
