@@ -1,3 +1,7 @@
+**USMNT 2-0 Bolivia takeaways: Christian Pulisic sets the tone with set piece precision**\
+`The Athletic discusses the big talking points from USMNT and Bolivia's Group C clash`\
+https://nytimes.com/athletic/5585387/2024/06/23/usmnt-bolivia-takeaways-christian-pulisic/
+
 **Leafs hire Marc Savard as assistant coach, will run power play next season**\
 `Savard was announced as the last piece of Craig Berube’s coaching staff on Sunday.`\
 https://nytimes.com/athletic/5585613/2024/06/23/maple-leafs-marc-savard-assistant-coach/

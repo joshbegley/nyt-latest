@@ -1,3 +1,7 @@
+**USMNT 2-0 Bolivia takeaways: Christian Pulisic sets the tone with set piece precision**\
+`The Athletic discusses the big talking points from USMNT and Bolivia's Group C clash`\
+https://nytimes.com/athletic/5585387/2024/06/23/usmnt-bolivia-takeaways-christian-pulisic/
+
 **Leafs hire Marc Savard as assistant coach, will run power play next season**\
 `Savard was announced as the last piece of Craig Berube’s coaching staff on Sunday.`\
 https://nytimes.com/athletic/5585613/2024/06/23/maple-leafs-marc-savard-assistant-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/23/us/heat-wave-news/older-adults-in-philadelph
 **Netanyahu says the war’s intensive phase is coming to an end.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/06/23/world/israel-gaza-war-hamas/netanyahu-says-the-wars-intensive-phase-is-coming-to-an-end
-
-**Tennessee bounces back to force Game 3 of MCWS vs. Texas A&M**\
-`The Volunteers roared back with a 4-1 victory over the Aggies to set up a winner-take-all game on Monday at 7 p.m. ET.`\
-https://nytimes.com/athletic/5585438/2024/06/23/tennessee-texas-am-mens-college-world-series-game-2/
 
