@@ -1,3 +1,7 @@
+**Trump V.P. roundup: Noem is not being vetted, and Burgum goes on the offense.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/06/23/us/biden-trump-election/trump-biden-sunday-shows
+
 **A sampling of records that were broken in this heat wave.**\
 `By David W. Chen`\
 https://nytimes.com/live/2024/06/23/us/heat-wave-news/a-sampling-of-records-that-were-broken-in-this-heat-wave
