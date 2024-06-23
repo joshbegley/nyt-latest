@@ -1,3 +1,7 @@
+**Netanyahu doubles down on his complaints about the supply of U.S. munitions.**\
+`By Isabel Kershner`\
+https://nytimes.com/2024/06/23/world/middleeast/netanyahu-doubles-down-on-his-complaints-about-the-supply-of-us-munitions.html
+
 **On the precipice of the Stanley Cup, the Oilers have given Edmonton everything in this playoff run**\
 `The last game in Edmonton this season perfectly encapsulated what the Oilers mean to the city.`\
 https://nytimes.com/athletic/5584329/2024/06/23/oilers-stanley-cup-edmonton-fans/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5583880/2024/06/23/kyle-hendricks-2016-cubs-last-ma
 **Floods Force Rescues in Iowa and South Dakota**\
 `Parts of the Upper Midwest remained under flood warnings on Sunday morning, after days of heavy rain pushed some rivers to record levels.`\
 https://nytimes.com/2024/06/23/us/iowa-south-dakota-floods.html
-
-**Heat Wave Enters 7th Day, but the End Is in Sight**\
-`The unusually early heat wave that has gripped much of the country may let up early this week, forecasters predict.`\
-https://nytimes.com/2024/06/23/us/us-heat-wave.html
 
