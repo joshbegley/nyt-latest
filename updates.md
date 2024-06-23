@@ -1,3 +1,11 @@
+**Sha'Carri Richardson punches ticket to Paris with 100m win at U.S. trials**\
+`Richardson bounced back from a choppy start out of the blocks to obliterate her elite American competitors in the midsection of the sprint.`\
+https://nytimes.com/athletic/5584239/2024/06/22/shacarri-richardson-qualifies-paris-olympics/
+
+**Mexico 1-0 Jamaica takeaways: Alvarez's agony, Arteaga strikes**\
+`The Athletic dissects the big talking points from Mexico and Jamaica's Group B clash`\
+https://nytimes.com/athletic/5584192/2024/06/22/mexico-jamaica-result-copa-america-takeaways/
+
 **Shot put legends Crouser, Kovacs qualify for Team USA**\
 `Crouser is the world record holder with his distance of 23.56 meters, set in 2023.`\
 https://nytimes.com/athletic/5584200/2024/06/22/ryan-crouser-joe-kovacs-shot-put-olympic-trials/

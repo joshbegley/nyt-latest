@@ -1,3 +1,11 @@
+**Sha'Carri Richardson punches ticket to Paris with 100m win at U.S. trials**\
+`Richardson bounced back from a choppy start out of the blocks to obliterate her elite American competitors in the midsection of the sprint.`\
+https://nytimes.com/athletic/5584239/2024/06/22/shacarri-richardson-qualifies-paris-olympics/
+
+**Mexico 1-0 Jamaica takeaways: Alvarez's agony, Arteaga strikes**\
+`The Athletic dissects the big talking points from Mexico and Jamaica's Group B clash`\
+https://nytimes.com/athletic/5584192/2024/06/22/mexico-jamaica-result-copa-america-takeaways/
+
 **Shot put legends Crouser, Kovacs qualify for Team USA**\
 `Crouser is the world record holder with his distance of 23.56 meters, set in 2023.`\
 https://nytimes.com/athletic/5584200/2024/06/22/ryan-crouser-joe-kovacs-shot-put-olympic-trials/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/06/22/us/heat-wave-news/in-the-mid-atlantic-and-oh
 **A Tenacious and Wild Pekingese Is the Ugliest Dog, After Five Tries**\
 `Meet Wild Thang, an 8-year-old Pekingese from Oregon who had sought the title of “World’s Ugliest” for years. Now, it’s finally his.`\
 https://nytimes.com/2024/06/22/us/worlds-ugliest-dog-wild-thang.html
-
-**A Tourist From New Mexico Is Killed by an Elephant in Zambia**\
-`The incident came months after another tourist was killed in Zambia when an elephant charged her group. One wildlife expert said the attacks were most likely “freak accidents.”`\
-https://nytimes.com/2024/06/22/world/africa/us-tourist-killed-elephant-zambia.html
-
-**The four changes that may have turned Belgium back into contenders for Euro 2024**\
-`Domenico Tedesco brought Vertonghen, Theate, Tielemans and Lukebakio into his starting XI and each adjustment made a difference`\
-https://nytimes.com/athletic/5584041/2024/06/22/belgium-euro-2024-changes-improvement/
 
