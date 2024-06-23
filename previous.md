@@ -1,3 +1,15 @@
+**Euro 2024 state of play: Who needs what to reach the knockout stage?**\
+`All the permutations ahead of the final round of group games at Euro 2024`\
+https://nytimes.com/athletic/5584491/2024/06/23/euro-2024-knockout-permutations/
+
+**D.C. area has been particularly hot this weekend, with new temperature records.**\
+`By Isabelle Taft`\
+https://nytimes.com/live/2024/06/23/us/heat-wave-news/dc-area-has-been-particularly-hot-this-weekend-with-new-temperature-records
+
+**Albania player Daku suspended for two games after nationalist chants**\
+`Albanian player Mirlind Daku has been suspended by UEFA for two games after leading nationalist chants with supporters following his country&#8217;s game against Croatia.`\
+https://nytimes.com/athletic/5584756/2024/06/23/albania-mirlind-daku-banned/
+
 **Orelvis Martinez suspended 80 games for violating MLB PED policy**\
 `Martinez, 22, is the Blue Jays' No. 2 prospect and one of the best young bats in their system.`\
 https://nytimes.com/athletic/5584745/2024/06/23/orelvis-martinez-suspension-ped-policy-jays/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/23/opinion/jan-6-memory.html
 **A Recipe for Cooks Who Love to Poke at the Grill**\
 `Huli huli chicken requires lots of turning so that its glaze of soy sauce, brown sugar, rice vinegar and ketchup (with plenty of garlic and ginger) doesn’t scorch.`\
 https://nytimes.com/2024/06/23/dining/huli-huli-chicken.html
-
-**A Man Missing for 10 Days in a California Forest Is Found Alive**\
-`Lukas McClish said he lost 30 pounds in 10 days but was rescued without any major injuries.`\
-https://nytimes.com/2024/06/23/us/forest-rescue-big-basin-boulder-creek.html
-
-**Liverpool legend Hansen discharged from hospital**\
-`Liverpool legend Alan Hansen has been released from hospital after a period of illness, the club has confirmed.`\
-https://nytimes.com/athletic/5584607/2024/06/23/alan-hansen-liverpool-discharged/
-
-**After Escaping China by Sea, a Dissident Faces His Next Act**\
-`Kwon Pyong recounted for the first time the series of gambles that got him out of China by jet ski, and almost a year later, out of South Korea.`\
-https://nytimes.com/2024/06/23/world/asia/china-dissident-jet-ski-south-korea.html
 

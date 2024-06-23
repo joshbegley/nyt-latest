@@ -1,3 +1,15 @@
+**Euro 2024 state of play: Who needs what to reach the knockout stage?**\
+`All the permutations ahead of the final round of group games at Euro 2024`\
+https://nytimes.com/athletic/5584491/2024/06/23/euro-2024-knockout-permutations/
+
+**D.C. area has been particularly hot this weekend, with new temperature records.**\
+`By Isabelle Taft`\
+https://nytimes.com/live/2024/06/23/us/heat-wave-news/dc-area-has-been-particularly-hot-this-weekend-with-new-temperature-records
+
+**Albania player Daku suspended for two games after nationalist chants**\
+`Albanian player Mirlind Daku has been suspended by UEFA for two games after leading nationalist chants with supporters following his country&#8217;s game against Croatia.`\
+https://nytimes.com/athletic/5584756/2024/06/23/albania-mirlind-daku-banned/
+
 **Orelvis Martinez suspended 80 games for violating MLB PED policy**\
 `Martinez, 22, is the Blue Jays' No. 2 prospect and one of the best young bats in their system.`\
 https://nytimes.com/athletic/5584745/2024/06/23/orelvis-martinez-suspension-ped-policy-jays/
