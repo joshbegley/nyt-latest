@@ -1,3 +1,7 @@
+**Monday Briefing: Among Some Israelis, Muted Sympathy for Gaza**\
+`Also, shootings in Dagestan, a Russian republic.`\
+https://nytimes.com/2024/06/23/world/asia/israel-gaza-dagestan-russia-asia.html
+
 **Protestors invade PGA Tour final round at Travelers Championship**\
 `The Travelers Championship in Cromwell, Ct. had to be briefly delayed by the group that ran out from the crowd on the 18th green.`\
 https://nytimes.com/athletic/5585250/2024/06/23/pga-tour-protestors-travelers-championship/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5585074/2024/06/23/spain-euro-2024-team/
 **F1 Spanish GP takeaways: McLaren and Mercedes optimism, a step up for Alpine**\
 `Stay informed on all the biggest stories in Formula One.`\
 https://nytimes.com/athletic/5584987/2024/06/23/f1-spanish-gp-takeaways-mclaren-mercedes-red-bull-alpine/
-
-**Trump Running Mate Roundup: Noem is not being vetted, and Burgum goes on the offense.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/06/23/us/biden-trump-election/trump-biden-sunday-shows
 
