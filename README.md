@@ -1,3 +1,11 @@
+**Election Updates: Trump says he proposed a ‘migrant league of fighters’ to the head of U.F.C.**\
+``\
+https://nytimes.com/live/2024/06/23/us/biden-trump-election
+
+**Giancarlo Stanton placed on 10-day IL with left hamstring strain**\
+`In 260 at bats during the 2024 season, Stanton is slashing .246/.302/.492 with 18 home runs and 45 RBIs.`\
+https://nytimes.com/athletic/5584681/2024/06/23/yankees-giancarlo-stanton-hamstring-strain/
+
 **A Final, Graceful Bow From Dries Van Noten**\
 `As the Belgian designer ended his career with one last runway show in Paris, he left a reminder of why his is a storied legacy.`\
 https://nytimes.com/2024/06/23/style/dries-van-noten-fashion-shows-paris.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/23/world/asia/china-dissident-jet-ski-south-korea.ht
 **In Germany, a Tournament Runs Smoothly, but the Trains Do Not**\
 `Sweltering train cars, frequent delays and regular cancellations: At the Euro 2024 men’s soccer tournament, Germany’s faltering rail system emerges as a tough opponent.`\
 https://nytimes.com/2024/06/23/world/europe/germany-trains-euro-2024.html
-
-**Dobbin completes move to Villa from Everton**\
-`Aston Villa have confirmed the signing of Lewis Dobbin from Everton for an undisclosed fee.`\
-https://nytimes.com/athletic/5584528/2024/06/23/lewis-dobbin-aston-villa-everton-transfer/
-
-**The Giants have been throwing more relief innings than almost anyone else (again)**\
-`How hard are Giants' relievers being worked compared to the rest of the league? It depends on the stats you use to measure workload.`\
-https://nytimes.com/athletic/5565226/2024/06/23/sf-giants-bullpen-usage-innings-analysis/
 
