@@ -1,3 +1,7 @@
+**Varga fractures cheekbone, stable in hospital after being taken off in Hungary vs Scotland**\
+`Hungary striker Barnabas Varga is stable in hospital after suffering a fractured cheekbone and being taken from the field on a stretcher during the Euro 2024 game against Scotland.`\
+https://nytimes.com/athletic/5585339/2024/06/23/barnabas-varga-injury-hungary-scotland/
+
 **Netanyahu says the war’s intensive phase is coming to an end.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/06/23/world/israel-gaza-war-hamas/netanyahu-says-the-wars-intensive-phase-is-coming-to-an-end
