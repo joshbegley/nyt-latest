@@ -1,3 +1,7 @@
+**The Briefing: Switzerland 1-1 Germany - Fullkrug is the saviour but hosts look vulnerable**\
+`All the big talking points from Switzerland's Group A clash with hosts Germany in Frankfurt`\
+https://nytimes.com/athletic/5580937/2024/06/23/switzerland-germany-euro-2024-analysis/
+
 **Monday Briefing: Among Some Israelis, Muted Sympathy for Gaza**\
 `Also, shootings in Dagestan, a Russian republic.`\
 https://nytimes.com/2024/06/23/world/asia/israel-gaza-dagestan-russia-asia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/23/world/europe/russia-attack-dagestan.html
 **De la Fuente plays down comparisons of Euro 2024 team to Spain greats**\
 `Luis de la Fuente has played down any lofty comparisons to the great Spain teams of the past despite his side&#8217;s strong start to Euro 2024.`\
 https://nytimes.com/athletic/5585074/2024/06/23/spain-euro-2024-team/
-
-**F1 Spanish GP takeaways: McLaren and Mercedes optimism, a step up for Alpine**\
-`Stay informed on all the biggest stories in Formula One.`\
-https://nytimes.com/athletic/5584987/2024/06/23/f1-spanish-gp-takeaways-mclaren-mercedes-red-bull-alpine/
 

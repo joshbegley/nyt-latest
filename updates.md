@@ -1,3 +1,7 @@
+**The Briefing: Switzerland 1-1 Germany - Fullkrug is the saviour but hosts look vulnerable**\
+`All the big talking points from Switzerland's Group A clash with hosts Germany in Frankfurt`\
+https://nytimes.com/athletic/5580937/2024/06/23/switzerland-germany-euro-2024-analysis/
+
 **Monday Briefing: Among Some Israelis, Muted Sympathy for Gaza**\
 `Also, shootings in Dagestan, a Russian republic.`\
 https://nytimes.com/2024/06/23/world/asia/israel-gaza-dagestan-russia-asia.html
