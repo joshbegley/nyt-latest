@@ -1,3 +1,7 @@
+**Amy Yang wins KPMG Women's PGA Championship**\
+`Yang won by three strokes for her first career major championship.`\
+https://nytimes.com/athletic/5585467/2024/06/23/amy-yang-wins-kpmg-womens-pga-championship/
+
 **Angel Reese dominates as Sky top Fever, Caitlin Clark**\
 `Reese finished the Sky’s 88-87 victory with a career-high 25 points. She added 16 rebounds, recording her eighth consecutive double-double.`\
 https://nytimes.com/athletic/5585512/2024/06/23/angel-reese-caitlin-clark-fever-sky/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/23/us/new-jersey-heat-water.html
 **Kane: Southgate 'absolutely' the right manager for England**\
 `Harry Kane says Gareth Southgate is &#8220;absolutely&#8221; the right person to lead England and has called on fans to &#8220;support him as the players do&#8221;.`\
 https://nytimes.com/athletic/5585227/2024/06/23/harry-kane-gareth-southgate-england/
-
-**Varga fractures cheekbone, stable in hospital after being taken off in Hungary vs Scotland**\
-`Hungary striker Barnabas Varga is stable in hospital after suffering a fractured cheekbone and being taken from the field on a stretcher during the Euro 2024 game against Scotland.`\
-https://nytimes.com/athletic/5585339/2024/06/23/barnabas-varga-injury-hungary-scotland/
 
