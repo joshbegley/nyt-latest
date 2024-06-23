@@ -1,3 +1,7 @@
+**Why Bragg Dropped Charges Against Most Columbia Student Protesters**\
+`The Manhattan district attorney’s office cited a lack of evidence in deciding not to prosecute 31 of the 46 people charged in the takeover of Hamilton Hall.`\
+https://nytimes.com/2024/06/23/nyregion/columbia-protest-charges-bragg.html
+
 **Amy Yang wins KPMG Women's PGA Championship**\
 `Yang won by three strokes for her first career major championship.`\
 https://nytimes.com/athletic/5585467/2024/06/23/amy-yang-wins-kpmg-womens-pga-championship/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/23/world/middleeast/hajj-pilgrim-deaths-saudi-arabia
 **As New Jersey Bakes, Some Towns Ask Residents to Reduce Water Use**\
 `The heat was especially oppressive in urban areas of New Jersey, a state that climate experts say is warming at a faster rate than others in the Northeast.`\
 https://nytimes.com/2024/06/23/us/new-jersey-heat-water.html
-
-**Kane: Southgate 'absolutely' the right manager for England**\
-`Harry Kane says Gareth Southgate is &#8220;absolutely&#8221; the right person to lead England and has called on fans to &#8220;support him as the players do&#8221;.`\
-https://nytimes.com/athletic/5585227/2024/06/23/harry-kane-gareth-southgate-england/
 
