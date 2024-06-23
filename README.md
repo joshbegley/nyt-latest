@@ -1,3 +1,7 @@
+**Eagle Football group make $20m bid for Almada**\
+`Eagle Football Holdings, which has stakes in clubs including Botofogo, Crystal Palace and Lyon, is in talks over the playmaker`\
+https://nytimes.com/athletic/5584845/2024/06/23/thiago-almada-transfer-atlanta-botofogo-news/
+
 **Matvei Michkov plans to leave SKA, join Flyers**\
 `Michkov plans on terminating the final two seasons of his KHL contract, allowing him to join the Flyers organization for the 2024-25 season.`\
 https://nytimes.com/athletic/5584834/2024/06/23/matvei-michkov-flyers-nhl-plans/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5584756/2024/06/23/albania-mirlind-daku-banned/
 **Orelvis Martinez suspended 80 games for violating MLB PED policy**\
 `Martinez, 22, is the Blue Jays' No. 2 prospect and one of the best young bats in their system.`\
 https://nytimes.com/athletic/5584745/2024/06/23/orelvis-martinez-suspension-ped-policy-jays/
-
-**Election Updates: Trump says he proposed a ‘migrant league of fighters’ to the head of U.F.C.**\
-``\
-https://nytimes.com/live/2024/06/23/us/biden-trump-election
 
