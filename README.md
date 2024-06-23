@@ -1,3 +1,7 @@
+**Sha'Carri Richardson, her spot in Paris secured, closing in on Olympic glory**\
+`If Sha'Carri Richardson wins gold in Paris, it would be a strong finish to this years-long journey on her way to superstardom.`\
+https://nytimes.com/athletic/5584716/2024/06/23/shacarri-richardson-olympics-trials-100-meter-glory/
+
 **Eagle Football group make $20m bid for Almada**\
 `Eagle Football Holdings, which has stakes in clubs including Botofogo, Crystal Palace and Lyon, is in talks over the playmaker`\
 https://nytimes.com/athletic/5584845/2024/06/23/thiago-almada-transfer-atlanta-botofogo-news/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/23/us/heat-wave-news/dc-area-has-been-particula
 **Albania player Daku suspended for two games after nationalist chants**\
 `Albanian player Mirlind Daku has been suspended by UEFA for two games after leading nationalist chants with supporters following his country&#8217;s game against Croatia.`\
 https://nytimes.com/athletic/5584756/2024/06/23/albania-mirlind-daku-banned/
-
-**Orelvis Martinez suspended 80 games for violating MLB PED policy**\
-`Martinez, 22, is the Blue Jays' No. 2 prospect and one of the best young bats in their system.`\
-https://nytimes.com/athletic/5584745/2024/06/23/orelvis-martinez-suspension-ped-policy-jays/
 
