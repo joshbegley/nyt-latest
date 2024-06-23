@@ -1,4 +1,4 @@
-**Spencer Turnbull, big blue bag and all, relishes rejoining Phillies rotation**\
+**Spencer Turnbull relishes rejoining rotation as Phillies push pause on Taijuan Walker**\
 `After seven weeks in the bullpen, Turnbull is back in the rotation and motivated to stay there. Meanwhile, Michael Mercado joins the pen. `\
 https://nytimes.com/athletic/5585154/2024/06/23/spencer-turnbull-phillies-rotation-taijuan-walker/
 
