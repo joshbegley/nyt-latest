@@ -1,3 +1,5 @@
+**A drone attack damages a ship in the Red Sea, and other news.**\
+
 **On the precipice of the Stanley Cup, the Oilers have given Edmonton everything in this playoff run**\
 `The last game in Edmonton this season perfectly encapsulated what the Oilers mean to the city.`\
 https://nytimes.com/athletic/5584329/2024/06/23/oilers-stanley-cup-edmonton-fans/
