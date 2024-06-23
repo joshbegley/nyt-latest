@@ -1,3 +1,27 @@
+**4 Fun, Flirty New Romance Novels**\
+`Our columnist has more delightful recommendations.`\
+https://nytimes.com/2024/06/23/books/review/new-romance-books.html
+
+**Michael Flynn Has Turned His Trump-World Celebrity Into a Family Business**\
+`The former national security adviser took over a nonprofit group. Soon, it was paying five of his relatives and trafficking in conspiracy theories.`\
+https://nytimes.com/2024/06/23/us/politics/donald-trump-michael-flynn-qanon.html
+
+**‘We’re Still Paying’: How Pets Became a Big Business**\
+`People have grown more attached to their pets — and more willing to spend money on them — turning animal medicine into a high-tech industry worth billions.`\
+https://nytimes.com/2024/06/23/health/pets-veterinary-bills.html
+
+**Child Care, Cafés, Herman Miller Desks: It’s Not Your Average Gym**\
+`High-end gyms, many of which used to be an amenity, are now the star attraction, offering hotel rooms and workspaces as part of their appeal. They’ve also gotten a lot bigger.`\
+https://nytimes.com/2024/06/23/business/luxury-gym-equinox-life-time-chelsea-piers-amenities.html
+
+**Blaming Hamas for Gazans’ Suffering, Many Israelis Feel Little Sympathy**\
+`Despite being aware of the devastation in the enclave, many in Israel ask why they should show pity when Palestinians there showed none on Oct. 7.`\
+https://nytimes.com/2024/06/23/world/middleeast/israel-hamas-gaza-october-7.html
+
+**Motorbikes, Nightclubs, Tricked-Out Cars: Is Rhode Island’s Capital Too Loud?**\
+`The mayor of Providence wants to install noise cameras and fine violators, but some worry that poor and immigrant neighborhoods will be disproportionately targeted.`\
+https://nytimes.com/2024/06/23/us/providence-noise-rhode-island.html
+
 **If this is De Bruyne's last dance for Belgium, he's not ready to leave the stage just yet**\
 `Vision and precision was stamped all over De Bruyne's display against Romania - he's not quite done at the very top just yet`\
 https://nytimes.com/athletic/5583690/2024/06/23/kevin-de-bruyne-belgium-manchester-city-euro-2024/
@@ -13,28 +37,4 @@ https://nytimes.com/2024/06/23/nyregion/democrats-primaries-race-ny.html
 **Hidden Stashes: Keeping Money Secrets From a Loved One**\
 `People hide money for a variety of reasons, from nefarious to romantic. But financial experts say such secrets can erode a basic pillar of relationships: trust.`\
 https://nytimes.com/2024/06/23/business/financial-secrets-money-partner.html
-
-**‘I Walked Over to a Food Cart That Is Always at the Intersection’**\
-`Turning to a local institution in a pinch, a tip about Beethoven and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2024/06/23/nyregion/metropolitan-diary.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/06/23/crosswords/spelling-bee-forum.html
-
-**Vols baseball euphoria runs into Aggies reality, but Tennessee has the edge from here**\
-`Game 1 was a vibe-wrecker, a reminder of the way Tennessee teams can tease. But as AJ Causey said, the Vols are "not new to this."`\
-https://nytimes.com/athletic/5584181/2024/06/23/vols-aggies-college-world-series-game-1/
-
-**Lauren Boebert Is Feeling the Heat in Colorado**\
-`Her political future will be decided in Tuesday’s Republican congressional primary. Is there a limit to MAGA antics?`\
-https://nytimes.com/2024/06/23/opinion/lauren-boebert-colorado-primary.html
-
-**The E.U. Is Revealing Its True Identity. Europeans Don’t Like It.**\
-`It is looking more and more like a project to universalize the un-universalizable.`\
-https://nytimes.com/2024/06/23/opinion/european-union-elections-nationalism.html
-
-**Ayoze Perez interview: From 'feeling forgotten' to Euro 2024 challenge with Spain**\
-`He was perhaps the biggest surprise call-up for Spain at Euro 2024. That's why Ayoze Perez is smiling`\
-https://nytimes.com/athletic/5583489/2024/06/23/euro-2024-ayoze-perez-spain-interview/
 
