@@ -1,3 +1,7 @@
+**Biden campaign plans a Georgia blitz ahead of Thursday debate in Atlanta.**\
+`By Maya King`\
+https://nytimes.com/live/2024/06/23/us/biden-trump-election/biden-georgia-debate
+
 **‘Little details’ cost Lando victory in Spain — but the threat to Max is real**\
 `For this to be the second race in a row that Norris could have won on merit ahead of Verstappen is an encouraging sign for the coming races.`\
 https://nytimes.com/athletic/5584944/2024/06/23/f1-spanish-gp-lando-norris-max-verstappen-mclaren-red-bull/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5584834/2024/06/23/matvei-michkov-flyers-nhl-plans/
 **Four games, four cities, four days: Germany is giving fans the party it promised**\
 `Fans from every corner of the continent have flocked to Germany in their thousands - the diversity is making this a tournament to savour`\
 https://nytimes.com/athletic/5584689/2024/06/23/germany-euro-2024-fans/
-
-**A Patriotic Tribute, a Time-Honored Tradition**\
-`Times readers can again expect to find a full-page transcription of the Declaration of Independence in the newspaper this Fourth of July.`\
-https://nytimes.com/2024/06/23/insider/declaration-of-independence.html
 
