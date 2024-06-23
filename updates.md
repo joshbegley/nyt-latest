@@ -1,3 +1,7 @@
+**Five-star prospect Will Riley commits to Illinois over Arizona, Kentucky**\
+`Riley, the 6-foot-8 forward from Canada, played high school basketball for The Phelps School in Malvern, Pa.`\
+https://nytimes.com/athletic/5585119/2024/06/23/will-riley-five-star-illinois-commit/
+
 **Gunmen Kill at Least 6 at Synagogue and Churches in Russian Republic**\
 `Gunmen killed at least a half-dozen police officers and a priest in Dagestan in what appeared to be coordinated attacks, local officials said.`\
 https://nytimes.com/2024/06/23/world/europe/russia-attack-dagestan.html

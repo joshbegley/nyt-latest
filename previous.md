@@ -1,3 +1,7 @@
+**Five-star prospect Will Riley commits to Illinois over Arizona, Kentucky**\
+`Riley, the 6-foot-8 forward from Canada, played high school basketball for The Phelps School in Malvern, Pa.`\
+https://nytimes.com/athletic/5585119/2024/06/23/will-riley-five-star-illinois-commit/
+
 **Gunmen Kill at Least 6 at Synagogue and Churches in Russian Republic**\
 `Gunmen killed at least a half-dozen police officers and a priest in Dagestan in what appeared to be coordinated attacks, local officials said.`\
 https://nytimes.com/2024/06/23/world/europe/russia-attack-dagestan.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5584944/2024/06/23/f1-spanish-gp-lando-norris-max-v
 **U.S. out of T20 Cricket World Cup after defeat by England**\
 `The United States is out of the T20 Cricket World Cup after a heavy defeat by England in Bridgetown, Barbados.`\
 https://nytimes.com/athletic/5584943/2024/06/23/usa-cricket-world-cup-out-england/
-
-**Rare Risk of Tornadoes in New England on Sunday, Forecasters Say**\
-`More than eight million people in parts of Maine, Massachusetts, New Hampshire, New York and Vermont were under a tornado watch through 8 p.m.`\
-https://nytimes.com/2024/06/23/weather/tornado-storms-new-england.html
 
