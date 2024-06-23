@@ -1,3 +1,7 @@
+**In Germany, a Tournament Runs Smoothly, but the Trains Do Not**\
+`Sweltering train cars, frequent delays and regular cancellations: At the Euro 2024 men’s soccer tournament, Germany’s faltering rail system emerges as a tough opponent.`\
+https://nytimes.com/2024/06/23/world/europe/germany-trains-euro-2024.html
+
 **Dobbin completes move to Villa from Everton**\
 `Aston Villa have confirmed the signing of Lewis Dobbin from Everton for an undisclosed fee.`\
 https://nytimes.com/athletic/5584528/2024/06/23/lewis-dobbin-aston-villa-everton-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5583613/2024/06/23/usmnt-christian-pulisic-copa-ame
 **Why are so many of the coaches at Copa America from Argentina?**\
 `At this summer’s Copa America, seven of the 16 participating nations will be led by Argentine coaches – and it's not a one-off`\
 https://nytimes.com/athletic/5562810/2024/06/23/copa-america-argentine-managers/
-
-**Chris Richards exclusive: A Copa America homecoming after World Cup 'heartbreak'**\
-`Richards heads into the Copa America fresh from a breakthrough season in the Premier League with Crystal Palace – and is targeting success`\
-https://nytimes.com/athletic/5569913/2024/06/23/richards-usmnt-palace-copa/
 

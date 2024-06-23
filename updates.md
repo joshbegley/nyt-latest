@@ -1,3 +1,7 @@
+**In Germany, a Tournament Runs Smoothly, but the Trains Do Not**\
+`Sweltering train cars, frequent delays and regular cancellations: At the Euro 2024 men’s soccer tournament, Germany’s faltering rail system emerges as a tough opponent.`\
+https://nytimes.com/2024/06/23/world/europe/germany-trains-euro-2024.html
+
 **Dobbin completes move to Villa from Everton**\
 `Aston Villa have confirmed the signing of Lewis Dobbin from Everton for an undisclosed fee.`\
 https://nytimes.com/athletic/5584528/2024/06/23/lewis-dobbin-aston-villa-everton-transfer/
