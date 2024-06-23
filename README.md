@@ -1,3 +1,7 @@
+**Davies condems racist abuse of Bombito: 'Canada is a diverse country'**\
+`KANSAS CITY – Alphonso Davies responded to the racist comments Canada defender Moise Bombito received on his personal Instagram after Canada’s Copa America opener against Argentina, calling them “absolutely disgusting” to see.`\
+https://nytimes.com/athletic/5584150/2024/06/22/moise-bombito-racism-canada-alphonso-davies/
+
 **Grocery Store Shooting That Killed 3 Leaves an Arkansas Town in Disbelief**\
 `The small town of Fordyce, Ark., was beginning to absorb the impact of the bloodshed, as a few details began to emerge.`\
 https://nytimes.com/2024/06/22/us/arkansas-shooting-grocery-store.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/22/us/politics/trump-hawks-american-flag-pins-with-h
 **A Parade of Mermaids Marches On in Brooklyn’s Coney Island**\
 `The heat could not stop revelers from taking part in the pageantry of aquatic weirdness.`\
 https://nytimes.com/2024/06/22/us/mermaid-parade-coney-island.html
-
-**Euro 2024 day nine: Ronaldo, pitch invaders and Belgium back in business**\
-`Cristiano Ronaldo's Portugal qualify for the knockout stages, but a series of pitch invaders create a problem for UEFA`\
-https://nytimes.com/athletic/5583094/2024/06/22/euro-2024-day-nine-ronaldo/
 
