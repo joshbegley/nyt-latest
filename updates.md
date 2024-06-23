@@ -1,3 +1,7 @@
+**U.S. out of T20 Cricket World Cup after defeat by England**\
+`The United States is out of the T20 Cricket World Cup after a heavy defeat by England in Bridgetown, Barbados.`\
+https://nytimes.com/athletic/5584943/2024/06/23/usa-cricket-world-cup-out-england/
+
 **Rare Risk of Tornadoes in New England on Sunday, Forecasters Say**\
 `While the Plains or the South are more commonly considered hot spots for tornadoes, they do happen in New England, forecasters said.`\
 https://nytimes.com/2024/06/23/weather/tornado-storms-new-england.html

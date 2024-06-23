@@ -1,3 +1,7 @@
+**U.S. out of T20 Cricket World Cup after defeat by England**\
+`The United States is out of the T20 Cricket World Cup after a heavy defeat by England in Bridgetown, Barbados.`\
+https://nytimes.com/athletic/5584943/2024/06/23/usa-cricket-world-cup-out-england/
+
 **Rare Risk of Tornadoes in New England on Sunday, Forecasters Say**\
 `While the Plains or the South are more commonly considered hot spots for tornadoes, they do happen in New England, forecasters said.`\
 https://nytimes.com/2024/06/23/weather/tornado-storms-new-england.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/23/insider/declaration-of-independence.html
 **Tommy Paul wins Queen's, becomes American men's tennis No. 1**\
 `This is the third and biggest ATP Tour title of the 27-year-old's career.`\
 https://nytimes.com/athletic/5584729/2024/06/23/tommy-paul-queens-american-tennis/
-
-**Kane says ex-England players have a 'responsibility' following Lineker criticism**\
-`Harry Kane has responded to Gary Lineker&#8217;s criticism of England&#8217;s Euro 2024 campaign by saying former national team players have a “responsibility” to consider the impact of their words.`\
-https://nytimes.com/athletic/5584651/2024/06/23/harry-kane-england-gary-lineker/
 
