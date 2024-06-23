@@ -1,3 +1,7 @@
+**Varga stable in hospital following injury in Hungary win over Scotland**\
+`Hungary striker Barnabas Varga is stable in hospital after being taken from the field on a stretcher during the Euro 2024 game against Scotland.`\
+https://nytimes.com/athletic/5585339/2024/06/23/barnabas-varga-injury-hungary-scotland/
+
 **Scheffler wins for 6th time in 2024 at Travelers Championship**\
 `Scheffler edged out friend Tom Kim in a playoff.`\
 https://nytimes.com/athletic/5585317/2024/06/23/scottie-scheffler-travelers-championship-win-playoff/

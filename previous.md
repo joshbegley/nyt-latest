@@ -1,3 +1,7 @@
+**Varga stable in hospital following injury in Hungary win over Scotland**\
+`Hungary striker Barnabas Varga is stable in hospital after being taken from the field on a stretcher during the Euro 2024 game against Scotland.`\
+https://nytimes.com/athletic/5585339/2024/06/23/barnabas-varga-injury-hungary-scotland/
+
 **Scheffler wins for 6th time in 2024 at Travelers Championship**\
 `Scheffler edged out friend Tom Kim in a playoff.`\
 https://nytimes.com/athletic/5585317/2024/06/23/scottie-scheffler-travelers-championship-win-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/23/us/texas-woman-drown-child.html
 **Five-star prospect Will Riley commits to Illinois over Arizona, Kentucky**\
 `Riley, the 6-foot-8 forward from Canada, played high school basketball for The Phelps School in Malvern, Pa.`\
 https://nytimes.com/athletic/5585119/2024/06/23/will-riley-five-star-illinois-commit/
-
-**Gunmen Kill at Least 6 at Synagogue and Churches in Russian Republic**\
-`At least a half-dozen police officers and a priest in Dagestan died in what appeared to be coordinated attacks, local officials said.`\
-https://nytimes.com/2024/06/23/world/europe/russia-attack-dagestan.html
 
