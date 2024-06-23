@@ -1,3 +1,7 @@
+**Vols baseball euphoria runs into Aggies reality, but Tennessee has the edge from here**\
+`Game 1 was a vibe-wrecker, a reminder of the way Tennessee teams can tease. But as AJ Causey said, the Vols are "not new to this."`\
+https://nytimes.com/athletic/5584181/2024/06/23/vols-aggies-college-world-series-game-1/
+
 **Lauren Boebert Is Feeling the Heat in Colorado**\
 `Her political future will be decided in Tuesday’s Republican congressional primary. Is there a limit to MAGA antics?`\
 https://nytimes.com/2024/06/23/opinion/lauren-boebert-colorado-primary.html
