@@ -1,3 +1,7 @@
+**Broody Subculture**\
+`Anthony V. Grubb makes his New York Times debut.`\
+https://nytimes.com/2024/06/23/crosswords/daily-puzzle-2024-06-24.html
+
 **Pilgrim Deaths in Mecca Put Spotlight on Underworld Hajj Industry**\
 `Most of the more than 1,300 people who died making the Islamic pilgrimage were not formally registered, a Saudi official said. That left them with little access to protection from the brutal heat.`\
 https://nytimes.com/2024/06/23/world/middleeast/hajj-pilgrim-deaths-saudi-arabia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5585250/2024/06/23/pga-tour-protestors-travelers-ch
 **In the steamy Florida Panhandle, the homeless feel helpless.**\
 `By Kalyn Wolfe`\
 https://nytimes.com/live/2024/06/23/us/heat-wave-news/in-the-steamy-florida-panhandle-the-homeless-feel-helpless
-
-**Spencer Turnbull relishes rejoining rotation as Phillies push pause on Taijuan Walker**\
-`After seven weeks in the bullpen, Turnbull is back in the rotation and motivated to stay there. Meanwhile, Michael Mercado joins the pen. `\
-https://nytimes.com/athletic/5585154/2024/06/23/spencer-turnbull-phillies-rotation-taijuan-walker/
 
