@@ -1,3 +1,7 @@
+**Floods Force Rescues in Iowa and South Dakota**\
+`Parts of the Upper Midwest remained under flood warnings on Sunday morning, after days of heavy rain pushed some rivers to record levels.`\
+https://nytimes.com/2024/06/23/us/iowa-south-dakota-floods.html
+
 **Heat Wave Enters 7th Day, but the End Is in Sight**\
 `The unusually early heat wave that has gripped much of the country may let up early this week, forecasters predict.`\
 https://nytimes.com/2024/06/23/us/us-heat-wave.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/23/us/politics/clips-campaign-gaffes-viral.html
 **In Search of My Father’s Frontier: His Years in Mao’s Army**\
 `For nearly a decade, I worked in China as a Times correspondent and bureau chief. But it wasn’t until researching for a book that I uncovered the full story of my father’s role in Communist rule.`\
 https://nytimes.com/2024/06/23/us/politics/china-mao-army-communist-party.html
-
-**An Odd Rock in a Box Gets Linked to a Shooting Star That Fell 54 Years Ago**\
-`An Austrian forest ranger picked up the rock in 1976. Decades later, scientists discovered the object’s origin story while digging through old photos.`\
-https://nytimes.com/2024/06/23/science/meteorite-austria-ischgl.html
 
