@@ -1,3 +1,7 @@
+**Woman Tried to Drown 3-Year-Old Girl After Making Racist Comments, Police Say**\
+`A Texas woman tried to drown the child in the pool of an apartment complex last month, the police said. The child’s mother said her family was Palestinian and Muslim.`\
+https://nytimes.com/2024/06/23/us/texas-woman-drown-child.html
+
 **Five-star prospect Will Riley commits to Illinois over Arizona, Kentucky**\
 `Riley, the 6-foot-8 forward from Canada, played high school basketball for The Phelps School in Malvern, Pa.`\
 https://nytimes.com/athletic/5585119/2024/06/23/will-riley-five-star-illinois-commit/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/23/us/biden-trump-election/biden-georgia-debate
 **‘Little details’ cost Lando victory in Spain — but the threat to Max is real**\
 `For this to be the second race in a row that Norris could have won on merit ahead of Verstappen is an encouraging sign for the coming races.`\
 https://nytimes.com/athletic/5584944/2024/06/23/f1-spanish-gp-lando-norris-max-verstappen-mclaren-red-bull/
-
-**U.S. out of T20 Cricket World Cup after defeat by England**\
-`The United States is out of the T20 Cricket World Cup after a heavy defeat by England in Bridgetown, Barbados.`\
-https://nytimes.com/athletic/5584943/2024/06/23/usa-cricket-world-cup-out-england/
 

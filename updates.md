@@ -1,3 +1,7 @@
+**Woman Tried to Drown 3-Year-Old Girl After Making Racist Comments, Police Say**\
+`A Texas woman tried to drown the child in the pool of an apartment complex last month, the police said. The child’s mother said her family was Palestinian and Muslim.`\
+https://nytimes.com/2024/06/23/us/texas-woman-drown-child.html
+
 **Five-star prospect Will Riley commits to Illinois over Arizona, Kentucky**\
 `Riley, the 6-foot-8 forward from Canada, played high school basketball for The Phelps School in Malvern, Pa.`\
 https://nytimes.com/athletic/5585119/2024/06/23/will-riley-five-star-illinois-commit/
