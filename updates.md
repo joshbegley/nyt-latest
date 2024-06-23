@@ -1,3 +1,7 @@
+**Broody Subculture**\
+`Anthony V. Grubb makes his New York Times debut.`\
+https://nytimes.com/2024/06/23/crosswords/daily-puzzle-2024-06-24.html
+
 **Pilgrim Deaths in Mecca Put Spotlight on Underworld Hajj Industry**\
 `Most of the more than 1,300 people who died making the Islamic pilgrimage were not formally registered, a Saudi official said. That left them with little access to protection from the brutal heat.`\
 https://nytimes.com/2024/06/23/world/middleeast/hajj-pilgrim-deaths-saudi-arabia.html
