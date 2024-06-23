@@ -1,3 +1,7 @@
+**If this is De Bruyne's last dance for Belgium, he's not ready to leave the stage just yet**\
+`Vision and precision was stamped all over De Bruyne's display against Romania - he's not quite done at the very top just yet`\
+https://nytimes.com/athletic/5583690/2024/06/23/kevin-de-bruyne-belgium-manchester-city-euro-2024/
+
 **For Biden and Trump, a Debate Rematch With Even Greater Risks and Rewards**\
 `The matchup on Thursday will be the earliest presidential debate in American history, and any potential missteps could linger for weeks or months.`\
 https://nytimes.com/2024/06/23/us/politics/biden-trump-debate-stakes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/23/opinion/european-union-elections-nationalism.html
 **Ayoze Perez interview: From 'feeling forgotten' to Euro 2024 challenge with Spain**\
 `He was perhaps the biggest surprise call-up for Spain at Euro 2024. That's why Ayoze Perez is smiling`\
 https://nytimes.com/athletic/5583489/2024/06/23/euro-2024-ayoze-perez-spain-interview/
-
-**Billy Gilmour represents the future - for Brighton as well as Scotland**\
-`With Pascal Gross' future uncertain, Gilmour has a key role at the Amex stadium under Fabian Hurzeler as he builds on last year's progress`\
-https://nytimes.com/athletic/5580745/2024/06/23/gilmour-brighton-scotland/
 

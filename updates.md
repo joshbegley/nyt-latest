@@ -1,3 +1,7 @@
+**If this is De Bruyne's last dance for Belgium, he's not ready to leave the stage just yet**\
+`Vision and precision was stamped all over De Bruyne's display against Romania - he's not quite done at the very top just yet`\
+https://nytimes.com/athletic/5583690/2024/06/23/kevin-de-bruyne-belgium-manchester-city-euro-2024/
+
 **For Biden and Trump, a Debate Rematch With Even Greater Risks and Rewards**\
 `The matchup on Thursday will be the earliest presidential debate in American history, and any potential missteps could linger for weeks or months.`\
 https://nytimes.com/2024/06/23/us/politics/biden-trump-debate-stakes.html
