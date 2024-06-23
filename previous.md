@@ -1,3 +1,15 @@
+**Texas A&M takes Game 1 of Men's College World Series**\
+`Tennessee (58-13), the SEC champs and No. 1 overall seed, will look to keep its season alive Sunday with Game 2 scheduled for 2 p.m. ET.`\
+https://nytimes.com/athletic/5584310/2024/06/23/texas-am-tennessee-mens-college-world-series-game-1/
+
+**England dropping deep after taking the lead: Why it happens and why it is a problem**\
+`Why do England drop so deep so often after going ahead? Is it a tactical choice, or a subconscious reaction from the players?`\
+https://nytimes.com/athletic/5581259/2024/06/23/england-sitting-deep-southgate-euro-2024/
+
+**Canada transfer tracker: Alphonso Davies to Real Madrid? Jonathan David on the move**\
+`The Athletic runs down the summer fortunes of Jesse Marsch's squad: who's on the move and who will be staying put?`\
+https://nytimes.com/athletic/5583210/2024/06/23/canada-transfer-news-davies/
+
 **Gordon? Wharton? Three at the back? Our writers' England XIs to face Slovenia**\
 `Gareth Southgate has some decisions to make against Slovenia – what changes should he make?`\
 https://nytimes.com/athletic/5580709/2024/06/23/england-lineup-slovenia-euro-202424/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/23/world/asia/make-millions-before-grandma-dies-cryi
 **Braves shortstop Orlando Arcia's hitting is woeful, Adam Duvall's recent slump just as bad**\
 `Arcia has woeful numbers recently, but it's not as if the Braves have a obvious options. `\
 https://nytimes.com/athletic/5584271/2024/06/22/braves-shortstop-orlando-arcias-hitting-is-woeful-adam-duvalls-recent-slump-just-as-bad/
-
-**Quote of the Day: Defying and Disrupting, Putin Succeeds in Asia**\
-`Quotation of the Day for Sunday, June 23, 2024.`\
-https://nytimes.com/2024/06/22/pageoneplus/quote-of-the-day-defying-and-disrupting-putin-succeeds-in-asia.html
-
-**Mexico's Alvarez to undergo tests after injury in Copa America opener**\
-`Edson Alvarez will undergo tests after being forced off with injury just 30 minutes into Mexico&#8217;s Copa America campaign.`\
-https://nytimes.com/athletic/5584207/2024/06/22/edson-alvarez-injury-mexico/
-
-**Trump Suggests Biden May Use Supplements to Get ‘Jacked Up’ for Debate**\
-`The former president has mocked his rival’s mental capacities, but at a rally in Philadelphia, his baseless accusation seemed to set the stage for a more formidable opponent.`\
-https://nytimes.com/2024/06/22/us/politics/trump-biden-supplements-debate.html
 

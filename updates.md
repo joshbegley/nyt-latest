@@ -1,3 +1,15 @@
+**Texas A&M takes Game 1 of Men's College World Series**\
+`Tennessee (58-13), the SEC champs and No. 1 overall seed, will look to keep its season alive Sunday with Game 2 scheduled for 2 p.m. ET.`\
+https://nytimes.com/athletic/5584310/2024/06/23/texas-am-tennessee-mens-college-world-series-game-1/
+
+**England dropping deep after taking the lead: Why it happens and why it is a problem**\
+`Why do England drop so deep so often after going ahead? Is it a tactical choice, or a subconscious reaction from the players?`\
+https://nytimes.com/athletic/5581259/2024/06/23/england-sitting-deep-southgate-euro-2024/
+
+**Canada transfer tracker: Alphonso Davies to Real Madrid? Jonathan David on the move**\
+`The Athletic runs down the summer fortunes of Jesse Marsch's squad: who's on the move and who will be staying put?`\
+https://nytimes.com/athletic/5583210/2024/06/23/canada-transfer-news-davies/
+
 **Gordon? Wharton? Three at the back? Our writers' England XIs to face Slovenia**\
 `Gareth Southgate has some decisions to make against Slovenia – what changes should he make?`\
 https://nytimes.com/athletic/5580709/2024/06/23/england-lineup-slovenia-euro-202424/
