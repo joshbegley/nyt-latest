@@ -1,3 +1,11 @@
+**How to Deal With the National Trauma of Jan. 6**\
+`Responses to an essay about Jan. 6 and memory. Also: Donald Trump’s V.P. factors; an age limit for presidents; Ukraine peace talks; avoiding parenthood.`\
+https://nytimes.com/2024/06/23/opinion/jan-6-memory.html
+
+**A Recipe for Cooks Who Love to Poke at the Grill**\
+`Huli huli chicken requires lots of turning so that its glaze of soy sauce, brown sugar, rice vinegar and ketchup (with plenty of garlic and ginger) doesn’t scorch.`\
+https://nytimes.com/2024/06/23/dining/huli-huli-chicken.html
+
 **A Man Missing for 10 Days in a California Forest Is Found Alive**\
 `Lukas McClish said he lost 30 pounds in 10 days but was rescued without any major injuries.`\
 https://nytimes.com/2024/06/23/us/forest-rescue-big-basin-boulder-creek.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5584379/2024/06/23/portugal-turkey-euro-2024-analys
 **What NHL offseason trades, signings and other moves would we like to see? One pick for each team**\
 `The Athletic asked its NHL staff what each team should prioritize this offseason, looking at free-agent signings, cap dumps, trades, more.`\
 https://nytimes.com/athletic/5579497/2024/06/23/nhl-free-agency-trades-offseason-2024/
-
-**The Pulse: How to judge UMSNT in this tourney**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5584337/2024/06/23/usmnt-copa-america-the-pulse/
-
-**Tchouameni urges French citizens to vote amid upcoming election**\
-`Aurelien Tchouameni has stated that he hates &#8220;extremes in everyday life&#8221; as he called on everyone in France &#8220;to go out and vote&#8221; in the upcoming election.`\
-https://nytimes.com/athletic/5584489/2024/06/23/aurelien-tchouameni-france-election/
 
