@@ -1,3 +1,7 @@
+**Pilgrim Deaths in Mecca Put Spotlight on Underworld Hajj Industry**\
+`Most of the more than 1,300 people who died making the Islamic pilgrimage were not formally registered, a Saudi official said. That left them with little access to protection from the brutal heat.`\
+https://nytimes.com/2024/06/23/world/middleeast/hajj-pilgrim-deaths-saudi-arabia.html
+
 **As New Jersey Bakes, Some Towns Ask Residents to Reduce Water Use**\
 `The heat was especially oppressive in urban areas of New Jersey, a state that climate experts say is warming at a faster rate than others in the Northeast.`\
 https://nytimes.com/2024/06/23/us/new-jersey-heat-water.html
