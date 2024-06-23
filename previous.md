@@ -1,3 +1,11 @@
+**De la Fuente plays down comparisons of Euro 2024 team to Spain greats**\
+`Luis de la Fuente has played down any lofty comparisons to the great Spain teams of the past despite his side&#8217;s strong start to Euro 2024.`\
+https://nytimes.com/athletic/5585074/2024/06/23/spain-euro-2024-team/
+
+**F1 Spanish GP takeaways: McLaren and Mercedes optimism, a step up for Alpine**\
+`Stay informed on all the biggest stories in Formula One.`\
+https://nytimes.com/athletic/5584987/2024/06/23/f1-spanish-gp-takeaways-mclaren-mercedes-red-bull-alpine/
+
 **Trump V.P. roundup: Noem is not being vetted, and Burgum goes on the offense.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/06/23/us/biden-trump-election/trump-biden-sunday-shows
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/23/weather/tornado-storms-new-england.html
 **Murray a major doubt for Wimbledon after back surgery**\
 `Andy Murray&#8217;s Wimbledon swansong is in the balance after he underwent a surgical procedure on his back on Saturday.`\
 https://nytimes.com/athletic/5584502/2024/06/23/andy-murray-wimbledon-injury/
-
-**UEFA increases security after pitch invaders target Ronaldo**\
-`UEFA has confirmed it will increase security measures at Euro 2024 after Portugal&#8217;s victory over Turkey was marred by a number of pitch invasions from supporters.`\
-https://nytimes.com/athletic/5584899/2024/06/23/cristiano-ronaldo-pitch-invaders-uefa/
-
-**Sha'Carri Richardson, her spot in Paris secured, closing in on Olympic glory**\
-`If Sha'Carri Richardson wins gold in Paris, it would be a strong finish to this years-long journey on her way to superstardom.`\
-https://nytimes.com/athletic/5584716/2024/06/23/shacarri-richardson-olympics-trials-100-meter-glory/
 
