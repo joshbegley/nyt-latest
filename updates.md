@@ -1,3 +1,7 @@
+**Mexico's Alvarez to undergo tests after injury in Copa America opener**\
+`Edson Alvarez will undergo tests after being forced off with injury just 30 minutes into Mexico&#8217;s Copa America campaign.`\
+https://nytimes.com/athletic/5584207/2024/06/22/edson-alvarez-injury-mexico/
+
 **Trump Suggests Biden May Use Supplements to Get ‘Jacked Up’ for Debate**\
 `The former president has mocked his rival’s mental capacities, but at a rally in Philadelphia, his baseless accusation seemed to set the stage for a more formidable opponent.`\
 https://nytimes.com/2024/06/22/us/politics/trump-biden-supplements-debate.html

@@ -1,3 +1,7 @@
+**Mexico's Alvarez to undergo tests after injury in Copa America opener**\
+`Edson Alvarez will undergo tests after being forced off with injury just 30 minutes into Mexico&#8217;s Copa America campaign.`\
+https://nytimes.com/athletic/5584207/2024/06/22/edson-alvarez-injury-mexico/
+
 **Trump Suggests Biden May Use Supplements to Get ‘Jacked Up’ for Debate**\
 `The former president has mocked his rival’s mental capacities, but at a rally in Philadelphia, his baseless accusation seemed to set the stage for a more formidable opponent.`\
 https://nytimes.com/2024/06/22/us/politics/trump-biden-supplements-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5584150/2024/06/22/moise-bombito-racism-canada-alph
 **Grocery Store Shooting That Killed 4 Leaves an Arkansas Town in Disbelief**\
 `The small town of Fordyce, Ark., was beginning to absorb the impact of the bloodshed, as a few details began to emerge. A fourth victim died on Saturday.`\
 https://nytimes.com/2024/06/22/us/arkansas-shooting-grocery-store.html
-
-**Donald Trump Said He Proposed a ‘Migrant League of Fighters’**\
-`Mr. Trump said his suggestion to Dana White, who runs the Ultimate Fighting Championship, was not well received. But, he added, “It’s not the worst idea I’ve ever had.”`\
-https://nytimes.com/2024/06/22/us/politics/donald-trump-said-he-proposed-a-migrant-league-of-fighters.html
 
