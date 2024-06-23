@@ -1,3 +1,7 @@
+**2024 Copa America USA vs. Bolivia odds: Americans heavily favored to open with a win**\
+`The United States men's national team opens the 2024 Copa America with a match Sunday against Bolivia. The U.S. is heavily favored to win.`\
+https://nytimes.com/athletic/5578765/2024/06/22/2024-copa-america-odds-usa-bolivia/
+
 **Sha'Carri Richardson punches ticket to Paris with 100m win at U.S. trials**\
 `Richardson bounced back from a choppy start out of the blocks to obliterate her elite American competitors in the midsection of the sprint.`\
 https://nytimes.com/athletic/5584239/2024/06/22/shacarri-richardson-qualifies-paris-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5580657/2024/06/22/copa-america-2024-yellow-cards-b
 **In the Mid-Atlantic and Ohio Valley, some residents are undeterred by the heat.**\
 `By Kevin Williams, Donna M. Owens and Jon Hurdle`\
 https://nytimes.com/live/2024/06/22/us/heat-wave-news/in-the-mid-atlantic-and-ohio-valley-some-residents-are-undeterred-by-the-heat
-
-**A Tenacious and Wild Pekingese Is the Ugliest Dog, After Five Tries**\
-`Meet Wild Thang, an 8-year-old Pekingese from Oregon who had sought the title of “World’s Ugliest” for years. Now, it’s finally his.`\
-https://nytimes.com/2024/06/22/us/worlds-ugliest-dog-wild-thang.html
 
