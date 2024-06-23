@@ -1,3 +1,7 @@
+**Kane says ex-England players have a 'responsibility' following Lineker criticism**\
+`Harry Kane has responded to Gary Lineker&#8217;s criticism of England&#8217;s Euro 2024 campaign by saying former national team players have a “responsibility” to consider the impact of their words.`\
+https://nytimes.com/athletic/5584651/2024/06/23/harry-kane-england-gary-lineker/
+
 **Euro 2024 state of play: Who needs what to reach the knockout stage?**\
 `All the permutations ahead of the final round of group games at Euro 2024`\
 https://nytimes.com/athletic/5584491/2024/06/23/euro-2024-knockout-permutations/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/23/world/europe/ukraine-war-zelensky-us-weapons.html
 **How to Deal With the National Trauma of Jan. 6**\
 `Responses to an essay about Jan. 6 and memory. Also: Donald Trump’s V.P. factors; an age limit for presidents; Ukraine peace talks; avoiding parenthood.`\
 https://nytimes.com/2024/06/23/opinion/jan-6-memory.html
-
-**A Recipe for Cooks Who Love to Poke at the Grill**\
-`Huli huli chicken requires lots of turning so that its glaze of soy sauce, brown sugar, rice vinegar and ketchup (with plenty of garlic and ginger) doesn’t scorch.`\
-https://nytimes.com/2024/06/23/dining/huli-huli-chicken.html
 
