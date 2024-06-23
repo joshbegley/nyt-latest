@@ -1,5 +1,5 @@
 **Davies condems racist abuse of Bombito: 'Canada is a diverse country'**\
-`KANSAS CITY – Alphonso Davies responded to the racist comments Canada defender Moise Bombito received on his personal Instagram after Canada’s Copa America opener against Argentina, calling them “absolutely disgusting” to see.`\
+`KANSAS CITY – Alphonso Davies responded to the racist comments defender Moise Bombito received on his personal Instagram after Canada&#8217;s Copa America opener against Argentina, calling them “absolutely disgusting” to see.`\
 https://nytimes.com/athletic/5584150/2024/06/22/moise-bombito-racism-canada-alphonso-davies/
 
 **Grocery Store Shooting That Killed 3 Leaves an Arkansas Town in Disbelief**\
