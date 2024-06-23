@@ -1,3 +1,7 @@
+**Five-star prospect Will Riley commits to Illinois over Arizona, Kentucky**\
+`Riley, the 6-foot-8 forward from Canada, played high school basketball for The Phelps School in Malvern, Pa.`\
+https://nytimes.com/athletic/5585119/2024/06/23/will-riley-five-star-illinois-commit/
+
 **Kane: Southgate 'absolutely' the right manager for England**\
 `Harry Kane says Gareth Southgate is &#8220;absolutely&#8221; the right person to lead England and has called on fans to &#8220;support him as the players do&#8221;.`\
 https://nytimes.com/athletic/5585227/2024/06/23/harry-kane-gareth-southgate-england/
