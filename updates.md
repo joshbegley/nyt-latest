@@ -1,3 +1,7 @@
+**Eagle Football group make $20m bid for Almada**\
+`Eagle Football Holdings, which has stakes in clubs including Botofogo, Crystal Palace and Lyon, is in talks over the playmaker`\
+https://nytimes.com/athletic/5584845/2024/06/23/thiago-almada-transfer-atlanta-botofogo-news/
+
 **Matvei Michkov plans to leave SKA, join Flyers**\
 `Michkov plans on terminating the final two seasons of his KHL contract, allowing him to join the Flyers organization for the 2024-25 season.`\
 https://nytimes.com/athletic/5584834/2024/06/23/matvei-michkov-flyers-nhl-plans/
