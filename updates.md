@@ -1,3 +1,7 @@
+**Amy Yang wins KPMG Women's PGA Championship**\
+`Yang won by three strokes for her first career major championship.`\
+https://nytimes.com/athletic/5585467/2024/06/23/amy-yang-wins-kpmg-womens-pga-championship/
+
 **Angel Reese dominates as Sky top Fever, Caitlin Clark**\
 `Reese finished the Sky’s 88-87 victory with a career-high 25 points. She added 16 rebounds, recording her eighth consecutive double-double.`\
 https://nytimes.com/athletic/5585512/2024/06/23/angel-reese-caitlin-clark-fever-sky/
