@@ -1,3 +1,7 @@
+**Pilgrim Deaths in Mecca Put Spotlight on Underworld Hajj Industry**\
+`Most of the more than 1,300 people who died making the Islamic pilgrimage were not formally registered, a Saudi official said. That left them with little access to protection from the brutal heat.`\
+https://nytimes.com/2024/06/23/world/middleeast/hajj-pilgrim-deaths-saudi-arabia.html
+
 **As New Jersey Bakes, Some Towns Ask Residents to Reduce Water Use**\
 `The heat was especially oppressive in urban areas of New Jersey, a state that climate experts say is warming at a faster rate than others in the Northeast.`\
 https://nytimes.com/2024/06/23/us/new-jersey-heat-water.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/23/us/heat-wave-news/in-the-steamy-florida-panh
 **Spencer Turnbull relishes rejoining rotation as Phillies push pause on Taijuan Walker**\
 `After seven weeks in the bullpen, Turnbull is back in the rotation and motivated to stay there. Meanwhile, Michael Mercado joins the pen. `\
 https://nytimes.com/athletic/5585154/2024/06/23/spencer-turnbull-phillies-rotation-taijuan-walker/
-
-**Endrick to be unveiled as Real Madrid player on July 26**\
-`Endrick is expected to be unveiled as a Real Madrid player next month after he officially signs his contract on his 18th birthday.`\
-https://nytimes.com/athletic/5585136/2024/06/23/endrick-real-madrid-contract-presentation/
 
