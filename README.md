@@ -1,3 +1,7 @@
+**Scheffler wins for 6th time in 2024 at Travelers Championship**\
+`Scheffler edged out friend Tom Kim in a playoff.`\
+https://nytimes.com/athletic/5585317/2024/06/23/scottie-scheffler-travelers-championship-win-playoff/
+
 **The Briefing: Switzerland 1-1 Germany - Fullkrug is the saviour but hosts look vulnerable**\
 `All the big talking points from Switzerland's Group A clash with hosts Germany in Frankfurt`\
 https://nytimes.com/athletic/5580937/2024/06/23/switzerland-germany-euro-2024-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5585119/2024/06/23/will-riley-five-star-illinois-co
 **Gunmen Kill at Least 6 at Synagogue and Churches in Russian Republic**\
 `At least a half-dozen police officers and a priest in Dagestan died in what appeared to be coordinated attacks, local officials said.`\
 https://nytimes.com/2024/06/23/world/europe/russia-attack-dagestan.html
-
-**De la Fuente plays down comparisons of Euro 2024 team to Spain greats**\
-`Luis de la Fuente has played down any lofty comparisons to the great Spain teams of the past despite his side&#8217;s strong start to Euro 2024.`\
-https://nytimes.com/athletic/5585074/2024/06/23/spain-euro-2024-team/
 
