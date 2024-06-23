@@ -1,3 +1,11 @@
+**In the steamy Florida Panhandle, the homeless feel helpless.**\
+`By Kalyn Wolfe`\
+https://nytimes.com/live/2024/06/23/us/heat-wave-news/in-the-steamy-florida-panhandle-the-homeless-feel-helpless
+
+**Gunmen Kill at Least 6 at Synagogue and Churches in Russian Republic**\
+`At least a half-dozen police officers and a priest in Dagestan died in what appeared to be coordinated attacks, local officials said.`\
+https://nytimes.com/2024/06/23/world/europe/russia-attack-dagestan.html
+
 **Spencer Turnbull relishes rejoining rotation as Phillies push pause on Taijuan Walker**\
 `After seven weeks in the bullpen, Turnbull is back in the rotation and motivated to stay there. Meanwhile, Michael Mercado joins the pen. `\
 https://nytimes.com/athletic/5585154/2024/06/23/spencer-turnbull-phillies-rotation-taijuan-walker/
