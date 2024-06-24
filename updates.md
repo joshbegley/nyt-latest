@@ -1,3 +1,7 @@
+**Araujo blames heat and dehydration for substitution in Uruguay Copa America win**\
+`Uruguay defender Ronald Araujo explained he was substituted at half time during his side&#8217;s Copa America group stage opener against Panama due to the heat and dehydration.`\
+https://nytimes.com/athletic/5587222/2024/06/24/ronald-araujo-copa-america-uruguay/
+
 **Politicians Can Bend the Truth. Here’s How We Bend It Back.**\
 `When candidates take to a lectern, we are there to fact-check their claims and bring you the truth.`\
 https://nytimes.com/2024/06/24/insider/new-york-times-fact-checks-candidates.html
