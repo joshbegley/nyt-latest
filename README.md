@@ -1,3 +1,7 @@
+**Taylor Swift Notches a Ninth Week at No. 1 With New CD Versions**\
+`The singer’s latest album, “The Tortured Poets Department,” now has the second-most weeks at No. 1 of any Swift album.`\
+https://nytimes.com/2024/06/24/arts/music/taylor-swift-billboard-poets-nine-weeks.html
+
 **France’s Far-Right Leader Says the National Rally Is Ready to Govern**\
 `If he becomes prime minister after snap elections, Jordan Bardella, the party’s president, said he would represent all. But he also said dual citizens should not hold some “sensitive” jobs.`\
 https://nytimes.com/2024/06/24/world/europe/frances-far-right-leader-says-the-national-rally-is-ready-to-govern.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/24/world/europe/greece-heat-tourist-deaths.html
 **Rapper Known as Julio Foolio Is Fatally Shot in Florida**\
 `The rapper, whose real name is Charles Jones, 26, had been celebrating his birthday at events that he had announced on social media.`\
 https://nytimes.com/2024/06/24/us/julio-foolio-rapper-shot.html
-
-**Biden Condemns Protest Outside Los Angeles Synagogue as Antisemitic**\
-`After a clash between pro-Palestinian and pro-Israel demonstrators turned violent over the weekend, leaders said such protests outside houses of worship were unacceptable.`\
-https://nytimes.com/2024/06/24/us/synogogue-protest-los-angeles-biden.html
 
