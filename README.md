@@ -1,3 +1,19 @@
+**Iran’s Onerous Hijab Law for Women Is Now a Campaign Issue**\
+`In a sign that a women-led movement has gained ground, all of the men running for president have distanced themselves from the harsh tactics used to enforce mandatory hijab.`\
+https://nytimes.com/2024/06/24/world/middleeast/iran-hijab-election-issue.html
+
+**Tennis Briefing: Does grass season need to be longer? Can Americans win at Wimbledon?**\
+`Welcome to the Monday Tennis Briefing, where The Athletic will explain the stories from the past week on-court`\
+https://nytimes.com/athletic/5586303/2024/06/24/tennis-briefing-grass-court-season-wimbledon/
+
+**How a 1933 Book About Jews in Magic Was Rescued From Oblivion**\
+`Richard Hatch gave up a career as a physicist to become a magician — and a one-man historical preservation society dedicated to a German author killed in the Holocaust.`\
+https://nytimes.com/2024/06/24/arts/magic-jews-germany-hatch.html
+
+**Pasta Nada for Meh Mondays**\
+`Whittle down a pantry pasta to its most oomph-giving essentials and you have pasta nada, an easy, life-giving dinner for draining days.`\
+https://nytimes.com/2024/06/24/dining/pasta-nada.html
+
 **What should we expect from the Hurricanes during a busy draft week?**\
 `Here are five things to watch from the Hurricanes as attention turns to Las Vegas.`\
 https://nytimes.com/athletic/5586014/2024/06/24/nhl-draft-hurricanes-tulsky/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/06/24/climate/ozone-satellites.html
 **Do You Know Where These Classic Novels Are Set?**\
 `Summer is here! Try this short quiz about books that happen to be set in popular vacation destinations.`\
 https://nytimes.com/interactive/2024/06/24/books/review/novels-travel-locations.html
-
-**An Israeli strike kills the coordinator of ambulance services in Gaza, health officials say.**\
-`By Adam Rasgon`\
-https://nytimes.com/live/2024/06/24/world/israel-gaza-war-hamas/an-israeli-strike-kills-the-coordinator-of-ambulance-services-in-gaza-health-officials-say
-
-**Supreme Court Will Hear Challenge to Tennessee Law Banning Transition Care for Minors**\
-`The move comes as states around the country have pushed to curtail transgender rights.`\
-https://nytimes.com/2024/06/24/us/politics/supreme-court-transgender-care-tennessee.html
-
-**U.S. Olympic swim trials takeaways: Caeleb Dressel is back, Katie Ledecky is still here**\
-`Katie Ledecky is heading to Paris in usual dominant form, Caeleb Dressel and Simone Manuel bounced back and more takeaways from swim trials.`\
-https://nytimes.com/athletic/5585954/2024/06/24/us-olympic-swimming-trials-caeleb-dressel-katie-ledecky/
-
-**Scoop City: AFC North preview**\
-`We break down the 2024 outlook for four teams in the AFC North, including their biggest questions and fantasy sleepers.`\
-https://nytimes.com/athletic/5303074/2024/06/24/nfl-afc-north-scoop-city/
 
