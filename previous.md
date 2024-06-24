@@ -1,3 +1,7 @@
+**‘Arctic Blast’ of Leaky Water Halts Spacewalk by NASA Astronauts**\
+`It was the second scheduled spacewalk by NASA astronauts aboard the space station that faced an interruption this month.`\
+https://nytimes.com/2024/06/24/science/nasa-astronauts-spacewalk-water-leak.html
+
 **Heavy Rain Causes Deadly Flooding in Southern China**\
 `The city of Meizhou experienced “once-in-a-century” rainfall last week, according to state media.`\
 https://nytimes.com/video/world/asia/100000009536833/china-flooding-landslides-weather.html
@@ -27,14 +31,10 @@ https://nytimes.com/2024/06/24/arts/music/taylor-swift-billboard-poets-nine-week
 https://nytimes.com/2024/06/24/world/europe/frances-far-right-leader-says-the-national-rally-is-ready-to-govern.html
 
 **Spacewalk Canceled After Spacesuit Coolant Leak**\
-`NASA canceled a spacewalk at the International Space Station today following a coolant leak in Tracy Dyson’s spacesuit, which started shortly after switching her spacesuit to internal battery power.`\
+`NASA canceled a spacewalk at the International Space Station Monday following a water leak, which started shortly after Tracy Dyson started to use the internal battery power of her spacesuit.`\
 https://nytimes.com/video/science/space/100000009536839/spacewalk-canceled.html
 
 **Mbappe 'raring to go' ahead of possible France return**\
 `Didier Deschamps says Kylian Mbappe is &#8220;raring to go&#8221; ahead of a possible return for France against Poland on Tuesday.`\
 https://nytimes.com/athletic/5587439/2024/06/24/kylian-mbappe-nose-france-return/
-
-**The Voters Watching the Debate With a Hand Over Their Eyes**\
-`“This is the most apprehensive I’ve felt about a presidential debate,” said one voter who usually supports Democrats. “I sense a disaster in the making where neither will look presidential.”`\
-https://nytimes.com/2024/06/24/us/politics/biden-trump-debate-voters-democrats.html
 
