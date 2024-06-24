@@ -1,3 +1,7 @@
+**The Deadly Flooding Tearing Through Southern China, in Photos**\
+`The city of Meizhou reported a “once-in-a-century” flood, with at least 38 people dying in one county alone.`\
+https://nytimes.com/2024/06/24/world/asia/china-flooding-landslides-weather.html
+
 **The Promise of Weight-Loss Drugs**\
 `Where these drugs might take us — and what that means for medicine.`\
 https://nytimes.com/2024/06/24/briefing/ozempic-weight-loss-drugs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5585548/2024/06/24/stanley-cup-final-rankings/
 **The Army of Poets and Students Fighting a Forgotten War**\
 `Young people from the cities are turning the tide against Myanmar’s military dictatorship.`\
 https://nytimes.com/2024/06/24/podcasts/the-daily/myanmar-civil-war.html
-
-**Biden Attacks Trump on Abortion, and an Illicit Hajj Industry**\
-`Plus, the soaring costs of caring for pets.`\
-https://nytimes.com/2024/06/24/podcasts/biden-abortion-hajj-industry.html
 

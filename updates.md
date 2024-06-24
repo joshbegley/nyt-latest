@@ -1,3 +1,7 @@
+**The Deadly Flooding Tearing Through Southern China, in Photos**\
+`The city of Meizhou reported a “once-in-a-century” flood, with at least 38 people dying in one county alone.`\
+https://nytimes.com/2024/06/24/world/asia/china-flooding-landslides-weather.html
+
 **The Promise of Weight-Loss Drugs**\
 `Where these drugs might take us — and what that means for medicine.`\
 https://nytimes.com/2024/06/24/briefing/ozempic-weight-loss-drugs.html
