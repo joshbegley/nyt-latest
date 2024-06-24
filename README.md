@@ -1,3 +1,11 @@
+**Apple’s European Headache**\
+`The iPhone maker is the first U.S. tech giant charged with breaching the European Union’s Digital Markets Act, potentially exposing it to huge fines.`\
+https://nytimes.com/2024/06/24/business/dealbook/apple-europe-antitrust-dma.html
+
+**NBA Draft Confidential: Coaches, executives, scouts on Zaccharie Risacher and top forward prospects**\
+`Having multi-dimensional wings who can handle, shoot, facilitate and score and who can switch and defend is a must for NBA title contenders.`\
+https://nytimes.com/athletic/5582670/2024/06/24/nba-draft-confidential-2024-forwards/
+
 **For NHL, Game 7 with Connor McDavid is the biggest TV opportunity in years**\
 `With the game's biggest star and the possibility of a historic comeback, Game 7 could pay dividends for the NHL far beyond Monday night.`\
 https://nytimes.com/athletic/5583833/2024/06/24/nhl-oilers-panthers-game-7-connor-mcdavid-tv-ratings/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5585959/2024/06/24/oilers-panthers-game-7-the-pulse
 **Death Toll in Attack in Southern Russia Rises to 19, Officials Say**\
 `The attack in Dagestan targeted synagogues and Orthodox churches. Russian investigators called it an act of terrorism, but it was not immediately clear who was responsible.`\
 https://nytimes.com/2024/06/24/world/europe/russia-attack-dagestan.html
-
-**Dissident Rapper’s Death Sentence Overturned in Iran, His Lawyer Says**\
-`Toomaj Salehi had been sentenced to death in April after releasing music in support of antigovernment demonstrations two years ago.`\
-https://nytimes.com/2024/06/24/world/middleeast/iran-rapper-toomaj-salehi.html
-
-**Christian Pulisic has started smiling - this is why**\
-`The USMNT have hired a specialist set-piece coach and his positive influence on Pulisic's game is obvious already`\
-https://nytimes.com/athletic/5586190/2024/06/24/pulisic-usmnt-copa-america-smiling/
 
