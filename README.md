@@ -1,3 +1,7 @@
+**Assange Agrees to Plead Guilty in Exchange for Release, Ending Standoff With U.S.**\
+`Barring last-minute snags, the deal would bring to an end a prolonged battle that began after the WikiLeaks founder became alternately celebrated and reviled for revealing state secrets in the 2010s.`\
+https://nytimes.com/2024/06/24/us/politics/assange-plea.html
+
 **Judge Skeptical About Request to Limit Trump Statements on F.B.I.**\
 `Judge Aileen Cannon posed tough questions to prosecutors who want to bar the former president from making inflammatory remarks about the agents who searched Mar-a-Lago in the documents case.`\
 https://nytimes.com/2024/06/24/us/politics/judge-trump-statements-fbi.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/24/world/asia/dagestan-attack-israel-netanyahu-hajj-
 **Roger Federer’s Graduation Speech Becomes an Online Hit**\
 `At Dartmouth College, the retired tennis champion offered his thoughts on winning and losing.`\
 https://nytimes.com/2024/06/24/style/roger-federer-graduation-speech-dartmouth-tiktok-youtube.html
-
-**Thousands of New York voters received texts with misinformation about polling sites.**\
-`By Tim Balk`\
-https://nytimes.com/live/2024/06/24/us/biden-trump-election-debate/thousands-of-new-york-voters-received-texts-with-misinformation-about-polling-sites
 
