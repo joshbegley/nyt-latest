@@ -1,3 +1,7 @@
+**A win, a clean sheet, but too many chances missed - USMNT need to be more ruthless**\
+`Yes, results matter in tournament soccer but Gregg Berhalter's team can't afford to waste as many chances as they did against Bolivia`\
+https://nytimes.com/athletic/5586102/2024/06/24/usmnt-copa-america-pepi-berhalter/
+
 **NBA free agency: James Harden, Tyrese Maxey and the top available point guards**\
 `In theory, the position has some elite talent, but in reality, it seems the best guys will likely return to their own teams.`\
 https://nytimes.com/athletic/5582272/2024/06/24/nba-free-agency-best-point-guards-tyrese-maxey-james-harden/
