@@ -1,3 +1,7 @@
+**Quincy Wilson, 16, qualifies for 400m final**\
+`Wilson's weekend started with a time of 44.66 on Friday night in round one, which broke Darrell Robinson's 42-year-old high school record.`\
+https://nytimes.com/athletic/5585885/2024/06/23/quincy-wilson-400-meter-olympic-trials-teenager/
+
 **Mets' Díaz ejected for sticky stuff, will face automatic 10-game suspension**\
 `Díaz recently returned from the injured list with improved results`\
 https://nytimes.com/athletic/5585909/2024/06/23/mets-edwin-diaz-ejected-sticky-stuff/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5585766/2024/06/23/track-field-olympic-trials-haywa
 **Vols show heart, elevate heart rates, force Aggies into a finale for the national title**\
 `Tennessee will turn again to perhaps the best individual story of its season, senior lefty Zander Sechrist, in Game 3 of the CWS.`\
 https://nytimes.com/athletic/5585350/2024/06/23/tennessee-texas-am-cws-national-championship/
-
-**Simone Manuel closes swim trials with surprise 50m free win**\
-`“I spent a lot of time watching races where I won. I really wanted to channel that Simone, because I know I’m a winner,” Manuel said.`\
-https://nytimes.com/athletic/5585702/2024/06/23/simone-manuel-50-meter-freestyle-olympic-trials/
 
