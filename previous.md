@@ -1,3 +1,11 @@
+**Frederick Crews, Withering Critic of Freud’s Legacy, Dies at 91**\
+`A literary critic, essayist and author, he was a leading voice among revisionist skeptics who saw Freud as a charlatan and psychoanalysis as a pseudoscience.`\
+https://nytimes.com/2024/06/24/books/frederick-crews-dead.html
+
+**San Diego Wave parts company with head coach Stoney**\
+`San Diego Wave has parted company with head coach Casey Stoney.`\
+https://nytimes.com/athletic/5587827/2024/06/24/casey-stoney-san-diego-wave-departs/
+
 **Hamas Skimmed $1 Billion in U.N. Aid for Weapons and Tunnels, Suit Says**\
 `About 100 Israelis sued the United Nations Relief and Works Agency, saying it pays local employees in dollars that buoy the terrorist group. But the case faces high legal hurdles.`\
 https://nytimes.com/2024/06/24/nyregion/unrwa-lawsuit-hamas-gaza.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/24/us/they-came-to-see-trump-first-they-heard-a-pitc
 **‘The Lion King’ at 30: Jason Weaver Sang for Simba but Few Knew It**\
 `The actor was playing a young Michael Jackson when Elton John spotted him. Three decades later, the new attention to his legacy is “gratifying.”`\
 https://nytimes.com/2024/06/24/movies/lion-king-simba-jason-weaver.html
-
-**What Works for Golf Works for Life**\
-`In the long run, consistency and skill tend to win out over luck.`\
-https://nytimes.com/2024/06/24/opinion/golf-mark-broadie-mcilroy.html
-
-**Sabres offseason roadmap, part 3: Fixing the depth chart with trades and free agents**\
-`What trades might Sabres GM Kevyn Adams be able to pull off? Will Lindy Ruff’s presence convince free agents to take a chance in Buffalo?`\
-https://nytimes.com/athletic/5587246/2024/06/24/sabres-offseason-nhl-trades-free-agent/
 
