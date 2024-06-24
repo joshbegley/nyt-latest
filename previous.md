@@ -1,3 +1,7 @@
+**Man Killed and Woman Critically Injured in Triple Stabbing in Manhattan**\
+`A 30-year-old man was in custody in connection with the stabbings in the East Village on Sunday, the police said.`\
+https://nytimes.com/2024/06/23/nyregion/stabbing-nyc-east-village.html
+
 **‘House of the Dragon’ Season 2, Episode 2 Recap: Sleep With One Eye Open**\
 `Aemond knows those assassins got the wrong prince. He says he feels flattered. He had also better watch his back.`\
 https://nytimes.com/2024/06/23/arts/television/house-of-the-dragon-recap-episode-2.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5585702/2024/06/23/simone-manuel-50-meter-freestyle
 **'Grooving and smooth': Pablo López looks like himself after helpful bullpen session**\
 `After simplifying things earlier in the week, López pitched eight scoreless innings with 14 strikeouts on Sunday against the A's. `\
 https://nytimes.com/athletic/5585677/2024/06/23/twins-pablo-lopez-grooving-smooth/
-
-**USMNT 2-0 Bolivia takeaways: Christian Pulisic sets the tone with set piece precision**\
-`The Athletic discusses the big talking points from USMNT and Bolivia's Group C clash`\
-https://nytimes.com/athletic/5585387/2024/06/23/usmnt-bolivia-takeaways-christian-pulisic/
 
