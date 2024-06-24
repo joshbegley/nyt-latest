@@ -1,3 +1,11 @@
+**Greenberg: Angel Reese walks the walk in Sky's rivalry win over Caitlin Clark, Fever**\
+`On the 40th anniversary of the Ryne Sandberg Game on the North Side, Chicago got the Angel Reese Game in the South Loop.`\
+https://nytimes.com/athletic/5585671/2024/06/23/angel-reese-sky-caitlin-clark-greenberg/
+
+**Future U.S. track trials could be moved from Hayward Field**\
+`Considering the 2028 Games are in Los Angeles, having the trials there in California could make a ton of sense.`\
+https://nytimes.com/athletic/5585766/2024/06/23/track-field-olympic-trials-hayward-field-los-angeles/
+
 **Vols show heart, elevate heart rates, force Aggies into a finale for the national title**\
 `Tennessee will turn again to perhaps the best individual story of its season, senior lefty Zander Sechrist, in Game 3 of the CWS.`\
 https://nytimes.com/athletic/5585350/2024/06/23/tennessee-texas-am-cws-national-championship/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5585566/2024/06/23/cubs-ryne-sandberg-statue-wrigle
 **No Apparent Motive in Arkansas Shooting, but the Reaction Is ‘So Personal’**\
 `The shooting in which a gunman killed four and injured 10 at a grocery store in a town of 3,400 appeared to be a “completely random, senseless act,” the police said Sunday.`\
 https://nytimes.com/2024/06/23/us/fordyce-arkansas-shooting-grocery-store.html
-
-**Why Bragg Dropped Charges Against Most Columbia Student Protesters**\
-`The Manhattan district attorney’s office cited a lack of evidence in deciding not to prosecute 31 of the 46 people charged in the takeover of Hamilton Hall.`\
-https://nytimes.com/2024/06/23/nyregion/columbia-protest-charges-bragg.html
-
-**Amy Yang wins KPMG Women's PGA Championship**\
-`Yang won by three strokes for her first career major championship.`\
-https://nytimes.com/athletic/5585467/2024/06/23/amy-yang-wins-kpmg-womens-pga-championship/
 
