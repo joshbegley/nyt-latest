@@ -1,3 +1,19 @@
+**Lionel Messi and Argentina excel at football's hardest skill - keeping it simple**\
+`Victory over Canada in Thursday night's Copa America opener illustrates just how effective they can be`\
+https://nytimes.com/athletic/5583727/2024/06/24/lionel-messi-argentina-copa-america-canada-analysis/
+
+**Why Newcastle are open to selling Yankuba Minteh - despite the hype**\
+`Fans were eagerly anticipating seeing the Gambian winger in action – but PSR rules mean he is up for sale`\
+https://nytimes.com/athletic/5577868/2024/06/24/newcastle-minteh-psr-transfer-alternatives/
+
+**Marcelo Bielsa: Brilliant, brutal, bewildering... and back with Uruguay**\
+`The ex-Leeds United manager has transformed Uruguay into Copa America contenders - just don't expect anything conventional`\
+https://nytimes.com/athletic/5585686/2024/06/24/marcelo-bielsa-uruguay-copa-america-leeds/
+
+**France, racial politics and why 'the Mbappe effect' is shaping a bitter election**\
+`France is divided ahead of a seismic vote, with the far right on the rise. Now its football team have entered the debate`\
+https://nytimes.com/athletic/5584608/2024/06/24/france-kylian-mbappe-election-euro-2024/
+
 **Takeaways from Uruguay 3-1 Panama: Marcelo Bielsa's side shows their quality**\
 `Bielsa-ball comes to Copa America `\
 https://nytimes.com/athletic/5585471/2024/06/23/uruguay-panama-copa-america/
