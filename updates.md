@@ -1,3 +1,15 @@
+**Monday Briefing**\
+`Benjamin Netanyahu said the intensive phase of Israel’s war with Hamas “is about to end.”`\
+https://nytimes.com/2024/06/24/briefing/israel-gaza-new-phase.html
+
+**Japan and South Korea Are Fighting Over an App at a Tense Time**\
+`SoftBank and Naver helped bridge geopolitical relations with a joint venture to own the operator of the messaging app Line, but now the partnership is fraying.`\
+https://nytimes.com/2024/06/24/business/naver-softbank-line-south-korea-japan.html
+
+**Oilers at Panthers Stanley Cup Final Game 7 odds, expert picks: Winner take all**\
+`Will the Oilers make fresh history on Monday night with a comeback from a 3-0 hole, or will the Panthers salvage their Stanley Cup Final?`\
+https://nytimes.com/athletic/5583598/2024/06/24/oilers-panthers-stanley-cup-final-game-7-odds-picks/
+
 **Noah Lyles wins men's 100m at U.S. Olympic track trials**\
 `Lyles posted a lifetime best in Sunday’s final, running the 100 in 9.83 seconds in the marquee event of Day 3 at the trials.`\
 https://nytimes.com/athletic/5585956/2024/06/23/noah-lyles-mens-100-meter-olympic-trials/
