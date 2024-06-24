@@ -1,3 +1,11 @@
+**Roger Federer’s Graduation Speech Becomes an Online Hit**\
+`At Dartmouth College, the retired tennis champion offered his thoughts on winning and losing.`\
+https://nytimes.com/2024/06/24/style/roger-federer-graduation-speech-dartmouth-tiktok-youtube.html
+
+**Thousands of New York voters received texts with misinformation about polling sites.**\
+`By Tim Balk`\
+https://nytimes.com/live/2024/06/24/us/biden-trump-election-debate/thousands-of-new-york-voters-received-texts-with-misinformation-about-polling-sites
+
 **F1 of the Water? Yachts Race at the Statue of Liberty.**\
 `Thousands of spectators turned out over the weekend for SailGP, which brought a high-speed competition, and lots of champagne, to the New York Harbor.`\
 https://nytimes.com/2024/06/24/style/sailgp-new-york.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/24/books/frederick-crews-dead.html
 **San Diego Wave parts company with head coach Stoney**\
 `San Diego Wave has parted company with head coach Casey Stoney.`\
 https://nytimes.com/athletic/5587827/2024/06/24/casey-stoney-san-diego-wave-departs/
-
-**Hamas Skimmed $1 Billion in U.N. Aid for Weapons and Tunnels, Suit Says**\
-`About 100 Israelis sued the United Nations Relief and Works Agency, saying it pays local employees in dollars that buoy the terrorist group. But the case faces high legal hurdles.`\
-https://nytimes.com/2024/06/24/nyregion/unrwa-lawsuit-hamas-gaza.html
-
-**Will Lewis Says He Helped Hacking Investigation. Scotland Yard Had Doubts.**\
-`Mr. Lewis, now the Washington Post publisher, gave ‘green light’ to delete News Corp. emails during a major journalism scandal.`\
-https://nytimes.com/2024/06/24/world/europe/will-lewis-phone-hacking.html
 
