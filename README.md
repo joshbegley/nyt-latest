@@ -1,7 +1,3 @@
-**37 facts for Lionel Messi's 37th birthday**\
-`A selection of stats, facts and trivia about one of the greatest footballers to have ever played the game`\
-https://nytimes.com/athletic/5581023/2024/06/24/lionel-messi-birthday-facts-2/
-
 **Monday Briefing**\
 `Benjamin Netanyahu said the intensive phase of Israel’s war with Hamas “is about to end.”`\
 https://nytimes.com/2024/06/24/briefing/israel-gaza-new-phase.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/06/23/nyregion/stabbing-nyc-east-village.html
 **‘House of the Dragon’ Season 2, Episode 2 Recap: Sleep With One Eye Open**\
 `Aemond knows those assassins got the wrong prince. He says he feels flattered. He had also better watch his back.`\
 https://nytimes.com/2024/06/23/arts/television/house-of-the-dragon-recap-episode-2.html
+
+**F.B.I. Offers Reward for Information About New Mexico Wildfires**\
+`The agency said it was offering up to $10,000 for information that leads to the arrest and conviction of those “responsible for starting the fires.”`\
+https://nytimes.com/2024/06/23/us/new-mexico-wildfires-intentional.html
 
