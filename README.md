@@ -1,3 +1,7 @@
+**Araujo blames heat and dehydration for substitution in Uruguay Copa America win**\
+`Uruguay defender Ronald Araujo explained he was substituted at half time during his side&#8217;s Copa America group stage opener against Panama due to the heat and dehydration.`\
+https://nytimes.com/athletic/5587222/2024/06/24/ronald-araujo-copa-america-uruguay/
+
 **Politicians Can Bend the Truth. Here’s How We Bend It Back.**\
 `When candidates take to a lectern, we are there to fact-check their claims and bring you the truth.`\
 https://nytimes.com/2024/06/24/insider/new-york-times-fact-checks-candidates.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/24/arts/dance/woolf-works-abt.html
 **Charli XCX’s ‘Brat’ Breakthrough**\
 `The pop songwriter’s sixth album is in some ways her most daring release yet. Improbably, it also yielded her best opening week.`\
 https://nytimes.com/2024/06/24/arts/music/popcast-charli-xcx-brat.html
-
-**Hollywood Sharpens Aim at Online Pirates**\
-`Major U.S. entertainment companies are hiring a former top F.B.I. official and renewing a push for federal legislation to combat online thievery overseas.`\
-https://nytimes.com/2024/06/24/business/hollywood-piracy.html
 
