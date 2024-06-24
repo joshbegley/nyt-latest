@@ -1,3 +1,7 @@
+**The Dobbs anniversary and the first debate will bookend this week.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/06/24/us/biden-trump-election-debate/the-dobbs-anniversary-and-the-first-debate-will-bookend-this-week
+
 **How Many Abortion Seekers Are Traveling to California**\
 `After the Supreme Court overturned Roe v. Wade and some states banned abortions altogether, many Americans began crossing state lines to get one.`\
 https://nytimes.com/2024/06/24/us/abortion-seekers-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5586360/2024/06/24/pulisic-bolivia-usmnt-corner-rou
 **Gallagher set to replace Alexander-Arnold for Slovenia game**\
 `England manager Gareth Southgate is set to make a change to his midfield for Tuesday’s final group game at Euro 2024 by bringing in Conor Gallagher for Trent Alexander-Arnold.`\
 https://nytimes.com/athletic/5584013/2024/06/24/gallagher-alexander-arnold-england-team-news/
-
-**Princess Anne Hospitalized With Minor Injuries**\
-`The younger sister of King Charles III sustained a concussion after an incident on Sunday, Buckingham Palace said.`\
-https://nytimes.com/2024/06/24/world/europe/princess-anne-hospitalized-uk.html
 
