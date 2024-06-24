@@ -1,3 +1,7 @@
+**What’s on TV This Week: The Presidential Debate and CMA Fest**\
+`President Joe Biden and former President Donald J. Trump debate for the first time this campaign cycle. Country artists perform their hit songs.`\
+https://nytimes.com/2024/06/24/arts/television/whats-on-tv-this-week-the-presidential-debate-and-cma-fest.html
+
 **Why Nottingham Forest aren't ready to give up on Ibrahim Sangare**\
 `The Ivorian midfielder struggled to make an impact following his move from PSV but Forest are there are signs his quality may shine through`\
 https://nytimes.com/athletic/5564710/2024/06/24/ibrahim-sangare-nottingham-forest-future/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5581527/2024/06/24/chelsea-villa-everton-newcastle-
 **Pepe is Portugal’s ageless wonder - and older than a third of the nations at Euro 2024**\
 `Pepe was Portugal's future once. He’s still the present. Good luck telling him that he’s the past`\
 https://nytimes.com/athletic/5584123/2024/06/24/pepe-portugal-euro-2024/
-
-**What next for Martinelli, a player on the fringes for Arsenal and Brazil?**\
-`The forward is on the fringes for club and country after a difficult few months`\
-https://nytimes.com/athletic/5581425/2024/06/24/gabriel-martinelli-brazil-arsenal/
 
