@@ -1,3 +1,19 @@
+**What Works for Golf Works for Life**\
+`In the long run, consistency and skill tend to win out over luck.`\
+https://nytimes.com/2024/06/24/opinion/golf-mark-broadie-mcilroy.html
+
+**Sabres offseason roadmap, part 3: Fixing the depth chart with trades and free agents**\
+`What trades might Sabres GM Kevyn Adams be able to pull off? Will Lindy Ruff’s presence convince free agents to take a chance in Buffalo?`\
+https://nytimes.com/athletic/5587246/2024/06/24/sabres-offseason-nhl-trades-free-agent/
+
+**Why the Sacramento Kings are shopping their draft pick as part of aggressive offseason**\
+`The Kings' No. 13 pick remains very available in trade talks heading into the draft. It could also help them acquire the right player. `\
+https://nytimes.com/athletic/5587438/2024/06/24/sacramento-kings-nba-draft-free-agency-zach-edey-kyle-kuzma-zach-lavine/
+
+**Tamayo Perry, Professional Surfer, Dies After Shark Attack Off Oahu**\
+`Mr. Perry also appeared in television and movies, including roles in “Blue Crush,” “Pirates of the Caribbean: On Stranger Tides” and “Hawaii Five-0.”`\
+https://nytimes.com/2024/06/24/us/tamayo-perry-dead-hawaii-shark-attack.html
+
 **Pinto or a second-round pick? An Ullmark extension changes his trade value**\
 `With the draft and free agency looming, Ullmark could be entering his final hours with the Bruins. What will they be able to get in return?`\
 https://nytimes.com/athletic/5587350/2024/06/24/bruins-linus-ullmark-trade-value/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/06/24/science/nasa-astronauts-spacewalk-water-leak.html
 **Heavy Rain Causes Deadly Flooding in Southern China**\
 `The city of Meizhou experienced “once-in-a-century” rainfall last week, according to state media.`\
 https://nytimes.com/video/world/asia/100000009536833/china-flooding-landslides-weather.html
-
-**NASCAR New Hampshire takeaways: Wet-weather tire dilemma, Christopher Bell shines**\
-`It's time for NASCAR to let teams make their own decisions on wet-weather tires, a win for Christopher Bell and more from New Hampshire.`\
-https://nytimes.com/athletic/5587115/2024/06/24/nascar-new-hampshire-takeaways-tires-christopher-bell/
-
-**The Governor’s Race You Cannot Ignore**\
-`North Carolina has a chance to overcome tribalism and hate in November.`\
-https://nytimes.com/live/2024/06/18/opinion/thepoint/north-carolina-governor-robinson-stein
-
-**Film Academy Chief Gets a Sequel: Bill Kramer’s Contract Is Renewed**\
-`Amid challenges in Hollywood, the Academy of Motion Picture Arts and Sciences renewed its chief executive’s contract a year early.`\
-https://nytimes.com/2024/06/24/movies/academy-of-motion-picture-arts-and-sciences-bill-kramer.html
-
-**Dearica Hamby named to U.S. Olympic 3x3 team, replaces Cameron Brink**\
-`Hamby led Team USA to gold at the FIBA 3x3 AmeriCup in December, taking home tournament MVP honors.`\
-https://nytimes.com/athletic/5587466/2024/06/24/dearica-hamby-us-olympic-3x3-team/
 
