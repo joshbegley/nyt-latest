@@ -1,3 +1,7 @@
+**NBA free agency: James Harden, Tyrese Maxey and the top available point guards**\
+`In theory, the position has some elite talent, but in reality, it seems the best guys will likely return to their own teams.`\
+https://nytimes.com/athletic/5582272/2024/06/24/nba-free-agency-best-point-guards-tyrese-maxey-james-harden/
+
 **Red Sox prospect takeaways: Luis Perales injures his elbow; Marcelo Mayer remains hot**\
 `Luis Perales will miss the rest of the season, but several of the Red Sox's top prospects continue to shine with Double-A Portland.`\
 https://nytimes.com/athletic/5581997/2024/06/24/red-sox-prospect-takeaways-luis-perales-injury/
