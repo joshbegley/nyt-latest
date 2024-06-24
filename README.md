@@ -1,3 +1,11 @@
+**‘House of the Dragon’ Season 2, Episode 2 Recap: Sleep With One Eye Open**\
+`Aemond knows those assassins got the wrong prince. He says he feels flattered. He had also better watch his back.`\
+https://nytimes.com/2024/06/23/arts/television/house-of-the-dragon-recap-episode-2.html
+
+**F.B.I. Offers Reward for Information About New Mexico Wildfires**\
+`The agency said it was offering up to $10,000 for information that leads to the arrest and conviction of those “responsible for starting the fires.”`\
+https://nytimes.com/2024/06/23/us/new-mexico-wildfires-intentional.html
+
 **Gabbi Tuft, First Openly Trans Former W.W.E. Star, Returns to Wrestling**\
 `Ms. Tuft, who retired from the W.W.E. more than a decade ago and came out as transgender in 2021, will return to the ring on Tuesday, she said on social media.`\
 https://nytimes.com/2024/06/23/arts/television/gabbi-tuft-trans-wrestler-return.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5585677/2024/06/23/twins-pablo-lopez-grooving-smoot
 **USMNT 2-0 Bolivia takeaways: Christian Pulisic sets the tone with set piece precision**\
 `The Athletic discusses the big talking points from USMNT and Bolivia's Group C clash`\
 https://nytimes.com/athletic/5585387/2024/06/23/usmnt-bolivia-takeaways-christian-pulisic/
-
-**Leafs hire Marc Savard as assistant coach, will run power play next season**\
-`Savard was announced as the last piece of Craig Berube’s coaching staff on Sunday.`\
-https://nytimes.com/athletic/5585613/2024/06/23/maple-leafs-marc-savard-assistant-coach/
-
-**Rudiger injury 'problematic' for Germany last-16 game**\
-`Antonio Rudiger could be a doubt for Germany&#8217;s last-16 game at the European Championship with a thigh injury.`\
-https://nytimes.com/athletic/5585631/2024/06/23/antonio-rudiger-injury-germany-last-16/
 
