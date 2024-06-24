@@ -1,3 +1,7 @@
+**Breaking down what Harry Kane did on and off the ball for England - and what needs to change**\
+`Kane is a great goalscorer but also superb at dropping deep – England must find a way to build their attack round both of his specialisms`\
+https://nytimes.com/athletic/5582902/2024/06/24/alan-shearer-harry-kane-euro-2024-analysis/
+
 **What’s on TV This Week: The Presidential Debate and CMA Fest**\
 `President Joe Biden and former President Donald J. Trump debate for the first time this campaign cycle. Country artists perform their hit songs.`\
 https://nytimes.com/2024/06/24/arts/television/whats-on-tv-this-week-the-presidential-debate-and-cma-fest.html
