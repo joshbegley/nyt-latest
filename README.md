@@ -1,3 +1,15 @@
+**Five shots, one goal, endless running - Darwin Nunez arrives at Copa America**\
+`Against Panama, Uruguayan put in sort of performance we have come to expect - dynamic, dangerous, and predictable in its unpredictability`\
+https://nytimes.com/athletic/5586165/2024/06/24/darwin-nunez-uruguay-panama-copa-america/
+
+**Wild draft expert roundtable: Assessing 6 players Minnesota could land at No. 13**\
+`There's a very good chance Minnesota ends up with a skilled forward with its pick, unless one of the top defensemen drops.`\
+https://nytimes.com/athletic/5544128/2024/06/24/wild-draft-expert-roundtable/
+
+**Lowetide: Going into Game 7, Oilers veteran Ryan Nugent-Hopkins has seen it all**\
+`No one on the Oilers roster has played more games for the franchise than Nugent-Hopkins.`\
+https://nytimes.com/athletic/5585004/2024/06/24/oilers-ryan-nugent-hopkins-game-7/
+
 **The Athletic FC: No Pulisic, no party; Mbappe and political football in France**\
 `Today in The Athletic FC: Pulisic shows why he's USMNT poster boy with clever corner. Plus: Mbappe and Co wade into French politics.`\
 https://nytimes.com/athletic/5586360/2024/06/24/pulisic-bolivia-usmnt-corner-routine/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5583833/2024/06/24/nhl-oilers-panthers-game-7-conno
 **Padres takeaways: Jackson Merrill’s power surge, outfield picture, injury situation**\
 `Merrill is showing an advanced approach amid his power surge, the outfield is performing well above expectation and injury updates.`\
 https://nytimes.com/athletic/5584256/2024/06/24/padres-takeaways-jackson-merrill-home-run-surge/
-
-**Three Astros takeaways: Making the lineup more athletic, finding a fifth starter and more**\
-`Plus, how losing Framber Valdez's personal catcher for an extended period will affect the team.`\
-https://nytimes.com/athletic/5585499/2024/06/24/astros-lineup-athleticism-jake-bloss-injury/
-
-**Arsenal goalkeeper Hein signs new contract**\
-`Arsenal goalkeeper Karl Hein has signed a new contract with the club.`\
-https://nytimes.com/athletic/5586446/2024/06/24/arsenal-hein-contract-sign/
-
-**Broncos disastrous defensive start doomed 2023 season. Here's they should be better**\
-`Linebacker Alex Singleton said the defense knows it must be a more reliable unit, especially while supporting an inexperienced starting QB.`\
-https://nytimes.com/athletic/5584642/2024/06/24/denver-broncos-defense-improvements-alex-singleton/
 
