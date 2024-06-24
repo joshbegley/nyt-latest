@@ -30,8 +30,8 @@ https://nytimes.com/athletic/5587222/2024/06/24/ronald-araujo-copa-america-urugu
 `When candidates take to a lectern, we are there to fact-check their claims and bring you the truth.`\
 https://nytimes.com/2024/06/24/insider/new-york-times-fact-checks-candidates.html
 
-**2 Candidates. No Audience. 60 New York Times Reporters.**\
-`This includes 29 fact-checkers. Here’s how we plan to cover the presidential debate.`\
+**2 Candidates. No Audience. 29 New York Times Fact-Checkers.**\
+`We’ll have 60 Times reporters. Here’s how we plan to cover the presidential debate.`\
 https://nytimes.com/2024/06/24/insider/trump-biden-debate-new-york-times-coverage.html
 
 **MLS attendance up 12 percent: Which teams are up the most**\
