@@ -1,3 +1,7 @@
+**Biden Is Prepping for the First Debate**\
+`Also, an N.H.L. final for the ages. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/06/24/briefing/biden-trump-debate-prep-nhl-final.html
+
 **Attacks in Russia’s Dagestan Region: What to Know**\
 `Gunmen killed at least 20 people in attacks in two Dagestan cities. No suspects or motives have been identified, but the region has long been rocked by ethnic and religious violence.`\
 https://nytimes.com/2024/06/24/world/europe/russia-dagestan-attacks-what-to-know.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009537512/hajj-pilgrims-deaths-
 **Lakers officially name JJ Redick head coach**\
 `Redick spent 15 seasons in the NBA with six teams, most notably the Orlando Magic and LA Clippers.`\
 https://nytimes.com/athletic/5587872/2024/06/24/lakers-jj-redick-head-coach/
-
-**Former Officer Pleads Guilty to Killing Woman in Ex-Girlfriend’s Home**\
-`Yvonne Wu was waiting inside her ex-girlfriend’s apartment in Brooklyn when she came home with a friend. Ms. Wu turned her service gun on the two women.`\
-https://nytimes.com/2024/06/24/nyregion/nypd-officer-shooting-plea.html
 

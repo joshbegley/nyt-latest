@@ -1,3 +1,7 @@
+**Biden Is Prepping for the First Debate**\
+`Also, an N.H.L. final for the ages. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/06/24/briefing/biden-trump-debate-prep-nhl-final.html
+
 **Attacks in Russia’s Dagestan Region: What to Know**\
 `Gunmen killed at least 20 people in attacks in two Dagestan cities. No suspects or motives have been identified, but the region has long been rocked by ethnic and religious violence.`\
 https://nytimes.com/2024/06/24/world/europe/russia-dagestan-attacks-what-to-know.html
