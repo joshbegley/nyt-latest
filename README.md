@@ -1,3 +1,7 @@
+**Supreme Court Will Hear Challenge to Tennessee Law Banning Transition Care for Minors**\
+`The state law bans health care providers from offering gender transition care to children.`\
+https://nytimes.com/2024/06/24/us/politics/supreme-court-transgender-care-tennessee.html
+
 **U.S. Olympic swim trials takeaways: Caeleb Dressel is back, Katie Ledecky is still here**\
 `Katie Ledecky is heading to Paris in usual dominant form, Caeleb Dressel and Simone Manuel bounced back and more takeaways from swim trials.`\
 https://nytimes.com/athletic/5585954/2024/06/24/us-olympic-swimming-trials-caeleb-dressel-katie-ledecky/
