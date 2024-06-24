@@ -1,3 +1,7 @@
+**Covid Changed Everything, Including How We Cover the Bird Flu**\
+`The Times’s science and global health reporter shared how the pandemic shaped her current reporting on viruses, including bird flu, which is seeing an uptick in cases.`\
+https://nytimes.com/2024/06/24/insider/covid-changed-everything-including-how-we-cover-the-bird-flu.html
+
 **Louisiana Parents Sue to Block Display of Ten Commandments in Schools**\
 `A law enacted last week requires the display of the commandments in every public classroom. The parents argued it “pressures students into religious observance.”`\
 https://nytimes.com/2024/06/24/us/louisiana-parents-ten-commandments.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/24/nyregion/nypd-officer-shooting-plea.html
 **La inteligencia artificial mejora rápidamente. ¿Puedes distinguir lo que es real?**\
 `Pon a prueba tus habilidades en este test.`\
 https://nytimes.com/interactive/2024/06/24/technology/test-imagenes-falsas-IA-midjourney-facebook.html
-
-**Raptors' Barnes to sign 5-year max rookie extension**\
-`The Raptors' top selection in the 2021 NBA Draft, Barnes has emerged as a cornerstone of Toronto's future.`\
-https://nytimes.com/athletic/5587360/2024/06/24/scottie-barnes-extension-raptors-history-nba/
 

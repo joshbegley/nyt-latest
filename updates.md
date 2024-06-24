@@ -1,3 +1,7 @@
+**Covid Changed Everything, Including How We Cover the Bird Flu**\
+`The Times’s science and global health reporter shared how the pandemic shaped her current reporting on viruses, including bird flu, which is seeing an uptick in cases.`\
+https://nytimes.com/2024/06/24/insider/covid-changed-everything-including-how-we-cover-the-bird-flu.html
+
 **Louisiana Parents Sue to Block Display of Ten Commandments in Schools**\
 `A law enacted last week requires the display of the commandments in every public classroom. The parents argued it “pressures students into religious observance.”`\
 https://nytimes.com/2024/06/24/us/louisiana-parents-ten-commandments.html
