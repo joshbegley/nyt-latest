@@ -1,3 +1,15 @@
+**Gallagher set to replace Alexander-Arnold for Slovenia game**\
+`England manager Gareth Southgate is set to make a change to his midfield for Tuesday’s final group game at Euro 2024 by bringing in Conor Gallagher for Trent Alexander-Arnold.`\
+https://nytimes.com/athletic/5584013/2024/06/24/gallagher-alexander-arnold-england-team-news/
+
+**Princess Anne Hospitalized With Minor Injuries**\
+`The younger sister of King Charles III sustained a concussion after an incident on Sunday, Buckingham Palace said.`\
+https://nytimes.com/2024/06/24/world/europe/princess-anne-hospitalized-uk.html
+
+**Broncos disastrous defensive start doomed 2023 season. Here's they should be better**\
+`Linebacker Alex Singleton said the defense knows it must be a more reliable unit, especially while supporting an inexperienced starting QB.`\
+https://nytimes.com/athletic/5584642/2024/06/24/denver-broncos-defense-improvements-alex-singleton/
+
 **Apple’s European Headache**\
 `The iPhone maker is the first U.S. tech giant charged with breaching the European Union’s Digital Markets Act, potentially exposing it to huge fines.`\
 https://nytimes.com/2024/06/24/business/dealbook/apple-europe-antitrust-dma.html
