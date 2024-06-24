@@ -1,3 +1,7 @@
+**Mets' Díaz ejected for sticky stuff, will face automatic 10-game suspension**\
+`Díaz recently returned from the injured list with improved results`\
+https://nytimes.com/athletic/5585909/2024/06/23/mets-edwin-diaz-ejected-sticky-stuff/
+
 **Man Killed and Woman Critically Injured in Triple Stabbing in Manhattan**\
 `A 30-year-old man was in custody in connection with the stabbings in the East Village on Sunday, the police said.`\
 https://nytimes.com/2024/06/23/nyregion/stabbing-nyc-east-village.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5585350/2024/06/23/tennessee-texas-am-cws-national-
 **Simone Manuel closes swim trials with surprise 50m free win**\
 `“I spent a lot of time watching races where I won. I really wanted to channel that Simone, because I know I’m a winner,” Manuel said.`\
 https://nytimes.com/athletic/5585702/2024/06/23/simone-manuel-50-meter-freestyle-olympic-trials/
-
-**'Grooving and smooth': Pablo López looks like himself after helpful bullpen session**\
-`After simplifying things earlier in the week, López pitched eight scoreless innings with 14 strikeouts on Sunday against the A's. `\
-https://nytimes.com/athletic/5585677/2024/06/23/twins-pablo-lopez-grooving-smooth/
 

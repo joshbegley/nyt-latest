@@ -1,3 +1,7 @@
+**Mets' Díaz ejected for sticky stuff, will face automatic 10-game suspension**\
+`Díaz recently returned from the injured list with improved results`\
+https://nytimes.com/athletic/5585909/2024/06/23/mets-edwin-diaz-ejected-sticky-stuff/
+
 **Man Killed and Woman Critically Injured in Triple Stabbing in Manhattan**\
 `A 30-year-old man was in custody in connection with the stabbings in the East Village on Sunday, the police said.`\
 https://nytimes.com/2024/06/23/nyregion/stabbing-nyc-east-village.html
