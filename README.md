@@ -1,3 +1,19 @@
+**Lionel Messi and Argentina excel at football's hardest skill - keeping it simple**\
+`Victory over Canada in Thursday night's Copa America opener illustrates just how effective they can be`\
+https://nytimes.com/athletic/5583727/2024/06/24/lionel-messi-argentina-copa-america-canada-analysis/
+
+**Why Newcastle are open to selling Yankuba Minteh - despite the hype**\
+`Fans were eagerly anticipating seeing the Gambian winger in action – but PSR rules mean he is up for sale`\
+https://nytimes.com/athletic/5577868/2024/06/24/newcastle-minteh-psr-transfer-alternatives/
+
+**Marcelo Bielsa: Brilliant, brutal, bewildering... and back with Uruguay**\
+`The ex-Leeds United manager has transformed Uruguay into Copa America contenders - just don't expect anything conventional`\
+https://nytimes.com/athletic/5585686/2024/06/24/marcelo-bielsa-uruguay-copa-america-leeds/
+
+**France, racial politics and why 'the Mbappe effect' is shaping a bitter election**\
+`France is divided ahead of a seismic vote, with the far right on the rise. Now its football team have entered the debate`\
+https://nytimes.com/athletic/5584608/2024/06/24/france-kylian-mbappe-election-euro-2024/
+
 **A busy summer for Man City, Man Utd uncertainty: What to expect as the WSL transfer window opens**\
 `Manchester City have plenty of work to do in the summer window, while uncertainty surrounds the future of multiple Manchester United players`\
 https://nytimes.com/athletic/5582869/2024/06/24/wsl-transfer-window-signings/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5581023/2024/06/24/lionel-messi-birthday-facts-2/
 **Monday Briefing**\
 `Benjamin Netanyahu said the intensive phase of Israel’s war with Hamas “is about to end.”`\
 https://nytimes.com/2024/06/24/briefing/israel-gaza-new-phase.html
-
-**Japan and South Korea Are Fighting Over an App at a Tense Time**\
-`SoftBank and Naver helped bridge geopolitical relations with a joint venture to own the operator of the messaging app Line, but now the partnership is fraying.`\
-https://nytimes.com/2024/06/24/business/naver-softbank-line-south-korea-japan.html
-
-**Oilers at Panthers Stanley Cup Final Game 7 odds, expert picks: Winner take all**\
-`Will the Oilers make fresh history on Monday night with a comeback from a 3-0 hole, or will the Panthers salvage their Stanley Cup Final?`\
-https://nytimes.com/athletic/5583598/2024/06/24/oilers-panthers-stanley-cup-final-game-7-odds-picks/
-
-**Noah Lyles wins men's 100m at U.S. Olympic track trials**\
-`Lyles posted a lifetime best in Sunday’s final, running the 100 in 9.83 seconds in the marquee event of Day 3 at the trials.`\
-https://nytimes.com/athletic/5585956/2024/06/23/noah-lyles-mens-100-meter-olympic-trials/
-
-**Takeaways from Uruguay 3-1 Panama: Marcelo Bielsa's side shows their quality**\
-`Bielsa-ball comes to Copa America `\
-https://nytimes.com/athletic/5585471/2024/06/23/uruguay-panama-copa-america/
 
