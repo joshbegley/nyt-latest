@@ -1,3 +1,7 @@
+**The Governor’s Race You Cannot Ignore**\
+`North Carolina has a chance to overcome tribalism and hate in November.`\
+https://nytimes.com/live/2024/06/18/opinion/thepoint/north-carolina-governor-robinson-stein
+
 **Film Academy Chief Gets a Sequel: Bill Kramer’s Contract Is Renewed**\
 `Amid challenges in Hollywood, the Academy of Motion Picture Arts and Sciences renewed its chief executive’s contract a year early.`\
 https://nytimes.com/2024/06/24/movies/academy-of-motion-picture-arts-and-sciences-bill-kramer.html

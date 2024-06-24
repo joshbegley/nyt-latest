@@ -1,3 +1,7 @@
+**The Governor’s Race You Cannot Ignore**\
+`North Carolina has a chance to overcome tribalism and hate in November.`\
+https://nytimes.com/live/2024/06/18/opinion/thepoint/north-carolina-governor-robinson-stein
+
 **Film Academy Chief Gets a Sequel: Bill Kramer’s Contract Is Renewed**\
 `Amid challenges in Hollywood, the Academy of Motion Picture Arts and Sciences renewed its chief executive’s contract a year early.`\
 https://nytimes.com/2024/06/24/movies/academy-of-motion-picture-arts-and-sciences-bill-kramer.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5587380/2024/06/24/nascar-2025-playoff-schedule-cha
 **Mabe Fratti, a Spark in Mexico City’s Experimental Music Scene**\
 `The singer, cellist and composer has found inspiration in the city’s flourishing avant-garde. Her new LP, “Sentir Que No Sabes,” wrestles with the idea of progress.`\
 https://nytimes.com/2024/06/24/arts/music/mabe-fratti-sentir-que-no-sabes.html
-
-**Israel talks of a new phase in the Gaza war. What does that mean?**\
-`By Patrick Kingsley`\
-https://nytimes.com/live/2024/06/24/world/israel-gaza-war-hamas/israel-hamas-hezbollah-analysis
 
