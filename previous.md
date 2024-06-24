@@ -1,3 +1,7 @@
+**Will the Debate Be ‘Rah-Rah’ or ‘Ruh-Roh?’**\
+`I asked how you’re feeling about the debate. Hundreds of you responded with worries and hopes.`\
+https://nytimes.com/2024/06/24/us/politics/trump-biden-presidential-debate.html
+
 **Biden Is Prepping for the First Debate**\
 `Also, an N.H.L. final for the ages. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/06/24/briefing/biden-trump-debate-prep-nhl-final.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/24/style/nyc-sail-grand-pix-formula-1.html
 **More Than 1,300 Die During Extremely Hot Hajj Pilgrimage**\
 `A Saudi official said most of the deaths involved unregistered pilgrims who lacked access to certain amenities available to those with permits, such as air-conditioned buses and tents.`\
 https://nytimes.com/video/world/middleeast/100000009537512/hajj-pilgrims-deaths-saudi-arabia.html
-
-**Lakers officially name JJ Redick head coach**\
-`Redick spent 15 seasons in the NBA with six teams, most notably the Orlando Magic and LA Clippers.`\
-https://nytimes.com/athletic/5587872/2024/06/24/lakers-jj-redick-head-coach/
 

@@ -1,3 +1,7 @@
+**Will the Debate Be ‘Rah-Rah’ or ‘Ruh-Roh?’**\
+`I asked how you’re feeling about the debate. Hundreds of you responded with worries and hopes.`\
+https://nytimes.com/2024/06/24/us/politics/trump-biden-presidential-debate.html
+
 **Biden Is Prepping for the First Debate**\
 `Also, an N.H.L. final for the ages. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/06/24/briefing/biden-trump-debate-prep-nhl-final.html
