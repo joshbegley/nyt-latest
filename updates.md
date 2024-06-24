@@ -1,3 +1,7 @@
+**Shaw back in England team training ahead of Slovenia game**\
+`Luke Shaw will train today with his England team-mates ahead of their final European Championship group game against Slovenia tomorrow.`\
+https://nytimes.com/athletic/5586333/2024/06/24/luke-shaw-england-injury-slovenia/
+
 **A win, a clean sheet, but too many chances missed - USMNT need to be more ruthless**\
 `Yes, results matter in tournament soccer but Gregg Berhalter's team can't afford to waste as many chances as they did against Bolivia`\
 https://nytimes.com/athletic/5586102/2024/06/24/usmnt-copa-america-pepi-berhalter/
