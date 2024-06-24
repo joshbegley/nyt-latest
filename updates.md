@@ -1,3 +1,7 @@
+**Taylor Swift Notches a Ninth Week at No. 1 With New CD Versions**\
+`The singer’s latest album, “The Tortured Poets Department,” now has the second-most weeks at No. 1 of any Swift album.`\
+https://nytimes.com/2024/06/24/arts/music/taylor-swift-billboard-poets-nine-weeks.html
+
 **France’s Far-Right Leader Says the National Rally Is Ready to Govern**\
 `If he becomes prime minister after snap elections, Jordan Bardella, the party’s president, said he would represent all. But he also said dual citizens should not hold some “sensitive” jobs.`\
 https://nytimes.com/2024/06/24/world/europe/frances-far-right-leader-says-the-national-rally-is-ready-to-govern.html
