@@ -1,3 +1,7 @@
+**For NHL, Game 7 with Connor McDavid is the biggest TV opportunity in years**\
+`With the game's biggest star and the possibility of a historic comeback, Game 7 could pay dividends for the NHL far beyond Monday night.`\
+https://nytimes.com/athletic/5583833/2024/06/24/nhl-oilers-panthers-game-7-connor-mcdavid-tv-ratings/
+
 **Padres takeaways: Jackson Merrill’s power surge, outfield picture, injury situation**\
 `Merrill is showing an advanced approach amid his power surge, the outfield is performing well above expectation and injury updates.`\
 https://nytimes.com/athletic/5584256/2024/06/24/padres-takeaways-jackson-merrill-home-run-surge/
