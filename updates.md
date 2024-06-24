@@ -1,3 +1,7 @@
+**Man United squad audit: Who should stay and who should go?**\
+`Almost half of United’s first-team squad are set to be out of contract by the end of the campaign - so what should they do?`\
+https://nytimes.com/athletic/5578436/2024/06/24/manchester-united-squad-audit/
+
 **Lionel Messi and Argentina excel at football's hardest skill - keeping it simple**\
 `Victory over Canada in Thursday night's Copa America opener illustrates just how effective they can be`\
 https://nytimes.com/athletic/5583727/2024/06/24/lionel-messi-argentina-copa-america-canada-analysis/
