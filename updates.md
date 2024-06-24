@@ -1,3 +1,7 @@
+**France’s Far-Right Leader Says the National Rally Is Ready to Govern**\
+`If he becomes prime minister after snap elections, Jordan Bardella, the party’s president, said he would represent all. But he also said dual citizens should not hold some “sensitive” jobs.`\
+https://nytimes.com/2024/06/24/world/europe/frances-far-right-leader-says-the-national-rally-is-ready-to-govern.html
+
 **Spacewalk Canceled After Spacesuit Coolant Leak**\
 `NASA canceled a spacewalk at the International Space Station today following a coolant leak in Tracy Dyson’s spacesuit, which started shortly after switching her spacesuit to internal battery power.`\
 https://nytimes.com/video/science/space/100000009536839/spacewalk-canceled.html
