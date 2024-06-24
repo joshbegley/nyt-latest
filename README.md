@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5585387/2024/06/23/usmnt-bolivia-takeaways-christia
 `Savard was announced as the last piece of Craig Berube’s coaching staff on Sunday.`\
 https://nytimes.com/athletic/5585613/2024/06/23/maple-leafs-marc-savard-assistant-coach/
 
-**Rudiger injury 'problematic' for Germany last-16 tie**\
+**Rudiger injury 'problematic' for Germany last-16 game**\
 `Antonio Rudiger could be a doubt for Germany&#8217;s last-16 game at the European Championship with a thigh injury.`\
 https://nytimes.com/athletic/5585631/2024/06/23/antonio-rudiger-injury-germany-last-16/
 
