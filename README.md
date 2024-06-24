@@ -1,3 +1,7 @@
+**France’s Far-Right Leader Says the National Rally Is Ready to Govern**\
+`If he becomes prime minister after snap elections, Jordan Bardella, the party’s president, said he would represent all. But he also said dual citizens should not hold some “sensitive” jobs.`\
+https://nytimes.com/2024/06/24/world/europe/frances-far-right-leader-says-the-national-rally-is-ready-to-govern.html
+
 **Spacewalk Canceled After Spacesuit Coolant Leak**\
 `NASA canceled a spacewalk at the International Space Station today following a coolant leak in Tracy Dyson’s spacesuit, which started shortly after switching her spacesuit to internal battery power.`\
 https://nytimes.com/video/science/space/100000009536839/spacewalk-canceled.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/24/us/julio-foolio-rapper-shot.html
 **Biden Condemns Protest Outside Los Angeles Synagogue as Antisemitic**\
 `After a clash between pro-Palestinian and pro-Israel demonstrators turned violent over the weekend, leaders said such protests outside houses of worship were unacceptable.`\
 https://nytimes.com/2024/06/24/us/synogogue-protest-los-angeles-biden.html
-
-**Araujo blames heat and dehydration for substitution in Uruguay Copa America win**\
-`Uruguay defender Ronald Araujo explained he was substituted at half time during his side&#8217;s Copa America group stage opener against Panama due to the heat and dehydration.`\
-https://nytimes.com/athletic/5587222/2024/06/24/ronald-araujo-copa-america-uruguay/
 
