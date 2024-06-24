@@ -1,3 +1,7 @@
+**The Voters Watching the Debate With a Hand Over Their Eyes**\
+`“This is the most apprehensive I’ve felt about a presidential debate,” said one voter who usually supports Democrats. “I sense a disaster in the making where neither will look presidential.”`\
+https://nytimes.com/2024/06/24/us/politics/biden-trump-debate-voters-democrats.html
+
 **NASCAR expected to make multiple changes to 2025 playoff schedule**\
 `Three tracks are on the way out as Darlington is expected to return to the playoff rotation along with two other new tracks, sources say.`\
 https://nytimes.com/athletic/5587380/2024/06/24/nascar-2025-playoff-schedule-changes/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/24/insider/new-york-times-fact-checks-candidates.htm
 **2 Candidates. No Audience. 29 New York Times Fact-Checkers.**\
 `We’ll have 60 Times reporters. Here’s how we plan to cover the presidential debate.`\
 https://nytimes.com/2024/06/24/insider/trump-biden-debate-new-york-times-coverage.html
-
-**MLS attendance up 12 percent: Which teams are up the most**\
-`Attendance at MLS matches is up 12% compared to data up to the same date in 2023, the league announced on Monday.`\
-https://nytimes.com/athletic/5587245/2024/06/24/mls-attendance-rise/
 
