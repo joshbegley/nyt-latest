@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5585631/2024/06/23/antonio-rudiger-injury-germany-l
 https://nytimes.com/athletic/5585566/2024/06/23/cubs-ryne-sandberg-statue-wrigley/
 
 **No Apparent Motive in Arkansas Shooting, but the Reaction Is ‘So Personal’**\
-`The shooting that killed four and injured 10 at a grocery store in a town of 3,400 appeared to be a “completely random, senseless act,” the police said on Sunday.`\
+`The shooting in which a gunman killed four and injured 10 at a grocery store in a town of 3,400 appeared to be a “completely random, senseless act,” the police said Sunday.`\
 https://nytimes.com/2024/06/23/us/fordyce-arkansas-shooting-grocery-store.html
 
 **Why Bragg Dropped Charges Against Most Columbia Student Protesters**\
