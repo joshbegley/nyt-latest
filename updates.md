@@ -1,3 +1,7 @@
+**Louisiana Parents Sue to Block Display of Ten Commandments in Schools**\
+`A law enacted last week requires the display of the commandments in every public classroom. The parents argued it “pressures students into religious observance.”`\
+https://nytimes.com/2024/06/24/us/louisiana-parents-ten-commandments.html
+
 **F1 of the Water? Yachts Race at the Statue of Liberty.**\
 `Thousands of spectators turned out over the weekend for SailGP, which brought a high-speed competition, and lots of champagne, to the New York Harbor.`\
 https://nytimes.com/2024/06/24/style/nyc-sail-grand-pix-formula-1.html
