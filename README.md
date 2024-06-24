@@ -1,3 +1,7 @@
+**Biden Condemns Protest Outside Los Angeles Synagogue as Antisemitic**\
+`After a clash between pro-Palestinian and pro-Israel demonstrators turned violent over the weekend, leaders said such protests outside houses of worship were unacceptable.`\
+https://nytimes.com/2024/06/24/us/synogogue-protest-los-angeles-biden.html
+
 **Araujo blames heat and dehydration for substitution in Uruguay Copa America win**\
 `Uruguay defender Ronald Araujo explained he was substituted at half time during his side&#8217;s Copa America group stage opener against Panama due to the heat and dehydration.`\
 https://nytimes.com/athletic/5587222/2024/06/24/ronald-araujo-copa-america-uruguay/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5586867/2024/06/24/bulls-nba-draft-history-no-11/
 **Virginia Woolf, but Make It a Polyphonic, Sensory Ballet**\
 `American Ballet Theater brings Wayne McGregor’s “Woolf Works,” which evokes elements of three novels and the writer’s biography, to New York.`\
 https://nytimes.com/2024/06/24/arts/dance/woolf-works-abt.html
-
-**Charli XCX’s ‘Brat’ Breakthrough**\
-`The pop songwriter’s sixth album is in some ways her most daring release yet. Improbably, it also yielded her best opening week.`\
-https://nytimes.com/2024/06/24/arts/music/popcast-charli-xcx-brat.html
 
