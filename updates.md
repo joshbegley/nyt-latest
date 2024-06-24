@@ -1,3 +1,7 @@
+**The Dobbs anniversary and the first debate will bookend this week.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/06/24/us/biden-trump-election-debate/the-dobbs-anniversary-and-the-first-debate-will-bookend-this-week
+
 **How Many Abortion Seekers Are Traveling to California**\
 `After the Supreme Court overturned Roe v. Wade and some states banned abortions altogether, many Americans began crossing state lines to get one.`\
 https://nytimes.com/2024/06/24/us/abortion-seekers-california.html
