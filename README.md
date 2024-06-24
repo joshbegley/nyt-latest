@@ -1,3 +1,7 @@
+**In Greece, Another Tourist Found Dead Amid Scorching Heat Wave**\
+`At least 10 foreign tourists have gone missing or been found dead this year in Greece after going for a hike, often in scorching temperatures.`\
+https://nytimes.com/2024/06/24/world/europe/greece-heat-tourist-deaths.html
+
 **Rapper Known as Julio Foolio Is Fatally Shot in Florida**\
 `The rapper, whose real name is Charles Jones, 26, had been celebrating his birthday at events that he had announced on social media.`\
 https://nytimes.com/2024/06/24/us/julio-foolio-rapper-shot.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5587289/2024/06/24/slovenia-england-team-news-sesko
 **How often do NBA lottery picks hit? Plus, Cavaliers hire Kenny Atkinson as head coach**\
 `Zach Harper and Shams Charania catch you up on leaguewide news.`\
 https://nytimes.com/athletic/5587185/2024/06/24/nba-draft-cavaliers-kenny-atkinson-the-bounce/
-
-**History shows Bulls have options at No. 11 of NBA Draft**\
-`Is this a weak draft? There have been some good players selected 10-20 in the last 10 years.`\
-https://nytimes.com/athletic/5586867/2024/06/24/bulls-nba-draft-history-no-11/
 
