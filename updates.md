@@ -1,3 +1,15 @@
+**A Global Push Fixed the Ozone Hole. Satellites Could Threaten It.**\
+`A sharp increase in hardware orbiting Earth could mean more harmful metals lingering in the atmosphere, according to a new study.`\
+https://nytimes.com/2024/06/24/climate/ozone-satellites.html
+
+**Do You Know Where These Classic Novels Are Set?**\
+`Summer is here! Try this short quiz about books that happen to be set in popular vacation destinations.`\
+https://nytimes.com/interactive/2024/06/24/books/review/novels-travel-locations.html
+
+**An Israeli strike kills the coordinator of ambulance services in Gaza, health officials say.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/06/24/world/israel-gaza-war-hamas/an-israeli-strike-kills-the-coordinator-of-ambulance-services-in-gaza-health-officials-say
+
 **Supreme Court Will Hear Challenge to Tennessee Law Banning Transition Care for Minors**\
 `The state law bans health care providers from offering gender transition care to children.`\
 https://nytimes.com/2024/06/24/us/politics/supreme-court-transgender-care-tennessee.html
