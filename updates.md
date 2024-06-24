@@ -1,3 +1,7 @@
+**Israeli Strike Kills Health Official, Gazans Say, as Gallant Visits U.S.**\
+`Israel’s defense minister, Yoav Gallant, was meeting with the C.I.A. director and the secretary of state on Monday as Israel signaled a potential shift in its military campaign in Gaza.`\
+https://nytimes.com/2024/06/24/world/middleeast/israeli-strike-gallant-us.html
+
 **Will the Debate Be ‘Rah-Rah’ or ‘Ruh-Roh?’**\
 `I asked how you’re feeling about the debate. Hundreds of you responded with worries and hopes.`\
 https://nytimes.com/2024/06/24/us/politics/trump-biden-presidential-debate.html

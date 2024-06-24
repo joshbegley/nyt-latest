@@ -1,3 +1,7 @@
+**Israeli Strike Kills Health Official, Gazans Say, as Gallant Visits U.S.**\
+`Israel’s defense minister, Yoav Gallant, was meeting with the C.I.A. director and the secretary of state on Monday as Israel signaled a potential shift in its military campaign in Gaza.`\
+https://nytimes.com/2024/06/24/world/middleeast/israeli-strike-gallant-us.html
+
 **Will the Debate Be ‘Rah-Rah’ or ‘Ruh-Roh?’**\
 `I asked how you’re feeling about the debate. Hundreds of you responded with worries and hopes.`\
 https://nytimes.com/2024/06/24/us/politics/trump-biden-presidential-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/24/us/biden-trump-election-debate/thousands-of-
 **F1 of the Water? Yachts Race at the Statue of Liberty.**\
 `Thousands of spectators turned out over the weekend for SailGP, which brought a high-speed competition, and lots of champagne, to the New York Harbor.`\
 https://nytimes.com/2024/06/24/style/nyc-sail-grand-pix-formula-1.html
-
-**More Than 1,300 Die During Extremely Hot Hajj Pilgrimage**\
-`A Saudi official said most of the deaths involved unregistered pilgrims who lacked access to certain amenities available to those with permits, such as air-conditioned buses and tents.`\
-https://nytimes.com/video/world/middleeast/100000009537512/hajj-pilgrims-deaths-saudi-arabia.html
 
