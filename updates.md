@@ -1,3 +1,9 @@
+**Yoav Gallant plans to meet with the secretary of state and other top U.S. officials this week.**\
+`By Mike Ives`\
+https://nytimes.com/live/2024/06/24/world/israel-gaza-war-hamas/yoav-gallant-plans-to-meet-with-the-secretary-of-state-and-other-top-us-officials-this-week
+
+**Israeli jets hit an UNRWA compound near Gaza City, and other news.**\
+
 **What to Know About Jamaal Bowman’s Bitter Democratic Primary Race**\
 `Mr. Bowman faces George Latimer in a House primary in New York that will test the party’s views on Israel and the strength of its left-wing faction.`\
 https://nytimes.com/2024/06/24/nyregion/bowman-latimer-primary.html
