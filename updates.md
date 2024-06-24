@@ -1,3 +1,11 @@
+**They Came to See Trump. First They Heard a Pitch to Buy Gold and Silver.**\
+`At a recent campaign speech, one of Donald Trump’s warm-up acts was a precious metals salesman being sued by federal regulators for fraud.`\
+https://nytimes.com/2024/06/24/us/they-came-to-see-trump-first-they-heard-a-pitch-to-buy-gold-and-silver.html
+
+**‘The Lion King’ at 30: Jason Weaver Sang for Simba but Few Knew It**\
+`The actor was playing a young Michael Jackson when Elton John spotted him. Three decades later, the new attention to his legacy is “gratifying.”`\
+https://nytimes.com/2024/06/24/movies/lion-king-simba-jason-weaver.html
+
 **What Works for Golf Works for Life**\
 `In the long run, consistency and skill tend to win out over luck.`\
 https://nytimes.com/2024/06/24/opinion/golf-mark-broadie-mcilroy.html
