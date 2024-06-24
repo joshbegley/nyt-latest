@@ -1,3 +1,7 @@
+**Breaking down what Harry Kane did on and off the ball for England - and what needs to change**\
+`Kane is a great goalscorer but also superb at dropping deep – England must find a way to build their attack round both of his specialisms`\
+https://nytimes.com/athletic/5582902/2024/06/24/alan-shearer-harry-kane-euro-2024-analysis/
+
 **What’s on TV This Week: The Presidential Debate and CMA Fest**\
 `President Joe Biden and former President Donald J. Trump debate for the first time this campaign cycle. Country artists perform their hit songs.`\
 https://nytimes.com/2024/06/24/arts/television/whats-on-tv-this-week-the-presidential-debate-and-cma-fest.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5581527/2024/06/24/chelsea-villa-everton-newcastle-
 **Marcelo Bielsa: Brilliant, brutal, bewildering... and back with Uruguay**\
 `The ex-Leeds United manager has transformed Uruguay into Copa America contenders - just don't expect anything conventional`\
 https://nytimes.com/athletic/5585686/2024/06/24/marcelo-bielsa-uruguay-copa-america-leeds/
-
-**Pepe is Portugal’s ageless wonder - and older than a third of the nations at Euro 2024**\
-`Pepe was Portugal's future once. He’s still the present. Good luck telling him that he’s the past`\
-https://nytimes.com/athletic/5584123/2024/06/24/pepe-portugal-euro-2024/
 
