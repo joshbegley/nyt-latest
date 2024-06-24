@@ -1,3 +1,7 @@
+**Quincy Wilson, 16, qualifies for 400m final**\
+`Wilson's weekend started with a time of 44.66 on Friday night in round one, which broke Darrell Robinson's 42-year-old high school record.`\
+https://nytimes.com/athletic/5585885/2024/06/23/quincy-wilson-400-meter-olympic-trials-teenager/
+
 **Mets' Díaz ejected for sticky stuff, will face automatic 10-game suspension**\
 `Díaz recently returned from the injured list with improved results`\
 https://nytimes.com/athletic/5585909/2024/06/23/mets-edwin-diaz-ejected-sticky-stuff/
