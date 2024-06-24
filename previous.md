@@ -1,3 +1,11 @@
+**La inteligencia artificial mejora rápidamente. ¿Puedes distinguir lo que es real?**\
+`Pon a prueba tus habilidades en este test.`\
+https://nytimes.com/interactive/2024/06/24/technology/test-imagenes-falsas-IA-midjourney-facebook.html
+
+**Raptors' Barnes to sign 5-year max rookie extension**\
+`The Raptors' top selection in the 2021 NBA Draft, Barnes has emerged as a cornerstone of Toronto's future.`\
+https://nytimes.com/athletic/5587360/2024/06/24/scottie-barnes-extension-raptors-history-nba/
+
 **Frederick Crews, Withering Critic of Freud’s Legacy, Dies at 91**\
 `A literary critic, essayist and author, he was a leading voice among revisionist skeptics who saw Freud as a charlatan and psychoanalysis as a pseudoscience.`\
 https://nytimes.com/2024/06/24/books/frederick-crews-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5587771/2024/06/24/england-gareth-southgate-gary-li
 **Why Do We Love ‘The Bear’ So Much?**\
 `The grit, the merch, the biceps. Charting the cultural phenomenon that sparked new interest in the people behind the scenes at restaurants — or at least, in their stuff.`\
 https://nytimes.com/2024/06/24/dining/the-bear-season-3.html
-
-**They Came to See Trump. First They Heard a Pitch to Buy Gold and Silver.**\
-`At a recent campaign speech, one of Donald Trump’s warm-up acts was a precious metals salesman being sued by federal regulators for fraud.`\
-https://nytimes.com/2024/06/24/us/they-came-to-see-trump-first-they-heard-a-pitch-to-buy-gold-and-silver.html
-
-**‘The Lion King’ at 30: Jason Weaver Sang for Simba but Few Knew It**\
-`The actor was playing a young Michael Jackson when Elton John spotted him. Three decades later, the new attention to his legacy is “gratifying.”`\
-https://nytimes.com/2024/06/24/movies/lion-king-simba-jason-weaver.html
 

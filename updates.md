@@ -1,3 +1,11 @@
+**La inteligencia artificial mejora rápidamente. ¿Puedes distinguir lo que es real?**\
+`Pon a prueba tus habilidades en este test.`\
+https://nytimes.com/interactive/2024/06/24/technology/test-imagenes-falsas-IA-midjourney-facebook.html
+
+**Raptors' Barnes to sign 5-year max rookie extension**\
+`The Raptors' top selection in the 2021 NBA Draft, Barnes has emerged as a cornerstone of Toronto's future.`\
+https://nytimes.com/athletic/5587360/2024/06/24/scottie-barnes-extension-raptors-history-nba/
+
 **Frederick Crews, Withering Critic of Freud’s Legacy, Dies at 91**\
 `A literary critic, essayist and author, he was a leading voice among revisionist skeptics who saw Freud as a charlatan and psychoanalysis as a pseudoscience.`\
 https://nytimes.com/2024/06/24/books/frederick-crews-dead.html
