@@ -1,3 +1,7 @@
+**Biden Condemns Protest Outside Los Angeles Synagogue as Antisemitic**\
+`After a clash between pro-Palestinian and pro-Israel demonstrators turned violent over the weekend, leaders said such protests outside houses of worship were unacceptable.`\
+https://nytimes.com/2024/06/24/us/synogogue-protest-los-angeles-biden.html
+
 **Araujo blames heat and dehydration for substitution in Uruguay Copa America win**\
 `Uruguay defender Ronald Araujo explained he was substituted at half time during his side&#8217;s Copa America group stage opener against Panama due to the heat and dehydration.`\
 https://nytimes.com/athletic/5587222/2024/06/24/ronald-araujo-copa-america-uruguay/
