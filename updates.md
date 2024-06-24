@@ -1,3 +1,7 @@
+**San Francisco Giants week in review: The loss of a legend and on-field losses pile up**\
+`The week had a somber tone with the passing of Willie Mays, and the team also struggled to execute well on the field.`\
+https://nytimes.com/athletic/5571688/2024/06/24/sf-giants-week-review-willie-mays-tribute-losing-streak/
+
 **Supreme Court Will Hear Challenge to Tennessee Law Banning Transition Care for Minors**\
 `The move comes as states around the country have pushed to curtail transgender rights.`\
 https://nytimes.com/2024/06/24/us/politics/supreme-court-transgender-care-tennessee.html
