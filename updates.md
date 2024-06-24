@@ -1,3 +1,11 @@
+**Apple’s European Headache**\
+`The iPhone maker is the first U.S. tech giant charged with breaching the European Union’s Digital Markets Act, potentially exposing it to huge fines.`\
+https://nytimes.com/2024/06/24/business/dealbook/apple-europe-antitrust-dma.html
+
+**NBA Draft Confidential: Coaches, executives, scouts on Zaccharie Risacher and top forward prospects**\
+`Having multi-dimensional wings who can handle, shoot, facilitate and score and who can switch and defend is a must for NBA title contenders.`\
+https://nytimes.com/athletic/5582670/2024/06/24/nba-draft-confidential-2024-forwards/
+
 **For NHL, Game 7 with Connor McDavid is the biggest TV opportunity in years**\
 `With the game's biggest star and the possibility of a historic comeback, Game 7 could pay dividends for the NHL far beyond Monday night.`\
 https://nytimes.com/athletic/5583833/2024/06/24/nhl-oilers-panthers-game-7-connor-mcdavid-tv-ratings/
