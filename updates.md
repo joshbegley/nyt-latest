@@ -1,3 +1,7 @@
+**'Grooving and smooth': Pablo López looks like himself after helpful bullpen session**\
+`After simplifying things earlier in the week, López pitched eight scoreless innings with 14 strikeouts on Sunday against the A's. `\
+https://nytimes.com/athletic/5585677/2024/06/23/twins-pablo-lopez-grooving-smooth/
+
 **Rudiger injury 'problematic' for Germany last-16 game**\
 `Antonio Rudiger could be a doubt for Germany&#8217;s last-16 game at the European Championship with a thigh injury.`\
 https://nytimes.com/athletic/5585631/2024/06/23/antonio-rudiger-injury-germany-last-16/
