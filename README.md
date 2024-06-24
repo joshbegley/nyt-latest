@@ -1,3 +1,7 @@
+**Takeaways from Uruguay 3-1 Panama: Marcelo Bielsa's side shows their quality**\
+`Bielsa-ball comes to Copa America `\
+https://nytimes.com/athletic/5585471/2024/06/23/uruguay-panama-copa-america/
+
 **Quincy Wilson, 16, qualifies for 400m final**\
 `Wilson's weekend started with a time of 44.66 on Friday night in round one, which broke Darrell Robinson's 42-year-old high school record.`\
 https://nytimes.com/athletic/5585885/2024/06/23/quincy-wilson-400-meter-olympic-trials-teenager/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5585671/2024/06/23/angel-reese-sky-caitlin-clark-gr
 **Future U.S. track trials could be moved from Hayward Field**\
 `Considering the 2028 Games are in Los Angeles, having the trials there in California could make a ton of sense.`\
 https://nytimes.com/athletic/5585766/2024/06/23/track-field-olympic-trials-hayward-field-los-angeles/
-
-**Vols show heart, elevate heart rates, force Aggies into a finale for the national title**\
-`Tennessee will turn again to perhaps the best individual story of its season, senior lefty Zander Sechrist, in Game 3 of the CWS.`\
-https://nytimes.com/athletic/5585350/2024/06/23/tennessee-texas-am-cws-national-championship/
 
