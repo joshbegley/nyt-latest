@@ -1,4 +1,8 @@
 **More Than 1,300 Die During Extremely Hot Hajj Pilgrimage**\
+`A Saudi official said most of the deaths involved unregistered pilgrims who lacked access to certain amenities available to those with permits, such as air-conditioned buses and tents.`\
+https://nytimes.com/video/world/middleeast/100000009537512/hajj-pilgrims-deaths-saudi-arabia.html
+
+**More Than 1,300 Die During Extremely Hot Hajj Pilgrimage**\
 `A Saudi official said most of the deaths involved unregistered pilgrims who lacked assess to certain amenities available to those with permits, such as air-conditioned buses and tents.`\
 https://nytimes.com/video/world/middleeast/100000009537512/hajj-pilgrims-deaths-saudi-arabia.html
 
