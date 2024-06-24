@@ -1,3 +1,7 @@
+**The Athletic FC: No Pulisic, no party; Mbappe and political football in France**\
+`Today in The Athletic FC: Pulisic shows why he's USMNT poster boy with clever corner. Plus: Mbappe and Co wade into French politics.`\
+https://nytimes.com/athletic/5586360/2024/06/24/pulisic-bolivia-usmnt-corner-routine/
+
 **Gallagher set to replace Alexander-Arnold for Slovenia game**\
 `England manager Gareth Southgate is set to make a change to his midfield for Tuesday’s final group game at Euro 2024 by bringing in Conor Gallagher for Trent Alexander-Arnold.`\
 https://nytimes.com/athletic/5584013/2024/06/24/gallagher-alexander-arnold-england-team-news/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5586446/2024/06/24/arsenal-hein-contract-sign/
 **Broncos disastrous defensive start doomed 2023 season. Here's they should be better**\
 `Linebacker Alex Singleton said the defense knows it must be a more reliable unit, especially while supporting an inexperienced starting QB.`\
 https://nytimes.com/athletic/5584642/2024/06/24/denver-broncos-defense-improvements-alex-singleton/
-
-**Cheer up, England - there are good reasons to be optimistic**\
-`Guehi's form, a kind draw, players unburdened by past failures... things could be a lot worse for England`\
-https://nytimes.com/athletic/5586271/2024/06/24/england-euro-2024-reasons-cheerful/
 
