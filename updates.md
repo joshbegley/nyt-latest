@@ -1,3 +1,7 @@
+**Simone Manuel closes swim trials with surprise 50m free win**\
+`“I spent a lot of time watching races where I won. I really wanted to channel that Simone, because I know I’m a winner,” Manuel said.`\
+https://nytimes.com/athletic/5585702/2024/06/23/simone-manuel-50-meter-freestyle-olympic-trials/
+
 **Cubs honor Hall of Famer Ryne Sandberg, unveil statue outside Wrigley Field**\
 `On the 40th anniversary of the "Sandberg Game," he was immortalized in bronze with former Cubs' legends Jenkins, Banks, Santo and Williams.`\
 https://nytimes.com/athletic/5585566/2024/06/23/cubs-ryne-sandberg-statue-wrigley/

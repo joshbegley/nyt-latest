@@ -1,3 +1,7 @@
+**Simone Manuel closes swim trials with surprise 50m free win**\
+`“I spent a lot of time watching races where I won. I really wanted to channel that Simone, because I know I’m a winner,” Manuel said.`\
+https://nytimes.com/athletic/5585702/2024/06/23/simone-manuel-50-meter-freestyle-olympic-trials/
+
 **'Grooving and smooth': Pablo López looks like himself after helpful bullpen session**\
 `After simplifying things earlier in the week, López pitched eight scoreless innings with 14 strikeouts on Sunday against the A's. `\
 https://nytimes.com/athletic/5585677/2024/06/23/twins-pablo-lopez-grooving-smooth/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5585467/2024/06/23/amy-yang-wins-kpmg-womens-pga-ch
 **Angel Reese dominates as Sky top Fever, Caitlin Clark**\
 `Reese finished the Sky’s 88-87 victory with a career-high 25 points. She added 16 rebounds, recording her eighth consecutive double-double.`\
 https://nytimes.com/athletic/5585512/2024/06/23/angel-reese-caitlin-clark-fever-sky/
-
-**Older adults in Philadelphia look for help staying cool.**\
-`By Jon Hurdle and Isabelle Taft`\
-https://nytimes.com/live/2024/06/23/us/heat-wave-news/older-adults-in-philadelphia-look-for-help-staying-cool
 
