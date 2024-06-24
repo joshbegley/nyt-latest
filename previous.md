@@ -1,3 +1,11 @@
+**The Promise of Weight-Loss Drugs**\
+`Where these drugs might take us — and what that means for medicine.`\
+https://nytimes.com/2024/06/24/briefing/ozempic-weight-loss-drugs.html
+
+**Steven Kwan's rise from pinball wizard to the Guardians' humble hitting savant**\
+`Kwan rivals the league’s luminaries on every leaderboard, but you wouldn't know it from his grounded attitude. He's just Steven.`\
+https://nytimes.com/athletic/5583940/2024/06/24/guardians-steven-kwan-pinball-hitting-success/
+
 **Three Astros takeaways: Making the lineup more athletic, finding a fifth starter and more**\
 `Plus, how losing Framber Valdez's personal catcher for an extended period will affect the team.`\
 https://nytimes.com/athletic/5585499/2024/06/24/astros-lineup-athleticism-jake-bloss-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/24/podcasts/the-daily/myanmar-civil-war.html
 **Biden Attacks Trump on Abortion, and an Illicit Hajj Industry**\
 `Plus, the soaring costs of caring for pets.`\
 https://nytimes.com/2024/06/24/podcasts/biden-abortion-hajj-industry.html
-
-**Is Theo Bair the answer to Canada's scoring troubles under Jesse Marsch?**\
-`Canada has struggled to convert scoring chances under Jesse Marsch so far, but Bair is getting his career back on track at a good time`\
-https://nytimes.com/athletic/5585568/2024/06/24/cananda-theo-bair-copa-america/
-
-**The Connections Companion No. 380, June 25, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/06/24/crosswords/connections-companion-380.html
 

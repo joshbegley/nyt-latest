@@ -1,3 +1,11 @@
+**The Promise of Weight-Loss Drugs**\
+`Where these drugs might take us — and what that means for medicine.`\
+https://nytimes.com/2024/06/24/briefing/ozempic-weight-loss-drugs.html
+
+**Steven Kwan's rise from pinball wizard to the Guardians' humble hitting savant**\
+`Kwan rivals the league’s luminaries on every leaderboard, but you wouldn't know it from his grounded attitude. He's just Steven.`\
+https://nytimes.com/athletic/5583940/2024/06/24/guardians-steven-kwan-pinball-hitting-success/
+
 **Three Astros takeaways: Making the lineup more athletic, finding a fifth starter and more**\
 `Plus, how losing Framber Valdez's personal catcher for an extended period will affect the team.`\
 https://nytimes.com/athletic/5585499/2024/06/24/astros-lineup-athleticism-jake-bloss-injury/
