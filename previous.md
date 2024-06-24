@@ -1,3 +1,7 @@
+**More Than 1,000 Hajj Pilgrims Died. Here’s What to Know.**\
+`The number of deaths during the annual Islamic pilgrimage raised questions about Saudi Arabia’s preparations for intense heat and unregistered participants.`\
+https://nytimes.com/2024/06/24/world/europe/hajj-mecca-explainer.html
+
 **UEFA insists 'no delay' in treatment of Varga after head injury**\
 `UEFA insists there was &#8220;no delay&#8221; in the medical treatment of Barnabas Varga after the Hungary forward sustained a head injury during the Euro 2024 match on Sunday.`\
 https://nytimes.com/athletic/5586966/2024/06/24/barnabas-varga-injury-hungary-scotland-treatment/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5586922/2024/06/24/ed-policy-packers-president-mark
 **Ten overpriced NHL contracts teams could trade this offseason**\
 `As teams look to clear salary or give players a fresh start this summer, these undesirable contracts are worth keeping an eye on.`\
 https://nytimes.com/athletic/5585422/2024/06/24/nhl-contracts-teams-trade-offseason/
-
-**San Francisco Giants week in review: The loss of a legend and on-field losses pile up**\
-`The week had a somber tone with the passing of Willie Mays, and the team also struggled to execute well on the field.`\
-https://nytimes.com/athletic/5571688/2024/06/24/sf-giants-week-review-willie-mays-tribute-losing-streak/
 

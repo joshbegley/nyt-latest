@@ -1,3 +1,7 @@
+**More Than 1,000 Hajj Pilgrims Died. Here’s What to Know.**\
+`The number of deaths during the annual Islamic pilgrimage raised questions about Saudi Arabia’s preparations for intense heat and unregistered participants.`\
+https://nytimes.com/2024/06/24/world/europe/hajj-mecca-explainer.html
+
 **UEFA insists 'no delay' in treatment of Varga after head injury**\
 `UEFA insists there was &#8220;no delay&#8221; in the medical treatment of Barnabas Varga after the Hungary forward sustained a head injury during the Euro 2024 match on Sunday.`\
 https://nytimes.com/athletic/5586966/2024/06/24/barnabas-varga-injury-hungary-scotland-treatment/
