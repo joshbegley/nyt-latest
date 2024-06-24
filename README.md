@@ -1,3 +1,7 @@
+**Death Toll in Attack in Southern Russia Rises to 19, Officials Say**\
+`The attack in Dagestan targeted synagogues and Orthodox churches. Russian investigators called it an act of terrorism, but it was not immediately clear who was responsible.`\
+https://nytimes.com/2024/06/24/world/europe/russia-attack-dagestan.html
+
 **Dissident Rapper’s Death Sentence Overturned in Iran, His Lawyer Says**\
 `Toomaj Salehi had been sentenced to death in April after releasing music in support of antigovernment demonstrations two years ago.`\
 https://nytimes.com/2024/06/24/world/middleeast/iran-rapper-toomaj-salehi.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5586002/2024/06/24/usmnt-transfers-mckennie-reyna/
 **Three Astros takeaways: Making the lineup more athletic, finding a fifth starter and more**\
 `Plus, how losing Framber Valdez's personal catcher for an extended period will affect the team.`\
 https://nytimes.com/athletic/5585499/2024/06/24/astros-lineup-athleticism-jake-bloss-injury/
-
-**What I'm hearing about McGroarty, Ehlers and the Jets as draft week begins**\
-`The Jets can't seem to approach an offseason without at least a little bit of player uncertainty.`\
-https://nytimes.com/athletic/5584979/2024/06/24/rutger-mcgroarty-nikolaj-ehlers-winnipeg-jets/
 
