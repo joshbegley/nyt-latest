@@ -1,3 +1,11 @@
+**Methodology: How The Times Calculates 2024 Polling Averages**\
+`An average of surveys may sound straightforward, but even a simple approach faces a series of choices.`\
+https://nytimes.com/article/election-polling-averages-methodology.html
+
+**Election 2024 Polls: Biden vs. Trump**\
+`Our polling averages track the latest trends in the presidential race, using data from national and battleground state polls.`\
+https://nytimes.com/interactive/2024/us/elections/polls-president.html
+
 **Judge Skeptical About Request to Limit Trump Statements on F.B.I.**\
 `Judge Aileen Cannon posed tough questions to prosecutors who want to bar the former president from making inflammatory remarks about the agents who searched Mar-a-Lago in the documents case.`\
 https://nytimes.com/2024/06/24/us/politics/trump-classified-documents-statements-fbi.html

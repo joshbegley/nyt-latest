@@ -1,3 +1,11 @@
+**Methodology: How The Times Calculates 2024 Polling Averages**\
+`An average of surveys may sound straightforward, but even a simple approach faces a series of choices.`\
+https://nytimes.com/article/election-polling-averages-methodology.html
+
+**Election 2024 Polls: Biden vs. Trump**\
+`Our polling averages track the latest trends in the presidential race, using data from national and battleground state polls.`\
+https://nytimes.com/interactive/2024/us/elections/polls-president.html
+
 **A Timeline of Julian Assange’s Legal Saga**\
 `A plea deal brought an abrupt end to an extraordinary legal saga that has raised novel issues of national security, press freedoms, politics and diplomacy.`\
 https://nytimes.com/2024/06/24/us/julian-assange-wikileaks-timeline.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/24/briefing/biden-trump-debate-prep-nhl-final.html
 **Attacks in Russia’s Dagestan Region: What to Know**\
 `Gunmen killed at least 20 people in attacks in two Dagestan cities. No suspects or motives have been identified, but the region has long been rocked by ethnic and religious violence.`\
 https://nytimes.com/2024/06/24/world/europe/russia-dagestan-attacks-what-to-know.html
-
-**Covid Changed Everything, Including How We Cover the Bird Flu**\
-`The Times’s science and global health reporter shared how the pandemic shaped her current reporting on viruses, including bird flu, which is seeing an uptick in cases.`\
-https://nytimes.com/2024/06/24/insider/covid-bird-flu-pandemic.html
-
-**Louisiana Parents Sue to Block Display of Ten Commandments in Schools**\
-`A law enacted last week requires the display of the commandments in every public classroom. The parents argued it “pressures students into religious observance.”`\
-https://nytimes.com/2024/06/24/us/louisiana-ten-commandments-lawsuit.html
 
