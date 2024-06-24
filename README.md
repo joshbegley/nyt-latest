@@ -1,3 +1,7 @@
+**Oilers at Panthers Stanley Cup Final Game 7 odds, expert picks: Winner take all**\
+`Will the Oilers make fresh history on Monday night with a comeback from a 3-0 hole, or will the Panthers salvage their Stanley Cup Final?`\
+https://nytimes.com/athletic/5583598/2024/06/24/oilers-panthers-stanley-cup-final-game-7-odds-picks/
+
 **Noah Lyles wins men's 100m at U.S. Olympic track trials**\
 `Lyles posted a lifetime best in Sunday’s final, running the 100 in 9.83 seconds in the marquee event of Day 3 at the trials.`\
 https://nytimes.com/athletic/5585956/2024/06/23/noah-lyles-mens-100-meter-olympic-trials/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/23/arts/television/gabbi-tuft-trans-wrestler-return.
 **Giants notes: The rotation is in shambles, but Blake Snell isn't ready to provide aid**\
 `Along with Robbie Ray and LaMonte Wade Jr., Snell played for the River Cats on Sunday. He couldn't make it out of the second inning.`\
 https://nytimes.com/athletic/5585760/2024/06/23/sf-giants-rotation-blake-snell-robbie-ray/
-
-**Greenberg: Angel Reese walks the walk in Sky's rivalry win over Caitlin Clark, Fever**\
-`On the 40th anniversary of the Ryne Sandberg Game on the North Side, Chicago got the Angel Reese Game in the South Loop.`\
-https://nytimes.com/athletic/5585671/2024/06/23/angel-reese-sky-caitlin-clark-greenberg/
 
