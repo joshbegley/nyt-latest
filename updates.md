@@ -1,3 +1,7 @@
+**Takeaways from Uruguay 3-1 Panama: Marcelo Bielsa's side shows their quality**\
+`Bielsa-ball comes to Copa America `\
+https://nytimes.com/athletic/5585471/2024/06/23/uruguay-panama-copa-america/
+
 **France, racial politics and why 'the Mbappe effect' is shaping a bitter election**\
 `France is divided ahead of a seismic vote, with the far right on the rise. Now its football team have entered the debate`\
 https://nytimes.com/athletic/5584608/2024/06/24/france-kylian-mbappe-election-euro-2024/
