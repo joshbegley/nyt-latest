@@ -1,3 +1,11 @@
+**What should we expect from the Hurricanes during a busy draft week?**\
+`Here are five things to watch from the Hurricanes as attention turns to Las Vegas.`\
+https://nytimes.com/athletic/5586014/2024/06/24/nhl-draft-hurricanes-tulsky/
+
+**Packers name Ed Policy as franchise's next president**\
+`Policy, currently the chief operating officer and general counsel, was unanimously approved by Green Bay's board of directors.`\
+https://nytimes.com/athletic/5586922/2024/06/24/ed-policy-packers-president-mark-murphy/
+
 **Ten overpriced NHL contracts teams could trade this offseason**\
 `As teams look to clear salary or give players a fresh start this summer, these undesirable contracts are worth keeping an eye on.`\
 https://nytimes.com/athletic/5585422/2024/06/24/nhl-contracts-teams-trade-offseason/

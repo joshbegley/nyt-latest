@@ -1,3 +1,11 @@
+**What should we expect from the Hurricanes during a busy draft week?**\
+`Here are five things to watch from the Hurricanes as attention turns to Las Vegas.`\
+https://nytimes.com/athletic/5586014/2024/06/24/nhl-draft-hurricanes-tulsky/
+
+**Packers name Ed Policy as franchise's next president**\
+`Policy, currently the chief operating officer and general counsel, was unanimously approved by Green Bay's board of directors.`\
+https://nytimes.com/athletic/5586922/2024/06/24/ed-policy-packers-president-mark-murphy/
+
 **Ten overpriced NHL contracts teams could trade this offseason**\
 `As teams look to clear salary or give players a fresh start this summer, these undesirable contracts are worth keeping an eye on.`\
 https://nytimes.com/athletic/5585422/2024/06/24/nhl-contracts-teams-trade-offseason/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5585954/2024/06/24/us-olympic-swimming-trials-caele
 **Scoop City: AFC North preview**\
 `We break down the 2024 outlook for four teams in the AFC North, including their biggest questions and fantasy sleepers.`\
 https://nytimes.com/athletic/5303074/2024/06/24/nfl-afc-north-scoop-city/
-
-**Sorry Harry, but pundits are not supposed to be England cheerleaders**\
-`Gary Lineker was right to decry the awful display against Denmark, and Kane will probably be doing similar himself on TV soon enough`\
-https://nytimes.com/athletic/5586170/2024/06/24/harry-kane-gary-lineker-england-pundits/
-
-**Game Reviews: Escape the Heat by Ascending an Ocean Throne**\
-`Crab God is an alluring endeavor that’s instructive about real-world environmental challenges. Riven enters the 3-D era with a remake whose marvels are power hungry.`\
-https://nytimes.com/2024/06/24/arts/crab-god-riven-rabbids.html
 
