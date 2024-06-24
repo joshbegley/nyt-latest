@@ -1,3 +1,7 @@
+**Ten overpriced NHL contracts teams could trade this offseason**\
+`As teams look to clear salary or give players a fresh start this summer, these undesirable contracts are worth keeping an eye on.`\
+https://nytimes.com/athletic/5585422/2024/06/24/nhl-contracts-teams-trade-offseason/
+
 **San Francisco Giants week in review: The loss of a legend and on-field losses pile up**\
 `The week had a somber tone with the passing of Willie Mays, and the team also struggled to execute well on the field.`\
 https://nytimes.com/athletic/5571688/2024/06/24/sf-giants-week-review-willie-mays-tribute-losing-streak/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5586170/2024/06/24/harry-kane-gary-lineker-england-
 **Game Reviews: Escape the Heat by Ascending an Ocean Throne**\
 `Crab God is an alluring endeavor that’s instructive about real-world environmental challenges. Riven enters the 3-D era with a remake whose marvels are power hungry.`\
 https://nytimes.com/2024/06/24/arts/crab-god-riven-rabbids.html
-
-**Monday's MLB odds and predictions: Best and worst starting pitchers, home run streaks and more**\
-`Check in on our Monday MLB projections with odds for every game, picks for best value bets, pitcher props and more.`\
-https://nytimes.com/athletic/5586796/2024/06/24/mlb-odds-predictions-best-bets-june-24/
 

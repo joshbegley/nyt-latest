@@ -1,3 +1,7 @@
+**Ten overpriced NHL contracts teams could trade this offseason**\
+`As teams look to clear salary or give players a fresh start this summer, these undesirable contracts are worth keeping an eye on.`\
+https://nytimes.com/athletic/5585422/2024/06/24/nhl-contracts-teams-trade-offseason/
+
 **San Francisco Giants week in review: The loss of a legend and on-field losses pile up**\
 `The week had a somber tone with the passing of Willie Mays, and the team also struggled to execute well on the field.`\
 https://nytimes.com/athletic/5571688/2024/06/24/sf-giants-week-review-willie-mays-tribute-losing-streak/
