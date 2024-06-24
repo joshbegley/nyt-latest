@@ -1,3 +1,39 @@
+**Three Astros takeaways: Making the lineup more athletic, finding a fifth starter and more**\
+`Plus, how losing Framber Valdez's personal catcher for an extended period will affect the team.`\
+https://nytimes.com/athletic/5585499/2024/06/24/astros-lineup-athleticism-jake-bloss-injury/
+
+**What I'm hearing about McGroarty, Ehlers and the Jets as draft week begins**\
+`The Jets can't seem to approach an offseason without at least a little bit of player uncertainty.`\
+https://nytimes.com/athletic/5584979/2024/06/24/rutger-mcgroarty-nikolaj-ehlers-winnipeg-jets/
+
+**Eight players the Blackhawks could select at No. 18 in the NHL Draft**\
+`The Blackhawks are likely to draft Demidov or Levshunov at No. 2, but who might they select with their other first-round pick?`\
+https://nytimes.com/athletic/5583071/2024/06/24/nhl-draft-2024-blackhawks-prospects/
+
+**Three Cardinals takeaways: Sonny Gray shines, Willson Contreras nears return and more**\
+`Carlos Marmol after Sonny Gray flirted with perfection: "You can't attack a lineup much more than what he did today."`\
+https://nytimes.com/athletic/5584997/2024/06/24/cardinals-mlb-sonny-gray-willson-contreras/
+
+**Cowboys offseason roundtable: Biggest disappointment, biggest roster questions**\
+`Jerry Jones' "all in" offseason has looked like anything but as the Cowboys have done little on paper to improve their roster.`\
+https://nytimes.com/athletic/5584631/2024/06/24/cowboys-offseason-roundtable-disappointment-questions/
+
+**Ranking every Stanley Cup Final in the cap era, and why Oilers-Panthers is already No. 1**\
+`Between Florida's historic collapse and Connor McDavid's utter dominance, this year's Cup Final has been captivating. Bring on Game 7!`\
+https://nytimes.com/athletic/5585548/2024/06/24/stanley-cup-final-rankings/
+
+**The Army of Poets and Students Fighting a Forgotten War**\
+`Young people from the cities are turning the tide against Myanmar’s military dictatorship.`\
+https://nytimes.com/2024/06/24/podcasts/the-daily/myanmar-civil-war.html
+
+**Biden Attacks Trump on Abortion, and an Illicit Hajj Industry**\
+`Plus, the soaring costs of caring for pets.`\
+https://nytimes.com/2024/06/24/podcasts/biden-abortion-hajj-industry.html
+
+**Is Theo Bair the answer to Canada's scoring troubles under Jesse Marsch?**\
+`Canada has struggled to convert scoring chances under Jesse Marsch so far, but Bair is getting his career back on track at a good time`\
+https://nytimes.com/athletic/5585568/2024/06/24/cananda-theo-bair-copa-america/
+
 **The Connections Companion No. 380, June 25, 2024**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/06/24/crosswords/connections-companion-380.html
