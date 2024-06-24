@@ -1,3 +1,7 @@
+**Gabbi Tuft, First Openly Trans Former W.W.E. Star, Returns to Wrestling**\
+`Ms. Tuft, who retired from the W.W.E. more than a decade ago and came out as transgender in 2021, will return to the ring on Tuesday, she said on social media.`\
+https://nytimes.com/2024/06/23/arts/television/gabbi-tuft-trans-wrestler-return.html
+
 **Giants notes: The rotation is in shambles, but Blake Snell isn't ready to provide aid**\
 `Along with Robbie Ray and LaMonte Wade Jr., Snell played for the River Cats on Sunday. He couldn't make it out of the second inning.`\
 https://nytimes.com/athletic/5585760/2024/06/23/sf-giants-rotation-blake-snell-robbie-ray/
