@@ -1,3 +1,7 @@
+**Heavy Rain Causes Deadly Flooding in Southern China**\
+`The city of Meizhou experienced “once-in-a-century” rainfall last week, according to state media.`\
+https://nytimes.com/video/world/asia/100000009536833/china-flooding-landslides-weather.html
+
 **NASCAR New Hampshire takeaways: Wet-weather tire dilemma, Christopher Bell shines**\
 `It's time for NASCAR to let teams make their own decisions on wet-weather tires, a win for Christopher Bell and more from New Hampshire.`\
 https://nytimes.com/athletic/5587115/2024/06/24/nascar-new-hampshire-takeaways-tires-christopher-bell/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5587439/2024/06/24/kylian-mbappe-nose-france-return
 **The Voters Watching the Debate With a Hand Over Their Eyes**\
 `“This is the most apprehensive I’ve felt about a presidential debate,” said one voter who usually supports Democrats. “I sense a disaster in the making where neither will look presidential.”`\
 https://nytimes.com/2024/06/24/us/politics/biden-trump-debate-voters-democrats.html
-
-**NASCAR expected to make multiple changes to 2025 playoff schedule**\
-`Three tracks are on the way out as Darlington is expected to return to the playoff rotation along with two other new tracks, sources say.`\
-https://nytimes.com/athletic/5587380/2024/06/24/nascar-2025-playoff-schedule-changes/
 
