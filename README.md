@@ -1,3 +1,11 @@
+**The Windup: Where did baseball's offense go?**\
+`Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
+https://nytimes.com/athletic/5586978/2024/06/24/mlb-pitching-offense-blue-jays-suspension-the-windup/
+
+**Fearing Losses, Banks Are Quietly Dumping Real Estate Loans**\
+`If landlords can’t pay back loans on office buildings, the lenders will suffer. Some banks are trying to avoid that fate.`\
+https://nytimes.com/2024/06/24/business/commercial-real-estate-loans.html
+
 **Zion Grady is 10th top-100 prospect to commit to Ohio State**\
 `Grady, who originally committed to Alabama last November, picked the Buckeyes after visiting Columbus this past weekend.`\
 https://nytimes.com/athletic/5587004/2024/06/24/ohio-state-zion-grady-recruiting-commitment/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5586303/2024/06/24/tennis-briefing-grass-court-seas
 **How a 1933 Book About Jews in Magic Was Rescued From Oblivion**\
 `Richard Hatch gave up a career as a physicist to become a magician — and a one-man historical preservation society dedicated to a German author killed in the Holocaust.`\
 https://nytimes.com/2024/06/24/arts/magic-jews-germany-hatch.html
-
-**Pasta Nada for Meh Mondays**\
-`Whittle down a pantry pasta to its most oomph-giving essentials and you have pasta nada, an easy, life-giving dinner for draining days.`\
-https://nytimes.com/2024/06/24/dining/pasta-nada.html
-
-**What should we expect from the Hurricanes during a busy draft week?**\
-`Here are five things to watch from the Hurricanes as attention turns to Las Vegas.`\
-https://nytimes.com/athletic/5586014/2024/06/24/nhl-draft-hurricanes-tulsky/
 
