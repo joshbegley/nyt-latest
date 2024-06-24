@@ -1,3 +1,15 @@
+**Virginia Woolf, but Make It a Polyphonic, Sensory Ballet**\
+`American Ballet Theater brings Wayne McGregor’s “Woolf Works,” which evokes elements of three novels and the writer’s biography, to New York.`\
+https://nytimes.com/2024/06/24/arts/dance/woolf-works-abt.html
+
+**Charli XCX’s ‘Brat’ Breakthrough**\
+`The pop songwriter’s sixth album is in some ways her most daring release yet. Improbably, it also yielded her best opening week.`\
+https://nytimes.com/2024/06/24/arts/music/popcast-charli-xcx-brat.html
+
+**Hollywood Sharpens Aim at Online Pirates**\
+`Major U.S. entertainment companies are hiring a former top F.B.I. official and renewing a push for federal legislation to combat online thievery overseas.`\
+https://nytimes.com/2024/06/24/business/hollywood-piracy.html
+
 **NBA Mock Draft: What are the Hawks up to? That mystery hovers over this week**\
 `Zaccharie Risacher? Donovan Clingan? Alex Sarr? A trade? Atlanta holds all the cards, and few have a sense for how it'll play them.`\
 https://nytimes.com/athletic/5581150/2024/06/24/nba-mock-draft-2024-hawks-pick/
