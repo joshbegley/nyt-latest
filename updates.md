@@ -1,3 +1,11 @@
+**Barnabas Varga’s ‘nightmare’ collision - and how Hungary rallied around him**\
+`Everyone feared the worst after a sickening collision knocked the popular and prolific forward unconscious `\
+https://nytimes.com/athletic/5587431/2024/06/24/barnabas-varga-hungary-euro2024-injury-scotland/
+
+**Earthquakes fire head coach Gonzalez**\
+`The San Jose Earthquakes have fired head coach Luchi Gonzalez, the club announced.`\
+https://nytimes.com/athletic/5587553/2024/06/24/san-jose-earthquakes-fire-gonzalez/
+
 **‘Arctic Blast’ of Leaky Water Halts Spacewalk by NASA Astronauts**\
 `It was the second scheduled spacewalk by NASA astronauts aboard the space station that faced an interruption this month.`\
 https://nytimes.com/2024/06/24/science/nasa-astronauts-spacewalk-water-leak.html

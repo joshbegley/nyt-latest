@@ -1,3 +1,11 @@
+**Barnabas Varga’s ‘nightmare’ collision - and how Hungary rallied around him**\
+`Everyone feared the worst after a sickening collision knocked the popular and prolific forward unconscious `\
+https://nytimes.com/athletic/5587431/2024/06/24/barnabas-varga-hungary-euro2024-injury-scotland/
+
+**Earthquakes fire head coach Gonzalez**\
+`The San Jose Earthquakes have fired head coach Luchi Gonzalez, the club announced.`\
+https://nytimes.com/athletic/5587553/2024/06/24/san-jose-earthquakes-fire-gonzalez/
+
 **‘Arctic Blast’ of Leaky Water Halts Spacewalk by NASA Astronauts**\
 `It was the second scheduled spacewalk by NASA astronauts aboard the space station that faced an interruption this month.`\
 https://nytimes.com/2024/06/24/science/nasa-astronauts-spacewalk-water-leak.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/24/arts/music/taylor-swift-billboard-poets-nine-week
 **France’s Far-Right Leader Says the National Rally Is Ready to Govern**\
 `If he becomes prime minister after snap elections, Jordan Bardella, the party’s president, said he would represent all. But he also said dual citizens should not hold some “sensitive” jobs.`\
 https://nytimes.com/2024/06/24/world/europe/frances-far-right-leader-says-the-national-rally-is-ready-to-govern.html
-
-**Spacewalk Canceled After Spacesuit Coolant Leak**\
-`NASA canceled a spacewalk at the International Space Station Monday following a water leak, which started shortly after Tracy Dyson started to use the internal battery power of her spacesuit.`\
-https://nytimes.com/video/science/space/100000009536839/spacewalk-canceled.html
-
-**Mbappe 'raring to go' ahead of possible France return**\
-`Didier Deschamps says Kylian Mbappe is &#8220;raring to go&#8221; ahead of a possible return for France against Poland on Tuesday.`\
-https://nytimes.com/athletic/5587439/2024/06/24/kylian-mbappe-nose-france-return/
 
