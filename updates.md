@@ -1,3 +1,7 @@
+**Rapper Known as Julio Foolio Is Fatally Shot in Florida**\
+`The rapper, whose real name is Charles Jones, 26, had been celebrating his birthday at events that he had announced on social media.`\
+https://nytimes.com/2024/06/24/us/julio-foolio-rapper-shot.html
+
 **Biden Condemns Protest Outside Los Angeles Synagogue as Antisemitic**\
 `After a clash between pro-Palestinian and pro-Israel demonstrators turned violent over the weekend, leaders said such protests outside houses of worship were unacceptable.`\
 https://nytimes.com/2024/06/24/us/synogogue-protest-los-angeles-biden.html
