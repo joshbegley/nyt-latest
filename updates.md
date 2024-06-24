@@ -1,3 +1,7 @@
+**Zion Grady is 10th top-100 prospect to commit to Ohio State**\
+`Grady, who originally committed to Alabama last November, picked the Buckeyes after visiting Columbus this past weekend.`\
+https://nytimes.com/athletic/5587004/2024/06/24/ohio-state-zion-grady-recruiting-commitment/
+
 **‘It’s All Happening Again.’ The Supply Chain Is Under Strain.**\
 `As Houthi rebels intensify strikes on vessels headed for the Suez Canal, global shipping prices are soaring, raising fears of product shortages and delays.`\
 https://nytimes.com/2024/06/24/business/global-shipping-rates.html
