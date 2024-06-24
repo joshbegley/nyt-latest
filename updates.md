@@ -1,3 +1,11 @@
+**Spacewalk Canceled After Spacesuit Coolant Leak**\
+`NASA canceled a spacewalk at the International Space Station today following a coolant leak in Tracy Dyson’s spacesuit, which started shortly after switching her spacesuit to internal battery power.`\
+https://nytimes.com/video/science/space/100000009536839/spacewalk-canceled.html
+
+**Mbappe 'raring to go' ahead of possible France return**\
+`Didier Deschamps says Kylian Mbappe is &#8220;raring to go&#8221; ahead of a possible return for France against Poland on Tuesday.`\
+https://nytimes.com/athletic/5587439/2024/06/24/kylian-mbappe-nose-france-return/
+
 **The Voters Watching the Debate With a Hand Over Their Eyes**\
 `“This is the most apprehensive I’ve felt about a presidential debate,” said one voter who usually supports Democrats. “I sense a disaster in the making where neither will look presidential.”`\
 https://nytimes.com/2024/06/24/us/politics/biden-trump-debate-voters-democrats.html
