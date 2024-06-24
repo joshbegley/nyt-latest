@@ -1,3 +1,7 @@
+**What’s on TV This Week: The Presidential Debate and CMA Fest**\
+`President Joe Biden and former President Donald J. Trump debate for the first time this campaign cycle. Country artists perform their hit songs.`\
+https://nytimes.com/2024/06/24/arts/television/whats-on-tv-this-week-the-presidential-debate-and-cma-fest.html
+
 **Why Nottingham Forest aren't ready to give up on Ibrahim Sangare**\
 `The Ivorian midfielder struggled to make an impact following his move from PSV but Forest are there are signs his quality may shine through`\
 https://nytimes.com/athletic/5564710/2024/06/24/ibrahim-sangare-nottingham-forest-future/
