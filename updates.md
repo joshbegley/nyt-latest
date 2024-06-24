@@ -1,3 +1,11 @@
+**‘House of the Dragon’ Season 2, Episode 2 Recap: Sleep With One Eye Open**\
+`Aemond knows those assassins got the wrong prince. He says he feels flattered. He had also better watch his back.`\
+https://nytimes.com/2024/06/23/arts/television/house-of-the-dragon-recap-episode-2.html
+
+**F.B.I. Offers Reward for Information About New Mexico Wildfires**\
+`The agency said it was offering up to $10,000 for information that leads to the arrest and conviction of those “responsible for starting the fires.”`\
+https://nytimes.com/2024/06/23/us/new-mexico-wildfires-intentional.html
+
 **Gabbi Tuft, First Openly Trans Former W.W.E. Star, Returns to Wrestling**\
 `Ms. Tuft, who retired from the W.W.E. more than a decade ago and came out as transgender in 2021, will return to the ring on Tuesday, she said on social media.`\
 https://nytimes.com/2024/06/23/arts/television/gabbi-tuft-trans-wrestler-return.html
