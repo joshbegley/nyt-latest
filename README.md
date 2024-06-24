@@ -1,3 +1,7 @@
+**Tuesday Briefing: Dagestan Attack Revives Terrorism Fears in Russia**\
+`Also, a shift in Israel’s focus and extreme heat in Mecca.`\
+https://nytimes.com/2024/06/24/world/asia/dagestan-attack-israel-netanyahu-hajj-asia.html
+
 **Roger Federer’s Graduation Speech Becomes an Online Hit**\
 `At Dartmouth College, the retired tennis champion offered his thoughts on winning and losing.`\
 https://nytimes.com/2024/06/24/style/roger-federer-graduation-speech-dartmouth-tiktok-youtube.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5587360/2024/06/24/scottie-barnes-extension-raptors
 **Frederick Crews, Withering Critic of Freud’s Legacy, Dies at 91**\
 `A literary critic, essayist and author, he was a leading voice among revisionist skeptics who saw Freud as a charlatan and psychoanalysis as a pseudoscience.`\
 https://nytimes.com/2024/06/24/books/frederick-crews-dead.html
-
-**San Diego Wave parts company with head coach Stoney**\
-`San Diego Wave has parted company with head coach Casey Stoney.`\
-https://nytimes.com/athletic/5587827/2024/06/24/casey-stoney-san-diego-wave-departs/
 
