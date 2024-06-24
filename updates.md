@@ -1,3 +1,7 @@
+**Judge Skeptical About Request to Limit Trump Statements on F.B.I.**\
+`Judge Aileen Cannon posed tough questions to prosecutors who want to bar the former president from making inflammatory remarks about the agents who searched Mar-a-Lago in the documents case.`\
+https://nytimes.com/2024/06/24/us/politics/trump-classified-documents-statements-fbi.html
+
 **A Timeline of Julian Assange’s Legal Saga**\
 `A plea deal brought an abrupt end to an extraordinary legal saga that has raised novel issues of national security, press freedoms, politics and diplomacy.`\
 https://nytimes.com/2024/06/24/us/julian-assange-wikileaks-timeline.html
