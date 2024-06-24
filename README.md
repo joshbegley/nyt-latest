@@ -1,3 +1,7 @@
+**Shaw back in England training ahead of Slovenia game**\
+`Luke Shaw will train today with his England team-mates ahead of their final European Championship group game against Slovenia tomorrow.`\
+https://nytimes.com/athletic/5586333/2024/06/24/luke-shaw-england-injury-slovenia/
+
 **A win, a clean sheet, but too many chances missed - USMNT need to be more ruthless**\
 `Yes, results matter in tournament soccer but Gregg Berhalter's team can't afford to waste as many chances as they did against Bolivia`\
 https://nytimes.com/athletic/5586102/2024/06/24/usmnt-copa-america-pepi-berhalter/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/18/opinion/thepoint/tipsheet-biden-trump-debate
 **How to Win a Presidential Debate**\
 `I’ve studied voter reaction and opinions about every presidential debate since 1992. This is what to do and not to do.`\
 https://nytimes.com/2024/06/24/opinion/biden-trump-debate.html
-
-**In Abortion Cases, Legions of ‘Friends’ Seek to Persuade Supreme Court**\
-`A new study analyzed 50 years of friend-of-the-court briefs and found that abortion opponents were more relentless than their adversaries, with some reflected in the justices’ opinions.`\
-https://nytimes.com/2024/06/24/us/supreme-court-abortion-briefs.html
 
