@@ -1,3 +1,7 @@
+**Takeaways from Uruguay 3-1 Panama: Marcelo Bielsa's side shows their quality**\
+`Bielsa-ball comes to Copa America `\
+https://nytimes.com/athletic/5585471/2024/06/23/uruguay-panama-copa-america/
+
 **Quincy Wilson, 16, qualifies for 400m final**\
 `Wilson's weekend started with a time of 44.66 on Friday night in round one, which broke Darrell Robinson's 42-year-old high school record.`\
 https://nytimes.com/athletic/5585885/2024/06/23/quincy-wilson-400-meter-olympic-trials-teenager/
