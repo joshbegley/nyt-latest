@@ -1,3 +1,11 @@
+**They Came to See Trump. First They Heard a Pitch to Buy Gold and Silver.**\
+`At a recent campaign speech, one of Donald Trump’s warm-up acts was a precious metals salesman being sued by federal regulators for fraud.`\
+https://nytimes.com/2024/06/24/us/they-came-to-see-trump-first-they-heard-a-pitch-to-buy-gold-and-silver.html
+
+**‘The Lion King’ at 30: Jason Weaver Sang for Simba but Few Knew It**\
+`The actor was playing a young Michael Jackson when Elton John spotted him. Three decades later, the new attention to his legacy is “gratifying.”`\
+https://nytimes.com/2024/06/24/movies/lion-king-simba-jason-weaver.html
+
 **What Works for Golf Works for Life**\
 `In the long run, consistency and skill tend to win out over luck.`\
 https://nytimes.com/2024/06/24/opinion/golf-mark-broadie-mcilroy.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5587431/2024/06/24/barnabas-varga-hungary-euro2024-
 **Earthquakes fire head coach Gonzalez**\
 `The San Jose Earthquakes have fired head coach Luchi Gonzalez, the club announced.`\
 https://nytimes.com/athletic/5587553/2024/06/24/san-jose-earthquakes-fire-gonzalez/
-
-**‘Arctic Blast’ of Leaky Water Halts Spacewalk by NASA Astronauts**\
-`It was the second scheduled spacewalk by NASA astronauts aboard the space station that faced an interruption this month.`\
-https://nytimes.com/2024/06/24/science/nasa-astronauts-spacewalk-water-leak.html
-
-**Heavy Rain Causes Deadly Flooding in Southern China**\
-`The city of Meizhou experienced “once-in-a-century” rainfall last week, according to state media.`\
-https://nytimes.com/video/world/asia/100000009536833/china-flooding-landslides-weather.html
 
