@@ -1,3 +1,7 @@
+**C.E.O.s Are Frustrated With Biden. That Doesn’t Mean They Embrace Trump.**\
+`Corporate executives complain about some of President Biden’s policies, along with his rhetoric. But so far they have not abandoned him en masse.`\
+https://nytimes.com/2024/06/24/business/economy/biden-policy-ceo.html
+
 **Chiefs to release Isaiah Buggs after second arrest this offseason**\
 `Buggs, 27, signed a futures contract with the Chiefs in February after spending last season on their practice squad.`\
 https://nytimes.com/athletic/5587079/2024/06/24/chiefs-release-isaiah-buggs-arrest/
