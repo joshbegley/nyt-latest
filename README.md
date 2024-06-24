@@ -1,3 +1,15 @@
+**Ex-Haitian Gang Leader Is Sentenced to 35 Years in Prison in Gunrunning Scheme**\
+`Prosecutors said Joly Germine, 31, who had led the 400 Mawozo gang, was involved in a conspiracy that used ransom money that had been paid for the release of American hostages to buy and smuggle guns into Haiti.`\
+https://nytimes.com/2024/06/24/us/haiti-gang-leader-us-prison-sentence.html
+
+**Oakland’s Mayor Had Enough Troubles. Then the F.B.I. Came Knocking.**\
+`Sheng Thao was already facing a recall election as residents remain frustrated over crime and homelessness. She said on Monday that she had committed no crimes.`\
+https://nytimes.com/2024/06/24/us/politics/oakland-mayor-fbi-recall.html
+
+**Hoping for a Glimpse of Hailey Bieber, Hundreds Turn Out for Her Makeup**\
+`After braving a line that snaked through SoHo, fans snapped selfies and rubbed blush on their cheeks inside the tiny Rhode pop-up shop on Monday.`\
+https://nytimes.com/2024/06/24/style/hailey-bieber-makeup-rhode.html
+
 **Methodology: How The Times Calculates 2024 Polling Averages**\
 `An average of surveys may sound straightforward, but even a simple approach faces a series of choices.`\
 https://nytimes.com/article/election-polling-averages-methodology.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/24/us/politics/trump-classified-documents-statements
 **Israeli Strike Kills Health Official, Gazans Say, as Gallant Visits U.S.**\
 `Israel’s defense minister, Yoav Gallant, was meeting with the C.I.A. director and the secretary of state on Monday as Israel signaled a potential shift in its military campaign in Gaza.`\
 https://nytimes.com/2024/06/24/world/middleeast/israeli-strike-gallant-us.html
-
-**Will the Debate Be ‘Rah-Rah’ or ‘Ruh-Roh?’**\
-`I asked how you’re feeling about the debate. Hundreds of you responded with worries and hopes.`\
-https://nytimes.com/2024/06/24/us/politics/trump-biden-presidential-debate.html
-
-**Biden Is Prepping for the First Debate**\
-`Also, an N.H.L. final for the ages. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2024/06/24/briefing/biden-trump-debate-prep-nhl-final.html
-
-**Attacks in Russia’s Dagestan Region: What to Know**\
-`Gunmen killed at least 20 people in attacks in two Dagestan cities. No suspects or motives have been identified, but the region has long been rocked by ethnic and religious violence.`\
-https://nytimes.com/2024/06/24/world/europe/russia-dagestan-attacks-what-to-know.html
 
