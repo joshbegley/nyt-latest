@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5585613/2024/06/23/maple-leafs-marc-savard-assistan
 https://nytimes.com/athletic/5585631/2024/06/23/antonio-rudiger-injury-germany-last-16/
 
 **Cubs honor Hall of Famer Ryne Sandberg, unveil statue outside Wrigley Field**\
-`On the anniversary of the Sandberg Game, the Cubs honored Ryne Sandberg with a statue outside Wrigley Field.`\
+`On the 40th anniversary of the "Sandberg Game," he was immortalized in bronze with former Cubs' legends Jenkins, Banks, Santo and Williams.`\
 https://nytimes.com/athletic/5585566/2024/06/23/cubs-ryne-sandberg-statue-wrigley/
 
 **No Apparent Motive in Arkansas Shooting, but the Reaction Is ‘So Personal’**\
