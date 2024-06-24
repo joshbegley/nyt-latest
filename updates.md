@@ -1,3 +1,7 @@
+**Giants notes: The rotation is in shambles, but Blake Snell isn't ready to provide aid**\
+`Along with Robbie Ray and LaMonte Wade Jr., Snell played for the River Cats on Sunday. He couldn't make it out of the second inning.`\
+https://nytimes.com/athletic/5585760/2024/06/23/sf-giants-rotation-blake-snell-robbie-ray/
+
 **Greenberg: Angel Reese walks the walk in Sky's rivalry win over Caitlin Clark, Fever**\
 `On the 40th anniversary of the Ryne Sandberg Game on the North Side, Chicago got the Angel Reese Game in the South Loop.`\
 https://nytimes.com/athletic/5585671/2024/06/23/angel-reese-sky-caitlin-clark-greenberg/

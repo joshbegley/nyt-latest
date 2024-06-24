@@ -1,3 +1,7 @@
+**Giants notes: The rotation is in shambles, but Blake Snell isn't ready to provide aid**\
+`Along with Robbie Ray and LaMonte Wade Jr., Snell played for the River Cats on Sunday. He couldn't make it out of the second inning.`\
+https://nytimes.com/athletic/5585760/2024/06/23/sf-giants-rotation-blake-snell-robbie-ray/
+
 **Greenberg: Angel Reese walks the walk in Sky's rivalry win over Caitlin Clark, Fever**\
 `On the 40th anniversary of the Ryne Sandberg Game on the North Side, Chicago got the Angel Reese Game in the South Loop.`\
 https://nytimes.com/athletic/5585671/2024/06/23/angel-reese-sky-caitlin-clark-greenberg/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5585631/2024/06/23/antonio-rudiger-injury-germany-l
 **Cubs honor Hall of Famer Ryne Sandberg, unveil statue outside Wrigley Field**\
 `On the 40th anniversary of the "Sandberg Game," he was immortalized in bronze with former Cubs' legends Jenkins, Banks, Santo and Williams.`\
 https://nytimes.com/athletic/5585566/2024/06/23/cubs-ryne-sandberg-statue-wrigley/
-
-**No Apparent Motive in Arkansas Shooting, but the Reaction Is ‘So Personal’**\
-`The shooting in which a gunman killed four and injured 10 at a grocery store in a town of 3,400 appeared to be a “completely random, senseless act,” the police said Sunday.`\
-https://nytimes.com/2024/06/23/us/fordyce-arkansas-shooting-grocery-store.html
 
