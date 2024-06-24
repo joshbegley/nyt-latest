@@ -1,3 +1,11 @@
+**Roger Federer’s Graduation Speech Becomes an Online Hit**\
+`At Dartmouth College, the retired tennis champion offered his thoughts on winning and losing.`\
+https://nytimes.com/2024/06/24/style/roger-federer-graduation-speech-dartmouth-tiktok-youtube.html
+
+**Thousands of New York voters received texts with misinformation about polling sites.**\
+`By Tim Balk`\
+https://nytimes.com/live/2024/06/24/us/biden-trump-election-debate/thousands-of-new-york-voters-received-texts-with-misinformation-about-polling-sites
+
 **F1 of the Water? Yachts Race at the Statue of Liberty.**\
 `Thousands of spectators turned out over the weekend for SailGP, which brought a high-speed competition, and lots of champagne, to the New York Harbor.`\
 https://nytimes.com/2024/06/24/style/sailgp-new-york.html
