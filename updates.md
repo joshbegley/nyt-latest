@@ -1,3 +1,7 @@
+**Heavy Rain Causes Deadly Flooding in Southern China**\
+`The city of Meizhou experienced “once-in-a-century” rainfall last week, according to state media.`\
+https://nytimes.com/video/world/asia/100000009536833/china-flooding-landslides-weather.html
+
 **NASCAR New Hampshire takeaways: Wet-weather tire dilemma, Christopher Bell shines**\
 `It's time for NASCAR to let teams make their own decisions on wet-weather tires, a win for Christopher Bell and more from New Hampshire.`\
 https://nytimes.com/athletic/5587115/2024/06/24/nascar-new-hampshire-takeaways-tires-christopher-bell/
