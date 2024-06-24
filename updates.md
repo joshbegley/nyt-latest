@@ -1,3 +1,11 @@
+**Pinto or a second-round pick? An Ullmark extension changes his trade value**\
+`With the draft and free agency looming, Ullmark could be entering his final hours with the Bruins. What will they be able to get in return?`\
+https://nytimes.com/athletic/5587350/2024/06/24/bruins-linus-ullmark-trade-value/
+
+**Man Pleads Guilty in Home Invasion Using Fake Deadly Virus**\
+`Stefan Alexandru Barabas, 38, pleaded guilty to extortion after threatening a multimillionaire in her Connecticut home in 2007.`\
+https://nytimes.com/2024/06/24/nyregion/connecticut-home-invasion-hostage-virus.html
+
 **Barnabas Varga’s ‘nightmare’ collision - and how Hungary rallied around him**\
 `Everyone feared the worst after a sickening collision knocked the popular and prolific forward unconscious `\
 https://nytimes.com/athletic/5587431/2024/06/24/barnabas-varga-hungary-euro2024-injury-scotland/

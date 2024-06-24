@@ -1,3 +1,11 @@
+**Pinto or a second-round pick? An Ullmark extension changes his trade value**\
+`With the draft and free agency looming, Ullmark could be entering his final hours with the Bruins. What will they be able to get in return?`\
+https://nytimes.com/athletic/5587350/2024/06/24/bruins-linus-ullmark-trade-value/
+
+**Man Pleads Guilty in Home Invasion Using Fake Deadly Virus**\
+`Stefan Alexandru Barabas, 38, pleaded guilty to extortion after threatening a multimillionaire in her Connecticut home in 2007.`\
+https://nytimes.com/2024/06/24/nyregion/connecticut-home-invasion-hostage-virus.html
+
 **Barnabas Varga’s ‘nightmare’ collision - and how Hungary rallied around him**\
 `Everyone feared the worst after a sickening collision knocked the popular and prolific forward unconscious `\
 https://nytimes.com/athletic/5587431/2024/06/24/barnabas-varga-hungary-euro2024-injury-scotland/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/24/movies/academy-of-motion-picture-arts-and-science
 **Dearica Hamby named to U.S. Olympic 3x3 team, replaces Cameron Brink**\
 `Hamby led Team USA to gold at the FIBA 3x3 AmeriCup in December, taking home tournament MVP honors.`\
 https://nytimes.com/athletic/5587466/2024/06/24/dearica-hamby-us-olympic-3x3-team/
-
-**Taylor Swift Notches a Ninth Week at No. 1 With New CD Versions**\
-`The singer’s latest album, “The Tortured Poets Department,” now has the second-most weeks at No. 1 of any Swift album.`\
-https://nytimes.com/2024/06/24/arts/music/taylor-swift-billboard-poets-nine-weeks.html
-
-**France’s Far-Right Leader Says the National Rally Is Ready to Govern**\
-`If he becomes prime minister after snap elections, Jordan Bardella, the party’s president, said he would represent all. But he also said dual citizens should not hold some “sensitive” jobs.`\
-https://nytimes.com/2024/06/24/world/europe/frances-far-right-leader-says-the-national-rally-is-ready-to-govern.html
 
