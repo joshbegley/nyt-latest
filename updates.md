@@ -1,3 +1,7 @@
+**Tuesday Briefing: Dagestan Attack Revives Terrorism Fears in Russia**\
+`Also, a shift in Israel’s focus and extreme heat in Mecca.`\
+https://nytimes.com/2024/06/24/world/asia/dagestan-attack-israel-netanyahu-hajj-asia.html
+
 **Roger Federer’s Graduation Speech Becomes an Online Hit**\
 `At Dartmouth College, the retired tennis champion offered his thoughts on winning and losing.`\
 https://nytimes.com/2024/06/24/style/roger-federer-graduation-speech-dartmouth-tiktok-youtube.html
