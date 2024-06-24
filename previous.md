@@ -1,40 +1,40 @@
-**Chess Players Wonder if Being a Grandmaster Still Has Meaning**\
-`The ballooning number of players who have achieved the top title has some of the game’s best players asking whether the designation even matters.`\
-https://nytimes.com/2024/06/24/crosswords/chess-players-wonder-if-being-a-grandmaster-still-has-meaning.html
+**Red Sox prospect takeaways: Luis Perales injures his elbow; Marcelo Mayer remains hot**\
+`Luis Perales will miss the rest of the season, but several of the Red Sox's top prospects continue to shine with Double-A Portland.`\
+https://nytimes.com/athletic/5581997/2024/06/24/red-sox-prospect-takeaways-luis-perales-injury/
 
-**Responsibility Over Freedom: How Netflix’s Culture Has Changed**\
-`The company’s latest internal memo about its corporate culture is more about how it expects employees to behave than what it wants to become.`\
-https://nytimes.com/2024/06/24/business/media/netflix-corporate-culture.html
+**Crews Race to Fortify Levees as Floods Swallow Midwestern Towns**\
+`Officials in Iowa, South Dakota and Minnesota reported widespread damage over the weekend. In some places, the worst was still to come.`\
+https://nytimes.com/2024/06/24/us/iowa-south-dakota-flooding.html
 
-**Gay Marriage Was a Big Missed Opportunity**\
-`The modest campaign created an opening for today’s anti-L.G.B.T.Q. backlash.`\
-https://nytimes.com/2024/06/24/opinion/gay-marriage-america-pride.html
+**Democrats Lean on Abortion Rights Message for Anniversary of End of Roe**\
+`Across the country this week, Democrats are focusing on abortion issues and emphasizing Donald Trump’s role in nominating the justices who helped overturn Roe v. Wade.`\
+https://nytimes.com/2024/06/24/us/politics/abortion-democrats-trump-roe.html
 
-**The Health Information Voters Need From Biden and Trump**\
-`We live in an age when people can live longer and healthier even with significant health conditions. What does this mean for future presidents?`\
-https://nytimes.com/2024/06/24/opinion/biden-trump-health-conditions.html
+**Drawn-Out Heat Wave Expected to Finally Let Up in Many Parts of the U.S.**\
+`The forecast is welcome news for many East Coasters, who faced stifling conditions over the weekend. But the Southeast and Southern Plains are expected to continue to scorch this week.`\
+https://nytimes.com/2024/06/24/us/heat-wave-temperatures-forecast.html
 
-**A Tense Time for Parks, Libraries and the Arts**\
-`As the city budget deadline looms, the targets of Mayor Eric Adams’s cuts are rallying their bases.`\
-https://nytimes.com/2024/06/24/nyregion/budget-nyc-libraries-parks.html
+**Take The Athletic's Wisconsin football fan survey**\
+`Which game in 2024 is most important for Wisconsin? Which positions will be strengths and weaknesses? Share your thoughts in a survey.`\
+https://nytimes.com/athletic/5581627/2024/06/24/wisconsin-football-luke-fickell-fans/
 
-**$2.4 Million Homes in California**\
-`A Craftsman bungalow in Altadena, a three-bedroom condominium in San Francisco and a renovated midcentury house in Sausalito.`\
-https://nytimes.com/2024/06/24/realestate/2-million-dollar-homes-california.html
+**‘Are You Seeing Any New Signs Biden Can Beat Trump?’**\
+`No. That’s why Thursday’s debate is so important.`\
+https://nytimes.com/live/2024/06/18/opinion/thepoint/tipsheet-biden-trump-debate
 
-**Recent High School Grads: Tell Us Why You Decided to Go to College or Not**\
-`Students across America are asking whether college is worth it. We want to know why you decided that it was — or wasn’t — a good choice to attend.`\
-https://nytimes.com/2024/06/24/us/politics/high-school-grads-college-decisions.html
+**How to Win a Presidential Debate**\
+`I’ve studied voter reaction and opinions about every presidential debate since 1992. This is what to do and not to do.`\
+https://nytimes.com/2024/06/24/opinion/biden-trump-debate.html
 
-**The Mysterious, Deep-Dwelling Microbes That Sculpt Our Planet**\
-`Earth’s crust teems with subterranean life that we are only now beginning to understand.`\
-https://nytimes.com/2024/06/24/magazine/earth-geomicrobiology-microbes.html
+**In Abortion Cases, Legions of ‘Friends’ Seek to Persuade Supreme Court**\
+`A new study analyzed 50 years of friend-of-the-court briefs and found that abortion opponents were more relentless than their adversaries, with some reflected in the justices’ opinions.`\
+https://nytimes.com/2024/06/24/us/supreme-court-abortion-briefs.html
 
-**There’s Food for Everyone on Earth. So Why Is Hunger Getting Worse?**\
-`“The New Breadline,” by Jean-Martin Bauer, a veteran food aid worker, chronicles a growing problem that should not exist — along with the harmful policies that have exacerbated it.`\
-https://nytimes.com/2024/06/24/books/review/the-new-breadline-jean-martin-bauer.html
+**How Short Is Too Short for a Skirt?**\
+`Hemlines can spark questions — and strong opinions — about professionalism and appropriateness. Our fashion critic offers a reader some advice on skirt length.`\
+https://nytimes.com/2024/06/24/style/skirt-length-professionalism-age.html
 
-**Is Fish Oil Helpful or Harmful for the Heart?**\
-`Despite decades of research, the evidence for omega-3 supplements is murky.`\
-https://nytimes.com/2024/06/24/well/eat/omega-3-fish-oil-heart-health.html
+**‘House of the Dragon’: Elliott and Luke Tittensor on That Brutal Duel**\
+`Episode 2 pit brother against brother, in more ways than one. The two actors, identical twins, talked about the intensity of that climactic fight scene.`\
+https://nytimes.com/2024/06/24/arts/television/house-of-the-dragon-twins-elliott-luke-tittensor.html
 
