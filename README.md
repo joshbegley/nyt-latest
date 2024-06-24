@@ -1,3 +1,7 @@
+**Princess Anne Hospitalized With Minor Injuries**\
+`The younger sister of King Charles III sustained a concussion after an incident on Sunday, Buckingham Palace said.`\
+https://nytimes.com/2024/06/24/world/europe/princess-anne-hospitalized-uk.html
+
 **Apple’s European Headache**\
 `The iPhone maker is the first U.S. tech giant charged with breaching the European Union’s Digital Markets Act, potentially exposing it to huge fines.`\
 https://nytimes.com/2024/06/24/business/dealbook/apple-europe-antitrust-dma.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5586271/2024/06/24/england-euro-2024-reasons-cheerf
 **The Pulse: The first time since 1942?**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5585959/2024/06/24/oilers-panthers-game-7-the-pulse/
-
-**Death Toll in Attack in Southern Russia Rises to 19, Officials Say**\
-`The attack in Dagestan targeted synagogues and Orthodox churches. Russian investigators called it an act of terrorism, but it was not immediately clear who was responsible.`\
-https://nytimes.com/2024/06/24/world/europe/russia-attack-dagestan.html
 
