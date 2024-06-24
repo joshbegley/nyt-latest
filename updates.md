@@ -1,3 +1,19 @@
+**Iran’s Onerous Hijab Law for Women Is Now a Campaign Issue**\
+`In a sign that a women-led movement has gained ground, all of the men running for president have distanced themselves from the harsh tactics used to enforce mandatory hijab.`\
+https://nytimes.com/2024/06/24/world/middleeast/iran-hijab-election-issue.html
+
+**Tennis Briefing: Does grass season need to be longer? Can Americans win at Wimbledon?**\
+`Welcome to the Monday Tennis Briefing, where The Athletic will explain the stories from the past week on-court`\
+https://nytimes.com/athletic/5586303/2024/06/24/tennis-briefing-grass-court-season-wimbledon/
+
+**How a 1933 Book About Jews in Magic Was Rescued From Oblivion**\
+`Richard Hatch gave up a career as a physicist to become a magician — and a one-man historical preservation society dedicated to a German author killed in the Holocaust.`\
+https://nytimes.com/2024/06/24/arts/magic-jews-germany-hatch.html
+
+**Pasta Nada for Meh Mondays**\
+`Whittle down a pantry pasta to its most oomph-giving essentials and you have pasta nada, an easy, life-giving dinner for draining days.`\
+https://nytimes.com/2024/06/24/dining/pasta-nada.html
+
 **What should we expect from the Hurricanes during a busy draft week?**\
 `Here are five things to watch from the Hurricanes as attention turns to Las Vegas.`\
 https://nytimes.com/athletic/5586014/2024/06/24/nhl-draft-hurricanes-tulsky/
