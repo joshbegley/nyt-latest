@@ -1,3 +1,7 @@
+**Fire at Lithium Battery Plant in South Korea Kills at Least 16**\
+`Six other workers were missing, and officials feared that the toll would rise further as emergency personnel searched the site.`\
+https://nytimes.com/2024/06/24/world/asia/lithium-battery-fire-south-korea.html
+
 **Apple Is First Company Charged Under New E.U. Competition Law**\
 `The company’s App Store policies are illegal under the European Union’s Digital Markets Act, according to regulators in Brussels.`\
 https://nytimes.com/2024/06/24/technology/apple-european-union-competition-law.html
