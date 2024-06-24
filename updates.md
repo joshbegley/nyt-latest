@@ -1,3 +1,7 @@
+**Why Nottingham Forest aren't ready to give up on Ibrahim Sangare**\
+`The Ivorian midfielder struggled to make an impact following his move from PSV but Forest are there are signs his quality may shine through`\
+https://nytimes.com/athletic/5564710/2024/06/24/ibrahim-sangare-nottingham-forest-future/
+
 **Man United squad audit: Who should stay and who should go?**\
 `Almost half of United’s first-team squad are set to be out of contract by the end of the campaign - so what should they do?`\
 https://nytimes.com/athletic/5578436/2024/06/24/manchester-united-squad-audit/
