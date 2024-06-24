@@ -1,3 +1,7 @@
+**Visiting Brazil's 1994 'holy site' in Pasadena ahead of their start in the Copa America**\
+`If the Selecao are to triumph this summer, channelling the determined spirit of the 1994 World Cup team might be a useful approach`\
+https://nytimes.com/athletic/5585880/2024/06/24/brazil-copa-america-rose-bowl-world-cup-94/
+
 **Word of the Day: expatriate**\
 `This word has appeared in 39 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/06/24/learning/word-of-the-day-expatriate.html
