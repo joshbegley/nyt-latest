@@ -1,3 +1,7 @@
+**Judge Skeptical About Request to Limit Trump Statements on F.B.I.**\
+`Judge Aileen Cannon posed tough questions to prosecutors who want to bar the former president from making inflammatory remarks about the agents who searched Mar-a-Lago in the documents case.`\
+https://nytimes.com/2024/06/24/us/politics/judge-trump-statements-fbi.html
+
 **Israeli Strike Kills Health Official, Gazans Say, as Gallant Visits U.S.**\
 `Israel’s defense minister, Yoav Gallant, was meeting with the C.I.A. director and the secretary of state on Monday as Israel signaled a potential shift in its military campaign in Gaza.`\
 https://nytimes.com/2024/06/24/world/middleeast/israeli-strike-gallant-us.html
