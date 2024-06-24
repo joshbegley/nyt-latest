@@ -1,3 +1,15 @@
+**NASCAR expected to make multiple changes to 2025 playoff schedule**\
+`Three tracks are on the way out as Darlington is expected to return to the playoff rotation along with two other new tracks, sources say.`\
+https://nytimes.com/athletic/5587380/2024/06/24/nascar-2025-playoff-schedule-changes/
+
+**Mabe Fratti, a Spark in Mexico City’s Experimental Music Scene**\
+`The singer, cellist and composer has found inspiration in the city’s flourishing avant-garde. Her new LP, “Sentir Que No Sabes,” wrestles with the idea of progress.`\
+https://nytimes.com/2024/06/24/arts/music/mabe-fratti-sentir-que-no-sabes.html
+
+**Israel talks of a new phase in the Gaza war. What does that mean?**\
+`By Patrick Kingsley`\
+https://nytimes.com/live/2024/06/24/world/israel-gaza-war-hamas/israel-hamas-hezbollah-analysis
+
 **In Greece, Another Tourist Found Dead Amid Scorching Heat Wave**\
 `At least 10 foreign tourists have gone missing or been found dead this year in Greece after going for a hike, often in scorching temperatures.`\
 https://nytimes.com/2024/06/24/world/europe/greece-heat-tourist-deaths.html
@@ -18,23 +30,11 @@ https://nytimes.com/athletic/5587222/2024/06/24/ronald-araujo-copa-america-urugu
 `When candidates take to a lectern, we are there to fact-check their claims and bring you the truth.`\
 https://nytimes.com/2024/06/24/insider/new-york-times-fact-checks-candidates.html
 
-**2 Candidates. No Audience. 60 New York Times Reporters.**\
-`This includes 29 fact-checkers. Here’s how we plan to cover the presidential debate.`\
+**2 Candidates. No Audience. 29 New York Times Fact-Checkers.**\
+`We’ll have 60 Times reporters. Here’s how we plan to cover the presidential debate.`\
 https://nytimes.com/2024/06/24/insider/trump-biden-debate-new-york-times-coverage.html
 
 **MLS attendance up 12 percent: Which teams are up the most**\
 `Attendance at MLS matches is up 12% compared to data up to the same date in 2023, the league announced on Monday.`\
 https://nytimes.com/athletic/5587245/2024/06/24/mls-attendance-rise/
-
-**Lyon in bid for Canada defender Bombito**\
-`Lyon has launched a bid to sign Canadian center-back Moise Bombito from the Colorado Rapids, sources briefed on the talks tell The Athletic.`\
-https://nytimes.com/athletic/5587250/2024/06/24/moise-bombito-lyon-transfer-rapids/
-
-**Slovenia to make late call on Sesko for England game**\
-`Slovenia head coach Matjaz Kek says he will make a late call on Benjamin Sesko&#8217;s fitness for the game with England on Tuesday.`\
-https://nytimes.com/athletic/5587289/2024/06/24/slovenia-england-team-news-sesko/
-
-**How often do NBA lottery picks hit? Plus, Cavaliers hire Kenny Atkinson as head coach**\
-`Zach Harper and Shams Charania catch you up on leaguewide news.`\
-https://nytimes.com/athletic/5587185/2024/06/24/nba-draft-cavaliers-kenny-atkinson-the-bounce/
 

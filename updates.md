@@ -1,3 +1,19 @@
+**NASCAR expected to make multiple changes to 2025 playoff schedule**\
+`Three tracks are on the way out as Darlington is expected to return to the playoff rotation along with two other new tracks, sources say.`\
+https://nytimes.com/athletic/5587380/2024/06/24/nascar-2025-playoff-schedule-changes/
+
+**Mabe Fratti, a Spark in Mexico City’s Experimental Music Scene**\
+`The singer, cellist and composer has found inspiration in the city’s flourishing avant-garde. Her new LP, “Sentir Que No Sabes,” wrestles with the idea of progress.`\
+https://nytimes.com/2024/06/24/arts/music/mabe-fratti-sentir-que-no-sabes.html
+
+**Israel talks of a new phase in the Gaza war. What does that mean?**\
+`By Patrick Kingsley`\
+https://nytimes.com/live/2024/06/24/world/israel-gaza-war-hamas/israel-hamas-hezbollah-analysis
+
+**2 Candidates. No Audience. 29 New York Times Fact-Checkers.**\
+`We’ll have 60 Times reporters. Here’s how we plan to cover the presidential debate.`\
+https://nytimes.com/2024/06/24/insider/trump-biden-debate-new-york-times-coverage.html
+
 **In Greece, Another Tourist Found Dead Amid Scorching Heat Wave**\
 `At least 10 foreign tourists have gone missing or been found dead this year in Greece after going for a hike, often in scorching temperatures.`\
 https://nytimes.com/2024/06/24/world/europe/greece-heat-tourist-deaths.html
