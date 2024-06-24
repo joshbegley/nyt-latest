@@ -1,3 +1,7 @@
+**History shows Bulls have options at No. 11 of NBA Draft**\
+`Is this a weak draft? There have been some good players selected 10-20 in the last 10 years.`\
+https://nytimes.com/athletic/5586867/2024/06/24/bulls-nba-draft-history-no-11/
+
 **Virginia Woolf, but Make It a Polyphonic, Sensory Ballet**\
 `American Ballet Theater brings Wayne McGregor’s “Woolf Works,” which evokes elements of three novels and the writer’s biography, to New York.`\
 https://nytimes.com/2024/06/24/arts/dance/woolf-works-abt.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/24/well/live/menopause-ovaries-womens-health-longevi
 **Extreme Wildfires Have Doubled in 2 Decades, Study Finds**\
 `In a changing climate, extreme wildfire events are becoming far more common and more intense, according to a new analysis.`\
 https://nytimes.com/2024/06/24/climate/extreme-wildfires-have-doubled-in-2-decades-study-finds.html
-
-**Texas to relaunch Longhorn Network as streaming service upon move to SEC**\
-`LHN became a catalyst in conference realignment upon its original launch. Now it will take a new form as Texas joins the SEC.`\
-https://nytimes.com/athletic/5587085/2024/06/24/longhorn-network-channel-texas-sec/
 
