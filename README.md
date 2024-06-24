@@ -1,3 +1,7 @@
+**San Diego Wave parts company with head coach Stoney**\
+`San Diego Wave has parted company with head coach Casey Stoney.`\
+https://nytimes.com/athletic/5587827/2024/06/24/casey-stoney-san-diego-wave-departs/
+
 **Hamas Skimmed $1 Billion in U.N. Aid for Weapons and Tunnels, Suit Says**\
 `About 100 Israelis sued the United Nations Relief and Works Agency, saying it pays local employees in dollars that buoy the terrorist group. But the case faces high legal hurdles.`\
 https://nytimes.com/2024/06/24/nyregion/unrwa-lawsuit-hamas-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/24/movies/lion-king-simba-jason-weaver.html
 **What Works for Golf Works for Life**\
 `In the long run, consistency and skill tend to win out over luck.`\
 https://nytimes.com/2024/06/24/opinion/golf-mark-broadie-mcilroy.html
-
-**Sabres offseason roadmap, part 3: Fixing the depth chart with trades and free agents**\
-`What trades might Sabres GM Kevyn Adams be able to pull off? Will Lindy Ruff’s presence convince free agents to take a chance in Buffalo?`\
-https://nytimes.com/athletic/5587246/2024/06/24/sabres-offseason-nhl-trades-free-agent/
 
