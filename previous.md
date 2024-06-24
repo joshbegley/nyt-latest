@@ -1,3 +1,7 @@
+**F1 of the Water? Yachts Race at the Statue of Liberty.**\
+`Thousands of spectators turned out over the weekend for SailGP, which brought a high-speed competition, and lots of champagne, to the New York Harbor.`\
+https://nytimes.com/2024/06/24/style/sailgp-new-york.html
+
 **More Than 1,300 Die During Extremely Hot Hajj Pilgrimage**\
 `A Saudi official said most of the deaths involved unregistered pilgrims who lacked access to certain amenities available to those with permits, such as air-conditioned buses and tents.`\
 https://nytimes.com/video/world/middleeast/100000009537512/hajj-pilgrims-deaths-saudi-arabia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/24/nyregion/unrwa-lawsuit-hamas-gaza.html
 **Will Lewis Says He Helped Hacking Investigation. Scotland Yard Had Doubts.**\
 `Mr. Lewis, now the Washington Post publisher, gave ‘green light’ to delete News Corp. emails during a major journalism scandal.`\
 https://nytimes.com/2024/06/24/world/europe/will-lewis-phone-hacking.html
-
-**Inside Biden’s Camp David Debate Prep**\
-`President Biden’s aides are working to position him as a campaign-season fighter who can counterpunch on the fly and combat voters’ concerns about his age.`\
-https://nytimes.com/2024/06/24/us/politics/biden-trump-debate-camp-david.html
 
