@@ -7,7 +7,7 @@ https://nytimes.com/2024/06/24/technology/apple-european-union-competition-law.h
 https://nytimes.com/2024/06/24/style/paris-vogue-world.html
 
 **Fire at Lithium Battery Plant in South Korea Kills at Least 16**\
-`Six other workers were missing, and officials feared that the death toll would rise as emergency personnel searched the site.`\
+`Six other workers were missing, and officials feared that the toll would rise further as emergency personnel searched the site.`\
 https://nytimes.com/2024/06/24/world/asia/lithium-battery-fire-south-korea.html
 
 **Yoav Gallant plans to meet with the secretary of state and other top U.S. officials this week.**\
