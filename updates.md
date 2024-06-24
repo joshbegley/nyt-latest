@@ -1,3 +1,7 @@
+**Philippines Drops Charges Against Leila de Lima, Prominent Duterte Critic**\
+`Leila de Lima was detained for six years on drug charges after she fiercely opposed then-President Rodrigo Duterte’s bloody war on drugs.`\
+https://nytimes.com/2024/06/24/world/asia/philippines-leila-de-lima-duterte.html
+
 **Fire at Lithium Battery Plant in South Korea Kills at Least 16**\
 `Six other workers were missing, and officials feared that the toll would rise further as emergency personnel searched the site.`\
 https://nytimes.com/2024/06/24/world/asia/lithium-battery-fire-south-korea.html
