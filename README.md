@@ -1,3 +1,7 @@
+**France, racial politics and why 'the Mbappe effect' is shaping a bitter election**\
+`France is divided ahead of a seismic vote, with the far right on the rise. Now its football team have entered the debate`\
+https://nytimes.com/athletic/5584608/2024/06/24/france-kylian-mbappe-election-euro-2024/
+
 **A busy summer for Man City, Man Utd uncertainty: What to expect as the WSL transfer window opens**\
 `Manchester City have plenty of work to do in the summer window, while uncertainty surrounds the future of multiple Manchester United players`\
 https://nytimes.com/athletic/5582869/2024/06/24/wsl-transfer-window-signings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5583598/2024/06/24/oilers-panthers-stanley-cup-fina
 **Noah Lyles wins men's 100m at U.S. Olympic track trials**\
 `Lyles posted a lifetime best in Sunday’s final, running the 100 in 9.83 seconds in the marquee event of Day 3 at the trials.`\
 https://nytimes.com/athletic/5585956/2024/06/23/noah-lyles-mens-100-meter-olympic-trials/
-
-**Takeaways from Uruguay 3-1 Panama: Marcelo Bielsa's side shows their quality**\
-`Bielsa-ball comes to Copa America `\
-https://nytimes.com/athletic/5585471/2024/06/23/uruguay-panama-copa-america/
 
