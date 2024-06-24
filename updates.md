@@ -1,3 +1,11 @@
+**Lakers officially name JJ Redick head coach**\
+`Redick spent 15 seasons in the NBA with six teams, most notably the Orlando Magic and LA Clippers.`\
+https://nytimes.com/athletic/5587872/2024/06/24/lakers-jj-redick-head-coach/
+
+**Former Officer Pleads Guilty to Killing Woman in Ex-Girlfriend’s Home**\
+`Yvonne Wu was waiting inside her ex-girlfriend’s apartment in Brooklyn when she came home with a friend. Ms. Wu turned her service gun on the two women.`\
+https://nytimes.com/2024/06/24/nyregion/nypd-officer-shooting-plea.html
+
 **La inteligencia artificial mejora rápidamente. ¿Puedes distinguir lo que es real?**\
 `Pon a prueba tus habilidades en este test.`\
 https://nytimes.com/interactive/2024/06/24/technology/test-imagenes-falsas-IA-midjourney-facebook.html
