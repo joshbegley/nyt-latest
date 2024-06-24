@@ -1,3 +1,7 @@
+**Cubs honor Hall of Famer Ryne Sandberg, unveil statue outside Wrigley Field**\
+`On the 40th anniversary of the "Sandberg Game," he was immortalized in bronze with former Cubs' legends Jenkins, Banks, Santo and Williams.`\
+https://nytimes.com/athletic/5585566/2024/06/23/cubs-ryne-sandberg-statue-wrigley/
+
 **'Grooving and smooth': Pablo López looks like himself after helpful bullpen session**\
 `After simplifying things earlier in the week, López pitched eight scoreless innings with 14 strikeouts on Sunday against the A's. `\
 https://nytimes.com/athletic/5585677/2024/06/23/twins-pablo-lopez-grooving-smooth/
