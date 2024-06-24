@@ -1,3 +1,11 @@
+**What next for Martinelli, a player on the fringes for Arsenal and Brazil?**\
+`The forward is on the fringes for club and country after a difficult few months`\
+https://nytimes.com/athletic/5581425/2024/06/24/gabriel-martinelli-brazil-arsenal/
+
+**37 facts for Lionel Messi's 37th birthday**\
+`A selection of stats, facts and trivia about one of the greatest footballers to have ever played the game`\
+https://nytimes.com/athletic/5581023/2024/06/24/lionel-messi-birthday-facts-2/
+
 **Monday Briefing**\
 `Benjamin Netanyahu said the intensive phase of Israel’s war with Hamas “is about to end.”`\
 https://nytimes.com/2024/06/24/briefing/israel-gaza-new-phase.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5585909/2024/06/23/mets-edwin-diaz-ejected-sticky-s
 **Man Killed and Woman Critically Injured in Triple Stabbing in Manhattan**\
 `A 30-year-old man was in custody in connection with the stabbings in the East Village on Sunday, the police said.`\
 https://nytimes.com/2024/06/23/nyregion/stabbing-nyc-east-village.html
-
-**‘House of the Dragon’ Season 2, Episode 2 Recap: Sleep With One Eye Open**\
-`Aemond knows those assassins got the wrong prince. He says he feels flattered. He had also better watch his back.`\
-https://nytimes.com/2024/06/23/arts/television/house-of-the-dragon-recap-episode-2.html
-
-**F.B.I. Offers Reward for Information About New Mexico Wildfires**\
-`The agency said it was offering up to $10,000 for information that leads to the arrest and conviction of those “responsible for starting the fires.”`\
-https://nytimes.com/2024/06/23/us/new-mexico-wildfires-intentional.html
 
