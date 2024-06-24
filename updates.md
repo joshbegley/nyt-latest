@@ -1,3 +1,7 @@
+**No Apparent Motive in Arkansas Shooting, but the Reaction Is ‘So Personal’**\
+`The shooting in which a gunman killed four and injured 10 at a grocery store in a town of 3,400 appeared to be a “completely random, senseless act,” the police said Sunday.`\
+https://nytimes.com/2024/06/23/us/fordyce-arkansas-shooting-grocery-store.html
+
 **USMNT 2-0 Bolivia takeaways: Christian Pulisic sets the tone with set piece precision**\
 `The Athletic discusses the big talking points from USMNT and Bolivia's Group C clash`\
 https://nytimes.com/athletic/5585387/2024/06/23/usmnt-bolivia-takeaways-christian-pulisic/
