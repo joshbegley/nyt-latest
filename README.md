@@ -1,3 +1,11 @@
+**Lakers officially name JJ Redick head coach**\
+`Redick spent 15 seasons in the NBA with six teams, most notably the Orlando Magic and LA Clippers.`\
+https://nytimes.com/athletic/5587872/2024/06/24/lakers-jj-redick-head-coach/
+
+**Former Officer Pleads Guilty to Killing Woman in Ex-Girlfriend’s Home**\
+`Yvonne Wu was waiting inside her ex-girlfriend’s apartment in Brooklyn when she came home with a friend. Ms. Wu turned her service gun on the two women.`\
+https://nytimes.com/2024/06/24/nyregion/nypd-officer-shooting-plea.html
+
 **La inteligencia artificial mejora rápidamente. ¿Puedes distinguir lo que es real?**\
 `Pon a prueba tus habilidades en este test.`\
 https://nytimes.com/interactive/2024/06/24/technology/test-imagenes-falsas-IA-midjourney-facebook.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/24/us/politics/biden-trump-debate-camp-david.html
 **Why Mets closer Edwin Díaz wasn't allowed to wash away the sticky stuff**\
 `Source: Whether umpire grants permission to wash up or not depends on if the umpire feels the player crossed a line by being sticky.`\
 https://nytimes.com/athletic/5587682/2024/06/24/mets-edwin-diaz-ejection-sticky/
-
-**Southgate 'own biggest critic', tells England to ignore 'external noise'**\
-`Gareth Southgate has encouraged his players to block out the &#8220;external noise&#8221; and also admitted to being his &#8220;own biggest critic&#8221;.`\
-https://nytimes.com/athletic/5587771/2024/06/24/england-gareth-southgate-gary-lineker/
-
-**Why Do We Love ‘The Bear’ So Much?**\
-`The grit, the merch, the biceps. Charting the cultural phenomenon that sparked new interest in the people behind the scenes at restaurants — or at least, in their stuff.`\
-https://nytimes.com/2024/06/24/dining/the-bear-season-3.html
 
