@@ -1,3 +1,11 @@
+**Politicians Can Bend the Truth. Here’s How We Bend It Back.**\
+`When candidates take to a lectern, we are there to fact-check their claims and bring you the truth.`\
+https://nytimes.com/2024/06/24/insider/new-york-times-fact-checks-candidates.html
+
+**2 Candidates. No Audience. 60 New York Times Reporters.**\
+`This includes 29 fact-checkers. Here’s how we plan to cover the presidential debate.`\
+https://nytimes.com/2024/06/24/insider/trump-biden-debate-new-york-times-coverage.html
+
 **MLS attendance up 12 percent: Which teams are up the most**\
 `Attendance at MLS matches is up 12% compared to data up to the same date in 2023, the league announced on Monday.`\
 https://nytimes.com/athletic/5587245/2024/06/24/mls-attendance-rise/

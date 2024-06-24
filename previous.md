@@ -1,3 +1,11 @@
+**Politicians Can Bend the Truth. Here’s How We Bend It Back.**\
+`When candidates take to a lectern, we are there to fact-check their claims and bring you the truth.`\
+https://nytimes.com/2024/06/24/insider/new-york-times-fact-checks-candidates.html
+
+**2 Candidates. No Audience. 60 New York Times Reporters.**\
+`This includes 29 fact-checkers. Here’s how we plan to cover the presidential debate.`\
+https://nytimes.com/2024/06/24/insider/trump-biden-debate-new-york-times-coverage.html
+
 **MLS attendance up 12 percent: Which teams are up the most**\
 `Attendance at MLS matches is up 12% compared to data up to the same date in 2023, the league announced on Monday.`\
 https://nytimes.com/athletic/5587245/2024/06/24/mls-attendance-rise/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/24/arts/music/popcast-charli-xcx-brat.html
 **Hollywood Sharpens Aim at Online Pirates**\
 `Major U.S. entertainment companies are hiring a former top F.B.I. official and renewing a push for federal legislation to combat online thievery overseas.`\
 https://nytimes.com/2024/06/24/business/hollywood-piracy.html
-
-**NBA Mock Draft: What are the Hawks up to? That mystery hovers over this week**\
-`Zaccharie Risacher? Donovan Clingan? Alex Sarr? A trade? Atlanta holds all the cards, and few have a sense for how it'll play them.`\
-https://nytimes.com/athletic/5581150/2024/06/24/nba-mock-draft-2024-hawks-pick/
-
-**Should Social Media Come With Warning Labels?**\
-`Responses to a guest essay by Vivek H. Murthy, the surgeon general. Also: A debate suggestion; the real choice in the election; stepmothers.`\
-https://nytimes.com/2024/06/24/opinion/social-media-warning-labels.html
 
