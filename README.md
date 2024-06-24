@@ -1,3 +1,7 @@
+**Mbappe 'raring to go' ahead of possible France return**\
+`Didier Deschamps says Kylian Mbappe is &#8220;raring to go&#8221; ahead of a possible return for France against Poland on Tuesday.`\
+https://nytimes.com/athletic/5587439/2024/06/24/kylian-mbappe-nose-france-return/
+
 **The Voters Watching the Debate With a Hand Over Their Eyes**\
 `“This is the most apprehensive I’ve felt about a presidential debate,” said one voter who usually supports Democrats. “I sense a disaster in the making where neither will look presidential.”`\
 https://nytimes.com/2024/06/24/us/politics/biden-trump-debate-voters-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5587222/2024/06/24/ronald-araujo-copa-america-urugu
 **Politicians Can Bend the Truth. Here’s How We Bend It Back.**\
 `When candidates take to a lectern, we are there to fact-check their claims and bring you the truth.`\
 https://nytimes.com/2024/06/24/insider/new-york-times-fact-checks-candidates.html
-
-**2 Candidates. No Audience. 29 New York Times Fact-Checkers.**\
-`We’ll have 60 Times reporters. Here’s how we plan to cover the presidential debate.`\
-https://nytimes.com/2024/06/24/insider/trump-biden-debate-new-york-times-coverage.html
 
