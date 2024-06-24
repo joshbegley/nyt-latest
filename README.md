@@ -1,3 +1,7 @@
+**'Grooving and smooth': Pablo López looks like himself after helpful bullpen session**\
+`After simplifying things earlier in the week, López pitched eight scoreless innings with 14 strikeouts on Sunday against the A's. `\
+https://nytimes.com/athletic/5585677/2024/06/23/twins-pablo-lopez-grooving-smooth/
+
 **USMNT 2-0 Bolivia takeaways: Christian Pulisic sets the tone with set piece precision**\
 `The Athletic discusses the big talking points from USMNT and Bolivia's Group C clash`\
 https://nytimes.com/athletic/5585387/2024/06/23/usmnt-bolivia-takeaways-christian-pulisic/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5585512/2024/06/23/angel-reese-caitlin-clark-fever-
 **Older adults in Philadelphia look for help staying cool.**\
 `By Jon Hurdle and Isabelle Taft`\
 https://nytimes.com/live/2024/06/23/us/heat-wave-news/older-adults-in-philadelphia-look-for-help-staying-cool
-
-**Netanyahu says the war’s intensive phase is coming to an end.**\
-`By Isabel Kershner`\
-https://nytimes.com/live/2024/06/23/world/israel-gaza-war-hamas/netanyahu-says-the-wars-intensive-phase-is-coming-to-an-end
 
