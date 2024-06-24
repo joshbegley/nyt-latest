@@ -1,3 +1,7 @@
+**‘It’s All Happening Again.’ The Supply Chain Is Under Strain.**\
+`As Houthi rebels intensify strikes on vessels headed for the Suez Canal, global shipping prices are soaring, raising fears of product shortages and delays.`\
+https://nytimes.com/2024/06/24/business/global-shipping-rates.html
+
 **More Than 1,000 Hajj Pilgrims Died. Here’s What to Know.**\
 `The number of deaths during the annual Islamic pilgrimage raised questions about Saudi Arabia’s preparations for intense heat and unregistered participants.`\
 https://nytimes.com/2024/06/24/world/europe/hajj-mecca-explainer.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5586014/2024/06/24/nhl-draft-hurricanes-tulsky/
 **Packers name Ed Policy as franchise's next president**\
 `Policy, currently the chief operating officer and general counsel, was unanimously approved by Green Bay's board of directors.`\
 https://nytimes.com/athletic/5586922/2024/06/24/ed-policy-packers-president-mark-murphy/
-
-**Ten overpriced NHL contracts teams could trade this offseason**\
-`As teams look to clear salary or give players a fresh start this summer, these undesirable contracts are worth keeping an eye on.`\
-https://nytimes.com/athletic/5585422/2024/06/24/nhl-contracts-teams-trade-offseason/
 
