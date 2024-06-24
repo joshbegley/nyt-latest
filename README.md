@@ -1,3 +1,15 @@
+**Virginia Woolf, but Make It a Polyphonic, Sensory Ballet**\
+`American Ballet Theater brings Wayne McGregor’s “Woolf Works,” which evokes elements of three novels and the writer’s biography, to New York.`\
+https://nytimes.com/2024/06/24/arts/dance/woolf-works-abt.html
+
+**Charli XCX’s ‘Brat’ Breakthrough**\
+`The pop songwriter’s sixth album is in some ways her most daring release yet. Improbably, it also yielded her best opening week.`\
+https://nytimes.com/2024/06/24/arts/music/popcast-charli-xcx-brat.html
+
+**Hollywood Sharpens Aim at Online Pirates**\
+`Major U.S. entertainment companies are hiring a former top F.B.I. official and renewing a push for federal legislation to combat online thievery overseas.`\
+https://nytimes.com/2024/06/24/business/hollywood-piracy.html
+
 **NBA Mock Draft: What are the Hawks up to? That mystery hovers over this week**\
 `Zaccharie Risacher? Donovan Clingan? Alex Sarr? A trade? Atlanta holds all the cards, and few have a sense for how it'll play them.`\
 https://nytimes.com/athletic/5581150/2024/06/24/nba-mock-draft-2024-hawks-pick/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/24/climate/extreme-wildfires-have-doubled-in-2-decad
 **Texas to relaunch Longhorn Network as streaming service upon move to SEC**\
 `LHN became a catalyst in conference realignment upon its original launch. Now it will take a new form as Texas joins the SEC.`\
 https://nytimes.com/athletic/5587085/2024/06/24/longhorn-network-channel-texas-sec/
-
-**The Windup: Where did baseball's offense go?**\
-`Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
-https://nytimes.com/athletic/5586978/2024/06/24/mlb-pitching-offense-blue-jays-suspension-the-windup/
-
-**Fearing Losses, Banks Are Quietly Dumping Real Estate Loans**\
-`If landlords can’t pay back loans on office buildings, the lenders will suffer. Some banks are trying to avoid that fate.`\
-https://nytimes.com/2024/06/24/business/commercial-real-estate-loans.html
-
-**Zion Grady is 10th top-100 prospect to commit to Ohio State**\
-`Grady, who originally committed to Alabama last November, picked the Buckeyes after visiting Columbus this past weekend.`\
-https://nytimes.com/athletic/5587004/2024/06/24/ohio-state-zion-grady-recruiting-commitment/
 
