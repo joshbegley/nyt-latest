@@ -1,3 +1,15 @@
+**Cavs nearing head coach decision: Sources**\
+`The team’s executives are set to present a four-year, $209 million maximum contract to Mitchell, team and league sources said.`\
+https://nytimes.com/athletic/5586028/2024/06/24/cleveland-cavaliers-coaching-search-donovan-mitchell-contract/
+
+**Joselu set to leave Real Madrid after receiving offer from Al Gharafa**\
+`Joselu is close to leaving Real Madrid after receiving an offer to play for Al Gharafa in Qatar.`\
+https://nytimes.com/athletic/5586516/2024/06/24/joselu-real-madrid-al-gharafa-transfer/
+
+**Eastern Conference executive evaluates seven Knicks' NBA Draft prospects**\
+`The Knicks have a type of player they like. Should any of these prospects be considered?`\
+https://nytimes.com/athletic/5585405/2024/06/24/knicks-nba-draft-prospects/
+
 **The Dobbs anniversary and the first debate will bookend this week.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/06/24/us/biden-trump-election-debate/the-dobbs-anniversary-and-the-first-debate-will-bookend-this-week

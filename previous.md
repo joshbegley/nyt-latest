@@ -1,3 +1,15 @@
+**Cavs nearing head coach decision: Sources**\
+`The team’s executives are set to present a four-year, $209 million maximum contract to Mitchell, team and league sources said.`\
+https://nytimes.com/athletic/5586028/2024/06/24/cleveland-cavaliers-coaching-search-donovan-mitchell-contract/
+
+**Joselu set to leave Real Madrid after receiving offer from Al Gharafa**\
+`Joselu is close to leaving Real Madrid after receiving an offer to play for Al Gharafa in Qatar.`\
+https://nytimes.com/athletic/5586516/2024/06/24/joselu-real-madrid-al-gharafa-transfer/
+
+**Eastern Conference executive evaluates seven Knicks' NBA Draft prospects**\
+`The Knicks have a type of player they like. Should any of these prospects be considered?`\
+https://nytimes.com/athletic/5585405/2024/06/24/knicks-nba-draft-prospects/
+
 **The Dobbs anniversary and the first debate will bookend this week.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/06/24/us/biden-trump-election-debate/the-dobbs-anniversary-and-the-first-debate-will-bookend-this-week
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5586165/2024/06/24/darwin-nunez-uruguay-panama-copa
 **Wild draft expert roundtable: Assessing 6 players Minnesota could land at No. 13**\
 `There's a very good chance Minnesota ends up with a skilled forward with its pick, unless one of the top defensemen drops.`\
 https://nytimes.com/athletic/5544128/2024/06/24/wild-draft-expert-roundtable/
-
-**Lowetide: Going into Game 7, Oilers veteran Ryan Nugent-Hopkins has seen it all**\
-`No one on the Oilers roster has played more games for the franchise than Nugent-Hopkins.`\
-https://nytimes.com/athletic/5585004/2024/06/24/oilers-ryan-nugent-hopkins-game-7/
-
-**The Athletic FC: No Pulisic, no party; Mbappe and political football in France**\
-`Today in The Athletic FC: Pulisic shows why he's USMNT poster boy with clever corner. Plus: Mbappe and Co wade into French politics.`\
-https://nytimes.com/athletic/5586360/2024/06/24/pulisic-bolivia-usmnt-corner-routine/
-
-**Gallagher set to replace Alexander-Arnold for Slovenia game**\
-`England manager Gareth Southgate is set to make a change to his midfield for Tuesday’s final group game at Euro 2024 by bringing in Conor Gallagher for Trent Alexander-Arnold.`\
-https://nytimes.com/athletic/5584013/2024/06/24/gallagher-alexander-arnold-england-team-news/
 
