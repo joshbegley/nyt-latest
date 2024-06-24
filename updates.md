@@ -1,3 +1,7 @@
+**‘It’s All Happening Again.’ The Supply Chain Is Under Strain.**\
+`As Houthi rebels intensify strikes on vessels headed for the Suez Canal, global shipping prices are soaring, raising fears of product shortages and delays.`\
+https://nytimes.com/2024/06/24/business/global-shipping-rates.html
+
 **More Than 1,000 Hajj Pilgrims Died. Here’s What to Know.**\
 `The number of deaths during the annual Islamic pilgrimage raised questions about Saudi Arabia’s preparations for intense heat and unregistered participants.`\
 https://nytimes.com/2024/06/24/world/europe/hajj-mecca-explainer.html
