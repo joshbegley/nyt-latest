@@ -1,3 +1,7 @@
+**NASCAR New Hampshire takeaways: Wet-weather tire dilemma, Christopher Bell shines**\
+`It's time for NASCAR to let teams make their own decisions on wet-weather tires, a win for Christopher Bell and more from New Hampshire.`\
+https://nytimes.com/athletic/5587115/2024/06/24/nascar-new-hampshire-takeaways-tires-christopher-bell/
+
 **The Governor’s Race You Cannot Ignore**\
 `North Carolina has a chance to overcome tribalism and hate in November.`\
 https://nytimes.com/live/2024/06/18/opinion/thepoint/north-carolina-governor-robinson-stein
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/24/us/politics/biden-trump-debate-voters-democrats.h
 **NASCAR expected to make multiple changes to 2025 playoff schedule**\
 `Three tracks are on the way out as Darlington is expected to return to the playoff rotation along with two other new tracks, sources say.`\
 https://nytimes.com/athletic/5587380/2024/06/24/nascar-2025-playoff-schedule-changes/
-
-**Mabe Fratti, a Spark in Mexico City’s Experimental Music Scene**\
-`The singer, cellist and composer has found inspiration in the city’s flourishing avant-garde. Her new LP, “Sentir Que No Sabes,” wrestles with the idea of progress.`\
-https://nytimes.com/2024/06/24/arts/music/mabe-fratti-sentir-que-no-sabes.html
 

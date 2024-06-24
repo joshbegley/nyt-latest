@@ -1,3 +1,7 @@
+**NASCAR New Hampshire takeaways: Wet-weather tire dilemma, Christopher Bell shines**\
+`It's time for NASCAR to let teams make their own decisions on wet-weather tires, a win for Christopher Bell and more from New Hampshire.`\
+https://nytimes.com/athletic/5587115/2024/06/24/nascar-new-hampshire-takeaways-tires-christopher-bell/
+
 **The Governor’s Race You Cannot Ignore**\
 `North Carolina has a chance to overcome tribalism and hate in November.`\
 https://nytimes.com/live/2024/06/18/opinion/thepoint/north-carolina-governor-robinson-stein
