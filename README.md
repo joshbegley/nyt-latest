@@ -1,3 +1,7 @@
+**Louisiana Parents Sue to Block Display of Ten Commandments in Schools**\
+`A law enacted last week requires the display of the commandments in every public classroom. The parents argued it “pressures students into religious observance.”`\
+https://nytimes.com/2024/06/24/us/louisiana-parents-ten-commandments.html
+
 **Tuesday Briefing: Dagestan Attack Revives Terrorism Fears in Russia**\
 `Also, a shift in Israel’s focus and extreme heat in Mecca.`\
 https://nytimes.com/2024/06/24/world/asia/dagestan-attack-israel-netanyahu-hajj-asia.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/06/24/technology/test-imagenes-falsas-IA-mi
 **Raptors' Barnes to sign 5-year max rookie extension**\
 `The Raptors' top selection in the 2021 NBA Draft, Barnes has emerged as a cornerstone of Toronto's future.`\
 https://nytimes.com/athletic/5587360/2024/06/24/scottie-barnes-extension-raptors-history-nba/
-
-**Frederick Crews, Withering Critic of Freud’s Legacy, Dies at 91**\
-`A literary critic, essayist and author, he was a leading voice among revisionist skeptics who saw Freud as a charlatan and psychoanalysis as a pseudoscience.`\
-https://nytimes.com/2024/06/24/books/frederick-crews-dead.html
 
