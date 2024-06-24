@@ -1,3 +1,7 @@
+**In Greece, Another Tourist Found Dead Amid Scorching Heat Wave**\
+`At least 10 foreign tourists have gone missing or been found dead this year in Greece after going for a hike, often in scorching temperatures.`\
+https://nytimes.com/2024/06/24/world/europe/greece-heat-tourist-deaths.html
+
 **Rapper Known as Julio Foolio Is Fatally Shot in Florida**\
 `The rapper, whose real name is Charles Jones, 26, had been celebrating his birthday at events that he had announced on social media.`\
 https://nytimes.com/2024/06/24/us/julio-foolio-rapper-shot.html
