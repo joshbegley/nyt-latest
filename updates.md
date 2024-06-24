@@ -1,3 +1,7 @@
+**F1 of the Water? Yachts Race at the Statue of Liberty.**\
+`Thousands of spectators turned out over the weekend for SailGP, which brought a high-speed competition, and lots of champagne, to the New York Harbor.`\
+https://nytimes.com/2024/06/24/style/nyc-sail-grand-pix-formula-1.html
+
 **Tuesday Briefing: Dagestan Attack Revives Terrorism Fears in Russia**\
 `Also, a shift in Israel’s focus and extreme heat in Mecca.`\
 https://nytimes.com/2024/06/24/world/asia/dagestan-attack-israel-netanyahu-hajj-asia.html
