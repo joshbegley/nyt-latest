@@ -1,3 +1,7 @@
+**Rudiger injury 'problematic' for Germany last-16 game**\
+`Antonio Rudiger could be a doubt for Germany&#8217;s last-16 game at the European Championship with a thigh injury.`\
+https://nytimes.com/athletic/5585631/2024/06/23/antonio-rudiger-injury-germany-last-16/
+
 **No Apparent Motive in Arkansas Shooting, but the Reaction Is ‘So Personal’**\
 `The shooting in which a gunman killed four and injured 10 at a grocery store in a town of 3,400 appeared to be a “completely random, senseless act,” the police said Sunday.`\
 https://nytimes.com/2024/06/23/us/fordyce-arkansas-shooting-grocery-store.html
