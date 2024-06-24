@@ -1,3 +1,11 @@
+**Chiefs to release Isaiah Buggs after second arrest this offseason**\
+`Buggs, 27, signed a futures contract with the Chiefs in February after spending last season on their practice squad.`\
+https://nytimes.com/athletic/5587079/2024/06/24/chiefs-release-isaiah-buggs-arrest/
+
+**Is Delaying Menopause the Key to Longevity?**\
+`Scientists are studying how to keep the ovaries working longer — and potentially, prevent age-related diseases in the process.`\
+https://nytimes.com/2024/06/24/well/live/menopause-ovaries-womens-health-longevity.html
+
 **Extreme Wildfires Have Doubled in 2 Decades, Study Finds**\
 `In a changing climate, extreme wildfire events are becoming far more common and more intense, according to a new analysis.`\
 https://nytimes.com/2024/06/24/climate/extreme-wildfires-have-doubled-in-2-decades-study-finds.html
