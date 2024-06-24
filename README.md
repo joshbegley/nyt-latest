@@ -1,4 +1,4 @@
-**Shaw back in England training ahead of Slovenia game**\
+**Shaw back in England team training ahead of Slovenia game**\
 `Luke Shaw will train today with his England team-mates ahead of their final European Championship group game against Slovenia tomorrow.`\
 https://nytimes.com/athletic/5586333/2024/06/24/luke-shaw-england-injury-slovenia/
 
