@@ -1,3 +1,15 @@
+**Why Mets closer Edwin Díaz wasn't allowed to wash away the sticky stuff**\
+`Source: Whether umpire grants permission to wash up or not depends on if the umpire feels the player crossed a line.`\
+https://nytimes.com/athletic/5587682/2024/06/24/mets-edwin-diaz-ejection-sticky/
+
+**Southgate 'own biggest critic', tells England to ignore 'external noise'**\
+`Gareth Southgate has encouraged his players to block out the &#8220;external noise&#8221; and also admitted to being his &#8220;own biggest critic&#8221;.`\
+https://nytimes.com/athletic/5587771/2024/06/24/england-gareth-southgate-gary-lineker/
+
+**Why Do We Love ‘The Bear’ So Much?**\
+`The grit, the merch, the biceps. Charting the cultural phenomenon that sparked new interest in the people behind the scenes at restaurants — or at least, in their stuff.`\
+https://nytimes.com/2024/06/24/dining/the-bear-season-3.html
+
 **They Came to See Trump. First They Heard a Pitch to Buy Gold and Silver.**\
 `At a recent campaign speech, one of Donald Trump’s warm-up acts was a precious metals salesman being sued by federal regulators for fraud.`\
 https://nytimes.com/2024/06/24/us/they-came-to-see-trump-first-they-heard-a-pitch-to-buy-gold-and-silver.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/24/us/tamayo-perry-dead-hawaii-shark-attack.html
 **Pinto or a second-round pick? An Ullmark extension changes his trade value**\
 `With the draft and free agency looming, Ullmark could be entering his final hours with the Bruins. What will they be able to get in return?`\
 https://nytimes.com/athletic/5587350/2024/06/24/bruins-linus-ullmark-trade-value/
-
-**Man Pleads Guilty in Home Invasion Using Fake Deadly Virus**\
-`Stefan Alexandru Barabas, 38, pleaded guilty to extortion after threatening a multimillionaire in her Connecticut home in 2007.`\
-https://nytimes.com/2024/06/24/nyregion/connecticut-home-invasion-hostage-virus.html
-
-**Barnabas Varga’s ‘nightmare’ collision - and how Hungary rallied around him**\
-`Everyone feared the worst after a sickening collision knocked the popular and prolific forward unconscious `\
-https://nytimes.com/athletic/5587431/2024/06/24/barnabas-varga-hungary-euro2024-injury-scotland/
-
-**Earthquakes fire head coach Gonzalez**\
-`The San Jose Earthquakes have fired head coach Luchi Gonzalez, the club announced.`\
-https://nytimes.com/athletic/5587553/2024/06/24/san-jose-earthquakes-fire-gonzalez/
 
