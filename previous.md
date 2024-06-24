@@ -1,3 +1,11 @@
+**The Connections Companion No. 380, June 25, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/24/crosswords/connections-companion-380.html
+
+**Wordle Review No. 1,102, June 25, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/24/crosswords/wordle-review-1102.html
+
 **Shaw back in England team training ahead of Slovenia game**\
 `Luke Shaw will train today with his England team-mates ahead of their final European Championship group game against Slovenia tomorrow.`\
 https://nytimes.com/athletic/5586333/2024/06/24/luke-shaw-england-injury-slovenia/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/24/us/heat-wave-temperatures-forecast.html
 **Take The Athletic's Wisconsin football fan survey**\
 `Which game in 2024 is most important for Wisconsin? Which positions will be strengths and weaknesses? Share your thoughts in a survey.`\
 https://nytimes.com/athletic/5581627/2024/06/24/wisconsin-football-luke-fickell-fans/
-
-**‘Are You Seeing Any New Signs Biden Can Beat Trump?’**\
-`No. That’s why Thursday’s debate is so important.`\
-https://nytimes.com/live/2024/06/18/opinion/thepoint/tipsheet-biden-trump-debate
-
-**How to Win a Presidential Debate**\
-`I’ve studied voter reaction and opinions about every presidential debate since 1992. This is what to do and not to do.`\
-https://nytimes.com/2024/06/24/opinion/biden-trump-debate.html
 

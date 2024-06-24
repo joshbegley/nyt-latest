@@ -1,3 +1,11 @@
+**The Connections Companion No. 380, June 25, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/24/crosswords/connections-companion-380.html
+
+**Wordle Review No. 1,102, June 25, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/24/crosswords/wordle-review-1102.html
+
 **Shaw back in England team training ahead of Slovenia game**\
 `Luke Shaw will train today with his England team-mates ahead of their final European Championship group game against Slovenia tomorrow.`\
 https://nytimes.com/athletic/5586333/2024/06/24/luke-shaw-england-injury-slovenia/
