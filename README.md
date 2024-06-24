@@ -4,7 +4,7 @@ https://nytimes.com/2024/06/24/insider/covid-changed-everything-including-how-we
 
 **Louisiana Parents Sue to Block Display of Ten Commandments in Schools**\
 `A law enacted last week requires the display of the commandments in every public classroom. The parents argued it “pressures students into religious observance.”`\
-https://nytimes.com/2024/06/24/us/louisiana-parents-ten-commandments.html
+https://nytimes.com/2024/06/24/us/louisiana-ten-commandments-lawsuit.html
 
 **Tuesday Briefing: Dagestan Attack Revives Terrorism Fears in Russia**\
 `Also, a shift in Israel’s focus and extreme heat in Mecca.`\
