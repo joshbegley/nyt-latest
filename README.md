@@ -1,3 +1,15 @@
+**A busy summer for Man City, Man Utd uncertainty: What to expect as the WSL transfer window opens**\
+`Manchester City have plenty of work to do in the summer window, while uncertainty surrounds the future of multiple Manchester United players`\
+https://nytimes.com/athletic/5582869/2024/06/24/wsl-transfer-window-signings/
+
+**How are Chelsea, Villa, Newcastle, Everton, Leicester & Forest tackling PSR deadline?**\
+`The June 30 PSR deadline is approaching, and Premier League clubs have issues to resolve before then`\
+https://nytimes.com/athletic/5581527/2024/06/24/chelsea-villa-everton-newcastle-psr-deadline/
+
+**Pepe is Portugal’s ageless wonder - and older than a third of the nations at Euro 2024**\
+`Pepe was Portugal's future once. He’s still the present. Good luck telling him that he’s the past`\
+https://nytimes.com/athletic/5584123/2024/06/24/pepe-portugal-euro-2024/
+
 **What next for Martinelli, a player on the fringes for Arsenal and Brazil?**\
 `The forward is on the fringes for club and country after a difficult few months`\
 https://nytimes.com/athletic/5581425/2024/06/24/gabriel-martinelli-brazil-arsenal/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5585956/2024/06/23/noah-lyles-mens-100-meter-olympi
 **Takeaways from Uruguay 3-1 Panama: Marcelo Bielsa's side shows their quality**\
 `Bielsa-ball comes to Copa America `\
 https://nytimes.com/athletic/5585471/2024/06/23/uruguay-panama-copa-america/
-
-**Quincy Wilson, 16, qualifies for 400m final**\
-`Wilson's weekend started with a time of 44.66 on Friday night in round one, which broke Darrell Robinson's 42-year-old high school record.`\
-https://nytimes.com/athletic/5585885/2024/06/23/quincy-wilson-400-meter-olympic-trials-teenager/
-
-**Mets' Díaz ejected for sticky stuff, will face automatic 10-game suspension**\
-`Díaz recently returned from the injured list with improved results`\
-https://nytimes.com/athletic/5585909/2024/06/23/mets-edwin-diaz-ejected-sticky-stuff/
-
-**Man Killed and Woman Critically Injured in Triple Stabbing in Manhattan**\
-`A 30-year-old man was in custody in connection with the stabbings in the East Village on Sunday, the police said.`\
-https://nytimes.com/2024/06/23/nyregion/stabbing-nyc-east-village.html
 
