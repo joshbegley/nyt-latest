@@ -1,3 +1,15 @@
+**Will Lewis Says He Helped Hacking Investigation. Scotland Yard Had Doubts.**\
+`Mr. Lewis, now the Washington Post publisher, gave ‘green light’ to delete News Corp. emails during a major journalism scandal.`\
+https://nytimes.com/2024/06/24/world/europe/will-lewis-phone-hacking.html
+
+**Inside Biden’s Camp David Debate Prep**\
+`President Biden’s aides are working to position him as a campaign-season fighter who can counterpunch on the fly and combat voters’ concerns about his age.`\
+https://nytimes.com/2024/06/24/us/politics/biden-trump-debate-camp-david.html
+
+**Why Mets closer Edwin Díaz wasn't allowed to wash away the sticky stuff**\
+`Source: Whether umpire grants permission to wash up or not depends on if the umpire feels the player crossed a line by being sticky.`\
+https://nytimes.com/athletic/5587682/2024/06/24/mets-edwin-diaz-ejection-sticky/
+
 **Why Mets closer Edwin Díaz wasn't allowed to wash away the sticky stuff**\
 `Source: Whether umpire grants permission to wash up or not depends on if the umpire feels the player crossed a line.`\
 https://nytimes.com/athletic/5587682/2024/06/24/mets-edwin-diaz-ejection-sticky/
