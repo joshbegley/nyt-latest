@@ -1,3 +1,15 @@
+**Three Twins takeaways: Byron Buxton's bat, next man up in rotation, better hitting vs. righties**\
+`Three takeaways for the off day: With Chris Paddack in need of a breather, whom could the Twins tap to slide into the rotation in his stead?`\
+https://nytimes.com/athletic/5585786/2024/06/24/minnesota-twins-byron-buxton-chris-paddack/
+
+**Three Cubs takeaways as team continues to search for elusive hot streak**\
+`The Cubs aren't powerful with men on, Michael Busch is what the Cubs hoped for at first, and perspective on Pete Crow-Armstrong's struggles.`\
+https://nytimes.com/athletic/5586005/2024/06/24/cubs-takeaways-michael-busch-pete-crow-armstrong/
+
+**The USMNT players who could change clubs this summer**\
+`It may not be as busy as last summer was for members of the USMNT on the move, but there is once again potential for a lot of changes`\
+https://nytimes.com/athletic/5586002/2024/06/24/usmnt-transfers-mckennie-reyna/
+
 **The Deadly Flooding Tearing Through Southern China, in Photos**\
 `The city of Meizhou reported a “once-in-a-century” flood, with at least 38 people dying in one county alone.`\
 https://nytimes.com/2024/06/24/world/asia/china-flooding-landslides-weather.html
