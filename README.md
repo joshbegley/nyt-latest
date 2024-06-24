@@ -1,3 +1,7 @@
+**San Francisco Giants week in review: The loss of a legend and on-field losses pile up**\
+`The week had a somber tone with the passing of Willie Mays, and the team also struggled to execute well on the field.`\
+https://nytimes.com/athletic/5571688/2024/06/24/sf-giants-week-review-willie-mays-tribute-losing-streak/
+
 **A Global Push Fixed the Ozone Hole. Satellites Could Threaten It.**\
 `A sharp increase in hardware orbiting Earth could mean more harmful metals lingering in the atmosphere, according to a new study.`\
 https://nytimes.com/2024/06/24/climate/ozone-satellites.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/24/arts/crab-god-riven-rabbids.html
 **Monday's MLB odds and predictions: Best and worst starting pitchers, home run streaks and more**\
 `Check in on our Monday MLB projections with odds for every game, picks for best value bets, pitcher props and more.`\
 https://nytimes.com/athletic/5586796/2024/06/24/mlb-odds-predictions-best-bets-june-24/
-
-**The Chef Is Human. The Reviewer Isn’t.**\
-`A new study showed people real restaurant reviews and ones produced by A.I. They couldn’t tell the difference.`\
-https://nytimes.com/2024/06/24/dining/ai-restaurant-reviews.html
 
