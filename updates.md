@@ -1,3 +1,15 @@
+**Slovenia to make late call on Sesko for England game**\
+`Slovenia head coach Matjaz Kek says he will make a late call on Benjamin Sesko&#8217;s fitness for the game with England on Tuesday.`\
+https://nytimes.com/athletic/5587289/2024/06/24/slovenia-england-team-news-sesko/
+
+**How often do NBA lottery picks hit? Plus, Cavaliers hire Kenny Atkinson as head coach**\
+`Zach Harper and Shams Charania catch you up on leaguewide news.`\
+https://nytimes.com/athletic/5587185/2024/06/24/nba-draft-cavaliers-kenny-atkinson-the-bounce/
+
+**C.E.O.s Are Frustrated With Biden. That Doesn’t Mean They Embrace Trump.**\
+`Corporate executives complain about some of President Biden’s policies, along with his rhetoric. But so far they have not abandoned him en masse.`\
+https://nytimes.com/2024/06/24/business/economy/biden-trump-ceos.html
+
 **History shows Bulls have options at No. 11 of NBA Draft**\
 `Is this a weak draft? There have been some good players selected 10-20 in the last 10 years.`\
 https://nytimes.com/athletic/5586867/2024/06/24/bulls-nba-draft-history-no-11/
