@@ -1,3 +1,7 @@
+**'One of the worst things': How Grigor Dimitrov shook off 'Baby Fed' label to find himself**\
+`Ten years ago, Grigor Dimitrov was a baby-faced showman ready to take over tennis. He's done it — just not how he or the world expected`\
+https://nytimes.com/athletic/5575879/2024/06/24/grigor-dimitrov-tennis-interview/
+
 **Quincy Wilson is no superhero, but at 16, he's making magic at Olympic trials**\
 `Quincy Wilson isn't working with the benefit of vibranium. The 16-year-old is just that good — good enough to be on the brink of Paris.`\
 https://nytimes.com/athletic/5586286/2024/06/24/quincy-wilson-olympic-trials-16-400-meter/
