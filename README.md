@@ -1,3 +1,7 @@
+**Philippines Drops Charges Against Leila de Lima, Prominent Duterte Critic**\
+`Leila de Lima was detained for six years on drug charges after she fiercely opposed then-President Rodrigo Duterte’s bloody war on drugs.`\
+https://nytimes.com/2024/06/24/world/asia/philippines-leila-de-lima-duterte.html
+
 **Apple Is First Company Charged Under New E.U. Competition Law**\
 `The company’s App Store policies are illegal under the European Union’s Digital Markets Act, according to regulators in Brussels.`\
 https://nytimes.com/2024/06/24/technology/apple-european-union-competition-law.html
