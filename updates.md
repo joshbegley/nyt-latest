@@ -1,3 +1,11 @@
+**How Many Abortion Seekers Are Traveling to California**\
+`After the Supreme Court overturned Roe v. Wade and some states banned abortions altogether, many Americans began crossing state lines to get one.`\
+https://nytimes.com/2024/06/24/us/abortion-seekers-california.html
+
+**Unlikely Wild Animals Are Being Smuggled Into U.S. Ports: Corals**\
+`With the sea creatures making up a growing share of illegal animal seizures around the world, U.S. officials are working to overcome struggles to safely house them.`\
+https://nytimes.com/2024/06/24/science/coral-reef-trafficking-aquariums.html
+
 **'One of the worst things': How Grigor Dimitrov shook off 'Baby Fed' label to find himself**\
 `Ten years ago, Grigor Dimitrov was a baby-faced showman ready to take over tennis. He's done it — just not how he or the world expected`\
 https://nytimes.com/athletic/5575879/2024/06/24/grigor-dimitrov-tennis-interview/

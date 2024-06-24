@@ -1,3 +1,11 @@
+**How Many Abortion Seekers Are Traveling to California**\
+`After the Supreme Court overturned Roe v. Wade and some states banned abortions altogether, many Americans began crossing state lines to get one.`\
+https://nytimes.com/2024/06/24/us/abortion-seekers-california.html
+
+**Unlikely Wild Animals Are Being Smuggled Into U.S. Ports: Corals**\
+`With the sea creatures making up a growing share of illegal animal seizures around the world, U.S. officials are working to overcome struggles to safely house them.`\
+https://nytimes.com/2024/06/24/science/coral-reef-trafficking-aquariums.html
+
 **'One of the worst things': How Grigor Dimitrov shook off 'Baby Fed' label to find himself**\
 `Ten years ago, Grigor Dimitrov was a baby-faced showman ready to take over tennis. He's done it — just not how he or the world expected`\
 https://nytimes.com/athletic/5575879/2024/06/24/grigor-dimitrov-tennis-interview/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5584013/2024/06/24/gallagher-alexander-arnold-engla
 **Princess Anne Hospitalized With Minor Injuries**\
 `The younger sister of King Charles III sustained a concussion after an incident on Sunday, Buckingham Palace said.`\
 https://nytimes.com/2024/06/24/world/europe/princess-anne-hospitalized-uk.html
-
-**Apple’s European Headache**\
-`The iPhone maker is the first U.S. tech giant charged with breaching the European Union’s Digital Markets Act, potentially exposing it to huge fines.`\
-https://nytimes.com/2024/06/24/business/dealbook/apple-europe-antitrust-dma.html
-
-**NBA Draft Confidential: Coaches, executives, scouts on Zaccharie Risacher and top forward prospects**\
-`Having multi-dimensional wings who can handle, shoot, facilitate and score and who can switch and defend is a must for NBA title contenders.`\
-https://nytimes.com/athletic/5582670/2024/06/24/nba-draft-confidential-2024-forwards/
 
