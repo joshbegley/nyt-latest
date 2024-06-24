@@ -18,10 +18,6 @@ https://nytimes.com/athletic/5583727/2024/06/24/lionel-messi-argentina-copa-amer
 `Fans were eagerly anticipating seeing the Gambian winger in action – but PSR rules mean he is up for sale`\
 https://nytimes.com/athletic/5577868/2024/06/24/newcastle-minteh-psr-transfer-alternatives/
 
-**Marcelo Bielsa: Brilliant, brutal, bewildering... and back with Uruguay**\
-`The ex-Leeds United manager has transformed Uruguay into Copa America contenders - just don't expect anything conventional`\
-https://nytimes.com/athletic/5585686/2024/06/24/marcelo-bielsa-uruguay-copa-america-leeds/
-
 **France, racial politics and why 'the Mbappe effect' is shaping a bitter election**\
 `France is divided ahead of a seismic vote, with the far right on the rise. Now its football team have entered the debate`\
 https://nytimes.com/athletic/5584608/2024/06/24/france-kylian-mbappe-election-euro-2024/
@@ -33,6 +29,10 @@ https://nytimes.com/athletic/5582869/2024/06/24/wsl-transfer-window-signings/
 **How are Chelsea, Villa, Newcastle, Everton, Leicester & Forest tackling PSR deadline?**\
 `The June 30 PSR deadline is approaching, and Premier League clubs have issues to resolve before then`\
 https://nytimes.com/athletic/5581527/2024/06/24/chelsea-villa-everton-newcastle-psr-deadline/
+
+**Marcelo Bielsa: Brilliant, brutal, bewildering... and back with Uruguay**\
+`The ex-Leeds United manager has transformed Uruguay into Copa America contenders - just don't expect anything conventional`\
+https://nytimes.com/athletic/5585686/2024/06/24/marcelo-bielsa-uruguay-copa-america-leeds/
 
 **Pepe is Portugal’s ageless wonder - and older than a third of the nations at Euro 2024**\
 `Pepe was Portugal's future once. He’s still the present. Good luck telling him that he’s the past`\
