@@ -1,3 +1,7 @@
+**Hamas Skimmed $1 Billion in U.N. Aid for Weapons and Tunnels, Suit Says**\
+`About 100 Israelis sued the United Nations Relief and Works Agency, saying it pays local employees in dollars that buoy the terrorist group. But the case faces high legal hurdles.`\
+https://nytimes.com/2024/06/24/nyregion/unrwa-lawsuit-hamas-gaza.html
+
 **Will Lewis Says He Helped Hacking Investigation. Scotland Yard Had Doubts.**\
 `Mr. Lewis, now the Washington Post publisher, gave ‘green light’ to delete News Corp. emails during a major journalism scandal.`\
 https://nytimes.com/2024/06/24/world/europe/will-lewis-phone-hacking.html

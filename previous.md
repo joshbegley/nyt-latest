@@ -1,3 +1,7 @@
+**Hamas Skimmed $1 Billion in U.N. Aid for Weapons and Tunnels, Suit Says**\
+`About 100 Israelis sued the United Nations Relief and Works Agency, saying it pays local employees in dollars that buoy the terrorist group. But the case faces high legal hurdles.`\
+https://nytimes.com/2024/06/24/nyregion/unrwa-lawsuit-hamas-gaza.html
+
 **Will Lewis Says He Helped Hacking Investigation. Scotland Yard Had Doubts.**\
 `Mr. Lewis, now the Washington Post publisher, gave ‘green light’ to delete News Corp. emails during a major journalism scandal.`\
 https://nytimes.com/2024/06/24/world/europe/will-lewis-phone-hacking.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/24/opinion/golf-mark-broadie-mcilroy.html
 **Sabres offseason roadmap, part 3: Fixing the depth chart with trades and free agents**\
 `What trades might Sabres GM Kevyn Adams be able to pull off? Will Lindy Ruff’s presence convince free agents to take a chance in Buffalo?`\
 https://nytimes.com/athletic/5587246/2024/06/24/sabres-offseason-nhl-trades-free-agent/
-
-**Why the Sacramento Kings are shopping their draft pick as part of aggressive offseason**\
-`The Kings' No. 13 pick remains very available in trade talks heading into the draft. It could also help them acquire the right player. `\
-https://nytimes.com/athletic/5587438/2024/06/24/sacramento-kings-nba-draft-free-agency-zach-edey-kyle-kuzma-zach-lavine/
 
