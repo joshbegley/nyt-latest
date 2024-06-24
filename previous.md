@@ -1,3 +1,7 @@
+**Vols show heart, elevate heart rates, force Aggies into a finale for the national title**\
+`Tennessee will turn again to perhaps the best individual story of its season, senior lefty Zander Sechrist, in Game 3 of the CWS.`\
+https://nytimes.com/athletic/5585350/2024/06/23/tennessee-texas-am-cws-national-championship/
+
 **Simone Manuel closes swim trials with surprise 50m free win**\
 `“I spent a lot of time watching races where I won. I really wanted to channel that Simone, because I know I’m a winner,” Manuel said.`\
 https://nytimes.com/athletic/5585702/2024/06/23/simone-manuel-50-meter-freestyle-olympic-trials/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/23/nyregion/columbia-protest-charges-bragg.html
 **Amy Yang wins KPMG Women's PGA Championship**\
 `Yang won by three strokes for her first career major championship.`\
 https://nytimes.com/athletic/5585467/2024/06/23/amy-yang-wins-kpmg-womens-pga-championship/
-
-**Angel Reese dominates as Sky top Fever, Caitlin Clark**\
-`Reese finished the Sky’s 88-87 victory with a career-high 25 points. She added 16 rebounds, recording her eighth consecutive double-double.`\
-https://nytimes.com/athletic/5585512/2024/06/23/angel-reese-caitlin-clark-fever-sky/
 
