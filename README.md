@@ -1,3 +1,7 @@
+**Word of the Day: expatriate**\
+`This word has appeared in 39 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/06/24/learning/word-of-the-day-expatriate.html
+
 **Breaking down what Harry Kane did on and off the ball for England - and what needs to change**\
 `Kane is a great goalscorer but also superb at dropping deep – England must find a way to build their attack round both of his specialisms`\
 https://nytimes.com/athletic/5582902/2024/06/24/alan-shearer-harry-kane-euro-2024-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5582869/2024/06/24/wsl-transfer-window-signings/
 **How are Chelsea, Villa, Newcastle, Everton, Leicester & Forest tackling PSR deadline?**\
 `The June 30 PSR deadline is approaching, and Premier League clubs have issues to resolve before then`\
 https://nytimes.com/athletic/5581527/2024/06/24/chelsea-villa-everton-newcastle-psr-deadline/
-
-**Marcelo Bielsa: Brilliant, brutal, bewildering... and back with Uruguay**\
-`The ex-Leeds United manager has transformed Uruguay into Copa America contenders - just don't expect anything conventional`\
-https://nytimes.com/athletic/5585686/2024/06/24/marcelo-bielsa-uruguay-copa-america-leeds/
 
