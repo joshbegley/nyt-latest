@@ -1,3 +1,7 @@
+**A win, a clean sheet, but too many chances missed - USMNT need to be more ruthless**\
+`Yes, results matter in tournament soccer but Gregg Berhalter's team can't afford to waste as many chances as they did against Bolivia`\
+https://nytimes.com/athletic/5586102/2024/06/24/usmnt-copa-america-pepi-berhalter/
+
 **NBA free agency: James Harden, Tyrese Maxey and the top available point guards**\
 `In theory, the position has some elite talent, but in reality, it seems the best guys will likely return to their own teams.`\
 https://nytimes.com/athletic/5582272/2024/06/24/nba-free-agency-best-point-guards-tyrese-maxey-james-harden/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/24/opinion/biden-trump-debate.html
 **In Abortion Cases, Legions of ‘Friends’ Seek to Persuade Supreme Court**\
 `A new study analyzed 50 years of friend-of-the-court briefs and found that abortion opponents were more relentless than their adversaries, with some reflected in the justices’ opinions.`\
 https://nytimes.com/2024/06/24/us/supreme-court-abortion-briefs.html
-
-**How Short Is Too Short for a Skirt?**\
-`Hemlines can spark questions — and strong opinions — about professionalism and appropriateness. Our fashion critic offers a reader some advice on skirt length.`\
-https://nytimes.com/2024/06/24/style/skirt-length-professionalism-age.html
 
