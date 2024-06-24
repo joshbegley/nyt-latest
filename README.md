@@ -1,3 +1,7 @@
+**C.E.O.s Are Frustrated With Biden. That Doesn’t Mean They Embrace Trump.**\
+`Corporate executives complain about some of President Biden’s policies, along with his rhetoric. But so far they have not abandoned him en masse.`\
+https://nytimes.com/2024/06/24/business/economy/biden-policy-ceo.html
+
 **Chiefs to release Isaiah Buggs after second arrest this offseason**\
 `Buggs, 27, signed a futures contract with the Chiefs in February after spending last season on their practice squad.`\
 https://nytimes.com/athletic/5587079/2024/06/24/chiefs-release-isaiah-buggs-arrest/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/24/business/global-shipping-rates.html
 **More Than 1,000 Hajj Pilgrims Died. Here’s What to Know.**\
 `The number of deaths during the annual Islamic pilgrimage raised questions about Saudi Arabia’s preparations for intense heat and unregistered participants.`\
 https://nytimes.com/2024/06/24/world/europe/hajj-mecca-explainer.html
-
-**UEFA insists 'no delay' in treatment of Varga after head injury**\
-`UEFA insists there was &#8220;no delay&#8221; in the medical treatment of Barnabas Varga after the Hungary forward sustained a head injury during the Euro 2024 match on Sunday.`\
-https://nytimes.com/athletic/5586966/2024/06/24/barnabas-varga-injury-hungary-scotland-treatment/
 
