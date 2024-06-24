@@ -1,3 +1,11 @@
+**Film Academy Chief Gets a Sequel: Bill Kramer’s Contract Is Renewed**\
+`Amid challenges in Hollywood, the Academy of Motion Picture Arts and Sciences renewed its chief executive’s contract a year early.`\
+https://nytimes.com/2024/06/24/movies/academy-of-motion-picture-arts-and-sciences-bill-kramer.html
+
+**Dearica Hamby named to U.S. Olympic 3x3 team, replaces Cameron Brink**\
+`Hamby led Team USA to gold at the FIBA 3x3 AmeriCup in December, taking home tournament MVP honors.`\
+https://nytimes.com/athletic/5587466/2024/06/24/dearica-hamby-us-olympic-3x3-team/
+
 **Taylor Swift Notches a Ninth Week at No. 1 With New CD Versions**\
 `The singer’s latest album, “The Tortured Poets Department,” now has the second-most weeks at No. 1 of any Swift album.`\
 https://nytimes.com/2024/06/24/arts/music/taylor-swift-billboard-poets-nine-weeks.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/24/arts/music/mabe-fratti-sentir-que-no-sabes.html
 **Israel talks of a new phase in the Gaza war. What does that mean?**\
 `By Patrick Kingsley`\
 https://nytimes.com/live/2024/06/24/world/israel-gaza-war-hamas/israel-hamas-hezbollah-analysis
-
-**In Greece, Another Tourist Found Dead Amid Scorching Heat Wave**\
-`At least 10 foreign tourists have gone missing or been found dead this year in Greece after going for a hike, often in scorching temperatures.`\
-https://nytimes.com/2024/06/24/world/europe/greece-heat-tourist-deaths.html
-
-**Rapper Known as Julio Foolio Is Fatally Shot in Florida**\
-`The rapper, whose real name is Charles Jones, 26, had been celebrating his birthday at events that he had announced on social media.`\
-https://nytimes.com/2024/06/24/us/julio-foolio-rapper-shot.html
 
