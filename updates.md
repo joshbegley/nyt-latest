@@ -1,3 +1,7 @@
+**Christian Pulisic has started smiling - this is why**\
+`The USMNT have hired a specialist set-piece coach and his positive influence on Pulisic's game is obvious already`\
+https://nytimes.com/athletic/5586190/2024/06/24/pulisic-usmnt-copa-america-smiling/
+
 **Three Twins takeaways: Byron Buxton's bat, next man up in rotation, better hitting vs. righties**\
 `Three takeaways for the off day: With Chris Paddack in need of a breather, whom could the Twins tap to slide into the rotation in his stead?`\
 https://nytimes.com/athletic/5585786/2024/06/24/minnesota-twins-byron-buxton-chris-paddack/

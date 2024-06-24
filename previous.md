@@ -1,3 +1,7 @@
+**Christian Pulisic has started smiling - this is why**\
+`The USMNT have hired a specialist set-piece coach and his positive influence on Pulisic's game is obvious already`\
+https://nytimes.com/athletic/5586190/2024/06/24/pulisic-usmnt-copa-america-smiling/
+
 **Three Twins takeaways: Byron Buxton's bat, next man up in rotation, better hitting vs. righties**\
 `Three takeaways for the off day: With Chris Paddack in need of a breather, whom could the Twins tap to slide into the rotation in his stead?`\
 https://nytimes.com/athletic/5585786/2024/06/24/minnesota-twins-byron-buxton-chris-paddack/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5584979/2024/06/24/rutger-mcgroarty-nikolaj-ehlers-
 **Eight players the Blackhawks could select at No. 18 in the NHL Draft**\
 `The Blackhawks are likely to draft Demidov or Levshunov at No. 2, but who might they select with their other first-round pick?`\
 https://nytimes.com/athletic/5583071/2024/06/24/nhl-draft-2024-blackhawks-prospects/
-
-**Three Cardinals takeaways: Sonny Gray shines, Willson Contreras nears return and more**\
-`Carlos Marmol after Sonny Gray flirted with perfection: "You can't attack a lineup much more than what he did today."`\
-https://nytimes.com/athletic/5584997/2024/06/24/cardinals-mlb-sonny-gray-willson-contreras/
 
