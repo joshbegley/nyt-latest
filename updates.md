@@ -1,3 +1,11 @@
+**NBA Mock Draft: What are the Hawks up to? That mystery hovers over this week**\
+`Zaccharie Risacher? Donovan Clingan? Alex Sarr? A trade? Atlanta holds all the cards, and few have a sense for how it'll play them.`\
+https://nytimes.com/athletic/5581150/2024/06/24/nba-mock-draft-2024-hawks-pick/
+
+**Should Social Media Come With Warning Labels?**\
+`Responses to a guest essay by Vivek H. Murthy, the surgeon general. Also: A debate suggestion; the real choice in the election; stepmothers.`\
+https://nytimes.com/2024/06/24/opinion/social-media-warning-labels.html
+
 **C.E.O.s Are Frustrated With Biden. That Doesn’t Mean They Embrace Trump.**\
 `Corporate executives complain about some of President Biden’s policies, along with his rhetoric. But so far they have not abandoned him en masse.`\
 https://nytimes.com/2024/06/24/business/economy/biden-policy-ceo.html
