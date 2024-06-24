@@ -1,3 +1,19 @@
+**Extreme Wildfires Have Doubled in 2 Decades, Study Finds**\
+`In a changing climate, extreme wildfire events are becoming far more common and more intense, according to a new analysis.`\
+https://nytimes.com/2024/06/24/climate/extreme-wildfires-have-doubled-in-2-decades-study-finds.html
+
+**Texas to relaunch Longhorn Network as streaming service upon move to SEC**\
+`LHN became a catalyst in conference realignment upon its original launch. Now it will take a new form as Texas joins the SEC.`\
+https://nytimes.com/athletic/5587085/2024/06/24/longhorn-network-channel-texas-sec/
+
+**The Windup: Where did baseball's offense go?**\
+`Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
+https://nytimes.com/athletic/5586978/2024/06/24/mlb-pitching-offense-blue-jays-suspension-the-windup/
+
+**Fearing Losses, Banks Are Quietly Dumping Real Estate Loans**\
+`If landlords can’t pay back loans on office buildings, the lenders will suffer. Some banks are trying to avoid that fate.`\
+https://nytimes.com/2024/06/24/business/commercial-real-estate-loans.html
+
 **Zion Grady is 10th top-100 prospect to commit to Ohio State**\
 `Grady, who originally committed to Alabama last November, picked the Buckeyes after visiting Columbus this past weekend.`\
 https://nytimes.com/athletic/5587004/2024/06/24/ohio-state-zion-grady-recruiting-commitment/
