@@ -1,3 +1,7 @@
+**Noah Lyles wins men's 100m at U.S. Olympic track trials**\
+`Lyles posted a lifetime best in Sunday’s final, running the 100 in 9.83 seconds in the marquee event of Day 3 at the trials.`\
+https://nytimes.com/athletic/5585956/2024/06/23/noah-lyles-mens-100-meter-olympic-trials/
+
 **Takeaways from Uruguay 3-1 Panama: Marcelo Bielsa's side shows their quality**\
 `Bielsa-ball comes to Copa America `\
 https://nytimes.com/athletic/5585471/2024/06/23/uruguay-panama-copa-america/
