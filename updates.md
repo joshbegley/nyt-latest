@@ -1,3 +1,11 @@
+**UEFA insists 'no delay' in treatment of Varga after head injury**\
+`UEFA insists there was &#8220;no delay&#8221; in the medical treatment of Barnabas Varga after the Hungary forward sustained a head injury during the Euro 2024 match on Sunday.`\
+https://nytimes.com/athletic/5586966/2024/06/24/barnabas-varga-injury-hungary-scotland-treatment/
+
+**What England will gain and lose by replacing Trent Alexander-Arnold with Conor Gallagher**\
+`The Chelsea midfielder is set to start England's final Euro 2024 group match against Slovenia - can he help solve their pressing problems?`\
+https://nytimes.com/athletic/5586709/2024/06/24/england-southgate-gallagher-trent/
+
 **Iran’s Onerous Hijab Law for Women Is Now a Campaign Issue**\
 `In a sign that a women-led movement has gained ground, all of the men running for president have distanced themselves from the harsh tactics used to enforce mandatory hijab.`\
 https://nytimes.com/2024/06/24/world/middleeast/iran-hijab-election-issue.html
