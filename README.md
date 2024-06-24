@@ -1,3 +1,7 @@
+**Spacewalk Canceled After Spacesuit Coolant Leak**\
+`NASA canceled a spacewalk at the International Space Station today following a coolant leak in Tracy Dyson’s spacesuit, which started shortly after switching her spacesuit to internal battery power.`\
+https://nytimes.com/video/science/space/100000009536839/spacewalk-canceled.html
+
 **Mbappe 'raring to go' ahead of possible France return**\
 `Didier Deschamps says Kylian Mbappe is &#8220;raring to go&#8221; ahead of a possible return for France against Poland on Tuesday.`\
 https://nytimes.com/athletic/5587439/2024/06/24/kylian-mbappe-nose-france-return/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/24/us/synogogue-protest-los-angeles-biden.html
 **Araujo blames heat and dehydration for substitution in Uruguay Copa America win**\
 `Uruguay defender Ronald Araujo explained he was substituted at half time during his side&#8217;s Copa America group stage opener against Panama due to the heat and dehydration.`\
 https://nytimes.com/athletic/5587222/2024/06/24/ronald-araujo-copa-america-uruguay/
-
-**Politicians Can Bend the Truth. Here’s How We Bend It Back.**\
-`When candidates take to a lectern, we are there to fact-check their claims and bring you the truth.`\
-https://nytimes.com/2024/06/24/insider/new-york-times-fact-checks-candidates.html
 
