@@ -1,3 +1,7 @@
+**Quincy Wilson is no superhero, but at 16, he's making magic at Olympic trials**\
+`Quincy Wilson isn't working with the benefit of vibranium. The 16-year-old is just that good — good enough to be on the brink of Paris.`\
+https://nytimes.com/athletic/5586286/2024/06/24/quincy-wilson-is-no-superhero-but-at-16-hes-making-magic-at-olympic-trials/
+
 **Five shots, one goal, endless running - Darwin Nunez arrives at Copa America**\
 `Against Panama, Uruguayan put in sort of performance we have come to expect - dynamic, dangerous, and predictable in its unpredictability`\
 https://nytimes.com/athletic/5586165/2024/06/24/darwin-nunez-uruguay-panama-copa-america/
