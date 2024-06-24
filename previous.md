@@ -11,7 +11,7 @@ https://nytimes.com/interactive/2024/06/24/books/review/novels-travel-locations.
 https://nytimes.com/live/2024/06/24/world/israel-gaza-war-hamas/an-israeli-strike-kills-the-coordinator-of-ambulance-services-in-gaza-health-officials-say
 
 **Supreme Court Will Hear Challenge to Tennessee Law Banning Transition Care for Minors**\
-`The state law bans health care providers from offering gender transition care to children.`\
+`The move comes as states around the country have pushed to curtail transgender rights.`\
 https://nytimes.com/2024/06/24/us/politics/supreme-court-transgender-care-tennessee.html
 
 **U.S. Olympic swim trials takeaways: Caeleb Dressel is back, Katie Ledecky is still here**\

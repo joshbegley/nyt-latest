@@ -1,3 +1,7 @@
+**Supreme Court Will Hear Challenge to Tennessee Law Banning Transition Care for Minors**\
+`The move comes as states around the country have pushed to curtail transgender rights.`\
+https://nytimes.com/2024/06/24/us/politics/supreme-court-transgender-care-tennessee.html
+
 **A Global Push Fixed the Ozone Hole. Satellites Could Threaten It.**\
 `A sharp increase in hardware orbiting Earth could mean more harmful metals lingering in the atmosphere, according to a new study.`\
 https://nytimes.com/2024/06/24/climate/ozone-satellites.html
