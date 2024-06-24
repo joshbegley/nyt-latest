@@ -1,3 +1,7 @@
+**Rapper Known as Julio Foolio Is Fatally Shot in Florida**\
+`The rapper, whose real name is Charles Jones, 26, had been celebrating his birthday at events that he had announced on social media.`\
+https://nytimes.com/2024/06/24/us/julio-foolio-rapper-shot.html
+
 **Biden Condemns Protest Outside Los Angeles Synagogue as Antisemitic**\
 `After a clash between pro-Palestinian and pro-Israel demonstrators turned violent over the weekend, leaders said such protests outside houses of worship were unacceptable.`\
 https://nytimes.com/2024/06/24/us/synogogue-protest-los-angeles-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5587185/2024/06/24/nba-draft-cavaliers-kenny-atkins
 **History shows Bulls have options at No. 11 of NBA Draft**\
 `Is this a weak draft? There have been some good players selected 10-20 in the last 10 years.`\
 https://nytimes.com/athletic/5586867/2024/06/24/bulls-nba-draft-history-no-11/
-
-**Virginia Woolf, but Make It a Polyphonic, Sensory Ballet**\
-`American Ballet Theater brings Wayne McGregor’s “Woolf Works,” which evokes elements of three novels and the writer’s biography, to New York.`\
-https://nytimes.com/2024/06/24/arts/dance/woolf-works-abt.html
 
