@@ -1,3 +1,7 @@
+**Judge Skeptical About Request to Limit Trump Statements on F.B.I.**\
+`Judge Aileen Cannon posed tough questions to prosecutors who want to bar the former president from making inflammatory remarks about the agents who searched Mar-a-Lago in the documents case.`\
+https://nytimes.com/2024/06/24/us/politics/judge-trump-statements-fbi.html
+
 **Israeli Strike Kills Health Official, Gazans Say, as Gallant Visits U.S.**\
 `Israel’s defense minister, Yoav Gallant, was meeting with the C.I.A. director and the secretary of state on Monday as Israel signaled a potential shift in its military campaign in Gaza.`\
 https://nytimes.com/2024/06/24/world/middleeast/israeli-strike-gallant-us.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/24/style/roger-federer-graduation-speech-dartmouth-t
 **Thousands of New York voters received texts with misinformation about polling sites.**\
 `By Tim Balk`\
 https://nytimes.com/live/2024/06/24/us/biden-trump-election-debate/thousands-of-new-york-voters-received-texts-with-misinformation-about-polling-sites
-
-**F1 of the Water? Yachts Race at the Statue of Liberty.**\
-`Thousands of spectators turned out over the weekend for SailGP, which brought a high-speed competition, and lots of champagne, to the New York Harbor.`\
-https://nytimes.com/2024/06/24/style/nyc-sail-grand-pix-formula-1.html
 
