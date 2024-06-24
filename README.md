@@ -1,5 +1,13 @@
+**Will Lewis Says He Helped Hacking Investigation. Scotland Yard Had Doubts.**\
+`Mr. Lewis, now the Washington Post publisher, gave ‘green light’ to delete News Corp. emails during a major journalism scandal.`\
+https://nytimes.com/2024/06/24/world/europe/will-lewis-phone-hacking.html
+
+**Inside Biden’s Camp David Debate Prep**\
+`President Biden’s aides are working to position him as a campaign-season fighter who can counterpunch on the fly and combat voters’ concerns about his age.`\
+https://nytimes.com/2024/06/24/us/politics/biden-trump-debate-camp-david.html
+
 **Why Mets closer Edwin Díaz wasn't allowed to wash away the sticky stuff**\
-`Source: Whether umpire grants permission to wash up or not depends on if the umpire feels the player crossed a line.`\
+`Source: Whether umpire grants permission to wash up or not depends on if the umpire feels the player crossed a line by being sticky.`\
 https://nytimes.com/athletic/5587682/2024/06/24/mets-edwin-diaz-ejection-sticky/
 
 **Southgate 'own biggest critic', tells England to ignore 'external noise'**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5587246/2024/06/24/sabres-offseason-nhl-trades-free
 **Why the Sacramento Kings are shopping their draft pick as part of aggressive offseason**\
 `The Kings' No. 13 pick remains very available in trade talks heading into the draft. It could also help them acquire the right player. `\
 https://nytimes.com/athletic/5587438/2024/06/24/sacramento-kings-nba-draft-free-agency-zach-edey-kyle-kuzma-zach-lavine/
-
-**Tamayo Perry, Professional Surfer, Dies After Shark Attack Off Oahu**\
-`Mr. Perry also appeared in television and movies, including roles in “Blue Crush,” “Pirates of the Caribbean: On Stranger Tides” and “Hawaii Five-0.”`\
-https://nytimes.com/2024/06/24/us/tamayo-perry-dead-hawaii-shark-attack.html
-
-**Pinto or a second-round pick? An Ullmark extension changes his trade value**\
-`With the draft and free agency looming, Ullmark could be entering his final hours with the Bruins. What will they be able to get in return?`\
-https://nytimes.com/athletic/5587350/2024/06/24/bruins-linus-ullmark-trade-value/
 
