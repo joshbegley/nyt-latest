@@ -1,3 +1,11 @@
+**Man Fatally Shoots 5 in North Las Vegas and Kills Himself After Manhunt, Police Say**\
+`The man, Eric Adams, was also suspected of critically wounding a 13-year-old girl in shootings at two nearby apartments.`\
+https://nytimes.com/2024/06/25/us/eric-adams-north-las-vegas-shooting-arrest.html
+
+**Cruise, the Self-Driving Car Subsidiary of G.M., Names a New C.E.O.**\
+`After a year of safety problems, layoffs and mass executive departures, G.M. is trying to find stability for its futuristic driverless car business.`\
+https://nytimes.com/2024/06/25/technology/cruise-the-self-driving-car-subsidiary-of-gm-names-new-ceo.html
+
 **A Court Ruled an Exhibit Discriminated Against Men. Now It’s in the Women’s Restroom.**\
 `The Museum of New and Old Art in Tasmania hung several paintings in a women’s restroom after a court ruled that its installation could not be exclusive to women.`\
 https://nytimes.com/2024/06/25/world/australia/picasso-ladies-bathroom-mona-tasmania.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/25/us/new-jersey-man-arrested-gamer-attack.html
 **Bringing Up Drugs? Undermining the Debate? These Are Old Trump Tactics.**\
 `Ahead of a high-stakes debate, former President Donald J. Trump is trying to reset the low expectations he set for President Biden.`\
 https://nytimes.com/2024/06/25/us/politics/trump-debate-tactics.html
-
-**How Much Blush Is Too Much?**\
-`If you’re not sure, you might have what some people on TikTok are calling “blush blindness.”`\
-https://nytimes.com/2024/06/25/style/blush-blindness-tiktok.html
-
-**‘I Might Be Real-Life Good at This’: Shooting for Broadway at the Jimmy Awards**\
-`The awards, which celebrated excellence in high school musical theater on Monday, have become a launchpad for future stars and Tony nominees.`\
-https://nytimes.com/2024/06/25/theater/jimmy-awards-high-school-theater.html
 

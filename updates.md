@@ -1,3 +1,11 @@
+**Man Fatally Shoots 5 in North Las Vegas and Kills Himself After Manhunt, Police Say**\
+`The man, Eric Adams, was also suspected of critically wounding a 13-year-old girl in shootings at two nearby apartments.`\
+https://nytimes.com/2024/06/25/us/eric-adams-north-las-vegas-shooting-arrest.html
+
+**Cruise, the Self-Driving Car Subsidiary of G.M., Names a New C.E.O.**\
+`After a year of safety problems, layoffs and mass executive departures, G.M. is trying to find stability for its futuristic driverless car business.`\
+https://nytimes.com/2024/06/25/technology/cruise-the-self-driving-car-subsidiary-of-gm-names-new-ceo.html
+
 **Volkswagen Will Invest Up to $5 Billion in Rivian**\
 `VW and Rivian, a maker of electric trucks that has struggled to increase sales and break even, will work together on software and other technologies.`\
 https://nytimes.com/2024/06/25/business/volkswagen-rivian-vw-investment.html
