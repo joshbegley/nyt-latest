@@ -1,4 +1,8 @@
-**Austin and Russia’s New Defense Minister Speak Via Phone for the First Time**\
+**Another Real Estate Broker Steps Down in the Face of Sex Assault Suits**\
+`Tal Alexander, who rose to fame in the luxury housing market with his younger brother Oren, will take a leave from the firm he helped to create. Oren left earlier in June.`\
+https://nytimes.com/2024/06/25/realestate/tal-alexander-official-resigns.html
+
+**Austin and Russia’s New Defense Minister Speak via Phone for the First Time**\
 `Communications between Washington and Moscow have become rare since Russia invaded Ukraine more than two years ago.`\
 https://nytimes.com/2024/06/25/us/politics/austin-russia-defense-minister-call.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/style/tiny-modern-love-stories-i-called-you-when-
 **Kenya Protests Are a Blow to Biden’s Embrace of President Ruto**\
 `Just a day earlier, President Biden had formally named Kenya a major non-NATO ally.`\
 https://nytimes.com/2024/06/25/world/kenya-protests-president-ruto-biden.html
-
-**High living costs are straining even Africa’s most stable economies.**\
-`By Lynsey Chutel`\
-https://nytimes.com/live/2024/06/25/world/kenya-protests/high-living-costs-are-straining-even-africas-most-stable-economies
 
