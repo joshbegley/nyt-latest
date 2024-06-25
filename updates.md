@@ -1,3 +1,7 @@
+**Review: In ‘Find Me Here,’ Sisters Grapple With a Father’s Will, and His Legacy**\
+`A family gathering fuels Crystal Finn’s new play, in which an excellent cast teases out the many complications of inheritance.`\
+https://nytimes.com/2024/06/25/theater/find-me-here-review.html
+
 **Heat Is Killing Thousands, and Big Events Have Not Adjusted**\
 `The deaths of at least 1,300 pilgrims during the hajj points to the growing threat that climate change poses to beloved gatherings.`\
 https://nytimes.com/2024/06/25/world/australia/record-heat-deaths-events.html

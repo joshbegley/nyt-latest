@@ -1,3 +1,7 @@
+**Review: In ‘Find Me Here,’ Sisters Grapple With a Father’s Will, and His Legacy**\
+`A family gathering fuels Crystal Finn’s new play, in which an excellent cast teases out the many complications of inheritance.`\
+https://nytimes.com/2024/06/25/theater/find-me-here-review.html
+
 **Heat Is Killing Thousands, and Big Events Have Not Adjusted**\
 `The deaths of at least 1,300 pilgrims during the hajj points to the growing threat that climate change poses to beloved gatherings.`\
 https://nytimes.com/2024/06/25/world/australia/record-heat-deaths-events.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/movies/white-chicks-anniversary.html
 **It’s Called the Best Gazpacho Because It Is the Best Gazpacho**\
 `Julia Moskin’s five-star recipe is simple, salty, thick and smooth — a coolly satisfying remedy for summer’s sluggish heat.`\
 https://nytimes.com/2024/06/25/dining/gazpacho-meatballs-cucumber-salad.html
-
-**Kenyan Protesters Storm Parliament as Lawmakers Pass Tax Increases**\
-`The police used live fire and tear gas on protesters who marched on the Parliament building in an attempt to stop a vote on a contentious finance bill.`\
-https://nytimes.com/video/world/africa/100000009538667/kenya-protests-tax-increases.html
 
