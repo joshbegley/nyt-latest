@@ -2,8 +2,8 @@
 `The chipmaker’s stock has tumbled in recent days, a reminder that the artificial intelligence stock boom could be tough to sustain.`\
 https://nytimes.com/2024/06/25/business/dealbook/nvidia-stock-wipeout.html
 
-**A strike kills family members of Hamas’s political leader.**\
-`Hamas confirmed the death of a sister of Ismail Haniyeh. The Israeli military said it was aware of the reports but could not “currently confirm” that it had struck the Haniyeh family home.`\
+**Strike Kills Sister of Hamas’s Political Leader**\
+`Hamas confirmed the death of a sister of Ismail Haniyeh and her family. The Israeli military said it was aware of the reports but could not “currently confirm” that it had struck the Haniyeh family home.`\
 https://nytimes.com/2024/06/25/world/middleeast/strike-haniyeh-hamas-gaza.html
 
 **Turning 26 and Struggling to Find Health Insurance? Tell Us About It.**\
