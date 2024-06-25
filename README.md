@@ -1,3 +1,7 @@
+**The turmoil in Nairobi is a blow to the Biden administration’s embrace of Kenya’s president.**\
+`By Declan Walsh`\
+https://nytimes.com/live/2024/06/25/world/kenya-protests/the-turmoil-in-nairobi-is-a-blow-to-the-biden-administrations-embrace-of-kenyas-president
+
 **High living costs are straining even Africa’s most stable economies.**\
 `By Lynsey Chutel`\
 https://nytimes.com/live/2024/06/25/world/kenya-protests/high-living-costs-are-straining-even-africas-most-stable-economies
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/us/assange-plea-deal-press-freedom.html
 **Why the N.F.L. Put a $7 Billion Antitrust Case in the Hands of an Unpredictable Jury**\
 `A class-action lawsuit over the cost of Sunday Ticket subscriptions underscored how valuable broadcast deals have been for the league’s success.`\
 https://nytimes.com/2024/06/25/business/media/nfl-sunday-ticket-lawsuit-cost-tv-deal.html
-
-**Safety Agency Faults Norfolk Southern for ‘Vent and Burn’ After 2023 Derailment**\
-`The National Transportation Safety Board said the decision to release and incinerate toxic chemicals in the wake of a train derailment in East Palestine, Ohio, was misguided.`\
-https://nytimes.com/2024/06/25/us/politics/norfolk-southern-ntsb-vent-and-burn.html
 
