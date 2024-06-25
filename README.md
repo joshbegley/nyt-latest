@@ -31,7 +31,7 @@ https://nytimes.com/2024/06/25/nyregion/trump-gag-order-hush-money-trial.html
 https://nytimes.com/2024/06/25/us/politics/terrorism-threat-fbi-tajik.html
 
 **7 New Songs You Should Hear Now**\
-`Listen to Lorde tell her side of the story on a surprise remix with Charli XCX and 6 more new songs.`\
+`Listen to Lorde tell her side of the story on a surprise remix with Charli XCX and more new songs.`\
 https://nytimes.com/2024/06/25/arts/music/amplifier-newsletter-charli-xcx-lorde.html
 
 **Assange’s Plea Deal Sets a Chilling Precedent, but It Could Have Been Worse**\
