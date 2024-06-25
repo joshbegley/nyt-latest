@@ -1,3 +1,7 @@
+**Assange’s Plea Deal Sets a Chilling Precedent, but It Could Have Been Worse**\
+`The deal brings an ambiguous end to a legal saga that has jeopardized the ability of journalists to report on military, intelligence or diplomatic information that officials deem secret.`\
+https://nytimes.com/2024/06/25/us/assange-plea-deal-press-freedom.html
+
 **Why the N.F.L. Put a $7 Billion Antitrust Case in the Hands of an Unpredictable Jury**\
 `A class-action lawsuit over the cost of Sunday Ticket subscriptions underscored how valuable broadcast deals have been for the league’s success.`\
 https://nytimes.com/2024/06/25/business/media/nfl-sunday-ticket-lawsuit-cost-tv-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/learning/costco-dont-give-up-on-america-as-a-nati
 **Kraam Dresses in Indigo to Serve Seasonal, Contemporary Thai**\
 `Sendo has a new counter for sushi, Nordic fare in a rustic setting at Kabin and more restaurant news.`\
 https://nytimes.com/2024/06/25/dining/nyc-restaurant-news.html
-
-**Seth Binzer, Crazy Town’s Lead Singer, ‘Shifty Shellshock,’ Dies at 49**\
-`He was the frontman for the rap-rock band Crazy Town, which was most known for the hit song “Butterfly.”`\
-https://nytimes.com/2024/06/25/arts/music/shifty-shellshock-dead-crazy-town.html
 
