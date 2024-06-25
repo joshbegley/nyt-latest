@@ -1,3 +1,7 @@
+**How a Brooklyn District Tackled School Segregation**\
+`District 15 dropped selective admissions for middle schools, and the schools are now more integrated than they were.`\
+https://nytimes.com/2024/06/25/nyregion/brooklyn-district-15-segregation.html
+
 **Word of the Day: academe**\
 `This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/06/25/learning/word-of-the-day-academe.html

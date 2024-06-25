@@ -1,3 +1,7 @@
+**How a Brooklyn District Tackled School Segregation**\
+`District 15 dropped selective admissions for middle schools, and the schools are now more integrated than they were.`\
+https://nytimes.com/2024/06/25/nyregion/brooklyn-district-15-segregation.html
+
 **Word of the Day: academe**\
 `This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/06/25/learning/word-of-the-day-academe.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/business/european-union-microsoft-teams-antitrust
 **Biden’s Polling Progress**\
 `The president has narrowed the gap with Donald Trump, but Trump still holds a small lead.`\
 https://nytimes.com/2024/06/25/briefing/biden-trump-2024-polls.html
-
-**Deadly Fire Exposes Harsh Conditions Migrant Workers Face in South Korea**\
-`Foreigners do dirty, hazardous work, and advocates say the blaze that killed 23 at a battery plant shows that they need better protection.`\
-https://nytimes.com/2024/06/25/world/asia/south-korea-lithium-battery-fire.html
 
