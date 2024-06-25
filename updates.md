@@ -1,3 +1,11 @@
+**With Virginia Primary Undecided, Rep. Bob Good Seeks Funds for Recount**\
+`The margin between the congressman and his Trump-backed challenger is just slightly above the threshold for a state-funded recount. His opponent has already declared victory, and both are election deniers.`\
+https://nytimes.com/2024/06/24/us/politics/bob-good-virginia-primary.html
+
+**County Legislature in N.Y. Suburbs Passes Transgender Athlete Ban**\
+`The majority-Republican Nassau County Legislature approved a bill that bars transgender athletes from playing at county-owned facilities on teams that match their gender identity.`\
+https://nytimes.com/2024/06/24/nyregion/transgender-athlete-ban-nassau-county-ny.html
+
 **Judges Block Parts of Biden’s Student Loan Repayment Plan**\
 `A part of the SAVE plan that would have cut monthly bills for millions of borrowers starting on July 1 was put on hold.`\
 https://nytimes.com/2024/06/24/business/biden-student-debt.html

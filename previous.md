@@ -1,6 +1,6 @@
-**With Virginia primary undecided, Representative Bob Good seeks funds for a recount.**\
+**With Virginia Primary Undecided, Rep. Bob Good Seeks Funds for Recount**\
 `The margin between the congressman and his Trump-backed challenger is just slightly above the threshold for a state-funded recount. His opponent has already declared victory, and both are election deniers.`\
-https://nytimes.com/live/2024/06/24/us/biden-trump-election-debate/with-virginia-primary-undecided-representative-bob-good-seeks-funds-for-a-recount
+https://nytimes.com/2024/06/24/us/politics/bob-good-virginia-primary.html
 
 **Judges Block Parts of Biden’s Student Loan Repayment Plan**\
 `A part of the SAVE plan that would have cut monthly bills for millions of borrowers starting on July 1 was put on hold.`\
@@ -34,7 +34,7 @@ https://nytimes.com/interactive/2024/us/elections/polls-president.html
 `A plea deal brought an abrupt end to an extraordinary legal saga that has raised novel issues of national security, press freedoms, politics and diplomacy.`\
 https://nytimes.com/2024/06/24/us/julian-assange-wikileaks-timeline.html
 
-**New York County Legislature Passes Transgender Athlete Ban**\
+**County Legislature in N.Y. Suburbs Passes Transgender Athlete Ban**\
 `The majority-Republican Nassau County Legislature approved a bill that bars transgender athletes from playing at county-owned facilities on teams that match their gender identity.`\
 https://nytimes.com/2024/06/24/nyregion/transgender-athlete-ban-nassau-county-ny.html
 
