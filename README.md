@@ -1,3 +1,7 @@
+**How Trump and Biden Might Attack Each Other at the CNN Debate**\
+`Immigration, the economy, democracy and abortion rights: Here are the main ways each candidate is likely to slam the other at Thursday’s high-stakes confrontation.`\
+https://nytimes.com/2024/06/25/us/politics/trump-biden-cnn-debate-attacks.html
+
 **In States That Won’t Pay for Obesity Drugs, ‘They May as Well Have Never Been Created’**\
 `Public employees in West Virginia who took the drugs lost weight and were healthier, and some are despondent that the state is canceling a program to help pay for them.`\
 https://nytimes.com/2024/06/25/science/obesity-ozempic-wegovy-west-virginia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/business/dealbook/nvidia-stock-wipeout.html
 **Strike Kills Sister of Hamas’s Political Leader**\
 `Hamas confirmed the death of a sister of Ismail Haniyeh and her family. The Israeli military said it was aware of the reports but could not “currently confirm” that it had struck the Haniyeh family home.`\
 https://nytimes.com/2024/06/25/world/middleeast/strike-haniyeh-hamas-gaza.html
-
-**Turning 26 and Struggling to Find Health Insurance? Tell Us About It.**\
-`The New York Times and KFF Health News are looking into a dreaded “adulting” milestone: finding your own medical insurance at 26.`\
-https://nytimes.com/2024/06/25/health/health-insurance-young-adults.html
 
