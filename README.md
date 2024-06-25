@@ -1,10 +1,14 @@
+**He Monitors Solar Flares. Here’s What Keeps Him Up at Night.**\
+`Mike Bettwy, a government meteorologist who focuses on potential threats from space weather, says that we are more prepared than ever — and that forecasting is only getting better.`\
+https://nytimes.com/2024/06/25/science/mike-bettwy-solar-flares-storms.html
+
 **Tiny Love Stories: ‘I Called You When I Left the Gynecologist’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/06/25/style/tiny-modern-love-stories-i-called-you-when-i-left-the-gynecologist.html
 
-**The turmoil in Nairobi is a blow to the Biden administration’s embrace of Kenya’s president.**\
+**Turmoil in Nairobi is a Blow to Biden’s Embrace of Kenya’s President**\
 `Just a day earlier, President Biden had formally named Kenya a major non-NATO ally.`\
-https://nytimes.com/2024/06/25/world/the-turmoil-in-nairobi-is-a-blow-to-the-biden-administrations-embrace-of-kenyas-president.html
+https://nytimes.com/2024/06/25/world/kenya-protests-president-ruto-biden.html
 
 **High living costs are straining even Africa’s most stable economies.**\
 `By Lynsey Chutel`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/us/politics/terrorism-threat-fbi-tajik.html
 **7 New Songs You Should Hear Now**\
 `Listen to Lorde tell her side of the story on a surprise remix with Charli XCX and more new songs.`\
 https://nytimes.com/2024/06/25/arts/music/amplifier-newsletter-charli-xcx-lorde.html
-
-**Assange’s Plea Deal Sets a Chilling Precedent, but It Could Have Been Worse**\
-`The deal brings an ambiguous end to a legal saga that has jeopardized the ability of journalists to report on military, intelligence or diplomatic information that officials deem secret.`\
-https://nytimes.com/2024/06/25/us/assange-plea-deal-press-freedom.html
 
