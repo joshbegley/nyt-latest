@@ -1,3 +1,11 @@
+**New Jersey Gamer Flew to Florida to Attack Rival With Hammer, Police Say**\
+`The man went to the house of another player of the fantasy online game ArcheAge to confront him, the Nassau County sheriff’s office in Florida said. He is charged with attempted murder.`\
+https://nytimes.com/2024/06/25/us/new-jersey-man-arrested-gamer-attack.html
+
+**Bringing Up Drugs? Undermining the Debate? These Are Old Trump Tactics.**\
+`Ahead of a high-stakes debate, former President Donald J. Trump is trying to reset the low expectations he set for President Biden.`\
+https://nytimes.com/2024/06/25/us/politics/trump-debate-tactics.html
+
 **How Much Blush Is Too Much?**\
 `If you’re not sure, you might have what some people on TikTok are calling “blush blindness.”`\
 https://nytimes.com/2024/06/25/style/blush-blindness-tiktok.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/06/25/world/kenya-protests/high-living-costs-are-s
 **What to Know About Julian Assange and His Plea Deal**\
 `The deal ends a period of confinement that lasted about a dozen years, first in the self-exile of the Ecuadorean embassy in London, then in prison.`\
 https://nytimes.com/2024/06/25/us/politics/julian-assange-wikileaks-plea-deal.html
-
-**The Kenyan police force has a bloody past.**\
-`By Jeffrey Gettleman`\
-https://nytimes.com/live/2024/06/25/world/kenya-protests/the-kenyan-police-are-a-force-with-a-bloody-past
-
-**U.S. Swimming Stars Assail Antidoping Agency Ahead of Olympics**\
-`Michael Phelps and Allison Schmitt are set to testify to a House subcommittee after reports that Chinese swimmers were allowed to compete in the 2021 Games after testing positive for a banned drug.`\
-https://nytimes.com/2024/06/25/sports/olympics/phelps-schmitt-olympics-antidoping-hearing.html
 
