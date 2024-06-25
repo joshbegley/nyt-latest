@@ -1,3 +1,15 @@
+**Killing of Texas Girl Becomes a New Immigration Flashpoint**\
+`The killing of 12-year-old Jocelyn Nungaray in Houston has become the latest crime seized on by Republicans to attack President Biden over his immigration policies.`\
+https://nytimes.com/2024/06/25/us/houston-venezuelan-immigrants-murder-jocelyn-nungaray.html
+
+**Will the Presidential Debate Be a Summer Blockbuster?**\
+`This week’s matchup on CNN between Trump and Biden may not have the same reach as debates past.`\
+https://nytimes.com/2024/06/25/us/politics/trump-biden-debate-cnn.html
+
+**Nairobi Police Use Live Rounds, Tear Gas and Water Cannons on Protesters**\
+`The Nairobi police and demonstrators clashed during protests against a bill expected to raise taxes on many basic necessities and increasing the overall cost of living in Kenya.`\
+https://nytimes.com/video/world/africa/100000009539190/kenya-tax-protest.html
+
 **How Chappell Roan’s Stylist Turned Her Into a Creepy Swan (Twice)**\
 `Genesis Webb helps the rising pop star put together drag-inspired looks that are “glamorous, but also ugly and confusing.”`\
 https://nytimes.com/2024/06/25/style/chappell-roan-jimmy-fallon-swan.html

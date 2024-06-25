@@ -1,3 +1,15 @@
+**Killing of Texas Girl Becomes a New Immigration Flashpoint**\
+`The killing of 12-year-old Jocelyn Nungaray in Houston has become the latest crime seized on by Republicans to attack President Biden over his immigration policies.`\
+https://nytimes.com/2024/06/25/us/houston-venezuelan-immigrants-murder-jocelyn-nungaray.html
+
+**Will the Presidential Debate Be a Summer Blockbuster?**\
+`This week’s matchup on CNN between Trump and Biden may not have the same reach as debates past.`\
+https://nytimes.com/2024/06/25/us/politics/trump-biden-debate-cnn.html
+
+**Nairobi Police Use Live Rounds, Tear Gas and Water Cannons on Protesters**\
+`The Nairobi police and demonstrators clashed during protests against a bill expected to raise taxes on many basic necessities and increasing the overall cost of living in Kenya.`\
+https://nytimes.com/video/world/africa/100000009539190/kenya-tax-protest.html
+
 **How Chappell Roan’s Stylist Turned Her Into a Creepy Swan (Twice)**\
 `Genesis Webb helps the rising pop star put together drag-inspired looks that are “glamorous, but also ugly and confusing.”`\
 https://nytimes.com/2024/06/25/style/chappell-roan-jimmy-fallon-swan.html
@@ -25,16 +37,4 @@ https://nytimes.com/card/2024/06/25/world/americas/colombia-birdwatching
 **Eric Hazan, Publisher and Historian on France’s Left, Dies at 87**\
 `He elevated many of France’s most provocative writers through his publishing house, La Fabrique, but he made his greatest mark as a politically engaged, and strolling, historian of Paris.`\
 https://nytimes.com/2024/06/25/books/eric-hazan-dead.html
-
-**Sarah y su brazo con inteligencia artificial **\
-`En 2022, Sarah de Lagarde perdió su brazo derecho en un accidente. Hoy, gracias a la tecnología, ha recuperado el miembro y la sensación de normalidad.`\
-https://nytimes.com/card/2024/06/25/espanol/protesis-brazo-ia
-
-**Protests in Kenya Over Tax Bill: What to Know**\
-`Kenyan police faced off with protesters in the capital, Nairobi. Civic groups said that at least five people died.`\
-https://nytimes.com/2024/06/25/world/africa/kenya-protests-tax-parliament.html
-
-**Wednesday Briefing: Major Protests in Nairobi**\
-`Also, Julian Assange’s plea deal with the U.S.`\
-https://nytimes.com/2024/06/25/world/asia/kenya-protests-assange-australia-asia.html
 
