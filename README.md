@@ -1,3 +1,7 @@
+**Safety Agency Faults Norfolk Southern for ‘Vent and Burn’ After 2023 Derailment**\
+`The National Transportation Safety Board said the decision to release and incinerate toxic chemicals in the wake of a train derailment in East Palestine, Ohio, was misguided.`\
+https://nytimes.com/2024/06/25/us/politics/norfolk-southern-ntsb-vent-and-burn.html
+
 **Obama’s Half Sister Is Among Those Tear-Gassed During Protests in Kenya**\
 `Auma Obama, a sociologist and community activist, was being interviewed live on CNN when clouds of tear gas lobbed by the police overwhelmed her.`\
 https://nytimes.com/2024/06/25/world/auma-obama-kenya-protests-nairobi.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/arts/music/shifty-shellshock-dead-crazy-town.html
 **Oklahoma Supreme Court Says No to State Funding for a Religious Charter School**\
 `In a closely watched case, Oklahoma’s highest court blocked what was set to become the nation’s first religious charter school. An appeal is likely.`\
 https://nytimes.com/2024/06/25/us/oklahoma-supreme-court-religious-charter-school.html
-
-**At Montpellier Danse, Leaning Into New Work as the Void Looms**\
-`The festival, the final one for its longtime director, started with a bravura work by Wayne McGregor that was at once otherworldly and deeply human.`\
-https://nytimes.com/2024/06/25/arts/dance/wayne-mcgregor-montpellier-festival.html
 
