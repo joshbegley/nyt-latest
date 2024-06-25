@@ -7,7 +7,7 @@ https://nytimes.com/video/world/africa/100000009538667/kenya-protests-tax-increa
 https://nytimes.com/live/2024/06/25/world/kenya-protests/heres-the-latest-on-the-protests-in-kenya
 
 **Live Updates: Casualties Reported as Police Fire on Protesters in Kenya**\
-`Demonstrators breached the parliament to protest a bill that legislators passed Tuesday to raise taxes.`\
+`Demonstrators breached the parliament building to protest the passage of a bill that raises taxes. At least four people were shot, one fatally, the independent Kenya Human Rights Commission said.`\
 https://nytimes.com/live/2024/06/25/world/kenya-protests
 
 **France’s Far-Right National Rally Rebranded Itself. Here’s How.**\
