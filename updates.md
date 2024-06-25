@@ -1,3 +1,7 @@
+**Obama’s Half Sister Is Among Those Tear-Gassed During Protests in Kenya**\
+`Auma Obama, a sociologist and community activist, was being interviewed live on CNN when clouds of tear gas lobbed by the police overwhelmed her.`\
+https://nytimes.com/2024/06/25/world/auma-obama-kenya-protests-nairobi.html
+
 **Boeing Is Said to Offer Stock in Deal for Spirit AeroSystems**\
 `The plane maker is expected to soon strike a deal to acquire most of the operations of Spirit, a troubled supplier that makes the bodies of the 737 Max.`\
 https://nytimes.com/2024/06/25/business/boeing-spirit-aerosystems-acquisition.html
