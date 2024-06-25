@@ -1,3 +1,7 @@
+**Jonathan Majors Is Cast in First Movie Role Since Assault Conviction**\
+`Mr. Majors, who was sentenced to a year of domestic violence programming and was dropped by Marvel, is set to star in the independent thriller “Merciless.”`\
+https://nytimes.com/2024/06/25/movies/jonathan-majors-merciless.html
+
 **‘White Chicks’ at 20: Comedy Beyond the Pale**\
 `The Wayans brothers’ subversive comedy is smarter than you remember.`\
 https://nytimes.com/2024/06/25/movies/white-chicks-anniversary.html
