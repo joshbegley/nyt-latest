@@ -1,3 +1,7 @@
+**Heat Is Killing Thousands, and Big Events Have Not Adjusted**\
+`The deaths of at least 1,300 pilgrims during the hajj points to the growing threat that climate change poses to beloved gatherings.`\
+https://nytimes.com/2024/06/25/world/australia/record-heat-deaths-events.html
+
 **How a Cake Became a National Obsession**\
 `For many Jamaicans, lychee cake is the taste of celebration. Its origin tells the history of Chinese immigration to the Caribbean island.`\
 https://nytimes.com/2024/06/25/dining/lychee-cake.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/dining/gazpacho-meatballs-cucumber-salad.html
 **Kenyan Protesters Storm Parliament as Lawmakers Pass Tax Increases**\
 `The police used live fire and tear gas on protesters who marched on the Parliament building in an attempt to stop a vote on a contentious finance bill.`\
 https://nytimes.com/video/world/africa/100000009538667/kenya-protests-tax-increases.html
-
-**Here’s the latest on the protests in Kenya.**\
-`By Abdi Latif Dahir`\
-https://nytimes.com/live/2024/06/25/world/kenya-protests/heres-the-latest-on-the-protests-in-kenya
 
