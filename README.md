@@ -1,11 +1,3 @@
-**The Pro-Israel Donor With a $100 Million Plan to Elect Trump**\
-`Miriam Adelson long operated in the shadow of her powerful husband, Sheldon Adelson. Now, after his death, she is playing in politics as a solo practitioner for the first time.`\
-https://nytimes.com/2024/06/25/us/politics/miriam-adelson-trump-israel.html
-
-**The protests in Kenya have been driven by younger people.**\
-`By Abdi Latif Dahir`\
-https://nytimes.com/live/2024/06/25/world/kenya-protests/the-protests-in-kenya-have-been-driven-by-younger-people
-
 **Jonathan Majors Is Cast in First Movie Role Since Assault Conviction**\
 `Mr. Majors, who was sentenced to a year of domestic violence programming and was dropped by Marvel, is set to star in the independent thriller “Merciless.”`\
 https://nytimes.com/2024/06/25/movies/jonathan-majors-merciless.html
@@ -37,4 +29,12 @@ https://nytimes.com/2024/06/25/world/europe/france-national-rally-rebranding.htm
 **When the Runways Are a Personal Playlist**\
 `Theater and dance critics can’t own the subjects they cover, but a fashion critic can — at least imaginarily — by making a hits compilation as the clothes go by.`\
 https://nytimes.com/2024/06/25/style/mens-wear-fashion-shows-paris-milan.html
+
+**How Trump and Biden Might Attack Each Other at the CNN Debate**\
+`Immigration, the economy, democracy and abortion rights: Here are the main ways each candidate is likely to slam the other at Thursday’s high-stakes confrontation.`\
+https://nytimes.com/2024/06/25/us/politics/trump-biden-cnn-debate-attacks.html
+
+**In States That Won’t Pay for Obesity Drugs, ‘They May as Well Have Never Been Created’**\
+`Public employees in West Virginia who took the drugs lost weight and were healthier, and some are despondent that the state is canceling a program to help pay for them.`\
+https://nytimes.com/2024/06/25/health/obesity-ozempic-wegovy-west-virginia.html
 
