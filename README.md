@@ -1,3 +1,7 @@
+**He Stole From His Tech Boss and Killed Him to Conceal the Crime**\
+`Tyrese Haspil, 25, was convicted of murdering his former boss, the entrepreneur Fahim Saleh, and dismembering his body in 2020.`\
+https://nytimes.com/2024/06/24/nyregion/fahim-saleh-murder-dismemberment-trial.html
+
 **‘Let’s Do This Thing!’**\
 `Seth Bisen-Hersh and Jeff Chen game the system.`\
 https://nytimes.com/2024/06/24/crosswords/daily-puzzle-2024-06-25.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/24/business/biden-student-debt.html
 **Jamaal Bowman’s Political Malpractice**\
 `The high stakes of Bowman’s primary make his carelessness especially frustrating.`\
 https://nytimes.com/2024/06/24/opinion/bowman-primary-latimer-israel.html
-
-**Ex-Haitian Gang Leader Is Sentenced to 35 Years in Prison in Gunrunning Scheme**\
-`Prosecutors said Joly Germine, 31, who had led the 400 Mawozo gang, was involved in a conspiracy that used ransom money that had been paid for the release of American hostages to buy and smuggle guns into Haiti.`\
-https://nytimes.com/2024/06/24/us/haiti-gang-leader-us-prison-sentence.html
 
