@@ -1,3 +1,7 @@
+**New Jersey Transit Service Disrupted for Third Time in Less Than a Week**\
+`Rush-hour commuters at Penn Station faced a shutdown of close to an hour, followed by extensive delays, after Amtrak investigated a report of a problem with overhead wires.`\
+https://nytimes.com/2024/06/24/nyregion/nj-transit-amtrak-penn-station-delays.html
+
 **He Stole From His Tech Boss and Killed Him to Conceal the Crime**\
 `Tyrese Haspil, 25, was convicted of murdering his former boss, the entrepreneur Fahim Saleh, and dismembering his body in 2020.`\
 https://nytimes.com/2024/06/24/nyregion/fahim-saleh-murder-dismemberment-trial.html

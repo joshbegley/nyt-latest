@@ -22,7 +22,7 @@ https://nytimes.com/2024/06/24/world/europe/zelensky-ukraine-general-dismissed.h
 `Here’s what President Biden and former President Donald J. Trump have done and want to do on abortion, democracy, the economy, immigration, Israel and Gaza, and Social Security and Medicare.`\
 https://nytimes.com/interactive/2024/us/politics/trump-biden-issues-election.html
 
-**New Jersey Transit Service Disrupted for Fifth Time in Two Months**\
+**New Jersey Transit Service Disrupted for Third Time in Less Than a Week**\
 `Rush-hour commuters at Penn Station faced a shutdown of close to an hour, followed by extensive delays, after Amtrak investigated a report of a problem with overhead wires.`\
 https://nytimes.com/2024/06/24/nyregion/nj-transit-amtrak-penn-station-delays.html
 
