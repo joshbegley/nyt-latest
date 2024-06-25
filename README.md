@@ -1,3 +1,11 @@
+**‘Costco, Don’t Give Up on America as a Nation of Readers’: The Week 1 Winner of Our Summer Reading Contest**\
+`Read the work of the winning writer, Daphne Nguyen — and take a look at three favorite video responses, too.`\
+https://nytimes.com/2024/06/25/learning/costco-dont-give-up-on-america-as-a-nation-of-readers-the-week-1-winner-of-our-summer-reading-contest.html
+
+**Kraam Dresses in Indigo to Serve Seasonal, Contemporary Thai**\
+`Sendo has a new counter for sushi, Nordic fare in a rustic setting at Kabin and more restaurant news.`\
+https://nytimes.com/2024/06/25/dining/nyc-restaurant-news.html
+
 **Seth Binzer, Crazy Town’s Lead Singer, ‘Shifty Shellshock,’ Dies at 49**\
 `He was the frontman for the rap-rock band Crazy Town, which was most known for the hit song “Butterfly.”`\
 https://nytimes.com/2024/06/25/arts/music/shifty-shellshock-dead-crazy-town.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/18/opinion/bowman-latimer-primary.html
 **Patients Stunned by Their Medical Bills**\
 `Responses to an essay about facility fees added by hospital-affiliated practices. Also: The border; North Korea’s weapons; Justin Timberlake’s arrest.`\
 https://nytimes.com/2024/06/25/opinion/patients-medical-bills.html
-
-**The Pro-Israel Donor With a $100 Million Plan to Elect Trump**\
-`Miriam Adelson long operated in the shadow of her powerful husband, Sheldon Adelson. Now, after his death, she is playing in politics as a solo practitioner for the first time.`\
-https://nytimes.com/2024/06/25/us/politics/miriam-adelson-trump-israel.html
-
-**The protests in Kenya have been driven by younger people.**\
-`By Abdi Latif Dahir`\
-https://nytimes.com/live/2024/06/25/world/kenya-protests/the-protests-in-kenya-have-been-driven-by-younger-people
 
