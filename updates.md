@@ -1,3 +1,11 @@
+**Hillary Clinton: I’ve Debated Trump and Biden. Here’s What I’m Watching For.**\
+`Going head-to-head with the former president is like juggling nonsense, blather and bluster.`\
+https://nytimes.com/2024/06/25/opinion/hillary-clinton-trump-biden-debate.html
+
+**What Is It About Robert F. Kennedy Jr., Anyway? 12 Voters Explain His Appeal.**\
+`The participants talk about their frustrations with the two-party system, the appeal of third-party candidates and the issues most important to them in voting for president.`\
+https://nytimes.com/interactive/2024/06/25/opinion/focus-group-rfk-biden-trump.html
+
 **Tuesday Briefing**\
 `An attack in Dagestan rekindled Russian fears of terrorism.`\
 https://nytimes.com/2024/06/25/briefing/russia-terror-attack.html

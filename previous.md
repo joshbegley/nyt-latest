@@ -1,3 +1,11 @@
+**Hillary Clinton: I’ve Debated Trump and Biden. Here’s What I’m Watching For.**\
+`Going head-to-head with the former president is like juggling nonsense, blather and bluster.`\
+https://nytimes.com/2024/06/25/opinion/hillary-clinton-trump-biden-debate.html
+
+**What Is It About Robert F. Kennedy Jr., Anyway? 12 Voters Explain His Appeal.**\
+`The participants talk about their frustrations with the two-party system, the appeal of third-party candidates and the issues most important to them in voting for president.`\
+https://nytimes.com/interactive/2024/06/25/opinion/focus-group-rfk-biden-trump.html
+
 **Tuesday Briefing**\
 `An attack in Dagestan rekindled Russian fears of terrorism.`\
 https://nytimes.com/2024/06/25/briefing/russia-terror-attack.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/25/pageoneplus/quotation-of-the-day-realities-of-abo
 **Corrections: June 25, 2024**\
 `Corrections that appeared in print on Tuesday, June 25, 2024.`\
 https://nytimes.com/2024/06/25/pageoneplus/corrections-june-25-2024.html
-
-**He Stole From His Tech Boss and Killed Him to Conceal the Crime**\
-`Tyrese Haspil, 25, was convicted of murdering his former boss, the entrepreneur Fahim Saleh, and dismembering his body in 2020.`\
-https://nytimes.com/2024/06/24/nyregion/fahim-saleh-murder-dismemberment-trial.html
-
-**‘Let’s Do This Thing!’**\
-`Seth Bisen-Hersh and Jeff Chen game the system.`\
-https://nytimes.com/2024/06/24/crosswords/daily-puzzle-2024-06-25.html
 
