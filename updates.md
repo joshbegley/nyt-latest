@@ -1,3 +1,7 @@
+**The turmoil in Nairobi is a blow to the Biden administration’s embrace of Kenya’s president.**\
+`Just a day earlier, President Biden had formally named Kenya a major non-NATO ally.`\
+https://nytimes.com/2024/06/25/world/the-turmoil-in-nairobi-is-a-blow-to-the-biden-administrations-embrace-of-kenyas-president.html
+
 **7 New Songs You Should Hear Now**\
 `Listen to Lorde tell her side of the story on a surprise remix with Charli XCX and more new songs.`\
 https://nytimes.com/2024/06/25/arts/music/amplifier-newsletter-charli-xcx-lorde.html
