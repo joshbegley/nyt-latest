@@ -1,3 +1,7 @@
+**Seth Binzer, Crazy Town’s Lead Singer, ‘Shifty Shellshock,’ Dies at 49**\
+`He was the frontman for the rap-rock band Crazy Town, which was most known for the hit song “Butterfly.”`\
+https://nytimes.com/2024/06/25/arts/music/shifty-shellshock-dead-crazy-town.html
+
 **Oklahoma Supreme Court Says No to State Funding for a Religious Charter School**\
 `In a closely watched case, Oklahoma’s highest court blocked what was set to become the nation’s first religious charter school. An appeal is likely.`\
 https://nytimes.com/2024/06/25/us/oklahoma-supreme-court-religious-charter-school.html
@@ -11,7 +15,7 @@ https://nytimes.com/2024/06/25/arts/dance/wayne-mcgregor-montpellier-festival.ht
 https://nytimes.com/2024/06/25/theater/find-me-here-review.html
 
 **Heat Is Killing Thousands, and Big Events Have Not Adjusted**\
-`The deaths of at least 1,300 pilgrims during the hajj points to the growing threat that climate change poses to beloved gatherings.`\
+`The deaths of at least 1,300 pilgrims during the hajj point to the growing threat that climate change poses to beloved gatherings.`\
 https://nytimes.com/2024/06/25/world/australia/record-heat-deaths-events.html
 
 **How a Cake Became a National Obsession**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/us/politics/miriam-adelson-trump-israel.html
 **The protests in Kenya have been driven by younger people.**\
 `By Abdi Latif Dahir`\
 https://nytimes.com/live/2024/06/25/world/kenya-protests/the-protests-in-kenya-have-been-driven-by-younger-people
-
-**Jonathan Majors Is Cast in First Movie Role Since Assault Conviction**\
-`Mr. Majors, who was sentenced to a year of domestic violence programming and was dropped by Marvel, is set to star in the independent thriller “Merciless.”`\
-https://nytimes.com/2024/06/25/movies/jonathan-majors-merciless.html
 

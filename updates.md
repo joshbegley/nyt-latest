@@ -1,3 +1,11 @@
+**Seth Binzer, Crazy Town’s Lead Singer, ‘Shifty Shellshock,’ Dies at 49**\
+`He was the frontman for the rap-rock band Crazy Town, which was most known for the hit song “Butterfly.”`\
+https://nytimes.com/2024/06/25/arts/music/shifty-shellshock-dead-crazy-town.html
+
+**Heat Is Killing Thousands, and Big Events Have Not Adjusted**\
+`The deaths of at least 1,300 pilgrims during the hajj point to the growing threat that climate change poses to beloved gatherings.`\
+https://nytimes.com/2024/06/25/world/australia/record-heat-deaths-events.html
+
 **Oklahoma Supreme Court Says No to State Funding for a Religious Charter School**\
 `In a closely watched case, Oklahoma’s highest court blocked what was set to become the nation’s first religious charter school. An appeal is likely.`\
 https://nytimes.com/2024/06/25/us/oklahoma-supreme-court-religious-charter-school.html
