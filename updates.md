@@ -1,3 +1,7 @@
+**Tuesday Briefing**\
+`An attack in Dagestan rekindled Russian fears of terrorism.`\
+https://nytimes.com/2024/06/25/briefing/russia-terror-attack.html
+
 **What to See on London Stages This Summer**\
 `British theater recommendations for visitors and residents of all ages — and inclinations.`\
 https://nytimes.com/2024/06/25/theater/london-theater-whats-on.html
