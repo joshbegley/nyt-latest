@@ -1,3 +1,11 @@
+**‘White Chicks’ at 20: Comedy Beyond the Pale**\
+`The Wayans brothers’ subversive comedy is smarter than you remember.`\
+https://nytimes.com/2024/06/25/movies/white-chicks-anniversary.html
+
+**It’s Called the Best Gazpacho Because It Is the Best Gazpacho**\
+`Julia Moskin’s five-star recipe is simple, salty, thick and smooth — a coolly satisfying remedy for summer’s sluggish heat.`\
+https://nytimes.com/2024/06/25/dining/gazpacho-meatballs-cucumber-salad.html
+
 **Kenyan Protesters Storm Parliament as Lawmakers Pass Tax Increases**\
 `The police used live fire and tear gas on protesters who marched on the Parliament building in an attempt to stop a vote on a contentious finance bill.`\
 https://nytimes.com/video/world/africa/100000009538667/kenya-protests-tax-increases.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/25/health/obesity-ozempic-wegovy-west-virginia.html
 **Leslye Headland’s ‘Cult of Love’ to Open on Broadway in the Fall**\
 `The play will be produced by Second Stage, which is also planning an Off Broadway production of a two-character drama by Donald Margulies.`\
 https://nytimes.com/2024/06/25/theater/leslye-headland-cult-love-broadway.html
-
-**Russia Committed Human Rights Violations in Crimea, European Court Finds**\
-`The European Court of Human Rights listed multiple violations. Its findings paint a grim picture of life under a decade of Russian occupation.`\
-https://nytimes.com/2024/06/25/world/europe/russia-crimea-european-human-rights-court.html
-
-**Foreign Police Officers Land on the Ground in Haiti**\
-`The first wave of a 2,500-member international force sent to restore order in the gang-plagued Caribbean nation has arrived, but critics worry the plan will fail.`\
-https://nytimes.com/2024/06/25/world/americas/haiti-kenya-police-gangs.html
 
