@@ -1,3 +1,7 @@
+**Why the N.F.L. Put a $7 Billion Antitrust Case in the Hands of an Unpredictable Jury**\
+`A class-action lawsuit over the cost of Sunday Ticket subscriptions underscored how valuable broadcast deals have been for the league’s success.`\
+https://nytimes.com/2024/06/25/business/media/nfl-sunday-ticket-lawsuit-cost-tv-deal.html
+
 **Safety Agency Faults Norfolk Southern for ‘Vent and Burn’ After 2023 Derailment**\
 `The National Transportation Safety Board said the decision to release and incinerate toxic chemicals in the wake of a train derailment in East Palestine, Ohio, was misguided.`\
 https://nytimes.com/2024/06/25/us/politics/norfolk-southern-ntsb-vent-and-burn.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/dining/nyc-restaurant-news.html
 **Seth Binzer, Crazy Town’s Lead Singer, ‘Shifty Shellshock,’ Dies at 49**\
 `He was the frontman for the rap-rock band Crazy Town, which was most known for the hit song “Butterfly.”`\
 https://nytimes.com/2024/06/25/arts/music/shifty-shellshock-dead-crazy-town.html
-
-**Oklahoma Supreme Court Says No to State Funding for a Religious Charter School**\
-`In a closely watched case, Oklahoma’s highest court blocked what was set to become the nation’s first religious charter school. An appeal is likely.`\
-https://nytimes.com/2024/06/25/us/oklahoma-supreme-court-religious-charter-school.html
 
