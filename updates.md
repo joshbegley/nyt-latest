@@ -1,3 +1,19 @@
+**With Virginia primary undecided, Representative Bob Good seeks funds for a recount.**\
+`The margin between the congressman and his Trump-backed challenger is just slightly above the threshold for a state-funded recount. His opponent has already declared victory, and both are election deniers.`\
+https://nytimes.com/live/2024/06/24/us/biden-trump-election-debate/with-virginia-primary-undecided-representative-bob-good-seeks-funds-for-a-recount
+
+**Parts of Biden’s Student Loan Repayment Plan Are Blocked by Judges**\
+`A part of the SAVE plan that would have cut monthly bills for millions of borrowers starting on July 1 was put on hold.`\
+https://nytimes.com/2024/06/24/business/biden-student-debt.html
+
+**Jamaal Bowman’s Political Malpractice**\
+`The high stakes of Bowman’s primary make his carelessness especially frustrating.`\
+https://nytimes.com/2024/06/24/opinion/bowman-primary-latimer-israel.html
+
+**Hoping for a Glimpse of Hailey Bieber, Hundreds Turn Out for Her Makeup**\
+`After braving a line that snaked through SoHo, fans snapped selfies and rubbed blush on their cheeks inside a tiny pop-up shop for Ms. Bieber’s makeup brand, Rhode.`\
+https://nytimes.com/2024/06/24/style/hailey-bieber-makeup-rhode.html
+
 **Oakland’s Mayor Had Enough Troubles. Then the F.B.I. Came Knocking.**\
 `Sheng Thao was already facing a recall election as residents remain frustrated over crime and homelessness. She said on Monday that she had committed no crimes.`\
 https://nytimes.com/2024/06/24/us/politics/oakland-mayor-sheng-thao-fbi-raid.html
