@@ -1,3 +1,7 @@
+**Readers Share Their Favorite Parts of 2024 So Far**\
+`New hobbies, graduation ceremonies and more.`\
+https://nytimes.com/2024/06/25/us/california-favorite-2024.html
+
 **How a Brooklyn District Tackled School Segregation**\
 `District 15 dropped selective admissions for middle schools, and the schools are now more integrated than they were.`\
 https://nytimes.com/2024/06/25/nyregion/brooklyn-district-15-segregation.html

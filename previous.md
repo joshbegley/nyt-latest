@@ -1,3 +1,7 @@
+**Readers Share Their Favorite Parts of 2024 So Far**\
+`New hobbies, graduation ceremonies and more.`\
+https://nytimes.com/2024/06/25/us/california-favorite-2024.html
+
 **How a Brooklyn District Tackled School Segregation**\
 `District 15 dropped selective admissions for middle schools, and the schools are now more integrated than they were.`\
 https://nytimes.com/2024/06/25/nyregion/brooklyn-district-15-segregation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/arts/television/babylon-berlin-season-four.html
 **E.U. Charges Microsoft With Antitrust Violations Over Teams Bundling**\
 `The tech giant has been accused of stifling competition by packaging its video conferencing app with other tools like Word and Excel.`\
 https://nytimes.com/2024/06/25/business/european-union-microsoft-teams-antitrust.html
-
-**Biden’s Polling Progress**\
-`The president has narrowed the gap with Donald Trump, but Trump still holds a small lead.`\
-https://nytimes.com/2024/06/25/briefing/biden-trump-2024-polls.html
 
