@@ -1,3 +1,15 @@
+**Ex-Haitian Gang Leader Is Sentenced to 35 Years in Prison in Gunrunning Scheme**\
+`Prosecutors said Joly Germine, 31, who had led the 400 Mawozo gang, was involved in a conspiracy that used ransom money that had been paid for the release of American hostages to buy and smuggle guns into Haiti.`\
+https://nytimes.com/2024/06/24/us/haiti-gang-leader-us-prison-sentence.html
+
+**Oakland’s Mayor Had Enough Troubles. Then the F.B.I. Came Knocking.**\
+`Sheng Thao was already facing a recall election as residents remain frustrated over crime and homelessness. She said on Monday that she had committed no crimes.`\
+https://nytimes.com/2024/06/24/us/politics/oakland-mayor-fbi-recall.html
+
+**Hoping for a Glimpse of Hailey Bieber, Hundreds Turn Out for Her Makeup**\
+`After braving a line that snaked through SoHo, fans snapped selfies and rubbed blush on their cheeks inside the tiny Rhode pop-up shop on Monday.`\
+https://nytimes.com/2024/06/24/style/hailey-bieber-makeup-rhode.html
+
 **Methodology: How The Times Calculates 2024 Polling Averages**\
 `An average of surveys may sound straightforward, but even a simple approach faces a series of choices.`\
 https://nytimes.com/article/election-polling-averages-methodology.html
