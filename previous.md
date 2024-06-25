@@ -1,3 +1,7 @@
+**‘Babylon Berlin’ Is Back. Here’s What You Need to Know.**\
+`Season 4 of the epic crime drama has finally come to streaming in the United States, via MHz Choice. Here’s a refresher on where we left off.`\
+https://nytimes.com/2024/06/25/arts/television/babylon-berlin-season-four.html
+
 **E.U. Charges Microsoft With Antitrust Violations Over Teams Bundling**\
 `The tech giant has been accused of stifling competition by packaging its video conferencing app with other tools like Word and Excel.`\
 https://nytimes.com/2024/06/25/business/european-union-microsoft-teams-antitrust.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/crosswords/connections-companion-381.html
 **I Am Cringe. The World Is Sus. But My Teenager’s Slang Is Based.**\
 `Our kids’ lingo is not only better than any we used, it’s a useful window into the way they see the world.`\
 https://nytimes.com/2024/06/25/opinion/gen-z-slang-language.html
-
-**‘Babylon Berlin’ Review: Dancing While the World Begins to Burn**\
-`The long-awaited fourth season of the cult-favorite German thriller takes place in 1931, with the Nazis not quite in power.`\
-https://nytimes.com/2024/06/25/arts/television/babylon-berlin-season-4-review.html
 
