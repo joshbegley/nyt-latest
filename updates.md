@@ -1,3 +1,7 @@
+**‘Let’s Do This Thing!’**\
+`Seth Bisen-Hersh and Jeff Chen game the system.`\
+https://nytimes.com/2024/06/24/crosswords/daily-puzzle-2024-06-25.html
+
 **‘Is There Any Chance He Can Sit on a Camel?’ A Senator’s Wife Wanted to Know.**\
 `An aide to Senator Robert Menendez testified that she had been asked to consult with an Egyptian intelligence officer who had befriended Nadine Menendez.`\
 https://nytimes.com/2024/06/24/nyregion/robert-menendez-bribery-egypt.html
