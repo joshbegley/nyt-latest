@@ -1,3 +1,7 @@
+**Foreign Police Officers Land on the Ground in Haiti**\
+`The first wave of a 2,500-member international force sent to restore order in the gang-plagued Caribbean nation has arrived, but critics worry the plan will fail.`\
+https://nytimes.com/2024/06/25/world/americas/haiti-kenya-police-gangs.html
+
 **Readers Share Their Favorite Parts of 2024 So Far**\
 `New hobbies, graduation ceremonies and more.`\
 https://nytimes.com/2024/06/25/us/california-favorite-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/world/middleeast/what-is-famine.html
 **‘Babylon Berlin’ Is Back. Here’s What You Need to Know.**\
 `Season 4 of the epic crime drama has finally come to streaming in the United States, via MHz Choice. Here’s a refresher on where we left off.`\
 https://nytimes.com/2024/06/25/arts/television/babylon-berlin-season-four.html
-
-**E.U. Charges Microsoft With Antitrust Violations Over Teams Bundling**\
-`The tech giant has been accused of stifling competition by packaging its video conferencing app with other tools like Word and Excel.`\
-https://nytimes.com/2024/06/25/business/european-union-microsoft-teams-antitrust.html
 
