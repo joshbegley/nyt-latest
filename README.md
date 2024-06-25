@@ -1,3 +1,19 @@
+**Assange Agrees to Plea Deal, and Israel-Lebanon Border Strikes Intensify**\
+`Plus, China’s extraordinary moon mission.`\
+https://nytimes.com/2024/06/25/podcasts/julian-assange-israel-hamas.html
+
+**The Plan to Defeat Critics of Israel in Congress**\
+`A pro-Israel political group has spent millions to defeat Representative Jamaal Bowman of New York.`\
+https://nytimes.com/2024/06/25/podcasts/the-daily/bowman-israel-primary.html
+
+**Wordle Review No. 1,103, June 26, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/25/crosswords/wordle-review-no-1103-june-26-2024.html
+
+**The Connections Companion No. 381, June 26, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/25/crosswords/connections-companion-381.html
+
 **I Am Cringe. The World Is Sus. But My Teenager’s Slang Is Based.**\
 `Our kids’ lingo is not only better than any we used, it’s a useful window into the way they see the world.`\
 https://nytimes.com/2024/06/25/opinion/gen-z-slang-language.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/06/25/world/europe/london-japan-emperor-kew-gardens.htm
 **Age and the Image of Capacity**\
 `President Biden’s toughest opponent may not be his predecessor. It is the cultural meaning, built up through centuries, that we assign to being old.`\
 https://nytimes.com/2024/06/25/arts/television/biden-trump-election-age.html
-
-**How Venezuela’s Leader Could Stay in Power, No Matter What Voters Want**\
-`Four former officials in the government of President Nicolás Maduro describe his options between now and an election that could remove him from power — or solidify his grip.`\
-https://nytimes.com/2024/06/25/world/americas/venezuela-election-maduro-power.html
-
-**Three Ideas to Beat the Heat, and the People Who Made Them Happen**\
-`As temperatures soar around the world, practical experiments are emerging to protect people.`\
-https://nytimes.com/2024/06/25/climate/heat-insurance-cooling-app.html
-
-**‘I Am: Celine Dion’ Review: You Saw the Best in Me**\
-`Dion’s voice made her a star. A new documentary on Amazon Prime Video brings her back to Earth, showing her intimate struggles with stiff person syndrome.`\
-https://nytimes.com/2024/06/25/movies/i-am-celine-dion-review.html
-
-**Why Republicans Are Talking About Biden’s ‘Dictatorship’**\
-`The breathless catastrophizing of Trump and his allies is not an expression of ignorance as much as it is a statement of intent.`\
-https://nytimes.com/2024/06/25/opinion/biden-burgum-trump-dictatorship.html
 
