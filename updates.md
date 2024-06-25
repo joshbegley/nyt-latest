@@ -1,3 +1,19 @@
+**Assange Agrees to Plea Deal, and Israel-Lebanon Border Strikes Intensify**\
+`Plus, China’s extraordinary moon mission.`\
+https://nytimes.com/2024/06/25/podcasts/julian-assange-israel-hamas.html
+
+**The Plan to Defeat Critics of Israel in Congress**\
+`A pro-Israel political group has spent millions to defeat Representative Jamaal Bowman of New York.`\
+https://nytimes.com/2024/06/25/podcasts/the-daily/bowman-israel-primary.html
+
+**Wordle Review No. 1,103, June 26, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/25/crosswords/wordle-review-no-1103-june-26-2024.html
+
+**The Connections Companion No. 381, June 26, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/25/crosswords/connections-companion-381.html
+
 **I Am Cringe. The World Is Sus. But My Teenager’s Slang Is Based.**\
 `Our kids’ lingo is not only better than any we used, it’s a useful window into the way they see the world.`\
 https://nytimes.com/2024/06/25/opinion/gen-z-slang-language.html
