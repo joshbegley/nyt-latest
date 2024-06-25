@@ -1,3 +1,11 @@
+**‘White Chicks’ at 20: Comedy Beyond the Pale**\
+`The Wayans brothers’ subversive comedy is smarter than you remember.`\
+https://nytimes.com/2024/06/25/movies/white-chicks-anniversary.html
+
+**It’s Called the Best Gazpacho Because It Is the Best Gazpacho**\
+`Julia Moskin’s five-star recipe is simple, salty, thick and smooth — a coolly satisfying remedy for summer’s sluggish heat.`\
+https://nytimes.com/2024/06/25/dining/gazpacho-meatballs-cucumber-salad.html
+
 **Live Updates: Casualties Reported as Police Fire on Protesters in Kenya**\
 `Demonstrators breached the parliament building to protest the passage of a bill that raises taxes. At least four people were shot, one fatally, the independent Kenya Human Rights Commission said.`\
 https://nytimes.com/live/2024/06/25/world/kenya-protests
