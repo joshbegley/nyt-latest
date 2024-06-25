@@ -1,3 +1,7 @@
+**Wednesday Briefing: Major Protests in Nairobi**\
+`Also, Julian Assange’s plea deal with the U.S.`\
+https://nytimes.com/2024/06/25/world/asia/kenya-protests-assange-australia-asia.html
+
 **Man Fatally Shoots 5 in North Las Vegas and Kills Himself After Manhunt, Police Say**\
 `The man, Eric Adams, was also suspected of critically wounding a 13-year-old girl in shootings at two nearby apartments.`\
 https://nytimes.com/2024/06/25/us/eric-adams-north-las-vegas-shooting-arrest.html

@@ -1,3 +1,7 @@
+**Wednesday Briefing: Major Protests in Nairobi**\
+`Also, Julian Assange’s plea deal with the U.S.`\
+https://nytimes.com/2024/06/25/world/asia/kenya-protests-assange-australia-asia.html
+
 **Man Fatally Shoots 5 in North Las Vegas and Kills Himself After Manhunt, Police Say**\
 `The man, Eric Adams, was also suspected of critically wounding a 13-year-old girl in shootings at two nearby apartments.`\
 https://nytimes.com/2024/06/25/us/eric-adams-north-las-vegas-shooting-arrest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/us/politics/austin-russia-defense-minister-call.h
 **New Jersey Gamer Flew to Florida to Attack Rival With Hammer, Police Say**\
 `The man went to the house of another player of the fantasy online game ArcheAge to confront him, the Nassau County sheriff’s office in Florida said. He is charged with attempted murder.`\
 https://nytimes.com/2024/06/25/us/new-jersey-man-arrested-gamer-attack.html
-
-**Bringing Up Drugs? Undermining the Debate? These Are Old Trump Tactics.**\
-`Ahead of a high-stakes debate, former President Donald J. Trump is trying to reset the low expectations he set for President Biden.`\
-https://nytimes.com/2024/06/25/us/politics/trump-debate-tactics.html
 
