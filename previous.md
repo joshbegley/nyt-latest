@@ -1,3 +1,7 @@
+**How Much Blush Is Too Much?**\
+`If you’re not sure, you might have what some people on TikTok are calling “blush blindness.”`\
+https://nytimes.com/2024/06/25/style/blush-blindness-tiktok.html
+
 **‘I Might Be Real-Life Good at This’: Shooting for Broadway at the Jimmy Awards**\
 `The awards, which celebrated excellence in high school musical theater on Monday, have become a launchpad for future stars and Tony nominees.`\
 https://nytimes.com/2024/06/25/theater/jimmy-awards-high-school-theater.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/25/world/kenya-protests/the-kenyan-police-are-a
 **U.S. Swimming Stars Assail Antidoping Agency Ahead of Olympics**\
 `Michael Phelps and Allison Schmitt are set to testify to a House subcommittee after reports that Chinese swimmers were allowed to compete in the 2021 Games after testing positive for a banned drug.`\
 https://nytimes.com/2024/06/25/sports/olympics/phelps-schmitt-olympics-antidoping-hearing.html
-
-**Trump Can Now Criticize Witnesses Who Testified Against Him, Judge Rules**\
-`The judge who oversaw Donald J. Trump’s criminal trial loosened the rules governing what Mr. Trump can say about it, and said his gag order would be lifted after his July 11 sentencing.`\
-https://nytimes.com/2024/06/25/nyregion/trump-gag-order-hush-money-trial.html
 
