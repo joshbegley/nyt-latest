@@ -1,3 +1,7 @@
+**I.C.C. Issues Arrest Warrants for 2 High-Profile Russian Security Figures**\
+`Sergei K. Shoigu, the former defense minister, and Gen. Valery V. Gerasimov, the country’s highest-ranking military officer, were accused of directing attacks against civilians.`\
+https://nytimes.com/2024/06/25/world/europe/icc-arrest-warrants-russia-ukraine-war.html
+
 **What Is a Famine and Who Determines That One Exists?**\
 `A group of global experts said that Gaza is at high risk of famine, but stopped short of saying that one had begun. Here’s a closer look at how famine is defined.`\
 https://nytimes.com/2024/06/25/world/middleeast/what-is-famine.html

@@ -1,3 +1,7 @@
+**I.C.C. Issues Arrest Warrants for 2 High-Profile Russian Security Figures**\
+`Sergei K. Shoigu, the former defense minister, and Gen. Valery V. Gerasimov, the country’s highest-ranking military officer, were accused of directing attacks against civilians.`\
+https://nytimes.com/2024/06/25/world/europe/icc-arrest-warrants-russia-ukraine-war.html
+
 **What Is a Famine and Who Determines That One Exists?**\
 `A group of global experts said that Gaza is at high risk of famine, but stopped short of saying that one had begun. Here’s a closer look at how famine is defined.`\
 https://nytimes.com/2024/06/25/world/middleeast/what-is-famine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/podcasts/the-daily/bowman-israel-primary.html
 **Wordle Review No. 1,103, June 26, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/06/25/crosswords/wordle-review-no-1103-june-26-2024.html
-
-**The Connections Companion No. 381, June 26, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/06/25/crosswords/connections-companion-381.html
 
