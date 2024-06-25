@@ -1,3 +1,7 @@
+**Word of the Day: academe**\
+`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/06/25/learning/word-of-the-day-academe.html
+
 **Inside Nvidia’s $500 Billion Wipeout**\
 `The chipmaker’s stock has tumbled in recent days, a reminder that the artificial intelligence stock boom could be tough to sustain.`\
 https://nytimes.com/2024/06/25/business/dealbook/nvidia-stock-wipeout.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/briefing/biden-trump-2024-polls.html
 **Deadly Fire Exposes Harsh Conditions Migrant Workers Face in South Korea**\
 `Foreigners do dirty, hazardous work, and advocates say the blaze that killed 23 at a battery plant shows that they need better protection.`\
 https://nytimes.com/2024/06/25/world/asia/south-korea-lithium-battery-fire.html
-
-**Experts on hunger say that almost half a million people in Gaza face starvation.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/06/25/world/israel-gaza-war-hamas/experts-on-hunger-say-that-almost-half-a-million-people-in-gaza-face-starvation
 

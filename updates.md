@@ -1,3 +1,7 @@
+**Word of the Day: academe**\
+`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/06/25/learning/word-of-the-day-academe.html
+
 **Strike Kills Sister of Hamas’s Political Leader**\
 `Hamas confirmed the death of a sister of Ismail Haniyeh and her family. The Israeli military said it was aware of the reports but could not “currently confirm” that it had struck the Haniyeh family home.`\
 https://nytimes.com/2024/06/25/world/middleeast/strike-haniyeh-hamas-gaza.html
