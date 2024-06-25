@@ -1,3 +1,11 @@
+**The Southern Border, Terrorism Fears, and the Arrests of 8 Tajik Men**\
+`The men were arrested after the F.B.I. quietly began an investigation that stretched across the country and involved scores of bureau personnel.`\
+https://nytimes.com/2024/06/25/us/politics/terrorism-threat-fbi-tajik.html
+
+**7 New Songs You Should Hear Now**\
+`Listen to Lorde tell her side of the story on a surprise remix with Charli XCX and 6 more new songs.`\
+https://nytimes.com/2024/06/25/arts/music/amplifier-newsletter-charli-xcx-lorde.html
+
 **Assange’s Plea Deal Sets a Chilling Precedent, but It Could Have Been Worse**\
 `The deal brings an ambiguous end to a legal saga that has jeopardized the ability of journalists to report on military, intelligence or diplomatic information that officials deem secret.`\
 https://nytimes.com/2024/06/25/us/assange-plea-deal-press-freedom.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/25/theater/ulysses-bard-college-elevator-repair-serv
 **Kenya Explodes in Violence as Protesters Breach the Parliament Building**\
 `Across the country, outrage over proposed tax increases drives Kenyans to the streets.`\
 https://nytimes.com/2024/06/25/world/africa/kenya-protest-photos.html
-
-**‘Costco, Don’t Give Up on America as a Nation of Readers’: The Week 1 Winner of Our Summer Reading Contest**\
-`Read the work of the winning writer, Daphne Nguyen — and take a look at three favorite video responses, too.`\
-https://nytimes.com/2024/06/25/learning/costco-dont-give-up-on-america-as-a-nation-of-readers-the-week-1-winner-of-our-summer-reading-contest.html
-
-**Kraam Dresses in Indigo to Serve Seasonal, Contemporary Thai**\
-`Sendo has a new counter for sushi, Nordic fare in a rustic setting at Kabin and more restaurant news.`\
-https://nytimes.com/2024/06/25/dining/nyc-restaurant-news.html
 

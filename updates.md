@@ -1,3 +1,11 @@
+**The Southern Border, Terrorism Fears, and the Arrests of 8 Tajik Men**\
+`The men were arrested after the F.B.I. quietly began an investigation that stretched across the country and involved scores of bureau personnel.`\
+https://nytimes.com/2024/06/25/us/politics/terrorism-threat-fbi-tajik.html
+
+**7 New Songs You Should Hear Now**\
+`Listen to Lorde tell her side of the story on a surprise remix with Charli XCX and 6 more new songs.`\
+https://nytimes.com/2024/06/25/arts/music/amplifier-newsletter-charli-xcx-lorde.html
+
 **Assange’s Plea Deal Sets a Chilling Precedent, but It Could Have Been Worse**\
 `The deal brings an ambiguous end to a legal saga that has jeopardized the ability of journalists to report on military, intelligence or diplomatic information that officials deem secret.`\
 https://nytimes.com/2024/06/25/us/assange-plea-deal-press-freedom.html
