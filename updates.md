@@ -1,3 +1,7 @@
+**Turning 26 and Struggling to Find Health Insurance? Tell Us About It.**\
+`The New York Times and KFF Health News are looking into a dreaded “adulting” milestone: finding your own medical insurance at 26.`\
+https://nytimes.com/2024/06/25/health/health-insurance-young-adults.html
+
 **I.C.C. Issues Arrest Warrants for 2 High-Profile Russian Security Figures**\
 `Sergei K. Shoigu, the former defense minister, and Gen. Valery V. Gerasimov, the country’s highest-ranking military officer, were accused of directing attacks against civilians.`\
 https://nytimes.com/2024/06/25/world/europe/icc-arrest-warrants-russia-ukraine-war.html
