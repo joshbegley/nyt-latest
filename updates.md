@@ -1,3 +1,7 @@
+**France’s Far-Right National Rally Rebranded Itself. Here’s How.**\
+`Many long considered Marine Le Pen’s party too extreme to be anywhere close to power. Now, the party could win a parliamentary election — and fill the prime minister’s seat.`\
+https://nytimes.com/2024/06/25/world/europe/france-national-rally-rebranding.html
+
 **When the Runways Are a Personal Playlist**\
 `Theater and dance critics can’t own the subjects they cover, but a fashion critic can — at least imaginarily — by making a hits compilation as the clothes go by.`\
 https://nytimes.com/2024/06/25/style/mens-wear-fashion-shows-paris-milan.html
