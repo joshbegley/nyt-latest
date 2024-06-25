@@ -1,3 +1,11 @@
+**A Wax Statue of Lincoln Melted Into a Meme**\
+`The sculpture was part of a series meant to comment on American monument culture. Cue the jokes instead.`\
+https://nytimes.com/2024/06/25/arts/lincoln-wax-statue-melted.html
+
+**Major Record Labels Sue A.I. Music Generators**\
+`The lawsuits say that Udio and Suno trained their products on reams of copyrighted music.`\
+https://nytimes.com/2024/06/25/arts/music/record-labels-ai-lawsuit-sony-universal-warner.html
+
 **After a Brief Run, ‘Tommy’ Revival to Close on Broadway**\
 `“The Who’s Tommy,” which has a rock score by Pete Townshend, will end on July 21. A national tour is in the works.`\
 https://nytimes.com/2024/06/25/theater/tommy-revival-broadway-closing.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/25/us/politics/bowman-latimer-ny-primary.html
 **Daily Aspirin Use Carries Risks. Many Older Adults Take It Anyway.**\
 `The blood thinner can raise the likelihood of gastrointestinal bleeding, especially in people over 60. Here’s what to know.`\
 https://nytimes.com/2024/06/25/well/daily-aspirin-risks.html
-
-**Anti-Tax Riots Rock Kenya, as President Vows Crackdown on ‘Treasonous’ Protesters**\
-`At least five people were killed in clashes with the police that erupted after lawmakers approved tax increases that critics said would drive up the cost of living for millions.`\
-https://nytimes.com/2024/06/25/world/africa/nairobi-kenya-tax-protests.html
-
-**A Bird-watchers Paradise, Opened Up by Colombia’s Peace Deal**\
-`The 2016 peace treaty that ended a decades-long civil conflict has turned Colombia — home to more species of birds than any other country on Earth — into a birders’ delight, opening up forests that were once controlled by anti-government armed groups.`\
-https://nytimes.com/card/2024/06/25/world/americas/colombia-birdwatching
 
