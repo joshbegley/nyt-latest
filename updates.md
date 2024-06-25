@@ -1,3 +1,7 @@
+**Patients Stunned by Their Medical Bills**\
+`Responses to an essay about facility fees added by hospital-affiliated practices. Also: The border; North Korea’s weapons; Justin Timberlake’s arrest.`\
+https://nytimes.com/2024/06/25/opinion/patients-medical-bills.html
+
 **The Pro-Israel Donor With a $100 Million Plan to Elect Trump**\
 `Miriam Adelson long operated in the shadow of her powerful husband, Sheldon Adelson. Now, after his death, she is playing in politics as a solo practitioner for the first time.`\
 https://nytimes.com/2024/06/25/us/politics/miriam-adelson-trump-israel.html
