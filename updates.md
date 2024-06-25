@@ -1,3 +1,7 @@
+**The turmoil in Nairobi is a blow to the Biden administration’s embrace of Kenya’s president.**\
+`By Declan Walsh`\
+https://nytimes.com/live/2024/06/25/world/kenya-protests/the-turmoil-in-nairobi-is-a-blow-to-the-biden-administrations-embrace-of-kenyas-president
+
 **High living costs are straining even Africa’s most stable economies.**\
 `By Lynsey Chutel`\
 https://nytimes.com/live/2024/06/25/world/kenya-protests/high-living-costs-are-straining-even-africas-most-stable-economies
