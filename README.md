@@ -1,7 +1,3 @@
-**Jonathan Majors Is Cast in First Movie Role Since Assault Conviction**\
-`Mr. Majors, who was sentenced to a year of domestic violence programming and was dropped by Marvel, is set to star in the independent thriller “Merciless.”`\
-https://nytimes.com/2024/06/25/movies/jonathan-majors-merciless.html
-
 **‘White Chicks’ at 20: Comedy Beyond the Pale**\
 `The Wayans brothers’ subversive comedy is smarter than you remember.`\
 https://nytimes.com/2024/06/25/movies/white-chicks-anniversary.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/06/25/us/politics/trump-biden-cnn-debate-attacks.html
 **In States That Won’t Pay for Obesity Drugs, ‘They May as Well Have Never Been Created’**\
 `Public employees in West Virginia who took the drugs lost weight and were healthier, and some are despondent that the state is canceling a program to help pay for them.`\
 https://nytimes.com/2024/06/25/health/obesity-ozempic-wegovy-west-virginia.html
+
+**Leslye Headland’s ‘Cult of Love’ to Open on Broadway in the Fall**\
+`The play will be produced by Second Stage, which is also planning an Off Broadway production of a two-character drama by Donald Margulies.`\
+https://nytimes.com/2024/06/25/theater/leslye-headland-cult-love-broadway.html
 
