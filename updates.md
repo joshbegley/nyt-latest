@@ -1,3 +1,9 @@
+**Austin and Gallant are meeting as conflict along Israel’s border with Lebanon intensifies.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/06/24/world/israel-gaza-war-hamas/austin-and-gallant-are-meeting-as-conflict-along-israels-border-with-lebanon-intensifies
+
+**An Israeli panel warns Netanyahu over corruption case, and other news.**\
+
 **Hillary Clinton: I’ve Debated Trump and Biden. Here’s What I’m Watching For.**\
 `Going head-to-head with the former president is like juggling nonsense, blather and bluster.`\
 https://nytimes.com/2024/06/25/opinion/hillary-clinton-trump-biden-debate.html
