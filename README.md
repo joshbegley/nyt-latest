@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘I Called You When I Left the Gynecologist’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/06/25/style/tiny-modern-love-stories-i-called-you-when-i-left-the-gynecologist.html
+
 **The turmoil in Nairobi is a blow to the Biden administration’s embrace of Kenya’s president.**\
 `By Declan Walsh`\
 https://nytimes.com/live/2024/06/25/world/kenya-protests/the-turmoil-in-nairobi-is-a-blow-to-the-biden-administrations-embrace-of-kenyas-president
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/arts/music/amplifier-newsletter-charli-xcx-lorde.
 **Assange’s Plea Deal Sets a Chilling Precedent, but It Could Have Been Worse**\
 `The deal brings an ambiguous end to a legal saga that has jeopardized the ability of journalists to report on military, intelligence or diplomatic information that officials deem secret.`\
 https://nytimes.com/2024/06/25/us/assange-plea-deal-press-freedom.html
-
-**Why the N.F.L. Put a $7 Billion Antitrust Case in the Hands of an Unpredictable Jury**\
-`A class-action lawsuit over the cost of Sunday Ticket subscriptions underscored how valuable broadcast deals have been for the league’s success.`\
-https://nytimes.com/2024/06/25/business/media/nfl-sunday-ticket-lawsuit-cost-tv-deal.html
 
