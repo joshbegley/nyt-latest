@@ -1,3 +1,7 @@
+**Obama’s Half Sister Is Among Those Tear-Gassed During Protests in Kenya**\
+`Auma Obama, a sociologist and community activist, was being interviewed live on CNN when clouds of tear gas lobbed by the police overwhelmed her.`\
+https://nytimes.com/2024/06/25/world/auma-obama-kenya-protests-nairobi.html
+
 **Boeing Is Said to Offer Stock in Deal for Spirit AeroSystems**\
 `The plane maker is expected to soon strike a deal to acquire most of the operations of Spirit, a troubled supplier that makes the bodies of the 737 Max.`\
 https://nytimes.com/2024/06/25/business/boeing-spirit-aerosystems-acquisition.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/us/oklahoma-supreme-court-religious-charter-schoo
 **At Montpellier Danse, Leaning Into New Work as the Void Looms**\
 `The festival, the final one for its longtime director, started with a bravura work by Wayne McGregor that was at once otherworldly and deeply human.`\
 https://nytimes.com/2024/06/25/arts/dance/wayne-mcgregor-montpellier-festival.html
-
-**Review: In ‘Find Me Here,’ Sisters Grapple With a Father’s Will, and His Legacy**\
-`A family gathering fuels Crystal Finn’s new play, in which an excellent cast teases out the many complications of inheritance.`\
-https://nytimes.com/2024/06/25/theater/find-me-here-review.html
 
