@@ -14,8 +14,8 @@ https://nytimes.com/2024/06/25/briefing/russia-terror-attack.html
 `British theater recommendations for visitors and residents of all ages — and inclinations.`\
 https://nytimes.com/2024/06/25/theater/london-theater-whats-on.html
 
-**China Prepares to Bring Rocks From Moon’s Far Side to Earth**\
-`The sample, which might hold clues about the origins of the moon and Earth, will be another win for the nation’s lunar exploration goals.`\
+**China Becomes First Country to Retrieve Rocks From the Moon’s Far Side**\
+`The Chang’e-6 mission’s sample, which might hold clues about the origins of the moon and Earth, is the latest achievement of China’s lunar exploration program.`\
 https://nytimes.com/2024/06/25/science/change-6-china-earth-moon.html
 
 **2 Russian Women Put on a Play. Then the State Came for Them.**\
