@@ -1,3 +1,11 @@
+**How a Cake Became a National Obsession**\
+`For many Jamaicans, lychee cake is the taste of celebration. Its origin tells the history of Chinese immigration to the Caribbean island.`\
+https://nytimes.com/2024/06/25/dining/lychee-cake.html
+
+**Jamaal Bowman Deserves to Lose**\
+`He is out of sync with his district and with the Democratic Party.`\
+https://nytimes.com/2024/06/18/opinion/bowman-latimer-primary.html
+
 **Patients Stunned by Their Medical Bills**\
 `Responses to an essay about facility fees added by hospital-affiliated practices. Also: The border; North Korea’s weapons; Justin Timberlake’s arrest.`\
 https://nytimes.com/2024/06/25/opinion/patients-medical-bills.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/africa/100000009538667/kenya-protests-tax-increa
 **Here’s the latest on the protests in Kenya.**\
 `By Abdi Latif Dahir`\
 https://nytimes.com/live/2024/06/25/world/kenya-protests/heres-the-latest-on-the-protests-in-kenya
-
-**Live Updates: Casualties Reported as Police Fire on Protesters in Kenya**\
-`Demonstrators breached the parliament building to protest the passage of a bill that raises taxes. At least four people were shot, one fatally, the independent Kenya Human Rights Commission said.`\
-https://nytimes.com/live/2024/06/25/world/kenya-protests
-
-**France’s Far-Right National Rally Rebranded Itself. Here’s How.**\
-`Many long considered Marine Le Pen’s party too extreme to be anywhere close to power. Now, the party could win a parliamentary election — and fill the prime minister’s seat.`\
-https://nytimes.com/2024/06/25/world/europe/france-national-rally-rebranding.html
 
