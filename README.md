@@ -1,3 +1,7 @@
+**Leslye Headland’s ‘Cult of Love’ to Open on Broadway in the Fall**\
+`The play will be produced by Second Stage, which is also planning an Off Broadway production of a two-character drama by Donald Margulies.`\
+https://nytimes.com/2024/06/25/theater/leslye-headland-cult-love-broadway.html
+
 **Russia Committed Human Rights Violations in Crimea, European Court Finds**\
 `The European Court of Human Rights listed multiple violations. Its findings paint a grim picture of life under a decade of Russian occupation.`\
 https://nytimes.com/2024/06/25/world/europe/russia-crimea-european-human-rights-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/health/health-insurance-young-adults.html
 **I.C.C. Issues Arrest Warrants for 2 Senior Russian Security Officials**\
 `Sergei K. Shoigu, the former defense minister, and Gen. Valery V. Gerasimov, the country’s highest-ranking military officer, were accused of directing attacks against civilians.`\
 https://nytimes.com/2024/06/25/world/europe/icc-arrest-warrants-russia-ukraine-war.html
-
-**What Is a Famine and Who Determines That One Exists?**\
-`A group of global experts said that Gaza is at high risk of famine, but stopped short of saying that one had begun. Here’s a closer look at how famine is defined.`\
-https://nytimes.com/2024/06/25/world/middleeast/what-is-famine.html
 
