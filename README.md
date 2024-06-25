@@ -1,4 +1,4 @@
-**With Virginia primary undecided, Representative Bob Good seeks funds for a recount.**\
+**With Virginia Primary Undecided, Rep. Bob Good Seeks Funds for Recount**\
 `The margin between the congressman and his Trump-backed challenger is just slightly above the threshold for a state-funded recount. His opponent has already declared victory, and both are election deniers.`\
 https://nytimes.com/2024/06/24/us/politics/bob-good-virginia-primary.html
 
