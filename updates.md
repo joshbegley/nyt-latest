@@ -1,3 +1,7 @@
+**At Montpellier Danse, Leaning Into New Work as the Void Looms**\
+`The festival, the final one for its longtime director, started with a bravura work by Wayne McGregor that was at once otherworldly and deeply human.`\
+https://nytimes.com/2024/06/25/arts/dance/wayne-mcgregor-montpellier-festival.html
+
 **Review: In ‘Find Me Here,’ Sisters Grapple With a Father’s Will, and His Legacy**\
 `A family gathering fuels Crystal Finn’s new play, in which an excellent cast teases out the many complications of inheritance.`\
 https://nytimes.com/2024/06/25/theater/find-me-here-review.html

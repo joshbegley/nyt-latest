@@ -1,3 +1,7 @@
+**At Montpellier Danse, Leaning Into New Work as the Void Looms**\
+`The festival, the final one for its longtime director, started with a bravura work by Wayne McGregor that was at once otherworldly and deeply human.`\
+https://nytimes.com/2024/06/25/arts/dance/wayne-mcgregor-montpellier-festival.html
+
 **Review: In ‘Find Me Here,’ Sisters Grapple With a Father’s Will, and His Legacy**\
 `A family gathering fuels Crystal Finn’s new play, in which an excellent cast teases out the many complications of inheritance.`\
 https://nytimes.com/2024/06/25/theater/find-me-here-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/movies/jonathan-majors-merciless.html
 **‘White Chicks’ at 20: Comedy Beyond the Pale**\
 `The Wayans brothers’ subversive comedy is smarter than you remember.`\
 https://nytimes.com/2024/06/25/movies/white-chicks-anniversary.html
-
-**It’s Called the Best Gazpacho Because It Is the Best Gazpacho**\
-`Julia Moskin’s five-star recipe is simple, salty, thick and smooth — a coolly satisfying remedy for summer’s sluggish heat.`\
-https://nytimes.com/2024/06/25/dining/gazpacho-meatballs-cucumber-salad.html
 
