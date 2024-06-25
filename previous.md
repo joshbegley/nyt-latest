@@ -1,3 +1,31 @@
+**The Ballot Measures Aim to Reduce Partisanship. Can They Fix American Politics?**\
+`Eight states are certain or likely to field election initiatives that would overhaul redistricting or give voters a greater voice in choosing candidates.`\
+https://nytimes.com/2024/06/25/us/ohio-redistricting-ballot-meaure.html
+
+**Kevin Costner Is Pursuing His Western Dream. Will Audiences Follow?**\
+`To make “Horizon,” he put his own money on the line and left “Yellowstone,” the series that revived his career — all with little Hollywood support.`\
+https://nytimes.com/2024/06/25/movies/kevin-costner-horizon-yellowstone.html
+
+**Do You Have Food Allergies? Here’s How to Travel Safely.**\
+`Airlines, restaurants and hotels are all making travel easier for people with sensitivities to foods like peanuts, wheat and milk, but it’s still critical to be your own advocate.`\
+https://nytimes.com/2024/06/25/travel/traveling-with-food-allergies.html
+
+**An Orcas Island Home Was the Dream. Here’s How They Made It a Reality.**\
+`The small house in Washington was designed to sit lightly on the land: It touches the ground in only six places, and they didn’t cut down a single tree.`\
+https://nytimes.com/2024/06/25/realestate/orcas-island-home-washington.html
+
+**When Sick Pets Need Blood, Animal ‘Superheroes’ Come to the Rescue**\
+`Transfusions have become an important part of veterinary medicine, but cat and dog blood is not always easy to come by.`\
+https://nytimes.com/2024/06/25/science/pets-transfusions-blood.html
+
+**Year After Failed Mutiny, Russia Tightens Grip on Wagner Units in Africa**\
+`Moscow has largely taken over the African operations of the paramilitary group, once led by Yevgeny Prigozhin, who was killed after leading an insurrection against Vladimir Putin.`\
+https://nytimes.com/2024/06/25/world/africa/russia-wagner-africa-corps.html
+
+**Two Sisters, Joined in Hardship and Separated by a Bear**\
+`A massive, mysterious grizzly takes on symbolic weight in Julia Phillips’s moody and affecting second novel.`\
+https://nytimes.com/2024/06/25/books/review/bear-julia-phillips.html
+
 **Protests Driven by Younger People Aim to Push Kenya to Scrap Tax Rises**\
 `The movement augurs trouble for President William Ruto, who campaigned on helping the poor. Activists and lawyers said several prominent critics of the finance bill had been abducted.`\
 https://nytimes.com/2024/06/25/world/africa/kenya-taxes-protests.html
@@ -10,20 +38,3 @@ https://nytimes.com/live/2024/06/25/world/israel-gaza-war-hamas/israels-supreme-
 `Dior and Thom Browne get Olympic fever.`\
 https://nytimes.com/2024/06/25/style/dior-thom-browne-couture-olympics.html
 
-**It’s Primary Day in New York. Here’s What to Know.**\
-`Representative Jamaal Bowman faces George Latimer in the state’s most-watched race, a costly contest that may speak to the Democratic Party’s direction.`\
-https://nytimes.com/2024/06/25/nyregion/its-primary-day-in-new-york-heres-what-to-know.html
-
-**Is New York Prepared for a Bird Flu Pandemic?**\
-`The health care system has stockpiles of medicine and has worked out “a lot of the kinks” since the Covid pandemic. But experts still have some concerns about a bird flu outbreak.`\
-https://nytimes.com/2024/06/25/nyregion/nyc-bird-flu-pandemic-preparation.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/06/25/crosswords/spelling-bee-forum.html
-
-**Austin and Gallant will meet as attacks intensify across Israel’s border with Lebanon.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/06/24/world/israel-gaza-war-hamas/austin-and-gallant-are-meeting-as-conflict-along-israels-border-with-lebanon-intensifies
-
-**An Israeli panel warns Netanyahu over corruption case, and other news.**\
