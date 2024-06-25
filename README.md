@@ -1,3 +1,7 @@
+**Father Who Drove Family Off Cliff Will Get Treatment Instead of Trial, Court Rules**\
+`Dharmesh A. Patel pleaded not guilty to three counts of attempted murder. Last week, he was found eligible for a mental health diversion, according to court records.`\
+https://nytimes.com/2024/06/25/us/california-doctor-family-cliff-trial.html
+
 **How the Midwest Floods Nearly Took Out a Century-Old Dam**\
 `Many American dams are aging and in need of serious repairs. Climate change only makes the problem more urgent.`\
 https://nytimes.com/2024/06/25/us/minnesota-dam-flooding.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/theater/tommy-revival-broadway-closing.html
 **Killing of Texas Girl Becomes a New Immigration Flashpoint**\
 `The killing of 12-year-old Jocelyn Nungaray in Houston has become the latest crime seized on by Republicans to attack President Biden over his immigration policies.`\
 https://nytimes.com/2024/06/25/us/houston-venezuelan-immigrants-murder-jocelyn-nungaray.html
-
-**Will the Presidential Debate Be a Summer Blockbuster?**\
-`This week’s matchup on CNN between Trump and Biden may not have the same reach as debates past.`\
-https://nytimes.com/2024/06/25/us/politics/trump-biden-debate-cnn.html
 
