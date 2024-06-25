@@ -1,3 +1,7 @@
+**Russia Committed Human Rights Violations in Crimea, European Court Finds**\
+`The European Court of Human Rights listed multiple violations. Its findings paint a grim picture of life under a decade of Russian occupation.`\
+https://nytimes.com/2024/06/25/world/europe/russia-crimea-european-human-rights-court.html
+
 **Foreign Police Officers Land on the Ground in Haiti**\
 `The first wave of a 2,500-member international force sent to restore order in the gang-plagued Caribbean nation has arrived, but critics worry the plan will fail.`\
 https://nytimes.com/2024/06/25/world/americas/haiti-kenya-police-gangs.html
