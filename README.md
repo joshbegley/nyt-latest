@@ -1,3 +1,11 @@
+**Here’s the latest on the protests in Kenya.**\
+`By Abdi Latif Dahir`\
+https://nytimes.com/live/2024/06/25/world/kenya-protests/heres-the-latest-on-the-protests-in-kenya
+
+**Live Updates: Casualties Reported as Police Fire on Protesters in Kenya**\
+`Demonstrators breached the parliament to protest a bill that legislators passed Tuesday to raise taxes.`\
+https://nytimes.com/live/2024/06/25/world/kenya-protests
+
 **France’s Far-Right National Rally Rebranded Itself. Here’s How.**\
 `Many long considered Marine Le Pen’s party too extreme to be anywhere close to power. Now, the party could win a parliamentary election — and fill the prime minister’s seat.`\
 https://nytimes.com/2024/06/25/world/europe/france-national-rally-rebranding.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/25/world/americas/haiti-kenya-police-gangs.html
 **Readers Share Their Favorite Parts of 2024 So Far**\
 `New hobbies, graduation ceremonies and more.`\
 https://nytimes.com/2024/06/25/us/california-favorite-2024.html
-
-**How a Brooklyn District Tackled School Segregation**\
-`District 15 dropped selective admissions for middle schools, and the schools are now more integrated than they were.`\
-https://nytimes.com/2024/06/25/nyregion/brooklyn-district-15-segregation.html
-
-**Word of the Day: academe**\
-`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/06/25/learning/word-of-the-day-academe.html
 
