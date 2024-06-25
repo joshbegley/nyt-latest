@@ -1,4 +1,8 @@
 **A strike kills family members of Hamas’s political leader.**\
+`Hamas confirmed the death of a sister of Ismail Haniyeh. The Israeli military said it was aware of the reports but could not “currently confirm” that it had struck the Haniyeh family home.`\
+https://nytimes.com/2024/06/25/world/middleeast/strike-haniyeh-hamas-gaza.html
+
+**A strike kills family members of Hamas’s political leader.**\
 `By Hiba Yazbek`\
 https://nytimes.com/live/2024/06/25/world/israel-gaza-war-hamas/a-strike-kills-family-members-of-hamass-political-leader
 

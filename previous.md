@@ -1,6 +1,6 @@
 **A strike kills family members of Hamas’s political leader.**\
-`By Hiba Yazbek`\
-https://nytimes.com/live/2024/06/25/world/israel-gaza-war-hamas/a-strike-kills-family-members-of-hamass-political-leader
+`Hamas confirmed the death of a sister of Ismail Haniyeh. The Israeli military said it was aware of the reports but could not “currently confirm” that it had struck the Haniyeh family home.`\
+https://nytimes.com/2024/06/25/world/middleeast/strike-haniyeh-hamas-gaza.html
 
 **Turning 26 and Struggling to Find Health Insurance? Tell Us About It.**\
 `The New York Times and KFF Health News are looking into a dreaded “adulting” milestone: finding your own medical insurance at 26.`\
