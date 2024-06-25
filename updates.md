@@ -1,3 +1,7 @@
+**He Stole From His Tech Boss and Killed Him to Conceal the Crime**\
+`Tyrese Haspil, 25, was convicted of murdering his former boss, the entrepreneur Fahim Saleh, and dismembering his body in 2020.`\
+https://nytimes.com/2024/06/24/nyregion/fahim-saleh-murder-dismemberment-trial.html
+
 **‘Let’s Do This Thing!’**\
 `Seth Bisen-Hersh and Jeff Chen game the system.`\
 https://nytimes.com/2024/06/24/crosswords/daily-puzzle-2024-06-25.html
