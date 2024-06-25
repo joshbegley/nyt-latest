@@ -1,3 +1,7 @@
+**Volkswagen Will Invest Up to $5 Billion in Rivian**\
+`The German automaker and Rivian, a maker of electric trucks that has struggled to increase sales and break even, will work together on software and other technologies.`\
+https://nytimes.com/2024/06/25/business/economy/volkswagen-rivian-investment.html
+
 **New report on hunger in Gaza adds fuel to calls for lifting Israeli restrictions on aid.**\
 `By Eric Nagourney`\
 https://nytimes.com/live/2024/06/25/world/israel-gaza-war-hamas/new-report-on-hunger-in-gaza-adds-fuel-to-calls-for-lifting-israeli-restrictions-on-aid
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009539210/israel-military-ultra
 **He Monitors Solar Flares. Here’s What Keeps Him Up at Night.**\
 `Mike Bettwy, a government meteorologist who focuses on potential threats from space weather, says that we are more prepared than ever — and that forecasting is only getting better.`\
 https://nytimes.com/2024/06/25/science/mike-bettwy-solar-flares-storms.html
-
-**Tiny Love Stories: ‘I Called You When I Left the Gynecologist’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2024/06/25/style/tiny-modern-love-stories-i-called-you-when-i-left-the-gynecologist.html
 

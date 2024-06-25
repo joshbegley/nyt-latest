@@ -1,3 +1,7 @@
+**Volkswagen Will Invest Up to $5 Billion in Rivian**\
+`The German automaker and Rivian, a maker of electric trucks that has struggled to increase sales and break even, will work together on software and other technologies.`\
+https://nytimes.com/2024/06/25/business/economy/volkswagen-rivian-investment.html
+
 **New report on hunger in Gaza adds fuel to calls for lifting Israeli restrictions on aid.**\
 `By Eric Nagourney`\
 https://nytimes.com/live/2024/06/25/world/israel-gaza-war-hamas/new-report-on-hunger-in-gaza-adds-fuel-to-calls-for-lifting-israeli-restrictions-on-aid
