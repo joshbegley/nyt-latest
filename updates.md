@@ -1,3 +1,7 @@
+**Volkswagen Will Invest Up to $5 Billion in Rivian**\
+`VW and Rivian, a maker of electric trucks that has struggled to increase sales and break even, will work together on software and other technologies.`\
+https://nytimes.com/2024/06/25/business/volkswagen-rivian-vw-investment.html
+
 **A Court Ruled an Exhibit Discriminated Against Men. Now It’s in the Women’s Restroom.**\
 `The Museum of New and Old Art in Tasmania hung several paintings in a women’s restroom after a court ruled that its installation could not be exclusive to women.`\
 https://nytimes.com/2024/06/25/world/australia/picasso-ladies-bathroom-mona-tasmania.html
