@@ -34,7 +34,7 @@ https://nytimes.com/interactive/2024/us/elections/polls-president.html
 `A plea deal brought an abrupt end to an extraordinary legal saga that has raised novel issues of national security, press freedoms, politics and diplomacy.`\
 https://nytimes.com/2024/06/24/us/julian-assange-wikileaks-timeline.html
 
-**New York County Legislature Passes Transgender Athlete Ban**\
+**County Legislature in N.Y. Suburbs Passes Transgender Athlete Ban**\
 `The majority-Republican Nassau County Legislature approved a bill that bars transgender athletes from playing at county-owned facilities on teams that match their gender identity.`\
 https://nytimes.com/2024/06/24/nyregion/transgender-athlete-ban-nassau-county-ny.html
 
