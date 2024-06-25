@@ -1,3 +1,7 @@
+**Protests Driven by Younger People Aim to Push Kenya to Scrap Tax Rises**\
+`The movement augurs trouble for President William Ruto, who campaigned on helping the poor. Activists and lawyers said several prominent critics of the finance bill had been abducted.`\
+https://nytimes.com/2024/06/25/world/africa/kenya-taxes-protests.html
+
 **Gold Medal Looks in Paris**\
 `Dior and Thom Browne get Olympic fever.`\
 https://nytimes.com/2024/06/25/style/dior-thom-browne-couture-olympics.html
