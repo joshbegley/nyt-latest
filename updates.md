@@ -1,3 +1,19 @@
+**Eric Hazan, Publisher and Historian on France’s Left, Dies at 87**\
+`He elevated many of France’s most provocative writers through his publishing house, La Fabrique, but he made his greatest mark as a politically engaged historian of Paris.`\
+https://nytimes.com/2024/06/25/books/eric-hazan-dead.html
+
+**Sarah y su brazo con inteligencia artificial **\
+`En 2022, Sarah de Lagarde perdió su brazo derecho en un accidente. Hoy, gracias a la tecnología, ha recuperado el miembro y la sensación de normalidad.`\
+https://nytimes.com/card/2024/06/25/espanol/protesis-brazo-ia
+
+**Protests in Kenya Over Tax Bill: What to Know**\
+`Kenyan police faced off with protesters in the capital, Nairobi. Civic groups said that at least five people died.`\
+https://nytimes.com/2024/06/25/world/africa/kenya-protests-tax-parliament.html
+
+**Man Fatally Shoots 5 in North Las Vegas and Kills Himself After Manhunt, Police Say**\
+`The man, Eric Adams, was also suspected of critically wounding a 13-year-old girl in shootings at two nearby apartments.`\
+https://nytimes.com/2024/06/25/us/eric-adams-north-las-vegas-shooting.html
+
 **Wednesday Briefing: Major Protests in Nairobi**\
 `Also, Julian Assange’s plea deal with the U.S.`\
 https://nytimes.com/2024/06/25/world/asia/kenya-protests-assange-australia-asia.html
