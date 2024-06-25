@@ -1,3 +1,7 @@
+**After a Brief Run, ‘Tommy’ Revival to Close on Broadway**\
+`“The Who’s Tommy,” which has a rock score by Pete Townshend, will end on July 21. A national tour is in the works.`\
+https://nytimes.com/2024/06/25/theater/tommy-revival-broadway-closing.html
+
 **Killing of Texas Girl Becomes a New Immigration Flashpoint**\
 `The killing of 12-year-old Jocelyn Nungaray in Houston has become the latest crime seized on by Republicans to attack President Biden over his immigration policies.`\
 https://nytimes.com/2024/06/25/us/houston-venezuelan-immigrants-murder-jocelyn-nungaray.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/world/africa/nairobi-kenya-tax-protests.html
 **A Bird-watchers Paradise, Opened Up by Colombia’s Peace Deal**\
 `The 2016 peace treaty that ended a decades-long civil conflict has turned Colombia — home to more species of birds than any other country on Earth — into a birders’ delight, opening up forests that were once controlled by anti-government armed groups.`\
 https://nytimes.com/card/2024/06/25/world/americas/colombia-birdwatching
-
-**Eric Hazan, Publisher and Historian on France’s Left, Dies at 87**\
-`He elevated many of France’s most provocative writers through his publishing house, La Fabrique, but he made his greatest mark as a politically engaged, and strolling, historian of Paris.`\
-https://nytimes.com/2024/06/25/books/eric-hazan-dead.html
 
