@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/06/25/crosswords/spelling-bee-forum.html
+
 **Austin and Gallant are meeting as conflict along Israel’s border with Lebanon intensifies.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/06/24/world/israel-gaza-war-hamas/austin-and-gallant-are-meeting-as-conflict-along-israels-border-with-lebanon-intensifies
