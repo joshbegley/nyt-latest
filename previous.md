@@ -1,5 +1,9 @@
+**A Bird-watchers Paradise, Opened Up by Colombia’s Peace Deal**\
+`The 2016 peace treaty that ended a decades-long civil conflict has turned Colombia — home to more species of birds than any other country on Earth — into a birders’ delight, opening up forests that were once controlled by anti-government armed groups.`\
+https://nytimes.com/card/2024/06/25/world/americas/colombia-birdwatching
+
 **Eric Hazan, Publisher and Historian on France’s Left, Dies at 87**\
-`He elevated many of France’s most provocative writers through his publishing house, La Fabrique, but he made his greatest mark as a politically engaged historian of Paris.`\
+`He elevated many of France’s most provocative writers through his publishing house, La Fabrique, but he made his greatest mark as a politically engaged, and strolling, historian of Paris.`\
 https://nytimes.com/2024/06/25/books/eric-hazan-dead.html
 
 **Sarah y su brazo con inteligencia artificial **\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/movies/celine-dion-documentary-seizure-stiff-pers
 **Volkswagen Will Invest Up to $5 Billion in Rivian**\
 `VW and Rivian, a maker of electric trucks that has struggled to increase sales and break even, will work together on software and other technologies.`\
 https://nytimes.com/2024/06/25/business/volkswagen-rivian-vw-investment.html
-
-**New report on hunger in Gaza adds fuel to calls for lifting Israeli restrictions on aid.**\
-`By Eric Nagourney and Anjana Sankar`\
-https://nytimes.com/live/2024/06/25/world/israel-gaza-war-hamas/new-report-on-hunger-in-gaza-adds-fuel-to-calls-for-lifting-israeli-restrictions-on-aid
 
