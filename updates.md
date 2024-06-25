@@ -1,3 +1,7 @@
+**Oakland’s Mayor Had Enough Troubles. Then the F.B.I. Came Knocking.**\
+`Sheng Thao was already facing a recall election as residents remain frustrated over crime and homelessness. She said on Monday that she had committed no crimes.`\
+https://nytimes.com/2024/06/24/us/politics/oakland-mayor-sheng-thao-fbi-raid.html
+
 **Ex-Haitian Gang Leader Is Sentenced to 35 Years in Prison in Gunrunning Scheme**\
 `Prosecutors said Joly Germine, 31, who had led the 400 Mawozo gang, was involved in a conspiracy that used ransom money that had been paid for the release of American hostages to buy and smuggle guns into Haiti.`\
 https://nytimes.com/2024/06/24/us/haiti-gang-leader-us-prison-sentence.html
