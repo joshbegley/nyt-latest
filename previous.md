@@ -1,8 +1,12 @@
+**A strike kills family members of Hamas’s political leader.**\
+`By Hiba Yazbek`\
+https://nytimes.com/live/2024/06/25/world/israel-gaza-war-hamas/a-strike-kills-family-members-of-hamass-political-leader
+
 **Turning 26 and Struggling to Find Health Insurance? Tell Us About It.**\
 `The New York Times and KFF Health News are looking into a dreaded “adulting” milestone: finding your own medical insurance at 26.`\
 https://nytimes.com/2024/06/25/health/health-insurance-young-adults.html
 
-**I.C.C. Issues Arrest Warrants for 2 High-Profile Russian Security Figures**\
+**I.C.C. Issues Arrest Warrants for 2 Senior Russian Security Officials**\
 `Sergei K. Shoigu, the former defense minister, and Gen. Valery V. Gerasimov, the country’s highest-ranking military officer, were accused of directing attacks against civilians.`\
 https://nytimes.com/2024/06/25/world/europe/icc-arrest-warrants-russia-ukraine-war.html
 
@@ -23,7 +27,7 @@ https://nytimes.com/2024/06/25/business/european-union-microsoft-teams-antitrust
 https://nytimes.com/2024/06/25/briefing/biden-trump-2024-polls.html
 
 **Deadly Fire Exposes Harsh Conditions Migrant Workers Face in South Korea**\
-`Foreigners do dirty, hazardous work, and advocates say the blaze that killed 22 at a battery plant shows that they need better protection.`\
+`Foreigners do dirty, hazardous work, and advocates say the blaze that killed 23 at a battery plant shows that they need better protection.`\
 https://nytimes.com/2024/06/25/world/asia/south-korea-lithium-battery-fire.html
 
 **Experts on hunger say that almost half a million people in Gaza face starvation.**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/25/world/israel-gaza-war-hamas/experts-on-hunge
 **Assange Agrees to Plea Deal, and Israel-Lebanon Border Strikes Intensify**\
 `Plus, China’s extraordinary moon mission.`\
 https://nytimes.com/2024/06/25/podcasts/julian-assange-israel-hamas.html
-
-**The Plan to Defeat Critics of Israel in Congress**\
-`A pro-Israel political group has spent millions to defeat Representative Jamaal Bowman of New York.`\
-https://nytimes.com/2024/06/25/podcasts/the-daily/bowman-israel-primary.html
 
