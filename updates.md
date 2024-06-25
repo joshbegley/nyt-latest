@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘I Called You When I Left the Gynecologist’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/06/25/style/tiny-modern-love-stories-i-called-you-when-i-left-the-gynecologist.html
+
 **The turmoil in Nairobi is a blow to the Biden administration’s embrace of Kenya’s president.**\
 `By Declan Walsh`\
 https://nytimes.com/live/2024/06/25/world/kenya-protests/the-turmoil-in-nairobi-is-a-blow-to-the-biden-administrations-embrace-of-kenyas-president
