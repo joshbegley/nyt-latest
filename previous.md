@@ -1,3 +1,7 @@
+**Review: A ‘Ulysses’ That Squeezes Bloomsday Into 2 Hours, 40 Minutes**\
+`Elevator Repair Service’s staged reading of the huge James Joyce novel retains much of its humor, pathos and bawdiness.`\
+https://nytimes.com/2024/06/25/theater/ulysses-bard-college-elevator-repair-service.html
+
 **Kenya Explodes in Violence as Protesters Breach the Parliament Building**\
 `Across the country, outrage over proposed tax increases drives Kenyans to the streets.`\
 https://nytimes.com/2024/06/25/world/africa/kenya-protest-photos.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/world/australia/record-heat-deaths-events.html
 **How a Cake Became a National Obsession**\
 `For many Jamaicans, lychee cake is the taste of celebration. Its origin tells the history of Chinese immigration to the Caribbean island.`\
 https://nytimes.com/2024/06/25/dining/lychee-cake.html
-
-**Jamaal Bowman Deserves to Lose**\
-`He is out of sync with his district and with the Democratic Party.`\
-https://nytimes.com/2024/06/18/opinion/bowman-latimer-primary.html
 
