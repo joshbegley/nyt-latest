@@ -1,3 +1,7 @@
+**Kenya Explodes in Violence as Protesters Breach the Parliament Building**\
+`Across the country, outrage over proposed tax increases drives Kenyans to the streets.`\
+https://nytimes.com/2024/06/25/world/africa/kenya-protest-photos.html
+
 **‘Costco, Don’t Give Up on America as a Nation of Readers’: The Week 1 Winner of Our Summer Reading Contest**\
 `Read the work of the winning writer, Daphne Nguyen — and take a look at three favorite video responses, too.`\
 https://nytimes.com/2024/06/25/learning/costco-dont-give-up-on-america-as-a-nation-of-readers-the-week-1-winner-of-our-summer-reading-contest.html
