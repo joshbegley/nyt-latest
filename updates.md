@@ -1,3 +1,11 @@
+**Safety Agency Faults Norfolk Southern for ‘Vent and Burn’ After 2023 Derailment**\
+`The National Transportation Safety Board said the decision to release and incinerate toxic chemicals in the wake of a train derailment in East Palestine, Ohio, was misguided.`\
+https://nytimes.com/2024/06/25/us/politics/norfolk-southern-ntsb-vent-and-burn.html
+
+**Boeing Is Said to Offer Stock to Buy Spirit, Preserving Cash Amid Struggles**\
+`The plane maker is expected to soon strike a deal to acquire most of the operations of Spirit AeroSystems, a troubled supplier that makes the bodies of the 737 Max.`\
+https://nytimes.com/2024/06/25/business/boeing-spirit-aerosystems-acquisition.html
+
 **Obama’s Half Sister Is Among Those Tear-Gassed During Protests in Kenya**\
 `Auma Obama, a sociologist and community activist, was being interviewed live on CNN when clouds of tear gas lobbed by the police overwhelmed her.`\
 https://nytimes.com/2024/06/25/world/auma-obama-kenya-protests-nairobi.html
