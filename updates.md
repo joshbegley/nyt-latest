@@ -1,3 +1,7 @@
+**Trump Can Now Criticize Witnesses Who Testified Against Him, Judge Rules**\
+`The judge who oversaw Donald J. Trump’s criminal trial loosened the rules governing what Mr. Trump can say about it, and said his gag order would be lifted after his July 11 sentencing.`\
+https://nytimes.com/2024/06/25/nyregion/trump-gag-order-hush-money-trial.html
+
 **The Southern Border, Terrorism Fears, and the Arrests of 8 Tajik Men**\
 `The men were arrested after the F.B.I. quietly began an investigation that stretched across the country and involved scores of bureau personnel.`\
 https://nytimes.com/2024/06/25/us/politics/terrorism-threat-fbi-tajik.html
