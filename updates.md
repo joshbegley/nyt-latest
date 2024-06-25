@@ -1,3 +1,7 @@
+**How Trump and Biden Might Attack Each Other at the CNN Debate**\
+`Immigration, the economy, democracy and abortion rights: Here are the main ways each candidate is likely to slam the other at Thursday’s high-stakes confrontation.`\
+https://nytimes.com/2024/06/25/us/politics/trump-biden-cnn-debate-attacks.html
+
 **In States That Won’t Pay for Obesity Drugs, ‘They May as Well Have Never Been Created’**\
 `Public employees in West Virginia who took the drugs lost weight and were healthier, and some are despondent that the state is canceling a program to help pay for them.`\
 https://nytimes.com/2024/06/25/science/obesity-ozempic-wegovy-west-virginia.html
