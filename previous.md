@@ -1,3 +1,7 @@
+**Inside Nvidia’s $500 Billion Wipeout**\
+`The chipmaker’s stock has tumbled in recent days, a reminder that the artificial intelligence stock boom could be tough to sustain.`\
+https://nytimes.com/2024/06/25/business/dealbook/nvidia-stock-wipeout.html
+
 **A strike kills family members of Hamas’s political leader.**\
 `Hamas confirmed the death of a sister of Ismail Haniyeh. The Israeli military said it was aware of the reports but could not “currently confirm” that it had struck the Haniyeh family home.`\
 https://nytimes.com/2024/06/25/world/middleeast/strike-haniyeh-hamas-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/world/asia/south-korea-lithium-battery-fire.html
 **Experts on hunger say that almost half a million people in Gaza face starvation.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/06/25/world/israel-gaza-war-hamas/experts-on-hunger-say-that-almost-half-a-million-people-in-gaza-face-starvation
-
-**Assange Agrees to Plea Deal, and Israel-Lebanon Border Strikes Intensify**\
-`Plus, China’s extraordinary moon mission.`\
-https://nytimes.com/2024/06/25/podcasts/julian-assange-israel-hamas.html
 
