@@ -1,3 +1,7 @@
+**Austin and Russia’s New Defense Minister Speak Via Phone for the First Time**\
+`Communications between Washington and Moscow have become rare since Russia invaded Ukraine more than two years ago.`\
+https://nytimes.com/2024/06/25/us/politics/austin-russia-defense-minister-call.html
+
 **New Jersey Gamer Flew to Florida to Attack Rival With Hammer, Police Say**\
 `The man went to the house of another player of the fantasy online game ArcheAge to confront him, the Nassau County sheriff’s office in Florida said. He is charged with attempted murder.`\
 https://nytimes.com/2024/06/25/us/new-jersey-man-arrested-gamer-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/world/kenya-protests-president-ruto-biden.html
 **High living costs are straining even Africa’s most stable economies.**\
 `By Lynsey Chutel`\
 https://nytimes.com/live/2024/06/25/world/kenya-protests/high-living-costs-are-straining-even-africas-most-stable-economies
-
-**What to Know About Julian Assange and His Plea Deal**\
-`The deal ends a period of confinement that lasted about a dozen years, first in the self-exile of the Ecuadorean embassy in London, then in prison.`\
-https://nytimes.com/2024/06/25/us/politics/julian-assange-wikileaks-plea-deal.html
 
