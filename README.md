@@ -3,8 +3,8 @@
 https://nytimes.com/2024/06/25/style/tiny-modern-love-stories-i-called-you-when-i-left-the-gynecologist.html
 
 **The turmoil in Nairobi is a blow to the Biden administration’s embrace of Kenya’s president.**\
-`By Declan Walsh`\
-https://nytimes.com/live/2024/06/25/world/kenya-protests/the-turmoil-in-nairobi-is-a-blow-to-the-biden-administrations-embrace-of-kenyas-president
+`Just a day earlier, President Biden had formally named Kenya a major non-NATO ally.`\
+https://nytimes.com/2024/06/25/world/the-turmoil-in-nairobi-is-a-blow-to-the-biden-administrations-embrace-of-kenyas-president.html
 
 **High living costs are straining even Africa’s most stable economies.**\
 `By Lynsey Chutel`\
