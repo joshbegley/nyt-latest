@@ -1,3 +1,7 @@
+**Experts on hunger say that almost half a million people in Gaza face starvation.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/06/25/world/israel-gaza-war-hamas/experts-on-hunger-say-that-almost-half-a-million-people-in-gaza-face-starvation
+
 **Assange Agrees to Plea Deal, and Israel-Lebanon Border Strikes Intensify**\
 `Plus, China’s extraordinary moon mission.`\
 https://nytimes.com/2024/06/25/podcasts/julian-assange-israel-hamas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/arts/television/doctor-who-season-recap.html
 **London’s Kew Gardens Has Long Links to Japan. Now the Emperor Is Set to Visit.**\
 `Emperor Naruhito and his wife, Empress Masako, are touring the famous botanic gardens this week as part of a state visit to Britain.`\
 https://nytimes.com/2024/06/25/world/europe/london-japan-emperor-kew-gardens.html
-
-**Age and the Image of Capacity**\
-`President Biden’s toughest opponent may not be his predecessor. It is the cultural meaning, built up through centuries, that we assign to being old.`\
-https://nytimes.com/2024/06/25/arts/television/biden-trump-election-age.html
 

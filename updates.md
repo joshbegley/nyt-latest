@@ -1,3 +1,7 @@
+**Experts on hunger say that almost half a million people in Gaza face starvation.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/06/25/world/israel-gaza-war-hamas/experts-on-hunger-say-that-almost-half-a-million-people-in-gaza-face-starvation
+
 **Assange Agrees to Plea Deal, and Israel-Lebanon Border Strikes Intensify**\
 `Plus, China’s extraordinary moon mission.`\
 https://nytimes.com/2024/06/25/podcasts/julian-assange-israel-hamas.html
