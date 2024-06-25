@@ -1,3 +1,7 @@
+**Leslye Headland’s ‘Cult of Love’ to Open on Broadway in the Fall**\
+`The play will be produced by Second Stage, which is also planning an Off Broadway production of a two-character drama by Donald Margulies.`\
+https://nytimes.com/2024/06/25/theater/leslye-headland-cult-love-broadway.html
+
 **Russia Committed Human Rights Violations in Crimea, European Court Finds**\
 `The European Court of Human Rights listed multiple violations. Its findings paint a grim picture of life under a decade of Russian occupation.`\
 https://nytimes.com/2024/06/25/world/europe/russia-crimea-european-human-rights-court.html
