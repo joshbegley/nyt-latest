@@ -1,3 +1,11 @@
+**Should American Jews Abandon Elite Universities?**\
+`An incident at Columbia suggests that schools beset with antisemitism are beyond salvation.`\
+https://nytimes.com/2024/06/25/opinion/jews-ivy-league-antisemitism.html
+
+**Judge Skeptical of Claim Search Was Mishandled in Trump Documents Case**\
+`Judge Aileen M. Cannon appeared to all but dismiss a request from former President Donald J. Trump’s legal team to suppress evidence from the search of Mar-a-Lago.`\
+https://nytimes.com/2024/06/25/us/politics/trump-documents-case.html
+
 **Man Who Attacked Cabdriver Sentenced to 10 Years for Manslaughter**\
 `Austin Amos assaulted a taxi driver in 2022 after he and a group of friends refused to pay the fare on a ride from Manhattan to Far Rockaway, Queens. Mr. Amos was 20 at the time.`\
 https://nytimes.com/2024/06/25/nyregion/taxi-driver-attack-sentence-nyc.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/africa/100000009539190/kenya-tax-protest.html
 **How Chappell Roan’s Stylist Turned Her Into a Creepy Swan (Twice)**\
 `Genesis Webb helps the rising pop star put together drag-inspired looks that are “glamorous, but also ugly and confusing.”`\
 https://nytimes.com/2024/06/25/style/chappell-roan-jimmy-fallon-swan.html
-
-**Demonstrators Stormed Kenya’s Parliament to Protest Taxes**\
-`Also, a bitter primary race in New York. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2024/06/25/briefing/kenya-protests-taxes-primary-day-new-york.html
-
-**In Bowman-Latimer Race, Voters Say Negative Ads Were Turnoff**\
-`Representative Jamaal Bowman is facing George Latimer in a contentious House primary in New York.`\
-https://nytimes.com/2024/06/25/us/politics/bowman-latimer-ny-primary.html
 
