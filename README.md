@@ -1,3 +1,7 @@
+**‘Let’s Do This Thing!’**\
+`Seth Bisen-Hersh and Jeff Chen game the system.`\
+https://nytimes.com/2024/06/24/crosswords/daily-puzzle-2024-06-25.html
+
 **‘Is There Any Chance He Can Sit on a Camel?’ A Senator’s Wife Wanted to Know.**\
 `An aide to Senator Robert Menendez testified that she had been asked to consult with an Egyptian intelligence officer who had befriended Nadine Menendez.`\
 https://nytimes.com/2024/06/24/nyregion/robert-menendez-bribery-egypt.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/24/opinion/bowman-primary-latimer-israel.html
 **Ex-Haitian Gang Leader Is Sentenced to 35 Years in Prison in Gunrunning Scheme**\
 `Prosecutors said Joly Germine, 31, who had led the 400 Mawozo gang, was involved in a conspiracy that used ransom money that had been paid for the release of American hostages to buy and smuggle guns into Haiti.`\
 https://nytimes.com/2024/06/24/us/haiti-gang-leader-us-prison-sentence.html
-
-**Oakland’s Mayor Had Enough Troubles. Then the F.B.I. Came Knocking.**\
-`Sheng Thao was already facing a recall election as residents remain frustrated over crime and homelessness. She said on Monday that she had committed no crimes.`\
-https://nytimes.com/2024/06/24/us/politics/oakland-mayor-sheng-thao-fbi-raid.html
 
