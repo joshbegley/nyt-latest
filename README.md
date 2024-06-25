@@ -1,3 +1,7 @@
+**Gold Medal Looks in Paris**\
+`Dior and Thom Browne get Olympic fever.`\
+https://nytimes.com/2024/06/25/style/dior-thom-browne-couture-olympics.html
+
 **It’s Primary Day in New York. Here’s What to Know.**\
 `Representative Jamaal Bowman faces George Latimer in the state’s most-watched race, a costly contest that may speak to the Democratic Party’s direction.`\
 https://nytimes.com/2024/06/25/nyregion/its-primary-day-in-new-york-heres-what-to-know.html
