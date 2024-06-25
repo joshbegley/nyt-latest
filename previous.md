@@ -1,3 +1,7 @@
+**Oklahoma Supreme Court Says No to State Funding for a Religious Charter School**\
+`In a closely watched case, Oklahoma’s highest court blocked what was set to become the nation’s first religious charter school. An appeal is likely.`\
+https://nytimes.com/2024/06/25/us/oklahoma-supreme-court-religious-charter-school.html
+
 **At Montpellier Danse, Leaning Into New Work as the Void Looms**\
 `The festival, the final one for its longtime director, started with a bravura work by Wayne McGregor that was at once otherworldly and deeply human.`\
 https://nytimes.com/2024/06/25/arts/dance/wayne-mcgregor-montpellier-festival.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/25/world/kenya-protests/the-protests-in-kenya-h
 **Jonathan Majors Is Cast in First Movie Role Since Assault Conviction**\
 `Mr. Majors, who was sentenced to a year of domestic violence programming and was dropped by Marvel, is set to star in the independent thriller “Merciless.”`\
 https://nytimes.com/2024/06/25/movies/jonathan-majors-merciless.html
-
-**‘White Chicks’ at 20: Comedy Beyond the Pale**\
-`The Wayans brothers’ subversive comedy is smarter than you remember.`\
-https://nytimes.com/2024/06/25/movies/white-chicks-anniversary.html
 

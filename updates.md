@@ -1,3 +1,7 @@
+**Oklahoma Supreme Court Says No to State Funding for a Religious Charter School**\
+`In a closely watched case, Oklahoma’s highest court blocked what was set to become the nation’s first religious charter school. An appeal is likely.`\
+https://nytimes.com/2024/06/25/us/oklahoma-supreme-court-religious-charter-school.html
+
 **At Montpellier Danse, Leaning Into New Work as the Void Looms**\
 `The festival, the final one for its longtime director, started with a bravura work by Wayne McGregor that was at once otherworldly and deeply human.`\
 https://nytimes.com/2024/06/25/arts/dance/wayne-mcgregor-montpellier-festival.html
