@@ -1,3 +1,15 @@
+**New report on hunger in Gaza adds fuel to calls for lifting Israeli restrictions on aid.**\
+`By Eric Nagourney`\
+https://nytimes.com/live/2024/06/25/world/israel-gaza-war-hamas/new-report-on-hunger-in-gaza-adds-fuel-to-calls-for-lifting-israeli-restrictions-on-aid
+
+**Another Real Estate Broker Steps Down in the Face of Sex Assault Suits**\
+`Tal Alexander, who rose to fame in the luxury housing market with his younger brother Oren, will take a leave from the firm he helped to create. Oren left earlier in June.`\
+https://nytimes.com/2024/06/25/realestate/tal-alexander-official-resigns.html
+
+**Austin and Russia’s New Defense Minister Speak via Phone for the First Time**\
+`Communications between Washington and Moscow have become rare since Russia invaded Ukraine more than two years ago.`\
+https://nytimes.com/2024/06/25/us/politics/austin-russia-defense-minister-call.html
+
 **New Jersey Gamer Flew to Florida to Attack Rival With Hammer, Police Say**\
 `The man went to the house of another player of the fantasy online game ArcheAge to confront him, the Nassau County sheriff’s office in Florida said. He is charged with attempted murder.`\
 https://nytimes.com/2024/06/25/us/new-jersey-man-arrested-gamer-attack.html

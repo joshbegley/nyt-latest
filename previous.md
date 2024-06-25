@@ -1,3 +1,15 @@
+**New report on hunger in Gaza adds fuel to calls for lifting Israeli restrictions on aid.**\
+`By Eric Nagourney`\
+https://nytimes.com/live/2024/06/25/world/israel-gaza-war-hamas/new-report-on-hunger-in-gaza-adds-fuel-to-calls-for-lifting-israeli-restrictions-on-aid
+
+**Another Real Estate Broker Steps Down in the Face of Sex Assault Suits**\
+`Tal Alexander, who rose to fame in the luxury housing market with his younger brother Oren, will take a leave from the firm he helped to create. Oren left earlier in June.`\
+https://nytimes.com/2024/06/25/realestate/tal-alexander-official-resigns.html
+
+**Austin and Russia’s New Defense Minister Speak via Phone for the First Time**\
+`Communications between Washington and Moscow have become rare since Russia invaded Ukraine more than two years ago.`\
+https://nytimes.com/2024/06/25/us/politics/austin-russia-defense-minister-call.html
+
 **New Jersey Gamer Flew to Florida to Attack Rival With Hammer, Police Say**\
 `The man went to the house of another player of the fantasy online game ArcheAge to confront him, the Nassau County sheriff’s office in Florida said. He is charged with attempted murder.`\
 https://nytimes.com/2024/06/25/us/new-jersey-man-arrested-gamer-attack.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/25/science/mike-bettwy-solar-flares-storms.html
 **Tiny Love Stories: ‘I Called You When I Left the Gynecologist’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/06/25/style/tiny-modern-love-stories-i-called-you-when-i-left-the-gynecologist.html
-
-**Kenya Protests Are a Blow to Biden’s Embrace of President Ruto**\
-`Just a day earlier, President Biden had formally named Kenya a major non-NATO ally.`\
-https://nytimes.com/2024/06/25/world/kenya-protests-president-ruto-biden.html
-
-**High living costs are straining even Africa’s most stable economies.**\
-`By Lynsey Chutel`\
-https://nytimes.com/live/2024/06/25/world/kenya-protests/high-living-costs-are-straining-even-africas-most-stable-economies
-
-**What to Know About Julian Assange and His Plea Deal**\
-`The deal ends a period of confinement that lasted about a dozen years, first in the self-exile of the Ecuadorean embassy in London, then in prison.`\
-https://nytimes.com/2024/06/25/us/politics/julian-assange-wikileaks-plea-deal.html
 
