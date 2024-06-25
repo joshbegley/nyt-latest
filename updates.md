@@ -1,3 +1,31 @@
+**What to See on London Stages This Summer**\
+`British theater recommendations for visitors and residents of all ages — and inclinations.`\
+https://nytimes.com/2024/06/25/theater/london-theater-whats-on.html
+
+**China Prepares to Bring Rocks From Moon’s Far Side to Earth**\
+`The sample, which might hold clues about the origins of the moon and Earth, will be another win for the nation’s lunar exploration goals.`\
+https://nytimes.com/2024/06/25/science/change-6-china-earth-moon.html
+
+**2 Russian Women Put on a Play. Then the State Came for Them.**\
+`The prosecution of a prominent playwright and a director in Russia over their work is a chilling sign of increased repression, cultural figures say.`\
+https://nytimes.com/2024/06/25/world/europe/russia-playwright-director-terrorism-trial.html
+
+**How to Watch the Biden-Trump Presidential Debate**\
+`The debate will be hosted by CNN from its Atlanta studios starting at 9 p.m. Eastern time on Thursday.`\
+https://nytimes.com/2024/06/25/us/politics/watch-time-trump-biden-debate.html
+
+**Where Have All the Chinese I.P.O.s Gone?**\
+`Chinese companies’ stock market listings once flooded Wall Street. These days, China’s initial public offerings are in a drought.`\
+https://nytimes.com/2024/06/25/business/china-ipo-initial-public-offer.html
+
+**Quotation of the Day: Realities of Abortion Bans Shift the Terms of the Issue**\
+`Quotation of the Day for Tuesday, June 25, 2024.`\
+https://nytimes.com/2024/06/25/pageoneplus/quotation-of-the-day-realities-of-abortion-bans-shift-the-terms-of-the-issue.html
+
+**Corrections: June 25, 2024**\
+`Corrections that appeared in print on Tuesday, June 25, 2024.`\
+https://nytimes.com/2024/06/25/pageoneplus/corrections-june-25-2024.html
+
 **New Jersey Transit Service Disrupted for Third Time in Less Than a Week**\
 `Rush-hour commuters at Penn Station faced a shutdown of close to an hour, followed by extensive delays, after Amtrak investigated a report of a problem with overhead wires.`\
 https://nytimes.com/2024/06/24/nyregion/nj-transit-amtrak-penn-station-delays.html
