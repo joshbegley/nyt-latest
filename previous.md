@@ -1,3 +1,11 @@
+**Zelensky Removes a Top General Amid Criticism of Excessive Casualties**\
+`The announcement by Ukraine’s president on Monday came hours after a scathing social media post implicitly accused the general of “killing more Ukrainian soldiers than any Russian general.”`\
+https://nytimes.com/2024/06/24/world/europe/zelensky-ukraine-general-dismissed.html
+
+**Where Joe Biden and Donald Trump Stand on the Issues**\
+`Here’s what President Biden and former President Donald J. Trump have done and want to do on abortion, democracy, the economy, immigration, Israel and Gaza, and Social Security and Medicare.`\
+https://nytimes.com/interactive/2024/us/politics/trump-biden-issues-election.html
+
 **New Jersey Transit Service Disrupted for Fifth Time in Two Months**\
 `Rush-hour commuters at Penn Station faced a shutdown of close to an hour, followed by extensive delays, after Amtrak investigated a report of a problem with overhead wires.`\
 https://nytimes.com/2024/06/24/nyregion/nj-transit-amtrak-penn-station-delays.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/24/style/hailey-bieber-makeup-rhode.html
 **Methodology: How The Times Calculates 2024 Polling Averages**\
 `An average of surveys may sound straightforward, but even a simple approach faces a series of choices.`\
 https://nytimes.com/article/election-polling-averages-methodology.html
-
-**Election 2024 Polls: Biden vs. Trump**\
-`Our polling averages track the latest trends in the presidential race, using data from national and battleground state polls.`\
-https://nytimes.com/interactive/2024/us/elections/polls-president.html
-
-**A Timeline of Julian Assange’s Legal Saga**\
-`A plea deal brought an abrupt end to an extraordinary legal saga that has raised novel issues of national security, press freedoms, politics and diplomacy.`\
-https://nytimes.com/2024/06/24/us/julian-assange-wikileaks-timeline.html
 
