@@ -1,3 +1,11 @@
+**The Pro-Israel Donor With a $100 Million Plan to Elect Trump**\
+`Miriam Adelson long operated in the shadow of her powerful husband, Sheldon Adelson. Now, after his death, she is playing in politics as a solo practitioner for the first time.`\
+https://nytimes.com/2024/06/25/us/politics/miriam-adelson-trump-israel.html
+
+**The protests in Kenya have been driven by younger people.**\
+`By Abdi Latif Dahir`\
+https://nytimes.com/live/2024/06/25/world/kenya-protests/the-protests-in-kenya-have-been-driven-by-younger-people
+
 **Jonathan Majors Is Cast in First Movie Role Since Assault Conviction**\
 `Mr. Majors, who was sentenced to a year of domestic violence programming and was dropped by Marvel, is set to star in the independent thriller “Merciless.”`\
 https://nytimes.com/2024/06/25/movies/jonathan-majors-merciless.html
