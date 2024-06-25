@@ -1,3 +1,7 @@
+**In States That Won’t Pay for Obesity Drugs, ‘They May as Well Have Never Been Created’**\
+`Public employees in West Virginia who took the drugs lost weight and were healthier, and some are despondent that the state is canceling a program to help pay for them.`\
+https://nytimes.com/2024/06/25/science/obesity-ozempic-wegovy-west-virginia.html
+
 **Leslye Headland’s ‘Cult of Love’ to Open on Broadway in the Fall**\
 `The play will be produced by Second Stage, which is also planning an Off Broadway production of a two-character drama by Donald Margulies.`\
 https://nytimes.com/2024/06/25/theater/leslye-headland-cult-love-broadway.html
