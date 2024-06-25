@@ -1,3 +1,7 @@
+**Assange’s Plea Deal Sets a Chilling Precedent, but It Could Have Been Worse**\
+`The deal brings an ambiguous end to a legal saga that has jeopardized the ability of journalists to report on military, intelligence or diplomatic information that officials deem secret.`\
+https://nytimes.com/2024/06/25/us/assange-plea-deal-press-freedom.html
+
 **Why the N.F.L. Put a $7 Billion Antitrust Case in the Hands of an Unpredictable Jury**\
 `A class-action lawsuit over the cost of Sunday Ticket subscriptions underscored how valuable broadcast deals have been for the league’s success.`\
 https://nytimes.com/2024/06/25/business/media/nfl-sunday-ticket-lawsuit-cost-tv-deal.html
