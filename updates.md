@@ -1,3 +1,7 @@
+**7 New Songs You Should Hear Now**\
+`Listen to Lorde tell her side of the story on a surprise remix with Charli XCX and more new songs.`\
+https://nytimes.com/2024/06/25/arts/music/amplifier-newsletter-charli-xcx-lorde.html
+
 **Tiny Love Stories: ‘I Called You When I Left the Gynecologist’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/06/25/style/tiny-modern-love-stories-i-called-you-when-i-left-the-gynecologist.html
