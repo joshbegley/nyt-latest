@@ -7,8 +7,8 @@ https://nytimes.com/2024/06/25/world/australia/picasso-ladies-bathroom-mona-tasm
 https://nytimes.com/2024/06/25/movies/celine-dion-documentary-seizure-stiff-person-syndrome.html
 
 **Volkswagen Will Invest Up to $5 Billion in Rivian**\
-`The German automaker and Rivian, a maker of electric trucks that has struggled to increase sales and break even, will work together on software and other technologies.`\
-https://nytimes.com/2024/06/25/business/economy/volkswagen-rivian-investment.html
+`VW and Rivian, a maker of electric trucks that has struggled to increase sales and break even, will work together on software and other technologies.`\
+https://nytimes.com/2024/06/25/business/volkswagen-rivian-vw-investment.html
 
 **New report on hunger in Gaza adds fuel to calls for lifting Israeli restrictions on aid.**\
 `By Eric Nagourney and Anjana Sankar`\
