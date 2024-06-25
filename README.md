@@ -1,3 +1,7 @@
+**France’s Far-Right National Rally Rebranded Itself. Here’s How.**\
+`Many long considered Marine Le Pen’s party too extreme to be anywhere close to power. Now, the party could win a parliamentary election — and fill the prime minister’s seat.`\
+https://nytimes.com/2024/06/25/world/europe/france-national-rally-rebranding.html
+
 **When the Runways Are a Personal Playlist**\
 `Theater and dance critics can’t own the subjects they cover, but a fashion critic can — at least imaginarily — by making a hits compilation as the clothes go by.`\
 https://nytimes.com/2024/06/25/style/mens-wear-fashion-shows-paris-milan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/nyregion/brooklyn-district-15-segregation.html
 **Word of the Day: academe**\
 `This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/06/25/learning/word-of-the-day-academe.html
-
-**Inside Nvidia’s $500 Billion Wipeout**\
-`The chipmaker’s stock has tumbled in recent days, a reminder that the artificial intelligence stock boom could be tough to sustain.`\
-https://nytimes.com/2024/06/25/business/dealbook/nvidia-stock-wipeout.html
 
