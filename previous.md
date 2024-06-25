@@ -1,3 +1,11 @@
+**Boeing Is Said to Offer Stock in Deal for Spirit AeroSystems**\
+`The plane maker is expected to soon strike a deal to acquire most of the operations of Spirit, a troubled supplier that makes the bodies of the 737 Max.`\
+https://nytimes.com/2024/06/25/business/boeing-spirit-aerosystems-acquisition.html
+
+**The Heat Crisis is a Housing Crisis**\
+`A lack of affordable housing and high energy costs are making Americans more vulnerable to record-breaking heat, public health experts say.`\
+https://nytimes.com/2024/06/25/climate/the-heat-crisis-is-a-housing-crisis.html
+
 **Review: A ‘Ulysses’ That Squeezes Bloomsday Into 2 Hours, 40 Minutes**\
 `Elevator Repair Service’s staged reading of the huge James Joyce novel retains much of its humor, pathos and bawdiness.`\
 https://nytimes.com/2024/06/25/theater/ulysses-bard-college-elevator-repair-service.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/25/arts/dance/wayne-mcgregor-montpellier-festival.ht
 **Review: In ‘Find Me Here,’ Sisters Grapple With a Father’s Will, and His Legacy**\
 `A family gathering fuels Crystal Finn’s new play, in which an excellent cast teases out the many complications of inheritance.`\
 https://nytimes.com/2024/06/25/theater/find-me-here-review.html
-
-**Heat Is Killing Thousands, and Big Events Have Not Adjusted**\
-`The deaths of at least 1,300 pilgrims during the hajj point to the growing threat that climate change poses to beloved gatherings.`\
-https://nytimes.com/2024/06/25/world/australia/record-heat-deaths-events.html
-
-**How a Cake Became a National Obsession**\
-`For many Jamaicans, lychee cake is the taste of celebration. Its origin tells the history of Chinese immigration to the Caribbean island.`\
-https://nytimes.com/2024/06/25/dining/lychee-cake.html
 

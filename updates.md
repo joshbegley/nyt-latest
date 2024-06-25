@@ -1,3 +1,11 @@
+**Boeing Is Said to Offer Stock in Deal for Spirit AeroSystems**\
+`The plane maker is expected to soon strike a deal to acquire most of the operations of Spirit, a troubled supplier that makes the bodies of the 737 Max.`\
+https://nytimes.com/2024/06/25/business/boeing-spirit-aerosystems-acquisition.html
+
+**The Heat Crisis is a Housing Crisis**\
+`A lack of affordable housing and high energy costs are making Americans more vulnerable to record-breaking heat, public health experts say.`\
+https://nytimes.com/2024/06/25/climate/the-heat-crisis-is-a-housing-crisis.html
+
 **Review: A ‘Ulysses’ That Squeezes Bloomsday Into 2 Hours, 40 Minutes**\
 `Elevator Repair Service’s staged reading of the huge James Joyce novel retains much of its humor, pathos and bawdiness.`\
 https://nytimes.com/2024/06/25/theater/ulysses-bard-college-elevator-repair-service.html
