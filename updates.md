@@ -1,3 +1,7 @@
+**New Jersey Transit Service Disrupted for Fifth Time in Two Months**\
+`Rush-hour commuters at Penn Station faced a shutdown of close to an hour, followed by extensive delays, after Amtrak investigated a report of a problem with overhead wires.`\
+https://nytimes.com/2024/06/24/nyregion/nj-transit-amtrak-penn-station-delays.html
+
 **With Virginia Primary Undecided, Rep. Bob Good Seeks Funds for Recount**\
 `The margin between the congressman and his Trump-backed challenger is just slightly above the threshold for a state-funded recount. His opponent has already declared victory, and both are election deniers.`\
 https://nytimes.com/2024/06/24/us/politics/bob-good-virginia-primary.html
