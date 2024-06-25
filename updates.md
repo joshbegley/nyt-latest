@@ -1,3 +1,11 @@
+**Demonstrators Stormed Kenya’s Parliament to Protest Taxes**\
+`Also, a bitter primary race in New York. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/06/25/briefing/kenya-protests-taxes-primary-day-new-york.html
+
+**In Bowman-Latimer Race, Voters Say Negative Ads Were Turnoff**\
+`Representative Jamaal Bowman is facing George Latimer in a contentious House primary in New York.`\
+https://nytimes.com/2024/06/25/us/politics/bowman-latimer-ny-primary.html
+
 **Daily Aspirin Use Carries Risks. Many Older Adults Take It Anyway.**\
 `The blood thinner can raise the likelihood of gastrointestinal bleeding, especially in people over 60. Here’s what to know.`\
 https://nytimes.com/2024/06/25/well/daily-aspirin-risks.html
