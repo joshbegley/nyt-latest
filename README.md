@@ -7,7 +7,7 @@ https://nytimes.com/2024/06/24/us/haiti-gang-leader-us-prison-sentence.html
 https://nytimes.com/2024/06/24/us/politics/oakland-mayor-sheng-thao-fbi-raid.html
 
 **Hoping for a Glimpse of Hailey Bieber, Hundreds Turn Out for Her Makeup**\
-`After braving a line that snaked through SoHo, fans snapped selfies and rubbed blush on their cheeks inside the tiny Rhode pop-up shop on Monday.`\
+`After braving a line that snaked through SoHo, fans snapped selfies and rubbed blush on their cheeks inside a tiny pop-up shop for Ms. Bieber’s makeup brand, Rhode.`\
 https://nytimes.com/2024/06/24/style/hailey-bieber-makeup-rhode.html
 
 **Methodology: How The Times Calculates 2024 Polling Averages**\
