@@ -1,3 +1,7 @@
+**Newsom Uses Annual State Address to Confront Republicans Across the Nation**\
+`In an unconventional version of the State of the State, Gov. Gavin Newsom attacked Republicans and held up California as a beacon of democracy.`\
+https://nytimes.com/2024/06/25/us/newsom-address-state-california.html
+
 **Should American Jews Abandon Elite Universities?**\
 `An incident at Columbia suggests that schools beset with antisemitism are beyond salvation.`\
 https://nytimes.com/2024/06/25/opinion/jews-ivy-league-antisemitism.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/us/politics/trump-biden-debate-cnn.html
 **Nairobi Police Use Live Rounds, Tear Gas and Water Cannons on Protesters**\
 `The Nairobi police and demonstrators clashed during protests against a bill expected to raise taxes on many basic necessities and increasing the overall cost of living in Kenya.`\
 https://nytimes.com/video/world/africa/100000009539190/kenya-tax-protest.html
-
-**How Chappell Roan’s Stylist Turned Her Into a Creepy Swan (Twice)**\
-`Genesis Webb helps the rising pop star put together drag-inspired looks that are “glamorous, but also ugly and confusing.”`\
-https://nytimes.com/2024/06/25/style/chappell-roan-jimmy-fallon-swan.html
 

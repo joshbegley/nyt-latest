@@ -1,3 +1,7 @@
+**Newsom Uses Annual State Address to Confront Republicans Across the Nation**\
+`In an unconventional version of the State of the State, Gov. Gavin Newsom attacked Republicans and held up California as a beacon of democracy.`\
+https://nytimes.com/2024/06/25/us/newsom-address-state-california.html
+
 **Should American Jews Abandon Elite Universities?**\
 `An incident at Columbia suggests that schools beset with antisemitism are beyond salvation.`\
 https://nytimes.com/2024/06/25/opinion/jews-ivy-league-antisemitism.html
