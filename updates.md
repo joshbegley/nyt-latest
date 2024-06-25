@@ -1,3 +1,15 @@
+**High living costs are straining even Africa’s most stable economies.**\
+`By Lynsey Chutel`\
+https://nytimes.com/live/2024/06/25/world/kenya-protests/high-living-costs-are-straining-even-africas-most-stable-economies
+
+**What to Know About Julian Assange and His Plea Deal**\
+`The deal ends a period of confinement that lasted about a dozen years, first in the self-exile of the Ecuadorean embassy in London, then in prison.`\
+https://nytimes.com/2024/06/25/us/politics/julian-assange-wikileaks-plea-deal.html
+
+**The Kenyan police force has a bloody past.**\
+`By Jeffrey Gettleman`\
+https://nytimes.com/live/2024/06/25/world/kenya-protests/the-kenyan-police-are-a-force-with-a-bloody-past
+
 **The Kenyan police are a force with a bloody past.**\
 `By Jeffrey Gettleman`\
 https://nytimes.com/live/2024/06/25/world/kenya-protests/the-kenyan-police-are-a-force-with-a-bloody-past

@@ -1,4 +1,12 @@
-**The Kenyan police are a force with a bloody past.**\
+**High living costs are straining even Africa’s most stable economies.**\
+`By Lynsey Chutel`\
+https://nytimes.com/live/2024/06/25/world/kenya-protests/high-living-costs-are-straining-even-africas-most-stable-economies
+
+**What to Know About Julian Assange and His Plea Deal**\
+`The deal ends a period of confinement that lasted about a dozen years, first in the self-exile of the Ecuadorean embassy in London, then in prison.`\
+https://nytimes.com/2024/06/25/us/politics/julian-assange-wikileaks-plea-deal.html
+
+**The Kenyan police force has a bloody past.**\
 `By Jeffrey Gettleman`\
 https://nytimes.com/live/2024/06/25/world/kenya-protests/the-kenyan-police-are-a-force-with-a-bloody-past
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/25/business/media/nfl-sunday-ticket-lawsuit-cost-tv-
 **Safety Agency Faults Norfolk Southern for ‘Vent and Burn’ After 2023 Derailment**\
 `The National Transportation Safety Board said the decision to release and incinerate toxic chemicals in the wake of a train derailment in East Palestine, Ohio, was misguided.`\
 https://nytimes.com/2024/06/25/us/politics/norfolk-southern-ntsb-vent-and-burn.html
-
-**Obama’s Half Sister Is Among Those Tear-Gassed During Protests in Kenya**\
-`Auma Obama, a sociologist and community activist, was being interviewed live on CNN when clouds of tear gas lobbed by the police overwhelmed her.`\
-https://nytimes.com/2024/06/25/world/auma-obama-kenya-protests-nairobi.html
-
-**Boeing Is Said to Offer Stock to Buy Spirit, Preserving Cash Amid Struggles**\
-`The plane maker is expected to soon strike a deal to acquire most of the operations of Spirit AeroSystems, a troubled supplier that makes the bodies of the 737 Max.`\
-https://nytimes.com/2024/06/25/business/boeing-spirit-aerosystems-acquisition.html
 
