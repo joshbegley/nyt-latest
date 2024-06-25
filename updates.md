@@ -1,3 +1,7 @@
+**Live Updates: Casualties Reported as Police Fire on Protesters in Kenya**\
+`Demonstrators breached the parliament building to protest the passage of a bill that raises taxes. At least four people were shot, one fatally, the independent Kenya Human Rights Commission said.`\
+https://nytimes.com/live/2024/06/25/world/kenya-protests
+
 **Kenyan Protesters Storm Parliament as Lawmakers Pass Tax Increases**\
 `The police used live fire and tear gas on protesters who marched on the Parliament building in an attempt to stop a vote on a contentious finance bill.`\
 https://nytimes.com/video/world/africa/100000009538667/kenya-protests-tax-increases.html
