@@ -1,3 +1,11 @@
+**A Court Ruled an Exhibit Discriminated Against Men. Now It’s in the Women’s Restroom.**\
+`The Museum of New and Old Art in Tasmania hung several paintings in a women’s restroom after a court ruled that its installation could not be exclusive to women.`\
+https://nytimes.com/2024/06/25/world/australia/picasso-ladies-bathroom-mona-tasmania.html
+
+**Celine Dion Had a Medical Emergency. The Camera Kept Rolling**\
+`Irene Taylor, director of the new documentary “I Am: Celine Dion,” talks about the decision to include a grueling scene of the pop star in crisis.`\
+https://nytimes.com/2024/06/25/movies/celine-dion-documentary-seizure-stiff-person-syndrome.html
+
 **Volkswagen Will Invest Up to $5 Billion in Rivian**\
 `The German automaker and Rivian, a maker of electric trucks that has struggled to increase sales and break even, will work together on software and other technologies.`\
 https://nytimes.com/2024/06/25/business/economy/volkswagen-rivian-investment.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/25/style/blush-blindness-tiktok.html
 **‘I Might Be Real-Life Good at This’: Shooting for Broadway at the Jimmy Awards**\
 `The awards, which celebrated excellence in high school musical theater on Monday, have become a launchpad for future stars and Tony nominees.`\
 https://nytimes.com/2024/06/25/theater/jimmy-awards-high-school-theater.html
-
-**Israel’s Ultra-Orthodox Must Serve in Military, Supreme Court Rules**\
-`The exemption for the ultra-Orthodox has long been a source of contention for secular Israelis.`\
-https://nytimes.com/video/world/middleeast/100000009539210/israel-military-ultra-orthodox-jews-supreme-court.html
-
-**He Monitors Solar Flares. Here’s What Keeps Him Up at Night.**\
-`Mike Bettwy, a government meteorologist who focuses on potential threats from space weather, says that we are more prepared than ever — and that forecasting is only getting better.`\
-https://nytimes.com/2024/06/25/science/mike-bettwy-solar-flares-storms.html
 
