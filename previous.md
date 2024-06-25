@@ -1,3 +1,11 @@
+**E.U. Charges Microsoft With Antitrust Violations Over Teams Bundling**\
+`The tech giant has been accused of stifling competition by packaging its video conferencing app with other tools like Word and Excel.`\
+https://nytimes.com/2024/06/25/business/european-union-microsoft-teams-antitrust.html
+
+**Biden’s Polling Progress**\
+`The president has narrowed the gap with Donald Trump, but Trump still holds a small lead.`\
+https://nytimes.com/2024/06/25/briefing/biden-trump-2024-polls.html
+
 **Deadly Fire Exposes Harsh Conditions Migrant Workers Face in South Korea**\
 `Foreigners do dirty, hazardous work, and advocates say the blaze that killed 22 at a battery plant shows that they need better protection.`\
 https://nytimes.com/2024/06/25/world/asia/south-korea-lithium-battery-fire.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/25/opinion/gen-z-slang-language.html
 **‘Babylon Berlin’ Review: Dancing While the World Begins to Burn**\
 `The long-awaited fourth season of the cult-favorite German thriller takes place in 1931, with the Nazis not quite in power.`\
 https://nytimes.com/2024/06/25/arts/television/babylon-berlin-season-4-review.html
-
-**I Study Disinformation. This Election Will Be Grim.**\
-`Universities that cataloged election lies and disinformation are being targeted with the same tactics they sought to uncover.`\
-https://nytimes.com/2024/06/25/opinion/stanford-disinformation-election-jordan-twitter.html
-
-**‘Doctor Who’ Season in Review: The Doctor Might Be on a New Path**\
-`Ncuti Gatwa shined as the 15th Doctor. But the long-running show feels at a crossroads as it concludes its latest season.`\
-https://nytimes.com/2024/06/25/arts/television/doctor-who-season-recap.html
 

@@ -1,3 +1,11 @@
+**E.U. Charges Microsoft With Antitrust Violations Over Teams Bundling**\
+`The tech giant has been accused of stifling competition by packaging its video conferencing app with other tools like Word and Excel.`\
+https://nytimes.com/2024/06/25/business/european-union-microsoft-teams-antitrust.html
+
+**Biden’s Polling Progress**\
+`The president has narrowed the gap with Donald Trump, but Trump still holds a small lead.`\
+https://nytimes.com/2024/06/25/briefing/biden-trump-2024-polls.html
+
 **Deadly Fire Exposes Harsh Conditions Migrant Workers Face in South Korea**\
 `Foreigners do dirty, hazardous work, and advocates say the blaze that killed 22 at a battery plant shows that they need better protection.`\
 https://nytimes.com/2024/06/25/world/asia/south-korea-lithium-battery-fire.html
