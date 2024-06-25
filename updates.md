@@ -1,3 +1,7 @@
+**Heat Is Killing Thousands, and Big Events Have Not Adjusted**\
+`The deaths of at least 1,300 pilgrims during the hajj points to the growing threat that climate change poses to beloved gatherings.`\
+https://nytimes.com/2024/06/25/world/australia/record-heat-deaths-events.html
+
 **How a Cake Became a National Obsession**\
 `For many Jamaicans, lychee cake is the taste of celebration. Its origin tells the history of Chinese immigration to the Caribbean island.`\
 https://nytimes.com/2024/06/25/dining/lychee-cake.html
