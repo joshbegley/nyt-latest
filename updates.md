@@ -1,3 +1,7 @@
+**Gold Medal Looks in Paris**\
+`Dior and Thom Browne get Olympic fever.`\
+https://nytimes.com/2024/06/25/style/dior-thom-browne-couture-olympics.html
+
 **Austin and Gallant will meet as attacks intensify across Israel’s border with Lebanon.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/06/24/world/israel-gaza-war-hamas/austin-and-gallant-are-meeting-as-conflict-along-israels-border-with-lebanon-intensifies
