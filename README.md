@@ -1,7 +1,3 @@
-**Kenyan Protesters Storm Parliament as Lawmakers Pass Tax Increases**\
-`The police used live fire and tear gas on protesters who marched on the Parliament building in an attempt to stop a vote on a contentious finance bill.`\
-https://nytimes.com/video/world/africa/100000009538667/kenya-protests-tax-increases.html
-
 **Here’s the latest on the protests in Kenya.**\
 `By Abdi Latif Dahir`\
 https://nytimes.com/live/2024/06/25/world/kenya-protests/heres-the-latest-on-the-protests-in-kenya
@@ -37,4 +33,8 @@ https://nytimes.com/2024/06/25/world/europe/russia-crimea-european-human-rights-
 **Foreign Police Officers Land on the Ground in Haiti**\
 `The first wave of a 2,500-member international force sent to restore order in the gang-plagued Caribbean nation has arrived, but critics worry the plan will fail.`\
 https://nytimes.com/2024/06/25/world/americas/haiti-kenya-police-gangs.html
+
+**Readers Share Their Favorite Parts of 2024 So Far**\
+`New hobbies, graduation ceremonies and more.`\
+https://nytimes.com/2024/06/25/us/california-favorite-2024.html
 
