@@ -1,10 +1,22 @@
+**‘I Might Be Real-Life Good at This’: Shooting for Broadway at the Jimmy Awards**\
+`The awards, which celebrated excellence in high school musical theater on Monday, have become a launchpad for future stars and Tony nominees.`\
+https://nytimes.com/2024/06/25/theater/jimmy-awards-high-school-theater.html
+
+**Israel’s Ultra-Orthodox Must Serve in Military, Supreme Court Rules**\
+`The exemption for the ultra-Orthodox has long been a source of contention for secular Israelis.`\
+https://nytimes.com/video/world/middleeast/100000009539210/israel-military-ultra-orthodox-jews-supreme-court.html
+
+**He Monitors Solar Flares. Here’s What Keeps Him Up at Night.**\
+`Mike Bettwy, a government meteorologist who focuses on potential threats from space weather, says that we are more prepared than ever — and that forecasting is only getting better.`\
+https://nytimes.com/2024/06/25/science/mike-bettwy-solar-flares-storms.html
+
 **Tiny Love Stories: ‘I Called You When I Left the Gynecologist’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/06/25/style/tiny-modern-love-stories-i-called-you-when-i-left-the-gynecologist.html
 
-**The turmoil in Nairobi is a blow to the Biden administration’s embrace of Kenya’s president.**\
+**Kenya Protests Are a Blow to Biden’s Embrace of President Ruto**\
 `Just a day earlier, President Biden had formally named Kenya a major non-NATO ally.`\
-https://nytimes.com/2024/06/25/world/the-turmoil-in-nairobi-is-a-blow-to-the-biden-administrations-embrace-of-kenyas-president.html
+https://nytimes.com/2024/06/25/world/kenya-protests-president-ruto-biden.html
 
 **High living costs are straining even Africa’s most stable economies.**\
 `By Lynsey Chutel`\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/25/sports/olympics/phelps-schmitt-olympics-antidopin
 **Trump Can Now Criticize Witnesses Who Testified Against Him, Judge Rules**\
 `The judge who oversaw Donald J. Trump’s criminal trial loosened the rules governing what Mr. Trump can say about it, and said his gag order would be lifted after his July 11 sentencing.`\
 https://nytimes.com/2024/06/25/nyregion/trump-gag-order-hush-money-trial.html
-
-**The Southern Border, Terrorism Fears and the Arrests of 8 Tajik Men**\
-`The men were arrested after the F.B.I. quietly began an investigation that stretched across the country and involved scores of bureau personnel.`\
-https://nytimes.com/2024/06/25/us/politics/terrorism-threat-fbi-tajik.html
-
-**7 New Songs You Should Hear Now**\
-`Listen to Lorde tell her side of the story on a surprise remix with Charli XCX and more new songs.`\
-https://nytimes.com/2024/06/25/arts/music/amplifier-newsletter-charli-xcx-lorde.html
-
-**Assange’s Plea Deal Sets a Chilling Precedent, but It Could Have Been Worse**\
-`The deal brings an ambiguous end to a legal saga that has jeopardized the ability of journalists to report on military, intelligence or diplomatic information that officials deem secret.`\
-https://nytimes.com/2024/06/25/us/assange-plea-deal-press-freedom.html
 

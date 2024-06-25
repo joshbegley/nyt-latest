@@ -1,3 +1,19 @@
+**‘I Might Be Real-Life Good at This’: Shooting for Broadway at the Jimmy Awards**\
+`The awards, which celebrated excellence in high school musical theater on Monday, have become a launchpad for future stars and Tony nominees.`\
+https://nytimes.com/2024/06/25/theater/jimmy-awards-high-school-theater.html
+
+**Israel’s Ultra-Orthodox Must Serve in Military, Supreme Court Rules**\
+`The exemption for the ultra-Orthodox has long been a source of contention for secular Israelis.`\
+https://nytimes.com/video/world/middleeast/100000009539210/israel-military-ultra-orthodox-jews-supreme-court.html
+
+**He Monitors Solar Flares. Here’s What Keeps Him Up at Night.**\
+`Mike Bettwy, a government meteorologist who focuses on potential threats from space weather, says that we are more prepared than ever — and that forecasting is only getting better.`\
+https://nytimes.com/2024/06/25/science/mike-bettwy-solar-flares-storms.html
+
+**Kenya Protests Are a Blow to Biden’s Embrace of President Ruto**\
+`Just a day earlier, President Biden had formally named Kenya a major non-NATO ally.`\
+https://nytimes.com/2024/06/25/world/kenya-protests-president-ruto-biden.html
+
 **The turmoil in Nairobi is a blow to the Biden administration’s embrace of Kenya’s president.**\
 `Just a day earlier, President Biden had formally named Kenya a major non-NATO ally.`\
 https://nytimes.com/2024/06/25/world/the-turmoil-in-nairobi-is-a-blow-to-the-biden-administrations-embrace-of-kenyas-president.html
