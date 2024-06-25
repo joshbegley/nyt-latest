@@ -1,3 +1,7 @@
+**Russia Committed Human Rights Violations in Crimea, European Court Finds**\
+`The European Court of Human Rights listed multiple violations. Its findings paint a grim picture of life under a decade of Russian occupation.`\
+https://nytimes.com/2024/06/25/world/europe/russia-crimea-european-human-rights-court.html
+
 **Foreign Police Officers Land on the Ground in Haiti**\
 `The first wave of a 2,500-member international force sent to restore order in the gang-plagued Caribbean nation has arrived, but critics worry the plan will fail.`\
 https://nytimes.com/2024/06/25/world/americas/haiti-kenya-police-gangs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/world/europe/icc-arrest-warrants-russia-ukraine-w
 **What Is a Famine and Who Determines That One Exists?**\
 `A group of global experts said that Gaza is at high risk of famine, but stopped short of saying that one had begun. Here’s a closer look at how famine is defined.`\
 https://nytimes.com/2024/06/25/world/middleeast/what-is-famine.html
-
-**‘Babylon Berlin’ Is Back. Here’s What You Need to Know.**\
-`Season 4 of the epic crime drama has finally come to streaming in the United States, via MHz Choice. Here’s a refresher on where we left off.`\
-https://nytimes.com/2024/06/25/arts/television/babylon-berlin-season-four.html
 
