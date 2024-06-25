@@ -1,3 +1,11 @@
+**How a Cake Became a National Obsession**\
+`For many Jamaicans, lychee cake is the taste of celebration. Its origin tells the history of Chinese immigration to the Caribbean island.`\
+https://nytimes.com/2024/06/25/dining/lychee-cake.html
+
+**Jamaal Bowman Deserves to Lose**\
+`He is out of sync with his district and with the Democratic Party.`\
+https://nytimes.com/2024/06/18/opinion/bowman-latimer-primary.html
+
 **Patients Stunned by Their Medical Bills**\
 `Responses to an essay about facility fees added by hospital-affiliated practices. Also: The border; North Korea’s weapons; Justin Timberlake’s arrest.`\
 https://nytimes.com/2024/06/25/opinion/patients-medical-bills.html
