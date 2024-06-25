@@ -1,3 +1,15 @@
+**Daily Aspirin Use Carries Risks. Many Older Adults Take It Anyway.**\
+`The blood thinner can raise the likelihood of gastrointestinal bleeding, especially in people over 60. Here’s what to know.`\
+https://nytimes.com/2024/06/25/well/daily-aspirin-risks.html
+
+**Anti-Tax Riots Rock Kenya, as President Vows Crackdown on ‘Treasonous’ Protesters**\
+`At least five people were killed in clashes with the police that erupted after lawmakers approved tax increases that critics said would drive up the cost of living for millions.`\
+https://nytimes.com/2024/06/25/world/africa/nairobi-kenya-tax-protests.html
+
+**Cruise, the Self-Driving Car Subsidiary of G.M., Names a New C.E.O.**\
+`After a year of safety problems, layoffs and mass executive departures, G.M. is trying to find stability for its futuristic driverless car business.`\
+https://nytimes.com/2024/06/25/technology/gm-cruise-ceo-marc-whitten.html
+
 **A Bird-watchers Paradise, Opened Up by Colombia’s Peace Deal**\
 `The 2016 peace treaty that ended a decades-long civil conflict has turned Colombia — home to more species of birds than any other country on Earth — into a birders’ delight, opening up forests that were once controlled by anti-government armed groups.`\
 https://nytimes.com/card/2024/06/25/world/americas/colombia-birdwatching
