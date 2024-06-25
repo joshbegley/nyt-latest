@@ -1,3 +1,11 @@
+**‘Is There Any Chance He Can Sit on a Camel?’ A Senator’s Wife Wanted to Know.**\
+`An aide to Senator Robert Menendez testified that she had been asked to consult with an Egyptian intelligence officer who had befriended Nadine Menendez.`\
+https://nytimes.com/2024/06/24/nyregion/robert-menendez-bribery-egypt.html
+
+**A User’s Guide to Midlife**\
+`Experts weigh in on the most vexing issues and changes — and how to deal with them.`\
+https://nytimes.com/interactive/2024/06/24/well/live/midlife-health-body-changes-guide.html
+
 **Zelensky Removes a Top General Amid Criticism of Excessive Casualties**\
 `The announcement by Ukraine’s president on Monday came hours after a scathing social media post implicitly accused the general of “killing more Ukrainian soldiers than any Russian general.”`\
 https://nytimes.com/2024/06/24/world/europe/zelensky-ukraine-general-dismissed.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/24/us/haiti-gang-leader-us-prison-sentence.html
 **Oakland’s Mayor Had Enough Troubles. Then the F.B.I. Came Knocking.**\
 `Sheng Thao was already facing a recall election as residents remain frustrated over crime and homelessness. She said on Monday that she had committed no crimes.`\
 https://nytimes.com/2024/06/24/us/politics/oakland-mayor-sheng-thao-fbi-raid.html
-
-**Hoping for a Glimpse of Hailey Bieber, Hundreds Turn Out for Her Makeup**\
-`After braving a line that snaked through SoHo, fans snapped selfies and rubbed blush on their cheeks inside a tiny pop-up shop for Ms. Bieber’s makeup brand, Rhode.`\
-https://nytimes.com/2024/06/24/style/hailey-bieber-makeup-rhode.html
-
-**Methodology: How The Times Calculates 2024 Polling Averages**\
-`An average of surveys may sound straightforward, but even a simple approach faces a series of choices.`\
-https://nytimes.com/article/election-polling-averages-methodology.html
 

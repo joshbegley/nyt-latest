@@ -1,3 +1,11 @@
+**‘Is There Any Chance He Can Sit on a Camel?’ A Senator’s Wife Wanted to Know.**\
+`An aide to Senator Robert Menendez testified that she had been asked to consult with an Egyptian intelligence officer who had befriended Nadine Menendez.`\
+https://nytimes.com/2024/06/24/nyregion/robert-menendez-bribery-egypt.html
+
+**A User’s Guide to Midlife**\
+`Experts weigh in on the most vexing issues and changes — and how to deal with them.`\
+https://nytimes.com/interactive/2024/06/24/well/live/midlife-health-body-changes-guide.html
+
 **Zelensky Removes a Top General Amid Criticism of Excessive Casualties**\
 `The announcement by Ukraine’s president on Monday came hours after a scathing social media post implicitly accused the general of “killing more Ukrainian soldiers than any Russian general.”`\
 https://nytimes.com/2024/06/24/world/europe/zelensky-ukraine-general-dismissed.html
