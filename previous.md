@@ -1,3 +1,7 @@
+**When the Runways Are a Personal Playlist**\
+`Theater and dance critics can’t own the subjects they cover, but a fashion critic can — at least imaginarily — by making a hits compilation as the clothes go by.`\
+https://nytimes.com/2024/06/25/style/mens-wear-fashion-shows-paris-milan.html
+
 **How Trump and Biden Might Attack Each Other at the CNN Debate**\
 `Immigration, the economy, democracy and abortion rights: Here are the main ways each candidate is likely to slam the other at Thursday’s high-stakes confrontation.`\
 https://nytimes.com/2024/06/25/us/politics/trump-biden-cnn-debate-attacks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/learning/word-of-the-day-academe.html
 **Inside Nvidia’s $500 Billion Wipeout**\
 `The chipmaker’s stock has tumbled in recent days, a reminder that the artificial intelligence stock boom could be tough to sustain.`\
 https://nytimes.com/2024/06/25/business/dealbook/nvidia-stock-wipeout.html
-
-**Strike Kills Sister of Hamas’s Political Leader**\
-`Hamas confirmed the death of a sister of Ismail Haniyeh and her family. The Israeli military said it was aware of the reports but could not “currently confirm” that it had struck the Haniyeh family home.`\
-https://nytimes.com/2024/06/25/world/middleeast/strike-haniyeh-hamas-gaza.html
 

@@ -1,3 +1,7 @@
+**When the Runways Are a Personal Playlist**\
+`Theater and dance critics can’t own the subjects they cover, but a fashion critic can — at least imaginarily — by making a hits compilation as the clothes go by.`\
+https://nytimes.com/2024/06/25/style/mens-wear-fashion-shows-paris-milan.html
+
 **In States That Won’t Pay for Obesity Drugs, ‘They May as Well Have Never Been Created’**\
 `Public employees in West Virginia who took the drugs lost weight and were healthier, and some are despondent that the state is canceling a program to help pay for them.`\
 https://nytimes.com/2024/06/25/health/obesity-ozempic-wegovy-west-virginia.html
