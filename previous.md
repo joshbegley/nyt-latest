@@ -1,3 +1,7 @@
+**Deadly Fire Exposes Harsh Conditions Migrant Workers Face in South Korea**\
+`Foreigners do dirty, hazardous work, and advocates say the blaze that killed 22 at a battery plant shows that they need better protection.`\
+https://nytimes.com/2024/06/25/world/asia/south-korea-lithium-battery-fire.html
+
 **Experts on hunger say that almost half a million people in Gaza face starvation.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/06/25/world/israel-gaza-war-hamas/experts-on-hunger-say-that-almost-half-a-million-people-in-gaza-face-starvation
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/opinion/stanford-disinformation-election-jordan-t
 **‘Doctor Who’ Season in Review: The Doctor Might Be on a New Path**\
 `Ncuti Gatwa shined as the 15th Doctor. But the long-running show feels at a crossroads as it concludes its latest season.`\
 https://nytimes.com/2024/06/25/arts/television/doctor-who-season-recap.html
-
-**London’s Kew Gardens Has Long Links to Japan. Now the Emperor Is Set to Visit.**\
-`Emperor Naruhito and his wife, Empress Masako, are touring the famous botanic gardens this week as part of a state visit to Britain.`\
-https://nytimes.com/2024/06/25/world/europe/london-japan-emperor-kew-gardens.html
 
