@@ -1,3 +1,7 @@
+**How Chappell Roan’s Stylist Turned Her Into a Creepy Swan (Twice)**\
+`Genesis Webb helps the rising pop star put together drag-inspired looks that are “glamorous, but also ugly and confusing.”`\
+https://nytimes.com/2024/06/25/style/chappell-roan-jimmy-fallon-swan.html
+
 **Demonstrators Stormed Kenya’s Parliament to Protest Taxes**\
 `Also, a bitter primary race in New York. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/06/25/briefing/kenya-protests-taxes-primary-day-new-york.html

@@ -1,3 +1,7 @@
+**How Chappell Roan’s Stylist Turned Her Into a Creepy Swan (Twice)**\
+`Genesis Webb helps the rising pop star put together drag-inspired looks that are “glamorous, but also ugly and confusing.”`\
+https://nytimes.com/2024/06/25/style/chappell-roan-jimmy-fallon-swan.html
+
 **Demonstrators Stormed Kenya’s Parliament to Protest Taxes**\
 `Also, a bitter primary race in New York. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/06/25/briefing/kenya-protests-taxes-primary-day-new-york.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/world/africa/kenya-protests-tax-parliament.html
 **Wednesday Briefing: Major Protests in Nairobi**\
 `Also, Julian Assange’s plea deal with the U.S.`\
 https://nytimes.com/2024/06/25/world/asia/kenya-protests-assange-australia-asia.html
-
-**Man Fatally Shoots 5 in North Las Vegas and Kills Himself After Manhunt, Police Say**\
-`The man, Eric Adams, was also suspected of critically wounding a 13-year-old girl in shootings at two nearby apartments.`\
-https://nytimes.com/2024/06/25/us/eric-adams-north-las-vegas-shooting.html
 
