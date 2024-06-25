@@ -1,3 +1,7 @@
+**Man Who Attacked Cabdriver Sentenced to 10 Years for Manslaughter**\
+`Austin Amos assaulted a taxi driver in 2022 after he and a group of friends refused to pay the fare on a ride from Manhattan to Far Rockaway, Queens. Mr. Amos was 20 at the time.`\
+https://nytimes.com/2024/06/25/nyregion/taxi-driver-attack-sentence-nyc.html
+
 **A Wax Statue of Lincoln Melted Into a Meme**\
 `The sculpture was part of a series meant to comment on American monument culture. Cue the jokes instead.`\
 https://nytimes.com/2024/06/25/arts/lincoln-wax-statue-melted.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/briefing/kenya-protests-taxes-primary-day-new-yor
 **In Bowman-Latimer Race, Voters Say Negative Ads Were Turnoff**\
 `Representative Jamaal Bowman is facing George Latimer in a contentious House primary in New York.`\
 https://nytimes.com/2024/06/25/us/politics/bowman-latimer-ny-primary.html
-
-**Daily Aspirin Use Carries Risks. Many Older Adults Take It Anyway.**\
-`The blood thinner can raise the likelihood of gastrointestinal bleeding, especially in people over 60. Here’s what to know.`\
-https://nytimes.com/2024/06/25/well/daily-aspirin-risks.html
 
