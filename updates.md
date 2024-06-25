@@ -1,3 +1,7 @@
+**How the Midwest Floods Nearly Took Out a Century-Old Dam**\
+`Many American dams are aging and in need of serious repairs. Climate change only makes the problem more urgent.`\
+https://nytimes.com/2024/06/25/us/minnesota-dam-flooding.html
+
 **Newsom Uses Annual State Address to Confront Republicans Across the Nation**\
 `In an unconventional version of the State of the State, Gov. Gavin Newsom attacked Republicans and held up California as a beacon of democracy.`\
 https://nytimes.com/2024/06/25/us/newsom-address-state-california.html

@@ -1,3 +1,7 @@
+**How the Midwest Floods Nearly Took Out a Century-Old Dam**\
+`Many American dams are aging and in need of serious repairs. Climate change only makes the problem more urgent.`\
+https://nytimes.com/2024/06/25/us/minnesota-dam-flooding.html
+
 **Newsom Uses Annual State Address to Confront Republicans Across the Nation**\
 `In an unconventional version of the State of the State, Gov. Gavin Newsom attacked Republicans and held up California as a beacon of democracy.`\
 https://nytimes.com/2024/06/25/us/newsom-address-state-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/us/houston-venezuelan-immigrants-murder-jocelyn-n
 **Will the Presidential Debate Be a Summer Blockbuster?**\
 `This week’s matchup on CNN between Trump and Biden may not have the same reach as debates past.`\
 https://nytimes.com/2024/06/25/us/politics/trump-biden-debate-cnn.html
-
-**Nairobi Police Use Live Rounds, Tear Gas and Water Cannons on Protesters**\
-`The Nairobi police and demonstrators clashed during protests against a bill expected to raise taxes on many basic necessities and increasing the overall cost of living in Kenya.`\
-https://nytimes.com/video/world/africa/100000009539190/kenya-tax-protest.html
 
