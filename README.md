@@ -11,7 +11,7 @@ https://nytimes.com/2024/06/25/movies/celine-dion-documentary-seizure-stiff-pers
 https://nytimes.com/2024/06/25/business/economy/volkswagen-rivian-investment.html
 
 **New report on hunger in Gaza adds fuel to calls for lifting Israeli restrictions on aid.**\
-`By Eric Nagourney`\
+`By Eric Nagourney and Anjana Sankar`\
 https://nytimes.com/live/2024/06/25/world/israel-gaza-war-hamas/new-report-on-hunger-in-gaza-adds-fuel-to-calls-for-lifting-israeli-restrictions-on-aid
 
 **Another Real Estate Broker Steps Down in the Face of Sex Assault Suits**\
