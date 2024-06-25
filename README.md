@@ -1,3 +1,7 @@
+**New report on hunger in Gaza adds fuel to calls for lifting Israeli restrictions on aid.**\
+`By Eric Nagourney`\
+https://nytimes.com/live/2024/06/25/world/israel-gaza-war-hamas/new-report-on-hunger-in-gaza-adds-fuel-to-calls-for-lifting-israeli-restrictions-on-aid
+
 **Another Real Estate Broker Steps Down in the Face of Sex Assault Suits**\
 `Tal Alexander, who rose to fame in the luxury housing market with his younger brother Oren, will take a leave from the firm he helped to create. Oren left earlier in June.`\
 https://nytimes.com/2024/06/25/realestate/tal-alexander-official-resigns.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/science/mike-bettwy-solar-flares-storms.html
 **Tiny Love Stories: ‘I Called You When I Left the Gynecologist’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/06/25/style/tiny-modern-love-stories-i-called-you-when-i-left-the-gynecologist.html
-
-**Kenya Protests Are a Blow to Biden’s Embrace of President Ruto**\
-`Just a day earlier, President Biden had formally named Kenya a major non-NATO ally.`\
-https://nytimes.com/2024/06/25/world/kenya-protests-president-ruto-biden.html
 
