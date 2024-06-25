@@ -1,3 +1,7 @@
+**What Is a Famine and Who Determines That One Exists?**\
+`A group of global experts said that Gaza is at high risk of famine, but stopped short of saying that one had begun. Here’s a closer look at how famine is defined.`\
+https://nytimes.com/2024/06/25/world/middleeast/what-is-famine.html
+
 **‘Babylon Berlin’ Is Back. Here’s What You Need to Know.**\
 `Season 4 of the epic crime drama has finally come to streaming in the United States, via MHz Choice. Here’s a refresher on where we left off.`\
 https://nytimes.com/2024/06/25/arts/television/babylon-berlin-season-four.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/crosswords/wordle-review-no-1103-june-26-2024.htm
 **The Connections Companion No. 381, June 26, 2024**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/06/25/crosswords/connections-companion-381.html
-
-**I Am Cringe. The World Is Sus. But My Teenager’s Slang Is Based.**\
-`Our kids’ lingo is not only better than any we used, it’s a useful window into the way they see the world.`\
-https://nytimes.com/2024/06/25/opinion/gen-z-slang-language.html
 
