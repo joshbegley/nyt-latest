@@ -1,3 +1,15 @@
+**Kenyan Protesters Storm Parliament as Lawmakers Pass Tax Increases**\
+`The police used live fire and tear gas on protesters who marched on the Parliament building in an attempt to stop a vote on a contentious finance bill.`\
+https://nytimes.com/video/world/africa/100000009538667/kenya-protests-tax-increases.html
+
+**Here’s the latest on the protests in Kenya.**\
+`By Abdi Latif Dahir`\
+https://nytimes.com/live/2024/06/25/world/kenya-protests/heres-the-latest-on-the-protests-in-kenya
+
+**Live Updates: Casualties Reported as Police Fire on Protesters in Kenya**\
+`Demonstrators breached the parliament to protest a bill that legislators passed Tuesday to raise taxes.`\
+https://nytimes.com/live/2024/06/25/world/kenya-protests
+
 **France’s Far-Right National Rally Rebranded Itself. Here’s How.**\
 `Many long considered Marine Le Pen’s party too extreme to be anywhere close to power. Now, the party could win a parliamentary election — and fill the prime minister’s seat.`\
 https://nytimes.com/2024/06/25/world/europe/france-national-rally-rebranding.html
