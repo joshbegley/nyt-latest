@@ -1,3 +1,7 @@
+**Patients Stunned by Their Medical Bills**\
+`Responses to an essay about facility fees added by hospital-affiliated practices. Also: The border; North Korea’s weapons; Justin Timberlake’s arrest.`\
+https://nytimes.com/2024/06/25/opinion/patients-medical-bills.html
+
 **The Pro-Israel Donor With a $100 Million Plan to Elect Trump**\
 `Miriam Adelson long operated in the shadow of her powerful husband, Sheldon Adelson. Now, after his death, she is playing in politics as a solo practitioner for the first time.`\
 https://nytimes.com/2024/06/25/us/politics/miriam-adelson-trump-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/25/world/kenya-protests
 **France’s Far-Right National Rally Rebranded Itself. Here’s How.**\
 `Many long considered Marine Le Pen’s party too extreme to be anywhere close to power. Now, the party could win a parliamentary election — and fill the prime minister’s seat.`\
 https://nytimes.com/2024/06/25/world/europe/france-national-rally-rebranding.html
-
-**When the Runways Are a Personal Playlist**\
-`Theater and dance critics can’t own the subjects they cover, but a fashion critic can — at least imaginarily — by making a hits compilation as the clothes go by.`\
-https://nytimes.com/2024/06/25/style/mens-wear-fashion-shows-paris-milan.html
 
