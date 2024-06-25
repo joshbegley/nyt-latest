@@ -1,3 +1,7 @@
+**After a Brief Run, ‘Tommy’ Revival to Close on Broadway**\
+`“The Who’s Tommy,” which has a rock score by Pete Townshend, will end on July 21. A national tour is in the works.`\
+https://nytimes.com/2024/06/25/theater/tommy-revival-broadway-closing.html
+
 **Killing of Texas Girl Becomes a New Immigration Flashpoint**\
 `The killing of 12-year-old Jocelyn Nungaray in Houston has become the latest crime seized on by Republicans to attack President Biden over his immigration policies.`\
 https://nytimes.com/2024/06/25/us/houston-venezuelan-immigrants-murder-jocelyn-nungaray.html
