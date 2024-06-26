@@ -1,3 +1,7 @@
+**Idaho Women Appear to Get a Reprieve on Abortion, for Now**\
+`The Supreme Court seems likely to dismiss a ban on emergency abortions, but the issue is far from settled.`\
+https://nytimes.com/live/2024/06/25/opinion/thepoint/idaho-abortions-trump-biden
+
 **Five Charged With Smuggling Contraband Into Youth Lockup Awash in Knives**\
 `Court papers said the “youth development specialists” took more than $50,000 in bribes to allow in items like razor blades, marijuana, alcohol and prescription pills.`\
 https://nytimes.com/2024/06/26/nyregion/brooklyn-juvenile-detention-smuggling-bribes.html
