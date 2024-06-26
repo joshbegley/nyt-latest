@@ -1,3 +1,11 @@
+**C.D.C. Scales Back Recommendations for R.S.V. Vaccine**\
+`Fewer Americans age 60 to 74 should receive the shots, the agency concluded, citing reduced risks and a possible neurological side effect.`\
+https://nytimes.com/2024/06/26/health/rsv-vaccine-cdc.html
+
+**Biden Restores Honor to Thousands of L.G.B.T.Q. Service Members**\
+`He and Congress must now reach for more daring possibilities.`\
+https://nytimes.com/live/2024/06/25/opinion/thepoint/biden-lgbtq-service-members
+
 **Republicans Rally Behind Trump After Conviction, Times/Siena Poll Finds**\
 `The national survey found that more than two thirds of voters said the outcome of Donald J. Trump’s Manhattan criminal case made no difference to their vote.`\
 https://nytimes.com/2024/06/26/us/politics/trump-poll-hush-money-conviction.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/06/26/climate/maldives-islands-climate-chan
 **Bolivia’s Military Accused of Coup Attempt**\
 `Members of the country’s military gathered outside the presidential palace on Wednesday, President Luis Arce said, an action that took the country by surprise.`\
 https://nytimes.com/2024/06/26/world/americas/bolivia-unrest-military.html
-
-**The Episcopal Church Has Elected Its Youngest Leader in Centuries**\
-`Bishop Sean Rowe, 49, called for the church to be resilient heading into what he described as an “existential crisis” caused by a changing world.`\
-https://nytimes.com/2024/06/26/us/episcopal-church-bishop-sean-rowe.html
-
-**Brazil Becomes the Largest Nation to Decriminalize Marijuana**\
-`The country’s Supreme Court voted to remove criminal penalties for possession of up to 40 grams of marijuana.`\
-https://nytimes.com/2024/06/26/world/americas/brazil-marijuana-decriminalize-weed.html
 
