@@ -1,3 +1,15 @@
+**Five Charged in the Case of a Juror and a Gift Bag Stuffed With $120,000**\
+`Federal prosecutors in Minneapolis said the charges stemmed from an attempt to bribe a juror in a scheme involving the embezzlement of food aid meant for children.`\
+https://nytimes.com/2024/06/26/us/bribery-charges-minnesota-juror.html
+
+**I.C.C. Convicts Senior Jihadist Police Leader of Atrocities in Timbuktu**\
+`The court said his crimes had involved overseeing public floggings, torture and arbitrary arrests during a jihadist takeover in northern Mali in 2012.`\
+https://nytimes.com/2024/06/26/world/africa/icc-mali-timbuktu-jihadist-convicted.html
+
+**‘Fahrenheit 9/11’ at 20: Revisiting the Fear and Anger**\
+`Michael Moore’s hit documentary isn’t a prosecutor’s brief but a political and emotional appeal, rooted in the ways in which the country’s burdens are unequally borne.`\
+https://nytimes.com/2024/06/26/movies/fahrenheit-9-11-anniversary.html
+
 **What the Court’s Ruling on Drafting the Ultra-Orthodox Means for Israel**\
 `Israel’s insular ultra-Orthodox community has long been exempt from military service. The Supreme Court’s decision to end that exemption could change the country’s social and political dynamics.`\
 https://nytimes.com/2024/06/26/world/middleeast/what-the-courts-ruling-on-drafting-the-ultra-orthodox-means-for-israel.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/26/us/politics/supreme-court-abortion-idaho.html
 **An Alabama Town’s New Mayor Was Locked Out. 3 Years Later, He Will Return.**\
 `Newbern, Ala., had not held elections in 50 years — until Patrick Braxton ran for office. But when Mr. Braxton won, he was blocked from carrying out his duties, he said in a lawsuit.`\
 https://nytimes.com/2024/06/26/us/alabama-mayor-patrick-braxton-settlement.html
-
-**Alito’s Frustrated Culture-War Diatribe**\
-`He readily sided with Republican states that claimed that countering Covid misinformation was censorship.`\
-https://nytimes.com/2024/06/25/opinion/alito-censorship-covid.html
-
-**Congestion Pricing Delay Will Stop Billions in Subway Upgrades**\
-`The board of the Metropolitan Transportation Authority was presented with drastic cuts to the transit system’s capital plan caused by Gov. Kathy Hochul’s decision to halt the tolling program.`\
-https://nytimes.com/2024/06/26/nyregion/nyc-congestion-pricing-mta.html
-
-**Plea Deal in Illinois Parade Shooting Falls Apart, Upsetting Victims’ Families**\
-`‘All I wanted was to be able to fully grieve my mom,’ one victim’s daughter said. The shooting at a Fourth of July parade two summers ago killed seven and wounded dozens more.`\
-https://nytimes.com/2024/06/26/us/highland-park-parade-shooting-plea-deal.html
 
