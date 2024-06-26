@@ -1,3 +1,7 @@
+**Federal Officials Revise Recommendations for R.S.V. Vaccine**\
+`Among Americans aged 60 to 74, only those with certain health conditions need to receive the shots, the agency concluded.`\
+https://nytimes.com/2024/06/26/health/rsv-vaccine-cdc.html
+
 **Prosecutors End Murder Case Against Austin Police Officer**\
 `The Travis County District Attorney’s Office said that the decision came after a grand jury declined to indict the officer, but lawyers for the officer said that prosecutors wanted to avoid embarrassment.`\
 https://nytimes.com/2024/06/26/us/christopher-taylor-charges-austin-police.html
