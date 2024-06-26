@@ -1,3 +1,11 @@
+**Justices Appear to Mistakenly Reveal a Key Abortion Ruling**\
+`Also, a new poll on the eve of the debate. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/06/26/briefing/supreme-court-idaho-abortion-biden-trump-poll.html
+
+**Here’s the debate people want**\
+`I asked what you want moderators to ask Biden and Trump at the debate. You had many thoughts.`\
+https://nytimes.com/2024/06/26/us/politics/presidential-debate-trump-biden.html
+
 **Instagram fixes an ‘error’ over political content ahead of the debate.**\
 `By Sheera Frenkel`\
 https://nytimes.com/live/2024/06/26/us/biden-trump-election-debate/instagram-political-content-error
