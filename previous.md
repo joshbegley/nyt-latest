@@ -1,3 +1,15 @@
+**On Tuesday Night, She Goes Out**\
+`Hitting New York’s East Village with Sabrina Fuentes, the 24-year-old frontwoman of the band Pretty Sick.`\
+https://nytimes.com/2024/06/26/style/pretty-sick-sabrina-fuentes-rock-music-new-york.html
+
+**How We Will Judge the Biden-Trump Debate**\
+`Readers discuss Thursday’s face-off. Also: Putin and Trump; science denialism; hiking in hot weather; justice in pregnancy; the Ten Commandments.`\
+https://nytimes.com/2024/06/26/opinion/biden-trump-debate.html
+
+**Iran’s Presidential Candidates Agree on One Thing: Trump Is Coming**\
+`The former U.S. president’s election is treated as a foregone conclusion, with the six contenders clashing over who is best suited to handling him.`\
+https://nytimes.com/2024/06/26/world/middleeast/iran-election-trump.html
+
 **‘Woolf Works’ Review: A Literary Ballet’s Missteps**\
 `Wayne McGregor’s 2015 work, making its New York debut with American Ballet Theater, fails to make dance poetry of Virginia Woolf’s novels.`\
 https://nytimes.com/2024/06/26/arts/dance/review-woolf-works-mcgregor-american-ballet-theater.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/26/world/europe/euros-ultras-hungary-carpathian-brig
 **Is It OK to Police My Patient’s Financial Choices?**\
 `The magazine’s Ethicist columnist on a physician’s bedside manner — and the difference between justifiable concern and judgment.`\
 https://nytimes.com/2024/06/26/magazine/plastic-surgery-cancer-doctor-ethics.html
-
-**Judges Upended Biden’s Student Loan Repayment Plan. What Happens Now?**\
-`More than eight million borrowers are enrolled in the income-driven plan known as SAVE. The Education Department is assessing the rulings.`\
-https://nytimes.com/2024/06/26/business/biden-student-loans-save-plan.html
-
-**NATO Will Offer Ukraine a ‘Bridge’ to Membership, Hoping That’s Enough**\
-`Officials say Kyiv won’t get membership negotiations at the coming NATO summit, but the alliance will announce a structure to coordinate aid over the longer term.`\
-https://nytimes.com/2024/06/26/world/europe/nato-ukraine-washington-membership-summit.html
-
-**If You Give a Frog a Sauna, It Might Fight Off a Deadly Fungus**\
-`A fatal fungal disease has devastated the world’s amphibians. But the fungus has a vulnerability: It cannot tolerate heat.`\
-https://nytimes.com/2024/06/26/science/frogs-amphibians-chytrid-fungus.html
 

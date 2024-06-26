@@ -1,3 +1,15 @@
+**On Tuesday Night, She Goes Out**\
+`Hitting New York’s East Village with Sabrina Fuentes, the 24-year-old frontwoman of the band Pretty Sick.`\
+https://nytimes.com/2024/06/26/style/pretty-sick-sabrina-fuentes-rock-music-new-york.html
+
+**How We Will Judge the Biden-Trump Debate**\
+`Readers discuss Thursday’s face-off. Also: Putin and Trump; science denialism; hiking in hot weather; justice in pregnancy; the Ten Commandments.`\
+https://nytimes.com/2024/06/26/opinion/biden-trump-debate.html
+
+**Iran’s Presidential Candidates Agree on One Thing: Trump Is Coming**\
+`The former U.S. president’s election is treated as a foregone conclusion, with the six contenders clashing over who is best suited to handling him.`\
+https://nytimes.com/2024/06/26/world/middleeast/iran-election-trump.html
+
 **‘Woolf Works’ Review: A Literary Ballet’s Missteps**\
 `Wayne McGregor’s 2015 work, making its New York debut with American Ballet Theater, fails to make dance poetry of Virginia Woolf’s novels.`\
 https://nytimes.com/2024/06/26/arts/dance/review-woolf-works-mcgregor-american-ballet-theater.html
