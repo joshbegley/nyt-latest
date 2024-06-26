@@ -1,10 +1,14 @@
+**Outlier Poll Results Are Inevitable. They’re Also Sometimes Right.**\
+`The latest Times/Siena survey shows Trump up by six points among registered voters and three among likely voters.`\
+https://nytimes.com/2024/06/26/upshot/biden-trump-poll-outlier.html
+
 **C.D.C. Scales Back Recommendations for R.S.V. Vaccine**\
 `Fewer Americans age 60 to 74 should receive the shots, the agency concluded, citing reduced risks and a possible neurological side effect.`\
 https://nytimes.com/2024/06/26/health/rsv-vaccine-cdc.html
 
 **Biden Restores Honor to Thousands of L.G.B.T.Q. Service Members**\
 `He and Congress must now reach for more daring possibilities.`\
-https://nytimes.com/live/2024/06/25/opinion/thepoint/biden-lgbtq-service-members
+https://nytimes.com/2024/06/25/opinion/biden-lgbtq-service-members.html
 
 **Republicans Rally Behind Trump After Conviction, Times/Siena Poll Finds**\
 `The national survey found that more than two thirds of voters said the outcome of Donald J. Trump’s Manhattan criminal case made no difference to their vote.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/26/us/vermont-profanity-arrest.html
 **The Vanishing Islands That Failed to Vanish**\
 `Low-lying tropical island nations were expected to be early victims of rising seas. But research tells a surprising story: Many islands are stable. Some have even grown.`\
 https://nytimes.com/interactive/2024/06/26/climate/maldives-islands-climate-change.html
-
-**Bolivia’s Military Accused of Coup Attempt**\
-`Members of the country’s military gathered outside the presidential palace on Wednesday, President Luis Arce said, an action that took the country by surprise.`\
-https://nytimes.com/2024/06/26/world/americas/bolivia-unrest-military.html
 
