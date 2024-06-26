@@ -1,3 +1,7 @@
+**Prosecutors End Murder Case Against Austin Police Officer**\
+`The Travis County District Attorney’s Office said that the decision came after a grand jury declined to indict the officer, but lawyers for the officer said that prosecutors wanted to avoid embarrassment.`\
+https://nytimes.com/2024/06/26/us/christopher-taylor-charges-austin-police.html
+
 **Russell Morash, ‘This Old House’ and ‘The French Chef’ Producer, Dies at 88**\
 `Hailed as a pioneer of D.I.Y. programming, he oversaw groundbreaking how-to shows on public television in the days before HGTV and YouTube.`\
 https://nytimes.com/2024/06/26/arts/television/russell-morash-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/06/26/us/elections/times-siena-poll-likely-
 **Toplines: June 2024 Times/Siena Poll of Registered Voters Nationwide**\
 `Results of a nationwide New York Times/Siena College poll conducted among 1,226 registered voters from June 20 to 25, 2024.`\
 https://nytimes.com/interactive/2024/06/26/us/elections/times-siena-poll-toplines.html
-
-**Cross-Tabs: June 2024 Times/Siena Poll of Registered Voters Nationwide**\
-`Results of a nationwide New York Times/Siena College poll conducted among 1,226 registered voters from June 20 to 25, 2024.`\
-https://nytimes.com/interactive/2024/06/26/us/elections/times-siena-poll-registered-voter-crosstabs.html
 
