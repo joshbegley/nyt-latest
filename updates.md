@@ -1,3 +1,11 @@
+**Brazil Becomes the Largest Nation to Decriminalize Marijuana**\
+`The country’s Supreme Court voted to remove criminal penalties for possession of up to 40 grams of marijuana.`\
+https://nytimes.com/2024/06/26/world/americas/brazil-marijuana-decriminalize-weed.html
+
+**For hundreds of thousands of Palestinians in Gaza, each day brings a struggle to find food.**\
+`By Iyad Abuheweila, Ameera Harouda and Hiba Yazbek`\
+https://nytimes.com/live/2024/06/26/world/israel-gaza-war-hamas/for-hundreds-of-thousands-of-palestinians-in-gaza-each-day-brings-a-struggle-to-find-food
+
 **What’s in Our Queue? Charlotte Day Wilson and More**\
 `I’m an economics and business reporter in the London newsroom of The New York Times. Here are five things that I’m enjoying.`\
 https://nytimes.com/interactive/2024/06/26/arts/editors-recommendations-charlotte.html
