@@ -1,4 +1,8 @@
 **Bolivia’s Military Attempts a Coup**\
+`The coup attempt, which is not supported by any political faction, took the country by surprise.`\
+https://nytimes.com/2024/06/26/world/americas/bolivia-unrest-military.html
+
+**Bolivia’s Military Attempts a Coup**\
 `The coup, which is not supported by any political faction or the Bolivian public, took the country by surprise.`\
 https://nytimes.com/2024/06/26/world/americas/bolivia-unrest-military.html
 
