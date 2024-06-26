@@ -1,3 +1,7 @@
+**Israel readies troops for potential escalation in Lebanon.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/06/26/world/israel-gaza-war-hamas/israel-readies-troops-for-potential-escalation-in-lebanon
+
 **President Biden and Donald Trump, Some Tough Questions for Each of You**\
 `Where would each of the candidates lead us — or drag us — on foreign policy issues convulsing the world?`\
 https://nytimes.com/2024/06/26/opinion/biden-trump-debate-questions.html

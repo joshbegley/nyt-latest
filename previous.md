@@ -1,3 +1,7 @@
+**Israel readies troops for potential escalation in Lebanon.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/06/26/world/israel-gaza-war-hamas/israel-readies-troops-for-potential-escalation-in-lebanon
+
 **President Biden and Donald Trump, Some Tough Questions for Each of You**\
 `Where would each of the candidates lead us — or drag us — on foreign policy issues convulsing the world?`\
 https://nytimes.com/2024/06/26/opinion/biden-trump-debate-questions.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/26/us/politics/presidential-debate-trump-biden.html
 **Instagram fixes an ‘error’ over political content ahead of the debate.**\
 `By Sheera Frenkel`\
 https://nytimes.com/live/2024/06/26/us/biden-trump-election-debate/instagram-political-content-error
-
-**South by Southwest Cuts Ties to Army After Gaza-Inspired Boycott**\
-`The festival said it would no longer be sponsored by the U.S. Army or weapons manufacturers, which had prompted artists to withdraw from this year’s gathering.`\
-https://nytimes.com/2024/06/26/arts/south-by-southwest-army.html
 
