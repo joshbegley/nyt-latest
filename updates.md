@@ -1,3 +1,7 @@
+**Kaz Hosaka, 65, Dies; Led Two Poodles to Westminster Glory**\
+`He began handling dogs in his native Japan and then became a poodle specialist, leading Spice and Sage to Best in Show victories.`\
+https://nytimes.com/2024/06/26/sports/kaz-hosaka-dead.html
+
 **Idaho Women Appear to Get a Reprieve on Abortion, for Now**\
 `The Supreme Court seems likely to dismiss a ban on emergency abortions, but the issue is far from settled.`\
 https://nytimes.com/live/2024/06/25/opinion/thepoint/idaho-abortions-trump-biden
