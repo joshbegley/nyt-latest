@@ -1,3 +1,7 @@
+**House G.O.P. Pushes Deep Cuts to Federal Law Enforcement**\
+`Republicans put forward a spending bill that would slash funding for federal law enforcement, though they failed to find a way to defund the special counsel prosecuting former President Donald J. Trump.`\
+https://nytimes.com/2024/06/26/us/politics/gop-spending-cuts-law-enforcement.html
+
 **Read the Posted Document**\
 `Bloomberg published a copy of an opinion that appeared briefly on the Supreme Court’s website and seemed to concern an Idaho abortion case.`\
 https://nytimes.com/interactive/2024/06/26/us/politics/moyle-idaho.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/26/us/biden-trump-election-debate/cnn-president
 **Harvard Reports Find Climate of Bias for Both Jewish and Muslim Groups**\
 `In preliminary reports, task forces on antisemitism and anti-Muslim bias urged the university to take steps to address the discrimination on campus.`\
 https://nytimes.com/2024/06/26/us/harvard-antisemitism-muslim-bias.html
-
-**Supreme Court Appears Poised to Allow, for Now, Emergency Abortions in Idaho**\
-`According to Bloomberg News, a document posted briefly to the court’s website suggested a majority of the justices would reinstate a lower-court ruling that paused the state’s near-total abortion ban.`\
-https://nytimes.com/2024/06/26/us/politics/supreme-court-abortion-idaho.html
 
