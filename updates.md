@@ -1,3 +1,11 @@
+**Part of a Pecking Order?**\
+`Rebecca Goldstein’s puzzle is anything but pedestrian.`\
+https://nytimes.com/2024/06/25/crosswords/daily-puzzle-2024-06-26.html
+
+**John Avlon Wins Political Debut in a House Primary in New York**\
+`Mr. Avlon, an author and former CNN personality, defeated Nancy Goroff, a retired chemistry professor, in a race in eastern Long Island.`\
+https://nytimes.com/2024/06/25/nyregion/avlon-goroff-primary.html
+
 **Bowman Falls to Latimer in House Primary in New York**\
 `Representative Jamaal Bowman of New York, a member of the House’s left-wing “squad,” was defeated by George Latimer in a race that exposed Democratic fissures.`\
 https://nytimes.com/2024/06/25/nyregion/bowman-latimer-house-new-york.html
