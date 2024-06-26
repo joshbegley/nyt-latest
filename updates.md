@@ -2,6 +2,10 @@
 `It’s between designers, and at a crossroad.`\
 https://nytimes.com/2024/06/26/style/chanel-couture.html
 
+**Where Does Chanel Go From Here?**\
+`It’s between designers, and at a crossroad.`\
+https://nytimes.com/2024/06/26/style/chanel-couture.html
+
 **Canceling Congestion Pricing Could Kill 100,000 New York Jobs**\
 `Thousands of high-paying jobs in the state could be at risk if the funding that had been expected from congestion pricing is not restored, a new report says.`\
 https://nytimes.com/2024/06/26/nyregion/canceling-congestion-pricing-could-kill-100000-new-york-jobs.html
