@@ -1,3 +1,19 @@
+**Republicans Rally Behind Trump After Conviction, Times/Siena Poll Finds**\
+`The national survey found that more than two thirds of voters said the outcome of Donald J. Trump’s Manhattan criminal case made no difference to their vote.`\
+https://nytimes.com/2024/06/26/us/politics/trump-poll-hush-money-conviction.html
+
+**Cross-Tabs: June 2024 Times/Siena Poll of the Likely Electorate**\
+`Results of a nationwide New York Times/Siena College poll conducted among 1,226 likely voters from June 20 to 25, 2024.`\
+https://nytimes.com/interactive/2024/06/26/us/elections/times-siena-poll-likely-electorate-crosstabs.html
+
+**Toplines: June 2024 Times/Siena Poll of Registered Voters Nationwide**\
+`Results of a nationwide New York Times/Siena College poll conducted among 1,226 registered voters from June 20 to 25, 2024.`\
+https://nytimes.com/interactive/2024/06/26/us/elections/times-siena-poll-toplines.html
+
+**Cross-Tabs: June 2024 Times/Siena Poll of Registered Voters Nationwide**\
+`Results of a nationwide New York Times/Siena College poll conducted among 1,226 registered voters from June 20 to 25, 2024.`\
+https://nytimes.com/interactive/2024/06/26/us/elections/times-siena-poll-registered-voter-crosstabs.html
+
 **Banks Could Weather Even Extreme Economic Tumult, Fed Finds**\
 `The Federal Reserve for the first time tested major banks’ ability to withstand crisis scenarios — and the largest U.S. lenders stood tall.`\
 https://nytimes.com/2024/06/26/business/bank-stress-tests.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/06/26/us/episcopal-church-bishop-sean-rowe.html
 **Brazil Becomes the Largest Nation to Decriminalize Marijuana**\
 `The country’s Supreme Court voted to remove criminal penalties for possession of up to 40 grams of marijuana.`\
 https://nytimes.com/2024/06/26/world/americas/brazil-marijuana-decriminalize-weed.html
-
-**For hundreds of thousands of Palestinians in Gaza, each day brings a struggle to find food.**\
-`By Iyad Abuheweila, Ameera Harouda and Hiba Yazbek`\
-https://nytimes.com/live/2024/06/26/world/israel-gaza-war-hamas/for-hundreds-of-thousands-of-palestinians-in-gaza-each-day-brings-a-struggle-to-find-food
-
-**What’s in Our Queue? Charlotte Day Wilson and More**\
-`I’m an economics and business reporter in the London newsroom of The New York Times. Here are five things that I’m enjoying.`\
-https://nytimes.com/interactive/2024/06/26/arts/editors-recommendations-charlotte.html
-
-**What We Know About the Karen Read Murder Trial**\
-`Ms. Read is accused of intentionally backing her vehicle into her boyfriend and then leaving him to die. The case has drawn outsize attention, fueled by her lawyers’ accusations of a police cover-up.`\
-https://nytimes.com/2024/06/26/us/karen-read-murder-trial.html
-
-**Popcast (Deluxe): Will There Ever Be Another Global Pop Icon?**\
-`In a moment of success for newcomers like Sabrina Carpenter and Chappell Roan, is there still a path to becoming a true cross-platform pop superstar?`\
-https://nytimes.com/2024/06/26/arts/music/sabrina-carpenter-chappell-roan-popcast.html
 
