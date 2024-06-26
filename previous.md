@@ -1,3 +1,7 @@
+**Boebert Wins a Crowded Primary After Swapping Districts in Colorado**\
+`The victory by the MAGA lawmaker in the conservative eastern portion of the state put her on track to another term in the House, after she abandoned a district in more politically competitive terrain.`\
+https://nytimes.com/2024/06/25/us/politics/lauren-boebert-primary-colorado.html
+
 **Here’s what to know about the primaries.**\
 `By Claire Fahy, Carl Hulse, Chris Cameron and Simon J. Levien`\
 https://nytimes.com/live/2024/06/25/us/biden-trump-election-debate/heres-what-to-know-about-the-primaries
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/opinion/jews-ivy-league-antisemitism.html
 **Judge Skeptical of Claim Search Was Mishandled in Trump Documents Case**\
 `Judge Aileen M. Cannon appeared to all but dismiss a request from former President Donald J. Trump’s legal team to suppress evidence from the search of Mar-a-Lago.`\
 https://nytimes.com/2024/06/25/us/politics/trump-documents-case.html
-
-**Man Who Attacked Cabdriver Sentenced to 10 Years for Manslaughter**\
-`Austin Amos assaulted a taxi driver in 2022 after he and a group of friends refused to pay the fare on a ride from Manhattan to Far Rockaway, Queens. Mr. Amos was 20 at the time.`\
-https://nytimes.com/2024/06/25/nyregion/taxi-driver-attack-sentence-nyc.html
 
