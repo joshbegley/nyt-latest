@@ -1,3 +1,7 @@
+**5 Takeaways From Jamaal Bowman’s Loss**\
+`The congressman, who lost to George Latimer, was the first “squad” member to fall, in a painful defeat for the Democratic left.`\
+https://nytimes.com/2024/06/25/nyregion/bowman-latimer-takeaways-primary.html
+
 **Bowman Falls to Latimer in a Loss for Progressive Democrats**\
 `Representative Jamaal Bowman of New York, a member of the House’s left-wing “squad,” was defeated by George Latimer in a race that exposed Democratic fissures.`\
 https://nytimes.com/2024/06/25/nyregion/bowman-latimer-house-new-york.html
