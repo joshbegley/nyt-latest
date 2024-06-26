@@ -1,3 +1,11 @@
+**Contraception Is Free by Law. So Why Are a Quarter of Women Still Paying for It?**\
+`Senator Bernie Sanders of Vermont has called on a government watchdog to investigate. Here’s what you need to know.`\
+https://nytimes.com/2024/06/26/well/live/birth-control-pills-contraception-cost.html
+
+**Rampant Identity Theft Is Taxing the I.R.S.**\
+`The National Taxpayer Advocate criticized the agency for being too slow to resolve cases, leaving victims waiting years for their refunds.`\
+https://nytimes.com/2024/06/26/us/politics/rampant-identity-theft-is-taxing-the-irs.html
+
 **J.D. Vance Says He’ll Be Disappointed if Trump Doesn’t Pick Him for V.P.**\
 `Donald J. Trump’s increasingly theatrical selection process is entering its final phase, with his leading candidates participating in a series of Fox News interviews to make their case.`\
 https://nytimes.com/2024/06/26/us/politics/jd-vance-says-hell-disappointed-if-trump-doesnt-pick-him-for-vp.html
