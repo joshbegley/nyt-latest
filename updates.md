@@ -1,3 +1,19 @@
+**Banks Could Weather Even Extreme Economic Tumult, Fed Finds**\
+`The Federal Reserve for the first time tested major banks’ ability to withstand crisis scenarios — and the largest U.S. lenders stood tall.`\
+https://nytimes.com/2024/06/26/business/bank-stress-tests.html
+
+**Vermont Man Arrested After Giving Trooper Middle Finger Gets $175,000**\
+`The state and the arresting officer settled a case with a man who argued that he had been exercising his First Amendment rights.`\
+https://nytimes.com/2024/06/26/us/vermont-profanity-arrest.html
+
+**The Vanishing Islands That Failed to Vanish**\
+`Low-lying tropical island nations were expected to be early victims of rising seas. But research tells a surprising story: Many islands are stable. Some have even grown.`\
+https://nytimes.com/interactive/2024/06/26/climate/maldives-islands-climate-change.html
+
+**Bolivia’s Military Accused of Coup Attempt**\
+`Members of the country’s military gathered outside the presidential palace on Wednesday, President Luis Arce said, an action that took the country by surprise.`\
+https://nytimes.com/2024/06/26/world/americas/bolivia-unrest-military.html
+
 **Bolivia’s Military Attempts a Coup**\
 `The coup attempt, which is not supported by any political faction, took the country by surprise.`\
 https://nytimes.com/2024/06/26/world/americas/bolivia-unrest-military.html
