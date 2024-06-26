@@ -1,3 +1,7 @@
+**Former President of Honduras Sentenced to 45 Years in Sweeping Drug Case**\
+`Juan Orlando Hernández connived with traffickers as his country became a base of operations for cocaine shipments to the United States.`\
+https://nytimes.com/2024/06/26/nyregion/honduras-juan-olando-hernando-sentenced-drug-case.html
+
 **Tom Prasada-Rao, Whose Song Elegized George Floyd, Dies at 66**\
 `His 2020 lament “$20 Bill” was covered by scores of his fellow artists and, a fellow musician said, might well be destined for the folk music canon.`\
 https://nytimes.com/2024/06/26/arts/music/tom-prasada-rao-dead.html
