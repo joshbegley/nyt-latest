@@ -1,3 +1,7 @@
+**Popcast (Deluxe): Will There Ever Be Another Global Pop Icon?**\
+`In a moment of success for newcomers like Sabrina Carpenter and Chappell Roan, is there still a path to becoming a true cross-platform pop superstar?`\
+https://nytimes.com/2024/06/26/arts/music/sabrina-carpenter-chappell-roan-popcast.html
+
 **Former President of Honduras Sentenced to 45 Years in Sweeping Drug Case**\
 `Juan Orlando Hernández connived with traffickers as his country became a base of operations for cocaine shipments to the United States.`\
 https://nytimes.com/2024/06/26/nyregion/honduras-juan-olando-hernando-sentenced-drug-case.html
