@@ -1,3 +1,7 @@
+**Five Charged With Smuggling Contraband Into Youth Lockup Awash in Knives**\
+`Court papers said the “youth development specialists” took more than $50,000 in bribes to allow in items like razor blades, marijuana, alcohol and prescription pills.`\
+https://nytimes.com/2024/06/26/nyregion/brooklyn-juvenile-detention-smuggling-bribes.html
+
 **Gena Rowlands Has Alzheimer’s Decades After ‘The Notebook’**\
 `Rowlands, 94, played an older woman with dementia in the 2004 movie directed by her son, Nick Cassavetes.`\
 https://nytimes.com/2024/06/26/arts/gena-rowlands-alzheimers-notebook.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/26/world/asia/evan-gershkovich-kenya-bolivia-asia.ht
 **Corruption Law Allows Gifts to State and Local Officials, Supreme Court Rules**\
 `The court, which has limited the sweep of several anti-corruption laws, distinguished after-the-fact rewards from before-the-fact bribes.`\
 https://nytimes.com/2024/06/26/us/politics/supreme-court-corruption-bribery.html
-
-**Outlier Poll Results Are Inevitable. They’re Also Sometimes Right.**\
-`The latest Times/Siena survey shows Trump up by six points among registered voters and three among likely voters.`\
-https://nytimes.com/2024/06/26/upshot/biden-trump-poll-outlier.html
 

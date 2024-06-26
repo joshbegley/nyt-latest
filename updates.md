@@ -1,3 +1,7 @@
+**Five Charged With Smuggling Contraband Into Youth Lockup Awash in Knives**\
+`Court papers said the “youth development specialists” took more than $50,000 in bribes to allow in items like razor blades, marijuana, alcohol and prescription pills.`\
+https://nytimes.com/2024/06/26/nyregion/brooklyn-juvenile-detention-smuggling-bribes.html
+
 **Gena Rowlands Has Alzheimer’s Decades After ‘The Notebook’**\
 `Rowlands, 94, played an older woman with dementia in the 2004 movie directed by her son, Nick Cassavetes.`\
 https://nytimes.com/2024/06/26/arts/gena-rowlands-alzheimers-notebook.html
