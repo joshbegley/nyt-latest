@@ -1,3 +1,7 @@
+**What We Know About the Karen Read Murder Trial**\
+`Ms. Read is accused of intentionally backing her vehicle into her boyfriend and then leaving him to die. The case has drawn outsize attention, fueled by her lawyers’ accusations of a police cover-up.`\
+https://nytimes.com/2024/06/26/us/karen-read-murder-trial.html
+
 **Popcast (Deluxe): Will There Ever Be Another Global Pop Icon?**\
 `In a moment of success for newcomers like Sabrina Carpenter and Chappell Roan, is there still a path to becoming a true cross-platform pop superstar?`\
 https://nytimes.com/2024/06/26/arts/music/sabrina-carpenter-chappell-roan-popcast.html

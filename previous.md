@@ -1,3 +1,7 @@
+**What We Know About the Karen Read Murder Trial**\
+`Ms. Read is accused of intentionally backing her vehicle into her boyfriend and then leaving him to die. The case has drawn outsize attention, fueled by her lawyers’ accusations of a police cover-up.`\
+https://nytimes.com/2024/06/26/us/karen-read-murder-trial.html
+
 **Popcast (Deluxe): Will There Ever Be Another Global Pop Icon?**\
 `In a moment of success for newcomers like Sabrina Carpenter and Chappell Roan, is there still a path to becoming a true cross-platform pop superstar?`\
 https://nytimes.com/2024/06/26/arts/music/sabrina-carpenter-chappell-roan-popcast.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/06/26/us/politics/moyle-idaho.html
 **Five Charged in the Case of a Juror and a Gift Bag Stuffed With $120,000**\
 `Federal prosecutors in Minneapolis said the charges stemmed from an attempt to bribe a juror in a scheme involving the embezzlement of food aid meant for children.`\
 https://nytimes.com/2024/06/26/us/bribery-charges-minnesota-juror.html
-
-**I.C.C. Convicts Senior Jihadist Police Leader of Atrocities in Timbuktu**\
-`The court said his crimes had involved overseeing public floggings, torture and arbitrary arrests during a jihadist takeover in northern Mali in 2012.`\
-https://nytimes.com/2024/06/26/world/africa/icc-mali-timbuktu-jihadist-convicted.html
 
