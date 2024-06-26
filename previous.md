@@ -1,3 +1,11 @@
+**Corrections: June 26, 2024**\
+`Corrections that appeared in print on Wednesday, June 26, 2024.`\
+https://nytimes.com/2024/06/25/pageoneplus/corrections-june-26-2024.html
+
+**Quotation of the Day: Fed Up With Hyper-Partisan Elections, Voters in 8 States Seek a Fix**\
+`Quotation of the Day for Wednesday, June 26, 2024.`\
+https://nytimes.com/2024/06/25/pageoneplus/quotation-of-the-day-fed-up-with-hyper-partisan-elections-voters-in-8-states-seek-a-fix.html
+
 **5 Takeaways From Jamaal Bowman’s Loss**\
 `The congressman, who lost to George Latimer, was the first “squad” member to fall, in a painful defeat for the Democratic left.`\
 https://nytimes.com/2024/06/25/nyregion/bowman-latimer-takeaways-primary.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/25/nyregion/bowman-latimer-house-new-york.html
 **Boebert Wins a Crowded Primary After Swapping Districts in Colorado**\
 `The victory by the MAGA lawmaker in the conservative eastern part of the state put her on track to another term in the House, after she abandoned a district in more politically competitive terrain.`\
 https://nytimes.com/2024/06/25/us/politics/lauren-boebert-primary-colorado.html
-
-**Here’s what to know about the primaries.**\
-`By Claire Fahy, Carl Hulse, Chris Cameron and Simon J. Levien`\
-https://nytimes.com/live/2024/06/25/us/biden-trump-election-debate/heres-what-to-know-about-the-primaries
-
-**At Least 11 Americans Among Those Dead in Hajj Pilgrimage to Saudi Arabia**\
-`The daughter of one Maryland couple was still searching for answers about her parents’ deaths. The State Department said it was possible that more deaths could be confirmed.`\
-https://nytimes.com/2024/06/25/us/american-heat-mecca-hajj-wurie.html
 

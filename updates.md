@@ -1,3 +1,11 @@
+**Corrections: June 26, 2024**\
+`Corrections that appeared in print on Wednesday, June 26, 2024.`\
+https://nytimes.com/2024/06/25/pageoneplus/corrections-june-26-2024.html
+
+**Quotation of the Day: Fed Up With Hyper-Partisan Elections, Voters in 8 States Seek a Fix**\
+`Quotation of the Day for Wednesday, June 26, 2024.`\
+https://nytimes.com/2024/06/25/pageoneplus/quotation-of-the-day-fed-up-with-hyper-partisan-elections-voters-in-8-states-seek-a-fix.html
+
 **5 Takeaways From Jamaal Bowman’s Loss**\
 `The congressman, who lost to George Latimer, was the first “squad” member to fall, in a painful defeat for the Democratic left.`\
 https://nytimes.com/2024/06/25/nyregion/bowman-latimer-takeaways-primary.html
