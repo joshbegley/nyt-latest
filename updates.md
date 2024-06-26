@@ -1,3 +1,7 @@
+**Plea Deal in Illinois Parade Shooting Falls Apart, Upsetting Victims’ Families**\
+`‘All I wanted was to be able to fully grieve my mom,’ one victim’s daughter said. The shooting at a Fourth of July parade two summers ago killed seven and wounded dozens more.`\
+https://nytimes.com/2024/06/26/us/highland-park-parade-shooting-plea-deal.html
+
 **Powered for Change: A New Path to Net Zero**\
 `Making meaningful progress toward a net-zero transition requires a new era of collaboration. Working together, industry leaders can flip a vicious cycle of inaction into a virtuous cycle of action.`\
 https://nytimes.com/paidpost/accenture-episode-39/powered-for-change-a-new-path-to-net-zero.html
