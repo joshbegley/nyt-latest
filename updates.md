@@ -1,3 +1,7 @@
+**A Development in the U.S. Labor Movement**\
+`Starbucks and its union are on track to reach a contract.`\
+https://nytimes.com/2024/06/26/briefing/starbucks-union-labor-contract.html
+
 **Tension and Tear Gas Linger in Kenya After Tax Protests Turn Deadly**\
 `Businesses were slowly reopening a day after the government deployed the military to quell the unrest, but the country remained on edge.`\
 https://nytimes.com/2024/06/26/world/africa/kenya-protests-taxes.html
