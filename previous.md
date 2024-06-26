@@ -1,3 +1,7 @@
+**Thursday Briefing: Evan Gershkovich’s Trial**\
+`Also, Kenya’s president shelved the tax bill.`\
+https://nytimes.com/2024/06/26/world/asia/evan-gershkovich-kenya-bolivia-asia.html
+
 **Corruption Law Allows Gifts to State and Local Officials, Supreme Court Rules**\
 `The court, which has limited the sweep of several anti-corruption laws, distinguished after-the-fact rewards from before-the-fact bribes.`\
 https://nytimes.com/2024/06/26/us/politics/supreme-court-corruption-bribery.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/06/26/us/elections/times-siena-poll-registe
 **Banks Could Weather Even Extreme Economic Tumult, Fed Finds**\
 `The Federal Reserve for the first time tested major banks’ ability to withstand crisis scenarios — and the largest U.S. lenders stood tall.`\
 https://nytimes.com/2024/06/26/business/bank-stress-tests.html
-
-**Vermont Man Arrested After Giving Trooper Middle Finger Gets $175,000**\
-`The state and the arresting officer settled a case with a man who argued that he had been exercising his First Amendment rights.`\
-https://nytimes.com/2024/06/26/us/vermont-profanity-arrest.html
 

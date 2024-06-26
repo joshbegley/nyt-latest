@@ -1,3 +1,7 @@
+**Thursday Briefing: Evan Gershkovich’s Trial**\
+`Also, Kenya’s president shelved the tax bill.`\
+https://nytimes.com/2024/06/26/world/asia/evan-gershkovich-kenya-bolivia-asia.html
+
 **Corruption Law Allows Gifts to State and Local Officials, Supreme Court Rules**\
 `The court, which has limited the sweep of several anti-corruption laws, distinguished after-the-fact rewards from before-the-fact bribes.`\
 https://nytimes.com/2024/06/26/us/politics/supreme-court-corruption-bribery.html
