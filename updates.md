@@ -1,3 +1,7 @@
+**Death Toll in Kenya Tax Protests Rises to at Least 23, Rights Groups Say**\
+`Over 300 people were injured in the violence, the state human rights agency said. Although businesses were slowly reopening after the unrest, the country remained on edge.`\
+https://nytimes.com/2024/06/26/world/africa/kenya-protests-taxes.html
+
 **They Thought They Owned Condos. They Never Got the Deeds.**\
 `A tight-knit immigrant community trusted a developer as one of their own. But he pocketed the money, according to the state attorney general’s office.`\
 https://nytimes.com/2024/06/26/realestate/they-thought-they-owned-condos-they-never-got-the-deeds.html

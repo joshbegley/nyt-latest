@@ -26,8 +26,8 @@ https://nytimes.com/2024/06/26/business/dealbook/ceos-trump-biden-silent.html
 `Starbucks and its union are on track to reach a contract.`\
 https://nytimes.com/2024/06/26/briefing/starbucks-union-labor-contract.html
 
-**Death Toll in Kenya Tax Protests Rises to at Least 22, State Agency Says**\
-`Over 300 people were injured in the violence, the state rights agency said. Although businesses were slowly reopening after the unrest, the country remained on edge.`\
+**Death Toll in Kenya Tax Protests Rises to at Least 23, Rights Groups Say**\
+`Over 300 people were injured in the violence, the state human rights agency said. Although businesses were slowly reopening after the unrest, the country remained on edge.`\
 https://nytimes.com/2024/06/26/world/africa/kenya-protests-taxes.html
 
 **Gershkovich Trial Begins, and Kenya Rocked by Protests**\
