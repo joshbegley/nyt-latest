@@ -1,3 +1,11 @@
+**Word of the Day: dignified**\
+`This word has appeared in 143 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/06/26/learning/word-of-the-day-dignified.html
+
+**In N.Y. Assembly Primaries, Incumbency Outweighs Political Differences**\
+`While many contested races had moderate and left-leaning Democrats squaring off, the deciding factor seemed to be the power of incumbency.`\
+https://nytimes.com/2024/06/26/nyregion/assembly-primary-ny.html
+
 **Sika Anoa’i, WWE Hall of Famer and Father of Roman Reigns, Is Dead**\
 `Sika Anoa’i was part of the superstar Wild Samoans tag team and a dynasty of Samoan wrestlers that includes today’s biggest star, his son Roman Reigns.`\
 https://nytimes.com/2024/06/26/sports/sika-anoai-wwe-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/26/us/pandemic-aid-recovery-schools.html
 **For American Brands Worried About China, Is India the Future?**\
 `As multinational retailers diminish their dependence on Chinese factories, some are shifting production to India.`\
 https://nytimes.com/2024/06/26/business/india-us-manufacturing.html
-
-**Former ‘Bob’s Burgers’ Actor to Plead Guilty in Jan. 6 Case**\
-`Jay Johnston, also known for his work on “Mr. Show with Bob and David,” was charged last year with participating in the riot at the Capitol. He is expected to plead guilty at a hearing on July 8.`\
-https://nytimes.com/2024/06/25/arts/television/jay-johnston-jan-6.html
-
-**Corrections: June 26, 2024**\
-`Corrections that appeared in print on Wednesday, June 26, 2024.`\
-https://nytimes.com/2024/06/25/pageoneplus/corrections-june-26-2024.html
 

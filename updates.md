@@ -1,3 +1,11 @@
+**Word of the Day: dignified**\
+`This word has appeared in 143 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/06/26/learning/word-of-the-day-dignified.html
+
+**In N.Y. Assembly Primaries, Incumbency Outweighs Political Differences**\
+`While many contested races had moderate and left-leaning Democrats squaring off, the deciding factor seemed to be the power of incumbency.`\
+https://nytimes.com/2024/06/26/nyregion/assembly-primary-ny.html
+
 **Sika Anoa’i, WWE Hall of Famer and Father of Roman Reigns, Is Dead**\
 `Sika Anoa’i was part of the superstar Wild Samoans tag team and a dynasty of Samoan wrestlers that includes today’s biggest star, his son Roman Reigns.`\
 https://nytimes.com/2024/06/26/sports/sika-anoai-wwe-dead.html

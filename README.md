@@ -1,3 +1,7 @@
+**Julian Assange Walks Free After Guilty Plea**\
+`After more than a decade of legal battles, the founder of Wikileaks left a courthouse in Saipan and boarded a plane home for Australia.`\
+https://nytimes.com/video/us/politics/100000009540705/assange-plea-deal-free.html
+
 **Word of the Day: dignified**\
 `This word has appeared in 143 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/06/26/learning/word-of-the-day-dignified.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/26/world/europe/russia-evan-gershkovich-trial.html
 **Schools Got a Record $190 Billion in Pandemic Aid. Did It Work?**\
 `Two new studies suggest that the largest single federal investment in U.S. schools improved student test scores, but only modestly.`\
 https://nytimes.com/2024/06/26/us/pandemic-aid-recovery-schools.html
-
-**For American Brands Worried About China, Is India the Future?**\
-`As multinational retailers diminish their dependence on Chinese factories, some are shifting production to India.`\
-https://nytimes.com/2024/06/26/business/india-us-manufacturing.html
 
