@@ -1,3 +1,7 @@
+**John Curtis, a Moderate House Republican, Wins Utah’s Senate Primary**\
+`Mr. Curtis has portrayed himself as a centrist workhorse in the image of the senator whose seat he is vying to fill: Mitt Romney.`\
+https://nytimes.com/live/2024/06/25/us/biden-trump-election-debate/john-curtis-a-moderate-house-republican-wins-utahs-senate-primary
+
 **Part of a Pecking Order?**\
 `Rebecca Goldstein’s puzzle is anything but pedestrian.`\
 https://nytimes.com/2024/06/25/crosswords/daily-puzzle-2024-06-26.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/health/transgender-minors-surgeries.html
 **Father Who Drove Family Off Cliff Will Get Treatment Instead of Trial, Court Rules**\
 `Dharmesh A. Patel pleaded not guilty to three counts of attempted murder. Last week, he was found eligible for a mental health diversion, according to court records.`\
 https://nytimes.com/2024/06/25/us/california-doctor-family-cliff-trial.html
-
-**How the Midwest Floods Nearly Took Out a Century-Old Dam**\
-`Many American dams are aging and in need of serious repairs. Climate change only makes the problem more urgent.`\
-https://nytimes.com/2024/06/25/us/minnesota-dam-flooding.html
 
