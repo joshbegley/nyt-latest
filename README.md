@@ -1,3 +1,7 @@
+**Evan Gershkovich Appears in Russian Court**\
+`The Wall Street Journal reporter stood in a glass cage and nodded at people in the courtroom as his espionage trial began in Russia.`\
+https://nytimes.com/video/world/europe/100000009540741/russia-evan-gershkovich-trial.html
+
 **Rogue to Victim: What Australia Sees in Julian Assange**\
 `Broad support for his release seems to have grown more out of resentment of his treatment by the U.S. justice system than concerns about press protections.`\
 https://nytimes.com/2024/06/26/world/australia/assange-justice.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/26/briefing/kenya-nairobi-protests.html
 **Guess Who’s Back: A Trump Ally and Brexiteer Disrupts the U.K., Again**\
 `With his populist, anti-immigration campaign, Nigel Farage is once more shaking up Britain’s politics. Can he finally win a seat in the national Parliament?`\
 https://nytimes.com/2024/06/26/world/europe/nigel-farage-uk-politics.html
-
-**Russia to Start Secret Trial of U.S. Reporter Accused of Espionage**\
-`Evan Gershkovich of The Wall Street Journal has endured 15 months in prison by reading letters and Russian classics, while the authorities have not publicly offered any evidence that he was a spy.`\
-https://nytimes.com/2024/06/26/world/europe/russia-evan-gershkovich-trial.html
 
