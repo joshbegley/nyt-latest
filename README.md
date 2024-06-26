@@ -1,3 +1,7 @@
+**Rampant Identity Theft Is Taxing the I.R.S.**\
+`The National Taxpayer Advocate criticized the agency for being too slow to resolve cases, leaving victims waiting years for their refunds.`\
+https://nytimes.com/2024/06/26/us/politics/rampant-identity-theft-is-taxing-the-irs.html
+
 **J.D. Vance Says He’ll Be Disappointed if Trump Doesn’t Pick Him for V.P.**\
 `Donald J. Trump’s increasingly theatrical selection process is entering its final phase, with his leading candidates participating in a series of Fox News interviews to make their case.`\
 https://nytimes.com/2024/06/26/us/politics/jd-vance-says-hell-disappointed-if-trump-doesnt-pick-him-for-vp.html
@@ -30,11 +34,7 @@ https://nytimes.com/2024/06/26/business/dealbook/ceos-trump-biden-silent.html
 `Starbucks and its union are on track to reach a contract.`\
 https://nytimes.com/2024/06/26/briefing/starbucks-union-labor-contract.html
 
-**Death Toll in Kenya Tax Protests Rises to at Least 23, Rights Groups Say**\
-`Over 300 people were injured in the violence, the state human rights agency said. Although businesses were slowly reopening after the unrest, the country remained on edge.`\
+**In Surprise Move, Kenya’s President Rejects Tax Bill That Prompted Deadly Protests**\
+`At least 23 people were killed and more than 300 people were injured, a human rights group said, in demonstrations against a finance bill that President William Ruto had championed to avoid default.`\
 https://nytimes.com/2024/06/26/world/africa/kenya-protests-taxes.html
-
-**Gershkovich Trial Begins, and Kenya Rocked by Protests**\
-`Plus, a stinging primary defeat for progressives.`\
-https://nytimes.com/2024/06/26/podcasts/gershkovich-trial-kenya-protests.html
 
