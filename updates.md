@@ -1,3 +1,11 @@
+**Bolivia’s Military Attempts a Coup**\
+`The coup, which is not supported by any political faction or the Bolivian public, took the country by surprise.`\
+https://nytimes.com/2024/06/26/world/americas/bolivia-unrest-military.html
+
+**The Episcopal Church Has Elected Its Youngest Leader in Centuries**\
+`Bishop Sean Rowe, 49, called for the church to be resilient heading into what he described as an “existential crisis” caused by a changing world.`\
+https://nytimes.com/2024/06/26/us/episcopal-church-bishop-sean-rowe.html
+
 **Brazil Becomes the Largest Nation to Decriminalize Marijuana**\
 `The country’s Supreme Court voted to remove criminal penalties for possession of up to 40 grams of marijuana.`\
 https://nytimes.com/2024/06/26/world/americas/brazil-marijuana-decriminalize-weed.html
