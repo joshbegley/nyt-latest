@@ -1,3 +1,7 @@
+**Gena Rowlands Has Alzheimer’s Decades After ‘The Notebook’**\
+`Rowlands, 94, played an older woman with dementia in the 2004 movie directed by her son, Nick Cassavetes.`\
+https://nytimes.com/2024/06/26/arts/gena-rowlands-alzheimers-notebook.html
+
 **Justices Appear to Mistakenly Reveal a Key Abortion Ruling**\
 `Also, a new poll on the eve of the debate. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/06/26/briefing/supreme-court-idaho-abortion-biden-trump-poll.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/26/us/politics/supreme-court-corruption-bribery.html
 **Outlier Poll Results Are Inevitable. They’re Also Sometimes Right.**\
 `The latest Times/Siena survey shows Trump up by six points among registered voters and three among likely voters.`\
 https://nytimes.com/2024/06/26/upshot/biden-trump-poll-outlier.html
-
-**Federal Officials Revise Recommendations for R.S.V. Vaccine**\
-`Among Americans aged 60 to 74, only those with certain health conditions need to receive the shots, the agency concluded.`\
-https://nytimes.com/2024/06/26/health/rsv-vaccine-cdc.html
 

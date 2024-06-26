@@ -1,3 +1,7 @@
+**Gena Rowlands Has Alzheimer’s Decades After ‘The Notebook’**\
+`Rowlands, 94, played an older woman with dementia in the 2004 movie directed by her son, Nick Cassavetes.`\
+https://nytimes.com/2024/06/26/arts/gena-rowlands-alzheimers-notebook.html
+
 **Justices Appear to Mistakenly Reveal a Key Abortion Ruling**\
 `Also, a new poll on the eve of the debate. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/06/26/briefing/supreme-court-idaho-abortion-biden-trump-poll.html
