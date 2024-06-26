@@ -1,3 +1,7 @@
+**China’s Anguished Debate: Do Its Children Have a Crime Problem?**\
+`China has been considered relatively progressive on juvenile justice. But several high-profile killings have prompted calls for the law to come down more harshly on minors.`\
+https://nytimes.com/2024/06/26/world/asia/china-children-crimes.html
+
 **Wednesday Briefing**\
 `Anti-tax protests tore through Kenya’s capital.`\
 https://nytimes.com/2024/06/26/briefing/kenya-nairobi-protests.html
