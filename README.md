@@ -1,3 +1,7 @@
+**Contraception Is Free by Law. So Why Are a Quarter of Women Still Paying for It?**\
+`Senator Bernie Sanders of Vermont has called on a government watchdog to investigate. Here’s what you need to know.`\
+https://nytimes.com/2024/06/26/well/live/birth-control-pills-contraception-cost.html
+
 **Rampant Identity Theft Is Taxing the I.R.S.**\
 `The National Taxpayer Advocate criticized the agency for being too slow to resolve cases, leaving victims waiting years for their refunds.`\
 https://nytimes.com/2024/06/26/us/politics/rampant-identity-theft-is-taxing-the-irs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/26/business/dealbook/ceos-trump-biden-silent.html
 **A Development in the U.S. Labor Movement**\
 `Starbucks and its union are on track to reach a contract.`\
 https://nytimes.com/2024/06/26/briefing/starbucks-union-labor-contract.html
-
-**In Surprise Move, Kenya’s President Rejects Tax Bill That Prompted Deadly Protests**\
-`At least 23 people were killed and more than 300 people were injured, a human rights group said, in demonstrations against a finance bill that President William Ruto had championed to avoid default.`\
-https://nytimes.com/2024/06/26/world/africa/kenya-protests-taxes.html
 
