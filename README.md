@@ -18,7 +18,7 @@ https://nytimes.com/2024/06/25/crosswords/daily-puzzle-2024-06-26.html
 `Mr. Avlon, an author and former CNN personality, defeated Nancy Goroff, a retired chemistry professor, in a race in eastern Long Island.`\
 https://nytimes.com/2024/06/25/nyregion/avlon-goroff-primary.html
 
-**Bowman Falls to Latimer in House Primary in New York**\
+**Bowman Falls to Latimer in a Loss for Progressive Democrats**\
 `Representative Jamaal Bowman of New York, a member of the House’s left-wing “squad,” was defeated by George Latimer in a race that exposed Democratic fissures.`\
 https://nytimes.com/2024/06/25/nyregion/bowman-latimer-house-new-york.html
 
