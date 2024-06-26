@@ -1,3 +1,7 @@
+**Now Narrating the Olympics: A.I.-Al Michaels**\
+`NBC will offer a customized, daily highlight reel with A.I.-generated narration that sounds like the longtime broadcaster.`\
+https://nytimes.com/2024/06/26/business/media/nbc-olympics-ai.html
+
 **CNN releases the first image of a sleek presidential debate stage.**\
 `By Michael M. Grynbaum`\
 https://nytimes.com/live/2024/06/26/us/biden-trump-election-debate/cnn-presidential-debate-stage

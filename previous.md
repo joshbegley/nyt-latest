@@ -1,3 +1,7 @@
+**Now Narrating the Olympics: A.I.-Al Michaels**\
+`NBC will offer a customized, daily highlight reel with A.I.-generated narration that sounds like the longtime broadcaster.`\
+https://nytimes.com/2024/06/26/business/media/nbc-olympics-ai.html
+
 **CNN releases the first image of a sleek presidential debate stage.**\
 `By Michael M. Grynbaum`\
 https://nytimes.com/live/2024/06/26/us/biden-trump-election-debate/cnn-presidential-debate-stage
@@ -33,8 +37,4 @@ https://nytimes.com/paidpost/accenture-episode-39/powered-for-change-a-new-path-
 **In Texas, Infant Mortality Rose After Abortion Ban**\
 `A study points to fatal birth defects as a driver in the increase in infant deaths.`\
 https://nytimes.com/2024/06/26/upshot/in-texas-infant-mortality-rose-after-abortion-ban.html
-
-**The Evolution of Biden’s Debate Style**\
-`The matchup between President Biden and former President Donald J. Trump could be a make-or-break moment in the race for the White House.`\
-https://nytimes.com/interactive/2024/06/26/us/biden-debate-style.html
 
