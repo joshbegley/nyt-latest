@@ -1,3 +1,27 @@
+**What Joe Biden Could Learn From Betty White About Aging in Public**\
+`There’s a difference between being an elder statesman and an elderly one.`\
+https://nytimes.com/2024/06/26/opinion/biden-trump-tv-debate.html
+
+**Which V.P. Pick Will Help Trump Win? Four Columnists Rate the Field.**\
+`We take a look at J.D. Vance, Marco Rubio, Doug Burgum, Tim Scott, Elise Stefanik and more possible Republican running mates.`\
+https://nytimes.com/2024/06/26/opinion/trump-vp-pick.html
+
+**The World Turns Its Eyes From the Suffering in Sudan**\
+`What happened to the money — and the attention — pledged by the international community?`\
+https://nytimes.com/live/2024/06/25/opinion/thepoint/sudan-civil-war-famine
+
+**Biden Expected to Pardon Veterans Convicted of Having Gay Sex**\
+`The president’s proclamation would grant clemency to around 2,000 people charged between 1951 and 2013 under a military code that outlawed the behavior.`\
+https://nytimes.com/2024/06/26/us/politics/biden-pardon-veterans-gay-sex.html
+
+**Texas Execution Centers on a Jury’s Assessment of ‘Future Dangerousness’**\
+`Ramiro Gonzales, who killed a woman in 2001, was set to be executed on Wednesday, though a psychiatrist who suggested he was likely to reoffend has since changed his opinion.`\
+https://nytimes.com/2024/06/26/us/texas-execution-ramiro-gonzalez.html
+
+**With Jamaal Bowman’s Loss, the Left Is on the Defensive**\
+`Mr. Bowman’s win in 2020 seemed to herald an ascendant progressive movement. In 2024, the center is regaining power.`\
+https://nytimes.com/2024/06/26/nyregion/jamaal-bowman-squad-left.html
+
 **The Supreme Court Steps Back From the Edge**\
 `It’s impossible to see the court’s decision upholding a law disarming domestic abusers as anything but an exercise in institutional self-preservation.`\
 https://nytimes.com/2024/06/26/opinion/guns-supreme-court.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/06/26/opinion/democrats-republicans-coalitions-electora
 **How Can Biden Win the Debate? Trump? Five Tips for Each Candidate.**\
 `Two political experts weigh in on what it might take to succeed.`\
 https://nytimes.com/2024/06/26/opinion/trump-biden-debate.html
-
-**50 Years Ago, Philippe Petit Was a ‘Dot in the Sky’**\
-`The man who walked a high wire between the World Trade Center towers is now 75.`\
-https://nytimes.com/2024/06/26/nyregion/philippe-petit-world-trade-center.html
-
-**What to Know About Alec Baldwin’s Long Journey to Court**\
-`It’s been a challenge to follow the case. Here are its many twists and turns.`\
-https://nytimes.com/2024/06/26/magazine/what-to-know-alec-baldwin-rust-shooting.html
-
-**Celine Dion Can Only Be Herself**\
-`The singer’s over-the-top sincerity and expressiveness were once seen as irredeemably uncool. In the new documentary “I Am: Celine Dion,” they have become her superpowers.`\
-https://nytimes.com/2024/06/26/arts/music/celine-dion-documentary.html
-
-**The Long, Strange Road to Alec Baldwin’s Manslaughter Trial**\
-`After an accidental on-set shooting death — and two years of bitter legal combat — the movie star is about to have his day in court.`\
-https://nytimes.com/2024/06/26/magazine/alec-baldwin-new-mexico-trial.html
-
-**My First Trip to Norway, With A.I. as a Guide**\
-`Can artificial intelligence devise a bucket-list vacation that checks all the boxes: culture, nature, hotels and transportation? Our reporter put three virtual assistants to the test.`\
-https://nytimes.com/2024/06/26/travel/norway-artficial-intelligence-planners.html
-
-**I Study Homelessness. I Wish More Places Looked Like This Shelter.**\
-`Matthew Desmond takes you to a shelter designed with residents in mind.`\
-https://nytimes.com/2024/06/26/opinion/homeless-shelters-solution.html
 
