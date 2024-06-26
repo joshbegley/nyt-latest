@@ -1,3 +1,7 @@
+**‘Woolf Works’ Review: A Literary Ballet’s Missteps**\
+`Wayne McGregor’s 2015 work, making its New York debut with American Ballet Theater, fails to make dance poetry of Virginia Woolf’s novels.`\
+https://nytimes.com/2024/06/26/arts/dance/review-woolf-works-mcgregor-american-ballet-theater.html
+
 **How Ocean Warming Is Warping the World**\
 `The effects of ocean warming are vast, but often invisible.`\
 https://nytimes.com/2024/06/26/opinion/global-warming-ocean-life.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/26/world/europe/nato-ukraine-washington-membership-s
 **If You Give a Frog a Sauna, It Might Fight Off a Deadly Fungus**\
 `A fatal fungal disease has devastated the world’s amphibians. But the fungus has a vulnerability: It cannot tolerate heat.`\
 https://nytimes.com/2024/06/26/science/frogs-amphibians-chytrid-fungus.html
-
-**Dreamy, Creamy Coconut-Lime Rice With Peanuts**\
-`For when you want the lightness of a salad but the comfort carb-iness of rice.`\
-https://nytimes.com/2024/06/26/dining/dreamy-creamy-coconut-lime-rice-with-peanuts.html
 
