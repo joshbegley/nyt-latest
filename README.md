@@ -1,3 +1,7 @@
+**Bolivia’s Military Attempts a Coup**\
+`The coup, which is not supported by any political faction or the Bolivian public, took the country by surprise.`\
+https://nytimes.com/2024/06/26/world/americas/bolivia-unrest-military.html
+
 **The Episcopal Church Has Elected Its Youngest Leader in Centuries**\
 `Bishop Sean Rowe, 49, called for the church to be resilient heading into what he described as an “existential crisis” caused by a changing world.`\
 https://nytimes.com/2024/06/26/us/episcopal-church-bishop-sean-rowe.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/26/arts/music/tom-prasada-rao-dead.html
 **In South Carolina, 3 G.O.P. Senators Fought an Abortion Ban. They Lost Their Races.**\
 `The Republican women in the group of five “Sister Senators” faced primary challenges who support a near-total ban.`\
 https://nytimes.com/2024/06/26/us/gop-senators-sc-abortion-ban-primary.html
-
-**Marilyn Monroe’s House Is Made a Los Angeles Landmark in Council Vote**\
-`The historical designation came after a bitter battle between the city and the homeowners who had planned to demolish the home. Neighborhood associations also opposed the move.`\
-https://nytimes.com/2024/06/26/us/marilyn-monroe-house-los-angeles.html
 
