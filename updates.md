@@ -1,3 +1,7 @@
+**Julian Assange Walks Free After Guilty Plea**\
+`After more than a decade of legal battles, the founder of Wikileaks left a courthouse in Saipan and boarded a plane home for Australia.`\
+https://nytimes.com/video/us/politics/100000009540705/assange-plea-deal-free.html
+
 **Word of the Day: dignified**\
 `This word has appeared in 143 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/06/26/learning/word-of-the-day-dignified.html
