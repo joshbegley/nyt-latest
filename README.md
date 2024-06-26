@@ -1,33 +1,40 @@
-**Mark Rutte Moves From Leading Netherlands to Heading NATO**\
-`Mr. Rutte, who served as the Dutch prime minister for nearly 14 years, has been a harsh critic of Russia’s president, Vladimir V. Putin, and a strong supporter of Ukraine.`\
-https://nytimes.com/2024/06/26/world/europe/mark-rutte-nato-secretary-general.html
+**The Supreme Court Steps Back From the Edge**\
+`It’s impossible to see the court’s decision upholding a law disarming domestic abusers as anything but an exercise in institutional self-preservation.`\
+https://nytimes.com/2024/06/26/opinion/guns-supreme-court.html
 
-**Where Does Chanel Go From Here?**\
-`It’s between designers, and at a crossroad.`\
-https://nytimes.com/2024/06/26/style/chanel-couture.html
+**Joe Biden: The Old-School Politician in a New-School Era**\
+`After more than half a century in Washington, President Biden has learned to make deals and work across the aisle. But that instinct is rarely rewarded in today’s political climate.`\
+https://nytimes.com/2024/06/26/us/politics/joe-biden-career-debate.html
 
-**Canceling Congestion Pricing Could Kill 100,000 New York Jobs**\
-`Thousands of high-paying jobs in the state could be at risk if the funding that had been expected from congestion pricing is not restored, a new report says.`\
-https://nytimes.com/2024/06/26/nyregion/canceling-congestion-pricing-could-kill-100000-new-york-jobs.html
+**The Ground Is Shifting Under Biden and Trump**\
+`Both parties are changing shape. What should they do about it?`\
+https://nytimes.com/2024/06/26/opinion/democrats-republicans-coalitions-electorate.html
 
-**A Quiet Morning, a Sudden Fire and a Feel-Good New York Story**\
-`Michael Wilson, who writes about crime for the Metro desk, reported on a fire at a Manhattan cafe that could have been ruinous — had it not been for a passerby in a recycling truck.`\
-https://nytimes.com/2024/06/26/insider/greenwich-village-fire.html
+**How Can Biden Win the Debate? Trump? Five Tips for Each Candidate.**\
+`Two political experts weigh in on what it might take to succeed.`\
+https://nytimes.com/2024/06/26/opinion/trump-biden-debate.html
 
-**How the War in Gaza Disrupted an Elite Private School**\
-`The Little Red School House and Elisabeth Irwin High School, like similar institutions across the city, was consumed by strife over how to manage education about the conflict.`\
-https://nytimes.com/2024/06/26/nyregion/new-york-private-schools-israel-gaza.html
+**50 Years Ago, Philippe Petit Was a ‘Dot in the Sky’**\
+`The man who walked a high wire between the World Trade Center towers is now 75.`\
+https://nytimes.com/2024/06/26/nyregion/philippe-petit-world-trade-center.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/06/26/crosswords/spelling-bee-forum.html
+**What to Know About Alec Baldwin’s Long Journey to Court**\
+`It’s been a challenge to follow the case. Here are its many twists and turns.`\
+https://nytimes.com/2024/06/26/magazine/what-to-know-alec-baldwin-rust-shooting.html
 
-**A U.N. official called on Israel to offer more protection for aid workers, as hunger experts warned that Gaza was at high risk of famine.**\
-`By Ephrat Livni and Anjana Sankar`\
-https://nytimes.com/live/2024/06/26/world/israel-gaza-war-hamas/un-israel-aid-gaza
+**Celine Dion Can Only Be Herself**\
+`The singer’s over-the-top sincerity and expressiveness were once seen as irredeemably uncool. In the new documentary “I Am: Celine Dion,” they have become her superpowers.`\
+https://nytimes.com/2024/06/26/arts/music/celine-dion-documentary.html
 
-**The U.S. imposes new sanctions to cut off funding to Iran-backed militant groups**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/06/26/world/israel-gaza-war-hamas/us-sanctions-iran-backed-groups
+**The Long, Strange Road to Alec Baldwin’s Manslaughter Trial**\
+`After an accidental on-set shooting death — and two years of bitter legal combat — the movie star is about to have his day in court.`\
+https://nytimes.com/2024/06/26/magazine/alec-baldwin-new-mexico-trial.html
 
-**A famine warning for Gaza renews calls to remove restrictions on food shipments, and other news.**\
+**My First Trip to Norway, With A.I. as a Guide**\
+`Can artificial intelligence devise a bucket-list vacation that checks all the boxes: culture, nature, hotels and transportation? Our reporter put three virtual assistants to the test.`\
+https://nytimes.com/2024/06/26/travel/norway-artficial-intelligence-planners.html
+
+**I Study Homelessness. I Wish More Places Looked Like This Shelter.**\
+`Matthew Desmond takes you to a shelter designed with residents in mind.`\
+https://nytimes.com/2024/06/26/opinion/homeless-shelters-solution.html
+
