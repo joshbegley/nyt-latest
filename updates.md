@@ -1,3 +1,11 @@
+**President Biden and Donald Trump, Some Tough Questions for Each of You**\
+`Where would each of the candidates lead us — or drag us — on foreign policy issues convulsing the world?`\
+https://nytimes.com/2024/06/26/opinion/biden-trump-debate-questions.html
+
+**Opposing Visions of a New South**\
+`While Maryland embraces egalitarianism, Louisiana veers toward Christian nationalism.`\
+https://nytimes.com/2024/06/26/opinion/wes-moore-jeff-landry-maryland-louisiana.html
+
 **Kaz Hosaka, 65, Dies; Led Two Poodles to Westminster Glory**\
 `He began handling dogs in his native Japan and then became a poodle specialist, leading Spice and Sage to Best in Show victories.`\
 https://nytimes.com/2024/06/26/sports/kaz-hosaka-dead.html
