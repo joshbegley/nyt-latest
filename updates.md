@@ -1,3 +1,7 @@
+**New Pro-Trump Super PAC Quietly Spends Millions on G.O.P. Ground Game**\
+`The group, America PAC, is preparing what appears to be a well-funded push to encourage Republican-leaning voters to cast early or absentee ballots.`\
+https://nytimes.com/2024/06/26/us/politics/trump-gop-voting.html
+
 **Black Shirts and Banned Flags: Ultras Push Politics at Euro 2024**\
 `Hard-core fan groups, embracing a strong nationalistic streak, have provoked pushback from soccer’s authorities at the European Championship.`\
 https://nytimes.com/2024/06/26/world/europe/euros-ultras-hungary-carpathian-brigade.html
