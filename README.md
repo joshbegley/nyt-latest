@@ -1,3 +1,7 @@
+**Kaz Hosaka, 65, Dies; Led Two Poodles to Westminster Glory**\
+`He began handling dogs in his native Japan and then became a poodle specialist, leading Spice and Sage to Best in Show victories.`\
+https://nytimes.com/2024/06/26/sports/kaz-hosaka-dead.html
+
 **Idaho Women Appear to Get a Reprieve on Abortion, for Now**\
 `The Supreme Court seems likely to dismiss a ban on emergency abortions, but the issue is far from settled.`\
 https://nytimes.com/live/2024/06/25/opinion/thepoint/idaho-abortions-trump-biden
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/26/us/christopher-taylor-charges-austin-police.html
 **Russell Morash, ‘This Old House’ and ‘The French Chef’ Producer, Dies at 88**\
 `Hailed as a pioneer of D.I.Y. programming, he oversaw groundbreaking how-to shows on public television in the days before HGTV and YouTube.`\
 https://nytimes.com/2024/06/26/arts/television/russell-morash-dead.html
-
-**Thursday Briefing: Evan Gershkovich’s Trial**\
-`Also, Kenya’s president shelved the tax bill.`\
-https://nytimes.com/2024/06/26/world/asia/evan-gershkovich-kenya-bolivia-asia.html
 
