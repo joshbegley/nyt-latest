@@ -1,3 +1,15 @@
+**Harvard Reports Find Climate of Bias for Both Jewish and Muslim Groups**\
+`In preliminary reports, task forces on antisemitism and anti-Muslim bias urged the university to take steps to address the discrimination on campus.`\
+https://nytimes.com/2024/06/26/us/harvard-antisemitism-muslim-bias.html
+
+**Supreme Court Appears Poised to Allow, for Now, Emergency Abortions in Idaho**\
+`According to Bloomberg News, a document posted briefly to the court’s website suggested a majority of the court would let a lower-court ruling stand, allowing access to emergency abortions in Idaho, despite a strict state ban.`\
+https://nytimes.com/2024/06/26/us/politics/supreme-court-abortion-idaho.html
+
+**Congestion Pricing Delay Will Stop Billions in Subway Upgrades**\
+`The board of the Metropolitan Transportation Authority was presented with drastic cuts to the transit system’s capital plan caused by Gov. Kathy Hochul’s decision to halt the tolling program.`\
+https://nytimes.com/2024/06/26/nyregion/nyc-congestion-pricing-mta.html
+
 **An Alabama Town’s New Mayor Was Locked Out. 3 Years Later, He Will Return.**\
 `Newbern, Ala., had not held elections in 50 years — until Patrick Braxton ran for office. But when Mr. Braxton won, he was blocked from carrying out his duties, he said in a lawsuit.`\
 https://nytimes.com/2024/06/26/us/alabama-mayor-patrick-braxton-settlement.html
