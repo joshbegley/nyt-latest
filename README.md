@@ -1,3 +1,7 @@
+**Black Shirts and Banned Flags: Ultras Push Politics at Euro 2024**\
+`Hard-core fan groups, embracing a strong nationalistic streak, have provoked pushback from soccer’s authorities at the European Championship.`\
+https://nytimes.com/2024/06/26/world/europe/euros-ultras-hungary-carpathian-brigade.html
+
 **Is It OK to Police My Patient’s Financial Choices?**\
 `The magazine’s Ethicist columnist on a physician’s bedside manner — and the difference between justifiable concern and judgment.`\
 https://nytimes.com/2024/06/26/magazine/plastic-surgery-cancer-doctor-ethics.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/26/us/politics/supreme-court-biden-free-speech.html
 **Contraception Is Free by Law. So Why Are a Quarter of Women Still Paying for It?**\
 `Senator Bernie Sanders of Vermont has called on a government watchdog to investigate. Here’s what you need to know.`\
 https://nytimes.com/2024/06/26/well/live/birth-control-pills-contraception-cost.html
-
-**Rampant Identity Theft Is Taxing the I.R.S.**\
-`The National Taxpayer Advocate criticized the agency for being too slow to resolve cases, leaving victims waiting years for their refunds.`\
-https://nytimes.com/2024/06/26/us/politics/rampant-identity-theft-is-taxing-the-irs.html
 
