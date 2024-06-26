@@ -1,3 +1,7 @@
+**Marilyn Monroe’s House Is Made a Los Angeles Landmark in Council Vote**\
+`The historical designation came after a bitter battle between the city and the homeowners who had planned to demolish the home. Neighborhood associations also opposed the move.`\
+https://nytimes.com/2024/06/26/us/marilyn-monroe-house-los-angeles.html
+
 **San Diego Zoo to Receive 2 Giant Pandas From China**\
 `The pandas, Yun Chuan and Xin Bao, will be the first to enter the United States in 21 years, the San Diego Zoo said.`\
 https://nytimes.com/2024/06/26/us/san-diego-zoo-giant-pandas-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/26/us/politics/presidential-debates-key-moments.html
 **Now Narrating the Olympics: A.I.-Al Michaels**\
 `NBC will offer a customized, daily highlight reel with A.I.-generated narration that sounds like the longtime broadcaster.`\
 https://nytimes.com/2024/06/26/business/media/nbc-olympics-ai.html
-
-**CNN releases the first image of a sleek presidential debate stage.**\
-`By Michael M. Grynbaum`\
-https://nytimes.com/live/2024/06/26/us/biden-trump-election-debate/cnn-presidential-debate-stage
 
