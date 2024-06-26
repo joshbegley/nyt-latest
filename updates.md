@@ -1,4 +1,8 @@
 **Boebert Wins a Crowded Primary After Swapping Districts in Colorado**\
+`The victory by the MAGA lawmaker in the conservative eastern part of the state put her on track to another term in the House, after she abandoned a district in more politically competitive terrain.`\
+https://nytimes.com/2024/06/25/us/politics/lauren-boebert-primary-colorado.html
+
+**Boebert Wins a Crowded Primary After Swapping Districts in Colorado**\
 `The victory by the MAGA lawmaker in the conservative eastern portion of the state put her on track to another term in the House, after she abandoned a district in more politically competitive terrain.`\
 https://nytimes.com/2024/06/25/us/politics/lauren-boebert-primary-colorado.html
 
