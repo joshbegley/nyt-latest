@@ -1,3 +1,7 @@
+**Popcast (Deluxe): Will There Ever Be Another Global Pop Icon?**\
+`In a moment of success for newcomers like Sabrina Carpenter and Chappell Roan, is there still a path to becoming a true cross-platform pop superstar?`\
+https://nytimes.com/2024/06/26/arts/music/sabrina-carpenter-chappell-roan-popcast.html
+
 **Former President of Honduras Sentenced to 45 Years in Sweeping Drug Case**\
 `Juan Orlando Hernández connived with traffickers as his country became a base of operations for cocaine shipments to the United States.`\
 https://nytimes.com/2024/06/26/nyregion/honduras-juan-olando-hernando-sentenced-drug-case.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/26/us/bribery-charges-minnesota-juror.html
 **I.C.C. Convicts Senior Jihadist Police Leader of Atrocities in Timbuktu**\
 `The court said his crimes had involved overseeing public floggings, torture and arbitrary arrests during a jihadist takeover in northern Mali in 2012.`\
 https://nytimes.com/2024/06/26/world/africa/icc-mali-timbuktu-jihadist-convicted.html
-
-**‘Fahrenheit 9/11’ at 20: Revisiting the Fear and Anger**\
-`Michael Moore’s hit documentary isn’t a prosecutor’s brief but a political and emotional appeal, rooted in the ways in which the country’s burdens are unequally borne.`\
-https://nytimes.com/2024/06/26/movies/fahrenheit-9-11-anniversary.html
 
