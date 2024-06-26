@@ -1,3 +1,7 @@
+**Gershkovich Trial Begins, and Kenya Rocked by Protests**\
+`Plus, a stinging primary defeat for progressives.`\
+https://nytimes.com/2024/06/26/podcasts/gershkovich-trial-kenya-protests.html
+
 **France’s Far Right at the Gates of Power**\
 `After a big loss in voting for the European Parliament, President Emmanuel Macron has gambled on new elections in France.`\
 https://nytimes.com/2024/06/26/podcasts/the-daily/france-elections.html
