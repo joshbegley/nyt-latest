@@ -1,4 +1,4 @@
-**Bowman Falls in House Primary, Overtaken by Flood of Pro-Israel Money**\
+**Bowman Falls to Latimer in House Primary in New York**\
 `Representative Jamaal Bowman of New York, a member of the House’s left-wing “squad,” was defeated by George Latimer in a race that exposed Democratic fissures.`\
 https://nytimes.com/2024/06/25/nyregion/bowman-latimer-house-new-york.html
 
