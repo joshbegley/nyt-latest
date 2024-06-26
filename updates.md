@@ -1,3 +1,7 @@
+**3 Simple Ways to Test Your Fitness**\
+`Try these tests to evaluate your strength and cardiovascular fitness.`\
+https://nytimes.com/2024/06/26/well/move/fitness-test-exercises.html
+
 **Keith Robinson Doesn’t Want Audiences’ Pity. He Wants Their Laughs.**\
 `After two strokes, the stand-up has recovered enough to make a new special. If anything, his health crises have sharpened his humor.`\
 https://nytimes.com/2024/06/26/arts/television/keith-robinson-different-strokes-netflix.html

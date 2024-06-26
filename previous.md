@@ -1,3 +1,7 @@
+**3 Simple Ways to Test Your Fitness**\
+`Try these tests to evaluate your strength and cardiovascular fitness.`\
+https://nytimes.com/2024/06/26/well/move/fitness-test-exercises.html
+
 **Keith Robinson Doesn’t Want Audiences’ Pity. He Wants Their Laughs.**\
 `After two strokes, the stand-up has recovered enough to make a new special. If anything, his health crises have sharpened his humor.`\
 https://nytimes.com/2024/06/26/arts/television/keith-robinson-different-strokes-netflix.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/26/business/kenya-tax-protests-debt.html
 **Why Do I Have to Choose Between My Grandmother’s Funeral and a Birthday Party?**\
 `A reader’s brother-in-law is insisting that she accompany her children to his 1-year-old’s birthday party, even though attending would require her to miss an important funeral.`\
 https://nytimes.com/2024/06/26/style/first-birthday-party-petsitting.html
-
-**A Day at the National Domestic Violence Hotline**\
-`My colleague Emily Cochrane takes us behind the scenes of the hotline, which receives as many as 3,000 calls and messages a day.`\
-https://nytimes.com/2024/06/26/us/national-domestic-violence-hotline.html
 
