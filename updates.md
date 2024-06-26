@@ -1,3 +1,11 @@
+**In Texas, Infant Mortality Rose After Abortion Ban**\
+`A study points to fatal birth defects as a driver in the increase in infant deaths.`\
+https://nytimes.com/2024/06/26/upshot/in-texas-infant-mortality-rose-after-abortion-ban.html
+
+**The Evolution of Biden’s Debate Style**\
+`The matchup between President Biden and former President Donald J. Trump could be a make-or-break moment in the race for the White House.`\
+https://nytimes.com/interactive/2024/06/26/us/biden-debate-style.html
+
 **On Tuesday Night, She Goes Out**\
 `Hitting New York’s East Village with Sabrina Fuentes, the 24-year-old frontwoman of the band Pretty Sick.`\
 https://nytimes.com/2024/06/26/style/pretty-sick-sabrina-fuentes-rock-music-new-york.html
