@@ -1,3 +1,7 @@
+**China’s Anguished Debate: Do Its Children Have a Crime Problem?**\
+`China has been considered relatively progressive on juvenile justice. But several high-profile killings have prompted calls for the law to come down more harshly on minors.`\
+https://nytimes.com/2024/06/26/world/asia/china-children-crimes.html
+
 **Wednesday Briefing**\
 `Anti-tax protests tore through Kenya’s capital.`\
 https://nytimes.com/2024/06/26/briefing/kenya-nairobi-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/pageoneplus/quotation-of-the-day-fed-up-with-hype
 **5 Takeaways From Jamaal Bowman’s Loss**\
 `The congressman, who lost to George Latimer, was the first “squad” member to fall, in a painful defeat for the Democratic left.`\
 https://nytimes.com/2024/06/25/nyregion/bowman-latimer-takeaways-primary.html
-
-**State Senator Wins Swing-District House Primary in Central New York**\
-`John Mannion will challenge Representative Brandon Williams in what is considered one of the Democrats’ best hopes in the nation to flip a congressional seat.`\
-https://nytimes.com/2024/06/25/nyregion/mannion-hood-primary.html
 
