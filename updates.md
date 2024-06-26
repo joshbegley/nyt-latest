@@ -1,3 +1,7 @@
+**What’s in Our Queue? Charlotte Day Wilson and More**\
+`I’m an economics and business reporter in the London newsroom of The New York Times. Here are five things that I’m enjoying.`\
+https://nytimes.com/interactive/2024/06/26/arts/editors-recommendations-charlotte.html
+
 **What We Know About the Karen Read Murder Trial**\
 `Ms. Read is accused of intentionally backing her vehicle into her boyfriend and then leaving him to die. The case has drawn outsize attention, fueled by her lawyers’ accusations of a police cover-up.`\
 https://nytimes.com/2024/06/26/us/karen-read-murder-trial.html
