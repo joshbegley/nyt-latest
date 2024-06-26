@@ -1,3 +1,11 @@
+**Sika Anoa’i, WWE Hall of Famer and Father of Roman Reigns, Is Dead**\
+`Sika Anoa’i was part of the superstar Wild Samoans tag team and a dynasty of Samoan wrestlers that includes today’s biggest star, his son Roman Reigns.`\
+https://nytimes.com/2024/06/26/sports/sika-anoai-wwe-dead.html
+
+**Netanyahu Does Not Speak for Us. Congress Should Disinvite Him.**\
+`We believe the prime minister is driving Israel downhill at an alarming speed, to the extent that we may eventually lose the country we love.`\
+https://nytimes.com/2024/06/26/opinion/congress-netanyahu-gaza-war.html
+
 **China’s Anguished Debate: Do Its Children Have a Crime Problem?**\
 `China has been considered relatively progressive on juvenile justice. But several high-profile killings have prompted calls for the law to come down more harshly on minors.`\
 https://nytimes.com/2024/06/26/world/asia/china-children-crimes.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/25/arts/television/jay-johnston-jan-6.html
 **Corrections: June 26, 2024**\
 `Corrections that appeared in print on Wednesday, June 26, 2024.`\
 https://nytimes.com/2024/06/25/pageoneplus/corrections-june-26-2024.html
-
-**Quotation of the Day: Fed Up With Hyper-Partisan Elections, Voters in 8 States Seek a Fix**\
-`Quotation of the Day for Wednesday, June 26, 2024.`\
-https://nytimes.com/2024/06/25/pageoneplus/quotation-of-the-day-fed-up-with-hyper-partisan-elections-voters-in-8-states-seek-a-fix.html
-
-**5 Takeaways From Jamaal Bowman’s Loss**\
-`The congressman, who lost to George Latimer, was the first “squad” member to fall, in a painful defeat for the Democratic left.`\
-https://nytimes.com/2024/06/25/nyregion/bowman-latimer-takeaways-primary.html
 
