@@ -1,3 +1,7 @@
+**Alito’s Frustrated Culture-War Diatribe**\
+`He readily sided with Republican states that claimed that countering Covid misinformation was censorship.`\
+https://nytimes.com/2024/06/25/opinion/alito-censorship-covid.html
+
 **Congestion Pricing Delay Will Thwart Billions in Subway Upgrades**\
 `The board of the Metropolitan Transportation Authority was presented with drastic cuts to the transit system’s capital plan caused by Gov. Kathy Hochul’s decision to halt the tolling program.`\
 https://nytimes.com/2024/06/26/nyregion/nyc-congestion-pricing-mta.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/26/world/middleeast/iran-election-trump.html
 **‘Woolf Works’ Review: A Literary Ballet’s Missteps**\
 `Wayne McGregor’s 2015 work, making its New York debut with American Ballet Theater, fails to make dance poetry of Virginia Woolf’s novels.`\
 https://nytimes.com/2024/06/26/arts/dance/review-woolf-works-mcgregor-american-ballet-theater.html
-
-**How Ocean Warming Is Warping the World**\
-`The effects of ocean warming are vast, but often invisible.`\
-https://nytimes.com/2024/06/26/opinion/global-warming-ocean-life.html
 
