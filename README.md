@@ -1,3 +1,15 @@
+**France’s Far Right at the Gates of Power**\
+`After a big loss in voting for the European Parliament, President Emmanuel Macron has gambled on new elections in France.`\
+https://nytimes.com/2024/06/26/podcasts/the-daily/france-elections.html
+
+**Wordle Review No. 1,104, June 27, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/26/crosswords/wordle-review-1104.html
+
+**The Connections Companion No. 382, June 27, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/26/crosswords/connections-companion-382.html
+
 **What Joe Biden Could Learn From Betty White About Aging in Public**\
 `There’s a difference between being an elder statesman and an elderly one.`\
 https://nytimes.com/2024/06/26/opinion/biden-trump-tv-debate.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/26/nyregion/jamaal-bowman-squad-left.html
 **The Supreme Court Steps Back From the Edge**\
 `It’s impossible to see the court’s decision upholding a law disarming domestic abusers as anything but an exercise in institutional self-preservation.`\
 https://nytimes.com/2024/06/26/opinion/guns-supreme-court.html
-
-**Joe Biden: The Old-School Politician in a New-School Era**\
-`After more than half a century in Washington, President Biden has learned to make deals and work across the aisle. But that instinct is rarely rewarded in today’s political climate.`\
-https://nytimes.com/2024/06/26/us/politics/joe-biden-career-debate.html
-
-**The Ground Is Shifting Under Biden and Trump**\
-`Both parties are changing shape. What should they do about it?`\
-https://nytimes.com/2024/06/26/opinion/democrats-republicans-coalitions-electorate.html
-
-**How Can Biden Win the Debate? Trump? Five Tips for Each Candidate.**\
-`Two political experts weigh in on what it might take to succeed.`\
-https://nytimes.com/2024/06/26/opinion/trump-biden-debate.html
 
