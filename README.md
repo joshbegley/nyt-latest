@@ -1,3 +1,7 @@
+**Congestion Pricing Delay Will Thwart Billions in Subway Upgrades**\
+`The board of the Metropolitan Transportation Authority was presented with drastic cuts to the transit system’s capital plan caused by Gov. Kathy Hochul’s decision to halt the tolling program.`\
+https://nytimes.com/2024/06/26/nyregion/nyc-congestion-pricing-mta.html
+
 **Plea Deal in Illinois Parade Shooting Falls Apart, Upsetting Victims’ Families**\
 `‘All I wanted was to be able to fully grieve my mom,’ one victim’s daughter said. The shooting at a Fourth of July parade two summers ago killed seven and wounded dozens more.`\
 https://nytimes.com/2024/06/26/us/highland-park-parade-shooting-plea-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/26/arts/dance/review-woolf-works-mcgregor-american-b
 **How Ocean Warming Is Warping the World**\
 `The effects of ocean warming are vast, but often invisible.`\
 https://nytimes.com/2024/06/26/opinion/global-warming-ocean-life.html
-
-**The Key to the Best Weeknight Chicken Dinner Is Already in Your Pan**\
-`Golden, salty schmaltz seasons a vibrant tomato and onion salad in this savory dish from Melissa Clark.`\
-https://nytimes.com/2024/06/26/dining/best-chicken-thighs.html
 
