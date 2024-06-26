@@ -1,3 +1,7 @@
+**Supreme Court Rejects Challenge to Biden Administration’s Contacts With Social Media Companies**\
+`The case, one of several this term on how the First Amendment applies to technology platforms, was dismissed on the ground that the plaintiffs lacked standing to sue.`\
+https://nytimes.com/2024/06/26/us/politics/supreme-court-biden-free-speech.html
+
 **Contraception Is Free by Law. So Why Are a Quarter of Women Still Paying for It?**\
 `Senator Bernie Sanders of Vermont has called on a government watchdog to investigate. Here’s what you need to know.`\
 https://nytimes.com/2024/06/26/well/live/birth-control-pills-contraception-cost.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/26/us/national-domestic-violence-hotline.html
 **Why Many C.E.O.s Are Silent on the Biden-Trump Rematch**\
 `The C-suite has been relatively quiet about the presidential election, as executives fear  becoming a political target.`\
 https://nytimes.com/2024/06/26/business/dealbook/ceos-trump-biden-silent.html
-
-**A Development in the U.S. Labor Movement**\
-`Starbucks and its union are on track to reach a contract.`\
-https://nytimes.com/2024/06/26/briefing/starbucks-union-labor-contract.html
 
