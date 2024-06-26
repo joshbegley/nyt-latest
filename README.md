@@ -1,3 +1,7 @@
+**The Episcopal Church Has Elected Its Youngest Leader in Centuries**\
+`Bishop Sean Rowe, 49, called for the church to be resilient heading into what he described as an “existential crisis” caused by a changing world.`\
+https://nytimes.com/2024/06/26/us/episcopal-church-bishop-sean-rowe.html
+
 **Brazil Becomes the Largest Nation to Decriminalize Marijuana**\
 `The country’s Supreme Court voted to remove criminal penalties for possession of up to 40 grams of marijuana.`\
 https://nytimes.com/2024/06/26/world/americas/brazil-marijuana-decriminalize-weed.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/26/us/gop-senators-sc-abortion-ban-primary.html
 **Marilyn Monroe’s House Is Made a Los Angeles Landmark in Council Vote**\
 `The historical designation came after a bitter battle between the city and the homeowners who had planned to demolish the home. Neighborhood associations also opposed the move.`\
 https://nytimes.com/2024/06/26/us/marilyn-monroe-house-los-angeles.html
-
-**San Diego Zoo to Receive 2 Giant Pandas From China**\
-`The pandas, Yun Chuan and Xin Bao, will be the first to enter the United States in 21 years, the San Diego Zoo said.`\
-https://nytimes.com/2024/06/26/us/san-diego-zoo-giant-pandas-china.html
 
