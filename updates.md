@@ -1,3 +1,7 @@
+**How Ocean Warming Is Warping the World**\
+`The effects of ocean warming are vast, but often invisible.`\
+https://nytimes.com/2024/06/26/opinion/global-warming-ocean-life.html
+
 **The Key to the Best Weeknight Chicken Dinner Is Already in Your Pan**\
 `Golden, salty schmaltz seasons a vibrant tomato and onion salad in this savory dish from Melissa Clark.`\
 https://nytimes.com/2024/06/26/dining/best-chicken-thighs.html
