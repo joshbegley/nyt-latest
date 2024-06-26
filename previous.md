@@ -1,3 +1,7 @@
+**Former ‘Bob’s Burgers’ Actor to Plead Guilty in Jan. 6 Case**\
+`Jay Johnston, also known for his work on “Mr. Show with Bob and David,” was charged last year with participating in the riot at the Capitol. He is expected to plead guilty at a hearing on July 8.`\
+https://nytimes.com/2024/06/25/arts/television/jay-johnston-jan-6.html
+
 **Corrections: June 26, 2024**\
 `Corrections that appeared in print on Wednesday, June 26, 2024.`\
 https://nytimes.com/2024/06/25/pageoneplus/corrections-june-26-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/nyregion/avlon-goroff-primary.html
 **Bowman Falls to Latimer in a Loss for Progressive Democrats**\
 `Representative Jamaal Bowman of New York, a member of the House’s left-wing “squad,” was defeated by George Latimer in a race that exposed Democratic fissures.`\
 https://nytimes.com/2024/06/25/nyregion/bowman-latimer-house-new-york.html
-
-**Boebert Wins a Crowded Primary After Swapping Districts in Colorado**\
-`The victory by the MAGA lawmaker in the conservative eastern part of the state put her on track to another term in the House, after she abandoned a district in more politically competitive terrain.`\
-https://nytimes.com/2024/06/25/us/politics/lauren-boebert-primary-colorado.html
 

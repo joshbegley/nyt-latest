@@ -1,3 +1,7 @@
+**Former ‘Bob’s Burgers’ Actor to Plead Guilty in Jan. 6 Case**\
+`Jay Johnston, also known for his work on “Mr. Show with Bob and David,” was charged last year with participating in the riot at the Capitol. He is expected to plead guilty at a hearing on July 8.`\
+https://nytimes.com/2024/06/25/arts/television/jay-johnston-jan-6.html
+
 **Corrections: June 26, 2024**\
 `Corrections that appeared in print on Wednesday, June 26, 2024.`\
 https://nytimes.com/2024/06/25/pageoneplus/corrections-june-26-2024.html
