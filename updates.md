@@ -1,3 +1,7 @@
+**Judges Upended Biden’s Student Loan Repayment Plan. What Happens Now?**\
+`More than eight million borrowers are enrolled in the income-driven plan known as SAVE. The Education Department is assessing the rulings.`\
+https://nytimes.com/2024/06/26/business/biden-student-loans-save-plan.html
+
 **NATO Will Offer Ukraine a ‘Bridge’ to Membership, Hoping That’s Enough**\
 `Officials say Kyiv won’t get membership negotiations at the coming NATO summit, but the alliance will announce a structure to coordinate aid over the longer term.`\
 https://nytimes.com/2024/06/26/world/europe/nato-ukraine-washington-membership-summit.html
