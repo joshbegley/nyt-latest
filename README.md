@@ -1,3 +1,7 @@
+**Mark Rutte Moves From Leading Netherlands to Heading NATO**\
+`Mr. Rutte, who served as the Dutch prime minister for nearly 14 years, has been a harsh critic of Russia’s president, Vladimir V. Putin, and a strong supporter of Ukraine.`\
+https://nytimes.com/2024/06/26/world/europe/mark-rutte-nato-secretary-general.html
+
 **Where Does Chanel Go From Here?**\
 `It’s between designers, and at a crossroad.`\
 https://nytimes.com/2024/06/26/style/chanel-couture.html
