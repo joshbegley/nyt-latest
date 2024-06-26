@@ -1,3 +1,7 @@
+**CNN releases the first image of a sleek presidential debate stage.**\
+`By Michael M. Grynbaum`\
+https://nytimes.com/live/2024/06/26/us/biden-trump-election-debate/cnn-presidential-debate-stage
+
 **Harvard Reports Find Climate of Bias for Both Jewish and Muslim Groups**\
 `In preliminary reports, task forces on antisemitism and anti-Muslim bias urged the university to take steps to address the discrimination on campus.`\
 https://nytimes.com/2024/06/26/us/harvard-antisemitism-muslim-bias.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/26/upshot/in-texas-infant-mortality-rose-after-abort
 **The Evolution of Biden’s Debate Style**\
 `The matchup between President Biden and former President Donald J. Trump could be a make-or-break moment in the race for the White House.`\
 https://nytimes.com/interactive/2024/06/26/us/biden-debate-style.html
-
-**On Tuesday Night, She Goes Out**\
-`Hitting New York’s East Village with Sabrina Fuentes, the 24-year-old frontwoman of the band Pretty Sick.`\
-https://nytimes.com/2024/06/26/style/pretty-sick-sabrina-fuentes-rock-music-new-york.html
 
