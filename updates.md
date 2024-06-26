@@ -1,3 +1,11 @@
+**The Key to the Best Weeknight Chicken Dinner Is Already in Your Pan**\
+`Golden, salty schmaltz seasons a vibrant tomato and onion salad in this savory dish from Melissa Clark.`\
+https://nytimes.com/2024/06/26/dining/best-chicken-thighs.html
+
+**Following Protests, Kenya’s President Refuses to Sign Tax Bill**\
+`After the violent protests on Tuesday against a finance bill that would have raised the price on basics, President William Ruto of Kenya said that he would not sign the legislation.`\
+https://nytimes.com/video/world/africa/100000009541256/ruto-rejects-tax-bill.html
+
 **New Pro-Trump Super PAC Quietly Spends Millions on G.O.P. Ground Game**\
 `The group, America PAC, is preparing what appears to be a well-funded push to encourage Republican-leaning voters to cast early or absentee ballots.`\
 https://nytimes.com/2024/06/26/us/politics/trump-gop-voting.html
