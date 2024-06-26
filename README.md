@@ -1,3 +1,7 @@
+**A Development in the U.S. Labor Movement**\
+`Starbucks and its union are on track to reach a contract.`\
+https://nytimes.com/2024/06/26/briefing/starbucks-union-labor-contract.html
+
 **Tension and Tear Gas Linger in Kenya After Tax Protests Turn Deadly**\
 `Businesses were slowly reopening a day after the government deployed the military to quell the unrest, but the country remained on edge.`\
 https://nytimes.com/2024/06/26/world/africa/kenya-protests-taxes.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/25/opinion/thepoint/sudan-civil-war-famine
 **Biden Expected to Pardon Veterans Convicted of Having Gay Sex**\
 `The president’s proclamation would grant clemency to around 2,000 people charged between 1951 and 2013 under a military code that outlawed the behavior.`\
 https://nytimes.com/2024/06/26/us/politics/biden-pardon-veterans-gay-sex.html
-
-**Texas Execution Centers on a Jury’s Assessment of ‘Future Dangerousness’**\
-`Ramiro Gonzales, who killed a woman in 2001, was set to be executed on Wednesday, though a psychiatrist who suggested he was likely to reoffend has since changed his opinion.`\
-https://nytimes.com/2024/06/26/us/texas-execution-ramiro-gonzalez.html
 
