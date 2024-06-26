@@ -1,3 +1,7 @@
+**Powered for Change: A New Path to Net Zero**\
+`Making meaningful progress toward a net-zero transition requires a new era of collaboration. Working together, industry leaders can flip a vicious cycle of inaction into a virtuous cycle of action.`\
+https://nytimes.com/paidpost/accenture-episode-39/powered-for-change-a-new-path-to-net-zero.html
+
 **In Texas, Infant Mortality Rose After Abortion Ban**\
 `A study points to fatal birth defects as a driver in the increase in infant deaths.`\
 https://nytimes.com/2024/06/26/upshot/in-texas-infant-mortality-rose-after-abortion-ban.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/26/dining/best-chicken-thighs.html
 **Following Protests, Kenya’s President Refuses to Sign Tax Bill**\
 `After the violent protests on Tuesday against a finance bill that would have raised the price on basics, President William Ruto of Kenya said that he would not sign the legislation.`\
 https://nytimes.com/video/world/africa/100000009541256/ruto-rejects-tax-bill.html
-
-**New Pro-Trump Super PAC Quietly Spends Millions on G.O.P. Ground Game**\
-`The group, America PAC, is preparing what appears to be a well-funded push to encourage Republican-leaning voters to cast early or absentee ballots.`\
-https://nytimes.com/2024/06/26/us/politics/trump-gop-voting.html
 
