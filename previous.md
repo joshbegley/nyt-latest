@@ -3,7 +3,7 @@
 https://nytimes.com/2024/06/26/us/harvard-antisemitism-muslim-bias.html
 
 **Supreme Court Appears Poised to Allow, for Now, Emergency Abortions in Idaho**\
-`According to Bloomberg News, a document posted briefly to the court’s website suggested a majority of the court would let a lower-court ruling stand, allowing access to emergency abortions in Idaho, despite a strict state ban.`\
+`According to Bloomberg News, a document posted briefly to the court’s website suggested a majority of the justices would reinstate a lower-court ruling that paused the state’s near-total abortion ban.`\
 https://nytimes.com/2024/06/26/us/politics/supreme-court-abortion-idaho.html
 
 **An Alabama Town’s New Mayor Was Locked Out. 3 Years Later, He Will Return.**\

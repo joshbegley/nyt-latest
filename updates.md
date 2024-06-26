@@ -1,3 +1,7 @@
+**Supreme Court Appears Poised to Allow, for Now, Emergency Abortions in Idaho**\
+`According to Bloomberg News, a document posted briefly to the court’s website suggested a majority of the justices would reinstate a lower-court ruling that paused the state’s near-total abortion ban.`\
+https://nytimes.com/2024/06/26/us/politics/supreme-court-abortion-idaho.html
+
 **Harvard Reports Find Climate of Bias for Both Jewish and Muslim Groups**\
 `In preliminary reports, task forces on antisemitism and anti-Muslim bias urged the university to take steps to address the discrimination on campus.`\
 https://nytimes.com/2024/06/26/us/harvard-antisemitism-muslim-bias.html
