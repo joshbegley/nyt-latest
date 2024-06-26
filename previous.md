@@ -1,3 +1,7 @@
+**Julian Assange Pleads Guilty to Espionage, Securing His Freedom**\
+`The WikiLeaks founder, who entered the plea in a U.S. courtroom in Saipan in the Western Pacific, now plans to fly home to Australia.`\
+https://nytimes.com/2024/06/25/world/australia/julian-assange-plea-deal-guilty.html
+
 **Biden Officials Pushed to Remove Age Limits for Trans Surgery, Documents Show**\
 `Newly released emails from an influential group issuing transgender medical guidelines indicate that U.S. health officials lobbied to remove age minimums for surgery in minors because of concerns over political fallout.`\
 https://nytimes.com/2024/06/25/health/transgender-minors-surgeries.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/arts/lincoln-wax-statue-melted.html
 **Major Record Labels Sue A.I. Music Generators**\
 `The lawsuits say that Udio and Suno trained their products on reams of copyrighted music.`\
 https://nytimes.com/2024/06/25/arts/music/record-labels-ai-lawsuit-sony-universal-warner.html
-
-**After a Brief Run, ‘Tommy’ Revival to Close on Broadway**\
-`“The Who’s Tommy,” which has a rock score by Pete Townshend, will end on July 21. A national tour is in the works.`\
-https://nytimes.com/2024/06/25/theater/tommy-revival-broadway-closing.html
 

@@ -1,3 +1,7 @@
+**Julian Assange Pleads Guilty to Espionage, Securing His Freedom**\
+`The WikiLeaks founder, who entered the plea in a U.S. courtroom in Saipan in the Western Pacific, now plans to fly home to Australia.`\
+https://nytimes.com/2024/06/25/world/australia/julian-assange-plea-deal-guilty.html
+
 **Biden Officials Pushed to Remove Age Limits for Trans Surgery, Documents Show**\
 `Newly released emails from an influential group issuing transgender medical guidelines indicate that U.S. health officials lobbied to remove age minimums for surgery in minors because of concerns over political fallout.`\
 https://nytimes.com/2024/06/25/health/transgender-minors-surgeries.html
