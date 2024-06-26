@@ -1,3 +1,11 @@
+**Instagram fixes an ‘error’ over political content ahead of the debate.**\
+`By Sheera Frenkel`\
+https://nytimes.com/live/2024/06/26/us/biden-trump-election-debate/instagram-political-content-error
+
+**South by Southwest Cuts Ties to Army After Gaza-Inspired Boycott**\
+`The festival said it would no longer be sponsored by the U.S. Army or weapons manufacturers, which had prompted artists to withdraw from this year’s gathering.`\
+https://nytimes.com/2024/06/26/arts/south-by-southwest-army.html
+
 **Federal Officials Revise Recommendations for R.S.V. Vaccine**\
 `Among Americans aged 60 to 74, only those with certain health conditions need to receive the shots, the agency concluded.`\
 https://nytimes.com/2024/06/26/health/rsv-vaccine-cdc.html
