@@ -1,3 +1,7 @@
+**Gershkovich Trial Begins, and Kenya Rocked by Protests**\
+`Plus, a stinging primary defeat for progressives.`\
+https://nytimes.com/2024/06/26/podcasts/gershkovich-trial-kenya-protests.html
+
 **France’s Far Right at the Gates of Power**\
 `After a big loss in voting for the European Parliament, President Emmanuel Macron has gambled on new elections in France.`\
 https://nytimes.com/2024/06/26/podcasts/the-daily/france-elections.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/26/us/texas-execution-ramiro-gonzalez.html
 **With Jamaal Bowman’s Loss, the Left Is on the Defensive**\
 `Mr. Bowman’s win in 2020 seemed to herald an ascendant progressive movement. In 2024, the center is regaining power.`\
 https://nytimes.com/2024/06/26/nyregion/jamaal-bowman-squad-left.html
-
-**The Supreme Court Steps Back From the Edge**\
-`It’s impossible to see the court’s decision upholding a law disarming domestic abusers as anything but an exercise in institutional self-preservation.`\
-https://nytimes.com/2024/06/26/opinion/guns-supreme-court.html
 

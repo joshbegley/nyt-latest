@@ -1,3 +1,15 @@
+**France’s Far Right at the Gates of Power**\
+`After a big loss in voting for the European Parliament, President Emmanuel Macron has gambled on new elections in France.`\
+https://nytimes.com/2024/06/26/podcasts/the-daily/france-elections.html
+
+**Wordle Review No. 1,104, June 27, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/26/crosswords/wordle-review-1104.html
+
+**The Connections Companion No. 382, June 27, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/26/crosswords/connections-companion-382.html
+
 **What Joe Biden Could Learn From Betty White About Aging in Public**\
 `There’s a difference between being an elder statesman and an elderly one.`\
 https://nytimes.com/2024/06/26/opinion/biden-trump-tv-debate.html
