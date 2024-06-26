@@ -1,3 +1,11 @@
+**Black Shirts and Banned Flags: Ultras Push Politics at Euro 2024**\
+`Hard-core fan groups, embracing a strong nationalistic streak, have provoked pushback from soccer’s authorities at the European Championship.`\
+https://nytimes.com/2024/06/26/world/europe/euros-ultras-hungary-carpathian-brigade.html
+
+**Is It OK to Police My Patient’s Financial Choices?**\
+`The magazine’s Ethicist columnist on a physician’s bedside manner — and the difference between justifiable concern and judgment.`\
+https://nytimes.com/2024/06/26/magazine/plastic-surgery-cancer-doctor-ethics.html
+
 **Judges Upended Biden’s Student Loan Repayment Plan. What Happens Now?**\
 `More than eight million borrowers are enrolled in the income-driven plan known as SAVE. The Education Department is assessing the rulings.`\
 https://nytimes.com/2024/06/26/business/biden-student-loans-save-plan.html
