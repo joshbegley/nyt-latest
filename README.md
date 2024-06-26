@@ -1,3 +1,19 @@
+**Guess Who’s Back: A Trump Ally and Brexiteer Disrupts the U.K., Again**\
+`With his populist, anti-immigration campaign, Nigel Farage is once more shaking up Britain’s politics. Can he finally win a seat in the national Parliament?`\
+https://nytimes.com/2024/06/26/world/europe/nigel-farage-uk-politics.html
+
+**Russia to Start Secret Trial of U.S. Reporter Accused of Espionage**\
+`Evan Gershkovich of The Wall Street Journal has endured 15 months in prison by reading letters and Russian classics, while the authorities have not publicly offered any evidence that he was a spy.`\
+https://nytimes.com/2024/06/26/world/europe/russia-evan-gershkovich-trial.html
+
+**Schools Got a Record $190 Billion in Pandemic Aid. Did It Work?**\
+`Two new studies suggest that the largest single federal investment in U.S. schools improved student test scores, but only modestly.`\
+https://nytimes.com/2024/06/26/us/pandemic-aid-recovery-schools.html
+
+**For American Brands Worried About China, Is India the Future?**\
+`As multinational retailers diminish their dependence on Chinese factories, some are shifting production to India.`\
+https://nytimes.com/2024/06/26/business/india-us-manufacturing.html
+
 **Former ‘Bob’s Burgers’ Actor to Plead Guilty in Jan. 6 Case**\
 `Jay Johnston, also known for his work on “Mr. Show with Bob and David,” was charged last year with participating in the riot at the Capitol. He is expected to plead guilty at a hearing on July 8.`\
 https://nytimes.com/2024/06/25/arts/television/jay-johnston-jan-6.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/06/25/nyregion/mannion-hood-primary.html
 **Gov. Spencer Cox Holds Off Challenger From Right in Utah’s G.O.P. Primary**\
 `The governor’s rival, State Representative Phil Lyman, had the state party’s backing and argued that Mr. Cox was not conservative enough.`\
 https://nytimes.com/2024/06/25/us/politics/spencer-cox-utah-republican-primary.html
-
-**John Curtis, a Moderate House Republican, Wins Utah’s Senate Primary**\
-`Mr. Curtis has portrayed himself as a centrist workhorse in the image of the senator whose seat he is vying to fill: Mitt Romney.`\
-https://nytimes.com/2024/06/25/us/politics/john-curtis-utah-senate.html
-
-**Part of a Pecking Order?**\
-`Rebecca Goldstein’s puzzle is anything but pedestrian.`\
-https://nytimes.com/2024/06/25/crosswords/daily-puzzle-2024-06-26.html
-
-**John Avlon Wins Political Debut in a House Primary in New York**\
-`Mr. Avlon, an author and former CNN personality, defeated Nancy Goroff, a retired chemistry professor, in a race in eastern Long Island.`\
-https://nytimes.com/2024/06/25/nyregion/avlon-goroff-primary.html
-
-**Bowman Falls to Latimer in a Loss for Progressive Democrats**\
-`Representative Jamaal Bowman of New York, a member of the House’s left-wing “squad,” was defeated by George Latimer in a race that exposed Democratic fissures.`\
-https://nytimes.com/2024/06/25/nyregion/bowman-latimer-house-new-york.html
 
