@@ -1,3 +1,7 @@
+**J.D. Vance Says He’ll Disappointed if Trump Doesn’t Pick Him for V.P.**\
+`Donald J. Trump’s increasingly theatrical selection process is entering its final phase, with his leading candidates participating in a series of Fox News interviews to make their case.`\
+https://nytimes.com/2024/06/26/us/politics/jd-vance-says-hell-disappointed-if-trump-doesnt-pick-him-for-vp.html
+
 **Death Toll in Kenya Tax Protests Rises to at Least 23, Rights Groups Say**\
 `Over 300 people were injured in the violence, the state human rights agency said. Although businesses were slowly reopening after the unrest, the country remained on edge.`\
 https://nytimes.com/2024/06/26/world/africa/kenya-protests-taxes.html
