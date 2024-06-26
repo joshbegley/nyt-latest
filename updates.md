@@ -1,3 +1,7 @@
+**Corruption Law Allows Gifts to State and Local Officials, Supreme Court Rules**\
+`The court, which has limited the sweep of several anti-corruption laws, distinguished after-the-fact rewards from before-the-fact bribes.`\
+https://nytimes.com/2024/06/26/us/politics/supreme-court-corruption-bribery.html
+
 **Outlier Poll Results Are Inevitable. They’re Also Sometimes Right.**\
 `The latest Times/Siena survey shows Trump up by six points among registered voters and three among likely voters.`\
 https://nytimes.com/2024/06/26/upshot/biden-trump-poll-outlier.html

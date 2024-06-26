@@ -1,3 +1,7 @@
+**Corruption Law Allows Gifts to State and Local Officials, Supreme Court Rules**\
+`The court, which has limited the sweep of several anti-corruption laws, distinguished after-the-fact rewards from before-the-fact bribes.`\
+https://nytimes.com/2024/06/26/us/politics/supreme-court-corruption-bribery.html
+
 **Outlier Poll Results Are Inevitable. They’re Also Sometimes Right.**\
 `The latest Times/Siena survey shows Trump up by six points among registered voters and three among likely voters.`\
 https://nytimes.com/2024/06/26/upshot/biden-trump-poll-outlier.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/26/business/bank-stress-tests.html
 **Vermont Man Arrested After Giving Trooper Middle Finger Gets $175,000**\
 `The state and the arresting officer settled a case with a man who argued that he had been exercising his First Amendment rights.`\
 https://nytimes.com/2024/06/26/us/vermont-profanity-arrest.html
-
-**The Vanishing Islands That Failed to Vanish**\
-`Low-lying tropical island nations were expected to be early victims of rising seas. But research tells a surprising story: Many islands are stable. Some have even grown.`\
-https://nytimes.com/interactive/2024/06/26/climate/maldives-islands-climate-change.html
 
