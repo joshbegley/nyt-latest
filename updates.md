@@ -1,3 +1,7 @@
+**An Alabama Town’s New Mayor Was Locked Out. 3 Years Later, He Will Return.**\
+`Newbern, Ala., had not held elections in 50 years — until Patrick Braxton ran for office. But when Mr. Braxton won, he was blocked from carrying out his duties, he said in a lawsuit.`\
+https://nytimes.com/2024/06/26/us/alabama-mayor-patrick-braxton-settlement.html
+
 **Alito’s Frustrated Culture-War Diatribe**\
 `He readily sided with Republican states that claimed that countering Covid misinformation was censorship.`\
 https://nytimes.com/2024/06/25/opinion/alito-censorship-covid.html
