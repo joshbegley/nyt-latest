@@ -1,3 +1,7 @@
+**Wednesday Briefing**\
+`Anti-tax protests tore through Kenya’s capital.`\
+https://nytimes.com/2024/06/26/briefing/kenya-nairobi-protests.html
+
 **Guess Who’s Back: A Trump Ally and Brexiteer Disrupts the U.K., Again**\
 `With his populist, anti-immigration campaign, Nigel Farage is once more shaking up Britain’s politics. Can he finally win a seat in the national Parliament?`\
 https://nytimes.com/2024/06/26/world/europe/nigel-farage-uk-politics.html
