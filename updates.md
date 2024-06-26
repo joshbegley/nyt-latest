@@ -1,3 +1,7 @@
+**Russell Morash, ‘This Old House’ and ‘The French Chef’ Producer, Dies at 88**\
+`Hailed as a pioneer of D.I.Y. programming, he oversaw groundbreaking how-to shows on public television in the days before HGTV and YouTube.`\
+https://nytimes.com/2024/06/26/arts/television/russell-morash-dead.html
+
 **Thursday Briefing: Evan Gershkovich’s Trial**\
 `Also, Kenya’s president shelved the tax bill.`\
 https://nytimes.com/2024/06/26/world/asia/evan-gershkovich-kenya-bolivia-asia.html

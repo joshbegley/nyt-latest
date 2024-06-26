@@ -1,3 +1,7 @@
+**Russell Morash, ‘This Old House’ and ‘The French Chef’ Producer, Dies at 88**\
+`Hailed as a pioneer of D.I.Y. programming, he oversaw groundbreaking how-to shows on public television in the days before HGTV and YouTube.`\
+https://nytimes.com/2024/06/26/arts/television/russell-morash-dead.html
+
 **Thursday Briefing: Evan Gershkovich’s Trial**\
 `Also, Kenya’s president shelved the tax bill.`\
 https://nytimes.com/2024/06/26/world/asia/evan-gershkovich-kenya-bolivia-asia.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/06/26/us/elections/times-siena-poll-topline
 **Cross-Tabs: June 2024 Times/Siena Poll of Registered Voters Nationwide**\
 `Results of a nationwide New York Times/Siena College poll conducted among 1,226 registered voters from June 20 to 25, 2024.`\
 https://nytimes.com/interactive/2024/06/26/us/elections/times-siena-poll-registered-voter-crosstabs.html
-
-**Banks Could Weather Even Extreme Economic Tumult, Fed Finds**\
-`The Federal Reserve for the first time tested major banks’ ability to withstand crisis scenarios — and the largest U.S. lenders stood tall.`\
-https://nytimes.com/2024/06/26/business/bank-stress-tests.html
 
