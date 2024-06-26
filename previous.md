@@ -1,3 +1,7 @@
+**They Thought They Owned Condos. They Never Got the Deeds.**\
+`A tight-knit immigrant community trusted a developer as one of their own. But he pocketed the money, according to the state attorney general’s office.`\
+https://nytimes.com/2024/06/26/realestate/they-thought-they-owned-condos-they-never-got-the-deeds.html
+
 **A ruling that the military must draft ultra-Orthodox Jews had threatened to split Israel’s coalition government.**\
 `By Matthew Mpoke Bigg and Gabby Sobelman`\
 https://nytimes.com/live/2024/06/26/world/israel-gaza-war-hamas/a-ruling-that-the-military-must-draft-ultra-orthodox-jews-had-threatened-to-split-israels-coalition-government
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/26/podcasts/gershkovich-trial-kenya-protests.html
 **France’s Far Right at the Gates of Power**\
 `After a big loss in voting for the European Parliament, President Emmanuel Macron has gambled on new elections in France.`\
 https://nytimes.com/2024/06/26/podcasts/the-daily/france-elections.html
-
-**Wordle Review No. 1,104, June 27, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/06/26/crosswords/wordle-review-1104.html
 

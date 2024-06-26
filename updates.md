@@ -1,3 +1,7 @@
+**They Thought They Owned Condos. They Never Got the Deeds.**\
+`A tight-knit immigrant community trusted a developer as one of their own. But he pocketed the money, according to the state attorney general’s office.`\
+https://nytimes.com/2024/06/26/realestate/they-thought-they-owned-condos-they-never-got-the-deeds.html
+
 **A ruling that the military must draft ultra-Orthodox Jews had threatened to split Israel’s coalition government.**\
 `By Matthew Mpoke Bigg and Gabby Sobelman`\
 https://nytimes.com/live/2024/06/26/world/israel-gaza-war-hamas/a-ruling-that-the-military-must-draft-ultra-orthodox-jews-had-threatened-to-split-israels-coalition-government
