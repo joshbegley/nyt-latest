@@ -1,3 +1,7 @@
+**Powered for Change: A New Path to Net Zero**\
+`Making meaningful progress toward a net-zero transition requires a new era of collaboration. Working together, industry leaders can flip a vicious cycle of inaction into a virtuous cycle of action.`\
+https://nytimes.com/paidpost/accenture-episode-39/powered-for-change-a-new-path-to-net-zero.html
+
 **In Texas, Infant Mortality Rose After Abortion Ban**\
 `A study points to fatal birth defects as a driver in the increase in infant deaths.`\
 https://nytimes.com/2024/06/26/upshot/in-texas-infant-mortality-rose-after-abortion-ban.html
