@@ -1,3 +1,7 @@
+**J.D. Vance Says He’ll Disappointed if Trump Doesn’t Pick Him for V.P.**\
+`Donald J. Trump’s increasingly theatrical selection process is entering its final phase, with his leading candidates participating in a series of Fox News interviews to make their case.`\
+https://nytimes.com/2024/06/26/us/politics/jd-vance-says-hell-disappointed-if-trump-doesnt-pick-him-for-vp.html
+
 **They Thought They Owned Condos. They Never Got the Deeds.**\
 `A tight-knit immigrant community trusted a developer as one of their own. But he pocketed the money, according to the state attorney general’s office.`\
 https://nytimes.com/2024/06/26/realestate/they-thought-they-owned-condos-they-never-got-the-deeds.html
@@ -26,15 +30,11 @@ https://nytimes.com/2024/06/26/business/dealbook/ceos-trump-biden-silent.html
 `Starbucks and its union are on track to reach a contract.`\
 https://nytimes.com/2024/06/26/briefing/starbucks-union-labor-contract.html
 
-**Death Toll in Kenya Tax Protests Rises to at Least 22, State Agency Says**\
-`Over 300 people were injured in the violence, the state rights agency said. Although businesses were slowly reopening after the unrest, the country remained on edge.`\
+**Death Toll in Kenya Tax Protests Rises to at Least 23, Rights Groups Say**\
+`Over 300 people were injured in the violence, the state human rights agency said. Although businesses were slowly reopening after the unrest, the country remained on edge.`\
 https://nytimes.com/2024/06/26/world/africa/kenya-protests-taxes.html
 
 **Gershkovich Trial Begins, and Kenya Rocked by Protests**\
 `Plus, a stinging primary defeat for progressives.`\
 https://nytimes.com/2024/06/26/podcasts/gershkovich-trial-kenya-protests.html
-
-**France’s Far Right at the Gates of Power**\
-`After a big loss in voting for the European Parliament, President Emmanuel Macron has gambled on new elections in France.`\
-https://nytimes.com/2024/06/26/podcasts/the-daily/france-elections.html
 
