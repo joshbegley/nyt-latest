@@ -1,3 +1,7 @@
+**Wednesday Briefing**\
+`Anti-tax protests tore through Kenya’s capital.`\
+https://nytimes.com/2024/06/26/briefing/kenya-nairobi-protests.html
+
 **Guess Who’s Back: A Trump Ally and Brexiteer Disrupts the U.K., Again**\
 `With his populist, anti-immigration campaign, Nigel Farage is once more shaking up Britain’s politics. Can he finally win a seat in the national Parliament?`\
 https://nytimes.com/2024/06/26/world/europe/nigel-farage-uk-politics.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/nyregion/bowman-latimer-takeaways-primary.html
 **State Senator Wins Swing-District House Primary in Central New York**\
 `John Mannion will challenge Representative Brandon Williams in what is considered one of the Democrats’ best hopes in the nation to flip a congressional seat.`\
 https://nytimes.com/2024/06/25/nyregion/mannion-hood-primary.html
-
-**Gov. Spencer Cox Holds Off Challenger From Right in Utah’s G.O.P. Primary**\
-`The governor’s rival, State Representative Phil Lyman, had the state party’s backing and argued that Mr. Cox was not conservative enough.`\
-https://nytimes.com/2024/06/25/us/politics/spencer-cox-utah-republican-primary.html
 
