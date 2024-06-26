@@ -1,3 +1,7 @@
+**Bowman Falls to Latimer in a Loss for Progressive Democrats**\
+`Representative Jamaal Bowman of New York, a member of the House’s left-wing “squad,” was defeated by George Latimer in a race that exposed Democratic fissures.`\
+https://nytimes.com/2024/06/25/nyregion/bowman-latimer-house-new-york.html
+
 **Gov. Spencer Cox Holds Off Challenger From Right in Utah’s G.O.P. Primary**\
 `The governor’s rival, State Representative Phil Lyman, had the state party’s backing and argued that Mr. Cox was not conservative enough.`\
 https://nytimes.com/2024/06/25/us/politics/spencer-cox-utah-republican-primary.html
