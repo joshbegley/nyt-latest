@@ -1,3 +1,7 @@
+**At Least 11 Americans Among Those Dead in Hajj Pilgrimage to Saudi Arabia**\
+`The daughter of one Maryland couple was still searching for answers about her parents’ deaths. The State Department said it was possible that more deaths could be confirmed.`\
+https://nytimes.com/2024/06/25/us/american-heat-mecca-hajj-wurie.html
+
 **Julian Assange Pleads Guilty to Espionage, Securing His Freedom**\
 `The WikiLeaks founder, who entered the plea in a U.S. courtroom in Saipan in the Western Pacific, now plans to fly home to Australia.`\
 https://nytimes.com/2024/06/25/world/australia/julian-assange-plea-deal-guilty.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/nyregion/taxi-driver-attack-sentence-nyc.html
 **A Wax Statue of Lincoln Melted Into a Meme**\
 `The sculpture was part of a series meant to comment on American monument culture. Cue the jokes instead.`\
 https://nytimes.com/2024/06/25/arts/lincoln-wax-statue-melted.html
-
-**Major Record Labels Sue A.I. Music Generators**\
-`The lawsuits say that Udio and Suno trained their products on reams of copyrighted music.`\
-https://nytimes.com/2024/06/25/arts/music/record-labels-ai-lawsuit-sony-universal-warner.html
 
