@@ -1,3 +1,7 @@
+**Plea Deal in Illinois Parade Shooting Falls Apart, Upsetting Victims’ Families**\
+`‘All I wanted was to be able to fully grieve my mom,’ one victim’s daughter said. The shooting at a Fourth of July parade two summers ago killed seven and wounded dozens more.`\
+https://nytimes.com/2024/06/26/us/highland-park-parade-shooting-plea-deal.html
+
 **Powered for Change: A New Path to Net Zero**\
 `Making meaningful progress toward a net-zero transition requires a new era of collaboration. Working together, industry leaders can flip a vicious cycle of inaction into a virtuous cycle of action.`\
 https://nytimes.com/paidpost/accenture-episode-39/powered-for-change-a-new-path-to-net-zero.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/26/opinion/global-warming-ocean-life.html
 **The Key to the Best Weeknight Chicken Dinner Is Already in Your Pan**\
 `Golden, salty schmaltz seasons a vibrant tomato and onion salad in this savory dish from Melissa Clark.`\
 https://nytimes.com/2024/06/26/dining/best-chicken-thighs.html
-
-**Following Protests, Kenya’s President Refuses to Sign Tax Bill**\
-`After the violent protests on Tuesday against a finance bill that would have raised the price on basics, President William Ruto of Kenya said that he would not sign the legislation.`\
-https://nytimes.com/video/world/africa/100000009541256/ruto-rejects-tax-bill.html
 
