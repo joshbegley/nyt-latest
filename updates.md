@@ -1,3 +1,7 @@
+**NATO Will Offer Ukraine a ‘Bridge’ to Membership, Hoping That’s Enough**\
+`Officials say Kyiv won’t get membership negotiations at the coming NATO summit, but the alliance will announce a structure to coordinate aid over the longer term.`\
+https://nytimes.com/2024/06/26/world/europe/nato-ukraine-washington-membership-summit.html
+
 **If You Give a Frog a Sauna, It Might Fight Off a Deadly Fungus**\
 `A fatal fungal disease has devastated the world’s amphibians. But the fungus has a vulnerability: It cannot tolerate heat.`\
 https://nytimes.com/2024/06/26/science/frogs-amphibians-chytrid-fungus.html

@@ -1,3 +1,7 @@
+**NATO Will Offer Ukraine a ‘Bridge’ to Membership, Hoping That’s Enough**\
+`Officials say Kyiv won’t get membership negotiations at the coming NATO summit, but the alliance will announce a structure to coordinate aid over the longer term.`\
+https://nytimes.com/2024/06/26/world/europe/nato-ukraine-washington-membership-summit.html
+
 **If You Give a Frog a Sauna, It Might Fight Off a Deadly Fungus**\
 `A fatal fungal disease has devastated the world’s amphibians. But the fungus has a vulnerability: It cannot tolerate heat.`\
 https://nytimes.com/2024/06/26/science/frogs-amphibians-chytrid-fungus.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/26/us/politics/jd-vance-says-hell-disappointed-if-tr
 **They Thought They Owned Condos. They Never Got the Deeds.**\
 `A tight-knit immigrant community trusted a developer as one of their own. But he pocketed the money, according to the state attorney general’s office.`\
 https://nytimes.com/2024/06/26/realestate/they-thought-they-owned-condos-they-never-got-the-deeds.html
-
-**A ruling that the military must draft ultra-Orthodox Jews had threatened to split Israel’s coalition government.**\
-`By Matthew Mpoke Bigg and Gabby Sobelman`\
-https://nytimes.com/live/2024/06/26/world/israel-gaza-war-hamas/a-ruling-that-the-military-must-draft-ultra-orthodox-jews-had-threatened-to-split-israels-coalition-government
 
