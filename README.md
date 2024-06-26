@@ -1,3 +1,7 @@
+**Read the Posted Document**\
+`Bloomberg published a copy of an opinion that appeared briefly on the Supreme Court’s website and seemed to concern an Idaho abortion case.`\
+https://nytimes.com/interactive/2024/06/26/us/politics/moyle-idaho.html
+
 **Five Charged in the Case of a Juror and a Gift Bag Stuffed With $120,000**\
 `Federal prosecutors in Minneapolis said the charges stemmed from an attempt to bribe a juror in a scheme involving the embezzlement of food aid meant for children.`\
 https://nytimes.com/2024/06/26/us/bribery-charges-minnesota-juror.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/26/us/harvard-antisemitism-muslim-bias.html
 **Supreme Court Appears Poised to Allow, for Now, Emergency Abortions in Idaho**\
 `According to Bloomberg News, a document posted briefly to the court’s website suggested a majority of the justices would reinstate a lower-court ruling that paused the state’s near-total abortion ban.`\
 https://nytimes.com/2024/06/26/us/politics/supreme-court-abortion-idaho.html
-
-**An Alabama Town’s New Mayor Was Locked Out. 3 Years Later, He Will Return.**\
-`Newbern, Ala., had not held elections in 50 years — until Patrick Braxton ran for office. But when Mr. Braxton won, he was blocked from carrying out his duties, he said in a lawsuit.`\
-https://nytimes.com/2024/06/26/us/alabama-mayor-patrick-braxton-settlement.html
 
