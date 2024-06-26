@@ -1,3 +1,11 @@
+**A ruling that the military must draft ultra-Orthodox Jews had threatened to split Israel’s coalition government.**\
+`By Matthew Mpoke Bigg and Gabby Sobelman`\
+https://nytimes.com/live/2024/06/26/world/israel-gaza-war-hamas/a-ruling-that-the-military-must-draft-ultra-orthodox-jews-had-threatened-to-split-israels-coalition-government
+
+**Behind the Unrest in Kenya, a Staggering and Painful National Debt**\
+`Kenya, the fastest growing economy in Africa, is on the brink of a fiscal calamity. Across Africa, nations are spending more on interest than on health or education.`\
+https://nytimes.com/2024/06/26/business/kenya-tax-protests-debt.html
+
 **Why Do I Have to Choose Between My Grandmother’s Funeral and a Birthday Party?**\
 `A reader’s brother-in-law is insisting that she accompany her children to his 1-year-old’s birthday party, even though attending would require her to miss an important funeral.`\
 https://nytimes.com/2024/06/26/style/first-birthday-party-petsitting.html
