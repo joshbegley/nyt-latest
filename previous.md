@@ -1,3 +1,15 @@
+**State Senator Wins Swing-District House Primary in Central New York**\
+`John Mannion will challenge Representative Brandon Williams in what is considered one of the Democrats’ best hopes in the nation to flip a congressional seat.`\
+https://nytimes.com/2024/06/25/nyregion/mannion-hood-primary.html
+
+**Gov. Spencer Cox Holds Off Challenger From Right in Utah’s G.O.P. Primary**\
+`The governor’s rival, State Representative Phil Lyman, had the state party’s backing and argued that Mr. Cox was not conservative enough.`\
+https://nytimes.com/2024/06/25/us/politics/gov-spencer-cox-holds-off-challenger-from-right-in-utahs-gop-primary.html
+
+**John Curtis, a Moderate House Republican, Wins Utah’s Senate Primary**\
+`Mr. Curtis has portrayed himself as a centrist workhorse in the image of the senator whose seat he is vying to fill: Mitt Romney.`\
+https://nytimes.com/2024/06/25/us/politics/john-curtis-a-moderate-house-republican-wins-utahs-senate-primary.html
+
 **Part of a Pecking Order?**\
 `Rebecca Goldstein’s puzzle is anything but pedestrian.`\
 https://nytimes.com/2024/06/25/crosswords/daily-puzzle-2024-06-26.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/25/us/american-heat-mecca-hajj-wurie.html
 **Julian Assange Pleads Guilty to Espionage, Securing His Freedom**\
 `The WikiLeaks founder, who entered the plea in a U.S. courtroom in Saipan in the Western Pacific, now plans to fly home to Australia.`\
 https://nytimes.com/2024/06/25/world/australia/julian-assange-plea-deal-guilty.html
-
-**Biden Officials Pushed to Remove Age Limits for Trans Surgery, Documents Show**\
-`Newly released emails from an influential group issuing transgender medical guidelines indicate that U.S. health officials lobbied to remove age minimums for surgery in minors because of concerns over political fallout.`\
-https://nytimes.com/2024/06/25/health/transgender-minors-surgeries.html
-
-**Father Who Drove Family Off Cliff Will Get Treatment Instead of Trial, Court Rules**\
-`Dharmesh A. Patel pleaded not guilty to three counts of attempted murder. Last week, he was found eligible for a mental health diversion, according to court records.`\
-https://nytimes.com/2024/06/25/us/california-doctor-family-cliff-trial.html
-
-**How the Midwest Floods Nearly Took Out a Century-Old Dam**\
-`Many American dams are aging and in need of serious repairs. Climate change only makes the problem more urgent.`\
-https://nytimes.com/2024/06/25/us/minnesota-dam-flooding.html
 
