@@ -1,3 +1,7 @@
+**Tension and Tear Gas Linger in Kenya After Tax Protests Turn Deadly**\
+`Businesses were slowly reopening a day after the government deployed the military to quell the unrest, but the country remained on edge.`\
+https://nytimes.com/2024/06/26/world/africa/kenya-protests-taxes.html
+
 **Gershkovich Trial Begins, and Kenya Rocked by Protests**\
 `Plus, a stinging primary defeat for progressives.`\
 https://nytimes.com/2024/06/26/podcasts/gershkovich-trial-kenya-protests.html
