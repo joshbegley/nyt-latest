@@ -1,3 +1,7 @@
+**Keith Robinson Doesn’t Want Audiences’ Pity. He Wants Their Laughs.**\
+`After two strokes, the stand-up has recovered enough to make a new special. If anything, his health crises have sharpened his humor.`\
+https://nytimes.com/2024/06/26/arts/television/keith-robinson-different-strokes-netflix.html
+
 **Supreme Court Rejects Challenge to Biden Administration’s Contacts With Social Media Companies**\
 `The case, one of several this term on how the First Amendment applies to technology platforms, was dismissed on the ground that the plaintiffs lacked standing to sue.`\
 https://nytimes.com/2024/06/26/us/politics/supreme-court-biden-free-speech.html

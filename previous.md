@@ -1,3 +1,7 @@
+**Keith Robinson Doesn’t Want Audiences’ Pity. He Wants Their Laughs.**\
+`After two strokes, the stand-up has recovered enough to make a new special. If anything, his health crises have sharpened his humor.`\
+https://nytimes.com/2024/06/26/arts/television/keith-robinson-different-strokes-netflix.html
+
 **Supreme Court Rejects Challenge to Biden Administration’s Contacts With Social Media Companies**\
 `The case, one of several this term on how the First Amendment applies to technology platforms, was dismissed on the ground that the plaintiffs lacked standing to sue.`\
 https://nytimes.com/2024/06/26/us/politics/supreme-court-biden-free-speech.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/26/style/first-birthday-party-petsitting.html
 **A Day at the National Domestic Violence Hotline**\
 `My colleague Emily Cochrane takes us behind the scenes of the hotline, which receives as many as 3,000 calls and messages a day.`\
 https://nytimes.com/2024/06/26/us/national-domestic-violence-hotline.html
-
-**Why Many C.E.O.s Are Silent on the Biden-Trump Rematch**\
-`The C-suite has been relatively quiet about the presidential election, as executives fear  becoming a political target.`\
-https://nytimes.com/2024/06/26/business/dealbook/ceos-trump-biden-silent.html
 
