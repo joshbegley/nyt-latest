@@ -1,3 +1,11 @@
+**Why Do I Have to Choose Between My Grandmother’s Funeral and a Birthday Party?**\
+`A reader’s brother-in-law is insisting that she accompany her children to his 1-year-old’s birthday party, even though attending would require her to miss an important funeral.`\
+https://nytimes.com/2024/06/26/style/first-birthday-party-petsitting.html
+
+**A Day at the National Domestic Violence Hotline**\
+`My colleague Emily Cochrane takes us behind the scenes of the hotline, which receives as many as 3,000 calls and messages a day.`\
+https://nytimes.com/2024/06/26/us/national-domestic-violence-hotline.html
+
 **Why Many C.E.O.s Are Silent on the Biden-Trump Rematch**\
 `The C-suite has been relatively quiet about the presidential election, as executives fear  becoming a political target.`\
 https://nytimes.com/2024/06/26/business/dealbook/ceos-trump-biden-silent.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/26/crosswords/connections-companion-382.html
 **What Joe Biden Could Learn From Betty White About Aging in Public**\
 `There’s a difference between being an elder statesman and an elderly one.`\
 https://nytimes.com/2024/06/26/opinion/biden-trump-tv-debate.html
-
-**Which V.P. Pick Will Help Trump Win? Four Columnists Rate the Field.**\
-`We take a look at J.D. Vance, Marco Rubio, Doug Burgum, Tim Scott, Elise Stefanik and more possible Republican running mates.`\
-https://nytimes.com/2024/06/26/opinion/trump-vp-pick.html
-
-**The World Turns Its Eyes From the Suffering in Sudan**\
-`What happened to the money — and the attention — pledged by the international community?`\
-https://nytimes.com/live/2024/06/25/opinion/thepoint/sudan-civil-war-famine
 
