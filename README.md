@@ -1,3 +1,11 @@
+**President Biden and Donald Trump, Some Tough Questions for Each of You**\
+`Where would each of the candidates lead us — or drag us — on foreign policy issues convulsing the world?`\
+https://nytimes.com/2024/06/26/opinion/biden-trump-debate-questions.html
+
+**Opposing Visions of a New South**\
+`While Maryland embraces egalitarianism, Louisiana veers toward Christian nationalism.`\
+https://nytimes.com/2024/06/26/opinion/wes-moore-jeff-landry-maryland-louisiana.html
+
 **Kaz Hosaka, 65, Dies; Led Two Poodles to Westminster Glory**\
 `He began handling dogs in his native Japan and then became a poodle specialist, leading Spice and Sage to Best in Show victories.`\
 https://nytimes.com/2024/06/26/sports/kaz-hosaka-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/06/26/us/biden-trump-election-debate/instagram-pol
 **South by Southwest Cuts Ties to Army After Gaza-Inspired Boycott**\
 `The festival said it would no longer be sponsored by the U.S. Army or weapons manufacturers, which had prompted artists to withdraw from this year’s gathering.`\
 https://nytimes.com/2024/06/26/arts/south-by-southwest-army.html
-
-**Prosecutors End Murder Case Against Austin Police Officer**\
-`The Travis County District Attorney’s Office said that the decision came after a grand jury declined to indict the officer, but lawyers for the officer said that prosecutors wanted to avoid embarrassment.`\
-https://nytimes.com/2024/06/26/us/christopher-taylor-charges-austin-police.html
-
-**Russell Morash, ‘This Old House’ and ‘The French Chef’ Producer, Dies at 88**\
-`Hailed as a pioneer of D.I.Y. programming, he oversaw groundbreaking how-to shows on public television in the days before HGTV and YouTube.`\
-https://nytimes.com/2024/06/26/arts/television/russell-morash-dead.html
 
