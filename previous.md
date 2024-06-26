@@ -1,3 +1,7 @@
+**Here’s what to know about the primaries.**\
+`By Claire Fahy, Carl Hulse, Chris Cameron and Simon J. Levien`\
+https://nytimes.com/live/2024/06/25/us/biden-trump-election-debate/heres-what-to-know-about-the-primaries
+
 **At Least 11 Americans Among Those Dead in Hajj Pilgrimage to Saudi Arabia**\
 `The daughter of one Maryland couple was still searching for answers about her parents’ deaths. The State Department said it was possible that more deaths could be confirmed.`\
 https://nytimes.com/2024/06/25/us/american-heat-mecca-hajj-wurie.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/us/politics/trump-documents-case.html
 **Man Who Attacked Cabdriver Sentenced to 10 Years for Manslaughter**\
 `Austin Amos assaulted a taxi driver in 2022 after he and a group of friends refused to pay the fare on a ride from Manhattan to Far Rockaway, Queens. Mr. Amos was 20 at the time.`\
 https://nytimes.com/2024/06/25/nyregion/taxi-driver-attack-sentence-nyc.html
-
-**A Wax Statue of Lincoln Melted Into a Meme**\
-`The sculpture was part of a series meant to comment on American monument culture. Cue the jokes instead.`\
-https://nytimes.com/2024/06/25/arts/lincoln-wax-statue-melted.html
 

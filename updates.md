@@ -1,3 +1,7 @@
+**Here’s what to know about the primaries.**\
+`By Claire Fahy, Carl Hulse, Chris Cameron and Simon J. Levien`\
+https://nytimes.com/live/2024/06/25/us/biden-trump-election-debate/heres-what-to-know-about-the-primaries
+
 **At Least 11 Americans Among Those Dead in Hajj Pilgrimage to Saudi Arabia**\
 `The daughter of one Maryland couple was still searching for answers about her parents’ deaths. The State Department said it was possible that more deaths could be confirmed.`\
 https://nytimes.com/2024/06/25/us/american-heat-mecca-hajj-wurie.html
