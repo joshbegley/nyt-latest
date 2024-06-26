@@ -1,3 +1,7 @@
+**Read the Posted Document**\
+`Bloomberg published a copy of an opinion that appeared briefly on the Supreme Court’s website and seemed to concern an Idaho abortion case.`\
+https://nytimes.com/interactive/2024/06/26/us/politics/moyle-idaho.html
+
 **Five Charged in the Case of a Juror and a Gift Bag Stuffed With $120,000**\
 `Federal prosecutors in Minneapolis said the charges stemmed from an attempt to bribe a juror in a scheme involving the embezzlement of food aid meant for children.`\
 https://nytimes.com/2024/06/26/us/bribery-charges-minnesota-juror.html
