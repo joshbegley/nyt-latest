@@ -1,3 +1,7 @@
+**Rogue to Victim: What Australia Sees in Julian Assange**\
+`Broad support for his release seems to have grown more out of resentment of his treatment by the U.S. justice system than concerns about press protections.`\
+https://nytimes.com/2024/06/26/world/australia/assange-justice.html
+
 **Julian Assange Walks Free After Guilty Plea**\
 `After more than a decade of legal battles, the founder of Wikileaks left a courthouse in Saipan and boarded a plane home for Australia.`\
 https://nytimes.com/video/us/politics/100000009540705/assange-plea-deal-free.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/26/world/europe/nigel-farage-uk-politics.html
 **Russia to Start Secret Trial of U.S. Reporter Accused of Espionage**\
 `Evan Gershkovich of The Wall Street Journal has endured 15 months in prison by reading letters and Russian classics, while the authorities have not publicly offered any evidence that he was a spy.`\
 https://nytimes.com/2024/06/26/world/europe/russia-evan-gershkovich-trial.html
-
-**Schools Got a Record $190 Billion in Pandemic Aid. Did It Work?**\
-`Two new studies suggest that the largest single federal investment in U.S. schools improved student test scores, but only modestly.`\
-https://nytimes.com/2024/06/26/us/pandemic-aid-recovery-schools.html
 

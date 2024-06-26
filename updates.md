@@ -1,3 +1,7 @@
+**Rogue to Victim: What Australia Sees in Julian Assange**\
+`Broad support for his release seems to have grown more out of resentment of his treatment by the U.S. justice system than concerns about press protections.`\
+https://nytimes.com/2024/06/26/world/australia/assange-justice.html
+
 **Julian Assange Walks Free After Guilty Plea**\
 `After more than a decade of legal battles, the founder of Wikileaks left a courthouse in Saipan and boarded a plane home for Australia.`\
 https://nytimes.com/video/us/politics/100000009540705/assange-plea-deal-free.html
