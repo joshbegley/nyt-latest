@@ -1,3 +1,11 @@
+**Part of a Pecking Order?**\
+`Rebecca Goldstein’s puzzle is anything but pedestrian.`\
+https://nytimes.com/2024/06/25/crosswords/daily-puzzle-2024-06-26.html
+
+**John Avlon Wins Political Debut in a House Primary in New York**\
+`Mr. Avlon, an author and former CNN personality, defeated Nancy Goroff, a retired chemistry professor, in a race in eastern Long Island.`\
+https://nytimes.com/2024/06/25/nyregion/avlon-goroff-primary.html
+
 **Bowman Falls to Latimer in House Primary in New York**\
 `Representative Jamaal Bowman of New York, a member of the House’s left-wing “squad,” was defeated by George Latimer in a race that exposed Democratic fissures.`\
 https://nytimes.com/2024/06/25/nyregion/bowman-latimer-house-new-york.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/25/us/california-doctor-family-cliff-trial.html
 **How the Midwest Floods Nearly Took Out a Century-Old Dam**\
 `Many American dams are aging and in need of serious repairs. Climate change only makes the problem more urgent.`\
 https://nytimes.com/2024/06/25/us/minnesota-dam-flooding.html
-
-**Newsom Uses Annual State Address to Confront Republicans Across the Nation**\
-`In an unconventional version of the State of the State, Gov. Gavin Newsom attacked Republicans and held up California as a beacon of democracy.`\
-https://nytimes.com/2024/06/25/us/newsom-address-state-california.html
-
-**Should American Jews Abandon Elite Universities?**\
-`An incident at Columbia suggests that schools beset with antisemitism are beyond salvation.`\
-https://nytimes.com/2024/06/25/opinion/jews-ivy-league-antisemitism.html
 
