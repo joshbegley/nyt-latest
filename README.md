@@ -1,3 +1,11 @@
+**Justices Appear to Mistakenly Reveal a Key Abortion Ruling**\
+`Also, a new poll on the eve of the debate. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/06/26/briefing/supreme-court-idaho-abortion-biden-trump-poll.html
+
+**Here’s the debate people want**\
+`I asked what you want moderators to ask Biden and Trump at the debate. You had many thoughts.`\
+https://nytimes.com/2024/06/26/us/politics/presidential-debate-trump-biden.html
+
 **Instagram fixes an ‘error’ over political content ahead of the debate.**\
 `By Sheera Frenkel`\
 https://nytimes.com/live/2024/06/26/us/biden-trump-election-debate/instagram-political-content-error
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/26/upshot/biden-trump-poll-outlier.html
 **Federal Officials Revise Recommendations for R.S.V. Vaccine**\
 `Among Americans aged 60 to 74, only those with certain health conditions need to receive the shots, the agency concluded.`\
 https://nytimes.com/2024/06/26/health/rsv-vaccine-cdc.html
-
-**Biden Restores Honor to Thousands of L.G.B.T.Q. Service Members**\
-`He and Congress must now reach for more daring possibilities.`\
-https://nytimes.com/2024/06/25/opinion/biden-lgbtq-service-members.html
-
-**Republicans Rally Behind Trump After Conviction, Times/Siena Poll Finds**\
-`The national survey found that more than two thirds of voters said the outcome of Donald J. Trump’s Manhattan criminal case made no difference to their vote.`\
-https://nytimes.com/2024/06/26/us/politics/trump-poll-hush-money-conviction.html
 
