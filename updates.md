@@ -1,3 +1,11 @@
+**Why Do I Have to Choose Between My Grandmother’s Funeral and a Birthday Party?**\
+`A reader’s brother-in-law is insisting that she accompany her children to his 1-year-old’s birthday party, even though attending would require her to miss an important funeral.`\
+https://nytimes.com/2024/06/26/style/first-birthday-party-petsitting.html
+
+**A Day at the National Domestic Violence Hotline**\
+`My colleague Emily Cochrane takes us behind the scenes of the hotline, which receives as many as 3,000 calls and messages a day.`\
+https://nytimes.com/2024/06/26/us/national-domestic-violence-hotline.html
+
 **Death Toll in Kenya Tax Protests Rises to at Least 22, State Agency Says**\
 `Over 300 people were injured in the violence, the state rights agency said. Although businesses were slowly reopening after the unrest, the country remained on edge.`\
 https://nytimes.com/2024/06/26/world/africa/kenya-protests-taxes.html
