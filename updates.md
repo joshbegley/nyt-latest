@@ -1,3 +1,7 @@
+**‘Woolf Works’ Review: A Literary Ballet’s Missteps**\
+`Wayne McGregor’s 2015 work, making its New York debut with American Ballet Theater, fails to make dance poetry of Virginia Woolf’s novels.`\
+https://nytimes.com/2024/06/26/arts/dance/review-woolf-works-mcgregor-american-ballet-theater.html
+
 **How Ocean Warming Is Warping the World**\
 `The effects of ocean warming are vast, but often invisible.`\
 https://nytimes.com/2024/06/26/opinion/global-warming-ocean-life.html
