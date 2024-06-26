@@ -1,3 +1,7 @@
+**San Diego Zoo to Receive 2 Giant Pandas From China**\
+`The pandas, Yun Chuan and Xin Bao, will be the first to enter the United States in 21 years, the San Diego Zoo said.`\
+https://nytimes.com/2024/06/26/us/san-diego-zoo-giant-pandas-china.html
+
 **House G.O.P. Pushes Deep Cuts to Federal Law Enforcement**\
 `Republicans put forward a spending bill that would slash funding for federal law enforcement, though they failed to find a way to defund the special counsel prosecuting former President Donald J. Trump.`\
 https://nytimes.com/2024/06/26/us/politics/gop-spending-cuts-law-enforcement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/26/business/media/nbc-olympics-ai.html
 **CNN releases the first image of a sleek presidential debate stage.**\
 `By Michael M. Grynbaum`\
 https://nytimes.com/live/2024/06/26/us/biden-trump-election-debate/cnn-presidential-debate-stage
-
-**Harvard Reports Find Climate of Bias for Both Jewish and Muslim Groups**\
-`In preliminary reports, task forces on antisemitism and anti-Muslim bias urged the university to take steps to address the discrimination on campus.`\
-https://nytimes.com/2024/06/26/us/harvard-antisemitism-muslim-bias.html
 

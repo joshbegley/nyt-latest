@@ -1,3 +1,7 @@
+**House G.O.P. Pushes Deep Cuts to Federal Law Enforcement**\
+`Republicans put forward a spending bill that would slash funding for federal law enforcement, though they failed to find a way to defund the special counsel prosecuting former President Donald J. Trump.`\
+https://nytimes.com/2024/06/26/us/politics/gop-spending-cuts-law-enforcement.html
+
 **Read the Posted Document**\
 `Bloomberg published a copy of an opinion that appeared briefly on the Supreme Court’s website and seemed to concern an Idaho abortion case.`\
 https://nytimes.com/interactive/2024/06/26/us/politics/moyle-idaho.html
