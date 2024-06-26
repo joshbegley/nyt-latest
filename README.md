@@ -1,5 +1,17 @@
-**Bolivia’s Military Attempts a Coup**\
-`The coup attempt, which is not supported by any political faction, took the country by surprise.`\
+**Banks Could Weather Even Extreme Economic Tumult, Fed Finds**\
+`The Federal Reserve for the first time tested major banks’ ability to withstand crisis scenarios — and the largest U.S. lenders stood tall.`\
+https://nytimes.com/2024/06/26/business/bank-stress-tests.html
+
+**Vermont Man Arrested After Giving Trooper Middle Finger Gets $175,000**\
+`The state and the arresting officer settled a case with a man who argued that he had been exercising his First Amendment rights.`\
+https://nytimes.com/2024/06/26/us/vermont-profanity-arrest.html
+
+**The Vanishing Islands That Failed to Vanish**\
+`Low-lying tropical island nations were expected to be early victims of rising seas. But research tells a surprising story: Many islands are stable. Some have even grown.`\
+https://nytimes.com/interactive/2024/06/26/climate/maldives-islands-climate-change.html
+
+**Bolivia’s Military Accused of Coup Attempt**\
+`Members of the country’s military gathered outside the presidential palace on Wednesday, President Luis Arce said, an action that took the country by surprise.`\
 https://nytimes.com/2024/06/26/world/americas/bolivia-unrest-military.html
 
 **The Episcopal Church Has Elected Its Youngest Leader in Centuries**\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/26/us/karen-read-murder-trial.html
 **Popcast (Deluxe): Will There Ever Be Another Global Pop Icon?**\
 `In a moment of success for newcomers like Sabrina Carpenter and Chappell Roan, is there still a path to becoming a true cross-platform pop superstar?`\
 https://nytimes.com/2024/06/26/arts/music/sabrina-carpenter-chappell-roan-popcast.html
-
-**Former President of Honduras Sentenced to 45 Years in Sweeping Drug Case**\
-`Juan Orlando Hernández connived with traffickers as his country became a base of operations for cocaine shipments to the United States.`\
-https://nytimes.com/2024/06/26/nyregion/honduras-juan-olando-hernando-sentenced-drug-case.html
-
-**Tom Prasada-Rao, Whose Song Elegized George Floyd, Dies at 66**\
-`His 2020 lament “$20 Bill” was covered by scores of his fellow artists and, a fellow musician said, might well be destined for the folk music canon.`\
-https://nytimes.com/2024/06/26/arts/music/tom-prasada-rao-dead.html
-
-**In South Carolina, 3 G.O.P. Senators Fought an Abortion Ban. They Lost Their Races.**\
-`The Republican women in the group of five “Sister Senators” faced primary challenges who support a near-total ban.`\
-https://nytimes.com/2024/06/26/us/gop-senators-sc-abortion-ban-primary.html
 
