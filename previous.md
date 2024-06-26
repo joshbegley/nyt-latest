@@ -1,3 +1,7 @@
+**Mark Rutte Moves From Leading Netherlands to Heading NATO**\
+`Mr. Rutte, who served as the Dutch prime minister for nearly 14 years, has been a harsh critic of Russia’s president, Vladimir V. Putin, and a strong supporter of Ukraine.`\
+https://nytimes.com/2024/06/26/world/europe/mark-rutte-nato-secretary-general.html
+
 **Where Does Chanel Go From Here?**\
 `It’s between designers, and at a crossroad.`\
 https://nytimes.com/2024/06/26/style/chanel-couture.html
@@ -18,7 +22,7 @@ https://nytimes.com/2024/06/26/nyregion/new-york-private-schools-israel-gaza.htm
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/06/26/crosswords/spelling-bee-forum.html
 
-**The U.N. is pressing Israel for help in delivering aid to Gaza.**\
+**A U.N. official called on Israel to offer more protection for aid workers, as hunger experts warned that Gaza was at high risk of famine.**\
 `By Ephrat Livni and Anjana Sankar`\
 https://nytimes.com/live/2024/06/26/world/israel-gaza-war-hamas/un-israel-aid-gaza
 
