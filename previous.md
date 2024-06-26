@@ -1,3 +1,7 @@
+**Why Many C.E.O.s Are Silent on the Biden-Trump Rematch**\
+`The C-suite has been relatively quiet about the presidential election, as executives fear  becoming a political target.`\
+https://nytimes.com/2024/06/26/business/dealbook/ceos-trump-biden-silent.html
+
 **A Development in the U.S. Labor Movement**\
 `Starbucks and its union are on track to reach a contract.`\
 https://nytimes.com/2024/06/26/briefing/starbucks-union-labor-contract.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/26/opinion/trump-vp-pick.html
 **The World Turns Its Eyes From the Suffering in Sudan**\
 `What happened to the money — and the attention — pledged by the international community?`\
 https://nytimes.com/live/2024/06/25/opinion/thepoint/sudan-civil-war-famine
-
-**Biden Expected to Pardon Veterans Convicted of Having Gay Sex**\
-`The president’s proclamation would grant clemency to around 2,000 people charged between 1951 and 2013 under a military code that outlawed the behavior.`\
-https://nytimes.com/2024/06/26/us/politics/biden-pardon-veterans-gay-sex.html
 

@@ -1,3 +1,7 @@
+**Why Many C.E.O.s Are Silent on the Biden-Trump Rematch**\
+`The C-suite has been relatively quiet about the presidential election, as executives fear  becoming a political target.`\
+https://nytimes.com/2024/06/26/business/dealbook/ceos-trump-biden-silent.html
+
 **A Development in the U.S. Labor Movement**\
 `Starbucks and its union are on track to reach a contract.`\
 https://nytimes.com/2024/06/26/briefing/starbucks-union-labor-contract.html
