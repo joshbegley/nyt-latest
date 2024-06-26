@@ -1,3 +1,7 @@
+**San Diego Zoo to Receive 2 Giant Pandas From China**\
+`The pandas, Yun Chuan and Xin Bao, will be the first to enter the United States in 21 years, the San Diego Zoo said.`\
+https://nytimes.com/2024/06/26/us/san-diego-zoo-giant-pandas-china.html
+
 **House G.O.P. Pushes Deep Cuts to Federal Law Enforcement**\
 `Republicans put forward a spending bill that would slash funding for federal law enforcement, though they failed to find a way to defund the special counsel prosecuting former President Donald J. Trump.`\
 https://nytimes.com/2024/06/26/us/politics/gop-spending-cuts-law-enforcement.html
