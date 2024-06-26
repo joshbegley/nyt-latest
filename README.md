@@ -1,3 +1,11 @@
+**Tom Prasada-Rao, Whose Song Elegized George Floyd, Dies at 66**\
+`His 2020 lament “$20 Bill” was covered by scores of his fellow artists and, a fellow musician said, might well be destined for the folk music canon.`\
+https://nytimes.com/2024/06/26/arts/music/tom-prasada-rao-dead.html
+
+**In South Carolina, 3 G.O.P. Senators Fought an Abortion Ban. They Lost Their Races.**\
+`The Republican women in the group of five “Sister Senators” faced primary challenges who support a near-total ban.`\
+https://nytimes.com/2024/06/26/us/gop-senators-sc-abortion-ban-primary.html
+
 **Marilyn Monroe’s House Is Made a Los Angeles Landmark in Council Vote**\
 `The historical designation came after a bitter battle between the city and the homeowners who had planned to demolish the home. Neighborhood associations also opposed the move.`\
 https://nytimes.com/2024/06/26/us/marilyn-monroe-house-los-angeles.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/26/movies/fahrenheit-9-11-anniversary.html
 **What the Court’s Ruling on Drafting the Ultra-Orthodox Means for Israel**\
 `Israel’s insular ultra-Orthodox community has long been exempt from military service. The Supreme Court’s decision to end that exemption could change the country’s social and political dynamics.`\
 https://nytimes.com/2024/06/26/world/middleeast/what-the-courts-ruling-on-drafting-the-ultra-orthodox-means-for-israel.html
-
-**A Look Back at Memorable Presidential Debate Moments**\
-`Almost every televised debate, since the first one in 1960, has had a singular quip, gaffe or exchange that sticks in public memory.`\
-https://nytimes.com/2024/06/26/us/politics/presidential-debates-key-moments.html
-
-**Now Narrating the Olympics: A.I.-Al Michaels**\
-`NBC will offer a customized, daily highlight reel with A.I.-generated narration that sounds like the longtime broadcaster.`\
-https://nytimes.com/2024/06/26/business/media/nbc-olympics-ai.html
 
