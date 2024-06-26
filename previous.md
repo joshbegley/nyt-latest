@@ -1,3 +1,11 @@
+**What the Court’s Ruling on Drafting the Ultra-Orthodox Means for Israel**\
+`Israel’s insular ultra-Orthodox community has long been exempt from military service. The Supreme Court’s decision to end that exemption could change the country’s social and political dynamics.`\
+https://nytimes.com/2024/06/26/world/middleeast/what-the-courts-ruling-on-drafting-the-ultra-orthodox-means-for-israel.html
+
+**A Look Back at Memorable Presidential Debate Moments**\
+`Almost every televised debate, since the first one in 1960, has had a singular quip, gaffe or exchange that sticks in public memory.`\
+https://nytimes.com/2024/06/26/us/politics/presidential-debates-key-moments.html
+
 **Now Narrating the Olympics: A.I.-Al Michaels**\
 `NBC will offer a customized, daily highlight reel with A.I.-generated narration that sounds like the longtime broadcaster.`\
 https://nytimes.com/2024/06/26/business/media/nbc-olympics-ai.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/26/nyregion/nyc-congestion-pricing-mta.html
 **Plea Deal in Illinois Parade Shooting Falls Apart, Upsetting Victims’ Families**\
 `‘All I wanted was to be able to fully grieve my mom,’ one victim’s daughter said. The shooting at a Fourth of July parade two summers ago killed seven and wounded dozens more.`\
 https://nytimes.com/2024/06/26/us/highland-park-parade-shooting-plea-deal.html
-
-**Powered for Change: A New Path to Net Zero**\
-`Making meaningful progress toward a net-zero transition requires a new era of collaboration. Working together, industry leaders can flip a vicious cycle of inaction into a virtuous cycle of action.`\
-https://nytimes.com/paidpost/accenture-episode-39/powered-for-change-a-new-path-to-net-zero.html
-
-**In Texas, Infant Mortality Rose After Abortion Ban**\
-`A study points to fatal birth defects as a driver in the increase in infant deaths.`\
-https://nytimes.com/2024/06/26/upshot/in-texas-infant-mortality-rose-after-abortion-ban.html
 

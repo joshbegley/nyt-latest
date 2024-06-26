@@ -1,3 +1,11 @@
+**What the Court’s Ruling on Drafting the Ultra-Orthodox Means for Israel**\
+`Israel’s insular ultra-Orthodox community has long been exempt from military service. The Supreme Court’s decision to end that exemption could change the country’s social and political dynamics.`\
+https://nytimes.com/2024/06/26/world/middleeast/what-the-courts-ruling-on-drafting-the-ultra-orthodox-means-for-israel.html
+
+**A Look Back at Memorable Presidential Debate Moments**\
+`Almost every televised debate, since the first one in 1960, has had a singular quip, gaffe or exchange that sticks in public memory.`\
+https://nytimes.com/2024/06/26/us/politics/presidential-debates-key-moments.html
+
 **Now Narrating the Olympics: A.I.-Al Michaels**\
 `NBC will offer a customized, daily highlight reel with A.I.-generated narration that sounds like the longtime broadcaster.`\
 https://nytimes.com/2024/06/26/business/media/nbc-olympics-ai.html
