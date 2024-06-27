@@ -12,7 +12,7 @@ https://nytimes.com/2024/06/27/world/asia/china-military-corruption.html
 
 **The Rules for the Biden-Trump Presidential Debate on CNN**\
 `Here is an overview of the rules that the two campaigns have agreed to with CNN, the evening’s host.`\
-https://nytimes.com/2024/06/27/us/politics/the-rules-for-the-biden-trump-presidential-debate-on-cnn.html
+https://nytimes.com/2024/06/27/us/politics/cnn-presidential-debate-rules.html
 
 **Betty Boop Time Travels to New York, and Broadway, Next Spring**\
 `“BOOP! The Betty Boop Musical” had a run in Chicago late last year. It is slated to open at a Shubert theater in April.`\
