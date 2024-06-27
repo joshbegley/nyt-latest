@@ -1,3 +1,7 @@
+**That’s That Basil Pesto**\
+`Pesto is a summer hitmaker, making heirloom tomato tarts, herby potato salads and super quick weeknight pastas sing.`\
+https://nytimes.com/2024/06/27/dining/pesto-recipes-pizza-potato-salad.html
+
 **The Supreme Court Neuters a Vital Public Watchdog**\
 `Upending decades of precedent, the court’s conservatives make it much harder for important agencies to do their jobs.`\
 https://nytimes.com/2024/06/25/opinion/court-sec-administrative-state.html
