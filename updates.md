@@ -1,3 +1,7 @@
+**Emily Henry on Writing Best-Sellers Without Tours and TikTok**\
+`The author of “Funny Story” churned out five consecutive No. 1 best-sellers without leaving her comfort zone. How did she pull it off?`\
+https://nytimes.com/2024/06/27/books/funny-story-emily-henry.html
+
 **‘The Vourdalak’ Review: Blood Relations**\
 `An endangered French aristocrat is stranded with a benighted rural family in this tragicomic fairy tale.`\
 https://nytimes.com/2024/06/27/movies/the-vourdalak-review.html
