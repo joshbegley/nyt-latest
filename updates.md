@@ -1,3 +1,7 @@
+**NFL won't hold Supplemental Draft this year: Sources**\
+`Supplemental Draft was installed in 1977 as an option for draft-eligible players who did not declare for the regular NFL Draft.`\
+https://nytimes.com/athletic/5596943/2024/06/27/nfl-no-supplemental-draft-2024/
+
 **Purdue Opioid Settlement on Verge of Collapse After Supreme Court Ruling**\
 `Plaintiffs and the company vowed to renegotiate but the talks will be challenging after the court struck down a provision the Sacklers had insisted on in exchange for $6 billion.`\
 https://nytimes.com/2024/06/27/health/purdue-pharma-sackler-opioid-supreme-court.html

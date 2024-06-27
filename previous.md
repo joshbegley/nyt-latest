@@ -1,3 +1,7 @@
+**NFL won't hold Supplemental Draft this year: Sources**\
+`Supplemental Draft was installed in 1977 as an option for draft-eligible players who did not declare for the regular NFL Draft.`\
+https://nytimes.com/athletic/5596943/2024/06/27/nfl-no-supplemental-draft-2024/
+
 **Fact-Checking Biden’s and Trump’s Claims on Domestic Policy**\
 `We scrutinized the presidential candidates’ recent claims on abortion, health care, crime and climate change ahead of the debate.`\
 https://nytimes.com/2024/06/27/us/biden-trump-fact-check-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5597004/2024/06/27/manchester-united-ten-hag-van-de
 **Oilers GM Ken Holland won't return next season**\
 `Holland oversaw Edmonton's four playoff appearances and this year's Stanley Cup Final appearance during his tenure.`\
 https://nytimes.com/athletic/5596900/2024/06/27/ken-holland-oilers-leaving/
-
-**Georgia Gov. Brian Kemp Says He Did Not Vote for Trump in G.O.P. Primary**\
-`The Republican governor, who certified the results of the 2020 election against Trump’s wishes, said he cast a blank ballot in the primary.`\
-https://nytimes.com/2024/06/27/us/politics/brian-kemp-donald-trump-gop-primary.html
 
