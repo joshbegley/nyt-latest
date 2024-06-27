@@ -1,3 +1,11 @@
+**Biden vs. Trump on Climate Policy**\
+`Ahead of the first presidential debate, we examined the climate stakes in this year’s election.`\
+https://nytimes.com/2024/06/27/climate/biden-vs-trump-on-climate-policy.html
+
+**Supreme Court Rejects Liability Shield at Center of Purdue Pharma Settlement**\
+`The liability shield would have protected members of the Sackler family from civil claims related to the opioid epidemic.`\
+https://nytimes.com/2024/06/27/us/supreme-court-opioid-settlement.html
+
 **Supreme Court Blocks Biden Plan on Air Pollution**\
 `Three states challenged the administration’s “good neighbor” plan, meant to protect downwind states from harmful emissions.`\
 https://nytimes.com/2024/06/27/us/politics/supreme-court-biden-air-pollution.html

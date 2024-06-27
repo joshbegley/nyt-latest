@@ -1,3 +1,11 @@
+**Biden vs. Trump on Climate Policy**\
+`Ahead of the first presidential debate, we examined the climate stakes in this year’s election.`\
+https://nytimes.com/2024/06/27/climate/biden-vs-trump-on-climate-policy.html
+
+**Supreme Court Rejects Liability Shield at Center of Purdue Pharma Settlement**\
+`The liability shield would have protected members of the Sackler family from civil claims related to the opioid epidemic.`\
+https://nytimes.com/2024/06/27/us/supreme-court-opioid-settlement.html
+
 **Supreme Court Blocks Biden Plan on Air Pollution**\
 `Three states challenged the administration’s “good neighbor” plan, meant to protect downwind states from harmful emissions.`\
 https://nytimes.com/2024/06/27/us/politics/supreme-court-biden-air-pollution.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/27/sports/cycling/tour-de-france-preview.html
 **Rich Gulf States Have Huge Ambitions. Will Extreme Heat Hold Them Back?**\
 `The high temperatures blamed for the deaths of pilgrims in Saudi Arabia are taking a broad toll in countries that have spent vast sums to attract tourists and investors.`\
 https://nytimes.com/2024/06/27/world/middleeast/gulf-states-heat-climate-change.html
-
-**A June presidential debate is early by modern standards. Here’s what to know.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/06/27/us/biden-trump-debate/a-june-presidential-debate-is-early-by-modern-standards-heres-what-to-know
-
-**Live Updates: Biden and Trump to Debate Tonight, and Stakes Are High**\
-`Four years after they last shared a stage, President Biden and former President Donald J. Trump will debate Thursday in Atlanta. The Times will carry the debate live at 9 p.m. Eastern time.`\
-https://nytimes.com/live/2024/06/27/us/biden-trump-debate
 
