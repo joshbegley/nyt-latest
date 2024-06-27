@@ -1,3 +1,7 @@
+**Blackhawks' Connor Bedard wins Calder Trophy**\
+`He became the ninth Blackhawks player to win the Calder as the league’s top rookie Thursday night.`\
+https://nytimes.com/athletic/5598066/2024/06/27/connor-bedard-calder-trophy-blackhawks/
+
 **Schools Police Chief Indicted in Uvalde Shooting Response**\
 `A grand jury indicted the former chief of police for schools in Uvalde, Texas, for his role in the delayed response to a gunman who killed 19 students and two teachers in 2022.`\
 https://nytimes.com/2024/06/27/us/uvalde-shooting-pete-arredondo-indicted.html
