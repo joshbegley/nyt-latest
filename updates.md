@@ -1,3 +1,11 @@
+**Our Reporter on the Shape-Shifting Maldives**\
+`Low-lying tropical island nations were expected to be early victims of rising seas. But research tells a surprising story.`\
+https://nytimes.com/video/climate/100000009532243/our-reporter-on-the-shape-shifting-maldives.html
+
+**NFL ordered to pay over $4 billion in Sunday Ticket lawsuit: Reports**\
+`The NFL was ordered to pay $4 billion to residential subscribers and $96 million to commercial subscribers.`\
+https://nytimes.com/athletic/5597969/2024/06/27/nfl-sunday-ticket-lawsuit/
+
 **With Two Major Events, Atlanta Prepares for Traffic to Slow to a Near Standstill**\
 `The two events, the U.S. men’s soccer team vs. Panama and President Biden vs. former President Donald J. Trump, will take place only miles apart.`\
 https://nytimes.com/2024/06/27/us/atlanta-traffic-debate-soccer.html
