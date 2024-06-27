@@ -1,6 +1,18 @@
+**Four Fantastic Frozen Drinks (and What to Eat With Them)**\
+`Old Bay waffle fries, loaded nachos or a Nathan’s hot dog on the Coney Island boardwalk will go nicely.`\
+https://nytimes.com/2024/06/27/dining/four-fantastic-frozen-drinks-and-what-to-eat-with-them.html
+
+**What Maureen Dowd, Tom Friedman and Other Opinion Writers Would Ask at the Debate**\
+`A few suggestions from our staff.`\
+https://nytimes.com/live/2024/06/25/opinion/thepoint/debate-questions-opinion-suggestions
+
 **A Rare White Buffalo Calf Arrives in Yellowstone With a Message**\
 `The calf, named Wakan Gli, is said to fulfill a Lakota prophecy that brings hope, but its birth is also a sign that more must be done to protect the Earth, a Lakota spiritual leader says.`\
 https://nytimes.com/2024/06/27/us/white-buffalo-yellowstone-lakota-prophecy.html
+
+**Dallas Stars buying out Ryan Suter ahead of final year of contract: Sources**\
+`Suter will become a UFA and is the second NHL player to be bought out twice. Tony DeAngelo was the other.`\
+https://nytimes.com/athletic/5597856/2024/06/27/ryan-suter-dallas-stars-buyout/
 
 **Elaine Schwartz, Longtime Principal of an Innovative School, Dies at 92**\
 `A co-founder of the Center School in Manhattan, she implemented once-radical ideas that put the students first. She retired four decades later, at 91.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/27/us/politics/jake-tapper-presidential-debate-moder
 **Meet the Moderator: Dana Bash.**\
 `What you need to know about CNN’s chief political correspondent.`\
 https://nytimes.com/2024/06/27/us/politics/dana-bash-presidential-debate-moderator.html
-
-**Bullpen report: Ben Joyce adding to his repertoire, Jhoan Durán velocity concerns and more**\
-`In his latest MLB bullpen report, Greg Jewett notes that a new pitch has Ben Joyce trending in the direction of future save opportunities.`\
-https://nytimes.com/athletic/5597676/2024/06/27/bullpen-report-ben-joyce-jhoan-duran-fantasy-baseball-2024-closers/
-
-**After Travel Meltdowns, Amtrak and N.J. Transit Offer Plan to Fix Mess**\
-`Officials of the two transit agencies met in an impromptu meeting on Thursday called by New Jersey’s governor, Philip D. Murphy.`\
-https://nytimes.com/2024/06/27/nyregion/nj-transit-amtrak-delays.html
-
-**Sandy Hook Families’ Fight for Alex Jones’s Money Takes an Ugly Turn**\
-`A scramble for the Infowars host’s meager assets pits Sandy Hook victims’ families against one another in court.`\
-https://nytimes.com/2024/06/27/us/politics/alex-jones-sandy-hook.html
 
