@@ -1,3 +1,11 @@
+**On the End of the Line, Hundreds of Frantic Voices Seek Help**\
+`A reporter observed a day of messages to the National Domestic Violence Hotline. She does not know the callers’ names, but she’ll never forget their stories.`\
+https://nytimes.com/2024/06/27/insider/on-the-end-of-the-line-hundreds-of-frantic-voices-seek-help.html
+
+**It’s Debate Night**\
+`Also, a Supreme Court ruling on the Purdue settlement. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/06/27/briefing/trump-biden-debate-night-kara-walker-art.html
+
 **Jamie Kellner, TV Executive Who Started Fox and WB, Dies at 77**\
 `With an emphasis on younger viewers, he established the networks as serious rivals to ABC, CBS and NBC, which had ruled television for nearly 40 years.`\
 https://nytimes.com/2024/06/27/business/media/jamie-kellner-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5597918/2024/06/27/mlb-strike-zone-box-dugout/
 **A Trump Will Be in the Debate Spin Room (for Biden)**\
 `Mary Trump, Donald J. Trump’s estranged niece, is among the half-dozen representatives that the Biden campaign is deploying to the spin room on Thursday.`\
 https://nytimes.com/2024/06/27/us/politics/biden-mary-trump-debate-surrogates.html
-
-**Friday Briefing: What to Watch in the French Election**\
-`Also, the upcoming U.S. presidential debate and the vote in Iran.`\
-https://nytimes.com/2024/06/27/world/asia/france-iran-us-debate-election-asia.html
-
-**New Covid Shots Recommended for Americans 6 Months and Older This Fall**\
-`As the virus continues to mutate, scientific advisers to the C.D.C. are urging Americans to roll up their sleeves again for annual vaccinations.`\
-https://nytimes.com/2024/06/27/health/covid-vaccines-seniors-children.html
 
