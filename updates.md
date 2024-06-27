@@ -1,3 +1,11 @@
+**Two women sparred in the first televised presidential debate 68 years ago.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/two-women-sparred-in-the-first-televised-presidential-debate-68-years-ago
+
+**Until Saturday: Colorado wildly overrated by EA Sports**\
+`Welcome to Until Saturday, the five-star college football newsletter: Did you make EA Sports' cut? `\
+https://nytimes.com/athletic/5597600/2024/06/27/ea-sports-college-football-ratings-colorado-until-saturday/
+
 **Beware the Billionaire Blinders**\
 `It seems like Jeff Yass simply can’t fathom anyone earning less than $100,000 a year.`\
 https://nytimes.com/live/2024/06/25/opinion/thepoint/jeff-yass-billionaire-interview

@@ -1,3 +1,7 @@
+**Ready to Debate**\
+`Donald Trump takes the stage tonight with a gag order partially lifted.`\
+https://nytimes.com/2024/06/27/us/politics/trump-trial-debate-gag-order.html
+
 **Two women sparred in the first televised presidential debate 68 years ago.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/two-women-sparred-in-the-first-televised-presidential-debate-68-years-ago
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5597393/2024/06/27/blackhawks-trade-nhl-draft-contr
 **A Trilobite Pompeii Preserves Exquisite Fossils in Volcanic Ash**\
 `A fossil bed in the High Atlas Mountains of Morocco is allowing new insights into the anatomies of arthropods that lived a half-billion years ago.`\
 https://nytimes.com/2024/06/27/science/trilobites-fossils-volcanic-ash-pompeii.html
-
-**Study Finds Small Streams, Recently Stripped of Protections, Are a Big Deal**\
-`Half of the water flowing through regional river basins starts in so-called ephemeral streams. Last year, the Supreme Court curtailed federal protections for these waterways.`\
-https://nytimes.com/2024/06/27/climate/small-streams-pollution-supreme-court.html
 
