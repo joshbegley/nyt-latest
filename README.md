@@ -1,3 +1,19 @@
+**Biden Campaign Takes Aim at Project 2025, a Set of Conservative Proposals**\
+`The plan to dramatically reshape the federal government differs from Trump’s official platform, and has drawn attention on social media.`\
+https://nytimes.com/2024/06/27/us/politics/biden-trump-project-2025.html
+
+**Djokovic gives thumbs-up for Wimbledon draw after Sinner practice**\
+`Novak Djokovic came through a practice match with Jannik Sinner on Centre Court on Thursday and said afterwards that he is “feeling good”.`\
+https://nytimes.com/athletic/5597002/2024/06/27/novak-djokovic-injury-wimbledon-2024-sinner/
+
+**Three Great Documentaries to Stream**\
+`This month’s picks look at a summer in Paris, a summer at the Olympics and the heat of the erotic thriller.`\
+https://nytimes.com/2024/06/27/movies/documentaries-streaming.html
+
+**Olympic contender Blakely withdraws from gymnastics trials**\
+`Blakely suffered the injury while performing a double layout on floor during podium training Wednesday.  `\
+https://nytimes.com/athletic/5594832/2024/06/27/skye-blakely-olympic-gymnastics-trials-injury/
+
 **What does Notre Dame-MSU rivalry return mean for future scheduling?**\
 `Two of Notre Dame’s future football schedules will have a vintage feel to them, as the school announced the return of a home-and-home with Michigan State in the 2026-27 seasons.`\
 https://nytimes.com/athletic/5596971/2024/06/27/notre-dame-michigan-state-football-schedule/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5595507/2024/06/27/college-football-25-best-offense
 **Cover Art for ‘Harry Potter’ Sold at Auction for $1.92 Million**\
 `The watercolor was painted in 1996 by a recent art school graduate from Britain who was working at a bookstore. He was paid $650.`\
 https://nytimes.com/2024/06/27/books/harry-potter-cover-art-auction.html
-
-**Trump turned to familiar tactics before the debate, like a wild claim about drugs.**\
-`By Katie Rogers, Michael Gold and Simon J. Levien`\
-https://nytimes.com/live/2024/06/27/us/biden-trump-debate/trump-turned-to-familiar-tactics-before-the-debate-like-a-wild-claim-about-drugs
-
-**Russia Sends Waves of Troops to the Front in a Brutal Style of Fighting**\
-`More than 1,000 Russian soldiers in Ukraine were killed or wounded on average each day in May, according to NATO and Western military officials.`\
-https://nytimes.com/2024/06/27/us/politics/russia-casualties-ukraine-war.html
-
-**Supreme Court Allows, for Now, Emergency Abortions in Idaho**\
-`A majority of the justices dismissed the case, reinstating a lower-court ruling that paused the state’s near-total abortion ban.`\
-https://nytimes.com/2024/06/27/us/politics/supreme-court-idaho-abortion.html
-
-**Supreme Court Rejects S.E.C.’s Administrative Tribunals**\
-`Such tribunals, common in executive agencies, hear enforcement actions without juries, a practice that challengers said violated the Constitution.`\
-https://nytimes.com/2024/06/27/us/politics/supreme-court-sec-tribunal.html
 
