@@ -1,3 +1,11 @@
+**MAGA Is Not Getting Everything It Wants From the Supreme Court**\
+`The Trumpist right is presenting aggressive legal theories that fail again and again.`\
+https://nytimes.com/2024/06/27/opinion/supreme-court-murthy-missouri-social-media.html
+
+**Bolivia’s President Confronts a Coup Attempt — and His Onetime Mentor**\
+`After facing down the general who tried to oust him, President Luis Arce is battling a more formidable figure, Evo Morales, a former president who wants to reclaim power.`\
+https://nytimes.com/2024/06/27/world/americas/bolivia-coup-attempt-luis-arce.html
+
 **Biden Ended the Trump Crime Wave**\
 `Homicides, which surged during 2020, have been plunging.`\
 https://nytimes.com/2024/06/27/opinion/biden-trump-debate-crime.html
