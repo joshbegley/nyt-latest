@@ -1,3 +1,11 @@
+**More Voters Expect a Strong Debate for Trump Than for Biden, Poll Shows**\
+`A New York Times/Siena College poll shows Republicans with greater enthusiasm for their candidate.`\
+https://nytimes.com/2024/06/27/us/politics/poll-biden-trump-debate.html
+
+**A Debate Cheat Sheet for Business**\
+`Tax policy, inflation, the economy and markets will be some key issues for corporate America and Wall Street in tonight’s showdown between President Biden and Donald Trump.`\
+https://nytimes.com/2024/06/27/business/dealbook/biden-trump-debate-cheat-sheet.html
+
 **Emily Henry on Writing Best-Sellers Without Tours and TikTok**\
 `The author of “Funny Story” churned out five consecutive No. 1 best-sellers without leaving her comfort zone. How did she pull it off?`\
 https://nytimes.com/2024/06/27/books/funny-story-emily-henry.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/27/movies/chronicles-of-a-wandering-saint-review.htm
 **A Tiny Circle of Advisers Helped Prod Macron to Take a Giant Risk**\
 `President Emmanuel Macron’s governing style has always been intensely top-down. But with far-right nationalists in France closing in on power, some believe he may have gone too far this time.`\
 https://nytimes.com/2024/06/27/world/europe/france-macron-snap-election-decision.html
-
-**A Surprising Climate Find**\
-`As the planet warms, atoll nations like the Maldives seemed doomed to shrink. Scientists have begun to tell a surprising new story.`\
-https://nytimes.com/2024/06/27/briefing/maldives-atolls-climate-change.html
-
-**The Doping Scandal Rocking the Upcoming Olympics**\
-`Allegations in the world of competitive swimming raise questions about fairness in the sport.`\
-https://nytimes.com/2024/06/27/podcasts/the-daily/china-olympics-doping.html
 
