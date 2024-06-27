@@ -1,3 +1,11 @@
+**Euro 2024 is giving Radu Dragusin the chance to show Spurs what he can do**\
+`The defender found minutes hard to come by at Spurs last season – but his performances in Germany have served as a reminder of his talents`\
+https://nytimes.com/athletic/5596078/2024/06/27/radu-dragusin-spurs-romania-euro-2024/
+
+**Second Stage Becomes First Broadway Nonprofit in Decades to Name New Leader**\
+`The organization, which won this year’s best play revival Tony Award for “Appropriate,” has chosen Evan Cabnet as its next artistic director.`\
+https://nytimes.com/2024/06/27/theater/second-stage-new-leader-evan-cabnet.html
+
 **At Least 750,000 on Brink of Starvation and Death in Sudan, Experts Warn**\
 `A devastating civil war is pushing the country toward a full-blown famine, according to the international body that measures hunger.`\
 https://nytimes.com/2024/06/27/world/africa/sudan-famine-starvation.html
