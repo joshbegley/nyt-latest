@@ -1,3 +1,11 @@
+**The military had begun an operation against Hamas fighters who returned to an eastern part of Gaza’s biggest city, Israel’s public broadcaster reported.**\
+`By Hiba Yazbek`\
+https://nytimes.com/live/2024/06/27/world/israel-gaza-war-hamas/the-military-had-begun-an-operation-against-hamas-fighters-who-returned-to-an-eastern-part-of-gazas-biggest-city-israels-public-
+
+**Air-Conditioning for Olympians? It Is a ‘High-Performance Decision.’**\
+`A spokesman for Team U.S.A. said continuity is key despite the goal of Paris being the “greenest” Olympics. Other countries are planning similar measures.`\
+https://nytimes.com/2024/06/27/style/olympics-air-conditioners.html
+
 **Emily Henry on Writing Best-Sellers Without Tours and TikTok**\
 `The author of “Funny Story” churned out five consecutive No. 1 best-sellers without leaving her comfort zone. How did she pull it off?`\
 https://nytimes.com/2024/06/27/books/emily-henry-funny-story-tiktok.html

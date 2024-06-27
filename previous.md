@@ -1,3 +1,11 @@
+**The military had begun an operation against Hamas fighters who returned to an eastern part of Gaza’s biggest city, Israel’s public broadcaster reported.**\
+`By Hiba Yazbek`\
+https://nytimes.com/live/2024/06/27/world/israel-gaza-war-hamas/the-military-had-begun-an-operation-against-hamas-fighters-who-returned-to-an-eastern-part-of-gazas-biggest-city-israels-public-
+
+**Air-Conditioning for Olympians? It Is a ‘High-Performance Decision.’**\
+`A spokesman for Team U.S.A. said continuity is key despite the goal of Paris being the “greenest” Olympics. Other countries are planning similar measures.`\
+https://nytimes.com/2024/06/27/style/olympics-air-conditioners.html
+
 **Israeli Soldier Is Killed During Raid in West Bank, Military Says**\
 `As well as the officer who died, another was severely wounded during the operation in Jenin, a bastion of armed resistance to Israel’s occupation. One Palestinian was also reported wounded.`\
 https://nytimes.com/2024/06/27/world/middleeast/israel-jenin-soldier-killed-west-bank-raid.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/27/movies/june-zero-review.html
 **‘Fancy Dance’ Review: The Search for a Sister**\
 `This debut feature about a missing woman on an Oklahoma reservation is an imperfect but palpably emotional portrait of desperation and hard-won hope.`\
 https://nytimes.com/2024/06/27/movies/fancy-dance-review.html
-
-**‘Daddio’ Review: Two for the Road**\
-`Sean Penn and Dakota Johnson outclass a humdrum script as two people who talk — and talk — in a New York City taxicab.`\
-https://nytimes.com/2024/06/27/movies/daddio-review.html
-
-**‘Chronicles of a Wandering Saint’ Review: Are the Meek Blessed?**\
-`It’s clear that Rita’s life in rural Argentina could use a bit of magic. But her willingness to bend the truth to achieve it heralds disaster.`\
-https://nytimes.com/2024/06/27/movies/chronicles-of-a-wandering-saint-review.html
 
