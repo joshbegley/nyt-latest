@@ -1,3 +1,11 @@
+**Fact-Checking Biden’s and Trump’s Claims on Domestic Policy**\
+`We scrutinized the presidential candidates’ recent claims on abortion, health care, crime and climate change ahead of the debate.`\
+https://nytimes.com/2024/06/27/us/biden-trump-fact-check-debate.html
+
+**Purdue Opioid Settlement on Verge of Collapse after Supreme Court Ruling**\
+`Plaintiffs and the company vowed to renegotiate but the talks will be challenging after the court struck down a provision the Sacklers had insisted on in exchange for $6 billion.`\
+https://nytimes.com/2024/06/27/health/purdue-pharma-sackler-opioid-supreme-court.html
+
 **Wes Foderingham to West Ham: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Wes Foderingham's mover to West Ham.`\
 https://nytimes.com/athletic/5596035/2024/06/27/wes-foderingham-to-west-ham-the-athletic-500-transfer-ratings/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5596900/2024/06/27/ken-holland-oilers-leaving/
 **Georgia Gov. Brian Kemp Says He Did Not Vote for Trump in G.O.P. Primary**\
 `The Republican governor, who certified the results of the 2020 election against Trump’s wishes, said he cast a blank ballot in the primary.`\
 https://nytimes.com/2024/06/27/us/politics/brian-kemp-donald-trump-gop-primary.html
-
-**Kawhi Leonard expected to be ready for Olympic training camp**\
-`Three stars — Leonard, Tyrese Haliburton and Joel Embiid — were hampered by injury during the NBA season.`\
-https://nytimes.com/athletic/5597084/2024/06/27/kawhi-leonard-olympic-training-camp/
-
-**‘Confessions of a Good Samaritan’ Review: An Altruistic Story**\
-`In Penny Lane’s newest film, she turns the camera on herself to document her experience donating a kidney to a stranger.`\
-https://nytimes.com/2024/06/27/movies/confessions-of-a-good-samaritan-review.html
 

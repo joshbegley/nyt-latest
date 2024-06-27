@@ -1,3 +1,11 @@
+**Fact-Checking Biden’s and Trump’s Claims on Domestic Policy**\
+`We scrutinized the presidential candidates’ recent claims on abortion, health care, crime and climate change ahead of the debate.`\
+https://nytimes.com/2024/06/27/us/biden-trump-fact-check-debate.html
+
+**Purdue Opioid Settlement on Verge of Collapse after Supreme Court Ruling**\
+`Plaintiffs and the company vowed to renegotiate but the talks will be challenging after the court struck down a provision the Sacklers had insisted on in exchange for $6 billion.`\
+https://nytimes.com/2024/06/27/health/purdue-pharma-sackler-opioid-supreme-court.html
+
 **Wes Foderingham to West Ham: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Wes Foderingham's mover to West Ham.`\
 https://nytimes.com/athletic/5596035/2024/06/27/wes-foderingham-to-west-ham-the-athletic-500-transfer-ratings/
