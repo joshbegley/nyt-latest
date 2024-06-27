@@ -1,3 +1,11 @@
+**When the Doctor Says Your Disease is Just Stress**\
+`Chronic disease symptoms are often dismissed by physicians — and patients themselves. But that comes from a complex relationship between sickness and stress itself.`\
+https://nytimes.com/2024/06/27/well/stress-chronic-illness-disease.html
+
+**Scaled-Back but Determined Protests in Kenya Call for President to Resign**\
+`The demonstrations were held despite his withdrawal of the tax bill that sparked days of protests. Some activists, fearing more bloodshed, warned people not to march to the president’s official residence.`\
+https://nytimes.com/2024/06/27/world/africa/kenya-protests-taxes-president-ruto.html
+
 **The Last Stand of the Woolly Mammoths**\
 `The species survived on an island north of Siberia for thousands of years, scientists reported, but were most likely plagued by genetic abnormalities.`\
 https://nytimes.com/2024/06/27/science/mammoth-genes-wrangel.html

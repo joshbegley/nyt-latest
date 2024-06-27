@@ -1,3 +1,11 @@
+**When the Doctor Says Your Disease is Just Stress**\
+`Chronic disease symptoms are often dismissed by physicians — and patients themselves. But that comes from a complex relationship between sickness and stress itself.`\
+https://nytimes.com/2024/06/27/well/stress-chronic-illness-disease.html
+
+**Scaled-Back but Determined Protests in Kenya Call for President to Resign**\
+`The demonstrations were held despite his withdrawal of the tax bill that sparked days of protests. Some activists, fearing more bloodshed, warned people not to march to the president’s official residence.`\
+https://nytimes.com/2024/06/27/world/africa/kenya-protests-taxes-president-ruto.html
+
 **The Last Stand of the Woolly Mammoths**\
 `The species survived on an island north of Siberia for thousands of years, scientists reported, but were most likely plagued by genetic abnormalities.`\
 https://nytimes.com/2024/06/27/science/mammoth-genes-wrangel.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5594832/2024/06/27/skye-blakely-olympic-gymnastics-
 **What does Notre Dame-MSU rivalry return mean for future scheduling?**\
 `Two of Notre Dame’s future football schedules will have a vintage feel to them, as the school announced the return of a home-and-home with Michigan State in the 2026-27 seasons.`\
 https://nytimes.com/athletic/5596971/2024/06/27/notre-dame-michigan-state-football-schedule/
-
-**The Windup: Is he having the best shortstop season ever?**\
-`Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
-https://nytimes.com/athletic/5596816/2024/06/27/gunnar-henderson-blue-jays-eric-kay-the-windup/
-
-**What to Do About Erectile Dysfunction**\
-`Sooner or later, most men will experience a problem achieving or maintaining an erection. But today, there are more treatments than ever.`\
-https://nytimes.com/2024/06/27/well/live/advice-erectile-dysfunction-treatment.html
 
