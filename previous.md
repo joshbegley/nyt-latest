@@ -1,3 +1,15 @@
+**Join Us for the Debate**\
+`We’ll help navigate every twist and turn when Biden and Trump take the stage in Atlanta tonight.`\
+https://nytimes.com/2024/06/27/us/politics/presidential-debate-live.html
+
+**Bronny James selected by Lakers with No. 55 pick**\
+`Bronny averaged 4.8 points in 19.3 minutes per game in his lone season at USC.`\
+https://nytimes.com/athletic/5594452/2024/06/27/bronny-james-nba-draft-lakers/
+
+**What I'm hearing about the Flyers' plans ahead of a huge weekend**\
+`Will the Flyers be able to clear any salary-cap space in the coming days?`\
+https://nytimes.com/athletic/5597980/2024/06/27/flyers-draft-trade-atkinson-petersen/
+
 **On the End of the Line, Hundreds of Frantic Voices Seek Help**\
 `A reporter observed a day of messages to the National Domestic Violence Hotline. She does not know the callers’ names, but she’ll never forget their stories.`\
 https://nytimes.com/2024/06/27/insider/on-the-end-of-the-line-hundreds-of-frantic-voices-seek-help.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/climate/100000009532243/our-reporter-on-the-shape-shif
 **NFL ordered to pay over $4 billion in Sunday Ticket lawsuit: Reports**\
 `The NFL was ordered to pay $4 billion to residential subscribers and $96 million to commercial subscribers.`\
 https://nytimes.com/athletic/5597969/2024/06/27/nfl-sunday-ticket-lawsuit/
-
-**With Two Major Events, Atlanta Prepares for Traffic to Slow to a Near Standstill**\
-`The two events, the U.S. men’s soccer team vs. Panama and President Biden vs. former President Donald J. Trump, will take place only miles apart.`\
-https://nytimes.com/2024/06/27/us/atlanta-traffic-debate-soccer.html
-
-**MLB stopped letting players see the 'strike zone box' in dugout. Now it's back**\
-`After umpires complained, MLB made players unable to see the strike zone box on dugout tablets. But the MLBPA successfully opposed the move.`\
-https://nytimes.com/athletic/5597918/2024/06/27/mlb-strike-zone-box-dugout/
-
-**A Trump Will Be in the Debate Spin Room (for Biden)**\
-`Mary Trump, Donald J. Trump’s estranged niece, is among the half-dozen representatives that the Biden campaign is deploying to the spin room on Thursday.`\
-https://nytimes.com/2024/06/27/us/politics/biden-mary-trump-debate-surrogates.html
 

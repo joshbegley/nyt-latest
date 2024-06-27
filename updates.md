@@ -1,3 +1,15 @@
+**Join Us for the Debate**\
+`We’ll help navigate every twist and turn when Biden and Trump take the stage in Atlanta tonight.`\
+https://nytimes.com/2024/06/27/us/politics/presidential-debate-live.html
+
+**Bronny James selected by Lakers with No. 55 pick**\
+`Bronny averaged 4.8 points in 19.3 minutes per game in his lone season at USC.`\
+https://nytimes.com/athletic/5594452/2024/06/27/bronny-james-nba-draft-lakers/
+
+**What I'm hearing about the Flyers' plans ahead of a huge weekend**\
+`Will the Flyers be able to clear any salary-cap space in the coming days?`\
+https://nytimes.com/athletic/5597980/2024/06/27/flyers-draft-trade-atkinson-petersen/
+
 **On the End of the Line, Hundreds of Frantic Voices Seek Help**\
 `A reporter observed a day of messages to the National Domestic Violence Hotline. She does not know the callers’ names, but she’ll never forget their stories.`\
 https://nytimes.com/2024/06/27/insider/on-the-end-of-the-line-hundreds-of-frantic-voices-seek-help.html
