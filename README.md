@@ -1,3 +1,7 @@
+**Our Reporter on the Shape-Shifting Maldives**\
+`Low-lying tropical island nations were expected to be early victims of rising seas. But research tells a surprising story.`\
+https://nytimes.com/video/climate/100000009532243/our-reporter-on-the-shape-shifting-maldives.html
+
 **NFL ordered to pay over $4 billion in Sunday Ticket lawsuit: Reports**\
 `The NFL was ordered to pay $4 billion to residential subscribers and $96 million to commercial subscribers.`\
 https://nytimes.com/athletic/5597969/2024/06/27/nfl-sunday-ticket-lawsuit/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/27/us/politics/biden-trump-black-voters.html
 **McCarthy to leave position on Man United coaching staff**\
 `Manchester United’s Benni McCarthy will leave his position as a first-team coach when his two-year contract expires at the end of this month.`\
 https://nytimes.com/athletic/5597879/2024/06/27/manchester-united-benni-mccarthy-leaves/
-
-**Analysis, fits for all 58 NBA Draft picks from John Hollinger and Sam Vecenie**\
-`Sam Vecenie and John Hollinger break down all 58 picks of the 2024 NBA Draft as they happen.`\
-https://nytimes.com/athletic/5595111/2024/06/27/nba-draft-grades-analysis-2024-vecenie-hollinger/
 
