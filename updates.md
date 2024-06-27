@@ -1,3 +1,7 @@
+**N.F.L. Ordered to Pay Billions in Sunday Ticket Lawsuit**\
+`The case, which cut to the heart of the league’s media strategy, centered on a subscription service that aired out-of-market games for roughly $300 a year.`\
+https://nytimes.com/2024/06/27/business/media/nfl-sunday-ticket-lawsuit-billions-damage.html
+
 **Join Us for the Debate**\
 `We’ll help navigate every twist and turn when Biden and Trump take the stage in Atlanta tonight.`\
 https://nytimes.com/2024/06/27/us/politics/presidential-debate-live.html

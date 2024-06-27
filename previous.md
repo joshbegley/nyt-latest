@@ -1,3 +1,7 @@
+**N.F.L. Ordered to Pay Billions in Sunday Ticket Lawsuit**\
+`The case, which cut to the heart of the league’s media strategy, centered on a subscription service that aired out-of-market games for roughly $300 a year.`\
+https://nytimes.com/2024/06/27/business/media/nfl-sunday-ticket-lawsuit-billions-damage.html
+
 **Join Us for the Debate**\
 `We’ll help navigate every twist and turn when Biden and Trump take the stage in Atlanta tonight.`\
 https://nytimes.com/2024/06/27/us/politics/presidential-debate-live.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/27/world/europe/eu-top-officials-selected.html
 **Our Reporter on the Shape-Shifting Maldives**\
 `Low-lying tropical island nations were expected to be early victims of rising seas. But research tells a surprising story.`\
 https://nytimes.com/video/climate/100000009532243/our-reporter-on-the-shape-shifting-maldives.html
-
-**NFL ordered to pay over $4 billion in Sunday Ticket lawsuit: Reports**\
-`The NFL was ordered to pay $4 billion to residential subscribers and $96 million to commercial subscribers.`\
-https://nytimes.com/athletic/5597969/2024/06/27/nfl-sunday-ticket-lawsuit/
 
