@@ -1,3 +1,7 @@
+**A Trump Will Be in the Debate Spin Room (for Biden)**\
+`Mary Trump, Donald J. Trump’s estranged niece, is among the half-dozen representatives that the Biden campaign is deploying to the spin room on Thursday.`\
+https://nytimes.com/2024/06/27/us/politics/biden-mary-trump-debate-surrogates.html
+
 **Friday Briefing: What to Watch in the French Election**\
 `Also, the upcoming U.S. presidential debate and the vote in Iran.`\
 https://nytimes.com/2024/06/27/world/asia/france-iran-us-debate-election-asia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/27/world/asia/taiwan-china-travel-warning.html
 **6 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/06/27/books/review/new-books-recommendations.html
-
-**Read Judge Cannon’s Ruling**\
-`Judge Aileen Cannon said she intended to review a hugely consequential legal victory that prosecutors won last year and that served as a cornerstone of the obstruction charges against Donald Trump.`\
-https://nytimes.com/interactive/2024/06/27/us/politics/trump-mal-order-setting-crime-fraud-hearing.html
 

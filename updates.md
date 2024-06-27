@@ -1,3 +1,7 @@
+**A Trump Will Be in the Debate Spin Room (for Biden)**\
+`Mary Trump, Donald J. Trump’s estranged niece, is among the half-dozen representatives that the Biden campaign is deploying to the spin room on Thursday.`\
+https://nytimes.com/2024/06/27/us/politics/biden-mary-trump-debate-surrogates.html
+
 **Friday Briefing: What to Watch in the French Election**\
 `Also, the upcoming U.S. presidential debate and the vote in Iran.`\
 https://nytimes.com/2024/06/27/world/asia/france-iran-us-debate-election-asia.html
