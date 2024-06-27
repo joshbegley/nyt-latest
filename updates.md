@@ -1,3 +1,7 @@
+**Cellphone Outage in Europe Leaves Many U.S. Travelers Disconnected**\
+`The disruption affected mostly visitors with AT&T, T-Mobile and Verizon service, cutting them off data networks across the continent for 24 hours or more.`\
+https://nytimes.com/2024/06/27/travel/att-t-mobile-verizon-international-outage.html
+
 **‘A Quiet Place: Day One’ Review: Silent Beginnings**\
 `The chills are more effective than the thrills in this prequel to the “A Quiet Place” franchise.`\
 https://nytimes.com/2024/06/27/movies/a-quiet-place-day-one-review.html
