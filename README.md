@@ -1,3 +1,15 @@
+**How to Escape From the Russian Army**\
+`Facing grim job prospects, a young Nepali signed up to join Russia’s military, which sent him to fight in Ukraine. His ordeal of combat, injury and escape turned into a tale worthy of Hollywood.`\
+https://nytimes.com/2024/06/27/world/asia/escape-from-russian-army.html
+
+**Republicans Used to Love Wind and Solar. That Romance Has Cooled.**\
+`A new Pew Research Center survey finds Republican support for wind, solar and electric vehicles has tanked since President Biden was elected, mostly among those 65 and older.`\
+https://nytimes.com/2024/06/27/climate/pew-poll-renewable-energy.html
+
+**China Levels Graft Charges Against Former Defense Ministers**\
+`The two generals were accused of taking huge bribes and of corruption that reached into the armaments sector, indicating that the country’s military has not shaken off old habits.`\
+https://nytimes.com/2024/06/27/world/asia/china-military-corruption.html
+
 **The Rules for the Biden-Trump Presidential Debate on CNN**\
 `Here is an overview of the rules that the two campaigns have agreed to with CNN, the evening’s host.`\
 https://nytimes.com/2024/06/27/us/politics/the-rules-for-the-biden-trump-presidential-debate-on-cnn.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/06/27/us/biden-trump-debate
 **Lanvin, Oldest French Fashion House, Names a New Designer**\
 `Peter Copping will become the artistic director in September.`\
 https://nytimes.com/2024/06/27/style/lanvin-peter-copping.html
-
-**Sewell Chan Named Editor of Columbia Journalism Review**\
-`He joins after leading The Texas Tribune for three years.`\
-https://nytimes.com/2024/06/27/business/media/sewell-chan-cjr-editor.html
-
-**A Design Landmark Reimagined as a Retreat**\
-`Plus: a sporty bag collaboration, a Louise Bourgeois show and more recommendations from T Magazine.`\
-https://nytimes.com/2024/06/27/t-magazine/paimio-sanatorium-alvar-aalto-hotel.html
-
-**Four New California Laws Going Into Effect on July 1**\
-`Subjects include safety at work and in bars, and the cost of renting a home or buying a gun.`\
-https://nytimes.com/2024/06/27/us/california-laws-july.html
 
