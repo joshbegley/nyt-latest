@@ -1,3 +1,11 @@
+**Euro 2024 is giving Radu Dragusin the chance to show Spurs what he can do**\
+`The defender found minutes hard to come by at Spurs last season – but his performances in Germany have served as a reminder of his talents`\
+https://nytimes.com/athletic/5596078/2024/06/27/radu-dragusin-spurs-romania-euro-2024/
+
+**Second Stage Becomes First Broadway Nonprofit in Decades to Name New Leader**\
+`The organization, which won this year’s best play revival Tony Award for “Appropriate,” has chosen Evan Cabnet as its next artistic director.`\
+https://nytimes.com/2024/06/27/theater/second-stage-new-leader-evan-cabnet.html
+
 **At Least 750,000 on Brink of Starvation and Death in Sudan, Experts Warn**\
 `A devastating civil war is pushing the country toward a full-blown famine, according to the international body that measures hunger.`\
 https://nytimes.com/2024/06/27/world/africa/sudan-famine-starvation.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5591694/2024/06/27/euro-2024-fox-tv-coverage-united
 **Biden Campaign Takes Aim at Project 2025, a Set of Conservative Proposals**\
 `The plan to dramatically reshape the federal government differs from Trump’s official platform, and has drawn attention on social media.`\
 https://nytimes.com/2024/06/27/us/politics/biden-trump-project-2025.html
-
-**Djokovic gives thumbs-up for Wimbledon draw after Sinner practice**\
-`Novak Djokovic came through a practice match with Jannik Sinner on Centre Court on Thursday and said afterwards that he is “feeling good”.`\
-https://nytimes.com/athletic/5597002/2024/06/27/novak-djokovic-injury-wimbledon-2024-sinner/
-
-**Three Great Documentaries to Stream**\
-`This month’s picks look at a summer in Paris, a summer at the Olympics and the heat of the erotic thriller.`\
-https://nytimes.com/2024/06/27/movies/documentaries-streaming.html
 
