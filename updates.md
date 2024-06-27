@@ -1,3 +1,7 @@
+**‘A Quiet Place: Day One’ Review: Silent Beginnings**\
+`The chills are more effective than the thrills in this prequel to the “A Quiet Place” franchise.`\
+https://nytimes.com/2024/06/27/movies/a-quiet-place-day-one-review.html
+
 **That’s That Basil Pesto**\
 `Pesto is a summer hitmaker, making heirloom tomato tarts, herby potato salads and super quick weeknight pastas sing.`\
 https://nytimes.com/2024/06/27/dining/pesto-recipes-pizza-potato-salad.html
