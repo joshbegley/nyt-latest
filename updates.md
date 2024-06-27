@@ -1,3 +1,7 @@
+**Two Governors, Two Visions of a New South**\
+`While Maryland embraces egalitarianism, Louisiana veers toward Christian nationalism.`\
+https://nytimes.com/2024/06/26/opinion/wes-moore-jeff-landry-maryland-louisiana.html
+
 **Israel readies troops for potential escalation in Lebanon.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/06/26/world/israel-gaza-war-hamas/israel-readies-troops-for-potential-escalation-in-lebanon

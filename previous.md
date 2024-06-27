@@ -6,7 +6,7 @@ https://nytimes.com/live/2024/06/26/world/israel-gaza-war-hamas/israel-readies-t
 `Where would each of the candidates lead us — or drag us — on foreign policy issues convulsing the world?`\
 https://nytimes.com/2024/06/26/opinion/biden-trump-debate-questions.html
 
-**Opposing Visions of a New South**\
+**Two Governors, Two Visions of a New South**\
 `While Maryland embraces egalitarianism, Louisiana veers toward Christian nationalism.`\
 https://nytimes.com/2024/06/26/opinion/wes-moore-jeff-landry-maryland-louisiana.html
 
