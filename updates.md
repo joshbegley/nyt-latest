@@ -1,3 +1,9 @@
+**The Remasters: Pushing the Limits of Style**\
+`In this episode, Zoe Abelson speaks to Allison Bornstein, one of social media’s favorite stylists, about the ’70s, maximalism and her three-word approach to curating a wardrobe.`\
+https://nytimes.com/paidpost/audemars-piguet/the-remasters/the-remasters-pushing-the-limits-of-style.html
+
+**Syria blames Israel for an airstrike, and other news.**\
+
 **Bodies Found Near Mount Fuji’s Crater**\
 `Aerial footage showed rescuers bringing a body down from the slopes, days before the start of the climbing season.`\
 https://nytimes.com/video/world/asia/100000009542771/japan-mount-fuji-climbers.html
