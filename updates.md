@@ -1,3 +1,7 @@
+**Emily Henry on Writing Best-Sellers Without Tours and TikTok**\
+`The author of “Funny Story” churned out five consecutive No. 1 best-sellers without leaving her comfort zone. How did she pull it off?`\
+https://nytimes.com/2024/06/27/books/emily-henry-funny-story-tiktok.html
+
 **Israeli Soldier Is Killed During Raid in West Bank, Military Says**\
 `As well as the officer who died, another was severely wounded during the operation in Jenin, a bastion of armed resistance to Israel’s occupation. One Palestinian was also reported wounded.`\
 https://nytimes.com/2024/06/27/world/middleeast/israel-jenin-soldier-killed-west-bank-raid.html
