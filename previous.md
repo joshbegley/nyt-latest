@@ -1,3 +1,23 @@
+**Thursday Briefing**\
+`Evan Gershkovich’s trial began in Russia.`\
+https://nytimes.com/2024/06/27/briefing/evan-gershkovich-trial-russia.html
+
+**The King and Keir: Is Charles About to Get a Prime Minister He Likes?**\
+`The British monarch is constitutionally barred from any role in politics. But experts say that Charles and the leader of the Labour Party, Keir Starmer, have much in common.`\
+https://nytimes.com/2024/06/27/world/europe/uk-king-charles-keir-starmer.html
+
+**What to Watch at the First Trump-Biden Debate**\
+`Both candidates have been eager for this rematch, with President Biden aiming to focus on their starkly different visions for America, and Donald Trump keen to attack his rival’s record.`\
+https://nytimes.com/2024/06/27/us/politics/trump-biden-debate-preview.html
+
+**New York City Has 186,000 Fewer Children and Teens Than It Did in 2020**\
+`New census numbers show the steepest drop in the city’s youngest age group in at least a decade as many families have left to live elsewhere.`\
+https://nytimes.com/2024/06/27/nyregion/nyc-census-children-teens.html
+
+**New Tactic in China’s Information War: Harassing a Critic’s Child in the U.S.**\
+`A covert campaign to target a writer critical of the country’s Communist Party has extended to sexually suggestive threats against his 16-year-old daughter.`\
+https://nytimes.com/2024/06/27/business/china-disinformation-critics-harassment.html
+
 **North Korea Says It Tested Multi-Warhead Missile Technology**\
 `The announcement, coming days after Vladimir V. Putin’s visit to Pyongyang, suggests an ambitious attempt to upgrade the North’s nuclear arsenal.`\
 https://nytimes.com/2024/06/26/world/asia/north-korea-missile-test.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/06/26/pageoneplus/corrections-june-27-2024.html
 **Quotation of the Day: As A.I. Trains, Pay Attention to Fine Print**\
 `Quotation of the Day for Thursday, June 27, 2024.`\
 https://nytimes.com/2024/06/26/pageoneplus/quotation-of-the-day-as-ai-trains-pay-attention-to-fine-print.html
-
-**Potential Goal for a Unicorn**\
-`Paolo Pasco and Sarah Sinclair deliver.`\
-https://nytimes.com/2024/06/26/crosswords/daily-puzzle-2024-06-27.html
-
-**Israel readies troops for potential escalation in Lebanon.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/06/26/world/israel-gaza-war-hamas/israel-readies-troops-for-potential-escalation-in-lebanon
-
-**President Biden and Donald Trump, Some Tough Questions for Each of You**\
-`Where would each of the candidates lead us — or drag us — on foreign policy issues convulsing the world?`\
-https://nytimes.com/2024/06/26/opinion/biden-trump-debate-questions.html
-
-**Two Governors, Two Visions of a New South**\
-`While Maryland embraces egalitarianism, Louisiana veers toward Christian nationalism.`\
-https://nytimes.com/2024/06/26/opinion/wes-moore-jeff-landry-maryland-louisiana.html
-
-**Kaz Hosaka, 65, Dies; Led Two Poodles to Westminster Glory**\
-`He began handling dogs in his native Japan and then became a poodle specialist, leading Spice and Sage to Best in Show victories.`\
-https://nytimes.com/2024/06/26/sports/kaz-hosaka-dead.html
 

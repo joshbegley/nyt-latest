@@ -1,3 +1,23 @@
+**Thursday Briefing**\
+`Evan Gershkovich’s trial began in Russia.`\
+https://nytimes.com/2024/06/27/briefing/evan-gershkovich-trial-russia.html
+
+**The King and Keir: Is Charles About to Get a Prime Minister He Likes?**\
+`The British monarch is constitutionally barred from any role in politics. But experts say that Charles and the leader of the Labour Party, Keir Starmer, have much in common.`\
+https://nytimes.com/2024/06/27/world/europe/uk-king-charles-keir-starmer.html
+
+**What to Watch at the First Trump-Biden Debate**\
+`Both candidates have been eager for this rematch, with President Biden aiming to focus on their starkly different visions for America, and Donald Trump keen to attack his rival’s record.`\
+https://nytimes.com/2024/06/27/us/politics/trump-biden-debate-preview.html
+
+**New York City Has 186,000 Fewer Children and Teens Than It Did in 2020**\
+`New census numbers show the steepest drop in the city’s youngest age group in at least a decade as many families have left to live elsewhere.`\
+https://nytimes.com/2024/06/27/nyregion/nyc-census-children-teens.html
+
+**New Tactic in China’s Information War: Harassing a Critic’s Child in the U.S.**\
+`A covert campaign to target a writer critical of the country’s Communist Party has extended to sexually suggestive threats against his 16-year-old daughter.`\
+https://nytimes.com/2024/06/27/business/china-disinformation-critics-harassment.html
+
 **North Korea Says It Tested Multi-Warhead Missile Technology**\
 `The announcement, coming days after Vladimir V. Putin’s visit to Pyongyang, suggests an ambitious attempt to upgrade the North’s nuclear arsenal.`\
 https://nytimes.com/2024/06/26/world/asia/north-korea-missile-test.html
