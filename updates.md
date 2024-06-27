@@ -1,3 +1,7 @@
+**Here’s where Biden and Trump stand on key issues.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/heres-where-biden-and-trump-stand-on-key-issues
+
 **NFL won't hold Supplemental Draft this year: Sources**\
 `Supplemental Draft was installed in 1977 as an option for draft-eligible players who did not declare for the regular NFL Draft.`\
 https://nytimes.com/athletic/5596943/2024/06/27/nfl-no-supplemental-draft-2024/
