@@ -1,3 +1,11 @@
+**Randall Cobb, family 'safe and healthy' after escaping house fire**\
+`A Tesla charger caught fire and spread through the Cobb's Nashville home.`\
+https://nytimes.com/athletic/5597239/2024/06/27/randall-cobb-house-fire/
+
+**PFA chief wants end to 'nonsensical' PSR rules on youth player deals**\
+`Maheta Molango, the CEO of the Professional Football Association (PFA), has called for a change to the Premier League&#8217;s &#8220;nonsensical&#8221; profitability and sustainability rules (PSR) as he believes players do not get a fair say in their futures.`\
+https://nytimes.com/athletic/5597145/2024/06/27/psr-rules-youth-player-transfers/
+
 **Walgreens Plans ‘Significant’ Store Closures, Citing Weak Consumer Spending**\
 `The pharmacy giant told investors that shaky consumer spending was affecting its retail operations. But some said the company’s strategy was also to blame.`\
 https://nytimes.com/2024/06/27/business/walgreens-store-closures-earnings.html
