@@ -1,3 +1,15 @@
+**Biden and Trump took different approaches to prep for the debate.**\
+`By Katie Rogers, Maggie Haberman and Jonathan Swan`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/biden-and-trump-took-different-approaches-to-prep-for-the-debate
+
+**‘Horizon: An American Saga — Chapter 1’ Review: The Beauty, and the Bloodshed**\
+`In the first of a projected four-film cycle, Kevin Costner revisits the western genre and U.S. history in a big, busy drama.`\
+https://nytimes.com/2024/06/27/movies/horizon-an-american-saga-chapter-1-review.html
+
+**With their Day 1 draft moves, Spurs are committed to building a contender**\
+`San Antonio selected Stephon Castle and traded the No. 8 pick for future selections.`\
+https://nytimes.com/athletic/5596954/2024/06/27/spurs-gregg-popovich-building-contender/
+
 **What I'm hearing about the Penguins: Jarry trade, Reilly Smith situation, free agency: What I'm hearing**\
 `The Penguins are shopping Jarry but would also be comfortable with keeping him and Alex Nedeljkovic.`\
 https://nytimes.com/athletic/5597378/2024/06/27/penguins-tristan-jarry-trade-nhl-draft-free-agency/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/27/movies/last-summer-review.html
 **24 N.B.A. Prospects on Their Draft Day Outfits**\
 `Before they were drafted, the N.B.A.’s top prospects stopped to show off their clothes and discuss their decisions of how to represent themselves.`\
 https://nytimes.com/2024/06/27/style/nba-draft-fashion-outfits.html
-
-**Killer Mike Won’t Face Charges After Grammys Arrest**\
-`The rapper, who got into an altercation with a security guard after winning three Grammys, has completed community service.`\
-https://nytimes.com/2024/06/27/arts/music/killer-mike-charges-grammys-arrest.html
-
-**Randall Cobb, family 'safe and healthy' after escaping house fire**\
-`A Tesla charger caught fire and spread through the Cobb's Nashville home.`\
-https://nytimes.com/athletic/5597239/2024/06/27/randall-cobb-house-fire/
-
-**PFA chief wants end to 'nonsensical' PSR rules on youth player deals**\
-`Maheta Molango, the CEO of the Professional Football Association (PFA), has called for a change to the Premier League&#8217;s &#8220;nonsensical&#8221; profitability and sustainability rules (PSR) as he believes players do not get a fair say in their futures.`\
-https://nytimes.com/athletic/5597145/2024/06/27/psr-rules-youth-player-transfers/
 
