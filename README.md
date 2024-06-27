@@ -30,9 +30,9 @@ https://nytimes.com/2024/06/27/us/politics/cnn-debate-white-house-journalists.ht
 `The outrage over new pronouns fundamentally misunderstands how language works.`\
 https://nytimes.com/2024/06/27/opinion/gender-neutral-pronouns-them.html
 
-**Critically ill children were allowed to leave Gaza for the first time since May.**\
+**Critically Ill Children Allowed to Leave Gaza for First Time Since May**\
 `The Israeli military said the operation was carried out in coordination with the U.S., Egypt and the international community. In all, 68 people — sick and injured patients and their escorts — were allowed to leave, the military said.`\
-https://nytimes.com/2024/06/27/world/middleeast/gaza-patients-evacuation.html
+https://nytimes.com/2024/06/27/world/middleeast/gaza-medical-evacuation-children.html
 
 **Ready to Debate**\
 `Donald Trump takes the stage tonight with a gag order partially lifted.`\
