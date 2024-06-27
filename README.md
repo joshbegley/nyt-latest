@@ -1,3 +1,11 @@
+**‘The Vourdalak’ Review: Blood Relations**\
+`An endangered French aristocrat is stranded with a benighted rural family in this tragicomic fairy tale.`\
+https://nytimes.com/2024/06/27/movies/the-vourdalak-review.html
+
+**‘Music’ Review: Oedipus Rocks**\
+`An ethereal, experimental new drama retells the story of the mythical Greek hero.`\
+https://nytimes.com/2024/06/27/movies/music-review-angela-schanelec.html
+
 **Review: In ‘June Zero,’ There Are Many Ways to See the Past**\
 `Jake Paltrow’s film braids three fictional stories around the 1962 execution of Adolf Eichmann, the Nazi official and war criminal.`\
 https://nytimes.com/2024/06/27/movies/june-zero-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/27/podcasts/the-daily/china-olympics-doping.html
 **Why Tonight’s Debate Is Different, and New Supreme Court Rulings**\
 `Plus, is the future “made in India”?`\
 https://nytimes.com/2024/06/27/podcasts/trump-biden-debate-supreme-court.html
-
-**The Connections Companion No. 383, June 28, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/06/27/crosswords/connections-companion-383.html
-
-**Amsterdam Museum to Return a Matisse Work Sold Under Duress in World War II**\
-`The painting, “Odalisque,” was sold to the Stedelijk Museum in the early 1940s by a German-Jewish family desperate to escape the Nazis.`\
-https://nytimes.com/2024/06/27/arts/stedelijk-museum-matisse-odalisque-restitution.html
 
