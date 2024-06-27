@@ -1,3 +1,7 @@
+**Beware the Billionaire Blinders**\
+`It seems like Jeff Yass simply can’t fathom anyone earning less than $100,000 a year.`\
+https://nytimes.com/live/2024/06/25/opinion/thepoint/jeff-yass-billionaire-interview
+
 **Forest's Niakhate to have medical ahead of Lyon transfer**\
 `Nottingham Forest defender Moussa Niakhate is set to join Lyon in a move that will dramatically reduce the risk of the club incurring another points penalty next season.`\
 https://nytimes.com/athletic/5596569/2024/06/27/nottingham-forest-niakhate-lyon-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5597519/2024/06/27/dakota-joshua-canucks-contract/
 **Cellphone Outage in Europe Leaves Many U.S. Travelers Disconnected**\
 `The disruption affected mostly visitors with AT&T, T-Mobile and Verizon service, cutting them off data networks across the continent for 24 hours or more.`\
 https://nytimes.com/2024/06/27/travel/att-t-mobile-verizon-international-outage.html
-
-**‘A Quiet Place: Day One’ Review: Silent Beginnings**\
-`The chills are more effective than the thrills in this prequel to the “A Quiet Place” franchise.`\
-https://nytimes.com/2024/06/27/movies/a-quiet-place-day-one-review.html
 

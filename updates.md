@@ -1,3 +1,7 @@
+**Beware the Billionaire Blinders**\
+`It seems like Jeff Yass simply can’t fathom anyone earning less than $100,000 a year.`\
+https://nytimes.com/live/2024/06/25/opinion/thepoint/jeff-yass-billionaire-interview
+
 **Forest's Niakhate to have medical ahead of Lyon transfer**\
 `Nottingham Forest defender Moussa Niakhate is set to join Lyon in a move that will dramatically reduce the risk of the club incurring another points penalty next season.`\
 https://nytimes.com/athletic/5596569/2024/06/27/nottingham-forest-niakhate-lyon-transfer/
