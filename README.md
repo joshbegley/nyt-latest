@@ -1,3 +1,7 @@
+**Critically ill children were allowed to leave Gaza for the first time since May.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/06/27/world/israel-gaza-war-hamas/gaza-patients-evacuation
+
 **Ready to Debate**\
 `Donald Trump takes the stage tonight with a gag order partially lifted.`\
 https://nytimes.com/2024/06/27/us/politics/trump-trial-debate-gag-order.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5593907/2024/06/27/new-york-rangers-jacob-trouba-tr
 **What we're hearing: Blackhawks' trade, draft, contracts**\
 `The Blackhawks made a trade on Wednesday. What will Thursday and beyond bring?`\
 https://nytimes.com/athletic/5597393/2024/06/27/blackhawks-trade-nhl-draft-contracts/
-
-**A Trilobite Pompeii Preserves Exquisite Fossils in Volcanic Ash**\
-`A fossil bed in the High Atlas Mountains of Morocco is allowing new insights into the anatomies of arthropods that lived a half-billion years ago.`\
-https://nytimes.com/2024/06/27/science/trilobites-fossils-volcanic-ash-pompeii.html
 
