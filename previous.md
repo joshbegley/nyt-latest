@@ -1,3 +1,11 @@
+**What to Know About This Year’s Tour de France (Which Begins in Italy)**\
+`Two previous winners are the leading contenders to win cycling’s most famous race, which, in a rarity, does not end in Paris.`\
+https://nytimes.com/2024/06/27/sports/cycling/tour-de-france-preview.html
+
+**Rich Gulf States Have Huge Ambitions. Will Extreme Heat Hold Them Back?**\
+`The high temperatures blamed for the deaths of pilgrims in Saudi Arabia are taking a broad toll in countries that have spent vast sums to attract tourists and investors.`\
+https://nytimes.com/2024/06/27/world/middleeast/gulf-states-heat-climate-change.html
+
 **A June presidential debate is early by modern standards. Here’s what to know.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/a-june-presidential-debate-is-early-by-modern-standards-heres-what-to-know
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/06/27/world/israel-gaza-war-hamas/the-military-had
 **Air-Conditioning for Olympians? It Is a ‘High-Performance Decision.’**\
 `A spokesman for Team U.S.A. said continuity is key despite the goal of Paris being the “greenest” Olympics. Other countries are planning similar measures.`\
 https://nytimes.com/2024/06/27/style/olympics-air-conditioners.html
-
-**Israeli Soldier Is Killed During Raid in West Bank, Military Says**\
-`As well as the officer who died, another was severely wounded during the operation in Jenin, a bastion of armed resistance to Israel’s occupation. One Palestinian was also reported wounded.`\
-https://nytimes.com/2024/06/27/world/middleeast/israel-jenin-soldier-killed-west-bank-raid.html
-
-**More Voters Expect a Stronger Debate for Trump Than for Biden, Poll Shows**\
-`A New York Times/Siena College poll shows Republicans with greater enthusiasm for their candidate.`\
-https://nytimes.com/2024/06/27/us/politics/poll-biden-trump-debate.html
 

@@ -1,3 +1,11 @@
+**What to Know About This Year’s Tour de France (Which Begins in Italy)**\
+`Two previous winners are the leading contenders to win cycling’s most famous race, which, in a rarity, does not end in Paris.`\
+https://nytimes.com/2024/06/27/sports/cycling/tour-de-france-preview.html
+
+**Rich Gulf States Have Huge Ambitions. Will Extreme Heat Hold Them Back?**\
+`The high temperatures blamed for the deaths of pilgrims in Saudi Arabia are taking a broad toll in countries that have spent vast sums to attract tourists and investors.`\
+https://nytimes.com/2024/06/27/world/middleeast/gulf-states-heat-climate-change.html
+
 **A June presidential debate is early by modern standards. Here’s what to know.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/a-june-presidential-debate-is-early-by-modern-standards-heres-what-to-know
