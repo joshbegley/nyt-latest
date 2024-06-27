@@ -1,3 +1,7 @@
+**Potential Goal for a Unicorn**\
+`Paolo Pasco and Sarah Sinclair deliver.`\
+https://nytimes.com/2024/06/26/crosswords/daily-puzzle-2024-06-27.html
+
 **Israel readies troops for potential escalation in Lebanon.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/06/26/world/israel-gaza-war-hamas/israel-readies-troops-for-potential-escalation-in-lebanon
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/26/briefing/supreme-court-idaho-abortion-biden-trump
 **Here’s the debate people want**\
 `I asked what you want moderators to ask Biden and Trump at the debate. You had many thoughts.`\
 https://nytimes.com/2024/06/26/us/politics/presidential-debate-trump-biden.html
-
-**Instagram fixes an ‘error’ over political content ahead of the debate.**\
-`By Sheera Frenkel`\
-https://nytimes.com/live/2024/06/26/us/biden-trump-election-debate/instagram-political-content-error
 
