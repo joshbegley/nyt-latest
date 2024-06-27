@@ -1,3 +1,7 @@
+**Prominent Lawyer Roberta Kaplan Departs Firm After Clash With Colleagues**\
+`The well-connected attorney, who founded a powerhouse firm at the dawn of the #MeToo era, has faced complaints that she mistreated and insulted other lawyers.`\
+https://nytimes.com/2024/06/26/business/roberta-robbie-kaplan.html
+
 **Corrections: June 27, 2024**\
 `Corrections that appeared in print on Thursday, June 27, 2024.`\
 https://nytimes.com/2024/06/26/pageoneplus/corrections-june-27-2024.html

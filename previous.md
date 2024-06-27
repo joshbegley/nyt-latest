@@ -1,3 +1,7 @@
+**Prominent Lawyer Roberta Kaplan Departs Firm After Clash With Colleagues**\
+`The well-connected attorney, who founded a powerhouse firm at the dawn of the #MeToo era, has faced complaints that she mistreated and insulted other lawyers.`\
+https://nytimes.com/2024/06/26/business/roberta-robbie-kaplan.html
+
 **Corrections: June 27, 2024**\
 `Corrections that appeared in print on Thursday, June 27, 2024.`\
 https://nytimes.com/2024/06/26/pageoneplus/corrections-june-27-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/25/opinion/thepoint/idaho-abortions-trump-biden
 **Five Charged With Smuggling Contraband Into Youth Lockup Awash in Knives**\
 `Court papers said the “youth development specialists” took more than $50,000 in bribes to allow in items like razor blades, marijuana, alcohol and prescription pills.`\
 https://nytimes.com/2024/06/26/nyregion/brooklyn-juvenile-detention-smuggling-bribes.html
-
-**Gena Rowlands Has Alzheimer’s Decades After ‘The Notebook’**\
-`Rowlands, 94, played an older woman with dementia in the 2004 movie directed by her son, Nick Cassavetes.`\
-https://nytimes.com/2024/06/26/arts/gena-rowlands-alzheimers-notebook.html
 
