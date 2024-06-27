@@ -1,3 +1,11 @@
+**More Voters Expect a Strong Debate for Trump Than for Biden, Poll Shows**\
+`A New York Times/Siena College poll shows Republicans with greater enthusiasm for their candidate.`\
+https://nytimes.com/2024/06/27/us/politics/poll-biden-trump-debate.html
+
+**A Debate Cheat Sheet for Business**\
+`Tax policy, inflation, the economy and markets will be some key issues for corporate America and Wall Street in tonight’s showdown between President Biden and Donald Trump.`\
+https://nytimes.com/2024/06/27/business/dealbook/biden-trump-debate-cheat-sheet.html
+
 **Emily Henry on Writing Best-Sellers Without Tours and TikTok**\
 `The author of “Funny Story” churned out five consecutive No. 1 best-sellers without leaving her comfort zone. How did she pull it off?`\
 https://nytimes.com/2024/06/27/books/funny-story-emily-henry.html
