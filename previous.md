@@ -1,3 +1,7 @@
+**What's next for the Oilers after deciding not to bring back Ken Holland as GM?**\
+`Oilers CEO Jeff Jackson said Thursday he has started to reach out to candidates to replace Holland.`\
+https://nytimes.com/athletic/5597896/2024/06/27/oilers-jeff-jackson-gm-ken-holland/
+
 **Biden, Trump Allies Race to Court Black Vote in Atlanta Ahead of Debate**\
 `The pivotal first face-off between the two candidates is taking place in Atlanta, highlighting Georgia as a key presidential battleground.`\
 https://nytimes.com/2024/06/27/us/politics/biden-trump-black-voters.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/27/style/lilah-gibney-wedding-day-vlog.html
 **Four Fantastic Frozen Drinks (and What to Eat With Them)**\
 `Old Bay waffle fries, loaded nachos or a Nathan’s hot dog on the Coney Island boardwalk will go nicely.`\
 https://nytimes.com/2024/06/27/dining/four-fantastic-frozen-drinks-and-what-to-eat-with-them.html
-
-**What Maureen Dowd, Tom Friedman and Other Opinion Writers Would Ask at the Debate**\
-`A few suggestions from our staff.`\
-https://nytimes.com/live/2024/06/25/opinion/thepoint/debate-questions-opinion-suggestions
 
