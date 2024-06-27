@@ -1,3 +1,7 @@
+**Potential Goal for a Unicorn**\
+`Paolo Pasco and Sarah Sinclair deliver.`\
+https://nytimes.com/2024/06/26/crosswords/daily-puzzle-2024-06-27.html
+
 **Two Governors, Two Visions of a New South**\
 `While Maryland embraces egalitarianism, Louisiana veers toward Christian nationalism.`\
 https://nytimes.com/2024/06/26/opinion/wes-moore-jeff-landry-maryland-louisiana.html
