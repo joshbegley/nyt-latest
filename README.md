@@ -1,3 +1,7 @@
+**Here’s where Biden and Trump stand on key issues.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/heres-where-biden-and-trump-stand-on-key-issues
+
 **NFL won't hold Supplemental Draft this year: Sources**\
 `Supplemental Draft was installed in 1977 as an option for draft-eligible players who did not declare for the regular NFL Draft.`\
 https://nytimes.com/athletic/5596943/2024/06/27/nfl-no-supplemental-draft-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5596279/2024/06/27/wimbledon-2024-storylines-djokov
 **Ten Hag set for coaching staff reshuffle at Man United**\
 `Erik ten Hag is close to agreeing his new contract as Manchester United manager, with talks advancing to add Ruud van Nistelrooy and Rene Hake to his staff.`\
 https://nytimes.com/athletic/5597004/2024/06/27/manchester-united-ten-hag-van-der-gaag/
-
-**Oilers GM Ken Holland won't return next season**\
-`Holland oversaw Edmonton's four playoff appearances and this year's Stanley Cup Final appearance during his tenure.`\
-https://nytimes.com/athletic/5596900/2024/06/27/ken-holland-oilers-leaving/
 
