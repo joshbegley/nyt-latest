@@ -1,3 +1,7 @@
+**Wordle Review No. 1,105, June 28, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/27/crosswords/wordle-review-1105.html
+
 **Thursday Briefing**\
 `Evan Gershkovich’s trial began in Russia.`\
 https://nytimes.com/2024/06/27/briefing/evan-gershkovich-trial-russia.html

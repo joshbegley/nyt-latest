@@ -1,3 +1,7 @@
+**Bill Cobbs, ‘Bodyguard’ and ‘Night at the Museum’ Actor, Dies at 90**\
+`Mr. Cobbs was not a household Hollywood name, but his face was one anyone who watched TV or movies over the past several decades could recognize.`\
+https://nytimes.com/2024/06/27/arts/television/bill-cobbs-dead.html
+
 **Wordle Review No. 1,105, June 28, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/06/27/crosswords/wordle-review-1105.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/06/26/business/economy/inflation-rate-over-
 **Prominent Lawyer Roberta Kaplan Departs Firm After Clash With Colleagues**\
 `The well-connected attorney, who founded a powerhouse firm at the dawn of the #MeToo era, has faced complaints that she mistreated and insulted other lawyers.`\
 https://nytimes.com/2024/06/26/business/roberta-robbie-kaplan.html
-
-**Corrections: June 27, 2024**\
-`Corrections that appeared in print on Thursday, June 27, 2024.`\
-https://nytimes.com/2024/06/26/pageoneplus/corrections-june-27-2024.html
 

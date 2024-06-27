@@ -1,3 +1,7 @@
+**Wordle Review No. 1,105, June 28, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/27/crosswords/wordle-review-1105.html
+
 **Thursday Briefing**\
 `Evan Gershkovich’s trial began in Russia.`\
 https://nytimes.com/2024/06/27/briefing/evan-gershkovich-trial-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/26/business/roberta-robbie-kaplan.html
 **Corrections: June 27, 2024**\
 `Corrections that appeared in print on Thursday, June 27, 2024.`\
 https://nytimes.com/2024/06/26/pageoneplus/corrections-june-27-2024.html
-
-**Quotation of the Day: As A.I. Trains, Pay Attention to Fine Print**\
-`Quotation of the Day for Thursday, June 27, 2024.`\
-https://nytimes.com/2024/06/26/pageoneplus/quotation-of-the-day-as-ai-trains-pay-attention-to-fine-print.html
 
