@@ -1,4 +1,8 @@
 **What's next for the Oilers after deciding not to bring back Ken Holland as GM?**\
+`Oilers CEO Jeff Jackson said he has started to reach out to candidates for the GM job but isn't in a rush to replace Holland.`\
+https://nytimes.com/athletic/5597896/2024/06/27/oilers-jeff-jackson-gm-ken-holland/
+
+**What's next for the Oilers after deciding not to bring back Ken Holland as GM?**\
 `Oilers CEO Jeff Jackson said Thursday he has started to reach out to candidates to replace Holland.`\
 https://nytimes.com/athletic/5597896/2024/06/27/oilers-jeff-jackson-gm-ken-holland/
 
