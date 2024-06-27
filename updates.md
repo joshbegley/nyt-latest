@@ -1,3 +1,15 @@
+**‘Last Summer’ Review: A Shocking Affair to Remember**\
+`Few directors get as deeply under the skin as Catherine Breillat, a longtime provocateur who tests the limits of what the world thinks women should do and say and be.`\
+https://nytimes.com/2024/06/27/movies/last-summer-review.html
+
+**24 N.B.A. Prospects on Their Draft Day Outfits**\
+`Before they were drafted, the N.B.A.’s top prospects stopped to show off their clothes and discuss their decisions of how to represent themselves.`\
+https://nytimes.com/2024/06/27/style/nba-draft-fashion-outfits.html
+
+**Killer Mike Won’t Face Charges After Grammys Arrest**\
+`The rapper, who got into an altercation with a security guard after winning three Grammys, has completed community service.`\
+https://nytimes.com/2024/06/27/arts/music/killer-mike-charges-grammys-arrest.html
+
 **Randall Cobb, family 'safe and healthy' after escaping house fire**\
 `A Tesla charger caught fire and spread through the Cobb's Nashville home.`\
 https://nytimes.com/athletic/5597239/2024/06/27/randall-cobb-house-fire/
