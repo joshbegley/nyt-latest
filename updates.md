@@ -1,3 +1,11 @@
+**‘The Vourdalak’ Review: Blood Relations**\
+`An endangered French aristocrat is stranded with a benighted rural family in this tragicomic fairy tale.`\
+https://nytimes.com/2024/06/27/movies/the-vourdalak-review.html
+
+**‘Music’ Review: Oedipus Rocks**\
+`An ethereal, experimental new drama retells the story of the mythical Greek hero.`\
+https://nytimes.com/2024/06/27/movies/music-review-angela-schanelec.html
+
 **Review: In ‘June Zero,’ There Are Many Ways to See the Past**\
 `Jake Paltrow’s film braids three fictional stories around the 1962 execution of Adolf Eichmann, the Nazi official and war criminal.`\
 https://nytimes.com/2024/06/27/movies/june-zero-review.html
