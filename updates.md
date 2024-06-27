@@ -1,3 +1,15 @@
+**The Doping Scandal Rocking the Upcoming Olympics**\
+`Allegations in the world of competitive swimming raise questions about fairness in the sport.`\
+https://nytimes.com/2024/06/27/podcasts/the-daily/china-olympics-doping.html
+
+**Why Tonight’s Debate Is Different, and New Supreme Court Rulings**\
+`Plus, is the future “made in India”?`\
+https://nytimes.com/2024/06/27/podcasts/trump-biden-debate-supreme-court.html
+
+**The Connections Companion No. 383, June 28, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/27/crosswords/connections-companion-383.html
+
 **Amsterdam Museum to Return a Matisse Work Sold Under Duress in World War II**\
 `The painting, “Odalisque,” was sold to the Stedelijk Museum in the early 1940s by a German-Jewish family desperate to escape the Nazis.`\
 https://nytimes.com/2024/06/27/arts/stedelijk-museum-matisse-odalisque-restitution.html
