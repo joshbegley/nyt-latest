@@ -1,3 +1,19 @@
+**Biden Ended the Trump Crime Wave**\
+`Homicides, which surged during 2020, have been plunging.`\
+https://nytimes.com/2024/06/27/opinion/biden-trump-debate-crime.html
+
+**Why Do India and China Keep Fighting Over This Desolate Terrain?**\
+`Long-running battles in the Himalayas may foretell a more dangerous conflict.`\
+https://nytimes.com/2024/06/27/magazine/india-china-border.html
+
+**‘A Family Affair’ Review: A Rom-Com With a Third Wheel**\
+`When Zara (Joey King) realizes that her mom (Nicole Kidman) is dating her boss (Zac Efron), she tries to split them up.`\
+https://nytimes.com/2024/06/27/movies/a-family-affair-review.html
+
+**Donovan 'heartbroken' for Morgan being left off Olympic roster**\
+`"I've been in (Morgan's) shoes, and it's a horrible, horrible feeling," Donovan, who was left off the 2014 World Cup roster, said.`\
+https://nytimes.com/athletic/5598076/2024/06/27/alex-morgan-landon-donovan-uswnt-comments/
+
 **Paris Hilton Testifies Before Congress on ‘Troubled Teen’ Facilities**\
 `The media personality detailed the abuse she said she suffered at such facilities, in support of a bipartisan effort to prevent child abuse.`\
 https://nytimes.com/2024/06/27/style/paris-hilton-child-abuse-testimony.html
