@@ -1,3 +1,7 @@
+**Supreme Court Blocks Biden Plan on Air Pollution**\
+`Three states challenged the administration’s “good neighbor” plan, meant to protect downwind states from harmful emissions.`\
+https://nytimes.com/2024/06/27/us/politics/supreme-court-biden-air-pollution.html
+
 **How to Escape From the Russian Army**\
 `Facing grim job prospects, a young Nepali signed up to join Russia’s military, which sent him to fight in Ukraine. His ordeal of combat, injury and escape turned into a tale worthy of Hollywood.`\
 https://nytimes.com/2024/06/27/world/asia/escape-from-russian-army.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/27/us/biden-trump-debate/a-june-presidential-de
 **Live Updates: Biden and Trump to Debate Tonight, and Stakes Are High**\
 `Four years after they last shared a stage, President Biden and former President Donald J. Trump will debate Thursday in Atlanta. The Times will carry the debate live at 9 p.m. Eastern time.`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate
-
-**Lanvin, Oldest French Fashion House, Names a New Designer**\
-`Peter Copping will become the artistic director in September.`\
-https://nytimes.com/2024/06/27/style/lanvin-peter-copping.html
 
