@@ -1,3 +1,11 @@
+**When Biden and Trump are debating tonight, we will be fact-checking their claims.**\
+`By Susanna Timmons`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/when-biden-and-trump-are-debating-tonight-we-will-be-fact-checking-their-claims
+
+**The Causes of Jamaal Bowman’s Undoing**\
+`Readers discuss the congressman’s defeat. Also: Donald Trump’s Deep State; anti-obesity drugs; A.I. and our data; choosing baby names.`\
+https://nytimes.com/2024/06/27/opinion/jamaal-bowman-defeat.html
+
 **The latest on Jacob Trouba and the Rangers: 8 potential trade fits**\
 `The Rangers have asked for Trouba's 15-team no-trade list, and there should be interest in the veteran defenseman. Where might he fit?`\
 https://nytimes.com/athletic/5593907/2024/06/27/new-york-rangers-jacob-trouba-trade-fits/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/27/movies/a-quiet-place-day-one-review.html
 **The Supreme Court Neuters a Vital Public Watchdog**\
 `Upending decades of precedent, the court’s conservatives make it much harder for important agencies to do their jobs.`\
 https://nytimes.com/2024/06/25/opinion/court-sec-administrative-state.html
-
-**A Dead Russian Satellite Broke Into More Than 100 Pieces in Space**\
-`The cause of the incident, which added to a growing amount of dangerous space junk in low Earth orbit, remains unknown.`\
-https://nytimes.com/2024/06/27/science/russian-satellite-debris-iss.html
-
-**Biden and Trump took different approaches to prep for the debate.**\
-`By Katie Rogers, Maggie Haberman and Jonathan Swan`\
-https://nytimes.com/live/2024/06/27/us/biden-trump-debate/biden-and-trump-took-different-approaches-to-prep-for-the-debate
 

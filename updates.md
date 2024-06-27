@@ -1,3 +1,11 @@
+**When Biden and Trump are debating tonight, we will be fact-checking their claims.**\
+`By Susanna Timmons`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/when-biden-and-trump-are-debating-tonight-we-will-be-fact-checking-their-claims
+
+**The Causes of Jamaal Bowman’s Undoing**\
+`Readers discuss the congressman’s defeat. Also: Donald Trump’s Deep State; anti-obesity drugs; A.I. and our data; choosing baby names.`\
+https://nytimes.com/2024/06/27/opinion/jamaal-bowman-defeat.html
+
 **The latest on Jacob Trouba and the Rangers: 8 potential trade fits**\
 `The Rangers have asked for Trouba's 15-team no-trade list, and there should be interest in the veteran defenseman. Where might he fit?`\
 https://nytimes.com/athletic/5593907/2024/06/27/new-york-rangers-jacob-trouba-trade-fits/
