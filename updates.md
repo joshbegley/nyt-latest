@@ -1,3 +1,11 @@
+**White House Journalists Urge CNN to Widen Debate Access**\
+`A letter to the network noted that, in previous debates, a reporter from the White House Correspondents’ Association was granted access.`\
+https://nytimes.com/2024/06/27/us/politics/cnn-debate-white-house-journalists.html
+
+**The Tiniest Words Generate the Biggest Uproar**\
+`The outrage over new pronouns fundamentally misunderstands how language works.`\
+https://nytimes.com/2024/06/27/opinion/gender-neutral-pronouns-them.html
+
 **Critically ill children were allowed to leave Gaza for the first time since May.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/06/27/world/israel-gaza-war-hamas/gaza-patients-evacuation
