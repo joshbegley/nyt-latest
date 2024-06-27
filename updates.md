@@ -1,3 +1,11 @@
+**Corrections: June 27, 2024**\
+`Corrections that appeared in print on Thursday, June 27, 2024.`\
+https://nytimes.com/2024/06/26/pageoneplus/corrections-june-27-2024.html
+
+**Quotation of the Day: As A.I. Trains, Pay Attention to Fine Print**\
+`Quotation of the Day for Thursday, June 27, 2024.`\
+https://nytimes.com/2024/06/26/pageoneplus/quotation-of-the-day-as-ai-trains-pay-attention-to-fine-print.html
+
 **Potential Goal for a Unicorn**\
 `Paolo Pasco and Sarah Sinclair deliver.`\
 https://nytimes.com/2024/06/26/crosswords/daily-puzzle-2024-06-27.html

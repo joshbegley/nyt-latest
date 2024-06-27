@@ -1,3 +1,11 @@
+**Corrections: June 27, 2024**\
+`Corrections that appeared in print on Thursday, June 27, 2024.`\
+https://nytimes.com/2024/06/26/pageoneplus/corrections-june-27-2024.html
+
+**Quotation of the Day: As A.I. Trains, Pay Attention to Fine Print**\
+`Quotation of the Day for Thursday, June 27, 2024.`\
+https://nytimes.com/2024/06/26/pageoneplus/quotation-of-the-day-as-ai-trains-pay-attention-to-fine-print.html
+
 **Potential Goal for a Unicorn**\
 `Paolo Pasco and Sarah Sinclair deliver.`\
 https://nytimes.com/2024/06/26/crosswords/daily-puzzle-2024-06-27.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/26/nyregion/brooklyn-juvenile-detention-smuggling-br
 **Gena Rowlands Has Alzheimer’s Decades After ‘The Notebook’**\
 `Rowlands, 94, played an older woman with dementia in the 2004 movie directed by her son, Nick Cassavetes.`\
 https://nytimes.com/2024/06/26/arts/gena-rowlands-alzheimers-notebook.html
-
-**Justices Appear to Mistakenly Reveal a Key Abortion Ruling**\
-`Also, a new poll on the eve of the debate. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2024/06/26/briefing/supreme-court-idaho-abortion-biden-trump-poll.html
-
-**Here’s the debate people want**\
-`I asked what you want moderators to ask Biden and Trump at the debate. You had many thoughts.`\
-https://nytimes.com/2024/06/26/us/politics/presidential-debate-trump-biden.html
 
