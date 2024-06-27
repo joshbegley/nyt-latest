@@ -1,3 +1,7 @@
+**Shahjahan Bhuiya, Executioner Turned TikTok Star, Dies in Bangladesh**\
+`He hanged high-profile inmates in exchange for a reduction in his own robbery and murder sentences, and became a social media sensation after his release.`\
+https://nytimes.com/2024/06/27/world/asia/shahjahan-bhuiya-dead.html
+
 **‘We Have Been Going Backward’**\
 `Iranians say they have little faith their votes in Friday’s presidential election will improve their lives, and many are planning to sit it out.`\
 https://nytimes.com/2024/06/27/world/middleeast/iran-presidential-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/27/style/vogue-germany-margot-friedlander-holocaust.
 **What to Expect in the First Debate**\
 `It has been nearly four years since Donald Trump or President Biden has appeared on a debate stage of any kind. But as the two men prepare to meet for the first presidential debate of 2024, our political reporter Adam Nagourney looks to the past to predict what will unfurl.`\
 https://nytimes.com/video/us/elections/100000009541308/what-to-expect-in-the-first-debate.html
-
-**What Media Outlets on the Right and Left Are Saying About the Debate**\
-`Partisan media outlets this week are already fixating on Thursday night’s first presidential debate — and how their preferred candidate could prevail.`\
-https://nytimes.com/2024/06/27/business/media/debate-liberal-conservative-media.html
 
