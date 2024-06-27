@@ -1,3 +1,11 @@
+**What I'm hearing about the Penguins: Jarry trade, Reilly Smith situation, free agency: What I'm hearing**\
+`The Penguins are shopping Jarry but would also be comfortable with keeping him and Alex Nedeljkovic.`\
+https://nytimes.com/athletic/5597378/2024/06/27/penguins-tristan-jarry-trade-nhl-draft-free-agency/
+
+**What we learned from the Euro 2024 group stage - Ronaldo, Hala Madrid and big-man denial**\
+`It's the end of the Euro 2024 group stage, so after two weeks' of fun, what have we learned?`\
+https://nytimes.com/athletic/5596480/2024/06/27/what-we-learned-from-euro-2024-groups/
+
 **That’s That Basil Pesto**\
 `Pesto is a summer hitmaker, making heirloom tomato tarts, herby potato salads and super quick weeknight pastas sing.`\
 https://nytimes.com/2024/06/27/dining/pesto-pizza-potato-salad-recipes.html

@@ -1,3 +1,11 @@
+**What I'm hearing about the Penguins: Jarry trade, Reilly Smith situation, free agency: What I'm hearing**\
+`The Penguins are shopping Jarry but would also be comfortable with keeping him and Alex Nedeljkovic.`\
+https://nytimes.com/athletic/5597378/2024/06/27/penguins-tristan-jarry-trade-nhl-draft-free-agency/
+
+**What we learned from the Euro 2024 group stage - Ronaldo, Hala Madrid and big-man denial**\
+`It's the end of the Euro 2024 group stage, so after two weeks' of fun, what have we learned?`\
+https://nytimes.com/athletic/5596480/2024/06/27/what-we-learned-from-euro-2024-groups/
+
 **That’s That Basil Pesto**\
 `Pesto is a summer hitmaker, making heirloom tomato tarts, herby potato salads and super quick weeknight pastas sing.`\
 https://nytimes.com/2024/06/27/dining/pesto-pizza-potato-salad-recipes.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5597239/2024/06/27/randall-cobb-house-fire/
 **PFA chief wants end to 'nonsensical' PSR rules on youth player deals**\
 `Maheta Molango, the CEO of the Professional Football Association (PFA), has called for a change to the Premier League&#8217;s &#8220;nonsensical&#8221; profitability and sustainability rules (PSR) as he believes players do not get a fair say in their futures.`\
 https://nytimes.com/athletic/5597145/2024/06/27/psr-rules-youth-player-transfers/
-
-**Walgreens Plans ‘Significant’ Store Closures, Citing Weak Consumer Spending**\
-`The pharmacy giant told investors that shaky consumer spending was affecting its retail operations. But some said the company’s strategy was also to blame.`\
-https://nytimes.com/2024/06/27/business/walgreens-store-closures-earnings.html
-
-**Sha'Carri Richardson and a deep 200m field take spotlight at Olympic trials**\
-`Gabby Thomas, McKenzie Long and a host of other top contenders eye a spot in Paris as the women's 200-meter competition begins.`\
-https://nytimes.com/athletic/5596967/2024/06/27/shacarri-richardson-womens-200-meter-olympics-trials/
 
