@@ -1,3 +1,7 @@
+**The Supreme Court Neuters a Vital Public Watchdog**\
+`Upending decades of precedent, the court’s conservatives make it much harder for important agencies to do their jobs.`\
+https://nytimes.com/2024/06/25/opinion/court-sec-administrative-state.html
+
 **A Dead Russian Satellite Broke Into More Than 100 Pieces in Space**\
 `The cause of the incident, which added to a growing amount of dangerous space junk in low Earth orbit, remains unknown.`\
 https://nytimes.com/2024/06/27/science/russian-satellite-debris-iss.html
