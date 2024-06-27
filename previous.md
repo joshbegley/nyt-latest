@@ -1,3 +1,15 @@
+**Biden, Trump Allies Race to Court Black Vote in Atlanta Ahead of Debate**\
+`The pivotal first face-off between the two candidates is taking place in Atlanta, highlighting Georgia as a key presidential battleground.`\
+https://nytimes.com/2024/06/27/us/politics/biden-trump-black-voters.html
+
+**McCarthy to leave position on Man United coaching staff**\
+`Manchester United’s Benni McCarthy will leave his position as a first-team coach when his two-year contract expires at the end of this month.`\
+https://nytimes.com/athletic/5597879/2024/06/27/manchester-united-benni-mccarthy-leaves/
+
+**Analysis, fits for all 58 NBA Draft picks from John Hollinger and Sam Vecenie**\
+`Sam Vecenie and John Hollinger break down all 58 picks of the 2024 NBA Draft as they happen.`\
+https://nytimes.com/athletic/5595111/2024/06/27/nba-draft-grades-analysis-2024-vecenie-hollinger/
+
 **Trump Biopic Inches Toward Distribution Deal**\
 `“The Apprentice,” a dramatized origin story about Donald J. Trump, has faced fierce criticism from the former president and his allies.`\
 https://nytimes.com/2024/06/27/business/media/apprentice-movie-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/27/dining/four-fantastic-frozen-drinks-and-what-to-e
 **What Maureen Dowd, Tom Friedman and Other Opinion Writers Would Ask at the Debate**\
 `A few suggestions from our staff.`\
 https://nytimes.com/live/2024/06/25/opinion/thepoint/debate-questions-opinion-suggestions
-
-**A Rare White Buffalo Calf Arrives in Yellowstone With a Message**\
-`The calf, named Wakan Gli, is said to fulfill a Lakota prophecy that brings hope, but its birth is also a sign that more must be done to protect the Earth, a Lakota spiritual leader says.`\
-https://nytimes.com/2024/06/27/us/white-buffalo-yellowstone-lakota-prophecy.html
-
-**Dallas Stars buying out Ryan Suter ahead of final year of contract: Sources**\
-`Suter will become a UFA and is the second NHL player to be bought out twice. Tony DeAngelo was the other.`\
-https://nytimes.com/athletic/5597856/2024/06/27/ryan-suter-dallas-stars-buyout/
-
-**Elaine Schwartz, Longtime Principal of an Innovative School, Dies at 92**\
-`A co-founder of the Center School in Manhattan, she implemented once-radical ideas that put the students first. She retired four decades later, at 91.`\
-https://nytimes.com/2024/06/27/education/elaine-schwartz-dead.html
 

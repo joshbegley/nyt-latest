@@ -1,3 +1,15 @@
+**Biden, Trump Allies Race to Court Black Vote in Atlanta Ahead of Debate**\
+`The pivotal first face-off between the two candidates is taking place in Atlanta, highlighting Georgia as a key presidential battleground.`\
+https://nytimes.com/2024/06/27/us/politics/biden-trump-black-voters.html
+
+**McCarthy to leave position on Man United coaching staff**\
+`Manchester United’s Benni McCarthy will leave his position as a first-team coach when his two-year contract expires at the end of this month.`\
+https://nytimes.com/athletic/5597879/2024/06/27/manchester-united-benni-mccarthy-leaves/
+
+**Analysis, fits for all 58 NBA Draft picks from John Hollinger and Sam Vecenie**\
+`Sam Vecenie and John Hollinger break down all 58 picks of the 2024 NBA Draft as they happen.`\
+https://nytimes.com/athletic/5595111/2024/06/27/nba-draft-grades-analysis-2024-vecenie-hollinger/
+
 **Trump Biopic Inches Toward Distribution Deal**\
 `“The Apprentice,” a dramatized origin story about Donald J. Trump, has faced fierce criticism from the former president and his allies.`\
 https://nytimes.com/2024/06/27/business/media/apprentice-movie-trump.html
