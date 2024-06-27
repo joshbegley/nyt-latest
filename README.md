@@ -1,3 +1,7 @@
+**Blackhawks' Connor Bedard wins Calder Trophy**\
+`He became the ninth Blackhawks player to win the Calder as the league’s top rookie Thursday night.`\
+https://nytimes.com/athletic/5598066/2024/06/27/connor-bedard-calder-trophy-blackhawks/
+
 **Schools Police Chief Indicted in Uvalde Shooting Response**\
 `A grand jury indicted the former chief of police for schools in Uvalde, Texas, for his role in the delayed response to a gunman who killed 19 students and two teachers in 2022.`\
 https://nytimes.com/2024/06/27/us/uvalde-shooting-pete-arredondo-indicted.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/27/movies/a-family-affair-review.html
 **Donovan 'heartbroken' for Morgan being left off Olympic roster**\
 `"I've been in (Morgan's) shoes, and it's a horrible, horrible feeling," Donovan, who was left off the 2014 World Cup roster, said.`\
 https://nytimes.com/athletic/5598076/2024/06/27/alex-morgan-landon-donovan-uswnt-comments/
-
-**Paris Hilton Testifies Before Congress on ‘Troubled Teen’ Facilities**\
-`The media personality detailed the abuse she said she suffered at such facilities, in support of a bipartisan effort to prevent child abuse.`\
-https://nytimes.com/2024/06/27/style/paris-hilton-child-abuse-testimony.html
 
