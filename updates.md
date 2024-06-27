@@ -1,3 +1,7 @@
+**Critically ill children were allowed to leave Gaza for the first time since May.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/06/27/world/israel-gaza-war-hamas/gaza-patients-evacuation
+
 **Ready to Debate**\
 `Donald Trump takes the stage tonight with a gag order partially lifted.`\
 https://nytimes.com/2024/06/27/us/politics/trump-trial-debate-gag-order.html
