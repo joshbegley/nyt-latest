@@ -1,3 +1,11 @@
+**MAGA Is Not Getting Everything It Wants From the Supreme Court**\
+`The Trumpist right is presenting aggressive legal theories that fail again and again.`\
+https://nytimes.com/2024/06/27/opinion/supreme-court-murthy-missouri-social-media.html
+
+**Bolivia’s President Confronts a Coup Attempt — and His Onetime Mentor**\
+`After facing down the general who tried to oust him, President Luis Arce is battling a more formidable figure, Evo Morales, a former president who wants to reclaim power.`\
+https://nytimes.com/2024/06/27/world/americas/bolivia-coup-attempt-luis-arce.html
+
 **Biden Ended the Trump Crime Wave**\
 `Homicides, which surged during 2020, have been plunging.`\
 https://nytimes.com/2024/06/27/opinion/biden-trump-debate-crime.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/06/27/us/biden-trump-debate/get-ready-for-the-deba
 **Twins' Carlos Correa exits game in Arizona after getting hit by pitch**\
 `Correa left Thursday's game immediately after taking a pitch off his right forearm.`\
 https://nytimes.com/athletic/5598171/2024/06/27/twins-carlos-correa-hit-by-pitch/
-
-**N.F.L. Ordered to Pay Billions in Sunday Ticket Lawsuit**\
-`The case, which cut to the heart of the league’s media strategy, centered on a subscription service that aired out-of-market games for roughly $300 a year.`\
-https://nytimes.com/2024/06/27/business/media/nfl-sunday-ticket-lawsuit-billions-damage.html
-
-**Join Us for the Debate**\
-`We’ll help navigate every twist and turn when Biden and Trump take the stage in Atlanta tonight.`\
-https://nytimes.com/2024/06/27/us/politics/presidential-debate-live.html
 
