@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/06/27/crosswords/spelling-bee-forum.html
+
 **North Korea Says It Tested Multiple-Warhead Missile Technology**\
 `The announcement, coming days after Vladimir V. Putin’s visit to Pyongyang, suggests an ambitious attempt to upgrade the North’s nuclear arsenal.`\
 https://nytimes.com/2024/06/26/world/asia/north-korea-missile-test.html
