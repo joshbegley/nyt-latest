@@ -1,3 +1,11 @@
+**That’s That Basil Pesto**\
+`Pesto is a summer hitmaker, making heirloom tomato tarts, herby potato salads and super quick weeknight pastas sing.`\
+https://nytimes.com/2024/06/27/dining/pesto-pizza-potato-salad-recipes.html
+
+**College Football 25’s top-ranked defenses: What EA got right and wrong**\
+`The blue bloods reign supreme on the defensive side of the ball as Ohio State, Georgia and Alabama all rank inside the top five.`\
+https://nytimes.com/athletic/5595576/2024/06/27/college-football-25-best-defenses-projections/
+
 **Chelsea contact Leicester over Dewsbury-Hall**\
 `Chelsea have contacted Leicester City to express an interest in signing Kiernan Dewsbury-Hall.`\
 https://nytimes.com/athletic/5597351/2024/06/27/chelsea-dewsbury-hall-transfer-leicester/
