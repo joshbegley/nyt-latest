@@ -1,3 +1,7 @@
+**Supreme Court Rejects S.E.C.’s Administrative Tribunals**\
+`Such tribunals, common in executive agencies, hear enforcement actions without juries, a practice that challengers said violated the Constitution.`\
+https://nytimes.com/2024/06/27/us/politics/supreme-court-sec-tribunal.html
+
 **Biden vs. Trump on Climate Policy**\
 `Ahead of the first presidential debate, we examined the climate stakes in this year’s election.`\
 https://nytimes.com/2024/06/27/climate/biden-vs-trump-on-climate-policy.html
