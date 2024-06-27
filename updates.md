@@ -1,3 +1,7 @@
+**Avalanche's Nathan MacKinnon wins Hart Trophy as NHL's MVP**\
+`LAS VEGAS — The Colorado Avalanche’s Nathan MacKinnon won his first career Hart Trophy, finishing ahead of leading point-getter Nikita Kucherov and Connor McDavid for the NHL&#8217;s MVP award.`\
+https://nytimes.com/athletic/5597749/2024/06/27/nathan-mackinnon-nhl-mvp-hart-trophy/
+
 **A look back at memorable presidential debate moments.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/a-look-back-at-memorable-presidential-debate-moments
