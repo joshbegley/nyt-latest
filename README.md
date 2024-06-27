@@ -1,3 +1,11 @@
+**With Two Major Events, Atlanta Prepares for Traffic to Slow to a Near Standstill**\
+`The two events, the U.S. men’s soccer team vs. Panama and President Biden vs. former President Donald J. Trump, will take place only miles apart.`\
+https://nytimes.com/2024/06/27/us/atlanta-traffic-debate-soccer.html
+
+**MLB stopped letting players see the 'strike zone box' in dugout. Now it's back**\
+`After umpires complained, MLB made players unable to see the strike zone box on dugout tablets. But the MLBPA successfully opposed the move.`\
+https://nytimes.com/athletic/5597918/2024/06/27/mlb-strike-zone-box-dugout/
+
 **A Trump Will Be in the Debate Spin Room (for Biden)**\
 `Mary Trump, Donald J. Trump’s estranged niece, is among the half-dozen representatives that the Biden campaign is deploying to the spin room on Thursday.`\
 https://nytimes.com/2024/06/27/us/politics/biden-mary-trump-debate-surrogates.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5595111/2024/06/27/nba-draft-grades-analysis-2024-v
 **Trump Biopic Inches Toward Distribution Deal**\
 `“The Apprentice,” a dramatized origin story about Donald J. Trump, has faced fierce criticism from the former president and his allies.`\
 https://nytimes.com/2024/06/27/business/media/apprentice-movie-trump.html
-
-**Taiwanese Are Told to Avoid China After It Threatens Independence Backers**\
-`Beijing released new rules calling for execution of “diehard” Taiwanese independence supporters, as hostilities surrounding Taiwan’s status rise.`\
-https://nytimes.com/2024/06/27/world/asia/taiwan-china-travel-warning.html
-
-**6 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2024/06/27/books/review/new-books-recommendations.html
 
