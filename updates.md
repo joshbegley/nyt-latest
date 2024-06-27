@@ -1,3 +1,15 @@
+**Biden and Trump took different approaches to prep for the debate.**\
+`By Katie Rogers, Maggie Haberman and Jonathan Swan`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/biden-and-trump-took-different-approaches-to-prep-for-the-debate
+
+**‘Horizon: An American Saga — Chapter 1’ Review: The Beauty, and the Bloodshed**\
+`In the first of a projected four-film cycle, Kevin Costner revisits the western genre and U.S. history in a big, busy drama.`\
+https://nytimes.com/2024/06/27/movies/horizon-an-american-saga-chapter-1-review.html
+
+**With their Day 1 draft moves, Spurs are committed to building a contender**\
+`San Antonio selected Stephon Castle and traded the No. 8 pick for future selections.`\
+https://nytimes.com/athletic/5596954/2024/06/27/spurs-gregg-popovich-building-contender/
+
 **What I'm hearing about the Penguins: Jarry trade, Reilly Smith situation, free agency: What I'm hearing**\
 `The Penguins are shopping Jarry but would also be comfortable with keeping him and Alex Nedeljkovic.`\
 https://nytimes.com/athletic/5597378/2024/06/27/penguins-tristan-jarry-trade-nhl-draft-free-agency/
