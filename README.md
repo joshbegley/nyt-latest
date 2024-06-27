@@ -1,3 +1,11 @@
+**At Least 750,000 on Brink of Starvation and Death in Sudan, Experts Warn**\
+`A devastating civil war is pushing the country toward a full-blown famine, according to the international body that measures hunger.`\
+https://nytimes.com/2024/06/27/world/africa/sudan-famine-starvation.html
+
+**You Won’t Stop Thinking About This Easier Clam Chowder**\
+`Full of corn, cod and potatoes, this one-pot soup from David Tanis rounds out a menu of cherry tomato toasts and fresh nectarines in lime syrup.`\
+https://nytimes.com/2024/06/27/dining/easier-clam-chowder-recipe.html
+
 **When the Doctor Says Your Disease is Just Stress**\
 `Chronic disease symptoms are often dismissed by physicians — and patients themselves. But that comes from a complex relationship between sickness and stress itself.`\
 https://nytimes.com/2024/06/27/well/stress-chronic-illness-disease.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5597002/2024/06/27/novak-djokovic-injury-wimbledon-
 **Three Great Documentaries to Stream**\
 `This month’s picks look at a summer in Paris, a summer at the Olympics and the heat of the erotic thriller.`\
 https://nytimes.com/2024/06/27/movies/documentaries-streaming.html
-
-**Olympic contender Blakely withdraws from gymnastics trials**\
-`Blakely suffered the injury while performing a double layout on floor during podium training Wednesday.  `\
-https://nytimes.com/athletic/5594832/2024/06/27/skye-blakely-olympic-gymnastics-trials-injury/
-
-**What does Notre Dame-MSU rivalry return mean for future scheduling?**\
-`Two of Notre Dame’s future football schedules will have a vintage feel to them, as the school announced the return of a home-and-home with Michigan State in the 2026-27 seasons.`\
-https://nytimes.com/athletic/5596971/2024/06/27/notre-dame-michigan-state-football-schedule/
 
