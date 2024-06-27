@@ -1,3 +1,11 @@
+**Paris Hilton Testifies Before Congress on ‘Troubled Teen’ Facilities**\
+`The media personality detailed the abuse she said she suffered at such facilities, in support of a bipartisan effort to prevent child abuse.`\
+https://nytimes.com/2024/06/27/style/paris-hilton-child-abuse-testimony.html
+
+**In Atlanta, the debate is competing for attention with the U.S. men’s soccer team.**\
+`At`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/in-atlanta-the-debate-is-competing-for-attention-with-the-us-mens-soccer-team
+
 **Get ready for the debate like an economics pro.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/get-ready-for-the-debate-like-an-economics-pro
