@@ -1,7 +1,3 @@
-**Supreme Court Rejects S.E.C.’s Administrative Tribunals**\
-`Such tribunals, common in executive agencies, hear enforcement actions without juries, a practice that challengers said violated the Constitution.`\
-https://nytimes.com/2024/06/27/us/politics/supreme-court-sec-tribunal.html
-
 **Biden vs. Trump on Climate Policy**\
 `Ahead of the first presidential debate, we examined the climate stakes in this year’s election.`\
 https://nytimes.com/2024/06/27/climate/biden-vs-trump-on-climate-policy.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/06/27/theater/boop-broadway.html
 **What to Know About This Year’s Tour de France (Which Begins in Italy)**\
 `Two previous winners are the leading contenders to win cycling’s most famous race, which, in a rarity, does not end in Paris.`\
 https://nytimes.com/2024/06/27/sports/cycling/tour-de-france-preview.html
+
+**Rich Gulf States Have Huge Ambitions. Will Extreme Heat Hold Them Back?**\
+`The high temperatures blamed for the deaths of pilgrims in Saudi Arabia are taking a broad toll in countries that have spent vast sums to attract tourists and investors.`\
+https://nytimes.com/2024/06/27/world/middleeast/gulf-states-heat-climate-change.html
 
