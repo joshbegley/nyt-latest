@@ -1,3 +1,7 @@
+**A Rare White Buffalo Calf Arrives in Yellowstone With a Message**\
+`The calf, named Wakan Gli, is said to fulfill a Lakota prophecy that brings hope, but its birth is also a sign that more must be done to protect the Earth, a Lakota spiritual leader says.`\
+https://nytimes.com/2024/06/27/us/white-buffalo-yellowstone-lakota-prophecy.html
+
 **Elaine Schwartz, Longtime Principal of an Innovative School, Dies at 92**\
 `A co-founder of the Center School in Manhattan, she implemented once-radical ideas that put the students first. She retired four decades later, at 91.`\
 https://nytimes.com/2024/06/27/education/elaine-schwartz-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/27/nyregion/nj-transit-amtrak-delays.html
 **Sandy Hook Families’ Fight for Alex Jones’s Money Takes an Ugly Turn**\
 `A scramble for the Infowars host’s meager assets pits Sandy Hook victims’ families against one another in court.`\
 https://nytimes.com/2024/06/27/us/politics/alex-jones-sandy-hook.html
-
-**Buzz Cason, Songwriter Best Known for ‘Everlasting Love,’ Dies at 84**\
-`As a performer, he was a leading figure in the early days of Nashville rock ’n’ roll. He later found success as a writer, producer and publisher.`\
-https://nytimes.com/2024/06/27/arts/music/buzz-cason-dead.html
 
