@@ -1,3 +1,7 @@
+**The Rules for the Biden-Trump Presidential Debate on CNN**\
+`Here is an overview of the rules that the two campaigns have agreed to with CNN, the evening’s host.`\
+https://nytimes.com/2024/06/27/us/politics/the-rules-for-the-biden-trump-presidential-debate-on-cnn.html
+
 **Betty Boop Time Travels to New York, and Broadway, Next Spring**\
 `“BOOP! The Betty Boop Musical” had a run in Chicago late last year. It is slated to open at a Shubert theater in April.`\
 https://nytimes.com/2024/06/27/theater/boop-broadway.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/27/t-magazine/paimio-sanatorium-alvar-aalto-hotel.ht
 **Four New California Laws Going Into Effect on July 1**\
 `Subjects include safety at work and in bars, and the cost of renting a home or buying a gun.`\
 https://nytimes.com/2024/06/27/us/california-laws-july.html
-
-**The military had begun an operation against Hamas fighters who returned to an eastern part of Gaza’s biggest city, Israel’s public broadcaster reported.**\
-`By Hiba Yazbek`\
-https://nytimes.com/live/2024/06/27/world/israel-gaza-war-hamas/the-military-had-begun-an-operation-against-hamas-fighters-who-returned-to-an-eastern-part-of-gazas-biggest-city-israels-public-
 
