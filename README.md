@@ -1,3 +1,19 @@
+**Lanvin, Oldest French Fashion House, Names a New Designer**\
+`Peter Copping will become the artistic director in September.`\
+https://nytimes.com/2024/06/27/style/lanvin-peter-copping.html
+
+**Sewell Chan Named Editor of Columbia Journalism Review**\
+`He joins after leading The Texas Tribune for three years.`\
+https://nytimes.com/2024/06/27/business/media/sewell-chan-cjr-editor.html
+
+**A Design Landmark Reimagined as a Retreat**\
+`Plus: a sporty bag collaboration, a Louise Bourgeois show and more recommendations from T Magazine.`\
+https://nytimes.com/2024/06/27/t-magazine/paimio-sanatorium-alvar-aalto-hotel.html
+
+**Four New California Laws Going Into Effect on July 1**\
+`Subjects include safety at work and in bars, and the cost of renting a home or buying a gun.`\
+https://nytimes.com/2024/06/27/us/california-laws-july.html
+
 **The military had begun an operation against Hamas fighters who returned to an eastern part of Gaza’s biggest city, Israel’s public broadcaster reported.**\
 `By Hiba Yazbek`\
 https://nytimes.com/live/2024/06/27/world/israel-gaza-war-hamas/the-military-had-begun-an-operation-against-hamas-fighters-who-returned-to-an-eastern-part-of-gazas-biggest-city-israels-public-
@@ -21,20 +37,4 @@ https://nytimes.com/2024/06/27/business/dealbook/biden-trump-debate-cheat-sheet.
 **Emily Henry on Writing Best-Sellers Without Tours and TikTok**\
 `The author of “Funny Story” churned out five consecutive No. 1 best-sellers without leaving her comfort zone. How did she pull it off?`\
 https://nytimes.com/2024/06/27/books/emily-henry-funny-story-tiktok.html
-
-**‘The Vourdalak’ Review: Blood Relations**\
-`An endangered French aristocrat is stranded with a benighted rural family in this tragicomic fairy tale.`\
-https://nytimes.com/2024/06/27/movies/the-vourdalak-review.html
-
-**‘Music’ Review: Oedipus Rocks**\
-`An ethereal, experimental new drama retells the story of the mythical Greek hero.`\
-https://nytimes.com/2024/06/27/movies/music-review-angela-schanelec.html
-
-**Review: In ‘June Zero,’ There Are Many Ways to See the Past**\
-`Jake Paltrow’s film braids three fictional stories around the 1962 execution of Adolf Eichmann, the Nazi official and war criminal.`\
-https://nytimes.com/2024/06/27/movies/june-zero-review.html
-
-**‘Fancy Dance’ Review: The Search for a Sister**\
-`This debut feature about a missing woman on an Oklahoma reservation is an imperfect but palpably emotional portrait of desperation and hard-won hope.`\
-https://nytimes.com/2024/06/27/movies/fancy-dance-review.html
 
