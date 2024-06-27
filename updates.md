@@ -1,3 +1,11 @@
+**Kawhi Leonard expected to be ready for Olympic training camp**\
+`Three stars — Leonard, Tyrese Haliburton and Joel Embiid — were hampered by injury during the NBA season.`\
+https://nytimes.com/athletic/5597084/2024/06/27/kawhi-leonard-olympic-training-camp/
+
+**‘Confessions of a Good Samaritan’ Review: An Altruistic Story**\
+`In Penny Lane’s newest film, she turns the camera on herself to document her experience donating a kidney to a stranger.`\
+https://nytimes.com/2024/06/27/movies/confessions-of-a-good-samaritan-review.html
+
 **Euro 2024 is giving Radu Dragusin the chance to show Spurs what he can do**\
 `The defender found minutes hard to come by at Spurs last season – but his performances in Germany have served as a reminder of his talents`\
 https://nytimes.com/athletic/5596078/2024/06/27/radu-dragusin-spurs-romania-euro-2024/
