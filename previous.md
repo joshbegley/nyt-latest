@@ -1,3 +1,23 @@
+**Wes Foderingham to West Ham: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Wes Foderingham's mover to West Ham.`\
+https://nytimes.com/athletic/5596035/2024/06/27/wes-foderingham-to-west-ham-the-athletic-500-transfer-ratings/
+
+**Wizards' teardown proceeds by trading Deni Avdija and putting down more draft markers**\
+`For those bemoaning the trade of Avdija before the NBA Draft: Do you not understand the Wizards' long-term play here?`\
+https://nytimes.com/athletic/5595622/2024/06/27/wizards-draft-sarr-avdija/
+
+**EA Sports informing players who will be included in College Football 25**\
+`Not every player who opted in will be in the game. EA Sports will limit teams to around 85 real player spots.`\
+https://nytimes.com/athletic/5596922/2024/06/27/college-football-25-players-included-nil/
+
+**Why England should play 3-4-3 with Bukayo Saka at left wing-back**\
+`England’s left side would benefit from a quality crosser and dribbler in Saka, and he has played that position before`\
+https://nytimes.com/athletic/5580862/2024/06/27/england-saka-left-wing-back/
+
+**Wimbledon 2024's key storylines: Djokovic's knee, Swiatek's destiny - and an election**\
+`With Wimbledon days away, The Athletic's tennis writers explore what to look out for at the All England Club`\
+https://nytimes.com/athletic/5596279/2024/06/27/wimbledon-2024-storylines-djokovic-murray-swiatek-raducanu/
+
 **Ten Hag set for coaching staff reshuffle at Man United**\
 `Erik ten Hag is close to agreeing his new contract as Manchester United manager, with talks advancing to add Ruud van Nistelrooy and Rene Hake to his staff.`\
 https://nytimes.com/athletic/5597004/2024/06/27/manchester-united-ten-hag-van-der-gaag/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5597084/2024/06/27/kawhi-leonard-olympic-training-c
 **‘Confessions of a Good Samaritan’ Review: An Altruistic Story**\
 `In Penny Lane’s newest film, she turns the camera on herself to document her experience donating a kidney to a stranger.`\
 https://nytimes.com/2024/06/27/movies/confessions-of-a-good-samaritan-review.html
-
-**Euro 2024 is giving Radu Dragusin the chance to show Spurs what he can do**\
-`The defender found minutes hard to come by at Spurs last season – but his performances in Germany have served as a reminder of his talents`\
-https://nytimes.com/athletic/5596078/2024/06/27/radu-dragusin-spurs-romania-euro-2024/
-
-**Second Stage Becomes First Broadway Nonprofit in Decades to Name New Leader**\
-`The organization, which won this year’s best play revival Tony Award for “Appropriate,” has chosen Evan Cabnet as its next artistic director.`\
-https://nytimes.com/2024/06/27/theater/second-stage-new-leader-evan-cabnet.html
-
-**At Least 750,000 on Brink of Starvation and Death in Sudan, Experts Warn**\
-`A devastating civil war is pushing the country toward a full-blown famine, according to the international body that measures hunger.`\
-https://nytimes.com/2024/06/27/world/africa/sudan-famine-starvation.html
-
-**You Won’t Stop Thinking About This Easier Clam Chowder**\
-`Full of corn, cod and potatoes, this one-pot soup from David Tanis rounds out a menu of cherry tomato toasts and fresh nectarines in lime syrup.`\
-https://nytimes.com/2024/06/27/dining/easier-clam-chowder-recipe.html
-
-**When the Doctor Says Your Disease is Just Stress**\
-`Chronic disease symptoms are often dismissed by physicians — and patients themselves. But that comes from a complex relationship between sickness and stress itself.`\
-https://nytimes.com/2024/06/27/well/stress-chronic-illness-disease.html
 
