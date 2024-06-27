@@ -1,3 +1,7 @@
+**Jamie Kellner, TV Executive Who Started Fox and WB, Dies at 77**\
+`With an emphasis on younger viewers, he established the networks as serious rivals to ABC, CBS and NBC, which had ruled television for nearly 40 years.`\
+https://nytimes.com/2024/06/27/business/media/jamie-kellner-dead.html
+
 **Libraries and Arts Programs Spared From Cuts in N.Y.C. Budget Deal**\
 `The City Council successfully pushed to reverse budget cuts that Mayor Eric Adams proposed to libraries, cultural institutions and composting.`\
 https://nytimes.com/2024/06/27/nyregion/nyc-budget-culture-libraries.html

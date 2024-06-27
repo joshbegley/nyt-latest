@@ -1,3 +1,7 @@
+**Jamie Kellner, TV Executive Who Started Fox and WB, Dies at 77**\
+`With an emphasis on younger viewers, he established the networks as serious rivals to ABC, CBS and NBC, which had ruled television for nearly 40 years.`\
+https://nytimes.com/2024/06/27/business/media/jamie-kellner-dead.html
+
 **Libraries and Arts Programs Spared From Cuts in N.Y.C. Budget Deal**\
 `The City Council successfully pushed to reverse budget cuts that Mayor Eric Adams proposed to libraries, cultural institutions and composting.`\
 https://nytimes.com/2024/06/27/nyregion/nyc-budget-culture-libraries.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/27/world/asia/france-iran-us-debate-election-asia.ht
 **New Covid Shots Recommended for Americans 6 Months and Older This Fall**\
 `As the virus continues to mutate, scientific advisers to the C.D.C. are urging Americans to roll up their sleeves again for annual vaccinations.`\
 https://nytimes.com/2024/06/27/health/covid-vaccines-seniors-children.html
-
-**What's next for the Oilers after deciding not to bring back Ken Holland as GM?**\
-`Oilers CEO Jeff Jackson said he has started to reach out to candidates for the GM job but isn't in a rush to replace Holland.`\
-https://nytimes.com/athletic/5597896/2024/06/27/oilers-jeff-jackson-gm-ken-holland/
 
