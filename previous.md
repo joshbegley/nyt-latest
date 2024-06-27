@@ -1,3 +1,7 @@
+**Word of the Day: expressly**\
+`This word has appeared in 112 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/06/27/learning/word-of-the-day-expressly.html
+
 **Bill Cobbs, ‘Bodyguard’ and ‘Night at the Museum’ Actor, Dies at 90**\
 `Mr. Cobbs was not a household Hollywood name, but his face was one anyone who watched TV or movies over the past several decades could recognize.`\
 https://nytimes.com/2024/06/27/arts/television/bill-cobbs-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/26/world/asia/north-korea-missile-test.html
 **Inflation’s Wild Ride**\
 `As the presidential election approaches, politicians are focused on who is to blame for price increases. How did we get here?`\
 https://nytimes.com/interactive/2024/06/26/business/economy/inflation-rate-over-time.html
-
-**Prominent Lawyer Roberta Kaplan Departs Firm After Clash With Colleagues**\
-`The well-connected attorney, who founded a powerhouse firm at the dawn of the #MeToo era, has faced complaints that she mistreated and insulted other lawyers.`\
-https://nytimes.com/2024/06/26/business/roberta-robbie-kaplan.html
 
