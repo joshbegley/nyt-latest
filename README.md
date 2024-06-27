@@ -1,3 +1,7 @@
+**NFL ordered to pay over $4 billion in Sunday Ticket lawsuit: Reports**\
+`The NFL was ordered to pay $4 billion to residential subscribers and $96 million to commercial subscribers.`\
+https://nytimes.com/athletic/5597969/2024/06/27/nfl-sunday-ticket-lawsuit/
+
 **With Two Major Events, Atlanta Prepares for Traffic to Slow to a Near Standstill**\
 `The two events, the U.S. men’s soccer team vs. Panama and President Biden vs. former President Donald J. Trump, will take place only miles apart.`\
 https://nytimes.com/2024/06/27/us/atlanta-traffic-debate-soccer.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5597879/2024/06/27/manchester-united-benni-mccarthy
 **Analysis, fits for all 58 NBA Draft picks from John Hollinger and Sam Vecenie**\
 `Sam Vecenie and John Hollinger break down all 58 picks of the 2024 NBA Draft as they happen.`\
 https://nytimes.com/athletic/5595111/2024/06/27/nba-draft-grades-analysis-2024-vecenie-hollinger/
-
-**Trump Biopic Inches Toward Distribution Deal**\
-`“The Apprentice,” a dramatized origin story about Donald J. Trump, has faced fierce criticism from the former president and his allies.`\
-https://nytimes.com/2024/06/27/business/media/apprentice-movie-trump.html
 
