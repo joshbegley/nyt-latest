@@ -1,3 +1,11 @@
+**That’s That Basil Pesto**\
+`Pesto is a summer hitmaker, making heirloom tomato tarts, herby potato salads and super quick weeknight pastas sing.`\
+https://nytimes.com/2024/06/27/dining/pesto-pizza-potato-salad-recipes.html
+
+**College Football 25’s top-ranked defenses: What EA got right and wrong**\
+`The blue bloods reign supreme on the defensive side of the ball as Ohio State, Georgia and Alabama all rank inside the top five.`\
+https://nytimes.com/athletic/5595576/2024/06/27/college-football-25-best-defenses-projections/
+
 **Chelsea contact Leicester over Dewsbury-Hall**\
 `Chelsea have contacted Leicester City to express an interest in signing Kiernan Dewsbury-Hall.`\
 https://nytimes.com/athletic/5597351/2024/06/27/chelsea-dewsbury-hall-transfer-leicester/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/27/business/walgreens-store-closures-earnings.html
 **Sha'Carri Richardson and a deep 200m field take spotlight at Olympic trials**\
 `Gabby Thomas, McKenzie Long and a host of other top contenders eye a spot in Paris as the women's 200-meter competition begins.`\
 https://nytimes.com/athletic/5596967/2024/06/27/shacarri-richardson-womens-200-meter-olympics-trials/
-
-**Kinky Friedman, Musician and Humorist Who Slew Sacred Cows, Dies at 79**\
-`He and his band, the Texas Jewboys, won acclaim for their satirical takes on American culture. He later wrote detective novels and ran for Texas governor.`\
-https://nytimes.com/2024/06/27/arts/music/kinky-friedman-dead.html
-
-**As Iran Picks a President, a Nuclear Shift: Open Talk About Building the Bomb**\
-`Iran has expanded its most sensitive nuclear production site in recent weeks. And for the first time, some leaders are dropping their insistence that the nuclear program is for peaceful purposes.`\
-https://nytimes.com/2024/06/27/us/politics/iran-president-nuclear-bomb.html
 
