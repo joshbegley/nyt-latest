@@ -1,3 +1,7 @@
+**Trump Biopic Inches Toward Distribution Deal**\
+`“The Apprentice,” a dramatized origin story about Donald J. Trump, has faced fierce criticism from the former president and his allies.`\
+https://nytimes.com/2024/06/27/business/media/apprentice-movie-trump.html
+
 **Taiwanese Are Told to Avoid China After It Threatens Independence Backers**\
 `Beijing released new rules calling for execution of “diehard” Taiwanese independence supporters, as hostilities surrounding Taiwan’s status rise.`\
 https://nytimes.com/2024/06/27/world/asia/taiwan-china-travel-warning.html

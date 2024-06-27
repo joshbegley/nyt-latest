@@ -1,3 +1,7 @@
+**Trump Biopic Inches Toward Distribution Deal**\
+`“The Apprentice,” a dramatized origin story about Donald J. Trump, has faced fierce criticism from the former president and his allies.`\
+https://nytimes.com/2024/06/27/business/media/apprentice-movie-trump.html
+
 **Taiwanese Are Told to Avoid China After It Threatens Independence Backers**\
 `Beijing released new rules calling for execution of “diehard” Taiwanese independence supporters, as hostilities surrounding Taiwan’s status rise.`\
 https://nytimes.com/2024/06/27/world/asia/taiwan-china-travel-warning.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5597856/2024/06/27/ryan-suter-dallas-stars-buyout/
 **Elaine Schwartz, Longtime Principal of an Innovative School, Dies at 92**\
 `A co-founder of the Center School in Manhattan, she implemented once-radical ideas that put the students first. She retired four decades later, at 91.`\
 https://nytimes.com/2024/06/27/education/elaine-schwartz-dead.html
-
-**Covering the Final, Chaotic Days of the Supreme Court Term**\
-`It’s a busy time for a reporter on the Supreme Court beat, with momentous decisions coming down one after another.`\
-https://nytimes.com/2024/06/27/insider/supreme-court-reporting.html
 
