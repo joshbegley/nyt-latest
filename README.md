@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/06/27/crosswords/spelling-bee-forum.html
+
 **Word of the Day: expressly**\
 `This word has appeared in 112 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/06/27/learning/word-of-the-day-expressly.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/27/business/china-disinformation-critics-harassment.
 **North Korea Says It Tested Multiple-Warhead Missile Technology**\
 `The announcement, coming days after Vladimir V. Putin’s visit to Pyongyang, suggests an ambitious attempt to upgrade the North’s nuclear arsenal.`\
 https://nytimes.com/2024/06/26/world/asia/north-korea-missile-test.html
-
-**Inflation’s Wild Ride**\
-`As the presidential election approaches, politicians are focused on who is to blame for price increases. How did we get here?`\
-https://nytimes.com/interactive/2024/06/26/business/economy/inflation-rate-over-time.html
 
