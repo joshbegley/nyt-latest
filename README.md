@@ -1,3 +1,11 @@
+**Cover Art for ‘Harry Potter’ Sold at Auction for $1.92 Million**\
+`The watercolor was painted in 1996 by a recent art school graduate from Britain who was working at a bookstore. He was paid $650.`\
+https://nytimes.com/2024/06/27/books/harry-potter-cover-art-auction.html
+
+**Trump turned to familiar tactics before the debate, like a wild claim about drugs.**\
+`By Katie Rogers, Michael Gold and Simon J. Levien`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/trump-turned-to-familiar-tactics-before-the-debate-like-a-wild-claim-about-drugs
+
 **Russia Sends Waves of Troops to the Front in a Brutal Style of Fighting**\
 `More than 1,000 Russian soldiers in Ukraine were killed or wounded on average each day in May, according to NATO and Western military officials.`\
 https://nytimes.com/2024/06/27/us/politics/russia-casualties-ukraine-war.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/27/world/asia/escape-from-russian-army.html
 **Republicans Used to Love Wind and Solar. That Romance Has Cooled.**\
 `A new Pew Research Center survey finds Republican support for wind, solar and electric vehicles has tanked since President Biden was elected, mostly among those 65 and older.`\
 https://nytimes.com/2024/06/27/climate/pew-poll-renewable-energy.html
-
-**China Levels Graft Charges Against Former Defense Ministers**\
-`The two generals were accused of taking huge bribes and of corruption that reached into the armaments sector, indicating that the country’s military has not shaken off old habits.`\
-https://nytimes.com/2024/06/27/world/asia/china-military-corruption.html
-
-**The Rules for the Biden-Trump Presidential Debate on CNN**\
-`Here is an overview of the rules that the two campaigns have agreed to with CNN, the evening’s host.`\
-https://nytimes.com/2024/06/27/us/politics/cnn-presidential-debate-rules.html
 

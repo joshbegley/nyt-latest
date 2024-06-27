@@ -1,3 +1,11 @@
+**Russia Sends Waves of Troops to the Front in a Brutal Style of Fighting**\
+`More than 1,000 Russian soldiers in Ukraine were killed or wounded on average each day in May, according to NATO and Western military officials.`\
+https://nytimes.com/2024/06/27/us/politics/russia-casualties-ukraine-war.html
+
+**Supreme Court Allows, for Now, Emergency Abortions in Idaho**\
+`A majority of the justices dismissed the case, reinstating a lower-court ruling that paused the state’s near-total abortion ban.`\
+https://nytimes.com/2024/06/27/us/politics/supreme-court-idaho-abortion.html
+
 **Supreme Court Rejects S.E.C.’s Administrative Tribunals**\
 `Such tribunals, common in executive agencies, hear enforcement actions without juries, a practice that challengers said violated the Constitution.`\
 https://nytimes.com/2024/06/27/us/politics/supreme-court-sec-tribunal.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/27/world/asia/china-military-corruption.html
 **The Rules for the Biden-Trump Presidential Debate on CNN**\
 `Here is an overview of the rules that the two campaigns have agreed to with CNN, the evening’s host.`\
 https://nytimes.com/2024/06/27/us/politics/cnn-presidential-debate-rules.html
-
-**Betty Boop Time Travels to New York, and Broadway, Next Spring**\
-`“BOOP! The Betty Boop Musical” had a run in Chicago late last year. It is slated to open at a Shubert theater in April.`\
-https://nytimes.com/2024/06/27/theater/boop-broadway.html
-
-**What to Know About This Year’s Tour de France (Which Begins in Italy)**\
-`Two previous winners are the leading contenders to win cycling’s most famous race, which, in a rarity, does not end in Paris.`\
-https://nytimes.com/2024/06/27/sports/cycling/tour-de-france-preview.html
 

@@ -1,3 +1,11 @@
+**Russia Sends Waves of Troops to the Front in a Brutal Style of Fighting**\
+`More than 1,000 Russian soldiers in Ukraine were killed or wounded on average each day in May, according to NATO and Western military officials.`\
+https://nytimes.com/2024/06/27/us/politics/russia-casualties-ukraine-war.html
+
+**Supreme Court Allows, for Now, Emergency Abortions in Idaho**\
+`A majority of the justices dismissed the case, reinstating a lower-court ruling that paused the state’s near-total abortion ban.`\
+https://nytimes.com/2024/06/27/us/politics/supreme-court-idaho-abortion.html
+
 **Supreme Court Rejects S.E.C.’s Administrative Tribunals**\
 `Such tribunals, common in executive agencies, hear enforcement actions without juries, a practice that challengers said violated the Constitution.`\
 https://nytimes.com/2024/06/27/us/politics/supreme-court-sec-tribunal.html
