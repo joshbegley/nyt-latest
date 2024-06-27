@@ -1,3 +1,11 @@
+**With Two Major Events, Atlanta Prepares for Traffic to Slow to a Near Standstill**\
+`The two events, the U.S. men’s soccer team vs. Panama and President Biden vs. former President Donald J. Trump, will take place only miles apart.`\
+https://nytimes.com/2024/06/27/us/atlanta-traffic-debate-soccer.html
+
+**MLB stopped letting players see the 'strike zone box' in dugout. Now it's back**\
+`After umpires complained, MLB made players unable to see the strike zone box on dugout tablets. But the MLBPA successfully opposed the move.`\
+https://nytimes.com/athletic/5597918/2024/06/27/mlb-strike-zone-box-dugout/
+
 **A Trump Will Be in the Debate Spin Room (for Biden)**\
 `Mary Trump, Donald J. Trump’s estranged niece, is among the half-dozen representatives that the Biden campaign is deploying to the spin room on Thursday.`\
 https://nytimes.com/2024/06/27/us/politics/biden-mary-trump-debate-surrogates.html
