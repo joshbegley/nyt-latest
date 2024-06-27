@@ -1,3 +1,15 @@
+**The Last Stand of the Woolly Mammoths**\
+`The species survived on an island north of Siberia for thousands of years, scientists reported, but were most likely plagued by genetic abnormalities.`\
+https://nytimes.com/2024/06/27/science/mammoth-genes-wrangel.html
+
+**‘The Bear’ Season 3 Is a Clanging, Wailing Beast**\
+`The hit FX series about an upstart Chicago restaurant loves the pressures of tight quarters and close shouting. The new season serves up plenty more.`\
+https://nytimes.com/2024/06/27/arts/television/the-bear-season-3.html
+
+**Fox's Euro 2024 coverage is splitting opinion. Do you have to love it or hate it?**\
+`Viewers are certainly tuning in, but Fox's 'summer of soccer' hasn't convinced everyone`\
+https://nytimes.com/athletic/5591694/2024/06/27/euro-2024-fox-tv-coverage-united-states/
+
 **Biden Campaign Takes Aim at Project 2025, a Set of Conservative Proposals**\
 `The plan to dramatically reshape the federal government differs from Trump’s official platform, and has drawn attention on social media.`\
 https://nytimes.com/2024/06/27/us/politics/biden-trump-project-2025.html
