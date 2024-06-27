@@ -1,3 +1,7 @@
+**Shahjahan Bhuiya, Executioner Turned TikTok Star, Dies in Bangladesh**\
+`He hanged high-profile inmates in exchange for a reduction in his own robbery and murder sentences, and became a social media sensation after his release.`\
+https://nytimes.com/2024/06/27/world/asia/shahjahan-bhuiya-dead.html
+
 **‘We Have Been Going Backward’**\
 `Iranians say they have little faith their votes in Friday’s presidential election will improve their lives, and many are planning to sit it out.`\
 https://nytimes.com/2024/06/27/world/middleeast/iran-presidential-election.html
