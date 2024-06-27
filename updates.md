@@ -1,3 +1,7 @@
+**A look back at memorable presidential debate moments.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/a-look-back-at-memorable-presidential-debate-moments
+
 **Blackhawks' Connor Bedard wins Calder Trophy**\
 `He became the ninth Blackhawks player to win the Calder as the league’s top rookie Thursday night.`\
 https://nytimes.com/athletic/5598066/2024/06/27/connor-bedard-calder-trophy-blackhawks/
