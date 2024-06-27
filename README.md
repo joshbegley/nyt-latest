@@ -1,3 +1,11 @@
+**Meet the Moderator: Dana Bash.**\
+`What you need to know about CNN’s chief political correspondent.`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/meet-the-moderator-dana-bash
+
+**Bullpen report: Ben Joyce adding to his repertoire, Jhoan Durán velocity concerns and more**\
+`In his latest MLB bullpen report, Greg Jewett notes that a new pitch has Ben Joyce trending in the direction of future save opportunities.`\
+https://nytimes.com/athletic/5597676/2024/06/27/bullpen-report-ben-joyce-jhoan-duran-fantasy-baseball-2024-closers/
+
 **After Travel Meltdowns, Amtrak and N.J. Transit Offer Plan to Fix Mess**\
 `Officials of the two transit agencies met in an impromptu meeting on Thursday called by New Jersey’s governor, Philip D. Murphy.`\
 https://nytimes.com/2024/06/27/nyregion/nj-transit-amtrak-delays.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/27/world/middleeast/gaza-patients-evacuation.html
 **Ready to Debate**\
 `Donald Trump takes the stage tonight with a gag order partially lifted.`\
 https://nytimes.com/2024/06/27/us/politics/trump-trial-debate-gag-order.html
-
-**Two women sparred in the first televised presidential debate 68 years ago.**\
-`By Simon J. Levien`\
-https://nytimes.com/live/2024/06/27/us/biden-trump-debate/two-women-sparred-in-the-first-televised-presidential-debate-68-years-ago
-
-**Until Saturday: Colorado wildly overrated by EA Sports**\
-`Welcome to Until Saturday, the five-star college football newsletter: Did you make EA Sports' cut? `\
-https://nytimes.com/athletic/5597600/2024/06/27/ea-sports-college-football-ratings-colorado-until-saturday/
 
