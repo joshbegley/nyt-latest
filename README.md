@@ -1,3 +1,15 @@
+**‘Last Summer’ Review: A Shocking Affair to Remember**\
+`Few directors get as deeply under the skin as Catherine Breillat, a longtime provocateur who tests the limits of what the world thinks women should do and say and be.`\
+https://nytimes.com/2024/06/27/movies/last-summer-review.html
+
+**24 N.B.A. Prospects on Their Draft Day Outfits**\
+`Before they were drafted, the N.B.A.’s top prospects stopped to show off their clothes and discuss their decisions of how to represent themselves.`\
+https://nytimes.com/2024/06/27/style/nba-draft-fashion-outfits.html
+
+**Killer Mike Won’t Face Charges After Grammys Arrest**\
+`The rapper, who got into an altercation with a security guard after winning three Grammys, has completed community service.`\
+https://nytimes.com/2024/06/27/arts/music/killer-mike-charges-grammys-arrest.html
+
 **Randall Cobb, family 'safe and healthy' after escaping house fire**\
 `A Tesla charger caught fire and spread through the Cobb's Nashville home.`\
 https://nytimes.com/athletic/5597239/2024/06/27/randall-cobb-house-fire/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/27/us/politics/iran-president-nuclear-bomb.html
 **Here’s where Biden and Trump stand on key issues.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/heres-where-biden-and-trump-stand-on-key-issues
-
-**NFL won't hold Supplemental Draft this year: Sources**\
-`Supplemental Draft was installed in 1977 as an option for draft-eligible players who did not declare for the regular NFL Draft.`\
-https://nytimes.com/athletic/5596943/2024/06/27/nfl-no-supplemental-draft-2024/
-
-**Fact-Checking Biden’s and Trump’s Claims on Domestic Policy**\
-`We scrutinized the presidential candidates’ recent claims on abortion, health care, crime and climate change ahead of the debate.`\
-https://nytimes.com/2024/06/27/us/biden-trump-fact-check-debate.html
-
-**Purdue Opioid Settlement on Verge of Collapse After Supreme Court Ruling**\
-`Plaintiffs and the company vowed to renegotiate but the talks will be challenging after the court struck down a provision the Sacklers had insisted on in exchange for $6 billion.`\
-https://nytimes.com/2024/06/27/health/purdue-pharma-sackler-opioid-supreme-court.html
 
