@@ -1,3 +1,7 @@
+**Amsterdam Museum to Return a Matisse Work Sold Under Duress in World War II**\
+`The painting, “Odalisque,” was sold to the Stedelijk Museum in the early 1940s by a German-Jewish family desperate to escape the Nazis.`\
+https://nytimes.com/2024/06/27/arts/stedelijk-museum-matisse-odalisque-restitution.html
+
 **Shahjahan Bhuiya, Executioner Turned TikTok Star, Dies in Bangladesh**\
 `He hanged high-profile inmates in exchange for a reduction in his own robbery and murder sentences, and became a social media sensation after his release.`\
 https://nytimes.com/2024/06/27/world/asia/shahjahan-bhuiya-dead.html
