@@ -1,3 +1,7 @@
+**Purdue Opioid Settlement on Verge of Collapse After Supreme Court Ruling**\
+`Plaintiffs and the company vowed to renegotiate but the talks will be challenging after the court struck down a provision the Sacklers had insisted on in exchange for $6 billion.`\
+https://nytimes.com/2024/06/27/health/purdue-pharma-sackler-opioid-supreme-court.html
+
 **Fact-Checking Biden’s and Trump’s Claims on Domestic Policy**\
 `We scrutinized the presidential candidates’ recent claims on abortion, health care, crime and climate change ahead of the debate.`\
 https://nytimes.com/2024/06/27/us/biden-trump-fact-check-debate.html
