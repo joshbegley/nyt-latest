@@ -1,3 +1,11 @@
+**Cover Art for ‘Harry Potter’ Sold at Auction for $1.92 Million**\
+`The watercolor was painted in 1996 by a recent art school graduate from Britain who was working at a bookstore. He was paid $650.`\
+https://nytimes.com/2024/06/27/books/harry-potter-cover-art-auction.html
+
+**Trump turned to familiar tactics before the debate, like a wild claim about drugs.**\
+`By Katie Rogers, Michael Gold and Simon J. Levien`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/trump-turned-to-familiar-tactics-before-the-debate-like-a-wild-claim-about-drugs
+
 **Russia Sends Waves of Troops to the Front in a Brutal Style of Fighting**\
 `More than 1,000 Russian soldiers in Ukraine were killed or wounded on average each day in May, according to NATO and Western military officials.`\
 https://nytimes.com/2024/06/27/us/politics/russia-casualties-ukraine-war.html
