@@ -1,3 +1,7 @@
+**The Incredible Disappearing Dress**\
+`Balenciaga put on quite a performance in Paris. There was also drama at Schiaparelli and magic at Jean Paul Gaultier.`\
+https://nytimes.com/2024/06/27/style/balenciaga-schiaparelli-couture.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/06/27/crosswords/spelling-bee-forum.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/27/nyregion/nyc-census-children-teens.html
 **New Tactic in China’s Information War: Harassing a Critic’s Child in the U.S.**\
 `A covert campaign to target a writer critical of the country’s Communist Party has extended to sexually suggestive threats against his 16-year-old daughter.`\
 https://nytimes.com/2024/06/27/business/china-disinformation-critics-harassment.html
-
-**North Korea Says It Tested Multiple-Warhead Missile Technology**\
-`The announcement, coming days after Vladimir V. Putin’s visit to Pyongyang, suggests an ambitious attempt to upgrade the North’s nuclear arsenal.`\
-https://nytimes.com/2024/06/26/world/asia/north-korea-missile-test.html
 
