@@ -1,3 +1,7 @@
+**Chelsea contact Leicester over Dewsbury-Hall**\
+`Chelsea have contacted Leicester City to express an interest in signing Kiernan Dewsbury-Hall.`\
+https://nytimes.com/athletic/5597351/2024/06/27/chelsea-dewsbury-hall-transfer-leicester/
+
 **‘Last Summer’ Review: A Shocking Affair to Remember**\
 `Few directors get as deeply under the skin as Catherine Breillat, a longtime provocateur who tests the limits of what the world thinks women should do and say and be.`\
 https://nytimes.com/2024/06/27/movies/last-summer-review.html
