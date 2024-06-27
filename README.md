@@ -1,3 +1,7 @@
+**Schools Police Chief Indicted in Uvalde Shooting Response**\
+`A grand jury indicted the former chief of police for schools in Uvalde, Texas, for his role in the delayed response to a gunman who killed 19 students and two teachers in 2022.`\
+https://nytimes.com/2024/06/27/us/uvalde-shooting-pete-arredondo-indicted.html
+
 **This Is the First Presidential Debate Without an In-Person Audience Since 1960**\
 `John F. Kennedy and Richard M. Nixon were the last presidential candidates to debate with no live audience during a general election.`\
 https://nytimes.com/2024/06/27/us/politics/biden-trump-debate-no-audience.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5598076/2024/06/27/alex-morgan-landon-donovan-uswnt
 **Paris Hilton Testifies Before Congress on ‘Troubled Teen’ Facilities**\
 `The media personality detailed the abuse she said she suffered at such facilities, in support of a bipartisan effort to prevent child abuse.`\
 https://nytimes.com/2024/06/27/style/paris-hilton-child-abuse-testimony.html
-
-**In Atlanta, the debate is competing for attention with the U.S. men’s soccer team.**\
-`At`\
-https://nytimes.com/live/2024/06/27/us/biden-trump-debate/in-atlanta-the-debate-is-competing-for-attention-with-the-us-mens-soccer-team
 
