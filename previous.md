@@ -1,3 +1,7 @@
+**Israeli Soldier Is Killed During Raid in West Bank, Military Says**\
+`As well as the officer who died, another was severely wounded during the operation in Jenin, a bastion of armed resistance to Israel’s occupation. One Palestinian was also reported wounded.`\
+https://nytimes.com/2024/06/27/world/middleeast/israel-jenin-soldier-killed-west-bank-raid.html
+
 **More Voters Expect a Strong Debate for Trump Than for Biden, Poll Shows**\
 `A New York Times/Siena College poll shows Republicans with greater enthusiasm for their candidate.`\
 https://nytimes.com/2024/06/27/us/politics/poll-biden-trump-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/27/movies/daddio-review.html
 **‘Chronicles of a Wandering Saint’ Review: Are the Meek Blessed?**\
 `It’s clear that Rita’s life in rural Argentina could use a bit of magic. But her willingness to bend the truth to achieve it heralds disaster.`\
 https://nytimes.com/2024/06/27/movies/chronicles-of-a-wandering-saint-review.html
-
-**A Tiny Circle of Advisers Helped Prod Macron to Take a Giant Risk**\
-`President Emmanuel Macron’s governing style has always been intensely top-down. But with far-right nationalists in France closing in on power, some believe he may have gone too far this time.`\
-https://nytimes.com/2024/06/27/world/europe/france-macron-snap-election-decision.html
 
