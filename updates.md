@@ -1,3 +1,11 @@
+**Friday Briefing: What to Watch in the French Election**\
+`Also, the upcoming U.S. presidential debate and the vote in Iran.`\
+https://nytimes.com/2024/06/27/world/asia/france-iran-us-debate-election-asia.html
+
+**New Covid Shots Recommended for Americans 6 Months and Older This Fall**\
+`As the virus continues to mutate, scientific advisers to the C.D.C. are urging Americans to roll up their sleeves again for annual vaccinations.`\
+https://nytimes.com/2024/06/27/health/covid-vaccines-seniors-children.html
+
 **What's next for the Oilers after deciding not to bring back Ken Holland as GM?**\
 `Oilers CEO Jeff Jackson said he has started to reach out to candidates for the GM job but isn't in a rush to replace Holland.`\
 https://nytimes.com/athletic/5597896/2024/06/27/oilers-jeff-jackson-gm-ken-holland/

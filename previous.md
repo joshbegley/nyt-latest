@@ -1,3 +1,11 @@
+**Friday Briefing: What to Watch in the French Election**\
+`Also, the upcoming U.S. presidential debate and the vote in Iran.`\
+https://nytimes.com/2024/06/27/world/asia/france-iran-us-debate-election-asia.html
+
+**New Covid Shots Recommended for Americans 6 Months and Older This Fall**\
+`As the virus continues to mutate, scientific advisers to the C.D.C. are urging Americans to roll up their sleeves again for annual vaccinations.`\
+https://nytimes.com/2024/06/27/health/covid-vaccines-seniors-children.html
+
 **What's next for the Oilers after deciding not to bring back Ken Holland as GM?**\
 `Oilers CEO Jeff Jackson said he has started to reach out to candidates for the GM job but isn't in a rush to replace Holland.`\
 https://nytimes.com/athletic/5597896/2024/06/27/oilers-jeff-jackson-gm-ken-holland/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/27/books/review/new-books-recommendations.html
 **Read Judge Cannon’s Ruling**\
 `Judge Aileen Cannon said she intended to review a hugely consequential legal victory that prosecutors won last year and that served as a cornerstone of the obstruction charges against Donald Trump.`\
 https://nytimes.com/interactive/2024/06/27/us/politics/trump-mal-order-setting-crime-fraud-hearing.html
-
-**Is It OK for Guests to Vlog at a Wedding?**\
-`An influencer’s nuptials spark a social media debate on what is considered appropriate to share online when attending a wedding.`\
-https://nytimes.com/2024/06/27/style/lilah-gibney-wedding-day-vlog.html
-
-**Four Fantastic Frozen Drinks (and What to Eat With Them)**\
-`Old Bay waffle fries, loaded nachos or a Nathan’s hot dog on the Coney Island boardwalk will go nicely.`\
-https://nytimes.com/2024/06/27/dining/four-fantastic-frozen-drinks-and-what-to-eat-with-them.html
 
