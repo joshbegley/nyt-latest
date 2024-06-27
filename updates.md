@@ -1,3 +1,11 @@
+**This Is the First Presidential Debate Without an In-Person Audience Since 1960**\
+`John F. Kennedy and Richard M. Nixon were the last presidential candidates to debate with no live audience during a general election.`\
+https://nytimes.com/2024/06/27/us/politics/biden-trump-debate-no-audience.html
+
+**Canucks re-sign Tyler Myers to 3-year contract**\
+`Myers, a 34-year-old blueliner, was intent on remaining in Vancouver.`\
+https://nytimes.com/athletic/5598295/2024/06/27/canucks-tyler-myers-contract/
+
 **MAGA Is Not Getting Everything It Wants From the Supreme Court**\
 `The Trumpist right is presenting aggressive legal theories that fail again and again.`\
 https://nytimes.com/2024/06/27/opinion/supreme-court-murthy-missouri-social-media.html
