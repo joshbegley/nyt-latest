@@ -1,3 +1,11 @@
+**‘We Have Been Going Backward’**\
+`Iranians say they have little faith their votes in Friday’s presidential election will improve their lives, and many are planning to sit it out.`\
+https://nytimes.com/2024/06/27/world/middleeast/iran-presidential-election.html
+
+**Four Mount Fuji Deaths Reported Before Climbing Season Begins**\
+`Three bodies were discovered near the mountain’s crater, the local media reported. Separately, a professional climber fell unconscious and died.`\
+https://nytimes.com/2024/06/27/us/mount-fuji-deaths-japan-climbers.html
+
 **How Conservative Swing Voters React to a Strong Anti-Abortion Push**\
 `Republicans pay a price when voters who leaned right begin to lean left.`\
 https://nytimes.com/live/2024/06/25/opinion/thepoint/swing-voters-anti-abortion
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/elections/100000009541308/what-to-expect-in-the-fir
 **What Media Outlets on the Right and Left Are Saying About the Debate**\
 `Partisan media outlets this week are already fixating on Thursday night’s first presidential debate — and how their preferred candidate could prevail.`\
 https://nytimes.com/2024/06/27/business/media/debate-liberal-conservative-media.html
-
-**Where Is the Best Pizza in the United States … and the World?**\
-`The New York Times Food staff picked their favorite pizza spots in the country. Now we want to hear from you.`\
-https://nytimes.com/2024/06/27/dining/ask-the-readers-where-is-the-best-pizza.html
-
-**‘The Bear’ Understands Our Twisted Love Affair With Chefs**\
-`The celebrated show is both a product of our unhealthy obsession with toxic restaurant culture and a potential remedy for it.`\
-https://nytimes.com/2024/06/27/opinion/the-bear-toxic-chefs.html
 

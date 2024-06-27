@@ -1,3 +1,11 @@
+**‘We Have Been Going Backward’**\
+`Iranians say they have little faith their votes in Friday’s presidential election will improve their lives, and many are planning to sit it out.`\
+https://nytimes.com/2024/06/27/world/middleeast/iran-presidential-election.html
+
+**Four Mount Fuji Deaths Reported Before Climbing Season Begins**\
+`Three bodies were discovered near the mountain’s crater, the local media reported. Separately, a professional climber fell unconscious and died.`\
+https://nytimes.com/2024/06/27/us/mount-fuji-deaths-japan-climbers.html
+
 **How Conservative Swing Voters React to a Strong Anti-Abortion Push**\
 `Republicans pay a price when voters who leaned right begin to lean left.`\
 https://nytimes.com/live/2024/06/25/opinion/thepoint/swing-voters-anti-abortion
