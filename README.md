@@ -1,3 +1,15 @@
+**The Doping Scandal Rocking the Upcoming Olympics**\
+`Allegations in the world of competitive swimming raise questions about fairness in the sport.`\
+https://nytimes.com/2024/06/27/podcasts/the-daily/china-olympics-doping.html
+
+**Why Tonight’s Debate Is Different, and New Supreme Court Rulings**\
+`Plus, is the future “made in India”?`\
+https://nytimes.com/2024/06/27/podcasts/trump-biden-debate-supreme-court.html
+
+**The Connections Companion No. 383, June 28, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/27/crosswords/connections-companion-383.html
+
 **Amsterdam Museum to Return a Matisse Work Sold Under Duress in World War II**\
 `The painting, “Odalisque,” was sold to the Stedelijk Museum in the early 1940s by a German-Jewish family desperate to escape the Nazis.`\
 https://nytimes.com/2024/06/27/arts/stedelijk-museum-matisse-odalisque-restitution.html
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2024/06/27/realestate/Flatiron-garment-district-
 **Trump’s V.P. Parade Nears Its End, With Vance, Burgum and Rubio in Front**\
 `Even as Donald Trump has narrowed his list of top choices, he and his advisers are stoking speculation about others and suggesting that an announcement is imminent — or maybe not.`\
 https://nytimes.com/2024/06/27/us/politics/trump-vp-pick.html
-
-**Boeing Says Added Inspections Are Raising 737 Max Production Quality**\
-`Boeing has reduced defects and cut production time for the 737 Max airplane as it improves processes, training and inspections, a company official said.`\
-https://nytimes.com/2024/06/27/business/boeing-737-max-production.html
-
-**From Hacker to Hunted Figure, the Polarizing Legacy of Julian Assange**\
-`The co-founder of WikiLeaks was a heroic crusader for truth to many people for publishing government secrets. To others, he was a reckless leaker endangering lives.`\
-https://nytimes.com/2024/06/27/world/europe/julian-assange-wikileaks-legacy.html
-
-**A Holocaust Survivor Gets a Vogue Cover**\
-`Vogue Germany’s latest cover star, 102-year-old Margot Friedländer, is a meaningful subject, said Anna Wintour.`\
-https://nytimes.com/2024/06/27/style/vogue-germany-margot-friedlander-holocaust.html
 
