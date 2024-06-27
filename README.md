@@ -1,3 +1,11 @@
+**Randall Cobb, family 'safe and healthy' after escaping house fire**\
+`A Tesla charger caught fire and spread through the Cobb's Nashville home.`\
+https://nytimes.com/athletic/5597239/2024/06/27/randall-cobb-house-fire/
+
+**PFA chief wants end to 'nonsensical' PSR rules on youth player deals**\
+`Maheta Molango, the CEO of the Professional Football Association (PFA), has called for a change to the Premier League&#8217;s &#8220;nonsensical&#8221; profitability and sustainability rules (PSR) as he believes players do not get a fair say in their futures.`\
+https://nytimes.com/athletic/5597145/2024/06/27/psr-rules-youth-player-transfers/
+
 **Walgreens Plans ‘Significant’ Store Closures, Citing Weak Consumer Spending**\
 `The pharmacy giant told investors that shaky consumer spending was affecting its retail operations. But some said the company’s strategy was also to blame.`\
 https://nytimes.com/2024/06/27/business/walgreens-store-closures-earnings.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/27/us/biden-trump-fact-check-debate.html
 **Purdue Opioid Settlement on Verge of Collapse After Supreme Court Ruling**\
 `Plaintiffs and the company vowed to renegotiate but the talks will be challenging after the court struck down a provision the Sacklers had insisted on in exchange for $6 billion.`\
 https://nytimes.com/2024/06/27/health/purdue-pharma-sackler-opioid-supreme-court.html
-
-**Wes Foderingham to West Ham: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we analyse and rate Wes Foderingham's mover to West Ham.`\
-https://nytimes.com/athletic/5596035/2024/06/27/wes-foderingham-to-west-ham-the-athletic-500-transfer-ratings/
-
-**Wizards' teardown proceeds by trading Deni Avdija and putting down more draft markers**\
-`For those bemoaning the trade of Avdija before the NBA Draft: Do you not understand the Wizards' long-term play here?`\
-https://nytimes.com/athletic/5595622/2024/06/27/wizards-draft-sarr-avdija/
 
