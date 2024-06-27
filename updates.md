@@ -1,3 +1,7 @@
+**Bodies Found Near Mount Fuji’s Crater**\
+`Aerial footage showed rescuers bringing a body down from the slopes, days before the start of the climbing season.`\
+https://nytimes.com/video/world/asia/100000009542771/japan-mount-fuji-climbers.html
+
 **The Incredible Disappearing Dress**\
 `Balenciaga put on quite a performance in Paris. There was also drama at Schiaparelli and magic at Jean Paul Gaultier.`\
 https://nytimes.com/2024/06/27/style/balenciaga-schiaparelli-couture.html

@@ -1,3 +1,7 @@
+**Bodies Found Near Mount Fuji’s Crater**\
+`Aerial footage showed rescuers bringing a body down from the slopes, days before the start of the climbing season.`\
+https://nytimes.com/video/world/asia/100000009542771/japan-mount-fuji-climbers.html
+
 **The Incredible Disappearing Dress**\
 `Balenciaga put on quite a performance in Paris. There was also drama at Schiaparelli and magic at Jean Paul Gaultier.`\
 https://nytimes.com/2024/06/27/style/balenciaga-schiaparelli-couture.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/27/us/politics/trump-biden-debate-preview.html
 **New York City Has 186,000 Fewer Children and Teens Than It Did in 2020**\
 `New census numbers show the steepest drop in the city’s youngest age group in at least a decade as many families have left to live elsewhere.`\
 https://nytimes.com/2024/06/27/nyregion/nyc-census-children-teens.html
-
-**New Tactic in China’s Information War: Harassing a Critic’s Child in the U.S.**\
-`A covert campaign to target a writer critical of the country’s Communist Party has extended to sexually suggestive threats against his 16-year-old daughter.`\
-https://nytimes.com/2024/06/27/business/china-disinformation-critics-harassment.html
 
