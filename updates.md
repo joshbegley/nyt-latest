@@ -1,3 +1,7 @@
+**The Incredible Disappearing Dress**\
+`Balenciaga put on quite a performance in Paris. There was also drama at Schiaparelli and magic at Jean Paul Gaultier.`\
+https://nytimes.com/2024/06/27/style/balenciaga-schiaparelli-couture.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/06/27/crosswords/spelling-bee-forum.html
