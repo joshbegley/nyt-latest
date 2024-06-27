@@ -1,3 +1,15 @@
+**After Travel Meltdowns, Amtrak and N.J. Transit Offer Plan to Fix Mess**\
+`Officials of the two transit agencies met in an impromptu meeting on Thursday called by New Jersey’s governor, Philip D. Murphy.`\
+https://nytimes.com/2024/06/27/nyregion/nj-transit-amtrak-delays.html
+
+**Sandy Hook Families’ Fight for Alex Jones’s Money Takes an Ugly Turn**\
+`A scramble for the Infowars host’s meager assets pits Sandy Hook victims’ families against one another in court.`\
+https://nytimes.com/2024/06/27/us/politics/alex-jones-sandy-hook.html
+
+**Buzz Cason, Songwriter Best Known for ‘Everlasting Love,’ Dies at 84**\
+`As a performer, he was a leading figure in the early days of Nashville rock ’n’ roll. He later found success as a writer, producer and publisher.`\
+https://nytimes.com/2024/06/27/arts/music/buzz-cason-dead.html
+
 **Judge to Revisit Key Legal Finding in Trump Classified Documents Case**\
 `Even though another federal court has ruled on the matter, Judge Aileen Cannon said she would hold a hearing to determine whether prosecutors can use information from one of the former president’s lawyers.`\
 https://nytimes.com/2024/06/27/us/politics/trump-lawyer-documents-case.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/06/27/us/biden-trump-debate/two-women-sparred-in-t
 **Until Saturday: Colorado wildly overrated by EA Sports**\
 `Welcome to Until Saturday, the five-star college football newsletter: Did you make EA Sports' cut? `\
 https://nytimes.com/athletic/5597600/2024/06/27/ea-sports-college-football-ratings-colorado-until-saturday/
-
-**Beware the Billionaire Blinders**\
-`It seems like Jeff Yass simply can’t fathom anyone earning less than $100,000 a year.`\
-https://nytimes.com/live/2024/06/25/opinion/thepoint/jeff-yass-billionaire-interview
-
-**Forest's Niakhate to have medical ahead of Lyon transfer**\
-`Nottingham Forest defender Moussa Niakhate is set to join Lyon in a move that will dramatically reduce the risk of the club incurring another points penalty next season.`\
-https://nytimes.com/athletic/5596569/2024/06/27/nottingham-forest-niakhate-lyon-transfer/
-
-**When Biden and Trump are debating tonight, we will be fact-checking their claims.**\
-`By Susanna Timmons`\
-https://nytimes.com/live/2024/06/27/us/biden-trump-debate/when-biden-and-trump-are-debating-tonight-we-will-be-fact-checking-their-claims
 

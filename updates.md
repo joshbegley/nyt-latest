@@ -1,3 +1,15 @@
+**After Travel Meltdowns, Amtrak and N.J. Transit Offer Plan to Fix Mess**\
+`Officials of the two transit agencies met in an impromptu meeting on Thursday called by New Jersey’s governor, Philip D. Murphy.`\
+https://nytimes.com/2024/06/27/nyregion/nj-transit-amtrak-delays.html
+
+**Sandy Hook Families’ Fight for Alex Jones’s Money Takes an Ugly Turn**\
+`A scramble for the Infowars host’s meager assets pits Sandy Hook victims’ families against one another in court.`\
+https://nytimes.com/2024/06/27/us/politics/alex-jones-sandy-hook.html
+
+**Buzz Cason, Songwriter Best Known for ‘Everlasting Love,’ Dies at 84**\
+`As a performer, he was a leading figure in the early days of Nashville rock ’n’ roll. He later found success as a writer, producer and publisher.`\
+https://nytimes.com/2024/06/27/arts/music/buzz-cason-dead.html
+
 **Critically ill children were allowed to leave Gaza for the first time since May.**\
 `The Israeli military said the operation was carried out in coordination with the U.S., Egypt and the international community. In all, 68 people — sick and injured patients and their escorts — were allowed to leave, the military said.`\
 https://nytimes.com/2024/06/27/world/middleeast/gaza-patients-evacuation.html
