@@ -1,3 +1,7 @@
+**Twins' Carlos Correa exits game in Arizona after getting hit by pitch**\
+`Correa left Thursday's game immediately after taking a pitch off his right forearm.`\
+https://nytimes.com/athletic/5598171/2024/06/27/twins-carlos-correa-hit-by-pitch/
+
 **N.F.L. Ordered to Pay Billions in Sunday Ticket Lawsuit**\
 `The case, which cut to the heart of the league’s media strategy, centered on a subscription service that aired out-of-market games for roughly $300 a year.`\
 https://nytimes.com/2024/06/27/business/media/nfl-sunday-ticket-lawsuit-billions-damage.html
