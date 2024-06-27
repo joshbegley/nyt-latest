@@ -1,3 +1,19 @@
+**Review: In ‘June Zero,’ There Are Many Ways to See the Past**\
+`Jake Paltrow’s film braids three fictional stories around the 1962 execution of Adolf Eichmann, the Nazi official and war criminal.`\
+https://nytimes.com/2024/06/27/movies/june-zero-review.html
+
+**‘Fancy Dance’ Review: The Search for a Sister**\
+`This debut feature about a missing woman on an Oklahoma reservation is an imperfect but palpably emotional portrait of desperation and hard-won hope.`\
+https://nytimes.com/2024/06/27/movies/fancy-dance-review.html
+
+**‘Daddio’ Review: Two for the Road**\
+`Sean Penn and Dakota Johnson outclass a humdrum script as two people who talk — and talk — in a New York City taxicab.`\
+https://nytimes.com/2024/06/27/movies/daddio-review.html
+
+**‘Chronicles of a Wandering Saint’ Review: Are the Meek Blessed?**\
+`It’s clear that Rita’s life in rural Argentina could use a bit of magic. But her willingness to bend the truth to achieve it heralds disaster.`\
+https://nytimes.com/2024/06/27/movies/chronicles-of-a-wandering-saint-review.html
+
 **A Tiny Circle of Advisers Helped Prod Macron to Take a Giant Risk**\
 `President Emmanuel Macron’s governing style has always been intensely top-down. But with far-right nationalists in France closing in on power, some believe he may have gone too far this time.`\
 https://nytimes.com/2024/06/27/world/europe/france-macron-snap-election-decision.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/06/27/crosswords/connections-companion-383.html
 **Amsterdam Museum to Return a Matisse Work Sold Under Duress in World War II**\
 `The painting, “Odalisque,” was sold to the Stedelijk Museum in the early 1940s by a German-Jewish family desperate to escape the Nazis.`\
 https://nytimes.com/2024/06/27/arts/stedelijk-museum-matisse-odalisque-restitution.html
-
-**Shahjahan Bhuiya, Executioner Turned TikTok Star, Dies in Bangladesh**\
-`He hanged high-profile inmates in exchange for a reduction in his own robbery and murder sentences, and became a social media sensation after his release.`\
-https://nytimes.com/2024/06/27/world/asia/shahjahan-bhuiya-dead.html
-
-**‘We Have Been Going Backward’**\
-`Iranians say they have little faith their votes in Friday’s presidential election will improve their lives, and many are planning to sit it out.`\
-https://nytimes.com/2024/06/27/world/middleeast/iran-presidential-election.html
-
-**Four Mount Fuji Deaths Reported Before Climbing Season Begins**\
-`Three bodies were discovered near the mountain’s crater, the local media reported. Separately, a professional climber fell unconscious and died.`\
-https://nytimes.com/2024/06/27/us/mount-fuji-deaths-japan-climbers.html
-
-**How Conservative Swing Voters React to a Strong Anti-Abortion Push**\
-`Republicans pay a price when voters who leaned right begin to lean left.`\
-https://nytimes.com/live/2024/06/25/opinion/thepoint/swing-voters-anti-abortion
 
