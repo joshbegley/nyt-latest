@@ -6,7 +6,7 @@ https://nytimes.com/2024/06/27/education/elaine-schwartz-dead.html
 `It’s a busy time for a reporter on the Supreme Court beat, with momentous decisions coming down one after another.`\
 https://nytimes.com/2024/06/27/insider/supreme-court-reporting.html
 
-**Oklahoma Requires Public Schools to Teach the Bible**\
+**Oklahoma’s State Superintendent Requires Public Schools to Teach the Bible**\
 `The state superintendent, Ryan Walters, said the Bible was a “necessary historical document” that must be taught in certain grades.`\
 https://nytimes.com/2024/06/27/us/oklahoma-public-schools-bible.html
 
