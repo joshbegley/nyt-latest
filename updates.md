@@ -1,3 +1,11 @@
+**At Least 750,000 on Brink of Starvation and Death in Sudan, Experts Warn**\
+`A devastating civil war is pushing the country toward a full-blown famine, according to the international body that measures hunger.`\
+https://nytimes.com/2024/06/27/world/africa/sudan-famine-starvation.html
+
+**You Won’t Stop Thinking About This Easier Clam Chowder**\
+`Full of corn, cod and potatoes, this one-pot soup from David Tanis rounds out a menu of cherry tomato toasts and fresh nectarines in lime syrup.`\
+https://nytimes.com/2024/06/27/dining/easier-clam-chowder-recipe.html
+
 **When the Doctor Says Your Disease is Just Stress**\
 `Chronic disease symptoms are often dismissed by physicians — and patients themselves. But that comes from a complex relationship between sickness and stress itself.`\
 https://nytimes.com/2024/06/27/well/stress-chronic-illness-disease.html
