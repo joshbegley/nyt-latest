@@ -1,3 +1,7 @@
+**A Dead Russian Satellite Broke Into More Than 100 Pieces in Space**\
+`The cause of the incident, which added to a growing amount of dangerous space junk in low Earth orbit, remains unknown.`\
+https://nytimes.com/2024/06/27/science/russian-satellite-debris-iss.html
+
 **Biden and Trump took different approaches to prep for the debate.**\
 `By Katie Rogers, Maggie Haberman and Jonathan Swan`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/biden-and-trump-took-different-approaches-to-prep-for-the-debate
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5597351/2024/06/27/chelsea-dewsbury-hall-transfer-l
 **‘Last Summer’ Review: A Shocking Affair to Remember**\
 `Few directors get as deeply under the skin as Catherine Breillat, a longtime provocateur who tests the limits of what the world thinks women should do and say and be.`\
 https://nytimes.com/2024/06/27/movies/last-summer-review.html
-
-**24 N.B.A. Prospects on Their Draft Day Outfits**\
-`Before they were drafted, the N.B.A.’s top prospects stopped to show off their clothes and discuss their decisions of how to represent themselves.`\
-https://nytimes.com/2024/06/27/style/nba-draft-fashion-outfits.html
 

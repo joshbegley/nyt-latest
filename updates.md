@@ -1,3 +1,7 @@
+**A Dead Russian Satellite Broke Into More Than 100 Pieces in Space**\
+`The cause of the incident, which added to a growing amount of dangerous space junk in low Earth orbit, remains unknown.`\
+https://nytimes.com/2024/06/27/science/russian-satellite-debris-iss.html
+
 **Biden and Trump took different approaches to prep for the debate.**\
 `By Katie Rogers, Maggie Haberman and Jonathan Swan`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/biden-and-trump-took-different-approaches-to-prep-for-the-debate
