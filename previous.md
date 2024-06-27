@@ -1,3 +1,7 @@
+**Get ready for the debate like an economics pro.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/get-ready-for-the-debate-like-an-economics-pro
+
 **Twins' Carlos Correa exits game in Arizona after getting hit by pitch**\
 `Correa left Thursday's game immediately after taking a pitch off his right forearm.`\
 https://nytimes.com/athletic/5598171/2024/06/27/twins-carlos-correa-hit-by-pitch/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/27/business/media/jamie-kellner-dead.html
 **Libraries and Arts Programs Spared From Cuts in N.Y.C. Budget Deal**\
 `The City Council successfully pushed to reverse budget cuts that Mayor Eric Adams proposed to libraries, cultural institutions and composting.`\
 https://nytimes.com/2024/06/27/nyregion/nyc-budget-culture-libraries.html
-
-**European Leaders Name Top E.U. Officials, Opting for Stability**\
-`Europe will need to navigate turmoil at home and a potential Trump presidency abroad. These people were picked to steer its institutions for the next five years.`\
-https://nytimes.com/2024/06/27/world/europe/eu-top-officials-selected.html
 

@@ -1,3 +1,7 @@
+**Get ready for the debate like an economics pro.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/get-ready-for-the-debate-like-an-economics-pro
+
 **Twins' Carlos Correa exits game in Arizona after getting hit by pitch**\
 `Correa left Thursday's game immediately after taking a pitch off his right forearm.`\
 https://nytimes.com/athletic/5598171/2024/06/27/twins-carlos-correa-hit-by-pitch/
