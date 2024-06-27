@@ -1,3 +1,7 @@
+**Betty Boop Time Travels to New York, and Broadway, Next Spring**\
+`“BOOP! The Betty Boop Musical” had a run in Chicago late last year. It is slated to open at a Shubert theater in April.`\
+https://nytimes.com/2024/06/27/theater/boop-broadway.html
+
 **What to Know About This Year’s Tour de France (Which Begins in Italy)**\
 `Two previous winners are the leading contenders to win cycling’s most famous race, which, in a rarity, does not end in Paris.`\
 https://nytimes.com/2024/06/27/sports/cycling/tour-de-france-preview.html
