@@ -1,3 +1,7 @@
+**Judge to Revisit Key Legal Finding in Trump Classified Documents Case**\
+`Even though another federal court has ruled on the matter, Judge Aileen Cannon said she would hold a hearing to determine whether prosecutors can use information from one of the former president’s lawyers.`\
+https://nytimes.com/2024/06/27/us/politics/trump-lawyer-documents-case.html
+
 **White House Journalists Urge CNN to Widen Debate Access**\
 `A letter to the network noted that, in previous debates, a reporter from the White House Correspondents’ Association was granted access.`\
 https://nytimes.com/2024/06/27/us/politics/cnn-debate-white-house-journalists.html

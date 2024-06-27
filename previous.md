@@ -1,3 +1,7 @@
+**Judge to Revisit Key Legal Finding in Trump Classified Documents Case**\
+`Even though another federal court has ruled on the matter, Judge Aileen Cannon said she would hold a hearing to determine whether prosecutors can use information from one of the former president’s lawyers.`\
+https://nytimes.com/2024/06/27/us/politics/trump-lawyer-documents-case.html
+
 **White House Journalists Urge CNN to Widen Debate Access**\
 `A letter to the network noted that, in previous debates, a reporter from the White House Correspondents’ Association was granted access.`\
 https://nytimes.com/2024/06/27/us/politics/cnn-debate-white-house-journalists.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5596569/2024/06/27/nottingham-forest-niakhate-lyon-
 **When Biden and Trump are debating tonight, we will be fact-checking their claims.**\
 `By Susanna Timmons`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/when-biden-and-trump-are-debating-tonight-we-will-be-fact-checking-their-claims
-
-**The Causes of Jamaal Bowman’s Undoing**\
-`Readers discuss the congressman’s defeat. Also: Donald Trump’s Deep State; anti-obesity drugs; A.I. and our data; choosing baby names.`\
-https://nytimes.com/2024/06/27/opinion/jamaal-bowman-defeat.html
 
