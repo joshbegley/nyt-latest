@@ -1,3 +1,11 @@
+**Paris Hilton Testifies Before Congress on ‘Troubled Teen’ Facilities**\
+`The media personality detailed the abuse she said she suffered at such facilities, in support of a bipartisan effort to prevent child abuse.`\
+https://nytimes.com/2024/06/27/style/paris-hilton-child-abuse-testimony.html
+
+**In Atlanta, the debate is competing for attention with the U.S. men’s soccer team.**\
+`At`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/in-atlanta-the-debate-is-competing-for-attention-with-the-us-mens-soccer-team
+
 **Get ready for the debate like an economics pro.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/get-ready-for-the-debate-like-an-economics-pro
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/27/insider/on-the-end-of-the-line-hundreds-of-franti
 **It’s Debate Night**\
 `Also, a Supreme Court ruling on the Purdue settlement. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/06/27/briefing/trump-biden-debate-night-kara-walker-art.html
-
-**Jamie Kellner, TV Executive Who Started Fox and WB, Dies at 77**\
-`With an emphasis on younger viewers, he established the networks as serious rivals to ABC, CBS and NBC, which had ruled television for nearly 40 years.`\
-https://nytimes.com/2024/06/27/business/media/jamie-kellner-dead.html
-
-**Libraries and Arts Programs Spared From Cuts in N.Y.C. Budget Deal**\
-`The City Council successfully pushed to reverse budget cuts that Mayor Eric Adams proposed to libraries, cultural institutions and composting.`\
-https://nytimes.com/2024/06/27/nyregion/nyc-budget-culture-libraries.html
 
