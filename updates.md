@@ -1,3 +1,7 @@
+**Critically ill children were allowed to leave Gaza for the first time since May.**\
+`The Israeli military said the operation was carried out in coordination with the U.S., Egypt and the international community. In all, 68 people — sick and injured patients and their escorts — were allowed to leave, the military said.`\
+https://nytimes.com/2024/06/27/world/middleeast/gaza-patients-evacuation.html
+
 **Judge to Revisit Key Legal Finding in Trump Classified Documents Case**\
 `Even though another federal court has ruled on the matter, Judge Aileen Cannon said she would hold a hearing to determine whether prosecutors can use information from one of the former president’s lawyers.`\
 https://nytimes.com/2024/06/27/us/politics/trump-lawyer-documents-case.html
