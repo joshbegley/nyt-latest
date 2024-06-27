@@ -1,3 +1,11 @@
+**On the End of the Line, Hundreds of Frantic Voices Seek Help**\
+`A reporter observed a day of messages to the National Domestic Violence Hotline. She does not know the callers’ names, but she’ll never forget their stories.`\
+https://nytimes.com/2024/06/27/insider/on-the-end-of-the-line-hundreds-of-frantic-voices-seek-help.html
+
+**It’s Debate Night**\
+`Also, a Supreme Court ruling on the Purdue settlement. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/06/27/briefing/trump-biden-debate-night-kara-walker-art.html
+
 **Jamie Kellner, TV Executive Who Started Fox and WB, Dies at 77**\
 `With an emphasis on younger viewers, he established the networks as serious rivals to ABC, CBS and NBC, which had ruled television for nearly 40 years.`\
 https://nytimes.com/2024/06/27/business/media/jamie-kellner-dead.html
