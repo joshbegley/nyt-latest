@@ -1,3 +1,11 @@
+**A June presidential debate is early by modern standards. Here’s what to know.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/a-june-presidential-debate-is-early-by-modern-standards-heres-what-to-know
+
+**Live Updates: Biden and Trump to Debate Tonight, and Stakes Are High**\
+`Four years after they last shared a stage, President Biden and former President Donald J. Trump will debate Thursday in Atlanta. The Times will carry the debate live at 9 p.m. Eastern time.`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate
+
 **Lanvin, Oldest French Fashion House, Names a New Designer**\
 `Peter Copping will become the artistic director in September.`\
 https://nytimes.com/2024/06/27/style/lanvin-peter-copping.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/27/world/middleeast/israel-jenin-soldier-killed-west
 **More Voters Expect a Stronger Debate for Trump Than for Biden, Poll Shows**\
 `A New York Times/Siena College poll shows Republicans with greater enthusiasm for their candidate.`\
 https://nytimes.com/2024/06/27/us/politics/poll-biden-trump-debate.html
-
-**A Debate Cheat Sheet for Business**\
-`Tax policy, inflation, the economy and markets will be some key issues for corporate America and Wall Street in tonight’s showdown between President Biden and Donald Trump.`\
-https://nytimes.com/2024/06/27/business/dealbook/biden-trump-debate-cheat-sheet.html
-
-**Emily Henry on Writing Best-Sellers Without Tours and TikTok**\
-`The author of “Funny Story” churned out five consecutive No. 1 best-sellers without leaving her comfort zone. How did she pull it off?`\
-https://nytimes.com/2024/06/27/books/emily-henry-funny-story-tiktok.html
 
