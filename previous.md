@@ -1,3 +1,11 @@
+**Libraries and Arts Programs Spared From Cuts in N.Y.C. Budget Deal**\
+`The City Council successfully pushed to reverse budget cuts that Mayor Eric Adams proposed to libraries, cultural institutions and composting.`\
+https://nytimes.com/2024/06/27/nyregion/nyc-budget-culture-libraries.html
+
+**European Leaders Name Top E.U. Officials, Opting for Stability**\
+`Europe will need to navigate turmoil at home and a potential Trump presidency abroad. These people were picked to steer its institutions for the next five years.`\
+https://nytimes.com/2024/06/27/world/europe/eu-top-officials-selected.html
+
 **Our Reporter on the Shape-Shifting Maldives**\
 `Low-lying tropical island nations were expected to be early victims of rising seas. But research tells a surprising story.`\
 https://nytimes.com/video/climate/100000009532243/our-reporter-on-the-shape-shifting-maldives.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/27/health/covid-vaccines-seniors-children.html
 **What's next for the Oilers after deciding not to bring back Ken Holland as GM?**\
 `Oilers CEO Jeff Jackson said he has started to reach out to candidates for the GM job but isn't in a rush to replace Holland.`\
 https://nytimes.com/athletic/5597896/2024/06/27/oilers-jeff-jackson-gm-ken-holland/
-
-**Biden, Trump Allies Race to Court Black Vote in Atlanta Ahead of Debate**\
-`The pivotal first face-off between the two candidates is taking place in Atlanta, highlighting Georgia as a key presidential battleground.`\
-https://nytimes.com/2024/06/27/us/politics/biden-trump-black-voters.html
-
-**McCarthy to leave position on Man United coaching staff**\
-`Manchester United’s Benni McCarthy will leave his position as a first-team coach when his two-year contract expires at the end of this month.`\
-https://nytimes.com/athletic/5597879/2024/06/27/manchester-united-benni-mccarthy-leaves/
 
