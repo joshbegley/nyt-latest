@@ -1,3 +1,7 @@
+**Betty Boop Time Travels to New York, and Broadway, Next Spring**\
+`“BOOP! The Betty Boop Musical” had a run in Chicago late last year. It is slated to open at a Shubert theater in April.`\
+https://nytimes.com/2024/06/27/theater/boop-broadway.html
+
 **What to Know About This Year’s Tour de France (Which Begins in Italy)**\
 `Two previous winners are the leading contenders to win cycling’s most famous race, which, in a rarity, does not end in Paris.`\
 https://nytimes.com/2024/06/27/sports/cycling/tour-de-france-preview.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/27/us/california-laws-july.html
 **The military had begun an operation against Hamas fighters who returned to an eastern part of Gaza’s biggest city, Israel’s public broadcaster reported.**\
 `By Hiba Yazbek`\
 https://nytimes.com/live/2024/06/27/world/israel-gaza-war-hamas/the-military-had-begun-an-operation-against-hamas-fighters-who-returned-to-an-eastern-part-of-gazas-biggest-city-israels-public-
-
-**Air-Conditioning for Olympians? It Is a ‘High-Performance Decision.’**\
-`A spokesman for Team U.S.A. said continuity is key despite the goal of Paris being the “greenest” Olympics. Other countries are planning similar measures.`\
-https://nytimes.com/2024/06/27/style/olympics-air-conditioners.html
 
