@@ -1,3 +1,7 @@
+**Amsterdam Museum to Return a Matisse Work Sold Under Duress in World War II**\
+`The painting, “Odalisque,” was sold to the Stedelijk Museum in the early 1940s by a German-Jewish family desperate to escape the Nazis.`\
+https://nytimes.com/2024/06/27/arts/stedelijk-museum-matisse-odalisque-restitution.html
+
 **Shahjahan Bhuiya, Executioner Turned TikTok Star, Dies in Bangladesh**\
 `He hanged high-profile inmates in exchange for a reduction in his own robbery and murder sentences, and became a social media sensation after his release.`\
 https://nytimes.com/2024/06/27/world/asia/shahjahan-bhuiya-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/27/world/europe/julian-assange-wikileaks-legacy.html
 **A Holocaust Survivor Gets a Vogue Cover**\
 `Vogue Germany’s latest cover star, 102-year-old Margot Friedländer, is a meaningful subject, said Anna Wintour.`\
 https://nytimes.com/2024/06/27/style/vogue-germany-margot-friedlander-holocaust.html
-
-**What to Expect in the First Debate**\
-`It has been nearly four years since Donald Trump or President Biden has appeared on a debate stage of any kind. But as the two men prepare to meet for the first presidential debate of 2024, our political reporter Adam Nagourney looks to the past to predict what will unfurl.`\
-https://nytimes.com/video/us/elections/100000009541308/what-to-expect-in-the-first-debate.html
 
