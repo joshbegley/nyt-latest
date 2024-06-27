@@ -1,3 +1,7 @@
+**Forest's Niakhate to have medical ahead of Lyon transfer**\
+`Nottingham Forest defender Moussa Niakhate is set to join Lyon in a move that will dramatically reduce the risk of the club incurring another points penalty next season.`\
+https://nytimes.com/athletic/5596569/2024/06/27/nottingham-forest-niakhate-lyon-transfer/
+
 **When Biden and Trump are debating tonight, we will be fact-checking their claims.**\
 `By Susanna Timmons`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/when-biden-and-trump-are-debating-tonight-we-will-be-fact-checking-their-claims
