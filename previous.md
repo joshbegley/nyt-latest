@@ -10,7 +10,7 @@ https://nytimes.com/2024/06/27/style/olympics-air-conditioners.html
 `As well as the officer who died, another was severely wounded during the operation in Jenin, a bastion of armed resistance to Israel’s occupation. One Palestinian was also reported wounded.`\
 https://nytimes.com/2024/06/27/world/middleeast/israel-jenin-soldier-killed-west-bank-raid.html
 
-**More Voters Expect a Strong Debate for Trump Than for Biden, Poll Shows**\
+**More Voters Expect a Stronger Debate for Trump Than for Biden, Poll Shows**\
 `A New York Times/Siena College poll shows Republicans with greater enthusiasm for their candidate.`\
 https://nytimes.com/2024/06/27/us/politics/poll-biden-trump-debate.html
 

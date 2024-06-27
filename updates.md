@@ -1,3 +1,7 @@
+**More Voters Expect a Stronger Debate for Trump Than for Biden, Poll Shows**\
+`A New York Times/Siena College poll shows Republicans with greater enthusiasm for their candidate.`\
+https://nytimes.com/2024/06/27/us/politics/poll-biden-trump-debate.html
+
 **The military had begun an operation against Hamas fighters who returned to an eastern part of Gaza’s biggest city, Israel’s public broadcaster reported.**\
 `By Hiba Yazbek`\
 https://nytimes.com/live/2024/06/27/world/israel-gaza-war-hamas/the-military-had-begun-an-operation-against-hamas-fighters-who-returned-to-an-eastern-part-of-gazas-biggest-city-israels-public-
