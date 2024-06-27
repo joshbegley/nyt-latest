@@ -1,3 +1,15 @@
+**The Missing Bats mailbag: Submit your questions on MLB's strikeout revolution**\
+`Reporters will be taking questions on The Athletic's Missing Bats series and on the rise of swing-and-miss in baseball.   `\
+https://nytimes.com/athletic/5597679/2024/06/27/missing-bats-mailbag-submit-questions-mlb-strikeout/
+
+**Meet the Moderator: Jake Tapper**\
+`What you need to know about CNN’s chief Washington correspondent.`\
+https://nytimes.com/2024/06/27/us/politics/jake-tapper-moderator-presidential-debate.html
+
+**Meet the Moderator: Dana Bash.**\
+`What you need to know about CNN’s chief political correspondent.`\
+https://nytimes.com/2024/06/27/us/politics/dana-bash-moderator-presidential-debate.html
+
 **Meet the Moderator: Dana Bash.**\
 `What you need to know about CNN’s chief political correspondent.`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/meet-the-moderator-dana-bash

@@ -1,6 +1,14 @@
+**The Missing Bats mailbag: Submit your questions on MLB's strikeout revolution**\
+`Reporters will be taking questions on The Athletic's Missing Bats series and on the rise of swing-and-miss in baseball.   `\
+https://nytimes.com/athletic/5597679/2024/06/27/missing-bats-mailbag-submit-questions-mlb-strikeout/
+
+**Meet the Moderator: Jake Tapper**\
+`What you need to know about CNN’s chief Washington correspondent.`\
+https://nytimes.com/2024/06/27/us/politics/jake-tapper-moderator-presidential-debate.html
+
 **Meet the Moderator: Dana Bash.**\
 `What you need to know about CNN’s chief political correspondent.`\
-https://nytimes.com/live/2024/06/27/us/biden-trump-debate/meet-the-moderator-dana-bash
+https://nytimes.com/2024/06/27/us/politics/dana-bash-moderator-presidential-debate.html
 
 **Bullpen report: Ben Joyce adding to his repertoire, Jhoan Durán velocity concerns and more**\
 `In his latest MLB bullpen report, Greg Jewett notes that a new pitch has Ben Joyce trending in the direction of future save opportunities.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/27/us/politics/cnn-debate-white-house-journalists.ht
 **The Tiniest Words Generate the Biggest Uproar**\
 `The outrage over new pronouns fundamentally misunderstands how language works.`\
 https://nytimes.com/2024/06/27/opinion/gender-neutral-pronouns-them.html
-
-**Critically ill children were allowed to leave Gaza for the first time since May.**\
-`The Israeli military said the operation was carried out in coordination with the U.S., Egypt and the international community. In all, 68 people — sick and injured patients and their escorts — were allowed to leave, the military said.`\
-https://nytimes.com/2024/06/27/world/middleeast/gaza-patients-evacuation.html
-
-**Ready to Debate**\
-`Donald Trump takes the stage tonight with a gag order partially lifted.`\
-https://nytimes.com/2024/06/27/us/politics/trump-trial-debate-gag-order.html
 
