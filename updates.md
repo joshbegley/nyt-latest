@@ -1,3 +1,11 @@
+**A Tiny Circle of Advisers Helped Prod Macron to Take a Giant Risk**\
+`President Emmanuel Macron’s governing style has always been intensely top-down. But with far-right nationalists in France closing in on power, some believe he may have gone too far this time.`\
+https://nytimes.com/2024/06/27/world/europe/france-macron-snap-election-decision.html
+
+**A Surprising Climate Find**\
+`As the planet warms, atoll nations like the Maldives seemed doomed to shrink. Scientists have begun to tell a surprising new story.`\
+https://nytimes.com/2024/06/27/briefing/maldives-atolls-climate-change.html
+
 **The Doping Scandal Rocking the Upcoming Olympics**\
 `Allegations in the world of competitive swimming raise questions about fairness in the sport.`\
 https://nytimes.com/2024/06/27/podcasts/the-daily/china-olympics-doping.html

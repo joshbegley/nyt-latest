@@ -1,3 +1,11 @@
+**A Tiny Circle of Advisers Helped Prod Macron to Take a Giant Risk**\
+`President Emmanuel Macron’s governing style has always been intensely top-down. But with far-right nationalists in France closing in on power, some believe he may have gone too far this time.`\
+https://nytimes.com/2024/06/27/world/europe/france-macron-snap-election-decision.html
+
+**A Surprising Climate Find**\
+`As the planet warms, atoll nations like the Maldives seemed doomed to shrink. Scientists have begun to tell a surprising new story.`\
+https://nytimes.com/2024/06/27/briefing/maldives-atolls-climate-change.html
+
 **The Doping Scandal Rocking the Upcoming Olympics**\
 `Allegations in the world of competitive swimming raise questions about fairness in the sport.`\
 https://nytimes.com/2024/06/27/podcasts/the-daily/china-olympics-doping.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/27/us/mount-fuji-deaths-japan-climbers.html
 **How Conservative Swing Voters React to a Strong Anti-Abortion Push**\
 `Republicans pay a price when voters who leaned right begin to lean left.`\
 https://nytimes.com/live/2024/06/25/opinion/thepoint/swing-voters-anti-abortion
-
-**Pandemic-Era Newlyweds Consider an Age-Old Question: To Buy or Not to Buy?**\
-`With their lease on a Lower East Side apartment expiring, two software engineers wondered if buying made more sense than renting, now that the housing market wasn’t quite so frenzied. Here’s what they found.`\
-https://nytimes.com/interactive/2024/06/27/realestate/Flatiron-garment-district-kips-bay-home-search.html
-
-**Trump’s V.P. Parade Nears Its End, With Vance, Burgum and Rubio in Front**\
-`Even as Donald Trump has narrowed his list of top choices, he and his advisers are stoking speculation about others and suggesting that an announcement is imminent — or maybe not.`\
-https://nytimes.com/2024/06/27/us/politics/trump-vp-pick.html
 
