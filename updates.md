@@ -1,3 +1,7 @@
+**Inflation’s Wild Ride**\
+`As the presidential election approaches, politicians are focused on who is to blame for price increases. How did we get here?`\
+https://nytimes.com/interactive/2024/06/26/business/economy/inflation-rate-over-time.html
+
 **Prominent Lawyer Roberta Kaplan Departs Firm After Clash With Colleagues**\
 `The well-connected attorney, who founded a powerhouse firm at the dawn of the #MeToo era, has faced complaints that she mistreated and insulted other lawyers.`\
 https://nytimes.com/2024/06/26/business/roberta-robbie-kaplan.html
