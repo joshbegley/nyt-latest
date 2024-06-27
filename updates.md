@@ -1,3 +1,7 @@
+**A Rare White Buffalo Calf Arrives in Yellowstone With a Message**\
+`The calf, named Wakan Gli, is said to fulfill a Lakota prophecy that brings hope, but its birth is also a sign that more must be done to protect the Earth, a Lakota spiritual leader says.`\
+https://nytimes.com/2024/06/27/us/white-buffalo-yellowstone-lakota-prophecy.html
+
 **Oklahoma’s State Superintendent Requires Public Schools to Teach the Bible**\
 `The state superintendent, Ryan Walters, said the Bible was a “necessary historical document” that must be taught in certain grades.`\
 https://nytimes.com/2024/06/27/us/oklahoma-public-schools-bible.html
