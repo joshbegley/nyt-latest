@@ -1,3 +1,11 @@
+**Girl Groupers Gone (Successfully!) Solo**\
+`With two new albums from members of Fifth Harmony out now, a look back at other pop singers who took off on their own.`\
+https://nytimes.com/2024/06/28/arts/music/amplifier-newsletter-girl-groupers-gone-solo.html
+
+**Learn the Secrets to Perfect Pasta Every Time**\
+`In the latest installment of her YouTube series, the cookbook author and chef Sohla El-Waylly will teach you how to tame that pantry workhorse.`\
+https://nytimes.com/article/pasta.html
+
 **Leading Democrats Vouch for Biden, but Concede a ‘Bad Night’**\
 `The president’s surrogates acknowledged his struggles in the debate but said that one night did not reflect his successes, or the dangers of a second Trump term.`\
 https://nytimes.com/2024/06/28/us/politics/biden-debate-pelosi-hakeem-jeffries.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/06/28/us/trump-biden-debate/outside-jittery-joes-t
 **House G.O.P. Begins Push on Hard-Right Spending Bills, Teeing Up Future Battles**\
 `The Republican-led House loaded its funding measures with provisions that have no chance of becoming law, as both parties look toward a bigger fight later this year, most likely after the elections.`\
 https://nytimes.com/2024/06/28/us/politics/house-republicans-spending-bills.html
-
-**Supreme Court Ruling Could Undermine Treasury Department and I.R.S.**\
-`The decision overturning a longstanding precedent is likely to spawn challenges to dozens of tax regulations.`\
-https://nytimes.com/2024/06/28/us/politics/scotus-chevron-irs-treasury.html
-
-**The Big Number: $5 Billion**\
-`The amount Volkswagen said it planned to invest in the electric vehicle maker Rivian.`\
-https://nytimes.com/2024/06/28/business/the-big-number-5-billion-volkswagen-rivian.html
 
