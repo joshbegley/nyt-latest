@@ -1,3 +1,11 @@
+**The ruling will embolden challenges against financial regulators.**\
+`By Stacy Cowley and Emily Flitter`\
+https://nytimes.com/live/2024/06/28/us/supreme-court-chevron/the-ruling-will-embolden-challenges-against-financial-regulators
+
+**U.S. Presses to Avert Wider War Between Israel and Hezbollah in Lebanon**\
+`A recent flurry of diplomacy aims to head off a conflict that could pit the United States directly against Iran.`\
+https://nytimes.com/2024/06/28/us/politics/israel-hezbollah-lebanon-iran.html
+
 **Dutch Olympic Organizers Defend Participation of Athlete Convicted of Rape**\
 `Steven van de Velde, a beach volleyball player, spent time in prison for the 2014 rape of a 12-year-old girl. His inclusion on the Olympic team has caused a stir in the international news media.`\
 https://nytimes.com/2024/06/28/world/europe/steven-van-de-velde-dutch-volleyball-olympics.html
