@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5598515/2024/06/28/yankees-carlos-rodon-disaster-ag
 https://nytimes.com/2024/06/28/world/middleeast/iran-president-election.html
 
 **‘It’s Frightening’: Democratic Voters Worried by Biden’s Struggles in Debate**\
-`Democrats found President Biden’s performance disconcerting, while Republicans were in a jubilant mood.`\
+`Democrats found President Biden’s performance disconcerting, while Republicans were in a jubilant mood. Swing voters were flummoxed.`\
 https://nytimes.com/2024/06/28/us/biden-trump-debate-voter-reaction.html
 
 **Chelsea's Guiu deal is a no-lose situation - but can they make it a win?**\
