@@ -1,3 +1,19 @@
+**“I gave you the largest cut in history.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/i-gave-you-the-largest-cut-in-history
+
+**A Rikers Detainee Made a Daring Escape. The Getaway Car? A City Bus.**\
+`The authorities were searching for the detainee, a 35-year-old man with a history of mental illness, after he eluded two guards at Bellevue Hospital Center.`\
+https://nytimes.com/2024/06/27/nyregion/rikers-detainee-escape-bus.html
+
+**The IkoSystem: What exactly are the Grizzlies up to taking Zach Edey at the NBA Draft?**\
+`Edey's fit in Memphis with the Grizzlies has some cause for concern writes Kelly Iko.`\
+https://nytimes.com/athletic/5598204/2024/06/27/memphis-grizzlies-zach-edey-nba-draft/
+
+**“All he said was, ‘It’s not that serious, just inject a little bleach in your arm.’”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/all-he-said-was-its-not-that-serious-just-inject-a-little-bleach-in-your-arm
+
 **Stolen 37 Years Ago, Theodore Roosevelt’s Watch Finally Returns Home**\
 `The watch, which was stolen in 1987, was returned Thursday to Sagamore Hill National Historic Site on Long Island.`\
 https://nytimes.com/2024/06/27/nyregion/theodore-roosevelt-watch-long-island.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/06/27/technology/uber-lyft-massachusetts-settlement.htm
 **What USMNT needs to qualify for Copa America quarterfinals**\
 `The USMNT suffered a shock defeat to Panama at Copa America on Thursday to leave their chances of progression beyond the group in doubt.`\
 https://nytimes.com/athletic/5598412/2024/06/27/usmnt-copa-america-out-permutations/
-
-**The group that was cut out of hosting this year’s debates will be watching.**\
-`By Tim Balk`\
-https://nytimes.com/live/2024/06/27/us/biden-trump-debate/the-group-that-was-cut-out-of-hosting-this-years-debates-will-be-watching
-
-**Avalanche's Nathan MacKinnon wins Hart Trophy as NHL's MVP**\
-`LAS VEGAS — The Colorado Avalanche’s Nathan MacKinnon won his first career Hart Trophy, finishing ahead of leading point-getter Nikita Kucherov and Connor McDavid for the NHL&#8217;s MVP award.`\
-https://nytimes.com/athletic/5597749/2024/06/27/nathan-mackinnon-nhl-mvp-hart-trophy/
-
-**USMNT 1-2 Panama: 10-man U.S.'s Copa America hopes in the balance**\
-`A wild night in Atlanta leaves the USMNT's Copa America campaign in a precarious position `\
-https://nytimes.com/athletic/5598040/2024/06/27/usmnt-panama-copa-america/
-
-**Jets' Connor Hellebuyck wins Vezina Trophy**\
-`Hellebuyck joins an elite group of goaltenders who have won the award twice.`\
-https://nytimes.com/athletic/5590146/2024/06/27/connor-hellebuyck-vezina-trophy-winnipeg-jets/
 
