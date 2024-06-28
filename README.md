@@ -1,3 +1,11 @@
+**Leading Democrats Vouch for Biden, but Concede a ‘Bad Night’**\
+`The president’s surrogates acknowledged his struggles in the debate but said that one night did not reflect his successes, or the dangers of a second Trump term.`\
+https://nytimes.com/2024/06/28/us/politics/biden-debate-pelosi-hakeem-jeffries.html
+
+**Utah geared up for a fight in anticipation of the court’s ruling.**\
+`By Christina Jewett`\
+https://nytimes.com/live/2024/06/28/us/supreme-court-chevron/utah-geared-up-for-a-fight-in-anticipation-of-the-courts-ruling
+
 **The ruling is likely to stymie public health initiatives, experts said.**\
 `By Teddy Rosenbluth and Roni Caryn Rabin`\
 https://nytimes.com/live/2024/06/28/us/supreme-court-chevron/chevron-deference-public-health
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/28/us/politics/scotus-chevron-irs-treasury.html
 **The Big Number: $5 Billion**\
 `The amount Volkswagen said it planned to invest in the electric vehicle maker Rivian.`\
 https://nytimes.com/2024/06/28/business/the-big-number-5-billion-volkswagen-rivian.html
-
-**Biden vs. Trump: A Wrenching Debate**\
-`Readers are disturbed by “problematic performances” by both candidates, and some urge the president to bow out.`\
-https://nytimes.com/2024/06/28/opinion/letters/biden-trump-debate.html
-
-**One by One, Biden’s Closest Media Allies Defect After the Debate**\
-`The MSNBC host Joe Scarborough, the CNN contributor Van Jones and other pundits who have long supported the president are now urging him to drop out.`\
-https://nytimes.com/2024/06/28/us/politics/biden-media-allies-debate.html
 
