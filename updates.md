@@ -1,3 +1,7 @@
+**Outside ‘Jittery Joe’s,’ the Biden campaign pushes donors for calm.**\
+`By Shane Goldmacher`\
+https://nytimes.com/live/2024/06/28/us/trump-biden-debate/outside-jittery-joes-the-biden-campaign-pushes-donors-for-calm
+
 **House G.O.P. Begins Push on Hard-Right Spending Bills, Teeing Up Future Battles**\
 `The Republican-led House loaded its funding measures with provisions that have no chance of becoming law, as both parties look toward a bigger fight later this year, most likely after the elections.`\
 https://nytimes.com/2024/06/28/us/politics/house-republicans-spending-bills.html
