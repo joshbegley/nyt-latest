@@ -1,3 +1,7 @@
+**Here’s What the Court’s Chevron Ruling Could Mean in Everyday Terms**\
+`The decision is expected to prompt a rush of litigation challenging regulations across the entire federal government, from food safety to the environment.`\
+https://nytimes.com/2024/06/28/us/politics/chevron-deference-decision-meaning.html
+
 **The Court Forces Homeless People to Stay Awake or Be Arrested**\
 `It sets a devastating precedent.`\
 https://nytimes.com/live/2024/06/25/opinion/thepoint/homelessness-supreme-court
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/28/us/supreme-court-chevron/heres-the-latest-on
 **Before the ruling, prosecutors and some judges adjusted their approach to the charge in Jan. 6 cases.**\
 `Federal judges have agreed to release about 10 defendants who were serving prison terms because of their convictions under an obstruction law.`\
 https://nytimes.com/live/2024/06/28/us/supreme-court-jan-6/before-the-ruling-prosecutors-and-some-judges-adjusted-their-approach-to-the-charge-in-jan-6-cases
-
-**Here’s the latest on the decision.**\
-`By Adam Liptak`\
-https://nytimes.com/live/2024/06/28/us/supreme-court-jan-6/heres-the-latest-on-the-decision
 
