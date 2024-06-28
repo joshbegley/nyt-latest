@@ -1,3 +1,7 @@
+**Two Appearances, Two Starkly Different Bidens**\
+`A day after a shaky debate performance that led to talk of a new Democratic candidate, President Biden was forceful and confident while speaking to supporters.`\
+https://nytimes.com/2024/06/28/us/politics/biden-debate-north-carolina-rally.html
+
 **For Trump, the Debate Was Another Chapter in the Rewriting of Jan. 6**\
 `It was the biggest stage yet for his effort to rewrite the story of Jan. 6, 2021.`\
 https://nytimes.com/2024/06/28/us/politics/trump-debate-jan-6.html
