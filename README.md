@@ -1,3 +1,15 @@
+**Everton's Ben Godfrey to undergo Atalanta medical ahead of transfer**\
+`Everton defender Ben Godfrey will undergo a medical in Italy today ahead of his proposed transfer to Atalanta.`\
+https://nytimes.com/athletic/5599212/2024/06/28/ben-godfrey-atalanta-everton-transfer-news/
+
+**Weird & Wild MLB June highlights: Running Red Sox, outrageous Ohtani and a 'clock-off' win**\
+`Congrats to Kyle Finnegan, the first pitcher to let a game end by forgetting to throw a pitch until after the pitch clock ticked to zero.`\
+https://nytimes.com/athletic/5598985/2024/06/28/mlb-june-weird-highlights/
+
+**Celtics draft: Baylor Scheierman wants to work, Brad Stevens wants to keep roster together**\
+`Brad Stevens spoke on the Celtics' draft picks, extensions for several key players, and Kristaps Porziņģis' return timeline.`\
+https://nytimes.com/athletic/5598557/2024/06/28/celtics-draft-baylor-scheierman-brad-stevens/
+
 **Braves trade scenarios: Bowden assesses 4 proposals to fill key needs**\
 `The Braves need to address two areas before the deadline: corner outfielder and starting pitcher. Jim Bowden evaluates four such proposals. `\
 https://nytimes.com/athletic/5597696/2024/06/28/braves-mlb-trade-deadline-proposals/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/28/climate/biden-ambler-road-mining-alaska.html
 **Supreme Court’s Abortion Rulings May Set the Stage for More Restrictions**\
 `The court’s strategy of avoidance and delay cannot last and may have been shaped by a desire to avoid controversy in an election year.`\
 https://nytimes.com/2024/06/28/us/politics/supreme-court-abortion.html
-
-**5 Things to Do This Weekend**\
-`A selection of entertainment highlights this weekend, including Season 3 of “The Bear.”`\
-https://nytimes.com/interactive/2024/06/28/arts/weekend-editors-picks-the-bear.html
-
-**The New York Times News Quiz, June 27, 2024**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2024/06/28/briefing/trump-jamaal-bowman-kenya-quiz.html
-
-**Make Something With Your Hands (Even if It’s Hideous)**\
-`Creating stuff is good for your brain.`\
-https://nytimes.com/2024/06/28/well/mind/hand-crafts-creation-art.html
 
