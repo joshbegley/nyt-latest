@@ -1,3 +1,7 @@
+**This Debate, We Could Hear Biden Speak. There His Troubles Began.**\
+`The CNN presidential debate kept the volume down, for a change. That didn’t make it more intelligible.`\
+https://nytimes.com/2024/06/28/arts/television/presidential-debate-biden-trump.html
+
 **Iowa Supreme Court Allows Six-Week Abortion Ban to Take Effect**\
 `Republican lawmakers passed the restrictions last year, but a lower court blocked enforcement of the law.`\
 https://nytimes.com/2024/06/28/us/iowa-abortion-ruling.html
