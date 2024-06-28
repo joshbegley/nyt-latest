@@ -1,3 +1,7 @@
+**Southampton in talks with Martin over new contract**\
+`Southampton are in talks with Russell Martin over a new contract after he led them back to the Premier League at the first time of asking.`\
+https://nytimes.com/athletic/5597346/2024/06/28/russell-martin-southampton-contract/
+
 **Deaths Linked to Japanese Supplement Suddenly Rise to 80**\
 `The case, involving a supplement intended to reduce cholesterol, has put attention on how companies are allowed to self-report claims about their products.`\
 https://nytimes.com/2024/06/28/business/kobayashi-pharmaceutical-supplement-deaths.html
