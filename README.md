@@ -1,3 +1,7 @@
+**Princess Anne Returns Home From the Hospital**\
+`Anne, the younger sister of King Charles III, suffered a concussion and other injuries in an accident at her country residence, palace officials said.`\
+https://nytimes.com/2024/06/28/world/europe/princess-anne-home-hospital-accident.html
+
 **Kawakami: Warriors' Mike Dunleavy Jr. is ready for the big move, if it's available**\
 `Mike Dunleavy on lining up a big trade: "This stuff evolves, it changes so quickly. But the one thing I know is we're in position to do it."`\
 https://nytimes.com/athletic/5598630/2024/06/28/warriors-mike-dunleavy-jr-draft-trade-free-agency/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5594943/2024/06/28/edmonton-oilers-2024-nhl-draft-p
 **Broncos RB Jaleel McLaughlin on mission in Year 2: 'It's just the way he's wired'**\
 `McLaughlin's 5.4 yards per carry ranked among NFL leaders last season with at least 75 carries. Now, he seeks bigger pass-game impact.`\
 https://nytimes.com/athletic/5596537/2024/06/28/broncos-jaleel-mclaughlin-2024/
-
-**State of the 49ers, RBs: Will Kyle Shanahan ease Christian McCaffrey's workload?**\
-`Can — or should — McCaffrey be the workhorse he was in 2023? The 49ers would be wise to develop more tailback depth.`\
-https://nytimes.com/athletic/5560530/2024/06/28/san-francisco-49ers-running-backs-mccaffrey-2024/
 
