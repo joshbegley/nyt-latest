@@ -1,3 +1,11 @@
+**Weah apologizes to USMNT team-mates after red card vs Panama**\
+`Tim Weah apologized to his USMNT team-mates after his red card in the shock Copa America defeat to Panama.`\
+https://nytimes.com/athletic/5598200/2024/06/27/tim-weah-red-card-usmnt/
+
+**Tracking the Attacks in the First Presidential Debate**\
+`See how much time Biden and Trump spend attacking each other in the first presidential debate.`\
+https://nytimes.com/interactive/2024/06/27/us/politics/trump-biden-presidential-debate-tracker.html
+
 **Schools Police Chief Indicted in Uvalde Shooting Response**\
 `The indictment, which comes more than two years after the massacre at Robb Elementary School, is the first set of criminal charges to stem from the attack.`\
 https://nytimes.com/2024/06/27/us/uvalde-shooting-pete-arredondo-indicted.html
