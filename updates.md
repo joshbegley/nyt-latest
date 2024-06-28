@@ -1,3 +1,11 @@
+**Leading Democrats Vouch for Biden, but Concede a ‘Bad Night’**\
+`The president’s surrogates acknowledged his struggles in the debate but said that one night did not reflect his successes, or the dangers of a second Trump term.`\
+https://nytimes.com/2024/06/28/us/politics/biden-debate-pelosi-hakeem-jeffries.html
+
+**Utah geared up for a fight in anticipation of the court’s ruling.**\
+`By Christina Jewett`\
+https://nytimes.com/live/2024/06/28/us/supreme-court-chevron/utah-geared-up-for-a-fight-in-anticipation-of-the-courts-ruling
+
 **The ruling is likely to stymie public health initiatives, experts said.**\
 `By Teddy Rosenbluth and Roni Caryn Rabin`\
 https://nytimes.com/live/2024/06/28/us/supreme-court-chevron/chevron-deference-public-health
