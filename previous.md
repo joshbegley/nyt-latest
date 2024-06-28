@@ -1,3 +1,11 @@
+**Weather System in the Atlantic Could Become First Hurricane of the Season**\
+`Forecasters expect the system to become a tropical storm as it approaches the Caribbean, likely named Beryl.`\
+https://nytimes.com/article/tropical-storm-beryl-hurricane.html
+
+**Embattled Alzheimer’s Researcher Is Charged With Fraud**\
+`Hoau-Yan Wang, a professor at City College, published studies supporting simufilam, now in advanced clinical trials.`\
+https://nytimes.com/2024/06/28/health/wang-cassava-alzheimers-fraud.html
+
 **Doris Allen, Analyst Who Saw the Tet Offensive Coming, Is Dead at 97**\
 `Her warning of a big buildup of enemy troops poised to attack South Vietnam in 1968 was ignored, a major U.S. Army intelligence failure during the war.`\
 https://nytimes.com/2024/06/28/world/asia/doris-allen-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/28/us/politics/supreme-court-regulatory-agencies.htm
 **6 Paperbacks to Read This Week**\
 `Selected paperbacks from the Book Review, including titles by Darrin Bell, Maggie Smith, David Friend and more.`\
 https://nytimes.com/interactive/2024/06/28/books/review/new-paperbacks-bell.html
-
-**How the Democrats Should Replace Biden**\
-`By Jonathan Alter`\
-https://nytimes.com/live/2024/06/25/opinion/thepoint/how-biden-should-withdraw
-
-**Supreme Court Rejects Bannon’s Appeal to Delay Prison Sentence**\
-`Stephen Bannon will have to begin serving four months in prison on Monday, after the court turned aside his request to remain free while he appeals his conviction for contempt of Congress.`\
-https://nytimes.com/2024/06/28/us/politics/steve-bannon-supreme-court-appeal.html
 

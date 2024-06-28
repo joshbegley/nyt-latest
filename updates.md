@@ -1,3 +1,11 @@
+**Weather System in the Atlantic Could Become First Hurricane of the Season**\
+`Forecasters expect the system to become a tropical storm as it approaches the Caribbean, likely named Beryl.`\
+https://nytimes.com/article/tropical-storm-beryl-hurricane.html
+
+**Embattled Alzheimer’s Researcher Is Charged With Fraud**\
+`Hoau-Yan Wang, a professor at City College, published studies supporting simufilam, now in advanced clinical trials.`\
+https://nytimes.com/2024/06/28/health/wang-cassava-alzheimers-fraud.html
+
 **Doris Allen, Analyst Who Saw the Tet Offensive Coming, Is Dead at 97**\
 `Her warning of a big buildup of enemy troops poised to attack South Vietnam in 1968 was ignored, a major U.S. Army intelligence failure during the war.`\
 https://nytimes.com/2024/06/28/world/asia/doris-allen-dead.html
