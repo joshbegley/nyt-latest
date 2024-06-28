@@ -1,3 +1,7 @@
+**“The fraud and everything else was ridiculous.”**\
+`By Alexandra Berzon`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/the-fraud-and-everything-else-was-ridiculous
+
 **How Would You Rate the Presidential Debate?**\
 `Times Opinion wants to hear your takeaways. We may publish your thoughts in a future article.`\
 https://nytimes.com/2024/06/27/opinion/rate-presidential-debate.html
