@@ -1,3 +1,7 @@
+**“Black unemployment is the lowest level it’s been in a long, long time.”**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/black-unemployment-is-the-lowest-level-its-been-in-a-long-long-time
+
 **“And because of his ridiculous, insane and very stupid policies, people are coming in and killing our citizens at a level we’ve never — we call it migrant crime. I’d call it Biden-migrant crime.”**\
 `By Miriam Jordan`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/and-because-of-his-ridiculous-insane-and-very-stupid-policies-people-are-coming-in-and-killing-our-citizens-at-a-level-weve-neve
@@ -8,7 +12,7 @@ https://nytimes.com/live/2024/06/27/us/biden-trump-debate/we-have-the-largest-nu
 
 **Biden’s Truth Is Being Overshadowed by His Stumbles**\
 `At least he told voters what really matters.`\
-https://nytimes.com/live/2024/06/25/opinion/thepoint/biden-trump-debate-lies
+https://nytimes.com/2024/06/25/opinion/biden-trump-debate-lies.html
 
 **Harper, Schwarber hurt as Phillies injury concerns mount at halfway point**\
 `Losing one, even for a few weeks, would sting. Losing both would put an immense strain on the Phillies leading into the All-Star Break. `\
@@ -34,4 +38,3 @@ https://nytimes.com/live/2024/06/27/us/biden-trump-debate/he-decided-to-open-up-
 `Some are calling it a disaster.`\
 https://nytimes.com/2024/06/25/opinion/biden-debate-performance.html
 
-**“That was a made-up quote, suckers and losers. They made it up.”**\
