@@ -1,3 +1,15 @@
+**Everton's Ben Godfrey to undergo Atalanta medical ahead of transfer**\
+`Everton defender Ben Godfrey will undergo a medical in Italy today ahead of his proposed transfer to Atalanta.`\
+https://nytimes.com/athletic/5599212/2024/06/28/ben-godfrey-atalanta-everton-transfer-news/
+
+**Weird & Wild MLB June highlights: Running Red Sox, outrageous Ohtani and a 'clock-off' win**\
+`Congrats to Kyle Finnegan, the first pitcher to let a game end by forgetting to throw a pitch until after the pitch clock ticked to zero.`\
+https://nytimes.com/athletic/5598985/2024/06/28/mlb-june-weird-highlights/
+
+**Celtics draft: Baylor Scheierman wants to work, Brad Stevens wants to keep roster together**\
+`Brad Stevens spoke on the Celtics' draft picks, extensions for several key players, and Kristaps Porziņģis' return timeline.`\
+https://nytimes.com/athletic/5598557/2024/06/28/celtics-draft-baylor-scheierman-brad-stevens/
+
 **Braves trade scenarios: Bowden assesses 4 proposals to fill key needs**\
 `The Braves need to address two areas before the deadline: corner outfielder and starting pitcher. Jim Bowden evaluates four such proposals. `\
 https://nytimes.com/athletic/5597696/2024/06/28/braves-mlb-trade-deadline-proposals/
