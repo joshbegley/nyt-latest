@@ -1,3 +1,7 @@
+**Trump’s debate performance: Relentless attacks and falsehoods.**\
+`By Michael Gold`\
+https://nytimes.com/2024/06/27/us/politics/trumps-debate-performance-relentless-attacks-and-falsehoods.html
+
 **'It's a snoozefest': What Europe thinks of Gareth Southgate's England**\
 `England fans seem to be losing faith in their football manager... and sentiments are not much kinder on the continent`\
 https://nytimes.com/athletic/5592848/2024/06/28/gareth-southgate-england-view-europe/
