@@ -1,3 +1,7 @@
+**Harris Defends Biden’s Debate Performance, but Acknowledges ‘a Slow Start’**\
+`In a tense interview, Vice President Kamala Harris defended President Biden’s record in office and downplayed the moments during the debate where he faltered.`\
+https://nytimes.com/2024/06/28/us/politics/kamala-harris-biden-debate.html
+
 **Friday Briefing**\
 `Biden stumbled in the first 2024 debate.`\
 https://nytimes.com/2024/06/28/briefing/trump-biden-debate-france-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5589606/2024/06/28/man-utd-former-players-diagnose-
 **'It's a snoozefest': What Europe thinks of Gareth Southgate's England**\
 `England fans seem to be losing faith in their football manager... and sentiments are not much kinder on the continent`\
 https://nytimes.com/athletic/5592848/2024/06/28/gareth-southgate-england-view-europe/
-
-**Trump’s Debate Performance: Relentless Attacks and Falsehoods**\
-`The former president’s remarks onstage, repeated often on the campaign trail, were striking with his opponent standing a few feet away.`\
-https://nytimes.com/2024/06/27/us/politics/trump-debate-performance-falsehoods.html
 

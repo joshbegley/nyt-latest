@@ -1,3 +1,7 @@
+**‘It’s Frightening’: Democratic Voters Worried by Biden’s Struggles in Debate**\
+`Democrats found President Biden’s performance disconcerting, while Republicans were in a jubilant mood. Swing voters were flummoxed.`\
+https://nytimes.com/2024/06/28/us/biden-trump-debate-voter-reaction.html
+
 **Friday Briefing**\
 `Biden stumbled in the first 2024 debate.`\
 https://nytimes.com/2024/06/28/briefing/trump-biden-debate-france-election.html
