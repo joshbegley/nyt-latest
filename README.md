@@ -1,3 +1,7 @@
+**Two Appearances, Two Starkly Different Bidens**\
+`A day after a shaky debate performance that led to talk of a new Democratic candidate, President Biden was forceful and confident while speaking to supporters.`\
+https://nytimes.com/2024/06/28/us/politics/biden-debate-north-carolina-rally.html
+
 **For Trump, the Debate Was Another Chapter in the Rewriting of Jan. 6**\
 `It was the biggest stage yet for his effort to rewrite the story of Jan. 6, 2021.`\
 https://nytimes.com/2024/06/28/us/politics/trump-debate-jan-6.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/28/us/politics/debate-trump-biden-golf.html
 **Jill Biden’s Dress Makes a Post-Debate Statement**\
 `At a rally in North Carolina, the first lady’s frock said it all.`\
 https://nytimes.com/2024/06/28/style/jill-biden-dress-debate.html
-
-**Supreme Court Ruling Reflects Challenges of Jan. 6 Prosecutions**\
-`In finding that prosecutors misused an obstruction law to charge rioters, the justices highlighted the lack of an established legal blueprint for addressing an attack on the foundations of democracy.`\
-https://nytimes.com/2024/06/28/us/politics/supreme-court-jan-6-prosecution.html
 
