@@ -1,3 +1,15 @@
+**Part of Roof Collapses at India’s Busiest Airport After Heavy Rains**\
+`At least six people were injured when parts of the roof caved in and crushed vehicles at Indira Gandhi airport in New Delhi, according to local reports. All domestic departures were suspended.`\
+https://nytimes.com/2024/06/27/world/asia/india-delhi-airport-roof-collapse.html
+
+**President Biden, I’ve Seen Enough**\
+`He must withdraw from the race.`\
+https://nytimes.com/2024/06/25/opinion/joe-biden-drop-out.html
+
+**“Mexico is working with us to make sure they don’t have the technology to be able to put it together.”**\
+`By Emiliano Rodríguez Mega`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/mexico-is-working-with-us-to-make-sure-they-dont-have-the-technology-to-be-able-to-put-it-together
+
 **“He wants to get rid of Social Security. He thinks that there’s plenty to cut in Social Security. He’s wanted to cut Social Security and Medicare both times.”**\
 `By Angelo Fichera`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/he-wants-to-get-rid-of-social-security-he-thinks-that-theres-plenty-to-cut-in-social-security-hes-wanted-to-cut-social-security-
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/06/27/us/biden-trump-debate/even-from-a-medical-st
 **Uruguay 5-0 Bolivia takeaways: A big win puts Uruguay in control of Group C**\
 `Uruguay show why they should be considered one of the tournament favorites after two matches. `\
 https://nytimes.com/athletic/5598674/2024/06/27/uruguay-bolivia-copa-america/
-
-**Was the NBA Draft's two-day format a success?**\
-`The second round was for TV only. There were no fans, and the most intriguing prospects didn't show up.`\
-https://nytimes.com/athletic/5598411/2024/06/27/nba-draft-two-day-format/
-
-**“They’re taking Black jobs and they’re taking Hispanic jobs. And you haven’t seen it yet.”**\
-`By Miriam Jordan`\
-https://nytimes.com/live/2024/06/27/us/biden-trump-debate/theyre-taking-black-jobs-and-theyre-taking-hispanic-jobs-and-you-havent-seen-it-yet
-
-**“The fraud and everything else was ridiculous.”**\
-`By Alexandra Berzon`\
-https://nytimes.com/live/2024/06/27/us/biden-trump-debate/the-fraud-and-everything-else-was-ridiculous
 
