@@ -1,3 +1,7 @@
+**Princess Anne Returns Home From the Hospital**\
+`Anne, the younger sister of King Charles III, suffered a concussion and other injuries in an accident at her country residence, palace officials said.`\
+https://nytimes.com/2024/06/28/world/europe/princess-anne-home-hospital-accident.html
+
 **How fast could a human being throw a fastball? 106 mph, 110 mph — even 125 mph?**\
 `The average four-seam fastball has increased in velocity every season since we started tracking it. What's the upper limit?`\
 https://nytimes.com/athletic/5571107/2024/06/28/mlb-pitcher-fastball-top-speed/
