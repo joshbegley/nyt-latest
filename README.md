@@ -2,9 +2,9 @@
 `England fans seem to be losing faith in their football manager... and sentiments are not much kinder on the continent`\
 https://nytimes.com/athletic/5592848/2024/06/28/gareth-southgate-england-view-europe/
 
-**Trump’s debate performance: Relentless attacks and falsehoods.**\
-`By Michael Gold`\
-https://nytimes.com/2024/06/27/us/politics/trumps-debate-performance-relentless-attacks-and-falsehoods.html
+**Trump’s Debate Performance: Relentless Attacks and Falsehoods**\
+`The former president’s remarks onstage, repeated often on the campaign trail, were striking with his opponent standing a few feet away.`\
+https://nytimes.com/2024/06/27/us/politics/trump-debate-performance-falsehoods.html
 
 **A settled line-up and Musiala on fire, but a notable lack of width - assessing Germany so far**\
 `The hosts have impressed at these Euros and have much to be happy about, but if they are to go all the way, there are the areas to improve`\
