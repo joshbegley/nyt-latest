@@ -1,3 +1,11 @@
+**She Wants to Save the Arts in Britain (if She Can Get Elected)**\
+`The Labour lawmaker Thangam Debbonaire has a plan to turn Britain’s ailing cultural sector around. Will she get to implement it?`\
+https://nytimes.com/2024/06/28/arts/labour-party-culture.html
+
+**Democratic Donors’ Big Question: What’s Plan B?**\
+`An unsteady debate performance by President Biden has scrambled the thinking among some donors about whether the party needs to find an alternative.`\
+https://nytimes.com/2024/06/28/business/dealbook/biden-debate-donors.html
+
 **Wife’s Ex-Boyfriend and Fear of Poverty at Center of Menendez’s Defense**\
 `Senator Robert Menendez’s lawyers are expected to call witnesses who will describe his childhood and the rocky start to his relationship with his wife.`\
 https://nytimes.com/2024/06/28/nyregion/robert-menendez-bribery-trial-defense.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5597346/2024/06/28/russell-martin-southampton-contr
 **Team USA has dominated Summer Olympics medal table. Will it continue in Paris?**\
 `Follow our Olympics coverage in the lead-up to the Paris Games.`\
 https://nytimes.com/athletic/5587698/2024/06/28/team-usa-olympics-medal-count-paris/
-
-**Deaths Linked to Japanese Supplement Suddenly Rise to 80**\
-`The case, involving a supplement intended to reduce cholesterol, has put attention on how companies are allowed to self-report claims about their products.`\
-https://nytimes.com/2024/06/28/business/kobayashi-pharmaceutical-supplement-deaths.html
-
-**Why the Lakers set out to make history by drafting Bronny James at No. 55**\
-`There wasn't much risk for the team in drafting LeBron James' son in the second round.`\
-https://nytimes.com/athletic/5597946/2024/06/28/bronny-james-lakers-development-draft/
 

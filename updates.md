@@ -1,3 +1,11 @@
+**She Wants to Save the Arts in Britain (if She Can Get Elected)**\
+`The Labour lawmaker Thangam Debbonaire has a plan to turn Britain’s ailing cultural sector around. Will she get to implement it?`\
+https://nytimes.com/2024/06/28/arts/labour-party-culture.html
+
+**Democratic Donors’ Big Question: What’s Plan B?**\
+`An unsteady debate performance by President Biden has scrambled the thinking among some donors about whether the party needs to find an alternative.`\
+https://nytimes.com/2024/06/28/business/dealbook/biden-debate-donors.html
+
 **Wife’s Ex-Boyfriend and Fear of Poverty at Center of Menendez’s Defense**\
 `Senator Robert Menendez’s lawyers are expected to call witnesses who will describe his childhood and the rocky start to his relationship with his wife.`\
 https://nytimes.com/2024/06/28/nyregion/robert-menendez-bribery-trial-defense.html
