@@ -1,3 +1,19 @@
+**House G.O.P. Begins Push on Hard-Right Spending Bills, Teeing Up Future Battles**\
+`The Republican-led House loaded its funding measures with provisions that have no chance of becoming law, as both parties look toward a bigger fight later this year, most likely after the elections.`\
+https://nytimes.com/2024/06/28/us/politics/house-republicans-spending-bills.html
+
+**Supreme Court Ruling Could Undermine Treasury Department and I.R.S.**\
+`The decision overturning a longstanding precedent is likely to spawn challenges to dozens of tax regulations.`\
+https://nytimes.com/2024/06/28/us/politics/scotus-chevron-irs-treasury.html
+
+**The Big Number: $5 Billion**\
+`The amount Volkswagen said it planned to invest in the electric vehicle maker Rivian.`\
+https://nytimes.com/2024/06/28/business/the-big-number-5-billion-volkswagen-rivian.html
+
+**Conservative Christian Activists See Opportunity in Supreme Court Ruling**\
+`The decision overturning a precedent known as Chevron deference was celebrated by those who would target medication abortion and rights for transgender people.`\
+https://nytimes.com/2024/06/28/us/politics/conservative-christian-activists-see-chevron-as-major-win-to-push-their-causes.html
+
 **Biden vs. Trump: A Wrenching Debate**\
 `Readers are disturbed by “problematic performances” by both candidates, and some urge the president to bow out.`\
 https://nytimes.com/2024/06/28/opinion/letters/biden-trump-debate.html
