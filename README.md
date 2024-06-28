@@ -1,3 +1,7 @@
+**This Debate, We Could Hear Biden Speak. There His Troubles Began.**\
+`The CNN presidential debate kept the volume down, for a change. That didn’t make it more intelligible.`\
+https://nytimes.com/2024/06/28/arts/television/presidential-debate-biden-trump.html
+
 **Iowa Supreme Court Allows Six-Week Abortion Ban to Take Effect**\
 `Republican lawmakers passed the restrictions last year, but a lower court blocked enforcement of the law.`\
 https://nytimes.com/2024/06/28/us/iowa-abortion-ruling.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/28/us/la-county-medical-debt.html
 **Summer Reading Contest, Week 4: What Got Your Attention in The Times This Week?**\
 `To participate, submit your response here by July 5 at 9 a.m. Eastern. This week’s winners will be announced by July 17.`\
 https://nytimes.com/2024/06/28/learning/summer-reading-contest-week-4-what-got-your-attention-in-the-times-this-week.html
-
-**The Fed’s Preferred Inflation Measure Cools, Welcome News**\
-`The economy appears to be downshifting and price gains are moderating, as Federal Reserve officials creep closer to beating inflation.`\
-https://nytimes.com/2024/06/28/business/economy/federal-reserve-inflation-cools.html
 
