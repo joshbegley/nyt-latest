@@ -1,3 +1,7 @@
+**“During my four years, I had the best environmental numbers ever.”**\
+`By Coral Davenport`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/during-my-four-years-i-had-the-best-environmental-numbers-ever
+
 **Part of Roof Collapses at India’s Busiest Airport After Heavy Rains**\
 `At least six people were injured when parts of the roof caved in and crushed vehicles at Indira Gandhi airport in New Delhi, according to local reports. All domestic departures were suspended.`\
 https://nytimes.com/2024/06/27/world/asia/india-delhi-airport-roof-collapse.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/27/us/biden-trump-debate-fact-check/and-what-he
 **“Even from a medical standpoint, right to try: where we can try space-age materials instead of going to Asia or going to Europe and trying to get, when you’re terminally ill, now you can go and you can get something, you sign a document. They’ve been trying to get it for 42 years. But you know, what we did for the military was incredible, choice for our soldiers, where our soldiers, instead of waiting for three months to see a doctor, can go out and get themselves fixed up and readied up, and take care of themselves. And they’re living and that’s why I had the highest approval rating of the history of the V.A.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/even-from-a-medical-standpoint-right-to-try-where-we-can-try-space-age-materials-instead-of-going-to-asia-or-going-to-europe-and
-
-**Uruguay 5-0 Bolivia takeaways: A big win puts Uruguay in control of Group C**\
-`Uruguay show why they should be considered one of the tournament favorites after two matches. `\
-https://nytimes.com/athletic/5598674/2024/06/27/uruguay-bolivia-copa-america/
 
