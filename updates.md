@@ -1,3 +1,7 @@
+**How fast could a human being throw a fastball? 106 mph, 110 mph — even 125 mph?**\
+`The average four-seam fastball has increased in velocity every season since we started tracking it. What's the upper limit?`\
+https://nytimes.com/athletic/5571107/2024/06/28/mlb-pitcher-fastball-top-speed/
+
 **Kawakami: Warriors' Mike Dunleavy Jr. is ready for the big move, if it's available**\
 `Mike Dunleavy on lining up a big trade: "This stuff evolves, it changes so quickly. But the one thing I know is we're in position to do it."`\
 https://nytimes.com/athletic/5598630/2024/06/28/warriors-mike-dunleavy-jr-draft-trade-free-agency/

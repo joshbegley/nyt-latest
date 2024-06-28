@@ -6,6 +6,10 @@ https://nytimes.com/athletic/5598630/2024/06/28/warriors-mike-dunleavy-jr-draft-
 `Chelsea have submitted an offer to sign Kiernan Dewsbury-Hall from Leicester City.`\
 https://nytimes.com/athletic/5599597/2024/06/28/chelsea-kiernan-dewsbury-hall/
 
+**How fast could a human being throw a fastball? 106 mph, 110 mph — even 125 mph?**\
+`The average four-seam fastball has increased in velocity every season since we started tracking it. What's the upper limit?`\
+https://nytimes.com/athletic/5571107/2024/06/28/mlb-pitcher-fastball-top-speed/
+
 **Southampton in talks with Martin over new contract**\
 `Southampton are in talks with Russell Martin over a new contract after he led them back to the Premier League at the first time of asking.`\
 https://nytimes.com/athletic/5597346/2024/06/28/russell-martin-southampton-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5596537/2024/06/28/broncos-jaleel-mclaughlin-2024/
 **State of the 49ers, RBs: Will Kyle Shanahan ease Christian McCaffrey's workload?**\
 `Can — or should — McCaffrey be the workhorse he was in 2023? The 49ers would be wise to develop more tailback depth.`\
 https://nytimes.com/athletic/5560530/2024/06/28/san-francisco-49ers-running-backs-mccaffrey-2024/
-
-**Lazerus: Blackhawks owe it to themselves and to Connor Bedard to draft Ivan Demidov at No. 2**\
-`Safe is death in the NHL, which is why Demidov is the right pick for the Blackhawks in the 2024 draft.`\
-https://nytimes.com/athletic/5598415/2024/06/28/blackhawks-draft-ivan-demidov-connor-bedard/
 
