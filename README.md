@@ -1,3 +1,7 @@
+**The Supreme Court Gives a Hand to Hundreds of Jan. 6 Rioters**\
+`The decision could also affect the indictment against Trump.`\
+https://nytimes.com/live/2024/06/25/opinion/thepoint/supreme-court-jan6-rioters
+
 **‘It was painful’: Biden supporters react to the debate with anxiety and alarm**\
 `By The New York Times`\
 https://nytimes.com/live/2024/06/28/us/trump-biden-debate/it-was-painful-biden-supporters-react-to-the-debate-with-anxiety-and-alarm
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/28/us/supreme-court-chevron/chevron-deference-p
 **Los Angeles Homeless Count Drops for the First Time in 6 Years**\
 `The reduction was a sign of progress for Mayor Karen Bass, who started an aggressive new program to move people off the streets in 2022.`\
 https://nytimes.com/2024/06/28/us/los-angeles-homeless-count.html
-
-**Prosecutors in Menendez Bribery Trial Rest Their Case**\
-`After seven weeks of trial, lawyers for Senator Robert Menendez are expected to begin calling witnesses on Monday to rebut the government’s case.`\
-https://nytimes.com/2024/06/28/nyregion/robert-menendez-bribery-trial.html
 
