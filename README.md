@@ -1,3 +1,11 @@
+**Supreme Court Ruling Could Undermine Treasury Department and I.R.S.**\
+`The decision overturning a longstanding precedent is likely to spawn challenges to dozens of tax regulations.`\
+https://nytimes.com/2024/06/28/us/politics/scotus-chevron-irs-treasury.html
+
+**The Big Number: $5 Billion**\
+`The amount Volkswagen said it planned to invest in the electric vehicle maker Rivian.`\
+https://nytimes.com/2024/06/28/business/the-big-number-5-billion-volkswagen-rivian.html
+
 **Biden vs. Trump: A Wrenching Debate**\
 `Readers are disturbed by “problematic performances” by both candidates, and some urge the president to bow out.`\
 https://nytimes.com/2024/06/28/opinion/letters/biden-trump-debate.html
@@ -12,7 +20,7 @@ https://nytimes.com/2024/06/28/opinion/kamala-harris-biden-debate.html
 
 **Conservative Christian activists see Chevron as major win to push their causes.**\
 `By Elizabeth Dias`\
-https://nytimes.com/live/2024/06/28/us/supreme-court-chevron/conservative-christian-activists-see-chevron-as-major-win-to-push-their-causes
+https://nytimes.com/2024/06/28/us/politics/conservative-christian-activists-see-chevron-as-major-win-to-push-their-causes.html
 
 **Social Conservatives Push Trump on the G.O.P.’s Anti-Abortion Platform**\
 `Leaders of the anti-abortion movement sent a letter to Donald J. Trump amid worries he may try to weaken the anti-abortion language in the party platform.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/28/arts/television/review-kafka-shoresy.html
 **Overturning the Chevron decision has been a major goal of the conservative legal movement.**\
 `The Supreme Court heard oral arguments yesterday on one of the biggest cases of the current term.`\
 https://nytimes.com/live/2024/06/28/us/supreme-court-chevron/overturning-the-chevron-decision-has-been-a-major-goal-of-the-conservative-legal-movement
-
-**A Visual History of the Harlem Renaissance**\
-`The Harlem Renaissance changed the world. We’ve gathered dozens of images, many that we’ve never published, showing the people and the art that they created.`\
-https://nytimes.com/interactive/2024/arts/harlem-renaissance-100-anniversary.html
-
-**The ruling will embolden challenges against financial regulators.**\
-`By Stacy Cowley and Emily Flitter`\
-https://nytimes.com/live/2024/06/28/us/supreme-court-chevron/the-ruling-will-embolden-challenges-against-financial-regulators
 
