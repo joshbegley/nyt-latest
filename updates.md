@@ -1,3 +1,7 @@
+**Harris Defends Biden’s Debate Performance, but Acknowledges ‘a Slow Start’**\
+`In a tense interview, Vice President Kamala Harris defended President Biden’s record in office and downplayed the moments during the debate where he faltered.`\
+https://nytimes.com/2024/06/28/us/politics/kamala-harris-biden-debate.html
+
 **‘It’s Frightening’: Democratic Voters Worried by Biden’s Struggles in Debate**\
 `Democrats found President Biden’s performance disconcerting, while Republicans were in a jubilant mood. Swing voters were flummoxed.`\
 https://nytimes.com/2024/06/28/us/biden-trump-debate-voter-reaction.html
