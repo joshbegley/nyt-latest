@@ -1,3 +1,7 @@
+**Officer Found Guilty of Murdering Man Outside Washington State Grocery Store**\
+`The conviction is the first under a state law that eases the prosecution of police officials.`\
+https://nytimes.com/2024/06/27/us/washington-police-murder-guilty.html
+
 **What we're hearing about the Canucks' draft plans and free agency priorities**\
 `The Canucks have the intention and flexibility required to further remake their roster this upcoming weekend.`\
 https://nytimes.com/athletic/5598536/2024/06/27/canucks-nhl-draft-jake-guentzel/
