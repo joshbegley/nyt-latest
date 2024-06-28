@@ -1,3 +1,7 @@
+**The Best Engagement Gifts**\
+`Take the guesswork out of the present.`\
+https://nytimes.com/interactive/2024/06/28/smarter-living/wirecutter/engagement-gifts.html
+
 **Voters Must Decide Who Should Be the King of America’s Nuclear Monarchy**\
 `The president controls the deadliest weapon arsenal known to man.`\
 https://nytimes.com/live/2024/06/25/opinion/thepoint/voters-must-decide-who-should-be-the-king-of-americas-nuclear-monarchy
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/28/us/texas-transgender-ban-minors.html
 **Which Joe Biden Is the Real One?**\
 `He can still give a good speech, but that may not be enough.`\
 https://nytimes.com/live/2024/06/25/opinion/thepoint/biden-speech-carolina
-
-**Leaders in Their Prime Debate Substance in Detail (No, Not in the U.S.)**\
-`The debates between contenders to be U.K. prime minister showed that Britain’s political culture, and the leaders who have emerged from it, are far removed from those across the ocean.`\
-https://nytimes.com/2024/06/28/world/europe/uk-us-debate-contrast.html
 

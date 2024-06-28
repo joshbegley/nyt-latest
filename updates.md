@@ -1,3 +1,7 @@
+**The Best Engagement Gifts**\
+`Take the guesswork out of the present.`\
+https://nytimes.com/interactive/2024/06/28/smarter-living/wirecutter/engagement-gifts.html
+
 **Voters Must Decide Who Should Be the King of America’s Nuclear Monarchy**\
 `The president controls the deadliest weapon arsenal known to man.`\
 https://nytimes.com/live/2024/06/25/opinion/thepoint/voters-must-decide-who-should-be-the-king-of-americas-nuclear-monarchy
