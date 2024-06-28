@@ -18,7 +18,7 @@ https://nytimes.com/live/2024/06/28/us/supreme-court-chevron/utah-geared-up-for-
 `By Teddy Rosenbluth and Roni Caryn Rabin`\
 https://nytimes.com/live/2024/06/28/us/supreme-court-chevron/chevron-deference-public-health
 
-**Los Angeles Homeless Count Drops for the First Time in Seven Years**\
+**Los Angeles Homeless Count Drops for the First Time in 6 Years**\
 `The reduction was a sign of progress for Mayor Karen Bass, who started an aggressive new program to move people off the streets in 2022.`\
 https://nytimes.com/2024/06/28/us/los-angeles-homeless-count.html
 
