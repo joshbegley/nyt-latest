@@ -1,3 +1,11 @@
+**For Trump, the Debate Was Another Chapter in the Rewriting of Jan. 6**\
+`It was the biggest stage yet for his effort to rewrite the story of Jan. 6, 2021.`\
+https://nytimes.com/2024/06/28/us/politics/trump-debate-jan-6.html
+
+**There Are ‘No Conversations’ About Replacing Biden, Campaign Official Says**\
+`The official also said President Biden was committed to attending the next presidential debate in September.`\
+https://nytimes.com/2024/06/28/us/politics/biden-campaign-replace-democrats.html
+
 **Businesses Cheer Their New Freedom to Violate Regulations**\
 `Conservative justices take a big step in their campaign to shrink government oversight.`\
 https://nytimes.com/live/2024/06/25/opinion/thepoint/supreme-court-chevron-regulations
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/28/style/jill-biden-dress-debate.html
 **Supreme Court Ruling Reflects Challenges of Jan. 6 Prosecutions**\
 `In finding that prosecutors misused an obstruction law to charge rioters, the justices highlighted the lack of an established legal blueprint for addressing an attack on the foundations of democracy.`\
 https://nytimes.com/2024/06/28/us/politics/supreme-court-jan-6-prosecution.html
-
-**She Needed an Emergency Abortion. Doctors in Idaho Put Her on a Plane.**\
-`In states that have banned abortion, hospitals have struggled to treat pregnant women facing health risks. A Supreme Court decision this week did not help.`\
-https://nytimes.com/2024/06/28/us/emergency-abortion-idaho-mother.html
-
-**The Bible in Public Schools? Oklahoma Pushes Limits of Long Tradition.**\
-`The Bible has a deep history in American classrooms, but the state’s provocative superintendent wants to broadly expand its influence.`\
-https://nytimes.com/2024/06/28/education/bible-schools-classrooms.html
 
