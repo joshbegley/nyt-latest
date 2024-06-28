@@ -1,3 +1,15 @@
+**Could Democrats Replace Biden at the Top of the Presidential Ticket?**\
+`While it is possible, it would most likely lead to political upheaval in the party unless the president decides to step aside on his own terms.`\
+https://nytimes.com/2024/06/28/us/politics/replace-biden.html
+
+**Biden’s ‘Hard Night’ at Debate Surprises Voters Who Had High Expectations**\
+`Poll respondents who had thought the president would perform well expressed disappointment. ‘His communication fell down,’ one voter said.`\
+https://nytimes.com/2024/06/28/us/elections/biden-debate-poll-expectations.html
+
+**Biden Vows to ‘Get Back Up’ After Poor Debate Performance**\
+`During a rally in North Carolina, President Biden attempted to minimize concerns about his fitness for office by reassuring the crowd that he’s up for the job.`\
+https://nytimes.com/video/us/elections/100000009546451/biden-confronts-doubters.html
+
 **One Way to Make Russia Pay for Ukraine? Take Its Money.**\
 `U.S. and E.U. leaders are divided over how far to go in the economic war against Vladimir Putin.`\
 https://nytimes.com/2024/06/28/opinion/russia-ukraine-sanctions.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/28/opinion/supreme-court-chevron-congress.html
 **New Jersey Tells Trump’s Golf Clubs to Show They Deserve Liquor Licenses**\
 `The state said that former President Donald J. Trump’s felony convictions may mean he does not have the moral character to serve drinks.`\
 https://nytimes.com/2024/06/28/nyregion/trump-golf-clubs-liquor-licenses.html
-
-**Regulatory Agencies Suffered Their Latest Blow in Chevron Ruling**\
-`The Supreme Court’s conservative majority has made it easier to sue agencies and get their rules struck down.`\
-https://nytimes.com/2024/06/28/us/politics/scotus-chevron-agencies.html
-
-**The Supreme Court Gives a Hand to Hundreds of Jan. 6 Rioters**\
-`The decision could also affect the indictment against Trump.`\
-https://nytimes.com/live/2024/06/25/opinion/thepoint/supreme-court-jan6-rioters
-
-**‘It was painful’: Biden supporters react to the debate with anxiety and alarm**\
-`By The New York Times`\
-https://nytimes.com/live/2024/06/28/us/trump-biden-debate/it-was-painful-biden-supporters-react-to-the-debate-with-anxiety-and-alarm
 

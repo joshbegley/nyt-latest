@@ -1,3 +1,15 @@
+**Could Democrats Replace Biden at the Top of the Presidential Ticket?**\
+`While it is possible, it would most likely lead to political upheaval in the party unless the president decides to step aside on his own terms.`\
+https://nytimes.com/2024/06/28/us/politics/replace-biden.html
+
+**Biden’s ‘Hard Night’ at Debate Surprises Voters Who Had High Expectations**\
+`Poll respondents who had thought the president would perform well expressed disappointment. ‘His communication fell down,’ one voter said.`\
+https://nytimes.com/2024/06/28/us/elections/biden-debate-poll-expectations.html
+
+**Biden Vows to ‘Get Back Up’ After Poor Debate Performance**\
+`During a rally in North Carolina, President Biden attempted to minimize concerns about his fitness for office by reassuring the crowd that he’s up for the job.`\
+https://nytimes.com/video/us/elections/100000009546451/biden-confronts-doubters.html
+
 **One Way to Make Russia Pay for Ukraine? Take Its Money.**\
 `U.S. and E.U. leaders are divided over how far to go in the economic war against Vladimir Putin.`\
 https://nytimes.com/2024/06/28/opinion/russia-ukraine-sanctions.html
