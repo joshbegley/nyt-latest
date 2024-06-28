@@ -1,10 +1,10 @@
-**“I got them to put up hundreds of billions of dollars. The secretary general of NATO said Trump did the most incredible job ever.”**\
-`By Julian E. Barnes`\
-https://nytimes.com/live/2024/06/27/us/biden-trump-debate/i-got-them-to-put-up-hundreds-of-billions-of-dollars-the-secretary-general-of-nato-said-trump-did-the-most-incredible-job-ever
-
 **“He wants to raise your taxes by four times.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/he-wants-to-raise-your-taxes-by-four-times
+
+**“I got them to put up hundreds of billions of dollars. The secretary general of NATO said Trump did the most incredible job ever.”**\
+`By Julian E. Barnes`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/i-got-them-to-put-up-hundreds-of-billions-of-dollars-the-secretary-general-of-nato-said-trump-did-the-most-incredible-job-ever
 
 **The Warriors trade for Lindy Waters III, draft Quinten Post, hard cap themselves**\
 `After Thursday's draft, the Warriors are now hard-capped at the second apron in the heart of trade and free agency season.`\
