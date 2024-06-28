@@ -1,3 +1,7 @@
+**Friday Briefing**\
+`Biden stumbled in the first 2024 debate.`\
+https://nytimes.com/2024/06/28/briefing/trump-biden-debate-france-election.html
+
 **Carlos Rodón was a disaster once again. Where do the Yankees go from here?**\
 `Rodón isn't going to turn into a junkballer, but he acknowledged the sequencing needs to improve.`\
 https://nytimes.com/athletic/5598515/2024/06/28/yankees-carlos-rodon-disaster-again/
