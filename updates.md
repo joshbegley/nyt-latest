@@ -1,3 +1,15 @@
+**Nearly 1,430 people have been charged in the Jan. 6 attack.**\
+`Prosecutors have suggested that more than 2,000 people could ultimately face indictment for their roles in the attack.`\
+https://nytimes.com/live/2024/06/28/us/supreme-court-jan-6/nearly-1430-people-have-been-charged-in-the-jan-6-attack
+
+**Yes … Who? Here Are the Chefs Who Appear in ‘The Bear.’**\
+`Last season, the FX series featured a parade of Hollywood celebrities. In the new one, it’s showing off its food-world credibility with a series of cameos from star chefs.`\
+https://nytimes.com/2024/06/28/arts/television/the-bear-season-3-chef-cameos.html
+
+**Live Updates: Supreme Court Narrows Obstruction Law’s Use in Jan. 6 Cases**\
+`The decision concerned the scope of a 2002 law enacted in the wake of the collapse of Enron to address accounting fraud and the destruction of evidence.`\
+https://nytimes.com/live/2024/06/28/us/supreme-court-jan-6
+
 **Join Us to Hear About the Loopholes of Hawaii’s Pay-to-Play Law**\
 `A joint investigation examined the role money plays in politics in Hawaii. Hear how journalists put the story together in a livestreamed event on July 10.`\
 https://nytimes.com/2024/06/28/us/honolulu-civil-beat-event.html
