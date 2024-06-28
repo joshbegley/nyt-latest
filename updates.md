@@ -1,3 +1,7 @@
+**U.S. Allies Watch the Debate With Shaking Heads and a Question: What Now?**\
+`Across Asia, there was little talk about winning, and more concern about American stability — both domestically and on crucial foreign policy issues.`\
+https://nytimes.com/2024/06/28/world/asia/biden-trump-debate-allies.html
+
 **The USMNT are in danger of blowing their big moment**\
 `The summer began with great expectations for Gregg Berhalter and his players, but they are in danger of falling well short`\
 https://nytimes.com/athletic/5599095/2024/06/28/usmnt-copa-america-pressure/
