@@ -1,3 +1,7 @@
+**Supreme Court Ruling Reflects Challenges of Jan. 6 Prosecutions**\
+`In finding that prosecutors misused an obstruction law to charge rioters, the justices highlighted the lack of an established legal blueprint for addressing an attack on the foundations of democracy.`\
+https://nytimes.com/2024/06/28/us/politics/supreme-court-jan-6-prosecution.html
+
 **Astronauts Are Not Stuck on the I.S.S., NASA and Boeing Officials Say**\
 `Butch Wilmore and Suni Williams will spend additional weeks in orbit as teams on the ground study malfunctioning thrusters on the Starliner spacecraft.`\
 https://nytimes.com/2024/06/28/science/boeing-starliner-nasa-astronauts.html
