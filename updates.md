@@ -1,3 +1,11 @@
+**Fearful and Doubting Biden, Democrats Face an Uncertain Path Forward**\
+`A range of despairing Democrats began to reconsider their nominee after his rough debate showing, but there was no agreement on how, or whether, to urge him to step off the ticket.`\
+https://nytimes.com/2024/06/28/us/politics/biden-democrats-nominee-2024-election.html
+
+**The Supreme Court Thinks That by Arguing More, We Can Be Less Divided**\
+`Everyone in our system, including judges and members of Congress, will be nudged to do their proper constitutional work.`\
+https://nytimes.com/2024/06/28/opinion/supreme-court-chevron-congress.html
+
 **New Jersey Tells Trump’s Golf Clubs to Show They Deserve Liquor Licenses**\
 `The state said that former President Donald J. Trump’s felony convictions may mean he does not have the moral character to serve drinks.`\
 https://nytimes.com/2024/06/28/nyregion/trump-golf-clubs-liquor-licenses.html
