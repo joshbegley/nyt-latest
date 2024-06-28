@@ -1,3 +1,11 @@
+**Doris Allen, Analyst Who Saw the Tet Offensive Coming, Is Dead at 97**\
+`Her warning of a big buildup of enemy troops poised to attack South Vietnam in 1968 was ignored, a major U.S. Army intelligence failure during the war.`\
+https://nytimes.com/2024/06/28/world/asia/doris-allen-dead.html
+
+**To Serve His Country, President Biden Should Leave the Race**\
+`The president’s inadequate performance in the debate made it clear he is not the man he was four years ago.`\
+https://nytimes.com/2024/06/28/opinion/biden-election-debate-trump.html
+
 **Downballot Republicans Seize on Biden’s Halting Debate Performance**\
 `Facing resilient Democratic incumbents, G.O.P. House and Senate nominees highlighted their opponents’ support for President Biden after he faltered in the presidential debate.`\
 https://nytimes.com/2024/06/28/us/politics/senate-republicans-biden-debate.html
