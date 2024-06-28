@@ -1,3 +1,7 @@
+**“The fraud and everything else was ridiculous.”**\
+`By Alexandra Berzon`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/the-fraud-and-everything-else-was-ridiculous
+
 **How Would You Rate the Presidential Debate?**\
 `Times Opinion wants to hear your takeaways. We may publish your thoughts in a future article.`\
 https://nytimes.com/2024/06/27/opinion/rate-presidential-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/27/us/biden-trump-debate/economists-say-thats-g
 **“He wants to raise your taxes by four times.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/he-wants-to-raise-your-taxes-by-four-times
-
-**“I got them to put up hundreds of billions of dollars. The secretary general of NATO said Trump did the most incredible job ever.”**\
-`By Julian E. Barnes`\
-https://nytimes.com/live/2024/06/27/us/biden-trump-debate-fact-check/i-got-them-to-put-up-hundreds-of-billions-of-dollars-the-secretary-general-of-nato-said-trump-did-the-most-incredible-job-ever
 
