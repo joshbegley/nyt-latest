@@ -1,6 +1,6 @@
 **Trump’s use of ‘Palestinian’ as an insult raises alarms for some.**\
 `By Liam Stack`\
-https://nytimes.com/live/2024/06/28/world/israel-gaza-war-hamas/trumps-use-of-palestinian-as-an-insult-raises-alarms-for-some
+https://nytimes.com/live/2024/06/28/us/trump-biden-debate/trumps-use-of-palestinian-as-an-insult-raises-alarms-for-some
 
 **Driver Is Convicted of Killing of 8 People in Texas**\
 `A jury convicted the driver of eight counts of intoxication manslaughter after he plowed into a crowd of migrants in Brownsville, Texas, last year. He faces up to 20 years in prison on each count.`\
