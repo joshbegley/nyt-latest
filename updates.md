@@ -1,3 +1,15 @@
+**Part of Roof Collapses at India’s Busiest Airport After Heavy Rains**\
+`At least six people were injured when parts of the roof caved in and crushed vehicles at Indira Gandhi airport in New Delhi, according to local reports. All domestic departures were suspended.`\
+https://nytimes.com/2024/06/27/world/asia/india-delhi-airport-roof-collapse.html
+
+**President Biden, I’ve Seen Enough**\
+`He must withdraw from the race.`\
+https://nytimes.com/2024/06/25/opinion/joe-biden-drop-out.html
+
+**“Mexico is working with us to make sure they don’t have the technology to be able to put it together.”**\
+`By Emiliano Rodríguez Mega`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/mexico-is-working-with-us-to-make-sure-they-dont-have-the-technology-to-be-able-to-put-it-together
+
 **“He wants to get rid of Social Security. He thinks that there’s plenty to cut in Social Security. He’s wanted to cut Social Security and Medicare both times.”**\
 `By Angelo Fichera`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/he-wants-to-get-rid-of-social-security-he-thinks-that-theres-plenty-to-cut-in-social-security-hes-wanted-to-cut-social-security-
