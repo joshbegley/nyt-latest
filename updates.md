@@ -1,3 +1,7 @@
+**New Jersey Tells Trump’s Golf Clubs to Show They Deserve Liquor Licenses**\
+`The state said that former President Donald J. Trump’s felony convictions may mean he does not have the moral character to serve drinks.`\
+https://nytimes.com/2024/06/28/nyregion/trump-golf-clubs-liquor-licenses.html
+
 **New Jersey Orders Trump’s Clubs to Show They Deserve Liquor Licenses**\
 `The state said that former President Donald J. Trump’s felony convictions may mean he does not have the moral character to serve drinks.`\
 https://nytimes.com/2024/06/28/nyregion/trump-golf-clubs-liquor-licenses.html
