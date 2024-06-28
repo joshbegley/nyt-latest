@@ -1,3 +1,11 @@
+**“We’re no longer respected as a country. They don’t respect our leadership. They don’t respect the United States anymore.”**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/were-no-longer-respected-as-a-country-they-dont-respect-our-leadership-they-dont-respect-the-united-states-anymore
+
+**Biden begins the debate hesitant and sounding raspy, and MAGA world quickly pounces.**\
+`By Kellen Browning`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/biden-hoarse-debate-raspy-voice
+
 **“They will take the life of a child in the eighth month, ninth month, even after birth.”**\
 `By Kate Zernike`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/they-will-take-the-life-of-a-child-in-the-eighth-month-ninth-month-even-after-birth
