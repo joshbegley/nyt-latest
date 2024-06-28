@@ -1,3 +1,7 @@
+**7.2-Magnitude Earthquake Strikes Off Peru**\
+`A tsunami alert was lifted about an hour after the quake struck off the coast of the southern region of Arequipa. There were reports of minor injuries and some damage.`\
+https://nytimes.com/2024/06/28/world/americas/peru-earthquake.html
+
 **U.S. Allies Watch the Debate With Shaking Heads and a Question: What Now?**\
 `Across Asia, there was little talk about winning, and more concern about American stability — both domestically and on crucial foreign policy issues.`\
 https://nytimes.com/2024/06/28/world/asia/biden-trump-debate-allies.html
