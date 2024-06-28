@@ -1,3 +1,11 @@
+**Biden Brushes Off Concerns About His Performance: ‘It’s Hard to Debate a Liar’**\
+`During brief remarks to reporters after his showdown with former President Donald J. Trump, Mr. Biden said he felt he “did well” but noted that he had a sore throat.`\
+https://nytimes.com/2024/06/28/us/politics/biden-sore-throat-debate.html
+
+**Jon Stewart Is a Little Stressed Out About That Debate**\
+`Hosting a live “Daily Show” after the Biden-Trump spectacle, Stewart said he needed “to call a real estate agent in New Zealand.”`\
+https://nytimes.com/2024/06/28/arts/television/jon-stewart-debate-trump-biden.html
+
 **Wildfires Sparked by 1,000 Lightning Strikes Spread in California**\
 `The group of fires prompted an evacuation as they burned more than 10,000 acres east of Fresno after a lightening storm struck the region.`\
 https://nytimes.com/2024/06/28/us/fresno-california-wildfire.html
