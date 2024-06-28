@@ -1,3 +1,7 @@
+**Supreme Court Rejects Bannon’s Appeal to Delay Prison Sentence**\
+`Stephen Bannon will have to begin serving four months in prison on Monday, after the court turned aside his request to remain free while he appeals his conviction for contempt of Congress.`\
+https://nytimes.com/2024/06/28/us/politics/steve-bannon-supreme-court-appeal.html
+
 **A Dark Day for Democrats**\
 `The combination of President Biden’s debate performance and adverse Supreme Court rulings left Democrats reeling and in despair with elections not far off.`\
 https://nytimes.com/2024/06/28/us/politics/democrats-biden-debate-supreme-court.html

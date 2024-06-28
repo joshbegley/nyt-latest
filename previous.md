@@ -1,3 +1,7 @@
+**Supreme Court Rejects Bannon’s Appeal to Delay Prison Sentence**\
+`Stephen Bannon will have to begin serving four months in prison on Monday, after the court turned aside his request to remain free while he appeals his conviction for contempt of Congress.`\
+https://nytimes.com/2024/06/28/us/politics/steve-bannon-supreme-court-appeal.html
+
 **A Dark Day for Democrats**\
 `The combination of President Biden’s debate performance and adverse Supreme Court rulings left Democrats reeling and in despair with elections not far off.`\
 https://nytimes.com/2024/06/28/us/politics/democrats-biden-debate-supreme-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/28/magazine/mom-dad-abuser-warning-ethics.html
 **‘Is It Too Late?’ Four Writers on What Democrats Should Do About Biden.**\
 `None of the options ensure victory against Trump — and some of them could badly split the party.`\
 https://nytimes.com/2024/06/28/opinion/biden-democrats-debate.html
-
-**Book Club: Let’s Talk About ‘Headshot,’ by Rita Bullwinkel**\
-`Bullwinkel’s debut novel sheds light on the culture of youth women’s boxing through an ensemble cast of complicated characters. It packs a punch.`\
-https://nytimes.com/2024/06/28/books/review/book-club-headshot-rita-bullwinkel.html
 
