@@ -1,3 +1,7 @@
+**The Fed’s Preferred Inflation Measure Cools, Welcome News**\
+`The economy appears to be downshifting and price gains are moderating, as Federal Reserve officials creep closer to beating inflation.`\
+https://nytimes.com/2024/06/28/business/economy/federal-reserve-inflation-cools.html
+
 **Southampton offer Walker-Peters plus cash for West Ham's Flynn Downes**\
 `Southampton are in discussions with West Ham United regarding a deal for Flynn Downes, with Kyle Walker-Peters in line to move in the opposite direction as part of a separate transaction.`\
 https://nytimes.com/athletic/5599557/2024/06/28/kyle-walker-peters-west-ham/
