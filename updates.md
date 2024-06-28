@@ -1,3 +1,9 @@
+**I’m Hearing High Anxiety from Democrats Over Biden’s Debate Performance**\
+`Some are calling it a disaster.`\
+https://nytimes.com/2024/06/25/opinion/biden-debate-performance.html
+
+**“That was a made-up quote, suckers and losers. They made it up.”**\
+
 **“We’re no longer respected as a country. They don’t respect our leadership. They don’t respect the United States anymore.”**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/were-no-longer-respected-as-a-country-they-dont-respect-our-leadership-they-dont-respect-the-united-states-anymore
