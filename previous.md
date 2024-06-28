@@ -1,3 +1,15 @@
+**Dutch Olympic Organizers Defend Participation of Athlete Convicted of Rape**\
+`Steven van de Velde, a beach volleyball player, spent time in prison for the 2014 rape of a 12-year-old girl. His inclusion on the Olympic team has caused a stir in the international news media.`\
+https://nytimes.com/2024/06/28/world/europe/steven-van-de-velde-dutch-volleyball-olympics.html
+
+**Trump dodges climate issues, saying, ‘We had H2O, we had the best.’**\
+`By Lisa Friedman`\
+https://nytimes.com/live/2024/06/28/us/trump-biden-debate/trump-climate-presidential-debate
+
+**Justices Thomas and Alito Ignored Calls for Recusal in Jan. 6 Case**\
+`Experts in legal ethics have said that the activities of the justices’ wives raised serious questions about their impartiality.`\
+https://nytimes.com/2024/06/28/us/politics/justices-thomas-and-alito-recuse.html
+
 **She Thought She Caught a Man Cheating, So She Posted on TikTok**\
 `A woman took a sneaky video of a man and woman on a plane, claiming that she was witnessing an extramarital affair.`\
 https://nytimes.com/2024/06/28/style/tiktok-plane-privacy.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/06/25/opinion/thepoint/homelessness-supreme-court
 **Nearly 1,430 people have been charged in the Jan. 6 attack.**\
 `Prosecutors have suggested that more than 2,000 people could ultimately face indictment for their roles in the attack.`\
 https://nytimes.com/live/2024/06/28/us/supreme-court-jan-6/nearly-1430-people-have-been-charged-in-the-jan-6-attack
-
-**Yes … Who? Here Are the Chefs Who Appear in ‘The Bear.’**\
-`Last season, the FX series featured a parade of Hollywood celebrities. In the new one, it’s showing off its food-world credibility with a series of cameos from star chefs.`\
-https://nytimes.com/2024/06/28/arts/television/the-bear-season-3-chef-cameos.html
-
-**A Woman Sleeping With Her Stepson? This Director Knows It May Shock.**\
-`The French filmmaker Catherine Breillat has been exploring relationships between girls and older men since the 1970s. Her latest, “Last Summer,” flips the script.`\
-https://nytimes.com/2024/06/28/movies/catherine-breillat-last-summer.html
-
-**Join Us to Hear About the Loopholes of Hawaii’s Pay-to-Play Law**\
-`A joint investigation examined the role money plays in politics in Hawaii. Hear how journalists put the story together in a livestreamed event on July 10.`\
-https://nytimes.com/2024/06/28/us/honolulu-civil-beat-event.html
 
