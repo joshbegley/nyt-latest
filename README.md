@@ -1,3 +1,7 @@
+**Putin Vows to Make New Nuclear Missiles and to Weigh Placing Them Near NATO Nations**\
+`The announcement appeared to be the Russian leader’s latest attempt to raise the stakes in his conflict with the West, coming less than two weeks after his visit to North Korea.`\
+https://nytimes.com/2024/06/28/world/europe/russia-nuclear-missiles-nato.html
+
 **Astronauts Are Not Stuck on the I.S.S., NASA and Boeing Officials Say**\
 `Butch Wilmore and Suni Williams will spend additional weeks in orbit as teams on the ground study malfunctioning thrusters on the Starliner spacecraft.`\
 https://nytimes.com/2024/06/28/science/boeing-starliner-nasa-astronauts.html
@@ -33,8 +37,4 @@ https://nytimes.com/article/tropical-storm-beryl-hurricane.html
 **Embattled Alzheimer’s Researcher Is Charged With Fraud**\
 `Hoau-Yan Wang, a professor at City College, published studies supporting simufilam, now in advanced clinical trials.`\
 https://nytimes.com/2024/06/28/health/wang-cassava-alzheimers-fraud.html
-
-**Doris Allen, Analyst Who Saw the Tet Offensive Coming, Is Dead at 97**\
-`Her warning of a big buildup of enemy troops poised to attack South Vietnam in 1968 was ignored, a major U.S. Army intelligence failure during the war.`\
-https://nytimes.com/2024/06/28/world/asia/doris-allen-dead.html
 
