@@ -1,3 +1,19 @@
+**“Every legal scholar wanted it that way.”**\
+`By Elizabeth Dias`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/every-legal-scholar-wanted-it-that-way
+
+**Canadiens hit the biggest weekend of their offseason and Jeff Gorton is optimistic**\
+`Canadiens executive vice-president of hockey operations Jeff Gorton remains bullish on their ability to significantly improve at the draft.`\
+https://nytimes.com/athletic/5598593/2024/06/27/canadiens-nhl-draft-2024-jeff-gorton/
+
+**“First of all, the Supreme Court just approved the abortion pill, and I agree with the decision to have done that. And I will not block it.”**\
+`By Abbie VanSickle`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/first-of-all-the-supreme-court-just-approved-the-abortion-pill-and-i-agree-with-the-decision-to-have-done-that-and-i-will-not-bl
+
+**Messi misses Argentina training, status remains in doubt for Peru**\
+`Lionel Messi was absent from Argentina’s evening training session on Thursday in Miami ahead of their final group-stage game at Copa America.`\
+https://nytimes.com/athletic/5598626/2024/06/27/lionel-messi-injury-argentina-copa-america/
+
 **‘N/A’ Review: For Nancy Pelosi and A.O.C., It’s a House Divided**\
 `Is moral leadership possible without parliamentary power? Two very familiar congresswomen battle it out onstage.`\
 https://nytimes.com/2024/06/27/theater/n-a-review-nancy-pelosi-aoc.html
