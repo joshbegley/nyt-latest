@@ -1,3 +1,7 @@
+**Nearly 1,430 people have been charged in the Jan. 6 attack.**\
+`Prosecutors have suggested that more than 2,000 people could ultimately face indictment for their roles in the attack.`\
+https://nytimes.com/live/2024/06/28/us/supreme-court-jan-6/nearly-1430-people-have-been-charged-in-the-jan-6-attack
+
 **Yes … Who? Here Are the Chefs Who Appear in ‘The Bear.’**\
 `Last season, the FX series featured a parade of Hollywood celebrities. In the new one, it’s showing off its food-world credibility with a series of cameos from star chefs.`\
 https://nytimes.com/2024/06/28/arts/television/the-bear-season-3-chef-cameos.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/28/us/supreme-court-jan-6/heres-the-latest-on-t
 **Live Updates: Supreme Court Rules for Member of Jan 6. Mob in Obstruction Case**\
 `The decision concerned the scope of a 2002 law enacted in the wake of the collapse of Enron to address accounting fraud and the destruction of evidence.`\
 https://nytimes.com/live/2024/06/28/us/supreme-court-jan-6
-
-**Supreme Court Rules for Member of Jan 6. Mob in Obstruction Case**\
-`The decision concerned the scope of a 2002 law enacted in the wake of the collapse of Enron to address accounting fraud and the destruction of evidence.`\
-https://nytimes.com/2024/06/28/us/supreme-court-jan-6-obstruction.html
 
