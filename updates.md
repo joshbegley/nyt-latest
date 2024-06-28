@@ -1,3 +1,7 @@
+**The Panama game was an important test for this USMNT generation - and one it failed**\
+`How can the US expect to outfox bigger names if it frequently fails against opponents it knows best?`\
+https://nytimes.com/athletic/5599151/2024/06/28/usmnt-generation-failed-panama-copa-america/
+
 **7.2-Magnitude Earthquake Strikes Off Peru**\
 `A tsunami alert was lifted about an hour after the quake struck off the coast of the southern region of Arequipa. There were reports of minor injuries and some damage.`\
 https://nytimes.com/2024/06/28/world/americas/peru-earthquake.html
