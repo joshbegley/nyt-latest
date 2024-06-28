@@ -2,7 +2,7 @@
 `The French filmmaker Catherine Breillat has been exploring relationships between girls and older men since the 1970s. Her latest, “Last Summer,” flips the script.`\
 https://nytimes.com/2024/06/28/movies/catherine-breillat-last-summer.html
 
-**Join Us: The Loopholes of Hawaii’s Pay-to-Play Law**\
+**Join Us to Hear About the Loopholes of Hawaii’s Pay-to-Play Law**\
 `A joint investigation examined the role money plays in politics in Hawaii. Hear how journalists put the story together in a livestreamed event on July 10.`\
 https://nytimes.com/2024/06/28/us/honolulu-civil-beat-event.html
 
