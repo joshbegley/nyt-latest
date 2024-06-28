@@ -1,3 +1,7 @@
+**Calder Trophy runner-up, a possible extension on the way, Wild's Brock Faber looks forward to big sophomore year**\
+`Faber, especially in his home state, is humbled by the accolades he receives and the spotlight he gets.`\
+https://nytimes.com/athletic/5546942/2024/06/27/wild-brock-faber-contract-calder-trophy/
+
 **Uber and Lyft Agree to Give Massachusetts Drivers Minimum Pay**\
 `The deal, which includes a $175 million settlement with the state, keeps the drivers classified as independent contractors, not employees.`\
 https://nytimes.com/2024/06/27/technology/uber-lyft-massachusetts-settlement.html

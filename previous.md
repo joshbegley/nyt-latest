@@ -1,3 +1,7 @@
+**Calder Trophy runner-up, a possible extension on the way, Wild's Brock Faber looks forward to big sophomore year**\
+`Faber, especially in his home state, is humbled by the accolades he receives and the spotlight he gets.`\
+https://nytimes.com/athletic/5546942/2024/06/27/wild-brock-faber-contract-calder-trophy/
+
 **Uber and Lyft Agree to Give Massachusetts Drivers Minimum Pay**\
 `The deal, which includes a $175 million settlement with the state, keeps the drivers classified as independent contractors, not employees.`\
 https://nytimes.com/2024/06/27/technology/uber-lyft-massachusetts-settlement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/27/us/uvalde-shooting-pete-arredondo-indicted.html
 **This Is the First Presidential Debate Without an In-Person Audience Since 1960**\
 `John F. Kennedy and Richard M. Nixon were the last presidential candidates to debate with no live audience during a general election.`\
 https://nytimes.com/2024/06/27/us/politics/biden-trump-debate-no-audience.html
-
-**Canucks re-sign Tyler Myers to 3-year contract**\
-`Myers, a 34-year-old blueliner, was intent on remaining in Vancouver.`\
-https://nytimes.com/athletic/5598295/2024/06/27/canucks-tyler-myers-contract/
 
