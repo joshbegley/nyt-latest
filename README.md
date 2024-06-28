@@ -27,7 +27,7 @@ https://nytimes.com/2024/06/28/nyregion/joseph-pell-lombardi-real-estate-office-
 https://nytimes.com/2024/06/28/nyregion/nyc-homeless-older-people.html
 
 **7.2-Magnitude Earthquake Strikes Off Peru**\
-`Peruvian authorities issued a tsunami alert after the quake struck off the coast of the southern region of Arequipa.`\
+`A tsunami alert was lifted about an hour after the quake struck off the coast of the southern region of Arequipa. There were reports of minor injuries and some damage.`\
 https://nytimes.com/2024/06/28/world/americas/peru-earthquake.html
 
 **Offstage, a Band of Biden Defenders Braves a Sea of Trump Swagger**\
