@@ -1,3 +1,11 @@
+**Kawakami: Warriors' Mike Dunleavy Jr. is ready for the big move, if it's available**\
+`Mike Dunleavy on lining up a big trade: "This stuff evolves, it changes so quickly. But the one thing I know is we're in position to do it."`\
+https://nytimes.com/athletic/5598630/2024/06/28/warriors-mike-dunleavy-jr-draft-trade-free-agency/
+
+**Chelsea submit offer to sign Kiernan Dewsbury-Hall**\
+`Chelsea have submitted an offer to sign Kiernan Dewsbury-Hall from Leicester City.`\
+https://nytimes.com/athletic/5599597/2024/06/28/chelsea-kiernan-dewsbury-hall/
+
 **Southampton in talks with Martin over new contract**\
 `Southampton are in talks with Russell Martin over a new contract after he led them back to the Premier League at the first time of asking.`\
 https://nytimes.com/athletic/5597346/2024/06/28/russell-martin-southampton-contract/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5560530/2024/06/28/san-francisco-49ers-running-back
 **Lazerus: Blackhawks owe it to themselves and to Connor Bedard to draft Ivan Demidov at No. 2**\
 `Safe is death in the NHL, which is why Demidov is the right pick for the Blackhawks in the 2024 draft.`\
 https://nytimes.com/athletic/5598415/2024/06/28/blackhawks-draft-ivan-demidov-connor-bedard/
-
-**The Athletic’s Friday football quiz question #10**\
-`Every week, we'll serve up a poser from our vault of football conundrums. It won't be easy (unless you're really good…)`\
-https://nytimes.com/athletic/5596879/2024/06/28/athletic-friday-football-quiz-10/
-
-**A Halting Performance**\
-`Both candidates affirmed voter fears — about President Biden’s age and Donald Trump’s character.`\
-https://nytimes.com/2024/06/28/briefing/a-halting-performance.html
 

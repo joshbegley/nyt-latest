@@ -1,3 +1,11 @@
+**Kawakami: Warriors' Mike Dunleavy Jr. is ready for the big move, if it's available**\
+`Mike Dunleavy on lining up a big trade: "This stuff evolves, it changes so quickly. But the one thing I know is we're in position to do it."`\
+https://nytimes.com/athletic/5598630/2024/06/28/warriors-mike-dunleavy-jr-draft-trade-free-agency/
+
+**Chelsea submit offer to sign Kiernan Dewsbury-Hall**\
+`Chelsea have submitted an offer to sign Kiernan Dewsbury-Hall from Leicester City.`\
+https://nytimes.com/athletic/5599597/2024/06/28/chelsea-kiernan-dewsbury-hall/
+
 **Southampton in talks with Martin over new contract**\
 `Southampton are in talks with Russell Martin over a new contract after he led them back to the Premier League at the first time of asking.`\
 https://nytimes.com/athletic/5597346/2024/06/28/russell-martin-southampton-contract/
