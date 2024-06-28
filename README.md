@@ -1,3 +1,11 @@
+**New Jersey Orders Trump’s Clubs to Show They Deserve Liquor Licenses**\
+`The state said that former President Donald J. Trump’s felony convictions may mean he does not have the moral character to serve drinks.`\
+https://nytimes.com/2024/06/28/nyregion/trump-golf-clubs-liquor-licenses.html
+
+**Regulatory Agencies Suffered Their Latest Blow in Chevron Ruling**\
+`The Supreme Court’s conservative majority has made it easier to sue agencies and get their rules struck down.`\
+https://nytimes.com/2024/06/28/us/politics/scotus-chevron-agencies.html
+
 **The Supreme Court Gives a Hand to Hundreds of Jan. 6 Rioters**\
 `The decision could also affect the indictment against Trump.`\
 https://nytimes.com/live/2024/06/25/opinion/thepoint/supreme-court-jan6-rioters
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/28/us/politics/biden-debate-pelosi-hakeem-jeffries.h
 **Utah geared up for a fight in anticipation of the court’s ruling.**\
 `By Christina Jewett`\
 https://nytimes.com/live/2024/06/28/us/supreme-court-chevron/utah-geared-up-for-a-fight-in-anticipation-of-the-courts-ruling
-
-**The ruling is likely to stymie public health initiatives, experts said.**\
-`By Teddy Rosenbluth and Roni Caryn Rabin`\
-https://nytimes.com/live/2024/06/28/us/supreme-court-chevron/chevron-deference-public-health
-
-**Los Angeles Homeless Count Drops for the First Time in 6 Years**\
-`The reduction was a sign of progress for Mayor Karen Bass, who started an aggressive new program to move people off the streets in 2022.`\
-https://nytimes.com/2024/06/28/us/los-angeles-homeless-count.html
 
