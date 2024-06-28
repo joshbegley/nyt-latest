@@ -1,3 +1,11 @@
+**Businesses Cheer Their New Freedom to Violate Regulations**\
+`Conservative justices take a big step in their campaign to shrink government oversight.`\
+https://nytimes.com/live/2024/06/25/opinion/thepoint/supreme-court-chevron-regulations
+
+**Obama Defends Biden: ‘Bad Debate Nights Happen’**\
+`The former president faced a similar crisis of confidence in his re-election campaign after a bad debate performance in 2012, and he defended his former running mate in a social media post.`\
+https://nytimes.com/2024/06/28/us/politics/obama-biden-debate.html
+
 **What does it mean when Israel authorizes an illegal settlement?**\
 `Israel says it will legalize five West Bank settlements previously considered illegal, as the government accelerates what critics call a slow-motion annexation of land meant for a Palestinian state.`\
 https://nytimes.com/live/2024/06/28/world/israel-gaza-war-hamas/israel-legalize-settlements-explainer
