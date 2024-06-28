@@ -1,3 +1,15 @@
+**Social Conservatives Push Trump on the G.O.P.’s Anti-Abortion Platform**\
+`Leaders of the anti-abortion movement sent a letter to Donald J. Trump amid worries he may try to weaken the anti-abortion language in the party platform.`\
+https://nytimes.com/2024/06/28/us/politics/trump-abortion-letter.html
+
+**Democrats, anticipating Chevron’s demise, gave E.P.A. more power in recent climate law.**\
+`By Coral Davenport`\
+https://nytimes.com/live/2024/06/28/us/supreme-court-chevron/democrats-anticipating-chevrons-demise-gave-epa-more-power-in-recent-climate-law
+
+**5 International Shows Worth Watching, From Kafka to a Human Kaiju**\
+`The return of “Babylon Berlin” was the international TV news of the week, but here are five other recent series to check out.`\
+https://nytimes.com/2024/06/28/arts/television/review-kafka-shoresy.html
+
 **Overturning the Chevron decision has been a major goal of the conservative legal movement.**\
 `The Supreme Court heard oral arguments yesterday on one of the biggest cases of the current term.`\
 https://nytimes.com/live/2024/06/28/us/supreme-court-chevron/overturning-the-chevron-decision-has-been-a-major-goal-of-the-conservative-legal-movement

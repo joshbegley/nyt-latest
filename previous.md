@@ -1,3 +1,15 @@
+**Social Conservatives Push Trump on the G.O.P.’s Anti-Abortion Platform**\
+`Leaders of the anti-abortion movement sent a letter to Donald J. Trump amid worries he may try to weaken the anti-abortion language in the party platform.`\
+https://nytimes.com/2024/06/28/us/politics/trump-abortion-letter.html
+
+**Democrats, anticipating Chevron’s demise, gave E.P.A. more power in recent climate law.**\
+`By Coral Davenport`\
+https://nytimes.com/live/2024/06/28/us/supreme-court-chevron/democrats-anticipating-chevrons-demise-gave-epa-more-power-in-recent-climate-law
+
+**5 International Shows Worth Watching, From Kafka to a Human Kaiju**\
+`The return of “Babylon Berlin” was the international TV news of the week, but here are five other recent series to check out.`\
+https://nytimes.com/2024/06/28/arts/television/review-kafka-shoresy.html
+
 **Overturning the Chevron decision has been a major goal of the conservative legal movement.**\
 `The Supreme Court heard oral arguments yesterday on one of the biggest cases of the current term.`\
 https://nytimes.com/live/2024/06/28/us/supreme-court-chevron/overturning-the-chevron-decision-has-been-a-major-goal-of-the-conservative-legal-movement
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/06/28/us/trump-biden-debate/trump-climate-presiden
 **Justices Thomas and Alito Ignored Calls for Recusal in Jan. 6 Case**\
 `Experts in legal ethics have said that the activities of the justices’ wives raised serious questions about their impartiality.`\
 https://nytimes.com/2024/06/28/us/politics/justices-thomas-and-alito-recuse.html
-
-**She Thought She Caught a Man Cheating, So She Posted on TikTok**\
-`A woman took a sneaky video of a man and woman on a plane, claiming that she was witnessing an extramarital affair.`\
-https://nytimes.com/2024/06/28/style/tiktok-plane-privacy.html
-
-**In Mexico City, debate watchers pay close attention to talk of immigration.**\
-`By James Wagner`\
-https://nytimes.com/live/2024/06/27/us/biden-trump-debate/in-mexico-city-debate-watchers-pay-close-attention-to-talk-of-immigration
-
-**The oversight of food, drugs and tobacco is expected to be a target.**\
-`By Christina Jewett`\
-https://nytimes.com/live/2024/06/28/us/supreme-court-chevron/the-oversight-of-food-drugs-and-tobacco-is-expected-to-be-a-target
 
