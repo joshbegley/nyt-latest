@@ -4,7 +4,7 @@ https://nytimes.com/athletic/5592848/2024/06/28/gareth-southgate-england-view-eu
 
 **Trump’s debate performance: Relentless attacks and falsehoods.**\
 `By Michael Gold`\
-https://nytimes.com/live/2024/06/27/us/biden-trump-debate/trumps-debate-performance-relentless-attacks-and-falsehoods
+https://nytimes.com/2024/06/27/us/politics/trumps-debate-performance-relentless-attacks-and-falsehoods.html
 
 **A settled line-up and Musiala on fire, but a notable lack of width - assessing Germany so far**\
 `The hosts have impressed at these Euros and have much to be happy about, but if they are to go all the way, there are the areas to improve`\
