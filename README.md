@@ -1,3 +1,7 @@
+**What I’m Reading: Tunneling to the Past**\
+`Looking for answers, or an escape, in a fraught world.`\
+https://nytimes.com/2024/06/28/world/europe/interpreter-books-reading-wars.html
+
 **Supreme Court Upholds Ban on Sleeping Outdoors in Homelessness Case**\
 `In a case likely to have broad ramifications throughout the West, the court found an Oregon city’s penalties did not violate the Constitution’s prohibition on “cruel and unusual punishment.”`\
 https://nytimes.com/2024/06/28/us/politics/supreme-court-homelessness.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/25/opinion/thepoint/krugman-biden-must-withdraw
 **'Finally ripping off the band-aid': Breaking down USWNT's Olympic roster and Alex Morgan's snub**\
 `Meg Linehan and Tamerra Griffin discuss the USWNT's Olympic roster`\
 https://nytimes.com/athletic/5598139/2024/06/28/breaking-down-uswnts-olympic-roster-and-alex-morgans-snub/
-
-**Why Some People Don’t Talk About Money With Their Partner**\
-`A new report finds that people stressed about their finances are often worried that discussing it will lead to an argument. But experts say conversations can help.`\
-https://nytimes.com/2024/06/28/your-money/finances-budget-relationships-partner.html
 
