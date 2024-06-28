@@ -1,3 +1,11 @@
+**Six Takeaways From the First Presidential Debate**\
+`In a testy, personal clash, President Biden failed to ease worries about his age, Donald Trump forcefully made his case (with wild claims and exaggerations) and the moderators held their fact-checking fire.`\
+https://nytimes.com/2024/06/28/us/politics/presidential-debate-takeaways-biden-trump.html
+
+**Six former Man Utd players on the one issue Ten Hag needs to fix**\
+`Lee Sharpe, Jaap Stam and other ex-Man Utd players on what's gone wrong at their former club and how to fix it...`\
+https://nytimes.com/athletic/5589606/2024/06/28/man-utd-former-players-diagnose-club-biggest-problems/
+
 **'It's a snoozefest': What Europe thinks of Gareth Southgate's England**\
 `England fans seem to be losing faith in their football manager... and sentiments are not much kinder on the continent`\
 https://nytimes.com/athletic/5592848/2024/06/28/gareth-southgate-england-view-europe/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5596235/2024/06/28/euro-2024-group-stage-analysed/
 **Why Britain’s Murky Election Betting Scandal Is Causing Outrage**\
 `The embattled Conservative Party is embroiled in investigations over whether some of its own staff members used insider knowledge to bet on the timing of the general election.`\
 https://nytimes.com/2024/06/28/world/europe/uk-election-betting-scandal.html
-
-**Iran’s Presidential Candidates: Who Are They?**\
-`Four of the six candidates selected by officials to run in Iran’s special presidential election are still in the running after the president died in a helicopter crash last month.`\
-https://nytimes.com/2024/06/28/world/middleeast/irans-presidential-candidates.html
-
-**Biden to Protect Hundreds of Thousands of Haitians From Deportation**\
-`The plan giving temporary protected status to people from the Caribbean island who arrived after November 2022 comes amid a flurry of recent immigration moves by the president.`\
-https://nytimes.com/2024/06/28/us/politics/biden-haitians-deportation.html
 
