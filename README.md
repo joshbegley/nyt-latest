@@ -1,3 +1,7 @@
+**She Needed an Emergency Abortion. Doctors in Idaho Put Her on a Plane.**\
+`In states that have banned abortion, hospitals have struggled to treat pregnant women facing health risks. A Supreme Court decision this week did not help.`\
+https://nytimes.com/2024/06/28/us/emergency-abortion-idaho-mother.html
+
 **The Bible in Public Schools? Oklahoma Pushes Limits of Long Tradition.**\
 `The Bible has a deep history in American classrooms, but the state’s provocative superintendent wants to broadly expand its influence.`\
 https://nytimes.com/2024/06/28/education/bible-schools-classrooms.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/28/business/student-loans-payments-save-biden.html
 **After Biden’s Debate Disaster, an Uncertain Path**\
 `Also, the Supreme Court ruled that prosecutors overstepped in Jan. 6 case. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/06/28/briefing/biden-debate-disaster-supreme-court-jan-6.html
-
-**Judge John Hodgman on Speaking Like a Local While Traveling**\
-`Should this father be trying to communicate in the language of the places he visits if it’s embarrassing his son?`\
-https://nytimes.com/2024/06/28/magazine/judge-john-hodgman-on-speaking-like-a-local-while-traveling.html
 
