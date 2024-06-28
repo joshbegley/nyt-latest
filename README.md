@@ -4,7 +4,7 @@ https://nytimes.com/2024/06/28/world/europe/france-brittany-far-right.html
 
 **Germany's Rudiger fit to face Denmark in last 16**\
 `Antonio Rudiger is set to start for Germany against Denmark on Saturday night.`\
-https://nytimes.com/athletic/5599458/2024/06/28/antonio-rudiger-fit-germany-denamark/
+https://nytimes.com/athletic/5599458/2024/06/28/antonio-rudiger-fit-germany-denmark/
 
 **Vikings mailbag: When should we expect J.J. McCarthy to start at QB?**\
 `How soon could the rookie QB start for the Vikings? How will Darnold's play affect the situation? And could the team trade for a DT?`\
