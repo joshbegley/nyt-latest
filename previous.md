@@ -1,3 +1,11 @@
+**Voters Must Decide Who Should Be the King of America’s Nuclear Monarchy**\
+`The president controls the deadliest weapon arsenal known to man.`\
+https://nytimes.com/live/2024/06/25/opinion/thepoint/voters-must-decide-who-should-be-the-king-of-americas-nuclear-monarchy
+
+**Before LeBron and Bronny, These Fathers and Sons Made Sports History**\
+`The Los Angeles Lakers are poised to have the first father-son N.B.A. duo in league history. But other dads and sons have played pro sports together as well.`\
+https://nytimes.com/2024/06/28/sports/basketball/father-son-lebron-bronny-james-lakers.html
+
 **Trump’s use of ‘Palestinian’ as an insult raises alarms for some.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/06/28/us/trump-biden-debate/trumps-use-of-palestinian-as-an-insult-raises-alarms-for-some
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/06/25/opinion/thepoint/biden-speech-carolina
 **Leaders in Their Prime Debate Substance in Detail (No, Not in the U.S.)**\
 `The debates between contenders to be U.K. prime minister showed that Britain’s political culture, and the leaders who have emerged from it, are far removed from those across the ocean.`\
 https://nytimes.com/2024/06/28/world/europe/uk-us-debate-contrast.html
-
-**Michael Jackson Died With $500 Million in Debt**\
-`Jackson owed about $40 million to the tour promoter A.E.G. in 2009, his estate’s executors said in a court filing. They said all the debts have been eliminated.`\
-https://nytimes.com/2024/06/28/arts/michael-jackson-debt.html
-
-**Diplo, D.J. and Music Producer, Is Accused in Lawsuit of ‘Revenge Porn’**\
-`A woman accused Diplo of distributing intimate images and videos of her without her consent; his lawyer likened her suit to others “in search of a meritless payday.”`\
-https://nytimes.com/2024/06/28/arts/diplo-lawsuit-revenge-porn.html
 
