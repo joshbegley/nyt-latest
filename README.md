@@ -1,3 +1,7 @@
+**Spain's Lamine Yamal passes school exams during Euro 2024**\
+`Barcelona winger and Spain international Lamine Yamal, 16, has successfully passed his school exams.`\
+https://nytimes.com/athletic/5599265/2024/06/28/lamine-yamal-spain-euro-2024/
+
 **Brittany Was Once Barren Ground for France’s Far Right. No More.**\
 `The region along the northwest coast has few immigrants and little crime or unemployment, but the far right National Rally has made inroads saying that all three are coming.`\
 https://nytimes.com/2024/06/28/world/europe/france-brittany-far-right.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5585657/2024/06/28/macklin-celebrini-nhl-draft-firs
 **What's going on with Jude Bellingham?**\
 `Why has one of England's superstars not clicked at Euro 2024?`\
 https://nytimes.com/athletic/5593515/2024/06/28/wayne-rooney-jude-bellingham/
-
-**Key Debate Moments: A Night of Stumbles and Falsehoods, and More**\
-`Plus, Bronny James joins his dad at the Lakers.`\
-https://nytimes.com/2024/06/28/podcasts/debate-takeaways.html
 
