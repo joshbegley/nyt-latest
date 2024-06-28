@@ -1,3 +1,7 @@
+**NBA free agency: Isaiah Hartenstein tops a not-so-strong group of centers**\
+`As the final positional stop on our free agency tour, the center position unquestionably offers the least.`\
+https://nytimes.com/athletic/5585200/2024/06/28/nba-free-agency-best-available-centers-isaiah-hartenstein-nic-claxton/
+
 **How to fix Brazil: 'Dirty movement', Endrick as a No 9 and a midfield rejig**\
 `The drab draw with Costa Rica on Monday presented several tactical problems, but there are answers at hand...`\
 https://nytimes.com/athletic/5597087/2024/06/28/brazil-copa-america-tactics/
