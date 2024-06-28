@@ -1,3 +1,7 @@
+**A Halting Performance**\
+`Both candidates affirmed voter fears — about President Biden’s age and Donald Trump’s character.`\
+https://nytimes.com/2024/06/28/briefing/a-halting-performance.html
+
 **Spain's Lamine Yamal passes school exams during Euro 2024**\
 `Barcelona winger and Spain international Lamine Yamal, 16, has successfully passed his school exams.`\
 https://nytimes.com/athletic/5599265/2024/06/28/lamine-yamal-spain-euro-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5591793/2024/06/28/pj-morlando-mlb-draft-prospect-p
 **What makes Macklin Celebrini so good? 4 stories that reveal why he’ll transform the Sharks**\
 `Celebrini’s family, teammates and coaches share stories that testify to the competitiveness, skill and force of will that set him apart.`\
 https://nytimes.com/athletic/5585657/2024/06/28/macklin-celebrini-nhl-draft-first-pick-sharks/
-
-**What's going on with Jude Bellingham?**\
-`Why has one of England's superstars not clicked at Euro 2024?`\
-https://nytimes.com/athletic/5593515/2024/06/28/wayne-rooney-jude-bellingham/
 
