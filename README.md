@@ -1,3 +1,11 @@
+**A Dark Day for Democrats**\
+`The combination of President Biden’s debate performance and adverse Supreme Court rulings left Democrats reeling and in despair with elections not far off.`\
+https://nytimes.com/2024/06/28/us/politics/democrats-biden-debate-supreme-court.html
+
+**Paul Sperry, Tenor Who Specialized in American Song, Dies at 90**\
+`He carved out a niche by singing songs by living composers from his own country, and was praised by critics at home and abroad.`\
+https://nytimes.com/2024/06/28/arts/music/paul-sperry-dead.html
+
 **The Best Engagement Gifts**\
 `Take the guesswork out of the present.`\
 https://nytimes.com/interactive/2024/06/28/smarter-living/wirecutter/engagement-gifts.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/28/opinion/biden-democrats-debate.html
 **Book Club: Let’s Talk About ‘Headshot,’ by Rita Bullwinkel**\
 `Bullwinkel’s debut novel sheds light on the culture of youth women’s boxing through an ensemble cast of complicated characters. It packs a punch.`\
 https://nytimes.com/2024/06/28/books/review/book-club-headshot-rita-bullwinkel.html
-
-**Texas Supreme Court Upholds Ban on Gender Transition Care for Minors**\
-`The all-Republican court voted 8 to 1 to leave in effect a law enacted last year during a wave of legislation targeting transgender rights.`\
-https://nytimes.com/2024/06/28/us/texas-transgender-ban-minors.html
-
-**Which Joe Biden Is the Real One?**\
-`He can still give a good speech, but that may not be enough.`\
-https://nytimes.com/live/2024/06/25/opinion/thepoint/biden-speech-carolina
 
