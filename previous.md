@@ -1,3 +1,11 @@
+**Wife’s Ex-Boyfriend and Fear of Poverty at Center of Menendez’s Defense**\
+`Senator Robert Menendez’s lawyers are expected to call witnesses who will describe his childhood and the rocky start to his relationship with his wife.`\
+https://nytimes.com/2024/06/28/nyregion/robert-menendez-bribery-trial-defense.html
+
+**We fact-checked both candidates’ statements. Here’s what we found.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/06/28/us/trump-biden-debate/we-fact-checked-both-candidates-statements-heres-what-we-found
+
 **Princess Anne Returns Home From the Hospital**\
 `Anne, the younger sister of King Charles III, suffered a concussion and other injuries in an accident at her country residence, palace officials said.`\
 https://nytimes.com/2024/06/28/world/europe/princess-anne-home-hospital-accident.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/28/business/kobayashi-pharmaceutical-supplement-deat
 **Why the Lakers set out to make history by drafting Bronny James at No. 55**\
 `There wasn't much risk for the team in drafting LeBron James' son in the second round.`\
 https://nytimes.com/athletic/5597946/2024/06/28/bronny-james-lakers-development-draft/
-
-**Oilers 2024 NHL Draft preview: What do they need to add?**\
-`Here's a look at what you can expect from the Oilers draft table this weekend.`\
-https://nytimes.com/athletic/5594943/2024/06/28/edmonton-oilers-2024-nhl-draft-preview/
-
-**Broncos RB Jaleel McLaughlin on mission in Year 2: 'It's just the way he's wired'**\
-`McLaughlin's 5.4 yards per carry ranked among NFL leaders last season with at least 75 carries. Now, he seeks bigger pass-game impact.`\
-https://nytimes.com/athletic/5596537/2024/06/28/broncos-jaleel-mclaughlin-2024/
 

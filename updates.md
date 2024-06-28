@@ -1,3 +1,11 @@
+**Wife’s Ex-Boyfriend and Fear of Poverty at Center of Menendez’s Defense**\
+`Senator Robert Menendez’s lawyers are expected to call witnesses who will describe his childhood and the rocky start to his relationship with his wife.`\
+https://nytimes.com/2024/06/28/nyregion/robert-menendez-bribery-trial-defense.html
+
+**We fact-checked both candidates’ statements. Here’s what we found.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/06/28/us/trump-biden-debate/we-fact-checked-both-candidates-statements-heres-what-we-found
+
 **Princess Anne Returns Home From the Hospital**\
 `Anne, the younger sister of King Charles III, suffered a concussion and other injuries in an accident at her country residence, palace officials said.`\
 https://nytimes.com/2024/06/28/world/europe/princess-anne-home-hospital-accident.html
