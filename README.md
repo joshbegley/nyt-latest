@@ -1,3 +1,7 @@
+**Carlos Rodón was a disaster once again. Where do the Yankees go from here?**\
+`Rodón isn't going to turn into a junkballer, but he acknowledged the sequencing needs to improve.`\
+https://nytimes.com/athletic/5598515/2024/06/28/yankees-carlos-rodon-disaster-again/
+
 **Amid Perilous Times, Iran Holds Vote to Pick a President**\
 `Whoever is chosen will have to cope with a cratering economy, regional strife and deep divisions and discord at home.`\
 https://nytimes.com/2024/06/28/world/middleeast/iran-president-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/27/us/politics/trump-debate-performance-falsehoods.h
 **A settled line-up and Musiala on fire, but a notable lack of width - assessing Germany so far**\
 `The hosts have impressed at these Euros and have much to be happy about, but if they are to go all the way, there are the areas to improve`\
 https://nytimes.com/athletic/5597237/2024/06/28/germany-euro-2024-analysis/
-
-**"Football fans brought 'Freed from Desire' back - that's some sort of justice for me"**\
-`Gala has dedicated her life to the music world - but after decades in the wilderness football fans have made her a household name`\
-https://nytimes.com/athletic/5589600/2024/06/28/football-fans-gala-freed-from-desire-interview/
 
