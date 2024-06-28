@@ -1,3 +1,7 @@
+**7.2-Magnitude Earthquake Strikes Off Peru**\
+`Peruvian authorities issued a tsunami alert after the quake struck off the coast of the southern region of Arequipa.`\
+https://nytimes.com/2024/06/28/world/americas/peru-earthquake.html
+
 **A Storied Harlem Church Has a New Leader. Its Members Have Questions.**\
 `Behind the opaque process that just selected the next pastor at Abyssinian Baptist Church.`\
 https://nytimes.com/2024/06/28/nyregion/abyssinian-baptist-church-kevin-johnson.html
