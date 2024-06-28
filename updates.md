@@ -1,3 +1,7 @@
+**Biden Cannot Go On Like This**\
+`Democrats must grapple with his disastrous debate.`\
+https://nytimes.com/2024/06/28/opinion/presidential-debate-trump-biden-2024.html
+
 **Biden Brushes Off Concerns About His Performance: ‘It’s Hard to Debate a Liar’**\
 `During brief remarks to reporters after his showdown with former President Donald J. Trump, Mr. Biden said he felt he “did well” but noted that he had a sore throat.`\
 https://nytimes.com/2024/06/28/us/politics/biden-sore-throat-debate.html
